@@ -1,3 +1,32 @@
+###  Публикация: 1005896   (831071) от 10.04.2016
+
+VA - Minimal Pump The Beat (2016) [MP3|320 кб/с] <Minimal Techno, Minimal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zareh Kan - Biss Bass
+02. Paul Schmitz - Eutis
+03. Zareh Kan, Stephen Advance - We Are Just Kids (Fritz Fridulin Remix)
+04. Decavell - Linpinpin(   Читать дальше...   )Жанр: Minimal Techno, Minimal HouseПродолжительность: 04:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D724C4030340880250B6F9013E73F3F79750BC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005887   (830920) от 10.04.2016
 
 VA - House Nation Volume 8 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
@@ -716,35 +745,6 @@ VA - Record Super Chart - Итоговый Суперчарт (2017) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69913D6D41AA65BE99B4F817C7539399D2C5967B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006697   (825585) от 13.04.2016
-
-VA - Happy Feeling Vol.3 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yuriy Pilin - Dream (Original Mix) 04:31
-02. Soundmare - Digital Sunlight (Original Mix) 06:14
-03. Alex Tasty - Double Senses (Original Mix) 06:19
-04. Romashin - A Cold Winter Sun (Original Mix) 09:51(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 01:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1374A38842E753A93C9E538DE7EEAA1ED509D28A
 ```
 
 https://mybot314.ru/tekegram_catalog/

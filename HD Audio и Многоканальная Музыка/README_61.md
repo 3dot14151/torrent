@@ -1,3 +1,148 @@
+###  Публикация: 1663183   (187201) от 20.09.2023
+
+Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Brass & Military, Marches>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187201.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Inspection
+A1 Blaydon Races
+A2 Shirley Bassey Showcase
+A2(a) Kiss Me Honey, Honey, Kiss Me(   Читать дальше...   )Жанр: Brass & Military, MarchesПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C22089662F74B2DBA382F791C679DE815B41DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663006   (187195) от 20.09.2023
+
+Lords of Sorcery - Nemesis (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dark Place [00:01:43]
+02. Hail Your Satan [00:03:42]
+03. Forever with the Devil [00:04:20]
+04. Ass Honey [00:04:37](   Читать дальше...   )Жанр: Dark Heavy MetalПродолжительность: 00:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6A78AB05637A4991F4A00A5C6BEA72A5E2672D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662977   (187193) от 20.09.2023
+
+Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heavenly — пауэр-метал-группа из Франции, основанная в 1994 году вокалистом Бенжамином Сотто и барабанщиком Максом Пило.2000 - Coming From The Sky
+2001 - Sign Of The Winner
+2004 - Dust To Dust
+2006 - VirusЖанр: Power MetalПродолжительность: 05:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF8B9D744853AD7EC24D5300D0FD0381DE80251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662993   (187160) от 20.09.2023
+
+Neuromancer - Hardwired (2023) [FLAC 24/44.1|WEB-DL|tracks] <Darksynth, Synthwave, Retro Future>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonchild [00:03:40]
+02. Out of the Dark [00:04:25]
+03. Sonic [00:03:45]
+04. Cloud City [00:05:44](   Читать дальше...   )Жанр: Darksynth, Synthwave, Retro FutureПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F771E3964429299E07D1FE556CD14E511F4FF02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663008   (187149) от 20.09.2023
+
+Sundayman - Melodyssey (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Royal Purple [00:03:56]
+02. Change [00:04:27]
+03. Always [00:04:17]
+04. Breathe [00:04:21](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8268A3231475F3D028E7E7F8F6BC1994412C7BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591175   (187128) от 18.11.2022
 
 Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Metal>
@@ -595,151 +740,6 @@ Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83508DF59A7474A11DEBBBB4CD611833BE312D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827377   (186102) от 21.10.2025
-
-Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfheart - метал-группа из Лахти, Финляндия, основанная в 2013 году Туомасом Саукконеном.2013 - Winterborn
-2015 - Shadow World
-2017 - Tyhjyys
-2018 - Constellation Of The Black LightЖанр: Melodic Death MetalПродолжительность: 05:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98483922B70E817E9F7AE204A2AA39AC55E0ED7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664205   (186055) от 25.09.2023
-
-Ronin - Valak the Defiler (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturn's Portal [00:04:18]
-02. Beyond the Pale [00:04:13]
-03. Hatred's Mate [00:02:55]
-04. Monster [00:02:53](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA925421A09C8837D8DBF876CFE022E677AA0E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664242   (186044) от 25.09.2023
-
-Thibaut García - El Bohemio (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un sueño en la floresta (8:02)
-02. Aire de zamba (2:31)
-03. Mazurka appassionata (5:39)
-04. 24 Preludes, Op. 28: No. 20 in C Minor (Arr. Barrios Mangoré for Guitar) (1:38)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3CE5C16CDDD03C015BE60921DE9D99696DA24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664220   (186025) от 25.09.2023
-
-Royal Academy of Music Soloists Ensemble, Trevor Pinnock, The Glenn Gould School - Bach: Partitas (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I. Praeludium (1:46)
-02. II. Allemande (3:32)
-03. III. Corrente (3:05)
-04. IV. Sarabande (5:01)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2614A8535B9FB84FE8373CC2D08DEBDD8071636A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664294   (185948) от 25.09.2023
-
-*Ancients - Cosmic Ark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calamity [00:05:56]
-02. Desolate Dunes [00:05:18]
-03. Artemis [00:03:55]
-04. Endurance [00:06:14](   Читать дальше...   )Жанр: Post-RockПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50932E19C8023C3B9327815CC5E5F4F78B8F0BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

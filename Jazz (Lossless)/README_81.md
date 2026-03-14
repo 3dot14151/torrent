@@ -1,3 +1,90 @@
+###  Публикация: 1211223   (777898) от 06.03.2018
+
+Jimmy Rosenberg - Trio (2004) Hot Club Records [FLAC|Lossless|tracks + .cue] <Gypsy Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One of Those Things [02:41]
+02. China Boy [01:47]
+03. Made for Wesley [03:20]
+04. Cherokee [01:56](   Читать дальше...   )Жанр: Gypsy Jazz, SwingПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FC4093891664251CBA0C08D7B7D893799FB162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013427   (777677) от 04.05.2016
+
+Cees Slinger, Clifford Jordan, Philly Joe Jones, Isla Eckinger - Sling Shot! (1985) Remaster, 2015, Solid Records[FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Slingshot [06:51]
+ 02.Growing Up [05:10]
+ 03.Waltonia [07:20]
+ 04.Eye-Witness Blues [06:18](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B4E415300CCE1E475D5B07DF2DDA1A902B01838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013571   (777676) от 04.05.2016
+
+Buster Williams Trio - Tokudo (Japan Edition) (1989) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tokudo (Williams) - 9:38
+02. This Time the Dream's on Me (Arlen-Mercer) - 6:34
+03. Fuego (Williams) - 7:42
+04. This Is the End of a Beautiful Friendship (Styne-Kahn) - 6:49(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2503973AB327C69FC2D91EF88512B03FDC946679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013517   (777657) от 04.05.2016
 
 Lou Mecca, Bill de Arango, Chuck Wayne - 3 Swinging Guitar Sessions (1953-1955) 2015, Fresh Sound Recor[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Guitar Jazz>
@@ -658,93 +745,6 @@ The New Stan Getz Quartet featuring Astrud Gilberto - Getz Au Go Go (1964) 2007,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12BC49B0504BA60EAE2F7F29038D4D1B81745E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211905   (776873) от 09.03.2018
-
-Michael Musillami - Groove Teacher (1999) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Blend [06:27]
-02. The Gift [08:25]
-03. Open Ended [09:39]
-04. Off the Glass [08:10](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFF7A12A556CE0EB407039DB7D20224E4AF6B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212084   (776579) от 10.03.2018
-
-Michael Musillami Octet - Spirits (2004) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squid Fantasy [08:20]
-02. Star [01:27]
-03. Namibian Sunset [08:05]
-04. Goody [08:39](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7E12E09DBF30C30C5AADA5B323CDF34AFDD2DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014514   (776566) от 07.05.2016
-
-Timewarp Inc. - Ghetto Drunk (2013) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Funky Breaks, Soul, Funky House>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bullshit (04:57)
-02. Ghetto Drunk (feat. Tonkin) (04:43)
-03. Humus (04:42)
-04. Start With an A (04:58)(   Читать дальше...   )Жанр: Nu Jazz, Funky Breaks, Soul, Funky HouseПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C73E080B4631E9799A0B64605BF4DA02AB056A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

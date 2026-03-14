@@ -1,3 +1,32 @@
+###  Публикация: 1097533   (914120) от 27.01.2017
+
+Betraying the Martyrs - The Resilient (2017) [MP3|320 Kbps] <Symphonic Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost For Words (04:00)
+02. Take Me Back (04:50)
+03. The Great Disillusion (04:15)
+04. Dying to Live (03:45)(   Читать дальше...   )Жанр: Symphonic Metalcore, DeathcoreПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C5D43C0DE3EDD755E7050F51CD70E592DC6354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367833   (914021) от 17.03.2020
 
 Svartálfar (Svartalfar) - Niflheljar Til (2020) [MP3|320 Kbps] <Folk Viking Metal>
@@ -717,35 +746,6 @@ Silent Circus - Rise and Fall (2017) [MP3|320 Kbps] <Groove Metal, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19D07A6CE3802426805DF5EEB3307B6CEC465E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989773   (906429) от 28.02.2016
-
-Balfor - Barbaric blood (2010) [MP3|320 кб/с] <Progressive Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Ashes (...The Beginning)
-02. Behold My Hate!
-03. Shadow Of My Raven Wings
-04. In A Thunder Of Ancient Glory(   Читать дальше...   )Жанр: Progressive Death Metal, Black MetalПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70686FAB4DB0712F4A332DD56DDB74AC7D055AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

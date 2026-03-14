@@ -1,3 +1,125 @@
+###  Публикация: 594691   (133420) от 26.12.2012
+
+Rita Ora - Ora (2012) [FLAC (tracks+.cue)|Lossless]<R&B, Dance>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Facemelt
+02. Roc The Life
+03. How We Do (Party)
+04. R.I.P. (ft. Tinie Tempah)
+05. Radioactive
+06. Shine Ya Light
+07. Love & War (ft. J. Cole)
+08. Uneasy
+09. Fall in Love (ft. Will.I.Am)
+10. Been Lyin(   Читать дальше...   )Жанр: R&B, DanceПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681123   (132979) от 02.12.2023
+
+Гио ПиКа, Кравц - 60 секунд до зимы (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [00:01:13]
+02. Лишь о тебе [00:02:13]
+03. Маяк [00:02:12]
+04. Твоя планета [00:03:14](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FA3E7085A6C78001210993CABA841BA1B8670E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681368   (132947) от 02.12.2023
+
+Гуф - Zапретное Место (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Добро пожаловать [00:03:39]
+02. Раунд 2 [00:02:32]
+03. ПТ [00:02:32]
+04. Улетный день [00:02:08](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A710E5C96D64F528DA953E09414600D393CFB05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682298   (131442) от 07.12.2023
+
+4К - Матовый (2023) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [00:01:47]
+02 - Родная улица [00:03:51]
+03 - Если чё [00:03:18]
+04 - Навали-ка [00:05:23](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7DE187D1F5FF9F9E2E205AD4701F2C03DFAFDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682864   (131076) от 08.12.2023
 
 VA - Chillhop Essentials Winter (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
@@ -629,122 +751,6 @@ Chernovik - Космос во мне (2014) [WavPack|Lossless|image + .cue] <Rap
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A5AA3BCFE4646DC8145308442E73EF5976E2F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739030   (106226) от 25.07.2024
-
-Geegun - The Best Of (2008) [WavPack|Lossless|image + .cue] <Thug Rap, Gangsta, Pop Rap, Hardcore Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Только Тебе
- 02. Мы Завели
- 03. На Первом
- 04. Skit(   Читать дальше...   )Жанр: Thug Rap, Gangsta, Pop Rap, Hardcore Hip-HopПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7426D7BE9DFAC58C45BF390DAF2C60C8091A6462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738293   (106216) от 25.07.2024
-
-Естественный Zагар - Солнечная Радиация (2008) [WavPack|Lossless|image + .cue] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		Лето
-02		Ибицу Смыло
-03		Мало Солнца
-04		Ветер(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFBBBBE1D57F38401FF9115C56A1919874BB2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740838   (105747) от 04.08.2024
-
-Лигалайз - XL (2006) [WavPack|Lossless|image + .cue] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
- 02. Остаться
- 03. Почувствуй Силу
- 04. Будущие Мамы(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E019A5EB1E94802362F277692E739551776E7922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741288   (105662) от 07.08.2024
-
-Многоточие - За Бесконечность Времени... (2007) [WavPack|Lossless|image + .cue] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
- 02. Кольца Спирали
- 03. Её Слёзы Пахнут Проявителем
- 04. Они Говорят(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8353AEEF4D6BA55BDA72DBB513F67BDB9E52ECD
 ```
 
 https://mybot314.ru/tekegram_catalog/

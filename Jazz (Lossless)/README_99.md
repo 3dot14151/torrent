@@ -1,3 +1,90 @@
+###  Публикация: 1285687   (719158) от 27.02.2019
+
+Kim Mills - The Ruby And The Pearl (2005) Jazz Karma Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ruby and the Pearl [4:31]
+02. That's All [4:23]
+03. Corcovado (Quiet Nights of Quiet Stars) [3:20]
+04. I Only Have Eyes for You [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2E2D929C391D6840183BED4695DBF9A028BF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285622   (719157) от 27.02.2019
+
+Chris Potter - Circuits (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invocation (02:08)
+02. Hold It (06:49)
+03. The Nerve (08:30)
+04. Koutomé (06:47)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE949F0AD89D81525CFC9997644B668DD03FD96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129916   (719003) от 30.04.2017
+
+Al Haig & Jimmy Raney - Strings Attached (1975) Remaster, 2007, Absord Music [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolphin Dance [07:30]
+02. Enigma [04:55]
+03. Invitation [09:22]
+04. You Came To Me From Out Of Nowhere [06:26](   Читать дальше...   )Жанр: BopПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986809BDE3BCF60883F183BE41F1FCFAFEC6B749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129919   (719002) от 30.04.2017
 
 Martin Krusche - Friendship Pagoda (2000) Naxos Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -661,93 +748,6 @@ Tony Levin(King Crimson): cello, bass(   Читать дальше...   )
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C32C5BB237DD6E99E27CFE5F029A30474334E50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400846   (715273) от 07.08.2020
-
-Catherine Russell - Alone Together (2019) Dot Time Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone Together [4:10]
-02. You Turned the Tables on Me [3:41]
-03. When Did You Leave Heaven? [5:05]
-04. Early in the Morning [4:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9960D2ED96CEE56F6E6C2250439A6E5D432356D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 893291   (715209) от 28.04.2015
-
-Paul Hardcastle - The Chill Lounge  Volume 1 (2012) [FLAC|Lossless]<Nu Jazz, Lounge, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return Of The Rainman
-02. Solar Sky (Ibiza Remix)
-03. Through The Looking Glass
-04. East To West(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChilloutПродолжительность: 01:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B4D99B760C7ED892ABF9C4D6E222291E9EBFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400845   (715193) от 07.08.2020
-
-Baptiste Herbin - Vista Chinesa (2020) Space Time Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vista Chinesa [7:06]
-02. Transfigura [6:30]
-03. Meu sonho [5:53]
-04. Gemeos [6:27](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5D8C8309D47AC6CABA581CF265DD9ACA4F1363
 ```
 
 https://mybot314.ru/tekegram_catalog/

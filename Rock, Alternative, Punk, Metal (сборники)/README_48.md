@@ -1,3 +1,32 @@
+###  Публикация: 1795912   (19080) от 07.05.2025
+
+Smokie - Compilation (2025) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lay Back in the Arms of Someone [04:05]
+02. Whiskey in the Jar [05:00]
+03. Something's Been Making Me Blue [03:00]
+04. Heat of the Night [05:08](   Читать дальше...   )Жанр: RockПродолжительность: 03:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B8439F05EA61416FBB5778399A27DCF4BA101D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795601   (19028) от 07.05.2025
 
 Voodoo Circle (Alex Beyrodt's) - Compilation (2008-2024) [MP3|320 Kbps] <Hard rock, Heavy metal>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F238C8DBC403BEDB629BEE71072FC1DFEA4D097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813183   (6939) от 19.08.2025
-
-VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [OPUS|160 kbps] <pop, rock, rap>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6939.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aretha Franklin - Respect.opus — 00:02:27
-002. Public Enemy - Fight The Power.opus — 00:04:42
-003. Sam Cooke - A Change Is Gonna Come.opus — 00:03:11
-004. Bob Dylan - Like A Rolling Stone.opus — 00:06:09(   Читать дальше...   )Жанр: pop, rock, rapПродолжительность: 34:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3552843121BF622EE46CF84DB13432D0DF87C3E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

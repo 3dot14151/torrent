@@ -1,3 +1,32 @@
+###  Публикация: 1342238   (224385) от 01.12.2019
+
+VA - Tried Everything: Dance Mixtape (2019) [MP3|320 Kbps] <House, Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224385.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Markus Schulz & Nifra - Ave Maria (Extended Festival Mix)
+002. Deks - Retro
+003. Lucas Zamora - Believe In Me
+004. Timmy Trumpet - World At Our Feet(   Читать дальше...   )Жанр: House, Trance, ElectroПродолжительность: 10:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A82DBC5FB7E18689EDF32FDC6D7D4D79E388BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965748   (224222) от 15.12.2015
 
 VA - Modern House Audio Samples (2015) [MP3|242-320 кб/с] <Funky, Club House>
@@ -716,32 +745,6 @@ VA - SVS Collection vol. 7 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C36560D4B6964460E9EA49DDD3EAA5788E29BC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966312   (220805) от 17.12.2015
-
-VA - PromoDJ Top 100 Remix (2015) [MP3|224-320 кб/с] <Club house, Vocal house, Dutch house, Progressive house, Progressive trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZHU - Faded (Feel Vocal Remix)Жанр: Club house, Vocal house, Dutch house, Progressive house, Progressive tranceПродолжительность: 08:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA5DB52730C4D917BE68F000C66A1DDD444B03B
 ```
 
 https://mybot314.ru/tekegram_catalog/

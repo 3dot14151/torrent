@@ -1,3 +1,148 @@
+###  Публикация: 1186801   (284777) от 26.11.2017
+
+Steve Brian - Calera Remixed (2012) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calera (Reminder Remix)
+02. Yaya (Estiva Remix)
+03. Yaya (Cressida Remix)
+04. Vueltas (Dan Stone Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07A88CFB9CA6335ABAF75EC5A83319AFB4FF3B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264010   (284677) от 21.11.2018
+
+Dan Norvan - The Beginning (2018) [MP3|320 Kbps] <Trance,ProgressiveHouse>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning (Original Mix)
+02. Where You Left Me (Original Mix)
+03. Journey (Original Mix)
+04. Try to Be (You) (Original Mix)(   Читать дальше...   )Жанр: Trance,ProgressiveHouseПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B47AA7713B45950DB08C91D27A585651836218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263995   (284676) от 21.11.2018
+
+VA - Vocal Trance Vol. 4 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Roman Messer & Betsie Larkin - Unite (Ruslan Radriges Extended Remix)
+02.Mino Safy & eranga ft. Mark Frisch - The Reason (Eximinds Remix)
+03.Mhammed El Alami & Lucid Blue - Under the Sun (O.B.M Notion Extended Remix)
+04.Adip Kiyoi & Christina Novelli - Carousel (Ruslan Radriges Extended Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46501D6D60350FA5B4B89331DCDE7B941C2FADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263889   (284671) от 21.11.2018
+
+VA - Silk Music Pres. Trance Treasures 12 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mango & Astroleaf - We Tried (Talamanca Dub Remix) (07:29)
+02. Arielle Maren & Elypsis - Always Be (Vintage & Morelli Dub Remix) (07:25)
+03. Gregory Esayan - Coastal Glow (David Broaders Remix) (06:55)
+04. Terry Da Libra - Anagenesis (Original Mix) (07:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2344F54DE08BB2EBAF63C96C32209FA824F3388D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081227   (284638) от 09.12.2016
+
+VA - Euphoric Trance: Best Of (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ReLocate - Venom (F.G. Noise Remix) 7:04
+02. Alan Morris - Made of Light 6:53
+03. Radion6 - Nothing Here But Goodbye (Matt Bukovski Remix) 6:25
+04. Jo Cartwright - Embrace You (Maratone Remix) 6:49(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B50C0B1D28BDD8861305ED23789B653B010458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081239   (284632) от 09.12.2016
 
 VA - Vocal Trance Top 100 (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -597,151 +742,6 @@ VA - Uplifting Only: Fan Favorites 2016-2017 (Mixed By Ori Uplift) (2017) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A226494A20B1083FF265B53BDE999A1008E516F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187976   (277157) от 30.11.2017
-
-VA - Vocal Trance Hits - Best Of (2017) [MP3|320 Kbps] <Trance,Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gareth Emery & Standerwick – Saving Light (feat. HALIENE) (04:35)
-02. Armin van Buuren – Sunny Days (feat. Josh Cumbee) (Club Mix) (03:16)
-03. Gabriel & Dresden – This Love Kills Me (feat. Sub Teal) (Gabriel & Dresden Club Mix - Above & Beyond Respray) (03:56)
-04. Above & Beyond & OceanLab – On a Good Day (Ilan Bluestone Remix) (04:06)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF28C474123F9D563B21AFCFEAE4624C9279405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265111   (276516) от 26.11.2018
-
-VA - Uplifting Trance 2019 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Allen & Patrick Dreama - The Remedy (Extended Mix) 6:40
-02. Stargazers feat. Katty Heath - Be Here With Me (Extended Mix) 5:48
-03. Nitrous Oxide feat. Sarah Russell - Lower Than The Ground (Extended Mix) 5:51
-04. Kaimo K - When You Come Home (Extended Mix) 7:51(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D85608696D64486745191C9A8EF7E339416884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337222   (276370) от 09.11.2019
-
-VA - Eternalsun Residents Allstars - 40 Different Club Works! (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Greidor - Love In World (400esm Mix)
-02. Dennis Moskvin - X.T.S. (400esm Mix)
-03. Paul Bassmant - Evening Stone (400esm Mix)
-04. PDS - Mash (400esm Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45879A6A7AD02A729AE684341C0E052CE6A6FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188059   (276163) от 01.12.2017
-
-VA - Vocal Trance Anthems Vol. 3 (2017) [MP3|320 Kbps] <Trance,Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LEVV - Collateral Damage (Noise Zoo Remix)
-02. Declan James - Lady (Original Mix)
-03. Estiva,Delaney Jane, Skouners - Playing With Fire (Alex Klingle Remix)
-04. Noise Zoo - Twister (Original Mix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1044D0D9BC7F904CB22DD03E257582BC50BBD6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188026   (276156) от 01.12.2017
-
-VA - Vocal Dance Vol.3 (2017) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pierre Pienaar & Amy Kirkpatrick  -  Looking (Extended Mix) 5:48
-02.  LTN  -  Coconut Island (Extended Mix) 6:28
-03.  Dennis Graft feat. Maria Milewska  -  Until (Extended Mix) 4:57
-04.  Bigtopo & Omar Diaz  -  Amazonas (Extended Mix) 5:49(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 02:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B83B048ECFFB5FE255E145F9291579CC81AC4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

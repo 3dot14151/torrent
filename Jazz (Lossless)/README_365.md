@@ -1,3 +1,90 @@
+###  Публикация: 1099001   (20364) от 24.04.2025
+
+Steve Blayer - Vermont Wanderer (1996) Ermatell Records[FLAC|Lossless|image + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_20364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Mean You [05:41]
+ 02.Ain't Misbehavin' [05:19]
+ 03.All Inside [08:00]
+ 04.Softly, As In A Morning Sunrise [07:01](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495FD9FEBAFB2A5A8FF6BBE0881ED67C82BAD1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794696   (19775) от 30.04.2025
+
+Eileen Sharkey - Lessons Of Love (2000) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_19775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Have Dreamed [3:32]
+02. Fallen [3:06]
+03. Comes Love [3:39]
+04. Too Marvelous for Words [2:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615CC725E1B1C8C56DBCDCE39840434B350CF9E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794674   (19774) от 30.04.2025
+
+Brian Simpson - Midnight Groove (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_19774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Mystique
+02. Under The Stars
+03. Lost In The Moment
+04. Tropical Escape(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD62072D9E80AFB66A8337AEB16CF1CB9F7FB16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794692   (19756) от 30.04.2025
 
 Charles Rouse - Two Is One (1974) 1992, Strata-East [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion>
@@ -658,93 +745,6 @@ Rolf Ericson & Lennart Aberg - Ellington & Strayhorn (1995) Sittel AB [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AE36367F090EAC139F41D780EDE4B9C28544E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801256   (15145) от 09.06.2025
-
-Kenny Dorham - Four Classic Albums (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mack The Knife [3:03]
-02. Us [7:13]
-03. It Could Happen To You [5:59]
-04. Lets Face The Music [6:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCCFB6BBCA7E417C6B270BE7CFE166761B773013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801388   (15039) от 10.06.2025
-
-Branford Marsalis Quartet - Belonging (2025) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiral Dance [8:21]
-02. Blossom [11:02]
-03. 'Long as You Know You're Living Yours [8:56]
-04. Belonging [7:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFDE7C4B121D23B4D5FF0D6DBB8020D9BB6A369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801361   (15038) от 10.06.2025
-
-Tim Hardin Trio - Light Intelligence Series 5 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tchaikovsky: Piano Concerto No.1 [3:37]
-02. Tchaikovsky: Waltz of the Flowers from 'The Nutcracker' [3:38]
-03. Tchaikovsky: The Swan Lake [3:41]
-04. Dvorak: Humoresque [3:34](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B0A32664346C4ADB844936A674942F785E4684
 ```
 
 https://mybot314.ru/tekegram_catalog/

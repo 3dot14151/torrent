@@ -1,3 +1,61 @@
+###  Публикация: 1732548   (52021) от 25.06.2024
+
+VA - Lounge Heaven, Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Hammock - Sanctuary (4:54)
+02. Marc Hartman - Angels In The Sky (5:16)
+03. Artur Bayramgalin - November Night (Jazz Hop Version) (4:06)
+04. Luis Hermandez - Endlessly (3:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD9117E95A2D160EE9BB417C94BED344E87D9BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733980   (51378) от 01.07.2024
+
+V.A. - Lounge Covers of Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ituana - Clocks (Sign of the Times Remix)
+02. Groove Da Praia, Anakelly - The Rhythm of the Night (Ronan Remix)
+03. General Soundbwoy, Urban Love - Be Easy (Nikko Mad Mix)
+04. Urban Love, Nikko Mad - Run(   Читать дальше...   )Жанр: Downtempo, Lounge, PopПродолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A22D436DCF3CAE8B57838CDD7AEB759A6D98AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735341   (50758) от 07.07.2024
 
 V.A. - Buddha Bar Beach 10 Years by Ravin (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
@@ -687,64 +745,6 @@ VA - Poolside Grooves Chillout Hits Edition (2025) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40D0C27199E4D2046DF0B0B74EC4D3F55B94D33E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755051   (40531) от 13.10.2024
-
-VA - Lounge Empire (25 Afterwork Anthems) Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Steen Thottrup, Rafa Peletey - Dreams (The W Song) (Remastered) (04:21)
- 02 - Karen Gibson Roc, Merge Of Equals - Love Each Other (04:27)
- 03 - Ganga, Nikolaj Grandjean - Carry You Home (Thor & Ravin Rebirth Remix) (04:18)
- 04 - Kai French - Just Relax (03:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D86180256308BE9B2E87EDCFAB8250BCB3C397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755060   (40530) от 13.10.2024
-
-VA - Lounge Empire (25 Afterwork Anthems), Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lounge Groove Avenue - Smokey Clouds (03:55)
- 02 - Klod Rights - Everyday (Original Mix) (05:09)
- 03 - Glam Sam & His Combo - Bossy Bloke (Original Mix) (03:58)
- 04 - Van - French Rain (Original Mix) (05:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3ABC580CA81B2C969B8E64BCC144E806AAECA5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1503297   (821241) от 18.10.2021
+
+VA - Calming Acoustic Covers: 14 Chilled and Relaxing Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shannon & Keast - Fireflies (Acoustic) (03:42)
+02. John Burnsby - What a Wonderful World (Acoustic) (02:20)
+03. Karizma Duo - Islands in the Stream (03:30)
+04. Django Wallace - My Future (Acoustic) (03:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144843692198F49B0A93F871D03C4AC0F3FE115C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116810   (821052) от 21.03.2017
+
+Coeur de Pirate - Roses (2015) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carry On [03:35]
+02. Crier Tout Bas [04:20]
+03. I Don't Want To Break Your Heart [04:05]
+04. Drapeau Blanc [03:24](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39237056906CBCE009BC955CFDA39965C5D8CD59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503563   (819693) от 19.10.2021
+
+Kylie Minogue - DISCO (2020) [FLAC|Lossless|tracks + .cue] <Dance-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (4:11)
+02. Miss A Thing (3:57)
+03. Real Groove (3:15)
+04. Monday Blues (3:10)(   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C0F516BAD455C14B7A9053E3A09C13C7F67F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503572   (819495) от 19.10.2021
+
+VA - Gentle and Calm Instrumental Covers: 14 Beautifully Relaxing Instrumental Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yann Nyman - I Will Survive (Arr. for Piano) (03:06)
+02. Jonah Paris - Both Sides, Now (Arr. for Saxophone and Piano) (04:19)
+03. Max Arnald - Suburbia (Arr. for Piano) (03:55)
+04. Chris Mercer - Rocket Man (Arr. for Guitar) (02:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6EC818846CF1F3B96C8062EDAB1FA5EF8DCE8F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503564   (819487) от 19.10.2021
+
+Kylie Minogue - DISCO (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Dance-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (4:11)
+02. Miss a Thing (3:57)
+03. Real Groove (3:15)
+04. Monday Blues (3:10)(   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BAEA3A1F28F4B5F5817E86CA29DC5849B44B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117510   (819100) от 22.03.2017
 
 Vera Lynn - Vera Lynn 100 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Vocal>
@@ -601,151 +746,6 @@ Lana Del Rey - Blue Banisters (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indie-Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7655AFF505FCF473DEE80672E9278B4256FF160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119234   (809151) от 27.03.2017
-
-VA - Moon River: 20 All-Time Favourite Love Songs (1998) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Disco, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon River (2:40)
-02. My Guy (3:25)
-03. Friends (4:51)
-04. Dont Let The Sun Catch You Crying (2:23)(   Читать дальше...   )Жанр: Pop, Soft Rock, Disco, OldiesПродолжительность: 01:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B735EFF307DB54AE1A0DB04F418454B1D87D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119120   (808943) от 27.03.2017
-
-Charli XCX - Number 1 Angel (2017) [FLAC|Lossless|tracks] <Dance-Pop, Electro, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Dreamer (feat. Starrah and RAYE)  (03:58) 
-02|  3AM (Pull Up) (feat M)  (03:59) 
-03| Blame It On You  (03:47) 
-04| Roll With Me  (03:21) (   Читать дальше...   )Жанр: Dance-Pop, Electro, Synth-popПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57E69A55121B544D57406607008D72C128B423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383781   (808142) от 17.05.2020
-
-Светлана Лобода - Чёрный ангел (2006) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:42:49Трэклист: 01. Чёрный ангел ( Q-Coba )
-02. Дай мне ( MBM music )
-03. Там за облаками ( MBM music )
-04. Возьми ( T.Pash )(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3DF06DCC576D53CC696A6255ADB819DC5CA5948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505167   (806319) от 26.10.2021
-
-Duran Duran - Future Past (2021) [FLAC|Lossless|image + .cue] <Pop, Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806319.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Когда мы впервые пришли в студию в конце 2018 года, я пытался убедить ребят, что все, что нам нужно сделать, это написать два или три трека для EP", - сказал вокалист Duran Duran Simon Le Bon. "Четыре дня спустя, когда у меня было ядро ​​из более чем 25 сильных песен, которые все заслуживали внимания, я понял, что мы засядем в студии надолго, (   Читать дальше...   )01. Invisible (3:11)
-02. All Of You (4:05)
-03. Give It All Up feat. Tove Lo (5:07)
-04. Anniversary (5:18)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4392C167608D727413C6B19033CFD011352A73C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198631   (806191) от 12.01.2018
-
-Camila Cabello - Camila (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Be The Same (03:46)
-02. All These Years (02:44)
-03. She Loves Control (02:57)
-04. Havana (Feat. Young Thug) (03:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19F0B88897691657E7D67D3939C5DBF9F047FB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

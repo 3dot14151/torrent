@@ -1,3 +1,177 @@
+###  Публикация: 1671538   (171203) от 25.10.2023
+
+VA - Jazz Funk Instrumentals Vol. 4(Funky Soul Jazzy Instrumental Acid Tracks) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mecco Guidi - Ju Ju (3:49)
+02. The Smoke Orchestra - Funky Generation (3:17)
+03. Lo Greco Bros - Kick And Push (4:22)
+04. Bossa Nostra - Kontaminazione II (5:06)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A88FEAC7185CF65B923227B1EABC598913BB66D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671562   (171191) от 25.10.2023
+
+Chris Botti - Vol. 1 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Boy
+02. Bewitched, Bothered and Bewildered
+03. Two For The Road
+04. Paris (feat. John Splithoff)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5729425ED17F6935DA61A0531A1571EBC983FA9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671820   (171086) от 26.10.2023
+
+Toshiyuki Miyama & The New Herd - Gallery (1979) Three Blind Mice [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flower Arrangement [5:28]
+02. Art Gallery [5:30]
+03. A Falling Star [5:39]
+04. Blue Sail [5:34](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7905C1AA491F047260854D93F9668AF31A3334CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671817   (171083) от 26.10.2023
+
+Robert Conti - You Are The Sunshine Of My Life (1985) Trend [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Softly as I Leave You [3:40]
+02. You Are the Sunshine of My Life [3:48]
+03. People [3:36]
+04. My Favorite Things [2:12](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C526940BA8C759EA56D837C0CF693ED19D1D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671812   (171073) от 26.10.2023
+
+Howard Alden, Jimmy Bruno, Herb Ellis, Joe Pass - Full Circle & Jazz-Concord (1973, 1995) 2CD, 1998, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look for the Silver Lining [4:46]
+02. The Shadow of Your Smile [2:32]
+03. Good News Blues [3:22]
+04. Honeysuckle Rose [3:08](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 01:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29A5CFE45D723E41874588F46457D6301500AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671628   (171039) от 26.10.2023
+
+Al Kooper - The Complete MusicMasters Recordings (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Pop, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somethin' Goin' On [00:07:35]
+02. I Can't Quit Her [00:03:55]
+03. I Can't Keep From Cryin' Sometimes [00:04:30]
+04. I Want A Little Girl [00:05:10](   Читать дальше...   )Жанр: Blues, Pop, RockПродолжительность: 03:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800474922C4CF9179DF877DDD25D56001A1DDF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430116   (170767) от 10.12.2020
 
 Avishai Cohen - The 50 Gold Selection (2020) [MP3|320 Kbps] <Conterporary Jazz>
@@ -571,180 +745,6 @@ Della Reese - Essential Della Reese 1950-e - 1960-e (2004) MasterSong [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D439AFECC7A400AB03E7EF42633E24BFDAC322A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515457   (169678) от 07.12.2021
-
-Erroll Garner - 1944, Vol. 2 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hear A Rhapsody (Part 1 & 2) [8:21]
-02. Erroll's Reverie [7:24]
-03. You Were Born To Be Kissed [5:16]
-04. Perdido [2:46](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB01A927541901A8DE10E152C36F6CE85179504D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672347   (169554) от 28.10.2023
-
-J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1953 - 1955) 1995, Blue Note, Japan [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Daylie' Double [4:30]
-02. Pennies from Heaven [4:20]
-03. You're Mine You [3:10]
-04. Turnpike (alternate master) [4:15](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741A2DD36E1F59AAB9762923CFE0229867ABA04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672350   (169542) от 28.10.2023
-
-Toshiyuki Miyama & The New Herd - Sunday Thing (1976) 2021, Three Blind Mice [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday Thing [9:30]
-02. Soft Rain [5:07]
-03. Memories [3:42]
-04. Sweet Heart Blues [7:36](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545D87D2FB58416DB6ED7AC3736E8DAD8B680F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672345   (169533) от 28.10.2023
-
-J.J. Johnson - The Eminent Jay Jay Johnson, Vol. 1 (1953, 1954) 1995, Blue Note, Japan [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turnpike [4:22]
-02. Lover Man [3:57]
-03. Get Happy [4:55]
-04. Sketch 1 [4:29](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FF776C29FE55623C8FEE70984C8CB4E716A697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672342   (169528) от 28.10.2023
-
-Kazumi Tateishi Trio - Ghibli Meets Jazz: Memorable Songs (2011) Victor [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Departure (from 'Kiki's Delivery Service') [4:31]
-02. On a Clear Day (from 'Kiki's Delivery Service') [3:54]
-03. Inochi no Namae (Day of the River) (from 'Spirited Away') [5:29]
-04. Once in a While, Talk of the Old Days (from 'Porco Rosso') [4:59](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B121861C53007414675C7F44269CC5EAC08BAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672339   (169522) от 28.10.2023
-
-Ben Webster - The Soul Of Ben Webster (1954 - 1958) 2019, MatchBall [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fajista [3:50]
-02. Chelsea Bridge [3:43]
-03. Charlotte's Piccolo [15:34]
-04. Coal Train [4:12](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5661D10F868B124B064FBE633BCA9B1DD9F8AB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

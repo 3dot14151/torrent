@@ -1,3 +1,61 @@
+###  Публикация: 1639290   (237179) от 12.06.2023
+
+Karnataka - Requiem For A Dream (2023) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_237179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Around The World [00:11:29]
+02. Sacrifice [00:06:30]
+03. Look To The East [00:06:44]
+04. Forgiven [00:11:49](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35B35E1EA9CC8A1D2FB54CA84608AF24877DA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607737   (237059) от 28.01.2023
+
+VA - The Best of Luminol Records 2022 - Cantata (2022) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Spiritraiser - Stream [00:04:04]
+02 - Joint Depression - Homecoming [00:03:22]
+03 - Davide Ronfetto - Night City Lights [00:05:07]
+04 - Post Generation - This Cannot Work [00:05:38](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B0D73D82046ED4C294BEAB5BEB7F67976340E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456123   (236609) от 21.03.2021
 
 The Crystal City Rockers - After All These Years (2021) [MP3|320 Kbps] <Classic Rock>
@@ -688,64 +746,6 @@ Coastwise - 2 Albums (2022-2023) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:922C83DA4DF2BD3F840158502010A7AA49B41DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645467   (233324) от 09.07.2023
-
-Nektar - 4 Albums (2008-2023) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2008 - Book of Days (Deluxe Edition)
-2012 - A Spoonful of Time - Deluxe Edition (2CD)
-2012 - Man in the Moon / Evolution(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 5 CD, 07:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808F7E09DBFC4130A4DB7DAA5C5A75E0DBDF1194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645538   (233298) от 09.07.2023
-
-Big Big Train - Ingenious Devices (2023) [MP3|320 Kbps] <Crossover Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East Coast Racer 15:46
-02. The Book Of Ingenious Devices 01:20
-03. Brooklands 12:23
-04. Voyager 14:11(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:322D07557D58B02774DA08F27B9D6C3ED744F97C
 ```
 
 https://mybot314.ru/tekegram_catalog/

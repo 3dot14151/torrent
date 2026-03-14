@@ -1,3 +1,177 @@
+###  Публикация: 1073598   (343053) от 17.11.2016
+
+Judy Garland - America's Treasure (1960) 1986, Del Pack[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Swanee [02:08]
+ 02.San Francisco [03:26]
+ 03.You Made Me Love You [03:22]
+ 04.For Me And My Gal [01:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF533827AA98361B71F8C2862B6DE404124E55DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180248   (342949) от 03.11.2017
+
+Zone - Metade (2011) Dneeyedfish [FLAC|Lossless|image + .cue] <World Fusion, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metade [05:06]
+02. Don't Know [05:11]
+03. Nao Abro Mao [03:58]
+04. Your Precious Love [03:57](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B8B6307E6DA85C5E72E9DEFB65C99A2B53F0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073402   (342856) от 17.11.2016
+
+Patti Labelle - When a Woman Loves (2000) [FLAC|Lossless|tracks + .cue] <Soul,R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Kitchen
+02. When a Woman Loves
+03. Make Tonight Beautiful
+04. If I Was a River(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C41A24ED6F5D8423448734E0249250083A2931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180244   (342805) от 03.11.2017
+
+Charles Lloyd New Quartet - Passin' Thru (2017) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Weaver [17:46]
+02. Part 5, Ruminations [11:55]
+03. Nu Blues [11:52]
+04. How Can I Tell You [09:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE9004C162F5A6A0C0AB2A6A803575E1BB56C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179903   (342790) от 03.11.2017
+
+Willie May - Haunted House (2017) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Big Fannie (03:18)
+02. Haunted House (04:45)
+03. Ain't It Funny (04:01)
+04. Another Moon Song (03:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:078670A92F1193A82BC7E0CF0738273115928B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073669   (342667) от 17.11.2016
+
+VA - The Very Best of Jazz Manouche (2014) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Django Reinhardt - Body And Soul  (03:26) 
+02|  The Angelo Debarre Quartet - Hot Lips  (02:27) 
+03|  Stochelo Rosenberg - Embracable You  (03:46) 
+04|  Romane - Swing For Ninine  (03:13) (   Читать дальше...   )Жанр: JazzПродолжительность: 03:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C091E19316E4EA393AF49C53254E2D6CF8531E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179653   (342528) от 03.11.2017
 
 Ghalia & Mama's Boys - Let The Demons Out (2017) [MP3|320 Kbps] <Modern Electric Blues>
@@ -577,186 +751,6 @@ Anthony Gomes - High Voltage Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55EDD0FDB6B29A342BED4D8F077EFDB16CA873EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581056   (340815) от 26.11.2012
-
-Chris Thompson (ex-Mannfred Mann's Earth Band) - Do Nothing Till You Hear From Me (2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_340815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Take My Sugar to Tea (2:49)
-02. Caravan (3:12)
-03. Boulevard Of Broken Dreams (3:49)
-04. Take These Chains (3:03)
-05. Solitude (3:38)
-06. Those Wedding Bells Are Breakin' (Up That Old Gang of Mine) (2:24)
-07. Moonlight Serenade (2:51)
-08. Do Nothing till You Hear From Me (3:28)
-09. True Love Wins Again (4:29)
-10. Davy's on the Road Again (5:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578900   (340800) от 25.09.2022
-
-Troy Redfern - The Wings of Salvation (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gasoline [00:03:51]
-02. Sweet Carolina [00:03:53]
-03. Come On [00:03:47]
-04. Navajo [00:03:22](   Читать дальше...   )Жанр: Southern Blues RockПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:207C884CAAACDF9DB8907796D73A9A74BDEFC0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074076   (340729) от 18.11.2016
-
-VA - Rough Guide To Ethiopian Jazz (2016) [FLAC|Lossless|tracks + .cue] <World Music, Ethiopian Jazz, Folk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mulatu Astatke - Gamo 5:12
-02. Akale Wube - Alegntaye 4:17
-03. The Budos Band - Origin of Man 4:52
-04. The Ex / Getatchew Mekurya - Ambassel 7:36(   Читать дальше...   )Жанр: World Music, Ethiopian Jazz, FolkПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F25AAF1F9B61188E8934BD29DCD040EF5BDA94E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258075   (340724) от 28.10.2018
-
-VA - The Cover Art Of Blue Note (2003-2006) 2CD [MP3|320 Kbps] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norah Jones - I'll Be Your Baby Tonight (Bob Dylan / Robert Palmer)
-02. Cassandra Wilson - Fragile (Sting)
-03. Holly Cole - I Can See Clearly Now (Johnny Nash)
-04. Caecilie Norby - Man's Got Soul (Curtis Mayfield)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617A2E72643829D8D99F0134EE8D48A51D70C383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073996   (340456) от 18.11.2016
-
-Orchestra Nazionale Della Luna - Orchestra Nazionale Della Luna (2016) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Itamerengue [1:27]
- 2. Karibou [6:07]
- 03. The Truth [6:21]
- 04. Luna 17 B [8:51](   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4A86B9485A32755E22EC9A8C59D0FA417C537E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074062   (340436) от 18.11.2016
-
-VA - Jazz Only Jazz: Erotic Jazz Moments 2 (Essential Collection) (2016) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nils Landgren - Killing Me Softly (06:10)
-02. Caro Josee - Paris (feat. Manusch Weiss) (05:49)
-03. De-Phazz - Zero Zero (04:16)
-04. Lou Tavano - Emotional Riot (04:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF85B04A0D3B1731DF3A0A5D79353C8D121E85C
 ```
 
 https://mybot314.ru/tekegram_catalog/

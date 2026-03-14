@@ -1,3 +1,63 @@
+###  Публикация: 6708   (202264) от 22.08.2023
+
+Toto Cutugno (Тото Кутуньо) [Сборник] <Pop>
+
+>>След.
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тото Кутуньо (7.07.1943 - 22.08.2023) — итальянский композитор, эстрадный певец.
+Родился 7 июля 1943 в городке Фосдиново, Тоскана. Полное имя - Сальваторе Кутуньо. Его отец, сицилиец по происхождению, служил в военном флоте, а в свободное время увлекался игрой на трубе. Именно он дал сыну первые уроки музыки.
+У Кутуньо нет музыкального образования - он самородок. (   Читать дальше...   )1. Toto Cutugno - L'йtй Indien (Africa) (5:14)
+          2. Toto Cutugno - A... Rio (3:41)
+          3. Toto Cutugno - Adulele (3:53)
+          4. Toto Cutugno - Aeroporto Kennedy (4:11)(   Читать дальше...   )Жанр: ПОП
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4486F46FBDAE513A696AD9EB848F3C829C53E2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619053   (201372) от 14.03.2023
+
+VA - NRJ Hit List (2023) [MP3|320 Kbps] <Europop, Synthpop, Dancehall, Afrobeat>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aya Nakamura - Baby
+02. Soprano - 3615 Bonheur
+03. Central Cee - Let Go
+04. Pierre De Maere - Enfant De(   Читать дальше...   )Жанр: Europop, Synthpop, Dancehall, AfrobeatПродолжительность: 03:04:40 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BDCF269978B54C6EA0C7E5C2B9F410A1F8A8BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630874   (198997) от 03.05.2023
 
 Ace of Base - Beautiful Life - The Singles Box (2023) [MP3|320 Kbps] <Eurodance, Pop, Dance>
@@ -687,64 +747,6 @@ Secret Service - 8 Studio Albums (1979-2022) [MP3|320 Kbps] <Electronic, Pop Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D32747B6EFD086E59266F7DF4894F03DC5F7BDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592868   (182387) от 24.11.2022
-
-VA - Happy New Year 2023 (2022) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - Happy New Year
-02. The Black Eyed Peas - I Gotta Feeling
-03. Katy Perry - Firework
-04. Kool & The Gang - Celebration(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 04:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC4D7A771696913CCA3244424AD5A2973F3F6C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593127   (181782) от 25.11.2022
-
-Various - Pure... 70s (2013) 4 CD [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jacksons–	Show You The Way To Go
-02. Andrea True Connection–	More, More, More
-03. Baccara–	Yes Sir, I Can Boogie
-04. Gladys Knight & The Pips–	Baby, Don't Change Your Mind(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 04:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C9E8FCBCD03F70AA1C77E9D085EE56B9579256
 ```
 
 https://mybot314.ru/tekegram_catalog/

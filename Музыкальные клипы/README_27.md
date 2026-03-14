@@ -1,3 +1,185 @@
+###  Публикация: 577697   (358722) от 19.11.2012
+
+Usher - Numb (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Soul, R'N'B
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B63666303AEC5F9BCAE974374F6811FF48658E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577702   (358716) от 19.11.2012
+
+Usher - Dive (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Soul, R'N'B
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056E18E5D7089609560D09C6B404AFB0A72A2696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577860   (358546) от 19.11.2012
+
+Гайтана - My everything (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA2682DA467BC9AA2725630D3D2C313D7E801DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577502   (358544) от 19.11.2012
+
+Ludacris - Representin (Explicit) ft. Kelly Rowland (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4459BA3506CE17F6F6AA113080EFD5E2A8A65C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577507   (358366) от 19.11.2012
+
+Ludacris - Rest Of My Life ft. Usher, David Guetta (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:254813806A3B1877851BD23F68D52FCCDBE3EE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577689   (358356) от 19.11.2012
+
+Nelly Furtado - Parking Lot (2012) [H.264/1080p]  HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R'N'B
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476216F79F2C2E8CBEC31896C820B6F8FEC6060F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577878   (358348) от 19.11.2012
+
+Прохор Шаляпин - Дубинушка (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4667F177E2A8E840975A4743FC6412E9AB7CD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577883   (358345) от 19.11.2012
 
 Юлия Войс - Ненавижу любя (2012)  [H.264/1080p] WEB-DLRip
@@ -491,194 +673,6 @@ VA - Осенний марафон № 201 / Видеоклипы (Популя�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AC77119A54A8E6488A1184C0274B0921474AB35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578523   (350586) от 22.11.2012
-
-Benny Benassi 'Rough Road' Bus Tour - Episode 5 (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro HouseПродолжительность: 00:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82811AC5C11CF478FF2DE90EB398721CCE2BFE1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578524   (350427) от 22.11.2012
-
-DVJ Bazuka - Remind (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectroПродолжительность: 00:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B5B64C898F8C0023269FFD970B197C07F56AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 408329   (348212) от 12.11.2011
-
-Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro-PopПродолжительность: 00:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEF8F2380DF51C84C1878C8BDD2A1243F6615DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 256717   (347839) от 11.11.2010
-
-Ленинград - Сборник клипов (2005) [H.264] DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock/ Ska/ PunkПеревод: Не требуетсяПродолжительность: 1ч. 10мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D87CCF653811394BC718AB17D4EBB27338E625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578525   (345434) от 24.11.2012
-
-Rico Rossi - Take Em Down (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE82A60FF7A664BDFA49A6E07DF6926AAA88A61E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329470   (345255) от 08.10.2019
-
-Сборник клипов - Old School Hits от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345255.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы нулевых. Это 1я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Old School Hits 1 — Intro
-01. Sugababes — Push The Button
-02. Justin Timberlake & Clipse — Like I Love You
-03. Alesha Dixon — The Boy Does Nothing(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FB6FD20774D6C39DE25388537DABAAF8036BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952950   (344068) от 06.11.2015
-
-VA - Осенний марафон № 202 / Видеоклипы (Дискотека с размахом) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (02.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Ailee - Insane (Official Video) (00:03:39)
-02. Alyosha - Маленький секрет (Премьера!) (00:04:24)
-03. Ariana Grande - Focus (Official Video) (00:03:44)
-04. Blinkie ft. Alahna - Don t Give Up (Official Video) (00:03:23)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep,  Rap, Hip-HopПродолжительность: 01:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653208510F1607C1B3409096D5287EA79A993C89
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1216574   (749216) от 31.03.2018
+
+Все деньги мира / All the Money in the World (2017) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во всем мире не было человека богаче, чем Пол Гетти. Принадлежать к его роду — все равно что быть богом. Однако, когда в Риме неизвестные похищают его внука, нефтяной магнат, ко всеобщему шоку, наотрез отказывается платить выкуп. И тогда единственной надеждой для матери мальчика становится таинственный сотрудник службы безопасности самого Гетти…Производство: СШАЖанр: Триллер, драма, криминал, детектив, биографияРежиссер: Ридли СкоттАктеры: Мишель Уильямс, Кристофер Пламмер, Марк Уолберг, Ромен Дюрис, Тимоти Хаттон, Чарли Пламмер, Чарли Шотуэлл, Эндрю Бакан, Марко Леонарди, Джузеппе БонифатиПеревод: Дублированный (iTunes)Субтитры: Русские,  АнглийскиеПродолжительность: 02:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513FA4DB82DA061F06582559CCC0123CF0AB0134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216494   (749215) от 31.03.2018
 
 Все деньги мира / All the Money in the World (2017) BDRip [1080p] ATV
@@ -703,35 +729,6 @@ VA - Sun Travellers, Vol. 2 (2020) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3C811D3D52A8ABB6CC1739DEE6D4BA8CF55540C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523728   (748354) от 13.01.2022
-
-Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 1 (2018) [AAC|~327 Kbps] <Jazz-Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scott Bradlee's Postmodern Jukebox, Mario Jose, India Carney, Dave Koz - Perfect Duet (4:38)
-02. Scott Bradlee's Postmodern Jukebox, Sara Niemietz - Who Can It Be Now? (3:22)
-03. Scott Bradlee's Postmodern Jukebox, Hannah Gill, Casey Abrams - Crazy (4:29)
-04. Scott Bradlee's Postmodern Jukebox, LaVance Colley, Lee Howard - That's What I Like (3:44)(   Читать дальше...   )Жанр: Jazz-PopПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191E0B58D81176C1C36B651409577F434C6A8A46
 ```
 
 https://mybot314.ru/tekegram_catalog/

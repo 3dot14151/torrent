@@ -1,3 +1,234 @@
+###  Публикация: 1442468   (1036573) от 25.01.2021
+
+VA - 90s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Adams - (Everything I Do) I Do It For You (06:34)
+02. Extreme - More Than Words (05:35)
+03. Shania Twain - You're Still The One (03:32)
+04. Bon Jovi - Bed Of Roses (06:34)(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E13C9D5F3FAE16255470C14435961D4758C7023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442463   (1036552) от 25.01.2021
+
+VA - 80s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Police - Every Breath You Take (Remastered 2003) (04:13)
+02. Bryan Adams - Heaven (04:04)
+03. Chris De Burgh - The Lady In Red (04:16)
+04. Richard Marx - Right Here Waiting (04:23)(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75926DCD3D97DF812B4C6B2435B6FC182B763747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616425   (1036390) от 02.03.2023
+
+Ottawan - Hunds UP (1989) Compilation, Karussell [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hands Up
+02. Shalala Song
+03. Siesta For Two
+04. Shubidube Love(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923D986822D731C339A10E777DDFCBF720EED715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442831   (1036347) от 26.01.2021
+
+VA - sad shower (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved (03:02)
+02. Calum Scott - You Are The Reason (03:24)
+03. Dean Lewis - Be Alright (03:16)
+04. Alessia Cara - Scars To Your Beautiful (03:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E62CA0F5F58F11C515F1C8F91B3FE94A6569561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442696   (1036324) от 26.01.2021
+
+VA - Italo Disco New Revival Volume 5 (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estimado - Rain Of Love (Extended Version) (7:14)
+02. The Crosslines - I Can Feel Your Body (In The Night) (Maxi Version) (6:39)
+03. Birizdo I Am - Love Is Love (Maxi Version) (4:56)
+04. D. White - Follow Me (Extended Version) (7:13)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CB5832B3D180C637C8E2883ADD903EA0FDFEE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442903   (1035976) от 27.01.2021
+
+VA - New Italo Disco Music Vol. 1-10 (2016) 11 альбомов [MP3|320 Kbps] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Split Mirrors - The Right Time (Digimax Remix) (5:23)
+02. Amaretto - Through the Night (Extended Version) (8:00)
+03. Estimado - Your Eyes (Extended Version) (9:29)
+04. Birizdo I Am - I Love Italo Disco (Extended Version) (6:48)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, Synthpop, DanceПродолжительность: 13:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6540139CB5F81BA607BA1E320D9A8FC4649880F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616900   (1035815) от 04.03.2023
+
+Thomas Anders - The Journey of Life (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Journey Of Life
+02. The Journey Of Life (Ballad Version)
+03. The Journey Of Life (Instrumental)Жанр: Pop, DanceПродолжительность: 00:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AFCC696013FD2E6C5F79B1C6619BEC78BCB8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443361   (1035758) от 28.01.2021
+
+VA - Calming Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - The Tracks of My Tears (02:54)
+02. Logan York - Norwegian Wood (This Bird Has Flown) (03:35)
+03. Shannon & Keast - When I Was Your Man (03:42)
+04. Nora & Will - Watermelon Sugar (03:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CCC301CC0C56664DABB54899436F2046958D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443197   (1035707) от 28.01.2021
 
 Steps - What the Future Holds (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop, Euro Disco>
@@ -513,238 +744,6 @@ VA - Valentines Day 2021 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEF24092E5CCE985F70531ED47A245629FA873F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444145   (1034680) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 2 (Selected by Lajos Birizdo) (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Slice Me Nice (Split Mirrors Remix) (5:49)
-02. Digitalo - Beautiful Day (Extended Mix) (9:18)
-03. Maxthor - Hunters (Extended Mix) (4:50)
-04. Loreana C. - Dangerous Love (Extended Mix) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A2EC69FE4B7183D508DE78C125CDA782F2E121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444417   (1034678) от 01.02.2021
-
-VA - Valentine's Day 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Police - Every Breath You Take - Remastered 2003 (4:14)
-02. Lady A - Need You Now (3:56)
-03. James Morrison - You Give Me Something (3:32)
-04. Shania Twain - You're Still The One (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F1B36534C3AC8CE5596FCD0F0D3D0AF61964E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444164   (1034674) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - This My Lady Like the Night (Extended Version) (8:56)
-02. Birizdo I Am - Dont Go (Extended Version) (6:11)
-03. Diamond Rain - Mystic Night (Extended Version) (6:11)
-04. Nikita Fomin - I Dont Wanna Lose You (Extended Version) (6:28)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B715BF61A3616A72D6086E3172CC50A7267516FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444158   (1034672) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 6 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - I Bridge New Life (7:07)
-02. Kristian Conde - Don't Give It Up (Maxi Version) (4:45)
-03. The Crosslines - Starlight (Maxi Version) (5:17)
-04. Nation In Blue - I Want U (Extended Version) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E3C43FC3D96F4818B62DE17A87167F2808CA6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444405   (1034668) от 01.02.2021
-
-Dave Dee, Dozy, Beaky, Mick and Tich - The Best of (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Tight (2:51)
-02. The Wreck of the Antoinette (3:24)
-03. Save Me (3:19)
-04. Here's a Heart (3:29)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CB2A1E68F46A331CBAC3CB8073D30AD106A0C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444167   (1034662) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 9 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crosslines - To The Space (Extended Version) (5:15)
-02. Diamond Rain - Follow The Rainbow (Extended Version) (5:14)
-03. Birizdo I Am - Just Tonight (Maxi Version) (5:45)
-04. Nikita Fomin - When You Said Goodbye (Extended Version) (5:49)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510820729A69B51402EE176A6E5D170E64221B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444163   (1034661) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - A Voice in the Dark (Bringing The Light Mix) (6:49)
-02. TDHDriver - Leave Russia (4:17)
-03. Digitalo - Say Yes (Extended Version) (6:52)
-04. Birizdo I Am - Unbelievable (Extended Version) (7:11)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074BE9222363B9903AA1BFD7A28A99500E067C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444144   (1034656) от 01.02.2021
-
-VA - New Italo Disco Music 1 (Selected by DJ Adamski) (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Split Mirrors - The Right Time (Digimax Remix) (5:23)
-02. Amaretto - Through the Night (Extended Version) (8:00)
-03. Estimado - Your Eyes (Extended Version) (9:29)
-04. Birizdo I Am - I Love Italo Disco (Extended Version) (6:48)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8012F8F9D72E5DCA72F1D8B79E2E5E24D2635660
 ```
 
 https://mybot314.ru/tekegram_catalog/

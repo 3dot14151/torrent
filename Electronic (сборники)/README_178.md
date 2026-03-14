@@ -1,3 +1,32 @@
+###  Публикация: 1335505   (286183) от 03.11.2019
+
+VA - Record Super Chart 611 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286183.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) (3:25)
+2.C-BooL - Catch You (3:13)
+3.Tones And I - Dance Monkey (RMX) (4:34)
+4.SAINt JHN - Roses (Imanbek Remix) (3:58)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61EC7D0B9D14892CEB0AC43F2D90DCEE4449A92D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080643   (285920) от 08.12.2016
 
 VA - The Crystal Method - Best275z (1997 - 2015) [MP3|320 Kbps] <Breakbeat, Breaks, Electronic>
@@ -716,35 +745,6 @@ VA - Trance Collection Vol.73 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8858482638376CBDAF1A2ED9AA1AAC5AAE5A0CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336096   (282581) от 05.11.2019
-
-VA - Beach Dance Classics Radio (2) (2019) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282581.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kerri Chandler - Something Deeper
-002. Spiro Catalano - Work
-003. Moody F - Shattle
-004. Guna Nada Das - Heartbeat(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 12:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8C72A364165FED707B9188E01F1711E6CFB6E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

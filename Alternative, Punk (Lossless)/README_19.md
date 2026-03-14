@@ -1,3 +1,90 @@
+###  Публикация: 1021903   (730682) от 31.05.2016
+
+Marilyn Manson - Lest We Forget (The Best Of) (2004) Japanese Edition [FLAC|Lossless|image + .cue] <Alternative, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Love Song (03:05)
+ 02. Personal Jesus (04:07)
+ 03. mOBSCENE (03:27)
+ 04. The Fight Song (02:57)(   Читать дальше...   )Жанр: Alternative, IndustrialПродолжительность: 01:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572F2492354AA3C00DBF7D68B9835CBD4F58EE35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284022   (730097) от 20.02.2019
+
+Foxwarren - Foxwarren (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Folk, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Be (02:54)
+02. Lost In a Dream (02:55)
+03. Everything Apart (04:16)
+04. In Another Life (02:59)(   Читать дальше...   )Жанр: Alternative Rock, Folk, Indie RockПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CDD081FB20EF4E4BDD576632B2153FEBE404D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284122   (730086) от 20.02.2019
+
+Au Pairs - Sense And Sensuality (1982) Remaster, 2002, Castle Music [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stepping Out of Line (6:01)
+02. Sex Without Stress (4:32)
+03. Instant Touch (3:00)
+04. That's When Its Worth It (4:07)(   Читать дальше...   )Жанр: Alternative Rock, Punk, Post RockПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D6FFCF41C3F55F69DE880E1F7DCAC925D11609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284199   (728972) от 21.02.2019
 
 Golden Daze - Simpatico (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Psychedelic, Alternative>
@@ -652,93 +739,6 @@ Bleib Tapfer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6901C7F69C0F07783E9A94AC0BDA289840E4C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129560   (720713) от 29.04.2017
-
-Feist - Pleasure (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720713.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pleasure (04:45)
-2. I Wish I Didn’t Miss You (04:18)
-3. Get Not High, Get Not Low (04:57)
-4. Lost Dreams (05:18)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF522BA3AEBC4F677B45AC18737892286213902E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285595   (719159) от 27.02.2019
-
-VA - Les 35 Ans De Radio Libertaire (2017) Compilation [FLAC|Lossless|tracks + .cue] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D' de Kabal vs Franco Mannara - Ils voudraient que nous soyons cela (03:07)
-02. Achab - Black Block (04:08)
-03. La Twal - Sog Nig Keynmol / Ne dis jamais (04:17)
-04. Les Ogres de Barback - Grand mère (08:34)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91133AEB9F917822221113C48466AA33BF12755E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285943   (716947) от 28.02.2019
-
-Weezer - Weezer (Black Album) (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Knock the Hustle (03:42)
-02. Zombie Bastards (04:11)
-03. High as a Kite (03:48)
-04. Living in L.A. (03:38)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46718F3AB6C559174D5DF210C13A05ECFEC3C8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

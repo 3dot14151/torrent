@@ -1,3 +1,174 @@
+###  Публикация: 937293   (490263) от 14.09.2015
+
+McCoy Tyner - Fly With The Wind (1976) /2008, Concord/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFE82F4247321F85841F38BE122B3B8DA47FCB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937030   (490261) от 14.09.2015
+
+VA - The Cocktail Combos (1997) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Straighten Up And Fly Right (2:26)
+02.  Gee Baby, Ain't I Good To You (2:56)
+03.  Sweet Lorraine (3:09)
+04.  Easy Listening Blues (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 03:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95C22B57BB2BFAB2E4BEAE7322A55079D4942137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937365   (490258) от 14.09.2015
+
+Jimmy Reiter - Told You So (2015) [MP3|320 кб/с]<Blues, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instinctively Wrong (04:22)
+02. Woman Don't Lie (04:30)
+03. Waiting For My Luck To Change (04:08)
+04. I'm Giving In (06:37)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6818AF2240B915FB1B9F21371CADBC2BBD7A911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158761   (490256) от 17.08.2017
+
+Roger Manins - Trio (2010) Rattle Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marty White [19:08]
+02. Hip Flask [07:10]
+03. Missing Wes [04:25]
+04. Silo [07:00](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950DDBBDB48AD1F52D584A94BB7D6B2E9E32C879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937015   (490193) от 14.09.2015
+
+VA - Jumpin' Like Mad: Cool Cats & Hip Chicks (1997) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Turner - Jumpin' Tonight (aka Midnight Rockin') (2:23)
+02. Calvin Boze - Safronia B (2:23)
+03. Ella Mae Morse - Cow Cow Boogie (3:14)
+04. Lester Young - Jumpin' With Symphony Sid (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 02:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D653FE924D9F18728D05605D12CDDB2978DA5B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158758   (490184) от 17.08.2017
+
+Chet Baker - The Last Great Concert: My Favourite Songs (1988) 2CD, 2006, Enja Records [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490184.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. All Blues [05:54]
+02. My Funny Valentine [09:35]
+03. Well You Needn't [06:21](   Читать дальше...   )Жанр: CoolПродолжительность: 01:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0946EB12C7D015947A9F148F3516AE7035204884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158762   (490167) от 17.08.2017
 
 VA - Greatest Jazz And Blues Singers (2017) [MP3|320 Kbps] <Jazz, Blues>
@@ -571,180 +742,6 @@ The Dave Brubeck Quartet - For Iola (1985) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60FC3084E7D2EA11F5A232209B5C3F19B1F7E69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937388   (488103) от 15.09.2015
-
-April Mae & The June Bugs (with Mike Mettalia) - Grease It Up & Go! (2015) [MP3|320 кб/с]<Jump Blues, Rockabilly>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memphis Bound (03:14)
-02. Some Iz Good (04:47)
-03. Grease It Up & Go (02:27)
-04. The L & N (03:24)(   Читать дальше...   )Жанр: Jump Blues, RockabillyПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED087AFE8BDCB8F6C624152F7349E72767496444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158999   (488011) от 18.08.2017
-
-Adriana Evans - El Camino (2007) Expansion Records [FLAC|Lossless|tracks + .cue] <R'n'B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Now [03:59]
-02. All for Love [04:26]
-03. Calling Me [04:22]
-04. Underneath the Stars [04:47](   Читать дальше...   )Жанр: R'n'B, SoulПродолжительность: 00:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8891490BD1CA2B72D175633262AB83A94F290F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158983   (488005) от 18.08.2017
-
-Patrik Jansson Band - So Far to Go (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can'T Get You (Out of My Head) (03:30)
-02. Life Without You (04:54)
-03. Keep Taking Your Chances (05:22)
-04. So Far to Go (04:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C02FC5312F4060F669FA2E1A77EAABB9C99BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159084   (487999) от 18.08.2017
-
-Stevie Ray Vaughan & Double Trouble - Rude Mood (2015) Live [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Scuttle Buttin'   (03:16) 
-02.  Say What   (05:20) 
-03.  Lookin' Out The Window   (04:45) 
-04.  Look At Little Sister   (05:01) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E1170BB3ABA01D48B69B6E560C46BBE5940A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936456   (487942) от 15.09.2015
-
-Billy The Kid & The Regulators - I Can't Change (2015) [FLAC|image+.cue]<Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Change 03:50
-02. Ain't Gotta Prove Nothing 03:40
-03. What Are We Fighting For 04:17
-04. Story Of The Blues 05:00(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42E334C26935F55840C147C49A0FE40C4AF8EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 383726   (487513) от 04.09.2011
-
-The Jeff Golub Band - The Three Kings (2011) [MP3|320 kbps]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let The Good Times Roll
-02. Born Under A Bad Sign
-03. In Plain Sight
-04. Help The Poor(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F35B4C24D8C9B69261AE7BB7EA12EFE5F2386868
 ```
 
 https://mybot314.ru/tekegram_catalog/

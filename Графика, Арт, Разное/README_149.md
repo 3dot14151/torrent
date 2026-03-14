@@ -1,33 +1,3 @@
-###  Публикация: 471498   (97369) от 21.03.2012
-
-[Wallpapers] HD Wallpapers Pack 11
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97369.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers Pack 11
-Название: HD Wallpapers Pack 11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115FE6B2DE37F107702A10CC21AD52CAD20207C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471427   (97358) от 21.03.2012
 
 [Wallpapers] HD Wallpapers Pack 6
@@ -724,6 +694,36 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93D6AADC62CC52480AB487FE543ED5CFC300F605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477413   (86094) от 03.04.2012
+
+[Wallpapers] Summer  Desktop Wallpapers
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_86094.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Summer  Desktop Wallpapers 
+Название:  Summer  Desktop Wallpapers 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEE28F25921660F889711E96CEEECBAF08E803F
 ```
 
 https://mybot314.ru/tekegram_catalog/

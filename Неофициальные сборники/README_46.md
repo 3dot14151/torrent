@@ -1,3 +1,108 @@
+###  Публикация: 603400   (997028) от 15.01.2013
+
+VA - Танцевальная Сборная Хитов. Зарубежный (2013) [MP3|256 kbps] <Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997028.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Girls Aloud - Something New
+ 002. Cher - Woman's World
+ 003. Michel Nekoz - I Like It
+ 004. Soul Bros. - Tonight (Crew 7 Radio)
+ 005. Pitbull feat. Shakira - Get It Started
+ 006. Los Americanos - Red Light Angel (RainDropz! Remix Edit)
+ 007. Mia Martina feat. Adrian Sina - Toi Et Moi (Go Crazy)
+ 008. Tango & Cash - In your eyes
+ 009. Booty Luv - Black Widow
+ 010. Comis - My Sexy Tango (Radio Edit)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 06:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CDE1D2074262F7FFA967009E53F4D9CC8A2FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603545   (996989) от 15.01.2013
+
+VA-Зимний хит-парад звёзд Российской попмузыки (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996989.jpg" />
+</div>
+
+
+###  Подробнее
+
+101. A'Studio - Я искала тебя
+102. Юрий Шатунов - А лето цвета
+103. МакSим - Это же я
+104. Влад Дарвин - Сохраню Любовь
+105. Денис Клявер - Твои руки
+106. Николай Трубач - Отшумела
+107. Фабрика - Фильмы о любви
+108. Премьер-Министр - Любимая
+109. 140 ударов в минуту - Мне с тобою Тикитак
+110. Елка - Около тебя(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA244093076C9234D1AE7F4A65E5C48EF1EDB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603258   (996849) от 15.01.2013
+
+VA - Зарубежная поп музыка (2013) [MP3|320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PSY feat. Sung Si Kyung - Passionate Goodbye
+02. Rio feat U Jean - Animal
+03. Reea - Come And Get My Love (Radio Edit)
+04. Rene Rodrigezz & Sivana Reese feat. MC Yankoo - Rock'N'Roll (New Album Reworked Edit)
+05. Matura - Disco Band-97
+06. R.J. & Pitbull - Live 4 Die 4 (David May Edit Mix)
+07. Aligator feat. Daniel Kandi - The Perfect Match (Radio Edit)
+08. Christian Burns & Paul Oakenfold & Jes-as We Collide (Radio Edit)
+09. Project 46-Feel The Fire (Radio Edit)
+10. Pulsedriver - Rock The Shit(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 01:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C83ECF6866FF7AAB08829D34EB18500525423E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603839   (996765) от 16.01.2013
 
 VA-Шевели попой (2013) [MP3|128 кб/с]<Pop>
@@ -794,93 +899,6 @@ VA - Creative Music Box 7 (2013) [MP3|320 кб/с]<Dub Step, Drum'n'Bass, Heavy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB1ADF70E57F060BEC95F913C335508448889BD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352952   (993230) от 16.01.2020
-
-VA - Best tracks of Transitions by John Digweed on Kiss 100. 2008 Volume 5 Compiled by Firstlast (2020) [MP3|192-320 Kbps] <Progressive House, Techno House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carl Craig - At Les (1997) (5:12)
-02. Unknown Artist - Unknown Track (2008-01-27 Pedro Puentes) (2:28)
-03. Radiohead - Nude (Chris Fortier 40oz remix) (7:18)
-04. NUfrequency - Go That Deep (Charles Webster Remix) (6:13)(   Читать дальше...   )Жанр: Progressive House, Techno House, Deep HouseПродолжительность: 09:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F982CF00C19CFC06BB86A75C4080727606F33C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352962   (993117) от 16.01.2020
-
-VA - Classic Rock timeless! 3 (2020) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judas Priest - Ram It Down
-02. Rammstein - You Hate (''Du Hast'' English Version)
-03. Slade - Thanks For The Memory
-04. Ringo Starr - It's Not Love That You Want(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 07:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A74B1E391A287B45668B70962EB2E74C9346CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352919   (992995) от 16.01.2020
-
-VA - Зимняя свежая 30-тка Vol. 3 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992995.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.ARUBA ICE - Зачем топтать мою любовь (Remix) (3:41)
-2.Buga - Элали (3:25)
-3.Daasha - Samoe (3:20)
-4.Dionis - Рассвет (4:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08881F1B2F4920A5D6B1619C6B42A9B5A0C305F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

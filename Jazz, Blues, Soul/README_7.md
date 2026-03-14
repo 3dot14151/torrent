@@ -1,3 +1,61 @@
+###  Публикация: 1601454   (1046419) от 01.01.2023
+
+Rob Galbraith - Songs From St. James CME (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesus Help Me Through This Life (2:39)
+02. I Just Came By This Morning (2:28)
+03. If I Can Just Get You To Jesus (3:05)
+04. Don't Be Like That (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5880785988B8B4BE0365C3EC4EC97BE59F1C91B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601771   (1046354) от 02.01.2023
+
+Cyrus Chestnut - Kaleidoscope (2018) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golliwog's Cakewalk [5:06]
+02. Darn That Dream [5:10]
+03. Gymnopedie No.1 [6:19]
+04. Entre cloches [5:48](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead Jazz, Piano JazzПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B7AB661B7DAFF4AC90CB7C0A92442BFDA8A257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601949   (1046284) от 03.01.2023
 
 Sarah Vaughan - 1951 - 1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ LJ Mounteney - Mama Danced (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B50B45AFFF19E162499740177262DE16789BEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602308   (1046147) от 05.01.2023
-
-Riverboat - Big Talk and Muddy (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby That's Alright (3:02)
-02. Hard Times (2:44)
-03. Big Talk & Muddy (3:18)
-04. Riverboat (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60564B7E745E8EA0E2F45183451BDDF50B75F1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602297   (1046146) от 05.01.2023
-
-Lil' Red & the Rooster - Keep on! (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool Trap Boogie (2:54)
-02. Whiskey Sip of Time (4:20)
-03. Keep on Lovin You (feat. Billy Branch) (5:16)
-04. Love the Hell Right out of Ya (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA7F81C8A9E564A84E4A8A8776965F7F48DB180
 ```
 
 https://mybot314.ru/tekegram_catalog/

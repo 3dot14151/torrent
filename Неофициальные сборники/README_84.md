@@ -1,3 +1,84 @@
+###  Публикация: 1095218   (920670) от 23.01.2017
+
+VA - Europa Plus: Top 100 Хит-Презент (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920670.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Star Pilots - Only For Tonight.
+002. Hego Feat. Yaya - Change.
+003. Kat Graham - Baby.
+004. Franky - Люди Не Боги.(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2396A9E54BB23F965A0DC5E89B0F85813B7538E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289064   (920620) от 30.01.2011
+
+VA - Вечеринка в разгаре (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20662AF0430723922148EC67D20028D8ECF5BAB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289045   (920601) от 30.01.2011
+
+VA - XXL Супер Союз 2 50/50 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C920889B443350B28229E046C14C35B8942CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490207   (920537) от 19.08.2021
 
 VA - Music News vol.124 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -670,93 +751,6 @@ DJ - Взрывная дискотека №1 (2016) [MP3|128-320 кб/с] <Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A6FF293D0B48E48F539310FEDD5098262B9967D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988719   (918932) от 21.02.2016
-
-VA - 100-ка популярных хитов (2016) [MP3|256 kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Макsим - Хорошо
-02. Диана Шарапова & Сергей Зверев - Новогодний Бал
-03. Тамерлан И Алена Feat. Roiel - Стану Лучше
-04. Juan Magan Feat. Paulina Rubio & Dcs - Vuelve(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CC1EE8BC8CC0A5C525B94CB72A81B362B7AB2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366968   (918890) от 14.03.2020
-
-VA - 100 Greatest 00s Hip-Hop (2020) [MP3|320 Kbps] <Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918890.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eminem - Lose Yourself
-002. Dr. Dre - The Next Episode
-003. Kanye West - Stronger
-004. M.O.P. - Ante Up(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 06:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D030185B658C579AB14769BD45D6C5C5C7CDA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367125   (918881) от 14.03.2020
-
-VA - World Deephouse Selection Vol.2 (2020) [MP3|320 Kbps] <House, DeepHouse, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Santoro & Alex Guittini - Makes Your Funky B (Alex Guittini Funky Deep Mix) 7:07
-02. Melloton & Little-H & Tosch - Positive Nation (Melloton's Afterhour Radio Mix) 2:46
-03. B.Infinite - Lounging Around (Original Mix) 4:26
-04. Lunagirl - Middle Of The Night (Extended Mix) 3:33(   Читать дальше...   )Жанр: House, DeepHouse, ElectronicПродолжительность: 02:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53FBF5246CA456AE31CCCDB7F87D3FC4F4EF5D28
 ```
 
 https://mybot314.ru/tekegram_catalog/

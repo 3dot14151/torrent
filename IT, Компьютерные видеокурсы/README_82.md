@@ -1,3 +1,59 @@
+###  Публикация: 1576582   (208117) от 14.09.2022
+
+JUG Ru Group | JPoint 2022. Международная Java‑конференция (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208117.jpg" />
+</div>
+
+
+###  Подробнее
+
+JPoint 2022 — международная Java-конференция. Спикеры со всего мира. Несколько десятков докладов о JVM-языках, производительности, инструментах и многом другом.  JPoint — международная Java-конференция для опытных Java-разработчиков. С каждым годом конференция растёт, становится ещё больше, интереснее и хардкорнее, собирая более тысячи участников.
+
+Все доклады конференции (   Читать дальше...   )Производство: JUG Ru GroupЖанр: КонференцияЯзык озвучки: РусскийПродолжительность: 49:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D086436B4F2086D410CAE2242D616CFBA81411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649046   (207989) от 26.07.2023
+
+Udemy, Richard Chesterwood | Docker - Hands On for Java Developers (2021) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207989.jpg" />
+</div>
+
+
+###  Подробнее
+
+A great course if you're a Java developer looking to get started with Docker. On this course, you'll be working with a real Microservice architecture built using Spring Boot. Your job will be to deploy the application as a set of Docker Containers.
+
+Optionally, you'll be able to run the final system in a real cloud environment (AWS), using Docker Swarm.Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 08:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B72605F7BAC552065BD57A8B2322F77E518E751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576889   (207957) от 16.09.2022
 
 Udemy, Alexander Batashov | Ruby on Rails - 2020. Создание Интернет Магазина (2020) WEB-DL [RU]
@@ -650,63 +706,6 @@ GlobalDigitalSpace запускает цикл лекций с Алексеем 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54C501CF18048539EDA5EEA98306FF986A543C76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570423   (205443) от 17.08.2022
-
-Udemy, Ben Tristem, Sam Pattuzzi | Unreal Engine Blueprint Game Developer: Learn Visual Scripting (2020) PCRec [EN, RU / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Делайте игры без программирования. Unreal используется командами AAA класса в таких играх, как Fortnite.
-Узнайте, как создавать игры без написания кода с использованием Unreal Engine 4 и Blueprints. Мы начнем этот курс с начального уровня, поэтому вам не понадобится предварительный опыт или знания Unreal Engine 4 или разработки игр.
-За первые 100 минут этого курса (   Читать дальше...   )Производство: UdemyЖанр: Разработка игрЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 10:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68842553E74FB7D3E3CDA1FFC1494C846699637C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578311   (205306) от 22.09.2022
-
-Udemy, Grim Future Studio | Unreal Engine - базовый курс №2. От новичка к любителю (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс предназначен для тех, кто уже сделал свои первые шаги в Unreal Engine и хочет двигаться дальше. Уроки познакомят вас с разработкой камерных проектов с коридорными уровнями и полноценным прохождением.
-
-Распространенные вопросы по курсу:
-1. Что нужно уже уметь, чтобы пройти этот курс? Этот курс желательно проходить уже имея самые базовые знания Unreal Engine, (   Читать дальше...   )Производство: Udemy, Grim Future StudioЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC0D9D8BB6A47FECFFCA808C2FE690270ADB496
 ```
 
 https://mybot314.ru/tekegram_catalog/

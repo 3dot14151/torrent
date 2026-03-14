@@ -1,3 +1,163 @@
+###  Публикация: 514085   (656621) от 25.06.2012
+
+Daniel Licht - Silent Hill: Downpour / Сайлент-Хилл: Ливень (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Silent Hill (Feat. Jonathan Davis) (3:10)
+ 2. Intro Perk Walk (2:48)
+ 3. In The Ravine (3:18)
+ 4. Bus To Nowhere (3:42)
+ 5. Meet JP (2:15)
+ 6. Stalking For Dinner (4:27)
+ 7. Don`t Go In The Basement (2:27)
+ 8. Railcar Ride (3:01)
+ 9. Downpour Intro (4:38)
+ 10. Jump Monster (1:40)(   Читать дальше...   )2012Жанр: OSTПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98776846F7DD875E8BAC768C43FE6AB49AB8552D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226346   (655655) от 20.05.2018
+
+VA - Latino Fitness Club 2018 (3CD) (2018) [MP3|320 Kbps] <Pop, Latin-Dance, Reggaeton>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655655.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+Продолжительность: 01:04:13
+
+01. J Balvin - Mi Gente(   Читать дальше...   )Жанр: Pop, Latin-Dance, ReggaetonПродолжительность: 01:09:08
+
+01. Anitta & J Balvin - Downtown
+02. Kaysha - Shape of You (Kizomba Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0066E73DC6C557091AE4BAA4276C7A3D364E1C35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514784   (655328) от 26.06.2012
+
+Нирвана / Nirvana (by Mauro Pagani, Federico De Robertis & VA) - 1997, FLAC (tracks+.cue), lossless (1997) [FLAC|Lossless]<Score / Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_655328.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Whatever It Is - Pagani, Della Volpe and Now (vocals) 4:17
+2.John Barleycorn (Must Die) - S.L. Winwood and Traffic (vocals) 6:24
+3.Eqbirotz - Mauro Pagani 2:34
+4.Sodae - Cabral, Morais and Cesaria Evora (vocals) 4:54
+5.Hotels - Federico De Robertis 3:51
+6.Chelsea Hotel - Mauro Pagani 3:27
+7.Nirvana - Federico De Robertis 6:54
+8.Last Dance - Eraldo Bernocchi, Bill Laswell and Monks of the Gyued Monastery (vocals) 3:41
+9.Town House - Mauro Pagani 1:50
+10.Tema di Lisa - Federico De Robertis 1:45(   Читать дальше...   )Жанр: Score / SoundtrackПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903976   (655102) от 02.06.2015
+
+Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) Unofficial / Game-Rip Soundtrack [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655102.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ambient Hims House (Mix)
+002. Ard Skellig - General Combat Layer 01
+003. Ard Skellig - General Combat Layer 02
+004. Ard Skellig - General Combat Layer 03(   Читать дальше...   )Жанр: GameRip, SoundtrackПродолжительность: 11:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336E87523ABD531C5C5A7DA79C88A209D496792C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140727   (654772) от 07.06.2017
+
+Nikolya - Organic 3 The Longest Journey (2017) [MP3|320 Kbps] <New Age, Electronic, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening
+02. What If...
+03. Butterfly Temple
+04. Indigo Child(   Читать дальше...   )Жанр: New Age, Electronic, LoungeПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F3FC98976715DCBADA458BEBD395310712560C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226536   (654770) от 21.05.2018
 
 Atom Music Audio - Mechanize, Vol. 1: Industrial Hybrid Rock Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -609,151 +769,6 @@ Terry Oldfield & Soraya - Namaste (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6414683AF6430A962E6C1D1B7EA9335DEC77CF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031927   (649675) от 05.07.2016
-
-David Clavijo - From the Depths (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From the Depths
-02. When We Were Together
-03. Fly With Me
-04. The Song of Wisdom(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07AF899CDEA15BD7B1A1E9FFF59A5D55A01AF509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031978   (649670) от 05.07.2016
-
-Simonopetras - Psaltirion Terpinon - Hymns From The Psalter (1990) [MP3|320 Kbps] <Вокал, Хоровое пение>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Come Let Us Rejoice, Ps 94    04:59
-02.  O Lord, Our Lord, Ps 8    06:34
-03.  The Lord Is My Shephard, Ps 22    05:46
-04.  O Sing To The Lord A New Song, Ps 97    05:43(   Читать дальше...   )Жанр: Вокал, Хоровое пениеПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D872FE75A615DC475E9D0B3134A67950383E707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031772   (649543) от 05.07.2016
-
-Medwyn Goodall - The Dreamworld (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamweaver [00:08:28]
-02. Where Imaginations Meet [00:08:35]
-03. Orbit [00:03:40]
-04. Eye of the Wolf [00:08:30](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C293709DF7DF2520815B2AF29C246F884E1668DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905441   (649061) от 06.06.2015
-
-Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярости / Mad Max: Fury Road (Original Motion Picture Soundtrack) (2015) Deluxe Version [FLAC|WEB-DL|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survive (Extended Version) (01:40)
-02. Escape (Extended Version) (03:29)
-03. Immortan’s Citadel (Extended Version) (08:58)
-04. Blood Bag (Extended Version) (03:40)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 02:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2C2BC8CCFB735A2F4E69151FD79E51DC979FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905454   (649057) от 06.06.2015
-
-Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярости / Mad Max: Fury Road (Original Motion Picture Soundtrack) (2015) Deluxe Version [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survive (Extended Version) (01:40)
-02. Escape (Extended Version) (03:29)
-03. Immortan’s Citadel (Extended Version) (08:58)
-04. Blood Bag (Extended Version) (03:40)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 02:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23E626A8FD16036EFBFCDFD207515D597DF63EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

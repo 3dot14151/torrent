@@ -1,3 +1,32 @@
+###  Публикация: 968187   (156854) от 23.12.2015
+
+VA - Top Club 40 - December 2015 (2015) [MP3|320 кб/с] <Dance, Club 40, Electro, Remixes>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Willy William – Ego (#Ash Simons Bangerz) (Ft. Sleepy Tom)
+02 – Laurent H Ft. Maxxy Dready – Fear (Original Vocal Mix)
+03 – Ridsa – La C’est Die (Dj Florum Club Mix)
+04 – Keen V – Un Monde Meilleur (Club Mix)(   Читать дальше...   )Жанр: Dance, Club 40, Electro, RemixesПродолжительность: 04:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A428255D685927994657A1233DADF5BBAB6A870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433663   (156736) от 21.12.2020
 
 VA - Music News vol.58 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CA98F31CE54113672F957094F2D5DCEBF397A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194734   (154219) от 26.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 19) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Марк Бернес  -  Журавли  4:14
-02.  Иосиф Кобзон  -  Тёмная ночь  3:27
-03.  Муслим Магомаев  -  Верни мне музыку  3:55
-04.  Георг Отс  -  Гаснут зори  3:47(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33818CB5C21C551332B481890E402846B45B4CB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

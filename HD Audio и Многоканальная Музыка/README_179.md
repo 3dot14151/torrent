@@ -1,3 +1,146 @@
+###  Публикация: 1776914   (71138) от 03.02.2025
+
+We Sell The Dead - Studio Albums (2 releases) (2018-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71138.jpg" />
+</div>
+
+
+###  Подробнее
+
+We Sell The Dead - шведская хард-рок группа из Гетеборга. Сформирована в 2016 году.2018 - Heaven Doesn't Want You And Hell Is Full
+2020 - Black SleepЖанр: Heavy Metal, Hard RockПродолжительность: 01:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B2ADC7EDC2553EEAAB35655E11BA53C52EB265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776911   (71136) от 03.02.2025
+
+The Kovenant (Covenant) - Studio Albums (4 releases) (1997-2003) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71136.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Kovenant — норвежская метал-группа. The Kovenant начинали с мелодичного блэк-метала; впоследствии стилистика группы сместилась в сторону индастриал-метала.1997 - In Times Before The Light
+1998 - Nexus Polaris
+1999 - Animatronic
+2003 - SETIЖанр: Black/Industrial MetalПродолжительность: 04:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3828D1DD60B5F4AC65D2DDCABD1244C29A0536A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775001   (71122) от 04.02.2025
+
+Fates Warning (Arch/Matheos; Ray Alder) - Studio Albums (18 releases) (1984-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fates Warning — американская прогрессив-метал-группа, образованная в Хартфорде, штат Коннектикут, в 1982 году.1984 - Night On Brocken
+1985 - The Spectre Within
+1986 - Awaken The Guardian
+1988 - No ExitЖанр: Progressive MetalПродолжительность: 15:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE360B4F650911EF05278DCDC972AF6B61C6C93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777070   (71110) от 04.02.2025
+
+Be'lakor - Studio Albums (5 releases) (2007-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Be'lakor — австралийская рок-группа, основанная в 2004 году в Мельбурне.2007 - The Frail Tide
+2009 - Stone's Reach
+2012 - Of Breath and Bone
+2016 - Vessels(   Читать дальше...   )Жанр: Melodic/Progressive Death MetalПродолжительность: 04:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B48558B6935761FFE842C991B28B8A621026BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777191   (71106) от 04.02.2025
+
+Emin - Юбилейный концерт со звездами (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Singer, Songwriter>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got A Feeling In My Body (Live) [00:03:29]
+02. MMM (Live) [00:03:30]
+03. Still (Live) [00:04:42]
+04. Can’t Help Falling In Love (Live) [00:02:26](   Читать дальше...   )Жанр: Pop, Singer, SongwriterПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63ACA5F606C045E469DB5DD55A295913B9DECA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777389   (71096) от 05.02.2025
 
 Giorgio Moroder & Raney Shockne - Queen of the South (Original Series Soundtrack) (2018) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthwave, Synth-pop, Ambient>
@@ -596,151 +739,6 @@ Beans & Fatback - Hold Fast (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5564E1041A584774F1C5790C53857B5635DB22B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778079   (70885) от 08.02.2025
-
-Thorbjorn (Thorbjørn) Risager and The Black Tornado - House Of Sticks (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  House Of Sticks (4:56)
-02.  Already Gone (4:04)
-03.  Light of Your Love (4:47)
-04.  Long Time Ago (4:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424D3EBBD5B1E5794D2B45D799567A2EA015D3AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778078   (70884) от 08.02.2025
-
-Tommy Castro & The Painkillers - Closer To The Bone (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Can't Catch A Break (3:53)
-02.  The Way You Do (3:13)
-03.  One More Night (3:56)
-04.  Crazy Woman Blues (5:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71FF8EC3EBF2B031CBEA5D5655C7B69BA11D450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778635   (70867) от 09.02.2025
-
-Nessa Barrett - Aftercare (2024) Deluxe, 2025, Warner Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70867.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Aftercare (00:01:33)
-✧ 02 - Prnstar (00:02:29)
-✧ 03 - Heartbeat (00:03:09)
-✧ 04 - Disco (Ft. Tommy Genesis) (00:03:17)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961322A342252EEBD7437289AD476EF938CB1012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778655   (70809) от 09.02.2025
-
-Squid - Cowards (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Krautrock, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70809.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Crispy Skin (06:19)
-2. Building 650 (03:51)
-3. Blood on the Boulders (05:46)
-4. Fieldworks I (02:23)(   Читать дальше...   )Жанр: Indie Rock, Krautrock, Post-PunkПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3565F68CEA0700720CF649693FDDDF219D39D94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778647   (70804) от 09.02.2025
-
-Biig Piig - 11:11 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 4AM
-02 Ponytail
-03 Cynical
-04 Favourite Girl(   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332285D177EC2A17D98D26180082EA87C96262A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

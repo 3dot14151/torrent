@@ -1,3 +1,32 @@
+###  Публикация: 1078194   (300706) от 01.12.2016
+
+VA - Best of Hits Touch Sound (2016) [MP3|262-320 Kbps] <Tropical, Synthpop, Nu Disco, Vocal, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starmain - Gravity (Cosmicspace Radio Edit) 04:24
+02. Fais And Afrojack - Used To Have It All 03:18
+03. Lady Bee Ft Grace Tither - Homeless Heart (Tank And Cheetah Remix) 04:24
+04. Francesco Rossi Feat. Ozark Henry - Godspeed You (Charming Horses Edit) 03:18(   Читать дальше...   )Жанр: Tropical, Synthpop, Nu Disco, Vocal, Indie DanceПродолжительность: 02:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC3BB41425D6BA568E52D2CAFBA26896C332E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554252   (300048) от 07.12.2012
 
 Gitarin.Ru - сборник песен проекта (2011 - 2012) (Обновляемая)[MP3|128 kbps] <Acoustic Rock>
@@ -719,35 +748,6 @@ VA - TOP 100 Club (November) (2016) [MP3|320 Kbps] <House, Mash Up, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE794F7AC82E36D7F3A3EEA60B5D6327250091BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079112   (295143) от 03.12.2016
-
-VA - Дискотека Казанова: Старые Песни По Новому Vol.8 (2016) [MP3|320 Kbps] <Eurodance, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulsedriver & DJ Fait - A Neverending Dream (DJ Fait R 5:24
-02. Ma.Bra. - Rhythm Is a Dancer (Club Mix) 5:05
-03. Indochine - L'aventurier (Basslouder Booty 6:00
-04. Klubbingman vs Beatrix Delgado - Love Message 2k16 (DJ Gollum f 5:01(   Читать дальше...   )Жанр: Eurodance, Club, DanceПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688A94DEC3B91F38A14089A28EBBEBEFCC4E5FA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

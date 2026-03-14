@@ -1,3 +1,148 @@
+###  Публикация: 1386723   (793409) от 30.05.2020
+
+Michael Bolton - Michael Bolton: Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Love So Beautiful 4:06
+02. How Am I Supposed To Live Without You 4:14
+03. Said I Loved You...But I Lied 5:00
+04. To Love Somebody 4:08(   Читать дальше...   )Жанр: Pop-Rock, Pop, SoulПродолжительность: 01:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F7DE99757F45A9E373592C2262BF5115B3A200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386627   (793352) от 30.05.2020
+
+Thomas Anders - Alles Anders Collection (2020) 3CD, Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Europop, Schlager, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - You're My Heart, You're My Soul (Extended Version) (5:34)
+02. Modern Talking - Just We Two (Mona Lisa) (3:57)
+03. Modern Talking - With a Little Love (3:31)
+04. Modern Talking - One in a Million (3:40)(   Читать дальше...   )Жанр: Europop, Schlager, BalladПродолжительность: 03:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74AF444A5628AD6F07AB6ADF42FE30AA824C68F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274561   (793047) от 07.01.2019
+
+Jess Glynne - Always In Between (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. No One
+03. I'll Be There
+04. Thursday(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE4F0222793AEC9BDF53325AFE354A9B5E1EF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509842   (792830) от 14.11.2021
+
+VA - The Best Christmas Album In The World...Ever! 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Thank God It's Christmas (4:19)
+02. Band Aid 30 - Do They Know It's Christmas? (3:48)
+03. Sam Smith - Have Yourself A Merry Little Christmas (2:50)
+04. Justin Bieber - Mistletoe (3:03)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3308F2CFC643DF98D4D2E688889D8EE3C977B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509939   (792755) от 14.11.2021
+
+Al Bano & Romina Power - Original Album Classics (2019) 5xCD, Compilation [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792755.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Romantica:
+01. Sharazan (4:26)
+02. Tu Soltanto Tu (Mi Hai Fatto Innamorare) (3:41)
+03. It's Forever (2:57)(   Читать дальше...   )Жанр: PopПродолжительность: 04:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEF02CDCEC95F548E248A01D9B53608FBFE0632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201468   (792699) от 24.01.2018
 
 VA - 2018 Grammy Nominees (2018) [FLAC|Lossless|tracks] <Pop, Hip Hop>
@@ -601,151 +746,6 @@ Mylene Farmer - Studio albums & Remixes (1986 - 2018) 15 CD [APE|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0215552BE5237F423749E8A27FE51C63926159A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276292   (788190) от 16.01.2019
-
-Marianne Ligthart - Black Tea & Whiskey (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Tea & Whiskey 03:35
-02. Mr. Bartender 04:14
-03. In The Meantime 04:43
-04. Josephine 04:20(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973DBB0FEC1A639CB4A8625C34759AC2222E11E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203814   (787681) от 03.02.2018
-
-Justin Timberlake - Man of the Woods (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filthy
-02. Midnight Summer Jam
-03. Sauce
-04. Man of the Woods(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8999787E13F3FB88E9184A62DB60B341E4A57407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203585   (787671) от 03.02.2018
-
-Julio Iglesias - Dois Coracoes (2017) [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ela
-02. Amanheci Em Teus Bracos
-03. Dois Amigos
-04. Viver A Vida(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E29731A31EB9804F0DDC285D1B658809B560118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512442   (787404) от 24.11.2021
-
-Bros - Gold (2020) 3xCD, Box Set [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bros - британская музыкальная группа, активная во второй половине 1980-х и начале 1990-х годов. Основу группы составляли братья-близнецы Matt и Luke Goss (Bros - сокращенное от Brothers) и их школьный товарищ Craig Logan. Дебютный альбом группы Push (1988 ) покорил музыкальные чарты многих стран Европы, а у себя на родине стал четырежды платиновый. В следующем, 1989, (   Читать дальше...   )CD - 1:
-01. When Will I Be Famous (3:59)
-02. I Owe You Nothing (3:36)
-03. Drop The Boy (3:50)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 03:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAE6AC9DA76BDE20A4D89D3E7484B0F3EBDA660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276953   (787252) от 18.01.2019
-
-Eloy de Jong - Kopf aus - Herz an (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schritt fur Schritt
-02. Repeat
-03. Eloy de Jong, Marianne Rosenberg : Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
-04. Risiko(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE82385EF2B4F8A8C2E77546651D4DF05F0457E
 ```
 
 https://mybot314.ru/tekegram_catalog/

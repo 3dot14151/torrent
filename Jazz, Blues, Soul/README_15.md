@@ -1,3 +1,61 @@
+###  Публикация: 1611081   (1041650) от 10.02.2023
+
+VA - Ladies In Love (1929 - 1953) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041650.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Ladies in Love:
+01. June Christy - Make Love to Me (4:01)
+02. Sarah Vaughan - Corner to Corner (2:59)
+03. Mildred Bailey - Tears in My Heart (3:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3DBEE66A27C071F80C0FD66A0235ED4F576D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611121   (1041624) от 10.02.2023
+
+Joe Cicero - Footprints in the Snow (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On (2:23)
+02. I Walk the Streets Alone (2:41)
+03. Life’s Ride (3:36)
+04. Dream of You (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BB899FBB57D35512C2DB7251E151D7ECA5264A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611124   (1041618) от 10.02.2023
 
 Mark Thomann - Plastic Flowers (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -687,64 +745,6 @@ John Oscar Atkinson - Kingsnake Runnin' with the Devil (2020) [MP3|320 Kbps] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A298EB1C21B0B764135C7CAD47E2AEFD429AA6D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438486   (1040815) от 09.01.2021
-
-Layla Zoe - Nowhere Left to Go (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pray (4:12)
-02. Nowhere Left to Go (3:47)
-03. Sometimes We Fight (4:44)
-04. Don't Wanna Help Anyone (4:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9220FB07319305654E7EAF4A7090FA51AB9A08E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438524   (1040812) от 09.01.2021
-
-Layla Zoe - Nowhere Left to Go (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pray (04:12)
- 02. Nowhere Left to Go (03:47)
- 03. Sometimes We Fight (04:44)
- 04. Don't Wanna Help Anyone (04:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237D9806A4EA15F13C1BF80F7AE9CF7989BBFACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

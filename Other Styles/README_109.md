@@ -1,3 +1,148 @@
+###  Публикация: 1407885   (455439) от 12.09.2020
+
+Garmarna - сборник, 7 альбомов (1993-2016) [FLAC|Lossless|tracks] <Folk, Folk rock, Synth folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455439.jpg" />
+</div>
+
+
+###  Подробнее
+
+1993 - Garmarna (1993 EP original)
+1993 - Garmarna (2001 Re-Release)
+1994 - Vittrad
+1996 - Guds speleman(   Читать дальше...   )Жанр: Folk, Folk rock, Synth folkПродолжительность: 06:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604CEEE4114EEB899A49EC4978238AAF39C46B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247134   (454415) от 14.09.2018
+
+Jean-Michel Jarre - Planet Jarre (Deluxe Version) (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New-Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454415.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Oxygene, Pt. 1
+02. Oxygene, Pt. 19
+03. First Rendez Vous(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 02:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C5E77BE5627E1403B6880EC280229565F91BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942381   (453984) от 01.10.2015
+
+Nicklas Schmidt - Ronal Barbaren (2011) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trond Clementsen & Mads Storm - Barbarian Rhapsody
+02. The City of Prague Philharmonic Orchestra - Legend of Kron
+03. The City of Prague Philharmonic Orchestra - Barbarian Theme
+04. The City of Prague Philharmonic Orchestra - King of the Volcano(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561BE66258017FAF326DEA61941D07A6DA9470C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942740   (453911) от 01.10.2015
+
+VA - Music Selection for the Best Macrobiotic Restaurants (2015) [MP3|320 кб/с]<New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alessandro Boriani - Roiol
+02. Claudio Agostini & Cesare Ferioli - Flock of Seagulls
+03. Giacomo Bondi - Field of Dreams
+04. Cristiano Heredia - Love Me Now(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4160BCC28CD775F110941C33A77C5C49D7618A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568851   (453497) от 12.08.2022
+
+Slavik...Kemmler - Close To Heaven (1998) [OGG|485 Kbps] <New Age, Tribal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indian Spirits               	3:30
+02. Close To Heaven            	3:49
+03. Can You Heal Me?         	4:18
+04. Believe In Your Dreams!	4:04(   Читать дальше...   )Жанр: New Age, TribalПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574A3FFC11787C1B88272D3338BBD23369621442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569198   (453494) от 12.08.2022
 
 Enigma - MCMXC a.D. (1990) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
@@ -609,167 +754,6 @@ Edward Shearmur - K-PAX / Планета Ка-Пэкс (2001) [MP3|320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:930E304F2AEDB95BA8BFADE2CD7D96A39FB9BC62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552567   (447914) от 26.09.2012
-
-Шедевры Этнической Музыки - Ритуальная Музыка Индейцев Центральной Америки (2004) [MP3|320 кб/с]<Native American, Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danza del Capareke (2:16)
-02. Los senores del tiempo (3:50)
-03. Nahui atl (9:23)
-04. Vines of the serpent (4:24)
-05. Oracion a los espiritus del viento nocturno (11:55)
-06. Ojo de reptile (4:23)
-07. Tlazolteootl (3:36)
-08. El agua y los suenos (5:01)
-09. Little flowers of the God (4:34)Жанр: Native American, EthnicПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03521752806FA74E440E7855643722E43013325B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 243075   (447771) от 07.10.2010
-
-Cybertribe & Deuter & Kamal - Yoga & Pilates by the Sea (2008) [MP3|320 kbps]<Relax, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447771.jpg" />
-</div>
-
-
-###  Подробнее
-
-(05:07) 1. Deuter - Sea & Silence
-(05:52) 2. Cybertribe - Spirit Earth Continues, The
-(10:06) 3. Cybertribe - Reaching Motherland
-(06:04) 4. Cybertribe - Celebration
-(05:13) 5. Cybertribe - Voices From a Distant Planet
-(10:35) 6. Cybertribe - Seaside Traveling
-(10:58) 7. Cybertribe - Poseidon's Gate
-(09:07) 8. Kamal - Dreamcatcher
-(14:03) 9. Kamal - Water HealingЖанр: Relax, HealingПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550682   (447728) от 26.09.2012
-
-The Corrs - 3 альбома - 5CD (2001-2007) [FLAC|Lossless]<Pop rock, Celtic, Folk, House>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Sunshine [02:52]
-02. Angel [03:27]
-03. Long Night [03:49]
-04. Old Town [03:49]
-05. Heart Like A Wheel [03:55]
-06. Black Is The Colour [03:50]
-07. Haste To The Wedding [02:29]
-08. No Frontiers [04:25]
-09. Love In The Milkyway [04:02]
-10. Looking In The Eyes Of Love [04:33](   Читать дальше...   )Жанр: Pop rock, Celtic, Folk, HouseПродолжительность: 01:12:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943333   (447469) от 04.10.2015
-
-VA - Музыка из т/с «Два Антона» (2009-2010) [MP3|128 кб/с]<Expanded Score / Unofficial>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Беззаботный мегаполис
-02.Вдоль по Питерской
-03.Верность
-04.Война(   Читать дальше...   )Жанр: Expanded ScoreПродолжительность: 01:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B66D5DD986DBEF6E7AB07364C6325AAD2171560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943809   (447333) от 04.10.2015
-
-Guy Sweens - Universal Language (2015) [MP3|320 кб/с]<New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Approaching the Desert
-02. Yaatri
-03. Mount Loura
-04. Japanese Ceremony(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFC95E660F8A8B2BF7E0DCDFFDF5B034030E22A
 ```
 
 https://mybot314.ru/tekegram_catalog/

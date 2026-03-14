@@ -1,3 +1,61 @@
+###  Публикация: 1096272   (921066) от 23.01.2017
+
+The Lachy Doley Group - Conviction (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Betcha I'll Getcha (02:42)
+02 Conviction (05:31)
+03 Make It Up (04:38)
+04 Back In Black (04:48)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F485A496E9509BA130740A11250F175CC4F8ABE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096260   (921062) от 23.01.2017
+
+John Abercrombie Quartet - Up And Coming (2016) ECM[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Joy [04:13]
+ 02.Flipside [02:54]
+ 03.Sunday School [07:19]
+ 04.Up And Coming [05:51](   Читать дальше...   )Жанр: Jazz Fusion, Modern CreativeПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89213BA2579B3F3711EA1F7A14B399B3D75A6D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096258   (921055) от 23.01.2017
 
 The Fabulous Thunderbirds - Strong Like That (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
@@ -702,64 +760,6 @@ Southbound Snake Charmers - Rhythm 'n' Rust (2017) [FLAC|Lossless|WEB-DL|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E3324DBB7DFB7ED377D46B977C7D39A16BB5B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096148   (919382) от 24.01.2017
-
-Lou Gazzara - Musical Love Affair (2017) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Live Till I Die [01:54]
-02. Birth Of The Blues [03:17]
-03. If I Can Dream [02:48]
-04. At Last [03:05](   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A363385AFC5FA867E558BBF1E1DA6C0844B5CE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096519   (919365) от 24.01.2017
-
-VA - Christmas Swing (2014) [FLAC|Lossless|tracks + .cue] <Jazz, Retro>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bing Crosby - 01 It’s Beginning to Look a Lot Like Christmas (2:48)
-02. Nat King Cole - 02 Mrs. Santa Claus (2:14)
-03. Frank Sinatra - 03 The Christmas Song (3:30)
-04. Marlene Dietrich - 04 Candles Glowing (2:34)(   Читать дальше...   )Жанр: Jazz, RetroПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8229CA5428624E0BCFF2CB8E528C5CD9242E9096
 ```
 
 https://mybot314.ru/tekegram_catalog/

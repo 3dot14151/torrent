@@ -1,3 +1,61 @@
+###  Публикация: 1856056   (1058561) от 26.02.2026
+
+Duke Robillard feat. his All Star Band - Blast Off! (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When I Get Lucky (2:51)
+02.  I'll Be Glad When You're Dead (You Rascal You) (5:49)
+03.  Feel My Cares (4:44)
+04.  Lowdown (4:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A388076112CC35A53BBF026C03CED44E74A3AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856057   (1058560) от 26.02.2026
+
+Ed Alstrom - This Idea of Humanity (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Put You First (3:28)
+02.  All I'm Gonna Do (3:43)
+03.  Humans (3:39)
+04.  Nothing Good to Say (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12131B8A3C63910D4AC6483247A77068A8D6B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856061   (1058558) от 26.02.2026
 
 VA - Jazz Bar Vibes – Smooth Jazz for Relaxing Evenings (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -687,64 +745,6 @@ Ronny Hill - Big Change Coming (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F82790E8AE7E0A3522C50315B73AD1A892966066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853325   (1056343) от 12.02.2026
-
-Matt Smith - ...this is not ok... (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  World Is a Wheel (4:48)
-02.  Cry for America (5:26)
-03.  Orphans (3:34)
-04.  Level Ground (4:12)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96873035300E142464B91F79E16FC87BE8B6F20D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852939   (1056335) от 10.02.2026
-
-Back pOrchEstra - Stories In The Heart (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ever Think About It (4:19)
-02.  What Does Your Heart Say? (4:11)
-03.  I'm Wild About My Lovin' (3:25)
-04.  Kathy Kennedy - Dusty Road I'm On (4:09)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5948FE2C6FD544A6CC80FB2E26B7502E94B83BCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

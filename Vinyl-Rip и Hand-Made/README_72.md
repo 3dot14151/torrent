@@ -1,3 +1,119 @@
+###  Публикация: 1710935   (112585) от 28.03.2024
+
+Александр Градский - Русские песни (cюита на темы народных песен) (1980) [FLAC 24/192|Lossless|tracks] <Rock, Folk, World, & Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Ничто в полюшке
+02 - Дарю платок (страдания)
+03 - Таня белая (хоровод-танок)(   Читать дальше...   )Жанр: Rock, Folk, World, & CountryПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D56166A2CCC04174B70EE7E79469A4D2B2CC415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711499   (112497) от 30.03.2024
+
+Алексей Глызин и группа "Ура" - Зимний сад (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Зимний сад — 4.35
+02. Африка — 4.35
+03. Все позади — 3.40(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91ED4FEE76E057A44C7742168A21330F6EABA7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711504   (112485) от 30.03.2024
+
+Frankie Goes To Hollywood - Liverpool (1986) 1989 [FLAC 24/192|Lossless|tracks] <Electronic, Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Воины бесплодной земли
+Warriors Of The Wasteland
+2. Упорный гнев(   Читать дальше...   )Жанр: Electronic, Rock, Synth-popПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E2905F0472D5C36274771D489234F968772EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579798   (112223) от 02.04.2024
+
+Adelitas Way - Studio Albums (9 releases) (2009-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adelitas Way — рок-группа из Лас Вегаса, штат Невада.2009 - Adelitas Way
+2011 - Home School Valedictorian
+2014 - Stuck
+2016 - GetawayЖанр: Hard Rock, Post-grungeПродолжительность: 05:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5040298C5C13147CDA78E6223D0ED795EAFCC872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712213   (112151) от 02.04.2024
 
 Rapture - Silent Stage (2005) Limited Edition, Reissue, 2018, Alone Records [FLAC|24/192|tracks|Vinyl-Rip] <Melodic Doom, Death Metal>
@@ -624,122 +740,6 @@ Coal Chamber — ню-метал-группа из Лос-Анджелеса, о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41B72A56C833363BEBE51953C32867257415C412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718719   (110848) от 26.04.2024
-
-Lords Of Black - Studio Albums (6 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lords of Black — испанская хэви-метал группа, основанная в Мадриде в 2014 году гитаристом Тони Эрнандо и вокалистом Ронни Ромеро.2014 - Lords Of Black
-2016 - II
-2018 - Icons Of The New Days
-2020 - Alchemy Of Souls - Part I -Жанр: Heavy/Power MetalПродолжительность: 06:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213090019EF8466C5CBDDA023E97FD4FCFF9A511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718706   (110824) от 26.04.2024
-
-Giuffria - Giuffria (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, Arena Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110824.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Do Me Right
-A2 Call To The Heart
-A3 Don't Tear Me Down
-A4 Dance(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F674647C58623CB1816A4780308B3CD99FEC2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718811   (110821) от 26.04.2024
-
-Aggressor - Procreate the Petrifactions (1993) Released, 2012, Roundsound [FLAC|24/96|tracks|Vinyl-Rip] <Death, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Legal Requirements
-02 Wrong Faith
-03 Meaningless Life
-04 Fire Below The Ash(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B6856692434CD8262EFA6E9E9F3B7089D8E247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719216   (110635) от 28.04.2024
-
-U.D.O. - Dominator (2009) Reissue, 2017, AFM Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110635.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Bogeyman
-A2 Dominator
-A3 Black And White
-A4 Infected(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0338B7092D5F6CEF233FEB980B79E9E7AF6F9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

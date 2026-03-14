@@ -1,3 +1,146 @@
+###  Публикация: 1773412   (71712) от 15.01.2025
+
+Brian Grilli - Great Big Sky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Can You Feel It? (4:03)
+02.  Paul Jackson - Ain't Gonna Be Easy (3:54)
+03.  It's My Story (3:10)
+04.  Charlie Starr - Love Sweet Love (4:42)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222D91D38F45E16678AD3D9E74190ED5A06E3728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773424   (71711) от 15.01.2025
+
+Gareth Huggett - Modern Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Modern Life (3:38)
+02.  Lemon Yellow Dress (3:11)
+03.  Pocket Full of Nothing (3:25)
+04.  Tellin' Me Lies (2:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D624E2287A6786F24B0306DEB6ADC5656213CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773629   (71706) от 16.01.2025
+
+AARA - Eiger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Atmospheric Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Die das wilde Wetter fängt [9:26]
+02 - Senkrechte Welten [7:16]
+03 - Felsensang [6:17]
+04 - Todesbiwak [6:27](   Читать дальше...   )Жанр: Black Metal, Atmospheric Black MetalПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0536256B025BCAB6D795336B859480C850E3FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773546   (71691) от 16.01.2025
+
+Epysode - Studio Albums (2 releases) (2011-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epysode - прогрессив-метал группа из Бельгии, основанная в 2011 году.
+Сайд-проект Сэмюэля Аркана с участием приглашенных музыкантов2011 - Obsessions
+2013 - FantasmagoriaЖанр: Progressive MetalПродолжительность: 02:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32DD798D905B07A58154B82095B4DC73A4E8DC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773749   (71667) от 17.01.2025
+
+Myles Kennedy - Solo Studio Albums (3 releases) (2018-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Jazz-Fusion, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майлз Кеннеди — американский музыкант, играл в группах Citizen Swing, The Mayfield Four. Наиболее известен как вокалист и гитарист Alter Bridge, а также как вокалист и ритм-гитарист сольного проекта гитариста Guns N' Roses Слэша (Saul Hudson)2018 - Year Of The Tiger
+2021 - The Ides of March
+2024 - The Art Of Letting GoЖанр: Hard Rock, Jazz-Fusion, Post-GrungeПродолжительность: 02:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9699B02E6B0275518FF1DD8DC5B48FBA30F2C19A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773446   (71618) от 18.01.2025
 
 Osvaldo Di Dio - Blues For Pino (2025) [FLAC 24-Bit/44.1 kHz|Lossless|WEB-DL|tracks] <Blues>
@@ -600,151 +743,6 @@ Holly Cole - Dark Moon (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:474AAEBB1A660139B700BB620D8A09539E7E3394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775266   (71491) от 25.01.2025
-
-Wildness - Avenger (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wings of Fire (3:13)
-02.  Crucified (4:24)
-03.  Broken Heart (3:26)
-04.  Caught up in a Moment (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38ECAD2B5744AE6192AC6CAB27F1E05017C99C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775014   (71483) от 25.01.2025
-
-Amaranthe - The Catalyst (2024) Bonus Version, 2025, Nuclear Blast [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metal, Power Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71483.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. The Catalyst (3:41)
-• 02. Insatiable (2:59)
-• 03. Damnation Flame (3:34)
-• 04. Liberated (3:06)(   Читать дальше...   )Жанр: Melodic Metal, Power Metal, MetalcoreПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E576E747C55FDB60F2CA53CD1D5DBADB655DC7C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775189   (71480) от 25.01.2025
-
-DJ Maretimo - Winter Time Vol.13 - 18 Premium Trax...Chillout, Chillhouse, Downbeat Lounge (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Chill House, Downbeat, Lounge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71480.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Frank Borell - Don'T Be Shy (Skyfall Mix) (4:39)
-• 02. Airstream - Another Dream (Nightfly Mix) (4:37)
-• 03. Vladi Strecker - Winter Time (The Bossa Mix) (8:22)
-• 04. Retro Rider - Posada Al Mar (The Mystic Ocean Cut) (6:18)(   Читать дальше...   )Жанр: Chill-Out, Chill-House, Downbeat, LoungeПродолжительность: 01:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89C3C06E40E4B34A0BFAE37A22EF4EA3BC59397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775011   (71479) от 25.01.2025
-
-Empire Of The Sun - Ask That God (2024) Deluxe Edition, 2025, EMI Recorded Music Australia Pty Ltd [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electropop, Synth-pop, Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71479.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Empire Of The Sun - Changes (3:38)
-• 02. Empire Of The Sun - Cherry Blossom (3:28)
-• 03. Empire Of The Sun - Music On The Radio (2:56)
-• 04. Empire Of The Sun - The Feeling You Get (4:16)(   Читать дальше...   )Жанр: Electropop, Synth-pop, Indie PopПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC85C8DBF3149EB13964624AE215EAEBD864A9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775004   (71471) от 25.01.2025
-
-Across the Shade - Madness (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71471.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Falling Leaf (5:02)
-• 02. On The Horizon (3:35)
-• 03. Don't Fall Asleep (3:27)
-• 04. Protect The Day (3:46)(   Читать дальше...   )Жанр: Gothic Metal, Melodic Death MetalПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7572B6B1D2C93086962078475031C31270797B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

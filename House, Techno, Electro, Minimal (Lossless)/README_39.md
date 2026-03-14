@@ -1,3 +1,90 @@
+###  Публикация: 1049814   (542390) от 06.09.2016
+
+VA - Miami Underground (2016) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Maurice Deek - You Makin Me (Daniel Shepherd Remix) [06:37]
+02 Anie - Betty Ford [06:29]
+03 Ponyfarm - Run Away (Extended) [05:05]
+04 Julez Cordoba - Heat [07:44](   Читать дальше...   )Жанр: HouseПродолжительность: 02:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219F61F2730A168BA6E2E9FF77275917AF468380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049825   (542237) от 06.09.2016
+
+VA - Luxury Deep House 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillelektro - Cassis [05:46]
+02. Simplex Sensus - Rhyme Master [06:16]
+03. Chiffre 100 - Backshore [06:49]
+04. Mighty Real - Cherry Pie [06:09](   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D016F6FE9764E4A98A5582CF36E9CDE8D1CCF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050144   (540517) от 07.09.2016
+
+VA - Remix EP 01 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joachim Pastor - Joda (Worakls Remix) (05:38)
+02. N'to - Chez Nous (Joachim Pastor Remix) (06:30)
+03. Joachim Pastor - Taïga (N'to Remix) (05:52)
+04. Joachim Pastor - Oulan Bator (Oliver Koletzki Remix) (07:07)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EC64374B56E93F2A16D125924BF00132D7ABCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557685   (539181) от 16.06.2022
 
 York - Indigo (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Balearic>
@@ -657,90 +744,6 @@ VA - Ello (2016) aliēnus [FLAC|Lossless|tracks+.cue] <Techno, Dub Techno, Deep 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:058688B353A824FA2502BFF897854CD03B528E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534386   (517758) от 15.08.2012
-
-VA - Aka Aka And Thalstroem - Variete (Remixed) - 2012 [FLAC|Lossless]<Tech House, Deep House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Matters (Жанр: Tech House, Deep House, TechnoПродолжительность: 03:51:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314781   (517271) от 16.07.2019
-
-El Choop - render_series (2019) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. render_001_primer (06:06)
- 02. render_002_proximity (05:15)
- 03. render_003_untitled (06:40)
- 04. render_004_nue (06:23)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C89C3692C86EAFD77CFDE3C6C3F7C00510429A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242483   (515123) от 22.08.2018
-
-Dinka - Innocence (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevation (8:31)
- 02. Toes in the Sand (6:48)
- 03. Venice Beach (6:09)
- 04. Innocence (6:07)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED06CF7DCE3AB8C1C00BEA12D5845FDC79E3C81
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1133977   (691663) от 14.05.2017
+
+Hiram Bullock - First Class Vagabond (1982) 2000, JVC [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teasin' Eyes [03:36]
+02. First Class Vagabond [03:25]
+03. HIgh Tech Mech [02:25]
+04. Make Up Your Mind [03:45](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F62E0C84DDAD301D93FAE8FC5E1B4E233203E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133979   (691662) от 14.05.2017
+
+Paul Desmond - Glad To Be Unhappy (1963, 1964) 2017, Sony Music [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glad to Be Unhappy [05:48]
+02. Poor Butterfly [07:21]
+03. Stranger In Town [06:28]
+04. A Taste of Honey [04:30](   Читать дальше...   )Жанр: CoolПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F848A54BC17BDC0B473A8BC34635789B3668B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221770   (691538) от 26.04.2018
+
+Serge Chaloff - Blue Serge (1956) 1992, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Handful of Stars  [05:38]
+02. The Goof and I [04:49]
+03. Thanks for the Memory  [03:51]
+04. All the Things You Are  [05:31](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7A81D25E907608F38BFB93331A023C2DB7C24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221493   (691464) от 26.04.2018
+
+Solomon Burke - Soul My Heart Away (1989) Compilation [FLAC|Lossless|image + .cue] <Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691464.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	It's Allright
+2	This Little Ring
+3	Just Out Of Reach
+4	Cry To Me(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7074EFD200821682F775398370B9D19A9D8A18D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221612   (691459) от 26.04.2018
+
+Solomon Burke - The Collection 2004 (2004) Compilation [FLAC|Lossless|image + .cue] <Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691459.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	All For The Love Of Sunshine
+2	Looking Out My Back Door
+3	The Electronic Magnetism
+4	J.C. I Know Who You Are(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E245928818596F55EBB118F2C29D8D0962F10B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221503   (691454) от 26.04.2018
+
+Laila Biali - Laila Biali (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got To Love 03:14
+02. We Go 05:17
+03. Satellite 05:06
+04. Yellow 04:42(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8024AFB27DBE0D8992F21E63841C3BD48C9227B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134073   (691413) от 14.05.2017
 
 VA - Soft Piano Music for Quietness Relaxing. (2017) [MP3|320 Kbps] <Jazz>
@@ -571,180 +745,6 @@ Scotty Bratcher - Put My Mind At Ease (2010) [FLAC|Lossless|image + .cue] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5E979895104F45CE6553B2AB2C74315F8925ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134304   (689098) от 15.05.2017
-
-Alice Francis - Electric Shock (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Neoswing, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Is Trix Intro
-02. Too Damn Hot
-03. Getting Cross
-04. Beatptized Aclapella(   Читать дальше...   )Жанр: Electro Swing, Neoswing, Nu JazzПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B5446180F7D3979AEF9B0D21355C6DCB9A6044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028645   (688949) от 23.06.2016
-
-Cy Touff - His Octet & Quintet (1955) 1998, Pacific Jazz Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Keester Parade [07:53]
- 02.TNT [04:58]
- 03.What Am I Here For? [04:25]
- 04.Groover Wailin' [04:14](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6BD90434153DBE9A9C72EC119F8F75BEEF18BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028428   (688861) от 23.06.2016
-
-Brother Jack McDuff & David Newman - Double Barrelled Soul (1967) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.But It's Alright [05:36]
- 02.Sunny [06:41]
- 03.Esperanto [04:54]
- 04.Duffin' 'Round [05:12](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162CA29223EB800226F2C4390AEDCD2DB528DA75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028659   (688856) от 23.06.2016
-
-Jimmy Smith - The Complete Sermon Sessions (1957-1958) 2CD, 2009, Groove Hut Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688856.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.J.O.S. [11:59]
-02.What Is This Thing Called Love [15:18]
-03.Just Friends [15:20](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 02:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB54E0BD61458782ADEF8CC7DAE33911F9E457F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028476   (688757) от 23.06.2016
-
-Camille - I Sing Stevie: The Stevie Wonder Songbook (2014) [FLAC|Lossless|image + .cue] <Jazz, Latin, Contemporary R&B, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Flower.
-02. As.
-03. The Secret Life Of Plants (Duet with Will Lee).
-04. Free.(   Читать дальше...   )Жанр: Jazz, Latin, Contemporary R&B, Smooth JazzПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941B85133626F215D5B408793C2FC29EDE9F3A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403686   (688642) от 21.08.2020
-
-Max Kaminsky - When The Saints Go Marching In Jazz On The Campus, Ltd (1953, 1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Royal Garden Blues [3:02]
-02. Squueze Me [3:03]
-03. Go Go Go [3:12]
-04. I've Got The World On A String [3:36](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E7DC780D8F14D63EAE62C62208A5F448DDBD09
 ```
 
 https://mybot314.ru/tekegram_catalog/

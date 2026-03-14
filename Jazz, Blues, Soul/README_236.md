@@ -1,3 +1,177 @@
+###  Публикация: 1042237   (579540) от 12.08.2016
+
+Jeff Berlin & Vox Humana - Champion (1985) [WavPack|Lossless|image + .cue] <Jazz-rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579540.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Motherlode (5:33)
+2. 20,000 Prayers (6:11)
+3. Marabi (5:37)
+4. Subway Music (3:55)(   Читать дальше...   )Жанр: Jazz-rock, FusionПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F17A88536298C085E4FEA4421076FACAB9FBE1DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042348   (579531) от 12.08.2016
+
+Eliza Lumley - She Talks In Maths: Interpretations Of Radiohead (2007) [FLAC|Lossless|tracks + .cue] <Cool Jazz, Vocal Jazz, Covers>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джазовая интерпретация хитов Radiohead.01. High and Dry
+02. Black Star
+03. Street Spirit
+04. Let Down(   Читать дальше...   )Жанр: Cool Jazz, Vocal Jazz, CoversПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B76CD3C817A6196E4E647D62B3BCF7F17B5297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302792   (579381) от 17.05.2019
+
+Franco Ambrosetti - Jazz at Prague Castle (2005) Multisonic [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Thought About You [9:10]
+02. Autumn Leaves [8:12]
+03. My Funny Valentine [9:15]
+04. Bye Bye Blackbird [7:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB32B7C8DD334D99CA63FAF9BCF30661DEB3EE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042083   (579369) от 12.08.2016
+
+Joscho Stephan - Guitar Heroes feat. Tommy Emmanuel, Biréli Lagrène, Stochelo Rosenberg (2015) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues For Tommy (3:16)
+02. Love's Melody (3:24)
+03. Hungaria (4:04)
+04. Swing 42 (4:58)(   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7028A715C339708DD992C2EDBC41480288AF3C10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302758   (579273) от 17.05.2019
+
+Hazmat Modine - Box of Breath (2019) [MP3|320 Kbps] <Blues, Jazz, Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crust of Bread
+02. Box of Breath
+03. Be There
+04. Hoarder(   Читать дальше...   )Жанр: Blues, Jazz, Folk, World MusicПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBDA843C2F264DF5C7FBCB20B00CC77535A541C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554171   (579098) от 29.05.2022
+
+Rufus Reid & Akira Tana - Looking Forward (1995) Evidence [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy [5:21]
+02. Gold Minor [6:42]
+03. The Duke [5:32]
+04. Skyline [8:33](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE9D433AD69B81928542E6E57D52A6815D2EBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920793   (579093) от 23.07.2015
 
 Fred Hersch - Point in Time (1995) /2005, Landy Star/[FLAC|tracks+.cue]<Jazz, Post-Bop>
@@ -588,180 +762,6 @@ Jimmy Smith - Open House & Plain Talk (1960) /1999, Ars Nova/[FLAC|tracks+.cue]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00890899F96056A4B53CC537DE51A114B180CF20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150632   (577739) от 16.07.2017
-
-Philip Sayce - 8 льбомов (1997-2016) [FLAC|Lossless|image + .cue, tracks+.cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Филипп Сэйс (Philip Sayce) родился (3 июня 1976 г.) в  Аберистуит, Великобритания, но жил и вырос в Торонто (Канада), куда переехала его семья, когда Филиппу было всего два года. Так он, сам того не зная, стал земляком величайшего канадского гитариста Джеффа Хили. Он вырос в окружении музыки Эрика Клептона (Eric Clapton), Рая Кудера (Ry Cooder) и Mark Knopfler, из (   Читать дальше...   )Список альбомов:
-1997 - Philip Sayce Group
-2005 - Peace Machine
-2007 - Silver Wheel Of Stars(   Читать дальше...   )Жанр: Blues Rock |Продолжительность: 06:51:22 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C447D4D2393C260918E721C944E2C0AECE5B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921084   (577621) от 24.07.2015
-
-Aynsley Dunbar - Les Genies du Rock - Willie The Pimp (1995) [MP3|320 кб/с]<Blues Rock, Art Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Willing To Flight (6:41)
-02.  Willie The Pimp (14:31)
-03.  It Is Your Turn (9:58)
-04.  Days (5:58)(   Читать дальше...   )Жанр: Blues Rock, Art RockПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F23E75F179DB32E66ABF536B38E426E3C27C99A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921142   (577619) от 24.07.2015
-
-Nancy Danino - Testify (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beauty On Water
-02. Blue Sky
-03. Millionaire In the Rain
-04. Someday(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F20EF629BF4719E5331ABA0E7727F5C50BC4B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921133   (577614) от 24.07.2015
-
-The Drifters - Les Genies du Rock - In Concert (1993) [MP3|320 кб/с]<Rhythm & Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Up On The Roof (4:32)
-02.  Honey Love (2:26)
-03.  This Magic Moment (3:09)
-04.  Save The Last Dance For Me (7:35)(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B997910E07BC9E5A1BEEF87A29365FD9B9BF4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921165   (577602) от 24.07.2015
-
-Kelly Richey - Kelly Richey Live: 1996-2011 (2012) [MP3|320 кб/с]<Blues, Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hey Joe (10:18)
-02.  The Longest Road (5:38)
-03.  Is There Any Reason (9:46)
-04.  Crossroads (11:22)(   Читать дальше...   )Жанр: Blues, Rock, Blues RockПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75228B774C69E1A88CD50842117665E62896BD26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921116   (577598) от 24.07.2015
-
-Curtis Mayfield - Les Genies du Rock - - Back To The World (1995) [MP3|320 кб/с]<Soul,Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Get down (5:44)
-02.  Keep on keeping on (5:08)
-03.  Underground (5:17)
-04.  We got to have peace (4:44)(   Читать дальше...   )Жанр: Soul,FunkПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EFF2E8CC53171CC45DB509C8D7B685B2737CEF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

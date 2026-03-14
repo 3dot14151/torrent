@@ -1,3 +1,29 @@
+###  Публикация: 1018204   (753439) от 21.05.2016
+
+Фрэнк Герберт | Дюна (2007) [m4b|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753439.jpg" />
+</div>
+
+
+###  Подробнее
+
+По приказу Императора (вступившего в сговор с Харконненами и нарушившего тем самым Великую Конвенцию), Атрейдесы переселяются на Арракис — пустынную планету ужасных бурь и гигантских песчаных червей, населенную жестокими фанатиками — фрименами, называемую также Дюной. Эта планета должна стать их золотой гробницей. Почему золотой? Да потому что эта планета — единственный (   Читать дальше...   )Жанр: ФантастикаПеревод: П. ВязниковФормат: m4bПродолжительность: 27:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413BE28D7B1F89E7BC68FD143CACD55A70BB7B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523078   (753413) от 10.01.2022
 
 VA - Christmas Jazz Night 2021 (Best X-Mas Jazz Music) (2020) [AAC|~318 Kbps] <Lounge, Chill Out, Smooth Jazz>
@@ -683,35 +709,6 @@ VA - Musica Del Sol, Vol. 3 (2017) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:102F341A2A436F03E704C1A214751CE0640E3948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523325   (751679) от 11.01.2022
-
-Daminika - Collection of the Best Tracks From: Daminika, Pt. 1 (2021) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daminika, Bryan Milton, Natune - I Won't Sleep (Original Mix) (4:26)
-02. The Colors of the Evening (Original Mix) (4:20)
-03. Infinite Sadness (Original Mix) (4:06)
-04. Beyond the Stars (Original Mix) (4:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C15319F05D5DEA3483EFDF15E824187A4ADE4B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

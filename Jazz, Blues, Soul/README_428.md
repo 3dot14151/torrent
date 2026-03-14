@@ -1,3 +1,177 @@
+###  Публикация: 1589895   (189450) от 12.11.2022
+
+Brandi Disterheft - Blue Canvas (2016) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dis Here [5:41]
+02. Prelude to the Crippling Thrill [2:20]
+03. Cripping Thrill [4:28]
+04. Beehive [5:28](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6216625ADE5C8BCE6425D0E2F3FC1538D3F41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589984   (189448) от 12.11.2022
+
+Jimi Tenor - Multiversum (2022) [FLAC|Lossless|tracks + .cue] <Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Intro (0:52)
+02. Life Hugger (3:23)
+03. Jazznouveau (4:08)
+04. Uncharted Waters (5:22)(   Читать дальше...   )Жанр: Nu JazzПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66093C4D08EB0C34C07AE954F0C8E6AB5F12F58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590064   (189446) от 12.11.2022
+
+Joe "Fingers" Webster & The Swing Fever Big Band - Hooked On Big Bands (1993) K-Tel [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hooked on Birdland [7:32]
+02. In the Mood Medley [6:28]
+03. Hooked on Boogie Woogie [7:10]
+04. C'est Magnifique Medley [9:05](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAE88FEB81DB9D691B4411A96A2237ACFEB8D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589890   (189442) от 12.11.2022
+
+Brandi Disterheft Trio With George Coleman - Surfboard (2020) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surfboard [4:03]
+02. Prelude to Coup de foudre [2:58]
+03. Coup de foudre [3:51]
+04. My Foolish Heart [6:50](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4EF2E993EEFBD48A49B9830CCE8A14EB87331A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660650   (189426) от 13.09.2023
+
+McCoy Tyner - What's New? (1987) 1998, West Wind [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senor Carlos [9:15]
+02. Lover Man [8:57]
+03. You Taught My Heart to Sing [6:12]
+04. Port Au Blues [7:49](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE153F57DC9B15FE3D3DEBBD784FB852856149B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660659   (189411) от 13.09.2023
+
+Marina Pacowski - Inner Urge (2023) Summit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Urge [6:11]
+02. Pensativa [6:01]
+03. Solar [4:43]
+04. My Foolish Heart [4:52](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E8B52B119168B0EE8A381DF4323C8D57C452CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660383   (189393) от 13.09.2023
 
 VA - Jazz & Soul Season 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
@@ -571,180 +745,6 @@ Steve Hill - Dear Illusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18891C2C95232C6F988ED8743462C224C2DCB802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590431   (188843) от 14.11.2022
-
-Sister Mercy - Honey (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold on Honey (4:18)
-02. Weeping Woman (4:28)
-03. Long Way to Midnight (4:03)
-04. Beale Street Boogie (4:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D4978003878D8D86479044C4C80214997AAFDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590422   (188842) от 14.11.2022
-
-Henrik Freischlader - Recorded by Martin Meinschäfer II (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free (5:25)
-02. Aware of Things (5:12)
-03. Turn Back the Clock (5:54)
-04. Rule the World (4:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655C81D5AF7BAE30128B65AC1A2CFC6B2910DDCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590578   (188839) от 14.11.2022
-
-Junko Onishi - Baroque (2010) Verve [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tutti [9:05]
-02. The Mother's (Where Johnny Is) [5:51]
-03. The Threepenny Opera [19:42]
-04. Stardust [4:47](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD0A93B0715EF33C0685B961715E2001095E9C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590418   (188832) от 14.11.2022
-
-Aynsley Lister - Along for the Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazing (4:53)
-02. Bide My Time (4:56)
-03. Wait For Me (3:42)
-04. Is This Really Happening Now (3:52)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64830B9314518B0EE2C3AFABE043E38D16BD32E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590446   (188824) от 14.11.2022
-
-VA - The good awakening blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvis Presley - Hearthbreak Hotel (2:09)
-02. Double Soul - Think About Things (2:34)
-03. JPB John Papa Boogie - You Only Go Around Once (5:09)
-04. Barbara Belloni Band - A Hard Rain's a-Gonna Fall (7:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C0D134F62A995FFD3B9B595AE63EF315A2034D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590427   (188805) от 14.11.2022
-
-Luke Winslow-King - If These Walls Could Talk - If These Walls Could Talk (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Sunday June (2:30)
-02. Honeycomb (2:57)
-03. Jessie's Love Song (3:14)
-04. Don't Tell Me I Don't Love You (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC34FABA325AE52F089E9F000FA62D048D1A996
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1129929   (718831) от 30.04.2017
+
+VA - Mush-Up Dance Music (2017) [MP3|320 Kbps] <Club, Dance, House, Mush Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kindervater - Eight (Extended Mix)
+002. Dj Matrix - Cr9
+003. O-Zone - Dragostea Din Tei (Dj Zed Remix)
+004. Laidback Luke Feat. Majestic - Pogo (Deorro Remix)(   Читать дальше...   )Жанр: Club, Dance, House, Mush UpПродолжительность: 07:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0543F8EE33C1E305B4FA8600CA52C91BB4C8E561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130019   (718710) от 30.04.2017
 
 VA - Empire Records - Club Hit 13 (2017) [MP3|320 Kbps] <Club, Dance>
@@ -716,35 +745,6 @@ VA - The Official UK Top 40 Singles Chart 07.08.2020 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39054FDDA8ECECE7A779714ADBF2D7CEE5E53823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401026   (712974) от 08.08.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 07.08.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NRD1 - All Good Things (Come To An End) (3:27)
-02. Imanbek & Martin Jensen - I'm Just Feelin' (Du Du Du) (2:45)
-03. Regard & RAYE - Secrets (2:56)
-04. Pascal Letoublon - Friendships (4:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6D0ABAC3E7C5617939463C869527ED1BAC0B96
 ```
 
 https://mybot314.ru/tekegram_catalog/

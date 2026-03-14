@@ -1,3 +1,90 @@
+###  Публикация: 1783223   (69817) от 05.03.2025
+
+LP Giobbi - Dotr (2024) Remixes, 2025, Counter Records [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel (Kink Remix) [00:04:38]
+02. So Nice To Be In Love (Deer Jade Remix) [00:05:14]
+03. So Nice To Be In Love (Busy P & Domenico Torti Remix) [00:04:49]
+04. So Nice To Be In Love (Sebra Cruz Remix) [00:05:00](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6691AD4B70D08A855775F1366D580927E387AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784149   (69658) от 09.03.2025
+
+VA - Sport Mixtape (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - I Follow Rivers (feat. Oaks) (3:18)
+02. Alle Farben - Call My Name (feat. Sofiloud) (2:24)
+03. David Guetta - Never Going Home Tonight (feat. Madison Love) (2:44)
+04. Robin Schulz - World Gone Wild (feat. Sam Martin) (2:26)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD8A14746BD8CF58F8943DCFDA380D74502A940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785044   (69417) от 14.03.2025
+
+djdtime - Minimal Tech House Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the Dive (4:46)
+02. Locked Groove (4:11)
+03. Bassline Addiction (6:57)
+04. Circuit Flow (4:42)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23EA204E26A8E4CEBF387492BBFC94498F6B333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786558   (68990) от 21.03.2025
 
 VA - Melodica 2025 (Tibetania Rituals) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Progressive House>
@@ -657,91 +744,6 @@ Volen Sentir - The Book of Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1AF2D93A1EB31C6A0004310251D09C0783B56EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803701   (65827) от 24.06.2025
-
-VA - Winter Anthems 2016 (2016) CD, Compilation, Mixed [FLAC|Lossless|tracks + .cue] <Electronic, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheat Codes X Kris Kross Amsterdam / Sex    [0:04:16.22]
-02. Sigala Feat. John Newman & Nile Rodgers / Give Me Your Love    [0:03:11.73]
-03. Sia Feat. Sean Pau / Cheap Thrills (Le Youth Remix)    [0:02:42.06]
-04. Imany / Don't Be So Shy (Filatov & Karas Remix)wn Title    [0:03:06.00](   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CDA0A4B19EB6A28705BE90EBDC5939A610D00F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806765   (65347) от 14.07.2025
-
-Restive Plaggona - Manipulation Techniques (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Stay Where I Can Reach You 5:12
-02 Manipulation Techniques 5:18Жанр: TechnoПродолжительность: 10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90CEF82E214AFF3585B40354D58D63ED1636EF22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807594   (65224) от 19.07.2025
-
-Boris Brejcha – Level One (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Level One (Intro Edit) (8:05)
-02. Ice Cave (8:19)
-03. Space X (Edit) (3:36)
-04. Dimension (8:01)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DF100C34D5E88FAF05C8D5E37848973DA8BBB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

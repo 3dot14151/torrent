@@ -1,3 +1,119 @@
+###  Публикация: 1374588   (868615) от 12.04.2020
+
+Gary Schmidt - A Classical Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868615.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adagio from Concerto in Dm	03:59
+2. Etude No. 2	04:59
+3. Claire de lune	05:20
+4. Pieces Froides: Danses de Travers No. 1	01:51(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F013CFEDC68C3E96B03478964F1665DB107971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998752   (868516) от 20.03.2016
+
+Corciolli - Lightwalk (2010) [FLAC|Lossless|tracks] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miragea  04:41
+02. Amethysios  05:48
+03. Star  03:55
+04. Pegasus  04:03(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC74E4FEC728E0281A2992A79681BF6874EBB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998577   (868512) от 20.03.2016
+
+Ancient Future - Asian Fusion (1993) [MP3|320 кб/с] <Folk, World, New Age>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude  01:03
+02. Bookenka (The Adventurer)  05:25
+03. The Trader  04:15
+04. Mezgoof  06:23(   Читать дальше...   )Жанр: Folk, World, New AgeПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B729215DA2C3474CF6CCB2E9A8494F7BF616968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998734   (868439) от 20.03.2016
+
+Celtic Woman - Solo (2015) [MP3|320 кб/с] <Celtic folk, World, New age>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chloe - To Where You Are
+02. Lisa Kelly - Home and the Heartland
+03. Lynn Hillary - Carolina Rua
+04. Meav - Marble Halls(   Читать дальше...   )Жанр: Celtic folk, World, New ageПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9659DA7613E1BEF7E7838CD733870D92487111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998755   (868437) от 20.03.2016
 
 Roc Chen, Rob King, Paul Romero - Might & Magic Heroes VII (2015) [FLAC|Lossless|image + .cue] <Score, Soundtrack>
@@ -621,122 +737,6 @@ Atlas - Прогревочный и размагничивающий диск (2
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109183   (860759) от 26.02.2017
-
-The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) [MP3|320 Kbps] <Soundtracks, Classical, Epic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title ("from Game of Thrones")
-02. Goodbye Brother
-03. Season 1 Finale
-04. Warrior of Light(   Читать дальше...   )Жанр: Soundtracks, Classical, EpicПродолжительность: 01:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A8C2670D20363F347BAAE3CA0C40BE4C39AB97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109184   (860664) от 26.02.2017
-
-The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks, Classical, Epic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title ("from Game of Thrones")
-02. Goodbye Brother
-03. Season 1 Finale
-04. Warrior of Light(   Читать дальше...   )Жанр: Soundtracks, Classical, EpicПродолжительность: 01:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5B5163DC7975BDCA967B4DA751B2C3F44F1862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375776   (859982) от 17.04.2020
-
-David Arkenstone - The Delicate Balance (2020) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isolamento
-02. What We Do In Life... Echoes In Eternity
-03. You Can Only Come To the Morning Through The Shadows
-04. The Measure of Existence(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A1F07185DD074E8DD51B5987A9D1283A55D219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000081   (859324) от 25.03.2016
-
-Ken Yang - Meet the Sky (2001) [FLAC|Lossless|tracks] <International, New Age, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet the Sky   02:37
-02. Hot Spring   04:10
-03. The Slop of Green Grass   04:59
-04. The Sea of Seven Stars   04:57(   Читать дальше...   )Жанр: International, New Age, Easy ListeningПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C094B6B60F2D1F14D2C11022DB21B5F19167B1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

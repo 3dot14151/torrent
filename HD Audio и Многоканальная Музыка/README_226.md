@@ -1,3 +1,148 @@
+###  Публикация: 1752780   (41677) от 02.10.2024
+
+Darnell "Showcase" Taylor - Worth the Wait (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patches Stewart - Nights in Napa (4:27)
+02. Chelsey Green - Paradise (3:56)
+03. Marqueal Jordan - Lo-Fi Vibes (3:59)
+04. House of Love (3:39)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4695FD75E2FFBFB2147638DB83230CAA994FE055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752781   (41673) от 02.10.2024
+
+Marigold Bachman Blackout - Phoenix Rise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Institute (3:57)
+02. Monkey With a Gun (5:39)
+03. New Old State (4:13)
+04. Bounty Hunter (4:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3BD4CA1A366F6C993D274024DA2D1CC60ABF43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752779   (41663) от 02.10.2024
+
+Cigar Box Band - Time To Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Remember (3:43)
+02. Back To Where I Pray (5:20)
+03. Time To Go (4:22)
+04. Peace Within Myself (3:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127A0FD864AC0682DB5CD5E058DD52E36C833B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752612   (41662) от 02.10.2024
+
+Pavlov's Dog - Essential Recordings 1974-2018 Pavlov's Dog (1974-2018) Remastered, 2024, Ruf Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-rock, Blues-Rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris (4:44)
+02. Hard Times (4:25)
+03. Winterblue (4:05)
+04. Thrill of It All (5:56)(   Читать дальше...   )Жанр: Progressive-rock, Blues-Rock, AORПродолжительность: 5CD, 04:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C3E2ACC8B30BA2044A99BEAAFE1300D017BF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752994   (41578) от 03.10.2024
+
+Cyber Beats Nexus - ROCK 1.0 (1.0) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ironing Man (3:16)
+02. Lemonade Stall (3:51)
+03. TOOKETH (Taken Again) (2:41)
+04. Room For Two (2:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F34C2CB154F0ACA42C9495734FEEB191B9143B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753006   (41573) от 03.10.2024
 
 Jan Preston - Pianoland (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -597,151 +742,6 @@ The Smoothies - Echoes of Velvet: A Journey Through (2024) [FLAC 24/48|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95C630527CDEEB16BF8AC90A423491E333EC330E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754408   (40783) от 10.10.2024
-
-The Smoothies - Soulful Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Groove of Your Love (3:27)
-02. Together Forever (3:06)
-03. Summer Fades (2:49)
-04. Missing You (My Friend) (2:38)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E253BB1A524821C5F977121D987357128EA44B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754399   (40781) от 10.10.2024
-
-Summer Jazz Paradise, Instrumental Jazz Music Ambient and Swing Background - Summer 2024 Vintage Swing Jazz Collection (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Swing, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Jazz Paradise - Swingin' in the Sunshine (3:24)
-02. Instrumental Jazz Music Ambient - Jazz by the Pool (3:36)
-03. Breezy Afternoon Swing (3:52)
-04. Summer Jazz Paradise - Starlit Serenade (3:51)(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DE584B196F1585E3BB63216AFBA7CFD70D43BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754409   (40776) от 10.10.2024
-
-The Smoothies - Velvet Vibes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Longing Echoes (3:05)
-02. Lonely Roads (2:49)
-03. Hold me close stay right here (2:54)
-04. Moonlit Groove (2:47)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DFD366AC5605EFB2A4CFAA1B08BB39440BEB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754490   (40772) от 10.10.2024
-
-John Lennon - Mind Games (Meditation Mixes) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind (Mind Games Meditation Mix / Binaural ∿Gamma Waves∿ 100Hz) (10:02)
-02. Magic (Mind Games Meditation Mix) (10:58)
-03. Space (Mind Games Meditation Mix / Binaural ∿Theta Waves∿ 8Hz) (5:42)
-04. Seed (Mind Games Meditation Mix) (5:59)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E109EC1988BFD972F4F41C3D5D812C588299B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754398   (40767) от 10.10.2024
-
-Ezra Collective - Dance, No One's Watching (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:22)
-02. The Herald (3:45)
-03. Palm Wine (5:14)
-04. cloakroom link up. (Act 1) (0:25)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F5BADF52D8CBE978323CCB222C7E5CFB245C49
 ```
 
 https://mybot314.ru/tekegram_catalog/

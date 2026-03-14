@@ -1,3 +1,90 @@
+###  Публикация: 1341780   (228897) от 29.11.2019
+
+Пурген - Punk Destroyer (2019) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_228897.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Как прекрасен этот мир
+2. Русская рулетка
+3. Боги спустились с небес
+4. Разговор с самим собой(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61FF36518AC82D57A951B6D82259F07B6118DE51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341684   (228889) от 29.11.2019
+
+Сурганова и Оркестр - Юбилейный концерт. 15 лет (2019) Live @ Crocus City Hall, Москва, 1 декабря 2018 [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_228889.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Всё сначала
+3. Белые люди
+4. Гонки(   Читать дальше...   )Жанр: RockПродолжительность: 02:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A12751E60D8113C9341D669F0B87CD4968512BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649818   (228599) от 29.07.2023
+
+Лужа в море - Подводный (2023) [MP3|320 Kbps] <Indie Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Дом у реки [00:03:24]
+02 - Заноза [00:02:55]
+03 - Молчи (Silentium!) [00:03:54]
+04 - Меркурий [00:02:40](   Читать дальше...   )Жанр: Indie Rock, AcousticПродолжительность: 00:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B267ADCBDDF8A102370C44B35FB8BABEF31E45B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341681   (228581) от 29.11.2019
 
 Машина времени - Просыпается ветер (2019) Single [MP3|320 Kbps] <Rock>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E88C82C71005B55B346315E575E11CD9BA7B53A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268730   (224675) от 12.12.2018
-
-Константин Ступин - Ремесло (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Секрет
-02. Ремесло
-03. Один аккорд
-04. Гремит моя музыка(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCCEB658F42413C9F6E06463B7C8B1C4807457B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584853   (224670) от 19.10.2022
-
-Ключевая - Юдоль (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224670.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Огонь
-2. Плис
-3. Юдоль
-4. Храм(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A90BF0F1A311A233B2A461AC54AF0B790B326D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268869   (224664) от 12.12.2018
-
-Louna - Panopticon (2018) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Kingdoms (feat. Craig Mabbit & Kevin Thrasher)
-02. Spring
-03. Homeland
-04. Searching(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA225E647201931A8D9254AF921AA01B0392B64
 ```
 
 https://mybot314.ru/tekegram_catalog/

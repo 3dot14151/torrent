@@ -1,3 +1,195 @@
+###  Публикация: 556781   (424788) от 06.10.2012
+
+Zaira - Mi vida (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7552A77EAA2BE442B4200C853FFE0F1FA99E9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557220   (418823) от 08.10.2012
+
+Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD) (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418823.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента выхода одного из самых успешных соло синглов солиста легендарной группы Queen, Фредди Меркьюри (Freddie Mercury), прошло более 25 лет, но тем не менее альбом «Barcelona» не теряет своей популярности, и вот уже совсем скоро выходит новая специальная орекстровая версия этого легендарного альбома.
+
+Напомним, что сингл Barcelona записан совместно с легендарой (   Читать дальше...   )1. Barcelona - Ku Club Ibiza performance
+2. Barcelona - La Nit performance
+3. How Can I Go On - La Nit performance
+4. The Golden Boy - La Nit performance(   Читать дальше...   )Жанр: Classic Rock / OperaПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEF2A8F5011DE222C3C6B163DF069CA3F5D0B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064618   (418459) от 23.10.2016
+
+The Weeknd - False Alarm (2016) WEB-DL [MPEG-4/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Режиссер российско-американского фильма «Хардкор» Илья Найшуллер снял клип для канадского певца The Weeknd.
+Россиянин Илья Найшуллер прославился вирусными музыкальными видео своей группы Biting Elbows, а в 2016 году под опекой Тимура Бекмамбетова дебютировал в Голливуде фильмом «Хардкор» — боевиком, снятым целиком от первого лица. В «False Alarm» использован ровно (   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB40BEE5A24996B93492349ED4DDCFD9C653D73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456061   (416154) от 09.10.2012
+
+Любэ, Корни, In2Natiоn - Просто Любовь (2012) HDTVRip [720p] [hand made 60fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный соундтрек к фильму "Август. Восьмого"Жанр: Фолк-рокРежиссер: Д.Киселев   (С) 2012 ООО Продюсерский центр И.МатвиенкоАктеры: Любэ, Корни, In2Natiоn (Интонация) и актёры фильма "Август. Восьмого"Перевод: ОтсутствуетПродолжительность: 03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8936C61D714FECAF1738F6D44820B6EF5BBA65B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412526   (413464) от 01.10.2020
+
+Nuclear Power Trio - A Clear and Present Rager (2020) WEB-DL[H.264/1080p-LQ] <Instrumental Moden Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьерный 29.09.2020 релиз видеоклипа от виртуозов Instrumental Moden Metal "Nuclear Power Trio"
+В ролик инсталлирован аудиотрек данного релиза 24-Bit / 48.0 kHzПроизводство: Metal Blade Records / The Orchard MusicЖанр: Instrumental Moden MetalАктеры: Nuclear Power TrioПродолжительность: 00:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3981A5FA6156711A3FC93FA838895643BB82A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947680   (411098) от 20.10.2015
+
+VA - Осенний марафон № 198 / Видеоклипы (Лучшая Дискотека  Россыпью) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (17.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. AOA - Oh Boy (Official Video) (00:04:25)
+02. Bielfield - Frequency (Official Video) (00:03:21)
+03. Corina Smith - La Difícil (Official Video) (00:03:16)
+04. Danielle Bradbery - Friend Zone (Official Video) (00:02:59)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Soul, DubstepПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4903100F533A3FF55E533127203DAF552F612A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559270   (409693) от 12.10.2012
+
+Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: AlternativeПродолжительность: 00:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C6AF648336ADEE814BD995A2F102492D6D906C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559503   (409588) от 12.10.2012
 
 Рок'н'Ролл / Rock N Roll Meltdown (1988) DVDRip
@@ -506,206 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51AD24744AC23DB9B09FABACCBC3408950D31B33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565469   (400031) от 26.10.2012
-
-Aerosmith - What Could Have Been Love (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4900C53E11086D683C88408873B74DEA472C03CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170516   (399225) от 01.10.2017
-
-Deep and sensual music for love (2017) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заводные клипы электронной музыки с прекрасными девушками поднимут вам настроение!
-
-Постельных сцен эротики течение,
-Нежность белых тонких простыней,(   Читать дальше...   )01. Ansah - I Know [03:18]
-02. Tom Ferro - Molly [04:27]
-03. Jake Ackers - Enigma [05:40]
-04. Gold Front - Jumanji [03:52](   Читать дальше...   )Производство: All WorldЖанр: ElectronicПродолжительность: 02:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AC63A4D02180BEEBE84CBCF0E51907ECBC332C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170815   (398388) от 02.10.2017
-
-Сборник клипов - Ballads and Lyrics от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (диск 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник клипов я собирал когда то для девушки которую очень любил и вложил в него всю свою душу. Каждый кто любил по настоящему, найдет в нем частицу себя. Это 1я часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
-001 Bryan Adams - Please Forgive Me
-002 Mr. Big - Wild world
-003 Рондо - Я буду помнить(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AC8BCE70AAB15F9F3C5C50C061BD1FF7D7CB13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171120   (396550) от 04.10.2017
-
-Сборник клипов - Rap & Hip Hop от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (диск 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я долго работал над этим сборником клипов. Перепахал много гектар видеоматериала и выбрал лучшее что есть в мировом рэпе. Исключил попадание сюда однообразной речетативной пурги, которой навалом в рэпе и хип-хопе. Это 1я часть сборника. Смотрите, слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
-001 50 Cent - In Da Club
-002 Down Low -  Potion
-003 Dino MC47 - Гражданин Р(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 03:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A09C366959208CBC3D1D40AF5B249BEC74A8526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715908   (395617) от 27.10.2013
-
-Звёзды 60-х / 60's All Stars [Часть 1] (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chuck Berry - Memphis
-02. Brian Pool & The Tremeloes - Do you love me
-03. Gerry & The Pacemakers - I like it
-04. The Searchers - Sugar & spice(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Beat, Rock'n'Roll
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BB12A08FD9E3336D5ACF950F3F21B433B93727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715926   (395610) от 27.10.2013
-
-Звёзды 60-х / 60's All Stars [Часть 2] (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petula Clark - Downtown
-02. Bill Meadley & Bobby Hatfield - You've lost that lovin' feelin'
-03. Them - Baby please don't go
-04. Sonny & Cher - I got you baby(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Pop, rock, rock'n'roll
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2EDC8D233B97FBE06EB7A8CB1FCAB1CF08B62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567576   (394688) от 31.10.2012
-
-Сборник клипов - VA - Various Music part. 36 (2012) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E57B1A2ECAE76A3B5196B9DAC3DBE937BD9207
 ```
 
 https://mybot314.ru/tekegram_catalog/

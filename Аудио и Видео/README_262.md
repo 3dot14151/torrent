@@ -1,3 +1,29 @@
+###  Публикация: 1517128   (163327) от 14.12.2021
+
+Агент 117: Из Африки с любовью / OSS 117: Alerte rouge en Afrique noire (2021) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба заносит легендарного Агента 117 в Африку, где горячее пустыни только женщины. Вооруженный неиссякаемой уверенностью в себе и убийственной харизмой, он может справиться со всеми врагами, кроме самого себя.Производство: Франция, Бельгия / Blue Sky Films, Canal+ fr, Ciné, Gaumont, Le Tax Shelter du Gouvernement Fédéral de Belgique, M6 FilmsЖанр: комедия, боевикРежиссер: Николя БедоАктеры: Жан Дюжарден, Пьер Нинэ, Фату Н Диайе, Наташа Линдинжер, Владимир Иорданов, Жиль Коэн, Балла Хабиб Дембеле, Иван Франек, Пол Уайт, Эмиль Абоссоло МбоПеревод: Любительский двухголосыйСубтитры: русские, английские, французскиеПродолжительность: 01:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06BE7D7ED2E7A2ACE1DDD37EE8145D7AD62A8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517467   (163055) от 15.12.2021
 
 Beamy - Sunrise (2021) [AAC|~351 Kbps] <Lo-Fi, Lounge, Chill Out>
@@ -714,35 +740,6 @@ VA - Zen Garden: Winter Vibes (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0336CABA344CE317174F799E34075CF3A2723636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517840   (161650) от 17.12.2021
-
-Lian Ross - The Ballads (2021) [AAC|~325 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It’s up to You (Love Call Version) (3:50)
-02. Magic Moment (3:55)
-03. I Need You by My Side (4:05)
-04. Hurt (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455C0C6B75A2E0EA66A326D15A19E64C43FAA2EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

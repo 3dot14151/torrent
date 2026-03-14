@@ -1,3 +1,148 @@
+###  Публикация: 1757907   (38791) от 30.10.2024
+
+Luiz Carlos Diaz - Giselle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brigas Nunca Mais (3:52)
+02. Corcovado (3:26)
+03. Giselle (3:22)
+04. Desafinado (3:08)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D06313024EA63380DE4DD308CDE92A7725833A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757909   (38789) от 30.10.2024
+
+Nipper Swing Band - Vintage Radio (Swing Golden Age) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is The Sweetest Thing (2:27)
+02. Falling In Love Again (2:13)
+03. Sweet Lorraine (3:22)
+04. All Alone (2:59)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667057BE489F57D09D0A6B1B4B21DB73B84B03FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758149   (38699) от 31.10.2024
+
+Dead Icarus - Zealot (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metalcore, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Unconquerable [00:03:16]
+02. Bearing Burdens and Saving Skin [00:03:30]
+03. Zealot [00:03:56]
+04. 1 Million Days [00:03:20](   Читать дальше...   )Жанр: Melodic Metalcore, Thrash MetalПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3278E7DCCCC53F46637FF7B241190F7B2777FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677427   (38683) от 31.10.2024
+
+Hatchet - Studio Albums (5 releases) (2008-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hatchet - американская трэш-метал группа из Сан-Франциско, Калифорния. Образована в 2006 году.2008 - Awaiting Evil
+2013 - Dawn Of The End
+2015 - Fear Beyond Lunacy
+2018 - Dying to ExistЖанр: Thrash MetalПродолжительность: 03:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04849D7AB5F2F88D04DA5A989A28919EFFD10AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758244   (38614) от 01.11.2024
+
+The Cure - Songs of a Lost World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Gothic rock, Post Punk, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone (6:49)
+02. And Nothing Is Forever (6:53)
+03. A Fragile Thing (4:43)
+04. Warsong (4:17)(   Читать дальше...   )Жанр: Gothic rock, Post Punk, New WaveПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF12939C30AE52A991E3080EC08F1677A61A7B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667512   (38494) от 02.11.2024
 
 Skillet - Studio Albums (13 releases) (1996-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-grunge, Nu Metal>
@@ -599,152 +744,6 @@ Little River Band - Window To The World (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B3E7B6128273E5E44B48DD773B3E211A916562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758901   (38192) от 05.11.2024
-
-Visions of Atlantis - Studio Albums (10 releases) (2002-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visions of Atlantis — симфоник-метал и пауэр-метал-группа из Штирии, Австрия, основанная в 2000 году.
-Участники группы были вдохновлены симфо-пауэр-метал-группой Nightwish и легендой об Атлантиде2002 - Eternal Endless Infinity
-2004 - Cast Away
-2007 - Trinity
-2011 - DeltaЖанр: Symphonic Power MetalПродолжительность: 08:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C91DCD17B7A80D500872E1C81EB9305F1F3B513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674502   (38187) от 05.11.2024
-
-Nightmare (France) - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nightmare - французская пауэр-метал группа из Гренобля, основана в 1979 году.2001 - Cosmovision
-2003 - Silent Room
-2005 - The Dominion Gate
-2007 - Genetic DisorderЖанр: Heavy/Power MetalПродолжительность: 09:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A8A59EA31FFF7DF07ADCB267D11E1E33028810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758961   (38178) от 05.11.2024
-
-Chuck Ragan - Love & Lore (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All In (3:54)
-02. Wild In Our Ways (4:09)
-03. Northern World (3:53)
-04. Echo The Halls (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69409426A13FAB7F6A0050D172299F8DA3A59D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758911   (38176) от 05.11.2024
-
-Tribulation - Sub Rosa In AEternum (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Dark metal, Gothic metal, Death metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Unrelenting Choir (2:52)
-02. Tainted Skies (3:51)
-03. Saturn Coming Down (5:59)
-04. Hungry Waters (5:22)(   Читать дальше...   )Жанр: Dark metal, Gothic metal, Death metalПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8BBC9EE2CC23B46BFABB796E98D34F2FA4941CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758968   (38175) от 05.11.2024
-
-Billy Jeter - Delta Traces (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby Rush - Hambone Stomp (3:04)
-02. Rose's Shack (3:32)
-03. Detroit Johnny - Ballad of Goosie Willie (3:55)
-04. Haywood House (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8EB5FFE5992D7655664609BA3870356DE322659
 ```
 
 https://mybot314.ru/tekegram_catalog/

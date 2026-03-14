@@ -1,3 +1,30 @@
+###  Публикация: 1604314   (1045435) от 13.01.2023
+
+File Juicer 4.98 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045435.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Juicer - уникальная утилита, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
+File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2023Разработчик: © 2005-2022 Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32119FDD06933C63248D77B1E3C2A1EBB865DB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604260   (1045432) от 13.01.2023
 
 PhotoMill X 2.3.0 [En]
@@ -654,35 +681,6 @@ Principle — приложение для Mac OS, которое позволя�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11142D8D982CBF32CB8F122E5838D7F62270AF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604484   (1045319) от 14.01.2023
-
-Depeche Mode - A Broken Frame (1982) Reissue, Remastered, 2006, Mute [OGG Vorbis|420 Kbps] <Electronic, Synth-pop, Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave In Silence
-02. My Secret Garden
-03. Monument
-04. Nothing To Fear!(   Читать дальше...   )Жанр: Electronic, Synth-pop, PopПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35AF9E1A11DB5A4A928331EB9E0B55BF3FD09D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

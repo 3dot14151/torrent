@@ -1,3 +1,36 @@
+###  Публикация: 358121   (582110) от 06.07.2011
+
+Braindeadz - Born From Damnation (2011) [MP3|320 kbps]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 White Death 2:08
+02 Sedated 2:48
+03 War, Hate, Greed 4:41
+04 Born From Damnation 5:40
+05 Lies After Lies 5:14
+06 Dead Visions 3:55
+07 Murdered By Insanity 4:52
+08 Demonize Your Core 4:26Жанр: Thrash MetalПродолжительность: 00:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECE3F7768D90DBD93F1C7BB1545EA097634B13D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359136   (582067) от 06.07.2011
 
 StoneLake - Marching On Timeless Tales (2011) [MP3|320 kbps]<Heavy metal>
@@ -754,35 +787,6 @@ Wintersun - The Forest Seasons (2017) [MP3|320 Kbps] <Epic Metal, Melodic Death 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6E1BD94B399E408244E0C89AA36677B465EEB54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921251   (571868) от 27.07.2015
-
-I Spit Ashes - 99942 (2015) [MP3|320 кб/с]<Modern Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Apophis King
-2. Of Venus And Mars
-3. Astronaut
-4. The Fourth Kind(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3DDA1F567A98480B7DB7EA806AB126860897AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

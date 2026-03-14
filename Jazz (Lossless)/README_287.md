@@ -1,3 +1,90 @@
+###  Публикация: 1433910   (154961) от 22.12.2020
+
+Lula Galvao - Alegria de viver (2019) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maracangalha (Caymmi) - 3:26
+02. Ceu e mar (Alf) - 3:31
+03. Radames y Pele (Jobim) - 5:30
+04. Zanzibar (Lobo) - 3:09(   Читать дальше...   )Жанр: Latin Jazz, Bossa NovaПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABE7B7662C7B1833A0129FE324FFD32ADB55173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085161   (154931) от 23.12.2016
+
+Олег Гараев - The Road (2016) [FLAC|Lossless|tracks] <Cinematic, Jazz, Instrumental, Soundtrack>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture
+02. Cinematic Ballad
+03. Nu Jazz
+04. The Road(   Читать дальше...   )Жанр: Cinematic, Jazz, Instrumental, SoundtrackПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487F5D7FC110807A477CF3CF8844DAABAFD0E27F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085831   (154903) от 23.12.2016
+
+John Coltrane - Blue Train (1957) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blue Train [10:44]
+ 02.Moment's Notice [09:11]
+ 03.Locomotion [07:15]
+ 04.I'm Old Fashioned [07:59](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D24C9029E54402E48E1D3D303C6C33855AB068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084860   (154840) от 23.12.2016
 
 Santiago Lara - Flamenco Tribute To Pat Metheny (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Latin, Folk>
@@ -658,93 +745,6 @@ CD01 -  Duet (Doris Day & Andre Previn):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5813E3E79F7581BB44529C1F4E9B47DA4AACE03C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347316   (154014) от 22.12.2019
-
-V.A. - Radiohead In Jazz (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jamie Cullum, Geoff Gascoyne, Sebastian de Krom - High and Dry
-02. Yaron Herman Trio - No Surprises
-03. Richard Cheese - Creep
-04. Flunk - Karma Police(   Читать дальше...   )Жанр: Fusion, Big BandПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7B643BEE9AE6007387DBF8013A9FD84F88120B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347311   (153925) от 22.12.2019
-
-Tape Five - The Roaring 2020s (2019) [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Party like its 1929
-02. Ballroom Troopers
-03. The Cats Pyjamas
-04. Boheme Supreme(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B560C9614A0533CC5BE4E7B60D24851F3417170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434100   (153602) от 23.12.2020
-
-Trijntje Oosterhuis & Jazz Orchestra Of The Concertgebouw - Wonderful Christmastime (2020) Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's the Most Wonderful Time of the Year [3:33]
-02. Wonderful Christmastime (feat. Candy Dulfer) [4:46]
-03. Someday at Christmas (duet with Jeangu Macrooy) [4:11]
-04. Santa Claus Is Coming to Town [4:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE948C56962DB896883A13F6FE78D724B12C6651
 ```
 
 https://mybot314.ru/tekegram_catalog/

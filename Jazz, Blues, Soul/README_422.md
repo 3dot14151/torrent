@@ -1,3 +1,174 @@
+###  Публикация: 1616093   (206210) от 28.02.2023
+
+Nina Simone - Great Women Of Song: Nina Simone (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feeling Good
+02. I Put A Spell On You
+03. Don't Let Me Be Misunderstood
+04. Ne Me Quitte Pas(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, BluesПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36532BC3C6A55456DAE5B59FCAA449A056AAC672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156484   (206073) от 12.10.2022
+
+Anthony Gomes - Discography: 15 albums, 16CD (1997-2022) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский гитарист и певец Энтони Гомес (Anthony Gomes) родился в 1975 в в Торонто. Признанный критиками исполнитель, возглавляющий чарты, играет в стиле современного электрического блюза, включающего элементы рока, соула, R&B и кантри. После выхода его дебютного альбома Blues in Technicolor в 1998 году он начал гастролировать по Соединенным Штатам и Канаде и (   Читать дальше...   )--------------------------
+
+01. Painted Horse (3:45)
+02. Fur Covered Handcuffs (3:24)(   Читать дальше...   )Жанр: Blues Rock |Продолжительность: 12:05:27 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993E47CB83D3E7AB4F59F0FEF73CDC9F16530E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423884   (205821) от 27.10.2025
+
+Katie Melua - Album No.8 (2020) Deluxe Edition [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_205821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Love Like That
+02. English Manner
+03. Leaving The Mountain
+04. Joy(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0A592C7D0A86A90EBD93A57EBA8BD01FB1AC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654283   (205788) от 20.08.2023
+
+Roger Waters & François Myrand - Money (Lounge Version) (2023) feat. Richard St-Aubin, Gary Lindner & Tour-du-Lac [FLAC|24/48|tracks|WEB-DL] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MONEY (Lounge Version)Жанр: JazzПродолжительность: 00:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D040A359997FEBF1F924B25154C7A3E69861970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830911   (205783) от 27.10.2025
+
+VA - Roaring Halloween (Electro Swing 4) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Offbeat - Welcome to the Wolf Den (3:19)
+02.  Ashley Slater - Spooky Scary Skeletons (Hyper Swing Flip) (2:27)
+03.  Retronic - Dance in the Dark (2:42)
+04.  Duke Skellington - Halloween Day (3:04)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3738C6360CF9F0C8416A38B1879E7599E21E0A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830791   (205630) от 27.10.2025
+
+Willie Phoenix - Flower Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Across The Darkland (3:51)
+02.  Peace Love 2 U (4:07)
+03.  Honey's Drippin' (4:16)
+04.  Children Of The Times (3:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D665FF16DF837E527DE58F716349B236C4CAAE14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830793   (205628) от 27.10.2025
 
 Atua Blues - Two Roots (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +742,6 @@ Joe Bonamassa - Road To Redemption (2022) EP [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE720DD77E2242EA03A13ED30C7F37E482BA7792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654980   (204728) от 23.08.2023
-
-Mohini Dey - Mohini Dey (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In-N-Out [00:04:45]
-02. Introverted Soul [00:05:28]
-03. Bombay Bong [00:05:44]
-04. Meat Eater [00:05:18](   Читать дальше...   )Жанр: Jazz RockПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43198C1F15E44CEE19200FCB7261417040FF4687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655115   (204643) от 24.08.2023
-
-The Greatest Show On Earth - Horizons (1970) Reissue, 1994, Repertoire Records [FLAC|Lossless|image + .cue] <Blues Rock, Psychedelic Rock, Prog Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunflower Morning
-02. Angelina
-03. Skylight Man
-04. Day Of The Lady(   Читать дальше...   )Жанр: Blues Rock, Psychedelic Rock, Prog RockПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6262D982D01826EF7B6AD666F642D2DAE8C82CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655060   (204610) от 24.08.2023
-
-Sonny Criss - Rockin' In Rhythm (1968) 1999, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eleanor Rigby [5:38]
-02. When The Sun Comes Out [6:32]
-03. Sonnymoon For Two [4:56]
-04. Rockin' In Rhythm [4:45](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900F07AE467CD85A478534CAC2C6E462F47621C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655489   (204319) от 26.08.2023
-
-V.A. - Magic Moments 16 (In the Spirit of Jazz) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nils Landgren - Chapter II
-02. Peter Somuah - Reincarnation
-03. Jakob Manz - Wade in the Water
-04. Matthieu Saglio - Irta(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DF1B37A2601FC3E9C7E5F84E382F199FF9CD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655367   (204290) от 26.08.2023
-
-Marvin Gaye - Let's Get It On (1978) 5CD, Deluxe Edition, 2023, Motown [MP3|320 Kbps] <Soul, Funk, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Get It On [00:04:53]
-02. Please Don’t Stay (Once You Go Away) [00:03:31]
-03. If I Should Die Tonight (Unedited Version) [00:04:01]
-04. Keep Gettin' It On [00:03:10](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 5 CD, 02:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDB24EC104D138B7F892BD1A05A5FEF6342BFBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655425   (204207) от 26.08.2023
-
-Oscar Pettiford & Vinnie Burke - Bass by Pettiford / Burke (1955) 1999, Bethlehem [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sextette [2:56]
-02. Golden Touch [2:33]
-03. Cable Car [2:21]
-04. Tricrotism [2:42](   Читать дальше...   )Жанр: BopПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36961AA420544530CBA8FBC89C1BFA57DD09B46C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1128329   (728908) от 24.04.2017
+
+Mel Torme - Mel Torme's Finest Hour (2001) Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Stranger In Town [03:01]
+02. The Christmas Song [03:08]
+03. Mountain Greenery [02:23]
+04. The Hut Sut Song [02:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF341FA430E1D26334B8770CCAE40ECA8742B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128326   (728906) от 24.04.2017
+
+Sidney Bechet, Claude Luter, Andre Reweliotty - Bechet Souvenirs (1951, 1952) 2017, Sony Music [FLAC|Lossless|image + .cue] <Dixieland, Revival>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kansas City Man Blues [03:43]
+02. Of All the Wrongs You've Done to Me [03:23]
+03. Apex Blues [03:08]
+04. Together [03:05](   Читать дальше...   )Жанр: Dixieland, RevivalПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8A55BE89D9ECDFC5C2E358A17B3CA9A38FB199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128333   (728904) от 24.04.2017
+
+Erroll Garner - Ready Take One (1967 - 1971) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Wire [03:48]
+02. I Want to Be Happy [03:01]
+03. I'm Confessin' (That I Love You) [05:03]
+04. Sunny [03:20](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F747D1A2709D1BE3FDDBF08B8A494A446CFD79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128433   (728889) от 24.04.2017
+
+JvT Band - Old Love (2011) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My Soul  (04:34) 
+02.  Crosscut Saw  (04:38) 
+03.  Old Love  (07:12) 
+04.  Tell Me Why  (06:39) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B27C89A82BD94016E449D5CFC32E8D149942104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284334   (728868) от 21.02.2019
+
+VA - Slow Soul: Bedroom Jams (2019) [MP3|320 Kbps] <Soul, Disco, RnB>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tevin Campbell - Tell Me What You Want Me To Do 4:16
+02. Keith Sweat - Come Into My Bedroom 5:26
+03. Teddy Pendergrass - Love Is The Power 6:17
+04. Miki Howard - Come Share My Love 4:47(   Читать дальше...   )Жанр: Soul, Disco, RnBПродолжительность: 01:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B491CE1ABE00D0D6F30AA7E196B5497845121FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022382   (728822) от 02.06.2016
+
+Tony Joe White - The Very Best (1995) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beach Life 5:11
+02. I Want to Be With You 4:55
+03. Ain`t Going Down This Time 5:13
+04. Like Placid Blues 5:22(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C623C48185FE24EAF0DC50BFBE91584A037135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530448   (728806) от 11.02.2022
 
 Big Al and the Heavyweights - Love One Another (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,177 +745,6 @@ The Monty Alexander Trio - Full Steam Ahead (1985) 2000, ООО "Галакти�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52DF05AED776702091AF06252BB8A6DA7E373ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128624   (727660) от 25.04.2017
-
-Magnus Berg - Cut Me Loose (2014) [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cut Me Loose  (05:01) 
-02.  One Way To Please You  (04:29) 
-03.  Drifting  (03:47) 
-04.  When You Leave Me  (06:56) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD9DF2F3F40AE364084FC40D9DF4FD96A28FA4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020889   (727591) от 03.06.2016
-
-Ana Popovic - Trilogy (2016) 3CD [MP3|320 кб/с] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Coat of Paint 3:25
-02. Waiting on You 4:30
-03. In a Sentimental Mood 3:37
-04. Old Country 3:44(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38521F7DB26E5806FC247768CDE500D667C0ACF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128460   (727447) от 25.04.2017
-
-VA - Jazz Covers Playlist (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Keast — The Girl from Ipanema
-02. Nora & Will — Valerie
-03. Larkster Quartet — Take Five — Alternative Take
-04. Meg Birch — Crazy — Larkster Mix(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6CFF4E71630269E6833BD69062792DF1FE3A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128625   (727429) от 25.04.2017
-
-VA - Electro Swing Elite Compilation 2016 (Radio Edits) (2017) [MP3|320 Kbps] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Lohr - Still Can Kiss... (Radio Edit) (3:47)
-02. Jazzotron - Ain't No Man (Radio Edit) (3:34)
-03. Extra Medium - Mental Note (Radio Edit) (3:33)
-04. Sound Nomaden - Locomotive Swing (Radio Edit) (3:42)(   Читать дальше...   )Производство: Ton Liebt KlangЖанр: Jazz, Electro SwingПродолжительность: 01:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CECE5D1C3204B8CE34EFA0B1378D716097AC3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326266   (727252) от 20.04.2011
-
-Paul Anka - Greatest Hits CD1 + CD2(2009) [MP3|320 kbps]<Pop, Jazz, Rock'n'Roll, General Pop Vocal>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727252.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1. Time After Time (4:01)
-2. It's My Life (4:01)
-3. Wonderwall (3:35)(   Читать дальше...   )Жанр: Pop, Jazz, Rock'n'Roll, General Pop VocalПродолжительность: 02:34:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667782   (726856) от 13.06.2013
-
-VA - Kuschel Jazz Vol.1 - 7 (2002-2010) [MP3|320 кб/с]<Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, Smooth Jazz |Продолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17B5441E5F0F31436A1BCD70008219C7FAFEC40
 ```
 
 https://mybot314.ru/tekegram_catalog/

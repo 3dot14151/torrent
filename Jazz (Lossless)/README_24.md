@@ -1,3 +1,32 @@
+###  Публикация: 1356369   (979126) от 30.01.2020
+
+Brian Culbertson - Winter Stories (2019) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sitting By The Fire
+02. Montana Skies
+03. Morning Walk
+04. Flurries(   Читать дальше...   )Жанр: Contemporary Jazz, Smooth JazzПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97759404F2260D3EB0FA5993D0044AE4B3E4FB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356371   (979023) от 30.01.2020
 
 Spyro Gyra - Vinyl Tap (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Smooth Jazz>
@@ -733,35 +762,6 @@ Johnny Griffin & Dexter Gordon - Jazz Undulation (1968) Remaster, 2014,Studio So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C6D55FDCB02DE3ED14C573BA0413FE31D75906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357407   (974392) от 03.02.2020
-
-Manny Albam - Four Classic Albums 1955 - 1957 (2015) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974392.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Anything Goes [3:47]
-02. Headstrong [2:24]
-03. Black Bottom [3:42](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 02:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A141B61D2443A8C871058FFA737443DBB3F419
 ```
 
 https://mybot314.ru/tekegram_catalog/

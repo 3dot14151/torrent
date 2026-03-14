@@ -1,3 +1,32 @@
+###  Публикация: 1738259   (48637) от 28.07.2024
+
+VA - Ностальгия 8 NNM-Remix (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ассорти - Красивая любовь (Silver Ace Radio Edit) (1:46)
+02. Мурат Насыров - Мальчик хочет в Тамбов (Silver Ace Radio Edit) (2:10)
+03. Наталья Ветлицкая - Посмотри в глаза (Vadim Adamov & Hardphol Remix) (Radio Edit) (2:14)
+04. Андрей Губин - Зима-холода (Dj Lover Radio Rework) (2:54)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C07515F356EF3F2AC74EB192F1097BB4B5AA69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739888   (48364) от 30.07.2024
 
 VA - Music News For Forum vol.006 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Music News For Forum vol.023 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C24B28E32A800BCF77F8DE21325AF4AB059C5C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750317   (43037) от 19.09.2024
-
-VA - Music News For Forum vol.024 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43037.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Диана Астер - Больная любовь (01:46)
- 002. Brandon Stone - Ты целая Вселенная (03:00)
- 003. Carine - Nobody Like Us (02:21)
- 004. Cheat Codes feat. Julia Church - Modern Tragedy (03:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649F16CF14991B56492C764425BA86DCC17BE1FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

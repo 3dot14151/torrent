@@ -1,3 +1,32 @@
+###  Публикация: 1830388   (202486) от 26.10.2025
+
+VA - CarMusic 3 for lady (2025) [MP3|320 Kbps] <Pop, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Deenay - Wanna Be Your Lover - Extended Mix (5:19)
+02. ISEEDAWNTHERE, Enzo Calabria - Afraid of the dark (4:22)
+03. Nick Proof - Apart (4:13)
+04. Young Deenay - I Wannabe Your Man (4:11)(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 04:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE36418C6B3DC910CD2539AF184BE6B44F1FACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830037   (202411) от 26.10.2025
 
 VA - Music News For Forum vol.142 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Club&Dance Весенние Треки 2023 Remix NNM [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2CEA325A5DE843847D6579E5EA34D254552BCED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630359   (199125) от 30.04.2023
-
-VA - ЕвроХит Топ 40 Europa Plus 28.04.2023 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tove Lo - Borderline (3:13)
-02. The Future X - This Kind Of Love (2:50)
-03. Maneskin feat. Tom Morello - Gossip (2:48)
-04. Tiesto - Lay Low (2:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9544A0016631628E9FA7206A1089D31D4AF93226
 ```
 
 https://mybot314.ru/tekegram_catalog/

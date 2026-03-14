@@ -1,3 +1,151 @@
+###  Публикация: 940763   (464462) от 26.09.2015
+
+Benjamin Richter - The Grand Momentum (2015) [FLAC|Lossless]<Piano, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Grand Momentum (4:07)
+02. Hollow Life (4:04)
+03. Enjoy the Silence Sonata (4:16)
+04. Piano Morte (4:02)(   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342F4ED0E4E25EA8ECFBC95EA7E884FB7E660C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548966   (464364) от 19.09.2012
+
+VA - 20 Золотых Уличных Мелодий (2000) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мама, я летчика люблю
+02. Ночная атака
+03. Я, Шура, ребенок нежный
+04. Друзья, купите папиросы
+05. Рио-Рита
+06. Увяли розы
+07. У Черного моря
+08. Бабье лето (Владимир Высоцкий)
+09. Голубые глаза
+10. Чижик-пыжик(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EAC2D256C4FA066B2468AC815F699A264A056F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548961   (464362) от 19.09.2012
+
+Joel Nielsen - Black Mesa Source Soundtrack (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49FF2007F203724193D6D550894766B9E023C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058890   (464044) от 03.10.2016
+
+Patrick Watson - The 9th Life of Louis Drax / Девятая жизнь Луи Дракса (2016) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Drax
+02. Helicopter0
+03. Clouds
+04. The Red Dress(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE60D8B8667E179C3CB140251843D62501D80BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058835   (464024) от 03.10.2016
+
+Oliver Scheffner - Ambient Dream Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under the Rainbow
+02. Summer Night of Starfalls
+03. Fly to the Dream
+04. Forest of Sprites(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D7D09D0F2796CC162C83B9B42583CE0AAF49DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161968   (463649) от 30.08.2017
 
 Jules Calmer - Deserted Paradise (2017) [MP3|320 Kbps] <Ambient, New Age, Downtempo>
@@ -605,151 +753,6 @@ CD3: Этот Прекрасный МирЖанр: Instrumental, Easy Listening,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B0B432F29EEBAA58DEA365D3775A6F3562341A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407885   (455439) от 12.09.2020
-
-Garmarna - сборник, 7 альбомов (1993-2016) [FLAC|Lossless|tracks] <Folk, Folk rock, Synth folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455439.jpg" />
-</div>
-
-
-###  Подробнее
-
-1993 - Garmarna (1993 EP original)
-1993 - Garmarna (2001 Re-Release)
-1994 - Vittrad
-1996 - Guds speleman(   Читать дальше...   )Жанр: Folk, Folk rock, Synth folkПродолжительность: 06:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604CEEE4114EEB899A49EC4978238AAF39C46B77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247134   (454415) от 14.09.2018
-
-Jean-Michel Jarre - Planet Jarre (Deluxe Version) (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New-Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454415.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Oxygene, Pt. 1
-02. Oxygene, Pt. 19
-03. First Rendez Vous(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 02:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C5E77BE5627E1403B6880EC280229565F91BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942381   (453984) от 01.10.2015
-
-Nicklas Schmidt - Ronal Barbaren (2011) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trond Clementsen & Mads Storm - Barbarian Rhapsody
-02. The City of Prague Philharmonic Orchestra - Legend of Kron
-03. The City of Prague Philharmonic Orchestra - Barbarian Theme
-04. The City of Prague Philharmonic Orchestra - King of the Volcano(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561BE66258017FAF326DEA61941D07A6DA9470C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942740   (453911) от 01.10.2015
-
-VA - Music Selection for the Best Macrobiotic Restaurants (2015) [MP3|320 кб/с]<New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alessandro Boriani - Roiol
-02. Claudio Agostini & Cesare Ferioli - Flock of Seagulls
-03. Giacomo Bondi - Field of Dreams
-04. Cristiano Heredia - Love Me Now(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4160BCC28CD775F110941C33A77C5C49D7618A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568851   (453497) от 12.08.2022
-
-Slavik...Kemmler - Close To Heaven (1998) [OGG|485 Kbps] <New Age, Tribal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indian Spirits               	3:30
-02. Close To Heaven            	3:49
-03. Can You Heal Me?         	4:18
-04. Believe In Your Dreams!	4:04(   Читать дальше...   )Жанр: New Age, TribalПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574A3FFC11787C1B88272D3338BBD23369621442
 ```
 
 https://mybot314.ru/tekegram_catalog/

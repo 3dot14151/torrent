@@ -1,3 +1,32 @@
+###  Публикация: 1473952   (1013382) от 31.05.2021
+
+VA - Billboard - Hot Dance & Electronic Songs (08-May-2021) [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travis Scott, HVME - Goosebumps (Remix)
+02. Tiesto - The Business
+03. SAINt JHN - Roses (Imanbek Remix)
+04. Regard, Troye Sivan, Tate McRae - You(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 02:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31F1C3F21C401B067085E96D43F5BC297F0D2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474093   (1013205) от 01.06.2021
 
 Boys Don't Cry - All the Very Best (серия "Другие восьмидесятые") (2020) Compilation [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
@@ -769,41 +798,6 @@ Army of Lovers - The Best Of (1999) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1239168E50B54B3E032F85778B10EB8630FC5F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605032   (996213) от 18.01.2013
-
-Night Works - Urban Heat Island (2013) [MP3|320 кб/с]<Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys Born in Confident Times
-02. Modern European
-03. Lifeline
-04. Nathaniel
-05. Armajaro
-06. I Tried So Hard
-07. The Eveningtime
-08. Share the Weather
-09. Riches (Vocal Dub)
-10. Long Forgotten Boy(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9C9CF47E504B8CA0B8634A67D55FF5425A0360
 ```
 
 https://mybot314.ru/tekegram_catalog/

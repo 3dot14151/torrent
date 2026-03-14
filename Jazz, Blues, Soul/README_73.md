@@ -1,3 +1,61 @@
+###  Публикация: 989749   (915890) от 23.02.2016
+
+Matthieu Bore - Naked Song (2015) Bonsan Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lonely At The Top [02:58]
+ 02.Allegreto [00:30]
+ 03.I'm Putting All My Eggs In One Basket [03:08]
+ 04.Police On My Back [02:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F26B8B8B17EF34E6BBC5CF30C14FB4632C1A9E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989746   (915885) от 23.02.2016
+
+Jimmy Smith - Rockin' The Boat (1963) 1994, Blue Note[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When My Dreamboat Comes Home [07:32]
+ 02.Pork Chop [07:41]
+ 03.Matilda, Matilda! [03:03]
+ 04.Can Heat [05:28](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4088D98BB4D84A3DA8D293F0C3EEB5FB9D8382A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367601   (915811) от 16.03.2020
 
 Marcus Shelby Orchestra - Transitions (2019) Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -687,64 +745,6 @@ Sir Oliver Mally Group - Tryin' to Get By (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E944D06F684D8B9EAA6C18E65E2F161662C6463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491072   (913836) от 23.08.2021
-
-The Plunders - Speak Easy (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Cost of Low Life Livin' (3:23)
-02. I Get the Blues (3:46)
-03. Last Wave of Summer (3:38)
-04. Fallen Angels Fly (4:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B788110165FFB3A8472089DD056A6FACC6408581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491053   (913835) от 23.08.2021
-
-Los Blues Morning Singers - Winding Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winding Road (3:59)
-02. Confusion Woman (4:36)
-03. Learning to Say No (3:25)
-04. Lotto Prize (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18F7F5027DED0AADC0B1A91151A43BB8F1602D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

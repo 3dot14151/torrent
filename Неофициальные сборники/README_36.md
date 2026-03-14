@@ -1,3 +1,90 @@
+###  Публикация: 1475851   (1012011) от 09.06.2021
+
+VA - Chill House: Electro Sound Pack #294 (2021) [MP3|320 Kbps] <Chill, Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012011.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mansionair - Astronaut
+002. Turu Anasi - Baabaa
+003. Dennis Lloyd - Nevermind
+004. Luka Sambe - Fry Dimension(   Читать дальше...   )Жанр: Chill, Deep House, ElectroПродолжительность: 08:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A749AD2810F56032FD78156034ED6ECD6B8BFC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475952   (1011972) от 09.06.2021
+
+VA - Evrybody Clap: Disco Party (Vol.03) (2021) [MP3|320 Kbps] <Disco, Dance, Remixes>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011972.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michael Rimini - Walking In The Sky
+002. Love Doves - Drive
+003. Jaime Lynn - You Aint Got No Money
+004. Rudy's Midnight Machine - Shy Smile(   Читать дальше...   )Жанр: Disco, Dance, RemixesПродолжительность: 09:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2609347332D944C036D7D114A539AC97693594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476441   (1011642) от 11.06.2021
+
+VA - Music News vol.107 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Наргиз - Зачем Ты Так (04:12)
+ 002. Agunda feat. Тайпан - Битмейкер (02:09)
+ 003. AKTRU - Влюбился (02:39)
+ 004. Alan Walker & Imanbek - Sweet Dreams (02:19)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4272B821BD6146C0604405529DBDCF739230D958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476691   (1011534) от 12.06.2021
 
 VA - Mass In The Catacomb (2021) [MP3|320 Kbps] <Hard Rock, Metal>
@@ -658,93 +745,6 @@ VA - Music Collection Vol.5 (2020) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1342F0E478810F2D9F6CE1F1DF0BBBA274EAA95F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478629   (1010116) от 20.06.2021
-
-VA - Golden Songs 80s (2021) [MP3|320 Kbps] <Pop, Rock, Disco, Retro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010116.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Levert - Casanova
-002. Debarge - Rhythm Of The Night
-003. Duran Duran - Hungry Like The Wolf
-004. Rod Stewart - Young Turks(   Читать дальше...   )Жанр: Pop, Rock, Disco, RetroПродолжительность: 08:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1B9D1858EB6C4E50C96E83A44C92741BCDB3E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478441   (1010107) от 20.06.2021
-
-VA - Music News vol.109 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вера Брежнева - Розовый Дым (03:27)
- 002. Aisha - Выдуманы (03:45)
- 003. Юлия Пушман - Эй, Бой (02:20)
- 004. Alice Change - Никому (04:02)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90639832DB9D63F45A533E2BEC9797B0C6DAD78C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478639   (1010095) от 20.06.2021
-
-VA - All Stars Of Vocal Trance (2021) [MP3|320 Kbps] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010095.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andy Cain - Try To Understand
-002. Mystic Experience - Light Up The Night
-003. Last Soldier & Vahid Ghandizadeh - Find Myself
-004. Raz Nitzan & Kate Louise Smith - This Time(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 07:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:869BFBB351A490F4B13CB1A67F4205BF945B6E78
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1257542   (342912) от 27.10.2018
+
+Twenty One Pilots - Trench (2018) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumpsuit (03:58)
+02. Levitate (02:26)
+03. Morph (04:18)
+04. My Blood (03:49)(   Читать дальше...   )Жанр: Hip Hop, Rock, PopПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E763F0F3424232CCA6AF99609FC3CBA9E699423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073791   (342671) от 17.11.2016
+
+Bad Suns - Disappear Here (2016) [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disappear Here
+02. Heartbreaker
+03. Off She Goes
+04. Love Like Revenge(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFE04722D3790A4BE8E7AF8EA2F1503531F297D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258081   (341442) от 28.10.2018
+
+Less Than Jake - Pezcore (1995) 2008, Reissue [FLAC|Lossless|tracks + .cue] <Rock, Ska, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquor Store (02:44)
+02. My Very Own Flag (02:47)
+03. Johnny Quest Thinks We're Sellouts (02:55)
+04. Big (03:04)(   Читать дальше...   )Жанр: Rock, Ska, PunkПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32C4C8721A69C03816A66E131A0240CDD046907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330382   (341393) от 10.10.2019
 
 Elbow - Giants of All Sizes (2019) [FLAC|Lossless|tracks] <Britpop, Alternative Rock, Indie Rock>
@@ -658,93 +745,6 @@ The Wallflowers - Breach (2000) [FLAC|tracks+.cue]<Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A0FEA293278E8EB05CFC9CB9ECB7AB5401E41FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582225   (324685) от 08.10.2022
-
-Get The Shot - Merciless Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultimate Warfare (02:05)
-02. Seeds of Dissension (03:53)
-03. Survival Denied (04:15)
-04. Deathbound (feat. Rob Watson of Lionheart) (04:39)(   Читать дальше...   )Жанр: Hardcore, Thrash MetalПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B3CFA9985E0D87E2237F17BE866EDC38C9F80E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582209   (324592) от 08.10.2022
-
-I Drink My Coffee Alone - Nichts (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimental Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die drei Brüder [00:02:56]
-02. Alles [00:04:29]
-03. Adam's Alltag [00:05:14]
-04. Mivina [00:03:39](   Читать дальше...   )Жанр: Experimental DeathcoreПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CBA610DC7845D30B434E112901C852C1D6972D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582278   (323596) от 09.10.2022
-
-Resist The Ocean - 3 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening [00:01:23]
-02. In Death We Are Equal [00:03:56]
-03. Deadweight [00:03:08]
-04. Umbra [00:04:58](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2508970718243394AB5560CAFF99A16FFB745C5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

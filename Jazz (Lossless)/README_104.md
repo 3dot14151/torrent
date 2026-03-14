@@ -1,3 +1,90 @@
+###  Публикация: 1026767   (702518) от 16.06.2016
+
+Joe Lovano & Dave Douglas - Sound Prints (2015) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sound Prints [04:39]
+ 02.Sprints [13:59]
+ 03.Destination Unknown [08:33]
+ 04.To Sail Beyond The Sunset [10:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00673B36A5C67DFA1D5CE9E15EDCD6AC8E51694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220697   (702457) от 20.04.2018
+
+Rosemary Clooney - Eight Classic Albums (1955 - 1961) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702457.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. You'll Never Know [03:08]
+02. On The Atchison, Topeka And The Santa Fe [02:34]
+03. Buby [02:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 04:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A10CB2617F33E059790BE3ECABA11FB5D8D6680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026676   (702439) от 16.06.2016
+
+Brian Melvin featuring Jaco Pastorius - Night Food (1985) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ain't Nothin' But A Party [01:49]
+ 02.Don't Forget The Bass [04:48]
+ 03.Night Food [02:55]
+ 04.Zen Turtles [05:31](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977D006844935E4ACB8DF677F44CFE5549FE2560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287689   (701975) от 08.03.2019
 
 Renee Rosnes - Art & Soul (1999) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -659,93 +746,6 @@ Oscar Pettiford Sextet (1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F45EBC89606A5228F6D164D39876F77767F64A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221059   (698808) от 22.04.2018
-
-Curtis Fuller Jazztet with Benny Golson (1959) 1991, Savoy Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's All Right With Me [07:39]
-02. Wheatleith Hall [14:06]
-03. I'll Walk Alone [06:57]
-04. Arabia [06:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FEC85F9F1D62E4D1162D73A40D0CFC3E38F52D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220514   (698804) от 22.04.2018
-
-Eddie South - 1937 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiddle Blues [02:47]
-02. Interpretation Swing Du Premier Mouvement Du Concerto En Re Mineur De Jean-Sebastien Bach - Part 2 [03:23]
-03. Honeysuckle Rose [03:06]
-04. On The Sunny Side Of The Street [03:03](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D5CA6691E541BA5D9B345957C7E8EE6960D480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220859   (698716) от 22.04.2018
-
-Miles Davis - Plays For Lovers (2012) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is No Greater Love
-02. Something That I Dreamed Last Night
-03. That Old Devil Moon
-04. You Don't Know What Love Is(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F7FA8ADC41FFA38BF2AFAE30976574B0B907D22
 ```
 
 https://mybot314.ru/tekegram_catalog/

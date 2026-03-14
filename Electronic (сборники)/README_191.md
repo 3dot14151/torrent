@@ -1,3 +1,29 @@
+###  Публикация: 966312   (220805) от 17.12.2015
+
+VA - PromoDJ Top 100 Remix (2015) [MP3|224-320 кб/с] <Club house, Vocal house, Dutch house, Progressive house, Progressive trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZHU - Faded (Feel Vocal Remix)Жанр: Club house, Vocal house, Dutch house, Progressive house, Progressive tranceПродолжительность: 08:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA5DB52730C4D917BE68F000C66A1DDD444B03B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343127   (220226) от 05.12.2019
 
 VA - Madjestic Drum And Bass (2019) [MP3|320 Kbps] <Drum And Bass>
@@ -722,35 +748,6 @@ VA - DeepEmotions - CarDubstep Vol.11 (2012) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDB97138B9DA96DB5C2C4A69DB134AB95B5318CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343375   (218602) от 06.12.2019
-
-VA - Beatport Electro House December Pack #01 (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218602.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Milf Hunter - Nuclear
-002. Big Bunny - Life Is Good
-003. Jeffrey Goldstar - Real (Original Mix)
-004. Steve Jameson - Break It Down(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F307EC2040D045BE04B2F45E961A0F90B433DBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1446944   (1032343) от 11.02.2021
+
+Mezz Mezzrow - 1951 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mezzerola Blues [3:09]
+02. Drum Face [3:16]
+03. Blues des annees 20 [3:41]
+04. Really the Blues [4:51](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4816D3D5C52300A4439A3EF2A343705BBEA02D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446939   (1032337) от 11.02.2021
 
 Julie London - Julie...at Home (1960) 2010, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -717,35 +746,6 @@ Jazz Q - Zneni a Sneni (Znění a Snění) (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF497181A3A7653516A2AA845DE879AF44B9AE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621541   (1030969) от 25.03.2023
-
-Dean Martin - BD Voices: L'Histoire de Dean Martin (1944 - 1958) 2CD, 2008, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long, Long Ago [2:22]
-02. Open Up the Doghouse (Two Cats Are Coming In) [2:31]
-03. Volare (Nel blu, dipinto di blu) [3:02]
-04. Standing on the Corner [2:50](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 02:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3FC1478BC8CC2DC85756B0DF393FB132E84FC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

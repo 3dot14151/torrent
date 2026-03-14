@@ -1,344 +1,22 @@
-###  Публикация: 1849425   (1053799) от 23.01.2026
+###  Публикация: 1850623   (1054617) от 30.01.2026
 
-Marek Golebiowski | An Encyclopedia of American Culture (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053799.jpg" />
-</div>
-
-
-###  Подробнее
-
-This encyclopedia aims to provide a ready reference to various aspects of American culture. The time frame is from the colonial period to the end of the 20th century. The areas covered are fine arts (painting, sculpture, photography); performing arts (music, ballet, theatre, film); architecture; literature; and various non-artistic forms of culture (symbolic, material, (   Читать дальше...   )Жанр: Энциклопедии, Культура, АмерикаЯзык: АнглийскийИздательство: Peter Lang GmbH, Internationaler Verlag der WissenschaftenФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F23D21E0C0921CBE1623CF5E0C151D61390056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849422   (1053798) от 23.01.2026
-
-Anthony C. Thiselton | A Concise Encyclopedia of the Philosophy of Religion (2002) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Covering thinkers from Plato to Freud, offering detailed explanations of key themes such as evil, and outlining clear definitions of complex ideas like‘the doctrine of analogy,’ this is a comprehensive reference tool for all those studying, or interested in, the philosophy of religion.Жанр: Энциклопедии, РелигииЯзык: АнглийскийИздательство: Oneworld PublicationsФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CFF0340FE8C112F9C08492877F5683AAB67FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849421   (1053797) от 23.01.2026
-
-Manju Jaidka, Tej N. Dhar | The Routledge Encyclopedia of Indian Writing in English (2023) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Today, Indian writing in English is a fi eld of study that cannot be overlooked. Whereas at the turn of the 20th century, writers from India who chose to write in English were either unheeded or underrated, with time the literary world has been forced to recognize and accept their contribution to the corpus of world literatures in English. Showcasing the burgeoning (   Читать дальше...   )Жанр: Энциклопедии, История, ЛитературоведениеЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586A088F63D1EFC186DC1DEE9312B1F9726BDABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849420   (1053796) от 23.01.2026
-
-Philip M. Peek, Kwesi Yankah | African Folklore. An Encyclopedia (2004) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Written by an international team of experts, this is the first work of its kind to offer comprehensive coverage of folklore throughout the African continent. Over 300 entries provide in-depth examinations of individual African countries, ethnic groups, religious practices, artistic genres, and numerous other concepts related to folklore. Featuring original field (   Читать дальше...   )Жанр: Энциклопедии, История, Мифология, ФольклорЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54696353725CDC91CD8F8EABB496483FF29D8037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849376   (1053793) от 23.01.2026
-
-Lilia Fernández | 50 Events That Shaped Latino History. An Encyclopedia of the American Mosaic (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Which historical events were key to shaping Latino culture? This book provides coverage of the 50 most pivotal developments over 500 years that have shaped the Latino experience, offering primary sources, biographies of notable figures, and suggested readings for inquiry.
-
-Latinos—people of European, Indigenous, and African descent—have had a presence in North America (   Читать дальше...   )Жанр: Энциклопедии, Латинская АмерикаЯзык: АнглийскийИздательство: GreenwoodФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB599AFF561F7C943C4CB303642E02E7550C24EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849375   (1053792) от 23.01.2026
-
-BradyGames | Capcom 30th Anniversary Character Encyclopedia (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Established in 1983, Capcom is one of the world's most well-known video game publishers and is recognized for creating many important game franchises, such as Mega Man™, Resident Evil™, and Street Fighter™.
-Full of facts, statistics, and historical information, the Capcom 30th Anniversary Character Encyclopedia will offer any fan of Capcom's illustrious library of (   Читать дальше...   )Жанр: Энциклопедии, ИгрыЯзык: АнглийскийИздательство: DKФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502DC2AA051A9D903844AD98AF6B051B9E2A7DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849364   (1053791) от 23.01.2026
-
-Jay H. Lehr, Jack Keeley | Alternative Energy and Shale Gas Encyclopedia (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053791.jpg" />
-</div>
-
-
-###  Подробнее
-
-A comprehensive depository of all information relating to the scientific and technological aspects of Shale Gas and Alternative Energy.
-Conveniently arranged by energy type including Shale Gas, Wind, Geothermal, Solar, and Hydropower.
-Perfect first-stop reference for any scientist, engineer, or student looking for practical and applied energy information.
-Emphasizes (   Читать дальше...   )Жанр: Энциклопедии, ГидроэнергетикаЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812B47F2A176FB4CE2298F46FF19DD3211F9655F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849415   (1053777) от 23.01.2026
-
-Mathew Klickstein | The Little Encyclopedia of Jewish Culture/ 101 People, Places, Things (and Foods) Every Jew Should Know (2022) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Celebrate Jewish culture with this fun collection of facts and stories!
-
-Jewish traditions aren't just something they sing about in Fiddler on the Roof. Explore them all with this delightful book of essential Jewish foods, philosophers, pop culture, and more. It's sure to be way more satisfying than the typical encyclopedia—but probably not as exciting as finding (   Читать дальше...   )Жанр: Энциклопедии, Традиции народовЯзык: АнглийскийИздательство: CallistoФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023E9339C39F1EBCD5A28480C9050ECA8F69A217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849414   (1053776) от 23.01.2026
-
-I. McNeil | An Encyclopedia of the History of Technology (2002) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dr Johnson wrote, ‘A man may turn over half a library to make one book’. In the present case around a score of writers have turned over about as many libraries to make this Encyclopaedia. The Book of Proverbs states, ‘God hath made man upright; but they have sought out many inventions’. Whatever one may think about Charles Darwin’s ‘Descent of Man’, it is a fact (   Читать дальше...   )Жанр: Энциклопедии, История, ТехнологииЯзык: АнглийскийИздательство: Taylor & Francis e-LibraryФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756C5842B25BA20B1EF3F6ACDBC879D4BDAAF1DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849412   (1053775) от 23.01.2026
-
-William Schweiker, Maria Antonaccio, Elizabeth Bucar | Encyclopedia of Religious Ethics. 3 Volume Set (2022) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Encompassing three comprehensive volumes, the Encyclopedia of Religious Ethics introduces fundamental issues in moral inquiry, explores the world’s major moral traditions, and surveys specific moral issues across a wide range of human experiences. This landmark work defines the meaning, task, and various forms of religious ethics to guide readers through critical (   Читать дальше...   )Жанр: Энциклопедии, РелигияЯзык: АнглийскийИздательство: Wiley-BlackwellФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C88CE8B0D8C0193573551FFD23BF579AFD4DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849410   (1053773) от 23.01.2026
-
-Lucy Morrison, Staci L. Stone | A Mary Shelley Encyclopedia (2003) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frankenstein is one of the most popular classroom texts in high school and college, and Shelley's other works are attracting renewed attention. This reference is a comprehensive guide to her life and career. Included are hundreds of alphabetically arranged entries about her works, friends, relatives, residences, fictional characters, allusions, and more.
-
-Mary Shelley (   Читать дальше...   )Жанр: Энциклопедии, БиблиографииЯзык: АнглийскийИздательство: GreenwoodФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64029704CCCA1EAE8A88CACE281C5B40F56687F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849408   (1053772) от 23.01.2026
-
-Pam J. Crabtree, Peter I. Bogucki | Ancient Europe. 8000 B.C. to A.D. 1000. An Encyclopedia of the Barbarian World. 2 Volume set (2004) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053772.jpg" />
-</div>
-
-
-###  Подробнее
-
-This detailed encyclopedia is the first to explore the many peoples of early European civilization. Viewed as barbarian through the lens of ancient Greece and Rome, these civilizations were responsible for such accomplishments as the rise of farming in the Neolithic era and the building of Stonehenge. Coverage extends from prehistoric origins through the early Middle (   Читать дальше...   )Жанр: Энциклопедии, ИсторияЯзык: АнглийскийИздательство: Charles Scribner & SonsФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90597DB78F22D7275C9494673CB5FF1F3B9109B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849405   (1053771) от 23.01.2026
-
-В.Ф. Чудесенко | Сборник заданий по специальным курсам высшей математики (1983) [DJVU]
+Artur Zaporozhets | Smart Charging in Solar Microgrids. Intelligent Forecasting and Control for Sustainable Electric Mobility (Lecture Notes in Electrical Engineering. 1518) (2026) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053771.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пособие написано в соответствии с действующей программой по курсу высшей математики. Оно содержит типовые расчеты по теории функций комплексного переменного, операционному исчислению, уравнениям математической физики, теории вероятностей и математической статистике. Задачи представлены 31 вариантом. Типовые расчеты содержат также теоретические вопросы, упражнения (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+The integration of microgrids with solar generation enhances energy efficiency, stability, and sustainability. Yet, managing such systems requires advanced forecasting and optimisation models. Microgrids that unite distributed sources, storage, and intelligent control enable efficient energy use even under grid constraints. Powering electric vehicle charging stations (   Читать дальше...   )Жанр: Electrical EngineeringЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A7C44ED310EB4D806EA89D6AD14692AF3BB84E4
+magnet:?xt=urn:btih:8C2D8BF86F7483FB525EC65A9236F3C559AE7718
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,79 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849398   (1053770) от 23.01.2026
+###  Публикация: 1850819   (1054604) от 30.01.2026
 
-Mac Fulfer | Amazing Face Reading. An Illustrated Encyclopedia for Reading Faces (1996) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Face Reading is a means to a deeper communication with every person you meet. Fulfer takes this art/science out of the realm of the mysterious and into a hands-on method of learning. The most comprehensive, easy-to-use book of Face Reading available today. Amazing Face Reading is organized in an encyclopedic format and superbly illustrated. It takes you through faces, (   Читать дальше...   )Жанр: Энциклопедии, Психология, Межличностные отношенияЯзык: АнглийскийИздательство: Herveys BooklinkФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C98535D84D48A32047DEE225F9174672F8E3C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849631   (1053621) от 24.01.2026
-
-В.И. Пустовойт | Хронический стресс и его последствия. Том 1 (2025) [PDF]
+Melissa B. Miller, Andrea M. Prinzi, Kyle G. Rodino и др. | Cases in Medical Microbiology and Infectious Diseases (ASM Books). 5th Edition (2025) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053621.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый том трехтомного издания «Хронический стресс и его последствия» посвящён фундаментальным аспектам нейробиологии и патофизиологии стресс-индуцированных расстройств. В книге представлен междисциплинарный анализ, объединяющий достижения нейробиологии, психофизиологии, эндокринологии, иммунологии и клинической медицины. Особое внимание уделено эпидемиологической (   Читать дальше...   )Жанр: Здоровье, Популярно о медицинеИздательство: М.: ФМБЦФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224A2892EDBB48AE9BFBD3CDA8936736760BAAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848484   (1053589) от 24.01.2026
-
-Коллектив авторов | Материалы по русской трёхлинейной винтовке [76] (1922-1990) [DJVU, PDF, DOC, FB2, JPG]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаю уважаемому сообществу свою коллекцию книг - Памяток, Инструкций, НСД и прочих материалов, посвященных русской трехлинейной винтовке, разработанной нашим великим соотечественником, капитаном Сергеем Ивановичем Мосиным.
+Uniquely practical text teaching the skills needed for the diagnosis of infectious diseases through a case-based approach
 
-В раздачу включены многие печатные материалы, посвященные русской трехлинейке образца 1891 г., 1891/30 г., карабинам образца 1938 г. и 1944 (   Читать дальше...   )Жанр: Исторический, научно-популярныйИздательство: РазличныеФормат: DJVU, PDF, DOC, FB2, JPGКачество: Различное
+The newly revised and updated Fifth Edition of Cases in Medical Microbiology and Infectious Diseases enables students to develop a comprehensive understanding of the diverse pathogenic microorganisms that infect humans. This interactive text (   Читать дальше...   )Жанр: Viral Diseases, Communicable Diseases, MicrobiologyЯзык: АнглийскийИздательство: ASM PressФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B87AEB9E044DBB2F1BAA04261E8521EB7A65C95
+magnet:?xt=urn:btih:167E550AFF84759F95BD4ED76D1F216134345B90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,25 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849303   (1053551) от 22.01.2026
+###  Публикация: 1850453   (1054565) от 28.01.2026
 
-Дж. Ортега | Введение в параллельные и векторные методы решения линейных систем (1991) [DJVU]
+Агнесса Невская | Мистический Петербург. Самые загадочные места, где оживают легенды (2023) [PDF]
 
 >>Научная и техническая литература
->>Точные и естественные науки
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053551.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга известного американского математика, знакомого советским читателям по его совместной с В. Рейнболдтом книге "Итерационные методы решения нелинейных систем уравнений со многими неизвестными" (М.: Мир, 1975) и по совместной с У. Пулом книге "Введение в численные методы решения дифференциальных уравнений" (М.: Наука, 1986). Его новая книга (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
+Санкт-Петербург - город символов, иллюзий и скрытых смыслов. Его не зря называют музеем под открытым небом: изысканная красота дворцов, парков, храмов, памятников и доходных домов восхищает даже искушенных туристов, а легенды и тайны этих мест ежегодно пытаются разгадать миллионы гостей города. Любой музей или особняк, переулок или старый дом имеют не только официальную (   Читать дальше...   )Жанр: История, Мистика, ПутеводительИздательство: БомбораФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65F168EA3EABF5CB72D4BB65FD0CE033AC48F179
+magnet:?xt=urn:btih:F007BA45D4DAB829AF371D0531702ED9323F41B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,25 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849298   (1053550) от 22.01.2026
+###  Публикация: 1850441   (1054564) от 28.01.2026
 
-К.С. Кунц | Численный анализ (1964) [DJVU]
+Владаслав Зубок | Неудавшаяся империя. Советский Союз в холодной войне от Сталина до Горбачева (2025) [PDF, FB2, EPUB]
 
 >>Научная и техническая литература
->>Точные и естественные науки
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053550.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге описаны методы нахождения корней алгебраических уравнений n-й степени, численные методы решения обыкновенных дифференциальных уравнений, систем линейных и нелинейных алгебраических уравнений, дифференциальных уравнений в частных производных и интегральных уравнений, рассматриваются вопросы теории интерполяции, численного дифференцирования и интегрирования. (   Читать дальше...   )Жанр: МатематикаИздательство: ТехнікаФормат: DJVUКачество: Обработанный скан
+Книга «Неудавшаяся империя» о политике Советского Союза в годы холодной войны стала первой, в которой были синтезированы десятилетия исторических споров и последние находки в российских, восточноевропейских и американских архивах. Книга получила премию Маршалла Шульмана (2008). Издана в Китайской Народной Республике, а также на испанском, корейском, польском и эстонском (   Читать дальше...   )Жанр: История, политология, экономикаИздательство: АСТФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:640A13E44926A97199CB12FA22C3F8BB93E9499F
+magnet:?xt=urn:btih:46FC4FF84400D966DA61AC8C7B0F27655F5D7ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,25 +104,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849300   (1053549) от 22.01.2026
+###  Публикация: 1850429   (1054561) от 28.01.2026
 
-Дж. Ортега, У. Пул | Введение в численные методы решения дифференциальных уравнений (1986) [DJVU]
+Г.С. Ландсберг | Элементарный учебник физики. Том 1. Механика. Теплота. Молекулярная физика (2023) [PDF]
 
 >>Научная и техническая литература
->>Точные и естественные науки
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053549.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данная книга в достаточно интересной и доступной форме описывает теорию и практику применения численных методов для решения дифференциальных уравнений.Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+Один из лучших курсов элементарной физики, завоевавший огромную популярность. Достоинством курса является глубина изложения физической стороны процессов и явлений в природе и технике.
+
+Для старшеклассников и учителей общеобразовательных и средних специальных заведений, а также лиц, занимающихся самообразованием и готовящихся к поступлению в ВУЗ.Жанр: УчебникИздательство: ФИЗМАТЛИТФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:499916079555271619D7C6D8258712DE12704A81
+magnet:?xt=urn:btih:BB7633466AE9CDCEA249BC3813B5C2D9BA407EF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,51 +132,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849302   (1053548) от 22.01.2026
+###  Публикация: 1850615   (1054552) от 29.01.2026
 
-Дж. Ортега, В. Рейнбалдт | Итерационные методы решения нелинейных систем уравнений со многими неизвестными (1975) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена численным методам решения нелинейных систем уравнений. Основное внимание уделено рассмотрению итерационных методом минимизации. Дан обзор неконструктивных теорем существования. Подробно исследуются итерационные методы типа Ньютона, обобщенные линейные методы, релаксационные методы. Значительная часть книги посвящена вопросам сходимости итерационных (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BC6D0A8A9CB774FF3258A79361BFD3A4B0ABE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849248   (1053543) от 22.01.2026
-
-Donald Rizzo, Elisa Ratliff | Fundamentals of Anatomy and Physiology. 5th Edition (2026) [PDF] [EN]
+Колин Мёрфи | Как мы стареем. Наука о долголетии (2026) [FB2, PDF]
 
 >>Научная и техническая литература
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053543.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Rizzo/Ratliff's highly popular FUNDAMENTALS OF ANATOMY AND PHYSIOLOGY, 5th Edition, is written specifically for learners in a one-semester introductory anatomy and physiology course. Illustrations and practical applications cater to learners with varying levels of anatomy and physiology knowledge. Renowned for its clear approach to teaching, the text presents anatomy (   Читать дальше...   )Жанр: Анатомия, ФизиологияИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
+В мире, одержимом идеей вечной молодости, биолог Колин Мёрфи предлагает честный и реалистичный взгляд на науку о старении. Без розовых очков и спекуляций она рассказывает, какие механизмы лежат в основе процесса, куда движутся исследования и как отличить научно обоснованные практики от научно-фантастических обещаний, сохраняя здоровый оптимизм.
+
+Наше информационное (   Читать дальше...   )Жанр: Здоровье и медицинаПеревод: Т.П. МосоловаИздательство: Corpus (АСТ)Формат: FB2, PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE11D47129594E6C37A9B5EE83A544E48E8288AF
+magnet:?xt=urn:btih:5E7CA7C8C1C73D77D4F55B72962643651EB518E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,27 +160,156 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849246   (1053542) от 22.01.2026
+###  Публикация: 1850560   (1054491) от 29.01.2026
 
-Stephanie Ryan, Michelle McNicholas, Stephen J. Eustace | Anatomy for Diagnostic Imaging. 4th Edition (2024) [PDF] [EN]
+Павел Полян | Бабий Яр. Реалии (2024) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киевский овраг Бабий Яр — одна из «столиц» Холокоста, место рекордного единовременного убийства евреев, вероломно, под угрозой смерти, собранных сюда якобы для выселения. Почти 34 тысячи расстрелянных всего тогда за полтора дня — 29 и 30 сентября 1941 года — трагический рекорд, полпроцента Холокоста! Бабий Яр — это архетип расстрельного Холокоста, полигон экстерминации (   Читать дальше...   )Жанр: История, документалистикаИздательство: The Historical ExpertiseФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533C723DD06A71763C11A1BF2E6543425F655287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850614   (1054484) от 29.01.2026
+
+Abbie Headon | The Periodic Table Illustrated. A Guide to the 118 Chemical Elements (Mini Encyclopedias) (2024) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054484.jpg" />
+</div>
+
+
+###  Подробнее
+
+The periodic table provides the most convenient way of organising chemical elements by specific icons, and is widely used in chemistry and physics as a quick and easy resource for scientists and students. It provides an easy visual reference of the periodic law, which says that when elements are arranged in order of their atomic numbers, an approximate recurrence (   Читать дальше...   )Жанр: Children's Chemistry Books, General Chemistry, History & Philosophy of ScienceЯзык: АнглийскийИздательство: Amber BooksФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59491A37A3F63C6A9E429221CF9B21BB9C785D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850617   (1054483) от 29.01.2026
+
+Erico Azevedo, Jose Pissolato Filho | Information Fields Theory and Applications: Quantum Communication in Physics and Biology (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054483.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book investigates various aspects of information fields, not only theoretical, but with an additional emphasis on its applications. This book aims to provide a universal framework for understanding tempo-spatial information storage and communication in both quantum physical and biological regimes. This book is divided into two main parts: Part 1: this section (   Читать дальше...   )Жанр: ФизикаЯзык: АнглийскийИздательство: Springer-Verlag GmbHФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3884584BA317B9FC01D8B08BAD57C4DEB6724B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850622   (1054482) от 29.01.2026
+
+Michael Seeds, Dana Backman, Eric Wegryn | Foundations of Astronomy. 15th Edition. 13th Edition [2 книги] (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seeds/Backman/Wegryn’s “Foundations of Astronomy,” 15th Edition, is known for its up-to-date content, clear explanations and student-friendly approach, helping you answer two key questions: "What are we?" and "How do we know?" The first question asks how we fit into the universe's history, tracing atoms in your body back to the Big Bang and stars. (   Читать дальше...   )Жанр: Astronomy & AstrophysicsЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7518781D1BCE97B94C0A1EC6E15326E359BE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850409   (1054476) от 29.01.2026
+
+Рипол классик | Рисуем на коленке [17 книг] (2016-2017) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хочешь научиться рисовать, но не знаешь, с чего начать? Эти 10 книг помогут тебе! Серия «Рисуем на коленке» предназначена для всех, кто мечтает научиться рисовать. Книги разбиты по темам — в каждом издании собраны практические советы и схемы по изображению животных, растений, фруктов и др.
+Методы рисования, которые предлагаются в книгах, подходят для начинающих и (   Читать дальше...   )Жанр: РисованиеИздательство: Рипол классикФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A325B3F6024DD56EC4DE07439E153FAD812050BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850270   (1054471) от 29.01.2026
+
+Daniel D. Mais, Kimberly W. Sanford | Quick Compendium of Clinical Pathology. 5th edition. Self Test. 3ed [2 книги] (2023-2024) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053542.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Anatomy for Diagnostic Imaging, Fourth Edition covers everything trainee radiologists need to know about anatomy shown in the full range of medical imaging, including CT, MR and ultrasound.
-
-It provides an initial traditional anatomical description of each organ or system, followed by the radiological anatomy of that part of the body with labelled imaging examples (   Читать дальше...   )Жанр: АнатомияЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
+Considered by many in the pathology field as the essential everyday quick reference guide, the Quick Compendium of Clinical Pathology has also long been the preferred clinical pathology Board exam study guide for many residents and residency program directors. This thoroughly revised 5th Edition effectively sorts through diverse material to provide a clearly distilled (   Читать дальше...   )Жанр: МедицинаЯзык: АнглийскийИздательство: ASCPФормат: PDFКачество: Необработанный скан, Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E62FE877B594A63C69244A19C337D2B6F601142F
+magnet:?xt=urn:btih:285BE8F6B3138A7CDBE66E94F58CE7744E916A7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,27 +317,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849395   (1053516) от 22.01.2026
+###  Публикация: 1850641   (1054469) от 29.01.2026
 
-Karen Bescherer Metheny, Mary C. Beaudry | Archaeology of Food. An Encyclopedia (Two volumes in one) (2015) [EPUB] [EN]
+Yong Ching Lim, Paulo S. R. Diniz, Yih-Fang Huang | Signal Processing for Autonomous Systems (Unmanned System Technologies) (2026) [PDF] [EN]
 
 >>Научная и техническая литература
->>Энциклопедии и словари
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053516.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-What are the origins of agriculture? In what ways have technological advances related to food affected human development? How have food and foodways been used to create identity, communicate meaning, and organize society? In this highly readable, illustrated volume, archaeologists and other scholars from across the globe explore these questions and more.
-
-The Archaeology (   Читать дальше...   )Жанр: Энциклопедии, История, АрхеологияЯзык: АнглийскийИздательство: Rowman & Littlefield PublishersФормат: EPUBКачество: Изначально электронное (ebook)
+This textbook provides information about the essential technical components of building autonomous systems. The book starts by briefly covering basic principles of statistical estimation theory, an essential tool required in various steps in the implementation of autonomous systems. The book also includes technical details of the navigation systems along with their (   Читать дальше...   )Жанр: Unmanned System TechnologiesЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:476E1C5EA1EAEF5A369B6F41E6A8D9FE924AF0C6
+magnet:?xt=urn:btih:A2CE22F8E567C7496C01D4365D358BD4ABAB1F76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,25 +343,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849369   (1053512) от 22.01.2026
+###  Публикация: 1850425   (1054459) от 29.01.2026
 
-Paul Malmassari | Armoured Trains. An Illustrated Encyclopedia 1825-2016 (2016) [EPUB] [EN]
+Г. С. Ландсберг | Элементарный учебник физики. Том 3. Колебания и волны. Оптика. Атомная и ядерная физика (2021) [PDF]
 
 >>Научная и техническая литература
->>Энциклопедии и словари
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053512.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Completely revised and expanded since its French publication, Armoured Trains: An Illustrated Encyclopedia 1825-2016 is the first English-language edition of the authoritative work on the subject. Military forces around the world were quick to see the advantages of railways in warfare, whether for the rapid deployment of men or the movement of heavy equipment like (   Читать дальше...   )Жанр: Энциклопедии, ВоенноеЯзык: АнглийскийИздательство: Naval Institute PressФормат: EPUBКачество: Изначально электронное (ebook)
+Один из лучших курсов элементарной физики, завоевавший огромную популярность. Достоинством курса является глубина изложения физической стороны процессов и явлений в природе и технике.
+
+Для старшеклассников и учителей общеобразовательных и средних специальных заведений, а также лиц, занимающихся самообразованием и готовящихся к поступлению в ВУЗ.Жанр: УчебникИздательство: ФИЗМАТЛИТФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B97D81F48B7D348189DE053164E0CC64DD2ADA5
+magnet:?xt=urn:btih:31CB21BDE587C80D173DDA6F93D544FB642F17D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,25 +371,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849088   (1053455) от 21.01.2026
+###  Публикация: 1850472   (1054356) от 28.01.2026
 
-William R. Leben, Brett Kessler, Keith Denning | English Vocabulary Elements. A Course in the Structure of English Words. 3rd Edition (2023) [PDF] [EN]
+Алина Солодкова | Английский в большом городе. Как сделать язык частью жизни? Учим каждый день в своем ритме! (2026) [PDF]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053455.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-English Vocabulary Elements draws on the tools of modern linguistics to help students acquire an effective understanding of learned, specialized, and scientific vocabulary. This fully refined and updated edition helps develop familiarity with over 500 Latin and Greek word elements in English and shows how these roots are the building blocks within thousands of different (   Читать дальше...   )Жанр: Английский языкИздательство: Oxford University PressФормат: PDFКачество: Изначально электронное (ebook)
+Сформировать, развить и закрепить навыки восприятия английской речи на слух и уверенного говорения поможет именно эта книга. Материал выстроен вокруг реальной жизни и аутентичных источников: вы настраиваете «ухо» на подкастах и видео, отрабатываете произношение и интонацию через shadowing и караоке, говорите по готовым сценариям и в свободном формате, подключаете (   Читать дальше...   )Жанр: Языки, обучение, справочникИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0B1957122149C4214F1D777F0C02BC0EAF685B7
+magnet:?xt=urn:btih:6212509E36B6AF8B5495D7EBD5BC296801AACB7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,25 +397,296 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849087   (1053454) от 21.01.2026
+###  Публикация: 1850458   (1054354) от 28.01.2026
 
-Talia Swinton | English Vocabulary Mega Quiz Book. 5001 Solved Examples on Words, Meanings, and Spellings for Test Prep (2021) [PDF] [EN]
+Роджер Штерн | История мира. Год за годом от каменного до цифрового века (2025) [PDF]
 
 >>Научная и техническая литература
->>Иностранные языки (литература)
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053454.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-English Vocabulary is Social CapitalIf you want to improve or build up your word power and vocabulary in the English language, you have come to the right place. Whether you want to level up your communication skills for business purposes, for a new job, to help you pick up a new course at school or at university faster, for recreational and entertainment purposes (   Читать дальше...   )Жанр: Английский языкЯзык: АнглийскийИздательство: Independently PublishedФормат: PDFКачество: Изначально электронное (ebook)
+Если вы увлекаетесь историей и вам интересно узнать об эпохах развития человечества от каменного века до современности в понятной и удобной форме, эта иллюстрированная энциклопедия станет для вас настоящим открытием. Благодаря понятной временной шкале, вы без труда погрузитесь в ключевые события в истории мира: создание и распад величайших империй, появление значительных (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: БомбораФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:555321E43C885010CB8370D77D39A63CE09B4A6E
+magnet:?xt=urn:btih:7C63A2263D430A9E07712C6C19855FDD318D5D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850107   (1054292) от 26.01.2026
+
+Kenneth Kuttler | Real and Functional Analysis. Textbooks in Mathematics (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054292.jpg" />
+</div>
+
+
+###  Подробнее
+
+This unique book gives a manageable introduction to functional analysis and a thorough treatment of real analysis. Authored as a graduate textbook in analysis, the book could be used for a course in real analysis based on the Lebesgue theory of integration and/or a course on functional analysis.
+The author uses basic topological ideas to unify the presentation of (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Chapman and Hall/CRCФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC194F9416873602DDA2B9F1720E6F7AB7303F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850106   (1054291) от 26.01.2026
+
+Giulia Enders | Gut.The Inside Story of Our Body’s Most Underrated Organ (2026) [PDF, EPUB] [EN]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transform your understanding of the human gut: An enlightening journey through the most underrated organ with Dr. Giulia Enders' groundbreaking exploration of digestive health, microbial connections, and whole-body wellness.
+
+Discover the secrets of your digestive system—and how to hone a healthy gut—plus new research on the mind-gut connection.
+(   Читать дальше...   )Жанр: Гастроэнтерология, Макробиотика, АнатомияЯзык: АнглийскийИздательство: HarperOneФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F5F117F7192AA56C799E5BD27BD311B1C6CD08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850104   (1054289) от 26.01.2026
+
+Steven McGee | McGee's Evidence-Based Physical Diagnosis. 6th Edition (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Emphasizing the most important physical signs needed to determine an underlying condition or disease, McGee's Evidence-Based Physical Diagnosis, Sixth Edition, offers vital insight and instruction on the fundamental clinical skill of physical diagnosis. Internationally renowned author Dr. Steven McGee clearly shows how to pare down the multiple tests needed to confirm (   Читать дальше...   )Жанр: Медицина, Общая практикаЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655B5E30FC25C3DEF1D85DCEAED4EBF0E819918E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850102   (1054280) от 26.01.2026
+
+John S. Duncan, Davide Giampiccolo | MRI Neuroanatomy. Cortex, Nuclei and Connections (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054280.jpg" />
+</div>
+
+
+###  Подробнее
+
+The dogma that brain function relied on the cortex has dominated clinical neurology, neurosurgery and psychiatry for the last 100 years. Since the start of the 2000s, it has become evident that brain function is orchestrated as a network through white matter connections. This framework provides an understanding of brain function and dysfunction, and has radically (   Читать дальше...   )Жанр: Нейрохирургия, НеврологияЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C18C1E3D029111CECB17B34E46FD4F85A19F36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850214   (1054242) от 26.01.2026
+
+Руслан Назаров | Как выучить много иностранных языков? Диалектический подход (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054242.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге схема изучения для пяти языков: английский, немецкий, итальянский, французский, испанский. Отдельно — русский, если его изучает иностранец. Основа метода: научиться понимать предложение, как оно формируется, из чего состоит. Суть метода: мы усваиваем то, из чего развивается, «произрастает» язык. Элементарная «единица» предложения — это не слово, буква, а (   Читать дальше...   )Жанр: Языкознание, обучениеИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28410379CB1A2B78C4AC9B02ADD705211C482A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850247   (1054162) от 27.01.2026
+
+Джон Ронсон | Самовлюбленные, бессовестные и неутомимые. Захватывающие путешествия в мир психопатов (2022) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уэльский журналист Джон Ронсон берется за расследование мистификации, связавшей ведущих ученых по всему миру, и это решение становится отправной точкой для путешествия в мир безумия.
+
+Пытаясь понять, на чьей стороне истина, журналист реконструирует историю изучения психопатов. Он встречается с саентологами, убежденными в безнравственности психиатров и занимающимися (   Читать дальше...   )Жанр: ПсихиатрияИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2C7B45DA795264C7C2286434DA52ED6B6DF247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850264   (1054145) от 27.01.2026
+
+Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054145.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850265   (1054144) от 27.01.2026
+
+Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and Multiple Number Series (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Addressing a significant gap in the study of number series, this book presents an in-depth theory of multiple number series and an exhaustive examination of one-dimensional series. It incorporates overlooked yet essential results alongside recent research advancements. Much of the text is based on the authors' original contributions, particularly in the development (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B485114794B9F1A9C9FFCFACF6FF876F5D3062FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850268   (1054143) от 27.01.2026
+
+Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduction to Modern Methods With MATLAB® Implementations by C. Vomel (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054143.jpg" />
+</div>
+
+
+###  Подробнее
+
+The aim of this book is to provide a comprehensive introduction to solving large systems of equations.
+
+In addition to direct algorithms, it presents a wide range of classical and modern solvers – from splitting methods and multigrid techniques to current Krylov subspace methods (CG, GMRES, BiCGSTAB, etc.). These methods are discussed both mathematically and in terms (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BAE95C5FF96D54AB419C91DC5E104D5ACABDB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849396   (1054080) от 04.02.2026
+
+Технические нормы и правила (обновления) [01.01.2026] (2026) [HTML]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновления электронной базы документов "Технические нормы и правила" (01.01.2026)
+
+Данная сборка представляет собой структурированный архив нормативных и правовых документов, предназначенный для удобного офлайн-доступа, хранения и поиска информации.
+Для использования нужно открыть файл cat.html в директории prod.Жанр: Нормативные документыФормат: HTMLКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1CF40D83BBB50E500F895E4C1396ED76B273A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

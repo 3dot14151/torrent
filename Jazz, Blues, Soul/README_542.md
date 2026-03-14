@@ -1,3 +1,177 @@
+###  Публикация: 1771206   (71921) от 05.01.2025
+
+Toledo - Fishnets & Cigarettes (1996) [FLAC|Lossless|image + .cue] <Acid Jazz, Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Death Took a Holiday - 6:36
+02 - Danny - 4:48
+03 - Sonny & Lorraine - 5:40
+04 - Downtown - 3:48(   Читать дальше...   )Жанр: Acid Jazz, Future JazzПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFB0425225DCD523FC49FDA788DE8E8F4BD6AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771270   (71917) от 05.01.2025
+
+Grace In Sand - Homeless Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Get free (2:27)
+02.  Homeless Moon (3:38)
+03.  Sweet Sibilla (3:35)
+04.  Redemption in hell (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843A427EEA8008662A37AA9C4A5762347C082217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771569   (71860) от 07.01.2025
+
+VA - Pop International Hits (Bossa Nova Lounge Jazz Covers) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bebo Best & MagnetiC4 - Creep (Acoustic Mix) (3:42)
+02.  Melania & Christian Lisi - Thank You (Bossa Version) (2:55)
+03.  KISS MY NECK - Wicked Game (5:18)
+04.  Black Mighty Wax & Silvia Donati - Loosing My Religion (4:41)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB566380E082D87BC6E2A1403922570C350122E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771572   (71845) от 07.01.2025
+
+Roadhouse Dogs - Duggan's Conversation Bar (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dirty Margarita (3:56)
+02.  Stockton Like a Bullet (3:12)
+03.  Billy Bob Grows Up (4:25)
+04.  Din't Ought'a Have'ta (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0473C73C89C21926F26B94C57A71966F4BF9D49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771629   (71842) от 07.01.2025
+
+John Haydock - Change in the Weather (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart in Chains (5:59)
+02. Distant Rain (5:45)
+03. Shadow Play (4:02)
+04. Waiting for the Flood (6:24)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DF6C2BA59BFABB6E8B72EAEED7233EBD7B97BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771634   (71839) от 07.01.2025
+
+John Haydock - Best Of The Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Classtc Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Disappearing Man (04:52)
+ 02 - Empty City (05:13)
+ 03 - I Wish (04:02)
+ 04 - Please Don't Make Me Wait (05:30)(   Читать дальше...   )Жанр: Blues Rock, Classtc RockПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACA9B623A27F35FEC9813D66DC09E655E7C1F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771682   (71833) от 07.01.2025
 
 MC BabaYaga - Leader’s Flame (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ The Twangtown Paramours - The Wind Will Change Again (2025) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:388ABD98CE9138D9F5ACBF652D92437C3EFAF235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773840   (71623) от 18.01.2025
-
-VA - Good Whiskey Blues vol.4 (2002) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenny Lee - Blues Party [04:36]
-02. Bird Dogs - Bye Bye Baby [05:41]
-03. Rocky Shelton - Twist Of Fate [04:34]
-04. Mary-Ann Brandon - It's A Dirty Job [03:27](   Читать дальше...   )Жанр: BluesПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58A93176582C235D3E9989E80BCED6495ECEEAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773906   (71615) от 18.01.2025
-
-VA - More Blue Notes, Vol.2: Milestones of Jazz Legends (1948 - 1962) 10CD, 2018, The Intense Media [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swingin' at Sugar Ray's [6:35]
-02. Goin' Down [7:25]
-03. Whatever Lola Wants [7:22]
-04. Face to Face [6:17](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 10:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2F6D2A691A4BDFAF057940B51B0EEDA7476CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773839   (71596) от 18.01.2025
-
-Kenny Neal - What You Got (2000) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		I Smell Smoke	4:39
-02		Two Wrongs Don't Make A Right	4:00
-03		Neal And Pray	3:29
-04		Little Brother (Make A Way)	4:28(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F15CCBD0ECC927DACFC5560B56AAE140954CBEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774122   (71563) от 19.01.2025
-
-VA - Classic Vanguard Small Group Swing Sessions (1953 - 1957) 7CD, 2024, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Rushing - My Friend Mr. Blues [5:50]
-02. Jimmy Rushing - If This Ain't the Blues [8:10]
-03. Jimmy Rushing - I Can't Understand [4:38]
-04. Jimmy Rushing - Take Me with You, Baby [5:01](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Vocal JazzПродолжительность: 08:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7F558E81F3C1EDB03E82F3FEB49E5C1AECFF41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774165   (71558) от 19.01.2025
-
-Dave Stryker - Stryker With Strings Goes to the Movies (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Your Eyes (feat. Sara Caswell)
-02. Cinema Paradiso Main Theme
-03. You Only Live Twice
-04. Taxi Driver (feat. Greg Ward)(   Читать дальше...   )Жанр: Jazz, Jazz-FunkПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F85294523E98564136ADAB5450A806CC0F4606A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774807   (71531) от 23.01.2025
-
-VA - Blue Notes, Vol.1: The Essence Of Modern Jazz (1953 - 1962) 10CD, 1999, The Intense Media [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sheila Jordan - Falling in Love With Love [2:32]
-02. Sheila Jordan - If You Could See Me Now [4:33]
-03. Sheila Jordan - Am I Blue [4:12]
-04. Sheila Jordan - Dat Dere [2:44](   Читать дальше...   )Жанр: Bop, Hard Bop, Vocal JazzПродолжительность: 12:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA498EE64200F088AEB0A0015B2C6DF81C717FC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

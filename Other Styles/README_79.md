@@ -1,3 +1,172 @@
+###  Публикация: 520364   (631131) от 09.07.2012
+
+VA - Romantic Guitar (2002) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631131.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:21) 01. Romance De Amour
+(2:29) 02. Johnny Guitar
+(2:32) 03. Love Story
+(2:55) 04. La Playa
+(2:57) 05. Two Guitar
+(2:18) 06. Godfather
+(2:42) 07. Sound of Silence
+(3:14) 08. La Novia
+(3:12) 09. Aranjuez Mon Amour
+(2:42) 10. La Ragazza Di Bube(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0B54C97F9C397E2E04E55CDDA8E1DD0C99B3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520585   (631127) от 09.07.2012
+
+Quentin Tarantino's - Inglourious Basterds / Бесславные ублюдки (2009) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631127.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nick Perito - The Green Leaves Of Summer (1:54)
+ 2. Ennio Morricone - The Verdict (Dopo La Condanna) (1:14)
+ 3. Charles Bernstein - White Lightning (Main Title) (2:54)
+ 4. Billy Preston - Slaughter (4:22)
+ 5. Ennio Morricone - The Surrender (La Resa) (2:47)
+ 6. The Film Studio Orchestra - One Silver Dollar (Un Dollaro Bucato) (2:04)
+ 7. Zarah Leander - Davon Geht Die Welt Nicht Unter (2:03)
+ 8. Samantha Shelton And Michael Andrew - The Man With The Big Sombrero (1:50)
+ 9. Lilian Harvey And Willy Fritsch - Ich Wollt, Ich Waer Ein Huhn (2:44)
+ 10. Jacques Loussier - Main Theme From Dark Of The Sun (3:10)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F72BADB649F4FC3DF02816317A600D43412ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520617   (631113) от 09.07.2012
+
+James Newton Howard - Snow White & The Huntsman / Белоснежка И Охотник (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631113.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Snow White (3:24)
+ 2. I'll Take Your Throne (3:00)
+ 3. Tower Prayers (2:07)
+ 4. Something For What Ails ou (3:25)
+ 5. Escape From The Tower (2:34)
+ 6. You Failed Me, Finn (3:02)
+ 7. White Horse (2:02)
+ 8. Journey To Fenland (3:38)
+ 9. Fenland In Flames (4:08)
+ 10. Sanctuary (2:33)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B43303172450363364AC7C0618B255D0E29F1EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520920   (630865) от 09.07.2012
+
+Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Country, Folk Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_630865.jpg" />
+</div>
+
+
+###  Подробнее
+
+В музыке нынешних лидеров джем-движения, группы Great American Taxi, джазовых вибраций, пожалуй что, меньше, а кантри, госпела, блюза и старого доброго рок-н-ролла - больше, чем у прочих. Немолодые, в сущности, люди играют ядерную, невероятно заводную смесь всего, из чего складывается то, что нынче принято называть модным словечком «Американа».01. Poor House :: 04:30
+02. A.M. Radio :: 02:46
+03. Blair Mountain :: 03:34
+04. Angel Dust :: 03:00
+05. Olden Days :: 04:43
+06. Maud Only Knows :: 03:03
+07. Penny Arcade :: 03:41
+08. Silver Fiddle :: 03:21
+09. Radiation Blues :: 03:25
+10. Gonna Make A Record :: 03:02(   Читать дальше...   )Жанр: Americana, Blues, Country, Folk RockФормат: CD, AlbumПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035223   (630511) от 15.07.2016
+
+Theodore Shapiro - Ghostbusters / Охотники за привидениями (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Aldridge Mansion (02:58)
+02. The Garrett Attack (01:30)
+03. Never Invited (01:24)
+04. Distinct Human Form (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518A925E9B5B0ED57CD82D72AAA64CA1C338EEFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034115   (630510) от 15.07.2016
 
 Douglas Spotted Eagle - Voices (1999) [MP3|320 Kbps] <Native American, Folk, World>
@@ -609,157 +778,6 @@ Era - Greatest Hits 2 CD (2008) [MP3|320 kbps]<New Age, Enigmatic>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035615   (626708) от 17.07.2016
-
-VA - Spirit Horse (2016) [MP3|320 Kbps] <New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wychazel - Earth Dance
-02. Jon Richards - Homeland
-03. Medwyn Goodall - Dances on Clouds
-04. Wychazel - Soul Journey(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1261736B5D2C19C7833DECF96323D54FC1E9A22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035470   (626662) от 17.07.2016
-
-Sean Christopher - Mystique (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metamorphosis [00:06:14]
-02. The Sacrifice [00:05:15]
-03. Ballerina [00:04:09]
-04. For Dreams May Come [00:03:18](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1678D02CA2D97BB3DFBD4805EF015C27ED82DB81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521529   (626624) от 11.07.2012
-
-Ennio Morricone - Film Music - 5 Альбомов (1987-2004) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как кинокомпозитор он был пять раз номинирован на «Оскар», а в 2007 году он получил «Оскар» за выдающийся вклад в кинематограф. Кроме того, в 1987 году за музыку к фильму «Неприкасаемые» он был удостоен премий «Золотой глобус» и «Грэмми». Среди фильмов, к которым Морриконе написал музыку, следует особо отметить следующие: «Нечто», «За пригоршню долларов», «На несколько долларов больше», «Хороший, плохой, злой», «Однажды на Диком Западе», «Однажды в Америке», «Миссия», «Малена», «Декамерон», «Багси», «Профессионал», «Неприкасаемые», «Новый кинотеатр „Парадиз“», «Легенда о пианисте», телесериал «Спрут». В 1996 году Эннио Морриконе вместе с фотографом Де Лука, Аугусто получил премию «Города Рима» за книгу "Наш Рим".1. The Ballad Of Hank McCain (2:04)
- 2. Ad Ogni Costo (2:58)
- 3. Main Titles Of The Sicilian Clan (3:43)
- 4. Main Titles Of Violent City (2:29)
- 5. The Iron Mayor (2:35)
- 6. Goodbye Palermo (3:45)
- 7. Deborah's Theme (4:23)
- 8. Far Memories Of Sicily (2:30)
- 9. Al Capone (2:57)
- 10. End Titles (3:14)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD44401BCC9F58EE988F8752F3955D155A15FB23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035548   (626580) от 17.07.2016
-
-VA - Ghostbusters / Охотники за привидениями (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk The Moon - Ghostbusters (03:45)
-02. G-Eazy - Saw It Coming (Feat. Jeremih) (03:30)
-03. Elle King - Good Girls (02:59)
-04. 5 Seconds Of Summer - Girls Talk Boys (03:36)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81573188F13F784EF161975CABF29A79C905B981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035547   (626517) от 17.07.2016
-
-VA - Ghostbusters / Охотники за привидениями (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk The Moon - Ghostbusters (03:45)
-02. G-Eazy - Saw It Coming (Feat. Jeremih) (03:30)
-03. Elle King - Good Girls (02:59)
-04. 5 Seconds Of Summer - Girls Talk Boys (03:36)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9B484F3153D607621C42170ED31F045DE46021
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 709388   (424193) от 11.10.2013
+
+Lee Ritenour - Masterpieces: Best Of The GRP Years (2012) Jazzclub [FLAC|Lossless]<Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rio Funk   (5:08)
+02.  San Juan Sunset   (5:36)
+03.  ''13''   (5:02)
+04.  Butterfly   (5:14)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5345F0FD464F5A735AB1019A71A9D1F4A133439E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572300   (423683) от 26.08.2022
+
+Benny Golson And His Orchestra - Walkin' (1957) 1997, Fresh Sound [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moten's Swing [4:16]
+02. Out of Nowhere [4:05]
+03. Groovin' High [3:15]
+04. Autumn Leaves [4:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2C32DDE343A2A5C5F9513EFB7C92A0ED512F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572299   (423682) от 26.08.2022
+
+Kenny Dorham Quintet with Jackie McLean - Complete Recordings (1961, 1962) 2007, Gambit Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.El Matador [6:32]
+02.Melanie [11:35]
+03.Smile [4:59]
+04.Beautiful Love [5:12](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421675FAFB940652F8F8FBDD2D0357AB5B3CB750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572296   (423678) от 26.08.2022
 
 Gerry Mulligan - The Art Of Gerry Mulligan: The Final Recordings (2000) Telarc [FLAC|Lossless|tracks + .cue] <Cool, Latin Jazz>
@@ -659,104 +746,6 @@ Hayati Kafe - The Copenhagen Session (2007) Riviera Records [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC52F5550647F9C34C44F79AED6A20075C999700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556977   (419883) от 08.10.2012
-
-Bryan Lubeck - Acoustic Vineyard (2004) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_419883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harlequin
-02. Take Me
-03. My Desire
-04. Port Aventura
-05. Flamenco Island
-06. A New Romance
-07. Rhett Relents
-08. You've Got This Way
-09. A Mother's SmileЖанр: Smooth JazzПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167204   (419729) от 19.09.2017
-
-The Singers Unlimited - Feeling Free (1975) 2006, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are The Sunshine Of My Life [02:54]
-02. A Time For Love [04:10]
-03. Green Dolphin Street [04:04]
-04. So Many Stars [03:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34552E483C61390BFE5AAAC764558CB32086DF77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 247824   (419689) от 20.10.2010
-
-Larry Coryell, Badi Assad, John Abercrombie - Three Guitars (2003) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_419689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seu Jorge e Dona Ica(6:00)
-02. New lute prelude (1:34)
-03. New lute interlute (3:14)
-04. Soundtrack (4:17)
-05. After the Rain (4:56)
-06. Descending grace (5:28)
-07. Metramorphosis (4:03)
-08. No flight tonight(4:24)
-09. Ralph’s piano waltz(5:09)
-10. Suspended cirles(5:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

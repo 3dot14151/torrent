@@ -1,3 +1,32 @@
+###  Публикация: 1276658   (787628) от 17.01.2019
+
+VA - Billboard Hot 100 Singles Chart 19.01 2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787628.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
+002. Halsey - Without Me
+003. Ariana Grande - thank u, next
+004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B6C831E2C25E234DE041C0615FA77C9E9F6E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276819   (787218) от 18.01.2019
 
 VA - Music for long trip (2019) [MP3|320 Kbps] <Pop, Dance, Electro, Techno>
@@ -709,35 +738,6 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0014 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15CDCE11E0B0E3B8B447C37B38E4E789D087DD19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204556   (784661) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0017 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams Divide - Leaving ( 2011 )
-02. Surf Dancer - Everybody Dance Tonight ( 2017 )
-03. Galaxion - Adventure ( 2007 )
-04. Isabel - Feel The Heat ( 1988 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583BA5BFE615E372789E1EC34F717FD8E6155BEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

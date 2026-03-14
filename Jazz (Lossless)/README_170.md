@@ -1,3 +1,89 @@
+###  Публикация: 1159679   (482203) от 21.08.2017
+
+Ray Charles & Count Basie Orchestra - Ray Sings Basie Swings (2006) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh, What A Beautiful Morning [04:36]
+02. Let The Good Times Roll [02:58]
+03. How Long Has This Been Going On? [06:20]
+04. Every Saturday Night [04:06](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60192F87F83F33F7813A934897B7C6D7072CC2C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056551   (482137) от 25.09.2016
+
+Duke Ellington - Black Beauty (1924-1954) 2CD, 2005, Le Chant Du Monde[FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482137.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Choo Choo [03:18]
+02.Everything Is Hosty Totsy Now [02:57]
+03.The Creeper [02:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1D9FE6C9435E12BBC02F2EB1FE060CC1440E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938358   (482093) от 18.09.2015
+
+Natalie Cole - As Time Goes By (Single, 1993) /Elektra/[FLAC|tracks+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.As Time Goes By [03:47]
+02.Calypso Blues [05:06]
+03.I'm Beginning To See The Light [03:28]Жанр: Vocal JazzПродолжительность: 00:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BAD88BD516E46895C8EE59D0B85F24FC2CF764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244441   (482085) от 01.09.2018
 
 Andrea Motis - Emotional Dance (2017) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -663,93 +749,6 @@ Norah Jones - Late Night Jones (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Contempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07643114EE5324FBC5D24EFD8F7E89196D1FA1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566863   (478643) от 31.07.2022
-
-Herb Ellis - The Early Years (1956 - 1965) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Moon At All [7:20]
-02. Bye Bye Blackbird [3:38]
-03. Life Is A Ball [5:32]
-04. It's Easy To Remember [4:10](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Guitar JazzПродолжительность: 05:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24758E314C3044BCB17488093C7CC9D1709FBEAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160115   (478258) от 23.08.2017
-
-Muhal Richard Abrams - Afrisong (1975) 2009, Candid [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrisong [05:10]
-02. The Infinitive Flow [06:11]
-03. Peace On you [07:42]
-04. Hymn To The East [04:40](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7A0D942A4ADC7DE23983FBFB2B730C47487CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160112   (478254) от 23.08.2017
-
-Bob James - All Around The Town (2008) 2CD, KOCH Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478254.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Touchdown [06:43]
-02. Stompin At The Savoy [11:40]
-03. Angela (Theme From Taxi) [07:22](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0CD5C1E1AF563C2973FF5CBA3FDD8D08591198
 ```
 
 https://mybot314.ru/tekegram_catalog/

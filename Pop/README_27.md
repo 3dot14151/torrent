@@ -1,3 +1,236 @@
+###  Публикация: 1481855   (1008029) от 05.07.2021
+
+Estrak Lancios - Cosmopolitan Wave (1979) LP [MP3|320 Kbps] <Electronic, Leftfield, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmopolitan Wave (17:19)
+-Red Wave
+-Violet Wave
+-Blue Wave(   Читать дальше...   )Жанр: Electronic, Leftfield, DiscoПродолжительность: 00:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53557F84FBF239610B83B40DF21371E6D97C394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482019   (1007906) от 06.07.2021
+
+Tata Vega - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тата Вега (урожденная Кармен Роза Вега 7 октября 1951 года на Ямайке, Куинс, Лонг-Айленд,Нью-Йорк) - вокалистка, чья карьера охватывает театр, кино и различные музыкальные жанры.01. Come On And Try My Love (3:26)
+02. I Need You Now (3:35)
+03. Get It Up For Love (6:09)
+04. If Love Must Go (4:12)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20223ADFC432666EA4BB37BF3DB608A89DFEA2C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482267   (1007768) от 07.07.2021
+
+Brass Construction - Attitudes (1982) Remaster, 2010,  Think! Records [FLAC|Lossless|tracks + .cue] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Can You See The Light 5:18
+2 Funtimes 4:51
+3 Attitude 6:43
+4 Do That Thang 5:31(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5DB8C25A14088BA5EE0CBA440CC6B34FF84127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482401   (1007587) от 08.07.2021
+
+ABBA - International (1988) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007587.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ring Ring (German Version) (03:10)
+2. Intermezzo No. 1 (03:46)
+3. Waterloo (French Version) (02:44)
+4. Take A Chance On Me (04:24)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7CEE710F1A8BE86EF9138F481A904B137E9372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483360   (1006882) от 13.07.2021
+
+VA - Beautiful and Chilled Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006882.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Devon Seyward, Thom Cooper - Flume (Acoustic Version) (3:01)
+2. Joanie Loves Chachi - (Nice Dream) (3:23)
+3. Thom Cooper - Your Power (3:59)
+4. Charlie Blue Skies - Songbird (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8FAEFE9A616ABDBF3A4216C047C6E485F8374A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483395   (1006854) от 13.07.2021
+
+VA - Pure... Alternative 80s (2011) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не ошибусь, если скажу, что на нашем трекере собрана наиболее полная серия, которую в свое время издавала Sony Music (ссылка на всю серию внизу поста). И сегодня представляю Вам последний (из имеющихся у меня) боксет - Alternative 80s.
+Если честно вспомнить именно 80-е, то не то что альтернативные треки, едва доступны были и самые популярные композиции, которые гремели (   Читать дальше...   )CD1:
+01. Adam and the Ants - Stand and Deliver  (3:08)
+02. The Stranglers - No Mercy  (3:39)
+03. Big Audio Dynamite - E=MC²  (5:57)(   Читать дальше...   )Тип издания: Box Set, 4 CDРелиз состоялся: 10 окт. 2011 г.Жанр: Pop, Electronic, RockПродолжительность: 04:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BEDD6667E775E9EFEE10547DF31F5E6B46B92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483485   (1006771) от 14.07.2021
+
+Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sliding Doors (00:03:10)
+02 - 1961 (00:03:42)
+03. Aftermath (00:03:46)
+04. Wildflowers (00:03:04)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C5F89E8C1BEE6181DB953029B7D955A243AC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483602   (1006756) от 14.07.2021
+
+Fancy - Masquerade (Les Marionnettes) (2021) [MP3|320 Kbps] <Pop ,  Eurodisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Like Your Smile (3:14)
+02. Rockabye Me (3:53)
+03. I’m Still A Fool (3:32)
+04. Lovers (3:26)(   Читать дальше...   )Жанр: Pop ,  EurodiscoПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A46426BFD03470E943912FC0BF240812F29666E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483907   (1006511) от 16.07.2021
 
 Группа VIP - New-York (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Pop>
@@ -513,237 +746,6 @@ Robbie Williams - The Christmas Present (2019) 2CD [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C657B23E6469EB3409219C3F5D6D7CEE10B2085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348794   (1004229) от 02.01.2020
-
-VA - Ibiza Day & Night (2010 - 2012) 6 CD [FLAC|Lossless|tracks + .cue]<Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musikk VS. Chiris Montana - Summer Lovin' ( Acapella )
-02. Martin Villeneuve - Come On Over ( Up Jeet Remix )
-03. Rio Dela Duna & Dani Cohiba - El Cubano ( Martin Villeneuve Remix )
-04. Do Santos - Noti Verisi(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AB6704CF234239FE618AFEB5F1CDA26429AEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349866   (1004072) от 03.01.2020
-
-Rewind Feat. Madame Denise - Video Killed The Radio Star (1993) [FLAC|Lossless|image + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Video Killed The Radio Star (Radio Edit) 4:03
-02. Video Killed The Radio Star (With An Eye 2 Techno) 5:02
-03. Video Killed The Radio Star (Mother's Day) 4:15
-04. Kaleidoscope (Coming Soon) 2:17Жанр: Euro HouseПродолжительность: 00:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3836DC8A1172890128170394F2A99FAC8A1E9AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349870   (1004069) от 03.01.2020
-
-Estimado - The Escape to Heaven (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’m Dancing On My Own 5:19
-02. Faster 7:08
-03. Believe In Me 7:45
-04. I Want You Heaven 6:48(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E27CD7C56529450EB4E6C65B82E033268F4920E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349849   (1004060) от 03.01.2020
-
-Chyp-Notic - Nothing Compares 2 U (1990) [FLAC|Lossless|image + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Compares 2 U (The Ultimate Dance-Version) 6:32
-02. Nothing Compares 2 U (The Techno Mix) 5:09
-03. 1-4-U 5:32Жанр: Euro HouseПродолжительность: 00:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84DD6D14CB61619C3A56D4C8E0CDEE78B8A03949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349873   (1003991) от 03.01.2020
-
-VA - Disco Hits Exclusive Collection (1989) [FLAC|Lossless|image + .cue] <Euro-Disco, Eurobeat, Hi NRG>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Gail Berry My Miracle Is Love (Dance Mix) 6:06
-02 – Ken Laszlo Everybody Is Dancing 7:15
-03 – Pat & Bel Without You (Dance Mix) 6:13
-04 – Francesco Salvi Esatto! (Mix Version) 5:32(   Читать дальше...   )Жанр: Euro-Disco, Eurobeat, Hi NRGПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6004944AB040D60EEB46D812F041963579FAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487201   (1003827) от 04.08.2021
-
-VA - ZYX Italo Disco Spacesynth Collection 7 (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Spacesynth, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmix - Space Trooper (5:43)
-02. Spacehawk - Time Travel (4:05)
-03. Digitalo - Golden Ten (Instrumental Spacesynth) (4:51)
-04. Entropy - All The Stars (Extended Version) (6:43)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthpopПродолжительность: 02:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D011F69F3301754582012580A70626FF4D378A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350028   (1003763) от 04.01.2020
-
-Joy Winter - Frantic Romantic (1990) [FLAC|Lossless|image + .cue] <Hi NRG, Freestyle>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003763.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 In Time You'll See 4:34
-2 How Can I Be Sure 4:56
-3 Day And Night 3:42
-4 Why Can't We Be Lovers 5:11(   Читать дальше...   )Жанр: Hi NRG, FreestyleПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A79E379186E147B700EA64ACBED10252FAD3004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350026   (1003760) от 04.01.2020
-
-Sally Shapiro - Remix Romance Vol. 1 (2008) [FLAC|Lossless|image + .cue] <Italo-Disco, Downtempo, House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 I'll Be By Your Side (Tensnake Remix) 7:38
-2 I Know You're My Love (Juan MacLean Remix) 8:00
-3 Find My Soul (Holy Fuck Remix) 4:23
-4 Anorak Christmas (Woodhands Remix) 5:20(   Читать дальше...   )Жанр: Italo-Disco, Downtempo, HouseПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E74C219C6CE2D4E842E957E89ABA467C640535F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

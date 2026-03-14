@@ -1,3 +1,90 @@
+###  Публикация: 1025810   (707938) от 13.06.2016
+
+Frank Sinatra - Blue Skies (1995) Series Success [APE|Lossless|image + .cue] <Jazz, Swing, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Skies
+02. Night And Day
+03. Somebody Loves Me
+04. You Make Me Feel So Young(   Читать дальше...   )Жанр: Jazz, Swing, VocalПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B374EC184425F8A3734534165882C0862A23D23A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401654   (707705) от 11.08.2020
+
+Toots Thielemans - Four Classic Albums (1957 - 1961) 2016, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Standards>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707705.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. East Of The Sun [7:20]
+02. Don't Blame Me [2:31]
+03. 18th Century Ballroom [3:50](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, StandardsПродолжительность: 02:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595292FE2D8D3C022A51B451DF69705AA8BF8AB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287062   (707432) от 05.03.2019
+
+Arne Domnerus & Rolf Ericson - 1950 - 1951 (2003) Dragon Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Shall I Say [3:16]
+02. Barit [2:53]
+03. I Cover the Waterfront [2:39]
+04. Lullaby in Rhythm [2:47](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C63503F45658FA66E75967CF204B09ED51E16B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286863   (707387) от 05.03.2019
 
 Liane Foly - Crooneuse (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
@@ -658,93 +745,6 @@ Norah Jones - Morning Jones (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Contemporar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F408FCD455A131A9AC76A1F0FB0DEF855FB1B625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131983   (705533) от 07.05.2017
-
-Anan Ryoko - Another Beginning (2010) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, Hip Hop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Garden  (01:56) 
-02. All Day, All Night, Always feat. AK  (05:28) 
-03. The Shape of Love feat. TeN from A Hundred Birds  (04:33) 
-04. Forever We Will Be feat. Kero One  (05:06) (   Читать дальше...   )Жанр: Jazz, Pop, Hip HopПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B789146F4A3882AEEBCC63C56EB83002309FAD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131907   (705532) от 07.05.2017
-
-Tamba Trio - Black + Blue (1974) 2001, BMG [APE|Lossless|image + .cue] <Bossa Nova, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Se E Questao De Deus Ate Logo [02:45]
-02. Nao Tem Perdao [02:42]
-03. Reflexos [02:55]
-04. Gazera [01:50](   Читать дальше...   )Жанр: Bossa Nova, Brazilian JazzПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4100AAB3C1476C27A322A896198FAB9FE68A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287257   (705528) от 06.03.2019
-
-Fredrik Kronkvist - Altitude (2003) Sittel Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zenith [5:38]
-02. Litet grann fran ovan [4:38]
-03. Desert Night [6:17]
-04. Yemaya [4:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E89B45A52192973D34829494D9809B4EBFB257
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -461,6 +461,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 210245   (809667) от 21.04.2016
+
+Медвежий Угол - Доза тепла (2005) [MP3|320 kbps]<Folk-Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_809667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk-RockПродолжительность: 42:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009475   (808110) от 22.04.2016
 
 Trailer Radio - Country Girls Ain't Cheap (2016) [MP3|320 кб/с] <Country>
@@ -712,35 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BDFB62409133F21D5C584F676256E4EE0CCF898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123630   (786077) от 09.04.2017
-
-ДахаБраха - Ягудки (2007) [MP3|320 Kbps] <NeoFolk, Country, Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шо З-под Дуба (03:48)
-02. Русалочки (01:49)
-03. Пані (03:28)
-04. За Дуби (02:20)(   Читать дальше...   )Жанр: NeoFolk, Country, EthnicПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336EB932A445EEF224C5E8661BEB28FB32ED0F0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

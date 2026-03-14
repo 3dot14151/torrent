@@ -1,3 +1,61 @@
+###  Публикация: 1435129   (141838) от 29.12.2020
+
+NaviBand - NaviBand (2019) [MP3|320 Kbps] <Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Неуловимы
+02. Танцуй
+03. Один из нас
+04. Не б’ецца(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C254C0F0DCBA60A4E2F5EC383B6AE92A130A7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348948   (141438) от 29.12.2019
+
+VA - 100 Greatest Indie: The Best Guitar Pop Rock (2019) [MP3|320 Kbps] <Indie, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141438.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blur - Parklife
+002. The Smiths - This Charming Man (2011 Remaster)
+003. Liam Gallagher - Wall of Glass
+004. The Futureheads - Hounds of Love(   Читать дальше...   )Жанр: Indie, Pop-RockПродолжительность: 06:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBC89D472D20EA360E72CBD70F09985F70A2475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088160   (141119) от 30.12.2016
 
 Bamboo Industry - Tortured By Pleasure (1989) [MP3|320 Kbps] <Alternative Pop, Synthpop>
@@ -699,64 +757,6 @@ TV Girl - Death of a Party Girl (2018) Digital Album [MP3|320 Kbps] <Hypnotic Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11B5AD1E45B0D7E6DE05336C12C4961E019D0905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687077   (125737) от 25.12.2023
-
-VA - Bravo Hits 20 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Janet Jackson - Together Again
-02. Natalie Imbruglia - Torn
-03. Espen Lind - When Susannah Cries
-04. The Kelly Family - One More Song(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031FC464A0D1E6B51217D3326C11ED854BBCC256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686994   (125727) от 25.12.2023
-
-VA - Bravo Hits 19 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanson - MMMbop
-02. Real McCoy - Party
-03. Squeezer - Saturday Night
-04. Chili feat. Carrapicho - Tic Tic Tac(   Читать дальше...   )Жанр: Electronic, Pop, RockПродолжительность: 02:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2471FF8C502508B1851A0B90689570B276EB92C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

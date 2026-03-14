@@ -1,3 +1,148 @@
+###  Публикация: 1706805   (113488) от 14.03.2024
+
+ВИА "Экспресс" (Венгрия) - Серебрянный "Экспресс" (1979) [FLAC 24/96|Lossless|tracks] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01 - Уже четыре часа (М. Малек — Т. Шоймош);
+02 - Губная гармоника (А. Шие — Ф. Кондьел);
+03 - Мечта (П. Калмус — Т. Шоймош);(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B11C51DAD9F45DE3786709B13545783C2345EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706985   (113485) от 14.03.2024
+
+Ronnie Romero - Too Many Lies, Too Many Masters (Deluxe Edition) (2024) [FLAC 24/44.1; 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castaway on the Moon (3:37)
+02. Mountain of Light (3:44)
+03. I've Been Losing You (4:54)
+04. Too Many Lies, Too Many Masters (4:55)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FF036A33F75547D3C0F880BC92229AA32F309A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706966   (113482) от 14.03.2024
+
+Whom Gods Destroy - Insanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113482.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как Билли Шихан вернулся в тур с Mr. Big, а Майк Портной вернулся в Dream Theater, Дерек Шеринян и Рон «Бамблфут» Тал из прогрессивной супергруппы Sons of Apollo обнаружили, что им нужен новый выход для своих музыкальных творений. К счастью для них, они работали над новой музыкой с певцом Дино Йелусиком с 2020 года. Вместе с басистом Ясом Номурой и барабанщиком (   Читать дальше...   )01. In the Name of War (6:39)
+02. Over Again (5:02)
+03. The Decision (7:08)
+04. Crawl (6:36)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24F074E95D73F32B8C57FE14A3DE46E52AE49CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706799   (113477) от 14.03.2024
+
+VA - Перекати-поле. Песни на стихи Лидии Козловой (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01 - Перекати-поле (А. Лунев)
+Надежда Чепрага
+02 - Не повторяй (А. Кальварский)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0084FDC69A0D983069AB6C45967536D1B1CFA753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706709   (113471) от 14.03.2024
+
+Darkthrone - Under a Funeral Moon (1993) Reissue, 2010, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113471.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Natassja In Eternal Sleep
+A2 Summer Of The Diabolical Holocaust
+A3 The Dance Of Eternal Shadows
+A4 Unholy Black Metal(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8043BDA0ABD65552E7AB1DB668F9A3830EA30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706905   (113457) от 14.03.2024
 
 Lords Of Black - Mechanics Of Predacity (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
@@ -600,151 +745,6 @@ Zhu - Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Bas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:445430C79272EFB58DD44E01DEEBF2665C07C20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707366   (113273) от 17.03.2024
-
-Savage Oath - Divine Battle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knight of the Night (7:21)
-02. Wings of Vengeance (6:52)
-03. Blood for the King (6:45)
-04. Smoke at Dawn (2:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A2F22A05D76F2CBB2107D783966365C97405E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707660   (113256) от 17.03.2024
-
-M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113256.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Land Of The Free
-A2 Devolution
-A3 Repent
-A4 The Angry Man(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DB94CAB33BABA1A705F146B9CFEAD888DB5471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707548   (113255) от 17.03.2024
-
-M.O.D - Surfin' M.O.D (1988) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movie Side
-A1 Goldfish From Hell
-A2 Totally Narley Talking By Katrina & Bill
-A3 Surfin' U.S.A.(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60AD2ED7C2A630227DB595ACE1D83F5F5EFC9E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707362   (113249) от 17.03.2024
-
-Charles Lloyd - The Sky Will Still Be There Tomorrow (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Bop, Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Defiant, Tender Warrior (4:17)
-02. The Lonely One (5:46)
-03. Monk’s Dance (6:50)
-04. The Water Is Rising (5:08)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20653882BEEE382670F10F1FB5E0FF07965E4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707376   (113248) от 17.03.2024
-
-Coventhrall - Legacy of Morfuidra (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (1:56)
-02. Morfuidra (4:14)
-03. Dreadnought (3:49)
-04. In These Halls (5:16)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCDCEBCEF89C448D6CE94E82071CEE6D8E1E57A
 ```
 
 https://mybot314.ru/tekegram_catalog/

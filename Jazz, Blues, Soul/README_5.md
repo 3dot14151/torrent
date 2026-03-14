@@ -1,3 +1,61 @@
+###  Публикация: 1843763   (1049486) от 21.12.2025
+
+Danny Alexander Blues Band - Turn Me Loose (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Come to Me (3:17)
+02.  Bottom of the Boot (2:59)
+03.  Take a Break (3:50)
+04.  I Want To Be Loved (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC58083BE8F3FCF6A1AD170932B59AB18D76BD39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843767   (1049481) от 21.12.2025
+
+John Haydock - Talking to the Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Girl with the Runaway Eyes (4:20)
+02.  Talking to the Night (5:00)
+03.  Trending Down (4:35)
+04.  Harlequin Nights (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37ECDE9F689ECA5591981915397BA0C3E3907DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843769   (1049479) от 21.12.2025
 
 Johnny Black & the 22's - Pocket Full of Shake (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -687,64 +745,6 @@ Mud Morganfield - Deep Mud (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF814C25FED17CEABCC6735164CFF9076D0B4230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842057   (1048334) от 14.12.2025
-
-Omar And The Howlers - Downtown Boogie (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hideaway (2:58)
-02.  If Walls Could Talk (1:59)
-03.  Slow Down (3:04)
-04.  Grits Ain't Groceries (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B4F43670C0427167809946D479B87D3D0A09E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842059   (1048333) от 14.12.2025
-
-Paul Cebar - Paul Cebar (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bob Jennings - When We Sing (2:39)
-02.  Mike Fredrickson - We Sure Got Enough (3:26)
-03.  Scott Ligon - Sunday Ride (3:34)
-04.  Reggie Bordeaux - Keep On (Lookin' Like That) (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA9142A02AA4B3A21E3F91C6F3D88B479E09479
 ```
 
 https://mybot314.ru/tekegram_catalog/

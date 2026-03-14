@@ -1,3 +1,90 @@
+###  Публикация: 1345396   (167579) от 14.12.2019
+
+Monica Zetterlund And The Thad Jones & Mel Lewis Orchestra - It Only Happens Every Time (1997) EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Only Happens Every Time [5:13]
+02. Long Daddy Green [3:38]
+03. Silhouette [4:37]
+04. He Was Too Good To Me [5:06](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4D0F595201FCEA112A421FD97EA4F284084160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672882   (167363) от 30.10.2023
+
+Jim Snidero - Far Far Away (2023) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Far Away [6:59]
+02. Infinity [7:39]
+03. It Might as Well Be Spring [7:00]
+04. Nowhere to Hide [6:56](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B85FC8E5E55A1012CF394C29B7D9C062381C5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672880   (167345) от 30.10.2023
+
+Elvin Jones - Revival: Live At Pookie's Pub (1967) 2022, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Trail [19:47]
+02. Softly as in a Morning Sunrise [18:24]
+03. Raunchy Rita [3:55]
+04. Oleo [16:14](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517E03C0D77629FB5A06F9BA5173EA5460AB6054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672883   (167325) от 30.10.2023
 
 Bill O'Connell - A Change Is Gonna Come (2022) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
@@ -658,90 +745,6 @@ Ed Neumeister Quartet - New Standards (2005) MeisteroMusic [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:763B5EB4E45027F0D83D98D362AE5AF4F0408E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345775   (165903) от 16.12.2019
-
-Phil Hey Quartet - Subduction: Live at the Artists' Quarter (2005) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway One [8:39]
-02. Darius Dance [9:52]
-03. The Best Thing for You [4:36]
-04. Subduction [6:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362AE94E82271BD07F0DF24DAD3C68AFB03A5F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341515   (165837) от 15.12.2020
-
-Berk & The Virtual Band - Jazz Chill / Jazz Chill Vol.2 (2006, 2007) [APE, FLAC|Lossless|image + .cue]<Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, Smooth JazzПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891127DCDD6FB72388398BDC90FDD91B2F29BAFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345683   (165716) от 16.12.2019
-
-VA - Smooth Jazz Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Colionne - Got To Keep It Moving
-02. Oli Silk - Tokyo
-03. Cindy Bradley - Massive Transit
-04. Julian Vaughn - Wayman's Way(   Читать дальше...   )Жанр: JazzПродолжительность: 01:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEEC3FD2C65C0B583264F5F5C9F0D90DD08D108
 ```
 
 https://mybot314.ru/tekegram_catalog/

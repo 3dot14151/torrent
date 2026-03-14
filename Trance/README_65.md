@@ -1,3 +1,148 @@
+###  Публикация: 1798709   (66581) от 24.05.2025
+
+VA - Amsterdam Classic Trance Festival (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleks Neptune - The Wolfs (06:53)
+02. Cryalta Generation - Airflow (07:39)
+03. Aleksey Litunov - The Time Has Gone (05:40)
+04. Andrey Gaydukov - Gentle Embraces (06:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1231B5DA30DCE302F54920857EA4FA966C45DB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798859   (66538) от 25.05.2025
+
+VA - Coven (2022-2025) [MP3|320 Kbps] <Trance, deep-house, progressive-house, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Various Artists - Coven (2025)
+Various Artists - Coven, Vol. 1 (2022)
+Various Artists - Coven, Vol. 2 (2023)(   Читать дальше...   )Жанр: Trance, deep-house, progressive-house, DanceПродолжительность: 6 CD, 04:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFCD23A97FD0E5EB7FC340D7631E2F70A1DF2D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799682   (66407) от 29.05.2025
+
+VA - Uplifting Only Top 15: May 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deme3us - You (Intro Mix) [5:47]
+02. Double U & Okka Oo Tha - Dreaming Of Us (Extended Mix) [9:22]
+03. Dyrsein & Renata Cast - Don't Change My Soul (Extended Mix) [8:54]
+04. Casepeat & Plutian - Firebird (Extended Mix) [6:31](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196A6D22DC3EA677F3BDD7399470D37B17CE6644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799684   (66380) от 29.05.2025
+
+VA - Redux Selection, Vol. 6 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rob Binner & peakXperience - Touch Of You (Extended Mix) [6:54]
+02. Sebastian Feldmann - Think and grow Big (Extended Mix) [6:36]
+03. Paul Courbet - Northern Lights (Extended Mix) [6:21]
+04. Cadeya - Never Mind (Extended Mix) [6:23](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E9968A6A0DEA81B60C410444F30EAB1BC458CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799854   (66365) от 30.05.2025
+
+Alexander Spark - Destiny (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Spark & Lucid Blue - Destiny (Extended Mix) [5:32]
+02. Alexander Spark & Jeef B - If I Say (Extended Mix) [6:10]
+03. Alexander Popov & Alexander Spark - Run It (Extended Mix) [3:42]
+04. Alexander Spark & Alexander Turok - No Fear (Extended Mix) [3:38](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC90E2E0F5F66B92D3436CFBD50D1C42ABBF926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801622   (66167) от 12.06.2025
 
 VA - Keep It Trance Vol. 29 (2025) [MP3|320 Kbps] <Trance>
@@ -598,151 +743,6 @@ VA - A State Of Trance Radio Top 50 - 2024, Vol. 1 (2024) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47ECC571AE54684B489569CB9CB7AFE809587A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716287   (59602) от 15.04.2024
-
-VA - Trance 2024 Legends (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Larssen - Inopinatum Expectes (Original Mix) [7:59]
-02. Emanuel Kosh & P4sc4l - My Heart (Instrumental) [4:42]
-03. Popoff - Fantasy (Original Mix) [5:40]
-04. Yozzi Javini - Outlaw Of Relativity (Original Mix) [7:19](   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F9B6857A94F21B502A5EF227F81C05F9EE5EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725094   (55606) от 23.05.2024
-
-VA - Trance 100 - 2024 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55606.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren, Ferry Corsten, Rank 1 & Ruben De Ronde - Destination (A State Of Trance 2024 Anthem) (Extended Mix) (6:15)
-002. Ferry Corsten x Marsh - Fulfillment (Extended Mix) (7:02)
-003. Aly & Fila x Lostly - The Unknown (Extended Mix) (6:08)
-004. ARTBAT & Armin van Buuren - Take Off (Extended Mix) (5:55)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 09:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719C1B93C59EF6FE41B4AF189DECB7C9013262B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729485   (53613) от 11.06.2024
-
-VA - Top 7 May 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruslan Aschaulov & Sam Fletcher - Awakening (Original Mix) [7:53]
-02. D.J.G. & M.I.K! vs. Iain Mitchell - Watt If (Original Mix) [5:46]
-03. Andy Newtz & Olya Gram - Take Me To The Stars (Gayax Remix) [5:53]
-04. DJ Tranceair - Gilgamesh (Original Mix) [5:44](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA5D247F66C77E74911F22F7ADC1F8911AA7DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731292   (52683) от 20.06.2024
-
-VA - Costa - Vocal Trance Hits, Vol. 2 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholas Gunn & Alina Renae - Older (Costa Remix) (03:32)
-02. Costa & Stine Grove - Higher Ground (Costa & Aurosonic Remix) (03:44)
-03. Costa & Stine Grove - Mirror of My Dreams (03:58)
-04. Costa & Cathy Burton - Far Beyond (Extended Mix) (07:07)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F362A690220DA8122BD09F8E11AD16B78832C074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821324   (52226) от 01.10.2025
-
-VA - Redux Selection, Vol. 10 / 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Euphoria - Dreamer (Extended Mix) [5:53]
-02. Damian Wasse - Rise Of Nation (Betibwe Extended Remix) [6:30]
-03. Christopher Maison - No Way Home (Extended Mix) [6:48]
-04. DJ Hollowbase - Naked Dreamer 77 (Extended Mix) [5:37](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC04D64391F750FF3E17BCC1F2A3DA5F47E7C7B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

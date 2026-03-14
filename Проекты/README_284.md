@@ -1,3 +1,29 @@
+###  Публикация: 959845   (311561) от 26.11.2015
+
+Проекты - VideoHive - Flower Box Display - 5948975 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый и красочный проект для создания детского слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4F55D52AE09433A6ED3EAC5B8F69D9665BACE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959805   (311556) от 26.11.2015
 
 Проекты - VideoHive - Clean Corporate Presentation [AEP]
@@ -648,33 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B8AB6ED4EDC5CAD1DC5D0FF7C6598EBBD0344C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960091   (309438) от 27.11.2015
-
-Проекты - VideoHive - Christmas Memories - 13582860 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания Новогоднего слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC00B9AD8AB358D1301C75C19F62FFEEBD54EB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

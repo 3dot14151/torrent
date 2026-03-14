@@ -1,3 +1,32 @@
+###  Публикация: 1291182   (672210) от 23.03.2019
+
+VA - Cafe del Mar: Best of the Best (2019) [MP3|320 Kbps] <Lounge, Future-Jazz, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672210.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bonobo - Noctuary
+002. Lux - Northern Lights
+003. Salt Tank - Sargasso Sea
+004. Paco de Lucía - Entre Dos Aguas (Remastered 2014)(   Читать дальше...   )Жанр: Lounge, Future-Jazz, Chillout, Downtempo, Easy-ListeningПродолжительность: 09:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0771DABB8B9848AC8FF968984E1F947FFADBE24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030592   (672173) от 01.07.2016
 
 VA - Running Hits & EDM (Non-Stop for Fitness & Workout) (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -718,35 +747,6 @@ VA - Ibiza Beach Answer Commission [Gravitation Sound] (2016) [MP3|245-320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73B86E120BB39064D716219C300516EF7D2C46C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031323   (668772) от 03.07.2016
-
-VA - Club Dance Ambience vol.76 (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668772.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Dizzee Rascal -  Hype (Original Mix) 3:32
-002. Mark Sixma & Futuristic Polar Bears feat. Amba Shepherd -  Cupid's Casualty (Original Mix) 3:28
-003. Vicetone Ft. Cozi Zuehlsdorff -  Nevada (Original Mix) 3:29
-004. DJ Favorite feat. Will Fast -  Together (Original Mix) 4:41(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 08:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D28ABCC53A5CCE9DF503FE65DE4D6DC01B5BCBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,146 @@
+###  Публикация: 1796747   (66886) от 13.05.2025
+
+Gong - I See You (2014) 10th Anniversary, Mix, 2025, Kscope Music [FLAC 24/48|Lossless|WEB-DL|tracks] <Psychedelic-rock, progressive-rock, space-rock, jazz-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I See You (2024 Mix) (3:29)
+02. Occupy (2024 Mix) (2:53)
+03. When God Shakes Hands with The Devil (2024 Mix) (5:36)
+04. The Eternal Wheel Spins (2024 Mix) (7:09)(   Читать дальше...   )Жанр: Psychedelic-rock, progressive-rock, space-rock, jazz-rockПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B5B138AC47F8D534022B8B56342FCAEA5A49C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797144   (66858) от 14.05.2025
+
+Believer - Dimensions (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Technical Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone
+02. Future Mind
+03. Dimentia
+04. What Is But Cannot Be(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF922E0F9CE2E6E78A19DED3B2BF38842C1C1DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797255   (66834) от 15.05.2025
+
+Blood Incantation - Timewave Zero (2022) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66834.jpg" />
+</div>
+
+
+###  Подробнее
+
+A. Io (20:55)
+B. Ea (19:37)Жанр: Death MetalПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569861649132B22C712BA97C771CBDFE30872D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797199   (66826) от 15.05.2025
+
+Novembre - Studio Albums (8 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Gothic/Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Novembre — итальянская метал-группа, образованная в Риме в 1990 году.1994 - Wish I Could Dream It Again
+1996 - Arte Novecento
+2000 - Classica
+2001 - Novembrine WaltzЖанр: Progressive Gothic/Doom/Death MetalПродолжительность: 09:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DAD989B45B7FDA08C4C8623FB5255A31B3681A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797395   (66803) от 16.05.2025
+
+Bury Tomorrow - Will You Haunt Me, With That Same Patience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Dream, To Forget (3:34)
+02. Villain Arc (3:39)
+03. Wasteland (3:21)
+04. What If I Burn (3:52)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310900EBA330E9AF969375A859C5A816EB077042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797632   (66791) от 17.05.2025
 
 Tarja Turunen - Circus Life (2025) Live in Bucharest [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal>
@@ -597,151 +740,6 @@ A4. I Am The Nightrider (Fuel Injected Suicide Machine Remix by Dualized/Zardoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:606BC69336610CF1241D8E5E2924B7227192F44D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797823   (66654) от 19.05.2025
-
-Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dystopia (04:24)
-02. Ascent Of The Blessed (04:10)
-03. Virus (03:55)
-04. Phantom Pain (04:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00: 43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6F9FFCD0578F4C13EDEFB94F6C52F5F74B5EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797918   (66651) от 19.05.2025
-
-DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66651.jpg" />
-</div>
-
-
-###  Подробнее
-
-DevilDriver - американская грув-метал-группа, образованная в 2002 году в городе Санта-Барбара, Калифорния.2003 - DevilDriver
-2005 - The Fury Of Our Maker's Hand
-2007 - The Last Kind Words
-2009 - Pray For VillainsЖанр: Groove Metal/MetalcoreПродолжительность: 08:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347A2B3C6F8438A65436CE8E46E5E3C2FE99DEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798264   (66647) от 21.05.2025
-
-Azure Riff - Thunder in My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gone Too Soon (4:26)
-02.  You Cannot Break a Broken Heart (3:37)
-03.  Blues Got You (3:43)
-04.  Now She's Saying She's Pregnant (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A575A373CE268AC03070DF40D0CDE0CB4EA8C784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798267   (66646) от 21.05.2025
-
-Ben Joseph & The Lay-Lows - The Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fix it or Listen (3:57)
-02.  I'm a rolling stone (3:06)
-03.  Damn Kudzu (2:41)
-04.  I'm a dog (2:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7988272FBE3E9576C7F8CB970FEDA3F932C5D32E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798278   (66645) от 21.05.2025
-
-Earnest 'Guitar' Roy - This Is Earnest 'Guitar' Roy (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  OL - Big Ol Smile (3:44)
-02.  Shop - Body Shop (2:48)
-03.  Hustlin - Dirty Hustlin' (3:13)
-04.  Master - Earnestly (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5071C77580FD673A96F8C18171353DFA237F52C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

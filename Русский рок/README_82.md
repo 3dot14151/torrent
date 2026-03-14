@@ -1,3 +1,90 @@
+###  Публикация: 1609459   (236388) от 03.02.2023
+
+ОгнеДар (экс Цианид) - 5 Relises (2022-2023) [MP3|320 Kbps] <Pagan Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Огнедар - 2022 - Русские топоры
+Огнедар - 2022 - Старые и новые песни
+Огнедар - 2022 - Территория правды(   Читать дальше...   )Жанр: Pagan Folk RockПродолжительность: 5 CD, 03:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA4C2E41A77C797604C17534AC6EBA127F1EDF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457079   (236301) от 25.03.2021
+
+Вячеслав Пронин - Предрассветный (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Дорога [00:03:33]
+02 - Солнце в стенах [00:02:52]
+03 - Мастер [00:03:24]
+04 - Прости, Отец! [00:04:55](   Читать дальше...   )Жанр: RockПродолжительность: 00:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDAF134252AD2136315D304E04DBB675271000B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609844   (236290) от 05.02.2023
+
+Razörschrieck (Razorschrieck) - 3 Albums (2013-2023) [MP3|320 Kbps] <Death Doom Metal,  Depressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2013 - Descensus
+2021 - Tragedies
+2023 - Black MagickЖанр: Death Doom Metal,  Depressive Black MetalПродолжительность: 3 CD, 02:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7D210ED93AC92D5FEBABDAFEBE5A648F379480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575262   (236229) от 09.09.2022
 
 Треустье - Т​ё​м​н​ы​е б​ы​л​и​н​ы (2022) [MP3|224 Kbps] <Dark folk>
@@ -653,93 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1AB21381B1E5DA7A04D24F7406591855E1E6909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580027   (232088) от 30.09.2022
-
-Cerebro - 2 EP (2021-2022) [MP3|320 Kbps] <Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свидетель [00:03:24]
-02. Совесть [00:04:20]
-03. Виварий [00:03:09]
-04. Конфликт [00:03:44](   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 2 CD, 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCB50F6760E1E115C61E26D945D11E571CFE92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645195   (232032) от 08.07.2023
-
-китч (Сергей Раев) - Трофеи (2023) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Двое
-02. Стать Пеплом
-03. Мысли На Потолке (feat. Alex Kabz / Istovo,Rashamba)
-04. Под Звуки Умирающего Мира(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296BDD1DDED29C2154700AE0F74C1CC150D7A983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645182   (232025) от 08.07.2023
-
-Noed - No One Escapes Death (2023) [MP3|320 Kbps] <Strong Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Корабли
-03. Смерть
-04. Ты Знал(   Читать дальше...   )Жанр: Strong MetalПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF144C2CC3BD24D0C6451C7DC152DBFA2A6191D
 ```
 
 https://mybot314.ru/tekegram_catalog/

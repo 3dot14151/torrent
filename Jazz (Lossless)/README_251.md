@@ -1,3 +1,90 @@
+###  Публикация: 1446188   (237992) от 08.02.2021
+
+Fats Waller - 1938 (1996) Classics [FLAC|Lossless|image + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Try Your Jive on Me [3:18]
+02. Ain't Misbehavin' [2:57]
+03. The Flat Foot Floogie [2:47]
+04. Pent Up in a Penthouse [2:34](   Читать дальше...   )Жанр: SwingПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9075CBF9C39BB61095C595B397D0CB752330C4A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446187   (237982) от 08.02.2021
+
+Lennie Tristano - 1946 - 1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out on a Limb [2:44]
+02. I Can't Get Started with You [2:57]
+03. I Surrender, Dear [3:08]
+04. Untitled Blues [3:48](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0C945C21B8F9908DFA45B62AF904C5523306D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446185   (237976) от 08.02.2021
+
+Nat "King" Cole - 1947, Vol. 3 (2000) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Nest [2:35]
+02. Dream a Little Dream of Me [2:51]
+03. Then I'll Be Tired of You [3:11]
+04. Money Is Honey [2:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13EBFCE5BA2324CAD2C5AD18F55969C038BA75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638377   (237945) от 08.06.2023
 
 Ike Quebec - Four Classic Albums (1961, 1962) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Bossa Nova>
@@ -658,93 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D9A7E57AE3ABDD9EA2D9CE47D12904C1E2E618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627414   (237348) от 19.04.2023
-
-The Ruby Braff Trio - Me, Myself And I (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muskrat Ramble [4:39]
-02. Let Me Sing and I'm Happy [3:34]
-03. You've Changed [4:10]
-04. You're a Lucky Guy [4:10](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697186A908C97E6EF72A2E22BBE952D52F9DEB35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360407   (237323) от 15.02.2020
-
-Roy Eldridge - Classic Jazz Archive 1935 - 1945 (2004) 2CD, Membran Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237323.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Wabash Stomp:
-01. When I Grow Too Old To Dream [2:40]
-02. (Lookie, Lookie, Lookie) Here Comes Cookie [3:03]
-03. Big Chief De Soto (Grand Terrace Swing) [2:58](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98DEF8E8F7EC39027031A0F02428D2828820DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627746   (237212) от 20.04.2023
-
-Buck Clayton - Goin' To Kansas City (1960) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello, Babe [3:04]
-02. An Old Manuscript [3:31]
-03. Kansas City Ballad [3:10]
-04. The Jumping Blues [4:12](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE51EA8366B561DF29FBBEDBCBE6C79C7B181741
 ```
 
 https://mybot314.ru/tekegram_catalog/

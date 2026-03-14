@@ -1,3 +1,90 @@
+###  Публикация: 1433433   (161425) от 20.12.2020
+
+Matt Belsante - White Christmas (2008) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bell Rock (3:24)
+02. Sleigh Ride (3:15)
+03. White Christmas (4:11)
+04. Santa Claus Is Coming to Town (3:28)(   Читать дальше...   )Жанр: Vocal Jazz, ChristmasПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86EAA9FCC77D60F08424B1A2398BCDA823ACC0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433252   (161417) от 20.12.2020
+
+Dinah Washington - 3 Essential Albums (1954 - 1956) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161417.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - For Those In Love:
+01. I Get A Kick Out Of You [6:20]
+02. Blue Gardenia [5:20]
+03. Easy Living [5:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D43849AAD13E248A155BAFDE1860002702898FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598893   (161404) от 21.12.2022
+
+Peter Weiss - Conversation With Six-String People (2022) JazzSick Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boplicity [5:43]
+02. La Strada dei Colori [5:04]
+03. Mala Suerte [4:08]
+04. Happy or Sad [5:13](   Читать дальше...   )Жанр: Post-Bop, Jazz Fusion, Guitar JazzПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BED57F6E43005847D97144863AA7DA84CC1EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598894   (161391) от 21.12.2022
 
 Rebirth::Collective featuring Tutu Puoane - It Might As Well Be Swing (2021) SoulFactory [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
@@ -658,93 +745,6 @@ Nat King Cole - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E17B0A8C76C72C9C950DCB506F68C0C8055034BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599874   (159386) от 25.12.2022
-
-Donald Byrd & Pepper Adams - The Complete Blue Note Donald Byrd/Pepper Adams Studio Sessions (1958 - 1967) 4CD, 2000, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159386.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lover Come Back To Me [6:52]
-02. When Your Love Has Gone [5:04]
-03. Sudwest Funk [6:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 04:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C1EA5860425684AD4D4CB67EB9C959F653766E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675974   (159373) от 11.11.2023
-
-Michel Sardaby - In New York (1972) 1997, Sound Hills Records [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Panther of Antigny [8:24]
-02. Waltz for My Father [4:39]
-03. Love Love and Dream [10:10]
-04. Martinica [5:49](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6B514CE56FE9AEAAA9E4284B9EBBBBB23C1D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675991   (159350) от 11.11.2023
-
-Stacey Kent - Summer Me, Winter Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Me, Winter Me
-02. La valse des lilas
-03. Thinking About the Rain
-04. Under Paris Skies(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB103D92EE7C2315FE5BC9917347F877D93702FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

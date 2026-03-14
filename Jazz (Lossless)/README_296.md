@@ -1,3 +1,90 @@
+###  Публикация: 1273254   (138071) от 31.12.2018
+
+Paul Quinichette - Basie Reunion (1958) 2000, Original Jazz Classics [APE|Lossless|image + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Jumped Out [5:57]
+02. The Blues I Like to Hear [7:27]
+03. John's Idea [9:18]
+04. Baby Don't Tell on Me [7:56](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1C21031F4AED23B4D28836D9CE4F942419454C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521028   (138052) от 31.12.2021
+
+Kenny Dorham - The Arrival Of Kenny Dorham (1960) 1997, Venus Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stage West [8:30]
+02. I'm an Old Cowhand [4:16]
+03. Stella by Starlight [5:09]
+04. Delilah [4:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85F542665376E47473FCC078E497C212062D251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273246   (137936) от 31.12.2018
+
+David Wilson - Romance of Christmas (1999) Swallowtail Records [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy to Love [2:50]
+02. In the Still of the Night [3:42]
+03. What Is This Thing Called Love [3:34]
+04. FromThis Moment On [3:32](   Читать дальше...   )Жанр: Jazz-Pop, Violin JazzПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08FB082DFBD7D31D9B772D84996AA600D8DB854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273247   (137929) от 31.12.2018
 
 David Wilson - There's A Small Hotel (1997) Swallowtail Records [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Violin Jazz>
@@ -706,93 +793,6 @@ VA - New Year's Eve Jazz 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1C0CFC3EAA5FF33616A51A442749B790CA29355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680358   (134379) от 29.11.2023
-
-Gigi Gryce & Donald Byrd - Jazz Lab (1957) 2010, Jubilee [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Lights [4:03]
-02. Onion Head [4:45]
-03. Isn't It Romantic [4:53]
-04. Bat Land [7:06](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F366DB09C6F5D3D65CFC0F4F3EC543E81B22C155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680351   (134371) от 29.11.2023
-
-Cal Tjader - Gozame! Pero Ya... (1980) 1987, Concord Picante [FLAC|Lossless|tracks + .cue] <Latin Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoshana [5:12]
-02. This Couldn't Be the Real Thing [6:35]
-03. Bye Bye Blues [6:55]
-04. Roger's Samba [4:32](   Читать дальше...   )Жанр: Latin Jazz, CoolПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BF9C618575887A19EAC288266A0CE87B97E037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680359   (134365) от 29.11.2023
-
-Herb Ellis / Ray Brown Sextet - Hot Tracks (1976) 1990, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Onion Roll [4:26]
-02. Spherikhal [4:55]
-03. But Beautiful [5:25]
-04. Blues for Minnie [4:41](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D108E0A1C5FA67B766CF5A02C3818C8B5D727A48
 ```
 
 https://mybot314.ru/tekegram_catalog/

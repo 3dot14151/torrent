@@ -1,3 +1,159 @@
+###  Публикация: 600638   (998531) от 09.01.2013
+
+Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29AAC356EF5AF60371C98D64036970C11E5F919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600636   (998523) от 09.01.2013
+
+EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DubstepПродолжительность: 00:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1E6DE4071AC9AEFDD14683D39FC5FF1DF46E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601103   (998364) от 10.01.2013
+
+DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDB77D3B6DCD95C35D4DF8B6B6B9E7E5D1203F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601102   (998332) от 10.01.2013
+
+Kim Sori - Dual Life (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, PopПродолжительность: 00:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E358197BBEBF601A7A1C4EA70519F93A21B60CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601455   (998260) от 10.01.2013
+
+Лучшие клубные видеомиксы / Euroadrenaline Video Yearmix 2012 [720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию зрителей представлен новый, 6-й по счету, видеомикс лучших клубных треков (по версии Supremo) в стиле Trance, Dance & House - Euroadrenaline Video Yearmix 2012.Жанр: Trance, Dance & HouseПеревод: ОригинальныйПродолжительность: 01:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FBAE1F9757DD370D6ED614F6D4D2C550FD1488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601922   (998019) от 11.01.2013
+
+Мегамикс / Philizz Video YearMix 2012 [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сборник клипов: все закручено и заверчено мегамиксом от голландского ви-джея Philizz.Жанр: Pop, Club, Dance, HouseПеревод: ОригинальныйПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68F832D244EF779D33679AB1F5D10550627EBE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602095   (997817) от 12.01.2013
 
 Eloy - The Legacy Box DVD 1 (русские субтитры) (2011) DVDRip
@@ -568,165 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04FE6744D0EB8153E1A8D37D726E9E2EB570585F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608797   (992790) от 26.01.2013
-
-Becky G feat Will.I.Am - Problem [The Monster Remix] (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: pop, r.n.bПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CF207DBC789D7B76F98070D3BBE5402269B045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609255   (991733) от 27.01.2013
-
-Сборник клипов - VA - Various Music part. 39 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991733.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2CELLOS - Supermassive Black Hole ft. Naya Rivera 1080p (3:46)
-2. 50 Cent - Major Distribution (Explicit) 1080p (4:23)
-3. AMOUAGE - Солнце 1080p (3:49)
-4. Armin van Buuren & Markus Schulz - The Expedition (ASOT600 Anthem) 720p (5:24)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A891A1D93077FC7BF2D65D4A7C446566FE36A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609890   (991231) от 28.01.2013
-
-David Guetta Feat. Taio Cruz & Ludacris - Little Bad Girl (2011) BDRip [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D87314B768A9D0EC7D959D87126E711C362ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609529   (991229) от 28.01.2013
-
-Inna - Endless (2011) HDRemux [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95170BDD77332826199E674DEA90797EDB77641A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609943   (991157) от 28.01.2013
-
-Ke$ha / Kesha - C'Mon (2013) HDRemux [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD685A787F2C1243F161044B6D0269735B2658A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609819   (991153) от 28.01.2013
-
-Gotye ft. Kimbra - Somebody That I Used To Know (2011) BDRip [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Indie PopПродолжительность: 00:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD5E617044293C55779683CA3F0B21F2EF2B6E02
 ```
 
 https://mybot314.ru/tekegram_catalog/

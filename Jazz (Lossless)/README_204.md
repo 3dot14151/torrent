@@ -1,3 +1,96 @@
+###  Публикация: 950770   (366188) от 28.10.2015
+
+Art Blakey & The Jazz Messengers - The Witch Doctor (1961) /1999, Capitol/[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Witch Doctor [05:33]
+02.Afrique [06:59]
+03.Those Who Sit And Wait [05:55]
+04.A Little Busy [06:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BA9A77EB85C930D3469C43940D8E4D4D103BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575998   (365938) от 16.11.2012
+
+VA - Blow Up A-Go-Go! Dancefloor Classics From The Legendary Blow Up Club (1999) [FLAC (tracks)|Lossless]<Soul, Funk, Beat, Mod>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_365938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Quik - Bert's Apple Crumble [1967] (02:13)
+02. James Clarke - Blow Up A-Go-Go! [1973] (02:32)
+03. Georgie Fame - Somebody Stole My Thunder [1969] (03:07)
+04. Soul Hooligan - Sweet Pea [1998] (04:03)
+05. The Coasters - Love Potion No.9 [1970] (02:37)
+06. Johnny Otis Show - Watts Breakaway [1969] (02:34)
+07. The Spencer Davis Group - I'm A Man [1967] (02:52)
+08. Mongo Santamaria - Cloud Nine [1970] (04:22)
+09. Incredible Bongo Band - Bongolia [1971] (02:14)
+10. Bobby Hughes Experience - Sahara 72 [1999] (05:07)(   Читать дальше...   )Жанр: Soul, Funk, Beat, Rock'n'Roll, ModПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226141   (365896) от 17.10.2018
+
+Basia - Butterflies (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bubble
+02. Matteo
+03. No Heartache
+04. Butterfly(   Читать дальше...   )Жанр: Smooth Jazz, Bossa NovaПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7BC990AC12DB67A74027DC9DD962A6D6101DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416679   (365532) от 17.10.2020
 
 Ray Bryant Trio - Gotta Travel On (1966) 2011, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
@@ -655,93 +748,6 @@ CD1 - Topsy:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEE8BF617BA193C819E1F0C5292A464C44672C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070955   (361945) от 09.11.2016
-
-Chuck Mangione - Classics Volume 6 (1987) 1990, A&M Records[FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Feels So Good [09:44]
- 02.Hill Where The Lord Hides [06:26]
- 03.Bellavia [06:33]
- 04.Fun And Games [07:15](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E2721FFA23C5AA66D6897B2AB582EC088EBCCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576857   (361840) от 16.09.2022
-
-The Pete Jolly Trio And Friends - Little Bird (1963) 2007, P-Vine Non Stop [FLAC|Lossless|image + .cue] <Cool, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Bird [2:25]
-02. Three-Four-Five [2:59]
-03. Never Never Land [6:40]
-04. Alone Together [8:07](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Piano JazzПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7467A8443B595A3D1B253A4B6A019AEA615D19F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836686   (361772) от 01.11.2014
-
-Club Des Belugas & Thomas Siffling - The Chinchin Sessions (2013) [FLAC|Lossless|WEB-DL]<Nu Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Small Steps
-02. This Little Life of Mine (Feat. Veronika Harcsa)
-03. Anticipation
-04. One Hand Clapping (Feat. Veronika Harcsa)(   Читать дальше...   )Жанр: Nu Jazz, Electro SwingПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AB7A29F1C9D366A6E8E7764C84FC4BD24FB325
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 932606   (508315) от 30.08.2015
+
+Hugh Coltman - Shadows Songs Of Nat King Cole (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz, Folk, Acoustic>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Disenchanted (4:23)
+02. What'll I Do (4:03)
+03. Pretend (4:04)
+04. I Can't Be Bothered (2:59)(   Читать дальше...   )Жанр: Vocal Jazz, Folk, AcousticПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B74E8B76810E95D81DC91D6C783B8665CC013A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932602   (508166) от 30.08.2015
+
+Halie Loren - Butterfly Blue (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yellow Bird
+02. I Wish You Love
+03. Blue
+04. Stormy Weather(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D6950D13FC6DCA996754F0EF31BC765CFC0D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562610   (508068) от 10.07.2022
+
+Tony Testa - Back To The Basics (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Green Onions (00:04:16)
+02 - Singin' The Blues (00:05:32)
+03 - Mannish Boy (00:07:17)
+04 - Boom Boom (00:05:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC218061ABB095B1E3E54C7817AB6EAF5C38296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316221   (507803) от 24.07.2019
+
+Clark Terry & Max Roach - Friendship (2002) Village Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Statements [1:47]
+02. Let's Cool One [6:36]
+03. Brushes And Brass [1:45]
+04. Simple Waltz [3:11](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB2EE10422302EAFAF1CA4BDA7024771DFAA890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316294   (507752) от 24.07.2019
+
+John Mayall - Jazz Blues Fusion (1972) Reissue, 2015, PolyGram Records Inc. [FLAC|Lossless|WEB-DL|tracks] <Jazz, Rock, Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Road (6:55)
+02. Messin' Around (2:40)
+03. Good Times Boogie (8:20)
+04. Change Your Ways (3:25)(   Читать дальше...   )Жанр: Jazz, Rock, Blues, Blues RockПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8358321E844F0E51387C0728B7C996D2FAA5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933096   (507260) от 31.08.2015
+
+John Coltrane - My Favourite Things (1991) /ORO/[FLAC|image+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Favourite Things [10:38]
+02. Blue Train [09:05]
+03. Impressions [07:27]
+04. Spiritual [12:03](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8F8DED2D463CEF526E365B53B7FA4882144372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933159   (507256) от 31.08.2015
 
 Kenny Burrell - For Charlie Christian And Benny Goodman (1966/1967) /1991, Par Media Music/ [APE|image+.cue]<Bop, Hard Bop, Mainstream Jazz>
@@ -583,180 +757,6 @@ Peter White - Smile (2014) [FLAC|Lossless]<Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F42F86C0EA4D0F4DA3503C2349E73B006966F05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316460   (505968) от 26.07.2019
-
-Lightning Hall - Gasoline (2019) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost In The Shuffle (04:24)
-02. Gasoline (05:00)
-03. From The Other Side Of Town (04:59)
-04. Just Because You Can (05:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8029F6BE521845FE4E8443B34E483F540D67EE6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316477   (505966) от 26.07.2019
-
-Eddie Higgins Quartet featuring Scott Hamilton - My Funny Valentine (2005) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'd Be So Nice To Come Home To [7:02]
-02. I'm A Fool To Want You [3:56]
-03. When Sunny Gets Blue [4:55]
-04. Alone Together [7:08](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B66A11A0AA6EFC56C1682ACC52491C663945E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181571   (505860) от 01.09.2015
-
-Shakti with John McLaughlin - 6 альбомов (1976 - 2001) [FLAC, APE, Lossless]<Jazz, Carnatic music, World fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_505860.jpg" />
-</div>
-
-
-###  Подробнее
-
-John McLaughlin - один из самых разносторонних и влиятельных гитаристов нашего времени, добившихся признания во всем мире. Джон Маклафлин - инновационный фьюжн-гитарист, получивший известность с начала 70-х, возглавлял незабвенный Mahavishnu Orchestra и на протяжении всех лет своей творческой карьеры сохранил репутацию феноменального и последовательно любознательного (   Читать дальше...   )1976 - Shakti with John McLaughlin
-1977 - A Handful of Beauty
-1977 - Natural Elements
-1999-John McLaughlin, Zakir Hussain, T.H.”Vikku”Vinayakram – Remember Shakti(2cd)(   Читать дальше...   )Жанр: Jazz,Carnatic music, World fusionПродолжительность: 06:51:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933592   (505503) от 02.09.2015
-
-Teddy Edwards Quartet - Good Gravy (1981) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Be Good [14:50]
-02. Oleo [05:54]
-03. Georgia [10:48]
-04. Good Gravy [09:04]Жанр: Hard Bop, West Coast JazzПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E21EA8AA312389277E7C383FB2516E02F5DE53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933358   (505502) от 02.09.2015
-
-Thomas Chapin Trio - Third Force (1991) /Knitting Factory/ [FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahab's Leg [10:15]
-02. Poet O Central Park [04:50]
-03. Iddly [07:40]
-04. Tale of the Sands [08:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5ECCD7EAB33B441C536E6D72349BA72097029B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563243   (505477) от 13.07.2022
-
-Bruce j - Bogo (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B/Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Official (3:46)
-02. Bad to da bone (3:23)
-03. Call me (3:04)
-04. Bogo (3:43)(   Читать дальше...   )Жанр: Blues, R&B/SoulПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9275DB2B5E6B8CD4801225135BC97C6615DDDB3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

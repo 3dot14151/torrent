@@ -1,3 +1,32 @@
+###  Публикация: 1275287   (790469) от 11.01.2019
+
+VA - Radio DFM: D-Chart Итоговый 2018 Top 50 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Dua Lipa - One Kiss 3:35
+02. Dynoro & Gigi D'Agostino - In My Mind 3:05
+03. Sofi Tukker - Batshit 3:23
+04. Avicii feat. Rita Ora - Lonely Together 3:02(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 02:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C12B9B92BECF18EB563EA79A65D6819BEFA040C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508936   (790281) от 18.11.2021
 
 Cheeps - Аппликация (2021) Bootleg [MP3|192 Kbps] <IndiRock>
@@ -713,35 +742,6 @@ VA - Uplifting Language Adaptation (2019) [MP3|320 Kbps] <Melodic, Emotional, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79631A645F1265399D613866713F59A0079C54E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276658   (787628) от 17.01.2019
-
-VA - Billboard Hot 100 Singles Chart 19.01 2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787628.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
-002. Halsey - Without Me
-003. Ariana Grande - thank u, next
-004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B6C831E2C25E234DE041C0615FA77C9E9F6E66
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,146 @@
+###  Публикация: 1256552   (354266) от 22.10.2018
+
+Ernest Lyons - Sleep Naturally (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Night in the forest
+02. Wetland Symphony
+03. Before the Rain
+04. Dusk in the Wildwood.(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8970A073E2B0FB7D6B34AED911D1A304612C26F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256634   (354150) от 22.10.2018
+
+Toskana & Chakra's Dream - Chakra Meditation Music (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 7 Chakras
+02 - Chill Music (Emotional Songs)
+03 - Serenity (Yoga, Meditation and Relaxation Music)
+04 - Calming Music (Violin)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF65D0BE392ECE43DE6C90D4FD6EA2843B4B7698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256544   (353864) от 22.10.2018
+
+Two Steps from Hell - Illumina (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Could've Been
+02 Ulthuan
+03 Corruption
+04 Organic Multiplication(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3209D5069FE8F1CD7EBD8A75DAE3F1A164DE88A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177811   (353705) от 29.10.2017
+
+VA - Dreamline 3 (2017) [MP3|320 Kbps] <New Age, Balearic, Leftfield>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Lotus - Hopes Are Forever
+02. Robert Scharnke - Between Faded Raindrops
+03. Ocean Mind - Night Life
+04. Hidden Hand - Summer Nostalgie(   Читать дальше...   )Жанр: New Age, Balearic, LeftfieldПродолжительность: 03:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CFA003A8D06AA071413D153363F83E93E8DE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177883   (353701) от 29.10.2017
+
+VA - Cytus OST v.5.0.0 (2013) [MP3|128-192 Kbps] <Soundtrack>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sta - Loom (Main Menu)
+02. Result ScreenЖанр: SoundtrackПродолжительность: 04:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F7AE0995C5789E8C02EB027BF5051A44DA3787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952306   (353514) от 02.11.2015
 
 Carlos Rodrigo - Argentine Tango (2001) [MP3|~160 кб/с (V4)]<Tango>
@@ -606,151 +749,6 @@ Steve Orchard - Theory of Communion (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA702F9BD36A48AD6015337407C53498CBB2C5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257009   (349925) от 24.10.2018
-
-Ryan Judd - An Open Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking Back
-02. The Embrace
-03. An Open Sky
-04. Heartstrings(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3BFC2214C21E885E84B61577424D853CFBCA8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256916   (349759) от 24.10.2018
-
-VA - Autumn Breeze Vol. 2 - Chill Sounds for Relaxing Moments (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Borell - Enter the Light (Buddha Gold Mix)
-02. Lovechair - Promenade (Smaller Things in Life Cut)
-03. Airstream - Mellow Tone (Eternity Mix)
-04. Jazzy James Jr. - On a Atmospheric Trip (Jazzlounge Cut)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 04:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333D92E47F18F3964605E50147D2FE9B35A1F5EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072831   (349715) от 14.11.2016
-
-Ajeet Kaur - Haseya (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akaal [00:08:51]
-02. Chattr Chakkr [00:09:01]
-03. Haseya [00:06:52]
-04. Kiss the Earth [00:07:12](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6204304FDE4C6552A17329B25E90ACD1A4B70FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072727   (349599) от 14.11.2016
-
-L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень странные дела (Soundtrack Highlights and Inspirations) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Things Theme Extended (01:32)
-02. Kids (02:40)
-03. Nancy & Barb (01:07)
-04. Chromatic Mechanics 2 (03:40)(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaveПродолжительность: 00:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC018F28DAEBD26C31112E3B6125A83C6A4AE34B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952290   (349558) от 04.11.2015
-
-Yarek - Noc Na Zamku (2008) [FLAC|image+.cue]<Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Moonlok 6:17
-02.Mrok 6:39
-03.La Orkestra 4:01
-04.Ambient (Part 2) 5:42(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EFE94EC250918BCE4C8A100B28F0493D1CB328
 ```
 
 https://mybot314.ru/tekegram_catalog/

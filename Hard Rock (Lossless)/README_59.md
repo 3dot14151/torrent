@@ -1,3 +1,119 @@
+###  Публикация: 1303484   (297048) от 14.11.2020
+
+AC/DC - 29 albums, 4 Box sets, 122 CD (1974-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock, Rock'n'Roll>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297048.jpg" />
+</div>
+
+
+###  Подробнее
+
+AC/DC — австралийская рок-группа, сформированная в Сиднее в ноябре 1973 года выходцами из Шотландии, братьями Малькольмом и Ангусом Янгами. Вместе с такими группами как Led Zeppelin, Deep Purple, Queen, Iron Maiden, Scorpions, Black Sabbath, Uriah Heep, Judas Priest и Motörhead AC/DC часто рассматриваются как пионеры хард-рока и хеви-метала. Сами же музыканты (   Читать дальше...   )--------------------------
+
+01. Heatseeker (3:50)
+02. That's The Way I Wanna Rock 'N' Roll (3:45)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Rock'n'Roll |Продолжительность: 93:01:49 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0808AA06025FFCFBD87CB240AA1FD9FA55E6F3E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334213   (296814) от 28.10.2019
+
+Airbourne - Boneshaker (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boneshaker (03:30)
+02. Burnout the Nitro (03:31)
+03. This Is Our City (03:05)
+04. Sex to Go (02:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D539EABC62919FAC25D489196A8A21A70BE4DB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423968   (295667) от 15.11.2020
+
+Black Stone Cherry - The Human Condition (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ringin' In My Head (4:13)
+02. Again (3:56)
+03. Push Down & Turn (3:16)
+04. When Angels Learn To Fly (4:33)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3367CF1C1BAF70B9BD2BD637214D2D823C9BC8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334811   (293370) от 30.10.2019
+
+Michael Sweet - Ten (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Part of Me (3:34)
+02. Lay It Down (3:30)
+03. Forget, Forgive (4:49)
+04. Now or Never (4:30)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71081B76CAC7BD997E50FB4CF39C86FC06791F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079775   (291896) от 05.12.2016
 
 Uriah Heep - Salisbury (1970) 2CD, Remastered, 2016, Sanctuary Records [FLAC|Lossless|image + .cue]<Hard Rock>
@@ -627,122 +743,6 @@ Crash - Crash (1993) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C80226D868EEFECF05CC9B3E199841457E7048E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337875   (267124) от 18.11.2019
-
-Lover Under Cover - 2 альбома Collection (2012-2014) [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover Under Cover - A Fight 04:37
-02. Lover Under Cover - Into The Shadows 04:01
-03. Lover Under Cover - Miracle 03:43
-04. Lover Under Cover - Toy Soldier 04:25(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766C6F5E3E0F6AF1768F8E0CE9BAD8DC3AA248D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337952   (267120) от 18.11.2019
-
-Mikael Erlandsson - 5 альбомов Collection (1995-2002) [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mikael Erlandsson - Out Of Champagne 03:18
-02. Mikael Erlandsson - Stop (Following Me) 04:07
-03. Mikael Erlandsson - I Love You 04:16
-04. Mikael Erlandsson - Soul Is My Neme 04:39(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 04:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611AEA84E81A9D7F20DF792C4833F66F02880C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339599   (265337) от 20.11.2019
-
-Last Autumn's Dream - 18 Альбомов Collection (2003-2018) 19CD [FLAC|Lossless|image + .cue]<Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2003 – Last Autumn's Dream
-2004 – Last Autumn's Dream II
-2005 – Winter In Paradise(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 16:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8323FC75131FF6EE061DF0869FD84E89DC050D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339826   (264672) от 21.11.2019
-
-W.E.T. - 4 Альбома Collection (2009-2018) 5 CD [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2009 – W.E.T.
-2013 – Rise Up
-2014 – One Live(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 04:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70778CCD7C9F76CF4D66E768D5A8535F76F30D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

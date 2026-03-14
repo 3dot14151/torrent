@@ -1,3 +1,294 @@
+###  Публикация: 1493890   (892562) от 05.09.2021
+
+Malison Rogue - Malison Rogue (2011) [WavPack|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friend Or Foe? (04:00)
+02. The Pain You Cause (03:36)
+03. The Griever (05:08)
+04. My Mistakes (04:33)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ADDD49785D0A2594CD6E507F1962B4ECEA32B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493885   (892559) от 05.09.2021
+
+Aborted - ManiaCult (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Verderf
+02. Maniacult
+03. Impetus Odi
+04. Portal To Vacuity(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D09AA793DC5472697F6BA303B7E5C40440C94D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493847   (892556) от 05.09.2021
+
+Rebellion - We Are The People (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892556.jpg" />
+</div>
+
+
+###  Подробнее
+
+REBELLION - немецкая Heavy/Power Metal группа, активная с 2001-го года. Основали группу музыканты GRAVE DIGGER (гитарист Uwe Lulis и басист Tomi Göttlich), на сегодняшний день из основного состава в REBELLION остался только Tomi Göttlich и вокалист Michael Seifert (WOLFCHANT, XIRON, ex-BLACK DESTINY).
+"We Are The People" - девятый полноформатный (   Читать дальше...   )01. Voices Of War
+02. Risorgimento (Tear Down The Walls)
+03. Liberte, Egalite, Fraternite
+04. Sweet Dreams(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3776BED05B72A5C4729473F70ACFDAA3FF24D3FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493748   (892553) от 05.09.2021
+
+Dragonbreath - The Awakening (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thermopylae
+02. Achilles' Revenge
+03. The Curse
+04. 1974(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7A608170D83E438FE9E4A90F3166BE2E8BAF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493823   (892469) от 05.09.2021
+
+Feanor - Power Of The Chosen One (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892469.jpg" />
+</div>
+
+
+###  Подробнее
+
+FEANOR - Heavy Metal группа из Аргентины, сформированная в 1996-ом году. Название было позаимствовано у одного из персонажей произведения английского писателя Дж. Р. Р. Толкина "Сильмариллион"."Power Of The Chosen One" - четвертый полноформатный альбом FEANOR, вышедший 23-го апреля 2021-го на Massacre Records. Сведением и мастерингом группа занималась (   Читать дальше...   )01. Rise Of The Dragon
+02. Power Of The Chosen One
+03. This You Can Trust
+04. Metal Land(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94E08555AF83C1F0126A7E0C56E3DDC00AE45FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869248   (892452) от 14.02.2015
+
+Nightwish - Elan (2015) /CDS/ [FLAC|Lossless]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elan (Album Version)
+02. Sagan
+03. Elan (Alternate Version)
+04. Elan (Radio Edit)Жанр: Symphonic Power MetalПродолжительность: 00:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBF0FAEAA15354B2508FBDBD6B37E99E8EB5B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493794   (892412) от 05.09.2021
+
+At Vance - 9 Studio Albums (1999-2012) 9xCD [FLAC|Lossless|image + .cue] <Power Metal, Neo-Classical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892412.jpg" />
+</div>
+
+
+###  Подробнее
+
+At Vance – немецкая метал-группа, основанная в 1998 году гитаристом-виртуозом Олафом Ленком (Olaf Lenk) и вокалистом группы Centers Оливером Хартманном (Oliver Hartmann). Уже весной следующего года новоиспечённый коллектив подписал контракт с лейблом Shark Records, а в сентябре - выпустил дебютный альбом под названием «No Escape».1999 - No Escape
+2000 - Heart Of Steel
+2001 - Dragonchaser
+2002 - Only Human(   Читать дальше...   )Жанр: Power Metal, Neo-Classical MetalПродолжительность: 08:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578920D1836D2890FC03C6E4A40648624DFF7A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296487   (891718) от 05.09.2021
+
+Iron Maiden - 59 аlbums, 7 Box-sets, 207 CD (1979-2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>След.
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iron Maiden — британская хеви-метал-группа, которая в начале 1980-х гг. являлась одним из известнейших представителей новой волны британского хеви-метала (NWOBHM), а позже оказала значительное влияние на развитие метала в целом. История группы Iron Maiden неразрывно связана с именем её отца-основателя, идейного вдохновителя и бессменного лидера бас-гитариста Стива (   Читать дальше...   )--------------------------
+
+01. Senjutsu (8:20)
+02. Stratego (5:00)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 159:16:19 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9241A5792742B5B1060304A1BC8CB8D23440E229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993641   (891666) от 07.03.2016
+
+Krallice - Krallice (2008) [FLAC|Lossless|image + .cue] <Avant-garde Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wretched Wisdom 10:14
+02. Cnestorial 10:42
+03. Molec Codices 09:35
+04. Timehusk 06:05(   Читать дальше...   )Жанр: Avant-garde Black MetalПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307E2CBEA8EF84DA445BBF1199E58FD5102FB8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993642   (891656) от 07.03.2016
+
+Jarra - Test of Faith (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Love
+02. Black Snow (The Final Sign)
+03. Pain
+04. Indian War Love Song (Deliver Me)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A754F755BACB2AA10B61A1992E8719A362BB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993636   (891648) от 07.03.2016
 
 Paths Of Possession - Promises In Blood (2005) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -455,296 +746,6 @@ Leaves' Eyes - (с англ. - «Глаза листьев») — герман
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDD6752908B3C57E3EC5E38FB8CEB7D548087283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166400   (888252) от 01.04.2020
-
-Threshold - 11 Albums, 4 Compilations, 6 Lives, 3 Singles (1993 - 2018) 39CD [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Threshold (с англ. - «Порог») — английская рок-группа, играющая в стиле «прогрессивный метал». Основана в 1988 году в городе Суррей (Англия). Threshold — одна из ведущих групп прогрессив-металла, которая существует уже более 20 лет.Список альбомов:
-1993 - Wounded Land
-1994 - Psychedelicatessen
-1997 - Extinct Instinct(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 30:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0737DC6F0A0337F48F12A00253166DAE166BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994686   (888243) от 09.03.2016
-
-Fight - Mutations (1994) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Into the Pit (Live) 4:10
-02 Nailed to the Gun (Live) 3:34
-03 Freewheel Burning (Live) 4:45
-04 Little Crazy (Live) 4:56(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C115C664333FFA3894BE9058E743BF566D970075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994930   (888239) от 09.03.2016
-
-Gehennah - Too Loud to Live, Too Drunk to Die (2016) [FLAC|Lossless|image + .cue] <Black, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still The Elite
-02. Life Metal Must Die
-03. Too Loud To Live, Too Drunk To Die
-04. Scumbag(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A694ED1B48B876EA8C8441D38CCD255EE32844A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994779   (888234) от 09.03.2016
-
-Fight - A Small Deadly Space (1995) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Beneath the Violence 5:06
-02 Legacy of Hate 4:38
-03 Never Again 3:56
-04 Mouthpiece 3:22(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D79CFF88F82A87B2113DEC8B4965189073EFF2CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994783   (888231) от 09.03.2016
-
-Fight - K5 - The War Of Words Demos (2006) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Into the Pit 4:35
-02 Nailed to the Gun 3:33
-03 Now You Die (New 2006) 3:36
-04 Life in Black 4:51(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE44A5E0E38B8DE6B0CFEB3B7DC65A5C5BAE939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994794   (888127) от 09.03.2016
-
-Rob Halford - The Essential Halford (2015) 2CD Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun
-02. Golgotha
-03. Slow Down
-04. The Hellion (live)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F78BC098FEB023EDBE14249BDC571CFD28E01D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494502   (887864) от 08.09.2021
-
-Messiah's Kiss - Prayer For The Dying (2002) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rising (instrumental)
-02. Light in the Black
-03. Reign of Fire
-04. Dream Evil(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F213F353781509E7C8AC32B5BBC06F8A209E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494649   (887822) от 08.09.2021
-
-Bloodbound - Creatures Of The Dark Realm (2021) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Creatures Preludium
-02. Creatures Of The Dark Realm
-03. When Fate Is Calling
-04. Ever Burning Flame(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9842A32331E9235661549010D4BDEDA67184D356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103102   (887766) от 11.02.2017
-
-Doro - Machine II Machine (1995) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tie Me Up (5:00)
-02. The Want (6:31)
-03. Ceremony (4:58)
-04. Machine II Machine (5:03)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C34D0BA84816AD3CA269DECA4D609C82A80269C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103101   (887648) от 11.02.2017
-
-Doro - Angels Never Die (1993) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye On You (3:06)
-02. Bad Blood (4:10)
-03. Last Day Of My Life (5:34)
-04. Born To Bleed (4:24)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Soft RockПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7940F35C59BAE019B6B66BADDDB1E935AF5AD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

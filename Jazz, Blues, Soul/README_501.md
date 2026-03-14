@@ -1,3 +1,177 @@
+###  Публикация: 1716668   (111350) от 16.04.2024
+
+Kevin & JD - 10 From 5 - The Best Of Kevin & JD (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Up The Blues (3:32)
+02. Who's The Boss (3:12)
+03. Bad Apple (4:19)
+04. Puppet (6:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8027D045248B5C0910464B7AC3B2A70CE015640C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716619   (111336) от 16.04.2024
+
+Erroll Garner - Closeup in Swing & A New Kind of Love (1961, 1963) 1997, Telarc [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Do Something to Me [3:15]
+02. My Silent Love [4:05]
+03. All of Me [2:21]
+04. No More Shadows [4:07](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91061BEC676F3F42325A1233FE49C8EE04898266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716529   (111334) от 16.04.2024
+
+VA - Jazz Dinner Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Café Drechsler - And Now…Boogie! (2:48)
+02. Chet Baker - Let's Get Lost (3:44)
+03. Vienna Art Orchestra - Rem Blues (3:54)
+04. Wolfgang Puschnig - Microphone Veteran (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B278B5E0F5A82248AD5788EB5DEA27680AD24D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716532   (111333) от 16.04.2024
+
+VA - Jazzy Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolfgang Puschnig - Naima (3:46)
+02. Benny Carter - If Dreams Come True (5:49)
+03. Oscar Peterson - Come Dance With Me (2:19)
+04. Dinah Washington - Teach Me Tonight (2:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7F6999B40CA290FF3349F1EF66C15581D9B733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716539   (111332) от 16.04.2024
+
+VA - Urban Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Funk, Downtempo, Soulful House>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anduze - How To Love A Good Man (Those Guys From Athens Radio Remix) (3:23)
+02. Durty Geeks - Dolomyte (4:05)
+03. Funk Revenge - By Our Side (4:18)
+04. Vito Lalinga (Vi Mode Inc. Project) - Funk In A Min (4:44)(   Читать дальше...   )Жанр: Chill Out, Funk, Downtempo, Soulful HouseПродолжительность: 02:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64EF7ADEF76FC965F13707F710C580EF50E058E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716536   (111330) от 16.04.2024
+
+VA - Ultimate Relaxing Jazz Music for Weekends (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Konstantin Klashtorni - Humble and Kind (4:07)
+02. Kool&Klean - Sail (5:06)
+03. Kool&Klean - Twilight (4:34)
+04. Chillaxonic - Within Attraction (3:46)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 02:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A78EB421800874276540F8975FA6CD9B98049E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716537   (111321) от 16.04.2024
 
 VA - Ultimate Relaxing Lounge Jazzy Weekend Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -571,180 +745,6 @@ Boogie Beasts - Neon Skies & Different Highs (2024) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BF9B56EFC449013BA316470272BD003C2BF2883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717436   (111156) от 20.04.2024
-
-Matt Ottewill - 12 From 5 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Intermediate Group (Remix) (6:14)
-02. Given Name (Remix) (6:08)
-03. Across the Lake (Remix) (4:21)
-04. Where Is Raoul Wallenberg? (Remix) (7:36)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FE7A2964BA2E6D4701397C03F051A17E3B79AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717426   (111147) от 20.04.2024
-
-Joe Mooney - The Happiness Of & The Greatness Of... (1964, 1965) 2000, Koch Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wait Till You See Her [2:55]
-02. But Beautiful [2:53]
-03. The Second Time Around [2:38]
-04. I Wish You Love [2:43](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D0C0E04B3246E19321A425DD43E0B3437D79EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717424   (111140) от 20.04.2024
-
-Erroll Garner Trio - The Most Happy Piano: The 1956 Studio Sessions (2010) 2CD, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonglow [5:29]
-02. All God's Chillun Got Rhythm [5:02]
-03. Creme de Menthe (aka Dreamy) [4:45]
-04. Humoresque [5:11](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 02:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401DDBE5AEE5B14134C2A6667934A7007072C0E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717430   (111138) от 20.04.2024
-
-Paul Motian Trio - It Should've Happened a Long Time Ago (1985) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Should've Happened a Long Time Ago [6:07]
-02. Fiasco [7:49]
-03. Conception Vessel [4:32]
-04. Introduction [3:06](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D4AA38324B343EA6B303EB4082973D16C3155B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717647   (111118) от 21.04.2024
-
-Paul Bley - The Paul Bley Synthesizer Show (1970, 1971) 2017, Bamboo [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Joy [4:35]
-02. The Archangel [6:52]
-03. Nothing Ever Was, Anyway [6:51]
-04. Gary [4:37](   Читать дальше...   )Жанр: Avant-Garde Jazz, Jazz FusionПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94E7C3493FDB4D9A4C442365FC7493D94EA1A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717644   (111117) от 21.04.2024
-
-Tal Farlow - Complete 1956 Private Recordings (2002) 2CD, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Things You Are [9:24]
-02. I Remember You [14:14]
-03. Yesterdays [11:17]
-04. Let's Do It [10:43](   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 01:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7C35B49750BB2890CE72FD1B596D6F8B514C0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

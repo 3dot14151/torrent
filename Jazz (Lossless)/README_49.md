@@ -1,3 +1,32 @@
+###  Публикация: 1107001   (868340) от 22.02.2017
+
+Chris Barber - Great Moments With ... (1998) AGAT Company [FLAC|Lossless|tracks + .cue] <Dixieland, Revival>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Wish I Could Shimmy Like My Sister Kate [02:55]
+ 02.Volga Boatman's Song [04:37]
+ 03.Perdido Street Blues [04:40]
+ 04.Jazz Holiday [03:21](   Читать дальше...   )Жанр: Dixieland, RevivalПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599733F75488C00EE5E3FF4EF44E5175DAF41070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107584   (868339) от 22.02.2017
 
 Peter Erskine and the Dr. Um Band - Second Opinion (2017) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Crossover Jazz>
@@ -715,35 +744,6 @@ John Hicks - Nightwind: An Erroll Garner Songbook (1999) HighNote [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1919B988BB3FD39CB7A47E71DBD0B07B0FD1412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108240   (864837) от 24.02.2017
-
-Omer Klein - Sleepwalkers (2017) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonder and Awe
-02. Sleepwalkers
-03. Blinky Palermo
-04. One Step at a Time(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92702B34338FBF6701319A6C956F4FF6519F6F8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

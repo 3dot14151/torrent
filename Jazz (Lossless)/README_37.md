@@ -1,3 +1,32 @@
+###  Публикация: 1096851   (917799) от 25.01.2017
+
+Dave Brubeck - This Is Jazz (1953 - 1964) 1996, Legacy[FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Take Five [05:27]
+ 02.Gone With The Wind [06:25]
+ 03.Someday My Prince Will Come [08:19]
+ 04.Blue Rondo A La Turk [06:47](   Читать дальше...   )Жанр: CoolПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99C6F1F58BB203D3D478FD4DA77A046727D8AB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096846   (917794) от 25.01.2017
 
 Carlos “Patato” Valdes - Ritmo y Candela II: African Crossroads (1996) Round World[FLAC|Lossless|image + .cue] <World Fusion, Afro-Cuban Jazz>
@@ -728,35 +757,6 @@ Jimmy Smith - Rockin' The Boat (1963) 1994, Blue Note[FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4088D98BB4D84A3DA8D293F0C3EEB5FB9D8382A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367601   (915811) от 16.03.2020
-
-Marcus Shelby Orchestra - Transitions (2019) Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember Rockefeller at Attica [3:29]
-02. On a Turquoise Cloud [3:06]
-03. Begin the Beguine [3:25]
-04. Lullaby of Birdland [4:12](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E332CA2C4436983409561B841B26A49B2782E71F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1528465   (734475) от 02.02.2022
+
+VA - Ibiza Live Radio 2 (2019) [AAC|~318 Kbps] <Chill Out, Downtempo, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Crystal Light (Original Mix) (5:48)
+02. Helly Larson, Miss Disk - Deep Dreams (Original Mix) (6:58)
+03. Darles Flow - Myth of Living (Original Mix) (6:18)
+04. Miss Luna, Q Derhino - Welcome to the Family (Original Mix) (6:33)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Deep HouseПродолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BFCF09AFD17104F060B339B78828F6BA7FDF470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528459   (734474) от 02.02.2022
 
 Bhakta - Snow on Venus (2003) [AAC|~345 Kbps] <Tribal, Downtempo, Trance>
@@ -701,35 +730,6 @@ VA - Сергей Есенин. Отговорила роща золотая (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BE734949BE2017C07EE2757A3ED048B82B09C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528664   (733996) от 03.02.2022
-
-Поющие гитары - Первый в СССР ВИА. Нет тебя прекрасней, Часть 1 (2019) [AAC|~290 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зорька (1:31)
-02. Велосипедисты (2:22)
-03. Добры молодцы (2:45)
-04. Если любишь (2:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B14737D89FC6384E7C5F039254E38261652E15C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 963929   (285493) от 09.12.2015
+
+Gloria Estefan - Unwrapped (2003) [FLAC|tracks+.cue]<Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о Глории Эстефан на английском языке01. Tu Fotografía (3:49)
+02. Te Amaré (3:03)
+03. Mientras Tanto (3:38)
+04. Hoy (3:28)(   Читать дальше...   )Жанр: ДокументальныйПеревод: ОтсутствуетПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C6C67E9175281FBF87B4564FFB97BAEA27ACDF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963642   (285321) от 09.12.2015
+
+Enrique Iglesias - Sex and Love (2014) Deluxe Edition [FLAC|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm A FreakЖанр: PopПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7205D77FCB6710E46E7963C2E0995D90E36D9ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335650   (284548) от 04.11.2019
+
+Celine Dion - Courage (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying On My Own 3:32
+02. Lovers Never Die 2:51
+03. Falling In Love Again 3:51
+04. Lying Down 3:59(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8CFD2A6E280E2CF578E5D0E498D28C810C65D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263968   (284505) от 21.11.2018
+
+Platinum Blonde - Now & Never (2012) [FLAC|Lossless|tracks + .cue] <Electronic Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valentine
+02. Beautiful
+03. Satellite
+04. From Here(   Читать дальше...   )Жанр: Electronic Pop RockПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611D7B03A92C2DB6891632AFAB314793EB83B4D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263821   (284498) от 21.11.2018
+
+VA - Love Songs (1999) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284498.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 Youssou N'dour & Neneh Cherry - 7 Seconds 04:09
+02 Wham! - Where Did Your Heart Go 05:44
+03 Fugees - No Woman, No Cry 04:19(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0A8B6E994E506714B877D2E5B825040EEEFCE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335844   (284391) от 04.11.2019
 
 Celine Dion - Courage (Deluxe Edition) (2019) Scene [FLAC|Lossless|tracks + .cue] <Pop>
@@ -595,151 +737,6 @@ Lucio Dalla - Storie di casa mia (1971) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:796AE908BFAC29431FE04E82229336B344280244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188472   (273588) от 03.12.2017
-
-Lucio Dalla - Dalla (1980) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Balla balla ballerino
-02 - Il parco della luna
-03 - La sera dei miracoli
-04 - Mambo(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5441BB835BCA247D9A61DF7C1D6238C1F211C2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265854   (273025) от 29.11.2018
-
-VA - Pure Gold-25 Priceless Tracks (1999) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Surf>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273025.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Billy Fury - Wonderous Place [02:26]
-2. The Animals - The House Of The Rising Sun [04:28]
-3. Kenny Rogers - Ruby, Don't Take Your Love To Town [02:55]
-4. The Supremes - Stop In The Name Of Love [04:17](   Читать дальше...   )Жанр: Pop, Rock, SurfПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF73DD102CDB744862DD1970574573BFB838B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265871   (272976) от 29.11.2018
-
-Clean Bandit - What Is Love? (2018) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphony (feat. Zara Larsson)
-02. Baby (feat. Marina and The Diamonds & Luis Fonsi)
-03. Solo (feat. Demi Lovato)
-04. Rockabye (feat. Sean Paul & Anne-Marie)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53893A6C95B35A891BEE5FA08CD9B442AC7D0CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265753   (272970) от 29.11.2018
-
-Blow - Vertigo (2018) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Synthwave, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vertiges (3:11)
- 02. New Moon Walker (3:18)
- 03. Green Unicorn (3:07)
- 04. Fall in Deep (3:40)(   Читать дальше...   )Жанр: Electronic, Pop, Synthwave, DowntempoПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DD4860FDD69EDC1504B8BFB0F7E91A2BD06C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189128   (272147) от 04.12.2017
-
-Kygo - Kids In Love (2017) [FLAC|Lossless|tracks + .cue] <Electro House, Deep House, Dance-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kids In Love (Feat. The Night Game) (04:22)
-02. Never Let You Go (Feat. John Newman) (03:54)
-03. Sunrise (Feat. Jason Walker) (03:55)
-04. Riding Shotgun (With Oliver Nelson) (Feat. Bonnie McKee) (03:18)(   Читать дальше...   )Жанр: Electro House, Deep House, Dance-PopПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795BA27B36B3ABCFF974EEC8749A2AE593FE212A
 ```
 
 https://mybot314.ru/tekegram_catalog/

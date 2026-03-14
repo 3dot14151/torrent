@@ -1,3 +1,148 @@
+###  Публикация: 1805851   (12007) от 09.07.2025
+
+VA - Summer House Music 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bl3ss & Camrinwatsin - Kisses (Feat. Bbyclose) 02:18
+02. Lf System - Afraid To Feel 02:58
+03. A7s - Dumb 02:30
+04. Billy Gillies - Dna (Loving You)Жанр: Pop, DanceПродолжительность: 02:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED4C548F147CDEC673F8C9760D460911F46C188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806798   (11530) от 14.07.2025
+
+Thomas Anders - …Sings Modern Talking - Ready For Romance - Thomas' Version (2025) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11530.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Thomas Anders - …Sings Modern Talking - Ready For Romance:
+01. Brother Louie (Thomas' Version) 3:53
+02. Just We Two (Mona Lisa) (Thomas' Version) 4:10
+03. Lady Lai (Thomas' Version) 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 02::10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF63E1B1560E6C6A12FEB507E6A4D1D527B0DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808456   (10395) от 25.07.2025
+
+Sandra - Paintings In Yellow (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiroshima (6:52)
+02. (Life may be) A Big Insanity (4:30)
+03. Johnny Wanna Live (4:29)
+04. Lovelight In Your Eyes (5:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252FCCCD11799F220B45609DBC8D1C95DD9A991A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808454   (10364) от 25.07.2025
+
+Sade - Love Deluxe (1992) 1st Austrian Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Ordinary Love (07:21)
+02. Feel No Pain (05:09)
+03. I Couldn’t Love You More (03:50)
+04. Like a Tattoo (03:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0FF61244B539F5DE91C5618F6753577604C7EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808451   (10362) от 25.07.2025
+
+Roxette - Joyride (1991) 1st UK Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joyride (4:24)
+02. Hotblooded (3:18)
+03. Fading Like a Flower (Every Time You Leave) (3:53)
+04. Knockin' On Every Door (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215F28F22AF3FCB58E0BA0AC681B9B18D19542A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808455   (10357) от 25.07.2025
 
 Sandra - Into A Secret Land (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>

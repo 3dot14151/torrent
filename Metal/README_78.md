@@ -1,3 +1,32 @@
+###  Публикация: 1420237   (334009) от 31.10.2020
+
+Ashenvoid - Psalms of the Grave Serpent (2020) [MP3|320 Kbps] <Heavy Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entombed (04:37)
+ 02. Ashenlord (05:37)
+ 03. Revenance (05:11)
+ 04. Abyss (05:31)(   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F328EDFAF41C9F29C8B344B4FB59EDCF0799777C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420078   (333986) от 31.10.2020
 
 Seraphic - Chrysalis (2020) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
@@ -716,34 +745,6 @@ Tell You What Now - Tell You What Now (2022) [MP3|320 Kbps] <Progressive Metalco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DF9792609FAC202D0D512BF8009934A902740E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957550   (326724) от 18.11.2015
-
-Megadeth - Fatal Illusion (2015) Single [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatal Illusion
-02. Symphony Of Destruction (Live)
-03. Peace Sells (Live)Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FE7FD15F1E20E6174FC986636B7294143CEB46
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1306322   (555831) от 03.06.2019
+
+The Dead Deads - The Dead Shall Dance: Live (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (Live)
+02. Space (Live)
+03. Murder Ballad (Live)
+04. Ghosts (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395E7385024425A06800CCB915D431522937AC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306341   (555673) от 04.06.2019
+
+Mono Inc. - Symphonic: Live (2019) 2CD [MP3|320 kbps] <Gothic Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555673.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 | Welcome to Hell | 04:04
+02 | Kein Weg zu Weit | 04:42
+03 | Long Live Death | 04:23(   Читать дальше...   )Жанр: Gothic Rock, Alternative RockПродолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0227E944461578E0999241DE9AD84929559CDB3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306498   (555570) от 05.06.2019
 
 The Hawkmen - The Hawkmen (2019) [MP3|320 Kbps] <Rhythm & Blues, Rockabilly>
@@ -684,64 +742,6 @@ The Quireboys - Twisted Love (2016) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E719F6ABECEECE23EE9C755C8EB890259B5C759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048684   (545740) от 03.09.2016
-
-Rocking Rolling Living Loving Band - Thousand Percent Touch (2016) [MP3|320 Kbps] <Blues Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thousand Percent Female     (04:36)
-02. Your Name Must Be Love     (02:41)
-03. High Mountain     (03:54)
-04. Rock'n'rolla Stumbler     (02:41)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:910A489D50CBC49F0532341949D8720EE64ED550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238661   (545389) от 31.07.2018
-
-Slade - Slade In Showplace (Dover, NJ) Jul 30, 1976 (bootleg) (1976) [MP3|320 Kbps] <Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hear Me Calling (5:39)
-02. Get On Up (6:34)
-03. Scratch My Back (3:53)
-04. Take Me Back Home (4:52)(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 01:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C9001F2C31F81D852C61B42BF7F728170BFFCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

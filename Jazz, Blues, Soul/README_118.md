@@ -1,3 +1,177 @@
+###  Публикация: 1199153   (802832) от 14.01.2018
+
+Stephanie K. - A Word Before You Go (2018) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Word Before You Go
+02. Side Dish
+03. Ignorance Is Bliss
+04. Honu(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE98983F1CB5AE03F373624EB21DDD716B5CA43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199111   (802816) от 14.01.2018
+
+Jimi Barbiani Band - Boogie Down The Road, Live! (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogie Chillen (Live)  (04:19) 
+02. Looking For The Truth (Live)  (07:50) 
+03. Sad Soul (Live)  (04:10) 
+04. La Grange (Live)  (05:12) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DB1CBB0F67E22AAE3A28BE4953A7C2A747B244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198967   (802710) от 14.01.2018
+
+Oscar Benton - I Am Back (2018) [MP3|320 Kbps] <Blues Rock, Americana>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benjamin Wilder (03:52)
+02. I Am Back (03:27)
+03. Bensonhurst Blues Revisited (04:51)
+04. Like A Howlin' Wolf (03:52)(   Читать дальше...   )Жанр: Blues Rock, AmericanaПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9982B617EBE8938D3A971D71F3887271821A5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010745   (802677) от 25.04.2016
+
+John Hicks - Is That So? (1990) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Is That So? [07:29]
+ 02.Autumn Leaves [06:25]
+ 03.How Insensitive [08:57]
+ 04.April Eyes [05:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40032F5059DD031865A6C7AE1D711F455B292DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010755   (802563) от 25.04.2016
+
+Art Farmer - In Europe (1970) Remaster, 2006, Enja[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Concord [09:28]
+ 02.Overnight [15:20]
+ 03.Re-Entry [10:16]
+ 04.Concourse [14:11](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E70CF2EBCF8B49EDD9811BDC6A28663728493E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010749   (802561) от 25.04.2016
+
+Art Farmer & Benny Golson - Meet the Jazztet (1960) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Serenata [03:33]
+ 02.It Ain't Necessarily So [04:30]
+ 03.Avalon [03:33]
+ 04.I Remember Clifford [03:14](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285A492FE9D5DE1E9A3AD5EB95ADED0BF4E742D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010611   (802560) от 25.04.2016
 
 Billy Cobham - Magic (1977) Reissue 2004 [APE|Lossless|image + .cue] <Jazz, Fusion>
@@ -571,180 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E26D187C28FB9F2ABE858FA173539F0FFA254964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120701   (801268) от 01.04.2017
-
-Don Cherry - Home Boy (1985) Barclay [FLAC|Lossless|tracks + .cue] <World Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Butterfly Friend [03:45]
- 02.I Walk [03:12]
- 03.Rappin Recipe [06:49]
- 04.Reggae To The High Tower [04:12](   Читать дальше...   )Жанр: World Fusion, Jazz-FunkПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532E83CA169E331350B8E32769D4EF6D8F3008C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120895   (801259) от 01.04.2017
-
-Big Jack Johnson & Kim Wilson - The Memphis Barbecue Sessions (2002) [FLAC|Lossless|tracks + .cue] <Blues, Delta Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Baby (4:09)
-02. Humming Blues (4:01)
-03. Don't Care Nothing (3:34)
-04. Smokestack Lightning (4:10)(   Читать дальше...   )Жанр: Blues, Delta BluesПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDF08C2A9D48B6DEE8BA257495111E9B7924B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120946   (801249) от 01.04.2017
-
-Off The Grid - A Lonely Soul (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Lonely Soul A Restless Heart (04:31)
-02. Maybe There's Someone (04:07)
-03. This Ring (06:12)
-04. Someday I Know (04:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB65A28AE0B6B67E2EC43F468F8B9A86E4FF876B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120799   (801246) от 01.04.2017
-
-Doris Day - The Real... Doris Day (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. The Very Thought of You
-2. Que Sera Sera (Whatever Will Be, Will Be)
-3. Silver Bells(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 03:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFCC3D104FDB89AB9B873EF3D594DC16D7BCFEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199515   (801145) от 16.01.2018
-
-Cliff Jackson - 1930-1945 (1997) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hose Feathers [02:48]
-02. Torrid Rhythm [02:31]
-03. Ring Around The Moon [02:36]
-04. We'll Be Married In June [02:54](   Читать дальше...   )Жанр: Early Jazz, Swing, Piano JazzПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F074C97848099FC5209C9BDB2E6135D32B852A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199496   (801134) от 16.01.2018
-
-Coleman Hawkins & Pee Wee Russell - Jam Session In Swingville (1961) 1994, Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jammin In Swingville [09:35]
-02. Cool Sunrise [10:43]
-03. Spring's Swing [07:58]
-04. Love Me Or Leave Me [07:19](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1C5AAE84A2B374256A0CF8DC4FCAA8CA2FBC9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

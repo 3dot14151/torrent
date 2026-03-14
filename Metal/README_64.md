@@ -1,3 +1,32 @@
+###  Публикация: 1405281   (483679) от 30.08.2020
+
+Manticora - To Live to Kill to Live (2020) [MP3|320 Kbps] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katana - the Moths and the Dragonflies/Katana - Mud (14:39)
+02. To Nanjing (1:57)
+03. The Farmer's Tale, Pt. 3 - Eaten by the Beasts (4:23)
+04. Slaughter in the Desert Room (6:11)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5031B9ABD6C481E7C062AFBE4174D5632F8FA039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405226   (483677) от 30.08.2020
 
 Luna's Call - 2 Albums (2016-2020) [MP3|320 Kbps] <Progressive Metal, Death Metal>
@@ -713,35 +742,6 @@ Epica - The Holographic Principle (2016) [MP3|320 Kbps] <Symphonic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14459ADEC7B5F1C791A88EEEF66232EC3BAEA31B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940448   (469145) от 24.09.2015
-
-Exilia - Purity (2015) [MP3|320 кб/с]<Nu Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rewind
-02. She's Not Me
-03. New Bloom
-04. Bliss(   Читать дальше...   )Жанр: Nu Metal, Female VocalПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E3CD7F3AB7F560E1ABA36D69AE48258F50BFB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

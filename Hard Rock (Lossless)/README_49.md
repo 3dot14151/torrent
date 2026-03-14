@@ -1,3 +1,125 @@
+###  Публикация: 1570057   (447297) от 15.08.2022
+
+The Brave - Gravedigger (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravedigger
+02. Bad Day
+03. BraveNation
+04. Eternal(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD37D823C11E676287B1D208B49287A8820FE7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569860   (447102) от 15.08.2022
+
+Atlantis - 5 albums (1972-2019) [FLAC|Lossless|image + .cue | tracks + .cue] <Prog Rock, Krautrock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа «Atlantis» появилась на обломках группы «Frumpy» и была создана его экс-участниками: вокалисткой Ингой Румпф (Inga Rumpf), клавишником Жан-Жаком Краветцем (Jean-Jacques Kravetz) и Карлом-Хайнцем Шоттом (Karl-Heinz Schott) летом 1972 года. Коллектив дополнили гитарист Франк Дитц (Frank Dietz) и бывший барабанщик «Emergency» Курт Кресс (Kurt Cress). Последователи (   Читать дальше...   )--------------------------
+
+01. He's Got A Gun In His Hand (4:16)
+02. Hot Rocks (2:56)(   Читать дальше...   )Жанр: Prog Rock, Krautrock, Blues Rock |Продолжительность: 03:37:16 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27751677765BFD14071EDCAC4CAC9E281E48A566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569861   (447097) от 15.08.2022
+
+Frumpy (8 Days In April / Inga Rumpf) - 10 albums, 14 CD (1970-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Krautrock, Prog Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frumpy — немецкая группа в стиле прогрессив/краут-рок, базировавшаяся в Гамбурге и активная с 1970—1972 и с 1990—1995 годы. Основанная после распада фолк-рок-группы The City Preachers, Frumpy выпустили четыре альбома в 1970—1973 годах и добились значительного коммерческого успеха. Немецкая пресса провозгласила их лучшей немецкой рок-группой своего времени, а их вокалистку (   Читать дальше...   )--------------------------
+
+01. In The Beginnig (4:41)
+02. Pure Religion (3:37)(   Читать дальше...   )Жанр: Krautrock, Heavy Prog, Blues Rock, Rock |Продолжительность: 11:49:56 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47AF9C7F478BF7B4B9807AF96937A6DD72FF2BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552548   (446230) от 27.09.2012
+
+Steve Stevens - Atomic Playboys (1989) [WavPack|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_446230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atomic Playboys
+02. Power Of Suggestion
+03. Action
+04. Desperate Heart
+05. Soul On Ice
+06. Crackdown
+07. Pet The Hot Kitty
+08. Evening Eye
+09. Woman Of 1,000 Years
+10. Run Across Desert Sands (Instrumental)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409530   (445255) от 17.09.2020
 
 Gathering Of Kings - First Mission (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -629,122 +751,6 @@ Tango Down - Damage Control (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D062DFC5CC25497234347F4D3F63450A07FAFCDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063421   (432253) от 17.10.2016
-
-Tommy James & The Shondells - I Think We're Alone Now (1967) [FLAC|Lossless|image + .cue] <Beat, Garage Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Think We're Alone Now
-02. Trust Each Other in Love
-03. What I'd Give to See Your Face Again
-04. Baby Let Me Down(   Читать дальше...   )Жанр: Beat, Garage Rock, Rock & RollПродолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B527113C20C643B9327619706146591AAB5BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 399187   (432221) от 13.09.2017
-
-The Parlor Mob - 2 альбома, 1 EP (2008-2015) [FLAC|Lossless|tracks + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432221.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Parlor Mob - рок группа из Нью-Джерси, созданная в 2004 году.
-Объективный комментарий одного из поклонников "The Parlor Mob": "Неделю не вынимаю альбом из CD-чейнджера в машине (Dogs настоятельно требует приличного аппарата, но мой Марк Левинсон справляется), причем слушаю только его. Подряд. Честно, не думал, что ребята сделают что-то лучше замечательного (   Читать дальше...   )Список альбомов:
-2008 And You Were a Crow
-2011 DogsЖанр: Hard RockПродолжительность: 02:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD00D225127A7EE8DB27D0CF65FB136C9B3692B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571474   (431773) от 22.08.2022
-
-Carousel - Round & Round (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Surrender (3:38)
-02. 19 And Nervous (4:18)
-03. Remember (4:53)
-04. The Feeling Is Right (4:19)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F422A3ABD38BD83F2A9E0DB29F74636EFFD75C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571622   (431769) от 22.08.2022
-
-Shiloblaengare - Golden Book of Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (Shilos Vision)
-02 - Heal me
-03 - Crazy
-04 - High the Mugs(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD8B5DB70D295378C66FE5A7898BBB017985336
 ```
 
 https://mybot314.ru/tekegram_catalog/

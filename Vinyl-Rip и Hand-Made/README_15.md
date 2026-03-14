@@ -1,3 +1,119 @@
+###  Публикация: 1016861   (763023) от 16.05.2016
+
+Deodato (Деодато) - Best Of Deodato (Лучшие произведения Деодато) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763023.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Так Говорил Заратустра (Also Sprach Zarathustra)
+A2 Прелюдия к Послеполуденному Отдыху Фавна (Prelude To Afternoon Of A Faun)
+A3 Ночи в Белом Атласе (Nights In White Satin)
+B1 Голубая Распсодия (Rhapsody In Blue)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394645   (762289) от 06.07.2020
+
+Fonograf - FG-4 (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Roc>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762289.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Prelude
+A2 Co-Ordinates
+A3 Bright Sky
+A4 FG-4(   Читать дальше...   )Жанр: Pop RocПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64ACA1696805481EE1B2777631F7653EDB5CF05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279981   (760422) от 03.02.2019
+
+Rush - 2112 (2012) 1976 [FLAC 5.1|96/24|tracks|Lossless|DVD-Audio] <Hard Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I. Overture (04:34)
+02. II. The Temples of Syrinx (02:12)
+03. III. Discovery (03:31)
+04. IV. Presentation (03:42)(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587279EA375FC12967CCED75CC7B983A7B8D065B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522392   (758525) от 07.01.2022
+
+Александр Розенбаум - Нарисуйте Мне Дом... (1987) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Chanson, Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758525.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Нарисуйте Мне Дом
+А2 Вот Опять Захандрила Дождями Природа
+А3 Дорога На Ваганьково
+А4 Вальс На Лебяжьей Канавке(   Читать дальше...   )Жанр: Chanson, VocalПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7395FFA3B85F4B35EF0A61B6A5B9978631B551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 204208   (757696) от 28.05.2010
 
 Coldplay - 4 альбома (Vinil-rip 24 Bit/96 kHz) (2000-2008) [FLAC|Lossless]<Alternative Rock, Britpop>
@@ -639,119 +755,6 @@ A4 Vegvari Adam, Csepregi Eva - Elso Szerelem(   Читать дальше...   
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8EFA58768DB0371AAB8611CE71AAF0E67C9359E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397417   (740426) от 20.07.2020
-
-Sky - Masterpieces - The Very Best Of Sky (1984) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Prog Rock, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740426.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Toccata
-A2 Westway
-A3 Fool On The Hill
-A4 Gymnopodie No. 1(   Читать дальше...   )Жанр: Prog Rock, InstrumentalПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566A2DD5A1B85B65F78EE5739A9AA3A81A0E131C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217800   (740002) от 07.04.2018
-
-Жанна Бичевская - Коллекция Винила (1974 - 1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Acoustic, Folk, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acoustic, Folk, BalladПродолжительность: 04:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3DE9AF6A14160BE9E85CA2524BA4935871E3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283387   (739660) от 17.02.2019
-
-B.B. King - Live At San Quentin (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739660.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Introduction By Warden Daniel Vasquez
-A2 B.B. King Intro
-A3 Let The Good Times Roll
-A4 Every Day I Have The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C83FEE1D77283C4544C18EAB51B708F7153E2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283365   (739595) от 17.02.2019
-
-Raffaella Carra - Collections (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A far l'amore comincia tu
-02. Felicita Ta Ta
-03. En El Amor Todo Es Empezar (A far l'amore comincia tu/Spanish version)
-04. Million Dollars(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC388BFC1759A326CB1C356478C811ED36EA035
 ```
 
 https://mybot314.ru/tekegram_catalog/

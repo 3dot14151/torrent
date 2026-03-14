@@ -1,3 +1,90 @@
+###  Публикация: 1286986   (707429) от 05.03.2019
+
+909 Resistance - GoodBye RackFive (2018) Arrakis [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LM2 (05:14)
+02. BBR5 (05:17)
+03. LM2 (Mik Izif Remix) (05:58)
+04. LM2 (J-Rex Acid Remix) (07:27)Жанр: Techno, AcidПродолжительность: 00:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94278ED556D66873AF8517B3C5D539F0FC8FAB75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286974   (707314) от 05.03.2019
+
+Planetary Assault Systems - Straight Shooting (2019) Mote-Evolver [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beam Riders (06:48)
+ 02. Born Anchors (06:08)
+ 03. Humans Use Concrete (05:28)
+ 04. Engage Now (07:13)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014BF28483FED1091871A35DAD02382AFB03224E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131550   (707091) от 06.05.2017
+
+Actress - AZD (2017) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Experimental, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nimbus (00:54)
+02. Untitled 7 (05:13)
+03. Fantasynth (05:02)
+04. Blue Window (03:42)(   Читать дальше...   )Жанр: Experimental, Techno, MinimalПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12102F982807C6A2A3C1E491B0787ECDEEF73218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220352   (706194) от 18.04.2018
 
 Mr. Cloudy - IRIT (2018) Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
@@ -655,93 +742,6 @@ VA - Ministry Of Sound - Chilled House Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EAE0D2AD04F5EA1F6A117FD485E3C9E35AB3ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534904   (690530) от 04.03.2022
-
-Blank & Jones - #WhatWeDoAtNight 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco, Indie Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach (3:45)
- 02. Storm (2:40)
- 03. Lush (3:29)
- 04. Equator (3:13)(   Читать дальше...   )Жанр: House, Nu Disco, Indie DanceПродолжительность: 00:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C31577BDA77F27692167F89A1CF1229A8EBAE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534960   (690514) от 04.03.2022
-
-Bob Moses - The Silence in Between (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Deep House, Hardcore House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seen it Coming (4:13)
- 02. Love Brand New (3:18)
- 03. Never Ending (4:02)
- 04. Time and Time Again (5:40)(   Читать дальше...   )Жанр: Electro House, Deep House, Hardcore HouseПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5416AB4B67B03244DCE60082EF0D3F95D3C551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028675   (688762) от 23.06.2016
-
-GusGus vs. T-World - GusGus vs. T-World (2000) [FLAC|Lossless|tracks+.cue] <Techno, Progressive House, Trance, Breaks, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthem (07:51)
-02. Northern Lights (06:12)
-03. Earl Grey (07:06)
-04. Purple (09:20)(   Читать дальше...   )Жанр: Techno, Progressive House, Trance, Breaks, DowntempoПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543D398206F866202925DDB2F6D6E01A55E4453B
 ```
 
 https://mybot314.ru/tekegram_catalog/

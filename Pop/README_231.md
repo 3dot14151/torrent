@@ -1,3 +1,393 @@
+###  Публикация: 1180730   (338001) от 05.11.2017
+
+VA - Cosmic Future Groove Vol. 1 (2010) Spaced Out Disco & Funkified Electronic Themes [1975-1987][MP3|320 Kbps] <Electronic, Space-Age, Synth-pop, Jazz, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Fiddy & Sammy Burdson - Robotory (2:05)
+02. Claude Perraudin - Evasion (1:59)
+03. Gaston Borreani - Jupiter (2:29)
+04. Mark Monson - Well Done (2:46)(   Читать дальше...   )Жанр: Electronic, Space-Age, Synth-pop, Jazz, Funk, DiscoПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6CAB453817666EA6205B73B92FB36630B8EE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180942   (337893) от 05.11.2017
+
+Soraya - Soraya (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If (7:32)
+02. Soraya Funk (6:13)
+03. I Can't Believe (3:25)
+04. My Life (7:23)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E8B09D01E7CB5154DF4541A48C1009EBC30688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180891   (337888) от 05.11.2017
+
+VA - Cosmic Future Groove Vol. 2 (2012) Spaced Out Disco & Funkified Electronic Themes [1973-1983][MP3|320 Kbps] <Electronic, Space-Age, Synth-pop, Jazz, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthony Hobson - Omicron (2:42)
+02. Roger Webb - Flying Objects (3:41)
+03. Wolfgang Kafer - Fly And Spider (2:53)
+04. Pierre Briffa & Bernard Lamastre - Georges De L'ardeche (1:35)(   Читать дальше...   )Жанр: Electronic, Space-Age, Synth-pop, Jazz, Funk, DiscoПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29A524ECE2ED8B7AD41E47A252E01F898775D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180722   (337880) от 05.11.2017
+
+Frequenz - The First Album / Телефонный поцелуй (2000) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не хватает тебя (4:03)
+02. Любовь не умрёт (3:42)
+03. Сегодня так.. (4:31)
+04. Расскажи мне правду (4:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F49E259512C450FD6A7632A75E9FD0B58B5B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580260   (337837) от 27.11.2012
+
+Аркадий Хоралов - Недотрога (2004) [MP3|320 кб/с]<Pop,Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я твой пленник (3:40)
+02. Бесконечность (4:32)
+03. Гавань моей любви (2:51)
+04. Заброшенный лес (3:24)
+05. Без тебя (4:38)
+06. Вперёд, друзья (3:48)
+07. Воскресенье (3:51)
+08. Пусть исчезнут беды (3:47)
+09. Чужой телефон (3:20)
+10. Лишний билет (4:11)(   Читать дальше...   )Жанр: Pop,RetroПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09630FB291C0A826984756C66DD0BDD722A5E197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581091   (337718) от 27.11.2012
+
+Ricchi E Poveri - Perdutamente Amore (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amore E Odio (3:28)
+02. Mamma Maria (version 2012) (2:59)
+03. Cosa Sei (version 2012) (3:58)
+04. Dimmi Che Mi Ami (3:14)
+05. Voulez-Vous Dancer (version 2012) (3:49)
+06. Made In Italy (version 2012) (3:01)
+07. Musica Vita Mia (3:23)
+08. Piccolo Amore (version 2012) (3:39)
+09. Acapulco (version 2012) (3:42)
+10. Sara Perche Ti Amo (version 2012) (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8DE02E58D05628B39DA3BDAC470A9DCE6B20018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419611   (337695) от 29.10.2020
+
+VA - Christmas 2020 Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gwen Stefani - Jingle Bells
+ 02. The Vamps - We Wish You A Merry Christmas
+ 03. Justin Bieber - Mistletoe
+ 04. Brenda Lee - Rockin' Around The Christmas Tree (Single Version)(   Читать дальше...   )Жанр: Pop, Rock, ChristmasПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2113136AF159E42FE3AB51C1753E85568A161542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413145   (337684) от 29.10.2020
+
+Missio - Discography (2016-2020) 3 Albums, 2 EP's, 14 Singles [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Synth-Pop, Future Bass>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337684.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Animal 3:30
+2. I Do What I Want 3:37
+3. Middle Fingers 3:35
+4. I Don't Even Care About You 3:35(   Читать дальше...   )Жанр: Pop-Rock, Synth-Pop, Future BassПродолжительность: 04:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370F6C3127BCB777419624BC919C643BFC3C6180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840092   (337524) от 11.11.2014
+
+VA - 1982 The Collection (Time Life) (1994) [FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий диск из серии Time Life Music. Решил поделиться. Может кто молодость вспомнит.01. Survivor - Eye Of The Tiger  (4:06)
+02. Dexy`s Midnight Runners - Come On Eileen  (4:01)
+03. Asia - Heat Of The Moment  (3:49)
+04. Kim Wilde - View From A Bridge  (3:32)(   Читать дальше...   )Жанр: Pop, Rock, Jazz, ElectronicПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E67AADE6C3D52F950E742B6988436A113D18BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581487   (337430) от 27.11.2012
+
+Enrique Iglesias - 12 альбомов + 7 синглов (1995-2011) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_337430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glam As You Club Mix by Guena LG [07:59]
+02. Junior Caldera Club Mix [05:20]
+03. Jody Den Broeder Club Mix [07:51]
+04. Jody Den Broeder Dub Mix [07:51]
+05. Jody Den Broeder Radio Mix [03:59]Жанр: Pop, DanceПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955031   (337339) от 09.11.2015
+
+VA - Barbra Streisand & Partners (2014) [FLAC|tracks + .cue]<Pop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barbra Streisand & Michael Buble - It Had To Be You (04:23)
+ 02. Barbra Streisand & Stevie Wonder - People (04:15)
+ 03. Barbra Streisand & John Mayer - Come Rain Or Come Shine (04:11)
+ 04. Barbra Streisand & Babyface - Evergreen (Love Theme From A Star Is Born) (03:14)(   Читать дальше...   )Жанр: Pop, Vocal, BalladПродолжительность: 01:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B29E67FBAB2436644426AF6B1082B6EE99B197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955077   (337034) от 09.11.2015
+
+Samantha Fox - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch me (I want your body) (03:44)
+02. Do Ya Do Ya (Wanna Please Me) (03:45)
+03. Nothing's gonna stop me now (03:43)
+04. I Only Be With You (02:45)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F26B7BD71FBEE864141CB87A8BEA1F6D0971E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330775   (336843) от 12.10.2019
+
+Blue Hawaii - Open Reduction Internal Fixation (2019) [FLAC|Lossless|WEB-DL|tracks] <Dreampop, Synthpop, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things (03:07)
+02. Still I Miss U (03:17)
+03. All That Blue (05:33)
+04. Sparkle (03:32)(   Читать дальше...   )Жанр: Dreampop, Synthpop, ExperimentalПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C54598AB9EB3712A644398815B99CAAB928385C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330914   (336731) от 12.10.2019
 
 Cloud One - 2 Albums (1976, 1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -368,381 +758,6 @@ Teach In - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco, Retro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE8C3C625674219225820875D9B435D99E32D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955244   (335150) от 10.11.2015
-
-Grimes - Art Angels (2015) [OGG| 454-526 кб/с]<Synthpop, Indie Pop, Dream Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughing And Not Being Normal
-02. California
-03. SCREAM (feat. Aristophanes)
-04. Flesh Without Blood(   Читать дальше...   )Жанр: Synthpop, Indie Pop, Dream Pop, DanceПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056BC0F4993D589A56394DCAC97E9058D65EB288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955189   (335146) от 10.11.2015
-
-Madonna - Enigmatica (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Intro
-02 Frozen
-03 I'll Remember (Remix)
-04 Sanctuary(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36D7C9A0EDB872C94306E1C99802F6110AAD8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955193   (335009) от 10.11.2015
-
-Mylene Farmer & Sting - Stolen Car (2015) Single [FLAC|image+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярная французская поп-певица Милен Фармер и легендарный британский рок-музыкант Стинг представили новую совместную запись под названием "Stolen Car". Оригинал композиции был выпущен ещё в 2003 году на седьмом сольном студийном диске Стинга "Sacred Love". Тогда треку удалось добраться до 60-й строчки британского песенного чарта.01. Stolen Car (Version Single)
-02. Stolen Car (Version Instrumentale)Жанр: PopПродолжительность: 00:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134F1C880EA91E8E5ED9ED4D4F32823CBFDA0881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331058   (335000) от 13.10.2019
-
-Bus Connection - Superdance (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superdance (5:29)
-02. Don't Stop (4:40)
-03. Land Of 1000 Dances (3:24)
-04. Dreamin' Of You (4:01)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DF6F2ACBD179562CE69A51D6AFB8509ED771A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331160   (334997) от 13.10.2019
-
-Ian Mitchell Band - Lonely Nites (1979) LP [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely Nites (3:37)
-02. Suddenly You Love Me (3:17)
-03. Going Back (4:22)
-04. Having A Good Time (3:56)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B08FD98F59ACE359C76970D27B4E931406B8B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331113   (334996) от 13.10.2019
-
-Zinc - Street Level (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Boogie>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street Level (6:13)
-02. I'll Never Stop (5:47)
-03. I'll Take My Chances (5:31)
-04. This Is Where The Love Is (5:58)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Disco, BoogieПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3900FEB4DF4C1F0E301BC94685868A2B52A5F36F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258661   (334600) от 31.10.2018
-
-VA - Hits From The Dancefloor (2018) [MP3|320 Kbps] <Funky, Vocal, Club, Nu Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Busiello - My Friend
-02. Alex Barattini - Abc
-03. Corti & Lamedica - I Rock I Sweat I Dance
-04. Nick Detti - I Do It For Money (Funky Bull Remix) (Feat. Francesca)(   Читать дальше...   )Жанр: Funky, Vocal, Club, Nu DiscoПродолжительность: 02:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0AE880AC5B4248EF284022BF03D8CC124CA6BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258650   (334592) от 31.10.2018
-
-Intercity Sound Association - Philly Sound (1976) LP [MP3|320 Kbps] <Space-Age, Disco, Jazz-Funk, Easy Listening>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Train (2:29)
-02. Alaska Flight (2:43)
-03. Proud Horse (2:33)
-04. Night Shift (2:48)(   Читать дальше...   )Жанр: Space-Age, Disco, Jazz-Funk, Easy ListeningПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F484DD83911FB27A3CA3ACEFE9726610669E3B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258768   (334240) от 31.10.2018
-
-Игорь Саруханов - RЕАНИМАЦИЯ (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334240.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Парень с гитарой (Dance version 2018)
-2. Зелёные глаза (Dance version 2018)
-3. Лодочка (Dance version 2018)
-4. Моя любовь по городу (Dance version 2018)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F8A63475E270FED4F681E908784A4C39DD1C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420075   (333770) от 31.10.2020
-
-Roxette - Bag Of Trix Vol. 1 (Music From The Roxette Vaults) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help! (Abbey Road Sessions November 15, 1995) (2:54)
- 02. Listen To Your Heart (Abbey Road Sessions November 15, 1995) (3:34)
- 03. Let Your Heart Dance With Me (3:07)
- 04. Waiting For The Rain (Studio Vinden Demo 1997) (3:33)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0EA0F33A3DA3CD05CC14CBCD774E2BAD7D3291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420114   (333768) от 31.10.2020
-
-Amy Macdonald - The Human Demands (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire [00:04:15]
-02. Statues [00:03:46]
-03. Crazy Shade of Blue [00:04:13]
-04. The Hudson [00:04:59](   Читать дальше...   )Жанр: Pop, Alternative RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B04870157A44C95A23D940CFB2960B7F15278C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955386   (333603) от 11.11.2015
-
-VA - BRAVO Dance 2015 (2015) [FLAC|tracks|WEB-DL]<Top 40, Pop, Electronic, Dance, House, Electro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn feat. Jasmine Thompson - Ain't Nobody (Loves Me Better) (4:01)
-02. Lost Frequencies feat. Janieck Devy - Reality (2:38)
-03. Omi - Cheerleader (Felix Jaehn Remix / Radio Edit) (3:02)
-04. Kygo feat. Parson James - Stole The Show (3:42)(   Читать дальше...   )Жанр: Top 40, Pop, Electronic, Dance, House, Euro House, Deep House, Electro, SynthpopПродолжительность: 02:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89294FD2C9A0C5667DC5AE1FAEF37E78B55BBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954017   (333473) от 11.11.2015
-
-Mylene Farmer - Interstellaires (2015) [APE|Image+cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellaires
-02. Stolen Car (En Duo Avec Sting)
-03. A Rebours
-04. C'est Pas Moi(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75845C558B25BC7A34C6335784BC36475EEAADC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

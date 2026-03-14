@@ -1,3 +1,90 @@
+###  Публикация: 1683290   (128694) от 10.12.2023
+
+VA - Chilly Ambient Smooth Operator Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Konstantin Klashtorni - 7 x 7 (4:13)
+02. Chillaxing Jazz Kollektion - Drops in the Ocean (4:12)
+03. Chillaxonic - Cosmic Visions (4:26)
+04. Kool&Klean - Drift (6:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF9AA9B5CDEB7FB8AAD5EBB827D89CC645FB46D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683202   (128689) от 10.12.2023
+
+McCoy Tyner - The Impulse Albums Collection (1961 - 1964) 4CD, 2022, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Green Dolphin Street [23:27]
+02. Softly, As In A Morning Sunrise [14:42]
+03. The Way You Look Tonight [11:39]
+04. Oleo [18:01](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 04:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53EFF49F67A4BEF3E298F0D00E0A44F6E45A728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683208   (128688) от 10.12.2023
+
+Ramsey Lewis - The Beatles Songbook: The Saturday Salon Series, Vol. 1 (2022) Steele Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here, There and Everywhere [4:09]
+02. And I Love Her [4:11]
+03. Hey Jude [3:47]
+04. Blackbird [1:58](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A6DE3E7BEBA5F5A22638069C202394DCD89603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683106   (128681) от 10.12.2023
 
 VA - Sister Bossa Vol. 11 (Cool Jazzy Cuts With A Brazilian Flavour) (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz, Easy Listening>
@@ -658,93 +745,6 @@ Louis van Dijk With The London Chamber Orchestra - Merry Melodies (1997) PolyGra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59D3824FC1B4B292FD74643B52239A3B84E15D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684126   (127939) от 14.12.2023
-
-Toshiko Akiyoshi-Lew Tabackin Big Band - Sumi-e (1979) 1986, Insights [FLAC|Lossless|tracks + .cue] <Modern Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sumi-e [7:59]
-02. A-10-205932 [10:07]
-03. A-10-205932 (alternate take) [9:57]
-04. Hangin' Loose [8:50](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF0712874D5921EA3F21790F962743D695DE88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684410   (127777) от 15.12.2023
-
-Monty Alexander - Facets (1979) 1991, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Johnny Comes Marching Home [6:10]
-02. Lost April [5:53]
-03. I'm Walkin' [4:09]
-04. Hard Times [5:22](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B926EACD7EF13790E7A1E9EACBF47D0613D5451B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684411   (127774) от 15.12.2023
-
-The Howard Alden Trio - Plus Special Guests Ken Peplowski & Warren Vache (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Showed Me the Way [4:35]
-02. Purple Gazelle [4:20]
-03. Where Are You? [6:50]
-04. Douce Ambiance [4:27](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD647050AB553EB2AD08A7E186B7E1E7D97ED58
 ```
 
 https://mybot314.ru/tekegram_catalog/

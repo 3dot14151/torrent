@@ -1,3 +1,32 @@
+###  Публикация: 1288110   (697774) от 10.03.2019
+
+VA - Record Super Chart 577 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Rag'n'Bone Man - Giant (3:47)
+02. Ilkay Sencan - Do It (3:51)
+03. Sofi Tukker & ZHU - Mi Rumba (3:20)
+04. Mark Ronson feat. Miley Cyrus - Nothing Breaks Like A Heart (3:40)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD756BAEDB6ABEA217FD21EB76CBBD964C62B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402748   (697719) от 16.08.2020
 
 VA - Record Super Chart 649 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -715,35 +744,6 @@ VA - A State Of Trance Classics Vol.14 (The Full Unmixed Versions) (2020) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB348DFD1BAF23FE7FC1B2348102EB333F8B16C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403163   (694158) от 18.08.2020
-
-VA - Beatport Progressive House: Electro Sound Pack #145 (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A.J Roland - Mysteries Of Life
-002. Brunoh - Empatia
-003. Jordan Dae - Take On The World
-004. Young - Play Back(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 09:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40759B8694B3119153E1F7BF8F179BF658B18897
 ```
 
 https://mybot314.ru/tekegram_catalog/

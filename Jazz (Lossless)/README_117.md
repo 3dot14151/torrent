@@ -1,3 +1,90 @@
+###  Публикация: 1225526   (659847) от 16.05.2018
+
+Lee Morgan - Expoobident (1960) 2000, Koch Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expoobident [05:02]
+02. Easy Living [05:58]
+03. Triple Track [05:01]
+04. Fire [04:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F353D43D1EEAB26599D30C19ED6897736B3DA66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225527   (659844) от 16.05.2018
+
+Steve Khan - Arrows (1979) 2017, Sony Music [FLAC|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Suite (For Folon): Part I - City Monsters, Part II - Dream City [11:50]
+02. Candles [07:02]
+03. Daily Village [06:43]
+04. Some Arrows [05:49](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2DCCFEB68F2EAE245F40F59384C93F5B01A06ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139654   (659381) от 03.06.2017
+
+Frank Avitabile - Bemsha Swing (2002) Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reverie [03:27]
+02. Fine-Tune [04:17]
+03. Carrousel [04:47]
+04. Body and Soul [05:34](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168FD76498D19220BE81DE333F0BF9D50D0804ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139638   (659374) от 03.06.2017
 
 Carla Bley - Looking For America (2003) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Experimental Big Band>
@@ -675,93 +762,6 @@ Hubert Laws - Say It With Silence (1978) 2016, Sony Music [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D35A5B9AC36DC8C3FF7362AC110D7308870AE205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140263   (657006) от 05.06.2017
-
-The Bud DeTar Big Band - Live At S.U.N.Y. Brockport (1999) Self Released [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Dipper [06:18]
-02. Cheers [02:50]
-03. Basically Blues [05:08]
-04. Bud's Blues [05:30](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991182A9F2B533BF347747180FA786A31806692C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140268   (657005) от 05.06.2017
-
-Tubby Hayes & Paul Gonsalves - Change of Setting (1965) 2016, Harkit Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change of Setting [04:23]
-02. Royal Flush [03:40]
-03. Child's Fancy [04:19]
-04. Min and Madge Blues [04:16](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45032D75AA64CA3C91FD41AB17D358FF81F9D273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140279   (657004) от 05.06.2017
-
-Harry Connick, Jr. - Occasion (2005) Par Media Music [FLAC|Lossless|tracks + .cue] <Modern Creative, Chamber Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brown World [04:41]
-02. Valentine's Day [05:15]
-03. Occasion [03:02]
-04. Spot [05:59](   Читать дальше...   )Жанр: Modern Creative, Chamber JazzПродолжительность: 01:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D6A2A9A898BD717B763C05761AB20CB77CE119
 ```
 
 https://mybot314.ru/tekegram_catalog/

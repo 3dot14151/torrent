@@ -1,3 +1,90 @@
+###  Публикация: 1120701   (801268) от 01.04.2017
+
+Don Cherry - Home Boy (1985) Barclay [FLAC|Lossless|tracks + .cue] <World Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Butterfly Friend [03:45]
+ 02.I Walk [03:12]
+ 03.Rappin Recipe [06:49]
+ 04.Reggae To The High Tower [04:12](   Читать дальше...   )Жанр: World Fusion, Jazz-FunkПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532E83CA169E331350B8E32769D4EF6D8F3008C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120799   (801246) от 01.04.2017
+
+Doris Day - The Real... Doris Day (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. The Very Thought of You
+2. Que Sera Sera (Whatever Will Be, Will Be)
+3. Silver Bells(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 03:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFCC3D104FDB89AB9B873EF3D594DC16D7BCFEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199515   (801145) от 16.01.2018
+
+Cliff Jackson - 1930-1945 (1997) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hose Feathers [02:48]
+02. Torrid Rhythm [02:31]
+03. Ring Around The Moon [02:36]
+04. We'll Be Married In June [02:54](   Читать дальше...   )Жанр: Early Jazz, Swing, Piano JazzПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F074C97848099FC5209C9BDB2E6135D32B852A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199496   (801134) от 16.01.2018
 
 Coleman Hawkins & Pee Wee Russell - Jam Session In Swingville (1961) 1994, Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -658,93 +745,6 @@ Mal Waldron & Steve Lacy - The Super Quartet Live at Sweet Basil (1987) Bellapho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80B3418DA087890D2A966CE099FBBA6363D1C82B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122118   (799261) от 04.04.2017
-
-Chano Dominguez - Chano (1993) Nuba Records [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Flamenco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Refrito [05:09]
- 02.Naima [07:39]
- 03.Choricli Jul. [03:51]
- 04.Pa mi Nino ( Parte 1 ) [01:48](   Читать дальше...   )Жанр: World Fusion, Latin Jazz, FlamencoПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B16044A53D74382E732A804B29C8CF3C6D92B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122078   (799254) от 04.04.2017
-
-Ike Quebec - It Might As Well Be Spring (1961) 1998, Ars Nova [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It Might As Well Be Spring [06:19]
- 02.A Light Reprieve [05:25]
- 03.Easy Don't Hurt [06:09]
- 04.Lover Man [05:58](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98F74EBD8D5F55C04A78087F247933FC7624280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121985   (799230) от 04.04.2017
-
-Konstantin Klashtorni & Love Suggestions - Sax Night (2017) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thick Of It (5:43)
- 02. There Goes My Baby (4:17)
- 03. Shape Of You (5:06)
- 04. Don't Wanna Know (4:50)(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC5577893AAABA0896BF1CE37DFB09004FBC4C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1693838   (121479) от 22.01.2024
+
+L.A. Guns - The Dark Horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam-Hard-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overdrive (3:56)
+02. Rewind (4:46)
+03. The Dark Horse (4:07)
+04. Somebody Save Me (5:57)(   Читать дальше...   )Жанр: Glam-Hard-RockПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93A9DCF848F7D4CFE9522502F8F2C6E6DCF7AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693790   (121470) от 22.01.2024
+
+Stateside Red - Far From The Delta (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossroads OG (5:08)
+02. Far From The Delta (4:22)
+03. Runnin' (4:47)
+04. Gone In The Morning (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B031B0C105477046758EDE6621DD7BA0DF13982A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693784   (121464) от 22.01.2024
+
+KJ Dale - Plays songs from Pioneers - End of time album (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be a pioneer (5:01)
+02. Walk in the moonlight (4:36)
+03. Annie (3:56)
+04. This is high (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9EA658EF06DE0987DC9A267266918A5ABB1F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693791   (121457) от 22.01.2024
+
+Suncity Blues - Blues on my mind (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doghouse daddy (3:34)
+02. Blues on my mind (3:13)
+03. She left me this morning (3:03)
+04. Long and winding road (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D484C7CE0FF4AB036C315608FD0F9EAFB895EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693851   (121450) от 22.01.2024
+
+Polarnik - Протокол (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Black, Doom, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Волчок (00:04:38)
+02 - Змей (00:04:47)
+03 - Ледокол (00:04:10)
+04 - Серп (00:04:21)(   Читать дальше...   )Жанр: Post-Black, Doom, Death MetalПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2FA9704429E7A04CA91E5A83C326EFE6814AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693781   (121448) от 22.01.2024
 
 Fumo - Entropy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -600,151 +745,6 @@ A4 Ground Zero Brooklyn(   Читать дальше...   )Жанр: Speed, Thra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4CA29A734E49334A40D6BE2319A9AB39A3F5CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694328   (121102) от 24.01.2024
-
-Akkerhaugen Raid - Red Filipino Viper (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friday Night (2:37)
-02. Get On Top (3:34)
-03. Happy Anyway (5:13)
-04. Don't Call Me Up (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E21C7804AB1CDB5FE52527E466F9C5D9FF16CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694351   (121101) от 24.01.2024
-
-Carnivore - Carnivore (1995)[FLAC|24/96|tracks|Vinyl-Rip]  <Speed, Thrash Metal, Crossover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121101.jpg" />
-</div>
-
-
-###  Подробнее
-
-A01. Predator {04:31}
-A02. Carnivore {03:22}
-A03. Male Supremacy {07:31}
-A04. Armageddon {04:13}(   Читать дальше...   )Жанр: Speed, Thrash Metal, CrossoverПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA458C00D10AD82E5DC37E425FAC9FB0A0C4648B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694563   (120982) от 25.01.2024
-
-Dead by April - The Affliction (2024) [FLAC 16/44.1, 24/48|Lossless|WEB-DL|tracks] <Melodic Metalcore, Modern Metal, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swarm Mode
-02. My Light
-03. Outcome (feat. Smash Into Pieces & Samuel Ericsson)
-04. Hurricane (feat. The Day We Left Earth)(   Читать дальше...   )Жанр: Melodic Metalcore, Modern Metal, ElectronicПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD179C2E80A6B805A833DB3CBE6E0CEBA1F6AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694440   (120956) от 25.01.2024
-
-The New Day - Subtronic Symbiosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Never Know (5:00)
-02. I (4:07)
-03. Scars (3:20)
-04. Haunt Me (4:15)(   Читать дальше...   )Жанр: Rock, Post-PunkПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A33C45176C887009FF31971008517A7A97DA9D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694558   (120951) от 25.01.2024
-
-Dead Poet Society - Fission (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock, Indie Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5:29:45
-02. Running In Circles
-03. Hurt
-04. How Could I Love You?(   Читать дальше...   )Жанр: Alt.Rock / Indie Rock / Blues RockПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D6A1E4EF6F1641A546443EE70F2D65EBE3EC0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

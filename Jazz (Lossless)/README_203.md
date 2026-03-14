@@ -1,3 +1,90 @@
+###  Публикация: 1070315   (369379) от 06.11.2016
+
+Arne Jansen - The Sleep of Reason Ode to Goya (2013) [FLAC|Lossless|tracks + .cue] <ACT, Jazz-Rock, Contemporary Jazz, Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Learning (Arne Jansen) 06:05
+02. Rise & Fall (Arne Jansen) 05:06
+03. Love Is Blindness (Adam Clayton, David Evans, Paul Hewson, Laurence Mullen) 05:56
+04. Golden (Jeff Beal) 02:10(   Читать дальше...   )Жанр: ACT, Jazz-Rock, Contemporary Jazz, Fusion, Guitar JazzПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91735522176EC9F3D3E7433B88ABCE27BE1D86E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070250   (369375) от 06.11.2016
+
+Greg Adams - East Bay Soul: That's Life (2015) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Black Dress (4:11)
+02. Hush Hush (5:19)
+03. Come Together (3:58)
+04. Get Smart (4:13)(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-FunkПродолжительность: 00:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60FA4429BD513E42DE3652593D748CAC30727EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070386   (369374) от 06.11.2016
+
+Buster Smith - The Legendary Buster Smith (1959) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Buster's Tune [03:38]
+ 02.E Flat Boogie [06:55]
+ 03.September Song [03:53]
+ 04.King Alcohol [04:34](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:344666AF0C65C5708178A6CD7AC95BF7E956DF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255122   (368437) от 16.10.2018
 
 Jonathan Zwartz - The Remembering & Forgetting Of The Air (2013) 2CD, Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -658,99 +745,6 @@ Les Double Six - Rencontrent Quincy Jones (1960) /1999, Columbia/[FLAC|tracks+.c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79DB5D73438791B31B7FDBE9FDABAB0B3F0BFFB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950770   (366188) от 28.10.2015
-
-Art Blakey & The Jazz Messengers - The Witch Doctor (1961) /1999, Capitol/[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Witch Doctor [05:33]
-02.Afrique [06:59]
-03.Those Who Sit And Wait [05:55]
-04.A Little Busy [06:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BA9A77EB85C930D3469C43940D8E4D4D103BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575998   (365938) от 16.11.2012
-
-VA - Blow Up A-Go-Go! Dancefloor Classics From The Legendary Blow Up Club (1999) [FLAC (tracks)|Lossless]<Soul, Funk, Beat, Mod>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Quik - Bert's Apple Crumble [1967] (02:13)
-02. James Clarke - Blow Up A-Go-Go! [1973] (02:32)
-03. Georgie Fame - Somebody Stole My Thunder [1969] (03:07)
-04. Soul Hooligan - Sweet Pea [1998] (04:03)
-05. The Coasters - Love Potion No.9 [1970] (02:37)
-06. Johnny Otis Show - Watts Breakaway [1969] (02:34)
-07. The Spencer Davis Group - I'm A Man [1967] (02:52)
-08. Mongo Santamaria - Cloud Nine [1970] (04:22)
-09. Incredible Bongo Band - Bongolia [1971] (02:14)
-10. Bobby Hughes Experience - Sahara 72 [1999] (05:07)(   Читать дальше...   )Жанр: Soul, Funk, Beat, Rock'n'Roll, ModПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226141   (365896) от 17.10.2018
-
-Basia - Butterflies (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bubble
-02. Matteo
-03. No Heartache
-04. Butterfly(   Читать дальше...   )Жанр: Smooth Jazz, Bossa NovaПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7BC990AC12DB67A74027DC9DD962A6D6101DDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

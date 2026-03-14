@@ -1,3 +1,32 @@
+###  Публикация: 1521580   (764508) от 03.01.2022
+
+VA - Chill House Traveller, Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giorgio Moroder - Tony's Theme (Scarface) (6:27)
+02. Arman Behdad, Pamela Pankotsch - Sweet Fragrance of the Rose (The Event Haze Remix) (4:43)
+03. Luke Kay - Rush (3:06)
+04. Nale - Nevermind (Dub Mix) (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D76D22D0701C290251346F6AC061025A9DC8153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521604   (764507) от 03.01.2022
 
 Apartment House - Number Pieces (2021) [AAC|~269 Kbps] <Chamber Music, Indeterminacy>
@@ -701,35 +730,6 @@ VA - Psychill Blossom, Vol. 1 (2020) [AAC|~323 Kbps] <Psychill, Psybient, Chill 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CFCD544D95DA05A81C33D5B235EDD6B7CFD9D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521774   (763547) от 04.01.2022
-
-VA - Time to Chill (2012) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johannes Huppertz - Bittersweet Symphonie (4:34)
-02. Artenovum - Bizarre Moments (Mystic Ambient Cut) (4:48)
-03. Gushi, Raffunk - Eyes' Cloud (4:17)
-04. Newton - Morning Star (4:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E6CC14651004CD6E2CC60976B5F1EEED5C35C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

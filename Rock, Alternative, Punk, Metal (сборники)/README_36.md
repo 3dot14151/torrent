@@ -1,3 +1,32 @@
+###  Публикация: 1190978   (265849) от 11.12.2017
+
+VA - Hard Rock Division Vol.02 (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265849.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Torous - Sideline
+002. Accept - Pandemic
+003. Art Nation - Ghost Town
+004. Civilization One - Land In Flames(   Читать дальше...   )Жанр: Hard RockПродолжительность: 08:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87812E32A7B5163ACA42CE4AA1E39753171F116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190992   (265845) от 11.12.2017
 
 VA - Heavy Metal Collections Vol. 2 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
@@ -752,35 +781,6 @@ VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B05ED77879487C6F1D8D9AEF36056B00EB21A646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543449   (242491) от 11.04.2022
-
-VA - Fest Rebel Rock Radio, Vol.02 (2022) [MP3|320 Kbps] <Rock, Alternative, Indie>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпическая мощь и красота - основные характеристики альбома и всего творчества групп представленных на его треках. Дух новаторства в музыке, когда даже в рамках давно использованного вдоль и поперек стиля, музыкантам удается найти свой путь. Их композиторское богатство основывается на фэнтезийной лирике, что привносит в музыку и стилистику песен определенное настроение (   Читать дальше...   )001. El Pistolero - Fear The Reaper
-002. Naked Giants - Better Not Waste My Time
-003. Holy Ship - Schrödingers Cat
-004. Royal Blood - Boilermaker(   Читать дальше...   )Жанр: Rock, Alternative, IndieПродолжительность: 08:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409FD184B8EA64C48A5616D7517F55BCC8E3BEBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

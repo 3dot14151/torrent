@@ -1,3 +1,32 @@
+###  Публикация: 1199590   (801035) от 16.01.2018
+
+Midnight Flyer - Midnight Flyer (1981) Reissue, 2013, Air Mail Archive [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Boy
+02. Love Games
+03. French Kisses
+04. In My Eyes(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD383E497291171F2C7797AB2CB7B103A7AFA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121555   (800431) от 02.04.2017
 
 Uriah Heep - Demons and Wizards (1972) Remastered, 2017, Sanctuary Records Group [MP3|320 Kbps] <Hard Rock>
@@ -717,35 +746,6 @@ Blackwater Park - Dirt Box (1971) Remastered, 2015, Long Hair [MP3|320 кб/с] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17DEFB3A0E5F04B1E76C7A3B1C4ECC8BA2FB7A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014194   (776918) от 06.05.2016
-
-Rich Robinson - Paper (2016) [MP3|320 кб/с] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Know Me
-02. Enemy
-03. Stand Up
-04. Leave It Alone(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93DBA33498DC336537B77C7D220F4BE7DC01F3F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

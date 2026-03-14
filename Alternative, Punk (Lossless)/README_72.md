@@ -1,3 +1,90 @@
+###  Публикация: 1783220   (25730) от 04.03.2025
+
+Venamoris, Dave Lombardo - To Cross or To Burn (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternativa & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay With Me [00:02:01]
+02. In the Shadows [00:03:52]
+03. Truth [00:03:32]
+04. Stain of Pain [00:02:50](   Читать дальше...   )Жанр: Alternativa & IndieПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA06AF722A63FDAED25FDC97BCFF4E076841A3AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 404969   (21814) от 11.04.2025
+
+Manic Street Preachers - 20 альбомов (1992 - 2025) 39 CD [FLAC|Lossless|image + .cue, tracks + .cue]<Alternative rock, Britpop>
+
+>>След.
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_21814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелодичность всегда была их сильной стороной. Здесь они непревзойденные лидеры современной рок-музыки! С точки зрения текстов Мэники до сих пор лучшие в Британии. В Manic Street Preachers чего только не намешано. И в музыке, и во взглядах на жизнь. Музыка - совершенно невероятный сплав стилей. Начиная от панка (пример: первая заводная песня Found That Soul с альбома (   Читать дальше...   )Список альбомов:
+1992 - Generation Terrorists
+1993 - Gold Against The Soul
+1994 - The Holy BibleЖанр: Alternative Rock, BritpopПродолжительность: 39:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47F3561ACFED312B430E36084B1ED41698E7380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790943   (21765) от 11.04.2025
+
+The Birthday Massacre - Pathways (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Alternative Rock, Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sleep Tonight [4:34]
+02 - All Of You [4:39]
+03 - The Vanishing Game [3:52]
+04 - Pathways [3:26](   Читать дальше...   )Жанр: Gothic Rock, Alternative Rock, Industrial RockПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D406D6A2B0DF3912D35D5CF9E3F4203CAFD1E79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793585   (20259) от 25.04.2025
 
 Billy Idol - Dream Into It (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock>
@@ -658,93 +745,6 @@ Kasabian — британская рок-группа, образовавшая�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE74A4137C62C1B2366E7222F4DC897CE3C7CD78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817607   (3303) от 11.09.2025
-
-J.R. Richards - My Darkest Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Safe & Sound [00:04:55]
-02. Lost Eversince [00:03:56]
-03. Alive [00:04:11]
-04. My Darkest Hour [00:03:43](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5AC103E79882A687A32FBD72648F58324EDDB45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817790   (2924) от 13.09.2025
-
-Silverstein - Pink Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love You But I Have to Let You Go [00:01:45]
-02. Negative Space [00:03:18]
-03. Drain The Blood [00:02:50]
-04. The Fatalist [00:02:50](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D6EEF69A7F808A92BB56A55E4AF0A8F5589F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818021   (2738) от 14.09.2025
-
-Prospective - The Weight Of What I've Become (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken [00:02:49]
-02. Who I Am [00:02:52]
-03. Ethereal [00:03:02]
-04. Rise [00:03:23](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633BB575ABEC4D4B73D5A122E5398B4E1B76CFE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

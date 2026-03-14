@@ -1,3 +1,90 @@
+###  Публикация: 1166016   (428657) от 15.09.2017
+
+Miles Davis Quintet - Winter in Europe 1967 (2006) Gambit Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [00:32]
+02. Agitation [06:58]
+03. Footprints [09:07]
+04. Around Midnight [08:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD420B56841F73F688E4AC1B6649283A4CC3C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166017   (428509) от 15.09.2017
+
+Eva Cortes - El Mar De Mi Vida (2010) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Mar De Mi Vida [04:26]
+02. Casi [03:35]
+03. C'est Si Bon - Que es Mejor? [03:20]
+04. Desterrado [05:42](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E4F4DE9729AF2868998892F2956DC1A5DC01EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064246   (428388) от 19.10.2016
+
+Peggy Lee - Rendezvous With Peggy Lee (1946-1949) 2000, Vocalion[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Can't Give You Anything But Love [02:36]
+ 02.Why Don't You Do Right? [02:28]
+ 03.Stormy Weather [03:10]
+ 04.Them There Eyes [03:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F6FEE9815AB6243B93C76FB28632CB933C4F90B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064176   (428378) от 19.10.2016
 
 Gary Burton & Friends - Departure (1997) [WavPack|Lossless|image + .cue] <Contemporary Jazz, Post Bop>
@@ -658,93 +745,6 @@ Norman Connors - Take It To The Limit & Mr. C (2010) Expansion Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A833994E068C90A6EE6C5D8E55181C5AB3AEDF66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709388   (424193) от 11.10.2013
-
-Lee Ritenour - Masterpieces: Best Of The GRP Years (2012) Jazzclub [FLAC|Lossless]<Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rio Funk   (5:08)
-02.  San Juan Sunset   (5:36)
-03.  ''13''   (5:02)
-04.  Butterfly   (5:14)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5345F0FD464F5A735AB1019A71A9D1F4A133439E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572300   (423683) от 26.08.2022
-
-Benny Golson And His Orchestra - Walkin' (1957) 1997, Fresh Sound [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moten's Swing [4:16]
-02. Out of Nowhere [4:05]
-03. Groovin' High [3:15]
-04. Autumn Leaves [4:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2C32DDE343A2A5C5F9513EFB7C92A0ED512F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572299   (423682) от 26.08.2022
-
-Kenny Dorham Quintet with Jackie McLean - Complete Recordings (1961, 1962) 2007, Gambit Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.El Matador [6:32]
-02.Melanie [11:35]
-03.Smile [4:59]
-04.Beautiful Love [5:12](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421675FAFB940652F8F8FBDD2D0357AB5B3CB750
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1729966   (107962) от 14.06.2024
+
+Neon Swingers - Electro Swing Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon Lights (2:32)
+02. It's Not Just the Steps (3:53)
+03. Nothing to prove (2:33)
+04. Bright Red Shoes (2:58)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7E88316858D12A2EEBCDB927BB683F2A2BA764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730284   (107908) от 15.06.2024
+
+Michael Brecker - Michael Brecker (1987) 1996, Impulse! [FLAC|Lossless|image + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea Glass [5:51]
+02. Syzygy [9:46]
+03. Choices [8:07]
+04. Nothing Personal [5:32](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E6B65DBA130886CB94F2CF0A7AE1C0704C6FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730296   (107897) от 15.06.2024
+
+David Gogo - YEAH! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamond In The Rough (2:59)
+02. Hurricane (2:56)
+03. Well Worth The Wait (4:15)
+04. Real Good Woman (3:03)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E5800BB0D15AD79D7D396BE2FCD30C61E5B70D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730285   (107893) от 15.06.2024
+
+Jack Walrath & Hard Corps - Journey, Man! (1996) Evidence [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bouncin' with Ballholzka [8:11]
+02. Ancient Intrigues [6:50]
+03. When Love Has Gone (It Comes Out Like This) [6:08]
+04. Pete's Steps [8:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648604D1E5C945FF2349B736099FD5798DFA7F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730165   (107892) от 15.06.2024
+
+Vince Guaraldi - The Latin Side Of Vince Guaraldi (1964) 1996, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Latin Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Lucky [2:56]
+02. What Kind of Fool Am I? [4:09]
+03. Corcovado [3:24]
+04. Work Song [4:17](   Читать дальше...   )Жанр: Latin Jazz, Piano JazzПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1520ADB81320CE7F491F286CA68DA21B758619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730170   (107888) от 15.06.2024
+
+Mary Lou Williams Trio - Free Spirits (1975) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dat Dere [4:48]
+02. Baby Man #2 [7:56]
+03. Baby Man [8:31]
+04. All Blues [7:00](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9DC876211A3CA4558D5D2D22630243CC170D1DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730283   (107884) от 15.06.2024
 
 Wilbur Ware Quintet - The Chicago Sound (1957) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -569,180 +743,6 @@ Bill Banfield - Hybridity (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:533054F8995AD3C58D131B4F138238AFEF2E77F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731586   (107651) от 21.06.2024
-
-John Klemmer - Chateau Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chateau Love Intro (2:05)
-02. Love Divine (5:46)
-03. Heartbeat (5:17)
-04. Smile (3:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD7E2811E003DA955EF9C7304AEE70C13B36673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731583   (107650) от 21.06.2024
-
-Ervin Pope - Anomaly (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khaiden Defines Anomaly (1:12)
-02. Anomaly (3:26)
-03. Aiesha Johnson (3:34)
-04. Sunshine (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:21:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52053CC7E39C02D0FDB6A3D9E4281FA53B9EEDEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731755   (107588) от 22.06.2024
-
-Antonio Sanchez - Channels Of Energy (2016) 2CD, 2018, CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Life [11:01]
-02. Grids and Patterns [10:05]
-03. Imaginary Lines [9:35]
-04. Channels of Energy [14:16](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Big BandПродолжительность: 01:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497773C5F080EDBB77BBAF768E07C3B780A94439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732111   (107575) от 23.06.2024
-
-Joe Bonamassa - Live At The Hollywood Bowl With Orchestra (2024) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - When One Door Opens (Overture) (Live At The Hollywood Bowl With Orchestra) [00:02:00]
-02 - Curtain Call (Live At The Hollywood Bowl With Orchestra) [00:09:02]
-03 - Self-Inflicted Wounds (Live At The Hollywood Bowl With Orchestra) [00:07:56]
-04 - No Good Place For The Lonely (Live At The Hollywood Bowl With Orchestra) [00:08:28](   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB25C62C09956EE06D27A403534C73D8FC85EE8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732024   (107570) от 23.06.2024
-
-Sexy Lovers Music Collection - Good Morning Sex (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erotic Lounge Bar Jazz (3:32)
-02. Submission (3:29)
-03. Games for Grown (4:17)
-04. West Side Sexual Life (4:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFF2FCA110679832D8462879BCBC19371FB9662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732124   (107547) от 23.06.2024
-
-Jay Gordon and Blues Venom - Live at Woodystock Blues Festival (2024) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hoochie Coochie Man (Live) [00:07:00]
-02 - Crossroads (Live) [00:05:06]
-03 - I Drink Alone (Live) [00:07:54]
-04 - Slow Burn Biker Mama (Live) [00:08:37](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCF19E05172DAE4C6370FD559EA996CDC537BC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

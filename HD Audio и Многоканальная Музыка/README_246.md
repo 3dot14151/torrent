@@ -1,3 +1,145 @@
+###  Публикация: 1799587   (16525) от 28.05.2025
+
+Southbound Snake Charmers - Bonnie vs Clyde (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bonnie vs Clyde (3:31)
+02.  Flying High (3:07)
+03.  When the Lights Go Down (3:43)
+04.  On My Trail (4:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB72A6DB7FFFA9E36C88DD3FF2EAD8D50CF45B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550333   (16454) от 29.05.2025
+
+Slayer (& Kerry King) - Studio Albums (15 releases) (1983-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slayer  — американская метал группа. Коллектив был основан в 1981 году.
+Вместе с группами Metallica, Megadeth и Anthrax, Slayer входит в «большую четвёрку трэш-метала».1983 - Show No Mercy
+1985 - Hell Awaits
+1986 - Reign in Blood
+1988 - South of HeavenЖанр: Thrash MetalПродолжительность: 11:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B376C4729165FA697E8B5322EE2C49EC2831A1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811401   (16229) от 09.08.2025
+
+Bonded - Studio Albums (2 releases) (2020-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bonded - немецкая метал-группа из Дортмунда, Северный Рейн-Вестфалия, сформирована в 2018 году.2020 - Rest In Violence
+2021 - Into BlacknessЖанр: Thrash MetalПродолжительность: 01:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73773B32AB16A077DC84A707CF3750363C1C2149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799859   (16223) от 30.05.2025
+
+Garbage - Let All That We Imagine Be The Light (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Synth-Rock, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - There's No Future In Optimism [3:21]
+02 - Chinese Fire Horse [4:04]
+03 - Hold [4:34]
+04 - Have We Met (The Void) [5:12](   Читать дальше...   )Жанр: Alternative Rock, Synth-Rock, RockПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C46E8B45AC13441BD52D30D0C96F3148A388B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724128   (16201) от 09.08.2025
+
+Wolfskull - Studio Albums (3 releases) (2019-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfskull - хард-рок-группа из Северного Рейна-Вестфалии, сформированная весной 2018 года.2019 - Hexum (EP)
+2022 - Ave GoddessЖанр: Hard RockПродолжительность: 01:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD04781FE46BD68CA7DEC272EDFF82485174D3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811355   (16200) от 09.08.2025
 
 Andreas Vollenweider - The Best Of Vol. 1 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Modern Classical, Ambient>
@@ -600,151 +742,6 @@ Linkin Park -  рок-группа из Агура-Хиллз, Калифорн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1BE16F7F88AB731498FF17D3BD17C6320A7199D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800817   (15467) от 06.06.2025
-
-Joanne Shaw Taylor - Black & Gold (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Modern Electric Blues, Blues-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Of My Heart
-02. All The Things I Said
-03. Black & Gold
-04. Who’s Gonna Love Me Now(   Читать дальше...   )Жанр: Modern Electric Blues, Blues-RockПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DAE28B585381FED69389F471FA969EF8CFC0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800819   (15464) от 06.06.2025
-
-Pink Martini - Bella ciao (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bella Ciao
-02. Pourquoi tu vis
-03. Aspettami
-04. DestinoЖанр: Pop-JazzПродолжительность: 00:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430CBAB71A40D448A70F4C0AFAE6A49A01D42CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559388   (15417) от 07.06.2025
-
-Volbeat - Studio Albums (9 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Volbeat — датская метал-группа, образованная в Копенгагене в 2001 году. Музыкальный стиль группы вдохновлён такими исполнителями как Metallica, Social Distortion, Элвис Пресли и Джонни Кэш.2005 - The Strength The Sound The Songs
-2007 - Rock The Rebel Metal The Devil
-2009 - Guitar Gangsters & Cadillac Blood
-2010 - Beyond Hell-Above HeavenЖанр: Heavy/Groove MetalПродолжительность: 09:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F394C291BBFBB1A29BB0BB46741B84E1D1AD44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801058   (15356) от 07.06.2025
-
-Brian Eno & Beatie Wolfe - 2 Albums (2025) [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Ambient, Modern-Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milky Sleep [00:03:18]
-02. Hopelessly At Ease [00:03:41]
-03. My Lovely Days [00:04:43]
-04. Play On [00:05:55](   Читать дальше...   )Жанр: Ambient, Modern-ClassicalПродолжительность: 2 CD, 01:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E5A3867BE3B8B7279C0EC75DCB46CB61A7A75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800988   (15350) от 07.06.2025
-
-Blank & Jones - Milchbar - Seaside Season 17 (2025) [FLAC 24/44.1 - 24/48|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones – Sunrise
-02. Anders Ponsaing – Baker Street (feat. Michael Rune, Troels Hammer & Mads Hammer)
-03. Blank & Jones – Love Will Save the Day (feat. Zoe Durrant)
-04. Dune People – Always Green(   Читать дальше...   )Жанр: Electronic, Chillout, LoungeПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF1141004A837F38618CAF8B3D2EA8DD4E81516
 ```
 
 https://mybot314.ru/tekegram_catalog/

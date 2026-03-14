@@ -1,3 +1,61 @@
+###  Публикация: 1783027   (69892) от 03.03.2025
+
+VA - One Shot '80 Volume 6 (1999) [OGG Vorbis|480 Kbps] <Pop, Italo-Disco, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Human Legue - Don't You Want Me
+02. Sandra - Maria Magdalena
+03. Rick Astley - Never Gonna Give You Up
+04. Samantha Fox - Touch Me (I Want Your Body)(   Читать дальше...   )Жанр: Pop, Italo-Disco, Synth-pop, DiscoПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54179E1D9F50B0D5CECBA46B01B27AFCE2B7BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783055   (69891) от 03.03.2025
+
+VA - One Shot '80 Volume 7 (1999) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joan Jett & The Blackhearts - I Love Rock'n'roll
+02. The Knack - My Sharona
+03. Blondie - Call Me
+04. Yes - Owner of a Lonely Heart(   Читать дальше...   )Жанр: Rock, Pop, Pop Rock, Synth-popПродолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6195821FB4634CA11F30B25C0C0AA1044131A280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783014   (69888) от 03.03.2025
 
 VA - One Shot '80 Volume 5 (1999) 2 CD [OGG Vorbis|480 Kbps] <Pop, Italo-Disco, Synth-pop, Disco>
@@ -687,64 +745,6 @@ VA - R&B Throwbacks 90s & 00s. 100 Classic Hits (2025) [MP3|320 Kbps] <Pop, Pop 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37C8F1602A1819095A2D0F733D812660A6AEA357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705587   (63491) от 09.03.2024
-
-Bananarama - Glorious - The Ultimate Collection (2024) [MP3|320 Kbps] <Disco, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63491.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Robert De Niro's Waiting (The Reflex Revision) (6:46)
-2. Do Not Disturb (Krystal Klear New Wave Mix) (7:20)
-3. Venus (Boys Noize Rework) (4:20)
-4. Only Your Love (Initial Talk Remix) (6:07)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 03:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F35A9FF5B9A94A0B47098EE3A23CDEDC53F90C85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711056   (61375) от 29.03.2024
-
-VA - Best Songs: The 70s (2023) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rod Stewart - Da Ya Think I’m Sexy - 05:31min
- 02. Blue Swede - Hooked on a Feeling - 02:53min
- 03. Kate Bush - Wuthering Heights - 03:26min
- 04. Fleetwood Mac - Dreams (2018 Remaster) - 04:18min(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 03:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DAF1A38C16E951FBDF973DFFC79EB1730810F61
 ```
 
 https://mybot314.ru/tekegram_catalog/

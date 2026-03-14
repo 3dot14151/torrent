@@ -1,3 +1,61 @@
+###  Публикация: 1497879   (861253) от 24.09.2021
+
+Курара - Брут (2021) [MP3|320 Kbps] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861253.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ясно
+2. Актриса
+3. Где-то там
+4. Ностальгия(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E99346A4177803CCE7409051ABF00D8DB779DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497881   (861245) от 24.09.2021
+
+Сансара - Станция «Отдых» (2021) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861245.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Арестуй
+2. Одиноко. Честно. Часто.
+3. Площадь Лялина
+4. Ламбада(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CB4F8BF30B5F951950E6E9094AFD43A7F4E6AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497878   (861243) от 24.09.2021
 
 VA - Мальчик как мальчик. Tribute to Oleg Garkusha (2021) [MP3|320 Kbps] <Rock>
@@ -701,61 +759,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6EBD2C06BEA9289630FB4504848FFB573228BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001150   (851977) от 29.03.2016
-
-Мамины Усы - Вши и Гниды (2015) [MP3|320 кб/с] <Punk, Humor Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. день рождения
-02. девушка лида
-03. про вуглускра
-04. больше не пидор(   Читать дальше...   )Жанр: Punk, Humor RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927977368502A242FEE26894C38BA3C0F086C5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110595   (851913) от 03.03.2017
-
-Вадим Самойлов - Другие (2017) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851913.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ДругиеЖанр: RockПродолжительность: 00:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA40F2E0A1044FAA49108AC84AF84DE18FAB87C
 ```
 
 https://mybot314.ru/tekegram_catalog/

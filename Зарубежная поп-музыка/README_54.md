@@ -1,3 +1,67 @@
+###  Публикация: 1172564   (392890) от 08.10.2017
+
+VA - 101 Power Ballads (2017) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392890.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Rainbow - Since You Been Gone  3:09
+02.  Lynyrd Skynyrd - Free Bird  14:56
+03.  Scorpions - Wind Of Change  5:13(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85E74EE431660C693020EE4BEC5C5D5FC6BF936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569361   (391624) от 03.11.2012
+
+Robbie Williams - Take The Crown (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop,Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be A Boy 04:39
+ 02. Gospel 04:26
+ 03. Candy 03:21
+ 04. Different 04:53
+ 05. Shit On The Radio 02:53
+ 06. All That I Want 03:30
+ 07. Hunting For You 03:58
+ 08. Into The Silence 04:48
+ 09. Hey Wow Yeah Yeah 02:52
+ 10. Not Like The Others 04:15(   Читать дальше...   )Жанр: Pop,Pop-RockПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F77726088AF4C5E6CB653D12A930E5605F5BBE47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570084   (390808) от 04.11.2012
 
 Superbus - Sunset (2012) [MP3|320kbps]<Pop, Pop-Rock, Female Vocal>
@@ -700,64 +764,6 @@ Patrick Juvet - 2 Albums (1978, 1979) Reissue CD [MP3|320 Kbps] <Electronic, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E70BF6D4B3B027EF478A2D6F87C9C6C660C8FCB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415112   (378724) от 11.10.2020
-
-Workout Music Tv - 40 Best Pop Hits For Step 2020 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indestructible - Workout Remix 132 Bpm (4:26)
-02. Watermelon Sugar - Workout Remix 132 Bpm (5:08)
-03. Stuck With U - Workout Remix 132 Bpm (4:25)
-04. X - Workout Remix 132 Bpm (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 03:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379AA3A13ED1D8C11C4136296A3CC883CE247C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415051   (378710) от 11.10.2020
-
-VA - Gym Music 2020 - Best fitness songs [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Snake, Justin Bieber - Let Me Love You (3:25)
-02. Vigiland, Tham Sway - Shots & Squats (2:51)
-03. LittGloss - L.A. Traffic (2:55)
-04. Artmus, Ericka Jane, K-phax - Soft Iced (2:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B952A91361BFACEE0C76DC139F9039121C07F54B
 ```
 
 https://mybot314.ru/tekegram_catalog/

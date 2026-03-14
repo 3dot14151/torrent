@@ -1,3 +1,177 @@
+###  Публикация: 1122196   (799219) от 04.04.2017
+
+Nina Van Horn - Nina Van Horn Sings Nina Simone (2017) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolution (04:58)
+02. Old Jim Crow (03:52)
+03. Mississpi Goddam (04:17)
+04. House Of The Rising Sun (06:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD23001C6D5BE71C1A456656151C265C91883CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121957   (799217) от 04.04.2017
+
+Toots Thielemans - The Real... Toots Thielemans (2017) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Bluesette
+2. Night Game
+3. Turks Fruit(   Читать дальше...   )Жанр: JazzПродолжительность: 03:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B06F7F61EC058712DB97012607820050DD8CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506870   (799126) от 02.11.2021
+
+Konrad Paszkudzki Trio - Serenade In Blue: Harry Warren Song Book (2018) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. About A Quarter To Nine [5:12]
+02. Forty-Second Street [3:25]
+03. I Only Have Eyes For You [4:15]
+04. I Wish I Knew [3:47](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B3A524726A9536AC246B58AACC0BB067350B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122543   (798883) от 05.04.2017
+
+Mokhtar Samba & WDR Big Band Cologne - Musique d'Afrique (2016) [FLAC|Lossless|tracks + .cue] <World Fusion, Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valse des Pharaons (8:05)
+02. Senegal (9:05)
+03. Emattéo (9:12)
+04. Suite for Africa (10:33)(   Читать дальше...   )Жанр: World Fusion, Modern Big BandПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:548C583697B59382DF18A33A03ACDD64AF80A66D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122404   (798880) от 05.04.2017
+
+Miles Davis - In Person, Saturday Night at The Blackhawk, San Francisco, Vol.II (1961) 1999, CBS [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Well You Needn't [08:18]
+ 02.Fran-Dance [07:41]
+ 03.So What [12:43]
+ 04.Oleo [05:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6C91738F734A117AD69F97CB2E6D93094BE86A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122207   (798872) от 05.04.2017
+
+Peter Karp - Alabama Town (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alabama Town (04:37)
+02. 'Til You Get Home (03:10)
+03. That's How I Like It (04:01)
+04. Blues In Mind (03:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1811148F8D8886C155E39FECC63DF41D55ACC72F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122685   (798866) от 05.04.2017
 
 VA - Jazz Acoustic Chill Classical Playlist: 14 Smooth and Chilled Tracks (2017) [MP3|320 Kbps] <Jazz>
@@ -571,180 +745,6 @@ Sadao Watanabe - Live At The Junk (1969) Remaster, 2015, Sony Music[FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5898056570347AC89C4E3048E549F8C76780036B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011063   (797696) от 26.04.2016
-
-Art Farmer - Modern Art (1958) Remaster, 2001, Toshiba[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mox Nix [04:40]
- 02.Fair Weather [05:43]
- 03.Darn That Dream [03:58]
- 04.The Touch of Your Lips [04:53](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3DE3FB533D85FD07F4E5944EEDA2C7C07B498A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010985   (797670) от 26.04.2016
-
-Blue Mitchell - The Thing To Do (1964) Remaster, 1995, EMI[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fungii Mama [07:50]
- 02.Mona's Mood [05:20]
- 03.The Thing To Do [07:08]
- 04.Step Lightly [10:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F55EA225E5B29792F80D65B814BE0B565E1AAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011016   (797669) от 26.04.2016
-
-Shirley Scott - & The Soul Saxes (1969) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It's Your Thing [04:33]
- 02.(You Make Me Feel Like) A Natural Woman [04:23]
- 03.I Wish I Knew How It Would Feel To Be Free [06:30]
- 04.You [05:44](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCA647F072C78ADEB7873E721616E2D85D4514B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011140   (797664) от 26.04.2016
-
-Sonny Rollins - The Bridge (1962) 1999,Ars Nova [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without A Song 07:26
-02. Where Are You 05:10
-03. John S. 07:39
-04. The Bridge 05:57(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9621ADE17847FE494BA454BE2DB3F5A24AAAC8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010945   (797662) от 26.04.2016
-
-Dave Weckl Band - Transition (2000) [APE|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Up
-02. Braziluba
-03. Like That
-04. Mild Hysteria(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636F1A7F759B025BCA12F255639DABD0676915C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010618   (797656) от 26.04.2016
-
-Billy Cobham's Culturemix - Colours (2004) [APE|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuba on the Horizon
-02. Dessicated Coconuts
-03. Volcano
-04. Where do we go from here(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B847B7623B0A9D73AF32B17E38929E5C501B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1529145   (733072) от 05.02.2022
+
+Micki Free - Turquoise Blue (2022) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye 2020 (03:28)
+ 02. Judicator Blues (03:43)
+ 03. World On Fire (04:48)
+ 04. Woman (02:52)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B300EB5E07E1A195D73A781277620241FE5499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399627   (732970) от 01.08.2020
+
+Kenny Barron & Mark Sherman - Interplay (2015) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afternoon in Paris [6:12]
+02. Venture Within [7:43]
+03. Dear Old Stockholm [4:53]
+04. Darn That Dream [7:37](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8789552E2030C18C50204C04D82AC14611CD534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399630   (732969) от 01.08.2020
+
+John Lewis & The American Jazz Orchestra - Ellington Masterpieces (1989) EastWest [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sepia Panorama [3:43]
+02. Johnny Come Lately [3:29]
+03. All Too Soon [4:07]
+04. Ko-Ko [2:48](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B1825C4CC8FD9B70610036B1B4E3A8D3E93892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789521   (732809) от 25.05.2014
+
+Lizz Wright - Fellowship (2010) [FLAC|Lossless]<Vocal Jazz, Gospel>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fellowship
+02. (I've Got to Use My) Imagination
+03. I Remember, I Believe
+04. God Specializes(   Читать дальше...   )Жанр: Vocal Jazz, GospelПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D29435334A7BC307160E98E0EB9E7283739BA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529369   (732734) от 06.02.2022
+
+VA - Male Jazz Singers: Milestones Of Jazz Legends (1952 - 1962) 10CD, 2017, The Intense Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732734.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - Louis Armstrong, Jimmy Rushing - Louis Plays Fats & Little Jimmy Rushing And The Big Brass:
+01. Honeysuckle Rose [2:56]
+02. Blue Turning Grey Over You [4:56]
+03. I'm Crazy 'Bout My Baby [4:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 11:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973DB375591324B2CB9852CB7D95F67A6F3C9DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529405   (732667) от 06.02.2022
+
+Angela Easley - Rise (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can Let Go (3:58)
+02. Runnin Out Of Time (3:47)
+03. Rise (4:55)
+04. Don't Let The Devil Down (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B6EF707438B14718112FBA60079F96EC86B483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529493   (732666) от 06.02.2022
 
 Barrel Bones - Shake Rattle Roll (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -571,180 +745,6 @@ Kenny Barron Quartet - Invitation (1991) [WavPack|Lossless|image + .cue] <Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C38530F949E4806D092C1C6258DEFBD8847D058C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127772   (731157) от 22.04.2017
-
-Clark Terry - Clark Terry's Big-B-A-D-Band: Live! At Buddy's Place (1976) Universe [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modus Operandi [09:38]
-02. Come Sunday [05:28]
-03. Gap Sealer [05:48]
-04. Jeep's Blues [06:29](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828223038A621EBB4D12FEEF17DF68733A5B2FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127655   (731155) от 22.04.2017
-
-Valery Ponomarev & Feelin's (2006) Монолит [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valery Ponomarev [01:14]
-02. Feelin's (I) [04:35]
-03. Cat Dancing on the Piano [04:53]
-04. Take 7 [03:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFC6E9430C19673E81B0D889603095583F6A5B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127600   (731154) от 22.04.2017
-
-Kenny Barron - Sambao (1992) [WavPack|Lossless|image + .cue] <Latin Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731154.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sambao (6:21)
-2. Yalelel (5:51)
-3. Bacchanal (6:38)
-4. Belem (5:43)(   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E5D8BDAA64649508C2115F0CF27D81468F9400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127673   (731153) от 22.04.2017
-
-Kahil El'Zabar's Ritual Trio - Africa N' da Blues (2000) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ka-Real (Take 2) [12:39]
-02. Africanos / Latinos [09:53]
-03. Miles' Mode [07:22]
-04. Autumn Leaves [11:27](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2377EA61F65D6DF52E0B70FDD4E6439C1EF554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284021   (731104) от 19.02.2019
-
-Pat Flowers - 1945 - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But Not For Me [3:09]
-02. Ain't Misbehavin' [2:39]
-03. Blue Danube [3:03]
-04. Bach Prelude And Fugue [2:27](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5918154C2CE914F2BD30710D77DFA4B08F4CF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284024   (731103) от 19.02.2019
-
-Charly Antolini - Drum Beat (1966) 2003, MPS Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yeah Man [7:51]
-02. The Preacher [4:32]
-03. Drum-Organ [3:54]
-04. Cheers [6:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44522A2653CECAFCD3F948EAECE3237E30AC66D
 ```
 
 https://mybot314.ru/tekegram_catalog/

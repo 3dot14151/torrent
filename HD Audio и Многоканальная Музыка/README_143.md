@@ -1,3 +1,148 @@
+###  Публикация: 1736911   (106575) от 14.07.2024
+
+Joe Tatton Trio - Galáctico (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Take (3:25)
+02. Hey! (4:46)
+03. El Gato (4:29)
+04. Guinnee Drop (3:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF5D433AC8BEDA823EE75166AAFA25410F0EF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736914   (106574) от 14.07.2024
+
+Ken Peplowski - At Mezzrow (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vignette (7:21)
+02. Prisoner Of Love (4:40)
+03. Beautiful Love (9:27)
+04. All The Things You Are (6:23)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E2B63E9616101B2E7249EC6BEFEB9E28146152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736896   (106573) от 14.07.2024
+
+Enri Zavalloni - Organ Express (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Organ Express (4:55)
+02. Harlem Hot Wheels (2:57)
+03. Shotguns Barbecue (3:04)
+04. Dribbling Boogaloo (3:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3D275112728B2FC30CEB45271CAEAB638A77B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736909   (106572) от 14.07.2024
+
+J Use - Whispers in the Moonlight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispers in the Moonlight (3:31)
+02. Moonlit Serenade (3:13)
+03. Silent Love (4:00)
+04. Friend Zone Serenade (2:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE32AC29F5EC4D8FD075B08E5BE7F801F738F07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737072   (106564) от 16.07.2024
+
+John Summit - Comfort In Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Breaks, Drum & Bass>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Summit - Comfort In Chaos (4:27)
+02. John Summit, Paige Cavell - Tears (3:56)
+03. Of The Trees, John Summit - Stay With Me (4:22)
+04. Hayla, John Summit - Shiver (3:54)(   Читать дальше...   )Жанр: Electronic, Breaks, Drum & Bass, Progressive House, Melodic House & TechnoПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1A92F5D1EEC601757D2DF3F10F8DD220A8310C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737390   (106536) от 17.07.2024
 
 Vanden Plas - Studio Albums (12 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
@@ -602,149 +747,6 @@ Gorgon City - Reverie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:692E11A7F55085D568EE2188E87FBBE6DD4CA1BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738402   (106332) от 22.07.2024
-
-Plague Pits - Bukolik (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Coldwave, Minimal Wave, Synthpop, New Wave, EBM, Industrial, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Binary Stars [00:05:09]
-02. Future Pastoral [00:03:38]
-03. Echoes [00:03:39]
-04. Blok [00:04:28](   Читать дальше...   )Жанр: Coldwave, Minimal Wave, Synthpop, New Wave, EBM, Industrial, Post-PunkПродолжительность: 00:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37D41DD3CB8F1D4E86FE032216EE68C7AD3299E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738483   (106330) от 22.07.2024
-
-Ontborg - Studio Albums (2 releases) (2019-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ontborg - мелодик-дэт-метал группа из Мерано, Южный Тироль, Италия.2019 - Within the Depths of Oblivion
-2023 - Following the Steps of DamnationЖанр: Melodic Death MetalПродолжительность: 01:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58410043C9F42253DDA1B1E9CFCB3DBC512B22E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738404   (106329) от 22.07.2024
-
-Maduro - End In Noise (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <EBM, Darkwave, Darkpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lips Like Venom [00:03:30]
-02. End In Noise [00:03:52]
-03. With Your Ghost (Vanished) [00:04:58]
-04. Taste Of You (Edit) [00:03:55](   Читать дальше...   )Жанр: EBM, Darkwave, DarkpopПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A34A6D2B2C82F8DCCAA8DC8943654EBA5599AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738265   (106315) от 22.07.2024
-
-Riverside - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock/Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Riverside — польская рок-группа, образовавшаяся в 2001 году в Варшаве.2003 - Out of Myself
-2005 - Second Life Syndrome
-2007 - Rapid Eye Movement
-2009 - Anno Domini High DefinitionЖанр: Progressive Rock/MetalПродолжительность: 11:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EA5A946EB3399EC006EFD379ED67DEC271FED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738541   (106304) от 23.07.2024
-
-Peter Frampton - Frampton (1975) SACD, Remastered, 2023, Intervention Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock & Roll, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Day's Dawning 3:55
-02 - Show Me The Way 4:05
-03 - One More Time 3:21
-04 - The Crying Clown 4:05(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3DBCB429DACA8E5DDF063C7169CCBF1AE0BF444
 ```
 
 https://mybot314.ru/tekegram_catalog/

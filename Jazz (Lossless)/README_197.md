@@ -1,3 +1,95 @@
+###  Публикация: 1252964   (388034) от 07.10.2018
+
+Willie Lewis - 1941 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Will I Do? [2:43]
+02. Happy Feet [3:05]
+03. Baby Ain't You Satisfied [3:04]
+04. Ti-Pi-Tin [3:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC51EFE12F9C1B34F16C7D04991FBCA923472F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571718   (388019) от 07.11.2012
+
+Трио Сергея Жилина - Tchaikovsky In Jazz. Seasons 2009 (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_388019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Декабрь. Святки (7:08)
+02. Январь. У камелька (4:03)
+03. Июнь. Баркарола (10:29)
+04. Март. Песня жаворонка (2:11)
+05. Октябрь. Осенняя песня (7:58)
+06. Апрель. Подснежник (4:04)
+07. Вальс цветов из балета 'Щелкунчик' (6:00)
+08. Февраль. Масленица (3:08)
+09. Ноябрь. На тройке (6:45)Жанр: JazzПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067494   (387928) от 29.10.2016
+
+Fred Hersch - Plays Rodgers & Hammerstein (1996) Nonesuch[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Cock-Eyed Optimist [05:23]
+ 02.No Other Love [04:47]
+ 03.Loneliness of Evening [05:42]
+ 04.It Might as Well Be Spring [06:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE5BD9B5E2094016C08FF903F15937B0C12AB5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067496   (387924) от 29.10.2016
 
 Slide Hampton - Explosion! The Sound Of Slide Hampton (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
@@ -659,93 +751,6 @@ Mose Allison - Lessons In Living (1982) 1994, Discovery Records [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0ABBF05574B6D134145B8BA2829FB063ADCBD42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067888   (385053) от 30.10.2016
-
-Nat King Cole - This Is Nat King Cole (1951-1966) 2CD, 1995, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385053.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.When I Fall In Love [03:12]
-02.On The Street Where You Live [03:12]
-03.Ramblin' Rose [02:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2363F7758FEC69158720D29F04BA0B5AFC4E6151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301958   (384974) от 20.09.2019
-
-Al Jarreau - 3 CD (1978-1986) [WavPack|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thinkin' About It Too  3:18
-02. I'm Home  5:18
-03. Brite 'N' Bunny Babe  3:28
-04. I Do  4:22(   Читать дальше...   )Производство: ГерманияЖанр: Jazz VocalПродолжительность: 02:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E37ACCCA151155193FCA063E2D62D75E9936C50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067838   (384772) от 30.10.2016
-
-Tommy Flanagan - Sea Changes (1997) Evidence Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sea Changes [06:32]
- 02.Verdandi [04:26]
- 03.Dalarna [05:01]
- 04.Eclypso [07:08](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF5EFD025F29E07DED9DD34F354CD520E0AA929
 ```
 
 https://mybot314.ru/tekegram_catalog/

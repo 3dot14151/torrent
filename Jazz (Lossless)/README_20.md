@@ -1,3 +1,38 @@
+###  Публикация: 605421   (995901) от 19.01.2013
+
+VA - Live at What Hi-Fi? Cafe (2007) [FLAC|Lossless]<Jazz, Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jacintha - The Look of Love  [04:10]
+02. Jacintha - California Dreaming  [05:42]
+03. Lauren White - Blue Bayou  [05:46]
+04. Eden Atwood - Meditation  [05:48]
+05. Jacintha - So Danco Samba  [03:14]
+06. Jim Brock - O Vazio  [06:57]
+07. Jacintha - Manha De Carnival  [06:12]
+08. Bernstein - Gabriela Lena Frank : The Mestizo Waitz  [03:13]
+09. Lauren White - Superstar  [04:32]
+10. Jacintha - Que Sera Sera  [05:12](   Читать дальше...   )Жанр: Jazz, Jazz VocalПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605150   (995799) от 19.01.2013
 
 Chen Xi - Yesterday Once More (2011) [FLAC|Lossless]<Jazz Vocal / Audiophile>
@@ -829,35 +864,6 @@ Ralph Sharon Trio - The Magic Of Cole Porter (1990) Horatio Nelson Records & Tap
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98CED9B8E0EEBC165DEF2600FC3AD533545BE9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353729   (990804) от 19.01.2020
-
-John Pizzarelli - Double Exposure (2012) Telarc [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Fine/Sidewinder [3:49]
-02. Harvest Moon [5:19]
-03. Traffic Jam/The Kicker [3:30]
-04. Ruby Baby [4:54](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4142AF4A93428F68589401BC14184B46D1425F6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1155409   (533528) от 03.08.2017
+
+Benny Goodman And His Orchestra - Sing, Sing, Sing (1935, 1936) 1987, Bluebird Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Porter Stomp [03:10]
+02. Sometimes I'm Happy [03:41]
+03. Basin Street Blues [02:56]
+04. If I Could Be With You [02:17](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97184ED20BBC216EA6EA35B4C975B21B7823DDA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051397   (532798) от 11.09.2016
+
+Ray Brown & Laurindo Almeida - Moonlight Serenade (1981) 1984, Bell Records[WavPack|Lossless|image + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mondscheinsonate & Round About Midnight [06:07]
+ 02.Samba De Angry [03:45]
+ 03.Beautiful Love [06:34]
+ 04.Air On A 'G'-String [02:33](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD999C63B7133A5E4FC30F23232886BE0363E6DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312451   (532791) от 04.07.2019
+
+Carlos Vega - Bird's Up (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On a Mission [9:56]
+02. Bird's Up [5:37]
+03. Untitled Waltz for the Wednesday Morning Prayer Meeting [5:51]
+04. Los Osos Grandiosos [6:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D7D3EE05C06B498700F047173544E52443210D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312444   (532790) от 04.07.2019
 
 John Graas - Four Classic Albums (1956 - 1958) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
@@ -658,93 +745,6 @@ David Kikoski - Phoenix Rising (2019) HighNote [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18A44321D03FF3662743844F4DE6BE3188424D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312826   (529225) от 06.07.2019
-
-Dave Stryker - Eight Track II (2016) Strikezone Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz-Funk, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harvest for the World [6:04]
-02. What's Going On [6:12]
-03. Trouble Man [7:29]
-04. Midnight Cowboy [5:27](   Читать дальше...   )Жанр: Post-Bop, Jazz-Funk, Straight-Ahead JazzПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C5A71AC6E58CDCC9BF30B46BBDDB7B68E6485B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312831   (529224) от 06.07.2019
-
-Dwight Trible - Inspirations (2017) Gondwana Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What the World Needs Now Is Love [5:48]
-02. Tryin' Times [5:30]
-03. I Love Paris [6:00]
-04. Feeling Good [4:59](   Читать дальше...   )Жанр: Vocal Jazz, Soul JazzПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8ACA9F9D7C3C19043D2ADF1274C05078495F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558767   (528933) от 22.06.2022
-
-Buddy DeFranco (De Franco) And Oscar Peterson - Play George Gershwin (1954) 1998, Verve Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wants to Stay Here [3:49]
-02. I Was Doing All Right [5:25]
-03. 'S Wonderful [4:25]
-04. Bess, You Is My Woman Now [4:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B981AB8B7A8EB5B3BEF81501A9CA045FC1EF96C
 ```
 
 https://mybot314.ru/tekegram_catalog/

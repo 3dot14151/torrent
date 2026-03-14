@@ -1,3 +1,29 @@
+###  Публикация: 544098   (491714) от 07.09.2012
+
+Leticia Sabater - Mr. Policeman (2012) [H.264/1080р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2A24876440ABA11A4B63D36D395EC0E6A0BCE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 236318   (490622) от 16.09.2010
 
 Korn III: Remember Who You Are (Bonus DVD) (2010) DVD5
@@ -678,41 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555731   (431696) от 03.10.2012
-
-Billy Idol - Idolize Yourself ( the very best of ) (2008) DVDRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный альбом лучших клипов Билли Айдола! 24 июня 2008 года в продаже появился новый сборник «Idolize Yourself», в который вошли две новые песни: «John Wayne» и «New Future Weapon» (песня о самолёте-невидимке F22 Raptor).01. Dancing With Myself
-02. Hot In The City
-03. White Wedding, Part 1
-04. Rebel Yell
-05. Eyes Without A Face
-06. Flesh For Fantasy
-07. Catch My Fall
-08. To Be A Lover
-09. Don't Need A Gun
-10. Sweet Sixteen(   Читать дальше...   )Жанр: Музыка,Punk-RockПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9863C16A1C3228F79FF7085B4ED80C8DED516015
 ```
 
 https://mybot314.ru/tekegram_catalog/

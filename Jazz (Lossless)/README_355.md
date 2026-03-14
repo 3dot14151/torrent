@@ -1,3 +1,90 @@
+###  Публикация: 1799762   (66412) от 29.05.2025
+
+VA - In Noir We Trust (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Ambient Jazz, Dark Jazz, Doom Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detour Doom Ensamble - Black side (7:56)
+02. Detour Doom Project - Bay City Doom Jazz (5:22)
+03. Last Call at Nightowls - Humeda (6:29)
+04. Macelleria Mobile di Mezzanotte -Heavy Clouds Like The Skyline of Your Heart (5:14)(   Читать дальше...   )Жанр: Ambient Jazz, Dark Jazz, Doom JazzПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61680293D8D6773F72C0AC2F3C0EE2FCAC6DBE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799755   (66401) от 29.05.2025
+
+VA - Coffee Funk (Feel the Heat of Acid Jazz Funk) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Smoke Orchestra - Urano's Solitude (4:42)
+02.  Soulstance - Popping The Beat (5:22)
+03.  Papik - Speed Date (3:28)
+04.  Yuts and Culture - 400 days (2:59)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 01:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4040935E826A757AB1B43EACF1197B01D6FCAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799763   (66379) от 29.05.2025
+
+VA - The Midnighters Vol. III (Last Chapter) (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental Jazz Noise>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TO DIE ON ICE - ANAL - Tutto quello che ci resta (3:30)
+02. Spectre Horsemen, Pale With Dust - Hair Tourniquet (4:11)
+03. Satvrne - Esprit de Nuit (4:42)
+04. Brainwave Caravan - Please Let Me Rest In Your Arms Mother Earth (7:53)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Experimental Jazz NoiseПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAFD45322D35381836616BB1B62A84CAAF923A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799760   (66375) от 29.05.2025
 
 Lowell Hopper - Opposite Direction (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -658,93 +745,6 @@ Count Basie - The Standards (1989) CD, Compilation, Club Edition [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D064E95EDE322F3393512637E0DBA131EB675273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802980   (65961) от 20.06.2025
-
-Miles Davis - Kind of Blue (1997) CD, Album, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Modal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So What    [0:09:25.32]
-02. Freddie Freeloader    [0:09:49.05]
-03. Blue in Green    [0:05:37.43]
-04. All Blues    [0:11:35.57](   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC7B638F85B5A13EE1523A846803DADA7C31A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803114   (65940) от 21.06.2025
-
-Caravan Palace - Dusty House Mix (Mixed) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Cook (Shiny Mob Remix) (Mixed)
-02. Moonshine (Bakermat Remix) (Mixed)
-03. Russian (Mixed)
-04. Tattoos (Mixed)(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 01:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B847E59058D7B2631D4B4963F7E10C4F77A20E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803119   (65913) от 21.06.2025
-
-Sea Breeze & Papik - Go Back (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Beyond
-02. Him
-03. JoJo
-04. No Shine(   Читать дальше...   )Жанр: Pop Jazz, SoulПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA59656D8A4506E3CC9DB88860F4569FDDAF1BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

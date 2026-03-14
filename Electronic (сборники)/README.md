@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1858524   (1060421) от 11.03.2026
+
+VA - Deep Night Deep House 8 (2026) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GeoM, Dimitris Athanasiou - Holding on - Dimitris Athanasiou Remix (6:00)
+02. Dimitris Athanasiou - Around You (5:32)
+03. Cj Borika - Lost in Dream (4:58)
+04. HazyHero - Better You Than Me (5:00)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A860011E2FD190C90610DB83DA3BC6CF488D8D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857896   (1060043) от 07.03.2026
 
 VA - Узоры (mixed by Dj V) (2026) [MP3|320 Kbps] <Organic House, Melodic House, Folk Dance>
@@ -7,7 +36,7 @@ VA - Узоры (mixed by Dj V) (2026) [MP3|320 Kbps] <Organic House, Melodic Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060043.jpg" />
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060043.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94E4AEFF5567F5FFBC95733DE7B139323F211D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842365   (1048702) от 15.12.2025
-
-VA - No name compilation part 26 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Umideep - Notte Disco
-02 - Dova Music - Stay Close
-03 - Hamidshax - Loving You
-04 - Elno - Along(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D3A4286CF43563C7424319CD9AA98A30A0B371
 ```
 
 https://mybot314.ru/tekegram_catalog/

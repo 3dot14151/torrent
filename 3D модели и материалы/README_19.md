@@ -1,3 +1,29 @@
+###  Публикация: 1241083   (521996) от 15.08.2018
+
+3D модели - Daz 3D - Сборник 3D моделей #19 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 50шт, категории Clothing, People, Animation, Structures.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5645F4E05C07AA859069CFF183E072E5DD068FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241450   (520041) от 17.08.2018
 
 3D модели - Cubebrush - Audi A8 2019 [MAX, 3DS, FBX, OBJ]
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C501623FB87E7724C97B9C43D59F88F5DE96E20D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243049   (495585) от 25.08.2018
-
-3D модели - Behr Bros - Generic Sports Car GT3 [MAX, MB, 3DS, C4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495585.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки GenericФормат: MAX, MB, 3DS, C4D, FBX, LWO, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4D4CC081FAE4BFDB815B6175F43F91ABE511A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

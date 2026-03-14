@@ -1,3 +1,90 @@
+###  Публикация: 1090281   (947322) от 06.01.2017
+
+Dropkick Murphys - Going Out In Style (2011) [FLAC|Lossless|tracks+.cue]<Celtic Punk, Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947322.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:59] 01. Hang 'Em High
+[04:08] 02. Going Out In Style (feat. Fat Mike, Chris Cheney and Lenny Clarke)
+[03:26] 03. The Hardest Mile
+[04:21] 04. Cruel(   Читать дальше...   )Жанр: Celtic Punk, Punk-RockПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A15968972D16B08E4D1042AA2B971527FEEEF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982724   (946905) от 04.02.2016
+
+Bury Tomorrow - Earthbound (2016) [FLAC|Lossless|tracks+.cue] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Eternal
+02. Last Light
+03. Earthbound
+04. The Burden(   Читать дальше...   )Тип издания: АльбомЖанр: Melodic MetalcoreПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C505E36D88A3F12D8CBEC8762F25982104D655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362988   (946586) от 25.02.2020
+
+Soccer Mommy - Color Theory (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodstream (05:38)
+02. Circle the Drain (04:41)
+03. Royal Screw Up (04:08)
+04. Night Swimming (04:18)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7B47D647489B1AE501860C63F65F9A24600AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362786   (946573) от 25.02.2020
 
 The Toms - Life Raft (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -658,93 +745,6 @@ Envy - A Dead Sinking Story (2003) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C47541FF72F4E68E82370478F6936A6193062AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364607   (935041) от 04.03.2020
-
-Envy - Insomniac doze (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Further ahead of warp (06:51)
-02. Shield of selfishness (04:30)
-03. Scene (07:08)
-04. Crystallize (10:34)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE493C268B312350A779F01BF94044E58D35769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364598   (935040) от 04.03.2020
-
-Envy - All the Footprints You've Ever Left and the Fear Expecting Ahead (2001) [FLAC|Lossless|tracks + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero (02:05)
-02. Farewell To Words (02:47)
-03. Lies, And Release From Silence (04:49)
-04. Left Hand (03:02)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCBBFF3E96150AB4A09C88E90BA29D8789F2115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364608   (935039) от 04.03.2020
-
-Envy - Recitation (2010) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guidance (03:21)
-02. Last Hours of Eternity (07:04)
-03. Rain Clouds Running in a Holy Night (08:32)
-04. Pieces of the Moon I Weaved (04:48)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6680E8A208FF0F911307D94245645A5F4E82F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

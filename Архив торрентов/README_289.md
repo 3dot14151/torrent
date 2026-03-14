@@ -1,3 +1,29 @@
+###  Публикация: 602927   (996230) от 18.01.2013
+
+Gilrs Wallpaper Collection (2/2013) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельный сборник обоев для рабочего стола от FedExe ®Разрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C1BA4E6CB80A765989E81AB96330D7BF38E6940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604703   (996225) от 18.01.2013
 
 Exist - Безысходность (2013) [MP3|320 kbps] <Alternative>
@@ -689,32 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69F46D45139F7BB756B5CA7A08AE16905AB2CEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602964   (996146) от 18.01.2013
-
-Tank Wallpapers (13.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA67D6B706BD04E291F4721C1E0C21539EA6246
 ```
 
 https://mybot314.ru/tekegram_catalog/

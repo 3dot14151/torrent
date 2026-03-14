@@ -1,3 +1,32 @@
+###  Публикация: 1209006   (779650) от 24.02.2018
+
+Krec - Атом (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рядовой
+02. Серьезно
+03. Атом
+04. Монстр(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03543358513CEE9DCA39EF8CD0BCB7B1967D9086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014847   (775415) от 09.05.2016
 
 MiyaGi & Эндшпиль - HAJIME Part.1 (2016) [MP3|256-320 кб/с] <Rap, Hip-Hop>
@@ -712,35 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CF0097E4BFC2E81F97D08306763CE5473F5E75A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399970   (719150) от 05.08.2020
-
-ST1M x Black Bros. - King Is Back 3 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крушим [04:05]
-02. Не святой [04:13]
-03. Улица сезам [03:39]
-04. Сиять [04:22](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE6DEE1C797489180230F921A426511DFE7756C
 ```
 
 https://mybot314.ru/tekegram_catalog/

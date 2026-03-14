@@ -1,3 +1,32 @@
+###  Публикация: 1498274   (234948) от 13.10.2021
+
+VA - Beautyness of Butterfly, the Chill Out Worx, Vol. 1 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Moon Shadow (5:24)
+02. Thomas Lemmer, Lena Belgart - Is It Too Late (Stefan Groll Acoustic Guitar Mix) (2:41)
+03. Izar Malia - Electric Mesh (3:50)
+04. Smooth Deluxe, Nizam Kharda - The Beauty of Taj Mahal (2:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2805079096CA96B202621FB0D26E1FEFABAF67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497263   (234940) от 13.10.2021
 
 Chillhop Guitar - Lazy Mood (2021) [AAC|~308 Kbps] <Chill Out, Smooth Jazz, Downtempo>
@@ -716,35 +745,6 @@ VA - Electro Swing New Generation 01 by Bart&Baker: The Best New Electro Swing M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6827BF22540BD7F4968422C33191FB104F1EE902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500357   (234756) от 13.10.2021
-
-VA - Los Angeles Beach Lounge, Vol. 2 (2018) [AAC|~335 Kbps] <Chill Out, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Deep Sunday Bliss (4:42)
-02. Marc Hartman - Like The Sunset (5:17)
-03. Maurid - Amazonia Sunrise (5:37)
-04. Matthew Daniel, Linda Muriel - Soul Personified (4:34)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E4D7A1BBAB450ADFEFCA1564B11657A09603E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,141 @@
+###  Публикация: 605263   (995432) от 20.01.2013
+
+Linkin Park - Hybrid Theory (2000/2001) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995432.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Papercut 3:04
+A2. One Step Closer 2:35
+A3. With You 3:23
+A4. Points Of Authority 3:20
+A5. Crawling 3:28
+A6. Runaway 3:05
+B1. By Myself 3:09
+B2. In The End 3:36
+B3. A Place For My Head 3:04
+B4. Forgotten 3:13(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E747D6D4A323544ABAFEAE884BCC79E1448A55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605570   (995428) от 20.01.2013
+
+Linkin Park - 3 альбома (2002-2007) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995428.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Wake 1:35
+A2. Given Up 3:08
+A3. Leave Out All The Rest 3:18
+A4. Bleed It Out 2:53
+A5. Shadow Of The Day 4:18
+A6. What I've Done 3:51
+B1. Hands Held High 3:51
+B2. No More Sorrow 3:40
+B3. Valentine's Day 3:16
+B4. In Between 3:17(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780F15C460AF0F800E2E8982F6503C4BB177CCBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605588   (995401) от 20.01.2013
+
+Кино (Виктор Цой) - Ночь (1986/1989) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995401.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Видели Ночь 3:09
+A2. Фильмы 4:56
+A3. Твой Номер 3:30
+A4. Танец 4:34
+A5. Ночь 5:32
+B1. Последний Герой 2:16
+B2. Жизнь В Стеклах 3:34
+B3. Анархия 2:46
+B4. Звезды Останутся Здесь	 3:37
+B5. Игра 5:01(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D2EC97B2A2EB19087117CA650C5C8B9183965C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604991   (995385) от 20.01.2013
+
+Кино (Виктор Цой) - 4 альбома (1990-2012) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.- Кончится лето (5:56)
+02.- Красно-желтые дни (5:50)
+03.- Нам с тобой (4:50)
+04.- Звезда (4:30)
+05.- Кукушка (6:39)
+06.- Когда твоя девушка больна (4:22)
+07.- Муравейник (5:17)
+08.- Следи за собой (5:00)Жанр: RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB102A62C4041A392FCCDD6360768FBC5D1F4E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607563   (993977) от 24.01.2013
 
 ДДТ - Актриса Весна (1992) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
@@ -663,133 +801,6 @@ Electric Light Orchestra - Discovery (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:397EC607483D91CDA4647D23B7448F3D62F88C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615136   (978389) от 07.02.2013
-
-Depeche Mode - Playing The Angel (2005) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978389.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. A Pain That I'm Used To 4:08
-A2. John The Revelator 3:45
-A3. Suffer Well 3:54
-B1. The Sinner In Me 4:59
-B2. Precious 4:07
-B3. Macro 4:09
-C1. I Want It All 6:11
-C2. Nothing's Impossible 4:22
-C3. Introspectre 1:41
-C4. Damaged People 3:30(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0043B9363B5FB929FAFA7DCD46C7259F88EF7598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614646   (978302) от 07.02.2013
-
-Deep Purple - 9 альбомов (1970-1990) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978302.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. King Of Dreams 5:28
-A2. The Cut Runs Deep 5:42
-A3. Fire In The Basement 4:46
-A4. Fortuneteller 5:48
-B1. Truth Hurts 5:15
-B2. Love Conquers All 3:45
-B3. Breakfast In Bed 5:18
-B4. Too Much Is Not Enough 4:18
-B5. Wicked Ways 6:32Жанр: RockПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46BFC05513E57F36CC3C67C285C0D88061F7D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973683   (978127) от 10.01.2016
-
-VA - Blues & Ballads 2 (1996) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Pop, Cover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valery - I Will Always Love You
-02. Power Band - Now I Know What Made Otis Blue
-03. Bill Power - Streets Of Philadelphia
-04. Jackie Moore - Why(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FC4B473CF5E93F11827BE9F0B3A10C63FA29A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973397   (978125) от 10.01.2016
-
-Dana International - The Album (1998) [FLAC 2.0|16/44,1 |image+.cue (Vinyl-Rip)] <Euro House>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diva
-02. Cinque Milla (Remix)
-03. Maganuna (Remix)
-04. Qu'est Que C'est? (Remix)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF85AAC73B9E8EDFB901EAB0191411010D3F11DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

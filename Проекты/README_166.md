@@ -1,3 +1,29 @@
+###  Публикация: 1032626   (643456) от 08.07.2016
+
+Проекты - VideoHive - Multi Photo Slideshow - 10453874 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Multi Photo Slideshow - много-дисплейное слайдшоу с большим количеством заполнителей.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A761F49B113C8128E28CE1D6D15F1465ED3F0BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032635   (643265) от 08.07.2016
 
 Проекты - VideoHive - World War Broadcast Package - 12906648 [AEP]
@@ -651,33 +677,6 @@ History - проект который поможет легко создать �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7AEB08375D39897CFB6A869CC4676F9CAE92E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293270   (638815) от 02.04.2019
-
-Проекты - VideoHive - Opener - 13684861 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opener - оригинальный проект для создания вступительного видео.
-Автор проекта: StenLogoФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A003D58109B6A88C5F467F7D976056030435AC99
 ```
 
 https://mybot314.ru/tekegram_catalog/

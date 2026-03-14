@@ -1,3 +1,90 @@
+###  Публикация: 1681893   (132081) от 05.12.2023
+
+VA - The Best Acid Jazz Covers (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Nu Jazz, Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lostinwhite - For Once in My Life (3:01)
+02. Andrew De la Foix - Misfit (Radio Edit) (3:21)
+03. Bossa Nostra - Home Is Where The Hatred Is (Ken@Work Mix) (5:10)
+04. Marina Santelli - You Can Leave Your Hat On (5:20)(   Читать дальше...   )Жанр: Acid Jazz, Nu Jazz, Future JazzПродолжительность: 01:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843732EE74E799F2A159E54FB09A456D4AA626EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682211   (131864) от 06.12.2023
+
+Andrew Hill - The Complete Blue Note Sessions (1963 - 1966) 7CD, 1995, Mosaic Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violence [11:08]
+02. Violence (alternate take) [7:05]
+03. Hope [7:19]
+04. Illusion [5:56](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 06:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2481B7AA83AE728D221F48DD32E193E225B5050E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682165   (131852) от 06.12.2023
+
+Smooth Jazz Music Ensemble - Warm Winter Wine (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Instrumental, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Jazz Cafe (3:21)
+02. Evening with Red Wine (3:37)
+03. Sunday Morning Jazz (3:21)
+04. Time for Black Coffee (3:16)(   Читать дальше...   )Жанр: Jazz, Instrumental, Easy ListeningПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9A07E6842C3FECB4EC78C03B3BA5CC42D0B674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682213   (131850) от 06.12.2023
 
 Coffee Jazz Melody - Autumn Colors (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Easy Listening>
@@ -710,93 +797,6 @@ VA - Best Emotional Sax Colletion (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A53944E2F46AF134AF4BC88C4F1F5F4D551EFE84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683290   (128694) от 10.12.2023
-
-VA - Chilly Ambient Smooth Operator Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Konstantin Klashtorni - 7 x 7 (4:13)
-02. Chillaxing Jazz Kollektion - Drops in the Ocean (4:12)
-03. Chillaxonic - Cosmic Visions (4:26)
-04. Kool&Klean - Drift (6:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF9AA9B5CDEB7FB8AAD5EBB827D89CC645FB46D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683202   (128689) от 10.12.2023
-
-McCoy Tyner - The Impulse Albums Collection (1961 - 1964) 4CD, 2022, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Green Dolphin Street [23:27]
-02. Softly, As In A Morning Sunrise [14:42]
-03. The Way You Look Tonight [11:39]
-04. Oleo [18:01](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 04:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53EFF49F67A4BEF3E298F0D00E0A44F6E45A728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683208   (128688) от 10.12.2023
-
-Ramsey Lewis - The Beatles Songbook: The Saturday Salon Series, Vol. 1 (2022) Steele Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here, There and Everywhere [4:09]
-02. And I Love Her [4:11]
-03. Hey Jude [3:47]
-04. Blackbird [1:58](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A6DE3E7BEBA5F5A22638069C202394DCD89603
 ```
 
 https://mybot314.ru/tekegram_catalog/

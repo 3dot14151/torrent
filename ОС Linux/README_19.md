@@ -1,3 +1,55 @@
+###  Публикация: 1656508   (193556) от 31.08.2023
+
+Mageia 9 [x86-64] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: спустя два с половиной года с момента прошлого значительного выпуска опубликован релиз Linux-дистрибутива Mageia 9, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные установочные сборки (4.3 ГБ) и набор Live-сборок (3.4-3.8 ГБ) на базе GNOME, KDE и Xfce.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87CEF7605F501C07AE033089FC52EC2344B2EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588972   (190727) от 07.11.2022
+
+Athena OS amd64 [Хакинг, аудит, безопасность] 22.11.04 [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_190727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пентестинг:
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF33E3988F31CDFC917A96D7AB2B3015BB7C0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647127   (179767) от 03.10.2023
 
 Linux Mint 21.2 Victoria (Cinnamon Edition, Cinnamon (Edge) Edition, MATE Edition, Xfce Edition) [64-bit] 4xDVD
@@ -625,60 +677,6 @@ AV Linux имеет полностью настроенный Debian Linux с XF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE60BFC6817B52ED5B0D46DA6343D782278D96E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271702   (146478) от 25.12.2018
-
-CentOS 7.6 (1810) [i386] 2xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступен новый выпуск дистрибутивов CentOS 7.6.1810, вобравшие в себя изменения из Red Hat Enterprise Linux 7.6. Дистрибутивы полностью бинарно совместимы с RHEL 7.6, внесенные в пакеты изменения, как правило, сводятся к ребрендингу и замене художественного оформления.
-
-Сборки CentOS 7.6 доступны для архитектур x86_64, Aarch64 (ARM64), i386, ppc64le, Power9 и ARMv7 (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961EE7368EFE3AAEFD320E97AB2DB54199E2B2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969950   (145189) от 28.12.2015
-
-Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и server) [amd64] 7xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня вышел релиз первого дистрибутива 16-го года в разделе - Sabayon Linux 16.01, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89314A189B2732BE160791E215D7289EB68A7E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

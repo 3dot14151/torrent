@@ -1,3 +1,63 @@
+###  Публикация: 515928   (649728) от 30.06.2012
+
+Fat Janitor - Lurk (EP) (2012) [MP3|320 кб/с]<Shoegaze Mathcore / Noise Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649728.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Laughing Sick
+2.French Winger
+3.Lizard Kissing Papa
+4.Squelch Hag
+5.Human Sandbags
+6.Two Nights In HellЖанр: Shoegaze Mathcore / Noise RockПродолжительность: 00:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2EEBB7340969C52448189FB10BA9E26306B1A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905487   (649601) от 06.06.2015
+
+Animal Soup - Lover's Leap (2015) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover's Leap 13:53
+02. The Romantic 04:40
+03. The Stranger 03:36
+04. The Big Time I 03:52(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2DC75A7AEBE6A5BC6D1D260372031462828AA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905484   (649596) от 06.06.2015
 
 Steve Hughes - Tales From The Silent Ocean (2015) [MP3|320 кб/с]<Progressive Rock>
@@ -711,64 +771,6 @@ Jani Lane - Catch A Falling Star (2016) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C42CA430FA951A38539C4B6922C0A4534D9A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906493   (643819) от 09.06.2015
-
-Ancient Sky - Mosaic (2015) [MP3|320 кб/с]<Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sing Swing
-02. Two Lights
-03. Garbage Brain
-04. Know(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7DA2DEFD12CFBABE2951DC93FE5ABFD095F92A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032542   (643814) от 08.07.2016
-
-Los Venturas - Miles High (2016) [MP3|320 Kbps] <60's Guitar's Instrumental Surf Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Rey De Los Cielos
-02. O Fata Romana
-03. Pradesh Hypno Beat
-04. Ringispil(   Читать дальше...   )Жанр: 60's Guitar's Instrumental Surf RockПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BE358DF454F5DA1CD2473A346AE8552B40E0F17
 ```
 
 https://mybot314.ru/tekegram_catalog/

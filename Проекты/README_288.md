@@ -1,3 +1,29 @@
+###  Публикация: 1333529   (302992) от 25.10.2019
+
+Проекты - VideoHive - Winter Memories - 14421393 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Winter Memories - Проект Зимние Воспоминания идеальное решения для создания рождественских и новогодних слайд-шоу, воспоминаний о зимних путешествиях, зимних спортивных игр т. д.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309C052CA615C73C2C06ABD62866BCC9F2B94532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961178   (302924) от 30.11.2015
 
 Проекты - Grunge Trailer Cinematic ( Egypt ) [AEP]
@@ -655,32 +681,6 @@ Travel & Vacations Explainer Toolkit - Имеете ли свое дело, св
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0CF57914784BF7ECDC7A1266191FD2AC4AB7D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078378   (301789) от 30.11.2016
-
-Проекты - Sony Vegas Pro - Merry Christmas! [VEG]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо вступления, рождественской открытки, поздравления.Формат: VEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8AD879BBBD21265F6DB8F74FF55E87F07F3AA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

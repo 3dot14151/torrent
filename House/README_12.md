@@ -1,3 +1,235 @@
+###  Публикация: 1002922   (845398) от 02.04.2016
+
+VA - Sunshine Live Vol.56 (2016) [MP3|257-279 кб/с] <House, Progressive, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Robin Schulz & Disciples - Yellow 03:35
+02 Dimitri Vegas & Like Mike feat. Ne-Yo - Higher Place 02:54
+03 Galantis - Peanut Butter Jelly 03:22
+04 Gestort aber GeiL feat. Sebastian Hamer - Ich & Du 03:36(   Читать дальше...   )Жанр: House, Progressive, Electro House, ClubПродолжительность: 05:26:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE905777FC547DB41710267A3D29A4B490ECD301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003013   (845395) от 02.04.2016
+
+VA - Sunshine Live Vol.57 (2016) [MP3|320 кб/с] <House, Progressive, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Robin Schulz - Sugar 03:39
+02 Felix Jaehn - Eagle Eyes (Lucas & Steve Remix feat. Lost Frequencies & Linying) 03:19
+03 EDX - Revered 03:15
+04 DJ Antoine - Thank You (Paolo Ortelli & Luke Degree Radio Edit) 03:26(   Читать дальше...   )Жанр: House, Progressive, Electro HouseПродолжительность: 06:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEBED05E1BFBB1E1D006452EBC37F29C3DDB6E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002873   (845391) от 02.04.2016
+
+VA - Moodmusic WMC Survival Kit (2016) [MP3|320 кб/с] <Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henrik Schwarz – Forbidden (Club Mix)
+02. Affect! – Inventio
+03. Freestyle Man & George Spruce – Gotta Need (Matthias Tanzmann Remix)
+04. Maurice Aymard – Stripped(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 02:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A5777079CE434C98597F41701539C977C67069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003110   (845297) от 02.04.2016
+
+Ed Ed - Eclectic 01 (2016) [MP3|320 кб/с] <Tech House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Galemore - Johanna Is Leaving
+02. Curses - Time Is On My Side
+03. Giorgia Angiuli - Get Slow
+04. Kiki & Ed Ed - Day Of Drones(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 03:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01350B197632BE0139B605451538AE8A7E7687A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002860   (845294) от 02.04.2016
+
+Oliver Schories - Relatively Definitely (2016) [MP3|320 кб/с] <Tech House, Deep House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curl
+02. Marin
+03. Floyd
+04. Barac(   Читать дальше...   )Жанр: Tech House, Deep House, TechnoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEAA0FC22CDF46D092E82D08E0068D4ED52E0460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003059   (845201) от 02.04.2016
+
+VA - 10 Years Stil Vor Talent (Presented By Oliver Koletzki) - 2016 [MP3|320 кб/с] <Tech House, Deep House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HVOB – Envy
+02. Joachim Pastor – Clean Slate
+03. Bjorn Starig – Moqui Marble
+04. Teenage Mutants/EdOne/Bodden – Expression(   Читать дальше...   )Жанр: Tech House, Deep House, TechnoПродолжительность: 03:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616D84860CC664BB45FD212AFC9AF2DDC45B6B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112025   (845153) от 07.03.2017
+
+VA - The Tribal House of Istanbul (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Dello - Gulbahar [00:09:03]
+02. Stradivarius - Hang on the Vibe [00:06:58]
+03. Kephee - What Happened [00:06:47]
+04. Oscar Vaught - Freak On [00:03:10](   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectronicПродолжительность: 02:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF62499DEEA0AA73229923F3C44F548FED88E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112176   (844853) от 07.03.2017
+
+Moby - Suara Remixes (2017) [MP3|320 Kbps] <Techno, Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go (Victor Ruiz Remix) 09:19
+02. Porcelain (Julian Jeweil Remix) 06:31
+03. Natural Blues (Reinier Zonneveld's Homage Remix) 07:17
+04. Go (Victor Ruiz Warehouse Mix) 07:43(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AEDF228A52E063F9C2C9B49C7CDCC166AE394D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003162   (843571) от 03.04.2016
 
 VA - 5 Years With Macarize (2016) [MP3|320 кб/с] <Progressive House>
@@ -514,238 +746,6 @@ VA - Lazy Sundays Vol 3 (2016) [MP3|320 кб/с] <Deep House, Chill House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:006A4CFA12BEAA7F57635C094B07BE6F83518B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114554   (832157) от 15.03.2017
-
-VA - Electro Nation (2017) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dario Rodriguez & Mr. V - Beat Back  3:45
-02.  DBN - Dublin  4:46
-03.  Monoloop - Uuck  4:31
-04.  Beat Kat - Rock It  5:23(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58873E805C47B72C433C33E456A54D1886F94F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114543   (832155) от 15.03.2017
-
-VA - Nu Disco Super Hits 2017 (Volume 002) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Kristina Mailana - Forget Me Not (Original Mix)  4:21
-02.  Echo Boy - Get Do It (Original Mix)  4:58
-03.  Crystal Shakers - Stand Alone (Original Mix)  4:49
-04.  DJ Favorite - Do You Wanna House (Original Mix)  5:26(   Читать дальше...   )Жанр: HouseПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E204534284BEA2BE56FF8400E8EE410E82D46DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114586   (832151) от 15.03.2017
-
-VA - Hernan Cattaneo - Balance Presents Sudbeat (2017) [MP3|320 Kbps] <Deep House, Progressive House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hernan Cattaneo - Balance Presents Sudbeat (continuous DJ mix 1) (78:41)
-02. Hernan Cattaneo - Balance Presents Sudbeat (continuous DJ mix 2) (77:57)
-03. Toki Fuko - An Odor (8:59)
-04. Sahar Z & Navar - The Dogma Code (7:07)(   Читать дальше...   )Жанр: Deep House, Progressive House, Tech HouseПродолжительность: 06:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1612542990DA11ECABA5DA9B4D2BC06AC2F46E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114522   (832085) от 15.03.2017
-
-VA - Islas Baleares: The Summer Opening Party 2017 (30 Deep House Anthems) (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mario Chris - Beach  4:06
-02.  Eva Scolaro - Don't Tell Me No (Anders Ponsaing Remix)  5:49
-03.  Slippy Beats - Deep In The Night (Maui's Tropical Beach Remix)  3:48
-04.  Andy B. Jones - World To Life (Matty Menck Dub)  4:09(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEFE8F5F1A87AAA03C1B8CA210432F320E69C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 421999   (831820) от 12.10.2021
-
-Korablove - Sociopath's Diary (2011) [MP3|320 kbps]<Tech House, Minimal, Ambient>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kostamus (6:25)
- 02. Puppet Theatre (4:17)
- 03. Nothing To Say (feat. Ryba) (5:21)
- 04. Percussionata (8:53)(   Читать дальше...   )Жанр: Tech House, Minimal, AmbientПродолжительность: 01:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECEDE25EA6DE5031B30ADC4057F25988255CDE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380814   (831363) от 04.05.2020
-
-VA - Summer Deephouse Megamix 2020 (2020) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Summer Deephouse Megamix 2020 Pt. 1 1:15:12
-02. DJ Mix - Summer Deephouse Megamix 2020 Pt. 2 1:18:13
-03. Ben Delay - Something Special (Extended Mix) 4:49
-04. Carlisle - On Your Skin (Original Club Mix) 3:37(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive, Electronic, DanceПродолжительность: 09:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9DFDACB21F14A8FCDE66B38CB9507F94998C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005748   (831065) от 10.04.2016
-
-JIN SHI - My Digital Madness (2013) [MP3|320 кб/с] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831065.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. JIN SHI - My Digital Madness (continuous DJ mix) (01:17:35)
-01. Four Tet - Lion (Jamie XX Remix) (5:25)
-02. Erdbeerschnitzel - Cushion (Original Mix) (4:40)
-03. Archie Pelago feat. Becca Stevens - Avocado Roller (Original Mix) (3:34)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:35:03 (01:17:35 + 01:17:28)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADBE694E89110B5518C721631FAFAC804C44E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114919   (830070) от 16.03.2017
-
-VA - Never Miss A Beat (25 Crazy Deep-House Tunes) Vol.2 (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  House Vicious - Summer Leaves (Original Mix)  3:19
-02.  Chada - Through The Bar Line (Original Mix)  3:06
-03.  Julian Smith - Lacetti (Original Mix)  11:41
-04.  Tommy Harmond - Stay Together Forever (Extended Mix)  3:32(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375D04956B4F0A6737F6DB54AD0F0B0E1FEDBBBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1452650   (1027598) от 07.03.2021
+
+VA - March Urban Trance Party (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем Вам погрузиться в только лучшую атмосферу андеграунда, вместе с лучшими ди джеями европы, которые не перестают удивлять своих слушателей креативом мышления и взглядом на современную музыку.001. Cquenz - Breathe You In
+002. Ultimate - Outside World
+003. Emj - Cosmic Ocean
+004. Xijaro & Pitch - Head Over Heels(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 12:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB50FEACD2CFC2CC7C8333F321FB59629A21E969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452649   (1027597) от 07.03.2021
+
+VA - E-Dance: Clubbing Electro House (2021) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отпадная клубная музыка в жанре Elесtrо Hоusе собрана настоящими меломанами, клаберами и ценителями качественного саунда в альбоме «E-Dance: Clubbing Electro House». Вас ждет очень много заводных мотивов, сэмплов и крутой вокал. Вся эта музыка звучит на топовых радио и видео каналах мира, на масштабных фестивалях и корпоративах. С первых треков мощный бит поднимет (   Читать дальше...   )001. Steve Massano - Division
+002. Blaze & Udaufl - Spread Love
+003. Markus Grunewelden - No Quick Fix
+004. Dama Blank - Deep(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 11:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0B01A9BE794937A8DAAA785F8AE0ACC6E1A944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452651   (1027586) от 07.03.2021
+
+VA - My Feelings Electropop Music (2021) [MP3|320 Kbps] <Synthpop, Electropop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкий не напрягающий напев, классические синтезаторные тембры, околофанковый гитарный саунд, приятный запоминающийся мотив - все это в совокупности составляет отличную музыкальную композицию, которую не стыдно поместить в плейлист для ежедневного прослушивания.001. DJ Antention - Runaway
+002. Irrlicht - La Piece
+003. Albino - Amando
+004. Boy Blue - Don't Leave Me Alone(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 09:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A327A163D737FB89BC10C599B7EE6242BB4F1A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452652   (1027552) от 07.03.2021
 
 VA - New Season: New Look (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -655,93 +742,6 @@ VA - Beatport Electro House: Sound Pack #255 (2021) [MP3|320 Kbps] <Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B0260CDF2396760A1768B54B86E1A88863D3323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454485   (1026257) от 15.03.2021
-
-VA - A Brief Touch Of (2021) [MP3|320 Kbps] <Indie, Pop, Rock, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026257.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном сборнике подобраны свежие новинки от исполнителей разных направлений independent-культуры. Мелодичность, простота звучания и отсутствие какой либо агрессии, так можно охарактеризовать эту музыку. Она варьируется от трогательных акустических мелодий и мечтательного попа до энергично-кричащих гитарных запилов с необычным вокалом.001. BUMPER - You Can Get It
-002. Anna B Savage - A Steady Warmth
-003. Carm - Song Of Trouble
-004. Julien Baker - Hardline(   Читать дальше...   )Жанр: Indie, Pop, Rock, AlternativeПродолжительность: 08:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E822B993D1B1504094047560592104BD0971E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454484   (1026252) от 15.03.2021
-
-VA - Beatport Drum And Bass: Electro Sound Pack #254 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы любитель по-настоящему жестких басов, то этот 254-й релиз от Beatport предназначен именно Вас, ведь здесь собраны треки с самыми разными направлениями жанра линейки Bassline.001. Monista - Make Sure They're All Dead
-002. Terror & Espa - Loaded Gun
-003. Blvck Crowz & Careso - Gossip
-004. Speaker Louis - Foundation(   Читать дальше...   )Жанр: D&B, Bassline, Electro BassПродолжительность: 12:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47DAFE729F305484912C0DC65E4835E842A065D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454483   (1026244) от 15.03.2021
-
-VA - Rap Blender Mix (Vol.02) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026244.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ряду разнообразных музыкальных стилей, жанров и направлений особняком стоит музыка в стиле рэп. Этот жанр музыки справедливо считается народным, ведь его появление никоим образом не связано с коммерцией. Эта музыка своеобразное проявление молодежи, эмоциональная подпитка. В настоящее время рэп выходит за границы музыки, представляя из себя культуру, которой свойственны (   Читать дальше...   )001. Luni - Konbanwa
-002. Hitsticktaxfree - From The Ghetto
-003. Basicallytheo - Chubby Rain
-004. Yhung T.O. - No Time Soon(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 09:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4C12FBBF51B2A9EF6D39596A400E1CCA5167D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

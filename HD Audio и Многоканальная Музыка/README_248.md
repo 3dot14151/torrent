@@ -1,3 +1,145 @@
+###  Публикация: 1801662   (14715) от 13.06.2025
+
+Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk, CountryПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5229224C856971504507DB44B3B63871D46C71DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801769   (14712) от 13.06.2025
+
+Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordings Ltd [FLAC 24/96|Lossless|WEB-DL|tracks] <Britpop, Alternative Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Supersonic [4:45]
+02 - Roll With It [4:00]
+03 - Live Forever [4:39]
+04 - Wonderwall [4:22](   Читать дальше...   )Жанр: Britpop, Alternative Rock, Indie RockПродолжительность: 02:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798DBFC6222AF8BC193EC504AF5962434DBE9CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801799   (14710) от 13.06.2025
+
+Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Folk Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Sunday Feeling (Live) [3:59]
+02 - Living in the Past (Live) [5:36]
+03 - Serenade to a Cuckoo (Live) [4:22]
+04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931A31D6D0882E4EB028D82D22E965D6F669784F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645217   (14545) от 15.06.2025
+
+Katatonia - Studio Albums (15 releases) (1993-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal; Gothic/Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Katatonia — шведская группа, основанная в 1991 году в Стокгольме Йонасом Ренксе и Андерсом Нюстрёмом. Раннее творчество коллектива принято характеризовать как дэт-дум-метал, а сама группа, наряду с My Dying Bride, Anathema и Paradise Lost, считается лидером этого жанра. Однако после записи альбома Brave Murder Day, в котором вокальные партии исполнил Микаэль Окерфельдт, (   Читать дальше...   )1993 - Dance Of December Souls
+1996 - Brave Murder Day
+1998 - Discouraged Ones
+1999 - Tonight's DecisionЖанр: Doom/Death Metal; Gothic/Progressive RockПродолжительность: 16:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9012591C944A59D0CE949CB8FFD63505E05606A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802398   (14434) от 16.06.2025
+
+The Hu - Echos of Thunder (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Mongol Warrior Souls (feat. William DuVall and Trevor McNevan) (Teerawk Remix) [00:03:58]
+02. Bii Biyelgee (feat. Tyler Glenn of Neon Trees) [00:04:20]
+03. Triangle (feat. ROME) [00:03:34]
+04. This Is Mongol [00:03:44](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5A0821B90959EFDC232C0104E3AFF803D00356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802272   (14415) от 16.06.2025
 
 Byzantine - Harbingers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Groove Metal, Thrash Metal>
@@ -600,151 +742,6 @@ Bruce Springsteen - Tracks II: The Lost Albums (2025) [FLAC 24/96, 24/44.1|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB3A4D9688A951A81E4FD0B839DD99934BE36F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804598   (12961) от 30.06.2025
-
-Louis Armstrong - What A Wonderful World (1968) Japan Edition, Limited Edition, Reissue, 2014, Verve Reissues [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - What A Wonderful World [2:20]
-02 - Cabaret (Single Version) [2:47]
-03 - The Home Fire [3:18]
-04 - Dream A Little Dream Of Me [3:18](   Читать дальше...   )Жанр: JazzПродолжительность: 00:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FEB494311E3532F13D2A3BEA2246D7A6DB5899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804505   (12950) от 30.06.2025
-
-Killing of a Sacred Deer - A Visage of a Mangled Body (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deathcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Lenz ist da! [00:04:50]
-02. Europa [00:05:31]
-03. Rosen auf den Weg gestreut [00:04:53]
-04. Die Mäuler auf! [00:04:58](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D780D85244B011764A4FF4F7D87361D0E923C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804587   (12946) от 30.06.2025
-
-Spoon - They Want My Soul (2014) Reissue, Deluxe More Soul Edition, 2024, Matador [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rent I Pay [3:10]
-02 - Inside Out [5:02]
-03 - Rainy Taxi [3:59]
-04 - Do You [3:33](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CDE0CBF725D968676C16F4D1B6994445B2A4D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804508   (12943) от 30.06.2025
-
-Culture Kultur - Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop, Futurepop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dna Slaves_Redux [00:03:23]
-02. Forever_Redux [00:05:10]
-03. Promised Land Blues_Redux [00:05:39]
-04. War is Over_Redux [00:04:44](   Читать дальше...   )Жанр: Synthpop, FuturepopПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E955DB453B7A2A03CA53D0C8A8CE96331540D339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804572   (12941) от 30.06.2025
-
-Muse - The 2nd Law (2012) Reissue, 2015, Warner Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Supremacy [4:56]
-02 - Madness [4:40]
-03 - Panic Station [3:05]
-04 - Prelude [0:58](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E431B92B01F7AB790A16008880194F76FEA89F
 ```
 
 https://mybot314.ru/tekegram_catalog/

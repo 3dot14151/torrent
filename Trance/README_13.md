@@ -1,3 +1,148 @@
+###  Публикация: 1213944   (766583) от 19.03.2018
+
+VA - Best Of Trance Vol.02 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  PROFF  -  Innervate (Original Mix)  6:26
+02.  Sound Quelle & Piramex  -  Shoreline (Original Mix)  5:06
+03.  LaMeduza & Stendahl  -  Couldn't Open Up (Terry Da Libra Remix)  7:08
+04.  LTN  -  As Tears Go By (Original Mix)  7:07(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACF6C4CFF62515791BBD4F9C5973925227CE694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126157   (765549) от 18.04.2017
+
+VA - Suanda Spring Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Attila Syah & LTN - Bromo (Original Mix)  6:30
+02.  Bogdan Vix & Lucid Blue - I Am Now (Original Mix)  6:24
+03.  Photographer - Infinity (Roman Messer Radio Edit)  3:29
+04.  Eranga & Mino Safy - Up To You (feat. Maria Milewska) (CubeTonic Remix)  5:19(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3354D83F5CD73B375AC48B508F4A71DDB4FB1859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214476   (764967) от 21.03.2018
+
+VA - Progressive Miami (2018) [MP3|320 Kbps] <Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ruslan Radriges vs. Neurofunq & Tiff Lacey  -  Wonderfull (Original Mix)  3:38
+02.  Mivase  -  I Can't Give Up (Extended Mix)  4:24
+03.  Roman Messer feat. Angel Falls & Armos  -  Higher (LTN Extended Sunrise Remix)  6:05
+04.  MOROSHKA  -  4AM (Original Mix)  4:44(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FEC14319C96101D64B17F5CB66DF73F6D8F7A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279950   (764597) от 31.01.2019
+
+VA - Festival Anthems Vol.4 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - New Era (Suanda 150 Anthem) (Extended Mix)
+02. Frainbreeze - #Dvrk5ide (Extended Mix)
+03. Ruslan Radriges - Revival (Extended Mix)
+04. Adip Kiyoi - Start With A Dream (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA4D9B6C5DE90A8FD3BAF3E954D85CF11E87891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279959   (764592) от 31.01.2019
+
+VA - Nicholson - Glorious (The Album) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholson - Toward The Light (Feat. Jennie Osborn) (Original Mix)
+02. Nicholson - Society (Original Mix)
+03. Nicholson & Emoiryah - In The Need (Original Mix)
+04. Nicholson - Shut Them Down (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D497DFE00126DDEF837B82F6F3A814C74B54D72E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394234   (764513) от 04.07.2020
 
 VA - Dream Dance Vol.89 (2020) 3CD  Box Set [MP3|320 Kbps] <Trance, Progressive, Dance>
@@ -600,151 +745,6 @@ VA - Uplifting Trance Classics 2021 (2022) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:192A26E9F6FCF38897A7E90B90057EA513D7D8EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282772   (743746) от 13.02.2019
-
-VA - Damaged 100 (Mixed by Jordan Suckley & Alex Di Stefano) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chester Cat – The People (Intro Mix)
-02. Iain M – Stem Cell (Extended Mix)
-03. Sygma – Magnetic (Original Mix)
-04. Jordan Suckley – Moskva (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D740516CDA548A2CF53E7594477BDB1884D214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217429   (743485) от 04.04.2018
-
-VA - The Sound Of Trance Vol.09 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outfade - Afterglow (original mix)
-02. Ian Source - Deep In Thought (Trance Arts remix)
-03. The Cracken - Never Say Never (extended mix)
-04. Neoxyne - The Cry Of The Soul (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0846765AABF13349B3513F31835171C47A1A570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217459   (743484) от 04.04.2018
-
-VA - Trance Generator (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M.A.R.K.Y - Cloudless (Original Mix)
-02. Higher State of Trance - Memories (Extended Mix)
-03. Sunlight Project - Paths of Love (Original Mix)
-04. MarcW - Grey Day (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25414EB1008E4787D888CB470FBBF75C95D98FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217452   (743483) от 04.04.2018
-
-VA - Tech Trance Essentials Vol.12 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Van Orton - The Scarlet Flower  (Phase II) (original mix)
-02. Alex Van Orton - Le Projet De Janvier (original mix)
-03. 2Sher - Illustrator (Illustration 1)
-04. 3rd Planet - Planet Rock (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339BCE27E434F626BFCDCD65DD8B6E998AD63958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217235   (743482) от 04.04.2018
-
-VA - Suanda Music Radio Top 15 (April 2018) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Xquizit - Empire Of Our Own (Alexander Popov Remix) (Feat. Osito) [3:23]
-02. Etasonic - Flying In A Dream (Ram & Cari Remix) [6:24]
-03. Ruslan Radriges - Wonderfull (Extended Mix) [5:17]
-04. Deep Fog - Open Your Eyes (O.B.M Notion Remix) (Feat. Djiva) [6:54](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C217F905C8B9C2D416F26CD3AA9C2B51225B06
 ```
 
 https://mybot314.ru/tekegram_catalog/

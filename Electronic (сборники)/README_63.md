@@ -1,3 +1,32 @@
+###  Публикация: 1211239   (777874) от 06.03.2018
+
+VA - Empire Records - Magic House 3 (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Physical Dreams  -  Back To You (Original Mix)  8:10
+02.  Chicane vs. Barberella  -  How Does Your House Work (Danny Dove Extended Remix)  5:12
+03.  Red Dreams  -  Fall in Love (Waveform & Filter Mix)  5:34
+04.  Giara  -  Gloomy Night (Original Mix)  3:52(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141F87AE33820099B5D33956792E77A6823AC081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013575   (777681) от 04.05.2016
 
 VA - Pulsed Future House Sounds (2016) [MP3|320 кб/с] <House, Club, Dance>
@@ -716,35 +745,6 @@ VA - Music Generation: Big Room Electro House (2018) [MP3|320 Kbps] <Electro Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DED95F801ED87035A1E103544414417BC682832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212153   (776539) от 10.03.2018
-
-VA - Deep House: Deep Calm (2018) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776539.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3 Monkeyzz feat. Louise Mambell - Ghost (Original Mix) 03:50
-002. Natan vs. Alex Poison, Labora Trixx - Гипнотайз (Vadim Adamov Mash up) 04:14
-003. Rey Vercosa, Henry Oak - Tear Me Apart feat. Annie V (Extended Mix) 05:21
-004. Adisyn - Digital Heart (Original Mix) 07:03(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844DF43B507ACBADD9B068D74011BF79D57C50B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

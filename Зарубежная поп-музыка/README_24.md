@@ -1,3 +1,61 @@
+###  Публикация: 1215596   (758221) от 26.03.2018
+
+Yan Tregger - Christopher Ried - Ducks & Drakes (1979) LP [MP3|320 Kbps] <Electronic, Psychedelic, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friend Island (3:31)
+02. The Girl in the Gold (2:52)
+03. Dawn and Darkness (3:35)
+04. The Ivy Heart (0:18)(   Читать дальше...   )Жанр: Electronic, Psychedelic, DiscoПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B6887D884049DA258FA0684119D7D35D26698A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018196   (757255) от 19.05.2016
+
+VA - Super Hits Of The '70s: Have A Nice Day (1990-1996) 25CD [MP3|320 кб/с] <Pop,Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiral Staircase - More Today Than Yesterday (2:58)
+ 02. Smith - Baby It's You (3:25)
+ 03. The Flying Machine - Smile A Little Smile For Me (3:00)
+ 04. Billy Joe Royal - Cherry Hill Park (2:50)(   Читать дальше...   )Жанр: Pop, Rock|Продолжительность: 16:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0431B314B0C064029576B1478D2812EEFF8E30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215789   (756728) от 27.03.2018
 
 Mary Chapin Carpenter (Мэри Чапин Карпентер) - State Of The Heart (1989) Columbia [MP3|320 Kbps] <Country, Alt-Country, Pop-Rock, Indie, Soft Rock>
@@ -687,64 +745,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3DD18C11191DCA79A84B1FD29E6A92B1F7CCC62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282892   (742459) от 14.02.2019
-
-Patricia Paay - 4 Albums (1975-1981) LP [MP3|320 Kbps] <Europop, Pop Rock, Disco, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Patricia Paay -  голландская поп исполнительница, радиоведущая, гламур модель, звезда телевидения.Список альбомов:
-1975 - Beam Of Light
-1977 - The Lady Is A Champ
-1978 - Malibu Touch(   Читать дальше...   )Жанр: Europop, Pop Rock, Disco, BalladПродолжительность: 02:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDCBB744B7F5F10068F0100760E0E2CB2F42E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217445   (742409) от 05.04.2018
-
-Deana Carter (Дина Картер) - Father Christmas (2001) Rounder Records [MP3|320 Kbps] <Country, Alternative Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. I'll Be Home for Christmas 4:47
-02. The Christmas Song 4:42
-03. Merry Christmas Darling 3:28
-04. Blue Christmas 3:54(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F26258B6ED3ED69B321B429F7BAC3DDE496B9BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

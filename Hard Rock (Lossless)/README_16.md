@@ -1,3 +1,115 @@
+###  Публикация: 1489536   (925543) от 16.08.2021
+
+Wormhog - Yellow Sea (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wormhole (05:29)
+02. Beneath The Yellow Sea (07:42)
+03. Hellmouth (04:11)
+04. Crystal Grain (06:34)(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF8BDF88990462EFD79EC811E73DBDCF85A6463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489481   (925419) от 16.08.2021
+
+Religion6 - Never Too Late (Never Too Late) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Is Rock And Roll (04:59)
+02. I Believe In You (04:47)
+03. I Don't Want To Be Your President (04:07)
+04. Faith Healer (06:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C802A7605ADE1AFB0A6B27F1FCE79AC998A8AF25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 383061   (924261) от 21.01.2017
+
+Stone Axe - Stone Axe, Stone Axe II (2009, 2010) [FLAC|Lossless|tracks + .cue]<Hard Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard Rock, Stoner RockПродолжительность: 01:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0621E5A34DC5E7017967144407A13AD2F8B8EBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366347   (924128) от 11.03.2020
+
+Chasing Violets - 2 альбома (2012-2013) [FLAC|Lossless|image + .cue] <Melodic Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Outside Heaven
+2013 - Jade HeartsЖанр: Melodic Rock/AORПродолжительность: 02:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3C344D9F9A5DBC10C873459B1B92E5E56651F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366355   (924125) от 11.03.2020
 
 Virginia Wolf - 2 альбома (1986-1987) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
@@ -632,122 +744,6 @@ Geisha - Youth Stand Tall (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F9466E27909A82AEA8AF7C16C97C9D0EBB2E3DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098651   (908501) от 30.01.2017
-
-Tommy Heart - Spirit Of Time (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908501.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Spirit Of Time (special version for Japan) - 3:23
-2. Back For More - 3:40
-3. Don't Leave This Way - 3:18
-4. Best Times - 3:45(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C842A37A1A8A9F8168122B2C63AF27D3108791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098994   (907435) от 31.01.2017
-
-Mars Hill - Sink Or Swim (2003) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sink Or Swim 3:52
-02. All I Need 4:33
-03. Birds Of Prey 4:39
-04. Real 4:24(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09136D6B2126C07730932D80487ED4761A23F8F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368805   (907412) от 21.03.2020
-
-Def Leppard - The Early Years 79-81 (2020) Anthology Boxset 5CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Brigade (Remastered) (03:08)
-02. Hello America (Remastered) (03:27)
-03. Sorrow Is A Woman (Remastered) (03:54)
-04. It Could Be You (Remastered) (02:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 04:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7160226A9E90B67EA72AC2D073058F368DE15CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491879   (907379) от 27.08.2021
-
-Freakstorm - Storm Inside My Heart (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storm Inside My Heart
-02. Wicked
-03. Unbreakable Tonight
-04. Not The One(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD1BFBD6972D125257E86E1926A967B16527B73
 ```
 
 https://mybot314.ru/tekegram_catalog/

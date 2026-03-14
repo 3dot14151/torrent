@@ -1,3 +1,61 @@
+###  Публикация: 1287748   (697769) от 10.03.2019
+
+VA - ASOT 900 Pre Party @ Poema RAW, Utrecht (2019-02-23) [MP3|256-320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697769.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. JD Love B2B Will Renville @ Elevation Audio Pres. ASOT 900 Pre-Party, Club Poema Utrecht, Netherlands 2019-02-23 (00:47:30):
+
+01. Sasha - Xpander (Intro)
+02. Terk Dawn - Barent Blue (Mongoto Remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5F9BBB340D84B09A5015CA2D83FCD046FBB811A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287811   (697762) от 10.03.2019
+
+VA - ASOT 900 After-Party @ Poema RAW, Utrecht (2019-02-24) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697762.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Sixth Sense Live @ ASOT900 After Party, Poema RAW 24/02/19:
+01. Ace Da Brain - Time
+02. Chakra - Home (Above & Beyond Remix)
+03. Blank & Jones - Nightclubbing (Wippenberg remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 04:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040D8136EE01A8D864DF91AEA09EDE46375FB31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403180   (694404) от 18.08.2020
 
 ALPHA 9 - Anjunabeats Worldwide 689 2020-08-17 [MP3|320 Kbps] <Trance, Progressive House>
@@ -684,64 +742,6 @@ VA - Ori Uplift & DJ Ruby - Uplifting Only 275 (2018) [MP3|320 Kbps] <Trance,Upl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69D5F90B9D025B5B1932319737D0395B198F4310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140663   (654878) от 07.06.2017
-
-Aly & Fila - Future Sound Of Egypt 499 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Thomas & White-Aker - Red Skies (Original Mix)
-02. Ferry Corsten - Blueprint (Original Mix)
-03. DIM3NSION - The Energy (Extended Mix)
-04. Stoneface & Terminal - North Cape (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C2F960FA287EE3578796BE98B770EB7F5AF420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141171   (652552) от 09.06.2017
-
-VA - Ori Uplift - Uplifting Only 226 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emanuele Congeddu & Allam - Redemeer's Sundown
-02. Braulio Stefield - Chain Of Memories
-03. Dj Danie - Summerdreams (Alternate High Remix)
-04. Damian Wasse - In The Sky (Classical Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB20C5196756DE927581F1733E5099BFA229D2F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

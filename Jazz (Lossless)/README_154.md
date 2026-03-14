@@ -1,3 +1,89 @@
+###  Публикация: 1311693   (540071) от 30.06.2019
+
+Ellery Eskelin with Andrea Parkins & Jim Black - The Secret Museum (2000) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (6:11)
+ 02. You'll Know When You Get There... (5:14)
+ 03. Vox Organalis (6:54)
+ 04. Paris Swallowtail (5:01)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0EC9C2800224186483962F818854C48EA1298F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925739   (539315) от 07.08.2015
+
+Charlie Mingus - Statement (1969) /2014, Studio Songs/[FLAC|tracks+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orange Was The Colour Of Her Dress [18:07]
+02. The Man Who Never Sleeps [16:31]
+03. O.P. [08:51]Жанр: Jazz, Post-BopПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15B2856629EA9B0AF719C79BC65FAF7DF0B2B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154661   (539283) от 31.07.2017
+
+Dodo Marmarosa Trio - Complete Studio Recordings (1946 - 1962) 2CD, 2004, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539283.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Mellow Mood [03:15]
+02. Dodo's Blues [03:15]
+03. Raindrops [02:50](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 02:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB4D26DED4378D7D3D1F9CF19F74C8DE8C17545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557599   (539191) от 16.06.2022
 
 Grover Washington Jr. - Come Morning (1981) Elektra [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
@@ -658,93 +744,6 @@ McCoy Tyner - Jazz Profile (1967 - 1989) 1997, Blue Note [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:501332E204A19847C5C3BFA371659AD3B09DFE24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312027   (536594) от 02.07.2019
-
-Horace Silver - Jazz Profile (1952 - 1976) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Safari [5:11]
-02. Enchantment [6:23]
-03. Pyramid [6:39]
-04. Finger Poppin' [4:48](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FA43B2D5675C5A3AA1526EAA2EB3FE7A33B84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926041   (535648) от 09.08.2015
-
-Donald Byrd - Electric Byrd (1970) /2015, Universal/ [FLAC|tracks+.cue]<Jazz, Jazz Funk, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estavanico [11:36]
-02. Essence [10:43]
-03. Xibaba [13:42]
-04. The Dude [07:49]Жанр: Jazz, Jazz Funk, Jazz FusionПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35558B98FFEC169953926707C310D34CA3423A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926245   (535594) от 09.08.2015
-
-Bobby Caldwell - August Moon (1983) /Sin-Drome Records/ [FLAC|tracks+.cue]<Jazz, Smooth, Pop-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sherry [03:38]
-02. She Loves My Car [03:28]
-03. Fraulein [03:29]
-04. She Does It Better [03:02](   Читать дальше...   )Жанр: Jazz, Smooth, Pop-JazzПродолжительность: 00:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FDC455E5D5A7C3F70E5C890426C53FF2AFC993
 ```
 
 https://mybot314.ru/tekegram_catalog/

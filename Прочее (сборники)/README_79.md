@@ -1,3 +1,32 @@
+###  Публикация: 1294097   (631866) от 06.04.2019
+
+VA - The Official UK Top 40 Singles Chart 05.04.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved
+02. Billie Eilish - bad guy
+03. Calvin Harris, Rag'n'Bone Man - Giant
+04. Tom Walker - Just You and I(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FCCB2347031BEAC5DF76CAE9D7FDCF467C97C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294110   (631863) от 06.04.2019
 
 VA - Live Limited Welcome On April (2019) [MP3|320 Kbps] <Club, Electro, Dance>
@@ -752,35 +781,6 @@ CD 1. Время звучания: 01:18:27
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B36DB1997D244B21AB25D342D1D2AFD61A168DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909455   (627036) от 17.06.2015
-
-VA - Record Russian Mix (2015) [MP3|320 кб/с]<Club House, Dance, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Егор Крид - Самая - Самая
-02. Иван Дорн - Мишка Виновен (Атом Remix)
-03. Квест Пистолс - Санта-Лючия (Соловей Remix)
-04. Натан, Тимати - Девочка-Бомба (А Лисс Remix)(   Читать дальше...   )Жанр: Club House, Dance, Pop, HouseПродолжительность: 06:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083425651BECE6792BBEB414CFC24B61B2432CAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

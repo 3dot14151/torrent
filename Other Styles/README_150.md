@@ -1,3 +1,148 @@
+###  Публикация: 1084393   (220260) от 18.12.2016
+
+Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёздные войны Истории (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|tracks +.cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He's Here For Us (03:20)
+02. A Long Ride Ahead (03:56)
+03. Wobani Imperial Labor Camp (00:54)
+04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7FD3F822B02828D0E31F46541CC6E88AD08A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651372   (220165) от 08.08.2023
+
+Rezodrone - Gods Of Metal Ragnarock (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, Epic Metal>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_220165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gods Of Metal: Ragnarock Overture (feat. Jamison Boaz) [00:03:58]
+02. In The Beginning [00:02:56]
+03. The Proving Fields (feat. George Lynch) [00:03:05]
+04. Titans Walk Amongst Us (feat. Ernie C) [00:04:02](   Читать дальше...   )Жанр: OST, Epic MetalПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC87D80FCAB00DBED11F519006CA6C790BA6D075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966171   (219992) от 17.12.2015
+
+Enigma - MCMXC a.D. (1990) [FLAC|Lossless|tracks + .cue] <Abstract, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voice of Enigma (2:21)
+02. Principles of Lust: Sadeness / Find Love / Sadeness (reprise) (11:43)
+03. Callas Went Away (4:29)
+04. Mea Culpa (5:01)(   Читать дальше...   )Жанр: Abstract, AmbientПродолжительность: 00:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B62C5966E26E515A6CB632A033389372217245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269518   (219897) от 15.12.2018
+
+Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hostage, Pt. 1 (07:29)
+02. Will & Sarah (03:56)
+03. Welcome To Heaven (02:40)
+04. Botha (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47619DFC3AEE548A6EF1EA4B617180FAAA8ACFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269519   (219871) от 15.12.2018
+
+Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hostage, Pt. 1 (07:29)
+02. Will & Sarah (03:56)
+03. Welcome To Heaven (02:40)
+04. Botha (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB2CD312B9DE8C95BFC8B9A4CC010853457D98D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269466   (219716) от 15.12.2018
 
 Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных городов (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
@@ -612,149 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:526D54CD891E5896CD3F360AF169EE0EF56CD1FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966406   (217776) от 18.12.2015
-
-John Williams - Звёздные войны: Пробуждение силы  / Star Wars: The Force Awakens (Original Motion Picture Soundtrack) (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title and the Attack on the Jakku Village (06:26)
-02. The Scavenger (03:40)
-03. I Can Fly Anything (03:11)
-04. Rey Meets BB-8 (01:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86AB016E7670B3D19FE9159B4F2F01836D2CAF4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587265   (217768) от 12.12.2012
-
-Dr. Jeffrey Thompson - 2 albums (1995, 2001) [MP3|320 кб/с]<Ambient, Relax, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217768.jpg" />
-</div>
-
-
-###  Подробнее
-
-(34:06) 1. Hidden Beauty
-(35:20) 2. Kiss Good NightЖанр: Ambient, Relax, HealingПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC52E2BF5D87EACB5D5392AD05C9C9F57B15ADF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966419   (217736) от 18.12.2015
-
-John Williams - Звёздные войны: Пробуждение силы / Star Wars: The Force Awakens (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title and the Attack on the Jakku Village (06:26)
-02. The Scavenger (03:40)
-03. I Can Fly Anything (03:11)
-04. Rey Meets BB-8 (01:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C331E234D0E7C22C1009578E8C26F5837522DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514466   (217439) от 03.12.2021
-
-Музыкальные композиции Александра Морозова в исполнении Гасана Багирова - Мелодии для души (2007) [FLAC|Lossless|tracks + .cue]<Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Горница
-02. Душа болит
-03. Малиновый звон
-04. Остановите землю(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3133FBC00FBEFF99E7C13E983E42D3AF9C4B613E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084832   (216991) от 20.12.2016
-
-Frank Squillante - Take Me There (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Take Me There [00:04:29]
-02 -  American Image [00:03:05]
-03 -  I Was Told Otherwise [00:02:34]
-04 -  If You Think of It [00:02:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FB564614F31D253E0DF982138A7EAD13CA2050
 ```
 
 https://mybot314.ru/tekegram_catalog/

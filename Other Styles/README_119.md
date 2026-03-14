@@ -1,3 +1,154 @@
+###  Публикация: 1414579   (383305) от 09.10.2020
+
+Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Darkwave, Synthwave, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383305.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:36] 01. Intro
+[03:21] 02. Blood Machines Theme
+[03:19] 03. Attack Of The Amazons
+[02:24] 04. The Ceremony(   Читать дальше...   )Жанр: Darkwave, Synthwave, SoundtrackПродолжительность: 00:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61F5EE09EE4177150AA268BCC8021DE937BD98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175007   (383003) от 16.10.2017
+
+Немного Нервно - Сны о Земле. Глава 4 (2017) [MP3|320 Kbps] <Folk, Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383003.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Микеланджело
+2. Ритуал
+3. Витражи
+4. Santa Maria(   Читать дальше...   )Жанр: Folk, Folk RockПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576BD06B45BEB90F2B4B51DC707D6644616483FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068093   (382955) от 31.10.2016
+
+Dominique German - God's Peace (2016) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Dance [00:04:57]
+02. Quiet Time [00:07:05]
+03. Peaceful Place [00:06:00]
+04. Peace Within [00:05:34](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B95F51CE9FBEBA8346DE95873F39B97A1567FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 250572   (382578) от 27.10.2010
+
+VA - The Worlds Most Beautiful Flute Music. Instrumental Dreams (2004) [MP3|320 кб/с]<New age, Instrumental, Flute>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382578.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:26) 01. East Wind Associates - Wooden Ship
+(2:27) 02. Djivan Gasparyan - Ask Me No Questions
+(2:05) 03. J. Loman, N. Schulman - Gymnopedie #2
+(3:49) 04. Spotted Eagle - In Sunrise I Walk
+(4:13) 05. Richard Warner - Tao
+(4:12) 06. Joanie Madden - Women of Ireland
+(2:45) 07. Kay Gardner - Lydian Dreams
+(1:55) 08. Ensemble Villa Musica - Adagio from Flute Quartet in D
+(4:10) 09. Omar Faruk Tekbilek - Moment of Doubt
+(3:20) 10. Riley Lee - Melting Snow(   Читать дальше...   )Жанр: New age, Instrumental, FluteПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421FBFDB7B6E009E4CAAA0C47D2E605C7C23696E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253593   (381765) от 10.10.2018
+
+Constance Demby - Sonic Immersion (1996) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chakra #1 (07:35)
+02. Chakra #2 (06:30)
+03. Chakra #3 (05:28)
+04. Chakra #4 (05:27)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E2B4D0B6847C10BBCD3367004B2981A2C63447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253602   (381764) от 10.10.2018
 
 Constance Demby - Attunement (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
@@ -597,151 +748,6 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Selectio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CBE165FBA5E37CC229DDD753489E87F63E3F222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573421   (377656) от 11.11.2012
-
-Сумерки. Сага. Рассвет: Часть 2 - The Twilight Saga: Breaking Dawn - Part 2 (2012)OST [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passion Pit / Where I Come From
-02. Ellie Goulding / Bittersweet
-03. Green Day / The Forgotten
-04. Feist / Fire In The Water
-05. The Boom Circuits / Everything And Nothing
-06. St. Vincent / The Antidote
-07. Pop Etc / Speak Up
-08. Iko / Heart Of Stone
-09. A Boy And His Kite / Cover Your Tracks
-10. James Vincent Mcmorrow / Ghosts(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0588CF84957C407C70AD20538C87181672A2571E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414541   (376535) от 12.10.2020
-
-David Arkenstone - David Arkenstone: The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope Springs (4:21)
-02. Midsommar Stars (3:59)
-03. Of Mischief And Magic (3:57)
-04. Oberon Sleeps (4:19)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 04:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B348A4716B759D2B31E16ABC0279AD9826E2FABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175524   (376456) от 19.10.2017
-
-Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Gate [02:07]
-02. A Wolf In Unix [01:17]
-03. The Scenic Route [01:50]
-04. First Day On the Job [01:17](   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756AF940DCCA31F94F3D32904F8AF583AA034F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415398   (376345) от 12.10.2020
-
-Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9803936CE5F4EEA93D687D3D62D42BE9CED5D3E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415397   (376341) от 12.10.2020
-
-Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5123F6ECB4719995E254054370ED545E73EFEEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

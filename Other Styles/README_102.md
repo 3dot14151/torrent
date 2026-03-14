@@ -1,3 +1,145 @@
+###  Публикация: 1317163   (502503) от 30.07.2019
+
+David Osborne - What the World Needs Now (2019) [MP3|320 Kbps] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Look of Love
+02 What the World Needs Now
+03 (They Long to Be) Close to You
+04 Arthur's Theme (Best That You Can Do)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62381C0CD012CC88C0D4926E942AC7ED63B8414D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379841   (502072) от 25.08.2011
+
+Gheorghe Zamfir - 2 альбома (1986, 1991) [MP3|320 kbps] <Instrumental, Pan Flute>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гео́рге Замфи́р (рум. Gheorghe Zamfir,01. Only Love 			(05:04)
+02. Elvira Madigan 		(05:15)
+03. Themanuel 			(04:31)
+04. Cent Mille Chansons 	(04:50)(   Читать дальше...   )Жанр: Instrumental, Pan FluteПродолжительность: 02:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DB00697B861CC9C72BCB9C2F7C6220FE7E91DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379933   (501945) от 25.08.2011
+
+Pakarina - Melodies of the heart (2011) [FLAC|Lossless]<Instrumental | Pan Flute>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental | Pan FluteПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317259   (501384) от 31.07.2019
+
+David Osborne - What the World Needs Now: A Piano Tribute to Burt Bacharach (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look of Love (3:34)
+ 02. What the World Needs Now (2:48)
+ 03. (They Long to Be) Close to You (2:50)
+ 04. Arthur's Theme (Best That You Can Do) (4:32)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97903AD36F42BA05A302650FFB401E5AE1CAA81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317235   (501367) от 31.07.2019
+
+Christopher Phillips - Piano Chill: Songs of the Beatles (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Loving (2:54)
+ 02. Here Comes the Sun (3:01)
+ 03. Yesterday (2:31)
+ 04. Here, There and Everywhere (2:27)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D50353DFAE0B2AE86EE18D210ECC8BEE87D46F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 234728   (500669) от 09.09.2010
 
 Bodhi - Trans Ukraine (2006) [MP3|320 kbps]<New age, Flute, Electronic>
@@ -645,163 +787,6 @@ Myriam Cannas - Imana. Chants Arameens (2015) [MP3|320 кб/с]<New Age, World M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F95216BDC3CFF190A85EF39B8DDDFBB58EC3387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242911   (493966) от 26.08.2018
-
-VA - Ska Anthems - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Jamaican Mento, Calypso, Reggae>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493966.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Madness - The Prince
-02. The Maytals - Monkey Man(   Читать дальше...   )Жанр: Jamaican Mento, Calypso, ReggaeПродолжительность: 00:54:35
-
-01. Bob & Marcia - (To Be) Young, Gifted & Black
-02. Nicky Thomas - Love Of The Common People(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D90D5A55B7FB94F55590B60CC11D367B6445EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543785   (493898) от 06.09.2012
-
-Karin Nobbs & Philip N'bess - Avel & Roc'h (2006) [MP3|320 кб/с]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493898.jpg" />
-</div>
-
-
-###  Подробнее
-
-(7:22) 1. L'ordre Du Depart
-(9:02) 2. Les Heritiers Du Courage
-(7:44) 3. La Mer Et L'amant
-(7:27) 4. La Tempete Du Diable
-(4:31) 5. Le Pacte
-(7:30) 7. Les Bienfaits De La Terre
-(8:09) 8. Les Sanglots De Roc'hЖанр: New age, RelaxПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0306A8AF78300E8348A2AA2589316C296E64F501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157696   (493694) от 15.08.2017
-
-VA - New Age Sensation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magnific Senses – Spirit 02:11
-02. Xavier Boscher – A New Child Is Coming 05:11
-03. Mlle Julie – Petite chanson pour un ange 03:19
-04. Deborah Hofer – Pour l’eternite 03:14(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219F903BFDA40974EFFC906AE11A699A2512D860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543864   (493411) от 06.09.2012
-
-VA - Best Of Chill Out 2012 (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stj Ft Liba - She Believes (Lazy Hammock Sunset Chill Mix) (05:25)
-002. Shympulz - Garten Der Erinnerung (Chillout Version) (04:56)
-003. Off Land - View Point (Recon) (10:15)
-004. Finist - Boat Trip (05:29)
-005. V I F & Lola Palmer - Hot Game (Olej Remix) (07:11)
-006. Marco Merelli & Massimo Salustri - Mental Reverse (07:20)
-007. Abendrot - Sonnenaufgang (04:41)
-008. Dj Inva - I Miss You (Radio Edit) (04:42)
-009. Bantunani - Decomposition (01:28)
-010. Aldo Brizzi - Holodrum (04:06)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE515BCE39A2800996CE3F78329533928F72AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318716   (492711) от 07.08.2019
-
-The Gino Marinello Orchestra - Digital Melodies: 16 Synthesizer Melodies (1988) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Electro>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene (2:38)
-02. Chariots of Fire (3:21)
-03. Tubular Bells (2:35)
-04. Aurora (2:15)(   Читать дальше...   )Жанр: Instrumental, Pop, ElectroПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02985FD0F2A0CC18B1C043B61CB97FA8FB7D8905
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1402937   (697438) от 16.08.2020
+
+VA - Зайцев.нет Лучшие новинки Августа (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 044 ROSE - Виды (3:10)
+02. 2 Chainz feat. Lil Wayne - Money Maker (3:00)
+03. 6ix9ine - PUNANI (1:55)
+04. Alexandra Stan feat. LiToo - Tikari (2:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C3931A836D8632559AB4C2B8F8AAF7978BDD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133236   (696944) от 11.05.2017
 
 VA - New generation Euro Disco Vol.7 (2017) [MP3|256-320 Kbps] <Disco, Pop, Dance>
@@ -714,35 +743,6 @@ VA - Magic Moment: Original European Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:210C9FDADFD43BF98E3E578F8E8EF9AB7BA3A317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028195   (690110) от 22.06.2016
-
-VA - Romantic 80s (2016) [MP3|320 кб/с] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690110.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bucks Fizz - The Land Of Make Believe
-002. Spandau Ballet - Spandau Ballet - To Cut A Long Story Short
-003. New Order - New Order - Temptation
-004. Aztec Camera - Somewhere In My Heart(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 09:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4F784F290826A7459727377EC33A68871220FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

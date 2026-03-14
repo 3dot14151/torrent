@@ -1,3 +1,154 @@
+###  Публикация: 1682245   (131718) от 06.12.2023
+
+Deep Forest - Burning (2023) [MP3|320 Kbps] <New Age, Electro>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Did That [08:54]
+02. Burning Sun [06:10]
+03. Deep Fakear [05:48]
+04. Travelling With Sam [05:25](   Читать дальше...   )Жанр: New Age, ElectroПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A68FB7B88E5B13268D8F48B0C25C4BEA3A18FC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596652   (130836) от 31.12.2012
+
+VA - 80's Club Classics Repress (2003) 2CD [FLAC|Lossless]<Hip Hop, Electro, Soul, Funk/Soul, Disco>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gwen Guthrie - Ain't Nothin' Goin' On But The Rent [03:27]
+02. Donald Byrd - Love Has Come Around [03:38]
+03. Shanon - Let The Music Play [03:32]
+04. Kleer - Get Tough [03:19]
+05. Chaka Khan - I Feel For You [05:45]
+06. Earth, Wind & Fire - Let's Groove [03:30]
+07. Sister Sledge - Thinking Of You [03:42]
+08. Patrice Rushen - Forget Me Nots [04:06]
+09. Bohannon - Let's Start II Dance Again (Part II) [05:13]
+10. Levert - Casanova [03:58](   Читать дальше...   )Жанр: Hip Hop, Electro, Soul, Funk/Soul, DiscoПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525666   (129244) от 21.01.2022
+
+Ernesto Cortazar - Piano & Strings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pearl of My Life (3:23)
+ 02. Heartache (3:40)
+ 03. Youth, Love and Fantasy (3:39)
+ 04. Love Connection (4:55)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD1FBE80C273C0B96F2429D804E811E2E2F8D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525182   (129193) от 21.01.2022
+
+Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie Pop, Acoustic, Lo-Fi>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rumours (04:10)
+ 02. Rocky Trail (03:31)
+ 03. Comb My Hair (03:06)
+ 04. Angel (03:16)(   Читать дальше...   )Жанр: Indie Pop, Acoustic, Lo-FiПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C4C70E8C26218327A44E573A06522BF5A28D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525545   (129190) от 21.01.2022
+
+Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris by Night (3:51)
+ 02. Sourire (4:26)
+ 03. Seine (3:39)
+ 04. Embrasse-Moi (4:00)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2853A1E5C9EE2FEC6CDB0B27E00C57410AAB4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 171886   (128787) от 10.12.2023
 
 Lauluyhtye Rajaton - Nova (2001) [FLAC|Lossless]<A Capella, Harmonic Voices>
@@ -600,151 +751,6 @@ Dj Eroticamila, Ibiza Sexy Chill Beats - Deep Sexual Satisfaction (2023) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BFAF2856CC5815CF8C8F4D259CEFA9D5F3AD07E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693700   (121342) от 23.01.2024
-
-Ennio Morricone - 100 Movie Themes Hits/Original Versions - Super Gold (2005) Box Set 6 CD [OGG Vorbis|480 Kbps] <Pop, Classical, Folk, World>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Giu' La Testa (From Giu' La Testa)
-02.  Metti una Sera a Cena (From Metti una Sera a Cena)
-03.  La Califfa (From La Califfa)
-04.  Per Qualche Dollaro in Piu' (From Per Qualche Dollaro in Piu')(   Читать дальше...   )Жанр: Pop, Classical, Folk, WorldПродолжительность: 05:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0340B081356DF818BADE175C6ED6C24BAEB0EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694005   (120857) от 26.01.2024
-
-VA - Adult Smooth Jazz: Sax for Sex (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erotica - Adult Smooth Jazz (3:15)
-02. Saxophone - Erotic Slow Emotions (3:33)
-03. Slow Sex Music - Taste My Lips (3:32)
-04. Erotica - Crying Guitar (4:58)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A890BAC35445D41B241772106A6F9B86778AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694473   (120310) от 29.01.2024
-
-VA - There With Me: Intimate Soundtracks for Lovers (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Classical Piano Academy - Sensual Keys of Desire (3:36)
-02. Jazz Music Lovers Club - Passionate Moonlit Whispers (3:02)
-03. Sexual Piano Jazz Collection - In Your Tender Arms (3:08)
-04. Classical Piano Academy - Eternal Sensual Serenade (4:02)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB019057DBB21BE329A0A47EC24FA3C5F9D7187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695292   (119942) от 31.01.2024
-
-Paul Mauriat - Amapola (1984) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Can Wait Forever
-02.  Almost Paradise (Love theme from 'Footloose')
-03.  Against All Odds (Take a Look at Me Now)
-04.  Flashdance... What a Feeling(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97631FF043B6B40235AE75181529028C6B6F95E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696155   (119829) от 01.02.2024
-
-VA - Александр Зацепин. 31 июня (2021) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оркестр п/у М. Фадеева - Вступление
-02. Жанна Рождественская - Песня леди Джейн
-03. Лариса Долина - Драконография
-04. Татьяна Анциферова - Чарльстон(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9E3D1AC97CFE02876DFC3758A9746CC92C5FA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

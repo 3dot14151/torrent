@@ -1,3 +1,32 @@
+###  Публикация: 1702699   (115582) от 26.02.2024
+
+VA - Record Super Chart 24.02.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zerb feat. Sofiya Nzau - Mwaki (Tiesto's VIP Mix) (2:40)
+02. Ofenbach feat. Norma Jean Martine - Overdrive (Extended Mix) (3:39)
+03. АИГЕЛ - Пыяла (3:30)
+04. Dua Lipa - Houdini (3:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CBB230CB8B3E5F21E0667FF8FBA1DE624D74B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703048   (115340) от 27.02.2024
 
 VA - Electronic compilation part 58 (2024) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - Compilation part 113 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3752ADED801543B509C2796C4267B830A60BA0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745250   (105129) от 25.08.2024
-
-VA - TOP Non-Stop 2010-2019 - Deep House. Volume 6 (2024) [MP3|192-320 Kbps] <Deep House, Progressive House, Techno House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankman - Sunrise (2015) (6:03)
-02. Jose Padilla - Day One (2015) (6:07)
-03. Alex Niggemann - Boujuma (Matthias Meyer remix, 2012) (7:20)
-04. Groove Cartell - Waiting in Vain (Boddhi Satva Afriki soul remix, 2014) (6:01)(   Читать дальше...   )Жанр: Deep House, Progressive House, Techno HouseПродолжительность: 09:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C80F5C45EF1297AF4D22CF237C3E791327041C28
 ```
 
 https://mybot314.ru/tekegram_catalog/

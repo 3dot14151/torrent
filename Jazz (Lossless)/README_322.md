@@ -1,3 +1,90 @@
+###  Публикация: 1722172   (109821) от 10.05.2024
+
+VA - Charming Smooth Easy Light Jazz for Relaxation (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Stellar Nights (4:14)
+02. Chillaxing Jazz Kollektion - Priceless (3:51)
+03. Love Suggestions - Life Is Love (4:44)
+04. Chillaxonic - Heartstrings (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766C861471692B26ACF950CBAC9C3FB20204EAC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722275   (109778) от 10.05.2024
+
+Nils - Feelin' Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Keep Me Up
+02. That's The Way Of The World
+03. Modern Times
+04. Moving Uptown(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276AA10EFE62EB3D44F7912931AF0F68125FEA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722170   (109765) от 10.05.2024
+
+VA - Amazing Soothing Relaxing Lounge Romance Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Alluring Smiles (3:53)
+02. eJazz Artistry - Story of My Life (5:06)
+03. Kool&Klean - Vanilla Twilight (5:51)
+04. Chillaxonic - Nowhere to Somewhere (5:02)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC7226D28DD2206739397416F8FDB17D3283B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722166   (109764) от 10.05.2024
 
 VA - Amazing Soothing Groovy Light Jazz Romance Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -658,93 +745,6 @@ Winifred Atwell - The Best of Winifred Atwell (1999) Spectrum Music [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89B61F5EA433D74938F1492F8107FA641FD7BC5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723653   (109429) от 16.05.2024
-
-Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars At Charlie's Georgetown (1982) 1994, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where or When [4:37]
-02. New Orleans [6:47]
-03. When the Saints Go Marching In [3:14]
-04. Change Partners [3:59](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E479B792287BB113D02BE63B9A5B4DF0DDC92A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723655   (109428) от 16.05.2024
-
-Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars At The Winery (1980) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broadway [5:44]
-02. Air Mail Special [4:54]
-03. Body and Soul [4:51]
-04. You Took Advantage of Me [2:53](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380ACA0DA3CFEE80E86CCC4BD5E3EF9E84BDE2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723372   (109414) от 16.05.2024
-
-Wycliffe Gordon - Somebody New (2015) Blues Back Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Herkie Jerkie [6:01]
-02. I Got Rhythm [3:37]
-03. What You Dealin' With [6:03]
-04. Somebody New [4:16](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0619951B6BA4C923866084F31B28930C8774E16
 ```
 
 https://mybot314.ru/tekegram_catalog/

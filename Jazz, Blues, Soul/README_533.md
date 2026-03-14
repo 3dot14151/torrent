@@ -1,3 +1,177 @@
+###  Публикация: 1764065   (102749) от 05.12.2024
+
+Nick Evans Mowery - From the Top Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Peace a Try (2:51)
+02. Headed for the Break (3:22)
+03. From the Top Down (3:45)
+04. The Night I Met John Prine (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6EB0A5C4B6F63BCE33AA3E32088F964605F2E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764081   (102748) от 05.12.2024
+
+Smooth Jazz All Stars - Smooth Jazz Renditions of Dua Lipa (Instrumental) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Training Season (Instrumental) (3:08)
+02. Houdini (Instrumental) (2:26)
+03. One Kiss (Instrumental) (3:29)
+04. New Rules (Instrumental) (3:15)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976109725706834F3253E198A3BD86EFCE7E3CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764132   (102747) от 05.12.2024
+
+Lizzie Thomas - Lizzie Thomas - This Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Christmas (4:10)
+02. Christmas Time Is Here (3:38)
+03. Wonderful Christmastime (4:03)
+04. It's Magic (5:16)(   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061B3C34D38CEC32003C6D61B6A965A3A6C98EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764053   (102746) от 05.12.2024
+
+BBR - Boogie Blues and Rock n Roll 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock & Roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rubberneckin (2:54)
+02. Every Little Things (3:15)
+03. You Never Can Tell (3:58)
+04. Bird on a Wire (4:22)(   Читать дальше...   )Жанр: Blues, Rock & RollПродолжительность: 00:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA384A429241F080E5CF9469D613CCA1E3753A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764078   (102744) от 05.12.2024
+
+Vinyl Paradise - Vinyl Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Howlin' Pain (3:11)
+02. Same Old Mistakes (3:39)
+03. Sold My Soul (2:37)
+04. Makin' It Worse (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14052A9C06D86094A800882A39F3B96A33096B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764070   (102742) от 05.12.2024
+
+Rens Newland & Fuse Bluezz - Still Waiting for Better Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Days' Blues (3:57)
+02. Ric Toldon - Got the Blues in My Shoes (4:05)
+03. Peter Duke - Still Waiting for Better Days (3:44)
+04. The Bright Side of the Blues (4:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D826EDF88721E3D223244D4CECC049F22B53D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764122   (102741) от 05.12.2024
 
 Jimmy Heath - Love And Understanding (1973) 1995, Xanadu Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -588,180 +762,6 @@ Shelly Manne & Bill Russo - Deep People (1951, 1952) 1992, Savoy Jazz [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64D9742DDA1AD7735358B69173DB3377E7EBDE16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765645   (101344) от 14.12.2024
-
-Katie Melua - Call Off The Search (2004) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Off the Search (3:25)
-02. Crawling Up a Hill (3:25)
-03. The Closest Thing to Crazy (4:12)
-04. My Aphrodisiac Is You (3:35)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32365B605C496C7D84E34A638A64D04F9E15D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765776   (101332) от 14.12.2024
-
-J.J. Johnson - J.J. Johnson's Jazz Quintets (1946 - 1949) 1992, Savoy Jazz [FLAC|Lossless|image + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jay Bird [3:01]
-02. Coppin' the Bop [3:02]
-03. Jay Jay [3:08]
-04. Mad Be Bop [2:44](   Читать дальше...   )Жанр: BopПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA81AE7DCDFE44ACB50662CD73A7D5CC1D10D85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766239   (101268) от 17.12.2024
-
-VA - The Blue Giants: Live At Groove Now (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mike Zito -- Funky Mama (Live) (5:24)
-02.Mike Zito -- Love Her With A Feeling (Live) (8:18)
-03.Mike Zito -- Every Day I Have The Blues (Live) (6:17)
-04.Mike Zito -- Texas Flood (Live) (9:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032C497361A555D62D044C377DBE70091A25E8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766632   (101252) от 19.12.2024
-
-Mick Clarke - Dirty Work (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Work (4:16)
-02. Walking Doctor Bill (3:07)
-03. Just Dropped In (4:13)
-04. Gonna Miss You Like the Devil (3:00)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEC68BFC80016BC9D33BE0D0AFCA7D3C52B7DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766617   (101247) от 19.12.2024
-
-JoJo Meerstal - Blues from Belgium (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonshine Dreams (3:22)
-02. Route 65 Blues (3:11)
-03. By The River (2:51)
-04. Cotton field Groove (3:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A469CF29B11F500A64E85FA200118A7DA34293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766608   (101245) от 19.12.2024
-
-Hard Shine - Next Best Thing (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bootstraps (3:11)
-02. Gone (4:01)
-03. Daddy O (2:38)
-04. Next Best Thing (2:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE4856CFCAAFE1CB0D3915DA4C0BC0B6A3C606C
 ```
 
 https://mybot314.ru/tekegram_catalog/

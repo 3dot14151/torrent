@@ -1,3 +1,102 @@
+###  Публикация: 516033   (654507) от 27.06.2012
+
+Art Blakey And The Jazz Messengers - Moanin' (1999) [FLAC|Lossless]<Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warm-Up And Dialogue Between Lee And Rudy [00:35]
+02. Moanin' [09:30]
+03. Are You Real? [04:47]
+04. Along Came Betty [06:08]
+05. The Drum Thunder Suite [07:30]
+* First Theme: Drum Thunder
+* Second Theme: Cry A Blue Tear
+* Third Theme: Harlem's Disciplines
+06. Blues March [06:13]
+07. Come Rain Or Come Shine [05:45](   Читать дальше...   )Жанр: Jazz, BopФормат: CD ADDПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516123   (654498) от 27.06.2012
+
+Ray Charles and Cleo Laine - Porgy & Bess (1990) [FLAC|Lossless]<Jazz, Stage & Screen>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summertime [06:17]
+02. My Man's Gone Now [04:43]
+03. A Woman Is A Sometime Thing [02:45]
+04. They Pass By Singin' [03:05]
+05. What You Want Wid Bess? [02:25]
+06. I Got Plenty O' Nuttin' [03:52]
+07. Buzzard Song [03:25]
+08. Bess, You Is My Woman [05:29]
+09. Oh, Doctor Jesus [02:14]
+10. Crab Man [01:45](   Читать дальше...   )Жанр: Jazz, Stage & ScreenФормат: CDПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904529   (654466) от 03.06.2015
+
+Lester Young - The President Plays (2008) [FLAC|Lossless]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ad Lib Blues [05:55]
+02. Just You, Just Me [07:42]
+03. Tea For Two [07:45]
+04. Indiana [07:04](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8422FD303CD59E7926CC9759D6ACF75B7F98C296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140953   (654021) от 08.06.2017
 
 Harry Allen - Here's To Zoot (2001) Novus J [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -658,93 +757,6 @@ Jackie McLean - One Step Beyond (1963) 1988, Blue Note [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D54CF8F2DF6A9F411140F3C92BA4D0014943F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141225   (652562) от 09.06.2017
-
-Billy Strayhorn with Duke Ellington - Rare Strayhorn (1941 - 1965) 2015, La Maison du Duke [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clementine [02:54]
-02. Raincheck [03:19]
-03. Entrance Of Youth [05:26]
-04. Pianistically Allied (aka Tonk) [03:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D78B9F4F64B5C11AE4055CC64D8400A7F94149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141213   (652561) от 09.06.2017
-
-Clementine - Cle (2003) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Une Fille Comme Ci (6:01)
-02. Un Homme et une Femme (Grandis Mix) (5:11)
-03. Sur le Queen Mary (3:48)
-04. Akujyo (4:24)(   Читать дальше...   )Жанр: Latin Jazz, Bossa Nova, Vocal JazzПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0A5DD7C992E28AD6FAF695FBE2A4072BA7241C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141210   (652559) от 09.06.2017
-
-The Harry Allen Quartet - Someone to Light Up My Life (2005) Master Mix Music [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Shining Hour [5:28]
-02. Day In Day Out [6:04]
-03. Here's To That Rainy Day [5:44]
-04. Someone To Light Up My Life [6:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44C3E66A347CFC32BAF6FE89EEF078A746844F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1152664   (565795) от 23.07.2017
+
+Lisa Casalino - Introducing Lisa Casalino (2011) Lisa Casalino Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'S Wonderful [03:11]
+02. The Good Stuff [04:48]
+03. Break a Leg [04:21]
+04. Easy Street [04:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DB89E21BAA8F4A0F7AF1F0A2AAEE31B08A36DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044508   (565656) от 20.08.2016
+
+Phil Woods And His European Rhythm Machine - At The Frankfurt Jazz Festival (1970) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Freedom Jazz Dance [11:53]
+ 02.Ode A Jean-Louis [14:45]
+ 03.Josua [13:51]
+ 04.The Meeting [11:13]Жанр: Post-BopПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8458A880163B00311A0DF5993952E0F5968C0F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044497   (565652) от 20.08.2016
+
+Charles Lloyd - Manhattan Stories (1965) 2CD, 2014, Resonance Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565652.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Sweet Georgia Bright [17:50]
+02.How Can I Tell You [11:56]
+03.Lady Gabor [12:52]Жанр: Hard Bop, Post-BopПродолжительность: 01:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A68C577CEC18FBAAC7F7F985246776AD4DB11E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304304   (565562) от 25.05.2019
+
+Christian McBride - Christian McBride's New Jawn (2018) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkin’ Funny [2:49]
+02. Ke-Kelli Sketch [9:55]
+03. Ballad of Ernie Washington [5:34]
+04. The Middle Man [5:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA42B2E9D6544AEAD595AF2BE2C79D29204CCA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555910   (565520) от 06.06.2022
+
+Buddy DeFranco (De Franco) - Charlie Cat 2 (2007) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Cat II [7:53]
+02. All My Life [4:57]
+03. By Myself [5:39]
+04. Walk This Way [5:17](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAEFFE0DD0AB7F8133A55A7BB1CFB352D82B14F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044521   (565503) от 20.08.2016
+
+Studebaker John And The Hawks - Eternity's Descent (2016) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Same As Mine (04:49)
+02. Up And Down The Line Again (05:37)
+03. Not To Be Like You (04:26)
+04. Hold Me Down (05:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795D4A3BC398B41DA80842D4FE92E3564FE8A114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044474   (565499) от 20.08.2016
 
 Bill Evans - Rise Above (2016) [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz & Blues>
@@ -598,192 +772,6 @@ Milt Jackson - Quartet (1955) Remaster, 2013, Universal [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:769C291230E3431E80BD358400F82ED0C2541F17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152548   (563742) от 24.07.2017
-
-Miramode Orchestra - Tumbler (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Future Jazz, Leftfield>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tumbler (feat. Mara von Ferne) (4:35)
-02. Break Loose (feat. Mara von Ferne) (3:59)
-03. The Sphere (5:02)
-04. Mice in Kindergarten (5:41)(   Читать дальше...   )Жанр: Electronic, Future Jazz, LeftfieldПродолжительность: 00: 41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E0BCFEF4378DD27C2C7FAB78DB9B6569B58462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152679   (563635) от 24.07.2017
-
-Fred Hersch - Songs Without Words (2001) 3CD, Nonesuch Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563635.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Songs Without Words:
-01. Songs Without Words: I. Aria [07:04]
-02. Songs Without Words: II. Ballad [06:00]
-03. Songs Without Words: III. Tango [05:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 03:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2AD587E4DCFA8BF7C1A7AF98C112E2AA62F1E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152858   (563620) от 24.07.2017
-
-Judy Garland - Chasing Rainbows (1936 - 1939) 1989, Remember [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Always Chasing Rainbows [02:59]
-02. A Pretty Girl (Is Like a Melody) [02:56]
-03. I Can't Give You Anything but Love [05:14]
-04. A Foggy Day in London Town [02:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB3C9D8B885172D28383BB23D57A43365E08FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556087   (563370) от 07.06.2022
-
-VA - This Is Vocal Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lo Greco Bros, Annalisa Parisi - I Can't Give You Anything But Love, Baby (5:40)
-02. Walter Ricci, Fabrizio Bosso - I Believe In You (3:54)
-03. Paolo Di Sabatino - Into the Night (featuring Gino Vannelli) (4:49)
-04. Papik, Marvin Parks - It Feel Like Paradise (3:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD4511CFCD399C3E867CE2AC70AB34D7F61BC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530178   (563303) от 02.08.2012
-
-Awek - It's Rollin' (2010) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Rock
-02. I Cry All Day Long
-03. Play With Me
-04. You Think
-05. Hush Your Mouth
-06. Magic Night
-07. Walter's Mood
-08. Telephone Blues
-09. My Sleepy Girl
-10. Be A Good Man(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530195   (563209) от 02.08.2012
-
-Barrence Whitfield - Raw,Raw,Rough! (2009) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geronimo Stomp
-02. I Want Love and Affection Not the House of Correction
-03. Wear Your Red Dress
-04. I Can't Get No Ride
-05. One More Time
-06. Strychnine
-07. Kissing Tree
-08. Early Times
-09. Goin' to Jump and Shout
-10. Long Green(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

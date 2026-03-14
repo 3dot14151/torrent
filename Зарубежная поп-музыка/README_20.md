@@ -1,3 +1,61 @@
+###  Публикация: 1206386   (782547) от 13.02.2018
+
+Kongas - 2 Albums (1977,1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Tribal, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kongas сформировался во Франции в начале 1970-х годов. Группа может похвастался некоторыми членами, которые  изменили лицо диско-музыке. Среди них Don Ray и Cerrone.01. Anikana-O (10:15)
+02. Kongas Fun (6:06)
+03. Medley: What Ever Happened / Bongos Go (9:16)
+04. Jungle (5:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Tribal, DiscoПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA001BEC57D4CFE233F994C2A9C7D41CAF9FC10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206461   (782139) от 14.02.2018
+
+16 Bit - Inaxycvgtgb (1987) CD [MP3|320 Kbps] <Electronic, Synth-pop, New Beat>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Are You (4:13)
+02. (Ina) Gadda-Da-Vida (Feat. Eddie Hind) (5:10)
+03. Be Quit (4:19)
+04. Mac's Flight (3:32)(   Читать дальше...   )Жанр: Electronic, Synth-pop, New BeatПродолжительность: 01:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952AA4669C0FD3BDFF3138CA61E9E437F97282F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206559   (782138) от 14.02.2018
 
 OFF - 2 Albums (1988,1989) CD [MP3|320 Kbps] <Electronic, Pop, New Beat, Synth-pop>
@@ -688,64 +746,6 @@ Armenian Navy Band - авангардный фолк-джазовый музык
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5586C104DB43ABE5FE9A9BEF10085EA86AC84A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210962   (778239) от 05.03.2018
-
-Armenian Navy Band - Sounds Of Our Life - Part One: Natural Seeds (2004) Heaven And Earth [MP3|192 Kbps] <Folk, Avantgarde>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. Water 1:28
-02. River 5:46
-03. Ocean 3:29
-04. Sun 1:04(   Читать дальше...   )Жанр: Folk, AvantgardeПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69686806CBD3A501036ECD1B0AE25FF9BEF5F591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211063   (778200) от 05.03.2018
-
-VA - NRJ Extravadance (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778200.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Maitre Super Sako - Mi Gna
-02. Jahyanai & Bamby - Who Mad Again
-03. Camila Cabello - Havana(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B4F1783459D3FFDB8A377E94876FDC67EE10FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

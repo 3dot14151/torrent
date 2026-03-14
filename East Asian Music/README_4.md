@@ -1,3 +1,150 @@
+###  Публикация: 1019932   (747870) от 24.05.2016
+
+Yoshida Brothers - Yoshida Brothers (2003) [FLAC|Lossless|tracks + .cue] <Folk, Easy Listening>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tabidachi (Starting on a Journey)
+02. Hyakka Ryouran (Blooming)
+03. Madrugada
+04. Storm(   Читать дальше...   )Жанр: Folk, Easy ListeningПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B89F6ADA3FCB7A106A734053A2A1C1853AC900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021071   (741792) от 28.05.2016
+
+Kazumi Watanabe - Guitar is Beautiful KW45 (2016) [MP3|320 кб/с] <Jazz, Fusion, Acoustic, New Age, Guitar Virtuoso>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741792.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Curve of Life – Shinichi Ubukata, Kazumi Watanabe
+ 2. Flamenco Blue – Kazumi Watanabe, Jin Oki
+ 3. Tico Tico – Takuya Miura, Kazumi Watanabe
+ 4. Jammi – Mei Inoue, Kazumi Watanabe(   Читать дальше...   )Жанр: Jazz, Fusion, Acoustic, New Age, Guitar VirtuosoПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E48AD4FF15787EE1DDC4257931293179E9D898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526721   (737790) от 26.01.2022
+
+Loudness - Sunburst~我武者羅 (2021) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная группа LOUDNESS выпустила впервые за свою долгую карьеру двойной альбом с новыми песнями под названием SUNBURST – MY WARRIOR aka SUNBURST～我武者羅.
+Этот альбом особенный для группы, так как посвящен их 40-летию.
+LOUDNESS имеет долгую и богатую историю, состоящую из множества различных составов. Участники группы были из других (   Читать дальше...   )CD - 1:
+01. Rising Sun
+02. OEOEO
+03. 大和魂(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D90DB46998407FBE081E81C3E2978E31344244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022429   (728347) от 02.06.2016
+
+Silent Elegy - Gone With The Wind (2016) [MP3|320 кб/с] <Gothic Metal, Symphonic Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728347.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Baptism
+2. Reborn
+3. Valkyrie
+4. Indelible Memory(   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C078FCC445B7DF04B02E7E4694AC739A04D5B097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022719   (727115) от 03.06.2016
+
+Tadaaki Otaka - Takemitsu: How Slow the Wind (2001) [FLAC|Lossless|image + .cue] <Classical>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727115.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rain Coming, for chamber orchestra (08:25)
+2. Archipelago S., for 21 players (13:25)
+3. Fantasma/Cantos 2, for trombone & orchestra (16:05)
+4. Requiem, for string orchestra (08:17)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E5C9DA54A8A612C92FB87AF2EA51942B044920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 208627   (714975) от 09.06.2010
 
 Yamato - The Wadaiko Drummers Of Japan (2005) [MP3|320 kbps]<ethno / folk / japan drums>
@@ -641,151 +788,6 @@ SawanoHiroyuki[nZk] - 2 альбома + 7 синглов (2014-2018) (FLAC|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10517A4C1BC5041049A7E0D2B2B6B992636D03B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963961   (656461) от 19.05.2018
-
-Aimer - 6 альбомов + 11 синглов (2011-2018) [FLAC|Lossless|tracks] <J-Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-(170503) Aimer Best Selection “blanc”
-(170503) Aimer Best Selection “noir”
-(180221) Refːrain／Mabayui Bakari (Koi wa Ameagari no You ni OP)Жанр: J-PopПродолжительность: 00:11:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8E361E9615A4AAA47C0D23A6CCE6DDF54F867C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226231   (655555) от 20.05.2018
-
-Trident - 6 альбомов (2013-2016) [FLAC|Lossless|tracks] <J-Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655555.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2013.10.30) Blue Field
-(2014.06.25) Purest Blue
-(2015.01.28) Blue Snow
-(2015.09.16) Blue Destiny(   Читать дальше...   )Тип издания: CommercialЖанр: J-RockФормат: Anime SoundtrackПродолжительность: 00:02:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1157E9C9E8BEF2C3D1678B2EA7D0B267244595A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226476   (655453) от 20.05.2018
-
-GARNiDELiA — 4 альбома + 10 синглов (2014-2018) [FLAC|tracks] <J-Pop, J-Rock>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-(150121) Linkage Ring (1st Album)
-(150826) BiRTHiA (2nd Album)
-(161214) Violet Cry (3rd Album)(   Читать дальше...   )Тип издания: CommercialЖанр: J-PopФормат: Anime SoundTracksПродолжительность: 00:06:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B3750802C3BED9D3ACE0282E5BDD5134C9C1C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944378   (655450) от 20.05.2018
-
-fhana - 3 альбома + 13 синглов (2013-2018) [FLAC|tracks] <J-Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-(150204) Outside of Melancholy
-(160427) What a Wonderful World Line
-(180328) World AtlasЖанр: J-PopПродолжительность: 00:08:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3131B1B887539C31965043CE39428EDEFC625D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851195   (655445) от 20.05.2018
-
-ChouCho - 4 альбома + 9 синглов (2011-2018) [FLAC|tracks] <J-Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-160525 (LACA-15565~6) ChouCho ColleCtion “bouquet”
-171025 (LACM-14658) Ashita no Kimi Sae Ireba Ii (Imouto Sae Ireba Ii. OP Single)
-180110 (LACA-15680) color of timeЖанр: J-PopПродолжительность: 00:07:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892324F3BD38E7506A9FCBB7CBD9A8EF89775FE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1316460   (505968) от 26.07.2019
+
+Lightning Hall - Gasoline (2019) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost In The Shuffle (04:24)
+02. Gasoline (05:00)
+03. From The Other Side Of Town (04:59)
+04. Just Because You Can (05:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8029F6BE521845FE4E8443B34E483F540D67EE6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316477   (505966) от 26.07.2019
+
+Eddie Higgins Quartet featuring Scott Hamilton - My Funny Valentine (2005) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'd Be So Nice To Come Home To [7:02]
+02. I'm A Fool To Want You [3:56]
+03. When Sunny Gets Blue [4:55]
+04. Alone Together [7:08](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B66A11A0AA6EFC56C1682ACC52491C663945E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 181571   (505860) от 01.09.2015
+
+Shakti with John McLaughlin - 6 альбомов (1976 - 2001) [FLAC, APE, Lossless]<Jazz, Carnatic music, World fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_505860.jpg" />
+</div>
+
+
+###  Подробнее
+
+John McLaughlin - один из самых разносторонних и влиятельных гитаристов нашего времени, добившихся признания во всем мире. Джон Маклафлин - инновационный фьюжн-гитарист, получивший известность с начала 70-х, возглавлял незабвенный Mahavishnu Orchestra и на протяжении всех лет своей творческой карьеры сохранил репутацию феноменального и последовательно любознательного (   Читать дальше...   )1976 - Shakti with John McLaughlin
+1977 - A Handful of Beauty
+1977 - Natural Elements
+1999-John McLaughlin, Zakir Hussain, T.H.”Vikku”Vinayakram – Remember Shakti(2cd)(   Читать дальше...   )Жанр: Jazz,Carnatic music, World fusionПродолжительность: 06:51:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933592   (505503) от 02.09.2015
+
+Teddy Edwards Quartet - Good Gravy (1981) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Be Good [14:50]
+02. Oleo [05:54]
+03. Georgia [10:48]
+04. Good Gravy [09:04]Жанр: Hard Bop, West Coast JazzПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E21EA8AA312389277E7C383FB2516E02F5DE53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933358   (505502) от 02.09.2015
+
+Thomas Chapin Trio - Third Force (1991) /Knitting Factory/ [FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahab's Leg [10:15]
+02. Poet O Central Park [04:50]
+03. Iddly [07:40]
+04. Tale of the Sands [08:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5ECCD7EAB33B441C536E6D72349BA72097029B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563243   (505477) от 13.07.2022
+
+Bruce j - Bogo (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B/Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Official (3:46)
+02. Bad to da bone (3:23)
+03. Call me (3:04)
+04. Bogo (3:43)(   Читать дальше...   )Жанр: Blues, R&B/SoulПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9275DB2B5E6B8CD4801225135BC97C6615DDDB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563253   (505475) от 13.07.2022
 
 Val McKnight - Ain't Nothing Like a Country Boy (2022) [FLAC|Lossless|WEB-DL|tracks] <Soul Blues>
@@ -605,171 +779,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:743F6AB8C265D208B9EFE8F0EFD43A2B83EBA256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563249   (504571) от 14.07.2022
-
-VA - Electric Blues Bands (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Electric BluesПродолжительность: 01:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC28A8EA298F4D9C10DE9C7C71DC3E819C047163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563252   (504567) от 14.07.2022
-
-VA - The Electric Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Universal Production Music - Advertising Theme No. 17 - Side A [00:35]
- 02. Howlin' Wolf - Killing Floor [02:50]
- 03. Buddy Guy - First Time I Met The Blues (Single Version) [02:21]
- 04. T-bone Walker - Every Day I Have The Blues (Album Version) [02:49](   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF125A9990823B3CB21BC9E7D9F5DF82ADD17298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563248   (504563) от 14.07.2022
-
-VA - Bloody Mary Blues (Blues music selectuon) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: BluesПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6BFA7B523DEFC2DAD2BA650756AE934B3D67741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538337   (504493) от 28.08.2012
-
-VA - 100 Hits - Northern Soul (2009) Box Set 5xCD [FLAC|Lossless]<Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoulФормат: BoxSet 5xCDПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316640   (504235) от 28.07.2019
-
-Gene Ammons - Groove Blues & The Big Sound (1958) 2СD, 2003, Азбука Звука [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504235.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Groove Blues:
-01. Ammon Joy [13:20]
-02. Groove Blues [9:35]
-03. Jug Handle [10:12](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1E8A3F2EAC4BB14A5FB34AC3F1E73654CF0D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934218   (503768) от 04.09.2015
-
-Taylor Cook - The Cook Book (2015) [FLAC|tracks+.cue]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Replacement [05:31]
-02. Splainin' [05:29]
-03. Backstroke Boogie [07:13]
-04. Biker's Dozen [05:42](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E23193B1A5BCE892FD5F389C072E2680A11EC58
 ```
 
 https://mybot314.ru/tekegram_catalog/

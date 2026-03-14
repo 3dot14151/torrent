@@ -1,3 +1,148 @@
+###  Публикация: 1819149   (1790) от 20.09.2025
+
+Neverlove - Kings Of Strip Club (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KINGS OF STRIP CLUB [00:04:07]
+02. Сама так хотела [00:02:45]
+03. S1000RR [00:02:50]
+04. Не такая [00:02:55](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74041FEAC7352AED641DCCAF46480B02BEE46845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819036   (1782) от 20.09.2025
+
+I Prevail - Violent Nature (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Synthetic Soul (4:30)
+02. - NWO (2:41)
+03. - Pray (3:12)
+04. - Annihilate Me (3:22)(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733205A48AEFD9854A6299948C3721F9C7016A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819103   (1781) от 20.09.2025
+
+Novembers Doom - Major Arcana (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.June(1:58)
+02.Major Arcana(6:38)
+03.Ravenous(6:28)
+04.Mercy(5:56)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBBE2F0B92D4EA68E24E4891DE0D738F990E631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819047   (1780) от 20.09.2025
+
+Catsclaw - Perfect Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Death [00:03:26]
+02. Become The Blade [00:03:13]
+03. The Shield [00:03:08]
+04. Remember The Days [00:04:32](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350A33ECD67171F79F52D490F39569908B5116D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819034   (1778) от 20.09.2025
+
+King Princess - Girl Violence (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Girl Violence (2:16)
+02. - Jaime (2:23)
+03. - Origin (2:14)
+04. - I Feel Pretty (3:02)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578C538C0649B80FE26EC3D4D4C99C9248F8CC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819049   (1774) от 20.09.2025
 
 Cardiacs - LSD (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -600,151 +745,6 @@ Imminence — шведская металкор-группа из Мальмё �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B0C51341AFAD9BFC01D60DD75781C8B7EB6C688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819530   (1432) от 22.09.2025
-
-Surrender The Crown - Travails (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stand In Defiance [00:04:40]
-02. Signal In The Noise [00:04:53]
-03. Travails [00:04:25]
-04. Belong [00:04:34](   Читать дальше...   )Жанр: RockПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C9580B27C6377E88AD5BEDC9F2872C22D7D294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819516   (1430) от 22.09.2025
-
-Castle Rat - The Bestiary (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix I [00:02:15]
-02. Wolf I [00:04:37]
-03. Wizard [00:04:57]
-04. Siren [00:03:41](   Читать дальше...   )Жанр: Doom Metal, Heavy MetalПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7E556AB719813FCD57844B68131192198D8B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819543   (1427) от 22.09.2025
-
-Spinal Tap - The End Continues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nigel’s Poem [00:01:10]
-02. Let’s Just Rock Again [00:03:56]
-03. (Listen To The) Flower People [00:02:34]
-04. Brighton Rock [00:03:03](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7713B309C664CB34616DF12DF62C8453B5685F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819511   (1413) от 22.09.2025
-
-Velial Squad - Бельмо (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пёс [00:01:50]
-02. Ночной Дозор [00:02:49]
-03. Зарисовка [00:02:04]
-04. Каждый День [00:02:13](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9667BFEB9F459595F14BF7A8394AE644C87189FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819440   (1412) от 22.09.2025
-
-Malevolence - Studio Albums (4 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal, Metalcore, Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malevolence — английская металкор-группа, образованная в Шеффилде, Южный Йоркшир, в 2010 году.2013 - Reign Of Suffering
-2017 - Self Supremacy
-2022 - Malicious Inten
-2025 - Where Only The Truth Is SpokenЖанр: Groove Metal, Metalcore, HardcoreПродолжительность: 03:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC52E89ACE0CABAA173E459C9B4B8374EF9611B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

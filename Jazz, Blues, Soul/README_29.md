@@ -1,3 +1,61 @@
+###  Публикация: 1623077   (1029606) от 31.03.2023
+
+Red Norvo - Improvisations (1944) 1987, Mercury [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subtle Sextology [3:49]
+02. Blues A La Red (alternate take) [4:16]
+03. Blues A La Red [4:04]
+04. The Man I Love [4:17](   Читать дальше...   )Жанр: SwingПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495B9654E38F409380259E4C740D960EC70032C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449819   (1029591) от 23.02.2021
+
+Lucky Millinder - 1943 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Me [2:47]
+02. That's All [2:04]
+03. Trouble in Mind [2:41]
+04. Rock Daniel [2:40](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1665B458746E33FA22DE4449C5A47056719CA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449821   (1029587) от 23.02.2021
 
 Duke Ellington - Live And Rare (1965 - 1973) 3CD, 2002, Bluebird [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -687,64 +745,6 @@ Tony Coleman - Out In The Open (1996) [FLAC|Lossless|tracks + .cue] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F51447FD0AEB7FAA029211D8064EEA1CF2B3ABF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451631   (1028236) от 03.03.2021
-
-Ella Fitzgerald & Louis Armstrong - Together (1956 - 1957) 2CD, 2009, Not Now Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028236.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Can't We Be Friends [3:49]
-02. Isn't This a Lovely Day [6:19]
-03. Moonlight in Vermont [3:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CA7E4D007AAF627561F800F6571B334425E576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451777   (1028234) от 03.03.2021
-
-VA - Jazz Dictionary F (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falando De Amor (Stefano Bollani Trio)
-02. Falling In Love With Love (Dan Nimmer Trio)
-03. Feelin' Fine (Claude Williamson Trio)
-04. Feelin' Good (Eric Alexander Quartet)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3917AEEE0F3C07C408FB75DF97B9506A3987BD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

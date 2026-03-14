@@ -27,6 +27,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378042   (848178) от 24.04.2020
+
+Лигалайз - ALI (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_848178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Серебряков [02:25]
+02. ЗАСТОЙ 2.0 [05:35]
+03. ПЫЛАЮЩИЙ [04:19]
+04. MY PHILOSOPHY [02:06](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CF345A78679E1CEB8BD947DD7A3A77391CBE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378679   (844635) от 26.04.2020
 
 Гио ПиКа - Мацони (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ Mnogoznaal - Гостиница Космос (2018) [MP3|320 Kbps] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:106251D9EE91AEF0F583C0773A3DE7ECF1422DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509704   (793860) от 13.11.2021
-
-Oxxxymiron - miXXXtape III: Смутное Время (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793860.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мох
-2. Погружение
-3. Flashback
-4. Reality(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687E7CEA448887E0A00CE16BAC7C9DD2BE825F82
 ```
 
 https://mybot314.ru/tekegram_catalog/

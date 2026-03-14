@@ -1,3 +1,148 @@
+###  Публикация: 1827377   (186102) от 21.10.2025
+
+Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfheart - метал-группа из Лахти, Финляндия, основанная в 2013 году Туомасом Саукконеном.2013 - Winterborn
+2015 - Shadow World
+2017 - Tyhjyys
+2018 - Constellation Of The Black LightЖанр: Melodic Death MetalПродолжительность: 05:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98483922B70E817E9F7AE204A2AA39AC55E0ED7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664205   (186055) от 25.09.2023
+
+Ronin - Valak the Defiler (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturn's Portal [00:04:18]
+02. Beyond the Pale [00:04:13]
+03. Hatred's Mate [00:02:55]
+04. Monster [00:02:53](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA925421A09C8837D8DBF876CFE022E677AA0E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664242   (186044) от 25.09.2023
+
+Thibaut García - El Bohemio (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un sueño en la floresta (8:02)
+02. Aire de zamba (2:31)
+03. Mazurka appassionata (5:39)
+04. 24 Preludes, Op. 28: No. 20 in C Minor (Arr. Barrios Mangoré for Guitar) (1:38)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3CE5C16CDDD03C015BE60921DE9D99696DA24B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664220   (186025) от 25.09.2023
+
+Royal Academy of Music Soloists Ensemble, Trevor Pinnock, The Glenn Gould School - Bach: Partitas (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I. Praeludium (1:46)
+02. II. Allemande (3:32)
+03. III. Corrente (3:05)
+04. IV. Sarabande (5:01)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2614A8535B9FB84FE8373CC2D08DEBDD8071636A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664294   (185948) от 25.09.2023
+
+*Ancients - Cosmic Ark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calamity [00:05:56]
+02. Desolate Dunes [00:05:18]
+03. Artemis [00:03:55]
+04. Endurance [00:06:14](   Читать дальше...   )Жанр: Post-RockПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50932E19C8023C3B9327815CC5E5F4F78B8F0BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664424   (185442) от 26.09.2023
 
 Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
@@ -597,151 +742,6 @@ Stepmother - Planet Brutalicon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B308A0010B4B9792F573226226881FA401150FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665401   (182548) от 30.09.2023
-
-Nervosa - Jailbreak (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Ambition (3:23)
-02. Suffocare (3:40)
-03. Ungrateful (3:06)
-04. Seed Of Death (4:28)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0796BAF4C15E5ABA337A250CD5307BD3A712AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665191   (182527) от 30.09.2023
-
-Don Letts - Outta Sync (2023) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <punk reggae>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outta Sync [00:04:31]
-02. Something Coming Off (feat. Hollie Cook) [00:04:01]
-03. The Universe Knows What You've Done (feat. John Cusack) [00:04:14]
-04. Touch (feat. Gaudi) [00:04:03](   Читать дальше...   )Жанр: punk reggaeПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3B1127776711B473887F1E4EF03D849614D0CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665430   (182519) от 30.09.2023
-
-Heldmaschine - Flachenbrand (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal, NDH>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lockdown (4:19)
-02. Monoton (5:46)
-03. Übermensch (3:22)
-04. Stumme Schreie (4:07)(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAFB081372D2F073B90DFBE29C2AF71E0CB0B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665296   (182425) от 30.09.2023
-
-Jelusick - Follow The Blind Man (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reign of Vultures (6:32)
-02. Died (5:50)
-03. Animal Inside (5:51)
-04. Follow The Blind Man (6:15)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000FEC67ECCC75B3D7035EAA3EB9A39FF96483E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665407   (182423) от 30.09.2023
-
-Steven Wilson - The Harmony Codex (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive rock, Art rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_182423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inclination (7:16)
-02. What Life Brings (3:39)
-03. Economies of Scale (4:18)
-04. Impossible Tightrope (10:44)(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B095283B5E923F1132865FC3957A27E85D1E6175
 ```
 
 https://mybot314.ru/tekegram_catalog/

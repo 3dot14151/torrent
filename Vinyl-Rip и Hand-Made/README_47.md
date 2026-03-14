@@ -1,3 +1,119 @@
+###  Публикация: 966329   (217951) от 18.12.2015
+
+Joe Dassin - Le Jardin Du Luxembourg (1976) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] <Blues, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Le Jardin Du Luxembourg - Люксембургский Сад  11:52
+2. Il Etait Une Fois Nous Deux - Однажды мы были вдвоем  3:52
+Сторона 2(   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1792E8B78554439E52F65A953BD7C250C029B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652007   (217915) от 11.08.2023
+
+Linda Ronstadt - Living In The USA (1978) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Country Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_217915.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Back In The U.S.A.
+A2 When I Grow Too OId To Dream
+A3 Just One Look
+A4 Alison(   Читать дальше...   )Жанр: Country Rock, Soft RockПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7861D3A51DE2A409E76E5BC53E0E3E83478CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652169   (217891) от 11.08.2023
+
+VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Pop, Acoustic, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_217891.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Familie Silly - Bette Davis Eyes
+A2 Monika Hauff Und Klaus-Dieter Henkler - Birds Of Paradise
+A3 Roland Neudert - Some Broken Hearts Never Mend
+A4 Eva-Maria Pieckert - Maledetta Primavera(   Читать дальше...   )Жанр: Pop, Acoustic, Soft RockПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADD5164C486517397B0807D42F6A1F0B686C002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651323   (217708) от 11.08.2023
+
+VA - Естрадна Панорама 3 (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_217708.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Диана Експрес • Наследство
+A2 Вокална група ''Трик'' • Ако Държиш На Мен • Если Я Тебе Нужна
+A3 Трамвай №5 • Старият Град • Старый Город
+A4 Дует ''Акварел'' • Обич Неизбежна • Неизбежная Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D83ACBC3B7D27A92BC85A6A507A68B677E5959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651801   (216910) от 12.08.2023
 
 Rock House - Rockin' With Rock House (1974) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock & Roll>
@@ -628,119 +744,6 @@ Janis Joplin - Легенды Зарубежного Рока (2001) Compilation
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B2EC3EA1552B50F7040E67FAA32B619846642D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639869   (211473) от 15.06.2023
-
-Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Sunrise (The Magician Birthday)
-02. July Mornin' (Look At Yourself)
-03. Return To Fantasy (Return To Fantazy)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C712DB72B74F771C8CCB2D9B8C39F647EBEB45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640068   (211409) от 16.06.2023
-
-Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Black/Viking Metal, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bathory — шведская группа, внёсшая значительный вклад в развитие блэк-метала и викинг-метала, возникшая в Стокгольме в 1983 году. В составе Bathory побывало множество музыкантов, но лидером в начале творческого пути и фактически единственным участником в конце был музыкант-мультиинструменталист Quorthon.АЛЬБОМЫЖанр: Black/Viking Metal, Thrash MetalПродолжительность: 07:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407B5A3C6067B04B9BFBA040B26DADB14FCF09C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301237   (211271) от 03.08.2022
-
-Григорий Лепс - Баллада о борьбе (2008) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Баллада о борьбе
-02. Падают листья
-03. Шелест(   Читать дальше...   )Жанр: Pop Rock, ChansonПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D080BC1187730DE3931B2E38C72E2E47942B736B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640518   (211108) от 18.06.2023
-
-Alice Cooper - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Poison
-02. Hey Stupid
-03. Feed My Frankenstein(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

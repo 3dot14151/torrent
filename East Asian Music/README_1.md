@@ -194,6 +194,37 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289302   (908793) от 06.02.2011
+
+Tiger Huang(Huang Xiao Hu) - 6 альбомов (1992-2009) [FLAC|Lossless]<Chinese classic, Taiwanese,C pop, soul,jazz,acoustic,ballad>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_908793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 热情的沙漠
+02. 玫瑰香
+03. 那些我爱的人
+04. 剪爱
+05. 家后
+06. 突然的自我(徐克电影1992-2009Жанр: Chinese classic, Taiwanese,C pop,soul,jazz,acoustic,balladПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 866234   (908405) от 05.02.2015
 
 Masterpieces For Our Struggle - 2 альбома (2013-2014) Touhou Vocal /Doujin/ [FLAC|Lossless] <Melodic Death Metal, Hardcore>
@@ -702,34 +733,6 @@ GYAS — Koiro Gensou (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58E8A4FBD821BFCF99C62EA9F1DF144A21AB94BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 190046   (857937) от 08.04.2010
-
-Shu-xiong Zhou - Cha Tao The Way Of Tea (1995) [MP3|320 kbps]<New Age>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegance
-02. Purity
-03. RespectЖанр: New AgeПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

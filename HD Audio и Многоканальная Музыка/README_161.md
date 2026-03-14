@@ -1,3 +1,148 @@
+###  Публикация: 1756148   (103540) от 19.10.2024
+
+Bronski Beat - The Age of Consent (1984) 40 Year Anniversary Edition, 2024, London Records (Because Ltd) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heatwave (Harvey Goldberg Remix) (Hundreds & Thousands Version) [00:05:42]
+02. Why? (Harvey Goldberg Remix) (Hundreds & Thousands Version) [00:06:18]
+03. Run From Love (Dominic Maita Remix) (Hundreds & Thousands Version) [00:08:15]
+04. Hard Rain (Harvey Goldberg Remix) (Hundreds & Thousands Version) [00:08:12](   Читать дальше...   )Жанр: SynthpopПродолжительность: 2 CD, 02:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC538ADBBA3E7DE0B286EFE588A4AB3E1B73C838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756143   (103537) от 19.10.2024
+
+Biest - Labyrinth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gift (4:02)
+02. M.E.D.U.S.A. (3:25)
+03. Nimm mich mit (4:00)
+04. Labyrinth (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D1C82A72E636D76D06212B60741C5DEA323FC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756177   (103536) от 19.10.2024
+
+Gato Barbieri - Standards Lost And Found 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terre Lontane (6:24)
+02. So What (10:55)
+03. Softly, As In A Morning Sunrise (3:36)
+04. All Blues (10:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277846C82F5C2CCEBF35646E2C44D08DBDA73A74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756168   (103535) от 19.10.2024
+
+Swallow The Sun - Shining (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic-Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocence Was Long Forgotten [00:04:20]
+02. What I Have Become [00:04:06]
+03. MelancHoly [00:03:38]
+04. Under the Moon & Sun [00:06:09](   Читать дальше...   )Жанр: Gothic-Doom MetalПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E341BF07204A2EC33B27709BED5FA5185A63EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756147   (103532) от 19.10.2024
+
+Doc Payne - Totally Unconventional (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doc Payne feat. The Payne Relief Smooth Blues Band - Chris_blues (7:14)
+02. Doc Payne feat. The Payne Relief Smooth Blues Band - Feel Like Breakin_up Somebody_s Home (3:49)
+03. Doc Payne feat. The Payne Relief Smooth Blues Band - Fever (3:56)
+04. Doc Payne feat. The Payne Relief Smooth Blues Band - Footloose and Fancy Free (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4713FF199490A3DA4F5C7EF6AB193A4B649745B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756185   (103531) от 19.10.2024
 
 Mojo Man - Love & Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -600,150 +745,6 @@ Mary Coughlan - Repeat Rewind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:532CD0CD59025DF49F62B3B963B6AB09DC628124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757012   (103480) от 24.10.2024
-
-Zooloo / The Seaweeds - Black Pearls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:04)
-02. Zooloo / The Seaweeds feat. Francis Têtu - Sailed Away (4:19)
-03. I Smell a RatЖанр: BluesПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE871485CBBEBDA740FCF4AABB6B31F5FBBCA0A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756963   (103475) от 24.10.2024
-
-Roy Waade - Playground (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GT (4:30)
-02. Playground (4:59)
-03. World of "likes" (4:58)
-04. Quite Sufficient (4:16)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98088CD1F337EB77F5071CBAC196E2196852DA19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756974   (103474) от 24.10.2024
-
-The C.Zek Band - Agarthi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel Like in Mississippi (5:36)
-02. Peacemaker (4:35)
-03. Agarthi (6:38)
-04. Baby Blue (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF44C80C527F7F387B68C4D3A09D971AEA5E888D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757008   (103473) от 24.10.2024
-
-Nitrogods - Valley Of The Gods (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left Lane To Memphis (3:02)
-02. Shinbone Kicker (3:16)
-03. Valley Of The Gods (3:54)
-04. Last Beer Blues (4:52)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39253B58D228E6480FB6F729BCDC5D8C6418EC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756960   (103472) от 24.10.2024
-
-Mariama Ndure - Rituals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My body I (1:57)
-02. Beginning again (5:03)
-03. Orange skies (4:23)
-04. Amo Soumah - Amo Soumah djembekan (1:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47F9244D37BCB1B6E8790502CD507A11A78FABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

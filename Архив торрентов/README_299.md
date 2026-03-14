@@ -1,3 +1,38 @@
+###  Публикация: 604074   (995109) от 21.01.2013
+
+VA - The Color Of The Harder Styles - Part 6 (2013) [MP3|320 kbps] <Hardstyle>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildstylez featuring Niels Geusebroek - Year of Summer (DJ Mix) (03:44)
+02. Wildstylez, Headhunterz and Noisecontrollers - World Of Madness (DefQon.1 2012 O.S.T.) (06:25)
+03. Brennan Heart and Wildstylez - Lose My Mind (Original Mix) (05:24)
+04. Zatox - No Way Back (Official Qlimax Anthem 2011) (04:52)
+05. Critical Mass - Burning Love 2012 (Dr. Rude Remix) (05:48)
+06. ParaPhaze - Eternity (Original Mix) (05:15)
+07. Brennan Heart - Running Late (Original Mix) (06:36)
+08. Toneshifterz - Psychedelic Wasteland (Official Defqon.1 Australia Anthem 2011) (Original mix) (05:29)
+09. Sky Rider - Rudeness (06:40)
+10. Instant Shock - Chase Me (Original Mix) (05:36)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 02:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4DA9DA2A8270F9736C1EB16A68AEFB642A4F330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606706   (995107) от 21.01.2013
 
 Работы художников - Художник Sergio Ferro
@@ -677,32 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3FEE637BBEE38962632A20B75B93B3D22C698EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606523   (994986) от 21.01.2013
-
-Teleport Pro 1.68 [Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оффлайн-браузер, предназначенный для загрузки сайта на винчестер целиком, с учётом всей его структуры, для дальнейшего оффлайн просмотра. Если сайт большой, то Teleport Pro позволяет загрузить только часть сайта, для этого задается глубина скачивания информации. Удобна функция, когда режим загрузки задается с определёнными параметрами (по маске). В таком случае, Телепорт может загрузить только нужную информацию, а за бортом, например, оставить всю графику, экономя тем самым время и деньги. Teleport Pro позволяет производить расширенный поиск по скачанному сайту и выводит список всех имеющихся на нём файлов.Название программы: Teleport ProЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

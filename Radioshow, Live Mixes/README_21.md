@@ -1,3 +1,61 @@
+###  Публикация: 1692001   (122929) от 14.01.2024
+
+Korolova - Live @ Captive Soul , 2GTHR Buenos Aires (2024-01-12) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Temper Trap - Sweet Disposition (ID Remix)
+02. ID - ID
+03. Agents Of Time - Inception
+04. Piero Pirupa - Change Your Mind (Korolova Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFE2AC17F53C3C1E83CF8C08966022E29CD7C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692039   (122734) от 15.01.2024
+
+Space 92 - Live @ Input Barcelona, Spain (2024-01-06) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space 92 - Robot w/Space 92 - Gravity (Acapella)
+02. Heerhorst - Wimbo
+03. Space 92 - Gravity
+04. Green Velvet - Flash (Bart Skils Edit)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9FB1F44E394162320AA706942F7374A073C2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692282   (122504) от 16.01.2024
 
 Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2024-01-03) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
@@ -688,64 +746,6 @@ Two Friends - Big Bootie Mix Vol. 24 (2024-02-15) [MP3|320 Kbps] <Dance, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F4D45BFC22D56EBEB528C46815448537051DC7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702003   (115824) от 24.02.2024
-
-VA - Armin van Buuren - A State Of Trance 1161 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Armin van Buuren & Ferry Corsten & Rank 1 & Ruben de Ronde - Destination (Cubicore Remix) (ASOT) (Tune Of The Week)
-02.	Lufthaus - Sunlight (Rodriguez Jr. Remix) (ARMADA) (Progressive Pick)
-03.	Vincent De Moor - Flowtation (Dan Stone Remix) (XL)
-04.	Armin van Buuren ft. Anne Gudrun - Love Is A Drug (Agents Of Time Remix) (ARMIND) (Future Favorite)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24269ECE7B671A517405A33FAE265780F6000219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703641   (114819) от 01.03.2024
-
-VA - Armin van Buuren - A State Of Trance 1162 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Andrew Bayer - Blood Pressure (OPHELIA)
-02.	Allen Watts, SILVELA, Watt_Silla - Sweet Lies (FIND YOUR HARMONY)
-03.	Hel:sløwed x JNSN - Want Me (FLASHOVER)
-04.	Elysian - Sparks In The Night (BLACK HOLE)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6979D8BFD66459CDFD28DE9581895F7E0FA1938A
 ```
 
 https://mybot314.ru/tekegram_catalog/

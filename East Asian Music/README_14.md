@@ -1,3 +1,145 @@
+###  Публикация: 1579478   (336413) от 27.09.2022
+
+The Art of Mankind - Archetype (2018) 2CD [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Melodic Death MetalПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A46EC58244140806D3F8857A1C2269DD31342E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074821   (335764) от 20.11.2016
+
+Loudness - Lightning Strikes (2016) 30th Anniversary Limited Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Go 04:14
+02. Dark Desire 04:20
+03. 1000 Eyes 04:36
+04. Face To Face 03:50(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BE294BEC1DA9C3124C4249247C5E8C1E939402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074863   (335763) от 20.11.2016
+
+Loudness - Buddha Rock 1997-1999 (2016) 35th Anniversary Limited Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghetto Machine 05:04
+02. Slave 03:17
+03. Evil Ecstacy 04:10
+04. San Francisco 04:09(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65289CE1CF19E1B0A62781DECA6164DC6F73FCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181268   (335066) от 06.11.2017
+
+Daisy×Daisy — 6 альбомов + 5 синглов (2008-2014) [MP3|320 kbps] <JPop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(2013.03.20) Daisy×Daisy - Dangerous×Dizzy×Daisy
+(2013.11.27) Daisy×Daisy - TWINKLE BOX ~Daisy×Daisy BEST~
+(2014.08.27) Daisy×Daisy - REACTIVATIONЖанр: JPopПродолжительность: 00:08:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F06806D05382554A06E6C4FE054D8820851770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579647   (334530) от 28.09.2022
+
+Arclipse - City of Haze (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - World's begins (01:01)
+02 - The Haze (03:59)
+03 - Awake (04:00)
+04 - sub space (04:19)(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F01F2DB25721112D3F4FF35131FD227DF8F88E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258834   (334234) от 31.10.2018
 
 Pure Wrath - Sempiternal Wisdom (2018) [MP3|320 Kbps] <Atmospheric Black Metal>
@@ -616,150 +758,6 @@ Crystal Lake - True North (2016) [MP3|320 Kbps] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9128C9A472A401B56B75FD740D6E911BF5B32D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962122   (296977) от 03.12.2015
-
-Younoumi - 15 альбомов (2008-2015) Touhou Vocal, KanColle /Doujin/ [FLAC|tracks] <J-Pop, J-Metal, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2013.12.30 (IOY-0016) Wadatsumi (C85)
-2014.12.29 (IOY-0019) Shigo Risutora ni au — God never knows, but you know me (C87)
-2015.08.14 (IOY-0020) Toho Warfare：BLACK SPARK (C88)Тип издания: DoujinЖанр: J-Pop, J-Metal, ElectronicФормат: Touhou VocalПродолжительность: 00:10:12:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28219604430450051D8DCDB3367C6C0D45E344F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334356   (296729) от 28.10.2019
-
-Cosmic Invention - Cosmorama (1981) Reissue CD, 1994, Victor [MP3|320 Kbps] <Electronic, J-Pop, Disco>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Fighting (4:15)
-02. 愛Love Come On (3:16)
-03. ちょっとホントあとはウソ (3:48)
-04. ゆでたまごちゃん (3:54)(   Читать дальше...   )Жанр: Electronic, J-Pop, DiscoПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4AF7489B59FD18FC1D71125B76D8999CBDD64A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962476   (295058) от 04.12.2015
-
-KAEDE - 9 альбомов (2008-2013) /Doujin/ [FLAC|tracks] <J-Pop>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2012.08.11 (KAED-0007) Takenawa Uta vol.2 (C82)
-2012.12.31 (KAED-0008) Takenawa Uta Ex Alc.0% (C83)
-2013.12.30 (KAED-0010) Old navy never die. (kancolle) (C85)Тип издания: DoujinЖанр: J-PopПродолжительность: 00:04:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DCABBAA2D9383F3DC78400CC15B84D1680B6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962116   (295027) от 04.12.2015
-
-programYMG - 2 альбома (2009-2010) /Doujin/ [FLAC|tracks] <J-Pop, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2009.12.12 (IOH-0008) Scramble!
-2010.05.05 (IOH-0009) Megane Holic (M3-25)Тип издания: DoujinЖанр: J-Pop, ElectronicПродолжительность: 00:01:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229C75EFE83F489C691DD8F5D18517C77DA06061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962112   (294937) от 04.12.2015
-
-ALBATROSICKS - 9 альбомов (2007-2014) /Doujin/ [FLAC|tracks] <J-Pop, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2010.12.30 (IO-5011) MERGE THE STRAWBERRY! (C79)
-2014.08.17 (IO-5101) DEKKAINO (C86)
-2014.12.30 (IO-5102) CHICCHAINO (C87)Тип издания: DoujinЖанр: J-Pop, ElectronicПродолжительность: 00:05:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418BCE4B08A1D94C53C3DD713C1AA4997C72C7F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

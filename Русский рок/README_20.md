@@ -1,3 +1,61 @@
+###  Публикация: 641500   (882971) от 09.04.2013
+
+4ре Апреля - Невесомость (2013) [MP3|320 кб/с]<Alternative, Alt. Rock, Emo>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Невесомость
+02. Дай мне уйти
+03. Далеко
+04. Лети(   Читать дальше...   )Жанр: Alternative, Alt. Rock, EmoПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47FA079F4CEF693A24DEFB7580582F0ADB846EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996114   (880960) от 13.03.2016
+
+Порт(812) - Абсолютно всех (2016) [MP3|320 кб/с] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+ 02. Сомнения
+ 03. Война
+ 04. Проснись!(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0823FE51F8DBDC5A35F5D431FD35EB3D53698FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495430   (880725) от 12.09.2021
 
 Эсента - Под знаком беды (2021) [MP3|320 Kbps] <Symphonic, Heavy Metal>
@@ -675,64 +733,6 @@ Louna - 18+  (2016) Maxi-Single [MP3|320 кб/с] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C68DEF4BE8B12730E26760C931605915589680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496719   (871402) от 18.09.2021
-
-Ладушка - Счастья полон дом (2021) [MP3|320 Kbps] <Folk Metal, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871402.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Счастья полон дом
-2. Поднимаемся с колен
-3. Возрождение
-4. Злой град(   Читать дальше...   )Жанр: Folk Metal, Folk RockПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C820CF014F8C4D9808F09825D3BD42A52E5B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374698   (870589) от 11.04.2020
-
-Пневмослон - Первый Оральный (минус) (2018) [MP3|320 Kbps] <Electronic Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Адовый адок
-02 - Аккумулятор
-03 - В пиццу
-04 - Я в кашу как в последний раз(   Читать дальше...   )Жанр: Electronic Punk RockПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E8AB0FB26011A4470E6C193E1E41FAC004CD0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

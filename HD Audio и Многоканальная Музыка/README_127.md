@@ -1,3 +1,148 @@
+###  Публикация: 1724738   (109084) от 22.05.2024
+
+This - Impulsive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attention, Please! (5:40)
+02. Thrill Me (4:21)
+03. I Will Never Leave You (3:31)
+04. Self-Destructive Lab (4:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:070BE442D77C03CAC3474AEAECC0374EDB5FFD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724816   (109083) от 22.05.2024
+
+Moon Shot - The Power (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life is a Killer (4:06)
+02. Blackened Spiral (3:49)
+03. The Power (4:44)
+04. Arms Around Me (4:09)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC421294F8C0302C9A14C1BC147DF965213C907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724735   (109081) от 22.05.2024
+
+Rusthead - Gear Up (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Rock (5:14)
+02. Cut Like A Knife (5:01)
+03. Head Up, Head Out (3:57)
+04. Another Way Of Life (3:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29897E093FD3061EDDBE90D638C714A8F824DFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724745   (109080) от 22.05.2024
+
+Big Special - Postindustrial Hometown Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Black Country Gothic (00:02:57)
+02 - I Mock Joggers (00:02:02)
+03 - Desperate Breakfast (00:03:11)
+04 - Shithouse (00:04:48)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5337162EDBE3056A50C243FCC5B853CA1B2E2E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725262   (109074) от 23.05.2024
+
+Lenny Kravitz - Blue Electric Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Just Another Fine Day (In This Universe of Love) (6:20)
+02. TK421 (5:27)
+03. Honey (3:50)
+04. Paralyzed (4:28)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAEBE026D6CFF565251A6261D605EB41193D8415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725082   (109040) от 23.05.2024
 
 Exhorder - Studio Albums (4 releases) (1990-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
@@ -595,151 +740,6 @@ Mad Hatter - Oneironautics (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32CEE27FE47534D3B0BDFB525D2B0FEF73BB6740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725622   (108890) от 25.05.2024
-
-The Korea - Мёд (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal, Progressive Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Правда (3:38)
-02. Голод (2:24)
-03. Культ (3:17)
-04. Не забывай дышать (2:39)(   Читать дальше...   )Жанр: Alternative Metal, Modern Metal, Progressive MetalcoreПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C2D6E678985052FF82348B606A2DA10D08FE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726007   (108888) от 26.05.2024
-
-Suck Brick Kid - The End Is What I Want (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Punk-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wrote On The Wall! Take That Society! [00:03:04]
-02. It's Okay... Probably [00:03:01]
-03. What I Do When I Blackout Is None Of My Business [00:03:06]
-04. You Can Paint Over Me But I'll Still Be Here [00:02:46](   Читать дальше...   )Жанр: Pop-Punk-RockПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49DE1AB03AC60D015B4340743EE19E8A5B979D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726009   (108857) от 26.05.2024
-
-Maggie Lindemann - Headsplit (2024) Deluxe Edition, 2024, EMI [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Pop-Punk, Crossover Rock, Electronic, Female Vocals>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. who are you when you’re alone? [00:02:25]
-02. if it’s not with you [00:02:33]
-03. decode [00:04:19]
-04. rip my heart out [00:02:50](   Читать дальше...   )Жанр: Alternative Metal, Pop-Punk, Crossover Rock, Electronic, Female VocalsПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D401891815529C04CF4DCDAE8D2CB92FDF1F5E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725895   (108854) от 26.05.2024
-
-De Halsband - Wat Let Oe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In De Keet (3:23)
-02. Dixie Achter De Tent (3:46)
-03. Geneuzel (2:47)
-04. De Zommer Is D'r Weer (4:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB707308F6B50458CB03A619E8BC56E84F9DDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725881   (108852) от 26.05.2024
-
-Paul Weller - 66 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Britpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ship Of Fools (00:02:58)
-02 - Flying Fish (00:04:41)
-03 - Jumble Queen (00:02:34)
-04 - Nothing (00:04:16)(   Читать дальше...   )Жанр: Rock, BritpopПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D3304B7AF3B5A937B67EDC8518ADE3873E15D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

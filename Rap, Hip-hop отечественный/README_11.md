@@ -1,3 +1,32 @@
+###  Публикация: 1423429   (300089) от 13.11.2020
+
+Bumble Beezy - Nosebleed (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Круче, чем ты запланировал (Interlude) [00:30]
+02. Perk [02:50]
+03. Остап Бендер [02:42]
+04. Switch [02:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4E13E4AAA9E9C8BA308B85526B5217B5AA423C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423435   (299940) от 13.11.2020
 
 ST1M, СД - Аггро 2.0 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA43DDED9694F8C424613BEE505356BAFD185D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511414   (245817) от 21.11.2021
-
-bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 в 1 [01:48]
-02. Дождь (feat. Kasha) [02:28]
-03. Магия [01:50]
-04. Хочу быть как все (feat. Бакей) [01:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B46556536D604014EB5C803DD19173932F1B00
 ```
 
 https://mybot314.ru/tekegram_catalog/

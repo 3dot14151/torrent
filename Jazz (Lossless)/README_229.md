@@ -1,3 +1,90 @@
+###  Публикация: 1337301   (275032) от 10.11.2019
+
+A NYC Tribute feat. Jimmy Cobb & Randy Brecker - Monk (2012) Jazz'n'Arts Records [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teo [10:25]
+02. Evidence [6:19]
+03. Green Chimneys [9:36]
+04. Scooter [7:19](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BFB046B6AA03555D89BDA10F58A8B22C940173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337306   (275031) от 10.11.2019
+
+Jeff Ray - The Walkup (2003) HiPNOTIC Records [FLAC|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streams [7:32]
+02. D.R.A. [6:55]
+03. Hot Music [9:35]
+04. Everybody Loves the Sunshine [6:21](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D398A43FA1B9DB920FA49CED4B54C594042FE093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337305   (275029) от 10.11.2019
+
+Yoshiro Okazaki & Jay Thomas Quintet - Soul Summit!: Live at Mr.Kenny's (2014) CUG Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz, Trumpet Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KD's Cab Ride [7:55]
+02. Night Watch [6:14]
+03. Escapade [8:36]
+04. My Ideal [4:35](   Читать дальше...   )Жанр: Post-Bop, Piano Jazz, Trumpet JazzПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274CFC2CF30B131E5A68728DC0398ACED980ADA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337308   (275028) от 10.11.2019
 
 Jay Thomas / Gary Smulyan - Lowdown Hoedown (2016) CUG Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -669,93 +756,6 @@ Charlie Watts Meets The Danish Radio Big Band (2017) Impulse! [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17D86E0C045C2170BC40B3D30E6409A179806390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337762   (272702) от 12.11.2019
-
-The Hot Club of San Francisco - John Paul George & Django (2016) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Lovin' - 2:38
-02. Because - 3:35
-03. Michelle - 3:36
-04. I Will - 3:03(   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59058BFF9F0CFB46219CD2AC77B0567CB77CE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084186   (272667) от 17.12.2016
-
-J.J. Johnson - J.J.'s Broadway (1963) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lovely [03:57]
- 02.My Favorite Things [04:18]
- 03.Mira [03:24]
- 04.Make Someone Happy [03:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA1650D7F7DE0542698BBB9EBB53A14AF3E3407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083765   (272664) от 17.12.2016
-
-Sonny Stitt and Bennie Green - My Main Man (1964) Remaster, 2004, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Flame And Frost [04:36]
- 02.Let's Play Chess [04:54]
- 03.Double Dip [04:47]
- 04.Our Day Will Come [05:22](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B837F069758C8408D3F0CEA426F9D052190399A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

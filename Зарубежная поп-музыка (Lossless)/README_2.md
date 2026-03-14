@@ -1,3 +1,119 @@
+###  Публикация: 1438369   (1041069) от 08.01.2021
+
+VA - 80s Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spandau Ballet - True (Single Edit) (05:29)
+02. Chicago - Hard to Say I'm Sorry (2007 Remaster) (03:41)
+03. Foreigner - Waiting for a Girl like You (04:49)
+04. Debbie Gibson - Lost in Your Eyes (03:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27EDFF57D74DD1856B62F907E2B7C1EA1FECC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438581   (1040890) от 09.01.2021
+
+VA - Italian Classics (1998) 2CD [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice - Per Elisa
+02. Alan Sorrenti - Tu Sei L'unica Donna Per Me
+03. Antonello Venditti - Buona Domenica
+04. Toto Cutugno - Soli(   Читать дальше...   )Жанр: PoрПродолжительность: 02:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E93EB4C1DC8DA26360474A5EC88B0BBE7717CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611457   (1040865) от 13.02.2023
+
+Tennis - Pollen (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forbidden Doors (3:54)
+02. Glorietta (4:01)
+03. Let's Make a Mistake Tonight (4:14)
+04. One Night with the Valet (1:53)(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B063F424B76B088B8F826BE42D8BCC298BE1AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438889   (1040613) от 10.01.2021
+
+Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreign Affair (2021)
+02. To France (2021)
+03. Family Man (2021)
+04. Everytime We Touch (2021)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45ECA7C353924415844AEA7303854EC579FFECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611661   (1040523) от 14.02.2023
 
 VA - I Singoli di Sanremo 2023 (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop>
@@ -629,121 +745,6 @@ VA - 90s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E13C9D5F3FAE16255470C14435961D4758C7023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442463   (1036552) от 25.01.2021
-
-VA - 80s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Police - Every Breath You Take (Remastered 2003) (04:13)
-02. Bryan Adams - Heaven (04:04)
-03. Chris De Burgh - The Lady In Red (04:16)
-04. Richard Marx - Right Here Waiting (04:23)(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75926DCD3D97DF812B4C6B2435B6FC182B763747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442831   (1036347) от 26.01.2021
-
-VA - sad shower (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved (03:02)
-02. Calum Scott - You Are The Reason (03:24)
-03. Dean Lewis - Be Alright (03:16)
-04. Alessia Cara - Scars To Your Beautiful (03:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E62CA0F5F58F11C515F1C8F91B3FE94A6569561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616900   (1035815) от 04.03.2023
-
-Thomas Anders - The Journey of Life (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Journey Of Life
-02. The Journey Of Life (Ballad Version)
-03. The Journey Of Life (Instrumental)Жанр: Pop, DanceПродолжительность: 00:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AFCC696013FD2E6C5F79B1C6619BEC78BCB8C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443361   (1035758) от 28.01.2021
-
-VA - Calming Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - The Tracks of My Tears (02:54)
-02. Logan York - Norwegian Wood (This Bird Has Flown) (03:35)
-03. Shannon & Keast - When I Was Your Man (03:42)
-04. Nora & Will - Watermelon Sugar (03:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CCC301CC0C56664DABB54899436F2046958D17
 ```
 
 https://mybot314.ru/tekegram_catalog/

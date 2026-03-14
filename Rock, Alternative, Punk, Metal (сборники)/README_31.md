@@ -1,3 +1,32 @@
+###  Публикация: 1573719   (407447) от 03.09.2022
+
+Theory Of A Deadman - Compilation (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bitch Came Back
+02. Angel
+03. G.O.A.T
+04. Straight Jacket(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F02D66919CCE832D0970DD2A42C3C596C2FE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326040   (407363) от 18.09.2019
 
 VA - Rock Concept: Euro Edition (2019) [MP3|320 Kbps] <Rock>
@@ -719,35 +748,6 @@ Cosmos - In The Dark Of The Night (2016) (Compilation) 2CD  [MP3|320 Kbps] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED2B1491D7947EB34783AC9F0F4F65EBA8A57954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416483   (367183) от 16.10.2020
-
-VA - Rock Drive 11 (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 H.E.A.T. - Dangerous Ground
-02 Crystal Shawanda - Church House Blues
-03 Gathering Of Kings - Lorelei
-04 Dion & Joe Bonamassa - Blues Comin' On(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7BB1DA3B7FDBBB1BCD75F274F95BDBC92CACBE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

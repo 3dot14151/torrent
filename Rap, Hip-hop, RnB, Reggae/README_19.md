@@ -1,3 +1,119 @@
+###  Публикация: 1238793   (544651) от 01.08.2018
+
+Rickey F - FLASHFORWARD (2018) EP [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flashforward_Intro (Starfounder & XWinner prod.)
+02. Ветер (XWinner prod.)
+03. Fuck Cash (XWinner prod.)
+04. Молчи со мной (XWinner prod.)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F28629E50644495D2474CA765DBC1FBBD642F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817895   (544030) от 01.09.2014
+
+Рем Дигга - Людоед (2014) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Киборг
+02. Людоед ч.1 ft. Chris Yank
+03. 4 топора ft. Слеп Ро, Murovei
+04. Камни(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1702476B78D36C77A8EC4FF57813652762F3DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049556   (543754) от 05.09.2016
+
+Da Gudda Jazz - Легенда (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Элвис
+02. Кобейн
+03. Гагарин
+04. Андерсон(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25E46336CB7CE976DDCCBD4AFE456130CA2FA1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239054   (542429) от 03.08.2018
+
+Кажэ - Аврора (2018) [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аврора
+02. Бенджамин Баттон
+03. Северный Рай (Feat. Fuze)
+04. Pussy Flow(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC73243C57BB2F9F730AA301EC653D87325E919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240475   (528536) от 11.08.2018
 
 Nicki Minaj - Queen (2018) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-hop>
@@ -635,122 +751,6 @@ Beastie Boys - Licensed to Ill (1986) 1999, Def Jam Recordings [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8078EDA39A4B12FEC0E5B0FDE78FA79A91429187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244228   (483755) от 31.08.2018
-
-Eminem - Kamikaze (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ringer (05:37)
-02. Greatest (03:46)
-03. Lucky You (Feat. Joyner Lucas) (04:04)
-04. Paul (Skit) (With Paul Rosenberg) (00:35)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C11C202A30A054949A88FF60BC8E1649A23719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244231   (483753) от 31.08.2018
-
-Eminem - Kamikaze (2018) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ringer
-02. Greatest
-03. Lucky You (Feat. Joyner Lucas)
-04. Paul (Skit) (With Paul Rosenberg)(   Читать дальше...   )Жанр: Hip-Hop / RapПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68BB30DE8C494C5192D1BC9AAEF78CC5DC5F597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056448   (481280) от 25.09.2016
-
-ATL - Карма x Кома (2016) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Бисер
-02 - Пока молодой
-03 - Фильтр
-04 - Тоннель(   Читать дальше...   )Жанр: RapПродолжительность: 00:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878B1CA311DC5FA7D8D0E9FCA726B1BA4AE1768B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056790   (479394) от 26.09.2016
-
-The Maytals - The Best Of The Maytals (2016) 2CD, Compilation [MP3|320 Kbps] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monkey Man   (03:48)
-02. 54-46 That's My Number   (03:23)
-03. Pressure Drop   (03:00)
-04. One Eye Enos   (03:01)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 02:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC6D2FCE00047AC6C6E5EFCA0383371BB6856D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

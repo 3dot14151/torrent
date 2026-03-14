@@ -1,3 +1,148 @@
+###  Публикация: 1676023   (159284) от 11.11.2023
+
+Natasha St-Pier - Christmas Album (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <French Pop, Jazz, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Happy Day
+02. Rockin’ Around The Christmas Tree
+03. Feliz Navidad
+04. Hallelujah(   Читать дальше...   )Жанр: French Pop, Jazz, ChristmasПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38CE09A9606E30091854E0C78DF0869EE07CC2D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966478   (158713) от 20.12.2015
+
+Janet Jackson - Janet Jackson (1982) [FLAC|Lossless|tracks + .cue] <Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say You Do (6:50)
+02. You'll Never Find (A Love Like Mine) (4:11)
+03. Young Love (4:58)
+04. Love and My Best Friend (4:48)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB98FC0F0F4292E9C2FBEB97A91BDF01A6A8334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966500   (158706) от 20.12.2015
+
+Atomic Kitten - Right Now (2001) [FLAC|Lossless|tracks + .cue] <Europop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Now (3:37)
+02. Follow Me (3:16)
+03. Whole Again (3:05)
+04. Eternal Flame (3:15)(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17DE2CD5A4341B059C79C145F21BF447174396A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966983   (158626) от 20.12.2015
+
+Taylor Swift - Fearless (2008) Reissue, Platinum Edition, 2010, BIG Machine Records [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump Then Fall (03:59)
+02. Untouchable (05:12)
+03. Forever & Always (Piano Version) (04:29)
+04. Come In With The Rain (03:59)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC2D789CAE736012B4F34DC16053374116675CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967885   (157146) от 23.12.2015
+
+Marc Almond - In Session Volume One (2003) [FLAC|Lossless|tracks + .cue] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Go Away (6:27)
+02. Terrapin (4:20)
+03. Empty Eyes (version 1) (5:06)
+04.Жанр: Synth-popПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33FF709E6D2E8FEA68A1777B08B19AA20216FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675972   (157136) от 13.11.2023
 
 Mireille Mathieu - Mireille Mathieu chante Piaf (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Shanson>
@@ -597,151 +742,6 @@ John Travolta & Olivia Newton-John - This Christmas (2012) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D553908AEAE99758DF3DB94741DE084DECD3EA38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086306   (151472) от 24.12.2016
-
-Kylie Minogue - Kylie Christmas (2016) Snow Queen Edition [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop, Jazz, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's The Most Wonderful Time Of The Year (2:45)
-02. Santa Claus Is Coming To Town (feat. Frank Sinatra) (2:15)
-03. Winter Wonderland (1:53)
-04. Only You (with James Corden) (3:05)(   Читать дальше...   )Жанр: Pop, Jazz, Swing, Easy Listening, Holidays, ChristmasПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C068BA25433CD3D949C4F5D55AFB076757A011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518868   (150971) от 22.12.2021
-
-Lara Fabian - Lockdown Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Listen to the Silence
-02. I Remember
-03. Song for a Child
-04. Le Passage(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464ECE385D5C3693AEA93F2E5AB8AFAAD30483B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825903   (150794) от 18.10.2025
-
-Sam Ryder - Heartland (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Olympic '89 (03:12)
- 02 - The Feeling Never Went Away (02:56)
- 03 - OH OK (02:50)
- 04 - Heartland (04:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C71997F5FD5264A53ED09D233F30A38A9B56D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825944   (150717) от 18.10.2025
-
-Thomas Anders - …Sings Modern Talking: Romantic Warriors - Thomas' Version (2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150717.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jet Airliner (Thomas' Version)
-02. Like a Hero (Thomas' Version)
-03. Don't Worry (Thomas' Version)(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24CBF1D428864E8C028C74D7FD82D5CC13A6EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826120   (150670) от 18.10.2025
-
-Thomas Anders - …Sings Modern Talking: Romantic Warriors (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jet Airliner (Thomas') (4:21)
-02. Like a Hero (Thomas') (3:45)
-03. Don't Worry (Thomas') (3:37)
-04. Blinded by Your Love (Thomas') (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67B04E09C9168FB9B0FBE456EFEC50B186E4C92
 ```
 
 https://mybot314.ru/tekegram_catalog/

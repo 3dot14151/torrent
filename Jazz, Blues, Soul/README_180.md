@@ -1,3 +1,177 @@
+###  Публикация: 1289135   (686636) от 16.03.2019
+
+VA - Memory Motel: Inside the World of Keith Richards (2019) [FLAC|Lossless|tracks + .cue] <Blues, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686636.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Funkadelic – Lunchmeataphobia (Think! It Ain't Illegal Yet) (04:12)
+2. Buckwheat Zydeco – The Wrong Side (04:28)
+3. Benny Spellman – Fortune Teller (02:11)
+4. Dion – The Wanderer (03:10)(   Читать дальше...   )Жанр: Blues, Soul, FunkПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E716C6897D904A6C1AFE53DC4EAB37923CA02E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403859   (686597) от 22.08.2020
+
+Maynard Ferguson - Verve Jazz Masters 52 (1994) Verve Records [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King's Riff [3:15]
+02. Maiden Voyage [3:03]
+03. Willie Nillie [3:08]
+04. Hymn To Her [2:37](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E7D2658DA09885850772D9DCFE9EE3BD18B758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403872   (686580) от 22.08.2020
+
+Neal Black And The Healers - A Little Boom Boom Boom (2020) [FLAC|Lossless|image + .cue] <Modern Electric Blues, Texas Blues, Harmonica Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Follow Me There (05:31)
+02. Why Do People Act Like That (04:13)
+03. All For Business (04:55)
+04. Green Bean Swing (03:23)(   Читать дальше...   )Жанр: Modern Electric Blues, Texas Blues, Harmonica BluesПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83A4E21060F99E910F3767319ECF7EB97D91702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289410   (686474) от 16.03.2019
+
+VA - I Wanna Sex You Up - R'n'B For Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Color Me Badd - I Wanna Sex You up (Single Version)
+02. Silk - Freak Me
+03. Keith Sweat - I'll Give All My Love to You (Single Version)
+04. En Vogue - Hooked On Your Love(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 01:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474B7463C73957373F7BF237A0581548A1EBA0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535121   (686420) от 06.03.2022
+
+CeeBee - Hopes (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Own Fault (3:54)
+02. Hopes Have No Price (3:55)
+03. One Size Fit (4:55)
+04. Life On The Road (4:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A69E20FEBB6B092C541D6AAE692E6CDC8C2C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535122   (686165) от 06.03.2022
+
+Dedicated Men of Zion - The Devil Don't Like It (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lord Hold My Hand (3:12)
+02. The Devil Don't Like It (4:23)
+03. One River to Cross (3:08)
+04. Rock My Soul (3:49)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBCC77A75266F7146434D0C01C915507CD2D1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535128   (686150) от 06.03.2022
 
 Kenny 'Blues Boss' Wayne - Blues From Chicago To Paris (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -577,183 +751,6 @@ The Jeremy Steig Quartet - Flute Fever + 1 (1963) Remaster, 2014, Sony Music[FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:605F56FBA0F79A6623225CE843EF2FA12D279C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029140   (684658) от 25.06.2016
-
-Lionel Hampton All Star Band - Live At Newport '78 (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Stompin' At The Savoy [04:52]
- 02.On The Sunny Side Of The Street [04:50]
- 03.Hamp's The Champ [10:06]
- 04.Carnegie Hall Blues [07:19](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Big BandПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94EF7B56A5395F95C2BDD1359EDC9B1258312F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029035   (684650) от 25.06.2016
-
-Kevin Waide Project - Almost The Marrying Kind (2016) [MP3|320 кб/с] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just My Luck (03:59)
-02. Drankin' Blues (04:39)
-03. Blame It On You (04:29)
-04. I Don't Care (04:14)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B76D5A2A4751B60ECC8A08AAE9A2297C1FDA082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028990   (684541) от 25.06.2016
-
-Ahmad Jamal - Trio & Quintet Recordings With Ray Crawford (1955-1960) 2CD, 2016, Cherry Red Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684541.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.New Rhumba [04:44]
-02.A Foggy Day [04:27]
-03.All of You [03:20](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C8AC610A8F37CF494B967B92B6627A8FEB693F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029003   (684534) от 25.06.2016
-
-VA - The Ladies Of Jazz (1997) [MP3|320 кб/с] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dinah Washington - Mad About The Boy (2:50)
- 02. Sarah Vaughan - My Favourite Things (2:46)
- 03. Astrud Gilberto - The Girl From Ipanema (3:18)
- 04. Nina Simone - I Loves You Porgy (4:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E647C918ECB9DE47762254F7FDBB1D974FC22E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289765   (684456) от 17.03.2019
-
-Pepper Adams - The Master (1980) 1994, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enchilada Baby [5:46]
-02. Chelsea Bridge [8:57]
-03. Bossallegro [6:04]
-04. Rue Serpente [8:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD6C943E89AB31C9F0D6FA628307FE6435A2E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029047   (684417) от 25.06.2016
-
-Raging Dildos - Blue EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandolins (03:14)
-02. Strawberry Fields Forever (03:59)
-03. Macarron (03:48)
-04. Aurora (03:02)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:30:24
-
-Nadia Schilling - Vocals, Guitar, Double Bass, Glockenspiel
-Joao Branco - Guitars, Drums, Electric Bass(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AA7A808A253A5B55789133878619DECAD956AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

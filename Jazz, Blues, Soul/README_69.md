@@ -1,3 +1,73 @@
+###  Публикация: 288131   (923796) от 28.01.2011
+
+Swing Couture - Good Morning! (2009) [FLAC|Lossless]<Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Morning! (2:43)
+02. I've got rythm (3:49)
+03. Вальс на прощание (2:45)
+04. Блюзовое путешествие (4:41)
+05. Ленинградское Танго (3:36)
+06. Tickle Toe (2:54)
+07. Dindi (3:50)
+08. Gershwin-Duke (4:50)
+09. Someone to Watch Over Me (4:51)
+10. Я милого узнаю по походке (3:48)(   Читать дальше...)Жанр: SwingПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288129   (923715) от 28.01.2011
+
+Roomful of Blues - Hook, Line and Sinker (2011) [FLAC|Lossless]<Blues, Swing revival, Jump Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's A Pretty Good Love (2:56)
+02. She Walks Right In (3:33)
+03. Hook, Line and Sinker (2:50)
+04. Kill Me (3:55)
+05. Gate Walks To Board (4:02)
+06. Juice, Juice, Juice (2:42)
+07. Ain't Nothin' Happenin' (3:10)
+08. Win With Me, Baby (3:50)
+09. It (4:01)
+10. Come On Home (2:36)(   Читать дальше...   )Жанр: Blues, Swing revival, Jump BluesПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987877   (922892) от 19.02.2016
 
 Cedar Walton - Eastern Rebellion 4 (1983) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -686,64 +756,6 @@ Doug Prescott Band - Blues in the Key of Sea (2013) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65906CE5A0325107D5BDCE8C17F977115787E837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096272   (921066) от 23.01.2017
-
-The Lachy Doley Group - Conviction (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Betcha I'll Getcha (02:42)
-02 Conviction (05:31)
-03 Make It Up (04:38)
-04 Back In Black (04:48)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F485A496E9509BA130740A11250F175CC4F8ABE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096260   (921062) от 23.01.2017
-
-John Abercrombie Quartet - Up And Coming (2016) ECM[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Joy [04:13]
- 02.Flipside [02:54]
- 03.Sunday School [07:19]
- 04.Up And Coming [05:51](   Читать дальше...   )Жанр: Jazz Fusion, Modern CreativeПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89213BA2579B3F3711EA1F7A14B399B3D75A6D9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

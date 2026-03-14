@@ -1,3 +1,32 @@
+###  Публикация: 1804440   (13045) от 29.06.2025
+
+VA - Vocal Trance NNM 5 (2025) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darren Porter, That Girl - It Was Love - Radio Edit (4:36)
+02. Mainfield - Superstring (2:11)
+03. Allan Berndtz, U-G - Fantasy (2:11)
+04. Mashmex - Circle in the Sand (2:14)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7368F059A895A399DA08405126781A36F76C2FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804367   (13036) от 29.06.2025
 
 VA - Record Super Chart 28.06.2025 [MP3|320 Kbps] <Pop, Dance>
@@ -718,35 +747,6 @@ VA - 60 minutes. Old School Dance Music vol.25 (mixed by Dj V) (2024) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:017C1510AF863B1327CFD335AFE0B94C696784D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815743   (4956) от 31.08.2025
-
-Sardø - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Vivo En Tus Suenos
- 02 - Viva La Noche
- 03 - Santa Maria
- 04 - La Bella Luna(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881BCA551336B0E90587B3390ED2DAC664B77B29
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,178 @@
+###  Публикация: 1389553   (784280) от 11.06.2020
+
+Richard Smith - First Kiss (1997) Heads Up [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Kiss [4:18]
+02. Rhythm Method [4:41]
+03. Midnight Run [4:30]
+04. A Minor Love Affair [5:53](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86260AA4F607F4F48973C77AF8135DAD2E21B9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389615   (784251) от 11.06.2020
+
+Kevin Rowland & Dexys Midnight Runners - Too-Rye-Ay (1982) 2CD Deluxe Edition, Mercury, 2007 [FLAC|Lossless|tracks + .cue] <Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784251.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Too-Rye-Ay" - является вторым студийным альбомом группы, выпущен он был в 1982 году. Этот альбом прославил группу и в Америке, он так же не раз переиздавался. В сборник вошли такие популярные хиты, как: "Come On Eileen", "The Celtic Soul Brothers" и "Jackie Wilson Said".
+Dexys Midnight Runners - британская поп-группа, которая (   Читать дальше...   )The Original 1982 Album Remastered
+
+01. The Celtic Soul Brothers (More, Please, Thank You) (3:09)
+02. Let's Make This Precious (4:04)(   Читать дальше...   )Жанр: Funk / SoulПродолжительность: 02:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5FAD58FF4A7F699530D4A0E063D1B61EBA7EE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389516   (784212) от 11.06.2020
+
+Norah Jones - Pick Me Up Off The Floor (2020) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How I Weep
+02. Flame Twin
+03. Hurts To Be Alone
+04. Heartbroken, Day After(   Читать дальше...   )Жанр: Contemporary Jazz, PopПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F652931C3B32FFFFBB1FE077E0862CAD112AA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205072   (784109) от 08.02.2018
+
+Joe Morello - Joe Morello (1961, 1962) 1989, Bluebird [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shortnin' Bread [02:10]
+02. When Johnny Comes Marching Home [06:08]
+03. Brother Jack [02:58]
+04. Every Time We Say Goodbye [03:06](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 01:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6093C90E42A7796CA2B8B5F5D4F2EB071749491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205077   (784098) от 08.02.2018
+
+The George Shearing Trio with Ray Brown and Marvin "Smitty" Smith - Breakin' Out (1987) Concord [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Squeeze Me (But Don't Tease Me) [05:58]
+02. Day Dream [04:25]
+03. Hallucinations [03:55]
+04. In the Wee Small Hours of the Morning [06:00](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03E96FBCF38F725EB4A4EAB3BC71BD3FF43589D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389744   (783948) от 12.06.2020
+
+Benny Golson - Four Classic Albums 1957 - 1958 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783948.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Out Of The Past [6:27]
+02. Reunion [7:20]
+03. Venetian Breeze [5:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F91E39135AC69275DC5E7C75170DC3F5C9B126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389788   (783915) от 12.06.2020
 
 Boney James - Solid (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -571,180 +746,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63959B780B507B91856F7FC3002AF74C4A5195BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206111   (782980) от 12.02.2018
-
-Sherri Roberts - Anybody's Spring (2017) Pacific Coast Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Anybody's Spring [05:34]
-02. Spring Sprang Sprung [06:15]
-03. They Say It's Spring [05:25]
-04. It Might as Well Be Spring [05:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817A538AFD3BDD52221CB3C039B736A143C2241E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205931   (782927) от 12.02.2018
-
-Free - Tons Of Sobs (1968) Island Records [MP3|320 Kbps] <Blues Rock, Electric Blues, Classic Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Free - одна из наиболее влиятельных команд своего времени. Их стиль соединил в себе классический блюз и интонации еще только зарождавшегося хард-рока. Мелодическая структура композиций послужила основой для многих поп-роковых и АОР исполнителей середины 70-х, вроде "Bad Compsny" и "Foreigner".01. Over The Green Hills (Part I) 0:52
-02. Worry 3:26
-03. Walk In My Shadow 3:30
-04. Wild Indian Woman 3:40(   Читать дальше...   )Жанр: Blues Rock, Electric Blues, Classic RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2CD058F704CA717726EB4BDEDACA43A49E3DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206078   (782891) от 12.02.2018
-
-Blues Beatles - Blues Beatles (2017) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hard Days Night (4:40)
-02. Eleanor Rigby (4:02)
-03. You Can't Do That (4:07)
-04. Yesterday (7:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30794DBF4DD2C6B49DC4C63B7DE43ED49890A0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390556   (782732) от 16.06.2020
-
-Bud Shank - Four Classic Albums 1956 - 1958 (2012) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782732.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Bag Of Blues [6:51]
-02. Nature Boy [4:30]
-03. All This And Heaven Too [4:56](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 02:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3C37A2305255DBA4C1A2A020BB9D0D838283DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206302   (782571) от 13.02.2018
-
-Manuel Valera Trio - The Seasons (2017) Mavo Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening [05:11]
-02. In the Eye of the Beholder [06:39]
-03. Tres Palabras [05:59]
-04. Hopeful [06:26](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5EE1DC42419FFEBB16BEE4E5760E231DE6E788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206218   (782565) от 13.02.2018
-
-Kathy Kosins - Uncovered Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Get Me Started 04:28
-02. Voodoo 04:23
-03. Uncovered Soul 03:54
-04. Ms. Martha 04:41(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A592A13E399F036CB7E71836E2CE3613C17F9FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

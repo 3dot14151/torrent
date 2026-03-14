@@ -1,3 +1,177 @@
+###  Публикация: 1784509   (69531) от 12.03.2025
+
+Bud Powell - Bud's Bubble (1944 - 1947) 2000, EPM Musique [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Remember April [2:54]
+02. Everything Happens to Me [2:42]
+03. Indiana [2:45]
+04. I Should Care [3:03](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D1F62E027EE81D570A3106152EEAA3F9C69AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784657   (69530) от 12.03.2025
+
+Bud Powell - Jazz Giant (1949, 1950) 2001, Verve Records [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tempus Fugue-It (Tempus Fugit) [2:29]
+02. Celia [3:01]
+03. Cherokee [3:40]
+04. I'll Keep Loving You [2:44](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FC82A8D2F13529D28B9B79D374B76B5A4D5E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784808   (69487) от 13.03.2025
+
+Art Pepper - Winter Moon (1980) 2005, Galaxy [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Song [5:32]
+02. Here's That Rainy Day [5:21]
+03. That's Love [4:53]
+04. Winter Moon [5:32](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD48FB73A8BEF4006D582A5DDA1505D8042864B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784811   (69484) от 13.03.2025
+
+The Bud Powell Trio - Time Was (1956, 1957) 1987, Bluebird [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Will Never Be Another You [3:40]
+02. They Didn't Believe Me [3:21]
+03. I Cover the Waterfront [2:34]
+04. Time Was [3:07](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B983D25143A3D1C3ECF475B330FA5B5B33997F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784800   (69483) от 13.03.2025
+
+Tony Scott - Three Classic Albums Plus (1953 - 1958) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's You Or No One [2:55]
+02. Rock Me But Don't Roll Me [2:34]
+03. Deep Purple [1:58]
+04. The Jitterbug Waltz [3:12](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01262E6672932E90B8282AB6BA6F8D353C8671E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785105   (69413) от 14.03.2025
+
+Art Pepper - Timeless (1952, 1953) 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way You Look Tonight [3:47]
+02. Nutmeg [3:13]
+03. What's New [3:29]
+04. Surf Ride [2:52](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AD28F0C4A7DF4560928EEAA218A1410A39E4A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785110   (69411) от 14.03.2025
 
 Bud Powell - The Definitive Bud Powell (1947 - 1953) 2002, Blue Note [FLAC|Lossless|tracks + .cue] <Bop>
@@ -566,180 +740,6 @@ Project G-7 - Tribute to Wes Montgomery, Vol.1 (1993) Evidence [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C7DBEED32EDB0103C46A5FBD91EDE271629F10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786369   (69013) от 20.03.2025
-
-Project G-7 - Tribute to Wes Montgomery, Vol.2 (1993) Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Blues for Wes [4:28]
-02. Bock to Bock [6:35]
-03. For Heaven's Sake [6:27]
-04. Montgomery Blue [6:09](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F32767B59B0B07D2C912FFDBFF8C0C89EED537E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786362   (69012) от 20.03.2025
-
-Herbie Hancock - My Point Of View (1963) 2024,Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind Man, Blind Man [8:19]
-02. A Tribute to Someone [8:46]
-03. King Cobra [6:55]
-04. The Pleasure Is Mine [4:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A018DF0FC5615C9F7D8219DA0C1042966657C2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786606   (68963) от 21.03.2025
-
-Buck Hill - I'm Beginning To See The Light (1991) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Hill [3:55]
-02. Lullaby of Loosdrecht [7:59]
-03. Mitzi [4:41]
-04. Bossa for Sax [9:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:728189B35F69A06594CA73AFD2BB0DCA89A57A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786603   (68959) от 21.03.2025
-
-Warren Vache - Talk To Me Baby (1996) Muse Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Y Va (Off We Go) [4:16]
-02. The Arrival [6:39]
-03. You'll Never Know [4:48]
-04. The Eels Nephew [4:19](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B848B8DA174DEF385CE0780FF1336A4F93B973E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786818   (68932) от 22.03.2025
-
-Kenny Wayne Shepherd & Bobby Rush - Young Fashioned Ways (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Was That
-02. 40 Acres (How Long)
-03. Hey Baby (What Are We Gonna Do)
-04. Uncle Esau(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB72BD27459A5DD2B995460544200857D4545980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786779   (68918) от 22.03.2025
-
-Jay Hoggard - The Fountain (1992) Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Potato [9:11]
-02. Stompin' at the Savoy [7:29]
-03. Prelude to a Kiss [7:30]
-04. Starting Over [4:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6D69D927F9C9A4AE597A30AF0C89A09960F7EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

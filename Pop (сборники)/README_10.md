@@ -1,3 +1,32 @@
+###  Публикация: 1091569   (943110) от 09.01.2017
+
+VA - New Year Jelly (2016) [MP3|320 Kbps] <Dance, Technodance, Euro-House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jessica Jay - Casablanca (06:21)
+02. Pharao - I Show You Secrets (04:03)
+03. 2 Unlimited - No-One (03:29)
+04. Dj Bobo - Somebody Dance With Me (03:34)(   Читать дальше...   )Жанр: Dance, Technodance, Euro-HouseПродолжительность: 03:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9740AC502823969469FD4C434D721E685F51CAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091107   (943103) от 09.01.2017
 
 VA - Singles Chart Hot 100 Billboard (24 December) (2016) [MP3|32-320 Kbps] <Pop , Dance>
@@ -713,35 +742,6 @@ VA - German dance hits №3 (2016) [MP3|256-320 kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4E5A23BF62994A577F3B2A153F07AE24C181F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984765   (936772) от 10.02.2016
-
-VA - Русская дискотека. Энергия хитов (2016) [MP3|256 kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936772.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мята - Бомба
-002. Артур Лабор - Твой Каблук
-003. Глюкozа - Пой Мне Ветер
-004. Район Моей Мечты Feat. Luina - Following(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B20DEB2C0E278B097DA1D4B353771142F3A02C
 ```
 
 https://mybot314.ru/tekegram_catalog/

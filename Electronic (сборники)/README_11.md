@@ -1,3 +1,32 @@
+###  Публикация: 1479253   (1009572) от 24.06.2021
+
+VA - Chillout Deep Sounds (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009572.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Project Blue Sun - Lost In Your Eyes
+002. Amethystium - Nightfall
+003. Marshall Watson - A Door In The Sky
+004. Begin - Super Barrio(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, LoungeПродолжительность: 12:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10BC4EF0A35A05DB7B108423A96414F4B35F92B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479362   (1009538) от 24.06.2021
 
 VA - HGM: Deep House Project June (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -716,35 +745,6 @@ VA - Record Super Chart 17.07.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7C5BEA4B54B02613927134D0B6F79DCF4B62167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485304   (1005442) от 25.07.2021
-
-VA - Record Super Chart 24.07.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minelli - Rampampam (3:20)
-02. Markul, Джарахов - Я в моменте (2:06)
-03. Nessa Barrett feat. jxdn - la di die (3:15)
-04. Inna - Flashbacks (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229B3473D5F65FB1BCAFE5EC75D2455625CD6C23
 ```
 
 https://mybot314.ru/tekegram_catalog/

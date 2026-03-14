@@ -1,3 +1,90 @@
+###  Публикация: 1705315   (113852) от 08.03.2024
+
+Wynton Marsalis & The Lincoln Center Jazz Orchestra - Experience Jazz Like Never Before (2003) Marnier-Lapostolle [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oska-T [11:41]
+02. My Favorite Things [4:15]
+03. Continuous [5:04]
+04. Dizzy Atmosphere [5:41](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Big BandПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BECD51A726C324FFB7425F7893D147FE61E8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705024   (113846) от 08.03.2024
+
+V.A. - In Paris Highlights. CD, Compilation (1995) [FLAC|Lossless|image + .cue] <Jazz, Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Turner - I've Got The World On A String		02:54
+02. Gerry Mulligan - The Lady Is A Tramp		03:43
+03. VaGerry Mulligan - My Funny Valentine		04:44
+04. Lionel Hampton - I Only Have Eyes For You		03:34(   Читать дальше...   )Жанр: Jazz, Bop, Hard BopПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C68BCEA59253C13203AD6065BBFA02B09C399A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705318   (113840) от 08.03.2024
+
+Lionel Hampton - Hot Mallets, Vol. 1 (1937 - 1939) 1987, BMG [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buzzin' Around with the Bee [3:07]
+02. Stompology [3:00]
+03. On the Sunny Side of the Street [3:15]
+04. I'm Confessin' (That I Love You) [3:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A216CE99AAA552E0CC0E2E19F0430BBAAA05A93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705306   (113837) от 08.03.2024
 
 Cedar Walton - Naima (1973) 2003, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -658,93 +745,6 @@ Thomas Edward Berry - Re-Imagined (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BA7F6A503C7FCFC8CC931C37549952AC381F83C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706345   (113633) от 12.03.2024
-
-Sonny Stitt - Night Letter (1963, 1969) 1996, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday [7:58]
-02. Soul Shack [7:15]
-03. Love Nest [6:18]
-04. Hairy [5:57](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA91C1586051AA1619C5E9593E8E4CF275310D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706362   (113631) от 12.03.2024
-
-Terumasa Hino - Bluestruck (1990) [FLAC|Lossless|tracks + .cue] <Fusion, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romancero Gitano (Hino) - 8:05
-02. Sweet Love of Mine (Shaw) - 7:38
-03. Bluestruck (Hino) - 5:01
-04. Rain Again (Hino) - 7:17(   Читать дальше...   )Жанр: Fusion, BopПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D82906405C899741F9C7605B80E7289A3D62E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706354   (113622) от 12.03.2024
-
-Kenny Barron - The Source (2023) Artwork Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What If [8:02]
-02. Isfahan [6:14]
-03. Teo [6:05]
-04. Daydream [9:42](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A253AB56CC345EB8E27CDB72C7BFD07E7F7CCF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

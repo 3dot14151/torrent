@@ -1,3 +1,32 @@
+###  Публикация: 988240   (919187) от 21.02.2016
+
+VA - February Top 100 - Collection Trance (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919187.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Madhukar - Eternal Heaven (13:46)
+002. Ganga - Autumn - Dj Malte Of Real XS Mexican Club Mix (9:17)
+003. Pan-Pot - Sleepless (Stephan Bodzin Remix) (9:00)
+004. Talamanca - A Day At The Beach (Original Mix) (8:47)(   Читать дальше...   )Жанр: TranceПродолжительность: 10:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DFA25BF89FDAAF27FDCA886565C1235937C379A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988785   (919178) от 21.02.2016
 
 VA - Smooth Jazz n' Chill (2016) [MP3|320 кб/с] <Smooth Jazz, Lounge>
@@ -714,35 +743,6 @@ VA - Sexy House, Vol. 1 (2016) [MP3|320 кб/с] <House, Tech House, Deep House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64ABFD221A5B935A19C02BBE7043E16E3D8A0601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989819   (915827) от 23.02.2016
-
-VA - House Nation Volume 5 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foamo feat. Lotti - Release Me (05:52)
-02. Kastra - Placebo (04:06)
-03. Reece Low - Rompa Stomp (06:08)
-04. Showtek feat. MC Ambush - 90's By Nature (04:02)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F5FFB379357DFE160EB4807D1F7DEFBCBEEDD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

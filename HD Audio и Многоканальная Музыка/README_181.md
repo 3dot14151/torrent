@@ -1,3 +1,148 @@
+###  Публикация: 1780527   (70425) от 18.02.2025
+
+Atlas Ashes - New World (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashes [00:00:55]
+02. Promises Are Lies [00:03:27]
+03. New World [00:03:26]
+04. Homecoming [00:04:30](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF07509C3D760B59BC8C16FDEAE860E2A1424FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780734   (70379) от 19.02.2025
+
+Bishop Gunn - Live With Bishop Gunn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anything You Want (4:11)
+02.  Shine (4:07)
+03.  Alabama (3:12)
+04.  Makin' It (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D681B74727ADCC58E5C0CB3150DA54BC76DFED73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780738   (70375) от 19.02.2025
+
+Brothers Harvest - The True Vine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fools Gold (3:19)
+02.  Black Crow (3:54)
+03.  Same as Before (2:33)
+04.  Empty Tank (2:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFCEDBF6F57D5A41173A1DC85D40ED8F2B50BF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780650   (70374) от 19.02.2025
+
+New Translations - Vacation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Post Hang [00:03:28]
+02. Rat People [00:03:57]
+03. Vacation [00:04:52]
+04. TV at Home [00:03:49](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4978F674BDB3EF9326C554D95C1B659DA713787D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780615   (70370) от 19.02.2025
+
+Ritual (Sweden) - Studio Albums (5 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ritual был сформирован в 1992 году в Стокгольме, Швеция, барабанщиком Йоханом Нордгреном, басистом Фредриком Линдквистом, гитаристом Патриком Ландстром и клавишником Джона Гамблом.1995 - Ritual
+1999 - Superb Birth
+2003 - Think Like A Mountain
+2007 - The Hemulic Voluntary BandЖанр: Progressive RockПродолжительность: 04:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39709344AA50CB2FE2B26C5FCB2CF9DE66F5DF4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780739   (70369) от 19.02.2025
 
 Chris James - Cj (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -599,151 +744,6 @@ Dead Sara — хард-рок-группа из Лос-Анджелеса2009 - 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F401F421CC359B8F0C4944D8078D8F05320D4337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781566   (70190) от 23.02.2025
-
-Bury Your Dead - Studio Albums (7 releases) (2003-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hardcore, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bury Your Dead - американская группа из Бостона, штат Массачусетс, сформированная в 2001 году.2003 - You Had Me At Hello
-2004 - Cover Your Tracks
-2006 - Beauty and the Breakdown
-2008 - Bury Your DeadЖанр: Hardcore, MetalcoreПродолжительность: 03:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1927BCD5C264DD0F320F733431C923E1FC6E168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782072   (70115) от 26.02.2025
-
-No Money Kids - Fireworks (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  BIG (2:15)
-02.  Story of the Man (2:38)
-03.  Motel Way of Life (2:52)
-04.  Broken Bones (3:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28FAFB31C243C2C4C41CD3C408B7E5BAA4AAD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782066   (70102) от 26.02.2025
-
-Mary Ann Hawkins - Helsinki Surf City (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Surf Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Is Back! (2:28)
-02.  Stepa - Beatlesin viisaat sanat (feat. Stepa) (2:10)
-03.  Haunted House Chemnitz (2:02)
-04.  Hi, This is Roberto (3:20)(   Читать дальше...   )Жанр: Surf RockПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D1869045E837187A09C2D8AF438687AC567C237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782062   (70100) от 26.02.2025
-
-Gyasi - Here Comes The Good Part (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sweet Thing (2:58)
-02.  Lightning (2:46)
-03.  Snake City (2:46)
-04.  She Says (2:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDC794B4E061B4E10215C64CF62A15171FAE783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782067   (70098) от 26.02.2025
-
-Mellow Blues - Mellow Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tropical Blues Jam (2:05)
-02.  Mr Postman (4:02)
-03.  Aye Aye (4:03)
-04.  Coffeeshop Blues (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B923F0D3B03FEC94C743E94D9ACC20921573FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

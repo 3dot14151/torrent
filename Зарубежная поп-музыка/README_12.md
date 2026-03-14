@@ -1,3 +1,32 @@
+###  Публикация: 1000935   (855638) от 27.03.2016
+
+Awa Ly - Five and a Feather (2016) [MP3|256 кб/с] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storyteller
+02. Let You Down
+03. Let Me Love You
+04. Help You Out(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB40447750D854D2258CF2A62E923C49AF89F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110176   (855554) от 01.03.2017
 
 VA - High Life - 20 Original Top Hits (1977) LP [MP3|320 Kbps] <Electronic, Pop, Pop-Rock, Disco>
@@ -547,6 +576,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003409   (843022) от 03.04.2016
+
+Akcent - Love The Show (2016) [MP3|320 кб/с] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_843022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akcent feat. Lidia Buble - Serai (03:21)
+02. Akcent feat. Amira - Push (02:47)
+03. Akcent feat. Reea & Aza - Phou Phou (03:31)
+04. Akcent feat. Tamy & Reea - Boca Linda (03:36)(   Читать дальше...   )Производство: RotonЖанр: Pop, DanceПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5AEFFE314FBA1E5F927AAF35AB3E72B08C1862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500148   (842707) от 05.10.2021
 
 VA - TechnoBase.FM – Best Of (2021) [MP3|320 Kbps] <Electronic, Dance, Techo>
@@ -691,64 +749,6 @@ Kim Carnes - Essential (2011) [MP3|320 кб/с] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFD8CDD559816729D95F505F6D732B2A2A35D343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379085   (840968) от 28.04.2020
-
-VA - Classic 80's Pop (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Duran - Hungry Like The Wolf 3:41
-02. New Order - The Perfect Kiss (7" Edit) 4:25
-03. Spandau Ballet - Highly Strung 4:11
-04. A-Ha - Cry Wolf 4:04(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4396B1B828799663B7900F3B984F3BBA3F5232E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113019   (840123) от 10.03.2017
-
-Lunch Ladies - Down on Sunset Strip (2017) [MP3|320 Kbps] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine (04:23)
-02. You're Not There (03:19)
-03. Love Is Overrated (03:40)
-04. Sad Jeans (03:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716B333B690A15C5277D15052D6A4697B7E6A021
 ```
 
 https://mybot314.ru/tekegram_catalog/

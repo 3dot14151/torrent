@@ -1,3 +1,163 @@
+###  Публикация: 475795   (85522) от 31.03.2012
+
+Europe - The Final Countdown (1986)  [APE 2.0 24/48 | tracks (VinylRip)]<hard rock,heavy metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Final Countdown
+02. Rock the Night
+03. Carrie
+04. Danger on the Track
+05. Ninja
+06. Cherokee
+07. Time Has Come
+08. Heart of Stone
+09. On the Loose
+10. Love Chaser1986Жанр: hard rock,heavy metalПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9561E9AE966EAFF6D3C5534CE24DE9BBD1CBAF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472484   (84364) от 25.03.2012
+
+Esperanza Spalding - Radio Music Society (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]<Jazz, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Song
+02. Cinnamon Tree
+03. Crowned & Kissed
+04. Land Of The Free
+05. Black Gold
+06. I Can't Help It
+07. Hold On Me
+08. Vague Suspicions
+09. Endangered Species
+10. Let Her(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz-Pop, Neo-SoulПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F8BA0443F78F017275D3822242A2EA84F53E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469233   (83197) от 19.03.2012
+
+Ennio Morricone - Live in Venice (2007) Upmix [DTS 5.1|44.1/24 WAVE|tracks] <Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deborah's Theme (Once Upon a Time in America) (Ennio Morricone)  (3:59)
+02. Addio Monti (from The Betrothed) (Ennio Morricone)  (2:59)
+03. Vatel (Ennio Morricone)  (5:35)
+04. H2S (Ennio Morricone)  (2:40)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C647A88DE47F74C891643380B423A818D5EA39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455918   (77641) от 21.02.2012
+
+Гарик Сукачев и Неприкасаемые - Grand Collection (2002) [DTS 5.1|tracks (upmix)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Моя бабушка курит трубку
+02 Свободу Анджеле Дэвис!
+03 За окошком месяц май
+04 Знаю я, есть края...
+05 Ольга
+06 Я милого узнаю по походке
+07 Белый колпак
+08 Прощай, мой друг
+09 Дорожная
+10 10 000 километров(   Читать дальше...   )Жанр: RockФормат: DTS UpmixПродолжительность: 1:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616E05ACD4B321F777C61E25DE666BA9CD18B853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455411   (77439) от 20.02.2012
+
+Булат Окуджава - Лучшее (2012) [DTS 5.1|tracks (upmix)]<Author song>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Author song |Формат: DTS Upmix |Продолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4A9FA24BB4C818CD26C35ADF767FE609435E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770653   (71966) от 02.01.2025
 
 Vendetta - Geetroit Wolves (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Rock, Heavy Metal>
@@ -600,151 +760,6 @@ Deblon jackson - FLUTOPIA (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D76D2F9EF0DAB81C563BF87933180AC116ED391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771903   (71814) от 08.01.2025
-
-Sound Dinosaur - BREWING HARMONY (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Morning Pour 朝の一杯 (1:37)
-02.  Velvet Steam ベルベットの蒸気 (2:00)
-03.  Cinnamon Clouds シナモンの雲 (2:24)
-04.  Gentle Roast 優しい焙煎 (2:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C613B51C050D0DA34409F9B3C8543C96DCF04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771905   (71812) от 08.01.2025
-
-Tamara Bodie - Just Have Something to Say (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Colors of Spring (3:59)
-02.  Tea (3:58)
-03.  Pure Delight (Quincy Jones Tribute) (4:32)
-04.  Just Have Something to Say (3:57)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FB1EDD4E365600B8F09912FABE0A94D0060A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771901   (71811) от 08.01.2025
-
-Lustre Jazz - Bangkok Twilight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  A love that never ends (3:20)
-02.  A night remembering you (4:01)
-03.  A song that never fades (3:48)
-04.  Bangkok Twilight (2:51)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396C8368E0A23A05151D0110ED23C55BA0B04173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771899   (71806) от 08.01.2025
-
-John Skelley - Dusk 'Til Dawn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dusk 'Til Dawn Blues (3:29)
-02.  Midnight Confessions (4:41)
-03.  River's Edge Blues (3:58)
-04.  Ladies Man (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5708763E06A1A105D4D50D458953AA70364F1FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771911   (71804) от 08.01.2025
-
-Jamaican Jazz Orchestra - All For A Reason (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brain Freeze (3:26)
-02.  Say Whut?! (4:03)
-03.  Black Rain (4:58)
-04.  Kelly Green (4:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ABEB48FA6D39921B7D180874623CC5F6DF5E361
 ```
 
 https://mybot314.ru/tekegram_catalog/

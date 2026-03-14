@@ -1,3 +1,148 @@
+###  Публикация: 1725622   (108890) от 25.05.2024
+
+The Korea - Мёд (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal, Progressive Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Правда (3:38)
+02. Голод (2:24)
+03. Культ (3:17)
+04. Не забывай дышать (2:39)(   Читать дальше...   )Жанр: Alternative Metal, Modern Metal, Progressive MetalcoreПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C2D6E678985052FF82348B606A2DA10D08FE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726007   (108888) от 26.05.2024
+
+Suck Brick Kid - The End Is What I Want (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Punk-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wrote On The Wall! Take That Society! [00:03:04]
+02. It's Okay... Probably [00:03:01]
+03. What I Do When I Blackout Is None Of My Business [00:03:06]
+04. You Can Paint Over Me But I'll Still Be Here [00:02:46](   Читать дальше...   )Жанр: Pop-Punk-RockПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49DE1AB03AC60D015B4340743EE19E8A5B979D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726009   (108857) от 26.05.2024
+
+Maggie Lindemann - Headsplit (2024) Deluxe Edition, 2024, EMI [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Pop-Punk, Crossover Rock, Electronic, Female Vocals>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. who are you when you’re alone? [00:02:25]
+02. if it’s not with you [00:02:33]
+03. decode [00:04:19]
+04. rip my heart out [00:02:50](   Читать дальше...   )Жанр: Alternative Metal, Pop-Punk, Crossover Rock, Electronic, Female VocalsПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D401891815529C04CF4DCDAE8D2CB92FDF1F5E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725895   (108854) от 26.05.2024
+
+De Halsband - Wat Let Oe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In De Keet (3:23)
+02. Dixie Achter De Tent (3:46)
+03. Geneuzel (2:47)
+04. De Zommer Is D'r Weer (4:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB707308F6B50458CB03A619E8BC56E84F9DDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725881   (108852) от 26.05.2024
+
+Paul Weller - 66 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Britpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ship Of Fools (00:02:58)
+02 - Flying Fish (00:04:41)
+03 - Jumble Queen (00:02:34)
+04 - Nothing (00:04:16)(   Читать дальше...   )Жанр: Rock, BritpopПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D3304B7AF3B5A937B67EDC8518ADE3873E15D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725884   (108850) от 26.05.2024
 
 Defects - Modern Error (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metalcore, Modern Metal>
@@ -600,151 +745,6 @@ Vlado Grizelj - Purple Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47109A908EE9069AFC28653CFE234E88FE6D45F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726066   (108774) от 27.05.2024
-
-Lyle Lovett - Pontiac (1987) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108774.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 If I Had A Boat
-A2 Give Me Back My Heart
-A3 I Loved You Yesterday
-A4 Walk Through The Bottomland(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED76F9235E230ED312C6C4DC38FDC9C8C0E3A27E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726511   (108754) от 28.05.2024
-
-VA - Metal Massacre 09 (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108754.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Banshee - We Want You
-A2 - Oliver Magnum - Old World Nites
-A3 - Toxik - Wasteland
-A4 - Dissenter - Blood Under Heaven(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DABCD965CE38B96A0D5832E146B763619C5EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726373   (108751) от 28.05.2024
-
-Night's Music Zone - Soothing Night of Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night for Two (3:04)
-02. A Cup of Jazz (3:04)
-03. Jazzy Atmosphere (3:04)
-04. Single Ladies Jazz (3:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0C8B92E39A65EEB0566C39C25DB569402FB1ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726578   (108711) от 29.05.2024
-
-Maegandune - Melodic Memoirs (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal, Female Vocals>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes Of Fortitude [00:04:22]
-02. Reflection Of The Truth [00:04:22]
-03. Milady de Winter [00:03:47]
-04. You Know Nothing [00:03:16](   Читать дальше...   )Жанр: Symphonic Gothic Metal, Female VocalsПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD70D3E2FB2A19373BDF595C330E2D960BB52D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726679   (108710) от 29.05.2024
-
-Tennessee Blues Mob - Deep Dark Alibi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wild Will Heal
-02 - Deep Dark Alibi
-03 - Climb the Mountain
-04 - Six Feet Under(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CEA5FE8E0E76C8362E5332C40AC168BA6F0210
 ```
 
 https://mybot314.ru/tekegram_catalog/

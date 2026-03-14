@@ -1,3 +1,61 @@
+###  Публикация: 1717916   (58893) от 22.04.2024
+
+Smokie - Best Of Smokie 3CD Box Set (2002) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lay Back In The Arms Of Someone
+02. Needles And Pins
+03. Oh Carol
+04. For A Few Dollars More(   Читать дальше...   )Жанр: Pop RockПродолжительность: 03:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:027C343D6614AFDC07D74A86270752FD64B44674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720400   (57737) от 03.05.2024
+
+Various Artists - Punk Floyd: A Tribute To Pink Floyd (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eater - Eclipse (03:08)
+ 02. Jah Wobble - Time (04:02)
+ 03. U.K. Subs - Comfortably Numb (04:59)
+ 04. Fear - Astronomy Domine (02:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3B9AB235D7F5E67DC0B6D681B3DB6976327BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724474   (55931) от 20.05.2024
 
 Mark Knopfler - Duets & Collaborations (2024) [MP3|320 Kbps] <Rock, Country, Blues Rock>
@@ -688,64 +746,6 @@ Local H - Whatever Happened To P.J. Soles? (2004) Reissue, Remaster, 2024, Studi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BABF436A6B002BD37F654671B3E491F6745CF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750178   (43134) от 18.09.2024
-
-The Residents - Demons Dance Alone (2019) pREServed Edition, 2024, Cherry Red Records [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pickle [00:07:05]
-02. Betty's Body (Live, Demons Tour, Warsaw Ballroom, Brooklyn, NY, 15 November 2002) [00:03:46]
-03. Caring (Live, Demons Tour, Warsaw Ballroom, Brooklyn, NY, 15 November 2002) [00:04:06]
-04. My Brother Paul (Live, Demons Tour, Warsaw Ballroom, Brooklyn, NY, 15 November 2002) [00:03:22](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 3 CD, 03:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A66E27AC61215B25356054E8B280ACB36A52671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755712   (40092) от 17.10.2024
-
-Paul McCartney & Wings - Red Rose Speedway (1973) Archive Collection, 2018, Paul McCartney Catalog [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Big Barn Bed (2018 Remaster) [00:03:50]
-02 - My Love (2018 Remaster) [00:04:08]
-03 - Get On The Right Thing (2018 Remaster) [00:04:17]
-04 - One More Kiss (2018 Remaster) [00:02:29](   Читать дальше...   )Жанр: RockПродолжительность: 01:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2B4FA85BB6678616163AC3300624A38AA15D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

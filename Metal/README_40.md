@@ -1,3 +1,32 @@
+###  Публикация: 1287830   (701762) от 08.03.2019
+
+Doro - Backstage to Heaven (2019) EP [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701762.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Backstage To Heaven (feat. Helge Schneider)
+2. Heartbroken (feat. Doug Aldrich)
+3. Blood, Sweat and Rock 'N' Roll (Live)
+4. If I Can't Have You - No One Will (Live)Жанр: Heavy MetalПродолжительность: 00:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0B80ACFDEB57F95A8AFC2C30EF8803D0D73019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287834   (701635) от 08.03.2019
 
 Children of Bodom - Hexed (2019) Deluxe Edition [MP3|320 Kbps] <Melodic Death Metal>
@@ -722,35 +751,6 @@ Beyond All Recognition - Beyond All Recognition (2016) [MP3|320 кб/с] <Metalc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18F19877710C4BD69EA3628DDF655FB330F1757C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028355   (690662) от 22.06.2016
-
-Whitechapel - Mark of the Blade (2016) Deluxe Edition [MP3|320 кб/с] <Hardcore, Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690662.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Void (4:08)
-02. Mark Of The Blade (2:54)
-03. Elitist Ones (4:37)(   Читать дальше...   )Жанр: Hardcore, Metalcore, DeathcoreПродолжительность: 01:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B414FA45749AF0336F0DC1D10D2BDB19869DFD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

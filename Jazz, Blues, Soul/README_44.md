@@ -1,3 +1,61 @@
+###  Публикация: 1350148   (1003853) от 04.01.2020
+
+Splashgirl - Doors. Keys. (2007) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Contemporary Jazz, Dark Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 Is 3 Is 2 Are One (3:21)
+02. Leo (6:04)
+03. Forsøk (5:01)
+04. Shut Up And Dance! (6:08)(   Читать дальше...   )Производство: Aim Records – AIMCD121Жанр: Dark Jazz, Contemporary Jazz, Dark ExperimentalПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABA6E496BE4736014471210712A0E285007718C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350024   (1003848) от 04.01.2020
+
+Johnny Griffin & Eddie "Lockjaw" Davis - Four Classic Albums 1960 - 1961 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003848.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tickle Toe [5:31]
+02. Save Your Love For Me [7:09]
+03. Twins [6:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BD335EFEBBD6FD1A6A955E747543C690AB1110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350133   (1003845) от 04.01.2020
 
 Fire! - The Hands (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Dark Jazz, Jazz Rock>
@@ -687,64 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECCFA4E082669E5BC6F571E599F31201588582AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351915   (1001686) от 12.01.2020
-
-Thought Gang (David Lynch and Angelo Badalamenti) - Thought Gang (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental Jazz, Dark Jazz, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stalin Revisited (2:02)
-02. Logic and Common Sense (3:35)
-03. One Dog Bark (3:07)
-04. Woodcutters From Fiery Ships (4:35)(   Читать дальше...   )Производство: Sacred Bones - 843563105429Жанр: Experimental Jazz, Dark Jazz, Free Jazz, SoundtrackПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9693F6FDA8367E0AB67DD3076CCACABFBF513AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352180   (1001353) от 13.01.2020
-
-Marshall Gilkes & WDR Big Band - Koln (2015) Alternate Side Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Shining Hour [6:55]
-02. Vesper [7:27]
-03. 4711 Special [7:57]
-04. Edenderry Intro [4:14](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2C95A0C21ECAAAEACCD9BCAFFE1C0E98DF2374
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,33 +1,3 @@
-###  Публикация: 473919   (84442) от 26.03.2012
-
-[Wallpapers] Nature HD Wallpapers Pack
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84442.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature HD Wallpapers Pack 
-Название:  Nature HD Wallpapers Pack 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 11370х7587
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3DAAA5A13F2F90A8642850CB039B0963CD72D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472703   (84102) от 24.03.2012
 
 [Wallpapers] Wallpapers Sexy Girls Pack (25.03.12)
@@ -696,6 +666,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:833234549B685124C97023A44B429A54C1EDC21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776230   (28610) от 05.02.2025
+
+Обои - Eternal Mix Wallpapers Part 9 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 50 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA79323A4BC8E08A5620444A9CC7742E584FB53
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1566863   (478643) от 31.07.2022
+
+Herb Ellis - The Early Years (1956 - 1965) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Moon At All [7:20]
+02. Bye Bye Blackbird [3:38]
+03. Life Is A Ball [5:32]
+04. It's Easy To Remember [4:10](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Guitar JazzПродолжительность: 05:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24758E314C3044BCB17488093C7CC9D1709FBEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160115   (478258) от 23.08.2017
+
+Muhal Richard Abrams - Afrisong (1975) 2009, Candid [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrisong [05:10]
+02. The Infinitive Flow [06:11]
+03. Peace On you [07:42]
+04. Hymn To The East [04:40](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7A0D942A4ADC7DE23983FBFB2B730C47487CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160112   (478254) от 23.08.2017
+
+Bob James - All Around The Town (2008) 2CD, KOCH Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478254.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Touchdown [06:43]
+02. Stompin At The Savoy [11:40]
+03. Angela (Theme From Taxi) [07:22](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0CD5C1E1AF563C2973FF5CBA3FDD8D08591198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244803   (478165) от 03.09.2018
 
 Jessica Molaskey - Portraits of Joni (2017) Ghostlight Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -676,99 +763,6 @@ VA - Voices of Love (2012) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939389   (476102) от 21.09.2015
-
-Gary Bartz - Episode One Children Of Harlem (1994) /Challenge/[FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Amos n'Andy Theme One & Spoken Intro [03:09]
-02.Tap Dancer [07:02]
-03.If This Isn't Love [10:40]
-04.Tico Tico [08:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FAEE87E7094124452D04512892725BB52B9B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546354   (476067) от 14.09.2012
-
-VA - Jazz Audiophile Voices (2010) [FLAC|Lossless]<Vocal jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lyle Ritz & Rebecca Kilgore - Sway [03:48]
-02. Pamela Luss with Houston Person - You Belong To Me [05:31]
-03. Niki King - The Very Thought  Of You [04:07]
-04. Janet Seidel - Spanish Harlem [04:30]
-05. Saskia Bruin - Estate [04:27]
-06. Lisa Lauren - And I Love Him [05:25]
-07. Todd Gordon & Jacqui Dankworth - If You Could Read My Mind [04:32]
-08. Joe Fagan Quartet - My Foolish Heart [05:00]
-09. Sarah Morrau - Both Sides Now [04:54]
-10. Alison Burns - Cry Me A River [04:59](   Читать дальше...   )Жанр: Vocal jazzПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939190   (476035) от 21.09.2015
-
-Kat Reinhert - Spark (2015) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Into The Rain
-02. Heavy
-03. Spark
-04. Paper Bag(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCED15038814C3709FDBF3FE7767C105447438F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1703410   (114981) от 29.02.2024
+
+Kirk Nelson & Jambalaya West - Savor the Moment (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazzy_Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bounce Around (3:01)
+02. Only 12 Bars In A Day (3:48)
+03. Stay In Your Lane (3:14)
+04. Back On Up The River (4:12)(   Читать дальше...   )Жанр: Jazzy_BluesПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99F7A79B010B9A48DA2A1CDB0390D1B6355CBA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703424   (114979) от 29.02.2024
+
+The Soul of John Black - J.B.'S Blues Party! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gut Bucket (4:40)
+02. Six Pack of Blues (4:38)
+03. Turn You On (3:27)
+04. Slow Dancing (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5931F536A6B4E0C04B99FF5C348B55B4531BE1C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703419   (114976) от 29.02.2024
+
+Medicine Head - Heartwork (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Makin' Up For Lost Love (3:46)
+02. Alibi (2:50)
+03. Everybody Has The Blues (Sometimes) (4:42)
+04. Get Your Hands In the Air (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE368F4B09B12D0358E42480FF891610CA6E5D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703406   (114975) от 29.02.2024
+
+John Clifton - Too Much to Pay (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Much To Pay (3:15)
+02. It Wouldn't Stop Raining (2:57)
+03. Long Gone Mama (3:35)
+04. Get Lost (2:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2BB891A0BC480DA2B707EE58CD5BD01362228C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703423   (114971) от 29.02.2024
+
+The Gus Glynn Band - Paint It Blue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paint It Blue (4:25)
+02. Rollin' (5:25)
+03. Saltwater (4:34)
+04. Walk The Walk (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F31E683250234FAACB3680E8C4F6103DA16FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703401   (114968) от 29.02.2024
+
+Eric Assmar, Jefferson Goncalves & Gustavo Andrade - Assmar, Gonçalves & Andrade (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Say No (4:16)
+02. So Strong (3:31)
+03. A Simple Man (4:43)
+04. Come Dance the Blues (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2968E5319A90D87055CE9964BAF0765C124D113C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703515   (114818) от 01.03.2024
 
 Sahib Shihab - Jazz Joint 2: Companionship (1971) 2007, Anti-Magnetic [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Hard Bop>
@@ -571,180 +745,6 @@ Branford Marsalis - Trio Jeepy (1989) CBS [FLAC|Lossless|tracks + .cue] <Post-Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAAD686945DCB1588351502E4A6A1F1C4A12B80F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704489   (114354) от 04.03.2024
-
-VA - Greatest Smooth Lounge Chill Selection Relaxing Body and Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Still (3:49)
-02. Chillaxonic - Mesmerized (4:31)
-03. Chillaxing Jazz Kollektion - Blue Pacific (4:39)
-04. Kool&Klean - Vanilla Twilight (5:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB828FDB64ED39D3C15B15C0F1E76FCF373D3C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704217   (114334) от 04.03.2024
-
-Blues Joke - Better Old Than Dead (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Blues Rock, Progressive Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At the End [00:03:39]
-02. Hater [00:03:03]
-03. Find Your Place [00:00:51]
-04. Know Your Place [00:05:11](   Читать дальше...   )Жанр: Classic Hard Blues Rock, Progressive RockПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193704E6B41F4DDF469C25254595934B71697042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704490   (114333) от 04.03.2024
-
-VA - Smooth'N'Soulful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grover Washington Jr. - Watching You Watching Me (5:28)
-02. Chic - A Warm Summer Night (6:05)
-03. Joe Sample - Put It Where You Want It (5:10)
-04. Willie Bradley - In the Meantime (feat. Gerald Alston) (4:55)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 02:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA0A8448F7868DFEDBD44195A83B8AE188CAAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704494   (114332) от 04.03.2024
-
-VA - Soothing Chill Lounge Relaxing Ultimate Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - My World (5:25)
-02. eJazz Artistry - You're Makin' Me High (4:48)
-03. Chillaxing Jazz Kollektion - It Dews (5:02)
-04. Kool&Klean - Learn to Live (3:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB821FCA0A57A65554E0AC0ED6CCED91C76E2002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704495   (114324) от 04.03.2024
-
-VA - Ultimate Chill Lounge Relaxing Soothing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Happiness (4:18)
-02. Chillaxonic - Iridescent (5:10)
-03. Kool&Klean - My World (5:25)
-04. Chillaxing Jazz Kollektion - Summer Wind (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C347856CC2F91D62409C626BF1BB853CC5528140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704485   (114308) от 04.03.2024
-
-VA - Fusion Funky Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lo Greco Bros - Temptation (6:10)
-02. AdrianoMaria - Shake It All (5:33)
-03. Faze Liquide - Diabolique (4:41)
-04. Super Bad - Holy Shit Party (4:55)(   Читать дальше...   )Жанр: Funky JazzПродолжительность: 02:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E229A58DAFA69CFFCDF30409BE9A99961E15C592
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1708689   (113044) от 21.03.2024
+
+Orion & J.Shore - Brotherhood (2011) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orion & J.Shore - One Sunday (7:04)
+02. Orion & J.Shore - Architect's Dream (Album Reconstruction) (6:28)
+03. Orion & J.Shore - Oasis (5:19)
+04. Orion & J.Shore - Nails (9:43)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473065E7A79BCCBC258C3F90EC853493268C64DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709641   (112792) от 25.03.2024
+
+VA - Chillout Music 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innate Joy - Rhyming Games (4:22)
+02. Duenec - Reciprocal Steps (4:23)
+03. Silex Soils - Outgoing Nature (4:24)
+04. Blumenseele - Corroborating the Hypothesis (4:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6917099AE375915539B5E89C9FB10D89A92253C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710350   (112742) от 26.03.2024
 
 VA - Chillout & Lounge Music for Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
@@ -687,64 +745,6 @@ VA - Climax Chill Out Session, Pt. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2678C3CD65B92F0615F9B44453D0DA846773B50E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722976   (109656) от 13.05.2024
-
-VA - Peaceful Resort Experice: Urban Chillout Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Support the Love (2:41)
-02. Castlebed - Recents Steps (3:57)
-03. Gary B - Breakout (2:52)
-04. thE fluiD musics lab. & Ritmo - The Future (4:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8759FFAF7A0E6794B1ACA34FB76007849EB5FB80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724270   (109273) от 19.05.2024
-
-VA - Travel In The Universe, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entilty - Recall (Unlimited Instrumental Mix) (5:20)
-02. Capa - Bird Of Passage, Pt. 1 (6:52)
-03. Ve-Room - Deep Nature (Bajon "No Beat" Version) (4:34)
-04. Faro - A Gentle Plea (5:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AEC3BFEA326B394CF74237E9305345ACDDFEB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

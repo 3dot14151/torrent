@@ -1,3 +1,61 @@
+###  Публикация: 1204010   (785396) от 04.02.2018
+
+Laura Branigan (Лора Брэниган) - Hold Me (1985) Atlantic, 7 81265-2, Europe [MP3|320 Kbps] <Pop Rock, Synth-pop, AOR>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Hold Me 4:46
+02. Maybe Tonight 3:40
+03. Foolish Lullaby 4:18
+04. Spanish Eddie 4:08(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, AORПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7B37B16D78EB65F768BBE24309C247BBCC39AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204029   (785393) от 04.02.2018
+
+Laura Branigan (Лора Брэниган) - Over My Heart (1993) Atlantic, 7567-82489-2, Europe [MP3|320 Kbps] <Pop Rock, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. How Can I Help You To Say Goodbye 4:29
+02. The Sweet Hello, The Sad Goodbye 5:07
+03. Over My Heart 4:25
+04. It's Been Hard Enough Getting Over You 3:42(   Читать дальше...   )Жанр: Pop Rock, SoulПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3368D24B8120D5BEFA2C5E5F1CC6684FC27FD63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204069   (784986) от 05.02.2018
 
 Laura Branigan (Лора Брэниган) - Memories (1978) 7", Single, Not On Label [MP3|320 Kbps] <Pop>
@@ -684,64 +742,6 @@ Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1990) A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C7E814E02231D6FFDBC58A05C9FC513BA8B3E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206386   (782547) от 13.02.2018
-
-Kongas - 2 Albums (1977,1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Tribal, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kongas сформировался во Франции в начале 1970-х годов. Группа может похвастался некоторыми членами, которые  изменили лицо диско-музыке. Среди них Don Ray и Cerrone.01. Anikana-O (10:15)
-02. Kongas Fun (6:06)
-03. Medley: What Ever Happened / Bongos Go (9:16)
-04. Jungle (5:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Tribal, DiscoПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA001BEC57D4CFE233F994C2A9C7D41CAF9FC10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206461   (782139) от 14.02.2018
-
-16 Bit - Inaxycvgtgb (1987) CD [MP3|320 Kbps] <Electronic, Synth-pop, New Beat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Are You (4:13)
-02. (Ina) Gadda-Da-Vida (Feat. Eddie Hind) (5:10)
-03. Be Quit (4:19)
-04. Mac's Flight (3:32)(   Читать дальше...   )Жанр: Electronic, Synth-pop, New BeatПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952AA4669C0FD3BDFF3138CA61E9E437F97282F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

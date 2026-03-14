@@ -1,3 +1,32 @@
+###  Публикация: 990769   (909937) от 26.02.2016
+
+VA - Winter Fragment: Relax Party (2016) [MP3|320 кб/с] <Chillout, Lounge, Downtempo, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909937.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelika - My Surreal Dream (Ambient Mix) 02:41
+002. Ferry Corsten Feat. Temperheart - Not Alone (Chill Version) 04:51
+003. Moonnight Feat. Natune - I Need A New Love 03:44
+004. Dreamman Feat. York - Moonrise On The Beach 07:45(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 10:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AFECB473D536BFF686A1338B2063DF07593FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990792   (909922) от 26.02.2016
 
 VA - Sunrise Lovers Vol.2: 20 Relaxing Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ VA - Auto Dance Party Vol.2 (2016) [MP3|320 кб/с] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6E3DE3A830E851BEF16541DC6F995B53509FE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991451   (906316) от 28.02.2016
-
-VA - LUXEmusic Топ Февраль (2016) [MP3|320 кб/с] <Club House, Dance, Electro House, House Music, Mash Up, Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Hello (DJ PitkiN Remix)
-02. Alekseev - Пьяное Солнце (OlegPerets & Ivan Flash Remix)
-03. Alex Kafer - Так говорят во сне (DJ Denis Rublev Remix)
-04. Anthony El Mejor pres. Мурат Насыров Cover - Я Это Ты (DJ Denis Rublev & DJ Anton Cover Mix)(   Читать дальше...   )Жанр: Club House, Dance, Electro House, House Music, Mash Up, PopПродолжительность: 03:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937B7E0E5E8EB82FAA65D29AC62B64AFB2E86C53
 ```
 
 https://mybot314.ru/tekegram_catalog/

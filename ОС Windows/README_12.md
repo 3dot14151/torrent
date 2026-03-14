@@ -1,3 +1,137 @@
+###  Публикация: 1020687   (741482) от 28.05.2016
+
+Microsoft Windows 10 10.0.10586 Version 1511 (Updated Apr 2016) - Оригинальные образы от Microsoft MSDN [Multi]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Английский (US), Английский (GB), Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB028B436C065F0E226C3711D9EF0EC6F8FFAA1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397669   (737522) от 22.07.2020
+
+Microsoft Windows 10.0.18362.959 Version 1903 (Updated July 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.959.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929011932CF785B41985BA66F9CAF5E4656D3760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397666   (737514) от 22.07.2020
+
+Microsoft Windows 10.0.17763.1339 Version 1809 (Updated July 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1339.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:103A4206AE6E2293C11AF967073F068175D5F8A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397671   (737479) от 22.07.2020
+
+Microsoft Windows 10.0.18363.959 Version 1909 (Updated July 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.959.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C3480EC1391ADE57FD0B44C5A4D90F6057E6D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397670   (737470) от 22.07.2020
+
+Microsoft Windows 10.0.18362.959 Version 1903 (Updated July 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.959.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9FB246EB6764EB25BC4EF24794ADCB1FA0B8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397667   (737468) от 22.07.2020
 
 Microsoft Windows 10.0.17763.1339 Version 1809 (Updated July 2020) - Оригинальные образы от Microsoft MSDN [Ru]
@@ -556,139 +690,6 @@ Microsoft Windows 10.0.17763.1397 Version 1809 (Updated Aug 2020) - Оригин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4592302316EBCEBDF41AF2A3CECDE9A54EF4D722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403457   (690016) от 20.08.2020
-
-Microsoft Windows 10.0.19041.450 Version 2004 (Updated Aug 2020) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.450.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8530C2E09A9943F9EEEC25DDF54E0277546AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403452   (690006) от 20.08.2020
-
-Windows Server 2019 LTSC Version 1809 Build 17763.1397 (Updated Aug 2020) Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операционные системы в канале LTSС ориентированы на традиционные рабочие нагрузки (файловые сервера, сервера приложений, инфраструктурные роли и т.п.). Текущей редакцией для канала LTSC является Windows Server 2019. Выпуски LTSC доступны всем пользователям, независимо от применяемой модели лицензирования. Установка системы возможна в режиме ядра (Server Core) и в (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6DCFE122259D3139E9FAC422A078F33016906C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289027   (689681) от 14.03.2019
-
-Microsoft Windows 10.0.17763.316 Enterprise LTSC Version 1809 (Updated March 2019) - Оригинальные образы от Microsoft MSDN=VLSC [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы - Windows 10 Enterprise LTSC Version 1809 Build 17763.316
-Windows 10 «Корпоративная с долгосрочным обслуживанием» (англ. Enterprise LTSC, ранее — Enterprise LTSB) — специальный вариант «Корпоративной», отличается от остальных редакций долгосрочной поддержкой одной версии и отсутствием Магазина и UWP приложений (кроме приложения «Параметры»).Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527ED958E7B901B78BC260DD0BB7364C71D7D403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403459   (687894) от 21.08.2020
-
-Windows Server, Version 2004 (10.0.19041.450) (Updated Aug 2020) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27511EEA3A2C6D7F849CE61372C83CC9DFA7E85B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403458   (687883) от 21.08.2020
-
-Microsoft Windows 10.0.19041.450 Version 2004 (Updated Aug 2020) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.450.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970AD7C20A4E0BE1510D79CC2AE1F8FB14D50A11
 ```
 
 https://mybot314.ru/tekegram_catalog/

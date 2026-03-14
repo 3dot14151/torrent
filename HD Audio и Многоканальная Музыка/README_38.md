@@ -1,3 +1,145 @@
+###  Публикация: 948997   (374956) от 24.10.2015
+
+This Mortal Coil - It'll End In Tears (1984) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Electronic; Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kangaroo (3:30)Жанр: Electronic; RockПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AA6D921F9BA64051DF912A12BAD6695F30985B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949866   (374861) от 24.10.2015
+
+The Doors - The Doors (1967) Reissue /1980, Warner Pioneer / [FLAC 2.0 24/96|image (Vinyl-Rip)]<Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374861.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Break On Through (To The Other Side) (2:28)
+A2. Soul Kitchen (3:32)
+A3. The Crystal Ship (2:33)
+A4. Twentieth Century Fox (2:32)(   Читать дальше...   )Производство: Elektra Records / Warner PioneerЖанр: Psychedelic RockПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE4C3463260518783618A23B2960ECA6298FDE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176340   (371810) от 21.10.2017
+
+Rockets - Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371810.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Radiate (4:44)
+A2. Imagine E.S.P. (5:05)
+A3. Ziga Ziga 999 (4:03)
+A4. Hypnotic Reality (3:51)(   Читать дальше...   )Производство: Rockland Records - RKL 20279Жанр: Space RockПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A04B4CBBA2C61FA374EF435B0324396B7E4409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719412   (371657) от 11.11.2013
+
+Inside The Music: New Age (2001) [DTS 5.1|44.1/16|wav+.cue|DVD-Audio] <new age>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. "Here Comes The Night" - 3rd Force 06:22
+2. "Bandalero" - Neal Schon 04:53
+3. "Cielo Sin Nubes" - Lara & Reyes 03:55
+4. "Blue Universe" - Craig Chaquico 05:15(   Читать дальше...   )Жанр: new ageПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:378118D83235952AF405E6735CB603643CB21189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719362   (371489) от 11.11.2013
+
+Blackfield - Blackfield IV (2004) [DTS 5.1|44.1/16|.wav+.cue (DVD-Audio)] <art rock, pop rock, progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371489.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pills
+2. Springtime
+3. X-Ray (featuring Vincent Cavanagh - Anathema)
+4. Sense of Insanity(   Читать дальше...   )Жанр: Art rock, pop rockПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153A677E00E5CB92318C5E7C0D8BB68AE8131FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415819   (371435) от 14.10.2020
 
 Л. Субраманиам/L. Subramaniam - Время Должно Измениться/Time Must Be   Changed (1990) Recorded 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Fusion, Contemporary Jazz>
@@ -606,157 +748,6 @@ Spring Concerto in E major RV 269
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A762169DA14E395D09C5BEECF03B15202834F9D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071877   (356463) от 11.11.2016
-
-Various Artists - Le Silence (2003) [DTS 4.0|44.1/16|image +.cue|SACD] <electronic music, downtempo, ambient>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.    Incogniddo – Sun And Water    05:39
-02.    In Credo – La Guitarra (Short Dreamtake Mix)    04:20
-03.    Skysurfer – The Ending (Short Cut)    04:30
-04.    Incogniddo – It’s A Pleasure    03:42(   Читать дальше...   )Жанр: ambientПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D9A9E993E01391D1EF8204854BB3123F7ED4A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256019   (356441) от 21.10.2018
-
-Гости Из Будущего - Ева. Полная Версия (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop, Euro House>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356441.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Intro
-A2 Люби Меня По-Французски
-A3 Он Чужой
-A4 Не Говори О Любви(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73114A96360FF284768223FF621C97B8E70469A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328786   (356126) от 03.10.2019
-
-Paul Mauriat - El Bimbo & Toccata (2019) 1975-73 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356126.jpg" />
-</div>
-
-
-###  Подробнее
-
-El Bimbo (1975)
-
-01. El Bimbo
-02. The Way We Were(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54185DDD9E953C0BE5782265D3B7F192F40F86C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723949   (355313) от 18.11.2013
-
-Elvis Presley - Our Memories Of Elvis (1979) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Are You Sincere  2:00
-2. It's Midnight  3:20
-3. My Boy  2:55
-4. Girl Of Mine 3:40
-5. Take Good Care Of Her  2:50
-6. I'll Never Fall In Love Again  3:40
-Сторона 2
-1. Your Love's Been A Long Time Coming  2:50
-2. Spanish Eyes  2:23(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA570B4A405ABB69A5FE4F54E2857DEE7564F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952780   (353034) от 02.11.2015
-
-Roger Waters – Amused To Death (1992, 2015 Remaster) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <rock, progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353034.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.    The Ballad of Bill Hubbard    04:20
-2.    What God Wants, Part I    06:00
-3.    Perfect Sense, Part I    04:15
-4.    Perfect Sense, Part II    02:51(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F260DEAD20908F84B3601378340A23FB75B32F
 ```
 
 https://mybot314.ru/tekegram_catalog/

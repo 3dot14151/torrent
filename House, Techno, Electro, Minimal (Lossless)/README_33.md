@@ -1,3 +1,90 @@
+###  Публикация: 1294511   (628489) от 08.04.2019
+
+VA - Project STS-31 - Spiralgalaxie (Hubble Telescope Series Vol. III) (2016) Solar One Music [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project STS-31 - Spiralgalaxie (03:06)
+02. The Exaltics - NGC 253 (05:20)
+03. Heinrich Mueller - Adaptive Optics (04:49)
+04. Robert Heise - Stars, Gases And Dust (03:30)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831E8D195F4397B28F20E075F90E9F6C88F65581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035390   (628175) от 16.07.2016
+
+VA - Solomun Pres: Selected Remixes (2009-2015) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Broken Bells - Holding On For Life (Solomun remix)
+02 Noir & Haze - Around (Solomun Vox mix)
+03 Ron Carroll & Superfunk - Lucky Star (Solomun remix)
+04 Tiefschwarz - Corporate Butcher (feat Mama - Solomun remix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B492085B2AA10982472F738E9EEA2E51253B4945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144364   (627760) от 22.06.2017
+
+Irazu & Regis - Shtamm (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Refused To Be Found (06:07)
+2. Shtamm (07:15)
+3. Last Hours (02:01)
+4. Shtamm (Regis remix) (06:57)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D089A0BA4EDD75C9C7F67D196D9D0E5DC038EF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144369   (627754) от 22.06.2017
 
 Ronny Vergara - Remixes Compilation Vol.02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -657,93 +744,6 @@ Pitch Black - Filtered Senses (2016) [FLAC|Lossless|tracks + .cue] <Techno, Dub,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DEDC55F6EF70C9E10503BF39A6E44B4C9EA34A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296312   (613366) от 16.04.2019
-
-Gesaffelstein - Hyperion (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hyperion (02:53)
- 02. Reset (03:25)
- 03. Lost in the Fire (ft. The Weeknd) (03:22)
- 04. Ever Now (01:38)(   Читать дальше...   )Жанр: Techno, DowntempoПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225AA283A0E36AD8A56663CD1D2B9658E48FE3BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037514   (613349) от 24.07.2016
-
-DJ Antoine - Provocateur (Limited Edition) 2CD (2016)[FLAC|Lossless|tracks] <House, Progressive House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Antoine feat. Jay Sean - Weekend Love (DJ Antoine vs Mad Mark 2k16 Album Version)
-02. DJ Antoine & Dimaro - Best Trick (Dimaro Radio Edit)
-03. DJ Antoine vs Mad Mark feat. Jordin Sparks - Too Late For Love (Album Version)
-04. DJ Antoine feat. Conor Maynard - Dancing In The Headlights (Radio Edit)(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 02:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3A127FF1F6704ADB9173FD50EE032499C87176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037522   (612136) от 25.07.2016
-
-Dinka - Hotel Summerville (2010) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scarlet (Original Mix) (7:37)
-02. Green Leaf (Extended Vocal Mix) (6:50)
-03. Elements (6:34)
-04. Some People Will Never Learn (7:40)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB16269E3628A297751807A99AEEA9F778B6EBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

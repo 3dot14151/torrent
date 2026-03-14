@@ -1,3 +1,29 @@
+###  Публикация: 950418   (369721) от 26.10.2015
+
+Проекты - Love's in autumn [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект After Effects на осеннюю тематикуФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F148F32CA7F6A0F2B73C606901DB5F0EECA1DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327770   (369599) от 27.09.2019
 
 VideoHive - Slideshow Opener Transitions - 17691153 [AEP]
@@ -665,33 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0607C42F70859A88DAE01B8C2E6AA633BC6DBA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950915   (367286) от 27.10.2015
-
-Проекты - VideoHive - Cartoon Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A49CA98D26F729382AC953787EBECC332775C0FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

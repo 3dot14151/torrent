@@ -1,3 +1,32 @@
+###  Публикация: 1543449   (242491) от 11.04.2022
+
+VA - Fest Rebel Rock Radio, Vol.02 (2022) [MP3|320 Kbps] <Rock, Alternative, Indie>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпическая мощь и красота - основные характеристики альбома и всего творчества групп представленных на его треках. Дух новаторства в музыке, когда даже в рамках давно использованного вдоль и поперек стиля, музыкантам удается найти свой путь. Их композиторское богатство основывается на фэнтезийной лирике, что привносит в музыку и стилистику песен определенное настроение (   Читать дальше...   )001. El Pistolero - Fear The Reaper
+002. Naked Giants - Better Not Waste My Time
+003. Holy Ship - Schrödingers Cat
+004. Royal Blood - Boilermaker(   Читать дальше...   )Жанр: Rock, Alternative, IndieПродолжительность: 08:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409FD184B8EA64C48A5616D7517F55BCC8E3BEBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624019   (242220) от 05.04.2023
 
 VA - Flower Power - Children of Flowers Best Of (2023) [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2A893801B9B9C3507623D316A537B05B25254FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342449   (222615) от 03.12.2019
-
-VA - Rock The Stage (2019) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222615.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Foo Fighters - Win Or Lose
-002. The Chris Robinson Brotherhood - Some Earthly Delights
-003. Quitting Whitney - Coming Over
-004. Waterparks - High Definition(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E981BD03813F2BD252CF84ED6C6EF17E7DF93D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

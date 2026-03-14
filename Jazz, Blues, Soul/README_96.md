@@ -1,3 +1,61 @@
+###  Публикация: 1000640   (857571) от 26.03.2016
+
+Duke Ellington - Vocal (1927-1947) 2СD, 2007, Camelot[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857571.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.I Got It Bad (And That Ain't Good) [03:20]
+02.Solitude [03:05]
+03.Mood Indigo [02:48](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6232AA6B2AF852969134B51FDBC6D6D552545B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000817   (857570) от 26.03.2016
+
+Spike Drivers - Sunset Motel (2014) [FLAC|Lossless|tracks] <Blues rock, Country, Roots Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best Of Me    04:36
+02. Victoria    03:48
+03. West Virginia    04:57
+04. My Condition    03:33(   Читать дальше...   )Жанр: Blues rock, Country, Roots RockПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA41CFA1F8F3D81D48C5DA781869BA426C3E1E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109658   (857492) от 28.02.2017
 
 The Francis Wong Quartet - Pilgrimage (1997) Music & Arts[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -683,64 +741,6 @@ VA - New Jazz Divas (2016) [MP3|320 кб/с] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD5E61E396645C85EB9631CA85163E32142B765E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109946   (855563) от 01.03.2017
-
-Southern Avenue - Southern Avenue (2017) [MP3|320 Kbps] <Memphis Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Give Up (04:43)
-02. What Did I Do (03:54)
-03. It's Gonna Be Alright (03:16)
-04. Slipped Tripped and Fell In Love (03:26)(   Читать дальше...   )Жанр: Memphis BluesПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB8134DB72A1D9E817C7DD32381044D862B8F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377145   (855209) от 20.04.2020
-
-Harry Allen & Trio da Paz - Harry Allen Meets Trio da Paz (2007) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S'wonderful [4:49]
-02. I'm Always Chasing Rainbows [4:12]
-03. Taking a Chance on Love [3:58]
-04. The Nearness of You [5:26](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38574F86551343D144EB71AEF14592146A27D9FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

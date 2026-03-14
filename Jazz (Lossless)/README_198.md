@@ -1,3 +1,90 @@
+###  Публикация: 1067888   (385053) от 30.10.2016
+
+Nat King Cole - This Is Nat King Cole (1951-1966) 2CD, 1995, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385053.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.When I Fall In Love [03:12]
+02.On The Street Where You Live [03:12]
+03.Ramblin' Rose [02:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2363F7758FEC69158720D29F04BA0B5AFC4E6151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301958   (384974) от 20.09.2019
+
+Al Jarreau - 3 CD (1978-1986) [WavPack|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinkin' About It Too  3:18
+02. I'm Home  5:18
+03. Brite 'N' Bunny Babe  3:28
+04. I Do  4:22(   Читать дальше...   )Производство: ГерманияЖанр: Jazz VocalПродолжительность: 02:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37ACCCA151155193FCA063E2D62D75E9936C50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067838   (384772) от 30.10.2016
+
+Tommy Flanagan - Sea Changes (1997) Evidence Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sea Changes [06:32]
+ 02.Verdandi [04:26]
+ 03.Dalarna [05:01]
+ 04.Eclypso [07:08](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF5EFD025F29E07DED9DD34F354CD520E0AA929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 667331   (384730) от 08.10.2020
 
 VA - Jazz In Paris (2000 - 2001) 76 CD /Universal Music Paris/ [APE|FLAC|Lossless]<Jazz, Vocal Jazz, Swing, Gypsy>
@@ -656,93 +743,6 @@ Billy Higgins - Billy's Smile (2002) Red Records [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE146DA6CFFFB0962BFCF6B12EA3C51EC89D58C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326840   (381150) от 22.09.2019
-
-Lee Morgan - 3 Essential Albums (1957, 1963, 1966) 3CD, 2018, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381150.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Sidewinder:
-01. The Sidewinder [10:25]
-02. Totem Pole [10:15]
-03. Gary's Notebook [6:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC451939BB7F9D06EE4F6BFA43496D0AF625C077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068346   (381005) от 01.11.2016
-
-Lars Gullin - Swings (1956) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jeepers Creepers [04:59]
- 02.Like Someone In Love [05:36]
- 03.Half Nelson [05:42]
- 04.Ma [05:53](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F913FFBC4ABA8B47173FAB2B1CBC9AED20A28EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068653   (380883) от 01.11.2016
-
-Austin Cromer - Sings for Her (1964) Remaster, 2014, Warner[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.As Long as She Needs Me [02:42]
- 02.This Love of Mine [05:18]
- 03.A Tree in the Meadow [02:56]
- 04.Laura [04:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E63E188BA87AE77DD34DEC3BAE626C4D926AF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

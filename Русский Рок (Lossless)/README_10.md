@@ -1,3 +1,119 @@
+###  Публикация: 861731   (932846) от 21.01.2015
+
+Пикник - Чужестранец (2014) [FLAC|Image + cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кем бы ты ни был (3:57)
+	02. Чужестранец (3:52)
+	03. Потерянный (3:54)
+	04. Азбука Морзе (4:17)(   Читать дальше...   )Производство: Вектор / VEK-CD-31Жанр: Progressive RockПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD12E467D3FE63BB5DFED306984420D6836C687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365351   (930556) от 07.03.2020
+
+НОМ - Весёлая карусель (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930556.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ну, погоди!
+2. Антошка
+3. В лесу родилась ёлочка
+4. Сорняки(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22682F5C08E8948FB0527DAEBD1F81D57CCB78F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365574   (929023) от 08.03.2020
+
+Sergey Golovin - Sense Of Reality (2012) [FLAC|Lossless|Web-DL|tracks] <Instrumental Rock, Progressive Metal, Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frosterica (5:09)
+02. Sense Of Reality (4:53)
+03. Three Days Ago (3:53)
+04. Hammer Of Justice (4:19)(   Читать дальше...   )Жанр: Instrumental Rock, Progressive Metal, DjentПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9084E1806CD9511B0203E5706E21B9577EAB935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365635   (928898) от 08.03.2020
+
+Александр Градский - Любимая (2003) [FLAC|Lossless|tracks + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я Гойя
+02. Песня о друге
+03. В твоих глазах
+04. Ничто в полюшке(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13ED8E38AE84B2E17B54107B16B0133F961650E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366002   (927430) от 09.03.2020
 
 Asmund - До неба поминальный рог (2020) EP [FLAC|Lossless|tracks + .cue] <Black Metal>
@@ -633,128 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF93AD9D8F040AF30674999AE03A9CD34A620E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181970   (904730) от 10.03.2010
-
-Океан Ельзи - Dolce Vita (2010) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Онлайн (3:52)
-02. Небо над Дніпром (4:17)
-03. Надя (3:56)
-04. Я так хочу... (4:42)
-05. На лінії вогню (3:01)
-06. Більше для нас (3:30)
-07. Ордени (3:49)
-08. З тобою (3:05)
-09. Ще один день (4:13)
-10. Королева (4:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369283   (903809) от 23.03.2020
-
-Frostnatt - Den Russiske Tomheten (2020) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal, Instrumental, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overvintre (5:34)
-02. Innesnødd (3:39)
-03. Den Russiske Tomheten (2:57)
-04. Fjern og tom (4:12)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Instrumental, Post-Black MetalПродолжительность: 00:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDD42EA7C8D9CDBE16175D4A9D086AAC4631F72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637191   (900399) от 31.03.2013
-
-Аркона - 10 лет во Славу (2013) 3CD, Live [FLAC|Lossless]<Pagan/Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Коляда
-02. Масленица
-03. По сырой земле
-04. Стенка на стенку(   Читать дальше...   )Жанр: Pagan / Folk Metal |Продолжительность: 00:54:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992940   (898809) от 03.03.2016
-
-Ноль - Лучшие песни (1998) Unofficial Release, Compilation [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Иду,курю" 03:38
- 02. "Это русский Rock-n-Roll" 05:28
- 03. "Человек и кошка" 03:57
- 04. "Песня о настоящем индейце" 04:32(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574C7B645D1977284ABD386CA36B08BD0FA47AB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,91 @@
+###  Публикация: 755553   (928287) от 10.02.2014
+
+VA - The Official UK Top 40 Singles Chart (09-02-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. Обращаю Ваше внимание, что композиция 02. Pharrell Williams - Happy уже 12 недель в чате! Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Clean Bandit Feat Jess Glynne - Rather Be (03:48)
+02. Pharrell Williams - Happy (03:54)
+03. DJ Fresh Vs Jay Fay Feat Ms Dynamite - Dibby Dibby Sound (03:16)
+04. Will.i.am Feat Miley Cyrus, French Montana & Wiz Khalifa - Feelin' Myself (Explicit Edit) (04:14)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, Other |Продолжительность: 02:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1FA7EBA0E2664F174D6464D82BCF3204BB4245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987116   (927989) от 16.02.2016
+
+VA - Tempting Lounge: Sensual Lounge Music Selection (2016) [MP3|320 kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luigi Seviroli - Aeoliah - Full Mix
+02. Francesco Demegni - Seduction
+03. Antonio Vernuccio - Flying Over the Sea
+04. Giacomo Bondi - Your Style - Full Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5703E0CBFE6FDAFD1982C4B9DEA51692A81D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987247   (927981) от 16.02.2016
+
+VA - Vintage Sounset Lounge (2016) [MP3|320 kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Source - Framed Profile - Curt Clever Version
+02. Chad - Making Love - Brief Mix
+03. Derail - Freedom - Deep Little
+04. Bee Side - Can Be - Tiny Original(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E04D4054E08F0B83BE0A4A7E5630C71F78D301E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987019   (927978) от 16.02.2016
 
 VA - Cocktail Chillhouse Collection (2016) [MP3|320 kbps] <Chill House, Lounge, ChillOut>
@@ -658,93 +746,6 @@ VA - ЕвроХит Топ 40 Europa Plus 06.03.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C6DC9CD0DA14A23F77AB5A0B59FF4303D76816E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095046   (927216) от 19.01.2017
-
-VA - Мой любимый Русский Рок. Коллекция (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927216.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мамульки Bend - Русский Рок
-002. Ария + Гости - Воля и разум
-003. Город 312 - Небо в алмазах
-004. Каскад - Иней на стекле(   Читать дальше...   )Жанр: RockПродолжительность: 11:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0298E7578CFAF0B8727F87FF713F4C82E4459A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365783   (927014) от 09.03.2020
-
-VA - Blues Rock Drive 8  (2020) от DON Music [MP3|320 Kbps] <Rock, Blues Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Derek Fresquez & Cuttin The Chord - She's a Dream
-02. Steinar Ytrehus - MC Brady
-03. Charlie Vitamine - Chicago Blues
-04. Georgia Randall - Put It Down(   Читать дальше...   )Жанр: Rock, Blues Rock, BluesПродолжительность: 05:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE07926F4795BA86F51B0A72150275E76456761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489215   (926533) от 15.08.2021
-
-VA - Club&Dance Летние Треки Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 23.45 & 5sta Family - Я буду (Sasha First & Eugene Star Radio Edit) (2:55)
-02. Alvaro Soler feat. Cali Y El Dandee - Manana (Amice Remix) (4:22)
-03. Artik & Asti - Фурия (Vincent & Diaz Radio Mix) (3:51)
-04. Cassette - My Way (Ramirez & Yudzhin Remix) (4:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB246AFC9C725EB35810A3ECF5B520192AF1C426
 ```
 
 https://mybot314.ru/tekegram_catalog/

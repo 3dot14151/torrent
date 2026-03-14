@@ -1,3 +1,90 @@
+###  Публикация: 1237360   (552341) от 23.07.2018
+
+Bad Wolves - Disobey (2018) Eleven Seven Music [FLAC|Lossless|tracks + .cue] <Alternative Rock, Groove Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Officer Down (3:29)
+ 02. Learn To Live (3:40)
+ 03. No Masters (3:53)
+ 04. Zombie (4:15)(   Читать дальше...   )Жанр: Alternative Rock, Groove Metal, MetalcoreПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFF8DD3FE102CFFB46ABD26FF410E84B5DE3E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046393   (551790) от 27.08.2016
+
+Bad Omens - Bad Omens (2016) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Houses (04:00)
+02. Exit Wounds (03:26)
+03. The Worst In Me (03:49)
+04. Feral (04:05)(   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, RockПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9AFAF3A4FAC21142E12FE413D838E3E4AC8844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309429   (551218) от 19.06.2019
+
+Rustin Man - Drift Code (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551218.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vanishing Heart (04:40)
+2. Judgement Train (05:10)
+3. Brings Me Joy (03:17)
+4. Our Tomorrows (04:46)(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02326B69077EF080F1A25DF2BDE4CE322C314112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309595   (550538) от 20.06.2019
 
 Bill Callahan - Shepherd in a Sheepskin Vest (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie Rock>
@@ -655,93 +742,6 @@ Night Moves - Can You Really Find Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6DA52F33EE95C9A046D6A09A800417B964C4AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154098   (542779) от 29.07.2017
-
-Manafest - Stones (2017) [FLAC|Lossless|tracks] <Alternative Rock, Rap Rock, Christian>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stones
-02. House Of Cards
-03. Firestarter
-04. When The Truth Comes Out(   Читать дальше...   )Жанр: Alternative Rock, Rap Rock, ChristianПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D32C50101B4D529359E1C88FCFB9FE4AC86FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556957   (542585) от 14.06.2022
-
-Underoath (UnderØath) - 9 Albums (The Best of Oll) (2002-2022) [FLAC|Lossless|tracks + .cue|tracks] <Alternative Rock, Post-Hardcore, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damn Excuses [00:02:37]
-02. Hallelujah [00:03:01]
-03. I’m Pretty Sure I’m Out of Luck and Have No Friends [00:03:45]
-04. Cycle (feat. Ghostemane) [00:04:13](   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Christian RockПродолжительность: 9 CD, 06:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1363C4FFA1365419BBE62597B2DDF5B656D2A66F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311393   (541983) от 29.06.2019
-
-Mega Bog - Dolphine (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For the Old World (03:57)
-02. I Hear You Listening (To the Bug on My Wall) (03:41)
-03. Diary of a Rose (04:39)
-04. Dolphine (03:14)(   Читать дальше...   )Жанр: Indie, RockПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF4486CA3CCDEF476DA49527FA82979A20D5A7E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

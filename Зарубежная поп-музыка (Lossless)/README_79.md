@@ -1,3 +1,148 @@
+###  Публикация: 1422057   (177507) от 05.12.2020
+
+Екатерина Бужинская - 4 Альбома (1998 - 2012) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Як у нас на Україні
+02. Духмяна ніч
+03. Суха тополя ( дует с Олегом Шаком )
+04. Червона ружа(   Читать дальше...   )Жанр: PopПродолжительность: 04:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C91683BF97A95EA406F5022928817E912154FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667206   (177487) от 07.10.2023
+
+Olivia Newton-John - Just The Two Of Us: The Duets Collection (Vol. 2) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dare To Dream [00:04:58]
+02. Everybody's Someone [00:03:46]
+03. Rest Your Love On Me [00:05:00]
+04. Wishin' And Hopin' [00:03:05](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEE9D84E62673C84E814A9706F95A511F8A0AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595279   (176123) от 04.12.2022
+
+VA - Ultimate Party Classics Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Unholy (2:36)
+02. OneRepublic - I Ain't Worried (2:28)
+03. The Weeknd - Blinding Lights (3:21)
+04. Post Malone - I Like You (A Happier Song) (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 03:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C047BEF4B7F008F7B9D2C58B785AE04446EF78C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429425   (175934) от 07.12.2020
+
+VA - Chilled Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_175934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devon Seyward - Flume (3:01)
+02. Thom Cooper - The Only Living Boy in New York (4:01)
+03. Joanie Loves Chachi - No Surprises (3:06)
+04. OJ Austen - Good Riddance (Time of Your Life) (2:01)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F699160A838D2B2CA477A47C484894F0008B465B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595395   (175469) от 05.12.2022
+
+VA - If You Love Her - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forest Blakk - If You Love Her (Acoustic) (3:41)
+02. Cody Simpson - La Da Dee (Acoustic Version) (3:34)
+03. Ed Sheeran - Where We Land (3:03)
+04. James Blunt - Unstoppable (Acoustic) (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 02:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D31DE28F3F28EF1BBB14EFC8BFFA32A402CB1A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668202   (174707) от 11.10.2023
 
 Оксана Вояж - Нежности океан (2001) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -600,151 +745,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1F65C49E98B70632EE606466CEDD811BBDD96B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672785   (168066) от 29.10.2023
-
-Bucks Fizz - The Land of Make Believe: B Sides and Rarities (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Europop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Can't Stand the Heat (Early Mix) [00:03:25]
-02. You Love, Love [00:03:37]
-03. Evil Man [00:03:52]
-04. Censored [00:04:58](   Читать дальше...   )Жанр: Disco, Europop, Pop Rock, Synth-popПродолжительность: 02:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E159393C6C7E78E9B61C347072A8607F3BF00F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516034   (167851) от 09.12.2021
-
-Malcolm McLaren And The Bootzilla Orchestra - Waltz Darling (1989) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167851.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. House Of The Blue Danube
-2. Something's Jumpin' In Your Shirt
-3. Waltz Darling
-4. Shall We Dance(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2226985829D1E3BFD47AB5B6368FD4A6E2951CF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431332   (167708) от 13.12.2020
-
-Taylor Swift - evermore (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. willow
-02. champagne problems
-03. gold rush
-04. ‘tis the damn season(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B97C8E67C7092785F0698E4ECB70D2782205D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516109   (167585) от 09.12.2021
-
-VA - Best Hits of 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John - Cold Heart (PNAU Remix) (3:22)
-02. Olivia Rodrigo - good 4 u (2:58)
-03. OneRepublic - Run (2:49)
-04. Justin Bieber - Peaches (3:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5586F49D3942E46AC48D890680D55409BE275DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516442   (166012) от 11.12.2021
-
-Mylene Farmer - Monkey Me (2012) 2xCD, Reissue, 2021, Stuffed Monkey [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166012.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Elle a Dit
-02. A L'Ombre
-03. Monkey Me(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31C80EF385C25C78CCB7F202056527960609939
 ```
 
 https://mybot314.ru/tekegram_catalog/

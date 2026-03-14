@@ -1,3 +1,61 @@
+###  Публикация: 1134156   (691651) от 14.05.2017
+
+Sid Rumpo - First Offense (1974) Remastered, 1993, Mushroom [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691651.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Spotlight
+2. Breakin' My Back
+3. Spider Curry
+4. Sailing(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2845D8DC00A5EC3286A8CC0763733616F4465911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133903   (691477) от 14.05.2017
+
+The Winter Tree (Magus) - Mr. Sun (2017) [MP3|320 Kbps] <Neo Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Sun 04:50
+02. Distant Star 05:37
+03. Bobby 06:38
+04. Shine 04:22(   Читать дальше...   )Жанр: Neo Progressive Rock, Art RockПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882E9DA9055D9256F97338F805FBE9565A114E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221867   (691264) от 26.04.2018
 
 Foreigner - With the 21st Century Symphony Orchestra & Chorus (2018) Live [MP3|320 Kbps] <Rock, AOR>
@@ -693,64 +751,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B9E3C8198FCE45DAF7A69EE1F076BD9467ADF96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029847   (678456) от 28.06.2016
-
-Aura - Observations (2016) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Day Of My Life
-02. Pirates Of Caribbean
-03. Observations
-04. Ticking Bomb(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D598694A4949F6AB0BA0A04928BEF4A40D29E6C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536199   (678388) от 10.03.2022
-
-Bryan Adams - So Happy It Hurts (2022) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Happy It Hurts
-02. Never Gonna Rain
-03. You Lift Me Up
-04. I've Been Looking For You(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EDC4231D12336703823C5526EAA3871365D060
 ```
 
 https://mybot314.ru/tekegram_catalog/

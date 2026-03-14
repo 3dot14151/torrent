@@ -1,3 +1,61 @@
+###  Публикация: 1249354   (435870) от 23.09.2018
+
+Black Light Orchestra - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Downtempo, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morricone (8:17)
+02. Theme For Black Light (5:38)
+03. Fifty Eight (1:00)
+04. Tribute to Barry (5:37)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Downtempo, DiscoПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315F718C954CEEADAFE889CBA35E3D24EEF6CA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249255   (435849) от 23.09.2018
+
+VA - Schlager Für Alle 3 (2018) 3CD [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435849.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Eloy de Jong - Egal was andere sagen
+02. Ella Endlich - Schwimmen und Fliegen
+03. Michael Wendler - Feuermelder(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D45C08CC811844826E2E317870B80C85CFEFE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165254   (435030) от 12.09.2017
 
 Actarus - Atlas Ufo Robot (1978) Reissue CD, Warner Strategic Marketing Italy, 2005 [MP3|320 Kbps] <Electronic, Disco, Europop>
@@ -684,64 +742,6 @@ The Cars - Heartbeat City (1984) [OGG Vorbis|485 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68689E77A023156F4D771A8FE330414BD6FA0B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250876   (422650) от 29.09.2018
-
-Technique - Michael Angelo (1983) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can We Try Again (3:47)
-02. Movie Star (5:36)
-03. Time Is Of The Essence (3:42)
-04. Now And Then (3:33)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ACBBE3E24355FA29184B1769955B83A19572242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947062   (422486) от 15.10.2015
-
-Demi Lovato - Confident (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confident
- 02. Cool for the Summer
- 03. Old Ways
- 04. For You(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C4C112500B8414CF378A36CC81E91AE37BE909
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,34 @@
+###  Публикация: 487361   (129064) от 26.04.2012
+
+VA - DFM - Dynamics from AGR (18.04.2012) (2012) [MP3|320 кб/с]<Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rae - Another Day (James Talk  Ridney Remix)
+02. J Nitti - Deep Down Feat. Shirley Davis (Luigi Rocca Remix)
+03. Tim Royko  Cosmo Klein - Everlasting Now (DBN Remix)
+04. Ron Carroll  Tony Romera feat. Paschan - So High (Silver Sneakerz Remix)
+05. Whiteside Feat. Heather Wilson - Can't Let Go (Slin Project Сlub Mix)
+06. Easy L. - New Day2012Жанр: Progressive HouseПродолжительность: 01:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943BA2AFC240F26900FB795142750C1DAB40968B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683385   (128391) от 11.12.2023
 
 Jabarov - Compilation (2023) [MP3|320 Kbps] <Electronic>
@@ -716,35 +747,6 @@ VA - Electronic compilation part 43 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73C17AF94752C1FAB4480F7F42241A6581D3DCFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693282   (121882) от 20.01.2024
-
-VA - Aquarelle Chilled (2024) [MP3|320 Kbps] <Chillout, Relax, Downtembo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121882.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jose Luis Encinas - Summer Tangos [03:40]
-002. Zjay - Blue Vibes [05:07]
-003. Aleyum - The Subtleties Of Life [04:14]
-004. Scandroid Experiment's - Zero Mood [03:36](   Читать дальше...   )Жанр: Chillout, Relax, Downtembo, AmbientПродолжительность: 08:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5D9F04F20D1F2EBD23A697052F11C09880F51F
 ```
 
 https://mybot314.ru/tekegram_catalog/

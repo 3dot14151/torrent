@@ -1,3 +1,148 @@
+###  Публикация: 1803510   (65825) от 24.06.2025
+
+Yungblud - Idols (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. YUNGBLUD - Hello Heaven, Hello (9:06)
+02. YUNGBLUD - Idols Pt. I (3:35)
+03. YUNGBLUD - Lovesick Lullaby (2:55)
+04. YUNGBLUD - Zombie (4:07)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90938923AA0284C8043EA6692473ABD820614456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803689   (65824) от 24.06.2025
+
+Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Miracle [00:05:38]
+02. Stormy [00:04:26]
+03. Chandelier [00:04:58]
+04. Don't Fool Me [00:04:39](   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562177693562F70CA2D90ED7006D3AC8ABA83D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803622   (65814) от 24.06.2025
+
+Soulfly - Savages (2013)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Groove, Thrash, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65814.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bloodshed
+A2 Cannibal Holocaust
+A3 Fallen
+B1 Ayatollah Of Rock ‘N’ Rolla(   Читать дальше...   )Жанр: Groove, Thrash, Death MetalПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B089E19E407AC3C4D84B16E0B1D285AAEFE379D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803620   (65813) от 24.06.2025
+
+Veil Of Conspiracy (ex-Astral Domine) - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal with Doom influences>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Veil Of Conspiracy - итальянская метал-группа из Рима, основана в 2011 году как Astral Domine и сменившая имя на Veil Of Conspiracy в 2016 году.2014 - Arcanum Gloriae (as Astral Domine)
+2019 - Me, Us And Them
+2021 - Echoes of Winter
+2025 - Shape of GriefЖанр: Progressive Metal with Doom influencesПродолжительность: 03:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B1D04C4450CF5E167EDCF642FEFDF4D38795B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803974   (65747) от 26.06.2025
+
+Sodom - The Arsonist (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Arsonist (1:03)
+02. Battle Of Harvest Moon (4:12)
+03. Trigger Discipline (3:52)
+04. The Spirits That I Called (2:58)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6F24C5FD1A4DA5E88D33EE29711C49C6FEE4B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803933   (65746) от 26.06.2025
 
 Manowar - The Triumph of Steel (1992) Released, 2011, Back On Black [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Power Metal>
@@ -597,151 +742,6 @@ Nathan East & Noah East - Father Son (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5902D4281AF648B88E094C28A9FD450722951190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804293   (65693) от 28.06.2025
-
-Sonic Mood - Sunny Guitars - Neo Jazz LoFi (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Breakfast (2:35)
-02.  Easy (2:54)
-03.  Flower (2:31)
-04.  Healing (2:48)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE3E068F1B084AC7ED409165584E387FE5D68B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804214   (65691) от 28.06.2025
-
-Adrian Quesada - Boleros Psicodelicos II (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin, Funk, Soul, Bolero, Psychedelic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ojos Secos [00:03:52]
-02. Bravo [00:03:28]
-03. No Juego [00:03:16]
-04. Cuatro Vidas [00:04:01](   Читать дальше...   )Жанр: Latin, Funk, Soul, Bolero, PsychedelicПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1B8FFC0F47CFE11A04E4C0AA03BFD154A64354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804282   (65685) от 28.06.2025
-
-Orianthi - Some Kind of Feeling (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Attention (3:48)
-02.  Some Kind of Feeling (4:44)
-03.  What I've Been Looking (5:15)
-04.  Sharp Dressed Man (2:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654929BAC7129FF19DB5FC110C8A3001945AFDFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804279   (65683) от 28.06.2025
-
-Mute Balloon - Out of the Red (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Always Be Enough (3:18)
-02.  A Little Bit (3:14)
-03.  Solar Man (3:22)
-05.  Brown Eyed Blues (3:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C93A83C85C70347575584DCAED859E89A359BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804289   (65682) от 28.06.2025
-
-Qbiq - Endless Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anno Domini 1600 (0:46)
-02.  The Light (4:14)
-03.  Whispers (4:26)
-04.  The Mask (3:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B110DCB90BD31F4A6CF85600B2F717C50447EB3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

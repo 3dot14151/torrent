@@ -1,3 +1,90 @@
+###  Публикация: 1179149   (351526) от 30.10.2017
+
+The Phil Woods Quintet - American Songbook (2002) 2006, Kind Of Blue [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Foggy Day [05:33]
+02. All The Things You Are [09:33]
+03. I've Got You Under My Skin [05:06]
+04. When The Sun Comes Out [05:21](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E541AE582CC48747976E878C41EF77687AB458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418111   (351491) от 23.10.2020
+
+Martial Solal & Johnny Griffin - In & Out (2000) Dreyfus Jazz [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Stepped Out of a Dream [7:13]
+02. Come With Me [6:10]
+03. In and Out [4:51]
+04. Hey Now [6:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69CFDBF195A4FFCBE34B861AFF0ACE36EA27BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418272   (351229) от 23.10.2020
+
+Melody Gardot - Sunset In The Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Love Me
+02. C’est Magnifique (ft. Antonio Zambujo)
+03. There Where He Lives In Me
+04. Love Song(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EC0B2081479A40A09095559DBB6B532F696557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 37377   (351037) от 03.11.2015
 
 (Jazz, Rock) Алексей Козлов и ансамбль АРСЕНАЛ - Избранное - 2001, APE (image + .cue)
@@ -663,93 +750,6 @@ Beegie Adair & Monica Ramey - Some Enchanted Christmas (2018) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B568BF2BB916B0231B3C574AEDB671257C66B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257219   (347613) от 25.10.2018
-
-Sandro Roy - Souvenir De Paris (2018) Skip Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Face the Music and Dance [5:09]
-02. Souvenir de Paris [3:07]
-03. Waltz for Nicky [6:16]
-04. September Second [5:53](   Читать дальше...   )Жанр: SwingПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21CF568678D144DC63E90853E8F0895A3F1739E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179390   (347114) от 01.11.2017
-
-VA - The Liberty of Jazz (1958, 1963) 2005, SoLyd Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You May Believe - Or Not [05:00]
-02. Madrigal #1 [06:11]
-03. Madrigal New York [05:49]
-04. You Will Say No [03:20](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D767497B7F5A0B9958F6514D4B32EC63597F5CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953399   (347098) от 05.11.2015
-
-Bril Brothers (Братья Бриль) - Immersion (2000) /Landy Star/[FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Before the Sunset [12:17]
- 02.Immersion I [09:31]
- 03.Immersion II [03:34]
- 04.Semblence - Intro -Time Remembered -Dance of the Seagulls [23:14](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D046F491B92EF7945DFE39326EF8F851A3657F71
 ```
 
 https://mybot314.ru/tekegram_catalog/

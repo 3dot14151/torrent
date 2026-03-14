@@ -1,3 +1,148 @@
+###  Публикация: 1796154   (67009) от 08.05.2025
+
+Haken - Liveforms: An Evening With Haken (Live in London 2024) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. The Last Lullaby (Live in London 2024) (02:11)
+ 02. Taurus (Live in London 2024) (04:44)
+ 03. Nightingale (Live in London 2024) (07:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB7AE066645F65515806C4CD4A342E622F57733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796100   (67008) от 08.05.2025
+
+Big Mike Hart - Modern Classic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Open Bar (4:19)
+02.  Passport (3:25)
+03.  Breeze (5:21)
+04.  Tidal Wave (3:29)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED9185358FB3C8C894A0192F8314622C0D4B058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796136   (67007) от 08.05.2025
+
+Lily of the Sea - Slow Violence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Fruit Tree (5:04)
+02.  Dear Trudence (3:03)
+03.  Slow Violence (2:41)
+04.  Hey Now (4:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D86E20589D663980C956380145EC709A42290F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796102   (67006) от 08.05.2025
+
+Christian Madden & The Enemy Chorus - Shinbone's Revenge (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twice As Thick (3:52)
+02.  The Skins (4:41)
+03.  Stoops Uprising (3:01)
+04.  Discorporate (3:54)(   Читать дальше...   )Жанр: FunkПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7A064651B981BF7F00DA370D2AB16E7B72EA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796131   (67005) от 08.05.2025
+
+Jonas Wall - Umbaji (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Oh Boy Roy (3:02)
+02.  Back Home (4:19)
+03.  Kings (5:57)
+04.  SunTan (4:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A312C3220481B47C79541D41E7364137E1C4F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796098   (67000) от 08.05.2025
 
 Aetherwind - The Bonding Element (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -600,149 +745,6 @@ Sleep Token - Even In Arcadia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4A76BBB87C01760D7A5E5C5DA3BC7132A48FB7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796747   (66886) от 13.05.2025
-
-Gong - I See You (2014) 10th Anniversary, Mix, 2025, Kscope Music [FLAC 24/48|Lossless|WEB-DL|tracks] <Psychedelic-rock, progressive-rock, space-rock, jazz-rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I See You (2024 Mix) (3:29)
-02. Occupy (2024 Mix) (2:53)
-03. When God Shakes Hands with The Devil (2024 Mix) (5:36)
-04. The Eternal Wheel Spins (2024 Mix) (7:09)(   Читать дальше...   )Жанр: Psychedelic-rock, progressive-rock, space-rock, jazz-rockПродолжительность: 01:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B5B138AC47F8D534022B8B56342FCAEA5A49C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797144   (66858) от 14.05.2025
-
-Believer - Dimensions (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Technical Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone
-02. Future Mind
-03. Dimentia
-04. What Is But Cannot Be(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF922E0F9CE2E6E78A19DED3B2BF38842C1C1DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797255   (66834) от 15.05.2025
-
-Blood Incantation - Timewave Zero (2022) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66834.jpg" />
-</div>
-
-
-###  Подробнее
-
-A. Io (20:55)
-B. Ea (19:37)Жанр: Death MetalПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569861649132B22C712BA97C771CBDFE30872D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797199   (66826) от 15.05.2025
-
-Novembre - Studio Albums (8 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Gothic/Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Novembre — итальянская метал-группа, образованная в Риме в 1990 году.1994 - Wish I Could Dream It Again
-1996 - Arte Novecento
-2000 - Classica
-2001 - Novembrine WaltzЖанр: Progressive Gothic/Doom/Death MetalПродолжительность: 09:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DAD989B45B7FDA08C4C8623FB5255A31B3681A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797395   (66803) от 16.05.2025
-
-Bury Tomorrow - Will You Haunt Me, With That Same Patience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Dream, To Forget (3:34)
-02. Villain Arc (3:39)
-03. Wasteland (3:21)
-04. What If I Burn (3:52)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310900EBA330E9AF969375A859C5A816EB077042
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1415112   (378724) от 11.10.2020
+
+Workout Music Tv - 40 Best Pop Hits For Step 2020 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indestructible - Workout Remix 132 Bpm (4:26)
+02. Watermelon Sugar - Workout Remix 132 Bpm (5:08)
+03. Stuck With U - Workout Remix 132 Bpm (4:25)
+04. X - Workout Remix 132 Bpm (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 03:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379AA3A13ED1D8C11C4136296A3CC883CE247C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415051   (378710) от 11.10.2020
+
+VA - Gym Music 2020 - Best fitness songs [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Snake, Justin Bieber - Let Me Love You (3:25)
+02. Vigiland, Tham Sway - Shots & Squats (2:51)
+03. LittGloss - L.A. Traffic (2:55)
+04. Artmus, Ericka Jane, K-phax - Soft Iced (2:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B952A91361BFACEE0C76DC139F9039121C07F54B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068896   (378306) от 02.11.2016
 
 Frida Gold - Alina (2016) [MP3|320 Kbps] <Pop, Electropop>
@@ -705,70 +763,6 @@ Chris Norman - Rediscovered Love Songs (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29145F65E2BE9ED9B20A49B10B23200E199B8ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575180   (368276) от 15.11.2012
-
-Eros Ramazzotti - Somos (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahora Somos
- 02. Un Angel Como El Sol Tu Eres
- 03. Este Tiempo Tan Nuestro
- 04. Yo Soy Tu
- 05. Hasta El Extasis
- 06. Abrazame
- 07. Baila Solo Con Tu Music
- 08. Amigo Mio
- 09. Dos Minutos
- 10. Bajo El Mismo Cielo(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5316ADC8FDB01C067A0B5638799C131F2BA8423B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576364   (366513) от 14.09.2022
-
-Ace Of Base - Hidden Gems (2015) [OGG Vorbis|484 Kbps] <Electronic, Pop, 	Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Would You Believe                   	2:50
-02. Go Go Go                                 	3:29
-03. Into The Night Of Blue          	4:13
-04. Don’t Stop                               	2:49(   Читать дальше...   )Жанр: Electronic, Pop, 	EurodanceПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55758E09996C0DF3196671BAF56893C49539DB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 467022   (81834) от 13.03.2012
+
+Лоракс / The Lorax - Original Songs From The Motion Picture (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ester Dean - Let It Grow (Celebrate The World)-03:39
+ 02. Fletcher Sheridan - Thneedville-02:44
+ 03. Ed Helms - This Is The Place (Tricky Version)-02:24
+ 04. Ed Helms - Everybody Needs A Thneed-01:31
+ 05. Ed Helms - How Bad Can I Be-02:52
+ 06. Fletcher Sheridan - Let It Grow-03:17
+ 07. Jenny Slate - Let It Grow Gospel Ending (Original Demo)-00:53
+ 08. Fletcher Sheridan - Thneedville (Original Demo)-03:58
+ 09. Ed Helms - The Once-ler's Traveling Madness-01:35
+ 10. Randy Crenshaw - I Love Nature-02:43(   Читать дальше...   )2012Жанр: SoundtrackПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D9A40BF73F8EDCF71BA5E7966ED59CAE811EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 464920   (81362) от 11.03.2012
 
 Irish Ёрш - Я Ирландец! (2011) [MP3|320 кб/с]<Celtic, Irish Folk>
@@ -751,35 +786,6 @@ Dwight Yoakam - This Time (1993) CD, Album, Club Edition [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DECBF747F6C2156F5F7F752AB94297E516ABE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792094   (67767) от 17.04.2025
-
-VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Atwater Collective - White Rabbit (2:51)
-02.  Josh Arnold - Buried Love (3:20)
-03.  The Lost Gecko - Brothers (4:54)
-04.  Marc Miner - Sweet Revenge (6:13)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13038A18CA1B5AB2ECD73C996B705B284181B4AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

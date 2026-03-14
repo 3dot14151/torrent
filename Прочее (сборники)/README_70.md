@@ -1,3 +1,32 @@
+###  Публикация: 1223492   (673465) от 05.05.2018
+
+VA - The Official UK Top 40 Singles Chart 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris, Dua Lipa - One Kiss
+02. Ariana Grande - No Tears Left to Cry
+03. Drake, Big Freedia, 5thward Weebie - Nice For What
+04. Lil Dicky - Freaky Friday (feat. Chris Brown)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 02:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6A46B0BCD95D4EC3955EEF8038672C1D88A911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223347   (673410) от 05.05.2018
 
 VA - Cocktail new music №33 (2018) [MP3|320 Kbps] <Dance, Club, R&B>
@@ -759,35 +788,6 @@ VA - Eurodance Syndicate (2018) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A35EA064F43766B97A502D62694CE251C6FA240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223920   (669625) от 07.05.2018
-
-VA - Welcome To Remini Radio Romantic (2018) [MP3|320 Kbps] <Italo Disco, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669625.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Italove ft. Ken Laszlo - Disco Queen
-002. Italove - Too Late to Cry (Matt Pop Club)
-003. Mimosa - In Love (Short Sunshine Mix)
-004. Annalisa - Il Mondo Prima Di Te(   Читать дальше...   )Жанр: Italo Disco, EurodanceПродолжительность: 11:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E5E7B3AF102B4B5A3997790D399000D390E046
 ```
 
 https://mybot314.ru/tekegram_catalog/

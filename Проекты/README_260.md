@@ -1,3 +1,30 @@
+###  Публикация: 949524   (374525) от 24.10.2015
+
+Проекты - VideoHive - Metal Builder Logo - 10075204 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1721DF249D5F524127EC171230D0034D6B1DB213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949909   (374365) от 24.10.2015
 
 Проекты - VideoHive - Be Creative - Fast Dynamic Opener - 11550161 [AEP]
@@ -649,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F35E8E8C618B2689B9EF9F8EF1A053AE41B51D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949981   (372078) от 25.10.2015
-
-Проекты - VideoHive - Viral Video Lower Thirds Template [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект с универсальным дизайном который может быть использован от широковещательных пакетов, корпоративного видео, YouTube видео роликов, титры и многое другое.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1561EDC5116FC92F7C2F7477CB5DD5521D5C4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

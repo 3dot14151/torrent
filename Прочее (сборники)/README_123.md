@@ -1,3 +1,32 @@
+###  Публикация: 1415609   (371750) от 14.10.2020
+
+VA - Zumba 2020: Rumba Fitness [MP3|320 Kbps] <Latin, Bachata, Rumba>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371750.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - J Tian HD - Carrapicho (2:40)
+002 - Lele Pons, Guaynaa - Se Te Nota (with Guaynaa) (2:35)
+003 - Bad Bunny - Yo Perreo Sola (2:52)
+004 - Jeison el Brother - Baila Mi Cumbia (3:28)(   Читать дальше...   )Жанр: Latin, Bachata, RumbaПродолжительность: 22:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD5F5B455B5783F781A2D0554C296747AC286A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176208   (371628) от 21.10.2017
 
 VA - По волне моей памяти: Том 2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
@@ -728,35 +757,6 @@ VA - Лучшие кавер-версии (часть 3) (2016) [MP3|160-320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0C8DFCE89F4D1B60E2063F7EF8FB93CECFADDF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950549   (367551) от 27.10.2015
-
-VA - Всё сразу 200 хитов Выпуск 10 (from Valik) (2015) [MP3|112-320 кб/с]<Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Время и Стекло - Песня 404
-002. Eli and Fur - You're So High (Original Mix)
-003. Гости из будущего и Константин Легостаев - Ждать и петь
-004. Inna - Fool Me(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B725928BA38FBD846B9BA6BC824231F0DEB5B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

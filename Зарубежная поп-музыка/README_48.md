@@ -1,3 +1,61 @@
+###  Публикация: 1159414   (484162) от 20.08.2017
+
+The Runaway Club - Apollo (2016) [MP3|320 Kbps] <80's Electronic Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When We Were Kids
+02. I Don't Care
+03. So Damn Good
+04. Shooting at the Moon(   Читать дальше...   )Жанр: 80's Electronic PopПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6FD1E233854A1B4C3DC3A33C0DDB2272440F909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244138   (484107) от 31.08.2018
+
+VA - Top Hits Estate (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484107.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Takagi & Ketra - Amore e Capoeira
+02. BoomDaBash - Non Ti Dico No
+03. J-AX - Italiana(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582912B6246F98EFC7F159783A061209AC50C345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 838009   (483922) от 20.08.2017
 
 The Runaway Club - The Runaway Club (2014) [MP3|320 кб/с]<80's Electronic Pop>
@@ -701,76 +759,6 @@ Beyonce - I Was Here (2012) Single, Promo CD [MP3|~245 кб/с (V0)]<R&B, pop, s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6846C64294DE1D451CED050900CAA4D52F516246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547659   (467071) от 18.09.2012
-
-Tanita Tikaram - Can't Go Back (2012) [MP3|320 кб/с]<Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467071.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: (00:38:50)
-01. All Things To You
-02. Dust On My Shoes
-03. Make The Day
-04. Rock & Roll
-05. Science
-06. Keep It Real
-07. Can’t Go Back
-08. Heavy Pressure
-09. One Kiss(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFFBD20A46DA23230A9DB7B3172D410895629EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546290   (467060) от 18.09.2012
-
-Boney M - Ultimate Long Versions & Rarities 1976-1987 (2009) [MP3|320 кб/с]<Pop, Disco, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exodus (Noah's Ark 2001Maxi Version)
-02. Wild Planet (Maxi Version)
-03. Somewhere In The World (Long Version)
-04. Future World (Long Promo Version)
-05. 10.000 Lightyears (Promo Version)
-06. Kalimba De Luna (US Club Mix)
-07. Young, Free And Single (12' Version)
-08. Daddy Cool (Anniversary Recording '86Special Club Mix)
-09. Mother And Child Reunion (Frank Farian CorporationLong Version)
-10. I'm Alive (Frank Farian CorporationLong Version)(   Читать дальше...   )Жанр: Pop, Disco, Eurodance.Продолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FDA710CC9094BBCFD296E8D3C18ECFF6DB3319
 ```
 
 https://mybot314.ru/tekegram_catalog/

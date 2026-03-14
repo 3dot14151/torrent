@@ -1,3 +1,87 @@
+###  Публикация: 1573015   (417093) от 29.08.2022
+
+Алексей Горшенёв - Калининград (2022) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Горшенев принял участие в записи песни «Калининград» в поддержку жителей региона, оказавшихся в сложной экономической и политической ситуации. Музыка - Владимир Корниенко, текст - Максим Кучеренко / Алексей Горшенев.1. КалининградЖанр: RockПродолжительность: 00:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D71FA25790D77B92D79E1760848C0F60C9F200D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572866   (416867) от 29.08.2022
+
+Salvation For Me - Memories (2022) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blind [00:03:19]
+02 - Lost [00:03:06]
+03 - Beast [00:03:32]
+04 - Line [00:03:36](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2421B090142ECC371CC89EA1C084609475A672E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066131   (416490) от 24.10.2016
+
+Адо - 25 Горошин (2016) [MP3|320 Kbps] <Folk Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Веди себя хорошо
+02. Пассажир
+03. Я давил цветное стекло
+04. Поклонилось Солнце Месяцу(   Читать дальше...   )Жанр: Folk Rock, Soft RockПродолжительность: 01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF143584DED67A7CCF0B34664194BC37F6D2309B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066101   (416350) от 24.10.2016
 
 Ночные Снайперы - помолчим (2016) Single [MP3|320 Kbps] <Rock>
@@ -656,92 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:959C1CBB02187410E4F13E1B5E2193AB39C2FA05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573868   (408657) от 02.09.2022
-
-Калинов Мост - Холсты (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408657.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Четыре стороны
-2. Мёд
-3. Жив
-4. Камушек(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13373F5C28B76291C5DCBC5EE6CA2ECC3210091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469003   (408579) от 02.09.2022
-
-Бранимир (Александр Геннадиевич Паршиков) - 20 Albums, 3 Singles, 4 EP (2008-2022) [MP3|320 Kbps] <Acoustic, Dark Folk Rock, Dark Chanson>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не хочу никуда уезжать [00:03:49]
-02. Солнечный день [00:03:59]
-03. Великая жизнь [00:03:43]
-04. Фазан [00:04:43](   Читать дальше...   )Жанр: Acoustic, Dark Folk Rock, Dark ChansonПродолжительность: 17:31:25 (28CD)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EB704631DC92FB76DB01709B213D12B5634708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252795   (408065) от 06.10.2018
-
-The Travelling Orchestra - Early In The Mornin' (2016) EP [MP3|320 Kbps] <Blues Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catfish Blues
-02. Early In The Mornin'
-03. Hard Time Killin' Floor BluesЖанр: Blues Rock, BluesПродолжительность: 00:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520CBA7042F750CB18D2574014C712009E580D93
 ```
 
 https://mybot314.ru/tekegram_catalog/

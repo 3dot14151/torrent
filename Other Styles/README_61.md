@@ -1,3 +1,148 @@
+###  Публикация: 1285492   (718914) от 27.02.2019
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 9 (1994) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonata in D
+02. Sound of a song
+03. Hear my song
+04. Solveig's song(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96E499538262FF9B90571E3F36F0B56A306081C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285749   (718805) от 27.02.2019
+
+VA - The Most beautiful musical hits the songs of Andrew Lloyd Webber (Unknown) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Stage & Screen>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718805.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Amigos Papa Siempre - Barcelona Olympics
+02. Don’t cry for me Argentina -Evita
+03. Another suitcase in another hall - Evita(   Читать дальше...   )Жанр: Instrumental, Stage & ScreenПродолжительность: 02:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CE513529C012C13A8168D6F452CEDAD8E6BB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 229946   (718753) от 05.08.2020
+
+Vittorio Del Monaco - Histoires D'amour (1991) (2CD) [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Ballade Des Gens Heureux (03:03)
+ 02. Mediterraneenne 		 (04:20)
+ 03. L'amour En Mer 		 (03:08)
+ 04. Voyage Voyage 		 (04:18)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E335E7072BDF2A8B8C12F863E9D238A353A6443E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217056   (718742) от 05.08.2020
+
+Christophe Goze - A Day In Ibiza (2009) [APE|Lossless|image + .cue] <Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. About Us    		(06:19)
+02. Manana    			(06:14)
+03. Somthing Like This    	(05:58)
+04. Dream    			(05:39)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D4636EC248A5C352CA068FA4487FB99CA34088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219439   (718734) от 05.08.2020
+
+VA - Diving Dreams - The Coral Sea (2005) [APE|Lossless|image + .cue] <New Age, Relax>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Megabyte - Valee De Mai    		(08:12)
+02. Dansing Fantasy - Nautilus    	(04:22)
+03. Venja - Eliah`s Ascension    	(04:14)
+04. Software - Island Sunrise    	(02:51)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DDDB1E6BCFBE7FA966AD7EBC364BDA25687423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 327808   (718731) от 05.08.2020
 
 Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] <Instrumental, crossover>
@@ -596,151 +741,6 @@ Deva Premal & Miten with Manose - Cosmic Connections Live (with Manose) (2016) L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37D5E982E40354523EB2ACFBC92613AB2D19A457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130155   (715964) от 01.05.2017
-
-VA, Tyler Bates - Guardians of the Galaxy / Стражи Галактики (Original Motion Picture Soundtrack) (2014) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyler Bates - Morag (01:58)
-02. Tyler Bates - The Final Battle Begins (04:21)
-03. Tyler Bates - Plasma Ball (01:18)
-04. Tyler Bates - Quill's Big Retreat (01:38)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:49:42 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CEA0BFA04639FE28978462C214E529E4E1A8A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024266   (715958) от 09.06.2016
-
-Michael Giacchino - Zootopia / Зверополис (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shakira - Try Everything (03:17)
-02. Stage Fright (00:40)
-03. Grey's uh-Mad at Me (01:45)
-04. Ticket to Write (01:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184075190F0AB1A52517BBAEF015BDB4E463D02F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024268   (715830) от 09.06.2016
-
-Michael Giacchino - Zootopia / Зверополис (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shakira - Try Everything (03:17)
-02. Stage Fright (00:40)
-03. Grey's uh-Mad at Me (01:45)
-04. Ticket to Write (01:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EBBFC8615B1C55D404A5C0A5F1F0209B7ED3111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219243   (715730) от 13.04.2018
-
-Dr. Jeffrey Thompson & Mick Rossi - Dancing Clouds (2007) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmos 15:28
-02. Flying 15:49
-03. Astral Plane 16:05
-04. Dancing Clouds 15:22Жанр: New Age, Meditative, RelaxПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312BA8154153A9BC8FDB3047125BEB70F1F522C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219318   (715508) от 13.04.2018
-
-Danheim - Munarvagr (2017) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 0:44
-02. Vindöld 3:28
-03. Tyrfing 3:27
-04. Tyr 3:40(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62E35A0A3BE856A95EA7689A391C46B19AD6E93
 ```
 
 https://mybot314.ru/tekegram_catalog/

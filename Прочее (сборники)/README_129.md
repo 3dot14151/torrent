@@ -1,3 +1,32 @@
+###  Публикация: 1074683   (338600) от 19.11.2016
+
+VA - O3 Greatest Christmas Hits (2016) [MP3|320 Kbps] <Glam Rock, Synthpop, Christmas Pop, New Wave, Holiday>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Thank God It's Christmas (2011 Remaster) 04:21
+02. Pentatonix - Little Drummer Boy 04:15
+03. Wham! - Last Christmas 04:23
+04. Justin Bieber - Santa Claus Is Coming To Town 03:36(   Читать дальше...   )Жанр: Glam Rock, Synthpop, Christmas Pop, New Wave, HolidayПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00A73D7C2321C124E22FA0B3C87D4FA5E2F2FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258142   (337988) от 29.10.2018
 
 Teriyaki Boyz - Tokyo Drift (2017) Remix [MP3|320 Kbps] <Club, Dance>
@@ -698,35 +727,6 @@ The Prodigy - Omen (2018) Remix [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D9FF2E8FE6B84B7C0FB36200BB3F681784D36A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955684   (332517) от 12.11.2015
-
-VA - Popular November Hit (2015) [MP3|320 кб/с]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332517.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Namika - Lieblingsmensch 03:09
-002. Charlie Puth (feat. Meghan Trainor) - Marvin Gaye 03:08
-003. Mark Forster - Flash mich 03:01
-004. Little Mix - Black Magic 03:33(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36660BF7B6F8E614B766EA7702D785729D2A5E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

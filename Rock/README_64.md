@@ -1,3 +1,62 @@
+###  Публикация: 1578051   (350402) от 21.09.2022
+
+High Grind - The Loud Bong Chronicles (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Skatopia
+02 Hombre de Conocimiento
+03 Vortice (Parte II)
+04 Realidad aparte(   Читать дальше...   )Жанр: Heavy Psych, Stoner, DoomПродолжительность: 00:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A437207E1E5C9C2A67BBD2BCA6C60D98AE06B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578039   (350394) от 21.09.2022
+
+Adventure - Tales Of Belle Part 2 - Unveiled By Fire (2022) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cruel Mind (5:08)
+02. I Finally Knew (5:37)
+03. Belle's Lament The Heat (3:01)
+04. Absurd Scenes (4:46)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog
+Country: Trondheim, NorwayПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7356FA7A2D843EBD8FF6493B5721614650BB211F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578056   (350392) от 21.09.2022
 
 Mobius - Le Ne Merd Irni (2022) [MP3|320 Kbps] <Progressive Rock, Art Rock, Female Vocal>
@@ -690,64 +749,6 @@ Blues Power Band - Dark Room (2012) [MP3|320 кб/с]<Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36698DAE82FFBF26F249DC7295D6123C98C439C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578633   (343656) от 24.09.2022
-
-Stratovarius - Stratovarius (2005) Reissue, 2012, Victor [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maniac Dance	4:34
-02. Fight!!!	4:03
-03. Just Carry On	5:28
-04. Back To Madness	7:43(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB9543F81F7C8FCFB791E05B400B5E34A88132DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578559   (343654) от 24.09.2022
-
-Stratovarius - Polaris (2009) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Unknown	4:28
-02. Falling Star	4:33
-03. King Of Nothing	6:42
-04. Second Sight	4:25(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD73070AFF4EE046E6F4DDCD38E26E505D5E93B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

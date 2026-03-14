@@ -1,3 +1,61 @@
+###  Публикация: 1260313   (1041866) от 05.01.2021
+
+Arika Lane - TopTrance Radioshow (2011-2021) [MP3|256 - 320 Kbps] <Uplifting Trance, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041866.jpg" />
+</div>
+
+
+###  Подробнее
+
+TOPTRANCE 128 MainMix by Arika Lane:
+01. Daniel Kandi - Nova II (The Second Journey) (Extended Mix)
+02. FAWZY - Resonating Force (Ula Remix)
+03. Victor Special - Inhaling Sounds of Thunder (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, TranceПродолжительность: 01:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFB41738231B49F48E0B82BF4BC2A7E782C3FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438426   (1041155) от 08.01.2021
+
+VA - Markus Schulz - Global DJ Broadcast (Deeper Shades) (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massane - No Return
+02. Marsh & Phenoir featuring Mariel Beausejour - Don't Wait
+03. Beije - Standing Between the Worlds
+04. Markus Schulz & Adina Butar - In Search of Sunrise (Watercraft Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEE758610A12A7DAB5E3476BA49A44CCA183795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438228   (1041154) от 08.01.2021
 
 Tiesto - SiriusXM Tiesto & Friends NYE Party (2020-12-31) [MP3|~245 Kbps (V0)] <Future House, Big Room, Electro House>
@@ -682,64 +740,6 @@ David Guetta - Tomorrowland Friendship Mix (2021-03-25) [MP3|320 Kbps] <Electro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2E494584251F792C1455EDBED5FDE0C21DA3974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460928   (1022302) от 07.04.2021
-
-The Blizzard - AVACast Guest Mix (2021-03-29) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blizzard - Torden
-02. The Blizzard & The Madison - Sequoia
-03. The Blizzard - Sol
-04. The Blizzard - Snøfnugg(   Читать дальше...   )Жанр: TranceПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6131CA723FBD3CD80DB8AE678A1D233C7AE0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461691   (1021782) от 10.04.2021
-
-Armin van Buuren - One World Radio Armin's Weekend Kick-Off 100 (Extended Special) (2021-04-09) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren ft. Sharon Den Adel - In And Out Of Love (Ilan Bluestone & Maor Levi Remix)
-02. Armin van Buuren & AVIRA ft. Sam Martin - Mask
-03. Armin van Buuren & Avian Grays ft. Jordan Shaw - Something Real
-04. Above & Beyond ft. Zoë Johnston - There's Only You (Above & Beyond Club Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E15754FABB0DF33D7E0116AB6A0B1C644D114D
 ```
 
 https://mybot314.ru/tekegram_catalog/

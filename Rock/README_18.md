@@ -1,3 +1,61 @@
+###  Публикация: 1196224   (826042) от 01.01.2018
+
+Lindi Ortega (Линди Ортега) - Untitles (2008) EP [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye My Love 3:37
+02. Lonely Day 3:29
+03. Dying Of Another Broken Heart 2:57
+04. So Far Gone 3:19(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09562A16602BFD2C3E084B7BC6F0564C43018C0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196191   (825993) от 01.01.2018
+
+Nicolette Larson - In The Nick Of Time (1979) Warner Bros. Records, HS 3370, US [MP3|320 Kbps] <Pop Rock, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Jones 3:19
+02. Just In The Nick Of Time 3:24
+03. Let Me Go, Love 3:49
+04. Rio de Janeiro Blue 3:50(   Читать дальше...   )Жанр: Pop Rock, SoulПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEFF1BAEE365D351091A2A0DA6B5C749A6F4349B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196292   (825989) от 01.01.2018
 
 Nicolette Larson - The Very Best Of Nicolette Larson (1999) Compilation [MP3|320 Kbps] <Country Rock, Pop Rock, Ballad>
@@ -676,64 +734,6 @@ VA - Free As A Bird: Southern Fried Rock, Blues & Boogie (2012) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB6DE2F2E0FC7F6915E2E5125564ECB95C30EE00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197136   (817716) от 06.01.2018
-
-Wild Turkey - Battle Hymn (1971) Reissue, 1991, Edsel Records [MP3|320 Kbps] <Classic Rock, Prog-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817716.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Butterfly
-2. To The Stars
-3. Twelve Streets Of Cobbled Black
-4. Dulwich Fox(   Читать дальше...   )Жанр: Classic Rock, Prog-RockПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDB7F7FF5B4E9A0AC37E862869947668FA0DE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197322   (817710) от 06.01.2018
-
-Wild Turkey - Turkey (1972) Reissue, 1995, Edsel Records [MP3|320 Kbps] <Classic Rock, Prog-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817710.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Good Old Days
-2. Tomorrow's Friend
-3. Universal Man
-4. Eternal Mother / The Return(   Читать дальше...   )Жанр: Classic Rock, Prog-RockПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1C24AF73BA476415BB483478C4632902745AD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

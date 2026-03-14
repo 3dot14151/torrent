@@ -1,3 +1,146 @@
+###  Публикация: 1765309   (101439) от 12.12.2024
+
+DeWolff - Muscle Shoals (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psych, Southern Rock, Bluesy>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Love (3:13)
+02. Natural Woman (3:06)
+03. Out On The Town (4:25)
+04. Let's Stay Together (3:02)(   Читать дальше...   )Жанр: Psych, Southern Rock, BluesyПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA0852093E174F51D4DD497BCE0CB54A21CDF59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765528   (101422) от 13.12.2024
+
+Volturian - Studio Albums (2 releases) (2020-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Symphonic/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Volturian — итальянская симфо-метал группа. Проект Федерико Монделли из Frozen Crown2020 - Crimson
+2022 - Red DragonЖанр: Melodic Symphonic/Groove MetalПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0618A117C4D24FF14ABF0CAAF17F7138CADB65B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765621   (101420) от 13.12.2024
+
+Magic Kingdom - Blaze Of Rage (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanctus Maleficus (2:42)
+02. The Great Rebellion (9:07)
+03. Blaze Of Storming Rage (4:52)
+04. Undead At The Gates (5:47)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB1BF49E05B4E8419F80CACCC96378F8DCE19486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765508   (101412) от 13.12.2024
+
+Helloween - Live At Budokan(Live) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orbit (Live) (1:59)
+02. Skyfall (Live) (12:52)
+03. Eagle Fly Free (Live) (8:04)
+04. Mass Pollution (Live) (4:58)(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 02:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9853C8B851DF5E1052766752A08CA240AC8CF63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765602   (101408) от 13.12.2024
+
+Snoop Dogg - Missionary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fore Play [00:01:15]
+02. Shangri-La [00:01:37]
+03. Outta Da Blue [00:02:39]
+04. Hard Knocks [00:04:13](   Читать дальше...   )Жанр: Hip-Hop/RapПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A6140ACB689D76F318E6D73AA73302131BDAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765513   (101401) от 13.12.2024
 
 Alberto Rigoni - Nemesis Call (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Prog>
@@ -600,151 +743,6 @@ Godless men - Awakened by the wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B10288D3856C6E5C427CA281AE13AF5B5FB24E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765961   (101286) от 15.12.2024
-
-BJ Ryan - Down the Rabbit Hole (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride Away (4:11)
-02. Here We Go Again (3:58)
-03. Withstand It All (4:11)
-04. New Front Door (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943E9B9600E78A3FEAE3A7254EFC3E6A1E51E70C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765963   (101285) от 15.12.2024
-
-Effie Zilch - Multitudes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayin' amos (3:37)
-02. Taking Me Over (3:54)
-03. Up and Down Blues (4:15)
-04. Carousel (2:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC89B905FF65AC1E0BFE49E0E74FD860E90988E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765995   (101284) от 15.12.2024
-
-Jason Craig Wilkins - Find Me Now (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake ‘Em on Down (2:36)
-02. Other Side of Loneliness (4:55)
-03. Wrapped up in Love Again (2:37)
-04. Know to Say No (2:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0941960710EBF0FDBADD4A9C0724F2586B0405E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765998   (101283) от 15.12.2024
-
-Johnson's Bridge - Line of Sight (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Progressive Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Secret of Fire (5:37)
-02. The Lonely Leader (4:31)
-03. Glad You Came Along (3:42)
-04. Amber Meadow (4:11)(   Читать дальше...   )Жанр: Progressive Rock, Classic RockПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41EF25413AB2EC71C63D533B65ED7EEB98D95D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765958   (101282) от 15.12.2024
-
-Beware Of Darkness - Lose Your Mind, Gain Your Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss The Void (4:01)
-02. Into The Currents (3:46)
-03. Depression Take The Wheel (3:45)
-04. Hero Of My Own Story (4:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA845B18746A06B8607AF1315D8C26DA9646B5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,154 @@
+###  Публикация: 545145   (486418) от 09.09.2012
+
+VA - Fantastic 80's The Complete Collection (2008) 5CD BoxSet [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survivor - Eye Of The Tiger [04:01]
+02. Meat Loaf - Dead Ringer For Love [04:22]
+03. Billy Idol - White Wedding [03:33]
+04. Pat Benatar - Love Is A Battlefield [04:08]
+05. Laura Branigan - Self Control [04:07]
+06. Kim Carnes - Bette Davies Eyes [03:44]
+07. The Pretenders - Back On The Chain Gang [03:52]
+08. Rick Springfield - Jessie's Girl [03:14]
+09. Daryl Hall & John Oates - Out Of Touch [04:09]
+10. Starship - Nothing's Gonna Stop Us Now [04:25](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroФормат: BoxSet 5CDПродолжительность: 01:19:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937527   (486049) от 16.09.2015
+
+Aventura - Love & Hate (2004) [APE|image+.cue]<Pop/Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Intro
+02	La Película
+03	Hermanita
+04	Mi Nina Cambió(   Читать дальше...   )Жанр: Pop/LatinПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F38EB8374A8D5C618AC9FEE0EFC8344772B0F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405163   (485819) от 29.08.2020
+
+Overcoats - The Fight (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be There (03:08)
+02. Fire & Fury (03:45)
+03. The Fool (03:09)
+04. YJSTS (03:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DCECF894135E9D0D8B15893218B86A376F256B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405232   (485729) от 29.08.2020
+
+Charlotte Martin - On Your Shore (2004) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Your Shore (03:58)
+02. Limits Of Our Love (03:30)
+03. Your Armor (04:20)
+04. Every Time It Rains (03:43)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5950A9DDBBA60849C64D764E2EAC264EBC9EC85B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405115   (485621) от 29.08.2020
+
+VA - Espresso Mega-Mix: Italo Hits Nonstop (1998) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	 Vasco Rossi	-Cosa Succede In Cittá	4:02
+2.	 Vanadium	-Nel Cuore Del Caos	3:42
+3.	 I Soliti Ignoti	-Il Colore Viola	4:50
+4.	 Clió	-Non Siamo Angeli	3:56(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B088361800D32BFCF819357228C79AEF45F2780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405180   (485609) от 29.08.2020
 
 The Smashing Pumpkins -  Cyr (2020) Single [FLAC|Lossless|tracks] <Rock, Pop>
@@ -610,151 +761,6 @@ Pink (P!nk) - The Truth About Love (2012) [FLAC|Lossless]<Pop Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939490   (475357) от 21.09.2015
-
-VA - 80s Love (2015) [FLAC|tracks|WEB-DL]<Rock, Ballad, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Roxette - Listen To Your Heart [5:27]
-02.Foreigner - Waiting For a Girl Like You [4:47]
-03.Duran Duran - Save a Prayer (Single Version) [3:44]
-04.Ultravox - Vienna (Single Version) [2009 Remastered Version] [4:39](   Читать дальше...   )Жанр: Rock, Ballad, PopПродолжительность: 02:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86228D1D650159A89D7FCED74B422E465B8878CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 823507   (475236) от 20.09.2014
-
-VA - Pure... 90s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Именно в начале 90-х из каждого утюга раздавалась Макарена, но не только она определила тот стиль музыки, которому (страшно подумать) уже более 20-ти лет. И хотя нынешнее поколение оценивает её между "ацтоем" и "сливом" - для многих эта музыка их молодости и сегодня задевает за живые струны в душе, а уж под Mambo No.5 до сих пор ноги танцуют сами (   Читать дальше...   )CD1:
-01. Los Del Rio - Macarena (Bayside Boys Remix)  (3:54)
-02. Run-DMC vs. Jason Nevins - It's Like That  (4:12)
-03. DJ Jazzy Jeff & The Fresh Prince - Boom! Shake the Room  (3:48)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock,Продолжительность: 04:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71055A6E1DE749E3C6585F3C300448AA5998DDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057101   (475137) от 28.09.2016
-
-Falco - So80s (Soeighties) Presents Falco (Curated By Blank & Jones) (2012) 2CD [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Next To Body (Dance Mix) with Brigitte Nielsen
-02. Wiener Blut (12" Remix)
-03. Satellite To Satellite (Extended Remix Version)
-04. Helden von heute (Extended Version)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744C37D2B509AB645BA7BEBC1AA36E57A762051B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554685   (474323) от 02.08.2022
-
-The Chainsmokers - So Far So Good (+ Time Bomb) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fall
-02. Why Can't You Wait
-03. Time Bomb
-04. Riptide(   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5780F36D02B3B806899A78095459D95F62373B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245251   (473992) от 05.09.2018
-
-Ani Lorak (Ани Лорак) - Smile (2005) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Away
-02. Smile
-03. A Little Shot Of Love
-04. Car Song(   Читать дальше...   )Жанр: РорПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A57D1F2A6524500D942D370344DDE876052969
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1100608   (899968) от 04.02.2017
+
+Nils Landgren with Janis Siegel - Some Other Time - A Tribute To Leonard Bernstein (2016) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture: America ( Bernstein, Leonard) 00:42
+02. Some Other Time ( Bernstein, Leonard / Comden, Betty & Green, Adolph) 05:17
+03. Cool ( Bernstein, Leonard / Sondheim, Stephen) 03:40
+04. Maria ( Bernstein, Leonard / Sondheim, Stephen) 03:13(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B191A7C71C53E55453D1FFF6CC9065962AFD3A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100615   (899930) от 04.02.2017
 
 Art Blakey And The Jazz Messengers - Backgammon (1976) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -717,35 +746,6 @@ Orchestre National de Jazz - Franck Tortiller - Electrique (2007) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AA659BF654E75FCA18A84094FDF31FD5C521868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993578   (895914) от 05.03.2016
-
-Opus 5 - Progression (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snow Child (Donald Edwards)
-02. Fear Of Rooming (Seamus Blake)
-03. Climbing (Alex Sipiagin)
-04. Walk A Waltz (Boris Kozlov)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38CB8AE254060A408DCAD7DEBD40C388DC25626B
 ```
 
 https://mybot314.ru/tekegram_catalog/

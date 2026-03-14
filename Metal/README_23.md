@@ -1,3 +1,32 @@
+###  Публикация: 1376340   (860693) от 17.04.2020
+
+Jarrod Alonge - Beating a Dead Horse (2015) Deluxe Edition [MP3|320 Kbps] <Metalcore, Post-Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Swimmer [00:03:51]
+02 - Love Me Back (feat. Cody Carson) [00:03:28]
+03 - Unbreakable [00:04:26]
+04 - Save My Life [00:04:07](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD4F55006FD077F99A302DEDAB31BCC0CF6C463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000177   (860650) от 24.03.2016
 
 Asking Alexandria - The Black (2016) [MP3|320 кб/с] <Post Hardcore, Metalcore>
@@ -716,35 +745,6 @@ Emmure - Look At Yourself (2017) [MP3|320 Kbps] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EA1E61A1CD018E9D0CB984A9628183A72CBBDF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110509   (851919) от 03.03.2017
-
-Sinister - Syncretism (2017) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Neurophobic
-2. Convulsion of Christ
-3. Blood Soaked Domain
-4. Dominance by Acquisition(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B5335E3BEB961002E27E0E204CCE71462AC444
 ```
 
 https://mybot314.ru/tekegram_catalog/

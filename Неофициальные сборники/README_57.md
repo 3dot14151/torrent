@@ -1,3 +1,90 @@
+###  Публикация: 976089   (970992) от 16.01.2016
+
+VA - Super Bomb Electro 55 (2015) [MP3|320 кб/с] <Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 888 - Critical Mistakes (James Egbert Remix) (5:12)
+02. Amersy - UP (Original Mix) (4:35)
+03. Artistic Raw - Before We Kick It (Original Mix) (4:26)
+04. A-Tonez - Mr Dj (LowParse Remix) (4:02)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08B86C0A51AB5AFBC51F6C0A3A02B88BD0CCE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976054   (970991) от 16.01.2016
+
+VA - Fly to the Sky Fines Selection Of First Class Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Water on Mars - Biscaya - Realaxing Beach Moments remix
+02. Phono Sounds Invation - Shores of Eternity - 100 % Downbeat Sunset Mix
+03. Maggie Charming - Pas de Regret - Paris to Marseille Chillout Mix
+04. Zipper World - Wild Dreams - Unbreakable Chill Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91CCD5D5BCD17934F4C4419E4E18BF0185137510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975996   (970987) от 16.01.2016
+
+VA - Super Bomb Electro: The Best Hit 13 (2016) [MP3|320 кб/с] <Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Faced Funks - Powerbass (Original Mix) (4:30)
+02. 2Clubberz - Predator (Original Mix) (3:54)
+03. Alpharock - Pump This Party (Original Mix) (4:33)
+04. Basehead - Here We Go (Original Mix) (5:30)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE9174D2830536A84EB44FEB016BF7E2A1CD796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975722   (970943) от 16.01.2016
 
 VA - Beatport Indie Dance / Nu Disco Top 100 December 2015 (2016) [MP3|320 кб/с] <Indie Dance, Nu Disco, G-House, Electronica>
@@ -668,99 +755,6 @@ DJ Ikonnikov - The 80s Non-Stop Mix (Instrumen) vol. 1-2 (2015 - 2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:736FD419E811464887107C7DE23D5EB8AA418A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358516   (968754) от 08.02.2020
-
-VA - The Official UK Top 40 Singles Chart 07.02.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Roddy Ricch - The Box
-03. Lewis Capaldi - Before You Go
-04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4300B3B6F912C93063BADCA227255AAC5A7EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358431   (968739) от 08.02.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 07.02.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SAINt JHN - Roses (Imanbek Remix) 2:56
-02. Anthony Keyrouz - Love Yourself 2:56
-03. Zivert - Credo 3:04
-04. Billie Eilish - Everything I Wanted 4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580F420E568552164A2BB7D5A18CD2492F32DE5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618997   (968609) от 15.02.2013
-
-VA - Elegant Cafe Vol. 1-2 (2013) [MP3|320 кб/с]<Lounge, Jazz Blends, Easy Listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968609.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Sara K. — If I Could Sing Your Blues (3:49)
-02. Highnote — Good Morning Heartache (6:06)
-03. David Broza — Old Satan (3:52)
-04. True Audiophile. The Best Of Groove Note — Track05 (5:46)
-05. John Pizzarelli — My Blue Heaven (4:00)
-06. Sara K. — What You Don't Know (4:32)
-07. Diana Panton — Felicidade (4:41)
-08. Rosa Passos And Ron Carter — Garota De Ipanema (3:19)
-09. Shirma Rouse & Kim Hoorweg — I Say A Little Prayer (3:25)(   Читать дальше...   )Жанр: Lounge, Jazz Blends, Easy ListeningПродолжительность: 04:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F0D86335DBB8576C94F9F5F444AFA0AFA7F1EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

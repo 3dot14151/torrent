@@ -1,3 +1,119 @@
+###  Публикация: 1578245   (345832) от 23.09.2022
+
+House Of Lords - Saints And Sinners (2022) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что термин "супергруппа" в наши дни используется почти как инфляционный, House Of Lords определенно была таковой в первые дни своего существования. Помимо певца James Christian в основном составе были Gregg Griuffria, Chuck Wright, Ken Mary и Lanny Cordola. Этот квинтет оказал большое влияние на melodic metal и создал нестареющую классику (   Читать дальше...   )01. Saints and Sinners (3:58)
+02. House of the Lord (5:38)
+03. Take it all (4:31)
+04. Road Warrior (5:17)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5436D2D7119D4C69F5146F349553E7C0A857A37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257287   (345660) от 26.10.2018
+
+Kissin' Dynamite - Ecstasy (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got The Fire (4:32)
+ 02. You're Not Alone (4:28)
+ 03. Somebody's Gotta Do It (3:53)
+ 04. Ecstasy (4:10)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162933EACDA3F1696AE0EEE0DE667667BC7A65FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102422   (345443) от 08.10.2019
+
+Deep Purple - Time For Bedlam (2017) EP [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time For Bedlam 04:36
+02. Paradise Bar (Non Album Track) 04:10
+03. Uncommon Man (Previously Unreleased Instrumental Version) 06:58
+04. Hip Boots (Rehearsal, Ian Paice's Recording) 04:00Жанр: Hard RockПродолжительность: 00:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50708ACAD3ED6BEEB0E7F8C650EC2AD2DEC4262E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578430   (343547) от 24.09.2022
+
+B52 - 2 Albums (2017-2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Az út nem fogy el [00:04:11]
+02. Új világ felé [00:03:14]
+03. Hazug játékok [00:04:08]
+04. A rosszat szerettem [00:04:06](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2 CD, 01:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42E199109D4D82D8BD238F96236278F62247EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578597   (343538) от 24.09.2022
 
 Purpendicular - Venus To Volcanus (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -630,122 +746,6 @@ Hollywood Monsters - Big Trouble (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56450A6BAA1C0C60EE8ADD6511DF81D60486E125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074427   (336033) от 20.11.2016
-
-Graham Bonnet Band - The Book (2016) Russian Edition [FLAC|Lossless|image + .cue] <Hard rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Night
-02. Welcome To My Home
-03. Earth's Child (I Am Your Son)
-04. Rider(   Читать дальше...   )Жанр: Hard rockПродолжительность: 01:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707E1F71BDE16C556B92A3E00C5E82A5E623925D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181246   (334927) от 06.11.2017
-
-Boston - 6 Studio Albums, 2 Live, 1 Compilation (1976 - 2014) [FLAC|Lossless|image + .cue|tracks + .cue] <Melodic Rock / Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со своим дебютным альбомом "Boston" устроили настоящий переполох в рок-истории. Создатель команды Tom Scholz (Том Шольц р. 10 марта 1947) начал сочинять музыку еще в конце 60-х, когда являлся студентом массачусетского технологического института. По окончании учебы он устроился инженером на "Polaroid", однако свое увлечение не забросил, а наоборот (   Читать дальше...   )Список альбомов:
-1976 Boston
-1978 Don't Look Back
-1986 Third StageЖанр: Melodic Rock / Hard RockПродолжительность: 14:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDBB26F17BF899DD859FA1D2692F3BE3665D1838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579672   (334706) от 28.09.2022
-
-Wolf On Fire - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sårede Blør i Hjerter [00:03:57]
-02. Movers & Shakers of the shit machine [00:04:11]
-03. Possibilities [00:03:48]
-04. Norwegian Psycho [00:04:59](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2 CD, 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF59D82A9520620E6FAE14CACA3AB2A846C7F8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579451   (334573) от 28.09.2022
-
-Streetlight Circus - Super Fine Sugar (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard rock and roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super Fine Sugar [00:02:47]
-02. Drive It Like I Stole It [00:04:25]
-03. Cherry Cola [00:03:50]
-04. Ex Machina [00:03:40](   Читать дальше...   )Жанр: Hard rock and rollПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B96C2FA039F1662D1259F11D4CB538A07E4296C
 ```
 
 https://mybot314.ru/tekegram_catalog/

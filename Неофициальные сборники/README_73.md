@@ -1,3 +1,90 @@
+###  Публикация: 1092070   (940269) от 11.01.2017
+
+VA - Best Of Electronic And Progressive Sound (2017) [MP3|320 Kbps] <Big Room, Drum & Bass, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940269.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.&ME, Rampa, Nomi Ruiz, NR& - Taste Like (Original Mix)
+002.&ME - Cape Coast (Original Mix)
+003.808 State - In Yer Face (Bicep Remix)
+004.Above & Beyond, Justine Suissa - Little Something (Super8 & Tab Remix)(   Читать дальше...   )Жанр: Big Room, Drum & Bass, Future HouseПродолжительность: 23:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAEFD5BA49E8D6A6C3641C3D68A96022AA2ED802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092146   (940268) от 11.01.2017
+
+VA - Official House Around Hits (2017) [MP3|320 Kbps] <House, Future House, Tropical, Funky, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Maddix & Jayden Jaxx - Voltage  3:05
+02.  Naxwell - The Game (Radio Mix)  3:21
+03.  DLC - Found (Original Mix)  6:35
+04.  Dave Winnel - Old School (Extended Mix)  4:18(   Читать дальше...   )Жанр: House, Future House, Tropical, Funky, ElectroПродолжительность: 04:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC993B8B8A11238C206BC76C98E3997925335836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984280   (940170) от 08.02.2016
+
+VA - Top Club Music World Hits 10216 (2016) [MP3|320 кб/с] <Club, Progressive, House, Tropical, Bigroom>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fatum & Judah - Ardan (Original Mix) 06:02
+02. Vander & Thomas - Not Gonna Take This 06:12
+03. Courage - Delusion (Original Mix) 05:30
+04. Bastian Salbart - Hold (Original Mix) 06:05(   Читать дальше...   )Жанр: Club, Progressive, House, Tropical, BigroomПродолжительность: 03:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DA26E0999C8BB8A70467D07FB072FCB77EA63B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092037   (940113) от 11.01.2017
 
 VA - Get Physical Music Presents The Best of Get Physical (2017) [MP3|320 Kbps] <Dance, Club, House>
@@ -658,93 +745,6 @@ VA - Зимний музобоз русский. Выпуск № 2 (2017) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:468DE599521A77CA8232FDF940DA8542EEDF2A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092391   (938874) от 12.01.2017
-
-VA - Блатной шансон на любимой волне Выпуск № 9 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938874.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Раиса Отрадная - Девчата 2:38
-002. Сергей Клушин & Андрей Климнюк - Развод 2:59
-003. Дмитрий Соснин - Мой Сад 4:35
-004. Лесоповал - Посередке Следствие 3:16(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72963262FEC9FDF17856C74F014590089B20FED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092388   (938865) от 12.01.2017
-
-VA - Зимние зарубежные хиты экспресс. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938865.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lady Gaga - Perfect Illusion 3:02
-002. Dnce - Unsweet 3:21
-003. Claudia Leitte - Taquita 3:22
-004. Alicia Keys & Pharrell Williams - Apple 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73FAA3A4BD912761893E16EB351D2FB0D841F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984422   (938843) от 09.02.2016
-
-VA - Зимние Новинки Интернета 50+50 (2016) [MP3|320 кб/с] <Pop, Dance, Rock, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Егор Крид - Будильник (Sunset Live Remix)
-02. Turbotronic - Booty Shake (Original Mix)
-03. Ленинград - Экспонат
-04. Lea Rue - I Cant Say No (Broiler RmX)(   Читать дальше...   )Жанр: Pop, Dance, Rock, ChansonПродолжительность: 06:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944B886B90121BCAF5F8B31A2BF37D0636B449A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

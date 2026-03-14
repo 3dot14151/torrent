@@ -1,3 +1,32 @@
+###  Публикация: 1162584   (456908) от 02.09.2017
+
+VA - Progressive House Vol.5 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Emi Galvan - Hunter (Paul Hamilton Remix)  7:33
+02.  Christopher Fafa - 05.20 AM  6:58
+03.  Kastis Torrau & Arnas D - Take Over (Navid Mehr Remix)  7:48
+04.  Rick Pier O'neil - Haiku  6:07(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9DB877CA3D115CA7F82B04125EF3F9E9CB7E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321675   (456794) от 25.08.2019
 
 VA - Record Super Chart 601 (2019) [MP3|320 Kbps] <Pop, House, Dance>
@@ -749,35 +778,6 @@ VA - Extra House (episode 6) (2015) [MP3|320 кб/с]<Deep House, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D543F9281817BA74CF3C9F7EE1B3BD8441B2AF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408580   (453775) от 13.09.2020
-
-VA - Record Super Chart 653 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bastard! - F..k That (3:38)
-02. DaBro - Юность (3:39)
-03. twocolors - Lovefool (3:10)
-04. DJ Smash feat. Poët - БЕГИ (3:06)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C95B2AC3237EACA034A1071FF97ECA449B14460C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1103270   (887995) от 11.02.2017
+
+Lee Konitz - frescalalto (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Post-Bop, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stella By Starlight (9:35)
+02. Thingin (6:26)
+03. Darn That Dream (5:18)
+04. Kary's Trance (4:58)(   Читать дальше...   )Жанр: Post-Bop, JazzПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8928E21CB616A2D96BDAACAED87D77FD69228A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103070   (887968) от 11.02.2017
 
 The Horace Silver Quintet - A Fistful Of Silver: Blowin' The Blues Away & Finger Poppin' (1959) 2CD, 2010, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
@@ -715,35 +744,6 @@ Benoit Lugue - Cycles (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20457E9ACF0DC1C7BC6C16ABCCAEA166F51B8D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104050   (883706) от 13.02.2017
-
-Mel Torme - Sunday In New York & Other Songs About New York (1963) Remaster, 2013, Warner [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sunday In New York [02:33]
- 02.Autumn in New York [03:23]
- 03.Lullaby of Birdland [02:29]
- 04.Broadway [02:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754DF7419EC5E80B4A750C589D6449495C7ED785
 ```
 
 https://mybot314.ru/tekegram_catalog/

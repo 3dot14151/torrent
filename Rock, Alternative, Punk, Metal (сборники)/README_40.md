@@ -1,3 +1,32 @@
+###  Публикация: 1592331   (182941) от 23.11.2022
+
+VA - Music For You vol. 25 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Led Zeppelin - No Quarter (07:02)
+ 02. Jade Warrior - Three Horned Dragon King (06:10)
+ 03. Sebastian Hardie - Openings (13:08)
+ 04. Curved Air - Vivaldi (07:33)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 03:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC59202C7FBBEC3A6412F0D2D29131DADA4F519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427686   (181505) от 30.11.2020
 
 VA - Alternative Rock Music Event (2020) [MP3|320 Kbps] <Rock, Alternative>
@@ -716,35 +745,6 @@ VA - Buste And Flow: Feery Compilation (2021) [MP3|320 Kbps] <Metal, Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D9F62B133582FF40EF41320A07E53AACEA78454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515819   (167814) от 09.12.2021
-
-VA - Alternative Rebel Rock (CD.03) (2021) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чаще всего в рок музыкальных произведениях есть момент, когда все инструменты затихают, оставляя лишь электрогитару, которая играет эпическое соло. Эти отрывки в композициях высоко ценятся не только среди любителей и слушателей рока, но и среди самих музыкантов, так как во время соло, гитарист «не прикрыт» и не заглушен другими инструментами. Он не имеет права на (   Читать дальше...   )001. Ya Tseen - At Tugáni
-002. Møaa - Lam
-003. Maxпmo Park - All Of Me
-004. David Bowie - Running Gun Blues(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EDB33641CF5F29B32A016582F76BD66DC5E7DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

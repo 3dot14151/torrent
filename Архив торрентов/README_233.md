@@ -1,3 +1,31 @@
+###  Публикация: 1350531   (1003334) от 06.01.2020
+
+Хоккей. НХЛ 2019-2020. Флорида Пантерз - Питтсбург Пингвинз (05.01.2020) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003334.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 ноября 2019 года, вторник 03:00 МСК
+Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 437 зрителей (99 % при вместимости 18 673)
+Главный судья: Крис Руни (Бостон, США); Главный судья: Франсис Шаррон (Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD025844ABB3E413E1071722C3082C2B386FB56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487613   (1003319) от 06.08.2021
 
 KORG - Prophecy 1.0.1 STANDALONE, VSTi, AAX (x64) [En]
@@ -657,35 +685,6 @@ Nicky Romero - Live @ Protocol X ADE Label Night, Melkweg Amsterdam, Netherlands
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:073B93A4A02C06C3DEF57A8A43E930B34BDCC682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350879   (1003015) от 07.01.2020
-
-SPINNIN' - Best Of 2019 House Mix (2019-12-27) [MP3|320 Kbps] <House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Thoneick & Kurd Maverick - Lonely (feat. Errol Reid) (Extended Mix)
-02. Watermat - Preach
-03. Vintage Culture, Fancy Inc - My Girl (Extended Mix)
-04. Watermat & Sneaky Sound System - Raise(   Читать дальше...   )Жанр: HouseПродолжительность: 02:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E76BA83EB5E12FB64C57C340EFEB3A46C5ED406
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1415130   (379106) от 11.10.2020
+
+DeadRise - DeadRise (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Doctor Will See You Now [00:01:27]
+02. Slipping Away [00:04:25]
+03. Close Your Eyes [00:03:34]
+04. Stubborn Heart [00:04:52](   Читать дальше...   )Жанр: Alternative Metal, Post-HardcoreПродолжительность: 00:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175CD4D4B5FABF4D2884D7ABA0E3A7049CFBFCBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415296   (379103) от 11.10.2020
+
+Zao - Preface: Early Recordings (1995-1996), Compilation, Remastered, 2020, Steadfast Records [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conflict [00:02:02]
+02. Rest [00:02:56]
+03. Sickness [00:03:55]
+04. Increased [00:02:18](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC2E5037C6FC542F0B0C3E640A64E1F30C9D213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415107   (378960) от 11.10.2020
+
+A Vicious End - The Hills Will Burn (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Beginning [00:02:28]
+02. At Dawn We Ride [00:04:09]
+03. Fields of Gray [00:04:18]
+04. Smoke and Mirrors [00:03:01](   Читать дальше...   )Жанр: Metalcore, Modern MetalПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4DA768881609031D0606325C4499B77F9A17AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949456   (377346) от 23.10.2015
 
 Dave Gahan & Soulsavers - Angels & Ghosts (2015) [FLAC|tracks|WEB-DL]<Alternative Rock>
@@ -658,93 +745,6 @@ Collective Soul - Collective Soul (2009) [FLAC|Lossless|tracks + .cue] <Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C838790A491DB628387D92F02B5AB54EF6B9037D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950896   (365983) от 28.10.2015
-
-Born Of Osiris - Soul Sphere (2015) [FLAC|Lossless]<Progressive Metalcore,Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Other Half of Me
-02. Throw Me in the Jungle
-03. Free Fall
-04. Illuminate(   Читать дальше...   )Тип издания: АльбомЖанр: Progressive Metalcore,ElectronicПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB900BD1D3588E9BD706E48B0F8D395075F0C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950908   (365855) от 28.10.2015
-
-Coldrain - Vena (2015) [FLAC|tracks+.cue]<Alternative Rock,Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vena
-02. Wrong
-03. Divine
-04. Gone(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock,Post-HardcoreПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716C44625BEE9ACF0110B95DA9AF384132CA275E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416536   (365388) от 17.10.2020
-
-TIRDUS - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disconnection [00:03:58]
-02. Sinner [00:04:21]
-03. Tom Cruise [00:03:07]
-04. Autumn Spirit [00:03:17](   Читать дальше...   )Жанр: Alternative, Progressive MetalПродолжительность: 2 CD, 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88373A8BB88E7033ADE2F14C9CD12684DA539525
 ```
 
 https://mybot314.ru/tekegram_catalog/

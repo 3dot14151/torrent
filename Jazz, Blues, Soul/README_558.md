@@ -1,3 +1,177 @@
+###  Публикация: 1794551   (67252) от 29.04.2025
+
+Dudley Taft - The Speed of Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanted Man (3:22)
+02. Miles and Miles to Go (4:47)
+03. Work It Out (3:23)
+04. Burn It Down (2:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15483C3D7A51D5F9076B24750B2A9A6015869BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794560   (67251) от 29.04.2025
+
+Katie & The Bad Sign - Revolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolf at the Door (3:44)
+02. Revolution (3:38)
+03. Heartless Woman (3:38)
+04. Shake Me Down (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23816DF46281BF7A535A0DD4D9AE5C87C47BA12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794539   (67237) от 29.04.2025
+
+Chris Kramer and Paddy Boy Zimmermann - Tales Of Tampa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Crazy About You Baby (3:00)
+02. Seminole Blues (3:15)
+03. You Rascal You No. 1 (3:50)
+04. Black Angel Blues (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1F9E0ED9CF8E597D52B06F7093CA1DF0088645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794529   (67235) от 29.04.2025
+
+Sarah Jane Cion - Summer Night (2001) Naxos [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Never Land/Pure Imagination [5:12]
+02. Walking on the Moon [5:03]
+03. Summer Night [5:25]
+04. Gabrielle [7:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD48D262380C47552DAE31AB6EC86401416DFFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794548   (67231) от 29.04.2025
+
+Dr. Jules' Cool Blues - The Iconoclast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish the Blues Had Used a Condom (3:06)
+02. ADD (3:38)
+03. Don't Drink the Kool Aid (4:50)
+04. The Barflies At The Bar (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9043E346F78F21974DAD472FBB71AC52DE0D9F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794844   (67215) от 01.05.2025
+
+Saori Yano - 02 (2004) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laird Baird [4:39]
+02. Suna to Skirt [6:56]
+03. Lover Man [6:13]
+04. Rizlla [5:34](   Читать дальше...   )Жанр: Post-Bop, BopПродолжительность: 01:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F9106A98AFC886D9792B6612EB0862DC51E68D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794840   (67214) от 01.05.2025
 
 Saori Yano - Saori Yano (2003) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
@@ -571,180 +745,6 @@ The Honey Badgers - Live in Noarlunga (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CFD78C8DCB98E43D754BBC30AB2CC9B2FB3BF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795464   (67084) от 04.05.2025
-
-Mark Murphy - Jazz Standards (1972 - 1991) 2CD, 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lady Who Sang the Blues [5:30]
-02. Memphis Blues [6:12]
-03. Charleston Alley [2:42]
-04. Farmer's Market [2:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D826645B0254D1B4A76F385C565C78EF2C1C55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795476   (67083) от 04.05.2025
-
-Oli Zangl - Take me home (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roots (2:57)
-02.  Take me home (3:30)
-03.  Dig the dirt (2:47)
-04.  Followin` you (4:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2A8E21B349FE60D044AB6780CD6EB4401F1A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795482   (67082) от 04.05.2025
-
-The DownShifters - Blues / Roots / Wellness (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Big Street Blues (2:58)
-02.  Hobo (3:03)
-03.  Let It Go (3:56)
-04.  I Know What You Need (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6E309054A31FD936670EC0C0BE4D48799D0DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795484   (67078) от 04.05.2025
-
-The Love Dogs - Get Off My Lawn (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fly Away (3:07)
-02.  Hard To Be Mad At You (3:09)
-03.  Better Things To Do (3:22)
-04.  Took The Wrong Road (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901CF732DEB38BD69431AE01FBC2227F06D12E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795478   (67073) от 04.05.2025
-
-Ricky Byrd - NYC Made (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  (Ya Get) 1 Life (3:09)
-02.  Glamdemic Blues (3:19)
-03.  Rhapsody in Blues (One for Jeff) (3:05)
-04.  Sweet Byrd of Youte (4:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C307F0E633F1029CDA898E09FD0222C3DFFEEA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795481   (67072) от 04.05.2025
-
-She Brought Me Gasoline - Songs from the Cliff (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Swirling Leaves (3:40)
-02.  The Last Rocket (3:36)
-03.  Sugar (3:43)
-04.  Sister (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02069CCDDCE5FAB4BD6278D5364EF8172DF8D0C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

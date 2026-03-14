@@ -1,3 +1,148 @@
+###  Публикация: 1621910   (239714) от 26.03.2023
+
+Romano - Vulkano Romano (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schrei der Wildnis [00:03:31]
+02. Magical [00:02:21]
+03. Samurai (feat. Alexander Marcus) [00:02:05]
+04. Fetisch [00:02:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294FB572208F05E6E18E129D23916939995911B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627185   (239576) от 18.04.2023
+
+VA - 100 Radio Hits - The Sound Of My Life (2020) [5CD Box Set] [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239576.jpg" />
+</div>
+
+
+###  Подробнее
+
+101 - Aretha Franklin & George Michael - I Knew You Were Waiting
+102 - Pink - So What
+103 - Backstreet Boys - Everybody
+104 - Anastacia - I`m Outta Love(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 06:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6A4C4E4CA68B346FADECA7E129C1F7B0C3E00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087376   (238843) от 27.04.2022
+
+Madonna - Best Of... (2002) All Stars Presents Series, Unofficial Release [APE|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain
+02. Papa Don't Preach
+03. La Isla Bonita
+04. You'll See(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAF627BA34EF7C720DC29961214D74FA5CC4EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638844   (238785) от 10.06.2023
+
+Jake Shears - Last Man Dancing (2023) [FLAC|Lossless|image + .cue] <Dance-pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_238785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Much Music (4:38)
+02. Do the Television (4:38)
+03. feat. Kylie Minogue - Voices (4:26)
+04. I Used To Be In Love (3:28)(   Читать дальше...   )Жанр: Dance-pop, Synth-popПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC642524BD8222CEC45914135EFFCE20AC0159C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442185   (238575) от 24.01.2021
+
+Alexander Rier - Zwischen dir und mir (2012) [FLAC|Lossless|image + .cue] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mehr Will Ich Haben
+02. Zwischen Dir Und Mir (Duett mit Norbert Rier)
+03. Komm Und Schenk Mir Deine Ewigkeit
+04. Nie Im Leben(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7DAEB5DB3F4AFABFD8A0C2326713BBDE0E4FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639012   (238466) от 12.06.2023
 
 Savage Garden - Savage Garden (1997) Original Version, 2023, Sony Music Entertainment [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock, Synth-pop>
@@ -601,153 +746,6 @@ Marc Fruttero - Miracle (2023) [FLAC|Lossless|tracks] <Pop, Euro Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47830CF8827C52D51D3DA1808F5DC500D57463A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646404   (232167) от 14.07.2023
-
-Sko/Torp - Radio Songbook "The Best Of" (1998) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232167.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.On A Long Lonely Night
-2.Get Ready
-3.Loser's Game
-4.Wheels(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B767D1785CB84AB0211006DC1BB37D42CA85DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637062   (231136) от 02.06.2023
-
-Sophie Ellis-Bextor - HANA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Thousand Orchids
-02. Breaking the Circle
-03. Until the Wheels Fall Off
-04. Everything is Sweet(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B3802A7F42F718D473DB7FA682B10760F542F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649208   (231123) от 26.07.2023
-
-Nessa Barrett - hell is a teenage girl (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. hell is a teenage girl [00:03:15]
-02. the one that should've got away [00:03:34]
-03. lie [00:03:34]
-04. plane to paris [00:03:54](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB181D2C125B18AF04569F2732EE290739C26D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637499   (230752) от 04.06.2023
-
-Right Said Fred - The Singles (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Right Said Fred - Британская поп-группа, созданная в 1989 году братьями Ричардом и Фредом Фэйрбрассами (Richard and Fred Fairbrass).
-В 1991 году вышел первый хит «I’m Too Sexy», многократно использованный в кино и на телевидении. Песня заняла первое место в хит-парадах США и второе место в Великобритании.
-После The Beatles, они стали второй группой из Англии, три (   Читать дальше...   )01. I'm Too Sexy (2023)
-02. Don't Talk Just Kiss (2023)
-03. Deeply Dippy (2023)
-04. Love For All Seasons (2023 Acoustic Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32A57F4448FE55C4FB1DFAED2C12C4792651DB50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649342   (230474) от 27.07.2023
-
-Pino Daniele - Che Dio Ti Benedica (1993) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Che Dio ti benedica (04:20)
-02. Questa primavera (05:01)
-03. Fatte na pizza (03:27)
-04. Mal di te (04:50)(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2939B46F9A1BD5CB960AACB4B980AB810FA4062A
 ```
 
 https://mybot314.ru/tekegram_catalog/

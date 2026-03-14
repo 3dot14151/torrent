@@ -1,3 +1,177 @@
+###  Публикация: 1707600   (113252) от 17.03.2024
+
+Donald Byrd - Attitude (1987 - 1991) 2CD, 1999, Camden Deluxe [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Arthur [8:27]
+02. I'll Always Remember [9:39]
+03. Back Down in Lu Easy Anna [6:49]
+04. Byrd Song [6:02](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856577CE539F3F93348BC051D696BF173213740D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707604   (113247) от 17.03.2024
+
+Danny Barrett - It's About Time (1993) DBD Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everytime We Say Goodbye [4:02]
+02. Two for the Road [4:36]
+03. Night Song [4:20]
+04. For All We Know [4:00](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E0D4EB6CEDDE922DA64ABDB9C6676D454846B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707806   (113239) от 18.03.2024
+
+Triplicity - Onibaba (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Onibaba (5:01)
+02. Which way home (5:35)
+03. Our own ghosts (8:50)
+04. Lovesong (intro) (3:24)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EEE890E100DBBC46C91CA9F4999DC5B56570C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707799   (113237) от 18.03.2024
+
+Bernhard Ludescher & Loktor - Almost (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almost  (8:03)
+02. Bi Harm (8:38)
+03. Carousel Bliss  (9:24)
+04. Abschied  (5:44)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF795B033FDE94726B8ADCEDEE9F55A97F013044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707803   (113235) от 18.03.2024
+
+Sacha Perry, Ben Street & Kresten Osgood - Low Tide (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How High the Moon (5:53)
+02. Locomotive (5:25)
+03. Just One of Those Things (5:33)
+04. Low Tide (5:01)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC900BD1839A3EE7FFED2227136E13825519F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707797   (113234) от 18.03.2024
+
+2Run More - Vuca World (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fusion, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curhatku (4:11)
+02. Sejuta Asa (3:56)
+03. Kau (3:17)
+04. Soulmate (4:40)(   Читать дальше...   )Жанр: Jazz, Fusion, Smooth JazzПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83341905A4F32D73EB43F39AB984F0DADE3B09D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707800   (113232) от 18.03.2024
 
 Carlos Camilo - Love Affair (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -571,180 +745,6 @@ Selmi - Last Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0B7AB3CFF4B469128C681203D7B3383E2D40BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708118   (113063) от 20.03.2024
-
-New Old School - New Old School (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take My Hand (3:43)
-02. Ruin And Pain (4:19)
-03. I Miss You (5:24)
-04. Amelia (5:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51ED6D83EC2E9A577EE94DDC512BAEBA2183E25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708310   (113062) от 20.03.2024
-
-VA - Happy Easter Jazz (Spring Positive Music) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florian Reach - The Old Cinema (6:54)
-02. Ray Steward - Heaven (7:08)
-03. Don Ruiz - Route 5 (4:44)
-04. Don Ruiz - Good Old Days (5:12)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D87E234AD741EAA947988089246ED0AACC35F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708104   (113060) от 20.03.2024
-
-Rocky Athas - Livin' My Best Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin' My Best Life (4:49)
-02. Only in My Dreams (4:59)
-03. Black Cat Moan (3:48)
-04. Dark Days (5:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23654B4AF36B68926569338D3C84F0ECFB98A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708288   (113051) от 20.03.2024
-
-The Art Farmer-Benny Golson Jazztet - Real Time (1988) Contemporary Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whisper Not [11:30]
-02. Sad to Say [6:11]
-03. Are You Real [8:29]
-04. Autumn Leaves [14:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485B738F98255529604E254314DDE23219F09C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708290   (113050) от 20.03.2024
-
-The Art Farmer-Benny Golson Jazztet - Back To The City (1986) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to the City [7:55]
-02. From Dream to Dream [6:48]
-03. Write Soon [9:44]
-04. Vas Simeon [7:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8CD8557A420B6673B1704D0603AD9FDC1D4FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708100   (113049) от 20.03.2024
-
-Rated Blue - Cranked Remastered (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Months on Tuesday - 2024 Remaster (4:48)
-02. In Dogs We Trust - 2024 Remaster (3:55)
-03. Three Walls Down - 2024 Remaster (3:35)
-04. Understanding (Just a Little) - 2024 Remaster (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF051021833ED5DB207C01A161C311391B4A3FDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

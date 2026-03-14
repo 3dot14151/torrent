@@ -1,3 +1,90 @@
+###  Публикация: 1167497   (417411) от 20.09.2017
+
+Bill Evans - Another Time: The Hilversum Concert (1968) 2017, Resonance Records [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Gonna Hear from Me [04:39]
+02. Very Early [05:25]
+03. Who Can I Turn To? [05:46]
+04. Alfie [05:42](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D812678304C6A36C885C5CD752CEE0AF31AB26B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325140   (416907) от 13.09.2019
+
+Earl Hines - Tour De Force (1972) 1989, Black Lion Records [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mack the Knife (take 2) [7:34]
+02. Indian Summer [5:34]
+03. I Gotta Right to Sing the Blues [6:46]
+04. I Never Knew (I Could Love Anybody Like I'm Loving You) (take 1) [4:50](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFA484AED8D9389186550C7CC37E8029ED9E6D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325138   (416739) от 13.09.2019
+
+Betty Carter - The Music Never Stops (1992) 2019, Blue Engine Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ms. B.C. [3:11]
+02. Make It Last [5:45]
+03. 30 Years [4:35]
+04. Why Him?/Where or When/What's New? [15:47](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31750A61E5F87189C410314AD10ACA17CCBC94CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412585   (416192) от 30.09.2020
 
 Duke Ellington - Complete Prestige Carnegie Hall Concerts (1946, 1947) 2001, 3CD, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -658,93 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FFA3DBD9435FC302A3E90CBC009A27F1BF6608A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412834   (413829) от 01.10.2020
-
-Bill Evans Trio - At the Village Vanguard August 18 (1967) 2004, 2CD, Verve Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413829.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. In a Sentimental Mood [4:08]
-02. California, Here I Come [4:38]
-03. You're Gonna Hear from Me [6:12](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 01:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B420970DC76EBF87FE3A38E660899D36A11CFF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251866   (413516) от 03.10.2018
-
-Donny McCaslin - Seen From Above (2000) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manresa [6:35]
-02. Seen from Above [6:52]
-03. Second Line Sally [5:09]
-04. These Were Palaces [5:39](   Читать дальше...   )Жанр: Contemporary Jazz, Modern CreativeПродолжительность: 00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3667624693BF0ED031747CA39364119EF10916B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251855   (413515) от 03.10.2018
-
-VA - The Newport Jazz Festival All-Stars & Bern Concert '89 (1990) Concord Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want to Be Happy [9:09]
-02. Jeep's Blues [9:11]
-03. I'm Just a Lucky So and So [4:41]
-04. Johnny Come Lately [5:12](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D949783B6A55DFAA83D64F405A902DB4971405B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

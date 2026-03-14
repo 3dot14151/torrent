@@ -1,3 +1,87 @@
+###  Публикация: 1288308   (697644) от 10.03.2019
+
+BY Effect - Первый шаг (2012) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Обратная сторона
+02. Мы
+03. Холод истин
+04. Первый шаг(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E14C6C2E1186EA59593BAA4E3FBEE19E4DF7C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534203   (697522) от 28.02.2022
+
+Екатерина Яшникова - В этой пустоте (2022) Deluxe Edition [MP3|320 Kbps] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697522.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. На острове (Intro)
+3. На острове
+4. Опять зима (Intro)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEE7F3361AFE6F9088410F50FB1805A20E30705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301970   (697237) от 05.05.2011
+
+Оргазм Нострадамуса - 6 альбомов + 1 сингл (1997-2003) Дискография [MP3|128 kbps]<Хардкор-панк, Аморал-кор>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_697237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Хардкор-панк, Аморал-корПродолжительность: 03:57:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221368   (695004) от 24.04.2018
 
 Егор Летов - Праздник кончился (2018) 2CD, Live [MP3|320 Kbps] <Punk Rock>
@@ -659,91 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2631809B7734C1B3B5F226046F8D6B1B54BDC1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507008   (686136) от 07.06.2012
-
-Butterfly Temple - 3 альбома-1 сингл (2009-2011) [MP3|320 кб/с]<Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 2009-20111. Смерть дана одна на всех (5:48)
- 2. Солнцестояние (4:41)Жанр: Pagan MetalПродолжительность: 00:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC2C3DDA878702D751733D1DC324DA9D45A9E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134993   (684979) от 17.05.2017
-
-Jack Action - Atmosphera (2016) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Соверши побег
-02. Х-радио
-03. Во что ты играешь?
-04. Метеорит(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03F0EBDE875E0311A0CEAF63AB6A9A8E35AFA87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134912   (684589) от 17.05.2017
-
-КРОУ - Наверх (2017) [MP3|320 Kbps] <Alternative Metal, Industrial, Rap Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наверх
-02. Живой
-03. Немножко влюблённая
-04. Догма(   Читать дальше...   )Жанр: Alternative Metal, Industrial, Rap MetalПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE2C27EB4A1C14498C8C194AB1CC3FF193DD19E
 ```
 
 https://mybot314.ru/tekegram_catalog/

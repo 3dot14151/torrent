@@ -1,3 +1,32 @@
+###  Публикация: 1191787   (263710) от 15.12.2017
+
+VA - Умная Электроника (Музыка Поднимающая Настроение) Часть 6 (Compiled by Zebyte) (2017) [MP3|320 Kbps] <House, Deep House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Super Flu  -  Mygut (Solomun Remix)  8:19
+02.  Basement Jaxx  -  Jump N Shout (Erik Hagleton Remix)  6:31
+03.  Milez feat. Chappell  -  Questions (Gumz Remix)  8:30
+04.  Gabriel Ananda & Alice Rose  -  Fields Of Dreams  8:46(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 04:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD5DB41F2CB8AF4C21C79F7F8A01E207897EFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340501   (263610) от 24.11.2019
 
 VA - Record Super Chart 614 (2019) [MP3|320 Kbps] <Pop, House, Dance>
@@ -734,35 +763,6 @@ VA - No name compilation Deep Chill Vocal House part 13 (2025) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A7C965570D248BAAD7A8AB60065B6FA05F9BED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838446   (260614) от 23.11.2025
-
-Sardø - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Give My Love
- 02 - I Love Only You
- 03 - Break
- 04 - Love You(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF89F61EF7EC00A5F79C58E35E904C319BBB0318
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1125526   (768091) от 15.04.2017
+
+She Must Burn - 1 альбом + 1 EP (2015-2017) [MP3|320 Kbps] <Symphonic Deathcore / Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ritual
+02. The Wicked (feat. Scott Ian Lewis of Carnifex)
+03. Gloom (feat. Sean Harmanis of Make Them Suffer)
+04. Hallowed Grounds(   Читать дальше...   )Жанр: Symphonic Deathcore / MetalcoreПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643038EBECFC500C0D10FE75871AFC4E29057228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278950   (767788) от 27.01.2019
 
 Trollfest - Norwegian Fairytales (2019) [MP3|320 Kbps] <Folk Metal>
@@ -715,35 +744,6 @@ The Last Renegades - Valley of the Kings (2020) [MP3|320 Kbps] <Heavy Metal, Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A35BF227D348E9624E14D8274550ECB38B2F0496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394676   (760606) от 07.07.2020
-
-Operus - Score Of Nightmares (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture of Madness (01:25)
- 02. Phantasia (05:33)
- 03. Lost (05:04)
- 04. Dance with Fire (05:38)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5D11F7EF5061E408247BA3B4D12AB017CF9AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

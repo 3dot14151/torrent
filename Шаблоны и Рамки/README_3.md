@@ -1,3 +1,29 @@
+###  Публикация: 1354429   (987883) от 22.01.2020
+
+Рамки - Renderosity - Moonbeams Rose Romantica - 94246 [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987883.jpg" />
+</div>
+
+
+###  Подробнее
+
+'Moonbeam's Rose Romantica' - это оригинальный дизайн, созданный в цифровом стиле, с небольшой бабочкой, выполненный на цветном фоне. Этот пакет содержит подборку готовых фонов, разделителей, бордюров, рамок.Формат: PNG, JPGРазрешение файлов: 258x561-3876x831
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E3CE111C5CE56C0312594BC592BA3D7CCA28EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354430   (987879) от 22.01.2020
 
 Рамки - Renderosity - Moonbeam's Treasures of the Sea - 99868 [PNG, PSD, JPG]
@@ -683,32 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B02DD65F2B9CD73D9A4DD48F0ED18FACDFBF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617403   (973499) от 11.02.2013
-
-Шаблоны - Календарь 2013 [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календарь на 2013. Автор  pav-valera.Разрешение файлов: 3500х5000Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0425543AC653CE9FA62047B9047C9490104226FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

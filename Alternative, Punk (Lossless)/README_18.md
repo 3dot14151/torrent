@@ -1,3 +1,90 @@
+###  Публикация: 1282491   (745393) от 12.02.2019
+
+HEALTH - VOL. 4 :: SLAVES OF FEAR (2019) [FLAC|Lossless|tracks + .cue] <Noisecore, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychonaut (02:24)
+02. Feel Nothing (02:59)
+03. God Botherer (02:23)
+04. Black Static (03:05)(   Читать дальше...   )Жанр: Noisecore, IndustrialПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D732DF0A3984DF2B451DEE8467CA58026A03E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282647   (743838) от 13.02.2019
+
+Tender - Fear of Falling Asleep (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Handmade Ego (05:09)
+02. Bottled Up (04:46)
+03. No Devotion (03:27)
+04. Fear of Falling Asleep (04:10)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B43E3AD6D8F6BC4B5A8AAD575948BAC813B0D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282501   (743837) от 13.02.2019
+
+Chasms - The Mirage (2019) [FLAC|Lossless|tracks + .cue] <Industrial, No Wave, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Shadow
+02.Every Heaven In Between
+03.Deep Love Deep Pain
+04.Gratuitously Cruel(   Читать дальше...   )Жанр: Industrial, No Wave, ShoegazeПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040946C21AE9716D3C968426917F0CEA280B7E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282668   (742539) от 14.02.2019
 
 Our Girl - Stranger Today (2018) Limited Edition 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze, Grunge>
@@ -655,93 +742,6 @@ Phoebe Bridgers - Stranger In The Alps (2017) Deluxe Edition, 2018, Dead Oceans 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10D8736B6845E4380E94208F6782910AD7F91C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021903   (730682) от 31.05.2016
-
-Marilyn Manson - Lest We Forget (The Best Of) (2004) Japanese Edition [FLAC|Lossless|image + .cue] <Alternative, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Love Song (03:05)
- 02. Personal Jesus (04:07)
- 03. mOBSCENE (03:27)
- 04. The Fight Song (02:57)(   Читать дальше...   )Жанр: Alternative, IndustrialПродолжительность: 01:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572F2492354AA3C00DBF7D68B9835CBD4F58EE35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284022   (730097) от 20.02.2019
-
-Foxwarren - Foxwarren (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Folk, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Be (02:54)
-02. Lost In a Dream (02:55)
-03. Everything Apart (04:16)
-04. In Another Life (02:59)(   Читать дальше...   )Жанр: Alternative Rock, Folk, Indie RockПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CDD081FB20EF4E4BDD576632B2153FEBE404D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284122   (730086) от 20.02.2019
-
-Au Pairs - Sense And Sensuality (1982) Remaster, 2002, Castle Music [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stepping Out of Line (6:01)
-02. Sex Without Stress (4:32)
-03. Instant Touch (3:00)
-04. That's When Its Worth It (4:07)(   Читать дальше...   )Жанр: Alternative Rock, Punk, Post RockПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D6FFCF41C3F55F69DE880E1F7DCAC925D11609
 ```
 
 https://mybot314.ru/tekegram_catalog/

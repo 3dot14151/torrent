@@ -1,3 +1,32 @@
+###  Публикация: 1130065   (716802) от 01.05.2017
+
+VA - Endless Melodies Lights (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Emotional, Blissful, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aurora Night & Ensen - Seren (Extended Mix)  5:48
+02.  Alan Morris & Elles De Graaf - Calm The Night (Ferrin & Morris Remix)  6:54
+03.  Kaimo K & Jo Cartwright - Don't Let The Pain Get In The Way (Original Mix)  6:45
+04.  Ahmed Romel - Dust & Echoes (Extended Mix)  6:14(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Emotional, Blissful, HarmonicПродолжительность: 02:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B28F3DA1AE71C30216B0F6BFC17824C3A32C10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130259   (716788) от 01.05.2017
 
 VA - Empire  Records: Chill Trance 2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -718,35 +747,6 @@ VA - A State Of Deep [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Progressive Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58682E335A51C1FA4827D9B215BBDE226D63FA66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401023   (713504) от 08.08.2020
-
-VA - Imaginary World Electronic (2020) [MP3|320 Kbps] <09:36:35>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713504.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Omega Danzer - Travelling The Wastelands
-002. Four Seconds Ago - The Vacancy
-003. Daniel Holt - Alles
-004. Lazer Station - Tonight He Comes(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 09:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837C13DD874A101820479270F8B04B33B0714C22
 ```
 
 https://mybot314.ru/tekegram_catalog/

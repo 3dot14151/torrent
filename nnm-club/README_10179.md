@@ -1,54 +1,25 @@
-###  Публикация: 1034824   (632594) от 14.07.2016
+###  Публикация: 1143527   (635390) от 18.06.2017
 
-VA - Top 100 Massive DJs Infinity (2016) [MP3|320 Kbps] <Trance, Progressive, Stadium Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632594.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren & Bullysongs -  Freefall (Heatbeat Extended Remix) 5:19
-002. Mark Sixma & Emma Hewitt -  Restless Hearts (Club Mix) 5:44
-003. Gareth Emery -  Huracan (Ben Gold Remix) 5:27
-004. Feel & Adara -  Disappear (DRYM Remix) 4:36(   Читать дальше...   )Жанр: Trance, Progressive, Stadium TranceПродолжительность: 09:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A6C02A5122BBF19757A5D45BF8B02D5AABA153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034823   (632593) от 14.07.2016
-
-Tinsley Ellis - Red Clay Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
+Smokey Fingers - Columbus Way (2011) [FLAC|Lossless|image + .cue] <Southern Rock, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632593.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. All I Think About
-02. Givin' You Up
-03. Callin'
-04. Anything But Go(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:36
+01. Old Jack  (03:33) 
+02. The Lover  (04:45) 
+03. Chains Of Mind  (04:47) 
+04. Born To Run  (04:40) (   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 00:58:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDB1F609EA4B8D576FBD2B62FC4DC5B5092FF1CB
+magnet:?xt=urn:btih:A05ACE9680BAE9A0F6741A468458350B4971A64F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034582   (632592) от 14.07.2016
+###  Публикация: 1143384   (635389) от 18.06.2017
 
-Adrenaline Mob - Men Of Honor (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+Omen - Hammer Damage (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632592.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Mob Is Back    04:34
-02.  Come On Get Up    04:10
-03.  Dearly Departed    04:57
-04.  Behind These Eyes    05:33(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:05:05
+01. Hammer Damage
+02. Chaco Canyon (Sun Dagger)
+03. Cry Havoc
+04. Eulogy for a Warrior(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30D8B35883C8E5CCB3004D999D85CA2F7ABB8D21
+magnet:?xt=urn:btih:5836985D037314FDFB2B4DA00EE0FFF58A0DC2BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,86 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035018   (632591) от 14.07.2016
+###  Публикация: 1143286   (635388) от 18.06.2017
 
-Audioglider - Subaquamarine (2016) [FLAC|Lossless|tracks] <Deep House, Progressive House, Electronica>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stockholm Syndrome
-02. Aerial View
-03. Edison Spark
-04. The Keymaster(   Читать дальше...   )Жанр: Deep House, Progressive House, ElectronicaПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AEE8A89D890AFACDF446206F98560C4EED0894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034858   (632590) от 14.07.2016
-
-Jon Secada – Heart, Soul & A Voice (1994) [APE|Lossless|image + .cue] <RPop Rock, Rhythm & Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whipped
-02. Take Me
-03. If You Go
-04. Good Feelings(   Читать дальше...   )Жанр: RPop Rock, Rhythm & BluesПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF5D7F2B00441E737F7A716692DD23A171BD5F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034913   (632589) от 14.07.2016
-
-Third World War - Third World War 2 (1973) 2001, TW Records [MP3|320 Kbps] <Hard Rock, Blues Rock, Rock & Roll>
+The Black Sorrows - Certified Blue (2014) [FLAC|Lossless|tracks + .cue] <Roots Rock, Funk, Blues>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632589.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Yobo
-2. Urban Rock
-3. Coshing Old Lady Blues
-4. Rat Crawl(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Rock & RollПродолжительность: 00:35:46
+01. Roaring Town  (03:17) 
+02. Certified Blue  (04:00) 
+03. Can't Give Up On You  (03:33) 
+04. Wake Me Up In Paradise  (04:38) (   Читать дальше...   )Жанр: Roots Rock, Funk, BluesПродолжительность: 01:01:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B128984139F6CEF1C8844882DB61C7F87BD63441
+magnet:?xt=urn:btih:7D11F8A81ED03052E7D5C50B7024F159CD418C6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +85,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034911   (632588) от 14.07.2016
+###  Публикация: 1143373   (635387) от 18.06.2017
 
-Third World War - Third World War (1971) 2001, TW Records [MP3|320 Kbps] <Hard Rock, Rock & Roll, Psychedelic Rock>
+Mcdougall - Reaching for Some Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roads  (03:59) 
+02. Stranger on the Prairie  (04:55) 
+03. Shaken  (04:14) 
+04. Ten Speed  (04:28) (   Читать дальше...   )Жанр: Blues, Folk, RockПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E564A74A43DFE3DC5838D70814FA97717E46E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143557   (635386) от 18.06.2017
+
+Echobelly - Anarchy and Alchemy (2017) [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock, Britpop>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632588.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Ascension Day
-2. M. I. 5's Alive
-3. Teddy Teeth Goes Sailing
-4. Working Class Man(   Читать дальше...   )Жанр: Hard Rock, Rock & Roll, Psychedelic RockПродолжительность: 00:39:57
+01. Hey Hey Hey
+02. Firefly
+03. Anarchy and Alchemy
+04. Reign On(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, BritpopПродолжительность: 00:40:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F988F982D36DF2276BCFA1329EB9E629446E614
+magnet:?xt=urn:btih:DCBB5067D6AD18AEC2E48C2FA1BC3655AB5B01A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,492 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034867   (632587) от 14.07.2016
+###  Публикация: 1143395   (635385) от 18.06.2017
 
-VA - LUXEmusic - Топ Июнь (2016) [MP3|320 Kbps] <Club House, Deep House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Gaudino Vs Nari And Milani - MangoMan (Filatov & Karas Extended Remix)
-02. Art Brothers & All Stars - BetonoMASHalka #1 (Dmitry V Crazy Mash)
-03. Calvin Harris ft. Rihanna - This Is What You Came For (Chippon Remix)
-04. Carlas Dreams - Sub Pielea Mea #Eroina (DJ Denis Rublev & DJ Alixs Remix)(   Читать дальше...   )Жанр: Club House, Deep House, Electro HouseПродолжительность: 03:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB553BE65D1D8CB3BB2CC549CFD589B757E75C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034814   (632586) от 14.07.2016
-
-VA - Open Oceans - Trance Session (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632586.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Relocate & Robert Nickson -  Initium (Ferrin & Morris Remix) 7:40
-002. Feel & Aelyn -  If You Feel Love 7:46
-003. Kaimo K -  Peek-A-Boo 7:08
-004. Alexander Spark -  Octavus 5:40(   Читать дальше...   )Жанр: Trance, Melodic, HarmonicПродолжительность: 12:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4394B11052325AD4C02B9D169CE63D7EFFF9B19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034978   (632585) от 14.07.2016
-
-Koan - Placidity (2016) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiction Pt. 1 (Placidity Mix) (8:51)
-02. Calm (Placidity Mix) (8:24)
-03. Evening Delusions (6:16)
-04. Out of Focus (Placidity Mix) (7:13)(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 02:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47915793186ADF6390157CCB0C562ABD9B697FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034991   (632584) от 14.07.2016
-
-Blocs 2.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой способ создания красивых сайтов.
-Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
-
-Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 июля 2016Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ABABA480305CC4A64FDA9DA7C0366581AAF4CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520352   (632583) от 08.07.2012
-
-Робокоп / RoboCop (2014) [Н264/720p-LQ] HDTVRip [Трейлер] [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши дни, Лос-Анджелес. Двадцать лет спустя после закрытия программы «Робокоп», городские власти решают возобновить проект.Жанр: Фантастика, БоевикРежиссер: Жозе ПадильяАктеры: Гари Олдман, Сэмюэл Л. Джексон, Юэль Киннаман, Эбби Корниш, Хью ЛориПеревод: ОтсутствуетФормат: MKVПродолжительность: 00:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E2ACE521127630002655A6AB37D60E2EAAC766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520348   (632579) от 08.07.2012
-
-Андрей Заморский | Создание сцены разрушений при помощи Nuke и 3ds max (RayFire, FumeFX) [2012] PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Работа с видеоПродолжительность: 05:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E99882F28DEBE5942BEDE9BBB5B745507FB56D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520361   (632575) от 08.07.2012
-
-Александр Кузьменко | Cinema 4D для начинающих [2011] PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632575.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нашем курсе мы познакомимся c: моделированием, освещением, материалами, анимацией. Также автор делится практическими советами, чтобы вы не совершали лишних ошибок и как нельзя лучше насладились работой в Cinema 4D. Сравнивается рендеринг с Global Illumination и без. Подробно рассматриваются принципы навигации. Просмотрев этот пятичасовой курс хотя бы затем, чтобы оценить не удавшиеся шутки автора, вы сделаете свои первые шаги в работе с этой замечательной программой.Жанр: Работа с графикойПродолжительность: 04:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266225F36B43CFFEA64597AED02335589F43F3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520173   (632569) от 08.07.2012
-
-Андрей Заморский | Уроки по Nuke для начинающих [2011] PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоуроки предназначены для начинающих работать в программе Nuke. Все уроки побиты по разделам. Раздача будет обновляться по мере записи новых уроков. Не сделает из вас супер-мега композеров, но научит азам работы в программе. В сборке также присутствуют некоторые материалы по урокам и сцены.Жанр: Работа с видеоПродолжительность: 12:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A869A41FBD7698439BC49D8867B89FB409A085F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520148   (632568) от 08.07.2012
-
-Endless Space (L) [Multi3/-] 2012
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Endless Space – космическая стратегия в смешанном времени (то есть и пошаговая, и в реальном времени). В основе сюжета противостояние восьми цивилизаций, каждая из которых стремится захватить власть над звездами, вам придется управлять одной из них, и привести нацию к победе. В игре существуют разные способы стать победителем. Например, вы можете победить не вступая в битву – с помощью торговли или дипломатии, а можете накопать много-много артефактов ушедших эпох, или стать доминирующей добывающей фракцией, которая контролирует огромное количество полезных ископаемых. Можно унизить врага, раньше всех открыв какую-либо сверхтехнологию, что позволит победить в научном плане, ну а можно просто построить два-три боевых флота с мощнейшими орудиями и отправиться покорять галактику с лазерами, ракетами, и прочими средствами донесения ваших аргументов до оппонента. Притом каждая дорога действительно работает, пусть и не у всех держав – некоторые предпочитают вести войну, какие-то вообще для нее не приспособлены, а третьи могут делать и то и то, вот только крайне средне...(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Amplitude StudiosЖанр: Strategy (Turn-based / Grand strategy) / 3D / IndieЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5F0BD80A37287DC5F61D236AC53A2E0237C0DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520564   (632567) от 08.07.2012
-
-S.T.A.L.K.E.R. - Потерянный Мир. Месть Зоны (Mod/Add-on/1.0006) [Ru] 2010
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632567.jpg" />
-</div>
-
-
-###  Подробнее
-
-В общем и целом, игра делает уверенный шаг к реализму и, что важно, геймплею. Тут вы не найдёте винигрета из сотен стволов и кучи бессмысленных новшеств: в игру добавляется только то, что соответствует атмосфере игры. В игру возвращены очень многие локации из ранних билдов, а также локации “чистого неба” и “зова припяти”. Теперь мы действительно можем пройтись по всей зоне, а не по маленькому кусочку.(   Читать дальше...   )Тип издания: ПираткаЖанр: Action (Shooter) / Standalone Add-on / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11B73531A4D0580E7205E26AF0D099C2837A93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520081   (632565) от 08.07.2012
-
-Остров сокровищ / Treasure Island (2012) HDRip
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта новая адаптация любимого классического романа Р.Стивенсона применяет свежий и смелый подход, чтобы создать захватывающую, остросюжетную картину. Двухсерийная драма повествует о Джиме Хокинсе, который неожиданно вливается в мир пиратства, когда обнаруживает карту сокровищ капитана Флинта. Но Долговязый Джон Сильвер не остановится ни перед чем, чтобы прибрать всё (   Читать дальше...   )Производство: Великобритания, ИрландияЖанр: ПриключенияРежиссер: Стив БэрронАктеры: Эдди Иззард, Тоби Регбо, Руперт Пенри-Джонс, Дэниэл Мейс, Филип Гленистер, Дональд Сазерленд, Элайджа Вуд, Ширли Хендерсон, Нина Сосанья, Джофф БеллПеревод: Профессиональный многоголосный - (лицензия)Продолжительность: 03:02:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520445   (632564) от 08.07.2012
-
-Golden Boy / Золотой парень [1995, OVA, 6] DVDrip upconvert raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кинтаро — 25-летний парень, он занимается тем, что фантазирует, ищет работу и, конечно, прелестных девушек. Он путешествует на своём велосипеде, ведя таким образом весьма счастливую жизнь.Его босс, как правило, это красивая девушка, которая его совершенно не уважает. Босс находит его весьма тупым и после некоторого времени увольняет его. Но в конце всегда происходит какое-нибудь маленькое событие, которое заставляет девушку, ненавидевшую Кинтаро, влюбиться в него. Но слишком поздно, потому что Кинтаро уже уезжает на своём велосипеде, отправляясь в новое путешествие.
-
-Достаточно интересное аниме с приятной рисовкой и незамысловатым юмором.Жанр: комедия, приключения, этти, романтикаРежиссер: Китакубо ХироюкиПродолжительность: OVA, 6 эпизодов по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C3FAB5C46FFB3A3F61FD6921772133D78F3E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519234   (632560) от 08.07.2012
-
-S.T.A.L.K.E.R: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыля [Ru/Ua] (RePack/1.0006) 2012 l kuha
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632560.jpg" />
-</div>
-
-
-###  Подробнее
-
-S.T.A.L.K.E.R. - Игра в жанре survival FPS, действие которой разворачивается в недалеком будущем в Чернобыльской зоне отчуждения.
-Игрок станет сталкером - охотником за "артефактами", излучающими аномальную энергию Зоны. По мере прохождения игры он побывает в Мертвом Лесу, городах Припять и Чернобыль, проникнет внутрь саркофага Чернобыльской АЭС, пройдет по реально существующим местам в эпицентре произошедшей трагедии. Возвращаясь из полыхающей радиацией Зоны игрок будет продавать добытые аномальные образования подпольным торговцам и ученым в научных лагерях на границе Зоны. За полученные деньги игрок будет покупать аппаратуру, оружие и защитные скафандры, которые позволят проникать в ранее недоступные области.
-Игра создана как предупреждение перед опасностью неосторожного обращения с силами природы.(   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Action (FPS)Язык озвучки: Русский, УкраинскийЯзык интерфейса: Русский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54668AF3CDE10EF86B4C4ED96B528E3071C1DFAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801825   (632553) от 03.07.2014
-
-VideoHive - Blinds - 7916647 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крутой показ ваших слайдов(видео) с динамическими переходами.
-Многофункциональное слайдшоу.
-Включает в себя четыре версии различающихся по количеству слайдов.
-Blinds(англ) - шторы, но эффект больше похож на полоски, которые(   Читать дальше...   )Формат: AEPРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6403CCBB0686F678838BDD93A3AF53482BCA3251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801508   (632546) от 03.07.2014
-
-Лига Справедливости: В ловушке времени / JLA Adventures: Trapped in Time (2014) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Величайший злодей всех времён, Лекс Лютор, побежден Лигой Справедливости. Он погребён в безжизненной ледяной пустыне. Но наступил 31-ый век. Время мира и спокойствия. А Каратэ-Киду не терпится вступить в Легион Супергероев. И вот, находясь в музее с Венерой, он случайно, хвастаясь своими навыками, освобождает замороженного в глыбе льда Лекса Лютора. Оказавшись в (   Читать дальше...   )Производство: США / Warner Bros. AnimationЖанр: Мультфильм, Фантастика, БоевикРежиссер: Джанкарло ВолпПерсонажи: Дидрих Бадер, Лора Бэйли, Данте Баско, Кори Бертон, Грэй ДеЛисл, Джек Де Сена, Майкл Донован и др.Перевод: Многоголосый закадровый (SkyeFilmTV)Язык субтитров: Английский, Французский, Испанский, Португальский, Китайский, ТайскийПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78BF4461ED3141A00FC7B9171789F47AAEB5AC93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801667   (632544) от 03.07.2014
-
-VideoHive - Emerging Photo Slide - 7921909 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поскольку автор решил не утруждать себя описанием проекта, пусть это будет универсальное слайдшоу на все случаи жизни.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4A83B5D489D1E360AE1F6AC7314ADBDECB2ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 681958   (632534) от 22.07.2013
-
-Alice Francis - Gangsterlove (2013) [MP3|320 кб/с]<Nu Swing, Nu Jazz, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gangsterlove (Shiny Mob Remix) 04:08
-02. Gangsterlove (Sound Nomaden Remix) 04:11
-03. Gangsterlove (Alle Farben Remix) 08:01
-04. Gangsterlove (Tune Brothers Vocal Club Mix) 06:32(   Читать дальше...   )Жанр: Nu Swing, Nu Jazz, ElectronicПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0055D6002942DAD9E83475BAF55D1669C6D22F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034798   (632518) от 14.07.2016
-
-Erika - Deaf Dumb & Blonde (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+Sherpa - El Rock Me Mata (2007) (ex - Baron Rojo) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632518.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Killer
-02. Heroes Of Heartbreak
-03. Suckerpunch
-04. Drama(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 0:42:47
+01 Guerrero en el desierto
+02 Son com hormigas
+03 El malo
+04 Flor de invernadero(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A045EDB24DD5CBD77A46D1D288341C2CB9596FB
+magnet:?xt=urn:btih:6431FA9AD0E5BC86A0597AB521FA311397A606FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +172,554 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034989   (632517) от 14.07.2016
+###  Публикация: 1143463   (635384) от 18.06.2017
 
-Solid Stone - Introspection (2016) [MP3|320 Kbps] <Progressive House>
+VA - Ibiza House Opening 2017 - House & Chill Music At Its Best (2017) [MP3|320 Kbps] <House, Electro>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632517.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Solid Stone - Introspection (5:09)
-02. Solid Stone - Broken (6:28)
-03. Solid Stone & Wellenrausch - Ursa Major (7:21)
-04. Solid Stone - Profound (4:49)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:37:01
+1. Housework - Loose My Mind (Hypnotic Slide mix) (06:20)
+2. Cachar - Don't Stop The Houseparty (The Rough cut) (07:48)
+3. Cinematic - Airflow (Chillhouse mix) (07:05)
+4. Adriatic Grooves - Zoom Zone (Ibiza Flow mix) (06:25)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 06:04:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61526094E2D10556B47BB07AB8C93A7C4A1CDC7D
+magnet:?xt=urn:btih:E4B072089AA96B4693CDDB53A9D31C45B7D06308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143615   (635383) от 18.06.2017
+
+Орел и решка. Перезагрузка (2017.06.18) WEB-DLRip (сезон 14: Чикаго)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0E96D5A4BBB264AE05EF4DDA8DEBCAF6F5838A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143612   (635382) от 18.06.2017
+
+Орел и решка. Рай и ад (2017.06.18) WEB-DLRip (сезон 13: Адская Аккра)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635382.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нелегкого испытания под названием «Кругосветка» ведущие Регина Тодоренко и Леся Никитюк снова вместе отправляются в путешествие. В 13-м сезоне проекта они посетят самые райские и самые адские уголки нашей планеты. Их ждут волшебные тропические курорты и самые опасные места на Земле.
+В первом выпуске шоу Орел и решка. Рай и ад Леся и Регина будут искать рай (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F151DC263114D16F2AFA200EA93AB5ABBDD650C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143389   (635381) от 18.06.2017
+
+Miss Tess - Baby, We All Know (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, World, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride That Train  (03:09) 
+02. Little Lola  (04:08) 
+03. It's So Easy To Tell  (03:16) 
+04. I Can't Help Myself  (04:36) (   Читать дальше...   )Жанр: Blues, World, CountryПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18F7129E8A010EC1F4888CA695521810DE18B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143530   (635380) от 18.06.2017
+
+Jeff Jensen - The River City Sessions (2016) Live [FLAC|Lossless|WEB-DL|tracks] <Blues, Guitar Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (Live)  (00:53) 
+02. T-Bone Shuffle (Live)  (05:33) 
+03. Make It Through (Live)  (03:42) 
+04. Empty Bottles (Live)  (05:31) (   Читать дальше...   )Жанр: Blues, Guitar BluesПродолжительность: 01:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CEF272CF303EF830AF114563BCAD91276B8661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143679   (635379) от 18.06.2017
+
+Sabre, Stray, Halogenix - Oblique (2012) [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabre, Stray, Halogenix, Frank Carter III - Oblique (06:26)
+ 02. Sabre, Stray, Halogenix - St. Clair (05:40)
+ 03. Sabre, Stray, Halogenix - Oblique (Synkro Remix) (07:09)Жанр: Drum & BassПродолжительность: 00:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E136ED684005D72849EF5196FD92075A7F59B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293522   (635378) от 04.04.2019
+
+Векторный клипарт - Hello Spring - 16 - Vector Graphics [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Здравствуй, весна.
+6 EPS + PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D7AECAA0CF3CAC4172854659A66550DDC4335F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293533   (635377) от 04.04.2019
+
+Прощание. Евгений Леонов (03.04.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евгений Леонов мог бы прожить гораздо дольше, если бы не страшные переживания 90-х, когда актёр страдал из-за всех перемен в стране, из-за безденежья вынужден был соглашаться на роли в ужасно пошлых фильмах. 29 января 1994 года Леонов готовился к спектаклю "Телекомпания: ТВЦЖанр: Документальный, БиографияПеревод: ОтсутствуетПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D2228442DCBFF2E1C302EFE432BA849A9A3C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293713   (635376) от 04.04.2019
+
+Mystery Tales 11: Dealer's Choices (2019) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мистическое продолжение увлекательной серии игр Mystery Tales. Вы получили приглашение совершить увлекательный игорный круиз! "Принцесса Лолита" готова к отплытию, и вы со своим другом на ее борту . Однако вскоре вы понимаете, что удача от вас отвернулась - ваши партнеры по игре умирают один за другим.Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710CFA47C598D4D95DA7CC923DF4BD09CF77A2CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293711   (635375) от 04.04.2019
+
+Векторный клипарт - Hello Spring - 5 - Vector Graphics [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Розовые фоны с весенними цветами - вектор. Здравствуй, весна.
+12 EPS + PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F76813499C88F7BDA7BEA918C6C47BC9CA5503F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293645   (635374) от 04.04.2019
+
+ST - Поэт (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Каренина
+02. Счастье Любит Тишину
+03. Моя Вина
+04. Восьмой Ряд(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680390EE845EBE61873F46944C2A4225D522B2EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293636   (635373) от 04.04.2019
+
+Векторный клипарт - Cute little animals - Vector Graphics [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жираф, поросенок, носорог, змея, акула,мышь, кот, лиса, медведь - смешные и забавные векторные рисунки.
+20 EPS + PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DA638C44304069E81B97551E78B2D225C37905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293691   (635372) от 04.04.2019
+
+Векторный клипарт - Animals - Vector Graphics [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Нарисованные животные.
+14 EPS + PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E5D02E893A34E9A08D16FC6FD530A07F1C262A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293652   (635371) от 04.04.2019
+
+NG: Нефтяное загрязнение столетия / Oil Spill of the Century (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635371.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 марта 1978 года: Амоко Кадис, супертанкер, загруженный 220 тысячами тонн нефти, потерпел крушение на подводных рифах близ города Портсаль в провинции Бретань, Франция. Катастрофа вызвала сильнейшее загрязнение нефтью в истории Франции, которое до сегодняшнего дня считается одной из крупнейших экологических катастроф 20 века. Что осталось от этой катастрофы 40 (   Читать дальше...   )Производство: Франция, National GeographicЖанр: ДокументальныйРежиссер: Фабрик ГардельПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E1AC28F293FE977C0E04F602EA6DD367824618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293526   (635370) от 04.04.2019
+
+Векторный клипарт - Travel in space - Vector Graphics [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Путешествие в космос.
+10 EPS + PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B063A77E7CFA2A06B0AE9227E8992555281D8C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293554   (635369) от 04.04.2019
+
+VA - Four Guitars (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Easy Listening, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Todd Mosby, Vin Downes, Trevor Gordon Hall & Will Ackerman - August Light
+02. Trevor Gordon Hall, Vin Downes & Will Ackerman - The Blue Hour
+03. Todd Mosby, Trevor Gordon Hall & Will Ackerman - Dolphin Song
+04. Will Ackerman - The Impending Death of the Virgin Spirit(   Читать дальше...   )Жанр: Acoustic, Easy Listening, GuitarПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD7137FC45F95A5DA08DBEDC0284722F958E95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293544   (635368) от 04.04.2019
+
+VA - Universal Progressions (2019) [MP3|320 Kbps] <Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Roger Rabbit - The Last Day (6:53)
+02 - Tristate - Logic Levels (Gipsy Soul Rmx) (8:27)
+03 - Kalki - The Sun God (6:52)
+04 - Starseed - Digital Udgitha (7:28)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1F3E61EE4A928C87B4F4068B2543809BDD8285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293723   (635367) от 04.04.2019
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (229) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C14E1D2181F1A1924FE7759B1E1B7D4BBC3B31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293445   (635366) от 04.04.2019
+
+VA - Italo Disco: Instrumental Versions (2016) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Pop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jules - I Want To (Instrumental Version) (6:44)
+02. Webo - Magic Moment (Instrumental Version) (5:58)
+03. Facts & Fiction - Supernova (Instrumental Version) (5:22)
+04. Lime - Unexpected Lovers (Instrumental Version) (5:04)(   Читать дальше...   )Жанр: Pop, Italo-DiscoПродолжительность: 02:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7C27D9D16E7C5A9B41B9EF7CCD2AD33227CB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293579   (635365) от 04.04.2019
+
+Arabesque - Greatest Hits Volume 2 (1993) Unofficial Release [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In For A Penny, In For A Pound
+02. The Hero Of My Lofe
+03. Indio Boy
+04. Billy's Barbeque(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A32EEA493E525D1857C645E5B385B6786F4C7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1178886   (349051) от 31.10.2017
+
+Kreator - Dying Alive 2012 (2013) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Kreator записанный в Turbinehalle (Oberhausen, Germany) 22 декабря 2012 года и выпущенный на CD/DVD/Blu-Ray 30 августа 201301. Intro: Mars Mantra
+02. Phantom Antichrist
+03 .From Flood into Fire
+04. Enemy of God(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262CA364985A2988D399EC8DB3DAF0C2B6512110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179409   (348902) от 31.10.2017
 
 Avantasia - The Flying Opera: Around The World In Twenty Days (2011) BDRip [H.264/1080p-LQ]
@@ -699,34 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73FB3AA23A4AE47B3CE1CC3A12DD296EDAF9F35B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580389   (330717) от 01.10.2022
-
-МузЛофт / МузLoft. SHAMAN (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330717.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-SHAMAN. Впервые поёт дуэтом. О мистическом образе и любви женщин.
-Всем SHAMAN, то есть привет! Сегодня в гостях, пожалуй, главное музыкальное открытие 2022 года. А может и не только музыкальное. Талантливый и загадочный SHAMAN расскажет вам о своём долгом пути до (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: PopЯзык озвучки: РусскийПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D051DC52F811BA5BB083F8BD53274B57D4020E82
 ```
 
 https://mybot314.ru/tekegram_catalog/

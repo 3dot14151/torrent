@@ -1,3 +1,119 @@
+###  Публикация: 1466244   (1018604) от 29.04.2021
+
+Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreign Affair (4:06)
+02. To France (4:48)
+03. Family Man (3:46)
+04. Everytime We Touch (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6D82BD1F41308EE6F81C0E15003EC736F5A8A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466482   (1018435) от 30.04.2021
+
+Amy Shark - Cry Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wolves (02:53)
+02. Everybody Rise (03:11)
+03. Worst Day of My Life (03:01)
+04. C'MON (feat. Travis Barker) (03:40)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152A724D542523A60571BFB6E342638BDB71789A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466652   (1018261) от 01.05.2021
+
+Dalida - Dans la ville endormie (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson française>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dans la ville endormie (3:08)
+02. Eux (2:21)
+03. Et la vie continuera (3:28)
+04. L'amour qui venait du froid (3:55)(   Читать дальше...   )Жанр: Pop, Chanson françaiseПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F43BABE99AD07E916DD76BD4C703E094A76F9EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467290   (1017915) от 03.05.2021
+
+VA - Ultimate Chillout (2017) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Chillout>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник не претендует на какую то супер-пупер новизну. Но Соня подобрала исключительно треки для хорошего отдыха по принципу - "поставил и слушаешь всё подряд". А что ещё нужно в такие длинные майские выходные? Серия Ultimate довольно скромно представлена на нашем трекере (ссылка внизу), но все релизы - это must have. ИМХО.CD1:
+01. George Ezra - Budapest  (3:24)
+02. First Aid Kit - My Silver Lining  (3:35)
+03. Lucy Rose - Like an Arrow  (3:28)(   Читать дальше...   )Тип издания: Box Set, 4 CDРелиз состоялся: 10 марта 2017 годаЖанр: Pop, Dance, ChilloutПродолжительность: 04:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4116C691AD122172619C7FE5F431318747DADFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468420   (1017246) от 07.05.2021
 
 Emma Stevens - Light Year (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -630,122 +746,6 @@ Ryan Adams ‎ - Big Colors (2021) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DADDA8DB4CE4991A52E5BB75C12FC2A41490A54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477182   (1010807) от 16.06.2021
-
-Sophie Ellis‐Bextor - Trip the Light Fantastic (2007) [FLAC|Lossless|tracks + .cue] <Europop, Electro, Synth-pop >
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catch You (radio version)
- 02. Me and My Imagination
- 03. Today the Sun’s on Us
- 04. New York City Lights(   Читать дальше...   )Жанр: Europop, Electro, Synth-popПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58457BDDB126A785DA8B748B38B313DF1F8F30E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477959   (1010663) от 17.06.2021
-
-VA - Vaccine of Sadness (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Rodrigo - drivers license (04:02)
-02. Lewis Capaldi - Someone You Loved (03:02)
-03. Maroon 5 - Sad (03:14)
-04. Lady Gaga - Dope (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2675A0334D5A744A1653DE73D56D29E81B9AF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478588   (1010195) от 20.06.2021
-
-VA - Goodbye My Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marshmello - Leave Before You Love Me (02:35)
-02. Katy Perry - The One That Got Away (03:47)
-03. Maroon 5 - Beautiful Goodbye (04:15)
-04. Lewis Capaldi - Before You Go (03:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D968EDED87421EF4C0015B1462CD4BADE890D66F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478646   (1010192) от 20.06.2021
-
-VA - Acoustic Summer 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Wild World (Acoustic) (03:20)
-02. Shannon & Keast - Do I Wanna Know (Acoustic) (04:17)
-03. Logan York - Cheerleader (Acoustic) (03:36)
-04. Talisha Karrer - Everybody Hurts (Acoustic) (03:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D45AF5D5E0EA4EB4EF907D7CE452F61B75B9D57
 ```
 
 https://mybot314.ru/tekegram_catalog/

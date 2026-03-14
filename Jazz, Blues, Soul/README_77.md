@@ -1,3 +1,61 @@
+###  Публикация: 1099361   (905418) от 01.02.2017
+
+Weslia Whitfield - Teach Me Tonight (1997) HighNote[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's A Most Unusual Day [02:35]
+ 02.I've Heard That Song Before [05:34]
+ 03.Almost Like Being In Love [03:07]
+ 04.Teach Me Tonight [04:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067C74EB1E3ACA4ED1955D57337ECAD782AE6756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368806   (905362) от 22.03.2020
+
+Howlin' Wolf - The London Howlin' Wolf Sessions (Deluxe Edition) 2CD (1971) [FLAC|Lossless|tracks + .cue] <Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Daddy
+02. I Ain't Superstitious
+03. Sittin' On Top Of The World
+04. Worried About My Baby(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 01:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB1FB2D5CC9A12A103C514AE8F5C93820300A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099354   (905326) от 01.02.2017
 
 Thelonious Monk - Straight, No Chaser (1967) 2002, Sony[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Big Boy Bloater & The Limits - Luxury Hobo (2016) [MP3|320 кб/с] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A63867CACA84F0C45D53BCF8A8D4A7D17EED81C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369598   (902118) от 24.03.2020
-
-Oscar Peterson & Dizzy Gillespie - 1974 (1987) Pablo [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caravan [7:02]
-02. Mozambique [7:09]
-03. Autumn Leaves [7:25]
-04. Close Your Eyes [5:25](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC27B49C6DD65C83DA2FE575EAEF337463B0A4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369449   (902020) от 24.03.2020
-
-Jeff Golub - Soul Sessions (2003) [FLAC|Lossless|image + .cue] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boom Boom
-02. Playin' It Cool
-03. Cadillac Jack
-04. Underneath It All(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AB8FCF6351D22D04FCD2F40B0271D078F295F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1705293   (113856) от 08.03.2024
+
+Eric Warren - Reminisce (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fake It (3:13)
+02. Breakdown (3:11)
+03. Nothing Could Come Between Us (3:35)
+04. Leader of Men (3:36)(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Hard RockПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E45570109618A907C283EFDDB3527A2BB3E4FC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705387   (113855) от 08.03.2024
+
+Paul Winter (Пол Уинтер) - Concert For The Earth (Концерт Земле) (1985) 1987 [FLAC 24/192|Lossless|tracks] <Jazz, Pop, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Звуки над водой. Sound Over All Waters.
+02 - Колыбельная матушки Китихи маленьким тюленям. Lullaby From The Great Mother Whale For The Baby Seal Pups.
+03 - Песня Земле. Song For The Earth. (Джим Скотт, вокал)(   Читать дальше...   )Жанр: Jazz, Pop, FolkПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1724DCF1C790729F91E7114C0A378FA8EF263D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705286   (113849) от 08.03.2024
+
+Antar Goodwin - The Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grandma Said (3:26)
+02. Shotgun (3:57)
+03. Tired (4:00)
+04. Angels (5:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4ED0D8B93991D6FF46F9BD41CDA321625CC520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705300   (113844) от 08.03.2024
+
+Rudiger (Rüdiger) Krause - Parallel Real (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Günther Fischer - Walk Don't Walk (4:41)
+02. Tim Sund - Tegel Airport (5:05)
+03. Esther Kaiser - Now Listen To Me (3:29)
+04. Topo Gioia - Pretoria 90 (3:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C131F54019D41057B024855D6DC34F6B03AFD5E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705663   (113833) от 09.03.2024
+
+Jason Derulo - Nu King (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Swing, Rhythm and Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nu King [1:35]
+02 - Spicy Margarita [2:35]
+03 - Mad Love [3:31]
+04 - U + I [3:00](   Читать дальше...   )Жанр: Pop, Swing, Rhythm and BluesПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50C517853177E121A15CD27B787109886EFF009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705688   (113830) от 09.03.2024
 
 Jazz Erotic Lounge Collective, Background Instrumental Music Collective - Sexy Obsession: Jazzy Erotic Sensual (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -600,151 +745,6 @@ Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D59B1DE3FC90C49BC0D5A62FCAC8BDA8BA4AFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706039   (113689) от 11.03.2024
-
-Pantheist - Kings Must Die (2024) [FLAC 24/48; 24/44.1|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kings Must Die (featuring Jake Harding) (14:45)
-02. 1000 Years (Performed at Organic Doom Vol I) (2:51)
-03. O Solitude (Performed at Organic Doom Vol I) (9:53)
-04. Strange Times (Performed at Organic Doom Vol I) (22:04)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357406A46852C24899B1B7E94D988713B6F86429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706254   (113687) от 12.03.2024
-
-The Wicked Lo-Down - Out Of Line (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kill Me Or Keep Me (2:35)
-02. Marchin' On (4:07)
-03. Bogeyman (3:52)
-04. Out Of Line (3:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E549FAEB46D1DC8332811484C57BD052AEB656BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706054   (113674) от 12.03.2024
-
-ВИА «Синяя птица» - Подземный переход (1986) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Подземный переход. (В. Шаинский - С. Алиханов, А. Жигарев)
-02 - Когда-нибудь. (М. Минков - А. Макаревич)
-03 - Здравствуй, как ты живешь? (Т. Ефимов - С. Осиашвили)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7D25F78F67B5744FF1B35E8441ABFB0A9706BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706245   (113672) от 12.03.2024
-
-Bex Marshall - Fortuna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preaching To The Choir (3:40)
-02. Dirty Water (5:27)
-03. I Can't Look You In The Eye (Remastered) (3:22)
-04. 5 AM (4:27)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326F63D12EEE69619B9F091214315149A5053F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706322   (113670) от 12.03.2024
-
-VA - Игра в четыре руки. Песни Аркадия Укупника (1989) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01-Эй, гражданка (В. Гин) – Ирина Понаровская
-02-Пустынный берег (В. Дюнин) – Аркадий Укупник
-03-Ошибка (И. Шаферан) – Алина Витебская(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57324459DB32E1B7E0B60D2FAE394596B7F6D6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,98 @@
+###  Публикация: 499021   (256462) от 21.05.2012
+
+Louis Armstrong - Gold collections [Lossless]<Jazz> 4CD
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone Fishin' (with Bing Crosby)
+02. (I'll Be Glad When You're Dead) You Rascal You (with Louis Jordan)
+03. La Vie En Rose
+04. My Sweet Hunk O'Trash (with Billie Holiday)
+05. Blueberry Hill
+06. (What Did I Do To Be So) Black and Blue
+07. Do You Know What It Means To Miss New Orleans?
+08. I Wonder
+09. When It's Sleepy Time Down South
+10. I'm Confessin' (That I Love You)(   Читать дальше...   )2006Жанр: Jazz, BluesПродолжительность: 01:07:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499690   (256454) от 21.05.2012
+
+Jazzamor - Lucent Touch (2011) [FLAC (tracks+cue)|Lossless]<Acid Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Acid Jazz, LoungeПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498503   (256271) от 21.05.2012
+
+Bernhard Lackner - Stories From Home (2011) [FLAC|Lossless]<Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollywood
+02. The Tribute
+03. Turnaround
+04. That Time Of The Year
+05. Home
+06. You Will Be Missed
+07. European Summer
+08. Two Flies With One Hit
+09. Reprise2011Жанр: Fusion, Jazz-RockПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498501   (256260) от 21.05.2012
 
 Bernd Reiter Quartet feat. Roman Schwaller - Live At The Jazzland-Vienna (2007) [FLAC|Lossless]<Hard Bop, Post-Bop>
@@ -703,111 +798,6 @@ Clifford Brown & Max Roach All Stars - Best Coast Jazz (1954) 2015, Fresh Sound 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A23AB0E6A57B5FC13BDE16286DFA052060F17301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493988   (249133) от 09.05.2012
-
-Jacky Terrasson & Cassandra Wilson - Rendezvous (1997) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249133.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Old devil moon  -  05:47
-2 - Chan's song  -  05:46
-3 - Tennessee waltz  -  04:48
-4 - Little boy lost  -  05:07
-5 - Autumn leaves  -  02:39
-6 - It might as well be spring  -  04:59
-7 - My ship  -  03:25
-8 - I remember you  -  03:03
-9 - Tea for two  -  04:48
-10 - If ever I would leave you  -  05:30(   Читать дальше...   )1997Жанр: Jazz, Vocal.Продолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDDF6AF5D5D785E190EE6131D0294651786F34C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492914   (248874) от 08.05.2012
-
-Oscar Peterson - Exclusively For My Friends 6CD +1CD (1993 & 1996) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravy Waltz (Steve Allen, Ray Brown) – 3:19
- 02. Three O'Clock in the Morning (Julian Robledo, Dorothy Terriss) – 8:45
- 03. Squeaky's Blues (Oscar Peterson) – 7:28
- 04. Tenderly (Walter Gross, Jack Lawrence) – 11:06
- 05. I Will Wait for You (Jacques Demy, Norman Gimbel, Michel Legrand) – 6:53
- 06. Let's Fall in Love (Harold Arlen, Ted Koehler) – 4:28
- 07. Put on a Happy Face (Lee Adams, Charles Strouse) – 6:34
- 08. Stella by Starlight (Ned Washington, Victor Young) – 5:15
- 09. Moanin'' (Bobby Timmons) – 5:38
- 10. Never Say Yes (Doc Pomus, Mort Shuman) – 5:22(   Читать дальше...   )1993 & 1996Жанр: JazzПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493587   (248766) от 08.05.2012
-
-Erroll Garner - The Original Misty (1954) (1988) [FLAC|Lossless]<Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misty (2:49)
-02. Rosalie (2:38)
-03. I've Got The World On A String (4:02)
-04. 7-11 Jump (7:19)
-05. Don't Worry 'Bout Me (5:05)
-06. You Are My Sunshine (3:29)
-07. Part Time Blues (4:35)
-08. All Of A Sudden (3:22)
-09. In A Mellow Tone (4:20)
-10. There's A Small Hotel (3:12)(   Читать дальше...   )1988Жанр: BopПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

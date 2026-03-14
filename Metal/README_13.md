@@ -1,3 +1,29 @@
+###  Публикация: 173067   (951476) от 06.02.2010
+
+Royal Hunt - X (2010) [MP3|320 kbps]<Progressive Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive Melodic MetalПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981847   (950098) от 02.02.2016
 
 S.T.E.A.M - WARP (2016) [MP3|320 кб/с]<Progressive Metalcore, Electronic>
@@ -725,35 +751,6 @@ Grave Digger - Healed By Metal (2017) Deluxe Edition [MP3|320 Kbps] <Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14B8415DA3AC272D5B5912DB2A9F561016B7DEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092722   (938394) от 12.01.2017
-
-Accept - Restless ­And Live (2017) 2CD [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938394.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Stampede
-02. Stalingrad
-03. Hellfire(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6769424DD57FAB7A4738FCC8EC4C81BE34777D
 ```
 
 https://mybot314.ru/tekegram_catalog/

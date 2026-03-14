@@ -1,3 +1,71 @@
+###  Публикация: 599706   (999110) от 07.01.2013
+
+Jane Monheit - 6 Албомов (2000-2009) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like A Star [05:16]
+02. Something Cool [04:57]
+03. Slow Like Honey [05:58]
+04. This Girl's In Love With You [04:56]
+05. I'm Glad There Is You [05:08]
+06. Get Out of Town [03:41]
+07. I Do It For Your Love [04:04]
+08. I Ain't Gonna Let You Break My Heart [05:21]
+09. Ballad of the Sad Young Men [06:01]
+10. No Tommorrow [05:13](   Читать дальше...   )Жанр: Jazz VocalФормат: trac+cueПродолжительность: 001:03:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599562   (999079) от 07.01.2013
+
+Salena Jones - 3 альбома (2007-2011) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Love (based on Albinoni themes) [03:24]
+02. My Reverie (based on Reverie - Debussy) [02:52]
+03. If you are but a dream (based on Reverie - Rubenstein) [04:26]
+04. No Other Love (based on Chanson de L'adieu - Chopin) [03:02]
+05. Moonlight Love (based on Clair de Lune, No.3 from Suite Bergamasque - Debussy) [05:27]
+06. E-Mail Female (based on Humouresque No.7 in G Flat Major - Dvorak) [03:30]
+07. Don't Speak of Me (based on Air on G String/Orchestral Suite No.3 - Bach) [04:39]
+08. Full Moon and Empty (   Читать дальше...   )Жанр: Jazz VocalФормат: image+cueПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600336   (998917) от 08.01.2013
 
 V.A. - Acid Jazz (2011) [FLAC|Lossless]<Acid Jazz>
@@ -817,69 +885,6 @@ VA - Cool Vibes - An Acid Jazz Adventure (1997) [FLAC|Lossless]<Acid jazz>
 08. New Jersey Kings - Green Screen [04:53]
 09. James Taylor Quartet - Summer Fantasy [04:25]
 10. Humble Souls - Beads, Things And Flowersn ( 12'' Humble Souls Mix ) [04:03](   Читать дальше...   )Жанр: Acid jazzПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605624   (995642) от 20.01.2013
-
-Endless Boogie - Full House Head (2010) [FLAC|Lossless]<Blues-Rock, Psychedelic>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empty Eye
- 02. Slow Creep
- 03. Top Dollar Speaks His Mind
- 04. Mighty Fine Pie
- 05. Tarmac City
- 06. Pack Your Bags
- 07. New Pair Of Shoes
- 08. A Life Worth LeavingЖанр: Blues-Rock, PsychedelicПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605735   (995632) от 20.01.2013
-
-Wynton Kelly Trio & Wes Montgomery - Smokin' at the Half Note (1989) [FLAC|Lossless]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Blues  [12:59]
-02. If You Could See Me Now  [08:23]
-03. Unit 7  [06:46]
-04. Four on Six  [06:45]
-05. What's New  [06:11]Жанр: Jazz, Hard BopПродолжительность: 00:41:06
 
 ## Скачать торент
 ```bash

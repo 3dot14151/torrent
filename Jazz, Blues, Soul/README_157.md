@@ -1,3 +1,177 @@
+###  Публикация: 1021039   (740688) от 29.05.2016
+
+Rhythm Zoo - Sold For Love (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sold For Love (06:23)
+02. River Of Tears (02:47)
+03. Coco Blue (04:55)
+04. 12 Bar Blues (04:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332975BDC02D78187AE5FABA20CF210F480CA947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397391   (740465) от 20.07.2020
+
+Nat King Cole - The Quintessence, Vol.1: Los Angeles - Chicago - Hollywood - New York (1936 - 1944) 1995, 2CD, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Piano Jaz ...
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740465.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Sweet Lorraine [2:59]
+02. Honey Hush [2:53]
+03. Jack the Bellboy [2:51](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Piano JazzПродолжительность: 01:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B646E03ED5ADC78149F8C15541D466AF6A47434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397372   (740464) от 20.07.2020
+
+Bill Evans - The Complete Interplay Sessions (1957 - 1962) 2014, 2CD, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740464.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. You and the Night and the Music [7:07]
+02. When You Wish Upon a Star [5:47]
+03. I'll Never Smile Again [6:35](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 02:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9BB21BE3991DED011ECEE8EA548CEF7D40BE15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397469   (740417) от 20.07.2020
+
+Papik & Alfredo Bochicchio - Cocktail Guitar (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il Cielo In Una Stanza
+02. The Look Of Love
+03. Europa
+04. Never Knew Love Like This Before(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED35D0D39E5CEE867C3DC4245B635FE3F999BBE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283296   (740390) от 16.02.2019
+
+Trombone Shorty - Trombone Shorty Meets Lionel Ferbos (2002) 2005, Wise and Barking [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight in Moscow [3:02]
+02. Rock of Ages [2:39]
+03. Mahogany Hall Stomp [3:27]
+04. Embraceable You [2:17](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA898C98318AF1755268A6539BC8A5D0F27B2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283217   (740389) от 16.02.2019
+
+Mina Agossi - Carrousel (2004) Cristal Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vesoncio [4:45]
+02. 3rd Stone from the Sun [5:46]
+03. The End of a Love Affair [3:51]
+04. Identity [4:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547EAAC6320801227E7F4E477856467F3B9118EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217844   (740324) от 07.04.2018
 
 Joe Holiday - Mambo Jazz (1951 - 1954) 1991, Original Jazz Classics [APE|Lossless|image + .cue] <Mainstream Jazz, Cool>
@@ -571,180 +745,6 @@ The Clarence James Project - Brand New Day (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:285E8C133AA38FE19AC8934EFA12765A45C23F5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525881   (739025) от 22.01.2022
-
-Tinsley Ellis - Devil May Care (2022) [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Less Reason (5:09)
-02. Right Down The Drain (5:00)
-03. Just Like Rain (4:30)
-04. Beat The Devil (3:50)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6178474298CD39615C2FB1C10E95A55EDC71B43C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526114   (738819) от 23.01.2022
-
-Charlie Ventura Quartet & Quintet - Complete Verve Studio Sessions (1951 - 1952) 2001, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalon [2:53]
-02. I'm Confessin' [3:07]
-03. Bugle Call Rag [2:50]
-04. Rose Room [2:49](   Читать дальше...   )Жанр: SwingПродолжительность: 01:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5270650604EDD65C4C34A060B741B6F412014D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526175   (738795) от 23.01.2022
-
-D'Sound - 25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flashback
-02. Good Nature (feat. Pher, Cory Henry)
-03. Save Some (feat. Macy Gray)
-04. Right Now (feat. Autumn Rowe)(   Читать дальше...   )Жанр: Acid Jazz, Soul, FunkПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD27E51E7C485F463312268D9DF0435790D6494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526385   (738491) от 24.01.2022
-
-Stanley Cowell Trio - Dancers In Love (2000) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Whole New World [7:53]
-02. Ole Texas [5:24]
-03. Charleston Rag [4:30]
-04. I Never Dreamed [6:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F670BF910D2EF81DA6775425F7E5BED988F34D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526357   (738473) от 24.01.2022
-
-Massimo Farao' Trio - Luiza (2015) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So In Love [6:09]
-02. Beautiful Love [6:43]
-03. Dear Old Stockholm [6:04]
-04. Luiza [5:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A8FBB0344566DD4AF8A0B2BC165E1A0A290BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526269   (738419) от 24.01.2022
-
-Claywood Slim - Social Nomad (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,  Country, Americana>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worn out Boots (3:47)
-02. Ain't No Use (2:40)
-03. All I Want (3:48)
-04. Quarantine (3:15)(   Читать дальше...   )Жанр: Blues,  Country, AmericanaПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA472A6E490CB749B6D0B42EE48EDA2CC2DBAD34
 ```
 
 https://mybot314.ru/tekegram_catalog/

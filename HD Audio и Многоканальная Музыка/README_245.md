@@ -1,3 +1,148 @@
+###  Публикация: 1810663   (17062) от 05.08.2025
+
+Charlie Slavik - A Nice Reminder (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Harmonica>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_17062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Highway Man (3:50)
+02.  Devil Inside (3:24)
+03.  Riding In The Moonlight (4:56)
+04.  Love Me Let Me Go (4:20)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C34F01D9DE73DF45395FA43DC3AE0F0F3D24EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810673   (17061) от 05.08.2025
+
+Dead Romantic - Stay High (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_17061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stay High (3:54)
+02.  My Parade (3:40)
+03.  Haunting (3:46)
+04.  Assassin (3:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327A8742CB74AF438D22740AB6CC4250A11BBCA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810675   (17060) от 05.08.2025
+
+Dj Cult Music - Blues Dreams on the Horizon (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_17060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  No Light in This Room (3:31)
+02.  Back Porch Mojo (3:40)
+03.  Blue Moon Trouble (3:44)
+04.  Chain Smoke Heartache (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32158419B7C4D976FA8FC148F225BC56F3291013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810679   (17036) от 05.08.2025
+
+Leatherjacks - Surviving the Beginning of the End (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_17036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Who Cowers Against the Law (5:02)
+02.  Baby Hit-And-Run (5:02)
+03.  The Last Will Be the First (6:12)
+04.  Mechanimals (4:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCE42A9056C015220ABB58A7145C1C968D8A69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810683   (17035) от 05.08.2025
+
+Mojo Hands - GO! GO! GO! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_17035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Let The Good Times Roll (2:57)
+02.  Bad Case Of Love (3:34)
+03.  I Can Help (3:38)
+04.  Scorched (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8513CF16DAEC1D68007D812CF1C2C819AE0063D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810685   (17034) от 05.08.2025
 
 Roll Mega, Son Little & Eric Krasno - Roll Mega (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rhythm and blues>
@@ -600,148 +745,6 @@ Early Times & the High Rollers - Fallen Angels (2025) [FLAC 24/48|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37CA8A3CAACB65F1B6E3E92838A11BBB095AC01C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799587   (16525) от 28.05.2025
-
-Southbound Snake Charmers - Bonnie vs Clyde (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bonnie vs Clyde (3:31)
-02.  Flying High (3:07)
-03.  When the Lights Go Down (3:43)
-04.  On My Trail (4:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB72A6DB7FFFA9E36C88DD3FF2EAD8D50CF45B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550333   (16454) от 29.05.2025
-
-Slayer (& Kerry King) - Studio Albums (15 releases) (1983-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slayer  — американская метал группа. Коллектив был основан в 1981 году.
-Вместе с группами Metallica, Megadeth и Anthrax, Slayer входит в «большую четвёрку трэш-метала».1983 - Show No Mercy
-1985 - Hell Awaits
-1986 - Reign in Blood
-1988 - South of HeavenЖанр: Thrash MetalПродолжительность: 11:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B376C4729165FA697E8B5322EE2C49EC2831A1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811401   (16229) от 09.08.2025
-
-Bonded - Studio Albums (2 releases) (2020-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bonded - немецкая метал-группа из Дортмунда, Северный Рейн-Вестфалия, сформирована в 2018 году.2020 - Rest In Violence
-2021 - Into BlacknessЖанр: Thrash MetalПродолжительность: 01:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73773B32AB16A077DC84A707CF3750363C1C2149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799859   (16223) от 30.05.2025
-
-Garbage - Let All That We Imagine Be The Light (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Synth-Rock, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - There's No Future In Optimism [3:21]
-02 - Chinese Fire Horse [4:04]
-03 - Hold [4:34]
-04 - Have We Met (The Void) [5:12](   Читать дальше...   )Жанр: Alternative Rock, Synth-Rock, RockПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C46E8B45AC13441BD52D30D0C96F3148A388B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724128   (16201) от 09.08.2025
-
-Wolfskull - Studio Albums (3 releases) (2019-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfskull - хард-рок-группа из Северного Рейна-Вестфалии, сформированная весной 2018 года.2019 - Hexum (EP)
-2022 - Ave GoddessЖанр: Hard RockПродолжительность: 01:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD04781FE46BD68CA7DEC272EDFF82485174D3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

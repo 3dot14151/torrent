@@ -1,3 +1,90 @@
+###  Публикация: 1256437   (357047) от 21.10.2018
+
+Camille Jones - Difficult Guys (2008) [FLAC|Lossless|tracks + .cue] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Difficult Guys (Radio Edit) (3:55)
+02. Difficult Guys (Beatchuggers & Sidelmann Radio) (3:21)
+03. Difficult Guys (Extended Mix) (6:24)
+04. Difficult Guys (Beatchuggers & Sidelmann Club Mix) (6:41)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BBB9094067F397A73D6B15ABCC6E1C8D7FA8D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577400   (357029) от 18.09.2022
+
+VA - Masvingo Phases (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  MBX, EDHI EDWARD -  Phases (Intro Mix)  (5:12)
+02.  Jason Fiero -  Autumn Victory (Extended Mix)  (5:50)
+03.  Duce -  Hypnotized (Extended Mix)  (4:51)
+04.  Leo Lauretti -  Europa (Extended Mix)  (5:38)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3A4CFB80C4C1271E1E8E6EDEAC67BC81DA2993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329172   (356503) от 03.10.2019
+
+Deadmau5 - Here's the Drop! (2019) [FLAC|Lossless|WEB|tracks] <Progressive House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imaginary Friends (Morgan Page Remix) (03:07)
+02. Luxuria (Tinlicker Remix) (06:54)
+03. Coelacanth (Gregory Reveret Remix) (05:00)
+04. Acedia (Rinzen Remix) (05:24)(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B0536870462055B8A9A8A85FDD1251655C22AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072371   (354675) от 12.11.2016
 
 VA - Stil Vor Talent Berlin - Kottbusser Tor (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno House>
@@ -651,93 +738,6 @@ VA - NDATL 10 Year Special Edition 2018 (2018) NDATL Muzik [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38EE88FF2389FD034854678B608DC56AACB20750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331506   (332339) от 15.10.2019
-
-VA - Amsterdam 2019 - Presents By Parquet Recordings (Mixed by Solee) (2019) [FLAC|Lossless|WEB|tracks|image] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rinzen & Evan Casey - Fractal (6:31)
-02. Oliver Winters - Obscurity (6:47)
-03. Alyne - No One Saves You (8:40)
-04. Room Service (DE) - White Line (7:41)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 04:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F73A9E5FF3AE1734015A634381CBF97C9F67B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957476   (327562) от 17.11.2015
-
-Guy J - The Trees, The Sea & The Sun (2015) [FLAC|Lossless|WEB-DL]<Tech House, Progressive House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Trees, the Sea & the Sun (Continuous Mix 1)
-02. The Trees, the Sea & the Sun (Continuous Mix 2)
-03. Argeman
-04. Bungalow(   Читать дальше...   )Жанр: Tech House, Progressive House, TechnoПродолжительность: 05:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23B0333849A4D659BA256150A71A07E8F80C94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582050   (325502) от 07.10.2022
-
-Sasha - LNOE TEN (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sasha & Pumarosa - Just Us
-02. Sasha & Alex Banks - Australia
-03. Sasha & Photek - Aviator
-04. Sasha & Qrion - Dry & High(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2791721778D32DC60355714287F89E9C6BCA1C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

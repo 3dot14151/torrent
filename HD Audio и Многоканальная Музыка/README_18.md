@@ -1,3 +1,151 @@
+###  Публикация: 1396520   (746920) от 15.07.2020
+
+Lift - Lift (1977) Russian text on labels [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Art Rock, Krautrock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746920.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Wasser Und Wein
+A2 ...Fallt Der Erste Reif
+A3 Und Es Schuf Der Mensch Die Erde
+A4 Jeden Abend(   Читать дальше...   )Жанр: Art Rock, KrautrockПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D3BCDADD3CAACA5CA9B3EB783667458A8E77B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524023   (746507) от 14.01.2022
+
+The Beatles - 1962-1966 (1973) Red Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Beat, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746507.jpg" />
+</div>
+
+
+###  Подробнее
+
+LP1
+A1 Love Me Do
+A2 Please Please Me
+A3 From Me To You(   Читать дальше...   )Жанр: Beat, Pop RockПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43605E3D08B535E30D60EEEFB531B46D092426FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524025   (746374) от 14.01.2022
+
+The Beatles - 1967-1970 (1973) Blue Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Beat, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746374.jpg" />
+</div>
+
+
+###  Подробнее
+
+LP1
+A1 Strawberry Fields Forever
+A2 Penny Lane
+A3 Sgt. Pepper's Lonely Hearts Club Band(   Читать дальше...   )Жанр: Beat, Pop RockПродолжительность: 01:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED79CAA200AAA39DE6A04C1F3E3CB96C0EB7126A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 665050   (745721) от 05.06.2013
+
+Muse - 4 Альбома (2001-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Alternative rock, Progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative rock, Progressive rock |Продолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B96F35161B6272AF4CDBE00057B47C5CDCCEF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783781   (743906) от 05.05.2014
+
+Тухманов - По волне моей памяти (1976) [FLAC 2.0 24/192|traks(Vinil-Rip)]<ArtRock, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743906.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 сторона
+1. Я мысленно вхожу в Ваш кабинет (М. Волошин) М. Бади ("Арсенал")  5:04
+2. Из сафо (VII век до н.э.) , перевод В. Вересаева) Наталья Капустина (Вокальная группа "Современник")  5:17
+3. Из вагантов (XI - XIII вв.) , перевод Л. Гинзбурга) Игорь Иванов ("Надежда")  3:02
+4. Приглашение к путешествию (Ш. Бодлер , перевод И. Озеровой) А. Барыкин ("Самоцветы")  4:05
+5. Доброй ночи (П. Б. Шелли) М. Бади ("Арсенал")  3:45
+2 сторона
+1. По волне моей памяти (Н. Гильен , перевод И. Тыняновой) В. Андрианов ("Лейся , песня")  3:45
+2. Сентиментальная прогулка (П. Верлен , перевод А. Эфрон) С. Беликов ("Аракс")  3:57
+3. Сердце моё , сердце (И. В. Гёте , перевод В. Левика) А. Лерман (Вокальная группа "Добры молодцы")  3:58(   Читать дальше...   )Жанр: ArtRock, SchlagerПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1ED3739AAD88257D9482A2DC2525664EF9AF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524455   (743627) от 16.01.2022
 
 Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-Rip] <Easy Listening>
@@ -598,149 +746,6 @@ VA - The Absolute Sound (2015) Japanese Edition [DSD64 2.0|1bit/2822,4kHz|SACD-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:496B270DF427F35C4076D7A78DB3CCDA17BFAAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528134   (735388) от 31.01.2022
-
-Mindfeed - Studio albums (1997-1998) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks +.cue] <Groove Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mindfeed — британская альтернативная метал-группа, основанная в 1996 году при участии Джея Миччича и Глинна Моргана, двух бывших участников прогрессив-метал-группы Threshold.1997 - Perfect Life
-1998 - Ten Miles HighЖанр: Groove Metal, Progressive MetalПродолжительность: 01:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A231979F755B099A6C2B336267244181176891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398644   (735169) от 27.07.2020
-
-Opus - Up And Down (1984) [FLAC|FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735169.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Up And Down
-A2 Vivian
-A3 There Is Need For
-A4 She Loves You(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECBAE82AC36EC834EB4F0F5333B2EA61274C2342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528380   (734969) от 01.02.2022
-
-Terror Universal - Make Them Bleed (2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Groove Metal, Metalcore, Nu-Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passage Of Pain (3:57)
-02. Welcome To Hell (3:42)
-03. Spines (3:18)
-04. Make Them Bleed (3:33)(   Читать дальше...   )Жанр: Groove Metal/Metalcore/Nu-MetalПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4FE99F1112FFEE0A43EEEAA77D20869BC78967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528254   (734968) от 01.02.2022
-
-The Police - Zenyatta Mondatta (1980) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <New Wave, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734968.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Don't Stand So Close To Me
-A2 Driven To Tears
-A3 When The World Is Running Down, You Make The Best Of What's Still Around
-A4 Canary In A Coalmine(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DB0F5B870D7837767EBF598662E29FA2A7E7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528269   (734960) от 01.02.2022
-
-The Police - Ghost In The Machine (1981) Reissue 1982 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734960.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Spirits In The Material World
-A2 Every Little Thing She Does Is Magic
-A3 Invisible Sun
-A4 Hungry For You (J'Aurais Toujours Faim De Toi)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A5903F929D891E628816CC7600C2B8BA038A22
 ```
 
 https://mybot314.ru/tekegram_catalog/

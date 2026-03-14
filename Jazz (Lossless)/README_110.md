@@ -1,3 +1,90 @@
+###  Публикация: 1029195   (682135) от 26.06.2016
+
+Grant Green & Baby Face Willette - Trio/Quartet: Complete Recordings (1961) 2CD, 2014, American Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682135.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Miss Ann's Tempo [05:43]
+02.Lullaby Of The Leaves [07:45]
+03.Blues For Willarene [07:11](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 02:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF951CCD6E25E67A98C9C43742836D62145C267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290243   (680544) от 19.03.2019
+
+Dan Barrett Trio And Quartet - Jubilesta! (1992) Arbors Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You [6:21]
+02. Why Can't You Behave? [5:07]
+03. Jubilesta [3:19]
+04. Then I'll Be Happy [3:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78C5C98398674F23829FDCA3A9D048DB98315BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290246   (680543) от 19.03.2019
+
+Dan Barrett & Blue Swing - Blue Swing (2000) Arbors Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victory Stride [5:16]
+02. Saturday Night Function [5:24]
+03. Christopher Columbus [4:01]
+04. Can This Be Love? [4:28](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F13D4410A8D5CA39432040FCD6EC41AB2DA601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290277   (680542) от 19.03.2019
 
 The Dan Barrett Octet - Strictly Instrumental (1987) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -658,93 +745,6 @@ Nils - Play (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FEE93CC8EF98608EB435CE15D69920F4083CEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290456   (678614) от 20.03.2019
-
-Masahiko Sato - All-In, All-Out (1979) 1991, Sony Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sapajou Walk [6:19]
-02. Grama Grass [7:36]
-03. Salamander [6:28]
-04. Moth Ball [4:26](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A37E62DD7437882E283573FAA69E23CC2CF6FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536120   (678532) от 10.03.2022
-
-Buddy Rich - The Absolutely Essential 3 CD Collection (1930-е - 1960-е) 3CD, 2016, Big3 [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678532.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jim Jam Stomp [2:49]
-02. The Carioca [4:04]
-03. One O'Clock Jump [3:24](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703A2982E591C598DCF29D98EF7664CC0DBDFDD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290389   (678494) от 20.03.2019
-
-Phronesis - We Are All (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678494.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One for Us (09:02)
-2. Matrix for D.A. (07:05)
-3. The Edge (05:57)
-4. Emerald Horseshoe (05:30)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2958B3CEB5CFB1BED0D410CDD18915FBFB8232D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

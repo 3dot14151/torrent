@@ -1,3 +1,29 @@
+###  Публикация: 1071790   (356224) от 11.11.2016
+
+Проекты - VideoHive - Back To School 2 - 12698370 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Back To School 2 - Этот проект может сделать хороший акцент на вашей компании, веб-сайте, кино, документальном фильме, или на чем-нибудь еще, что вам подходит. Просто введите текст, поместите ваши медиа-файлы, и будьте готовы просмотреть результат!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764F49727EFC87171C35C322EB84BD68F152D69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329201   (356140) от 03.10.2019
 
 VideoHive - Complete On-Air Hockey Package 2 - 15673733 [AEP]
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A5D502234A84AAB8778BBF2B5BC5FED3A8F074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072334   (354108) от 12.11.2016
-
-Проекты - VideoHive - Elegant Glossy Identity - 9110508 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для элегантной демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2F39FBE9A3A94A5BDAAFF09414A17005BEBA4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

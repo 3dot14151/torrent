@@ -1,3 +1,38 @@
+###  Публикация: 594727   (133287) от 27.12.2012
+
+VA - Sunset High Dreaming (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alien Bug - Gates To Oblivion (Original Mix) 07:55
+ 02. Ethan - Unforgiven 07:57
+ 03. Protonica - Orion (Ovnimoon Remix) 07:47
+ 04. M.D.K - Mustang (Original Mix) 07:41
+ 05. Squarz Kamel - Together (Ezil & Slider Remix) 07:38
+ 06. Stuart Mc Niven - Surrender (Feat Sharon Fehlberg-Ian Solano Remix) 07:43
+ 07. Poshout - Melorum (Maksim Palmaxs Bootleg) 07:34
+ 08. Anna Lee & Alex Teeb - Driving Juke (Original Mix) 07:28
+ 09. Dmitriy Bulakov - Crux (Sens Remix) 07:27
+ 10. Fortuna And Casus - Sometimes (Rework) 07:23(   Читать дальше...   )Жанр: TranceПродолжительность: 03:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C225F557304B3311EFF3AAACF5D87CFCCF67BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594721   (133246) от 27.12.2012
 
 VA - Ferry Corsten presents Best Of Corsten's Countdown (2012) [MP3|320 кб/с]<Trance>
@@ -778,37 +813,6 @@ VA - Winter Break: Electro House Session (2022) [MP3|320 Kbps] <House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77D345D01C7D24A9FFE669C77026B179880E70EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487361   (129064) от 26.04.2012
-
-VA - DFM - Dynamics from AGR (18.04.2012) (2012) [MP3|320 кб/с]<Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rae - Another Day (James Talk  Ridney Remix)
-02. J Nitti - Deep Down Feat. Shirley Davis (Luigi Rocca Remix)
-03. Tim Royko  Cosmo Klein - Everlasting Now (DBN Remix)
-04. Ron Carroll  Tony Romera feat. Paschan - So High (Silver Sneakerz Remix)
-05. Whiteside Feat. Heather Wilson - Can't Let Go (Slin Project Сlub Mix)
-06. Easy L. - New Day2012Жанр: Progressive HouseПродолжительность: 01:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943BA2AFC240F26900FB795142750C1DAB40968B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1580847   (328004) от 04.10.2022
+
+Def Leppard - CD Collection Volume 2 (2019) Box Set: 7 CD [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Get Rocked
+02. Heaven Is
+03. Make Love Like A Man
+04. Tonight(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 06:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1AD5D9BAEA631D6DF81D091814A422ADA4C9239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957224   (327612) от 17.11.2015
+
+Black Oak Arkansas - Original Album Series (2013) 5CD Box Set [MP3|320 кб/с]<Rock, Southern Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327612.jpg" />
+</div>
+
+
+###  Подробнее
+
+1971 - Black Oak Arkansas
+1972 - Keep The Faith
+1972 - If An Angel Came To See You, Would You Make Her Feel At Home?
+1973 - High On The Hog(   Читать дальше...   )Жанр: Rock, Southern Rock, Rock & RollПродолжительность: 02:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5986049DEF4B8B7E52C1383FAA8242080F082D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 842567   (327304) от 19.11.2014
 
 Queen - Forever (2014) 2SHM-CD, Japanese Edition [MP3|320 кб/с]<Rock>
@@ -690,64 +748,6 @@ Roxette - Look Sharp! (1988) Reissue, 1994, EMI [OGG Vorbis|480 Kbps] <Rock, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEB23CB6BD480956BA5785D50D7BCB282176A792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332101   (318659) от 18.10.2019
-
-Keith Forsey - Dynamite (1981) LP [MP3|320 Kbps] <Electronic, Pop Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me To The Pilot (3:46)
-02. Give Me The Right (3:45)
-03. Don't Be Shy (4:02)
-04. Can't You See It (3:23)(   Читать дальше...   )Жанр: Electronic, Pop Rock, New WaveПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2A2ABAB944F829ED74255AB7A6C477151A899A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582820   (318636) от 11.10.2022
-
-Roxette - Pearls Of Passion (The First Album) (1986) Reissue, Remastered, 1997, EMI [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Deep
-02. Secrets That She Keeps
-03. Goodbye To You
-04. I Call Your Name(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380819C0776E1E088BD71B25AC1F5BF545A3FE67
 ```
 
 https://mybot314.ru/tekegram_catalog/

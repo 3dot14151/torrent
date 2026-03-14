@@ -1,3 +1,32 @@
+###  Публикация: 1094593   (929065) от 18.01.2017
+
+Caro Emerald - Deleted Scenes From The Cutting Room Floor: Acoustic Sessions (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riviera Life
+02. Dr. Wanna Do
+03. A Night Like This
+04. Just One Dance(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D1268D936F4AA4483F63EB1A2C722AAC372D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986898   (927992) от 16.02.2016
 
 Perico Sambeat - Javier Vercher Quartet: Infinita (2007) 2009, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -715,35 +744,6 @@ Big Bad Voodoo Daddy - Big Bad Voodoo Daddy (1994) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34A32C72A5AFC1881CE780CC6644E9EB1EFBBE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489434   (925545) от 16.08.2021
-
-Rod Tate - Back Together (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise (4:45)
-02. Chillin' with Li Li (5:58)
-03. Seaside Resort (5:32)
-04. United (4:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5451DF1F45665DD4E7DFB03311E689B608F6F7CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

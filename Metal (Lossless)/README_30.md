@@ -1,3 +1,293 @@
+###  Публикация: 1470805   (1015337) от 19.05.2021
+
+Mustasch - Killing It For Life (2020) [FLAC|Lossless|image + .cue] <Stoner Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Angels Fear To Tread (4:08)
+02. Ransacker (5:13)
+03. Before A Grave (5:06)
+04. Freddie Mercury (4:53)(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0552C35BDDDC088C3281B6276ED4195A7035E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471046   (1015333) от 19.05.2021
+
+Angel Witch - Angel Of Light (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Turn Your Back
+02. Death From Andromeda
+03. We Are Damned
+04. The Night Is Calling(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57088BB5DD1607E68875A18F39E10928B395E777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471080   (1015332) от 19.05.2021
+
+Angel Witch - As Above, So Below (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Sea Scrolls
+02. Into The Dark
+03. Geburah
+04. The Horla(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712F3674F7DCEB070EA109BE963C4754920FD020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471360   (1015174) от 20.05.2021
+
+Revolverz - Work Hard, Play Harder (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Work Hard, Play Harder
+03. Honey & Cream
+04. Razorsharp Racer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AEDF932C6EA4F84607CB0C57C882B40E0080990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471535   (1015017) от 21.05.2021
+
+Anvil - Pounding The Pavement (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bitch In The Box
+02. Ego
+03. Doing What I Want
+04. Smash Your Face(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8991FF3C5081B641A2E4B2D02335AA22858B2C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471706   (1015009) от 21.05.2021
+
+Artillery - X (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil's Symphony (4:33)
+02. In Thrash We Trust (4:09)
+03. Turn Up The Rage (4:10)
+04. Silver Cross (4:31)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12755F76CF4D7FF2DB563E2678D5E58213E3BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471602   (1015007) от 21.05.2021
+
+Liquid Steel - Mountains Of Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traveller In Time
+02. Victim Of The Night
+03. Heavy Metal Fire
+04. Mountains Of Madness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734FAA7759ECA26ADB13E839FA9909399A413E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471532   (1015006) от 21.05.2021
+
+Agent Steel - No Other Godz Before Me (2021) [FLAC|Lossless|image + .cue] <Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passage to Afron-V (2:15)
+02. Crypts of Galactic Damnation (4:11)
+03. No Other Godz Before Me (4:37)
+04. Trespassers (4:01)(   Читать дальше...   )Жанр: Speed MetalПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3517BCAF4C69E71F879572F1F4A64422B49112AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471619   (1015003) от 21.05.2021
+
+Herman Frank - Two For A Lie (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teutonic Order
+02. Venom
+03. Hate
+04. Eye Of The Storm(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D17A38792ED35A49FED91E42C156A6CF4C399E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471484   (1015001) от 21.05.2021
+
+Artem Illusio - Artem Illusio (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beast (04:16)
+02. The Temple of My Soul (03:49)
+03. Pharaoh (04:58)
+04. Forgiven by the Sun (05:29)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A96C0E1404056B99D69834746CF9DA582D255F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471610   (1014989) от 21.05.2021
 
 Solstice - Casting The Die (2021) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -456,296 +746,6 @@ Silench Crew - Trajan (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Heavy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6F9C643E43A9A43E565757A60F98CF655B09E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473193   (1013887) от 28.05.2021
-
-Cirith Ungol - Half Past Human (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Route 666
-02. Shelob's Lair
-03. Brutish Manchild
-04. Half Past HumanЖанр: Heavy Metal, Doom MetalПродолжительность: 00:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:107A86A66C3C674AC655905F7CAAB0E2E5B8335B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473194   (1013886) от 28.05.2021
-
-Trick Or Treat - The Legend of the XII Saints (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Athena (Intro)
-02. Aries: Stardust Revolution
-03. Taurus: Great Horn
-04. Gemini: Another Dimension(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26003F386A76E328B10CA9331826316C271B7E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473179   (1013877) от 28.05.2021
-
-Trick Or Treat - The Unlocked Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hungarian Hangover (03:52)
-02. Almost Gone (06:01)
-03. I Cavalieri Dello Zodiaco (02:34)
-04. Dragonborn - Skyrim (03:50)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142534F207455723C358F2BB5BC07A12CBAAAB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473171   (1013866) от 28.05.2021
-
-Burning Witches - The Witch Of The North (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter's Wrath
-02. The Witch Of The North
-03. Tainted Ritual
-04. We Stand As One(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED1C5CB485245DFCEFCF13A0A2D315DCA8C386C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473302   (1013850) от 28.05.2021
-
-Silver Talon - Decadence and Decay (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deceiver, I Am (5:25)
-02. Resistance 2029 (4:56)
-03. As the World Burns (5:26)
-04. Next to the Sun (6:31)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED6AD0869BD0865A9A5A8944301FC97F0445816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473191   (1013840) от 28.05.2021
-
-Hellryder - The Devil Is A Gambler (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hellryder
-02. Sacrifice In Paradise
-03. Night Rider
-04. The Devil Is A Gambler(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E58F130AF377C68175A32381DE2AB90CC7816B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473365   (1013731) от 29.05.2021
-
-Apophis - I Am Your Blindness (2006) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013731.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Mount To Redeem 01:23
-2 Sick At Heart 04:32
-3 Welcome To My World 05:47
-4 Extinct Life 06:34(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49809FAC84623CCD9D392D7A63EF5F5A02BE14AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473440   (1013730) от 29.05.2021
-
-Estrella Negra - Estrella Negra (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brujas de Salem
-02. El Enviado
-03. Nazi
-04. El Regreso(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0D797F200285BBCFEC38AD403377D6929D38D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473456   (1013728) от 29.05.2021
-
-Iron Jaws - Declaration Of War (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satan's Bride
-02. Speed Metal Commando
-03. The Brawl
-04. The Hell Of Boiling Metal (Big Trouble In Chinatown)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893B1B7FDDA6FC2A41F6D70E03A1D59901BC9983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473433   (1013726) от 29.05.2021
-
-Slizard - Slizard (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monsters
-02. Mr. Hyde
-03. Caught up in the Gears
-04. Crack the Whip(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2802F84A03092FCAB945774773D0B0801F6D9915
 ```
 
 https://mybot314.ru/tekegram_catalog/

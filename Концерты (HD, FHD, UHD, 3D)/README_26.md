@@ -1,3 +1,32 @@
+###  Публикация: 941273   (461767) от 27.09.2015
+
+Rammstein - In Amerika (Disc 1) (2015)  BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein  выпустили DVD «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18.000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live From Madison Square Garden» получит официальный релиз на 2DVD и 2Blu-ray стараниями лейбла Island/UMe. Соединив зажигательное выступление (   Читать дальше...   )01. Rammlied
+02. B*********
+03. Waidmanns Heil
+04. Keine Lust(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC3AD7417E148EC4BF3D3560EF5EE807177E7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941453   (461682) от 27.09.2015
 
 Rammstein - In Amerika (Disc 1) (2015)  BDRip [H.264/1080p]
@@ -697,35 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDDDBE6F395698E71505AB3EDC4F6577E533F590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249616   (430966) от 25.09.2018
-
-Axel Rudi Pell live - Rockpalast (2018) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся 19.05.2018 во время фестиваля Rock Hard в Гельзенкирхене.01. The Wild And The Young
-02. Wildest Dreams
-03. Only The Strong Will Survive
-04. Mystica(   Читать дальше...   )Телекомпания: WDRЖанр: Heavy MetalПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9582B38D953291AA5897367BF77557F04F971D
 ```
 
 https://mybot314.ru/tekegram_catalog/

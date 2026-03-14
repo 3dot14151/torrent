@@ -1,3 +1,119 @@
+###  Публикация: 1482784   (1007305) от 10.07.2021
+
+Rudolf Dasek - Dialogues (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Free Jazz, Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007305.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Enchanted Mill
+A2 If You Wish
+A3 Return
+A4 He's Coming(   Читать дальше...   )Жанр: Free Jazz, Contemporary JazzПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A8860950B8B00202F9E8DCB7B0A1BF801CC830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484067   (1006084) от 19.07.2021
+
+London Symphony Orchestra, Valery Gergiev - Рахманинов, Стравинский - Symphonic Dances & Symphony in three movements (2012) LSO Live [DSD 2.0/5.1 1bit/2822,4kHz |SACD-R] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rachmaninov: Symphonic Dances 36:18
+01. i. Non allegro 12:55
+02. ii. Andante con moto (Tempo di valse) 9:34
+03. iii. Lento assai – Allegro vivace – Lento assai. Come prima – Allegro vivace 13:49Жанр: ClassicalФормат: DST64Продолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95B8F60C9ED9856554A025B1FB0C28FF5AF5937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486001   (1005065) от 28.07.2021
+
+Fleetwood Mac – Rumours (1977) 2011 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Hand News (2:46)
+02. Dreams (4:18)
+03. Never Going Back Again (2:04)
+04. Don't Stop (3:13)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62870034883B1FB434C0A8758A3DDCB96D889423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350156   (1003685) от 04.01.2020
+
+Ray Conniff - The Happy Sound Of Ray Conniff & Love Story (2019) 1974, 1971 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003685.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Happy Sound Of Ray Conniff (1974)
+
+01. I'll Be With You In Apple Blossom Time
+02. You Made Me Love You (I Didn't Want To Do It)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC8F321262E4702BDB4E58280921155B8EF7C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350668   (1002912) от 07.01.2020
 
 Ray Conniff - Laughter in the Rain & Love Will Keep Us Together (2017) 1975 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
@@ -693,144 +809,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C2A7317D47CDAE2A85CB0157AA5A33176DD2B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605263   (995432) от 20.01.2013
-
-Linkin Park - Hybrid Theory (2000/2001) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995432.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Papercut 3:04
-A2. One Step Closer 2:35
-A3. With You 3:23
-A4. Points Of Authority 3:20
-A5. Crawling 3:28
-A6. Runaway 3:05
-B1. By Myself 3:09
-B2. In The End 3:36
-B3. A Place For My Head 3:04
-B4. Forgotten 3:13(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E747D6D4A323544ABAFEAE884BCC79E1448A55F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605570   (995428) от 20.01.2013
-
-Linkin Park - 3 альбома (2002-2007) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995428.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Wake 1:35
-A2. Given Up 3:08
-A3. Leave Out All The Rest 3:18
-A4. Bleed It Out 2:53
-A5. Shadow Of The Day 4:18
-A6. What I've Done 3:51
-B1. Hands Held High 3:51
-B2. No More Sorrow 3:40
-B3. Valentine's Day 3:16
-B4. In Between 3:17(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780F15C460AF0F800E2E8982F6503C4BB177CCBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605588   (995401) от 20.01.2013
-
-Кино (Виктор Цой) - Ночь (1986/1989) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995401.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Видели Ночь 3:09
-A2. Фильмы 4:56
-A3. Твой Номер 3:30
-A4. Танец 4:34
-A5. Ночь 5:32
-B1. Последний Герой 2:16
-B2. Жизнь В Стеклах 3:34
-B3. Анархия 2:46
-B4. Звезды Останутся Здесь	 3:37
-B5. Игра 5:01(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D2EC97B2A2EB19087117CA650C5C8B9183965C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604991   (995385) от 20.01.2013
-
-Кино (Виктор Цой) - 4 альбома (1990-2012) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.- Кончится лето (5:56)
-02.- Красно-желтые дни (5:50)
-03.- Нам с тобой (4:50)
-04.- Звезда (4:30)
-05.- Кукушка (6:39)
-06.- Когда твоя девушка больна (4:22)
-07.- Муравейник (5:17)
-08.- Следи за собой (5:00)Жанр: RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB102A62C4041A392FCCDD6360768FBC5D1F4E57
 ```
 
 https://mybot314.ru/tekegram_catalog/

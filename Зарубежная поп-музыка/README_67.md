@@ -1,3 +1,67 @@
+###  Публикация: 499444   (256425) от 21.05.2012
+
+Tom Jones - Spirit in the Room (2012) [MP3|320 кб/с]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tower Of Song (L. Cohen)
+02. (I Want To) Come Home (P.McCartney)
+03. Hit Or Miss (Odetta)
+04. Love And Blessings (P. Simon)
+05. Soul Of A Man (Blind Willie Johnson)
+06. Bad As Me (T.Waits)
+07. Dimming Of The Day (R & LThompson)
+08. Travelling Shoes (V. Hall Ward)
+09. All Blues Hail Mary (J. Henry)
+10. Charlie Darwin (Low Anthem)Жанр: Pop-RockПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A92C3065CB5C2734ED2B9D270767D3BA70D1205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836884   (255603) от 13.11.2025
+
+VA - Now That's What I Call Music! 27 (1994) 2CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Funk / Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace Of Base - The Sign     03:09
+ 02. Chaka Demus & Pliers (With Jack Radics & Taxi Gang) - Twist & Shout     03:56
+ 03. DReam - Things Can Only Get Better     03:59
+ 04. East 17 - It's Alright     04:41(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Funk / SoulПродолжительность: 02:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C01A20468652A751E2C67CEF3BA0AF80C18CEB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625603   (255299) от 11.04.2023
 
 VA - Mega Hits 2015 (2023) [OGG Vorbis|480 Kbps] <Pop>
@@ -690,64 +754,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67E08CAA7FBF6B32429887F0F8193E1A1E087ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266159   (245027) от 01.12.2018
-
-VA - W9 Hits 2019 (2018) 4CD Multipack [MP3|320 Kbps] <Pop, Dance, Rap>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245027.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Jain - Alright
-02. Kendji Girac - Pour oublier
-03. Maroon 5 - Girls Like You(   Читать дальше...   )Жанр: Pop, Dance, RapПродолжительность: 03:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C96519738B7F800F570D768AC507BCD303EBF47B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452034   (244712) от 05.03.2021
-
-Таисия Повалий - Особенные слова. Исповедь (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244712.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. За спиной
-2. Водопадами
-3. Особенные слова
-4. Лучший друг(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7173ED69EC1E23842578CC4B961CF03C894F73E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

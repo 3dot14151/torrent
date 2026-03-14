@@ -1,3 +1,32 @@
+###  Публикация: 1835675   (251668) от 07.11.2025
+
+VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Menda - Listen
+02 - Mr Salama - Radio
+03 - Dova Music - Golden Night
+04 - Kasimoff - It's Killing Me(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 02:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457BFDFBA2CF764FF91BB432A0AAFC4C4C55D532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618396   (250004) от 11.03.2023
 
 zero-project - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age, Ambient>
@@ -744,35 +773,6 @@ VA - Beatport Club Techno: Sound Pack #248 (2021) [MP3|320 Kbps] <Techno, Tech H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:799DD7ADA2523F970CF90CB5EB52655CD1E84013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450986   (244889) от 28.02.2021
-
-VA - Ambient Oceania (2021) [MP3|320 Kbps] <Ambient, Downtempo, Meditation, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в мир мягкой, нежной и светлой музыки. Удивительное сочетание спокойных мелодий и позитивного ритма создаст для вас волшебную романтическую атмосферу и прекрасное настроение. Прикоснитесь к лучшим мировым образцам инструментальной музыки и почувствуйте, как становитесь добрее и счастливее.001. Kyrro - Élément Terre
-002. Jóel Sigurðsson - Ana & Ana
-003. Tobias Karlehag - Illusive Passage
-004. Aswekeepsearching - Reminiscence(   Читать дальше...   )Жанр: Ambient, Downtempo, Meditation, New AgeПродолжительность: 09:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD87B449A086169C118CCFF39FBC69E42D875F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

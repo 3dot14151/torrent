@@ -1,3 +1,32 @@
+###  Публикация: 1559636   (523415) от 26.06.2022
+
+VA - В машине с музыкой Vol.278 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bulava - Я Полетел Бы
+02. Semenyak  - Химия
+03. Lena Feat. & Janaga - Знаешь Как Уйти
+04. Verbee Feat. & Rompasso - Тает Дым(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:28:27 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C55B350278A8FB6B193D80DBA4CEA734B155AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240648   (523389) от 13.08.2018
 
 VA - Mega Pack Russian Retro 90's Remix 2018 [MP3|320 Kbps] <Euro-House, Eurodance, Europop>
@@ -719,41 +748,6 @@ VA - ЕвроХит Топ 40 Europa Plus 12.07.2019 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:216C3725EEB3D32FDF8A650476328ED0AD532363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534932   (518897) от 14.08.2012
-
-VA - Best Of MTV Hits (2012) [MP3|128 кб/с]<Dance, Pop, RnB, Hip Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Inna - Ai Se Eu Te Pego
-002 Andreea Banica Feat. Play & Win - Sexy (Radio Edit)
-003 Akon - Love Handles
-004 Nicole Scherzinger - Funky Town
-005 Nelly - Just A Dream
-006 David Guetta Feat. Sia - Titanium
-007 Snoop Dogg & Wiz Khalifa Feat. Bruno Mars - Young, Wild & Free
-008 Jennifer Lopez Feat. Pitbull - On The Floor (Radio Edit)
-009 Massari - Live It Up
-010 Alex Gaudino Feat. Kelly Rowland - What A Feeling (Radio Edit)Жанр: Dance, Pop, RnB, Hip HopПродолжительность: 12:22 :09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A543F39B1D90F667362CC7C63011916E9E450ED8
 ```
 
 https://mybot314.ru/tekegram_catalog/

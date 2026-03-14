@@ -1,212 +1,62 @@
-###  Публикация: 1680936   (133541) от 01.12.2023
+###  Публикация: 593446   (135416) от 23.12.2012
 
-Count Basie - Basie's Beat (1965, 1967) 2020, Universal [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Only a Paper Moon [2:46]
-02. Squeeze Me [4:58]
-03. St. Louis Blues [5:30]
-04. I Got Rhythm [2:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E068A76641E803465D691CF9B5C9512D9770AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594632   (133540) от 26.12.2012
-
-Кейт Аткинсон | Джексон Броуди (Книга 3). Ждать ли добрых вестей? (2012) [MP3, Ирина Ерисанова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кейт Аткинсон прогремела уже своим дебютным романом, который получил престижную Уитбредовскую премию, обойдя многих именитых кандидатов — например, Салмана Рушди с его «Прощальным вздохом мавра». Однако настоящая слава пришла к ней с публикацией «Преступлений прошлого» — первой книги из цикла о кембриджском частном детективе Джексоне Броуди. Роман вызвал бурю восторга (   Читать дальше...   )Жанр: ДетективПеревод: с англ. Анастасии ГрызуновойПродолжительность: 13:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11121E85CD3D9E2BC893DAF1CC258CD48AF66928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680739   (133539) от 01.12.2023
-
-DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Industrial, Melodic Death Metal >
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transistor (Intro) [00:02:46]
-02. Aurora [00:04:14]
-03. Path [00:02:17]
-04. Moon [00:04:21](   Читать дальше...   )Жанр: Power Metal / Instrumental / Electro-Industrial / Melodic Death Metal / Sid Metal / Folk MetalПродолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63900F0EBC0D757853018D0D1B0344D6106E629F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594656   (133538) от 26.12.2012
-
-Барбара / Barbara (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая девушка из ГДР подала заявление на выезд из страны и за это сослана в провинцию. В свободном мире ее ждет возлюбленный, который уже разработал для нее план побега на лодке через Балтийское море. А пока Барбара живет под надзором спецслужб и работает в больнице в отделе педиатрической хирургии, где вместе со своим коллегой Андре пытается помочь юной беженке из трудовой колонии — ярой противнице режима.Жанр: ДрамаРежиссер: Кристиан Петцольд / Christian PetzoldАктеры: Нина Хосс, Рональд Церфельд, Райнер Бок, Кристина Хеке, Клаудия Гейслер, Питер Уайсс, Каролин Хаупт, Дениз Петцольд, Роза Энскат, Ясна Фритци Бауэр и другие.Перевод: Профессиональный (многоголосый закадровый)Продолжительность: 01:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD9163F7D73C4AFEFAC59EE214D61C9389B4AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680912   (133537) от 01.12.2023
-
-Журнал | Бизнес журнал №8 (55) (2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133537.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бизнес журнал» - деловое издание, рассчитанное на управляющих и собственников фирм, частных предпринимателей и топ-менеджеров. На его страницах бизнесмены могут свободно обмениваться опытом друг с другом, задавать самые каверзные вопросы и популяризировать собственные деловые и управленческие практики, повышать эффективность своих финансовых и маркетинговых инструментов (   Читать дальше...   )Жанр: БизнесИздательство: ООО "РЕГИОНАЛЬНЫЕ НОВОСТИ"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4EC4A5F33D8E890A94E5179E81F55715EDCB4B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681010   (133535) от 01.12.2023
-
-А.Н. Афанасьев | Буря богатырь Иван коровий сын (2011) [MP3, Семён Янишевский]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя Александра Николаевича Афанасьева стоит в одном ряду с именами выдающихся русских ученых XIX в. Его плодотворная деятельность отличалась замечательной многосторонностью. Он проявил себя как вдумчивый историк культуры и исследователь русской литературы, правовед, этнограф, фольклорист и журналист.
-Особая заслуга принадлежит Афанасьеву – составителю сборника народных (   Читать дальше...   )Жанр: Русская литература для детей, народная сказкаИздательство: Sam-издатПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641CCC354C7376342C2304E7931BAA350FBB3280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680933   (133533) от 01.12.2023
-
-Herb Ellis - Man With The Guitar (1965) 2021, Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empty Rooms [6:41]
-02. Swingin' on a Shoestring [4:19]
-03. A M Blues [5:28]
-04. Tennessee Waltz [4:07](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E0B894D1C1390E3C69126A06B5888799896435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594696   (133528) от 26.12.2012
-
-Wise Care 365 Pro 2.16 Build 167 Final [MULTi / Русский]
+VA - Christmas in St. Moritz (Chilled Tunes For Relaxed X-Mas Days) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133528.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа включает в себя технологию быстрого сканирования и набор важных утилит для реестра, дисков вашего компьютера. Эффективный и простой в использовании инструмент – лучшее решение для увеличения производительности вашего ПК. Запустите нашу программу и забудьте про медленную работу системы! Вобрав в себя все высокоэффективные особенности Wise Registry Cleaner и Wise Disk Cleaner, программа очищает диск и рееестр, оптимизирует систему, защищает личные данные и т.д. Этот инструмент выделяется в лучшую сторону на фоне других утилит по обслуживанию и оптимизации ПК, доступных сейчас.
-
-(   Читать дальше...   )Название программы: Wise Care 365 ProЯзык интерфейса: MULTi / Русский
+01. Marga Sol - My Dream (Original Mix)
+02. MoVoX - Nice Trip 09 (Original Mix)
+03. Minor Dreamer - D.O.N.T. (Original Mix)
+04. Lazy Hammock - One of Those Days (Original Mix)
+05. Pianochocolate - Zuzu (Original Mix)
+06. Paul Adam - Backwards (Original Mix)
+07. Bodean - Keep On Moving (Original Mix)
+08. Twentyeight - Sunday Morning (Original Version)
+09. Daniel Ray - Debonair (Original Mix)
+10. The Soulful Sun - Loose It (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272E7BA9B6CB6B0F6E05154AC52A65FAE6A51D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593275   (135415) от 23.12.2012
+
+Dan Patlansky - Move my Soul (2009) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump on
+02. Why?
+03. Big things going down
+04. Insufficient man
+05. Peace of Eden II
+06. Move my soul
+07. You upset me
+08. Come & play
+09. Luka
+10. Lord you are beautiful(   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:14
 
 ## Скачать торент
 ```bash
@@ -218,34 +68,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594117   (133526) от 26.12.2012
+###  Публикация: 593332   (135411) от 23.12.2012
 
-Судья Дредд / Dredd (2012) [MP3|320 кб/с]<soundtrack>
+Журнал | EN-Gamer №5 [2012] [PDF]
 
->>Other Styles
->>OST
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133526.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. She’s A Pass [3:16]
-02. Mega City One [3:13]
-03. The Plan [2:37]
-04. The Rise Of Ma-Ma [1:55]
-05. Anderson’s Theme [2:37]
-06. Lockdown [2:46]
-07. Cornered [2:17]
-08. Kay Escapes [3:17]
-09. Mini-Guns [2:02]
-10. Undefined Space [1:17](   Читать дальше...   )Жанр: soundtrackПродолжительность: 00:51:26
+«EN-Gamer» — новый журнал о компьютерных играх. Пятый номер журнала расскажет о фан-сайтах игры "Аssassins Creed" и многое другое.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCD1DE88CF89DDE0D980953C6EF786D4C32891C4
+magnet:?xt=urn:btih:455C4C84180141A063A66AE5E5C8596C4EF6877F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,43 +94,469 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594120   (133525) от 26.12.2012
+###  Публикация: 592072   (135410) от 23.12.2012
 
-Тёмный Рыцарь: Возрождение Легенды / The Dark Knight Rises  (2012) [MP3|320 кб/с]<soundtrack>
+VA - Creative Music Box 6 (2012) [MP3|320 кб/с]<Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Asking Alexandria - A Lesson Never Learned
+2. Bassex - Tinnitus
+3. Butch Clancy - Xlam
+4. Butch Clancy- The Devil's Quid Pro Quo
+5. Cenob1te - Hyperion
+6. Deltron 3030 - Upgrade (Figure Remix)
+7. Demented Dimensions - I Swear to God
+8. Document One feat. Maksim - Kick Snares And Brehs
+9. Dubwoofer - Carol Of The Bass
+10. Eliminate - Devil Theory(   Читать дальше...   )Жанр: Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal StepПродолжительность: 02:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D9A6E0E12F409DF5BC70019504C1BF1BF2A7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593559   (135408) от 23.12.2012
+
+Chamras Saewataporn - Green the World (2011) [MP3|320 кб/с]<New age, Instrumental, Relax>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135408.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:24) 01. Green The World
+(3:50) 02. A place in the heart
+(3:04) 03. The tree of Life new
+(3:35) 04. In the year 2012
+(3:53) 05. The Voice in the Jungle
+(3:15) 06. Secret of Paradise
+(3:08) 07. Forest Home and Sleepy Momo
+(3:48) 08. Thai Rice
+(3:48) 09. The Time Traveler
+(3:21) 10. First time I ever Saw this World(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE879427D2F93FD188A0724CFD462938FEA51F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592495   (135407) от 23.12.2012
+
+Поле чудес (21/12/2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135407.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эфире с 25 октября 1990 года. Первоначально ведущим был Владислав Листьев, а с 1 ноября 1991 года Леонид Якубович. Каждую пятницу он приглашает игроков в студию... отгадывать слова. Правила игры весьма просты: в трех турах участвуют по три человека в каждом, победители туров соревнуются в финальной игре, и ее победитель, если выиграет суперигру, получает главный приз. Стать участником игры "Поле чудес" очень просто - для этого нужно прислать в редакцию программы какой-нибудь оригинальный кроссворд. В игру играют и взрослые, и дети, пожарные, доярки, милиционеры, учителя, ветераны войны, артисты - все, кто знает русские буквы и слова. В съемках принимают участие игроки со всей России и ближнего Зарубежья. Проект Владислава Листьева. Название "позаимствовано" из сказки о Буратино.Жанр: ТелепередачаПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05EE687D45A2CD068FA711013A6B465B9E7EA9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592830   (135406) от 23.12.2012
+
+Pulp - Different Class (1995) [MP3|320 кб/с]<BritPop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mis-Shapes
+02 - Pencil Skirt
+03 - Common People
+04 - I Spy
+05 - Disco 2000
+06 - Live Bed Show
+07 - Something Changed
+08 - Sorted for E's & Wizz
+09 - F.E.E.L.I.N.G.C.A.L.L.E.D.L.O.V.E
+10 - Underwear(   Читать дальше...   )Жанр: Brit PopПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB7B331C4B9A3385BE8DF411ED59FB1A7EA1B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592888   (135404) от 23.12.2012
+
+Planet X - Quantum (2007) [MP3|320 кб/с]<Progressive Fusion Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135404.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alien Hip-Hop
+ 2. Desert Girl
+ 3. Matrix Gate
+ 4. The Thinking Stone
+ 5. Space Foam
+ 6. Poland
+ 7. Snuff
+ 8. Kingdom Of Dreams
+ 9. Quantum FactorЖанр: Progressive Fusion RockПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43FF798163B7C3B3F4B16009854F22135D220A0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592232   (135403) от 23.12.2012
+
+Xenia - Understand (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D9426D83129B4234424D10CD28090FAF6D54A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593311   (135401) от 23.12.2012
+
+Don Grusin & Bill Sharpe - Trans Atlantica (2012) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The London Tube
+02. Exotic Boulevard
+03. Down At St Catherine's
+04. War Zone
+05. Chance Encounters
+06. Night Train To Paris
+07. Un Vuelo
+08. Slow Breeze
+09. Mole Trap Cool
+10. After Hours(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592684   (135400) от 23.12.2012
+
+Последний людоед: Индийский тигр-убийца / The last maneater:  Killer tigers of India (2003) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135400.jpg" />
+</div>
+
+
+###  Подробнее
+
+На земле есть место, где время не движется. В этом отдалённом уголке Индии люди являются объектом охоты. Здесь живёт хищник, хитрый и расчётливый. Убийца, не боящийся людей. Последний людоед, индийский тигр убийца..Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D225A0F1E950D3C5F0E4F78225E330A1D0F572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590274   (135397) от 23.12.2012
+
+Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135397.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:50)
+
+(1:30) 01. China Heart
+(4:39) 02. Snowy Mountain
+(6:27) 03. Chongsam
+(4:37) 04. Genghis
+(1:07) 05. Birdman
+(4:45) 06. Sparrows
+(6:01) 07. Mountain Mist
+(5:00) 08. Chungwu Concerto(   Читать дальше...   )Жанр: New Age, World, InstrumentalПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23401DB621165DD9C05E42106C3812B14CBDF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593160   (135392) от 23.12.2012
+
+Газета | Компьютер для начинающих №12 [декабрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компьютер для начинающих рассказывает о самых азах работы с компьютером, различными программами, сетью Интернет. В номере: видео на компьютере; что такое кодеки и для чего они требуются; чем смотреть видео; как выбрать монитор и видеокарту.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2070C374CFAB4CACEC216064D389E099F0BD9EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593110   (135391) от 23.12.2012
+
+Журнал | Tattoo Collection №54 (UK) [2012] [PDF] [En]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135391.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Tattoo Collection" является идеальным журналом для тех, кто ищет татуировки или просто хочет увидеть самые последние работы лучших международных мастеров. В журнале представлено более 300 татуировок, которые являются лучшими на момент выхода журнала.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5F89338544B860A5518F604109F38931ABDDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593076   (135390) от 23.12.2012
+
+VA - Rocks Off - 16 Tracks Of The Best New Music (2012) [FLAC|Lossless]<Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Tuff - Bad Thing [02:21]
+02. The Mountain Goats - Harlem Roulette [03:22]
+03. The Jim Jones Revue - Times Around The Sun [03:41]
+04. The Fresh And Only - Dream Girls [02:51]
+05. John Hiatt - It All Comes Back Someday [03:40]
+06. The Cairo Gang - Now You Are One Of Us [03:39]
+07. Two Gallants - Song Of Songs [02:45]
+08. Martin Rossiter - Sing It Loud [02:25]
+09. Ian Hunter & The Rant Band - Saint [03:35]
+10. The Wooden Sky - Child Of The Valley [03:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593226   (135386) от 23.12.2012
+
+VA - Cafe La Guitarra Vol.1 (La Seleccion Musica Balearica - The Best In Guitar Lounge & Chill Out) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guenter Haas - Cienfuegos
+02. Jeff Aug - Mountain Pass
+03. Weathertunes - Passion
+04. Marga Sol - Call of an Angel
+05. Taco-Town - El Platano
+06. Anthya - Patience and Love
+07. Fenena Garcia Mijas - Way Beyond
+08. Jeff Aug - Bird Watcher's Dirge
+09. Pnfa - Salt
+10. Xemplify - Sober Eyes(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDFE9BCBFF97553B6883A16B8BA153C110875418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593276   (135384) от 23.12.2012
+
+Артур Беркут - Рождественская песня (2012) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рождественская песняЖанр: Heavy MetalПродолжительность: 00:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4A7CE13AF4042CD9E6939C3BF0985F4D6A7685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593186   (135379) от 23.12.2012
+
+Особо опасны / Savages (2012) [MP3|320 кб/с]<Soundtrack>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133525.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжительность:01:15:29
-
-CD1:
-
-1. Logo [01:21]
- 2. Prologue [05:18]
- 3. The Truth About Harvey Dent [02:51]
- 4. Room Service [00:16]
- 5. Uncrackable Safe [02:09]
- 6. He Was The Batman [01:01](   Читать дальше...   )Жанр: soundtrackПродолжительность: 02:04:20
-CD3:
-
-1. Moody Bruce New Hero Suite [21:55]
- 2. Bane Suite [19:49]
- 3. Cat Suite [05:41]
- 4. Moody Bruce New Transfiguration Suite [08:36]
- 5. A Dark Knight Suite [04:54]
- 6. Bane Action 103 BPM Mezzo Suite [05:21]
- 7. The Dark Knight Rises Main Z+ [01:32](   Читать дальше...   )
+01.Neptune's Net
+02.Cartel Theme
+03.Where I'm Going
+04.Romantic Theme
+05.Legalize It
+06.Mandala (feat. Anoushka Shankar)
+07.Hijack In The Desert
+08.Quien Es El Patron
+09.Romance In Durango
+10.Whipping(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFF38ED4C0B688EB526FA1B5E18C52FFCD4D66E6
+magnet:?xt=urn:btih:8AAA8D6E96789388F4530E0E633F8916789E9567
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -297,109 +564,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680913   (133522) от 01.12.2023
+###  Публикация: 1679723   (135375) от 26.11.2023
 
-Журнал | Бизнес журнал №9 (56) (2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133522.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бизнес журнал» - деловое издание, рассчитанное на управляющих и собственников фирм, частных предпринимателей и топ-менеджеров. На его страницах бизнесмены могут свободно обмениваться опытом друг с другом, задавать самые каверзные вопросы и популяризировать собственные деловые и управленческие практики, повышать эффективность своих финансовых и маркетинговых инструментов (   Читать дальше...   )Жанр: БизнесИздательство: ООО "РЕГИОНАЛЬНЫЕ НОВОСТИ"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF280E06CB2501C741CFFF044E877C1AC324DE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594692   (133521) от 26.12.2012
-
-М. Рождественская | Апокрифы древней Руси [2002] [DJVU]
-
->>Художественная литература
->>Историческая проза, Мифы и Легенды
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Апокрифы - (от греч. anokpufos — тайный, сокровенный) — возникшие на рубеже нашей эры сочинения о событиях и персонажах Священной истории, не вошедшие в официальные церковные каноны. Апокрифы традиционно разделяют на ветхозаветные и новозаветные (по аналогии с текстами канонической Библии). Славянские переводы апокрифов появились, по-видимому, вместе с переводами текстов Священного Писания в кирилло-мефодиевский период развития переводной письменности, а на Русь попали с принятием христианства.Жанр: ИсторияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5301C427E8077316C5CD28FAA964D63351328A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680817   (133520) от 01.12.2023
-
-LikArt - Мессия в MP3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Своё шоу [00:02:37]
-02. Плак-плак [00:02:36]
-03. Целуй! [00:02:36]
-04. Научи меня летать [00:02:55](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0ACCBAC7E974D26D88ADEEAD02ADA4AEA11C8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680900   (133518) от 01.12.2023
-
-Dissection - Storm of the Light's Bane (1995) Reissue, Remastered, 2006, 2CD [FLAC|Lossless|image + .cue] <Melodic Black, Death Metal>
+Memorial Day - Embark Hades (1995) [FLAC|Lossless|tracks] <Gothic, Doom, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133518.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.	At the Fathomless Depths
-2.	Night's Blood
-3.	Unhallowed
-4.	Where Dead Angels Lie(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 01:14:06
+01. Carnifex
+02. Phobia
+03. Embark Hades
+04. Salve Caput Cruentatum(   Читать дальше...   )Жанр: Gothic, Doom, Death MetalПродолжительность: 00:53:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A48919F59E2AE79E973BFF39E8FB14EF2621304E
+magnet:?xt=urn:btih:009ED584D7CB230E755BF3EED1DB0B392B97A27A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,26 +593,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594427   (133517) от 26.12.2012
+###  Публикация: 593020   (135374) от 23.12.2012
 
-Андрей Левицкий и др. | Путь одиночки [полная версия] (2012) [FB2]
+Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133517.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если ты остался один посреди Сектора, тебе не поможет никто. Не помогут охотники на мутантов, ловчие, бандиты и прочие - для них ты пришлый. Чужой.
-Тебе не помогут звери, населяющие эти места: для них ты добыча. Жертва. За тебя не заступятся бывшие соратники по оружию, потому что отдан приказ на уничтожение и теперь тебя ищут, чтобы убить. Ты - беглый преступник. (   Читать дальше...   )Жанр: боевая фантастикаФормат: FB2
+Список альбомов:
+
+2000 - Learned My Lesson
+2005 - Tore Up from the Floor Up
+2009 - The French Connection
+2009 - SunnylandЖанр: Blues |Продолжительность: 04:22:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEF190AD130468236CED85DE3FBC8A3E6A123A07
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,25 +624,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594354   (133516) от 26.12.2012
+###  Публикация: 1679792   (135373) от 26.11.2023
 
-Смерть в воде / Dead in the Water (2002) DVDRip
+PrintLab Studio 3.0.2 [En]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133516.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В знойный летний день очаровательная Глория, живущая в Рио-де-Жанейро, собирается со своим парнем Дэнни и его другом Джеффом на морскую прогулку. Но отец уговаривает ее взять с собой Маркоса, сына влиятельного магната, от которого зависит их финансовое будущее. Незнакомец оказывается юным, красивым и сексуальным, и вскоре на борту лодки воцаряется гнетущая атмосфера ревности и неприязни. В конце концов, взбешенный Дэнни толкает не умеющего плавать Маркоса за борт, бросает ему спасательный круг и уплывает, но затем возвращается, опасаясь самого худшего. И не зря — Маркос исчез. Не желая отвечать за жестокое убийство, друзья пытаются понять, что произошло, попутно стараясь свалить вину друг на друга. Но все попытки выпутаться незапятнанными из щекотливой ситуации лишь приближают их к трагической развязке, которая не могла присниться им даже в самом страшном сне...Жанр: Триллер, КриминалРежиссер: Густаво ЛипштейнАктеры: Генри Томас, Доминик Суэйн, Скотт Бэйрстоу, Себастьян ДеВисенте, Жозе Вилкер, Рената Фронци, Лавиния Власак, Педро Лейтао, Рене Биттенкур, Жанио Соуза РикардоПеревод: Профессиональный одноголосый закадровыйПродолжительность: 01:28:53
+PrintLab Studio - это легкое и простое в использовании приложение для создания векторных иллюстраций для Mac OS X. PrintLab Studio содержит инструменты, необходимые для создания базовых фигур. Быстро создавайте рисунки и легко меняйте стили.Тип издания: macOS SoftwareРелиз состоялся: 08.05.2018Разработчик: © 2021 Bluetail TeamПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77C4E33A015C4B278602A485B330B5724987DF2E
+magnet:?xt=urn:btih:7B03E3DFE8545F74AFAF8607801CA5200FDFA8C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,28 +650,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680880   (133515) от 01.12.2023
+###  Публикация: 591856   (135372) от 23.12.2012
 
-Orphaned Land - A Heaven You May Create - Live @ Heichal HaTarbut, Tel Aviv 2021 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom-Death Metal, Middle Eastern Folk, Progressive Metal>
+VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133515.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mabool (The Flood) (7:15)
-02. The Storm Still Rages Inside (9:05)
-03. Like Orpheus (4:38)
-04. The Kiss of Babylon (6:18)(   Читать дальше...   )Жанр: Doom-Death Metal, Middle Eastern Folk, Progressive MetalПродолжительность: 01:23:04
+01. Degrees Of Motion & North Base - Shine On (Dubstep Mix)
+02. Other Echoes feat. Julian Huggins - Free Running
+03. Delerium feat. Michael Logen - Days Turn Into Nights (Seven Lions Remix)
+04. Waverokr - Gravity Switch
+05. Dubba Jonny - Smack It!
+06. Molecule - Ghetto Superstar
+07. DKS - Can't Get Enough (Original Mix)
+08. Hardwell feat. Amba Shepherd - Apollo (3rd Prototype Bootleg)
+09. TS7 - Struggle (DJ Q Remix)
+10. Smooth feat. Tasha Baxter - Nowhere(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:26:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0449DF1A2CD7038F88BF46C3A9E32A22212EDEF
+magnet:?xt=urn:btih:BE01CE8DE485381BFF5BAC1C0EDFCA34F86E334C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,118 +685,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681080   (133513) от 01.12.2023
+###  Публикация: 1679846   (135371) от 26.11.2023
 
-Daisy Jones & The Six - AURORA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora (3:25)
-02. Let Me Down Easy (3:24)
-03. Kill You To Try (5:12)
-04. Two Against Three (3:53)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCE8DF1BB36F62D15493A5F080BD80CDD4A3599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681001   (133512) от 01.12.2023
-
-А.И. Асов | Мифы для детей. Перо Гамаюна. Волшебники Китеж-града (2014) [MP3, Евгений Покромович]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Игоревич Асов – писатель, журналист, историк и филолог, один из известнейших исследователей и знатоков древней славянской культуры и хранитель языческих традиций наших далеких предков – славянских ведов.
-Приглашаем наших слушателей в мир сказаний и мифов, повествующих о Волшебной стране. Эта страна населена волшебниками и драконами, русалками, вилами и (   Читать дальше...   )Жанр: Русская литература для детей, мифы, легенды и притчиИздательство: Аудиокнига (АСТ)Продолжительность: 06:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EADA39B9A7269B83F865A6EFEBB49748F5C864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594102   (133511) от 26.12.2012
-
-Облачный атлас / Cloud Atlas  (2012) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_133511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude - The Atlas March [1:15]
-02. Cloud Atlas Opening Title [3:47]
-03. Travel To Edinburgh [1:42]
-04. Luisa's Birthmark [3:00]
-05. Cavendish In Distress [1:23]
-06. Papa Song [4:15]
-07. Sloosha's Hollow [2:59]
-08. Sonmi-451 Meets Change [3:34]
-09. Won't Let Go [4:10]
-10. Kesselring [1:54](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C68D2F2AB15B2CC96019BEC4F628AF2DAF0D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681059   (133509) от 01.12.2023
-
-URL Manager Pro 6.4 [Multi]
+iCompta 6.1.9 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133509.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-URL Manager Pro  - менеджер закладок для браузеров
-URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
-Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2023Разработчик: © 2023 Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
+iCompta - простое, но мощное приложение для управления персональным финансами. Программа создана так, чтобы быть максимально простой в использовании, поддерживая множество функций, которые помогут вам отслеживать ваши деньги и начать экономить. Следите за своими доходами и расходами, контролируйте свои счета, оставайтесь в соответствии с вашим бюджетом.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2006-2022 SAS LyricAppsПоддерживаемая ОС: macOS X 10.13 +Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68EDFEFC237633B232D500A078E1B98D401A1AEB
+magnet:?xt=urn:btih:8F3D670245E27F469EB3E497A907C7683D6E574B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,28 +711,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681014   (133507) от 01.12.2023
+###  Публикация: 592231   (135370) от 23.12.2012
 
-The Moody Blues - Long Distance Voyager (1981) Reissue, 2008, Decca [FLAC|Lossless|tracks + .cue] <Classic Rock>
+Plies - Hunna (2012) WEBRip
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133507.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Voice
-02. Talking Out Of Turn
-03. Gemini Dream
-04. In My World(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:51:04
+Жанр: Hip-hopПродолжительность: 00:03:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED12597213EB4C59707915E3EC9FEB44B3EE1448
+magnet:?xt=urn:btih:84F3107DC72C81785EC63F27D00C336F9D12268D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,78 +737,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681066   (133506) от 01.12.2023
+###  Публикация: 1679717   (135369) от 26.11.2023
 
-Рафаэль Лафферти | Старая забытая ножка (2023) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133506.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Доктор прожил свою жизнь помогая добрым, но совершенно чуждым человеческой натуре существам в необычном для человека мире. Однажды к нему обратился сфайрикос с очень необычной проблемой. Доктор мог бы попытаться ему помочь, но все знали, что идет последняя неделя жизни дох-доктора, и каждый стремился сделать так, чтобы его счастье стало еще полнее." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E9CE838B571D79A6D1227A9A05AB8E73F818F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681130   (133505) от 01.12.2023
-
-GoodTask 7.6.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133505.jpg" />
-</div>
-
-
-###  Подробнее
-
-У многих из нас каждый день настолько плотный график, такое количество важных задач, которые нужно выполнить, что ненароком, можно о чем-то случайно забыть.
-GoodTask — это элегантная и мощная «напоминалка», которая прекрасно взаимодействует со стандартным приложением Reminders и Календарем. Какую бы заметку вы в нем не оставили, она тут же будет отображаться в GoodTask. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2023Разработчик: © 2022 haha interactiveПоддерживаемая ОС: OS X 10.15+Язык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6384B242B5347C105BC18C8BC496E1B7B5D8A796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680915   (133504) от 01.12.2023
-
-Журнал | Бизнес журнал №10 (57) (2023) [PDF]
+Журнал | Сваты №21 (255) (ноябрь 2023) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133504.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Бизнес журнал» - деловое издание, рассчитанное на управляющих и собственников фирм, частных предпринимателей и топ-менеджеров. На его страницах бизнесмены могут свободно обмениваться опытом друг с другом, задавать самые каверзные вопросы и популяризировать собственные деловые и управленческие практики, повышать эффективность своих финансовых и маркетинговых инструментов (   Читать дальше...   )Жанр: БизнесИздательство: ООО "РЕГИОНАЛЬНЫЕ НОВОСТИ"Формат: PDFКачество: Обработанный скан
+«Сват плохого не посоветует» — говорят в народе. В каждом номере журнала «Сваты» вы найдете: проверенные советы от читателей, экспертов, юристов, медиков, психологов, кулинарные рецепты, секреты здоровья, помощь в воспитании детей разного возраста, песни, байки, анекдоты. И все это в ярком, красочном оформлении.Жанр: Популярный журналИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25EC1E022B67F76A3D078159DFE7FBA3B08225DF
+magnet:?xt=urn:btih:AADC770C47D50E9C0F8878186279D5B1B32ADB60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -716,26 +763,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680951   (133503) от 01.12.2023
+###  Публикация: 1679760   (135367) от 26.11.2023
 
-Анна Блейк | Расследование ведет Аксель Грин (Книга1). За грехи отцов (2023) [MP3, Михаил Нордшир]
+Борис Житков | Рассказы о животных (2012) [MP3, Леонид Бородин]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133503.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мрачный психологический триллер, загадка двойного убийства, жертвы всегда как-то связаны… За дело берется молодой детектив Аксель Грин!
-Благополучный город Треверберг потясен ужасающей новостью: во время осмотра выставленного на продажу старого особняка обнаружена жуткая инсталляция. Большое кострище с обгорелым трупом молодой женщины и перед ним на коленях мужчина, (   Читать дальше...   )Жанр: Психологический детективИздательство: Аудиокнига АСТПродолжительность: 13:57:00
+Борис Степанович Житков (1882–1938), известный русский советский писатель-путешественник, автор приключенческих рассказов и путевых заметок.
+Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра.
+В сборник вошли рассказы о животных Бориса Житкова. Яркие, увлекательные - они (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказИздательство: Нигде не купишьПродолжительность: 03:19:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:250D3969300B3E0745C3834BE97F5DA8378935A5
+magnet:?xt=urn:btih:E5E8F1AB188BE0346E28F657FA510BB0B92EA4D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

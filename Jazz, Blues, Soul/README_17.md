@@ -1,3 +1,61 @@
+###  Публикация: 1439517   (1039520) от 14.01.2021
+
+Lachy Doley - Double Figures (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme Some Lovin' (5:51)
+02. Fire To Save (4:01)
+03. Conviction (5:29)
+04. Make It Up (4:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14292A019796DFD61D38C135E77972B34EC56EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439525   (1039517) от 14.01.2021
+
+William Shatner - The Blues (2020) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Home Chicago (2:55)
+02. I Can't Quit You, Baby (4:39)
+03. Sunshine Of Your Love (4:21)
+04. The Thrill Is Gone (4:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F385E7AF40BDE2637AC6CEDDC9045BCD50D7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439590   (1039508) от 14.01.2021
 
 Andy Lindquist - Blues Soul Groove (2021) [MP3|320 Kbps] <Blues Rock>
@@ -687,64 +745,6 @@ Jeremy Pelt - Men Of Honor (2010) HighNote [FLAC|Lossless|tracks + .cue] <Post-B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:035639A5F3CD7F71A97FA5E9811765978A7DDEA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614489   (1038563) от 22.02.2023
-
-Tony Brook - Alabama Crossroads (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alabama Crossroads (3:21)
-02. Truth Be Told (5:22)
-03. Gonna Be Bad (4:42)
-04. Angel Dust (5:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F6952D960C485922EF8F77EC5ECF4820D3FAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614485   (1038562) от 22.02.2023
-
-Blues Arcadia - Now Or Never (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dollar Bill (3:36)
-02. Broadway Chapel (3:42)
-03. Get Yourself Together (4:06)
-04. Cry Baby (4:15)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834DEEA4EFBC93AEFEED8EF9CD138A87713748AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

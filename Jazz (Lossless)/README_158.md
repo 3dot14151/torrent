@@ -1,3 +1,90 @@
+###  Публикация: 1156912   (526443) от 09.08.2017
+
+Art Tatum - Goldfingers (1933 - 1956) 3CD, 2011, Le Chant du Monde [FLAC|Lossless|image + .cue] <Stride, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526443.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Tea For Two:
+01. Tea For Two [03:18]
+02. After You've Gone [02:32]
+03. Liza [02:01](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 03:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB1431A7AE782602DA4D65C72DA305CF396ACDF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053099   (526155) от 17.09.2016
+
+Eddie Daniels - Blackwood (1989) GRP Records[FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blackwood [04:31]
+ 02.Cruise [04:51]
+ 03.Heartsong [04:58]
+ 04.P.I. [04:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C7E531ED02EDAD13DE6CA2E6BA533B1FBBBA64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053442   (526153) от 17.09.2016
+
+The Bill Perkins Big Band - Our Man Woody (1991) [FLAC|Lossless|image + .cue] <Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Believe That You're In Love With Me (3:09)
+02. I've Got The World On A String (5:48)
+03. Tenderly (4:04)
+04. I Got It Bad And That Ain't Good (6:32)(   Читать дальше...   )Жанр: Big BandПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A95926CCA2B282BFFF6CA58F47B93BCAF2A0D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053261   (526120) от 17.09.2016
 
 Lester Bowie - The Complete Remastered Recordings On Black Saint & Soul Note (2010) 3 CD Set [WavPack|Lossless|image + .cue] <Avantgarde Jazz, Post-Bop>
@@ -658,94 +745,6 @@ Illinois Jacquet - The Illinois Jacquet Story: Groovin' (1944 - 1951) 2002, Prop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E99251AD381A8369631C4D097DD09E35BA44168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240823   (523702) от 13.08.2018
-
-Romain Pilon - Copper (2018) [FLAC|Lossless|tracks + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bibou (5:57)
-02. Trippin' (5:09)
-03. Four Moons (7:25)
-04. Laniakea (5:09)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFA38FE5685D02079376F7C197AC5CF774E0482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559649   (523543) от 26.06.2022
-
-Jimmy Smith - The Classic Verve Albums Collection (1962 - 1964) 4CD, 2019, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Organ Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523543.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Bashin' & Hobo Flats:
-01. Walk On The Wild Side [5:59]
-02. Ol' Man River [3:59]
-03. In A Mellow Tone [4:27](   Читать дальше...   )Жанр: Hard Bop, Soul Jazz, Organ JazzПродолжительность: 04:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1A5E20C95F6A6ED25B34BFE2A2EEB53D579907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559462   (523490) от 26.06.2022
-
-Jazz Sabbath - Vol. 2 (2022) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь, воссоединившись спустя 52 года, Jazz Sabbath вошли в студию и закончили свой второй альбом, который также записывался в 1969 году. После раскрытия кражи группы из Бирмингема Милтон Кинес и его коллеги теперь могут представить эти песни в их первоначальном виде, пополненный 52-летним опытом, энергией… и яростью.
-Теперь они могут представить свои песни в их (   Читать дальше...   )1. Paranoid
-2. Snowblind
-3. Behind The Wall Of Sleep
-4. Sabbra Cadabra(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83599FA603B3D4FFD411706877AB447E97110BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

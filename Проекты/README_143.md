@@ -1,3 +1,29 @@
+###  Публикация: 1025599   (709576) от 12.06.2016
+
+Проекты - VideoHive -  Polaroid Carousel Slideshow for Pictures and Video [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд-шоу изображений или видео, в стиле полароид карусели.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70246A28DD119DF5DF6BFE0116DBF60006E61B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025530   (709569) от 12.06.2016
 
 Проекты - VideoHive - Radial Build Logo [AEP]
@@ -655,32 +681,6 @@ Fast Forward - это современный проект с оттенком р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:422F0C10CCEBC3385C017F70640DDCC2186FC80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792559   (707713) от 03.06.2014
-
-VideoHive – Memory Photo Slideshow - 6812386 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный проект слайд-шоу с красивым перелистыванием слайдов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BAC17A8F71FA18AC33AB7BE2E814849AECCEA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

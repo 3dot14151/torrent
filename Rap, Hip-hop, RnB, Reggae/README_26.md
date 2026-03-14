@@ -1,3 +1,119 @@
+###  Публикация: 1511191   (246001) от 20.11.2021
+
+Сидоджи Дубоshit - BIG FOOT (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GRIND [01:53]
+02. INDEPENDENT (KASKADER) [02:48]
+03. DEATHFLIP [03:01]
+04. BIGFOOT [03:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA43DDED9694F8C424613BEE505356BAFD185D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511414   (245817) от 21.11.2021
+
+bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 в 1 [01:48]
+02. Дождь (feat. Kasha) [02:28]
+03. Магия [01:50]
+04. Хочу быть как все (feat. Бакей) [01:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B46556536D604014EB5C803DD19173932F1B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631331   (244471) от 08.05.2023
+
+MC Eiht - Lessons 2 (2023) Blue Stamp Music [MP3|320 Kbps] <Rap, West Coast Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tha Paper feat. Domino
+02. Bodega Money feat. Dave East
+03. What U Wanna Do
+04. Client(   Читать дальше...   )Жанр: Rap, West Coast Hip-HopПродолжительность: 01:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6550905BA5A8CE01DB66BD8736D9282E217797DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568150   (243261) от 06.08.2022
+
+Eminem - Curtain Call 2 (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 A.M.
+02. Space Bound
+03. Beautiful
+04. The Monster (feat. Rihanna)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F202B414EDD76284E09D32970BE0AB899D4A33B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624526   (242092) от 06.04.2023
 
 L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -629,122 +745,6 @@ NF - Hope (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEC076B0014F667FC7BBF32370D97F682748119B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626930   (240058) от 16.04.2023
-
-ХЛЕБ - Последний (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240058.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дэб
-2. Убили Кирилла
-3. Марина
-4. Дети(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C162ED1D69E3CEAF5DDB784764E7F09175DC3295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635137   (240052) от 24.05.2023
-
-KAYTRAMINE - KAYTRAMINE (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who He Iz (3:01)
-02. letstalkaboutit (2:47)
-03. 4EVA (3:10)
-04. Westside (2:24)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD87BC77922D1E6D93226323A5CC84DCB2F78B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636278   (239222) от 29.05.2023
-
-Lil Durk - Almost Healed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Therapy Session (1:28)
-02. Pelle Coat (4:14)
-03. All My Life (3:44)
-04. Never Again (2:20)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F169C22EEBECDE25E47A9E9E2900C31C23975B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636585   (238920) от 31.05.2023
-
-$uicideboy$ - YIN YANG TAPES: Winter Season (1989-1990) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Season Intro (0:39)
-02. Bossier City Kidnap Victims (2:44)
-03. Didn't They Give You Percoset? (2:10)
-04. I Deleted Facebook a Long Time Ago (2:57)Жанр: Hip-Hop, RapПродолжительность: 00:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B736CDC9588CE56E5321395A29C173B3E13AE39
 ```
 
 https://mybot314.ru/tekegram_catalog/

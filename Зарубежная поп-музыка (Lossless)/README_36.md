@@ -1,3 +1,152 @@
+###  Публикация: 1535011   (690525) от 04.03.2022
+
+Bryan Adams - Pretty Woman - The Musical (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Hollywood (3:38)
+02. Anywhere But Here (2:58)
+03. Something About Her (2:33)
+04. Luckiest Girl In The World (2:57)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2020A7D9599DEB5F793B6B8B1F8CB8E5A1B6FA6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403594   (690472) от 20.08.2020
+
+Joe Dassin - 41 Succes (1990) [FLAC|Lossless|image + .cue] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690472.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. L'Ete Indien 4:30
+02. La Fleur Aux Dents 2:11
+03. Marie-Jeanne 4:11(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 02:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC9FA0E24C4D799A311875E3581C28259743E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288982   (690383) от 14.03.2019
+
+VA - Minos 2019 - 18 Super Hits (2018) [FLAC|Lossless|tracks + .cue] <Pop, Folk, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Νίκος Οικονομόπουλος – Τώρα Τι Να Το Κάνω 3:34
+02. Έλενα Παπαρίζου – Κάτι Σκοτεινό (   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7139C89AFCCCCF0036A3A02D481FF3700CE98AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289124   (690382) от 14.03.2019
+
+VA - Ultra Dance 20 (2019) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kygo – Happy Now [03:31]
+02. Calvin Harris – One Kiss [03:34]
+03. Steve Aoki – Waste It On Me [03:12]
+04. Dynoro – In My Mind [02:59](   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307AE57F0E589A4CC4F8AB07E7659659410EC394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505670   (689471) от 05.06.2012
+
+Kylie Minogue - The Best Of Kylie Minogue (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can’t Get You Out Of My Head
+02. Spinning Around
+03. I Should Be So Lucky
+04. Love At First Sight
+05. In Your Eyes
+06. Kids (with Robbie Williams)
+07. Better The Devil You Know
+08. All The Lovers
+09. Give Me Just A Little More Time
+10. Celebration(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535381   (686703) от 06.03.2022
 
 Marc Anthony - Pa'lla Voy (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin, Salsa>
@@ -600,157 +749,6 @@ Maren Morris - Girl (2019) [FLAC|Lossless|tracks + .cue] <Pop, Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2C37ABB7AF9265267C8271352FD3569AEEB0251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290531   (676459) от 21.03.2019
-
-VA - Canzoni - 48 Canti D'Emotioni (Unknown) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Piccola E Fragile / Drupi (4:02)
-02. Angelo Blu / Gepy & Gepy (3:20)
-03. Ma Che Bella Storia D´ Amore / Jo Chiarello (5:01)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 03:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C0C8D55C19D7CACF8DD8B93C7EAE6D379C7D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030261   (675902) от 29.06.2016
-
-Whitney Houston - Greatest Hits (2010) 2CD [FLAC|Lossless|image + .cue] <Rhythm & Blues, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	I Have Nothing 	04:54
-02. 	Didn't We Almost Have It All 	04:39
-03. 	Saving All My Love For You 	04:00
-04. 	All The Man That I Need 	03:59(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 02:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33972A7B069BEC454B8192FDB46889A1E3661964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509674   (675454) от 12.06.2012
-
-Sucre - A Minor Bird (2012) [FLAC|Lossless]<Pop Rock, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675454.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hiding Out 3:28
-2. When We Were Young 2:54
-3. Troubled Waters 3:56
-4. Light Up 2:33
-5. Chemical Reaction 5:08
-6. Say Something 4:04
-7. Persuasion 3:22
-8. Stampede 2:58
-9. No Return 4:18
-10. Endless Sleep 3:17(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536282   (675145) от 12.03.2022
-
-Clark Datchler - Journey Songs One (2022) 3xCD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675145.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Raindance Remastered:
-01. State Of Play (3:31)
-02. Drowning My Sorrows (3:41)
-03. Crown Of Thorns (5:03)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9641B65897F2EC209E7D0045BB5C91343595F7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136495   (674623) от 22.05.2017
-
-Julio Iglesias - The Very Best Of Julio Iglesias (2007) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674623.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Amor (3:20)
-2. Nathalie (3:54)
-3. Pobre Diablo (2:54)
-4. To All The Girls I've Loved Before (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACB741EBD9407E1D59A873F50EB2711A416B07E
 ```
 
 https://mybot314.ru/tekegram_catalog/

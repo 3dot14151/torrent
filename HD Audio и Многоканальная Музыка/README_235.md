@@ -1,3 +1,148 @@
+###  Публикация: 1613622   (35046) от 06.12.2024
+
+Xandria - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xandria — немецкая группа, исполняющая музыку в жанре симфоник-метал.2003 - Kill the sun
+2004 - Ravenheart
+2005 - India
+2007 - Salome - The seventh veilЖанр: Symphonic MetalПродолжительность: 09:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29EB4C05C222406CFAE0E94EA0598B0516FBFC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764303   (35021) от 06.12.2024
+
+Roxette - Crash! Boom! Bang! 30th Anniversary Edition (1994) Reissue, 2024, Warner Music Sweden [FLAC 16/44.1, 24/44.1|Lossless|WEB-DL|tracks] <Pop, Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Harleys & Indians (T&A Demo Aug 10, 1993) [3:27]
+02 - Crash! Boom! Bang! (T&A Demo May 6, 1993) [4:15]
+03 - Fireworks (T&A Demo Jan 30, 1993) [3:31]
+04 - Run To You (T&A Demo Dec 12, 1992) [3:45](   Читать дальше...   )Жанр: Pop, Rock, Pop RockПродолжительность: 02:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF055FF9E03E605248DC09319645508021A7B9ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764350   (34890) от 07.12.2024
+
+Dua Lipa - Dua Lipa Live from the Royal Albert Hall (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (Live from the Royal Albert Hall) [00:01:46]
+02. End Of An Era (Live from the Royal Albert Hall) [00:03:59]
+03. Houdini (Live from the Royal Albert Hall) [00:03:36]
+04. Training Season (Live from the Royal Albert Hall) [00:03:40](   Читать дальше...   )Жанр: PopПродолжительность: 01:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEFDF2D47DDECE8C9A7773844C3A60655E32C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764552   (34889) от 07.12.2024
+
+Sexual Music Collection - Jazz SEXtet: Sexy Sounding Jazz for Couples in Love (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexually Twisted (3:14)
+02. Ignite The Spark (3:26)
+03. Provocative Girl (3:35)
+04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E346A1E7DF294D331E358291559FDA8633F4AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658825   (34821) от 08.12.2024
+
+the Gathering - Studio Albums (14 releases) (1992-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom/Gothic/Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34821.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Gathering — рок-группа из Нидерландов, основанная в 1989 году братьями Рене и Хансом Рюттенами.1992 - Always
+1994 - Almost A Dance
+1995 - Mandylion
+1997 - Nighttime BirdsЖанр: Death/Doom Metal, Trip Rock, Progressive RockПродолжительность: 15:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9F569124D39D09264B26A2B1D7FCFF8B55A781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764833   (34707) от 09.12.2024
 
 VA - Шлягеры Уходящего Века (2000) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
@@ -597,149 +742,6 @@ Nico Wayne Toussaint - With Love From Clarksdale (2024) [FLAC 24/88.2|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2940DFBBCE1303E8C2C5C4BF7B519E1A92CE550D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764676   (33974) от 16.12.2024
-
-Kai Strauss - Wailin' In Vienna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kai Strauss - OLD FASHIONED DADDY (3:12)
-02. Kai Strauss - 5$ SHAKE (3:20)
-03. Kai Strauss - TRAVELIN' MAN (4:07)
-04. Kai Strauss - STRANDED (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4379C10B14255A3D79F533AF32A5A5E2E1085D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765739   (33973) от 16.12.2024
-
-Dark Lightning - Studio Albums (2 releases) (2023-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Lightning - симфоник-метал группа из Германии с жёсткими риффами, мощным вокалом и эпичными мелодиями, образовавшаяся в 2018 году.2023 - Dark Lightning (EP)
-2024 - The Demons We CreateЖанр: Symphonic MetalПродолжительность: 01:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E513BB817D2B95CF188871173FEB94C778BDE54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766069   (33972) от 16.12.2024
-
-VA - Alfredo Golino & Collettivo 112 (Classe Pop Rock) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alessandro Cuccato - The Ring (3:50)
-02. Claudio Pandolfi - Driving my car (4:34)
-03. Enzo Boscarino - Bump 'n' Jump (4:34)
-04. Leo Ingegno - Breaking news (4:49)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C21257560CD3F569CD992FFDF71D66F78D8780E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766068   (33969) от 16.12.2024
-
-The Smoothies - Let's Make Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby's Gone (3:14)
-02. Melancholic Thoughts (3:02)
-03. Montréal Memories (3:15)
-04. Concrete Pride (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43066ED62A76950E2AB2A6DEEBD614F6A5856F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766461   (33758) от 18.12.2024
-
-Canblaster - Liberosis (Director'S Cut) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full Focus [00:04:17]
-02. Orbital Frame [00:04:36]
-03. Sequence Break [00:04:41]
-04. Jouska [00:05:52](   Читать дальше...   )Жанр: ElectronicПродолжительность: 2CD, 01:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9FECF85A5428DB65AE90B2AC46BC13D73297A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

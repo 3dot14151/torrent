@@ -1,3 +1,32 @@
+###  Публикация: 1594317   (178249) от 01.12.2022
+
+Gutlocker - To Be Alive (2022) [MP3|320 Kbps] <Groove Metal, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Send Them All In [00:05:25]
+02 - Make My Day [00:04:46]
+03 - Sink or Swim (feat. Kieran Scott) [00:02:40]
+04 - To Be Alive [00:04:53](   Читать дальше...   )Жанр: Groove Metal, Sludge MetalПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAE8BF36C92FE5EB190FAECF3B705A27D5669BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594453   (178238) от 01.12.2022
 
 In The Blind - Evolve & Escape (2022) [MP3|320 Kbps] <Alternative Metal, Progressive Metal>
@@ -716,35 +745,6 @@ Thunderstick - Lockdown (2023) [MP3|320 Kbps] <Heavy Metal/Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69B8702FC3AAD2B6C75BE17F3F16B1000383FDFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596748   (169279) от 11.12.2022
-
-Ofdrykkja - 5 Albums (2014-2022) [MP3|320 Kbps] <Atmospheric Rock, Melancholic Folk, Nordic Mournfulness>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2014 - A Life Worth Losing
-2015 - Urban Negativism
-2017 - Irrfärd(   Читать дальше...   )Жанр: Atmospheric Rock, Melancholic Folk, Nordic MournfulnessПродолжительность: 5 CD, 04:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3577004E43A2975FF3BC9D3B17BBCC3727584491
 ```
 
 https://mybot314.ru/tekegram_catalog/

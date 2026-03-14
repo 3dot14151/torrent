@@ -1,3 +1,177 @@
+###  Публикация: 907853   (635850) от 13.06.2015
+
+Pete Herzog & Dennis Walker - Waiting For The Rain (2015) [MP3|320 кб/с]<Blues Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lotsa Rain (3:02)
+02. I Wish Him Luck (2:24)
+03. World's On Fire Again (3:26)
+04. It's Gotta Rain (3:09)(   Читать дальше...   )Жанр: Blues FolkПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91904F6CA83FAD747DFAC98D2813662DC665236A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228356   (635823) от 01.06.2018
+
+Nicola Conte - Viagem Vol. 4 (2012) [MP3|320 Kbps] <Bosa Nova, Samba, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 7 de Ouros - So Balanco (2:38)
+02 - Myrzo Barroso - Consolacao (2:35)
+03 - Quarteto 004 - O Morro Nao Tem Vez (2:02)
+04 - Bossa Jazz 3 - Outra Vez (2:21)(   Читать дальше...   )Жанр: Bosa Nova, Samba, JazzПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEB7CC4994F620284BFE7038B370954DBF7C818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293584   (635778) от 04.04.2019
+
+Pepper Adams - Four Classic Albums (1956 - 1958) 2CD, 2015, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635778.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Afternoon In Paris [5:57]
+02. You Turned The Tables On Me [4:46]
+03. Apothegh [5:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:25:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38745681B0EA3DF44E849527C6D38F4BBC0E829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293502   (635676) от 04.04.2019
+
+Seamus Blake - Guardians Of The Heart Machine (2019) [FLAC|Lossless|tracks + .cue] <Post Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guardians of the Heart Machine [8:17]
+02. Vaporbabe [7:10]
+03. Sneaky D [6:55]
+04. I'm Okay [7:41](   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE1B27787DE964B8B3DBED61EAF4A6C1B5B6589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143684   (635519) от 18.06.2017
+
+Jorge Pardo - Cafe Latino 25 Aniversario (2012) Nuta Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La del Pulpo [14:02]
+02. Intro Cafe Latino [02:42]
+03. Amor Ascensor [09:38]
+04. El Efecto Centolla [09:21](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 01:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D360290E9A8BC9E3369B479568926334716A0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293458   (635505) от 04.04.2019
+
+Happy Day Singers - Gospel Songs (2000) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635505.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01.	Glory Glory Halleluja
+02.	Put A Little Love In Your Heart
+03.	We Are Going Down, Jordan(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 02:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B553F2F82C555C2DDA5A1BBE3804EA6802FB4C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519839   (635476) от 07.07.2012
 
 VA - Essential Blues Anthology (2008) 2CD [MP3|320 кб/с]<Blues>
@@ -577,177 +751,6 @@ Kokomo Arnold - The Essential (2003) 2CD[MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:064149E27AC121EEC2DD469D9AE517854BAA5846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908446   (634181) от 14.06.2015
-
-Elina Duni - Muza E Zeze (2015) [FLAC|Lossless|WEB-DL]<Contemporary Jazz, Vocal Jazz, Balkan Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muza E Zeze (2:57)
-02. Ne Tirane (3:09)
-03. Mos Ki Frike (3:48)
-04. Miq (3:17)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal Jazz, Balkan JazzПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89C96C7CF61A34A0D15C75CFA2B2A595CCD7652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908109   (634172) от 14.06.2015
-
-John Lee Hooker - Alternative Boogie: Early Studio Recordings (1948-1952) 3CD /1995/[MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Come Back Baby (2:56)
-02.  Forgive Me (3:13)
-03.  Streets Is Filled With Women (3:13)
-04.  Moon Is Rising (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 02:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E376F4D1BC058EFB1B575333DD5504A2AB7A3884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908370   (634166) от 14.06.2015
-
-Crow Black Chicken - 3 альбома (2012-2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Blues RockПродолжительность: 03:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912CF8E873F03D298F92A17B782706CEFBBC8B90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908009   (634160) от 14.06.2015
-
-Anna Sise - Detour Ahead (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Detour Ahead (6:30)
-02. I Think It's Gonna Rain Today (3:34)
-03. A Certain Sadness (5:24)
-04. St. James Infirmary (4:19)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75A89B359CA604A6C7771A8DFB394AC6684C9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908042   (634081) от 14.06.2015
-
-Charlie Musselwhite - I Ain't Lying (2015) [FLAC|image+.cue]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Blues Tonight [4:06]
-02. Done Somebody Wrong [4:19]
-03. Long Lean Lanky Mama [4:54]
-04. Always Be My Friend [3:32](   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415C239798DA94ABCD9AD0714E5DD1B701F50067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543003   (633826) от 09.04.2022
-
-Dinah Shore - Dinah's Showtime '44-'47 (1994) Hep Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're a Builder Upper [1:50]
-02. Can't You Read Between the Lines [3:05]
-03. Sometimes I'm Happy [2:44]
-04. Linger in My Arms a Little Longer, Baby [2:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B714A7D9A46A1BA3192F93FE6091943726602577
 ```
 
 https://mybot314.ru/tekegram_catalog/

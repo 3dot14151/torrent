@@ -1,3 +1,148 @@
+###  Публикация: 1233103   (592998) от 30.06.2018
+
+Фёдор Чистяков - Песня для друга, который любит рок (1999) [FLAC|Lossless|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чудесный день 6:52
+02. Ихтиандр 5:41
+03. Рассвет 5:27
+04. Радость 4:38(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3DE033BA16942768BD0CB3F2F3345DBEB3512F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551133   (590754) от 14.05.2022
+
+The Faceless Hunter - One Minute to Midnight (2022) [FLAC|Lossless|WEB-DL|tracks] <Russian Modern Metal, Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Minute to Midnight [00:03:29]
+02. The Edge of Emptiness [00:05:39]
+03. Dead Heaven [00:05:46]
+04. Sacred Blood [00:05:31](   Читать дальше...   )Жанр: Russian Modern Metal, Melodic DeathПродолжительность: 01:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CA6600DA69FCB1DE95FF2D4C18792C267CE4AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551006   (590750) от 14.05.2022
+
+Рваные Раны - Лучшая проклятая вещь (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Проклятая вещь (00:01:32)
+02 - Строгий отец (00:03:48)
+03 - Слышишь сука! - (00:02:23)
+04 - Вы - закройте рты! (00:02:54)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50095E31BE979FD739B2BF738DA8516190D373A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551352   (590228) от 15.05.2022
+
+Morok - Вне света & На круги своя (1997) 2CD, Remastered & Reissued, 2022, Der Schwarze Tod/COD Music [FLAC|Lossless|image + .cue] <Russian Pagan Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Полночь
+2. Предтеча
+3. Сгоревшая река
+4. Дыхание осени(   Читать дальше...   )Жанр: Pagan Metal, Black MetalПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2016FC08C55D91A9AAD8A49B7787613BAF69FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551342   (590192) от 15.05.2022
+
+ХитобоИ - 6 Albums (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Russian Ska-Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Василий
+02. Весенняя
+03. Эффект баб
+04. Истина в вине(   Читать дальше...   )Жанр: Russian Ska-Punk, RockПродолжительность: 6CD, 02:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811220E9B0DE34F312F37B8D2268DAD1E28DFF56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551321   (589424) от 17.05.2022
 
 Суперкульт - Клеймо (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, Experimental Rock>
@@ -605,151 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:611FF9645D8DA55D800E49F1B4E8C47558A76FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924848   (557381) от 04.08.2015
-
-Ундервуд - Избранное (2015) [FLAC|tracks]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Йога и алкоголь (3:02)
-02. Гагарин, я вас любила (4:07)
-03. Ангелы и аэропланы (3:06)
-04. Молодые львы (3:41)(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7939FABFF684D972A0CE552A24A641875E7A8019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236334   (554649) от 16.07.2018
-
-ДДТ (DDT) - Галя ходи (2018) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Альтернатива
-02. Если
-03. Уездный город
-04. Звезда-старуха(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA12CA88E81879B99F2A6C066DF9D33CAB471B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048590   (546275) от 02.09.2016
-
-Крематорий - Люди-невидимки (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Caesar
-02. Супермаркет
-03. Гудвин
-04. Брунхильда(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969CA8CF7E26C86161F99AC22CD13E3030A0F358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048985   (544915) от 04.09.2016
-
-Grobut Neerg - Схрон (2012) [FLAC|Lossless|image + .cue] <Folk Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лес есть лес (Grove Is Grove)
-02. Подхвати мой клич (Howl)
-03. Нам туда (Go Forward)
-04. Сотня бочек (AHundred Barrels)(   Читать дальше...   )Жанр: Folk Metal, Death MetalПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6FD734E82609660E3F1A00A3C6D3F41BB85A6C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311077   (544227) от 27.06.2019
-
-Монгол Шуудан - Паровоз Анархия. Реинкарнация (2019) [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544227.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Введение
-2. Паровоз анархия
-3. Анархический батальон
-4. Комиссар(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1569F4B8164CEC26F93C04A30127B9C0C1DF9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

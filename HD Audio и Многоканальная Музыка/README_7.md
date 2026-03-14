@@ -1,3 +1,130 @@
+###  Публикация: 615136   (978389) от 07.02.2013
+
+Depeche Mode - Playing The Angel (2005) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978389.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. A Pain That I'm Used To 4:08
+A2. John The Revelator 3:45
+A3. Suffer Well 3:54
+B1. The Sinner In Me 4:59
+B2. Precious 4:07
+B3. Macro 4:09
+C1. I Want It All 6:11
+C2. Nothing's Impossible 4:22
+C3. Introspectre 1:41
+C4. Damaged People 3:30(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0043B9363B5FB929FAFA7DCD46C7259F88EF7598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614646   (978302) от 07.02.2013
+
+Deep Purple - 9 альбомов (1970-1990) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978302.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. King Of Dreams 5:28
+A2. The Cut Runs Deep 5:42
+A3. Fire In The Basement 4:46
+A4. Fortuneteller 5:48
+B1. Truth Hurts 5:15
+B2. Love Conquers All 3:45
+B3. Breakfast In Bed 5:18
+B4. Too Much Is Not Enough 4:18
+B5. Wicked Ways 6:32Жанр: RockПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46BFC05513E57F36CC3C67C285C0D88061F7D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973683   (978127) от 10.01.2016
+
+VA - Blues & Ballads 2 (1996) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Pop, Cover>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valery - I Will Always Love You
+02. Power Band - Now I Know What Made Otis Blue
+03. Bill Power - Streets Of Philadelphia
+04. Jackie Moore - Why(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FC4B473CF5E93F11827BE9F0B3A10C63FA29A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973397   (978125) от 10.01.2016
+
+Dana International - The Album (1998) [FLAC 2.0|16/44,1 |image+.cue (Vinyl-Rip)] <Euro House>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diva
+02. Cinque Milla (Remix)
+03. Maganuna (Remix)
+04. Qu'est Que C'est? (Remix)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF85AAC73B9E8EDFB901EAB0191411010D3F11DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972986   (978123) от 10.01.2016
 
 Ансамбль (Вокальный квартет) Аккорд (1964) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop>
@@ -630,122 +757,6 @@ Deep Purple - Fireball (1971) [FLAC 2.0|96/24|image|Vinyl-Rip]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36219E842A0EB29653998B21E08677746F611F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089925   (948933) от 05.01.2017
-
-Triumvirat - 3LP (1975-1978) [FLAC 2.0|192/24|Lossless|image + .cue|Vinyl-Rip] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948933.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Watefall
-A2 (Oh I'm) Late Again
-A3 Jo Ann Walker
-A4 For You(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D411AEF677457DE19BDA8A1EE856D68E0A80C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089742   (948647) от 05.01.2017
-
-Константин Никольский - Иллюзии (2007) [WavPack 2.0|192/24|image + .cue|Vinil-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-01.- Иллюзии (4:22)
-02.- Пред чертой (4:06)
-03.- Только там (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5145FF0DE54B82D40ED6154FCFD717424B65EC68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089678   (948575) от 05.01.2017
-
-VA - RETROспектива, часть III: Эстрадные оркестры III (1933-1961) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментальный октет - Новые приятели
-02. Оркестр п.у. Эмброуза (соло Сэм Браун) - Кукарача (румба)
-03. Джаз-оркестр ВРК п.у. А. Н. Цфасмана - Песенка дятла (полька)
-04. Джаз-оркестр ВРК п.у. А. Н. Цфасмана - Тирольский вальс (вальс)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F4C7F50EB9BAA08B435D8DF13429EF11BEBCB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089961   (948567) от 05.01.2017
-
-VA - RETROспектива, часть IV: Эстрадные оркестры IV (1939-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эстрадный оркестр ВР п.у. Б. П. Карамышева - Я миланец (медленный фокстрот)
-02. Эстрадный оркестр ВР п.у. Б. П. Карамышева - Любопытство (мамбо-бегин)
-03. Инструментальное трио - Доброй ночи (фокстрот)
-04. Инструментальное трио - Маленькая мельница (фокстрот)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FC521C0E5B5E509B7017D8E7D7430E9CFA2FD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

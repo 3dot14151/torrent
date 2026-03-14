@@ -1,3 +1,32 @@
+###  Публикация: 1109437   (859153) от 27.02.2017
+
+Tower - Titan (1982) Reissue, 2010, CNR Music [MP3|320 Kbps] <Pop Rock,  Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction/Titan (9:37)
+02. Get Back (3:18)
+03. Moon (4:12)
+04. We Are (The Boys And Girls) (3:11)(   Читать дальше...   )Жанр: Pop Rock,  Symphonic RockПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98F41FD2B63F89713ACB4D99BA71F6C97F8B5D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376566   (858558) от 18.04.2020
 
 No Good Sons - Sin Reprisal (2020) [MP3|320 Kbps] <Rock>
@@ -375,6 +404,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 306840   (847073) от 12.03.2011
+
+ZZ Top - Дискография (1971-2008) [MP3|320 kbps]<Blues Rock>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_847073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Сlassic Rock, Blues RockФормат: MP3Продолжительность: 25:35:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499868   (846314) от 03.10.2021
 
 The Raven Age - Exile  (2021) [MP3|320 kbps] <Alternative Rock>
@@ -684,61 +739,6 @@ Rockin'1000 - That's Live - Live in Cesena 2016 (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEEBF0E1A95F27FE3F059B9B1C31D7EE4297073F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309850   (839255) от 17.03.2011
-
-Slade - The Live Anthology 1972 - 1982, 2CD (2009) [MP3|320 kbps]<Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Glam Rock, Hard RockПродолжительность: 02:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB653C8EDA50603A1A46A442F939E2CFA66F5B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501114   (838122) от 08.10.2021
-
-Santiano - Wenn die Kälte kommt (2021) 2CD [MP3|320 Kbps] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wenn die Kälte kommt
-2. Was du liebst
-3. Heave Ho
-4. Nichts als Horizonte(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0468B5B5FBB0829324BEBF09DBF96E87254FF0F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

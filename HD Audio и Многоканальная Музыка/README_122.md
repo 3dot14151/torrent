@@ -1,3 +1,148 @@
+###  Публикация: 1721747   (109952) от 08.05.2024
+
+Fux Jazz Band - Mi Lugar de Fantasía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mi Lugar de Fantasía (3:53)
+02. Los Colores del Blues (3:20)
+03. Vals Bajo La Luna (4:22)
+04. Down The Hill (3:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53B6448B2F7E64E795F8DC5E0634E9B7324A3C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721756   (109949) от 08.05.2024
+
+Novelty Five - Rosetta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Have Found a New Baby (4:21)
+02. Careless Love (Loveless Love) (3:11)
+03. Basin Street Blues (4:07)
+04. Jitterbug Waltz (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442047F4047E8318CFEA55956DFBC83817B4C264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721755   (109947) от 08.05.2024
+
+Monica Shriver - Unfolding (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lift (6:05)
+02. Brick By Brick (5:17)
+03. Blue Nile (8:38)
+04. It's Not All On You (5:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC09E530AF13FD66170223B5D66F739094FDBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721764   (109946) от 08.05.2024
+
+WailingGita - Mafia's Masquerade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frolicking Marionette (5:48)
+02. Swoon Buffoon (5:34)
+03. Kumicho's Grand Entrance (4:51)
+04. Malice Palace (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD2467FA55D85D630BC2E0EAAA37C8859CAD5C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721753   (109943) от 08.05.2024
+
+Gugun Blues Shelter - Coming Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Out (3:13)
+02. Don't Cry For Me (3:53)
+03. Heart Breaker (4:01)
+04. Bad Politician (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D4D0D449C1C8E64E288529C5DD4F50CD4AC788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721736   (109938) от 08.05.2024
 
 Alessandro Brunetta - Shakedown! (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz, Soul>
@@ -597,151 +742,6 @@ Mario Abney - Right Now (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FA297F5473EADE8D103070BBE8258DCAB3310EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722178   (109742) от 10.05.2024
-
-2 Wolves - Not Worth It (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Doom/Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Longer [00:06:45]
-02. Failed Attempts [00:06:10]
-03. Man of Thousand Faces [00:06:42]
-04. Garden of Ashes [00:06:52](   Читать дальше...   )Жанр: Gothic Doom/Melodic Death MetalПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190B379DE59F0787581DA237157CA90E495ED9F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722328   (109741) от 10.05.2024
-
-Falls Circus - Falls Circus (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring In The Clowns (4:49)
-02. Parts and Pieces (3:57)
-03. The Place Called Wonderful (4:09)
-04. Intangible (3:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404EB958E956F9A80789AF2B5EC310703B7A2C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722171   (109740) от 10.05.2024
-
-Unleash The Archers - Phantoma (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human Era (5:41)
-02. Ph4/NT0mA (6:30)
-03. Buried In Code (3:40)
-04. The Collective (5:54)(   Читать дальше...   )Жанр: Power Metal, Melodic Death MetalПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67DF019B869ABCE1349F6041B709C5D5CE540ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722191   (109737) от 10.05.2024
-
-Uncle Acid & the Deadbeats - Nell' Ora Blu (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psychedelic Rock, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il Sole Sorge Sempre (5:16)
-02. Giustizia Di Strada - Lavora Fino Alla Morte (4:36)
-03. La Vipera (3:34)
-04. Vendetta (Tema) (3:11)(   Читать дальше...   )Жанр: Psychedelic Rock, Doom MetalПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71AAA2B9B7EA010CEAA880C3925A93E76E3F583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722333   (109735) от 10.05.2024
-
-Glen Ample - Living in Desire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back in Time (3:49)
-02. Rock'n'Roll Life (3:46)
-03. Living in Desire (4:17)
-04. Cheer Up (2:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D819CAD710E8E38C1AAD7A4CEDD4A60450B1706
 ```
 
 https://mybot314.ru/tekegram_catalog/

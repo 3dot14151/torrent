@@ -1,3 +1,148 @@
+###  Публикация: 1709620   (61832) от 25.03.2024
+
+Пикник - Родом ниоткуда (1989) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Я невидим
+02. Интересно
+03. Нет берегов(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD2332778A4AB5E8BD3B0F71CBEAD52FA1C7AA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709696   (61817) от 25.03.2024
+
+VA - Пульс 1 - Музыкальный компьютер. (Серия "Спорт и музыка") (1985) [FLAC 24/192|Lossless|tracks] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+А.Родионов. "Современное пятиборье" (сюита)
+01-Догоняй, компьютер (кросс)
+02-Электронный наездник (скачки)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB504B5680808F2FAAD2A2D0BB3228310996858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709678   (61806) от 25.03.2024
+
+VA - Пионерские песни - А. Долуханян (1969) [FLAC 24/192|Lossless|tracks] <Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Если петь нам о Родине (В. Семернин)
+02. Песня о первом пионерском отряде (С. Рунге)
+03. До чего же хорошо кругом (Л. Некрасова)
+04. В добрый путь (В. Харитонов)(   Читать дальше...   )Жанр: RetroПродолжительность: 00:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FB9A54D834AB8B67BC708814D9E09BDCA6BBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709614   (61799) от 25.03.2024
+
+James Last (Джеймс Ласт) - Большой секрет (1977) [FLAC 24/192|Lossless|tracks] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Ликование / Jubilation (P. Anka / J. Harris)
+02. Колыбельная / Summertime (G. Gershwin / D. Heyward)
+03. Я не могу двигать горы / I Can’t Move No Mountain (M. Gately/ R. John)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5141EAF3474509EA5721B0489B5836D9067FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709617   (61795) от 25.03.2024
+
+Пикник - Иероглиф (1987) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Остров
+02. Иероглиф
+03. Праздник(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C024F4716C42DAA660D4396DD7B863641B3088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603099   (61626) от 27.03.2024
 
 Гран-КуражЪ - Студийные альбомы (13 изданий) (2006-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy/Power Metal>
@@ -602,151 +747,6 @@ Mark Knopfler - The Boy (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A65A87E4405F263045A917F2BA0616798D6F625D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720710   (57615) от 04.05.2024
-
-Michael Jackson - Thriller (1982) 2008 [FLAC 24/176.4|Lossless|WEB-DL|tracks] <Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57615.jpg" />
-</div>
-
-
-###  Подробнее
-
-[6:04] 1. Wanna Be Startin' Somethin' (Album Version)
-[4:21] 2. Baby Be Mine (Album Version)
-[3:43] 3. The Girl Is Mine (with Paul McCartney) (Album Version)
-[5:59] 4. Thriller (Album Version)(   Читать дальше...   )Жанр: Soul, PopПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D7F7EAE34CFDEBA52179C93E0675BFD3A6FA0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720831   (57532) от 05.05.2024
-
-Michael Jackson - Bad (Remastered) (1987) 2012 [FLAC 24/96|Lossless|WEB-DL|tracks] <Soul, Funk, R&B, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57532.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:08] 01. Bad (2012 Remaster)
-[4:59] 02. The Way You Make Me Feel (2012 Remaster)
-[4:03] 03. Speed Demon (2012 Remaster)
-[3:53] 04. Liberian Girl (2012 Remaster)(   Читать дальше...   )Жанр: Soul, Funk, R&B, PopПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2779AAAA50329C9E2297874308AEB9CB1790FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721337   (57425) от 06.05.2024
-
-Scorpions - Virgin Killer (1976) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57425.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Pictured Life 00:03:22
-2 Catch Your Train 00:03:34
-3 In Your Park 00:03:43
-4 Backstage Queen 00:03:11(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44809E5CF877F2735F204F2D52117ADB7C9DAF5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721333   (57392) от 06.05.2024
-
-Scorpions - In Trance (1975) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57392.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Dark Lady 00:03:26
-2 In Trance 00:04:43
-3 Life's Like a River 00:03:49
-4 Top of the Bill 00:03:25(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79CBDED38B9429478A18AE58D87942B24C06064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721330   (57388) от 06.05.2024
-
-Scorpions - Fly To The Rainbow (1974) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57388.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Speedy's Coming 00:03:34
-2 They Need a Million 00:04:50
-3 Drifting Sun 00:07:40
-4 Fly People Fly 00:05:02(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB50A8CD2EA6E1B3FD333639814107B4F16A0865
 ```
 
 https://mybot314.ru/tekegram_catalog/

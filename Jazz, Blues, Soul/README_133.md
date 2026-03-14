@@ -1,3 +1,179 @@
+###  Публикация: 1124364   (785811) от 11.04.2017
+
+Bunny Brunel & Friends - Bass Ball (2017) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing But The Bass [04:42]
+02. Slap & Tickle [05:21]
+03. Stand Out [05:19]
+04. Lopsy Lu [06:14](   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F516ABEF4238F97AEB899E9450B75F52A3FA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124377   (785810) от 11.04.2017
+
+Jay Jesse Johnson - Set The Blues On Fire (2015) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Or High Water (3:54)
+02. Ghosts In Texas (4:21)
+03. Since My Baby's Gone (4:57)
+04. Wheelhouse Boogie (5:03)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6D70F62265F393524B6A13738C3607915B63FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124545   (785805) от 11.04.2017
+
+Joey Gilmore - Brandon's Blues (2015) [FLAC|Lossless|image + .cue] <Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Thing Go Bad   (04:19) 
+02. Cheaper To Keep Her  (05:18) 
+03. Brandon's Blues  (04:29) 
+04. Somebody Have Mercy  (04:13) (   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EAC420B00285E721DD08394266E1F94EDCBC87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124372   (785791) от 11.04.2017
+
+The Hot 8 Brass Band - On the Spot (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Funk, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 8 Kickin' It Live (7:09)
+02. Get It How You Live (6:39)
+03. Bottom Of The Bucket (6:49)
+04. On The Spot (5:32)(   Читать дальше...   )Жанр: Funk, New Orleans JazzПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3BADF876F7D11FC40C1597AA55EEDC4A9020B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124315   (785788) от 11.04.2017
+
+VA - Timeless Piano Instrumental: Smooth Jazz Collection (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piano Atmosphere Ensemble - Timeless Piano Instrumental
+02. Sentimental Piano Jazz Club - Late Night Date
+03. Relaxing Piano Jazz Music Ensemble - Smooth Restaurant Music
+04. Jazz Piano Bar Academy - Deep Relax(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27CAE78993083E551C4FE9CEE8BFFFE095FA1FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124594   (785777) от 11.04.2017
+
+The Blues Cousins (Блюз Казнс) - Дождь (1999) [APE|Lossless|image + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леван Ломидзе является первым  российским       гитаристом, признанным на родине Блюза.
+2002 году был подписан долгосрочный контракт с Вашингтонским Блюзовым сообществом, о проведении 5 туров по США , включая выступления на самых престижных блюз фестивалях Америки. В общей сложности было проведено более 100 концертов.
+На фестивале « Blues Sur Sein 2000» (Франция) Леван (   Читать дальше...   )01. One Step (3:50)
+02. Nobody Knows (3:34)
+03. Дождь (3:50)
+04. Come Together (3:18)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE70C41474FCFADB48758857B01FF955405EE38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124680   (785668) от 12.04.2017
 
 Richard Bennett - Contrary Cocktail (2015) [FLAC|Lossless|image + .cue] <Instrumental Jazz, Instrumental Rock, Pop>
@@ -571,180 +747,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D0DCF3CC4C89A3FC16EC2B5007161E004001908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277604   (785061) от 21.01.2019
-
-Ari Brown - Groove Awakening (2013) Delmark [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One For Ken [5:20]
-02. Groove Awakening [5:03]
-03. Enka [11:06]
-04. Veda's Dance [8:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8C97F966F49FEA0621F40753A15DCEFB15272A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204303   (784987) от 05.02.2018
-
-The Modern Jazz Quartet - Concert In Japan, Vol.1 (1966) 2014, Warner [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Really True Blues [05:22]
-02. The Cylinder [05:08]
-03. Midsommer [04:58]
-04. Summertime [06:37](   Читать дальше...   )Жанр: CoolПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F006D607F6A4645D5E62CFEFAFACF72F145F540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204265   (784984) от 05.02.2018
-
-Blindstone - Manifesto (2003) 2008, Grooveyard Records [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Wasted Days 4:24
-02. Temple Trippin' 3:33
-03. Somewhere 4:43
-04. Say It Ain't So 4:57(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547F41845EB3D4CE5C0B6041C815551E7FF4C6A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204260   (784982) от 05.02.2018
-
-Blindstone - Freedom's Calling (2008) Grooveyard Records, GYR043 [MP3|320 Kbps] <Blues Rock, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Freedom's Calling 3:16
-02. Can't Be With You 3:49
-03. Fear 3:55
-04. Good Time 4:56(   Читать дальше...   )Жанр: Blues Rock, FunkПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6221A16647A409B18A3027FA1A9EE98825C1B101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204355   (784980) от 05.02.2018
-
-Blindstone - Rise Above (2010) Grooveyard Records [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Rise Above 5:12
-02. Power Man 3:11
-03. Keep The Rock Alive 3:37
-04. Climbing The Ladder 6:16(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB00B3C27EF64FDE93D8EF4538842A55C17B335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204435   (784960) от 05.02.2018
-
-Peter Karp & Mick Taylor - The Turning Point (2004) BackBender Records [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. Train O'Mine 2:58
-02. Rolling on a Log 4:21
-03. The Turning Point 4:14
-04. The Nietzsche Lounge 3:45(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53E8E8B78B852DC4A25E825F6BCC7922CF30A1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

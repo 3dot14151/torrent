@@ -1,3 +1,32 @@
+###  Публикация: 1842365   (1048702) от 15.12.2025
+
+VA - No name compilation part 26 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Umideep - Notte Disco
+02 - Dova Music - Stay Close
+03 - Hamidshax - Loving You
+04 - Elno - Along(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D3A4286CF43563C7424319CD9AA98A30A0B371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841992   (1048392) от 13.12.2025
 
 VA - Vocal Trance NNM 6 (2025) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Record Super Chart 04.02.2023 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FC4D01B8F7CF19056CBD52C8FA052A1FB0ABAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436848   (1042761) от 02.01.2021
-
-VA - Ремиксы 2К21 (2021) [MP3|320 Kbps] <Pop, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artem Smile & Emmanuil - Я ворвусь на танцпол (Yuza Radio Remix) (2:44)
-02. Idris Leos - В последний раз (Dj Amor Radio Mix) (3:23)
-03. Kan - Хулиган (Yuza Radio Remix) (3:29)
-04. Денис Клявер - Тебя удача найдет (Vostokov Remix) (2:50)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 06:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618C6B4ED5950BE33305EFF93F9D6BB44B12DA5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

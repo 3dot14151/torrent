@@ -1,3 +1,29 @@
+###  Публикация: 942131   (457638) от 29.09.2015
+
+Проекты - VideoHive - Daybreakers [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания превью к фильму. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FB793D0A78D321A4D7F1D5E42760C478EAD558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941780   (457633) от 29.09.2015
 
 Проекты - VideoHive - Fast Slide [AEP]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F368AB74A91912B458D982C6AA3DBF0892BC899D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942473   (455269) от 30.09.2015
-
-Проекты - VideoHive - Simple Particle Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9768B496C82EDB106685D61800A5C683DE384B1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

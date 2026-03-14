@@ -1,3 +1,90 @@
+###  Публикация: 1381762   (824816) от 08.05.2020
+
+Michel Pastre Quartet - Free Swing (2006) Djaz Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midriff [3:55]
+02. Tulip or Turnip [5:01]
+03. Free Swing [5:17]
+04. Webstering [6:08](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8A711BDA993AFF805A5FBE6BC408BBB31167E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381739   (824815) от 08.05.2020
+
+Dakota Staton - Dynamic! 1958 (2006) Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Off Uptown [2:31]
+02. Night Mist [2:51]
+03. Anything Goes [2:29]
+04. When Sunny Gets Blue [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F947CF7467A50D1AE0784C1865353E48254C94E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381727   (824813) от 08.05.2020
+
+Nathalie Soles - Deeper (2007) Milan [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dodo Bebe [3:37]
+02. I Will Wait for You [3:29]
+03. A Day in the Life of a Fool [3:44]
+04. Tenderly [3:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C6657C64101301BC0343E249EBAC25D956064B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116174   (824779) от 19.03.2017
 
 Richard Galliano - New Jazz Musette (2017) 2CD [FLAC|Lossless|WEB-DL|tracks] <Jazz, Accordion>
@@ -655,93 +742,6 @@ The Buddy DeFranco (De Franco) Quintet - Cooking The Blues (1955) Remaster, 2013
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DF2798782F6243E0C4FBAA25FFF641498CADF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007516   (821621) от 15.04.2016
-
-Art Blakey & The Jazz Messengers - 'S Make It (1964) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Faith [03:47]
- 02.'S Make It [05:41]
- 03.Waltz For Ruth [05:47]
- 04.One For Gamal [03:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724408F09CAABA7CC73BF868DA8F675CDDC1B8E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503231   (821341) от 18.10.2021
-
-Sadao Watanabe - Naturally (2016) Red River [FLAC|Lossless|tracks + .cue] <Post-Bop, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naturally [4:50]
-02. Junto com Voce [5:51]
-03. After Years [5:47]
-04. Bem Agora [4:39](   Читать дальше...   )Жанр: Post-Bop, Crossover JazzПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9F8F2B88533ED563D100D2206DAC3485E2C6B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116991   (821284) от 21.03.2017
-
-McCoy Tyner Quartet - Live At Yoshi's (2007) Half Note Records [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Walk Spirit, Talk Spirit [09:32]
- 02.Mellow Minor [09:52]
- 03.Sama Layuca [12:23]
- 04.Passion Dance [11:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A215700CE9A90B7652C062FD1B516520726D60
 ```
 
 https://mybot314.ru/tekegram_catalog/

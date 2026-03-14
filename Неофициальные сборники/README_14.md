@@ -1,3 +1,90 @@
+###  Публикация: 1615591   (1037505) от 26.02.2023
+
+VA - Music News vol.248 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037505.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Diana Di - Я Буду (02:58)
+ 002. 22Bullets feat. Alex Aris - Love Is Gone (02:35)
+ 003. 22Bullets feat. Dripteese - To Get You (02:50)
+ 004. 24kGoldn - Bite (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F5823874A792B909274878DBE5FAE5DC7F6AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615331   (1037499) от 26.02.2023
+
+Elias Rahbani - Compilation (2023) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance of Maria
+02. I Think of You
+03. L'amoureux De Paris
+04. I Remember(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00A79F2622189FE75A495B83389A533F9C1388A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441490   (1037492) от 22.01.2021
+
+VA - Beatport Electro House: Sound Pack #221 (2021) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта подборка современной танцевальной музыки поможет не уснуть на работе и отдохнуть после неё, а также неплохо скрасит вашу вечеринку у друзей или тусовку на даче. Ищите для себя новых звёзд с 221-м сборником Electro House от Beatport. Заводные хиты, клубная музыка, современные треки с популярных радиостанций – всё, мимо чего нельзя пройти мимо!001. Wireless - Robot Communication
+002. Andrea Ferri - Dangerous Stars
+003. Dani Corbalan - Nobody Like You
+004. A-Massive - Ain't No Stoppin' Us Now(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 07:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E9C4FA67E28E2AA7C621B9D6033CC7812F96E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441488   (1037487) от 22.01.2021
 
 VA - Beatport Deep House: Sound Pack #222 (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -658,93 +745,6 @@ VA - Beatport Electronic: Sound Pack #226 (2021) [MP3|320 Kbps] <Synth, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3E79FC96D2BA82E1FBB74E13154C11E8B3F4300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442592   (1036304) от 26.01.2021
-
-Frаncine - Golden Anthology Of Rock And Roll Music (2020) [MP3|320 Kbps] <Rock & Roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036304.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течении последних лет музыка Francine поменяла много имён, такие как рокабилли, панкобилли, хард билли, пауэр билли. Сами же они предпочитают, чтобы их музыку называли просто рок-н-ролл, который они мастерски комбинируют с такими стилями как рокабилли, ритм-н-блюз, панк, поп, джаз!001. Almost Alive
-002. Anything You Do
-003. Can't Take It No More
-004. Come On, Let's Go(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 07:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01333711803C4082BAB9D12193654B1EF2F2E080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442594   (1036290) от 26.01.2021
-
-Enigma Norteсo - Van A Querer Mas (2021) [MP3|320 Kbps] <Latin, Folk Songs>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая рабочая неделя после зимних праздников всегда выматывает. И хочется налить бокальчик текилы, надеть удобные треники или махровый халат, взять в обнимку толстого и теплого кота и просто расслабиться под музыку жаркой Мексики.01. La Fiesta De Joaq
-02. Recordando
-03. El Griego
-04. Herida Mortal(   Читать дальше...   )Жанр: Latin, Folk SongsПродолжительность: 03:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3259191191B6E1DB283F55CB985F1CFEE7B20EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442781   (1036192) от 26.01.2021
-
-VA - 30(1) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A$AP Rocky, slowthai - MAZZA (2:51)
-02. ATB, Topic, A7S - Your Love (9PM) (2:30)
-03. Billie Eilish, Rosalía - Lo Vas A Olvidar (3:23)
-04. Bow Anderson - New Wave (3:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F497BE8D39E2E3FEF26DBBCCB0C2003FC7585A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

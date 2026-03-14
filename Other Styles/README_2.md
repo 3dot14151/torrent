@@ -1,3 +1,116 @@
+###  Публикация: 1447855   (1031331) от 15.02.2021
+
+Go_A - Шум (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шум (03:59)Жанр: Folk-RockПродолжительность: 00:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5AED14D17650A0C57F87EF4C3E6817B3867C90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620541   (1031194) от 24.03.2023
+
+VA - Spring Break 2023: Country Hits (2023) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Bryan - Country Girl (Shake It For Me)
+02. Little Big Town - Day Drinking
+03. Josh Ross - Tall Boys
+04. Florida Georgia Line - Sun Daze(   Читать дальше...   )Жанр: CountryПродолжительность: 03:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D2E4E0CCF1A0EC8199C89C0CE07C90E2858629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447777   (1031010) от 16.02.2021
+
+Sina Vodjani - Священный Будда (1998) Правительство Звука, 2002 [FLAC|Lossless|tracks + .cue] <World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031010.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот альбом Sina Vodjani вдохновили духовные наставники Мата Амританандамай и Его Святейшество, 17 Кармапа. "Эти люди изменили мою жизнь, - говорит музыкант. - Своей музыкой я всегда пытался донести до людей свет, мир, надежду и благословение. Выпуская компакт-диски, я также могу оказывать материальную поддержку тем, кто в ней нуждается, делать пожертвования (   Читать дальше...   )01. Straight to the Heart (8:10)
+02. Om Mani Padme Hung (5:47)
+03. Milarepa (5:38)
+04. Dorje Chang (3:35)(   Читать дальше...   )Жанр: World, New AgeПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48B3DA59F5DEBE29265FDC46C3D4E41FFDA297C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448174   (1030910) от 17.02.2021
+
+The Harmony Group - Spanish Guitar Tribute to Abba (2007) Brisa Records, 2015 [FLAC|Lossless|WEB-DL|tracks] <Pop, Guitar, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chiquitita (Instrumental) (4:43)
+02. Gimme Gimme Gimme! (Instrumental) (4:06)
+03. Mamma Mia (Instrumental) (3:28)
+04. Super Trouper (Instrumental) (4:14)(   Читать дальше...   )Жанр: Pop, Guitar, InstrumentalПродолжительность: 01:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CE098FFDF270F21BC8776589B1F2904C927DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 314732   (1030601) от 18.02.2021
 
 Bernd Steidl - Paganiniana (2001) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
@@ -629,122 +742,6 @@ Harry Holland, Dieter Reith - Magic Accordion (1985) [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EF2489CAE6808876F5910DBCD114B4EADA0C2CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255905   (1030342) от 19.02.2021
-
-Le Valedon - Sensuous Sax (1995, 1996) 2СD  [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goin' In Circles 	      (04:16)
- 02. I Can't Make You Love Me (04:56)
- 03. Colour My World 	      (02:57)
- 04. Everytime You Go Away    (04:29)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF0CEBE30296C0841BD1FF79E5ED87054B7CC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162997   (1030334) от 19.02.2021
-
-Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cuesta Abajo (03:13)
-02.Silencio (02:42)
-03.Caminito (02:29)
-04.Tomo Y Obligo (02:18)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDCC909F3D16A485D0B6BC69B2374DC61299551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305074   (1030332) от 19.02.2021
-
-The Gino Marinello Orchestra - Romantic Instrumental. Collection (1987-1998) [FLAC|Lossless|image + .cue, tracks] <Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-1987 - Latenight Melodies
-1989 - Romantique De La France(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 06:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908E500D0EB0F7ADC5960DE865B2456C9A93B591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622255   (1030276) от 28.03.2023
-
-Teufelstanz - In Omne Tempus (2015) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. XIMUUS
-03. Стареющий Вагант
-04. A-Kenavo(   Читать дальше...   )Жанр: Medieval Folk, BagpipeПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BC302CC2AB8C280CF0FF94C09516CA259319FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

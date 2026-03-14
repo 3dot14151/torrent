@@ -1,3 +1,151 @@
+###  Публикация: 944289   (442358) от 06.10.2015
+
+David Gilmour - Rattle That Lock (2015) [LPCM 2.0 96kHz 24bit, DTS 5.1 96/24 | Audio-DVD5 (BD-Audio)] <art rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rattle That Lock («Греми замкОм») — четвёртый сольный альбом Дэвида Гилмора, выпущенный 18 сентября 2015 года. За выходом альбома последует короткий тур по Европе осенью 2015 и Америке весной 2016 года.
+
+Альбом был записан в Medina Studio и на плавучей студии Гилмора "Астория".
+Титульный сингл альбома был выпущен 17 июля 2015 года и доступен для скачивания (   Читать дальше...   )1. 5 A.M. 03:02
+  2. Rattle That Lock 04:57
+  3. Faces of Stone 05:32
+  4. A Boat Lies Waiting 04:36(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:53:53 (+3 bonus video tracks)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC1920B556EC91436F70CF88776260920C8C67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853402   (441849) от 20.09.2018
+
+VA - Антология советского киношлягера - Любимые песни из кинофильмов: Обыкновенное чудо и др. (1996) [FLAC 2.0 (image+.cue)|16/44,1 (MC-Rip)]<Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песни и музыкальная тема из т/ф "Двенадцать стульев"
+
+01. Белеет мой парус - Андрей Миронов
+02. Танго любви - Андрей Миронов(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED43C6456353DABE26831DCE11BD04540C1EEB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164020   (441150) от 09.09.2017
+
+Pink Floyd - Wish You Were Here (2016) 1975 [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On You Crazy Diamond (1 - 5) (13:28)
+02. Welcome To The Machine (7:36)
+03. Have A Cigar (5:10)
+04. Wish You Were Here (5:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACA3DF70C50ECF5949B642CB3C139DAE637F1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570537   (440363) от 18.08.2022
+
+Children of Bodom - Studio Albums (12 releases) (1997 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Children of Bodom — финская англоязычная группа из города Эспоо, исполнявшая музыку в стиле мелодик-дэт-метал с элементами различных других направлений метала.1997 - Something Wild
+1999 - Hatebreeder
+2000 - Follow The Reaper
+2003 - Hate Crew Deathroll(   Читать дальше...   )Жанр: Melodic Death/Power MetalПродолжительность: 10:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:187216DAFA8327AEF0CB682A3E84BD586894F08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323333   (437700) от 03.09.2019
+
+Audrey Hepburn, Rex Harrison - My Fair Lady (The Original Sound Track Recording) (1964) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Musical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture
+02. Why Can't The English?
+03. Wouldn't It Be Loverly
+04. I'm Just An Ordinary Man(   Читать дальше...   )Жанр: Soundtrack, MusicalПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CB27A7C81D69A4BC7AADFDC0284D0A3CF12253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063057   (436936) от 15.10.2016
 
 Rainbow - Difficult to Cure (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
@@ -600,151 +748,6 @@ Pink Floyd - The Wall (1979) 2LP remaster /2012, EMI Records/ [FLAC 2.0 24/96|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CBA510ACDC3DE4FAC7D964D4A873FCACF8E4B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411975   (422712) от 27.09.2020
-
-Valeria/Валерия - The Taiga Symphony (1991) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Blues Rock, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422712.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Sky Belongs To Me	4:44
-A2 I Will Travel On	4:52
-A3 Song Of The City (Happening To Me)
-A4 Stay With Me(   Читать дальше...   )Жанр: Blues Rock, BalladПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393696120A072AC574012AEE0372B80B8E3A6414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411920   (422703) от 27.09.2020
-
-Omega - Elo Omega Kisstadion '79 (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422703.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sze-Vosztok
-A2 Gammapolis 1
-A3 Nem Tudom A Neved
-B1 Lena(   Читать дальше...   )Жанр: Prog Rock, Space RockПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A434B27EE213E93933408911C18ED97D696D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324758   (421323) от 11.09.2019
-
-Timothy Farrell & Christopher Green - Organ and Cello Music from Westminster Abbey (1973) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Cello & Organ>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side One:
-A1 Fanfare, Op. 85
-A2 Pfingsten, Op. 145, No. 6
-A3 Improvisation on "Schonster Herr Jesu", Op. 55 for cello and organ(   Читать дальше...   )Жанр: Classical, Cello & Organ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607B33E9CF1A42CA95129DA5027E0C7FB9D76B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065340   (420957) от 22.10.2016
-
-Черный кофе - Переступи порог (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Переступи порог  4:22
-2. Владимирская Русь  5:18
-3. Жизни рассвет  3:30(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C23CB8332257A2FD67739CD2514978D4E684B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251087   (420039) от 30.09.2018
-
-VA - All The Best From Scotland (1997) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, World, & Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A
-A1 The Pipes & Drums & Military Of The King's Own Scottish Borderers - Amazing Grace
-A2 The Alex Sutherland Band And Singers - Flower Of Scotland
-A3 The John Ellis Highland Country Band - Caledonian Corn(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05D72EB7B75A711A35A8914CE25D852B6CC0286
 ```
 
 https://mybot314.ru/tekegram_catalog/

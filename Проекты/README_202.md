@@ -1,3 +1,29 @@
+###  Публикация: 1049332   (544546) от 04.09.2016
+
+Проекты - VideoHive - Animated Badges - 8654881 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания 80+ высоко качественных анимированных значков, что улучшит ваш рабочий процесс, и придаст им особый колорит.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0B0D41DE27E0A7B10D0EAFFB8EDB6233818B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049350   (544413) от 04.09.2016
 
 Проекты - Sony Vegas Pro - Baby Gallery [VEG]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B239BBD0579A2B15CAB05960E7993067259B0A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924972   (542683) от 05.08.2015
-
-Проекты - VideoHive - Dark Build-up Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возведение здания в форме вашего логотипаФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67578D42872E94EF9FD6FB11475F8C21E23D86C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

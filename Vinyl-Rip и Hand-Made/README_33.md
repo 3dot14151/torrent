@@ -1,3 +1,119 @@
+###  Публикация: 1327959   (367684) от 28.09.2019
+
+The Prodigy - No Tourists (2018) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Drum & Bass, Big Beat>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367684.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Need Some1 (2:43)
+A2. Light Up The Sky (3:20)
+A3. We Live Forever (3:43)
+B1. No Tourists (4:18)(   Читать дальше...   )Жанр: Drum & Bass, Big BeatПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328054   (367505) от 28.09.2019
+
+Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sekai Wa Futari No Tameni
+02. Kitaguni No Aoi Sora
+03. Koi
+04. Nagisa No Senorina(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255147   (365728) от 17.10.2018
+
+Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rapid Fire (4:08)
+02. Metal Gods (4:00)
+03. Breaking The Law (2:36)
+04. Grinder (3:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BE611D1BAD9E26B3E4A979616B4983A45386C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416428   (364973) от 17.10.2020
+
+Santana - Santana III (1971) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Psychedelic Rock, Latin>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364973.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Batuka
+A2 No One To Depend On
+A3 Taboo
+A4 Toussaint L'Overture(   Читать дальше...   )Жанр: Psychedelic Rock, LatinПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AE9BFE323CA7F40FB23B1DE856B28C914BD70E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576418   (364260) от 15.09.2022
 
 Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Blues, Rhythm & Blues>
@@ -631,119 +747,6 @@ A4 Все Мы Верим(   Читать дальше...   )Жанр: Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A8C96644EC00ECE51D19B47E1268D09DAF7D075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074195   (337859) от 19.11.2016
-
-Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [WavPack|192/32|tracks|Vinyl-Rip] <Progressive & Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Shine on You Crazy Diamond  11:46
-02. Learning to Fly 5:22
-03. Yet Another Movie & Round and Around 7:10(   Читать дальше...   )Жанр: Progressive & Art RockПродолжительность: 01:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6718A21081EAFCC78388CE02D30DC97CABBBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179381   (337196) от 05.11.2017
-
-Поет Аида Ведищева (1969, 1974)  [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:56:40 (общая)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B7FD7C0169F91B5DA4FF5384A9B47ECA989B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181277   (335358) от 06.11.2017
-
-Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335358.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Atomic (4:06)
-A2. Some Other Place, Some Other Time  (4:52)
-A3. Star Vision (5:51)
-A4. Run To The Stars (4:39)(   Читать дальше...   )Производство: Rockland Records - RKL 20323Жанр: Space RockПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B5822D464C356CDA712AF27CD41606469F8578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953999   (335158) от 10.11.2015
-
-VA - Добрые колыбельные для сладких снов (3) в исполнении В. Толкуновой, О. Анофриева и И. Суриной (2000) [FLAC 2.0 16/44,1|tracks+.cue (MC-Rip)]<Lullaby>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В. Толкунова - Наступил час ночной
-02. О. Анофриев - Баю баюшки баю, не ложися на краю
-03. И. Сурина - Спи, малютка
-04. Оркестр - Вечером(   Читать дальше...   )Жанр: LullabyПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BFB381C53A6131C9A0A4AFD1D2BCBAA6174DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

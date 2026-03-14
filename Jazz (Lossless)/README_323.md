@@ -1,3 +1,90 @@
+###  Публикация: 1723653   (109429) от 16.05.2024
+
+Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars At Charlie's Georgetown (1982) 1994, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where or When [4:37]
+02. New Orleans [6:47]
+03. When the Saints Go Marching In [3:14]
+04. Change Partners [3:59](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E479B792287BB113D02BE63B9A5B4DF0DDC92A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723655   (109428) от 16.05.2024
+
+Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars At The Winery (1980) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broadway [5:44]
+02. Air Mail Special [4:54]
+03. Body and Soul [4:51]
+04. You Took Advantage of Me [2:53](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380ACA0DA3CFEE80E86CCC4BD5E3EF9E84BDE2E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723372   (109414) от 16.05.2024
+
+Wycliffe Gordon - Somebody New (2015) Blues Back Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Herkie Jerkie [6:01]
+02. I Got Rhythm [3:37]
+03. What You Dealin' With [6:03]
+04. Somebody New [4:16](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0619951B6BA4C923866084F31B28930C8774E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723367   (109412) от 16.05.2024
 
 Ricky Ford - Saxotic Stomp (1988) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -658,93 +745,6 @@ Malachi Thompson - Freebop Now! (1998) Delmark Records [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2042E00D88782BC96A3C86C1C971273247B32300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725166   (109043) от 23.05.2024
-
-Superblue - Superblue 2 (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight to Jordan [4:56]
-02. Nica's Dream [5:51]
-03. 'Round Midnight [5:57]
-04. Take Your Pick [4:14](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E741A2D1DDA8D70A775CE0736194DA36B906494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725439   (108983) от 24.05.2024
-
-Howard Alden, Frank Vignola, Jimmy Bruno - Concord Jazz Guitar Collective (1995) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bittersweet [5:57]
-02. Strictly Confidential [4:29]
-03. String Thing [4:39]
-04. Mating Call [6:38](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4F9D9CCE7F916E5AB8144DD058AA3BF03F7E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725442   (108982) от 24.05.2024
-
-Kenny Burrell & The Jazz Heritage All-Stars - Live At The Blue Note (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones for Joan's Bones [9:00]
-02. The Entertainer [6:14]
-03. Medley: Embraceable You/Quasi Modo [7:11]
-04. Dear Ella [7:11](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816F45E896914E2B6820B2B55F4EFB308DC00CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

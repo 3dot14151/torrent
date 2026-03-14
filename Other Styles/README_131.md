@@ -1,3 +1,154 @@
+###  Публикация: 1182177   (314993) от 11.11.2017
+
+Jamie Christopherson - Stranglehold (Complete Video Game Score) (2007) [MP3|192-320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tequila's Theme (original version)
+02. Tequila's Theme (orchestral version)
+03. T'Killa Highscore
+04. Woo Bar(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABD745DC52485DCB533455230D3048A8A137A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 208992   (314859) от 01.12.2012
+
+Jesse Cook - 11 albums (1995-2012) [MP3|320 кб/с]<New age, Flamenco, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314859.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2:58) 01. I put a spell on you
+(3:19) 02. Broken Moon
+(3:00) 03. Witching hour
+(2:40) 04. Toybox
+(3:19) 05. Fields of blue
+(2:49) 06. Miles shorter
+(3:27) 07. Gone
+(4:16) 08. Ne me quitte pas
+(3:10) 09. Diminished
+(3:08) 10. The road(   Читать дальше...   )Жанр: New age, Flamenco, InstrumentalПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BCF0E63C3B0BF88930B22BEB2653681D2B62B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260232   (314575) от 06.11.2018
+
+Shaun Hopper - Lower Case Letters (2011) [FLAC|Lossless|tracks + .cue] <Acoustic, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over the Line (intro) (0:39)
+ 02. Over the Line (4:36)
+ 03. Miss Judy's Song (4:07)
+ 04. No Steamboats (4:07)(   Читать дальше...   )Жанр: Acoustic, New AgeПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A669631A380F47C1649EAB7C954A743232B0129B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959563   (314387) от 25.11.2015
+
+Yanni - The Very Best of Yanni (2000) [FLAC|tracks+.cue]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aria (4:01)
+02. Looking Glass (6:41)
+03. In the Morning Light (3:51)
+04. Marching Season (5:37)(   Читать дальше...   )Жанр: New Age/Meditative/Relax (Lossless)Продолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B074487E6AD567A655B15296C7B221822392220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260236   (314355) от 06.11.2018
+
+Janis Ian - The Bottom Line Encore Collection (Live album) (999) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Me to You (3:29)
+ 02. Night Rains (3:31)
+ 03. I Would Like to Dance (3:25)
+ 04. Jesse (5:54)(   Читать дальше...   )Жанр: Pop, Folk, World, CountryПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD79B9BEA89E72456E7D84C01AD5A2EAFD1CC3EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075865   (314227) от 25.11.2016
 
 VA - Xmas Jukebox 2016 (2016) [MP3|320 Kbps] <Soundtracks>
@@ -612,151 +763,6 @@ Lee Ann Womack - The Lonely, The Lonesome & The Gone (2017) [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A7D169093A6E1897F39FBECAAC8F81E637CBAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332286   (309561) от 22.10.2019
-
-David Arkenstone - Emotional Piano Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309561.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gardens of the Heart	02:23
-2. They Were Heroes	02:16
-3. The Shape of You	02:10
-4. I Wish It Were Different	02:20(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0CB06F6328942E9ABB8598A3EBE623D34FF168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182701   (309452) от 13.11.2017
-
-ДиДюЛя - Лучшее. В исполнении симфонического оркестра Ли Отта (2015) [FLAC|Lossless|tracks + .cue] <Instrumental, Neo-Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Водопад (3:05)
-02. День рождения (5:40)
-03. Путь домой (4:31)
-04. Мечта (4:13)(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A265DABABDCE4B4935707729C794A82E45A3D1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077118   (309289) от 27.11.2016
-
-Carolyn Southworth - By the Sea (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01  By the Sea [00:03:23]
-02  Sands of Time [00:03:46]
-03  Reflections [00:03:04]
-04  Boardwalk [00:03:41](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C67C392913BA6B961A4F77DE62180E0D4630AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332831   (308948) от 22.10.2019
-
-Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah Schachner - Modern Warfare Main Theme (03:26)
-02. Sarah Schachner - Piccadilly Circus (05:16)
-03. Sarah Schachner - Going Dark (03:23)
-04. Sarah Schachner - Highway (06:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851D71AD95554174E2C6FD79654A46D202A21213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077103   (308863) от 27.11.2016
-
-VA - 50 Awaited Peace of Mind: Music for Meditation (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guided Meditation Music Zone - 50 Awaited Peace of Mind - Music for Meditation
-02. Mindfulness Meditation Music Spa Maestro - Reiki Healing Sound (Light Storm)
-03. Meditation Mantras Guru - Sacred Oriental Music (Asian Harp)
-04. Meditation Music Zone - Yoga Classes (Mysterious Ambiance)(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75A449D24B5DD4F55C5B3472FA3A055FCABD754
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,189 @@
+###  Публикация: 586713   (298936) от 08.12.2012
+
+Adrien Moignard - Between Clouds (2012) [FLAC|Lossless]<Swing, Guitar Jazz, Lounge, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_298936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave the Ground
+02. Overjoyed
+03. Chaloupe
+04. Swing 48
+05. Shenandoah
+06. What's Going On
+07. Salar de Uyuni
+08. Troublant Bolero
+09. Made in France
+10. Paris(   Читать дальше...   )Жанр: Swing, Guitar Jazz, Lounge, GypsyПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184818   (298884) от 18.11.2017
+
+Diana Ross - Diamond Diana: The Legacy Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Soul, RnB, Pop>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m Coming Out
+02. More Today Than Yesterday
+03. The Boss
+04. It’s My House(   Читать дальше...   )Жанр: Soul, RnB, PopПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAEE8631F602F0959600F36C55A663268403D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261984   (298869) от 13.11.2018
+
+Stephane Wrembel - Dreamer Of Dreams (2014) Water Is Life Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let There Be Light [3:08]
+02. Lascaux [5:49]
+03. Mystic Circles [4:16]
+04. Human Condition I : Peace [1:36](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707A26D07A14CECE8905CCFE28F5B836F01E7ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262046   (298861) от 13.11.2018
+
+Stephane Wrembel - The Django Experiment I (2017) Water Is Life Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz, Gypsy Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuages [3:31]
+02. Gin-Gin [2:47]
+03. Bouncin' Around [4:46]
+04. Dinette [2:48](   Читать дальше...   )Жанр: Jazz Fusion, Guitar Jazz, Gypsy JazzПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCA7E6DAF356CD325C76F01E6F1DECC1FBAC1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334028   (298836) от 27.10.2019
+
+Van Morrison - Three Chords And The Truth (2019) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock  >
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March Winds In February (4:37)
+02. Fame Will Eat The Soul (4:53)
+03. Dark Night Of The Soul (5:59)
+04. In Search Of Grace (3:44)(   Читать дальше...   )Жанр: Blues,  Blues RockПродолжительность: 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA78D8B119EC826AAC8B858E6E15CA8CBF075039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586723   (298822) от 08.12.2012
+
+AHA! Quintet - Freespace (2012) [FLAC|Lossless]<Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_298822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Hip Mice
+02. Looking
+03. Silver Cloud
+04. Land of Another
+05. Fourth Street
+06. Creepy Crawly
+07. Slim Jim
+08. Freespace
+09. Trio Rio
+10. Never Never LandЖанр: Hard Bop, Post-BopПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961743   (298807) от 02.12.2015
 
 Robin Barrett & Coyote Kings - Howl (2015) [MP3|320 кб/с]<Blues Rock>
@@ -571,180 +757,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF2846B4CA142D524F4BE929A7587BB03E952BB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262198   (297019) от 14.11.2018
-
-Stephane Wrembel - The Django Experiment II (2017) Water Is Life Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz, Gypsy Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Douce Ambiance [9:00]
-02. Viper's Dream [4:07]
-03. Vaise de Bamboula [2:55]
-04. Boston [9:18](   Читать дальше...   )Жанр: Jazz Fusion, Guitar Jazz, Gypsy JazzПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780CE0549AA66F2D9CFA908D8E048F4BD2842D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334288   (296921) от 28.10.2019
-
-Anita O'Day - Cocktail Hour 1950-e - 1960-e (2000) 2CD, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296921.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Boogie Blues [3:25]
-02. Opus One [2:57]
-03. Anita's Blues [3:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEC319D4D3C67F1CC8B6EAE5F205BAB3B9BE6CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262283   (296780) от 14.11.2018
-
-VA - Blues - A 30 Track Collection (2017) 2CD [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Bee's Freedom - Memphis Moon
-02. Preston Shannon - Rollin' and Tumblin'
-03. The Sideshow Tragedy - Number One
-04. Wink Burcham - Lawnmower Man's Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47832717EF3B2547F20D6E6B4D27AB748682EA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079167   (296510) от 03.12.2016
-
-Oliver Nelson and His Orchestra - Fantabulous (1964) 2008, Verve[FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hobo Flats [04:14]
- 02.Post No Bills [05:31]
- 03.A Bientot [03:48]
- 04.Three Plus One [03:26](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4714DB1970DDD90DCC3DBC0E4D40D8DCE7975D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079022   (296502) от 03.12.2016
-
-Los Amigos Invisibles - A Typical & Autoctonal Venezueland Dance Band (1995) 2004, Gozadera [FLAC|Lossless|tracks + .cue] <Funk, Pop, Latin>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dame tu color
-02. En el cielo o en tu boca
-03. Dime
-04. El Humo que respiro cuando estoy contigo(   Читать дальше...   )Жанр: Funk, Pop, LatinПродолжительность: 01:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F5C911EBC0512AAA94F34640DD445CD7400BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079088   (296499) от 03.12.2016
-
-Michael Lee Thomas - Far Away Near (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Fast for Gravity [00:04:26]
-02. Separate Tables [00:04:09]
-03. Changing Ghosts [00:04:32]
-04. Jealous Coffee [00:04:43](   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EB3B4D5C3B6D7CC925B3C305170E18FE343F08
 ```
 
 https://mybot314.ru/tekegram_catalog/

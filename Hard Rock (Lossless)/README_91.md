@@ -1,3 +1,119 @@
+###  Публикация: 1688900   (124857) от 31.12.2023
+
+Head East - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Been Any Reason (Re-Recorded) [00:05:20]
+02. Since You Been Gone [00:03:07]
+03. City of Gold (Re-Recorded) [00:03:55]
+04. Fly By Night Lady (Re-Recorded) [00:02:55](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35293DEF8080C2C1F18C5AE9C603A569CB81860C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689494   (124648) от 02.01.2024
+
+Hooligans - Fekete Fekete szivarvany (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ne felj, mar en sem felek (Intro) (00:02:11)
+02 - Korforgas (00:03:39)
+03 - Fekete Szivarvany (00:04:20)
+04 - Egy alom kozepen (00:04:37)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C518283B10289C2FAB7B0F49DBEA73A57534A430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689486   (124647) от 02.01.2024
+
+Fallen Land Records - Dehamanized (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sticks and Stones (00:03:55)
+02 - Mind To Break (00:03:18)
+03 - DEHUMANIZE (00:03:47)
+04 - Pet Cemetary (00:04:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7706888764D030AE47FDC2BFCBFC92EDF0D706B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690586   (123804) от 08.01.2024
+
+Bull Angus - Bull Angus (1971) Reissue, 2010, Mandala [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run Donґt Stop 4:28
+02. Motherґs Favourite Lover (Margaret) 3:48
+03. Uncle Dugieґs Fun Bus Ride 4:29
+04. A Time Like Ours 6:26(   Читать дальше...   )Жанр: Psychedelic Rock, Hard RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84C9508B3CB94EE7DE7F2E99994AED16872401B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690778   (123648) от 09.01.2024
 
 Red tail - Back And Forth (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +745,6 @@ Symphony Of Sweden - Haunted (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37E9AF08CA41AA8E6AFFC247568BFF6AB521E1AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698437   (118412) от 09.02.2024
-
-IIWishIV - A Guiding Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamland (3:25)
-02. Forward (4:14)
-03. Burning Out (4:14)
-04. Indiffernce (5:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA87876B8A389834B3CFC6B851BC75E61AA7618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698435   (118410) от 09.02.2024
-
-Bolt Action and the Misfires - Chasin' Down the Rats (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smack Dab in the Middle of a Rut (3:35)
-02. Why Am I (3:11)
-03. Catfishin' (4:48)
-04. Crown Victoria (3:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC5C2BD415686981C80C98AF27463F3C39D0455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699561   (117658) от 14.02.2024
-
-Bernie Torme - Die Pretty Die Young (1987) Remaster, 2024, Cherry Red Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Rock (2024 Remaster) [00:03:19]
-02. The Real Thing (2024 Remaster) [00:04:12]
-03. Ready (2024 Remaster) [00:04:13]
-04. Sex Action (2024 Remaster) [00:04:38](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC19A7C216F0D7A524FDDCAD4E5EFCC83ADE087A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699903   (117406) от 15.02.2024
-
-Achilles - There Will Be Blood (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Will Be Blood (5:34)
-02. Northern Star (5:00)
-03. Outlaw (4:35)
-04. Plateau (5:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69BB3F1D2C2C6034EE91CAC5E196A0A30DA3427
 ```
 
 https://mybot314.ru/tekegram_catalog/

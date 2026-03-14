@@ -1,3 +1,61 @@
+###  Публикация: 911599   (616429) от 23.06.2015
+
+Victor Manuelle - Que Suenen los Tambores (2015) [MP3|320 кб/с]<Latin, Salsa>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agua Bendita (4:00)
+02. No Queria Enganarte (4:32)
+03. Sal A Bailar (4:05)
+04. La Foto Que Falto (4:10)(   Читать дальше...   )Жанр: Latin, SalsaПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E203023C68023402DAE63A7B55A2E2A68F0C2893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146175   (616348) от 28.06.2017
+
+VA - Dancefloor Fuller (2017) [MP3|320 Kbps] <Schlager, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noel Terhorst – Traumpilot 03:27
+02. Wolfgang Lippert – Der Morgensong 03:21
+03. De Lancaster – Wir sind jung, wir sind frei 03:26
+04. Kaboom – Y.M.C.A. Reloaded (Extended) 04:31(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DEFA6F353849A109A7E88B8993E0B55F351B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911637   (616172) от 23.06.2015
 
 Darkness Falls - Dance and Cry (2015) [OGG|457-558 кб/с]<Indie Pop, Electronic, Female Vocal>
@@ -687,64 +745,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B4A1A7AD7EE6004D90C2BCDA587EC4F8DD116E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146652   (609490) от 02.07.2017
-
-The Human League - Greatest Hits (1995) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't You Want Me [03:55]
-02. Love Action (I Believe in Love) [03:48]
-03. Mirror Man [03:48]
-04. Tell Me When [04:39](   Читать дальше...   )Жанр: PopПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F5CE8E25061C80850F3C79B0EDB289C542BA2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038320   (608750) от 27.07.2016
-
-Tricia - Radiate (2013) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything As Loss    03:18
-02. Mirror Mirror    02:50
-03. Enough    02:52
-04. Radiate    02:51(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6E8E50E6D1A4FC1F510B88B4CF359485A701CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

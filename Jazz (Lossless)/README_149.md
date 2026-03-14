@@ -1,3 +1,89 @@
+###  Публикация: 1045639   (558165) от 24.08.2016
+
+Franco Cerri - Chitarra (1964) 2008, DIW Records[FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chit-Car [02:57]
+ 02.Blues For Jo [03:36]
+ 03.Polka Dots And Moonbeams [02:55]
+ 04.Bassezza [04:57](   Читать дальше...   )Жанр: BopПродолжительность: 00:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13FB9B3B56C6D61CD60BC1031737FD28A1D6468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045684   (558163) от 24.08.2016
+
+Peter Horvath - Absolute Reality (2016) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absolute Reality [05:15]
+02. Carla [06:57]
+03. Escape from Oakland [06:06]
+04. Nassau Nights [05:18](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BAEC81633DCBA71CD91A86267943BB759067B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045636   (558162) от 24.08.2016
+
+Kohsuke Mine - Out Of Chaos (1974) Remaster, 2015, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Recollection [12:09]
+ 02.Little Abi [09:39]
+ 03.Cross Wind [17:54]Жанр: Post-BopПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A37AE4DE920377613EC35C7B7A6AC18EA9F951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045863   (558030) от 24.08.2016
 
 VA - Bossa Nova moods: The Complete Collection (1999) 2CD [WavPack|Lossless|image + .cue] <Latin Jazz, Bossa Nova>
@@ -655,93 +741,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92DCE5915682D5518DAB68BC12DF8EF1783BD582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307624   (554722) от 11.06.2019
-
-Red Nichols - 1928 - 1929 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poor Butterfly (vocal) [4:01]
-02. Poor Butterfly (instr.) [4:03]
-03. Can't Yo' Hear Me Calling, Caroline? (vocal) [4:08]
-04. Can't Yo' Hear Me Calling, Caroline? (instr.) [4:07](   Читать дальше...   )Жанр: Swing, New Orleans JazzПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179CECE3E8B2D2ECAE3787A78E0DAF29DA67893F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307610   (554698) от 11.06.2019
-
-Aaron Goldberg - At the Edge of the World (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poinciana (05:47)
-02. Luaty (04:50)
-03. Isn't This My Sound Around Me (05:20)
-04. When You Are Near (08:22)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C396C179D2BCE4545323032A59506201DB8E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307813   (554517) от 12.06.2019
-
-Horace Tapscott Quintet - The Giant Is Awakened (1969) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Giant Is Awakened [17:28]
-02. For Fats [2:24]
-03. The Dark Tree [7:04]
-04. Niger's Theme [11:58]Жанр: Avant-Garde JazzПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DC8A226F8EFD1DA6827BDA1AF13B72867A892C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 963484   (287137) от 08.12.2015
+
+Проекты - Pond5 - All In One Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу различного направления.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C99E9D498AA3EDA2EBDC28048A32E44040D4F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186227   (287133) от 24.11.2017
 
 Проекты - VideoHive - Elegant Minimalist Lower Third - 8390366 [AEP]
@@ -653,32 +680,6 @@ Modern Glitch Logo - демонстрация вашего логотипа ил
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFE4915F2FAC3C254F5A7C4C20EE056A79B8FB17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080895   (285707) от 08.12.2016
-
-Проекты - VideoHive - Christmas Magic Particles - 19050272 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas Magic Particles - проект для Рождественского приветствия с магическими частицами. Идеально подходит для поздравительных видео-открыток или вступления в ваш фильм.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E39DC17843386CEBA1292C3C6312E1B01C8AFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

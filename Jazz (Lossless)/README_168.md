@@ -1,3 +1,90 @@
+###  Публикация: 1158761   (490256) от 17.08.2017
+
+Roger Manins - Trio (2010) Rattle Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marty White [19:08]
+02. Hip Flask [07:10]
+03. Missing Wes [04:25]
+04. Silo [07:00](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950DDBBDB48AD1F52D584A94BB7D6B2E9E32C879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158758   (490184) от 17.08.2017
+
+Chet Baker - The Last Great Concert: My Favourite Songs (1988) 2CD, 2006, Enja Records [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490184.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. All Blues [05:54]
+02. My Funny Valentine [09:35]
+03. Well You Needn't [06:21](   Читать дальше...   )Жанр: CoolПродолжительность: 01:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0946EB12C7D015947A9F148F3516AE7035204884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404784   (489891) от 27.08.2020
+
+Benny Carter - Sax Ala Carter! (1960) 2004, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And the Angels Sing [2:59]
+02. Everything I Have Is Yours [3:36]
+03. Understand [3:07]
+04. All or Nothing at All [3:18](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8582530416F54FBB9EEB93B1B791639008E537B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404785   (489888) от 27.08.2020
 
 Benny Carter & American Jazz Orchestra - Central City Sketches (1987) Musicmasters [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -658,93 +745,6 @@ Lou Donaldson Quartet - Forgotten Man (1981) /2015, Solid Records/[FLAC|tracks+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49C0D3CCA193D0EA4FE1FBCD9D95E24475F99760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937797   (486154) от 16.09.2015
-
-Ornette Coleman - The Unprecedented Music Of Ornette Coleman (1968) /2014, Studio Songs/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely Woman [10:35]
-02. Monsieur Le Prince [09:51]
-03. Forgotten Children [11:12]
-04. Buddah Blues [13:13]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E61C515DAF897C5C36AF584240130774A77F1C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159270   (486139) от 19.08.2017
-
-Candy Dulfer - Girl Night Out (1999) BMG [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girls Night Out [03:27]
-02. 2025 [04:44]
-03. Fred's Joint [04:26]
-04. Mr. Slim [04:06](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FDDE80C4B9C4F45AC0BDA1FB546F7B2BCC2E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159217   (486126) от 19.08.2017
-
-Pear - Extemp'ore (2011) PearStudio Records [WavPack|Lossless|image + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dewey Miles [05:37]
-02. The Frenchman [07:08]
-03. Jenn 2 Sect 1 [09:01]
-04. Jimmy 1a [04:09](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33B0B263008B8A1F640DB3877A34A4DD24A8421
 ```
 
 https://mybot314.ru/tekegram_catalog/

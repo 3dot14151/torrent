@@ -1,3 +1,32 @@
+###  Публикация: 1212153   (776539) от 10.03.2018
+
+VA - Deep House: Deep Calm (2018) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776539.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3 Monkeyzz feat. Louise Mambell - Ghost (Original Mix) 03:50
+002. Natan vs. Alex Poison, Labora Trixx - Гипнотайз (Vadim Adamov Mash up) 04:14
+003. Rey Vercosa, Henry Oak - Tear Me Apart feat. Annie V (Extended Mix) 05:21
+004. Adisyn - Digital Heart (Original Mix) 07:03(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844DF43B507ACBADD9B068D74011BF79D57C50B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212024   (776501) от 10.03.2018
 
 VA - 100 Hits DJ Trance Mastermix (2018) [MP3|320 Kbps] <Vocal Trance, Electro>
@@ -716,35 +745,6 @@ VA - Ночной Мегахит - 100 Хитов в Тачку (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02FECC3F4F07B340170AAD9AB9BD8028A8156305
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212677   (775191) от 13.03.2018
-
-VA - Morning Coffe Chillout Original Party (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775191.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daminika - Snatches Of Memory (Original Mix)
-002. DJSaint - Souls (Harold-Alexis Remix)
-003. Leslie Dhani - What I Need - Deep House Dance Mix
-004. Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C7C479E3563F612E457F2AB929257E53F9682E
 ```
 
 https://mybot314.ru/tekegram_catalog/

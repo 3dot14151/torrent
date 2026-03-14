@@ -1,3 +1,29 @@
+###  Публикация: 1849412   (1053775) от 23.01.2026
+
+William Schweiker, Maria Antonaccio, Elizabeth Bucar | Encyclopedia of Religious Ethics. 3 Volume Set (2022) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Encompassing three comprehensive volumes, the Encyclopedia of Religious Ethics introduces fundamental issues in moral inquiry, explores the world’s major moral traditions, and surveys specific moral issues across a wide range of human experiences. This landmark work defines the meaning, task, and various forms of religious ethics to guide readers through critical (   Читать дальше...   )Жанр: Энциклопедии, РелигияЯзык: АнглийскийИздательство: Wiley-BlackwellФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C88CE8B0D8C0193573551FFD23BF579AFD4DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849410   (1053773) от 23.01.2026
 
 Lucy Morrison, Staci L. Stone | A Mary Shelley Encyclopedia (2003) [PDF] [EN]
@@ -664,32 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C2500D0FB13EA62201591DD73305C75958A54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444194   (1034755) от 31.01.2021
-
-Л.Н. Токарь, М.В. Разыграев | Судовые флаги, вымпелы и флюгарки. 1700-2006 гг. (2007) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой свод официальных материалов по флагам, вымпелам, брейд-вымпелам Российского Императорского и советского военно-морского, торгового флота, флота ведомств и учреждений, судовладельцев-граждан, общественных организаций. При этом авторы ставили перед собой задачу с наибольшей точностью определить временные рамки существования того или иного флага (   Читать дальше...   )Жанр: СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FF261BCB4CD6D400B44D97FA5A5558E7FA803A
 ```
 
 https://mybot314.ru/tekegram_catalog/

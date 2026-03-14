@@ -1,3 +1,90 @@
+###  Публикация: 1464963   (240326) от 25.04.2021
+
+Capra - In Transmission (2021) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - (Exordium) [00:01:26]
+02 - Hollow Doll [00:01:12]
+03 - The Locust Preacher [00:02:53]
+04 - Medusa [00:04:10](   Читать дальше...   )Жанр: Chaotic HardcoreПродолжительность: 00:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9306060E38311A793D00AE9D5E7C6030A35C5AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411412   (240315) от 26.09.2020
+
+Svalbard - When I Die, Will I Get Better? (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Post-Metal, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Wound [00:05:36]
+02. Click Bait [00:05:46]
+03. Throw Your Heart Away [00:04:04]
+04. Listen To Someone [00:05:10](   Читать дальше...   )Жанр: Post-Hardcore, Post-Metal, ShoegazeПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B838E7916BB79FF8301DD39A9ED9EBBF96912F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634212   (240310) от 19.05.2023
+
+The Used - Toxic Positivity (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worst I've Ever Been [00:02:50]
+02. Numb [00:02:54]
+03. I Hate Everybody [00:02:48]
+04. Pinky Swear [00:02:13](   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7133E50B254B397736DA4CCB6859D8FA5D611D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411817   (240253) от 27.09.2020
 
 The Great Unfinished... - Malcontent (2018) [FLAC|Lossless|WEB-DL|tracks] <Glasgow Punk>
@@ -655,93 +742,6 @@ Kingsmen - Bones Don't Lie (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Mode
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF31531785698ABDBA067F89025045E990EFD16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623501   (238401) от 02.04.2023
-
-nothing,nowhere. - Void Eternal (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Rap-Rock, Hip-Hop, Indie, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANX13TY [00:03:26]
-02. TRAG3DY (feat. WILL RAMOS) [00:03:25]
-03. PSYCHO_PSYCHIATRY (feat. SEEYOUSPACECOWBOY) [00:03:48]
-04. CHR0MAKILL3R [00:03:41](   Читать дальше...   )Жанр: Alt.Rock, Rap-Rock, Hip-Hop, Indie, ExperimentalПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F3FDE92099C76EE47407032FE6B283D8E67ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580839   (238034) от 03.10.2022
-
-No Faith in Fortune - Dysthymia (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Symphonic, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Missed Calls [00:00:47]
-02. Self Medication [00:04:04]
-03. Crusader [00:03:39]
-04. As Heaven Knelt Before Hell [00:03:41](   Читать дальше...   )Жанр: Metalcore, Symphonic, ElectronicПродолжительность: 00:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59685039C5A3FB37F98FE214678B45D670D15115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624875   (237996) от 08.04.2023
-
-All Faces Down - Awol (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AWOL [00:02:54]
-02. Sick [00:03:02]
-03. Done Hiding [00:03:14]
-04. Kerosene [00:02:51](   Читать дальше...   )Жанр: Post-Hardcore, Alt.RockПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6583A86F27DA36ED48AE85B95E2C43A8817FB02
 ```
 
 https://mybot314.ru/tekegram_catalog/

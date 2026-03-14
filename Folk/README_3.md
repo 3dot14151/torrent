@@ -1,3 +1,38 @@
+###  Публикация: 522140   (623012) от 13.07.2012
+
+Большой Барабан - The Big Drum (Live) (2009) [MP3|64-160 кб/с]<Instrumental, World Music,>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_623012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Большой Барабан (1:29) 64 kbps
+02. Большой Барабан (1:42) 64 kbps
+03. Большой Барабан (3:16) 64 kbps
+04. Большой Барабан (3:57) 64 kbps
+05. выступление в Белых Облаках (9:06) 160 kbps
+06. выступление в Гавань Надежды (7:41) 160 kbps
+07. выступление в Картонии (11:02) 70 kbps (VBR)
+08. и Оркестр Интуитивной музыки (7:27) 160 kbps
+09. выступление на винзаводе (3:40) 89 kbps (VBR)
+10. выступление на Евроконе (7:16) 64 kbpsЖанр: Instrumental, World Music,Продолжительность: 02:37: 58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522235   (622863) от 13.07.2012
 
 Казачий ансамбль «Старина» - Казак по Дону гуляет... (2009) [MP3|320 кб/с]<Folk Казачья песня>
@@ -757,35 +792,6 @@ VA - Country Car Music (2019) [MP3|320 Kbps] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C93C522E7E16A43DBAC102B6D1C1C476ADF8F58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045262   (558036) от 24.08.2016
-
-Casey Weston - Find the Moon (2013) [MP3|320 Kbps] <Country Pop, Vocal>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy
-02. Close to Breaking
-03. Heart Don't Fail Me Now
-04. Back to the Start(   Читать дальше...   )Жанр: Country Pop, VocalПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC9BCF3F7045CD4028F6A2A76BCEA51212D70F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

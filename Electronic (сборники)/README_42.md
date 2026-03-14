@@ -1,3 +1,32 @@
+###  Публикация: 1378671   (844804) от 26.04.2020
+
+VA - Hard Fusion: Hardstyle Music For Sport (2020) [MP3|320 Kbps] <Hardstyle, Dance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844804.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Actek - Carsten Stahl
+002. Access One - Equalize
+003. Sneith - Beg
+004. Alphatech - Don't Forget(   Читать дальше...   )Жанр: Hardstyle, Dance, ElectroПродолжительность: 07:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8A4EBD8A50D459D25641E766A48CE046220B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378631   (844803) от 26.04.2020
 
 VA - Record Super Chart 633 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Крутые пушки Осень 2021 [MP3|320 Kbps] <Club, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F94F39C472A5F546FC89199D78CF21A3D1780702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004489   (838622) от 06.04.2016
-
-VA - Welcome House Atomic (2016) [MP3|160-320 кб/с] <Progressive, Club, House, Bigroom, Tropical>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Pasquini - Qoaster 05:01
-02. Tara Mcdonald Feat. Snoop Dogg - Vay-K (Adam Trigger Remix) 04:30
-03. Talemono - Overload (Radio Edit) 03:11
-04. Relika & Dj Turtle - Jungle Them 04:52(   Читать дальше...   )Жанр: Progressive, Club, House, Bigroom, TropicalПродолжительность: 08:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05772BEF4D76744CAE69BEF35B7BEC0BCD0427E
 ```
 
 https://mybot314.ru/tekegram_catalog/

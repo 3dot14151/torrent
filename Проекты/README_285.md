@@ -1,3 +1,30 @@
+###  Публикация: 960091   (309438) от 27.11.2015
+
+Проекты - VideoHive - Christmas Memories - 13582860 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания Новогоднего слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC00B9AD8AB358D1301C75C19F62FFEEBD54EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960096   (309431) от 27.11.2015
 
 Проекты - VideoHive - Cinematic Grunge Stone 3D Logo Opener - 2509275 [AEP]
@@ -655,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E791409ED33876A5401C50C9FFF5EB5DCBC99945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183688   (307175) от 14.11.2017
-
-Проекты - VideoHive - Drink Pack 2-in-1 - 5655063 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проект поможет Вам создать рекламный ролик спиртных напитков (пива, вина).Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66418B80B835A8F1984A1F22CC0954E6952273E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

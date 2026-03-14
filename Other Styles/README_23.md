@@ -1,3 +1,119 @@
+###  Публикация: 1367340   (915522) от 16.03.2020
+
+The Hollywood Symphony Orchestra - Native Spirit (2012) 3CD [MP3|192 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hollywood Symphony Orchestra, Krys Mach - Buffalo Dance
+02. The Hollywood Symphony Orchestra, Krys Mach - Coyote Warrior
+03. The Hollywood Symphony Orchestra, Krys Mach - Prairie Daughter
+04. The Hollywood Symphony Orchestra, Krys Mach - Song of the Wild Cat(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 04:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A7536B92D2E6FF9D3FA871EBE26C325992E0BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989349   (915389) от 23.02.2016
+
+OST - Verliefd op Ibiza / Любовь и секс на Ибице (2013) [MP3|230-270 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Fiora - Waiting For The Night (Radio Edit)
+02. James Blunt - Same Mistake
+03. Rebecca Ferguson - Nothing's Real But Love
+04. Alderliefste - Une Belle Histoire(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0928717081A610FB3DB6AB89E89290AC250CACEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989514   (915384) от 23.02.2016
+
+VA - Star Wars Headspace (2016) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaskade - C-3P0's Plight (03:13)
+02. GTA - Help Me! (03:56)
+03. TroyBoi - Force (02:52)
+04. Baauer - Cantina Boys (02:49)(   Читать дальше...   )Жанр: Electronic, SoundtrackПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9497FEE9CAECD09879AAC91F9C7232F08A7A7A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 33385   (915090) от 16.03.2020
+
+Space - Magic Fly (1977) Remastered, 1998, Bastien Music [FLAC|Lossless|tracks] <Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fasten Seat Belt (5:59)
+02. Ballad for Space Lovers (2:18)
+03. Tango in Space (4:28)
+04. Flying Nightmare (3:23)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4CB6706315BE7475A57A94EBB3D37E594AEB3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 865209   (915085) от 01.02.2015
 
 Мария Мордасова - Королева частушек (2004) 3CD [MP3|~190 кб/с (V2)]<Народные песни, частушки>
@@ -628,122 +744,6 @@ Fionnuala Sherry - Songs From Before (2011) [FLAC|Lossless|tracks + .cue] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C30D78B9BF6135B6F0C6096668C5E976C38BC6E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966507   (908812) от 20.03.2020
-
-Tom Barabas - The Very Best Of (2004) Compilation [FLAC|Lossless|tracks + .cue] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Affair (Mosaic 1995) [05:55]
-02. Endless Time (Classica Nouveau 1994) [05:43]
-03. After The Rain (Journey 1996) [05:56]
-04. More Than Words (Sedona Suite 1992) [04:13](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCED9E62D45D319BFD4A40A1FC247C39A5A3E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098475   (908721) от 30.01.2017
-
-Sacred Earth - Inyan (2005) [FLAC|Lossless|image + .cue] <Meditative, New Age, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908721.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Inyan 8:08
-2. Hey Ma Durga 9:25
-3. Guru Charanam 9:52
-4. Devakinanda 10:00(   Читать дальше...   )Жанр: Meditative, New Age, MantrasПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B347BB57A7869DDDB9C688B7403AEA55D9F14C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367830   (908697) от 20.03.2020
-
-American Indian Coalition - Native Spirit (2008) [MP3|320 Kbps] <Native American, Tribal, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quanah Parker
-02. Great Father
-03. Talking Owl
-04. Victory Dance(   Читать дальше...   )Жанр: Native American, Tribal, FolkПродолжительность: 01:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B0E1359BECDC51CD357EEC001610117DF1DE0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342583   (908569) от 20.03.2020
-
-Greg Maroney - 2 альбома (2003, 2005) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грег Марони очень одаренный пианист. Его песни, тепло и естественность, которые говорят со слушателем - приближают их к своим собственным сердцам. Его жизнь и окружение, вместе со своим прошлым и настоящим, все это является частью его музыки.
-Он изучал классическое и джазовое фортепиано с пяти лет и в настоящее время выступает на концертах в качестве сольного пианиста, (   Читать дальше...   )Список альбомов:
-2003 - Harmony Grove
-2005 - Wind ChimesЖанр: New Age, Instrumental, Solo PianoПродолжительность: 01:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE69EA68568404CDFB9E3A10CAC7F5B9E248A004
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 968631   (147610) от 27.12.2015
+
+Артем Пивоваров - Океан (2015) [MP3|192-320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нирвана
+02. Мы Молоды
+03. Океан
+04. Зависимы(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25166EC85B08CCB3A1BFB6757EF7CB78420D668F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677991   (147468) от 20.11.2023
+
+VA - Hit News Vol. 1'96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fun Factory - Doh Wah Diddy
+02.  Sonic Dream Collective - Oh, Baby All
+03.  Solid Base - Mirror, Mirror
+04.  Fontana - Memories(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C054BFC941A6EC19DEB3D9C8E559E610A50D9A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271926   (147457) от 25.12.2018
 
 VA - Female Pop Ballads (2018) [MP3|320 Kbps] <Pop>
@@ -685,64 +743,6 @@ Donna Summer - Crayons (2016) Reissue Deluxe Edition [MP3|320 Kbps] <Soul, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F31CCF6C1464D4EC7C74EE22619D40BB9E5418A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435129   (141838) от 29.12.2020
-
-NaviBand - NaviBand (2019) [MP3|320 Kbps] <Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Неуловимы
-02. Танцуй
-03. Один из нас
-04. Не б’ецца(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C254C0F0DCBA60A4E2F5EC383B6AE92A130A7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348948   (141438) от 29.12.2019
-
-VA - 100 Greatest Indie: The Best Guitar Pop Rock (2019) [MP3|320 Kbps] <Indie, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141438.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blur - Parklife
-002. The Smiths - This Charming Man (2011 Remaster)
-003. Liam Gallagher - Wall of Glass
-004. The Futureheads - Hounds of Love(   Читать дальше...   )Жанр: Indie, Pop-RockПродолжительность: 06:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBC89D472D20EA360E72CBD70F09985F70A2475
 ```
 
 https://mybot314.ru/tekegram_catalog/

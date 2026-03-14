@@ -1,3 +1,119 @@
+###  Публикация: 1365305   (929006) от 08.03.2020
+
+Max Arnald - Piano Covers 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (4:07)
+ 02. Hello (4:09)
+ 03. Stitches (4:04)
+ 04. A Kind of Magic (4:04)(   Читать дальше...   )Жанр: New Age, Modern Classical, Piano, RelaxationПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0D0C92BA3AC382309B1038C48F4F6CAD7B716F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986626   (928891) от 15.02.2016
+
+Janis Joplin - Janis Little Girl Blue (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack, Blues, Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Janis Joplin - Careless Love (3:07)
+02. Big Brother & The Holding Company - Down On Me (2:03)
+03. Janis Joplin - Women Is Losers (Live) (5:06)
+04. Big Brother & The Holding Company - Ball And Chain (Live) (8:07)(   Читать дальше...   )Жанр: Soundtrack, Blues, RockПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C994BB86B1E2C0DA6EFCF8BF631B1076BA07D4F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986121   (928767) от 15.02.2016
+
+VA - Quentin Tarantino's The Hateful Eight / Омерзительная восьмёрка (Original Motion Picture Soundtrack) (2015) Score by Ennio Morricone [FLAC|Lossless|tracks + .cue] <Soundtracks, Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Ultima Diligenza Di Red Rock (07:33)
+02. Overture (03:12)
+03. "Major Warren Meet Daisy Domergue" (00:33)
+04. Narratore Letterario (02:02)(   Читать дальше...   )Жанр: Soundtracks, ClassicalПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EA36560D8C1A0E09F95651C353C6F48604CD47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 630480   (926551) от 16.03.2013
+
+Johnny Cash - Sings The Songs That Made Him Famous (1958) [FLAC 2.0 24/96|tracks (WEB-DL)]<Country>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ballad Of a Teenage Queen [02:15]
+ 02.  There You Go [02:21]
+ 03.  I Walk The Line [02:47]
+ 04.  Don't Make Me Go [02:30](   Читать дальше...   )Жанр: Country & BluegrassПродолжительность: 00:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD34BB920578802434747537DC5C8C8A8E1232DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987555   (926043) от 17.02.2016
 
 Liquid Mind - Liquid Mind XI. Deep Sleep (2016) [MP3|320 кб/с] <New Age, Ambient>
@@ -635,122 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B7E635338EEF2EDBBABCCAA32B9E81BDD1C4569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366610   (922133) от 12.03.2020
-
-Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922133.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:42| 01. Cobolt
-|04:28| 02. Escape
-|03:37| 03. He's Gone
-|02:19| 04. This Is What He Does(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B74524DAC46F84CCE7EB749F7743784A5AF1C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366442   (922127) от 12.03.2020
-
-Klayton - The Dunes (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922127.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:59| 01. Gerald
-|01:55| 02. A Pretty Bright Light
-|01:07| 03. Detroit
-|01:42| 04. Blood(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8AF7B93E0B3068DEE213359954180C07288B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366443   (922107) от 12.03.2020
-
-Klayton - The Dunes (Original Motion Picture Score) (2020) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922107.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:59| 01. Gerald
-|01:55| 02. A Pretty Bright Light
-|01:07| 03. Detroit
-|01:42| 04. Blood(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56B34299D8931881686E8E7B7CF398673608C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988282   (920939) от 20.02.2016
-
-VA - Isaloc grammh (2008) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alkinoos Loannidis - Achrwmh siwph (3:05)
-02. Christos Thivaios - Marmarygh (3:16)
-03. Fwteinn Belesiwtoy - Melissec (4:21)
-04. Melίna Kanata & Michalhc Papaznshc - Isaloc grammh (3:31)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFABDE9B308E607EA2DBE752E9B7F3B465EC8D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

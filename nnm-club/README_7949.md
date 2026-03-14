@@ -1,21 +1,46 @@
-###  Публикация: 1528463   (734478) от 02.02.2022
+###  Публикация: 1398095   (736724) от 24.07.2020
 
-Darpan & Bhakta - Temple of Glowing Sound, Vol. 2 (2006) [AAC|~314 Kbps] <Tribal, Downtempo, Trance>
+Antivirus Zap Pro 3.9.5.0 [Multi/Ru]
 
->>
->>
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734478.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Astral Flight (4:57)
-02. Telepathine (4:36)
-03. Axis Mundi (9:35)
-04. Neural Pathways (3:07)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:51:29
+Antivirus Zap - небольшая утилита, которая просканирует ваш Mac на наличие различных adware, malware и других вредоносных неприятностей, которые, возможно, могут присутствовать в вашей системе. Процесс сканирования системы проходит весьма быстро и что хочется особенно отметить - почти не загружает CPU. Обновление баз антивирусных сигнатур проходит быстро и не заметно, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.07.2020Разработчик: Voros InnovationПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1DE9F87C56B0F842564EB0E6286C28D04560521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398187   (736723) от 24.07.2020
+
+Slidepad 1.0.34 [En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_736723.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
+Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
+Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.07.2020Разработчик: SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -27,28 +52,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528458   (734477) от 02.02.2022
+###  Публикация: 1398155   (736722) от 24.07.2020
 
-Bhakta - India all Over (2003) [AAC|~291 Kbps] <Tribal, Downtempo, Trance>
+Вольт Суслов | Покладистый Ложкин (2020) [MP3]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734477.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Om Namo (5:24)
-02. The Wheel (4:36)
-03. That Secret Word (4:02)
-04. Lord Shiva (4:10)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 01:06:44
+Сборник поучительных и весёлых рассказов, фельетонов и стихотворений.
+Вольт Суслов (1926-1998 гг.) – русский писатель, поэт, фельетонист и поэт-песенник. Работал в детских журналах «Искорка», «Костёр». В каждом произведении Вольт Николаевич описывает те проблемы, с которыми сталкиваются школьники: как бороться с собственной ленью, как стать более чуткими и уважать (   Читать дальше...   )Жанр: Детская литература/ПриключенияПродолжительность: 02:15:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6300E381C3D8F5A0E2EB6EC755FE5030B3BC206A
+magnet:?xt=urn:btih:4C58F543BC92671682B13ED92933980F07B311E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528462   (734476) от 02.02.2022
+###  Публикация: 1398125   (736719) от 24.07.2020
 
-Darpan & Bhakta - Temple of Glowing Sound, Vol. 1 (2006) [AAC|~341 Kbps] <Tribal, Downtempo, Trance>
+IObit Driver Booster Pro 7.6.0.765 RePack (& Portable) by TryRooM [Multi/Ru]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734476.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blessing (1:55)
-02. Om Tara (5:06)
-03. Reflections (5:44)
-04. Jai Ma (4:12)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:53:53
+Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E68889A0D6C793889DDCB33298CA10076E4C6C2C
+magnet:?xt=urn:btih:E846FB53F6B108C1D1C47134835E84AAC45522B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528465   (734475) от 02.02.2022
+###  Публикация: 787295   (736710) от 17.05.2014
 
-VA - Ibiza Live Radio 2 (2019) [AAC|~318 Kbps] <Chill Out, Downtempo, Deep House>
+Анатомия любви / Endless Love (2014) BDRip [720p] [EN]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734475.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736710.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marga Sol - Crystal Light (Original Mix) (5:48)
-02. Helly Larson, Miss Disk - Deep Dreams (Original Mix) (6:58)
-03. Darles Flow - Myth of Living (Original Mix) (6:18)
-04. Miss Luna, Q Derhino - Welcome to the Family (Original Mix) (6:33)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Deep HouseПродолжительность: 01:32:06
+Он — далеко не ангел, высокий дерзкий парень, помешанный на тачках. Она — примерная ученица, белокурая красотка из богатой семьи. Их любовь под запретом, а потому вдвойне желанна. Страсть сжигает их дотла и бросает в бездну.Жанр: Драма, МелодрамаРежиссер: Шана ФестАктеры: Алекс Петтифер, Габриэлла Уайлд, Брюс Гринвуд, Джоэли Ричардсон, Роберт Патрик, Риз Уэйкфилд, Дайо Окенайи, Эмма Ригби, Анна Энгер, Фаббианн ТерезПеревод: ОтсутствуетПродолжительность: 01:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BFCF09AFD17104F060B339B78828F6BA7FDF470
+magnet:?xt=urn:btih:1D389D1ADBEC0AA6AF75650DC9078C03786F06E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +131,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528459   (734474) от 02.02.2022
+###  Публикация: 1398127   (736700) от 24.07.2020
 
-Bhakta - Snow on Venus (2003) [AAC|~345 Kbps] <Tribal, Downtempo, Trance>
+Snakepit Rebels - Dustsucker (1992) [FLAC|Lossless|image + .cue] <Hard Rock>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734474.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One Traveling Snowflake (1:39)
-02. Bhakta, Chirag - Unknown Territory (6:57)
-03. Manish, Bhakta - Snow on Venus (12:40)
-04. Nadama, Bhakta - Falling Leaf (4:55)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:56:11
+01. High Heels (3:35)
+02. Lay Down, Stay Down (3:28)
+03. When It's Over (4:47)
+04. Penthouse Lover (3:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F14F4800BE8DE48A4A29DD4ACA6004B1CA3F773
+magnet:?xt=urn:btih:B3A6901CB890508620D020A83BBE9358FFE207A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,172 +160,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528464   (734473) от 02.02.2022
+###  Публикация: 1398053   (736699) от 24.07.2020
 
-VA - Ibiza Live Radio 1 (2018) [AAC|~326 Kbps] <Chill Out, Downtempo, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CarolinaBlue & MisterSmallz - Free Your Mind (Original Mix) (8:04)
-02. Lenny Fontana, D-Train - When You Feel What Love Has (NYC Deeper Dubb Mix) (7:31)
-03. Miss Luna - Move with You (Original Mix) (5:52)
-04. Mathew Brabham, DJ Nasty Deluxe - In the Jungle (Marga Sol & Darles Flow Remix) (5:46)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Deep HouseПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244FD40FF04CC50A61BE066D8F9C6200D45BECCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528466   (734472) от 02.02.2022
-
-VA - The Best of Lump Records (2020) [AAC|~320 Kbps] <Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omerar Nanda - Some God Ruled It (7:20)
-02. Hot Oasis - Wadi Tarabin (7:31)
-03. Dandara - Mira La Luna (6:14)
-04. Jota Karloza - Om Kleem (7:26)(   Читать дальше...   )Жанр: Organic HouseПродолжительность: 02:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77534F3EB2C6A2F5A555D0C63F3AA223C0CDB4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528525   (734471) от 02.02.2022
-
-VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 4 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris le Blanc, Pat Lawson - Beyond the Sunsets (Ibiza Late Night Mix) (4:59)
-02. Jason Cabrera - Red Apple (Original Mix) (3:07)
-03. Gaba Milani - Open Your Eyes (Original Mix) (5:02)
-04. Las Dalias Ensemble - Sundown At Cafe del Mar (Original Mix) (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2AD6B20520329FBBB1486295E741A9BDE0E63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528523   (734470) от 02.02.2022
-
-VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 2 (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefano Monza - People from Ibiza (Chill-Out Mix) (4:12)
-02. Mikis Theodorakis, Francesco Diaz - Desire (Chilling Chambers) (Original Mix) (4:26)
-03. Chill Out Hotel - Human (Original Mix) (5:24)
-04. Eva Pacifico - Caliente (Lenny Ibizarre Remix) (8:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECD9347D7FEAF0C043A695F85212393F8559A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528524   (734469) от 02.02.2022
-
-VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 3 (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nolan Rivera - Farra (Original Mix) (4:02)
-02. Eskadet - Translation (Original Mix) (4:34)
-03. Mikis Theodorakis, Francesco Diaz - Remembering Zorbas (Original Mix) (5:08)
-04. Lazy Hammock - Star Soul (Original Mix) (7:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D87FD7F9E744442C476FDF823859502C63F4C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528595   (734468) от 02.02.2022
-
-UctoX 2 v2.9 U2B [Multi]
+OmniGraffle Pro 7 v7.17.1 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734468.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-UctoX - это мощное приложение для выставления счетов, которое позволяет оставаться удобным для пользователей, предлагая широкий спектр функций для управления финансовыми отчетами.
-Управлять финансовыми документами вашей компании, отслеживать счета-фактуры, банковские выписки, инвестиции и многое другое, с помощью этого интуитивного приложения
-Если вы управляете малым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
+OmniGraffle Pro - отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.07.2020Разработчик: Omni GroupПоддерживаемая ОС: macOS 10.14Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:093A82465606563B78A914D6FBCF999F2150F149
+magnet:?xt=urn:btih:BCA86FA81CFD2BBD656DC74B704653F899284860
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +186,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528488   (734467) от 02.02.2022
+###  Публикация: 1398168   (736698) от 24.07.2020
 
-Count Basie - Live At The Savoy (1954) 1989, LaserLight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+File Juicer 4.86 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734467.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One O' Clock Jump [4:14]
-02. Dance Of The Gremlins [4:19]
-03. Basie Talk [3:59]
-04. Blee Blop Blues [2:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:19
+File Juicer - уникальная программа, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
+
+File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.07.2020Разработчик: Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0A1828CA1F0527C2A642A124666B442F8A93F14
+magnet:?xt=urn:btih:47D32B58B8423EF9344A95D3B426CF4FBED5C9F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +214,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528521   (734466) от 02.02.2022
+###  Публикация: 1398068   (736697) от 24.07.2020
 
-VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+Веслав Мысливский | Камень на камень (2020) [MP3]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734466.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maria Alvarez - Space (Terrace Mix) (8:53)
-02. Chuck Mertens - Moshy (Original Mix) (5:51)
-03. Benirras - Bora Bora (At Night Mix) (6:14)
-04. Jeffrey Campbell - Time (Original Mix) (4:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:30:21
+Роман признанного мастера «деревенской прозы», чьи книги вошли в канон польской литературы ХХ века, — пространное эпическое повествование об очередной «польской судьбе» в недавнюю эпоху, рассказ о жизни обитателей небольшой деревеньки и их заботах.
+Это великолепная литература, которая рождается из сельских мифов, очень умная, одно из высших достижений польского языка (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 18:12:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6D75006A09FCFF87055EAD56A664E2FC4CF0C18
+magnet:?xt=urn:btih:927DE2F4904F73C95E7A81FEA20FCCFD30FDF881
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,24 +241,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528499   (734465) от 02.02.2022
+###  Публикация: 1397912   (736696) от 24.07.2020
 
-Eurynomos - From The Valleys Of Hades (2020) [WavPack|Lossless|image + .cue] <Black Metal, Thrash Metal>
+DJ Ruby - Live at The Playground, Malta 2020-06-29 [MP3|320 Kbps] <Deep House, Progressive House>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734465.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_736696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Titan God
-02. Heraklion Axes
-03. Bat Flight
-04. Into The Lion's Den(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:49:33
+01. Cathy K - Midway To The Equator (DJ Ruby Re-Edit)
+02. Pedro Capelossi - Amethyste (Nopi Remix)
+03. Lio Q - Arsenico
+04. Kamilo Sanclemente - Zaniah(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 03:31:43
 
 ## Скачать торент
 ```bash
@@ -403,25 +270,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528507   (734464) от 02.02.2022
+###  Публикация: 1398172   (736695) от 24.07.2020
 
-ProFind 1.9.5 [En]
+OmniOutliner Pro 5.7.1 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734464.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
+OmniOutliner - удобное и чрезвычайно доступное средство создания схем. Оно идеально подходит для людей, которым требуется комфортная среда для создания структурированных текстов, отличный уровень поддержки и регулярность обновлений. В версии Essentials имеются привлекательные темы оформления, режимы печатной машинки и концентрации, функция статистики документа и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.07.2020Разработчик: The Omni GroupПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:383441533831D486DC1FFD95C4B15C561B964B77
+magnet:?xt=urn:btih:6E70AC8CC2EFA7A9AF01E77A9D0A32BB4B6A04E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,28 +296,139 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528583   (734463) от 02.02.2022
+###  Публикация: 1397890   (736694) от 24.07.2020
 
-Shyguys - Venture (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+Морган Мэтсон | Ничего не планируй (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вскоре в доме Грантов состоится свадьба старшей сестры Чарли, Линни, и сама Чарли с нетерпением ждет момента, когда впервые за несколько лет под одной крышей соберутся трое ее братьев и сестра. Она отчаянно нуждается в прекрасных выходных, прежде чем родители продадут дом и все изменится. Чарли распланировала каждый час – ничто не сможет ей помешать! Вот только выходные (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD91E820688FD35C878C615F7160A5D25D71E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398006   (736693) от 24.07.2020
+
+VA - Symphonic: Psychedelic Trance Mix (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736693.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Audiodact - Lostallo
+002. The Esotarica - Jendaya
+003. Dave Owens - Enigma
+004. Liquid Soul - Levitate(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 11:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F317F19CDD0333E102A4C256DD7A6EF65B6E1D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398009   (736692) от 24.07.2020
+
+Футбол. Примера Дивисьон (Ла Лига). Чемпионат Испании 2019-2020. Обзор матчей 35-го тура (2020) IPTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Примера Дивисьон (Ла Лига). Чемпионат Испании по футболу 2019-2020.
+Обзор матчей 35-го тура.Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1BFCE37D09FCF42E9D1FEA2997A1B660D944AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397846   (736691) от 24.07.2020
+
+Stone Temple Pilots - 2011-08-03 Hampton Beach Ballroom Casino Hampton Beach, NH (2020) Concert recording [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crackerman [04:17]
+02. Wicked Garden [04:45]
+03. Vasoline [03:37]
+04. Heaven and Hot Rods [03:56](   Читать дальше...   )Жанр: RockПродолжительность: 01:5:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED34FC5922F670CE42D038B7F6AEC3CAEE696C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397929   (736690) от 24.07.2020
+
+Airstream - The Book of Sounds (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Lounge>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734463.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Journey (6:44)
-02. Abilities (3:45)
-03. Pursuit (4:49)
-04. Attraction (4:03)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:54:46
+01. Medianoche (Aftersun Mix) (5:58)
+02. Let Me Go (Jazz City Mix) (6:55)
+03. Night Affair (1 Am Mix) (7:31)
+04. Pray (Smooth Clouds Cut) (6:00)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:53:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E569CA318A13B1E588521FC354B50DE3C966D338
+magnet:?xt=urn:btih:985D6E440F8C49F1BDE8E79665CFF8478B233DAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,28 +436,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528461   (734462) от 02.02.2022
+###  Публикация: 1398087   (736689) от 24.07.2020
 
-Chillhop Guitar, Sebastien Zunino - Secret Lover (2022) [AAC|~306 Kbps] <Chill Out, Smooth Jazz, Downtempo>
+Light Image Resizer 6.0.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734462.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Through the Glass (6:27)
-02. Confidential (6:29)
-03. Feet Grey (7:14)
-04. Fragrance (6:12)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 02:08:50
+Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45E794839ACC604309C86E3F7FD3A1FD074B5C92
+magnet:?xt=urn:btih:953A9C6139A4BDB3358F2B52AF1AD30AA58966FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -487,79 +462,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528545   (734461) от 02.02.2022
+###  Публикация: 1398107   (736688) от 24.07.2020
 
-Хоккей. НХЛ 2021-2022. Вашингтон Кэпиталз - Питтсбург Пингвинз (01.02.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734461.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 февраля 2022, среда. 03:00 МСК
-Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 826 зрителей (95% при вместимости 18 673)
-Главный судья: Гарретт Рэнк (Эльмира, Канада); Главный судья: Кевин Поллок (Кинкардин, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C6DBF697DA56E38D2BD3BFC452AFB33AFCC42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528495   (734460) от 02.02.2022
-
-Allavsoft Video Downloader Converter 3.24.3.8064 [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 31.01.2022Разработчик: © 2022 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528600   (734459) от 02.02.2022
-
-Cycling'74 Max 8 v8.2.1 U2B [En]
+Zoc Terminal 7.26.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734459.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MAX 8 - это визуальный язык программирования для музыки и мультимедиа. За время своей более чем 20-летней истории, он был использован композиторами, исполнителями, разработчиками программного обеспечения, исследователями и художниками.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: © Cycling '74Поддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Английский
+Zoc terminal - является довольно известным telnet/SSH/SSH2 клиентом и мощным эмулятором терминала. С помощью Zoc terminal, используя протоколы telnet, Secure Shell (SSH/SSH2) или модем, можно получить консольный доступ к различным серверам Unix, Linux, Mac OS X, активному сетевому оборудованию - CISCO, Watchguard, Mikrotik и т.д.Тип издания: macOS SoftwareРелиз состоялся: 23.07.2020Разработчик: EmTec Innovate SoftvareПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский и Немецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:691CB2CF882FEB6CC6C0221ED9B85C6A7DB185A3
+magnet:?xt=urn:btih:CE34B4D9A6B24D36D5280C8397039B4CAD097198
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,135 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528504   (734458) от 02.02.2022
+###  Публикация: 1398180   (736687) от 24.07.2020
 
-Duplicate Photos Fixer Pro 4.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
-Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 2022 Systweak SoftwareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Японский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:090184FC7197EEF2B65A3FAF0AF7129E960AAB92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528540   (734457) от 02.02.2022
-
-Vellum 3.0.3 [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Vellum для macOS позволяет авторам и небольшим издательствам с легкостью создавать красивый электронные книги для iBooks, Kindle и Nook.
-Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2022Разработчик: © 2022 180gПоддерживаемая ОС: macOS 10.15.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528498   (734456) от 02.02.2022
-
-AirMail Pro 5 v5.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
-По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 2022 Bloop S.R.L.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A76508B788EB0922297A381A90DB87600ADB17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528610   (734455) от 02.02.2022
-
-Джон Банни. Требуется стенографистка / Stenographers Wanted (1912) TVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734455.jpg" />
-</div>
-
-
-###  Подробнее
-
-В небольшую фирму требуется стенографистка. Пустяковое, казалось бы, дело, но и того сделать не могут. Пришли кандидатки, начали кастинг. Но дело в том что в фирме два владельца-директора и одному нравятся фигуристые брюнетки, а другому миниатюрные блондинки (для стенографии это очень важно). Пока они выбирали-перебирали, пришли их жены, посмотрели на всех этих красоток (   Читать дальше...   )Производство: США, Vitagraph Company of AmericaЖанр: Комедия, короткометражный, немое киноРежиссер: Нет данныхАктеры: Джон Банни, Флора Финч, Чарльз Элдридж, Джулия Свейн Гордон, Лиллиан Уолкер, Кейт Прайс, Феррис Харкорт, Леа БейрдПеревод: Немой с интертитрамиСубтитры: Голландские интертитры, русские встроенные отключаемыеПродолжительность: 00:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E945A3463E9298357AA7200F200BDB6AF26E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528491   (734454) от 02.02.2022
-
-VA - Valentine's Day 2022 [MP3|320 Kbps] <Pop, Rock, RnB>
+Ann-Margret - Ann-Margret (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 
 >>Pop
->>Зарубежная поп-музыка
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734454.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Counting Crows - Accidentally In Love (From "Shrek 2" Soundtrack)
-02. Imagine Dragons - Not Today
-03. Frank Sinatra, Count Basie and his Orchestra - Fly Me To The Moon (2008 Remastered)
-04. K-Ci & JoJo - All My Life (Radio Edit)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 02:03:07
+01. Midnight Message (6:54)
+02. What I Do To Men (6:03)
+03. Love Rush (6:08)
+04. Never Gonna Let You Go (5:03)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:28:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AD8DE6B3EA62DC2AD94E71509236004C36C24EE
+magnet:?xt=urn:btih:C77360804CFB641A42BE896F08029C48F4655421
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,25 +517,194 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528616   (734453) от 02.02.2022
+###  Публикация: 1398189   (736686) от 24.07.2020
 
-Диплодок / Diplodocus (1915) DVDRip
+Microsoft Visual Studio 2019 Community 16.6.3 (Offline Cache, Unofficial) [Ru/En]
 
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734453.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Один из первых мультфильмов знаменитой студии Джона Брея. Конечно, фильм довольно простенький, можно сказать примитивный, но это история. С этой точки зрения он и интересен. Кстати, этот фильм частенько путают с другим мультраритетом - "Динозавр Герти". Но это совершенно другой фильм, другая студия, другой режиссер. Но путаница с названиями продолжается, (   Читать дальше...   )Производство: США, Bray Studios Inc.Жанр: Рисованная анимация, КороткометражныйРежиссер: Джон Рэндольф БрэйПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:07:06
+Visual Studio Community 2019 - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.
+Процедура регистрации:Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA7454760F1DFC3DE624B052DBEC7AF7D38F9AF8
+magnet:?xt=urn:btih:6A7471ACBFE175B88F235C6E689D943AFA256E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397898   (736685) от 24.07.2020
+
+Alekseev (Никита Алексеев) - 2 Альбома (2017 - 2019) [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моя звезда
+02. Так буває
+03. Целуй
+04. Как ты там(   Читать дальше...   )Жанр: РорПродолжительность: 01:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85ABAF18A145648F034AF33BD609E10E5E4D05A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398176   (736684) от 24.07.2020
+
+Бурёнка Даша - Сборник 5 (2019) [MP3|320 Kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01+/-11. Берёзка
+02+/-12. Дед Мороз
+03+/-13. Добрый Доктор
+04+/-14. Колыбельная(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251A137058837161B5E85A9B34079D1B6098491A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398179   (736683) от 24.07.2020
+
+Бурёнка Даша - Сборник 6 (2019) [MP3|320 Kbps]<Детские песни и минусовки>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_736683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01+/-11. Борька-Растеряша
+02+/-12. Во Саду Ли В Огороде
+03+/-13. Зачем нам Мамы
+04+/-14. Лошадки(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397930   (736682) от 24.07.2020
+
+Alle Farben - Out Of Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alle Farben & Chill Mafia - Intro (1:12)
+02. Alle Farben & Graham Candy - She Moves (Far Away) (Out Of Space Mix) (6:48)
+03. Alle Farben & Justin Jesso - As Far As Feelings Go (Out Of Space Mix) (5:16)
+04. Alle Farben & Chill Mafia - Luminous Bright (6:46)(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353115A8B744C8F56EAA0D6BA334D493CCD56157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398079   (736681) от 24.07.2020
+
+Звуковые библиотеки - SoundBits - Just Stones [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека звуковых эффектов "Just Stones" приносит вам огромное количество звуков, созданных с помощью камней. Начиная от ударов, осколков и перекатывающихся камней до царапин, скольжений, ударов об воду... Все Отсортировано по подпапкам и со встроенными метаданными. Все звуки были записаны с помощью Sennheiser MKH8050 + mkh30 mix setup в 24 битах и 192 (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA4D157896FE81A20FF7290F0163CD166608B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787322   (736677) от 17.05.2014
+
+Анатомия любви / Endless Love (2014) BDRip [1080p] [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — далеко не ангел, высокий дерзкий парень, помешанный на тачках. Она — примерная ученица, белокурая красотка из богатой семьи. Их любовь под запретом, а потому вдвойне желанна. Страсть сжигает их дотла и бросает в бездну.Жанр: Драма, МелодрамаРежиссер: Шана ФестАктеры: Алекс Петтифер, Габриэлла Уайлд, Брюс Гринвуд, Джоэли Ричардсон, Роберт Патрик, Риз Уэйкфилд, Дайо Окенайи, Эмма Ригби, Анна Энгер, Фаббианн ТерезПеревод: ОтсутствуетПродолжительность: 01:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3324B7CC76C84C61E5929CEE8969BD2E71A062F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

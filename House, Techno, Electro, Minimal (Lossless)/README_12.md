@@ -1,3 +1,58 @@
+###  Публикация: 990805   (908021) от 27.02.2016
+
+Eric Prydz vs. CHVRCHES - Tether (2015) Single [FLAC|tracks|WEB-DL]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908021.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:40] 01. Eric Prydz vs. CHVRCHES - Tether (Original Mix)Жанр: Progressive HouseПродолжительность: 00:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183EF09536E126957DEE5C737B31C803EF1D9436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990810   (907923) от 27.02.2016
+
+Eric Prydz - Opus (2016) [FLAC|tracks|WEB-DL]<House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907923.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:44] 01. Liam
+[06:17] 02. Black Dyce
+[05:23] 03. Collider
+[06:37] 04. Som Sas(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2DD8FC29C4AF98B576DC18DA962D0260E319D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368701   (907425) от 21.03.2020
 
 Dani Corbalan - Best of . 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -684,64 +739,6 @@ VA - Die Hit-Giganten - Hits Der 90er (2004) 2CD, Compilation [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5732EB870F467ADCD53904E567AA295D7DC072EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102899   (889319) от 10.02.2017
-
-Blank & Jones - #WhatWeDoAtNight (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #WhatWeDoAtNight (9:19)
- 02. Nighttime (7:10)
- 03. COH (6:49)
- 04. Seven Souls (7:33)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D412E5DE99993041D41BC42C1B77D477B25F89BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494483   (889217) от 07.09.2021
-
-VA - Elektro Codes (One, Two, Three) (1997-2000) Elektrolux [FLAC|Lossless|tracks+.cue] <Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889217.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. MAS 2008 - Outpost Omega To Houston (04:59)
- 02. Index ID - Raumzentriert (05:48)
- 03. N)E(M - Welcome To Third Space (06:36)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Electro •Продолжительность: 05:43:33 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274E15DF66F2A8D0BC7EBA240918BAC9CBBD0E6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

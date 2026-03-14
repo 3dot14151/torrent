@@ -1,3 +1,32 @@
+###  Публикация: 1104050   (883706) от 13.02.2017
+
+Mel Torme - Sunday In New York & Other Songs About New York (1963) Remaster, 2013, Warner [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sunday In New York [02:33]
+ 02.Autumn in New York [03:23]
+ 03.Lullaby of Birdland [02:29]
+ 04.Broadway [02:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754DF7419EC5E80B4A750C589D6449495C7ED785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104042   (883520) от 13.02.2017
 
 Cannonball Adderley - Soul Zodiac (1972) 2008, EMI Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz-Funk>
@@ -716,35 +745,6 @@ Tete Montoliu & Jordi Sabates - Vampyria (1974) 2007, Nuevos Medios [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF036B1D833DC01CE62C27EAAF019B59EDDC0C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104045   (880275) от 15.02.2017
-
-Bim Bam Baby - Who Am I Gonna Love Tonight (1999) [FLAC|Lossless|image + .cue] <Jump Jive, Neo Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight I'm Gonna Love You
-02. Come Back My Love
-03. Love Roller Coaster
-04. I Gotta Have Your Love(   Читать дальше...   )Жанр: Jump Jive, Neo SwingПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE71CC49A05D69668FE31CBEBE5992E647C63707
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,85 @@
+###  Публикация: 1185245   (294816) от 20.11.2017
+
+VA - Музыка Космической Эры (2006) [FLAC|Lossless|image + .cue] <Electronic, Electro, Space Rock>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zodiac - Zodiac
+02. Supersonic Future - Самое Большое Космическое Путешествие
+03. Револьвер - Космодромы опустели
+04. Ким и Буран - Star Track(   Читать дальше...   )Жанр: Electronic, Electro, Space RockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB0444798835AB7226F0649BE020400FF58397B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334526   (294766) от 29.10.2019
+
+Alan Walker - The Spectre (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Electro, Chillwave, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Spectre (3:14)Жанр: Electro, Chillwave, Nu-DiscoПродолжительность: 00:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B7B29551CFDBA3A81813C49257BAE25445AE6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334527   (294680) от 29.10.2019
+
+Alan Walker - Faded (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Electro, Chillwave, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faded (3:33)
+ 02. Faded - Instrumental (3:34)Жанр: Electro, Chillwave, Nu-DiscoПродолжительность: 00:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A5D1CAB97BFD23273ADA87BE6D6BD39C139B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334524   (294663) от 29.10.2019
 
 Alan Walker - Different World (2018) [FLAC|Lossless|tracks + .cue] <Electro, Chillwave, Nu-Disco>
@@ -652,93 +734,6 @@ VA - A 40 Track Compilation : Edinburgh (2016) [FLAC|Lossless|WEB-DL|tracks] <Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07769E408BFC5BDF38C671BE5F0BE16BB3791F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335594   (284728) от 04.11.2019
-
-DREDDD - Pain Deluxe (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone Else (3:23)
-02. 1989 (3:04)
-03. Frog (5:34)
-04. Dark City (3:57)(   Читать дальше...   )Жанр: Electro, MinimalПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F432A6705E5459EE81C846F0C59690238E38F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335787   (284727) от 04.11.2019
-
-Sebastian Mullaert - A place called • Inkonst (2019) Kontra Musik [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderphalt (05:59)
- 02. Attio (07:00)
- 03. Sonder at Mountain Street (06:59)
- 04. Embrace Space (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F6A3685A8B3E6A86544BB6D8E9BA90157BC211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335792   (284550) от 04.11.2019
-
-UHF - Flight To Anywhere EP (2019) Gladio Operations [FLAC|Lossless|Vinyl|tracks] <Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight To Anywhere (Scape One's Flight To Mars Mix) (07:12)
- 02. Flight To Anywhere (05:45)
- 03. Reality (06:21)
- 04. Inner Fight (05:54)Жанр: ElectroПродолжительность: 00:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E828A55738FC508DA0DA65DCD88B68C3C214723
 ```
 
 https://mybot314.ru/tekegram_catalog/

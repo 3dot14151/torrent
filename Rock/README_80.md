@@ -1,3 +1,61 @@
+###  Публикация: 1583861   (226927) от 17.10.2022
+
+Blake Hobson - 2 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock, Progressive Metal, Rock Opera, Comedy Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hymn of Preface [00:02:51]
+02. Rite of Passage [00:09:50]
+03. Starry Shore [00:02:04]
+04. The Atlantic [00:08:36](   Читать дальше...   )Жанр: Progressive Rock, Progressive Metal, Rock Opera, Comedy RockПродолжительность: 01:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF718FEBAA8A503F25BCB08E92F32F36D67C782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583966   (226906) от 17.10.2022
+
+Richard Marx - Paid Vacation (1993) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way She Loves Me
+02. One More Try
+03. Silent Scream
+04. Nothing To Hide(   Читать дальше...   )Жанр: Rock, Pop, Soft RockПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08881659F59BDD5808A3DFE892A1E85A55CC692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341952   (226879) от 30.11.2019
 
 Pink Floyd - The Later Years: 1987-2019 (2019) [MP3|320 Kbps] <Rock>
@@ -686,64 +744,6 @@ Battalions - King of a Dead World (2022) [MP3|320 Kbps] <Sludge, Stoner>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75DAFE2C2C383A69B455D10E82A2A7823571D34A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585120   (222889) от 21.10.2022
-
-Stereo Mammoth - EGO (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ego
-02. EgoDeath
-03. Rotting Your Brain
-04. No Devils Round Here(   Читать дальше...   )Жанр: Heavy Rock, Stoner, PsychПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD70AB7B442BBA27F5CFE250839C800FA3887E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585215   (222869) от 21.10.2022
-
-O.R.k. - Screamnasium (2022) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As I Leave
-02. Unspoken Words
-03. Consequence
-04. I Feel Wrong(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216EF89AD11DE73ABAEED669E9CDD2A144D0E701
 ```
 
 https://mybot314.ru/tekegram_catalog/

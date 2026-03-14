@@ -1,3 +1,119 @@
+###  Публикация: 1358231   (969705) от 07.02.2020
+
+Bear McCreary - See / Видеть: Season 1 (Apple TV+ Original Series Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969705.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:08| 01. The Alkenny People
+|07:54| 02. Witch Finders
+|02:04| 03. Father Voss
+|03:24| 04. Rock Wall Battle(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C0307C71E69C4EC76E52B75765098B743424FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357382   (969689) от 07.02.2020
+
+VA - 100 Greatest Modern Country Songs (2020) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969689.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tim McGraw - Humble And Kind
+002. Chris Stapleton - Tennessee Whiskey
+003. Thomas Rhett - Die A Happy Man
+004. The Shires - The Hard Way(   Читать дальше...   )Жанр: CountryПродолжительность: 05:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4179D6A10AD2C5D64426BD3A7976C995C6A1E88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358226   (969641) от 07.02.2020
+
+VA - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (The Album) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969641.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:14| 01. Doja Cat - Boss Bitch
+|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
+|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
+|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11081F2F8024B90F4C36DC10BCA6AE62639DDDF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358382   (969632) от 07.02.2020
+
+VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969632.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:14| 01. Doja Cat - Boss Bitch
+|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
+|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
+|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DAA493A30EB4F046789261BD6BF3130376FEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358227   (969562) от 07.02.2020
 
 VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
@@ -635,122 +751,6 @@ VA - Instrumental Moods (2002) [FLAC|Lossless|tracks + .cue] <Instrumental, Lati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB96286756BBF00DFBEAD158D64D93EFD3EB50CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978531   (963578) от 23.01.2016
-
-Gary Girouard - The Naked Piano: Transitions (2016) [MP3|320 кб/с] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solitude
-02. Redemption
-03. Invictus
-04. Cross the Chasm(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23270490FB963037BF46B430AA99AE411E953354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978526   (963577) от 23.01.2016
-
-Stephen Rhodes - New Images (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skybird
-02. String Deep
-03. Still Waters
-04. Flute Romance(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877EC0D6604DD1F1C68B556C64F718CC5A9B84C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977881   (963423) от 23.01.2016
-
-Of Monsters And Men - Beneath The Skin (2015) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Indie, Indie Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystals (4:04)
-02. Human (3:58)
-03. Hunger (4:49)
-04. Wolves Without Teeth (3:53)(   Читать дальше...   )Жанр: Indie, Indie FolkПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EE324FCBC5B26F5B8E1A616ACDB63C3B466C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359772   (963273) от 13.02.2020
-
-Crispin Merrell - Машина смерти / Death Machine (1994) 2015 [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardman Diner
-02. Death Machine Title Sequence
-03. Dante's Lair
-04. Shark Attack?(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8071A60B30F11B6E29AE8E977117DF159C51CF57
 ```
 
 https://mybot314.ru/tekegram_catalog/

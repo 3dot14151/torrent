@@ -1,3 +1,90 @@
+###  Публикация: 1203492   (788058) от 02.02.2018
+
+Anti-Flag - American Fall (2017) [FLAC|Lossless|tracks] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Attraction 2:56
+02. The Criminals 2:44
+03. When The Wall Falls 2:46
+04. Trouble Follows Me 3:09(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AFC62AD99FBF5857C776CB4FC64ACE8D6AF796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276646   (787630) от 17.01.2019
+
+Tropical Fuck Storm - A Laughing Death In Meatspace (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Let My Tyres Down
+02. Antimatter Animals
+03. Chameleon Paint
+04. The Future Of History(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428CC9342E34D8E7D6D53D9E9E4FA9CA6C5589B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276601   (787627) от 17.01.2019
+
+Cloves - One Big Nothing (2018) [FLAC|Lossless|tracks + .cue] <Indie, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bringing The House Down (03:37)
+02. Wasted Time (04:04)
+03. Better Now (03:54)
+04. California Numb (03:21)(   Читать дальше...   )Жанр: Indie, Pop RockПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC3E71028E1CE1632E329B0E4B37B88213B6854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276783   (787237) от 18.01.2019
 
 Maggie Rogers - Heard It In A Past Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -657,93 +744,6 @@ Cary Brothers - Who You Are (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58B57B5A34CCC76279F6E13B4FEEE6D6EA105E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209832   (779018) от 01.03.2018
-
-Moaning - Moaning (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Go (02:51)
-02. Tired (03:12)
-03. Artificial (03:32)
-04. Close (02:55)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD945B3D80F2C0D913C6316D06958B8757D05CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209862   (779014) от 01.03.2018
-
-Cranes - Population Four (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779014.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tangled Up (05:36)
-2. Fourteen (03:15)
-3. Breeze (03:41)
-4. Can't Get Free (02:49)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBEBF8085B61C101842036E5DF66BF13CF0A35F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210861   (778207) от 05.03.2018
-
-Superorganism - Superorganism (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It’s All Good (03:23)
-02. Everybody Wants to Be Famous (03:04)
-03. Nobody Cares (03:49)
-04. Reflections on the Screen (03:52)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B0F54055DECB503B5BB528AF933197EE74C898
 ```
 
 https://mybot314.ru/tekegram_catalog/

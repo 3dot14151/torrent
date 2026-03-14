@@ -1,3 +1,148 @@
+###  Публикация: 1343170   (218689) от 06.12.2019
+
+VA - Blow Up Disco Vol 2: Twisted Italodisco (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miko Mission – The World Is You (Mission mix) (9:14)
+02. Miko Mission – The World Is You (vocal mix) (7:55)
+03. Sue Sadlow – My Man (Italodisko mix) (6:12)
+04. Sue Sadlow – My Man (radio mix) (5:56)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8409AC7574F83AA03BA1E14DE8C27E4C625A1783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343192   (218685) от 06.12.2019
+
+VA - Blow Up Disco Vol 6 : Nu-Disco & Italodisco Grooves From Blow Up Disco (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barbara Billet – Babies Blue (mix version) (6:50)
+02. Barbara Billet – Babies Blue (Babie version) (4:25)
+03. Barbara Billet – Babies Blue (Help version) (2:33)
+04. Iloveu – I Just Wanna Tell You Baby (Friends In Love mix) (6:20)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F55DA780220E8659D491AC8A0150D6FEC142689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084690   (218634) от 19.12.2016
+
+VA - MNM Big Hits 2016 Vol. 1 (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218634.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lukas Graham - 7 Years 3:57
+2. Alan Walker - Faded 3:31
+3. Jonas Blue Ft Dakota - Fast Car 3:30
+4. Justin Bieber - Love Yourself 3:52(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC70571FBA7C85AD2A23034D8E616C8F441DEECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343180   (218610) от 06.12.2019
+
+VA - Blow Up Disco Vol 4: A Taste Of Blow Up Disco & Italo Instrumentals (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaly – Empty Faces (Gianco mix) (5:29)
+02. Kaly – Empty Faces (4:30)
+03. Loui$ – Computer Soul (6:54)
+04. Loui$ – Swimming (4:30)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A18E99AD519ADEBFA61AD47F5DA196EAE510206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343168   (218591) от 06.12.2019
+
+VA - Blow Up Disco Vol 1: Club Series Italodisco Grooves (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miko Mission – How Old Are You (vocal mix) (7:23)
+02. Miko Mission – How Old Are You (instrumental) (5:57)
+03. The Breekout Krew – Matt's Mood (Rap-o-Version) (6:02)
+04. The Breekout Krew – Matt's Mood (Rock Beats) (5:15)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F469DCE1C8384904AE14330572730E1A7F53D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343185   (218585) от 06.12.2019
 
 VA - Blow Up Disco Vol 5: Italo Heaven (A Sexy Selection Of Italodisco!) (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
@@ -600,151 +745,6 @@ Madonna - The Universal (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5AF379D794A5DE92362AD33D9A7FA65383DC6B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645138   (209409) от 08.07.2023
-
-Taylor Swift - Speak Now (Taylor's Version) (2023) 2xCD [FLAC|Lossless|tracks + .cue] <Country, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc One:
-01. Mine (Taylor's Version) 3:51
-02. Spark Fly (Taylor's Version) 4:21
-03. Back To December (Taylor's Version) 4:54(   Читать дальше...   )Жанр: Country, Pop RockПродолжительность: 01:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0687790A2B9F1CBCBBB45E99667837033CDE648E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 676580   (208898) от 14.07.2023
-
-Brian McFadden - The Irish Connection (2013) [FLAC (tracks + .cue)]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Is The Colour (feat. sinead o'connor) [03:33]
- 02. All I Want Is You (feat. ronan keating) [03:53]
- 03. Crimes [02:51]
- 04. Dreams [03:44](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:790A7889DDBBA47AC42EB3EC3CF2B18CFFAB09ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646817   (208878) от 15.07.2023
-
-Michael Bolton - Spark of Light (2023) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Michael Bolton воспитывался на соул и блюзе таких музыкантов, как Ray Charles и Marvin Gaye. Свой первый сингл он записал на фирме Epic в 1968 году, но дебютный альбом появился только в 1975. Рецензии на эту пластинку были сдержанные, хотя критики и отмечали явное сходство голосов Bolton'а и Joe Cocker'а. В конце 70-х Michael Bolton принял приглашение хард-рок-группы (   Читать дальше...   )01. Spark of Light (3:18)
-02. Running Out of Ways (2:37)
-03. Eyes on You (3:38)
-04. Beautiful World (3:19)(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, BalladПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454CBEB0C8312EDA4FBCA9533C0DE0918A86A6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646655   (208861) от 15.07.2023
-
-Michael Bolton - Spark of Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spark of Light
-02. Running Out of Ways
-03. Eyes on You
-04. Beautiful World (feat. Justin Jesso)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB13B0ED6B9BF2029B3DDDB8F9D5C7F42099C6CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646658   (208811) от 15.07.2023
-
-Rita Ora - You & I (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Think Twice
-02. You Only Love Me
-03. Praising You (feat. Fatboy Slim)
-04. Unfeel It(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1264B638B33338964C15AC9FA2AE5B7E2E9B8273
 ```
 
 https://mybot314.ru/tekegram_catalog/

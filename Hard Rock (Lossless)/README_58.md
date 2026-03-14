@@ -1,3 +1,119 @@
+###  Публикация: 1152382   (310372) от 08.11.2020
+
+Ken Hensley (pre Uriah Heep) - The Gods: 2 альбома, 3CD, Toe Fat: 2 альбома, Weed: 1 альбом, Нead Machine: 1 альбом, 2CD (1968-1971) [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock, Classic R ...
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Кена Хенсли (Ken Hensley) навсегда войдет в историю рок-музыки, как первого настоящего хитмейкера классической британской хард-роковой сцены 70-х. Безусловно, миллионы рок-поклонников видят в Ken Hensley прежде всего фактического музыкального лидера, харизматического клавишника и гитариста рок-монстров Uriah Heep периода 1970 - 1980 гг.--------------------------
+
+01. Stick Heat (6:21)
+02. Indian Summer (2:15)(   Читать дальше...   )Жанр: Hard Rock, Prog Rock, Psychedelic Rock, Classic Rock |Продолжительность: 05:36:35  |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6460EB6E4FF5A67C15FD97C74C9F9158DF4F9346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960047   (310318) от 27.11.2015
+
+Tony Carey - Wilder Westen Inclusive (Original-Soundtrack Zur TV-Serie) (1988) [FLAC|image+.cue]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James BrownRooms And Views 0:53
+02. Room With A View 4:58
+03. Here Comes The Sun 4:24
+04. She's Got A Secret 4:34(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA2DBFCB22A30325998B1ED846D62AE89090F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960144   (310087) от 27.11.2015
+
+Billy Gibbons And The BFG's - Perfectamundo (2015) [FLAC|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый бородач и основатель культовой группы ZZ Top, Billy Gibbons, выпустил свой первый сольный альбом.01. Got Love If You Want It
+02. Treat Her Right
+03. You're What's Happenin', Baby
+04. Sal Y Pimiento(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474A1CE1E4C4858B0278114C1DDBBBC34350D598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332860   (309727) от 22.10.2019
+
+Last Temptation - Last Temptation (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Win I Lose (6:01)
+02. Bring Your Light Out (5:07)
+03. Blow A Fuse (3:55)
+04. Never Say Goodbye (4:33)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' HeavyПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42159C0C653C748F9FFB3AF96B0594C7645A84E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077234   (308893) от 27.11.2016
 
 Tony Carey - For You: Best Of 1988 - 1990 (1993)  [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
@@ -626,122 +742,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:877B8C5FDFEE43E62F8428CF7CDA092694913897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303484   (297048) от 14.11.2020
-
-AC/DC - 29 albums, 4 Box sets, 122 CD (1974-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock, Rock'n'Roll>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297048.jpg" />
-</div>
-
-
-###  Подробнее
-
-AC/DC — австралийская рок-группа, сформированная в Сиднее в ноябре 1973 года выходцами из Шотландии, братьями Малькольмом и Ангусом Янгами. Вместе с такими группами как Led Zeppelin, Deep Purple, Queen, Iron Maiden, Scorpions, Black Sabbath, Uriah Heep, Judas Priest и Motörhead AC/DC часто рассматриваются как пионеры хард-рока и хеви-метала. Сами же музыканты (   Читать дальше...   )--------------------------
-
-01. Heatseeker (3:50)
-02. That's The Way I Wanna Rock 'N' Roll (3:45)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Rock'n'Roll |Продолжительность: 93:01:49 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0808AA06025FFCFBD87CB240AA1FD9FA55E6F3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334213   (296814) от 28.10.2019
-
-Airbourne - Boneshaker (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boneshaker (03:30)
-02. Burnout the Nitro (03:31)
-03. This Is Our City (03:05)
-04. Sex to Go (02:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D539EABC62919FAC25D489196A8A21A70BE4DB4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423968   (295667) от 15.11.2020
-
-Black Stone Cherry - The Human Condition (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ringin' In My Head (4:13)
-02. Again (3:56)
-03. Push Down & Turn (3:16)
-04. When Angels Learn To Fly (4:33)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3367CF1C1BAF70B9BD2BD637214D2D823C9BC8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334811   (293370) от 30.10.2019
-
-Michael Sweet - Ten (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Part of Me (3:34)
-02. Lay It Down (3:30)
-03. Forget, Forgive (4:49)
-04. Now or Never (4:30)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71081B76CAC7BD997E50FB4CF39C86FC06791F72
 ```
 
 https://mybot314.ru/tekegram_catalog/

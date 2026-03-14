@@ -1,3 +1,148 @@
+###  Публикация: 363443   (567105) от 15.07.2011
+
+Enya - Watermark (1988) [APE 2.0 24/96|tracks (Vinyl-Rip)] <Electronic/Ambient/New Age/Celtic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567105.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1.  Watermark [02:23]
+ A2.  Cursum Perficio [04:07]
+ A3.  On Your Shore [03:57]
+ A4.  Storms In Africa [04:02](   Читать дальше...   )Жанр: Electronic/Ambient/New Age/CelticПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923046   (566199) от 30.07.2015
+
+Al Bano & Romina Power - Аль Бано и Ромина Пауэр (1982) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Italo-Disco, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Чистый воздух (Aria Pura)  3:14
+2. Счастье (Felicita)  3:16
+3. Идиллия (Sharasan)  4:48(   Читать дальше...   )Жанр: Italo-Disco, Pop RockПродолжительность: 00:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2642248F866BAE628B1936C17ED1C6C37C63F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923154   (566188) от 30.07.2015
+
+Smokie - Greatest Hits (1977) Repress /1988, Балкантон/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566188.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Lay Back In The Armes Of Someone (4:02)
+A2. Something's Been Making Me Blue (3:00)
+A3. If You Think You Know How To Love Me (3:24)
+A4. Pass It Around (3:06)(   Читать дальше...   )Производство: EMI / БалкантонЖанр: RockПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330A5ED060902A2D62E337C1C9AEA05968DFC2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303894   (565126) от 25.05.2019
+
+Bob Marley - Songs of Freedom. Part 2 (1994) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Reggae>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565126.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Africa Unite
+02. Survival
+03. Zimbabwe(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3379715825309C0F79E6D50C159268B4B7604447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303670   (565125) от 25.05.2019
+
+Baba Yaga  (Баба Яга) - Where Will You Go (Куда Ты Пойдешь?) (1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565125.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Where Will You Go (Куда ты пойдешь)
+A2 So Ends Another Day (Так заканчивается день)
+A3 Side To Side (Бок о бок)
+A4 Red Bird (Красная птица)(   Читать дальше...   )Жанр: Folk Rock, Blues RockПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B769561943A34700E8816A33302557EC72CFB03A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 691399   (559913) от 20.08.2013
 
 The Flirts - Blondes, Brunettes & Redheads (1985) US [FLAC 2.0|24/192|image|Vinyl-Rip]<Hi NRG, Synth-pop, Disco>
@@ -595,151 +740,6 @@ Alan Parsons - A Valid Path (2006) [FLAC 2.0|48/24|image+.cue|Audio-DVD] <Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D2B2B0337101128C04100750DB08F197FD5D7AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 695492   (544636) от 31.08.2013
-
-Pussycat - Blue Lights (1981) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Disco, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rio
-02. Blue Lights In My Eyes
-03. Then The Music Stopped
-04. Rain(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD00B4E3451E7B707AE6C11C5E51559980D5E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817135   (544111) от 01.09.2014
-
-David Lanz & Paul Speer - Desert Vision (1997) 2005 [DTS 5.1 CD-DA|44.1 /16|image+.cue|DVD-Video] <new age>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544111.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Eagle's Path 7:46
-2. Seguaro 5:24
-3. Desert Rain 3:25
-4. Sculptures 6:46(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DFC9E405D88848C1071D1D3F0EBC0C11F465565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311165   (543687) от 28.06.2019
-
-Harry Secombe - At Your Request (1958) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening, Vocal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543687.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Song Of Songs
-A2 At The Balalaika
-A3 Granada
-A4 Shine Through My Dreams(   Читать дальше...   )Жанр: Pop, Easy Listening, VocalПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27BF96131A3EEC9E00077F216931169E6E8BE90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153806   (542648) от 29.07.2017
-
-ВИА ''Ритм'' - Дискотека «А». Из Репертуара Аллы Пугачевой (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Disco, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542648.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Все Силы Даже Прилагая · Exerting All Powers
-A2 Улетай, Туча · Fly Away, Cloud
-A3 Женщина, Которая Поет · The Woman Who Sings
-A4 Три Желанья · Three Wishes(   Читать дальше...   )Жанр: Pop, Disco, FunkПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0011E5CC6EB1A6F6C9E8F2F162A92F7ED6E6E1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661593   (542556) от 05.08.2015
-
-Джо Дассен - Поет Джо Дассен (1980) [FLAC 2.0 96/24|traks(Vinil-Rip)]<Pop, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Et Si Tu N'Existais Pas - Если бы тебя не было  3:24
-2. L' Albatros - Альбатрос	3:08
-3. Ma Musique - Моя музыка	2:54(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20652EE75E8A853E4972B70D0989FDE6ADFBD402
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 989905   (915220) от 23.02.2016
+
+VA - Простые движения. Русский сборник попмузыки (2016) [MP3|192-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915220.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лена Савельева (Лёха)-Слышишь
+002. Александр Антонов - Это все, что я могу
+003. Евгений Коновалов - Прощай ( Andgork+Remix Electro )
+004. Катя Лель - Огни (Alex Radionow Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9132185C24C1E3548F8B9C3515F1801198AFDF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989798   (915217) от 23.02.2016
+
+VA - Наше Импортозамещение: Русский Сборник (2016) [MP3|128-320 кб/с] <Pop, Shanson, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915217.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. МакSим - Не выдыхай
+002. Егор Крид - Будильник (Sunset Live Remix)
+003. Иван Смелик - Мне снилось
+004. Ландыши - Добрый вечер!(   Читать дальше...   )Жанр: Pop, Shanson, RockПродолжительность: 06:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E860977B0E211AC32465716BB89881AB6776B786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989585   (915143) от 23.02.2016
+
+Tina Turner - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Rock & Roll, R&B>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best 1989 (05:31)
+02. Better Be Good To Me 1984 (05:12)
+03. GoldenEye 1996 (04:44)
+04. Typical Male 1986 (04:18)(   Читать дальше...   )Жанр: Rock & Roll, R&BПродолжительность: 01:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2229158CA97441F47ED7B6EB1AE5313DA312F6A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367611   (914969) от 16.03.2020
 
 VA - Зайцев.нет Лучшие новинки Марта (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -660,111 +747,6 @@ VA - The Official UK Top 40 Singles Chart (01-02-2015) [MP3|320 кб/с]<Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5BC0E81B88055E7BC190927B74A5BC208E501A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631690   (913110) от 24.03.2013
-
-VA - Super Dance Party-11 (2013) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Juan Martinez - Questa Notte You Are For Me
-02. Manian & Floorfilla - Just Another Night
-03. Will.i.am feat. Britney Spears - Scream & Shout (Miami Blue Vs Alex Berti Bootleg Remix)
-04. Mario Bischin - Macarena (Punish Bootleg 2k13)
-05. DJ Project feat. Adela - Vraja Ta (Radio Edit)
-06. David Guetta feat. Che'Nelle - Titanium
-07. DJ Sergey Fisun vs. Pavel Esenin - Call Me Misha 2013 (Room Original Mix)
-08. Magic Deejays feat. Alex Stavi - Things (Extended Version)
-09. Skrillex - The Reason
-10. Faydee - Catch Me(   Читать дальше...   )Жанр: DanceПродолжительность: 04:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AE0959C0962AF153B15CD000B38D721CEF3166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633501   (912958) от 24.03.2013
-
-VA - NRJ Hit Music Only 2013 (2CD) (2013) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912958.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1; 01:09:18
-
-01. Macklemore & Ryan Lewis Feat. Wanz - Thrift Shop
-02. Baauer - Harlem Shake
-03. Bruno Mars - When I Was Your Man
-04. Sexion D'assau Feat Dry - Assez
-05. Muse - Follow Me
-06. Pitbull Feat. Christina Aguilera - Feel This Moment
-07. Maroon 5 - Daylight
-08. Shaka Ponk - I'm Picky(   Читать дальше...   )Жанр: DanceПродолжительность: 02:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B9645ADE4A40C8B897B14712FCA6A28B7FB97D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632671   (912867) от 24.03.2013
-
-VA - Весенняя волна хитов (2013) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Vertigo feat. Ай-Q - Я Свет Искал
-02. K-Rim - Ты Для Меня (Rash Mix)
-03. Daniel Robu - Nomansland (Radio Edit)
-04. СтаЯ feat. D.I.P Project - Зачем Я И Ты (Radio Version)
-05. Spencer & Hill feat. Toni Nielson - Dead Or Alive (Radio Edit)
-06. DJ Richi feat. НашеVrемя - Статьи О Любви
-07. T-Killah feat. Лена Катина (ex. t.A.T.u) - Я Буду Рядом
-08. Play & Win - 5 AM (Radio Edit)
-09. NikitA - Синие Платье
-10. Влад Соколовский - Вслед За Ветрами(   Читать дальше...   )Жанр: DanceПродолжительность: 04:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7FA96B52EE3460A20EC9CD3C6483486A3A2297
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1787412   (68791) от 25.03.2025
+
+Ayreon - Into The Electric Castle (A Space Opera) (1998) Released, 2018, Music Theories Recordings [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68791.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Welcome To The New Dimension
+Lyrics By - Peter Daltrey
+A2 - Isis And Osiris
+Lyrics By - Fish(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D2467D9E45962D8740CB9B7320B70B98BD7516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787364   (68775) от 25.03.2025
+
+Nightwish - Oceanborn (1998) Released, 2010, Drakkar Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stargazers
+02. Gethsemane
+03. Devil & the Deep Dark Ocean
+04. Sacrament of Wilderness(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BAB3962A9DA59BA73103FD688889EDE186F52F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787454   (68771) от 25.03.2025
+
+Siberian - Modern Age Mausoleum (2014) [WavPack|32/192|image + .cue|Vinyl-Rip] <Sludge, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68771.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Gift / Curse
+A2 - Moth
+A3 - Paragon
+A4 - Misfit Opening(   Читать дальше...   )Жанр: Sludge, Progressive MetalПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6C3A562857C2654B928B73560756D696E28419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787640   (68760) от 26.03.2025
+
+Nightwish - Wishmaster (2000) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Is My Sin
+02. The Kinslayer
+03. Come Cover Me
+04. Wanderlust(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1CEDEB557E55F5A945F32D34A7F278CC5E14976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787590   (68735) от 26.03.2025
 
 Nightwish - Wishmaster (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
@@ -629,121 +745,6 @@ Nightwish - Amaranth (2007) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD26508BD3B166C56CEE4EAE2D3AE3280554D78D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727558   (68420) от 01.04.2025
-
-Aeonian Sorrow - Studio Albums (4 releases) (2018-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aeonian Sorrow - международная мелодик-дум-метал/фунерал-дум группа, сформирована певицей и автором песен Гого Мелоне в сентябре 2015 года.2018 - Into The Eternity A Moment We Are
-2020 - A Life Without (EP)
-2023 - KataraЖанр: Gothic/Doom/Death MetalПродолжительность: 02:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC99651D76B408754434EA309F642C11CC108EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788894   (68419) от 01.04.2025
-
-Occult - The Enemy Within (1996) Reissue, 2016, Cosmic Key Creations [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68419.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Souls
-A2 Inquistion Of The Holy
-A3 Crossing The Boundaries (Of Life And Death)
-A4 Selfbetrayel(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A798D0A79E7DFD2E82C5AB7B8BFE9F680A6644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788839   (68418) от 01.04.2025
-
-Katatonia - For Funerals to Come... (1995) EP, Reissue, 2011, Peaceville [FLAC|24/96|image + .cue|Vinyl-Rip] <Doom, Death Metal, Gothic, Alternative, Progressive Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68418.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Funeral Wedding
-A2 Shades Of Emerald Fields
-A3 For Funerals To Come...
-A4 Epistel(   Читать дальше...   )Жанр: Doom, Death Metal, Gothic, Alternative, Progressive Rock, MetalПродолжительность: 00:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A551BE8AFBFD6489BCCC7F1B25AE91BEFB1532FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789091   (68389) от 02.04.2025
-
-Тяжелый День - Два Альбома (1988, 1989) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68389.jpg" />
-</div>
-
-
-###  Подробнее
-
-00:36:20
-
-A1 Дай Мне Знать • Let Me Know
-(В. Бажин)(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 01:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FA5B246CBB4422FED57DF59995F39D298C3D1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1730960   (52897) от 18.06.2024
+
+VA - Music News vol.390 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Воровайки - Новое Поколение (03:18)
+ 002. Alex Mica - Be A Trice (03:27)
+ 003. Aneya - А Ты Все Тот Же Странник (04:36)
+ 004. ANFiLL feat. SOUZNIY & The Mate - Секрет (02:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37EA572FB89ECB4801367030C4813DC5F2722981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731506   (52349) от 23.06.2024
 
 VA - РАДИО БАТЯ - 013 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
@@ -716,35 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 26.07.2024 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7B66D7E4483915F2770EE170337D7364E6D9EAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738259   (48637) от 28.07.2024
-
-VA - Ностальгия 8 NNM-Remix (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ассорти - Красивая любовь (Silver Ace Radio Edit) (1:46)
-02. Мурат Насыров - Мальчик хочет в Тамбов (Silver Ace Radio Edit) (2:10)
-03. Наталья Ветлицкая - Посмотри в глаза (Vadim Adamov & Hardphol Remix) (Radio Edit) (2:14)
-04. Андрей Губин - Зима-холода (Dj Lover Radio Rework) (2:54)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C07515F356EF3F2AC74EB192F1097BB4B5AA69E
 ```
 
 https://mybot314.ru/tekegram_catalog/

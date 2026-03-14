@@ -1,3 +1,32 @@
+###  Публикация: 1208887   (779639) от 24.02.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 23.02.2018 [MP3|320 Kbps] <Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Post Malone ft. 21 Savage - Rockstar
+02. Imagine Dragons - Whatever It Takes
+03. Janieck - Does It Matter
+04. Vanotek feat. Eneli - Back To Me(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69714A4D775736FBDA226AA7B290C95C278D48E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209161   (779416) от 25.02.2018
 
 VA - Дискотека 2018 Dance Club Vol. 175 от NNNB [MP3|320 Kbps] <Club, Deep House, Other>
@@ -715,35 +744,6 @@ VA - Weekend Warm Up! (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2483756B2C6000FE90C387D4D590D6379FA8AA37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212120   (776262) от 10.03.2018
-
-VA - Dance Hot Mixes Popular Radio Mixes (2018) [MP3|320 Kbps] <Dance, Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776262.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ya Rick Ft. Addie Nicole - Follow My Destiny (Original Mix) 03:17
-002. Vinicius Nape, Jonathas Noronha - Explore (Original Mix) 06:12
-003. Tyron Hapi, Mimoza - Anyway (Majestic Remix) 02:34
-004. Thomas Mengel Ft. Isotobia Forrest - Invincible (Mike Shiver Extended Mix) 04:44(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 07:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DB6F4EE58638D329F62F42CBD05011D5820049
 ```
 
 https://mybot314.ru/tekegram_catalog/

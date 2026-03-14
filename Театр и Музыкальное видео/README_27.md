@@ -1,3 +1,197 @@
+###  Публикация: 1369725   (901881) от 24.03.2020
+
+Quest Pistols Show - 17 Mysic Videos (2012-2019) WEBRip [VP9/H.264/2160p/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901881.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2012 Quest Pistols Show - Разные [1080p]
+002 2013 Quest Pistols Show - Жара [1080p]
+003 2013 Quest Pistols Show - Забудем все [1080p]
+004 2014 Quest Pistols Show - Babyboy [1080p](   Читать дальше...   )Жанр: PopПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD67BCC51FEABA7B82DA749E616A4126622FC29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182416   (901872) от 12.03.2010
+
+The Sweet - Greatest Hits - Sweet Live (2004) DVD-5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: глэм-рокПеревод: оригиналСубтитры: нетПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369230   (901783) от 24.03.2020
+
+Quest Pistols (Quest Pistols Show) - 12 Mysic Videos (2007-2011) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901783.jpg" />
+</div>
+
+
+###  Подробнее
+
+2007 Quest Pistols - Дни Гламура
+2007 Quest Pistols - Я Устал
+2008 Quest Pistols - Для Тебя
+2008 Quest Pistols - Клетка(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5366F51C4D1F324BA860EDF6AD0107F8796E8D6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366878   (901617) от 24.03.2020
+
+Лобода - Новый Рим (2020) Web-DL [Н.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Лобода́ (Лобода) - Новый РимПроизводство: Sound production LUKACHSOUNDЖанр: PopРежиссер: Alan BadoevАктеры: Светла́на Серге́евна Лобода́ (укр. Світла́на Сергі́ївна Лобода́)Солистка группы «ВИА Гра» в 2004 году.Продолжительность: 00:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0E812FB4C5E7140DD90243C17338BCA9446C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369174   (901535) от 24.03.2020
+
+Tommy Cash - 14 Music Videos (2014-2020) WEBRip [VP9/H.264/2160p/1080p/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tommy Cash  (TOMM¥ €A$H) - "Член" команды "Little Big Family".001 Little Big & Tommy Cash - Give Me Your Money
+002 Little Big feat. Tommy Cash - Give Me Your Money (Live Clip)
+003 Tommy Cash - Euroz Dollaz Yeniz
+004 Tommy Cash - Guez Whoz Bak(   Читать дальше...   )Жанр: Rave, Raprave, Hip-HopПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2DB46D3039B526E684B77C2352347A93773752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100125   (901318) от 03.02.2017
+
+Uli Jon Roth - Tokyo Tapes Revisited - Live in Japan (2016) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот диск сделан по ассоциации с двойным альбомом Scorpions 1978 года "Tokyo Tapes", где Ульрих ещё выступал в качестве соло-гитариста Скорпов. Этот концерт проходил в том же, что и тогда, концертном зале - "Nakano Sun Plaza Hall". Ульрих даже попытался идентифицировать среди зрителей тех, кто 37 лет назад присутствовал на первом концерте.1. All Night Long (Uli Jon Roth)
+2. Longing For Fire (Rudolf Schenker)
+3. Crying Days (Rudolf Schenker)
+4. Sails Of Charon (Uli Jon Roth)(   Читать дальше...   )Производство: UDR MerchstoreЖанр: Hard RockПеревод: ОтсутствуетПродолжительность: 02:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33D76A8276EAB5815C44BBD14ED1B6D2E092FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637292   (900704) от 31.03.2013
+
+Carly Rae Jepsen - Tonight I M Getting Over You (2013) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50143599F5CCF2BB744FD0F178A9B98EBCED6E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 759952   (900155) от 26.02.2014
 
 Peter Tosh - Captured Live (2002) DVDRip [H.264/720p-LQ]
@@ -514,199 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41956E3E8DC332DDEEB2DBD1E32CFDC096E68091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637492   (894922) от 03.04.2013
-
-Anna Cyzon - Into The Sun (2013) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, RockПродолжительность: 00:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F81366F46BAB2CE6DA37F3230E32FCA3B51156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100750   (894075) от 07.02.2017
-
-Above & Beyond Acoustic - Full Concert Film Live from Porchester Hall (Official) (2014) HDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальная постановочная запись в высоком качестве акустического концерта музыкального проекта с мировой известностью Above and Beyond, особенно среди ценителей электронной музыки, в частности, направления Trance. В данном концерте представлены в живом исполнении их наиболее известные хиты в акустическом варианте, так что и ценители классической, джазовой и блюзовой (   Читать дальше...   )Производство: Великобритания, THUMPЖанр: Акустический концертРежиссер: Пааво Сильямяки, Тони МакГиннессПродолжительность: 01:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5FE51DA7D7B7482648303C1A5AC6553B67FAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370582   (893489) от 29.03.2020
-
-Трупный Яд - Чума (Black Death) (2020) WEBRip [H.264/1080p-LQ] <Thrash>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоклип (2020) Трупный Яд - Чума (Black Death) Vayper
-CDA Трупный Яд - 1995 - О.В.О. При О.В.ДЖанр: ThrashПродолжительность: 00:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6172C9E1F13EB6FC615E8B4132265310BD3488DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370684   (893417) от 29.03.2020
-
-Skrik - Апофеоз (COVID-19. Коронавирус, Италия) (2020) WEBRip [H.264/1080p-LQ] <Hardcore, Crust-Punk>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоклип Skrik - Апофеоз (COVID-19. Коронавирус, Италия)
-CDA Skrik (2020) Жупелъ ЕP (Hardcore, Crust, Россия)Производство: СМЕРЧ-ИНФОЖанр: Hardcore, Crust-PunkПродолжительность: 00:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E222BC7E2F4021C36C0F1DE87CF960CD884796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993713   (893328) от 06.03.2016
-
-Валерий и Константин Меладзе. Полста (2016.03.05) HDTV [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893328.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эфире Первого канала юбилейный вечер Валерия и Константина Меладзе.01. Валерий Меладзе - Се ля ви
-02. Валерий Меладзе - Самба белого мотылька
-03. Валерий Меладзе и Валерия - Не теряй меня
-04. Валерий Меладзе и Вера Брежнева, Анна Седокова, Альбина Джанабаева - Притяженья больше нет(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E45AAAFB7625E4EEB42A022AFDEF26234F4B1D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993716   (893177) от 06.03.2016
-
-VA - Весенний марафон № 226: Хиты до Утра (2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весенние (05.03.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Guard - Give It Up (Official Video) (00:03:14)
-02. Jana Kramer - Said No One Ever (Official Video) (00:03:00)
-03. Kat DeLuna ft. Jeremih - What A Night (Official Video) (00:03:02)
-04. Nicole Cherry - Cine iubeste (Official Video) (00:03:34)(   Читать дальше...   )Жанр: Pop, Dance, Latino, House, Reggae, Rap, Hip-HopПродолжительность: 01:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C1CB2952041FC9EF3E0E4237C3D1843D363E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102003   (892181) от 08.02.2017
-
-Accept - Restless And Live (2017) Blu-ray [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая группа Accept выпустила свой новый концертный альбом "Restless And Live" 13 января на лейбле Nuclear Blast. Релиз включает полное выступление команды на фестивале "Bang Your Head!!!", состоявшееся в 2015 году в Германии.1. Stampede
-2. Stalingrad
-3. London Leatherboys
-4. Restless and Wild(   Читать дальше...   )Производство: Германия, Nuclear BlastЖанр: Rock, Heavy MetalПеревод: ОтсутствуетПродолжительность: 01:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5797DB9F4BA2F610A465B244AD601CB9EFD9E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

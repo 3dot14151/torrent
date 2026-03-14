@@ -1,3 +1,175 @@
+###  Публикация: 1288696   (694311) от 12.03.2019
+
+Fire! Orchestra - Exit (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exit! Part One (19:29)
+ 02. Exit! Part Two (24:54)Жанр: Free Jazz, Free ImprovisationПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558A63BDF9409848DE6F04D2F6FB77A411D9BE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288688   (694309) от 12.03.2019
+
+The Bobs - Sing The Songs Of... (1991) Reissue [FLAC|Lossless|tracks + .cue] <Vocal, Parody>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Haze (3:16)
+ 02. Ring of Fire (3:18)
+ 03. Temptation (3:56)
+ 04. Whole Lotta Love (3:26)(   Читать дальше...   )Жанр: Vocal, ParodyПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865911D56EBB35FB80EF547648A0E1AD971F37A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288671   (694306) от 12.03.2019
+
+Miriam Aida - Come On Home (2008) Connective Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come on Home [3:20]
+02. A Handful of Soul [3:57]
+03. Two Steps from the Blues [4:29]
+04. Now That You're Gone [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E18CE305E25C91A37C009A51B43838E979CAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403152   (694279) от 18.08.2020
+
+Machito & His Orchestra - Mambo Y Cha Cha Cha: Tea For Two (1950-e) 1993, Saludos Amigos [FLAC|Lossless|tracks + .cue] <Mambo, Cha-Cha, Afro-Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Mambo [3:16]
+02. Chattanooga Cha Cha Cha [2:52]
+03. Sentimental Mambo [3:02]
+04. Christopher Columbus [2:55](   Читать дальше...   )Жанр: Mambo, Cha-Cha, Afro-Cuban JazzПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55009D3616581D7746AB7D55565945EDCAB59B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288683   (694199) от 12.03.2019
+
+Jan Garbarek Group - It's OK to Listen to the Gray Voice (1985) Reissue [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Noise of Forgetfulness (8:26)
+ 02. The Crossing Place (9:16)
+ 03. One Day in March I Go Down to the Sea and Listen (5:41)
+ 04. Mission:To Be Where I Am (8:12)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EDBF83260FF289774053A31B12ED8FADA151B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288779   (694198) от 12.03.2019
+
+Macelleria Mobile di Mezzanotte - Funeral Jazz (2015) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Ambient, Noir Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1000 Sigarette e un Omicidio (4:17)
+02. Slow (3:44)
+03. Funeral Jazz (4:32)
+04. Boogie Woogie Traditore (4:05)(   Читать дальше...   )Производство: Subsound Records - SR36Жанр: Doom Jazz, Dark Ambient, Noir Jazz, DroneПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FFC3BDE5CA612CA18A7879FCAFB7B8F27F359F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288616   (694066) от 12.03.2019
 
 Frank Sinatra - Frank Sinatra's Greatest Hits Super 2. Vol.1 & Vol.2, recorded 1968 and 1972 (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Jazz, Vocal>
@@ -569,180 +741,6 @@ Anthony Braxton - Nine Compositions (Hill) (2000) CIMP [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:094C03598A04BB714E4D3C0C582100FA6481B0BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133977   (691663) от 14.05.2017
-
-Hiram Bullock - First Class Vagabond (1982) 2000, JVC [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teasin' Eyes [03:36]
-02. First Class Vagabond [03:25]
-03. HIgh Tech Mech [02:25]
-04. Make Up Your Mind [03:45](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F62E0C84DDAD301D93FAE8FC5E1B4E233203E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133979   (691662) от 14.05.2017
-
-Paul Desmond - Glad To Be Unhappy (1963, 1964) 2017, Sony Music [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glad to Be Unhappy [05:48]
-02. Poor Butterfly [07:21]
-03. Stranger In Town [06:28]
-04. A Taste of Honey [04:30](   Читать дальше...   )Жанр: CoolПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F848A54BC17BDC0B473A8BC34635789B3668B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221770   (691538) от 26.04.2018
-
-Serge Chaloff - Blue Serge (1956) 1992, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Handful of Stars  [05:38]
-02. The Goof and I [04:49]
-03. Thanks for the Memory  [03:51]
-04. All the Things You Are  [05:31](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7A81D25E907608F38BFB93331A023C2DB7C24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221493   (691464) от 26.04.2018
-
-Solomon Burke - Soul My Heart Away (1989) Compilation [FLAC|Lossless|image + .cue] <Funk, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691464.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	It's Allright
-2	This Little Ring
-3	Just Out Of Reach
-4	Cry To Me(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7074EFD200821682F775398370B9D19A9D8A18D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221612   (691459) от 26.04.2018
-
-Solomon Burke - The Collection 2004 (2004) Compilation [FLAC|Lossless|image + .cue] <Funk, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691459.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	All For The Love Of Sunshine
-2	Looking Out My Back Door
-3	The Electronic Magnetism
-4	J.C. I Know Who You Are(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E245928818596F55EBB118F2C29D8D0962F10B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221503   (691454) от 26.04.2018
-
-Laila Biali - Laila Biali (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got To Love 03:14
-02. We Go 05:17
-03. Satellite 05:06
-04. Yellow 04:42(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8024AFB27DBE0D8992F21E63841C3BD48C9227B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

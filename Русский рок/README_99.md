@@ -1,3 +1,90 @@
+###  Публикация: 1521061   (137894) от 31.12.2021
+
+Хитобои - QR-код (2021) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137894.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бабье лето
+2. Киса
+3. Ди Каприо
+4. Я красивее всех(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ACA6F168D8F0BA9D95183923BB27202C0DFB262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273003   (137773) от 31.12.2018
+
+Карелия - Планета (2018) [MP3|320 Kbps] <Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Олень (5:06)
+02.Планета (6:25)
+03.Луна (5:51)
+04.Темные мысли (7:11)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1091D3F4C3FD3F6420FC3095181DFB07BC4B9B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436253   (137633) от 31.12.2020
+
+WastedSky - 18 20 (2020) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Искры [00:01:17]
+02 - На краю [00:03:27]
+03 - Фарфор [00:03:54]
+04 - Карма [00:03:42](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207EF04AA421267E6439A1CA4641B5E4ED263547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436251   (137626) от 31.12.2020
 
 History Of Life - It's Time (2020) [MP3|320 Kbps] <Progressive Metalcore>
@@ -658,92 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ACCD3599BB6309CBC5C90F1811069D17735B75E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687345   (125421) от 27.12.2023
-
-Курара - ПП\22 (2023) [MP3|320 Kbps] <Alternative, Indie Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Тягунов [00:06:04]
-02 - Дальше тишина '22 [00:06:40]
-03 - Босоногий пёс '22 [00:02:52]
-04 - Паническая атака '22 [00:04:14](   Читать дальше...   )Жанр: Alternative, Indie Pop, Indie RockПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FA0CE3975D2304018EA02F14C956F5949E7C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689313   (124805) от 01.01.2024
-
-VA - Полигон Records. Лучшее 2023 [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Райтер - Догорает (3:51)
-02. джинсы тарковского - 37 (5:00)
-03. Бригадный подряд - Полярник (3:13)
-04. УРАГАН - Сыктывкар (2:33)(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1EBD7719755D8580D0A3D7A96E2484343D37796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690354   (123899) от 07.01.2024
-
-Angr - II (2023) [MP3|320 Kbps] <Black Metal, Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ode about the End of Time [00:06:56]
-02 - Psalm of Gnosis Nonexistence [00:08:08]
-03 - The Fantasmogorical Catechism of the Dreamer [00:16:41]Жанр: Black Metal, Death Metal, Doom MetalПродолжительность: 00:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E7D8819B1916C2833BFC37E17A935871A707BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

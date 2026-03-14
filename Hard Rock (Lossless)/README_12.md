@@ -1,3 +1,119 @@
+###  Публикация: 1481388   (1008332) от 03.07.2021
+
+Kenny Mcgee - Heartless Daze Two (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Hates You
+02. London Bridges
+03. Queen Of Whores
+04. Until The Morning Comes(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F39DA29E8DA04F7E2F1D048A5266AB34F835C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481829   (1008037) от 05.07.2021
+
+Midnite City - Itch You Can't Scratch (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawlin' In The Dirt
+02. Atomic
+03. Fire Inside
+04. Darkest Before The Dawn(   Читать дальше...   )Жанр: Melodic Hard Rock, Glam RockПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5D85551461E427037E1F1C845EE1085A3E5457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481827   (1008035) от 05.07.2021
+
+Jakob Samuel - CoExist (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Minute Every Hour
+02. Stand By You
+03. One Last Time
+04. Hey Brother(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0550913C5780E57EAC22AC0EDD30C690D5BAD0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481770   (1008027) от 05.07.2021
+
+Band Of Brothers - Band Of Brothers (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eastern Front
+02. Pull The Trigger On PTSD
+03. War Is Strictly Business
+04. Sands Of Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B745F02D74438AE3BF97B5FFE7AE1948FE81225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482491   (1007465) от 09.07.2021
 
 Spearfish - The English Project (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ Guild Of Ages - Rise (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E35991A0A33668F33EABDC243A301D2275DF8DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264366   (1005258) от 26.07.2021
-
-Rare Bird - 9 albums, 1 Box-set, 16 CD (1969-2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005258.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Rare Bird" появилась на свет в Лондоне в октябре 1969 года. Группа, которая в начале своего пути потрясла слушателя красотой музыки, неординарностью аранжировок и нестандартным набором музыкальных инструментов, а именно – отсутствием электрогитары и двумя клавишными. 1970-й год стал пиком популярности группы, ведь даже "Billboard magazine" признал (   Читать дальше...   )--------------------------
-
-01. Are You Ready (3:21)
-02. Rain On Me (4:15)(   Читать дальше...   )Жанр: Progressive Rock, Crossover Prog, Psychedelic Rock, Blue Eyed Soul |Продолжительность: 12:47:14 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34A6C4F6E7BE1B3ADB8D01E8F5F6B2FA24BE6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486133   (1004882) от 30.07.2021
-
-Heaven & Earth - V (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive
-02. Beautiful
-03. Never Dream Of Dying
-04. Ship Of Fools(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CFDD21388A4C4C3BDB9826D0C63233215A6E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486563   (1004592) от 01.08.2021
-
-Nitrate - Renegade (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danger Zone
-02. Renegade
-03. You Think You've Got It
-04. Big City Lights(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0219C5EE31B1D9B0FA1A9B7EA25C5C9AE6CBB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486492   (1004585) от 01.08.2021
-
-Restless Bones - Captured by the Roots (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonewalk (04:41)
-02. Monster (03:43)
-03. Common Sense (04:59)
-04. Sail Away (feat. Don Airey) (04:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEE96FD2A44048A939F18DAF571F4997C42F3A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

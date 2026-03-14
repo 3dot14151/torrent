@@ -1,3 +1,32 @@
+###  Публикация: 1028195   (690110) от 22.06.2016
+
+VA - Romantic 80s (2016) [MP3|320 кб/с] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bucks Fizz - The Land Of Make Believe
+002. Spandau Ballet - Spandau Ballet - To Cut A Long Story Short
+003. New Order - New Order - Temptation
+004. Aztec Camera - Somewhere In My Heart(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 09:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4F784F290826A7459727377EC33A68871220FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028439   (690092) от 22.06.2016
 
 VA - Легенды ВИА 70-80-х мы из СССР (2016) [MP3|320 кб/с] <Pop, Retro, Rock>
@@ -742,35 +771,6 @@ VA - The Official UK Top 40 Singles Chart 15.03.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9DC4A9CF08E9025049A2F91BB80D1ADB0F7C8BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222397   (684440) от 29.04.2018
-
-VA - Лучший Клубный Хит Vol.2 (2018) [MP3|320 Kbps] <Club, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fedde Le Grand - You Got Me Runnin
-02. Grivina - I Love Deep House (Ramirez & Rakurs Remix)
-03. Filatov & Karas Vs. Виктор Цой - Остаться С Тобой (Vox Mix)
-04. An.Du - She's A Bitch (X-Tropic Remix)(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 03:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03903BB95093018FA7A9234DBD4C806AA4FC0ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

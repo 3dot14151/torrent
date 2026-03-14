@@ -1,3 +1,122 @@
+###  Публикация: 600345   (986533) от 01.02.2013
+
+VA - В ритме танца (24CD) (2010 - 2011) [MP3|320 кб/с]<Instrumental, Pop, Retro, Vocal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986533.jpg" />
+</div>
+
+
+###  Подробнее
+
+49. Dancing On A Saturday Night - Barry Blue
+50. Dance The Body Music - Osibisa
+51. Nice 'n' Slow - Jesse Green
+52. He's The Greatest Dancer - Sister Sledge
+53. Kung Fu Fighting - Doug Carlson
+54. Upside Down - Hazel Fernandes
+55. Dance Little Lady - Tina Charles
+56. Blame It On The Boogie - Brotherhood of Man
+57. Y.M.C.A. - The Thymes
+58. It's Raining Men - Alison Jiear(   Читать дальше...   )Жанр: Instrumental, Pop, Retro, Vocal...Продолжительность: 01:18:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354974   (986039) от 24.01.2020
+
+Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Check Point (01:21)
+02. Nurse Droid (01:08)
+03. The Ewebb (04:07)
+04. A Thousand Tears (04:07)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 03:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B61320E00E324B39A46EE046D719D8A98271105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354975   (985958) от 24.01.2020
+
+Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Check Point (01:21)
+02. Nurse Droid (01:08)
+03. The Ewebb (04:07)
+04. A Thousand Tears (04:07)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 03:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA7EA6D47CDD2E73305D002E92412C3C639A319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 434927   (985265) от 11.01.2012
+
+Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005) [FLAC|Lossless]<Indian Classical, Bansuri Flute, Meditation, Relax>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Indian Classical, Meditation, RelaxПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355261   (984976) от 25.01.2020
 
 Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
@@ -644,122 +763,6 @@ Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBDBADB4D60D5DE04006C74FDD34CBC9B222DB84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973429   (980258) от 08.01.2016
-
-Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Picture Score) (2007) [MP3|320 кб/с] <Soundtrack, Music, New Age>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gas Station In The Fog (1:32)
-02. Socrates On The Roof (1:01)
-03. "If You Don't Make The Team..." (0:41)
-04. An Unexpected Visit (1:25)(   Читать дальше...   )Жанр: Soundtrack, Music, New AgeПродолжительность: 00:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DF0453FCC01355CCB306833681D6AB5D4BD60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973463   (980256) от 08.01.2016
-
-Yuki Kajiura - Akiresu to kame (Ахиллес и черепаха) (2008) [OGG|Lossless] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omoide no e (1:41)
-02. Tora no e (1:19)
-03. Hirame no e (0:47)
-04. Shuumatsu no e (1:58)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F2A4EE14DABE5E199082D5A488F2A779D3CD63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972375   (980253) от 08.01.2016
-
-Jim Brickman - Grace (2005) [FLAC|Lossless|tracks + .cue] <New Age, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Brickman & Ginny Owens - Amazing Grace (3:14)
-02. Jim Brickman - Israel (2:24)
-03. Jim Brickman with Many Crowns - Crown Him (2:50)
-04. Jim Brickman - Joyful (3:50)(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02209B6FEEF6E06FEE086E3A3CC56903C196318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973725   (979263) от 09.01.2016
-
-Paul Cardall - Saving Tiny Hearts (2014) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gracie's Theme
-02. Life & Death
-03. Passing Time
-04. Miracles(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095354472A680352FA7AFB8C560E9AF0A29B7297
 ```
 
 https://mybot314.ru/tekegram_catalog/

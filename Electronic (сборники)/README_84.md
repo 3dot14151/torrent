@@ -1,3 +1,32 @@
+###  Публикация: 1132381   (701144) от 09.05.2017
+
+VA - Green Therapy Music (2017) [MP3|320 Kbps] <Chillout, Lounge, Dountempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701144.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amun - Red Eyes 4:23
+002. Chill 2 U - Nightwalker 4:54
+003. Amure - Intim 5:40
+004. Crystal Morgan - Do It 5:58(   Читать дальше...   )Жанр: Chillout, Lounge, DountempoПродолжительность: 07:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01311BE6E758C9AF016FA0C67E36DD32F35C04F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132634   (701118) от 09.05.2017
 
 VA - Deep Sourge: Beach Edition (2017) [MP3|320 Kbps] <Deep, Chill House>
@@ -716,35 +745,6 @@ VA - Empire Records - Fake 6 (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95DD62D5195B2B79D43AD8A4AEA0930C236CE2BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288110   (697774) от 10.03.2019
-
-VA - Record Super Chart 577 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Rag'n'Bone Man - Giant (3:47)
-02. Ilkay Sencan - Do It (3:51)
-03. Sofi Tukker & ZHU - Mi Rumba (3:20)
-04. Mark Ronson feat. Miley Cyrus - Nothing Breaks Like A Heart (3:40)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD756BAEDB6ABEA217FD21EB76CBBD964C62B85
 ```
 
 https://mybot314.ru/tekegram_catalog/

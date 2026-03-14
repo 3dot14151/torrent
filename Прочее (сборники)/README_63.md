@@ -1,3 +1,32 @@
+###  Публикация: 1401026   (712974) от 08.08.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 07.08.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NRD1 - All Good Things (Come To An End) (3:27)
+02. Imanbek & Martin Jensen - I'm Just Feelin' (Du Du Du) (2:45)
+03. Regard & RAYE - Secrets (2:56)
+04. Pascal Letoublon - Friendships (4:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6D0ABAC3E7C5617939463C869527ED1BAC0B96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400878   (712962) от 08.08.2020
 
 VA - Громкие новинки Августа (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -718,35 +747,6 @@ VA - Top 40 Summer Round Essential (2016) [MP3|320 кб/с] <Dance, Club, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49D7E26B8F29D0729F28E80DA20441DB866A6B87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025826   (708125) от 13.06.2016
-
-VA - Созвездие весеннее - 9 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708125.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alloise - Deadman
-002. Коля Dev - Неба Не Надо
-003. Slider & Magnit Feat. Penny Foster - Another Day In Paradise
-004. Анна Шульгина - Другая Я(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B72169076EF4DE4AA2F06430DC8DF537EEC816C
 ```
 
 https://mybot314.ru/tekegram_catalog/

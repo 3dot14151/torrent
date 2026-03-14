@@ -1,3 +1,145 @@
+###  Публикация: 1181794   (316402) от 10.11.2017
+
+Sandra - Greatest Hits (2008) [FLAC|Lossless|WEB-DL|tracks] <Europop, Synth-pop, Euro Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Europop, Synth-pop, Euro DiscoПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CFDB71B5634C2CFD7C5B73273D0BED36078C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421666   (315223) от 06.11.2020
+
+The Bangles - Gold (2020) 3xCD [FLAC|Lossless|tracks + .cue] <New Wave, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315223.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Manic Monday (3:05)
+02. Walk Like An Egyptian (3:20)
+03. In Your Room (3:30)(   Читать дальше...   )Жанр: New Wave, Rock, PopПродолжительность: 02:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0EF0679CDB1BB86547915249C46FF5884ACF4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421868   (315218) от 06.11.2020
+
+Kylie Minogue - DISCO (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Nu Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (4:11)
+ 02. Miss a Thing (3:56)
+ 03. Real Groove (3:15)
+ 04. Monday Blues (3:09)(   Читать дальше...   )Жанр: Dance-Pop, Nu DiscoПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F8555DD443F5A055834348E231B57A71880289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259927   (314571) от 06.11.2018
+
+The Ting Tings - The Black Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic Pop Rock, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estranged
+02. Basement
+03. A & E
+04. Blacklight(   Читать дальше...   )Жанр: Alternative Pop, Electronic Pop Rock, Dance-Punk, Synthpop, IndieПродолжительность: 00:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F3C1EB65ACEBE59CC192E6C755A8A778CA31DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182823   (314516) от 11.11.2017
+
+VA - BRAVO The Hits 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Electronic, R&B, Dancepop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Shape Of You (3:52)
+02. Luis Fonsi feat. Daddy Yankee - Despacito (3:49)
+03. Post Malone feat. 21 Savage - rockstar (3:38)
+04. J Balvin & Willy William - Mi gente (3:05)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop Rock, Alternative RockПродолжительность: 02:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F20D5F5B06F72ECB50EF94886E4C9D600A51FF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182551   (314463) от 11.11.2017
 
 Taylor Swift - reputation (2017) Scene [FLAC|Lossless|tracks] <Pop>
@@ -601,151 +743,6 @@ VA - Golden Memories - The...Gold Party Collection (2012) 4CD [FLAC|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DC0BC2B7C2D2A3BFB1F50A997651872D271BC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960832   (304812) от 29.11.2015
-
-Mylene Farmer - The Best Of (2007) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Mots (04:52)
- 02. Fuck Them All (04:39)
- 03. Sans Contrefacon (04:20)
- 04. Xxl (04:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFF995EFF3CB20A032D17A96FA56C0554BEFD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078112   (304633) от 29.11.2016
-
-VA - Hits of the 80s, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graham Blvd - Dancing in the Dark [3:46]
-02. Knightsbridge - Pour Some Sugar On Me [4:26]
-03. Ellis Wright - You Drive Me Crazy [2:40]
-04. Chateau Pop - Take On Me [3:46](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAB0907AEC40AB50E274C80A43A3CC2434FA00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078091   (304630) от 29.11.2016
-
-VA - Hits Of The 80s, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graham Blvd - Everywhere [3:18]
-02. Fresh Beat MCs - Rapper's Delight [3:57]
-03. The Overseers - Boys (Summertime Love) [3:09]
-04. Silver Disco Explosion - Fame [3:54](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0206334E83C5AED66D16A0658DE297390501407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584867   (304525) от 05.12.2012
-
-Mylene Farmer - Monkey Me (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]<Pop>
-
->>След.
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  - Elle A Dit [03:52]
- 02.  - A l'ombre [04:50]
- 03.  - Monkey Me [04:13]
- 04.  - Tu ne le dis pas [04:22](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D9C0851B15F7FC7FCE3E51A140F7E9E8C37097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423021   (304027) от 11.11.2020
-
-VA - Greatest Hits Instrumental (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Starlite Orchestra - American Pie (4:26)
-02. The Starlite Singers - Big Spender (2:46)
-03. Chateau Pop - O l'amour (3:02)
-04. The New Merseysiders - Ob-La-Di, Ob-La-Da (2:03)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 02:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D811B80C5CF2EB27AE1F151CCF03796BBFDDB4F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

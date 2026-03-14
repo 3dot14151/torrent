@@ -1,3 +1,90 @@
+###  Публикация: 956159   (331293) от 13.11.2015
+
+Oliver Nelson - More Blues And The Abstract Truth (1964) 2015, Universal[FLAC|tracks+.cue]<Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues And The Abstract Truth [05:15]
+ 02.Blues O'Mighty [06:48]
+ 03.Theme From Mr. Broadway [05:50]
+ 04.Midnight Blue [04:09](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DEBFA1CCF5B9083F72873DEFCA1BAC0614C8907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955882   (331292) от 13.11.2015
+
+Sam Rivers - A New Conception (1966) 2014, Universal[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When I Fall In Love [05:52]
+ 02.I'll Never Smile Again [05:59]
+ 03.Detour Ahead [05:12]
+ 04.That's All [05:41](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3C597923B3DD1DC02A4222715DDA4A197375D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956204   (331142) от 13.11.2015
+
+Tommy Flanagan - Jazz Poet (1989) 2015, Timeless Records[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Raincheck [05:01]
+ 02.Lament [05:10]
+ 03.Willow Weep For Me [06:05]
+ 04.Caravan [06:25](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5200CEA8B2E34EBCAECCFB2B423AE2DFD6B9FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 260336   (330692) от 20.11.2010
 
 Billie Holiday - Collection (5 альбомов) (1956 - 2002)[FLAC, APE|Lossless]<Jazz>
@@ -657,93 +744,6 @@ Larry Coryell - New High (2000) HighNote[FLAC|tracks+.cue]<Post-Bop, Jazz Fusion
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F62217EC759F457A269B029581B0CF1328E5DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957598   (326782) от 18.11.2015
-
-Kenny Burrell - 12•15•78 (1978) 2CD, 1999, 32 Jazz[FLAC|tracks+.cue]<Hard Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326782.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Second Balcony Jump [06:11]
-02.Willow Weep For Me [06:45]
-03.Work Song [04:28](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F856B009F81F49A3DCA972DEC607FC86803D6964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957985   (325844) от 19.11.2015
-
-Marlena Shaw - Anthology (2000) Soulb[FLAC|image+.cue]<Vocal Jazz, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Woman Of The Ghetto [06:05]
- 02.California Soul [03:01]
- 03.Mercy Mercy Mercy [03:01]
- 04.Wade In The Water [03:36](   Читать дальше...   )Жанр: Vocal Jazz, Soul JazzПродолжительность: 01:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47844F7D524F0DEBCFE392863165E59F4C9DE619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581984   (325587) от 07.10.2022
-
-The Diego Rivera Quartet - Hercules (2004) 2006, Rivera Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morena [4:38]
-02. Boogaloo to You [3:54]
-03. The Unsaid [8:19]
-04. Hercules [7:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0865D1F4A33E446FDA4869B39FA817C81CFD531F
 ```
 
 https://mybot314.ru/tekegram_catalog/

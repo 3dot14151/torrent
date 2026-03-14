@@ -1,3 +1,379 @@
+###  Публикация: 1705741   (113759) от 10.03.2024
+
+The Crystals - Unforgettable Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Then He Kissed Me [00:02:38]
+02. Da Doo Ron Ron [00:02:19]
+03. He's Sure the Boy I Love [00:02:44]
+04. There's No Other Like My Baby [00:02:30](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEE50194DE579E59A98E65DCAB203AE99F53DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705696   (113664) от 12.03.2024
+
+Jackie DeShannon - Little Bit Of Heaven: The 1964 Metric Music Demos (2023) [FLAC|Lossless|tracks] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Bit Of Heaven (2:12)
+02. Day Dreaming Of You (2:05)
+03. You Should Have Been There (1:53)
+04. Till You Say You'll Be Mine (2:37)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3248C2602AC0AA08AF867ED72F208F6EEFA580F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706515   (113579) от 13.03.2024
+
+Ariana Grande - eternal sunshine (2024) slightly deluxe, 2024, Republic Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (End Of The World) (01:32)
+02. Bye (02:45)
+03. Don't Wanna Break Up Again (02:54)
+04. Saturn Returns Interlude (00:42)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDEF374E03F2B05A9DAF01E6715EE53B9ACA752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706808   (113520) от 14.03.2024
+
+Fun Fun - Double Fun (1987) Reissue, 2023, ESonCD [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme Some Loving 6:24
+02. Could This Be Love 6:05
+03. Psychedelic Vision 5:11
+04. Baila Bolero 3:58(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9A1038BB34255E7C1B23E2688F084FEB113E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707099   (113453) от 15.03.2024
+
+Justin Timberlake - Everything I Thought It Was (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memphis
+02. F***kin' Up The Disco
+03. No Angels
+04. Play(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09173A796D16D34BAC98A3079BFF8C7D71E022AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707476   (113358) от 16.03.2024
+
+VA - That's Eurobeat Non-Stop Mix (1987) LP [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lana Pellay - Pistol In My Pocket (Extended) (4:35)
+02. Michael Prince - Dance Your Love Away (Disco Vocal Mix) (3:18)
+03. Aleph - Fly To Me (Remix Version) (4:49)
+04. Angie Gold - Eat You Up (Remix Version) (3:01)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, EurobeatПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7FE79118F49160AE8C37F26E316BCE3A65D131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707594   (113305) от 17.03.2024
+
+Cherry Laine - The Singles Collection - B’ Sides (2023) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Love Me In A Special Way
+02. Island Guy
+03.  Come On And Sing
+04. You Are The Song(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145E39D9DEDFA6D7D17BC4C2EB9F39BFB5ACA6ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707755   (113292) от 17.03.2024
+
+Сергей Бобунец, DJ Nejtrino, Chester Young - Розовые очки (2024) Single [MP3|320 Kbps] <Dance, Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113292.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Розовые Очки (Radio Mix)
+2. Розовые Очки (Extended Mix)
+3. Розовые Очки (Instrumental Mix)Жанр: Dance, PopПродолжительность: 00:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E9E97576EF1DD7D0FFC06748571432EC934F448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707919   (113163) от 19.03.2024
+
+Omar Khorshid - Belly Dance Volumes 1 & 2 (1992) 2CD [FLAC|Lossless|WEB-DL|tracks] <World>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Story (3:29)
+02. Hernandos Hide Away (3:30)
+03. Guitar Tango (5:57)
+04. Pop Concerto (4:06)(   Читать дальше...   )Жанр: Pop, folk, worldПродолжительность: 01:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB225BD55E805D68F7ACE4C510E669CBDD3DADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708446   (113099) от 20.03.2024
+
+Fantastique - Fantastique (1982) Reissue, Remastered, 2024, Maschina [FLAC|Lossless|image + .cue] <Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Told Me (5:40)
+02. Your Hand In My Hand (Gloria In Excelsis Deo) (4:05)
+03. Moi Et Toi (6:09)
+04. I'm In Love (5:33)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19763A1566F8286AD848D63CD0ABD35C1C45C031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708847   (112982) от 22.03.2024
+
+Shakira - Las Mujeres Ya No Lloran (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Puntería (3:02)
+02. La Fuerte (2:45)
+03. Tiempo Sin Verte (3:16)
+04. Cohete (2:53)(   Читать дальше...   )Жанр: Pop, Latin PopПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA067DA72B2339C92814A390D80B016653162BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709092   (112897) от 23.03.2024
+
+VA - Gym Cardio Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta - I’m Good (Blue) (2:55)
+02. Ava Max - Kings & Queens (2:42)
+03. Dua Lipa - Levitating (feat. DaBaby) (3:23)
+04. Campbell - Would You (Go to Bed with Me) (2:00)(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FEF653CB3E146C2BF58526EB2445E6D702F747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708907   (112891) от 23.03.2024
+
+VA - Bravo Hits 14 (1996) CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. President - I Give You My Heart                                [03:37]
+   02. Masterboy - Mister Feeling                                         [03:53]
+   03. Garcia - Vamonos (Hey Chico Are You Ready)                         [03:55]
+   04. B.B.E. - Seven Days and One Week                                   [04:33](   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6516C299B5C0B58A15F6F7FFC72C8ED645F6D159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709093   (112890) от 23.03.2024
 
 Mike Mareen - The Maxi-Singles Collection Part 2 (2023) Compilation, Remastered [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
@@ -368,382 +744,6 @@ DEAD BLONDE - ПЕРЕСТРОЙКА (2024) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD3ED82FF353878AE4BAE82D26FC8B6DABC13D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713159   (111979) от 05.04.2024
-
-DEAD BLONDE - ПЕРЕСТРОЙКА (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111979.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мелодия из к/ф «Перестройка»
-2. Пионерка
-3. Под красною звездой
-4. Снег растаял на плечах(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE0AC293EEF64C4A6E2F9DA1D2C56C8D899C3A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713138   (111915) от 05.04.2024
-
-Apollo 100 (Featuring Tom Parker) - Joy (1972) LP [MP3|320 Kbps] <Pop, Neo-Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy (Jesu, Joy Of Man's Desiring) (2:49)
-02. Mad Mountain King (Hall Of The Mountain King) (2:15)
-03. Mendelssohn's 4th (Second Movement) (2:38)
-04. Libido (2:41)(   Читать дальше...   )Жанр: Pop, Neo-ClassicalПродолжительность: 00:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B59BD49279C807F4362EEECBADCFFFFF9F4999D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713668   (111889) от 06.04.2024
-
-Missy Higgins - The Sound of White (2004) 20 Year Anniversary Edition, 2024, Eleven A Music Company Pty Ltd[FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All for Believing [00:03:29]
-02. Don't Ever [00:02:54]
-03. Scar [00:03:36]
-04. Ten Days [00:03:48](   Читать дальше...   )Жанр: PopПродолжительность: 01:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8706B42BCD4ED96CEC574EE9B5DF6AE69007DD6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713751   (111814) от 07.04.2024
-
-koshi - Экспериментальная генетика высшей нервной деятельности (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тлеющий закат [00:03:37]
-02. Умирают небеса [00:03:16]
-03. Нет или да [00:03:39]
-04. Уголь [00:03:22](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C383A030741411EABBD391070B470CAD891D5E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714120   (111746) от 09.04.2024
-
-MaWhoo - The Sound Of Magic (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Emaweni (feat. X-wise) [00:03:15]
-02. Ukwamukela [00:07:30]
-03. Isiphiwo [00:07:43]
-04. Qinisela (feat. Tycoon) [00:06:31](   Читать дальше...   )Жанр: DanceПродолжительность: 00:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8230CB9F51C45D9D838443F0F67BC30E1146E0A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714922   (111678) от 10.04.2024
-
-Trax - Watch Out! + Dancing In The Street (1977-1978) Compilation, Reissue, Remastered, 2015, Polydor [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый альбом "Watch Out!" был записан в марте 1977 года и выпущен два месяца спустя. Несмотря на то, что альбому не удалось попасть в чарты продаж, он стал большим диско-хитом в США, где провел 13 недель в диско-чартах Billboard, достигнув 12-й строчки в октябре того же года благодаря своей пробивной, необузданной энергетике. В 1978 году Белотт & Форси (   Читать дальше...   )Watch Out! (1977):
-01. Watch Out For The Boogie Man!
-02. Breathless
-03. Any Way You Want It(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14AA850A15B0716B52576D1D807783162DDC326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715772   (111494) от 13.04.2024
-
-E-Bomber - Your Tee Is Hot (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Dance-Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E-Bomber – Your Tee Is Hot (radio mix) (3:51)
-02. E-Bomber – Your Tee Is Hot (Party XL remix) (4:07)
-03. E-Bomber – Your Tee Is Hot (Piano Xs remix) (3:36)Жанр: Euro-Dance, Dance-PopПродолжительность: 00:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A81AB05B459A6054DED9393A8CFFCE16FBB60F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716643   (111325) от 16.04.2024
-
-Giuseppe Alicata - Take Me To Your Heart (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Disco House, Electro Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Alicata – Take Me to Your Heart (Radio Version) (3:29)
-02. Giuseppe Alicata – Take Me to Your Heart (80er Radio Edit) (3:28)
-03. Giuseppe Alicata – Take Me to Your Heart (Hitmix) (5:13)
-04. Giuseppe Alicata – Take Me to Your Heart (Instrumental) (3:28)Жанр: Euro-Disco, Disco House, Electro PopПродолжительность: 00:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C4362EBA082DD82261F04CAD899A21979E561E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716549   (111300) от 17.04.2024
-
-Linda Ronstadt - Live in Los Angeles 1980 (2024) [MP3|320 Kbps] <Country Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Can't Let Go (Live) [00:03:28]
-02 - Party Girl (Live) [00:04:14]
-03 - It's So Easy (Live) [00:03:01]
-04 - Willin' (Live) [00:04:04](   Читать дальше...   )Жанр: Country Rock, Soft RockПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC7BF1BCADD6422BB58090B74892CC94BA74551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717563   (111160) от 20.04.2024
-
-Breeze - It's Only A Matter Of Time (1977) LP [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Only A Matter Of Time (3:12)
-02. A Letter (2:49)
-03. Where Is The Love (5:15)
-04. Cry Out (3:08)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7CC00D2F034CC81413FDCB134C23A87EF2577F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718736   (110883) от 26.04.2024
-
-Полина Гагарина - Шоу "НАВСЕГДА" (Live at ДС "Мегаспорт", Москва 2023) (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110883.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Навсегда (Live at Мегаспорт, Москва, 2023)
-2. Вчера (Live at Мегаспорт, Москва, 2023)
-3. Смотри (Live at Мегаспорт, Москва, 2023)
-4. Тени (Live at Мегаспорт, Москва, 2023)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D358F84E0CE253352BA8CE3EF4C7050BFEFB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718482   (110846) от 26.04.2024
-
-Emel - Mra (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Massive Will
-02 – Nar (feat. Ami Yerewolo)
-03 – L’amour (feat. Justina)
-04 – Lose My Mind (feat. Nayomi)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF0709EA58802DB40852C10F64BBA20D9235AB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718092   (110838) от 26.04.2024
-
-Kasper Bjorke - Puzzles (2024) [FLAC|Lossless|WEB-DL|tracks] <new disco, Alternative>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corridor Of Dreams [00:04:07]
-02. Ugle (Drømmen Om Møn) [00:03:08]
-03. So Much [00:02:56]
-04. I Was There [00:04:12](   Читать дальше...   )Жанр: new disco, AlternativeПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE26195A67CA7D3CFA0A079D82812990B116064
 ```
 
 https://mybot314.ru/tekegram_catalog/

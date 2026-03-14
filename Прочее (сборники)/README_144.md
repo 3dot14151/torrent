@@ -1,3 +1,38 @@
+###  Публикация: 497593   (253785) от 17.05.2012
+
+VA - Лирика. Зарубежные Медляки - 1 (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arash feat. Helena - Broken Angel
+02. DHT - Listen To Your Heart
+03. David Usher - Black Black Heart
+04. Groove Сoverage - God is a girl
+05. O-Zone - Oriunde Ai Fi
+06. Toni Braxton - Un Break My Heart
+07. Richard Marx - Right Here Waiting
+08. Sarah Connor - Just One Last Dance
+09. Limp Bizkit - Behind Blue Eyes
+10. DG - Dragosta(   Читать дальше...   )2012Жанр: PopПродолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D197CF69D7C316E55C4E255D8C2F738923B052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497471   (253696) от 17.05.2012
 
 VA - The Best Sixties Album In The World...Ever! Vol. I - IV (1995-1998) [MP3|320 кб/с]<Pop, Rock, Blues>
@@ -830,41 +865,6 @@ Juno Skye - Favorites Collection (2025) [MP3|320 Kbps] <Vocal,  Easy listening, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67D5C7F09BED31587AF0717033AEF4BEB81E7C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496021   (251640) от 13.05.2012
-
-VA - Hits Of The Moment (10.05.2012) (2CD)[MP3|320 кб/с]<House, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251640.jpg" />
-</div>
-
-
-###  Подробнее
-
-10.05.2012Жанр: House, Club, DanceПродолжительность: 01:16:56
-01.SoulKey Feat. Yaniv Gezz - My Heart Shouting
-02.Chino Y Nacho Ft. Jay Sean - Bebe Bonita (Techno Remix)
-03.Bingo Players Feat. Heather Bright - Dont Blame The Party
-04.Papajam - Do What I Wanna Do
-05.Mohombi - Say Jambo
-06.Ocean's Four Feat. Adam Clay - Beautiful Life 2012 (Marchesini & Farina Rework)
-07.Dirty Kidz Feat.Shalya Don Seydina - Ole Ola
-08.Bogdan Ioan - With You (Summer Edit)
-09.Antonie De Mornak - Live 1.0(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D03CD44A47F033725D5D3B8F818DA86BD1676A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

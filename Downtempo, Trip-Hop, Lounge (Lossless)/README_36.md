@@ -1,3 +1,61 @@
+###  Публикация: 1765148   (34497) от 11.12.2024
+
+VA - The Winter Chillout Collection: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digby Jones - Dinner (2:07)
+02. Michael E - Andiamo (Original Mix) (4:42)
+03. Gary B - Rainy Day in the City (1:51)
+04. Ljay - Let Me Chill (3:58)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1DF5A3AF66022D8205366B2262AA30C8B477C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765715   (34192) от 14.12.2024
+
+VA - Love Lounge, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bes & Meret, Roberto Sol, Karmaloft - Trip to Agadir (04:03)
+ 02 - Living Room - A Wonderful Day (03:06)
+ 03 - Weber & Weber - Stepping Out (04:55)
+ 04 - Belma - Lost (Original Version) (05:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886B6FFBEFE267B4E29C6318530C9927F46B5AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767499   (33414) от 22.12.2024
 
 V.A. - Christmas Lounge – The Essential (Playlist 2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
@@ -687,64 +745,6 @@ VA - Chill Out Tempel (Ambient Chill Out Tunes), Vol. 2 (2025) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54E8B2C2718BB9366AE6A798CD672C027F8AECDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794749   (19558) от 02.05.2025
-
-VA - Made2Chill 1 (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lametta / The Keys    [0:04:24.48]
-02. Mister Prez / Rondo Paradise    [0:03:54.35]
-03. Peto  / Falling Upwards    [0:04:22.18]
-04. The Thents / Transfer Time    [0:04:11.40](   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A7710914664ABB79440872630D67C8D651C2C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795873   (19019) от 07.05.2025
-
-VA - Downtempo Reflection: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digby Jones - I Dream of Ice Cream (0:54)
-02. Living Room - The Blunt Session (2:35)
-03. Lounge Groove Avenue - Dreamwaves (3:13)
-04. Gian Delly - Dusty Chill (4:23)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718BD94784F5C26BC31F2050B86161A4732A32F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

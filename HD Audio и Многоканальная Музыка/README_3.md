@@ -1,3 +1,118 @@
+###  Публикация: 1610271   (1042343) от 07.02.2023
+
+Work Of Art - Studio Albums (4 releases) (2008 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Work Of Art — хард-рок-группа из Стокгольма, Швеция, основанная в 1992 году.2008 - Artwork
+2011 - In Progress
+2014 - Framework
+2019 - ExhibitsЖанр: Hard Rock, AORПродолжительность: 03:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FDDE8E1ABAE802FB00B59FD15911CDBD4C9597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610733   (1041888) от 09.02.2023
+
+Talisman - Studio Albums (10 releases) (1990 - 2015) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Talisman — шведская рок-группа, основанная в 1989 году басистом-автором песен Марселем Джейкобом и возглавляемая американским певцом Джеффом Скоттом Сото1990 - Talisman
+1993 - Genesis
+1994 - Humanimal. Part 1
+1994 - Humanimal. Part 2Жанр: Hard RockПродолжительность: 10:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C7FCCA94A92725AD1E704033B4EA645B579BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437921   (1041705) от 06.01.2021
+
+Оркестр "Современник" п/у А. Кролла - Музыка из к/ф "Мы из джаза" (1983) Сувенирное издание [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041705.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Рэгтайм
+A2 Улыбка Старой Москвы
+A3 Рэг-Дикси
+A4 Эрмитаж, Фокстрот(   Читать дальше...   )Жанр: Soundtrack, JazzПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FFFE39BCBF096BC3601C6ADB312888E6909F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438000   (1041352) от 07.01.2021
+
+Paul Mauriat - Emmanuelle & Fantastic 4 Channel (2020) 1976 1973 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Emmanuelle (1976)
+
+01. Emmanuelle (Soloist, GuitarЖанр: Easy ListeningПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26D469545BC210F9F1A51E40372F367AEDA6796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611393   (1041300) от 11.02.2023
 
 Sarah Brightman - La Luna (2000) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Electronic, Rock, Pop, Classical>
@@ -626,122 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29C2D944B9DAA233782085AFCF9DB5A7BC4EEE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208528   (1034040) от 11.03.2023
-
-VA - Italian Pop Music (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claudio Baglioni - Un Giorno nuovo
-02. Lucio Battisti - E Penso A Te
-03. Edoardo Bennato - L'isola Che Non C'e
-04. Lucio Battisti - Ancora Tu(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E36B68997E1A4D1E01BD7C2942A9A48E1A0B23E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618699   (1033680) от 13.03.2023
-
-Wisdom - Studio Albums (5 releases) (2004-2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wisdom — венгерская пауэр-метал-группа из Будапешта.2004 - Wisdom (EP)
-2006 - Words Of Wisdom
-2011 - Judas
-2013 - Marching for Liberty(   Читать дальше...   )Жанр: Power MetalПродолжительность: 03:16:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6438FAD4E4516FEF1C2A0B2E0FA85EBFEECAB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446400   (1032997) от 08.02.2021
-
-VA - I Can't Complain But Sometimes I Do EP (2021) Regelbau [FLAC 2.0|44.1/24|tracks|Vinyl] <Deep House, Downtempo>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SPCE - Lightness (06:02)
- 02. Maizena - The Future (05:55)
- 03. Mandee & Central - If I Feel Like It (06:28)
- 04. Hi Mount - U N Me (04:47)Жанр: Deep House, DowntempoПродолжительность: 00:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59D09A006049E5D5774A47C49853CC0D07A7951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619367   (1032970) от 16.03.2023
-
-MaYaN - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032970.jpg" />
-</div>
-
-
-###  Подробнее
-
-MaYaN — нидерландская симфоник-дэт-метал-группа, образованная в 2011 году лидером группы "Epica" вокалистом Марком Янсеном, клавишником Яком Дриссеном и гитаристом Франком Схипхорстом. Название группы было выбрано Марком из-за его заинтересованности в культуре майя..
-2011 - Quarterpast
-2014 - Antagonise
-2018 - DhyanaЖанр: Symphonic Death MetalПродолжительность: 03:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118C5DB1E4923A9775AE82F07134C253BDD4BADA
 ```
 
 https://mybot314.ru/tekegram_catalog/

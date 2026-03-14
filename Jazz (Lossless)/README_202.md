@@ -1,3 +1,90 @@
+###  Публикация: 1415940   (372006) от 14.10.2020
+
+Poncho Sanchez - Soul Sauce: Memories Of Cal Tjader (1995) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Sauce (Guachi Guara) [4:30]
+02. Tropicville [4:03]
+03. I Showed Them [8:27]
+04. Somewhere in the Night [3:37](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF83FF5E54F284568C075638C382F675854A7A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069817   (371534) от 05.11.2016
+
+Simone Kopmajer, Paul Urbanek, Reinhardt Winkler - Soulmates (2016) Lucky Mojo Records[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.All Along the Watchtower [05:35]
+ 02.Brazil [03:20]
+ 03.The in Crowd [03:57]
+ 04.All You Need Is Love [03:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0ED91FD7AEB55E7496F7D54268CFFE9C54CD89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576011   (370945) от 12.09.2022
+
+Nicholas Payton - Smoke Sessions (2021) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hangin' In and Jivin' [7:43]
+02. Big George [7:03]
+03. Levin's Lope [6:48]
+04. No Lonely Nights [6:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A3B6B7BF55D59FF4BDA005E960EC6FEAABA568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949957   (370508) от 26.10.2015
 
 Omer Avital Quintet - Live at Smalls (2010) [FLAC|tracks+.cue]<Post-Bop>
@@ -658,93 +745,6 @@ CD1 - In the Mood for Swing:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21A7C1DC428F489F3A9EC6D1522226D9740FDA0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070315   (369379) от 06.11.2016
-
-Arne Jansen - The Sleep of Reason Ode to Goya (2013) [FLAC|Lossless|tracks + .cue] <ACT, Jazz-Rock, Contemporary Jazz, Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Learning (Arne Jansen) 06:05
-02. Rise & Fall (Arne Jansen) 05:06
-03. Love Is Blindness (Adam Clayton, David Evans, Paul Hewson, Laurence Mullen) 05:56
-04. Golden (Jeff Beal) 02:10(   Читать дальше...   )Жанр: ACT, Jazz-Rock, Contemporary Jazz, Fusion, Guitar JazzПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91735522176EC9F3D3E7433B88ABCE27BE1D86E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070250   (369375) от 06.11.2016
-
-Greg Adams - East Bay Soul: That's Life (2015) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Black Dress (4:11)
-02. Hush Hush (5:19)
-03. Come Together (3:58)
-04. Get Smart (4:13)(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-FunkПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60FA4429BD513E42DE3652593D748CAC30727EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070386   (369374) от 06.11.2016
-
-Buster Smith - The Legendary Buster Smith (1959) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Buster's Tune [03:38]
- 02.E Flat Boogie [06:55]
- 03.September Song [03:53]
- 04.King Alcohol [04:34](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344666AF0C65C5708178A6CD7AC95BF7E956DF01
 ```
 
 https://mybot314.ru/tekegram_catalog/

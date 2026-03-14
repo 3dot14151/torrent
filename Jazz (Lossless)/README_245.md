@@ -1,3 +1,90 @@
+###  Публикация: 1105826   (242317) от 18.02.2017
+
+Ray Charles - Live At The Montreux Jazz Festival (2002) Geneon [FLAC|Lossless|tracks + .cue] <Soul Jazz, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ray Charles Opener [01:04]
+ 02.I'll Be Home [03:25]
+ 03.Busted [02:25]
+ 04.Georgia On My Mind [05:50](   Читать дальше...   )Жанр: Soul Jazz, R&BПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BEB012A420843FEDABD65B6F73313EB586500D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372412   (242208) от 03.04.2020
+
+The Oscar Peterson Trio - The Oscar Peterson Trio Plays 1964 (2004) Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Strut [4:11]
+02. Let's Fall In Love [5:46]
+03. Satin Doll [5:27]
+04. Little Right Foot [5:00](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E4942765A042E942E40BF996B1E72B8C1B32D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106328   (242199) от 19.02.2017
+
+Joe Williams - A Man Ain't Supposed To Cry (1958) 1998, Roulette [APE|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.What's New [02:49]
+ 02.It's The Talk Of The Town [03:16]
+ 03.I'll Never Smile Again [03:04]
+ 04.I'm Through With Love [02:57](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BAC6A7EF5836245C01CC403217788EDABD9714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106320   (242184) от 19.02.2017
 
 Julio Barreto Cuban Quartet - Iyabo (2002) Pimienta Records [FLAC|Lossless|tracks + .cue] <Ethnic Jazz, Latin Jazz>
@@ -658,93 +745,6 @@ Eddie "Lockjaw" Davis & Shirley Scott - Cookbook, Vol.3 (1958) 1992, Original Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA89F9D37D9EBB64E3C89C29007CA8B8B2118393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111301   (241728) от 05.03.2017
-
-Eddie "Lockjaw" Davis & Shirley Scott - Jaws (1958) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Let a Song Go Out of My Heart [05:20]
- 02.I'll Never Be the Same [04:45]
- 03.You Stepped Out of a Dream [04:21]
- 04.Old Devil Moon [04:27](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72E12CFC76034C9CA606A485AC6EF679ED21391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628966   (241722) от 25.04.2023
-
-Thad Jones - The Magnificent Thad Jones (1956) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. April in Paris [6:42]
-02. Billie-Doo [7:30]
-03. If I Love Again [7:27]
-04. If Someone Had Told Me [5:51](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD24678E09A7CD9EAD809DCD1B1EB12C5784C29D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111304   (241718) от 05.03.2017
-
-Dave Douglas - Meaning And Mystery (2006) Greenleaf Music [FLAC|Lossless|tracks + .cue] <Post-Bop,  Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Painter's Way [05:30]
- 02.Culture Wars [12:47]
- 03.The Sheik of Things to Come [07:46]
- 04.Blues to Steve Lacy [05:55](   Читать дальше...   )Жанр: Post-Bop,  Contemporary JazzПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4431286A13880A72F41B3B728BAA3EFFBA6783
 ```
 
 https://mybot314.ru/tekegram_catalog/

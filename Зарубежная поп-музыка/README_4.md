@@ -1,3 +1,32 @@
+###  Публикация: 1453209   (1027101) от 10.03.2021
+
+VA - soulmates (2021) Explicit [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niall Horan - Black And White (3:13)
+02. Julia Michaels - If You Need Me (3:36)
+03. BØRNS - Past Lives (4:34)
+04. Tove Lo - Habits (Stay High) (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB62E7FFFED87582F46E3BC52FC546285B347E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454186   (1026350) от 14.03.2021
 
 Гурт Made in Ukraine - Нові хіти (2021) [MP3|320 Kbps] <Pop>
@@ -714,35 +743,6 @@ VA - Megahits Sommer 2021 (2021) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9B9E18D864A03B6960C32CC7139A65930935FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473952   (1013382) от 31.05.2021
-
-VA - Billboard - Hot Dance & Electronic Songs (08-May-2021) [MP3|320 Kbps] <Pop, Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travis Scott, HVME - Goosebumps (Remix)
-02. Tiesto - The Business
-03. SAINt JHN - Roses (Imanbek Remix)
-04. Regard, Troye Sivan, Tate McRae - You(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 02:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31F1C3F21C401B067085E96D43F5BC297F0D2B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

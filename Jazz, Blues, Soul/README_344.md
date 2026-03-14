@@ -1,3 +1,177 @@
+###  Публикация: 957755   (326658) от 18.11.2015
+
+VA - Electro Swing Elite Compilation (2015) [MP3|320 кб/с]<Electronic, Broken Beat, Nu Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Louie Prima & Wolfgang Lohr - Digga Dooh (05:47)
+02. The Swing Bot - Belle Demoiselle (06:22)
+03. Nikola Vujicic - SuperSwing (05:48)
+04. Phos Toni - Love Me or Leave Me (06:50)(   Читать дальше...   )Производство: Ton Liebt KlangЖанр: Electronic, Broken Beat, Nu Jazz, Electro SwingПродолжительность: 02:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC320463DDCFD981E80F032B03883835630F115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957513   (326536) от 18.11.2015
+
+Klischee - Touche (2014) [MP3|320 кб/с]<Nu Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entrée
+02. Tiquette
+03. Rendez-vous
+04. Plastique(   Читать дальше...   )Жанр: Nu Jazz, Electro SwingПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11BCDF24C107901CF7799896C4E1D86B16AF3362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581604   (326359) от 06.10.2022
+
+Snowy White - Driving On The 44 (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freshwater (07:14)
+02. Longtime Blues (05:02)
+03. Way Down In The Dark (07:34)
+04. Driving On The 44 (05:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91905B9C30881F830DA56DBF309F36300AD8B03E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958041   (325870) от 19.11.2015
+
+Aubryn - Nothin' Civil (2015) EP [OGG|494-516 кб/с]<Blues, Folk, Americana, Cabaret>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothin' Civil
+02. Cure My Disaster
+03. Number One Fan
+04. In the Field(   Читать дальше...   )Жанр: Blues, Folk, Americana, CabaretПродолжительность: 00:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADC890BBD55EFBD4A596952BC06C9280C4DC773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958009   (325845) от 19.11.2015
+
+Mike Zito & The Wheel - Keep Coming Back (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Coming Back (03:38)
+02. Chin Up (03:58)
+03. Get Busy Living (03:51)
+04. Early In The Morning (03:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40130C9B1342BD11C2B4B77BD69BA686E646428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957985   (325844) от 19.11.2015
+
+Marlena Shaw - Anthology (2000) Soulb[FLAC|image+.cue]<Vocal Jazz, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Woman Of The Ghetto [06:05]
+ 02.California Soul [03:01]
+ 03.Mercy Mercy Mercy [03:01]
+ 04.Wade In The Water [03:36](   Читать дальше...   )Жанр: Vocal Jazz, Soul JazzПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47844F7D524F0DEBCFE392863165E59F4C9DE619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 413348   (325825) от 26.11.2011
 
 John Campbell - 5 альбомов (1988 - 1999) [APE|FLAC|Lossless]<Blues>
@@ -566,180 +740,6 @@ Paul Shapiro - It's in the Twilight (2006) [FLAC|Lossless|image + .cue] <Klezmer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2FFB2455D1A2F149236DB2B19F5A235E74FD5DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074949   (323707) от 21.11.2016
-
-Philip Sayce - Innerevolution (2010) [FLAC|Lossless|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Changes  (05:13) 
-02|  Scars  (03:07) 
-03|  Bitter Monday  (04:35) 
-04|  Anymore  (03:49) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEEC21053810016D553C3096E71325DB97178025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181621   (323639) от 07.11.2017
-
-VA - Tender Jazz with Sexappeal (2014) [MP3|320 Kbps] <Vocal Jazz, Lounge, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabln, Mia Cooper – If You Want Me (02:52)
-02. Club des Belugas – Sweet Lovln’ (03:40)
-03. Tower Of Power – Me & Mrs. Jones (05:37)
-04. Karen Souza – My Foolish Heart (03:59)(   Читать дальше...   )Жанр: Vocal Jazz, Lounge, Smooth JazzПродолжительность: 01:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B7372B7891FA2B527C4FE52EC815954D7879F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074630   (323599) от 21.11.2016
-
-Paul Taylor - Prime Time (2011) [APE|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Push To Start (3:50)
-02. Moment Of Truth (4:32)
-03. Don't Wanna Let You Go (4:23)
-04. Cant Nobody (3:53)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E97CBD1148B57831E8658189E4A29618BAB36B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582350   (323590) от 09.10.2022
-
-Sonny Stitt - 12! (1972) 1999, 32 Jazz [WavPack|Lossless|image + .cue] <Hard Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 12! [5:03]
-02. I Got It Bad [4:18]
-03. I Never Knew [6:43]
-04. Our Delight [5:31](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D0321A87A05E7E1BC3EC456B6C21DD6F65A6FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259188   (323405) от 02.11.2018
-
-Patti Austin - For Ella (2002) Playboy Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Close for Comfort [3:59]
-02. Honeysuckle Rose [4:14]
-03. You'll Have to Swing It (Mr. Paganini) [4:23]
-04. Our Love Is Here to Stay [5:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADA9263BC773079169F551133C9B30F395D62F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331583   (322947) от 16.10.2019
-
-Elmo Hope - Five Classic Albums 1953 - 1961  (2017) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322947.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Mo Is On [2:51]
-02. Sweet And Lovely [2:59]
-03. Happy Hour [2:53](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070529EC510525BD9D0EB2F1D0B4EA60920B1671
 ```
 
 https://mybot314.ru/tekegram_catalog/

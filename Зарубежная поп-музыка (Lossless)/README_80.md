@@ -1,3 +1,148 @@
+###  Публикация: 1672785   (168066) от 29.10.2023
+
+Bucks Fizz - The Land of Make Believe: B Sides and Rarities (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Europop, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Can't Stand the Heat (Early Mix) [00:03:25]
+02. You Love, Love [00:03:37]
+03. Evil Man [00:03:52]
+04. Censored [00:04:58](   Читать дальше...   )Жанр: Disco, Europop, Pop Rock, Synth-popПродолжительность: 02:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E159393C6C7E78E9B61C347072A8607F3BF00F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516034   (167851) от 09.12.2021
+
+Malcolm McLaren And The Bootzilla Orchestra - Waltz Darling (1989) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167851.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. House Of The Blue Danube
+2. Something's Jumpin' In Your Shirt
+3. Waltz Darling
+4. Shall We Dance(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2226985829D1E3BFD47AB5B6368FD4A6E2951CF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431332   (167708) от 13.12.2020
+
+Taylor Swift - evermore (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. willow
+02. champagne problems
+03. gold rush
+04. ‘tis the damn season(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B97C8E67C7092785F0698E4ECB70D2782205D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516109   (167585) от 09.12.2021
+
+VA - Best Hits of 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John - Cold Heart (PNAU Remix) (3:22)
+02. Olivia Rodrigo - good 4 u (2:58)
+03. OneRepublic - Run (2:49)
+04. Justin Bieber - Peaches (3:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5586F49D3942E46AC48D890680D55409BE275DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516442   (166012) от 11.12.2021
+
+Mylene Farmer - Monkey Me (2012) 2xCD, Reissue, 2021, Stuffed Monkey [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166012.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Elle a Dit
+02. A L'Ombre
+03. Monkey Me(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31C80EF385C25C78CCB7F202056527960609939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597558   (165884) от 15.12.2022
 
 Jennifer Lopez - This Is Me...Then (2022) 20th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, R&B>
@@ -606,151 +751,6 @@ Pentatonix (PTX) - американская a cappella группа из Arlingt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FDF76E1EE55F2EB62B8A6B422BB510A76199C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676023   (159284) от 11.11.2023
-
-Natasha St-Pier - Christmas Album (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <French Pop, Jazz, Christmas>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Happy Day
-02. Rockin’ Around The Christmas Tree
-03. Feliz Navidad
-04. Hallelujah(   Читать дальше...   )Жанр: French Pop, Jazz, ChristmasПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38CE09A9606E30091854E0C78DF0869EE07CC2D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966478   (158713) от 20.12.2015
-
-Janet Jackson - Janet Jackson (1982) [FLAC|Lossless|tracks + .cue] <Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say You Do (6:50)
-02. You'll Never Find (A Love Like Mine) (4:11)
-03. Young Love (4:58)
-04. Love and My Best Friend (4:48)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB98FC0F0F4292E9C2FBEB97A91BDF01A6A8334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966500   (158706) от 20.12.2015
-
-Atomic Kitten - Right Now (2001) [FLAC|Lossless|tracks + .cue] <Europop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Now (3:37)
-02. Follow Me (3:16)
-03. Whole Again (3:05)
-04. Eternal Flame (3:15)(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17DE2CD5A4341B059C79C145F21BF447174396A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966983   (158626) от 20.12.2015
-
-Taylor Swift - Fearless (2008) Reissue, Platinum Edition, 2010, BIG Machine Records [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump Then Fall (03:59)
-02. Untouchable (05:12)
-03. Forever & Always (Piano Version) (04:29)
-04. Come In With The Rain (03:59)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC2D789CAE736012B4F34DC16053374116675CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967885   (157146) от 23.12.2015
-
-Marc Almond - In Session Volume One (2003) [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Go Away (6:27)
-02. Terrapin (4:20)
-03. Empty Eyes (version 1) (5:06)
-04.Жанр: Synth-popПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33FF709E6D2E8FEA68A1777B08B19AA20216FB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

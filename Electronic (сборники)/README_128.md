@@ -1,3 +1,32 @@
+###  Публикация: 1314611   (517225) от 16.07.2019
+
+VA - Feel The Love: Club House Electromix (2019) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517225.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roma Greer - Final Shot (Original Mix)
+002. Zulu Natives - Baghdad
+003. Junk That - Money (Original Mix)
+004. Dj Junior - Hold You (Extended Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 11:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D174BC78BB6647CA47A7A0AA309990DC75A0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314418   (517220) от 16.07.2019
 
 VA - Record Super Chart 595 (2019) [MP3|320 Kbps] <House, Club, Dance>
@@ -717,35 +746,6 @@ VA - Lounge and Chill Out The Best Of (2015) [MP3|320 кб/с]<Downtempo, Chillo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E56174098AA0D67398AA7B844C3AF559250705EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930940   (512931) от 25.08.2015
-
-VA - Tantric Sex and Lovemaking Music Background Music for a Night of Tenderness Love and Passion (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Love - Tantric Sex
-02. Romantic Dinner - Emotional Songs
-03. Tantra Chill - Sensual Relaxation
-04. Erotic Massage - Erotic Music Lounge(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DC968392E5DBE43BF25CBD6167F3E86CB6EF7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

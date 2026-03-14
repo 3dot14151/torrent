@@ -1,3 +1,32 @@
+###  Публикация: 1304711   (561268) от 27.05.2019
+
+VA - Over Records Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561268.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stan Kolev - Forethought
+002. Die Haustiere - L'isla Delle Conchiglie (Original Mix)
+003. Gar Feat. Lorraine Gray - Havana (Original Mix)
+004. Matt Dwellers - Ankaraz (Stoertebeker Remix)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 13:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD049CF52BF7657487E3AE605208546ED4A0488F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304673   (561168) от 27.05.2019
 
 VA - Top 100 Club Tracks Vol.1 (2019) [MP3|320 Kbps] <House, Club, Dance>
@@ -737,35 +766,6 @@ VA - Топ 100 Клубные Ремиксы Июль (2017) [MP3|320 Kbps] <Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A172460EF56D4B6B397098FC1C416EBE0A6B7CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924717   (557671) от 04.08.2015
-
-VA - Sunset Beats - Ibiza Edition (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Sunset Beats - Ibiza Edition 2015 Mix, Pt. 1 [77:47]
-02. DJ Mix - Sunset Beats - Ibiza Edition 2015 Mix, Pt. 2 [76:28]
-03. Ella Fitzgerald - Wait Till You See Him (De Phazz Remix) [03:52]
-04. Casanovy - I Need Your Lovin' (Sin Plomo's Superlounger Mix) [05:42](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889F3754D44011C41BDE1E6AA54F72C814BBA1FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

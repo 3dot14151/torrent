@@ -1,3 +1,32 @@
+###  Публикация: 1020878   (743810) от 27.05.2016
+
+VA - Party Hits Summer Editions (3 CD) (2016) [MP3|241-320 кб/с] <Disco, Club, Bigroom, Nu-Funk, Grime, Big Beat>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743810.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 House:
+01. Air-Lines - New Game (Original Mix) 07:46
+02. Arno Cost & Norman Doray - Apocalypse 2014 (Kryder & Tom Staar Remix) 05:42
+03. Audien & Matthew Koma - Serotonin (Original Mix) 05:08(   Читать дальше...   )Жанр: Disco, Club, Bigroom, Nu-Funk, Grime, Big BeatПродолжительность: 12:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6452D34D41B18EBD8B27CBF7804F17552F64CBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020912   (743797) от 27.05.2016
 
 VA - 70s Disco Classics Reloaded (2016) [MP3|320 кб/с] <Pop, Dance, Club>
@@ -717,35 +746,6 @@ VA - Music News vol.161 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F214E84346051B8B33EAF7FA085810C32335BBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397979   (736956) от 23.07.2020
-
-VA - Дискотека 2020 Dance Club Vol.202 от NNNB (2020) [MP3|320 Kbps] <Dance, House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka)
-01. Techno Project, Geny Tur - Love to See (4:00)
-02. Edward Maya & Violet Light - The Show Must Go On (3:43)
-03. DJ Goja - I Never Let You Go (3:01)(   Читать дальше...   )Жанр: Dance, House, Trance, Pop, ChillПродолжительность: 16:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D85EF43DA40C42042C145C4697F98C529FB228C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

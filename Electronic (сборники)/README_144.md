@@ -1,3 +1,38 @@
+###  Публикация: 553268   (438827) от 30.09.2012
+
+VA - Simply Dubstep September 2012 (2012) [MP3|320 кб/с]<Dubstep, Bass, Grime, Electronic, Glitch Hop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438827.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Al3Xtaylor - She Wants Candy (3:22)
+2. Alex Mind And James Edgbert - Ghost Machine (Original Mix) (4:45)
+3. Ali.I.A.N - Fluctuate (Original Mix) (3:36)
+4. Assault Terror & Meatmans Project - Alone In The Dark (Original Mix) (5:32)
+5. Assault Terror & Meatmans Project - Electric Scream (Original Mix) (4:48)
+6. Aylius - Voicemail (Original Mix) (5:06)
+7. Aylius Feat Katie Joy - Lucid (Original Mix) (4:15)
+8. Aylius Feat Mass - Perfecting Technique (Original (4:17)
+9. Captain Panic! - Death March (Rekoil Remix) (3:38)
+10. Dirt Monkey Fet Anna Yvette - Hurt So Good (Metaphase Remix) (4:02)(   Читать дальше...   )Жанр: Dubstep, Bass, Grime, Electronic, Glitch HopПродолжительность: 08:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD010A5D9272C80BF761F30D74E41A47E75CA67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552868   (438757) от 30.09.2012
 
 Va - Deep+   Vol. 2 (2012) [MP3|320 кб/с]<Deep House,Tech House,Vocal House>
@@ -734,35 +769,6 @@ VA - Need For Speed Vol.9 (2017) [MP3|320 Kbps] <Hands Up, JumpStyle, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E14ADB53A2E8CD914BCAA54C1C6967D4F66FEA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063577   (432249) от 17.10.2016
-
-VA - Beatport Top 100 House September (2016) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432249.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Leandro Da Silva - I Love House Music (Club Mix)
-002. Martin Waslewski - Clouds (Purple Disco Machine Remix)
-003. Nora En Pure - Convincing (Original Club Mix)
-004. Sam Divine, Curtis Gabriel, Nat Conway - Confessions (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 10:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D5E618262231E4946FA890F7830FF99B4B73D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1406363   (472938) от 04.09.2020
+
+Simon Collins - Becoming Human (2020) [MP3|320 Kbps] <Progressive Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Fray (01:18)
+ 02. Becoming Human (04:17)
+ 03. The Universe Inside of Me (06:56)
+ 04. Man Made Man (04:32)(   Читать дальше...   )Жанр: Progressive Rock, Melodic RockПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91EFE5B65A99742A94D8C6FF24C17D4487753BA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406604   (472937) от 04.09.2020
+
+Pianoбой - The Best Of (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472937.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Все що тебе не вбиває
+2. Полуничне небо
+3. Шампанські очі
+4. Кохання(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3C9D7EEF8B9F8EC82DC3EAD46F448ACBD57113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940013   (471626) от 23.09.2015
 
 Rosie Valland - Partir Avant (2015) [MP3|320 кб/с]<Pop Rock, Indie-Rock>
@@ -720,64 +778,6 @@ Toehider - I LIKE IT! (2020) [MP3|320 Kbps] <Progressive Rock, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB0CFEFCECA64F7DC54FCBEB25667EB11F41CE17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942009   (458102) от 29.09.2015
-
-Artful Dodger - Artful Dodger (1975) Remastered /1997, P.E.G./ [MP3|320 кб/с]<Rock, Power Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wayside (4:22)
-02. You Know It's Alright (3:33)
-03. It's Over (4:06)
-04. Follow Me (3:45)(   Читать дальше...   )Жанр: Rock, Power PopПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5B2C92CEF42BE200DE5D2C3637AD818AFB705F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162621   (456617) от 02.09.2017
-
-Porno Wolves - Shine Like Gold (2015) [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sea Beast (04:25)
-02. World Illuminated (05:19)
-03. Tel Aviv (03:15)
-04. Rock Hard City (05:37)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DA3F51C4368D8864D8549EA7B838084A780B6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1385277   (797812) от 24.05.2020
+
+VA - Record Super Chart 637 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Capon - Shut Up Chicken 2:31
+02. Cream Soda & ХЛЕБ - Плачу на техно 2:40
+03. Topic & A7S - Breaking Me 2:47
+04. Тайпан feat. Agunda - Луна не знает пути 2:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB1DF87FE913C98CA068F483A0DE08FA7A7BCD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385358   (797760) от 24.05.2020
 
 VA - Beatport Trance: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Pearls Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BB9F230921F5DA82F609140A278B03CBBC118FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011608   (796440) от 28.04.2016
-
-VA - Club Music Junior Union (2016) [MP3|320 кб/с] <House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, Soulful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fabtrap - Your Love 03:35
-02. Bali Bandits - Mr. Meow (Extended Mix) 03:51
-03. Bobby Puma Feat. Katt Rockell - Deeper Than Love (Extended Mix) 04:29
-04. Felix Leiter - Just Can't Dance No More (Original Mix) 04:58(   Читать дальше...   )Жанр: House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, SoulfulПродолжительность: 07:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4556B1F12D2E942077C36BE3CA50E7640C16CD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

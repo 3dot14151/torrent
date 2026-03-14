@@ -1,3 +1,32 @@
+###  Публикация: 1097973   (910635) от 29.01.2017
+
+VA - 100 пудовые зимние хиты на Europa Plus. Версия 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алсу - Я Пойду Чуть-Чуть Поплачу 3:37
+002. Santey Feat. Emelie Cyreus - Naked Souls 3:29
+003. Чаян Фамали - Моделька 3:31
+004. Mona - Счастье 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79BA18218AFCE6A4ECA972296A970771ECDC9AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098069   (910266) от 29.01.2017
 
 VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск - 42) (2017) [MP3|256-320 Kbps] <Italo-Disco, Euro Disco, Disco>
@@ -713,41 +742,6 @@ VA - Radio DFM: Top D-Chart [21.03] (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0734CF4009A5D43430B883C2D9868666E35D496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636282   (904178) от 29.03.2013
-
-VA - Real Disco (2013) [MP3|320 кб/с]<Disco, Eurodisco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arabesque - Midnight Dancer
-02. Baccara - Yes Sir, I can Boogie
-03. Dschinghis Khan - Dschinghis Khan
-04. ABBA - I Do, I Do, I Do, I Do, I Do
-05. Bananarama - Venus
-06. Boney M. - Daddy Cool
-07. Taco - Puttin' On The Ritz
-08. Baccara - Ay, Ay Sailor
-09. Arabesque - Keep the Wolf from the Door
-10. Boney M. - Rasputin(   Читать дальше...   )Жанр: Disco, Eurodisco, PopПродолжительность: 04:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC941EDC7CE7C383FFB87509A523DAC40C672110
 ```
 
 https://mybot314.ru/tekegram_catalog/

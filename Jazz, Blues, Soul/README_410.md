@@ -1,3 +1,177 @@
+###  Публикация: 1512783   (228878) от 26.11.2021
+
+Steve Shanholtzer - Blues That You Choose (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_228878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodletters and Bluesmen (3:10)
+02. Make Love Stay (4:09)
+03. Blues That You Choose (3:09)
+04. Feel the Fire (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA218BE643FABF9EF87E45B23763C140EA0CEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965194   (228721) от 13.12.2015
+
+Dmitri Kolesnik - Blues For Dad (2001) Boheme Music[APE|tracks+.cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues For Dad [06:17]
+ 02.Home [09:12]
+ 03.Waltz for B. E. [07:46]
+ 04.New York Wind [11:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A365FAC86C1859FF362BA027DF907D21D6BF84D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965103   (228652) от 13.12.2015
+
+Wes Montgomery - Way Out Wes (1957-1959) 2CD, 2010, Not Now Music[FLAC|tracks+.cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228652.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Montgomeryland:
+01.Far Wes [05:58]
+02.Leila [03:34]
+03.Old Folks [06:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA074716573A0C88BB5255C96A8A5ED685779D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268333   (228257) от 10.12.2018
+
+Lea DeLaria - Play It Cool (2001) Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ballad of Sweeney Todd (from 'Sweeney Todd') [4:51]
+02. Cool (from 'West Side Story') [5:23]
+03. I've Got Your Number (from 'Little Me') [4:52]
+04. With Every Breath I Take (from 'City of Angels') [3:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3D538DCBAF377C0E5D57BB5ACDF5CE0F291271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268360   (228250) от 10.12.2018
+
+Clora Bryant - Gal With A Horn (1957) 1995, V.S.O.P. Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsy in My Soul [2:48]
+02. Makin' Whoopee [3:34]
+03. Man with a Horn [3:58]
+04. Sweet Georgia Brown [4:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E32B3AE98ED32A0F1584D3FBF4346F3FD55A671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268354   (228244) от 10.12.2018
+
+Helen Carr - The Complete Bethlehem Collection (1955) 1993, Bethlehem [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Mine [3:02]
+02. I Don't Want to Cry Anymore [5:16]
+03. Tulip or Turnip [2:25]
+04. Memory of the Rain [2:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8C31094F39DC1386C3CD3343049E09A1B1F014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268345   (228227) от 10.12.2018
 
 Shirley Horn - Live At The 4 Queens (1988) 2016, Resonance Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -583,180 +757,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B074F650AECF3685C58D70C16981458A8327FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513076   (227133) от 27.11.2021
-
-Frank Sinatra - Reprise Rarities - Vol. 5 (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boys’ Night Out
-02. Me And My Shadow (feat. Sammy Davis Jr.)
-03. We Open In Venice (feat. Dean Martin, Sammy Davis Jr.)
-04. Old Devil Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B96BC7C33BFC4532A654B9B1E71F34067285FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268535   (226656) от 11.12.2018
-
-Ryan Kisor - Battle Cry (1998) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle Cry [9:26]
-02. It Happens [9:23]
-03. Falling In Love With Love [10:01]
-04. I'm Old Fashioned [10:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAA067743C3349A2921BCAAEFE05AF653CFDDDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268543   (226649) от 11.12.2018
-
-Oscar Pettiford - Lost Tapes: Germany 1958/1959 (2013) SWR Music [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But Not for Me [3:03]
-02. Sophisticated Lady [5:39]
-03. A Smooth One [3:33]
-04. O.P. [5:25](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E00F1FAE8847837AA1111A29EFB0CC538B708AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268540   (226631) от 11.12.2018
-
-Harold Land - The Fox & Take Aim (1959, 1960) 2011, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fox [5:36]
-02. Mirror-Mind Rose [6:34]
-03. One Second, Please [5:52]
-04. Sims A-Plenty [6:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD8D8FD29CDD589BA9FE018ADC0BBBFAB4140D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268538   (226615) от 11.12.2018
-
-Harold Land - Xocia's Dance (Sue-sha) (1981) 1990, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Mood [8:20]
-02. Daisy Forever [9:21]
-03. Xocia's Dance (Sue-sha's Dance) [4:51]
-04. Ah, I See [10:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C3C0F89EFF17620440499802C19FE8F9E71DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268610   (226602) от 11.12.2018
-
-Rosemary Clooney And Duke Ellington - Blue Rose (1956) 1991, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Baby [3:53]
-02. Sophisticated Lady [3:02]
-03. Me and You [2:32]
-04. Passion Flower [4:36](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E80E24FCFEA045C499CA4D18D4A3ED1F5CD5C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

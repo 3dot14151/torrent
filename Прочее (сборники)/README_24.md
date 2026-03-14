@@ -558,6 +558,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 291983   (908454) от 06.02.2011
+
+VA - Лучшие Хиты Радио Maximum 5 (2010) [MP3|128 kbps]<Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_908454.jpg" />
+</div>
+
+
+###  Подробнее
+
+2010Жанр: RockПродолжительность: 12:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E884ED3D3D83A93744FE4BBF8178F982246F0B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098484   (908380) от 30.01.2017
 
 VA - Super Hits - Best of Songs 80’ (2017) [MP3|320 Kbps] <Pop , Disco>
@@ -725,35 +751,6 @@ VA - 80' Party (2016) [MP3|320 кб/с] <Pop, Dance, Eurodance, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:769B4BCB5238D9FBD5E36F36FD8EE3F596C8C8BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990976   (907700) от 27.02.2016
-
-VA - Хиты Забытых Дискотек Vol.2 (2016) [MP3|205-320 кб/с] <Pop, Dance, Eurodance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907700.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Suzanne - Give Me Love (05:44)
-002. Troll - Jimmy Dean (06:56)
-003. Jimmy & Susy - Come Back (06:06)
-004. Ken Martal - I Can't Leave You (06:15)(   Читать дальше...   )Жанр: Pop, Dance, Eurodance, DiscoПродолжительность: 09:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5180DEED7EAFBC0EF52DDFB42D905EEA44297BCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

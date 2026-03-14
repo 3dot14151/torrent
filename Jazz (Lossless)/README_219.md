@@ -1,3 +1,90 @@
+###  Публикация: 1260912   (307785) от 09.11.2018
+
+Elina Duni - Partir (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Balkan Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amara Terra Mia (4:18)
+02. Let Us Dive In (4:44)
+03. Meu Amor (4:28)
+04. Lamma Bada Yatathanna (4:16)(   Читать дальше...   )Жанр: Vocal Jazz, Balkan JazzПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C03F205B499FFC2CA0720FCBB7E1EB3D88442FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333049   (307710) от 23.10.2019
+
+Benny Carter - The Best of Benny Carter (1980) 1987, Pablo Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Little Words [5:47]
+02. In a Mellow Tone [8:33]
+03. Wave [6:16]
+04. Squatty Roo [13:00](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462FD013C7923F3E3F50D1A82AFCF4176ED2C355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333051   (307659) от 23.10.2019
+
+Ruby Braff - Born To Play (1999) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon [9:59]
+02. The Doodle King [9:07]
+03. Medley: Smile/La Violettera [3:56]
+04. Think [9:37](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF9C9290CD61528455228088EC52D71BB5B2AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333048   (307657) от 23.10.2019
 
 Alan Broadbent & The London Metropolitan Orchestra - Developing Story (2017) Eden River Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Third Stream, Piano Jazz>
@@ -655,93 +742,6 @@ Louis Prima - The Wildest! (1956) 2000, DCC Compact Classics [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D813C84B26F26D1DCDC9C2FD66897BD93ABEADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183828   (303604) от 16.11.2017
-
-Sam Taylor Quartet - Along The Way (2017) [FLAC|Lossless|WEB-DL|tracks] <Saxophone Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303604.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Make Someone Happy - 4:30
-2. Fats Flats - 5:08
-3. On the Trail - 6:27
-4. Where Are You - 9:23(   Читать дальше...   )Жанр: Saxophone JazzПродолжительность: 00:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E056B04A5C96669D9BB63DF68CAED221BE84D57E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333505   (303599) от 25.10.2019
-
-Lionel Hampton - Three Classic Albums Plus 1954 - 1955 (2009) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303599.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Avalon [8:24]
-02. Just You, Just Me [6:34]
-03. Blues For Benny [7:44](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 02:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE3FD02DE921097DD26CB3667B5B971FEC6703F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961059   (303518) от 30.11.2015
-
-Humphrey Lyttelton - Humph Plays Standards (1960) 2014, Solid Records[FLAC|tracks+.cue]<Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Love For Sale [04:43]
- 02.Prelude To A Kiss [03:35]
- 03.Ida, Sweet As Apple Cider [03:08]
- 04.Willow Weep For Me [04:28](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F43EBCA1A1F267A2C60E6FA94669AF3B89C126
 ```
 
 https://mybot314.ru/tekegram_catalog/

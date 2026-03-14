@@ -1,3 +1,61 @@
+###  Публикация: 1083756   (273777) от 16.12.2016
+
+The Red Button - Can't Stop Thinking About Her (2007) [MP3|320 Kbps] <Brit Pop, Beat Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cruel Girl
+02. She's About To Cross My Mind
+03. Floating By
+04. She's Going Down(   Читать дальше...   )Жанр: Brit Pop, Beat RockПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082AD1D820E682C8AA79178932BAF971C42A725D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083619   (273772) от 16.12.2016
+
+Slaughter And The Dogs - Vicious (2016) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Trust (All I Want From You)  (03:03) 
+02|  Hollywood Whores  (02:28) 
+03|  Get It On (Bang A Gong)  (04:50) 
+04|  Someday  (03:28) (   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3846421C213D05EAF5D0F1234F74D91ABBE4A6A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083837   (273721) от 16.12.2016
 
 The Bigness - Time Traveler (2016) [MP3|320 Kbps] <Indie Rock, Female Vocal>
@@ -702,76 +760,6 @@ Paul McCartney - The Gold Collection [3CD] (2012) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49CC70376C4A8AF449E534984E58ABE7C2ECD527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504479   (260243) от 01.06.2012
-
-VA - NOW That's What I Call Classic Rock Hits (2012) [MP3|256 кб/с]<2012>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thin Lizzy - The Boys Are Back In Town
-02. Foreigner - Feels Like The First Time
-03. Toto - Hold The Line
-04. Eddie Money - Baby Hold On
-05. Journey - Any Way You Want It
-06. Styx - Come Sail Away
-07. Jethro Tull - Locomotive Breath
-08. Heart - Crazy On You
-09. Bad Company - Feel Like Makin Love
-10. The Kinks - Lola(   Читать дальше...   )2012Жанр: 2012Продолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7981573C41848F4581823C2D003C7ED6E8978548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502831   (260162) от 01.06.2012
-
-Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder
- 02. Learn To Love The Dark
- 03. Wasted Heart
- 04. Vultures
- 05. Not Coming Back
- 06. No Love Song
- 07. I Got Nothing
- 08. Standing Still
- 09. St Jude
- 10. Our Lost History(   Читать дальше...   )2012Жанр: Indie RockПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E081DF319FDFA31C7C926CF1B7A30DCAEA2857B
 ```
 
 https://mybot314.ru/tekegram_catalog/

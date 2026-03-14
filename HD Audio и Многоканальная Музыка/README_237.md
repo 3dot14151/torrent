@@ -1,3 +1,148 @@
+###  Публикация: 1770889   (32095) от 03.01.2025
+
+The Smoothies - January Cozy Nights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Empty House (3:21)
+02.  You're my Diamond (3:35)
+03.  Send Me Your Love (2:54)
+04.  We Were Young and Free (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF41C209702CEB3D7CC641171BAA7A1B7BDC0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586614   (32066) от 04.01.2025
+
+Accept - Studio Albums (23 releases) (1979-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Accept — немецкая рок-группа, играющая в стиле хэви-метал. Отличительными особенностями музыки группы являются оригинальный вокал, плотность и насыщенность звука, мелодичность и виртуозность гитарных соло. Подчёркнуто брутальная, агрессивная ритмическая основа, в сочетании с хард-роковой, зачастую пронизанной классическими ходами, мелодикой гитарной партии и уникальным (   Читать дальше...   )1993 - Objection Overruled
+1994 - Death Row
+1996 - Predator
+2010 - Blood of the Nations(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 23:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A78E145EA4DE94AFA9F99235D87EEB381B90619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770864   (31990) от 04.01.2025
+
+S.U.P. - Anomaly (1995) Limited Edition, Reissue, 2016, Overpowered Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Goth Rock, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anomaly (Live) [00:00:44]
+02. Pain Injection (Live) [00:04:39]
+03. In Those Times (Live) [00:03:52]
+04. The Work (Live) [00:05:39](   Читать дальше...   )Жанр: Alternative Rock, Goth Rock, Doom MetalПродолжительность: 2 CD, 01:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADA4F3F98B29E32E4E5B83085BB58F2122B4A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770857   (31988) от 04.01.2025
+
+Mutagenic Host - The Diseased Machine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neurological Necrosis [00:04:39]
+02. Genestealer [00:03:30]
+03. The Twisted Helix [00:04:42]
+04. Artificial Harvest of the Obscene [00:05:14](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04CE7E1B067E8504E6376E0CF474530BE9E01C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771043   (31915) от 05.01.2025
+
+Pink Floyd - Live At Usher Hall (Edinburgh, UK, 5 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shine On You Crazy Diamond (Live At Usher Hall, Edinburgh, UK, 5 November 1974) [21:12]
+02 - Raving And Drooling (Live At Usher Hall, Edinburgh, UK, 5 November 1974) [13:08]
+03 - Speak to Me (Live At Usher Hall, Edinburgh, UK, 5 November 1974) [2:25]
+04 - Breathe (In the Air) (Live At Usher Hall, Edinburgh, UK, 5 November 1974) [2:56](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D909266FAA1F6E7744BC6B5EAC9E0AEDA628AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771019   (31898) от 05.01.2025
 
 Pink Floyd - Live At The Hippodrome (Bristol, UK, 13 December 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
@@ -595,150 +740,6 @@ A4 Mary In The Morning(   Читать дальше...   )Жанр: Country, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50D4B38EF5C7D7EF32B226734F85391AEC28A60B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306733   (31101) от 13.01.2025
-
-Paper Lace - First Edition (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31101.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 In The Morning
-A2 Stoney End
-A3 Lady
-A4 I've Got You, That's Enough For Me(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D08FB8E2A8620390BEB7EEFFBBF9EAADC9A8F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773028   (31078) от 13.01.2025
-
-Vivaldi Metal Project - Studio Albums (3 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vivaldi Metal Project - симфоник-метал-проект, переосмысливающий музыку Антонио Вивальди.2016 - The Four Seasons
-2018 - The Extended Sessions
-2022 - EpiClassicaЖанр: Symphonic MetalПродолжительность: 03:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1519AECA61FA985A8D8BD1E64613BB16B452716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773134   (31060) от 13.01.2025
-
-ДДТ (DDT) - Бокс. 6 Альбомов (2024) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31060.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках проекта на Planeta.ru группа ДДТ готовит новый релиз для слушателей – на виниле будут изданы лимитированными тиражами альбомы ДДТ 90-хх годов: «Актриса Весна», «Чёрный пёс Петербург» , «Это всё», «Любовь» (впервые на LP) и «Мир номер ноль». Также впервые на виниле будет выпущен сольный «французский» альбом Юрия Шевчука и Константина Казански «L’echoppe». (   Читать дальше...   )1992 - Актриса весна
-1993 - Чёрный пёс Петербург
-1995 - Это всё...
-1996 - ЛюбовьЖанр: RockПродолжительность: 05:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18A16EBB41C941B0821C7D628BCF780E80E19E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773040   (31057) от 13.01.2025
-
-Soulstance and Lo Greco Bros - The Cinematic Sound Of Soulstance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, Acid Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lanterns (4:52)
-02.  Gonna Be Alright (3:54)
-03.  Out Of The Window (4:35)
-04.  Latin Melody (5:42)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, Acid JazzПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02FAC45C3571A14284552DC3001DD7BE40684538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773050   (31056) от 13.01.2025
-
-Wlodek Gulgowski - Soundcheck (1976) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Fusion, Jazz-Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soundcheck (4:31)
-02.  Truth-Seeker (5:50)
-03.  Manhattan Vibes (5:24)
-04.  Love Is Back (3:26)(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A3AEEC0F16F652E0C86DB35D460820FE544ABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

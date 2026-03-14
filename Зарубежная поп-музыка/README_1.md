@@ -1,3 +1,32 @@
+###  Публикация: 1605706   (1044734) от 19.01.2023
+
+CC Catch - Best Of (1998) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can Lose My Heart Tonight (Rap Version)
+02. Soul Survivor  (Rap Version)
+03. 'Cause You Are Young
+04. Heartbreak Hotel(   Читать дальше...   )Жанр: Electronic, Synth-pop, Euro HouseПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DFA8A5E5577A789705189385E5CB7CCD552589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605727   (1044721) от 19.01.2023
 
 Celine Dion - Ultimate Box (2008) 2 CD [OGG Vorbis|480 Kbps] <Rock, Blues, Pop>
@@ -716,35 +745,6 @@ VA - ФРАНЦУЗСКИЙ ПОДАРОК The Best Of France Nostalgique Part 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75174D7F46102E44729E10D448E6E56D64602A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611532   (1040755) от 13.02.2023
-
-VA - Romantic Collection. Aria (2000) [OGG Vorbis|480 Kbps] <Electronic, Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebecca Lucker "Aria"–	Arianna
-02. Sarah Brightman–	Anytime, Anywhere
-03. Karen Cummigs–	Ave Maria
-04. Yuri Ogawa–	L'Amour Est Un Oiseau Rebelle "Carmen"(   Читать дальше...   )Жанр: Electronic, Pop, VocalПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A616A034807CC3C8FD293224A578267F6FBE120
 ```
 
 https://mybot314.ru/tekegram_catalog/

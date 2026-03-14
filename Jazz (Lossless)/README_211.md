@@ -1,3 +1,90 @@
+###  Публикация: 1180516   (340285) от 04.11.2017
+
+Paolo Fresu Quintet - Ballads (1991) Splasc(h) Records [WavPack|Lossless|image + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Sunny Gets Blue [04:15]
+02. In a Sentimental Mood [03:47]
+03. Star Crossed Lovers [06:07]
+04. Monk's Mood [01:59](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810E2A0454FE8BABE5E815AAA66D9CCA622523BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180518   (340281) от 04.11.2017
+
+Carol Welsman - Journey (2012) Justin Time Records [APE|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Route 66 [03:23]
+02. On The Road Again [03:55]
+03. You Came A Long Way From St. Louis [04:54]
+04. By The Time I Get To Phoenix [05:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF05A0AC3F9765D5DA172CC3BABBFD5E480E5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180606   (340156) от 04.11.2017
+
+Matt Bianco - Gravity (2017) Japan [FLAC|Lossless|image + .cue] <Smooth Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joyride
+02. Invisible
+03. Gravity
+04. Heart In Chains(   Читать дальше...   )Жанр: Smooth Jazz, Latin JazzПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC47E0000D5C0548743D190AED7C09E9664139E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419464   (340125) от 28.10.2020
 
 Marion Brown - Capricorn Moon To Juba Lee Revisited (1965, 1966) 2019, Hat Hut Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -666,93 +753,6 @@ Paolo Fresu - Thinking (2006) EMI [WavPack|Lossless|image + .cue] <Post-Bop, Mod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAACF823B788E760055D003F7774B3A0E80A4966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181163   (335689) от 06.11.2017
-
-Joe Williams - Live (1973) 1997, Original Jazz Classics [APE|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who She Do [04:29]
-02. On Green Dolphin Street [05:05]
-03. Heritage [03:22]
-04. Sad Song [04:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE25B0B023693DD489E2DEA98B6E75567DA3ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181159   (335688) от 06.11.2017
-
-Peter O'Mara - Stairway (1993) Enja [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abertura [05:38]
-02. Stairway [08:02]
-03. Round & Round [06:16]
-04. Crescent [07:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65EA4E232248E9D8181CA389DCA2B96507FA1B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955366   (335416) от 10.11.2015
-
-Barney Wilen - Tilt (1957) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blue N' Boogie [04:25]
- 02.Nature Boy [04:27]
- 03.Melancholy Baby [05:11]
- 04.Night In Tunisia [04:28](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55EC9741E1B3F8386F6A482D6878736DDCE4FCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

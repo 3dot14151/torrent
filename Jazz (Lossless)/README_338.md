@@ -1,3 +1,96 @@
+###  Публикация: 1764280   (102722) от 06.12.2024
+
+The Great Jazz Trio - Love For Sale (1976) 1986, Nippon [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love for Sale [7:03]
+02. Glad to Be Unhappy [6:54]
+03. Gee Baby, Ain't I Good to You [6:48]
+04. Secret Love [6:10](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E313CAC5839A92C16A83BD5ACA318D4BA64B1551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764279   (102719) от 06.12.2024
+
+Ann Hampton Callaway - This Christmas (1997) Angel Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [3:34]
+02. The Christmas Song (Chestnuts Roasting on an Open Fire) [4:59]
+03. Silent Night/A Child Is Born [4:30]
+04. Baby, It's Cold Outside [4:39](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19C7A5B6C76DABFA5F61060369EE2A6C8B9D920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490610   (102679) от 02.05.2012
+
+Club des Belugas - Forward (2012) [FLAC|Lossless]<Soul, Nu Jazz, Electro Swing, Downtempo>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_102679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save A Little Love For Me Feat Ester Rada (3:33)
+02. Straight To Memphis - Feat Brenda Boykin (5:15)
+03. Anita O'day - Peanut Vendor Club Des Belugas (Remix) (3:43)
+04. All Aboard Feat Iain Mackenzie (4:15)
+05. Forward Feat Jen Kearney (3:37)
+06. Desperately Trying Feat Annaluca (Swing Mix) (3:47)
+07. Close Your Eyes Feat Iain Mackenzie (4:11)
+08. Jojo Effect - I Shouldn't I Wouldn't (Remix) (3:52)
+09.  The Beat Is Rhythm (4:28)
+10. Dat Thang Feat Brenda Bokin (4:01)(   Читать дальше...   )Жанр: Soul, Nu Jazz, Electro Swing, DowntempoПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489804   (102568) от 02.05.2012
 
 Astrud Gilberto - Verve Jazz Masters 9 (1993) [FLAC|Lossless]<Vocal Jazz, Bossa Nova>
@@ -663,93 +756,6 @@ Houston Person - Christmas With Houston Person And Friends (1994) Muse Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3316B6BC92FBCACB3F432F23D2450132E304E75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767467   (101150) от 22.12.2024
-
-Mamiko Watanabe - Being Guided By The Light (2024) Jojo Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Being Guided by the Light [6:31]
-02. Pas de Trois [6:29]
-03. The Peacocks [7:19]
-04. The Scene Is Clean [4:42](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B8C919C0CE688D8C455230CB54BC237ACE1A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767561   (101148) от 22.12.2024
-
-VA - Funky For A Sunny Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sonny King - Live For Funk (3:38)
-02.  The Smoke Orchestra - Henrietta Leavitt and the cepheids variables (3:23)
-03.  Pomante - Bua (4:09)
-04.  Raffaele "Lello" Becchimanzi - One Guitar Night (Afro Club Mix) (7:41)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:367B20C699587F89273737E1BD1AACC2B8AE1315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767574   (101146) от 22.12.2024
-
-Pomante - Frames (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Back To Milano (3:12)
-02.  Sharkisha (3:11)
-03.  Horns Island (3:12)
-04.  Sarah (3:02)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B70BB97675E4A3AE8EE4435DF75B32816919903
 ```
 
 https://mybot314.ru/tekegram_catalog/

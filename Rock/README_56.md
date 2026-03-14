@@ -1,3 +1,63 @@
+###  Публикация: 1248797   (439833) от 21.09.2018
+
+Trubetskoy - Трафик (2018) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439833.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Снова в эфире «Trubetskoy» ! И снова у нас есть кое-что для вас! Это наш новый ЕР или макси-сингл - как хотите. Дни и ночи на студии, недосып и недоедание... Так, сейчас не об этом. Три песни, одну вы знаете, две новые. Мы очень хотим, чтобы вам они закатили также, как и нам."1. Время
+2. Пой, Changer
+3. ТрафикЖанр: RockПродолжительность: 00:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CE839286187A7320E4D4F30BFECA49F6173265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248790   (439478) от 21.09.2018
+
+VA - 101 Hits - No.1 Dad 5CD (2018) [MP3|320 Kbps] <Pop, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439478.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Thin Lizzy - The Boys Are Back In Town
+02. The Jam - Going Underground(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:13:28
+
+01. The Kooks - Naive
+02. Cast - Flying(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CAD40573BD71E874352EBF825BEA5B245672925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062624   (438869) от 14.10.2016
 
 Валентин Стрыкало - Развлечение (2016) [MP3|320 Kbps] <Rock>
@@ -695,64 +755,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55CF14909A2852D95C051CC3D41478D0F1E1017E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064434   (426251) от 20.10.2016
-
-Papadosio - Pattern Integrities (2016) EP [MP3|320 Kbps] <Experimental Electronic Rock, Instrumental Jam Band, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Each and Every Wave
-02. Oblivion
-03. Threes
-04. Vactrollio(   Читать дальше...   )Жанр: Experimental Electronic Rock, Instrumental Jam Band, Progressive RockПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261A065F4893A1F34A7D175B6307BEAD19A5319D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572138   (425600) от 25.08.2022
-
-Kerry Livgren - Q.A.R. (2022) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Intelligence Theory
-02. One out of One
-03. Everyone's Home
-04. Above This Night(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1710619D8D599224AEA8ED2F2E9C1F982EF6F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

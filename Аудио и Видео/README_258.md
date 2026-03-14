@@ -1,3 +1,32 @@
+###  Публикация: 1515697   (168726) от 08.12.2021
+
+VA - The World Series of Chill Out, Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo, Trip Hop, New Age>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man In A Room, Sara Azrie - Brave This Moment (5:35)
+02. Twins In Mind - Floating Clouds (3:31)
+03. T2'n - Le Desert de Michat (3:58)
+04. Stuce The Sketch - Seventh Heaven (Acoustic) (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Trip Hop, New AgeПродолжительность: 01:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07ECEE6DADAAF567D2149996A2CD06055DC56BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515167   (168715) от 08.12.2021
 
 Marga Sol - Natural High (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
@@ -703,35 +732,6 @@ VA - Buddha Luxury, Vol. 6 (Esoteric World Music) (2021) [AAC|~326 Kbps] <Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B679656E7A47E55E522AF9D16FD5632FBD992D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515910   (167874) от 09.12.2021
-
-VA - Buddha Luxury, Vol. 4 (Esoteric World Music) (2020) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage Of Deep - Road of Life (Frontiers of Asia) (Original Mix) (5:37)
-02. Stuce The Sketch, Vini Hush, Derek Mwensi - Enchanted Mara (4:44)
-03. La Estación Del Mar - East of Bengal (Original Mix) (3:24)
-04. Mirage Of Deep, Julia Vañó - Sun Sahdu (Original Mix) (7:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C39D6E722656EF367505D1BACCF89753BE28E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

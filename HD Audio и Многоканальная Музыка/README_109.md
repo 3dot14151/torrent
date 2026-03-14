@@ -1,3 +1,148 @@
+###  Публикация: 1708719   (113004) от 21.03.2024
+
+Cruzh - The Jungle Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jungle Revolution (3:55)
+02. Angel Dust (4:14)
+03. FL89 (4:09)
+04. Killing In The Name of Love (4:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7636DDC3AAC9B0604B41C7FB9AD7F57D5CB07B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708582   (113000) от 21.03.2024
+
+Samson - Shock Tactics (1981) Reissue, 1989, Repertoire Records [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113000.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Riding With The Angels
+A2 Earth Mother
+A3 Nice Girl
+A4 Blood Lust(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F05F6041EB18C64CD76CD47F8D8CCAC34CBB837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708496   (112999) от 21.03.2024
+
+Samson - Head On (1980) Reissue, 2004, Earmark [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Times
+02. Take It Like A Man
+03. Vice Versa
+04. Manwatcher(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A064CE7859AD6D760B950A268A1699C2EA4C3DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708659   (112997) от 21.03.2024
+
+Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage of the Dead Marauder (feat. Patty Gurdy) (4:28)
+02. Uzbekistan (3:40)
+03. The Last Saskatchewan Pirate (4:08)
+04. Sea Shanty 2 (2:01)(   Читать дальше...   )Жанр: Folk Power MetalПродолжительность: 00:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4921416CE29AE38BDCC5D50BB41DAAC3D2AA9616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708663   (112995) от 21.03.2024
+
+Brodequin - Harbinger of Woe (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diabolical Edict (3:28)
+02. Fall Of The Leaf (2:34)
+03. Theresiana (3:03)
+04. Of Pillars And Trees (4:03)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2332204E394E3B46DD7257DD8016BDFB9FEDD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708576   (112990) от 21.03.2024
 
 Carnival Of Dreams - Des Kaisers Alte Kleider (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop | Darkwave>
@@ -600,151 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8323C5AB783D3E0AC68EA3905896AD7F6DCA35B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708828   (112922) от 22.03.2024
-
-Игорь Николаев - Мисс Разлука (1991) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01. Стефания. (Музыка и стихи И.Николаева)
-02. Я сказал себе "Стоп!". (Музыка и стихи И.Николаева)
-03. Консуэло. (С.Краевский - Д.Берков)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17EED893AF0EDE0E2F20186E73479E29BF6A8D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708894   (112919) от 22.03.2024
-
-Stress Reducing Music Zone, Instrumental Jazz Music Guys, Positive Music Universe - Boogie Wonderland: Amazing Electric Guitar Jazz for Emotional Release (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]  ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emo Grooves (3:55)
-02. Positive Music Universe - Posi-Jazz Express (4:01)
-03. Instrumental Jazz Music Guys - Soulful Therapy (3:45)
-04. Feel-Good Beats (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F690E040EEBD4CE149E69438FF0359D9291B3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708849   (112917) от 22.03.2024
-
-Romantic Evening Jazz Club and Good Mood Music Academy - Jazzy Evening Calm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whispering Moonlight Groove (3:42)
-02. Good Mood Music Academy - Smooth Velvet Serenade (3:17)
-03. Twilight Tranquility Tune (3:33)
-04. Good Mood Music Academy - Evening Bliss Melody (3:13)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6B12079ACDAA6577350D899B633A5ED9037850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708699   (112913) от 22.03.2024
-
-Darkthrone - Ravishing Grimness (1999) Reissue, 2011, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112913.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Lifeless
-A2 The Beast
-A3 The Claws Of Time
-B1 Across The Vacuum(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE5232675FD56D4512611FFD5A3418E6FDB0590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708935   (112912) от 22.03.2024
-
-Darkthrone - Plaguewielder (2001) Reissue,  2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112912.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Weakling Avenger
-A2 Raining Murder
-A3 Sin Origin
-B1 Command(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74DFD1F23E84D899651C9087B7FFCD79906F3681
 ```
 
 https://mybot314.ru/tekegram_catalog/

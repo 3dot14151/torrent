@@ -1,3 +1,32 @@
+###  Публикация: 1508822   (796345) от 10.11.2021
+
+VA - Follow the Light (Beautiful Chill out Tunes), Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VAN - Excursion (Original Mix) (2:35)
+02. Alexandra Hampton, Ahbee - Mirage (Original Mix) (5:54)
+03. Weathertunes - Flower Fields (Original Mix) (5:01)
+04. Peter Pearson - Unconditional (Original Mix) (5:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C3113B268A851525296DDE06FB0ED467895094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508821   (796343) от 10.11.2021
 
 VA - Follow the Light (Beautiful Chill out Tunes), Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
@@ -695,32 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFE8142E09A173AA0DF4DBCC0A2C53A7881F01CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509089   (795545) от 11.11.2021
-
-Воспитание Аризоны / Raising Arizona (1987) BDRip [1080p] ATV [DVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хай был мелким грабителем. Эдвина служила в полиции. Они встречались регулярно — после того, как его в очередной раз хватали и везли в кутузку. А потом Хай и Эдвина поженились. Эта странная пара была вполне счастлива, но у них не было детей, и тогда они решили похитить младенца, чтобы было кого воспитывать…Производство: США / Circle FilmsЖанр: комедия, криминал, приключенияРежиссер: Джоэл Коэн, Итан КоэнАктеры: Николас Кейдж, Холли Хантер, Трей Уилсон, Джон Гудман, Уильям Форсайт, Сэм МакМюррей, Фрэнсис МакДорманд, Рэндал «Текс» Кобб, Т.Дж. Кун, Линн КитеПеревод: Двухголосый профессиональный, авторский одноголосыйСубтитры: русские, английские, украинскиеПродолжительность: 01:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870AF1E13038D0F32B627465B770C1E07BAD96C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

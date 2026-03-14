@@ -1,3 +1,153 @@
+###  Публикация: 1049600   (539674) от 07.09.2016
+
+Zack Hemsey - 13 Albums + 8 Singles (2006-2014) [MP3|320 кб/с]<Instrumental, Hip Hop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zack Hemsey - американский композитор и музыкальный продюсер, известный создатель музыкальных композиций к трейлерам фильмов. Примечательной была его работа "Mind Heist" - музыка из "Трейлер №3" к фильму "Начало". Hemsey также работал над музыкой к другим трейлерам и его треки не раз брали в фильмы.
+Родился Zack Hemsey в 1983 году. Начал (   Читать дальше...   )Жанр: Instrumental, Hip Hop •Продолжительность: 10:12:29 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0002F2966F4078D89C3E62AEC72FDE10160DD0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153152   (538839) от 31.07.2017
+
+Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 Kbps] <Soundtrack, Instrumental, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный саундтрек к игре Final Fantasy XV, разработанный студией Square Enix.
+Альбом поступил в продажу 21 декабря 2016 года.01. Broken Bonds [03:09]
+02. Dining Car [03:07]
+03. Cartanica [04:13]
+04. Relax and Reflect - Pensive [02:14](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Classical Crossover, ScoreПродолжительность: 05:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923826FDF6E68B30803457206E004C755B7AE59F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925668   (538759) от 07.08.2015
+
+The Royal Guitar Ensemble & Claude Ciari - Golden Guitar (2004) [FLAC|Lossless]<Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haunted Guitar
+02. The Third Man Theme
+03. La Playa
+04. The Executioner Theme(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C06B916F3378C4F8E391D6DE3B89F7A34194B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154344   (538695) от 31.07.2017
+
+VA - Romantic Collection - Instrumental Vol. 2 (2000) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris-France-Transit - Souvenir From Rio [04:20]
+02. Santana - I Love You Much Too Much [04:41]
+03. Armik - Dancing Shadows [04:44]
+04. Richard Clayderman - La Cumparsita [03:13](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC4BA796A26E42CAFB9F39C965B130B99F5CF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532378   (538560) от 07.08.2012
+
+Nazca - Indians, Songs, Nature, Dreams (2002) [MP3|192 кб/с]<Native American,Panflute,Instrumental,>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buffalo Moon
+02. Brave Hearts
+03. Dream Catchers
+04. Geronimos Laughter
+05. Ly - O - Lay Ale Loya The Counterclockwide Circle Dance
+06. Come Faithful Ones
+07. Wishes Of Happiness & Prosperity
+08. Dawa The Cradlesong
+09. Montezuma
+10. May It Be(   Читать дальше...   )Жанр: Native American,New Age,Panflute,Instrumental,Продолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD5667E18CE2FF25A72BA47B829AFAB1ACCF8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532252   (538244) от 07.08.2012
 
 Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/с (V2)]<Folk,Барабаны,Шоу,Япония>
@@ -632,154 +782,6 @@ Igor Presnyakov (Игорь Пресняков) - Acoustic Rock Ballad Covers (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B10EB5B9831EF70DECC39492A06D8E1D2A800C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366000   (532734) от 25.07.2011
-
-Терминатор - The Terminator (1984-2009) [MP3|320 kbps]<Score, Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Score, SoundtracksПродолжительность: 07:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B1B34CB34EAB5C25BE155B78E9E89E250F1511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051554   (532694) от 11.09.2016
-
-VA - Now! - Country 11 (2016) [MP3|320 Kbps] <Country, Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blake Shelton - Sangria (3:54)
-02. Sam Hunt - Break Up In A Small Town (3:52)
-03. Chris Stapleton - Tennessee Whiskey (5:03)
-04. Zac Brown Band - Beautiful Drug (3:12)(   Читать дальше...   )Жанр: Country, PopПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706E7E51CCB8CE3CFF056DDA91FAA369FD30315F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051567   (532558) от 11.09.2016
-
-Kevin Kern - When I Remember (2016) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Should Waltz
-02. Once Upon a Time
-03. Say You Love Me
-04. Chance Encounter(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE61A1A1D4EB314D098D873E245C7EBE4F5CFA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051132   (532546) от 11.09.2016
-
-Dario Marianelli & Regina Spektor - Kubo and the Two Strings / Кубо. Легенда о самурае (2016) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Impossible Waves
-02. Kubo Goes to Town
-03. Story Time
-04. Ancestors(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069ACE10DD726C5265120A7C2839F026F6A6791F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533245   (532403) от 10.08.2012
-
-Blackmore’s Night - A Knight In York (2012) [WavPack|Lossless]<Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Locked Within The Crystal Ball (8:36)
-02. Glided Cage (4:18)
-03. The Circle (7:18)
-04. Journeyman (6:58)
-05. World of Stone (6:14)
-06. The Peasant's Promise (5:11)
-07. Toast to Tomorrow (4:49)
-08. Fires at Midnight (9:44)
-09. Barbara Allen (5:27)
-10. Darkness (3:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

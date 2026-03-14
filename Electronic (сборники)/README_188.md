@@ -1,3 +1,32 @@
+###  Публикация: 1476702   (239200) от 12.06.2021
+
+VA - Beatport Funky House: Sound Pack #296 (2021) [MP3|320 Kbps] <Funky, Disco House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239200.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Audio Jacker - Love Ballad
+002. Sao & Misudj - Funky Trip
+003. Lee Cox - Back On The Boogie
+004. Horse Meat Disco - Love If You Need It(   Читать дальше...   )Жанр: Funky, Disco House, Nu DiscoПродолжительность: 09:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27AF5FA3B312C3FA6F97610F9CB5096DE422226F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627947   (239193) от 22.04.2023
 
 VA - TOP Non-Stop 2000-2009 - Dance House Music. Part 3 (2023) [MP3|192-320 Kbps] <Funky House, Progressive House, Electro House>
@@ -716,35 +745,6 @@ VA - Options Remake 150 Tracks (2018 November) (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D71257726091396DF1C6A0CD587646C860F68AB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964934   (228873) от 12.12.2015
-
-VA - Trance Desire Volume 58 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neev Kennedy with Adrian&Raz - Crystal Clear (Igor Dyachkov & U-Jeen Remix) (06:41)
-02. Dart Rayne & Yura Moonlight feat. Cathy Burton - Incomplete (Original Mix) (06:51)
-03. Myon & Shane 54 feat. Amy Pearson - Hurricane (Myon & Shane 54 In Search Of Sunrise Mix) (08:12)
-04. Tenishia & Ana Criado - Ever True (Club Mix) (07:25)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245471C24F7B9CCE5CC572CD51B22F5B0A0BD949
 ```
 
 https://mybot314.ru/tekegram_catalog/

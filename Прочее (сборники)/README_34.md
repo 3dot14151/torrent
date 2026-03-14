@@ -1,3 +1,32 @@
+###  Публикация: 1498771   (854291) от 28.09.2021
+
+VA - Music News vol.136 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854291.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mira & Javid - Sene Ne (03:33)
+ 002. Alex Mica - Ven Atras (03:10)
+ 003. AliB - Она Ушла (02:13)
+ 004. Alishka feat. Rufo - Чёрный BMW (02:34)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459D5E1693CCF5098B17A3FE9149279F1FBC0A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498727   (854182) от 28.09.2021
 
 VA - Kiss FM Top 40 (21.09) (2021) [MP3|320 Kbps] <Pop, Dance, Disco, Synthpop>
@@ -718,35 +747,6 @@ VA - Зайцев нет. 1 апреля. День дурака (2016) [MP3|184-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E25366DF5E2D3236A65FE690987628CA975B606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111619   (846746) от 06.03.2017
-
-VA - Woman’s Day (2017) [MP3|320 Kbps] <Pop , R&B , Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846746.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Space Gang - Human Nature 4:41
-002. Seefeld Avec Mady - Ride On 3:44
-003. STJ - She Believes (Radio Version) (feat. Liba) 3:42
-004. Alex Naevecke feat. Schascha - Summerlove 4:11(   Читать дальше...   )Жанр: Pop , R&B , ChilloutПродолжительность: 06:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9AFAA60ACCBD43D38B45E72C1B91F975BDA5C40
 ```
 
 https://mybot314.ru/tekegram_catalog/

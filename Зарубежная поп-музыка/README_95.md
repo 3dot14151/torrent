@@ -1,3 +1,61 @@
+###  Публикация: 1783302   (25631) от 05.03.2025
+
+VA - One Shot '80 Volume 11 (2001) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Micheal Cretu - Samurai (Did You Ever Dream)
+02. Yazoo - Situation
+03. The Twins - Ballet Dancer
+04. A Caus' Des Garcons - A Caus' Des Garcons(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-popПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC270D855478162B7152CEA82DE32D74F2A1D58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783257   (25625) от 05.03.2025
+
+VA - One Shot '80 Volume 9 (2000) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Idol - Eyes Without a Face
+02. Falco - Rock Me Amadeus
+03. Climie Fisher - Love Changes (Everything)
+04. Men Without Hats - The Safety Dance(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-pop, DiscoПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646DA795E651697FE60D560CDC04567CFC15C624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783348   (25624) от 05.03.2025
 
 VA - One Shot '80 Volume 12 (2001) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Synth-pop>

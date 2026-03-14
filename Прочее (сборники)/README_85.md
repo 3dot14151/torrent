@@ -1,3 +1,32 @@
+###  Публикация: 1275955   (602602) от 25.04.2019
+
+Сборник миксов от DJ Jack Ben (Евгений Баленко) (2013-2019)  [MP3|320 Kbps] <Eurodance, Club House, Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602602.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jack Ben - Disco Paradise Vol.41 (OCTOBER 2014 MEGAMIX)
+002. Jack Ben - Disco Paradise Vol.43 (NOVEMBER 2014 MEGAMIX)
+003. Jack Ben - Disco Paradise Vol.44 (DECEMBER 2014 MEGAMIX)
+004. Jack Ben - Disco Paradise Vol.45 (HAPPY NEW YEAR 2015 MEGAMIX)(   Читать дальше...   )Жанр: Eurodance, Club House, Deep House, Future House, OLDSCHOOL,Продолжительность: 122:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D7BE4DC4E43A0E47B3D82AACB34C4AEEA8488F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149233   (602535) от 09.07.2017
 
 VA - Airbeat One (2017) [MP3|320 Kbps] <Club, Future Bass, Indie Dance, и другие>
@@ -746,35 +775,6 @@ VA - Empire Records - Deep Disco 3 (2017) [MP3|256-320 Kbps] <Dance, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF3E03257D724C995AAA5280E60D418B8B270A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149782   (598429) от 12.07.2017
-
-VA - Empire Records - Deep Disco 2 (2017) [MP3|263-320 Kbps] <Dance, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aine Aura – Uncover (Mountain of Youth Remix)
-02. Amade Landan – Inside (Original Mix)
-03. Lorin Rymbu & Denis Rynda – Set Me Free (Original Mix)
-04. Bleu Lanez – Jungle Poison(   Читать дальше...   )Жанр: Dance, Deep HouseПродолжительность: 01:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4744D264AF6C030B4643DC200E0427A12625577A
 ```
 
 https://mybot314.ru/tekegram_catalog/

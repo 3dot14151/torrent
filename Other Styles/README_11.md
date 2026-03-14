@@ -1,3 +1,119 @@
+###  Публикация: 973429   (980258) от 08.01.2016
+
+Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Picture Score) (2007) [MP3|320 кб/с] <Soundtrack, Music, New Age>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gas Station In The Fog (1:32)
+02. Socrates On The Roof (1:01)
+03. "If You Don't Make The Team..." (0:41)
+04. An Unexpected Visit (1:25)(   Читать дальше...   )Жанр: Soundtrack, Music, New AgeПродолжительность: 00:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DF0453FCC01355CCB306833681D6AB5D4BD60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973463   (980256) от 08.01.2016
+
+Yuki Kajiura - Akiresu to kame (Ахиллес и черепаха) (2008) [OGG|Lossless] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omoide no e (1:41)
+02. Tora no e (1:19)
+03. Hirame no e (0:47)
+04. Shuumatsu no e (1:58)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F2A4EE14DABE5E199082D5A488F2A779D3CD63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972375   (980253) от 08.01.2016
+
+Jim Brickman - Grace (2005) [FLAC|Lossless|tracks + .cue] <New Age, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jim Brickman & Ginny Owens - Amazing Grace (3:14)
+02. Jim Brickman - Israel (2:24)
+03. Jim Brickman with Many Crowns - Crown Him (2:50)
+04. Jim Brickman - Joyful (3:50)(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02209B6FEEF6E06FEE086E3A3CC56903C196318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973725   (979263) от 09.01.2016
+
+Paul Cardall - Saving Tiny Hearts (2014) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gracie's Theme
+02. Life & Death
+03. Passing Time
+04. Miracles(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095354472A680352FA7AFB8C560E9AF0A29B7297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356324   (979122) от 30.01.2020
 
 Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -644,119 +760,6 @@ Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81D7CF592B81294BFA83C50745ED8E325C4F2EF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974735   (975474) от 12.01.2016
-
-The Piano Girls - Hey Guys, Listen to My Piano (2014) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Were a Boy
-02. Comptine d'un autre ete, l'apres-midi
-03. Skyfall
-04. Paparazzi(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2523C8E2FE24CD5F15CC60C099E359BA6DB6F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613078   (975351) от 10.02.2013
-
-Luna - 3 альбома (1992-1998) [MP3|256-320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975351.jpg" />
-</div>
-
-
-###  Подробнее
-
-(10:37) 1. Like A Leaf In The Wind
-(12:09) 2. Gentle Flow
-(11:03) 3. Eternal Longing
-(12:51) 4. Lotus OpeningЖанр: New ageПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E07D283AA2F396537863E2241E0EC65D9509BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616575   (974801) от 10.02.2013
-
-VA - Ultimate Classical Guitar - The Essential Masterpieces (2008) 5CD, Box Set [FLAC|Lossless]<Classical Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical GuitarПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975162   (974358) от 13.01.2016
-
-Jean Michel Jarre - The Concerts In China (1982) 2CD, Remastered, 2014, Sony Music [FLAC|Lossless|image + .cue]<Electronic, Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orient Express 4:21
-02. Magnetic Fields Part 1 4:21
-03. Magnetic Fields Part 3 3:44
-04. Magnetic Fields Part 4 6:45(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B84852C41120785BCC4F0540F28254A04160C71
 ```
 
 https://mybot314.ru/tekegram_catalog/

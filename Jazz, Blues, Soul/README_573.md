@@ -1,3 +1,177 @@
+###  Публикация: 1755538   (40156) от 16.10.2024
+
+VA - Charming Classy Luxury Lounge Chilly Relaxing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - It Will Rain (3:53)
+02. Chillaxonic - Oasis (4:58)
+03. Kool&Klean - Feel Again (3:53)
+04. eJazz Artistry - Letters from Home (3:58)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BAE0CB519520A235F44995D059B6625842078CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755722   (40075) от 17.10.2024
+
+Delta Generators - The Lost Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Bigger Than the Both of Us (4:53)
+02. Inside Your Blue (4:08)
+03. Living on Dreams (4:53)
+04. You Are My Sunshine (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C71508591FE7551420F7F98BB3A8EBF8743A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755713   (40074) от 17.10.2024
+
+Airborne Blues Virus - Minnie Water Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feels Alright (4:07)
+02. Hold (4:04)
+03. Family Man Blues (4:35)
+04. Burning Flame (4:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C23B4DEF683BC880C533231DF1E12FD1B45C1B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755725   (40071) от 17.10.2024
+
+Ellen Edwards - A Beautiful World (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicken Scratch (3:25)
+02. A Beautiful World (3:51)
+03. Fields of Home (4:10)
+04. Drivin Alone (3:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E666E6BB52FD089857FCA8FE6B12A183E8B257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755800   (40070) от 17.10.2024
+
+Mike Campbell & The Dirty Knobs - Vagabonds, Virgins & Misfits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Greatest (3:30)
+02. Angel of Mercy (3:44)
+03. Graham Nash - Dare to Dream (feat. Graham Nash) (4:09)
+04. Hands Are Tied (4:12)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBD935C5F7C0789DAE80C3E805B0B38CD2FAA46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755807   (40069) от 17.10.2024
+
+Tom Mansi & the Icebreakers - Eyeball (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pushback Blues (4:28)
+02. Eyeball (5:39)
+03. Maybe Baby (3:48)
+04. The Shot (5:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02051B4939F9A0934281C22573A8CB30AACC374F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755397   (40065) от 17.10.2024
 
 Steve Lacy - Only Monk (1985) 1993, Soul Note [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
@@ -571,180 +745,6 @@ Mark Hummel - True Believer (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4B0818EC332C621220295B9B19657D3318F0A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756672   (39554) от 22.10.2024
-
-The Trevor B. Power Band - Are We Ever Free (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Yourself Fly (4:47)
-02. Lady Luck (3:15)
-03. Mystery (3:55)
-04. Are We Ever Free (5:12)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8608750E2BDB7D526990641384987EFBD8D4F401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756419   (39553) от 22.10.2024
-
-Harry Connick, Jr. - 20 (1988) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalon (3:46)
-02. Blue Skies (3:50)
-03. Imagination (4:26)
-04. Do You Know What It Means to Miss New Orleans (5:23)(   Читать дальше...   )Жанр: Vocal, JazzПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BBDC4BFB6F16A153B1F27BC2FFAF6BAC012AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756664   (39550) от 22.10.2024
-
-John Haydock - Haunted Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haunted Eyes (4:57)
-02. Who You Gonna Run to? (4:19)
-03. I Get Lost (Last Dream of My Soul) (5:25)
-04. Shadows (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ADE31371064F611C237E4BA0D0BD93D4E22D1A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756654   (39549) от 22.10.2024
-
-Augie Meyers - Chicken Fried Bacon Grease (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lodi (3:59)
-02. Dig His Money (3:42)
-03. I Gotta Talk to You (2:50)
-04. Too Damn Many Dues (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A3E101BB17B133F47E756B6AD22E45B355BC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756663   (39547) от 22.10.2024
-
-Catfish - London (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London (4:01)
-02. Chocolate Jesus (3:31)
-03. So Many Roads (10th Anniversary Recording) (9:12)
-04. Days Long Gone (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E461236AC46FA016DD7FBD24A2DC6846A60C94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000302   (39525) от 23.10.2024
-
-Sarah Vaughan - How Long Has This Been Going On? (1978) 2003, Pablo Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I've Got the World on a String [05:39]
- 02.Midnight Sun [04:41]
- 03.How Long Has This Been Going On? [06:04]
- 04.You're Blase [05:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAEF17FF6E4452E9919036D605E777515AEBC521
 ```
 
 https://mybot314.ru/tekegram_catalog/

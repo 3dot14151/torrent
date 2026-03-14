@@ -1,3 +1,38 @@
+###  Публикация: 583798   (309764) от 03.12.2012
+
+Peter Gabriel - Secret World Live (2012) BDRemux
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_309764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переиздание на Blu-ray концерта Питера Гэбриэла, снятого за 2 вечера в итальянском городе Модена в 1993 году.01. Come Talk to Me
+02. Steam
+03. Across the Water
+04. Slow Marimbas
+05. Shaking the Tree
+06. Blood of Eden
+07. San Jacinto
+08. Kiss That Frog
+09. Washing of the Water
+10. Solsbury Hill(   Читать дальше...   )Жанр: Progressive Rock / Art RockПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260407   (309348) от 08.11.2018
 
 Творческий вечер Владимира Соловьева. ДК им. Ленсовета (02.11.2018) WEB-DL [H.264/1080p-LQ]
@@ -689,35 +724,6 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016) BDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:513D61EE0C43BA19C3C5D650FD34D37619958D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186012   (289129) от 23.11.2017
-
-Bee Gees - One Night Only 1997 (2013) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материал этого концертного альбома записан в зале MGM Grand в Лас-Вегасе, штат Невада, 14-го ноября 1997 года. Его видеоверсия эксклюзивно демонстрировалась по каналу НВО. "One Night Only" можно назвать резюме карьеры братьев Гиббс. Bee Gees провели на эстраде 36 лет и доказывают, что могут продержаться еще. Эта троица, наверное, долговато задержалась на (   Читать дальше...   )01. You Should Be Dancing
-02. Alone
-03. Massachusetts
-04. To Love Somebody(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: Pop, Disco, Soft RockПродолжительность: 01:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1294478801277F423CF0434A06236C2644BAC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

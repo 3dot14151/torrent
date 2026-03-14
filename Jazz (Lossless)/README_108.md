@@ -1,3 +1,90 @@
+###  Публикация: 1222257   (687486) от 28.04.2018
+
+Kenny Dorham & Barry Harris Quartet - New York 1964 (2006) Rare Live Recordings [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [03:18]
+02. Confirmation [06:56]
+03. Ma, He's Making Eyes at Me [06:03]
+04. 'Round Midnight [07:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85340C81F4F5ED4995677A75C4C0B167AE9DACD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028651   (686913) от 24.06.2016
+
+Joanne Brackeen & Ryo Kawasaki - Trinkets And Things (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Trinkets And Things [05:13]
+ 02.Shadowbrook Air [06:02]
+ 03.Winnie And Woodstock [05:21]
+ 04.Fair Weather [04:48](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FE27285482E7D1498A310932647DB3A83F0DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028901   (686911) от 24.06.2016
+
+Stacy Sullivan - Stranger In A Dream (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving You
+02. The Surrey With The Fringe On Top (From Oklahoma!)/Oh, What a Beautiful Mornin’
+03. Portrait of Mercer Ellington/Prelude to a Kiss
+04. Stranger in a Dream(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:869ECF86058D72C27C2465E9ABAE5B612FCA9F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535323   (686840) от 06.03.2022
 
 Buddy Rich - Swingin' New Big Band (1966) 1995, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Mainstream Jazz>
@@ -664,96 +751,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C8AC610A8F37CF494B967B92B6627A8FEB693F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289765   (684456) от 17.03.2019
-
-Pepper Adams - The Master (1980) 1994, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enchilada Baby [5:46]
-02. Chelsea Bridge [8:57]
-03. Bossallegro [6:04]
-04. Rue Serpente [8:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD6C943E89AB31C9F0D6FA628307FE6435A2E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029047   (684417) от 25.06.2016
-
-Raging Dildos - Blue EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandolins (03:14)
-02. Strawberry Fields Forever (03:59)
-03. Macarron (03:48)
-04. Aurora (03:02)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:30:24
-
-Nadia Schilling - Vocals, Guitar, Double Bass, Glockenspiel
-Joao Branco - Guitars, Drums, Electric Bass(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AA7A808A253A5B55789133878619DECAD956AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535540   (684216) от 07.03.2022
-
-Dave McKenna - Dancing In The Dark And Other Music Of Arthur Schwartz (1986) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By Myself [4:00]
-02. A Shine On Your Shoes [2:47]
-03. I See Your Face Before Me [4:07]
-04. Alone Together [4:51](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94942BC5DB2203741E57D909239252109F982680
 ```
 
 https://mybot314.ru/tekegram_catalog/

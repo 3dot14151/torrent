@@ -1,3 +1,119 @@
+###  Публикация: 1029241   (684048) от 25.06.2016
+
+Deep Purple - Deep Purple III (1969) K2HD HiQuality CD, 2011, Victor [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Shadows
+02. Blind
+03. Lalena
+04. Fault Line(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D3FEEEF93ED6D71044473AE47277F7F5784F6C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535473   (683973) от 07.03.2022
+
+Scorpions - Rock Believer (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скорпионы существуют уже более 50 лет не замедляя своего движения вперед, никогда не сдаваясь, и сохраняя свое безошибочно узнаваемое звучание почти нетронутым на протяжении самых разных десятилетий, через которые они прошли. Rudolf Schenker однажды сказал в интервью, включенном в документальный фильм World Wide Live, который сняли в 1985 году, что он никогда не (   Читать дальше...   )01. Gas In The Tank (3:41)
+02. Roots In My Boots (3:17)
+03. Knock 'em Dead (4:11)
+04. Rock Believer (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14EE59A057A1F4581809600C8B81BA81E30BE9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029342   (682589) от 26.06.2016
+
+Grand Slam - A New Dawn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Up The Sky
+02. Rock My World
+03. Face
+04. One Way To Heaven(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89EFF8CF23AB60A3A46BEB9A3BCE45452F438889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535848   (682505) от 08.03.2022
+
+Boxer - 3 albums (1975-1979) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одно из многочисленных пристанищ так и не нашедших себе постоянной гавани варягов Кийта Эллиса (ex-Van Der Graaf Generator, Juicy Lucy) и Тима Богерта (ex-Vanilla Fudge, Cactus, Jeff Beck Group). Небезынтересный коллектив, где лидером был талантливый органист Крис Стэйнтон. Но справляться с супергруппой (а именно таковой нужно считать Boxer) ему было непросто. Помимо (   Читать дальше...   )--------------------------
+
+01. Hey Bulldog (3:49)
+02. The Blizzard (3:19)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 01:59:52 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDE16E2777D4D51B4A8DC9694F99E060AF36E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535687   (682376) от 08.03.2022
 
 Wild Ox Moan - Wild Ox Moan (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Rock, Stoner>
@@ -629,122 +745,6 @@ Bonfire - Glorious (2015) [FLAC|Lossless]<Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:304ECDB97F7B04B022BC82B0A39227DE7745C1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137774   (664386) от 29.05.2017
-
-Nalle Pahlsson's Royal Mess - Royal Mess (2015) Special Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aces High  (03:51) 
-02. Hell City  (03:44) 
-03. Mr. Freedom  (04:18) 
-04. Gold Digger  (03:18) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64B09A8CC47593FD8E786ECCB0673D22D9430A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538063   (664292) от 19.03.2022
-
-Mott The Hoople (British Lions) - 21 albums, 3 Box-sets, 39CD (1969-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Glam Rock, Classic Rock, Rock, Rhythm & Blues>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mott the Hoople — британская рок-группа, образованная в 1969 году в Херефордшире, Англия, бывшими участниками группы Silence и заимствовавшая название у романа Уилларда Мануса (главный герой которого — эксцентрик, работающий в цирковом фрик-шоу). Путь к славе "Mott The Hoople" был весьма тернистым. Mott The Hoople всегда считалась невероятно оригинально (   Читать дальше...   )--------------------------
-
-01. One More Chance To Run (3:36)
-02. Wild In The Streets (3:01)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Classic Rock, Rock, Rhythm & Blues |Продолжительность: 38:39:30 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F803ABC36981D5B3A2C72D12F36ECCAA0DFFA6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538414   (663443) от 20.03.2022
-
-Quickstrike - None Of A Kind (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Rock Disaster (03:53)
-02. Saint (04:54)
-03. Cheats n' Liars (03:14)
-04. Shut them Down (04:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C260648746E59882C6E165F25FEE87FDDC7C6861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538446   (663437) от 20.03.2022
-
-Ransom - Back To The Boozer (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vindication
-02. Colour Blind
-03. Killing Time
-04. Gender Offender(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0029F885857D57E22FD00016D51DA2942A6F5117
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1454016   (1026407) от 14.03.2021
+
+Def Leppard - Let There Be Drums (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glad I'm Alive (Early Version) 04:12
+02. Rocket (Remastered 2017) 06:36
+03. Fractured Love 05:08
+04. He's Gonna Step On You Again 04:04(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780964297154765FF849DE65D602A7B9158AB5D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454545   (1026266) от 15.03.2021
+
+KinStrife - Fools And Monsters (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intervention
+02. Make Me
+03. Cursed
+04. Fear(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5CC380950BC697AAD7AF50485FC26F72763299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454590   (1026264) от 15.03.2021
+
+Danger Zone - Don't Count On Heroes (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demon Or Saint
+02. Faster Than Love
+03. Somewhere Out There
+04. Destiny(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655F6162F8B4E8A9D9DFDC2E87731DD40235C817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454566   (1026263) от 15.03.2021
+
+Ricky Warwick - When Life Was Hard and Fast (2021) 2xCD [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026263.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - When Life Was Hard and Fast:
+01. When Life Was Hard and Fast
+02. You Don't Love Me
+03. I'd Rather Be Hit(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2C69EE7DA3EAD9DF69496D7F8B6003A86A9B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454561   (1026261) от 15.03.2021
 
 Nasty Ratz - First Bite (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -630,122 +746,6 @@ Whitesnake - The Blues Album (2021) Japanese Edition [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C2EC93075BD7B34758755E73421AA16AA166852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460393   (1022604) от 05.04.2021
-
-Chez Kane - Chez Kane (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Than Love
-02. All Of It
-03. Rocket On The Radio
-04. Get It On(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3934070DDBB2B43ABE9522AAD208D86D886B7587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460422   (1022603) от 05.04.2021
-
-Living Loud - 2 albums (2004-2008) [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022603.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Living Loud» - проект с участием икон рок-музыки, басиста и автора песен Боба Дэйсли, барабанщика Uriah Heep Ли Керслейка, гитариста Deep Purple Стива Морса и бывшего австралийского вокалиста Cold Chisel Джимми Барнса. В качестве специального гостя выступил клавишник Deep Purple Дон Эйри.--------------------------
-
-01. Last Chance (4:51)
-02. I Don't Know (4:37)(   Читать дальше...   )Жанр: Hard Rock, Hard'n' Heavy |Продолжительность: 02:18:57 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D2CD62F8576D602F3DE949EE7AE562014C3774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460954   (1022218) от 07.04.2021
-
-Mad Shadow - Heavy Blues (2013) [FLAC|Lossless|tracks + .cue] <Electric Blues, Heavy Blues Rock, Psychedelic Rock 70's>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocking Chair (2:40)
-02. Bad Man (6:25)
-03. Evil (3:21)
-04. Low Down Dirty Boogie (3:22)(   Читать дальше...   )Жанр: Electric Blues, Heavy Blues Rock, Psychedelic Rock 70'sПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F2FD612CC1B5AABCEFDF927085DE03AE591166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461075   (1022130) от 08.04.2021
-
-Shannon - Circus Of Lost Souls (2013) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride To Live
-02. Forever Now
-03. Halfway To Heaven
-04. Can't Stop The Rain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5DA12D18C31E43AC65B0F241D2B7B96D50E95F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1848937   (1053213) от 19.01.2026
+
+VA - The Orient Collective: Oasis Dreams (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Burrow World (6:11)
+02. Tibetania - Desert Stomping (6:05)
+03. Tibetania - Down Tempo Vibes (4:46)
+04. Indiano - The Crossing (7:01)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C1EE2AF972D0EB045C00F14FE1460713566075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848762   (1052855) от 18.01.2026
 
 VA - Relaxing Background Music for Spa & Lounge (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -716,35 +745,6 @@ VA - Relax 'n Chill (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F50CE8595D8F13758EF5361456ADF20F60BA1A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604173   (1045491) от 12.01.2023
-
-VA - White January: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour - Sitting Alone (Original Mix) (4:35)
-02. Filalete - Soul Design (3:14)
-03. Ian Otta - Rainy Sunday (4:16)
-04. Hölderlin - Lullaby (4:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B8C9B0503CC915E002E06DDD4E57C84CB64938
 ```
 
 https://mybot314.ru/tekegram_catalog/

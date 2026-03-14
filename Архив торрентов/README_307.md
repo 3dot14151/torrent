@@ -1,3 +1,29 @@
+###  Публикация: 608252   (993902) от 24.01.2013
+
+CCleaner 3.27.1900 [Rus/Ukr/Eng] Business | Professional Edition RePack/Рortable by D!akov
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993902.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, eMule, Kazaa, Google Toolbar, Netscape, Office XP, Nero, Alcohol 120, Adobe Acrobat, WinRAR, WinAce, WinZip, GetRight, Morpheus, Download Accelerator Plus, VirtualDub, ZoneAlarm и многих других. Можно подвергнуть очистке и реестр Windows, избавив его он ненужных расширений, старых библиотек dll и неверных путей, которые накапливаются в немалом количестве, особенно после установки и удаления разнообразных программ. Проделав все эти операции над своей системой, вы не только освободите пространство на диске, но и увеличите производительность системы в целом.Название программы: CCleanerЯзык интерфейса: Rus/Ukr/Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606956   (993877) от 24.01.2013
 
 Tom Clancy's Ghost Recon: Future Soldier [Ru/En] (Lossless Repack/1.6/DLC) 2012 | R.G. Origami
@@ -699,35 +725,6 @@ Wallpapers - Traveling the world vol.3 (25.01.13) [JPG]Название: Traveli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03A9EAAE9F4612B3FEC6D724380734883410E0D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608743   (993709) от 25.01.2013
-
-Wallpapers - Car wallpapers (25.01.13) [JPG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wallpapers - Car wallpapers (25.01.13) [JPG]Название: Car wallpapers (25.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: JPGСкриншоты:Время раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87550F1D9F38EE8948F6E23FEABCD51DA05B393
 ```
 
 https://mybot314.ru/tekegram_catalog/

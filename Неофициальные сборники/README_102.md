@@ -1,3 +1,177 @@
+###  Публикация: 1370393   (894820) от 28.03.2020
+
+VA - 100% Blues Ballads & Slow Blues (2020) 5CD [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Erickson - No Reply
+02. Johnny Littlejohn - Drifting
+03. Blue Stew - Bringing Home The Blues
+04. Jimmy Johnson - Your Turn To Cry(   Читать дальше...   )Жанр: BluesПродолжительность: 24:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEEEB2853FE7A690539536BEE7BEF2187FFBC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101528   (894780) от 07.02.2017
+
+VA - Танцевальная зима. Снежная сотка версия №8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894780.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Гурченко - Я Уезжаю 3:20
+002. Dave Till Feat. Big Dawg - Real Love 3:41
+003. София Куценко - Луна 3:34
+004. Dnce - Zoom 3:42(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB9A1BCE3833926C3E6D0CBB020E624F3AB4B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101513   (894733) от 07.02.2017
+
+VA - Вечеринка в стиле радио Шансон (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894733.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Куприк - Какая Ты Красивая 3:12
+002. Елена Конькова - За Пазухой 3:10
+003. Владимир Ворон & Галина Пахомова - Вернись Любовь 3:36
+004. Елена Мороз - Когда Ты Рядом 3:35(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399F7DCCEBCE6AB17FFE87D35B5B1C14EE6599D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101525   (894690) от 07.02.2017
+
+VA - Автозвук. Отборный зимний хит выпуск №4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894690.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Craig David - Warm It Up 3:11
+002. Jennifer Lopez Feat. Travie Mccoy - A.K.A 3:05
+003. Evidelle - Ну Почему 3:40
+004. Juliette Claire - Somebody Else's Lover 3:14(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C184175003DD3181EE9AFD73DA55D58FB8C02FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101567   (894668) от 07.02.2017
+
+VA - LUXEmusic proжект - The Russian Project (2016) [MP3|320 Kbps] <Club House, Deep House, Electro House, Future House, House Music>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894668.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eya - Море (Ivan Spell Remix) 04:27
+002. Мот feat. Миша Марвин - А может (Eldar Stuff & Biki Remix) 05:06
+003. Кристина Си - Космос (Reznikov & Denis First Remix) 05:12
+004. Moт - Капкан (Anton Ishutin Remix) 05:58(   Читать дальше...   )Жанр: Club House, Deep House, Electro House, Future House, House MusicПродолжительность: 26:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBF1AB9029CE16461CCA90CBAFCBFD87E2800B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370531   (894586) от 28.03.2020
+
+VA - Качай и слушай Vol 6 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894586.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Soda - Pullin up (1:55)
+2.Dava - Малая (2:08)
+3.ТАЙПАН , Agunda - Луна не знает пути (2:11)
+4.Doja Cat - Boss Bitch (2:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152D276967707CA06289225FAE770706E78384DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101519   (894543) от 07.02.2017
 
 VA - Душевная музыка на радио Шансон. Сборник №10 (2017) [MP3|256 Kbps] <Шансон>
@@ -20,6 +194,32 @@ VA - Душевная музыка на радио Шансон. Сборник 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55E6FD1648512EB81B02401063C361A8447F9122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294888   (894491) от 14.02.2011
+
+VA - Русский Автозвук (2011) [MP3|256 kbps]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_894491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 05:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A744C244A858AC95FEE7408BC53276CBE17BC41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,209 +742,6 @@ VA - German Top 100 Single Charts 03.09.2021 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6667AEC2F7B49AA19C9C23FA6E31321FDE64D0B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493750   (893791) от 04.09.2021
-
-VA - Rock Summer Fest (2021) [MP3|320 Kbps] <Rock, Alternative, Indie, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893791.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Suzi Quatro - Motor City Riders
-002. Brigades - Knife Dance
-003. David Bowie - After All
-004. It It Anita - Dixon Kentucky(   Читать дальше...   )Жанр: Rock, Alternative, Indie, Hard RockПродолжительность: 09:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE7A4CC55138EF37FB05063405A1CBE2EF1D0EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493759   (893770) от 04.09.2021
-
-VA - Vocal Chillout Music: Romantic Collection (2021) [MP3|320 Kbps] <Vocal, Chillout, Lyric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893770.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Boyz Ii Men - Why Christmas
-002. Seawayz & Sollito - Serenade
-003. Brijean - Wifi Beach
-004. Kina feat. Yaeow - Wish I Was Better(   Читать дальше...   )Жанр: Vocal, Chillout, LyricПродолжительность: 06:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DE5D2BDFA22CFB2808E6E15EE7BFD1B000C9AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493785   (893684) от 04.09.2021
-
-VA - Лето, гуд бай (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zivert - Тебе (4:34)
-02. Lorde - Mood Ring (3:45)
-03. Bahh Tee, Turken - Кто я без тебя (2:59)
-04. Звонкий, Мари Краймбрери - Как дела, малыш (2:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F7B0CEF0472A854AD3F705D784C0EEA5ED5D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493496   (893675) от 04.09.2021
-
-VA - Shazam & Apple Music Chart (Россия Топ 100 Август) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893675.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Konfuz - Очень-Очень (2:44)
-002. Dima Bilan, Zivert - Это была любовь (3:31)
-003. Dzharakhov, Mary Gu - Я в моменте 2 (2:20)
-004. BRANYA, MACAN - Пополам (2:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145E7023F610A5F9318B85600D0FFAC032AFC69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370844   (893548) от 29.03.2020
-
-VA - German Top 100 Single Charts 27.03.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Dardan x Monet192 - H <3 T E L
-03. Topic - Breaking Me (feat. A7S)
-04. SAINt JHN - Roses(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE5F7DBC14335CC5CE935D6A4B8029F414AD2D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993908   (893520) от 06.03.2016
-
-VA - Самые Популярные Хиты Радиостанций (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Егор Крид - Я Останусь
-02. Rihanna - Work ft. Drake
-03. Полина Гагарина - Не Пара
-04. Rihanna - Kiss It Better(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AA05C4ACCBB5104E4A79B4F62F4A5D0CFDCBB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493755   (893396) от 04.09.2021
-
-VA - Русское Радио. Лучшее '2021 (04.09.2021) (2021) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893396.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3-ий Январь - Питер-Москва
-002. Alina Artts, Slider & Magnit - Белые цветы
-003. Amri - Звезда Тик-Ток
-004. Anna Sedokova - Не люби его(   Читать дальше...   )Жанр: ПопПродолжительность: 09:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C916A67248489A19A6C628BFF386BA00962E26F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1228615   (635826) от 01.06.2018
+
+Kataklysm - Meditations (2018) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guillotine
+02. Outsider
+03. The Last Breath I’ll Take Is Yours
+04. Narcissist(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FEAC6A8218736D0B1A1980803DE5AEC73492E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228622   (635699) от 01.06.2018
 
 Ghost - Prequelle (2018) Deluxe Edition [MP3|320 Kbps] <Heavy Metal, Occult Rock>
@@ -717,35 +746,6 @@ In Cauda Venenum - In Cauda Venenum (2015) [MP3|320 кб/с]<Post-Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD8AB3DF613EC5BE4A13AF5391CFF71112591A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909757   (626520) от 18.06.2015
-
-Amrinan - Songs To Son (2015) [MP3|320 кб/с]<Power / Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better World
-02. Favorite Sons
-03. Here Comes The End Of Time
-04. The Tear(   Читать дальше...   )Жанр: Power Metal / Progressive MetalПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21DE7C244C15DB59DFA836CF45340C281591254
 ```
 
 https://mybot314.ru/tekegram_catalog/

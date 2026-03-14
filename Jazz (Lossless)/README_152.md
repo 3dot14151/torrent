@@ -1,3 +1,93 @@
+###  Публикация: 1309755   (549360) от 21.06.2019
+
+Scott Bradlee's Postmodern Jukebox - Jazz Age Thirst Trap (2019) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Soul, Covers>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практически каждый релиз этой группы - это маленький спектакль с замечательными актерами. Я уже рассказывал про один из их альбомов. С тех пор вышло несколько релизов (почти все они есть в клубе благодаря стараниям коллеги01. Old Town Road  (feat. Miche Braden) (3:54)
+02. Young Dumb & Broke (feat. Scotty Grand) (3:28)
+03. Misery Business (feat. Scotty Grand)  (4:04)
+04. Сhandelier (feat. Scotty Grand)  (4:39)(   Читать дальше...   )Жанр: Jazz, Soul, CoversПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98740C9386218548955B633A6B4BF22ABEA40B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047490   (549258) от 30.08.2016
+
+Fats Waller - Ain't Misbehavin' (1990) [WavPack|Lossless|image + .cue] <Jazz, Stride>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступления Томаса Фэтса Уоллера всегда были непредсказуемы.
+Из-за своей репутации шута и клоуна он так и не смог добиться имиджа серьезного джазового музыканта.
+Виртуозный пианист и изобретатель целого музыкального жанра и приема в одном флаконе, он больше всего любил играть на органе.
+Говорят, что музыкальные магазины присылали ему в гостиничные номера переносные (   Читать дальше...   )01. Ain't Misbehavin' (2:58)
+02. Until The Real Thing Comes Along (3:25)
+03. Two Sleepy People (3:04)
+04. I'm Gonna Sit Right Down And Write Myself A Letter (3:34)(   Читать дальше...   )Жанр: Jazz, StrideПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68A8E6FBB5EFF52235D988BC7971F1DB8257AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047832   (548504) от 31.08.2016
+
+Charles Gayle Quartet - Blue Shadows (1993) 2008, Silkheart[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Inside the Sun [03:01]
+ 02.Blue Shadows [11:31]
+ 03.Eternity Promised 1 [17:14]
+ 04.Eternity Promised 2 [02:09](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26D1BDC804ACB7F1DDF3816BFC9F02A102D7876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047919   (548500) от 31.08.2016
 
 Johnny "Hammond" Smith - Talk That Talk (1960) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -661,93 +751,6 @@ Hank Crawford - Mr. Blues (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:323884CFBF6FBDDEF1B8F12333949A0A91E269B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048954   (544970) от 04.09.2016
-
-Iiro Rantala, Lars Danielsson, Peter Erskine - how long is now? (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage     (04:21)
-02. How Long Is Now      (04:02)
-03. Snapchat      (04:13)
-04. Taksim by Night      (04:54)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213CBC2E44506D8B73F552562DA5649DA38C7A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049284   (544926) от 04.09.2016
-
-Teddy Wilson And His Piano - Intimate Listening (1954) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The One I Love [03:01]
- 02.Darn That Dream [02:18]
- 03.Tea For Two [03:20]
- 04.Oh, Lady Be Good [03:02](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Piano JazzПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8DD388311E5FDE4FF1503CB424CF5FA3A29538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049114   (544921) от 04.09.2016
-
-John Scofield - Still Warm (1986) Gramavision[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Techno [07:31]
- 02.Still Warm [06:03]
- 03.High and Mighty [05:18]
- 04.Protocol [03:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3277E3FF2F3D588343AC1C5F250083A60457EF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

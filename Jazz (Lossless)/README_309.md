@@ -1,3 +1,90 @@
+###  Публикация: 1700708   (116848) от 18.02.2024
+
+Svend Asmussen - June Night (1983) 1993, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. June Night [4:20]
+02. Sweet Georgia Brown [3:29]
+03. Lazy River [5:19]
+04. Nadja [5:01](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0518A89AF8F6122FE53B25B7D37EBFFD35D28C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700707   (116832) от 18.02.2024
+
+Donald Byrd - At The Half Note Cafe, Vol. 2 (1960) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeannine [13:12]
+02. Pure D. Funk [6:11]
+03. Between the Devil and the Deep Blue Sea [9:55]
+04. Theme from Mr. Lucky [10:53](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29D0B127A93C9434970DA1E3CF47AB7A3D5BFD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700701   (116827) от 18.02.2024
+
+Dick Haymes - The Name's Haymes! (1958) 2015, Sepia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Hot Summer [2:55]
+02. So Far [3:40]
+03. You Stepped Out of a Dream [2:16]
+04. This Time the Dream's on Me [3:16](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 01:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD41280D328427A3C7AF84508A0C45C3DC0C7CEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700712   (116824) от 18.02.2024
 
 Joshua Redman, Ron Miles, Scott Colley, Brian Blade - Still Dreaming (2018) Nonesuch [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -658,93 +745,6 @@ Blue Mitchell - Blue's Moods (1958 - 1960) 2011, Essential Jazz Classics [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BF2337C78B013E9C7B4C31B6B226689B1766C20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701756   (116165) от 22.02.2024
-
-Hipshack - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funkalo (4:30)
-02. Scribbles & Grits (3:55)
-03. Generation Dongle (4:12)
-04. 2024 (1:12)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DCAE55D1B08038A93B9CB7B801B3AE12D35220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701698   (116164) от 22.02.2024
-
-Joe Pass - Resonance (1974) 2000, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Could Happen to You [5:26]
-02. Corcovado [5:31]
-03. Too Late Now [4:30]
-04. How Deep Is the Ocean? [7:11](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 01:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1A94D8F4D3DB623DA69C08A403640CEB9F0BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701702   (116163) от 22.02.2024
-
-Stefan Karlsson - Below Zero (1993) Justice Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ack Varmland du skona [4:30]
-02. All You Were to Us [5:44]
-03. El Ontono [5:58]
-04. In Love in Vain [6:25](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFC31F2D2ED05C1FF40584A372BB8E226F416BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

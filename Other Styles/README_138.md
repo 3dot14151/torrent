@@ -1,3 +1,148 @@
+###  Публикация: 1336009   (282202) от 05.11.2019
+
+Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Girl (01:03)
+02. Formula (01:32)
+03. Preparing For Call (00:29)
+04. Forever (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92299BBE581A2751D6F1B9C03CC78BD606CE797C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081176   (282141) от 10.12.2016
+
+Two Steps From Hell - Vanquish (2016) [FLAC|Lossless|WEB-DL|tracks]<Neo Classical, Symphonic, Epic Orchestration>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall of the Fountain World (04:39)
+02. Pegasus (04:30)
+03. Vanquish (feat. Felicia) (03:16)
+04. New World Order (03:22)(   Читать дальше...   )Жанр: Neo Classical, Symphonic, Epic Orchestration, ChorПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA7B2E41E2C78A726DAD4DBB64B37B0F7505B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964520   (282104) от 11.12.2015
+
+David Thomas - Samsara, Vol. 13 (Ethnic Opera) (2015) [MP3|320 кб/с]<New age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Escucha El Sonido De Tu Corazon
+02. Listen To Your Heart
+03. Live Life To The Fullest
+04. Love Is Eternal(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22ACEBDD0D5A4C35BF855402DC0D0143EEE837BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336010   (282064) от 05.11.2019
+
+Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Girl (01:03)
+02. Formula (01:32)
+03. Preparing For Call (00:29)
+04. Forever (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA99D0B94EC18FD04C602DBAE10D28BACD2BA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 423717   (281862) от 17.12.2011
+
+Paul Mauriat - The Russian Album (1993) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plaine, ma Plaine (3:02)
+02. Les deux Guitares (3:35)
+03. Le Sarafan Rouge (2:53)
+04. Katioucha (2:03)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264369   (281089) от 23.11.2018
 
 Евгений Алексеев - Piano Tribute to Гражданская Оборона (2018) [FLAC|Lossless|image + .cue] <Instrumental, Piano>
@@ -594,148 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E055CCC5B8CDE1F4C4F6F356CB4FFEDE9F586936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081991   (279107) от 12.12.2016
-
-Neil H - Syllabus Of Magic - Merlins Quest (2010) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Merlins Quest
-02 - Time Beyond The Mist
-03 - Mystic Journey
-04 - Pathway To Wisdom(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8F5EBBE4AD889F85CC34459B816249E8998E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336002   (279062) от 07.11.2019
-
-Best Relaxation Music - Kundalini Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279062.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Manipura 03:54
-2. Amazonia 05:37
-3. Restless Spirits After Nightfall in the Mogollon Rim 08:35
-4. Rain of Flowers 05:22(   Читать дальше...   )Жанр: New age, Meditative, RelaxПродолжительность: 01:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A645D62AB37D002DAF6DAC9873E678C21268AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 143074   (279028) от 24.11.2018
-
-Various Artists - Наши песни - Песни Победы (2001) [APE|lossless]<Военные песни>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Военные песниПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9851A021B636A2C72DE7C8F2F7A1C572F908118E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336104   (278955) от 07.11.2019
-
-Мiръ Духа - Путь (2016) [MP3|320 Kbps] <New age, World music, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вдох Творения
-02. Искры Богов
-03. Сквозь Миры
-04. Новое начало(   Читать дальше...   )Жанр: New age, World music, AmbientПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB21ADDE019B4CEEED196533D7D466FB1CB25EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082124   (278762) от 12.12.2016
-
-VA - Office Christmas Party (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Calvis - Intro (00:11)
-02. DJ Calvis - Deck Da Club Intro (00:05)
-03. Ying Yang Twins - Deck Da Club (03:41)
-04. The Struts - Kiss This (02:57)(   Читать дальше...   )Жанр: Soundtrack,Продолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FCD94613006A1DAEE4294EE25D6C9150EC62898
 ```
 
 https://mybot314.ru/tekegram_catalog/

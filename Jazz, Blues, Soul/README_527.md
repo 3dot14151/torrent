@@ -1,3 +1,177 @@
+###  Публикация: 1753583   (103813) от 05.10.2024
+
+Carta Oro - Make a Mess (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vinicius Goetzke Barbosa - Love of a Madman (2:55)
+02. Figo e a Vespa (3:29)
+03. Spell (4:18)
+04. Everybody Makes a Mess Sometimes (3:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5329426C842012E2A3D4E229B40763D7BC908952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753591   (103812) от 05.10.2024
+
+Daniel Morais - Synergy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forbiden Love (3:48)
+02. Cruising Down (3:10)
+03. I Only Want You For Myself (4:00)
+04. Winter's Night (2:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5552BF72C06AE2F710BD0BB84325046C758DEFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753560   (103811) от 05.10.2024
+
+Doctor Velvet - New Breed (2024) [FLAC|Lossless|WEB-DL|tracks] <Rhythm & Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Jungle (4:39)
+02. Road To Nowhere (2:22)
+03. Messed Up (2:05)
+04. Snake Pit (Alternate version) (2:43)(   Читать дальше...   )Жанр: Rhythm & BluesПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871E20D16CA9C67D1FAC57E3068531272396ED75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753569   (103810) от 05.10.2024
+
+Blue Moon Marquee - New Orleans Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Rat Swing (3:39)
+02. Ain't Going Down (3:19)
+03. Let's Get Drunk Again (3:48)
+04. Shake It and Break It (3:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC055F5916387BD5EE28F190F035F026B6F99AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753585   (103802) от 05.10.2024
+
+Catfish John Tisdell - I Hear the Blues Calling Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockabilly Boogie (3:41)
+02. Help the Poor (4:55)
+03. I Got My Eyes on You (3:59)
+04. I Hear the Blues Calling Me (5:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F1BEA08B969DC4487E7B834B094BA45EC4FFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753589   (103799) от 05.10.2024
+
+CultistOne - Blues from the Abyss (A Lovecraftian Blues Journey) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispered Shadows (4:00)
+02. Tempest Mountain Blues (3:58)
+03. The Cannibal's Delight (3:15)
+04. Broken Dreams (2:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3059F5B00129CAA0276A857394C6779DA6F1EC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753546   (103798) от 05.10.2024
 
 Cannonball Adderley - Burnin' In Bordeaux: Live In France (1969) 2CD, 2024, Elemental Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -569,180 +743,6 @@ Joe Pass - True Virtuoso (2005) Victor [FLAC|Lossless|tracks + .cue] <Bop, Mains
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B66EA3BF73BDD7A8F48092B65B75460B18DE8D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754780   (103684) от 12.10.2024
-
-VA - Summer Bossa Nova (Relaxing Brazilian Jazz Bossa) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulstance - Summer Memories (4:16)
-02. Lo Greco Bros - Borboleta da Cidade (4:15)
-03. Giuseppe Milici - Passos De Esperança (3:15)
-04. DJ Rodriguez - Nao Para (5:34)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890308A708D5A34165B0923347262FC64CFDE004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754753   (103681) от 12.10.2024
-
-VA - Funk'N'Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Nobody (4:46)
-02. Firecracker (6:18)
-03. Word On The Street (Feat. Rappin´ 4-tay) (5:28)
-04. Dancin' In The Key Of Life (4:57)(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 01:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CA2B295B578E9C028535C75C4277E8F94CC7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754823   (103662) от 12.10.2024
-
-Ted Heath & His Music - Listen To My Music (2003) Living Era [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus 1 [2:50]
-02. East of the Sun [3:23]
-03. Bakerloo Non-Stop [2:48]
-04. Donegal Cradle Song [2:35](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44652EC3936A741ADBA5D1B9CACB9C52FECD3179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754748   (103661) от 12.10.2024
-
-VA - Acid Jazz Today 4 (Chapter Four) (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alixia Mistral - Run Away Or Face The Day (2:45)
-02. The Smoke Orchestra - Henrietta Leavitt and the cepheids variables (3:23)
-03. Anna Fondi - Nothing Better Than You (4:49)
-04. Giulio Campagnolo & The Jazz Funkers - Groove Giallo (5:17)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AABBD1CD7FD34A1933F67BCE0AEF1F4E5D43A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754774   (103660) от 12.10.2024
-
-VA - Nu Acid Jazz Party For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G.Pantelidis - Hey Dude (4:12)
-02. Wendy D. Lewis - Human (3:15)
-03. Pomante - Bua (4:09)
-04. Lehmanns Brothers - I Wanna Be (Micky More & Andy Tee Radio Edit) (3:49)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F6C5BF6FBD4C4B22ED5F2BB11CB555D12FB5C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754759   (103658) от 12.10.2024
-
-VA - It's A Groovy Thing! Vol.5 (The Amazing Jazz Funk Afro Sound) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ERIN collective - Alternative Positive (7:44)
-02. Jestofunk - Colour (5:50)
-03. Vito Lalinga (Vi Mode Inc. Project) - Funky Tropicale (Lego Edit Afro Cut) (5:30)
-04. The Smoke Orchestra - Aphrodesia (4:41)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72B2D5A65F74C09948B2EAA0060EEC01E92183D
 ```
 
 https://mybot314.ru/tekegram_catalog/

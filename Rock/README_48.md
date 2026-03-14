@@ -1,3 +1,61 @@
+###  Публикация: 929377   (519593) от 19.08.2015
+
+Tokyo Rose - New American Saint (2005) [MP3|320 кб/с]<Pop Punk, Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spectacle (03:38)
+02. New American Saint (03:26)
+03. Goodbye Almond Eyes (04:03)
+04. The Tin Man Gets His Heart (04:45)(   Читать дальше...   )Жанр: Pop Punk, Alternative Rock, IndieПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983EB95F9808C1817134F2DE9077E8967E027B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929314   (519586) от 19.08.2015
+
+Rare Earth - Get Ready (1969) [MP3|320 кб/с]<Rock, Funk Rock, Blues, Acid Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519586.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Magic Key
+2. Tobacco Road
+3. Feelin' Alright
+4. In Bed(   Читать дальше...   )Жанр: Rock, Funk Rock, Blues, Acid RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FC2268BD3FE341FED439557E5D19240955E1B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929417   (519441) от 19.08.2015
 
 Eric Clapton - Eric Clapton & Friends - The Album (2015) [MP3|320 кб/с]<Rock, Blues Rock>
@@ -708,64 +766,6 @@ Spock's Beard - The Oblivion Particle (Digipak Edition) (2015) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7C12C7B64995332AFEB356AF9CA51989CDFBEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932226   (509469) от 29.08.2015
-
-Edison's Children - Somewhere Between Here And There... (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Years (John Mitchell Single Edit)
-02. Stranger In A Foreign Land
-03. Ever Be Friends
-04. Solstice(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA2FA4E53603DDDE192523C5E6D1977DF2D0994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932327   (509372) от 29.08.2015
-
-Julien-K - We’re Here With You (2012) Deluxe Edition [MP3|320 кб/с]<Industrial Rock, Synth Rock, Electro>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – We’re Here With You
-02 – Surrounded By Cowards
-03 – Cruel Daze Of Summer
-04 – Breakfast In Berlin(   Читать дальше...   )Жанр: Indie Rock, Electronic, RockПродолжительность: 01:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACC1B42464772C2FEC628FE299C2154D12CBD13
 ```
 
 https://mybot314.ru/tekegram_catalog/

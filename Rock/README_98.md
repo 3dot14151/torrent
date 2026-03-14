@@ -1,3 +1,61 @@
+###  Публикация: 1773260   (71670) от 17.01.2025
+
+Blood, Sweat & Tears - Sweet Dreams (Live Amsterdam 1970) (2025) [MP3|320 Kbps] <Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fire and Rain (Live) [00:04:21]
+02 - Somethin’ Comin' On (Live) [00:06:31]
+03 - 40,000 Headmen (Live) [00:05:10]
+04 - I Can’t Quit Her (Live) [00:03:56](   Читать дальше...   )Жанр: Jazz RockПродолжительность: 01:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB9C111C6CC2B656D5F1278D8A4669A4FB366FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773271   (71669) от 17.01.2025
+
+Elvis Costello - King Of America & Other Realms (2024) Super Deluxe, Remaster, 2024,  UMe - Elvis Costello [MP3|320 Kbps] <Country Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Big Light (Live) [00:03:02]
+02. Only Daddy That'll Walk The Line (Live) [00:02:48]
+03. Our Little Angel (Live) [00:04:28]
+04. It Tears Me Up (Live) [00:03:24](   Читать дальше...   )Жанр: Country Rock, Rock & RollПродолжительность: 4 CD, 03:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5B580FD51AB9FBC6CEA8D7166E1D02AD041928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774068   (71635) от 18.01.2025
 
 The Borstal Boys - Time Bomb (2025) [MP3|320 Kbps] <Classic Rock, Rock'n'Roll, Blues Rock>
@@ -687,64 +745,6 @@ Guana Batz - Rockin' Banshee (2025) [MP3|~245 Kbps (V0)] <Rock, Psychobilly>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:333EFF84CCF0089DE20863DABE728B370BBFD70D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717916   (58893) от 22.04.2024
-
-Smokie - Best Of Smokie 3CD Box Set (2002) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay Back In The Arms Of Someone
-02. Needles And Pins
-03. Oh Carol
-04. For A Few Dollars More(   Читать дальше...   )Жанр: Pop RockПродолжительность: 03:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027C343D6614AFDC07D74A86270752FD64B44674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720400   (57737) от 03.05.2024
-
-Various Artists - Punk Floyd: A Tribute To Pink Floyd (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eater - Eclipse (03:08)
- 02. Jah Wobble - Time (04:02)
- 03. U.K. Subs - Comfortably Numb (04:59)
- 04. Fear - Astronomy Domine (02:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3B9AB235D7F5E67DC0B6D681B3DB6976327BE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

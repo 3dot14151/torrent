@@ -1,3 +1,148 @@
+###  Публикация: 1717511   (111135) от 20.04.2024
+
+SeeYouSpaceCowboy - Coup de Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Emocore, Post-Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allow Us To Set The Scene [00:02:26]
+02. Subtle Whispers To Take Your Breath Away [00:03:06]
+03. And the Two Slipped Into The Shadows [00:03:25]
+04. Red Wine And Discontent [00:03:33](   Читать дальше...   )Жанр: Emocore, Post-HardcoreПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCEE86CBE38D7406B526100072D663B21597882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717775   (111110) от 21.04.2024
+
+Warfect - Spectre of Devastation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spectre Of Devastation
+02. Pestilence
+03. Rat King
+04. Left To Rot(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2824F01F2C95FC9787A4AA945F737EE835F2DD44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717952   (111077) от 22.04.2024
+
+Tarja Turunen - What Lies Beneath (2010) Special Edition, 2024, earMUSIC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111077.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Anteroom of Death (4:45)
+2. Until My Last Breath (4:26)
+3. Naiad (7:09)
+4. Dark Star (4:43)(   Читать дальше...   )Жанр: Symphonic Metal, Gothic MetalПродолжительность: 02:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9241B8C77B03A027993DC88BD53A874A5A79181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715639   (111072) от 22.04.2024
+
+Poisonblack - Studio Albums (6 releases) (2003-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Groove/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Poisonblack — финская метал-группа, возглавляемая бывшем фронтменом Sentenced, певцом и гитаристом Вилле Лайхиала.2003 - Escapexstacy
+2006 - Lust Stained Despair
+2008 - A Dead Heavy Day
+2010 - Of Rust And BonesЖанр: Heavy/Groove/Gothic MetalПродолжительность: 05:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C2594363B9035A13F3A27CFCB0A75CF11EE2FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717915   (111067) от 22.04.2024
+
+U.D.O. - Solid (1997) Released, 2011, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Independence Day
+02. Two Faced Woman
+03. Desperate Balls
+04. The Punisher(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400A9C0F401B1D74AC86D5F4B27B5E510137712C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717892   (111066) от 22.04.2024
 
 Dale Thompson and the Boon Dogs - Unfinished Business (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -600,151 +745,6 @@ Jean-Jacques Milteau - Key To The Highway (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B15948604CCDD1D9658B9578849F746E13A7EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718265   (110968) от 24.04.2024
-
-U.D.O. - Mission No. X (2005) Released, 2012, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Embarkation
-02. Mission No. X
-03. 24/7
-04. Mean Streets(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39A55D62CA8AC5044E4A2B73413159B02A1B037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718260   (110965) от 24.04.2024
-
-Brace For War - Chromium Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chromium Blues (4:20)
-02. Monterey Blues (4:47)
-03. Seraphim Blues (2:59)
-04. Too Far Gone (5:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174AB42CD44F94D3B14F84A4A9B0CAA6257E3C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718319   (110961) от 24.04.2024
-
-Shawn Kellerman - Kell's Kitchen (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SKB (4:02)
-02. Drivin' (3:49)
-03. Show Me What You Got (4:19)
-04. We Are Blues Men (4:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D888AF51E522BD50EB40165436EB2E58344089C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718551   (110927) от 25.04.2024
-
-Accept - Humanoid (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diving Into Sin (4:01)
-02. Humanoid (4:35)
-03. Frankenstein (4:15)
-04. Man Up (5:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99D0556F96D0F44A41DC4E73D6E92681F1BB20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718475   (110917) от 25.04.2024
-
-Kickin Valentina - Star Spangled Fist Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gettin Off (3:52)
-02. Dirty Rhythm (4:21)
-03. Fireback (3:15)
-04. Man on a Mission (4:35)(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC9A548AB99FBD221E694C222CD7069D555826C
 ```
 
 https://mybot314.ru/tekegram_catalog/

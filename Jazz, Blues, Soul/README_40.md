@@ -1,3 +1,61 @@
+###  Публикация: 1477211   (1011124) от 14.06.2021
+
+Ella Fitzgerald - Seven Classic Albums (1959 - 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011124.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Somebody Loves Me [2:36]
+02. Cheerful Little Earful [2:06]
+03. You Make Me Feel So Young [2:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 04:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D274E47CC7EF5B356191394EB30A4FFD5ABC8EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934839   (1010966) от 15.06.2021
+
+Abraham Burton - The Magician (1995) Enja[FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Get Started [08:26]
+02. Little Melonae [07:51]
+03. An Addition To The Family [10:26]
+04. It's To You [08:55](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA9E1D6C62CA8307D05805C3D2DA86C729AA12D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478078   (1010686) от 17.06.2021
 
 Madeline Bell & The Swingmates - Girl Talk (1995) [FLAC|Lossless|image + .cue] <Soul-Jazz>
@@ -687,64 +745,6 @@ No Possession - Third Time's a Charm (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:449ED6D6B5E3D82D295BF0D5109A0421B98186C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479694   (1009464) от 25.06.2021
-
-Stan Getz - Communications '72 (2007) Gitanes Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Communications '72 [3:41]
-02. Outhouse blues [5:17]
-03. Now you've gon [4:37]
-04. Back to Bach [3:35](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDBC6F9F19DAAFF112F5CB090E5126C8664C0FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479961   (1009344) от 26.06.2021
-
-Amos Hoffman, Edwin G. Hamilton - Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz Funk, Groove, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009344.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Let's Have Fun - 03:30
-2. American Dream - 04:12
-3. Southern Hospitality(Feat. Mark Rapp) - 04:01
-4. Genuine Love - 04:17(   Читать дальше...   )Жанр: Fusion, Jazz Funk, Groove, SoulПродолжительность: 00:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB1A03D930F659F92167610407DFE56AAF298DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

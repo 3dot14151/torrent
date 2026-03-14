@@ -1,3 +1,29 @@
+###  Публикация: 536839   (509744) от 23.08.2012
+
+ATB - Authentic Reaction (2012) [H.264/720р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34281D21D9B9CB7406206FD1B6216FD362F3997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536713   (509742) от 23.08.2012
 
 DJ E-MaxX - Like It Sexy (2012) [H.264/1080р] WEBRip
@@ -651,32 +677,6 @@ Audio Girls feat. Mr. On - My Prisoner (2012) [H.264/1080р] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18F5268D6D6B1ABFCBA7B851A1EDDA863875B946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544098   (491714) от 07.09.2012
-
-Leticia Sabater - Mr. Policeman (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2A24876440ABA11A4B63D36D395EC0E6A0BCE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

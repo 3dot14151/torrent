@@ -1,3 +1,90 @@
+###  Публикация: 1478629   (1010116) от 20.06.2021
+
+VA - Golden Songs 80s (2021) [MP3|320 Kbps] <Pop, Rock, Disco, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010116.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Levert - Casanova
+002. Debarge - Rhythm Of The Night
+003. Duran Duran - Hungry Like The Wolf
+004. Rod Stewart - Young Turks(   Читать дальше...   )Жанр: Pop, Rock, Disco, RetroПродолжительность: 08:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1B9D1858EB6C4E50C96E83A44C92741BCDB3E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478441   (1010107) от 20.06.2021
+
+VA - Music News vol.109 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Вера Брежнева - Розовый Дым (03:27)
+ 002. Aisha - Выдуманы (03:45)
+ 003. Юлия Пушман - Эй, Бой (02:20)
+ 004. Alice Change - Никому (04:02)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90639832DB9D63F45A533E2BEC9797B0C6DAD78C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478639   (1010095) от 20.06.2021
+
+VA - All Stars Of Vocal Trance (2021) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010095.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andy Cain - Try To Understand
+002. Mystic Experience - Light Up The Night
+003. Last Soldier & Vahid Ghandizadeh - Find Myself
+004. Raz Nitzan & Kate Louise Smith - This Time(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 07:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:869BFBB351A490F4B13CB1A67F4205BF945B6E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478895   (1009933) от 21.06.2021
 
 VA - Summer Chill Pop (2021) [MP3|320 Kbps] <Pop>
@@ -658,93 +745,6 @@ VA - Tonight I Am The Music (2021) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98AA8C012CD69D6F130EFA596C79EBEB60B6C074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480273   (1008986) от 28.06.2021
-
-VA - National Pop Dance Music (Vol.20) (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008986.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mitch Keller - Wir Sind Immer Noch Hier
-002. Teddy Karo - Sag Mir Wann
-003. Semino Rossi - Oh No Senorita
-004. Marianne Rosenberg - Fuer Immer Nur Da(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 08:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FE278E4D587FAFA2A8908E1908B273A15781C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480509   (1008935) от 28.06.2021
-
-VA - Rock Blues Bar (2021) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008935.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Josh Smith - Clover
-002. Stereophonics - Restless Mind
-003. Tim Staffell - Redwood League
-004. New Orleans Heartbreakers - Dock Of The Bay(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 08:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED02CB1153B03F44029F9024C59AC2E0C1E7FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481074   (1008609) от 01.07.2021
-
-VA - The Space Mechanics (2021) [MP3|320 Kbps] <Future House, Electro, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008609.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Johannes Brecht - Deep Down
-002. Kenshi Kamaro - Q
-003. Sb-Six - Meadows
-004. Franco Giacusa - It's Time The Game(   Читать дальше...   )Жанр: Future House, Electro, EDMПродолжительность: 11:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7074BB52D6FB2F9FF4037BB044FE31528C95EC46
 ```
 
 https://mybot314.ru/tekegram_catalog/

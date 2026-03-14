@@ -1,3 +1,119 @@
+###  Публикация: 1794480   (67272) от 29.04.2025
+
+Dream Theater - Parasomnia (2025) [WavPack|24/96|image + .cue|Vinyl-Rip] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Arms Of Morpheus
+02. Night Terror
+03. A Broken Man
+04. Dead Asleep(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A2ED0173403F6EEE818F1F57F38C31D4A417AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794402   (67242) от 29.04.2025
+
+Periphery - Periphery II: This Time It's Personal (2012) Released, 2019, Sumerian Records [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67242.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Muramasa
+A2 Have a Blast
+A3 Facepalm Mute
+A4 Ji(   Читать дальше...   )Жанр: Progressive Metal, MetalcoreПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646A55C3C5D5065006D400E72C435F375C781E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794546   (67239) от 29.04.2025
+
+Samael - Ceremony of Opposites (1994) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67239.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Black Trip
+A2 Celebration Of The Fourth
+A3 Son Of Earth
+A4 Till We Meet Again(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54BBFD6CB7B8F15026F8B2670CC3C6F5B503AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794463   (67232) от 29.04.2025
+
+The Absence - Studio Albums (6 releases) (2005-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67232.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Absence - метал-группа из Тампы, Флорида, США. Действует с 2002 года.2005 - From Your Grave
+2007 - Riders Of The Plague
+2010 - Enemy Unbound
+2018 - A Gift For The ObsessedЖанр: Melodic Death MetalПродолжительность: 05:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A5970BA7176B7D569D87FC164325C06F7E7146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794855   (67205) от 01.05.2025
 
 VA - He, Kleine Linda (1977) Compilation, Russian Labels [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
@@ -629,118 +745,6 @@ Raise Hell - шведская метал-группа. Основана в 1996 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1110789C343DC51441031D57FDA04564AF33794E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797144   (66858) от 14.05.2025
-
-Believer - Dimensions (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Technical Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone
-02. Future Mind
-03. Dimentia
-04. What Is But Cannot Be(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF922E0F9CE2E6E78A19DED3B2BF38842C1C1DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797255   (66834) от 15.05.2025
-
-Blood Incantation - Timewave Zero (2022) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66834.jpg" />
-</div>
-
-
-###  Подробнее
-
-A. Io (20:55)
-B. Ea (19:37)Жанр: Death MetalПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569861649132B22C712BA97C771CBDFE30872D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797199   (66826) от 15.05.2025
-
-Novembre - Studio Albums (8 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Gothic/Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Novembre — итальянская метал-группа, образованная в Риме в 1990 году.1994 - Wish I Could Dream It Again
-1996 - Arte Novecento
-2000 - Classica
-2001 - Novembrine WaltzЖанр: Progressive Gothic/Doom/Death MetalПродолжительность: 09:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DAD989B45B7FDA08C4C8623FB5255A31B3681A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797590   (66762) от 17.05.2025
-
-Blood Incantation - Absolute Elsewhere (2024) [WavPack|32/192|image + .cue|Vinyl-Rip] <Death Metal, Ambient, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66762.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - The Stargate
-B1 - The MessageЖанр: Death Metal, Ambient, Progressive MetalПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAEF53C8D9392704DEDE2EC2EDD598E3C36B976D
 ```
 
 https://mybot314.ru/tekegram_catalog/

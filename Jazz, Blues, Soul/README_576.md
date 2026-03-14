@@ -1,3 +1,177 @@
+###  Публикация: 1758757   (38283) от 04.11.2024
+
+Ray Anthony - Capitol Collectors Series (1949 - 1962) 1991, Capitol Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dreamer’s Holiday [3:11]
+02. Sentimental Me [2:51]
+03. Count Every Star [3:03]
+04. The Man With the Horn [2:31](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE107036238ECB6638B7D97C44068C0EF682B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758759   (38280) от 04.11.2024
+
+Eric Dolphy - Out To Lunch! (1964) 1985, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hat and Beard [8:28]
+02. Something Sweet, Something Tender [6:06]
+03. Gazzelloni [7:25]
+04. Out to Lunch [12:10](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Avant-Garde JazzПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964FF8348AC1839AB1F60E6CCFA5047C2B4F1C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758988   (38190) от 05.11.2024
+
+VA - Funk Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venus Ship - Tupac Amaru (4:32)
+02. Lo Greco Bros - Love and Emotion (Instrumental Funk) (6:09)
+03. The Smoke Orchestra - Funky Generation (3:17)
+04. Kaigo - Ain't Gonna (Instrumental Funk) (3:29)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EF830C4182B512E2D9820D2AA915BB18EB6B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758919   (38174) от 05.11.2024
+
+Lester Young - The Complete Aladdin Recordings (1942 - 1947) 2CD, 1995, Blue Note [APE|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumpin' with Symphony Sid [3:11]
+02. No Eyes Blues [3:00]
+03. Sax-O-Be-Bop [2:53]
+04. On the Sunny Side of the Street [3:00](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2AA94EEAF07987F3A3DD9E40AD641CB0FDED58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759063   (38087) от 06.11.2024
+
+Beth Hart - You Still Got Me (2024) [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38087.jpg" />
+</div>
+
+
+###  Подробнее
+
+You Still Got Me - одиннадцатый сольный студийный альбом американской певицы Beth Hart. Это первый студийный релиз с оригинальным материалом за пять лет после War in My Mind (2019). Альбом еще раз демонстрирует саднящий вокал и эмоциональную глубину певицы и подтверждает ее репутацию певицы, обладающей одним из "самых неотразимых голосов" в современном (   Читать дальше...   )01. Savior With A Razor (feat. Slash) (4:48)
+02. Suga N My Bowl (feat. Eric Gales) (3:33)
+03. Never Underestimate A Gal (3:07)
+04. Drunk On Valentine (5:22)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F772758DE2B93CFA84F852F383A9485D4C60B143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759419   (37879) от 08.11.2024
+
+Gerry Mulligan with Jane Duboc - Paraiso: Jazz Brazil (2013) First Impression Music [FLAC|Lossless|image + .cue] <Vocal Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paraiso [5:37]
+02. No Rio [4:10]
+03. Sob A Estrela [5:40]
+04. O Bom Alvinho [5:06](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00382254B75C08AD133C2A8F0CAACE6F9D7CE235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759933   (37584) от 11.11.2024
 
 Asamu Johnson & The Associates of the Blues - True Freedom (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ V.A. - Bossa Nova & Latin Vibes Italian Songs Hits (Bossanova Covers of Popular 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F16F17C4F196864E840629414F2761830A4808B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761329   (36661) от 20.11.2024
-
-Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.3 (1953, 1954) 1995, Blue Moon [WavPack|Lossless|image + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Nearness of You [3:41]
-02. Pot Luck [3:55]
-03. Nobody Else But Me [3:34]
-04. With the Wind and the Rain in Your Hair [3:48](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D3FF2FADB2B8E6F3C92EAB776074A517D14339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761580   (36574) от 21.11.2024
-
-Maxwell - Embrya (1988) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Neo Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gestation: Mythos (7:32)
-02. Everwanting: To Want You to Want (6:33)
-03. I'm You: You Are Me and We Are You (Pt Me & You) (5:32)
-04. Luxury: Cococure (5:41)(   Читать дальше...   )Жанр: Funk, Soul, Neo SoulПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1588A2F7061DD170EC0FE485D53EF4A95E5B3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761453   (36556) от 21.11.2024
-
-Frank Sinatra - A Voice On Air (1935 – 1955) 4CD, 2015, Legacy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haunted Heart [2:53]
-02. Wrap Your Troubles In Dreams (Alternate) [2:46]
-03. I’m Looking Over A Four Leaf Clover [2:20]
-04. Nature Boy (Alternate Orchestral Version) [2:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 05:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8ADDD47F88CFED213A9FAA6E3AD255344FF7FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761914   (36486) от 22.11.2024
-
-Michael Kiwanuka - Small Changes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating Parade
-02. Small Changes
-03. One And Only
-04. Rebel Soul(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D438E646ECAAAFEDE715E741B1F62E56FA30BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762393   (36146) от 25.11.2024
-
-The Pointer Sisters / The New Cast Recording - Highlights From "Ain't Misbehavin’! The Fats Waller Broadway Musical (1996) [FLAC|Lossless|tracks+.cue] <Jazz, Stage & Screen>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening (4:22)
-02. Ain't Nobody's Bizness If I Do (1:42)
-03. Honeysuckle Rose (4:15)
-04. Squeeze Me (3:28)(   Читать дальше...   )Жанр: Jazz, Stage & ScreenПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C93070B3256C4332156ED67A32DD674CC3531C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762606   (36045) от 26.11.2024
-
-V.A. - Bossa Nova International Pop Hits (Bossanova Jazz Covers of Popular Songs) (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik - Missing
-02. Neja - All That She Wants
-03. Ely Bruna - Take On Me
-04. Banda Brasileira - As It Was (Bossa Version)(   Читать дальше...   )Жанр: Pop Jazz, Bossa NovaПродолжительность: 01:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402A9669A61453DA592A924B05652F27B127B1ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

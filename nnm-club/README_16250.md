@@ -1,510 +1,38 @@
-###  Публикация: 1576804   (364364) от 15.09.2022
+###  Публикация: 576279   (366692) от 16.11.2012
 
-Александр Фадеев | Метелица (1948) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364364.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рассказе советского писателя Александра Фадеева "Метелица" описываются события гражданской войны на Дальнем Востоке. В центре событий - молодой человек по фамилии Метелица, бесстрашный командир взвода Партизанского отряда. Выполняя задания командира отряда, Метелица попадает в плен...
-Для детей младшего школьного возраста. Иллюстрации В.Ладягина.Жанр: Рассказ, ПовестьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59AD44A1438B4FAC3F7D5B052BA2443925086DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255418   (364363) от 18.10.2018
-
-Кэрол Мортимер | Мучительно прекрасная связь (2018) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грегорио Де ла Круза совсем не волнует, что Лия Фэрбенкс считает его виновным в смерти ее отца. Он не может выбросить образ рыжеволосой красавицы из головы, но Лия продолжает пресекать попытки Грегорио сблизиться, хотя ее тело предательски реагирует на его малейшее прикосновение. Она знает, что не может ему доверять, но Грегорио не остановить, и очень скоро она уже (   Читать дальше...   )Жанр: Современная зарубежная прозаПеревод: А. Ю. ТкачеваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA76334778BD7D737551E83564D4C1376EBF568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576559   (364362) от 15.09.2022
-
-Audrey Horne - Devil's Bell (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364362.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ashes to Ashes (06:48)
-2. Animal (04:09)
-3. Break Out (05:23)
-4. Return to Grave Valley (04:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA268E870C99F83D13B74D4247954818B335F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255497   (364361) от 18.10.2018
-
-VA - Progressive House Autumn Essentials (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elypsis – Adrift At Sea (Original Mix)
-02. Skyline Drive, Allay & Astroleaf – Ocean Boulevard (Original Mix)
-03. LOOPer & Andy Wooding – All We Are (Shomu Remix)
-04. Terry Da Libra – Eunoia (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0AF7FF4D952C87B75C25F4905211F0EB9339DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576659   (364360) от 15.09.2022
-
-Sweet Oblivion Feat. Geoff Tate - Sweet Oblivion Feat. Geoff Tate (2019) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True Colors
-02. Sweet Oblivion
-03. Behind Your Eyes
-04. Hide Away(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964D0AE240EEF4EA78C31EAF6B2226AEB963BF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255320   (364359) от 18.10.2018
-
-Соня Дивицкая | Замуж срочно! (2018) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудно найти девушку, которая не стремилась бы выйти замуж. Ни одна не скажет: «Ой, мне не к спеху». Как только начинает попахивать ЗАГСом – все как ненормальные бегут. И неважно, женщина молода и привлекательна, как Кармен, или невзрачна и великовозрастна, как Анна, полненькая, как Риммочка, или худенькая, как Надин, у нас в России замуж – это всегда срочно. В книге (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785604AE3A22CAF9B12040B449F7EE993C8D0D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576783   (364358) от 15.09.2022
-
-Эрнст Любич. Жена фараона / Das Weib des Pharao (1922) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последняя масштабная костюмная мелодрaма, созданная Любичем в Германии, но уже на американские деньги. Новая продюсерская компания Europäische Film-Allianz предоставила немецкому режиссеру финансовые и технические средства для создания этого грандиозного фильма. Сюжет построен по уже отработанной в «Мадам Дюбарри» схеме – любовный треугольник на фоне бурной (   Читать дальше...   )Производство: Германия, Ernst Lubitsch-Film, Europäische Film-AllianzЖанр: драма, мелодрама, история, немое киноРежиссер: Эрнст ЛюбичАктеры: Эмиль Яннингс, Пауль Бинсфельдт, Фридрих Кюне, Альберт Бассерманн, Гарри Лидтке, Пауль Вегенер, Лида Салмонова, Дагни Сервес, Мади Кристианс, Тина ДитрихПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские встроенные отключаемыеПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F32F50E2857B7B88C57BFD7DF226D061AFA9C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255602   (364357) от 18.10.2018
-
-Журнал | House Beautiful [USA] №11 (ноябрь 2017) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B99D09EEF3775916DECDCC976547F3AB057863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576510   (364356) от 15.09.2022
-
-The Mars Volta - The Mars Volta (2022) [MP3|320 Kbps] <Progessive Rock, Neo-Psychodelia>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blacklight Shine [00:02:55]
-02 - Graveyard Love [00:03:14]
-03 - Shore Story [00:03:15]
-04 - Blank Condolences [00:03:27](   Читать дальше...   )Жанр: Progessive Rock, Neo-PsychodeliaПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1683DAC19D61B092251D0612E256CB805E82EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255496   (364355) от 18.10.2018
-
-TableEdit Pro 1.4.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364355.jpg" />
-</div>
-
-
-###  Подробнее
-
-TableEdit - это простое, чистое и элегантное приложение для электронных таблиц, разработанное специально для macOS. TableEdit отличается минималистичным, но интуитивно понятным интерфейсом и имеет удобные функции, такие как формулы, графики и исчерпывающие варианты стилей ячейки, а также широкие возможности импорта и экспорта.
-
-TableEdit был разработан с нуля, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.07.2018Разработчик: CoreCode LimitedПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB15BACA6AD462B1935AFF58AA156791A8829CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255480   (364354) от 18.10.2018
-
-Gabor Szabo - 1969 (2004) Air Mail [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dear Prudence [2:42]
-02. Sealed With A Kiss [2:46]
-03. Both Sides Now [2:57]
-04. Walk Away Renee [2:49](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C44183393377A7A5856904ED882EC9A977B72D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576350   (364351) от 17.11.2012
-
-VA - Супервечеринка: Хиты без перерыва 4 (2012) [MP3|256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364351.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Потап и Настя - Улелето
-002. Mandy Santos feat. Xuso Jones - Animal
-003. Алена Винницкая - Виноград
-004. Alexandra Stan - Cliche (Hush Hush)
-005. Иван Дорн - Идолом
-006. Rihanna - Diamonds (Shahaf Moran Radio Edit)
-007. ДжаниРадари - Блины
-008. Xonia - Remember (Radio Edit)
-009. Анна Гуричева и Школа - Слезы неба
-010. Leona Avrelina Verano(   Читать дальше...   )Жанр: PopПродолжительность: 05:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C896D2571227303668581FB70D5C756D061CCC79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576647   (364349) от 17.11.2012
-
-MitiS - Deliverance (EP) (2012) [MP3|320 кб/с]<Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deliverance (4:31)
- 02. Don’t Know (4:29)
- 03. Elevation (4:34)
- 04. Let’s Go (6:09)
- 05. Shapes & Sizes (5:08)Жанр: DubstepПродолжительность: 00:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E8F44A117F840FEFCF560B06AD32639FB3619F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576727   (364348) от 17.11.2012
-
-Trolley Snatcha - One Trick Pony (EP) (2010) [MP3|320 кб/с]<Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pass Me By 05:09
-02. Always On My Mind 05:12
-03. Rocco's Revenge 05:09
-04. We Go Deep 05:12Жанр: DubstepПродолжительность: 00:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DCEC90DDBF6F8EA4AA7315F3DF6A699325B202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576793   (364347) от 17.11.2012
-
-Butterfly - Favorite Colors Episode 058 (17.11.2012) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kattoo -  Violin (Intro Original Mix)
-02. Danilo Ercole -  London Eye (Original Mix)
-03. Twenty Three & Jesper Olesen -  Once A Stranger (Original Mix)
-04. Robert Nickson pres. RNX -  Suffer (Shingo Nakamura Remix)
-05. Anna Lee vs Alex TeeB -  Driving Juke (Original Mix)
-06. Jjoo -  Restless (Original Mix)
-07. Pizz@dox -  Scarlet (Snow Flakes & Rishabh Joshi Remix)
-08. Wezz Devall -  The Great White Buffalo (Original Mix)
-09. Alan Morris & Sequenita -  Contact (Original Mix)
-10. Giuseppe Ottaviani feat. Amba Shepherd -  Lost For Words (On Air Mix)Жанр: Progressive Trance, Melodic TranceПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C2CA77D6B088C00E46C109A187B5EA0AB3964F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576637   (364346) от 17.11.2012
-
-VA - Monster Tunes Autumn Collection (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364346.jpg" />
-</div>
-
-
-###  Подробнее
-
-[06:31] 01. Stannis - Sky Drops - Original Mix
-[07:44] 02. James Hannan - Borderline - Original Mix
-[07:44] 03. Ad Brown - Transmission - Original Mix
-[06:47] 04. Oza - Small Planet - Original Mix
-[07:40] 05. INCA - Three Sunrises - Original Mix
-[07:09] 06. Timur Shafiev - Can't Stop - Original Mix
-[07:43] 07. Mark Eteson - Universal Language - Tritonal Club Mix
-[07:43] 08. Corderoy - Mechanical Tears - Club Dub
-[07:06] 09. Cold Blue - Coconut - Original Mix
-[07:30] 10. Reorder - Sunrise - Original Mix(   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D281699D432CB905420D28FE4B054090E9EB9439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576734   (364345) от 17.11.2012
-
-Trolley Snatcha - Subtext (EP) (2012) [MP3|320 кб/с]<Dubstep, Grime>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make My Whole World 5:12
-02. Nasty Sh*t 4:39
-03. Giving Up 4:41
-04. Flying Missiles 4:14
-05. The Jungle 5:43Жанр: Dubstep, GrimeПродолжительность: 00:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17649675F098C08B27C1A348BDEF39B814CD388E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575524   (364344) от 17.11.2012
-
-Fragrant flowers Wallpapers (13.11.12) [Wallpapers]
+Wallpapers Sexy Girls (16.11.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364344.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1440x900 - 5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE1F9D03E05C3BF063C427288DC497E066E1E736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575520   (366691) от 16.11.2012
+
+Best HD Wallpapers Pack (13.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366691.jpg" />
 </div>
 
 
@@ -514,7 +42,7 @@ Fragrant flowers Wallpapers (13.11.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6C2EA725248E8CA9DEA821F01ECBD870A73BAE5
+magnet:?xt=urn:btih:2284548B8050DFA3C4B30D8B93652AACC7B219CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -522,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 576470   (364343) от 17.11.2012
+###  Публикация: 576025   (366690) от 16.11.2012
 
-Агата Клери/ Agathe Cléry (2008) DVDRip
+Журнал | Золотая коллекция рецептов №119/С [ноябрь 2012] [PDF]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364343.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Агата Клери больна. Симптомы болезни не такие уж редкие: снобизм, безжалостность, нетерпимость, расизм. Но совсем другая болезнь станет для неё — успешного менеджера по маркетингу крупной косметической компаний — настоящим испытанием. Болезнь Аддисона, редкое заболевание, которое за одну ночь изменит цвет кожи героини, заставит её пересмотреть свои взгляды на межнациональные взаимоотношения в обществе.Жанр: Мюзикл, КомедияРежиссер: Этьен ШатильеАктеры: Валери Лемерсье (Valérie Lemercier), Энтони Кэвэна (Anthony Kavanagh), Доминик Лаванан (Dominique Lavanant), Изабель Нанти (Isabelle Nanty), Жак Буде (Jacques Boudet), Артюс де Пенгерн (Artus de Penguern), Жан Рошфор (Jean Rochefort), Валентайн Варела (Valentine Varela)Перевод: Профессиональный (двухголосый)Продолжительность: 01:47:01
+Скоро самый любимый всеми праздник новый год. В этом выпуске представлены красивые и вкусные блюда к этому празднику.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB5092B5E90FAB5AED7498075EF3BC95396E1BAB
+magnet:?xt=urn:btih:E1C1E952926235F5BA4F197A2F8C0A5B01CE26B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,32 +76,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 576502   (364342) от 17.11.2012
+###  Публикация: 576380   (366689) от 16.11.2012
 
-VA - Dream Trance Hits Of The Year (2012) [MP3|320 кб/с]<Trance>
+VA - Pathaan's Playlist - Ibiza (2011) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kemek - Certain Frequencies
+02. The 2 Bears - Church - Midland Remix
+03. Flavius Etcheto - Solaz - Orginal
+04. Martin Dawson Glimpse - No One Belongs Here More Than You - Ewans Balearos Maximos Remix
+05. David Lynch - Good Day Today - DiskJokke Remix
+06. Munty - Changing Times
+07. Flowers and Sea Creatures - I am - Ewan Pearson Re-Edit
+08. Coyote - Too Hard - Aeroplane Remix
+09. Proviant Audio - Hey, Let's Do It! - Jay Shepheard Mix
+10. Bubble Club - The Goddess(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCC94A19152B2676B2F0BA9B220FAA5FC506C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575558   (366688) от 16.11.2012
+
+Best HD Wallpapers Pack (14.11.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364342.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Dream Trance Hits Of The Year (2012)
-Год: 2012
-Лэйбл: Sounds United
-Жанр: Trance
-Продолжительность: 01:49:19Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01.Frozen Skies - "Coming Back" (feat Yana Vetrova - radio version) - (3:47)(   Читать дальше...   )
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:912F2EDE421552CEF1DC9CAF67CA4DB165E68BCE
+magnet:?xt=urn:btih:282D6C15F2476F36DBD557E9B6BD64732E66A829
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,32 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 576525   (364341) от 17.11.2012
+###  Публикация: 575557   (366687) от 16.11.2012
 
-VA - Oceanic Trance Volume 9 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
+Computer Desktop Wallpapers Collection (14.11.12) [Wallpapers]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364341.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Oceanic Trance Volume 9 (2012)
-Год: 2012
-Жанр: Trance, Uplifting Trance
-Продолжительность: 03:02:59Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-001. Bobina & Richard Durand - Last Train To Moscow (Original Mix)
-002. Epos - Polarized (Magic Island 200th Episode Theme) (Original Mix)(   Читать дальше...   )
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B784D35A4343C4F339F9FC83CCA88257FA1789D
+magnet:?xt=urn:btih:DDC6C26083C5A8BC4F87A5F7B0A332FA9DC3821C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,34 +163,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 576309   (364340) от 17.11.2012
+###  Публикация: 575974   (366683) от 16.11.2012
 
-VA - Осенняя Музыкальная сенсация (2012) [MP3|128 кб/с]<Pop>
+Best HD Wallpapers Pack (15.11.12) [Wallpapers]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364340.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. 23:45 - Моя Любовь
-002. Ева Польна - Весь мир на ладони
-003. Митя Фомин - Наглый ангел
-004. Demo - Мимо Облаков
-005. Лолита - Я
-006. Анастасия Стоцкая - Преступник
-007. Павел Воля - Я Танцую!
-008. Афродита - Виновата
-009. Потап - Лайки
-010. MMDance - По 50(   Читать дальше...   )Жанр: PopПродолжительность: 12:02:11
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A305DFF485A96F0FF4025EA5DC95B79A500C105B
+magnet:?xt=urn:btih:C341712C9991C869BFF3ECEFFFACA3EAE2841E6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,34 +189,114 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 576369   (364339) от 17.11.2012
+###  Публикация: 576020   (366682) от 16.11.2012
 
-VA - Зажигательная Dance Тусовка. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
+Журнал | Лилит №11 [ноябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366682.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лилит» — это журнал для Женщин с большой буквы, которые не боятся жить: экспериментировать и ошибаться, находить верные пути и побеждать, ввязываться в истории и выходить сухими из воды, быть беспечными и расчетливыми, близкими и недосягаемыми. Для женщин, которые ищут свой личный путь к совершенству.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F142759BB85A16E4039F71C9A071303F02E376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576051   (366681) от 16.11.2012
+
+Landmine Marathon - Sovereign Descent (2010) [FLAC|Lossless]<Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_366681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exist (04:33)
+02. Shadows Fed to Tyrants (03:54)
+03. Foul Revolt (03:22)
+04. Cruel Policy (04:55)
+05. Justify the Suffering (03:53)
+06. Steadfast Hate (07:19)
+07. Chained by the Same Fate (03:18)
+08. Flood the Earth (04:27)
+09. Rise with the Tide (03:52)Жанр: Death Metal, Thrash MetalПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576255   (366680) от 16.11.2012
+
+Журнал | Housetrends Greater Columbus [ноябрь-декабрь 2012] [PDF] [En]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание освещает вопросы интерьера жилых и нежилых помещений. Новые направления, стили, красивые мелочи, придающие вашему жилищу неповторимость.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466AD6BF5B1A935B86E2D2C8C4BAB52EFAAF8CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070559   (366678) от 07.11.2016
+
+VA - Stereo 100 Hits Dance (2016) [MP3|234-320 Kbps] <Club, Progressive, Vocal, Happy Sound, Bigroom>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364339.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Gary Caos Vs. Rico Bernasconi Feat. Edita Piekha - Party People (Nash Sosed) (Caos Radio Edi)
-002. Discomakers feat. Eric More - World Party (Crystal Lake Edit)
-003. MaxiGroove, Bhp feat Lexter - Wonderful World (Radio Mix)
-004. Selena Gomez And The Scene - Love You Like A Love Song
-005. Pharao - There Is A Star
-006. Laselva Feat. Angel - Your Life (Video Edit)
-007. Magic Deejays - One Love (Bims Studio Remix)
-008. Slin Project & Rene De La Mone - Taking Over The Dancefloor (Radio Edit)
-009. Culture Beat - Your Love (Radio Edit)
-010. DJ Fresh ft. Rita Ora - Hot Right Now(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:53:18
+01. Coldbeat - Magic Portal Reboot (Patos Remix) 03:46
+02. Crazydeejay - A Butterfly (Extended Mix) 04:42
+03. Voicemail - Island Life 03:40
+04. Bk__jp & Jukesy - Es Lo Que Es (Original Mix) 07:32(   Читать дальше...   )Жанр: Club, Progressive, Vocal, Happy Sound, BigroomПродолжительность: 08:55:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E209517CBD0E8036CA3C1EE09D16393A986BD3E7
+magnet:?xt=urn:btih:D16B6E152E37E69DAFA154E2B482EFF4BD1A8244
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,32 +304,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 576510   (364338) от 17.11.2012
+###  Публикация: 576389   (366676) от 16.11.2012
 
-VA - Vocal Trance Temptation Volume 11 (2012) [MP3|320 кб/с]<Vocal Trance>
+Savant - ISM (2012) [MP3|320 кб/с]<Dubstep, Drum & Bass, Electro House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364338.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Vocal Trance Temptation Volume 11 (2012)
-Год: 2012
-Жанр: Vocal Trance
-Продолжительность: 02:58:10Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-001. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
-002. Beat Service feat. Gemma Pavlovic - Masquerade (Original Mix)(   Читать дальше...   )
+01. Prelude (6:26)
+02. The Beat (04:05)
+03. Nightmare Adventures (03:29)
+04. Ghetto Blastah (03:45)
+05. Syko (05:05)
+06. Starfish (05:01)
+07. Zeitgeist (04:23)
+08. 8-Bit Lightsaber (04:26)
+09. Mystery (05:08)
+10. Outfox (05:34)(   Читать дальше...   )Жанр: Dubstep, Drum & Bass, Electro HouseПродолжительность: 01:01:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FA12EECCBBD1E2FFB2C29AC93D69FD33E57D7D8
+magnet:?xt=urn:btih:5B42BADA20BC8422948388F88672434326B89896
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,32 +339,305 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 576056   (364336) от 17.11.2012
+###  Публикация: 1070509   (366675) от 07.11.2016
 
-VA - Exotic Wafture #31 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+День шокирующих гипотез. Я тебя не хочу! (2016.11.06) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расследование сенсационных теорий и свежий взгляд на исторические факты. Ответы на загадки нашего подсознания и новости из всех областей человеческих знаний.Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64F581252B126F7C6B402D18EC6DF3E29CE9EE45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576003   (366674) от 16.11.2012
+
+Компания / Company (2011) BDRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет строится вокруг пяти супружеских пар и их друга Роберта (Neil Patrick Harris), закоренелого холостяка. Фильм исследует истинный смысл бытия и спектр характеров персонажей путем демонстрации коротких сценических эпизодов...Жанр: Комедия, Драма, МузыкаРежиссер: Лонни ПрайсАктеры: Нил Патрик Харрис, Патти Лупоун и Марта ПлимптонПеревод: ОтсутствуетПродолжительность: 02:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996957D4CB52D2D8097D95234A7633B2D2FDD4E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070591   (366671) от 07.11.2016
+
+Blippar 1.8.14 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blippar – удивительное приложение дополненной реальности, которое использует камеру для сканирования небольших реклам. Просто просканировав рекламу или картинку камерой вашего мобильного телефона, вы можете найти дополнительный контент, скидки, бесплатные загрузки. Иногда могут потребоваться только QR коды, однако многие рекламодателей в эти дни использует Blippar (   Читать дальше...   )Тип издания: БесплатноРелиз состоялся: 10.31.2016Разработчик: BlipparПоддерживаемая ОС: Android 4.1 и вышеЯзык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60918F73687D43E7290C9738C470E2D28FFD4E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070598   (366670) от 07.11.2016
+
+Каталог | Madeleine Feeling (Осень-Зима 2016) [PDF] [De]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Madeleine это модные тенденции и предложения, собранные в одном каталоге. В новой коллекции представлена роскошная одежда класса люкс, подчеркивающая женское очарование и обаяние. Убедитесь в этом сами! Madeleine представляет коллекцию элегантной одежды с классическим дизайном и бесподобным качеством.
+
+Каталоги Madeleine:
+ Каталог | Madeleine Accessoires (Осень-Зима (   Читать дальше...   )Жанр: КаталогФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABF016F6999CE2E0A2C59455F87372A12B9BC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070490   (366669) от 07.11.2016
+
+Каталог | Madeleine Accessoires (Осень-Зима 2016) [PDF] [De]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каталог Madeleine Accessoires осень-зима 2016 представляет женские аксессуары класса Люкс. Высококачественные изделия изготовлены из натуральной кожи и замши. Стильные аксессуары дополнят и завершат деловой образ бизнес-вумен.
+
+Каталоги Madeleine:
+ Каталог | Madeleine Christmas (2016)Жанр: КаталогФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBB624D550CA3C53104222CDC866B352C9D397A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070612   (366668) от 07.11.2016
+
+Каталог | Madeleine Magazin (Осень-Зима 2016) [PDF] [De]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое приложение от каталога Madeleine - Madeleine Magazine 2016 приглашает вас окунуться в неповторимый и прекрасный, сдержанный мир Лондона . Тенденции и веяния в современной моде разбавлены своим исключительно британским вкусом. В итоге получилась уникальная и по-настоящему интересная коллекция, которую fashion-критики назвали бы стиль Лондона.
+
+Каталоги Madeleine: (   Читать дальше...   )Жанр: КаталогФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCD57FE84ECF6C574A2DA690DFD3C3D41554866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070474   (366663) от 07.11.2016
+
+VA - Dubstep Collection Vol.2 (2016) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boddy Gray - S.w.a.g (03:27)
+02. Dave Romans - Heavens Crying and Rejected Angel (03:49)
+03. Disbase System - Mystcial Shore (06:10)
+04. Disbase System - Strange Emotion (05:17)(   Читать дальше...   )Жанр: Dirty Dubstep, Trap, GrimeПродолжительность: 01:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:344C789E04EBAB41D9A4B209C9A0BE57F407DBFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070620   (366661) от 07.11.2016
+
+Каталог | Madeleine Favourites (Осень-Зима 2016) [PDF] [De]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предпочитаете элегантный и непринужденный стиль? Будьте уверены, что каталог Madlen покорит вас! В нем представлена красивая женская одежда в самых разных вариациях. Это костюмы, свитера, платья, пиджаки, юбки, пальто. Отдельной линейкой презентованы роскошные модели для домашнего отдыха: пижамы, халаты, пеньюары, костюмы в спортивной манере. Всю одежду отличает (   Читать дальше...   )Жанр: КаталогФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F33B1B7BBF993A55F712501CFD318AFE7847AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070746   (366659) от 07.11.2016
+
+Иракли - Ангелы и демоны (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По лезвию ножа
+02. На бульварном
+03. Мужчина не танцует (feat. Леонид Руденко)
+04. Вокруг Земли(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3239496E90A318060B454D8C177052E4213156DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068956   (366656) от 07.11.2016
+
+Хоккей. НХЛ 2016-2017. Регулярный чемпионат. Обзор матчей от 28.10.2016 г. (29.10.2016) HDTVRip [H.264/720p-LQ][RU,EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей регулярного чемпионата НХЛ 2016-2017 от 28.10.2016:
+Чикаго Блэкхоукс – Нью-Джерси Дэвилз
+Нью-Йорк Рейнджерс – Каролина Харрикейнз
+Виннипег Джетс – Колорадо Эвеланш(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: Телепередача, СпортЯзык озвучки: Русский (Виталий Магранов), AнглийскийПродолжительность: 00:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A973CD853696E047DF47B69810AF6A9290BF3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070554   (366651) от 07.11.2016
+
+VA - Big 1990s Twisted Hits (2016) [MP3|192~320 Kbps] <Pop, Techno, Rock, Dance>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364336.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366651.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Exotic Wafture #31 (2012)
-Год: 2012
-Жанр: Trance, Vocal Trance, Uplifting Trance, Classic Trance
-Продолжительность: 01:52:11Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-001. Mike Foyle feat. Statica - Head Rush (Original Mix)
-002. Manufactured Superstars feat. Scarlett Quinn - Take Me Over (Bingo Players Remix)(   Читать дальше...   )
+001. Loft - Mallorca (Extended Beach Mix)  5:55
+002. Twenty 4 Seven feat. Stay-C & Nance - Is It Love (Single Mix)  3:57
+003. C&C Music Factory - Gonna Make You Sweat (Everybody Dance Now)  4:07
+004. Me & My - Dub-I-Dub  3:22(   Читать дальше...   )Жанр: Pop, Techno, Rock, DanceПродолжительность: 07:18:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91484132C41DD158041F3B6887D05896C4335655
+magnet:?xt=urn:btih:6682852BBC8F90C94F451B08F6B692771D735036
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -750,32 +645,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 575962   (364335) от 17.11.2012
+###  Публикация: 1070599   (366649) от 07.11.2016
 
-Hallywood X - Origen (EP) (2012) [MP3|320 кб/с]<Dubstep, Electro>
+Smokie - Strangers In Paradise (1982) Reissue, 2016, Sony [FLAC|Lossless|image + .cue] <Soft Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364335.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366649.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Hallywood X - Origen (Intro)
-02 - Hallywood X - Flash Ya Lighter
-03 - Hallywood X - Feel Da Bass
-04 - Hallywood X - Rescue Me
-05 - Hallywood X - Fyah Dem Dem Bun
-06 - Hallywood X - Revolución
-07 - Skrillex - Right In (Hallywood X Remix)
-08 - Above & Beyond Ft Zoë Johnston - You Got To Go (Hallywood X Remix)Жанр: Dubstep, ElectroПродолжительность: 00:25:11
+01. Introduction (Traditional, Silson, Norman, Spenser, Uttley)
+02. Love Remains A Stranger (Supa)
+03. Falling For You (Uttley, Silson)
+04. Yesterday's Dreams (Norman, Spenser)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:43:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57F611F28E2B45ECA7AB8EB1025DA0C38CA8DE6F
+magnet:?xt=urn:btih:AF3496C260443D3C8DE409E05AFBAB13475BBC3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070642   (366646) от 07.11.2016
+
+akaEasyMoney 1.0.2 Portable [Ru] (Авторская раздача)
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366646.jpg" />
+</div>
+
+
+###  Подробнее
+
+akaEasyMoney - программа для учета личных финансов (и не только)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8799343D559CD990DA16E88DEE709F72F7837844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070488   (366643) от 07.11.2016
+
+VA - Ethnic Trap Collection Vol.1 (2016) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NextRO - Chauris VIP (Original Mix) (3:42)
+02. Monstex - Anubis (Original Mix) (5:21)
+03. Biz - Mayhem (Original Mix) (3:34)
+04. Biz - Khalifat (Original Mix) (3:47)(   Читать дальше...   )Жанр: Dirty Dubstep, Trap, GrimeПродолжительность: 02:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07111238F8B146E15536829D1014CFC002B61ABB
 ```
 
 https://mybot314.ru/tekegram_catalog/

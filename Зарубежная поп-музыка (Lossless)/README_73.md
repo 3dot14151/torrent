@@ -1,3 +1,150 @@
+###  Публикация: 1646404   (232167) от 14.07.2023
+
+Sko/Torp - Radio Songbook "The Best Of" (1998) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232167.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.On A Long Lonely Night
+2.Get Ready
+3.Loser's Game
+4.Wheels(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B767D1785CB84AB0211006DC1BB37D42CA85DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637062   (231136) от 02.06.2023
+
+Sophie Ellis-Bextor - HANA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_231136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Thousand Orchids
+02. Breaking the Circle
+03. Until the Wheels Fall Off
+04. Everything is Sweet(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B3802A7F42F718D473DB7FA682B10760F542F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649208   (231123) от 26.07.2023
+
+Nessa Barrett - hell is a teenage girl (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. hell is a teenage girl [00:03:15]
+02. the one that should've got away [00:03:34]
+03. lie [00:03:34]
+04. plane to paris [00:03:54](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB181D2C125B18AF04569F2732EE290739C26D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637499   (230752) от 04.06.2023
+
+Right Said Fred - The Singles (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_230752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Right Said Fred - Британская поп-группа, созданная в 1989 году братьями Ричардом и Фредом Фэйрбрассами (Richard and Fred Fairbrass).
+В 1991 году вышел первый хит «I’m Too Sexy», многократно использованный в кино и на телевидении. Песня заняла первое место в хит-парадах США и второе место в Великобритании.
+После The Beatles, они стали второй группой из Англии, три (   Читать дальше...   )01. I'm Too Sexy (2023)
+02. Don't Talk Just Kiss (2023)
+03. Deeply Dippy (2023)
+04. Love For All Seasons (2023 Acoustic Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A57F4448FE55C4FB1DFAED2C12C4792651DB50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649342   (230474) от 27.07.2023
+
+Pino Daniele - Che Dio Ti Benedica (1993) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Che Dio ti benedica (04:20)
+02. Questa primavera (05:01)
+03. Fatte na pizza (03:27)
+04. Mal di te (04:50)(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2939B46F9A1BD5CB960AACB4B980AB810FA4062A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637860   (230462) от 06.06.2023
 
 VA - Perfect Ballads (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballads>
@@ -606,149 +753,6 @@ Mylene Farmer - Cendres De Lune (1987) [FLAC|Lossless|tracks + .cue] <Chanson, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C091FB7318D3AF867070704B9CAE968B96867463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994039   (225538) от 18.11.2020
-
-Backstreet Boys - Backstreet's Back (1997) Unofficial Release [FLAC|Lossless|image + .cue] <Europop, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody (Backstreet's Back) 03:44
-02. As Long As You Love Me 03:40
-03. All I Have To Give 04:37
-04. That's The Way I Like It 03:40(   Читать дальше...   )Жанр: Europop, Vocal, BalladПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30EE39CB981457BBBD0BA017484481B9F231469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342149   (225274) от 01.12.2019
-
-VA - The World's Best Ever Beer Song's 10th Anniversary (2008) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ровно 11 лет тому назад - 1 декабря 2008 года Австралийский дивизион лейбла EMI выпустил этот сборник для людей любящих в компании пропустить кружечку-вторую, а иногда и третью-четвертую. Головы людей, составлявших этот сборник, были явно этим самым пивом не затуманены, потому как он получился на удивление свежим и интересным. Знатоки вряд ли для себя найдут новые (   Читать дальше...   )CD1:
-01. Lynyrd Skynyrd - Sweet Home Alabama  (4:37)
-02. Choirboys - Run To Paradise  (4:05)
-03. Divinyls - Boys In Town  (2:50)(   Читать дальше...   )Релиз состоялся: 01 декабря 2008 годаЖанр: Pop, Rock, DanceПродолжительность: 03:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB7903A784377701AB6069453541FED9A983E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584577   (224326) от 19.10.2022
-
-VA - New Pop Classics (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - 2step (feat. Lil Baby) (02:43)
-02. Madeline The Person - Why I Broke Up with You (02:43)
-03. David Guetta - I'm Good (Blue) (02:55)
-04. Charlie Puth - Smells Like Me (03:24)(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1272C8CA4DF15637658D1509D31891A391691F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965667   (224114) от 15.12.2015
-
-Supermax - Electricity (1983) Unofficial Release, Russia, 2014 [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224114.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Loversnight  5:40
-2.Future Time  6:14
-3.Love Is Deeper	  3:47
-4.Funk It Up  4:59(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D2F5E8F3040B3CFEF3466EA8C382AEFD65AD3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342564   (224011) от 02.12.2019
-
-The Vision Mastermixers - Christmas Party Megamix (2000) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merry Xmas Everybody / I Wish It Could Be Christmas Everyday / Winter Wonderland / All I Want for Christmas Is My Two Front Teeth / Rockin’ Around the Christmas Tree / Jingle Bell Rock / Santa Claus Is Comin’ to Town (15:35)
-02. Silver Bells / Gloucestershire Wassail / Mistletoe and Wine / Silent Night / We Wish You a Merry Christmas / Happy Xmas (War Is Over) (   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFDEF9C655FCC16897BB53C6BA497DA0603ED6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

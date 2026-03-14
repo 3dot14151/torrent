@@ -1,3 +1,148 @@
+###  Публикация: 1754041   (103735) от 08.10.2024
+
+k.d. lang - Three Albums (1981-1990) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country, Western Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103735.jpg" />
+</div>
+
+
+###  Подробнее
+
+00:42:28
+
+Side A:
+A1 Save Me(   Читать дальше...   )Жанр: Country, Western SwingПродолжительность: 02:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A53376C0D615700A1EF6434179825DD83BA0CFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754138   (103734) от 08.10.2024
+
+Marc Broussard - Time Is A Thief (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire (3:58)
+02. Mood (3:30)
+03. Cold Blooded (3:10)
+04. You Deserve More (3:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1377C3AD417CEEAC2E5F52095954797069B141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754104   (103732) от 08.10.2024
+
+April Art - Rodeo (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, Electronic, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rodeo [00:03:22]
+02. Burn [00:02:54]
+03. Who I Never Meant to be [00:03:27]
+04. Not Sorry [00:03:14](   Читать дальше...   )Жанр: Alt.Metal, Electronic, Female VocalПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858C93B02B5B8CBABA2C026B27800DC4A0A590FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754137   (103731) от 08.10.2024
+
+Little Steve and The Big Beat - Circles (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 99 LBS (2:35)
+02. The Shame Is On You (4:08)
+03. Anna Lee (4:37)
+04. Walking At Night (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C72FE1A5A9A21A642501E5CB2153ABF8E28682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754125   (103730) от 08.10.2024
+
+The New Roses - Attracted To Danger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You Fall In Love (3:57)
+02. Natural Born Vagabonds (4:01)
+03. Attracted To Danger (3:23)
+04. Four Wheels (3:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328CC23F6113B7A5578C4DAC58F609426E8CA1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754143   (103729) от 08.10.2024
 
 Rehab Black - I'm Fighting (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -600,151 +745,6 @@ Black D.O.G - It's A Long Way For Rock'N'Roll (2024) [FLAC 24/44.1|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99AD71D6FE9CFC0999E89DF49B72CEFFEE9F1FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756148   (103540) от 19.10.2024
-
-Bronski Beat - The Age of Consent (1984) 40 Year Anniversary Edition, 2024, London Records (Because Ltd) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heatwave (Harvey Goldberg Remix) (Hundreds & Thousands Version) [00:05:42]
-02. Why? (Harvey Goldberg Remix) (Hundreds & Thousands Version) [00:06:18]
-03. Run From Love (Dominic Maita Remix) (Hundreds & Thousands Version) [00:08:15]
-04. Hard Rain (Harvey Goldberg Remix) (Hundreds & Thousands Version) [00:08:12](   Читать дальше...   )Жанр: SynthpopПродолжительность: 2 CD, 02:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC538ADBBA3E7DE0B286EFE588A4AB3E1B73C838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756143   (103537) от 19.10.2024
-
-Biest - Labyrinth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gift (4:02)
-02. M.E.D.U.S.A. (3:25)
-03. Nimm mich mit (4:00)
-04. Labyrinth (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D1C82A72E636D76D06212B60741C5DEA323FC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756177   (103536) от 19.10.2024
-
-Gato Barbieri - Standards Lost And Found 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terre Lontane (6:24)
-02. So What (10:55)
-03. Softly, As In A Morning Sunrise (3:36)
-04. All Blues (10:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277846C82F5C2CCEBF35646E2C44D08DBDA73A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756168   (103535) от 19.10.2024
-
-Swallow The Sun - Shining (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic-Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innocence Was Long Forgotten [00:04:20]
-02. What I Have Become [00:04:06]
-03. MelancHoly [00:03:38]
-04. Under the Moon & Sun [00:06:09](   Читать дальше...   )Жанр: Gothic-Doom MetalПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E341BF07204A2EC33B27709BED5FA5185A63EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756147   (103532) от 19.10.2024
-
-Doc Payne - Totally Unconventional (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doc Payne feat. The Payne Relief Smooth Blues Band - Chris_blues (7:14)
-02. Doc Payne feat. The Payne Relief Smooth Blues Band - Feel Like Breakin_up Somebody_s Home (3:49)
-03. Doc Payne feat. The Payne Relief Smooth Blues Band - Fever (3:56)
-04. Doc Payne feat. The Payne Relief Smooth Blues Band - Footloose and Fancy Free (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4713FF199490A3DA4F5C7EF6AB193A4B649745B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

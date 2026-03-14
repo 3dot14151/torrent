@@ -1,3 +1,148 @@
+###  Публикация: 1673467   (165395) от 01.11.2023
+
+Bernie Marsden - And About Time Too (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Blues Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165395.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. You"re The One
+A2. Song For Fran
+A3. Love Made A Fool Of Me
+A4. Here We Go Again(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AA4C8085F665DC3F5E96FEEEC2B7A9E4D0B2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673470   (165358) от 01.11.2023
+
+Electric Sun - Earthquake (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Electric Sun (05:27)
+02 - Lilac (02:51)
+03 - Burning Wheels Turning (06:42)
+04 - Japanese Dream (04:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8C75D52A4E3CE89DB5FF78902F2D5749B6C8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576373   (164935) от 01.11.2023
+
+In This Moment - Studio Albums (8 Releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Industrial Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164935.jpg" />
+</div>
+
+
+###  Подробнее
+
+In This Moment — американская группа, образованная в Лос-Анджелесе вокалисткой Марией Бринк и гитаристом Крисом Хоувортом в 2005 году. Также к группе присоединился барабанщик Джефф Фабб. В начале творческого пути трио выступало под именем Dying Star. Недовольная своим музыкальным стилем, группа полностью изменила звучание, и сменила название на In This Moment и также (   Читать дальше...   )2007 - Beautiful Tragedy
+2008 - The Dream
+2010 - A Star-Crossed Wasteland
+2012 - BloodЖанр: Gothic/Industrial Metal, MetalcoreПродолжительность: 07:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E9C98D858F5000466361A1FFC82009093AEC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554322   (163795) от 17.12.2022
+
+Stratovarius (Kotipelto, Cain's Offering) - Studio Albums (23 releases) (1989 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stratovarius — финская англоязычная пауэр-метал-группа, образованная в 1984 году, изначально под названием Black Water. Пришедший в группу в 1985 году гитарист Тимо Толкки стал основной движущей силой в группе и сформировал звучание в стиле спид-метал. Stratovarius стали одними из ранних исполнителей пауэра и существенно повлияли на развитие этого направления.1989 - Fright Night
+1992 - Twilight Time
+1994 - Dreamspace
+1995 - Fourth DimensionЖанр: Melodic Power MetalПродолжительность: 23:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3779ED687AD3D9EBE0DCD07CD9905A7BB50A4421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673744   (163596) от 03.11.2023
+
+Riverside - Out of Myself (2003) Reissue 2021, Sony Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163596.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - The Same River
+A2 - Out Of Myself
+A3 - I Believe
+A4 - Reality Dream(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC86F13BDF95ABAEA3E89E7F2A4644B0592ABF43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673729   (163556) от 03.11.2023
 
 Kontrust - madworld (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative metal, dance pop, folk metal, nu metal>
@@ -594,151 +739,6 @@ ABBA - Gold (Greatest Hits) 40th Anniversary Edition [3 CD] (1992/2014) hand mad
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35A540D5D0BA4B8AAEBEA5521BAF83520A045F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674708   (160667) от 07.11.2023
-
-Seventh Wonder - Mercy Falls (2008) Reissue, 2023, Frontiers Music SRL [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160667.jpg" />
-</div>
-
-
-###  Подробнее
-
-A01. A New Beginning
-A02. There And Back
-A03. Welcome To Mercy Falls
-A04. Unbreakable(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE706A299898C6CF1A5FE5E8D9A0FEBEAA62CF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674754   (160655) от 07.11.2023
-
-Seventh Wonder - The Great Escape (2010) Reissue, 2023, Frontiers Music SRL [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160655.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Wiseman
-A2. Alley Cat
-A3. The Angelmaker
-B4. King Of Whitewater(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D79F0D2F176BF1F22D1ABE5203ACFB61CD50A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675059   (160628) от 07.11.2023
-
-Cliff Richard - Cliff with Strings - My Kinda Life (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best of Me (4:04)
-02. Carrie (3:53)
-03. My Kinda Life (3:31)
-04. Wired for Sound (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B271498896F48E4F69A57FEAA739066C1F2D39B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675075   (160596) от 07.11.2023
-
-Bob Marley & The Wailers - Catch A Fire (50th Anniversary) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Reggae, World>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160596.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-01. Concrete Jungle [4:14]
-02. Slave Driver [2:55]
-03. 400 Years [2:47](   Читать дальше...   )Жанр: Reggae, WorldПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A841B8D3D359A37509E97402097F364289CAF0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675153   (160421) от 08.11.2023
-
-David Coverdale - Whitesnake (1977) [FLAC|24/192|image |Vinyl-Rip] <Hard Rock, Blues-rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side one
-01. "Lady"
-02. "Blindman" (Coverdale)
-03. "Goldies Place" (Coverdale)(   Читать дальше...   )Жанр: Hard Rock, Blues-rockПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78572654FFAE4B6DAA591D91089C8C7CCF9313F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

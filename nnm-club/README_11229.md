@@ -1,22 +1,24 @@
-###  Публикация: 890727   (591246) от 07.07.2015
+###  Публикация: 1300310   (593030) от 06.05.2019
 
-Страшные сказки (Грошовые ужасы / Бульварные ужасы) / Penny Dreadful (2015) HDTVRip [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) (NewStudio)
+Кей С. Хорстманн | Java. Библиотека профессионала, том 1. Основы (11-е издание) (2019) [PDF, DJVU]
 
->>След.
->>
+>>Компьютерная литература
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591246.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593030.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сериал возвращает нас ко всеми любимым героям, монстрам и злодеям. В викторианском Лондоне, где происходит действие сериала, никогда не было спокойно и безопасно. Особенно теперь, когда литературные персонажи ожили и наводят ужас на город. Неминуема встреча с вечно молодым Дорианом Греем, героем одноименного романа Оскара Уайльда, доктором Франкенштейном и его зомби-монстром, (   Читать дальше...   )Производство: США, Ирландия, ВеликобританияЖанр: Ужасы, триллер, драмаРежиссер: Джеймс Хоуз, Хуан Антонио Байона, Коки ГидройчАктеры: Ева Грин, Тимоти Далтон, Гарри Тредэвэй, Джош Хартнетт, Рив Карни, Дэнни Сапани, Билли Пайпер, Рори Киннер, Оливия Ллевелин, Алан Армстронг и др.Перевод: Профессиональный многоголосый закадровый - NewStudioПродолжительность: ~ 00:54:00 серия
+Исчерпывающее руководство по Java для серьезных программистов! Полностью обновлено по версиям Java SE 9, 10 и 11.
+
+Это одиннадцатое издание исчерпывающего руководства по написанию надежного, удобно сопровождаемого прикладного кода. Какой бы версией вы ни пользовались, будь то Java SE 9, 10 или 11, эта книга дает глубокое и практическое понимание языка Java и его (   Читать дальше...   )Жанр: Языки программированияФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C64E22FB9B26FA9B736D6FB2AA64366323A1F32
+magnet:?xt=urn:btih:59E85B637C65CDBE672D4ADF3C0EE809D347657F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 890500   (591245) от 07.07.2015
+###  Публикация: 1244020   (593029) от 06.05.2019
 
-Страшные сказки (Грошовые ужасы / Бульварные ужасы) / Penny Dreadful (2015) HDTVRip [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) BaibaKo
+Green Hell (2018) [Ru/Multi] (0.5.5) Repack Other s
 
->>След.
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591245.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593029.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сериал возвращает нас ко всеми любимым героям, монстрам и злодеям. В викторианском Лондоне, где происходит действие сериала, никогда не было спокойно и безопасно. Особенно теперь, когда литературные персонажи ожили и наводят ужас на город. Неминуема встреча с вечно молодым Дорианом Греем, героем одноименного романа Оскара Уайльда, доктором Франкенштейном и его зомби-монстром, (   Читать дальше...   )Производство: США, Ирландия, ВеликобританияЖанр: Ужасы, триллер, драмаРежиссер: Джеймс Хоуз, Хуан Антонио Байона, Коки ГидройчАктеры: Ева Грин, Тимоти Далтон, Гарри Тредэвэй, Джош Хартнетт, Рив Карни, Дэнни Сапани, Билли Пайпер, Рори Киннер, Оливия Ллевелин, Алан Армстронг и др.Перевод: Профессиональный многоголосый закадровый - BaibaKoОзвучка: Юлия Котурбаш, Anna_Smile, Олекса Мельник и Акмал ГурезовПродолжительность: ~ 00:54:00 серия
+GREEN HELL – это симулятор выживания в открытом мире, чье действие происходит в неизведанном уголке джунглей Амазонки. Вы оказались одни в джунглях, без еды и снаряжения. Ваша задача – выжить и выбраться к людям. Но со временем одиночество начинает все сильнее давить не только на ваше тело, но и на вашу психику – и ваша битва за жизнь оборачивается войной на истощение. (   Читать дальше...   )Тип издания: RepackРазработчик: Creepy JarЖанр: Action (Survival), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98131EDBB8E7232C3DC904DCA5C6F044282D1AD9
+magnet:?xt=urn:btih:BBD1508EE6448E5F3C85317CD8D194F7ACD18CC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,76 +52,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 895539   (591244) от 07.07.2015
+###  Публикация: 1300484   (593028) от 06.05.2019
 
-Страшные сказки (Грошовые ужасы / Бульварные ужасы) / Penny Dreadful (2015) HDTVRip (сезон 2, серии 1-10 из 10) LostFilm
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал возвращает нас ко всеми любимым героям, монстрам и злодеям. В викторианском Лондоне, где происходит действие сериала, никогда не было спокойно и безопасно. Особенно теперь, когда литературные персонажи ожили и наводят ужас на город. Неминуема встреча с вечно молодым Дорианом Греем, героем одноименного романа Оскара Уайльда, доктором Франкенштейном и его зомби-монстром, (   Читать дальше...   )Производство: США, Ирландия, ВеликобританияЖанр: ужасы, драмаРежиссер: Х.А. Байона, Дирбла Уолш, Сэм МендесАктеры: Тимоти Далтон, Ева Грин, Джош Хартнетт, Рори Киннер, Хелен МакКрори, Билли Пайпер, Гарри Тредэвэй, Рив Карни, Алан Армстронг, Рик Берн и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599E4F202686A39D16D492D3D7DCE3737D224868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 890524   (591243) от 07.07.2015
-
-Страшные сказки (Грошовые ужасы / Бульварные ужасы) / Penny Dreadful (2015) HDTVRip (сезон 2, серии 1-10 из 10) BaibaKo
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал возвращает нас ко всеми любимым героям, монстрам и злодеям. В викторианском Лондоне, где происходит действие сериала, никогда не было спокойно и безопасно. Особенно теперь, когда литературные персонажи ожили и наводят ужас на город. Неминуема встреча с вечно молодым Дорианом Греем, героем одноименного романа Оскара Уайльда, доктором Франкенштейном и его зомби-монстром, (   Читать дальше...   )Производство: США, Ирландия, ВеликобританияЖанр: ужасы, драмаРежиссер: Х.А. Байона, Дирбла Уолш, Сэм МендесАктеры: Тимоти Далтон, Ева Грин, Джош Хартнетт, Рори Киннер, Хелен МакКрори, Билли Пайпер, Гарри Тредэвэй, Рив Карни, Алан Армстронг, Рик Берн и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Юлия Котурбаш, Anna_Smile, Олекса Мельник и Акмал ГурезовПродолжительность: ~00:54:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBE8FC23144AB90D18D99D1317779DB3A27CEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550718   (591242) от 13.05.2022
-
-Bare King - Beggars (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hardcore, Deathcore>
+Снегоуборщик / Cold Pursuit (2019) BDRip [H.264/1080p] [PR]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591242.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_593028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - No Forgiveness (Grief)
-02 - Degradation
-03 - Annotations of Hell (Pain)
-04 - Defeatist(   Читать дальше...   )Жанр: Metalcore, Hardcore, DeathcoreПродолжительность: 00:34:46
+Мистер Коксман — примерный семьянин и уважаемый гражданин, размеренная жизнь которого заканчивается, когда наркоторговцы убивают его сына. В поисках справедливости он с ледяным хладнокровием начинает изощренно убирать бандитов одного за другим.Производство: Великобритания, Норвегия, Канада, США / Mas Films, Paradox Films, StudioCanalЖанр: Боевик, триллер, драмаРежиссер: Ханс Петтер МуландАктеры: Лиам Нисон, Лора Дерн, Эмми Россум, Том Бейтман, Уильям Форсайт, Джулия Джонс, Дэвид О'Хара, Доменик Ломбардоззи, Элисия Ротару, Эмили МэддисонПеревод: Дублированный, профессиональный многоголосыйСубтитры: Русские (full), английские (full)Продолжительность: 01:59:00
 
 ## Скачать торент
 ```bash
@@ -131,459 +78,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550783   (591241) от 13.05.2022
+###  Публикация: 1299055   (593027) от 06.05.2019
 
-Fátima (Fatima) - Fossil (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Mongolo Bill [00:03:59]
-02 Arch-Vile [00:04:25]
-03 Turks Fruit [00:06:09]
-04 King of the Rats [00:05:43](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687E90859247B4FE330FDE0B48DEEEB3A1E3A00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551021   (591240) от 13.05.2022
-
-Cancerslug - Full Term Abortions (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Horror Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cum Rag (00:01:38)
-02 - When You Lie (00:01:59)
-03 - kitchen blues (00:02:04)
-04 - waiting to die (00:01:41)(   Читать дальше...   )Жанр: Punk Rock, Horror PunkПродолжительность: 00:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C173FDF6EA44493F07EE120E03363C1FDFCE4DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550682   (591239) от 13.05.2022
-
-Ron Miles - Rainbow Sign (2020) Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Those Who Dream [15:56]
-02. Queen of the South [4:20]
-03. Average [11:12]
-04. Rainbow Sign [7:09](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCBFD8D66FF57A7DF68623D18E6A7F9F6246070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550977   (591238) от 13.05.2022
-
-Simone Graziano Frontal - Sexuality (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinkali - 5:04
-02. Afror - 8:42
-03. Unsleepers - 5:06
-04. Buran  - 8:55(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AEAAFB6530623EF609969B00FB0D32E416F11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550910   (591237) от 13.05.2022
-
-Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Meddler [8:31]
-02. Ode to Ray [6:10]
-03. Whims of the Bluebird [10:09]
-04. Falling in Love [7:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836C40AE7A3A0D272E79313F7F4DF1323C87AD16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550793   (591236) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 19 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born in '82 - Platov Airport (5:30)
-02. Rapaik - Disguise Self (5:52)
-03. Ella Mordo - No Love '86 (mfpalm Remix) (2:55)
-04. Atakta - Giving Up The Ghost (4:41)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989B60C80347EDEC7EE43ACE859C88BDA6B59646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550925   (591235) от 13.05.2022
-
-Ecstatic Vision - Elusive Mojo (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March of the Troglodytes
-02. Elusive Mojo
-03. Times Up
-04. The Kenzo Shake(   Читать дальше...   )Жанр: Sludge, Stoner, Space RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF7D06D3DEB44041A96A6D3950328B1C2C74759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550789   (591234) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 17 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TELEGIMNASTIKA - Perlo (7:05)
-02. Born in '82 - I Want To Go Far Away (3:58)
-03. Microsha 89 & Twinhead Pony - Endless (3:42)
-04. Enium - Feel Life (6:33)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F60D68BBC79B639BCE3B7DCF2093CF766B3A870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550795   (591233) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 20 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NINJACAT & VHS STORE - Pink Sky (2:55)
-02. Born in '82 - Night Road To The Airport (6:01)
-03. Bogdan Bondar & MVG - Sprinkles (3:45)
-04. Dwextrom - Fallen Lord (4:21)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20469C95941146042DD422ADA7AC9286CF536E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550799   (591232) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 22 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ionov - Break My Heart (3:00)
-02. VsrtWuto - Shuto Nightshift (6:25)
-03. CJ Cyclone - Electronic Body (3:16)
-04. Bloume - Light (4:28)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584C843B3804328229C697F605FEC1AB30E7AF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550800   (591231) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 23 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Starzev - Up Tonight (Microsha 89 Remix) (4:05)
-02. Rinak - Evolution (TELEGIMNASTIKA Remix) (5:06)
-03. Born in '82 - Summer Rays (4:25)
-04. Ionov - Break My Heart (TELEGIMNASTIKA Remix) (3:28)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7471A4CC382611CB9519F59D900DB78AD6A80313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550798   (591230) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 21 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VsrtWuto - Late Night Cruise (3:30)
-02. Unfancy D - Rain (La-la-la) (4:20)
-03. Akira - Out The Fire (3:16)
-04. Born in '82 - Evolution (5:34)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286E51614FF944F86A42FE3EE84E4C5148E54192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550893   (591229) от 13.05.2022
-
-Opeth - In Cauda Venenum (2019) 2CD, Extended Edition, 2022, Atomic Fire [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livets Trädgård (3:29)
-02. Svekets Prins (6:37)
-03. Hjärtat Vet Vad Handen Gör (8:30)
-04. De Närmast Sörjande (7:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CCA2C8EB3BFC5F704B82D994D0B660FD1A3C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550790   (591228) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 18 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unfancy D - Teslagirl (5:12)
-02. Fraver & Born in '82 - Void In Space (4:40)
-03. Enium - Nostalgia (Let's Do The Night) (7:06)
-04. Shtanze - Retropunk (4:31)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153C0D421DE5E938ACBF9743F7AD12574876A3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550826   (591226) от 13.05.2022
-
-Wildnite - Symphony Of Apathy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paroxysm
-02. One And Only
-03. Hero
-04. War Machine(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146CE114572FC338D2097FE2746A41D1B1F00ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550908   (591225) от 13.05.2022
-
-Рваные Раны - Лучшая проклятая вещь (2022) [MP3|320 Kbps] <Punk Rock>
+Мстители: Финал / Avengers: Endgame (2019) TC [H.264/720p-LQ] [IMAX] [Line] [AD]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591225.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_593027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Проклятая вещь
-2. Строгий отец
-3. Слышишь сука!?
-4. Вы - закройте рты!(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:51
+Оставшиеся в живых члены команды Мстителей и их союзники должны разработать новый план, который поможет противостоять разрушительным действиям могущественного титана Таноса. После наиболее масштабной и трагической битвы в истории они не могут допустить ошибку.Производство: США / Marvel Studios Inc., Weta Digital, Legacy EffectsЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Энтони Руссо, Джо РуссоАктеры: Роберт Дауни мл. Крис Эванс, Марк Руффало, Крис Хемсворт, Скарлетт Йоханссон, Джереми Реннер, Дон Чидл, Пол Радд, Чедвик Боузман, Бри ЛарсонПеревод: Дублированный (Чистый звук)Субтитры: Корейские (вшитые)Продолжительность: 02:59:09Реклама: Присутствуют вставки видео голосовой и текстовой рекламы
 
 ## Скачать торент
 ```bash
@@ -595,28 +104,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550802   (591224) от 13.05.2022
+###  Публикация: 1233505   (593026) от 30.06.2018
 
-VA - Synthwave Dreams, Vol. 24 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Mose Allison - Greatest Hits (1957 - 1959) 1988, Original Jazz Classics [APE|Lossless|image + .cue] <Hard Bop, Vocal, Piano Jazz>
 
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591224.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Born in '82 - Resisted (4:03)
-02. Ildar Bik - Racer (5:22)
-03. A-Reis - Meteor (3:45)
-04. Fraver & Born in '82 - Void in Space (Born in '82 l'amour Remix) (5:15)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:07:41
+01. The Seventh Son [2:41]
+02. Eyesight to the Blind [1:44]
+03. Do Nothin' Till You Hear from Me [3:14]
+04. Lost Mind [3:34](   Читать дальше...   )Жанр: Hard Bop, Vocal, Piano JazzПродолжительность: 00:46:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26C72C02B418F534C440BB20C6CF0356F07B1C19
+magnet:?xt=urn:btih:3D45A8AB3BC7AEB8229FCEB1E916171701F99FFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,28 +133,384 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550907   (591223) от 13.05.2022
+###  Публикация: 1233212   (593025) от 30.06.2018
 
-Sonic Mine - Show Must Go On (2017) [FLAC|Lossless|CD|image + .cue] <Pumping House , Hard Bass>
+Aldo Bergamachine - AstroMoog (2010) [MP3|320 Kbps] <Electro, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was A Robot (04:06)
+02. AstroMoog (03:56)
+03. Gamma X Ray (03:39)
+04. Ashes To Wattoo (Pt.2) (03:30)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E2A1CDCDA6CD25C29C97ABF96750A1D3043BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233382   (593024) от 30.06.2018
+
+Игнатий Потапенко | Золотая медаль (1899) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дети в дореволюционной России. Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C688F6378420186DCE6EE4E33A56288662AED7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233386   (593023) от 30.06.2018
+
+Казимир Баранцевич | Весенние сказки (1894) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03F75D0EB4285DBDF40C700A9D5F9278DDDF1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233356   (593022) от 30.06.2018
+
+И. С. Войтинский (ред.) | Практика советского трудового права: сборник материалов для изучения советского трудового права (1932) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель «Практики советского трудового права» — служить пособием для изучения советского трудового права в учебных заведениях (вузы, школы профдвижения и т. п.), в порядке заочного обучения и в порядке самообразования. Таким образом, эта книга предназначена не только для учащихся соответствующих учебных заведений, но также для тех профработников, работников органов (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797952CFDBA998EAD7759613F6EF2E5C31957593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233216   (593021) от 30.06.2018
+
+Infinity Night - Disco Monolead (2010) [MP3|~245 Kbps (V0)] <Electro, Disco>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_593021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L.E. (Life - Extension Part 3) (04:53)
+02. Cha Cha Cha Synth (03:00)
+03. Disco Monolead (03:38)
+04. Extragalactic (04:06)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233623   (593020) от 30.06.2018
+
+Казимир Баранцевич | Золотые дни (1902) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов и сказок для детей младшего и среднего школьного возраста.Жанр: Детская проза. СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9B9C41F955579509D8861D7C2FAFACF0E0355C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233497   (593019) от 30.06.2018
+
+VA - FG Top 10 June 2018 [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stan Kolev - Oblivion (Extended Mix) 07:21
+02. Max Freegrant - Drama King 06:49
+03. Orphyd - Replicant (Original Mix) 05:43
+04. AxelPolo - Mirage 06:36(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9235DE3AC25E2A7CCD246910FE19D970967A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233218   (593018) от 30.06.2018
+
+Infinity Night - The Lost Tracks (2012) [MP3|320 Kbps] <Electro, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightfall (04:25)
+02. Summer81 (04:15)
+03. Another Lead (04:47)
+04. Spectral (Vocoder FB) (04:56)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFCE7473C1DEF1E8B7813CC7D9FCF92269C3A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233614   (593017) от 30.06.2018
+
+Элгуджа Диомидович Гурешидзе (Колхидский) | Прошлое, настоящее и будущее (2018) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593017.jpg" />
+</div>
+
+
+###  Подробнее
+
+После долгих изучении и разъяснений наиважнейших вопросов о жизни, ознакомлении многих уже значимых достижении, и всего того, что было мне дозволено увидеть и осмыслить - проанализировать, родилась это маленькая книга, в которой я постарался передать как можно было коротко и простым языком все, что можно и, конечно, дозволено передать. Ибо заметил, что передать смысл (   Читать дальше...   )Жанр: Религиоведение, история религий, ХристианствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC13CBCCD8F640DE9FC2DBEA2C5DD703CF63F624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233629   (593016) от 30.06.2018
+
+Болеслав Кумор | История Церкви [8 Томов] (2001) [PDF] [POL]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Священник Болеслав Кумор был одним из величайших современных историков Церкви. Он понимает Историю Церкви как «историю народа Божьего», рассматривая её на фоне истории всего христианства и мира. Он посвящает меньше места политическим вопросам и подчеркивает роль Церкви в развитии культуры в её миссионерской деятельности. История Церкви в Польше была также включена (   Читать дальше...   )Жанр: История ЦерквиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF37D2E90B1637C94A5DF512560C61BAC1DF1AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233583   (593015) от 30.06.2018
+
+Футбол. Чемпионат Мира 2018. Группа H. 3-й тур. Япония — Польша (28.06.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593015.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 июня 2018 года, четверг. 17:00 МСК
+21-й Чемпионат Мира по футболу 2018 года. Групповой турнир.
+Группа H. 3-й тур. Япония — Польша
+Стадион: Волгоград Арена (Волгоград, Россия) , вместимость: 45568(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56F3182C9191A3D563B3D6ECF72627F19EE9D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233459   (593014) от 30.06.2018
+
+VA - German Top 100 Single Charts 02.07.2018 [MP3|320 Kbps] <Pop>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_593014.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Namika - Je ne parle pas francais (feat. Black M) (Beatgees Remix)
+002. Pietro Lombardi - Phanomenal
+003. Clean Bandit - Solo (feat. Demi Lovato)
+004. Calvin Harris Dua Lipa - One Kiss(   Читать дальше...   )Жанр: PopПродолжительность: 05:33:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233618   (593013) от 30.06.2018
+
+Александр Чудинов (ред.) | Древне-русские повести и романы (1895) [PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_593013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов для среднего и старшего школьного возраста.Жанр: Детская проза, СтихиФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233507   (593012) от 30.06.2018
+
+VA - Автобан 1 (1997) [FLAC|Lossless|image + .cue] <House, Dance>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591223.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Queen Of The Night (4:10)
-02. Let's Get Ridiculous (4:23)
-03. R U Ready 4 The Boom (4:38)
-04. Raise Your Hands (3:07)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:19:48
+01. Ascura - Nobody Sed't Me ( Remix )
+02. Руки Вверх - История Любви ( Remix )
+03. Trancedriver - Синий Иний ( Remix )
+04. Action Directe - Funky Life(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:46:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA12967172F80B727F99B5148DC3AB6E60E7040C
+magnet:?xt=urn:btih:E7957D771946397EADB85AEA44F58CBE555501D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,22 +518,105 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550932   (591222) от 13.05.2022
+###  Публикация: 1233508   (593011) от 30.06.2018
 
-Игорь Акимушкин | Жил-был бобр (1987) [PDF]
+Ди-джей КЕФИР & Евгений Арсентьев - Мы сделаем Вас счастливыми (1999) [FLAC|Lossless|image + .cue]<House, Electro>
 
->>
->>
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591222.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге автор рассказывает про жизнь бобров. Кто такие, чем занимаются, чего боятся и чем полезны...
-Для детей дошкольного возраста. Иллюстрации П.Панченко.Жанр: РассказФормат: PDF
+01. Возьми меня ( Ди-Джей Кефир* & Евгений Арсентьев )
+02. Soul 99 ( Ди-Джей Кефир )
+03. Когда моя любовь звонит 99 ( Ди-Джей Кефир )
+04. Soul 99 ( Евгений Арсентьев )(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C15E3AF87F1076E679DF29322104B36D1FA0C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233503   (593010) от 30.06.2018
+
+Татьяна Зыкина - Ощущение реальности (2009) [FLAC|Lossless|image + .cue]<Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты-то кто? (feat. «Танок на майданi Конго»)
+02. Водопадами (08 version)
+03. Сдала (roublevka light version)
+04. 2 кота (light version)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7764C7778E6BA1CE6D769CA4F9BF841EADDA067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233384   (593009) от 30.06.2018
+
+Александр Чудинов (ред.) | Былины (1893) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Былины. Русские богатыри и витязи.Жанр: Детская проза, СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6989CD5098086FA53C6ED500C0D7C090AD597C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233630   (593008) от 30.06.2018
+
+Андрей Десницкий | Христианство. Настоящее (2016) [PDF, DJVU]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_593008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что значит быть христианином сегодня, в России XXI века? На каком языке рассказать о евангельской Истине и как жить с ней в мире, где всё так изменилось? Можно играть в реконструкторство, можно погружаться в мир собственных фантазий, но как встретиться с реальностью, как понять её? Или на самом деле все перемены за две тысячи лет были внешними, а главное осталось (   Читать дальше...   )Жанр: СтатьиФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
@@ -680,24 +628,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550834   (591221) от 13.05.2022
+###  Публикация: 1233025   (593007) от 30.06.2018
 
-Saint Serpent - The Moonshine Sessions and the Trailer Park Witch (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
+Facebook отказалась от разработки дронов-гигантов
 
->>
->>
+>>Поговорим
+>>Новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591221.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_593007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Bow Down (00:03:38)
-02 - Negative Creep (00:03:29)
-03 - A Cold One (00:03:25)
-04 - Fortunate Son (00:03:00)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:30:22
+Компания Facebook оставила планы по самостоятельному проектированию и производству беспилотников, раздающих интернет-подключение с воздуха. Задачу по разработке Aquila и все вопросы, связанные с использованием частотных диапазонов, будут возложены на партнеров, сообщил технический директор Facebook Яэль Магуайр.О старте экспериментального проекта Aquila было объявлено (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -709,25 +654,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550969   (591220) от 13.05.2022
+###  Публикация: 1233465   (593006) от 30.06.2018
 
-Человек и закон (13.05.2022) SATRip
+А.В. Фомин (сост.) | Неслучайные «случайности». Новые истории о Промысле Божьем (2016) [FB2, PDF]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591220.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Основные темы общественно-политической программы "Человек и закон" - борьба с организованной преступностью, расследования о коррупции в высших эшелонах власти, криминальные истории. Программа старается дать взвешенную оценку важнейшим событиям в политической, экономической и социальной жизни страны, освещает огромный спектр вопросов и проблем, с которыми (   Читать дальше...   )Телекомпания: 1 каналЖанр: Документальный, Телепередача, КриминалПродолжительность: 00:48:33
+Во второй книги серии «Неслучайные "случайности"» собраны многочисленные удивительные истории о невероятных совпадениях, встречах в жизни людей, чудесных спасениях, помощи Божией в трудные минуты, которые свидетельствуют о том, что Господь всегда рядом с каждым из нас.
+
+«Промысл Божий охраняет всю нашу жизнь. Но иногда бывают особые случаи. Иному они покажутся (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9ABAD2DB6F244EC42B6234E2A4BB18A7CA2F9D9D
+magnet:?xt=urn:btih:1BE7F7904544913C4D541E73074A9DEAE3CBB4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233510   (593005) от 30.06.2018
+
+Love Childs Afro Cuban Blues Band - 3 Albums (1975-1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йоркский студийный диско проект от Michael Zager.Список альбомов:
+1975 - Out Among 'Em
+1977 - Spandisco
+1978 - Rhythm Of Life(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363B65FBB04C723191980ED86465080BABB9F524
 ```
 
 https://mybot314.ru/tekegram_catalog/

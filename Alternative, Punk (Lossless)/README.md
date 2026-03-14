@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1858573   (1060373) от 11.03.2026
+
+Clawfinger - Before We All Die (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scum
+02. Ball & Chain
+03. Tear You Down
+04. Big Brother(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39FBAEDA054BEF439D5F74E25D97DE01988E763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858285   (1060309) от 10.03.2026
+
+VA - War Child Records - HELP(2) (2026) Explicit [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Arctic Monkeys - Opening Night [00:04:19]
+02 - Damon Albarn - Flags [00:05:06]
+03 - Black Country, New Road - Strangers [00:04:29]
+04 - The Last Dinner Party - Let's Do It Again! [00:04:31](   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E30E04F77D0C068C9F22BFE7A017E8A7EEA4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858229   (1060257) от 10.03.2026
+
+VA - Early Indiana Punk And New Wave: (The Crazy Al's Year(s) 1976 - 1983) (2014) [FLAC|Lossless|tracks + .cue] <Punk, New Wave, Experimental, Power Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Avengers - Mary's In A Coma (3:36)
+02. The Positions - Follower Of The Space Race (3:24)
+03. The Future - The Standing Joy (2:55)
+04. Video Kids - Born Too Late (3:10)(   Читать дальше...   )Жанр: Punk, New Wave, Experimental, Power PopПродолжительность: 02:05:52.933 (333 084 360 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F371281B4AD4D33C36818ADE054172A3D7B9653A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857703   (1059848) от 07.03.2026
 
 Coldplay - X&Y (2005) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Pop Rock>
@@ -658,93 +745,6 @@ Russkaja - Turbo Polka Party (2023) [FLAC|Lossless|WEB-DL|tracks] <ska punk, gyp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B5F7523204BAE21B6B0B0CD76F572ECABEA9C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609576   (1043177) от 04.02.2023
-
-Mod Sun - God Save The Teen (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop-Punk, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyelids [00:02:46]
-02. Revenge [00:02:37]
-03. Avril's Song [00:02:45]
-04. Shelter (feat. Avril Lavigne) [00:03:10](   Читать дальше...   )Жанр: Alternative, Pop-Punk, Pop-RockПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEAC7AB44B227FD1151C88AEC32290FBC70E28F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437004   (1042806) от 02.01.2021
-
-If These Trees Could Talk - The Bones Of A Dying World (2016) [FLAC|Lossless|tracks + .cue] <Post Rock, Instrumental, Post Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solstice (7:50)
-02. Swallowing Teeth (4:27)
-03. Earth Crawler (6:38)
-04. After The Smoke Clears (6:18)(   Читать дальше...   )Производство: Metal Blade Records – 3984-15461-2Жанр: Post Rock, Instrumental, Post MetalПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0FA16CC6B26211BA86FE4B707F69110409E8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437013   (1042557) от 03.01.2021
-
-Caspian - On Circles (2020) [FLAC|Lossless|tracks + .cue] <Post Rock, Alternative Rock, Post Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildblood (6:53)
-02. Flowers Of Light (5:02)
-03. Nostalgist (feat. Kyle Durfey) (5:56)
-04. Division Blues (7:02)(   Читать дальше...   )Производство: Triple Crown Records – TCR03235Жанр: Post Rock, Alternative Rock, Post Metal, InstrumentalПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8996F652B83563D1B58A880AE1725292A66EA86
 ```
 
 https://mybot314.ru/tekegram_catalog/

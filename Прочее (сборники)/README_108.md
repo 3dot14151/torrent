@@ -1,3 +1,32 @@
+###  Публикация: 1320180   (473039) от 17.08.2019
+
+VA - Зайцев.нет Лучшие новинки Августа 2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473039.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Swanky Tunes feat. Jantine - I'll Live On (3:05)
+2.Maruv - Между нами (2:59)
+3.Ольга Бузова - Лайкер (3:44)
+4.Rick Ross - Turnpike Ike (4:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B141C6086BA9F99F7F4AEF4D549A13923ED80C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406628   (472928) от 04.09.2020
 
 VA - не Громкие новинки недели 80 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -734,35 +763,6 @@ VA - Music News vol.207 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28E547D6CE0C9F2782EE294171DB0B31069BAB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568162   (465902) от 06.08.2022
-
-VA - В машине с музыкой Vol.294 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nalyro Feat. & Giorgio Gee & Levis Della - Apologies (02:23) 2022
-02. Lady Gaga - Alejandro (Ayur Tsyrenov & DFM Remix) (02:54) 2022
-03. Portnov - К Пацанам (03:21) 2022
-04. Twan Ray Feat. & Moonshine & Solar State - Leave A Smile (02:28) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C366B220FB7EE4740E44DB0316A4B28AE18C612
 ```
 
 https://mybot314.ru/tekegram_catalog/

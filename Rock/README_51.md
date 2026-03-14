@@ -1,3 +1,61 @@
+###  Публикация: 935683   (498506) от 09.09.2015
+
+VA - New Psychedelic Sound - Les Genies Du Rock - LSD (1993) [MP3|320 кб/с]<Garage Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Sickidz - LSD (2:38)
+02.  The Slickee Boys - Invisible People (3:33)
+03.  The Veceroys - 7 Come 11 (1:05)
+04.  The Shout - From Here (2:49)(   Читать дальше...   )Жанр: Garage Rock, Psychedelic RockПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC83E6AA7D88516943B9010296DBE58B3409542F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935679   (498459) от 09.09.2015
+
+VA - Rock in Australia - Les Genies du Rock - Rock In Australia (1993) [MP3|320 кб/с]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Surfin' in another direction (3:31)
+02.  Sleep and dream (3:42)
+03.  Too many girls (3:13)
+04.  St valentine's day (4:07)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267C4A1D68EDB08F95DBC1669DD3307C88BC98DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541732   (498114) от 03.09.2012
 
 Lou Rhodes - 3 альбома (2005-2010) [MP3|320]<folk rock,acoustic,folk>
@@ -687,63 +745,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A71D6692DAE2DFB417558E569DF1939A86FBE6BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158998   (488133) от 18.08.2017
-
-Cravinkel - Garden Of Loneliness (1971) Reissue, 2003, Walhalla [MP3|320 Kbps] <Prog Rock, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488133.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sitting In The Forest
-2. Garden Of Loneliness
-3. StonedЖанр: Prog Rock, KrautrockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B39ECF3093BF0BEC6E953D359B61D24E1CCCA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158942   (488007) от 18.08.2017
-
-Cravinkel - Cravinkel (1970) Reissue, 1998, Repertoire Records [MP3|320 Kbps] <Prog Rock, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get A Feeling Going Round
-02. Two Circles
-03. Lucy
-04. Heaven(   Читать дальше...   )Жанр: Prog Rock, KrautrockПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3044FE50D43140526BEDDB067A6B8913EB46B996
 ```
 
 https://mybot314.ru/tekegram_catalog/

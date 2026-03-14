@@ -1,3 +1,29 @@
+###  Публикация: 794401   (697740) от 08.06.2014
+
+Отель «Гранд Будапешт» / The Grand Budapest Hotel (2014) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об увлекательных приключениях легендарного консьержа Густава и его юного друга, портье Зеро Мустафы. Сотрудники гостиницы становятся свидетелями кражи и поисков бесценных картин эпохи Возрождения, борьбы за огромное состояние богатой семьи и… драматических изменений в Европе между двумя кровопролитными войнами XX века.Жанр: комедия, детектив, приключения, криминалПродюсер: Уэс Андерсон, Джереми Доусон, Стивен РейлсВ ролях: Рэйф Файнс, Тони Револори, Сирша Ронан, Эдриан Броуди, Уиллем Дефо, Ф. Мюррэй Абрахам, Джуд Лоу, Эдвард Нортон, Джефф Голдблюм, Харви КейтельПеревод: Профессиональный (дублированный)Язык субтитров: Русский, АнглийскийПродолжительность: 01:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79E2BE7CCA6A90559932E6A65E9FAD402F62692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026822   (697686) от 18.06.2016
 
 Brian Tyler - Иллюзия обмана / Now You See Me (Original Motion Picture Soundtrack) (2013) [AAC|WEB-DL|256 кб/с]<Soundtrack>
@@ -680,35 +706,6 @@ VA - Full Moon Chill, Vol. 2 (2018) [AAC|~330 Kbps] <Lounge, Chill Out, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7FFDC826DCA5DA33CBAE3845B30873614967693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534336   (696085) от 01.03.2022
-
-VA - Santorini Solaire Chill 2 (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e, Diego Porchile - When Eyes Speak (Original Mix) (5:21)
-02. Dave de Tommaso, Davide Aru, Dacosta - Timeless (3:33)
-03. Digby Jones, Airglo - Cielo (Night Stars at Cafe Del Mar Mix) (3:49)
-04. Gary B, Ken Fan - Volar (4:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC859C562BEA8D1796744E8D4FCD9D372189E29
 ```
 
 https://mybot314.ru/tekegram_catalog/

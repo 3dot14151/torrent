@@ -1,3 +1,32 @@
+###  Публикация: 983252   (943109) от 06.02.2016
+
+VA - Bust A Move Vol.2 (2015) [MP3|320 кб/с] <Psychedelic, FullOn, Night>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brain Hunters Feat John Go - Another Level (7:48)
+02. Funk Truck Vs Soundfanatic - Dr!ve (7:45)
+03. Dissy - Cocaine (8:19)
+04. Tube - So Sexy (8:54)(   Читать дальше...   )Жанр: Psychedelic, FullOn, NightПродолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C59B6AB8F31E677831B3CE5D4D1264BB99AECF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091502   (943108) от 09.01.2017
 
 VA - Resident Advisor - RA Poll Top 50 Tracks of 2016 (2017) [MP3|254-320 Kbps] <Minimal, Dancehall, Dub, Juke, IDM, Abstract и другие>
@@ -716,35 +745,6 @@ VA - Plimoot Longe: Dream Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A642F958A7B6BC6F1C5479066ABE8FC333886A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984488   (939010) от 09.02.2016
-
-VA - In The Language Of Trance (2016) [MP3|320 кб/с] <Uplifting, Progressive, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939010.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cor Fijneman feat. Jan Johnston - Venus (Meant to Be Your Lover) (Tiesto remix)
-002. Marc Simz feat. Emma Lock - Untimate Love (Original Mix)
-003. Ruben De Ronde LTN feat. Kimberly Hale - Moment Of Truth (Ruben De Ronde Mix)
-004. Christian Peter Stier - Last Summer (Original Mix)(   Читать дальше...   )Жанр: Uplifting, Progressive, Vocal TranceПродолжительность: 10:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A87599AA065326CE95A91C3B4942B9B87F6CC48
 ```
 
 https://mybot314.ru/tekegram_catalog/

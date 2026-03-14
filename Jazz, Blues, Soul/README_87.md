@@ -1,3 +1,61 @@
+###  Публикация: 1373488   (878525) от 07.04.2020
+
+Afro Cuban All Stars - A Toda Cuba Le Gusta (1999) [FLAC|Lossless|image + .cue] <Jazz, Latin>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amor Verdadero
+02. Alto Songo
+03. Habana Del Este
+04. A Toda Cuba Le Gusta(   Читать дальше...   )Жанр: Jazz, LatinПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02ECBE1C82BD0C31B2B5BC8C9D6596E0F4CBC971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104602   (878298) от 16.02.2017
+
+Don Cherry - Relativity Suite (1973) Trio Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tantra [07:59]
+ 02.Mali Doussn'gouni [05:38]
+ 03.Desireless [01:26]
+ 04.The Queen Of Tung-Ting Lake [04:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E253EC34B46498A9F688D636D8865B5F8E2E6B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104598   (878293) от 16.02.2017
 
 Don Cherry Quintets - Copenhagen 1963 & Hilversum 1966 (2010) FreeFactory [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -687,64 +745,6 @@ Benito Gonzalez - Sing to the World (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5201C168BEDFFE923C23CD9225C433CE8FFACC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495851   (875853) от 15.09.2021
-
-Chris Rea - Blue Guitars I - Beginnings (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West Africa (Instrumental) (4:16)
-02. Cry for Home (4:58)
-03. The King Who Sold His Own (5:18)
-04. White Man Coming (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F35CAD665344243C07F750F313CE69D33FBF3538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495947   (875833) от 15.09.2021
-
-Akkerhaugen Raid - Nite Owl Method (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Halfway There (4:43)
-02. Part Time Lover (4:43)
-03. Something About the Way She Walks (3:43)
-04. One More Night with Her (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C8BF0EAF97F4E9CA86B31338540241817CB6C99
 ```
 
 https://mybot314.ru/tekegram_catalog/

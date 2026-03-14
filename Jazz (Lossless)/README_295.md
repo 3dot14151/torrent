@@ -1,3 +1,90 @@
+###  Публикация: 970506   (139674) от 31.12.2015
+
+Joe Henderson - Big Band (1997) Verve Records[FLAC|tracks+.cue] <Post-Bop, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Without A Song [05:25]
+ 02.Isotope [05:21]
+ 03.Inner Urge [09:02]
+ 04.Black Narcissus [06:54](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Big BandПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D70035BB7DE366F976D435B668746E4F9B2AD5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970916   (139601) от 31.12.2015
+
+Cannonball Adderley - Live! (1964) Remaster, 2011, EMI Music[FLAC|tracks+.cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Little Boy With The Sad Eyes [13:30]
+ 02.Work Song [08:55]
+ 03.Sweet Georgia Bright [06:47]
+ 04.The Song My Lady Sings [15:25](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2F30D26BFA61E54D3B7DB3FFA57BA76C62EB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970715   (139546) от 31.12.2015
+
+Doctor Lonnie Smith - Too Damn Hot! (2004) Palmetto Records[FLAC|tracks+.cue] <Jazz Fusion, Post-Bop, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Norleans [04:54]
+ 02.Too Damn Hot [06:23]
+ 03.Back Track [07:10]
+ 04.The Whip [05:40](   Читать дальше...   )Жанр: Jazz Fusion, Post-Bop, Hammond OrganПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C048341BE21A3E5AA725366BDA5ACA8472103A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520821   (139544) от 30.12.2021
 
 Artie Shaw - 1950 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -658,93 +745,6 @@ Sven Erik Lundeqvist Trio - First & Foremost (2018) Storyville Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A42D03C12CB340C9400E38F6C7BC65A80C36F04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273254   (138071) от 31.12.2018
-
-Paul Quinichette - Basie Reunion (1958) 2000, Original Jazz Classics [APE|Lossless|image + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Jumped Out [5:57]
-02. The Blues I Like to Hear [7:27]
-03. John's Idea [9:18]
-04. Baby Don't Tell on Me [7:56](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1C21031F4AED23B4D28836D9CE4F942419454C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521028   (138052) от 31.12.2021
-
-Kenny Dorham - The Arrival Of Kenny Dorham (1960) 1997, Venus Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stage West [8:30]
-02. I'm an Old Cowhand [4:16]
-03. Stella by Starlight [5:09]
-04. Delilah [4:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D85F542665376E47473FCC078E497C212062D251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273246   (137936) от 31.12.2018
-
-David Wilson - Romance of Christmas (1999) Swallowtail Records [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy to Love [2:50]
-02. In the Still of the Night [3:42]
-03. What Is This Thing Called Love [3:34]
-04. FromThis Moment On [3:32](   Читать дальше...   )Жанр: Jazz-Pop, Violin JazzПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08FB082DFBD7D31D9B772D84996AA600D8DB854
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 950549   (367551) от 27.10.2015
+
+VA - Всё сразу 200 хитов Выпуск 10 (from Valik) (2015) [MP3|112-320 кб/с]<Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367551.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Время и Стекло - Песня 404
+002. Eli and Fur - You're So High (Original Mix)
+003. Гости из будущего и Константин Легостаев - Ждать и петь
+004. Inna - Fool Me(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B725928BA38FBD846B9BA6BC824231F0DEB5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575285   (367541) от 15.11.2012
 
 VA - Легенды Русского Рока (2012) [MP3|128 кб/с]<Русский Рок>
@@ -770,32 +799,6 @@ VA - Dance Hits Collection 90s Vol.4 (2019) [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:688C92D83F05DA8E636571ED516B191B2FF7B65F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167454   (362566) от 25.10.2017
-
-VA - Romantic Collection From Ovvod7 vol.1-3 (2017) [MP3|320 Kbps]<Pop, Rock> Обновляемая
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, RockПродолжительность: ~03:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B526B8858C48F26E27D8C67E5CA850799D2334
 ```
 
 https://mybot314.ru/tekegram_catalog/

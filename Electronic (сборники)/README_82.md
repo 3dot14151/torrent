@@ -1,3 +1,32 @@
+###  Публикация: 1025525   (710112) от 12.06.2016
+
+VA - Red Lips House: Soulful Female Vocal House Trax from Deep 2 Progressive (2016) [MP3|320 кб/с] <Deep House, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix - Time 2 Love - Intro Vocal Mix
+02. Housetronik - Soul Fever - Romero Shape Club Mix
+03. Atrium - Mint Flavour - Ibiza Chillhouse Mix
+04. Intention Crew - Do It Right - Full House Mix(   Читать дальше...   )Жанр: Deep House, Vocal HouseПродолжительность: 03:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3C68EF50099E148599E2C0351346C34F0596B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025541   (710108) от 12.06.2016
 
 VA - Daybreak Sessions 2016 By Tomorrowland (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
@@ -723,35 +752,6 @@ VA - Deep House Collection vol.166 (2018) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60CF92D97BCDEF33D250AEB71EA84C9086163EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220268   (706094) от 18.04.2018
-
-VA - Deep House Session (Vol. 2) (2018) [MP3|320 Kbps] <Deep House, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dophamean - Sunrise
-02. Styline & Stravy ft. Hoody Time - Now We Go Deep (Original Mix)
-03. Claptone Ft. Nathan Nicholson - Under The Moon
-04. Pink Noisy feat. Barrice - Orlando Dawn (Extended Mix)(   Читать дальше...   )Жанр: Deep House, ElectronicПродолжительность: 03:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98FD613FEDBFA613211EF163EF845EF002719AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1421966   (315424) от 06.11.2020
+
+VA - Fun Disco Roller: October Set (2020) [MP3|320 Kbps] <Disco, Dance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cayden Shall - Yula (Original Mix)
+002. Tokyo Social Club - Over
+003. Serial Thrilla - Soul Man (Original Mix)
+004. Uj Pa Gaz - End Of M(   Читать дальше...   )Жанр: Disco, Dance, RemixПродолжительность: 13:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4833725DA22D7B6E1DAB99E013E841324D3738A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182773   (315096) от 11.11.2017
 
 VA - The Official UK Top 40 Singles Chart 10.11.2017 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -733,35 +762,6 @@ VA - Club Dance Ambience Vol.94 (2016) [MP3|320 Kbps] <House, Mash Up, Club, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD7381BAC72718E656111DE19C4A90D92748F21E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260858   (306527) от 09.11.2018
-
-VA - Дискотека 2018 Dance Club Vol. 185 от NNNB [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-01. Rave Channel - He's Like A Wind (A-Mase House Radio Mix) (4:22)
-02. Dua Lipa & BlackPink - Kiss And Make Up (3:09)
-03. Vanessa Da Mata - Boa Sorte (Kellow, Kordy & LELO Remix) (4:42)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 18:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BA2CDF4C5188CD1250DAE591BB8178184A0261
 ```
 
 https://mybot314.ru/tekegram_catalog/

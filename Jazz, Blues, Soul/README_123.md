@@ -1,3 +1,177 @@
+###  Публикация: 1200288   (796423) от 20.01.2018
+
+David Gogo - Soul-Bender (2011) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Find My Baby (03:34)
+02. Slow It Down (04:01)
+03. Was It Love (03:24)
+04. Time Is Killing Me (05:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B0AC39EF57600BABE4FC5F032C1B0D7CA707F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200297   (796418) от 20.01.2018
+
+Carolyn Gaines - Beware Of My Dog (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beware Of My Dog (Feat. Big Jay McNeely) (03:20)
+02. I'm Your Cat, Baby (Feat. Big Jay McNeely) (04:37)
+03. Stone Out Your Raggly Mind (Feat. Grady Gaines, Jr.) (04:09)
+04. Catch That Train (Feat. Grady Gaines, Jr.) (03:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0AFBF36857C08413100663BBB2488E3288621F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011768   (796407) от 28.04.2016
+
+Stan Getz - Moments In Time (1976) 2016, Resonance Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Summer Night [09:19]
+ 02.O Grande Amor [06:51]
+ 03.Infant Eyes [07:51]
+ 04.The Cry Of The Wild Goose [08:32](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D2E1CF7B85F88697042DB8F11AAC6727E737D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011575   (796404) от 28.04.2016
+
+The Naughty Blokes - We Rise (2016) [MP3|320 кб/с] <British Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Attack (03:41)
+02. Move You (03:30)
+03. Tenderly Loved Woman (05:31)
+04. Constantly (04:02)(   Читать дальше...   )Жанр: British BluesПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEB78E6D31B962AFC342C0C0718ED070A139E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011562   (796391) от 28.04.2016
+
+Spyro Gyra - Freetime (1981) [APE|Lossless|image + .cue] <Jazz, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freetime
+02. Telluride
+03. Summer Strut
+04. Elegy for Trane(   Читать дальше...   )Жанр: Jazz, Jazz-RockПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B11CA2F4E8739CAC9932C950BFBE6EEC5967B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508931   (796281) от 10.11.2021
+
+Yoko Miwa Trio - Songs of Joy (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom (Havens) - 6:19
+02. Largo Desolato (Miwa) - 6:43
+03. Song of Joy (Preston) - 6:33
+04. Small Talk (Miwa) - 4:24(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC11A8AFA90923B88AB5EEF43091EEEE1B21233D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508845   (796277) от 10.11.2021
 
 Najponk Trio - A Hard Day's Night: Live At The Office (2018) Gats [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -571,180 +745,6 @@ Teddy Edwards - Sunset Eyes (1959, 1960) 1998, Pacific Jazz [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E76050854602AF25F55C0B557204FC3F2A41C1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200795   (795025) от 22.01.2018
-
-Baby Laurence - Dancemaster (1959, 1960) 2008, Classic Jazz [FLAC|Lossless|image + .cue] <Tap Dance, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby at Birdland [04:29]
-02. The Sand [04:50]
-03. Buck Dance [05:06]
-04. Mall March [03:50](   Читать дальше...   )Жанр: Tap Dance, SwingПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD88958746FD8984A1DA71156277296EFAB1706D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200794   (795024) от 22.01.2018
-
-Frankie   Newton - 1937 - 1939 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Showed Me The Way [02:47]
-02. Please Don't Talk About Me When I'm Gone [02:37]
-03. Who's Sorry Now? [02:48]
-04. I Found A New Baby [02:40](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED8F56B541B2F15C9954B6909E200B25F305C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200791   (795022) от 22.01.2018
-
-Cody Moffett - Evidence (1993) Telarc Jazz [WavPack|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melodic Drum March I [01:37]
-02. Blues Connotation [04:54]
-03. Evidence [05:21]
-04. Equinox [08:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B138D9073D7A89F8B228EBABC76F76F2180A110C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509338   (795010) от 12.11.2021
-
-Stan Getz - Four Classic Albums: Third Set (1949 - 1958) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795010.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Stella by Starlight [2:42]
-02. Time on My Hands [2:56]
-03. 'Tis Autumn [3:13](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 02:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C39D88CCDA4A44375B31D0B41E67F0EF3284AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509270   (794903) от 12.11.2021
-
-Tony Bennett & Lady Gaga - Love For Sale (2021) 2xCD [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794903.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Love For Sale:
-01. Tony Bennett & Lady Gaga - It's De-Lovely (00:02:53)
-02. Tony Bennett & Lady Gaga - Night And Day (00:03:42)
-03. Tony Bennett & Lady Gaga - Love For Sale (00:03:40)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD4693901A6895DE80A71651448E55ED85C17CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509343   (794882) от 12.11.2021
-
-Eric Clapton - The Lady In The Balcony Lockdown Sessions (Live) (2021) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Knows You When You're Down And Out (Live)
-02. Golden Ring (Live)
-03. Black Magic Woman (Live)
-04. Man Of The World (Live)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F08345FD852B6E7C5D6BFDB305E7007BB6665D
 ```
 
 https://mybot314.ru/tekegram_catalog/

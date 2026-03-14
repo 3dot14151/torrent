@@ -1,3 +1,90 @@
+###  Публикация: 1296312   (613366) от 16.04.2019
+
+Gesaffelstein - Hyperion (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyperion (02:53)
+ 02. Reset (03:25)
+ 03. Lost in the Fire (ft. The Weeknd) (03:22)
+ 04. Ever Now (01:38)(   Читать дальше...   )Жанр: Techno, DowntempoПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:225AA283A0E36AD8A56663CD1D2B9658E48FE3BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037514   (613349) от 24.07.2016
+
+DJ Antoine - Provocateur (Limited Edition) 2CD (2016)[FLAC|Lossless|tracks] <House, Progressive House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Antoine feat. Jay Sean - Weekend Love (DJ Antoine vs Mad Mark 2k16 Album Version)
+02. DJ Antoine & Dimaro - Best Trick (Dimaro Radio Edit)
+03. DJ Antoine vs Mad Mark feat. Jordin Sparks - Too Late For Love (Album Version)
+04. DJ Antoine feat. Conor Maynard - Dancing In The Headlights (Radio Edit)(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 02:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3A127FF1F6704ADB9173FD50EE032499C87176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037522   (612136) от 25.07.2016
+
+Dinka - Hotel Summerville (2010) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scarlet (Original Mix) (7:37)
+02. Green Leaf (Extended Vocal Mix) (6:50)
+03. Elements (6:34)
+04. Some People Will Never Learn (7:40)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB16269E3628A297751807A99AEEA9F778B6EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230854   (611941) от 14.06.2018
 
 VA - AWRY003 (2018) AWRY [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -672,93 +759,6 @@ Bob Moses - All In All (2015) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7244378AD8B4C0CDAA76D72CBE7861415AD334C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148568   (603449) от 07.07.2017
-
-Lexer - Against The Current (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lexer - Escape with Me
-02. Lexer, Fran - Eagle Eye
-03. Lexer - It Will Be All over Soon
-04. Lexer - Without Rules(   Читать дальше...   )Жанр: Deep House, House, Progressive HouseПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135613A0211CF7315E4D58C04083DE04CB33EBFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148651   (603359) от 07.07.2017
-
-VA - Progressive Collection, Vol. 9 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kastis Torrau & Arnas D - Take Over (Navid Mehr remix) [07:48]
-02. Nicolas Rada - Schiphol (original mix) [08:35]
-03. Madloch - Circle (original mix) [09:12]
-04. Michael A & Andrea Shu - Canyon (Matan Caspi remix) [07:32](   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 04:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F6395B9E19F5B70149B29F8023063925CDA6048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297807   (603142) от 24.04.2019
-
-Monodisc - Discography 2 Releases (2015-2017) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Eternal Gaze (05:48)
- 02. Thoughtless Sleep (07:06)
- 03. Confined Spaces (06:28)
- 04. The Longest Drive Home (09:42)(   Читать дальше...   )Тип издания: WebЖанр: Dub Techno/AmbientПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD9D7AB1403C5CF4DCC78904AFABA58F2D3BA8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

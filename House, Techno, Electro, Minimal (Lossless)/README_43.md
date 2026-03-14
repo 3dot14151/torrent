@@ -1,3 +1,96 @@
+###  Публикация: 551881   (449864) от 25.09.2012
+
+The Prodigy - The Dirtchamber Sessions, Volume One (1999) [FLAC|Lossless]<Alternative Rock, Breaks, Punk, Big Beat, Hip Hop, Breakbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_449864.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Dirtchamber Sessions Volume One - альбом, состоящий из диджейских ремиксов различных исполнителей от лидера электронного коллектива The Prodigy Лиама Хоулетта.01. Section 1: Intro Beats / Punk Shock / Untitled / Chemical Beats / Kool Keith ... :: 07:18
+02. Section 2: Bug Powder Dust / Pump Me Up / How High / Poison / Been Caught Ste... :: 06:44
+03. Section 3: The Mexican / Rock the House / The Best Part of Breaking Up / King... :: 06:03
+04. Section 4: Hey Can You Relate / What Time Is Love / Funky Acid Makossa / Shaf... :: 07:52
+05. Section 5: New York / Punk to Funk / I'm Sick :: 04:57
+06. Section 6: The Home of Hip-Hop / Strong Island / Kowalski / Time to Get Ill /... :: 05:48
+07. Section 7: Get Down / Humpty Dance / Dope On Plastic / Beats and Pieces :: 03:59
+08. Section 8: Sure Shot / Breakdance Electric Boogie / Doomsday of Rap / Ozone B... :: 08:40
+Section 1 - 7:18
+ 1. Intro Beats - taken from Run-D.M.C.’s «Here We GoЖанр: Alternative Rock, Breaks, Punk, Big Beat, Hip Hop, BreakbeatФормат: CD, Compilation, MixedПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390623   (449248) от 21.09.2011
+
+Miguel Migs - Outside the Skyline (2011) [FLAC|Lossless]<Deep House, Soulful House, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_449248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Life (feat. Half Pint)
+02. Tonight (feat. Meshell Ndegeocello)
+03. Breakdown (feat. Lisa Shaw)
+04. Everybody (feat. Evelyn Champagne King)(   Читать дальше...   )Жанр: Deep House, Soulful House, LoungeПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163817   (445952) от 07.09.2017
+
+Scooter - 24 Carat Gold (2002) Compilation [FLAC|Lossless|image + .cue] <Techno, Hardstyle, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nessaja
+02. The Logical Song
+03. Aiii Shot The DJ
+04. Posse (I Need You On The Floor)(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7EA57F0A910C6A1A1D7B0F84392CC753F6B26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322800   (444697) от 31.08.2019
 
 Modjo - Modjo Remixes (2013) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco, Electro>
@@ -657,91 +750,6 @@ VA - James Warren Presents: Visceral 041 (2016) [FLAC|Lossless|WEB-DL|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62C95DBD2A01E87C32910833A3F24D986CA1B32C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945922   (431575) от 11.10.2015
-
-Maribou State - Portraits (2015) [FLAC|Lossless|WEB-DL]<Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home
-02. The Clown (feat. Pedestrian)
-03. Rituals
-04. Steal (feat. Holly Walker)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C6EB1A3F62113CE84EA4529188659547FA6477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249713   (431204) от 25.09.2018
-
-VA - Techno Ballads Collection (1996-1999) Millennium Records [FLAC|Lossless|tracks+.cue] <Techno, Ambient, Electro, Downtempo, House, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalon - Peaks (03:44)
- 02. Sounds From The Ground - Triangle (07:08)
- 03. Solar Quest - Save The Whale (08:04)
- 04. Time Modem - Promise Of Shadows (05:34)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo/Techno/AmbientПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C1D49B301B7149075E9C5A05AA31B21289CF62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249733   (431191) от 25.09.2018
-
-Mirae Arts - Label 2 Releases (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Glitch>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled A (18:19)
- 02. Untitled B (19:56)Жанр: Ambient/GlitchПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C8D122604B265B7BEDD1B237110824A56D79BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

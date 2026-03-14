@@ -1,3 +1,38 @@
+###  Публикация: 485030   (89371) от 19.04.2012
+
+VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.15 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_89371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Инфинити - Другая (Radio Edit)
+02.Maroon 5 feat. Wiz Khalifa - Payphone
+03.Горячие Головы - Лето В Крыму
+04.Timbaland feat. Bran'Nu & Attitude - Show Dat Bra
+05.Влад Соколовский - Наши Голоса
+06.Davis J - Sambabamba (Radio Edit)
+07.5sta Family - Хозяин Снов
+08.Nelly Furtado - Big Hoops (Bigger The Better)
+09.Борис Моисеев - Всех Надо Прощать
+10.French Montana feat. Akon - Self Made(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD30EF915755DB0706D3B08B859658B3E4CEC26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483704   (88756) от 16.04.2012
 
 VA - Взрывной танцевальный Top DFM (2012) [MP3|192-248 kbps]<Pop | Dance>
@@ -857,41 +892,6 @@ VA - TOP 100 Зайцев.нет (29.03.2012) (2012) [MP3|126-320 kbps]<Pop|Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25F1D86D4B113E0F6EFDBEC7487F33F258E09D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475275   (85289) от 30.03.2012
-
-VA - Сборник медленных хитов Vol.4 (2012) [MP3|320 kbps]<Pop | Rock | Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85289.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Bosson - Beautiful
-002 Svetlana Razina Feat.Julio Fernandez - Esta Noche
-003 Bryan Adams - Mysterious Ways
-004 Nana - Lost In My Life
-005 Mark Knopfler - I'm The Fool
-006 Switchfoot - Your Love Is A Song
-007 Charice - In Love So Deep
-008 Jessica Mauboy - Here For Me
-009 Eamon - On & On
-010 Zucchero - Dopo Di Noi(   Читать дальше...   )2012Жанр: Pop | Rock | BluesПродолжительность: 06:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596D0B181C4EB738C5175D0E426EEB5525999CB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

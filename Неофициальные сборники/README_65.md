@@ -1,3 +1,90 @@
+###  Публикация: 981220   (952965) от 31.01.2016
+
+VA - Trance Traveling 73 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruben De Ronde LTN feat. Kimberly Hale - Moment Of Truth (Ruben De Ronde Mix) (06:15)
+02. Headstrong feat. Stine Grove - Love Until It Hurts (Aurosonic Progressive Mix) (06:01)
+03. Luke Bond vs CARTEL - Once More (Extended Mix) (05:40)
+04. DRYM - Generation (Extended Mix) (03:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48913438916C4B51CB385C368C7E8E1A440B012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981310   (952893) от 31.01.2016
+
+VA - Душа кричит Академия хитов шансона (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952893.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Геннадий Парыкин - Моя Малышка
+002. Владимир Двинской - Апрель
+003. Группа Централ - Кедры
+004. Александр Левшин - Зеркала Небес(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF525CDAED45E32F1598922F57A756CF7F9ADB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981441   (952879) от 31.01.2016
+
+VA - Music For The Soul Vol. 1 - 4 (2016) [MP3|256-320 кб/с] <New Age, Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol. 1
+
+01 Chris Spheeris - Culture
+02 Frederic Delarue - Flying over the Canyons(   Читать дальше...   )Жанр: New Age, Chillout, Lounge, DowntempoПродолжительность: 15:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922C379A0FE8E8655532950A7DB4DF70EF9711D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980605   (952809) от 31.01.2016
 
 VA - Турбо Модные Хиты В Зимний Вечер (2016) [MP3|225-256 кб/с] <Pop, House, Dance>
@@ -659,93 +746,6 @@ VA - Trance Elegance On This Year 006 (2016) [MP3|320 Kbps] <Trance, Harmonic, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29881BCB63204D1AD995FD8CDCE01754A6E8F725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089797   (950778) от 04.01.2017
-
-VA - NYE 2016 Lounge Hits (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vinyl Cartel - Redim
-02. Future Loop Foundation - I'm Only Dreaming
-03. Vinyl Cartel - Shuk Un
-04. Bencenzi - Vista(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E948933D7F52A57E5FF8CF14926CD2D3413A8450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089548   (950703) от 04.01.2017
-
-VA - Блатной шансон на любимой волне. Часть № 8 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950703.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Плотников - Я Вернулся Москва 3:37
-002. Николай Искуснов - Память Моя 3:51
-003. Сергей Куренков - Сочи 3:17
-004. Александр Дюмин - Друзья 3:17(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA7E68642E512EEF1BA5C8D9EC506C36230A7E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089455   (950699) от 04.01.2017
-
-VA - Русский зимний музобоз (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950699.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adil Karaca - Музыка 3:52
-002. Лена Максимова - Счастье Внутри 3:50
-003. Саша Жемчугова - Кто-То За Нас 4:06
-004. Мулат - Включила Заднюю 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04622693EDDD9943B6D0B487F97745674E952EF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1681129   (133139) от 02.12.2023
+
+Markus Schulz & Ilan Bluestone & Daniel Wanrooy - Global DJ Broadcast In Search Of Sunrise 19 Release Special (2023-11-30) [MP3|320 Kbps] <Progressive House, Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Summer of '99 (from In Search of Sunrise 19)
+02. Anske - Heavenly Cake
+03. OCATA - Welcome to the Awakening
+04. Ben Bohmer - After EarthЖанр: Progressive House, Trance, TechnoПродолжительность: 01:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C10F57E2338EFED550C6C61CC1101D461572F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681071   (133127) от 02.12.2023
+
+VA - Armin van Buuren - A State Of Trance 1149 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zack Martino - Kill My Heart (Evoxel & Antrex Remix)
+02. Ferry Corsten & Diandra Faye - Stay Awake
+03. Alex Sonata & TheRio - Feels Like Home
+04. Ruben de Ronde & Farius & David Frank - Radiant(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BF282212EAB0BFAFD65710B6D82BCE5629745D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681140   (133028) от 02.12.2023
 
 Korolova - Tomorrowland Friendship Mix (2023-11-30) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
@@ -681,64 +739,6 @@ VA - Armin van Buuren - A State Of Trance 1155 (2024) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A5F7F590963593FC8A1E49D9692A6DCC6BC2435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692001   (122929) от 14.01.2024
-
-Korolova - Live @ Captive Soul , 2GTHR Buenos Aires (2024-01-12) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Temper Trap - Sweet Disposition (ID Remix)
-02. ID - ID
-03. Agents Of Time - Inception
-04. Piero Pirupa - Change Your Mind (Korolova Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFE2AC17F53C3C1E83CF8C08966022E29CD7C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692039   (122734) от 15.01.2024
-
-Space 92 - Live @ Input Barcelona, Spain (2024-01-06) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space 92 - Robot w/Space 92 - Gravity (Acapella)
-02. Heerhorst - Wimbo
-03. Space 92 - Gravity
-04. Green Velvet - Flash (Bart Skils Edit)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9FB1F44E394162320AA706942F7374A073C2AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1575169   (377201) от 09.09.2022
+
+Wired Ways - Wired Ways (2022) [MP3|320 Kbps] <Retro Prog, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ticket Tally Man (03:50)
+02. Peacock on the Highway (04:11)
+03. Lazy Daisy (05:46)
+04. HanoiTramway (04:51)(   Читать дальше...   )Жанр: Retro Prog, Classic RockПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B5CD7B9480E988D1D41CAA998BB937C4016897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575338   (377200) от 09.09.2022
+
+Northern Revival - Modification (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludge, Southern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Broken [00:04:58]
+02 Psychosis [00:04:00]
+03 Bar Knight [00:04:06]
+04 Pobednik [00:06:31](   Читать дальше...   )Жанр: Heavy Rock, Stoner, Sludge, Southern MetalПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B0982F8E4885C7ECA07737C0B635F3A0B760EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575219   (377199) от 09.09.2022
 
 Stratovarius - Visions (1997) Remastered, 1997, T&T [OGG Vorbis|485 Kbps] <Rock>
@@ -699,67 +757,6 @@ Sir Rod Stewart - And Some Of His Early Faces (2016) 2CD [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AF9A9AF4607AA9816425703BD42F3EE0BB9F599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 251962   (371078) от 01.11.2010
-
-The Band - Discography (1968..2005) [MP3|320 kbps]<Country / Roots / Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Country / Roots / Blues RockПродолжительность: 31:20:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575441   (370894) от 14.11.2012
-
-Kid Rock - Rebel Soul (2012) [MP3|320 кб/с]<Rock, Country, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chickens In The Pen (4:49)
-02.  Let's Ride (4:50)
-03.  Catt Boogie (4:24)
-04.  Detroit, Michigan (3:56)
-05.  Rebel Soul (4:02)
-06.  God Save Rock N Roll (5:21)
-07.  Happy New Year (3:34)
-08.  Celebrate (4:01)
-09.  The Mirror (4:46)
-10.  Mr. Rock N Roll (6:37)(   Читать дальше...   )Жанр: Rock, Country, Southern RockПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9ED593D7D7C02EEFBE3B5D471602885B71CE8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

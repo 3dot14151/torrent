@@ -1,3 +1,177 @@
+###  Публикация: 1047265   (550368) от 29.08.2016
+
+Jack McDuff - The Soulful Drums (1964, 1965) 2001, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Soulful Drums [06:10]
+ 02.Two Bass Hit [07:17]
+ 03.Greasy Drums [05:39]
+ 04.Moohah The D.J. [07:30](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA514626976B10DEED50CA202690AB7E20C4DBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047214   (550364) от 29.08.2016
+
+Steve Hunt - From Your Heart And Your Soul (1997) [WavPack|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550364.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One Thing After Another (4:05)
+2. Point Of Light (6:23)
+3. Wake Up (6:24)
+4. Coming Home (8:25)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075CEDA3AD8EEEEC33220461A08BD763B74B8BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047029   (550363) от 29.08.2016
+
+Toots Thielemans - The Soul of Toots Thielemans (1959) 2010, FSR [FLAC|Lossless|tracks + .cue] <Bop, Contemporary Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are My Sunshine  05:17
+02. Nuages  05:24
+03. Five O'clock Whistle  04:37
+04. Soul  04:56(   Читать дальше...   )Жанр: Bop, Contemporary Jazz, Mainstream JazzПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D603A74ACA8FDC40D9892DB875D917B9AF2542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046838   (550361) от 29.08.2016
+
+Sadao Watanabe - Orange Express (1981) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Orange Express [04:39]
+ 02.Ride On [04:42]
+ 03.Call Me [05:08]
+ 04.Good For All Night [06:36](   Читать дальше...   )Жанр: Post-Bop, Crossover JazzПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BAE24336F6E05129DE9B02F2872C87AC56F1B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047346   (550357) от 29.08.2016
+
+Nadiamori - Nadiamori Electro Jazz (2005) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lounge, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nadiamori (04:30)
+02. Drum'n Blues (04:50)
+03. Money Back Guarant... (05:26)
+04. Free In Love (04:58)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Electro SwingПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A8C059F13CFCD4A66527C3ED7EEAEEEB49F8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046873   (550355) от 29.08.2016
+
+Jim Suhler and Monkey Beat - Radio Mojo (1993) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Were You When the Lights Went Outї  02:50
+02. Doncha Hang Around My Door  04:30
+03. Radio Mojo  03:31
+04. Devil's Hand  03:40(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D59506DDF3F3745F2AFEEC43B3DF1B1863C237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047359   (550265) от 29.08.2016
 
 Malene Mortensen - You Belong To Me (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -571,183 +745,6 @@ VA - Audiophile Voices (Collection 2003-2012) [MP3|320 кб/с]<Jazz, Vocals>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:136253B8CCA824275D941D5DA817FB5C85998461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047832   (548504) от 31.08.2016
-
-Charles Gayle Quartet - Blue Shadows (1993) 2008, Silkheart[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Inside the Sun [03:01]
- 02.Blue Shadows [11:31]
- 03.Eternity Promised 1 [17:14]
- 04.Eternity Promised 2 [02:09](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26D1BDC804ACB7F1DDF3816BFC9F02A102D7876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047919   (548500) от 31.08.2016
-
-Johnny "Hammond" Smith - Talk That Talk (1960) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Talk That Talk [05:12]
- 02.An Affair To Remember [02:36]
- 03.The End Of A Love Affair [05:22]
- 04.Minors Allowed [05:46](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFF27108E63C476A12957FA810A39E8975F31DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047970   (548353) от 31.08.2016
-
-Woody Herman - The Thundering Herds 1945-1947 (1988) [WavPack|Lossless|image + .cue] <Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вуди Герман (Woody Herman, полн. Woodrow Charles Herman, 16.05.1913 - 29.10.1987)
-- американский джазовый кларнетист, альт- и сопрано-саксофонист, певец, бэндлидер.
-Профессионально играть на саксофоне начал в 15 лет.
-Один из самых популярных бэндлидеров 30-х - 40-х годов.(   Читать дальше...   )01. Woodchopper's Ball (3:12)
-02. Apple Honey (3:18)
-03. Goosey Gander (3:24)
-04. Northwest Passage (3:12)(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E2C9FEAAEBCBF7DDC5E4363B41A54C07976F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047829   (548340) от 31.08.2016
-
-Doris Day - The Best Of Doris Day (1944-1957) 2CD, 2008, Not Now Music[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548340.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Que Sera Sera (Whatever Will Be, Will Be) [02:08]
-02.Secret Love [03:39]
-03.A Guy Is A Guy [02:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB44D7DCC08C2E39542383C5FADB7A10A7300F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310243   (547859) от 23.06.2019
-
-May Okita - Art Of Life (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Face the Music and Dance [3:46]
-02. Both Sides Now [4:55]
-03. Detour Ahead [5:15]
-04. Art of Life [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C48F683AF0B5D07EAD2DB9AEDD180A2E04A0AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048162   (547426) от 01.09.2016
-
-Bill Evans - The Brilliant (1980) 1996, Timeless Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Laurie [07:52]
- 02.Letter To Evan [08:40]
- 03.Mornin' Glory [03:55]
- 04.Theme From M.A.S.H. [04:23](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0122A06566C816CB4028DB931EFB6314FBA69D
 ```
 
 https://mybot314.ru/tekegram_catalog/

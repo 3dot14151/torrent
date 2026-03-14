@@ -1,3 +1,148 @@
+###  Публикация: 1705939   (63391) от 10.03.2024
+
+Slade - Slayed? (Слейд. Убитый?) (1972) 1993 [FLAC 24/192|Lossless|tracks] <Classic Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Как ты едешь? How D'You Ride. (Holder - Lea)
+02 - Весь мир сошел с ума. The Whole World's Goin Crazy. (Holder)
+03 - Взгляни в эту ночь. Look At Last Nite. (Holder - Lea)(   Читать дальше...   )Жанр: Classic Rock, GlamПродолжительность: 00:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74673024E815EDA53779C925FA16DB1C7A8723D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705941   (63388) от 10.03.2024
+
+ВИА «Самоцветы» - Самоцветы (1973) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Песня моя, песня (О. Иванов – П. Леонидов)
+02. Горлица (О. Иванов – С. Кирсанов)
+03. За того парня (М. Фрадкин – Р. Рождественский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD50B9F13F874F309E03542A7DDDB4E2C5BD439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548753   (63237) от 12.03.2024
+
+Amaranthe - Studio Albums (7 releases) (2011-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Modern Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amaranthe — шведско-датская метал-группа, основанная в 2008 году Джейком Е. Лундбергом (Dreamland, Dream Evil) и Олафом Мёрком (Dragonland, Nightrage). Проект начал складываться, когда к группе присоединились вокалисты Элиз Рид и Энди Сульвестрём, а также ударник Мортен Лёве. После выхода первого демо-альбома состав коллектива пополнил басист Юхан Андреассен2011 - Amaranthe
+2013 - The Nexus
+2014 - Massive Addictive
+2016 - MaximalismЖанр: Melodic Modern Metal, Power Metal, Pop MetalПродолжительность: 06:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C187AFE3A42EE0DF0642798F4B67B4D45187BF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706162   (63201) от 12.03.2024
+
+Toto Cutugno - Тото Кутуньо (1985) [FLAC 24/96|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01. Итальянец (L’Italiano) (Salvatore Cutugno - Cristiano Minellono)
+02. Только мы (Solo noi) (S.Cutugno - C.Minellono)
+03. Одни (Soli) (S.Cutugno - C.Minellono)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E026C8B93E41F2DD454D0DDC1584FC59C8A71824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706241   (63184) от 12.03.2024
+
+Ласковый Май - Белые Розы (1989) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Electronic, Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63184.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Белые Розы
+B Седая Ночь
+
+Pressed By – Ленинградский Завод Грампластинок(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126B3A68B60E3F18C3C0765E9D2D8A07736271F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706052   (63180) от 12.03.2024
 
 ВИА «Синяя птица» - От сердца к сердцу (1978) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
@@ -600,151 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFF94E3593AFB45B618AE55713D87BFC336B77DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709620   (61832) от 25.03.2024
-
-Пикник - Родом ниоткуда (1989) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Я невидим
-02. Интересно
-03. Нет берегов(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD2332778A4AB5E8BD3B0F71CBEAD52FA1C7AA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709696   (61817) от 25.03.2024
-
-VA - Пульс 1 - Музыкальный компьютер. (Серия "Спорт и музыка") (1985) [FLAC 24/192|Lossless|tracks] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-А.Родионов. "Современное пятиборье" (сюита)
-01-Догоняй, компьютер (кросс)
-02-Электронный наездник (скачки)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:25:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EB504B5680808F2FAAD2A2D0BB3228310996858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709678   (61806) от 25.03.2024
-
-VA - Пионерские песни - А. Долуханян (1969) [FLAC 24/192|Lossless|tracks] <Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Если петь нам о Родине (В. Семернин)
-02. Песня о первом пионерском отряде (С. Рунге)
-03. До чего же хорошо кругом (Л. Некрасова)
-04. В добрый путь (В. Харитонов)(   Читать дальше...   )Жанр: RetroПродолжительность: 00:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FB9A54D834AB8B67BC708814D9E09BDCA6BBBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709614   (61799) от 25.03.2024
-
-James Last (Джеймс Ласт) - Большой секрет (1977) [FLAC 24/192|Lossless|tracks] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Ликование / Jubilation (P. Anka / J. Harris)
-02. Колыбельная / Summertime (G. Gershwin / D. Heyward)
-03. Я не могу двигать горы / I Can’t Move No Mountain (M. Gately/ R. John)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5141EAF3474509EA5721B0489B5836D9067FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709617   (61795) от 25.03.2024
-
-Пикник - Иероглиф (1987) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Остров
-02. Иероглиф
-03. Праздник(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C024F4716C42DAA660D4396DD7B863641B3088
 ```
 
 https://mybot314.ru/tekegram_catalog/

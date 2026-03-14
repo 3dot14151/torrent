@@ -1,3 +1,177 @@
+###  Публикация: 1558726   (528800) от 22.06.2022
+
+Wellington Heads - Southern Night Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harbour City Blues (5:50)
+02. Life's Little Challenges (5:10)
+03. Heart Condition (6:27)
+04. Push Comes to Shove (5:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2069BB3D95FD1B78FC67417ACE07418BE6F22CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558720   (528799) от 22.06.2022
+
+Gabriel Delta, Daniele Mignone and Paolo Baltaro - A New World (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Juke Joint Flat (3:30)
+02. Earth Song (4:22)
+03. London Blues (3:17)
+04. Relax Your Mind (4:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1580853B1C14A42A4CC87CFAC7C421665E4372C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927537   (528767) от 13.08.2015
+
+Fattburger - Living In Paradise (1988) /Intima Records/[FLAC|tracks+.cue]<Jazz, Smooth, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friends [04:35]
+02. One More Time [05:28]
+03. The Banana Bread Song [05:00]
+04. Imagine That [04:35](   Читать дальше...   )Жанр: Jazz, Smooth, Jazz-PopПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E660950F47220616A655FF2FCE5F87B18EC8C482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927531   (528766) от 13.08.2015
+
+Carter Jefferson - The Rise Of Atlantis (1978) /2015, Solid Records/[FLAC|tracks+.cue]<Jazz, Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why [07:28]
+02. The Rise Of Atlantis [06:59]
+03. Wind Chimes [06:59]
+04. Changing Trains [04:59](   Читать дальше...   )Жанр: Jazz, Hard Bop, Post-BopПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84BA4AAC8FBC19B41F1F56529DCFE161A6781A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927375   (528765) от 13.08.2015
+
+Barney Wilen - More From Barney At The Club Saint-Germain (1959) /2014, Sony Music/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Things In Life Are Free [09:26]
+02. All The Things You Are [08:24]
+03. Reets And I [06:49]
+04. Round Midnight [11:16](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 01:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:728A1E31F51FDA15DDC728276FF9F19016084796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927377   (528760) от 13.08.2015
+
+John Coltrane - Living Space (1965) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Space [10:26]
+02. Untitled 90314 [14:50]
+03. Dusk-Dawn [10:53]
+04. Untitled 90320 [10:49](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free Improvisation, Hard BopПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7686CE018B23C06E8AF9C52B8997D24C0988C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927542   (528759) от 13.08.2015
 
 Sly & The Family Stones - Les Genies du Rock - Back On The Right Track (1994) [MP3|320 кб/с]<Funk, Soul, R&B>
@@ -571,180 +745,6 @@ Konstantin Klashtorni - Chillaxonic: 1st Facet (2018) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CD3685F195334CBBDC5165F14301ED25E08817C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156701   (527079) от 08.08.2017
-
-Cedar Walton & Clifford Jordan - The Pentagon (1976) 2008, Universal [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manteca [05:59]
-02. Darn That Dream [05:21]
-03. Una Mas [05:19]
-04. D.B. Blues [04:41](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F82F680FC81C035752B844F3E8C1C5EF8B4004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156636   (527078) от 08.08.2017
-
-Jim Hall - Giants Of Jazz (1956 - 1964) 1997, Promo Sound AG [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Felicidade [03:14]
-02. 9:20 Special [05:39]
-03. Bill Not Phil [07:10]
-04. Dream Gypsy [04:31](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E547DFA7E527F053615D58BC06E0E83DA8AB148B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156634   (527077) от 08.08.2017
-
-Miles Davis - Walkin' (1954) 1994, GBH Music [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkin' [13:20]
-02. Blue 'n' Boogie [8:15]
-03. Solar [04:45]
-04. You Don't Know What Love Is [04:20](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC56A289DB43D501541E7A2FCEFE5BA3A33F8EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559071   (527000) от 24.06.2022
-
-Konstantin Klashtorni - Chillaxonic: 2nd Facet (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violet Twilight (4:34)
- 02. Soulful Awakenings (4:30)
- 03. Together We Fly (4:08)
- 04. Chilled to the Max (5:33)(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B4B5590B8ACBC80190357E0A9B423F1734F922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156407   (526977) от 08.08.2017
-
-VA - Jazz Blues Classics (2017) [MP3|320 Kbps] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ray Charles - Rockhouse (Parts 1 & 2) (Remastered)  3:53
-02.  Big Joe Turner - You're Driving Me Crazy  4:16
-03.  Aretha Franklin - Moody's Mood  3:02
-04.  Freddie Hubbard - High Blues Pressure  7:31(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 02:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E625BB1AF6FBFC90A1804DD2C37671CCC2D5E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156912   (526443) от 09.08.2017
-
-Art Tatum - Goldfingers (1933 - 1956) 3CD, 2011, Le Chant du Monde [FLAC|Lossless|image + .cue] <Stride, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526443.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Tea For Two:
-01. Tea For Two [03:18]
-02. After You've Gone [02:32]
-03. Liza [02:01](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 03:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB1431A7AE782602DA4D65C72DA305CF396ACDF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

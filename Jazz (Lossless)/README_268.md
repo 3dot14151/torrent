@@ -1,3 +1,90 @@
+###  Публикация: 1641658   (210808) от 23.06.2023
+
+Dexter Gordon Quartet - Love For Sale (1964) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [1:28]
+02. Love for Sale [13:53]
+03. I Guess I'll Hang My Tears Out to Dry [9:54]
+04. Big Fat Butterfly [7:01](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490BFDD2715BA6BF26E0D1189D6E657C22AB40C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641787   (210608) от 24.06.2023
+
+Jackie McLean & Dexter Gordon - The Meeting, Vol. 1 (1973) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction by Jackie McLean [0:53]
+02. All Clean [17:13]
+03. Rue de la Harpe [8:36]
+04. Callin' [13:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68376E30EAAC45CC9D19530E2A3E8A1461C72271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642167   (210470) от 26.06.2023
+
+Dexter Gordon - More Power! (1969) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Bird [10:42]
+02. Meditation [8:30]
+03. Fried Bananas [6:07]
+04. Boston Bernie [7:38](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C599622C152A9A9749F1E01E96990D805C9C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642496   (210408) от 27.06.2023
 
 VA - Sunday Family Brunch Lounge Soothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -658,93 +745,6 @@ Mohini Dey - Mohini Dey (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43198C1F15E44CEE19200FCB7261417040FF4687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655060   (204610) от 24.08.2023
-
-Sonny Criss - Rockin' In Rhythm (1968) 1999, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eleanor Rigby [5:38]
-02. When The Sun Comes Out [6:32]
-03. Sonnymoon For Two [4:56]
-04. Rockin' In Rhythm [4:45](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900F07AE467CD85A478534CAC2C6E462F47621C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655489   (204319) от 26.08.2023
-
-V.A. - Magic Moments 16 (In the Spirit of Jazz) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nils Landgren - Chapter II
-02. Peter Somuah - Reincarnation
-03. Jakob Manz - Wade in the Water
-04. Matthieu Saglio - Irta(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DF1B37A2601FC3E9C7E5F84E382F199FF9CD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655425   (204207) от 26.08.2023
-
-Oscar Pettiford & Vinnie Burke - Bass by Pettiford / Burke (1955) 1999, Bethlehem [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sextette [2:56]
-02. Golden Touch [2:33]
-03. Cable Car [2:21]
-04. Tricrotism [2:42](   Читать дальше...   )Жанр: BopПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36961AA420544530CBA8FBC89C1BFA57DD09B46C
 ```
 
 https://mybot314.ru/tekegram_catalog/

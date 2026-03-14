@@ -1,3 +1,32 @@
+###  Публикация: 1412701   (413724) от 01.10.2020
+
+VA - Tribais Dark Folk (2020) [MP3|320 Kbps] <Folk Ambient, Dark Ambient, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wardruna - Helvegen
+02. SKALD - Run
+03. Danheim - Odinn
+04. Trobar De Morte - Voluspa: The Begining and the End of the World(   Читать дальше...   )Жанр: Folk Ambient, Dark Ambient, RockПродолжительность: 06:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B805C5F4F12225665C0163FA0295BA8CB8D1ECF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572758   (412522) от 31.08.2022
 
 VA - Music News vol.211 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -729,50 +758,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1090D83733236D83783E747448FD807A267BB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558977   (408483) от 13.10.2012
-
-VA - Клубный Авто Хит (2CD) (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408483.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Afrojack And Apster - ID (Cat Skillz Remix)
-02. MaxiGroove, Bhp feat. Lexter - Wonderfull World (Club Mix)
-03. Alvaro & Lil Jon Feat. Wll. I. Am - With My Hands Up (Original Mix)
-04. Omnia feat. Ana Criado - No One Home (Radio Edit)
-05. Arkasia feat. Hayley Gene - Don't Speak
-06. The Hotheads - What We Want
-07. Aylius feat. Katie Joy - Lucid
-08. The White Panda - Wallphones (Maroon 5 Vs. Sultan & Ned Shepard Remix)
-09. DJ Dark & Shidance feat. Violet - Turn It Up (Club Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 02:25:05
-01. Anil Chawla - Thats More House (Original Mix)
-02. Alycia Stefano - Loca Loca (Latino Extended Mix)
-03. Avicii - Last Dance (Original Club Instrumental)
-04. BuLaLa - STREETRACING
-05. Balthazar & Jackrock – The Way We Rock (Original Mix)
-06. Cloud 7 - Silence (Original Vocal Edit)
-07. Chris Reece, EDX & Stan Kolev - Miami Device (Original Mix)
-08. Diplo feat. Lil Jon - U Don't Like Me (Datsik Remix)
-09. D. Ramirez - Boom Boom (Original Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA3655697E3FF95FE71820D2EB1071BB18635AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

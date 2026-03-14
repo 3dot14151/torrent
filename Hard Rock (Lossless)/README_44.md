@@ -1,3 +1,119 @@
+###  Публикация: 1558781   (528749) от 22.06.2022
+
+Sleazy RoXxX - Trinity Junction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boyz4boyz
+02. Curse Of Generation
+03. Drunk To Forget
+04. Everything(   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133D4372C7A49936241DFE70C4C1FF3451CB7EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052476   (528073) от 14.09.2016
+
+Tainted Nation - On The Outside (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Live And Die (3:16)
+ 02.Defiance (3:28)
+ 03.Fight (3:48)
+ 04.Barriers (3:24)(   Читать дальше...   )Жанр: Hard Rock, Melodic Heavy MetalПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC50ED1A4BB04464CF9E2D5395CAB4B9F95157B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052410   (527951) от 14.09.2016
+
+Alcatrazz - The Ultimate Fortress Rock Set (2016) 5CD Box Set [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527951.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - No Parole From Rock 'N' Roll (1983)
+CD2 - Live Sentence (1984)
+CD3 - Disturbing The Peace (1985)
+CD4 - Dangerous Games (1986)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 05:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB03FE49C585F3B8B6B8D59A28682D0A880B1351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036204   (527851) от 14.09.2016
+
+Wolf Hoffmann (ex.Accept) - 2 Albums (1997 - 2016) [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scherzo 05:20
+02. Night On Bald Mountain 04:21
+03. Je Crois Entendre Encore 04:15
+04. Double Cello Concerto in G Minor 03:29(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF995BE7D9134CF93374467FF4F603DE4C17BD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052816   (527370) от 15.09.2016
 
 Moody Marsden - Ozone Friendly (1997) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
@@ -635,131 +751,6 @@ Flatline Feedback - Scraps (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FBA1D2CEEEFFF1D0C2C2AC7CCE6987E0999B5C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561264   (515642) от 04.07.2022
-
-Easy Action - That Makes One (1986) Reissue, Remastered, 2020, Aor Heaven [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk Of The Town (3:20)
-02. Teachers Do It With Class (5:42)
-03. Code To Your Heart (3:55)
-04. Only Love (4:49)(   Читать дальше...   )Жанр: Melodic Hard Rock
-Страна: SwedenПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CA6BD6DA70E2D010ABC523E07DA5B3A5B5828D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561186   (515640) от 04.07.2022
-
-Devil's Train - Ashes & Bones (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкие хард-рокеры DEVIL’S TRAIN, лидером которых является вокалист MYSTIC PROPHECY и STEEL PANTHER RD Liapakis выпустили на ROAR! Rock Of Angels третий студийный альбом “Ashes & Bones”.
-
-Имея на своем счету 10 лет карьеры и два тепло принятых альбома, европейский ответ на BLACK LABEL SOCIETY, THE DEAD DAISIES и BLACK STONE CHERRY представляет нашему вниманию (   Читать дальше...   )01. The Devil & The Blues
-02. Girl Of South Dakota
-03. Rising On Fire
-04. You Promised Me Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394EBA8468B367BBEAB3DBCB81D4559CF07945FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561419   (515636) от 04.07.2022
-
-Sweet Pain - Swallow This (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock´n´Roll Thunderball
-02. All the Things the Bite
-03. Hot Rod Ruby
-04. Hellfire Bbq(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754903A2604243E0D04449B747528C3358AFEC1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 49554   (515368) от 17.08.2012
-
-Judas Priest (1974 — 2005)
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515368.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. “Judas Rising” – 3:52
-2. “Deal with the Devil” (Halford, Downing, Tipton, Roy Z) – 3:54
-3. “Revolution” – 4:42
-4. “Worth Fighting for” – 4:17
-5. “Demonizer” – 4:35
-6. “Wheels of Fire” – 3:41
-7. “Angel” – 4:23
-8. “Hellrider” – 6:06
-9. “Eulogy” – 2:54
-10. “Lochness” – 13:28Жанр: Heavy MetalПродолжительность: 12:48:39
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

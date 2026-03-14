@@ -1,3 +1,32 @@
+###  Публикация: 1514826   (214008) от 05.12.2021
+
+VA - Herbal Ambient Sound (Vol.02) (2021) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка, протекая словно теплый ручей, завиваясь в воронки, утягивает слушателя за собой, она закручивает и уносит в другую реальность подсознания. Мелодии придают ощущение легкости и полета, что очень благоприятствует как пассивной, так и активной медитации!001. Dag Rosenqvist - Lämnar Allt Igen
+002. The Green Kingdom - Another Sky
+003. August Rosenbaum - Accordeon Permutation
+004. Amethystium - Some Kind Of Sunrise(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 09:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B434056BCD25CCA31567325D78EF333287DDBDED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514768   (213991) от 05.12.2021
 
 VA - Beatport Deep House: Sound Pack #380 (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -716,35 +745,6 @@ VA - DOWN LOW 3 (2023) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64FDD37C00E777C3519506A7784C08D3CF941AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615200   (206197) от 28.02.2023
-
-DJ PafTron - TechnoTron Transformers (2023) [MP3|320 Kbps] <Techno, Hard Techno, Minimal Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rise Of The Machines Transformers (skit 1)
-02 DJ PafTron-TechnoTron Megatron
-03 Rise Of The Machines Transformers (skit 2)
-04 DJ PafTron-TechnoTron 2 Optimus Prime(   Читать дальше...   )Жанр: Techno, Hard Techno, Minimal TechnoПродолжительность: 11:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC362E8E0BD7DF472DD72A0A0E660C7A5DA77CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

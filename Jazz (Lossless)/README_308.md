@@ -1,3 +1,90 @@
+###  Публикация: 1699628   (117566) от 14.02.2024
+
+Barry Harris Trio - Chasin' The Bird (1962) 1996, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasin' the Bird [5:35]
+02. The Breeze and I [4:17]
+03. Around the Corner [3:03]
+04. Just as Though You Were Here [3:42](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20398EE864D30A5D7CA331D38AC642E122F2E50A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699552   (117557) от 14.02.2024
+
+Barry Harris Trio - Preminado (1960, 1961) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Stood Still [6:34]
+02. Preminado [5:30]
+03. I Should Care [3:38]
+04. There's No One But You [4:08](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FC7E1889ED2F3D3D4ECDEC503DED591EED5893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699549   (117555) от 14.02.2024
+
+Barry Harris - At The Jazz Workshop (1960) 2006, Riverside [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is You Is or Is You Ain't My Baby (take 2) [5:39]
+02. Curtain Call [3:49]
+03. Star Eyes [4:45]
+04. Moose the Mooche [6:11](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08867DE1CC186167DECA0B7F11BD60E7F73B5275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699629   (117549) от 14.02.2024
 
 Donald Byrd Sextet With Yusef Lateef & Barry Harris - Complete Recordings (1955) 2006, Gambit Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -658,93 +745,6 @@ Erotic Jazz Music Ensemble - Midnight Intimacy: Gentle Caresses, Intimate Moment
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E98F4E1223F203B0A8D23F533BAC992235C01D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700708   (116848) от 18.02.2024
-
-Svend Asmussen - June Night (1983) 1993, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. June Night [4:20]
-02. Sweet Georgia Brown [3:29]
-03. Lazy River [5:19]
-04. Nadja [5:01](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0518A89AF8F6122FE53B25B7D37EBFFD35D28C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700707   (116832) от 18.02.2024
-
-Donald Byrd - At The Half Note Cafe, Vol. 2 (1960) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeannine [13:12]
-02. Pure D. Funk [6:11]
-03. Between the Devil and the Deep Blue Sea [9:55]
-04. Theme from Mr. Lucky [10:53](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29D0B127A93C9434970DA1E3CF47AB7A3D5BFD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700701   (116827) от 18.02.2024
-
-Dick Haymes - The Name's Haymes! (1958) 2015, Sepia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Hot Summer [2:55]
-02. So Far [3:40]
-03. You Stepped Out of a Dream [2:16]
-04. This Time the Dream's on Me [3:16](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 01:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD41280D328427A3C7AF84508A0C45C3DC0C7CEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

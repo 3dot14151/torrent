@@ -1,22 +1,25 @@
-###  Публикация: 496612   (253655) от 17.05.2012
+###  Публикация: 1625977   (255257) от 12.04.2023
 
-[Wallpapers] Подборка обоев из фильма "Алиса в Стране чудес" (15.05.12)
+Windows 10 22H2 x64 Rus by OneSmiLe [19045.2846]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253655.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Сборка сделана из оригинального образа
+ru-ru_windows_10_business_editions_version_22h2_updated_march_2023_x64_dvd_04089db3
+Удалены все модерн приложения.
+3 образа системы -(   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E25AAC05C0C4236996EE10FE63D544253A1E0573
+magnet:?xt=urn:btih:E23B4544C46019CEB2871FC09F9780B4F3535556
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498125   (253652) от 17.05.2012
+###  Публикация: 1626052   (255254) от 12.04.2023
 
-Die Atzen - Party (Ich Will Abgehn) (2012) [H.264/1080р] WEBRip
+Аватар: Путь воды / Avatar: The Way of Water (2022) WEB-DLRip
 
 >>Архив торрентов
->>Архив Музыкального Видео
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253652.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: House, ElectroПродолжительность: 00:03:20
+После принятия образа аватара солдат Джейк Салли становится предводителем народа на’ви и берет на себя миссию по защите новых друзей от корыстных бизнесменов с Земли. Теперь ему есть за кого бороться — с Джейком его прекрасная возлюбленная Нейтири. Когда на Пандору возвращаются до зубов вооруженные земляне, Джейк готов дать им отпорПроизводство: США, 20th Century Studios, Lightstorm Entertainment, TSG EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джеймс КэмеронАктеры: Сэм Уортингтон, Зои Салдана, Сигурни Уивер, Стивен Лэнг, Кейт Уинслет, Клифф Кёртис, Джоэль Мур, Си Си Эйч Паундер, Иди Фалько, Брендан КоуэллПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: Русские (forced hardsub)Продолжительность: 03:12:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0E72FA19B28BBCD87B19957F2D3467D472F1918
+magnet:?xt=urn:btih:0A6BBB6F6E180DFB423D41E08C73E9847B30549F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,34 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497605   (253648) от 17.05.2012
+###  Публикация: 1626265   (255239) от 13.04.2023
 
-VA - Клубная Москва Лето Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
+BurnAware Professional 16.5 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253648.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. D-Mad - 1961 (Original Vocal Mix)
-02. Andreea D - So Real (Club Edit)
-03. Armin Van Buuren - We Are Here To Make Some Noise (Extended Mix)
-04. Paul Veth - Dali's Groove (Original Mix)
-05. Maroon 5 - Payphone (Reidiculous Remix)
-06. Davis J - Sambabamba (Davis J Remix)
-07. Luis Lopez - Lay Me Down ft Adena (Extended)
-08. Steve Forest & Nicola Fasano, Sanfran D!5co - Sunrise (Die Hoerer Mix)
-09. Dash Berlin & Shogun - Callisto
-10. Dash Berlin feat. Shanokee - Surrender2012Жанр: Dance, ClubПродолжительность: 04:59:19
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D28EE0A53BE3DC7BFEE307D0C3E498546EF373A
+magnet:?xt=urn:btih:23D0BF53CD70A169B783485FAB4C18EC61FF1F5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,29 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498019   (253645) от 17.05.2012
+###  Публикация: 1626135   (255238) от 13.04.2023
 
-[Wallpapers] Colorful HD Desktop Wallpapers (17.05.2012)
+Fort Firewall 3.8.7 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253645.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Colorful HD Desktop Wallpapers (17.05.2012)
-Название: Colorful HD Desktop Wallpapers (17.05.2012)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4201D0582D580BA91F7354CBD3315624115BF2B
+magnet:?xt=urn:btih:EE954A2F5ABEB587DFD8961C9E54C60A233D66C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -115,34 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497914   (253631) от 17.05.2012
+###  Публикация: 1626226   (255230) от 13.04.2023
 
-VA - TMP: Trance Harmony 065 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Dream Trance>
+R-Wipe & Clean 20.0.2400 RePack (& Portable) by elchupacabra [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253631.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Extended Mix)
-02. Sied van Riel - Audio 52 (Original Mix)
-03. Sean Tyas feat. David Berkeley - Believe (Original Mix)
-04. Soulforge - Ferris Wheel (Original Mix)
-05. Three Drives - Letting You Go (Greece 2000) (Dabruck & Klein Vocal Remix)
-06. Simon O'Shine - Miss You (Jaden Merrick Remix)
-07. Snoww & Dj T.H. feat. Di - On & On (Original Mix)
-08. Sophie Sugar - Skyline (DNS Project Remix)
-09. Paul Oakenfold feat. Tamra - Sleep (Robert Vadney Perfecto Mix)
-10. Shooting Star - This One (Original Mix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:09:00
+R-Wipe & Clean - программа для невосстановимого удаления данных с жесткого диска с широкими возможностями. Среди возможностей: очистка файла подкачки и файлов .dat (в т.ч. используемых системой), удаление записей в MFT и многое другое, что требуется для уничтожения следов деятельности за компьютером. Кроме очистки свободного места на диске (включая удаление кластеров, (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC0059AB015B5FEC6432439D24B8C71E05DB8CF1
+magnet:?xt=urn:btih:6D89698B3EA4E59E4FF2950333312CAC2CFF61B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -150,34 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497518   (253628) от 17.05.2012
+###  Публикация: 1626159   (255227) от 13.04.2023
 
-Paul Oakenfold - Planet Perfecto 080 (15.05.2012) [MP3|256 кб/с]<Trance, Progressive, Beat>
+Emurasoft EmEditor Professional 22.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253628.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kenneth Thomas feat. Coleen Riley - The Heart Speaks (Eximinds Remix)
-02. Christopher Damas - In Love Ibiza 2012 (Original Mix)
-03. Soul Assistant - Egregor (Indigo-s Remix)
- 04. Patrick Hagenaar – Undutchable
-05. Rinat Shabanov - Think Over What You Are (Original Mix)
-06. Richard Beynon - Keep Me Alive (Original_Mix)
-07. Moonbeam feat. Fisher - I Love Your Face (Sol Noir Remix)
-08. Michael S. - Rewind (Matt Samuels Vocal Rmx)
-09. Dave 202 - Force (Original Mix)
-10. Nicky Romero - Se7en (Original Mix)(   Читать дальше...   )14.05.2012Жанр: Trance, Progressive, BeatПродолжительность: 01:50:25
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода. Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CC1DB0E7128D8232E2644B4B0B04D58A08BD78F
+magnet:?xt=urn:btih:83A9C5ACA91F9A8E5C88BC8B8DACCD2D2651FCB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,25 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497911   (253627) от 17.05.2012
+###  Публикация: 1626217   (255223) от 13.04.2023
 
-[Wallpapers] Mixed Wallpapers (18.05.12)
+Kaspersky Small Office Security 8.9 21.9.6.465 [Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253627.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Kaspersky Small Office Security обеспечивает комплексную защиту от различных видов информационных угроз, сетевых и мошеннических атак, а также спама. Для решения задач комплексной защиты в составе Kaspersky Small Office Security предусмотрены различные функции и компоненты защиты.Каждый тип угроз обрабатывается отдельным компонентом защиты. Вы можете включать и выключать (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4B0756DC00C6281C7D101B9B940E5CE32908D39
+magnet:?xt=urn:btih:01F65DCE2251A78628AB898D7E03A6A9AAB3AA02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -211,34 +183,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497747   (253621) от 17.05.2012
+###  Публикация: 1626272   (255222) от 13.04.2023
 
-John Schlitt - The Greater Cause (2012) [MP3|320 кб/с]<Hard Rock>
+Foxit PDF Reader 12.1.2.15332 [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253621.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Live It Loud
-02. Take Me Home
-03. Love Won’t Leave Me Alone
-04. One Of These Days
-05. Faith & Freedom
-06. End Of Fear
-07. Where I Want To Be
-08. Hope That Saves The World
-09. Run
-10. The Gift (Dorla's Song)(   Читать дальше...   )2012Жанр: Hard RockПродолжительность: 00:42:24
+Foxit PDF Reader - профессиональное приложение для чтения PDF-файлов. Foxit PDF Reader обладает всеми необходимыми функциями для полноценного просмотра PDF-файлов. Программа поможет выбрать и скопировать содержание текста с файлов PDF, произвести поиск по тексту, оперативно распечатать документ. Есть поддержка Javascript и плагинов.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EBAD0870AD22A191706331952C52C7AE1F806A7
+magnet:?xt=urn:btih:7EE47679FB93F2E3CC885A7982CCBE05297335A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,26 +209,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497692   (253620) от 17.05.2012
+###  Публикация: 1575919   (255221) от 13.04.2023
 
-[Wallpapers] Коллекция обоев для нетбуков (16.05.12)
+RustDesk 1.1.9 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253620.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3D & Digital Art
-ASUS Eee PC, Acer Aspire One, MSI Wind, Dell Mini и др.
+RustDesk – программное обеспечение для удаленного рабочего стола, работает "из коробки", не требует настройки – отличная альтернатива TeamViewer и AnyDesk. Вы полностью контролируете свои данные, не беспокоясь о безопасности. Протокол и клиентская часть RustDesk доступны с открытым исходным кодом.
+Вы можете использовать публичный rendezvous/relay сервер (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0606FD504120E1CB68D4419F9531EA75A1112E7E
+magnet:?xt=urn:btih:1F2B7EECCFCE7C170B95EBB9B7AC1CFBB6CCBEB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,32 +236,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497025   (253615) от 17.05.2012
+###  Публикация: 1626466   (255196) от 14.04.2023
 
-Огненная муха - Целой жизни мало (2002) [MP3|192 кб/с]<Rock>
+QOwnNotes 23.4.3 Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253615.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Жизни мало
-02. Не буди
-03. В самое сердце
-04. Просто жить
-05. Сладкий голос
-06. Мы здесь
-07. Береза
-08. Туда туда2002Жанр: RockПродолжительность: 00:35:17
+QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A039AF7FCB726129B333A0601B307233DA383DE0
+magnet:?xt=urn:btih:08818E88FDF1850687B604F78EEF1D50774BE5C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,25 +262,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497919   (253614) от 17.05.2012
+###  Публикация: 1626337   (255194) от 14.04.2023
 
-Журнал | Тайны ХХ века №20 [май 2012] [PDF]
+WinSnap 6.0.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253614.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!май 2012Формат: PDF
+WinSnap позволяет делать скриншоты экрана монитора и редактировать полученные изображения. WinSnap может захватывать скриншоты нестандартных окон, которые имеют не строго прямоугольную форму. Кроме того, программа способна автоматически исправлять некоторые недостатки в графике, накладывать тени, сохранять результаты в большинстве графических форматах.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58CDE58BF4EFF984316325C9D5BDA6886F4786A3
+magnet:?xt=urn:btih:F4EB83826C9D644634E2E0CEAAA9B67A2140B1ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,25 +288,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497908   (253611) от 17.05.2012
+###  Публикация: 1626467   (255192) от 14.04.2023
 
-[Wallpapers] Computer Desktop Wallpapers Collection (18.05.12)
+Monkey's Audio 10.09 [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253611.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Monkey's Audio — данная утилита предназначена для преобразования (сжатия) уже цифровых данных в собственный формат без потерь (lossless) APE.
+Главная особенность программы состоит в том, что Monkey's Audio, в отличие от большинства традиционных методов оцифровки звука (MP3, OGG и т.п.) полностью сохраняет качество звука, а сжатие производит по собственному алгоритму (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98AA739820FB428324B8541548849845C97820E8
+magnet:?xt=urn:btih:FB90F97CB4BF686CF7DB5C8AE1B94946620CDD4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -358,30 +315,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497631   (253610) от 17.05.2012
+###  Публикация: 1626374   (255188) от 14.04.2023
 
-[Wallpapers] Lamborghini
+Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer SP1 15.0.5493.1000 VL (x86) RePack by SPecialiST v23.4 [Ru/En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253610.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255188.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Lamborghini
-Название: Lamborghini
-Официальный сайт: www.netcarshow.com
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgВремя раздачи: 19:00 до 07:00 (до первых скачавших, перебои со связью бывают,зависит от провайдера)
+Microsoft Office 2013 – лучший пакет прикладных программы для работы над документами различных типов. В его состав входят лучшие средства для развития бизнеса, а так же для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия, не важно, Office 2013 просто обязан быть установлен на любом (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DB42D11B58C9AD31C14CFD55C3E0600C8D81975
+magnet:?xt=urn:btih:D5D6AB61249A76FF669D637F26F556B6ACF83D44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,25 +341,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497655   (253609) от 17.05.2012
+###  Публикация: 1626432   (255180) от 14.04.2023
 
-[Wallpapers] Best HD Wallpapers Pack (16.05.12)
+Adobe Premiere Pro 2023 23.3.0.61 RePack by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253609.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Adobe Premiere Pro 2023 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19ECB66AB0660AEF022999E2A3A7BB7A8DF2169B
+magnet:?xt=urn:btih:DAA01164E1AC5CFA784BABB3AC4B186651A365BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,25 +367,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497909   (253605) от 17.05.2012
+###  Публикация: 1626375   (255178) от 14.04.2023
 
-[Wallpapers] Best HD Wallpapers Pack (18.05.12)
+Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5366.1000 VL (x86) RePack by SPecialiST v23.4 [Ru/En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253605.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B347116337C28D19B8EEFC036F546AA2E06B6541
+magnet:?xt=urn:btih:4D03D955523C1C76BF26303B669FC65986379501
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,25 +393,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497645   (253604) от 17.05.2012
+###  Публикация: 1626471   (255163) от 15.04.2023
 
-Рассказы о волосах / Hairtales (2008) SATRip
+Don't Sleep 9.31 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253604.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы и наши волосы - тема представленной документальной ленты австралийского ТВ.Жанр: ДокументальныйРежиссер: Скотт Отто Андерсон, Кэт МурПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:54:59
+Dont Sleep - утилита, которая временно может отключить настройки электропитания. Можно выбрать, что именно отключать - хранитель экрана, режим гибернации, блокировку рабочего стола. Также программа позволяет отсчитывать время, которое предоставляется компьютеру для работы без настроек питания, а после сможет выключить, заблокировать компьютер или отправить его в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08D646C73EE3D0063961167E53013EE5BB1DA85C
+magnet:?xt=urn:btih:7F26E417C9886E6F00B9A7A7E0702A88281E1918
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,30 +419,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497614   (253603) от 17.05.2012
+###  Публикация: 1626535   (255159) от 15.04.2023
 
-[Wallpapers] Ferrari
+Яндекс.Браузер 23.3.2.802 (x32) / 23.3.2.806 (x64) [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253603.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Ferrari
-Название: Ferrari
-Официальный сайт: www.netcarshow.com
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgВремя раздачи: 19:00 до 07:00 (до первых скачавших, перебои со связью бывают,зависит от провайдера)
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:698442B3A9D3CCE104502C4615FFF4A52AD7119F
+magnet:?xt=urn:btih:41F3B84ABF90AC8972BA0229B54EC6A8300365AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -498,29 +445,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498015   (253600) от 17.05.2012
+###  Публикация: 1626781   (255156) от 15.04.2023
 
-[Wallpapers] Creative Desktop Wallpapers Pack 7
+Wondershare PDFelement 9.5.3.2198 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253600.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Creative Desktop Wallpapers Pack 7
-Название: Creative Desktop Wallpapers Pack 7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B039DEEBB81212B14AC7CEF903F387BD7C04794
+magnet:?xt=urn:btih:7A1A47FEB52CBBE8CFBC5218C053EC9EC77C23FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,33 +471,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497200   (253599) от 17.05.2012
+###  Публикация: 1626871   (255129) от 16.04.2023
 
-Drapsnatt - Hymner Till Undergangen (2010) [MP3|320 кб/с]<Folk/Black Metal>
+PrivaZer 4.0.71 Free + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253599.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. En Ensam Sol Gar Ner
-2. Arvssynd
-3. Drapsnatt
-4. Mannen I Min Spegel
-5. Somna In
-6. Ve Er
-7. Tonerna De Klinga
-8. En Besvuren Plats
-9. Gasten2010Жанр: Folk/Black MetalПродолжительность: 00:49:54
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8EF69DE7EE040D8469817161F55CA9C70A3A0F7E
+magnet:?xt=urn:btih:149DC72DB577774C6872816E4E76C838E61C27F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,25 +497,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497116   (253593) от 17.05.2012
+###  Публикация: 1626985   (255125) от 16.04.2023
 
-[Wallpapers] Girls Desktop Wallpapers Pack 32
+Perfectly Clear WorkBench 4.4.0.2487 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253593.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1920x1080 - 2560х1600
+Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными воспоминаниями. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5B1954574E0073B0F592DF1A5699FB0CFBC6414
+magnet:?xt=urn:btih:E72CD5AC5969A8F809442FEA92BE2322529ABFC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,25 +524,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497906   (253592) от 17.05.2012
+###  Публикация: 1627122   (255097) от 17.04.2023
 
-[Wallpapers] Wallpapers Sexy Girls Pack (17.05.12)
+Glary Utilities Pro 5.204.0.233 RePack (& Portable) by Dodakaedr [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253592.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4992x3328
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:383B19CCBC561F74E0F5C567E0F7C710054D6C26
+magnet:?xt=urn:btih:FBC6FEF63280FE9041E0A5A8321A144AAC751F95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,25 +550,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497907   (253590) от 17.05.2012
+###  Публикация: 1627091   (255096) от 17.04.2023
 
-[Wallpapers] Wallpapers Sexy Girls (17.05.12)
+Sandboxie plus 1.9.0 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253590.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+Sandboxie plus - это продолжение Sandboxie с открытым исходным кодом - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1457B923541204BDC36D9B15AD38F614A511B19
+magnet:?xt=urn:btih:B9AAD7A8E9D6A18994808642FEB82EA8F30A3361
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,25 +576,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497667   (253589) от 17.05.2012
+###  Публикация: 1627097   (255090) от 17.04.2023
 
-[Wallpapers] Gilrs Wallpaper Collection (16.05.12)
+Glary Utilities Pro 5.204.0.233 Portable by FC Portables [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253589.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 3537х1800
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5148BE2CDD2D8A056E6E98B91CA1E63A50336442
+magnet:?xt=urn:btih:E82B6F937AD66F0E38663FBE00AB8BFB8959E615
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,25 +602,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497918   (253588) от 17.05.2012
+###  Публикация: 1627296   (255064) от 18.04.2023
 
-[Wallpapers] Girls Wallpapers (18.05.12)
+Glary Utilities Pro 5.204.0.233 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253588.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 5030х3551
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2C35A54A5ADD319A1C7ADCAF8E3E6A91309BC44
+magnet:?xt=urn:btih:D500882B6FFD7CA6A048C74F5086DB2C0351E5A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,25 +628,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497666   (253587) от 17.05.2012
+###  Публикация: 1627292   (255053) от 18.04.2023
 
-[Wallpapers] Girls Wallpapers Mix (16.05.12)
+Firefox Browser 112.0.1 [Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253587.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 5222х3888
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC764D8BA3D3A11C4711017E84B7CA70E02FD20B
+magnet:?xt=urn:btih:F2B8EF0658E8492D208408762FF0F0891EC36AF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -718,25 +654,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497899   (253586) от 17.05.2012
+###  Публикация: 1627186   (255050) от 18.04.2023
 
-[Wallpapers] Computer Desktop Wallpapers Collection (17.05.12)
+BurnAware Professional 16.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253586.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5C91CFAFE9422E7A7B686D2378502482251B208
+magnet:?xt=urn:btih:F9DFB155FA8F59E63717F923A1D38F7F2CA1FDDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

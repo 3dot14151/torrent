@@ -1,3 +1,120 @@
+###  Публикация: 1031699   (651801) от 04.07.2016
+
+Doogie White & La Paz - Shut Up and Rawk (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Light the Fire
+02. Heart of Stone
+03. No Place in Heaven
+04. The Revenge of el Guapo(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B88A859360F70532527C1677DAB7D9CE4CC4BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030888   (651375) от 04.07.2016
+
+Steve Vai - Modern Primitive + Passion & Warfare (2016) 25th Anniversary Edition [FLAC|Lossless|image + .cue] <Instrumental Rock, Hard Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bop!
+02. Dark Matter
+03. Mighty Messengers
+04. The Lost Chord(   Читать дальше...   )Жанр: Instrumental Rock, Hard Rock, Progressive RockПродолжительность: 1:10:14 + 1:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DAFB7BFBEDBF3E9DD1331C1B19F70916665767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292025   (648840) от 28.03.2019
+
+Emerald Sabbath - Ninth Star (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embryo - Intro (00:52)
+02. Die Young (04:34)
+03. Fluff (04:12)
+04. Trashed (04:38)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483644FA9BFD790FA298B1136F400D001F7A8B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799319   (648072) от 25.06.2014
+
+VA - Pure... hard rock (2011) Box Set, 4 CD [FLAC|Lossless]<Hard Rock, Heavy Metal, Album Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648072.jpg" />
+</div>
+
+
+###  Подробнее
+
+По количеству любителей тяжелой музыки наш клуб, наверное мог бы выставить большую команду на чемпионат мира по тяжелой атлетике.
+Я себя к таковым (любителям) не отношу. Но увидев этот сборник в очередной зарубежной командировке не мог пройти мимо. Здесь много известных имен, но я бы обратил Ваше внимание на не представленные на трекере, но очень интересные группы: (   Читать дальше...   )01. Alice Cooper - Poison  (4:32)
+02. Judas Priest - Living After Midnight  (3:31)
+03. Scorpions - The Cross  (4:30)
+04. Joe Satriani - Satch Boogie  (3:14)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Album Rock, Arena RockПродолжительность: 04:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F8D4EDE8E99D81AC71F0C12202CA31A3142756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032266   (647768) от 06.07.2016
 
 The Dead Daisies - Revolucion (2015) [FLAC|Lossless|tracks] <Hard Rock>
@@ -642,122 +759,6 @@ Aerosmith - Big Ones (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD5CEEE9D58B4DDF06F1FD0B508A5646E6499D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293428   (635228) от 04.04.2019
-
-Nazareth - Greatest Hits (1993) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Hurts
-02. Where Are You Now
-03. Moonlight Eyes
-04. Games(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48960495831F10159E11B130043A10C56B3C0A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143540   (635101) от 18.06.2017
-
-Styx - The Mission (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture
-02. Gone Gone Gone
-03. Hundred Million Miles From Home
-04. Trouble At The Big Show(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15C75C1244D564C4027DCE25DAB78939481D6B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542731   (635050) от 08.04.2022
-
-Treat - The Endgame (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freudian Slip
-02. Rabbit Hole
-03. Sinbiosis
-04. Home Of The Brave(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88CAB1611B9B477BA9FA5062EC98527FB421BF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542915   (633680) от 09.04.2022
-
-First Signal - Closer To The Edge (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Let It End
-02. I Don't Wanna Feel The Night Is Over
-03. Show Me The Way
-04. Don't Look Away(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BF42EA29B7D810538A3750D1546325CB22E6C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

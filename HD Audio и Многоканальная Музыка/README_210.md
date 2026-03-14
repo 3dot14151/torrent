@@ -1,3 +1,148 @@
+###  Публикация: 1805156   (65500) от 04.07.2025
+
+Greet Death - Die In Love (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie, Shoegaze, Slowcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die In Love [00:02:38]
+02. Same But Different Now [00:05:22]
+03. Country Girl [00:05:54]
+04. Red Rocket [00:04:38](   Читать дальше...   )Жанр: Indie, Shoegaze, SlowcoreПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D34CB9963E61AD63A0434A9D344C5C6E54560DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805154   (65499) от 04.07.2025
+
+King Witch - III (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suffer In Life [00:04:14]
+02. Deal With The Devil [00:05:49]
+03. Swarming Flies [00:04:49]
+04. Sea Of Lies [00:06:48](   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45CDE10D07BDBEE7D462BEB4948AEFDE607555C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805148   (65497) от 04.07.2025
+
+Wavves - Spun (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, indie rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spun [00:03:29]
+02. Lucky Stars [00:03:35]
+03. New Creatures [00:03:28]
+04. Goner [00:02:45](   Читать дальше...   )Жанр: Alternative, indie rockПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E168C228BD6E84E45CA1561D3AC52C9ACAF03D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805153   (65495) от 04.07.2025
+
+Kommission Z80 - Hegemony (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <EBM, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empire (Album version) [00:04:19]
+02. Choose [00:04:12]
+03. Deny, defend, dispose! [00:04:01]
+04. Never cross a picket line [00:04:02](   Читать дальше...   )Жанр: EBM, DanceПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFDE2E5B3F02C7910CB9E8B901A356D38E9D6C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805228   (65493) от 04.07.2025
+
+Black Furies - Get Down Get With It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Prime Mover (2:59)
+02.  Suffragette City (2:58)
+03.  Teenage Kicks (2:33)
+04.  Loretta (2:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBEC218406B8A5CE8FEC230D7F391CB73FD4A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805229   (65491) от 04.07.2025
 
 Nicklas Sonne - Electric Dreams (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -600,149 +745,6 @@ Crossroad Jam - In the Beginning (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91D8E07959AEA0E3E57D0316C2FA0A6FB202A9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806075   (65413) от 10.07.2025
-
-In a Darkened Room - VOIX (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwave / Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Shadows Come [00:05:16]
-02. Sounds of Warning [00:03:44]
-03. Winter Storm [00:06:12]
-04. Hammer & Nail [00:05:04](   Читать дальше...   )Жанр: Darkwave / Post-PunkПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0CD4E07D3791F8C31B3D94C069D9ADF739B340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806138   (65406) от 11.07.2025
-
-Philosophobia - The Constant Void (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog Metal, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Европейская прогрессивная группа Philosophobia возвращается спустя три года после своего одноименного дебюта, который получил широкую оценку как один из лучших среди прогрессивных групп. Эта голландско-греко-немецкая гибридная группа, состоящая из бывших участников таких групп, как Annihilator, Kamelot, Pain of Salvation и Architects of Chaoz, и вокалиста Wastefall (   Читать дальше...   )01 - Intro (00:59)
- 02 - King of Fools (07:10)
- 03 - The Forgotten, Part I (08:28)
- 04 - Inside His Room (04:41)(   Читать дальше...   )Жанр: Prog Metal, Prog RockПродолжительность: 01:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50303A71B7523F482A7E88B2213DF3153C64F6D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806732   (65330) от 14.07.2025
-
-The Crystal Tears - The Crystal Tears (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt. Rock, Gothic, Darkwave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Dusk(Part 1) [00:03:14]
-02. Solo Yo [00:04:30]
-03. Vampiro [00:03:19]
-04. Es Halloween [00:04:08](   Читать дальше...   )Жанр: Alt. Rock / Gothic / DarkwaveПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10082DDE80690801E1EBF190FB923CE7B88DC5EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806904   (65322) от 15.07.2025
-
-Cronos Compulsion - Lawgiver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obligate Condition (01:16)
- 02. Maladapt (02:24)
- 03. Gyre of Decaying Filth (02:04)
- 04. Ancestral Remains (02:44)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B12ACF1D02D0E27BD1D2450E0E55FB5C7A175A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806873   (65320) от 15.07.2025
-
-Steel Rhino - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steel Rhino - рок-группа из Швеции, основана в 2021 году2021 - Steel Rhino
-2023 - In Rhino We TrustЖанр: Heavy MetalПродолжительность: 01:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9E275C5729BECC5355594EF5EC8B69B5E845F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

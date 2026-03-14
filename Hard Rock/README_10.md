@@ -1,3 +1,32 @@
+###  Публикация: 1025619   (709830) от 12.06.2016
+
+Knockin' Lost John - Got A Spell (2016) [MP3|320 кб/с] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's My Lady (03:55)
+02. Im Your Man (Single) (03:31)
+03. My Queen (04:21)
+04. Got A Spell (04:14)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41AE184022A2C12919253DB8588181144368D52A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401576   (707687) от 11.08.2020
 
 Fortune - The Gun's Still Smokin' Live (2020) [MP3|320 Kbps] <Melodic Hard Rock>
@@ -716,35 +745,6 @@ Voltrider - Weapon Of Choice (2022) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AD6E4762F5F5F64B8BFDEAAAA1BDFC1D5157AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224781   (663765) от 12.05.2018
-
-Tiger B. Smith - We're The Tiger Bunch (1974) Reissue, 1993, Bellaphon [MP3|320 Kbps] <Hard Rock, Krautrock, Prog-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663765.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. She's All Right
-2. Old Man
-3. Rock My Soul
-4. Anna Sheffield(   Читать дальше...   )Жанр: Hard Rock, Krautrock, Prog-RockПродолжительность: 00:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24FA2ABEB9D252F80B0F884BD28623BE7A5EF99
 ```
 
 https://mybot314.ru/tekegram_catalog/

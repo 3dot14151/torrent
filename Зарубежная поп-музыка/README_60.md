@@ -1,3 +1,61 @@
+###  Публикация: 1582498   (323340) от 09.10.2022
+
+VA - Now Yearbook 85 (2022) 4CD, Compilation, Special Edition [MP3|320 Kbps] <Pop, Synth-Pop, Reggae, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323340.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Queen - One Vision
+02. Philip Bailey & Phil Collins - Easy Lover (LP version)
+03. Eurythmics, Annie Lennox, Dave Stewart - There Must Be An Angel (Playing With My Heart)(   Читать дальше...   )Жанр: Pop, Synth-Pop, Reggae, RockПродолжительность: 01:19:12 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65040901EFC82B99D67FD082E9C7D9B4D3D06012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331634   (322938) от 16.10.2019
+
+Frankie Valli - 6 Albums (1975-1980) LP [MP3|320 Kbps] <Funk Soul, Pop Rock, Vocal, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнки Валли - наст. имя Francesco Stephen Castelluccio. Американский певец, наиболее известный как фронтмен вокальной поп-группы The Four Seasons и обладатель мощного фальцета. Диапазон голоса Валли - три с половиной октавы. На фальцет со своего «природного» баритона он может переходить без обычного для певцов фальцетом разрыва. В середине 1960-х, оставаясь участником (   Читать дальше...   )Список альбомов:
+1975 - Closeup
+1975 - Our Day Will Come
+1976 - Valli(   Читать дальше...   )Жанр: Funk Soul, Pop Rock, Vocal, DiscoПродолжительность: 03:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02CB54DCE09E04A9F04E68906746AE2814B9EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581249   (322762) от 28.11.2012
 
 Tiziano Ferro - Lamore E Una Cosa Semplice (Special Edition 2CD) (2012) [MP3|320 кб/с]<Pop>
@@ -708,70 +766,6 @@ Rasmus Seebach - Ingen Kan Love Dig I Morgen (2013) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F252AEB212B8D73022D1BB00171280D60AF497D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583746   (311955) от 02.12.2012
-
-Mylène Farmer - Monkey Me (2012) [MP3|320 kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elle a dit (03:52)
-02. À l'ombre (04:51)
-03. Monkey Me (04:13)
-04. Tu ne le dis pas (04:22)
-05. Love Dance (04:06)
-06. Quand (04:07)
-07. J'ai essayé de vivre... (04:40)
-08. Ici-bas (04:33)
-09. A-t-on jamais (03:47)
-10. Nuit d'hiver (05:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D90B6361795CEBCA7BF32CC291296BE6E74E7A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076520   (311892) от 26.11.2016
-
-The Millionaires - The Millionaires (1980) LP [MP3|320 Kbps] <Electronic, Disco, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Italian Dream  (3:53)
-02. You Only You  (3:20)
-03. Oh Mama, Oh Papa  (3:35)
-04. Tango Motion  (4:26)(   Читать дальше...   )Жанр: Electronic, Disco, EuropopПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9316EAD580FFA2955EA99F44C196EDF5623B7D98
 ```
 
 https://mybot314.ru/tekegram_catalog/

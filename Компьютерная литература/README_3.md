@@ -1,3 +1,350 @@
+###  Публикация: 1852324   (1055816) от 07.02.2026
+
+А.В. Кондратьев | Разработка Telegram-ботов на Python с нуля (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены практические подходы к созданию Telegram-ботов на языке Python с использованием фреймворка aiogram. Подробно описаны этапы разработки — от установки фреймворка и запуска бота до сложных сценариев взаимодействия с пользователем. Даны рекомендации по безопасному хранению токенов и других данных. Рассмотрены обработка сообщений, команд и аргументов, форматирование (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6105F1F27EDDAF8F55F0A255C3BBB9A71DD873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851582   (1055452) от 04.02.2026
+
+Neelam Koshiya, Jing Ning | AWS Solutions Architect - Associate Certification Guide: A comprehensive guide from AWS Solutions Architect - Associate certification to real-world applications (English ...
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055452.jpg" />
+</div>
+
+
+###  Подробнее
+
+AWS is the global leader in cloud computing, and the AWS Certified Solutions Architect – Associate (SAA-C03) credential is the benchmark for validating your ability to design resilient, high-performing, and cost-optimized cloud solutions. This guide is your complete pathway from certification preparation to professional mastery in cloud architecture. This comprehensive (   Читать дальше...   )Жанр: Cloud Computing, Computer & Technology Certification Guides, Computer ScienceЯзык: АнглийскийИздательство: BPB PublicationsФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A02A002DAF965D913A69DE1946B8D35C93BD3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851584   (1055451) от 04.02.2026
+
+А. Аминиан, Х. Шенг | System Design. Подготовка к сложному интервью по GenAI (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интервью по System Design (проектированию ИТ-систем) очень популярны у работодателей, на них легко проверить ваши навыки общения и оценить умение решать реальные задачи.
+Интенсивный практикум по проектированию сложных ML-систем сфокусирован на самой горячей теме последних лет: генеративном искусственном интеллекте. Если вы датасайентист или ML-инженер, готовый перейти (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7542FD9B74DAD582B526FCB32D950FD21A47A746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851577   (1055450) от 04.02.2026
+
+Виктор Николаевич Шитов | С++ для начинающих (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга создана специально для тех, кто только начинает знакомство с миром программирования. Она станет вашим пошаговым проводником в изучении С++ - одного из самых востребованных и универсальных языков разработки. Вы научитесь писать собственные программы с нуля, работать с массивами, поймете, как применять С++ для решения практических задач. Каждая глава сопровождается (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EE7A92B6F5FF81814EE61505FFE8B7B4A060BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851579   (1055449) от 04.02.2026
+
+Chad Sanderson, Mark Freeman, B. E. Schmidt | Data Contracts. Developing Production-Grade Pipelines at Scale. 1st Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Poor data quality can cause major problems for data teams, from breaking revenue-generating data pipelines to losing the trust of data consumers. Despite the importance of data quality, many data teams still struggle to avoid these issues—especially when their data is sourced from upstream workflows outside of their control. The solution: data contracts. Data contracts (   Читать дальше...   )Жанр: Data Warehousing, Data Modeling & Design, Data ProcessingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3308CA7D2EEDEFFB53A46CCCAF9F648C908A446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851622   (1055249) от 03.02.2026
+
+Nathaniel Schutta, Dan Vega | Fundamentals of Software Engineering. From Coder to Engineer. 1st Edition (2026) [EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055249.jpg" />
+</div>
+
+
+###  Подробнее
+
+What do you need to know to be a successful software engineer? Undergraduate curricula and bootcamps may teach the fundamentals of algorithms and writing code, but they rarely cover topics vital to your career advancement. With this practical book, you'll learn the skills you need to succeed and thrive.
+
+Authors Nathaniel Schutta and Dan Vega guide your journey with (   Читать дальше...   )Жанр: Software Design Tools, Computer Systems Analysis & Design, Microsoft ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71F6A719C62A8EFFEA808543743BABA9F5FB924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851621   (1055248) от 03.02.2026
+
+David Pine | Learning Blazor. Build Single-Page Apps with WebAssembly and C#. 1st Edition (2023) [PDF, EPUB, MOBI] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Take advantage of your C# skills to build UI components and client-side experiences with .NET. With this practical guide, you'll learn how to use Blazor WebAssembly to develop next-generation web experiences. Built on top of ASP.NET Core, Blazor represents the future of .NET single-page application investments.
+
+Author David Pine, who focuses on .NET and Azure content (   Читать дальше...   )Жанр: ASP.NET Programming, Microsoft .NET, C# ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E7AEAB98F4D7DDB81871930060CE7D67BE5783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851618   (1055247) от 03.02.2026
+
+Kevin Moore | Mastering Flutter. Learn to develop Flutter apps for iOS, Android, desktop and web (English Edition) (2025) [EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mastering Flutter is ideal for the developer at the beginner level as well as the developer who wants to switch to Flutter. This book starts at the beginner level so that you know everything you need to create apps that can be published in different mobile stores. You will develop a movie app that is beautiful, has animations, uses a movie API to get the latest movie (   Читать дальше...   )Жанр: Mobile App Development & Programming,User Experience & Website Usability, Software DevelopmentЯзык: АнглийскийИздательство: BPB PublicationsФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCD00C8FA805A3D2A53F7BDBB1136DCAA2FC702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851616   (1055246) от 03.02.2026
+
+Чип Хьюен | AI-инженерия. Построение приложений с использованием базовых моделей (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Базовые модели открыли путь множеству новых сценариев применения AI, одновременно снизив входной порог для создания продуктов на основе искусственного интеллекта. Так AI из тайного учения превратился в мощный инструмент разработки, доступный каждому — даже тем, у кого еще нет опыта работы с ним. В этом практическом руководстве Чип Хьюен рассказывает об AI-инженерии (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29D7D6FA21B7267271020E6DF09BC62D8E80C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851615   (1055245) от 03.02.2026
+
+Ronald Mak | Software Design for Python Programmers. Principles and patterns (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Software Design for Python Programmers shows you how to level up from writing Python code to designing Python applications. Following intuitive “before” and “after” examples of improved code, you’ll learn to plan and execute Python applications effectively and avoid bugs associated with unmanaged state, poorly-formed classes, inflexible functions, and more.
+
+Great (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Object-Oriented Design, Python ProgrammingЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5848C41C12277386B6616D5F8EA17F21938ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851602   (1055244) от 03.02.2026
+
+Katya Gorshkova | Kafka for Architects. Event-driven architecture, logs, microservices, real-time event processing (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055244.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book teaches you how to incorporate Kafka into enterprise applications. This book stays above the code-level details, focusing instead on how to use Kafka to achieve your technical and business goals.
+
+Architects across industries are turning to Kafka for its unparalleled speed, reliability, and scalability. In this book, author Katya Gorshkova lays out how (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Databases & Big Data, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2529C5A329A218CF1FFFE8DD47BE1C1C6817D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851601   (1055243) от 03.02.2026
+
+Justin Mitchel | Road to Kubernetes (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055243.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Should we use Kubernetes?” This unique guide condenses 15 years of deployment experience to help answer that very question. It teaches you sustainable deployment practices you can use with any programming language and nearly any kind of modern app. You’ll create portable and containerized applications that can move across deployment options and cloud providers and (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5451941C37CCB1F227FC7CF5562B18242753D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851613   (1055242) от 03.02.2026
+
+Jay Borthen | Building Data Integration Solutions. Unifying Data for Enhanced Decision Making. 1st Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Are you struggling to manage and make sense of the vast streams of data flowing into your organization? In today's data-driven world, the ability to effectively unify and organize disparate data sources is not just an advantage—it's a necessity. The challenge lies in navigating the complexities of data diversity, volume, and regulatory demands, which can overwhelm (   Читать дальше...   )Жанр: Data Warehousing, Data Processing, Data Modeling & DesignЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDE5F925D1B5577E234B2525D510D28AA57E1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851607   (1055241) от 03.02.2026
 
 Hyen Seuk Jeong | Observability For Legacy Systems. Methods and Solutions with OpenTelemetry and AIOps. First Edition (2025) [PDF, EPUB] [EN]
@@ -336,362 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E2C8F11B469259537F5B92852DF97ED35456830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851187   (1055079) от 01.02.2026
-
-Dan Gookin | Tiny C Projects (2023) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn the big skills of C programming by creating bite-size projects! Work your way through these 15 fun and interesting tiny challenges to master essential C techniques you’ll use in full-size applications.
-In Tiny C Projects you will learn how to:
-Create libraries of functions for handy use and re-use
-Process input through an I/O filter to generate customized output(   Читать дальше...   )Жанр: C Programming Language, Microsoft Programming, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624623BEC6988762DFF2480B92D38DD91084BC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851188   (1055078) от 01.02.2026
-
-Ш. Бхуян, Т. Исаченко | Генеративный ИИ. С обучением больших языковых моделей (LLM) для джунов (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это практическое руководство по созданию приложений на основе генеративного искусственного интеллекта и больших языковых моделей (LLM). Особое внимание уделяется прикладным аспектам: промпт-инжинирингу, работе с локальными LLM, тонкой настройке моделей на частных данных и созданию автономных AI-агентов. Приводятся примеры реальных решений, таких как интеллектуальная (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: Бомбора, ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055D869BFF82A70DE0818A0A04714372B54DC593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851189   (1055077) от 01.02.2026
-
-Jens Gustedt | Modern C. Covers the C23 standard. 3rd Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Discover the full power of modern C programming, with an inside look at the new C23 standard.
-For programs that need to be small, fast, and reliable, C is the gold standard. Whether you’re writing embedded code, low-level system routines, or high-performance applications, C is up to the challenge. This unique book by Jens Gustedt, a member of the ISO C standards (   Читать дальше...   )Жанр: C Programming Language, Software Design & Engineering, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDE2518C6550E6D63613E7236821CA766229DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851191   (1055076) от 01.02.2026
-
-Зандер Брамбо | Программирование в Roblox. Сделать игру – проще простого. Создание игр с помощью Roblox Studio и языка программирования Lua от «А» до «Я» (2022) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055076.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге описывается работа на развлекательной платформе Roblox – от программирования в Roblox Lua до создания игр в жанре обби и «Королевская битва». Подробно рассмотрены возможности Roblox Studio, приёмы изменения настроек игры, сценарии программирования. Читатель сможет выполнить практические упражнения, используя примеры кода, и узнает, как достичь максимальной (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7861015407A0779607B8891DE2559000A3351F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851195   (1055075) от 01.02.2026
-
-Brian Beuken | The Fundamentals of C/C++ Game Programming. 2nd Edition (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055075.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book gives novice coders an understanding of the methods and techniques used in professional games development. Projects are designed to help develop and strengthen problem solving and basic C/C++ skills. This book also helps develop familiarity with Microsoft Visual Studio’s ability to target and use fixed/restricted hardware, which are key skills in console (   Читать дальше...   )Жанр: Rendering & Ray Tracing, Game Programming, Graphics & Multimedia ProgrammingЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41A1250071F3A466E3D131B9AFA663217087B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851202   (1055073) от 01.02.2026
-
-Annegret Junker | Mastering Domain-Driven Design. Collaborative modeling with domain storytelling, event storming, and context mapping (English Edition) (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mastering Domain-Driven Design provides a comprehensive guide to understanding and implementing DDD, an approach to software development that helps you tackle complex projects by aligning your code with the core business concepts.
-
-The book explains the process for designing and modernizing software applications, applying Domain-Driven Design methods to all design (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Software Design, Testing & Engineering, Internet & TelecommunicationsЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7ACB256B6A2BEB9BD07ADECA5ECA34E2BAA43B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851204   (1055072) от 01.02.2026
-
-Jerome Gotangco, Luca Berton | Red Hat Enterprise Linux 9 for SysAdmins. A technical guide for building secure production systems using RHEL 9 administration (English Edition) (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Hat Enterprise Linux (RHEL) is the de facto standard for Linux in the enterprise and the latest version (RHEL 9) offers the best of open-source software to date with the stability and security provided by the biggest name in open-source, Red Hat.
-
-The book begins with an introduction to RHEL 9's features, architecture, and its role in the open-source ecosystem, (   Читать дальше...   )Жанр: Linux Programming, Linux & UNIX Administration, Linux Networking & System AdministrationЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557995A1F61EA5177D892B97FCAA57942658EA49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851205   (1055071) от 01.02.2026
-
-Robin Nixon | Learning PHP, MySQL & JavaScript. A Step-by-Step Guide to Creating Dynamic Websites. 7th Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Build interactive, data-driven websites with the potent combination of open source technologies and web standards, even if you have only basic HTML knowledge. With the latest edition of this popular hands-on guide, you'll tackle dynamic web programming using the most recent versions of today's core technologies: PHP, MySQL, JavaScript, CSS, HTML5, jQuery, Node.js, (   Читать дальше...   )Жанр: PHP Programming, MySQL Guides, Introductory & Beginning ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED285EE72CAB1A7B32194BD359F50EAAF4145B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851206   (1055070) от 01.02.2026
-
-Joos Korstanje | Advanced Forecasting with Python. Mastering Modern Forecasting Techniques with Machine Learning and Cloud Tools. Second Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Forecasting with Python, Second Edition, is a comprehensive and practical guide to mastering modern forecasting techniques using Python. Designed for data scientists, analysts, and machine learning practitioners, this updated edition bridges the gap between classical forecasting models and cutting-edge, AI-powered techniques that are reshaping the field.Жанр: Artificial Intelligence, Statistics, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD96263C0513578142DB7B6EEB58E66A64F4EF8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851207   (1055069) от 01.02.2026
-
-Marco Peixeiro | Time Series Forecasting Using Foundation Models (2026) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Make accurate time series predictions with powerful pretrained foundation models!
-
-You don’t need to spend weeks—or even months—coding and training your own models for time series forecasting. Time Series Forecasting Using Foundation Models shows you how to make accurate predictions using flexible pretrained models.
-(   Читать дальше...   )Жанр: Data Processing, Computer Programming Languages, Python ProgrammingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988E3A6B1D1A71788F730DEEE2DA52A31204C667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851209   (1055068) от 01.02.2026
-
-Joseph Schmuller | Statistical Analysis with Python For Dummies. 1st Edition (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wrangle stats as you learn how to graph, analyze, and interpret data with Python
-
-Statistical Analysis with Python For Dummies introduces you to the tool of choice for digging deep into data to inform business decisions. Even if you're new to coding, this book unlocks the magic of Python and shows you how to apply it to statistical analysis tasks. You'll learn to (   Читать дальше...   )Жанр: Mathematical & Statistical Software, Statistics, Python ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E34C3883E5017C8F32EC4A52712BC69ED5612E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851212   (1055067) от 01.02.2026
-
-Nicole Koenigstein | Transformers in Action (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Understand the architecture that underpins today’s most powerful AI models.
-
-Transformers are the superpower behind large language models (LLMs) like ChatGPT, Gemini, and Claude. Transformers in Action gives you the insights, practical techniques, and extensive code samples you need to adapt pretrained transformer models to new and exciting tasks.
-(   Читать дальше...   )Жанр: Data Processing, Natural Language Processing, Computer ScienceЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DFFA9E47B05B701FCA5B79E35C57EF62707100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851214   (1055066) от 01.02.2026
-
-Дэвид Кларк, Поль Кларк | SDR на практике. Основы разработки программно-определяемого радио (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет читателям освоить основы разработки и применения программно-определяемой радиосвязи (software-defined radio, SDR). Благодаря
-сочетанию обучающих материалов с примерами продвинутых приложений вы получите надежную основу для углубленного изучения современных беспроводных систем.
-Издание будет полезно инженерам, разрабатывающим прототипы радиоустройств, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Books.kzФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F21E72C33C6A859075E9566DFD2134C2E69164D
 ```
 
 https://mybot314.ru/tekegram_catalog/

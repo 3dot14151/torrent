@@ -1,3 +1,90 @@
+###  Публикация: 982883   (945471) от 05.02.2016
+
+VA - Smooth & Chilly Valentines (2016) [MP3|320 кб/с] <Smooth Jazz, Lounge>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Stop Loving You - eJazz Artistry
+02. I Wanna Know - Kool&Klean
+03. It's Our Time - Love Suggestions
+04. You and I - Chillaxing Jazz Kollektion(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 01:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDE026A23813A039BEF3870917618688C493A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982903   (945374) от 05.02.2016
+
+VA - Кабацкий дым. Суперсборник русского шансона (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945374.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Геннадий Вяземский - Исповедь Ходока
+002. Сергей Куренков - Я Хочу Побыть С Тобой
+003. Александр Келеберда - Пиастры
+004. Андрей Шпехт - Следом За Тобой(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A751F551F22420114A670FAD36B19256EDA89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363101   (945286) от 26.02.2020
+
+VA - Beatport Techno: Electro Sound Pack #13 (2020) [MP3|320 Kbps] <Techno, Tech House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L-Gil - Taoaaa (Original Mix)
+02. Danny Nectar - Power (Original Mix)
+03. Juan Campos - Rk-4
+04. Rauschhaus - Bespin(   Читать дальше...   )Жанр: Techno, Tech House, ClubПродолжительность: 06:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A61813E252EFE572E2F61340C188829B699635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362844   (945273) от 26.02.2020
 
 VA - Beatport Trance: Pack Electro Sound #12 (2020) [MP3|320 Kbps] <Trance, Electro, Progressive>
@@ -669,93 +756,6 @@ VA - Top 100 Russian Hits (2017) [MP3|256~320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E95C090D543D3D7C55FF94F17257911A21F9252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090587   (944317) от 08.01.2017
-
-VA - Jam Jazz: Electro Swing (2017) [MP3|320 Kbps] <Jazz Swing, Electro Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944317.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 5 In Love - Swing What You Got (Extended Cab Canavaral Remix) 4:11
-002. Annella - Like A Jazz Song 3:42
-003. Alex Santer & Mr.Ado - Turbo Swing 6:02
-004. Analogik - Gypsie Doodle 2:53(   Читать дальше...   )Жанр: Jazz Swing, Electro JazzПродолжительность: 09:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC121AD3FA16571AC5E67C5E3FC8B2EAA294F9F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751571   (944309) от 31.01.2014
-
-Falco - 25 Best Songs (2014) [MP3|245 кб/с]<Europop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Me Amadeus 1985
-02. Der Kommissar 1982
-03. Vienna Calling 1985
-04. Wiener Blut 1988(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1A37B40D121444A765CD3A976468515352864D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983336   (943941) от 06.02.2016
-
-VA - HighLife Masters Ultimate Spire (2016) [MP3|192-320 кб/с] <Club, Bounce, Fidget House, Tropical, Nu Disco, Bigroom>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mobin Master - Do Me Right (Original Mix) 05:09
-02. Dave202 Feat. Yono - Golden Child (Club Mix) 06:24
-03. Andy B. Jones - Make A Move (Club Mix) 04:40
-04. Alan-Lee - Give It Up (Edit) 03:39(   Читать дальше...   )Жанр: Club, Bounce, Fidget House, Tropical, Nu Disco, BigroomПродолжительность: 14:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B222D0697C2B64AADD252BD7F28DF6922B6804F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1624000   (245437) от 04.04.2023
+
+Dick Oatts - Standard Issue (1998) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245437.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You and the Night and the Music - 10:54
+2. Like Someone in Love - 10:54
+3. All the Things You Are - 06:55
+4. Memories of You - 09:37(   Читать дальше...   )Жанр: JazzПродолжительность: 01:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10501A65649B141FF41AE75726CC6A81FAD29491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060517   (245346) от 08.10.2016
+
+Tania Maria - It's Only Love (2007) 2010, BHM[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Confusion [03:43]
+ 02.It's Only love [06:40]
+ 03.Chuleta [05:23]
+ 04.It's All In My Hands [05:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE74AE8BC061705372A459901670B6B783CE2BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512592   (245327) от 25.11.2021
+
+Archie Shepp - Essential Best (2009) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadow of Your Smile [9:56]
+02. Here's That Rainy Day [10:05]
+03. Blue Train [10:31]
+04. I Want to Talk About You [9:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1EF0CA3B82BCC7425634A85DBA8D242C3E5AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624258   (245277) от 05.04.2023
 
 The Mills Brothers - BD Voices (1931 - 1955) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
@@ -657,93 +744,6 @@ Clint Houston - Inside The Plain Of The Elliptic (1979) Remaster, 2015, Solid Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1A4D1F56B424769A49AB9AD982FF345F6E6C8CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289528   (244639) от 16.03.2019
-
-SFJAZZ Collective - Live 2005 2nd Annual Concert Tour (2005) 2CD, SFJazz Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244639.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Moment's Notice [5:53]
-02. Naima [5:47]
-03. Africa [14:04](   Читать дальше...   )Жанр: Post-BopПродолжительность: 02:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27EEDF6C6CD006305201E729033106BE7C0D070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609893   (244638) от 05.02.2023
-
-Donald Byrd - Live: Cookin' With Blue Note At Montreux (1973) 2022, Blue Note [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Byrd [8:11]
-02. You've Got It Bad Girl [7:43]
-03. The East [9:19]
-04. Introductions [2:58](   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C18D703ACB94752ECDDBE8A42DFE59C6E62A932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289301   (244621) от 16.03.2019
-
-Peter Erskine - Dr. Um (2016) Fuzzy Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Next [0:28]
-02. Lost Page [4:47]
-03. Hawaii Bathing Suit [5:46]
-04. Bourges Buenos Aires [6:33](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9602C1B1C3BC1101A96B79C1B4C41138B455C239
 ```
 
 https://mybot314.ru/tekegram_catalog/

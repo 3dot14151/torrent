@@ -1,3 +1,90 @@
+###  Публикация: 1671560   (171262) от 25.10.2023
+
+Robert Conti - To The Brink! (2005) Pinnacle Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Brink! [9:30]
+02. Anticipation [4:49]
+03. Pork Loin! [6:06]
+04. Here's That Rainy Day [6:57](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF114A04707D4FD6F09D62AAC5C29F971B0D23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671619   (171239) от 25.10.2023
+
+VA - 30 Cozy, Harmonious, Pleasing to the Ear and Relaxing Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Velvet Meadows (4:28)
+02. Chillaxing Jazz Kollektion - Like a River (5:23)
+03. Kool&Klean - The Sea (6:11)
+04. eJazz Artistry - Story of My Life (5:06)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D729408C58E36E8ECF90E5FA532BE34E6A50F88A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671616   (171227) от 25.10.2023
+
+VA - Autumn Slow Chill-out Jams to Relax and Unwind (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out/Smooth Jazz/Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Beyond the Horizon (4:58)
+02. Chillaxing Jazz Kollektion - Serendipity (4:38)
+03. Konstantin Klashtorni - Let's Chill (5:29)
+04. Chillaxonic - Oasis (4:58)(   Читать дальше...   )Жанр: Chill Out/Smooth Jazz/LoungeПродолжительность: 02:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76419487FCC186AE06F069D1C75EC45A41051AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671623   (171217) от 25.10.2023
 
 VA - 33 Relaxing Healing Jazz Vibes Chilly Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -658,93 +745,6 @@ Erroll Garner - 1944, Vol. 2 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB01A927541901A8DE10E152C36F6CE85179504D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672347   (169554) от 28.10.2023
-
-J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1953 - 1955) 1995, Blue Note, Japan [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Daylie' Double [4:30]
-02. Pennies from Heaven [4:20]
-03. You're Mine You [3:10]
-04. Turnpike (alternate master) [4:15](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741A2DD36E1F59AAB9762923CFE0229867ABA04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672350   (169542) от 28.10.2023
-
-Toshiyuki Miyama & The New Herd - Sunday Thing (1976) 2021, Three Blind Mice [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday Thing [9:30]
-02. Soft Rain [5:07]
-03. Memories [3:42]
-04. Sweet Heart Blues [7:36](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545D87D2FB58416DB6ED7AC3736E8DAD8B680F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672345   (169533) от 28.10.2023
-
-J.J. Johnson - The Eminent Jay Jay Johnson, Vol. 1 (1953, 1954) 1995, Blue Note, Japan [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turnpike [4:22]
-02. Lover Man [3:57]
-03. Get Happy [4:55]
-04. Sketch 1 [4:29](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FF776C29FE55623C8FEE70984C8CB4E716A697
 ```
 
 https://mybot314.ru/tekegram_catalog/

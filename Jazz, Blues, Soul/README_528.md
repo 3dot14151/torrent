@@ -1,3 +1,177 @@
+###  Публикация: 1754780   (103684) от 12.10.2024
+
+VA - Summer Bossa Nova (Relaxing Brazilian Jazz Bossa) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulstance - Summer Memories (4:16)
+02. Lo Greco Bros - Borboleta da Cidade (4:15)
+03. Giuseppe Milici - Passos De Esperança (3:15)
+04. DJ Rodriguez - Nao Para (5:34)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890308A708D5A34165B0923347262FC64CFDE004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754753   (103681) от 12.10.2024
+
+VA - Funk'N'Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Nobody (4:46)
+02. Firecracker (6:18)
+03. Word On The Street (Feat. Rappin´ 4-tay) (5:28)
+04. Dancin' In The Key Of Life (4:57)(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 01:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CA2B295B578E9C028535C75C4277E8F94CC7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754823   (103662) от 12.10.2024
+
+Ted Heath & His Music - Listen To My Music (2003) Living Era [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus 1 [2:50]
+02. East of the Sun [3:23]
+03. Bakerloo Non-Stop [2:48]
+04. Donegal Cradle Song [2:35](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44652EC3936A741ADBA5D1B9CACB9C52FECD3179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754748   (103661) от 12.10.2024
+
+VA - Acid Jazz Today 4 (Chapter Four) (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alixia Mistral - Run Away Or Face The Day (2:45)
+02. The Smoke Orchestra - Henrietta Leavitt and the cepheids variables (3:23)
+03. Anna Fondi - Nothing Better Than You (4:49)
+04. Giulio Campagnolo & The Jazz Funkers - Groove Giallo (5:17)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AABBD1CD7FD34A1933F67BCE0AEF1F4E5D43A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754774   (103660) от 12.10.2024
+
+VA - Nu Acid Jazz Party For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.Pantelidis - Hey Dude (4:12)
+02. Wendy D. Lewis - Human (3:15)
+03. Pomante - Bua (4:09)
+04. Lehmanns Brothers - I Wanna Be (Micky More & Andy Tee Radio Edit) (3:49)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F6C5BF6FBD4C4B22ED5F2BB11CB555D12FB5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754759   (103658) от 12.10.2024
+
+VA - It's A Groovy Thing! Vol.5 (The Amazing Jazz Funk Afro Sound) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ERIN collective - Alternative Positive (7:44)
+02. Jestofunk - Colour (5:50)
+03. Vito Lalinga (Vi Mode Inc. Project) - Funky Tropicale (Lego Edit Afro Cut) (5:30)
+04. The Smoke Orchestra - Aphrodesia (4:41)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72B2D5A65F74C09948B2EAA0060EEC01E92183D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754747   (103657) от 12.10.2024
 
 Pat Fulgoni - The Pat Fulgoni Blues Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Erskine Hawkins - 1941 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B4AF070D25D104057F77F2897B5504A50E8874A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756052   (103557) от 19.10.2024
-
-VA - Roaring Halloween (Electro Swing 3) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Löhr - Everybody (Electro Swing Mix) (3:40)
-02. The Soulmate Project - The Addams Family (Electro Swing Mix) (2:54)
-03. Glenn Gatsby - Somebodys Watching Me (Electro Swing Mix) (2:41)
-04. Ashley Slater - Ghostbusters (Spooky Swing Mix) (3:19)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB036290BC0AFBB7C6E343BE3D5B8EC34C59911E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755675   (103554) от 19.10.2024
-
-Sarah Vaughan - Great Women of Song (2023) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misty [3:02]
-02. Lullaby of Birdland [4:03]
-03. They Can't Take That Away from Me [2:44]
-04. Embraceable You [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C6BB4BD4C1F08DB7CD8459039141A0E626648D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755680   (103534) от 19.10.2024
-
-Jef Neve - That Old Feeling (2023) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Old Feeling (feat. Madeleine Peyroux) [6:38]
-02. Something So Right (feat. Sam Merrick) [5:29]
-03. Here's to Life (feat. Trijntje Oosterhuis) [7:48]
-04. Here Comes the Rain Again (feat. Sam Sparro) [4:49](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream Jazz, Contemporary JazzПродолжительность: 00:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3418DD262FDB6F1644E96A250F0E7649094C6FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755575   (103529) от 19.10.2024
-
-Milt Jackson & Ray Charles - Soul Brothers (1958) 2012, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Brothers [9:35]
-02. How Long Blues [9:16]
-03. Cosmic Ray [5:25]
-04. Blue Funk [8:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15616A215DD18959A72B6F7EE055B8C94228D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756053   (103527) от 19.10.2024
-
-Big Creek Slim - Going to Germany (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Feed the Devil on My Shoulder (5:13)
-02. I'm Leaving You Baby (8:13)
-03. Milk Man Blues (6:32)
-04. She's Nineteen Years Old (8:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD1E37779C1BF144B6919B07F13210B14A60CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756056   (103525) от 19.10.2024
-
-Rosie's Smokehouse Deluxe - Welcome To The Smokehouse (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Smokehouse (3:53)
-02. Please, Please Me (4:15)
-03. Walkin' (3:14)
-04. Run Like the Wind (5:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48DC0B7C642BBEC65E6859098727E84D54A216A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

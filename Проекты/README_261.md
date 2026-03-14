@@ -1,3 +1,30 @@
+###  Публикация: 949981   (372078) от 25.10.2015
+
+Проекты - VideoHive - Viral Video Lower Thirds Template [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с универсальным дизайном который может быть использован от широковещательных пакетов, корпоративного видео, YouTube видео роликов, титры и многое другое.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1561EDC5116FC92F7C2F7477CB5DD5521D5C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950279   (372044) от 25.10.2015
 
 Проекты - FASHION MODELS for Sony Vegas [VEG]
@@ -656,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69ACFFE9EC361AB6C545B3A8ACD86180DB563AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950418   (369721) от 26.10.2015
-
-Проекты - Love's in autumn [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект After Effects на осеннюю тематикуФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F148F32CA7F6A0F2B73C606901DB5F0EECA1DE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

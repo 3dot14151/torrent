@@ -1,3 +1,32 @@
+###  Публикация: 984908   (937259) от 10.02.2016
+
+Charlie Rouse & Seldon Powell - We Paid Our Dues! (1961) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Two For One [07:53]
+ 02.When Sunny Gets Blue [05:54]
+ 03.For Lester [07:19]
+ 04.Quarter Moon [05:49](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC40401021CC309412E25D0BE91A310BFF27A136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364520   (936495) от 03.03.2020
 
 Coleman Hawkins - 1950 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -716,35 +745,6 @@ Dusko Goykovich - Bebop City (1995) Enja[FLAC|Lossless|image + .cue] <Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7935C3A07EF68EE13CAD320057CA040D3144922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093866   (932544) от 16.01.2017
-
-George Cables Trio - Cables' Fables (1991) 1995, SteepleChase[APE|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In walked Bud [06:29]
- 02.Lullaby [05:52]
- 03.Waltz for Debbie [08:40]
- 04.Helen's song [06:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE2D1D1942357D48051029B3326CEFE13D14068
 ```
 
 https://mybot314.ru/tekegram_catalog/

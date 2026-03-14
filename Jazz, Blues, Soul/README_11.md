@@ -1,3 +1,61 @@
+###  Публикация: 1605494   (1044871) от 18.01.2023
+
+Larry Coryell - Larry Coryell's Last Swing With Ireland (2016) 2021, Angel Air [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In a Sentimental Mood [10:33]
+02. Morning of the Carnival [6:45]
+03. Relaxin' at the Camarillo [6:34]
+04. Someday My Prince Will Come [6:45](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C35A5B835C6ED761AF80AD983D38F06EF47A639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605735   (1044744) от 19.01.2023
+
+Greg Abate & Phil Woods With The Tim Ray Trio - Kindred Spirits: Live At Chan's (2014) 2CD, 2016, Whaling City Sound [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044744.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Set 1:
+01. Steeplechase (Thriving on a Riff) [11:34]
+02. A Sleepin' Bee [11:37]
+03. The End of a Love Affair [9:43](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 02:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BD1CD7629D17DC019BF8F9CDED2CC907C7F149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605975   (1044655) от 20.01.2023
 
 Tri-Fi - Staring Into The Sun (2014) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8147EAFAB92D5C51CBC17CC8FC6308B09B5B2362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607338   (1044071) от 26.01.2023
-
-VA - Piano: Jazz 'Round Midnight (1949 - 1970) 1991, Verve Records [APE|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nat King Cole - Mean to Me [4:14]
-02. Teddy Wilson - As Time Goes By [3:11]
-03. Bernard Peiffer - Willow Weep for Me [2:56]
-04. Oscar Peterson - Smoke Gets in Your Eyes [3:09](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Piano JazzПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B938A9F55A6770F7763F60BC758FA87A31F366D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607422   (1044037) от 26.01.2023
-
-Jewel Brown - Thanks for Good Ole’ music and Memories (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerry (3:54)
-02. Pain and Glory (1:30)
-03. Why Did You Do That (3:29)
-04. Which Way Is Up (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF9DE0811304D22E13CBCF81619782B88C90A6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

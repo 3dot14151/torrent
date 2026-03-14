@@ -1,3 +1,121 @@
+###  Публикация: 220857   (976027) от 09.02.2013
+
+ГDР (ГДР) - 4 альбома+Bonus (2006-2011) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Слушай, как поют сердца (03:26)
+02. Имбирь (03:52)
+03. Что-то менять (03:56)
+04. Песенка Негра из к\ф Криминальное Чтиво (03:21)
+05. Верить (из к_ф Путевой Обходчик) (02:41)
+06. Песня о Далекой Родине (03:10)Жанр: Rock |Продолжительность: 00:20:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939826   (975042) от 02.02.2020
+
+Красная плесень - Дискография 60 альбомов (1993-2019) [FLAC|Image + .cue]<Punk>
+
+>>След.
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975042.jpg" />
+</div>
+
+
+###  Подробнее
+
+(1993) 01-Альбом №1
+(1993) 02-Сопля в левом ухе
+(1993) 03-Удар по яйцам
+(1993) 04-Металлист БаллалайкинЖанр: PunkПродолжительность: 47:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00100D983704EEA6EA582504E2B805995CC4861D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357398   (974275) от 03.02.2020
+
+Маша и медведи - Пиф-Паф (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974275.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мира Война
+2. Воскресенье
+3. Пиф-Паф
+4. Спокойной Ночи(   Читать дальше...   )Жанр: RockПродолжительность: 00:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26430A9E3C8248F716E92277EB9B3C0AEEA86A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439375   (972344) от 21.01.2012
+
+Мураками - Верь... (2011) [FLAC|Lossless|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нимфетка
+02. 8 марта
+03. Парагвай
+04. Сказка(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 168538   (968209) от 22.01.2010
 
 Машина Времени - Избранное том 1-4 (8CD) (1999) [APE (image+.cue)|Lossless]<Rock>
@@ -647,122 +765,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5488E9296A63964570709AAEEB9B7E6BB67B71E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981132   (952792) от 31.01.2016
-
-Project NT - Ottobre Nero (2016) [FLAC|Lossless|image + .cue] <Dark Ambient, Experimental, Minimal, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952792.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Начало Греха
-2	Икота
-3	Седьмой Ключ
-4	Ottobre Nero - 1(   Читать дальше...   )Жанр: Dark Ambient, Experimental, Minimal, PsychedelicПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20178461753CCC1A7412F5AD0D2C907EEE500DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089443   (951817) от 03.01.2017
-
-Тараканы! - Сила одного (2016) [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Семь миллиардов
-02. За тех, кто в меньшинстве
-03. Ни рыбы, ни мяса
-04. Ложь за ложь(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF238ADD057003865FF1460A31596193F14D873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981757   (951200) от 01.02.2016
-
-Кукрыниксы - Вера, Надежда, Любовь (2016) Single [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вера
-02. Надежда
-03. Любовь
-04. Надежда (Kukremix - Фомин М.)(   Читать дальше...   )Жанр: RockПродолжительность: 00:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33420D4C7A26D70FC36FB59A392A93CD19D7D492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362107   (951179) от 22.02.2020
-
-Inexist - Relax And Feel Free (2006) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F*ck The Difficult (3:36)
-02. Infected (2:28)
-03. Failed (3:25)
-04. Neoworld Prophecy (3:49)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9BC2B4F0F9228E0BC7AA902AF24B060BBDB3035
 ```
 
 https://mybot314.ru/tekegram_catalog/

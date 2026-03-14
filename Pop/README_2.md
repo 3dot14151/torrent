@@ -1,3 +1,235 @@
+###  Публикация: 1848799   (1053096) от 18.01.2026
+
+VA - Today’s Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Warren - Ordinary (3:06)
+02. Ed Sheeran - Sapphire (2:59)
+03. ROSÉ - APT. (2:49)
+04. Ava Max - Kings & Queens (2:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A962A06732B3AA23DFCFC05FD2815B1FD65A8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848796   (1053084) от 18.01.2026
+
+VA - Disco Hits of The '70s, '80s & '90s (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballad, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thea Austin SNAP! - Rhythm Is Dancer (3:44)
+02. Company B - Fascinated (Re-Recorded) (4:43)
+03. Jagged Edge - Where the Party At? (Re-Recorded) (4:24)
+04. Leif Garret - Play That Funky Music (4:28)(   Читать дальше...   )Жанр: Pop, Ballad, DiscoПродолжительность: 05:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94219E3AF657AD833AAE0533352B0D78DA357BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848240   (1052842) от 16.01.2026
+
+Robbie Williams - Britpop (2026) [MP3|320 Kbps] <Pop, Soft Rock, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocket (02:47)
+02. Spies (03:24)
+03. Pretty Face (03:47)
+04. Bite Your Tongue (02:50)(   Читать дальше...   )Жанр: Pop, Soft Rock, Dance-popПродолжительность: 00:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA710D1336FDEB927CAD7796DFE60CA063FBF84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848471   (1052695) от 17.01.2026
+
+Robbie Williams - BRITPOP (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocket
+02. Spies
+03. Pretty Face
+04. Bite Your Tongue(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14436AD425D3402180B3C2D73992EB3FB51D4F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848474   (1052693) от 17.01.2026
+
+Dj Bobo - The Great Adventure (2026) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro-The Great Adventure
+02. The Great Adventure
+03. Without You
+04. Sombrero(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B343D906202D9A883A1FA08B36144C59B515AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848480   (1052690) от 17.01.2026
+
+Richard Marx - After Hours (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Pop Jazz>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love is Here to Stay (feat. Randy Waldman)
+02. All I Ever Needed
+03. Young at Heart (feat. Rod Stewart)
+04. The Way You Look Tonight -Жанр: Pop, Pop JazzПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4028066C8B17A38511CA16A216A096843CFE164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847813   (1052293) от 14.01.2026
+
+Cher - Heart Of Stone (1989) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немногие артисты могут похвастаться такой богатой карьерой, как Cher, и хотя её творчество получало неоднозначные оценки, её неизменная популярность обеспечила альбому Heart Of Stone грандиозный успех; этот альбом, безусловно, входит в число лучших, выпущенных в 1989 году. Девятнадцатый студийный альбом, Heart Of Stone стал поворотным моментом в карьере певицы и, (   Читать дальше...   )01. If I Could Turn Back Time (4:01)
+02. Just Like Jesse James (4:08)
+03. You Wouldn't Know Love (3:32)
+04. Heart of Stone (4:18)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2358852A1B6BD504586AF21BE51AE07A1C719B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847273   (1052089) от 11.01.2026
+
+Blue - Reflections (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vow [00:03:49]
+02. One Last Time [00:03:18]
+03. You Should Know [00:03:19]
+04. Look What You Started [00:02:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209C7904FFC75BBC889BC5B232C332C05003C746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847119   (1052086) от 11.01.2026
 
 VA - ДЖЕМ Дискотека 85/98 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
@@ -513,238 +745,6 @@ VA - AM Gold 1967 (1991) [OGG Vorbis|480 Kbps] <Rock & Roll, Folk Rock, Soft Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22F554A06D60F5AE7EA4BA32E1EB1A3AC58A0638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846178   (1051245) от 06.01.2026
-
-VA - AM Gold 1968 (1990) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Folk, World, & Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rascals - A Beautiful Morning
-02. The Classics IV - Spooky
-03. Jose Feliciano - Light My Fire
-04. Sergio Mendes & Brasil '66 - The Look Of Love(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Folk, World, & CountryПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68E55C8AD9B61CDE7A1D0323BDB56E6AB9617F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846185   (1051244) от 06.01.2026
-
-VA - AM Gold 1969 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Supremes And The Temptations - I'm Gonna Make You Love Me
-02. B.J. Thomas - Raindrops Keep Fallin' On My Head
-03. The Cowsills - Hair
-04. Jackie DeShannon - Put A Little Love In Your Heart(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soul, FunkПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A1999ADEB93183F61181948DCD1E33FF13577A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846042   (1051197) от 05.01.2026
-
-VA - AM Gold 1966 (1990) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Soft Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mamas & The Papas - California Dreamin'
-02. The Beach Boys - Good Vibrations
-03. Bobby Hebb - Sunny
-04. The Lovin' Spoonful - Daydream(   Читать дальше...   )Жанр: Rock, Funk / Soul, Soft Rock, Pop RockПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77531F603ACECBC59460D627F8AB0C8FFBF110DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845808   (1051092) от 04.01.2026
-
-VA - AM Gold 1964 (1991) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Supremes - Baby Love
-02. The Four Seasons - Rag Doll
-03. The Zombies - She's Not There
-04. Gene Pitney - I'm Gonna Be Strong(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474F7889AEC31A0F6D2F4B880E40396BA1787753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845936   (1051089) от 04.01.2026
-
-Божья Коровка - Новогодние-застольные (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гранитный камушек (винил версия)
-02. Апельсины новогодние (винил версия)
-03. А у нас, в Америке (винил версия)
-04. Хрусталь бокала (винил версия)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAF1C9D917DB3011A09DB3BD5821084588561F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845951   (1051085) от 04.01.2026
-
-VA - AM Gold 1965 (1990) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonny & Cher - I Got You Babe
-02. Petula Clark - Downtown
-03. Jackie DeShannon - What The World Needs Now Is Love
-04. The Temptations - My Girl(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B627B7367B5C01C30F3C845765DCF73861817D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845733   (1050856) от 03.01.2026
-
-VA - AM Gold 1962 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Rhythm & Blues, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neil Sedaka - Breaking Up Is Hard To Do
-02. Frank Ifield - I Remember You
-03. Mary Wells - Two Lovers
-04. The Drifters - Up On The Roof(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Rhythm & Blues, SoulПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684EF3E868602C4BAC757C27F433AA8A7198506A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845735   (1050855) от 03.01.2026
-
-VA - AM Gold 1963 (1991) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trini Lopez - If I Had A Hammer
-02. Kingston Trio - Reverend Mr. Black
-03. Bobby Darin - You're The Reason I'm Living
-04. Barbara Lewis - Hello Stranger(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D26A08DE94BD7D20B25D98D649CC94B61BCE3B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

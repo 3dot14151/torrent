@@ -1,3 +1,32 @@
+###  Публикация: 1003513   (843581) от 03.04.2016
+
+Joe Zawinul - Money In The Pocket (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Money In The Pocket [04:47]
+ 02.If [03:48]
+ 03.My One And Only Love [03:53]
+ 04.Midnight Mood [06:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD305B94339720FBFE288C47A774B82D4F6A1A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112315   (843404) от 08.03.2017
 
 WYSI WYG - What You See Is What You Get (1997) SubConscious [APE|Lossless|image + .cue] <Jazz Fusion, Jazz Rock>
@@ -285,6 +314,35 @@ Dave Stryker Organ Quartet - Keystone (2010) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003925   (841906) от 04.04.2016
+
+Lou Donaldson Quartet - Live In Bologna (1984) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_841906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stella By Starlight [09:27]
+ 02.Groovin' High [08:31]
+ 03.Summertime [09:05]
+ 04.Lou's Blues [09:21](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F37CA1D86C264E7C69A4B849D05B5EC2E44380
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,64 +754,6 @@ Russ Garcia & His Vocal Choir & Orchestra - Sounds In The Night (1957) Remaster,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85C8879F0D2EFB05F8088F4737D0103E7F0D9D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113130   (840211) от 10.03.2017
-
-Andy Narell - Fire In The Engine Room (2000) Heads Up [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chakalaka [06:58]
- 02.Unusual Bird [07:47]
- 03.Coffee Street [08:13]
- 04.Blue Mazooka [07:54](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA14C7D20E84CE7434090262C879AD45B98D31C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112898   (840207) от 10.03.2017
-
-Kaira - Kaira (2017) [FLAC|Lossless|WEB-DL|tracks] <Cool Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840207.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shining Star (4:11)
- 2. Never Say Never (5:05)
- 3. You Are Too Perfect (4:50)
- 4. Playing With Your Life (5:10)(   Читать дальше...   )Жанр: Cool JazzПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D68C869AAA7ECD47318994B1BB919A27D342FEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

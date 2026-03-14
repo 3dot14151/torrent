@@ -1,3 +1,177 @@
+###  Публикация: 1803186   (65843) от 22.06.2025
+
+Sonny Rollins - Freedom Weaver (1959) 3CD, 2024, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woody 'n' You [15:55]
+02. But Not for Me [17:39]
+03. Lady Bird [18:50]
+(   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0488CA1F9DC0830931726DCAE51645D44C27DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803680   (65829) от 24.06.2025
+
+Chilly Swing Band - Study Jazz with the Feel of a Spring Breeze (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Energetic Ambition Waltz (Key Db Ver.) (3:10)
+02.  Growth and Green Canopies (Key Eb Ver.) (2:12)
+03.  Achiever's Daily Theme (Key Ab Ver.) (2:14)
+04.  Blossoming Scholar's Journey (Key Ab Ver.) (3:06)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93713908B6F61E454E5E7AC34EB82EC38BDAE91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803683   (65826) от 24.06.2025
+
+Ds Dream Band Stillminati - Electro Swing Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hit the road (4:00)
+02.  All Night (4:00)
+03.  Cinnamon Swing (2:18)
+04.  Honey has spice (4:00)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6341D511EC4B3D21C02BBF48BDFFF540E500D46F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803700   (65823) от 24.06.2025
+
+VibeSeeker - Electro Swing 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Black Lace (2:17)
+02.  Crimson Moon (2:40)
+03.  Dark Desire (3:37)
+04.  Ghost In Your Arms (3:26)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0792D333AC499AF5A077F388E8D3C2C2A738A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803614   (65812) от 24.06.2025
+
+Eddie Palmieri & Cal Tjader - Bamboleate (1967) 2007, Fania Records [FLAC|Lossless|tracks + .cue] <Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bamboleate [3:25]
+02. We've Loved Before [2:30]
+03. Resemblance [5:40]
+04. Mi Montuno [5:23](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C67FEDB530F172DA825286D646F72D6E92706C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803679   (65808) от 24.06.2025
+
+Chilly Swing Band - Music to Listen to in The Middle of Your Work (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Imagination In Jazz (Key A Ver.) (2:33)
+02.  Sustained Endeavor Whispers (Key Eb Ver.) (3:00)
+03.  Deep inside the Head (Key Ab Ver.) (2:33)
+04.  Ideas Blossom Softly (Key C Ver.) (2:34)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731C978E9097FEA87BD7CAA828BD79BB5B644515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803590   (65806) от 24.06.2025
 
 Tom Talbert Orchestra - This Is Living! (1997) [FLAC|Lossless|tracks + .cue] <Jazz, Big Band>
@@ -571,180 +745,6 @@ VA - Afro Funk Vol 14 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C22A451008E7D16D5D50DF850725F359323869F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805042   (65548) от 03.07.2025
-
-Blues Against The Machine - Blues Against The Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hold On Stay Strong (4:32)
-02.  I Ain't Got No Money (2:45)
-03.  I'm The One To Blame (4:58)
-04.  It Is Causing Me Pain (7:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558CCDF83D061C412FEDA372EDF14557419CF9E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805061   (65547) от 03.07.2025
-
-Jump Back - Misunderstood (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'll Move On (4:33)
-02.  Evil Might Win (3:41)
-03.  Can I Play the Blues? (4:35)
-04.  The Sting (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93F59DDAC5501DA77E7CF860F8AFECCF8FC63EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805037   (65543) от 03.07.2025
-
-VA - Jazzyness 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lo Greco Bros - Folk Song Bass (4:46)
-02.  Joe Allotta - Leave Me Alone (2:43)
-03.  Tallulah Rose - Friends (4:16)
-04.  Pomante - Dancing Feet (3:54)(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 01:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D45CED2331B16EEB87C9C916B9DFB0D9FD197C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805058   (65542) от 03.07.2025
-
-John Haydock - Back to the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  That Train Don't Go There Anymore (4:23)
-02.  Angel Drifting North (4:27)
-03.  We Fell into the Fire (4:15)
-04.  It's Getting Dark out There (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8727B733E9BEF6C4A8237344FF343E31D44AB405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805034   (65541) от 03.07.2025
-
-VA - Afro Funky Mix (Summer 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jestofunk - Fluid (6:34)
-02.  Funk Mediterraneo - Tribe Secret (4:10)
-03.  Vito Lalinga (Vi Mode Inc. Project) - Afro Bahia (5:24)
-04.  Yuri Piccolotto - Save Our Souls (6:29)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEA927C96E19089DF7FAE824190396718C480FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805048   (65532) от 03.07.2025
-
-Chrissie Pavlovic - Heartland (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fly Away (3:33)
-02.  Never Too Late (3:33)
-03.  On My Way (4:14)
-04.  Always You (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0D7D9EDCF288542C005F6F04734CF3F1242435
 ```
 
 https://mybot314.ru/tekegram_catalog/

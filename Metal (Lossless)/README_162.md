@@ -1,3 +1,351 @@
+###  Публикация: 1412094   (420786) от 28.09.2020
+
+Shaman - Origins (2010) [APE|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Origins (The Day I Died)
+02.Lethal Awakening
+03.Inferno Veil
+04.Ego Pt. 1(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0CC41255BC58F600EC221A31DB5ED82B527836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412090   (420776) от 28.09.2020
+
+Shaman - RituAlive (2004) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Winds 03:10
+02. Here I Am 06:27
+03. Distant Thunder 06:27
+04. For Tomorrow 06:44(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838A79FB2E45F126454607D25AD77ED718A19316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412176   (420774) от 28.09.2020
+
+Memoira - 3 Albums (2008-2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic-Progressive Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn of Time [00:05:52]
+02. Carnival of Creation [00:05:54]
+03. Queen Element [00:06:11]
+04. Hunter's Moon [00:05:15](   Читать дальше...   )Жанр: Symphonic-Progressive Metal, Female VocalПродолжительность: 3 CD, 02:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAED6378E83FE50D5559A0CA885C3DA86CB3C5E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412092   (420643) от 28.09.2020
+
+Shaman - Immortal (2007) [APE|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renovatti
+02. Inside Chains
+03. Tribal By Blood
+04. Immortal(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F500993A43FB8557C314B2C7319EC4C7857D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412106   (420637) от 28.09.2020
+
+Frigoris - ...in Stille (2020) [FLAC|Lossless|Web-DL|tracks] <Black Metal, Atmospheric Black Metal, Post Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora stirbt (8:51)
+02. Funkenflug (7:50)
+03. Das Licht in mir (5:19)
+04. Stimmen im Regen (9:43)(   Читать дальше...   )Производство: Hypnotic Dirge RecordsЖанр: Black Metal, Atmospheric Black Metal, Post Black MetalПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B147888B98ED8814DC29E38EDC2704225FD18C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412089   (420634) от 28.09.2020
+
+Shaman - Ritual (2002) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Winds
+02. Here I Am
+03. Distant Thunder
+04. For Tomorrow(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7533E67DE721DDC81E28F747CE455A5E85078EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250809   (420402) от 30.09.2018
+
+VA - Black Mark Tribute (1997) [FLAC|Lossless|image + .cue] <Thrash Metal, Black Metal, Death Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulquake System - Firestarter (3:33)
+02. Memento Mori - Sold My Soul (4:30)
+03. Necrophobic - Ridden With Disease (4:38)
+04. World of Silence - Strawberry Fields Forever (5:41)(   Читать дальше...   )Жанр: Thrash Metal, Black Metal, Death Metal, Heavy MetalПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E91CE0BB720E7E52E415A526828D7C55CF38647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250866   (420401) от 30.09.2018
+
+VA - Blackend - The Black Metal Compilation Vol. 2 (1996) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420401.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Naglfar - Enslave the Astral Fortress (5:11)
+02. Hecate Enthroned - An Ode for a Haunted Wood (7:19)
+03. Abigor - Scars in the Landscape of God (6:16)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 02:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168845E22034A3776BA19067D99123F4A42CBC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250872   (420282) от 30.09.2018
+
+VA - Blackend - The Black Metal Compilation Vol. 3 (1997) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420282.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Emperor - Thus Spake The Nightspirit (4:29)
+02. Hecate Enthroned - Danse Macabre (4:00)
+03. Enthroned - The Ultimate Horde Fights (4:42)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 02:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF972483B53AC66FC232B47EDBAB59B89C7A77A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250811   (420279) от 30.09.2018
+
+VA - Black Mark Tribute Vol. II (1998) [FLAC|Lossless|image + .cue] <Thrash Metal, Black Metal, Death Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purity - It's Allright for You (2:37)
+02. Necrophobic - Moonchild (4:39)
+03. Hexenhaus - Sunshine of Your Love (5:00)
+04. World of Silence - Black Celebration (4:07)(   Читать дальше...   )Жанр: Thrash Metal, Black Metal, Death Metal, Heavy MetalПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26358B930061ACE556E5067C354053E0C1CA0023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946539   (420255) от 16.10.2015
+
+Within Temptation - Интервью с Шарон ден Адель на радио ULTRA (10.10.2015) [FLAC|Lossless]<Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа, покорившая поклонников симфонического металла по всему миру. Обладатели множества наград и номинаций. WITHIN TEMPTATION. Интервью с вокалисткой Шарон ден Адель для Радио ULTRA!1. The Howling
+2. Angels
+3. Ice Queen
+4. Paradise (What About Us) (featuring Tarja Turunen)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E587A6032E7FEDB6F196598F81EF1696A9C198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412076   (420227) от 28.09.2020
+
+Whorion - The Reign Of The 7th Sector (2015) [FLAC|Lossless|image + .cue] <Symphonic Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flesh Of Gods 04:54
+02. When the Moon Bled 04:30
+03. Awakening 00:49
+04. Blood Of The Weak 04:18(   Читать дальше...   )Жанр: Symphonic Technical Death MetalПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DB9B947F2CE829475E565ECDE7683DCAB35EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250857   (420201) от 30.09.2018
 
 VA - Blackend - The Black Metal Compilation Vol. 1 (1995) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
@@ -395,359 +743,6 @@ Winterfylleth - The Hallowing of Heirdom (2018) Deluxe edition, 2CD [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E33A727DCD41145FB470D7F93EFC0BFDEAF9B9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573111   (414921) от 30.08.2022
-
-Winterfylleth - The Reckoning Dawn (2020) Special edition, 2CD [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414921.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Upon Gallows Frail
-2.	Woden (Enslaved cover)
-3.	In Darkness BeholdenЖанр: Black MetalПродолжительность: 01:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A597DAC4BA7425F19C42C013D7A9ABB9400429D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573027   (414905) от 30.08.2022
-
-In Flames - Clayman (2000) Reissue, Remastered, 2020, Nuclear Blast [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bullet Ride
-02. Pinball Map
-03. Only For The Weak
-04. …As The Future Repeats Today(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9639B28510ECA9FB91EA362361EC2CAAED753B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573231   (414755) от 30.08.2022
-
-Sepultura - SepulQuarta (2021) Japan Edition [WavPack|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414755.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Territory (feat. David Ellefson (Megadeth, Altitudes & Attitude, Ellefson...))
-2. Cut-Throat (feat.Scott Ian (Anthrax, Motor Sister, Mr. Bungle))
-3. Sepulnation (feat.Danko Jones (Danko Jones, Hateful Snake))
-4. Inner Self (feat.Phil Rind (Sacred Reich))(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F822BC728F4E647068396B6C1FFC7A184973F07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167470   (414702) от 21.09.2017
-
-Edge Of Sanity - 8 Albums, 2 Compilations, 3 Singles & EP (1990 - 2012) 21CD [FLAC|Lossless|image + .cue] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Edge of Sanity (рус. «Грань Здравомыслия») — шведская дэт-метал-группа, основанная в 1989 году и прекратившая своё существование 2003 году. Большую часть времени существования коллектива, его лидером был шведский музыкант и продюсер Дан Сване.Список альбомов:
-1991 - Nothing But Death Remains
-1992 - Unorthodox
-1993 - The Spectral Sorrows(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 15:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5657568458F1334A5F8054BCF956D3ABB0C8812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325380   (414677) от 14.09.2019
-
-NorthTale - Welcome to Paradise (2019) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Welcome To Paradise[4:36]
- 02 - Higher[3:45]
- 03 - Follow Me[4:39]
- 04 - The Rhythm Of Life[3:50](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4164F9A671824C4439693C6C2A4D1506566BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558274   (414528) от 10.10.2012
-
-Jeff Loomis - Plains Of Oblivion (Limited Edition) (2012) [FLAC|Lossless]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_414528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mercurial (Feat. Marty Friedman) (5:30)
-02. The Ultimatum (Feat. Tony Macalpine) (4:40)
-03. Escape Velocity (4:30)
-04. Tragedy And Harmony (Feat. Christine Rhoades) (5:01)
-05. Requiem For The Living (Feat. Attila Voros) (4:53)
-06. Continuum Drift (Feat. Chris Poland) (5:38)
-07. Surrender (Feat. Ihsahn) (5:30)
-08. Chosen Time (Feat. Christine Rhoades) (4:33)
-09. Rapture (2:44)
-10. Sibylline Origin (4:34)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412882   (413997) от 01.10.2020
-
-TesseracT - Polaris / Errai (2016) 2CD [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survival (Tour Edition Version) (3:56)
-02. Cages (Tour Edition Version) (4:12)
-03. Tourniquet (Tour Edition Version) (6:23)
-04. Seven Names (Tour Edition Version) (4:21)Жанр: Progressive MetalПродолжительность: 00:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D18966B941D48E214DBFBA907EA36E68F02A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412824   (413995) от 01.10.2020
-
-Celestial Bloodshed - Cursed, Scarred And Forever Possessed (2008) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [02:50]
-02.Cursed, Scarred And Forever Possessed [07:05]
-03. Sign Of The Zodiac [03:27]
-04. Truth Is Truth, Beyond The God [04:24](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212B519115CABC7BBCBCDA618DD00A25E7EFA272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412827   (413992) от 01.10.2020
-
-Wolfs Moon - Elysium Dreams (1999) [APE|Lossless|image + .cue] <Power Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duke Of Damnation
-02. Lone Wolf
-03. Devil's Bite
-04. Eternal Sleep(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5023B1E92794207ED251B48ECED85FC6AB3F0E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412759   (413989) от 01.10.2020
-
-Intense - Songs Of A Broken Future (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Oncoming Storm (1:36)
-02. End of Days (6:01)
-03. Head Above Water (4:30)
-04. Final Cry (6:39)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F1C0DF53D6E593103A0BEBEDE6FA0068411317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412890   (413838) от 01.10.2020
-
-Carach Angren - Franckensteina Strataemontanus (2020) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here in German Woodland 01:35
-02. Scourged Ghoul Undead 05:38
-03. Franckensteina Strataemontanus 03:03
-04. The Necromancer 04:08(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84550F56538FCC0B1D5BD68B5F651676E1F7C2ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412823   (413837) от 01.10.2020
-
-Dawnlight - Until The Dark Sun Rises (2019) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The longest night
-02 Men in the shadows
-03 The guardian of dawnlight
-04 White wolf(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607E02169E68ED2F5642818A1553ACAB44FBA427
 ```
 
 https://mybot314.ru/tekegram_catalog/

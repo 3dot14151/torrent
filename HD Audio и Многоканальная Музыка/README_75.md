@@ -1,3 +1,148 @@
+###  Публикация: 1678160   (147813) от 20.11.2023
+
+Wrabel - based on a true story (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Another Song About Love
+02 – Feel It Now (Alive)
+03 – Just Like You
+04 – Abstract Art(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E3C37D36F4CDE8F59379BD2A42397D2EFD335F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678122   (147747) от 20.11.2023
+
+Cannibal Corpse - Chaos Horrific (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overlords of Violence (3:08)
+02. Frenzied Feeding (3:33)
+03. Summoned for Sacrifice (4:05)
+04. Blood Blind (4:34)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740FC7BADF6C2E95E813066922A3CE09741DCF7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677804   (147728) от 20.11.2023
+
+Saint Deamon - League of the Serpent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - At Break of Dawn [4:28]
+02 - League of the Serpent [4:05]
+03 - The Final Fight [3:38]
+04 - Lord of the Night [3:19](   Читать дальше...   )Жанр: Metal, Power MetalПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2123614A37A1DB4ACA156505EDC98A0616CDF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678197   (147719) от 20.11.2023
+
+A Mountain Of One & Ricardo Villalobos - Ricardo Villalobos reimagines: Stars Planets Dust Me (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Downtempo, House, Minimal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147719.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Star (Ricardo Villalobos Master) 07:34
+2. Custard Last Stand / AMO1 Ambient Version (Ricardo Villalobos Master) 09:46
+3 .Make My Love Grow (Ricardo Villalobos Mix Down) 04:46
+4 .Black Apple Pink Apple (Ricardo Villalobos Remix) 10:06(   Читать дальше...   )Жанр: Electronic, Downtempo, House, MinimalПродолжительность: 01:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B400DB32A541AA2EB1501475FD1A66B76D0370CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678147   (147712) от 20.11.2023
+
+VENUS - Obscured Until Observed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Thrash Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sons of Grus [4:42]
+02 - The Observatory [8:12]
+03 - City of Nektron [5:42]
+04 - Circus Strange [4:39](   Читать дальше...   )Жанр: Progressive Metal, Thrash Metal, Power MetalПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC92C544B1C485316530255A0FB57004EDF0DBAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678177   (147691) от 20.11.2023
 
 Blackbird - Pink Shades (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock>
@@ -600,151 +745,6 @@ C1. Moonlapse Vertigo (8:59)(   Читать дальше...   )Жанр: Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AED8610D4BC63645E0CE188C2522045293D0B553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272624   (142464) от 28.12.2018
-
-VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. ''Руки Вверх'' - Ай-яй-яй
-02. ''Вирус'' - Кап-кап
-03. ''Ночной Патруль'' - Первая любовь(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1830285191AF037FD3DBCB88D0639DF252DB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348452   (142401) от 28.12.2019
-
-Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Woman Blues (3:36)
- 02. War in My Mind (4:22)
- 03. Without Words in the Way (4:34)
- 04. Let It Grow (4:52)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: Кодек: FLAC 2.0 24/192
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD51D2CA58B2F54286599D7B06E741C242536019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520157   (141809) от 28.12.2021
-
-The Pretty Reckless - Death by Rock and Roll (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death By Rock And Roll (3:54)
- 02. Only Love Can Save Me Now (5:12)
- 03. And So It Went (4:29)
- 04. 25 (5:26)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6F89D9D1EC8FF53102CF4DB3172D3EF4E8480B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435802   (141802) от 29.12.2020
-
-Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141802.jpg" />
-</div>
-
-
-###  Подробнее
-
-A So Weit So Gut (Maxi-Version)
-Written-By – Jurgen Attig, Michael Reincke
-B Hinein Ins Wilde Pralle Leben
-Written-By – Michael Reincke(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF67F2776AE8044D64831086BCA1C0D993A2DC05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679006   (141592) от 23.11.2023
-
-Soulfly (Max Cavalera; Sepultura) - Studio Albums (12 releases) (1998-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soulfly — американская грув-метал группа, образованная в Финиксе, штат Аризона, в 1997 году бывшим фронтменом Sepultura Максом Кавалера.1998 - Soulfly
-2000 - Primitive
-2002 - 3
-2004 - ProphecyЖанр: Nu-Metal with Folk influences; Groove/Thrash/Death MetalПродолжительность: 12:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2515F30CBE67551D119DD35535893E666E979D70
 ```
 
 https://mybot314.ru/tekegram_catalog/

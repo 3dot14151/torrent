@@ -1,3 +1,119 @@
+###  Публикация: 1800274   (66295) от 01.06.2025
+
+Anthems in Ashes - This Affliction (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hold (3:05)
+02.  Superheroes (3:50)
+03.  This Disease (4:15)
+04.  Give It To Me (3:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EC1924B9655A4DD24B3714C18E91D38E9C46BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800277   (66292) от 01.06.2025
+
+Ardbeggar - Dark Horses and Underdogs (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Underdogs (3:19)
+02.  All Against All (2:48)
+03.  Rob the Builder (3:02)
+04.  In Therapy (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938E2CCE76488E4507249F466B771FE460B22BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800278   (66284) от 01.06.2025
+
+Sapid Steel - Feel The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Whatever (3:12)
+02.  Feel The Fire (2:57)
+03.  Scream Machine (3:03)
+04.  Wasted Trouble (4:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86604CA717B69222D5C4D13A47343F18B80CCB3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802059   (66129) от 14.06.2025
+
+Freakstorm - Dust Of Glory (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fallen From The Stars (03:52)
+ 02 - Out For Glory (04:29)
+ 03 - Dr. Hammer (03:48)
+ 04 - Sacrifice Me (04:17)(   Читать дальше...   )Жанр: Melodic Hard Rock, Female VocalПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA5E85FB0B1C4A3F268AE375EE0863500A301BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804247   (65690) от 28.06.2025
 
 Tiffany Kills - World On Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -632,122 +748,6 @@ Laura Cox Band - 3 albums (2017-2023) [FLAC|Lossless|image + .cue | tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41D7C5E97B671C9919B0686749B2692B37321AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727989   (54257) от 05.06.2024
-
-Paralandra - The Body Electric (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look At Me Now (4:29)
-02. Dirty Love (3:25)
-03. Better Days (3:13)
-04. Give Me A Reason (3:59)(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA83B355A54490835129DD959B51C0137BD865D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728103   (54186) от 06.06.2024
-
-Black Sabbath - Anno Domini (1989-1995) Reissue, Remastered, 2024, BMG [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый бокс-сет Black Sabbath эпохи Тони Мартина, Anno Domini 1989-1995, выпущен 31 мая. Джо Зиглер из Black Sabbath Online опубликовал свой обзор сета.CD1 - Headless Cross:
-01. The Gates of Hell
-02. Headless Cross
-03. Devil & Daughter(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E0812D63A0110C29E9B5D786386F414920F2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729272   (53616) от 11.06.2024
-
-Magic Hat - Get Off My Lawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gave It All [00:04:23]
-02. 10 Diamond Ribbons [00:04:17]
-03. Dodgeball [00:04:10]
-04. Without Warning [00:04:05](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E56DF7D39EE2BE8A02CBCA2AB82B085DC38539D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729432   (53608) от 11.06.2024
-
-Cactus - Temple Of Blues - Influences & Friends (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Барабанщик Carmine Appice анонсировал выпуск нового альбома иконы 70-х группы Cactus. Temple of Blues - Influences & Friends является продолжением альбома Tightrope 2021 года, в котором представлены множество звездных имен, включая Joe Bonamassa, Dee Snider, Pat Travers, Warren Haynes, Vernon Reid, Steve Stevens, Ted Nugent, Johnny A ( The Yardbirds), Ty Tabor (   Читать дальше...   )01. Cactus feat. Joe Bonamassa & Billy Sheehan (Mr. Big / David Lee Roth) - Parchman Farm (3:06)
-02. Cactus feat. Randy Jackson (Zebra), Randy Pratt (Cactus) & Bob Daisley (Ozzy Osbourne) - Brother Bill (4:50)
-03. Cactus feat. Ron "Bumblefoot" Thal (Guns N' Roses) & Phil Soussan (Ozzy Osbourne) - Guiltless Glider (6:12)
-04. Cactus feat. Dee (   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97091365CB30229437CF36FA922D5FE15BFA7567
 ```
 
 https://mybot314.ru/tekegram_catalog/

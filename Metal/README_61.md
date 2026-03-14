@@ -1,3 +1,32 @@
+###  Публикация: 927792   (512567) от 25.08.2015
+
+Disturbed - Immortalized (2015) Deluxe edition [MP3|320 кб/с]<Alt. Metal, Hard Rock>
+
+>>След.
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Eye Of The Storm (1:20)
+2. Immortalized (4:17)
+3. The Vengeful One (4:11)
+4. Open Your Eyes (3:57)(   Читать дальше...   )Жанр: Alt. Metal, Hard RockПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9AAA3F9D212951AC85031BF0B2717B1D12B77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 537089   (512464) от 20.08.2012
 
 Secret Signs - For A Lifetime (2012) [MP3|320 кб/с]<Gothic Metal, Female Vocals>
@@ -716,35 +745,6 @@ Five Finger Death Punch - 6 Albums+19 Singles+2 Live+1EP (2007-2015) [MP3|160-32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71AEDC1F7B61E048EE0310E2FACF776D6799010C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563842   (502698) от 16.07.2022
-
-Disciples of the Apocalypse - Disciples of the Apocalypse 2: Hell on Earth (2022) [MP3|320 Kbps] <Psych, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 As the Last Grave Empties
-02 Curse of Kandar
-03 When There Is No More Room Left in Hell
-04 Miasma(   Читать дальше...   )Жанр: Psych, Stoner, DoomПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFE0D87A587A6254EDFCD06515597BE9755D39F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 992103   (902748) от 01.03.2016
+
+VA - Best Driving EDM (2016) [MP3|320 кб/с] <Progressive, Bigroom, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Doomchit Doomchit (Radio Edit) 02:49
+02. Teknova - La Fiesta (Original Mix) 04:01
+03. David Peel - Go! (Original Mix) 03:46
+04. Flip Capella - Lose Myself (At Tomorrowland) (Original Mix) 03:24(   Читать дальше...   )Жанр: Progressive, Bigroom, ClubПродолжительность: 03:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1853EC0D991D86635D93A00447C7D76BBB2D0F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637085   (902699) от 30.03.2013
+
+VA - Гламурная весенняя дискотека (2013) [MP3|160-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902699.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Елена Березина - Правдою По Глазам (3:42)
+2. Belka - Не Бойся Высоты (3:07)
+3. NikitA - Синие Платье (3:18)
+4. Пропаганда - Подруга (3:36)
+5. Маша Собко - Останови Меня (3:13)
+6. Дима Билан - Дотянись (3:21)
+7. Эд Шульжевский - Наша Тайна (3:55)
+8. MC Zali feat. MC Trif - Отдыхаем Четко (3:48)
+9. 23.45 - Love Forever (3:47)
+10. Quest Pistols - Забудем Все (3:12)Жанр: PopПродолжительность: 05:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9466DB4772FEA6CAA8275E7E02CA08A49B299F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992064   (902601) от 01.03.2016
+
+VA - Радио Шансон. Энциклопедия шансона (2016) [MP3|256-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902601.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Иван Кучин - Пой гитара
+002. Трофим - Я скучаю по тебе
+003. Ирина Круг - Я лучше промолчу
+004. Михаил Шуфутинский - Старое кафе(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530A8B79F4CED569F6CDF0D15FD9009502B55E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990917   (902590) от 01.03.2016
+
+VA - Alternative Winter by Evaluator (2016) [MP3|128 - 320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chloe Wildman - Six Feet Down
+02. Night Argent - Widowmaker
+03. Forever Still - Miss Madness
+04. Opia - Eon(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5984BBCDE60453A8232B80E769652DE109587A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992123   (902588) от 01.03.2016
 
 VA - Kiss FM Top 40 February (3rd week) (2016) [MP3|320 кб/с] <Pop, house, trance, dance, club>
@@ -629,122 +751,6 @@ VA - Привет Уходящему Лету (2021) [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F9BD090535BE1239DAE9251C800DC0A766CA546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492156   (902315) от 30.08.2021
-
-VA - Deep & Electro House Vol.1 (2021) [MP3|256 Kbps] <Deep House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 KeyPlayer - Illusion (Original Mix)
-02 Anil Altinay - Come To Me
-03 Anagramma - I Don't Mind
-04 Fade Off - Republic(   Читать дальше...   )Жанр: Deep House, Electro HouseПродолжительность: 04:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7624B413F842BD05CC79A7F2712AE916040D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492272   (902298) от 30.08.2021
-
-VA - 30(7) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шейх Мансур - Балдини ( DJ Eny DJ ZeM Edit) (3:56)
-02. IVAN BELYI - ГРУСТИНКА (1:46)
-03. Anivar Adamyan - Руку держи (Timber Valeriy Smile Radio Edit) (3:34)
-04. Shouse - Love Tonight (Ilkay Sencan x Barlas Mert Remix) (3:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C1DB6846EBAEA4678DF41E28CA87977FB71A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492588   (902221) от 30.08.2021
-
-VA - Top 100: DJs Chart (27.08.2021) [MP3|320 Kbps] <Pop, Dance, Electro, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902221.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta - Titanium (feat. Sia) (David Guetta & MORTEN Future Rave Remix)
-002. Dimitri Vegas & Like Mike - Feel Your Love
-003. Martin Garrix - We Are The People (feat. Bono & The Edge) (Official UEFA EURO 2020 Song)
-004. Armin van Buuren - Anita(   Читать дальше...   )Жанр: Pop, Dance, Electro, TechnoПродолжительность: 05:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CABE46B99E8B9CC3B8A1BC84D1D50ED578C64C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992344   (902210) от 01.03.2016
-
-VA - 50 Лучших треков в машину 5 (2016) [MP3|256-320 кб/с] <Deep, House, Pop, Breaks, Chillout, Drum & Bass, DubStep, Dutch, Electro, Progressive, Liquid funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SHPILEVOY - Зае (Deep House, Pop, Hip-Hop 2015) Shpilevoy prod [02:33]
-02. Alex Kunnari - Helsinki (Marcus Maison & Will Dragen Remix) [06:24]
-03. David Zowie - House Every Weekend (Radio Edit) [03:02]
-04. Boombox Vs. Nejtrino & Baur - Chandelier Hottabych (Dj Jurbas Mash up) [03:52](   Читать дальше...   )Жанр: Deep, House, Pop, Breaks, Chillout, Drum & Bass, DubStep, Dutch, Electro, Progressive, Liquid funkПродолжительность: 02:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F8C28FE9B8A961BB1DDA6072BC730E9DC7ABA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

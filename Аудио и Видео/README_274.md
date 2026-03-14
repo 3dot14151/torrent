@@ -1,3 +1,32 @@
+###  Публикация: 1521043   (138123) от 31.12.2021
+
+VA - Organica - Sound Tales 2 (2021) [AAC|~303 Kbps] <Deep House, Dub Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mikaere - What We Lost in the Winter (6:58)
+02. Schulz Audio - Eff Yeah Brutalism (6:51)
+03. Volunteer - Project Alpha (8:01)
+04. Tender H - Under Rain (Groofeo Remix) (5:29)(   Читать дальше...   )Жанр: Deep House, Dub TechnoПродолжительность: 03:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF355571D710DFE6DF8A8DAB370B87434464582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968576   (138120) от 31.12.2015
 
 Yes - Fragile (1971) Remaster, 2015, Atlantic Records [ALAC|2.0 24/88|tracks]<Symphonic Prog>
@@ -687,35 +716,6 @@ VA - Pure Deluxe 2 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7F43EEBA90950C06BD59FA24528C2D7229E3C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524929   (130302) от 18.01.2022
-
-VA - Soul Food Chillout (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Chuchaqui (5:47)
-02. Logophilia - Surfaces (6:03)
-03. Ace Of Duty - Prerogatives (6:13)
-04. Paco Borges Ensemble - Sonido de Madera (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A7A913535EB446D460FBA34480A98231B4195A
 ```
 
 https://mybot314.ru/tekegram_catalog/

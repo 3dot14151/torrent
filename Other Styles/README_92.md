@@ -1,3 +1,148 @@
+###  Публикация: 1153073   (559710) от 26.07.2017
+
+VA - 40 Latin Hits 2017 (Reggaeton, Electro Latino & Mambo) [MP3|320 Kbps] <Latin Music>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yero Company - A Tu Manera (Original Mix) (feat. Leo G)
+02. Latin Workout - Despacito (Workout Mix)
+03. Compota Y Su Ricura - Timbakutiri (Original Mix)
+04. Dj Gago - Amante O Marido (Original Mix)(   Читать дальше...   )Жанр: Latin MusicПродолжительность: 02:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1353088FC29F205F1680D0DDFC2FB58ABDF4564F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304124   (559644) от 28.05.2019
+
+VA - Country Car Music (2019) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559644.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Travis Tritt – Start the Car (04:29)
+2. Cowboy Troy – Hook ‘Em Horns (Single Version) (02:49)
+3. Tamra Rosanes – On the Road Again (03:12)
+4. Michael Ray – Drivin’ All Night (03:44)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93C522E7E16A43DBAC102B6D1C1C476ADF8F58A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235548   (558676) от 12.07.2018
+
+John Galanakis - Doom Vanguard (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Cinematic, Epic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558676.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Destroyers of the Worlds  5:22
+2. War of Blood and Fire  4:50
+3. Beneath the Deepest Core  7:30
+4. The Forging  7:54(   Читать дальше...   )Жанр: Soundtrack, Cinematic, EpicПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C230F6157C353EEE5B156EC68C7FA5B2FAD4124E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045262   (558036) от 24.08.2016
+
+Casey Weston - Find the Moon (2013) [MP3|320 Kbps] <Country Pop, Vocal>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy
+02. Close to Breaking
+03. Heart Don't Fail Me Now
+04. Back to the Start(   Читать дальше...   )Жанр: Country Pop, VocalПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC9BCF3F7045CD4028F6A2A76BCEA51212D70F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045539   (557945) от 24.08.2016
+
+Laura Sullivan - The Modern Romantic: New Relaxing Classical Piano Music (2016) [FLAC|Lossless|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds of Magic [00:04:13]
+02. Moonlight Romance [00:04:21]
+03. Timeless [00:03:47]
+04. Come Home [00:06:26](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2D77EC91C690C8E6A9231CEB6AFFC700F1775B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045738   (557732) от 24.08.2016
 
 Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, folk, Country>
@@ -593,151 +738,6 @@ Yulia Monastyrenko - 140 Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:762CBFABE617176DC99673E9E06C1CA71F504586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305972   (555904) от 02.06.2019
-
-VA - Latina Fever (2019) 4CD [MP3|320 Kbps] <Latin>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555904.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Sebastian Yatra - Por Perro
-02. Kaïzer Panda - Hum (Radio Edit)(   Читать дальше...   )Жанр: LatinПродолжительность: 03:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB4891E11A8C0C34E7E8D611DF159151F61A1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305951   (555896) от 02.06.2019
-
-VA - Инструментальные хиты кино (2004) [FLAC|Lossless|image + .cue]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Е. Крылатов - Талисман ( к/ф Конец императора тайги )
-02. В. Лебедев - Берег моря ( к/ф Вперед, Гардемарины! )
-03. А. Петров - Дождь ( к/ф Служебный роман )
-04. Е. Крылатов - Приказано взять живым ( к/ф Приказано взять живым )(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B367D71D012EC4885799916F86339A5E9847FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306342   (555681) от 04.06.2019
-
-Spencer Lewis - Riffs on a Broad Reach (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Instrumental>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High over Bethel (03:03)
-02. Interstellar (01:56)
-03. Reaching (04:40)
-04. High over Gilead (02:08)(   Читать дальше...   )Жанр: Folk Rock, InstrumentalПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75471BD1D186F6DCB70A62728D35FA6063966C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306590   (555502) от 05.06.2019
-
-Hildur Guðnadóttir (Hildur Gudnadottir) - Chernobyl (Music From The Original TV Series) (2019) [FLAC|Lossless|WEB-24Bit|tracks] <Dark Ambient, Experimental, Contemporary, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Door (02:43)
- 02. Bridge Of Death (04:44)
- 03. Turbine Hall (02:37)
- 04. Vichnaya Pamyat (04:07)(   Читать дальше...   )Жанр: Dark Ambient, Experimental, Contemporary, SoundtrackПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD38774E13C501F523D89D779AAF4332718551AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306736   (555476) от 06.06.2019
-
-Over the Rhine - Love & Revelation (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Lunas (04:13)
-02. Given Road (03:40)
-03. Let You Down (04:40)
-04. Broken Angels (04:57)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010DA8A58F4DA7FED9B88A065EC3BDDD8B35157F
 ```
 
 https://mybot314.ru/tekegram_catalog/

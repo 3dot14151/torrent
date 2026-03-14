@@ -1,3 +1,32 @@
+###  Публикация: 1252554   (409090) от 05.10.2018
+
+Behemoth - I Loved You At Your Darkest (2018) [MP3|320 Kbps] <Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Solve
+2. Wolves Ov Siberia
+3. God = Dog
+4. Ecclesia Diabolica Catholica(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB25BBF81BF699EDBFEC72EEA2BA0D2CB860FECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573791   (408809) от 02.09.2022
 
 Epica - Live At Paradiso (2022) [MP3|320 Kbps] <Symphonic Metal>
@@ -772,41 +801,6 @@ Cryogenic Implosion - Creation Of The New World (2011) [MP3|320 кб/с]<Death M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B0B9246B6222B0976B5043A51E5EA1AAB31E8F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569707   (392222) от 03.11.2012
-
-Chaosweaver - 2 Albums (2008-2012) [MP3|320]<Industrial/Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Red Dawn Rises
-2. Wings Of Chaos
-3. Maelstrom Of Black Light
-4. The Great Cosmic Serpent
-5. Infected
-6. A Requiem For A Lost Universe
-7. Crystal Blue
-8. Repulsion
-9. Ragnarok Sunset
-10. Enter The Realm Of The Doppelganger(   Читать дальше...   )Жанр: Industrial/Symphonic Black MetalПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C891B757C406A97374309538E20F877C4AF3B896
 ```
 
 https://mybot314.ru/tekegram_catalog/

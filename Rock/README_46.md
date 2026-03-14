@@ -1,3 +1,61 @@
+###  Публикация: 1048684   (545740) от 03.09.2016
+
+Rocking Rolling Living Loving Band - Thousand Percent Touch (2016) [MP3|320 Kbps] <Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thousand Percent Female     (04:36)
+02. Your Name Must Be Love     (02:41)
+03. High Mountain     (03:54)
+04. Rock'n'rolla Stumbler     (02:41)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910A489D50CBC49F0532341949D8720EE64ED550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238661   (545389) от 31.07.2018
+
+Slade - Slade In Showplace (Dover, NJ) Jul 30, 1976 (bootleg) (1976) [MP3|320 Kbps] <Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hear Me Calling (5:39)
+02. Get On Up (6:34)
+03. Scratch My Back (3:53)
+04. Take Me Back Home (4:52)(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 01:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C9001F2C31F81D852C61B42BF7F728170BFFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557088   (542813) от 14.06.2022
 
 The 69 Eyes - 3 Relise (1997-2013) [MP3|320 Kbps] <Gothic Industrial Rock>
@@ -687,64 +745,6 @@ Freddie Mercury - Messenger Of The Gods: The Singles Collection (2016) 2CD [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EB12B55541102BD683683561DA936F70D3BCF26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927519   (528762) от 13.08.2015
-
-Ricky Nelson - Les Genies du Rock - I'm Walkin' (1993) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Travellin' Man (2:21)
-02.  Hello Mary Lou (2:18)
-03.  Poor Little Fool (2:31)
-04.  Garden Party (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715A3E528471C5D80457E9A206668B78B147BB7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156246   (528496) от 06.08.2017
-
-Arcade Fire - Everything Now (2017) [MP3|320 Kbps] <Indie Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything_Now (continued)
-02. Everything Now
-03. Signs of Life
-04. Creature Comfort(   Читать дальше...   )Жанр: Indie Rock, RockПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20DB5DA4FEBFE0B58DC7802F14EF98CA4E81333F
 ```
 
 https://mybot314.ru/tekegram_catalog/

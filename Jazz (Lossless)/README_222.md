@@ -1,3 +1,90 @@
+###  Публикация: 1423739   (298076) от 14.11.2020
+
+Dakota Staton - Dakota Staton (1991) Muse Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Man [2:49]
+02. Mean to Me [5:07]
+03. The Thrill Is Gone [5:28]
+04. The Bitter Earth [4:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC31BAFC7B7FC3F7CC57CC2C7DC84B4A3AB718B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078938   (298061) от 02.12.2016
+
+Ella Fitzgerald & Louis Armstrong - The Wonderful World Of Ella Fitzgerald & Louis Armstrong - 16 Great Songs (1988) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't We Be Friends (3:47)
+02. A Foggy Day (4:31)
+03. Love Is Here To Stay (3:59)
+04. Don't Be That Way (4:57)(   Читать дальше...   )Жанр: Vocal JazzПеревод: Музыка на этом компакт-диске была записана на аналоговом оборудовании. Мы попытались сохранить, насколько это возможно звук оригинальной записи.Продолжительность: 01:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152B9F491800762C576CFAEE10479255281FA124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184927   (297540) от 19.11.2017
+
+Jeremy Wall - Cool Running (1991) Amherst Records [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of the Blue [05:19]
+02. Riverrun [04:29]
+03. Key West Strut [05:24]
+04. Global Village [05:24](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5525243EBB1B107192FB51F98A66DE2D9FCDFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184939   (297444) от 19.11.2017
 
 Chantale Gagne - Rooftop Jazz (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -658,93 +745,6 @@ Music for Quiet Moments - Rainy Autumn Night Jazz (2019) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AEED87B534199CA7B1DD73F2ADFDBE9FCC215DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079352   (294541) от 04.12.2016
-
-Paris Jazz Big Band - Source(s) (2012) Cristal Records[FLAC|Lossless|tracks + .cue] <Modern Big Band, Progressive Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Huyana (Nicolas Folmer) [08:05]
- 02.Wild (Pierre Bertrand-Cagnes) [07:18]
- 03.Zamba Blanca (Pierre Bertrand-Cagnes) [05:05]
- 04.Cajon Negro (Pierre Bertrand-Cagnes) [04:52](   Читать дальше...   )Жанр: Modern Big Band, Progressive JazzПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5EA24FB5F9AD0860DEE4F72E15A8020BEA570A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079540   (294370) от 04.12.2016
-
-Milt Jackson and the Monty Alexander Trio - Soul Fusion (1978) 1992, OJC[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Parking Lot Blues [05:24]
- 02.3000 Miles Ago [07:55]
- 03.Isn't She Lovely [04:58]
- 04.Soul Fusion [05:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695090B9634FBBCF57701A48068E51B93416CD08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079629   (294360) от 04.12.2016
-
-SaraLee - Queen Of Your Heart (2016) Scene [FLAC|Lossless|tracks] <Rockabilly, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294360.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oh Oh
-2. Voodoo Voodoo
-3. New York City Bank
-4. Stay By My Side(   Читать дальше...   )Жанр: Rockabilly, SwingПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735696460516C52219A30644436B2791694B79A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

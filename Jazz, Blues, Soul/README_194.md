@@ -1,3 +1,183 @@
+###  Публикация: 1139645   (659285) от 03.06.2017
+
+Adi Barar Band - Hold On! (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Your Hoochie Coochie Man (04:13)
+02. Rock Me Baby (04:06)
+03. Cold Black Night (04:48)
+04. La Grange (02:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63DF00498B19103C47CB966048A4F6495AFE27D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514059   (659277) от 23.06.2012
+
+Bill Tole And His Orchestra - On The Move (1990) [FLAC|Lossless]<Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_659277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tole Road
+02. It Had To Be You
+03. I'm Walkin'
+04. Them There Eyes
+05. What's New
+06. Exactly Like You
+07. Don't Worry About Me
+08. Front Page Rag
+09. I'm So In Love With You
+10. How Little We Know(   Читать дальше...   )1990Жанр: Big BandПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539186   (659251) от 24.03.2022
+
+The Junior Mance Quintet - Here 'Tis: Play The Music Of Dizzy Gillespie (1992) Sackville [WavPack|Lossless|image + .cue] <Bop, Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here 'Tis [8:02]
+02. Woody 'n You [6:16]
+03. Ow [9:52]
+04. Con Alma [4:52](   Читать дальше...   )Жанр: Bop, Hard Bop, Post-BopПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D436560AC3120CEC77BA54783C93C67BF1760A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903175   (659225) от 30.05.2015
+
+Weather Report - I Sing The Body Electric (2014) [FLAC|Lossless]<Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknown Soldier [08:01]
+02. The Moors [04:46]
+03. Crystal [07:27]
+04. Second Sunday In August [04:14](   Читать дальше...   )Жанр: Jazz, Jazz FusionПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66902D4946D7E38F3C1A6DD3BA694D7BEA234CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903310   (659222) от 30.05.2015
+
+David Sanborn - Time and The River (2015) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A La Verticale
+02. Ordinary People
+03. Drift
+04. Cant Get Next To You (feat. Larry Braggs)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72753864F3D2645321FEF2D71E8CFCAEF1F0A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903186   (659217) от 30.05.2015
+
+John Petters Swing Band - Sing Sing Sing (2013) [MP3|320 кб/с]<Jazz, Retro Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sing Sing Sing (03:53)
+02. Special Delivery Stomp (03:21)
+03. Blues At The Honky Tonk (04:43)
+04. Seven Come Eleven (05:26)(   Читать дальше...   )Жанр: Jazz, Retro Swing, Big BandПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8CD1DEC99AE33A54288551C73F60C06B654B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514041   (659125) от 23.06.2012
 
 Bill Stewart - Think Before You Think (1998) [FLAC|Lossless]<Post-Bop>
@@ -576,180 +756,6 @@ Curtis Peagler & The Modern Jazz Disciples - Disciples Blues (1959, 1960) 2001, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B3CEA803AF54FAF89507BF76F6DC9C9CF7C98CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903782   (657094) от 01.06.2015
-
-Francesca Palamidessi - In Other Words I Am Three (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz, Contemporary>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Tide
-02. Eclipse
-03. Sue's Changes
-04. Portrait(   Читать дальше...   )Жанр: Vocal Jazz, ContemporaryПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE05915B6AABA35545DDE2033D58FF86BD48D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903993   (657090) от 01.06.2015
-
-Dave Holland Big Band - What Goes Around (2002) [FLAC|Lossless]<Jazz, Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triple Dance [09:53]
-02. Blues for C.M [09:05]
-03. The Razor's Edge [06:19]
-04. What Goes Around [17:25](   Читать дальше...   )Жанр: Jazz, Post-Bop, Big BandПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D13BD771DC0F8AAE04FF8A111AB2F992649AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903640   (657089) от 01.06.2015
-
-Milt Jackson & Coleman Hawkins - Bean Bags (2012) [FLAC|Lossless]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close Your Eyes [06:57]
-02. Stuffy [05:47]
-03. Don't Take Your Love From Me [04:55]
-04. Get Happy [05:33](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B71B56297B713FECC7303559B37DAC344E70E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226034   (657080) от 19.05.2018
-
-Dave Brubeck - Interchanges '54 (1991) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audrey
-02. Jeepers Creepers
-03. Pennies From Heaven
-04. Why Do I Love You(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570B1331275DC10BD61D0204B8ADEB2F8BADFA88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226103   (657076) от 19.05.2018
-
-Hubert Laws - Say It With Silence (1978) 2016, Sony Music [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Baron [05:55]
-02. False Faces [06:20]
-03. Love Gets Better [05:09]
-04. It Happens Everyday [07:42](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35A5B9AC36DC8C3FF7362AC110D7308870AE205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539486   (657060) от 26.03.2022
-
-Gary Moore - Bad For You Baby (2008) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad For You Baby
-02. Down The Line
-03. Umbrella Man
-04. Holding On(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA56CC6930160AEAB646143A9AC70703ADA8A20
 ```
 
 https://mybot314.ru/tekegram_catalog/

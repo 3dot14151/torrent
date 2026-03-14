@@ -1,3 +1,32 @@
+###  Публикация: 1545784   (609627) от 22.04.2022
+
+VA - Chillout Room Session #1 (2012) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Art Lounge - La tua galassia (5:12)
+02. Lemon From Sicily - Ti prendo (4:41)
+03. Backsoul System - Incontri notturni (4:35)
+04. Sardinia Lovers - Nel cuore (4:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD156366ED7B792E312D235D209B6771801CFA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545824   (609617) от 22.04.2022
 
 VA - In the Forest: Urban Deep Chill Music (2022) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo, Deep House>
@@ -667,35 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87D562B510C5F998CB85C16DA7A7B56890B34A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797014   (606346) от 17.07.2014
-
-Hans Zimmer, Geoff Zanelli and Blake Neely - Тихий океан / The Pacific (2010) [AAC|WEB-DL|256 Kbps] <Score>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Honor (Main Title Theme from ''The Pacific'')
- 02 - With the Old Breed (End Title Theme from ''The Pacific'')
- 03 - You Have No Idea
- 04 - Terrible Solomons(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BC260950BC6AB8706EE0071069E138AD4A68B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

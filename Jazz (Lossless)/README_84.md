@@ -1,3 +1,90 @@
+###  Публикация: 1016636   (770525) от 14.05.2016
+
+Tom Grant - Mystified (1976) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Smooth Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.No Me Esqueca [06:02]
+ 02.Peddie Has A Point [05:14]
+ 03.Gazelle [04:32]
+ 04.Caribean Firedance [04:53](   Читать дальше...   )Жанр: Smooth Jazz, Piano JazzПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01200CB27D2B23A9712D6E6977A91FCEA6915BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017020   (769700) от 15.05.2016
+
+Masabumi Kikuchi, Gary Peacock, Paul Motian - Tethered Moon (1991) Remaster, 2015, King Record[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You're My Everything [05:27]
+ 02.Misterioso [09:48]
+ 03.So In Love [04:24]
+ 04.Moniker [05:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A0BF45D51B77590ECBEBA1BA483BD58A54B017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016817   (769690) от 15.05.2016
+
+Stefano Bollani - Live From Mars (2016) Casa Del Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In A Silent Way-Billie Jean-Couldn't Stand The Weather [17:19]
+ 02.I Feel Good [03:54]
+ 03.Parole Parole [09:11]
+ 04.Giroconlon [07:11](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5FCB53ACDE8822DDDBB88791508BEC91FC01860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392360   (769394) от 25.06.2020
 
 Duke Ellington - Second Sacred Concert 1974 (2000) ADA Sound [APE|Lossless|image + .cue] <Swing, Big Band, Vocal Jazz>
@@ -658,93 +745,6 @@ Howard McGhee - Maggie: The Savoy Sessions (1948-1952) 1995, Savoy [APE|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F4C5C61EFEB6BE87C7177635CEFC481926EC2B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125908   (767203) от 16.04.2017
-
-Esther Marrow - Sister Woman (1972) Remaster 2010 [FLAC|Lossless|tracks + .cue] <Gospel, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman In The Window (3:20)
-02. Ghetto (4:21)
-03. Trade Winds (4:45)
-04. Turn On To Jesus (6:12)(   Читать дальше...   )Жанр: Gospel, Soul, FunkПродолжительность: 00:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3F976C07C1A31FF3A19BEB475AC174B4088E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125898   (767196) от 16.04.2017
-
-Fleurine - Meant To Be! (1995) 2000, Emarcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lazy And Satisfied [04:41]
- 02.My Souldance With You [06:14]
- 03.Favorite Love Affair [06:14]
- 04.Velejar [05:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACAF9B67D96295A96E17106CCA28532A9CE56E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125886   (767195) от 16.04.2017
-
-Chet Baker - Live At New Morning (1983) 1992, Century Records [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Out Of Nowhere [11:29]
- 02.My Funny Valentine [13:00]
- 03.I Remember You [11:05]
- 04.New Morning Blues [07:30]Жанр: Cool, West Coast JazzПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C235B6AFFA5328C591079BEEB473DE146D656D
 ```
 
 https://mybot314.ru/tekegram_catalog/

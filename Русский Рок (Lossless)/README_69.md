@@ -1,3 +1,148 @@
+###  Публикация: 1736858   (106609) от 14.07.2024
+
+Эпидемия - Загадка Волшебной Страны (2023) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чёрный Маг
+02. Хождение За Три Моря
+03. Кумир
+04. Феанор(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C71533DB96887BBD2076A727EE39FEEB5533745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739028   (106172) от 26.07.2024
+
+Гарри Ананасов и Ко - Жиганские Песни 2 (2006) [WavPack|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Официант
+ 02. Вальс
+ 03. Мама
+ 04. Колокольчик(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2966FD03D63669698BE754F828A973E4DE42AB4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739181   (106088) от 27.07.2024
+
+Мураками - Казань - Big Twin Arena (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рок-н-ролл (Live) [00:05:33]
+02. Встречи не будет (Live) [00:04:18]
+03. 364 (Live) [00:03:57]
+04. Наутёк (Live) [00:03:28](   Читать дальше...   )Жанр: RockПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB62BB06BB4213DD1233E53D8A7D4F22BEB0AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739199   (106079) от 27.07.2024
+
+Ентеткрыт - Всё к мамочке (2004) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ещё и ещё [00:02:20]
+02. Шрек [00:01:54]
+03. Крылатые крысы [00:02:09]
+04. Там, где холодная зима [00:02:31](   Читать дальше...   )Жанр: RockПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B888B65B05CA4C81C82DDE2A71461F8291994C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740116   (105933) от 31.07.2024
+
+Опасные Соседи - Пьяницы и фонари (2024) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Без
+02. Прийти
+03. Скучная ночь
+04. Солнца глоток(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF071A3F3376B80FBB55789ACEBC48405A70E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740207   (105836) от 02.08.2024
 
 Кукрыниксы - Раскрашенная Душа (2002) [WavPack|Lossless|image + .cue] <Punk Rock>
@@ -600,151 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19FD84BBD35770393A46D249811360D099860448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762949   (102874) от 29.11.2024
-
-Тайны Затмения - 3 Альбома (2005-2010) [APE|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тайны затмения (3:59)
-02. Источник власти (5:21)
-03. Эвридика (4:28)
-04. Травник (4:38)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D016AA77A015918553782636A04C120D3DEE0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762893   (102867) от 29.11.2024
-
-Storm Inside - Фрагменты прошлой жизни (2023) [FLAC|WEB-DL|Lossless|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102867.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Планеты (00:04:03)
-✧ 02 - Достать до звёзд (00:03:17)
-✧ 03 - Сквозь сотни ветров (00:03:39)
-✧ 04 - В океане (00:03:09)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CFEDCF1FFB88250F5DFBFA706291F48C8C10C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763955   (102769) от 05.12.2024
-
-Maleficium Arungquilta - Касание сквозь стекло (2011) [FLAC|Lossless|image + .cue] <Dark Metal, Gothic Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102769.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ангелы Не Дышат
-2. Мразь
-3. Я Стала Морем
-4. Шелковый Рассвет(   Читать дальше...   )Жанр: Dark Metal, Gothic Metal, Symphonic MetalПродолжительность: 00:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEE15684E37F3813DEDB651D02FEF24BAB9CB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763872   (102768) от 05.12.2024
-
-Maleficium Arungquilta - Транс для сестры (2013) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102768.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Лицемер
-3. Нибиру
-4. Снег(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD91B7FCF9B05B8788495D10CE3037F8010CCFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764325   (102734) от 06.12.2024
-
-Торба-на-Круче - Части света (2014) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прометей
-02. Река
-03. Космос впереди
-04. Драконы(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63B329997C912FC649BC89D7819923EB78276DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

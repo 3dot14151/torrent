@@ -1,3 +1,64 @@
+###  Публикация: 487275   (90399) от 24.04.2012
+
+VA - Greatest Ever! Prog Rock (2012) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc: 1
+Продолжительность: 01:05:48
+01. Roundabout - Single version (Yes)
+02. In The Land Of Grey And Pink (Caravan)
+03. I Can't Take No More (Atomic Rooster)
+04. Metrognome (Camel)
+05. White Rabbit (Jefferson Airplane)
+06. Hold Your Head Up (Argent)
+07. Don t Fear The Reaper (Blue Oyster Cult)
+08. Every Mother's Son (Traffic)(   Читать дальше...   )2012Жанр: Progressive RockПродолжительность: 03:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EA84405C8D9D5C290869981E45BC89F333E5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482229   (88260) от 13.04.2012
+
+VA - A Time To Remember Collection  30CD 1960 - 1990 (1996 - 2001) [MP3|320 кб/с]<Rock, Folk Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88260.jpg" />
+</div>
+
+
+###  Подробнее
+
+1996 - 2001Жанр: Rock, Folk Rock, Country RockПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5620664C3377DCF3ACA1272C0A098171C92351FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479533   (88121) от 13.04.2012
 
 22-20s - Got It If You Want It (2012) [MP3|320 кб/с]<Indie Rock, Blues-Rock>
@@ -773,64 +834,6 @@ Big One - Pink floyd Show (2006) [MP3|320 Kbps] <Rock, Alt Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:396A8FB48DA1B7F7BB03AD8AF3E6A71BC9EC380A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773260   (71670) от 17.01.2025
-
-Blood, Sweat & Tears - Sweet Dreams (Live Amsterdam 1970) (2025) [MP3|320 Kbps] <Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fire and Rain (Live) [00:04:21]
-02 - Somethin’ Comin' On (Live) [00:06:31]
-03 - 40,000 Headmen (Live) [00:05:10]
-04 - I Can’t Quit Her (Live) [00:03:56](   Читать дальше...   )Жанр: Jazz RockПродолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB9C111C6CC2B656D5F1278D8A4669A4FB366FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773271   (71669) от 17.01.2025
-
-Elvis Costello - King Of America & Other Realms (2024) Super Deluxe, Remaster, 2024,  UMe - Elvis Costello [MP3|320 Kbps] <Country Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Big Light (Live) [00:03:02]
-02. Only Daddy That'll Walk The Line (Live) [00:02:48]
-03. Our Little Angel (Live) [00:04:28]
-04. It Tears Me Up (Live) [00:03:24](   Читать дальше...   )Жанр: Country Rock, Rock & RollПродолжительность: 4 CD, 03:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5B580FD51AB9FBC6CEA8D7166E1D02AD041928
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1184167   (301074) от 17.11.2017
+
+ATL - Дисторшн [EP] (2017) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ангелы
+02. Не беда
+03. Сплин
+04. Хелта Скелта(   Читать дальше...   )Жанр: RapПродолжительность: 00:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3896BA3A333B35F74234151E8E2C32225FD643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961218   (301031) от 01.12.2015
+
+Nana - Father (1998) [FLAC|tracks+.cue]<RnB, Swing, Pop Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Father (5:06)
+02. Do You Really Think You Know Me? (4:32)
+03. Remember the Time (4:38)
+04. Nigga 4 Life (3:35)(   Читать дальше...   )Жанр: RnB, Swing, Pop RapПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194E17F5D1C198F567A538E58ED064B706707B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423431   (300251) от 13.11.2020
+
+Jubilee - Меланхолия Drive 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подземные Люди [03:45]
+02. 315 км [03:07]
+03. Все Мои Друзья Мертвы [02:57]
+04. Берёзовый Сок [02:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD8760B2648647EBECF7D3B38C81A05AA6E902E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423429   (300089) от 13.11.2020
+
+Bumble Beezy - Nosebleed (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Круче, чем ты запланировал (Interlude) [00:30]
+02. Perk [02:50]
+03. Остап Бендер [02:42]
+04. Switch [02:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4E13E4AAA9E9C8BA308B85526B5217B5AA423C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423435   (299940) от 13.11.2020
 
 ST1M, СД - Аггро 2.0 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -629,122 +745,6 @@ KillaGram - Возвращение легенды (2019) [MP3|192 Kbps] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:247AB3D85F6E68AD10FC2555AB62B23B256F2284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265153   (276418) от 26.11.2018
-
-Вася В. (Кирпичи) - Триумф (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Йоу, православные (feat. DJ-108)
-02. Один за всех (feat. Стас Сытник)
-03. Миру мир (feat. Дмитрий «Фео» Порубов, Маша Макарова и Децл aka Le Truk)
-04. Созерцатель (feat. Nos MC и MC DannyBoy)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7066B4F8CEAA42E76B24E2720BE0006D67F4614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187892   (275818) от 01.12.2017
-
-Честер Небро - Караван (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Город убитых дорог
-02. По вертикали
-03. На подъём
-04. Туда(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BE024A40CAC43D8C440107B91B3E4E43FF78C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083720   (273178) от 16.12.2016
-
-Noize MC - Царь Горы (2016) [MP3|320 Kbps] <Rap, Rock, Electronic>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Some Noize [3:33]
-02. Стэнли запишет хит [2:52]
-03. Царь Горы [4:29]
-04. Эмпайр Стэйт [2:50](   Читать дальше...   )Жанр: RapПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DB2691FFF5FE481E11FB7E5342F4599C918CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189379   (270341) от 06.12.2017
-
-Cмоки Мо и Zloi Negr - Доспехи Бога 2 (2017) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слава КПСС, Murovei, King Mozi, D.masta, Пика - Пыл
-02. Murovei - Ядовито
-03. D.masta, King Mozi, Yung Trappa - Сияние
-04. Нигатив - Там и я(   Читать дальше...   )Жанр: RapПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164CB5CEE69BBCAD03076A39B01FC6962FDA2E1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

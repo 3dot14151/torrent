@@ -1,3 +1,32 @@
+###  Публикация: 1702277   (115925) от 24.02.2024
+
+VA - Ukrainian Songs (2024) [MP3|320 Kbps] <Pop, Folk Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Квітка Цісик - Я піду в далекі гори (6:18)
+02. Іван Ганзера - Bella ciao. (2:03)
+03. Степан Гіга - Друзі мої (4:55)
+04. Гурт Made In Ukraine - Смуглянка (4:21)(   Читать дальше...   )Жанр: Pop, Folk RockПродолжительность: 02:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E837A22835E5691D1DBD9BEAC8D686604ABF75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702346   (115891) от 24.02.2024
 
 VA - Music News vol.345 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Music News For Forum vol.004 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F739ACB4395CEBA17024605EAC8460D4478BAD70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739323   (106119) от 27.07.2024
-
-VA - Music News For Forum vol.005 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106119.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Empire Of The Sun - Friends I Know (03:21)
- 002. Alok feat. Innerverse & Frey - Allein Allein (02:39)
- 003. AMOR - Lady (02:46)
- 004. Amy Shark feat. Tom Delonge - My Only Friend (03:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF866382D515F9FC3A8C863386D955DCADA6839A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 978063   (964458) от 22.01.2016
+
+VA - Старая пластинка: Ритм-н-Блюз (2013) [MP3|256 кб/с] <R'n'B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent George (unknown) Myra Johnson
+02. So Good To My Baby (Kirkland/McCoy) Big Maybelle
+03. Wild Wild Young Men (Ahmet Ertegun) Ruth Brown
+04. Hey Little Boy (Albinia Jones) Albinia Jones(   Читать дальше...   )Жанр: R'n'BПродолжительность: 02:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6319AA1736F01AF66E56317A2B46800CCC353C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978234   (963513) от 23.01.2016
+
+Валиум - 1989 (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Метро (feat. Анна Маркова)
+03. В вечном поиске
+04. За собой (feat. Женя Нева)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E3DB7CA6C4424CC820D828EFAE51F8DE4D2C0FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359935   (963265) от 13.02.2020
+
+Восточный округ - ВКПК. В Кругу Плохих Компаний, Где закаты (2019-2020) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Где закаты
+02-Честная
+03-Ароматный туман
+04-Я бы свалил(   Читать дальше...   )Жанр: RapПродолжительность: 01:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3261D007807B2145CB3587DEB9BD4E6769FE832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360306   (960666) от 15.02.2020
 
 VA - 100 Greatest 90s Hip Hop (2020) [MP3|320 Kbps] <Hip Hop, Rap>
@@ -655,93 +742,6 @@ BONES - OFFLINE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD9084F303AFA8EEF2CA59235FADD53565B94050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365790   (927269) от 09.03.2020
-
-Scarlxrd - SCARHXURS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PERFECT. [02:20]
-02. YXU’VE BEEN CANCELLED. [02:24]
-03. GRAVESTXNE. [02:41]
-04. MAKING A KILLING. [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17AD8022D3F6DDD1086D848F7521BB948FC67ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987227   (925900) от 17.02.2016
-
-VA - Hip To The Hop: 30th Anniversary Of Hip Hop (2009) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Cent - In Da Club (3:15)
-02. Kanye West - Love Lockdown (4:31)
-03. Nelly - Hot In Herre (3:49)
-04. Black Eyed Peas - Pump It (3:34)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:469E174661E4A3DF04CC06666D361859696BFB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366058   (925815) от 10.03.2020
-
-Twista - Lifetime (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still on Top [02:20]
-02. Danger [03:02]
-03. Wish List [02:42]
-04. Lifetime (feat. Mad Lion) [03:16](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6C2C442708AFCD588AD11649801AADDB0C28A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

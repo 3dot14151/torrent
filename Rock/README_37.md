@@ -1,3 +1,61 @@
+###  Публикация: 1541454   (637250) от 07.04.2022
+
+Caught in Action - Devil's Tango (2022) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New York City (03:52)
+02. Miracle (04:33)
+03. Devil's Tango (04:05)
+04. Simple Man (04:02)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C0D20A3F0D7BEAFEDB7B434F9E91BEC5990A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541707   (637111) от 07.04.2022
+
+Sweet - Hits (2022) Special Edition, Remastered [MP3|320 Kbps] <Glam Rock, Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blockbuster (Remastered) [00:03:19]
+02. Ballroom Blitz (Remastered) [00:03:46]
+03. Fox On The Run (Remastered) [00:03:30]
+04. Little Willy (Remastered) [00:03:11](   Читать дальше...   )Жанр: Glam Rock, Classic Rock, Pop RockПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E3005BC56CBB652C043EDF51EB2C06EDD2ADB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542613   (637105) от 07.04.2022
 
 Joe Satriani - The Elephants Of Mars (2022) [MP3|320 Kbps] <Rock>
@@ -717,64 +775,6 @@ Mutzie - Light of Your Shadow (1970) Reissue Synton Archive Productions[MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838894275CA74B0C0DDC43DBA5EE127EBC7AAD5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909581   (628577) от 17.06.2015
-
-Kegan DeBoheme - Songs of Woe (2015) [MP3|320 кб/с]<Classic Rock 70's>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Songs of woe (04:11)
-02. Gone Tomorrow (03:01)
-03. Flowers (for a brother) (02:42)
-04. Rose Painted Gold (02:44)(   Читать дальше...   )Жанр: Classic Rock 70'sПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792742B94E181D227AE1E5BC171955C78F2CF25D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909420   (628187) от 17.06.2015
-
-VA - Classic Rock Presents: The Sound of 2015 (2015) [MP3|320 кб/с]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628187.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blackberry Smoke - Let Me Help You (Find The Door) (3:05)
-2. Aaron Keylock - Medicine Man (2:38)
-3. Preachers Son - Jericho (4:10)
-4. Sons Of Bill - Road To Canaan (4:04)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0558C053DDB6E6F5310393F1E66B117C218C0590
 ```
 
 https://mybot314.ru/tekegram_catalog/

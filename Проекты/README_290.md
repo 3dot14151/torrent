@@ -1,3 +1,30 @@
+###  Публикация: 961796   (298545) от 02.12.2015
+
+Проекты - Motion Array - Holiday Kit [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний проект.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21553ED43D2542A625CC39078B64E6033DCA342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184689   (298543) от 18.11.2017
 
 Проекты - Проект ProShow Producer - Cycle of Life [PSH]
@@ -654,32 +681,6 @@ Glitch Opener - динамичный проект с эффектами цифр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD88516E82C60AE39A17D69D49361C15DADE524F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078896   (297555) от 02.12.2016
-
-Проекты - VideoHive - Inside the Night Package - 18522949 [AEP]
-
->>Проекты
->>Разное (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inside the Night Package - содержит 2 различных по длине композиции открывалок с раскрытием логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8BA359CE457B4D5E3C9042FB15D0D71200768B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,0 +1,748 @@
+###  Публикация: 1725791   (108880) от 26.05.2024
+
+VA - Best Of Zara Taylor (2024) [FLAC|Lossless|tracks] <Trance, Vocal Trance, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunlounger & Zara Taylor - Try To Be Love (Original Mix) [3:55]
+02. Sunlounger & Zara Taylor - Lost (Original Mix) [3:27]
+03. Sunlounger feat. Zara Taylor - Found (Original Mix) [3:42]
+04. Roger Shah & Antillas & Zara Taylor - Fire (Original Mix) [3:50](   Читать дальше...   )Жанр: Trance, Vocal Trance, ElectronicПродолжительность: 01:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8825FABEB325698F417C89C211929C6A8F7F7D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729009   (108200) от 09.06.2024
+
+Bidoben - Cobalt Blue Rust (2024) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seek & Receive [00:05:46]
+02. Cobalt [00:05:48]
+03. Goner [00:05:37]
+04. Torch [00:05:26]Жанр: TechnoПродолжительность: 00:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB3D85CB6EF142993CFCB7B6E1279267D039885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735385   (106939) от 08.07.2024
+
+D.I.P Project & Черное И Белое - Раз И Навсегда (2008) [WavPack|Lossless|image + .cue] <Electronic, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты И Я
+ 02. Я Чужая
+ 03. Остановитесь
+ 04. Раз И Навсегда(   Читать дальше...   )Жанр: Electronic, TranceПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD944D7036530D300C7986F95973E1AEF088B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735890   (106775) от 10.07.2024
+
+DJ Pulse Feat. Donna Marie - Wherever You Go (2019 remixes) (2019) [FLAC|Lossless|tracks] <Pop Trance, Hard Trance, Hard House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Pulse Feat. Donna Marie - Wherever You Go (Darren Glancy remix) (7:15)
+02. DJ Pulse Feat. Donna Marie - Wherever You Go (Kritikal Mass remix) (6:03)
+02. DJ Pulse Feat. Donna Marie - Wherever You Go (Jamie B & Nova Scotia remix) (04:43)
+03. DJ Pulse Feat. Donna Marie - Wherever You Go (Deekay remix) (3:53)Жанр: Pop Trance, Hard Trance, Hard HouseПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646BF2E4DD4002AE9D1F13C6146DFC496E798981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756118   (103544) от 19.10.2024
+
+DJ Nelly - Lose Control (2022) [FLAC|Lossless|tracks] <Pop Trance, Scouse House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Nelly - Lose Control (Original Mix) (05:42)
+02. DJ Nelly - Lose Control (DJ Oskar Remix) (06:34)Жанр: Pop Trance, Scouse HouseПродолжительность: 00:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CB47BCE5E44151461C40DFEAD4734DEA3CBF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759077   (103309) от 07.11.2024
+
+John Askew - A Room Full of Pros & Cons (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grave Digger (Mixed) [00:03:53]
+02. Steady & Stronger (Mixed) [00:05:01]
+03. Push It (Mixed) [00:03:53]
+04. UFO (Mixed) [00:04:06](   Читать дальше...   )Жанр: TranceПродолжительность: 2 CD, 02:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C343DF5AF28F5253B6FF7157BB2254D4F8A563A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387019   (87697) от 10.04.2012
+
+Armin van Buuren - 8 альбомов, 28 компиляций (1999-2012) [FLAC|Lossless]<Trance>
+
+>>След.
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Армин ван Бюрен родился в музыкальной семье, с самого раннего детства он испытывал страсть к музыке. Его вдохновляла музыка Жана-Мишель Жарра и ремиксы Бена Либранда. Когда ему было 10 лет, его мать выиграла компьютер, и у Армина сразу же проявился интерес к нему. Он начал осваивать программы для создания музыки, и первые заработанные деньги он потратил на две вертушки, (   Читать дальше...   )Studio Albums
+
+2003 - 76
+2005 - Shivers(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463815   (80998) от 09.03.2012
+
+VA - Paul Oakenfold - Never Mind The Bollocks (2011) [FLAC|Lossless]<Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_80998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc one:
+Продолжительность: 01:15:07
+
+01. Rocky & Nok - Green Sector (Neelix Remix) (2:27)
+02. Zyce - Basic (3:18)
+03. Liquid Soul - Adrenaline (3:14)
+04. Earsugar - Beat It) (1:51)
+05. DJ Danila - Let The Music (Belocca Remix) (3:35)
+06. Ivan Nikusev & Wav-E - Aurora (Airwave Breaks Remix) (4:10)
+07. The Doppler Effect - Beauty Hides In The Deep (Ronski Speed Remix) (5:47)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:33:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780970   (70270) от 22.02.2025
+
+VA - Alter Ego Records - Best Of 2024 Compilation Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duncan Newell - Alter Ego Records Best Of 2024 - Mixed By Duncan Newell (Continuous Mix) [1:19:46]
+02. MVS7 - Isolated Field [6:12]
+03. Karoly & Monica - Zebra [7:21]
+04. Duncan Newell - Fixation [6:22](   Читать дальше...   )Жанр: TranceПродолжительность: 03:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD458C4996F4C209DA80A8C40FB7CBBAC4C67752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791139   (67857) от 13.04.2025
+
+Paul van Dyk - This World Is Ours (2025) [FLAC|Lossless|WEB-DL|tracks] <Trancecore, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительноcть: 01:15:23
+
+01. Paul Van Dyk, Christian Schottstaedt - Let Go And Listen (PvD's Fav Timeless Mix) (7:22)
+02. Paul Van Dyk, Amos & Riot Night, Matt Noland - SHINE TOGETHER NOW (SHINE IBIZA ANTHEM 2024) (2:41)(   Читать дальше...   )Жанр: Trancecore, ElectronicПродолжительность: 2CD, 02:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B6B416859E741854D2C5D505DE199F388CDD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794893   (67203) от 01.05.2025
+
+VA - Interplay 2024 (Selected By Alexander Popov) (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Popov & Otnicka - Sunset Rays (Mixed) (04:16)
+02. Alexander Popov & LTN & Kyler England & Abstract Vision - Yet To Come (Mixed) (Abstract Vision Remix) (03:44)
+03. LTN - A Strange Time (Mixed) (03:40)
+04. Alexander Popov & Harddope & Timmy Commerford - Think About You (Mixed) (01:48)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCD6D3AD42917388D28C587A0C5ED735AF90437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798805   (66558) от 24.05.2025
+
+Roman Messer - Serendipity (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - People Are Strangers (03:36)
+02. Roman Messer, ThoBa, Justin J. Moore - Now We're Found (02:35)
+03. Roman Messer, ThoBa - Together Forever (04:04)
+04. Roman Messer - Serendipity (02:45)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39814409768FC981690AC7D110B0212C089877F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799058   (66534) от 25.05.2025
+
+Estiva - Embrace (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embrace [00:03:48]
+02. Shores [00:04:35]
+03. All Night [00:04:13]
+04. Parlez-Vous [00:03:13](   Читать дальше...   )Жанр: TranceПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04AFFA2ACDA1287AC187E7331B47C97F0041C13C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802054   (66113) от 14.06.2025
+
+Sean Tyas - Lift (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lift (Original Mix) 8:25
+02 Lift (Sean Tyas Rework) 8:25
+03 Lift (Bryan Kearney Edit) 8:25Жанр: TranceПродолжительность: 00:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FE79DAD38C5D2CFC53E728DD77EE803D248099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802107   (66081) от 15.06.2025
+
+Duran & Aytek - In Sight E.P. (2005) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Progressive Breaks>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 First Sight (Original Mix) 8:29
+02 Second Sight (Original Mix) 7:00
+03 Catalepsy (Original Mix) 6:28Жанр: Progressive Trance, Progressive BreaksПродолжительность: 00:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B6B93153E47ED9C46A226FE393C294B72F6584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802623   (66030) от 18.06.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Armin van Buuren & Cathy Burton - Rain (04:05)
+02. Southside Spinners - Luvstruck (Marco V & Benjamin 2000 Remix) (04:32)
+03. Signum & Scott Mac - Coming On Strong (03:19)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36E8D2273343B7BBC2A92E51D4E290330E67893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803181   (65926) от 21.06.2025
+
+Sander van Doorn - Punk'd (2004) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Punk'd (S.V.D. Remix) 10:43
+02 Punk'd (Original Mix) 11:33Жанр: TranceПродолжительность: 22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BA6B02B6116FB792A2BAE3842AF7C179B0A22D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803464   (65828) от 24.06.2025
+
+DJ Tomcraft - Silence (2000) [FLAC|Lossless|tracks + .cue] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Silence (Radio Edit) 3:58
+02 Silence (Vocal Mix) 10:12
+03 Silence (Original) 10:12Жанр: TranceПродолжительность: 24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0132FF0229C7590EB4078813D04EA1A9AAE9E05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807407   (65226) от 19.07.2025
+
+Above & Beyond - Bigger Than All Of Us (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Stepping In 04:07
+02. Above & Beyond Feat. Richard Bedford - Start A Fire 03:49
+03. Above & Beyond And Zoë Johnston - Carry Me Home 04:16
+04. Above & Beyond - Everywhere I Go 04:12(   Читать дальше...   )Жанр: Trance, Vocal Trance, ElectronicПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC3641CED53652E96328B37F32C2028BD6B5FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809358   (64751) от 30.07.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren - Blue Fear (Extended Mix) 07:54
+02. Chicane - Offshore 2007 (Extended Mix) 07:52
+03. Lost Witness - Happiness Happening (Lange Extended Remix) 09:16
+04. Dj Shah - Palmarosa (Extended Mix) 08:26(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260BD97C5BC6A07DDB95D0F269DFEB5CB46BC342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809366   (64735) от 30.07.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren & Susana - Shivers Feat. Susana (Extended Mix) 07:33
+02. Lange & Skye - Drifting Away Feat. Skye (Extended Mix) 07:58
+03. Vincent De Moor - Fly Away (Extended Vocal Mix) 08:21
+04. Ferry Corsten - Galaxia (Extended Mix) 07:31(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFFE09169545581526E8B1E44F65B57F9A89D05E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809368   (64729) от 30.07.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren - In And Out Of Love Feat. Sharon Den Adel (Extended Mix) 06:04
+02. Bbe - Desire (Three N' One Extended Remix) 08:57
+03. Lost Witness - Happiness Happening (Lange Extended Remix) 09:16
+04. Mauro Picotto - Komodo (Save A Soul)Жанр: Trance, Progressive, ElectronicПродолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A474784A1372764745CB67C78ED7F970D715350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810033   (64558) от 02.08.2025
+
+VA - A State of Trance Radio Top 50 - 2025, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Sam Gray - Dream A Little Dream (Extended Mix) [5:05]
+02. Ferry Corsten & Gouryella feat. Saskia Lie Atjam - Marama (Moon & Stars) (Extended Mix) [6:28]
+03. HI-LO & Tai Woffinden - The Orange Theme (Extended Mix) [5:16]
+04. Armin van Buuren & BLR - Bach To The Future (Extended Mix) [4:57](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAD1280B449CB7112C8D4149B70ADEB61CE8501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714944   (59918) от 12.04.2024
+
+VA - Armin van Buuren - A State of Trance (Celebration Weekend) (unmixed tracks) (2023) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren and Cosmic Gate – Reflexion (Asot 2023 Anthem) (extended mix) (5:34)
+02. Andrew Rayel – Lifeline (extended mix) (5:45)
+03. Ben Gold – Rest of Our Lives (extended mix) (9:13)
+04. Giuseppe Ottaviani and Jess Ball – Silhouettes and Outlines (extended mix) (6:22)(   Читать дальше...   )Жанр: Uplifting Trance, Progressive TranceПродолжительность: 04:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0619158D61BA7BA6D30A6DA63D59F1DD110081F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718048   (58773) от 23.04.2024
+
+Nova Scotia - Power Of Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Trance, Synth-Pop>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nova Scotia – Power Of Love (4:35)Жанр: Trance, Pop Trance, Synth-PopПродолжительность: 00:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004494C8940C4C798955A80799551E33DE27640C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718055   (58766) от 23.04.2024
+
+CJ Stone & Quiz ft. Jenny - Surrender (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro Trance, Dance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CJ Stone and Quiz ft. Jenny – Surrender (2:26)
+02. CJ Stone and Quiz ft. Jenny – Surrender (extended mix) (3:56)Жанр: Euro Trance, DanceПродолжительность: 00:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4CFB6AA3A22742C2306C49699FAD513D0E29F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------

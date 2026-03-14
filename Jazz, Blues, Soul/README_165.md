@@ -1,3 +1,177 @@
+###  Публикация: 1531426   (722486) от 15.02.2022
+
+King of the World - Royal Ten (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pressure (3:39)
+02. Money Talks (3:24)
+03. Soulsearchin (3:58)
+04. Someone Like You (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F5FED3F790F1AB21C4010C3EEC841FD9CD1AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531265   (722482) от 15.02.2022
+
+Willie Dave Willis - Spirits (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Folklore (Backwoods Version) (2:51)
+02. Ghost Train (3:12)
+03. Good Bad and Mostly in Between (3:50)
+04. Clean Slate (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F315ED711C842034D8D0648E1701F74863B80A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023871   (722466) от 06.06.2016
+
+Art Blakey And The Jazz Messengers - In My Prime Vol. 1 (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jody [10:25]
+ 02.Not Sor Far At All [03:27]
+ 03.1978 [07:30]
+ 04.To See Her Face [06:27](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E44E1E50699254C4E2A4E6E8C39C395771658D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129346   (722401) от 28.04.2017
+
+VA - Smooth Sax On The Beach - Lounge Summer Chill 'n' Jazz (2017) [MP3|320 Kbps] <Jazz, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seneca Reynolds - Deep Shield (Groovy Obsession Mix) (4:48)
+02. Cooltrane - Capture The Sun (Extended Ibiza Del Mar Mix) (6:55)
+03. Unisax - Living On The Inside (Cool And Smooth Mix) (4:41)
+04. Perelandra - Dancing With The Sun (Travelling Silvertones Mix) (5:39)(   Читать дальше...   )Производство: Symphoney DigitalЖанр: Jazz, ChilloutПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE0ACDC47E0CA64311B60C8FBB238D5B9B8BAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023677   (722382) от 06.06.2016
+
+Gerardo Nunez & Ulf Wakenius - Logos (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Logos [04:46]
+02. Selene [04:43]
+03. Habana [04:43]
+04. Mirlo [03:33](   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE964E5611246DB5CFFC9DF66A333973A6FF12D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023721   (722380) от 06.06.2016
+
+Will Goble - Consider The Blues (2016) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Man Done Gone (4:47)
+02. Johnson's Magic Umbrella (4:18)
+03. Dirge Blues (6:14)
+04. It Ain't Necessarily So (6:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031A2424887E4822DF8E2069706F73E8963432F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023877   (722373) от 06.06.2016
 
 Dave Steffen Band - Give Me A Thrill! (1993) [FLAC|Lossless|tracks] <Blues, Blues Rock>
@@ -571,180 +745,6 @@ Bud Powell - Swingin' With Bud (1957) 2017, Sony Music [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6F3958846EF198250363047F73BC6DE75665898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218736   (719519) от 11.04.2018
-
-JoJo Effect - Atlantic City Flow (2018) [MP3|320 Kbps] <Nu-Jazz, Chillout, Downtempo>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аtlаntiс Сitу Flоw (04:05)
-02. Fаllасу (03:45)
-03. Swееt Ваbу Сhilе (fеаt. Вrеndа Воуkin) (03:38)
-04. Sunshinе оn Му Skin (03:52)(   Читать дальше...   )Жанр: Nu-Jazz, Chillout, DowntempoПродолжительность: 00:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F38B0757CC498D17312B651114F038C9277C062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400463   (719402) от 05.08.2020
-
-Sauter-Finegan Orchestra - Four Classic Albums Plus (1952 - 1958) 2017, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Modern Big Band, Progressive Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719402.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Doodletown Fifers [3:17]
-02. April In Paris [3:01]
-03. Midnight Sleighride [3:01](   Читать дальше...   )Жанр: Modern Big Band, Progressive Jazz, Mainstream JazzПродолжительность: 02:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5CBDFCCEF5A62286C8E9F86C367F6BE99B51583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400467   (719400) от 05.08.2020
-
-Hank Mobley - The Complete Blue Note Sessions (1963 - 1970) 2019, 8CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719400.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Up a Step [8:32]
-02. Old World, New Imports [6:09]
-03. East of the Village [6:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 08:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D089BBD482067F5C8ED7D62BCB0F6C69BEDB8EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285672   (719163) от 27.02.2019
-
-Bob Graf - At Westminster (1958) 1992, Delmark Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernie's Tune [7:31]
-02. Street of Dreams [6:30]
-03. Dear Old Stockholm [14:06]
-04. Funky Ride [5:15](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5A6766F7EDABF3122CF2931311EBECE0B6EC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285677   (719162) от 27.02.2019
-
-Humphrey Lyttelton - In Canada (1983) 2015, Sackville [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Thing [5:00]
-02. Sprauncy [7:43]
-03. Squiggles [4:44]
-04. Looking for Turner [5:02](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8159097C286DD02384266F0814B411575D71B7F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285687   (719158) от 27.02.2019
-
-Kim Mills - The Ruby And The Pearl (2005) Jazz Karma Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ruby and the Pearl [4:31]
-02. That's All [4:23]
-03. Corcovado (Quiet Nights of Quiet Stars) [3:20]
-04. I Only Have Eyes for You [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2E2D929C391D6840183BED4695DBF9A028BF5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1147813   (607720) от 03.07.2017
+
+VA - Best of Deep House. Volume 4. Miss World [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeff Bennett - The Beginning [4:22]
+02. Janova Jacks - Come And Play (Original Mix) [7:14]
+03. Josen Deep - Shades [7:12]
+04. Terry Lee Brown Junior - Innocent (Forteba Remix) [6:12](   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 04:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F7382BEA049694585B0654816B9054D6DB7197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545655   (607680) от 23.04.2022
 
 VA - Beatport Techno: Electro Sound Pack #514 (2022) [MP3|320 Kbps] <Techno, Minimal, Electronic>
@@ -723,35 +752,6 @@ VA - Chicane - Twenty (2016) [MP3|320 Kbps] <House, Trance, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:573C51DA09B6CDA2EFBAEE7D4DD8DD10518D065A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297231   (604833) от 21.04.2019
-
-VA - Digital Dream: Techno Set (2019) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604833.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mike Nero - Messed Up My Mind (Original Mix)
-002. Boryana - Simulation
-003. Santiago Garcia - Apes On Mars (Original Mix)
-004. T78 - Stinkor (Original Mix)(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBCF7F0DAAE1C3350BD94943CA55AC63A361BE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

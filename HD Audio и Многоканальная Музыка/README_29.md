@@ -1,3 +1,148 @@
+###  Публикация: 1552995   (584759) от 23.05.2022
+
+Boston - Don't Look Back (1978) Santa Maria Press [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Prog Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584759.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Don't Look Back
+A2 The Journey
+A3 It's Easy
+A4 A Man I'll Never Be(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A87CEE71C750B5A7E2BE0A764DDE2466524F633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041013   (584456) от 07.08.2016
+
+Ray Charles - Selected Songs (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Funk, Soul,  Rhythm & Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584456.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Can't Stop Loving You
+A2 Georgia On My Mind
+A3 Hit The Road Jack
+A4 Take These Chains From My Heart(   Читать дальше...   )Жанр: Funk, Soul,  Rhythm & BluesПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72222CA9D886E21DFC7CEDA0568C75FE740FF782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041019   (584429) от 07.08.2016
+
+Группа Стаса Намина - Сюрприз Для Мсье Леграна (1983) Repress 1984 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584429.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Подводный Замок
+А2 Лето Пикассо
+А3 Друг Покинул Этот Мир
+А4 Парафраз На Темы Песен(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04180D0FFEEB4A4F830CFF26E91B74A9F63BA69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040839   (584266) от 07.08.2016
+
+C.C. Catch - Diamonds: Her Greatest Hits (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Euro Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584266.jpg" />
+</div>
+
+
+###  Подробнее
+
+sideA
+A1 House Of Mystic Lights (Long Version - Dance Mix)
+A2 Are You Man Enough
+A3 'Cause You Are Young(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74EE639E50570487C1163D810A3F99B680BA2D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041132   (584154) от 07.08.2016
+
+Supertramp - Breakfast in America (1979) Reissue, 2013, A&M [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Art Rock, Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Breakfast in America — шестой студийный альбомы группы Supertramp, выпущенный в 1979 году. Альбом стал самым успешным у Supertramp - всего в мире было продано свыше 20 миллионов его копий и самым успешным английским альбомом во Франции.01. Gone hollywood
+02. The logical song
+03. Goodbye stranger
+04. Breakfast in america(   Читать дальше...   )Жанр: Art Rock, Pop Rock, Classic RockПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C92B31BF8648921209C5D98214A4F0336E0BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041078   (584150) от 07.08.2016
 
 Amy Winehouse - Back to Black (2013) [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Soul, Jazz>
@@ -611,151 +756,6 @@ A4 Джамбалая(   Читать дальше...   )Жанр: Pop, FolkПр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58C066592730F242B641B27E1AC2BE9C1287FB1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363443   (567105) от 15.07.2011
-
-Enya - Watermark (1988) [APE 2.0 24/96|tracks (Vinyl-Rip)] <Electronic/Ambient/New Age/Celtic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567105.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1.  Watermark [02:23]
- A2.  Cursum Perficio [04:07]
- A3.  On Your Shore [03:57]
- A4.  Storms In Africa [04:02](   Читать дальше...   )Жанр: Electronic/Ambient/New Age/CelticПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923046   (566199) от 30.07.2015
-
-Al Bano & Romina Power - Аль Бано и Ромина Пауэр (1982) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Italo-Disco, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Чистый воздух (Aria Pura)  3:14
-2. Счастье (Felicita)  3:16
-3. Идиллия (Sharasan)  4:48(   Читать дальше...   )Жанр: Italo-Disco, Pop RockПродолжительность: 00:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E2642248F866BAE628B1936C17ED1C6C37C63F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923154   (566188) от 30.07.2015
-
-Smokie - Greatest Hits (1977) Repress /1988, Балкантон/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566188.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Lay Back In The Armes Of Someone (4:02)
-A2. Something's Been Making Me Blue (3:00)
-A3. If You Think You Know How To Love Me (3:24)
-A4. Pass It Around (3:06)(   Читать дальше...   )Производство: EMI / БалкантонЖанр: RockПродолжительность: 00:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330A5ED060902A2D62E337C1C9AEA05968DFC2A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303894   (565126) от 25.05.2019
-
-Bob Marley - Songs of Freedom. Part 2 (1994) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Reggae>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565126.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A:
-01. Africa Unite
-02. Survival
-03. Zimbabwe(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3379715825309C0F79E6D50C159268B4B7604447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303670   (565125) от 25.05.2019
-
-Baba Yaga  (Баба Яга) - Where Will You Go (Куда Ты Пойдешь?) (1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565125.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Where Will You Go (Куда ты пойдешь)
-A2 So Ends Another Day (Так заканчивается день)
-A3 Side To Side (Бок о бок)
-A4 Red Bird (Красная птица)(   Читать дальше...   )Жанр: Folk Rock, Blues RockПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B769561943A34700E8816A33302557EC72CFB03A
 ```
 
 https://mybot314.ru/tekegram_catalog/

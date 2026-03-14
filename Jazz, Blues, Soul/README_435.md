@@ -1,3 +1,177 @@
+###  Публикация: 1666411   (179682) от 04.10.2023
+
+John Coltrane With Eric Dolphy - Evenings At The Village Gate (1961) 2023, Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Favorite Things [15:54]
+02. When Lights Are Low [15:27]
+03. Impressions [10:13]
+04. Greensleeves [16:03](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD39467372D7FB1EBF793CD5300756CA070F428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666399   (179665) от 04.10.2023
+
+Yussef Dayes - Black Classical Music (2023) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz-Funk, Afrobeat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Classical Music (feat. Venna & Charlie Stacey) (5:19)
+02. Afro Cubanism (2:45)
+03. Raisins Under the Sun (feat. Shabaka Hutchings) (4:32)
+04. Rust (feat. Tom Misch) (3:59)(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz-Funk, AfrobeatПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC38C591A29F39795C914AF47BD32BC78427262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666430   (179656) от 04.10.2023
+
+George Freeman - The Good Life (2023) [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Had You (Campbell-Connelly-Shapiro) - 11:05
+02. Mr. D (Freeman) - 7:39
+03. Up and Down (Freeman) - 6:04
+04. Lowe Groovin' (Freeman) - 5:53(   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307186EAB3A820B814D6C77A62299B9529F7D1F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666371   (179468) от 04.10.2023
+
+Will Jacobs, Ally Venable, Ashley Sherlock - Blues Caravan 2023 (2023) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With A Little Help From My Friends (04:52)
+ 02. Ohio (03:40)
+ 03. Been Here Before (03:18)
+ 04. I Think That She Knows (03:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1744819EABF0D03578C123096B483FCB5F2A66D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594054   (179421) от 29.11.2022
+
+Mother Vulture - Mother Knows Best (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Stoner, Alt.Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fame or Shame (3:21)
+02. Monster Crunch (2:17)
+03. Honey (2:39)
+04. Rabbit Hole (Album Version) (3:35)(   Читать дальше...   )Жанр: Blues Rock, Stoner, Alt.RockПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69686170E282CF47DB1F593AD725BD37F3675DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593785   (179405) от 29.11.2022
+
+The Rev Douglas - Do You Have the Blues or Do the Blues Have You (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ky Walk [00:03:18]
+02. Half a Mind [00:05:10]
+03. Ain't No Good Reason [00:04:42]
+04. Strange Feelings [00:05:24](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063D89A9EB0A60333F4875B5E9DA1699E2929353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428564   (179381) от 03.12.2020
 
 Scherzoo - 05 (2020) [FLAC|Lossless|image + .cue] <Zeuhl, Jazz-Rock>
@@ -571,180 +745,6 @@ Karma Jack - Lights Out Ep. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:679F38B8D5308A3C297689C440FA9087BC5D8731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594510   (178161) от 01.12.2022
-
-Nidaros Blueskompani - Live in Nidaros studio (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's allright, it's all good. (Live) (3:11)
-02. Stick with me baby. (Live) (4:25)
-03. Cool rockin' grandpa. (Live) (4:20)
-04. Tuff little cookie. (Live) (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6571544986F61591845E6D74C24219F8E56A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594482   (178159) от 01.12.2022
-
-Sara Bae - Deep South (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep South (3:16)
-02. King of love (3:21)
-03. Moon and sun (3:21)
-04. Mama bear (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1B16011F1E3D8944763D22AE11D52725D4EA3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428822   (178148) от 04.12.2020
-
-Henrik Freischlader Band - Missing Pieces (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening (4:03)
-02. New Beginning (7:40)
-03. Power to the Peaceful (3:39)
-04. Let the People Be Free (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE2950430C9A5D4C24A82CC0E121FE8C9C8C25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594576   (178139) от 01.12.2022
-
-The Wicked Lo-Down - We Hot (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Hot (3:24)
-02. Lena (3:43)
-03. Mind Your Mind (5:01)
-04. Let Me In (2:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1A9A5D4911CFC379814C1DCB0AD94A27F94BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594498   (178134) от 01.12.2022
-
-Mutter Slater Band - The Masquerade (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Party (4:06)
-02. Let's Call It a Draw (4:15)
-03. Treason (4:13)
-04. Show Me You Care (7:01)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77757A98F05E3DD965D5E20041BD4CE5C256023E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594566   (178125) от 01.12.2022
-
-Kai Strauss - Night Shift (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stand Strong Together (5:08)
-02. The Future And The Past (5:43)
-03. I Done Got Over You (4:48)
-04. Bottom Of The Barrel (4:02)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287797077B2FB3533C6475E76B847E96587B54A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

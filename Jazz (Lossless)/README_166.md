@@ -1,3 +1,88 @@
+###  Публикация: 935634   (498509) от 09.09.2015
+
+Rusty Bryant - Fire Eater (1971) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Eater [09:37]
+02. Free At Last [08:37]
+03. The Hooker [09:31]
+04. Mister S. [07:38]Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C98D6A4BE7CE11FEAAB3FD9B185357D262A2FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318161   (497812) от 04.08.2019
+
+Denny Zeitlin - Live at Maybeck Recital Hall, Vol.27 (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues on the Side [3:48]
+02. The Girl Next Door [4:21]
+03. My Man's Gone Now [9:05]
+04. Lazy Bird [3:01](   Читать дальше...   )Жанр: Post-Bop, Hard Bop, Piano JazzПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA1D6E701EC845F8698591D1C67CCB970D544ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564872   (497736) от 21.07.2022
+
+Max Roach with The New Orchestra of Boston and The So What Brass Quintet (1993, 1995) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Festival Journey [50:51]
+02. Ghost Dance [12:13]Жанр: Hard Bop, Post-Bop, Third StreamПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149A4E8CFE2EE00EEC60E8A648254A69C9A95653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936055   (497662) от 10.09.2015
 
 The Australian Jazz Quartet - The Australian Jazz Quartet (1955) /2014, Solid Records/[FLAC|tracks+.cue]<Bop, Cool>
@@ -676,93 +761,6 @@ Bill Evans - Montreux II (1970) /2013, King Records/[FLAC|tracks+.cue]<Post-Bop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8ED400A36ED9054743BF0558AAF6EE41B25B3BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936682   (494457) от 12.09.2015
-
-Art Blakey And The Jazz Messengers Big Band - Live At Montreux And Northsea (1980) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minor Thesis [13:19]
-02. A Wheel Within A Wheel [07:03]
-03. Bit A Bittadose [06:42]
-04. Stairway To The Stars [08:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D618525871567EBA9EE86BBC2BACE74444269650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936692   (494455) от 12.09.2015
-
-Big John Patton - Oh Baby! (1965) /2015, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fat Judy [07:44]
-02. Oh Baby [06:20]
-03. Each Time [05:42]
-04. One To Twelve [07:55](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0502F8B3169CCD593CB17A060145E5E1AF99A324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054168   (494417) от 19.09.2016
-
-Masayoshi Takanaka - The White Goblin (1997) [FLAC|Lossless|tracks + .cue] <Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven and Earth (5:36)
-02. Who? (4:30)
-03. Away (5:32)
-04. Goblin's Theme (5:27)(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B337D4D53D520363B27CCAF16546625F11504B19
 ```
 
 https://mybot314.ru/tekegram_catalog/

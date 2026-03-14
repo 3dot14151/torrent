@@ -1,3 +1,32 @@
+###  Публикация: 1022758   (727852) от 03.06.2016
+
+Paradox - Pangea (2016) [MP3|320 кб/с] <Thrash Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apophis
+02. Raptor
+03. The Raging Planet
+04. Ballot or Bullet(   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F768E58FB37B64A29D951F2AB107FBC8A4834762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128491   (727557) от 25.04.2017
 
 Sailing To Nowhere - Lost in Time (2017) [MP3|320 Kbps] <Melodic Power Metal>
@@ -716,35 +745,6 @@ Tormentor - Morbid Realization (2017) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:180C7393115A068C0DC54A32196E8BA36CC7E71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129945   (718506) от 30.04.2017
-
-Wolfpakk - Wolves Reign (2017) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling 04:55
-02. Run All Night 04:14
-03. Blood Brothers 04:39
-04. Wolves Reign 06:15(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8446A2BC2D70CC431F9A7A94842EDB16F3E39BC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

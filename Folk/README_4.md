@@ -1,3 +1,32 @@
+###  Публикация: 1045262   (558036) от 24.08.2016
+
+Casey Weston - Find the Moon (2013) [MP3|320 Kbps] <Country Pop, Vocal>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy
+02. Close to Breaking
+03. Heart Don't Fail Me Now
+04. Back to the Start(   Читать дальше...   )Жанр: Country Pop, VocalПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC9BCF3F7045CD4028F6A2A76BCEA51212D70F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046470   (551930) от 27.08.2016
 
 Justin Moore - Kinda Don't Care (2016) Deluxe Version [MP3|320 Kbps] <Country>
@@ -738,35 +767,6 @@ Erik Koskinen - America Theatre (2014) [MP3|320 Kbps] <Country Blues, Americana>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30F9715A8F06D3C78B61F5858C718C86C0DA583F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938280   (483655) от 17.09.2015
-
-Blackmore's Night - All Our Yesterdays (2015) [MP3|320 кб/с]<Folk, Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All of Our Yesterdays
-02. Allan Yn N Fan
-03. Darker Shade Of Black
-04. Long Long Time(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC9F5415D10838FFE17E36FF3DCFAE9A8CA3CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

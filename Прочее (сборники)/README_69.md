@@ -1,3 +1,38 @@
+###  Публикация: 508468   (679605) от 10.06.2012
+
+VA - World Of Relax (2012) [MP3|320 кб/с]<Relax>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred Buccini - Love
+02. Sao Vicente - My Perfect Day
+03. Mayra Andrade - Poc Li Dente e Tcheu
+04. Masan & Miyabi - The Sensual View
+05. Parov Stelar - A Night In Torino
+06. Lenny Macdowell & Krell - The Awakening
+07. Alexander Dancaless - Irreversibility
+08. Sphere - Enchanted World
+09. Matthew Compton - Wings Of Moonlight
+10. Lemongrass - On the Edge of Time Feat Karen2012Жанр: RelaxПродолжительность: 03:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F205921FE8E032D99174A9B1F67A8B431621E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508701   (679124) от 10.06.2012
 
 VA - 100 Mega Summer Hits 2012 (2012) [MP3|~273 кб/с]<Pop, Dance, Club>
@@ -738,35 +773,6 @@ VA - Disco Dance 90s (2016) [MP3|320 Kbps] <Dance, Disco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13BE7A8356480E306F28E80F3C3666F67562901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223492   (673465) от 05.05.2018
-
-VA - The Official UK Top 40 Singles Chart 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris, Dua Lipa - One Kiss
-02. Ariana Grande - No Tears Left to Cry
-03. Drake, Big Freedia, 5thward Weebie - Nice For What
-04. Lil Dicky - Freaky Friday (feat. Chris Brown)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 02:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6A46B0BCD95D4EC3955EEF8038672C1D88A911
 ```
 
 https://mybot314.ru/tekegram_catalog/

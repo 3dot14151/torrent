@@ -1,3 +1,32 @@
+###  Публикация: 1547226   (240984) от 02.05.2022
+
+EASTERN WIZARD - The Land of Mysteries (2022) [AAC|~326 Kbps] <Organic House, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Land of Mysteries (5:44)
+02. Unlocking Secrets of the Universe (5:54)
+03. Chasing the Light in Casablanca (7:16)
+04. Heaven (4:27)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC8D81ADEB96641553CB7684D0A75C282FAFA30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547942   (240944) от 02.05.2022
 
 VA - Chilling Tunes for Heart & Soul (2020) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
@@ -715,35 +744,6 @@ VA - The Perfect Soulful Vol.2 (Chillout Your Mind) (2021) [AAC|~299 Kbps] <Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1DD318C5980BDC74908E78867D58F3C1026349F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495303   (237806) от 13.10.2021
-
-VA - Fifty Shades of Lounge - 50 Smooth & Sexy Chill Tunes 4 Erotic Moments (2015) [AAC|~329 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cafe Americaine - Magical Mambo (Latin Lounge Cut) (5:24)
-02. Chillwalker - Smooth Peter (Jazzbrunch Mix) (5:21)
-03. Noise Boyz - I'm a Jazzwoman (Cooljazz Mix) (5:06)
-04. Vladi Strecker - Red Wine (Slowjazz Mix) (6:31)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 04:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65208FCC6FFDEF456B25B44430CBA87FCC88EE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

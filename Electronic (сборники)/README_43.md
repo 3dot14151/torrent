@@ -1,3 +1,32 @@
+###  Публикация: 1004489   (838622) от 06.04.2016
+
+VA - Welcome House Atomic (2016) [MP3|160-320 кб/с] <Progressive, Club, House, Bigroom, Tropical>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Pasquini - Qoaster 05:01
+02. Tara Mcdonald Feat. Snoop Dogg - Vay-K (Adam Trigger Remix) 04:30
+03. Talemono - Overload (Radio Edit) 03:11
+04. Relika & Dj Turtle - Jungle Them 04:52(   Читать дальше...   )Жанр: Progressive, Club, House, Bigroom, TropicalПродолжительность: 08:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05772BEF4D76744CAE69BEF35B7BEC0BCD0427E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004590   (838528) от 06.04.2016
 
 VA - Goa Session by X-Noize (2016) [MP3|320 кб/с] <Trance, Progressive Trance, PsyTrance>
@@ -719,35 +748,6 @@ VA - EDM Volume 2 Heads Phone (2016) [MP3|320 кб/с] <Electro House, Big Room,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE1A26AA00E5D3FB00210959EC10D70C00C14A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005208   (834831) от 08.04.2016
-
-VA - Heavens Waiting: Chillout Session (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834831.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chillwalker - Heaven's Waiting (Vocal Mix)
-002. Slow Rhythms - Waiting for the Dawn
-003. Lady White - Let Me Try (Ripping Mix)
-004. Steen Thottrup - Save a Little Prayer - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9918FE9A1262BD33A4BAD6118DC20A2C729C6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

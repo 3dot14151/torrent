@@ -1,3 +1,61 @@
+###  Публикация: 1264713   (279571) от 24.11.2018
+
+VA - Hands up Party Dance Selection, Vol. 2 (2018) [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Tht feat. Auzern - Open Up the Dancefloor (Dj Gollum Remix)
+02. Nigel Hard - Superstar (Jinpachi Futushimo Hands Up Remix)
+03. Tomtrax and Orca - Break It Up (Radio Mix)
+04. FluxStyle feat. Alex Twist - Die besten Partys (The Suspect Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 04:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD580E3DE92631BD179FB122604DC84F3584489E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264560   (279519) от 24.11.2018
+
+VA - Hot Party Winter 2019 (2018) [MP3|320 Kbps] <Dance, Lunapop, Indie, Neo Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shawn Mendes - Lost In Japan
+02. LSD - Thunderclouds
+03. Celestal feat. Rachel Pearl, Grynn - Old School Romance
+04. Silk City - Electricity(   Читать дальше...   )Жанр: Dance, Lunapop, Indie, Neo SoulПродолжительность: 02:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A50EEE2E620982FF0469A784C20DDC6EE8D84CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264551   (279516) от 24.11.2018
 
 ZOE (Straub) - The Acoustic Sessions (2017) [MP3|320 Kbps] <Acoustic Pop>
@@ -692,64 +750,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C446A27DFE00C5DAC2EBEC68ED3E746A6780B324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338093   (271646) от 13.11.2019
-
-VA - Pop Muzik - Ultimate Synth-Pop Anthems (2019) 5CD [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271646.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.M&Pop Muzik - Pop Muzik (From Priscilla Queen of the Desert) - 00:04:53
-02.New Order - Blue Monday - 00:04:05
-03.Frankie Goes To Hollywood - Relax - 00:03:54(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AB5889E93D6169E71069A2CB954F496D8EFA38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337989   (271510) от 13.11.2019
-
-VA - The Hits Album: The Car Album... On The Road Again (2019) 4CD [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271510.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. George Ezra - Paradise 3:42
-02. Shawn Mendes - In My Blood 3:29
-03. Mark Ronson Feat. Bruno Mars - Uptown Funk 4:29(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 04:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C07224083F6E3F562BAC266D54879E0D824E09C
 ```
 
 https://mybot314.ru/tekegram_catalog/

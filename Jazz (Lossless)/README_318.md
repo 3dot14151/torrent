@@ -1,3 +1,90 @@
+###  Публикация: 1715349   (111564) от 12.04.2024
+
+VA - Voices From The New Cool Vol. 2 (Nu Jazz Crooners & Female Jazz Singers) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lo Greco Bros - Moonlight (5:17)
+02. Papik - All Woman (5:23)
+03. Lostinwhite - Blue Skies (4:23)
+04. Danny Losito - Stormy (2:52)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E40629A9938DB1CFD3D9C587DAECEFEB7A1BD9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715615   (111558) от 12.04.2024
+
+Papik - Cocktail Mina Vol.3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Acid Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Specchi riflessi (feat. Laura Lanzillo)
+02. La pioggia di marzo (feat. Erika Croce)
+03. Amoreunicoamore (feat. Stefy Gamboni)
+04. Mi sei scoppiata dentro il cuore (feat. Alessandro Pitoni)(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, PopПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8D480C60793CF2711DA81A34DC7ECBFFF07FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715337   (111543) от 12.04.2024
+
+VA - Relaxing Evening Jazz Chill out Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Dearest (3:52)
+02. eJazz Artistry - You're Makin' Me High (4:48)
+03. Kool&Klean - A Sky Full of Stars (4:41)
+04. Chillaxonic - Ineffable (5:22)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92DEC832A16EC86C247DF07BAC6DE45814A7AB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715319   (111535) от 12.04.2024
 
 VA - Greatest Feel-Good Intimate Jazz Tunes to Unwind (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -658,93 +745,6 @@ VA - Ultimate Relaxing Lounge Jazzy Weekend Playlist (2024) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B54A190FCC2DB18C25A4333D6C7249AA88A731D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716459   (111316) от 16.04.2024
-
-Pat Martino & Gil Goldstein - We Are Together Again (2012) Warner [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body and Soul [7:13]
-02. Before You Ask [7:03]
-03. Footprints [5:31]
-04. In a Sentimental Mood [4:47](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8800C478C4F72826164DF9DAC1EF9BFB229E96CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716628   (111315) от 16.04.2024
-
-Erroll Garner & Billy Taylor - Separate Keyboards (1945, 1949) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erroll Garner - Cottage for Sale [2:59]
-02. Erroll Garner - Rosalie [3:05]
-03. Erroll Garner - Everything Happens to Me [3:06]
-04. Erroll Garner - Stairway to the Stars [2:51](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 00:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FF7C9847D6FF594CA8271D2F744442FF7FCA8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716626   (111313) от 16.04.2024
-
-Erroll Garner - Piano Magic (1940-e - 1950-e) 1999, Hallmark [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play, Piano, Play [3:15]
-02. Pastel [2:58]
-03. Frankie & Johnny Fantasy [2:57]
-04. Stardust [2:49](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF484C0ED12D36EFFC9A010A67FD9AE0B947F73
 ```
 
 https://mybot314.ru/tekegram_catalog/

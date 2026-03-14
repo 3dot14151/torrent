@@ -1,109 +1,23 @@
-###  Публикация: 1577680   (350064) от 21.09.2022
+###  Публикация: 578844   (352473) от 21.11.2012
 
-E-Type - The Explorer (1996) [OGG Vorbis|484 Kbps] <Electronic, Downtempo, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Explorer                                  	1:11
-02. Calling Your Name                         	3:38
-03. Back In The Loop                           	3:27
-04. I Just Wanna Be With You              	3:52(   Читать дальше...   )Жанр: Electronic, Downtempo, Euro HouseПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA86EBE3FF0BDAF0E9137020D4681CAE0783F5F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578042   (350062) от 21.09.2022
-
-Grace From Gadgets - Grace From Gadgets (2022) [MP3|320 Kbps] <Progressive Rock, Prog Related>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buried in the Air 04:55
-02. Closer Than the Beat is to the Heart 03:53
-03. I Wish for a Lot of Things 03:30
-04. My Ghosts 04:04(   Читать дальше...   )Жанр: Progressive Rock, Prog RelatedПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C680002E247A58F961DC73107C73EF6FECF7FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257030   (350061) от 24.10.2018
-
-VA - Rock Sound: Sound Check No. 125 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killswitch Engage - Starting Over (03:51)
-02. Darkest Hour - No God (04:44)
-03. He is Legend - Everyone I Know has Fangs (03:21)
-04. Blakfish - Ringo Starr - 2nd Best Drummer in The Beatles (05:26)(   Читать дальше...   )Жанр: House, Emo, Speed Metal, Hardcore, Hard RockПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D502677A0DF7439B2E31DE7A0C737F35EC6CD31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578095   (350059) от 21.09.2022
-
-FoneDog Toolkit – iOS Data Recovery 2.1.66 [Multi]
+Дело следователя Никитина (8 серий из 8) (2012) [H.264] SATRip
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350059.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_352473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эффективное программное обеспечение iOS Data Recovery поможет вам восстановить удаленные данные с iPhone, iPad и iPod. Поддержка iPhone XS, XR, 8 и последней версии iOS.Тип издания: macOS SoftwareРелиз состоялся: 20.09.2021Разработчик: © 2021 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
+История разворачивается в Москве в 1935-1936 годах. В Московской прокуратуре работают три молодых следователя: Андрей Никитин (Анатолий Руденко), Евгений Россомахин (Александр Волков) и Михаил Бурлаков (Дмитрий Янышевский). Именно они занимаются расследованием самых громких преступлений этих лет. Вместе они работают не так давно и еще не успели следует притереться друг к другу.
+Одним из главных расследований прокуратуры, которое является сквозной линией всего сериала «Дело следователя Никитина», является история гибели поэта Николая Дементьева и дальнейшая жизнь его вдовы Надежды Надеждиной (Ольга Дибцева). В Надежду влюбляется главный герой сериала — следователь Андрей Никитин.Жанр: ДетективРежиссер: Валерий Усков, Владимир КраснопольскийАктеры: Анатолий Руденко, Ольга Дибцева, Александр Волков, Дмитрий Янышевский, Станислав Эрклиевский, Александр Чернявский (II), Тимофей Трибунцев, Марина Блейк, Владимир Малков, Константин Шелягин, Кирилл Щербина, Наталья Земцова, Борис Львович, Александр Никольский (II), Петр Черняев, Юлия Деллос, Ирина Вербицкая, Кирилл Нагиев, Алла Мартынюк, Ирина Гавра, Виталий Салий, Алексей Смолка, Юрий Тузов, Ольга РодинаФормат: MKVПродолжительность: 8 ~ 00:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:565FF407EFEF9CA1E5AC7B26727D2A140077AE64
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257078   (350058) от 24.10.2018
+###  Публикация: 578981   (352472) от 21.11.2012
 
-VA - Submission Universal (Mixed By Atragun) (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
+Журнал | Women's Health [Россия] №12 (декабрь 2012) [PDF]
 
->>Electronic
->>Trance
+>>Журналы
+>>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350058.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tom Bro - Summit (Basil O Glue Intro Mix)
-02. Emran Badalov - Spaceman (Original Mix)
-03. Atragun - Lost In Dreams (Three Drives Remix)
-04. Xpectra - Seize The Day (Original Mix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 06:44:02
+"Women’s Health" – качественное модное глянцевое издание о здоровом образе жизни в современном формате. Это живой, веселый и практичный журнал для современных, активных женщин, он не только о здоровом образе жизни и фитнесе, но и о красоте, стиле, сексе и отношениях. Издание ответит на популярные среди женщин вопросы, как вести здоровый образ жизни, как (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCB99FA4183E6905A147569A524C5937E4D822BC
+magnet:?xt=urn:btih:6C42641E98ED9A2AFD7AD1EC790C9FFE3DAAB775
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,25 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 256585   (350057) от 10.11.2010
+###  Публикация: 578845   (352468) от 21.11.2012
 
-Марк Твен | Собрание сочинений (145 книг) [FB2]
+С любовью из ада (2011) DVDRip
 
->>Художественная литература
->>Собрания книг иностранных авторов
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350057.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Практически любой взрослый и ребенок по крайней мере хотя бы один раз слышали о том, кто такой Марк Твен (настоящее имя Сэмюель Клеменс), писатель придумавший Тома Сойера и Гекельберри Финна, янки при дворе короля Артура, принца и нищего. Кстати, он известен и своими историческими романами, например «Жанна Д Арк», а юмористическими высказываниями и афоризмами. В (   Читать дальше...   )Формат: FB2Качество: eBook (изначально электронное)
+Двадцатилетний Дмитрий, он же Димон, красив, умен, талантлив. Он известный в Питере клубный ди-джей. Море поклонниц, удовольствий, кайфа. Он знакомится в клубе с очень красивой девушкой… она идеал. Демон влюбляется с первого взгляда. Он готов на все, лишь бы эта красавица всегда была рядом с ним. Требуя доказательств его любви и преданности, девушка рассказала, что ей предложили отличную сделку: под видом туристки она должна провезти на себе через границу в Питер пару килограммов наркотиков. За это ей обещано десять тысяч долларов. Девушка выдвинула условие, что будет не одна. После многочисленных ссор, скандалов, примирений и уговоров Дмитрий все же согласился сопровождать любимую в поездке, которая оказалась для него роковой. Он быстро понял, что влюбился не в ту девушку, связался не с теми людьми и попал не в ту странуЖанр: Мелодрама, КриминалРежиссер: Андрей ЩербининАктеры: Илья Алексеев, Светлана Цвиченко, Филипп Величко, Юрий Ермаков, Алина Ван Ортон, Александр ИвановПеревод: Не требуется (Русский)Продолжительность: 01:31:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0804582B54BEA9E3C15D05CA656206BD859C40DE
+magnet:?xt=urn:btih:BF98F6B009C29C883E4189F424AD12739E355082
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +77,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256834   (350055) от 24.10.2018
+###  Публикация: 578732   (352467) от 21.11.2012
 
-Fenêtre 0.6.2 [En]
+Sunstorm (Joe Lynn Turner) - 3 Альбома (2006-2012) Дискография [FLAC|Lossless]<Melodic Hard Rock, AOR>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350055.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_352467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Держите окно открытым, всегда поверх всего остального.
-Картинка в картинке теперь доступно на вашем Mac.
-Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2018Разработчик: Yoann MoinetПоддерживаемая ОС: macOS 10.9.0 +Язык интерфейса: Английский
+Проект Sunstorm был создан в 2006 году бывшем вокалистом Rainbow, Deep Purple и Yngwie Malmsteen Joe Lynn Turner-ом при содружестве ребят из Pink Cream 69 и других подобных команд.Альбомы:
+2006 – Sunstorm (KICP-1198)
+2009 – House Of Dreams (KICP-1379)
+2012 – Emotional Fire (KICP-1593)Жанр: Melodic Hard Rock/AORПродолжительность: 02:37:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5048C95F5C3D05F512AB3E194A678A76BC55605
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577943   (350054) от 21.09.2022
+###  Публикация: 577861   (352464) от 21.11.2012
 
-E-Type - Eurotopia (2007) [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
+Почтальон всегда звонит дважды  / The Postman Always Rings Twice (1946) [1080p] BDRemux
 
->>Pop
->>Eurodance, Euro-House, Technopop
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350054.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.	E-Type–	True Believer	3:40
-02. 	E-Type–	The Tide	3:57
-03.	E-Type–	Eurofighter	3:47
-04. 	E-Type–	Make Us High	4:09(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:52:50
+Фрэнк, путешествующий по Калифорнии в поисках работы, заходит перекусить в придорожную забегаловку. Её владелец Ник предлагает поработать у него, но Фрэнку не очень-то нравится место, пока на сцену не выходит жена Ника. Появление платиновой блондинки Коры в дверном проеме в обтягивающих белых шортах нокаутировало бы любого. Одно из лучших появлений героини в истории кино: мгновенное влечение выплескивается на экран, с самого начала Фрэнк понимает: эта женщина — для него одного. Он остается работать за небольшие деньги и бесплатную комнату, в которой вскоре появляется ОНА! Кора признается Фрэнку, что не любит пожилого мужа и готова бежать с ним отсюда, но они бедны, начинать жизнь с нуля красавица не хочет, а деньги можно получить, только если Ник умрет… Всё идет как по маслу, но от посланника Смерти уйти нельзя — старый Почтальон всегда найдёт Вас и позвонит в Вашу дверь…Жанр: Триллер, драмаРежиссер: Тэй ГарнеттВ ролях: Лана Тернер, Джон Гарфилд, Сесил Келлауэй, Хьюм Кронин, Леон Эймс, Одри Тоттер, Алан Рид, Джефф Йорк, Philip Ahlm, Джон ЭлбанПеревод: Многоголосый закадровыйПродолжительность: 01:52:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15F276CB696BD2A356A2E39624226B2718873E9F
+magnet:?xt=urn:btih:E85BAA06F52E9E1D33B0BFDCFF650856CA6D2599
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,51 +132,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578033   (350053) от 21.09.2022
+###  Публикация: 578910   (352463) от 21.11.2012
 
-Грэм Грин | Десятый (2007) [MP3, Николай Козий]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350053.jpg" />
-</div>
-
-
-###  Подробнее
-
-В немецком плену немцы решают убить трех пленных из 30 (каждого 10-го) в наказание за какую-то провинность и предлагают им самим определить, кого. Жребий выпадает богатому пленному и он предлагает желающему выкупить его за все его состояние, дом. Один неожиданно соглашается, сказав, что готов умереть богатым, обеспечив своих родных. Выйдя из плена, оставшийся в живых, (   Читать дальше...   )Жанр: ПовестьПродолжительность: 03:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBCD178040B92C4D9729FD2E52921927A9CBB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256874   (350052) от 24.10.2018
-
-ColorWell 7.1.2 [En]
+Эмулятор Nintendo GameCube и Wii "Dolphin" [Multi24/+] (L/3.0-843) 2012
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350052.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_352463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре OS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезный инструмент в любом наборе инструментов хорошего веб-дизайнера, и его можно легко настроить для работы на панели инструментов и открыть глобальную горячую клавишу.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2018Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий и Французский
+Dolphin является открытым исходным кодом Nintendo GameCube и Wii эмулятор для Microsoft Windows и операционные системы Linux. В последней версии, многие игры для GC & Wii могут воспроизводиться (хотя пока еще есть ограничения скорости в играх), и несколько игр, как утверждается, имеют полную функциональность.Язык интерфейса: Русский / Английский / Арабский / Каталонский / Китайский (Упрощенный) / Китайский (Традиционный) / Чешский / Голландский / Фарси / Французский / Греческий / Германский / Еврейский / Венгерский / Итальянский / Японский / Корейский / Норвежский / Польский / Португальский / Португальский (Бразильский) / Сербский / Испанский / Турецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B42F2EA00D2A716ED635974C7AFBEBAEA85ED976
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,112 +158,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257094   (350047) от 24.10.2018
+###  Публикация: 1577793   (352460) от 20.09.2022
 
-VA - Butterfly Music Amsterdam 2018 Selection (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syntouch - Waiting For The Sunrise (Extended Mix)
-02. Syntouch - Lasting Light (VoIces Mix)
-03. The Avains feat. Sabreena Singh - Blue Skies (Vocal Extended Mix)
-04. Syntouch - Waterfall (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2983C656423DFD0821F367A7B8AF849D029614B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577558   (350046) от 21.09.2022
-
-VA - 60 Minutes. Old School Dance Music vol.11 (mixed by Dj V) (2022) [MP3|320 Kbps] <Progressive Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-IIO - Rapture (Riva Remix)
-02-Paul van Dyk feat. Hemstock & Jennings - Nothing But You (Super8 & Tab Remix)
-03-Tiёsto feat. BT - Love Comes Again (Bart Claessen Remix)
-04-Madonna - What It Feels Like for a Girl (Above & Beyond 12'' Club Mix)(   Читать дальше...   )Жанр: Progressive Trance, Uplifting TranceПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70727742D0062C02878558996F6805845C64B9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 256492   (350045) от 10.11.2010
-
-Современное искусство - Ханс Рудольф Гигер / Hans Rudolf Giger [JPG]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ханс Ру́дольф «Рюди» Ги́гер (нем. Hans Rudolf «Rüdi» Giger); 5 февраля 1940, Кур Граубюнден, Швейцария — 12 мая 2014, Цюрих, Швейцария[5]) — швейцарский художник, представитель фантастического реализма, наиболее известный своей дизайнерской работой для фильма «Чужой».Формат: JPGРазрешение файлов: 65x210 - 2916x2004
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9C882A8178BCD8412219D441961BA6E0CBFD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256912   (350044) от 24.10.2018
-
-Stan Getz - Desafinado (1952 - 1963) 3CD, 2014, Le Chant du Monde [FLAC|Lossless|image + .cue] <Cool, Bop>
+Jack McDuff - Legends Of Acid Jazz (1964) 1997, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350044.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Stella By Starlight [2:45]
-02. Time On My Hands [2:59]
-03. 'Tis Autumn [3:15](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 03:51:51
+01. Scufflin' [4:53]
+02. Au Privave [3:19]
+03. Hallelujah Time [3:49]
+04. Misconstrued [6:59](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:09:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0E7972BD0EEB48CDB34837B949A905C72EC3641
+magnet:?xt=urn:btih:220AA87E7E5352CFE17D8DDBA402158C2225A130
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,54 +187,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578129   (350043) от 21.09.2022
+###  Публикация: 1577609   (352459) от 20.09.2022
 
-Opera 91.0.4516.20 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE71DA4D3C4D8725ECB9BF27F4BB0C0DCCE840B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256875   (350041) от 24.10.2018
-
-Hitten - Twist of Fate (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+A Mountain Of One - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Crossover, Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350041.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Take It All
-02. Final Warning
-03. Twist of Fate
-04. Flight to Freedom(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:52
+01. Custards Last Stand [00:06:44]
+02. Black Apple Pink Apple [00:07:20]
+03. Make My Love Grow [00:04:20]
+04. Surrender [00:07:33](   Читать дальше...   )Жанр: Progressive, Crossover, RockПродолжительность: 2 CD, 01:32:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D61EAEC0966BFEE5F590185540DD154F0C17F5A3
+magnet:?xt=urn:btih:7805E52E5C5C5F04E95F340C0380138E5F1439E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,25 +216,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578175   (350040) от 21.09.2022
+###  Публикация: 1577621   (352458) от 20.09.2022
 
-EarthView 7.1.2 RePack (& Portable) by elchupacabra [Ru/En]
+Antonio Vergara - Once In A Lifetime (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350040.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. The City Of The Big Lights (3:58)
+02. Our Yell (3:42)
+03. Trying To Heal Your Soul (with Ciro Fogliatta) (7:14)
+04. Asphalt Jungle (5:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD7EDC59B7432A51D028461C2B2D62B7A39CD76E
+magnet:?xt=urn:btih:B35F59B6A3642B8B2D94341247D2D7C45FA6E180
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,169 +245,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578141   (350038) от 21.09.2022
+###  Публикация: 1577862   (352457) от 20.09.2022
 
-Millenium - Tales from Imaginary Movies (2022) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tales from Imaginary Movies (The Opening Credits) [00:02:15]
-02 - Invisible Superhero [00:07:44]
-03 - A World Full Of Spies [00:04:59]
-04 - Brightness Hidden In The Dark [00:07:22](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA5935EB3171CEAB6CA4F0D42684D736EEA30B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257044   (350037) от 24.10.2018
-
-VA - Ellie Lawson - The Best Of (Extended Mixes) (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raz Nitzan & Ellie Lawson - Beyond Time (Extended Mix)
-02. Frainbreeze & Ellie Lawson - I Pray (Extended Mix)
-03. Davey Asprey & Ellie Lawson - Bridge The Divide (Original Mix)
-04. Alan Morris & Ellie Lawson - Find Myself In Losing You (Original Mix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 02:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA5162C89505098E5E2AB9392BF52DF2F096A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578083   (350036) от 21.09.2022
-
-Игры агентов / Агентская игра / Игра в агента / Agent Game (2022) BDRemux [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офицер ЦРУ Харрис участвует в миссиях по захвату иностранных граждан и доставке их в секретное место для допросов. Харриса обвиняют в убийстве шефа и задержанного во время допроса, и теперь он вынужден бежать от группы оперативников, посланных за ним во главе с безжалостным двойным агентом Олсеном и его подручным Виссером.Производство: США, Lionsgate, Saban Films, Taylor & Dodge, Project InfinityЖанр: боевик, триллерРежиссер: Грант С. ДжонсонАктеры: Мэл Гибсон, Джейсон Айзекс, Кэти Кэссиди, Дермот Малруни, Адан Канто, Энни Илонзе, Баркхад Абди, Риз Койро, Блу Кимбл, Мэтт РидиПеревод: Многоголосый профессиональный (Лицензия)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, full), английскиеПродолжительность: 01:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CDD44EC15323DF35299C1010C2F62C6E89BC5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329775   (350035) от 06.10.2019
-
-Teddy Killerz - Pursuit (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum'n'bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pursuit (04:30)
-02. Dominus (04:44)
-03. Mutation (04:05)
-04. Get Busy (04:08)(   Читать дальше...   )Жанр: Drum'n'bassПродолжительность: 00:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8FF9F52684D843DD175727F13A71E1B5F61B75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256872   (350034) от 24.10.2018
-
-Guardians of Time - Tearing Up the World (2018) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tearing Up the World
-02. Raise the Eagle
-03. We'll Bring War
-04. Burning of Rome(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB0583A3EF5E717791A5FE2EDC291E07BB03BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256801   (350033) от 24.10.2018
-
-Duplicate Photos Fixer Pro 2.7 [En]
+WidsMob Montage 2.24 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350033.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
-
-Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2018Разработчик: Systweak Software Private LimitedПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+Вы делаете какой-то плакат для занятий, проектируя монтаж фигуры на день рождения?
+WidesMob Montage должен быть отличным производителем монтажа, чтобы превратить все в потрясающие мозаики. Это универсальный фотомонтаж, который может создавать потрясающую фотомозаику с тысячами изображений в высоком разрешении.Тип издания: macOS SoftwareРелиз состоялся: 20.09.2022Разработчик: © WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACD8DECDD2FCBBE6F55786EBFD14797796626F2A
+magnet:?xt=urn:btih:4D995D59318DFED09A843D0ED40FF53C1C8A64E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,28 +272,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256913   (350032) от 24.10.2018
+###  Публикация: 1577595   (352455) от 20.09.2022
 
-VA - Fern World: Magical Sounds Of Lo Fi Music (2018) [MP3|320 Kbps] <Lo Fi, Lounge>
+Pat Mastelotto & Bill Munyon - XtraKcts & ArtifaKcts (2001) [FLAC|Lossless|image + .cue] <Art Rock, Prog Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350032.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ambitus - Eternal Sunset
-002. Citizen Maze - Serenity In The Woods
-003. Field Works - Imprints
-004. Matas - Flutter(   Читать дальше...   )Жанр: Lo Fi, LoungeПродолжительность: 07:35:36
+Ударник King Crimson Pat Mastelotto и Билл Муньон работают в своем измерении с голосом и гитарой Robert Fripp, грувом Tony Levin, гитарами Trey Gunn, синтезаторами Cenk Eroglu, вокалом Adrian Belew и David Byrne.01. Hello Ghost 0:44
+02. The Irresistable Blowtorch 7:37
+03. What Were You Expecting? 5:40
+04. What? Coda 7:22(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 00:58:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25211E2848344D8DE595867E948488625E85422F
+magnet:?xt=urn:btih:FD3A398FD05A5506DF5A516369D83B35C02A3C99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,25 +301,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256884   (350031) от 24.10.2018
+###  Публикация: 1577773   (352453) от 20.09.2022
 
-Canary Mail - Encrypted Email 2.14 [Multi/Ru]
+Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350031.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Canary Mail может похвастаться большими возможностями и неплохой их реализацией, что вкупе с элегантным дизайном и удобным интерфейсом делает Canary весьма интересным экземпляром. Можно сказать, что перед нами Airmail с фирменной Snooze из Mailbox и другими популярными функциями современных email-клиентов.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2018Разработчик: Mailr Tech LLPПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15,09.2022Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF77A38968074A9E62E10E1DB5252D1FAABC12E5
+magnet:?xt=urn:btih:4AC1956F65E9881A626832D11B479B832AC804B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,25 +328,380 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578075   (350029) от 21.09.2022
+###  Публикация: 1577599   (352451) от 20.09.2022
 
-Opera 91.0.4516.20 + Portable [Multi/Ru]
+Ермен Анти & Art Chaos Community - Груз 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Новая искренность [00:01:36]
+02 - Невесомости нет [00:03:08]
+03 - Огонь по штабам [00:04:07]
+04 - Под домашний арест [00:05:37](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA1F415AAC1756482151B424535C76B290D09C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577715   (352449) от 20.09.2022
+
+The Erinyes - The Erinyes (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Needs Love
+02. Drown The Flame
+03. On My Way To Love
+04. Betrayed(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78ABBF93763A6EE880044A480CB346BCB47107B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577798   (352447) от 20.09.2022
+
+Alexander Hawkins Mirror Canon - Break a Vase (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый секстет британского пианиста Александра Хокинса не совсем новый: почти все участники ранее играли у него же в Alexander Hawkins Ensemble и других составах. Кроме самого Алекса за роялем и сэмплером, в группу вошли ударник Стивен Дэвис, контрабасист Ник Чарльз, гитарист Отто Фишер, звездный саксофонист Шабака Хатчингс и перкуссионист Ричард Олатунде Бейкер. (   Читать дальше...   )01. The Perfect Sound Would Like to Be Unique (Hawkins) - 1:37
+02. Stamped Down, or Shovelled (Hawkins) - 6:45
+03. Sun Rugged Billions (Hawkins) - 4:30
+04. Generous Souls (Hawkins) - 5:59(   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDFD09AE5D477DE72CAA0BBA2C91C41984ECB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577490   (352444) от 20.09.2022
+
+Loveless - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IS IT ME [00:03:33]
+02. MIDDLE OF THE NIGHT [00:03:06]
+03. Worst Case Scenario [00:03:00]
+04. sorry i’m a downer [00:02:50](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 2 CD, 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40365AB85285124D6194F9F5716C3CBE6E43290E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577920   (352442) от 20.09.2022
+
+Эрнст Любич. Принц-студент в Старом Гейдельберге / The Student Prince in Old Heidelberg (1927) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австрийский принц, страдающий от чрезмерной опеки, влюбляется в практичную барменшу. Робость и решимость, преданность и покорность, долг и отчаяние – все смешалось на их пути...Производство: США, Metro-Goldwyn-Mayer (MGM)Жанр: драма, мелодрама, немое киноРежиссер: Эрнст Любич, Джон М. СталАктеры: Рамон Новарро, Норма Ширер, Джин Хершолт, Густав фон Сейффертитц, Филипп Де Лэси, Эдгар Нортон, Бобби Мак, Эдвард Коннелли, Отис Хэрлан, Ганс ДжобиПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91580826D928BEF6CCDD74F1761B27CAAA5CFD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577938   (352440) от 20.09.2022
+
+Mp3tag 1.6.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mp3tag - мощный и простой в использовании инструмент для редактирования метаданных аудиофайлов. Музыканты, ди-джеи, подкастеры и аудиоэнтузиасты используют его для множества различных аспектов обработки аудиофайлов.Тип издания: macOS SoftwareРелиз состоялся: 20.09.2022Разработчик: © 2021-2022 Florian HeidenreichПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299E2132004F53488B30A0A8D7B890B8B94B6D75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577801   (352439) от 20.09.2022
+
+Transfer 2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transfer - это надежное и полностью RFC-совместимое приложение TFTP-сервера. Идеальная альтернатива встроенному TFTP-серверу на вашем Mac. Здесь есть все, что вы ожидаете: в режиме реального времени происходит обновление текущих передач, поддержка широковещательных запросов TFTP, история передачи и базовый контроль доступа к корневому каталогу TFTP и управление файлами. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.09.2022Разработчик: © 2019-2022 Intuitibits LLCПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B054C2E54F2C112334215921043D494D5B66192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577870   (352438) от 20.09.2022
+
+SILKYPIX JPEG Photography 11 v.11.2.6.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352438.jpg" />
+</div>
+
+
+###  Подробнее
+
+С SILKYPIX JPEG Photography вы можете раскрыть свой творческий потенциал. Улучшите свои фотографии в формате JPEG, сделанные цифровыми камерами, смартфонами и другими устройствами. Используйте инструменты четкости для настройки резкости, кисть выделения от руки и другие инструменты. Создайте высококачественную фотографию, которую вы себе представляли, когда делали (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2022Разработчик: © 2022 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B6248A74C7B623A48204772C8C2A23E5B22CEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 255746   (352437) от 09.11.2010
+
+Голубой Торнадо / Blue Tornado (1991) VHSRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие начинается на базе ВВС НАТО в Европе. Два классных пилота-истребителя, Алекс и Филип, сталкиваются во время полета с огромным светящимся шаром. Оба ослеплены - Филип врезается в гору, а Алекс чудом остается в живых, вытягивая самолет. Никто не верит в рассказ об НЛО, и парня отправляют в бессрочный отпуск. С помощью симпатичной специалистки-уфолога, Алекс (   Читать дальше...   )Жанр: Фантастика, Боевик, ТриллерРежиссер: Антонио Бидо / Antonio BidoАктеры: Дерк Бенедикт / Dirk Benedict,  Тед МакГинли / Ted McGinley,  Пэтси Кенсит / Patsy Kensit,  Дэвид Уорнер / David Warner  и другие...Перевод: Одноголосый закадровыйЯзык субтитров: голландияПродолжительность: 01:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3EECE8B238CEBB2FBE54CB669AA7DEE817E461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577912   (352436) от 20.09.2022
+
+Стэнли Эллин | Двенадцатая статуя (2022) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352436.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Чрезвычайно жадный и падкий на молоденьких девочек режиссер снимает свое очередное проходное творение. Незадолго до завершения съемок режиссер таинственно исчезает прямо на съемочной площадке. Расследование заходит в тупик." (с)Жанр: ДетективПродолжительность: 01:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474066E9099906F93EF5ED9D5AFBE1396CE3CFED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577818   (352435) от 20.09.2022
+
+Sandboxie 5.58.4 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350029.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352435.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DDD5CFE9DA243429F001C94D9D047E684960B93
+magnet:?xt=urn:btih:4EE76DE904BAB618A57C4EB57374A449E8CB4CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577695   (352433) от 20.09.2022
+
+Trotsky Experience Band - Nine (9) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Skies
+02. Well Alright
+03. Big Boy Now
+04. Sonny Boy Blow(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA90692CB4492B40F34FF41B4D514FD8FE88C3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577856   (352432) от 20.09.2022
+
+Clipboard Manager 2.3.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менеджер истории буфера обмена для Mac.
+Сохраняет все, что вы копируете для последующего использования.
+Утилита позволяет: вставить или удалить контент с помощью жестов,  вставить содержимое прямо в текущее приложение, вставить текст с форматом или без него,  вставить последний контент по ярлыкам Cmd + 1 .. Cmd + 9. вставить, удалить  большое количество содержимого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2022Разработчик: © 2016-2022 Jan ValtaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E98EAE6A24B39A25ABA0261306C83BB1CB4C61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577924   (352431) от 20.09.2022
+
+Firefox Browser 105.0 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045BC434F099A9FE930BB3896F8DD25D46CA0AFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

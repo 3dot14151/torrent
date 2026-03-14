@@ -1,3 +1,32 @@
+###  Публикация: 926173   (535579) от 09.08.2015
+
+VA - Love Lounge - Hooki-Sonic Recordings (2015) [MP3|320 кб/с]<Downtempo, Deep House, Soulful>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Shake That Thing 06:55
+02. King Hookiss - After Midnight (Chillout Mix) 08:00
+03. Ladamar - Loverbreak (Radio Edit) 06:54
+04. Trillian - Colour Me Sexy 06:30(   Читать дальше...   )Жанр: Downtempo, Deep House, SoulfulПродолжительность: 08:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B762FB535DA17D06BD71952C886F1DA001F0C233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557687   (535540) от 18.06.2022
 
 VA - Music News vol.195 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -739,35 +768,6 @@ VA - Summer Breeze (2015) [MP3|320 кб/с]<Vocal, Euro, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D03571B5A491793B2FA5AB4C9EBDD3402C4EA660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927187   (529724) от 12.08.2015
-
-VA - Best Of Eurodance (2015) [MP3|224 - 320 кб/с]<Eurodance, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E-Type - Russian Lullaby
-02. Minnesota - What's Up (12' Dance Mix)
-03. C-Block - So Strong Out
-04. Don't Y Girl - Easy Love(   Читать дальше...   )Жанр: Eurodance, DanceПродолжительность: 06:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B619F4C08C68645FE9BF025E1AE5F790195BB7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

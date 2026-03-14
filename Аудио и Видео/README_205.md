@@ -1,3 +1,32 @@
+###  Публикация: 1073990   (342377) от 17.11.2016
+
+Paul McCartney - Pure McCartney (2016) Deluxe Edition [AAC|256 Kbps|WEB-DL ]<Rock, Classic Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пол Маккартни выпустил новый сборник хитов под названием “Pure McCartney”. Новая компиляция посвящена творчеству сэра Пола, от первого альбома McCartney (1970) до трека Hope For The Future из видеоигры Destiny 2014 года. Интересно, что компиляция выйдет в нескольких вариантах: 2 CD, 4 CD, 4 винила и в цифровом виде. 'Возможно, это для того, чтобы получать удовольствие (   Читать дальше...   )01. Maybe I'm Amazed (3:52)
+ 02. Heart of the Country (2:25)
+ 03. Jet (4:10)
+ 04. Warm and Beautiful (3:14)(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 04:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DD4877C7DBB60189E6F48AAFCED14A63408F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180150   (342079) от 03.11.2017
 
 Не твоё тело / Moglie e marito (2017) WEB-DLRip [576p] iPad
@@ -648,35 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:355504B5943FBD5B8863BE600FF8B847CC88DB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419656   (337818) от 29.10.2020
-
-VA - Peephole In My Brain: The British Progressive Pop Sound Of 1971 (2020) [AAC|~329 Kbps] <Pop, Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337818.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Dana Gillespie - Andy Warhol (1971 Promo Version) (2:45)
-1.02. Corn & Seed Merchants - Mr Middleton's Lament (2:31)
-1.03. Curved Air - Back Street Luv (3:37)
-1.04. Procol Harum - Memorial Drive (3:46)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3287D6797A8ED380725BBF90FA4BE0955A857B7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

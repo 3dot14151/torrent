@@ -1,3 +1,148 @@
+###  Публикация: 1663352   (186869) от 21.09.2023
+
+Mitski - The Land Is Inhospitable And So Are We (2023) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bug Like an Angel (03:32)
+02. Buffalo Replaced (02:40)
+03. Heaven (03:44)
+04. I Don't Like My Mind (02:25)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C59D209373C74F32087212D597A1CD864DDE48E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591804   (186761) от 19.11.2022
+
+Michael Jackson - Thriller 40 (2022) 40th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin'
+02. Baby Be Mine
+03. The Girl Is Mine
+04. Thriller(   Читать дальше...   )Жанр: PopПродолжительность: 02:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81F0A5DB0FCABABE0D6FAD3F8916917F5847720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591510   (186744) от 19.11.2022
+
+Secret Service - Secret Mission (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Mission (3:34)
+ 02. How Can I Get over You (4:05)
+ 03. You Stole My Heart (ft. Clara-Corina) (3:44)
+ 04. Jane (3:10)(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B047EE9170467299C26548ED89F91FBAEEE5717F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663510   (186548) от 22.09.2023
+
+Kylie Minogue - Tension (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Padam Padam (2:46)
+02. Hold On To Now (3:58)
+03. Things We Do For Love (3:10)
+04. Tension (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3382E4ADD0F6256B377591A4DF816361710FEEB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663801   (186434) от 23.09.2023
+
+Anastacia - Our Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best Days
+02. Now or Never
+03. Beautiful
+04. Still Loving You(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A53B1CA06606FC69F15AFCF28CA4FA83B469F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591814   (185417) от 20.11.2022
 
 Tokio Hotel - 2001 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
@@ -600,151 +745,6 @@ Dorian Electra - Fanfare (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A26BDD0227A884983B5CAC32086AD8B2C412C2C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422057   (177507) от 05.12.2020
-
-Екатерина Бужинская - 4 Альбома (1998 - 2012) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Як у нас на Україні
-02. Духмяна ніч
-03. Суха тополя ( дует с Олегом Шаком )
-04. Червона ружа(   Читать дальше...   )Жанр: PopПродолжительность: 04:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C91683BF97A95EA406F5022928817E912154FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667206   (177487) от 07.10.2023
-
-Olivia Newton-John - Just The Two Of Us: The Duets Collection (Vol. 2) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dare To Dream [00:04:58]
-02. Everybody's Someone [00:03:46]
-03. Rest Your Love On Me [00:05:00]
-04. Wishin' And Hopin' [00:03:05](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AEE9D84E62673C84E814A9706F95A511F8A0AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595279   (176123) от 04.12.2022
-
-VA - Ultimate Party Classics Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Unholy (2:36)
-02. OneRepublic - I Ain't Worried (2:28)
-03. The Weeknd - Blinding Lights (3:21)
-04. Post Malone - I Like You (A Happier Song) (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 03:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C047BEF4B7F008F7B9D2C58B785AE04446EF78C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429425   (175934) от 07.12.2020
-
-VA - Chilled Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devon Seyward - Flume (3:01)
-02. Thom Cooper - The Only Living Boy in New York (4:01)
-03. Joanie Loves Chachi - No Surprises (3:06)
-04. OJ Austen - Good Riddance (Time of Your Life) (2:01)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F699160A838D2B2CA477A47C484894F0008B465B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595395   (175469) от 05.12.2022
-
-VA - If You Love Her - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forest Blakk - If You Love Her (Acoustic) (3:41)
-02. Cody Simpson - La Da Dee (Acoustic Version) (3:34)
-03. Ed Sheeran - Where We Land (3:03)
-04. James Blunt - Unstoppable (Acoustic) (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 02:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31DE28F3F28EF1BBB14EFC8BFFA32A402CB1A3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

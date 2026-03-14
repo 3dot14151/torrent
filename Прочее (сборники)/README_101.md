@@ -1,3 +1,32 @@
+###  Публикация: 931227   (512667) от 25.08.2015
+
+VA - Зайцев нет. Лучшие новинки августа (2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512667.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Varien feat. Veela - Supercell (03:35)
+002. Chris Lake & Anna Lunoe - Stomper (03:34)
+003. Tchami feat. AC Slater & Kaleem Taylo - Missing You (05:14)
+004. Koven - From The Start (04:30)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 04:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1088B4FCD4F641522D6543E9BC2556DD7191BEC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 537260   (511271) от 21.08.2012
 
 VA Радио 7. Tоп 100 (2011) [MP3|320 кб/с]<Pop, Rock, Jazz>
@@ -762,41 +791,6 @@ VA - I love Electro Music vol.1 (2012) [MP3|320 кб/с]<Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:219D00CEBE765877F2C61AE83A1FA479D6D1A31C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540060   (504818) от 28.08.2012
-
-VA - Сборник медленных хитов Vol.11 (2012) [MP3|320 кб/с]<Pop, Rock, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Red Blooded Women
-02. Natasha St-Pier - Je Te Souhaite
-03. Chris De Burgh - Love Of The Heart Divine
-04. Tony Joe White - Cold Fingers
-05. Patricia Kaas - Je Te Dis Vous
-06. Alanis Morissette - Hands Clean
-07. Jai - I Love You(Human)
-08. Despina Vandi - Ime Ego
-09. Anggun - Je Partirai
-10. Eros Ramazzotti - L'Uomo Che Guardava Le Nuvole(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 06:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5314AED9A880E6D3B6300E2B8E0360082DC49A
 ```
 
 https://mybot314.ru/tekegram_catalog/

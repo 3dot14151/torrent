@@ -1,3 +1,90 @@
+###  Публикация: 1201560   (792231) от 25.01.2018
+
+Elsie Bianchi - Fly Me To The Moon (1960 - 1962) 2011, Sonorama [FLAC|Lossless|image + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Remember Clifford [05:00]
+02. Hot Dig a Dee [04:38]
+03. No Moon at All [02:51]
+04. Paradise [03:10](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4F7C9A46FBBC98E379D0DD0188211F3BD8BDEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201550   (792230) от 25.01.2018
+
+Caterina Valente In London (1963) 2004, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Fly with Me [02:48]
+02. My Funny Valentine [02:58]
+03. I've Got You Under My Skin [02:54]
+04. Never Will I Marry [02:37](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C3E50C2AE1AABFC9E67E2DFE864F15CC019342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510091   (792209) от 15.11.2021
+
+Steve Tyrell - This Time Of The Year (2002) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Claus Is Coming to Town [2:10]
+02. Winter Wonderland [2:44]
+03. Rudolph the Red-Nosed Reindeer (feat. Clark Terry) [3:16]
+04. The Christmas Song [4:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185A7907A4C083773FCB99B91F1842906043C474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510084   (792207) от 15.11.2021
 
 Art Farmer - Silk Road (1997) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -658,93 +745,6 @@ Peter Weniger - Point of Departure (2014) 2016, Skip Records [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34F023448844D7FE513217E514CFFAFA1ACEEB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202245   (790538) от 28.01.2018
-
-VA - The Story Of Bossa Nova (2000) [FLAC|Lossless|tracks + .cue] <Самба, Джаз>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leila Pinheiro - Chega De Saudade [2:36]
-02. Marcos Valle - Samba De Verao [2:30]
-03. Pery Ribeiro - Garota De Ipanema [2:13]
-04. Joyce With Gilson Peranzzetta - Corcovado [3:38](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5867374473C11AE564C56409D4EE8BAB74CCB910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202154   (790532) от 28.01.2018
-
-Kazumi Watanabe - Guitar Renaissance V (2012) [FLAC|Lossless|image + .cue] <Jazz, New Age, Guitar>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Jude (6:19)
-02. Fly Me To The Moon (5:34)
-03. Going Home (6:10)
-04. Menuetii (3:51)(   Читать дальше...   )Жанр: Jazz, New Age, GuitarПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19BB2222E71DE937AF8008F4FE6B3D631B0720B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275452   (790524) от 11.01.2019
-
-Jimmie Noone - 1930 - 1934 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You're Smiling [2:49]
-02. I Lost My Gal From Memphis [2:27]
-03. On Revival Day [2:34]
-04. I'm Drifting Back To Dreamland [2:45](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4793E3A5CCF7B4DE4DAAEDE171FC7E7C6AF02A31
 ```
 
 https://mybot314.ru/tekegram_catalog/

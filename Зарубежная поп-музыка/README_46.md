@@ -1,3 +1,61 @@
+###  Публикация: 1241883   (516118) от 21.08.2018
+
+VA - Classic Pop - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516118.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. ABC - The Look Of Love
+02. Madness - Baggy Trousers
+03. Culture Club - Karma Chameleon(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A0B396E18FF3421E7280E199FE53D83B84524C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561342   (515523) от 04.07.2022
+
+VA - 80's Hits (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tina Turner - What's Love Got to Do with It (3:50)
+02. Limahl - Never Ending Story (3:30)
+03. a-ha - Take On Me (3:48)
+04. Narada Michael Walden - Gimme Gimme Gimme (feat. Patti Austin) (4:41)(   Читать дальше...   )Жанр: PopПродолжительность: 03:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6386887EE340DAA7EA906A9802034F17B488DBF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930096   (515298) от 23.08.2015
 
 One Dove - Morning Dove White (1993) [MP3|256 кб/с]<Trip-Hop>
@@ -711,67 +769,6 @@ A-Ha - Cast In Steel (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFD773A6DFD4BD5E2665F227C02FF48819A1C367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317606   (500280) от 01.08.2019
-
-ABBA - Singles Collection 1972 - 1982 (1999) Box Set 27CD [MP3|320 Kbps] <Pop, Pop Rock, Disco, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редкое 27-ми дисковое коробочное издание 1999 года, содержащее все синглы, выходившие на миньонах за 10 лет истории группы.
-ABBA - мегапопулярный шведский музыкальный квартет, существовавший в 1972 - 1982 годах и названный по первым буквам имён исполнителей:
-Агнета Фэльтскуг (швед. Agnetha Ase Faltskog) - вокал (р. 5 апреля 1950, Йёнчёпинг, Швеция).
-Бьёрн Ульвеус (   Читать дальше...   )Список альбомов:
-CD1 - People Need Love 1972
-CD2 - Ring Ring 1973
-CD3 - Waterloo 1974(   Читать дальше...   )Жанр: Pop, Pop Rock, Disco, SchlagerПродолжительность: 03:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2680431E941EC7D8B70058B74C0683E942760CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935310   (499461) от 08.09.2015
-
-Phildel - The Disappearance Of The Girl (2013) [OGG| 397-475 кб/с]<Alternative Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Disappearance Of The Girl (04:08)
-02. Storm Song (03:50)
-03. Mistakes (03:04)
-04. Moonsea (04:08)(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A9431831C189AF24FECA0D45307A65F62E8DC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

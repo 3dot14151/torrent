@@ -1,3 +1,32 @@
+###  Публикация: 1110930   (850442) от 04.03.2017
+
+Guillermo Gregorio, Mats Gustafsson, Kjell Nordeson - Background Music (1998) HatOLOGY [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Vanderin' (to Ken Vandermark) [04:23]
+ 02.A Tiny Bit More (to Tiny Kahn) [17:34]
+ 03.Cannots [04:55]
+ 04.Worn a First Variation [02:11](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6828294F9AA5E8432A297137E4DB4EF332BE48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110917   (850441) от 04.03.2017
 
 Gerry Mulligan - Modern Jazz Archive (1950 - 1980) 2CD, 2004, Membran Music [APE|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -714,35 +743,6 @@ Johnny Griffin & Eddie "Lockjaw" Davis - Ow! Live at the Penthouse (1962) 2019, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB475A754C984824A60018F9E8A4C7C9EC3D8BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499673   (846322) от 03.10.2021
-
-Marcos Valle & Victor Biglione - Live In Montreal (2007) [FLAC|Lossless|tracks + .cue] <MPB>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azimuth 3:20
-02. Preciso Aprender A Ser Só 4:11
-03. Samba De Verão 4:02
-04. Terra De Ninguém 3:11(   Читать дальше...   )Жанр: MPBПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5360177E0D5B550764FB1B5C0001A8B023612F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1338093   (271646) от 13.11.2019
+
+VA - Pop Muzik - Ultimate Synth-Pop Anthems (2019) 5CD [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271646.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.M&Pop Muzik - Pop Muzik (From Priscilla Queen of the Desert) - 00:04:53
+02.New Order - Blue Monday - 00:04:05
+03.Frankie Goes To Hollywood - Relax - 00:03:54(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AB5889E93D6169E71069A2CB954F496D8EFA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337989   (271510) от 13.11.2019
+
+VA - The Hits Album: The Car Album... On The Road Again (2019) 4CD [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271510.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. George Ezra - Paradise 3:42
+02. Shawn Mendes - In My Blood 3:29
+03. Mark Ronson Feat. Bruno Mars - Uptown Funk 4:29(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 04:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C07224083F6E3F562BAC266D54879E0D824E09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189210   (271332) от 05.12.2017
 
 Future World Orchestra - Turning Point (1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
@@ -687,64 +745,6 @@ Walk the Moon - What If Nothing (2017) [MP3|320 Kbps] <Indie Pop, Indie Rock, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97A81DDE99C911469706B74536E32053CC9A84D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340149   (264238) от 22.11.2019
-
-Robbie Williams - The Christmas Present (2019) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264238.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. Winter Wonderland
-2. Merry Xmas Everybody
-3. Let It Snow! Let It Snow! Let It Snow!(   Читать дальше...   )Жанр: PopПродолжительность: 01:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86CBD15CF40FDA960A820EC9C14EE3C4DC4E28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340323   (263991) от 23.11.2019
-
-Rebel Force Band - Living In These Star Wars (1977) LP [MP3|320 Kbps] <Electronic, Novelty, Space Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living In These Star Wars (3:48)
-02. Don't Fall In Love With An Android (3:18)
-03. Leia (4:16)
-04. Chewie the Rookie Wookie (2:26)(   Читать дальше...   )Жанр: Electronic, Novelty, Space Rock, DiscoПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110FBF70B735DD382733BA6FCA14E707BB7D406D
 ```
 
 https://mybot314.ru/tekegram_catalog/

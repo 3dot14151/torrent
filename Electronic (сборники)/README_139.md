@@ -1,3 +1,32 @@
+###  Публикация: 941838   (460059) от 28.09.2015
+
+VA - Erotique Lounge (Finest Chill Out & Lounge Grooves Vol 1) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Daxter - It's Raining Inside (05:06)
+02. Michael E - Look to the Sky (06:23)
+03. Kondencuotas Pienas & Ahbee - Evolution (03:08)
+04. Mirage of Deep - Hechizo de Luna (05:32)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FB8CAD1F164E7E11F9CBC68A00ADD85549A219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568656   (459763) от 09.08.2022
 
 VA - Toolroom Killer Cuts (2022) [MP3|320 Kbps] <House, Tech House, Club>
@@ -727,35 +756,6 @@ VA - Mimicry Vol.5: Psychedelic Trance Set (2017) [MP3|320 Kbps] <Psy, Goa Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A29A367E229EC5C5339D493AB7251C8B9D697F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162584   (456908) от 02.09.2017
-
-VA - Progressive House Vol.5 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Emi Galvan - Hunter (Paul Hamilton Remix)  7:33
-02.  Christopher Fafa - 05.20 AM  6:58
-03.  Kastis Torrau & Arnas D - Take Over (Navid Mehr Remix)  7:48
-04.  Rick Pier O'neil - Haiku  6:07(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9DB877CA3D115CA7F82B04125EF3F9E9CB7E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

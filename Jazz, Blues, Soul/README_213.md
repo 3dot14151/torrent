@@ -1,3 +1,177 @@
+###  Публикация: 1229928   (620971) от 09.06.2018
+
+Blue Mitchel - Blue Mitchel (1971) 2014, Boplicity Records [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Village [6:15]
+02. Blues For Thelma [7:05]
+03. Queen Bey [4:50]
+04. Are You Real [7:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281F9F46C7370FAA927E1A8A2D74557B328EFF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229933   (620970) от 09.06.2018
+
+Andre Hodeir - Essais Par Le Jazz Groupe De Paris (1949 - 1954) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cross Criss [4:01]
+02. Paraphrase Sur Saint-Tropez [4:22]
+03. On A Standard [3:44]
+04. Esquisse I [2:39](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1341D26AC1BCC851E27501CC184F9A23BA937C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910769   (620794) от 21.06.2015
+
+Giant Jack - Giant Jack (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Town (04:09)
+02. Money Farm (05:00)
+03. Chained Up World (04:10)
+04. Sometimes (05:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FCF173C464BF5EE5AC0A6CEF47453E52E7E2FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295392   (620772) от 12.04.2019
+
+Anthony Wilson - Campo Belo (2010) Goat Hill Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Campo Belo [7:35]
+02. March to March [7:12]
+03. Edu [4:24]
+04. After the Flood [5:34](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A98E68542DA37E0DC7EB05014AAF87FED851E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295452   (620771) от 12.04.2019
+
+Bridges with Seamus Blake - Continuum (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Introduction (1:33)
+2. The Clues (5:28)
+3. Andromeda (8:22)
+4. Slightly Behind (6:19)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B66EA69A986024A009D1E8AEAF01D67CBF5EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295390   (620770) от 12.04.2019
+
+Tim Weisberg - Naked Eyes (1994) Fahrenheit Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Talkin' to You [4:32]
+02. After the Rain [5:03]
+03. Brazilian Dance [4:12]
+04. Naked Eyes [5:33](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBECA4C376B69BB7193059BA7866749C8E34BA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295306   (620768) от 12.04.2019
 
 Anne Paceo - Bright Shadows (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Fusion>
@@ -573,180 +747,6 @@ Warren Bernhardt Trio - Ain't Life Grand (1990) Digital Music Products[FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5297544F4A3D914B57AD62F62538AAB0C6B6345D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036552   (619247) от 21.07.2016
-
-VA - King & Deluxe Acetate Series: Beef Ball Baby - New Orleans R&B Sessoions (2015) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Gorman - Answer To Chubby's Bedroom Blues (2:54)
- 02. Eddie Gorman - Beef Ball Baby (2:37)
- 03. Paul Gayten & His Band, vocal Eddie Gorman - Don't Worry 'Bout Nothin' (2:44)
- 04. Eddie Gorman - Hey Now (2:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC557D818FE06563461EC5F1A93BFA1DA1D14A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036613   (619147) от 21.07.2016
-
-Larry Miller - Unfinished Business (2010) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mad Dog    04:14
-02.  As Blue As It Gets    04:13
-03.  Cruel Old World    09:21
-04.  Still Aint Done With The Blues    03:58(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C0BF063C42DF8B26EA915A900F7A6912445AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036820   (619146) от 21.07.2016
-
-VA - When the Saints Go Marching in: Jazz Greatest (2005) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название диска происходит от известнейшей композиции впервые исполненной Louis Armstrong - When The Saints Go Marching In (Когда святые маршируют). Впоследствии практически каждый джазист почитал своим долгом перепеть (и переиграть) эту, ставшую классикой, композицию. Ну и, конечно, только от одного перечисления имен тех, кто представлен на этом сборнике может у (   Читать дальше...   )01. Louis Armstrong - When The Saints Go Marching In  (3:12)
-02. Duke Ellington - The Mooche  (5:26)
-03. Benny Goodman - King Porter Stomp  (3:08)
-04. Nat King Cole - It's Only A Paper Moon  (1:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517A7391146DB05EBA9E7797CD0829796A611CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036753   (619145) от 21.07.2016
-
-The Stumble - The Other Side (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Orleans    04:43
-02. Just Stop    04:16
-03. Be My Slave    05:57
-04. Freedom Like a Woman    07:25(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF81A869B9D16098045600579E151BA2747BC7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230067   (619076) от 10.06.2018
-
-Betty Carter - Social Call (1955, 1956) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight In Vermont [3:27]
-02. Thou Swell [1:43]
-03. I Could Write a Book [2:40]
-04. Gone With the Wind [4:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE6AD531EB812118A5FDC3846603105E3C9229D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230172   (618973) от 10.06.2018
-
-Club Des Belugas - Ragbag (2018) [FLAC|Lossless|image + .cue] <Swing-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is What You Want  [05:27.64]
-02. Ragbag  [03:55.25]
-03. Tequila [04:23.26]
-04. Beyond The Window   [04:42.64](   Читать дальше...   )Жанр: Swing-JazzПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450C654BBB106C28FD66F80A21EB288F67B64F3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

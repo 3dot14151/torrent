@@ -1,3 +1,58 @@
+###  Публикация: 1288681   (694055) от 12.03.2019
+
+VA - Latino - 30 Summer Hits (2019) [MP3|320 Kbps] <Salsa, Pop, Latin Dance, Reggaeton>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Los Reggaetronics - Taki Taki
+02. Miami Beatz - Secreto
+03. Boricua Boys - Dame Tu Cosita
+04. Boricua Boys - El Bano(   Читать дальше...   )Жанр: Salsa, Pop, Latin Dance, ReggaetonПродолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C16129B40012C8D09521D9EBF462F9210F09673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 333712   (693296) от 07.05.2011
+
+Sade - The Ultimate Collection (2CD) (2011) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 02:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFA6B6F342C6C8966DAC57A423E7AAA164EAB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288952   (692221) от 13.03.2019
 
 Angel-Ho - Death Becomes Her (2019) [MP3|320 Kbps] <Pop, Electronic, Dance>
@@ -693,64 +748,6 @@ VA - Schlager Total - Die Hits aus den Discotheken 2019 DJ Dance Mixe (2019) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4FF211D33A0E3ADC7E599011103D2A854E8ED08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222790   (681083) от 01.05.2018
-
-VA - Mallorca Megaparty 2018 - Die WM Party! (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stadionrocker - Los gehts
-02. Finn mit ohne Sinn - Party ohne Alkohol
-03. Kristina Martin - Regenbogen
-04. Feierwut - Kampftrinken auf Mallorca(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70AD6E3074EC34918F48CA9378E434F964231AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222862   (681081) от 01.05.2018
-
-VA - Ultimate... Party Anthems (2018) 4CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Ronson Feat. Bruno Mars - Uptown Funk
-02. R. Kelly - Ignition (Remix)
-03. Meghan Trainor - All About That Bass
-04. P!nk - Get The Party Started(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B9F532DCCF7E24D2363472E5E232B422074110
 ```
 
 https://mybot314.ru/tekegram_catalog/

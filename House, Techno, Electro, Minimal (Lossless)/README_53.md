@@ -1,3 +1,90 @@
+###  Публикация: 1193683   (261994) от 22.12.2017
+
+Yuji KONDO - Faces Past (2017) 10 Label [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanishing Curvatures (06:47)
+ 02. Juniper Fox (05:35)
+ 03. Linger (05:17)
+ 04. Feigning Death (05:26)(   Читать дальше...   )Жанр: Techno, Experimental, Dub TechnoПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46AD6AD4428AFD23C37F81E4F47CF8FD1B2A4F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193585   (261990) от 22.12.2017
+
+VA - Deep Value, Vol. 2 (Mixed By Pornbugs) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Aquino - Lucid (Original Mix) [08:26]
+02. El Mundo - The Message (Original Mix) [07:31]
+03. Markus Homm - Open End (Original Mix) [06:50]
+04. Philipp Gonzales - Katana's Drums (Dave Pad Remix) [07:17](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFE897CBD8022123B506FD924F38CC257BC52E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193685   (261988) от 22.12.2017
+
+Condensed Utopia - Assioma (2017) Circular Limited [FLAC|Lossless|WEB-DL|tracks] <Techno, Drone>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Complex Alternative to Violence (05:50)
+ 02. Assioma (06:43)
+ 03. Silence Error (06:01)
+ 04. In Abcence of Light (06:27)Жанр: Techno, DroneПродолжительность: 00:25:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252E211C281CDF0F7CC35BDB0DC5E56C65D6F8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193762   (261986) от 22.12.2017
 
 VA - Alpine Grooves IX (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -674,91 +761,6 @@ Truncate & Dotdat - HYD (2021) Truncate [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A63C8BADE439F5C50A3C2AD4117131B880B8F6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634945   (242272) от 23.05.2023
-
-Mandy, Indiana - i've seen a way (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Theme (4K VHS) (3:17)
-02. DragЖанр: ElectronicПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41B3620845264354C798F0D32DC45ADB452A5DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378483   (241499) от 25.04.2020
-
-VA - Best Of Disco Balls Records 2019, Pt. 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St Jude - Nieghbourhood (6:04)
-02. Dan Aslow - Time To Rise (Discoslap Remix) (5:29)
-03. Chenandoah - Give Up On Love (Chujo's Afro Mix) (8:04)
-04. Dan Aslow - Time To Rise (Adam Sommer Discofeel Remix) (6:00)(   Читать дальше...   )Жанр: Electro, Techno, HouseПродолжительность: 02:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA5EB574BA3FD5E59CCE24BC0F6D1EDE15C7A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625757   (241487) от 11.04.2023
-
-VA - Miami Downtempo Hits 2023 [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elysir - Never Gonna Give You Up (3:36)
-02. Selma Hernandes - Prá Nunca Mais (4:00)
-03. Mantra - Saint Thomas Experience (4:07)
-04. Bamboo - Rhythm Of Life (6:24)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:341B4A61ACA8D58F601C0EA84B2C4343FABBE1AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1379085   (840968) от 28.04.2020
+
+VA - Classic 80's Pop (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Duran - Hungry Like The Wolf 3:41
+02. New Order - The Perfect Kiss (7" Edit) 4:25
+03. Spandau Ballet - Highly Strung 4:11
+04. A-Ha - Cry Wolf 4:04(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4396B1B828799663B7900F3B984F3BBA3F5232E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113019   (840123) от 10.03.2017
+
+Lunch Ladies - Down on Sunset Strip (2017) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine (04:23)
+02. You're Not There (03:19)
+03. Love Is Overrated (03:40)
+04. Sad Jeans (03:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716B333B690A15C5277D15052D6A4697B7E6A021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113066   (840098) от 10.03.2017
 
 Graham Gouldman - Animalympics (1980) LP [MP3|320 Kbps] <Electronic, Pop-Rock, Synth-pop, Disco>
@@ -685,64 +743,6 @@ VA - 12 Inch Dance: 80s Remix (2017) [MP3|320 Kbps] <Pop, Synthpop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C14B56450C3CA1E3019B06E8D88599F0DD35DD68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839122   (824150) от 27.11.2025
-
-VA - Echoes of the 1980s (2025) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arthur's Theme (Best That You Can Do) - Christopher Cross  - (03:54)
- 02. Take On Me - A-Ha  - (03:49)
- 03. St. Elmo's Fire (Man in Motion) - John Parr  - (04:12)
- 04. Into the Groove - Madonna  - (04:45)(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 04:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F5024FB44561948BC63400611541C858B53CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196777   (820743) от 04.01.2018
-
-Bebu Silvetti - 40 Exitos (2008) 2CD [MP3|320 Kbps] <Pop, Disco, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хуан Фернандо Сильветти Адорно (27 марта 1944 года — 5 июля 2003 года), более известный как Бебу Сильветти — аргентинский композитор, пианист, дирижёр, аранжировщик и музыкальный продюсер. Пик популярности Бебу Сильветти как композитора пришёлся на конец 70-х — начало 80-х годов. Как продюсер стал обладателем премии Billboard Music Awards в 2002 году и обладателем (   Читать дальше...   )01. Lluvia de primavera (5:55)
-02. Atmosfera (4:44)
-03. Fin de semana (2:30)
-04. Lluvia de cocos (3:26)(   Читать дальше...   )Жанр: Pop, Disco, Easy ListeningПродолжительность: 02:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5195FEA473F6223A80A99CCDD5261FC75A00C81A
 ```
 
 https://mybot314.ru/tekegram_catalog/

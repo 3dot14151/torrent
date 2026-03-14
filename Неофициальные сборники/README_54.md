@@ -1,3 +1,102 @@
+###  Публикация: 614130   (977372) от 08.02.2013
+
+VA - 100 Huge Hits Of The 60s & 70s (2007) 4CD BoxSet[MP3|320 кб/с]<Pop-Rock, Jazz, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Undertones - Teenage Kicks [02:27]
+02. The Regents - 7 Teen [03:25]
+03. Sham 99 - Hersham Boys [03:28]
+04. Jilted John - Jilted John [02:56]
+05. Jonathan Richman And The Modern Lovers - Roadrunner [04:07]
+06. Dave & Ansel Collins - Double Barrel [02:45]
+07. Althia & Donna - Uptown Top Ranking [03:53]
+08. Ken Boothe - Everything I Own [03:47]
+09. Nicky Thomas - Love Of The Common People [02:20]
+10. Bob And Marcia - Young, Gifted And Black [03:10](   Читать дальше...   )Жанр: Pop-Rock, Jazz, RockПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4A70E625E00AE7FB1A05EE0876EC26F42C17ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615363   (977177) от 08.02.2013
+
+VA - Romantic Blues Collection (2013) [MP3|320 кб/с]<Pop,Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dana Gillespie - Where Blue Begins
+ 02. Oscar Benton - Bensonhurst Blues
+ 03. Paul Mauriat - El Condor Pasa
+ 04. Cesaria Evora - Bessame Mucho
+ 05. Snowy White - I Loved Another Woman
+ 06. Tina Turner - Easy as life
+ 07. Sam Brown - Stop
+ 08. Chris Rea - Looking For The Summer
+ 09. Vaya Con Dios - Forever blue
+ 10. Tony Joe White - Cold Fingers(   Читать дальше...   )Жанр: Pop,BluesПродолжительность: 01:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFB5F16B232B2342F186D30E9DFD31B70D8BFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974429   (976969) от 11.01.2016
+
+VA - Sunrise Avenue, Vol. 7 (20 Lounge & Chill-Out Pearls) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glenn Edwads - Pure Water (Ibiza Sunset Mix) (04:30)
+02. Brian Connors - Tropical Sunset (04:08)
+03. Gore Fontaine - Hindu Love (03:25)
+04. Jason Chambers - Black Horse (03:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89430474FCB206AF785D8A771F7CCBA9123A4936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974499   (976946) от 11.01.2016
 
 VA - Coming Home - Pop Lounge Music Deluxe (2015) [MP3|320 кб/с] <Lounge, Easy Listening>
@@ -709,93 +808,6 @@ VA - Tech House Masters Fresh (2016) [MP3|259-320 кб/с] <Deep House, Minimal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:788651B60DB6BD1DCFED4C1B544205ADA6E90903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974180   (975800) от 12.01.2016
-
-VA - EdShar Music (10.01.16) [MP3|128-320 kbps]<DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliverse - Wormholes (03:20)
-02. Jarvis & Roughmath - Time (feat. Ivy J) (04:21)
-03. BH & Kirk Cosier - Slipping Away (feat. Cheney) (03:49)
-04. Tristam - My Friend (04:22)(   Читать дальше...   )Жанр: DubStepПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57142A50E04C73342F4F18A67B6AD557340207ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974810   (975795) от 12.01.2016
-
-VA - Alive Strong Best Of Hits (2016) [MP3|262-320 кб/с] <Electro, Club, Bigroom, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canberra - Rebirth
-02. Exis - Manifestation (Original Mix)
-03. The Fish House - Venture (Original Mix)
-04. Fedde Le Grand - The Noise (Original Mix)(   Читать дальше...   )Жанр: Electro, Club, Bigroom, Future HouseПродолжительность: 03:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0A06BF10E41F279A8A5C4F16C1AD5B83AB4975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974545   (975732) от 12.01.2016
-
-VA - Белая вьюга (2015) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975732.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Альбах Юлия и Мазур Дмитрий — Белая вьюга
-002. Андреев Сергей — Женщина кошка
-003. Волошин Валерий — Тапер
-004. Крестный Вадим — Не уходи(   Читать дальше...   )Жанр: ШансонПродолжительность: 09:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D83A01FF671A5A6CFD823B826A5A12BF4CC129F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1029927   (676678) от 29.06.2016
+
+Tim Bowman - Tim Bowman (2008) [FLAC|Lossless|image + .cue] <Smooth Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Sundays (03:45)
+02. High Def (04:54)
+03. For You, My Love (04:02)
+04. Motor City Shuffle (04:13)(   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EDA8ABE2F8838A821850F041024FD57519871D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290753   (676598) от 21.03.2019
+
+Bo Kaspers Orkester - Hittills (1999) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svart att saga nej (3:25)
+02. Ett & noll (4:08)
+03. Allt ljus pa mig (4:12)
+04. Det gar en man omkring i mina skor (2:38)(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47A6A1306CDA4EBD9C6B6A0CEA64CB3549BE636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029975   (676408) от 29.06.2016
+
+Tim Bowman - Smile (2000) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart & Soul [04:34]
+02. Smile [04:13]
+03. Happiness Is [05:06]
+04. Wanda Patrice [03:50](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C6DBC66B4186AF7A23DED349D1B35755F0AEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509267   (676356) от 11.06.2012
+
+VA - The Best Of Blues - Величайшие мировые хиты (2000) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_676356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01..  Etta James -  I'd Rather Go Blind  (2:37)
+02..  Aretha Franklin -  Today I Sing The Blues  (2:48)
+03..  T-Bone Walker -  That Evening Train  (3:06)
+04..  Junior Wells -  Use Me  (5:18)
+05..  Charlie Musselwhite -  Trouble No More  (3:43)
+06..  Fenton Robinson -  Somebody Loan Me A Dime  (4:23)
+07..  The Mighty Houserockers -  Madison Blues  (3:32)
+08..  Tommy Tacker -  Drunk  (3:18)
+09..  Billy Boy Arnold & Tony McPhee -  Don't Stay Out All Night  (3:17)
+10..  Carey Bell& Willie Williams -  You Went Away Baby  (4:13)(   Читать дальше...   )2000Жанр: BluesПродолжительность: 02:16:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290690   (676326) от 21.03.2019
+
+VA - Bossa Nova for a Summer Day (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rien que je changerais - Papik, Francesca Gramegna 04:06
+02 Dawn Pye - Hammond Express 05:48
+03 How High the Moon - Ida Landsberg, Marco guidolotti, Domenico Sanna, Simone Salvatore, Dario Rosciglione, Andrea Nunzi 03:40
+04 I Guess I'll Have to Change My Plan - Christian Lisi, Swingin' Cats Jazz Quartet 03:42(   Читать дальше...   )Жанр: Jazz, Latin, LoungeПродолжительность: 01:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7DA7F8D1094F400F64C2B550F568CA92D72A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839176   (676064) от 27.11.2025
+
+Antone's 50th Allstars - Tell Me One More Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_676064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lou Ann Barton - Sugar Coated Love (3:42)
+02.  Snooky Pryor - I’m So Glad (4:04)
+03.  Angela Strehli - It Hurts Me, Too (3:12)
+04.  Lazy Lester - No Special Rider (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B351724419BD788EF91C04C9F2C7598A8240F504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839177   (676063) от 27.11.2025
 
 Asphalt Vultures - Open Mystery (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -577,180 +757,6 @@ Lars Gullin - Silhouette, Vol.7 (1951 - 1953) 2005, Dragon Records [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3DFCD0BA38EC924B2CB91F0432F82DD9F342CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290789   (674454) от 22.03.2019
-
-Marie Bergman - Fruit (1996) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down with Love [1:36]
-02. Wish Someone Would Care [4:24]
-03. Let Me Be the First to Know [5:42]
-04. Crazy He Calls Me [5:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC403A31230ACD5866794FD08749657612258646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029938   (674420) от 30.06.2016
-
-Laurence Jones - Take Me High (2016) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got No Place To Go
-02. Something's Changed
-03. Live It Up
-04. Addicted To Your Love(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4432A90A33B9AF0A6AB49163A191F9F0D7E2D7E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290856   (674343) от 22.03.2019
-
-Nick Waterhouse - Nick Waterhouse (2019) [FLAC|Lossless|tracks + .cue] <Blues, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By Heart (04:03)
-02. Song for Winners (03:00)
-03. I Feel an Urge Coming On (03:20)
-04. Undedicated (04:08)(   Читать дальше...   )Жанр: Blues, Soul, FunkПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37867734EA21DBCA7EFEE9EF3EE1E476CCDEE45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290851   (674327) от 22.03.2019
-
-Gary Hoey - Neon Highway Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674327.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Under The Rug (feat. Eric Gales)
-2. Mercy Of Love (feat. Josh Smith)
-3. Your Kind Of Love
-4. Don't Come Crying (feat. Ian Hoey)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529B8692BF93BB688F66F7F0862D685F4992177C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223511   (673481) от 05.05.2018
-
-Chick Corea - Expressions (1994) JRP Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lush Life [06:33]
-02. This Nearly Was Mine [03:37]
-03. It Could Happen to You [03:41]
-04. MyShip [03:23](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BBC95D7B5CBE9500FE0457C8F8A1D9BEA379C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223503   (673417) от 05.05.2018
-
-Bill Wyman's Rhythm Kings (Bill Wyman) - Monkey Grip (1974) Rolling Stones Records [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bill Wyman, настоящее имя William George Perks - британский бас - гитарист, участник группы Rolling Stones с момента её создания в 1962 до 1993 года. С 1997 года выступает с собственной группой Bill Wyman’s Rhythm Kings. В детстве он пел в церковном хоре, играл на аккордеоне.Купив гитару он решил попробовать себя в группе. Но, слоняясь по дискотекам, приметил, что (   Читать дальше...   )01. I Wanna Get A Gun 5:00
-02. Crazy Woman 2:44
-03. pussy 2:12
-04. Mighty fine time 3:39(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937BD2DDA0BCE8C3FDFE8F688E9AC31FA2F22AE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

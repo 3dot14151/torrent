@@ -1,3 +1,90 @@
+###  Публикация: 1474200   (1013208) от 01.06.2021
+
+VA - All Out 70s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013208.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Natalie Cole - This Will Be (An Everlasting Love) (2:52)
+002. Carpenters - Please Mr. Postman (2:49)
+003. Neil Sedaka - Laughter In The Rain (3:06)
+004. Bob Seger - Still The Same (3:22)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 09:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9AB96E765D0FF245A814672397D17B39076B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474476   (1012902) от 03.06.2021
+
+VA - The End: Apocalypse Sound (2021) [MP3|320 Kbps] <Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012902.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Quill - Keep On Moving
+002. Bloodmores - Too Close To The Sun
+003. Cro-Mags - Crofusion
+004. John Diva & The Rockets Of Love - Karmageddon(   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 11:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00873DFD934B8498842522835C33D6F77DA8B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474666   (1012873) от 03.06.2021
+
+VA - Music News vol.105 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012873.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elsa - Падали (03:02)
+ 002. Agatino Romero & Van Herpen & Life of Kai - We Need Time (02:23)
+ 003. Aleks Ataman & Finik.Finya - У Мамы Хулиганы (03:17)
+ 004. Amelia Martin - Play Forever (03:09)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB46373D8090DCBF47994C08146409F5DAA3AD0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474514   (1012851) от 03.06.2021
 
 VA - All Out 90s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
@@ -658,93 +745,6 @@ VA - Inter Galactic: Synth Electronic Mixtape (2021) [MP3|320 Kbps] <Synthetic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BEAAE1D73605036FD3E6300A7F08E084FFCC391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475851   (1012011) от 09.06.2021
-
-VA - Chill House: Electro Sound Pack #294 (2021) [MP3|320 Kbps] <Chill, Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012011.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mansionair - Astronaut
-002. Turu Anasi - Baabaa
-003. Dennis Lloyd - Nevermind
-004. Luka Sambe - Fry Dimension(   Читать дальше...   )Жанр: Chill, Deep House, ElectroПродолжительность: 08:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A749AD2810F56032FD78156034ED6ECD6B8BFC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475952   (1011972) от 09.06.2021
-
-VA - Evrybody Clap: Disco Party (Vol.03) (2021) [MP3|320 Kbps] <Disco, Dance, Remixes>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011972.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michael Rimini - Walking In The Sky
-002. Love Doves - Drive
-003. Jaime Lynn - You Aint Got No Money
-004. Rudy's Midnight Machine - Shy Smile(   Читать дальше...   )Жанр: Disco, Dance, RemixesПродолжительность: 09:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2609347332D944C036D7D114A539AC97693594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476441   (1011642) от 11.06.2021
-
-VA - Music News vol.107 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011642.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Наргиз - Зачем Ты Так (04:12)
- 002. Agunda feat. Тайпан - Битмейкер (02:09)
- 003. AKTRU - Влюбился (02:39)
- 004. Alan Walker & Imanbek - Sweet Dreams (02:19)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4272B821BD6146C0604405529DBDCF739230D958
 ```
 
 https://mybot314.ru/tekegram_catalog/

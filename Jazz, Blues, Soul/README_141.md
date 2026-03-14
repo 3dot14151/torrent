@@ -1,3 +1,177 @@
+###  Публикация: 1014343   (776526) от 07.05.2016
+
+Dan Patlansky - Introvertigo (2016) [MP3|320 кб/с] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776526.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Run
+2. Poor Old John
+3. Sonova Faith
+4. Loosen Up The Grip(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A8539145646BB119C9ACE2839D0559C1AD031B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212169   (776516) от 10.03.2018
+
+Mick Abrahams (Мик Абрахамс) - Mick's Back (1996) Indigo Delux Records [MP3|320 Kbps] <Blues Rock, Rock, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мик Абрахамс (англ. Michael Timothy 'Mick' Abrahams; 7 апреля 1943, Лутон, Бедфордшир, Англия) — британский гитарист, участник оригинального состава группы Jethro Tull. В 1968 году Абрахамс вместе с группой Jethro Tull записал альбом This Was. Вскоре после выхода этого альбома Мик был вынужден покинуть группу, ввиду конфликтов, возникших у него с Йеном Андерсоном (   Читать дальше...   )01. The Rivers Invitation 3:32
+02. Bad Feeling 3:46
+03. Cold Women With Warm Hearts 3:26
+04. Time To Love 5:01(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6305F4E0EE3B173B7DC5CA1ABC53445F8F98E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212124   (776513) от 10.03.2018
+
+Mick Abrahams (Мик Абрахамс) - Mick Abrahams (1971) A&M Records [MP3|320 Kbps] <Blues Rock, Classic Rock, Prog Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мик Абрахамс (англ. Michael Timothy 'Mick' Abrahams; 7 апреля 1943, Лутон, Бедфордшир, Англия) — британский гитарист, участник оригинального состава группы Jethro Tull. В 1968 году Абрахамс вместе с группой Jethro Tull записал альбом This Was. Вскоре после выхода этого альбома Мик был вынужден покинуть группу, ввиду конфликтов, возникших у него с Йеном Андерсоном (   Читать дальше...   )01. Greyhound Bus 4:48
+02. Awake 8:46
+03. Wind Of Change 4:46
+04. Why Do You Do Me This Way 3:26(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Prog RockПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B6E76FA7F8B03AA5A119234EF3FC24D28E6A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014419   (776487) от 07.05.2016
+
+VA - Blind Pig Presents: Night Time Blues (2016) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tommy Castro - The Crossanova (2:38)
+02. Arthur Adams - Backup Man (3:45)
+03. Billy Branch & The Sons Of Blues - Song For My Mother (5:21)
+04. Albert Cummings - Blues Makes Me Feel So Good (3:18)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50CAF531EB29910CF07576D872988594E49F65F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212082   (776476) от 10.03.2018
+
+Astrud Gilberto & Walter Wanderley - A Certain Smile A Certain Sadness (1966) 2008, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Certain Smile [01:29]
+02. A Certain Sadness [03:11]
+03. Nega Do Cabelo Duro [02:21]
+04. So Nice (Summer Samba) [02:42](   Читать дальше...   )Жанр: Vocal Jazz, Latin Jazz, Bossa NovaПродолжительность: 00:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E98F8278DA007642054ACA9139D8408A1E0E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014459   (776179) от 08.05.2016
+
+Donald Harrison & Ron Carter, Billy Cobham - Heroes (2004) [APE|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heroes
+02. Blues for the new millennium
+03. My Funny Valentine
+04. One Of A Kind(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32571FF27524BDA12DF72CDDC1041A8D30B3E14F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014536   (776151) от 08.05.2016
 
 Pat Metheny - The Unity Sessions (2016) [FLAC|Lossless|tracks] <Jazz, Experimental, Fusion>
@@ -570,180 +744,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D545C53983D62F142B0E00E33B1A9322D7C62CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212618   (775124) от 13.03.2018
-
-Blue Haze - Hard Times (2018) FLAC|Lossless|WEB-DL|tracks <Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Times (2:55)
-02. I'm Ready To Ride On (4:54)
-03. Long Autumn Blues (5:36)
-04. Out On The Road (3:49)(   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF90DB6543D07357F2CA3ED015543615C7F3A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212698   (775114) от 13.03.2018
-
-Stevie Wonder - Live In London (2017) [MP3|320 Kbps] <Funk, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master Blaster (3:37)
-02. Higher Ground (3:58)
-03. Sensuous Whisper (5:27)
-04. My Cheri Amor (2:57)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB76C1464AD0357F8C947E1B93C3491FA38217D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277938   (775087) от 22.01.2019
-
-Bo Ramsey - Stranger Blues (2007) [FLAC|Lossless|tracks + .cue] <Delta Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Blues (5:08)
- 02. Hate To See You Go (3:01)
- 03. Sitting On Top Of The World (3:58)
- 04. Jump, Baby, Jump (4:25)(   Читать дальше...   )Жанр: Delta BluesПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C07487D4A3E5278FE96A03518D37BD48E5FA8D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277935   (775005) от 22.01.2019
-
-Bo Ramsey - Fragile (2008) [FLAC|Lossless|tracks + .cue] <Delta Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Sleep (5:04)
- 02. Tell Me Now (3:47)
- 03. Away (1:19)
- 04. Dreamland (4:14)(   Читать дальше...   )Жанр: Delta BluesПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C2D2FE4F9ED0FA3FA424F134C3518BA81E6730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015416   (774995) от 10.05.2016
-
-Curtis Fuller - Four On The Outside (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Four On The Outside [04:55]
- 02.Suite Kathy [13:05]
- 03.Hello Young Lovers [05:12]
- 04.Little Dreams [07:50](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9F25541F2A336606429D5259A67324E3847188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278052   (774409) от 23.01.2019
-
-Ari Brown - Ultimate Frontier (1996) Delmark [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big V [5:15]
-02. Lester Bowie's Gumbo Stew [10:37]
-03. One for Luba [10:30]
-04. Meeting Time [6:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D767C89CC862763FAE20F1B3D2D5DC34C57BBC20
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 961547   (297105) от 03.12.2015
+
+NBA 2K13 Soundtrack (2012) [MP3|256-320 кб/с]<OST/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hours - All in the Jungle (04:36)
+02. Too Short - Blow The Whistle (02:43)
+03. Eric B And Rakim - I Ain't No Joke (03:53)
+04. Phoenix - 1901 (03:13)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59726F944B72508C5A2BDD27B91DC86682DCAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961349   (297104) от 03.12.2015
+
+NBA 2K10 Soundtrack (2009) [MP3|256-320 кб/с]<OST/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace Hood - Top Of The World (03:30)
+02. Adam Tensta - My Cool (03:47)
+03. Akala - The Edge (03:15)
+04. Chali 2na - International (feat. Beenie Man) (03:31)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106A58741C90BEB16FC1653D7A180FD6A025C0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961545   (297100) от 03.12.2015
+
+NBA 2K11 Soundtrack (2010) [MP3|128-320 кб/с]<OST/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Boi - Shutterbugg (Feat. Cutty) (03:35)
+02. Drake - Over (03:53)
+03. Ron Artest - Champions (04:13)
+04. KIDZ IN SPACE - 'Downtime' (03:31)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F840F2A98F1A0BC227BF4E64C5C7D727E37BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333846   (296914) от 28.10.2019
+
+Tron Syversen - Piano Poems (2009) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Closer (4:02)
+02. Flow of Life (9:09)
+03. Love Song (6:07)
+04. You and Me Forever (5:50)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16A0134B501CBBD7428E769096345AA4AEAEC23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262236   (296865) от 14.11.2018
+
+Dark Life Note - Feelings (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Anxiety and Confusion
+02 Can't Hide
+03 Floating Clouds
+04 No Words(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47C0C063DD04A4D751A9921EF82F25E2BEE9439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960388   (296796) от 03.12.2015
 
 Бряц-Band - 2 альбома (2005-2008) [MP3|320 кб/с]<Folk, Rock, Instrumental>
@@ -597,151 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262618   (293331) от 16.11.2018
-
-Chilly Gonzales - Solo Piano (2004) [FLAC|Lossless|image + .cue] <Instrumental, Piano, Modern Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будучи ребенком, канадец Джейсон Бек (Jason Beck), более известный как Чилли Гонзалес (Chilly Gonzales), мечтал стать музыкальным Доктором Зло: литавры и духовые достаются супергероям, так почему бы не попрактиковать супертеррор на обычном, негеройском, инструменте? Первым было фортепьяно, затем гитара, барабаны, саксофон, скрипка… диджейский пульт, микрофоны, лэптоп. (   Читать дальше...   )01. Gogol (2:03)
-02. Manifesto (3:08)
-03. Overnight (3:23)
-04. Bermuda Triangle (1:34)(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7B70470F00236D6C4124EB7919D53655D8C147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262668   (293330) от 16.11.2018
-
-Chilly Gonzales - Solo Piano II (2012) [FLAC|Lossless|image + .cue] <Instrumental, Piano, Modern Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293330.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Solo Piano II» (продолжение не менее великолепной пластинки «Solo Piano») есть, пожалуй, лучшая манифестация гонзалесовского, извините, гения. Собственно говоря, это фортепианная музыка. Очень негромкая. Очень точно записанная — так, что слышно, как пальцы прикасаются к клавишам и как человек тихо вздыхает в паузах. Очень тонко придуманная — так что романтические (   Читать дальше...   )01. White Keys
-02. Kenaston
-03. Minor Fantasy
-04. Escher(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB709481DBAAF57D625777542B0DC26AA95FEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262763   (293326) от 16.11.2018
-
-Glen Campbell - Sings For The King (2018) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Call On Him
-02. Easy Come, Easy Go
-03. Any Old Time
-04. Anyone Can Play (Rock Version)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2CE294F0ACF3814D391BDEFD40A52913E4BB1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262767   (293163) от 16.11.2018
-
-Byron Metcalf - Inner Rhythm Meditations Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Abient, New-Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Naturally Occuring Heart (09:22)
-02. Visions From The Sixth Sense (10:13)
-03. A Steadfast Path (09:27)
-04. Embrace Of Uncertainty (07:54)(   Читать дальше...   )Жанр: Abient, New-AgeПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7ED51CDE409ABDDABA7B1F0B7D4043A1932DEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962379   (292960) от 05.12.2015
-
-VA - Fifty Shades Of Grey (Original Motion Picture Soundtrack) (2015) Target Exclusive [FLAC|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Annie Lennox - I Put a Spell On You (Fifty Shades of Grey) [3:31]
-02.Laura Welsh - Undiscovered [2:54]
-03.The Weeknd - Earned It (Fifty Shades of Grey) [4:11]
-04.Jessie Ware - Meet Me In the Middle [5:08](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5BE5A117C9DAE876D7B22DAF700DDCE1DAC8B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

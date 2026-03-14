@@ -1,3 +1,148 @@
+###  Публикация: 573421   (377656) от 11.11.2012
+
+Сумерки. Сага. Рассвет: Часть 2 - The Twilight Saga: Breaking Dawn - Part 2 (2012)OST [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passion Pit / Where I Come From
+02. Ellie Goulding / Bittersweet
+03. Green Day / The Forgotten
+04. Feist / Fire In The Water
+05. The Boom Circuits / Everything And Nothing
+06. St. Vincent / The Antidote
+07. Pop Etc / Speak Up
+08. Iko / Heart Of Stone
+09. A Boy And His Kite / Cover Your Tracks
+10. James Vincent Mcmorrow / Ghosts(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0588CF84957C407C70AD20538C87181672A2571E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414541   (376535) от 12.10.2020
+
+David Arkenstone - David Arkenstone: The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope Springs (4:21)
+02. Midsommar Stars (3:59)
+03. Of Mischief And Magic (3:57)
+04. Oberon Sleeps (4:19)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 04:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B348A4716B759D2B31E16ABC0279AD9826E2FABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175524   (376456) от 19.10.2017
+
+Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Gate [02:07]
+02. A Wolf In Unix [01:17]
+03. The Scenic Route [01:50]
+04. First Day On the Job [01:17](   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756AF940DCCA31F94F3D32904F8AF583AA034F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415398   (376345) от 12.10.2020
+
+Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9803936CE5F4EEA93D687D3D62D42BE9CED5D3E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415397   (376341) от 12.10.2020
+
+Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5123F6ECB4719995E254054370ED545E73EFEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415399   (376176) от 12.10.2020
 
 Hans Zimmer - Themyscira (OST from Wonder Woman 1984) (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack>
@@ -598,148 +743,6 @@ VA - The Elder Scrolls (Collection Original Soundtrack) (1994-2016) [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCF6BFAFBBF8DCCB7BBEEF20AF0C364DC69ECBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255146   (368298) от 16.10.2018
-
-VA - Mannerpension Die Musik Zum Film (1996) Soundtrack [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heike Makatsch - Stand By Your Man (02:53)
-02. Detlef Petersen - Cat Calls (02:35)
-03. Roy Orbison - In Dreams (02:51)
-04. Detlef Petersen - Curango (02:14)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C8FE08D145448FD41E24B0E21CC18B4B23F3F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255153   (368216) от 16.10.2018
-
-Rawlins Cross - Reel 'n' Roll (1993) [FLAC|Lossless|tracks + .cue] <Rock, Folk, World & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reel 'n' Roll (5:01)
- 02. Don't You Be the One (3:51)
- 03. It'll Have to Wait (3:27)
- 04. Long Night (5:15)(   Читать дальше...   )Жанр: Rock, Folk, World & CountryПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F2B0DB75B3082EA3180C67657569CA733D9894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949793   (367890) от 27.10.2015
-
-VA - The Best Of Me - Original Motion Picture Soundtrack (2015) [FLAC|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Did With You (Lady Antebellum) [03:16]
-02. Dream Girl (Hunter Hayes) [03:39]
-03. Hold On (SHEL and Gareth Dunlop) [03:26]
-04. In Love Again (Colbie Caillat) [03:31](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BB6C25308F1D01C3417C646EECB44330441E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176678   (367474) от 23.10.2017
-
-Mariah Carey - The Star (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Soundtrack, Christmas>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Star (4:01)Жанр: Pop, Soul, Soundtrack, ChristmasПродолжительность: 00:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E2DFB85231726E15DD733909C371C376452716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949731   (367406) от 27.10.2015
-
-VA - Ultimate Movies: 4CDs Of Great Hits From The Movies (2015) Box Set, 4CD [FLAC|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bill Medley & Jennifer Warnes - (I've had) The Time Of My Life [4:51]
-02. Celine Dion - My Heart Will Go On [4:41]
-03. Dolly Parton - 9 to 5 [2:46]
-04. The Four Tops - Loco In Acapulco [4:33](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 04:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC41FEBEC554D14B0C037D6582E2758EE0FC710C
 ```
 
 https://mybot314.ru/tekegram_catalog/

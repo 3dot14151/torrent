@@ -1,3 +1,29 @@
+###  Публикация: 665510   (742672) от 07.06.2013
+
+Проекты - VideoHive - Wedding Album Love Memories - 2284306 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания Свадебного альбома, воспоминаний, эксклюзивной свадебной галереи, свадебного слайд-шоу и многое другое.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FEDE3958911BB294207343BD4A604F7A92314B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282935   (742102) от 14.02.2019
 
 Проекты - VideoHive - Tech Futuristic Display - 17957928 [AEP]
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDBE38E55FA7D29011C2D171BFD31FF0AD30082F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021254   (741556) от 28.05.2016
-
-Проекты - VideoHive - Corporate Promo & Slideshow [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corporate Promo & Slideshow - симпатичная корпоративная видео-презентация в стиле слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C948240C6287AC58F1C92B3245ED6E7BA81101C
 ```
 
 https://mybot314.ru/tekegram_catalog/

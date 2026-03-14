@@ -1,3 +1,148 @@
+###  Публикация: 1659500   (190207) от 11.09.2023
+
+Fixation - More Subtle Than Death (2023) [FLAC 24/48|WEB-DL|tracks] <Metalcore, Stadium Rock and Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impending Fallout [00:01:33]
+02. More Alive [00:03:44]
+03. Stay Awake [00:04:24]
+04. Flat Earth [00:04:47](   Читать дальше...   )Жанр: Metalcore, Stadium Rock and MetalПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251BC59DAA43756111174EDF28FE8AC785338322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659476   (190186) от 11.09.2023
+
+Allison Russell - The Returner (2023) [FLAC 24/48|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Springtime (00:04:11)
+02 - The Returner (00:03:50)
+03 - All Without Within (00:03:12)
+04 - Demons (00:04:29)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F4CE31E2A8D735DA04F6B6EAD5405E6C5B2F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659530   (190165) от 11.09.2023
+
+Super Furry Animals - Phantom Power (2003) (2023 Remaster) BMG Rights Management (UK) Limited [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternativ und Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190165.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Hello Sunshine (2023 Remaster) 03:34
+2 Liberty Belle (2023 Remaster) 02:57
+3 Golden Retriever (2023 Remaster) 02:27
+4 Sex, War & Robots (2023 Remaster) 03:49(   Читать дальше...   )Жанр: Alternativ und IndieПродолжительность: 03:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49074308C1ECEA2FD3F4790859E66D2C3837F4BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659458   (190121) от 11.09.2023
+
+Jerry Lee Lewis - Killer In Stereo: Good Rockin' Tonight (1969) (Remastered 2023) Sun Label Group, LLC [FLAC 24/96|WEB-DL|tracks] <Classic Rock, Rock'N'Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Golly Miss Molly (Remastered 2023) [00:02:18]
+02. High Powered Woman (Alternate / Remastered 2023) [00:02:01]
+03. Be Bop A Lula (Remastered 2023) [00:02:26]
+04. C.C. Rider (Remastered 2023) [00:02:23](   Читать дальше...   )Жанр: Classic Rock, Rock'N'RollПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52E08BCC090B639AB488A8D543FF7D8D568FEFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659463   (190118) от 11.09.2023
+
+James Blake - Playing Robots Into Heaven (2023) [FLAC 24/96|WEB-DL|tracks] <Electronic, Pop, Leftfield, Soul, Experemental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asking To Break (2:53)
+03. Tell Me (5:00)
+04. Fall Back (4:01)
+05. He's Been Wonderful (3:21)(   Читать дальше...   )Жанр: Electronic, Pop, Leftfield, Soul, ExperementalПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7AAD44A90FB74D507FF8B913E221D2321D3453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660218   (189703) от 12.09.2023
 
 The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The Gondoliers" and "Yeomen Of The Guard" (1959) [FLAC 1.0|24/96||side-tracks|Vinyl-Rip] <Class ...
@@ -594,151 +739,6 @@ The National - Laugh Track (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48BCA0E5193A9AD9D3B7F99C4FA4769BD18598A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663183   (187201) от 20.09.2023
-
-Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Brass & Military, Marches>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187201.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Inspection
-A1 Blaydon Races
-A2 Shirley Bassey Showcase
-A2(a) Kiss Me Honey, Honey, Kiss Me(   Читать дальше...   )Жанр: Brass & Military, MarchesПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C22089662F74B2DBA382F791C679DE815B41DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663006   (187195) от 20.09.2023
-
-Lords of Sorcery - Nemesis (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dark Place [00:01:43]
-02. Hail Your Satan [00:03:42]
-03. Forever with the Devil [00:04:20]
-04. Ass Honey [00:04:37](   Читать дальше...   )Жанр: Dark Heavy MetalПродолжительность: 00:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6A78AB05637A4991F4A00A5C6BEA72A5E2672D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662977   (187193) от 20.09.2023
-
-Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heavenly — пауэр-метал-группа из Франции, основанная в 1994 году вокалистом Бенжамином Сотто и барабанщиком Максом Пило.2000 - Coming From The Sky
-2001 - Sign Of The Winner
-2004 - Dust To Dust
-2006 - VirusЖанр: Power MetalПродолжительность: 05:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF8B9D744853AD7EC24D5300D0FD0381DE80251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662993   (187160) от 20.09.2023
-
-Neuromancer - Hardwired (2023) [FLAC 24/44.1|WEB-DL|tracks] <Darksynth, Synthwave, Retro Future>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonchild [00:03:40]
-02. Out of the Dark [00:04:25]
-03. Sonic [00:03:45]
-04. Cloud City [00:05:44](   Читать дальше...   )Жанр: Darksynth, Synthwave, Retro FutureПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F771E3964429299E07D1FE556CD14E511F4FF02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663008   (187149) от 20.09.2023
-
-Sundayman - Melodyssey (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <New Age>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Royal Purple [00:03:56]
-02. Change [00:04:27]
-03. Always [00:04:17]
-04. Breathe [00:04:21](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8268A3231475F3D028E7E7F8F6BC1994412C7BEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

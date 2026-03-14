@@ -1,3 +1,90 @@
+###  Публикация: 1127980   (730104) от 23.04.2017
+
+The Fabulous Dizzy Gillespie - Pleyel Jazz Concert 1948 (2016) Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Round About Midnight [08:46]
+02. Algo Bueno (Woody'n You) [03:18]
+03. I Can't Get Started [03:48]
+04. Ool-Ya-Koo [05:11](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E996E683203E73DD02068F1B5A3B382C5AD29C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127991   (730101) от 23.04.2017
+
+The Duke Edward Kennedy Ellington - I'm Checkin' Out, Goom Bye (1939) 2CD, 2004, Membran Music [APE|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730101.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dance Of The Goon [02:37]
+02. Good Gal Blues [03:00]
+03. Finesse [02:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50441524EDCF4DC32A1BD160F34D80C1426BE3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284116   (730090) от 20.02.2019
+
+Radare - Im Argen (2015) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Let Me Come into the Storm / Luke (10:06)
+02. Das einsame Grab des Detlef Sammer (4:09)
+03. Burroughs (6:36)
+04. The Queue (4:22)(   Читать дальше...   )Производство: Golden Antenna Records - GOLDEN-034Жанр: Doom Jazz, Dark Jazz, Experimental, RockПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8F360CAF4F2E96D5AAE98CF1B611A34FAB5494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127986   (730084) от 23.04.2017
 
 Luke Sellick - Alchemist (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -657,93 +744,6 @@ Harold Mabern - Mabern Plays Coltrane (2021) Smoke Sessions Records [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CD8FCE4BCF95D1ADA300D2A98F3480E8E23A220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284832   (726582) от 23.02.2019
-
-Putney  Dandridge  And  His  Orchestra - 1935 - 1936 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Heavenly Thing [2:48]
-02. Mr. Bluebird [2:53]
-03. Nagasaki [2:49]
-04. Chasing Shadows [2:42](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E932143393A27712C13C47FF2DC1B770A4F74A8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399835   (725148) от 02.08.2020
-
-Oscar Peterson & Clark Terry - Oscar Peterson Trio + One (1964) 1984, EmArcy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brotherhood of Man [3:36]
-02. Jim [3:04]
-03. Blues for Smedley [6:59]
-04. Roundalay [3:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE15328E64BB866C3E8733EE1D73DF3AC073DE8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128789   (724977) от 27.04.2017
-
-June Christy - Complete Capitol Small Group Transcriptions (1945, 1946) 2001, Jazz Factory [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Love To Me [04:02]
-02. How High The Moon [01:44]
-03. Wrap Your Troubles In Dreams [02:14]
-04. Can't Help Loving That Man [03:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031C31889EDF87CAFB1C037653DDB35383E41EE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

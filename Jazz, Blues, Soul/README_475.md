@@ -1,3 +1,177 @@
+###  Публикация: 1685289   (127224) от 18.12.2023
+
+Ella Fitzgerald - Ella Wishes You A Swinging Christmas (1960) 1988, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [2:25]
+02. Santa Claus Is Coming to Town [2:21]
+03. Have Yourself a Merry Little Christmas [2:58]
+04. What Are You Doing New Year's Eve? [3:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBE6042A32E4D6A2A676FA5DBAC4F172393F17D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685292   (127223) от 18.12.2023
+
+Terri Lyne Carrington - TLC & Friends (1981) 2023, Candid [FLAC|Lossless|tracks + .cue] <CCD32122>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is This Thing Called Love? [6:22]
+02. La Bonita [5:32]
+03. Seven Steps to Heaven [5:50]
+04. St. Thomas [7:17](   Читать дальше...   )Жанр: CCD32122Продолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956EB4F517AE0E1012DC3CD89520074BCC6C5E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685330   (127222) от 18.12.2023
+
+Blue Deal - Can't Kill Me Twice (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Short Time Runner (2:31)
+02. Can't Kill Me Twice (3:52)
+03. Hard Times (3:27)
+04. Gilded Cage (2:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8663678A9A9B7D908D130FB02426988211260DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685322   (127221) от 18.12.2023
+
+VA - Urban Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk, Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ltj X-perience - Best Life (7:39)
+02. DOUT.D - Strolling (2:23)
+03. The Last Minister - Tribute To J.B. Family (6:20)
+04. Ice One - Dal Terrazzo (1:42)(   Читать дальше...   )Жанр: Smooth Jazz, Funk, ElectronicПродолжительность: 02:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A87A16FDA41063F44360119D21A41B6A69945F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685331   (127220) от 18.12.2023
+
+Checkerboard Lounge - Roller Coaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rollercoaster (3:23)
+02. Double Standard (3:36)
+03. King of Nothin' (6:13)
+04. Killing Time (3:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94FE77D0D4CAE384F0D9F850163DE96844A7748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685324   (127213) от 18.12.2023
+
+Back Road Bourbon - The Other Side of Midnight (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Other Side (4:03)
+02. Midnight (3:06)
+03. Hail Mary (feat. John Bialy & Mike Anklewicz) (3:28)
+04. Bird Shit Tree (2:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354C4E771F7F8592D563E68D79D4CECACA71B23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685287   (127212) от 18.12.2023
 
 Gregory Porter - Christmas Wish (2023) Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
@@ -571,180 +745,6 @@ Dexter Gordon - Settin' The Pace (1943 - 1950) 4CD, 2001, Proper Records [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC7966991B2BF2891E9F71BC407E711EB1CE8CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686489   (126466) от 23.12.2023
-
-The Derek Trucks Band - 8 Albums (1997 - 2010) 10 CD (1997 - 2010) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock, Southern Rock, Jazz-Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Derek Trucks (родился 8 июня 1979 г.) - американский гитарист, автор песен и основатель группы The Derek Trucks Band. Он стал официальным участником The Allman Brothers Band в 1999 году. В 2010 году он вместе со своей женой, блюзовой певицей и гитаристкой Susan Tedeschi сформировал группу Tedeschi Trucks Band. Его музыкальный стиль охватывает несколько жанров, он (   Читать дальше...   )Список альбомов:
-1997 - The Derek Trucks Band
-1998 - Out Of The Madness
-2002 - Joyful NoiseЖанр: Blues Rock, Southern Rock, Jazz-BluesПродолжительность: 09:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2559D2FCE97755A513BECEBB9424FFE9F2E8998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686531   (126432) от 23.12.2023
-
-The Stan Getz Quartet - Pure Getz (1982) Concord Records [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Up and Up [8:16]
-02. Blood Count [3:39]
-03. Very Early [7:11]
-04. Sipping at Bell's [5:08](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBE6E9727F15ACCD864664FBF113CD0B5E4FCA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686337   (126430) от 23.12.2023
-
-Bill Evans - You Must Believe In Spring (1977) 2022, Craft Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B Minor Waltz (For Ellaine) [3:18]
-02. You Must Believe in Spring [5:45]
-03. Gary's Theme [4:21]
-04. We Will Meet Again (For Harry) [4:05](   Читать дальше...   )Жанр: Post-Bop, CoolПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D3D07D6F4779CDA801A2ACC6BD0AD030E011161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686359   (126429) от 23.12.2023
-
-Jay Doe & The Blues Preachers - Bluestime (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got My Mojo Working (4:00)
-02. Walking to My Baby (2:31)
-03. Call Me the Breeze (3:43)
-04. Next Time You See Me (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69BEF7CB6C8FF1155A9168B9A0EF62C1FB3C66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686361   (126421) от 23.12.2023
-
-Jimmy Lewis and Peggy Scott-Adams - Christmas With Miss Butch Records (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Friends of Mine (4:48)
-02. Can Reindeer Fly? (4:33)
-03. Wild Horses Two Mules and a Tractor (3:36)
-04. Light You up Like a Christmas Tree (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714DF69475161C44FF8FA2B23D0FEFE39F6D4D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686352   (126418) от 23.12.2023
-
-Frankie Moreno - RED (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red (3:22)
-02. Elephant Tears (3:38)
-03. Bombs Away (3:44)
-04. No More (3:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62B5EDB64AEF39C8ED0CB62B6C55594DD781639
 ```
 
 https://mybot314.ru/tekegram_catalog/

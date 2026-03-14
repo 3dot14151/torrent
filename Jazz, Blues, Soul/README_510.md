@@ -1,3 +1,177 @@
+###  Публикация: 1726413   (108676) от 29.05.2024
+
+VA - Ultimate Enjoyable Sweet Intimate Lounge Chill Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Islands in Tranquility (5:06)
+02. Chillaxing Jazz Kollektion - Wherever I Go (4:19)
+03. Konstantin Klashtorni - Together Again (4:07)
+04. Chillaxonic - Quintessence (4:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD82EBEC01BA90EE01C6AAC4952568348EF242A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726556   (108673) от 29.05.2024
+
+The Birdland Big Band - Live (2019) Birdland Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby of Birdland [5:55]
+02. On the Street Where You Live [5:26]
+03. Let's [4:56]
+04. Taking Flight [7:21](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0811E679AB9AB01ED8E0DEF7F352C7A77691BB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726558   (108672) от 29.05.2024
+
+Horace Parlan - In Copenhagen (1999) 2008, Storyville [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parker's Mood [5:30]
+02. Broken Promises [4:27]
+03. Two Sleepy People [7:00]
+04. I'm Getting Sentimental over You [5:14](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB8DF37EA647CF8EA44B507502D8BC309905B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726821   (108643) от 31.05.2024
+
+Don Carroll - Blues Organ (2008) [MP3|320 Kbps] <Hammond, Blues, Organ>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. North Reids Prairie [02:51]
+02. What The Funk [02:54]
+03. Blues? I Think I Got 'em [04:28]
+04. Bump And Grind [04:04](   Читать дальше...   )Жанр: Hammond, Blues, OrganПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1B463BC9A3CC5601CD7BEF597EABF84189CC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726806   (108631) от 31.05.2024
+
+The Birdland Big Band - Storybook: The Music Of Mark Miller (2023) Birdland Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storybook [6:45]
+02. Water Lily [6:56]
+03. Tenderly [4:16]
+04. Chorale and Alleluia [7:38](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7DF47949366AB22949823BDB4C0CE613335F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726807   (108614) от 31.05.2024
+
+Mary Lou Williams - Zodiac Suite (1945) 1991, Vintage Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aries [2:24]
+02. Taurus [2:30]
+03. Gemini [3:00]
+04. Cancer [4:37](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57ADF9D0A5171AA5373EC61A4AD8BB7C83E4161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726918   (108611) от 31.05.2024
 
 David Schumacher - Every Corner (1993) Amosaya Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -571,180 +745,6 @@ VA - Dream-Like Exquisite Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9534869EE1524203D18281ABB6E7245160DA3B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727844   (108393) от 04.06.2024
-
-The Charlie Byrd Trio with Scott Hamilton - It's A Wonderful World (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Wonderful World [3:45]
-02. Between the Devil and the Deep Blue Sea [5:07]
-03. My Shining Hour [3:15]
-04. I Got It Bad and That Ain't Good [4:30](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0DDD906BA2A9E67EC342BC555D25966DCA302F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727802   (108390) от 04.06.2024
-
-VA - Slow Funk 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anduze - Getting You Off (4:40)
-02. Live Tropical Fish - Mister Man (4:06)
-03. David Florio - Love Beyond (4:09)
-04. Vito Lalinga (Vi Mode Inc. Project) - Bua (4:09)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACF63C14062FA2B4DF9030D583952D7CE1C771F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727798   (108389) от 04.06.2024
-
-VA - Acid Jazz Summer Grooves Pure Acid Jazz 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Dance>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lostinwhite - Do It (3:53)
-02. Jestofunk - Straight To You (6:04)
-03. Live Tropical Fish - Mister Man (4:06)
-04. Black Mighty Wax - Follow That Fellow (3:40)(   Читать дальше...   )Жанр: Acid Jazz, DanceПродолжительность: 01:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD7FABCE9B88BB83F260B509F63629882182F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727845   (108382) от 04.06.2024
-
-The Charlie Byrd Trio & Guests - Byrd At The Gate: At The Villiage Gate (1963) 1986, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shiny Stockings [4:58]
-02. More (Theme from Mondo Cane) [2:54]
-03. Blues for Night People [7:07]
-04. Butter and Egg Man [3:40](   Читать дальше...   )Жанр: Bossa Nova, CoolПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5695AF3F36096FE2A1781BB1F980FBB344423E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727841   (108381) от 04.06.2024
-
-The Charlie Byrd Trio & Ken Peplowski - The Bossa Nova Years (1991) 2003, Concord Picante [FLAC|Lossless|tracks + .cue] <Bop, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation [5:07]
-02. One Note Samba [4:50]
-03. Corcovado [7:17]
-04. Triste [4:35](   Читать дальше...   )Жанр: Bop, Bossa NovaПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A098CB4C6B67FFA3EC868355B93D17C51534FBA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728087   (108376) от 05.06.2024
-
-The Scott Hamilton Quintet - The Second Set (1983) 1993, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Things You Are [6:33]
-02. Time After Time [6:39]
-03. Taps Miller [5:36]
-04. All Too Soon [6:03](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88552C926145C2AF73EC89F7CCE1787EE8911FCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

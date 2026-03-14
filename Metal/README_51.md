@@ -1,3 +1,32 @@
+###  Публикация: 911376   (616572) от 23.06.2015
+
+Nightshift - Winter Within (2014) [MP3|320 кб/с]<Heavy / Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Walk
+02. Hunter's Moon
+03. Distant Win
+04. Point of No Return(   Читать дальше...   )Жанр: Heavy / Speed MetalПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37336C253DD4B1386C82E18DCD4F847419B12A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911345   (616571) от 23.06.2015
 
 Dendera - Pillars Of Creation (2015) [MP3|320 кб/с]<Heavy Metal>
@@ -716,35 +745,6 @@ Thy Art Is Murder - Holy War (2015) [MP3||~245 кб/с (V0)]<Technical Deathcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1757E4E131705FF5C6E21E3D7842C1DF3FA8268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912325   (612514) от 25.06.2015
-
-To/Die/For (To Die For) - Cult (2015) [MP3|320 кб/с]<Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Black
-02. Screaming Birds
-03. Unknown III
-04. Mere Dream(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36419499AB61EB9D7CE1DD7FC7AB80A23080FFCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

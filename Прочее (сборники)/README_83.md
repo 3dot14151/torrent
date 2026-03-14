@@ -1,3 +1,32 @@
+###  Публикация: 1037679   (611379) от 25.07.2016
+
+VA - Discoteka 2016 Dance Club Vol.154 (2016) [MP3|320 Kbps] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611379.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rico Bernasconi & Lotus feat. Flo Rida -  Keep Playing (Filatov & Karas Edit) 3:18
+002. DJ Feel -  Bali (Radio Edit) 3:38
+003. Eric Saade feat Filatov & Karas, Gustaf Noren -  Wide Awake (Extended Mix) 4:11
+004. DJ Snake & Yellow Claw -  Ocho Cinco 3:42(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 10:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190ADE997D991FE4F81813E3E002C654B2C39992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524782   (611146) от 19.07.2012
 
 VA - Сборник игровой музыки / In Game Music (Ultimate Music Pack) (2011) [MP3|320 кб/с]<Rock, Drum & Bass, Dubstep, Electronic, Trance>
@@ -746,41 +775,6 @@ VA - Мульт-и BOOM !!! (2015) [MP3|320 кб/с]<Soundtrack, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:265F19D1B7E69E5D81B03274B4900D529D44A6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522815   (606978) от 21.07.2012
-
-VA - Electro House ремиксы на современные русские хиты (2012) [MP3|320 кб/с]<Electro, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agent Smith - Завалю Снегом 2012 (DJ Karas Remix) [05:07]
- 02. Aksioma Project - Ломай Меня Полностью (Club Version) [03:24]
- 03. AlexPtitSa & Dj Vitalik Vitamin & Milena - Жестокие Игры (Extended Mix) [05:56]
- 04. Ana Baston - Скандал (Avionics project extended rmx) [04:39]
- 05. Ana Baston - Скандал (galas remix) [04:01]
- 06. AnTon PavLovsky ft.Basilio Baio - Крылатые качели [04:51]
- 07. ARUBA ICE - Lyubov(DeSaxe Remix) [03:18]
- 08. Aruba Ice & Denis Kenzo - В небеса (DJ XM Electro Remix) [04:37]
- 09. ARUBA ICE & Velchev Pavel - Меня не найдешь (Ural Djs Remix) [05:02]
- 10. Aslan Gusejnov feat. Misty - Znayu znayu (Radio Edit) [03:27](   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 08:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9075FC407FAE40CF4BFC4A0514E077A02414CDB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

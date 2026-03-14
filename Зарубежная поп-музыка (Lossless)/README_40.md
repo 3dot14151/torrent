@@ -1,3 +1,148 @@
+###  Публикация: 1292937   (643068) от 31.03.2019
+
+VA - 538 Hitzone 88 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Folk, World>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достаточно давно на трекере не появлялись релизы этой популярной Нидерландской студии Радио 538. Продолжаем в этом году серию новым выпуском свеженьких новинок популярной музыки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.01. Mark Ronson - Nothing Breaks Like A Heart  (3:37)
+02. Nielson - IJskoud  (3:31)
+03. Rita Ora - Let You Love Me  (3:11)
+04. Panic! At The Disco - High Hopes  (3:12)(   Читать дальше...   )Релиз состоялся: 01 марта 2019 г.Жанр: Pop, Rock, Folk, WorldПродолжительность: 01:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389FC4854CB0969A789B24324A88F820FAEA05B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142245   (642977) от 14.06.2017
+
+Billy Ocean - Suddenly (Japanese Pressing) (1984) 1989,  JRCD 8213 [APE|Lossless|image + .cue] <Funk, Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642977.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Caribbean Queen (No More Love On The Run) [0:07:55.55]
+2. Mystery Lady [0:05:02.70]
+3. Syncopation [0:05:22.25]
+4. The Long And Winding Road [0:04:43.62](   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 44:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45CDA6CE5B4C3FC395C0D9996A60F4BCDDBA056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142210   (642829) от 14.06.2017
+
+Supermax - Spirits Of Love (1996) [APE|Lossless|image + .cue] <Disco, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loversnight [05:43.62]
+02. Love Is Deeper [03:51.38]
+03. I Need You [04:24.50]
+04. I Wonder Why [04:33.50](   Читать дальше...   )Жанр: Disco, ReggaeПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B27DA998D3C7BBF8E8095E01D9D21EA75248306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032730   (641902) от 09.07.2016
+
+Shura - Nothing's Real (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Synthpop, Indietronica, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (i)
+02. Nothing's Real
+03. What's It Gonna Be?
+04. Touch(   Читать дальше...   )Жанр: 80's Synthpop, Indietronica, Female VocalПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1AC73824F65761388CF6A79EBA771DF78AFA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906303   (641623) от 10.06.2015
+
+The Supremes - At The Copa: Expanded Edition (2012) 2CD [FLAC|Lossless]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641623.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ORIGINAL STEREO LP (1965)
+1. Opening Introduction
+2. Put On A Happy Face(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 02:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56DFA77C95BBBED1FCAC309C38D00816C5E7CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905846   (641520) от 10.06.2015
 
 Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
@@ -603,151 +748,6 @@ Britney Spears feat. G-Eazy - Make Me (2016) Single [FLAC|Lossless|WEB-DL|track]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1264EE03FD48E4EA2F89233B33E689B4025FD14D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294512   (628361) от 08.04.2019
-
-Lena - Only Love, L (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. dear L
-02. thank you
-03. private thoughts
-04. scared(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40901233AD7C2311037FD84C2A3A9F3EAD3E4F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294642   (628251) от 08.04.2019
-
-Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On
-02. Battle Of The Sexes (Feat. Rod Stewart)
-03. Slow Walk
-04. Seven Waves Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AC673E73AED26F165703F145DB3448A24DD88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229347   (627943) от 05.06.2018
-
-Lana Del Rey - Lust for Life (2017) [FLAC|Lossless|image + .cue] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love (04:33)
-02. Lust for Life (feat. The Weeknd) (04:23)
-03. 13 Beaches (04:55)
-04. Cherry (03:00)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4202545827974172382308AC54CBEB6AEA09299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144616   (627491) от 22.06.2017
-
-Neil Sedaka - The Real... Neil Sedaka (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. The Diary
-02. I Go Ape
-03. Oh! Carol(   Читать дальше...   )Жанр: PopПродолжительность: 02:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532DC503B934305442A2AC53ED012E27E179B53F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144438   (627489) от 22.06.2017
-
-All Time Low - Last Young Renegade (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Young Renegade
-02. Drugs & Candy
-03. Dirty Laundry
-04. Good Times(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C83138A56D51917A057A4B79C6F10E732660A1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

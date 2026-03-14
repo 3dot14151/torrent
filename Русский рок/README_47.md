@@ -1,3 +1,90 @@
+###  Публикация: 1547319   (603461) от 27.04.2022
+
+Desires Dawn - Один (2022) [MP3|320 Kbps] <Progressive Metalcore, Djent, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Найти [00:00:47]
+02 - Один [00:03:19]
+03 - Баланс души [00:03:57]
+04 - Другой [00:04:04](   Читать дальше...   )Жанр: Progressive Metalcore, Djent, Alternative MetalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9818F4B66AB39F7D33F810717438D8C9E0A221A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297831   (603080) от 24.04.2019
+
+Вася Обломов - Этот прекрасный мир (2019) [MP3|320 kbps] <Rock, Rap, Alternative Сhanson>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Добро пожаловать (03:36)
+02. Двери закрываются (02:30)
+03. Жизнь сложная (feat. Андрей Макаревич) (05:28)
+04. Недоросль (02:20)(   Читать дальше...   )Жанр: Rock, Rap, Alternative СhansonПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60930054C4BF6985348610756529112FAD17CC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297827   (603079) от 24.04.2019
+
+Олег Гаркуша (АукцЫон) - 23 (2019) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Понимаешь (04:06)
+02. Испорченный Вид (03:14)
+03. Золотые Колесницы (03:21)
+04. Фантазия (05:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C687F8637A534E7D801B8B1C1A0AD56B7A73ABB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148984   (602916) от 08.07.2017
 
 Annodomini - Небо надо мной (2016) [MP3|320 Kbps] <Gothic Love Metal, Modern Metal>
@@ -648,97 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E24E587330D226D306436E90FFDC2274CFF443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548626   (598032) от 03.05.2022
-
-Untold Grief - X Years Of Climbing Up The Moebius Ladder (2022) [MP3|320 Kbps] <Depressive Black Metal, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Foreboding (Intro) [00:02:02]
-02 Hunted Down [00:05:33]
-03 Moebius Ladder [00:06:11]
-04 An Appeal To Affliction [00:06:37](   Читать дальше...   )Жанр: Russian Depressive Black Metal, Post-Black MetalПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761DE410D0673DB5FA62E243EAC62B68A8C541EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526766   (597650) от 24.07.2012
-
-V-EGO - Отречение (2012) [MP3|320 кб/с]<Dark Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_597650.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Клеймо Тьмы (6:14)
-2.Один Итог (9:18)
-3.Цена Страданий (6:45)
-4.Изгой (6:37)
-5.Чужие Грехи (6:06)
-6.Я Не Могу Сказать Тебе Прощай (7:35)
-7.Главный вопрос (17:40)
-Альбом выдержан в атмосфере мрачной романтики, в которой лирические тексты искусно вплетены в музыкальное полотно, разворачивающееся в широком диапазоне стилей - от жесткого Dark Metal и Funeral Doom к готическим балладам.Жанр: Dark Doom MetalПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299528   (597413) от 02.05.2019
-
-Кукрыниксы - Раритеты (2019) Limited Edition [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Да здравствует сюрприз (02:47)
-02. Идет игра (04:41)
-03. Жизнь в зоопарке (03:51)
-04. Баллада об уходе в рай (03:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1510383333E99F144ACE36F24965D40D9248A340
 ```
 
 https://mybot314.ru/tekegram_catalog/

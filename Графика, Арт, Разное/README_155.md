@@ -1,30 +1,3 @@
-###  Публикация: 1788138   (23250) от 28.03.2025
-
-Обои - Eternal Mix Wallpapers Part 47 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69547C92279718BFA950A4B525DECC1B8408D2DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788352   (23148) от 29.03.2025
 
 Фотография - ArtStation - 1000 Eye & Mouth & Nose & Ear Image Reference Pack – Vol 1 [JPG]
@@ -681,6 +654,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB821577C892A5D92578CE095C9AF451AA4408CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799735   (16220) от 30.05.2025
+
+Книжная иллюстрация - E A G L E - Creative Fabrica - 220 Decora Anime Girls Coloring Pages [JPG, PNG, PDF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16220.jpg" />
+</div>
+
+
+###  Подробнее
+
+220 Раскрасок девочек из аниме.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52C51FB4FE24AEF8C0BEF9D6F71A6563BA698E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

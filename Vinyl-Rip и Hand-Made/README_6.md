@@ -1,3 +1,125 @@
+###  Публикация: 970826   (985764) от 03.01.2016
+
+VA - Кубинская эстрадная оркестровая музыка 60-х годов (1961) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маленький ансамбль - Оркестр Э. Лекуона
+02. Мама Инес - Оркестр Э. ГренетаЖанр: Pop, RetroПродолжительность: 00:04:41
+
+Страна-производитель: USSR
+Издатель (лейбл): Пластмасс(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A1C7680908B3B23444F48E7FC6B6274AC089F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613874   (982375) от 04.02.2013
+
+Depeche Mode - 2 альбома (1987, 1990) [1st, US press] [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982375.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. World In My Eyes 4:26
+A2. Sweetest Perfection 4:44
+A3. Personal Jesus 4:18
+A4. Halo 4:30
+A5. Waiting For The Night 6:10
+B1. Enjoy The Silence 6:13
+B2. Policy Of Truth 4:55
+B3. Blue Dress 5:45
+B4. Clean 5:29Жанр: Synth-popПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE98CDF9D88713EFFB06255062F95905FC51DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972583   (981994) от 06.01.2016
+
+Yovanna/Иованна - 3xEP: Песни Д. Плессаса и К. Капнисиса (1962, 1964) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песни К. Капнисиса
+01. Говорят, Говорят
+02. Капитан Фафальос
+03. Дождь(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AC16232D0088A43E407C9B5CFDF33F03C30B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972443   (981818) от 06.01.2016
+
+VA - Место встречи - Выпуск 4 (1988) [FLAC 2.0 24/192] image+.cue (Vinyl-Rip) <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Заставка -Место встречи-
+02 - Для тех, кто любит рок - AC/DC
+03 - Меня не провести - Status Quo
+04 - Удовлетворение - Rolling Stones(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455619579D282BF72742EB0247C87405ACDD2B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972228   (981736) от 06.01.2016
 
 Amadeus Veberzinke/Амадеус Веберзинке - J. S. Bach/И. С. Бах: Mass For Organ/Органная месса (1990) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Classical, Organ>
@@ -654,122 +776,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACD7DBB2E41222ECF1A0C998ED13E963DAF5F94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 194789   (955140) от 19.02.2020
-
-Scorpions - Sting In The Tail (2010) [Vinyl Rip 24Bit/192kHz]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Raised On Rock (3:59)
-02. Sting In The Tail (3:13)
-03. Slave Me (2:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4027E6BB857B884D4841EF392F16EA65D6AA91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 103062   (955127) от 19.02.2020
-
-Deep Purple - 7 альбомов (1970-1990) VinylRip 24 bit/96 kHz [FLAC]<Hard Rock>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Purple — британская рок-группа, образованная в феврале 1968 года в Хартфорде, Англия, и считающаяся одной из самых заметных и влиятельных в хард-роке 1970-х годов. Музыкальные критики считают Deep Purple одними из основателей хард-рока и высоко оценивают их вклад в его развитие. Музыканты «классического» состава Deep Purple (в частности, гитарист Ричи Блэкмор, (   Читать дальше...   )1. King of Dreams
-2. The Cut Runs Deep
-3. Fire in the Basement
-4. Truth Hurts(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3439B28045E7A250E0610961A1789E8999961474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980860   (954562) от 30.01.2016
-
-Группа Диалог и братья Меладзе - Посредине мира (1991) Russian Disc [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Дом напротив
-02 - Засуха
-03 - Актёр
-04 - Посредине мира(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BEB7F9DB9FC925823683F3F2ABEE0E8E14A1C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980732   (954372) от 30.01.2016
-
-Deep Purple - Burn (1974) 1976, Warner Bros. [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Burn
-02 - Might Just Take Your Life
-03 - Lay Down, Stay Down
-04 - Sail Away(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE22D8276D101065D658732D6D027A6762FC244B
 ```
 
 https://mybot314.ru/tekegram_catalog/

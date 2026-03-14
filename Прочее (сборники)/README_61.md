@@ -1,3 +1,32 @@
+###  Публикация: 1128980   (724844) от 27.04.2017
+
+VA - Dancefloor Everyday Mix (2017) [MP3|192-320 Kbps] <Progressive, Electro, Indietronica, Bigroom, Future House, Club, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Smooth & Tony Arzadon – Turn Up The Bass (Original Club Mix) 03:21
+02. Dan Slater & Jimjam F. Nalaya Brown – Minute Of You (Dirty Disco Club Mix) 07:28
+03. Rene Amesz – Liam (Rene Amesz Club Mix) 03:24
+04. Dan Slater & Jimjam F. Nalaya Brown – Minute Of You (George Figares & Dj Blacklow Club Mix) 06:17(   Читать дальше...   )Жанр: Progressive, Electro, Indietronica, Bigroom, Future House, Club, SynthpopПродолжительность: 09:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C53037791CD022A313F6FCF183C0F1D0BAFC5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217984   (724733) от 08.04.2018
 
 ZODIAC - Reload (2017) Remix [MP3|320 Kbps] <Electro House>
@@ -713,35 +742,6 @@ VA - New Music Releases Week 8 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:015E8997896EA759A115BBACBDF73EBF6BE71BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129929   (718831) от 30.04.2017
-
-VA - Mush-Up Dance Music (2017) [MP3|320 Kbps] <Club, Dance, House, Mush Up>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718831.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kindervater - Eight (Extended Mix)
-002. Dj Matrix - Cr9
-003. O-Zone - Dragostea Din Tei (Dj Zed Remix)
-004. Laidback Luke Feat. Majestic - Pogo (Deorro Remix)(   Читать дальше...   )Жанр: Club, Dance, House, Mush UpПродолжительность: 07:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0543F8EE33C1E305B4FA8600CA52C91BB4C8E561
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1039771   (594515) от 02.08.2016
+
+Foals - Holy Fire (2013) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude    04:07
+02. Inhaler    04:52
+03. My Number    04:00
+04. Bad Habit    04:40(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BF8CCB38F86CFDD60491D5851F0434389C884D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039645   (594438) от 02.08.2016
+
+Catfish and the Bottlemen - The Ride (2016) [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7
+02. Twice
+03. Soundcheck
+04. Postpone(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190FB889D670A2164EB55C3845BC9A76274F4EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150443   (593970) от 15.07.2017
+
+Reamonn - 5 Albums (2000-2008) Full Studio Discography [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faith (3:29)
+02. Million Miles (3:49)
+03. Through The Eyes Of A Child (3:53)
+04. Free Like A Bird (3:08)(   Читать дальше...   )Жанр: Alternative Rock, Pop-Rock |Продолжительность: 04:43:27 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8212AB87A421A94FBCC2C6760961DFEBF910F3D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233228   (593340) от 29.06.2018
 
 Gorillaz - The Now Now (2018) Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hip-Hop>
@@ -659,93 +746,6 @@ Evans Blue - Letters From The Dead (2016) [FLAC|Lossless|tracks] <Alternative Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F2B5E9F6291A03881E4E8653214BC98DCE8B73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042133   (580386) от 11.08.2016
-
-Skillet - Unleashed (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel Invincible (3:50)
- 02. Back From the Dead (3:34)
- 03. Stars (3:47)
- 04. I Want to Live (3:29)(   Читать дальше...   )Жанр: Alternative Rock, Christian RockПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A77EF74CB1B7F826A43260A8726ADFC3C473B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042127   (580377) от 11.08.2016
-
-Skillet - Unleashed (2016) [FLAC|Lossless|image + .cue] <Alternative Rock, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel Invincible (3:50)
- 02. Back From The Dead (3:34)
- 03. Stars (3:46)
- 04. I Want To Live (3:29)(   Читать дальше...   )Жанр: Alternative Rock, Christian RockПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A5206D7D1FFE13B125097E741349DE841AE7589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553726   (580033) от 28.05.2022
-
-Notions - Notions (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rapcore, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580033.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. World Arcana
-2. Stain (feat. Die SixFive)
-3. Yoshitsune
-4. WOODGUTS(   Читать дальше...   )Жанр: Alternative, Rapcore, Nu Metal, Hip Hop, Trap Metal, MetalcoreПродолжительность: 00:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8908D5CA90E1146CD6192F48B89075E51996DBC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

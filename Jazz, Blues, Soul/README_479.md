@@ -1,3 +1,177 @@
+###  Публикация: 1690433   (123919) от 07.01.2024
+
+Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeepers Creepers [2:49]
+02. Heatwave [3:02]
+03. Harlem on My Mind [3:29]
+04. Y' Had It Comin' to You [2:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B29F6E8D2952094EF33B11EE29195910DE14478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690529   (123910) от 07.01.2024
+
+The Jazz Kings - Blue Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Cross The Mersey
+02. Rockin' Gold
+03. Still Got The Blues
+04. Popsicle Toes(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237165C1E5F8C45A991D323505BFB4843FD35116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690624   (123792) от 08.01.2024
+
+Kay Starr - Cocktail Hour (1940-e - 1950-e) 2CD, 2000, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes [2:03]
+02. Don't Worry About Me [3:39]
+03. It's Whatcha Do with Whatcha Got [2:07]
+04. All of Me [2:27](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8213F8C1B00E8EEC4DC6B6586C5906E5D127ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690810   (123690) от 09.01.2024
+
+Bessie Smith - BD Jazz (1923 - 1933) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Early Jazz, Classic Female Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzbo Brown from Memphis Town [3:26]
+02. The Gin House Blues [3:18]
+03. Baby Doll [3:04]
+04. Back Water Blues [3:20](   Читать дальше...   )Жанр: Early Jazz, Classic Female BluesПродолжительность: 02:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DFFC23C1BB56F45F345EF4911BB969F32E736D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690747   (123661) от 09.01.2024
+
+Chris Rea - Dancing With Strangers (1987) Reissue, 1991, EastWest [OGG Vorbis|480 Kbps] <Pop, Rock, Pop Rock, Country Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Joys Of Christmas
+02.  I Can't Dance To That
+03.  Windy Town
+04.  Gonna Buy A Hat(   Читать дальше...   )Жанр: Pop, Rock, Pop Rock, Country RockПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241C965C0733BB49B8206AFBBC13D3DD4B1831A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690683   (123659) от 09.01.2024
+
+Chris Rea - On The Beach (1986) Reissue, 2006, EastWest [OGG Vorbis|480 Kbps] <Pop, Soft Rock, Pop Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  On The Beach
+02.  Little Blonde Plaits
+03.  Giverny
+04.  Lucky Day(   Читать дальше...   )Жанр: Pop, Soft Rock, Pop RockПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93997413B9B451A1845CFAD6EEECFAB7D0AD6564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690873   (123635) от 09.01.2024
 
 Brian Simpson - Soul Connection (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
@@ -571,180 +745,6 @@ Caro Emerald - Live In Glasgow (2015) Japan Edition [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9ED18F6DE502021A2F0B6D53EFF979718A42733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692097   (122732) от 15.01.2024
-
-Joe Louis And The Groove - First Time I Saw You (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seher's Swang (3:12)
-02. The First Time I Saw You (5:29)
-03. The Beauty of a Woman (4:00)
-04. The Blind (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5DBD56965D6321DCC0518C3C12EF1388CC983C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692098   (122729) от 15.01.2024
-
-John the Revelator - Where Are You_ (55th anniversary compilation) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John the Revelator (3:51)
-02. A Woman Knows (5:17)
-03. Diego's Drive (4:39)
-04. One Track Mind (4:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBEE9F20F71DAC52FC2777D676C6E8460169E2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692090   (122727) от 15.01.2024
-
-Blue Door Records - Blue Door Records (Deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born to Ramble (5:36)
-02. Susquehanna (3:41)
-03. Big Parade (3:09)
-04. Spend Your Life (5:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4846234CE6F097A2508A4EDF16B98FD688BE1CE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692096   (122726) от 15.01.2024
-
-Gurf Morlix - Melt into You (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Switchblade Smile (5:06)
-02. Melt into You (6:04)
-03. Beautiful Sad Face (5:52)
-04. Spare Change (5:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8726F2C7ADF3A779AF080453308FFA2D4B03BE4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692100   (122720) от 15.01.2024
-
-Kevin Burt - Thank You Brother Bill A Tribute to Bill Withers (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Is He (And What Is He To You) (4:54)
-02. Kissing My Love (4:28)
-03. World Keeps Going Round and Round (5:27)
-04. Just the Two of Us (4:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022C78CBD43C17A32FEDCAB5D289EEAAE7426E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692091   (122718) от 15.01.2024
-
-Brothers Brown - Nowhere Left To Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrong Side of Town (3:19)
-02. Junior's Back (7:31)
-03. Runnin' Blues (4:40)
-04. Nowhere Left To Go (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D943298F47AE5EB222DC31A6FFC654F03B7E8BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

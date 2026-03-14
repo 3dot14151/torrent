@@ -1,3 +1,61 @@
+###  Публикация: 1220234   (706182) от 18.04.2018
+
+Joe's Garage - The Best Of (2018) [MP3|320 Kbps] <Electronic Pop Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mission Love
+02. Big Palais
+03. If You Hear
+04. The Sun(   Читать дальше...   )Жанр: Electronic Pop Rock, Female VocalПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D0C3127833F6B74733AE999D0950A45B32E5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026150   (706133) от 14.06.2016
+
+Контрабанда.com.ua - Dreamer (2015) [MP3|320 кб/с] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Boy (03:17)
+02. Marie (03:08)
+03. Heaven Can Wait (02:22)
+04. Angel (03:53)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6AF6EF826EF7B58067470F926B3964A8338425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026279   (706071) от 14.06.2016
 
 Trapeze - Medusa (1970) Remastered, 1994, Threshold Records [MP3|320 кб/с] <Rock, Hard Rock, Psych Rock>
@@ -687,64 +745,6 @@ VA - Women In Rock (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FD90648D6AA5D5D06B830470062633C40D4901C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134156   (691651) от 14.05.2017
-
-Sid Rumpo - First Offense (1974) Remastered, 1993, Mushroom [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691651.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Spotlight
-2. Breakin' My Back
-3. Spider Curry
-4. Sailing(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2845D8DC00A5EC3286A8CC0763733616F4465911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133903   (691477) от 14.05.2017
-
-The Winter Tree (Magus) - Mr. Sun (2017) [MP3|320 Kbps] <Neo Progressive Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Sun 04:50
-02. Distant Star 05:37
-03. Bobby 06:38
-04. Shine 04:22(   Читать дальше...   )Жанр: Neo Progressive Rock, Art RockПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882E9DA9055D9256F97338F805FBE9565A114E69
 ```
 
 https://mybot314.ru/tekegram_catalog/

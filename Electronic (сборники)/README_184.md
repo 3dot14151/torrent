@@ -1,3 +1,32 @@
+###  Публикация: 1838446   (260614) от 23.11.2025
+
+Sardø - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Give My Love
+ 02 - I Love Only You
+ 03 - Break
+ 04 - Love You(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF89F61EF7EC00A5F79C58E35E904C319BBB0318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503972   (259931) от 31.05.2012
 
 VA - Sexy Trance #36 (31.05.2012) [MP3|320 кб/с]<Vocal Trance>
@@ -778,35 +807,6 @@ VA - No name compilation part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal, Easy l
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52B42DCE26B88B9606AB05A45A94A3CD733ABB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835675   (251668) от 07.11.2025
-
-VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Menda - Listen
-02 - Mr Salama - Radio
-03 - Dova Music - Golden Night
-04 - Kasimoff - It's Killing Me(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 02:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457BFDFBA2CF764FF91BB432A0AAFC4C4C55D532
 ```
 
 https://mybot314.ru/tekegram_catalog/

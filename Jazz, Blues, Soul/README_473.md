@@ -1,3 +1,177 @@
+###  Публикация: 1824013   (128665) от 13.10.2025
+
+Black Barrel & The Bad Men - Bad Men, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Home (3:59)
+02.  Dyin' tryin' (3:41)
+03.  Left Me Lone (4:32)
+04.  Peter Pan (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B33F33DF7C8F572FCADF823EE2C45B73E11945D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824015   (128663) от 13.10.2025
+
+Catfish John Tisdell - Win or Lose (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  It'll Never Be the Same ( Rock Version ) (4:28)
+02.  Tryin' to Find My Way ( Rock Version ) (4:52)
+03.  Win or Lose ( Blues Boogie Version ) (4:13)
+04.  One Way or the Other ( Blues / Rock Version ) (4:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B937350418321385CE7E7EE44D3D7031CF0867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824127   (128606) от 14.10.2025
+
+CHristina Crofts - Croftstown Unboogie (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Easy (2:54)
+02.  Gonna Find a Way (4:04)
+03.  Bad Penny (4:14)
+04.  The Unboogie (4:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4926D266A78F5DDF9B9B5203C5AA94C1E43E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824128   (128605) от 14.10.2025
+
+Earth - The Legendary Lost Tapes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blue Suede Shoes (2:30)
+02.  Evenin' (4:23)
+03.  Wee Wee Baby (3:17)
+04.  Untitled (3:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A26F503584D14020A71A711F2F70B575E1EC02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824130   (128604) от 14.10.2025
+
+Gwyn Ashton - Grease Bucket (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Something That the Cat Dragged In (3:12)
+02.  Howlin' At the Moon (4:21)
+03.  Evil Child (4:15)
+04.  Green Light Blues (4:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0C3921F7C6C3294F52D0351E12575F37324818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683212   (128558) от 10.12.2023
+
+Lisa Hilton - Paradise Cove (2022) Ruby Slippers Productions [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birks' Works [4:14]
+02. Fast Time Blues [3:54]
+03. Blues Vagabond [4:58]
+04. Another Simple Sunday with You [6:29](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18459E336D4E663D71969075CDCCACD2EA12DEB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683214   (128554) от 10.12.2023
 
 Terri Lyne Carrington - Money Jungle: Provocative In Blue (2013) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
@@ -571,180 +745,6 @@ Dave McKenna - Christmas Ivory (1997) Concord Jazz [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D45C06C13DA1B8885456027C3AEFBF927B9F3676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684139   (127998) от 14.12.2023
-
-Joe Bonamassa - Merry Christmas, Baby (2023) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merry Christmas, Baby (Alternate Take) (05:14)
- 02. Christmas Boogie (One Little Kiss) (06:54)
- 03. God Rest Ye Merry, Gentlemen (Irish Rendition) (02:16)
- 04. Lonesome Christmas (03:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D021C3A8AC338818031F0B89326352E800B448F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684214   (127995) от 14.12.2023
-
-The Electro Swingers - Collection (2012-2013) 2CD [MP3|320 Kbps] <Electro, Swing, Cabare Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Claus Is Comin' to Town [03:59]
-02. Zat You, Santa Claus? [03:34]
-03. Winter Wonderland [04:01]
-04. Let It Snow! [03:36](   Читать дальше...   )Жанр: Electro, Swing, Cabare JazzПродолжительность: 01:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FDB2A7BF3256B82CD2B25BA84A30ADEA4FB55E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684050   (127968) от 14.12.2023
-
-Joe Bonamassa - Merry Christmas, Baby (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Christmas Music>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merry Christmas, Baby (Alternate Take) (5:14)
-02. Christmas Boogie (One Little Kiss) (6:54)
-03. God Rest Ye Merry, Gentlemen (Irish Rendition) (2:16)
-04. Lonesome Christmas (3:29)(   Читать дальше...   )Жанр: Blues Rock, Christmas MusicПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445DD6C55317A9F798448969F953A005EB1D5E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684125   (127958) от 14.12.2023
-
-Phil Woods - This Is How I Feel About Quincy (2004) Jazzed Media [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stockholm Sweetnin' [7:18]
-02. The Quintessence [5:03]
-03. Meet Benny Bailey [5:20]
-04. For Lena and Lennie [6:28](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3083B868803031F1A3C8A5F8432FA7B0F31C892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684121   (127956) от 14.12.2023
-
-Louis van Dijk With The London Chamber Orchestra - Merry Melodies (1997) PolyGram Classics & Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Third Stream, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Wish You a Merry Christmas [2:26]
-02. God Rest Ye Merry Gentlemen [2:40]
-03. Ding, Dong Merrily on High [3:21]
-04. Have Yourself a Merry Little Christmas/Christmas Song [6:54](   Читать дальше...   )Жанр: Mainstream Jazz, Third Stream, Piano JazzПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D3824FC1B4B292FD74643B52239A3B84E15D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684126   (127939) от 14.12.2023
-
-Toshiko Akiyoshi-Lew Tabackin Big Band - Sumi-e (1979) 1986, Insights [FLAC|Lossless|tracks + .cue] <Modern Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sumi-e [7:59]
-02. A-10-205932 [10:07]
-03. A-10-205932 (alternate take) [9:57]
-04. Hangin' Loose [8:50](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF0712874D5921EA3F21790F962743D695DE88F
 ```
 
 https://mybot314.ru/tekegram_catalog/

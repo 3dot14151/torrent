@@ -1,3 +1,32 @@
+###  Публикация: 1485304   (1005442) от 25.07.2021
+
+VA - Record Super Chart 24.07.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minelli - Rampampam (3:20)
+02. Markul, Джарахов - Я в моменте (2:06)
+03. Nessa Barrett feat. jxdn - la di die (3:15)
+04. Inna - Flashbacks (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229B3473D5F65FB1BCAFE5EC75D2455625CD6C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486521   (1004604) от 01.08.2021
 
 VA - Beatport Psy Trance: Sound Pack #321 (2021) [MP3|320 Kbps] <Psychedelic Trance>
@@ -716,35 +745,6 @@ VA - Vibrant Color Sound: Top 100 Dj Electro House (2019) [MP3|320 Kbps] <Club, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4670BF7C40B18A4A5E224E43DE871A3241B0F07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350678   (1003020) от 07.01.2020
-
-VA - Neurochemistry: Psychedelic Trance (2020) [MP3|320 Kbps] <Psy Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003020.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Domi Re - The Locals (Original Mix)
-002. Astropilot - Breathe (Sirius Music Remix)
-003. Roger Rabbit - Breath (Original Mix)
-004. Liquid Ace - Neurochemistry (Indianix Remix)(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 12:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85AD826BEA78E4A264C231CC861EC1FB501D1F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1382007   (820880) от 10.05.2020
+
+Stu Dying - Study World: Relaxing Music and Ocean Waves For Studying (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820880.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Study World 01:55
+2. Tranquil Waters 02:24
+3. Work of the Composed 02:17
+4. Informative Fantasy	 01:09(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A039D7334B6E6FF62C2F4E35D1BEA4962F147CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382375   (820768) от 10.05.2020
+
+Gealdýr (Gealdyr) - Sól (Sol) (2019) [FLAC|Lossless|Web-DL|tracks] <Nordic Folk, Pagan Folk, Ambient Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ginnungagap (5:13)
+02. Myrkvidr (3:55)
+03. Baldr (3:08)
+04. Kauna (7:00)(   Читать дальше...   )Производство: Arvur RecordsЖанр: Nordic Folk, Pagan Folk, Ambient FolkПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475471253D317A74553B28E838098F9669D42B0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382374   (820766) от 10.05.2020
+
+Gealdýr (Gealdyr) - Valravn (2020) Soundtrack [FLAC|Lossless|Web-DL|tracks] <Nordic Folk, Pagan Folk, Ambient Folk>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valravn (3:19)
+02. Deyr Fé (2:19)
+03. The Ritual (3:09)
+04. The Seeress (3:05)(   Читать дальше...   )Производство: Arvur RecordsЖанр: Nordic Folk, Pagan Folk, Ambient FolkПродолжительность: 00:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CFA613B904EE7FCE547538BB3D6A061EBA6028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196839   (820415) от 04.01.2018
+
+ДиДюЛя - Лучшее (2010) 2CD [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Один день в сентябре
+02. Посылка из Румынии
+03. Винил(   Читать дальше...   )Жанр: Instrumental |Продолжительность: 02:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCAD7E68050C2514346AAB711CFB574B5EE14AB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007215   (819657) от 16.04.2016
 
 George Winston - Remembrance (A Memorial Benefit) (2001) [MP3|320 кб/с] <Folk, World, Country>
@@ -629,120 +745,6 @@ Asian Zen - Ambient Meditative Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6407700E55FF17CE8FC531330C3EB9E5398006EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196572   (817293) от 06.01.2018
-
-Shinnobu - Libertus (2017) [MP3|320 Kbps] <Neo-Classical, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817293.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Orion	4:06
-2.	Between Etheric Dreams	5:08
-3.	Erminig Enigmatic World	5:23
-4.	Unusual	5:15(   Читать дальше...   )Жанр: Neo-Classical, Ambient, New AgeПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7DF5EFDB3C02B3D7F549FD46E36E9335FA84EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117633   (817047) от 23.03.2017
-
-Gomer Edwin Evans - Music for Lovers (1992) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817047.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nights in Black Satin (30:01)
-2. Love on the Beach (29:47)Жанр: New Age, InstrumentalПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D9A2FC426E32972F4BA97FCB162E2538859C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117589   (817035) от 23.03.2017
-
-VA - Tibetan Waves: Asian Ambient Relaxing Spirit, Deep Focus, Meditation Tibetan Music (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindfullness Meditation World - Serenity Soul
-02. Tibetan Meditation Academy - Healing Sounds (Chimes)
-03. Therapeutic Tibetan Spa Collection - Tibetan Meditation
-04. Buddhist Meditation Temple - Relaxing Bowls(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82BF060626922089ADC721683DA781E2FEC746E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117624   (816898) от 23.03.2017
-
-VA - Dream Therapy (Top Deep Sleep Music, Dream Meditation, Sleep Yoga Nature Music) (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deep Sleep Hypnosis Masters - Massage Music  3:26
-02.  Deep Sleep Hypnosis Masters - Relaxing Theapy Music  3:19
-03.  Meditacao Espiritualidade Musica Academia - Chinese Meditation  3:52
-04.  Relaxing Night Music Academy - Ocean Waves  4:02(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, New AgeПродолжительность: 01:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A6DA01FCBA1A03D4893C366C8DD82CE4401B04
 ```
 
 https://mybot314.ru/tekegram_catalog/

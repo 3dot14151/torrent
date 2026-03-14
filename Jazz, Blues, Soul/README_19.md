@@ -1,3 +1,61 @@
+###  Публикация: 1615494   (1037594) от 26.02.2023
+
+Freddie Hubbard - Times Are Changing (1989) Blue Note [FLAC|Lossless|image + .cue] <Post-Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spanish Rose [6:32]
+02. Back to Lovin' Again [4:36]
+03. Was She Really There? [5:58]
+04. Corazon Amplio (A Song for Bert) [5:16](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04D50A91143005635435D64ADA9B48248C5BE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615493   (1037593) от 26.02.2023
+
+Jesse van Ruller - Circles (2002) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One [6:26]
+02. Circles [8:56]
+03. Here Comes the Sun [6:48]
+04. Black Dahlia [7:10](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD32B9ADCDD3DFB29ADC0DE195E14B2E6C0167B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615406   (1037588) от 26.02.2023
 
 George Howard - Love And Understanding (1991) [FLAC|Lossless|tracks + .cue] <Jazz Funk>
@@ -684,64 +742,6 @@ Nicki Parrott - Misty (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C317AD318D3BB75446701DD4F3792D793099D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616275   (1036411) от 02.03.2023
-
-Erotica - Nymphomania (2022) [FLAC|Lossless|tracks] <Jazz, Instrumental, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexual Piano (2:44)
-02. Eden of Love (2:41)
-03. Perfect Ceremony (2:26)
-04. Day to Remember (2:32)(   Читать дальше...   )Жанр: Jazz, Instrumental, Easy ListeningПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94391D127D79186AE469A5357A601CFEC893999B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442703   (1036362) от 26.01.2021
-
-Buddy De Franco (DeFranco) - Four Classic Albums Plus (1952 - 1954) 2014, 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036362.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Gone with the Wind [2:53]
-02. Sweet Georgia Brown [2:50]
-03. Street of Dreams [2:42](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE1E740AE716B4B3D5DF1B813983A5AE04F8179
 ```
 
 https://mybot314.ru/tekegram_catalog/

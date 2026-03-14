@@ -1,3 +1,32 @@
+###  Публикация: 948945   (408258) от 22.10.2015
+
+VA - Uplifting Sexy Trance Sound (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maywave - Flowing Passion (Snow Flakes Remix)
+02. Raddle B & Nellu L vs Marcprest - 7 Billion People 14 Billion Faces (Philler Music Remix)
+03. Morvan - Alyssa (Michael Retouch Remix)
+04. Minamoca & Yu-I - Eternal (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 06:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88694E49CFBA1FF0714E49289ECE29FEC2DA23DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413519   (408097) от 04.10.2020
 
 VA - Свежак Vocal Trance NNM (2020) [MP3|320 Kbps] <Vocal Trance>
@@ -784,35 +813,6 @@ VA - In Da Club Vol.66 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:209F9E21F0160512E48D20BF657ED52FEA067703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712430   (403247) от 19.10.2013
-
-Secret Service - 25 Best Songs (2012) [MP3|206 - 282 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flash In The Night 1982
-02. Will You Му Near Me 1984
-03. Night City 1985
-04. Broken Hearts 1981(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8871DD08B28AD0F01AE96005BE0D4C67773A53D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

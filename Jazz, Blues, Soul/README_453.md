@@ -1,3 +1,177 @@
+###  Публикация: 968054   (157295) от 23.12.2015
+
+The Dutch Swing College Band - The Best Of Dixie (1999) MasterTone Multimedia Ltd.[FLAC|tracks+.cue] <Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You Made Me Love You [05:30]
+ 02.On The Banks Of The Wabash [03:43]
+ 03.Hindustan [03:51]
+ 04.Just A Closer Walk With Thee [04:46](   Читать дальше...   )Жанр: DixielandПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB62814A91D5E805131D44FB5C8C1A60A67C50A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968283   (157228) от 23.12.2015
+
+Archie Shepp Quartet - I Didn't Know About You (1990) 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Go Down Moses (Let My People Go) [11:06]
+ 02.I Didn't Know About You [10:15]
+ 03.Billie's Bossa [05:54]
+ 04.Hot House [07:37](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB04D94C3732F9A42192055ABE3258C2FBA0A2FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600440   (157197) от 27.12.2022
+
+Stacey Kent feat. Art Hirahara - Songs From Other Places (2022) Special Edition [FLAC|192/24|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish I Could Go Travelling Again
+02. Bonita
+03. Craigie Burn
+04. Les Voyages(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14BC7720CA8A8BA3813F89A006AFB7677BF06529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085496   (157040) от 22.12.2016
+
+Doc Cheatham - The Eighty-Seven Years Of Doc Cheatham (1993) Columbia[APE|Lossless|tracks + .cue] <Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.That's My Home [06:08]
+ 02.Okay, Baby [03:14]
+ 03.Love You Madly [03:18]
+ 04.Blues In My Heart [04:25](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F613FE6C233006DB83B231FE5C59DE6A9CD316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085503   (157026) от 22.12.2016
+
+The J.J. Johnson Quintet - J Is For Jazz (1956) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Naptown USA [05:05]
+ 02.It Might As Well Be Spring [04:51]
+ 03.Tumbling Tumbleweeds [04:18]
+ 04.Angel Eyes [03:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C870F23EF87AA9622F9CAFA07D8D065ECF6C8154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085506   (156998) от 22.12.2016
+
+The Chico Hamilton Quintet - With Strings Attached (1959) 2007, Collectables[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Something To Live For [03:57]
+ 02.Andante [02:31]
+ 03.Speak Low [02:29]
+ 04.Pottsville, U.S.A. [05:44](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062CCAA9DBA07ACA77313717D50CA70854275EB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194255   (156997) от 24.12.2017
 
 Caravan Palace - <Iº_ºI> (2015) [MP3|320 Kbps] <Electro Swing, Gypsy Jazz>
@@ -573,180 +747,6 @@ Regis Philbin - When You're Smiling (2004) Hollywood Records [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E64CFACF346F979998C8EFD1E5465698CAFF1A93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346960   (155448) от 21.12.2019
-
-Katie Melua - Live In Concert (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tu Ase Turpa Ikavi
-02. Plane Song
-03. Belfast
-04. Nine Million Bicycles(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 01:25:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8578F32168CA16952CC221D92E940DDB0D0C4214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600639   (155331) от 28.12.2022
-
-Xavier Soranells and The Andy James Band - From Barcelona to Boston (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Things (3:33)
-02. Dangerous (3:05)
-03. Two Personal Assistants (3:56)
-04. I Need Somebody to Love (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F76451B57BCD3D0D114888F9385DC5420F847EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518293   (155180) от 19.12.2021
-
-Lolo - X (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockin' Blues, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Train Kept a-Rollin' (3:01)
-02. I Need a Man (3:09)
-03. Blue Suede Shoes (2:35)
-04. Ooby Dooby (3:40)(   Читать дальше...   )Жанр: Rockin' Blues, Soul, FunkПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599A0728BC107273308224403B990441D7F8057A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433826   (155040) от 22.12.2020
-
-Thomas Quasthoff & NDR Bigband - Nice 'N' Easy (2018) Okeh [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice 'n' Easy [3:37]
-02. Body and Soul [6:27]
-03. But Not for Me [5:42]
-04. Moonglow [3:57](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B764CBCB7E600C216999069EE0285AC6AA5F93D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433865   (155012) от 22.12.2020
-
-Matthew Halsall - Salute To The Sun (2020) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Spiritual Jazz, Ambient>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155012.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Harmony with Nature - 09:11
-2. Joyful Spirits of the Universe - 10:40
-3. Canopy & Stars - 07:51
-4. Mindfulness Meditations - 02:49(   Читать дальше...   )Жанр: Contemporary Jazz, Spiritual Jazz, AmbientПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67AEA98F8229C97E5DB5C7B1C059C8DC0BD470BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433591   (154996) от 22.12.2020
-
-Aaron Schembri - City Lights (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Lights (2:25)
-02. Don't Mean Nothing (feat. Normie Rowe) (3:51)
-03. Don't You Worry Now (feat. Ross Wilson) (3:57)
-04. Good Enough For You (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE2B47966071301F5F19BFFFA4A119F8B674E4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1202245   (790538) от 28.01.2018
+
+VA - The Story Of Bossa Nova (2000) [FLAC|Lossless|tracks + .cue] <Самба, Джаз>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leila Pinheiro - Chega De Saudade [2:36]
+02. Marcos Valle - Samba De Verao [2:30]
+03. Pery Ribeiro - Garota De Ipanema [2:13]
+04. Joyce With Gilson Peranzzetta - Corcovado [3:38](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5867374473C11AE564C56409D4EE8BAB74CCB910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202154   (790532) от 28.01.2018
+
+Kazumi Watanabe - Guitar Renaissance V (2012) [FLAC|Lossless|image + .cue] <Jazz, New Age, Guitar>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Jude (6:19)
+02. Fly Me To The Moon (5:34)
+03. Going Home (6:10)
+04. Menuetii (3:51)(   Читать дальше...   )Жанр: Jazz, New Age, GuitarПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19BB2222E71DE937AF8008F4FE6B3D631B0720B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275452   (790524) от 11.01.2019
+
+Jimmie Noone - 1930 - 1934 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You're Smiling [2:49]
+02. I Lost My Gal From Memphis [2:27]
+03. On Revival Day [2:34]
+04. I'm Drifting Back To Dreamland [2:45](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4793E3A5CCF7B4DE4DAAEDE171FC7E7C6AF02A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275479   (790522) от 11.01.2019
 
 David Tixier Trio - Universal Citizen (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
@@ -658,93 +745,6 @@ Chaka Khan and Rufus - Street Player (1994) 1978, MCAD [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9917B2C2389B27150428C4170B5B69F95195B73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275824   (789492) от 13.01.2019
-
-Jimmie Noone - 1934 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine [2:56]
-02. Liza [2:54]
-03. Soon (There'll Just Be Two Of Us) [2:40]
-04. Lullaby Of Broadway [3:11](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0207174202E978DECDCFFE61853160100502310F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511189   (789469) от 20.11.2021
-
-David "Fathead" Newman - Mr. Gentle, Mr. Cool: A Tribute to Duke Ellington (1994) Kokopelli Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Get Around Much Anymore [4:45]
-02. Prelude to a Kiss [5:41]
-03. Mr. Gentle & Mr. Cool [5:50]
-04. Almost Cried [6:24](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF4F052048DD1EC41FF761C5DD92C2FBFFD855A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275854   (789450) от 13.01.2019
-
-Jamie Lancaster - Duets (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jamie Lancaster, Cassandra Beck - I Finally Found Someone 03:12
-02. Jamie Lancaster, Michelle Simonal - Endless Love 02:53
-03. Jamie Lancaster, Shelly Sony - Easy Lover 04:02
-04. Jamie Lancaster, Eve St. Jones - (I've Had) The Time of My Life 03:37(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Bossa NovaПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCCF0EAFD0723572965F53E6B8033FEE0BB6584
 ```
 
 https://mybot314.ru/tekegram_catalog/

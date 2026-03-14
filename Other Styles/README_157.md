@@ -1,3 +1,148 @@
+###  Публикация: 1515706   (168515) от 08.12.2021
+
+Wuauquikuna - Collection (2021) 2альбома [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost in the waves
+02. Native tears
+03. Wuambrito otra vez
+04. Sounds of nature(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 02:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1733892FAA2C7EC7AC65ED37C1E5D68DE8C388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515610   (168482) от 08.12.2021
+
+VA - Лучшие гармонисты России (2012) [MP3|224 Kbps] <Русские народные песни, гармонь>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Сметанин - На реке на Виледи (1:36)
+02. Сергей Сметанин - Вологодская тальянка (1:23)
+03. Сергей Сметанин - От скуки на все руки (2:55)
+04. Сергей Сметанин - Как на Северной Двине (3:29)(   Читать дальше...   )Жанр: Русские народные песни, гармоньПродолжительность: 06:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D66B60CE53E12DC4CD105B339F517CF0393032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596324   (168244) от 12.12.2022
+
+Mitchell Gaynor M.D. - Crystal Sonic Sound Sleep (2013) [FLAC|Lossless|tracks + .cue] <Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delta Sleep 1
+02. Delta Sleep 2
+03. Delta Theta Sleep
+04. Delta Alpha Sleep(   Читать дальше...   )Жанр: Relax, HealingПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59A5EEC546AE24FCC6290B4972E2725EBC6D2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596632   (168200) от 12.12.2022
+
+John Debney - Один дома / Home Sweet Home Alone (2021) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cousin Chaos
+02. What's With You Today
+03. Hunter And Uber Jeff
+04. It's A Christmas Miracle(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D82B716AA36B1783D166D8426803082DE9048B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672723   (167975) от 29.10.2023
+
+Люди Леса - Другие шепоты, другие тени (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sadness Horn 5:17
+02. Talisman 6:14
+03. White Stone 4:38
+04. Voron 4:27(   Читать дальше...   )Жанр: Dark FolkПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB0363EDC9B93165569D2BD0502B84FD0D03345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344631   (167252) от 14.12.2019
 
 Shinnobu - The Enigma VI (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
@@ -599,151 +744,6 @@ John Towner Williams - Звёздные войны: Скайуокер. Восх
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9025BA742BB5201FE4DC27F30FC474746D4A3449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597936   (163021) от 18.12.2022
-
-Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163021.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nothing Is Lost (You Give Me Strength) – The Weeknd
-2. Hometree – Simon Franglen
-3. Happiness Is Simple – Simon Franglen
-4. A New Star – Simon Franglen(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104BFB51007CA1B9946ED1846256EBA1950DC93C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598414   (162541) от 19.12.2022
-
-Bee Celtic - Star Of The County Down (2022) [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Es Gibt Nur Wasser (Santiano cover)
-02. Star Of The County Down
-03. Scots Wha Hae
-04. Scarborough Fair(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB8CC9330A17FBA36FBBCABA21D033A60027953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598039   (162279) от 19.12.2022
-
-Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Is Lost (You Give Me Strength) – The Weeknd
-02. Hometree – Simon Franglen
-03. Happiness Is Simple – Simon Franglen
-04. A New Star – Simon Franglen(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C935D1D845064098381BDE0FB5FB809BE44A855E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432410   (161940) от 19.12.2020
-
-VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Ballad>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vérone (3:40)
-02. La Haine (3:52)
-03. J'ai Peur (3:40)
-04. Les Rois Du Monde (3:27)(   Читать дальше...   )Жанр: Electronic, Pop, BalladПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DAD106A6D128F05307B060E79DBD0C8D329BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432553   (161883) от 19.12.2020
-
-VA - Иисус Христос - Суперзвезда (Театр им. Моссовета) (1995) 2 СD [FLAC|Lossless|image + .cue] <Рок-опера>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тайная вечеря (5:44)
-02. Гефсиманский сад (6:21)
-03. Арест (4:18)
-04. Пилат и Кайафа (1:43)(   Читать дальше...   )Жанр: Рок-операПродолжительность: 01:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E2C1A25EF93045BDD5A94A7E11DC1E4121DA6E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

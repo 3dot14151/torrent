@@ -1,3 +1,119 @@
+###  Публикация: 1460393   (1022604) от 05.04.2021
+
+Chez Kane - Chez Kane (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Than Love
+02. All Of It
+03. Rocket On The Radio
+04. Get It On(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3934070DDBB2B43ABE9522AAD208D86D886B7587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460422   (1022603) от 05.04.2021
+
+Living Loud - 2 albums (2004-2008) [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022603.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Living Loud» - проект с участием икон рок-музыки, басиста и автора песен Боба Дэйсли, барабанщика Uriah Heep Ли Керслейка, гитариста Deep Purple Стива Морса и бывшего австралийского вокалиста Cold Chisel Джимми Барнса. В качестве специального гостя выступил клавишник Deep Purple Дон Эйри.--------------------------
+
+01. Last Chance (4:51)
+02. I Don't Know (4:37)(   Читать дальше...   )Жанр: Hard Rock, Hard'n' Heavy |Продолжительность: 02:18:57 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D2CD62F8576D602F3DE949EE7AE562014C3774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460954   (1022218) от 07.04.2021
+
+Mad Shadow - Heavy Blues (2013) [FLAC|Lossless|tracks + .cue] <Electric Blues, Heavy Blues Rock, Psychedelic Rock 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocking Chair (2:40)
+02. Bad Man (6:25)
+03. Evil (3:21)
+04. Low Down Dirty Boogie (3:22)(   Читать дальше...   )Жанр: Electric Blues, Heavy Blues Rock, Psychedelic Rock 70'sПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F2FD612CC1B5AABCEFDF927085DE03AE591166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461075   (1022130) от 08.04.2021
+
+Shannon - Circus Of Lost Souls (2013) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride To Live
+02. Forever Now
+03. Halfway To Heaven
+04. Can't Stop The Rain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5DA12D18C31E43AC65B0F241D2B7B96D50E95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461083   (1022129) от 08.04.2021
 
 Shannon - Shannon (2003) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ Three Seasons - 4 albums (2011-2017) [FLAC|Lossless|tracks + .cue] <Hard Rock, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1006B4D4AACE811419930B1846DE374FFD444C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465053   (1019337) от 25.04.2021
-
-Orianthi - Believe II (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019337.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. According To You
-2. Shut Up & Kiss Me
-3. Courage
-4. Bad News(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71205489D6720BA836F8314EDD37415AF40FBB06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176856   (1019207) от 25.04.2021
-
-Cactus | The New Cactus Band - 11 albums, 21CD (1970-2021) [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа появилась в конце 1969 года в результате слияния ритм-секции группы Vanilla Fudge (Кармин Эппис, 1946 г.р., ударные, и Тим Богерт, 1944 г.р., бас-гитара) и бывших двух участников Mitch Ryder & The Detroit Wheels (Джим МакКарти, 1947 г.р., гитара, и Расти Дэй (полные имя и фамилия Расселл Эдвард Дэвидсон, 1945 г.р., вокал, ударные). Проект был создан после (   Читать дальше...   )--------------------------
-
-01. 01 Tightrope (3:48)
-02. 02 Papa Was a Rolling Stone (6:18)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock |Продолжительность: 18.16.37 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3BAC748A987824FB7668A2F823DAD9590457A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465488   (1019165) от 26.04.2021
-
-Stratus - Throwing Shapes (1985) Reissue, 2008, Krescendo Records [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Street Lovers
-02. Gimme Something
-03. Even If It Takes
-04. Give Me One More Chance(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2009AF08ECD6C4147A074EEB812175ECB9CF8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465389   (1019163) от 26.04.2021
-
-West Hill - Rock 'n' Bubble (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pleasure Machine (04:38)
-02. The Bard (04:16)
-03. Innocent Smile (05:15)
-04. Pretty Air Hostess (04:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18BA887713EFB6E5BA0C7BB875FE7DCF9C3BAD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1618004   (250171) от 09.03.2023
+
+VA - Beautiful Afternoon: Chillout Your Mind (2023) [FLAC|Lossless|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Sleepy Eyes (Original Mix) (5:21)
+02. Michael E - Hands on Me (Original Mix) (4:38)
+03. Martin Hiska - Circles (5:35)
+04. Lounge Groove Avenue - Just Fine (4:07)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB37629A7BC8CF7C2378D35DB8E26AFE8CB84C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618375   (249918) от 12.03.2023
+
+VA - Piano Beach Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Piano>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemon Sol - Beautiful Morning (Piano Cafe Chillout to Ibiza del Mar) (3:58)
+02. Blue Motion Control - Numero Deux (Wild At Heart Mix) (5:10)
+03. Loungeotic - Where the Earth Meets the Sky (Chillout Terrace Sunrise Radio Mix) (3:14)
+04. Noisy Blue - Eyes On You (Chillout Nightwish Instrumental Mix) (4:52)(   Читать дальше...   )Жанр: Easy Listening, Lounge, PianoПродолжительность: 01:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505A4730526332A8A4D1CC6370F12EDF2373AF47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620473   (249398) от 20.03.2023
 
 Schiller - Tag Und Nacht (2005) [FLAC|Lossless|tracks + .cue]<Trance, Downtempo, Ambient>
@@ -685,64 +743,6 @@ Driftmachine - Spume & Recollection (2021) Umor Rex [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD83B0FDAF9C1E13C87202C797AAE8622D809B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631610   (236333) от 06.05.2023
-
-VA - Climax Chill Out Session Pt.1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Blue Sun - Art Of Love (3:44)
-02. Guenter Haas - Black Rose (3:17)
-03. 351 Lake Shore Drive,J'unique,The Replaceables - Eine Sekunde (Smooth Deluxe Ambient Mix) (6:20)
-04. Marco Moli - Black Bird (2:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6724C05C074FD7A1DF41C3AF76592924C9C0D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634907   (232456) от 26.05.2023
-
-Sola Rosa - Low and Behold, High and Beyond (2012) [WavPack|Lossless|WEB-DLRip|tracks] <Electronic, Funk/Soul, Dub, Trip Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promise Ft. Olivier Daysoul (04:30)
-02. I'm Not That Guy Ft. Spikey Tee (04:00)
-03. Spinning Top Ft. L.A. Mitchell (03:25)
-04. Lions Den (04:40)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, Dub, Trip Hop, DowntempoПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BC562E158B3A3429A2E9E4EFF2889EC8754E4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

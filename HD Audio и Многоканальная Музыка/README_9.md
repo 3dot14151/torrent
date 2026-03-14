@@ -1,3 +1,119 @@
+###  Публикация: 986225   (932473) от 13.02.2016
+
+Def Leppard - High'N'Dry 1981 (1984) Vertigo [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Let It Go
+02 - Another Hit And Run
+03 - High'N'Dry
+04 - Bringin' On The Heartbreak(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B6F5468CC3B0923BFE6B06257685E5D6D16A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986278   (932468) от 13.02.2016
+
+VA (Various Artists) - Greenpeace Rocks (1993) SNC [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чай Ф - Не спеши
+02. БГ - Китай
+03. Джоанна Стингрей - Бум-бум
+04. Наутилус Помпилиус - Синоптики(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E1B51AA84A88AA25A804CBFF584C8F30C0F778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365290   (931488) от 06.03.2020
+
+Pink Floyd - The Dark Side of the Moon (2003) 1973 [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Psychedelic Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.    Speak To Me    01:08
+02.    Breathe    02:49
+03.    On The Run    03:51
+04.    Time    06:50(   Читать дальше...   )Жанр: progressive rockПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1EE1C70F09CF273920ECA5BF97E0E1BBF264F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986285   (930906) от 14.02.2016
+
+Калинов мост - Дарза (1992) Not On Label [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Тропы в Китай
+02 - По-прежнему
+03 - Даждо (Для его стрелы)
+04 - Колывань(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA048C84A7B3E6E28B541B41379CA89C081A2C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093929   (930459) от 17.01.2017
 
 Камерный оркестр Латвийской государственной филармонии, скрипка В. Зариньш, дирижер Т. Лифшиц - Антонио Вивальди - Времена года (1977) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Baroque>
@@ -626,122 +742,6 @@ Jean Michel Jarre - Oxygene 1-6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0E4E4408475B5AD08027F53787C180B83FFEAC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098253   (909929) от 29.01.2017
-
-Jean-Michel Jarre - Oxygene Trilogy - The 40th Anniversary Edition (2016) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Electronic, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oxygene 1-6 (1976)
-A1. Oxygene (Part 1) (7:39)
-A2. Oxygene (Part 2) (7:47)
-A4. Oxygene (Part 3) (3:15)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 02:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33814FDB42EB12E482E61B5C65DA86829BF1A968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098599   (908581) от 30.01.2017
-
-Tiёsto - Parade Of The Athletes (Limited Vinyl Edition) (2004) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908581.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Tiesto - Heroes (9:24)
-B1. Tiesto - Breda 8pm (DJ Montana Edit) (8:44)
-C1. Tiesto - Ancient History (8:39)
-D1. Tiesto - Euphoria (7:34)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7650CE41A392D200F5473D6C4B3FA4DE024B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098306   (908523) от 30.01.2017
-
-DJ Tiёsto - In My Memory (Limited Vinyl Edition) (2001) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908523.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. DJ Tiesto - Magik Journey (Album) 11:07
-B1. DJ Tiesto - Magik Journey (Alternative) 10:01
-C1. DJ Tiesto - Dallas 4 PM 6:46
-D1. DJ Tiesto feat. Nicola Hitchcock - In My Memory 6:08(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D32980DC3D80BA9F5016FFA2555CDAF3B34A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098617   (908510) от 30.01.2017
-
-VA - Tiёsto - Nyana (Limited Edition Sampler) (2003) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908510.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Reinhard Voigt - Supertiel (7:30)
-A2. Conjure One feat. Sinead O'Connor - Tears From The Moon (Tiesto In Search Of Sunrise Remix) (8:10)
-B1. Solar Factor - Urban Shakedown (6:54)
-B2. GTR - Mistral (9:18)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569774D38921D7A97C634AC843F9755CAD48D961
 ```
 
 https://mybot314.ru/tekegram_catalog/

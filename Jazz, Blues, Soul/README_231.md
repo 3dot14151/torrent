@@ -1,3 +1,180 @@
+###  Публикация: 1552099   (588524) от 19.05.2022
+
+Oscar Peterson - The Classic Verve Albums Collection (1957 - 1962) 4CD, 2018, Enlightenment [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588524.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- Stan Getz And The Oscar Peterson & Ben Webster Meets Oscar Peterson:
+01. I Want To Be Happy [7:38]
+02. Pennies From Heaven [5:19]
+03. Bewitched, Bothered, And Bewildered/Don't Know Why (I Just Do)/How Long Has This Been Going On/I Can't Get Started/Polka Dots And Moonbeams [10:13](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 05:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5524A0F7A861226983E5214A0466D3A76FEC1A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552091   (588461) от 19.05.2022
+
+Johnny Riley - Change (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Letter Blues (4:02)
+02. Ain’t That a Shame (4:08)
+03. Demons in My Mind (4:33)
+04. Hey Baby (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291DDE7965FEB11F3050B10E4B2337033465BB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552092   (588459) от 19.05.2022
+
+Sister Cookie - In the Blue Corner (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get It When You Want It (2:57)
+02. (You're Never More Than) Seven Feet Away (2:36)
+03. Crucify (4:21)
+04. Nothing Left to Do but Cry (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B3AD37E3DC9E0C9D38D8205AC068AD79A3C21E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039672   (588296) от 03.08.2016
+
+Allan Holdsworth - Дискография 21 альбом (1976-2009) 23 CD [WavPack|Lossless|image + .cue] <Fusion, Free Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся британский джазовый гитарист и композитор, внесший огромный вклад в развитие жанра фьюжн.
+Он известен своей сложностью в композиционной и импровизационной работе, а так же своими поразительными техническими навыками.
+Критики сравнили его произведения с сочинениями Листа.
+Уникальная эффективность стиля его игры сродни грации саксофонистов вроде Wayne Shorter (   Читать дальше...   )Список альбомов:
+1976 ♦ Velvet Darkness
+1978 ♦ Propensity
+1980 ♦ The Things You See(   Читать дальше...   )Жанр: Fusion, Free Jazz, Contemporary JazzПродолжительность: 17:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9640CE4C60F943A5EF05B5331ECCFCCC6498EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300825   (588198) от 08.05.2019
+
+Eric Seva - Nomade Sonore (2015) Gaya Music Production [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graffiti Celtique [8:23]
+02. Guizeh [5:16]
+03. Rue aux Fromages [3:46]
+04. Nomade Sonore [10:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5129C52239E9CE33B87B518B9D45D9432EF6D089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300791   (588195) от 08.05.2019
+
+Arild Andersen, Clive Bell, Mark Wastell - Tales Of Hackney (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588195.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I (2:59)
+2. II (8:58)
+3. III (2:14)
+4. IV (7:22)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77733FA40984F7274E1831D0E69D66EFB7489BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300844   (588193) от 08.05.2019
 
 Cotonete - Super-vilains (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Jazz-Funk>
@@ -571,180 +748,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:252657B68847070B27B78F3CF7646A972939618B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552369   (586642) от 21.05.2022
-
-Geezer - Stoned Blues Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Atomic Moronic (00:04:23)
-02 - Logan's Run (00:04:52)
-03 - A Cold Black Heart (00:06:39)
-04 - Stoned Blues Machine (00:06:00)(   Читать дальше...   )Жанр: Psychedelic, Stoner, Blues RockПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA3D168D6FD77B00B43E13D5A2FF83AF0E2E517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552378   (586620) от 21.05.2022
-
-Jo Dog & Paul Black´s Sonic Boom - Everybody Rains on My Parade (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Put on the Kettle (00:00:34)
-02 - Tree for Shade (00:04:44)
-03 - Up for the Late Show (00:03:53)
-04 - Blue Like the Morning (00:03:42)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3F6FF79C489F2D48E7FAFB51171FF17A4DE91C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040504   (586577) от 05.08.2016
-
-Gil Evans - Svengali (1973) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Modern Big Band, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Thoroughbred [06:38]
- 02.Blues in Orbit [10:18]
- 03.Eleven [01:45]
- 04.Cry of Hunger [10:23](   Читать дальше...   )Жанр: Modern Big Band, Jazz FusionПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA61C7145D7555193BCDB250BB096A4B5E54630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040511   (586547) от 05.08.2016
-
-Dannie Richmond - Plays Charles Mingus (1980) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fables Of Fobous [13:22]
- 02.Good Bye Pork Pye [04:47]
- 03.Nostalgia In Times Square [04:49]
- 04.Noddin' Your Head Blues [05:10](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4AAC44C9798EB93D926D98357C7F5CA53D860B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040400   (586542) от 05.08.2016
-
-Mary Stallings - But Beautiful (2013) [FLAC|Lossless|tracks + .cue] <Straght-ahead Jazz, Jazz Standards>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dedicated to You
-02. Just A Gigolo
-03. Some Other Spring
-04. But Beautiful(   Читать дальше...   )Жанр: Straght-ahead Jazz, Jazz StandardsПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68DA6024583D44D1B7D357B3D73A719A30971136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301299   (586339) от 10.05.2019
-
-Rene Urtreger & Agnes Desarthe - Premier rendez-vous (2017) Naive [FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man I Love [6:52]
-02. Le premier rendez-vous [6:05]
-03. Theme pour un ami [3:36]
-04. La geante [2:29](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D9E3FE3B20201E98C61B3DC2EB5BDD69AE30CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 493539   (248711) от 08.05.2012
+
+VA - Клубные Новинки Vol.74 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joris Voorn – Spank the Maid (Original Mix)
+02. Evave feat. Aelyn - Hand To Hand (Anjey Olaf Remix)
+03. Beat Service feat. Ben Hague - Why Me (Original Mix)
+04. Karanda - Cloud Nine (Original Mix)
+05. Bartlett Bros. - Sweet Child (Fabio Xb Rework)
+06. Protoculture - Cobalt (Original Mix)
+07. Beto Dias, Felipe Wrechiski, Deep Nation - Price To Pay (G-Low Mix)
+08. Mike Newman - Violence Groove (Original Club Mix)
+09. Avicii feat. Salem Al Fakir - Silhouettes (Original Mix)
+10. Kat Graham - Put Your Graffiti On Me (Moto Blanco Club Mix)2012Жанр: Club, DanceПродолжительность: 04:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495E045C8CE4253C8BE7132FF757B665CCBC343F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834226   (248575) от 03.11.2025
 
 Ilaria Argento - Assorted (2025) [MP3|320 Kbps] <Pop, Dance,  rock, Other, AI>
@@ -793,35 +828,6 @@ VA - Dance Project Club Hits (2016) [MP3|169~320 Kbps] <Eurodance, Nu Disco, Com
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1919578AEBBC2175AFB81C548493F04E8FB82D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074228   (243994) от 19.11.2016
-
-VA - 100% Explode Dance Anthems (2016) [MP3|190-320 Kbps] <Electro-R&B, House, Revival и др.>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Lora - All Up To Maybe (Original Club Mix) 05:10
-02. Bedouin - Bufo (Original Mix) 08:38
-03. Bruno Mars - 24K Magic (Brain Purist Remix) (Instrumental) 07:05
-04. Dj Lora - All Up To Maybe (I Wont Pretend) (Original Club Mix) 06:05(   Читать дальше...   )Жанр: Electro-R&B, House, Revival и др,Продолжительность: 08:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA65D4A3C393379368BC195BA6E3BF9F2D9C576
 ```
 
 https://mybot314.ru/tekegram_catalog/

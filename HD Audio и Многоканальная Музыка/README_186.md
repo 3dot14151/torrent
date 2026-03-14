@@ -1,3 +1,148 @@
+###  Публикация: 1785202   (69354) от 15.03.2025
+
+Jon Anderson - Perpetual Change (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yours Is No Disgrace (Live) [00:09:56]
+02. Perpetual Change (Live) [00:09:31]
+03. Close To The Edge (Live) [00:18:23]
+04. Heart Of The Sunrise (Live) [00:11:43](   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AAAC46320638E53AF00E081617FB95B6CEE730E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785328   (69342) от 15.03.2025
+
+Karen Cheryl - Etonnamment Romantique  Best Of (2025) Remastered [FLAC 24/96|Lossless|WEB-DL|tracks] <Disco, Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La marche des machos (04:17)
+02. Chante pour nous Mama (03:17)
+03. Les nouveaux romantiques (03:23)
+04. Oh ! Cheri Cheri... (03:31)(   Читать дальше...   )Жанр: Disco, Electronic, PopПродолжительность: 03:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF41D47F9DD122827C62176FDA7D4D592D7EEC95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785206   (69341) от 15.03.2025
+
+Manntra - Titans (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks] <Industrial Metal, Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ceremony [0:57]
+02 - Titans [2:53]
+03 - Teuta [3:33]
+04 - The Heart Of The Storm [4:24](   Читать дальше...   )Жанр: Industrial Metal, Folk MetalПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C1991D820A8A03B4BE8F621CAAE3F58D65095E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784963   (69338) от 15.03.2025
+
+The Hot Rod Gang - Can U Dig It? (40th Anniversary) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Rock & Roll, Rockabilly, Rhythm & Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can U Dig It? [00:04:00]
+02. Two Hearts [00:04:04]
+03. The Man He Used To be [00:03:42]
+04. Boogie Woogie Country Girl [00:03:10](   Читать дальше...   )Жанр: Rock, Rock & Roll, Rockabilly, Rhythm & BluesПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF00FC673F8F1E8C17A6FD61F1C046333C733EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785412   (69334) от 15.03.2025
+
+Streetlight - Night Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Long-Distance Runner (3:57)
+02.  Captured In The Night (3:40)
+03.  Sleep Walk (3:50)
+04.  Learn To Love Again (5:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688CB34508C75185FB54705BE54BE744A1C52671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784962   (69333) от 15.03.2025
 
 Confidence Man - 4AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno, Electro, House, Dance>
@@ -600,151 +745,6 @@ Daniel Simmons - Delta (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FA3D842BCBD11F456C6FE46CD945BE06D6C3FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785569   (69275) от 16.03.2025
-
-Elton John - Star Collection (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Eldorado
-02. Bellive
-03. Blessed(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCEACC1D0125A4C8AB39D886499204267272E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785507   (69255) от 16.03.2025
-
-Александр Серов - Звёздная Коллекция (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Ностальгия (Ностальгия По Тебе)
-02. Дверь (Обледенелая дверь)
-03. Ночь (Ворованная ночь)(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF6F8DCC1EF159D930BB916174765170AA54EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785499   (69254) от 16.03.2025
-
-The Mission (U.K.) - Studio Albums (6 releases) (1996-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Post-punk, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69254.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Mission - английская рок -группа, образованная в 1986 году.1996 - Blue
-2001 - Aura
-2007 - God is a Bullet
-2013 - The Brightest LightЖанр: Gothic Rock, Post-punk, Hard RockПродолжительность: 06:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0293A54AC82F7F78DFBF3B6C550A70E9B24CC1ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785502   (69236) от 16.03.2025
-
-Halloween - Psy-Ko (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transe 9:02
-02. Gnomes 10:20
-03. Crise de foi 8:19
-04. Plume de Plomb 5:20(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3B186A7D24C127E4BE7931AA25847C68161869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785534   (69234) от 16.03.2025
-
-Sentenced - Down (1996) Reissue, 2020, 	Cosmic Key Creations [WavPack|32/192|image + .cue|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69234.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Intro - The Gate
-A2 Noose
-A3 Shadegrown
-A4 Bleed(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46037E3858D6AAE0DB92A4B0851C5E6334BD124
 ```
 
 https://mybot314.ru/tekegram_catalog/

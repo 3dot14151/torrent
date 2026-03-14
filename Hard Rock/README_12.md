@@ -1,3 +1,32 @@
+###  Публикация: 905386   (651595) от 05.06.2015
+
+714 - American Tragic (2012) [MP3|320 кб/с]<Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Tragic
+02. Melt the Glue
+03. Kiss Me Now
+04. Beautiful Tonite(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0401DAA31DC5181D6F57E4D331BB9537F8A833E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905005   (651594) от 05.06.2015
 
 Michael Cosyn Group (Feat. Paul Shortino) - Burn The Earth (2015) [MP3|320 кб/с]<Classic Rock, Hard Rock, Blues Rock>
@@ -724,41 +753,6 @@ Oxygen - Final Warning (2012) [MP3|320 кб/с]<Melodic Hard Rock/AOR>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:655375FC2B7779CC6F74F8CC5C70C3630E51DAF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519630   (633450) от 08.07.2012
-
-Def Leppard - Songs From The Sparkle Lounge {Japanese Edition} (2008) [MP3|320 кб/с]<Hard Rock, Hair/Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go (3:20)
- 02. Nine Lives (feat. Tim McGraw) (3:32)
- 03. C'mon C'mon (4:09)
- 04. Love (4:17)
- 05. Tomorrow (3:35)
- 06. Cruise Control (3:03)
- 07. Hallucinate (3:16)
- 08. Only The Good Die Young (3:34)
- 09. Bad Actress (3:03)
- 10. Come Undone (3:33)(   Читать дальше...   )Жанр: Hard Rock, Hair/Heavy MetalПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A410CAAB7A0E5080ABC99CE24F4E35680DB57C
 ```
 
 https://mybot314.ru/tekegram_catalog/

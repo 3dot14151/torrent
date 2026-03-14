@@ -1,3 +1,148 @@
+###  Публикация: 1121824   (799207) от 04.04.2017
+
+Сруб - Восход (2017) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Восход (03:20)
+02. Подпол (03:40)
+03. Оклики (04:18)
+04. Помни (04:51)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:526CDCB9379A767947593D4DEE020A0245F57F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121835   (799205) от 04.04.2017
+
+Сруб - Песни Злых Цветов (2016) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Явлены (04:53)
+02. Вовремя (05:35)
+03. Гнев неведом (03:22)
+04. Черная весна (04:29)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F9D49BF009A7749F940F55029DF27EDF8C6DF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122379   (798835) от 05.04.2017
+
+Сруб - Тайной Тропой (2014) [FLAC|Lossless|tracks + .cue] <Post-Punk, Dark Folk, Occult Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798835.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Круг Первый (без слов) (4:35)
+2. Тайной Тропой (4:56)
+3. В Тени (4:19)
+4. Круг Третий (На Дно) (3:21)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111A33090C604C9E979A0C7DF231978901E9A18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122382   (798822) от 05.04.2017
+
+Сруб - Топь (2014) [FLAC|Lossless|tracks + .cue] <Post-Punk, Dark Folk, Occult Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полынь (3:13)
+02. Лень (4:23)
+03. Тайной Тропой (5:03)
+04. Грот (4:34)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD16D22F08C7BF208BD636317CB895BAFEC46B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385122   (797767) от 24.05.2020
+
+KUZMIN Absolute Band - Я - твой рокенрол (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797767.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я - твой рокенрол
+2. Жизни бесконечность
+3. Никто меня так не любил
+4. Одноглазый Джон (Пират)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A01ED30121630FD77FFF47A12FB9A7246FB108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010793   (797527) от 26.04.2016
 
 Агата Кристи - Майн Кайф? (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Goth Rock>
@@ -610,151 +755,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF5A2518FBE1CF85767191229DE23C3EC583C96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512410   (787407) от 24.11.2021
-
-Тринадцатое созвездие - Песня без берегов (Судзуки и сочувствующие) (2021) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня без берегов (4:40)
-02. Шансон играют рокера (5:46)
-03. Неудачник (4:29)
-04. Театр (piano version) (4:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5573A7F21E4C307D9E9066250DD978B5E5542AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512317   (787374) от 24.11.2021
-
-Ленинград - Рыба (2012) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Москва (03:14)
-02. Мы за! (02:32)
-03. Вода (02:20)
-04. Рыба (02:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF17EB4638CFDAD11E299F2EBEA5827D6384D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512689   (787126) от 25.11.2021
-
-Рубль - Сдачи Не Надо (2010) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Олимпиада
-02. В Мире Животных
-03. Я, Гитара И Костюм
-04. Терпи(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB93003D28BB0ECEBAF16B0F8818B9D6E993425B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512450   (787089) от 25.11.2021
-
-Ленинград - Хна (2011) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сладкий Сон
-02. И Больше Никого
-03. Прощай
-04. Нет И Еще Раз Нет(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13B3CDEED7B25189BAFE91BA2152FB6CB16484B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124056   (786139) от 09.04.2017
-
-VA - Rock сейшн (1999) [FLAC|lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vоплi Viдоплясова - Весна (05:19)
-02. Колибри - Ромашки (02:49)
-03. Кирпичи - В гробу (02:56)
-04. Найк Борзов - Хороший день (05:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA95C8A371217EE68F55D69AE42D231E7D098EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

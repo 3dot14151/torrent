@@ -1,3 +1,61 @@
+###  Публикация: 1252176   (409096) от 05.10.2018
+
+VA - 101 Hits - Long Hot Summer (2018) 5CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409096.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Sergio Mendes Feat. The Black Eyed Peas - Mas Que Nada
+02. Shaft - (Mucho Mambo) Sway(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAA7A74B4BBA4E74224D1DC400E51D990B83974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573796   (408740) от 02.09.2022
+
+Sandra - Stay In Touch (2012), (2CD) [OGG Vorbis|485 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay In Touch
+02. Infinite Kiss
+03. Between Me And The Moon
+04. Maybe Tonight(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41ACF15E4A9842163282E8A9418F9F0B8DE2359F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168619   (408727) от 24.09.2017
 
 Fergie - Double Dutchess (2017) Target Exclusive [MP3|320 Kbps] <Pop>
@@ -711,70 +769,6 @@ Jeanne Mas - Le Disque D'or (2012) [MP3|320 кб/с]<French Pop, Electropop, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD73A72CDA7381C547885D0873FF181D18EFDB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172564   (392890) от 08.10.2017
-
-VA - 101 Power Ballads (2017) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392890.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Rainbow - Since You Been Gone  3:09
-02.  Lynyrd Skynyrd - Free Bird  14:56
-03.  Scorpions - Wind Of Change  5:13(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85E74EE431660C693020EE4BEC5C5D5FC6BF936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569361   (391624) от 03.11.2012
-
-Robbie Williams - Take The Crown (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop,Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be A Boy 04:39
- 02. Gospel 04:26
- 03. Candy 03:21
- 04. Different 04:53
- 05. Shit On The Radio 02:53
- 06. All That I Want 03:30
- 07. Hunting For You 03:58
- 08. Into The Silence 04:48
- 09. Hey Wow Yeah Yeah 02:52
- 10. Not Like The Others 04:15(   Читать дальше...   )Жанр: Pop,Pop-RockПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F77726088AF4C5E6CB653D12A930E5605F5BBE47
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1630531   (241229) от 02.05.2023
+
+Michael Davis & Bill Reichenbach - Bonetown (1999) Hip-Bone Music [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. H, I, Jay and Kai [5:03]
+02. Oklahoma Roots [6:50]
+03. Option to Toast [5:43]
+04. Cole Henry [4:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706478FA12A2CBA8AF2C5613B0FC7F813ED5793D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386696   (241224) от 30.05.2020
+
+Cleo Laine - Portrait Of A Song Stylist (1989) The Harmony Collection [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On a Clear Day [3:10]
+02. I Could Write a Book [2:29]
+03. The Look of Love [3:00]
+04. Come Rain or Come Shine [1:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44876506BD0592156CC24CE4E6F3EEDDA4950EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625994   (241207) от 12.04.2023
+
+VA - Sensual Rhythm and Romance Jazzy Chilly Instrumentals (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean -- Begin Again (4:34)
+02. Chillaxing Jazz Kollektion -- Wherever I Go (4:19)
+03. Chillaxonic -- Mellifluous (4:27)
+04. eJazz Artistry -- Come Share My Love (4:31)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F236D1C1A02C9FA36F9742E6E602BAA507FB14D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462348   (241204) от 14.04.2021
 
 Red Norvo - Wigwammin' (1938) 1996, Hep Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -658,93 +745,6 @@ Dick Oatts - All Of Three album (1998) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:574622AD0841B7F7BC57B24B714F69656DF94A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620508   (240548) от 21.03.2023
-
-Franck Amsallem - Summer Times (2003) Nocturne [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got Rhythm [5:46]
-02. Summertime [5:47]
-03. Young and Foolish [7:50]
-04. Tom's Tune [6:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A9D6074CEEDAAF6531621FB587FF3670F5AAD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620510   (240530) от 21.03.2023
-
-Sonny Rollins - Soneymoon (1963 - 1965) 2007, Get Back [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without a Song [2:38]
-02. On Green Dolphin Street [13:31]
-03. Solitude [8:58]
-04. Soneymoon [23:09](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A5399C1067A0708C2830C66D27226091801E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410143   (240503) от 20.09.2020
-
-Chris Biesterfeldt - Phineas (2014) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harlem Blues [3:55]
-02. Sugar Ray [5:45]
-03. Cookin' at the Continental [4:21]
-04. The Midnight Sun Will Never Set [5:44](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A86E7C8A50E5DB7A613FFB982B9F04FEC467B10
 ```
 
 https://mybot314.ru/tekegram_catalog/

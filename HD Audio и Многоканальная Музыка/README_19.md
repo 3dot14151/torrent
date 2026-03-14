@@ -1,3 +1,146 @@
+###  Публикация: 1528134   (735388) от 31.01.2022
+
+Mindfeed - Studio albums (1997-1998) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks +.cue] <Groove Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mindfeed — британская альтернативная метал-группа, основанная в 1996 году при участии Джея Миччича и Глинна Моргана, двух бывших участников прогрессив-метал-группы Threshold.1997 - Perfect Life
+1998 - Ten Miles HighЖанр: Groove Metal, Progressive MetalПродолжительность: 01:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A231979F755B099A6C2B336267244181176891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398644   (735169) от 27.07.2020
+
+Opus - Up And Down (1984) [FLAC|FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735169.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Up And Down
+A2 Vivian
+A3 There Is Need For
+A4 She Loves You(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECBAE82AC36EC834EB4F0F5333B2EA61274C2342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528380   (734969) от 01.02.2022
+
+Terror Universal - Make Them Bleed (2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Groove Metal, Metalcore, Nu-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passage Of Pain (3:57)
+02. Welcome To Hell (3:42)
+03. Spines (3:18)
+04. Make Them Bleed (3:33)(   Читать дальше...   )Жанр: Groove Metal/Metalcore/Nu-MetalПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4FE99F1112FFEE0A43EEEAA77D20869BC78967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528254   (734968) от 01.02.2022
+
+The Police - Zenyatta Mondatta (1980) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <New Wave, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734968.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Don't Stand So Close To Me
+A2 Driven To Tears
+A3 When The World Is Running Down, You Make The Best Of What's Still Around
+A4 Canary In A Coalmine(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DB0F5B870D7837767EBF598662E29FA2A7E7B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528269   (734960) от 01.02.2022
+
+The Police - Ghost In The Machine (1981) Reissue 1982 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734960.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Spirits In The Material World
+A2 Every Little Thing She Does Is Magic
+A3 Invisible Sun
+A4 Hungry For You (J'Aurais Toujours Faim De Toi)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A5903F929D891E628816CC7600C2B8BA038A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399102   (734306) от 29.07.2020
 
 Modern Soul Band - Meeting (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
@@ -599,151 +742,6 @@ Mudvayne — американская ню-метал-группа из Пеор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15988A681858B2419594CD33AE9736AE52DFC8F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024663   (715455) от 09.06.2016
-
-Norah Jones – Come Away With Me (2002)  [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Contemporary jazz, vocal jazz>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715455.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.    Don’t Know Why    03:06
-2.    Seven Years    02:25
-3.    Cold Cold Heart    03:39
-4.    Feelin’ The Same Way    02:58(   Читать дальше...   )Жанр: jazzПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265C444896EE29043590607E56DF11123E0C92E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285918   (714812) от 01.03.2019
-
-Lenny Kravitz - Music Box. Pop Super Best (2002) Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. I Belong To You
-02. Stillness Of Heart
-03. Let's Get High(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E79D3311E59FAD11CF60139C7AFBC47A8FB45D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285935   (714715) от 01.03.2019
-
-Black Sabbath - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 Paranoid
-A2 Hole In The Sky
-A3 Sabbath Bloody Sabbath(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5E764950E7576496CAF0FD5B7579643155E618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025204   (710094) от 12.06.2016
-
-Spirit Nation - Spirit Nation (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic, Breaks, Trip Hop, Tribal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Wankatakiya
-02	Celebration
-03	Earth Walk
-04	Spirit Path(   Читать дальше...   )Жанр: Electronic, Breaks, Trip Hop, TribalПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFF7A380E435B36C5D54008BC8E2BFAEFB79097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131738   (706397) от 06.05.2017
-
-Toto Cutugno - L'Italiano (1983) 1984, Jugoton[FLAC|24/192|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706397.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. L'Italiano (3:58)
-A2. Solo Noi (4:04)
-A3. Soli (4:04)
-A4. Donna, Donna Mia (3:01)(   Читать дальше...   )Производство: Jugoton - LSY 10026Жанр: PopПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45463F8CF9286D4B7030D44C00B3B0DC00164888
 ```
 
 https://mybot314.ru/tekegram_catalog/

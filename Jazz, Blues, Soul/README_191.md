@@ -1,3 +1,177 @@
+###  Публикация: 1138150   (664561) от 29.05.2017
+
+Alice Babs - Joddlarflickan: 24 Originalinspelningar 1939-1951 (1994) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joddlarflickan (3:18)
+02. Jag har en liten Radiola (2:44)
+03. Ett glatt humor (2:30)
+04. Varat gang (3:21)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1F631CD98C47EEE81F150D4BE2CC71949BA4CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138439   (664558) от 29.05.2017
+
+Alice Babs - What a Joy (2014) 2CD, Prophone Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664558.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Swing it, magistern [02:53]
+02. Jag har en liten Radiola [02:44]
+03. Stigbergsgatan 8 [03:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3BCE33AAD95B5B9905B55FAF0901C039CF76E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138247   (664557) от 29.05.2017
+
+Alice Babs - Early Recordings 1939-1949 (2005) Vax Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Hundred to One [02:48]
+02. Shoo Shoo Baby [03:12]
+03. I'm Beginning to See the Light [03:09]
+04. Don't Get Around Much Anymore [03:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16C4FC52EC1465207B822802782F8F780A7A02E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537985   (664509) от 19.03.2022
+
+Popa Chubby - Emotional Gangster (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight I'm Gonna be The Man
+02. New Way Of Walking
+03. Equal Opportunity
+04. Hoochie Cootchie Man(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51D1496D6F926752AAB03349A4895F32E26CF75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138236   (664500) от 29.05.2017
+
+Alice Babs - Far Away Star (1973 - 1976) Bluebell [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Away Star [03:12]
+02. Serenade to Sweden [03:10]
+03. Spaceman [03:09]
+04. Jeep's Blues [04:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27981A7CA625F63CE0E76E37AD8D5EC74F4DFFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138447   (664485) от 29.05.2017
+
+Gato Barbieri - The Shadow Of The Cat (2002) Peak Records [FLAC|Lossless|tracks + .cue] <Ethnic Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Chico [05:01]
+02. The Shadow Of The Cat [05:19]
+03. Last Kiss [05:13]
+04. If I Was Your Woman [04:37](   Читать дальше...   )Жанр: Ethnic Jazz, Latin JazzПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998219E4116BF5FBD6689587A584FE9D1B96F7F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138412   (664373) от 29.05.2017
 
 VA - Jazz Dictionary S-1 (2017) [MP3|320 Kbps] <Jazz>
@@ -571,180 +745,6 @@ Howlin' Wolf - Chicago Blue (1995) [WavPack|Lossless|image + .cue] <Blues, Chica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD129DAC68AEEEE37A36D6367A6343DD6CECF65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138922   (662418) от 31.05.2017
-
-Gilberto Gil - Luar (1981) 2002, Warner Music Brasil [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luar (A Gente Precisa Ver O Luar) (4:22)
-02. Palco (4:26)
-03. Sonho Molhado (4:30)
-04. Lente Do Amor (3:40)(   Читать дальше...   )Жанр: Brazilian Jazz, World FusionПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89789F0EBC981BF199AA8CAD674AC2BA6514FEAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138882   (662416) от 31.05.2017
-
-Howlin' Wolf - Who Will Be Next? (1992) Charly Blues Masterworks, Vol.30 [WavPack|Lossless|image + .cue] <Blues, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Will Be Next? (2:34)
-02. I Have A Little Girl (2:36)
-03. Come To Me Baby (2:25)
-04. Don't Mess With Me Baby (2:38)(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C144443BCF2EB457497EA7CCFBA0F02E2677689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139014   (662414) от 31.05.2017
-
-Ida Sand - Meet Me Around Midnight (2007) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr Pianoman  (03:37) 
-02. Bang Bang  (02:46) 
-03. Brutal Truth  (03:57) 
-04. Every Little Bit Hurts  (04:03) (   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA7F4278D0F9D9BD651A255184A00B6229FDD72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538557   (662408) от 21.03.2022
-
-Junior Mance Trio & Orchestra - The Soul of Hollywood & That Lovin' Feelin' (1962, 1972) 2002, Milestone [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never On Sunday [2:48]
-02. Maria [2:51]
-03. Tara's Theme [4:00]
-04. Fanny [4:01](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2F9E67AAE8837F33C54E8EA9F2671DB2475241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538509   (662406) от 21.03.2022
-
-Peter Veteska & Blues Train - So Far so Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Done with Bad Luck (4:28)
-02. I've Got the Blues This Morning (4:25)
-03. I Miss You So (5:16)
-04. My One and Only Muse (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E10E09EA13D2824331522AFE764D33F4C916D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538506   (662405) от 21.03.2022
-
-Open Investigation - Open Investigation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raidho (4:16)
-02. Poison Man (3:16)
-03. Left is the Blues (4:28)
-04. Scoundrel (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5FCEE181443F3943B4FB3E558BC4B267575E13
 ```
 
 https://mybot314.ru/tekegram_catalog/

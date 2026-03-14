@@ -1,3 +1,146 @@
+###  Публикация: 1590719   (187816) от 16.11.2022
+
+Elane - Blackvale (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Gothic, Fantasy Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sternenwind [00:06:00]
+02. Home Is Where You Are [00:04:23]
+03. Searchlight [00:04:26]
+04. Scarborough Fair [00:03:42](   Читать дальше...   )Жанр: Celtic, Gothic, Fantasy Folk RockПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291D0A623B04312C592DC494C13750788B906F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590974   (187537) от 17.11.2022
+
+Dirt Poor Robins - Queen of the Night (Soundtrack) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Cinematic Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babylon (04:05)
+02. Penelope Graves (06:17)
+03. Gambit of Night (Extended) (03:53)
+04. Come Take a Trip in My Airship (04:05)(   Читать дальше...   )Жанр: Progressive Rock, Cinematic RockПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C8587D737857D219F7900B12A0D9614F462233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591262   (187518) от 17.11.2022
+
+VA - Хочу замуж (к\ф «Хочу замуж» официальный саундтрек) (2022) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. POLINA - Что-то пошло не так
+2. Люся Чеботина - Главная причина
+3. Николай Ростов - Где ты была вчера?
+4. Апрелия - Белая птица(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591297   (187179) от 18.11.2022
+
+Constance Demby - Sacred Space Music (1988) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Longing
+02. RadianceЖанр: New AgeПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB56D70E64BBF7B8E3649F0B9B147E6277C46E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 224151   (185858) от 25.11.2020
+
+VA - Celtic Chill Out Lounge (2010) [FLAC|Lossless|image + .cue] <Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aethera - The Mountain Side (3:56)
+02. Kieran - Drowning (5:48)
+03. Conner O'Reilly - Hear The Angels Call (5:07)
+04. John Flighten - Water And Tears (5:12)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF449EA5B0FC3A365040B5CA25F35F8521BC93CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 290832   (185846) от 25.11.2020
 
 Wes - Welenga (1996) [FLAC|Lossless|image + .cue] <New Age>
@@ -601,151 +744,6 @@ Ron Madore - Intoxicating (2020) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEC35178BB5B563B0985E5CFCC2C505DDB9B39FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429491   (176529) от 06.12.2020
-
-VA - Buddha-Bar Elements (2020) [MP3|320 Kbps] <Chillout, Downtempo, Deep-House, Miscellaneous>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tebra - Jovano (6:33)
-02. Kled Mone - Manastir (6:06)
-03. Tebra - Sve Na Crno (6:58)
-04. Calavera Manya - Mir (6:32)(   Читать дальше...   )Жанр: Chillout, Downtempo, Deep-House, MiscellaneousПродолжительность: 04:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661A109E5AAC441D7C672E1930CA46BA4112896D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595337   (175130) от 06.12.2022
-
-Cult Of Youth - With Open Arms (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blameless [00:04:28]
-02. Green Cross [00:02:58]
-03. Shadowforce [00:03:40]
-04. Flowers of Essence [00:04:10](   Читать дальше...   )Жанр: Post-Punk, Dark FolkПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E0FF8E88510DFBADBB2E9C95F3F550314CEACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344599   (175018) от 08.12.2020
-
-Rodrigo Y Gabriela - 11:11 (2010) [FLAC|Lossless|tracks + .cue] <Latin, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanuman
-02. Buster Voodoo
-03. Triveni
-04. Logos(   Читать дальше...   )Жанр: Latin, FolkПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D063AB5ADC9A5033DDB39C210273F82759648E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668166   (173691) от 12.10.2023
-
-Samantha Delight - Passionately Sexy & Sensual Jazz Music with Orgasmic Vocal (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexually Twisted (3:14)
-02. Ignite The Spark (3:25)
-03. Provocative Girl (3:35)
-04. Seductive Mind (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1A3E1D01D3694B969B777321FA0F886DD9ED22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668360   (173656) от 12.10.2023
-
-VA - Body Language: Hot Sexual Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexual Piano Jazz Collection - Body Language (3:31)
-02. Jazz Erotic Lounge Collective - Sink in You (3:52)
-03. Sensual Lounge Music Universe - Motel 69 (3:00)
-04. Sexual Piano Jazz Collection - Nasty Thoughts (4:33)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2C35EFA208592CD20A02860258E96B16C8DD9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

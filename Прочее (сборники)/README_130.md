@@ -1,3 +1,32 @@
+###  Публикация: 955684   (332517) от 12.11.2015
+
+VA - Popular November Hit (2015) [MP3|320 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332517.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Namika - Lieblingsmensch 03:09
+002. Charlie Puth (feat. Meghan Trainor) - Marvin Gaye 03:08
+003. Mark Forster - Flash mich 03:01
+004. Little Mix - Black Magic 03:33(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36660BF7B6F8E614B766EA7702D785729D2A5E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420513   (332356) от 01.11.2020
 
 VA - Лучшие из лучших Top 100 хитов радиостанций за Октябрь (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -718,35 +747,6 @@ VA - Disco Boogie Mood (2022) CD, Compilation [MP3|320 Kbps] <Synthpop, Disco, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30D8BC2A70EF754D15911BC82329E3F4CE6E592B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582512   (323008) от 09.10.2022
-
-VA - The Official UK Top 100 Singles Chart 07.10.2022 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith, Kim Petras - Unholy
-02. David Guetta, Bebe Rexha - I'm Good (Blue)
-03. Lewis Capaldi - Forget Me
-04. Eliza Rose, Interplanetary Criminal - B.O.T.A.(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CA2D21A775E8416347906A8F3206657217E4A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

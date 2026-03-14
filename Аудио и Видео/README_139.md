@@ -1,3 +1,32 @@
+###  Публикация: 907163   (639447) от 11.06.2015
+
+Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HBO Series) Season 5 (2015) [AAC|WEB-DL|256 кб/с]<Soundtrack>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:46)
+02. Blood of the Dragon (01:34)
+03. House of Black and White (05:09)
+04. Jaws of the Viper (02:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807B37FF48169F55E769E2130EE71DA905D7A5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228112   (639275) от 30.05.2018
 
 Точка невозврата / Beirut (High Wire Act) (2017) WEB-DL [1080p] ATV
@@ -652,35 +681,6 @@ Chasers / Конвоиры (1994) WEB-DL [1080p] ATV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3760D6855EF3467E0F1217ED2A45E7DCD6E26145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907747   (637301) от 12.06.2015
-
-Пающие Трусы - Караоке (2015) [AAC|256 кб/с]<Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Караоке
-02. Спортивный Интерес
-03. Красивый Конец!
-04. Гимн ЕВРО 2012(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C887821A79164A85A3DD5D94B4B82B829483A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1402130   (703936) от 13.08.2020
+
+Outland - Different Worlds (2003) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Varerie (03:59)
+02. Love Alive (04:04)
+03. Forever Yours (04:47)
+04. One More Night (03:35)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F9B115EC1D84A954024BEBE11E10E0173F7A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402240   (703811) от 13.08.2020
+
+Grand Design - V (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Away (04:12)
+02. I Won’t Cry Over U Tonite (04:24)
+03. Strandead (Trapped In A Heartbreak Zone) (04:45)
+04. Wut Are U Waiting For (04:52)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30252D0E461344B7FB463DD5B21B7D8E124FC6C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 672445   (702681) от 25.06.2013
+
+Kiss - Monster (2012) International Tour Edition / 2013, Universal / [FLAC|Lossless]<Glam Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_702681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Or Halleluja [4:07]
+02. Wall Of Sound [2:56]
+03. Freak [3:35]
+04. Back To The Stone Age [3:01](   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026474   (702507) от 16.06.2016
+
+Shotgun Revolution - All This Could Be Yours (2016) [FLAC|Lossless|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t Stop That Grind
+02. Rise To Power
+03. All This Could Be Yours
+04. Refugee(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A40A09720BE5829AEAB1B5295787004AFB7FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533815   (701382) от 26.02.2022
 
 Degreed - Are You Ready (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -634,122 +750,6 @@ Lionheart - 3 Studio Albums (1984-2020) 3xCD [FLAC|Lossless|image + .cue] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26E68D2748B6CF9B2DA95D32716B6A3C28DE67C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029241   (684048) от 25.06.2016
-
-Deep Purple - Deep Purple III (1969) K2HD HiQuality CD, 2011, Victor [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing Shadows
-02. Blind
-03. Lalena
-04. Fault Line(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D3FEEEF93ED6D71044473AE47277F7F5784F6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535473   (683973) от 07.03.2022
-
-Scorpions - Rock Believer (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скорпионы существуют уже более 50 лет не замедляя своего движения вперед, никогда не сдаваясь, и сохраняя свое безошибочно узнаваемое звучание почти нетронутым на протяжении самых разных десятилетий, через которые они прошли. Rudolf Schenker однажды сказал в интервью, включенном в документальный фильм World Wide Live, который сняли в 1985 году, что он никогда не (   Читать дальше...   )01. Gas In The Tank (3:41)
-02. Roots In My Boots (3:17)
-03. Knock 'em Dead (4:11)
-04. Rock Believer (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14EE59A057A1F4581809600C8B81BA81E30BE9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029342   (682589) от 26.06.2016
-
-Grand Slam - A New Dawn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Up The Sky
-02. Rock My World
-03. Face
-04. One Way To Heaven(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89EFF8CF23AB60A3A46BEB9A3BCE45452F438889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535848   (682505) от 08.03.2022
-
-Boxer - 3 albums (1975-1979) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одно из многочисленных пристанищ так и не нашедших себе постоянной гавани варягов Кийта Эллиса (ex-Van Der Graaf Generator, Juicy Lucy) и Тима Богерта (ex-Vanilla Fudge, Cactus, Jeff Beck Group). Небезынтересный коллектив, где лидером был талантливый органист Крис Стэйнтон. Но справляться с супергруппой (а именно таковой нужно считать Boxer) ему было непросто. Помимо (   Читать дальше...   )--------------------------
-
-01. Hey Bulldog (3:49)
-02. The Blizzard (3:19)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 01:59:52 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BDE16E2777D4D51B4A8DC9694F99E060AF36E99
 ```
 
 https://mybot314.ru/tekegram_catalog/

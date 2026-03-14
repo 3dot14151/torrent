@@ -1,3 +1,32 @@
+###  Публикация: 1099507   (905098) от 01.02.2017
+
+Jackie Gleason - The Romantic Moods Of Jackie Gleason (1996) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905098.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01|  Melancholy Serenade  (03:15)
+02|  The Best Is Yet To Come  (03:18)
+03|  I Can't Get Started  (03:26)Жанр: Jazz, Easy ListeningПродолжительность: 02:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE796DD78452E4550774B8B05191DE2BDC6449B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991936   (904555) от 29.02.2016
 
 Dizzy Reece - Soundin' Off (1960) 2003, Toshiba[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -716,35 +745,6 @@ Billy Cobham - Drum 'n' Voice - All that Groove (2001) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:896E9537364ACC079706F09018E40585C318AB93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100608   (899968) от 04.02.2017
-
-Nils Landgren with Janis Siegel - Some Other Time - A Tribute To Leonard Bernstein (2016) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture: America ( Bernstein, Leonard) 00:42
-02. Some Other Time ( Bernstein, Leonard / Comden, Betty & Green, Adolph) 05:17
-03. Cool ( Bernstein, Leonard / Sondheim, Stephen) 03:40
-04. Maria ( Bernstein, Leonard / Sondheim, Stephen) 03:13(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B191A7C71C53E55453D1FFF6CC9065962AFD3A46
 ```
 
 https://mybot314.ru/tekegram_catalog/

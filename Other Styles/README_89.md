@@ -1,3 +1,145 @@
+###  Публикация: 1302789   (577992) от 18.05.2019
+
+Gregorian - Masters Of Chant Chapter II (+bonus tracks) (2001) [FLAC|Lossless|image + .cue] <New Age, Ambient, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Moment Of Peace (4:22)
+ 02 - The First Time I Ever Saw Your Face (6:00)
+ 03 - In The Air Tonight (5:45)
+ 04 - Bonny Portmore (5:02)(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 01:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8C761DDC848ADC7C71C40DB819FB1675157458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150399   (577880) от 16.07.2017
+
+VA - Latino Fitness 2017 (The Ultimate Latin Keep Fit Workout) [MP3|320 Kbps] <Latin Music>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Los Reggaetronics – Limbo
+02. Alegra – She Wolf
+03. CDM Project – We No Speak Americano
+04. Boricua Boys – Zumba(   Читать дальше...   )Жанр: Latin MusicПродолжительность: 01:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED636F73E34A8E381A430355E1C1AFAF2B0FA01D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361322   (577200) от 10.07.2011
+
+Yogeshwara - 2 albums (1997, 2003) [MP3|112-256 kbps]<New age, Meditative, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New age, Meditative, MantrasПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED10BB6A1F21BDACDBA52DBFE66CC611FB7B4541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921143   (577161) от 24.07.2015
+
+VA - Simply Spa Chill (2010) 4CD[FLAC|image+.cue]<New Age, Meditative, Peaceful Relaxation, Tranquility, Eastern Chill>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже на AllMusic (что для портала совсем не характерно) не решились определить жанр этого сборника. Peaceful Relaxation, что означает в народе - полная расслабуха, думаю, очень даже подойдет. А в связи с приближающимися выходными так и просто очень актуально.01. Orient Expressions - Tranquility  (8:10)
+02. Memories of Goa - Dawn Meditation  (7:33)
+03. Beyond Bombay - Adagio  (8:36)
+04. Prem Gulshan - Relax  (6:28)(   Читать дальше...   )Жанр: New Age, Meditative, Peaceful Relaxation, Tranquility, Eastern ChillПродолжительность: 04:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B9581BFD6CDF8270D54151A2AF35025181C8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303112   (576311) от 19.05.2019
+
+Jamestown Revival - San Isabel (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576311.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Crazy World (Judgement Day) (04:40)
+2. This Too Shall Pass (04:29)
+3. Killing You, Killing Me (05:50)
+4. Who Hung the Moon (05:02)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B57AA23C5EB58C2F2821F2859A82ACA0DE49D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233991   (576179) от 02.07.2018
 
 Michael Forster - Piano Chill (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age, Modern Classical>
@@ -607,158 +749,6 @@ Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music f
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73A8F9004BD3D07D9C02ADFA08E034A490EC98F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922191   (571750) от 27.07.2015
-
-Piano Dreamers - Indie Pop Piano (2015) [MP3|320 кб/с]<New Age, Piano, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me to Church
-02. I Wanna Get Better
-03. Honey, I'm Good
-04. Come With Me Now(   Читать дальше...   )Жанр: New Age, Piano, ClassicalПродолжительность: 01:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F73CB54EE75B6F9254C1453E20C7E4E43740E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528602   (571042) от 29.07.2012
-
-Ennio Morricone - Once Upon A Time... (2 CD) (2007) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный вкус1. The Untouchables - Main Theme (2:23)
- 2. The Red Tent (3:37)
- 3. The Sicilian Clan (4:07)
- 4. Exorcist II The Heretic - Regan's Theme (2:39)
- 5. Moses The Lawgiver (3:53)
- 6. In The Line Of Fire (4:04)
- 7. The Thing (4:28)
- 8. Le Professionnel - Chi Mai (5:37)
- 9. Hamlet (2:38)
- 10. 1900 - Romanza (3:31)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483B8B611ABC34628E314A01BE99DBCC7A99078A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043605   (570801) от 17.08.2016
-
-Shelby Lynne - Just A Little Lovin' (2008) [FLAC|Lossless|image + .cue] <Folk, Country, Ballad>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just A Little Lovin' (5:21)
-02. Anyone Who Had A Heart (3:35)
-03. You Don't Have To Say You Love Me (4:13)
-04. I Only Want To Be With You (3:52)(   Читать дальше...   )Жанр: Folk, Country, BalladПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66FA2B120C8CD5C314CF0916D7CE9102E4D3AC88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303521   (570666) от 22.05.2019
-
-Vyanah - Zen Relaxation (2019) [MP3|320 Kbps] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ancient Spirit (5:08)
-02.Echoes of Life (6:24)
-03.The River of Wisdom (5:38)
-04.Silent Mind (4:40)(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007BD0616FE446106D698AFA5A11DAE3B435ACD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554702   (570367) от 03.06.2022
-
-TagTraumer - Zuviel ist nicht genug (2001) [MP3|320 Kbps] <Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tausend Tage
-02. Ich vermisse Dich
-03. Träumen und Hoffen
-04. Für immer(   Читать дальше...   )Жанр: Enigmatic, New Age
-Страна: GermanyПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD127F635E61401AF66D2935104CBD2BA1FE0EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

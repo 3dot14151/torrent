@@ -1,3 +1,38 @@
+###  Публикация: 599104   (999443) от 06.01.2013
+
+Butterfly - Favorite Colors Episode 065 (05.01.2013) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan Teague -  Prelude VI (Intro Original Mix)
+02. Matt Eray -  Downtown Lights (Original Mix)
+03. Second Way -  Vladivostok 7520 (Original Mix)
+04. Erick Strong feat. Anthya -  Out Of My Mind (Original Mix)
+05. Avi -  Mainstage (Original Mix)
+06. Alex M.O.R.P.H. feat. Shannon Hurley -  Monday Morning Madness (Original Mix)
+07. Broning vs Sean Truby & Solis -  Rokit (Original Mix)
+08. 4 Strings -  Out To Nowhere (Original Mix)
+09. Arys -  Barocco (Audiko Remix)
+10. Alter Future & Namek -  Winter Feeling (Felix Pot Remix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01225E4806FE5C64A8CD65F7C46BE60D7ECF042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599434   (999442) от 06.01.2013
 
 Фотография - Фотограф Miru Kim
@@ -712,34 +747,6 @@ Dismantled - Whole Wide World (EP)(2012) [MP3|320 kbps] <EBM , Industrial>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAC2C90EA5D7C6ED00C04B4D39F36C33B04EDEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599261   (999383) от 06.01.2013
-
-SUMo 3.4.17.192 [Multi/Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999383.jpg" />
-</div>
-
-
-###  Подробнее
-
-SUMo - программа, позволяющая отслеживать появление обновлений для различных установленных на компьютере программных продуктов. В случае, если после проверки находятся более новые версии ПО, выводится соответствующее сообщение и выдается ссылка на закачку новой версии. Есть конечно и большое количество альтернатив этой разработке, есть вроде даже в Windows встроенная система поиска, но по словам авторов она мало эффективна, так как допустим разработчик обновил версию своего ПО, но на сайте пока нет официальной информации, вы об этом не узнаете через стандартную утилиту, а SUMo выдаст вам новую версию моментально.
-
-Как только вы первый раз запустите программу, она предложит вам провести сканирование компьютера, соглашайтесь, после вам выдадут список программ, собственно на скриншоте это видно. Чтобы добавить свои программы в список, нужно просто нажать "Сканировать" или перетащить ярлык или сам исполняемый файл в окно SUMo. Тогда жмем обновить и программа ищет обновления. Все просто.Название программы: SUMoЯзык интерфейса: Multi/Rus
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,87 @@
+###  Публикация: 1273240   (137951) от 31.12.2018
+
+VA - Alpine Grooves X (Kristallhutte) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebastian Davidson - Golden Age (5:11)
+02. Yoni Yarchi, Tal Tager - Tel Aviv Morning (8:28)
+03. Tunnelvisions - Guava (Extended Mix) (4:29)
+04. Trinity & Beyond - This Dream (YokoO's Can Only Become Reality Remix) (6:39)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CAE218325FFB723F5F7413AAA0250DBBDC406D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679347   (137928) от 25.11.2023
+
+Double Touch & Wassu - Here For You (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C106882EE91B0E47C23AEF97AE1AACA3CDD809C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679424   (137822) от 25.11.2023
+
+Apashe - Antagonist (2023) [FLAC|Lossless|tracks] <Electronic, Breakbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - King (feat. Busta Rhymes) [2:48]
+02 - Catch Me [4:04]
+03 - Devil May Cry [4:12]
+04 - Human [4:00](   Читать дальше...   )Жанр: Electronic, BreakbeatПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941DA3ACBCAA3F1C873562A46D301E2C8060352C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601448   (137668) от 31.12.2022
 
 VA - Best of Clubsonica Records 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Melodic House & Techno>
@@ -643,93 +727,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDD43AF6F4E3930728B83794807835189BFA771A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823065   (112358) от 09.10.2025
-
-VA - Milk & Sugar House Nation Ibiza 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milk & Sugar, Topo La Maskara - La 9, Se 9 (Extended Mix) (5:06)
-02. Fuzzy Hair - Gotta Power (Extended Mix) (5:15)
-03. Capri - The Rhythm (Extended Mix) (6:01)
-04. Earth n Days - We Are Free (Extended Mix) (5:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE189F5751BDB68229445FFFD2FA859FC21430A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715311   (111529) от 12.04.2024
-
-VA - Bounced Up! (volume 16) (2023) [FLAC|Lossless|WEB-DL|tracks] <Scouse House, Bouncy House, Pop Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shabz and DJ Oskar – Everything I Do (original mix) (6:05)
-02. Sonic Sound and Dexi – 90's Baby (original mix) (3:36)
-03. Bounce Enforcerz – Move on This Love (original mix) (5:55)
-04. Stephen Belton – November Skies (original mix) (5:20)(   Читать дальше...   )Жанр: Scouse House, Bouncy House, Pop TranceПродолжительность: 01:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A695AEE2EB20FCB2FEB90E1342730A8B34C1C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715830   (111438) от 13.04.2024
-
-Alex O'Rion - Nostalgia (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex O'Rion – Elephant
-02. Alex O'Rion – Dank Farrik
-03. Alex O'Rion – Vale
-04. Alex O'Rion – Cellar Door(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A278B618B84F445E4880F372C9584594D3532AF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1427802   (182505) от 29.11.2020
+
+VA - Slow Down: Ibiza Grooves (2018) [AAC|~324 Kbps] <Lounge, Ambient, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_182505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Hartman - Falling Apart (5:09)
+02. Marco Moli - French Love Poem (5:08)
+03. Marco Moli - Just A Fool (3:18)
+04. Marc Hartman - Under My Skin (5:21)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE619F6FB42B919B911C4629A1C5596DB1BA67D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427661   (182500) от 29.11.2020
 
 Marc Hartman - Emission of Love (2016) [AAC|~348 Kbps] <Chillout, Trip-hop, Lounge>
@@ -716,35 +745,6 @@ VA - Trip to Munich Lounge: Chillout Your Mind (2020) [AAC|~320 Kbps] <Chillout;
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2217F6BCD417FA8C0E5D83057E207EEE97F04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428114   (180832) от 01.12.2020
-
-VA - Pop Vocal Lounge: Chillout Your Mind (2020) [AAC|~305 Kbps] <Chillout; Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - A Tu Lado (Original Mix) (4:06)
-02. Florzinho, Ma'deevah - Take Me Higher (Original Mix) (3:32)
-03. Man In A Room, Sanura - Thief of Time (Original Mix) (4:36)
-04. Mission Brown - Same Old Temptations (Original Mix) (4:34)(   Читать дальше...   )Жанр: Chillout; LoungeПродолжительность: 01:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5122005915D52B0DE0C30BF02346DB725A058D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

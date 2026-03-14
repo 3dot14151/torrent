@@ -1,3 +1,61 @@
+###  Публикация: 1094996   (927873) от 19.01.2017
+
+Rossington - Take It On Faith (2016) [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Highway of Love  (04:07) 
+02|  I Should've Known  (03:23) 
+03|  Take It On Faith  (04:51) 
+04|  Light A Candle  (03:04) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2E63F3946C8692F51E8A2D0584AC0C8C849F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987134   (927865) от 16.02.2016
+
+VA - Antologia polskiego bluesa cz.2: Nasi (z)zagranica (2009) [MP3|256 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Chalimon & Friends - Cold, Cold Feeling
+02. Schau Pau Acoustic Blues - Too Much Trouble, Everyday Blues
+03. Nocna Zmiana Bluesa - Lato 1993
+04. Street Blues - You Have No Mercy(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB46CAA67F481704A1DC5EC590CF2F502927E6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094856   (927806) от 19.01.2017
 
 Simon Kinny - Lewis (2015-2016) 2CD [FLAC|WEB-DL|Lossless|image + .cue] <Blues-Rock, Instrumental Fusion>
@@ -688,63 +746,6 @@ VA - Jazz Noir (2014) [MP3|320 кб/с] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:512D97616E845A8457A033C34864535785CFB314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366117   (925849) от 10.03.2020
-
-Ella Fitzgerald - Hallelujah! 1938 - 1941 (1995) Milan Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Tisket a Tasket [2:39]
-02. My Man (Mon Homme) [3:04]
-03. Darktown Strutters Ball [3:07]
-04. Wake Up and Live [2:40](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82BF6FF7351C0627BDFDF6B4704F87FE909A55A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366241   (925848) от 10.03.2020
-
-The Necks - Three (2020) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloom (21:18)
-02. Lovelock (22:48)
-03. Further (21:01)Жанр: JazzПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D46D969EECC7B86CC122B496173BB03690E9F11
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1714558   (60131) от 10.04.2024
+
+Inna - El Pasado (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Primera Vez [2:51]
+02 - Como Tu [4:00]
+03 - Enferma [3:43]
+04 - Hechizo [3:07](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E7604554F290879AA864C68E362C8B7E2B8C882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717263   (59196) от 19.04.2024
+
+Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fortnight (feat. Post Malone)
+02. The Tortured Poets Department
+03. My Boy Only Breaks His Favorite Toys
+04. Down Bad(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:480560598C47C100BDCC471AFB9A66DE644C5FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718214   (58809) от 23.04.2024
+
+Mylene Farmer - Remix XL (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Libertine (nit Remix)
+02 - Sans contrefaCon (The Magician Remix)
+03 - Pourvu qu'elles soient douces (Cut Killer & Prez Poney Club Remix)
+04 - Desenchantee (Arnaud Rebotini Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C964BC65ED898FD78366A267B1D14C2C71F3FB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719452   (58136) от 29.04.2024
+
+Rod Stewart - The Best Of The Great American Songbook (2011) Japanese Edition, Compilation, Reissue, 2024, Sony Music [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Ago and Far Away
+02. Someone To Watch Over Me
+03. They Can't Take That Away From Me
+04. Beyond the Sea(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760FC36355AC67D427DAAF03635645E28F6D8616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720298   (57743) от 03.05.2024
+
+Dua Lipa - Radical Optimism (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of An Era
+02. Houdini
+03. Training Season
+04. These Walls(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E01EE3DEED478132B29628516CBF07A95F1BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720302   (57742) от 03.05.2024
 
 Sia - Reasonable Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -600,151 +745,6 @@ Nancy Sinatra - Nancy In London (1995) Definitive Reissue, 2024, Boots Enterpris
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EC6848BAE21F3FB63AB4B327E278628A6D3F7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749058   (43675) от 13.09.2024
-
-Various Artists - 80s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Ha -  Take On Me - 3:49
-02. Tina Turner -  What's Love Got to Do with It - 3:50
-03. Starship -  Nothing's Gonna Stop Us Now - 4:30
-04. Pet Shop Boys -  Always on My Mind - 3:55(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 04:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA928CF13D61303458B5B6B729E37FFB207DBCE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749137   (43566) от 14.09.2024
-
-Kylie Minogue - Tension (2023) (Bonus Deluxe Edition) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Padam Padam [2:47]
-02 - Hold On To Now [3:58]
-03 - Things We Do For Love [3:10]
-04 - Tension [3:37](   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B904959F005A57D85AFA2907CBD225A1DCEA010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749491   (43561) от 14.09.2024
-
-VA - 00s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay - Viva La Vida
-02. James Blunt - You’re Beautiful
-03. Gym Class Heroes - Cupid’s Chokehold Breakfast in America
-04. Jason Mraz - I’m Yours(   Читать дальше...   )Жанр: Pop, Dance, Rock, RnBПродолжительность: 04:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC18D659DD81C8CE9DCE3EA3FFE7890D5506F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749523   (43557) от 14.09.2024
-
-VA - 10s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Shape of You
-02. Christina Perri - A Thousand Years
-03. Coldplay - A Sky Full of Stars
-04. Bebe Rexha - Meant to Be (feat. Florida Georgia Line)(   Читать дальше...   )Жанр: Pop, Dance, Rock, RnBПродолжительность: 05:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2CBDC22151A330B3DBDF101E1CE3B3AD56D835F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750249   (43144) от 18.09.2024
-
-Maite Kelly - Nur Liebe (2024) [FLAC|Lossless|image + .cue] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nur Liebe 02:31
-02. Das tut sich doch keiner freiwillig an 02:30
-03. Die Liebe hat ihren Plan 02:55
-04. Direkt nebenan 03:10(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E2AD4C6276476DC3EC5EB032014ABD47AFCAEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1089320   (950859) от 04.01.2017
+
+Hank Mobley - Dig Dis (1960) 2CD, 2011, Not Now Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950859.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Soul Station:
+01.Remember [05:43]
+02.This I Dig of You [06:26]
+03.Dig Dis [06:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384F13D3C9F2DF60256D34BB7D43C1F2B286023C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089329   (950790) от 04.01.2017
+
+Paul Smith - Brazilian Detour (1966) Remaster, 2013, Warner [FLAC|Lossless|tracks + .cue] <Cool, Bossa Nova, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.One Note Samba [02:48]
+ 02.Lullaby Of Birdland [02:40]
+ 03.Meditation [02:32]
+ 04.The Lamp Is Low [01:43](   Читать дальше...   )Жанр: Cool, Bossa Nova, Latin JazzПродолжительность: 00:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F381A3D6B8B7A95575A4E91A043F1E64A7FD98D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089753   (950789) от 04.01.2017
 
 Chico Hamilton Trio - Introducing Freddie Gambrell (1958) Remaster, 1991, Toshiba[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool, Piano Jazz>
@@ -688,64 +746,6 @@ Jack McDuff - The Re-Entry (1988) 2005, Savoy Jazz[FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03F0074C9B609430F62B684C14B65734C7666549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090507   (947719) от 06.01.2017
-
-Duke Jordan Trio - Two Loves (1973) 1990, SteepleChase[FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Subway Inn [08:12]
- 02.My Old Flame [08:46]
- 03.Blue Monk [05:15]
- 04.Two Loves [03:06](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF02E8A2211DCEA885C7786D40753B607A8BEA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090401   (947696) от 06.01.2017
-
-Cee Cee James, Seriously Raw - Live At Sunbanks (2010) Live [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Crossroad Blues  (05:03) 
-02|  I Ain't Superstitious  (04:48) 
-03|  Make It To The Other Side  (06:43) 
-04|  I Got A Right To Sing The Blues  (05:39) (   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3EAE3FE917887B8B6AED22DE1459E5AA478981
 ```
 
 https://mybot314.ru/tekegram_catalog/

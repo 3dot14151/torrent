@@ -1,3 +1,32 @@
+###  Публикация: 1171915   (394722) от 06.10.2017
+
+VA - Disco Chillout (2017) [MP3|320 Kbps] <Chillout, Lounge, Ambient, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skye Dream - Tranquil Living
+02. Dake - With All (Original Mix)
+03. Triangle Sun - Spaceship
+04. Drew feat. Angel Stoxx - Let Go (Deepjack & Mr.Nu Remix)(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, HouseПродолжительность: 05:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC02F0D676E078FA3C477F43A41CEDE22BBF1DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 568865   (394127) от 01.11.2012
 
 VA - Trance Hits Great 100% (2012) [MP3|320 кб/с]<Trance>
@@ -806,35 +835,6 @@ VA - Empire Records - Blue Line 8 (2017) [MP3|320 Kbps] <Dance, Club, Electro Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21DCD3948A4E29C7C7356500E49F525F07C1301F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173499   (389634) от 12.10.2017
-
-VA - Empire Records - House Clinic 2 (2017) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TJR - Time To Jack (Original Mix)
-02. Patrick Hofmann - Noon (Paul Vinx Edit)
-03. Integral - Custom
-04. Azurio - 4.1 (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DF10F025F4B7B09A13514F7759EFEB2F85B47B
 ```
 
 https://mybot314.ru/tekegram_catalog/

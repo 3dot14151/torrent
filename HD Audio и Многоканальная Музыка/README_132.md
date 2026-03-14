@@ -1,3 +1,148 @@
+###  Публикация: 1728992   (108165) от 09.06.2024
+
+LØLØ (LOLO) - falling for robots & wishing i was one (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. intro (0:55)
+02. omg (2:34)
+03. faceplant (2:42)
+04. 2 of us (2:47)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B9980A056A7015BC2C77FD1C8048788F3044ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728751   (108164) от 09.06.2024
+
+Ilya Serov - Colors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Champagne Sky (4:10)
+02. Beat of My Heart (4:05)
+03. Glow (4:21)
+04. Sea Breeze (3:58)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF01103F4B4D4E568D8B6916A6099EB30386A4BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728750   (108163) от 09.06.2024
+
+Ileana Mottola - Cool Life (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Travel (7:04)
+02. Night in Torino (5:31)
+03. Remember (4:06)
+04. Smile (5:20)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EE34E24AE8ED1463F70A7D9714CFF3150B8E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729021   (108161) от 09.06.2024
+
+Sons of Arrakis - Volume II (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic-Doom-Metal, Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scattering [00:03:47]
+02. High Handed Enemy [00:04:24]
+03. Beyond the Screen of Illusion [00:03:50]
+04. Interlude I [00:01:08](   Читать дальше...   )Жанр: Psychedelic-Doom-Metal, Stoner RockПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972FFE9922A6215FDB2795A19268874D4A534E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728950   (108157) от 09.06.2024
+
+Sant Andreu Jazz Band - Jazzing 14 Vol.2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Never Knew (6:10)
+02. When You're Smiling (3:39)
+03. The Nearness Of You (4:26)
+04. Chinatown My Chinatown (2:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE9109C618694F99C3FE981F869CEB3B4749C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728909   (108156) от 09.06.2024
 
 Krec - Сухой Закон (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
@@ -600,151 +745,6 @@ Blue Grooves Trio - Afternoon Cafe Jazz BGM (2024) [FLAC 24/44.1|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C40A633F3EBCD9CDB8E7045954E2D494DB5218FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729183   (108101) от 10.06.2024
-
-Big Head Todd and The Monsters - Her Way Out (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Her Way Out (3:42)
-02. Thunderbird (3:52)
-03. Crush (4:27)
-04. Don't Kill Me Tonight (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2039AAF71B8BC96E297E1C98A465B2865B449412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729290   (108099) от 10.06.2024
-
-Remedy - Pleasure Beats the Pain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crying Heart (4:17)
-02. Moon Has the Night (4:10)
-03. Sin for Me (4:06)
-04. Angelina (3:45)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1E78DB6437947B67F16D6DAC887C63D816EFB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729289   (108098) от 10.06.2024
-
-Liar Thief Bandit - ICON (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ultimate Sign (3:26)
-02. Death Pioneer (3:41)
-03. Dying Efforts (3:14)
-04. It All Goes Away in the End (3:22)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D6C3DFA01E361D46B413ADED7E7C4FAAEC98F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729159   (108097) от 10.06.2024
-
-Tony Hadley - The Mood I'm In (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch Me (2:55)
-02. Walk of Shame (3:02)
-03. Feeling Good (4:01)
-04. That's Life (3:09)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5909F39D77C3A1E5A6FF4106AC6391196837E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729255   (108096) от 10.06.2024
-
-Barry Manilow - Barry Live In Britain (Live at The Royal Albert Hall) (1982) Remaster, 2024, Arista - Legacy [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley: It's A Miracle / London (Live at The Royal Albert Hall) [00:05:47]
-02. The Old Songs Medley: The Old Songs / I Don't Wanna Walk Without You / Let's Hang On (Live at The Royal Albert Hall) [00:10:08]
-03. Even Now (Live at The Royal Albert Hall) [00:03:47]
-04. Stay (Live at The Royal Albert Hall) [00:03:44](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14EB67E16B5F7D6D2F20EE91DE44ADACC932A409
 ```
 
 https://mybot314.ru/tekegram_catalog/

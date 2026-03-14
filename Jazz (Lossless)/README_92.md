@@ -1,3 +1,90 @@
+###  Публикация: 1397034   (742743) от 18.07.2020
+
+Roy Eldridge - Three Classic Albums Plus (1954 - 1956) 2011, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742743.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I've Found A New Baby [9:19]
+02. I Can't Get Started [11:00]
+03. Trumpet Blues [7:57](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE40D7349BB836DE134DE085CA98EED594ACAF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397040   (742740) от 18.07.2020
+
+Franklin Kiermyer & Pharoah Sanders - Solomon's Daughter (1994) Evidence [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Die Before I Wake [14:53]
+02. Three Jewels [13:58]
+03. Akdemus [7:43]
+04. Peace on Earth [5:56](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D9411377920904AA2E316CA608117C7C096EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020401   (742513) от 28.05.2016
+
+Buddy De Franco - Sweet And Lovely (1956) Remaster, 2012, Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Getting A Balance [09:02]
+ 02.That Old Black Magic [06:44]
+ 03.They Say It's Wonderful [07:19]
+ 04.But Beautiful [04:39](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D287D7FFF7C1A07691ED7045DAF82B59D161EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020721   (742512) от 28.05.2016
 
 Ron Carter / Cedar Walton Duo - Heart & Soul (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -658,93 +745,6 @@ Ben Webster - My Romance (1965) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E63E1821B37563B3F9DDE37F3A5FFF6D36EFEB53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021356   (741084) от 29.05.2016
-
-John Patton - Boogaloo (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Boogaloo Boogie [05:29]
- 02.Milk & Honey [08:21]
- 03.Barefootin' [07:11]
- 04.Shoutin' But No Poutin' [07:47](   Читать дальше...   )Жанр: Jazz-Funk, Soul-JazzПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263CBD45E752A647A5533A84628BA5DE65A7D64C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021536   (741081) от 29.05.2016
-
-Dinah Washington - The Definitive Dinah Washington (2002) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evil Gal Blues (02:55)
-02. Embraceable You (02:56)
-03. New Blowtop Blues (02:38)
-04. Our Love Is Here to Stay (02:33)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B986A68C63B3557541516C4CF1CDAF25E1846D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021434   (741080) от 29.05.2016
-
-Charlie Rouse - Yeah! (1960) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You Don't Know What Love Is [06:32]
- 02.Lil Rousin' [05:06]
- 03.Stella By Starlight [06:22]
- 04.Billy's Blues [08:47](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBD04764F18450D072039DD9BFBDB15D6B6BE30
 ```
 
 https://mybot314.ru/tekegram_catalog/

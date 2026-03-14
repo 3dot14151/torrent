@@ -1,3 +1,96 @@
+###  Публикация: 939389   (476102) от 21.09.2015
+
+Gary Bartz - Episode One Children Of Harlem (1994) /Challenge/[FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Amos n'Andy Theme One & Spoken Intro [03:09]
+02.Tap Dancer [07:02]
+03.If This Isn't Love [10:40]
+04.Tico Tico [08:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FAEE87E7094124452D04512892725BB52B9B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546354   (476067) от 14.09.2012
+
+VA - Jazz Audiophile Voices (2010) [FLAC|Lossless]<Vocal jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lyle Ritz & Rebecca Kilgore - Sway [03:48]
+02. Pamela Luss with Houston Person - You Belong To Me [05:31]
+03. Niki King - The Very Thought  Of You [04:07]
+04. Janet Seidel - Spanish Harlem [04:30]
+05. Saskia Bruin - Estate [04:27]
+06. Lisa Lauren - And I Love Him [05:25]
+07. Todd Gordon & Jacqui Dankworth - If You Could Read My Mind [04:32]
+08. Joe Fagan Quartet - My Foolish Heart [05:00]
+09. Sarah Morrau - Both Sides Now [04:54]
+10. Alison Burns - Cry Me A River [04:59](   Читать дальше...   )Жанр: Vocal jazzПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939190   (476035) от 21.09.2015
+
+Kat Reinhert - Spark (2015) [FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Into The Rain
+02. Heavy
+03. Spark
+04. Paper Bag(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCED15038814C3709FDBF3FE7767C105447438F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939386   (476032) от 21.09.2015
 
 Thomas Chapin - I've Got Your Number (1993) /Arabesque Jazz/[APE|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
@@ -664,93 +757,6 @@ Charles Mingus & Jazz Artists Guild - Newport Rebels (1960) 2001, King Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AB9A849FE03F376679706F1EA9DE963213E70D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160797   (471988) от 26.08.2017
-
-Dave Brubeck featuring Paul Desmond - St. Louis Blues (1959, 1962) 2003, Jazz Selection [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Louis Blues [05:42]
-02. Nomad [06:13]
-03. Thank You [05:52]
-04. Brandenburg Gate [04:30](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439B811456EF5A63EEC6CCD195728FDD3747F8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940089   (471636) от 23.09.2015
-
-Jimmy Woods - Awakening !! (1961/1962) /1995, OJC/[APE|image+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Awakening [04:11]
-02.Circus [04:26]
-03.Not Yet [08:00]
-04.A New Twist [03:41](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1A18E1D9A62F328133FBFDDE37A6C39010F16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939724   (471633) от 23.09.2015
-
-Gil Evans Orchestra - Giants Of Jazz (1957-1959) /1994, Giants Of Jazz/[FLAC|tracks+.cue]<Post-Bop, Modern Big Band, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Manteca [05:20]
-02.'Round Midnight [04:05]
-03.Lester Leaps In [04:20]
-04.Django [08:07](   Читать дальше...   )Жанр: Post-Bop, Modern Big Band, CoolПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBFAA201AE3F9474A57DE324613ABFD3A1C62627
 ```
 
 https://mybot314.ru/tekegram_catalog/

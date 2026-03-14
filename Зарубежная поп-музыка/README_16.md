@@ -1,3 +1,61 @@
+###  Публикация: 1506586   (799482) от 01.11.2021
+
+VA - Retro Halloween 2021 (2021) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockwell - Somebody's Watching Me (3:55)
+02. Rick James - Super Freak (3:23)
+03. Aqua - Halloween (3:49)
+04. Oingo Boingo - Dead Man's Party (6:17)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 01:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3E9F3664C62DB37675B6551221EE9E02F8947B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506585   (799481) от 01.11.2021
+
+VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Demons (2:56)
+02. Jeremy Zucker - Ghosts (4:23)
+03. Ajsa Luna - Ocska Alkohol (4:20)
+04. BENEE - Evil Spider (2:32)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 02:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12B7720D3136EB19F7FCC92ACEEEFB4E5AD042B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273694   (799412) от 03.01.2019
 
 VA - EDM Rave Dance 2019 (2019) [MP3|320 Kbps] <Pop, Dance, House>
@@ -687,64 +745,6 @@ Marzio - Smoke On The Volcano (1980) LP [MP3|320 Kbps] <Electronic, Space Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:989E11D5CD52A30515DE4AAE9A8FD9DA42CFBACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509350   (794890) от 12.11.2021
-
-Ани Лорак - Я Жива (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794890.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Страдаем и любим
-2. Наполовину
-3. Не отпускай меня
-4. Раздетая(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126C22B8B9AD4359D3BD73EC2898DF108AC56E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200926   (794830) от 22.01.2018
-
-VA - Legends: Ministry Of Sound (2017) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794830.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Queen  -  A Kind Of Magic  4:23
-02.  George Michael  -  Faith  3:04
-03.  Elton John  -  Rocket Man  4:39(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 03:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E2F2A98FBF06EA151C6C680EF0DB554DD72986
 ```
 
 https://mybot314.ru/tekegram_catalog/

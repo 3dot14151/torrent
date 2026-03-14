@@ -1,3 +1,32 @@
+###  Публикация: 940738   (464889) от 26.09.2015
+
+VA - До утра (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Disco House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Groove Phenomenon, David Jones vs Flatdisk - September (DJ Max Maikon Mash-Up)
+02-Adriano Celentano - Amore (DJ Nil remix)
+03-Tom Jones - Sex Bomb (DJ Haipa & Rafaelle Remix)
+04-Tim Deluxe feat. Sam Obernik - It Just Won t Do (Badboys Brothers Bootleq)(   Читать дальше...   )Жанр: Club House, Disco House, DanceПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D320F9971A2B8D992520988219F72D30246D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940948   (464760) от 26.09.2015
 
 VA - Ultimate Sexy Beats Vol. 1 (2015) [MP3|320 кб/с]<Drum & Bass, Jungle>
@@ -728,35 +757,6 @@ VA - Лучшие хитовые треки в стиле Electro, Deep, Techno 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F37D53DBA960C2106F33732171F0474CF2E1F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941838   (460059) от 28.09.2015
-
-VA - Erotique Lounge (Finest Chill Out & Lounge Grooves Vol 1) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony Daxter - It's Raining Inside (05:06)
-02. Michael E - Look to the Sky (06:23)
-03. Kondencuotas Pienas & Ahbee - Evolution (03:08)
-04. Mirage of Deep - Hechizo de Luna (05:32)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FB8CAD1F164E7E11F9CBC68A00ADD85549A219
 ```
 
 https://mybot314.ru/tekegram_catalog/

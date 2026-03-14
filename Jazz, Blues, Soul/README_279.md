@@ -1,3 +1,206 @@
+###  Публикация: 1405653   (483373) от 30.08.2020
+
+Walter Trout - Ordinary Madness (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ordinary Madness (06:46)
+ 02. Wanna Dance (04:30)
+ 03. My Foolish Pride (05:55)
+ 04. Heartland (04:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A323CA59109967DE4DD317B9868A6B61422CC32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545731   (483342) от 11.09.2012
+
+Bo Wilson Band - Magic Man (1996) [APE|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Man
+02. Chevrolet
+03. I’m Tore Down
+04. Trick Bag
+05. Boogie Man
+06. Stormy Monday
+07. Don’t Take Advantage Of Me
+08. Statesboro Blues
+09. Shake The Room
+10. If You Have To Know(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545681   (483338) от 11.09.2012
+
+BlueShot - Crack the Seal (2006) [APE|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land of the Tall (Intro)
+02. It's so easy
+03. Train gone blues
+04. Hey baby (naked love)
+05. Crossroads (acustic)
+06. Crossroads
+07. Break down
+08. Indian blues
+09. Save me
+10. Home(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545442   (483125) от 11.09.2012
+
+Bobby Hutcherson - Wise One (2009) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бобби Хатчерсон (Bobby Hutcherson, род. 27.01.1941, Лос-Анджелес) - американский джазовый вибрафонист. Рос в Пасадене (Калифорния), с 8 лет играл на фортеапино. Перешел на вибрафон, услышав записи Милта Джексона. Учился у Дэйва Пайка, подрабатывая в местных клубах. Стал известным после записи с Эриком Долфи (Out To Lunch, 1964).01. Wise One :: 07:52
+02. Like Sonny :: 05:50
+03. Aisha :: 05:10
+04. Equinox :: 05:30
+05. All Or Nothing At All :: 06:58
+06. Nancy (With The Laughing Face) :: 04:36
+07. Spiritual :: 06:42
+08. Out Of This World :: 06:17
+09. Dear Lord :: 04:59Жанр: Jazz, Post-BopФормат: CD, AlbumПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545719   (483123) от 11.09.2012
+
+Bo Weavil - Split-Up Blues (2009) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mighty Long Time
+02. Home Sweet Home
+03. Keep On Puffin'
+04. Harmonica Stomp
+05. Goodbye Baby
+06. The End Of A Story
+07. You Gotta Move Away
+08. Zydeco Slide
+09. The Key To Yo' Door
+10. Can't Find No Way(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545759   (483122) от 11.09.2012
+
+Bob Brozman and His Thieves of Sleep - Blues 'Round the Bend (1995) [FLAC|Lossless]<Blues, World Music>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green River Blues
+02. Dream About My Gal
+03. Obvious Blues
+04. Black Stone Blues
+05. Devil Got My Woman
+06. Poor But Ambitious
+07. Music For Slow Surfers
+08. Bird Nest Bound
+09. Oua, Oua--A Hawaiian Chant
+10. Pony Blues(   Читать дальше...   )Жанр: Blues, World MusicПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319464   (482840) от 12.08.2019
 
 Bill Evans - 3 Essential Albums (1963 - 1967) 3CD, Universal, 2018 [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -578,185 +781,6 @@ Charlie Biddle - In Good Company (1996) Justin Time [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8698ABE12B2E2F273ADF4082D93790C5244FD06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545954   (480622) от 12.09.2012
-
-Michel Petrucciani - Best Of - 3CD (2009) [FLAC|Lossless]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Forgotten Magic Words (5:20)
-02. Pot Pourri (14:17)
-03. Say It Again And Again (9:50)
-04. To Erlinda (11:28)
-05. Morning Blues (8:20)
-06. Bimini (10:17)
-07. Contradictions (4:24)
-08. Looking Up (8:08)
-09. Le Bricoleur De Big Sur (3:25)Жанр: Post-Bop, Piano JazzПродолжительность: 03:37:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566668   (480558) от 30.07.2022
-
-Luiz Camporez - Standart Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trabalho, Álcool E Cafeína (5:09)
-02. Waking Life (5:02)
-03. Standart Blues (5:40)
-04. Illusions and Memories (8:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2D5F159C99519B3BAA1A80A0B2CDFAA331904F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566667   (480557) от 30.07.2022
-
-Lars Kutschke - While We're Here (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelsea Morning (4:32)
-02. I Want My Baby Back (4:51)
-03. Denise And The Nephew (6:08)
-04. Hummingbird (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA90308580A7D2FCCBF0704E1EA3998897FECCA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566664   (480550) от 30.07.2022
-
-Jaya Blues Band - Pesta (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lockdown Blues (3:32)
-02. Painted Angels (4:34)
-03. Another Way (5:39)
-04. Pesta (5:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745DFDFDC1609F4A1482DB7798B67A2CFDC7224C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566671   (480546) от 30.07.2022
-
-Lyle Odjick and The Northern Steam - Through the Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery Train (1:56)
-02. Cut Me Loose (3:25)
-03. Leaving Trunk (4:14)
-04. I Wanna Hold You (6:06)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC36AD8C481C49CFC421E98825575CCB6A219BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566677   (480544) от 30.07.2022
-
-Pierce - The Slide Session (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wishful Blues (3:43)
-02. Foolin' (3:24)
-03. Make it Right (3:34)
-04. Adore Me (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE98E10CA1E8637AA1E605AFFFB7EED72922EBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

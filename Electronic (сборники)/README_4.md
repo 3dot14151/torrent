@@ -1,3 +1,32 @@
+###  Публикация: 1447134   (1032101) от 12.02.2021
+
+VA - Favorable Surprise: Chill Ambiente Mix (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тотальный релакс и наслаждение, вот так можно охарактеризовать музыку сборника "Favorable Surprise". Пластинка имеет релакс атмосферу, которая буквальным образом может погрузить вас в глубокий транс. Очень положительный факт, что на альбоме, в некоторых треках, присутствует вокал, который лучшим образом внес свою лепту в разнообразие работы.001. Al-Faris - Let It All Out
+002. Temex E - Enough
+003. Mary Lattimore - Til A Mermaid Drags You Under
+004. Muzammil Yousuf - Happiness(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 07:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C399BD7E59EF4BE5EE310CC19C95DBE41AD6B44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447128   (1032094) от 12.02.2021
 
 VA - Love Juice: Naked Bass Party (2021) [MP3|320 Kbps] <D&B, Bassline>
@@ -716,35 +745,6 @@ VA - Organic EDM Dance Party (2021) [MP3|320 Kbps] <House, Dance, Club, Techno, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:500A5A57B9ED3D2B3F6CD7C62F6D484D1AF1A85F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451525   (1028241) от 03.03.2021
-
-VA - Melodic Synthpop Release (2021) [MP3|320 Kbps] <Synthpop, Electropop, Pop Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это музыкальное направление, ежегодно дарящее миру новых звезд, без которых невозможно представить себе современную эстраду. Особенность этой музыки это эксперимент и отсутствие строгих рамок и шаблонов. Порой это чувственные и трепетные композиции, порой ритмичные и танцевальные.001. Golin - Play Odds
-002. Elektrotechnika - Olivia
-003. Mondtraeume - Free
-004. Stephen Paul Taylor - Gdmf(   Читать дальше...   )Жанр: Synthpop, Electropop, Pop DanceПродолжительность: 11:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6CD5BE6D5C182A23BF96BAB04FE4E9D0C675B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

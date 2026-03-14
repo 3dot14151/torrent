@@ -1,3 +1,177 @@
+###  Публикация: 1819146   (1771) от 20.09.2025
+
+Special Hot Sauce - Go Get Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Go Get Gone (3:13)
+02.  Little Pretty Baby (2:32)
+03.  Wanna Keep You (4:07)
+04.  I Like Your Style (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48C85FD4FC388432A84A529C7D3C054964D6219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819136   (1769) от 20.09.2025
+
+Piper and The Hard Times - Good Company (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Good Company (3:57)
+02.  Now I'm Lovin' You (4:13)
+03.  Tear It Down (5:15)
+04.  Cowboy Gucci (3:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FC19E658570FF4F6737C9412BD722FC2AC23CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819072   (1767) от 20.09.2025
+
+Mike Zito & Albert Castiglia - Help Yourself (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help Yourself
+02. Can’t Be A Prophet
+03. Alive
+04. Soulard Serenade(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD128E59560989EBC81A67832FB690C8E4B5E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819491   (1431) от 22.09.2025
+
+Chet Baker - The Italian Sessions (1962) 1996, RCA-Victor [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Well You Needn't [6:25]
+02. These Foolish Things [4:59]
+03. Barbados [8:31]
+04. Star Eyes [7:02](   Читать дальше...   )Жанр: CoolПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802DA72BA5BA9CC82CFEB8ADCFEF4A786790AEEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819599   (1268) от 23.09.2025
+
+Hank Mobley - Three Classic Albums Plus (1956) 2CD, 2016, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Are The Things I Love [6:41]
+02. Message From The Border [6:07]
+03. Xlento [5:41]
+04. The Latest [5:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCDBA56FDC348DD3310A62ED993CB6588BCDBC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819967   (957) от 25.09.2025
+
+Lennie Tristano And Warne Marsh - Intuition (1956) 1996, Capitol Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smog Eyes [3:34]
+02. Ear Conditioning [5:16]
+03. Lover Man [4:30]
+04. Quintessence [4:16](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D11001D856D1D9ED5229B23F22720096F63088A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067590   (129) от 29.09.2025
 
 Wes Montgomery - Movin': The Compete Verve Recordings (1964-1968) 5CD, 2011, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>

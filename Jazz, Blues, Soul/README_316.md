@@ -1,3 +1,177 @@
+###  Публикация: 1171319   (396783) от 04.10.2017
+
+Miroslav Vitous - Infinite Search (1969) 1998, EastWest [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom Jazz Dance [10:54]
+02. Mountain In The Clouds [01:51]
+03. Epilogue [07:04]
+04. Cerecka [02:48](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B166F142857B173A24005E6E3CD1E2A6AA4EAB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171305   (396715) от 04.10.2017
+
+Jan James - Calling All Saints (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm A Gambler (04:50)
+02. Roll Sweet Daddy (04:04)
+03. Heart Of The Blues (04:28)
+04. Losing Man (06:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9745F95F1646FDA5A8F91026A564D125D1E2C07B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171283   (396625) от 04.10.2017
+
+VA - Dinner Jazz: Verve 50 (2013) [MP3|320 Kbps] <Jazz,Jazz Fusion,Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bill Evans - Alfie (5:02)
+02. Gerry Mulligan - Big City Blues (5:42)
+03. Art Blakey & The Jazz Messengers - Gee Baby, Ain't I Good To You (4:58)
+04. Wes Montgomery - End Of A Love Affair (3:44)(   Читать дальше...   )Жанр: Jazz,Jazz Fusion,Smooth JazzПродолжительность: 03:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7552018F18147ED766516235940EEEBD2E658446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171627   (395821) от 05.10.2017
+
+John Handy - Mosaic Select 35 (1965 - 1968) 3CD, 2009, Mosaic Records [FLAC|Lossless|tracks + .cue] <Post-Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395821.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. If Only We Knew [26:54]
+02. Spanish Lady [19:32]
+03. Dancy Dancy [05:33](   Читать дальше...   )Жанр: Post-Bop, World FusionПродолжительность: 03:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDEA3767F0665D0B867F03EE8C0516B38815B3CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171624   (395815) от 05.10.2017
+
+Erik Soderlind - Twist For Jimmy Smith (2009) Prophone Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wiwes and Lovers [05:10]
+02. Close Your Eyes [06:43]
+03. Polka Dots and Moonbeams [06:15]
+04. Mr C. [05:26](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDCF439F3B2994A7E69AF6496067FA88B7C78CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171717   (395762) от 05.10.2017
+
+Bria Skonberg - With A Twist (2017) Sony Music/Okeh [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Baby Just Cares For Me [03:06]
+02. Sway [03:15]
+03. Alright, Okay, You Win [03:19]
+04. Cocktails For Two (Quintet Version) [03:21](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C31C36E6555604877FBD0C407DC374889EE08D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171882   (394929) от 06.10.2017
 
 Chris Barber's Jazz Band - he Original Copenhagen Concert, Odd Fellow Palæet, 1954 (1995) Storyville Records [FLAC|Lossless|tracks + .cue] <Dixieland, Revival>
@@ -589,185 +763,6 @@ Jonathan Poretz - A Lot Of Livin' To Do (2006) ArtFlo Productions [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:783DA7EBAF2D1431610AA3A8FB5244ABBDDB27BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173303   (390650) от 11.10.2017
-
-Kuh Ledesma - Unforgettable (1986) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fascinating Rhythm [02:57]
-02. It Had to Be You [03:59]
-03. Too Marvelous for Words [03:19]
-04. Singing in the Rain [03:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7998FC6C56576B702BB33392AE3E8187928FDB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173298   (390621) от 11.10.2017
-
-Quincy Jones - Complete Recordings 1960-1962 (2014) 4CD, Enlightenment Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390621.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Pleasingly Plump [02:18]
-02. G'Wan Train [06:22]
-03. Moonglow [02:50](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Pop, Big BandПродолжительность: 04:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8FADC3FC07E3217750831C36CAF4AF10FFE417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 151048   (390544) от 07.11.2009
-
-Paul Brown - The City (2005) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Monkey 04:37
-02. Hello Again 03:58
-03. Side Steppin' 03:35
-04. The City 05:01(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173583   (389783) от 12.10.2017
-
-Eddie Heywood - 1944-1946 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just You, Just Me [03:14]
-02. Save Your Sorrow [01:43]
-03. Begin The Beguine [03:24]
-04. Blue Lou [03:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A9FD435C96F4AE803701CE75C0E670BC29CAF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173589   (389781) от 12.10.2017
-
-James Carter - Gardenias for Lady Day (2003) Columbia [WavPack|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gloria [06:02]
-02. Sunset [05:25]
-03.Жанр: Post-BopПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B726404DEE5710D55CDAC84A498DB866CFC78D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570847   (389404) от 06.11.2012
-
-Burton Gaar - Fried Grits & Greens (2011) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fried Grits & Greens
- 02. Last Train To Memphis
- 03. Trouble
- 04. Drowning In the Blues
- 05. One Step Away
- 06. Sugarfied
- 07. Turn Around
- 08. Wake Up and Watch me Leave
- 09. So Over You
- 10. Strung Out On the Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 52:37
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

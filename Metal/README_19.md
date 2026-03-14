@@ -1,3 +1,32 @@
+###  Публикация: 1371006   (893689) от 29.03.2020
+
+Aevum - 3 Albums (2014-2020) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Pilgrim [00:03:57]
+02 - Spark of Life [00:04:26]
+03 - Tair [00:04:24]
+04 - Black Honeymoon [00:04:14](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 02:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6FC6AA13B40ACFB9272EF494F7D3B6B7662F22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101827   (893078) от 08.02.2017
 
 Hasswut - Falsch! (2017) 2CD [MP3|320 Kbps] <Industrial Metal, Industrial>
@@ -716,35 +745,6 @@ Ocean Of Sin - Lie Goes To Hell (2014) EP [MP3|320 кб/с]<Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C75BDF5B0CB59C61AC5296AF16F0403B6EC556D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995149   (886176) от 10.03.2016
-
-Killswitch Engage - Incarnate (2016) Deluxe Edition [MP3|320 кб/с] <Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone I Stand (04:30)
-02. Hate By Design (03:47)
-03. Cut Me Loose (03:02)
-04. Strength Of The Mind (03:47)(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A314DD606C5233ED980D45F730BCA894FF8EB9CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

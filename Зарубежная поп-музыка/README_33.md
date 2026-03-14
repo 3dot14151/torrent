@@ -1,3 +1,61 @@
+###  Публикация: 905803   (645527) от 08.06.2015
+
+Sister Crayon - Devoted (2015) [MP3|320 кб/с]<Trip-Hop, Dream Pop, Indie>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armor (2:29)
+02. Devoted (3:11)
+03. Ride / Die (3:27)
+04. Into Solemn Hymns (3:42)(   Читать дальше...   )Жанр: Trip-Hop, Dream Pop, IndieПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C747A00B2DD446D5EC82D8D3C803EF5F309570AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292618   (645286) от 30.03.2019
+
+Rick Van Der Linden - GX 1 (1977) LP [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GX 1 (4:28)
+02. Mystic Eyes (3:42)
+03. Double Flute X 2 (4:18)
+04. Clouds (3:28)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D24FA9D6A7859E9CD60498A56DD67FE23AA3F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292676   (645191) от 30.03.2019
 
 VA - Radio Italia Spring (2019) [MP3|320 Kbps] <Pop>
@@ -684,64 +742,6 @@ Nate Ruess - Grand Romantic (2015) [MP3|320 кб/с]<Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4DD3CD62BC93AEA8CD476307BAC26C013BE5BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033448   (638138) от 11.07.2016
-
-VA - The Best Ever: Summer (2016) [MP3|320 Kbps] <Disco, Pop, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icona Pop feat. Charli XCX – I Love It 02:34
-02. Rudimental feat. John Newman – Feel The Love 03:37
-03. B.O.B – So Good 03:29
-04. CeeLo Green – Forget You 03:41(   Читать дальше...   )Жанр: Disco, Pop, RnBПродолжительность: 01:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8298CB61C08C0712E7DC532819273D246C3BE64F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907579   (637987) от 12.06.2015
-
-Hilary Duff - Breathe In. Breathe Out. (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sparks
-02. My Kind
-03. One in a Million
-04. Confetti(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678F22A85D0D66E2A177ECC0EB13800EA10C61F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

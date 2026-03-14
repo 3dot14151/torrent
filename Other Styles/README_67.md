@@ -1,3 +1,148 @@
+###  Публикация: 1028206   (692960) от 21.06.2016
+
+Jupiter Panic - Distant Tomorrow (2016) [MP3|320 кб/с] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distant Tomorrow Part 1
+02. Distant Tomorrow Part 2
+03. Descension
+04. Anti-Gravity(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19563F5FF36B82E55A07B5C646BEE6619C3E2906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027967   (692757) от 21.06.2016
+
+Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vietnam War IV (01:41)
+02. Trials of the Blood Dragon (03:37)
+03. Bullet Proof (01:51)
+04. Punch! (02:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5778E878E013AE1F84588F108EF4562F755BDEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851794   (692081) от 19.08.2020
+
+Inkuyo - Window to the Andes (1998) [FLAC|Lossless|image + .cue] <New Age, Folk, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692081.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Cumbres Andinas (Andean Peaks)	4:19
+2.	En Solidaridad (In Solidarity)	5:32
+3.	Brisca Tropical (Tropical Breeze)	3:56
+4.	Huari Vicuna (Wild Vicuna)	3:08(   Читать дальше...   )Жанр: New Age, Folk, WorldПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB0741F796A07CE54BD08F589B7F7044BE998BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 215845   (691919) от 19.08.2020
+
+VA - Beautiful Moments (1991, 1994) 2 CD [APE|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691919.jpg" />
+</div>
+
+
+###  Подробнее
+
+1991 -  Beautiful Moment
+01. Leif Strand - Taurus    		(04:37)
+02. Kit Watkins - Moon Watching Me    	(03:30)
+03. Quiet Force - Listen To The Music   (04:15)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063693CCBA35BCAB211422F4B5892F946ADB6900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332190   (691821) от 08.05.2011
+
+OST Лара Крофт: Расхитительница гробниц 2 - Колыбель жизни / Lara Croft Tomb Raider: The Cradle of Life  [MP3|320 Кбит/сек]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davey Brothers - Heart Go Faster (3:31)
+02. Filter - The Only Way (Is The Wrong Way) (5:15)
+03. Alexandra Slate - Bad Girl (3:35)
+04. P.O.D. - Satellite (Oakenfold Mix) (4:52)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79523775D98041DAF050792D56C4EB18C6A353A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134034   (691549) от 14.05.2017
 
 Brian BecVar - Once In A Life (1994) [FLAC|Lossless|image + .cue] <New Age, Neo-Classical>
@@ -612,157 +757,6 @@ VA - Aroma Therapy. Complete 10 CD Collection (2006) [FLAC|Lossless|tracks] <Rel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE7AFDEB9D4EDE11417394F7BF229AC319F9F3D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505071   (689597) от 05.06.2012
-
-Юлия Славянская - Всем Россию любящим (2012) [MP3|320 кб/с]<Православная популярная музыка>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689597.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Всех, Россию любящих
-2. Белый Ангел
-3. Так дано много
-4. Молитва Царской Семьи
-5. Что ни день - то новое паденье...
-6. Подъезжали мы под село
-7. Легенда о Царе-мученике
-8. Снежинка и Бог
-9. Светлый день
-10. Завещание матери(   Читать дальше...   )2012Жанр: Православная популярная музыкаПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133880   (689378) от 15.05.2017
-
-Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия любви (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 26 rue Commines, Lyon (01:55)
-02. La fuite (01:22)
-03. Gabrielle (01:18)
-04. Un nouveau depart (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA6006CE1AC69FC937B34D9880542C3E5012B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134211   (689374) от 15.05.2017
-
-Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lovers (Intro & Title) (03:04)
-02. Tell Her! (01:22)
-03. Lying to Lucy (01:38)
-04. Do You Want Some? (01:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD17FD3368519A9C313E061DC867BF8EBC8384F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221861   (689307) от 27.04.2018
-
-ЕVгеника - Оренбургский пуховый платок (2017) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оренбургский пуховый платок (3:11)
-02. Ой, мороз (2:27)
-03. Ивушки (3:53)
-04. Виновата ли я (2:02)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A513F90EE009DC39A6B8E6AAF714CE29DAF2A2E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133882   (689250) от 15.05.2017
-
-Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия любви (Original Soundtrack) (2016) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 26 rue Commines, Lyon (01:55)
-02. La fuite (01:22)
-03. Gabrielle (01:18)
-04. Un nouveau depart (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BDC8FAA24475A1BB872C109DB48965368A6F1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

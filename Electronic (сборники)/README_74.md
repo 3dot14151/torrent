@@ -1,3 +1,32 @@
+###  Публикация: 1283475   (739724) от 17.02.2019
+
+VA - The Heart Of The City (2019) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739724.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Manuel Rocca Feat. Charmy - Heat Of Love (Original Mix)
+002. Abstract Vision Pres. Subbota - Noonday Shadows (Extended Mix)
+003. Accado - Remedy (Extended Mix)
+004. Daniel Garrick - Alive(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A7F4310542C20E33DDDA3BAFE7B7E13C46DFE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283403   (739672) от 17.02.2019
 
 VA - Record Super Chart 574 (2019) [MP3|320 Kbps] <House, Club, Dance>
@@ -716,35 +745,6 @@ Inverted World - это буйство прогрессивного транса
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:967C21E8E0FA5C8D69547B3CC9687B38556B3198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527502   (736410) от 29.01.2022
-
-VA - Prismenraum: Synthpop Music Compilation (2022) [MP3|320 Kbps] <Synthpop, Electropop, Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка, которая создана под влиянием одного из наиболее значимых жанров прошедшего десятилетия! Композиции лонгплея «Prismenraum» сочетают в себе современные техники, поп-музыки с Synthwave, Dream Pop, Synth Pop и классическим звучанием 80-х. Послушайте это с вниманием к музыкальным деталям, и вы поймете, почему такая музыка пока что остается самой слушаемой.001. Annie - Annie's Love Theme
-002. Tears For Fears - My Life In The Suicide Ranks
-003. Nate feat. Ljai - Season Of You
-004. Future Synth - Stay With Me(   Читать дальше...   )Жанр: Synthpop, Electropop, DiscoПродолжительность: 09:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F12876CE5000E66248587EED254EFA845E9582
 ```
 
 https://mybot314.ru/tekegram_catalog/

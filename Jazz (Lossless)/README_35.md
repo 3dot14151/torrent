@@ -1,3 +1,32 @@
+###  Публикация: 1489434   (925545) от 16.08.2021
+
+Rod Tate - Back Together (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise (4:45)
+02. Chillin' with Li Li (5:58)
+03. Seaside Resort (5:32)
+04. United (4:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5451DF1F45665DD4E7DFB03311E689B608F6F7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095651   (924646) от 21.01.2017
 
 Dodo Marmarosa - Dodo's Back! (1961) Remaster, 2007, Universal[FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
@@ -725,35 +754,6 @@ Abe Rabade Trio - Versons (2013) Karonte[FLAC|Lossless|tracks + .cue] <Modern Cr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:962F5E72BE35BE2011C796574FF878D04364D259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096271   (921112) от 23.01.2017
-
-Abe Rabade Trio - Once (2016) Karonte[FLAC|Lossless|tracks + .cue] <Modern Creative, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Bruxa [07:34]
- 02.Tule [05:50]
- 03.Transito 5, Meditacion E Danza [07:55]
- 04.Once In A While [04:07](   Читать дальше...   )Жанр: Modern Creative, Piano JazzПродолжительность: 01:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11A2766B83370B556A94C0F1FF6DFD1D8DEC0B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

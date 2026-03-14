@@ -1,3 +1,61 @@
+###  Публикация: 1852968   (1056295) от 10.02.2026
+
+VA - Winter Dance Hits 2026 (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umut Torun - Rose (3:08)
+02. Kanette - Gates (3:17)
+03. Cristian Ferrer - Careless Whisper (Radio Edit) (3:21)
+04. Decibel Dreams - Heaven (3:18)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B40051A4166C04DBC30DA8E8A2F4711CDE2127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852829   (1056209) от 09.02.2026
+
+VA - Chill House Classics (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Casablanca (5:55)
+02. Anton Ishutin - Summer Jam (6:52)
+03. Anton Ishutin - D.N.A (5:36)
+04. Sharapov - Keep On Rising (5:25)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246424FFD2EE4CBBB8CFCAB046CC8650DE52DC55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852529   (1056163) от 08.02.2026
 
 Rigooni - Serenade (2020) [FLAC|Lossless|tracks] <Deep House, Organic House>
@@ -685,64 +743,6 @@ Boundless - 100Sec to Midnight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C6394930EFE1FA6FD13A38112EAE41141838B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606789   (1044301) от 23.01.2023
-
-VA - Black Hole House Music 01-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Will Atkinson, Gary Go -  If I Spoke Your Language (Grum Extended Remix)  (6:16)
-02.  Michael Feiner -  Follow (Club Mix)  (3:39)
-03.  Siskin -  Always You (Extended Mix)  (8:48)
-04.  BetweenUs, VJS -  Floating (Extended Mix)  (5:14)(   Читать дальше...   )Жанр: EDM, Club HouseПродолжительность: 02:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F1770163F069F9DFE3CA8BFE3D3D8A1D0CAAA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607194   (1044162) от 25.01.2023
-
-Dj Nikk - The Millenniummmix (2000) [FLAC|Lossless|tracks + .cue] <House, Hard House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mac Zimms - Ancient Myth [6:28]
-02. Nether Man - Made To Move [4:09]
-03. Phlash - Under My Control [5:42]
-04. ID - ID [5:52](   Читать дальше...   )Жанр: House, Hard House, TranceПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CEE52F090F6665B1AECC474F2D4123F8F93CA43
 ```
 
 https://mybot314.ru/tekegram_catalog/

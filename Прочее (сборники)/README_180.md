@@ -1,3 +1,38 @@
+###  Публикация: 469684   (82825) от 18.03.2012
+
+VA - Hot Break Dance 2CD (2012) [MP3|320 кб/с]<Break Dance, Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dazz Band - Joystick (Re-Recorded Remastered)-Pbs
+02. A Tribe Called Quest - Can I Kick It
+03. Dizzee Rascal Feat. Calvin Harris & Chrome - Dance Wiv Me (Agent X Remix)
+04. DJ Jox - Code Darkness
+05. Homeboy Hippie & A Funky Dread - Total Confusion
+06. Sl2 - DJ's Take Control 2012
+07. Lazy L - Raider Maider-Pbs
+08. Flash Back Project - Ease The Pressure
+09. H - What's It Gonna Be (Jamie Duggan Meets Da Booda Refix)
+10. No Break - Factory Of Sensations2012Жанр: Break Dance, Hip-HopПродолжительность: 04:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0456EA8A89CDD2EB05E8612549B4A4977FCA79A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466659   (81645) от 12.03.2012
 
 VA - Клубная Музыка Дискотек Марта (2012) [MP3|192 кб/с]<Клубная, танцевальная, поп>
@@ -731,35 +766,6 @@ VA - Music News vol.354 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:835EFE761B426463F335BC44F2340960AEF1591C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709073   (62037) от 23.03.2024
-
-VA - ЕвроХит Топ 40 Europa Plus 22.03.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - Yes, And (3:35)
-02. Моя Мишель - Ветер Меняет Направление (2:46)
-03. Alan Walker feat. Daya - Heart Over Mind (3:09)
-04. Justin Timberlake - Selfish (3:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DC26CC3B00EB22C86B1EC079C32A51E8E21095
 ```
 
 https://mybot314.ru/tekegram_catalog/

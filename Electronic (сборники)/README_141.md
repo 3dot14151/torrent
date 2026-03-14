@@ -1,3 +1,32 @@
+###  Публикация: 1408580   (453775) от 13.09.2020
+
+VA - Record Super Chart 653 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bastard! - F..k That (3:38)
+02. DaBro - Юность (3:39)
+03. twocolors - Lovefool (3:10)
+04. DJ Smash feat. Poët - БЕГИ (3:06)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95B2AC3237EACA034A1071FF97ECA449B14460C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060654   (453722) от 08.10.2016
 
 VA - Autumn Chillout Journey 2016, Relaxing Mix (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -742,35 +771,6 @@ VA - Oriental Deep (2022) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A7D4CDF0B60AF7C4D65F230D725304C41982DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061539   (449008) от 10.10.2016
-
-VA - BacauHouseMafia Vol.13 (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449008.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.2pac - Changes (Lowderz Remix) (05:15)
-002.4 Strings & Cathy Burton - Safe In The Storm (Original Mi (05:40)
-003.A.R.D.I & Linnea Schossow - Your Everything (Extended Mix) (06:17)
-004.Aaliyah - If Your Girl Only Knew (Scisso (03:09)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Progressive HouseПродолжительность: 18:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2590B390053C8D4B212AD9BAD88B822448831B9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1495851   (875853) от 15.09.2021
+
+Chris Rea - Blue Guitars I - Beginnings (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West Africa (Instrumental) (4:16)
+02. Cry for Home (4:58)
+03. The King Who Sold His Own (5:18)
+04. White Man Coming (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F35CAD665344243C07F750F313CE69D33FBF3538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495947   (875833) от 15.09.2021
+
+Akkerhaugen Raid - Nite Owl Method (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Halfway There (4:43)
+02. Part Time Lover (4:43)
+03. Something About the Way She Walks (3:43)
+04. One More Night with Her (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8BF0EAF97F4E9CA86B31338540241817CB6C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495984   (875831) от 15.09.2021
 
 Bluhauz - Bluhauz (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -687,64 +745,6 @@ Chris Kramer - Unterwegs (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4521E72787DA241D23F70A4E123C0673AC91CFBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495998   (874481) от 16.09.2021
-
-Cottonmouth - Illusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravel Road (4:14)
-02. Wars (3:43)
-03. Wish I Didn't Know (5:15)
-04. The Past (2:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71D6D156BB8E91E73016F1140FBCE1EA96205BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495996   (874477) от 16.09.2021
-
-Cobalt County Vandals - Two Ain't But Twice (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Groove (4:16)
-02. Yellow Bricks (4:48)
-03. Krell (3:28)
-04. Cinderella (4:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9ADF9374C4CAC92AE9C44FE26E3177E703027D
 ```
 
 https://mybot314.ru/tekegram_catalog/

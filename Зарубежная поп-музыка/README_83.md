@@ -1,3 +1,61 @@
+###  Публикация: 1699346   (117806) от 13.02.2024
+
+VA - Absolute Dance (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haddaway - What Is Love (Rapino Brothers Mix)
+02. Flm - Megdoglom Erted (Master Mix)
+03. M People - How Can I Love You More
+04. Soul System - It's Gonna Be A Lovely Day(   Читать дальше...   )Жанр: Electronic, Pop, Euro House, EurodanceПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE10164E0C951CAA58AADC2A7F31153EE6DFA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699505   (117772) от 13.02.2024
+
+VA - Billboard Top Pop Hits, 1960 (1994) [OGG Vorbis|480 Kbps] <Electronic, Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Duane Eddy & The Rebels - Because They're Young
+02.  Brenda Lee - I'm Sorry
+03.  Mark Dinning - Teen Angel
+04.  Brian Hyland - Itsy Bitsy Teenie Weenie Yellow Polkadot Bikini(   Читать дальше...   )Жанр: Electronic, Rock, Funk / Soul, PopПродолжительность: 00:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3677C4403ECDDD9B8F36B9DE54FFAAF00FA5D966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699798   (117652) от 14.02.2024
 
 Richard Marx - Ballads (1994) [OGG Vorbis|480 Kbps] <Pop, Ballad>
@@ -687,64 +745,6 @@ VA - DJ Hits15 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA4AFF9908D3B034F92F09AE6A071BE9E2D25FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727299   (108516) от 02.06.2024
-
-VA - DJ Hits 21 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pato Banton - Baby Come Back
-02. DJ Bobo - Let The Dream Come True (Radio Mix)
-03. Cappella - Move It Up (Radio Edit)
-04. Adastra - Ionnama (Radio Version)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A1F6DFAF693F6F757DA49ECF389A2BEDC04D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727410   (108490) от 02.06.2024
-
-VA - DJ Hits 24 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Nex - Cotton Eye Joe
-02. U 96 - Love Religion
-03. Whigfield - Another Day
-04. Baby D - Let Me Be Your Fantasy(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDC0A634ADA709E7614AD235D019484601936DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

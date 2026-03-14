@@ -1,3 +1,148 @@
+###  Публикация: 1012546   (793732) от 01.05.2016
+
+Ann Sweeten - Where Butterflies Dance (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Trace of You
+02. Broken Wing at North Light
+03. Elysian Fields
+04. Love Among the Ruins(   Читать дальше...   )Жанр: New Age, Neoclassical, Solo PianoПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE3281A6862E271301A1EE7B84CFDD9B2F54588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012483   (793648) от 01.05.2016
+
+Douglas Blue Feather - Cosmic Visions (2016) [MP3|320 кб/с] <New Age, Native American, Flute>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch the Stars
+02. Deep Space
+03. Caves of Mars
+04. Orion's Belt(   Читать дальше...   )Жанр: New Age, Native American, FluteПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC4FF74D853E8972B0DCEF06234FA10B1D82805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386598   (793628) от 30.05.2020
+
+Bert Jansch - Bert Jansch (1965) Remastered 2001 [FLAC|Lossless|tracks] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793628.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вовсе не обязательно тратить жизнь на то, чтобы убеждать мир в том, что ты - гений. Когда я захожу в паб, то не хочу, чтобы окружающие знали, что я – Берт Дженш».01. Strolling Down The Highway (3:07)
+02. Smokey River (2:56)
+03. Oh How Your Love Is Strong (3:40)
+04. I Have No Time (3:09)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80A3B7328D0D27DA0E1EFC1E853E91F563DC08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386608   (793578) от 30.05.2020
+
+Fred Neil - Fred Neil (1967) Reissue 2006 [FLAC|Lossless|tracks] <Rock & Roll, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fred Neil является вторым альбомом от Фреда Нила. Альбом имеет более непринужденный звук чем его дебют, и содержит его самые известные песни: "Everybody's Talkin" и "The Dolphins". Он был переиздан в 1969 году под названием Everybody's Talkin в ответ на международный успех саундтрека к фильму "Полуночный ковбой" (Midnight Cowboy), который (   Читать дальше...   )01. The Dolphins (4:06)
+02. I've Got A Secret (Didn't We Shake Sugaree) (4:41)
+03. That's The Bag I'm In (3:37)
+04. Badi-da (3:40)Жанр: Rock & Roll, FolkПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A408C20A973602E3A95E32B2761E516ED16BF0AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012503   (793577) от 01.05.2016
+
+John Fluker - 11:11 (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaken
+02. In the Beginning
+03. Artificial Time
+04. The 4th Dimension(   Читать дальше...   )Жанр: New Age, Neoclassical, Solo PianoПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C9906B8B007DF3B26D9020DBCFE0B411B060C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386533   (793568) от 30.05.2020
 
 Buck Owens And His Buckaroos - I've Got A Tiger By The Tail (1965) Reissue 1995 [FLAC|Lossless|tracks] <Folk, World, & Country>
@@ -600,151 +745,6 @@ Trent Reznor & Atticus Ross - Bird Box (2019) The Null Corporation [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:023655D2D13D5166E92EA7489F9ABA2E01D02D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201263   (792170) от 25.01.2018
-
-Aryeh Frankfurter - Celtic Whispers (2018) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Moved Through the Fair
-02. Ae Fond Kiss
-03. Aye Waulkin O'
-04. The Sandpit(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B281BFBD4B038E1D582693E1CFBE5DD8EC7706E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201484   (792113) от 25.01.2018
-
-VA - Discover Celtic Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Bailey - Turas Domhsa chon na Galldachd
-02. Aryeh Frankfurter - The Morning Dew
-03. Golden Bough - The Wren Boys - Gavin's Hornpipe - Honeysuckle
-04. Scots Guards - Happy Hour(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B97082D7CA25ABAD09A525120B4D396341AFADCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201489   (792099) от 25.01.2018
-
-Greg Maroney - Winter (2018) [MP3|320 Kbps] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792099.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winter Grey
-2. Grandmother's Quilt
-3. January
-4. Hearthfire(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB6D4075A8D05E51E85C677A686C83A26C32F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387464   (791834) от 01.06.2020
-
-Krzysztof Kowal & Grzegorz Michalak - 112 Operator Soundtrack (2020) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's your emergency?
-02. 911 Management theme
-03. S&R Management theme
-04. S&R Trailer theme(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E26D91C6F1EB970C5A491AF023DAA343FECDB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386860   (791807) от 01.06.2020
-
-Sungha Jung - Sungha Jung Cover Compilation 1-5 (2019) [MP3|~245 Kbps (V0)] <Acoustic, Fingerstyle Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Bird (3:39)
-02. Can't Help Falling in Love (2:59)
-03. Fake Love (3:41)
-04. Girls Like You (3:05)(   Читать дальше...   )Жанр: Acoustic, Fingerstyle GuitarПродолжительность: 06:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E56749C2317B0950C5D74BE24957950E050ACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 1702940   (115329) от 27.02.2024
+
+Jazz Sax Lounge Collection, Smooth Jazz Sax Instrumentals - Summer Saxophone Relaxation 2023 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It’s a Break Time (3:19)
+02. Quiet Nights of Quiet Stars (3:27)
+03. Saxophone Chill (3:54)
+04. Afternoon Coffee (4:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3626FE25F970C01E516D588DF4734AFDFD256FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702948   (115328) от 27.02.2024
+
+Romantic Moods Academy, Jazz Music Collection Zone - Jazz Music for a Romantic Mood (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Date at a Sushi Restaurant (3:21)
+02. Background Jazz Music (3:52)
+03. Fusion Chill (3:27)
+04. Glass of Wine (5:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F929C4070DD9DAE7FC978A05E93116F7B73EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702939   (115326) от 27.02.2024
+
+Jazz Music Lovers Club - Music for Sexy Striptease (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth Rose (3:48)
+02. Spicy Little Dance (2:49)
+03. Pure Feelings (2:49)
+04. True Love Has Your Name (3:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FB9DE65C7FE703089FFC38199CCD142A449CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703065   (115322) от 27.02.2024
+
+Accept - Humanoid (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humanoid (4:35)Жанр: Heavy MetalПродолжительность: 00:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F280275C2205B0895F03FAD506EEB72DD0945D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702949   (115310) от 27.02.2024
+
+Twilight Tapirs - Great Lake Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Clipper Ships (0:58)
+02. Wolverine Train (3:34)
+03. Thy Fearful Symmetry (3:08)
+04. Koi Fish Shangri-La (3:39)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4105BAFB632C7C64A32955F009E4BA45F59934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702950   (115309) от 27.02.2024
 
 Wojtek Stanisz Quartet - Szuflandia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -600,151 +742,6 @@ Brymir — финская мелодик-дэт-метал/симфоник-ме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28CD34E232C0EB34F4C42508B817BA2C6EAF8130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703555   (114988) от 29.02.2024
-
-Bokassa - Crimson Rider (2019) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Rock, Hardcore, Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Brologue [1:31]
-02 - Charmed & Extremely Treacherous [2:57]
-03 - Vultures [2:46]
-04 - Mouthbreathers Inc. [3:07](   Читать дальше...   )Жанр: Stoner Rock, Hardcore, Punk RockПродолжительность: 00:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C433CB0922BE98BDC02C9DB91B57A50139B2A928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703782   (114835) от 01.03.2024
-
-VA - Рок-панорама - 87 (1) (1987) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01 - Найти и потерять (музыка и слова Г. Рябцева) — 4.57
-Г. Рябцев
-02 - Выше голову (музыка и слова С. Попова) — 3.31(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12858237BB9964ACC8017741E3EEE09B53C42B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703725   (114834) от 01.03.2024
-
-Андрей Миронов - Это песня для близких друзей... (Песни Яна Френкеля) (1987) [FLAC 24/192|Lossless|tracks] <Retro, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Я выхожу на сцену (Р. Рождественский)
-02. Так повелось... (В. Меньшиков)
-03. Он и она (Р. Рождественский)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530D5158AD88D58F909DD53534403C9BDAB68689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703760   (114826) от 01.03.2024
-
-Lesbian Bed Death - Midnight Lust (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria [00:04:30]
-02. Roadkill [00:03:36]
-03. Satanic Suicide Sex Cult [00:03:50]
-04. Your Love Makes Everything Worse [00:03:56](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDF19C93FF271732AFD8FCE765A6C4B1DD1A350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703830   (114824) от 01.03.2024
-
-Firehouse - Firehouse (1990) Remaster, 2024, Epic; Sony Music Entertainment [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock, Arena Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock On the Radio (4:45)
-02. All She Wrote (4:27)
-03. Shake & Tumble (3:30)
-04. Don't Treat Me Bad (3:55)(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023E61C696EE4E03AC94FE2B94AF31B850114D90
 ```
 
 https://mybot314.ru/tekegram_catalog/

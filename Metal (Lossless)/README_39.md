@@ -1,3 +1,294 @@
+###  Публикация: 1349755   (1004105) от 03.01.2020
+
+Deliver The Galaxy - The Journey (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Journey
+02. Setius
+03. Mind Conflict
+04. Take Off(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EF4EA5A347DD2D040854AAD1903F6893C7FF95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487314   (1003884) от 04.08.2021
+
+Asgard - Outworld (2013) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirits
+02. The Interceptor
+03. Sound Of Shadows
+04. Outworld(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BF3AF2E4401694CB89F74E7547A215E6AD52E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350144   (1003854) от 04.01.2020
+
+Krake - Conquering Death (2012) [FLAC|Lossless|image + .cue] <Sympho Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Murder of Crows
+02. And a Colder Breed
+03. Hearts Blood
+04. Ed(   Читать дальше...   )Жанр: Sympho Black MetalПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A49C94E0D8B43706EB711A2D3021B998B0B15CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349927   (1003850) от 04.01.2020
+
+Subterranean Masquerade - Vagabond (2017) [FLAC|Lossless|image + .cue] <Folk Metal, Avant-Garde Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Place For Fairytales (6:53)
+02. Nomad (5:56)
+03. Ways (4:41)
+04. Carousal (1:52)(   Читать дальше...   )Жанр: Folk Metal, Avant-Garde Metal, Progressive MetalПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2792CD569DDA128203DE6F233D58843879CF2940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350142   (1003849) от 04.01.2020
+
+Grabak - Bloodline Divine (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Post Lucis Natum (Intro)
+02.Via Dolorosa
+03.Sinnocence
+04.Corpsebride(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777AE7F5228B6E13D6E4FEB87D21D1C9ADE2505A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350140   (1003843) от 04.01.2020
+
+Equipoise - Demiurgus (2019) [WavPack|Lossless|image + .cue] <Technical Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Illborn Augury (2:35)
+02 - Sovereign Sacrifices (4:50)
+03 - Alchemic Web of Deceit (4:10)
+04 - A Suit of My Flesh (4:55)(   Читать дальше...   )Жанр: Technical Progressive Death MetalПродолжительность: 01:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDC421B6576F5B07050EFA8CEFDF4B47324BAB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350146   (1003839) от 04.01.2020
+
+Kurgan - Yggdrasil Burns (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hellstorm
+02. The Fall of Asgard
+03. Yggdrasil Burns
+04. Send Me a Raven(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88771A8FFA2C37B2B4CB76A34DCBF8396D78C0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350138   (1003807) от 04.01.2020
+
+Destruction - Born To Perish (2019) Japan [WavPack|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Born To Perish
+02 Inspired By Death
+03 Betrayal
+04 Rotten(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9220ECF2DD9B15F6EF6C36325824A99A200D14E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350121   (1003799) от 04.01.2020
+
+Diablo Swing Orchestra - Pacifisticuffs (2017) [FLAC|Lossless|image + .cue] <Avantgarde, Experimental, Heavy Metal, Swing>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knucklehugs (Arm Yourself With Love) (2:27)
+02. The Age Of Vulture Culture (5:00)
+03. Superhero Jagganath (5:41)
+04. Vision Of The Purblind (1:01)(   Читать дальше...   )Жанр: Avantgarde, Experimental, Heavy Metal, SwingПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734C27FFD88F60D182D6E3933F821326AF054CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201580   (1003733) от 04.01.2020
+
+Monolord - 4 Albums, 1 EP (2014-2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monolord - шведская группа из Гётеборга, образованная в 2013 году, исполняющие тягучий Stoner Doom Metal.
+Названы в честь глухого на одно ухо друга, который по их словам жирный и раздражительный как Картман.Список альбомов:
+2014 - Empress Rising
+2015 - Vaenir
+2016 - Lord of Suffering-Die in Haze(   Читать дальше...   )Жанр: Stoner Metal, Doom MetalПродолжительность: 03:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8EAE302085063EA593A832CA67BB01F97627A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487424   (1003614) от 05.08.2021
 
 Witches Town - Black Pestilence (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -455,296 +746,6 @@ Revel in Flesh - The Hour of the Avenger (2019) [FLAC|Lossless|image + .cue] <De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3788C5D7603ECAE6C8B0589072BEE681AFE8E316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488428   (1002081) от 11.08.2021
-
-Wolfstavar - Im Schatten der Götter (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Auf nach Walhalla
-02. Tyr
-03. Heimdall - Der Wächter
-04. Der Freiheit entgegen(   Читать дальше...   )Жанр: Heavy Metal, FolkПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68EE7AC55FC1C3945A0624B2D46CAFBC7E91D1E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488467   (1002077) от 11.08.2021
-
-Ovvercross - Stuttgart, 1943 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stuttgart, 1943 (03:52)
-02. Kill All the Time (03:39)
-03. Dead Bodies (04:38)
-04. Partisans (04:34)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EFC221C5A946F65AABA55C6578C17769392996B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488473   (1002075) от 11.08.2021
-
-Kilmara - Across The Realm Of Time (2018) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...And Into The Realm
-02. Purging Flames
-03. The Silent Guide
-04. The End Of The World(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBBFF5C07DB9C62FF49F0B94821F0A4E90DAD28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488426   (1002074) от 11.08.2021
-
-Eons Enthroned - Into the Arcane (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stormblessed
-02. Winds Wept
-03. Freelancer
-04. To Sheathe the Blade (feat. R.A. Voltaire)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6BFF78E58A6D470FEDD0FC23C74D4CC35DCB868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488325   (1002073) от 11.08.2021
-
-Sorceress Of Sin - Constantine (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Necropolis 07:50
-02. Massacre of Meridian 05:12
-03. Realms of Elysium 05:57
-04. Pathogenic Parasite 05:30(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BFC27E767B9FE4CB725E90BA22CB2957125D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275119   (1001905) от 11.01.2020
-
-Kobra And The Lotus - 7 albums (2009-2019) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard'n'Heavy, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kobra and the Lotus - канадская хеви-метал-группа. Группа была образована в конце 2008 года вокалисткой Kobra Paige и гитаристами Matt Van Wezel и Chris Swenson. Их музыкальный стиль часто называют классическим NWOBHM и сравнивают с такими великими коллективами, как Iron Maiden, Dio и Iced Earth.--------------------------
-
-01. Evodem (0:56)
-02. Evolution (4:39)(   Читать дальше...   )Жанр: Hard'n'Heavy, Heavy Metal |Продолжительность: 05:12:17 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6BE3B5B2512C3CFA485ACB1268A29EB9CA504A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352042   (1001723) от 12.01.2020
-
-Darkology - Altered Reflections (2009) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Microcozm ....00:26
-02. Violent Vertigo ....05:55
-03. I Bleed ....06:05
-04. Dark Energy ....07:02(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F622C80F274DCD67DBBC399A1E6728D411C6ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488841   (1001470) от 13.08.2021
-
-Hordak - The Last European Wolves (2006) Reissue, 2014, GS Productions [FLAC|Lossless|image + .cue] <Celtiberian Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For a New Pagan Age to Come(01:38)
-02. Silvano, senor de los bosques (05:19)
-03. The Last European Wolves (04:24)
-04. Son of the Fatherland (06:40)(   Читать дальше...   )Жанр: Celtiberian Pagan MetalПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB7E034E29BBE89DB00B90E21F9F3897EFA36E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352330   (1001349) от 13.01.2020
-
-Concerto Moon - Ouroboros (2019) [WavPack|Lossless|image + .cue] <Neoclassical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Change My Heart
-02 Dream Chaser
-03 Surrender
-04 Holy Child(   Читать дальше...   )Жанр: Neoclassical MetalПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC51BD54951B127619B1779B985C8F0888E3EDF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488979   (1001190) от 14.08.2021
-
-Nawather - Kenz Illusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Oriental Metal, Male Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Treasure Chest
-02. Breath of Jasmin
-03. Money Slave
-04. Falleg(   Читать дальше...   )Жанр: Heavy Oriental Metal, Male Female VocalПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAC10742A52E2D887D87327D0F2F0739E8E380D
 ```
 
 https://mybot314.ru/tekegram_catalog/

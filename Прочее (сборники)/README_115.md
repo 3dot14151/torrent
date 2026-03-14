@@ -1,3 +1,38 @@
+###  Публикация: 555901   (426580) от 05.10.2012
+
+VA - Радио DFM - D Чарт - Top-30 (03.10.2012) [MP3|320 кб/с]<Pop ,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Ferrari - Bara Bara Bere Bere (Cj Dmitriy Sova remix)
+ 02. Tonic Feat. Tarantula Ma - Big Fat (DFM MIX)
+ 03. Yves V & Basto - Cloud Breaker (Basto Radio Mix)
+ 04. Flo Rida - Whistle
+ 05. PLAYMEN ft. Demy - Fallin (Radio Edit)
+ 06. Far East Movement Feat. Cover Drive - Turn Up The Love (DFM MIX)
+ 07. Romano & Sapienza feat. Rodriguez aka Tacabro - Tacata (Extended Mix)
+ 08. Нюша - Воспоминание
+ 09. Martin Solveig - The Night Out (Madeon Remix)
+ 10. JOAO LUCAS E MARCELO - EU QUERO TSHU EU QUERO TCHA (DJ FAVORITE & DJ KHARITONOV)(   Читать дальше...   )Жанр: Pop ,DanceПродолжительность: 03:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD7B685AB9D924480E71426A864D96EFD5E91A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 555902   (426414) от 05.10.2012
 
 VA - Радио DFM: Горячие Ремиксы (2012) [MP3|320 кб/с]<Dance, Club>
@@ -747,35 +782,6 @@ VA - В машине с музыкой Vol.298 (2022) [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82755BEA7BA3B7AC074B840B58F87F380B88EB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250977   (419281) от 30.09.2018
-
-VA - Club Dance Ambience Vol.164 (2018) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419281.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. #2Маши -  Босая  (Dj Matuya & Romamio Remix)
-002. AI Charlie - EEl Tango (Original Mix)
-003. Alesso Ft. Conor Maynard - Remedy (Original Mix)
-004. ANRVIT - Rush! (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:23:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C5FDDDA386EC7DB847A8CC41CEFBA59DDFBEF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

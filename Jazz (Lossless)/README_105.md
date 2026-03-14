@@ -1,3 +1,90 @@
+###  Публикация: 1221059   (698808) от 22.04.2018
+
+Curtis Fuller Jazztet with Benny Golson (1959) 1991, Savoy Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's All Right With Me [07:39]
+02. Wheatleith Hall [14:06]
+03. I'll Walk Alone [06:57]
+04. Arabia [06:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FEC85F9F1D62E4D1162D73A40D0CFC3E38F52D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220514   (698804) от 22.04.2018
+
+Eddie South - 1937 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fiddle Blues [02:47]
+02. Interpretation Swing Du Premier Mouvement Du Concerto En Re Mineur De Jean-Sebastien Bach - Part 2 [03:23]
+03. Honeysuckle Rose [03:06]
+04. On The Sunny Side Of The Street [03:03](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D5CA6691E541BA5D9B345957C7E8EE6960D480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220859   (698716) от 22.04.2018
+
+Miles Davis - Plays For Lovers (2012) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Is No Greater Love
+02. Something That I Dreamed Last Night
+03. That Old Devil Moon
+04. You Don't Know What Love Is(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F7FA8ADC41FFA38BF2AFAE30976574B0B907D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026972   (698561) от 18.06.2016
 
 Joe Zawinul - The ESC Years (1992-1996) 2011, ESC Records[FLAC|Lossless|tracks + .cue] <World Fusion, Jazz Fusion>
@@ -657,93 +744,6 @@ David “Fathead” Newman - Fathead: Ray Charles Presents David Newman (1958) R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8472777CBBCAC55AD89123DBDB287A553ED8C41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027886   (694936) от 20.06.2016
-
-The Phil Woods Quartet With Gene Quill - Phil Talks With Quill (1957) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Doxie I [05:56]
- 02.A Night In Tunisia [09:12]
- 03.Hymn For Kim [08:11]
- 04.Dear Old Stockholm [09:14](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F34AE4C0118763DC626641882D63F63BE7C92F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027917   (694696) от 20.06.2016
-
-Lazy - Dirty Martini (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694696.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dirty Martini
- 2. Baby
- 3. Mirror
- 4. Cold(   Читать дальше...   )Жанр: Jazz, Pop, VocalПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF45A711C8AEF99CD5CD34A7056435E8ED3AC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534506   (694371) от 02.03.2022
-
-John Bunch - An English Songbook (2003) Chiaroscuro Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hadn't Anyone 'Til You [3:54]
-02. Pure Imagination [3:56]
-03. What Kind of Fool Am I? [3:39]
-04. A Nightingale Sang in Berkeley Square [3:30](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2623C62ACF238D42F3C62281655A6CF6214042F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

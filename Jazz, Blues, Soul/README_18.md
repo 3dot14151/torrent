@@ -1,3 +1,61 @@
+###  Публикация: 1614489   (1038563) от 22.02.2023
+
+Tony Brook - Alabama Crossroads (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alabama Crossroads (3:21)
+02. Truth Be Told (5:22)
+03. Gonna Be Bad (4:42)
+04. Angel Dust (5:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F6952D960C485922EF8F77EC5ECF4820D3FAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614485   (1038562) от 22.02.2023
+
+Blues Arcadia - Now Or Never (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dollar Bill (3:36)
+02. Broadway Chapel (3:42)
+03. Get Yourself Together (4:06)
+04. Cry Baby (4:15)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834DEEA4EFBC93AEFEED8EF9CD138A87713748AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614488   (1038557) от 22.02.2023
 
 Haylen - Blue Wine (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -687,64 +745,6 @@ Freddie Hubbard & The New Jazz Composers Octet - On The Real Side (2008) Four Qu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3BCCDCF9EF3BF674FB82ABE5A35DA9339654EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615494   (1037594) от 26.02.2023
-
-Freddie Hubbard - Times Are Changing (1989) Blue Note [FLAC|Lossless|image + .cue] <Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spanish Rose [6:32]
-02. Back to Lovin' Again [4:36]
-03. Was She Really There? [5:58]
-04. Corazon Amplio (A Song for Bert) [5:16](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04D50A91143005635435D64ADA9B48248C5BE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615493   (1037593) от 26.02.2023
-
-Jesse van Ruller - Circles (2002) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One [6:26]
-02. Circles [8:56]
-03. Here Comes the Sun [6:48]
-04. Black Dahlia [7:10](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD32B9ADCDD3DFB29ADC0DE195E14B2E6C0167B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

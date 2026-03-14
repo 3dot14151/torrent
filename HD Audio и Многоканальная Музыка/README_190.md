@@ -1,3 +1,148 @@
+###  Публикация: 1787640   (68760) от 26.03.2025
+
+Nightwish - Wishmaster (2000) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Is My Sin
+02. The Kinslayer
+03. Come Cover Me
+04. Wanderlust(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1CEDEB557E55F5A945F32D34A7F278CC5E14976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787680   (68749) от 26.03.2025
+
+Jad Tariq - Jad Tariq Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Flapjack (2:42)
+02.  You Think You're Too Good For Me (2:48)
+03.  Had You Told It Like It Was (3:23)
+04.  Fortune's Fool (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114B5A332C268D35F8FB70742093C368D8725ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787690   (68748) от 26.03.2025
+
+Toni Sanchez Group - Projecte Delta (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Obertura (5:50)
+02.  Piú nessuno mi porterá nel sud (4:04)
+03.  El vals de la fi del món (2:06)
+04.  Miles has a guitar (6:04)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328F6E0353E29CFCD89D796AED4889FA7580DED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787659   (68746) от 26.03.2025
+
+Darkness Light - Alive and Not Alone (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Back to My Life (1:56)
+02.  Living with the Danger (3:48)
+03.  Adrenaline (4:26)
+04.  Darkness (5:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77AA1168E2DAEBC4D0F7CAB22BB0118C958E2A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787684   (68737) от 26.03.2025
+
+Kris Pohlmann - Relentless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  It's Only Love (4:20)
+02.  Same Old Lies (5:14)
+03.  Change Your Mind (4:09)
+04.  Don't Leave (6:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C35245FCEE57EDE45FD60622937C0ECA81AF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787590   (68735) от 26.03.2025
 
 Nightwish - Wishmaster (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
@@ -600,151 +745,6 @@ Forlorn - Aether (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B76B856488190A072CA21213B8F1D5029C33D0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787942   (68640) от 28.03.2025
-
-The Crown - Crown of Thorns (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal, Death Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Hunt with the Devil [4:56]
-02 - Churchburner [4:15]
-03 - Martyrian [4:50]
-04 - Gone to Hell [4:46](   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Melodic Death MetalПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BA0AF3268C1E436BD751E4FF2E351570939440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788073   (68639) от 28.03.2025
-
-Black & Damned - Resurrection (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silence Breaker [00:04:05]
-02. Ruthless Wrath [00:04:26]
-03. Red Heavens [00:04:41]
-04. Bound By The Moon [00:04:27](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1735E5986D987CDA2827F3505E9B6A6B5F4BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788068   (68638) от 28.03.2025
-
-Bad Valentine - I Am A Mess (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-Rock, Electronic, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Does Happiness Mean To You? [00:02:51]
-02. Don'T Think About It [00:03:28]
-03. Happy Never After [00:03:24]
-04. Sugar Water [00:03:09](   Читать дальше...   )Жанр: Alt.Rock, Pop-Rock, Electronic, Female VocalПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA5164A7A493C7263247B727A87A7A1D8DB27F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788103   (68635) от 28.03.2025
-
-Nightwish - Century Child (2002) Released, 2007, Universal Music Group International [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bless the Child
-02. End of All Hope
-03. Dead to the World
-04. Ever Dream(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9376DFCB91C68CB9699D6C9108965E3EF48F444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788134   (68629) от 28.03.2025
-
-Vampyros Lesbos - Vi Per Sanguinem (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Gothic, LGTM>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willst Du mal? [00:04:51]
-02. Schwarz und Weiss [00:03:40]
-03. Sklavin [00:04:08]
-04. Mausetot [00:05:08](   Читать дальше...   )Жанр: EBM, Gothic, LGTMПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267C617549053260E7DDC299E02B3365A5EFB1F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

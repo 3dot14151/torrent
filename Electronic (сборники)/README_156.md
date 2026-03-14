@@ -1,3 +1,32 @@
+###  Публикация: 1175601   (376636) от 19.10.2017
+
+VA - Radio ParadokS – Vocal Trance (2017) [MP3|256-320 Kbps] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & JES – If Not Now (Album Mix)
+02. Somna – Believer (Extended Mix)
+03. Sunlounger & Eden Iris – Dancing With a Ghost (Club Mix)
+04. Carl Daylim feat. Rita Raga – Not Here To Stay (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 10:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D71C06531B26A0DF140DC12D70DA57B0CD44D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175856   (376621) от 19.10.2017
 
 VA - Cosmic Interference (2017) [MP3|320 Kbps] <Techno, Minimal, Electronic>
@@ -731,35 +760,6 @@ VA - Trance. Vocal Fascination 36 (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC7D271055F56DE8A8CFE1DB27636992BD2DCCCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950231   (373103) от 25.10.2015
-
-VA - Gold Lounge - The Lounge of Luxury (2015) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Horner - Mellow Daze (02:10)
-02. The Big Sound - Lounge Lizard (02:02)
-03. Ginger Tunes - Round Midnight (05:19)
-04. Jive Ass Sleepers - Big Bad Boss Man (04:49)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 02:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999432AA06B12147F488032BCA8D50DDC5921019
 ```
 
 https://mybot314.ru/tekegram_catalog/

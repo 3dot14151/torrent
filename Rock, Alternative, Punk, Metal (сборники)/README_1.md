@@ -1,3 +1,32 @@
+###  Публикация: 1448114   (1031151) от 16.02.2021
+
+VA - The Black Lavender (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сильный и монументальный вокал, гармонирующий с традиционными музыкальными инструментами и электронной музыкой – изрядная редкость. Оригинальные, атмосферные, трогательные и в то же время напористые композиции были специально отобраны и включены в релизе «The Black Lawender», в котором представлены музыкальные жанры рока и рок альтернативы.001. Coast To Coast - Be Kind (Alternative)
+002. Cymatica - Hours
+003. American Hi-Fi - Oliver's Army
+004. Good Tiger - Animal Mother(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 10:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C02FF9920E2C0A5750F17F5039D621741E386E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448611   (1030678) от 18.02.2021
 
 VA - Glam Rock 1970 - 1976 (2021) 5CD [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
@@ -713,35 +742,6 @@ VA - Music for You vol.16 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEE8EC8B6D125612CE26A002586FE9149283ACE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468544   (1017031) от 08.05.2021
-
-Brian Johnson - Brian Johnson & Geordie & AC DC (2007) Compilation, Unofficial Release [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Black Cat [00:04:11]
-02-Natural Born Loser [00:03:23]
-03-Ain't It Just Like A Woman [00:03:18]
-04-Strange Man [00:04:17](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E0D20A480B7AC84F66F40390D903D5651DB53B
 ```
 
 https://mybot314.ru/tekegram_catalog/

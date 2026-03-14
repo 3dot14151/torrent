@@ -1,3 +1,90 @@
+###  Публикация: 1660650   (189426) от 13.09.2023
+
+McCoy Tyner - What's New? (1987) 1998, West Wind [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senor Carlos [9:15]
+02. Lover Man [8:57]
+03. You Taught My Heart to Sing [6:12]
+04. Port Au Blues [7:49](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE153F57DC9B15FE3D3DEBBD784FB852856149B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660659   (189411) от 13.09.2023
+
+Marina Pacowski - Inner Urge (2023) Summit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Urge [6:11]
+02. Pensativa [6:01]
+03. Solar [4:43]
+04. My Foolish Heart [4:52](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E8B52B119168B0EE8A381DF4323C8D57C452CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660383   (189393) от 13.09.2023
+
+VA - Jazz & Soul Season 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benjamin Marcus - Take Me to Your Arms (Original Mix) (2:18)
+02. Jayson Brown - Vintage Vibe (Original Mix) (2:39)
+03. Nigel Saunders - Go High (Original Mix) (2:30)
+04. Liza Jones - Sleep Without You (Original Mix) (2:44)(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF6E1A2E00CC53B2F6DFDF62C6BB6A7C73136C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660405   (189383) от 13.09.2023
 
 VA - Montreal Jazz Club 2023, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -657,93 +744,6 @@ Joe Pass - Virtuoso #2 (1976) 1987, Pablo Records [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:762F2BE13BFAD90D1B781BDBECB1F61114E152FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591644   (186923) от 19.11.2022
-
-Joe Pass - Unforgettable (1992) 1998, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Romance [3:58]
-02. The Very Thought of You [4:09]
-03. I Cover the Waterfront [4:16]
-04. Isn't It Romantic [3:13](   Читать дальше...   )Жанр: Bop, Guitar JazzПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62CBC6F3BB72D45D98FE275FC0298B419FAAB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591640   (186921) от 19.11.2022
-
-Joe Pass & J.J. Johnson - We'll Be Together Again (1983) 1996, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [3:39]
-02. We'll Be Together Again [4:25]
-03. Naked as a Jaybird [5:04]
-04. Blue Bossa [4:10](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642A6066B8638459C4F29E0CB8AA98EE36AA1619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591649   (186901) от 19.11.2022
-
-Ahmad Jamal (Ahmad Jahal) & Wynton Marsalis - Modern Jazz (2005) KM International Consultants [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning of the Carnival [10:47]
-02. One [9:35]
-03. People [5:26]
-04. Waltz for Debby [6:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA53735D5B094AB10B70A4B8C58665249A427AD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

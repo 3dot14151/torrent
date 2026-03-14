@@ -1,27 +1,25 @@
-###  Публикация: 455925   (94092) от 22.02.2012
+###  Публикация: 474458   (97892) от 28.03.2012
 
-Mark May Band - Release My Soul (2011) [APE|Lossless]<Blues>
+Angel Witch - As Above, So Below (2012) [APE|Lossless]<Heavy Metal>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94092.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Six Strings or Two Legs (6:28)
-02. Move On (5:16)
-03. I Gotta Know (6:23)
-04. Eyes of India (6:35)
-05. Release My Soul (7:02)
-06. World of Suffering (7:13)
-07. Drifter (5:53)
-08. Vindablues (6:57)
-09. Devils Playpen (6:03)
-10. She Don't Shine (6:31)(   Читать дальше...   )2011Жанр: BluesПродолжительность: 01:06:21
+01. Dead Sea Scrolls (6:00)
+02. Into The Dark (5:11)
+03. Geburah (5:24)
+04. The Horla (7:30)
+05. Witching Hour (5:50)
+06. Upon This Cord (6:33)
+07. Guillotine (6:54)
+08. Brainwashed (7:08)Жанр: Heavy MetalПродолжительность: 00:50:29
 
 ## Скачать торент
 ```bash
@@ -33,392 +31,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455003   (94091) от 22.02.2012
+###  Публикация: 474670   (97891) от 28.03.2012
 
-VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiho - Purple Haze (Giuseppe Visciano Psychedelic Remix) (6:05)
- 02. Artem Abdrakhmanov - Fire Blood (Original Mix) (7:33)
- 03. Bodyscrub - Resolution (Original Mix) (8:42)
- 04. Ciaran Osborne - Don't Hold Back (Original Club Mix) (6:59)
- 05. Danase - Come On, We Play (6:25)
- 06. Dani Sbert - Otherside (Original Mix) (7:01)
- 07. Deep Inside Sistem - Violence (Original Mix) (7:11)
- 08. Diamandy - Breezer (Original Mix) (8:07)
- 09. Doubleton - Diluente (Original Mix) (6:20)
- 10. Dubfloor - Tropa Tropa (Original Mix) (6:50)(   Читать дальше...   )18.02.2012Жанр: MinimalПродолжительность: 02:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE05E1089EA0849955044BA64E2D8CAC0A261CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454669   (94087) от 22.02.2012
-
-VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AC Slater & Xaphoon Jones - Believe Me (Botnek Remix) (5:50)
- 02. Angelo Dore, Minimal Law - Experimental (Original Mix) (6:03)
- 03. Atix - Divagation (Original Mix) (7:15)
- 04. Audiowomb - Zoophyta (Original Mix) (7:56)
- 05. Avrosse, Louie Cut - Double Trouble (Original Mix) (6:06)
- 06. Danalog - Baked Beams (Original Mix) (8:13)
- 07. On the Train (Derrick Carter Remix) (5:59)
- 08. Deep Voice - I'm Freak (Andrea Roma Rmx) (6:56)
- 09. Dima German - 2012 (D-Quattro Remix) (7:26)
- 10. Emrah Celik - Let's Get Dangerous (Daniele Petronelli Remix) (6:05)(   Читать дальше...   )11.02.2012Жанр: MinimalПродолжительность: 02:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E581143ED7E60AEE91BFF68673F08AC316E8B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454998   (94083) от 22.02.2012
-
-VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afonso Maia - D Rather (Original Mix) (6:42)
- 02. Andres Guerra - Bheis (Original Mix) (6:38)
- 03. Brunno Santos - I'm Done With You (Juliano Silva Remix) (7:10)
- 04. Cryteque - Sunny Flash (Original mix) (7:01)
- 05. Daniele Petronelli and Steve Russell - Kat-I (Original Mix) (6:45)
- 06. Domshe – Temptation (Tobias Hertz & Stefan Rieger Remix) (7:38)
- 07. Hakan Ludvigson & Joachim Broeckers - Audiovit (Original Mix) (7:14)
- 08. Ian F - Coming Back (Original) (7:15)
- 09. Jill Bellac & Suspect One - Shaped (Min & Mal Remix) (6:11)
- 10. Joel Fletcher & JDG - China Town (Original Mix) (7:03)(   Читать дальше...   )16.02.2012Жанр: MinimalПродолжительность: 02:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2B6992696D22FBF66562B0F79D2F2A677FE610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455928   (94076) от 22.02.2012
-
-VA - Jumpin' With The Big Swing Band (2003) [FLAC|Lossless]<Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jimmy Lunceford & his Orchestra - Call The Police (2:59)
-02.Louis Prima & his Orchestra - Robin Hood (3:05)
-03.Harry James & his Orchestra - Tuxedo Junction (3:02)
-04.Earle Warren & his Orchestra - Tush (2:52)
-05.Jimmy Lunceford & his Orchestra - Cement Mixer (Put-Ti Put-Ti) (2:45)
-06.Harry James & his Orchestra - Hodge Podge (3:00)
-07.Jimmy Lunceford & his Orchestra - Margie (3:01)
-08.Ray McKinley & his Orchestra - Down The Road Apiece (2:58)
-09.Jimmy Lunceford & his Orchestra - Water Faucet (2:40)
-10.Harry James & his Orchestra - Boog It (3:22)(   Читать дальше...   )2003Жанр: Jazz, Swing, Big BandПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454675   (94067) от 22.02.2012
-
-VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acid Lupe - Orchestra (Original Mix) (7:10)
- 02. Chabud - Souk (Mad Raf Tom Zenith Remix) (6:00)
- 03. Dani San - Clikity Clack (Original Mix) (6:44)
- 04. David Prap & Willy Real - Burnout (Manel Diaz Crazy Drum Mix) (6:09)
- 05. David San & Richie Dane – Colotina (Original David Mix) (6:17)
- 06. Edoardo Spolaore - Bastard Clap (Original Mix) (8:16)
- 07. Emanuele Millozzi & Claudio Petroni - Rauco (Manel Diaz Remix) (6:12)
- 08. Leeks - Amoeba (Original Mix) (7:17)
-09. Lowboys - Hall Of Panic (7:30)
- 10. MCJ - Pooomp (Manu Sami Remix) (6:09)(   Читать дальше...   )12.02.2012Жанр: MinimalПродолжительность: 02:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C7836E0C2716C4052BD382EEFD8E7CFAD4BB06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455981   (94063) от 21.02.2012
-
-Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №2 (2012) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB12F93F5D6C9FA36FA77476ED5E083A60A1AE98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455673   (94058) от 21.02.2012
-
-VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitry Globa - La Aurora Boreal
-02. John '00' Flemming - The Astrophysical Nebula
-03. Paul Oakenfold & Robert Vadney - Pop Star (Yahel Remix)
-04. Matisse & Sadko - Amulet
-05. Limbo - Paradox
-06. Solarstone feat. Alex Karweit - Breakaway (Solarstone's Phuture Mix)
-07. Talpa - The Moon (Flegma & Nerso Remix)
-08. Aggresivnes - Futurasia (Blazer Remix)
-09. Oakenfold feat. Tamra Keenan - Maybe It's Over (Organ Donors Perfecto Mix)
-10. Tim Jirgenson - Get Ready(   Читать дальше...   )2012Жанр: Trance, Progressive TranceПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455992   (94037) от 21.02.2012
-
-Albert King & Otis Rush - Door To Door (1998) [FLAC|Lossless]<General Electric Blues>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albert King - Searchin' For A Woman (2:49)
-02. Albert King - Bad Luck (3:06)
-03. Otis Rush - So Close (3:03)
-04. Albert King - Callin' For My Darlin' (2:47)
-05. Otis Rush - I Can't Stop (3:06)
-06. Albert King - Won't Be Hangin' Around (2:17)
-07. Otis Rush - I'm Satisfied (2:57)
-08. Otis Rush - All Your Love (2:26)
-09. Otis Rush - You Know My Love (2:56)
-10. Albert King - Merry Way (2:43)(   Читать дальше...   )1998Жанр: General Electric BluesПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455849   (94013) от 21.02.2012
-
-Журнал | Автомир [Россия] №8 [февраль 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94013.jpg" />
-</div>
-
-
-###  Подробнее
-
-АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455058   (94011) от 21.02.2012
-
-Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94011.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Too Lazy (6:01)
-2. Play (5:51)
-3. Sweet Nothings (4:55)
-4. Fluffy Cloud (8:13)
-5. Endless Games (3:31)
-6. The Sun Come Up (7:16)
-7. Razorskit (1:52)
-8. Berlin Summer Nights (5:56)
-9. Take These Scissors (5:42)
-10. Backyard (4:33)(   Читать дальше...   )2012Жанр: Tech-houseПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455910   (93995) от 21.02.2012
-
-Julian Sas - Bound To Roll (2012) [FLAC|Lossless]<Blues-Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_93995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life On The Line (5:01)
-02. Mercy (4:00)
-03. Bound To Roll (3:59)
-04. How Could Iґve Been So Blind (4:36)
-05. Shadow Play (4:40)
-06. Swamplands (4:14)
-07. 30 Days In The Hole (3:25)
-08. The Blues Wonґt Stay (4:19)
-09. Tear It Up (3:08)
-10. Burninґ Brides (5:15)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455256   (93994) от 21.02.2012
-
-[Wallpapers] Обои для рабочего стола.
+[Wallpapers] Sexy Girls Pack (29.03.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93994.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола,на любой вкус(280 шт.)
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB3B6219028615B61FCF322DBDB04046C682A70C
+magnet:?xt=urn:btih:7DF405C2BD9B3B5BD241575EC9CB0FDE2E79A9F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,34 +57,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454996   (93989) от 21.02.2012
+###  Публикация: 474664   (97890) от 28.03.2012
 
-VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
+[Wallpapers] Best HD Wallpapers Pack (28.03.12)
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93989.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Adelmo - Angela (Oscar And Chester Remix) (7:08)
- 02. Anton Ishutin - April 12 (Original Mix) (7:17)
- 03. Damolh33 - Sweep (Original Mix) (6:27)
- 04. David Temessi – De Ja Vu (Zareh Kan Remix) (7:05)
- 05. Dich - Erza Fire (Dub Dummies Remix) (8:21)
- 06. Droplex - Descript (Mr. Wise Remix) (6:30)
- 07. Edoardo Spolaore - Hope (Original Mix) (7:10)
- 08. Emrah Celik - Let's Get Dangerous (Gokhan Guney, Emrah Celik Remix) (6:08)
- 09. Gianni Ruocco – Caribean Week (Original Mix) (6:45)
- 10. Marcel Knopf - Blood Smell (Dapayk Remix) (7:19)(   Читать дальше...   )15.02.2012Жанр: MinimalПродолжительность: 02:21:54
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
+magnet:?xt=urn:btih:9F7A86102B4A5CBC829B9ADC5AA9E455E916B20B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,133 +83,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455001   (93985) от 21.02.2012
+###  Публикация: 474364   (97885) от 28.03.2012
 
-VA - Minimal Art v.9 (17.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afonso Maia - Playhead (Original Mix) (6:03)
- 02. Cristian Glitch - One (Alessandro Grops Remix) (6:24)
- 03. Destructo - Technology feat. Oliver (Original Mix) (5:09)
- 04. Insect Elektrika - Man In Love With Fish (Original Mix) (6:43)
- 05. Johnny Kaos – Lsd (7:40)
- 06. Keira - Sguitara (Min & Mal Remix) (6:01)
- 07. Was Bleibt (Jimpster Vocal Remix) (8:01)
- 08. Kontak - Triangle (Minimal Law Remix) (6:00)
- 09. Kriece - Ginger Explosion (Original Mix) (7:45)
- 10. Lazy M - Stranger (Dani Sbert Big Bully Remix) (7:01)(   Читать дальше...   )17.02.2012Жанр: MinimalПродолжительность: 02:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C9E3BF5BF53918349DE66079E0DEB9A40E73D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454665   (93983) от 21.02.2012
-
-VA - Minimal Art v.1 (09.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.K.O - Rolling (Original Mix) (8:11)
- 02. Artem Abdrakhmanov - Back Flip (Original Mix) (6:26)
- 03. Bedoya - Minimetrico (Original Mix) (7:03)
- 04. Bricklake - Reaktor (Chris Lawyer Remix) (6:07)
- 05. Caiwo - Playing Games (Caiwo aka Music Supervisor ReWork) (7:38)
- 06. D-Funkshion - Bim Bam (Original Mix) (7:11)
- 07. Daniel Mehes - Highend (Andy Notalez Niaz Arca Remix) (6:37)
- 08. Glitter - Vigilante (Original Mix) (6:09)
- 09. Hertzman - Gift (Original Mix) (6:17)
- 10. Jey Pee Razz - No Melody (Gaga Remix) (6:34)(   Читать дальше...   )09.02.2012Жанр: MinimalПродолжительность: 02:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C4CF8D9E190CCEDDEEBDDAC3EA4247698424E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454668   (93979) от 21.02.2012
-
-VA - Minimal Art v.2 (10.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abcdavid - No Chance (Original Mix) (6:32)
- 02. Anna - Down Under (7:49)
- 03. Aquabeat - Whisky (Louie Cut Remix) (5:48)
- 04. Avrosse - Droplet (Original Mix) (6:01)
- 05. Disco Dancer (Felix Bernhardt Remix) (7:52)
- 06. Cristian Glitch - El Pito (Zeitspule Remix) (7:11)
- 07. Cryteque - Acid Rainbow (original mix) (6:16)
- 08. Damolh33 - Red Beauty (Original Mix) (6:01)
- 09. Dani San - Clikity Clack (Marco Raineri Remix) (5:00)
- 10. Desto feat. Kitt Kidoxx - Element (Talstrasse 3-5 Remix) (6:56)(   Читать дальше...   )10.02.2012Жанр: MinimalПродолжительность: 02:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2FBE53AD32B0B7372FDB419C7BCF234998E1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455443   (93960) от 20.02.2012
-
-Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
+Mythological Cold Towers - Immemorial (2011) [FLAC|Lossless]<Death Doom Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93960.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97885.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maybe It`s You (05:13)
-02. Close My Eyes (05:51)
-03. Space Trip (05:12)
-04. Dons You (05:07)2012Жанр: Drum & BassПродолжительность: 00:21:23
+01. Lost Path to Ma Noa  (4:01)
+02. Akakor (6:34)
+03. Enter the Halls of Petrous Power (7:38)
+04. The Shrines of Ibez (5:10)
+05. Like an ode forged in immemorial Eras (5:18)
+06. The Fallen Race (9:09)
+07. Immemorial (5:23)Жанр: Death Doom MetalПродолжительность: 00:43:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,34 +115,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455166   (93957) от 20.02.2012
+###  Публикация: 474466   (97882) от 28.03.2012
 
-DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
+Газета | Сад, огород - кормилец и лекарь №6 (март 2012) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93957.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hannah - Falling Away (Protoculture Remix) (ARMADA)
-02. DJ Feel feat Loona - Ill Find Myself (Original Mix) (ALTER EGO)
-03. Orjan Nilsen - Legions (Original Mix) (ARMIND)
-04. Mike Foyle feat. Refeel - Universal Language (Original Mix) (SOUNDPIERCING)
-05. Cold Blue - Coconut (Original Mix) (MONSTER TUNES)
-06. alexander popov - elegia (original mix)
-07. Robbie Rivera - Dance Or Die Series 2 - Makes Me Feel Good (JUICY)
-08. Marcel Woods - Everything (Marcel Woods 2nd Treatment) (MUSICAL MADNESS)
-09. Ferry Corsten feat Ben Hague - Aint No Stoppin (Original Extended) (FLASHOVER)
-10. Cosmic Gate & Arnej - Sometimes They Come Back For More (Stoneface & Terminal Remix) (BLACK HOLE)(   Читать дальше...   )25 Of January 2012Жанр: TranceПродолжительность: 01:58:11
+«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить загородный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49B7CC9D64C5D6DAF3180429FF1EB8FB67A69C7E
+magnet:?xt=urn:btih:91AF394EFD2F939F1BCD8EFCF28C37856371809D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,25 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455478   (93953) от 20.02.2012
+###  Публикация: 474703   (97881) от 28.03.2012
 
-Газета | Сад, огород – кормилец и лекарь №4 (февраль 2012) [PDF]
+Журнал | Домовичок №1 Здороье на блюде [2011] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93953.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: PDF
+Возможно, вы уже что-то слышали о системе подсчета килокалорий, которая сейчас очень популярна во всем мире. А может, вы впервые сталкиваетесь с этой модной методикой. В любом случае вам потребуется более подробная информация о ней.
+Вы знаете, что пища для нас служит не только удовольствием, она еще предназначена поставлять энергию в наш организм. Энергия нужна телу на все движения и на процессы жизнедеятельности.
+Чем больше мы едим, тем больше калорий запасаются в жировых клетках. И мы стремительно полнеем.
+Решить эту проблему можно только двумя путями: либо питаться на меньшее количество килокалорий, либо стараться их побольше расходовать. Серьезный расход энергии вам могут обеспечить только интенсивные занятия спортом, желательно не менее 3-4 раз в неделю хотя бы по 45 минут. А в остальные дни все равно придется следить за калорийностью пищи.2011Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABFBFEA25E9FB8ADD378F1D7F1639251024E6736
+magnet:?xt=urn:btih:A2A42AD696BDC8931F244AD6AAE2848CCEA5C9C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,34 +170,412 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454581   (93950) от 20.02.2012
+###  Публикация: 474847   (97880) от 28.03.2012
 
-Журнал | Вестник арды [2011] [PDF]
+Каникулы в Мексике - 2. Выпуск №18 (2012.03.28) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97880.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E22082D56FDA829E1FEC185C4C276C1C9FB8105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474398   (97879) от 28.03.2012
+
+VA - Absolute Dance Hits (2012) [MP3|256 кб/с]<Dance, Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97879.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cosmic Gate & Arnej - Sometimes They Come Back For More (Radio Edit)
+ 002. Asher Roth (Ft Akon) - Last Man Standing
+ 003. Funky Chicos - Girls In Love (Sunrider Edit)
+ 004. Milk & Sugar Feat. Miriam Makeba & Jungle Brothers - Hi-A Ma (Pata Pata)
+ 005. Kelly Clarkson - Stronger (What Doesnt Kill You) (7th Heaven Club Mix)
+ 006. Dj Project Giulia - I'm Crazy In Love
+ 007. Flo Rida feat. T-Pain & LMFAO - Run To You
+ 008. Nadia Ali - Rapture (Avicii New Generation Radio Edit)
+ 009. Andreea Balan - Like a Bunny (Radio Edit)
+ 010. Azuro Feat. Elly - Toca Me (Video Edit)(   Читать дальше...   )2012Жанр: Dance, РорПродолжительность: 05:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA869585816232DE00124A7E5CE45ACB657BB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474671   (97878) от 28.03.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (29.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3017670F4B94F219C144807865A140F9BB284B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474463   (97877) от 28.03.2012
+
+Nightside Glance - 2 альбома (2009 - 2011) [FLAC|Lossless]<Sympho Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightside Glance — белорусская sympho/modern/black metal группа, основанная в 2005 году и сразу зарекомендовавшая себя как яркий живой коллектив, с запоминающимся имиджем и мощной подачей материала. Музыкальная составляющая группы представляет собой жесткий, мелодичный саунд с элементами электронной музыки — метал, тяжелым локомотивом движущийся сквозь настоящее в будущее. За время своей деятельности Nightside Glance дали множество концертов на площадках Беларуси и России, где делили сцену с такими группами как: Vesania (PL), Thy Disease (PL), Christ Agony (PL), Luna Ad Noctum (PL), Vicious Crusade (BY), Rasta (BY), Mental Demise (UA) и др. На сегодняшний день Nightside Glance – одни из самых ярких представителей белорусской метал-сцены со своим сценическим имиджем и концертным шоу.01. Breaking Point 05:52
+02. Changing Lives 03:45
+03. Children (Robert Miles cover) 06:28
+04. Edge of Time (live) 07:35
+05. In Raven Claws (live) 06:18
+06. Masquerade of Piety (Vicious Crusade cover) 06:45Жанр: Sympho Black MetalПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474766   (97875) от 28.03.2012
+
+VA - Trance Maniacs Party Melody Of Heartbeat #79 (26.03.2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97875.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Maniacs Party Melody Of Heartbeat #79 (26.03.2012)
+Год: 26.03.2012
+Жанр: Vocal Trance
+Продолжительность: 03:26:03Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Andrew Rayel - 550 Senta (Aether Mix)
+02. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Extended Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1371A36BF0F5581AB24FAB29679CE7D11036E586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474235   (97874) от 28.03.2012
+
+VA - Слушай Электронный Рок Maximum (2012) [MP3|256 kbps]<Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Би-2 - Февраль (Feat. Ю. Чичерина)
+002 The Beatles - Yesterday
+003 Глеб Самойлоff & The Matrixx - Рай
+004 Doors - The Severed Garden
+005 Ляпис Трубецкой - Священный Огонь
+006 Stratovarius - Celestial Dreams
+007 Мкпн - Аленький Цветочек
+008 Supertramp - Breakfast In Amerika
+009 Ленинград - Прогресс
+010 Pegazus - Emerald Eyes(   Читать дальше...   )2012Жанр: РокПродолжительность: 05:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A75450200A63E789812EF1AB8B289A0A4A1B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474285   (97873) от 28.03.2012
+
+DJ Kocmoc - Electro Russian Dance vol.4 (24.03.2012) [MP3|320 кб/с]<Electro House, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97873.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Anna FOX & Extasy Project - Мне все равно (DJ Melnikoff & DJ Andy Max Remix)
+2. Cloud Dj' s Project & Альмароин - Небо Над Нами (Extended Mix)
+ 3. Лерика - Небо И Земля (DJ Vengerov Remix)
+ 4. DJ Mixer Euro feat. Nika Belaya - Зажигаем (Ser Twister Remix)
+5. Клипса - Шаг (Dj Kutsek Club Remix)
+ 6. DJ Sandro Escobar feat. Katrin Queen vs Nyusha - Vyshe (DJ Solovey Remix)
+7. Biffguyz - Bum bum bum (Big Four & DJ Demonhouse Remix)
+8. Тяга - Он уходил (Ser Twister Remix)24.03.2012Жанр: Electro House, HouseПродолжительность: 03:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A834CA45BB0B081BC242ED7E9E33504595C747F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474669   (97870) от 28.03.2012
+
+[Wallpapers] Best HD Wallpapers Pack (29.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DB600511D309A954C812150727721573447969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474672   (97868) от 28.03.2012
+
+[Wallpapers] Films Wallpapers (29.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECFF332AA944BC6F18E3A70955F1F5E78B3A79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474668   (97867) от 28.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (29.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E7781308A186A1F6BE39BC46F6B9F18C96765E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473463   (97865) от 28.03.2012
+
+VA - House Vip (20.03.2012) [MP3|320 кб/с]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97865.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adrian Lux Feat. Lune - Fire (R3hab's Bigroom Remix) (5:45)
+ 2. Alex Hilton vs. Mirko Delago - Dare me (Slin Project & Rene de la Mone Remix) (5:26)
+ 3. Ben DJ - Rock It (Total Sound & D-Seven Remix) (6:05)
+ 4. DeadWave - Dark Time (Original Mix) (5:54)
+ 5. Far East Movement feat. Rye Rye - Jello (Michael Woods Remix) (6:45)
+ 6. Feed Me - Trichitillomania (Original Mix) (6:45)
+ 7. Freq Maverick - Batteries Not Included (Dubble JD Remix) (5:44)
+ 8. Lunde Bros - Tell Me (Original Mix) (5:17)20.03.2012Жанр: Electro HouseПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28EC0654B21004658CC60AC9562B0EE3CB8264E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474694   (97864) от 28.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 28
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97864.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 28 
+Название:  Desktop Wallpapers Pack 28 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4689EC39BA600CA8B0222B3A0810B017AA164F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474663   (97862) от 28.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (28.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCA5105C8AFE94B2585391B1056AFAC3E46114A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474768   (97861) от 28.03.2012
+
+Журнал | Вкус №2 [2012 март-апрель] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93950.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вестник Арды - это литературно-публицистический журнал, посвященный творчеству писателя Дж. Р. Р. Толкина, работам, вдохновленным этим творчеством, а также жанру фэнтези, который благодаря ему возник.
-
-Тут публикуются:
-Исследовательские статьи об Арде.
-Исследовательские статьи кроссфентезийной тематики (например, о мифических существах, магии и т.п.).
-Статьи о различных мифологических системах.
-Творчество по мотивам текстов Дж. Р Р. Толкина.
-Переводы (в частности статей из Tolkien Studies).
-Авторские рисунки.
-Юмор.(   Читать дальше...   )2011Формат: PDF
+Журнал "ВКУС" - это специализированное издание  посвященное гастрономии, напиткам и табакам. Мы являемся экспертами в области ресторации и имеем огромный опыт проведения алкогольных, сигарных и гастрономических дегустаций и презентаций.
+ Аудиторию журнала "ВКУС" составляют гурманы и любители. Наших читателей интересуют мировые гастрономические тенденции, новые вина, экзотические продукты и кулинарные путешествия. На страницах журнала они узнают, где продается масала, с чем сочетать хамон, как разделать омара и что такое кивано.2012 март-апрельФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F51E6C1DF18B6E75B4F9889C3960E76B23CDDE0
+magnet:?xt=urn:btih:E0BC1ECC505D762F5013EFD4451A9CC312F7E6B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,33 +583,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454927   (93945) от 20.02.2012
+###  Публикация: 474336   (97857) от 28.03.2012
 
-VA - Cinema Of Consciousness 2 (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
+VA - 538 Hitzone 60 2CD (2012) [MP3|320 кб/с]<Dance>
 
->>Архив торрентов
->>Архив Музыки
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93945.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Philter - Stairway To Heaven 07:53
- 02. Dual Lane - Yalta Journey 07:59
- 03. Solar Groove - Heretic 09:47
- 04. Hypnos - Disco Doll 06:27
- 05. Bio-Psy - Cheap Thrill 08:05
- 06. Lightsphere - Faith 08:26
- 07. Krystaline - Science Of Signs 08:00
- 08. Peak Processor - White Rabbit 07:35
- 09. Lunar Surface - Cosmic Base 07:052012Жанр: Psychedelic / ProgressiveПродолжительность: 01:11:17
+CD1 Время звучания 01:15:59
+----------------------------------
+01 - Coldplay - Paradise
+02 - Michel Telo - Ai Se Eu Te Pego (Nooossaa!)
+03 - Studio Killers - Ode To The Bouncer
+04 - Ed Sheeran - The A Team
+05 - Birdy - Skinny Love
+06 - LMFAO - Sexy And I Know It
+07 - Gers Pardoel ft. Sef - Bagagedrager
+08 - Lykke Li - I Follow Rivers (The Magician Remix)(   Читать дальше...   )2012Жанр: DanceПродолжительность: 02:32:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83F15EFFAD576BA34D34ACA6D11FBF307CA13456
+magnet:?xt=urn:btih:8724F6E6CD66CA971F4D0FB5B9B913F69406CD52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -725,34 +618,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455085   (93942) от 20.02.2012
+###  Публикация: 474727   (97855) от 28.03.2012
 
-VA - Progressive Music (19.02.2012) [MP3|320 kbps]<Progressive House>
+С.П. Кожан | 30 минут для красоты [1991] [DOC]
 
->>Архив торрентов
->>Архив Музыки
+>>Разное (категория книг)
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93942.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andy King - Sativa (Original Mix) (7:52)
- 02. Basto & Yves V - Cloudbreaker (Original Mix) (6:22)
- 03. Carbon - Only Those Who Believe (Fusi Johnson Own Space Mix) (6:46)
- 04. Conrad S - Night Active (Original Mix) (6:46)
- 05. Dave Romans - Wrapped Up Happiness (Original Mix) (6:33)
- 06. David Puentez Feat. Max C. - Things We Do 4 Love (Dani Veiga Remix) (7:03)
- 07. Dyro - Metaphor (Original Mix) (4:38)
- 08. Hardsoul & Baggi Begovic - Survival (Robbie Taylor Iberican Mix) (6:40)
- 09. Psycatron - Memories of The Moment (John Digweed & Nick Muir Remix) (7:45)
- 10. Shopping Therapy - Sofia Diaries (Original Mix) (6:47)19.02.2012Жанр: Progressive HouseПродолжительность: 01:07:16
+Красота немыслима без здоровой кожи, очень просто сделать маску для кожи лица, которая поможет снабдить Вашу кожу полезными веществами.
+Не думайте, что стоит только намазать кожу и все. Не все так просто.
+В брошюре предлагается  использовать маски на основе трав и отваров. Очень полезно пользоваться масками собственного производства для лица, поскольку ничто не заменит натуральных продуктов.
+Рецептов масок для кожи очень много. Подберите свой рецепт. Вы даже можете придумать свою, собственную маску.
+Главное помните: обязательно проверяйте новый рецепт на незаметном участке кожи.1991Формат: DOC
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4D4A730BBE1972CD28C27A0EBFB0B6690FF1752
+magnet:?xt=urn:btih:7C3F09F4E26AEBB7B6A2C13141FED2639A993F13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -760,29 +648,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455454   (93938) от 20.02.2012
+###  Публикация: 474611   (97854) от 28.03.2012
 
-VA - Living The Dream EP pt.3 (2012) [MP3|320 kbps]<Drum & Bass>
+VA - Лучший клубный драйв (2012) [MP3|192-256 kbps]<Club>
 
->>Архив торрентов
->>Архив Музыки
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93938.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97854.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cybass - it's a new life for me (big bud remix) (06:01)
-02. Random Movement - dropping the chips (06:29)
-03. Flaco - choose me (insiders remix) (06:42)
-04. Blue Motion, Grimm, Remo - we used to be good (06:47)
-05. Kubiks, Sicko - mad men (04:59)2012Жанр: Drum & BassПродолжительность: 00:30:18
+01. Andreea Banica - Electrified (Extended Version)
+02. Oksi - Безумная (Makhno Project extended Mix)
+03. Горячий Шоколад - Береги (Roman B & Eddie Reznik Mix)
+04. Sander Van Doorn - Koko (Original Mix)
+05. Tango & Cash - Gonna Be (Peter Gerassimoff Remix Edit)
+06. Dj Cosmo & Dj Blesk Feat. Лера Туманова - Дыши (Radio Edit)
+07. Blue Affair & Sasha Dith feat. Carlprit - Я одна (Mondo remix)
+08. Shogun - Lotus (Id Dfm)
+09. Armin Van Buuren Pres. Gaia - Stellar (Original Mix Edit)
+10. Wynter Gordon - Til Death (WaWa Remix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:54:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91477090D9B93F041D754DC742C9BDCFDB684C4F
+magnet:?xt=urn:btih:6ECE1CBE7F29B29361B00D59E8F53AA805047850
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -790,34 +683,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455183   (93936) от 20.02.2012
+###  Публикация: 474270   (97853) от 28.03.2012
 
-Trance Therapy - Volume 7 (2012) [MP3|320 kbps]<Trance>
+DJ Kocmoc - Electro Sensation vol.23 (23.03.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93936.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97853.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ferry Corsten - I Love You-Original 2003 Version [07:38]
- 02. Gouryella - Ligaya-Ferry Corsten Remix [08:45]
- 03. Ferry Corsten - Sweet Sorrow-Ferry Corsten Fix [07:37]
- 04. Breakfast - River Of Light [10:06]
- 05. Ferry Corsten - Masquerade [08:00]
- 06. Embrace - Embrace-Leon Bolier Remix [07:42]
- 07. Ferry Corsten - Galaxia-Symphonic Remake [03:44]
- 08. Gouryella - Tenshi-Ochestra Cyber France De Paris [04:44]
- 09. Tritonal Feat. Soto - Piercing Quiet [08:33]
- 10. Ferry Corsten Pres. Pulse - Rendition [07:50](   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:53:52
+1. DJ Aptekar feat. Monika Star - A Dream Within A Dream (David Argunetta Remix)
+2. Avril Lavigne - Complicated (DJ Solovey Remix)
+ 3. Tiff Lacey & Fergus Keogh - Darkest Hours (Erick Strong Remix)
+4. DJ M.E.G. & B.K. feat. Ser Twister - Make Your Move (DJ Pashkevich Remix)
+5. Tango & Cash - In Your Eyes (Club Mix)
+6. Paradiso - Bailando (Ser Twister Remix)
+7. Scooter - Weekend (Positive DJ's Remix)
+8. Eugene Star feat. DJ Goman - Love Sex Dance (Chris Daren Remix)
+9. Fugees - Ready Or Not (DJ Solovey Remix)
+10. Dj Amor - Best memories (Dj Rembo Remix)(   Читать дальше...   )23.03.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:28:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F369CA086D3486466CFC894F78F748DD46ACB37E
+magnet:?xt=urn:btih:D59E165793A5524F16D2D3F1527AD36CAA3C3F22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -825,33 +718,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455461   (93935) от 20.02.2012
+###  Публикация: 474649   (97852) от 28.03.2012
 
-VA - The Beach 2011 (2011) [MP3|320 kbps]<Psychedelic / Full On>
+Журнал | Elle Decoration №4 [апрель 2012] [PDF]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93935.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97852.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. G.M.S - Pray For Japan 06:45
- 02. 1200 Micrograms - Let It Roll 06:59
- 03. Bizzare Contact - Vibrations 07:56
- 04. Space Cat - In The Air 07:13
- 05. Dynamic vs. Melicia - Go Back 07:03
- 06. Perplex vs. Intersys - Dirty Bytes 07:20
- 07. Black & White - Transition Mode 06:51
- 08. X-Noise - Streptococcus A 07:03
- 09. Nick Callaghan & Will Atkinson - Blizzard (Liquid Soul Remix) 08:122011Жанр: Psychedelic / Full OnПродолжительность: 01:05:24
+ELLE ДЕКОР - самый красивый и полезный журнал о современном интерьере. В журнале представлены: последние тенденции мебельного дизайна и декорирования, эксклюзивные интервью с известными архитекторами, дизайнерами и фотографии лучших домов России и всего мира.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:332D0D12E0F1F8D67D5884BB69D8F7D0E3A32193
+magnet:?xt=urn:btih:0F9C83284CA0B7A8D2742329EF1D9AC1CDF642D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474154   (97849) от 28.03.2012
+
+VA - Музыкальная волна - Версия 6 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97849.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Катя Бужинская - Обещаю
+002. David Guetta - Titanium (Feat. Sia)
+003. Даша Суворова - Давай Помолчим
+004. Тимур Родригез - Лучше Не Будет
+005. Franky - Touch Me
+006. Max Vertigo Feat. Koshka - Унеси Меня
+007. Дима Билан - Rock My Life
+008. Ирина Круг - Любить Не Страшно
+009. Nayer Feat. Pitbull & Mohombi - Suavemente
+010. Push-Up - Пора По Барам(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB38A994724C294275A412F73F271EE4C35476B
 ```
 
 https://mybot314.ru/tekegram_catalog/

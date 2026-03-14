@@ -1,3 +1,32 @@
+###  Публикация: 1233891   (575627) от 02.07.2018
+
+VA - Club Dance Ambience Vol.154 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575627.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alakin Kirill - Save to memory (Extended mix)
+002. Alakin Kirill - Tarzan (Original mix)
+003. All Saints - Love Lasts Forever (Pink Panda Extended Vocal Mix)
+004. Andrey Pitkin & Alexander Gecko - Flying Emotion  (Extended Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8379B70F44BCF3434E228FF66BD2638E51C0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554450   (575565) от 31.05.2022
 
 VA - 60 Minutes. Old School Dance Music vol.8 (mixed by Dj V) (2022) [MP3|320 Kbps] <Club House, Dancecore, Eurotrance>
@@ -723,35 +752,6 @@ VA - Iced Coffee: Balearic Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60537DAD71A211B5DE9BDB658BF7C3929BD089E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043712   (571059) от 17.08.2016
-
-VA - The Greatest Hits of Chillout Easy Listen Collection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Igor Pumphonia - Spiritual Light
-02. Cocktail Jazz - For Me You Are Here
-03. Knoult - Away from the Cares
-04. Igor Pumphonia - A Moment of Love - Guitar Version(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B296A07FA6F5865181B54A8AA0690FD3910622
 ```
 
 https://mybot314.ru/tekegram_catalog/

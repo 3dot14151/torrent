@@ -1,3 +1,32 @@
+###  Публикация: 1108972   (861086) от 26.02.2017
+
+Juan Gonzalez, Julio Simon, Rey Delis, Oscar Ruiz - Cuarteto de Saxofones de Santiago (1998) Auvidis [FLAC|Lossless|image + .cue] <World Fusion, Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Afro sensual [03:26]
+ 02.Zapateo Cubano [02:19]
+ 03.Altura de quintero [05:54]
+ 04.Longina [03:28](   Читать дальше...   )Жанр: World Fusion, Cuban JazzПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FF47FCB1669F55ABD336395B9EDE88698DF536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108965   (861002) от 26.02.2017
 
 Gerry Mulligan & Ben Webster - Gerry Mulligan meets Ben Webster (1959) 1998, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -721,35 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000955   (855936) от 27.03.2016
-
-Abbey Lincoln - That's Him! (1957) Remaster, 1999, Victor[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Strong Man [05:06]
- 02.Happiness Is Just a Thing Called Joe [05:58]
- 03.My Man [03:58]
- 04.Tender as a Rose [03:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBE9FDABEEA2C1AB3AEC2350D7EAF73A09A0140
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1132580   (700846) от 09.05.2017
+
+Timothy Wenzel - What We Hold Dear (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murmuration (feat. Josie Quick & Jordan Schug)
+02. What We Hold Dear (feat. Josie Quick & Jordan Schug)
+03. Appalachian Waters
+04. Ascension (feat. Jordan Schug)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E075870D3B3AD147FD163D592ED18FF086932BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132424   (700781) от 09.05.2017
+
+Samuel Laflamme - Outlast II (Original Game Soundtrack) (2017) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Origins of Murder Victim Jane Doe (01:33)
+02. Hide You in Ezekiel’s Blood (01:18)
+03. I Am the Chorus of Screams! (02:03)
+04. You Don’t Have to Hide (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77CC1CA3C9C9E0DA84A40418CC5994455D00E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132600   (700772) от 09.05.2017
+
+Parijat - Blessings (2017) [MP3|320 Kbps] <New age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise
+02. All Is Well
+03. I Hold You When You Fall
+04. The Heart Is a Resting Place(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 01:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77CCA0495AE756AB5BF43160D4676ED51D9B2554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132626   (700637) от 09.05.2017
+
+Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter in the Mountains
+02. The Book of Dragons
+03. When It Snows in the Forest
+04. The Quest(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40934631A43CC806B4A93C5409A1198B6269B6CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132355   (700619) от 09.05.2017
+
+Баян MIX Сергея Войтенко - 4 альбома (2014-2016) [MP3|192 Kbps] <Bayan, Instrumental, Pop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карнавал 3:32
+02. Рэд танго 3:03
+03. Катя 2:53
+04. Ты так далеко 4:50(   Читать дальше...   )Жанр: Bayan, Instrumental, PopПродолжительность: 02:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE27D2BA5AFBBF8C1EB4AC0459DC3EDC9A09529B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220572   (700530) от 21.04.2018
 
 Levantis - I Love Yoga (Music To Relax Your Body And Mind), 3CD Box Set (2009) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Ambient>
@@ -606,151 +751,6 @@ Hans Zimmer & Junkie XL - Batman v Superman: Dawn Of Justice / Бэтмен пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9DE33AA3018E7306E791535A573B88BBE885392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288140   (697766) от 10.03.2019
-
-Pam Tillis - Homeward Looking Angel (1992) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697766.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	How Gone Is Goodbye 	3:15
-2 	Shake The Sugar Tree 	3:09
-3 	Do You Know Where Your Man Is 	3:46
-4 	Cleopatra, Queen Of Denial 	3:12(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8920FEFA2BD2335C89DB4242852CAE6E62DDEACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287946   (697761) от 10.03.2019
-
-Cris Velasco - Clive Barker's Jericho (2007) Soundtrack [MP3|~245 Kbps (V0)] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крис Веласко хорошо известен по его совместными саундтреками с Сашей Дикисияном, например Dark Messiah, John Woo's Stranglehold, Hellgate: London и многими другими. Но когда у Криса подворачивается возможность написать что-либо без своего лучшего друга, он пытается воспользоваться ею сполна (правда, всё равно приходится просить его о помощи). Самостоятельно он написал (   Читать дальше...   )1. Legend of the Firstborn (1:57)
-2. The Coloseum (2:55)
-3. Lichthammer (1:50)
-4. Path of the Righteous (2:19)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75E737FFDDFD727EB7564C784B0F89F819C364D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025747   (697694) от 18.06.2016
-
-OST - Mick Gordon - DOOM (2016) [MP3|320 кб/с] <Electronic / Progressive Metal>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697694.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Main Menu (05:05)
-02. You Will Be Worse (05:15)
-03. The Beginning (07:40)(   Читать дальше...   )Жанр: Electronic / Progressive MetalПродолжительность: 05:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E87C6BE7954A4749352712D37FE98C41E888F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132887   (696991) от 11.05.2017
-
-Peru - Constellations (1989) [FLAC|Lossless|tracks + .cue] <New Age, Synth-pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of Time  (09:05) 
-02. Utopie  (12:58) 
-03. Deja Vu  (07:21) 
-04. Constellations  (04:49) (   Читать дальше...   )Жанр: New Age, Synth-popПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF285F95A3C80E5E43C03D919501AB9CD51A0AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133097   (696942) от 11.05.2017
-
-Parijat - Blessings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise
-02. All Is Well
-03. I Hold You When You Fall
-04. The Heart Is a Resting Place(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3B98262CF4D2E8651C9D81210569BFE474F962
 ```
 
 https://mybot314.ru/tekegram_catalog/

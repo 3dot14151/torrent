@@ -1,3 +1,200 @@
+###  Публикация: 731409   (295119) от 08.12.2013
+
+Сборник клипов - VA - Various Music part. 48 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295119.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 140 Ударов в минуту - А я скучаю очень 1080p (4:20)
+2. 5sta Family - Буду с тобой 1080p (3:36)
+3. Akcent - Lacrimi curg 1080p (3:59)
+4. Alex Kunnari & Heikki L ft. Joel Madden - City of Sin 1080p (3:41)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7558DF5F71471AF6396E7BA59B025E190A446418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962343   (294715) от 04.12.2015
+
+Flo Rida - Collection Video Clip ( 2010 - 2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагаем лучшую подборку видео клипов Тремера Дилларда или Фло Рида.1. A-Roma feat. Flo Rida and Shawn Lewis - A Prayer (Official Video) (00:03:29)
+2. Austin Mahone ft. Flo Rida - Say You're Just A Friend (Official Video) (00:03:15)
+3. Charmani ft. Flo Rida - Paint This Town (00:03:33)
+4. Erika Jayne ft. Flo Rida - Get It Tonight (00:03:44)(   Читать дальше...   )Жанр: House, Trance, Rap, Hip-HopПродолжительность: 01:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B397EFDDA41AAFDEB2381AF553A33F70C88B8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962117   (294585) от 04.12.2015
+
+VA - Зимний марафон № 209: Дискотека с доставкой на дом (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (03.12.2015) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. A-Dessa (Стас Костюшкин) - Караочен (Премьера!) (00:04:20)
+02. Azary ft. Kleo and Alldavay - Ах, какой казах (Official Video) (00:03:36)
+03. Carrie Underwood - Heartbeat (Official Video) (00:04:02)
+04. Chus and Ceballos ft. Astrid Suryanto - All I Want (Official Video) (00:04:03)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, Electronic, SynthpopПродолжительность: 01:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97298AE6830C980A1887D2EC376437EFC247CB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962452   (294480) от 04.12.2015
+
+4G (4 Girls) - Улыбайся (2015) WEBRip [4K] [H.264/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Максима Фадеева - 4G (состав группы: Дарина Иванова, Ирина Морозова, Аня Егорова и Софья Голубева), выпустила новый клип на песню "Улыбайся".Жанр: PopПродолжительность: 00:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2BC6CE9C9D1B915EB889A84E0B7307C68E26BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185103   (293122) от 21.11.2017
+
+Rihanna feat. Jay-Z - Umbrella (2007) 540p HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный видеоклип Rihanna feat. Jay-Z - Umbrella.Жанр: Музыкальный видеоклип.Субтитры: отсутствуютПродолжительность: 00:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450F02330C31D98DD6D12CFD8287EF4505F2014C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185321   (292872) от 21.11.2017
+
+Сборник клипов - Best of Hits 90s от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292872.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые и фишкастые клипы лихих 90х. В нём я постарался отразить все обояние того десятилетия, пускай неопределенного и иногда даже дикого, но все же думаю многим приятно будет вспомнить то время. Время поднятия с колен нашей великой и большой страны, имею в виду весь бывший союз. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все (   Читать дальше...   )000 Intro
+059 La Bouche - Sweet Dreams
+060 Mr.Credo - Мама азия
+061 Modern Talking - China In Her Eyes (feat. Eric Singleton(   Читать дальше...   )Жанр: PopПродолжительность: 03:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1894C37BC9BD1DD40D623C98928BF90DC27B67C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962533   (292758) от 05.12.2015
+
+Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагаем лучшую подборку видео клипов Armando Christian Perez III или сценическое имя Pitbull.01. Pitbull and Empire Cast ft. Jussie Smollettl - No Doubt About I (00:04:14)
+02. Pitbull - Back In Time (featured in 'Men In Black III') (00:03:32)
+03. Pitbull - Celebrate (from the Original Motion Picture Penguins of Madagascar) (00:03:11)
+04. Pitbull ft. TJR - Don't Stop The Party (00:03:33)(   Читать дальше...   )Жанр: Latino, Reggaeton, Hip House, Rap, Hip-Hop, Latin UrbanПродолжительность: 01:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338CD52DD68AD3BE60D14C7772E6F58B5C581040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962598   (292639) от 05.12.2015
 
 Ageless rock (2015) WEBRip [H.264]
@@ -535,193 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92F97AF8280CD7CEA1DF489A83000CE04273F6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498981   (256139) от 20.05.2012
-
-Queen feat. Adam Lambert — MTV EMA 2011. LIVE (2011) [H.264/720p-LQ] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одним из сюрпризов церемонии MTV EMA 2011 стало выступление в качестве солиста группы Queen американского музыканта Адама Ламберта.
-****Выступление группы Queen завершало вечер. «Дамы и господа, группа Queen», — объявила ведущая, так и не упомянув Адама Ламберта. Было ли это частью сценария, или юная ведущая просто переволновалась, так и останется неизвестным.
-По (   Читать дальше...   )Жанр: рокРежиссер: MTVАктеры: Queen feat. Adam LambertПеревод: ОтсутствуетПродолжительность: 00:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D7602484F36FD6C99456E3C7F640195B5D3EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627218   (255052) от 18.04.2023
-
-Валерия & Жан Милимеров - Колокола [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валерия и Жан Милимеров представляют видеоклип на песню «Колокола».Производство: Hana Road StudiosЖанр: Поп, русская эстрадаПродолжительность: 00:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7877633C458404C4CED3117F5B0F321965F43F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497561   (253449) от 16.05.2012
-
-Inna. Caliente (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОРПродолжительность: 03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC07405FD22FD69062A98FA3DA9847CEA3825FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497539   (253405) от 16.05.2012
-
-Lionel Richie feat. Shania Twain. Endless Love (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОРПродолжительность: 04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16909E6F2AC5C125F649AB4C663A31B02429729D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334360   (252049) от 25.05.2023
-
-Тина Тернер - лучшее / Tina Turner - ALL THE BEST - The Live Collection (2005) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшее от Королевы рока за 15-летний период с 1985 по 2000 год.01. Steamy Windows
-02. Show Some Respect
-03. I Can't Stand the Rain
-04. River Deep Mountain High(   Читать дальше...   )Жанр: RockПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 02:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E4710E8089F3FE572E07E4B28332EFC83F1542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495133   (251223) от 11.05.2012
-
-Сборник видеоклипов Millenium Slow (2012) HDTVRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник медленных композицийЖанр: POPПродолжительность: 05:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7991F065E16AC43C61ACFF6E91FCF0A5FAFA22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494343   (251044) от 10.05.2012
-
-30 Seconds To Mars - Hurricane (Uncensored) (2010) BDRip 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фентезийный клип-фильм Hurricane от 30 Seconds To Mars. Отлично снят. Главное, пожалуй, музыка, по крайней мере - для меня. Она просто шикарная.Жанр: Hard rock, space rock, progressive rockРежиссер: Bartholomew CubbinsАктеры: Jared Leto, Shannon Leto, Tomo MiličevićПродолжительность: 00:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D9A230C39B71EB6BC1403ED6219EF02E635A3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

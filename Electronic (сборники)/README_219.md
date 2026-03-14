@@ -1,3 +1,32 @@
+###  Публикация: 1739731   (48520) от 29.07.2024
+
+VA - Record Super Chart 27.07.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta feat. OneRepublic - I Dont Wanna Wait (Extended) (3:27)
+02. ZERB & The Chainsmokers - Addicted (feat. Ink) (2:32)
+03. R3HAB, VIZE, JP Cooper - Jet Plane (2:58)
+04. Artemas - I Like The Way You Kiss Me (Burnt) (2:42)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE337D2CBD6AB01C18D36998A5E8DCDD44963FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740778   (47953) от 03.08.2024
 
 VA - VA - compilation part 111 Electronic (2024) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ CD1: Mixed By Neptunica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB1532AD9706FB3C86DDFE8C6A03BB5E4218913F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750276   (42919) от 20.09.2024
-
-VA - Compilation part 122 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davit Barqaia - Dreamers
-02. Dieez - Sienna
-03. Elno - Senteber
-04. Dndm - Rainfall(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4751A8F951A4F5F7DAEEF33B9B7441D58CC97118
 ```
 
 https://mybot314.ru/tekegram_catalog/

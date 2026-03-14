@@ -1,3 +1,90 @@
+###  Публикация: 1454485   (1026257) от 15.03.2021
+
+VA - A Brief Touch Of (2021) [MP3|320 Kbps] <Indie, Pop, Rock, Alternative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026257.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном сборнике подобраны свежие новинки от исполнителей разных направлений independent-культуры. Мелодичность, простота звучания и отсутствие какой либо агрессии, так можно охарактеризовать эту музыку. Она варьируется от трогательных акустических мелодий и мечтательного попа до энергично-кричащих гитарных запилов с необычным вокалом.001. BUMPER - You Can Get It
+002. Anna B Savage - A Steady Warmth
+003. Carm - Song Of Trouble
+004. Julien Baker - Hardline(   Читать дальше...   )Жанр: Indie, Pop, Rock, AlternativeПродолжительность: 08:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E822B993D1B1504094047560592104BD0971E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454484   (1026252) от 15.03.2021
+
+VA - Beatport Drum And Bass: Electro Sound Pack #254 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы любитель по-настоящему жестких басов, то этот 254-й релиз от Beatport предназначен именно Вас, ведь здесь собраны треки с самыми разными направлениями жанра линейки Bassline.001. Monista - Make Sure They're All Dead
+002. Terror & Espa - Loaded Gun
+003. Blvck Crowz & Careso - Gossip
+004. Speaker Louis - Foundation(   Читать дальше...   )Жанр: D&B, Bassline, Electro BassПродолжительность: 12:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47DAFE729F305484912C0DC65E4835E842A065D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454483   (1026244) от 15.03.2021
+
+VA - Rap Blender Mix (Vol.02) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026244.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ряду разнообразных музыкальных стилей, жанров и направлений особняком стоит музыка в стиле рэп. Этот жанр музыки справедливо считается народным, ведь его появление никоим образом не связано с коммерцией. Эта музыка своеобразное проявление молодежи, эмоциональная подпитка. В настоящее время рэп выходит за границы музыки, представляя из себя культуру, которой свойственны (   Читать дальше...   )001. Luni - Konbanwa
+002. Hitsticktaxfree - From The Ghetto
+003. Basicallytheo - Chubby Rain
+004. Yhung T.O. - No Time Soon(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 09:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4C12FBBF51B2A9EF6D39596A400E1CCA5167D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454614   (1026218) от 15.03.2021
 
 VA - Classic Rock Legends (2021) [MP3|320 Kbps] <Rock>
@@ -658,93 +745,6 @@ VA - The Metal Hammer - 100 GREATEST SONGS OF THE CENTURY (2021) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:872730C3FD5075889012BA8A470BD9E4BA85527D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456344   (1025137) от 22.03.2021
-
-VA - Beatport Disco Jackin' House: Sound Pack #258 (2021) [MP3|320 Kbps] <Funky, Disco Groove,  Jackin' House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна вступает в свои права, но одного весеннего солнца для хорошего настроения точно недостаточно. Необходимо добавить ко всему еще и соответствующую музыку, именно её и несет с собой эта отличная 258-я подборка танцевальной музыки от Beatport, которая включила в себя целую сотню ремикс-треков диско стиля!001. Monique Rossi - How Wonderful You Are
-002. Mali - One Two Three Four
-003. Pva - Talks
-004. Domscott - The Cracks About(   Читать дальше...   )Жанр: Funky, Disco Groove,  Jackin' HouseПродолжительность: 09:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F6151AB15E4A200531429DF7DE62E369BBF6641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456318   (1025126) от 22.03.2021
-
-VA - Let's Dance (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GotSome, Alex Mills - Shout It Back (3:23)
-02. Habbo Foxx - For You (3:44)
-03. Purple Disco Machine, Moss Kena, The Knocks - Fireworks (3:19)
-04. Elliot Fitch - The One (3:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60CF1935882754BB2C96D1DF7B39D020DBBD1D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456351   (1025123) от 22.03.2021
-
-VA - Simply Soulful Disco House (2021) [MP3|320 Kbps] <Nu Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка 80-90х отличалась какими-то особыми ритмами, звучанием и танцевальностью. Многие хиты тех времен популярны и сегодня и частенько звучат на дискотеках в виде ремиксов. Предлагаем вам подборку самых лучших треков, которые были немного обработаны и теперь звучат по-новому. Откройте для себя любимые песни с другой стороны!001. Forma - Going Down Real Slow
-002. Mark Boson - Vox Populi
-003. Sted E & Hybrid Heights - Free Your Mind
-004. Crimsen - When U(   Читать дальше...   )Жанр: Nu Disco, Funky HouseПродолжительность: 12:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E069F070473F99C26CADEB0998027B136CC3713
 ```
 
 https://mybot314.ru/tekegram_catalog/

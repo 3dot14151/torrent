@@ -1,3 +1,32 @@
+###  Публикация: 1565041   (496578) от 22.07.2022
+
+VA - Euro-Shturm From Ovvod7 & tiv44 (001-055 CD) (2020-2022) [MP3|320 Kbps] <Eurodance, Euro House, Eurobeat>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496578.jpg" />
+</div>
+
+
+###  Подробнее
+
+2020 - Euro-Shturm From Ovvod7 & tiv44 - CD - 0001
+
+01. Shanana - Wigwam ( Radio Edit )
+02. Ororo - Ode To My Family ( Happy Time Mix )(   Читать дальше...   )Жанр: Eurodance, Euro House, EurobeatПродолжительность: 71:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F755A043DBA00FE3EE7FBB2BB29654936DD4B45C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565014   (496571) от 22.07.2022
 
 VA - ВИА - Вся Наша Жизнь от Ovvod7 (001-055 CD) (2021-2022) [MP3|192-320 Kbps] <Поп, Рок>
@@ -769,50 +798,6 @@ VA - My Favourite Hits of 1979 (15CD) (2015) [MP3|320 кб/с]<Pop, Synth-Pop, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13591F564A533CFA178A0B53379FE0E40D17DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544078   (491589) от 07.09.2012
-
-VA - Самый самый клубный сборник Vol 1-2 (2012) [MP3|192-320 кб/с]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol.1
-01. Ёлка - Цепи-Ленты (DJ Noiz & DJ Maxtal Radio Remix)
- 02. Мохито - Быть рядом (Mexx Beat Radio Remix)
- 03. Братья Грим - Аллилуйя (Aksioma Project Remix)
- 04. G-Nise и Алексей Кабанов - Я Погибаю Без Тебя (Radio Edit)
- 05. Братья Грим - Парашюты (Andry Makarov remix)
- 06. Gaudi feat. Катя Баженова - Я Не Знаю (DJ Noiz Remix)
- 07. Андрей Леницкий - Достала любовь (Mexx Beat Remix)
- 08. CENTR - Дорог Город (DJ Vengerov Radio Edit Remix)
- 09. DJ Fisun ft. MC Скайвокер - Хорошие песни (fresh rmx)(   Читать дальше...   )Жанр: ClubПродолжительность: 08:05:37
-01 Quest pistols - Ты так красива (DJ Vengerov Remix)
- 02 Igor Garnier & Kizami feat. Minja - Welcome To Belgrade
- 03 Алисия & Влад Корса - Здесь и сейчас (Harisma Remix)
- 04 Gracias - 40k Volts (Lenno Remix)
- 05 Юлия Савичева - Москва-Владивосток (Rodion Gordin 2012 Swedish Refix Radio)
- 06 Gabry Ponte feat. Pitbull, Sophia Del Carmen - Beat On My Drum (Tacabro Remix)
- 07 Nikita - 20-12 (DJ Sergey Fisun Remix)
- 08 Dean - Radmina (Andeeno Damassy Remix)
- 09 Пашуля - Ты и я (Fidel Wicked Radio DFM)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362167EDE073A76E2A28F96FECBBE8722F072A36
 ```
 
 https://mybot314.ru/tekegram_catalog/

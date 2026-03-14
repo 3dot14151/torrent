@@ -1,3 +1,32 @@
+###  Публикация: 1173499   (389634) от 12.10.2017
+
+VA - Empire Records - House Clinic 2 (2017) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TJR - Time To Jack (Original Mix)
+02. Patrick Hofmann - Noon (Paul Vinx Edit)
+03. Integral - Custom
+04. Azurio - 4.1 (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41DF10F025F4B7B09A13514F7759EFEB2F85B47B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571314   (389414) от 06.11.2012
 
 VA - Trance Maniacs Party: Melody Of Heartbeat #100 (2012) [MP3|320 кб/с]<Voca Trance>
@@ -755,35 +784,6 @@ VA - Space Patrol: Synth Electronic Compilation (2019) [MP3|320 Kbps] <Synthpop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:210818A852E5935B87CBB2A284A8FE3EADB5BCB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574757   (383156) от 06.09.2022
-
-VA - Summer Melodies Vol. 8 (2022) [MP3|320 Kbps] <Electronic, House, Progressive House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Pascascio - A New Beginning
-02. AXIS-Y & Atmospherika - Laguna Salada
-03. Dmitry Kostyuchenko - Mintaka
-04. Hedowiec - Sea Breeze(   Читать дальше...   )Жанр: Electronic, House, Progressive House, TranceПродолжительность: 01:19:19 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5FB9C8CA608E2A80193B6753EE6AA9E948C9B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

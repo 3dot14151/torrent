@@ -1,3 +1,119 @@
+###  Публикация: 1428896   (178407) от 04.12.2020
+
+Stan Bush - Dare To Dream (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born To Fight
+02. Dare To Dream
+03. The Times Of Your Life
+04. A Dream Of Love(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B7EC26D4D9E331EA655007364E1064A92EA7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594253   (178195) от 01.12.2022
+
+[OHM] - Of Hymns And Mountains (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Noise, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3'39'' Love
+02. Shell
+03. Fault & Onus
+04. Carry That Gun(   Читать дальше...   )Жанр: Heavy Psych, Noise, StonerПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3651A3980E44BDECFD6E4367274D0390303F9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594426   (177849) от 01.12.2022
+
+Latter Reign - II (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hair Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Latter Reign
+02. Desire
+03. Dreams
+04. Shine Your Light(   Читать дальше...   )Жанр: Hard Rock, Hair MetalПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBECAD5E4C0C27DF9B37B52FF9AB0FE9D20F07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667293   (177603) от 07.10.2023
+
+Stonemiller Inc. - Welcome To The Show (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_177603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Face I Reflect
+02. Die Young
+03. Rain Song
+04. Broken(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A74272D7EDD4E0A2E6189E1BBF45826B2354DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429341   (177436) от 05.12.2020
 
 Racy Glow - Into the Wild (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +745,6 @@ Rival Sons - Lightbringer (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:972FE59076B8EEF750AA06A3275AA3A6A98D912C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671298   (171399) от 24.10.2023
-
-Sixty Nine Crash - Songs Of Love & Fury (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creatures Of The Night (3:31)
-02. I'd Die For You (4:33)
-03. Purple Rain (5:39)
-04. Rebel Yell (5:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9758D3ADD3B2AC8F0AD1F7CF30BC7BFEAEFF172A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671297   (171393) от 24.10.2023
-
-Alex Destruction - A Tribute To Guns N' Roses Greatest (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry (4:28)
-02. It's So Easy (3:19)
-03. Civil War (7:28)
-04. Knockin' On Heaven's Door (5:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4672853CD1DC30E925FD67DFDAE00112DB1485FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430486   (170747) от 10.12.2020
-
-Shakra - High Noon (2016) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hello [4:16]
- 2. High Noon [5:06]
- 3. Into Your Heart [3:56]
- 4. Around the World [4:25](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9AD903E319BD260862A63E1D91C488EFD3BBB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596267   (170525) от 09.12.2022
-
-IT'sALIE - Emosphere (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breath Of Fire
-02. Unbroken
-03. Beyond Revenge
-04. Moonchild(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C802A1A5C34D146B4404EEAC5AC81AA9A84008
 ```
 
 https://mybot314.ru/tekegram_catalog/

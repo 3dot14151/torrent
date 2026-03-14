@@ -1,3 +1,148 @@
+###  Публикация: 1688696   (125023) от 30.12.2023
+
+Soft Jazz Mood - Smooth Jazz Music Ensemble - Coffee in The Garden Smooth Jazz Background Music (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Book of the Portrait (2:58)
+02. The World of Books (3:37)
+03. The Story of the Novel (3:00)
+04. Read Without a Care (3:21)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3093C2C008C5EF4AEBB3485CC56D197EB64BE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688337   (125014) от 30.12.2023
+
+Lord Of The Lost - Weapons Of Mass Seduction (2023) Cover Version [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neue deutsche härte, dark metal, dark rock, gothic metal, heavy metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look (feat. Blümchen) (Cover - Roxette) (3:58)
+02. Ordinary Town (Cover - Celebrate The Nun) (4:24)
+03. Cha Cha Cha (Cover - Käärijä) (2:59)
+04. Judas (Cover - Lady Gaga) (4:11)(   Читать дальше...   )Жанр: Neue deutsche härte, dark metal, dark rock, gothic metal, heavy metalПродолжительность: 2CD, 01:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C31CD1F3E61531B2A3AE33C93C0B489ECB07FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688699   (125005) от 30.12.2023
+
+Wayne Pretorius - Introduction to Wayne P (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wayne's Groove (6:17)
+02. Easy Going (6:11)
+03. Ready for the day (5:43)
+04. We worship you (8:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C0499B732B733F1519F4487D55B9B6DE776AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688694   (125002) от 30.12.2023
+
+Jayson Tipp - Table For One (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7th & Main (4:24)
+02. And He Rode (4:42)
+03. Another Sunny Day (4:08)
+04. Bob's Groove (4:02)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60676C13D2A6EFEDBFB45BB2BB1855F56D793E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688700   (124886) от 31.12.2023
+
+VA - Smooth Jazz Christmas Serenade (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz Christmas>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz For Sleeping - Melodic Snowflurries in Jazz (3:06)
+02. Christmas Peaceful Piano - A Winter Night in Jazz (2:52)
+03. Cafe Music Jazz Channel - Cozy Smooth Piano Jazz Christmas Countdowns (3:03)
+04. Christmas Sounds - Baby's Blessing Building (2:47)(   Читать дальше...   )Жанр: Smooth Jazz ChristmasПродолжительность: 02:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243F12BA3143718D4963AB5550CC00BF198E5E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689143   (124866) от 31.12.2023
 
 Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, Fusion, Instrumental>
@@ -599,151 +744,6 @@ Van Halen - Van Halen (1978) SACD, Reissue, Remastered, 2023, Mobile Fidelity So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:877192CC62F1328653834B41507DF4A8B9F836E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691113   (123550) от 10.01.2024
-
-The White Stripes - Elephant (2003) SACD, Reissue, Remastered, 2023, Analogue Productions, Third Man Records  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Nation Army 3:51
-02. Black Math 3:03
-03. There's No Home For You Here 3:41
-04. I Just Don't Know What To Do With Myself 2:46(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3151263A8469DB17E9CB0C06EA5FDA8BF0016B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691144   (123537) от 10.01.2024
-
-Nils Lofgren - Acoustic live (1997) SACD, Remastered, 2016, Analogue Productions; Cattle Track Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You 3:36
-02. Sticks And Stones 4:10
-03. Some Must Dream 6:09
-04. Little On Up 5:03(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F498EA2ABB452DDFA4271ABBC1D27BBBA2AFD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691140   (123526) от 10.01.2024
-
-Warren Zevon - Excitable Boy (1978) SACD, Reissue, Remastered, 2023, Mobile Fidelity Sound Lab, Asylum Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123526.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Johnny Strikes Up The Band 2:54
-2. Roland The Headless Thompson Gunner 3:49
-3. Excitable Boy 2:43
-4. Werewolves Of London 3:31(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555A1DA5D654D9E4820041869C8983C0F23541BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691340   (123387) от 11.01.2024
-
-Layla Zoe - Back to the Spirit of 66 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Golden Slumber
-02 - Dark Heart
-03 - The World Could Change
-04 - Praying Kind(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F0C267B4FA610312F788D15FD085838F3CCABBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689838   (123301) от 12.01.2024
-
-Masterdark - In the Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <gothiс, alternative, heavy metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It'‎s a Life [00:02:56]
-02. Rain Inside Me [00:03:48]
-03. Light Makes Me Blind [00:03:04]
-04. Spirit in a Lonely Trip [00:05:24](   Читать дальше...   )Жанр: gothiс, alternative, heavy metalПродолжительность: 00:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64B69FE1B49070686EDB621278F510127B34E95
 ```
 
 https://mybot314.ru/tekegram_catalog/

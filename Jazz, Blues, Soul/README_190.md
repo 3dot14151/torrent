@@ -1,3 +1,183 @@
+###  Публикация: 1537402   (667679) от 16.03.2022
+
+Born Healer - Herbs, Roots, Barks, Etc (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forgot to Forget (3:36)
+02. Grievin' (4:10)
+03. New Moon Rising (3:48)
+04. One of These Days (7:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44192E943BEABCF8E866ACF8A665E73AEE0BF624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339201   (667289) от 20.05.2011
+
+Чайф - Акустические версии (1997) [FLAC(image + .cue)|Lossless]<Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_667289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вперед
+2. Моя квартира
+3. Я рисую на окне
+4. Ой-е
+5. Скажи только слово
+6. Белая ворона
+7. Хей-хей
+8. Традиционная
+9. Оранжевое настроение
+10. Пиво(   Читать дальше...)Жанр: RockПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224358   (667186) от 09.05.2018
+
+Miles Davis & Sonny Rollins - The Classic Prestige Sessions, 1951-1956 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Morpheus
+02. Down
+03. Blue Room (Take 1)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBED49E40F5D25BDC8F7A541AB3940243508F12A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137666   (666838) от 27.05.2017
+
+Elton Dean's Ninesense - Live At The BBC (2003) Hux Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancin' [06:18]
+02. Soothing [08:48]
+03. Sweet Francesca [06:13]
+04. Bidet Beebop [06:42](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44381E829C43353E93AA3237C56CC1EA92A3408F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137837   (666837) от 27.05.2017
+
+Eero Koivistoinen Quartet - Labyrinth (1977) 2002, Love Records [FLAC|Lossless|image + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stress [06:04]
+02. Honky Tonky [02:55]
+03. Arabeski [07:37]
+04. Spring Song [05:13](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF068D3ED1D0665F6F051DB486079BF5729995E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137665   (666788) от 27.05.2017
+
+Harold Mabern Trio - Fantasy (2005) Venus Records [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almost Like Being In Love [05:13]
+02. Harlem Dawn [07:11]
+03. Lollipops And Roses [05:25]
+04. Sesame Street Theme [06:39](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853F4BF17F57E018200AE71F8D284B24D4096863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537521   (666560) от 17.03.2022
 
 Julian Sas - Electracoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -572,180 +752,6 @@ Alice Babs - There's Something About Me (1993) Bluebell [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5FF1D9078649B04CE5713458303B48186E0A3EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138150   (664561) от 29.05.2017
-
-Alice Babs - Joddlarflickan: 24 Originalinspelningar 1939-1951 (1994) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joddlarflickan (3:18)
-02. Jag har en liten Radiola (2:44)
-03. Ett glatt humor (2:30)
-04. Varat gang (3:21)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1F631CD98C47EEE81F150D4BE2CC71949BA4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138439   (664558) от 29.05.2017
-
-Alice Babs - What a Joy (2014) 2CD, Prophone Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664558.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Swing it, magistern [02:53]
-02. Jag har en liten Radiola [02:44]
-03. Stigbergsgatan 8 [03:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BCE33AAD95B5B9905B55FAF0901C039CF76E29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138247   (664557) от 29.05.2017
-
-Alice Babs - Early Recordings 1939-1949 (2005) Vax Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Hundred to One [02:48]
-02. Shoo Shoo Baby [03:12]
-03. I'm Beginning to See the Light [03:09]
-04. Don't Get Around Much Anymore [03:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16C4FC52EC1465207B822802782F8F780A7A02E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537985   (664509) от 19.03.2022
-
-Popa Chubby - Emotional Gangster (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight I'm Gonna be The Man
-02. New Way Of Walking
-03. Equal Opportunity
-04. Hoochie Cootchie Man(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51D1496D6F926752AAB03349A4895F32E26CF75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138236   (664500) от 29.05.2017
-
-Alice Babs - Far Away Star (1973 - 1976) Bluebell [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away Star [03:12]
-02. Serenade to Sweden [03:10]
-03. Spaceman [03:09]
-04. Jeep's Blues [04:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27981A7CA625F63CE0E76E37AD8D5EC74F4DFFDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138447   (664485) от 29.05.2017
-
-Gato Barbieri - The Shadow Of The Cat (2002) Peak Records [FLAC|Lossless|tracks + .cue] <Ethnic Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Chico [05:01]
-02. The Shadow Of The Cat [05:19]
-03. Last Kiss [05:13]
-04. If I Was Your Woman [04:37](   Читать дальше...   )Жанр: Ethnic Jazz, Latin JazzПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998219E4116BF5FBD6689587A584FE9D1B96F7F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

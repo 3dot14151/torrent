@@ -1,3 +1,61 @@
+###  Публикация: 1511148   (789373) от 20.11.2021
+
+MILKOVSKYI (Женя Мильковский) - Вернуться домой (2021) [MP3|320 Kbps] <Punk, Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нужен кто-то [00:02:41]
+02. Вернуться домой [00:02:32]
+03. Одиноко [00:02:09]
+04. Под гудки [00:02:12](   Читать дальше...   )Жанр: Punk, Alternative, RockПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2AA1A100368D3F7F1D7976BCDD312E91266133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511239   (789359) от 20.11.2021
+
+VA - Animals Reimagined - A Tribute to Pink Floyd (2021) [MP3|320 Kbps] <Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Van Eede - Pigs on the Wing, Pt. 1
+02. Graham Bonnet - Dogs
+03. James LaBrie - Pigs (Three Different Ones)
+04. Arthur Brown - Sheep(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B9FC3A7B926299F7652774CC091C68FBC54817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202765   (789091) от 31.01.2018
 
 Terry Brooks & Strange - No Exit (1984) Reissue, 2011, Austria Record Finder [MP3|320 Kbps] <Heavy Psych, Acid Rock>
@@ -687,64 +745,6 @@ Mary Magdelena and the Crimes of Passion - Set the Controls - A Unique Tribute t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BD5D4CEFC1FEC49252EE9AFEA7FF5410C38156D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389441   (784283) от 11.06.2020
-
-Revolving Door - City of Darkness (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sick Of It All (03:36)
- 02. City Of Darkness (03:30)
- 03. Baby Goodbye (03:26)
- 04. Calling For Advice (03:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B0A97347013C014F85FBB2A96127A3406415B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389499   (784200) от 11.06.2020
-
-Deep Purple - Under The Gun (1999) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway Star (Live) [0:06:11.06]
-02. Strange Kind Of Woman (Live) [0:07:18.16]
-03. Under The Gun [0:04:35.69]
-04. Knocking At Your Back Door [0:04:00.66](   Читать дальше...   )Жанр: RockПродолжительность: 01:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E2699377B0FBD3B55E3C24ABDF2CB3E2795E59
 ```
 
 https://mybot314.ru/tekegram_catalog/

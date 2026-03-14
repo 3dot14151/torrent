@@ -1,3 +1,90 @@
+###  Публикация: 1183828   (303604) от 16.11.2017
+
+Sam Taylor Quartet - Along The Way (2017) [FLAC|Lossless|WEB-DL|tracks] <Saxophone Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303604.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Make Someone Happy - 4:30
+2. Fats Flats - 5:08
+3. On the Trail - 6:27
+4. Where Are You - 9:23(   Читать дальше...   )Жанр: Saxophone JazzПродолжительность: 00:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E056B04A5C96669D9BB63DF68CAED221BE84D57E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333505   (303599) от 25.10.2019
+
+Lionel Hampton - Three Classic Albums Plus 1954 - 1955 (2009) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303599.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Avalon [8:24]
+02. Just You, Just Me [6:34]
+03. Blues For Benny [7:44](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 02:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE3FD02DE921097DD26CB3667B5B971FEC6703F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961059   (303518) от 30.11.2015
+
+Humphrey Lyttelton - Humph Plays Standards (1960) 2014, Solid Records[FLAC|tracks+.cue]<Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Love For Sale [04:43]
+ 02.Prelude To A Kiss [03:35]
+ 03.Ida, Sweet As Apple Cider [03:08]
+ 04.Willow Weep For Me [04:28](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F43EBCA1A1F267A2C60E6FA94669AF3B89C126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261475   (303497) от 11.11.2018
 
 Gene Ammons - Blue Gene (1958) 2003, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop>
@@ -664,93 +751,6 @@ Ella Fitzgerald - Jazz 'Round Midnight Again (1956 - 1966) 1995, Verve [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B684C3634D2CDB9FB719020EE7F2F77ED15B899D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261777   (301275) от 12.11.2018
-
-Clifford Brown - Jazz 'Round Midnight (1954 - 1956) 1993, Verve [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lands End [4:57]
-02. (I Don't Stand A) Ghost of a Chance [7:21]
-03. Willow Weep for Me [3:27]
-04. September Song (feat. Sarah Vaughan) [5:47](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94420C3D7198EE35CA7B757947B73EA869737763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261766   (301274) от 12.11.2018
-
-Billy Eckstine - Jazz 'Round Midnight (1950-e - 1960-e) 1994, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone to Watch over Me [3:17]
-02. My Old Flame [3:19]
-03. The Song Is You [2:53]
-04. Star Dust [2:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A70636C37CA11105AA3B17AFAEAC641CE634E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261784   (301272) от 12.11.2018
-
-Sun Ra And His Arkestra - Super-Sonic Jazz (1956) 1991, Evidence [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. India [4:52]
-02. Sunology [5:43]
-03. Advice to Medics [2:05]
-04. Super Blonde [2:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B7787665FCFE7985B828525CF4E7247CBBB284
 ```
 
 https://mybot314.ru/tekegram_catalog/

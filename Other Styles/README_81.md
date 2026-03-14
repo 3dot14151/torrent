@@ -1,3 +1,154 @@
+###  Публикация: 1035935   (622654) от 19.07.2016
+
+California Guitar Trio - Masterworks (2012) [MP3|213~253 Kbps (V0)] <Instrumental, Acoustic, Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Passacaglia    05:43
+02.  Adagio Sostenuto, Moonlight Sonata    02:59
+03.  Presto Agitato, Moonlight Sonata    04:38
+04.  Adagio Opus 11    04:05(   Читать дальше...   )Жанр: Instrumental, Acoustic, ClassicalПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CBDA4D5159DC1A5C68D46E69213D6C738793843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295229   (622496) от 11.04.2019
+
+Our Native Daughters - Songs of Our Native Daughters (2019) [FLAC|Lossless|tracks + .cue] <Folk, Blues, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Myself (3:54)
+02. Moon Meets the Sun (4:07)
+03. Barbados (5:52)
+04. Quasheba, Quasheba (4:42)(   Читать дальше...   )Жанр: Folk, Blues, AmericanaПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88820EF7A32FA65D9FB890001317E82F3CC3A77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295042   (622376) от 11.04.2019
+
+VA - Country Forever (2019) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622376.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01.Dolly Parton - 9 To 5
+02.Tammy Wynette - Stand By Your Man(   Читать дальше...   )Жанр: CountryПродолжительность: 03:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6498A6B484BF91B21D37774F304F15EF14520BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219679   (621686) от 20.07.2010
+
+Namaste - True Crystals (2009) [MP3|256 kbps]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_621686.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:12) 01. Hematite
+(6:32) 02. Citrine
+(6:09) 03. Amber
+(7:10) 04. Rose Quartz
+(6:33) 05. Adventurine
+(6:11) 06. Aquamarine
+(5:55) 07. Celestite
+(6:40) 08. Amethyst
+(6:33) 09. Clear Quartz
+(6:05) 10. Onyx(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145511   (621548) от 25.06.2017
+
+Wuauquikuna - VII: The Sun Of The Inka's (2016) [FLAC|Lossless|image + .cue] <Native American, Chillout, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andean Winds
+02. Dance Of Fire
+03. Maldito Licor
+04. The Sun Of The Inka's(   Читать дальше...   )Жанр: Native American, Chillout, WorldПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2470BD5CD96534ACAA5CE009DDC55EFCFDFA6723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036338   (621078) от 20.07.2016
 
 Patty Loveless - Mountain Soul (2001) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
@@ -606,157 +757,6 @@ Steve Jablonsky - Transformers: The Last Knight / Трансформеры: По
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B1CDB51E3DEDFA29E6B16E0C7285E3A0FD535FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911374   (617680) от 22.06.2015
-
-VA - The 50 Best Instrumental Rock Songs Ever (2014) 2CD [MP3|192 кб/с]<Instrumental Rock, Oldies>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617680.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Santo & Johnny - Sleepwalk 02:23
-02. Dick Dale & His Del-Tones - Misirlou 02:16
-03. Booker T. & The M.G.'s - Green Onions 02:50(   Читать дальше...   )Жанр: Instrumental Rock, OldiesПродолжительность: 01:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3034732DC552D4FB82A46ACC86DC924DE68D7936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911221   (617516) от 22.06.2015
-
-Leo Rojas - Das Beste - My Serenade To Mother Earth (2015) [FLAC|Lossless]<Panflute, New Age, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Silverstar
-02. Chica
-03. Amigos
-04. Brothers(   Читать дальше...   )Жанр: Panflute, New Age, FolkПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F0A6F06132FD59381CC8372670A1C676BE56E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230194   (617387) от 11.06.2018
-
-Chris Remo - Firewatch Original Score (2016) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617387.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Prologue (3:35)
-2 - Stay in Your Tower and Watch (1:55)
-3 - Something's Wrong (0:56)
-4 - Beartooth Point (1:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28621A61B534525D7914220B5AE65F45A721B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036623   (617269) от 22.07.2016
-
-Unknown Artist - Stand By Me (1994) Unofficial Release [APE|Lossless|image + .cue] <Pop, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me Tender
-02. You Don't Have To Say You Love Me
-03. Danna Boy
-04. The Twelth Of Never(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F74A2934459D13E161320F549C6668020144522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523559   (617210) от 16.07.2012
-
-VA-Higher Plain Drifting - The Enchanting Sound of North America (2000) [MP3|320 кб/с]<Native American, Ethno, Ambient>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gran Canyon 2:43
-02. Mother Earth Round Dance 2:16
-03. Mojave 8:12
-04. Sacajawe Peak 4:15
-05. Beowawe 5:05
-06. Yellowstone 2:54
-07. Delta Seven 5:29
-08. Firedance 3:37
-09. Explora 4:10
-10. Song Of The Navajo 8:45(   Читать дальше...   )Жанр: Native American, Ethno, AmbientПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29A5BC77910879CAD767512ABF128E797A195AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

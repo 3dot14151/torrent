@@ -1,3 +1,38 @@
+###  Публикация: 523352   (617217) от 16.07.2012
+
+VA - Esthetics Lounge Vol. 5 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617217.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Late Night Alumni - Empty Streets (5:01)
+2. Mimi Page - Mimi Page - My Vanilla Sky (2:44)
+3. Lemongrass - Riddle (Feat. Jane Maximova) (4:27)
+4. Bloomfield - Rendez-Vous A Paris (6:11)
+5. Afterlife - Black Iris (4:44)
+6. Massive Gold - Lady Love - Radio Gaga Lounge Mix (5:50)
+7. Soulounge - Love's In Need Of Love Today (Feat. Roger Cicero & Nathalie Dorra) (3:59)
+8. Abe Duque - Following My Heart (Feat. Virginia) (6:13)
+9. Mimi Page - Mimi Page - Black Valentine (3:10)
+10. Idenline - At Sunset (3:43)Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A087943FC6526F4D3BCCEB163ED4778998D23E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230258   (617198) от 11.06.2018
 
 VA - Popular Superstar (2018) [MP3|320 Kbps] <Pop, Dance, RnB, Rap>
@@ -758,35 +793,6 @@ VA - Kiss FM: Top 40 (14.04) (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43BB12E0C36F3FC67A43FABD49C1ADA10C193549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037679   (611379) от 25.07.2016
-
-VA - Discoteka 2016 Dance Club Vol.154 (2016) [MP3|320 Kbps] <House, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611379.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rico Bernasconi & Lotus feat. Flo Rida -  Keep Playing (Filatov & Karas Edit) 3:18
-002. DJ Feel -  Bali (Radio Edit) 3:38
-003. Eric Saade feat Filatov & Karas, Gustaf Noren -  Wide Awake (Extended Mix) 4:11
-004. DJ Snake & Yellow Claw -  Ocho Cinco 3:42(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 10:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190ADE997D991FE4F81813E3E002C654B2C39992
 ```
 
 https://mybot314.ru/tekegram_catalog/

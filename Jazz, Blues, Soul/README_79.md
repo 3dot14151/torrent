@@ -1,3 +1,61 @@
+###  Публикация: 1100615   (899930) от 04.02.2017
+
+Art Blakey And The Jazz Messengers - Backgammon (1976) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Uranus [07:00]
+ 02.Whisper Not [06:35]
+ 03.Backgammon [05:30]
+ 04.Blues March [05:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5899B0F93509457AB56F1059A41EE09A694886B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100573   (899916) от 04.02.2017
+
+Manu Katche - Unstatic (2016) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899916.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Introducción
+2. Unstatic
+3. Flame & Co
+4. City(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498B028A64A961D8C6D068E402B02B4E0FA1A5E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100331   (899756) от 04.02.2017
 
 Tramp - 2 Album (1969, 1974) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock>
@@ -687,64 +745,6 @@ Dee Dee Bridgewater - J'ai Deux Amours (2005) [FLAC|Lossless|image + .cue] <Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8AEC0C0DBA1E142A5A928040C4D2C80944FA3D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101308   (896425) от 06.02.2017
-
-VA - Jazz at Picasso (2008) Live Jazz in Kiev [FLAC|Lossless|image + .cue] <Mainstrim Jazz, Contemporary Jazz, Instrumental Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Stars Ban - Tune 88
-02. Txnu Naissoo - On Green Dolphin Street
-03. Various Artists - Virgin Ocean
-04. Majestic Duo feat. Vladimir zinkovsky - One for All(   Читать дальше...   )Жанр: Mainstrim Jazz, Contemporary Jazz, Instrumental JazzПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0748FB2646DCDD8E00A590349CFF4A527C2BAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101225   (896423) от 06.02.2017
-
-Dolf De Vries Trio - Where's That Rainy Day (1986) Remaster, 2016, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.La Mer [04:20]
- 02.You Make Me Feel Brandnew [04:01]
- 03.Bernie's Tune [02:19]
- 04.Comecar De Novo [03:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055CFE903DC703870FC1898BB69F4A10CE6E1A71
 ```
 
 https://mybot314.ru/tekegram_catalog/

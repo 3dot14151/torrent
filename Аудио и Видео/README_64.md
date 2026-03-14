@@ -1,3 +1,32 @@
+###  Публикация: 1508196   (798016) от 07.11.2021
+
+VA - Chilling Winter Best Playlist (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aktnuance - Beautiful Beginning (5:53)
+02. Habermohl - An Immense Feeling (5:44)
+03. Performative Mode - Morning Air (6:24)
+04. Cesar Martinez Ensemble - Sol y Sombra (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476D92F955DBC2EE18464B45BC943248E9A6C399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508132   (798015) от 07.11.2021
 
 VA - Beach Grooves Maretimo, Vol. 3 - House & Chill Sounds to Groove and Relax (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
@@ -693,32 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A07611E24BB91223D77488AD0766ACEF8DE10707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385595   (797157) от 25.05.2020
-
-Баошу | Возрождение времени (2020) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797157.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самый разгар межзвездной войны Юнь Тяньмин оказывается на передовой. Больной раком и решивший свести счеты с жизнью, он был заморожен и отправлен в космос. Там его подбирает флот Трисоляриса. После десятилетий жестоких пыток Юн сдается и начинает сотрудничать с инопланетянами. Он помогает поработить человечество. Получив здоровое клонированное тело, Юнь ведет жизнь (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 10:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9FBF1E791ECDFDA34F52A5E64E244E297A6D82
 ```
 
 https://mybot314.ru/tekegram_catalog/

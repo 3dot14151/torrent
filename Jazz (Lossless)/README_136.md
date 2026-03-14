@@ -1,3 +1,90 @@
+###  Публикация: 1038970   (599804) от 30.07.2016
+
+The Bad Plus - Give (2004) Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.1979 Semi-Finalist [05:19]
+ 02.Cheney Pinata [04:50]
+ 03.Street Woman [03:59]
+ 04.And Here We Test Our Powers Of Observation [04:23](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EB2B39282AA00C302AC5703C432A751A1B88C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038967   (599695) от 30.07.2016
+
+Chet Baker & Philip Catherine - There'll Never Be Another You (1985) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Beatrice [14:59]
+ 02.There'll Never Be Another You [10:20]
+ 03.Leaving [17:27]
+ 04.My Foolish Heart [16:11]Жанр: Cool, West Coast JazzПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E583444AEC8FEDDB885CDC774D3C53BFC236ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149804   (598637) от 12.07.2017
+
+Donald Byrd & Doug Watkins - The Transition Sessions (1955, 1956) 2CD, 2002, Capitol Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598637.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Doug's Blues [12:10]
+02. El Sino [10:06]
+03. Crazy Rhythm [07:38](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E173B96D0747E80766BA822BE19B118524181F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149800   (598633) от 12.07.2017
 
 Bria Skonberg - So Is The Day {ECD} (2012) Random Act Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
@@ -688,93 +775,6 @@ Miles Davis - The Musings of Miles (1955) /2008, Riverside/[FLAC|image+.cue]<Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5B064267EAA3C547959754E3DD2F49AA142E7E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548985   (595105) от 05.05.2022
-
-Duke Ellington - Mood Indigo (1942 - 1945) 2000, Past Perfect [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Stem [2:52]
-02. Chelsea Bridge [2:56]
-03. Jump for Joy [2:56]
-04. What Am I Here For? [3:26](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34C43D65200003FC5C543C15E398E496C043BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548799   (595098) от 05.05.2022
-
-Rufus Reid Quintet - Live At The Kennedy Center (2007) Motema Music [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [0:22]
-02. Come Out and Play [4:31]
-03. Ode to Angela [8:02]
-04. Celebration [7:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8C1B5A945068F7724605B75F274CDED97341F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232965   (595096) от 27.06.2018
-
-Harold Land - Choma (Burn) (1971) 2014, Boplicity [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Choma (Burn) [9:57]
-02. Our Home [5:52]
-03. Black Caucus [10:04]
-04. Up and Down [10:47]Жанр: Post-BopПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A3F91EB76E3678481CA8A71F81AE0661867FD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

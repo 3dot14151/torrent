@@ -1,3 +1,32 @@
+###  Публикация: 953122   (351792) от 03.11.2015
+
+VA - Green Sky Reflection (2015) [MP3|320 кб/с]<Minimal House, Techno House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351792.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Diroma, Frystal Dj - Minimal Self 05:22
+002. Ian Page - So Deep, So Mean (FAWX Remix) 03:53
+003. Technasia & Green Velvet - Suga (Original Mix) 06:42
+004. Leechy Alexej - Minimal Balkan (Paul Haro Remix) 07:18(   Читать дальше...   )Жанр: Minimal House, Techno HouseПродолжительность: 10:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C06EEB78F860CCEF49E48A0C007622C5A8BE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952971   (351791) от 03.11.2015
 
 VA - Lazy Sundays (2015) [MP3|320 кб/с]<Deep House>
@@ -729,35 +758,6 @@ VA - Rich 100 Trance Stranger (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A484326D050DB7C06F3E30E5151A09C554401B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179504   (349345) от 31.10.2017
-
-VA - Uplifting Elegance Trance (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349345.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Damian Wasse - Rise Of Nation (Intro Mix)
-002. Alex Leader - Still Alive (Original Mix)
-003. Oliver Fox - Assorted Colours (No Vocoder)
-004. Airwave - The Quest For Beauty (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 10:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381E0D38FDB9B55051BA9045CBA2E98D8CEC5558
 ```
 
 https://mybot314.ru/tekegram_catalog/

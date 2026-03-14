@@ -1,3 +1,177 @@
+###  Публикация: 1640748   (233900) от 19.06.2023
+
+Carrol McLaughlin - Jazz Harp (1985) 1997, Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fool on the Hill [2:34]
+02. Take Five [5:05]
+03. Bluesette [2:34]
+04. Classical Gas [3:35](   Читать дальше...   )Жанр: Mainstream jazzПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44CE88410C651E8DB803E5931121891B66F9FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640749   (233870) от 19.06.2023
+
+Melissa Stylianou - Dream Dancing (2022) Anzic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet and Lovely [3:58]
+02. If You Never Come to Me [4:51]
+03. My Ideal [5:17]
+04. It Could Happen to You [3:20](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0552C871DB2C55EC10883B3A86808CFBD8B4E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640781   (233845) от 19.06.2023
+
+Stanley Turrentine - The Best of Stanley Turrentine (1990) Epic [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar [10:03]
+02. Gibraltar [11:22]
+03. Storm [9:06]
+04. Speed Ball [6:40](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B907A4EF16298504D1EF5ED12FEC2499DA7DEAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623545   (233819) от 02.04.2023
+
+Dinah Washington - La Reine - The Queen (1943 - 1957) 2CD, 2008, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pillow Blues [2:58]
+02. I Cried for You [2:31]
+03. Feel Like I Wanna Cry [3:22]
+04. Am I Blue [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D3949CAE1A2D42D804E15E281C523DAF337B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640980   (233759) от 20.06.2023
+
+Jay Jay Johnson Sextet - With Clifford Brown, Vol.1 (1953, 1954) 1995, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turnpike [4:22]
+02. Lover Man [3:57]
+03. Get Happy [4:55]
+04. Sketch 1 [4:29](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E065EBE8226DC8D5E0D04122F0FA8EC2E9099592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640985   (233752) от 20.06.2023
+
+Tadd Dameron And His Orchestra - The Magic Touch (1962) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On A Misty Night [3:00]
+02. On A Misty Night (Alternate) [2:45]
+03. Fontainbleau [4:11]
+04. Just Plain Talkin' [4:54](   Читать дальше...   )Жанр: BopПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D5A7AC281712D0EF9F5F731F132F22E151BE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640994   (233747) от 20.06.2023
 
 Jessica Williams - Ain't Misbehavin' (1996) 1999, Candid [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -571,180 +745,6 @@ Sonny Rollins - Milestone Profiles (1972 - 2000) 2CD, 2006, Milestone [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B50888EEDFB21EFD576C5E0231731744B2D4D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645598   (233142) от 10.07.2023
-
-Charlie Byrd - Four Classic Albums (1957 - 1960) 2CD, 2014, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby In Bassoonville [4:28]
-02. Satin Doll [4:43]
-03. Tri-X [4:31]
-04. Conversation Piece [3:34](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Latin JazzПродолжительность: 02:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18D12F885F1061128195CBA8F9A723A3CF373A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644902   (233130) от 07.07.2023
-
-Carlos Yebenes (Yébenes) & Dr. Blues Band - Las cosas de la vida (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Las cosas de la vida (4:02)
-02. La Chica Del Metro (5:06)
-03. Mil Lágrimas (5:34)
-04. Su cabello negro (5:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F547E052B70652E81084CC8FBF7DFEA2C179B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642896   (233118) от 29.06.2023
-
-Bill McGee - The Tree of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian De Mesones - Flight Time (4:31)
-02. Brandon Lane - Life Got In The Way (5:01)
-03. Ken Friend - Summers In Surry (3:43)
-04. Reco Winn - On And On (4:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311F99A669595CDB4EA539AED0FD81C88007C661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642901   (233105) от 29.06.2023
-
-Rob Zinn - Anything Can Happen (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take That! (4:16)
-02. All In (3:47)
-03. Amante (5:41)
-04. Anything Can Happen (4:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1CB44DA229D682E956164E0ACE99F06577F6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539841   (233093) от 27.03.2022
-
-Illinois Jacquet & His Big Band - Jacquet's Got It! (1987) Atlantic [WavPack|Lossless|image + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tickletoe [7:13]
-02. Smooth Sailin' [6:52]
-03. More Than You Know [5:31]
-04. Stompin' at the Savoy [4:17](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E861C594046CD9B0AC3E64D493F2273269515C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642888   (233087) от 29.06.2023
-
-Roberto Tola - Under The Leo Sign (2023) [FLAC|Lossless|WEB-DL|tracks] <Smoonth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Driving To Madrid (feat. Marco Rasa) (Radio Edit) (3:48)
-02. Maraya (feat. Bill McGee) (4:38)
-03. Says (4:39)
-04. Sun Kiss (4:36)(   Читать дальше...   )Жанр: Smoonth JazzПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD43D21B505870B40AC51C784FD695A59B99E6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

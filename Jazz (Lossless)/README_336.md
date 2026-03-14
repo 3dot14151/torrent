@@ -1,3 +1,90 @@
+###  Публикация: 1755678   (103513) от 19.10.2024
+
+Eddie Henderson - Collective Portrait (2015) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunburst [8:21]
+02. Dreams [9:56]
+03. Morning Song [7:40]
+04. You Know I Care [5:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C566C59E7F7B92CBEC29CDCD032E09D37B1AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756257   (103507) от 20.10.2024
+
+Gary Burton - New Vibe Man In Town (1960, 1961) 2012, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy Spring [3:44]
+02. Over the Rainbow [4:25]
+03. Like Someone in Love [3:08]
+04. Minor Blues [5:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6A18FCE792D86B4037391E0575F0ED21F2057A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755848   (103505) от 20.10.2024
+
+Eddie Henderson - Witness To History (2023) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scorpio Rising [7:02]
+02. Why Not? [8:35]
+03. Sweet and Lovely [7:40]
+04. It Never Entered My Mind [8:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576E8204A31209715A5CB9D7EFFD7CC95EB3D3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756051   (103504) от 20.10.2024
 
 Ray Brown - The Best Of The Concord Years (1973 - 1993) 2CD, 2002, Concord Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
@@ -658,93 +745,6 @@ Michel Sardaby - Blue Sunset (1967) 1990, Mantra [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AEB3CA62A4A4D42098C7E0F94193616749B1598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760788   (103140) от 16.11.2024
-
-VA - LoFi Chillhop & JazzHop Christmas (Calm Music Session One) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flow Bop - She Is Lovely (6:23)
-02. Pomante - Here We Flow (4:13)
-03. Yurierre - Swung Slap (3:31)
-04. P. A. Jeron - Stranger In Moscow (Instrumental) (4:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98D5A636FA01394E62AA34716B06055B77D9B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760827   (103129) от 16.11.2024
-
-Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.1 (1952, 1953) Blue Moon [WavPack|Lossless|image + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella by Starlight [2:44]
-02. Time on My Hands [2:57]
-03. 'Tis Autumn [3:14]
-04. The Way You Look Tonight [3:04](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24ACE995E84C3D507FE1A08FC41F55857B444CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760946   (103105) от 17.11.2024
-
-Don Ellis - Three Classic Albums Plus (1959 - 1962) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cock And Bull [7:09]
-02. Tragedy [5:15]
-03. Johnny Come Lately [4:56]
-04. Slow Space [4:35](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 02:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1120458528392D5D5DBA7C2CC2E2F937293AEE76
 ```
 
 https://mybot314.ru/tekegram_catalog/

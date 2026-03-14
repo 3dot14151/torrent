@@ -1,3 +1,149 @@
+###  Публикация: 1790901   (67955) от 11.04.2025
+
+Macbeth (Germany) - Studio Albums (5 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macbeth - рок-группа из Эрфурта, Германия. Группа была создана в 1985 году, в ГДР, в 1987 году сменила название на Caiman, а в 1989 году распалась.
+С 2003 года группа снова активна.2006 - Macbeth
+2009 - Gotteskrieger
+2012 - Wiederganger
+2015 - ImperiumЖанр: Heavy/Thrash MetalПродолжительность: 04:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D4715DC2D8BE51DCCBBF794319E0E75F57F1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791028   (67947) от 11.04.2025
+
+Chvrches - The Bones Of What You Believe (2013) 10th Anniversary Edition, 2023, Liberator Music[FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, Indietronica>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mother We Share (3:11)
+02. We Sink (3:34)
+03. Gun (3:54)
+04. Tether (4:46)(   Читать дальше...   )Жанр: Synthpop, IndietronicaПродолжительность: 01:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729E803832A2814C43005B780BE2D6E421847FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791231   (67920) от 12.04.2025
+
+Metallica - Reload (1997) Reissue, 2015, Blackened [FLAC|24/192|tracks|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67920.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Fuel
+A2. The Memory Remains
+A3. Devil's Dance
+A4. The Unforgiven II(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C138BD3B2BA1229987584BA63B42E10D0069EB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791105   (67898) от 12.04.2025
+
+Epica - Aspiral (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cross the Divide (00:04:18)
+02 - Arcana (00:05:02)
+03 - Darkness Dies in Light - A New Age Dawns Part VII - (00:07:59)
+04 - Obsidian Heart (00:05:04)(   Читать дальше...   )Жанр: Symphonic-MetalПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6D81BBFD84D96486ED57F162A44716B9774437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791283   (67888) от 12.04.2025
+
+Macbeth (Italy) - Studio Albums (5 releases) (1998-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macbeth - проект, родившийся в 1995 году, в Милане, Италия. Развивался от симфонической готики до более экспериментальной, с некоторыми электронными элементами.1998 - Romantic Tragedy's Crescendo
+2001 - Vanitas
+2005 - Malae Artes
+2007 - Superangelic Hate BringersЖанр: Symphonic Gothic MetalПродолжительность: 03:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25051DCFDB15ADED0E3744665FC2153A3EA98249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791279   (67887) от 12.04.2025
 
 Ryoji Shinomoto - Children of Bushido (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
@@ -599,149 +745,6 @@ B1 - God Eater(   Читать дальше...   )Жанр: Death Metal, Groove,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A54E354492DA761104DFEF7EF8216CCC5FE4127B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791728   (67752) от 17.04.2025
-
-Brainstorm - Ambiguity (2000) Reissue, 2023, Atomic Fire [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67752.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Crush Depth
-A2 - Tear Down The Walls
-A3 - Beyond My Destiny
-A4 - Arena(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:5746
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EC8D278E5F039D015C11E9DDE787796F3363A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791980   (67751) от 17.04.2025
-
-The Darkness - Easter is Cancelled (2019) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock and Roll Deserves to Die [00:05:24]
-02. How Can I Lose Your Love [00:03:02]
-03. Live 'Til I Die [00:03:32]
-04. Heart Explodes [00:03:47](   Читать дальше...   )Жанр: RockПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61EB03AC7F6EBDC299AC8106141445894F0C8279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792504   (67724) от 19.04.2025
-
-Юлия Савичева - 9 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67724.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Утром на заре
-2. Времени нет
-3. Город
-4. За окнами(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9A785D6252A51C5A5BE24CD0A5137D4BABE271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792508   (67690) от 19.04.2025
-
-Marilyn Manson - In The Air Tonight (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Industrial Metal, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67690.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In The Air Tonight
-2. As Sick As The Secrets Of (Sleep)Жанр: Industrial Metal, Alternative RockПродолжительность: 00:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB05F48FD03858E5652B81B669DF165C75EF845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792491   (67662) от 19.04.2025
-
-Cold Iron - Return To Darkness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Return To Darkness (03:30)
- 02 - Shipwreck In Hell (04:41)
- 03 - One Sided (03:53)
- 04 - Rise (04:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D3D9B06EB26988EF3352EBCA96CA0A3E6EB0D1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

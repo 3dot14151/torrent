@@ -1,3 +1,32 @@
+###  Публикация: 1328722   (359269) от 02.10.2019
+
+VA - Hedkandi: Hardstyle Edition (2019) [MP3|320 Kbps] <Hard Dance, Electro, Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.H.D. - Humans Are Decoy Vip
+02. Archefluxx - Eyes To The Future
+03. Makaja Gonzales - Red Monkey
+04. Andrex Core - Don't Stop(   Читать дальше...   )Жанр: Hard Dance, Electro, HardstyleПродолжительность: 04:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B65BC3ACB850FF9B6A46DBAB60D351F3575488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328728   (359268) от 02.10.2019
 
 VA - Virus Attack: Psy Trance Set (2019) [MP3|320 Kbps] <Psychedelic Trance, Goa>
@@ -732,35 +761,6 @@ VA - Zwei Tage Dubstep: Chart DE (2016) [MP3|320 Kbps] <Dubstep, Drumm And Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAB9981D62873FD1A204514FFA5226A4DACA701D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072165   (354693) от 12.11.2016
-
-VA - Regular Spectr Electronic Top 100 (2016) [MP3|320 Kbps] <House, Future House, Stadium Trance, Bigroom, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354693.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. MATTN & Futuristic Polar Bears - Cafe Del Mar 2016 (Dimitri Vegas & Like Mike Vocal Mix) 3:45
-002. Kaion & Daav One - Sirius (Extended Mix) 6:17
-003. Luca Testa & Kuka - Feel The Party (Original Mix) 4:41
-004. Jewelz & Sparks - Drip (Extended Mix) 3:30(   Читать дальше...   )Жанр: House, Future House, Stadium Trance, Bigroom, Club, DanceПродолжительность: 08:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898704F8F07D29B11928383DB8ABD34E1E75BF58
 ```
 
 https://mybot314.ru/tekegram_catalog/

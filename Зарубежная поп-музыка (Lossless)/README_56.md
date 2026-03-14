@@ -1,3 +1,148 @@
+###  Публикация: 1248414   (444791) от 19.09.2018
+
+VA - One Love (2007) 2CD [FLAC|Lossless|image + .cue] <Pop, Rock, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Cars (4:27)
+ 02. Somewhere Else (3:15)
+ 03. If Tomorrow Never Comes (3:36)
+ 04. If You're Not The One (4:02)(   Читать дальше...   )Жанр: Pop, Rock, Funk, SoulПродолжительность: 02:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EE6733257C280154186CB1EDC8759CCE80BB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248350   (444328) от 19.09.2018
+
+VA - Lady In Red - A Collection Of Great Ballads (1995) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris De Burgh - Lady In Red (04:17)
+02. Berlin - Take My Breath Away (04:11)
+03. Terence Trent D'arby - Sign Your Name (04:36)
+04. Cyndy Lauper - True Colors (03:46)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F3DA5959C1D4B0670FF79475EAA1F04CA67FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248366   (444311) от 19.09.2018
+
+VA - Lady In Red - A Collection Of Great Ballads Vol.2 (1996) [FLAC|Lossless|tracks + .cue] <Pop,Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo Sayer - More Than I Can Say
+02. George Baker - Paris Nights
+03. Vanessa Paradis - Joe Le taxi
+04. Glenn Medeiros - Nothing's Gonna Change My Love For You(   Читать дальше...   )Жанр: Pop,RockПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646CCF4BC5DC496CD69C493B00C82E85E8E3D59C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944293   (442936) от 06.10.2015
+
+Julio Iglesias - Mexico (2015) [FLAC|Lossless|WEB-DL]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Usted
+02. Jurame
+03. Ella
+04. Fallaste Corazon(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861F2DF667C5AC56F438D1692C26007C0212D2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409898   (440597) от 19.09.2020
+
+Sault - Untitled (Rise) (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strong (06:18)
+02. Fearless (04:09)
+03. Rise (01:01)
+04. I Just Want to Dance (04:21)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36FE4F853B134D5BBFED9824D7B4365DA85ED58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409567   (440297) от 19.09.2020
 
 Ava Max - Heaven & Hell (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -601,151 +746,6 @@ Ben Folds - So There (2015) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Cham
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94548429848E65EC7C567EBEB08AF9238EBCF4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064654   (425558) от 20.10.2016
-
-VA - BRAVO Hits 95 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zara Larsson - Ain't My Fault (3:44)
-02. The Chainsmokers feat. Halsey - Closer (4:04)
-03. Enrique Iglesias feat. Wisin - Duele el corazón (3:20)
-04. Rag'n'Bone Man - Human (3:18)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9659C3F5F11BB66597BB13411824D4D37E8021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572246   (425405) от 25.08.2022
-
-ABBA - On And On (2003) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterloo
-02. Rock Me
-03. Love Isn't Easy
-04. Gonna Sing You My Lovesong(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FC31F4D37F28B454AF62479D9C1E48E617DAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946716   (425052) от 14.10.2015
-
-Tom Jones - Long Lost Suitcase (2015) [FLAC|Lossless]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opportunity To Cry
-02. Honey, Honey (ft. Imelda May)
-03. Take My Love (I Want To Give It)
-04. Bring It On Home(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14811B5B2BA147E052984DCFA84654AD8767D89D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166606   (423920) от 17.09.2017
-
-Anastacia - Evolution (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423920.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Caught In The Middle
-2. Redlight
-3. Stamina
-4. Boxer(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191B3AB8346BAC401F7B13BE8B961E6252F0CB2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064875   (423894) от 21.10.2016
-
-VA - Gold Ballads (2003) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbie Williams - Feel
-02. Blue feat. Elton John - Sorry Seems To Be The Hardest Word
-03. Everything but the Girl - Mirroball
-04. Atomic Kitten - No One Loves You(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C82C106F047E4061E28FF22F6E452FC8D6BF71
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1358996   (966286) от 10.02.2020
+
+VA - Flow Of Feeling: Electro House Party (2020) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966286.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luciano Scheffer - Baj (Monojoke Remix)
+002. Esee Free - Stronger (Original Mix)
+003. Club Shakerz - Lose Control
+004. Jaga - Back To Love(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89170A2750D2FF8EEC77CB94E26F5C3E8C51B0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359080   (966276) от 10.02.2020
+
+VA - Beatport Tech House: Pack Electro Sound #09 (2020) [MP3|320 Kbps] <Deep, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worldtraveller - Ocean Motion
+02. Christopher Lake - Rescue You (Original Mix)
+03. Schneider & Haze - Si Balla
+04. Sergio Wos - Filling Me Up(   Читать дальше...   )Жанр: Deep, Tech House, ElectroПродолжительность: 04:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC4732D38D05B6C015E318FD632BDF627EF437B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358956   (966206) от 10.02.2020
+
+VA - Record Super Chart 624 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966206.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Carla Morrison - Disfruto (3:57)
+2.SAINt JHN - Roses (Imanbek Remix) (3:58)
+3.Tones and I - Dance Monkey (DJ Noiz Remix) (4:00)
+4.FILV & Edmofo feat. Emma Peters - Clandestina (2:28)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C9847597A895A52742F6BBE01C0DC9E972C7D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358977   (966143) от 10.02.2020
 
 VA - Survival Techniques (2020) [MP3|320 Kbps] <Hard Rock, Metal>
@@ -652,93 +739,6 @@ VA - Galileo Dreams: Best Of 2015 (2016) [MP3|320 кб/с] <Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5102C993E8CED39E4FBBB5812693F54AFD3B7754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978501   (963631) от 23.01.2016
-
-VA - LOVERS Dance Cocktail (2015) [MP3|320 кб/с] <Dance, Deep House, Vocal Trance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ItaloBrothers - Welcome to the Dancefloor (02:53)
-02. Imany - Don't Be So Shy (Filatov & Karas Remix) (03:11)
-03. Royksopp - Here She Comes Again (Dj Antonio Remix) (04:54)
-04. Maroon 5 & Alesso - This Summer (Radio Edit) (03:12)(   Читать дальше...   )Жанр: Dance, Deep House, Vocal Trance, Pop, Vocal House, Progressive HouseПродолжительность: 04:23:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7CC3539112E6228F33DD1EB2DF868255DCD911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978296   (963575) от 23.01.2016
-
-VA - Bass Killer 2 (2016) [MP3|320 кб/с] <Electro House, Dubstep, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963575.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Apashe & Zitaa - Tank Girls (Original Mix) (5:20)
-2. AudioKiller - Apocalipsis (Original Mix) (4:37)
-3. Black Tiger Sex Machine & LeKtriQue - Religion (Far Too Loud Remix) (3:48)
-4. Bloodtone - King Kong (Original Mix) (3:34)(   Читать дальше...   )Жанр: Electro House, Dubstep, ElectroПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADCA51519B76CC3C2E27AC9EC4856DE527CB3B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978329   (963506) от 23.01.2016
-
-VA - Уголовочка от радио Шансон. Часть 7 (2015) [MP3|256-320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963506.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. А.Малинин И Е.Ваенга - Две Души
-002. Артур - Лак Дождя Покрыл Асфальт
-003. Белое Золото - Часовые Пояса
-004. Яша Боярский - Осенний Сон(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9C5E62EDE5A8669C7EE8C0FCD01E952AF92F68
 ```
 
 https://mybot314.ru/tekegram_catalog/

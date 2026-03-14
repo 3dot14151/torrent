@@ -1,3 +1,148 @@
+###  Публикация: 1750037   (43253) от 17.09.2024
+
+Julian Smith - Being with You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Back the Time (3:22)
+02. Shania's Song (4:05)
+03. Don't Look Away (3:40)
+04. California Dreaming (3:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F02A25EE707221DE2AB902042FD2F7F41F2250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749979   (43251) от 17.09.2024
+
+He Is Legend - Studio Albums (9 releases) (2004-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Southern Metal, Stoner Rock, Post-hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43251.jpg" />
+</div>
+
+
+###  Подробнее
+
+He Is Legend — американская альтернативная метал-группа из Уилмингтона, Северная Каролина, основана в 2003 году.2004 - 91025
+2004 - I Am Hollywood
+2006 - Black Unicorn
+2006 - Suck Out The PoisonЖанр: Southern Metal, Stoner Rock, Post-hardcoreПродолжительность: 06:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DA395E0D6D6A5344DD8805D0C2D8F2CB493215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750127   (43175) от 18.09.2024
+
+Земляне & Supermax - Sergey Skachkov & Kurt Hauenstein (2009) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Reggae, Funk / Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Machine
+02. World of today
+03. It aint easy
+04. Hotline(   Читать дальше...   )Жанр: Rock, Reggae, Funk / SoulПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67944DCB5EEC1A6CD49AC22F44753B1B082E995A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749898   (43149) от 18.09.2024
+
+Hannah Kerr - As I Am (2024) [FLAC 16,24/44.1.48,96|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As I Am [00:03:42]
+02. Jesus Is Why [00:02:42]
+03. If I Were You [00:03:20]
+04. Changed [00:03:37](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5EB30F7CCE23FCD092811D4C854980F516360E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750138   (43126) от 18.09.2024
+
+Michael Schenker Group - My Years with UFO (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natural Thing (3:58)
+02. Only You Can Rock Me (4:03)
+03. Doctor Doctor (4:33)
+04. Mother Mary (4:00)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865CCC6F6CB1226498C6A3A7CEDE49863894CA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750419   (43039) от 19.09.2024
 
 Cher - Forever Fan (2024) Remaster, 2024, Warner Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Rock, Pop>
@@ -600,151 +745,6 @@ Luna Sol - Vita Mors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B372F55ACECEDA81CF95563DCA53A6D617BE53E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751521   (42311) от 26.09.2024
-
-Crimson Veil - Hex (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Gothic Metal, Gothic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HEX [00:05:27]
-02. Ribbons [00:06:02]
-03. Flinch [00:04:02]
-04. Shift [00:06:19](   Читать дальше...   )Жанр: Alternative Metal, Gothic Metal, Gothic RockПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0125009483FAE56EC4AAC9082340A9D1366D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751581   (42310) от 26.09.2024
-
-Patti LuPone - A Life in Notes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Broadway [00:02:00]
-02. Don't Cry For Me Argentina [00:04:46]
-03. I Dreamed A Dream [00:04:08]
-04. The Ladies Who Lunch [00:04:01](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1010E56C7064FC58A636680B0E318A4047F98B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751630   (42309) от 26.09.2024
-
-Steve Louw - Between Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alibi (4:07)
-02. We Had it All (3:37)
-03. Beggar Tonight (4:40)
-04. Giants Walk the Land (4:46)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB5D9B85CEA446C7DFC54F4381BCC70D8D7B292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751637   (42307) от 26.09.2024
-
-The Delta Blues Collective - My Town Was Memphis in 1973 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Let Go (2:50)
-02. Shoes on the Line (2:54)
-03. Dreams in the Night (3:07)
-04. Dance Through The Night (1:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E5A48AE0D4A43133C744E38B624CA55CE49738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751671   (42305) от 26.09.2024
-
-Ivy Lab - Infinite Falling Ground Pt.2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Bass, Beats, Leftfield, Trap>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Perimeter [00:02:06]
-02. Left With You [00:03:31]
-03. Curves [00:03:17]
-04. Precious [00:03:45](   Читать дальше...   )Жанр: Electronic, Bass, Beats, Leftfield, TrapПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F28583635D31E063B89507A6BC9A6D012EA698A
 ```
 
 https://mybot314.ru/tekegram_catalog/

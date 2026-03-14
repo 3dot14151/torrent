@@ -1,3 +1,30 @@
+###  Публикация: 953710   (346608) от 05.11.2015
+
+Проекты - Motion Array - Blueprint [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534D05055DB1856F3B666DFF76D4007BA92DD111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953776   (346476) от 05.11.2015
 
 Проекты - VideoHive - Clean Logo Reveal - 8284098 [AEP]
@@ -658,33 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B210D81B63F4EFFC8FDF12158F26EA06FA9F2E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954147   (344069) от 06.11.2015
-
-Проекты - VideoHive - 3D Logo Layers [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E53EA1C8A7CACA88299A1CEF81AFAAD55CEB18
 ```
 
 https://mybot314.ru/tekegram_catalog/

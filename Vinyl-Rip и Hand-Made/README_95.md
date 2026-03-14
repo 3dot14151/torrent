@@ -1,3 +1,117 @@
+###  Публикация: 1705943   (38383) от 03.11.2024
+
+Brothers Of Metal - Studio Albums (3 releases) (2017-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brothers of Metal — шведская пауэр-метал-группа, образованная в 2012 году.2017 - Prophecy of Ragnarok
+2020 - Emblas SagaЖанр: Heavy/Power MetalПродолжительность: 02:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA74682F7827E932DC0618C54977723583DC48D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683069   (38381) от 03.11.2024
+
+Stahlmann (& Sundenklang) - Studio Albums (11 releases) (2010-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neue Deutsche Härte, Industrial, EBM>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stahlmann — немецкая группа, играющая в стилях Neue Deutsche Härte, Industrial, EBM, в своих композициях группа соединяет жесткое гитарное звучание и глубокий вокал.2010 - Stahlmann
+2012 - Quecksilber
+2013 - Adamant
+2015 - Co2Жанр: Neue Deutsche Harte, Electronic, RockПродолжительность: 07:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12B4A8E9366687124EE01321F9E81CC932E2FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720053   (38364) от 03.11.2024
+
+Ensiferum - Studio Albums (11 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ensiferum (лат. «меченосец», «вооружённый мечом») — финская фолк-метал-группа, основанная в 1995 году. Участники группы характеризуют свой стиль как «мелодичный фолк-метал».2001 - Ensiferum
+2004 - Iron
+2008 - Victory Songs
+2009 - From AfarЖанр: Epic Folk MetalПродолжительность: 08:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DEFB0CAB02688004CA7F950EF249D9BEB75D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690702   (38296) от 04.11.2024
+
+Vision Divine - Studio Albums (9 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vision Divine — итальянская пауэр-метал-группа, образованная в 1998 году. Многие участники коллектива так или иначе были связаны с другой итальянской пауэр-метал-группой Labyrinth.1999 - Vision Divine
+2002 - Send Me An Angel
+2004 - Stream Of Consciousness
+2005 - The Perfect MachineЖанр: Power/Progressive MetalПродолжительность: 08:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2A7313DF0C0AD47EB459EECD38503B0A76631F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758818   (38277) от 04.11.2024
 
 NonExist - Studio Albums (4 releases) (2002-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Thrash/Death Metal>
@@ -631,122 +745,6 @@ Clannad (Кла́ннад) — ирландская музыкальная гр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B227BB4338E6CF9319159AECEF5262600484B444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764088   (35125) от 05.12.2024
-
-VA - Golden Hitss  III. Классика Зарубежной Эстрады (2002) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Bee Gees - Night On Broadway
-02. The Beatles - Birthday
-03. Cliff Richard - Devil Woman(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCFAFFAB9FF9C37E3D7C33483DF4BDD6417172C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711873   (35101) от 05.12.2024
-
-Virgin Steele - Studio Albums (15 releases) (1982-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Virgin Steele — американская рок-группа, играющая классический хэви-метал/американский пауэр-метал с элементами прогрессив метала и симфоник-метала.1994 - The Marriage Of Heaven And Hell Pt.I
-1995 - The Marriage Of Heaven And Hell Pt.II
-1998 - Invictus
-1999 - The House of Atreus_Act IЖанр: Heavy/Power MetalПродолжительность: 25:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0294FEA70E264685E687A3C5BEF1E143B91339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613622   (35046) от 06.12.2024
-
-Xandria - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xandria — немецкая группа, исполняющая музыку в жанре симфоник-метал.2003 - Kill the sun
-2004 - Ravenheart
-2005 - India
-2007 - Salome - The seventh veilЖанр: Symphonic MetalПродолжительность: 09:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29EB4C05C222406CFAE0E94EA0598B0516FBFC6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658825   (34821) от 08.12.2024
-
-the Gathering - Studio Albums (14 releases) (1992-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom/Gothic/Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34821.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Gathering — рок-группа из Нидерландов, основанная в 1989 году братьями Рене и Хансом Рюттенами.1992 - Always
-1994 - Almost A Dance
-1995 - Mandylion
-1997 - Nighttime BirdsЖанр: Death/Doom Metal, Trip Rock, Progressive RockПродолжительность: 15:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9F569124D39D09264B26A2B1D7FCFF8B55A781
 ```
 
 https://mybot314.ru/tekegram_catalog/

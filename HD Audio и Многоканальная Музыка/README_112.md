@@ -1,3 +1,148 @@
+###  Публикация: 1710952   (112565) от 28.03.2024
+
+Glyph - Honor. Power. Glory. (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honor, Power, Glory (3:58)
+02. March of the Northern Clan (4:27)
+03. A Storm of Crimson Fire (3:29)
+04. When the World Was Young (4:07)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8707C24B7643DF2D015E7B0A30C9A7D94B2EC098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710958   (112563) от 28.03.2024
+
+The Quill - Wheel Of Illusion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wheel of Illusion (4:01)
+02. We Burn (4:41)
+03. Rainmaker (5:59)
+04. Elephant Head (4:16)(   Читать дальше...   )Жанр: Hard Rock, Stoner MetalПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF73EBADB518C6E53D4D2366B5FFB963FE636B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710822   (112562) от 28.03.2024
+
+Moonspell - Anno Satanæ (1993 Remastered) (2024) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Black Metal, Black Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (1993 Remastered) [1:12]
+02 - Goat On Fire (1993 Remastered) [5:24]
+03 - Ancient Winter Goddess (1993 Remastered) [5:35]
+04 - Wolves From The Fog (1993 Remastered) [6:10](   Читать дальше...   )Жанр: Metal, Black Metal, Black Folk MetalПродолжительность: 00:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2DB1C7B563F9EEF28C14E80C874088E01C900B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710950   (112560) от 28.03.2024
+
+Rage - Afterlifelines (1990) Reissue, Remastered, 2024, Steamhammer [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy metal Power metal, Thrash metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Beginning (1:32)
+02. End Of Illusions (3:49)
+03. Under A Black Crown (4:00)
+04. Afterlife (3:45)(   Читать дальше...   )Жанр: Heavy metal Power metal, Thrash metalПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849D5AEDE71DD774F51A11D35386B2A9EFC00332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711410   (112501) от 30.03.2024
+
+Enrique Iglesias - Final (Vol.2) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Asi Es La Vida [2:53]
+02 - Fría [2:57]
+03 - Space in My Heart [2:59]
+04 - La Botella [3:07](   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB8371AC974FFA0DA2DC20662A1164402A64BAE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711568   (112498) от 30.03.2024
 
 Joe Satriani & Steve Vai - Satch/Vai: The Sea of Emotion, Pt. 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -597,151 +742,6 @@ Lockeheart - All Of Us Divine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Goth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7568DDAB6DEF831A4F4818AB5BBCB31A685A8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711940   (112273) от 01.04.2024
-
-Unleash The Tapir - Unleash The Tapir (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Miss Take (00:09:15)
-02 - Traffic Jam (00:03:52)
-03 - Still (00:09:34)
-04 - Hope (00:05:52)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4A06A64840A01C7F6A4132BF151E4DDE08756D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711915   (112271) от 01.04.2024
-
-Emilie Simon - Polaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-hop, Electro-pop, Downtempo, Indie Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Soleil (00:03:46)
-02 - Forteresse (00:02:53)
-03 - Secrecy (00:03:41)
-04 - Mon tigre aile (00:04:02)(   Читать дальше...   )Жанр: Trip-hop, Electro-pop, Downtempo, Indie-ElectronicПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7B5BFDD6AF4068E78D8CE4987AAB2C96BB49C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711984   (112254) от 01.04.2024
-
-Shadow Limb - Reclaim (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, Sludge, Stoner Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - To Reclaim (00:04:28)
-02 - Snake Mountain (00:06:54)
-03 - Destitute (00:08:29)
-04 - The Maneuver (00:05:19)(   Читать дальше...   )Жанр: Progressive, Sludge, Stoner MetalПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AEBA4DA79AECC2F964CC4AA667F580AD98ED57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579798   (112223) от 02.04.2024
-
-Adelitas Way - Studio Albums (9 releases) (2009-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock, Post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adelitas Way — рок-группа из Лас Вегаса, штат Невада.2009 - Adelitas Way
-2011 - Home School Valedictorian
-2014 - Stuck
-2016 - GetawayЖанр: Hard Rock, Post-grungeПродолжительность: 05:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5040298C5C13147CDA78E6223D0ED795EAFCC872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712474   (112171) от 02.04.2024
-
-Fort Romeau - Romantic Gestures Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Up [00:04:03]
-02. Blue [00:05:18]
-03. The Man from Another Place [00:07:34]
-04. The Zone [00:04:22](   Читать дальше...   )Жанр: HouseПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3853D8AAEB91AE078A3B6037772A954139FDFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

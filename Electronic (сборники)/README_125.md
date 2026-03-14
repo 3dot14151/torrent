@@ -1,3 +1,32 @@
+###  Публикация: 1155656   (531684) от 04.08.2017
+
+VA - Trance Traveling 91 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Denis Kenzo & Claire Willis - U & I  5:00
+02.  Orjan Nilsen - Swoosh  2:37
+03.  Alpha 9 - Skin  4:28
+04.  Linkin Park - In The End (Markus Schulz Tribute Remix)  5:00(   Читать дальше...   )Жанр: TranceПродолжительность: 03:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612F60A9124A088EA53FA4D79FB673059624FAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926972   (531624) от 11.08.2015
 
 Christian Grey - Shades of Sensuality Chill Out 50 Minutes Lounge Music Sexy Songs (2015) [MP3|320 кб/с]<Lounge, ChillOut>
@@ -722,35 +751,6 @@ VA - Beatport Trance Pack (15.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFB56EF7A32A0F7FBF5F474FAE4D07C204118B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053021   (526734) от 16.09.2016
-
-VA - Beatport Trance Pack (13.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denis Kenzo & Cari - Save Me (Dub Mix) 5:53
-02. Katylyst - Remembrance (AriLab7 & George Crossfield Remix) 6:44
-03. Courage - Shadow Dance (Darryn M Remix) 4:52
-04. DYK - Sagittarius (Original Mix) 6:54(   Читать дальше...   )Жанр: Trance, Melodic, Energy, ProgressiveПродолжительность: 02:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0047E331D5DF54C12023128097590829AAF3C80
 ```
 
 https://mybot314.ru/tekegram_catalog/

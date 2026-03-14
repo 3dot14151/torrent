@@ -1,3 +1,32 @@
+###  Публикация: 1532972   (709097) от 22.02.2022
+
+Martin Hiska - Deep Blue Sunset Sessions (2020) [AAC|~343 Kbps] <Lounge, Chill Out, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunset Session (5:10)
+02. Lady In Blue (4:41)
+03. Seasides (5:58)
+04. Luna (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB225C09C36C770076238EACD33604667122255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532773   (709096) от 22.02.2022
 
 VA - Chill Out Pearls, Vol. 3 (Lazy Chill Out Tunes) (2019) [AAC|~301 Kbps] <Lounge, Leftfield, Downtempo>
@@ -686,35 +715,6 @@ VA - I Need You Tonight, Vol. 2 (50 Deep-House Babies) (2016) [AAC|~324 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE2F22BD910C2A932D5D5E69FE9F7924A2FD4ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532988   (707354) от 23.02.2022
-
-VA - Deep House Rhythms, Vol. 1 (2018) [AAC|~320 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - Flying High (Extended Mix) (6:46)
-02. Jan Moehlenkamp - Escape (7:18)
-03. Poenitsch & Jakopic - Beautiful (Tom Appl Remix) (5:45)
-04. Domestic Technology - Isola Bella'14 (Summer Mix) (6:13)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C425BF86A706BC3B7D46856450A33792CD8F5F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

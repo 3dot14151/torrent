@@ -1,3 +1,177 @@
+###  Публикация: 1549205   (593962) от 06.05.2022
+
+Archie Bell & The Drells - Tightening It Up : The Best Of (1994) [FLAC|Lossless|tracks + .cue] <Soul, Funk, Disco>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tighten Up
+02 - I Can't Stop Dancing
+03 - Do The Choo Choo
+04 - Love Will Rain On You(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD7F66F189CF4D90CCDCB38C18C6F98227792E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549032   (593905) от 06.05.2022
+
+VA - Saxappeal Vol. 2 Lounge Saxophone Smooth Jazz Del Mar (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Nimerfro - My Heart Won't Move On (Birds in the Trap Mix)
+02. Wonderphazz - Moonlight in Paradise (Late Night Chill Out)
+03. Gary Rosenblatt - This Must Be Paradise (Sunset Chill Bar Mix)
+04. Perelandra - On the Box (Smooth Sax Edit)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BABDA9B08F542BF093E49AAF5E31F01CCEF16FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300317   (593888) от 05.05.2019
+
+Cat Anderson - Cat Anderson Plays W.C. Handy (The Definitive Black & Blue Sessions) (1997) [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yellow Dog Blues (Handy) - 4:41
+02. Ole Miss (Handy) - 3:41
+03. Careless Love (Loveless Love) (Handy) - 4:31
+04. Beale Street Blues (Handy) - 4:16(   Читать дальше...   )Жанр: SwingПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460DB08F12AF2EF2BBD4CFE915A628956468D3AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300170   (593881) от 05.05.2019
+
+Budos Band - V (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Afrobeat>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Engine Oil (3:11)
+02. The Enchanter (3:58)
+03. Spider Web Pt. 1 (3:06)
+04. Peak Of Eternal Night (3:21)(   Читать дальше...   )Жанр: Funk, Soul, AfrobeatПродолжительность: 00:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3ADCCF715E17DBCAF6AADFFADC8D0CFF1701CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549007   (593816) от 06.05.2022
+
+KatiMarica - Pieces of Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dust and Rubble (3:18)
+02. Pieces of Heart (3:47)
+03. I´m a Good Woman (3:41)
+04. One Heart for Sale (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3096BAE899FF16ED99193024ED0D6FDD93333A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040003   (593658) от 03.08.2016
+
+Laurent Cugny & Orchestre National De Jazz - Yesternow (1994) Verve[FLAC|Lossless|tracks + .cue] <Modern Big Band, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Yesternow (opening) [02:06]
+ 02.Red China Blues [05:46]
+ 03.Right Off [05:09]
+ 04.Tout De Suite [07:10](   Читать дальше...   )Жанр: Modern Big Band, Contemporary JazzПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FF2098927A96D3A587B3C4C965654824E0C0F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040041   (593649) от 03.08.2016
 
 Canned Heat - Friends In The Can (2003) [FLAC|Lossless|tracks + .cue] <Blues Rock, Boogie>
@@ -571,180 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DB2FB7BF4905657041D8D7F2A97AF7988F4B1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550237   (592526) от 10.05.2022
-
-Jesse Davis - Second Nature (2000) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Sunny Side of the Street [7:52]
-02. I've Grown Accustomed to Her Face [8:34]
-03. Tommaso [7:51]
-04. Coffetto [8:18](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5FBFAB03BB7A17BF7334AA52D337B0E3C925A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550124   (592506) от 10.05.2022
-
-Barbara Dennerlein - Barbara Dennerlein Duo - 10th Anniversary - It's Magic (2005) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The House  (08:37)
- 02. Longing  (12:02)
- 03. Swing The Blondes  (07:22)
- 04. Change Of Pace  (13:05)(   Читать дальше...   )Жанр: Hammond Organ, Jazz, Fashion JazzПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5154B80AAAE137B744E921D9569B5A7A83F110D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550121   (592492) от 10.05.2022
-
-Barbara Dennerlein - That's Me (1992) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grandfathers's Funk  (05:07)
- 02. Dancing Shoes  (09:36)
- 03. That's Me  (06:14)
- 04. Three Hearts  (06:58)(   Читать дальше...   )Жанр: Hammond Organ, Jazz, Fashion JazzПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6489803768C1A62BAC9FFF769A41F39150F2C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915396   (592396) от 05.07.2015
-
-Diego Imbert Quartet - Next Move (2011) [FLAC|tracks+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suite Part 1 [03:22]
-02. Intermezzo 1 - Suite Part 2 [05:51]
-03. Suite Part 3 [04:33]
-04. Intermezzo 2 - Suite Part 4 [04:04](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0748E4C53B563F82258308C9E01C7906740B4A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915379   (592379) от 05.07.2015
-
-BB Lyngs Blues Band - Blues Pa Bla Resept (2015) [MP3|320 кб/с]<Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's My Queen I'm Her King (02:58)
-02. Talk To Me Mama (04:13)
-03. I Came Here To Stay (03:11)
-04. I'm Lost Without You (03:13)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305202A5B6A3750767C512B175B84BCFE07D5993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915368   (592378) от 05.07.2015
-
-Ally Venable Band - Train Wreck Blues (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Train Wreck Blues (03:28)
-02. Sneaky Feeling (02:31)
-03. Downhearted Blues (03:27)
-04. No Glass Shoes (03:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E3AF508844B0F7B6D97BAC34271A6C0A085AB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

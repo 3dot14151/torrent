@@ -1,3 +1,32 @@
+###  Публикация: 1093866   (932544) от 16.01.2017
+
+George Cables Trio - Cables' Fables (1991) 1995, SteepleChase[APE|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In walked Bud [06:29]
+ 02.Lullaby [05:52]
+ 03.Waltz for Debbie [08:40]
+ 04.Helen's song [06:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE2D1D1942357D48051029B3326CEFE13D14068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093856   (932372) от 16.01.2017
 
 Louis Armstrong - La Vie En Rose (1930-1950) 1995, Success[APE|Lossless|tracks + .cue] <New Orleans Jazz, Dixieland, Vocal Jazz>
@@ -713,35 +742,6 @@ Archie Shepp - Ballads for Trane (1984) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9699A192EC0CAEAA21D4DB477BBBEAC66464ACEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094593   (929065) от 18.01.2017
-
-Caro Emerald - Deleted Scenes From The Cutting Room Floor: Acoustic Sessions (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riviera Life
-02. Dr. Wanna Do
-03. A Night Like This
-04. Just One Dance(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D1268D936F4AA4483F63EB1A2C722AAC372D21
 ```
 
 https://mybot314.ru/tekegram_catalog/

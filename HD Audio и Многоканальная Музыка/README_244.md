@@ -1,3 +1,148 @@
+###  Публикация: 1798193   (17533) от 21.05.2025
+
+Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain
+02. Shining Kingdom
+03. Angel's Decay
+04. My Saviour(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2468F6BBB35BE34D3D4BE5A749CDE8902495FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798066   (17532) от 21.05.2025
+
+Djrum - Under Tangled Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Broken Beat, IDM, Jungle, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – A Tune for Us
+02 – Waxcap
+03 – Unweaving
+04 – L’Ancienne(   Читать дальше...   )Жанр: Modern Classical, Ambient, Broken Beat, IDM, Jungle, TechnoПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE2FAF75C81E688CA200EE4044EEB4A686C7407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798287   (17531) от 21.05.2025
+
+Resurrection Blues Band - GENESIS (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Broke Down In Clarksville (3:52)
+02.  Blame Game (4:05)
+03.  Sugar Daddy (4:05)
+04.  Good, Bad, & the Blues (4:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:26:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077FD9B2B97CAD934407F1E6D1A986D644E028FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798288   (17530) от 21.05.2025
+
+Ruzz Guitar's Blues Revue - Between Two Worlds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  10-31 (3:44)
+02.  Casting My Spell (2:38)
+03.  Sweet Lovin (4:00)
+04.  Cry Baby (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BE48C0469C275E15B92AFDA2563E2F1F422F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798289   (17514) от 21.05.2025
+
+The British Bluescasting Corporation - Saints & Sinners (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Saints & Sinners (3:38)
+02.  Ain't No Love (In the Heart of the City) (4:38)
+03.  Wear Your Scars With Pride (4:10)
+04.  Ain't Got the Blues, Blues (2:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6554640F770F11AD073E1C889B832AA99B5E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810302   (17453) от 03.08.2025
 
 Atlantic Behind - Delusion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -601,151 +746,6 @@ Broke Oracle - Shackle and Weight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:484E8D218735F8AB1C338D73FF3B6BD0A867471E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810663   (17062) от 05.08.2025
-
-Charlie Slavik - A Nice Reminder (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Harmonica>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Highway Man (3:50)
-02.  Devil Inside (3:24)
-03.  Riding In The Moonlight (4:56)
-04.  Love Me Let Me Go (4:20)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C34F01D9DE73DF45395FA43DC3AE0F0F3D24EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810673   (17061) от 05.08.2025
-
-Dead Romantic - Stay High (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stay High (3:54)
-02.  My Parade (3:40)
-03.  Haunting (3:46)
-04.  Assassin (3:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327A8742CB74AF438D22740AB6CC4250A11BBCA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810675   (17060) от 05.08.2025
-
-Dj Cult Music - Blues Dreams on the Horizon (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  No Light in This Room (3:31)
-02.  Back Porch Mojo (3:40)
-03.  Blue Moon Trouble (3:44)
-04.  Chain Smoke Heartache (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32158419B7C4D976FA8FC148F225BC56F3291013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810679   (17036) от 05.08.2025
-
-Leatherjacks - Surviving the Beginning of the End (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Who Cowers Against the Law (5:02)
-02.  Baby Hit-And-Run (5:02)
-03.  The Last Will Be the First (6:12)
-04.  Mechanimals (4:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCE42A9056C015220ABB58A7145C1C968D8A69E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810683   (17035) от 05.08.2025
-
-Mojo Hands - GO! GO! GO! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Let The Good Times Roll (2:57)
-02.  Bad Case Of Love (3:34)
-03.  I Can Help (3:38)
-04.  Scorched (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8513CF16DAEC1D68007D812CF1C2C819AE0063D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1414645   (383424) от 09.10.2020
+
+VA - не Громкие новинки недели 84 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Carti - Не Выдыхай (3:00)
+02. DJ Sukhoi - Неболей (4:15)
+03. EDEM & Артём Майзингер - Самолётная (3:02)
+04. Endorfin - Луна (2:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6CEEA547B028D91D4DD4B2ED370AC567A563C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326546   (383247) от 21.09.2019
 
 VA - ЕвроХит Топ 40 Europa Plus 20.09.2019 [MP3|320 Kbps] <Pop, Dance>
@@ -743,50 +772,6 @@ VA - Top 100 Зайцев.Нет Октябрь (2016) [MP3|128-320 Kbps] <Club 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EC2BDCCE4C6307B961A5AFB3083A3EE230B1162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573937   (378108) от 11.11.2012
-
-VA - Лучшие клубные хиты Hot Club Hits (2012) [MP3|256 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378108.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ChinKong и Девушки Эйнштейна - #ДискотекаHomeParty16+
-002. Fidel Wicked - Rock The Disco (Radio Edit)
-003. Серебро - Мальчик (DJ Squeeze Radio Edit)
-004. Alexey Romeo & Smoky Mo - На своей волне (Radio Mix)
-005. DJ Kerim Muravey - Танцуй Россия (Original Mix)
-006. DJ Smash feat. Вера Брежнева - Любовь на расстоянии
-007. Инфинити - Я так скучаю (DJ Sergey Fisun remix)
-008. Dan Balan - Люби (DJ Sebastien Remix)
-009. Елка - Цепи-ленты (DJ Noiz & DJ Maxtal Radio Remix)
-010. MMDance - Друзья (DJ Ozeroff DJFM Radio Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:03:47
-
-001. Matreshka Gilrs - Медведица (DJ AFFecta & DJ Natasha Baccardi Radio Edit)
-002. Slam DJ's feat Zeni - Touch (Evan Yelnikov Club Edit)
-003. Alexey Romeo & Smoky Mo - На своей волне (Radio Mix)
-004. DJ Rich-Art & DJ Stylezz feat. MC Shayon - Odessa (Moscow Club Bangaz Remix)
-005. OKSI - Любить за двоих (Tom Reason Remix)
-006. Bodybangers feat. Victoria Kern - Gimme More (Radio Edit)
-007. DJ Favorite feat. Вероника Данилова - Бессонница (DJ Nejtrino & DJ Baur Remix)
-008. Yolanda Be Cool feat. Nola Darling - Change(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1796993CE018B92A90B9552040D7777825D9663A
 ```
 
 https://mybot314.ru/tekegram_catalog/

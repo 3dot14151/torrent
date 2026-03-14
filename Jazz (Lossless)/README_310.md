@@ -1,3 +1,90 @@
+###  Публикация: 1701756   (116165) от 22.02.2024
+
+Hipshack - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funkalo (4:30)
+02. Scribbles & Grits (3:55)
+03. Generation Dongle (4:12)
+04. 2024 (1:12)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DCAE55D1B08038A93B9CB7B801B3AE12D35220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701698   (116164) от 22.02.2024
+
+Joe Pass - Resonance (1974) 2000, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Could Happen to You [5:26]
+02. Corcovado [5:31]
+03. Too Late Now [4:30]
+04. How Deep Is the Ocean? [7:11](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 01:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1A94D8F4D3DB623DA69C08A403640CEB9F0BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701702   (116163) от 22.02.2024
+
+Stefan Karlsson - Below Zero (1993) Justice Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ack Varmland du skona [4:30]
+02. All You Were to Us [5:44]
+03. El Ontono [5:58]
+04. In Love in Vain [6:25](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFC31F2D2ED05C1FF40584A372BB8E226F416BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701701   (116157) от 22.02.2024
 
 Marian McPartland - In Concert (1951, 1953) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
@@ -658,93 +745,6 @@ The Sahib Shihab Quintet - Seeds (1968) 2008, Rearward [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AA3A68474F4ED3636D46739A7D0ADB9F60B17D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703241   (115157) от 28.02.2024
-
-Marian McPartland - Contrasts (1992, 1994) 2CD, 2003, The Jazz Alliance [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Royal Garden Blues [4:45]
-02. Sentimental Journey [7:39]
-03. Blue Prelude [5:59]
-04. Dinah [3:46](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27ADB171DED1E70FE60C06072C6767770747A935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703247   (115156) от 28.02.2024
-
-Sahib Shihab - And The Danish Radio Jazz Group (1965) 2008, Oktav [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Di-Da [5:10]
-02. Dance of the Fakowees [4:13]
-03. Not Yet [3:25]
-04. Tenth Lament [6:20](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682320C7D41ECAC5D5228966A5F497BC1591AF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703515   (114818) от 01.03.2024
-
-Sahib Shihab - Jazz Joint 2: Companionship (1971) 2007, Anti-Magnetic [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Mani Padme Hum [5:43]
-02. Bohemia After Dark [3:41]
-03. Companionship [4:17]
-04. Stoned Ghosts [5:04](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Hard BopПродолжительность: 01:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E30036D030046FC74544338CB178C626A56DA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

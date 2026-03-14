@@ -1,3 +1,88 @@
+###  Публикация: 1195318   (144443) от 28.12.2017
+
+My_Initials - Twelve (2017) ScanDark Recordings [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Club Hades (06:00)
+02. Natural Occurance (07:10)Жанр: TechnoПродолжительность: 00:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17377505D1ED89875334A5870604CBEA43AF5E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195299   (144431) от 28.12.2017
+
+Ohrwert - Fidelis / Blavus (2017) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blavus (05:55)
+ 02. Blavus (XDB Reshape) (06:53)
+ 03. Fidelis (06:14)
+ 04. Blavus (Grad_U Remix) (09:54)Жанр: Dub Techno, TechnoПродолжительность: 00:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76935643F8FA819781CEEBA9A47E2EA6CD5B984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087535   (144334) от 28.12.2016
+
+Sofi Tukker - Soft Animals (2016) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-Disco, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drinkee  (04:59)
+02. Awoo (03:17)
+03. Matadora (04:02)
+04. Hey Lion (03:29)(   Читать дальше...   )Жанр: Nu-Disco, ElectronicПродолжительность: 00:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892466BE7EC711DF16E62C74A77E52B6765407A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272491   (142798) от 28.12.2018
 
 Gabe Gurnsey - Physical (2018) [FLAC|Lossless|tracks + .cue] <Disco House>
@@ -654,90 +739,6 @@ VA - Equilibrium (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3744698BFD73EEA6D6204575E962C4C6D777CC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273240   (137951) от 31.12.2018
-
-VA - Alpine Grooves X (Kristallhutte) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Davidson - Golden Age (5:11)
-02. Yoni Yarchi, Tal Tager - Tel Aviv Morning (8:28)
-03. Tunnelvisions - Guava (Extended Mix) (4:29)
-04. Trinity & Beyond - This Dream (YokoO's Can Only Become Reality Remix) (6:39)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CAE218325FFB723F5F7413AAA0250DBBDC406D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679347   (137928) от 25.11.2023
-
-Double Touch & Wassu - Here For You (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:20:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C106882EE91B0E47C23AEF97AE1AACA3CDD809C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679424   (137822) от 25.11.2023
-
-Apashe - Antagonist (2023) [FLAC|Lossless|tracks] <Electronic, Breakbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - King (feat. Busta Rhymes) [2:48]
-02 - Catch Me [4:04]
-03 - Devil May Cry [4:12]
-04 - Human [4:00](   Читать дальше...   )Жанр: Electronic, BreakbeatПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941DA3ACBCAA3F1C873562A46D301E2C8060352C
 ```
 
 https://mybot314.ru/tekegram_catalog/

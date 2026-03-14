@@ -1,3 +1,32 @@
+###  Публикация: 1585597   (60377) от 08.04.2024
+
+Stoner Boner - Seductive Eruptions: Tantric Sex Music for the Ultimate High (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ultimate High (432hz) [00:02:33]
+02. Tantric Sex Magic (432hz) [00:02:20]
+03. My Mistress Marijuana (432hz) [00:03:02]
+04. Marijuana Kundalini Meditation (432hz) [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77380C13F54034EA8AD24B7F9D317D4C3FBBA254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717705   (58960) от 21.04.2024
 
 Sex Pistols - The Filth & The Fury (Original Motion Picture Soundtrack) (2024) [FLAC|Lossless|WEB-DL|tracks] <OST>
@@ -705,33 +734,6 @@ Sensual Music Paradise - Erotic Asanas: Sensual Yoga, Libido Booster, Sexy Body 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5A0278C849B5B16DF484A219EF0220797A81863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750464   (42923) от 20.09.2024
-
-Эхо Москвы - История песен Битлз The Beatles (49 выпусков) (200?) [MP3|128 Kbps] <Подкаст>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл передач ведущего радиостанции "Эхо Москвы" Владимира Ильинского
-В каждом выпуске Владимир Ильинский (известный на Эхе как Дядя Володя) немногословно и очень тактично рассказывает об истории создания песни, кратко пересказывет ее текст (без углубления в лингвистические и стилистические особенности первоисточника), и - кончно же - звучит сама песня. (   Читать дальше...   )Жанр: ПодкастИздательство: Эхо МосквыПродолжительность: 03:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF60920FE5A71F534B36BF782E236422127888A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,70 +1,19 @@
-###  Публикация: 329416   (991356) от 05.01.2012
+###  Публикация: 140423   (992919) от 03.01.2012
 
-Подборка журналов | Сервисный центр [2010-2011] [DJVU]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991356.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сервисный центр" - профессиональный технический журнал по диагностированию и ремонту сложной вычислительной техники и оргтехники. Компьютеры, сетевые технологии, диагностика и ремонт, программные средства, копировальная техника.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB59FAFAFAF309E7EF956A42D4D013C952F5CDDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430540   (991355) от 05.01.2012
-
-Чужой / Alien (1979) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991355.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далеком будущем возвращающийся на Землю грузовой космический корабль перехватывает исходящий с неизвестной планеты слабый сигнал SOS. Экипаж принимает решение совершить посадку и разобраться, в чем дело. Оказавшись на планете, астронавты повсюду обнаруживают неопознанные предметы, по виду напоминающие гигантские коконы…Производство: Великобритания, США / Brandywine Productions Ltd., Twentieth Century-Fox Productions Ltd.Жанр: Ужасы, ФантастикаРежиссер: Ридли СкоттАктеры: Сигурни Уивер, Том Скеррит, Вероника Картрайт , Гарри Дин Стэнтон, Джон Хёрт, Иэн Холм, Яфет Котто, Боладжи Бадеджо, Хелен Хортон, Эдди ПауэллПеревод: Многоголосый закадровыйСубтитры: нетПродолжительность: 01:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969283D04B5240FFDDD51E98676A12CBE7921377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 98196   (991353) от 05.01.2012
-
-Фауст / Урок Фауста / Faust (1994) VHSRip
+Последний самурай / Last Samurai, The (2003) BDRip [RG.NoName.Club]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991353.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Драма, Фантастика, УжасыРежиссер: Jan Svankmajer (Ян Шванкмайер)Актеры: Petr Cepek, Jan Karus, Vladimir Kudla, Antonin Zacpal, Jiri SuchyПеревод: Одноголосый закадровыйПродолжительность: 01:32:01
+Действие разворачивается в Японии 70-ых годов девятнадцатого века. Капитан Нейтон Альгрен, уважаемый американский военный офицер, нанят Императором Японии для обучения первой армии Страны Восходящего Солнца современному искусству ведения боевых действий.
+Император пытается искоренить древних воинов-самураев, готовясь к более прозападной политике правительства…Жанр: боевик, драма, приключения, военныйРежиссер: Эдвард ЦвикПеревод: ДублированныйСубтитры: рус (полные), рус (на ктиайскую речь) <<<отдельными файламиФормат: AVIПродолжительность: 02:34:11
 
 ## Скачать торент
 ```bash
@@ -76,126 +25,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 432035   (991344) от 05.01.2012
+###  Публикация: 430795   (992916) от 03.01.2012
 
-Девушка напротив / The Girl Next Door (2007) [H.264/720p-LQ] BDRip
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом 1958 г. двенадцатилетний Дэвид развлекается с соседскими мальчишками, как типичные подростки, играя в прятки и дразня местных девочек. Однажды к соседским мальчикам приезжает красивая кузина и ее младшая искалеченная сестра, недавно осиротевшие в страшной автомобильной катастрофе. Дэвид по-дружески относится к старшей из девочек и начинает чувствовать приступы (   Читать дальше...   )Жанр: Триллер, Драма, КриминалРежиссер: Грегори УилсонАктеры: Блайт Оффарт, Дэниэл Манче, Бланш Бэйкер, Грант Шоу, Грэхэм Патрик Мартин, Бенжамин Росс Каплан, Остин Уильямс, Уильям Этертон, Кевин Чэмберлин, Дин ФолкенберриПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B44BDB24305905512C18B957C2FB717333F5EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431897   (991341) от 05.01.2012
-
-Чёрные волки (2011) [H.264] DVDRip (серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в Ярославле в пятидесятых годах прошлого века. Главный герой, бывший следователь УГРО Павел Хромов, был осужден на восемь лет за преступление, которого не совершал. Освободившись, Павел узнает, что его сестру убили «Чёрные волки», – так провинциальные жители назвали организованную группировку, которая держит в страхе весь город. На месте (   Читать дальше...   )Жанр: Криминал, Детектив, ДрамаРежиссер: Дмитрий КонстантиновАктеры: Сергей Безруков, Александр Коршунов, Дарья Мороз, Владимир Юматов, Владимир Капустин, Александр Голубев, Дмитрий Мухамадеев, Анатолий Кот, Евгений Серов, Евгений Антропов, Алена Хмельницкая, Кристина Бабушкина, Анна Уколова, Олег Соколов, Анатолий Гущин, Юлия Свежакова, Сергей Журавель, Андрей Барило, Денис Беспалый, Юлия Рувинская, Олег Заболотный, Петр Томашевский, (   Читать дальше...   )Продолжительность: 8x ~00:49:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431874   (991338) от 05.01.2012
-
-Жизнь и приключения Мишки Япончика / Однажды в Одессе (2011) 2xDVD9 (серии 1-12 из 12)
+[PS3] WALL-E [RUS] [PAL] [2008]
 
 >>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мишка Японец — не просто обычный налетчик с одесским колоритом. Стать королем воров, держать в страхе весь город, и одновременно быть народным любимцем мог только человек неординарный. Его популярность колоссальна — в нем видят «Робин Гуда», который радеет за народ, он утверждает свой «кодекс налетчика» — бедняков не грабить, не трогать врачей, юристов, артистов. (   Читать дальше...   )Жанр: Драма, МелодрамаРежиссер: Сергей ГинзбургАктеры: Евгений Ткачук, Елена Шамова, Валентин Гафт, Римма Маркова, Всеволод Шиловский, Владимир Долинский, Алексей Филимонов, Вадим Норштейн, Илья Лыков, Игорь Арташонов, Артем Ткаченко, Александр Лазарев (младший), Игорь Савочкин, Сергей Марин (II), Олег Школьник, Ирина Токарчук, Валерий Бассэль, Екатерина Копанова, Яна Поплавская, Андрей Ургант, Александр Ильин, Павел (   Читать дальше...   )Продолжительность: 12 x ~ 00:51:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431998   (991334) от 05.01.2012
-
-Tomb Raider: Underworld [Ru/En] (RePack/1.1) 2008 | R.G. Element Arts
-
->>След.
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991334.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На протяжении веков жители Скандинавии рассказывали древние истории о могущественном оружии великого бога Тора. Одним взмахом могучего молота он мог превращать высокие горы в долины, а при желании – даже сразить других богов! Тысячу лет эти предания были мифом, пока один человек не нашел доказательства существования этого оружия в глубинах Средиземного моря. Девушка, (   Читать дальше...   )Тип издания: RePackРазработчик: Crystal DynamicsЖанр: Action / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD4CDA95DD3EE9E570E26ECE0211BDB2502B92E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609354   (991307) от 28.01.2013
-
-Jaytech - 3 Singles (2008, 2011, 2012) [FLAC|Lossless]<Progressive House, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlantic (7:19)
-02. Synergy (7:27)Жанр: Progressive House, HouseПродолжительность: 00:14:46
+Планета превратилась в огромную безжизненную свалку. Люди давным-давно покинули утонувшую в мусоре землю и устремились к звездам, оставив на своей родине лишь одного жителя - маленького робота-уборщика ВАЛЛ-И. Всеми забытый бедняга исправно выполняет свою задачу, тщетно пытаясь избавить некогда живописный мир от грязных следов неряшливой цивилизации. Но однажды его жизнь круто меняется. Электронный механизм влюбляется в робота ИВ, и все вокруг мгновенно преображается. Удивительные приключения, невероятное путешествие и нелегкие испытания - все это ждет самую необычную парочку на земле будущего.2008Тип издания: ЛицензияЖанр: ActionЯзык интерфейса: Русский (текст + звук)
 
 ## Скачать торент
 ```bash
@@ -207,30 +51,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 608313   (991306) от 28.01.2013
+###  Публикация: 137760   (992913) от 03.01.2012
 
-VA - Club Dubstep №25 - Dubstep №25 (2012) [MP3|320 кб/с]<Dubstep>
+Храброе сердце / Braveheart (1995) HDRip
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991306.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Benga Feat. Katy B -Katy On A Mission (Trainrek Remix) (04:15)
-02. Boy Kid Cloud -How It Looks (Doctor P VIP) (03:52)
-03. Delta Heavy -Overkill (Zifra vs Fi-Chek Remix) (04:48)
-04. Devin Martin -The Armory (Original Mix) (03:51)
-05. Document One, Tigerlight -Already LostTIT4 (06:10)
-06. DotEXE -38 Degrees (04:18)Жанр: DubstepПродолжительность: 01:47:38
+Действие фильма начинается в 1280 году в Шотландии. Это история легендарного национального героя Уильяма Уолласа, посвятившего себя борьбе с англичанами при короле Эдварде Длинноногом.
+Он рано лишился отца, погибшего от рук англичан, и его забрал к себе дядя Оргайл, который дал ему хорошее образование в Европе. На родину Уильям возвращается уже взрослым человеком, (   Читать дальше...   )Жанр: боевик, драма, военный, биографияРежиссер: Мэл Гибсон / Mel GibsonПеревод: Профессиональный - полное дублированиеСубтитры: НетФормат: AVIПродолжительность: 02:57:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D758D1FA644F44F610B896055D96A2DB19E007F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,34 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 610298   (991304) от 28.01.2013
+###  Публикация: 398555   (992911) от 03.01.2012
 
-VA - Клубные Новинки Vol.227 (2013) [MP3|320 кб/с]<Club, Dance>
+Хэйвен / Тайны Хейвена / Haven (2011) HDTVRip [H.264/720p-LQ] [2 сезон, 1-13 серии] [LostFilm]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>След.
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991304.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. TyDi feat. Sarah Howells - When I Go (Arnej Remix)
-02. Sabrina Terence - About You (Mito & Moe Aly Edit)
-03. Soarsweep - If There Was Love (Original Mix)
-04. Teknova - Mistik (Stephan F Remix Edit)
-05. Stephan F - Majestic (Club Mix)
-06. Will Bailey and Poisound - In The Echo (Original Mix)
-07. Santerna - Parallax (Andrew Riqueza Bootleg)
-08. Steve Brian & Cressida - Casablanca (Radio Edit)
-09. Mark Van Dale with Enrico - Water Verve (Leon Bolier Remix)
-10. Mika V. - Biography (Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:22:55
+В маленький город Хейвен приезжает агент ФБР Одри Паркер, чтобы расследовать смерть бывшего преступника. Из-за своего природного любопытства она попала в эпицентр этого необычного анклава, который, оказывается, издавна служил пристанищем для людей со сверхспособностями. Среди местных жителей города полицейский Натан Вурно, который стал напарником Одри, и загадочный (   Читать дальше...   )Жанр: ужасы, фэнтези, триллер, драма, криминал, детективРежиссер: Т.У. Пикок, Тим Соутэм, Роберт ЛиберманАктеры: Эмили Роуз, Лукас Брайант, Эрик Бальфур, Николас Кэмпбелл, Ричард Донат, Джон Дансуорт, Mary Colin Chisolm, Michelle Montieth, Энн Кейлон, Стивен МакХэтти ...Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: ТВ3
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1FFD4816FB78C5D6954447A5904D7B77CAE4B19
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,34 +104,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 608293   (991295) от 28.01.2013
+###  Публикация: 133981   (992910) от 03.01.2012
 
-VA - In Da Club Vol.69 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+Ничего личного / Duplicity (2009) [Лицензия|Дубляж] DVDRip
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>След.
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991295.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Gary Proud - As One (Original Mix)
-002. Gai Barone - Astronave (original mix)
-003. Inge Lemon - Starchild (Gofman & Tsukermann Remix)
-004. DNS Project - Second Chapter (Original Mix)
-005. Arnej - For The People (original mix)
-006. Fabio XB feat. Simona Barbieri - Flash Of Life (Cressida Remix)
-007. Mark Eteson feat. Audrey Gallagher - Breathe On My Own (Daniel Kandi Remix)
-008. Klauss Goulart - Let Your Scars Dance (Original Mix)
-009. Armin van Buuren feat. Jennifer Rene - Fine Without You
-010. Eximinds - Afterlight (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:53:44
+Офицер ЦРУ Клэр Стенвик и агент службы MI6 Рэй Коваль покинули сферу правительственной разведки, чтобы нажиться на холодной войне, бушующей между двумя конкурирующими многонациональными корпорациями. Их миссия? Сохранить в тайне формулу, которая обеспечит благосостояние первой запатентовавшей ее компании.
+
+Для их работодателей — промышленного гиганта Говарда Талли (   Читать дальше...   )Жанр: триллер, криминалРежиссер: Тони ГилройАктеры: Клайв Оуэн, Джулия Робертс, Том Уилкинсон, Пол Джаматти, Дэн Дэйли, Лиза Робертс, Дэвид Шамбрис, Рик Уорси, Олег Штефанко, Дэнис О`ХареСубтитры: Нет
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D35957E94114BE82AD0C52F269423A9371B7CE5
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,34 +132,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609372   (991293) от 28.01.2013
+###  Публикация: 430975   (992905) от 03.01.2012
 
-VA - Creative Electro Box 2 (2013) [MP3|320 кб/с]<Electro House, House, Electro>
+Профессионал / Killer Elite (2011) HDRip [H.264]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>След.
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991293.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. 12th Planet - The End Is Near, Pt. 1 (Felguk Remix)
-2. Avicii feat. Nicky Romero - I Could Be the One (Dirty Dutch Visionaire Remix)
-3. Avicii feat. Nicky Romero - I Could Be The One (Seif Remix)
-4. Bruno Mars - Locked Out Of Heaven (Sultan feat. Ned Shepard Remix)
-5. Dada Life - So Young So High (Andybody Remix)
-6 .Deorro - Hands Up
-7. Direct - Zombie
-8. Hot Mouth feat. Chris James - Totally Worth It (Peacetreaty Remix)
-9. Jean Elan feat. Cosmo Klein - All About Us (Pyero Remix)
-10. Joe Luthor- Sad Memories (Clonation Remix)(   Читать дальше...   )Жанр: Electro House, House, ElectroПродолжительность: 02:46:36
+Бывшему бойцу британских силовых структур приходится забыть о тихой размеренной жизни отставника, когда его лучший друг оказывается в опасности.Производство: Ambience Entertainment / Current Entertainment / International Traders / Omnilab Media / Palomar PicturesЖанр: Боевик, триллер, криминалРежиссер: Гэри МакКендриАктеры: Джейсон Стэтхэм, Клайв Оуэн, Роберт Де Ниро, Доминик Пурселл, Аден Янг, Ивонн Страховски, Бен Мендельсон, Адевале Акиннуойе-Агбадже, Дэвид Уайтели, Мэтью НэйблПеревод: ДублированныйСубтитры: Вшитые, отключаемыеЯзык субтитров: Русский, английскийПродолжительность: 01:56:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C7FEAE8AEAC7B13EC6E631BFC3B3CDB6EB1C909
+magnet:?xt=urn:btih:58B1EA5320077AE01760800C11E3F7CB6F975854
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,29 +158,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 608309   (991292) от 28.01.2013
+###  Публикация: 608666   (992902) от 26.01.2013
 
-VA - Club Dubstep №24 - HNY (2012) [MP3|320 кб/с]<Dubstep>
+VA - Best of Euphoric Emotions Vol.11 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991292.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  1 501 - Chasing Stars (04:43)
-02.  2 501 - Headrush (feat. Belle Humble) (04:31)
-03.  3 Ain't No Love - Shine (03:43)
-04.  4 ak9 - Everything Matters (Original Mix) (04:45)
-05.  5 Ben Kumar, Roy Merchant, Grainne O'Neill - Street Lights (03:54)Жанр: DubstepПродолжительность: 02:17:51
+001. The Thrillseekers - Song For Sendai (original mix)
+002. Sean Tyas - Banshee (Original Mix)
+003. Rex Mundi - When The Sun Is Rising (Original Mix)
+004. Orjan Nilsen - Go Fast! (Original Mix)
+005. Space RockerZ & Tania Zygar - Puzzle Piece (Daniel Heatcliff's Farewell Remix)
+006. Pobsky & Paul Atkinson - Locked Out (Original)
+007. Reminder & Cathy Burton - Love To Hold (Original Mix)
+008. Timur Shafiev feat. Dasha - Thank You (Dallaz Project remix)
+009. Tucandeo - Galatea (Original)
+010. Roger Shah & Sian Kosheen - Hide U (Pumpin' Island Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:56:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE9BD559831A937ABE3A86AD4A1B8C15296FE004
+magnet:?xt=urn:btih:B38C38C2B810EEC1B66179272426D93ABCE7B41E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,33 +193,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609497   (991291) от 28.01.2013
+###  Публикация: 608864   (992898) от 26.01.2013
 
-VA - Cahaya Dari Jiva (2012) [MP3|320 кб/с]<Chillout, Ambient, Downtempo>
+Gilrs Wallpaper Collection (4/2013) [Wallpapers 16+] (jpg)
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991291.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Sonnie Mishki - Lost Planet (Mushroom Lab Touch)
-2. By The Rain - Mystical Water
-3. Wavespell - White Wispers Dub
-4. Tymek - Transgalactic Jazz
-5. Heliopatis - Recognition Of Emptiness
-6. Dream Stalker - Under Moon
-7. Astronaut Ape - Your Personal Sun
-8. Faura - Keep On Going
-9. Tarac - ComakinoЖанр: Chillout, Ambient, DowntempoПродолжительность: 01:10:11
+Еженедельный сборник обоев для рабочего стола от FedExe ®Разрешение файлов: 1600x1200 - 5100x2700
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F2374C63110FD1482376D9C4A41D245BE9149C9
+magnet:?xt=urn:btih:BB46DE4C6792347F0E0EDD5E0866B5877552572F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,31 +219,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 608303   (991289) от 28.01.2013
+###  Публикация: 608905   (992897) от 26.01.2013
 
-VA - Club Dubstep №23 - ERROR (2012) [MP3|320 кб/с]<Dubstep>
+Interior Wallpapers (25.01.13) [Wallpapers] (jpg)
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991289.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Savant -Welcome To Death (03:05)
-02. Ascendance, The Nineties, Cori Pena, Drop Goblin -Come Find Me (Drop Goblin Remix) (05:36)
-03. Bassnectar & DC Breaks -Breathless feat. Mimi Page (05:27)
-04. Booty Luv -Say It (Nero Remix) (05:30)
-05. Cassius -I Love You So (Schoolboy Remix) (04:20)
-06. Cutline -Die For You (JMajik And Wickaman Remix) (05:37)
-07. Cypress X Rusko -Lez Go (FRNKNSTYN Remix) (03:42)Жанр: DubstepПродолжительность: 02:14:37
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BD42B04A5659809FBF4247203CAB6FDF3639AB1
+magnet:?xt=urn:btih:AA73A1350CFD27245C305EB8731CF8D7B6AFDB53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -439,34 +245,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609999   (991288) от 28.01.2013
+###  Публикация: 608176   (992896) от 26.01.2013
 
-VA - Drum and Bass Pro V.2 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
+Фотография - Фотограф Henrik Purienne (jpg)
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991288.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. S.P.Y - You
-02. D.M.T, Sensa - I'm Holding On (Original Mix)
-03. Ruffhouse - The Foot (Original Mix)
-04. Keosz & Trilo - Pride (Orignal Mix)
-05. D-Pression - 3rd Trimester (Original Mix)
-06. Smote feat. Flautistar - I Believe You Do (Original Mix)
-07. Muzzy - Pegasus ft. Roniit
-08. Dementia & Basses Intentions - Shocking Eruption
-09. Halosphere - Run Away (Aurosonic Remix)
-10. Modest Intentions - Look Around You (Original Mix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:23:29
+Фотография - Фотограф Henrik PurienneРазрешение файлов: ~  500x750 ~ 800x800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFA730F09DC7DF37299875C6B4710A8EAE66F806
+magnet:?xt=urn:btih:4CF9069D7E1B656D711E1CDAE5E80950282E4FAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,76 +271,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 610073   (991286) от 28.01.2013
+###  Публикация: 609205   (992895) от 26.01.2013
 
-Журнал | Здоровье [Россия] №2 (февраль 2013) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здоровье — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, antiage, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCFA60B516FD076A455907FEAE210123FB5EEBA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608673   (991285) от 28.01.2013
-
-Johnny Burnette - The Ballads Of (2010) [MP3|320 кб/с]<pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamin'
-02. Clown Shoes
-03. My Special Angel
-04. Please Help Me I'm Falling
-05. Shattered Dreams
-06. I'll Never Love Again
-07. Love Me
-08. You're Sixteen
-09. I Just Found Out
-10. Settin' The Woods On Fire(   Читать дальше...   )Жанр: popПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685E395360AA4774FA28C3F5FCFE2E2CF0F18C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610050   (991278) от 28.01.2013
-
-Газета | Сезон у дачи №2 (январь 2013) [PDF]
+Газета | Сезон у дачи №1 (январь 2013) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991278.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992895.jpg" />
 </div>
 
 
@@ -553,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AD63F4C434984F9A22583A4001E7F171EFD9666
+magnet:?xt=urn:btih:531A5AE2F6F15B2C358598194B9791A4F04CF8AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,25 +297,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609285   (991277) от 28.01.2013
+###  Публикация: 608827   (992894) от 26.01.2013
 
-Коалиция / The Coalition (2013) BDRip [EN]
+VA - Global DJ Broadcast Top 20 - January 2013 (2013) [MP3|320 кб/с]<Trance/ House/ Progressive/ Vocal>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991277.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История о четырех молодых женщинах, которые объединяются. чтобы отомстить четверке перспективных спортсменов за предательство и публичные оскорбления...Жанр: Комедия, МелодрамаРежиссер: Моника МингоАктеры: Адриенн Белон, Джеке Гарри и Х.Р. РамиресПеревод: ОтсутствуетПродолжительность: 01:40:27
+01. Markus Schulz ft Ana Diaz - Nothing Without Me (Markus Schulz Return To Coldharbour Remix) (8:05)
+02. Rex Mundi - Bella Monaco (Original Mix) (8:36)
+03. Wellenrausch - Million Miles To Run (Phynn Remix) (8:07)
+04. Matthew Peterson - Stingray (Styller Remix) (7:13)
+05. Danilo Ercole - Profundo (Original Mix) (6:22)
+06. Lange - Destination Anywhere (Radio Edit) (4:07)
+07. Wellenrausch - Echoes In The Night (Gai Barone Demode Remix) (8:42)
+08. Rex Mundi - Steaming Waterfalls (Original Mix) (7:27)
+09. Planet Perfecto - Bullet In The Gun (Gary Maguire Remix) (7:47)
+10. Markus Schulz ft Seri - Love Rain Down (Myon & Shane 54 Summer Of Love Mix) (7:22)(   Читать дальше...   )Жанр: Trance/ House/ Progressive/ VocalПродолжительность: 02:32:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:111AEDD2DD97E087B7F3988DE768EFFCF1524E5D
+magnet:?xt=urn:btih:9374BFA32B7E5CBA6474C0BCE392CB7382A986AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,26 +332,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 610111   (991276) от 28.01.2013
+###  Публикация: 608979   (992891) от 26.01.2013
 
-Сборная СССР | Буклет к ЧМ 1986 года. [1986] [PDF]
+Wallpapers - Wallpapers Fantasy №29(Pavel)
 
->>Разное (категория книг)
->>
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991276.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборная СССР по футболу.
-Буклет к ЧМ 1986 года.Формат: PDF
+Обои для рабочего стола 50 штФормат: JPEG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAC66B1DB721B69146BD558E12705C6242C46E5A
+magnet:?xt=urn:btih:8334F55D246A2CFB867E02B358B0614504450E74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,25 +358,177 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609985   (991274) от 28.01.2013
+###  Публикация: 608910   (992890) от 26.01.2013
 
-Jody Wisternoff - 4 Singles (2012) [FLAC|Lossless]<Progressive House, House, Deep House>
+Cinema Wallpapers  (25.01.13) [Wallpapers] (jpg)
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991274.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Just One More (Extended Mix) (8:21)
-02. Just One More (Dub Mix) (5:53)
-03. Just One More (MANIK Remix) (6:07)
-04. Just One More (Martin Roth Remix) (5:57)
-05. Just One More (Radio Edit) (3:45)Жанр: Progressive House, House, Deep HouseПродолжительность: 00:30:04
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E2E607D2A0E59C25DDDCEF3F382F5D21DFB187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608179   (992888) от 26.01.2013
+
+Фотография - Фотограф Nikos Vasilakis (jpg)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Nikos VasilakisРазрешение файлов: ~  500x750 ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF9EB29A03EF6309B184E301ED2AE01066685A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609169   (992887) от 26.01.2013
+
+Журнал | Skin Shots №85 (UK) [февраль-март 2013] [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание для тех, кто любит татуировки. Модные тенденции, стили и направления в развитии нательной живописи. Вашему вниманию предлагается 100 страниц с интересными татуировками, разбитыми по тематическим разделам.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3062A021D7C2DF2E4DA748690A482EBB92D0B4C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608859   (992886) от 26.01.2013
+
+HQ Wallpapers for a desktop (4/2013) [Wallpapers] (jpg)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельный сборник обоев для рабочего стола от FedExe ®
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15C77D32B22AF95CB10B5969482DB9A160C286F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608860   (992885) от 26.01.2013
+
+HQ Wallpapers Perfect Women (4/2013) [Wallpapers 16+] (jpg)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельный сборник обоев для рабочего стола от FedExe ®Разрешение файлов: 1600 x 1200 ~ 1920 x 1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F205A40BB08F09E188FA511450969DE7873175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608851   (992884) от 26.01.2013
+
+Computer Desktop Wallpapers Collection (4/2013) [Wallpapers] (jpg)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельный сборник Computer Desktop Wallpapers Collection для рабочего стола от FedExe ®Разрешение файлов: 1600X1200 - 7500x4219
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5779D858D87F83B563806895FEFB8A40D3538689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 135594   (992882) от 03.01.2012
+
+Ведьмина гора / Race to Witch Mountain (2009) [HQ|Лицензия|Дубляж] BDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992882.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни Джека Бруно, таксиста-неудачника из Лас-Вегаса, всё перевернулось с ног на голову в тот момент, когда к нему в такси, спасаясь от погони, запрыгнули Тони и Тиа. Вскоре он поймёт, что его пассажиры — дети с необычными паранормальными способностями, которых ему предстоит защитить от безжалостных преследователей.Жанр: Фантастика, триллер, комедия, приключенияРежиссер: Энди ФикменАктеры: Дуэйн «Скала» Джонсон, Анна-Cофия Робб, Александр Людвиг, Карла Гуджино, Киаран Хиндс, Том Эверетт Скотт, Крис Маркетт, Билли Браун, Гэрри Маршалл, Ким РичардсСубтитры: Russian, Ukrainian, EnglishФормат: AVI
 
 ## Скачать торент
 ```bash
@@ -644,25 +540,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609127   (991272) от 28.01.2013
+###  Публикация: 123847   (992877) от 03.01.2012
 
-Фотография - Ulorin Vex [JPEG]
+Адреналин: Высокое напряжение / Crank: High Voltage (2009) DVDRip [H.264]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>След.
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991272.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992877.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Ulorin VexРазрешение файлов: 388x576 ~ 1612x2000Формат: JPEG
+Он умер, но обещал вернуться! Не чудом, а благодаря современным медицинским технологиям Чев Челиос получает новое сердце и новый шанс отомстить своим врагам. Теперь для постоянной подзарядки ему требуется электрический разряд мощностью не меньше, чем у автомобильного аккумулятора.Производство: США / Lakeshore Entertainment, LionsgateЖанр: Криминал, Боевик, Комедия, ФэнтезиРежиссер: Марк Невелдайн, Брайан ТейлорАктеры: Джейсон Стэйтем, Эми Смарт, Дуайт Йоакам, Бай Лин, Клифтон Коллинз мл., Эфрен Рамирез, Арт Хсю, Хосе Пабло Кантильо, Джозеф Джулиан Сория, Дэвид КэррединПеревод: Дублированный, Авторский одноголосый (Дмитрий Пучков aka Гоблин)Продолжительность: 01:31:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC3904762F3E757ACFEA2C8108055EA0BFAB37B8
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,34 +566,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 608662   (991270) от 28.01.2013
+###  Публикация: 301111   (992874) от 03.01.2012
 
-Franco Simone - C'Era Il Sole Ed Anche Il Vento (2011) [MP3|320 кб/с]<pop>
+(Обновлено 28.12.2011) Библиотека Ножемана. Наиболее полная подборка литературы по ножам и холодному оружию. [2011, FB2, DJVU, PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991270.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_992874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Respiro (3:32)
-02.Cara Droga (3:38)
-03.Tu... E Cosi Sia (4:11)
-04.Sogno Della Galleria (4:11)
-05.Malafemmena (4:51)
-06.Paesaggio (3:31)
-07.Tu Per Me (3:39)
-08.Tentazione (3:19)
-09.Fiume Grande (3:31)
-10.Notte Di San Lorenzo (4:12)(   Читать дальше...   )Жанр: popПродолжительность: 00:59:45
+Коллекция, которая включает огромное количество литературы, посвященной ножам, холодному оружию и всему, таки или иначе, связанному с этой темой. В коллекцию вошли не только материалы, доступные в отечественных интернет-библиотеках, скорее наоборот, они всего лишь дополнение к тому, что мне удалось найти просеивая зарубежные источники. В основном это касается каталогов ножевых фирм - наиболее полной подборки вы еще не видели! Также представлено большое количество журналов, книг и статей.
+Но основным достоинством данной коллекции является даже не это, а то, что подборка снабжена удобной оболочкой, позволяющей с комфортом просматривать ее содержимое, осуществлять поиск, сохранять книги в нужное место и многое, многое другое.2011Формат: FB2, DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F40B9062CCEA32445EFFDA26537335534A89C94
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -705,25 +593,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349442   (991269) от 18.01.2020
+###  Публикация: 145381   (992868) от 03.01.2012
 
-Дождливый день в Нью-Йорке / A Rainy Day in New York (2019) BDRemux [H.264/1080p]
+Голая правда / The Ugly Truth (2009) [Лицензия|Дубляж] DVDRip
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>След.
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991269.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Он — из состоятельной семьи Нью-Йорка, она — из небольшого городка в Аризоне. Выросший на Манхэттене юноша мечтает показать ей свой любимый город. Судьба дает ему шанс, когда девушку отправляют взять интервью у известного режиссера. Однако этот дождливый день изменит их жизнь навсегда. В проливной суете мегаполиса он встретит свою давнюю подругу, а девушку затянет (   Читать дальше...   )Производство: США / Gravier Productions, Perdido ProductionsЖанр: Мелодрама, комедияРежиссер: Вуди АлленАктеры: Тимоти Шаламе, Эль Фаннинг, Селена Гомес, Джуд Лоу, Диего Луна, Лив Шрайбер, Сюзанн Смит, Оливия Борхэм-Уинг, Бен Уорхейт, Гриффин НьюманПеревод: Дублированный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:32:23
+Она — успешный телепродюсер со строгими моральными принципами и сексуальная блондинка. Он восходящая звезда нового телешоу и его жизненное кредо — «секс, наркотики и рок-н-ролл», он совсем не признает равенство полов, политкорректность и так далее… В общем настоящий мачо. Вы думаете, у них может что-то получиться?Жанр: комедия, мелодрамаРежиссер: Роберт ЛукетичАктеры: Кэтрин Хайгл, Джерард Батлер, Бри Тернер, Эрик Винтер, Ник Сирси, Джесси Д. Гойнс, Шерил Хайнс, Джон Майкл Хиггинс, Ной Мэтьюз, Бонни СоммервильСубтитры: Нет
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38A2BB9F88620BEE88816611E3F02023B89CA9D5
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -731,28 +619,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353572   (991268) от 18.01.2020
+###  Публикация: 123463   (992867) от 03.01.2012
 
-VA - Top50: Tracks Deep House Ver.16 (2019) [MP3|320 Kbps] <House, Deep House, Progressive House>
+Форсаж 4 / Fast & Furious (2009) DVDRip
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991268.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ben Delay - Giving Up On Love (Extended Mix) 5:20
-02. Parah Dice - Hot (Imanbek Extended Remix) 4:03
-03. Tones and I - Dance Monkey (Gumanev & Tim Cosmos Deep Remix) 4:04
-04. Sean Aaron - Hold Me (VetLove Remix) 5:12(   Читать дальше...   )Жанр: House, Deep House, Progressive House, Club HouseПродолжительность: 04:18:09
+Когда кривая дорожка заставляет скрывающегося от правосудия Дома Торетто вернуться в Лос-Анджелес, вражда с агентом Брайаном О’Коннером вспыхивает с новой силой. Но у парочки обнаруживается общий противник, и Дому с Брайаном приходится заключить перемирие в надежде одержать над ним победу. Грабя конвои, роя подкопы и пересекая границы, они приходят к идеальной форме (   Читать дальше...   )Жанр: боевикРежиссер: Джастин ЛинАктеры: Вин Дизель, Пол Уокер, Джордана Брюстер, Мишель Родригес, Джон Ортиз, Лас Алонсо, Гал Гадот, Джек Конли, Ши Уигхэм, Лиза Лапира
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7409D10B1A3AF79910C5AB29792D6E408A417854
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430624   (992866) от 03.01.2012
+
+Сибирь. Монамур (2011) [H.264] BDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cибирь. Поздняя осень. В тайге, в заброшенной деревне живет старик — старовер Иван и его 7-летний внук Лешка. Они ждут отца мальчика, который ушел 2 года назад и не вернулся. Стая бродячих собак пожирает все живое в окрестностях. Мальчик дружит с одной из этих собак, за это старик его часто ругает. Иногда дальний родственник дядя Юра привозит им еду.Производство: Тундра-фильмЖанр: ДрамаРежиссер: Вячеслав РоссАктеры: Петр Зайченко, Михаил Процько, Сергей Новиков, Лидия Байрашевская, Николай Козак, Максим Емельянов, Соня Росс, Сергей Пускепалис, Юрий Гумиров, Марианна ШульцПеревод: ОригинальныйПродолжительность: 01:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EF918A16DBD1A951D22E7B958C6C3F1D3BEA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431241   (992863) от 03.01.2012
+
+Battlefield: Bad Company 2 [Ru/En] (RePack) 2010 l R.G. Механики
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сохраняя все лучшие традиции серии, Battlefield: Bad Company 2 предлагает вниманию поклонников игры массу новых интересных возможностей. Сражаться предстоит в самых разных условиях: в заснеженных лесах и непроходимых джунглях, в жарких пустынях и неприступных горах, что предполагает использование соответствующей тактики. Также игроки смогут реализовывать уникальные (   Читать дальше...   )Тип издания: RePackРазработчик: EA Digital Illusions Creative EntertainmentЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753D894B1AD5428DCE90681E66F6C3DB91EDF40F
 ```
 
 https://mybot314.ru/tekegram_catalog/

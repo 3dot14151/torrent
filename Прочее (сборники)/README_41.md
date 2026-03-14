@@ -1,3 +1,32 @@
+###  Публикация: 1009249   (809546) от 21.04.2016
+
+VA - Need For Speed (2016) [MP3|256-320 кб/с] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer & Brooklyn Bounce - Don't Stop (Raindropz! Remix)
+02. Nick Skitz & Raverockerz feat. Brooklyn Bounce - Rock The Party (Original Mix)
+03. Off Tap - Focus (Ryan N Remix)
+04. Xam Soto - Flatline (Original Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 05:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B2C36949175897F93EB82C7D78CA00684B8131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119142   (809155) от 27.03.2017
 
 VA - Empire Records - Club Hit 12 (2017) [MP3|320 Kbps] <Club, Dance>
@@ -722,35 +751,6 @@ VA - Hamid Production - The Best Of 2017 [MP3|192-320 Kbps] <Pop, Dance, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EE5E69BC62E0C3175C35107340CF293796F2B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120156   (802826) от 30.03.2017
-
-VA - Зажигательный Eurodance Vol.3 (2017) [MP3|256-320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fun Factory - Take Your Chance (Dennis Moskvin 2k16 M.Bounce Remix)  6:23
-02.  Barcode Brothers & Broken Heard - Dooh Dooh (DrBeat Perfect Mix)  4:16
-03.  Игорь Силевёрстов - Санта Лючия (Remix)  3:49
-04.  Maxx - Get-A-Way (Alexsey Style Remix)  3:29(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B434AFA5C4E0B07188690FF6CD3FE37CDF452381
 ```
 
 https://mybot314.ru/tekegram_catalog/

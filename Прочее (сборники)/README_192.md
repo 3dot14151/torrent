@@ -1,3 +1,32 @@
+###  Публикация: 1804274   (12341) от 06.07.2025
+
+VA - Music News For Forum vol.105 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12341.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daria Kupr - Lose Control (02:16)
+ 002. СТАСИА feat. Jambul & MZARI - Девонька (03:08)
+ 003. 2xA - DO MY THING (01:36)
+ 004. 3EED - Употребить внутрь (02:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 16:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C63EC3D70CAC6F96C442642FFDCB28AF489B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805451   (12322) от 06.07.2025
 
 VA - Music News For Forum vol.109 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Music News For Forum vol.123 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB73C8C56C798601142FB299E1BDC74DD6830ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811489   (8696) от 10.08.2025
-
-VA - Music News For Forum vol.124 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8696.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. MARAKYIA - Это любовь (02:22)
- 002. A7S feat. David Guetta & Wizkid - Lighter (Hypaton Remix) (02:17)
- 003. Adem Bogoceli & Farenthide - Yimanya (Skytech & Fafaq Extended Remix) (04:57)
- 004. Akmalov - 10 (02:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03FBACBC5050546310F44881C15E6A699CFA67BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

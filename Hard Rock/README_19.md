@@ -1,3 +1,38 @@
+###  Публикация: 545220   (486767) от 09.09.2012
+
+VA - Re-Machined. A Tribute To Deep Purple's Machine Head (2012) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486767.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Carlos Santana & Jacoby Shaddix - Smoke On The Water (5:05)
+2. Chickenfoot - Highway Star (7:05)
+3. Glenn Hughes & Chad Smith - Maybe I'm A Leo (4:59)
+4. Black Label Society - Pictures Of Home (3:30)
+5. Kings Of Chaos - Never Before (4:05)
+6. The Flaming Lips - Smoke On The Water (4:25)
+7. Jimmy Barnes & Joe Bonamassa - Lazy (8:53)
+8. Iron Maiden - Space Truckin' (3:27)
+9. Metallica - When A Blind Man Cries (4:37)
+10. Glenn Hughes, Steve Vai, Chad Smith - Highway StarЖанр: Hard RockПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3752451426B2DC016CFB6AD389B4445BEA94F71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055837   (485888) от 23.09.2016
 
 Furious Zoo - Back To Blues Rock (2014) [MP3|320 Kbps] <Hard Rock, Blues Rock>
@@ -732,35 +767,6 @@ Motion Device - Motion Device IV (2020) [MP3|320 Kbps] <Hard Rock, Female Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88DC1853AA364FAA686F5494CFFC8289642D48B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059454   (461819) от 04.10.2016
-
-VA - Gods of Thunder - A Norwegian Tribute to Kiss (2005) [MP3|256 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Ronni Le Tekro & Tony Harnell - Detroit Rock City
-03. Wig Wam & Bruce Kulick - I Was Made for Lovin You
-04. Espen Lind - Sure Know Something(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8395784855DDB7B8D5E39152F99DD2B8DBD37750
 ```
 
 https://mybot314.ru/tekegram_catalog/

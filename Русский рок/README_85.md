@@ -1,3 +1,90 @@
+###  Публикация: 1268730   (224675) от 12.12.2018
+
+Константин Ступин - Ремесло (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Секрет
+02. Ремесло
+03. Один аккорд
+04. Гремит моя музыка(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCCEB658F42413C9F6E06463B7C8B1C4807457B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584853   (224670) от 19.10.2022
+
+Ключевая - Юдоль (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224670.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Огонь
+2. Плис
+3. Юдоль
+4. Храм(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A90BF0F1A311A233B2A461AC54AF0B790B326D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268869   (224664) от 12.12.2018
+
+Louna - Panopticon (2018) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Kingdoms (feat. Craig Mabbit & Kevin Thrasher)
+02. Spring
+03. Homeland
+04. Searching(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA225E647201931A8D9254AF921AA01B0392B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965846   (224413) от 15.12.2015
 
 Путь Солнца - Гимны Победы. Часть 2. Весна 19.16 (2015) [MP3|320 кб/с] <Pagan Thrash Metal>
@@ -652,92 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17037DB5B606D3BF050F958BFA22643BF3805E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425549   (220562) от 21.11.2020
-
-Пилот - Заживо (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220562.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Заживо (Радиоверсия)
-2. Заживо (Полная Версия)
-3. Заживо (Киноверсия)Жанр: RockПродолжительность: 00:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A624DB55950484C428743751EEE4F37EA317820B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585809   (220205) от 23.10.2022
-
-Кино - Ночь (1985) Remastered, Reissue, Unofficial Release, 2022, Box Set: 3CD, AnTrop [OGG Vorbis|480 Kbps] <Rock, New Wave, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Видели ночь
-02. Фильмы
-03. Твой номер
-04. Танец(   Читать дальше...   )Жанр: Rock, New Wave, Post-PunkПродолжительность: 02:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27C6985A7CF24322E0E145B183A4C8F222D58CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269688   (219999) от 15.12.2018
-
-АСТЕРА - Темный век (2018) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219999.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Испокон веков
-2. Тёмный век
-3. Северный ветер
-4. Последний путь воина(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6EA4475EF3517965EF8801C30AF09613E60D148
 ```
 
 https://mybot314.ru/tekegram_catalog/

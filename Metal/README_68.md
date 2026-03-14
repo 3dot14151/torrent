@@ -1,3 +1,38 @@
+###  Публикация: 555348   (431782) от 03.10.2012
+
+AxeWound - Vultures (2012) [MP3|320 кб/с]<Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vultures (feat. Synyster Gates)
+02. Post Apocalyptic Party
+03. Victim Of The System
+04. Cold
+05. Burn Alive
+06. Exochrist
+07. Collide
+08. Destroy
+09. Blood Money And Lies
+10. Church of NothingЖанр: MetalcoreПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C535DB188DB527491BF23E9A75EDF4C6965FDE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945665   (431735) от 11.10.2015
 
 Huntress - Static (2015) [MP3|320 кб/с]<Thrash metal>
@@ -714,35 +749,6 @@ Dynazty - Final Advent (2022) [MP3|320 Kbps] <Power Metal, Hard Rock, Melodic Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EE13D937AD375DCD02988B2C590BD32B38A1884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065425   (418938) от 23.10.2016
-
-Pantera - The Great Southern Trendkill (1996) 2CD, Remastered, 2016, Rhino Records [MP3|320 Kbps] <Thrash, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Great Southern Trendkill   (03:49) 
-02. War Nerve   (04:48) 
-03. Drag the Waters   (04:55) 
-04. 10's   (04:50) (   Читать дальше...   )Жанр: Thrash, Heavy Metal |Продолжительность: 01:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B671E68621E47C39DE888F632B3633A780CFC88
 ```
 
 https://mybot314.ru/tekegram_catalog/

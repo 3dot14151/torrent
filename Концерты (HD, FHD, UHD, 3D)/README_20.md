@@ -1,3 +1,32 @@
+###  Публикация: 811614   (578406) от 10.08.2014
+
+Hidden Tribe - Live at RTC-Fest @ Da:Da (2013) [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Презентация альбома «Sub Mira» в клубе «Da:Da», Санкт-Петербург, 31.08.201301. Souls Connection
+02. Maiden Bright
+03. Phenomenon
+04. Double Twins(   Читать дальше...   )Жанр: Ethno-con-fusion, Trip-Hop, DowntempoПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC585EAF40B0B86B68F40FBCDF1F0C7E8BEA5F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526929   (578367) от 25.07.2012
 
 Rammstein - Live aus St. Petersburg (2012) BDRip 720p
@@ -718,32 +747,6 @@ The Who - Live At The Isle Of Wight 2004 Festival (2017) Blu-ray [H.264/1080i ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F72C8DDB18599BF432C4996CD454CEC9809F738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236052   (556270) от 15.07.2018
-
-Квартирник на НТВ у Маргулиса. Мгзавреби (07.14.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556270.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мгзавреби" - грузинская музыкальная группа, образованная в 2006 году в Тбилиси. На "Квартирнике" они исполнят лучшие песни специально для телезрителей НТВ.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F6E6E1042CEFE0EC0E6219CA09A72E3117CD44
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1025826   (708125) от 13.06.2016
+
+VA - Созвездие весеннее - 9 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708125.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alloise - Deadman
+002. Коля Dev - Неба Не Надо
+003. Slider & Magnit Feat. Penny Foster - Another Day In Paradise
+004. Анна Шульгина - Другая Я(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B72169076EF4DE4AA2F06430DC8DF537EEC816C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025805   (707760) от 13.06.2016
 
 VA - Зайцев.нет Летний муз-отрыв №2 (2016) [MP3|160-320 кб/с] <Pop, Dance>
@@ -718,35 +747,6 @@ VA - Russian Disco Compilation (2017) [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0835749078CEDCF5FBC7E75B26042FC8AF7C5813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132017   (702743) от 08.05.2017
-
-VA - Весна От Зайцев Нет (2017) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702743.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Грибы - Копы (Vincent  Diaz Remix) 4:10
-002. Интонация (In2nation) - Танцуй 4:26
-003. A-Dessa - Всё Ровно 3:22
-004. Lx24 - Кайф (Dj Jan Steen Official Remix)(Radio Edit ) 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00A608B863D2F64BD0559C1410491093DE04147
 ```
 
 https://mybot314.ru/tekegram_catalog/

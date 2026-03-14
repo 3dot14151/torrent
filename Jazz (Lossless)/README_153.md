@@ -1,3 +1,90 @@
+###  Публикация: 1048954   (544970) от 04.09.2016
+
+Iiro Rantala, Lars Danielsson, Peter Erskine - how long is now? (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage     (04:21)
+02. How Long Is Now      (04:02)
+03. Snapchat      (04:13)
+04. Taksim by Night      (04:54)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213CBC2E44506D8B73F552562DA5649DA38C7A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049284   (544926) от 04.09.2016
+
+Teddy Wilson And His Piano - Intimate Listening (1954) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The One I Love [03:01]
+ 02.Darn That Dream [02:18]
+ 03.Tea For Two [03:20]
+ 04.Oh, Lady Be Good [03:02](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Piano JazzПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8DD388311E5FDE4FF1503CB424CF5FA3A29538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049114   (544921) от 04.09.2016
+
+John Scofield - Still Warm (1986) Gramavision[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Techno [07:31]
+ 02.Still Warm [06:03]
+ 03.High and Mighty [05:18]
+ 04.Protocol [03:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3277E3FF2F3D588343AC1C5F250083A60457EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238822   (544661) от 01.08.2018
 
 Michael Dease - Reaching Out (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -663,92 +750,6 @@ Al Foster - Inspirations & Dedications (2019) Smoke Sessions Records [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C50E158FF7AA6B0C3AD86EB8CE157E193985B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311693   (540071) от 30.06.2019
-
-Ellery Eskelin with Andrea Parkins & Jim Black - The Secret Museum (2000) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (6:11)
- 02. You'll Know When You Get There... (5:14)
- 03. Vox Organalis (6:54)
- 04. Paris Swallowtail (5:01)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0EC9C2800224186483962F818854C48EA1298F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925739   (539315) от 07.08.2015
-
-Charlie Mingus - Statement (1969) /2014, Studio Songs/[FLAC|tracks+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orange Was The Colour Of Her Dress [18:07]
-02. The Man Who Never Sleeps [16:31]
-03. O.P. [08:51]Жанр: Jazz, Post-BopПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15B2856629EA9B0AF719C79BC65FAF7DF0B2B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154661   (539283) от 31.07.2017
-
-Dodo Marmarosa Trio - Complete Studio Recordings (1946 - 1962) 2CD, 2004, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539283.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Mellow Mood [03:15]
-02. Dodo's Blues [03:15]
-03. Raindrops [02:50](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 02:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB4D26DED4378D7D3D1F9CF19F74C8DE8C17545
 ```
 
 https://mybot314.ru/tekegram_catalog/

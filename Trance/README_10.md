@@ -1,3 +1,148 @@
+###  Публикация: 1201703   (790977) от 27.01.2018
+
+VA - Trance 100 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790977.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Armin van Buuren feat. Josh Cumbee  -  Sunny Days (PureNRG Remix)  3:11
+002.  W&W, Vini Vici  -  Chakra (Original Mix)  3:23
+003.  Aly & Fila, Ferry Tayle  -  Concorde (Original Mix)  4:19
+004.  Paul van Dyk  -  I Am Alive (Original Mix)  4:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, ProgressiveПродолжительность: 05:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE81B8D567A281AEFA1C5CC1B3EB517C4770483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202133   (790549) от 28.01.2018
+
+VA - Damaged Presents Charged (Mixed by Jordan Suckley & Coming Soon!!!) (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashley Smith - Kick Back (Original Mix)
+02. Bryan Kearney presents Karney - Smiler (Original Mix)
+03. Jordan Suckley & Kutski - Surveillance (2nd Phase Remix)
+04. David Forbes - Panic Room (Original Mix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 05:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C332CAA2B32165FDE53CCE89462DD563D39050B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202506   (789950) от 29.01.2018
+
+VA - Uplift Underground (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gierto - What Dreams May Come (Original Mix)
+02. Bekar-b - Gone To The Sky (Original Mix)
+03. UIAN - You Have To Say (Original Mix)
+04. Natterum - Burning Industrial (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E662381405887B23CCE16D6148E3E5B9B6C34FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202412   (789946) от 29.01.2018
+
+VA - Progressive Trance Selections Vol.02 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mr Nobody  -  More Pressing Matters (Original Mix)  5:36
+02.  Fashion Police  -  The Moment (Original Mix)  7:24
+03.  ARChima  -  Walk With Me (Original Mix)  5:43
+04.  Luis M  -  Interferenz (Floating Machine Remix)  7:23(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F962340BA39335081797FD17D6EB56B5A891146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202619   (789543) от 30.01.2018
+
+VA - Soundport Recordings. The Best Of 2016 (Mixed by Dr Riddle) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  NX-Trance  -  Isn't It (Original Mix)  8:10
+02.  Cj Stereogun  -  The Story Of A Dolphin (Unix SL Remix)  7:20
+03.  Jedmar  -  Two Natures (Original Mix)  7:11
+04.  Max Ivanovsky  -  Igigi (Original Mix)  7:46(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2D1758A18CB665774A908266991FA9DE0BB2AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202745   (789541) от 30.01.2018
 
 VA - Neostatics Sounds Best Of 2017 (2018) [MP3|320 Kbps] <Trance ,House>
@@ -599,151 +744,6 @@ VA - afterlights (2017) [MP3|320 Kbps] <Trance,House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06F4E11D8B034246BC8A32E1F28CC6340FA82C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204396   (784990) от 05.02.2018
-
-VA - United Colours Of Trance Vol.10 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Lemmer - Dive (feat Naemi Joy - Seenay remix)
-02. Jacob Singer - Tiahuanaco Returns
-03. Carter & Funk - Make Some Noise (Vince Tayler remix edit)
-04. Jericho Frequency - Vegas(   Читать дальше...   )Жанр: TranceПродолжительность: 02:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61821A1B325855524EFC295A8E78179DF3693F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204281   (784860) от 05.02.2018
-
-VA - A State Of Trance 850 (The Official Album) (Mixed by Armin van Buuren) (2018) 2CD [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784860.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Armin van Buuren  -  Be In The Moment (A State Of Trance 850 Anthem) (Extended Mix)  6:36
-02.  Purple Haze  -  Choir 1.0 (Extended Mix)  4:43
-03.  Ilan Bluestone feat. Giuseppe de Luca  -  Frozen Ground (Extended Mix)  6:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 03:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1AB2D2CC6F0B3BEB7C8535857724CDABDDFA3D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204639   (784675) от 06.02.2018
-
-VA - Love Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer feat. Roxanne Emery  -  Lullaby (Original Mix)  3:56
-02.  Aelyn  -  Water & Fire (Ruslan Radriges Extended Remix)  5:34
-03.  Frainbreeze feat. Vika  -  Better Day (Extended Mix)  5:47
-04.  LTN  -  Coconut Island (Extended Mix)  6:28(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1968271A92E1E76290E937C9D1D0338EBC8B9795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204803   (784409) от 07.02.2018
-
-VA - Neural Attacks Vol.1 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Antolini & Eddy Rave - Your Soul (Intrance Wom Cut)
-02. Anton Greco - Around The Angels (Wom Cut)
-03. Mazza - In The Sky (Wom Cut)
-04. Rohma - Survive (Wom Cut)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FFC1BB9EDB4950E6222DBCF4533363D6A60C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204725   (784398) от 07.02.2018
-
-VA - Eleven (2018) [MP3|320 Kbps] <Trance,Psytrance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Stranger - Manifestation (Shanti V Deedrah Remix)
-02. Perfect Stranger & Sphera - Done That (Merkaba Remix)
-03. Perfect Stranger - Six Feet Under (Captain Hook Remix)
-04. Perfect Stranger - Easy (Sphera Remix)(   Читать дальше...   )Жанр: Trance,Psytrance,Progressive HouseПродолжительность: 04:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B398A7731E92050E55E5B873927948474DABBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

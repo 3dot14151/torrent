@@ -1,3 +1,61 @@
+###  Публикация: 1727299   (108516) от 02.06.2024
+
+VA - DJ Hits 21 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pato Banton - Baby Come Back
+02. DJ Bobo - Let The Dream Come True (Radio Mix)
+03. Cappella - Move It Up (Radio Edit)
+04. Adastra - Ionnama (Radio Version)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A1F6DFAF693F6F757DA49ECF389A2BEDC04D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727410   (108490) от 02.06.2024
+
+VA - DJ Hits 24 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Nex - Cotton Eye Joe
+02. U 96 - Love Religion
+03. Whigfield - Another Day
+04. Baby D - Let Me Be Your Fantasy(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFDC0A634ADA709E7614AD235D019484601936DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727752   (108457) от 03.06.2024
 
 VA - DJ Hits 28 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
@@ -687,64 +745,6 @@ VA - DJ Hits Vol. 60 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB4564E6FE0EA85FAA3B267BFCAC9AF8FCD5EBA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730961   (107790) от 18.06.2024
-
-VA - DJ Hits Vol. 62 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Long
-02. Beat System - Fresh
-03. Ice MC - Give me the Light
-04. Grandmaster Flash - If U wanna party(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D561445E3C7DC24D02DC0A8481F0357C0E50F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731007   (107780) от 19.06.2024
-
-VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Mercy - Where do you go (club mix)
-02. Justine Earp - Ooo la la la (voodoo club radio 1)
-03. Ally & Jo - The lion sleeps tonight (remix)
-04. Captain Hollywood Project - Love & Pain(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3734184AAC1F04B42E6E5D97B4568B7D2EDB446B
 ```
 
 https://mybot314.ru/tekegram_catalog/

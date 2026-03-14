@@ -1,3 +1,32 @@
+###  Публикация: 1530611   (233240) от 12.02.2022
+
+VA - Lounge Tribute, Vol. 6 (2012) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kheops & the Cats - Someone Like You (5:36)
+02. People of the Sun - Skinny Love (4:12)
+03. Alien on Mars - Paradise (4:28)
+04. Dj Kodi - Feel So Close (4:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF863D6967C321FDA020AAC89972D167410CFA07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530645   (233230) от 12.02.2022
 
 VA - Distant Places Lounge, Vol. 1: Chillout Your Mind (2022) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
@@ -716,35 +745,6 @@ VA - Across the Ocean (Lounge Collection), Vol. 2 (2020) [AAC|~320 Kbps] <Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:976D1ED152AF9B8129FFFA20FF7267F8B76C3BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541116   (232607) от 03.04.2022
-
-Alice Francis - Electric Shock (2017) [AAC|~282 Kbps] <Neo Charleston>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Is Trix (Intro) (0:55)
-02. Too Damn Hot (3:36)
-03. Getting Cross (2:58)
-04. Beatptized (Aclapella) (3:42)(   Читать дальше...   )Жанр: Neo CharlestonПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A0708C958680E5D374279DA1A1A3B6CC6685D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

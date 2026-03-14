@@ -1,3 +1,32 @@
+###  Публикация: 1451938   (1027666) от 06.03.2021
+
+Noora Louhimo Experience - Eternal Wheel Of Time And Space (2021) [MP3|320 Kbps] <Hard Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Wheel Of Time And Space (06:44)
+ 02. Valkyrie (04:22)
+ 03. All These Yesterdays (04:09)
+ 04. Piece Of Your Love (04:18)(   Читать дальше...   )Жанр: Hard Rock, BluesПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795C5713330A85F789063B7B928CCE87FC9C6FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452809   (1027384) от 08.03.2021
 
 Laos - We Want It (1990) [MP3|320 Kbps] <Melodic Hard Rock>
@@ -721,41 +750,6 @@ CD2-01:15:16
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A40CA892BEC9D3AEF3ACC0C248DF2E0568708CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599447   (999336) от 06.01.2013
-
-Airbourne - Runnin' Wild (2007) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stand Up For Rock 'N' Roll
-02. Runnin' Wild
-03. Too Much, Too Young, Too Fast
-04. Diamond In My Rough
-05. Fat City
-06. Blackjack
-07. What's Eatin' You
-08. Girls In Black
-09. Cheap Wine & Cheaper Women
-10. Heartbreaker(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2FFB0CAD5D6E41DF5114503CF63CE442C1272B
 ```
 
 https://mybot314.ru/tekegram_catalog/

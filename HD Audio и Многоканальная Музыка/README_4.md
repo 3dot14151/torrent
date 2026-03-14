@@ -1,3 +1,119 @@
+###  Публикация: 1208528   (1034040) от 11.03.2023
+
+VA - Italian Pop Music (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claudio Baglioni - Un Giorno nuovo
+02. Lucio Battisti - E Penso A Te
+03. Edoardo Bennato - L'isola Che Non C'e
+04. Lucio Battisti - Ancora Tu(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E36B68997E1A4D1E01BD7C2942A9A48E1A0B23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618699   (1033680) от 13.03.2023
+
+Wisdom - Studio Albums (5 releases) (2004-2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wisdom — венгерская пауэр-метал-группа из Будапешта.2004 - Wisdom (EP)
+2006 - Words Of Wisdom
+2011 - Judas
+2013 - Marching for Liberty(   Читать дальше...   )Жанр: Power MetalПродолжительность: 03:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6438FAD4E4516FEF1C2A0B2E0FA85EBFEECAB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446400   (1032997) от 08.02.2021
+
+VA - I Can't Complain But Sometimes I Do EP (2021) Regelbau [FLAC 2.0|44.1/24|tracks|Vinyl] <Deep House, Downtempo>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SPCE - Lightness (06:02)
+ 02. Maizena - The Future (05:55)
+ 03. Mandee & Central - If I Feel Like It (06:28)
+ 04. Hi Mount - U N Me (04:47)Жанр: Deep House, DowntempoПродолжительность: 00:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59D09A006049E5D5774A47C49853CC0D07A7951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619367   (1032970) от 16.03.2023
+
+MaYaN - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032970.jpg" />
+</div>
+
+
+###  Подробнее
+
+MaYaN — нидерландская симфоник-дэт-метал-группа, образованная в 2011 году лидером группы "Epica" вокалистом Марком Янсеном, клавишником Яком Дриссеном и гитаристом Франком Схипхорстом. Название группы было выбрано Марком из-за его заинтересованности в культуре майя..
+2011 - Quarterpast
+2014 - Antagonise
+2018 - DhyanaЖанр: Symphonic Death MetalПродолжительность: 03:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118C5DB1E4923A9775AE82F07134C253BDD4BADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620890   (1031642) от 22.03.2023
 
 Donny Osmond - Донни Осмонд (1976) Лицензия фирмы Polydor International GmbH (ФРГ) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
@@ -627,122 +743,6 @@ B1 Oxygene (Part 17)(   Читать дальше...   )Жанр: ElectronicПр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:465CCBC0CF458A6A011CEA5FC3FB0CCA22D1F5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482784   (1007305) от 10.07.2021
-
-Rudolf Dasek - Dialogues (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Free Jazz, Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007305.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Enchanted Mill
-A2 If You Wish
-A3 Return
-A4 He's Coming(   Читать дальше...   )Жанр: Free Jazz, Contemporary JazzПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A8860950B8B00202F9E8DCB7B0A1BF801CC830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484067   (1006084) от 19.07.2021
-
-London Symphony Orchestra, Valery Gergiev - Рахманинов, Стравинский - Symphonic Dances & Symphony in three movements (2012) LSO Live [DSD 2.0/5.1 1bit/2822,4kHz |SACD-R] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rachmaninov: Symphonic Dances 36:18
-01. i. Non allegro 12:55
-02. ii. Andante con moto (Tempo di valse) 9:34
-03. iii. Lento assai – Allegro vivace – Lento assai. Come prima – Allegro vivace 13:49Жанр: ClassicalФормат: DST64Продолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95B8F60C9ED9856554A025B1FB0C28FF5AF5937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486001   (1005065) от 28.07.2021
-
-Fleetwood Mac – Rumours (1977) 2011 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Hand News (2:46)
-02. Dreams (4:18)
-03. Never Going Back Again (2:04)
-04. Don't Stop (3:13)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62870034883B1FB434C0A8758A3DDCB96D889423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350156   (1003685) от 04.01.2020
-
-Ray Conniff - The Happy Sound Of Ray Conniff & Love Story (2019) 1974, 1971 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003685.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Happy Sound Of Ray Conniff (1974)
-
-01. I'll Be With You In Apple Blossom Time
-02. You Made Me Love You (I Didn't Want To Do It)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC8F321262E4702BDB4E58280921155B8EF7C54
 ```
 
 https://mybot314.ru/tekegram_catalog/

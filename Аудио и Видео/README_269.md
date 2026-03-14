@@ -1,3 +1,32 @@
+###  Публикация: 1519415   (147344) от 25.12.2021
+
+VA - The Purr Best Of Winter 2021 (2021) [AAC|~335 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beije - Searching (7:36)
+02. Distic - Totem Bird (6:59)
+03. Jelly For The Babies, Mariner + Domingo - Two of Us (7:25)
+04. Discognition - Montezuma (7:32)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BABFC80809C12A918E4D2A325DCB2A21C168B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519402   (147334) от 25.12.2021
 
 VA - Music That Moves You 2022 (2021) [AAC|~317 Kbps] <House, Dance>
@@ -674,35 +703,6 @@ VA - Nye Recovery Session 2021 (2021) [AAC|~303 Kbps] <Lounge, Chill Out, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62D5379FF1EC635CB84CC5F9AA478494D046528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519773   (145877) от 26.12.2021
-
-VA - Glasgow Underground 2021 (2021) [AAC|~331 Kbps] <Deep House, Tech House, Funky House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kevin McKay, Wayne Hernandez - Hit The Road Jack (2:36)
-02. Westend - Get This Party Started (2:40)
-03. Roog - Move On Up (3:38)
-04. Dillon Nathaniel, Kevin McKay - Jump Around (2:29)(   Читать дальше...   )Жанр: House, Deep House, Tech House, Funky HouseПродолжительность: 02:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AAD88BEAF434C5E9D515A6C534B2F77B04235A
 ```
 
 https://mybot314.ru/tekegram_catalog/

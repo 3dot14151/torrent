@@ -1,3 +1,61 @@
+###  Публикация: 1456979   (1024784) от 24.03.2021
+
+Othman Wahabi - The Blues Whisperer (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babylon's Falling (4:24)
+02. Fattening Frogs for Snakes (4:43)
+03. Taking the Blues Back Home (5:16)
+04. The Blues Whisperer (4:14)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4F38AD3E19D8BC14A0DCE08794B86D5F0B4044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456974   (1024781) от 24.03.2021
+
+Oscar LaDell - Love & Revolution (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Those Who Are Lost) (1:31)
+02. Change the World (Pt. 1) (3:18)
+03. Change the World (Pt. 2) (1:25)
+04. Moonlight (3:32)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38CF54EC0D07019C61174F027ED93621884A80F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456973   (1024778) от 24.03.2021
 
 Oernes (Øernes) Blues Band - I Need You Tonight (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -687,64 +745,6 @@ Martine - Martine (2020) [FLAC|Lossless|image + .cue] <Jazz-Rock, Progressive Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF1AB4B894C3684DED0DF56B4FB7ED15E4B3473A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460724   (1022404) от 06.04.2021
-
-Louis Mezzasoma - Mercenary (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kick Some Ass (2:47)
-02. Mercenary (4:34)
-03. Flat Land (4:13)
-04. Who U R (6:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41F35A2510AAB35E242A01D21979E1F12819BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460722   (1022400) от 06.04.2021
-
-Little Bob Blues Bastards - We Need Hope (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Need Hope (3:03)
-02. I Was a Kid (2:13)
-03. Ready to Fly (3:44)
-04. Long Legs (2:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8FAA575D9F5AF416351E88AC8DA353E3B0CED0
 ```
 
 https://mybot314.ru/tekegram_catalog/

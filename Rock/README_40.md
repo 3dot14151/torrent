@@ -1,3 +1,61 @@
+###  Публикация: 912201   (612519) от 25.06.2015
+
+Frank Zappa - Dance Me This (2015) [MP3|320 кб/с]<Progressive Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Me This 2:02
+02. Pachuco Gavotte 3:27
+03. Wolf Harbor 8:02
+04. Wolf Harbor II 6:53(   Читать дальше...   )Жанр: Progressive Rock, ExperimentalПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7902FE3D5FF5EE737FDE85E78C169838050A6688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037543   (612028) от 25.07.2016
+
+Herman's Hermits - The Best Of Herman's Hermits (2015) [MP3|320 Kbps] <Rock, Beat, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Last Night (Feb 1964 Demo)
+02. I'm Into Something Good
+03. Mrs. Brown You've Got A Lovely Daughter
+04. Kansas City Loving(   Читать дальше...   )Жанр: Rock, Beat, PopПродолжительность: 02:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5213F1853547ADB2E08A2C938854EBBCD44E0F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912090   (610886) от 26.06.2015
 
 Sanguine Hum - 3 альбома (2012-2015) [MP3|320 кб/с]<Neo-Prog>
@@ -687,64 +745,6 @@ VA - Ramble On (2017) [MP3|320 Kbps] <Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C62D7A88824DDF3DA8C8991FDE8E98D07D4E1C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149311   (601159) от 10.07.2017
-
-Haley & Alexis - All In (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbeat (03:22)
-02. Kisses Never Lie (03:33)
-03. Firestorm (03:08)
-04. Bruises Fade (03:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5343310B47F2F7BE557C87C4D9DE45F87E7ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547563   (600958) от 01.05.2022
-
-Unitopia - More Than A Dream – The Dream Complete (3CD) (2017) [MP3|320 Kbps] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Outsider (Originally Released on The Stories of H. P. Lovecraft) [00:11:51]
-02. Decameron Date 6 Tale 9 (Originally Released on Decameron - 10 Days in 100 No... [00:20:05]
-03. Haunted Storm (Previously Unreleased) [00:06:41]
-04. Ride (Dance mix) [00:05:43](   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 3 CD, 03:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666F89EF2D0CE21FCCCD94347766AF3B4A37CA4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 825477   (460027) от 27.09.2014
+
+Pond5 - Slide Corporate Presentation - 40832114 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для вашей видеопрезентации.
+Превью, файл помощи - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C7A945F984EE285A0FE2C9C0E68FD71D0B0DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 703939   (459972) от 25.09.2013
 
 VideoHive - Fashion Models Presentation - 4448857 [AEP]
@@ -649,32 +676,6 @@ Movie Awards Bundle - это профессионально разработан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:060C3DE5ADB5D7204F1F81B159B66AF42FC9713B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322939   (441818) от 01.09.2019
-
-Motion Array - Corporate Slidehow - 281744 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классически анимированный шаблон After Effects с простой текстовой анимацией и переходами... Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D18A3E3440F2BCABAF4F04BFC7FA8479C924C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

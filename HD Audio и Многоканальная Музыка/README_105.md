@@ -1,3 +1,148 @@
+###  Публикация: 1706039   (113689) от 11.03.2024
+
+Pantheist - Kings Must Die (2024) [FLAC 24/48; 24/44.1|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kings Must Die (featuring Jake Harding) (14:45)
+02. 1000 Years (Performed at Organic Doom Vol I) (2:51)
+03. O Solitude (Performed at Organic Doom Vol I) (9:53)
+04. Strange Times (Performed at Organic Doom Vol I) (22:04)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357406A46852C24899B1B7E94D988713B6F86429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706254   (113687) от 12.03.2024
+
+The Wicked Lo-Down - Out Of Line (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kill Me Or Keep Me (2:35)
+02. Marchin' On (4:07)
+03. Bogeyman (3:52)
+04. Out Of Line (3:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E549FAEB46D1DC8332811484C57BD052AEB656BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706054   (113674) от 12.03.2024
+
+ВИА «Синяя птица» - Подземный переход (1986) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Подземный переход. (В. Шаинский - С. Алиханов, А. Жигарев)
+02 - Когда-нибудь. (М. Минков - А. Макаревич)
+03 - Здравствуй, как ты живешь? (Т. Ефимов - С. Осиашвили)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7D25F78F67B5744FF1B35E8441ABFB0A9706BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706245   (113672) от 12.03.2024
+
+Bex Marshall - Fortuna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preaching To The Choir (3:40)
+02. Dirty Water (5:27)
+03. I Can't Look You In The Eye (Remastered) (3:22)
+04. 5 AM (4:27)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:326F63D12EEE69619B9F091214315149A5053F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706322   (113670) от 12.03.2024
+
+VA - Игра в четыре руки. Песни Аркадия Укупника (1989) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01-Эй, гражданка (В. Гин) – Ирина Понаровская
+02-Пустынный берег (В. Дюнин) – Аркадий Укупник
+03-Ошибка (И. Шаферан) – Алина Витебская(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57324459DB32E1B7E0B60D2FAE394596B7F6D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706045   (113669) от 12.03.2024
 
 The Rolling Stones - Let It Bleed (Пусть льется кровь) (1969) 1992 [FLAC 24/192|Lossless|tracks] <Rock, Blues Rock>
@@ -600,151 +745,6 @@ VA - Музыкальный телетайп 3 (1988) [FLAC 24/192|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:612496321138E34F83DE0AE2697AE70E6D990E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706805   (113488) от 14.03.2024
-
-ВИА "Экспресс" (Венгрия) - Серебрянный "Экспресс" (1979) [FLAC 24/96|Lossless|tracks] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01 - Уже четыре часа (М. Малек — Т. Шоймош);
-02 - Губная гармоника (А. Шие — Ф. Кондьел);
-03 - Мечта (П. Калмус — Т. Шоймош);(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B11C51DAD9F45DE3786709B13545783C2345EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706985   (113485) от 14.03.2024
-
-Ronnie Romero - Too Many Lies, Too Many Masters (Deluxe Edition) (2024) [FLAC 24/44.1; 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castaway on the Moon (3:37)
-02. Mountain of Light (3:44)
-03. I've Been Losing You (4:54)
-04. Too Many Lies, Too Many Masters (4:55)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FF036A33F75547D3C0F880BC92229AA32F309A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706966   (113482) от 14.03.2024
-
-Whom Gods Destroy - Insanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113482.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как Билли Шихан вернулся в тур с Mr. Big, а Майк Портной вернулся в Dream Theater, Дерек Шеринян и Рон «Бамблфут» Тал из прогрессивной супергруппы Sons of Apollo обнаружили, что им нужен новый выход для своих музыкальных творений. К счастью для них, они работали над новой музыкой с певцом Дино Йелусиком с 2020 года. Вместе с басистом Ясом Номурой и барабанщиком (   Читать дальше...   )01. In the Name of War (6:39)
-02. Over Again (5:02)
-03. The Decision (7:08)
-04. Crawl (6:36)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24F074E95D73F32B8C57FE14A3DE46E52AE49CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706799   (113477) от 14.03.2024
-
-VA - Перекати-поле. Песни на стихи Лидии Козловой (1990) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01 - Перекати-поле (А. Лунев)
-Надежда Чепрага
-02 - Не повторяй (А. Кальварский)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0084FDC69A0D983069AB6C45967536D1B1CFA753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706709   (113471) от 14.03.2024
-
-Darkthrone - Under a Funeral Moon (1993) Reissue, 2010, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113471.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Natassja In Eternal Sleep
-A2 Summer Of The Diabolical Holocaust
-A3 The Dance Of Eternal Shadows
-A4 Unholy Black Metal(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8043BDA0ABD65552E7AB1DB668F9A3830EA30A
 ```
 
 https://mybot314.ru/tekegram_catalog/

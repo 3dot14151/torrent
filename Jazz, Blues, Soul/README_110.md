@@ -1,3 +1,175 @@
+###  Публикация: 1382151   (822768) от 09.05.2020
+
+Yojo - The Stepson (2020) [FLAC|Lossless|Web-DL|tracks] <Post Dark Jazz, Post Rock, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Pill (4:43)
+02. Zeroin (7:58)
+03. Firefighters Are Sleeping (6:41)
+04. Dream Drome (9:48)(   Читать дальше...   )Жанр: Post Dark Jazz, Post Rock, InstrumentalПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A99CDAF7622CFF2C164A08746A5F31C52FE750F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116636   (822749) от 20.03.2017
+
+VA - All That Jazz Is Back (1999) Original Jazz Classics [FLAC|Lossless|image + .cue] <Swing, Bop, Cool, Hard Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cannonball Adderley - Things Are Getting Better [07:15]
+02. Chet Baker - How High The Moon [03:38]
+03. Count Basie - Jumpin' At The Woodside [04:34]
+04. Eddie "Lockjaw" Davis - Afro-Jaws [07:39](   Читать дальше...   )Жанр: Swing, Bop, Cool, Hard Bop, Vocal JazzПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDD65BB83EB21BC658B2792186D4828B1A3534E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382156   (822662) от 09.05.2020
+
+Low Kick Collective - Exhale (Выдох) (2019) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Halo / Гало (5:59)
+02. Carriage / Экипаж (4:39)
+03. Rhinoceros / Носорог (6:20)
+04. One who seeks an exit / Тот кто ищет выход (7:57)(   Читать дальше...   )Жанр: Dark Jazz, ExperimentalПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8A46E5AF0FA0D6707E28D399F3798E341B75C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196553   (822561) от 03.01.2018
+
+Billy Harper - Trying to Make Heaven My Home (1979) 1991, MPS Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trying To Make Heaven My Home [18:03]
+02. Insight [08:34]
+03. Love On The Sudan [11:51]Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48CBB140ECC22FB8C462F3A8574710F2E87103E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196558   (822559) от 03.01.2018
+
+Billy Harper - The Awakening (1979) 2013, Marge [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Awakening [08:01]
+02. Soran Bushi-B.H. [12:45]
+03. Cry of Hunger [20:15]Жанр: Post-Bop, Hard BopПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A437839871CEAA8D91DFB3693A23E9DC4930F019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196457   (822557) от 03.01.2018
+
+Harold Ashby Quartet - What Am I Here For? (1990) 1992, Criss Cross Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Get Started [05:32]
+02. What Am I Here For? [07:36]
+03. Mood Indigo [05:09]
+04. Frankie And Johnny [07:42](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:137F8CA84B78CBC0251243A8B168C3F5292FCB5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196550   (822556) от 03.01.2018
 
 Billy Harper Quintet - Love On The Sudan (1977) 2009, Denon Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -570,180 +742,6 @@ VA - Chill Jazz Covers (2017) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:538E49121B29C3E23DFFEFB83F6BDAF2D707A511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382212   (821033) от 10.05.2020
-
-Mark Murphy - Memories of You: Remembering Joe Williams (2003) HighNote [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Comeback [5:22]
-02. In the Evenin' [6:38]
-03. Everyday [5:03]
-04. Memories of You [5:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6375E88A69DFE9D9DF8FBBEF07BA3BB7BE88C099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530844   (820812) от 18.10.2021
-
-Нино Катамадзе & Insight - Дискография (2003-2011) 7 Альбомов [MP3|320 кб/с]<World Music, Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нино Катамадзе - одна из значимых фигур в жанре, определяемом как world-music. Как известно, к этому направлению принято относить исполнителей, чье творчество не укладывается в рамки стилевой сетки, но несет в себе национальные элементы страны, родом из которой музыканты. Нино оттуда, где песни не просто поют, ими живут.01. I Came :: 04:44
-02. I Will Come as a Snow :: 05:19
-03. Uto :: 04:27
-04. Lip :: 04:35(   Читать дальше...   )Жанр: World Music, Jazz, LoungeПродолжительность: 05:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9468120CB344F5B8C1B509FA9CC00377FCC4C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196739   (820748) от 04.01.2018
-
-Yusef Lateef - The Doctor Is In ...and Out (1976) 2002, Collectables [WavPack|Lossless|image + .cue] <Post-Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Improvisers [07:56]
-02. Hellbound [06:39]
-03. Mystique [07:43]
-04. Mississippi Mud [02:54](   Читать дальше...   )Жанр: Post-Bop, World FusionПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90AF56F687967E1598EE7E3F7478ED5B73039EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196793   (820744) от 04.01.2018
-
-Darryl Williams - Here To Stay (2017) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here To Stay (4:33)
- 02. Now Or Never (4:41)
- 03. Do You Remember (4:17)
- 04. Reflections (5:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE34E49A14E1B362B2486F308AC33ED2A08D905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007851   (819905) от 16.04.2016
-
-Earl ''Fatha'' Hines - Here Comes (1966) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Save It Pretty Mama [03:25]
- 02.Bye Bye Baby [03:47]
- 03.Smoke Rings [02:55]
- 04.Shoe Shine Boy [04:09](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 00:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2EC824379AED02EF25C5B3713F7AE282F38760E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007993   (819897) от 16.04.2016
-
-Dorothy Donegan - Live At The Widder Bar (1986) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lover [05:10]
- 02.Tea For Two - Honeysuckle Rose [07:43]
- 03.Autumn In New York - I Can't Get Started - On Green Dolphin Street [10:19]
- 04.Makin' Whoope - Warsaw Concerto - Darn That Dream - All Blue - Sweet Lorraine [12:43](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Piano JazzПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31049ED0E877AC2D7B9CE8F0C6204223C2B5AC5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

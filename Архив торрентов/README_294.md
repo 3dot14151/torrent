@@ -1,3 +1,35 @@
+###  Публикация: 606097   (995664) от 20.01.2013
+
+[Wallpapers] The magnificent collection of wallpaper №8 [1140 шт.]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995664.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] The magnificent collection of wallpaper №8Название: The magnificent collection of wallpaper №8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х720 - 6500х4000
+Количество: 1140 шт.
+Расширение (тип) файлов: jpgСкриншоты:
+  
+ Время раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4718871CDD57C8E5EC474FF86E15124AC4678CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606135   (995659) от 20.01.2013
 
 Nature Wallpapers (3/2013) [Wallpapers]
@@ -692,32 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:056A28068209E2E37B33057131B4435FEF6CA3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605822   (995588) от 20.01.2013
-
-[Wallpapers] Wallpapers Fantasy №19(Pavel)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола 50 шт
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C27539798870A0BE2989E26F9F63AF64F6FAD16
 ```
 
 https://mybot314.ru/tekegram_catalog/

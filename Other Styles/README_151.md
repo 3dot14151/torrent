@@ -1,3 +1,146 @@
+###  Публикация: 966406   (217776) от 18.12.2015
+
+John Williams - Звёздные войны: Пробуждение силы  / Star Wars: The Force Awakens (Original Motion Picture Soundtrack) (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title and the Attack on the Jakku Village (06:26)
+02. The Scavenger (03:40)
+03. I Can Fly Anything (03:11)
+04. Rey Meets BB-8 (01:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86AB016E7670B3D19FE9159B4F2F01836D2CAF4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587265   (217768) от 12.12.2012
+
+Dr. Jeffrey Thompson - 2 albums (1995, 2001) [MP3|320 кб/с]<Ambient, Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217768.jpg" />
+</div>
+
+
+###  Подробнее
+
+(34:06) 1. Hidden Beauty
+(35:20) 2. Kiss Good NightЖанр: Ambient, Relax, HealingПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC52E2BF5D87EACB5D5392AD05C9C9F57B15ADF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966419   (217736) от 18.12.2015
+
+John Williams - Звёздные войны: Пробуждение силы / Star Wars: The Force Awakens (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title and the Attack on the Jakku Village (06:26)
+02. The Scavenger (03:40)
+03. I Can Fly Anything (03:11)
+04. Rey Meets BB-8 (01:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C331E234D0E7C22C1009578E8C26F5837522DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514466   (217439) от 03.12.2021
+
+Музыкальные композиции Александра Морозова в исполнении Гасана Багирова - Мелодии для души (2007) [FLAC|Lossless|tracks + .cue]<Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Горница
+02. Душа болит
+03. Малиновый звон
+04. Остановите землю(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3133FBC00FBEFF99E7C13E983E42D3AF9C4B613E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084832   (216991) от 20.12.2016
+
+Frank Squillante - Take Me There (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Take Me There [00:04:29]
+02 -  American Image [00:03:05]
+03 -  I Was Told Otherwise [00:02:34]
+04 -  If You Think of It [00:02:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FB564614F31D253E0DF982138A7EAD13CA2050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084941   (216795) от 20.12.2016
 
 Amy Lynne Johnson - Piano Poetry, Vol. 2: Music to Calm the Mind and Lift the Heart (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
@@ -604,149 +747,6 @@ Buvana - Songs of Light: Bhajans & Mantras (2007) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B07023341DC1D5FE05F4A06D54C79FEF0AD9EE57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639850   (211303) от 17.06.2023
-
-Armik - Guitar Seduction (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Flamenco, Acoustic guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guitar Seduction (4:19)
-02. Restless (4:23)
-03. Last Night (4:23)
-04. Madly In Love (4:37)(   Читать дальше...   )Жанр: Instrumental, New Flamenco, Acoustic guitarПродолжительность: 00:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3189CF9F6F7A3D259429EE645C1E21F53A4716E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641449   (210886) от 22.06.2023
-
-Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (7:20)
- 02. Calmness (6:24)
- 03. Transformation (8:13)
- 04. Drifting (13:49)(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D091C13A1D1150C61BDED10D5B22895DAB5877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661040   (210447) от 14.08.2022
-
-VA - Mortal Kombat Annihilation: OST (1997) [FLAC|Lossless|tracks + .cue] <Soundtrack, Techno, Progressive Trance>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Immortals - Theme From Mortal Kombat (Encounter the Ultimate) (03:19)
-02. Scooter - Fire (03:14)
-03. KMFDM - Megalomaniac (04:19)
-04. Megadeth - Almost Honest (04:01)(   Читать дальше...   )Жанр: Soundtrack, Techno, Progressive TranceПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFC0420E7E0DAC5B70D8988111DC27D6D9AB93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604927   (209877) от 16.01.2023
-
-ДиДюЛя - Live with String Quartet (2022) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend (3:00)
-02. Waterfall (4:11)
-03. Arabica (6:00)
-04. Butterflies (4:24)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC47664D9202007386D264C87ED186C0B0410E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644407   (209763) от 05.07.2023
-
-ДиДюЛя - Складук (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamenco, World>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Складук
-02. ПляжЖанр: Instrumental, Flamenco, WorldПродолжительность: 00:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E81D03FA7AE9ACF158AF58A1322D1E769E52F37
 ```
 
 https://mybot314.ru/tekegram_catalog/

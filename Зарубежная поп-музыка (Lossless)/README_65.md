@@ -1,3 +1,148 @@
+###  Публикация: 960832   (304812) от 29.11.2015
+
+Mylene Farmer - The Best Of (2007) [FLAC|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Mots (04:52)
+ 02. Fuck Them All (04:39)
+ 03. Sans Contrefacon (04:20)
+ 04. Xxl (04:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFF995EFF3CB20A032D17A96FA56C0554BEFD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078112   (304633) от 29.11.2016
+
+VA - Hits of the 80s, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graham Blvd - Dancing in the Dark [3:46]
+02. Knightsbridge - Pour Some Sugar On Me [4:26]
+03. Ellis Wright - You Drive Me Crazy [2:40]
+04. Chateau Pop - Take On Me [3:46](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAB0907AEC40AB50E274C80A43A3CC2434FA00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078091   (304630) от 29.11.2016
+
+VA - Hits Of The 80s, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graham Blvd - Everywhere [3:18]
+02. Fresh Beat MCs - Rapper's Delight [3:57]
+03. The Overseers - Boys (Summertime Love) [3:09]
+04. Silver Disco Explosion - Fame [3:54](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0206334E83C5AED66D16A0658DE297390501407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584867   (304525) от 05.12.2012
+
+Mylene Farmer - Monkey Me (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]<Pop>
+
+>>След.
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  - Elle A Dit [03:52]
+ 02.  - A l'ombre [04:50]
+ 03.  - Monkey Me [04:13]
+ 04.  - Tu ne le dis pas [04:22](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D9C0851B15F7FC7FCE3E51A140F7E9E8C37097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423021   (304027) от 11.11.2020
+
+VA - Greatest Hits Instrumental (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Starlite Orchestra - American Pie (4:26)
+02. The Starlite Singers - Big Spender (2:46)
+03. Chateau Pop - O l'amour (3:02)
+04. The New Merseysiders - Ob-La-Di, Ob-La-Da (2:03)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 02:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D811B80C5CF2EB27AE1F151CCF03796BBFDDB4F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183758   (303522) от 16.11.2017
 
 Fitness Forever - Tonight (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, Disco>
@@ -598,153 +743,6 @@ VA - Instrumental Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5357F9D32360F6C7C65D4C585E8F03C8C4C9364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 732149   (295533) от 08.12.2013
-
-Air Supply - Greatest Hits (1984) [FLAC|Lossless]<Pop, Rock, Soft-Rock, Adult Contemporary>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сложись чуть удачливее их судьба и мы название этой группы также отождествляли бы с Автралией, как и Bee Gees.
-А ведь с их в большой степени сладкими балладами австралийская  группа софт-рока Air Supply была главным лидером радио-топов на границе 70-х и 80-х, выигрывая семь раз Top Five singles.
-Air Supply была дуэтом вокалистов Рассела Хичкока и Грэма Рассела, другие (   Читать дальше...   )01. Lost In Love (3:54)
-02. Even The Nights Are Better (3:59)
-03. The One That You Love (4:19)
-04. Every Woman In The World (3:30)(   Читать дальше...   )Жанр: Pop, Rock, Soft-Rock, Adult ContemporaryПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590D39BED924461518F91AF852E87DDF0F806FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424093   (295442) от 15.11.2020
-
-VA - 100 Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cardi B, Megan Thee Stallion - Wap (Feat. Megan Thee Stallion) 3:08
-02. Dua Lipa - Don't Start Now 3:03
-03. Joel Corry - Lonely 3:11
-04. Jason Derulo - Take You Dancing 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3FB4E2737ED9DAC70C82202BFD7968E0072D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962374   (295048) от 04.12.2015
-
-Gloria Estefan - Greatest Hits Vol. II (2001) [FLAC|tracks+.cue]<Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn The Beat Around (Classic Mix) (3:52)
-02. Everlasting Love (Video Version) (4:01)
-03. Reach (3:51)
-04. If We Were Lovers (4:38)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B8C57B071A5BEEC485BB7C62AA0A2EF4709E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962007   (295035) от 04.12.2015
-
-Tom Jones - The Best Of... Tom Jones (1997) [FLAC|tracks+.cue]<Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Not Unusual (2:01)
-02. Chills and Fever (2:52)
-03. Green, Green Grass of Home (3:05)
-04. What's New Pussycat? (2:05)(   Читать дальше...   )Жанр: VocalПродолжительность: 01:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A3F6F9EF8C121C7B3777F568EAE3141634D24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185225   (294916) от 20.11.2017
-
-Eros Ramazzotti - Eros Duets (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eros Ramazzotti Duet With Tina Turner – Cosas De La Vida (Can't Stop Thinking Of You)
-02. Eros Ramazzotti & Nicole Scherzinger – Hasta El Extasis
-03. Giorgia feat. Eros Ramazzotti – Inevitabile
-04. Eros Ramazzotti & Anastacia – I Belong To You (El Ritmo De La Pasion)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579494ADC9AF5E57380B2810231F3C6EB918C884
 ```
 
 https://mybot314.ru/tekegram_catalog/

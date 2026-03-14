@@ -1,3 +1,119 @@
+###  Публикация: 1592781   (182296) от 24.11.2022
+
+Alter Bridge (Creed, Tremonti) - Studio Albums (7 releases) (2004 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Post-Grunge, Heavy/Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alter Bridge — американская рок-группа из Орландо, штат Флорида. Группа была создана в 2004 году бывшими участниками группы Creed (которая распалась за год до того из-за внутренних творческих разногласий) вокалистом и гитаристом Майлзом Кеннеди, ведущим гитаристом Марком Тремонти, басистом Брайаном Маршаллом и барабанщиком Скоттом Филлипсом.2004 - One Day Remains
+2007 - Blackbird
+2010 - AB III.5
+2013 - Fortress(   Читать дальше...   )Жанр: Post-Grunge, Heavy/Progressive MetalПродолжительность: 07:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D246219CCD7C28187966639CE45A61F82177B0DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665572   (181613) от 01.10.2023
+
+October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181613.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Quiet Shores
+A2 Usher
+A3 Tuoni
+A4 Harvest(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286D147BF5175D13BBB35059C4C2EEA5C0C1B24C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665649   (181262) от 01.10.2023
+
+Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI Records Ltd. [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181262.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Вернись К Тому, Кого Любишь • Lay Back In The Arms Of Someone
+A2 Мне Грустно От Чего-то • Something's Been Making Me Blue
+A3 Если Ты Думаешь, Что Любишь Меня • If You Think You Know How To Love Me
+A4 Передай По Кругу • Pass It Around(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0718BE65DF1F601E27263ED05CC94FAF316A20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665746   (180956) от 02.10.2023
+
+October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric Black Metal, Neofolk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180956.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Marras I
+A2 Marras II
+A3 Marras III
+A4 Marras IV(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:866859237EE73B837E31A8575A50C5D43C9EC52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665727   (180860) от 02.10.2023
 
 Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
@@ -629,122 +745,6 @@ Pretty Maids — датская рок-группа, основанная в 198
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319188   (177798) от 06.10.2023
-
-Игорь Тальков - Навсегда (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнце уходит на Запад
-02. Война
-03. Стоп! Думаю себе
-04. Россия(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA055BF15DF1DD31930B4F60AD90124BCF337410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667196   (177613) от 07.10.2023
-
-Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177613.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Nth
-A2 - Esp Ion Age
-A3 - Husk
-A4 - Phreqs(   Читать дальше...   )Жанр: Experimental Death MetalПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415153   (177080) от 02.12.2022
-
-Strawbs - Ghosts (1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177080.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1a Sweet Dreams (Ghosts)
-A1b Night Light (Ghosts)
-A1c Guardian Angel (Ghosts)
-A2 Lemon Pie(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E3B0F168FE5E6E8835206CDAC244C27EA38642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667431   (177006) от 08.10.2023
-
-Kate Smith - Today (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177006.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Somewhere, My Love
-A2 Yesterday
-A3 My Best Beau (My Best Girl)
-A4 Daydream(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2A6BDD35F966321D66D3B0DC8487AD783665D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

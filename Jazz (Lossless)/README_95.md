@@ -1,3 +1,90 @@
+###  Публикация: 1399627   (732970) от 01.08.2020
+
+Kenny Barron & Mark Sherman - Interplay (2015) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afternoon in Paris [6:12]
+02. Venture Within [7:43]
+03. Dear Old Stockholm [4:53]
+04. Darn That Dream [7:37](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8789552E2030C18C50204C04D82AC14611CD534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399630   (732969) от 01.08.2020
+
+John Lewis & The American Jazz Orchestra - Ellington Masterpieces (1989) EastWest [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sepia Panorama [3:43]
+02. Johnny Come Lately [3:29]
+03. All Too Soon [4:07]
+04. Ko-Ko [2:48](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B1825C4CC8FD9B70610036B1B4E3A8D3E93892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789521   (732809) от 25.05.2014
+
+Lizz Wright - Fellowship (2010) [FLAC|Lossless]<Vocal Jazz, Gospel>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fellowship
+02. (I've Got to Use My) Imagination
+03. I Remember, I Believe
+04. God Specializes(   Читать дальше...   )Жанр: Vocal Jazz, GospelПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D29435334A7BC307160E98E0EB9E7283739BA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529369   (732734) от 06.02.2022
 
 VA - Male Jazz Singers: Milestones Of Jazz Legends (1952 - 1962) 10CD, 2017, The Intense Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -658,93 +745,6 @@ Walter Bishop, Jr. - Old Folks (1977) 2003, Mercury Music [APE|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E5DB0529A436875B2ABC36393FC158A1B3999A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127980   (730104) от 23.04.2017
-
-The Fabulous Dizzy Gillespie - Pleyel Jazz Concert 1948 (2016) Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Round About Midnight [08:46]
-02. Algo Bueno (Woody'n You) [03:18]
-03. I Can't Get Started [03:48]
-04. Ool-Ya-Koo [05:11](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E996E683203E73DD02068F1B5A3B382C5AD29C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127991   (730101) от 23.04.2017
-
-The Duke Edward Kennedy Ellington - I'm Checkin' Out, Goom Bye (1939) 2CD, 2004, Membran Music [APE|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730101.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dance Of The Goon [02:37]
-02. Good Gal Blues [03:00]
-03. Finesse [02:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50441524EDCF4DC32A1BD160F34D80C1426BE3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284116   (730090) от 20.02.2019
-
-Radare - Im Argen (2015) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Let Me Come into the Storm / Luke (10:06)
-02. Das einsame Grab des Detlef Sammer (4:09)
-03. Burroughs (6:36)
-04. The Queue (4:22)(   Читать дальше...   )Производство: Golden Antenna Records - GOLDEN-034Жанр: Doom Jazz, Dark Jazz, Experimental, RockПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8F360CAF4F2E96D5AAE98CF1B611A34FAB5494
 ```
 
 https://mybot314.ru/tekegram_catalog/

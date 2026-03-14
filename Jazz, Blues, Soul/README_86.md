@@ -1,3 +1,61 @@
+###  Публикация: 1495362   (880623) от 12.09.2021
+
+Andrew Cyrille Quartet - The News (2021) [FLAC 2.0|88/24|tracks|WEB-DL] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880623.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mountain
+2. Leaving East of Java
+3. Go Happy Lucky
+4. The News(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0BD182616ABEFD0B387792301CA9C7CAEA173E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373290   (880484) от 06.04.2020
+
+The Oscar Peterson Trio - At The Concertgebouw 1957 (2005) Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lady Is A Tramp [4:50]
+02. We'll Be Toghether Again [2:33]
+03. Bluesology [9:21]
+04. Budo [4:26](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C9FA6EE8663C16DC6CEFE4416DA6A4778357DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104577   (880353) от 15.02.2017
 
 Sonny Fortune - Invitation (1987) 2010, Whynot [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -685,64 +743,6 @@ Blues It Up, Vol. 2Жанр: Blues, Blues RockПродолжительность
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B92A463F6502917AED8EAC9A08D1DC41677AC61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373488   (878525) от 07.04.2020
-
-Afro Cuban All Stars - A Toda Cuba Le Gusta (1999) [FLAC|Lossless|image + .cue] <Jazz, Latin>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amor Verdadero
-02. Alto Songo
-03. Habana Del Este
-04. A Toda Cuba Le Gusta(   Читать дальше...   )Жанр: Jazz, LatinПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02ECBE1C82BD0C31B2B5BC8C9D6596E0F4CBC971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104602   (878298) от 16.02.2017
-
-Don Cherry - Relativity Suite (1973) Trio Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tantra [07:59]
- 02.Mali Doussn'gouni [05:38]
- 03.Desireless [01:26]
- 04.The Queen Of Tung-Ting Lake [04:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E253EC34B46498A9F688D636D8865B5F8E2E6B86
 ```
 
 https://mybot314.ru/tekegram_catalog/

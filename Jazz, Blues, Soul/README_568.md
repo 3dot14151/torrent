@@ -1,3 +1,177 @@
+###  Публикация: 1808415   (64990) от 24.07.2025
+
+Blues Escape feat. Johanna Lillvik - Teaser Blueser (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Teaser Blueser (3:30)
+02.  Strange Things Happening Every Day (3:14)
+03.  Georgia Grind (3:22)
+04.  Information Blues (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364EFA1F3F0CDD79908CD6D4A4F04F54DB78417F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808422   (64988) от 24.07.2025
+
+Markus K - LIVE with LOOPER No.3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Crumbling of The Berlin Wall (Live) (3:36)
+02.  Clyde (Live) (3:14)
+03.  Tamas - Don't Wait (feat. Tamas) (Live) (2:34)
+04.  Consciousness is All there Is (Live) (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621624014B13CB905DC5840AC2F0E87338AAF47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808419   (64986) от 24.07.2025
+
+Jessie Lee & The Alchemists - Legacy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm gonna play the Blues (5:30)
+02.  Show me your love (6:01)
+03.  What I feel (4:50)
+04.  The first man in my life (5:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489EA155D9AFC044873A07648497DA1746406CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808427   (64985) от 24.07.2025
+
+Thats not a Human featuring Netanel Elbaz - Blackout Parade (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Copper Curls (4:16)
+02.  Its No Speakeasy (4:03)
+03.  Pass Round Behind 6 (4:33)
+04.  Saints Ain’t Saints (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E0E9B6278D88D769E07FA714782BE8409A822A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808429   (64984) от 24.07.2025
+
+The Matt Cahill Combo - The Midnight Show (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Midnight Show (2:37)
+02.  Deal is Done (2:59)
+03.  Sending All My Love (4:06)
+04.  Jumpin' At The Astor (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB461D7495780DB83763C4DC4F16F1B8431E71A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808430   (64982) от 24.07.2025
+
+The Mighty Redox - Love's A Demon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Love's A Demon (5:17)
+02.  What's My Name (2:59)
+03.  Why Wait (4:30)
+04.  Bad Light (3:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D806C1A63167052A80D6E85B995CC68ED81E0AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808434   (64979) от 24.07.2025
 
 Roberto Restuccia - Hand 2 Heart (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Blues>
@@ -571,180 +745,6 @@ Coco Montoya - 12 Albums (1994 - 2023) 13 CD [FLAC|Lossless|image + .cue|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B12031017FD314F50F885B64F0E647A1237CA98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370663   (61205) от 31.03.2024
-
-Mop Mop - Kiss Of Kali (2009) [FLAC|Lossless|image + .cue] <Electronic, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Beat
-02. Locomotive
-03. The Lowered Flag
-04. Jazzdancer(   Читать дальше...   )Жанр: Electronic, JazzПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FA032C292FF8CCCF782801A1B593B1BBF849AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370458   (61172) от 31.03.2024
-
-Mop Mop - Isle Of Magic (2013) [FLAC|Lossless|tracks + .cue] <Jazz, Latin, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jua Kiss
-02. Let I Go
-03. Kamakumba
-04. Heritage(   Читать дальше...   )Жанр: Jazz, Latin, Funk / SoulПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6D35806A4F2D0B04F1CF48D624A6F89AC582EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287502   (60509) от 07.04.2024
-
-Jimmy Thackery - 25 Albums (1992 - 2016) 28 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Певец, поэт-песенник и гитарист-виртуоз Jimmy Thackery родился в Питсбурге 19 мая 1953 года. В Вашингтоне, округ Колумбия в средней школе, он играл в группе с братом Bonnie Raitt, David Raitt, с которым потом записали альбом That's It! (2000). Thackery выпускает альбомы почти ежегодно с начала своей сольной карьеры. Первую известность Jimmy принесла группа The Nighthawks, (   Читать дальше...   )Список альбомов:
-1992 Jimmy Thackery & The Drivers - Empty Arms Motel
-1993 Jimmy Thackery & John Mooney - Sideways In Paradise
-1994 Jimmy Thackery & The Drivers - Trouble ManЖанр: Modern Electric, Blues-RockПродолжительность: 27:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C5E9A9E3030CEE3D89C80E72CA971E56D43C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716332   (59613) от 15.04.2024
-
-John Haydock - Straight Line On A Curved Road (2024) [FLAC|Lossless|image + .cue] <Electric Blues, Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Blue Eyes
-02. Straight Line On A Curved Road
-03. Isle Of The Dead
-04. Lucy Don't Live Here Anymore(   Читать дальше...   )Жанр: Electric Blues, Rockin' BluesПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7EB808BB2CE0D103142599C394156445C4F5F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717937   (58864) от 22.04.2024
-
-V.A. - Bossa Nova Covers of Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Nu Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eve St. Jones - All Night Long (all Night)
-02. Sarah Menescal - Clocks
-03. Sarah Menescal - Always on My Mind
-04. Groove Da Praia - Digging Your Scene(   Читать дальше...   )Жанр: Bossa Nova, Nu Jazz, PopПродолжительность: 02:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F92CE7A82D9C6417E6521920BCB93BFB9DBABC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719418   (57925) от 01.05.2024
-
-Bobby Watson - Back Home In Kansas City (2022) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Home in Kansas City [4:33]
-02. Red Bank Heist [7:33]
-03. Our Love Remains [5:26]
-04. Bon Voyage [6:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A400E31DC3485BC4D0936EBB88B39991735111
 ```
 
 https://mybot314.ru/tekegram_catalog/

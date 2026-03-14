@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1858483   (1060341) от 11.03.2026
+
+VA - Jazz Bar Nights - Classic & Modern Lounge Jazz (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silvia Donati - The Lamp is Low (feat. MAX TURONE, Roberto Rossi & Maurizio Piancastelli) - (04:47)
+ 02. Antonio Farao - Now Is The Time - (02:43)
+ 03. ANNA CIMENTI - Bewitched, Bothered and Bewildered - (06:06)
+ 04. Silvia Donati - Mood Indigo (feat. Roberto Rossi, MAX TURONE & Maurizio Piancastelli) - (05:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A593D3B7F15CA74ED14DDF094BC81FC52C029FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857851   (1059770) от 07.03.2026
 
 Rick Braun - Rick Braun Plays Chuck Mangione (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -718,35 +747,6 @@ Threestyle - Reasons 2 Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08DFD0EF4EBA6BD03536D3A9319E0DEA4BA6A91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844693   (1050286) от 27.12.2025
-
-Threestyle - Christmas Is My Favourite Season (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Christmas Is My Favourite Season (3:22)
-02.  First Christmas (3:45)
-03.  Christmas in July (3:45)
-04.  New Kind of Christmas (3:29)(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, ChristmasПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E883CAD2AF6AB845A43B2B0883D5C6B30C07F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

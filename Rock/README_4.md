@@ -1,3 +1,32 @@
+###  Публикация: 1622566   (1029785) от 30.03.2023
+
+Ville Valo - Neon Noir (2023) [MP3|320 Kbps] <Gothic-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Echolocate Your Love [00:03:24]
+02 - Run Away From the Sun [00:04:12]
+03 - Neon Noir [00:04:56]
+04 - Loveletting [00:04:49](   Читать дальше...   )Жанр: Gothic-RockПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07505F8CB077FF489E8252EEFF3A4EB6ECAFCFBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449610   (1029731) от 22.02.2021
 
 Die Vision - Torture (серия "Другие восьмидесятые") (1990) CD, Album, Reissue, Remastered, 2018, AMIGA, Sony Music [MP3|320 Kbps] <Goth Rock, Post Punk, New Wave>
@@ -716,35 +745,6 @@ U.D.O. - Live In Bulgaria (2020) Pandemic Survival Show, 2021 [MP3|320 Kbps] <Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD55143E6A0E02CE1BF7E086D55C542EB796DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455601   (1025583) от 19.03.2021
-
-The Blue Stones - Hidden Gems (2021) [MP3|320 Kbps] <Blues Rock, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Lights On [00:03:09]
-02 Shakin' Off The Rust [00:03:42]
-03 One By One [00:04:11]
-04 Careless [00:03:35](   Читать дальше...   )Жанр: Blues Rock, SoulПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFDFA4643B392B0F720C5B2F69DAD02BA553C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

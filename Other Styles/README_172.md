@@ -1,3 +1,30 @@
+###  Публикация: 1750464   (42923) от 20.09.2024
+
+Эхо Москвы - История песен Битлз The Beatles (49 выпусков) (200?) [MP3|128 Kbps] <Подкаст>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл передач ведущего радиостанции "Эхо Москвы" Владимира Ильинского
+В каждом выпуске Владимир Ильинский (известный на Эхе как Дядя Володя) немногословно и очень тактично рассказывает об истории создания песни, кратко пересказывет ее текст (без углубления в лингвистические и стилистические особенности первоисточника), и - кончно же - звучит сама песня. (   Читать дальше...   )Жанр: ПодкастИздательство: Эхо МосквыПродолжительность: 03:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF60920FE5A71F534B36BF782E236422127888A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751740   (42293) от 26.09.2024
 
 Tantric Music Masters, Tantric Sex Background Music Experts - Erotic Oasis Tantric Arabic Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -716,35 +743,6 @@ Enigma - The Screen Behind the Mirror (2000) [FLAC|Lossless|tracks + .cue] <New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31E90A1AA72E1B72BE654EF08F25843C8335AB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761573   (36565) от 21.11.2024
-
-Conor Oberst - Conor Oberst (2008) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cape Canaveral (4:04)
-02. Sausalito (3:10)
-03. Get‐Well‐Cards (3:34)
-04. Lenders in the Temple (4:35)(   Читать дальше...   )Жанр: Folk Rock, Indie RockПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B40910D3247A9CCB02CD266EF5DD200802A708B
 ```
 
 https://mybot314.ru/tekegram_catalog/

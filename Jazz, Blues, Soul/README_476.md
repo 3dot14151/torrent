@@ -1,3 +1,177 @@
+###  Публикация: 1686489   (126466) от 23.12.2023
+
+The Derek Trucks Band - 8 Albums (1997 - 2010) 10 CD (1997 - 2010) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock, Southern Rock, Jazz-Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Derek Trucks (родился 8 июня 1979 г.) - американский гитарист, автор песен и основатель группы The Derek Trucks Band. Он стал официальным участником The Allman Brothers Band в 1999 году. В 2010 году он вместе со своей женой, блюзовой певицей и гитаристкой Susan Tedeschi сформировал группу Tedeschi Trucks Band. Его музыкальный стиль охватывает несколько жанров, он (   Читать дальше...   )Список альбомов:
+1997 - The Derek Trucks Band
+1998 - Out Of The Madness
+2002 - Joyful NoiseЖанр: Blues Rock, Southern Rock, Jazz-BluesПродолжительность: 09:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2559D2FCE97755A513BECEBB9424FFE9F2E8998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686531   (126432) от 23.12.2023
+
+The Stan Getz Quartet - Pure Getz (1982) Concord Records [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Up and Up [8:16]
+02. Blood Count [3:39]
+03. Very Early [7:11]
+04. Sipping at Bell's [5:08](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBE6E9727F15ACCD864664FBF113CD0B5E4FCA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686337   (126430) от 23.12.2023
+
+Bill Evans - You Must Believe In Spring (1977) 2022, Craft Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B Minor Waltz (For Ellaine) [3:18]
+02. You Must Believe in Spring [5:45]
+03. Gary's Theme [4:21]
+04. We Will Meet Again (For Harry) [4:05](   Читать дальше...   )Жанр: Post-Bop, CoolПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3D07D6F4779CDA801A2ACC6BD0AD030E011161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686359   (126429) от 23.12.2023
+
+Jay Doe & The Blues Preachers - Bluestime (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got My Mojo Working (4:00)
+02. Walking to My Baby (2:31)
+03. Call Me the Breeze (3:43)
+04. Next Time You See Me (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69BEF7CB6C8FF1155A9168B9A0EF62C1FB3C66C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686361   (126421) от 23.12.2023
+
+Jimmy Lewis and Peggy Scott-Adams - Christmas With Miss Butch Records (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas Friends of Mine (4:48)
+02. Can Reindeer Fly? (4:33)
+03. Wild Horses Two Mules and a Tractor (3:36)
+04. Light You up Like a Christmas Tree (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714DF69475161C44FF8FA2B23D0FEFE39F6D4D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686352   (126418) от 23.12.2023
+
+Frankie Moreno - RED (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red (3:22)
+02. Elephant Tears (3:38)
+03. Bombs Away (3:44)
+04. No More (3:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62B5EDB64AEF39C8ED0CB62B6C55594DD781639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686343   (126413) от 23.12.2023
 
 Christian Sands - Facing Dragons (2018) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -570,180 +744,6 @@ John Hicks - Piece For My Peace (1996) Landmark Records [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBC023784FD2888CD895CA5018CFB33B05E6E73F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687049   (125698) от 25.12.2023
-
-Frank Morgan - Gene Norman Presents Frank Morgan (1955) 1989, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernie's Tune [5:37]
-02. My Old Flame [4:46]
-03. I'll Remember April [4:29]
-04. Neil's Blues [5:11](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6FA3C37A54368F4807E55BD90BFEFAE6F6B2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686887   (125697) от 25.12.2023
-
-Joakim Tinderholt & His Band - Deadlines (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadlines (2:15)
-02. Don't Look Now (3:55)
-03. I Ain't Rich (2:57)
-04. (I Know) You Don't Love Me (1:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A565B9EB667F2C990BFC979DA4A56F985CA560E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686894   (125694) от 25.12.2023
-
-La Blues Band de Granada - The Jumping Boogie (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jumping Boogie (3:49)
-02. I Remember When (5:08)
-03. Road to Memphis, Tennessee (5:36)
-04. I Can´t Wait (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F0FA74FBDD4818E9F43D67C71F2E045F533F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686900   (125693) от 25.12.2023
-
-Neil Levin - The SoCal Sound Sessions With Neil Levin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone Away  (2:33)
-02. Not Worthwhile  (4:27)
-03. Brave New World  (3:54)
-04. Gone Away (2:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DE187CEEB121BCBEEC0774028F6CE66F6A926E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687217   (125606) от 26.12.2023
-
-Chris Rea - Tennis (1980) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Rock, Pop Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tennis
-02.  Sweet Kiss
-03.  Since I Don't See You Anymore
-04.  Dancing Girls(   Читать дальше...   )Жанр: Soft Rock, Rock, Pop RockПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F9665BF744E9E1CAAC386B441189FEFF4AC2D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687199   (125605) от 26.12.2023
-
-Chris Rea – Deltics (1979) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twisted Wheel
-02.  The Things Lovers Should Do
-03.  Dance! (Don't Think)
-04.  Raincoat And A Rose(   Читать дальше...   )Жанр: Soft Rock, RockПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27082732D55A8115CA6E5DD9425D81E357744D88
 ```
 
 https://mybot314.ru/tekegram_catalog/

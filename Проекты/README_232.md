@@ -1,3 +1,29 @@
+###  Публикация: 1058729   (463776) от 03.10.2016
+
+Проекты - VideoHive - Good Mood Opener [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания энергичного и цветного слайд-шоу, промо, интро.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD443046F5D21D2A10B285C4831CBB7DE1051D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059270   (463762) от 03.10.2016
 
 Проекты - VideoHive - Showcase Toolkit Package - 17864051 [AEP]
@@ -653,33 +679,6 @@ Pond5 - Wedding Photos Slideshow - 41279166 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:609BB83E877F0896D47023C38A2FF28B3BE3C481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 825087   (462122) от 26.09.2014
-
-Revostock - Wedding Photo Album Live Video - 832083 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания романтического свадебного фотоальбома.
-Превью, файл помощи - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEC2AA60F6420DFD10F893EAEDBB3373D24AF0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

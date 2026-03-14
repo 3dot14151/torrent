@@ -1,3 +1,119 @@
+###  Публикация: 1185385   (291424) от 22.11.2017
+
+Marina & the Diamonds - The Family Jewels (2010) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291424.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Are You Satisfied? 3:21
+A2 Shampain 3:12
+A3 I Am Not A Robot 3:35
+A4 Girls 3:29(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16CE4C77D2E1CB5B3211C8D91D85230E892E4C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185543   (291229) от 22.11.2017
+
+Agnetha Faltskog - Eyes Of A Woman (ABBA) (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291229.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 One Way Love 3:36
+A2 Eyes Of A Woman 3:54
+A3 Just One Heart 3:42
+A4 I Won't Let You Go 3:39(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8454DA846AEC00CE0F963DBF39BB801C883B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185670   (291218) от 22.11.2017
+
+Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291218.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Into The Blue (4:08)
+A2. Million Miles (3:28)
+A3. I Was Gonna Cancel (3:32)
+B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E11EB57202FECA161229462EE4BAEE05DFBD690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185592   (291034) от 22.11.2017
+
+ABBA - Ring Ring (1973) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Vocal, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291034.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ring, Ring 3:05
+A2 Another Town, Another Train 3:12
+A3 Disillusion 3:03
+A4 People Need Love 2:45(   Читать дальше...   )Жанр: Vocal, PopПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA908E30EA0636C0755049A73F492ADDF4F91EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185452   (291016) от 22.11.2017
 
 Amy Winehouse - Back To Black (2007) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rhythm & Blues, Soul>
@@ -629,121 +745,6 @@ A4. Mission(A World Record) (4:27)(   Читать дальше...   )Произ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDBD5D10CE6E703E5EE4343BB379C0BDBBA1EEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192188   (263373) от 16.12.2017
-
-Electric Light Orchestra - Face The Music (1975) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263373.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fire On High (5:31)
-A2. Waterfall (4:12)
-A3. Evil Woman (4:35)
-A4. Nightrider (4:22)(   Читать дальше...   )Производство: Jet Records - JZ 35527Жанр: Progressive RockПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CE13A300953AD0CF2FA7DE81C7CF6E5F7A4F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838993   (261627) от 26.11.2025
-
-Haunted by Silhouettes - Studio Albums (3 releases) (2018-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Haunted by Silhouettes - метал-группа из Норвегии, основана в 2013 году.2018 - Shortcuts to Dead Ends
-2019 - The Last Day on Earth
-2022 - No Man Isle (EP)Жанр: Melodic Death MetalПродолжительность: 01:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C614B7F2E75D8E9D51360923AC3473313262EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838847   (261510) от 25.11.2025
-
-VA - Original Artistes. 15 Mersey Hits (1976) Compilation, Stereo, Mono [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Garage Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261510.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Gerry & The Pacemakers - Ferry Cross The Mersey
-A2 Freddie & The Dreamers - If You Gotta Make A Fool Of Somebody
-A3 Gerry & The Pacemakers - I'm The One
-A4 Freddie & The Dreamers - I'm Telling You Now(   Читать дальше...   )Жанр: Garage Rock, Pop RockПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:462C044F630419F28029E0955596572EFFA70FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838434   (260910) от 23.11.2025
-
-The Cliff Adams Singers - Sing Something Simple (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260910.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Born With A Smile On My Face
-A2.a I Want A Girl Just Like The Girl That Married Dear Old Dad
-A2.b I'm Following In Father's Footsteps
-A3.a Green Green(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83786203FBC1C93B2EC2AC60ACB8DA97D7B35E78
 ```
 
 https://mybot314.ru/tekegram_catalog/

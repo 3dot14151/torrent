@@ -1,3 +1,32 @@
+###  Публикация: 1604173   (1045491) от 12.01.2023
+
+VA - White January: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Sour - Sitting Alone (Original Mix) (4:35)
+02. Filalete - Soul Design (3:14)
+03. Ian Otta - Rainy Sunday (4:16)
+04. Hölderlin - Lullaby (4:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B8C9B0503CC915E002E06DDD4E57C84CB64938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605934   (1044729) от 19.01.2023
 
 VA - A Quiet Healing: Body & Mind Relaxing Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Chill Out>
@@ -49,6 +78,32 @@ VA - Chillout Winter Gems 2023: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC0FF274D97C314330DCC36C1BA17037930A5250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182191   (1044107) от 25.01.2023
+
+Blue Foundation - 3 Albums (2001 - 2006) [FLAC|Lossless]<Downtempo, Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1044107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Downtempo, Trip-HopПродолжительность: 02:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0946125EFDCD860765118085DE623053D5DCBD52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,64 +742,6 @@ The 5th Galaxy Orchestra - The Tropic Lounge Sessions (2020) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37D6307EDEC87736246A2B880CBDAFFFC6A73328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445115   (1033751) от 05.02.2021
-
-The 5th Galaxy Orchestra - The Melody of the Universe (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Nu-Disco>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - C - (4:31)
-02. The Melody of the Universe (Re-Edit) (5:00)
-03. Night Melts in Sunrise (6:16)
-04. Arianne Dub (5:51)(   Читать дальше...   )Жанр: Chillout, Lounge, Nu-DiscoПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425413DE22A7608B8E153EE0543174961EAE02A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618871   (1033675) от 13.03.2023
-
-Wes Borland - Mutiny on the Starbarge (2023) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Experimental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are the Airlock [00:05:07]
-02. Mounting the Husk [00:03:34]
-03. Lexicon Galactus [00:05:16]
-04. Don't Believe in Trees [00:02:21](   Читать дальше...   )Жанр: Trip-Hop, ExperimentalПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF4A6251E512F19FD23D3BF7ABDDAA4919A3169
 ```
 
 https://mybot314.ru/tekegram_catalog/

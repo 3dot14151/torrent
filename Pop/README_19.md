@@ -1,3 +1,235 @@
+###  Публикация: 1457280   (1024377) от 26.03.2021
+
+Thomas Anders - Cosmic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Rider
+02. Undercover Lover
+03. Ready For Romance
+04. Je Ne Sais Pas(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED3C1A28ED189B8686EE91ACADB679E9727975E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458012   (1024176) от 27.03.2021
+
+Inga & Anete Humpe - Swimming With Sharks (серия "Другие восьмидесятые") (1987) [MP3|320 Kbps] <German Pop, Synthpop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Careless Love
+02. Idiot
+03. No Longer Friends
+04. Conspiracy(   Читать дальше...   )Жанр: German Pop, Synthpop, New WaveПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E1E9AD9CF6BDEE8FFE7898EEB5DDFD67711DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457972   (1024099) от 27.03.2021
+
+*NSYNC ('N Sync) - No Strings Attached (2000) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Bye (3:21)
+02. It's Gonna Be Me (3:13)
+03. Space Cowboy (4:24)
+04. Just Got Paid (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AA68FFFA42D147DECEAE72C2C6829B1BFA116D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458324   (1024068) от 28.03.2021
+
+Eva Eva Eva - Eva Eva Eva (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Please Forever (3:34)
+02. Vedrai (2:51)
+03. Do (3:09)
+04. Argentina (3:54)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B6E187348FE2973D818634CE7C5617BDE9DA0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458157   (1024066) от 28.03.2021
+
+VA - 50s 60s and 70s Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Take Me Home, Country Roads (Acoustic) (03:21)
+02. John Burnsby - I Saw Her Standing There (Acoustic) (02:58)
+03. Shannon & Keast - Sixteen Tons (Acoustic) (02:39)
+04. Logan York - I Heard It Through the Grapevine (Acoustic) (03:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E13035781BE95A2C5CE395FD4FAE0EC441CA14F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457937   (1024025) от 28.03.2021
+
+Thomas Anders - 3 Albums (2020-2021) [MP3|320 Kbps] <Europop, Eurodisco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Rider [00:03:53]
+02. Undercover Lover [00:03:41]
+03. Ready For Romance [00:03:49]
+04. Je Ne Sais Pas [00:03:21](   Читать дальше...   )Жанр: Europop, EurodiscoПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22989103874012266F87CA5AB961A227DCAC9D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457948   (1023762) от 29.03.2021
+
+Thomas Anders - Cosmic (2021) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Pop, Eurodisco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Rider [00:03:53]
+02. Undercover Lover [00:03:41]
+03. Ready For Romance [00:03:49]
+04. Je Ne Sais Pas [00:03:21](   Читать дальше...   )Жанр: Pop, EurodiscoПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D166024055D91ED8BE0C5712AC89A2B32BA44D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458661   (1023702) от 30.03.2021
+
+Roupa Nova - Show de Rock'n Roll (1985) [MP3|320 Kbps] <Pop rock, Rock & Roll, MPB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Um Show De Rock'N'Roll
+02 - Seguindo No Trem Azul
+03 - Tao Rica
+04 - Coracoes Psicodelicos(   Читать дальше...   )Жанр: Pop rock, Rock & Roll, MPBПродолжительность: 40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10D0F1181024EE9205A5EAF3F18D91A1C927809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458840   (1023699) от 30.03.2021
 
 Peter Wilson - Electricity (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro Disco>
@@ -512,238 +744,6 @@ VA - Beats Of The Night - Studio 54 Vol. 2 (1980) 2LP [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAB20323CDC632B3B4E04C72199346CA0BD6F832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461176   (1022000) от 08.04.2021
-
-Dick St. Nicklaus - Magic (1979) LP [MP3|320 Kbps] <Disco, Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (3:39)
-02. Help Yourself (3:19)
-03. What's The Reason (4:51)
-04. Can't Give Up (2:54)(   Читать дальше...   )Жанр: Disco, Pop, Soft RockПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1196500EA58BF0EC47E970BCB387E7351BCE5315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461202   (1021998) от 08.04.2021
-
-VA - ZYX Italo Disco Spacesynth Collection 6 (2020) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserdance - It's Over (5:03)
-02. Bellatrix - Vector (5:37)
-03. Blue Star Project - Happy Dance (ZYX Version) (5:24)
-04. DJ Con-T - Space Adventure (Vanello Remix) (5:44)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthpopПродолжительность: 02:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4E693E5C58995665F377DF650957DD7D6EEA04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461359   (1021956) от 09.04.2021
-
-Hott City - Ain't Love Grand (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feelin' Love (6:45)
-02. If All We're Gonna Do Is Dance (8:34)
-03. Ain't Love Grand (5:05)
-04. I Took His Money (7:03)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4315B5689CB07EB80A2AD0226B36F9B32F82005F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461313   (1021953) от 09.04.2021
-
-Mirko Hirsch - Love Is Blind: Songs from the Motion Picture Pretty Boy (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco, AOR>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Blind (Long Version) (3:57)
-02. Return to Neon (Alternate Ending) (4:37)
-03. King Without a Crown (6:12)
-04. When Love Said No (4:23)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, AORПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D759C20B024CAF44225E1F13C4F714FDE1B65737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461409   (1021943) от 09.04.2021
-
-Various Artists - Supermix - [El Primer Megamix... Ilustrado] Cap. #1 (2019) [WavPack|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supermix (The Custer Megamix)       -    Megamix By Tony Postigo  (15:37) **
-02. Swan                                              -    General Custer     (7:08)
-03. Roy                                                 -    Destiny Time   (6:28)
-04. Check Up Twins                                -    Sexy Teacher   (7:16)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457E74DDAE86A8DC17EF9CA5490035E3BBAEFF29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461296   (1021925) от 09.04.2021
-
-Балаган Лимитед - Сто на двоих (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021925.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Welcome to Russia
-2. Кто бы мог подумать
-3. Ой, да
-4. День рождения(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D80D3079F27C08A324E2FF0C03DDC031F075AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461528   (1021806) от 10.04.2021
-
-Заплатки - Завтра выходной (1998) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Колечко
-02. Пряничек Медовый
-03. Завтра-Выходной
-04. Кузнечик(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D5749F46261698D166B6E3B8B1D1DF937A4692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461666   (1021753) от 10.04.2021
-
-VA - ZYX Italo Disco New Generation Vol. 16 (2020) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Italove - Burn This City (Flashback Ri-Mix) (6:22)
-02. Savage - Magic Carillon (Also Playable Mono Remix) (5:30)
-03. Carino Cat feat. Fred Ventura - The Carino Crew (4:58)
-04. Romantic Gladiators feat. Joey Mauro and Remo Zito - Hero (Warrior Version) (5:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6036D7C55E2FFE21800FC38C738106E13B77A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

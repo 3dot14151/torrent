@@ -1,3 +1,62 @@
+###  Публикация: 1140440   (655976) от 06.06.2017
+
+Phoenician - Last Orders (2017) [MP3|320 Kbps] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mobius (05:27)
+02. Beacon (04:11)
+03. Cast Out (02:50)
+04. The Beetroot Parade (05:24)(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26B44D07F77FFF24F6095F4975BE036F9885DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963798   (654649) от 28.03.2022
+
+Fool's Garden (Fools Garden) - 12 Альбомов, 22 Сингла (1993-2021) [MP3|320 кб/с] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая поп-рок-группа, основанная в 1991 году. Исполняет песни исключительно на английском языке. Наиболее известная песня — «Lemon Tree», долгое время занимала места в мировых чартах.  После смены состава в 2003 году группа стала называться Fools Garden (без апострофа).
+Все участники группы являются большими поклонниками знаменитых поп-рок и рок-групп, таких, как (   Читать дальше...   )1993 - Once In A Blue Moon
+1995 - Dish Of The Day
+1997 - Go And Ask Peggy For The Principal Thing
+2000 - For Sale(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 16:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D631FB7C173FC07D9FEAE66F9DA25E7F675197F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904418   (654389) от 03.06.2015
 
 Indigo Girls - One Lost Day (2015) [MP3|320 кб/с]<Folk Rock>
@@ -696,66 +755,6 @@ Kevin Max - Playing Games With the Shadow (2016) [MP3|320 Kbps] <Alternative Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6B2CE4B7D2EDF5A807DD92BEC27E689A29FC8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515928   (649728) от 30.06.2012
-
-Fat Janitor - Lurk (EP) (2012) [MP3|320 кб/с]<Shoegaze Mathcore / Noise Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649728.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Laughing Sick
-2.French Winger
-3.Lizard Kissing Papa
-4.Squelch Hag
-5.Human Sandbags
-6.Two Nights In HellЖанр: Shoegaze Mathcore / Noise RockПродолжительность: 00:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2EEBB7340969C52448189FB10BA9E26306B1A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905487   (649601) от 06.06.2015
-
-Animal Soup - Lover's Leap (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover's Leap 13:53
-02. The Romantic 04:40
-03. The Stranger 03:36
-04. The Big Time I 03:52(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DC75A7AEBE6A5BC6D1D260372031462828AA16
 ```
 
 https://mybot314.ru/tekegram_catalog/

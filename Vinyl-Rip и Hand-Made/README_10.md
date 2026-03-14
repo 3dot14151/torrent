@@ -1,3 +1,119 @@
+###  Публикация: 1104385   (879773) от 15.02.2017
+
+Frank Sinatra - Duets (1993) First Press [WavPack|192/32|image + .cue|Vinyl-Rip] <Jazz, Easy listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lady Is A Tramp With Luther Vandross (3:24)
+02. What Now, My Love? With Aretha Franklin (3:15)
+03. I've Got A Crush On You With Barbra Streisand (3:25)
+04. Summer Wind With Julio Iglesias (2:32)(   Читать дальше...   )Жанр: Jazz, Easy listeningПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D9756435C197DF0E5FB0857CBB9191D5FA30D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996679   (878696) от 14.03.2016
+
+Nightwish - Endless Forms Most Beautiful (2015) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Symphonic Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878696.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Shudder Before The Beautiful
+A2. Weak Fantasy
+A3. Elan
+B1. Yours Is An Empty Hope(   Читать дальше...   )Жанр: Symphonic Metal, Heavy MetalПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FAF093F6150CCE86D55D0F1BB354A025FD6C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105134   (878009) от 16.02.2017
+
+Manfred Mann's Earth Band - Messin' (1973) 1983, Reissue [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878009.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Messin' (9:55)
+A2. Buddah (7:03)
+A3. Cloudy Eyes (5:35)
+B1. Get Your Rocks Off (2:51)(   Читать дальше...   )Производство: Bronze - 28 856-270Жанр: Progressive RockПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD7F480458F1482862DE7FE14CA7DB2AE2E64B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997355   (875456) от 16.03.2016
+
+Manfred Mann's Earth Band - Nightingales & Bombers (1975) [FLAC 2.0|192/24|image|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875456.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Spirits In The Night (6:27)
+A2. Countdown (3:06)
+A3. Time Is Right (6:33)
+A4. Crossfade (3:41)(   Читать дальше...   )Производство: Bronze Records - 89 059 XOTЖанр: Progressive RockПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6438D39027558495235AE58EBC30CBE7229CD865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997330   (875254) от 16.03.2016
 
 a-ha - Cast In Steel (2015) [WavPack 2.0|192/32|image +.cue|Vinyl-Rip] <Pop>
@@ -630,122 +746,6 @@ A4 You Always Saw The Blue Sky(   Читать дальше...   )Жанр: Pop 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8365CF1C85317E9D8A6D3349E2E82AE568F3E24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870976   (846917) от 01.04.2016
-
-Юра Саркисян (кларнет) - 2002 (2002) [FLAC 2.0|44.1/16|tracks|MC-Rip] <Folk/Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Праздничный танец
-02. Танец Юрика
-03. Восточный таней
-04. Далеко ты от меня(   Читать дальше...   )Жанр: Folk/PopПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1199CC2B9492386438ED62F77D76981AD3AE1F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003224   (845110) от 02.04.2016
-
-Аспид - Кровоизлияние (1992) 2016, Metal Race [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро
-02 - Он пришел (Аспид)
-03 - К цели одной
-04 - Дай мне(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A98F8D0099E1C56F5E4432BE9CD04DE618D9F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112154   (844772) от 07.03.2017
-
-Manfred Mann's Earth Band With Chris Thompson - Criminal Tango (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844772.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Going Underground (5:19)
-A2. Who Are The Mystery Kids (3:45)
-A3. Banquet (5:17)
-A4. Killer On The Loose (4:00)(   Читать дальше...   )Производство: Virgin - 207 629-630Жанр: Progressive RockПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECBB14DFE7ECA3470324BCDF5CED82DC1C208BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499462   (842350) от 05.10.2021
-
-Московский Камерный Орк., дир. Л. Маркиз - Mozart - Cassation No. 1 In G Major K. 63 / Concerto No. 2 For Harpsichord And Orchestra In B Flat Major (1972) [FLAC 2.0|96/24|image +.cue] <Classical ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cassation No. 1 In G Magor K. 63 --- Кассация № 1 Соль Мажор К. 63
-A1 Marche
-A2 Allegro
-A3 Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758B21FB195E6A2868BB9C44981F05983F1924E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1147898   (605819) от 04.07.2017
+
+Johnny Colon - Keeping It Real (2007) Johnny Colon [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misty [05:34]
+02. My Funny Valentine [06:06]
+03. They Can't Take That Away From Me [04:03]
+04. Angel Eyes [04:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A66C9B059F7FBB71F571220079CDA717A1A2CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147904   (605754) от 04.07.2017
+
+Larry Coryell's 11th House - Seven Secrets (2016) Savoy Jazz [FLAC|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alabama Rhap Corollary [05:01]
+02. Mr. Miyake [05:02]
+03. Dragon's Way [08:04]
+04. Philly Flash [05:08](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BE1B8B7B2744DB550698D4C15A5BCC27BE6FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231497   (605173) от 18.06.2018
+
+Stan Getz - The Best Of Two Worlds featuring Joao Gilberto (1975) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bossa Nova, Cool, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Rainbow [3:34]
+02. Aguas de Marco [4:42]
+03. Ligia [5:23]
+04. Falsa Baiana [5:17](   Читать дальше...   )Жанр: Bossa Nova, Cool, Latin JazzПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBBFD1078C57AAC26B3473FFC918F4EB3F1EE8E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038725   (605151) от 29.07.2016
 
 Blue Mitchell - A Sure Thing (1962) 1994, OJC[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -658,93 +745,6 @@ Ignasi Terraza Trio - Let Me Tell You Something (1999) 2006, Swit Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:991136198C2516884223F2DBFAC3AE50B0A91B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148154   (603948) от 06.07.2017
-
-Ignasi Terraza Trio - Jazz a les Fosques I (1999) 2006, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Candy [05:41]
-02. September Song [06:25]
-03. Love for Sale [05:56]
-04. I Remember Clifford [07:13](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528D506D2736AEA991875CAC7077025708A7AFF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148161   (603947) от 06.07.2017
-
-Susana Sheiman & Ignasi Terraza Trio - Swing Appeal (2011) Swit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Glad There Is You [05:35]
-02. P.S. I Love You [04:15]
-03. Spring Can Really Hang You Up the Most [05:13]
-04. Just One of Those Things [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0599BC5588194726DCF98FA25DB54C34E90BB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148175   (603946) от 06.07.2017
-
-Ignasi Terraza - Sol-IT (2010) 2CD, 2012, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603946.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. You're My Everything [05:02]
-02. These Foolish Things [05:07]
-03. Round Midnight [04:58](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C4EA76AEA7707F9EC1CD59F93B83A3192F5401
 ```
 
 https://mybot314.ru/tekegram_catalog/

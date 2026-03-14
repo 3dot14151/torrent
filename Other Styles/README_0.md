@@ -1,3 +1,116 @@
+###  Публикация: 1604704   (1044946) от 17.01.2023
+
+Канцлер Ги - Страшная сказка (2010) [FLAC|Lossless|image + .cue] <Folk-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Ezzelino
+03. Письмо тирана Римини Папе Римскому
+04. Due Angeli(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1066E2642F367CE76DD5FECF51DBD55DBAF625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606205   (1044437) от 22.01.2023
+
+Deep Forest - Deep Forest / Comparsa (1998) Reissue, 2001, Epic Records Group [OGG Vorbis|450 Kbps] <Electronic, Folk, World & Country>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noonday Sun
+02. Green And Blue
+03. Madazulu
+04. 1716(   Читать дальше...   )Жанр: Electronic, Folk, World & CountryПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1685FC19B7389D3ED0A634769EA57D66F51A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605665   (1044418) от 22.01.2023
+
+Тролль гнет ель - Дискография (11 релизов) (2005-2022) [MP3|320 Kbps] <Folk Rock, Metal, Beer Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk Rock, Metal, Beer FolkПродолжительность: 06:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2798118184ED172AC0DDB5126716B6967E1EE947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606056   (1044417) от 22.01.2023
+
+Le Grand Orchestre De Paul Mauriat - Penelope (1971) Reissue, Remastered, 1997, Philips [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Penelope
+02. El Condor Pasa
+03. Anonimo Veneziano 'Anonimo Veneziano
+04. El Mourir De Plaisir(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC39788461998D311D464F4E3F6097F7F13CF29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606893   (1044228) от 24.01.2023
 
 Era - The Very Best Of (2004) [OGG Vorbis|480 Kbps] <Rock, Pop, Classical>
@@ -629,122 +742,6 @@ VA - Enigma-Forest-Transit 2 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:743D78AF4985456382B4F16BEC15DDCF8DADA702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616672   (1036101) от 03.03.2023
-
-David Arkenstone - Celtic Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. May Dance (4:39)
-02. Celtic Garden (3:46)
-03. Hand In Hand (4:39)
-04. The Voice (4:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3551D7FADB85A6EF9CC97CB4E0B7F60AA0A3D7FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616666   (1036092) от 03.03.2023
-
-VA - Enigma-Forest-Transit 1 (1998) [OGG Vorbis|480 Kbps] <Electronic, Folk, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigma - Second Chapter
-02. Enigma - The Eyes of Truth
-03. Era - Enae Volare Mezzo
-04. Gregorian - So Sad... (Radio version)(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BF4B8627479D3C7BD4B0AC9C0B36F77D03AB94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616785   (1036089) от 03.03.2023
-
-VA - meditation mix (2023) [MP3|320 Kbps] <Meditation, Piano, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johannes Bornlof - River Flows in You (Lullaby Version) (2:47)
-02. Maria Paloma - Gabriel's Oboe (2:10)
-03. Johannes Bornlof - Written on the Sky (1:56)
-04. Maria Paloma - Love Theme from Cinema Paradiso (3:33)(   Читать дальше...   )Жанр: Meditation, Piano, New AgeПродолжительность: 03:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3785B60C715CCE7319E1BE907960B4D61F73C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443024   (1036009) от 27.01.2021
-
-DJ Chill del Mar - Fresh Mix Chillout 2021 [FLAC|Lossless|WEB-DL|tracks] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fresh Mix Chillout 2021 (3:39)
-02. Lounge Chillout House (3:41)
-03. Hot Winter Party (3:43)
-04. Cool Drinks and Hot Girls (3:43)(   Читать дальше...   )Жанр: New ageПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C147765482517699476D883E01A37B0673DC09B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,147 @@
+###  Публикация: 1179932   (344579) от 02.11.2017
+
+Paul Joe Fish & Gamma - Silver Sound (2015) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talking Together
+02. Silver Sound
+03. Moment of Silence
+04. Just a Little Song(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0E7A333504CDD6525068A259BC7D1042B356CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953813   (343923) от 06.11.2015
+
+Gregorian - Masters of Chant X: The Final Chapter (2015) [MP3|320 кб/с]<New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masters Of Chant (feat. Amelia Brightman)
+02. Cry Softly (feat. Narcis)
+03. Angel
+04. Strong(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87962F863DF0CCC5F40054D9E936EA5FC986B9F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578342   (343387) от 24.09.2022
+
+Треустье (Treustye) - 4 Albums, 3 EP (2010-2020) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Neo Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Беспокойный сон Франца Кафки [00:02:06]
+02. Кошмар Джойса [00:03:35]
+03. Сон Мо Яня [00:02:29]Жанр: Dark Folk, Neo FolkПродолжительность: 7 CD, 02:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BA93337A6467813089B1F02469A949F685F2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257814   (343306) от 27.10.2018
+
+Trobar De Morte - The Silver Wheel (2012) 2015, Limited Edition, Numbered, Reissue [FLAC|Lossless|tracks + .cue] <Celtic, Darkwave, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mist of Avalon (3:58)
+ 02. Arianrhod (5:00)
+ 03. In the Garden of Serenity (3:22)
+ 04. The Silver Wheel (3:11)(   Читать дальше...   )Жанр: Celtic, Darkwave, Neofolk, MedievalПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DA66E5F97456CDD9E018C708C188F3DD70EB4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257819   (343302) от 27.10.2018
+
+Trobar De Morte - Beyond The Woods - The Acoustic Songs (2011) [FLAC|Lossless|tracks + .cue] <Medieval, Acoustic, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Wood (3:07)
+ 02. Excalibur (4:01)
+ 03. The Harp of Dagda (3:14)
+ 04. Rise and Fall (2:49)(   Читать дальше...   )Жанр: Medieval, Acoustic, NeofolkПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3469EA1C1724036C595A55FE8A040E015A97A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257810   (343294) от 27.10.2018
 
 Trobar De Morte - Ouroboros (2016) [FLAC|Lossless|tracks + .cue] <Celtic, Darkwave, Neofolk, Folk>
@@ -603,151 +747,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBAF5ED0498E48FE4AE9E5058A9909394670B46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953761   (339602) от 08.11.2015
-
-VA - Sentimental Journey (2007) 5 CD Box Set [MP3|320 кб/с]<Pop,Oldies>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alma Cogan - Dreamboat (1:48)
-02. Peggy Lee - Mr Wonderful (3:20)
-03. Margaret Whiting - A Tree in the Meadow (2:36)
-04. Peggy Lee - Let There Be Love (2:08)(   Читать дальше...   )Жанр: Pop,OldiesПродолжительность: 04:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9F70C2EED09162DD16E673E76888BF1DF24158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419088   (339581) от 28.10.2020
-
-Peder B. Helland - Bright Future (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always (6:43)
- 02. Our Journey (6:50)
- 03. Together (6:08)
- 04. Our Future (Piano Version) (8:26)(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B5783210C0169C649B28F7F525D4BE773580D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074213   (338593) от 19.11.2016
-
-Wychazel - Arcana (2016) [MP3|320 Kbps] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338593.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Wishing Tree 7.04
-2. Beltane Drums 7.14
-3. A Secret Gift 7.56
-4. The High Priestess 7.10(   Читать дальше...   )Жанр: New ageПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B74722B950988DD62FE0461CB3CCDB29DC837F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579150   (338579) от 26.09.2022
-
-Франк Пурсель - Музыка Хорошего Настроения (Uplifting music) (2005) [OGG Vorbis|484 Kbps] <Jazz, Pop, Stage & Screen>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manchester et Liverpool '66
-02. Tip Toe Through The Tulips '68
-03. Adoro '68
-04. Abacachi '68(   Читать дальше...   )Жанр: Jazz, Pop, Stage & ScreenПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86AD60A79CD4FA73E5AE22891566BA626D73EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258076   (338536) от 29.10.2018
-
-VA - iRelax Anywhere (2006) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mi Angel - Johannes Linstead
-02. Hayden's Spirit - Danny Wright
-03. Greenwoods - Paul Machlis
-04. Touching Silk - Frank Stiener, Jr.(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186CF4D04FED117719D7D2917B528C8B80BA8189
 ```
 
 https://mybot314.ru/tekegram_catalog/

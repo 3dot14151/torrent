@@ -1,3 +1,32 @@
+###  Публикация: 1018388   (756016) от 20.05.2016
+
+VA - Dirty Beats Funky Dancefloor (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756016.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Heatbeat - It's Killing Me (Radio Edit) 3:27
+002. Overtune - How Does It Feel (Hp Remix) 5:43
+003. Curbi - Circus (Extended Mix) 3:56
+004. Dj Asperant - I'm In Miami Beach (Original Mix) 3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 11:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC0AB19940F33848985E0071DA0ABE79D066E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018397   (755933) от 20.05.2016
 
 VA - Beach Cafe Deluxe: Ultimate Lounge and Buddha Relaxation Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -717,35 +746,6 @@ VA - Trance 100 Symmetry Nostalgic (2016) [MP3|320 кб/с] <Trance, Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E5057FD9C67377E6BCF404C5397660545EF0D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019187   (752252) от 22.05.2016
-
-VA - Trance Desire Volume 70 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arman Bahrami & Ailsa Villegas - Beat Of My Heart (Uplifting Mix) 7:53
-02. Ira, Paulina Dubaj - Better In Time (Original Mix) 6:47
-03. Mike Saint-Jules ft. Sandel - Broken Turn (Original Mix) 7:47
-04. Judie Tzuke, Seth Hutton - Don't Look Behind You (Solid Stone Remix) 7:57(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83B90630685517752CDB2969EB043EDA62D1F01
 ```
 
 https://mybot314.ru/tekegram_catalog/

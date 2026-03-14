@@ -1,3 +1,90 @@
+###  Публикация: 1442592   (1036304) от 26.01.2021
+
+Frаncine - Golden Anthology Of Rock And Roll Music (2020) [MP3|320 Kbps] <Rock & Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036304.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течении последних лет музыка Francine поменяла много имён, такие как рокабилли, панкобилли, хард билли, пауэр билли. Сами же они предпочитают, чтобы их музыку называли просто рок-н-ролл, который они мастерски комбинируют с такими стилями как рокабилли, ритм-н-блюз, панк, поп, джаз!001. Almost Alive
+002. Anything You Do
+003. Can't Take It No More
+004. Come On, Let's Go(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 07:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01333711803C4082BAB9D12193654B1EF2F2E080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442594   (1036290) от 26.01.2021
+
+Enigma Norteсo - Van A Querer Mas (2021) [MP3|320 Kbps] <Latin, Folk Songs>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая рабочая неделя после зимних праздников всегда выматывает. И хочется налить бокальчик текилы, надеть удобные треники или махровый халат, взять в обнимку толстого и теплого кота и просто расслабиться под музыку жаркой Мексики.01. La Fiesta De Joaq
+02. Recordando
+03. El Griego
+04. Herida Mortal(   Читать дальше...   )Жанр: Latin, Folk SongsПродолжительность: 03:23:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3259191191B6E1DB283F55CB985F1CFEE7B20EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442781   (1036192) от 26.01.2021
+
+VA - 30(1) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A$AP Rocky, slowthai - MAZZA (2:51)
+02. ATB, Topic, A7S - Your Love (9PM) (2:30)
+03. Billie Eilish, Rosalía - Lo Vas A Olvidar (3:23)
+04. Bow Anderson - New Wave (3:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F497BE8D39E2E3FEF26DBBCCB0C2003FC7585A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616317   (1036157) от 03.03.2023
 
 VA - Impressive Sound 2022.2: Volume IV (2022) [MP3|320 Kbps] <Jazz, art-pop, avant-prog>
@@ -658,93 +745,6 @@ VA - Beatport Trance: Electro Sound Pack #235 (2021) [MP3|320 Kbps] <Trance, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DF903BC3F2DC5E1DE80548C1131CD7563A8DB02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444157   (1034958) от 31.01.2021
-
-VA - Beatport Deep House: Electro Sound Pack #234 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите послушать чего-нибудь исконно европейского, легкого и достаточно качественного, то новый 234-й релиз посвящённый музыке стиля Deep House от Beatport должен прийтись Вам по вкусу. Каждый трек по-своему уникален и завораживает с первых секунд прослушивания.001. L.A.B - Our Generation
-002. Kathy Cornell - Like You (Original Mix)
-003. Marcelo Wallace - I Don't Care
-004. Tomi H - Inlightening(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA731950A8A2615EB3A3AB35B65E417CA69CA2E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443661   (1034951) от 31.01.2021
-
-VA - Beatport Techno Electronic: Sound Pack #232 (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034951.jpg" />
-</div>
-
-
-###  Подробнее
-
-232-й релиз электроники от Beatport это смелая заявка на то, чтобы оказаться в плейлистах многочисленных любителей техно-саунда, от чудаковатых фанатов экспериментов до нетребовательных завсегдатаев клубных танцполов. Приятные мелодии и заводные ритмы будут сопровождать Вас на протяжении всего релиза.001. Alejandro Bargueno - More Aggrassive
-002. Kuster Beaton - Kuster Theme
-003. Patrick P. - Time
-004. Flamel - Altair (Extended Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287801BF5D17CF0149F225F271950074A6D438E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444149   (1034948) от 31.01.2021
-
-VA - Gravity Dance (2021) [MP3|320 Kbps] <Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник "Gravity Dance" в полной мере можно отнести к музыке экспериментального направления, где в построении музыкального ряда используются отстранённые голоса и звуки, синтезированный саунд и аномально растянутые ритмы. Экстремальные эмоциональные и психические состояния, галлюцинации, существование на грани запредельного – всё это вы найдёте здесь в (   Читать дальше...   )001. Richard Filtter - Sofocante
-002. Acrobotik - Nestle In
-003. Wxlter - Astral Divinity
-004. Das Butterschnitzel - Full On Love(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 09:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1327677199AA320C50D06AA977940C71FC27BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

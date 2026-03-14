@@ -1,3 +1,29 @@
+###  Публикация: 1243049   (495585) от 25.08.2018
+
+3D модели - Behr Bros - Generic Sports Car GT3 [MAX, MB, 3DS, C4D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495585.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки GenericФормат: MAX, MB, 3DS, C4D, FBX, LWO, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4D4CC081FAE4BFDB815B6175F43F91ABE511A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243347   (493806) от 26.08.2018
 
 3D модели - TurboSquid - F1 Renault RS17 2017 - 1138353 [MAX, OBJ, FBX]
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B19E12C794FCA07C2D773B125190725750ED2904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246512   (461171) от 11.09.2018
-
-3D модели - Hum3D - Ford F-250 Super Duty Super Cab XLT 2015 [V-Ray|*.max, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461171.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки FordФормат: V-Ray|*.max, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371D6A82CD6C464D114AE1671459637002F18CAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1413490   (408541) от 04.10.2020
+
+Oscar "Papa" Celestin & Sam Morgan - Recorded In New Orleans (1925 - 1928) 1995, Jazz Oracle [FLAC|Lossless|tracks + .cue] <Ragtime, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Original Tuxedo Rag [2:38]
+02. Careless Love [3:06]
+03. Black Rag [2:34]
+04. I'm Satisfied You Love Me [3:18](   Читать дальше...   )Жанр: Ragtime, New Orleans JazzПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79BDE7F246A7EB8028C6EEEF4D4E24815701C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413488   (408535) от 04.10.2020
+
+Nancy Wilson - Spotlight on Nancy Wilson (1959 - 1968) 1995, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What a Little Moonlight Can Do [2:27]
+02. Little Girl Blue [2:51]
+03. My One and Only Love [3:01]
+04. The Best Is Yet to Come [2:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2F0B79747B5DBC2D40684EB792D9AD0A9AF512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067215   (408480) от 28.10.2016
+
+Eric Alexander - Second Impression (2016) HighNote Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Second Impression [06:21]
+ 02.So Many Stars [05:44]
+ 03.Blues for Mo [05:18]
+ 04.Jennie's Dance [05:55](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117724B083FA6881BE853E29A6263678B2134BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067099   (408478) от 28.10.2016
 
 Harvie Swartz - In A Different Light (1990) [WavPack|Lossless|image + .cue] <Jazz, Post-Bop>
@@ -673,102 +760,6 @@ Carlos Garnett - Under Nubian Skies (1997) [FLAC|Lossless]<Hard Bop, Post-Bop>
 07. Epitapher Zackerism
 08. Mango Walk
 09. Down & Up AgainЖанр: Hard Bop, Post-BopПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561849   (405917) от 18.10.2012
-
-Julie London - Sophisticated Lady & For The Night People (1998) [FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sophisticated LadyЖанр: Jazz, VocalПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561902   (405861) от 18.10.2012
-
-Emilie-Claire Barlow - 2 альбома (2005, 2009) [FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Do Is Dream Of You [03:59]
-02. C'est merveilleux [03:49]
-03. You're Driving Me Crazy [03:04]
-04. Comin' Home Baby [04:24]
-05. Haven't We Met [03:03]
-06. I'm Glad There Is You [05:01]
-07. Chez moi [02:53]
-08. Is You Is Or Is You Ain't My Baby [05:03]
-09. Jardin d'hiver [04:01]
-10. La Vem A Baiana [02:49](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561709   (405835) от 18.10.2012
-
-VA - The Famous Sound of three blind mice (1987-1989) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masaru Imada Trio - Softly as in a Morning Sunrise [06:17]
-02. Isao Suzuki Sextett - Ako's Dream [09:38]
-03. H. Sleepy Matsumoto Quartet - You Don't Know what Love is [07:28]
-04. Sunao Wada Quartet - Blues in the Closet [06:17]
-05. Hideo Kanai Quintet - Tensions [06:08]
-06. Shoji Yokouchi Quartet - Message [06:15]
-07. Toshiyuki Miyama & The New Herd - Sweet Heart Blues [07:36]
-08. Ayako Hokosawa with The New Herd - Let's Go Get Stoned [05:21]
-09. Y. Otomo-Hidefumi T. Alto Madness - Scrapple from the Apple [11:04]
-10. Tsuyoshi Yamamoto Trio - Almost Like Being in Love [06:22]Жанр: JazzПродолжительность: 01:12:26
 
 ## Скачать торент
 ```bash

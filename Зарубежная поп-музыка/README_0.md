@@ -1,3 +1,32 @@
+###  Публикация: 1846185   (1051244) от 06.01.2026
+
+VA - AM Gold 1969 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Supremes And The Temptations - I'm Gonna Make You Love Me
+02. B.J. Thomas - Raindrops Keep Fallin' On My Head
+03. The Cowsills - Hair
+04. Jackie DeShannon - Put A Little Love In Your Heart(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soul, FunkПродолжительность: 01:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A1999ADEB93183F61181948DCD1E33FF13577A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846042   (1051197) от 05.01.2026
 
 VA - AM Gold 1966 (1990) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Soft Rock, Pop Rock>
@@ -716,35 +745,6 @@ Londonbeat - Legends (2004) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Europop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8423DABD62C70808AC7166CB0D53F581F2289BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605706   (1044734) от 19.01.2023
-
-CC Catch - Best Of (1998) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can Lose My Heart Tonight (Rap Version)
-02. Soul Survivor  (Rap Version)
-03. 'Cause You Are Young
-04. Heartbreak Hotel(   Читать дальше...   )Жанр: Electronic, Synth-pop, Euro HouseПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DFA8A5E5577A789705189385E5CB7CCD552589
 ```
 
 https://mybot314.ru/tekegram_catalog/

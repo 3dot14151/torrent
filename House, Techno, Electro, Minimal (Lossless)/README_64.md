@@ -1,3 +1,88 @@
+###  Публикация: 1734568   (107096) от 04.07.2024
+
+Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (2022) [FLAC|Lossless|tracks] <Techno, Tech Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix edit) (3:32)
+02. Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (8:09)Жанр: Techno, Tech TranceПродолжительность: 00:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6376AA6C0D30BD0B743265FA9381CB69FCA97119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735062   (107010) от 06.07.2024
+
+VA - Cardio - 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charli XCX - Talk talk (2:41)
+02. Fred again.. - places to be (3:46)
+03. Ella Henderson - Under The Sun (with Alok) (2:45)
+04. Jubel - Chocolate (2:25)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D5507E0EDC96EADC3F96AFB4278A5E008C1B8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735218   (106985) от 07.07.2024
+
+Kiasmos - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grown
+02. Burst
+03. Sailed
+04. Laced(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B4E832C96FEFE04E19987859D079290A88ED7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735255   (106976) от 07.07.2024
 
 VA - Big Aerobic & Cardio Dance Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -653,93 +738,6 @@ Sheep on Drugs - From A to H and Back Again (1994) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFB39BA7EEF85F8577F9CA1A57EDC2309DF393F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765011   (101377) от 14.12.2024
-
-VA - Beach Grooves Maretimo, Vol.5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cinematic - Skydive (Beachbar Mix) (4:19)
-02. Vladi Strecker - Spanish Girl (Bossa Chill Cut) (4:52)
-03. Airstream - Particle (Pulse Mix) (4:52)
-04. Groove Gauchos - Tequila Sunrise (Blue Bossa Mix) (4:41)(   Читать дальше...   )Жанр: Beach House, LoungeПродолжительность: 01:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D02B2CBBD3E901795022D567F82366E872DE220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765724   (101375) от 14.12.2024
-
-VA - Best Gym & Fitness Music 2024 [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ALVSTOR - Lets Go (3:07)
-02. KAYNARD - Ethnica (2:35)
-03. NEAMARTI - Vibe Sound (3:06)
-04. El Ram - Petrunko 2024 (2:13)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA5155279D4E697917F128FBCBB884559530612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765900   (101322) от 15.12.2024
-
-VA - Feel The Burn Body Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'Mixmasters - Too Much (Fitness Version 128 Bpm 32 Count) (4:00)
-02. DJ Space'c - Both (Fitness Version 128 Bpm 32 Count) (3:45)
-03. D'Mixmasters - Rock My Body (Fitness Version 128 Bpm 32 Count) (4:00)
-04. Kangaroo - Red Flags (Fitness Version 128 Bpm 32 Count) (4:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0597CAC5E4B904AFCC458E2EA29D165A25DC7BA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 992416   (901002) от 02.03.2016
+
+VA - Water Oblivion: Chillout Deep Session (2016) [MP3|320 кб/с] <Chillout, Longe, Downtempo, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901002.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Don Gorda Project - Do That Again
+002. Stephane Lumiere - Together
+003. Kai French - Electronic Bird
+004. Mauro Rizzo - I Will Find My Path Again (No Gravity Version)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Deep HouseПродолжительность: 08:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952EE0E4493B8388E3BA652207D2C7779A48BEFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992495   (900978) от 02.03.2016
+
+VA - Драйвовый клубный музон (2016) [MP3|320 кб/с] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petrovic - Jackpot (Original Mix)
+02. Nicky Romero - Lighthouse (Radio Edit)
+03. Lian Ross - Brother Louie
+04. Of Norway & Linnea Dale - Spirit Lights (Adriatique Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63B8FF679C6D26D0E6498225A6019F0D1F9DC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992567   (900973) от 02.03.2016
+
+VA - German Dance Hits №7 (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900973.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. X Ambassadors - Renegades
+002. Major Lazer feat. Nyla - Light It Up
+003. G-Eazy X Bebe Rexha - Me, Myself & I
+004. Lukas Graham - 7 Years(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FBA3FE29EC520469E619D42E19F25991DB24C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992570   (900962) от 02.03.2016
+
+VA - Radio Eurodance: Big Format Club House Mix (2016) [MP3|128-320 кб/с] <Club House, Dance, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Red Buddha - Engine Fire
+002. Dani Zavera - Looking For
+003. Joseph Capriati - Basic Elements (Luigi Madonna Remix)
+004. Max D. Blas - You Belong to This (Markus Fix Remix)(   Читать дальше...   )Жанр: Club House, Dance, ElectroПродолжительность: 14:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B485372189F7679F4E4F052E773AF28143DDB04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991801   (900925) от 02.03.2016
 
 VA - Fitness Mania Vol. 4 (2016) [MP3|320 кб/с] <Club, Dance, House, Euro>
@@ -635,122 +751,6 @@ VA - 100 пудовые зимние хиты от Европы Плюс Вып�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6841899B4153AC204EABCB9EBF13AAC7F0781DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100380   (899650) от 04.02.2017
-
-VA - Jazz, Relax and Baby. Instrumental Music for Calm Down (2017) [MP3|320 Kbps] <Jazz, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Newborn Baby Song Academy - Jazz Music
-02. Jazz Music Collection - Baby Music
-03. Baby Lullabies Music Land - Relaxing Music
-04. Good Mood Music Academy - Positive Thinking(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14758094051B05E58E7A21AE4103631B4B9D0B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992846   (899409) от 03.03.2016
-
-Виктор Куцов - Сыпал снег буланому под ноги (1990) [MP3|128 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кузькина любовь
-02. Сыпал снег буланому под ноги
-03. Не губите молодость ребятушки
-04. Душистая аллея(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01015558374D9DE4FA5A877D8A70C7B187546225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992692   (899312) от 03.03.2016
-
-VA - Deep House Generation (2016) [MP3|320 кб/с] <Deep House, Electro, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899312.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jutty Ranx - I See You (Pretty Pink Remix)
-002. Deep Progression - Rome (5th Avenue Mix)
-003. Sigala - Sweet Lovin' (feat Bryn Christopher - House Robot remix)
-004. South Soul - Some Chords (Velvet & Deep Club Mix)(   Читать дальше...   )Жанр: Deep House, Electro, ClubПродолжительность: 13:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E85599EED662C35C73CCB1F4FB4996852AFFAD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992661   (899302) от 03.03.2016
-
-VA - How Deep Is Your Love (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Festina Lente - Feel It - Fab Stellar Remix
- 02. Deep-X - See Things Around
- 03. Daniel Floor - Thinkin' About You
- 04. Colt! - Dub3m - Lowpole Remix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86984FB36682813D0F11B2FC48E902DDD8FDCACE
 ```
 
 https://mybot314.ru/tekegram_catalog/

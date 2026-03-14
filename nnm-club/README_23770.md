@@ -1,22 +1,22 @@
-###  Публикация: 1734491   (107129) от 03.07.2024
+###  Публикация: 1727211   (108563) от 01.06.2024
 
-Игра королевы / Firebrand (2023) WEB-DL [H.264/1080p] [звук с TS]
+MotoGP. Этап 07 из 20. Гран-при Италии. Квалификация (01.06.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
 
->>
->>
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107129.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Историческая драма о Екатерине Парр, последней жене британского короля Генриха VIII. Несмотря на привычную жестокость Генриха к своим супругам, Екатерине удалось пережить монарха.Производство: Великобритания, США / Brouhaha Entertainment, FilmNation Entertainment, Magnolia Mae FilmsЖанр: драма, историяРежиссер: Карим АйнузАктеры: Алисия Викандер, Джуд Лоу, Эдди Марсан, Сэм Райли, Брайони Ханна, Миа Триплтон, Руби Бенталл, Саймон Расселл Бил, Эрин Доэрти, Амр ВакедПеревод: Дублированный (Мосфильм-Мастер) звук с TSЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:39
+1 июня 2024, суббота. 11:50 МСК. Этап 7, Тоскана. Гран-при Италии КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:53:43
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CAC0931F70E055FA1967CC8E77953EB388F84631
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734432   (107128) от 03.07.2024
+###  Публикация: 1727029   (108562) от 01.06.2024
 
-Канава / Dobu / The Ditch (1954) DVDRip [H.264] [JP / RU, EN Sub]
+Flame Dream - Silent Transition (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Rock>
 
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107128.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Току и Пин живут в трущобах возле болота. Их жизнь такая же непутевая, как и их жилье. Они прожигают дни в тщетной надежде выиграть на тотализаторе. И вот появляется грязная и безумная Цуру, наивность и искренность которой может изменить их жизнь. Воспользуются ли они этим шансом?Производство: ЯпонияЖанр: драмаРежиссер: Канэто СиндоАктеры: Нобуко Отова, Таидзи Тонояма, Дзюкити УноПеревод: субтитрыЯзык озвучки: японскийСубтитры: русские (дед_сто_лет), английскиеПродолжительность: 01:51:16
+01. No Comfort Zone [00:11:26]
+02. Silent Transition [00:12:28]
+03. Velvet Clouds [00:10:30]
+04. Out from the Sky [00:06:26](   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:02:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E314A06A431AC19B1F061EE4A2B3B7E1C65E644D
+magnet:?xt=urn:btih:C22328A3F0E4557E096D75E5CAA4CE89580EA24C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,26 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734386   (107127) от 03.07.2024
+###  Публикация: 1727303   (108561) от 01.06.2024
 
-Topaz Gigapixel AI 7.2.1 RePack (& Portable) by elchupacabra [En]
+Сретенский монастырь | Православный акафистник (2015) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Архив торрентов
->>Архив Программ
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107127.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Topaz A.I. Gigapixel — это приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются.
-Эти традиционные методы (   Читать дальше...   )Язык интерфейса: Английский
+Тексты всех акафистов настоящего издания соответствуют текстам, полученным из Издательского совета Русской Православной Церкви и рекомендованным к публикации.Жанр: ПравославиеИздательство: Сретенский монастырьФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BEF59F4D02D758E0A629D0D18266203F8CE0493
+magnet:?xt=urn:btih:B87FC644E440D8EF37513D7C3B559A6D8BF8306F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,109 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734508   (107126) от 03.07.2024
+###  Публикация: 1727163   (108560) от 01.06.2024
 
-Pulsar Modular Complete Effects Bundle 2024.7.2 VST3, AAX (x64) RePack by TCD [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный набор плагинов от Pulsar Modular для микширования, мастеринга и работы с эффектами.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E6E3D7E93A5FC161D6579ADE89B5973C778BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734377   (107125) от 03.07.2024
-
-Keane – Glastonbury (2024) HDTVRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление английской группы Keane на ежегодном фестивале современного искусства в Glastonbury, Англия. Группа Кин заслужила множество похвал от фанатов во время выступления на фестивале в Гластонбери 2024 года, а вокалист Том Чаплин покорил сердца тысяч своих поклонников.  Альтернативная рок-группа вышла на сцену Pyramid в субботу днем 29 июня во 2-й день фестиваля. (   Читать дальше...   )01. Keane - Bend And Break
-02. Keane - Silenced By The Night
-03. Keane - Nothing In My Way
-04. Keane - We Might As Well Be Strangers(   Читать дальше...   )Производство: Великобритания / BBCЖанр: Alternative rock, rock, post-BritpopУчастники: Tom Chaplin, Richard Hughes, Tim Rice-Oxley, Jesse QuinПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF7AC50027CD44D288154167207A614A326591B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734418   (107124) от 03.07.2024
-
-Kingshuk Ghosha (editor) | Bugs (2016) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Profiling more than 200 insects and bugs, from beetles and butterflies to spiders and scorpions, find out what bugs eat, which are poisonous, which live the longest, and which can be found in your own backyard. Plus, learn about the products we get from bugs, such as honey, ink, silk, and jewelry, and how bugs and insects play important roles in our world. Catalog (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA5A849ED968250747001F08F8BAEAF55779DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734358   (107123) от 03.07.2024
-
-VA - Trance Selected Vol. 1 (2024) [MP3|320 Kbps] <Trance>
+Pinhdar - A Sparkle on the Dark Water (2024) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop>
 
 >>Electronic
->>Trance
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107123.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Kazal - Artemis' Love (Extended Mix) [6:54]
-02. Super Luminal - Dark Robe Lane (Extended Mix) [7:33]
-03. Steve Sunrise - Agua (Original Mix) [4:46]
-04. Static State (UK) - Transcended (Extended Mix) [7:03](   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:11
+01. In The Woods [00:04:59]
+02. Cold River [00:04:24]
+03. Home [00:03:58]
+04. Little Light [00:04:24](   Читать дальше...   )Жанр: Trip HopПродолжительность: 00:47:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2231E130BCF9B3DDCE48E58C40D2CB24DEF81FB1
+magnet:?xt=urn:btih:64B9AD352CA1DFF29730C8A4ABA90506A61BC24F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,25 +108,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734434   (107122) от 03.07.2024
+###  Публикация: 1727190   (108559) от 01.06.2024
 
-Владислав Конюшевский | Попытка возврата (Книга 3). По эту сторону фронта (2024) [MP3, Виктор Бабков]
+НХЛ. Кубок Стэнли 2024. Запад - Финал. 5-й матч. Эдмонтон Ойлерз - Даллас Старз (31.05.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107122.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-До конца войны остаются считанные месяцы и бойцы Особой группы Ставки, нацеленные на поиск объектов Аненербе, неожиданно получают другой приказ. На этот раз действовать им придется не в немецком тылу, а на освобожденной территории. Недовольный Илья Лисов считает это «отрывом от основной работы», не предполагая, во что может вылиться выполнение нового задания.Жанр: Историческая фантастика, Альтернативная историяИздательство: Издательство (АСТ)Продолжительность: 11:07:46
+1 июня 2024, суббота. 03:30 МСК. Финал - Запад. 5-й матч. Стадион: Американ Эйрлайнс-центр (Даллас, США), 18 532 зрителя (98% при вместимости 18 889)
+Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада); Линейный: Скотт Черри (Дрэйтон, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6EAD9E68F379EC5EE168BE20AF07AED55C34675
+magnet:?xt=urn:btih:38D31BE764B2FBCA351D5597D61054323D0FA89B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -213,28 +135,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734313   (107121) от 03.07.2024
+###  Публикация: 1727210   (108558) от 01.06.2024
 
-Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Experimental>
+Минтранс. Тест-драйв BAIC BJ40 2023 (01.06.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108558.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Несправедливый штраф. Как обжаловать?
+🔸 Тест-драйв BAIC BJ40 2023: внедорожник с вопросами.
+🔸 Небольшая, но важная деталь. Что будет, если не менять топливный фильтр?
+🔸 Передняя подвеска. О чем надо знать бережливому автовладельцу?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA0519EFE08FB0515556614638C82391ED04FC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727087   (108557) от 01.06.2024
+
+Beak> - >>>> (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-Hop, Experimental rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107121.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Kembatinan Premaster
-A2 Pious Breath
-A3 Bloud And Souls
-A4 Melancholike(   Читать дальше...   )Жанр: Black Metal, ExperimentalПродолжительность: 00:34:43
+01. Strawberry Line [00:08:00]
+02. The Seal [00:06:10]
+03. Windmill Hill [00:02:25]
+04. Denim [00:05:44](   Читать дальше...   )Жанр: Trip-Hop, Experimental rockПродолжительность: 00:51:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E29ED58EA0DA8B7EA234A476CCF052BAFDACECC1
+magnet:?xt=urn:btih:EB0C0430E2D01AB7C1E663CA997957C38079FE57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -242,28 +193,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734277   (107120) от 03.07.2024
+###  Публикация: 1727154   (108556) от 01.06.2024
 
-Jacek Siciarek - In Yo Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+Журнал | Сваты на даче №5 (113) (май 2024) [PDF]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107120.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108556.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What For Blues (3:17)
-02. In Yo Soul (3:33)
-03. Jose Maria (4:43)
-04. Slow Jam (3:51)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:38:51
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0C6F276FD983CEB83283919200C9D8C02467DE4
+magnet:?xt=urn:btih:CF301B962D0BD994C882565EA087BDED0D6ACCBD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -271,27 +219,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734431   (107119) от 03.07.2024
+###  Публикация: 1620349   (108555) от 01.06.2024
 
-Народ | Сказки народов мира. Сказки народов тайги и тундры. Война щук с куропатками (1981) [MP3, Ростислав Плятт]
+Goat Explosion - Threatening Skies (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom, Stoner, Metal>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107119.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108555.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Сказки народов мира. Сказки народов тайги и тундры.
-Литературно обработанные сказки народов Дальнего Востока и Крайнего Севера.
-В аудиокниге собраны лучшие образцы сказочного творчества народов Дальнего Востока и Крайнего Севера, проживающего в Сибири, на Крайнем Севере, по берегам рек Обь и Иртыш. Из этих сказок ты узнаешь, как люди живут в тайге и тундре: (   Читать дальше...   )Жанр: Литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:10:19
+01. Thundertower [00:04:42]
+02. Dawn Of The Red [00:04:45]
+03. The Slumbering Judgement [00:11:13]
+04. Sinking Shift [00:15:53](   Читать дальше...   )Жанр: Heavy, Doom, Stoner, MetalПродолжительность: 00:59:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE16A60CC07115CF8F1C64D07932BD7712AB1273
+magnet:?xt=urn:btih:F5F40AA036951600D707DB3F374FCED104C4D64D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,28 +248,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734284   (107118) от 03.07.2024
+###  Публикация: 1727179   (108554) от 01.06.2024
 
-Jasper & Jade - The Copper God (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+VA - Ibiza Chilled Nights (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107118.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Big Bang (4:26)
-02. Wildfire (5:16)
-03. Dangerous Love (6:30)
-04. Anymore (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:13
+01. Lost Soul, Jayanth Ak & AVNG - Testify (02:45)
+02. Anka - Darling (02:44)
+03. Harmonize - Show Me Love (05:10)
+04. Ijan Zagorsky, Katya Olszewska & Sean Sago - End Of The Night (05:27)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:13:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DE1487C19C3D84B6475B2196E9E0C929BE5799A
+magnet:?xt=urn:btih:AD6C5116F65CF4BD27F18FA06DD7FBEC95709A70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,28 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734280   (107117) от 03.07.2024
+###  Публикация: 1727246   (108553) от 01.06.2024
 
-James McKinley - Working Class Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Demonic Manifestation - World of Horror (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107117.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Movin' (3:27)
-02. Get To My Baby (3:04)
-03. Always on My Mind (2:58)
-04. Just a Little Bit (3:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:09
+01. Primordial Domination
+02. Demonic Possession
+03. Graveyard Rites
+04. Corrosive Humanity(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:712840BD75D84010889C92EC39FCE6C6279802A2
+magnet:?xt=urn:btih:C6412D7B0835840DD3F8747325E4CFB89D6E04F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,28 +306,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734355   (107116) от 03.07.2024
+###  Публикация: 1727015   (108552) от 01.06.2024
 
-Louis Prima - The Very Best Of Louis Prima (1956 - 1962) 2CD, 2016, Not Now Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+Dead Head - Swine Plague (2017) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helhuizen
+02. Duhr
+03. Palfium
+04. Fortress Of Greed(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6374E11EFD332DA5FC2E18463FF61AB7A623D287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727251   (108551) от 01.06.2024
+
+Demonic Manifestation - Necrokult (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infernal Nightmares
+02. Lake Of Blood
+03. Chainsaw Dismemberment
+04. Death Breath(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFC7C4FAA98AF102D31F27AC655CF2C11A56933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727188   (108550) от 01.06.2024
+
+Bongzilla - Dabbing Rosin in Europe (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sundae Driver (00:04:36)
+02 - King of Weed (00:05:46)
+03 - Free The Weed (00:06:26)
+04 - Greenthumb (00:04:06)(   Читать дальше...   )Жанр: Sludge, Doom, Stoner MetalПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200AC45E46E9DD252628FFE58839CDCA715D9211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727139   (108549) от 01.06.2024
+
+Mary Lou Williams - Solo Recital: Montreux Jazz Festival (1978) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107116.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108549.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jump Jive An' Wail [3:27]
-02. Allright, Okay, You Win [2:22]
-03. Sentimental Journey [2:23]
-04. Just One Of These Things [2:34](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:28:20
+01. Medley [11:26]
+02. Over the Rainbow [4:20]
+03. Offertory Meditation [5:47]
+04. Tea for Two [1:56](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 00:45:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:740989F8D55A49145A2D38DE5CEFF6E2B07E9E1E
+magnet:?xt=urn:btih:0CD89FCE25A7B87EFEED06F1E3084B33A4D15B25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,142 +422,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734444   (107115) от 03.07.2024
+###  Публикация: 1727181   (108548) от 01.06.2024
 
-Charlie Gardner, Jennifer Quasha (еditors) | Butterfly (2004) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Age Range: 5 - 8 years
-Grade Level: Kindergarten - 3
-Follow a Swallowtail butterfly from egg to caterpillar to pupa and then on to becoming a beautiful butterfly.
-Watch Me Grow, a groundbreaking series from DK, brings readers ages 5 and up into the fascinating world of animal development. Close-up photographs give children an animal's eye-view of growing up, while (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley PreschoolФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFE097D03BCA5285F4B0CB62841A2E55A0F00D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734287   (107114) от 03.07.2024
-
-John Albert - Down the Rabbit Hole (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't That I Don't Love You (3:52)
-02. What Do You Do When You Love Somebody (5:10)
-03. Ain't No Big Deal On You (3:28)
-04. Love Her With A Feeling (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9C01CCD55EAF068B7AC2CB04EC67F3646FE780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734435   (107113) от 03.07.2024
-
-John Woodward | Horses (2014) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107113.jpg" />
-</div>
-
-
-###  Подробнее
-
-For every young horse fan who's ever dreamed of having his or her own pony, comes Horses: The Ultimate Treasury. Age Range: 8 - 12 years
-From wild horses and zebras to working horses like the Clydesdale, Shire, Percheron, and the American Saddlebred, Hackney, and Missouri Fox Trotter, learn about horses from around the world and throughout history. Discover how horses (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFC34F96A5387E17943946072E25C84C0E49AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734285   (107112) от 03.07.2024
-
-Joe Clark - Hillbilly Voodoo (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enemy (3:02)
-02. Castaway (5:40)
-03. Get outta here (3:26)
-04. It is what it is (6:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77BB730EB862E32AAE5EA1554450D68DFBB1F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734481   (107111) от 03.07.2024
-
-Lacey Sturm (ex-Flyleaf) - Kenotic Metanoia (2023) Deluxe Edition, 2024, Independent [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Alternative Rock>
+Shrapnel - In Gravity (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107111.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (My Heartbeat) [00:02:17]
-02. State of Me [00:03:14]
-03. Are You Listening [00:04:07]
-04. The Decree [00:04:14](   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 01:32:13
+01. In Gravity
+02. Amber Screams
+03. Guardian
+04. Breaker(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DDFFC43A0AC6CF03A93DEAB9AEB38F8ACE011C1
+magnet:?xt=urn:btih:CE931727AE1BA471AE047E962435FE03183B7AFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,28 +451,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734320   (107110) от 03.07.2024
+###  Публикация: 1726990   (108547) от 01.06.2024
 
-Чай Вдвоем - Вечернее Чаепитие (2005) [WavPack|Lossless|image + .cue] <Pop>
+Dead Head - Depression Tank (2009) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
 
->>Pop
->>Отечественная поп-музыка (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107110.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. А Ты Все Ждешь
- 02. Камчатка
- 03. Не Родная
- 04. Белая Ночь(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:22
+01. Dissolved In Purity
+02. Green Angel
+03. Cryptocynic
+04. The Swing(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:41:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5BD222BB2C69996158037C26E6AF44D4E9A3EDE
+magnet:?xt=urn:btih:35FC2D870477AABB02C330EAC84FEDDBF3AD7DAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,26 +480,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734423   (107109) от 03.07.2024
+###  Публикация: 1727214   (108546) от 01.06.2024
 
-Carole Stott, Sam Priddy, Jolyon Goddard, SusaMcKeeve, Bernadette Crowley (еditors) | Night Sky (2018) [PDF] [EN]
+Сергей Михалков | Дядя Стёпа (2012) [MP3, Сергей Михалков]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107109.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Explore Nature with Fun Facts and Activities. Age Range: 6 - 8 years.
-A fantastic first book on our universe. Explore the world of stars, planets, and astronomy. Discover what a star is, how the moon looks close up, and what tools astronomers use to look at space. With exciting activities, like how to look at the sun safely, and plenty of fun facts, this book is (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
+Серия/Цикл: Мелодия – детям.
+Сергей Владимирович Михалков (1913—2009) – советский и русский писатель, поэт, баснописец, драматург, военный корреспондент во время Великой Отечественной войны, автор текста двух гимнов Советского Союза и гимна Российской Федерации, председатель СП РСФСР. Наибольшую известность Михалкову принесли его произведения для детей.
+Кто не знает (   Читать дальше...   )Жанр: Русская литература для детей, стихиИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:43:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1125515EEEE5AC287A39BCD61D62AE03B3733AB7
+magnet:?xt=urn:btih:62DA0BD06136651A8821A0F9C38087334C14AD67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,28 +508,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734289   (107108) от 03.07.2024
+###  Публикация: 1727142   (108545) от 01.06.2024
 
-Josie Field - Blue Planet (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Houston Person & Ron Carter - The Complete Muse Sessions (1989, 1990) 2CD, 1997, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107108.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Reminds Me of Me (3:08)
-02. Blue Planet (3:11)
-03. Where to Begin (3:14)
-04. Miami (Blues Remix) (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:31
+01. Bemsha Swing [5:25]
+02. Spring Can Really Hang You Up the Most [5:10]
+03. Einbahnstrasse [5:03]
+04. Memories of You [4:52](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:39:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DB9ADFCF28F912BC63BE072AA51B9BF67162E9F
+magnet:?xt=urn:btih:6EFC5CB9BEF15F7E079311A79A78A712CC3CA769
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,113 +537,198 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734282   (107107) от 03.07.2024
+###  Публикация: 1727226   (108544) от 01.06.2024
 
-Jason Lane Band - Full Steam Ahead (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Юрий Коваль | Кепка с карасями (1975) [MP3, Вячеслав Захаров и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива Гостелерадиофонда
+«Кепка с карасями» – инсценировка по рассказам Юрия Иосифовича Коваля (1938–1995).
+В неё включены лучшие рассказы известного детского писателя, «По лесной дороге», «Чистый Дор», «Около войны», «Лесовик», «Кепка с карасями», «Нулевой класс», полные лиризма и мягкого юмора.
+(   Читать дальше...   )Жанр: Русская литература для детей, проза, рассказИздательство: ГостелерадиофондПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55412A68B940ED5BC773F120996B5A17CB701911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727221   (108543) от 01.06.2024
+
+Тамара Габбе | Волшебные кольца Альманзора (2012) [MP3, Георгий Менглет и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям.
+Куда только не переносит нас сказка – чудесное сочетание были и небыли. Мы оказываемся над облаками и под землей, слышим, как переговариваются между собой птицы и звери, усваиваем диковинные названия стран и имена героев, пугаемся и облегченно вздыхаем, когда, как и положено в сказке, разум и доброта одерживают трудную и прекрасную победу (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F2F9A690153789D7BEACE12C73B5C7A3830CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727193   (108542) от 01.06.2024
+
+Людмила Зубкова | Ох и Ах и другие (2012) [MP3, Александр Бордуков, Александр Клюквин и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская литература.
+Всё-таки в нашем недавнем советском прошлом не все было так серо, тускло и безнадежно, как часто показывают нам в кадрах документальных фильмов, или рассказывают со страниц журналов и газет. Кроме очередей и пустых прилавков были еще и замечательные детские стихи и сказки, такие например, как представлены в сборнике «Ох и Ах и другие». (   Читать дальше...   )Жанр: Русская литература для детей, стихи, сказкаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C7D6CFF4519971A29B409D1D1BF15D4227335B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727054   (108541) от 01.06.2024
+
+Dead Head - Shadow Soul (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Litany of the Weak (00:04:15)
+02 - Serpents of Fame (00:04:44)
+03 - Caverns of Fate (00:05:14)
+04 - Defiance (00:01:42)(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31AE3284899A62C870E6E54EA0CB8C60E92EE246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727175   (108540) от 01.06.2024
+
+Cloven Hoof - Heathen Cross (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benediction
+02. Redeemer
+03. Do What Thou Wilt
+04. Last Man Standing(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85374AE2CDA7150D5B344BC083890BDDF347928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727048   (108539) от 01.06.2024
+
+Cosmic Jaguar - El Era Del Jaguar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Avant-Garde Death Metal, Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God of Sun and War [00:04:19]
+02. Eight Lord of Nights [00:04:51]
+03. Solar Logos [00:06:37]
+04. Ashes in Eyes [00:05:35](   Читать дальше...   )Жанр: Avant-Garde Death Metal, Folk MetalПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B6563DA81FC02AE84ABECC81F3C842D3AA537E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726997   (108538) от 01.06.2024
+
+Carmen McRae - Great Women Of Song (1955 - 1959) 2024, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107107.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Light My Way (4:12)
-02. Born on the Bayou (4:59)
-03. Say It's True (4:41)
-04. Change (4:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:40
+01. Love Is Here to Stay [2:40]
+02. When I Fall in Love [3:47]
+03. You Don't Know Me [2:45]
+04. Whatever Lola Wants [3:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC1F8A6F2BF12D44B67003A0DF2F8323A4E7CF77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734419   (107106) от 03.07.2024
-
-Футбол. Чемпионат Европы 2024. 1/8 Финала. Румыния - Нидерланды (02.07.2024) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Чемпионат Европы 2024. 1/8 Финала. Румыния - Нидерланды (02.07.2024)
-СУДЬЯ Цвайер Феликс (Берлин, Германия)
-Судья на линии 1: Лупп Штефан (Германия)
-Судья на линии 2: Ахмюллер Марко (Германия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE7E46BF0AC48C6A92835A60AEC738BFAF9366B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734496   (107105) от 03.07.2024
-
-Plugin Boutique - DC Snares 1.0.1 VSTi 3, AAX (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Появился идеальный комплект для создания малого барабана. DC Snares разработан для того, чтобы упростить ваш рабочий процесс и оказать серьезное влияние на ваше творчество.
-Независимо от того, изучаете ли вы сотни специально созданных встроенных звуков, экспериментируете ли со специальным синтезаторным движком, встроенным рандомизатором или просто накладываете свои (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4CA4C721A147CD6CE54E20A4DA49BD3D650B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734494   (107104) от 04.07.2024
-
-Billie Piper - Walk Of Life (2CD) (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day & Night (StarGate Mix) [00:03:15]
-02. Something Deep Inside [00:03:22]
-03. Walk Of Life [00:03:49]
-04. Safe With Me [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB93021FC070AB738D0B871385C2E26B01BD2CF
+magnet:?xt=urn:btih:0925A28A27B956021D79B8DDBD41CF032C6C61CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

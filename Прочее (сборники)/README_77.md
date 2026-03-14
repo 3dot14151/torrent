@@ -1,3 +1,32 @@
+###  Публикация: 1292764   (643179) от 31.03.2019
+
+VA - Best 2O19 (mCITY Edition) (2019) [MP3|320 Kbps] <Pop, Dance, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Walker - Alone (2:40)
+02. Calvin Harris - Promises (Sonny Fodera Disco Mix) (3:57)
+03. Halsey - Hurricane (Arty Remix) (3:45)
+04. Ferreck Dawn, Joe Stone - Man Enough (Extended Mix) (4:01)(   Читать дальше...   )Жанр: Pop, Dance, TranceПродолжительность: 03:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174F38F16F7B59A851328989A128C712015DE116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292823   (643082) от 31.03.2019
 
 VA - не Громкие новинки недели 8 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -746,35 +775,6 @@ VA - Hardstyle Dance Party (2019) [MP3|320 Kbps] <Hard Dance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:708F03ADCDE7FEE758D16DE84C3F22ADF2BE36EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143275   (637467) от 17.06.2017
-
-VA - Empire Records - Retromania 3 (2017) [MP3|320 Kbps] <Nu Disco, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cristian Ferrer feat. Chelsea West - You're The One (Vicent Ballester Remix)  5:45
-02.  NekliFF & Mary S.K. - Parallel Life (Original Mix)  5:24
-03.  Mr. DJ Monj - Smoke Machine (Nikko Culture Remix)  4:38
-04.  Sandy Rivera feat. DaNii - You Work Hard For Your Enemy (Extended Mix)  5:51(   Читать дальше...   )Жанр: Nu Disco, Deep HouseПродолжительность: 02:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:140374D3E4DB2B1069E3C54473006B8C1BBFD7BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

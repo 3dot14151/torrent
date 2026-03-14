@@ -1,3 +1,32 @@
+###  Публикация: 1099962   (901857) от 03.02.2017
+
+VA - San Valentino Cocktail In Love (2017) [MP3|320 Kbps] <Lounge, Jazz, Chillout, Lo-Fi>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901857.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. St Project - Smooth Operator (feat. Ely Bruna) 3:58
+2. Dolce Vita - And I Love Her 3:13
+3. Martini - One Call Away 3:15
+4. Hollywood Blvd - All Of Me 4:36(   Читать дальше...   )Жанр: Lounge, Jazz, Chillout, Lo-FiПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF769499EE002BF40CADF0A6FE8BCE94B342BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100299   (901194) от 03.02.2017
 
 VA - Фитнес - Хит (2017) [MP3|217-320 Kbps] <Dance, House>
@@ -722,35 +751,6 @@ VA - Зажигательный музыкальный отрыв (2016) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BF5984F0DCC9916E07DBA7B2A3B45CB8D55BFC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993539   (895434) от 05.03.2016
-
-VA - 8 Марта. Корпоратив №1 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflex - Говори Со Мной
-02. Natan - Я Тебя Выберу
-03. Потап и Настя - Умамы
-04. Кристина Кос - Ты Мое Счастье(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 06:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F4F46BCFDEBC3F98C659B3679BF3A0AA37C16D
 ```
 
 https://mybot314.ru/tekegram_catalog/

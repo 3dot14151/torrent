@@ -1,3 +1,32 @@
+###  Публикация: 1035696   (626705) от 17.07.2016
+
+VA - 50 Best of Summer Workout Hits (2016) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Berlin Minimal - Schonefelder Weiden
+02. Lieblingsplattendreher - Wo Das Kitscht so Nice (Progressive Minimal Ska Mix)
+03. Del Do Ra - Beergarden Melody
+04. Crazy Krauts - Vorfreude(   Читать дальше...   )Жанр: HouseПродолжительность: 05:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B678F11951E3DFAE6B419A256623AB3A4007F06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035466   (626661) от 17.07.2016
 
 VA - Summer Session 2016 (mixed by Dj V) (2016) [MP3|320 Kbps] <Club House, Disco House, Dance>
@@ -728,35 +757,6 @@ VA - Best Cocktail Party Music: Lounge and Jazzy Moods Selection (2016) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDAD70314AD48E564F38FC9EBA93986BB03AD53B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036394   (621158) от 20.07.2016
-
-VA - Top Radio Charts Sublime Multigenre (2016) [MP3|320 Kbps] <Trance, House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren -  Eiforya (Talla 2xlc 140 Radio Edit) 2:45
-002. Talla 2XLC pres. Alan Walker -  Faded (DJ Aleksard Mashup) 6:35
-003. W&W -  Lift Off! (Radio Edit) 3:04
-004. Photographer -  Airport (Radio Edit) 4:43(   Читать дальше...   )Жанр: Trance, House, ProgressiveПродолжительность: 09:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991D8E84C97AAD7096B78155E4282E541577C117
 ```
 
 https://mybot314.ru/tekegram_catalog/

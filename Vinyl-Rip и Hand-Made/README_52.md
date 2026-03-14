@@ -1,3 +1,117 @@
+###  Публикация: 1661987   (188279) от 16.09.2023
+
+Vindictiv - Studio Albums (4 releases) (2008-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vindictiv - прогрессив-метал группа из Стокгольма, Швеция, основанная в 2004 году.2008 - Vindictiv
+2009 - Ground Zero
+2013 - Cage of Infinity
+2015 - World of FearЖанр: Progressive MetalПродолжительность: 03:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF08D1759784C11927F4FAAC539A42BA7AE0D34B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662007   (188255) от 16.09.2023
+
+Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mark Robert Boals (родился 5 декабря 1958 г.) - американский хэви-метал вокалист1998 - Ignition
+2000 - Ring Of Fire
+2002 - Edge Of The WorldЖанр: Power MetalПродолжительность: 05:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9BF7D6F234F9345E1DB71915500F6983F1995D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583852   (188193) от 16.09.2023
+
+Stone Sour (Corey Taylor, Slipknot) - Studio Albums (10 releases) (2002 - 2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Heavy Metal ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_188193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stone Sour — американская метал-группа, образованная в 1992 году в Де-Мойне, штат Айова. Её основатели — Кори Тейлор, ставший известным как вокалист группы Slipknot, а также барабанщик Джоел Экман. Просуществовав до 1997 года, коллектив прекратил свою деятельность, но в 2000 году, после успеха дебютного альбома Slipknot, Тейлор с Экманом решили вернуться к своему (   Читать дальше...   )2002 - Stone Sour
+2006 - Come What(ever) May
+2010 - Audio Secrecy
+2012 - House Of Gold And Bones - Part 1Жанр: Hard Rock, Heavy MetalПродолжительность: 09:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E4519727C61B26E164259B1C28DFA4215BA805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827449   (188101) от 21.10.2025
+
+Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винсент Нил Уортон (англ. Vincent Neil Wharton; род. 8 февраля 1961, Голливуд, США) — американский музыкант, вокалист, в первую очередь известный как вокалист американской глэм-метал-группы Mötley Crüe1993 - Exposed
+1997 - Carved In Stone
+2010 - Tattoos & TequilaЖанр: Hard RockПродолжительность: 02:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3859703AFDF4F32DD867C90A54641393996B9248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662444   (188078) от 17.09.2023
 
 Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
@@ -621,122 +735,6 @@ Vader — польская дэт/трэш-метал группа, основа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B21BD40FAFB97AF20AC965FB64E0BE21F0A406A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592781   (182296) от 24.11.2022
-
-Alter Bridge (Creed, Tremonti) - Studio Albums (7 releases) (2004 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Post-Grunge, Heavy/Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alter Bridge — американская рок-группа из Орландо, штат Флорида. Группа была создана в 2004 году бывшими участниками группы Creed (которая распалась за год до того из-за внутренних творческих разногласий) вокалистом и гитаристом Майлзом Кеннеди, ведущим гитаристом Марком Тремонти, басистом Брайаном Маршаллом и барабанщиком Скоттом Филлипсом.2004 - One Day Remains
-2007 - Blackbird
-2010 - AB III.5
-2013 - Fortress(   Читать дальше...   )Жанр: Post-Grunge, Heavy/Progressive MetalПродолжительность: 07:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D246219CCD7C28187966639CE45A61F82177B0DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665572   (181613) от 01.10.2023
-
-October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181613.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Quiet Shores
-A2 Usher
-A3 Tuoni
-A4 Harvest(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286D147BF5175D13BBB35059C4C2EEA5C0C1B24C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665649   (181262) от 01.10.2023
-
-Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI Records Ltd. [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181262.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Вернись К Тому, Кого Любишь • Lay Back In The Arms Of Someone
-A2 Мне Грустно От Чего-то • Something's Been Making Me Blue
-A3 Если Ты Думаешь, Что Любишь Меня • If You Think You Know How To Love Me
-A4 Передай По Кругу • Pass It Around(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0718BE65DF1F601E27263ED05CC94FAF316A20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665746   (180956) от 02.10.2023
-
-October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180956.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Marras I
-A2 Marras II
-A3 Marras III
-A4 Marras IV(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:866859237EE73B837E31A8575A50C5D43C9EC52E
 ```
 
 https://mybot314.ru/tekegram_catalog/

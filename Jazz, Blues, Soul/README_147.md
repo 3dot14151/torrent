@@ -1,3 +1,177 @@
+###  Публикация: 1279566   (765453) от 30.01.2019
+
+Beegie Adair - Love Letters: The Beegie Adair Romance Collection (2011) 2CD, Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765453.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Love Letters [4:11]
+02. Strangers in the Night [3:34]
+03. So in Love [5:40](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 02:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F03FF4E7A2A32C9A094637948F181A5D523770D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521437   (765230) от 02.01.2022
+
+VA - The Art Of The Piano: Trio, Quartet, Quintet and Beyond (Milestones of Jazz Legends) (1947 - 1962) 10CD, 2020, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Hard B ...
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765230.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Bill Evans - My Foolish Heart [4:58]
+02. Bill Evans - Waltz for Debby [7:00]
+03. Bill Evans - Detour Ahead [7:37](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 12:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC9B70D9806AA55E3E45EBA06FC75F29E227448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521483   (765227) от 02.01.2022
+
+Harold Mabern Trio - Falling In Love With Love (2002) Venus Records [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Every Man, There's A Women [5:18]
+02. Falling In Love With Love [5:08]
+03. Get Back Jack, Do It Again [6:08]
+04. Why Did I Choose You [6:53](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB148B3B6EF1109F70C458D88E0B7FB5A76A416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521476   (765221) от 02.01.2022
+
+Harold Mabern Trio - Don't Know Why (2004) Venus Records [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edward Lee [6:24]
+02. Dance with Me [6:43]
+03. My Favorite Things [5:23]
+04. Don't Know Why [4:44](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A102406E783F47D0A13F8EE45737A0B5300800A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214339   (764980) от 21.03.2018
+
+Bud Freeman - 1928 - 1938 (1994) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craze-O-Logy [03:00]
+02. Can't Help Lovin' Dat Man [03:25]
+03. What Is There To Say? [03:32]
+04. The Buzzard [03:13](   Читать дальше...   )Жанр: Early Jazz, SwingПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1C84E219101D9453D5C4562A010F58E77C6DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214337   (764978) от 21.03.2018
+
+Ferdinand Povel - Beboppin' (1983) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deception [08:32]
+02. Ghost Of A Chance [05:01]
+03. Beboppin' [07:44]
+04. I Am Old Fashioned [06:10](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51EEC8737BD03B5D87AC96B8DCDDF1195F56E64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214342   (764977) от 21.03.2018
 
 Michael Musillami Trio + 4 - Mettle (2012) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
@@ -571,180 +745,6 @@ Lee Konitz & The Brazilian Band - Brazilian Rhapsody (1995) Venus Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DDE8BB5988984B0DA34C0EFF1C21DFF47A2D1BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126756   (764480) от 19.04.2017
-
-Mike Morgan & The Crawl - Texas Man (2002) [MP3|320 Kbps] <Texas Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Texas Man (05:34)
-02. The Way You Left Me Girl (03:12)
-03. Wild About You (04:32)
-04. Guitar Rhumbo (02:59)(   Читать дальше...   )Жанр: Texas BluesПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740C7298388933E5074D331E1609A92E097BB887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214636   (764147) от 22.03.2018
-
-Michael Musillami Trio - Zephyr (2015) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loops [09:40]
-02. Pacific School [09:48]
-03. Francesca's Flowers [04:30]
-04. Zephyr Cove (Bass Entrance) [02:35](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C1A550A75249C00AC3A54BC0E85996BE60DE7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214640   (764144) от 22.03.2018
-
-Janice Lakers - The Rainbow Lady (1985) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rainbow Lady [03:58]
-02. So Sorry, S'il Vous Plait [02:43]
-03. Body And Soul [06:26]
-04. In Your Own Sweet Way [03:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6C9A7D7A2D5715261967EDB42BD87568AE5292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214642   (764073) от 22.03.2018
-
-Samba Trio - Tristeza (1982) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tristeza [02:52]
-02. Amelia Emilia [06:37]
-03. Chick De Ipanema [03:16]
-04. O Pato [02:53](   Читать дальше...   )Жанр: Latin Jazz, Bossa NovaПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B6E50E3DDAAD1B74F9CAF502D4E22725AAB25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280059   (763726) от 01.02.2019
-
-Carl Saunders - Be Bop Big Band (2002) Sea Breeze Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Compilation [6:31]
-02. Love Dance [8:20]
-03. Emily [3:40]
-04. I'm All for You [8:37](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6CA28CC5A9D3813C7B3B90EAD9193AF558A598E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394188   (763722) от 05.07.2020
-
-Yoko Kanno & Seatbelts - Space Bio Charge (2009) CD Collection [FLAC|Lossless|image + .cue] <Electronic, Jazz, Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763722.jpg" />
-</div>
-
-
-###  Подробнее
-
-1-1  Fly Up In The Air (Eco. Size)  2:54
-1-2  Tank! (T.V Stretch)  3:26
-1-3  荒野のヒース  6:34
-1-4  トルキア (Eco. Size)  5:35(   Читать дальше...   )Жанр: Electronic, Jazz, RockПродолжительность: 03:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB3C1901B36013854A425E490757A177DB15D17
 ```
 
 https://mybot314.ru/tekegram_catalog/

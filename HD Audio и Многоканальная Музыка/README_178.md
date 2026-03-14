@@ -1,3 +1,148 @@
+###  Публикация: 1775813   (71377) от 28.01.2025
+
+Jonne Aaron (Negative ) - Studio Albums (5 releases) (2012-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jonne Aaron (Йонне Аарон Лииматайнен) - финский певец. Он стал одним из самых ярких кумиров подростков и рок-звезд Финляндии в 2000-х годах. Он известен как вокалист, композитор, автор текстов и фронтмен финской глэм-рок-группы Negative.2012 - Vain Elemaa
+2013 - Onnen Vuodet
+2014 – Risteyksessa
+2019 - Tiikerin Raidat(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C662822F1BEEDF2F3004BADC0B026B90541C7712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775812   (71373) от 28.01.2025
+
+Black Cat Hoodoo - Music Heros (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Music Heros (3:39)
+02.  Change Gears (2:37)
+03.  Red Eye (3:38)
+04.  12 O'clock Jump (4:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615001D1B21C2B55A596EDDC6DA9996B346A23A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775831   (71372) от 28.01.2025
+
+Judy Wexler - No Wonder (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Wonder (4:39)
+02. The Summer Knows (4:25)
+03. You Stepped Out of a Dream (3:07)
+04. Never Will I Marry (4:09)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A116D11598BBE0FA50246B31094BCB2F723A0F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776182   (71325) от 30.01.2025
+
+Diego Banchero Trio - Gathered Lectures from a Lifetime (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Fusion, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking for the Pusher (04:12)
+02. Macabro Suite (06:33)
+03. Le 4 A (06:29)
+04. Vestale (03:43)(   Читать дальше...   )Жанр: Progressive Rock, Fusion, InstrumentalПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F708C52AB2B956BC605E7CF3907E3EBC2E6957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691315   (71278) от 01.02.2025
+
+Labyrinth (Italy) - Studio Albums (11 releases) (1996-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Labÿrinth — пауэр-метал-группа, образованная в 1991 году в Массе, Италия.1996 - No Limits
+1998 - Return To Heaven Denied
+1999 - Timeless Crime
+2000 - Sons Of ThunderЖанр: Progressive Power MetalПродолжительность: 10:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF68A638D73F5023D6CC459171A9D336B5A762CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776534   (71272) от 01.02.2025
 
 Kim Wilde - Closer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synth-pop>
@@ -601,149 +746,6 @@ Folterkammer - Die Lederpredigt (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBE9D8A274D329410518014DFB9CC64D32AE2986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776914   (71138) от 03.02.2025
-
-We Sell The Dead - Studio Albums (2 releases) (2018-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71138.jpg" />
-</div>
-
-
-###  Подробнее
-
-We Sell The Dead - шведская хард-рок группа из Гетеборга. Сформирована в 2016 году.2018 - Heaven Doesn't Want You And Hell Is Full
-2020 - Black SleepЖанр: Heavy Metal, Hard RockПродолжительность: 01:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B2ADC7EDC2553EEAAB35655E11BA53C52EB265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776911   (71136) от 03.02.2025
-
-The Kovenant (Covenant) - Studio Albums (4 releases) (1997-2003) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71136.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Kovenant — норвежская метал-группа. The Kovenant начинали с мелодичного блэк-метала; впоследствии стилистика группы сместилась в сторону индастриал-метала.1997 - In Times Before The Light
-1998 - Nexus Polaris
-1999 - Animatronic
-2003 - SETIЖанр: Black/Industrial MetalПродолжительность: 04:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3828D1DD60B5F4AC65D2DDCABD1244C29A0536A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775001   (71122) от 04.02.2025
-
-Fates Warning (Arch/Matheos; Ray Alder) - Studio Albums (18 releases) (1984-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fates Warning — американская прогрессив-метал-группа, образованная в Хартфорде, штат Коннектикут, в 1982 году.1984 - Night On Brocken
-1985 - The Spectre Within
-1986 - Awaken The Guardian
-1988 - No ExitЖанр: Progressive MetalПродолжительность: 15:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE360B4F650911EF05278DCDC972AF6B61C6C93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777070   (71110) от 04.02.2025
-
-Be'lakor - Studio Albums (5 releases) (2007-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Be'lakor — австралийская рок-группа, основанная в 2004 году в Мельбурне.2007 - The Frail Tide
-2009 - Stone's Reach
-2012 - Of Breath and Bone
-2016 - Vessels(   Читать дальше...   )Жанр: Melodic/Progressive Death MetalПродолжительность: 04:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B48558B6935761FFE842C991B28B8A621026BB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777191   (71106) от 04.02.2025
-
-Emin - Юбилейный концерт со звездами (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Singer, Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got A Feeling In My Body (Live) [00:03:29]
-02. MMM (Live) [00:03:30]
-03. Still (Live) [00:04:42]
-04. Can’t Help Falling In Love (Live) [00:02:26](   Читать дальше...   )Жанр: Pop, Singer, SongwriterПродолжительность: 01:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63ACA5F606C045E469DB5DD55A295913B9DECA93
 ```
 
 https://mybot314.ru/tekegram_catalog/

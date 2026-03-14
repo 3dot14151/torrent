@@ -1,3 +1,119 @@
+###  Публикация: 1147152   (609727) от 02.07.2017
+
+AOR - Return To L.A. (2015) [FLAC|Lossless|image + .cue] <Hard Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victim Of My Own Desire  (04:58) 
+02. The Trail To Your Heart  (04:41) 
+03. Dangerous To Know  (04:47) 
+04. Angels Never Sleep  (05:18) (   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F42200E07699649E3048915A88A3311C4CDB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231090   (608853) от 16.06.2018
+
+Sharks - Jab It In Yore Eye (1974/ 2011) [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Like A Fever (3:33)
+02. Baby Shine A Light (4:56)
+03. Sun Beat Down (4:48)
+04. Rain Or Shine (3:47)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB7CA0F20E06BFDC6C186E44900CB73E32F9D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231087   (608770) от 16.06.2018
+
+Paul Kossoff, Andy Fraser (ex.Free) - 9 альбомов, 10 CD (1972-2003) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пол Коссоф родился в семье актёра Дэвида Коссофа. В середине 1960-х уже играл в любительских группах. Первой его профессиональной группой стала Black Cat Bones, где также играл барабанщик Саймон Кирк. Группа играла на разогреве у Fleetwood Mac, а Пол Коссоф подружился с гитаристом этой группы Питером Грином. Коссоф и Грин нередко устраивали джемы, много рассуждали (   Читать дальше...   )Список альбомов:
+Paul Kossoff
+1972 | Kossoff Kirke Tetsu Rabbit - Kossoff Kirke Tetsu Rabbit
+1973 | Kossoff - Back Street Crawler(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues Rock |Продолжительность: 09:26:45 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71808ABA7E4BF5A579A37BB524B2A439DBDE90C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038015   (608716) от 27.07.2016
+
+Gypsy Pistoleros - Welcome To The Hotel De La Muerte (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Down With The Gypsies
+02. Walk Through The Shadows
+03. Sangre De Las Rosas
+04. Welcome To The Hotel De La Muerte(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763A50BDFB374F21EF136B12BB43C6BA767AB12E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231405   (605167) от 18.06.2018
 
 Bonfire - 29 Golden Bullets: The Very Best Of Bonfire (2001) 2CD, Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,120 +745,6 @@ Heavy Bones - Heavy Bones (1992) [APE|Lossless|image + .cue] <Hard Rock, Heavy M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4D3CDEFC341B689E60F042DB65B59655892FFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548438   (598017) от 03.05.2022
-
-Witch Cake - Not If I See You First (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Garotte (00:02:37)
-02 - Magma (00:04:06)
-03 - We'll Have Much More Fun as Ghosts (00:03:30)
-04 - Apatheia (00:02:12)(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81636F389088E31A17CF52317135B4BF350DE7DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039097   (597807) от 31.07.2016
-
-Gary Hoey - Utopia (2010) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utopia    03:31
-02. Walk Away    03:05
-03. Reminds Me of You    03:42
-04. Inevitable    03:13(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9532F38CA88C811F4F631848ED0E7C45CC777D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038823   (597804) от 31.07.2016
-
-Vinnie Moore - Defying Gravity (2001) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Defying Gravity    05:05
-02. Out And Beyond    06:44
-03. Last Road Home    04:26
-04. Alexander The Great    05:04(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D991D3231740CEF5404DECBC62FE9CDE34C6E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039105   (597632) от 31.07.2016
-
-Vixen - Rev It Up (1990) [WavPack|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rev It Up . . . . . . . .5:00
- 02.Жанр: Hard'n'HeavyПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3C1011E6CFF88AFD02770E2D754EE2FF6026B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

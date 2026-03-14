@@ -1,3 +1,32 @@
+###  Публикация: 1795996   (19016) от 07.05.2025
+
+VA - Music News For Forum vol.083 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19016.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aleksia - Игнор (01:52)
+ 002. Agatino Romero & Hypaton - Lungs (Extended Mix) (02:53)
+ 003. AHSHEVA & ТОТ САМЫЙ ВАДОС - Чёрный 2.0 (02:36)
+ 004. Akila - Она одна (01:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55D22EBF74896A235C75A5234487D9413E3ABB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796060   (18987) от 08.05.2025
 
 VA - Дискотека 2025 Dance Club Vol. 228 (2025) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
@@ -713,35 +742,6 @@ VA - Musical kaleidoscope part 41 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4822B42BE5DF5D79F805E356B3D2A19377216236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800317   (15855) от 02.06.2025
-
-VA - Intimacy 2 (2025) [MP3|320 Kbps] <Easy Listening, Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Kid LAROI - NIGHTS LIKE THIS (1:27)
-02. Artemas - wet dreams (1:39)
-03. Artemas - ur special to me (1:54)
-04. Omido, Nic Dean - Precious (2:05)(   Читать дальше...   )Жанр: Easy Listening, ChilloutПродолжительность: 04:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89737F3F80E8B1C474C96AC195A5638DBE0B927C
 ```
 
 https://mybot314.ru/tekegram_catalog/

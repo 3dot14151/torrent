@@ -1,3 +1,32 @@
+###  Публикация: 1469060   (1016698) от 10.05.2021
+
+Stan Getz - 5 Original Albums (1955 - 1958) 5CD, 2016, Verve [FLAC|Lossless|tracks + .cue] <Cool,  West Coast Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016698.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1-  West Coast Jazz:
+01. East of the Sun [6:20]
+02. Four [7:36]
+03. Suddenly It's Spring [7:00](   Читать дальше...   )Жанр: Cool,  West Coast Jazz, BopПродолжительность: 03:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FC86A6DD7621A8E340599668B3CB4AC43F8640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469393   (1016466) от 12.05.2021
 
 Goat’s Notes - Machine (2020) [FLAC|Lossless|image + .cue] <Free Jazz, Free Improvisation>
@@ -716,35 +745,6 @@ Marc Antoine - Something About Her (2021) [FLAC|Lossless|WEB-DL|tracks] <Guitar 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6638F5BC235F05286E44C03DAF504ADDAA66C49E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473594   (1013518) от 30.05.2021
-
-VA - Smooth Jazz 2021 [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Restuccia - Arrival (4:23)
-02. Lin Rountree - Fluid (4:25)
-03. Kayla Waters - Signs and Wonders (3:14)
-04. Nick Colionne - Romantic Nites (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9836D6625D382433A5A260F66F0950F27E268B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

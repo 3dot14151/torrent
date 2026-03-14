@@ -1,3 +1,31 @@
+###  Публикация: 1366459   (922363) от 12.03.2020
+
+State Cows - 2 альбома (2010-2013) [MP3|320 Kbps] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2010 - State Cows
+2013 - The Second OneЖанр: Westcoast, AORПродолжительность: 02:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD73E1C8C66FDBF207260CB58FB476EE0B3CA45D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366644   (922036) от 12.03.2020
 
 Gotthard - #13 (2020) [MP3|320 Kbps] <Hard Rock>
@@ -711,35 +739,6 @@ Ballbreaker - 3 альбома (2000-2009) [MP3|128-320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B95E89A5B1E159E913C54390F1F7E8BD2AF82B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102811   (887723) от 11.02.2017
-
-Goddo - In Goddo We Trust (1991) [MP3|320 Kbps] <Hard Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Was It Somethin' I Said?
-02. Please Baby Please
-03. Drop Dead (That's Who)
-04. Sweet Thing(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49B2A7DB77ED7B3D66D3887B18E9EE0F51BF7BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

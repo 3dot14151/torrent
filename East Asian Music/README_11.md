@@ -1,3 +1,159 @@
+###  Публикация: 545959   (475913) от 14.09.2012
+
+VA - Who Do They Think We Are? - A Tribute to Deep Purple from Japan (1996) Reissue, Tribute-Album [WavPack|Lossless]<Rock, Hard Rock, Blues Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demon Kogure, Genki Hitomi, Akira Kajiyama(Ex.Precious) - Burn [06:56]
+02. Yukio Morikawa, Taiji Fujimoto(D.T.R.) - Speed King [04:52]
+03. Genki Hitomi, Minoru Niihara, Sgt. Luke Takamura III(Seikima-II) - Lay Down, Stay Down [04:21]
+04. Eiichi Miyanaga, Shigehisa Ikeda(Braze) - Strage Kind Of Woman [04:54]
+05. Genki Hitomi, Shigehisa Ikeda(Braze) - Child In Time [11:11]
+06. Minoru Niihara, Hideaki Nakama(Hell And Back) - Lazy [07:24]
+07. Yukio Morikawa, Fumihiko Kittaka(King-Show) - Lady Double Dealer [03:55]
+08. Genki Hitomi, Hideaki Nakama(Hell And Back), Norifumi Shima(Concerto Moon) - Woman From Tokyo [06:13]
+09. Minoru Niihara, Fumihiko Kittaka(King-Show) - Fireball [03:52]
+10. Demon Kogure, Yoshiro Takahashi, Fumihiko Kittaka(King-Show) - Highway Star [06:38]Жанр: Rock, Hard Rock, Blues RockПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939638   (472958) от 22.09.2015
+
+ESQUARIA - 7 альбомов (2013-2015) Touhou Vocal /Doujin/ [MP3|320kbps] <J-Pop, Electronic>
+
+>>East Asian Music
+>>Doujin Music
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2014.12.29 (EQ-0005) EMOTIONAL CHAOS (C87)
+2015.05.10 (EQ-0006) EPIC FAITH (Reitaisai 12)
+2015.08.14 (EQ-0007) PLATONIC SOUL (C88)Тип издания: DoujinЖанр: J-Pop, ElectronicФормат: Touhou VocalПродолжительность: 00:06:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771CFACB67279AE3685A87A1A7B1C820A4D1A9F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567435   (472378) от 03.08.2022
+
+Saber Tiger - Project One (1997) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 I'll Still Be Loving You
+02 Hard Wire
+03 Thrillseeker
+04 Ride Like The Wind(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67395BEE2F4674D536EF56FD9118C50D2BDE4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567437   (472353) от 03.08.2022
+
+Saber Tiger - Indignation (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lord 05:56
+02. Idiot 05:21
+03. Stronger 05:05
+04. Life 04:18(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4497A6B1D169966511900AF61A14381A9E11154D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547646   (467482) от 18.09.2012
+
+Kaori Muraji - Portraits (2009) [MP3|320 кб/с]<Classical, Instrumental, Acoustic guitar>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467482.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:31) 01. Merry Christmas Mr. Lawrence
+(2:40) 02. Tango en Skai
+(5:33) 03. Tears In Heaven
+(5:03) 04. Jongo
+(5:19) 05. Energy Flow
+(2:46) 06. What A Friend
+(2:32) 07. The Internationale
+(2:53) 08. Amours Perdues
+(2:33) 09. Secret LoveЖанр: Classical, Instrumental, Acoustic guitarПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74F21F9B81411F35D3553364D38EA46CF98DB29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 240212   (466371) от 28.09.2010
 
 Cintija Wang - Copenhagen's Fairy Tales (2009) [FLAC|Lossless]<Cpop,mandopop,tw.pop,cover>
@@ -628,154 +784,6 @@ Anthem - Blazing Faith - revisited (2015) Deluxe Edition - Blu-Ray + SHM CD [Wav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AD55145041B9B0CF5F5B6FCF5BDD4DAA473CCF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866238   (417871) от 17.10.2015
-
-Kinema 106 - 2 альбома (2014-2015) KanColle Vocal /Doujin/ [FLAC|tracks] <J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2014.12.29 (TOMZ-002) Abyss (C87)
-2015.08.14 (TOMZ-003) Setsugekka (C88)Тип издания: Doujin]Жанр: J-RockФормат: KanColle VocalПродолжительность: 00:00:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15106E276B36848FC4B3ABBDF95C6879AA406B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 396385   (416592) от 05.10.2011
-
-Cocktail M49 - 5 albums (2008-2010) [FLAC|Lossless]<Doujin  ongaku,touhou,rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_416592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nocturnal Azure ~幾億の星降る日、ハジマリのソラをもう一度~
-02 - 朱蝕マリアージュ
-03 - シャムロック
-04 - sweet baby
-05 - モノクロ:ワールド
-06 - (I.C.E.)
-07 - ageless love
-08 - Garden of the observers2008-2010Жанр: Doujin  ongaku,touhou,rockПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573589   (410479) от 01.09.2022
-
-Concerto Moon - Tears Of Messiah (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light In The Shadow 04:28
-02. Noah’s Ark 04:35
-03. Tears Of Messiah 04:48
-04. Lift My Life 03:47(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890CF6F059E8AC535F584EDAAE98401C9B079A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834360   (409450) от 21.10.2015
-
-ZERO SOUNDS - 4 альбома (2013-2014) KanColle Vocal /Doujin/ [FLAC|tracks] <J-Pop, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче:
-2013.12.30 (ZERS-0003) Kan Musume Kaisen Uta (KanColle) (C85)
-2014.04.26 (ZERS-0004) Burning Star Children -Hoshi no Ko Anime Song Tribute- (M3-33)
-2014.10.26 (ZERS-0005) KanColle Requiem (KanColle) (M3-34)Тип издания: DoujinЖанр: J-Pop, J-RockФормат: Anime, KanColle VocalПродолжительность: 00:02:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5DEA3522CE4B59FEF01F8E1621C5FA6EBB6939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894588   (409438) от 21.10.2015
-
-GUNFIRE - 11 альбомов (2009-2015) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic, Eurobeat>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2011.08.13 (GFCD-0011) TOHOBEAT FLASH -Ninth Beat- (C80)
-2011.12.30 (GFCD-0012) TOHOBEAT FLASH -Tenth Beat- (C81)
-2015.08.14 TOHOBEAT FLASH News (C88)Тип издания: DoujinЖанр: Electronic, EurobeatФормат: Touhou InstrumentalПродолжительность: 00:03:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F093B4EE6CCB8EAD08800471168E642F3C23CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1198624   (802705) от 14.01.2018
+
+Jonny Greenwood - Phantom Thread / Призрачная нить (2018) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Indian Classical, Experimental>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phantom Thread I (03:36)
+02. The Hem (02:43)
+03. Sandalwood I (02:40)
+04. The Tailor of Fitzrovia (02:31)(   Читать дальше...   )Жанр: Indian Classical, ExperimentalПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D669D862BDAD91849EA63D485F473AB343AEF21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498590   (802379) от 14.01.2018
+
+Братина - 8 альбомов (2003-2014) [MP3|320 Kbps] <Folk, Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802379.jpg" />
+</div>
+
+
+###  Подробнее
+
+2003 - Вдоль по линии Кавказа
+2005 - Горы вы Кавказские
+2007- По морю было по хвалынскому
+2007- Прости, звезда(   Читать дальше...   )Жанр: Folk, Казачья песняПродолжительность: 07:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D35702142F16C5E065AE87647AC47C7C80B1795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120683   (802092) от 31.03.2017
+
+Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Coughlin (02:59)
+02. Albert’s Girl (02:45)
+03. The Getaway (03:05)
+04. Aftermath (02:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02D9777F18AA69564907CF58EAAEAFDAC9BA1ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120686   (802049) от 31.03.2017
+
+Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Coughlin (02:59)
+02. Albert’s Girl (02:45)
+03. The Getaway (03:05)
+04. Aftermath (02:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9499C45AFB520F3C744E7AA5C5AA76069BFD6007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120253   (802005) от 31.03.2017
+
+Ryan Farish - United (2017) [MP3|320 Kbps] <Electronic, Downtempo, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skies
+02. Shooting Star
+03. United
+04. ForAva(   Читать дальше...   )Жанр: Electronic, Downtempo, New AgeПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EC8DCCF04EFB94386C97D3A4D953EDAC3F2D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010134   (801981) от 25.04.2016
 
 Harp Twins (Camille and Kennerly) - 3 альбома (2013 - 2015) [MP3|320 кб/с] <Harp, Instrumental>
@@ -600,151 +745,6 @@ Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоров�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DC7E4F69ED6865D7F0805897EBD5B8570FF8635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121071   (800498) от 02.04.2017
-
-Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nick Cave & Warren Ellis - Comancheria (02:05)
-02. Townes Van Zandt - Dollar Bill Blues (03:01)
-03. Nick Cave & Warren Ellis - Mama's Room (02:49)
-04. Ray Wylie Hubbard - Dust of the Chase (05:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329E673917768170466EA41A9242B4FB551A3EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121073   (800494) от 02.04.2017
-
-David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Television Soundtrack) (2012-2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Was Different (03:49)
-02. Doing a Good Thing (02:17)
-03. 3 Suspects (02:11)
-04. Pick Up (05:15)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 05:02:41 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EEFD027677F901F12DB02BDEA332E5B8D19E4B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120721   (800483) от 02.04.2017
-
-Раймондс Паулс - В тональности Раймондса Паулса (1983) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Беспокойный пульс
-02. Печаль
-03. Испанский мотив
-04. Всё твоё(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE31549499C5DF3AF6297F5F7FBA7C32B99DC97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121286   (800463) от 02.04.2017
-
-Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоровья (Original Soundtrack Album) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hannah and Volmer (04:35)
-02. Nobody Ever Leaves (01:49)
-03. Bicycle (02:00)
-04. The Rite (03:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625CDE32AE61D8E25C3377E01810ADB49687E00D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120737   (800439) от 02.04.2017
-
-Cliff Carpenter - 6 альбомов (1972-1983) LP-Rip [MP3|320 Kbps] <Pop, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Im Gluck
-02. Der Duft von Paris
-03. Kiss Me
-04. Morgen Fruh, Da Lachst Du Schon Wieder(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 04:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152D00B5996DAFAE04D8F99477078A2BBEE7DE09
 ```
 
 https://mybot314.ru/tekegram_catalog/

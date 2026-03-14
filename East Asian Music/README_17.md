@@ -1,3 +1,151 @@
+###  Публикация: 1342828   (221152) от 04.12.2019
+
+LiSA - Lover"S"Mile (2012) [MP3|320 Kbps] <J-Pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yasashisa ni Tadoritsuku Made [4:23]
+02. oath sign [4:11]
+03. now and future [4:21]
+04. EGOiSTiC SHOOTER [3:04](   Читать дальше...   )Жанр: J-PopПродолжительность: 1:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C65BB74A6F9C72535C667241205BB34356A0AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342947   (219422) от 05.12.2019
+
+LiSA - Little Devil Parade (2017) [MP3|320 Kbps] <J-Pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219422.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. LiTTLE DEViL PARADE [4:41]
+ 2. Catch the Moment [4:43]
+ 3. LOSER ~Kibou to Mirai ni Muen no Catharsis~ [3:34]
+ 4. the end of my world [3:28](   Читать дальше...   )Жанр: J-PopПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6566373D9130975943E4FCA14F0DCCD6B402DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966495   (217749) от 18.12.2015
+
+petit milady - 3 сингла (2014-2015) [FLAC|Lossless|tracks] <J-Pop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(140205) azurite (To Aru Hikushi e no Koi Uta OP Single)
+(140813) Koi wa Milk Tea (Rokujouma no Shinryakusha ED)
+(150107) Hi no Ito Rinne no GEMINI (Seiken Tsukai no World Break OP)Жанр: J-PopПродолжительность: 00:00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B85623FF5E9A5F3527DE06026C76EB2A687B91E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588459   (217081) от 12.12.2012
+
+Gong Yue - Buddhist Music (2011) [MP3|320 кб/с]<Folk, Mantras>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217081.jpg" />
+</div>
+
+
+###  Подробнее
+
+(24:58) 1. Greatly Sad Heart Buddhist Charms
+(11:59) 2. Heart Sutra
+(04:52) 3. Six Words Damengzhou
+(08:03) 4. Amitabha Between Heart
+(14:54) 5. Six Words Heart Sutra
+(08:01) 6. The Goddess Of Mercy Is Brave
+(06:35) 7. Guru Padmasambhava MantraЖанр: Folk, MantrasПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D96E6F135B6A5C61C56C9CA9C33ED55D865D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586382   (215670) от 27.10.2022
+
+Fear, and Loathing in Las Vegas - Cocoon for the Golden Future (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Electronic>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_215670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Back the Hope [00:03:08]
+02. Evolve Forward in Hazard [00:03:26]
+03. Shape of Trust [00:03:43]
+04. Ain't That So Awesome [00:03:39](   Читать дальше...   )Жанр: Post-Hardcore, ElectronicПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF44946069015CB4E1CBC347297F49EB2294F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648071   (208318) от 21.07.2023
 
 Sigh - The Eastern Forces of Evil 2022 (Live) (2023) [FLAC|Lossless|image + .cue] <Avantgarde Black Metal>
@@ -595,150 +743,6 @@ Eizo Sakamoto - Another Face (1998) [WavPack|Lossless|image + .cue] <Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AFB97863B26374C82DF3E2AB3C9006919B10EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597304   (166712) от 14.12.2022
-
-Moon Dancer - Moon Dancer (1979) Reissued 1997 [WavPack|Lossless|image + .cue] <Progressive Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skin Tight Snake Skin Girl  4:09
-02. Crime Of Daddy Michael  4:05
-03. Silver Wave  2:53
-04. Dreaming Children  3:57(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F40F2DB46A115A2F8710B86503B23F2D79B5025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597294   (166706) от 14.12.2022
-
-EIZO Japan - EIZO Japan 2 (2009) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depths (Instrumental) 1:31
-02. 侍戦隊シンケンジャー (侍戦隊シンケンジャー) 3:48
-03. 機動刑事ジバン (機動刑事ジバン) 4:01
-04. ロ・ロ・ロ・ロシアンルーレット (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3A1EF9A3A7A0471E3E8AA1813BDA91BDEB6BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597296   (166688) от 14.12.2022
-
-EIZO Japan - EIZO Japan 3 (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The iron melt 1:33
-02. おジャ魔女カーニバル!! 3:50
-03. いくぜ!イッキマン!! 2:57
-04. キックの鬼 3:24(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485DC9325E6554B901CF4D5DD412564280FB35AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597298   (166670) от 14.12.2022
-
-EIZO Japan - Super anime song - Legend of the 1990's (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. STAND UP TO THE VICTORY ～トゥ・ザ・ヴィクトリー～ (機動戦士Vガンダム) 2:07
-02. FLYING IN THE SKY (機動武闘伝Gガンダム) 1:33
-03. RHYTHM EMOTION (新機動戦記ガンダムW) (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24CCE1EDF2BAE94C21504C4E4C6AD8F1E718F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597303   (166607) от 14.12.2022
-
-Marge Litch - The Ring of Truth (1992) [WavPack|Lossless|image + .cue] <Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue 3:46
-02. Rain of Tears 10:08
-03. The Haunted Woods 8:06
-04. Witch of Ice 12:06(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEB6946EE88B652829E1B2B7462D31C6C0E1BE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1670563   (171831) от 21.10.2023
+
+Savant - Ascent REMIX (2023) [Ru/Multi] (1.04) Scene Tenoke [Bundle]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Savant - Ascent REMIX предлагает отправиться в захватывающее путешествие по высоченной крепости, захваченной неумолимыми механическими противниками. В этой части геймплей берет на новую планку, обеспечивая захватывающее приключение, которое заставит игроков быть в напряжении. На каждом этапе нас ждут уникальные испытания и новые противники, включая таких грозных (   Читать дальше...   )Тип издания: SceneРазработчик: D-Pad StudioЖанр: Action, Adventure, PlatformerЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1161BCE9B11D52417A0E73F0C6600E6A9AA96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515338   (169938) от 06.12.2021
 
 Castle on the Coast (2021) [Ru/Multi] (1.0) License GOG
@@ -641,32 +667,6 @@ Yohane the Parhelion - Blaze in the Deepblue - это 2D-метроидвани�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95EE8414075205EEDCFB586F602318956536CE3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272640   (141934) от 28.12.2018
-
-The Cave (2013) [Ru/En] (1.0/u2) Repack R.G. Catalyst
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141934.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Cave — новая приключенческая игра от автора Monkey Island и Maniac Mansion, Рона Гилберта, выпущенная студией Double Fine Productions, знаменитой играми Psychonauts и Brutal Legends.Тип издания: RepackРазработчик: Double Fine ProductionsЖанр: Arcade (Platform), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DFD9D150F94660AEEEC8065FDDC8B2CA999952
 ```
 
 https://mybot314.ru/tekegram_catalog/

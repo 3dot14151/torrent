@@ -1,3 +1,32 @@
+###  Публикация: 1458326   (1023814) от 29.03.2021
+
+VA - National Pop Dance Music (Vol.14) (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый депрессивный период года - "уже не зима, но ещё не весна"! Как раз самое время чтобы компенсировать его пагубное влияние хорошей музыкой! А поможет Вам в этом 14-й релиз "National Pop Dance Music", в котором собрано 180 популярно-танцевальных хитов.001. Misterraffy - E Se Non Ti Sta Bene
+002. Ava Max - My Head & My Heart
+003. Nora Grand - Hallelujah
+004. Showmain feat Lucyliao - Alive(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7BD371607728E646CD660CCA2C438F3A34DA53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458966   (1023472) от 31.03.2021
 
 VA - Just My Dream: Disco Dance Mix (2021) [MP3|320 Kbps] <Disco, Dance>
@@ -713,35 +742,6 @@ VA - 100 Hits Remixed (2021) [MP3|~245 Kbps (V0)] <Disco, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5686BD3663C4577A5FE1609EB8C20E79CD45C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469650   (1016277) от 13.05.2021
-
-VA - Soft Pop Hits 3 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Great Big World, Christina Aguilera - Say Something (3:49)
-02. Harry Styles - Sweet Creature (3:44)
-03. 3 Doors Down - Here Without You (3:58)
-04. Christina Perri - Jar of Hearts (4:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6031A247E9BDA6C9A6EBDB02104957512A5CE63
 ```
 
 https://mybot314.ru/tekegram_catalog/

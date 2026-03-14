@@ -1,3 +1,177 @@
+###  Публикация: 929609   (518524) от 20.08.2015
+
+Bob Wilber & Kenny Davern - Summit Reunion (1990) /Chiaroscuro Records/ [FLAC|image+.cue]<Jazz, Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Long As I Live [05:39]
+02. Love Come Back To Me [06:11]
+03. St. Louis Blues [11:25]
+04. Black And Blue [04:57](   Читать дальше...   )Жанр: Jazz, Swing, Mainstream JazzПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED44BF41CE43A2BAE625F2CA2074AB0969BB799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929613   (518523) от 20.08.2015
+
+Benny Bailey Quintet - While My Lady Sleeps (1990) /Gemini/ [FLAC|image+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vino, Oh Vino! [05:51]
+02. Serenade To A Planet [07:52]
+03. Expectation [06:46]
+04. H&T Blues [06:06](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C0A3A2997A96BA1904BC9BB55282E679F6EDFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929676   (518519) от 20.08.2015
+
+Chuck Mangione Quintet - Recuerdo (1962) /1990, Jazzland/ [FLAC|tracks+.cue]<Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recuerdo [05:35]
+02. Big Foot [04:26]
+03. I Had The Craziest Dream [06:24]
+04. Solar [04:20](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B581992A7ED29353C9B4931FA5D056D697C33EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929474   (518512) от 20.08.2015
+
+Heather Powell - A Haze of Grays and Blue (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unexpected
+02. Black And White Thinking
+03. Remember The Love
+04. Blue Light(   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF01F6C217CF67CD5853AD8E9A1524285B550319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241771   (518470) от 19.08.2018
+
+Stanley Turrentine - Up At Minton's (1961) 2CD, 1994, Blue Note [APE|Lossless|image + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518470.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. But Not for Me [11:29]
+02. Stanley's Theme [11:04]
+03. Broadway [10:38](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33A395AE9BC6C5C737FE3D6B3C99B6F62FA5B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241797   (518423) от 19.08.2018
+
+Nakia - Blues Grifter (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yonder Wall (03:56)
+02. Somebody's Sleeping In My Bed (04:39)
+03. Gimme Some Of Yours (03:59)
+04. Double Trouble (05:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D023A5501CB90A87985B1904BE2249D31DC3B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241819   (518411) от 19.08.2018
 
 Little Milton - Back To Back (1988) 2015, MALACO RECORDS [FLAC|Lossless|image + .cue] <Blues, soul>
@@ -599,180 +773,6 @@ Vijay Iyer Sextet - Far From Over (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D128EBCAC48E907D740124816E96AA2D4EBDE9C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242416   (515131) от 22.08.2018
-
-The Gary Burton Quartet With Eberhard Weber - Passengers (1977) 1988, ECM [FLAC|Lossless|tracks + .cue] <Post Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sea Journey [9:19]
-02. Nacada [4:15]
-03. The Whopper [5:33]
-04. B & G (Midwestern Nights Dream) [8:27](   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61BF5906C6E708FFF852AC9ABEA649CFB61F4BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314974   (515098) от 18.07.2019
-
-Mason Razavi - Quartet Plus, Volume 2 (2017) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riverbed [6:35]
-02. Blues in New Hues [6:28]
-03. Looking Forward, Looking Back [5:31]
-04. Blue and Grey Waltz [5:57](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E06EBD69F7F50A8E88DFF14849CD6F0367FF303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315148   (515097) от 18.07.2019
-
-Bengan Janson, Jan Lundgren, Ulf Wakenius (2011) Ladybird [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Land [6:20]
-02. Chorinho pra Sivuca [4:19]
-03. Lat till Far [4:57]
-04. Paris Tango [4:46](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141CBA3FE03C278F14823552E03CB43EA5AF4279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315146   (515095) от 18.07.2019
-
-Ahmad Jamal - Marseille (2017) Jazz Village [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marseille (instrumental) [8:34]
-02. Sometimes I Feel [5:48]
-03. Pots En Verre [8:30]
-04. Marseille (with Abd Al Malik) [7:23](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC47522DDBABB5190EABA738B1358F0A4106573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314971   (515089) от 18.07.2019
-
-Sophie Milman - Make Someone Happy (2007) Linus [APE|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. People Will Say We're In Love [3:09]
-02. Something In The Air Between Us [4:13]
-03. Rocket Love [4:34]
-04. So Long, You Fool [3:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D26153E3BAAD20391A9BF360C6A7100F9324C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314844   (515079) от 18.07.2019
-
-Grant Green - 5 Original Albums (1961 - 1965) 5CD, 2018, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515079.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Idle Moments:
-01. Idle Moments [14:56]
-02. Jean De Fleur [6:50]
-03. Django [8:44](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Guitar JazzПродолжительность: 03:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575DE15C7393963DD4AD895BB82AC823532CBD47
 ```
 
 https://mybot314.ru/tekegram_catalog/

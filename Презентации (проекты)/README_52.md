@@ -1,3 +1,29 @@
+###  Публикация: 1190196   (268514) от 08.12.2017
+
+Проекты - Simple & Clean Presentation [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для корпоративных фото-видео материалов и для видео презентаций.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC304B6B3A3776475018D87C4C93F77F829FA3C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189954   (268507) от 08.12.2017
 
 Проекты - VideoHive - Mosaic Rectangle Reveal - 20683185 [AEP]
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E848E32C5511242FEC18F53843BF3321A66D2276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835146   (250568) от 05.11.2025
-
-Проекты - VideoHive - Phone 17 Pro Max 3D Mockups - 59600334 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон семнадцатого айфона для ваших творческих задач.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE621716F0F6121E9C424888A7D3A2B8C7F53CC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

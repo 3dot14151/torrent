@@ -1,3 +1,177 @@
+###  Публикация: 1515701   (168722) от 08.12.2021
+
+Bucky & John Pizzarelli - Family Fugue (2011) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All The Things You Are [5:37]
+02. Without You [4:55]
+03. Body And Soul [6:09]
+04. Sweet Georgia Brown [4:16](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Guitar JazzПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6EC7131DD2E21E49F7C73296A54063E76D6CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596871   (168426) от 12.12.2022
+
+Monty Alexander - The Montreux Years (1993 - 2016) 2022, BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Serpent [5:44]
+02. Work Song [7:53]
+03. Hurricane Come and Gone [9:50]
+04. Night Mist Blues [8:15](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A17EC70C4CC2177EC6455303AEBB4E836B3897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344910   (168366) от 13.12.2019
+
+Red Nichols And His Five Pennies - The Jazz Collector Edition 1929 (1991) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Early Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Sundown [3:20]
+02. Get Happy [2:29]
+03. Beale Street Blues [3:30]
+04. The Very Thought Of You [3:15](   Читать дальше...   )Жанр: Early JazzПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0F0D0665AA7CEDF5CDE6FADA35144F0E0552EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345046   (168361) от 13.12.2019
+
+Jeanne Lee & Ran Blake - The Newest Sound Around 1961 (2000) RCA Victor [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laura [5:13]
+02. Blue Monk [4:48]
+03. Church on Russell Street [3:13]
+04. Where Flamingos Fly [4:18](   Читать дальше...   )Жанр: Vocal Jazz, Avant-Garde JazzПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F7A728929FE1C18C57AEDFD3718D863B6FB994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345117   (168336) от 13.12.2019
+
+Peggy Lee - That Old Feeling & You Go To My Head 1944 - 1953 (2001) 2CD, Past Perfect [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168336.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ain't Goin' No Place [3:03]
+02. That Old Feeling [2:43]
+03. Waiting for the Train to Come In [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9204EC7098B6B0B09A972D82CCDC2FBC0B851F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672814   (168270) от 29.10.2023
+
+Kammerflimmer Kollektief - Remixed (2006) [FLAC|Lossless|tracks + .cue] <Future Jazz, Free Jazz, Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt (David Last's Doki Doki Rock Mix) (6:25)
+02. After The Rain (Aoki Takamasa Remix) (3:52)
+03. Lichterloh (Nôze Remix) (4:57)
+04. Unstet-Schleifen (Jan Jelinek Remix) (6:45)(   Читать дальше...   )Производство: Staubgold – staubgold 70Жанр: Electronic, Free Jazz, Abstract, Future Jazz, ExperimentalПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB246450A28F7CD9377FC0453DCA43A6C35E81E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672592   (168243) от 29.10.2023
 
 Acker Bilk - Great Moments With... (1998) Timeless Records [FLAC|Lossless|tracks + .cue] <Dixieland, Easy Listening, Traditional Jazz>
@@ -571,180 +745,6 @@ Elvin Jones - Revival: Live At Pookie's Pub (1967) 2022, Blue Note [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:517E03C0D77629FB5A06F9BA5173EA5460AB6054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672883   (167325) от 30.10.2023
-
-Bill O'Connell - A Change Is Gonna Come (2022) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moment's Notice [8:08]
-02. Loco-Motive [6:06]
-03. Covid Blues [5:08]
-04. A Change Is Gonna Come [6:38](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D1984DFED7D6714AC9C497A07BA20EC704AC56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672884   (167314) от 30.10.2023
-
-Zoe Rahman - The Cynic (2000) Manushi Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. October [6:27]
-02. Apple Pie [5:48]
-03. Monica [5:14]
-04. The Cynic [5:02](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A832FA68ACAED959F9ECCA51E91BE8B912A8F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672881   (167300) от 30.10.2023
-
-Jeff Lorber - The Definitive Collection (2000) Arista [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Funk, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tune 88 [4:32]
-02. Water Sign [4:37]
-03. Night Love [5:15]
-04. Fusion Juice [4:14](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, Jazz FusionПродолжительность: 01:11:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA7F463C1EBE4784F3B43FCC153622B6DEE2B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672926   (167205) от 30.10.2023
-
-VA - Cool Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dave Brubeck Trio - Avalon (Album Version) (2:06)
-02. Modern Jazz Quartet - Rose Of The Rio Grande (2:13)
-03. The Dave Brubeck Trio - Perfidia (Album Version) (2:17)
-04. The Dave Brubeck Quartet - Lulu's Back In Town (2:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F4CC772297F3B63A71D2B9C4DCB456F930EF24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673033   (167193) от 30.10.2023
-
-Kammerflimmer Kollektief - Schemen (2023) [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erstes Kapitel (verschliffen) (8:17)
-02. Zweites Kapitel (ruckartig) (8:09)
-03. Drittes Kapitel (ungesagt, dann vergessen) (3:25)
-04. Viertes Kapitel (bewusstseinsfrei) (4:48)(   Читать дальше...   )Производство: Karlrecords - KR101Жанр: Experimental, Ambient, Avantgarde Jazz, Jazz NoirПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76B8446F95947425020137647636315F73BC3B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672927   (167128) от 30.10.2023
-
-VA - Laid-Back Groovy Romantic Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Warm Summer Nights (4:42)
-02. Chillaxing Jazz Kollektion - Colors (5:07)
-03. eJazz Artistry - I Can't Stop Loving You (4:22)
-04. Kool&Klean - Kiss & Dance (4:44)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8563BF4DF13C7529689A11CBBBD6FBB8A1D73D6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

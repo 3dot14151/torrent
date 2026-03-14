@@ -1,3 +1,29 @@
+###  Публикация: 1038471   (606466) от 28.07.2016
+
+Проекты - VideoHive - Incandescent Epic Reveal - 4134986 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Incandescent Epic Reveal - огонь разрушает поверхность логотипа и раскрывает перегретое ядро. А что еще нужно для эпического образа логотипа? Правильно - хорошая озвучка!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C16AD0D248898188A15A881611D51267C2BDDE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038476   (606455) от 28.07.2016
 
 Проекты - VideoHive - Drift Show Promo - 15761039 [AEP]
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:325239F57841264EEAE14DB0BA6BCBE03E0289EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231994   (603125) от 21.06.2018
-
-Проекты - VideoHive - Burning Fire Logo - 21370383 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Burning Fire Logo - проект AE для демонстрации вашего логотипа с эффектом горения.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1E6915CF44D66BD9678C624B6D27C846D5ADE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

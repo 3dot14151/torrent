@@ -1,3 +1,90 @@
+###  Публикация: 988719   (918932) от 21.02.2016
+
+VA - 100-ка популярных хитов (2016) [MP3|256 kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Макsим - Хорошо
+02. Диана Шарапова & Сергей Зверев - Новогодний Бал
+03. Тамерлан И Алена Feat. Roiel - Стану Лучше
+04. Juan Magan Feat. Paulina Rubio & Dcs - Vuelve(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9CC1EE8BC8CC0A5C525B94CB72A81B362B7AB2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366968   (918890) от 14.03.2020
+
+VA - 100 Greatest 00s Hip-Hop (2020) [MP3|320 Kbps] <Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918890.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eminem - Lose Yourself
+002. Dr. Dre - The Next Episode
+003. Kanye West - Stronger
+004. M.O.P. - Ante Up(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 06:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D030185B658C579AB14769BD45D6C5C5C7CDA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367125   (918881) от 14.03.2020
+
+VA - World Deephouse Selection Vol.2 (2020) [MP3|320 Kbps] <House, DeepHouse, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Santoro & Alex Guittini - Makes Your Funky B (Alex Guittini Funky Deep Mix) 7:07
+02. Melloton & Little-H & Tosch - Positive Nation (Melloton's Afterhour Radio Mix) 2:46
+03. B.Infinite - Lounging Around (Original Mix) 4:26
+04. Lunagirl - Middle Of The Night (Extended Mix) 3:33(   Читать дальше...   )Жанр: House, DeepHouse, ElectronicПродолжительность: 02:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53FBF5246CA456AE31CCCDB7F87D3FC4F4EF5D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988768   (918679) от 21.02.2016
 
 VA - Диско 80 от Виталия 72 часть 2 (1983-1988) [MP3|203-320 кб/с] <Italo-Disco, Disco>
@@ -658,93 +745,6 @@ VA - Hits Of The 80 (Original Hits From The 80th) (2017) [MP3|320 Kbps] <Europop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D25718327042FBF97E9CF5CD785E1850ADF69E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490513   (917495) от 21.08.2021
-
-VA - Minimal Electro House: The Supersound Tech House Party (2021) [MP3|320 Kbps] <Tech House, Electro, Club Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917495.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Viel, Madraas - Vires
-002. Untidy Dubs - R.I.P.
-003. Joff. - Motion
-004. Tech House - Disco Knights(   Читать дальше...   )Жанр: Tech House, Electro, Club DanceПродолжительность: 12:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A852244684776EBBAF2C58D16EE35FC2921C5671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490483   (917483) от 21.08.2021
-
-VA - Beatport Deep House: Sound Pack #332 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917483.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michele Mccain - I Betcha Don't Know
-002. Holtkamp - A118-2
-003. Black Casta - Venomous
-004. Douglas Greed - Straight(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 13:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031B532968DA5FF15538E3400270D1A8AB7975CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367323   (917417) от 15.03.2020
-
-VA - Record Super Chart 629 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthony Keyrouz - Love Yourself 2:56
-02. Carla Morrison - Disfruto 3:57
-03. SAINt JHN - Roses (Imanbek Remix) 3:58
-04. ARIA - Bleu Chanel (NA-NO Remix) 2:43(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076E0391860EF5E8EAD2DBDF5112E19A31E289BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

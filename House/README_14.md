@@ -1,3 +1,241 @@
+###  Публикация: 1007180   (823633) от 14.04.2016
+
+VA - Electronic Positivity Dance Plus Vol.2 (2016) [MP3|320 кб/с] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conte, Ferrarese - Summer Night (Club Mix) 07:32
+02. Danny Junior Crash - Get Party On (Clevz Rmx) 06:41
+03. BO.CA.DA. - Welcome to Satrincha (Massive Bongo Mix) 05:50
+04. Kando - Dark Angel (feat. Alicia) (Radio Edit) 02:41(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 01:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAAE1183482B7E711A7D07B40B257318A6A9BA0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314113   (823256) от 26.03.2011
+
+Gabriel and Dresden - Toolroom Knights Mix2 (2007 original) [MP3|256 kbps]<House Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_823256.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Livio and Roby feat. George G-Pearl (Gabriel & Dresden remix)
+3. Shlomi Aber & Itamar Sagi- Blonda
+4. Eyerer & Namito-Quipa (Ettienne De Crecy Remix)
+5. James Holden-A Break In The Clouds. Christopher Norman feat. 3 PM-Turn On The Lights (Acappella)
+6. Gabriel & Dresden with Scarlett Ettienne- Eleven
+7. Dubfire-Roadkill
+8. Gabriel & Dresden feat. Jan Burton-Enemy (Gabriel & Dresden 2007 Remix)
+9. Dusty Kid-Tsunamy
+10. The Killers-Read My Mind (Gabriel & Dresden Mix)Жанр: House ElectroПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC319C0877BFF87E5635294468B80416E29F4610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116581   (823002) от 20.03.2017
+
+VA - Pool House 2017 (Cool Deep House For The Poolside) (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gorillag - Give Me To The Right (Extended Mix)  6:30
+02.  B&G Crew - Webaba (Alternative Mix)  6:50
+03.  Christos Fourkis - Come In My Life (Bes & Meret Remix)  4:10
+04.  Poenitsch & Jakopic - Two People (Club Mix)  5:29(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DD643ADBCCC1F250AFFCCAE8EF2F4516B4A6FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007457   (821703) от 15.04.2016
+
+VA - The Big Ones Vol.8 (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johan Purl - Riba Noche (Stereosoulz Remix) 07:23
+02. Nico Heinz, Max Kuhn & Fabio de Magistris - Sounds of Island (Robert Fell Remix) 06:23
+03. Jaques Le Noir - Gold Coast (Morsy Remix) 04:57
+04. Nic & Peter - Shakin' (Kevin Prise Remix) 06:52(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93758F9C92D7E307ACEC42D43BF287EDFC9758C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007439   (821511) от 15.04.2016
+
+VA - Re:Recommended - Progressive House Edition Vol.7 (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AKADIAN - Pseudo (Original Mix) 05:32
+02. Axay - Madagascar (Original Mix) 05:04
+03. Presskit, Naza Brothers & Braudt - I Remember (Club Mix) (feat. Kathy) 05:19
+04. Nikky Mik - Dream (Original Mix) 04:00(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53956C12AE2485FE2E834A7657E45B19FA83A120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116809   (821174) от 21.03.2017
+
+VA - Beats For Life Vol 1 (20 House Machines) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Alma Rouge - I Swear (Francesco Baldi Summer Remix) 07:00
+02. Dani B., Nicola Veneziani - Pump The Bass (Alex Barattini Remix) 06:10
+03. Luca Bisori - Do You Wanna Funk 06:57
+04. The Switch - Beautiful Monster (Feat. Johnny B.) 04:35(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710A49129DF3EAD1BD9FD80B454E91670E6598C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007844   (819902) от 16.04.2016
+
+VA - Progressive House Components (2016) [MP3|320 кб/с] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quadran - Rumour (Thorin Remix) 07:18
+02. Fulagie - Tantrina 05:44
+03. LucianZ - Beautiful Moments (Club Mix) 06:41
+04. Lolo - Travel the World in 10 Minutes (Chris M Progressive Mix) 10:00(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 02:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A78ABCD29EBB23F93D86A0A6C78ABDDCEAC223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007754   (819900) от 16.04.2016
+
+VA - Venera Music Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey Skvortsov - Into the Unknown 06:45
+02. Alex Greenhouse - Everyday U Need a 5un5hine 09:02
+03. Anton Seim - Pleasure Time (Manchus Remix) 07:00
+04. Argonautica - Counterpoison 05:13(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D43E96ED01C9977155597B16CC34BE9E0459E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007819   (819899) от 16.04.2016
 
 VA - Urban Dance Battle Nation (2016) [MP3|320 кб/с] <House, Progressive>
@@ -519,244 +757,6 @@ VA - Venera Music Vol.3 (2016) [MP3|320 кб/с] <House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED8625CDE791BA6C669EB6E169C8E1C55C3A8164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008518   (816028) от 18.04.2016
-
-VA - House Rhythms (Special Edition) (2016) [MP3|320 кб/с] <House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Heaven feat. Lola London - To Be Cool (Jeffrey Marshal's House Mix) (03:27)
-02. Frankie Borrel - Analogue Deep (Fashion Modell Project Mix) (03:30)
-03. Brooklyn Boyz - Remain in Onor (Tribeca Mote's House Mix) (03:26)
-04. Tony Roiale feat. V6 - Get a Deep Slap (Jeorge Dee's House Mix) (03:27)(   Читать дальше...   )Производство: Kocca RecordsЖанр: House, Club HouseПродолжительность: 01:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BEE561425B46FC444FC52778807E910887299E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117799   (815628) от 24.03.2017
-
-VA - Most Played Tracks (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  John Slater - Boogie Down (Original Mix)  4:59
-02.  Anbargo - Anbargo (Original Mix)  5:26
-03.  Lykov - I Have A Choice (Original Mix)  4:40
-04.  Plastik Night - Bono (Original Mix)  4:15(   Читать дальше...   )Жанр: HouseПродолжительность: 01:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09BC9F1357A29965BF1757293069666C1DF79C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117959   (815341) от 24.03.2017
-
-Dash Berlin - We Are (Part 2) (2017) [MP3|320 Kbps] <House, Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dash Berlin & Matt Simons - With You  3:08
-02.  Dash Berlin & DBSTF ft. Jake Reese & Waka Flocka vs. DJ Whoo Kid - Gold  3:29
-03.  Dash Berlin & Do - Heaven  3:18
-04.  Dash Berlin & Luca Perra - Without The Sun  3:02(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E269526AABE3F320332B0A4962E816E5EBFBBDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656336   (814331) от 16.05.2013
-
-Stanisha - The Ancient Galleries (2012) [MP3|320 кб/с]<progressive house>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 0n35ou1 (Original Mix) (08:05)
-02. Altered States (Original Mix) (07:43)
-03. Bedouin (Original Mix) (07:49)
-04. Cosmic Dancer (Original Mix) (08:57)
-05. Disappear (Original Mix) (09:21)
-06. Inner Scream (Original Mix) (08:08)
-07. Magic In Your Eyes (Original Mix) (10:57)
-08. Space Shuttle Is Burning When She Plays The Piano (Original Mix) (08:37)
-09. The Ancient Galleries (Original Mix) (07:39)
-10. Yoruba (Original Mix) (09:46)Жанр: progressive houseПродолжительность: 01:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B06ED40E209DC1A28A7B26C28A996511E8EE33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118221   (813613) от 25.03.2017
-
-VA - Civil Dance Vol.1 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Richard Kah & Yungdiggerz - Work That Body (Radio Edit)  3:33
-02.  L3idwen - Feel The Music (Radio Edit)  3:14
-03.  Ronny Rox - Let's Go (Radio Edit)  3:06
-04.  Goldenbeatz & Takahiro Yoshihira - Unbreakable (Radio Edit)  3:45(   Читать дальше...   )Жанр: HouseПродолжительность: 02:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE62342D0E8699A66EE71D61A12CC114EFEF8CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118125   (813495) от 25.03.2017
-
-VA - Miami Music Week 2017 (Deluxe Version)  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Clam - Meltdown Joint (Original Mix) 04:20
-02. Clark Morrison - When Love Dies (Clark Morrison Remix) 04:42
-03. Bad Surfer - Take My Body (Dub Mix) 04:23
-04. Autosky - Abstract Love (Original Mix) 05:37(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934284455AA9041CBA098ABE9A935A0521B52D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008902   (812176) от 20.04.2016
-
-Yuriy From Russia - Distant Love (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812176.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Distant Love (8:40)
- 2.  Glass Bells (7:32)
- 3.  Keep Your Head Down (7:50)
- 4.  Oriental Bazar (7:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C7CBF3DB2AD775E5B3C870DB041A0448C2C2675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383508   (811723) от 15.05.2020
-
-VA - Extreme Sports Music Vol 4 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hr. Troels - 6Am (Radio Edit)
-02. Phun And Key ft Patrick Metzker - Hang Out (Radio Edit)
-03. Dacos And Lucas Crapanzano - Ronker (Lucas Likes This Radio Cut)
-04. Steve Cypress - Move Ya Body (Edit)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AEB60482250FDB9A7F6B2A6A69A9E4F73441A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

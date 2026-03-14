@@ -1,3 +1,125 @@
+###  Публикация: 459687   (254211) от 18.05.2012
+
+Def Leppard - 12 Альбомов, 8 изданий, 19 CD (1980-2008)  [FLAC|Lossless]<Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+1980 - On Through The Night (Japan UICY-93450)
+1981 - High 'N' Dry (818 836-2 Y-1)
+1983 - Pyromania
+1987 - Hysteria
+1992 - Adrenalize
+1993 - Retro Active
+1995 - Vault. Def Leppard Greatest Hits 1980-1995 (528 656-2)
+1996 - Slang (UK 532 493-2)
+1999 - Euphoria (Limited Edition UK 546 307-2)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 17:37:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836398   (252547) от 10.11.2025
+
+Deep Purple - Rapture Of The Deep (2005) 2XCD, Reissue, Remastered, 2025, Ear Music, Remixed, Digipak, 20th Anniversary [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252547.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1-1 Money Talks 5:35
+1-2 Things I Never Said 4:47
+1-3 Rapture Of The Deep 5:55(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D92E9575AFFDC487CA124231BB2915DAA5EBDB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836121   (252289) от 08.11.2025
+
+God's Gift - God's Gift (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_252289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Going Back 03:52
+02. Call Me Bad 04:19
+03. Dogs On The Run (Radio Edit) 04:19
+04. Put It Where You Want It 04:32(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264ACB6534DFEEE15B56CEE26A460A8F52FFDF81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001060   (252039) от 25.05.2023
+
+Guns n' Roses - 9 альбомов, 1 EP, 2 Box Set (1987 - 2022) 33 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Glam>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_252039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наиболее дискуссионная американская хэви-рок группа конца 80-х годов "Guns N' Roses" известна среди людей, которые отнюдь не интересуются музыкой, благодаря вызывающе эпатажному поведению музыкантов. Хотя, надо отдать должное их творчеству, от отсутствия музыкальных фанов "Guns N' Roses" тоже не страдают. Несмотря на длительное затишье в их деятельности (   Читать дальше...   )Список альбомов:
+1987 - Appetite For Destruction
+1987 - EP
+1988 - G N' R LiesЖанр: Hard Rock, GlamПродолжительность: 34:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F8F2F3D23809BBCFDA00772347DC7CEFEFAFAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219535   (251911) от 31.05.2023
 
 Alcatrazz - 11 аlbums, 2 Box sets, 27 CD (1983-2023) Discography [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n'Heavy>
@@ -634,122 +756,6 @@ Giant Sleep - Grounded to the Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0ECF6ED1C690DD3F40AC161EE688509C8242D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608636   (245527) от 31.01.2023
-
-Devil's Whiskey - Historias De Muerte (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Ritual of Eyes (00:07:02)
-02 - Behind the Hills (00:08:39)
-03 - Black Poison (00:08:28)
-04 - Born in the Dirt (00:07:34)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CC97DAC05DDCBB8CF65C5F845048C7A65630E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630676   (245472) от 02.05.2023
-
-Roxanne - Radio Silence (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone To Kill
-02. Girl's Alright
-03. Super Bad
-04. Thin Blue Line(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5CDC70D6D64398C338CA25412B5DCC5061EF5B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449463   (245414) от 21.02.2021
-
-Persian Risk - Who Am I? - Once A King (2012-2014) 2xCD, Reissue, 2019, Escape Music [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245414.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Who Am I?:
-01. Don't Look Back
-02. Who Am I?
-03. My Creation(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7151E4667FE8D6E8767BCC4DD708C21BD044E24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620889   (245337) от 22.03.2023
-
-Ghosts of Sunset - Breathe (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterthought (2:26)
-02. Hide Her Heart (2:55)
-03. Move Along (4:10)
-04. Cocaine Kisses (4:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90549041E0C3436A3F063340DA703B71816F6F10
 ```
 
 https://mybot314.ru/tekegram_catalog/

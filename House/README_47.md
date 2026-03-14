@@ -1,3 +1,235 @@
+###  Публикация: 1243012   (496094) от 25.08.2018
+
+VA - It's Disco House (2018) [MP3|320 Kbps] <House, Nu Disco, Disco House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Prince - Careless Whisper (Calenzo Club Mix) 3:38
+02. Carol Jiani - Feel It (Andre Schluter Funky Night Mix) 3:10
+03. Chris Excess feat. Lexine - It Feels So Good (Jason Parker Remix Edit) 3:45
+04. Jason Parker feat. Gemma Macleod - U Sure Do (Radio Edit) 3:25(   Читать дальше...   )Жанр: House, Nu Disco, Disco HouseПродолжительность: 02:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42622CBB8FCAEC0BBF4C9F0157C76BB96562B622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243020   (495572) от 25.08.2018
+
+VA - Progressive Creators (2018) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryuku Underground - Seragaki (Junkie Xl Remix) 11:20
+02. Nick Catano - Euphoria (Original Mix) 7:49
+03. Gerardo Boscarino - Numb (Original Mix) 7:16
+04. Heads Down Music - Turned Out (Original Mix) 7:52(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90AB4A6948E675D1501905702F02E909B8D07D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158565   (492096) от 16.08.2017
+
+VA - Vocal House Essentials Vol.2 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hitfinders - Miami (feat. R. Ghelli, Felipe Romero) (S&A Ocean Drive Mix)  5:19
+02.  Made In Italy - Everyday (051 Project 90's Taste Mix)  6:14
+03.  Lorenzo Gallo - I Want to Be (feat. Gigliola) (Alex Raimondi Remix)  7:13
+04.  Alex Raimondi - I Hate You (feat. Steph B.) (Frystal DJ Remix)  5:17(   Читать дальше...   )Жанр: HouseПродолжительность: 01:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA412EDB254B5282A350E4AB54833218694DE354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318559   (490888) от 08.08.2019
+
+Remix Sport Workout - Hard Body Training 2019 [MP3|320 Kbps] <Funky, Club House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490888.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Fast Fusion Working (3:19)
+2.White & Red Lies (2:42)
+3.Fitness Never Without Me (3:30)
+4.When the Party's Over (4:12)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266F90E89B1CFCEE89BD96E1383A645996124FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318814   (486679) от 10.08.2019
+
+Remix Sport Workout - The Best Music for Workout, Training & Running 2019 (2018) [MP3|320 Kbps] <Funky, Club House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486679.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Youngblood (3:24)
+2.All I Am (4:58)
+3.Bad Girl (3:26)
+4.Be Alright (3:28)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:26:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E5ABA55A33E39CE1D4744EFEB7266EF5E1E1B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244042   (486176) от 30.08.2018
+
+VA - Funky Disco House Grooves, Vol. 12 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eaze - What You Need (Rampus Remix)
+02. James Teej - The Only Constant Is Change (Original Mix)
+03. Mike Mac - Disko Biskit (Original Mix)
+04. Klima Project - Gravity Material (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12618E421A73B32B4A42602444D6197E7064FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244095   (486170) от 30.08.2018
+
+VA - To Get Her in the Mood Feed Her Music Workout Tracks (2018) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joelina Haak - Palms [03:10]
+02. Joel Fuel - Knittle [03:10]
+03. Jetsetta - The Tap [03:10]
+04. Jeff Haymaker - Glites [03:10](   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8FCF2136F780E2A2A86C43AD213321C05F709E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159167   (486132) от 19.08.2017
+
+L.S.G. - Double Vision (2017) [MP3|320 Kbps] <Progressive House, Downtempo, Electronica>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Seven Worlds (Original Mix)  4:54
+02.  Escape The Gravity (Original Mix)  10:41
+03.  Vapor (Original Mix)  11:01
+04.  Spotter (Original Mix)  7:55(   Читать дальше...   )Жанр: Progressive House, Downtempo, ElectronicaПродолжительность: 04:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747BC7600D3A1400618F0D5FB9DBBE914A313D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056190   (484007) от 24.09.2016
 
 VA - Body Pump #1 - Best of Workout (2016)  [MP3|320 Kbps] <Funky, Club House>
@@ -525,248 +757,6 @@ Robin Schulz - Sugar (2015) [MP3|320 кб/с]<Vocal House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33DF1D0F2148B5E475FDD36501533B9FFE91D667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058737   (466434) от 02.10.2016
-
-VA - Ibiza Closing Parties (2016) [MP3|320 Kbps] <Club, Funky, Tech House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boogeyman - All Music To Me (Original Mix) 08:31
-02. Dr. Beat - What's That Feeling Called Again (Original Mix) 08:09
-03. Jaques Le Noir - Wait For You (Original Mix) 05:18
-04. Dimitri Bruev & Xavi Navarro - Esmeralda (K-Style Remix) 06:52(   Читать дальше...   )Жанр: Club, Funky, Tech House, ProgressiveПродолжительность: 03:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D949A785F53BD213133D1AD4FBF2CFDFAD7B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407273   (466393) от 07.09.2020
-
-VA - Workout Top Music Motivation (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Salgado - Rossdale (03:47)
-02. Andy Well - Take Me Back (05:39)
-03. Stan Kinley - The Pain (08:22)
-04. Supernocs - Vega G (03:56)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0218FBA8438DA9287BFFCBF88E78FC516E6EA518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058730   (466318) от 02.10.2016
-
-VA - Ibiza 2016 Closing Party (2016) [MP3|320 Kbps] <Tech House, Deep, Soulful, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Knight - Yebisah (Original Mix) 08:23
-02. Ian Pooley - Cold Wait (Bicep Dub) 06:22
-03. Eats Everything - Monegros (Original Mix) 07:17
-04. Dubspeeka - K377 Unfriended (Original Mix) 08:22(   Читать дальше...   )Жанр: Tech House, Deep, Soulful, FunkyПродолжительность: 08:13:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DD3AC43890FA7A2FBECF74C447BE79B416ED39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320485   (465519) от 21.08.2019
-
-VA - Bikini Beach, Vol. 3 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Amisso - Sparks 04:34
-02.Dirty Wild - Game Over 03:56
-03.Grund - Bring Me Up Above (DJ Luciano Remix) 03:43
-04.Lonely DJ - Life is a Rave 04:44(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B40E35314997683094AB6CBD296F035754156C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320811   (465510) от 21.08.2019
-
-VA - Bikini Beach, Vol. 5 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Nexus - Last (DJ Luciano Remix) 02:56
-02. KIRAJ - Pink Sunset 03:41
-03. Leadkraft - No Time 07:39
-04. Lonely DJ - First Flight 04:03(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35D64DE70B25422E5FEA61A484274C9E7677CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320861   (465407) от 21.08.2019
-
-VA - Bikini Beach, Vol. 6 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely DJ - Star Spangled Banner 03:57
-02. Mazzy - House Party 03:39
-03. Mothership Q - Energy 04:52
-04. Quincy Ortiz - Thinking About It 03:25(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E6C117BBC0AEEA54A609049225D15E220EA43A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549077   (465324) от 19.09.2012
-
-VA - Endless Summer - Ibiza Closing 2012 (12/09/2012) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Melin - Soul Heaven (06:08)
-02. Weekend Heroes - Plus One (Human Element remix) (08:16)
-03. DJ Ortzy & Nico Hamuy - Lose Control (feat Alex Peace - instrumental mix) (06:13)
-04. Futuristic Polar Bears & Danny Howard - Red Man Rising (Miami 2012 edit) (06:26)
-05. Peter Brown - The One (06:34)
-06. DJ Soulstar - Around The World (Tune Brothers remix) (06:13)
-07. DJ Fist & The Bass Kidz - Let's Walk (06:16)
-08. Erick Morillo & Eddie Thoneick - Live Your Life (feat Shawnee Taylor - Antranig remix) (07:37)Жанр: Progressive HouseПродолжительность: 03:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E85D5B795323828B24F38018F54DBF591E99D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547872   (465318) от 19.09.2012
-
-Mobbing (Alle Benassi) - Rock the dog (2008) [MP3|320 кб/с]<Electro House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ohm-O-Genik
-02. Angell
-03. Excellent)
-04. Butter my bisquit
-05. Open legs
-06. What is this!
-07. Eat more pasta
-08. Freeze
-09. Kondanna
-10. Aut aut(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B06F62838555AF727CCF7393E78519EACD0135
 ```
 
 https://mybot314.ru/tekegram_catalog/

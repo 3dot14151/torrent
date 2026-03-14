@@ -1,3 +1,177 @@
+###  Публикация: 1313328   (524512) от 08.07.2019
+
+Heather Newman - Rise From The Flames (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Coming For You
+02. Zakary
+03. She Sure Looks A Lot Like Me
+04. You MeanTo Tell Me(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC87DC90414DB21D2613E44741A40A1C211C905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240534   (524473) от 12.08.2018
+
+Kool&Klean - Best of so Far (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Away
+02. Sail
+03. I Can Only Imagine
+04. Feel the Light(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EAFE3CAA4FE73EA6AEC86FADBB14889BD271645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559425   (524417) от 25.06.2022
+
+Brian Lynch Big Band - The Omni-American Book Club: My Journey Through Literature In Music (2019) 2CD, Hollistic [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524417.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Crucible for Crisis [12:08]
+02. The Struggle Is in Your Name [8:59]
+03. Affective Affinities [8:05](   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 01:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4878F9015F8FC0579792FF32730A4DFBA1DF2B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053930   (524371) от 18.09.2016
+
+Oberg - Blues As Blues Can Get (2009) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues As Blues Can Get   [05:36]
+02. Wishing Well   [04:47]
+03. What You Got   [04:30]
+04. Head Up High   [06:37](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD3A32DBEF93BD25986E38EE37D96ADDE72E873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053808   (524353) от 18.09.2016
+
+Neal Black & Larry Garner - Guilty Saints (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Today   [04:24]
+02. Guilty   [04:41]
+03. A Friend Like You   [03:52]
+04. Saints Of New Orleans   [05:09](   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C5975C3E5C64EDA2815355CF678848287E9FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053775   (524266) от 18.09.2016
+
+Rocky Athas - Let My Guitar Do The Talking... With My Friends (2014) [FLAC|Lossless|tracks + .cue] <Blues Rock, Guitar Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Think About It   [03:38]
+02. To My Friend   [04:52]
+03. D Boogie   [04:04]
+04. On the Move   [04:25](   Читать дальше...   )Жанр: Blues Rock, Guitar InstrumentalПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7543D29FE161494F1DD2C9E479BA1B8BA500269D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927739   (524130) от 14.08.2015
 
 The Leaders - Mudfoot (1986) /Bellaphon/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
@@ -572,180 +746,6 @@ Errol Rackipov Group - Distant Dreams (2017) OA2 Records [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33423DAED0D589EB444B4F36ADBA7F5C8B10F623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313690   (523031) от 10.07.2019
-
-Geof Bradfield - African Flowers (2010) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, African Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butare [5:23]
-02. Piano Solo [2:26]
-03. The Children's Room [5:49]
-04. Lubumbashi [7:18](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, African JazzПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EF4ECF3A8751E9797C070178CBFF4BB34F0AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371931   (522938) от 05.08.2011
-
-Paul Anka - Rock Swings (2005) [MP3|320 kbps]<Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye Of The Tiger 	     (04:05)
-02. Jump 		     (03:38)
-03. Everybody Hurts 	     (04:13)
-04. Wonderwall 		     (03:38)(   Читать дальше...   )Жанр: SwingПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F797B6F478FA7ABF279F96CD5176D9DB036204D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559791   (522773) от 27.06.2022
-
-Digging Roots - Zhawenim (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Calls Me (3:55)
-02. Tall Grass (3:54)
-03. The Healer (3:53)
-04. SKODEN (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24B127CDB30052061F32D213BE45FB054F7C7C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559881   (522697) от 27.06.2022
-
-Avishai Cohen - Big Vicious (2020) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honey Fountain (Big Vicious-Rejoicer) - 4:34
-02. Hidden Chamber (Cohen) - 4:43
-03. King Kutner (Cohen) - 4:10
-04. Moonlight Sonata (Beethoven) - 5:30(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7321B1B6DFF30071E275BEE14E13DD88F7BA9E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559802   (522661) от 27.06.2022
-
-G. Love & Special Sauce - Philadelphia Mississippi (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love from Philly (feat. Schoolly D & Chuck Treece) (4:43)
-02. Mississippi (feat. Alvin Youngblood Hart, R.L. Boyce & Speech) (4:01)
-03. My Ball (feat. Freddie Foxxx & Jontavious Willis) (4:19)
-04. Guitar Man (feat. Christone "Kingfish" Ingram) (3:06)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE1AA55CA757F752771748A3B1CDC1BC1A25F00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559714   (522660) от 27.06.2022
-
-Supersonic Blues Machine - Voodoo Nation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Money (00:03:42)
-02 - Too Late (00:03:27)
-03 - Coming Thru (00:05:32)
-04 - You And Me (00:05:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB80DB2885DB0D18B4A660C215C6FA0EF6DCB36F
 ```
 
 https://mybot314.ru/tekegram_catalog/

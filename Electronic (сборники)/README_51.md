@@ -1,3 +1,32 @@
+###  Публикация: 1506086   (801651) от 29.10.2021
+
+VA - Electro Lemon: Fresh House Session (2021) [MP3|320 Kbps] <Electro, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801651.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Frankie Lluc - Recreation Ego
+002. Small Tok - Play Me
+003. Pretty Pink - Let You Go
+004. Chappier - Resurge(   Читать дальше...   )Жанр: Electro, Future HouseПродолжительность: 09:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D914FE84387E9F57F9BD7CD65F9787D3678FE5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199317   (801553) от 15.01.2018
 
 VA - Deep House Collection Vol.153 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -713,35 +742,6 @@ VA - Beatport Trance  Pack (03.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76AC48583812CC2E6D8439FF27E128144B6B01DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121727   (799649) от 03.04.2017
-
-VA - Beatport Top 100 Trance March (2017) [MP3|192-320 Kbps] <Trance, Progressive Trance, Uplifting Trance,Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799649.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robert Nickson - Heliopause (Original Mix). 07:20
-002. Cold Blue - Once In Time (Original Mix). 07:10
-003. Fady & Mina - Akemi (Extended Mix). 08:22
-004. Sam Jones - Good Love (Original Mix). 07:16(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting Trance,Vocal TranceПродолжительность: 11:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6272F33BB2FA5604D3D47E22D26ECC1A54605B70
 ```
 
 https://mybot314.ru/tekegram_catalog/

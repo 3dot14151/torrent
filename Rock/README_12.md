@@ -1,3 +1,32 @@
+###  Публикация: 1096830   (917726) от 25.01.2017
+
+Crow - Crow By Crow (1970) Reissue, 2011,  Austria Record Finder [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Stand To Blame
+2. Colors
+3. Smokey Joe
+4. Medley:(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C214C4A26FCC75032E6AA1FBF84FB67DC202795A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490692   (917570) от 21.08.2021
 
 Seventh Crystal - Delirium (2021) [MP3|320 Kbps] <Melodic Hard Rock>
@@ -710,35 +739,6 @@ Jimi Hendrix - The Cry Of Love (1971) Remastered 2014 [MP3|320 кб/с]<Psychede
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38D5F44ECCF3B1B1C746BF4BF1225F445558A694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866874   (904859) от 07.02.2015
-
-Jimi Hendrix - Rainbow Bridge (1971) Remastered 2014 [MP3|320 кб/с]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904859.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dolly Dagger
-2. Earth Blues
-3. Pali Gap
-4. Room Full of Mirrors(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C239EDE02D5542DDA05BF548634D9B266A01D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1008917   (813932) от 19.04.2016
+
+VA - My Kind Of Music: A Fine Romance (2012)3CD [FLAC|Lossless|tracks + .cue] <Jazz,Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ella Fitzgerald & Louis Armstrong - A Fine Romance - 00:03:55
+02.Bobby Darin - Dream Lover - 00:02:32
+03.Shirley Bassey - As I Love You - 00:02:55
+04.Frank Sinatra - Young At Heart - 00:02:51(   Читать дальше...   )Жанр: Jazz,Vocal JazzПродолжительность: 02:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280F79617B63C67BCF3A6E1A580F08557BB0929B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008704   (813811) от 19.04.2016
+
+Cherry Poppin' Daddies - White Teeth, Black Thoughts (2013) [MP3|320 кб/с] <Neo-Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Babooch (03:57)
+02. I Love American Music (03:47)
+03. Whiskey Jack (03:22)
+04. Doug The Jitterbug (02:30)(   Читать дальше...   )Жанр: Neo-Swing, JazzПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3B76F0917052E9A33BA87230B7144871EF4EC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504131   (813686) от 22.10.2021
+
+Frank Sinatra - The Best LPs (1954 - 1962) 10CD, 2015, The Intense Media [FLAC|Lossless|image + .cue] <Vocal Jazz, Easy Listening, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813686.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 -  In The Wee Small Hours:
+01. In The Wee Small Hours Of The Morning [3:04]
+02. Mood Indigo [3:32]
+03. Glad To Be Unhappy [2:41](   Читать дальше...   )Жанр: Vocal Jazz, Easy Listening, Big BandПродолжительность: 10:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05D0F444D8F980C9B81C0BCB387A79F0D73ECC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118281   (813619) от 25.03.2017
+
+Shelly Manne - Perk Up (1976) 1995, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Perk Up [05:47]
+ 02.I Married an Angel [04:56]
+ 03.Seer [05:54]
+ 04.Comeback [04:54](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BE8B86BD7C9A184BBE6C65CB87527788C72604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118270   (813618) от 25.03.2017
+
+Houston Person - To Etta With Love (2004) HighNote [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's Magic [05:19]
+ 02.Love Walked In [06:21]
+ 03.Don't Misunderstand [04:44]
+ 04.I Should Care [04:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95756CF5CCB23E590A514F1398ADCB50B708F8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118273   (813614) от 25.03.2017
+
+Bill Evans - Homecoming (1979) 1999, Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Re: Person I Knew [04:50]
+ 02.Midnight Mood [06:47]
+ 03.Laurie [08:08]
+ 04.Song From MASH [04:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BA4D568A55BDA25000883BF801754D807BA560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118293   (813499) от 25.03.2017
 
 Roomful of Blues - 45 Live (2013) Recorded Live At The Ocean Mist [FLAC|Lossless|tracks + .cue] <Jump Blues>
@@ -572,180 +746,6 @@ Bucky Pizzarelli - Challis In Wonderland (2011) Arbors Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B69BA1492F0DE553F3090056D0BB0515B569FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009374   (810294) от 21.04.2016
-
-Art Farmer - Early Art (1954) Remaster, 2006, Victor Entertainment[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Autumn Nocturne [04:10]
- 02.Soft Shoe [05:03]
- 03.Confab In Tempo [03:59]
- 04.I'll Take Romance [05:01](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBFBD0CB41A4EBF47E2C4592AFDB0B9288481201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009461   (810293) от 21.04.2016
-
-Joe Zawinul - The Rise & Fall Of The Third Stream (1967) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Baptismal [07:39]
- 02.The Soul Of A Village - Part I [02:14]
- 03.The Soul Of A Village - Part II [04:16]
- 04.The Fifth Canto [07:01](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Third StreamПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D593108439A315369E81BAD610CA31476E809182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009368   (810292) от 21.04.2016
-
-Art Farmer - Art (1960) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.So Beats My Heart For You [04:46]
- 02.Goodbye, Old Girl [04:35]
- 03.Who Cares [05:31]
- 04.Out Of the Past [05:22](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926957EA8B316A68B5B4086C1A8A4830BAAB9BB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009453   (810291) от 21.04.2016
-
-Kenny Burrell - Blue Lights, Volume 1 (1958) Remaster, 2000, Toshiba[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Yes Baby [11:09]
- 02.Scotch Blues [08:01]
- 03.Autumn In New York [05:48]
- 04.Caravan [09:58]Жанр: Mainstream Jazz, Bop, Guitar JazzПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C01580FC681F7BAE9F44F2148FE9F7A540C026CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197951   (810268) от 10.01.2018
-
-Sonny Stitt - Eight Classic Albums, Vol.2 (1959 - 1962) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810268.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. When The Red, Red Robin (Comes Bob, Bob, Bobbin. Along) [02:47]
-02. For All We Know [03:07]
-03. I.m Confessin. [03:20](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 04:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39AB63BCF59C18DFA2E8CF7DE7C4B671E440115A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198203   (810264) от 10.01.2018
-
-Yusef Lateef & Adam Rudolph - Beyond The Sky (2000) META [WavPack|Lossless|image + .cue] <Avant-Garde Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Sky [03:11]
-02. Origin of a Mother Tongue [04:34]
-03. Evanescent Symmetries [08:46]
-04. Handful of Gifts [07:00](   Читать дальше...   )Жанр: Avant-Garde Jazz, World FusionПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E6FDECEAD78E0CB3516CBD052709356034A50D
 ```
 
 https://mybot314.ru/tekegram_catalog/

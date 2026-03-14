@@ -1,3 +1,119 @@
+###  Публикация: 1839410   (1046571) от 28.11.2025
+
+AC&DC - From Down Under (1980) 1990, Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shot Down In Flames
+02. Hell Ain't A Bad Place To Be
+03. Sin City
+04. Walk All Over You(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537FE744A4F8D9CCD59233EED2E9F597FD13CCC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601532   (1046443) от 01.01.2023
+
+Joe Riley - The Axeman Unleashed (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psycho Clown [00:04:12]
+02. In Black [00:04:30]
+03. Loud as Hell [00:03:04]
+04. Fine Line [00:04:16](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8092635D2C3229C7CC66C1A68A26CDF29AE9930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601782   (1046355) от 02.01.2023
+
+Broken Silence - Discerning The Times (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streets Of The Empty Soul
+02. Higher
+03. Not Love At All (It's My Heart)
+04. Naked(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186DD794A6A6CCA53435769382B78381DD44D5A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601787   (1046341) от 02.01.2023
+
+Sammy Hagar & The Circle - Crazy Times (2022) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046341.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Intro: The Beginning Of The End (1:50)
+02. Slow Drain (4:55)
+03. Feed Your Head (3:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0C8D22B1807CEA0044F1EA9F2CA86ABA186D68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601785   (1046318) от 02.01.2023
 
 Innocent - Innocent (1997) Japanese Edition, Reissue, 1998, meldac Corporation [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ Black Star Riders - Wrong Side of Paradise (2023) Special Edition [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:082128214880006CEAE5A75062BFF994CC0E5A9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606168   (1044535) от 21.01.2023
-
-Half Life - Like A Jungle (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Like A Jungle (00:03:58)
-02 - Dance Of Madness (00:03:48)
-03 - Virus (00:05:01)
-04 - The Last Time (00:05:28)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3765BC618DF7E63A53925EF9431B3FFBDCEB420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606445   (1044413) от 22.01.2023
-
-John B King - A Kings Tale (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rushed (4:13)
-02. Closer Distance (4:02)
-03. Did We Waste Our Song (3:52)
-04. The Valleys Shadow (4:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E772417FD4404335C45B1CF9E974303E23B76C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606727   (1044328) от 23.01.2023
-
-StreetLore - StreetLore (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brothers (Lead Vocals – Davide Barbieri) (5:24)
-02. Friends In Time (Lead Vocals – Satin) (3:34)
-03. Crossroad (Lead Vocals – Terry Brock) (4:40)
-04. The Storm (Lead Vocals – Davide Gilardino) (3:19)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00{46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4D6DD5F80DAFAE31B67538D72D993999F7468B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606724   (1044325) от 23.01.2023
-
-Black Paisley - Human Nature (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set Me On Fire (3:50)
-02. In The Night (3:21)
-03. Not Alone (3:32)
-04. Promises (3:10)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D372E9BAD321F39BA18A763C44C58EC088F3D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 984488   (939010) от 09.02.2016
+
+VA - In The Language Of Trance (2016) [MP3|320 кб/с] <Uplifting, Progressive, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939010.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cor Fijneman feat. Jan Johnston - Venus (Meant to Be Your Lover) (Tiesto remix)
+002. Marc Simz feat. Emma Lock - Untimate Love (Original Mix)
+003. Ruben De Ronde LTN feat. Kimberly Hale - Moment Of Truth (Ruben De Ronde Mix)
+004. Christian Peter Stier - Last Summer (Original Mix)(   Читать дальше...   )Жанр: Uplifting, Progressive, Vocal TranceПродолжительность: 10:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A87599AA065326CE95A91C3B4942B9B87F6CC48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092530   (938947) от 12.01.2017
 
 VA - Best Electronic Republic Trance (2017) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
@@ -719,35 +748,6 @@ VA - Beauty Inside Dreamland (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF3562A11B9E04A2F66D9FD936B8C5D8D08FED9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094084   (930951) от 17.01.2017
-
-VA - Trance Kaleidoscope (2017) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930951.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aurosonic, Sue Mclaren - Captured By Gravity (Original Mix) 8:08
-002. Fabio Xb & Liuck Feat Roxanne Emery - Nowhere To Be Found (Craig Connelly Remix) 6:23
-003. Juventa - A Thousand Words (Original Mix) 7:41
-004. 4 Strings - Wondering (Original Mix) 6:02(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 11:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5103F4B1D78B8D16148FA5969B44799A78B5E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

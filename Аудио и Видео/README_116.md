@@ -1,3 +1,32 @@
+###  Публикация: 1533159   (703090) от 25.02.2022
+
+Любэ, Николай Расторгуев - Своё (2022) [AAC|~320 Kbps] <Pop, Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любэ - А заря (2:45)
+02. Любэ - Ночь (3:30)
+03. Любэ - За тебя (4:03)
+04. Любэ - Младшая сестрёнка (4:03)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FC2BF8E3E4874CA6EC544655E728E38AF9066B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287591   (702960) от 07.03.2019
 
 Как я стал русским  (2019) WEB-DL [1080p] ATV
@@ -664,35 +693,6 @@ Soulstance - One Note Bossa Instrumentals, Vol. 2 (2022) [AAC|~364 Kbps] <Nu Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFAB3165654E6C7C83708B53DAE95EB357F0F7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533444   (699555) от 27.02.2022
-
-VA - Electro Swing Deluxe (2013) [AAC|~336 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chateau Swing - A Little Party Never Killed Nobody (All We Got) (4:01)
-02. Siko - The Mambo Craze (4:09)
-03. Chateau Swing - A Night Like This (3:46)
-04. DJ Tokeo - We No Speak Americano (4:30)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649CF2D736C07B6678CBE09E64EDA8479F18A215
 ```
 
 https://mybot314.ru/tekegram_catalog/

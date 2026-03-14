@@ -1,3 +1,32 @@
+###  Публикация: 1450986   (244889) от 28.02.2021
+
+VA - Ambient Oceania (2021) [MP3|320 Kbps] <Ambient, Downtempo, Meditation, New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в мир мягкой, нежной и светлой музыки. Удивительное сочетание спокойных мелодий и позитивного ритма создаст для вас волшебную романтическую атмосферу и прекрасное настроение. Прикоснитесь к лучшим мировым образцам инструментальной музыки и почувствуйте, как становитесь добрее и счастливее.001. Kyrro - Élément Terre
+002. Jóel Sigurðsson - Ana & Ana
+003. Tobias Karlehag - Illusive Passage
+004. Aswekeepsearching - Reminiscence(   Читать дальше...   )Жанр: Ambient, Downtempo, Meditation, New AgeПродолжительность: 09:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD87B449A086169C118CCFF39FBC69E42D875F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067648   (244888) от 29.10.2016
 
 VA - Trance Collection Vol.53 (2016) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
@@ -716,35 +745,6 @@ Hayit Murat - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31EC30F78C846A23B6ADC86DB8C4DD380DC0340D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079232   (243225) от 04.12.2016
-
-VA - Top Hit Music Mission Charts (2016) [MP3|239~320 Kbps] <House, Funky,  Nu Disco, Tribal, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. W&W - Bigfoot (GirlsLoveDJs & Praia Del Sol Remix) 4:10
-02. Gianpiero Xp & Coveri & Donati feat. Serena - Magisexual (Extended Mix) 4:48
-03. Da Buzz - Bring Back the Summer (Original Mix) 3:20
-04. Club Crave - Replay (Sub Phonix Remix) 5:36(   Читать дальше...   )Жанр: House, Funky,  Nu Disco, Tribal, Dance, ClubПродолжительность: 07:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1A495AEF05B7A697BFD4DCAC4BBB66469FE783
 ```
 
 https://mybot314.ru/tekegram_catalog/

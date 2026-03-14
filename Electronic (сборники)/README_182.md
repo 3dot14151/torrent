@@ -1,3 +1,32 @@
+###  Публикация: 1338776   (268200) от 17.11.2019
+
+VA - Record Super Chart 613 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiosoulz - Dancefloor 3:13
+02. Tones And I - Dance Monkey (RMX) 4:34
+03. SAINt JHN - Roses (Imanbek Remix) 3:58
+04. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7153884A120016EADA557148C383B7AC84CE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338537   (268185) от 17.11.2019
 
 VA - Best tracks of Transitions by John Digweed on Kiss 100. 2007 Volume 4 (2019) Compiled by Firstlast [MP3|192-320 Kbps] <Progressive House, Techno House, Deep House>
@@ -716,35 +745,6 @@ VA - Children Of The Sea: Pacific Chill Area (2017) [MP3|320 Kbps] <Chillout, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C4F96FD4C7FD8F5D92D7FDA406BD9DACFF59E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191787   (263710) от 15.12.2017
-
-VA - Умная Электроника (Музыка Поднимающая Настроение) Часть 6 (Compiled by Zebyte) (2017) [MP3|320 Kbps] <House, Deep House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Super Flu  -  Mygut (Solomun Remix)  8:19
-02.  Basement Jaxx  -  Jump N Shout (Erik Hagleton Remix)  6:31
-03.  Milez feat. Chappell  -  Questions (Gumz Remix)  8:30
-04.  Gabriel Ananda & Alice Rose  -  Fields Of Dreams  8:46(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 04:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD5DB41F2CB8AF4C21C79F7F8A01E207897EFDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

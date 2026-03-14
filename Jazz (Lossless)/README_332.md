@@ -1,3 +1,90 @@
+###  Публикация: 1739885   (105967) от 30.07.2024
+
+Elvin Jones - Elvin! (1961, 1962) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Luck [6:23]
+02. Buzz-At [6:35]
+03. Shadowland [4:09]
+04. Pretty Brown [3:34](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1581D26E8374C7AC07FF4BA0B84CF5D4DEBEF92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740036   (105928) от 31.07.2024
+
+Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.1 (1953) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Others [6:01]
+02. All The Things You Are [5:16]
+03. Creme De Menthe [4:31]
+04. Viva Zapata [8:15](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8462FC3841FA1B96EBCF71F6601367CEADC88E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740432   (105816) от 02.08.2024
+
+Frank Sinatra - Ol' Blue Eyes (1990) Starlite [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Some To Watch Over Me [3:24]
+02. Laura [3:15]
+03. One For My Baby [3:06]
+04. These Foolish Things [3:12](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC6CF439D819CBCA782DA1FF87A80806AF45524F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740680   (105772) от 03.08.2024
 
 Frank Sinatra - I Get A Kick Out Of You (1990) Entertainers [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
@@ -658,93 +745,6 @@ V.A. - Italian Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Pop Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F93A03BC697B82C349172321BE6A16C78CFA4F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746235   (104929) от 30.08.2024
-
-Stan Getz - Scandinavian Days (1959) 1991, Fresh Sound [FLAC|Lossless|image + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stan Getz Introduces The Members Of His Quartet [1:02]
-02. Laverne Walk [4:17]
-03. I Remember Clifford [6:04]
-04. Stuffy [6:13](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 01:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BE8833D36B11443CF4916B1ED8D43672890116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746437   (104892) от 31.08.2024
-
-Conte Candoli & Lee Morgan - Double or Nothin' (1957) 1992, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reggie Of Chester [4:38]
-02. Stablemates [5:12]
-03. Celedia [4:44]
-04. Moto [5:45](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2910E49BC5D50C52AD34EFE6F82304B45D751AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747043   (104802) от 03.09.2024
-
-Loose Ends - Look How Long (1990) [FLAC|Lossless|tracks + .cue] <Contemporary R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look How Long
-02. Don't You Ever (Try To Change Me)
-03. Time Is Ticking
-04. Love's Got Me(   Читать дальше...   )Жанр: Contemporary R&BПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C2DD5A779E9DFCB4C4C642FA6FEE32D831B20C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 932463   (509472) от 29.08.2015
+
+VA - Extra House (episode 5) (2015) [MP3|320 кб/с]<Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicolas Hannig - Blaze Love (DBMM Remix) (06:06)
+02. Above & Beyond - Counting Down the Days (Yotto Remix) (feat. Gemma Hayes) (07:05)
+03. Trivecta Feat. Charlotte Haining - Drift Away (Original Mix) (04:50)
+04. Pablo Sanchez - Easy Out (Original Mix) (05:31)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 01:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009B955DD803B1437E29314C1CBA229EA0BB3B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932494   (509470) от 29.08.2015
 
 VA - Ibiza DJ Compilation Summer 2016 (2015) [MP3|320 кб/с]<Funky, Club House>
@@ -737,35 +766,6 @@ VA - Beautyness of Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E2EC097783A4D914F88F302373A7352D90D4647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934644   (502626) от 05.09.2015
-
-VA - Delicious Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Souldeep - The Groove - Steve Sine Remix
-02. Mark Samderson - I Superstar - Starwaves Gold Mix
-03. Mail 77 - I Would Fly - Antoine Seranuit Mix
-04. Paul Welsh - Amsterdam Soap - Deep Voice Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F5F22618A99DAE668F8A2634BA39F0DA11D7A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1551752   (589398) от 17.05.2022
+
+Charnett Moffett - Beauty Within (1989) Blue Note Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Never Fails [5:46]
+02. Dancing with Love [3:59]
+03. Angela [6:17]
+04. My Little One [4:46](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2AEC84480690C14714D08F1DF5D658B26EBAB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551891   (589001) от 18.05.2022
+
+Buddy De Franco (DeFranco) - The Complete Verve Recordings Of The Buddy De Franco Quartet & Quintet With Sonny Clark (1954 - 1955) 4CD, 1990, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bo ...
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589001.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jack The Fieldstalker [3:08]
+02. Cable Car [4:05]
+03. I Wish I Knew [4:55](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 03:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF406619901B066374D15890F9242306864851B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552099   (588524) от 19.05.2022
+
+Oscar Peterson - The Classic Verve Albums Collection (1957 - 1962) 4CD, 2018, Enlightenment [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588524.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- Stan Getz And The Oscar Peterson & Ben Webster Meets Oscar Peterson:
+01. I Want To Be Happy [7:38]
+02. Pennies From Heaven [5:19]
+03. Bewitched, Bothered, And Bewildered/Don't Know Why (I Just Do)/How Long Has This Been Going On/I Can't Get Started/Polka Dots And Moonbeams [10:13](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 05:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5524A0F7A861226983E5214A0466D3A76FEC1A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039672   (588296) от 03.08.2016
 
 Allan Holdsworth - Дискография 21 альбом (1976-2009) 23 CD [WavPack|Lossless|image + .cue] <Fusion, Free Jazz, Contemporary Jazz>
@@ -665,93 +752,6 @@ Masabumi Kikuchi - East Wind (1974) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC4EA6AAB8C57A809F41A492F48FE13DD6AC37EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918851   (586006) от 16.07.2015
-
-Ida Sand - Young At Heart (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cinnamon Girl
-02. Hey Hey, My My
-03. Don't Let It Bring You Down
-04. Harvest Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2AB8B31729D28662B640CB4B822D2210F09F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918758   (586005) от 16.07.2015
-
-Zoot Sims - And The Gershwin Brothers (1975) /2001, Planet/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man I Love [06:24]
-02. How Long Has This Been Going On [02:14]
-03. Lady Be Good [04:35]
-04. I've Got A Crush On You [02:57](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EB976FFB4CDA6CC09EDCFB997C4B7134079DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552737   (585873) от 22.05.2022
-
-Sarah Vaughan - 1949 - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Mine You [3:12]
-02. I'm Crazy to Love You [3:01]
-03. Summertime [3:17]
-04. The Nearness of You [3:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D628FF0EB231698943606FA8C03C094DB151F64
 ```
 
 https://mybot314.ru/tekegram_catalog/

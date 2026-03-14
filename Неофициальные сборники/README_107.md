@@ -1,3 +1,206 @@
+###  Публикация: 994988   (888120) от 09.03.2016
+
+Precious Wilson (ex. Eruption) - Collection (1979-1983) [OGG|438-537 кб/с] <Disco, Funk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are On The Race Track
+02. Cry To Me
+03. Video
+04. Kisuaheli(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB7BA001CB315742B194C66D8C115C357277194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371790   (888097) от 01.04.2020
+
+VA - Shazam Хит-парад Russia Top 100 Март (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888097.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Intelligency - August (3:27)
+2.El Capon - Shut Up Chicken (2:30)
+3.The Weeknd - Blinding Lights (3:21)
+4.Тайпан, Agunda - Луна не знает пути (2:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB24EF222842847D68C480CD631ED02E2C710A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994953   (888018) от 09.03.2016
+
+Михаил Звездинский - Магнитоальбом (1990) [MP3|320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Осеннее золото
+02. Звезда Давида
+03. Все теперь против нас
+04. Я пережил и многое и многих...(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F913B292C8A113BD44DA103FEDE1B9A552660C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995008   (887957) от 09.03.2016
+
+VA - Музыка хорошего настроения 3 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887957.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arseniya - Аритмия
+002. Andeeno Damassy Feat. Jimmy Dub - Dime Tu
+003. Bliss & Klymvx Feat. Snoop Dogg & Cozy - California
+004. Rihanna - Sex With Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EDCBA65BDF8F9764A318EF458E440354E5978FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371852   (887925) от 01.04.2020
+
+VA - Ремиксы 2К20 3 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887925.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.3-ий Январь - Юппи (Beloe Cloud Remix) (Radio Edit) (3:25)
+2.ANIVAR - Новый рассвет (ARROY & Sergey Raf Remix) (3:15)
+3.Bahh Tee feat. Люся Чеботина - Дисконнект (Fagira remix) (3:39)
+4.BARINOVA - Самый-самый (Maxim Keks Remix) (3:58)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 05:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A31B5EB9A54467C82F7FEC401A07A768FF8ACF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994920   (887892) от 09.03.2016
+
+VA - Record Super Chart № 426 (2016) Radio Record [MP3|128-320 кб/с] <Club House, Electro House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sander Van Doorn, MOTi - Lost
+02. KSHMR, Marnik - Bazaar!
+03. Scooter - Mary Got No Lamb
+04. Tiesto  Tony Junior - Get Down(   Читать дальше...   )Жанр: Club House, Electro House, DanceПродолжительность: 01:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92E4D2B5B8AF9B6A222ABF5455A93E6F5233998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494633   (887831) от 08.09.2021
+
+VA - Maniac Hard Dance (2021) [MP3|320 Kbps] <Club, Hard Dance, Hardstyle, Core Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Agressive Noize - Show Me The Way
+002. Dance House Project - Can't Stop Me
+003. Axray - Sahnekapsel
+004. Ezkill - Hands In The Air(   Читать дальше...   )Жанр: Club, Hard Dance, Hardstyle, Core DanceПродолжительность: 08:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7600603AA2F24BB12CDDC6A1BF1C73545353CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494628   (887828) от 08.09.2021
 
 VA - Like Everyday! (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
@@ -542,215 +745,6 @@ VA - Beatport Progressive House: Electro Sound Pack #40 (2020) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:608DB1D56491792A24FB54EF88D9402E8E015D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372020   (887145) от 02.04.2020
-
-VA - Beatport Funky House: Electro Sound #42 (2020) [MP3|320 Kbps] <Funky, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Inusa Dawuda - Love Criminal (Mota Remix)
-002. Angelica Rose - Look Me In The Eyes
-003. Freddy Fader Meets Locana - Suenan
-004. French La Touche - Baby Please Don't Go(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 13:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BB55FCD0FBEB88941A639D4547560D320A3CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372024   (887128) от 02.04.2020
-
-VA - Indie Night: Pop Rock Season Alternative (2020) [MP3|320 Kbps] <Indie, Pop, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887128.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Girl Ray - Show Me More
-002. Anthony Green - You're So Dead Meat Reimagined
-003. Brightness - Dallas
-004. Kate Davis - Animals(   Читать дальше...   )Жанр: Indie, Pop, RockПродолжительность: 08:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02026F43B23409171126F54BB70D9EA3B2AB845B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372031   (887117) от 02.04.2020
-
-VA - Spring Holiday Party: Electro House Selections (2020) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887117.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wallas - Love Reason
-002. Alek Soltirov - Check The Cables
-003. Crunchy Masters - In That World
-004. Topa - In The House (Original Mix)(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 13:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDB70160ABD5BF5EB9B672DC0943C63422C87A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372025   (887078) от 02.04.2020
-
-VA - Luxury Deep House: Beats Session (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Amnesia - 8 Below
-02. Nomura Taio - What A Man
-03. Therd Suspect - Me Seeing You
-04. Saturn 15 - Apocalypse(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4076AB2956CDCBE1691FE8F81255AD7E2DD564DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640230   (886841) от 07.04.2013
-
-VA - Лучшая 100-ка Новинок Русского Шансона (2013) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Заборский - Наколка
-02. Лорд Андрей - Там на горном изломе
-03. Дима Казанский - За Казанскую братву (Михону)
-04. Сборная Cоюза - Возьму и не спрошу
-05. Марсель Давлетов - Сто лет прошло
-06. Юлия Голос - Военная
-07. Бока - С тобой
-08. Борис Леви - Охота
-09. Григорий Горохов - В нашем Лежневе весна
-10. Игорь Таушканов - Дамы, не путайте педали(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCDC3C2E07AD0FB7336DF3256554733AC45A66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995281   (886515) от 10.03.2016
-
-Группа Мурки - Сборник (2015) [MP3|320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Панамера
-02. Подруга
-03. В бегах
-04. Мама(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05D40049A17CB22AAE1F57EC4D69C09E577081A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995191   (886437) от 10.03.2016
-
-Виктор Аполонов - Дворовая песня (1979) [MP3|320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Махнем не глядя
-02. У тебя на ресницах
-03. Хуторянка
-04. Из-за пары(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B5E90BC024DA90CD2A243599EC24C6655A7F48
 ```
 
 https://mybot314.ru/tekegram_catalog/

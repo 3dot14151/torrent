@@ -1,3 +1,32 @@
+###  Публикация: 1403163   (694158) от 18.08.2020
+
+VA - Beatport Progressive House: Electro Sound Pack #145 (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A.J Roland - Mysteries Of Life
+002. Brunoh - Empatia
+003. Jordan Dae - Take On The World
+004. Young - Play Back(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 09:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40759B8694B3119153E1F7BF8F179BF658B18897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133553   (693436) от 13.05.2017
 
 VA - World Wide Trance # 01 (2017) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Bass Killer 12 (2017) [MP3|320 Kbps] <Dubstep, Trap, Electro House, Big Roo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EDDDE86554E9CBEB93CB640FA6551CC3565CEC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028700   (688862) от 23.06.2016
-
-VA - Vocal Trance Charts (2016) [MP3|232~277 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren feat. Sarah Вecourcy -  Face Of Summer 6:39
-02. Aly & Fila feat. Ever Burn -  It Love  (James Dymond Remix) 8:01
-03. John Oallaghan & Sarah Howells -  Find Yourself (Standerwick Remix) 5:40
-04. Talla 2XLC & Binary Finary feat. Sylvia Tosun -  Believe In Everything (Original Mix) 6:53(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973C504FB6467F397B39BFDAD7EA83F620912663
 ```
 
 https://mybot314.ru/tekegram_catalog/

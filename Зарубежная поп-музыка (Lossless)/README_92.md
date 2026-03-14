@@ -1,3 +1,148 @@
+###  Публикация: 1807981   (65073) от 22.07.2025
+
+Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch In The Night (5:20)
+02. Sib Dab Dua (3:07)
+03. Dreams (4:02)
+04. Hide Away - Man Is Comin'! (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142F90C48E32112F64262B840725AF366E0DDAE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807991   (65072) от 22.07.2025
+
+Madonna - Madonna (1983) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky Star (5:38)
+02. Borderline (5:22)
+03. Burning Up (3:46)
+04. I Know It (3:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9958801FD918C28A16F0611AB65713AB4FE3A042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807988   (65060) от 22.07.2025
+
+Black - Wonderful Life (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful Life (04:48)
+02. Everything's Coming Up Roses (04:06)
+03. Sometimes For The Asking (04:09)
+04. Finder (04:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC67BE73C321F822597C2BB720252FD735A8511D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807989   (65045) от 22.07.2025
+
+Bryan Ferry - Boys And Girls (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensation (5:05)
+02. Slave To Love (4:27)
+03. Don't Stop The Dance (4:19)
+04. A Waste Land (1:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E35676629DEB9CF7D590DC8B295CF08FF5063E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807983   (65034) от 22.07.2025
+
+Double - Blue (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman of the World (3:55)
+02. I Know a Place (3:40)
+03. The Captain of Her Heart (4:35)
+04. Your Prayer Takes Me Off (6:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F447531D3AA88EC9D48779DB45423A37FE1278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807985   (65030) от 22.07.2025
 
 Double - Dou3le (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
@@ -596,151 +741,6 @@ V.A. - 70's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ED9F8BC93ABB4AFA239BC1BB1F0A1EAB966EC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714558   (60131) от 10.04.2024
-
-Inna - El Pasado (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Primera Vez [2:51]
-02 - Como Tu [4:00]
-03 - Enferma [3:43]
-04 - Hechizo [3:07](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7604554F290879AA864C68E362C8B7E2B8C882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717263   (59196) от 19.04.2024
-
-Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fortnight (feat. Post Malone)
-02. The Tortured Poets Department
-03. My Boy Only Breaks His Favorite Toys
-04. Down Bad(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480560598C47C100BDCC471AFB9A66DE644C5FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718214   (58809) от 23.04.2024
-
-Mylene Farmer - Remix XL (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Libertine (nit Remix)
-02 - Sans contrefaCon (The Magician Remix)
-03 - Pourvu qu'elles soient douces (Cut Killer & Prez Poney Club Remix)
-04 - Desenchantee (Arnaud Rebotini Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C964BC65ED898FD78366A267B1D14C2C71F3FB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719452   (58136) от 29.04.2024
-
-Rod Stewart - The Best Of The Great American Songbook (2011) Japanese Edition, Compilation, Reissue, 2024, Sony Music [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Ago and Far Away
-02. Someone To Watch Over Me
-03. They Can't Take That Away From Me
-04. Beyond the Sea(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760FC36355AC67D427DAAF03635645E28F6D8616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720298   (57743) от 03.05.2024
-
-Dua Lipa - Radical Optimism (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of An Era
-02. Houdini
-03. Training Season
-04. These Walls(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E01EE3DEED478132B29628516CBF07A95F1BF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

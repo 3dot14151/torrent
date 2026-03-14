@@ -1,3 +1,148 @@
+###  Публикация: 1732272   (107489) от 24.06.2024
+
+Steven Nichols - From Dust (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When All Is Said And "Dunn" (7:29)
+02. Treyarnon (7:12)
+03. Nichols Blues (5:24)
+04. From Dust (4:41)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3541F79574F25521AA2C1DA24763880CEF374B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732270   (107485) от 24.06.2024
+
+Babbba - Cabaret Conversation (Vol.4) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surpassed (2:19)
+02. Sway Trance (2:00)
+03. Sweet Connection (3:48)
+04. Syncopated You (3:28)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178AEC22944708E819EF6619B3AB7A1F807F9F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732273   (107481) от 24.06.2024
+
+WDR Big Band & John Goldsby - WDR Big Band — Small Group Sessions — Incentive (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where or When (6:30)
+02. Incentive (3:46)
+03. You Are All the Things (7:20)
+04. My Little Suede Shoes (3:29)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4EE7DAB965624A08785D27632A72CD3FE84E8B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732271   (107479) от 24.06.2024
+
+Katarina Kochetova - Beyond Motion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Portrait (4:12)
+02. NTYTWTATST (Things We Say) (4:19)
+03. UntitEled#4 (5:52)
+04. Hemma (4:16)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8201E92FC324F070D2600D5AA57631B8DB36B05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732506   (107476) от 25.06.2024
+
+Riviera Paradise - Ready for More (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Game Master (4:17)
+02. For the New Day (4:38)
+03. Ready for More (3:41)
+04. Free Yourself at Last (3:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B12DB7D2929C8DAF5E767D32A1A1ED44428692C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732440   (107475) от 25.06.2024
 
 Atlantic - Another World (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -600,151 +745,6 @@ Channel Tres - Head Rush (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electrón
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2997C0A00765767A9771CA5CF22EAE7224B4F691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733860   (107277) от 30.06.2024
-
-VA - For Discos Only: Indie Dance Music From Fantasy & Vanguard Records (1976-1981) (2018) [FLAC 24/192|Lossless|WEB-DL|tracks] <Electronic, Indie Dance, Disco,>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Players Association - Turn The Music Up! (12" Disco) (06:51)
-02. Sylvester - Over And Over (Special 12" Disco Mix) (09:31)
-03. The Blackbyrds - Don't Know What To Say (04:07)
-04. Poussez! - Boogie With Me (12" Disco Mix) (07:53)(   Читать дальше...   )Жанр: Electronic, Indie Dance, Disco,Продолжительность: 03:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A44D9F3CC0F5E2571F38AFC10970591938CB44A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733738   (107256) от 30.06.2024
-
-Dua Lipa - Radical Optimism (2023) Extended Versions, 2024, Warner Records [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of An Era (Extended) [00:04:36]
-02. Houdini (Extended) [00:05:53]
-03. Training Season (Extended) [00:04:55]
-04. These Walls (Extended) [00:05:40](   Читать дальше...   )Жанр: PopПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C82821CFDBCC8FE0F583D8DE96168A511CF975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733734   (107226) от 30.06.2024
-
-James Blake & Lil Yachty - Bad Cameo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Art Pop, Neo-Psychedelia, Electronic, Alternative Hip-Hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save The Savior [00:04:05]
-02. In Grey [00:06:10]
-03. Midnight [00:04:58]
-04. Woo [00:02:49](   Читать дальше...   )Жанр: Art Pop, Neo-Psychedelia, Electronic, Alternative Hip-HopПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F829BBD9544D8D39EC89C232EE91B5FB7149A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733821   (107225) от 30.06.2024
-
-Bryard Huggins - Confidential (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:59)
-02. Confidential (4:27)
-03. Midnight In Mid City (5:22)
-04. La Dolce Vida (6:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2B75E596834415F3F46B3611CEB0434EB6F393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733840   (107224) от 30.06.2024
-
-Dreamroot - Push (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sands (4:02)
-02. Push (6:07)
-03. Back At It Again (4:58)
-04. Mode (3:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339ACCB456FCFE4FE8C838B2946FE7FA08046552
 ```
 
 https://mybot314.ru/tekegram_catalog/

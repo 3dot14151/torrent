@@ -1,3 +1,32 @@
+###  Публикация: 927187   (529724) от 12.08.2015
+
+VA - Best Of Eurodance (2015) [MP3|224 - 320 кб/с]<Eurodance, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E-Type - Russian Lullaby
+02. Minnesota - What's Up (12' Dance Mix)
+03. C-Block - So Strong Out
+04. Don't Y Girl - Easy Love(   Читать дальше...   )Жанр: Eurodance, DanceПродолжительность: 06:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B619F4C08C68645FE9BF025E1AE5F790195BB7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156086   (529562) от 05.08.2017
 
 VA - Золотые семидесятые vol. 4-6 (2017) [MP3|192-320 Kbps] <Pop, Rock, Disco>
@@ -714,35 +743,6 @@ VA - В машине с музыкой Vol.277 (2022) [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52B5F06C973A21CB93BD5BDBABFDA4CF660A5844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559636   (523415) от 26.06.2022
-
-VA - В машине с музыкой Vol.278 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bulava - Я Полетел Бы
-02. Semenyak  - Химия
-03. Lena Feat. & Janaga - Знаешь Как Уйти
-04. Verbee Feat. & Rompasso - Тает Дым(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:28:27 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C55B350278A8FB6B193D80DBA4CEA734B155AFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1436848   (1042761) от 02.01.2021
+
+VA - Ремиксы 2К21 (2021) [MP3|320 Kbps] <Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artem Smile & Emmanuil - Я ворвусь на танцпол (Yuza Radio Remix) (2:44)
+02. Idris Leos - В последний раз (Dj Amor Radio Mix) (3:23)
+03. Kan - Хулиган (Yuza Radio Remix) (3:29)
+04. Денис Клявер - Тебя удача найдет (Vostokov Remix) (2:50)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 06:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618C6B4ED5950BE33305EFF93F9D6BB44B12DA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610036   (1042615) от 06.02.2023
+
+Soul Ballet - Compilation (2023) [MP3|320 Kbps] <Electronic, Smooth, Jazz-Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Choose Me
+02. City of Desire
+03. Glitters is Gold
+04. Love, Juliet(   Читать дальше...   )Жанр: Electronic, Smooth, Jazz-Pop, OtherПродолжительность: 01:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3082FC28317E26294481106765B9C76F7A4DC22F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610206   (1042593) от 06.02.2023
+
+Engelbert Humperdinck - Compilation (2023) [MP3|320 Kbps] <Pop, Vocal, Easy Listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Time
+02. The Way it Used to Be
+03. Only a Lonely Child
+04. Without You(   Читать дальше...   )Жанр: Pop, Vocal, Easy ListeningПродолжительность: 02:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F87511DA437833F2AAA7CF2331FD0F9695F274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610207   (1042591) от 06.02.2023
 
 VA - Music News vol.243 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -658,93 +745,6 @@ VA - Party 2023 More In The Year (2023) [MP3|320 Kbps] <Nu Disco, Progressive Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBF0CCCF0AF155AEA1564C063BCDD8615E66CCE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437570   (1041582) от 06.01.2021
-
-VA - Радио Шансон. Лучшее (2020) MP3 от DON Music [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041582.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Владимир Ждамиров - А я несу тебе цветы
-002. Виталий Аксёнов - Мечта
-003. «Сентябрь» - Ладони нежные
-004. Михаил Грицкан - Ах как хотелось бы мне(   Читать дальше...   )Жанр: ШансонПродолжительность: 09:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F03B6C2BD2779AEF3C6C7B8BDA722DD88EFBF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611079   (1041561) от 10.02.2023
-
-VA - Music News vol.244 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041561.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beyonce - Cuff It (Wetter Remix) (04:09)
- 002. 2SQ - Интерес (02:38)
- 003. A R I Z O N A - Moving On (03:21)
- 004. A7S - Jumpstart (VIP Mix) (02:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44DBBE230FA3B60E1DD95D57A69667116B7BD4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611174   (1041554) от 10.02.2023
-
-VA - Sexy Chilling Lounge Music (2023) [MP3|320 Kbps] <Downtempo, Chill Out, Easy Listening, Light Music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nano Banani - Cindy Thyser
-02. Lalabo - Fin and Fine  (Slomo Version)
-03. 2bpm - In My Dreams (Instrumental Beat)
-04. 2bpm - Here We Go  (Instrumental Version)(   Читать дальше...   )Жанр: Downtempo, Chill Out, Easy Listening, Light MusicПродолжительность: 03:03:01 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1B87F14D9E8E3B9B31EADC9A79FB0F966431CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

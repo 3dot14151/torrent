@@ -1,3 +1,177 @@
+###  Публикация: 1331931   (318494) от 18.10.2019
+
+Crazy Hambones - Beautiful (2019) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who's Gonna Take These Blues Away (03:00)
+02. Your God Is A Dollar (02:36)
+03. Your Time Now (03:42)
+04. Behind The Sun (03:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE96E409C679F228139CB01758E3986D65FA451D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822138   (317897) от 18.10.2019
+
+VA - The World's Greatest Jazz Collection (2008) /500 CD Box Set/[MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317897.jpg" />
+</div>
+
+
+###  Подробнее
+
+По многочисленным просьбам одноклубников представляю прекрасное Джазовое собрание на 500-х дисках в МП3! Это как Большая Советская Энциклопедия. Никто не читал от начала до конца, но в приличном доме полагалось иметь.Бокс-сет поделен на 5 разделов по 100 CD в каждом:
+Classic Jazz
+Swing Time
+Big Bands(   Читать дальше...   )Жанр: JazzПродолжительность: 533:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF24FE23F981187A6B3122A33ED5812DE26EC0E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421605   (317874) от 05.11.2020
+
+Sonny Clark - Oakland (1955) 1995, Uptown Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's New [7:15]
+02. Willow Weep for Me [6:30]
+03. There Will Never Be Another You [6:50]
+04. D & E [5:24](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849F523BC79F4E929F93A7C39DFAD470241FDBC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421600   (317759) от 05.11.2020
+
+Lee Morgan - Jazz Profile (1963 - 1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C.T.A. [5:07]
+02. Trapped [6:01]
+03. Twilight Mist [6:57]
+04. Our Man Higgins [8:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CF996D430EBA68D5948D554D2071203E24EF17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959431   (317399) от 24.11.2015
+
+The Phil Woods Quartet - Woodlore (1955) 2013, Universal [FLAC|tracks+.cue]<Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Woodlore [05:25]
+ 02.Falling In Love All Over Again [04:45]
+ 03.Be My Love [05:38]
+ 04.On A Slow Boat To China [05:05](   Читать дальше...   )Жанр: BopПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AEE8CE30975418C5ED553715EF88EE23866EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959170   (317394) от 24.11.2015
+
+Azar Lawrence - People Moving (1976) 2014, Universal[FLAC|tracks+.cue]<Soul Jazz, Jazz Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Theme For A New Day [05:22]
+ 02.The Awakening [06:47]
+ 03.Kickin' Back [06:46]
+ 04.People Moving [05:51](   Читать дальше...   )Жанр: Soul Jazz, Jazz FunkПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258B52C4C54E1298194DB51E393D700A3C5F3B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959489   (317298) от 24.11.2015
 
 Charlie Christian - Complete Edition, Vol.1-9:  1939-1941 (1992-2001) [MP3|320 кб/с]<Jazz, Swing>
@@ -571,180 +745,6 @@ The Basie Bunch - Too Marvelous For Words (1956 - 1958) 1999, Vanguard [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4258907C4A8327B5F0AC2976AE2498F0ACBCA4C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421871   (315427) от 06.11.2020
-
-Jazz In Pink - Joy! (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy Joy!
-02. Keystroke
-03. All That Jazz
-04. Positivity(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9656FBCDE9FD826F300D816828979EC5C3BCB111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421706   (315425) от 06.11.2020
-
-Miss Emily - Live At The Isabel (2020) [MP3|320 Kbps] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes It's Better To Lose (03:05)
-02. Land Of Green (03:26)
-03. Who Is He (03:11)
-04. Three Words (03:49)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0A53520AFB9AE1B2DDF190BFF0CE21D93012D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182598   (315177) от 11.11.2017
-
-Jeff Kashiwa - Fly Away (2017) Coastal Access Music [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Side By Side [05:04]
-02. Fly Away [04:37]
-03. Lullalo [04:11]
-04. Do It Again [04:40](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BF8A99B3F54934B5F4F07FCD01A44F2EF21160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182600   (315109) от 11.11.2017
-
-Stan Getz - The Master (1975) 2017, Sony Music [FLAC|Lossless|image + .cue] <Post-Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Night [10:07]
-02. Raven's Wood [11:00]
-03. Lover Man [09:31]
-04. Invitation [10:37]Жанр: Post-Bop, CoolПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67163BD1AD550C2D4E58C50430A8BF752591E419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182593   (315094) от 11.11.2017
-
-Larry Carlton + SWR Big Band - Lights On (2017) 335 Records/SWR [FLAC|Lossless|image + .cue] <Jazz Fusion, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mellow Out [05:07]
-02. Milestones [05:24]
-03. Kid Charlemagne [08:03]
-04. Fnnn [08:01](   Читать дальше...   )Жанр: Jazz Fusion, Big BandПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4148BD53FA26B8FD21C5943829AB5146917320B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182585   (314996) от 11.11.2017
-
-BluezzControl - Traveler in Time (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Clouds (03:59)
-02. Chains (04:46)
-03. Too Late Again (02:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:932CBFC96BC0EDE4620503F7AC156058DF9AEABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

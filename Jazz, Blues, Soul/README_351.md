@@ -1,3 +1,177 @@
+###  Публикация: 729859   (307465) от 03.12.2013
+
+Buck 69 - No Medicine Like The Blues (2013) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Blues
+02. Ugly Teacher Blues
+03. Dead End Road
+04. No Medicine Like The Blues(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A2D12DD8A5EE4B7A6B6B09B13138C430FADF95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846096   (307224) от 30.11.2014
+
+Count Basie - Salle Pleyel, Apr. 17th, 1972 (Paris Jazz Concert) (2002) 2CD [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307224.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+1. Basie Power
+2. Big Stuff
+3. Fun Time(   Читать дальше...   )Жанр: JazzПродолжительность: 02:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D5C5F0FE90F535B65119DCABABE03E5DDF249D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077316   (307176) от 28.11.2016
+
+Oddjob - Koyo (2004) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Their Song [4:39]
+02. Malmö - Lund [5:56]
+03. Man Machine [8:47]
+04. Titanic [4:10](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F5BAF41D0B740653570A18E4109E5FB691D458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077313   (307174) от 28.11.2016
+
+Oddjob - Oddjob (2002) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dwarf 'n' Tony [5:05]
+02. Sideburns [6:55]
+03. Lim [4:47]
+04. Bloodstream [4:57](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BAA1F5BDCFD4C43518721898F63E8255932B070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077319   (307172) от 28.11.2016
+
+Oddjob - Folk (2015) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Folk #1 [7:39]
+02. Folk #2 [7:15]
+03. Folk #3 [6:12]
+04. Folk #4 [7:26](   Читать дальше...   )Жанр: Contemporary Jazz, Post-Bop, FusionПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7D03E2560510B489326E3B9AF9832FCA8F02A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077317   (307170) от 28.11.2016
+
+Oddjob - Luma (2006) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luma [5:46]
+02. Walk On Water [5:33]
+03. Bigfoot [2:42]
+04. Dariaa [7:15](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4737B5B9F958DEB214F18A5B49C676B0E9320AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583970   (307058) от 04.12.2012
 
 Stevie Wonder - 12 Albums Collection (1966-1985) /Japanese SHM-CD Reissue 2012/ [FLAC|Lossless]<Soul, Pop, R&B, Funk, Jazz>
@@ -574,180 +748,6 @@ Sam Taylor Quartet - Along The Way (2017) [FLAC|Lossless|WEB-DL|tracks] <Saxopho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E056B04A5C96669D9BB63DF68CAED221BE84D57E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333505   (303599) от 25.10.2019
-
-Lionel Hampton - Three Classic Albums Plus 1954 - 1955 (2009) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303599.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Avalon [8:24]
-02. Just You, Just Me [6:34]
-03. Blues For Benny [7:44](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 02:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE3FD02DE921097DD26CB3667B5B971FEC6703F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183949   (303528) от 16.11.2017
-
-Gregg Wright's Left Hook - Round One (1995) [FLAC|Lossless|image + .cue] <Blues Rock, Extended Jams>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drivin' to New Orleans  (03:36) 
-02. Heidi Ann  (03:42) 
-03. Between Heaven and hell  (06:55) 
-04. .....or die trying  (06:41) (   Читать дальше...   )Жанр: Blues Rock, Extended JamsПродолжительность: 00:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25316495596121F9E0FED40895B6EB720B0F2407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961059   (303518) от 30.11.2015
-
-Humphrey Lyttelton - Humph Plays Standards (1960) 2014, Solid Records[FLAC|tracks+.cue]<Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Love For Sale [04:43]
- 02.Prelude To A Kiss [03:35]
- 03.Ida, Sweet As Apple Cider [03:08]
- 04.Willow Weep For Me [04:28](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F43EBCA1A1F267A2C60E6FA94669AF3B89C126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261475   (303497) от 11.11.2018
-
-Gene Ammons - Blue Gene (1958) 2003, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Gene [13:58]
-02. Scamperin' [8:49]
-03. Blue Greens and Beans [9:05]
-04. Hip Tip [8:55]Жанр: Hard BopПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00E959855100AD7EF169517FB9B17CFED8B46CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261535   (303493) от 11.11.2018
-
-Michel Colombier - Michel Colombier (1979) 1999, Anthology's [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday [4:19]
-02. Take Me Down [3:56]
-03. Dreamland [4:17]
-04. Queens Road [3:33](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-PopПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD9FB0FD0EB2ED4A8812D960D8E739E08B42C793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261531   (303492) от 11.11.2018
-
-Coco Favre - Introducing Coco Favre (2014) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil May Care [2:45]
-02. Fat Daddy [3:22]
-03. Inolvidable [4:51]
-04. Lullaby of Birdland [4:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD015F93FCB47B69C4452DE75AEB439FFA20C7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1046679   (551614) от 27.08.2016
+
+VA - Дискотека 2016 Dance Club Vol. 155 от NNNB (2016) [MP3|320 Kbps] <Dance, Club, Trance, Pop, Rock, Twerk, Bass, D'n'B, Chill Out>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcus & Martinus feat. Samantha J. - Light It Up
+02. Filatov & Karas - Satellite (Radio Edit)
+03. Alex Freel & NIRI - Ghost (Original mix)
+04. Bassjackers feat. Luciana - Fireflies (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, Trance, Pop, Rock, Twerk, Bass, D'n'B, Chill OutПродолжительность: 12:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD67A6BF4E2AAA165F3677175E0987267D5760F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046876   (551099) от 28.08.2016
 
 VA - Absolute Dance Summer Party 2016  (2016) [MP3|320 Kbps] <Dance, Club>
@@ -721,35 +750,6 @@ VA - Sexy Dance 50/50 (2CD) (2012) [MP3|256 кб/с]<Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E8E74809ACB15C8647008E618D235021AC08A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925190   (542810) от 05.08.2015
-
-Boney M. - 25 Best Songs (2015) [MP3|~245 кб/с]<Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daddy Cool 1976 (03:29)
-02. Ma Baker 1977 (04:37)
-03. Rivers Of Babylon 1978 (04:23)
-04. 10.000 Lightyears 1984 (04:34)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037044B61896531CAC268DA3B45578E332164D20
 ```
 
 https://mybot314.ru/tekegram_catalog/

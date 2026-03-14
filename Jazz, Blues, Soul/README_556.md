@@ -1,3 +1,177 @@
+###  Публикация: 1791174   (67877) от 12.04.2025
+
+Tobacco Road Blues band - Lis & Skull (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emely Myles - Move It (feat. Emely Myles) (3:31)
+02. I Knocked Three Times (3:36)
+03. God Made a Perfect Job (3:54)
+04. I’m Your Boogeyman (4:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC935923E83C941D353FA38652BD17F9BC8D04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791168   (67876) от 12.04.2025
+
+Metal Bots - Soulful Strains (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Morning (3:11)
+02. Dusty Road Blues (4:00)
+03. Love My Old Guitar (3:46)
+04. Sweet Spirit (3:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69281D926F2BA40C4F82CA27E75CCEF97B2804F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791375   (67868) от 13.04.2025
+
+Jeff Rymes - Zodiac Shuffle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Down Luziana (3:36)
+02. Freddy Lee (3:01)
+03. Lowdown Blues (3:49)
+04. The Tale of the Runaway Train (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A128713242738054A256C77C6283CD5172E70E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791275   (67865) от 13.04.2025
+
+Scott Bradlee's Postmodern Jukebox - Puttin' On The Rizz (2024) [FLAC|Lossless|WEB-DL|tracks] <Swing, Jazz, Blue-Eyed Soul, Blues, Dance-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pour Some Sugar on Me [4:21]
+02 - 50 Ways to Leave Your Lover [3:35]
+03 - Say You'll Be There [3:22]
+04 - One Week [2:41](   Читать дальше...   )Жанр: Swing, Jazz, Blue-Eyed Soul, Blues, Dance-PopПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE53329A5F37BAD0110773CF1A91AC84E8F9C549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791270   (67841) от 13.04.2025
+
+Scott Bradlee's Postmodern Jukebox - Lounge Language Models (2025) [FLAC|Lossless|WEB-DL|tracks] <Swing, Jazz, Blue-Eyed Soul, Blues, Dance-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Good Luck, Babe! [3:21]
+02 - Rag Doll [2:59]
+03 - A Bar Song (Tipsy) [3:53]
+04 - It Must Have Been Love [4:28](   Читать дальше...   )Жанр: Swing, Jazz, Blue-Eyed Soul, Blues, Dance-PopПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98EF431334C3854C8BB17DC4393EA4EAB57DFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791382   (67836) от 13.04.2025
+
+Maxwellium - Blood &Smoke (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King of the Smoke (3:18)
+02. Iron & Ashes (3:37)
+03. Devils Debt (3:29)
+04. Ravens & Rats (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD5EB49644E50813E2A18353D90CF612030683E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791121   (67833) от 13.04.2025
 
 Evgeny Rang Quartet - Midnight Cool (2024) Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
@@ -571,179 +745,6 @@ Saori Yano - Answer (2012) Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:501B5B54DC8ABD8896BBDF962D2F937FF5CE7525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792711   (67595) от 20.04.2025
-
-Saori Yano - Best (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Lee [1:55]
-02. Suna to Skirt [6:56]
-03. Crazy He Calls Me [7:56]
-04. Rizlla [5:33](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD0E3ACD4295D43439576FFB701197C01755694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792730   (67574) от 20.04.2025
-
-Dogshark - Earth Is Not Room Enough (2024) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Going Down/John The Revelator (5:12)
-02. Blockchain (4:23)
-03. AI's Rise (5:52)
-04. Perfect Evening (4:19)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F00D16625DDDB252361A18D9C6D08D34D0C24A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792710   (67572) от 20.04.2025
-
-Clifford Brown - Memorial Album (1953) 2003, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hymn of the Orient [4:10]
-02. Easy Living [3:46]
-03. Minor Mood [4:37]
-04. Cherokee [3:28](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD257084A8C20793CAF5BE58BB4B503E16F3F4F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793068   (67566) от 22.04.2025
-
-Bucky Pizzarelli - Renaissance: A Journey From Classical To Jazz (2015) Arbors Records [FLAC|Lossless|tracks + .cue] <Swing, Classical>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tedesco Concerto No.1 in D, Op.99: Allegretto [7:23]
-02. Tedesco Concerto No.1 in D, Op.99: Andantino alla romanza [6:43]
-03. Tedesco Concerto No.1 in D, Op.99: Ritmico e cavalleresco [7:29]
-04. Send in the Clowns [3:31](   Читать дальше...   )Жанр: Swing, ClassicalПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E29804AAA54BC0EEFBAAE1955B1F8B950B89E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793065   (67555) от 22.04.2025
-
-Roy Eldridge & Charlie Shavers - Swing Trumpets (2024) Circle Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After You've Gone [2:50]
-02. The Gasser [3:00]
-03. I Surrender Dear [2:51]
-04. Minor Jive [2:47](   Читать дальше...   )Жанр: SwingПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AA6D93B2F79A4B23B79F765769CAF8C48589CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793220   (67538) от 23.04.2025
-
-Buddy Rich - Just In Time: The Final Recording (1986) 2CD, 2019, Gearbox Records [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good News (feat. Steve Marcus) [31:18]
-
-Продолжительность: 00:31:18Жанр: Big Band, Mainstream JazzПродолжительность: 01:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3079AB6206848091C2F5DC05A9D2A584A4C2B0A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

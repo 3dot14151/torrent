@@ -1,3 +1,148 @@
+###  Публикация: 1691113   (123550) от 10.01.2024
+
+The White Stripes - Elephant (2003) SACD, Reissue, Remastered, 2023, Analogue Productions, Third Man Records  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Nation Army 3:51
+02. Black Math 3:03
+03. There's No Home For You Here 3:41
+04. I Just Don't Know What To Do With Myself 2:46(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3151263A8469DB17E9CB0C06EA5FDA8BF0016B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691144   (123537) от 10.01.2024
+
+Nils Lofgren - Acoustic live (1997) SACD, Remastered, 2016, Analogue Productions; Cattle Track Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You 3:36
+02. Sticks And Stones 4:10
+03. Some Must Dream 6:09
+04. Little On Up 5:03(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F498EA2ABB452DDFA4271ABBC1D27BBBA2AFD23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691140   (123526) от 10.01.2024
+
+Warren Zevon - Excitable Boy (1978) SACD, Reissue, Remastered, 2023, Mobile Fidelity Sound Lab, Asylum Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123526.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Johnny Strikes Up The Band 2:54
+2. Roland The Headless Thompson Gunner 3:49
+3. Excitable Boy 2:43
+4. Werewolves Of London 3:31(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555A1DA5D654D9E4820041869C8983C0F23541BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691340   (123387) от 11.01.2024
+
+Layla Zoe - Back to the Spirit of 66 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Golden Slumber
+02 - Dark Heart
+03 - The World Could Change
+04 - Praying Kind(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F0C267B4FA610312F788D15FD085838F3CCABBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689838   (123301) от 12.01.2024
+
+Masterdark - In the Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <gothiс, alternative, heavy metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It'‎s a Life [00:02:56]
+02. Rain Inside Me [00:03:48]
+03. Light Makes Me Blind [00:03:04]
+04. Spirit in a Lonely Trip [00:05:24](   Читать дальше...   )Жанр: gothiс, alternative, heavy metalПродолжительность: 00:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64B69FE1B49070686EDB621278F510127B34E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690823   (123292) от 12.01.2024
 
 Teramaze - Her Halo (2015) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Rock>
@@ -595,150 +740,6 @@ Neal Morse - The Restoration - Joseph: Part Two (2024) [FLAC 24/48|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EEBBBE5FCE72C3FB60389BD5B5F5D9BD1C15D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691748   (123070) от 13.01.2024
-
-The Grandmaster - Black Sun (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sun
-02. Watching The End
-03. While The Sun Goes Down
-04. Learn To Forgive(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8EF022A0DEB428E6B398B477608D74B585F267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691749   (123064) от 13.01.2024
-
-Ryujin - RYUJIN (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hajimari [0:41]
-02 - Gekokujo [4:48]
-03 - Dragon, Fly Free [4:23]
-04 - Raijin & Fujin [6:10](   Читать дальше...   )Жанр: Metal, Melodic Death MetalПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8FFEA8CDAE06FB41A9ED96411D1E2FD557BC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691767   (123056) от 13.01.2024
-
-Triple Kill - Studio Albums (3 releases) (2017-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Thrash/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triple Kill - Thrash/Power Metal-группа сформированная в 2016 году в Мельбурне, Австралия.2017 - The First Kill
-2018 - Age of Rebellion
-2023 - Blackened DawnЖанр: Heavy/Thrash/Power MetalПродолжительность: 01:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7243D16CB5D49ABF21C4E127623671BCB5AB6D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691708   (123050) от 13.01.2024
-
-Alluvial - Death Is But A Door (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Deathcore, Djent>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bog Dweller [00:04:30]
-02. Fogbelt [00:03:52]
-03. Area Code [00:03:47]
-04. Death Is But A Door [00:04:52]Жанр: Progressive Deathcore, DjentПродолжительность: 00:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68782000C7C6A69452E5A3EA3748F4ADDB2B7FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691668   (122926) от 14.01.2024
-
-Metallica - Unload (Bootleg) (1999) [FLAC 16/44.1|Lossless|tracks|MC-Rip] <Acoustics, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122926.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Low Man's Lyric 08:14
-2. Helpless 03:43
-3. Tuesday's Gone (feat. Jerry Cantrell) 08:54
-4. Poor Twisted Me 04:13(   Читать дальше...   )Жанр: Acoustics, RockПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D945DE4278DD86451514DA3B1A535105188A64
 ```
 
 https://mybot314.ru/tekegram_catalog/

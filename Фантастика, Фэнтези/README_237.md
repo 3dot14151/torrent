@@ -1,3 +1,30 @@
+###  Публикация: 453561   (76769) от 17.02.2012
+
+Юрий Корчевский | Заградотряд времени. Я из СМЕРШа (2011) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_76769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Я из СМЕРШа».
+Переписывать историю, — значит, у времени должен быть свой СМЕРШ и свои заградотряды. Если ты провалился из сегодняшнего дня в 1941 год — будь готов пройти все круги фронтового ада: прорываться из окружения на трофейном немецком танке; воевать в пехоте, где жили до первой атаки; в танковой бригаде, которые в 41-м сгорали дотла за считанные дни; в войсковой разведке и Осназе, где шансов уцелеть было еще меньше; и, наконец, в наводящем ужас СМЕРШе. Ты на собственном опыте убедишься, (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0321A595A912F4C82299D3D6EDDE1DFC83C146D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453091   (76627) от 16.02.2012
 
 Сергей Тармашев | Ареал-4. Вычеркнутые из жизни [2012] [FB2]
@@ -667,33 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E66C495B7EFF292DE4A30B78E55C8B901C96FCC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727507   (54583) от 02.06.2024
-
-J.K. Rowling | Harry Potter (2015) [EPUB] [EN]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54583.jpg" />
-</div>
-
-
-###  Подробнее
-
-This Collection includes the seven phenomenal Harry Potter books by best selling author J. K. Rowling.
-Having become classics of our time, the Harry Potter eBooks never fail to bring comfort and escapism. With their message of hope, belonging and the enduring power of truth and love, the story of the Boy Who Lived continues to delight generations of new readers. (   Читать дальше...   )Жанр: фэнтези-литератураЯзык: английскийИздательство: Pottermore PublishingФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477E07B7545B7416D0F0E177EF31C4525AA0E327
 ```
 
 https://mybot314.ru/tekegram_catalog/

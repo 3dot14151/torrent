@@ -1,3 +1,148 @@
+###  Публикация: 1747091   (104786) от 04.09.2024
+
+Egali Zunno - Human Foundation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human Foundation (3:32)
+02. Roots of Instinct (3:08)
+03. The Crossroad of the Spirit (3:17)
+04. Awakening of the Void (3:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490575563CB8EF692BCB1AF64A02F1877FF5AAFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747095   (104755) от 04.09.2024
+
+Hozier - Unreal Unearth (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Selby (Part 1) (3:40)
+02. De Selby (Part 2) (3:48)
+03. First Time (3:53)
+04. Francesca (4:30)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 01:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:776EDDAD8149EBEDEFFD2956AEA6D16F301E7BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747106   (104752) от 04.09.2024
+
+Spitfyre - Fall Of Empires (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Human (3:17)
+02. Spitfyre (4:59)
+03. Shame (3:16)
+04. Intoxicated (3:16)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D20433C25A29CEE81AB83F08456B8F9EF665B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747099   (104748) от 04.09.2024
+
+Joe Calabro - The Storm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Fire (3:30)
+02. Into the Fire (Instrumental) (3:30)
+03. No One Knows (3:31)
+04. No One Knows (Instrumental) (3:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65E433DE271CF2562310C7FAC22A3719DA2A538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747093   (104747) от 04.09.2024
+
+Fullria - Aqueles Dias (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. É tarde (3:08)
+02. Realidade distorcida (2:46)
+03. Tudo errado (3:06)
+04. Aqueles dias (2:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FA05CFF71628B047A43A0A14A01DC3ED58ED8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747110   (104744) от 04.09.2024
 
 Wheel - Hip Eponymous (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -597,148 +742,6 @@ Stryper - When We Were Kings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFC025EE938329F300C3C3E0C8D5F59B9D6ED811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822757   (104453) от 09.10.2025
-
-Deaf Havana - We're Never Getting Out (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life in Forward Motion [00:03:27]
-02. Carousel [00:03:52]
-03. Break [00:03:47]
-04. Lawn Tennis [00:02:25](   Читать дальше...   )Жанр: Alternative Rock, Pop-RockПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4161169AF4D5039D871CEC46ACDA7F0630BA41D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822762   (104450) от 09.10.2025
-
-Playingtheangel - любовь побеждает смерть (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Hip-Hop, Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. выбирал [00:02:38]
-02. любовь побеждает смерть [00:03:17]
-03. религия [00:02:43]
-04. проблемы в раю [00:03:18](   Читать дальше...   )Жанр: Alternative Hip-Hop, Pop-RockПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:802FD7628BE3C3AE6080BBE40420A857B3BC5E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822799   (104448) от 09.10.2025
-
-Acres - The Host (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodlust [00:03:12]
-02. Not So Different [00:03:33]
-03. Staring At The Sun [00:03:23]
-04. Built To Bleed [00:03:01](   Читать дальше...   )Жанр: Metalcore, Alternative MetalПродолжительность: 00:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A6585CD6F8E193482A5188F196EBC6E486A6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822934   (104439) от 09.10.2025
-
-Cult Of Luna - Studio Albums (9 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Atmospheric Sludge/Post-Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cult of Luna — шведская пост-метал-группа из Умео, основана в 1998 году.2001 - Cult of Luna
-2003 - The Beyond
-2004 - Salvation
-2006 - Somewhere Along the Highway(   Читать дальше...   )Жанр: Atmospheric Sludge/Post-MetalПродолжительность: 12:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5164CF6CE2F3EAC46A61DA2AE6BA526A0E3BE482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749429   (104346) от 14.09.2024
-
-Mastodon, Lamb of God - Floods of Triton (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floods of Triton (4:30)Жанр: Groove MetalПродолжительность: 00:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F0249F1B3CBDA600A041971810973571A78ABA
 ```
 
 https://mybot314.ru/tekegram_catalog/

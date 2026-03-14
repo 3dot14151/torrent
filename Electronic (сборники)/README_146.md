@@ -1,3 +1,32 @@
+###  Публикация: 1064356   (426394) от 20.10.2016
+
+VA - Deep Mood, Chillhouse Selection (2016) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piet Lorrigan - Drink and Relax - The Bahia's Friends Mix
+02. Harley Coles - Drink Evolution - Fusion Mix
+03. Jaasiel Vega - Social Groove - Deep Groovers Mix
+04. Flat Crumb - Cool Emoticon - On The Beach Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7BFA0AF6D5E6319C0AA8E1D026D5A056BF4F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064345   (426388) от 20.10.2016
 
 VA - Sunny Refill Vol.1: Warm and Sunny Chill out Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -722,35 +751,6 @@ VA - Lounge At The Seashore 18 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C52DD150A7766F8F2E939474AED3B124FDE5D67A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167089   (419713) от 19.09.2017
-
-VA - Empire Records - Sound Clinic (2017) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Velvet, Prok & Fitch - Sheeple (Original Mix)
-02. Andrea Oliva - Vermona (Original Mix)
-03. Federico Franchi - Cream (Raf Marchesini Remix)
-04. Eddie Cooney - Le Freak (Extended Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8222F032C726F8C883497A38FB8C125B1D86FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1509704   (793860) от 13.11.2021
+
+Oxxxymiron - miXXXtape III: Смутное Время (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793860.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мох
+2. Погружение
+3. Flashback
+4. Reality(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687E7CEA448887E0A00CE16BAC7C9DD2BE825F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510919   (789710) от 19.11.2021
 
 Noize MC - Выход в город (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ SQWOZ BAB - BODY LANGUAGE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84B9C915BE24B6410A2D5FE96F40674CB8F4862E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209006   (779650) от 24.02.2018
-
-Krec - Атом (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рядовой
-02. Серьезно
-03. Атом
-04. Монстр(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03543358513CEE9DCA39EF8CD0BCB7B1967D9086
 ```
 
 https://mybot314.ru/tekegram_catalog/

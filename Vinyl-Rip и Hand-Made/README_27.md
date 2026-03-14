@@ -1,3 +1,118 @@
+###  Публикация: 1049566   (537639) от 08.09.2016
+
+Genesis - SACD Anthology (1970-1998) [FLAC 2.0|96/24|tracks+.cue|SACD] <Progressive Rock, Pop Rock, Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invisible Touch (3:29)
+02. Tonight, Tonight, Tonight (8:54)
+03. Land Of Confusion (4:46)
+04. In Too Deep (5:03)(   Читать дальше...   )Жанр: Progressive Rock, Pop Rock, Art RockПродолжительность: 14:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B345F4CCF1B7F126269C2A5139016902BCAF921C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050670   (536363) от 09.09.2016
+
+Форум - Никто Не Виноват (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Electronic, New Wave, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мечтатель • Dreamer
+02. Закодирована Дверь • Door With A Code
+03. Ты Пожалеешь • Yo'll Be Sorry
+04. Серенада • Serenade(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 00:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2781746B23F41AAC5533DBE83DE5B44D4BDF962C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 819259   (535792) от 06.09.2014
+
+Electric Light Orchestra - Balance Of Power (1986)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535792.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Heaven Only Knows (2:57)
+A2. So Serious (2:44)
+A3. Getting To The Point (4:31)
+A4. Secret Lives (3:32)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68EE1D2F2D7B42967397EC7B1B19EB322D412FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557908   (535704) от 18.06.2022
+
+Triptykon - Studio Albums (2010 - 2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death/Black/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triptykon — швейцарская экстремальная метал-группа из Цюриха, основанная в 2008 году Томасом Габриэлем Фишером, одним из основателей новаторских хэви-металлических групп Hellhammer, Celtic Frost и Apollyon Sun.2010 - Eparistera Daimones
+2014 - Melana Chasmata
+2020 - Requiem (Live At Roadburn 2019)Жанр: Death/Black/Doom MetalПродолжительность: 03:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8858B6C68B50D2C584EB7AF16EE12E55E915DF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155340   (535070) от 02.08.2017
 
 Каролина (Люба Орлова/Гусева) - Дискобар (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
@@ -628,122 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B81FD225909EEEE9648BD330F058F2F2CA90265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933169   (505286) от 02.09.2015
-
-Francoise Hardy - Le Double Disque D'or De Francoise Hardy (1977) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505286.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Tous Les Garcons Et Les Filles
-A2	Le Temps De L'amour
-A3	Mon Amie La Rose
-A4	Le Premier Bonheur Du Jour(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163C29272355029070F6791E9154ADFBDFC27D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931951   (505200) от 02.09.2015
-
-Megadeth - Countdown To Extinction (1992) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skin O' My Teeth (3:15) (DR13)
-02. Symphony Of Destruction (4:03) (DR13)
-03. Architecture Of Aggression (3:34) (DR13)
-04. Foreclosure Of A Dream (4:17) (DR13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BFC1A8AA71D90EA92D989AC00A4E3ED05D69F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933671   (505126) от 02.09.2015
-
-Август - Демон (1987) /1988, Мелодия АЗГ/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Демон (5:11)
-02. Как болит голова (4:45)
-03. Осень (6:17)
-04. Ночь (3:32)(   Читать дальше...   )Производство: Мелодия АЗГЖанр: Heavy MetalПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345D0F4F2D2040FDF11300C3537B38094B053B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934232   (503192) от 04.09.2015
-
-Круиз - Круиз-1 (1986) /1988, Мелодия ТЗГ/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503192.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Intro (4:46)
-A2. Дальний свет (4:26)
-A3. Случилось (4:50)
-A4. Последний рассвет (5:44)(   Читать дальше...   )Производство: Мелодия ТЗГЖанр: Heavy MetalПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047EF3BA6AB130CAF8E8700922CA0D0C3C3F4163
 ```
 
 https://mybot314.ru/tekegram_catalog/

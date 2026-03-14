@@ -1,3 +1,148 @@
+###  Публикация: 1626997   (199696) от 16.04.2023
+
+Uriah Heep - Gold From The Byron Era (2004) [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Hard Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Of Prey
+02. Time To Live
+03. Look At Yourself
+04. Lady In Black(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 01:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80234FF5CAABF65749D330C5039404DE8299019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627881   (199581) от 20.04.2023
+
+Queen - Innuendo (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199581.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Innuendo
+A2 I'm Going Slightly Mad
+A3 Headlong
+A4 I Can't Live With You(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA16C759D651387337931A76B26DAACD737D873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628375   (199452) от 23.04.2023
+
+Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофильмов (1974) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Говорите тише (Н. Рота)
+02 Пассажир под дождем (Ф. Лэй)
+03 Мужчина и женщина (Ф. Лэй)
+04 Мелодия (М. Жарр)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96368F347797398978C270F1DF0D328A7FA1B988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632482   (198677) от 10.05.2023
+
+Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunters Of The Night
+02. Some Hearts Are Diamonds
+03. Here Comes The Night
+04. Broken Heroes(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC2BE8BC77F0BD504B809849D51FC0C00234024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221378   (198612) от 10.05.2023
+
+Bing Crosby - Бинг Кросби (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_198612.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 В Спокойствии Ночи (In The Still Of The Night)
+A2 Я Мог Танцевать Всю Ночь (I Could Have Danced All Night)
+A3 Это - Великолепно (C'est Magnifique)
+A4 Попытай Счастья В Любви (Taking A Chance Of Love)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4910120AA499928A0AF10C8DFF008F5891F23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633584   (198446) от 15.05.2023
 
 Whitesnake - Come An' Get It (1981) Japanese Edition, Reissue, 2010, Sunburst, SHM-SACD [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Hard Rock, Blues Rock>
@@ -600,150 +745,6 @@ A4 Halloween(   Читать дальше...   )Жанр: Power, Speed MetalПр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E9BCB9705C2EA1CE1E134C8A498F471C00136D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657087   (193139) от 02.09.2023
-
-Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image + .cue|Vinyl-Rip] <Rock, Latin, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193139.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A-me-ri-ca
-A2 If I Had A Hammer
-A3 Bye Bye Blackbird
-A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, FunkПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313506   (193138) от 29.10.2022
-
-Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 Whole Lotta Shakin' Goin' On
-A2 Great Balls Of Fire
-A3 It'll Be Me(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBE27A6A2DED1915CCF33A93F067E2CA235F426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657298   (193101) от 02.09.2023
-
-Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ring of Fire — американская неоклассическая/прогрессивная/пауэр-метал группа из Чула-Виста, Калифорния, образованная в 2000 году.2001 - The Oracle
-2002 - Dreamtower
-2004 - Lapse Of Reality
-2014 - Battle Of LeningradЖанр: Progressive/Power MetalПродолжительность: 05:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524571   (193069) от 29.10.2022
-
-A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Synth-pop, Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193069.jpg" />
-</div>
-
-
-###  Подробнее
-
-A-ha  -  норвежская музыкальная группа, созданная в 1982 году в Осло и работающая в стиле электро-поп, появившемся на излёте «новой волны». Музыке a-ha присущи графичный, холодноватый («скандинавский») стиль, синтезаторно-гитарное звучание, выразительная балладная мелодика.1985 - Hunting High And Low
-1986 - Scoundrel Days
-1988 - Stay On These RoadsЖанр: Synth-pop, Pop-RockПродолжительность: 15:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6E87A8C13DF60FD4F9A6F402FE1684CDF4C819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587390   (192877) от 30.10.2022
-
-Tankard - Studio Albums (19 releases) (1986 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tankard — немецкая трэш-метал-группа из Франкфурта, основанная в 1982 году. Начиная со своего первого альбома, группа не изменяла взятому в самом начале направлению — создавать быстрые метал-песни, прославляющие алкоголь. В связи с этим получило распространённое мнение, что они изобрели жанр «алкоголик-метал». Сами себя Tankard называют «королями пива». Наряду с (   Читать дальше...   )1986 - Zombie Attack
-1987 - Chemical Invasion
-1988 - The Morning After
-1990 - The Meaning Of LifeЖанр: Thrash MetalПродолжительность: 14:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9EFD565F40230DE56F8740557B5F0D513260820
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1191256   (264472) от 13.12.2017
+
+VA - BBC Radio 2: The Piano Room (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Piano>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264472.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Ed Sheeran  -  This Year's Love (Recorded for BBC Radio 2)  2:36
+02.  Sam Smith  -  Stay With Me (Recorded for BBC Radio 2)  3:26
+03.  George Michael  -  Let Her Down Easy (Live From Prague Opera House, 2011)  3:41(   Читать дальше...   )Жанр: Pop, Easy Listening, PianoПродолжительность: 02:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D755AC0E12041C376EA38E90112BD80127E83D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191180   (264449) от 13.12.2017
+
+Robbie Williams - Under The Radar Vol. 2 (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satellites (4:07)
+02. 9 To 5 (3:40)
+03. Ms Pepper (4:02)
+04. Bambi (3:21)(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft Rock, Brit Pop, Jazz, Singer/SongwriterПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5362EC7E4AD2CBCD7993E854BE67FD590D10BA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969194   (264377) от 27.12.2015
+
+Bananarama - Megarama: The Mixes (2015) 3CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You Back (Extended European Mix) (07:56)
+02. Love, Truth & Honesty (Dance Hall Version) (07:26)
+03. Nathan Jones (Extended Version) (05:14)
+04. Preacher Man (Shep's Club Mix) (07:22)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E893A243DF3556EADD4B3974EFD4AFAE686679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340163   (264264) от 22.11.2019
+
+Celine Dion - Courage (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Flying On My Own (00:03:32)
+02 - Lovers Never Die (00:02:51)
+03 - Falling In Love Again (00:03:51)
+04 - Lying Down (00:03:59)(   Читать дальше...   )Жанр: Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06A17EACE2BD77652E31D866586AC54A6C5BD59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340097   (264242) от 22.11.2019
+
+VA - 100 Greatest 2019 Songs (Best Songs of the Year) (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264242.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lizzo - Truth Hurts
+002. Cardi B & Bruno Mars - Please Me
+003. Tones and I - Dance Monkey
+004. Lil Uzi Vert - Sanguine Paradise(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84573F9B3BCC00C0EBB8CBE4E6EBF87669FA85C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340379   (264012) от 23.11.2019
 
 Francesca Michielin - 2640 (2018) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
@@ -606,151 +751,6 @@ VA - 10s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A0C6B3FC847AAA60FAF66D92F6076CF6DF26D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836965   (255933) от 14.11.2025
-
-VA - Fresh Pop Hits 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Lines - No Broke Boys 02:43
-02. Ravyn Lenae - Love Me Not 03:33
-03. David Guetta - I Don't Wanna Wait 02:29
-04. Teddy Swims - Bad Dreams 03:04(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7557D7E4F79245721CB095B519DDA1252D00913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624367   (255510) от 05.04.2023
-
-Melanie Martinez - Portals (2023) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DEATH (05:06)
-02. VOID (04:07)
-03. TUNNEL VISION (04:44)
-04. FAERIE SOIRÉE (02:43)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527B208B3B910AD98412D1940AFFD3DBE809966A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625622   (255301) от 11.04.2023
-
-VA - timeless love tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Police - Every Breath You Take (4:11)
-02. Tears For Fears - Sowing The Seeds Of Love (6:17)
-03. Peabo Bryson, Roberta Flack - Tonight I Celebrate My Love (3:31)
-04. Pete Townshend - Let My Love Open The Door (2:45)(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A16A5731D226B0D175341C3F04044924BFA258C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638903   (252096) от 22.05.2023
-
-Elton John - Japanese Collection (11 CD Original Mastering) (1988 - 2006) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Postcards From Richard Nixon [0:05:15.14]
-02. Just Like Noah's Ark [0:05:33.18]
-03. Wouldn't Have You Any Other Way (NYC) [0:04:38.62]
-04. Tinderbox [0:04:25.73](   Читать дальше...   )Жанр: PopПродолжительность: 0046:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0BBFB36BB2725256E9CC079CCC3DEFE82FC991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383603   (251913) от 31.05.2023
-
-Sparks - 26 albums, 3 singles, 56 CD (1972-2023) [FLAC|Lossless|image + .cue] <Art Rock, Glam Rock, New Wave, Pop, Rock, Synth-pop, Experimental>
-
->>След.
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sparks – группа, образованная в 1971 году братьями Роном и Расселлом Маэлами, одна из самых старых американских групп. Почти за пятьдесят лет своей карьеры они успели выпустить 24 альбома и опробовать множество разных жанров, от диско до психоделики. Множество музыкантов заявляет, что учились у Sparks – от Моррисси и Depeche Mode до многочисленных поп-исполнителей. (   Читать дальше...   )--------------------------
-
-01. Perfume (Radio Edit) (3:42)
-02. (Baby,Baby) Can I Invade Your Country (Alternative Lyric) (6:35)(   Читать дальше...   )Жанр: Art Rock, Glam Rock, New Wave, Pop, Rock, Synth-pop, Experimental |Продолжительность: 41:40:04 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441B0CC68231D3122A883167F7360C5B35272C2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

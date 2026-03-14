@@ -1,3 +1,119 @@
+###  Публикация: 1758322   (38597) от 01.11.2024
+
+Motörhead - Remorse? No! (2024) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38597.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ознаменование 40-летия первого ретроспективного сборника Motorhead "No Remorse", вышедшего в 1984 году, выпущена новая версия этого альбома под названием "Remorse? No!". На нем представлены ранее неиздававшиеся демо-версии, раритеты и треки.CD 1:
+01. Ace Of Spades (Alternate Version) (3:02)
+02. Motцrhead (Live At Hollywood Palladium, Oct 1984) (2:29)
+03. Jailbait (Alternate Version) (3:31)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:689408BC6618C4FC0A979E867A399DAC573D527C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758508   (38492) от 02.11.2024
+
+BlackBeer - Trapped In The Sin City (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War
+02. Too Much Rock
+03. Rebels Are Forever
+04. Little Cry(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C69DFC9347362815BFE7BF881F3210B2A4949C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758773   (38272) от 04.11.2024
+
+Mad Dillon's Deputies - Biting Dynamite (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Male Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return Of The Dynamite Biters (1:35)
+02. Friendly Fire (4:27)
+03. Creatures Of The Night (4:15)
+04. Underground Shuffle (5:38)(   Читать дальше...   )Жанр: Hard Rock, Male Female VocalПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B65E89FA9250BE30445721A1911AB09C5F53BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758796   (38271) от 04.11.2024
+
+Daylight Robbery - Decree Absolute (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Art of War
+02. Scarred
+03. Godz
+04. Liar(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F01779C1652F65A3397EBEC2C4FE9E4429F3C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760475   (37285) от 14.11.2024
 
 Circles Of Illusion - Lionheart (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
@@ -629,122 +745,6 @@ Illogica - Underdogs in the Limelight (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9D98C148FBC26410BE7785B05410B18A8923BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765393   (34390) от 12.12.2024
-
-Wolverine Leipzig - Machine Messiah (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Of the Never Never (03:51)
-02. Call the Ball (04:36)
-03. Grape & the Grain (04:22)
-04. Just Saying (04:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0D081403CBF4EC56E886B3AB67AC1452319FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765408   (34382) от 12.12.2024
-
-Erika - United States Of Erika (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Northern  Comfort (1:47)
-02. Praise  The Loud (3:01)
-03. Chaq Mol - G-String Drop (3:43)
-04. Ralf Gyllenhammar - Road To Nowhere (3:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D87B7E7E7F5DE77AB84266C9B3E5AB68533325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765406   (34380) от 12.12.2024
-
-Cole Havoc - My Former Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monster You Made (3:18)
-02. Savior You Seek (3:16)
-03. Taking Back My Life (3:55)
-04. Disarray (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D776DDB2CA08F1750E2698A241E0DD0FF641C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765428   (34379) от 12.12.2024
-
-Texas TNT - Crossroads Are Burning (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Swallowed A Fly (4:32)
-02. King Of The Jungle (3:42)
-03. I Wanna Be Ozzy (4:19)
-04. Crossroads Are Burning (4:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE39B23E87D746A022C3594C4E9AD554F980623
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1500988   (839693) от 07.10.2021
+
+VA - Live @ Behind The Mask, Transmission Prague, O2 Arena Prague, Czech Republic (2021-09-11) [MP3|192-320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839693.jpg" />
+</div>
+
+
+###  Подробнее
+
+WHITENO1SE @ Behind The Mask, Transmission Prague, O2 Arena Prague, Czech Republic 2021-09-11
+
+01. WHITENO1SE - ID w/Dash Berlin & Cerf, Mitiska & Jaren - Man On The Run (Acappella)
+02. Nina Nesbitt - The Moments I'm Missing (Ranji & WHITENO1SE Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 09:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34550F92FABC06CB2F7DF3669A0B731CBEFB8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805462   (839435) от 05.04.2016
+
+Vitaly Otto - City of Trance 001-042 (Обновляемая) (2014-2016) [MP3|320 кб/с]<Uplifting Trance,Trance>
+
+>>След.
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sied van Riel ft. Chloe - Hear You Calling (Original mix)
+02.Tiesto - Suburban Train (Jordan Suckley Remix)
+03.ReOrder & Lee Osborne - Escape To Freedom (Original mix)
+04.Saad Ayub - Forgive & Forget (Original mix)(   Читать дальше...   )Жанр: Uplifting Trance,TranceПродолжительность: 43:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D31BC190015C0BF16B72999DFB42DC352590131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501031   (838124) от 08.10.2021
 
 Microsha 89 - Микшер русской кибернетики #206 (2021) [MP3|320 Kbps|WEB-DLRip|image + .cue|tracks + .cue] <Synthwave>
@@ -687,64 +745,6 @@ Fatboy Slim - Everybody Loves A Mixtape Podcast (2021) [MP3|192 Kbps] <house, te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C3E8713E6CECBA582438613E46F4629BD76052C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506946   (799049) от 02.11.2021
-
-Ummet Ozcan - Tomorrowland Friendship Mix (2021-10-28) [MP3|320 Kbps] <Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baas - Alter Ego
-02. Gaga & Mateo! - Galvanize
-04. Shouse - Love Tonight (ID Remix)
-04. Chapter & Verse - Lights Go Out (ID Remix)(   Читать дальше...   )Жанр: Big RoomПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83331A3A6B472C19FE2E6B379DCB161286A82F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507603   (798294) от 05.11.2021
-
-Josh Le Tissier - Ministry of Sound - HD Life presents Fresher Land (2021-10-07) [MP3|320 Kbps] <Electro House, Big Room, Bass House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - The Business (SWACQ Remix)
-02. FETISH - The Door
-03. Kriss Reeve & Repiet - Anybody
-04. Keanu Silva - King Of My Castle (Don Diablo Edit)(   Читать дальше...   )Жанр: Electro House, Big Room, Bass HouseПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7AFA582364609C7E41CE282E9CC88444FB7A9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1068579   (368792) от 06.11.2016
+
+Killer Bee - Eye in the Sky (2016) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye in the Sky 05:23
+02. Shout It Out 02:40
+03. One Step Closer 04:22
+04. Higher and Higher 04:24(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1EEEC2A401636E831511ECE3E557C8EDFE26B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576140   (368482) от 13.09.2022
 
 Bandolier Kings - 2 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
@@ -724,35 +753,6 @@ Scorpions - Blackout (1982) 50th Anniversary Deluxe Edition /2015, BMG/  [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA51CCA47BDE296F52FD0724157CA930C8FE11AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954001   (344171) от 06.11.2015
-
-Scorpions - Lovedrive (1979) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loving You Sunday Morning
-02. Another Piece Of Meat
-03. Always Somewhere
-04. Coast To Coast(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9F19FDA33BFF3CF1C2305771B600DC5965FE0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

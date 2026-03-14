@@ -1,3 +1,119 @@
+###  Публикация: 1468312   (1017099) от 08.05.2021
+
+Todd Michael Hall - Sonic Healing (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overdrive
+02. Let Loose Tonight
+03. All On The Line
+04. Running After You(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B356578DFB1BFC7626C33F496AC5434608A13B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468779   (1016939) от 09.05.2021
+
+Stone Whiskey - Rebels of the Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Moonlight (00:03:26)
+02. Empty Eyes (00:03:33)
+03. Rebels of the Sun (00:04:13)
+04. Out on the City (00:03:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9640802E5B5A7EE8BD042D23BF127A06A51D444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468762   (1016933) от 09.05.2021
+
+A Rising Force - Undertow (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undertow
+02. Love and War
+03. Crushed
+04. Freaks(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C68FDC066503EB8062D912A78F5D494BCBCABD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469250   (1016602) от 11.05.2021
+
+Simon Says - Spin This (1991) Reissue, Remastered, 2020, Escape Music [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Love Thing
+03. Let Me Know
+04. When I See You Standing There(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC8AC9CFA863865545A8ECDE7DE369439AF9B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469529   (1016318) от 13.05.2021
 
 Minefield - Minefield (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +745,6 @@ Bulbous Creation - You Won't Remember Dying (1994) Reissue, 2011, O-Music [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:704879470DE2148DE44ECC89C57CF8148ECC9BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474529   (1012910) от 03.06.2021
-
-Rod Marenna & Alex Meister - Out of Reach (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of Touch
-02. The Price of Love
-03. Gimme All You've Got
-04. I Don't Wanna Lose You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926D1EF778B2BADBE2DEA28FC73B97D6391DAEBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474838   (1012737) от 04.06.2021
-
-Caging Elliott - Under The Blackened Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Enough
-02. Never Gonna
-03. Whiskey Down
-04. Don't Tread On Me Pt 1(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E628521AB1E2A5CB62BA600DF1A12FB590FAB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475328   (1012452) от 06.06.2021
-
-Fear Not - Fear Not (1993) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give It Up
-02. We Have A God
-03. Mr. Compromise
-04. Till The End Of My Days(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D953E80825351F5C8F8CCB5692C4C3621DA11F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475331   (1012423) от 06.06.2021
-
-Love Life - Goodbye Lady Jane (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Love
-02. Do You Love Me
-03. Hearts On Fire
-04. When Loneliness Comes Knockin'(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C7158A49524233BB5C131ED49F64CF0E8796E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

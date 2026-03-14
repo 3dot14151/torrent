@@ -1,3 +1,148 @@
+###  Публикация: 1753523   (103801) от 05.10.2024
+
+VA - Find Your Harmony 2024 Part 2 - NATURE (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The HIDD3NS & Zi - Find Yourself (Mixed) (Intro Mix) [3:12]
+02. Kamaji - Autoimmune (Mixed) (Arisey Remix) [3:09]
+03. Laura Van Dam - How Does It Feel (Mixed) (Original Mix) [3:24]
+04. Huvagen - Paradyse (Mixed) (Original Mix) [3:51](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6EDC47E83B3703BD245EAE4183858301D1D911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754790   (103668) от 12.10.2024
+
+VA - Black Hole Trance Music 10-24 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Brian & Torsten Stenzel & Nazzereene - Weighed Down (Extended Mix) [5:24]
+02. Ciaran McAuley & Christina Novelli - Say Something (Extended Mix) [6:11]
+03. Markus Schulz - Summer Of '99 (Extended Mix) [6:21]
+04. John Askew & Shelby Merry - Wild Horse (Siskin Extended Remix) [6:05](   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313F943B42A87AB53057510C5351D151CE020165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756871   (103479) от 24.10.2024
+
+VA - Interplay ADE 2024 (Extended DJ Mixes) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Popov & Ahmed Helmy - In Your Mind (Extended Mix) (03:27)
+02. Ahmed Helmy - Stay (Extended Mix) (05:45)
+03. LTN & Omair - Fractal (Extended Mix) (05:38)
+04. LTN - Sakura (Extended Mix) (05:38)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B079B8BEFC50BCAE3DE5A0FB6894F6B27098B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757311   (103446) от 27.10.2024
+
+VA - Nothing But... Trancetopia Vol. 19 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conoa - Are You Now (Instrumental Radio Mix) (04:21)
+02. Eximinds, Eldream & Waves_On_Waves - Gemini (Extended Mix) (05:41)
+03. Ascending Force - Loving Memory (07:28)
+04. LekSin & Yuri Melnikov - The Forgotten Heart (Intro Mix) (05:29)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDFD53DA36FB1E95E3D36F0A732FEF1509385D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759651   (103277) от 09.11.2024
+
+VA - Techno Club Vol. 73 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Zaloxx - Signal Of Eternity (Extended Mix) [06:02]
+02. Talla 2XLC & Fragma - Toca's Miracle (Extended Mix) [07:02]
+03. Chapter XJ - Never Forget (Madwave Extended Remix) [06:30]
+04. Talla 2XLC & Jens Lissat - The Future (Extended Mix) [06:32](   Читать дальше...   )Жанр: TranceПродолжительность: 03:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F600BBA7250F023C099CA8CC020056B6EA4AA001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759778   (103253) от 10.11.2024
 
 VA - Trance: The Vocal Session 2025 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -600,148 +745,6 @@ VA - Alter Ego Progressive - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B856CB91FD88AA81E3259B4261C46D19FDAF4E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766800   (101200) от 21.12.2024
-
-VA - Synchronized Music: Best of 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony Irrmani - Road to the Magic Island (05:29)
-02. TONE - In Your Name (04:24)
-03. Gennady Blinkov - Union (05:39)
-04. A.L.Y.S. - Distant Past (03:49)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9084C98F5E008C4521371008B23EA1AD66951019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768678   (100884) от 26.12.2024
-
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 07 (2024) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AaYmin - By Your Light (For Saylee) (Extended Mix) (05:53)
-02. Liudicrous & Nini - Comical (Cosmaks Remix) (05:20)
-03. Toffk - Remoted (Mark Van Rijswijk Remix) (06:57)
-04. Pavel Koreshkov - New Regeneration (Mixed) (03:41)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7BC09A27646541B1FD9B28B94555B2E2375608B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769171   (100706) от 27.12.2024
-
-VA - Interplay Highlights 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passive Progressive & Sentient Mullet – Like a WaveЖанр: Trance, Progressive, ElectronicПродолжительность: 01:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9F9773EA9DA878B64171D0777ED919F4D6F764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769425   (100688) от 28.12.2024
-
-VA - Reason II Rise: Realms Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jake Crooker - New World (Mixed) [04:48]
-02. Menno Veda - Orbit (Mixed) [02:00]
-03. Afterus - Sparta (Mixed) [04:43]
-04. Pinkque & Darren Porter - Divergent (Mixed) [04:21](   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805A759EB9C359A19DB18A4DC32DEE1B6569E77A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769418   (100686) от 28.12.2024
-
-VA - Coldharbour Reflections 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Ram Attack (03:46)
-02. DIM3NSION & Daxson - Ardora (03:12)
-03. Mike EFEX - Malfunction (02:39)
-04. Stoneface & Terminal - In My Mind (02:48)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69FBF08E537E392EC1983A5FCCEDF1B5F52E06B
 ```
 
 https://mybot314.ru/tekegram_catalog/

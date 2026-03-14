@@ -1,3 +1,177 @@
+###  Публикация: 1550237   (592526) от 10.05.2022
+
+Jesse Davis - Second Nature (2000) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Sunny Side of the Street [7:52]
+02. I've Grown Accustomed to Her Face [8:34]
+03. Tommaso [7:51]
+04. Coffetto [8:18](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA5FBFAB03BB7A17BF7334AA52D337B0E3C925A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550124   (592506) от 10.05.2022
+
+Barbara Dennerlein - Barbara Dennerlein Duo - 10th Anniversary - It's Magic (2005) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The House  (08:37)
+ 02. Longing  (12:02)
+ 03. Swing The Blondes  (07:22)
+ 04. Change Of Pace  (13:05)(   Читать дальше...   )Жанр: Hammond Organ, Jazz, Fashion JazzПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5154B80AAAE137B744E921D9569B5A7A83F110D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550121   (592492) от 10.05.2022
+
+Barbara Dennerlein - That's Me (1992) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grandfathers's Funk  (05:07)
+ 02. Dancing Shoes  (09:36)
+ 03. That's Me  (06:14)
+ 04. Three Hearts  (06:58)(   Читать дальше...   )Жанр: Hammond Organ, Jazz, Fashion JazzПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6489803768C1A62BAC9FFF769A41F39150F2C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915396   (592396) от 05.07.2015
+
+Diego Imbert Quartet - Next Move (2011) [FLAC|tracks+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suite Part 1 [03:22]
+02. Intermezzo 1 - Suite Part 2 [05:51]
+03. Suite Part 3 [04:33]
+04. Intermezzo 2 - Suite Part 4 [04:04](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0748E4C53B563F82258308C9E01C7906740B4A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915379   (592379) от 05.07.2015
+
+BB Lyngs Blues Band - Blues Pa Bla Resept (2015) [MP3|320 кб/с]<Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's My Queen I'm Her King (02:58)
+02. Talk To Me Mama (04:13)
+03. I Came Here To Stay (03:11)
+04. I'm Lost Without You (03:13)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305202A5B6A3750767C512B175B84BCFE07D5993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915368   (592378) от 05.07.2015
+
+Ally Venable Band - Train Wreck Blues (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Train Wreck Blues (03:28)
+02. Sneaky Feeling (02:31)
+03. Downhearted Blues (03:27)
+04. No Glass Shoes (03:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E3AF508844B0F7B6D97BAC34271A6C0A085AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550454   (592165) от 11.05.2022
 
 George Lewis - The Complete Blue Note Recordings Of George Lewis (1943 - 1955) 3CD, 1990, Mosaic Records [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
@@ -571,180 +745,6 @@ CD1 (The Hits):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76EDA63B99658E9356F13521AD149998AFFCF8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551264   (590246) от 15.05.2022
-
-Fausto Ferraiuolo Trio - Il Dono (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Island [4:52]
-02. Three [4:19]
-03. Rue de la Vega [5:26]
-04. O Impro Mio [4:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD29476D132214685030599BA0E30FB9CC7FD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551267   (590245) от 15.05.2022
-
-Luigi Martinale French Trio - Mercj (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pop Imagination [5:28]
-02. It Ain't Necessarily So [5:04]
-03. Puccini [3:09]
-04. Sundial Time [6:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84FC23B6582944C91B4B4DA32162FB5206644CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551324   (590239) от 15.05.2022
-
-Kammerflimmer Kollektief - Teufelskamin (2011) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Dark Jazz, Experimental Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coricidin Boogie (4:31)
-02. Never Collapse, Always Dazzle ! (3:56)
-03. Teufelskamin Jam #1 (10:22)
-04. Shangrila (1:43)(   Читать дальше...   )Производство: Staubgold – staubgold digital 16Жанр: Nu Jazz, Dark Jazz, Experimental RockПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF0633CDB0A46D970360CC73A5E451912B4E66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551323   (590227) от 15.05.2022
-
-Kammerflimmer Kollektief - Désarroi (Desarroi) (2015) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Dark Jazz, Experimental Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Désarroi #1: Mayhem! (3:52)
-02. Désarroi #2: grundstürzend (5:33)
-03. Free Form Freak-Out (6:06)
-04. Evol Jam (Edit) (4:55)(   Читать дальше...   )Производство: Staubgold – staubgold 136Жанр: Nu Jazz, Dark Jazz, Experimental RockПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723975DA8F7D1A66FF56D5DC27C68534FB92F4E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917029   (590001) от 10.07.2015
-
-Nils Gessinger - Pass-ion (2011) [FLAC|tracks+.cue]<Jazz, Funk, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toses [04:52]
-02. Bondone [06:26]
-03. Catinaccio [08:48]
-04. Fugazze [03:56](   Читать дальше...   )Жанр: Jazz, Funk, FusionПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFEBAC846A3276720D9A3F35DC439DEE38961A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916830   (589999) от 10.07.2015
-
-David Michael Miller - Same Soil (2015) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All The Blues To You (04:25)
-02. Just Ride (05:44)
-03. Got Them Blues (03:39)
-04. Friend Of Mine (06:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB96660A8E1D1381349DC57DA5ECBA73275A082
 ```
 
 https://mybot314.ru/tekegram_catalog/

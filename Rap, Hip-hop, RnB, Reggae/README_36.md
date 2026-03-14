@@ -1,3 +1,119 @@
+###  Публикация: 1761708   (36559) от 21.11.2024
+
+Black Sheep - A Wolf in Sheep’s Clothing (1991) [FLAC|Lossless|tracks + .cue] <Hip Hop, Boom Bap, Jazzy Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:50)
+02. U Mean I’m Not (1:25)
+03. Butt in the Meantime (4:14)
+04. Have U.N.E. Pull (3:51)(   Читать дальше...   )Жанр: Hip Hop, Boom Bap, Jazzy Hip-HopПродолжительность: 01:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C344AE3F72C1FC515333AAE4128A26A815C103A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762498   (36049) от 26.11.2024
+
+Саграда (Соль Земли) - Преданность реальности (2023) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Камуфляжные времена
+02. Чаша (feat. Ария)
+03. Девочка с бедою (feat. 25/17)
+04. На шаг (feat. Кукрыниксы)(   Читать дальше...   )Жанр: RapПродолжительность: 00:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A0099C222AEB52C3ACB544591B9A87AC4162D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765106   (34609) от 10.12.2024
+
+VA - Chillhop Essentials Winter (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afroham, No Spirit – Way Home, ft. BAKERMAN (2:15)
+02. mommy, Sleepy Fish – Guitar Shop (2:13)
+03. Kupla, QMTZ – Cirrus (2:07)
+04. Psalm Trees – Breathe In, ft. less.people (2:54)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF247529B64F69DEC5B58496C1CC1AE48E1C95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769220   (32824) от 27.12.2024
+
+VA - Russian Rapcore Vol. 1-2 (2008-2009) [FLAC|Lossless|tracks + .cue] <Rapcore>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оскал Муравья - Дом, где я живу (3:57)
+02. ГрандШатлБанда - Ну-ка давай (3:22)
+03. Напасс - 140 ударов (3:03)
+04. E-SEX-T - Сны (3:45)(   Читать дальше...   )Жанр: RapcoreПродолжительность: 02:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738EF9CB39186E433A560F44E31B97E2DF63A8CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780504   (26995) от 20.02.2025
 
 Невзатяг - Бубнеж (2015) [MP3|320 Kbps] <Hip-Hop>

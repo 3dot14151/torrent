@@ -1,3 +1,148 @@
+###  Публикация: 1704137   (114296) от 04.03.2024
+
+Calming Jazz Relax Academy - Instrumental Meditation: Calm Mindfulness Session with Piano, Violin and Harp (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soft Peace (4:10)
+02. Inner Happiness (3:52)
+03. True Emotions (4:10)
+04. Heavenly Piano (3:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570001576E29DE793FB5DC5625C02540BFD9CF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704448   (114295) от 04.03.2024
+
+Mortifer - Euthanasia (1993) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro
+02 - Euthanasia
+03 - Illusions of life
+04 - Hangman's confession(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5D1A82E8F3555CAD98E54477CD7F95461A6B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704140   (114293) от 04.03.2024
+
+Hunter Francis - Daggermouth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daggermouth (4:15)
+02. Never Forget (2:37)
+03. Mud Water (4:21)
+04. Let You Down (3:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4583F129F0E2270F4BD479BB40041594C62E8A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704148   (114283) от 04.03.2024
+
+Max Magro and the Wolfgang - Commit a Crime (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smokestack Lightning (3:05)
+02. Commit a Crime (3:30)
+03. Wang Dang Doodle (4:28)
+04. Rolling Stone (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5495F94F7397A6C316DDE589F3715DBC3419D1D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704591   (114235) от 05.03.2024
+
+AC/DC - Flick of the Switch (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Rising Power"
+02. "This House Is on Fire"
+03. "Flick of the Switch"
+04. "Nervous Shakedown"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948933FC27F32699A1A98FAC5D46B3BFFEF95CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704665   (114232) от 05.03.2024
 
 AC/DC - Fly On The Wall (1985)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
@@ -598,151 +743,6 @@ Silveroller - At Dawn (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:167F3D827BBBD93CC3F6394FA8EBD36C5AFE983B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704822   (114033) от 06.03.2024
-
-Jimmy Goings & Santa Esmeralda - Green Talisman (1982) [FLAC 24/192|Lossless|tracks] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Зеленый талисман
-Green Talisman (Skorsky / Carmona - Goings - Skorsky)
-02. Сладкий союз(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1AE867AF801BAAAB7156E7515019089917E9CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704819   (114032) от 06.03.2024
-
-Ivo Linna - Поёт Иво Линна (1983) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня любви (Т. Брасфильд - Р. Линна)
-02. Почему я жду тебя? (Р. Галдри, П. Гейтн - Х. мирка)
-03. Буги зайца (М. Капелл - П. Аймла)
-04. Тоска по родному дому (Г. Каянус - Х. Кяо)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F483AB2C85AC102D526839462FBD988F197511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704852   (114027) от 06.03.2024
-
-Walter Trout - Broken (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] < Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walter Trout, Beth Hart - Broken (4:50)
-02. Walter Trout - Turn And Walk Away (4:33)
-03. Walter Trout - Courage In The Dark (5:36)
-04. Walter Trout, Will Wilde - Bleed (4:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9606925EB4C90CE5E1B5D8788BE71AF5549584CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704948   (114020) от 06.03.2024
-
-Вальдо де лос Риос - Волшебная Музыка (1979) [FLAC 24/192|Lossless|tracks] <Modern Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Все говорят (из к/ф Полночный ковбой)
-Everybody's Talkin' (F. Neil)
-02. Жан(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EDB0F1F0C0D21B87443ABE4128229D8A20371B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704952   (114018) от 06.03.2024
-
-Вахтанг Кикабидзе - Пока сердце поет (1979) [FLAC 24/192|Lossless|tracks] <Retro, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Пока сердце поёт (А. Ованов – Н. Арешидзе)
-02. Ты сама ко мне придёшь (Г. Каландадзе – П. Грузинский)
-03. Куда ушли вы, молодые годы (Н. Адилашвили – В. Гоголашвили)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39ED83346B49088FF2ADF07D0BC7F29EC076C01F
 ```
 
 https://mybot314.ru/tekegram_catalog/

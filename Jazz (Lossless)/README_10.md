@@ -1,3 +1,32 @@
+###  Публикация: 1621541   (1030969) от 25.03.2023
+
+Dean Martin - BD Voices: L'Histoire de Dean Martin (1944 - 1958) 2CD, 2008, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long, Long Ago [2:22]
+02. Open Up the Doghouse (Two Cats Are Coming In) [2:31]
+03. Volare (Nel blu, dipinto di blu) [3:02]
+04. Standing on the Corner [2:50](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 02:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3FC1478BC8CC2DC85756B0DF393FB132E84FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448394   (1030937) от 17.02.2021
 
 Workshy - Love Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Funk, Soul-Jazz, Smooth Jazz>
@@ -717,35 +746,6 @@ Django Reinhardt - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFB59825E8008A9A9C731810AEFC0BEB08019F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623789   (1029095) от 03.04.2023
-
-Silje Nergaard - Japanese Blue (Acoustic Version) (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be Still My Heart [05:53]
-02. Based on a Thousand True Stories [05:56]
-03. The Waltz [04:03]
-04. I Don't Wanna See You Cry [05:21](   Читать дальше...   )Жанр: Jazz, Blues, SoulПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC7ABF28CDC10EE7B4A2896239BE63DEA2D666A
 ```
 
 https://mybot314.ru/tekegram_catalog/

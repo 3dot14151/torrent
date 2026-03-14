@@ -1,3 +1,177 @@
+###  Публикация: 1291916   (650694) от 27.03.2019
+
+David Murray - The London Concert (1999) 2CD, Cadillac Records [FLAC|Lossless|image + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650694.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. JasVan (for James VanDerzee) [20:24]
+02. Home [16:36]
+03. Secret Of The Circle [22:00](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 02:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE45AB9EEBF9CC041DF97FB75D91C7D12252E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292013   (650610) от 27.03.2019
+
+Harpdog Brown - For Love & Money (2019) [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Eyes for Me (03:39)
+02. Blue Light Boogie (05:21)
+03. The Comeback (04:49)
+04. Reefer Lovin’ Woman (04:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A80C7DF22E2CA2EEE33C96D912BCD0E0B8EC522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291880   (650604) от 27.03.2019
+
+Kenny Parker - Hellfire (2019) [FLAC|Lossless|tracks + .cue] <Blues, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got My Eye on You (05:44)
+02. Baby Come Back to Me (05:24)
+03. Blind and Paralyzed (05:58)
+04. Bye Bye Baby (Live) (04:34)(   Читать дальше...   )Жанр: Blues, Modern Electric BluesПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26F80E3C566DB32864CCB09AB58B04FCFF2B13E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141447   (650561) от 10.06.2017
+
+Ryan Truesdell Presents - Centennial: Newly Discovered Works of Gil Evans (2012) Slowfoot [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Punjab [14:24]
+02. Smoking My Sad Cigarette [04:27]
+03. The Maids of Cadiz [06:25]
+04. How About You [03:12](   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6EAA96BADD009B0B8212C07F4B82DA97A80F244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141443   (650559) от 10.06.2017
+
+Paquito D'Rivera - La Habana-Rio Conexion (1992) 2005, Messidor [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Comparsa [03:33]
+02. Cancao De Noite [04:35]
+03. Danzas cubanas: A los tres golpes [01:22]
+04. Danzas cubanas: Invitacion [00:49](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB34369DDE87DB0D50110ABE136148B70EE2629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141448   (650558) от 10.06.2017
+
+Toufic Farroukh - Cinema Beyrouth (2012) Enja [FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No brain no pain [05:10]
+02. A wonderful afternoon with Zena-Laure [05:00]
+03. Fema ka [04:47]
+04. Summer run [04:37](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEB0D1BBB5BE29A03D98A2267980EF0F9FD15AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141579   (650545) от 10.06.2017
 
 The Johnny Smith Guitar - My Dear Little Sweetheart (1960) 2017, Roost, Parlophone, Warner Music Japan [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
@@ -572,180 +746,6 @@ Makoto Terashita - Great Harvest (1978) 2014, Think! Records [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92E3C77759E5A9708EFDA275BEA84AD0BECAA804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227342   (648591) от 25.05.2018
-
-Jeri Brown & Jimmy Rowles - A Timeless Place (1995) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Star [6:48]
-02. After School [5:10]
-03. Baby, Don't Quit Now [6:44]
-04. A Timeless Place [7:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E35C40F3993ABC9421A5851D1E1450ED9DB9871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227204   (648586) от 25.05.2018
-
-Brad Mehldau Trio - Seymour Reads The Constitution! (2018) Nonesuch Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiral [8:34]
-02. Seymour Reads the Constitution [8:06]
-03. Almost Like Being in Love [5:41]
-04. De-Dah [8:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B005E384B13DED7E71B605D22AA8969C4D2886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227243   (648576) от 25.05.2018
-
-Lazy Eye - Black Hill (2018) Live [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Tongue Blues (Live) (07:56)
-02. House Of Trouble (Live) (09:09)
-03. Black Hill (Live) (05:07)
-04. Do It Right (Live) (06:15)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB89F3820B35043831508B8DCB9353DAA9E64620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227336   (648570) от 25.05.2018
-
-Al Cohn & Jimmy Rowles - Heavy Love (1977) 2015, Elemental Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them There Eyes [6:38]
-02. Sweet and Lovely [6:59]
-03. I Hadn't Anyone Till You [7:01]
-04. Taking a Chance on Love [7:15](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F0A5D14AF3FEFBBBEA116F39A5A1439633954D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227203   (648477) от 25.05.2018
-
-Dana Fuchs - Love Lives On (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648477.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Backstreet Baby (4:00)
- 2. Nobody's Fault But Mine (3:34)
- 3. Callin' Angels (3:47)
- 4. Sittin' On (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664E6F7241B7DD3D19C3383F5F2F21353C715873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032103   (648020) от 06.07.2016
-
-Brother Jack McDuff - Live! (1963) 1994, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Rock Candy [06:41]
- 02.It Ain't Necessarily So [06:38]
- 03.Sanctified Samba [04:50]
- 04.Whistle While You Work [05:12](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F422B46D53360C17D639675E82EBF628A40767
 ```
 
 https://mybot314.ru/tekegram_catalog/

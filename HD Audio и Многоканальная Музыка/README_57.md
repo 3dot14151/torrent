@@ -1,3 +1,149 @@
+###  Публикация: 1655843   (203795) от 28.08.2023
+
+Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ Мелодия, лицензия от Polydor [FLAC|24/192|image + .cue|VinylRip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203795.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Score • Счет
+A2 Learning To Fly • Учимся Летать
+A3 The Miracle • Чудо
+B1 Touch And Go • Рискованная Игра(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF43BC248540E603C906DEC9C075587250AC43B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655732   (203748) от 28.08.2023
+
+Norther - Studio Albums (7 releases) (2002-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Norther (сильный северный ветер) — мелодик дэт-метал группа из Финляндии.2002 - Dreams of Endless War
+2003 - Mirror of Madness
+2004 - Death Unlimited
+2006 - Till Death Unites UsЖанр: Melodic Death/Power MetalПродолжительность: 05:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908F32F299D493744B4B5C15CD5B743391BD093A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656086   (203631) от 29.08.2023
+
+Katz - Дуэт Katz. Швеция (1987) Лицензия от World Record Music [FLAC|24/192|image + .cue|Viny-lRip] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203631.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Необыкновенная Женщина • Female Of The Species
+A2 Все, Что Я Могу, - Любить Тебя • Loving You Is All I Know
+A3 О Чем Ты Думаешь • What Goes On In Your Mind
+A4 Танцующие Туфельки • Dancing Shoes(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6670368A67381097772F3523C9C683F473CF8AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152990   (203599) от 24.01.2023
+
+The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_203599.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Venus
+A2 Shocking You
+A3 Send Me A Postcard
+A4 Long And Lonesome Road(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE01C253D456D1B59789DCB8FEA0F866E12B44B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567596   (203562) от 25.01.2023
+
+Muse - Studio Albums (10 releases) (1999 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks + .cue] <Alternative rock, progressive metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_203562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Muse — британская рок-группа, образованная в 1994 году в городе Тинмут (графство Девон).
+Группа состоит из трёх участников: Мэттью Беллами (вокал, гитара, клавиши), Криса Уолстенхолма (бас-гитара, бэк-вокал, вокал) и Доминика Ховарда (ударные).1999 - Showbiz
+2001 - Origin Of Symmetry
+2003 - Absolution
+2006 - Black Holes And Revelations(   Читать дальше...   )Жанр: Alternative rock, progressive metalПродолжительность: 10:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBA7EF7B7B54B620C338E049529D44B629B3255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656257   (203527) от 29.08.2023
 
 Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
@@ -605,151 +751,6 @@ Overkill — американская трэш-метал-группа, осно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA79B0D8D4BF1B2D305537A46923BDBE826D231A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626997   (199696) от 16.04.2023
-
-Uriah Heep - Gold From The Byron Era (2004) [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Hard Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bird Of Prey
-02. Time To Live
-03. Look At Yourself
-04. Lady In Black(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 01:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80234FF5CAABF65749D330C5039404DE8299019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627881   (199581) от 20.04.2023
-
-Queen - Innuendo (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199581.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Innuendo
-A2 I'm Going Slightly Mad
-A3 Headlong
-A4 I Can't Live With You(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA16C759D651387337931A76B26DAACD737D873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628375   (199452) от 23.04.2023
-
-Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофильмов (1974) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Говорите тише (Н. Рота)
-02 Пассажир под дождем (Ф. Лэй)
-03 Мужчина и женщина (Ф. Лэй)
-04 Мелодия (М. Жарр)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96368F347797398978C270F1DF0D328A7FA1B988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632482   (198677) от 10.05.2023
-
-Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hunters Of The Night
-02. Some Hearts Are Diamonds
-03. Here Comes The Night
-04. Broken Heroes(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC2BE8BC77F0BD504B809849D51FC0C00234024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221378   (198612) от 10.05.2023
-
-Bing Crosby - Бинг Кросби (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198612.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 В Спокойствии Ночи (In The Still Of The Night)
-A2 Я Мог Танцевать Всю Ночь (I Could Have Danced All Night)
-A3 Это - Великолепно (C'est Magnifique)
-A4 Попытай Счастья В Любви (Taking A Chance Of Love)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4910120AA499928A0AF10C8DFF008F5891F23D
 ```
 
 https://mybot314.ru/tekegram_catalog/

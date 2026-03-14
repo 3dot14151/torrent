@@ -1,3 +1,32 @@
+###  Публикация: 1044539   (565653) от 20.08.2016
+
+VA - Hit Explosion Relaxing & Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge, Balearic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ-Chart - Be Yourself [3:38]
+02. Alphaled - Disguise Question [2:55]
+03. Andreas Ruhula - Kotoki [6:12]
+04. DJ-Chart - We Are the Seeker [5:10](   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, BalearicПродолжительность: 04:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC1E8DF48C380B8D5C9240388C10CC87D3805F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044689   (565551) от 20.08.2016
 
 VA - Whatpeopleplay Top 100 Topseller Tracks July (2016) [MP3|320 Kbps] <Electronica, Deep House, Tech House, Techno, Minimal, House>
@@ -716,35 +745,6 @@ VA - Sex On The Beach (2016) [MP3|233-320 Kbps] <Dance, Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2F538A5DB1AB08D96F03A190592AD80DC88CA25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304711   (561268) от 27.05.2019
-
-VA - Over Records Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561268.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stan Kolev - Forethought
-002. Die Haustiere - L'isla Delle Conchiglie (Original Mix)
-003. Gar Feat. Lorraine Gray - Havana (Original Mix)
-004. Matt Dwellers - Ankaraz (Stoertebeker Remix)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 13:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD049CF52BF7657487E3AE605208546ED4A0488F
 ```
 
 https://mybot314.ru/tekegram_catalog/

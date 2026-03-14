@@ -1,3 +1,90 @@
+###  Публикация: 918851   (586006) от 16.07.2015
+
+Ida Sand - Young At Heart (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinnamon Girl
+02. Hey Hey, My My
+03. Don't Let It Bring You Down
+04. Harvest Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2AB8B31729D28662B640CB4B822D2210F09F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918758   (586005) от 16.07.2015
+
+Zoot Sims - And The Gershwin Brothers (1975) /2001, Planet/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man I Love [06:24]
+02. How Long Has This Been Going On [02:14]
+03. Lady Be Good [04:35]
+04. I've Got A Crush On You [02:57](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18EB976FFB4CDA6CC09EDCFB997C4B7134079DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552737   (585873) от 22.05.2022
+
+Sarah Vaughan - 1949 - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Mine You [3:12]
+02. I'm Crazy to Love You [3:01]
+03. Summertime [3:17]
+04. The Nearness of You [3:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D628FF0EB231698943606FA8C03C094DB151F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040750   (585568) от 06.08.2016
 
 Jimmy McGriff - The Starting Five (1986) 1990, Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -663,93 +750,6 @@ Freddie Hubbard - Red Clay (1970) 1987, CBS [APE|Lossless|image + .cue] <Hard Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E8901479E55CD28EFF970AE9F8B7C11AE551AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553356   (582960) от 25.05.2022
-
-Brad Mehldau - Jacob's Ladder (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Prog Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe as His Skies Are Wide (3:43)
-02. Herr und Knecht (Master and Slave) (7:48)
-03. (Entr'acte) Glam Perfume (5:45)
-04. Cogs in Cogs I - Dance (4:11)(   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Prog RockПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED58239D0FA1EB3B0C022C41D37A5409A283A388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553323   (582958) от 25.05.2022
-
-Chick Webb & Ella Fitzgerald - The Complete Chick Webb & Ella Fitzgerald Decca Sessions (1934 - 1941) 8CD, 2013, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582958.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dog Bottom [2:40]
-02. Jungle Mamma [3:16]
-03. Heebie Jeebies [3:11](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 09:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9BA61569CCFDE5B07E081AA19982D9AD32A0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553330   (582820) от 25.05.2022
-
-Rhoda Scott - Lady All Stars (2022) Sunset Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R&R [5:34]
-02. City of the Rising Sun [4:46]
-03. Les chateaux de sable [5:28]
-04. Laissez-moi [6:04](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Soul-JazzПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0EF68705032EDFFAAB2B16E610E32A106E12CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

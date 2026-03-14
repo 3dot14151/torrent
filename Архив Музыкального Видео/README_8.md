@@ -1,3 +1,29 @@
+###  Публикация: 502473   (259069) от 28.05.2012
+
+Влади (Каста) - Пусть Пригодится (2012) HDRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259069.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Пусть пригодится" - второй после "Сочиняй Мечты" видеоклип к альбому Влади Каста "Ясно!"Режиссер: Михаил СегалАктеры: КастаПродолжительность: 03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AD6004F64FDCCF43EF108EF6070F2104483AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501904   (258544) от 26.05.2012
 
 Felix Leiter – Elektriqa (Uncensored) (2012) [H.264/1080р] WEBRip
@@ -673,35 +699,6 @@ Chieli Minucci & Special EFX (2010) DVD5
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853934   (143163) от 29.12.2014
-
-Mountain Jam Festival - Collection 2 (2014) WEBRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connor Kennedy - Open Jam [03:50]
-02. Anders Osborne ft. Marco Benevento- I'm Ready [07:39]
-03. The Ghost of a Saber Tooth Tiger - Long Gone [05:30]
-04. Umphrey's McGee - Pay The Snucka [11:32](   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Jazz Fusion, Jam RockПродолжительность: 02:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9968EC5A6B4D0DFC385941636979839D488117C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

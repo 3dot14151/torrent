@@ -1,3 +1,148 @@
+###  Публикация: 1743852   (105304) от 19.08.2024
+
+Brian Ray - My Town (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Earth Was Round (3:46)
+02. Here For You (3:49)
+03. Got A New Thing (3:24)
+04. Bad4U (3:45)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E1E78FDDB0EA9AEA41B5322C1655686767627D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744111   (105302) от 19.08.2024
+
+Hifi Sean & David McAlmont - Daylight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Funk, Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight [00:02:54]
+02. Sun Come Up [00:03:36]
+03. Coalition [00:03:10]
+04. You Are My [00:03:21](   Читать дальше...   )Жанр: Electronic, Funk, Soul, PopПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAC1071D68599ECCCC2777C065C663D45B65078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743930   (105301) от 19.08.2024
+
+Lesibu Grand - Triggered (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, new wave, punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scary Mary [00:05:13]
+02. Hot Glue Gun [00:02:27]
+03. Ordinary Girl [00:02:51]
+04. Anarchy [00:02:20](   Читать дальше...   )Жанр: Alternative, new wave, punkПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFF1D67158A3CD8937B68A7D05C87C9C645A675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743897   (105300) от 19.08.2024
+
+Zero Digital - Timeline (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope & Despair (3:32)
+02. Sinners Win (The Poo) (3:24)
+03. Turning the Dark Legacy (3:11)
+04. Taylor Swift Pants (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7774E45548EEC801936A251877284EB206F6431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743928   (105299) от 19.08.2024
+
+ACT! - Face to Face, Day by Day (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Chill-out>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House to Hold a Comet [00:06:12]
+02. Can't Say What You Did [00:04:14]
+03. Block Stream [00:04:12]
+04. Face to Face, Day by Day [00:03:46](   Читать дальше...   )Жанр: Chill-outПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12A10AFEDDD7B7462DD48DA84360D56DD358081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743933   (105297) от 19.08.2024
 
 Richard Clapton - The Great Escape (1982) Remaster, 2024, WM Australia[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soft Rock, Classic Rock>
@@ -600,151 +745,6 @@ Delta Heavy - Midnight Forever (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EC037FDB2F702AE561104B7DEEADB75AB3F47F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744840   (105164) от 24.08.2024
-
-311 - Grassroots (1994) 30th Anniversary Edition, 2024, Volcano [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Funk Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homebrew [00:03:06]
-02. Lucky [00:02:50]
-03. Nutsymtom [00:03:01]
-04. 8:16 A.M. [00:03:45](   Читать дальше...   )Жанр: Alternative Rock, Funk MetalПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA09085993DAEE9C425AAE97C5385C19B286685B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745049   (105163) от 24.08.2024
-
-Nate Najar - Meet The Graingers (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scissors (3:57)
-02. Charm City (5:08)
-03. Every Flower, Every Raindrop (Album Mix) (3:37)
-04. Tight Rope (1:29)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628AC6D1BFC26A890CF2D8597A8391FF91365BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745046   (105161) от 24.08.2024
-
-Meital Waldmann - Between Worlds (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skylark (4:57)
-02. I Didn’t Know What Time It Was (4:40)
-03. How Deep Is the Ocean (3:31)
-04. Born to Be Blue (5:21)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EB817370E368456CFAF82DAF1E413C503D81C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745055   (105160) от 24.08.2024
-
-Peoria Jazzband - In a Jam (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Jam (4:40)
-02. St Louis Blues (3:55)
-03. Whenever You're Lonesome (3:47)
-04. Southern Sunsets (4:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606D8C485AB6ACE172BB0386B3A8248CE2C0FED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744810   (105158) от 24.08.2024
-
-Jon Anderson Feat. The Band Geeks - True (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True Messenger [00:05:49]
-02. Shine On [00:04:17]
-03. Counties And Countries [00:09:50]
-04. Build Me An Ocean [00:03:19](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A50D77A41D6B40A47F2C3E931935BF27449E82
 ```
 
 https://mybot314.ru/tekegram_catalog/

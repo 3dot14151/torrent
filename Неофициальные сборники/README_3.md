@@ -1,3 +1,90 @@
+###  Публикация: 1847645   (1052261) от 13.01.2026
+
+VA - No name compilation part 42 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Møxes - Because You Stayed
+02 - Wicked Wenches - Wild Over You
+03 - Møxes - No Pillow But Your Name
+04 - Wicked Wenches - Still Alone Tonight(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6E9834E148C796F881A095DD71CF1184F7ACB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847477   (1052229) от 12.01.2026
+
+VA - Music News For Forum vol.155 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052229.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Кристина КРИСТАЛИКА, Andy Shik - Пою про любовь я (02:22)
+ 002. 220 KID - Hold On For Heaven (03:34)
+ 003. A Cold Paradise - The Prettiest Girl On Earth (03:29)
+ 004. Achev - Килограмм сыра (02:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 17:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882F8C311F516A31E790351BB3885D44717961D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847342   (1052204) от 12.01.2026
+
+VA - No name compilation part 41 Assorted (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai, Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Сергей Грищук - Голос Безмолвия
+02 - Aurora Night - Lonely
+03 - Saidjan - Into the Wave
+04 - Bruno Mars & D Beats - Late Night Smoke(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Sunoai, Pop, Dance, OtherПродолжительность: 01:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2861FA5A2F71E9D2AAEA699DC942C9610B241EB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847043   (1051735) от 10.01.2026
 
 VA - Лучшие песни Радио DFM за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -658,93 +745,6 @@ VA - Blues compilation part 3 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B80D79FB9A66DB6B92C4C9168DA6AA4F8AC11B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845195   (1050786) от 02.01.2026
-
-Ai - No name compilation part 37 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - You're Drifting Away
-02 - Fallen
-03 - The Way You Move Me
-04 - Hidden Flame(   Читать дальше...   )Жанр: Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, AiПродолжительность: 01:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78FA0F11E941BC90C7D63C65DC10C77DB94FCF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845086   (1050785) от 02.01.2026
-
-Ai - No name compilation part 36 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - If I Knew How to Hold You
-02 - While I Was Still Yours
-03 - We Chose to Stay Burning
-04 - Don’t Say You’re Sorry Now(   Читать дальше...   )Жанр: Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, AiПродолжительность: 01:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55EBC9ED2E2734DE9BF0B357853706520B272F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845655   (1050761) от 02.01.2026
-
-Nina Blaze - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Where the Silence Sleeps
-02 - Burning for You
-03 - Poisoned Tongue
-04 - The Echo That Stayed(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C30E844AB61296CF2EEAF6689E6347475E84C02
 ```
 
 https://mybot314.ru/tekegram_catalog/

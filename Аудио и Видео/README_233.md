@@ -1,3 +1,32 @@
+###  Публикация: 1495303   (237806) от 13.10.2021
+
+VA - Fifty Shades of Lounge - 50 Smooth & Sexy Chill Tunes 4 Erotic Moments (2015) [AAC|~329 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cafe Americaine - Magical Mambo (Latin Lounge Cut) (5:24)
+02. Chillwalker - Smooth Peter (Jazzbrunch Mix) (5:21)
+03. Noise Boyz - I'm a Jazzwoman (Cooljazz Mix) (5:06)
+04. Vladi Strecker - Red Wine (Slowjazz Mix) (6:31)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 04:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65208FCC6FFDEF456B25B44430CBA87FCC88EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497410   (237800) от 13.10.2021
 
 VA - Beautiful Metamorphosis, Vol. 1 (2021) [AAC|~307 Kbps] <Downtempo, Lounge, Chill Out>
@@ -716,35 +745,6 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 2 (2015) [AAC|~323 Kbps] <Ea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F22D5379CF98E753A8AAC13C26C04C91E7722C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498957   (237525) от 14.10.2021
-
-VA - Café Deluxe Chillout - Nu Jazz / Lounge (2013) [AAC|~316 Kbps] <Easy Listening, Lounge, Nu Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marie Therese - When You Come Home (4:23)
-02. Nightzoom - So Much (Short Plugged Vocal Remix) (3:08)
-03. The Compunist - Deep Funk (4:49)
-04. Dave Neville - The Sun Is Coming (Smooth Jazz Mix) (6:47)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DC55306FEF6871BE47E7826FDFBE677F5EE468
 ```
 
 https://mybot314.ru/tekegram_catalog/

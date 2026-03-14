@@ -1,3 +1,32 @@
+###  Публикация: 1444149   (1034948) от 31.01.2021
+
+VA - Gravity Dance (2021) [MP3|320 Kbps] <Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник "Gravity Dance" в полной мере можно отнести к музыке экспериментального направления, где в построении музыкального ряда используются отстранённые голоса и звуки, синтезированный саунд и аномально растянутые ритмы. Экстремальные эмоциональные и психические состояния, галлюцинации, существование на грани запредельного – всё это вы найдёте здесь в (   Читать дальше...   )001. Richard Filtter - Sofocante
+002. Acrobotik - Nestle In
+003. Wxlter - Astral Divinity
+004. Das Butterschnitzel - Full On Love(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 09:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1327677199AA320C50D06AA977940C71FC27BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444159   (1034942) от 31.01.2021
 
 VA - A Sense Of Serenity: Lounge Mix (2021) [MP3|320 Kbps] <Lounge, Relax, Chillout, Downtempo>
@@ -716,35 +745,6 @@ VA - Liquid Symphony (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A0F39F2C372C1558B66433FFA37603231FCC974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447134   (1032101) от 12.02.2021
-
-VA - Favorable Surprise: Chill Ambiente Mix (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тотальный релакс и наслаждение, вот так можно охарактеризовать музыку сборника "Favorable Surprise". Пластинка имеет релакс атмосферу, которая буквальным образом может погрузить вас в глубокий транс. Очень положительный факт, что на альбоме, в некоторых треках, присутствует вокал, который лучшим образом внес свою лепту в разнообразие работы.001. Al-Faris - Let It All Out
-002. Temex E - Enough
-003. Mary Lattimore - Til A Mermaid Drags You Under
-004. Muzammil Yousuf - Happiness(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 07:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C399BD7E59EF4BE5EE310CC19C95DBE41AD6B44B
 ```
 
 https://mybot314.ru/tekegram_catalog/

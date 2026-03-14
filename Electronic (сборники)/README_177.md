@@ -1,3 +1,32 @@
+###  Публикация: 1080042   (290407) от 06.12.2016
+
+VA - LUXEmusic: Dance Super Chart Vol.97 (2016) [MP3|256~320 Kbps] <House, Mash Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren vs. ak9 - Ping Pong (Night & Toni Aries Mashup) 3:56
+02. Denis Rublev feat. Alex Kafer & Lera - Я у твоих ног (DJ Prezzplay Cover Mix) 4:16
+03. Eminem vs Tujamo - Without Bounce Me (Fabien Jora Mashup) 3:45
+04. 50 Cent x Anton Liss - Holy Technology (Alex Milano & Yastreb Mashup) 3:39(   Читать дальше...   )Жанр: House, Mash Up, Club, DanceПродолжительность: 03:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAE66F3530F89132A5F25EE55D3D74013FEE0B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080172   (290388) от 06.12.2016
 
 VA - Electro Life 43 (by ZiP)(2016) [MP3|320 kbps]<Electro House, Electro Progressive>
@@ -719,35 +748,6 @@ VA - Mayday 25 Years The History Of Rave (2016) [MP3|320 Kbps] <Rave, Techno, Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:058292372B168A2DCFCC710EED69B896184E8C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335505   (286183) от 03.11.2019
-
-VA - Record Super Chart 611 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286183.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) (3:25)
-2.C-BooL - Catch You (3:13)
-3.Tones And I - Dance Monkey (RMX) (4:34)
-4.SAINt JHN - Roses (Imanbek Remix) (3:58)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61EC7D0B9D14892CEB0AC43F2D90DCEE4449A92D
 ```
 
 https://mybot314.ru/tekegram_catalog/

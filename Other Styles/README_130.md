@@ -1,3 +1,146 @@
+###  Публикация: 1181326   (323361) от 07.11.2017
+
+VA - Stranger Things / Очень странные дела (Music from the Netflix Original Series) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will Byers - INTRO - Will Singing the Clash (00:27)
+02. The Police - Every Breath You Take (04:12)
+03. The Clash - Should I Stay or Should I Go (Remastered) (03:06)
+04. Jim Hopper - 'Coffee and contemplation' (00:09)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC499BD6971BBF7BD67585A7E13C4FA9CB8671E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075151   (323152) от 21.11.2016
+
+The Man from RavCon - Strange Universe (2016) [FLAC|Lossless|image + .cue] <Instrumental, Progressive-Rock, Ambient, Psychedelic>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude / Jupiter [5:38]
+02. Quasar [4:21]
+03. Strange Universe [6:11]
+04. Friday's Fugue [2:59](   Читать дальше...   )Жанр: Instrumental, Progressive-Rock, Ambient, PsychedelicПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10246C104BD129B20E2B06F7217C184AB2E655B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259200   (323050) от 02.11.2018
+
+Отава Ё - Любишь ли ты (2018) [MP3|320 Kbps] <Neo-Folk, Post-Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323050.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Как на горке, на горе
+2. Ой, Дуся, ой, Маруся
+3. Метёлки
+4. Посеяли девки лён(   Читать дальше...   )Жанр: Neo-Folk, Post-FolkПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D428DBF8A7834DA64DF0BBD139AD97FCA7AA9C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580732   (322992) от 09.10.2022
+
+VA - RELAX - Морской бриз - Звуки живой природы в сопровождении известных романтических мелодий (1999) [FLAC|Lossless|tracks] <Instrumental, Nature, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RELAX - Морской бриз - Трек 1 (30:00)
+02. RELAX - Морской бриз - Трек 2 (30:00)Жанр: Instrumental, Nature, RelaxПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0177546FD10FC943FB9B672973E786500870C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331692   (322782) от 16.10.2019
+
+VA - Игла. Remix (2010) [FLAC|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кино и Игорь Вдовин - Звезда по имени Солнце
+02. Кино и Игорь Вдовин - Дальше действовать будем мы
+03. Messer Chups - Шапито буги
+04. Игорь Вдовин и Юрий Каспарян - Дорога(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE136B9BF4EEA3E75637AA21BB08CBC855D617EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 62985   (321528) от 03.11.2020
 
 Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New Age>
@@ -601,157 +744,6 @@ Ennio Morricone - Morricone Segreto (2020) [FLAC|Lossless|WEB-DL|tracks] <Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4EEACDFF4142686D8F7872873AD1B08B6E7A326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182177   (314993) от 11.11.2017
-
-Jamie Christopherson - Stranglehold (Complete Video Game Score) (2007) [MP3|192-320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tequila's Theme (original version)
-02. Tequila's Theme (orchestral version)
-03. T'Killa Highscore
-04. Woo Bar(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABD745DC52485DCB533455230D3048A8A137A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 208992   (314859) от 01.12.2012
-
-Jesse Cook - 11 albums (1995-2012) [MP3|320 кб/с]<New age, Flamenco, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314859.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2:58) 01. I put a spell on you
-(3:19) 02. Broken Moon
-(3:00) 03. Witching hour
-(2:40) 04. Toybox
-(3:19) 05. Fields of blue
-(2:49) 06. Miles shorter
-(3:27) 07. Gone
-(4:16) 08. Ne me quitte pas
-(3:10) 09. Diminished
-(3:08) 10. The road(   Читать дальше...   )Жанр: New age, Flamenco, InstrumentalПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BCF0E63C3B0BF88930B22BEB2653681D2B62B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260232   (314575) от 06.11.2018
-
-Shaun Hopper - Lower Case Letters (2011) [FLAC|Lossless|tracks + .cue] <Acoustic, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over the Line (intro) (0:39)
- 02. Over the Line (4:36)
- 03. Miss Judy's Song (4:07)
- 04. No Steamboats (4:07)(   Читать дальше...   )Жанр: Acoustic, New AgeПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A669631A380F47C1649EAB7C954A743232B0129B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959563   (314387) от 25.11.2015
-
-Yanni - The Very Best of Yanni (2000) [FLAC|tracks+.cue]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aria (4:01)
-02. Looking Glass (6:41)
-03. In the Morning Light (3:51)
-04. Marching Season (5:37)(   Читать дальше...   )Жанр: New Age/Meditative/Relax (Lossless)Продолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B074487E6AD567A655B15296C7B221822392220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260236   (314355) от 06.11.2018
-
-Janis Ian - The Bottom Line Encore Collection (Live album) (999) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Me to You (3:29)
- 02. Night Rains (3:31)
- 03. I Would Like to Dance (3:25)
- 04. Jesse (5:54)(   Читать дальше...   )Жанр: Pop, Folk, World, CountryПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD79B9BEA89E72456E7D84C01AD5A2EAFD1CC3EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

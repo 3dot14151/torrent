@@ -1,3 +1,148 @@
+###  Публикация: 1724363   (109260) от 19.05.2024
+
+Johan Rudebjer trio - Sandkorn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandkorn (4:51)
+02. Flärken (4:19)
+03. Fred (2:39)
+04. Jazz eller hockey? (4:17)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B6E3D57362640AC68DD4E720C9A406E9535934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724364   (109257) от 19.05.2024
+
+Matthew Rotker-Lynn - Introducing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thermo (5:33)
+02. All Or Nothing At All (7:56)
+03. Edda (4:24)
+04. Oblivion (4:31)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409158A8FAD047ED7752A90C17DDB308771D1291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724257   (109252) от 19.05.2024
+
+Relaxing Jazz Music, Smooth Jazz Lounge School - London Jazz Rhythms: Jazz Relaxing Adventure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth Jazz for London Coffee Festival (4:08)
+02. Relaxing Background Music (4:07)
+03. Waltz Time (4:35)
+04. Instrumental Soul Jazz (4:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B752C325CC58165700E5A436C1CDD37F3BCCDBA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724329   (109244) от 19.05.2024
+
+Adam Hawley - Unstoppable (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unstoppable (4:12)
+02. Up On It (4:04)
+03. Absolute Love (4:02)
+04. Uptop (4:21)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E674F8AFC3409C0C75C6C475AC63884E87DD59B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724251   (109243) от 19.05.2024
+
+Phil Davis - ALIVE (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Playing Field (5:01)
+02. Three Of A Kind (4:48)
+03. Back To NOLA (4:36)
+04. RetroSpective (5:16)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02504D6EFB4D4B8ED8744A80A18B868C5B948EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724248   (109242) от 19.05.2024
 
 Lo Greco Bros - This Way To Love Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid Jazz>
@@ -600,151 +745,6 @@ Simon Lasky Group - For the Dreamers (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04E4D671A6BDEC29E8D0AD4EEA6FA4D0550601E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724738   (109084) от 22.05.2024
-
-This - Impulsive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attention, Please! (5:40)
-02. Thrill Me (4:21)
-03. I Will Never Leave You (3:31)
-04. Self-Destructive Lab (4:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070BE442D77C03CAC3474AEAECC0374EDB5FFD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724816   (109083) от 22.05.2024
-
-Moon Shot - The Power (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life is a Killer (4:06)
-02. Blackened Spiral (3:49)
-03. The Power (4:44)
-04. Arms Around Me (4:09)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC421294F8C0302C9A14C1BC147DF965213C907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724735   (109081) от 22.05.2024
-
-Rusthead - Gear Up (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Rock (5:14)
-02. Cut Like A Knife (5:01)
-03. Head Up, Head Out (3:57)
-04. Another Way Of Life (3:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29897E093FD3061EDDBE90D638C714A8F824DFB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724745   (109080) от 22.05.2024
-
-Big Special - Postindustrial Hometown Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Black Country Gothic (00:02:57)
-02 - I Mock Joggers (00:02:02)
-03 - Desperate Breakfast (00:03:11)
-04 - Shithouse (00:04:48)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5337162EDBE3056A50C243FCC5B853CA1B2E2E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725262   (109074) от 23.05.2024
-
-Lenny Kravitz - Blue Electric Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Just Another Fine Day (In This Universe of Love) (6:20)
-02. TK421 (5:27)
-03. Honey (3:50)
-04. Paralyzed (4:28)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAEBE026D6CFF565251A6261D605EB41193D8415
 ```
 
 https://mybot314.ru/tekegram_catalog/

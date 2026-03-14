@@ -1,3 +1,32 @@
+###  Публикация: 1523749   (748227) от 13.01.2022
+
+VA - NME: Best New Electro Hype (2022) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ритм дискотеки, свинговое звучание, заводные мелодии, общее настроение праздника и веселья. Одним словом - музыка для счастливых людей на треках представляемого Вашему вниманию сборника под названием "NME: Best New Electro Hype".001. Narciso & Gerundino - Woo You
+002. Digo - Minibook
+003. Max Freegrant - Stranger Things
+004. Q Lv - Ngi Chuzile(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 08:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF96472454849D299F53EFC6428BCC67B9546255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523738   (748207) от 13.01.2022
 
 VA - Best New Electro Bass (2022) [MP3|320 Kbps] <D&B, Electro Bass, Dubstep, Bassline, Jungle>
@@ -716,35 +745,6 @@ Galactic Warriors - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1087799CF53D940784A44121CE5190276B32978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524375   (744649) от 15.01.2022
-
-Various Artists - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abbsynth - Starlines
-02. Macrocosm - Retro Generation
-03. Spoonfly - Star Traveler
-04. Macrocosm - Morning in the Dark(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 03:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B788633CEFBBF6329B51264A470929D2514FBBC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

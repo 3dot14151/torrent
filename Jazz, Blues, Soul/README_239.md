@@ -1,3 +1,177 @@
+###  Публикация: 1151539   (573057) от 19.07.2017
+
+Cal Tjader - Agua Dulce (1971) 2011, BGP Records [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Cool, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agua Dulce (Cool-Ade) [04:08]
+02. Curacao [05:38]
+03. Somewhere in the Night [04:26]
+04. Gimme Shelter [02:55](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Cool, Latin JazzПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13412DF23DBBB098BA1387027B184A96894E625D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151661   (573049) от 19.07.2017
+
+Horace Tapscott - The Dark Tree (1989) 2CD, 2009, hatOLOGY [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573049.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Dark Tree [20:57]
+02. Sketches of Drunken Mary [11:33]
+03. Lino's Pad [16:46](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 02:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04BA03BD87590E77A6ABF98482680A61B79151E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151545   (573031) от 19.07.2017
+
+Rikiya Nakamura Life Is Now Trio - Frame by Frame (2016) Anido Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pust begut niukluzhe (I Play the Accordion) [04:50]
+02. Le Theme de haut pays des neiges (Theme of Land of the Snowy Mountains) [06:07]
+03. Chanson du mois de mai (Song of the Month of May) [04:24]
+04. Who's Afraid of the Big Bad Wolf [06:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD93F58F4746C9C5FDCDCB8A250B40B522189AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043453   (572994) от 16.08.2016
+
+Clark Terry - Yes, The Blues (1981) 1996, Pablo[FLAC|Lossless|image+ .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Diddlin' [08:50]
+ 02.Railroad Porter Blues [05:38]
+ 03.Swingin' The Blues [07:05]
+ 04.Marina Bay Rednecks [07:50](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D779A34A2FC043A36B14ACE017C4F7A5AC43230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234230   (572904) от 04.07.2018
+
+April Stevens - Teach Me Tiger! (1960) 2012, EMI Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It Again [2:42]
+02. Teach Me Tiger [2:25]
+03. I Want A Lip [2:35]
+04. In Other Words (Fly Me To The Moon) [2:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B7BCCC4F391B7BA33AB11CEC748C6C6F82A3AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151322   (572885) от 19.07.2017
+
+VA - SoulJazz - Get Ready! (2017) [MP3|320 Kbps] <Jazz, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ella Fitzgerald - Get Ready  2:34
+02.  The Watts 103rd. Street Rhythm Band - Papa's Got A Brand New Bag  3:19
+03.  Carola - Work Song  3:43
+04.  Eddie Harris - Listen Here  3:48(   Читать дальше...   )Жанр: Jazz, Soul JazzПродолжительность: 02:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A3C61D589BC916A8246777968671B53F7EDFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303525   (572883) от 21.05.2019
 
 Marc Cohn - Walking in Memphis (2019) [MP3|320 Kbps] <Soft-Rock, Soul>
@@ -585,191 +759,6 @@ Acme Blues Company - I Think I Made It (2006) [FLAC|Lossless]<Industrial Strengt
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528489   (571292) от 29.07.2012
-
-Brecker Brothers - Out of the Loop (1994) [FLAC|Lossless]<Jazz-Funk, Jazz-Fusion, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slang
-02. Evocations
-03. Scrunch
-04. Secret Heart
-05. African Skies
-06. When It Was
-07. Harpoon
-08. The Nightwalker
-09. And Then She WeptЖанр: Jazz-Funk, Jazz-Fusion, Crossover JazzПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043578   (571187) от 17.08.2016
-
-Martin Lechner - Somethin' Old & Somethin' New, Somethin' Else! (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby Of Birdland
-02. Valerie
-03. The Masquerade Is Over
-04. Ready Or Not(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A213AEDFF6579E70880A0DA5FCCD76C1636A8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528708   (571163) от 29.07.2012
-
-Brian Simpson - Above The Clouds (2007) [APE|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Cha Gonna Do?
-02. Juicy
-03. From the Hip
-04. Let's Get Close
-05. One More Time
-06. The Last Kiss
-07. Fiona's Song
-08. Bali Listen
-09. Above the Clouds
-10. Memories Of You(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234465   (571151) от 05.07.2018
-
-Jimmie Lunceford - 1940 - 1941 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatcha Know Joe? [2:41]
-02. Red Wagon [2:35]
-03. You Ain't Nowhere [2:56]
-04. Please Say The Word [2:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:867F6CD465C8E98F271CCA5E556F7B7C749BC984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234463   (571147) от 05.07.2018
-
-Kenny Barron Quintet - Concentric Circles (2018) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DPW [4:52]
-02. Concentric Circles [7:28]
-03. Blue Waters [5:41]
-04. A Short Journey [5:30](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B14ACE7367FDD5E3B4C8A7334A5D3F3B7C8B36E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303680   (570963) от 22.05.2019
-
-Take 6 - Iconic (2018) SoNo Recording Group [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In Love Again [4:15]
-02. Can't Stop The Feeling [4:05]
-03. Change The World [4:15]
-04. Sailing [4:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C93FE3C45E9181688386C93479F47C9B2BCD1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

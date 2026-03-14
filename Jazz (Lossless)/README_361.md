@@ -1,3 +1,90 @@
+###  Публикация: 1755539   (40158) от 16.10.2024
+
+VA - Classy Charming Luxury Light Jazz Chilly Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Begin Again (4:14)
+02. Chillaxonic - Oasis (4:58)
+03. eJazz Artistry - One Summer Night (4:01)
+04. Kool&Klean - Amazing (3:49)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57C2B916450DFD9377D207AFCE27EBC788958CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755538   (40156) от 16.10.2024
+
+VA - Charming Classy Luxury Lounge Chilly Relaxing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - It Will Rain (3:53)
+02. Chillaxonic - Oasis (4:58)
+03. Kool&Klean - Feel Again (3:53)
+04. eJazz Artistry - Letters from Home (3:58)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BAE0CB519520A235F44995D059B6625842078CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755397   (40065) от 17.10.2024
+
+Steve Lacy - Only Monk (1985) 1993, Soul Note [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evidence [3:46]
+02. Humph [3:32]
+03. Eronel [4:41]
+04. Pannonica [5:52](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C0BAB61BB7F3E11715C12EC72F6824771C450F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755808   (40062) от 17.10.2024
 
 VA - Acid Retro Soul Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
@@ -658,93 +745,6 @@ Sarah Vaughan - The Jazz Collector Edition (1940-e) 1991, LaserLight [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAF4432A174B57E04F239A09D7CE0D77E279A6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344437   (39467) от 23.10.2024
-
-Sarah Vaughan - The Essential Sarah Vaughan 1958 - 1964 (1992) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misty [3:02]
-02. It Shouldn't Happen to a Dream [3:21]
-03. Make Yourself Comfortable [2:42]
-04. All of Me [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06936928FBCC7A77C73FF96EFFC19AC80F0CFA3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756611   (39461) от 23.10.2024
-
-Gene Ludwig - Pat Martino Trio - Young Guns (1968, 1969) 2014, HighNote [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Can I Turn To? [13:41]
-02. Mr. PC [8:19]
-03. Sam Sack [12:58]
-04. Watch What Happens [9:27](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27EC513152CF9DEF119F679F3232CF0359F0497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756814   (39453) от 23.10.2024
-
-Boney James - Slow Burn (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcadia (feat. Marcus Miller)
-02. Butterfly (feat. Cory Henry & Marcus Miller)
-03. Slow Burn
-04. All I Want Is You (feat. October London)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8424142853356C969D9608574BFE13496EFB31
 ```
 
 https://mybot314.ru/tekegram_catalog/

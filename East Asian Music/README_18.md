@@ -1,3 +1,147 @@
+###  Публикация: 1597304   (166712) от 14.12.2022
+
+Moon Dancer - Moon Dancer (1979) Reissued 1997 [WavPack|Lossless|image + .cue] <Progressive Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skin Tight Snake Skin Girl  4:09
+02. Crime Of Daddy Michael  4:05
+03. Silver Wave  2:53
+04. Dreaming Children  3:57(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F40F2DB46A115A2F8710B86503B23F2D79B5025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597294   (166706) от 14.12.2022
+
+EIZO Japan - EIZO Japan 2 (2009) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Depths (Instrumental) 1:31
+02. 侍戦隊シンケンジャー (侍戦隊シンケンジャー) 3:48
+03. 機動刑事ジバン (機動刑事ジバン) 4:01
+04. ロ・ロ・ロ・ロシアンルーレット (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3A1EF9A3A7A0471E3E8AA1813BDA91BDEB6BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597296   (166688) от 14.12.2022
+
+EIZO Japan - EIZO Japan 3 (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The iron melt 1:33
+02. おジャ魔女カーニバル!! 3:50
+03. いくぜ!イッキマン!! 2:57
+04. キックの鬼 3:24(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485DC9325E6554B901CF4D5DD412564280FB35AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597298   (166670) от 14.12.2022
+
+EIZO Japan - Super anime song - Legend of the 1990's (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. STAND UP TO THE VICTORY ～トゥ・ザ・ヴィクトリー～ (機動戦士Vガンダム) 2:07
+02. FLYING IN THE SKY (機動武闘伝Gガンダム) 1:33
+03. RHYTHM EMOTION (新機動戦記ガンダムW) (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24CCE1EDF2BAE94C21504C4E4C6AD8F1E718F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597303   (166607) от 14.12.2022
+
+Marge Litch - The Ring of Truth (1992) [WavPack|Lossless|image + .cue] <Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue 3:46
+02. Rain of Tears 10:08
+03. The Haunted Woods 8:06
+04. Witch of Ice 12:06(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEB6946EE88B652829E1B2B7462D31C6C0E1BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674568   (160841) от 06.11.2023
 
 Earthshaker - Back to Nexus (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
@@ -624,162 +768,6 @@ Jiang He Shui - Water of Jangce River (2007) [MP3|128-320 кб/с]<Ethnic, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3D0CDAB17E3758247367822F8770E7FCE95F689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477850   (86337) от 04.04.2012
-
-Coldrain - The Enemy Inside (2011) [MP3|320 кб/с]<Alt. Rock / Post-Hardcore>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86337.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To Be Alive
-2. New Fate
-3. Rescue Me
-4. Adrenaline
-5. You
-6. The Maze
-7. Rise And Fall
-8. Confession
-9. A Tragic Instinct
-10. Hollow2011Жанр: Alt. Rock / Post-HardcoreПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B5CC4C34471D0795DB7ED0DB69777C587C36DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451057   (84373) от 25.03.2012
-
-AKB48 - 6 альбомов + 20 синглов (2006-2011) [MP3|320 kbps]<j-pop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84373.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011Жанр: j-popПродолжительность: 01:19:56
-01. 桜の木になろう (Sakura no ki ni narou)
-02. 偶然の十字路 (歌:アンダーガールズ) (Guuzen no juujiro (Song by: Under Girls))
-03. 黄金センター (Ougon Center)
-03a. キスまで100マイル (歌:MINT) (Kiss made no 100 Mile (Song by: MINT))
-03b. エリアK (歌:DIVA) (Area K (Song by: DIVA))
-04. 桜の木になろう (off-vocal)
-05. 偶然の十字路 (off-vocal)
-06. 黄金センター (off-vocal)
-06a. キスまで100マイル (off-vocal)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C0041D2C2599DFBE23CF69CCDF2ED39824EBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454238   (78006) от 23.02.2012
-
-Kou Shibasaki - Love & Ballad Selection (2010) [MP3|320 kbps]<JPop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: JPopПродолжительность: 1:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4879B6CDD638467EE32EF1DBC530D2E5B51FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454246   (77901) от 23.02.2012
-
-Galneryus - Kizuna (2012) EP [FLAC|Lossless]<Neo-Classical Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77901.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kizuna
-2. Owari naki, Kono Uta (New Version)
-3. Across The Rainbow
-4. Time After Time
-5. Winning The Honor
-6. Departure! (English version)2012Жанр: Neo-Classical Power MetalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 140676   (75204) от 09.02.2012
-
-Namie Amuro - 13 альбомов + 40 синглов (1995-2011) Дискография [FLAC|lossless]<JPop,JUrban,R&B,Soul,Electropop,Eurodance,Techno,House>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75204.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.'Uh Uh.....'feat.AI-03:59
-2.baby be mine-03:38
-3.'Uh Uh.....'(Instrumental)-04:01
-4.baby be mine(Instrumental)-03:38(   Читать дальше...   )Жанр: JPop,JUrban,R&B,Soul,Electropop,Eurodance,Techno,HouseПродолжительность: 00:20:20
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

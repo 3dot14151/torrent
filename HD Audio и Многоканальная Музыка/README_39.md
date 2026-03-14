@@ -1,3 +1,154 @@
+###  Публикация: 1071877   (356463) от 11.11.2016
+
+Various Artists - Le Silence (2003) [DTS 4.0|44.1/16|image +.cue|SACD] <electronic music, downtempo, ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.    Incogniddo – Sun And Water    05:39
+02.    In Credo – La Guitarra (Short Dreamtake Mix)    04:20
+03.    Skysurfer – The Ending (Short Cut)    04:30
+04.    Incogniddo – It’s A Pleasure    03:42(   Читать дальше...   )Жанр: ambientПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D9A9E993E01391D1EF8204854BB3123F7ED4A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256019   (356441) от 21.10.2018
+
+Гости Из Будущего - Ева. Полная Версия (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop, Euro House>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356441.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Intro
+A2 Люби Меня По-Французски
+A3 Он Чужой
+A4 Не Говори О Любви(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 01:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73114A96360FF284768223FF621C97B8E70469A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328786   (356126) от 03.10.2019
+
+Paul Mauriat - El Bimbo & Toccata (2019) 1975-73 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356126.jpg" />
+</div>
+
+
+###  Подробнее
+
+El Bimbo (1975)
+
+01. El Bimbo
+02. The Way We Were(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54185DDD9E953C0BE5782265D3B7F192F40F86C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 723949   (355313) от 18.11.2013
+
+Elvis Presley - Our Memories Of Elvis (1979) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Are You Sincere  2:00
+2. It's Midnight  3:20
+3. My Boy  2:55
+4. Girl Of Mine 3:40
+5. Take Good Care Of Her  2:50
+6. I'll Never Fall In Love Again  3:40
+Сторона 2
+1. Your Love's Been A Long Time Coming  2:50
+2. Spanish Eyes  2:23(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA570B4A405ABB69A5FE4F54E2857DEE7564F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952780   (353034) от 02.11.2015
+
+Roger Waters – Amused To Death (1992, 2015 Remaster) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <rock, progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353034.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.    The Ballad of Bill Hubbard    04:20
+2.    What God Wants, Part I    06:00
+3.    Perfect Sense, Part I    04:15
+4.    Perfect Sense, Part II    02:51(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F260DEAD20908F84B3601378340A23FB75B32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072526   (351827) от 13.11.2016
 
 Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Христос  суперзвезда 2LP (1991) [WavPack|192/32|tracks|Vinyl-Rip] <Classic Rock>
@@ -590,151 +741,6 @@ A4 Gotta Rock(   Читать дальше...   )Жанр: Hard RockПродол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E18421F42ED375F675BE66EDD46BB02C87E3B9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331068   (334550) от 13.10.2019
-
-Lana Del Rey - Norman Fucking Rockwell! (2019) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norman Fucking Rockwell (4:10)
-02. Mariners Apartment Complex (4:07)
-03. Venice Bitch (9:36)
-04. Fuck It, I Love You (3:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8159766C9373F2150ACA16540A87A0C748EE511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841105   (332391) от 14.11.2014
-
-Black Sabbath - Technical Ecstazy (1976)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332391.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Back Street Kids (3:52)
-A2. You Won't Change Me (6:38)
-A3. It's Allright (4:02)
-A4. Gypsy (5:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4BEA7B15F939916D64438753372157FB9114BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580202   (332013) от 30.09.2022
-
-Dolly Parton · Linda Ronstadt · Emmylou Harris - Trio (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Folk Rock, Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332013.jpg" />
-</div>
-
-
-###  Подробнее
-
-A The Pain Of Loving You
-A2 Making Plans
-A3 To Know Him Is To Love Him
-A4 Hobo's Mediation(   Читать дальше...   )Жанр: Folk Rock, Country RockПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBEFD497C47F9C6A5EB5304107AA3DBD4A89E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580161   (332009) от 30.09.2022
-
-VA - Югославская Эстрадная Музыка (1976) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332009.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Мики Евремович - Белая Хризантема
-А2 Мишо Ковач - Заря Заплачет
-А3 Оливер Драгоевич - Копакабана
-А4 Радмила Караклаич - Моя Земля(   Читать дальше...   )Жанр: Pop, Pop Rock, BalladПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A02A41D513E96BF4A8D2E4BC34F831F4224D94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955756   (330981) от 13.11.2015
-
-Евгения Лисицина (серия Органная музыка, запись 1972 г.) - И. С. Бах, М. Регер: Партиты, концерт №1 длдя органа, (1986) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330981.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Партиты На Тему "Sei Gegrüsset, Jesu Gütig" Соль Минор, В. 768
-Концерт №1 Для Органа Соль Мажор, В. 592 (И. С. Бах)
-A2	1. (Allegro)
-B1a	2. Grave(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5469122371C79B871FC2A86F23F1879DF8ED662B
 ```
 
 https://mybot314.ru/tekegram_catalog/

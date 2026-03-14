@@ -1,25 +1,25 @@
-###  Публикация: 1732545   (107470) от 25.06.2024
+###  Публикация: 1725461   (108901) от 25.05.2024
 
-Валерий Филимонов | Преподобный Серафим Вырицкий. Служба. Акафист. Житие (2023) [PDF, FB2, EPUB, MOBI, TXT]
+VA - Ibiza Spring Anthems 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107470.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В новом издании книги о преподобном Серафиме Вырицком помещены Служба преподобному и Акафист для богослужебного чтения.
-
-Житие батюшки Серафима основано на архивных и других официальных документах, на свидетельствах потомков и духовных чад.
-(   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+01. Raf Ambrosini - Feel Better (Piano Mix) [03:27]
+02. Ellise Morgan - Tell That You Love Me (Norman Jones Remix) [02:45]
+03. Mark Chapter - Body On Me (Original Mix) [03:02]
+04. The Culture Guys - You Let Me Down (Eric La Tune Remix) [02:40](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:32:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57B1F242E12ECE19A04517F35649116959F5810B
+magnet:?xt=urn:btih:14BF2CF2268E44CBA69354D78F45348D87B605E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,86 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732536   (107469) от 25.06.2024
+###  Публикация: 1725787   (108900) от 25.05.2024
 
-Сатисъ | Взыщите Господа. Из писем Святителя Феофана Затворника (2007) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107469.jpg" />
-</div>
-
-
-###  Подробнее
-
-…Ищете Господа? Ищите, но только в себе. Он не далече ни от кого. Близ Господь всем, призывающим Его искренно. Найдите место в сердце и там беседуйте с Господом. Это приемная зала Господня! Кто ни встречает Господа, там встречает Его. И иного места Он не назначил для свидания с душами.
-
-Благотворении не забывайте, и милость Божия осенит вас.
-(   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29635C7A1652E73A73297246EF7C20A043B61A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732625   (107468) от 25.06.2024
-
-Lutharo - Studio Albums (4 releases) (2018-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lutharo - канадская метал-группа основанная в 2014 году.2018 - Unleash the Beast (EP)
-2020 - Wings of Agony (EP)
-2021 - Hiraeth
-2024 - Chasing EuphoriaЖанр: Melodic Death/Power/Thrash MetalПродолжительность: 02:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C879AE85426435E987E46CF9E32F120D6CE2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732512   (107467) от 25.06.2024
-
-The Mercury Riots - In Solstice (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Blues Rock>
+The Devil Wears Prada - 2 Singles (2024) [FLAC 24/48,44.1|Lossless|WEB-DL|tracks] <Christian, Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107467.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Make It (3:44)
-02. Be Yours (3:41)
-03. LA Girls (3:23)
-04. Sweet Melody (3:35)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:35:13
+01. Ritual [00:03:43]Жанр: Christian, MetalcoreПродолжительность: 2 CD, 00:08:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF62DDC3FFA75DFF49B3FE6556AA1B1C2E044EAF
+magnet:?xt=urn:btih:04360F703713946585AFE882C2B1323F777CC0B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,109 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732542   (107466) от 25.06.2024
+###  Публикация: 1725595   (108899) от 25.05.2024
 
-Протоиерей Сергий Филимонов | Великопостный служебник (2021) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великопостный служебник был составлен в 1990-е годы, когда автор обучался в Санкт-Петербургской Духовной Семинарии и Академии. В течение ряда лет он «апробировался» в Академическом храме и в других храмах Санкт-Петербургской епархии. Первое издание служебника вышло в свет в 2005 году. Данное издание значительно дополнено, в него внесены необходимые изменения, учтены (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C32D3BA7FB34FBB687643B146FD1FA74CF90AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732530   (107465) от 25.06.2024
-
-Сатисъ | Как быть смиренным в наше время (2005) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы помним слова преподобного Антония Великого: «Все грехи мерзки пред Богом, но всех мерзостнее – гордость сердца». Но как стяжать смирение в наше время, когда все вокруг: социальные нормы, этические оценки, личностные идеалы – основаны на превозношении человеческого «я»; когда мир усердно и неустанно воспитывает в человеке самоцен и самодовольство? Н.Е. Пестов, (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D495782D8C5BEA9B59CEF7B835EEE2D7EDEE344C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732513   (107464) от 25.06.2024
-
-VA - DJ Hits Vol. 105 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Primary - 2001
-02. Daniel Amalm - Classical Gas
-03. Captain Jack - Soldier Soldier
-04. Fiesta Del Soul - Marinero(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0967008EDAFA319331CEABBC8B71B96F2805E32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732416   (107463) от 25.06.2024
-
-Mass Infection - Atonement for Iniquity (2007) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+Skeletal Throne - Barbaric Torment (2023) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107463.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Act of War
-02. Circle
-03. Forced to Encryption
-04. Decay(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:30.55
+01. The Monastery Of Death (3:36)
+02. Internal Suffocation (3:58)
+03. Burn The Cross (3:31)
+04. Black Detonation (3:50)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D687854E945532A7A52D6EFEE8748BE39BFEF9B
+magnet:?xt=urn:btih:4FD6789CB86C3C01C8629381A569F272F5270A8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732423   (107462) от 25.06.2024
+###  Публикация: 1725777   (108898) от 25.05.2024
 
-Mass Infection - The Age of Recreation (2009) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+Bloodorn - Let the Fury Rise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107462.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Enslave the Earth
-02. Furious Annihilation
-03. Savagery Incarnate
-04. Enthralled in Deception(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:32:44
+01. Overture χιϛ [00:00:52]
+02. Fear The Coming Wave [00:04:20]
+03. Under The Secret Sign [00:04:33]
+04. Rise Up Again [00:03:38](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5D475D92751FE336800ED65CBE428221B402D2D
+magnet:?xt=urn:btih:D7E3F2B2BD20B6455FA8CABC4FCD3793AAF4E3B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732430   (107461) от 25.06.2024
+###  Публикация: 1725640   (108897) от 25.05.2024
 
-Mass Infection - For I Am Genocide (2014) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+Eregion - Non Omnis Moriar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107461.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Praised By All The Entities
-02. The Scourge Of Living Forms
-03. Hierarchy Of The Highest Abomination
-04. Beholding The Throne(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:35:25
+01. Kingdom of Heaven 05:25
+02. Ride Forth 04:02
+03. The Rival Kings 03:52
+04. Battle To Carry On 05:25(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8720F8E39A828945B71E2E62ED48DEAFDAF9D66
+magnet:?xt=urn:btih:A185A7E456D3EEA1FA6FA126D1E25A17A185A1D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +140,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732491   (107460) от 25.06.2024
+###  Публикация: 1725616   (108896) от 25.05.2024
 
-Helen Humes - 1948 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Rotting Christ - Pro Xristou (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Black Metal, Dark Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pro Xristou (1:27)
+02. The Apostate (5:02)
+03. Like Father, Like Son (4:35)
+04. The Sixth Day (3:56)(   Читать дальше...   )Жанр: Melodic Black Metal, Dark MetalПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8A8183FDA038AC76985D593D34AD1C11981D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725571   (108895) от 25.05.2024
+
+Сто к одному (25.05.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108895.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Модели" против команды "Миссис"Язык озвучки: РусскийПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841DEE3502396B393C57CBCFB326ACAF69FDC59E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725768   (108894) от 25.05.2024
+
+Killus - XXV Years Feeding the Monster (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy Bible XXV [00:04:03]
+02. Satanachia XXV [00:03:27]
+03. Free XXV [00:03:25]
+04. Imperator XXV [00:03:13](   Читать дальше...   )Жанр: Industrial Metal, Alternative MetalПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B525CDB1A9BA6462332F3A38469CFD5CBAE061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725572   (108893) от 25.05.2024
+
+Alice Coltrane - The Carnegie Hall Concert (1971) 2CD, 2024, Impulse! [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107460.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Time Out for Tears [3:19]
-02. Married Man Blues [3:14]
-03. Somebody Loves Me [2:27]
-04. Don't Fall in Love with Me [3:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:56
+01. Africa [28:10]
+02. Leo [21:35]
+
+Продолжительность: 00:49:44Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:19:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79019371A894BA0BACBA1D937F8D8FDD568B2674
+magnet:?xt=urn:btih:8612EF787B3AA6BA7217157D3DEA46995173DD43
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,57 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732471   (107459) от 25.06.2024
+###  Публикация: 1725627   (108892) от 25.05.2024
 
-Leonardo979 - Overdrive Motel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overdrive Motel (3:27)
-02. Limo Voodoo (3:28)
-03. Loser (3:37)
-04. By This River (5:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94C48E9C729C56E1996C660B98B7055B390692A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732523   (107458) от 25.06.2024
-
-Mordaza - El orden del caos (2020) [FLAC|Lossless|image + .cue] <Death Metal>
+Street Panther - Muscle Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107458.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. El Hedor De La Inmundicia
-02. Amok
-03. Toro De Falaris
-04. Necropsia(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:51
+01. Barbarian (3:15)
+02. Aggro (3:16)
+03. Heathen (2:22)
+04. Flex (2:46)(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:35:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A38CF5762E21A42369F4C2A232AFE3E9E1FE68FA
+magnet:?xt=urn:btih:66A39FA31DA4538FBDFFC148BC54D267847C8652
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,28 +285,274 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732433   (107457) от 25.06.2024
+###  Публикация: 1725751   (108891) от 25.05.2024
 
-Mass Infection - Shadows Became Flesh (2018) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+Mad Hatter - Oneironautics (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oneironautics [00:01:33]
+02. Lord Of Dragons [00:02:23]
+03. Death In Wonderland [00:02:50]
+04. I Will Find My Way [00:03:36](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CEE27FE47534D3B0BDFB525D2B0FEF73BB6740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725622   (108890) от 25.05.2024
+
+The Korea - Мёд (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal, Progressive Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Правда (3:38)
+02. Голод (2:24)
+03. Культ (3:17)
+04. Не забывай дышать (2:39)(   Читать дальше...   )Жанр: Alternative Metal, Modern Metal, Progressive MetalcoreПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C2D6E678985052FF82348B606A2DA10D08FE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725974   (108889) от 26.05.2024
+
+Страна Наири (1930) WEBRip
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наири — ассирийское название «группы племён» на территории государства Урарту, на части которого теперь расположена Армения. Фильм посвящен 10-летию установления Советской власти в Армении. Фильм явился заметным явлением в армянском "немом" кино. В фильме использованы разнообразные средства: документальная съёмка, фрагменты из игровых картин, инсценировки (   Читать дальше...   )Производство: СССР / АрменкиноЖанр: документальный, история, немое киноРежиссер: Амо Бек-НазаровСубтитры: русские (интертитры)Продолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A40B9094C638D1BD2167A9CC6F6CE9FE984BD46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726007   (108888) от 26.05.2024
+
+Suck Brick Kid - The End Is What I Want (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Punk-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wrote On The Wall! Take That Society! [00:03:04]
+02. It's Okay... Probably [00:03:01]
+03. What I Do When I Blackout Is None Of My Business [00:03:06]
+04. You Can Paint Over Me But I'll Still Be Here [00:02:46](   Читать дальше...   )Жанр: Pop-Punk-RockПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49DE1AB03AC60D015B4340743EE19E8A5B979D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725788   (108887) от 26.05.2024
+
+Нужды путешественника / Yeohaengjaui pilyo / A Traveler's Needs (2024) TS [H.264] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирис любит ходить босиком, лежать на камнях и пить рисовое вино макколи. Никто не знает, откуда она родом, как оказалась в Корее, чем занималась в прошлой жизни. Чтобы подработать, Ирис начинает давать уроки французского в Сеуле — наблюдая за людьми и изучая характеры, она погружается в незнакомую культуру.Производство: Южная Корея / Jeonwonsa FilmЖанр: комедия, драмаРежиссер: Хон Сан-суАктеры: Изабель Юппер, Квон Хэ-хё, Чо Юн-хи, Ли Хе-ён, Ха Сон-гук, Ким Сын-юнПеревод: Профессиональный многоголосый (официальный) звук с TSЯзык озвучки: РусскийСубтитры: Русские (Forced, hardsub)Продолжительность: 01:27:19Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725817   (108886) от 26.05.2024
+
+Новая Битва экстрасенсов (18.05.2024) WEBRip [H.264/1080p] (сезон 24, выпуск 09)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108886.jpg" />
+</div>
+
+
+###  Подробнее
+
+24-й сезон легендарного проекта «Битва экстрасенсов». В новом сезоне участникам придётся столкнуться с тяжелыми и загадочными испытаниями, которые проверят их экстрасенсорные способности, ведь создатели внесли ряд изменений в отборочный этап. Задача скептиков и приглашенных гостей раскусить шарлатана и выгнать его с проекта. Ведущим проекта стал бессменный Марат (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281F6E6B6181F4106A3A263F5AA04D6E7D545148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725883   (108885) от 26.05.2024
+
+VA - Chillout Melodies of the Outgoing Summer, Vol. 2 (2022) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Milton, Daminika - At The Edge Of The Universe (Original Mix) (04:44)
+ 02. Moonnight, Natune - Love Wins (Original Mix) (04:07)
+ 03. Alexk - High Transition (S.a.t Chillout Remix) (04:48)
+ 04. Rayan Myers - What You Can't Have (Original Mix) (04:00)(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 01:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CAAD3A4F07506526530C1D07D3C9D8A8EC9B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725871   (108884) от 26.05.2024
+
+Временные трудности (2017) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108884.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Саши Ковалёва была врожденная болезнь. Отец мальчика выбрал, как ему казалось, единственно правильный способ поставить сына на ноги — относиться к нему как к здоровому человеку. «Ты не больной — у тебя временные трудности». Поесть, одеться, спуститься и подняться по лестнице подъезда — каждый день у ребенка уходили часы на то, чтобы справиться с простыми бытовыми (   Читать дальше...   )Производство: Россия / Enjoy MoviesЖанр: драма, МелодрамаРежиссер: Михаил РасходниковАктеры: Риналь Мухаметов, Иван Охлобыстин, Илья Рязанов, Виктория Соловьева, Ян Цапник, Ирина Пегова, Ирина Безряднова, Николай Ковбас, Ксения Суркова, Юрий ДушинСубтитры: РусскиеПродолжительность: 01:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076CE44397DF0C022272A4BBCB23A490E5A32626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725803   (108883) от 26.05.2024
+
+Сама любовь / She Is Love (2022) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказавшись лицом к лицу после более чем десятилетней разлуки, разведенные супруги Идрис и Патрисия решают вернуться к прошлому и вместе пройти по этому коварному пути, открываясь для новых начинаний.Производство: США / Signature FilmsЖанр: драма, мелодрама, комедияРежиссер: Джэми АдамсАктеры: Хейли Беннетт, Сэм Райли, Мариса Абела, Роза Робсон, Крэйг РасселлПеревод: Дублированный (Баритон) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:17:04Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725911   (108882) от 26.05.2024
+
+Marty Friedman - Drama (2024) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107457.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ominous Prevision
-02. Demise of the Almighty
-03. To the Lords of Revulsion
-04. Oath to Nothingness(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:36:55
+01. Illumination (06:37)
+ 02. Song For An Eternal Child (05:15)
+ 03. Triumph (Official Version) (05:08)
+ 04. Thrill City (04:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61A2A6F2BE9C4C04390E7D431C9FCD5A19BE0852
+magnet:?xt=urn:btih:979FD02EB747716760F5393F0C67EEE8189172E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,28 +560,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732441   (107456) от 25.06.2024
+###  Публикация: 1725891   (108881) от 26.05.2024
 
-Bottenhavet - Ljud i Tysta Rum (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+Соната для горничной (2020) WEBRip [H.264/1080p] (серии 1-2 из 2)
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107456.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Våg (4:59)
-02. Talar Miljon (5:33)
-03. Bränn Broar (4:32)
-04. Frågor Utan Svar (1:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:48
+Недвижимость в Москве... Для кого-то это мечта, а для Марины суровые будни. Она – горничная в компании, сдающей квартиры посуточно. Романтика большого города предстает перед ней с изнанки. Командировочные, меняющие девушек чаще, чем она успевает сменить простыни, скандальные туристы, оставляющие за собой чудовищный беспорядок… Вот и Игорь, который с места в карьер (   Читать дальше...   )Производство: Россия | «Свэлл Фильм»Жанр: МелодрамаРежиссер: Сергей БорчуковАктеры: Ольга Павловец, Кирилл Гребенщиков, Лариса Лужина, Андрей Карако, Ольга Рептух, Юрий Шеланков, Олеся Пуховая, Дмитрий Пустильник, Екатерина Семёнова, Полина ТимаковаСубтитры: ОтсутствуютПродолжительность: 00:44:28 + 00:45:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62F5A680BAAAC5AFA705AE21D333EC7AFC90EB30
+magnet:?xt=urn:btih:32270DE2285AF86E7818F121A99D6D9FFBF4926A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,28 +586,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732469   (107455) от 25.06.2024
+###  Публикация: 1725791   (108880) от 26.05.2024
 
-Lester Young With Count Basie - Classic Columbia, Okeh And Vocalion (1936 - 1940) 4CD, 2008, Mosaic [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+VA - Best Of Zara Taylor (2024) [FLAC|Lossless|tracks] <Trance, Vocal Trance, Electronic>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107455.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Evenin' [2:43]
-02. The World Is Mad (Pt.1) [2:40]
-03. The World Is Mad (Pt.2) [2:52]
-04. Ad Lib Blues [3:22](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 04:00:26
+01. Sunlounger & Zara Taylor - Try To Be Love (Original Mix) [3:55]
+02. Sunlounger & Zara Taylor - Lost (Original Mix) [3:27]
+03. Sunlounger feat. Zara Taylor - Found (Original Mix) [3:42]
+04. Roger Shah & Antillas & Zara Taylor - Fire (Original Mix) [3:50](   Читать дальше...   )Жанр: Trance, Vocal Trance, ElectronicПродолжительность: 01:34:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A54951842888EF2E17B0D409EFF8FC7D05A0C13
+magnet:?xt=urn:btih:8825FABEB325698F417C89C211929C6A8F7F7D88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,284 +615,104 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732468   (107454) от 25.06.2024
+###  Публикация: 1725898   (108879) от 26.05.2024
 
-John Vlasic - After the Sunset (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn One Down (3:55)
-02. Find a Way (4:36)
-03. Caught up in the Rush (3:31)
-04. The Sunset Blues (5:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738EFAD4181CD404496A219EEE8699E358985C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732492   (107453) от 25.06.2024
-
-MaxX & Love - These Blues Might Get You Too (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Train Intro (3:36)
-02. I'll Never Fall In Love (2:48)
-03. Good Time (5:45)
-04. Overture I (0:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8812B9504631D65CC8D7822E5C462F2B3C2114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732499   (107452) от 25.06.2024
-
-Motor Gypsy - Motor Gypsy II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sixteen Stories (3:28)
-02. My Ghost (4:17)
-03. Change My Mind (3:37)
-04. It's a Party (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC31E4C019A85215BFB9CF8BF301A62EB1E64EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732629   (107451) от 26.06.2024
-
-VA - DJ Hits Vol. 110 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IMF - Theme From Mission Impossible
-02. The Blue Men - X-Files
-03. 4 Ties - Chirpy Chirpy Cheep Cheep
-04. Gina G - ...Ooh Aah... Just A Little Bit(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAD6C1A9DD4E2CF8AE04581A9E1B5848FAD7522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732725   (107450) от 26.06.2024
-
-Terence Fixmer - The Paradox In Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <industrial, techno body music>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Test of the Times [00:06:04]
-02. In Synthesis [00:03:07]
-03. Razor Sharp [00:05:53]
-04. Dark Enough? [00:03:15](   Читать дальше...   )Жанр: industrial, techno body musicПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5587DE3CDC5A5D11741010552A8253B25B18248F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732773   (107449) от 26.06.2024
-
-Журнал | Профиль №23-24 (231) (июнь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535793EB38DE019F487ACE06700BDEEAD511B335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732660   (107448) от 26.06.2024
-
-Футбол. Чемпионат Европы 2024. Групповой турнир. 3-й тур. Группа D. Франция - Польша (25.06.2024) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Чемпионат Европы 2024. Групповой турнир. 3-й тур. Группа D. Франция - Польша (25.06.2024)
-СУДЬЯ Гуида Марко (Торре-Аннунциата, Италия)
-Судья на линии 1: Мели Филиппо (Италия)
-Судья на линии 2: Перетти Джорджио (Италия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0AFC34AB2C15FDBDFCE68070FC0AFCAB6B9A7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732661   (107447) от 26.06.2024
-
-Футбол. Чемпионат Европы 2024. Групповой турнир. 3-й тур. Группа D. Нидерланды - Австрия (25.06.2024) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Чемпионат Европы 2024. Групповой турнир. 3-й тур. Группа D. Нидерланды - Австрия (25.06.2024)
-СУДЬЯ Кружляк Иван (Словакия)
-Судья на линии 1: Хацко Бранислав (Словакия)
-Судья на линии 2: Позор Ян (Словакия)(   Читать дальше...   )Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E898EB5B5D6839ED61C0C05B3A7EB953E691C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732723   (107446) от 26.06.2024
-
-Glenn Marais & The Mojo Train - Red, Hot And Blue (2024) [MP3|320 Kbps] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's Where My Mojo's At (03:09)
- 02. Superfunk (04:04)
- 03. Love Denied (03:57)
- 04. Red, Hot And Blue (04:23)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F888C9B6AC97AA51F2438B2218F04DE7D3827702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732804   (107445) от 26.06.2024
-
-Firefox Browser 127.0.2 Portable by PortableApps [Ru]
+Process Lasso Pro 14.1.0.20 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107445.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7A2CDDC19322375B2FBC40D7076B770C8D6AC2E
+magnet:?xt=urn:btih:D921E2F9DCEED0EBC91491549F99F35AB1B314C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725934   (108878) от 26.05.2024
+
+Евгений Лисицин, Александр Вайс | Темный Патриарх Светлого Рода (Книга 1) (2024) [MP3, Иван Златоустов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я Гилен, Великий Дракон Пустоты, одно из сильнейших существ во вселенной. Я греюсь на звёздах и играю с чёрными дырами. Ваши боги не стоят и кончика моего когтя, а аура темнейшей силы уничтожит любого, кто осмелится приблизиться ко мне...
+Что предлагает Хранительница Разрушения? Отправиться во всеми забытую микровселенную? В процессе перехода потерять всю свою силу? (   Читать дальше...   )Жанр: Боевая фантастика, Боевое фэнтезиИздательство: ЛитРес: чтец, АвторПродолжительность: 09:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC633D3CFDC5E886533C42C865BCEE3C223B12A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725950   (108877) от 26.05.2024
+
+Оклахома, как она есть / Oklahoma Crude (1973) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108877.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1913 году Лена Дойл стала владелицей небольшого участка земли в штате Оклахома, на котором возвышается видный холм. Лена считает, что холм представляет собой купол над большой залежью нефти. Крупная нефтяная компания пытается приобрести этот участок, оказывая на неё жёсткое давление. Но она с оружием в руках защищает свои владения и одновременно ведёт разработку (   Читать дальше...   )Производство: США / Columbia Pictures, Stanley Kramer ProductionsЖанр: драма, комедия, вестернРежиссер: Стэнли КрамерАктеры: Джордж К. Скотт, Фэй Данауэй, Джон Миллс, Джек Паланс, Уильям Лакинг, Харви Джейсон, Тед Геринг, Клифф Осмонд, Рафаэль Кампос, Вудроу Парфри, Джон Хадкинс, Харви Парри, Боб Херрон ст., Генри Уиллс, Хэл СмитПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6679AD32A735C57B8A1D3798D0C46235F32AB39E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725814   (108876) от 26.05.2024
+
+Виктор Елисеев | Как заработать на своем имени (2024) [MP3, Роман Белоусов]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами пошаговая авторская инструкция Виктора Елисеева, которая поможет быстро разобраться с инструментами самомаркетинга и заставит ваше имя зарабатывать.Что такое личный бренд и в чем его сила? Каковы 10 заповедей личного бренда? Как распознать в себе сильные стороны? Как наладить нетворкинг в стиле айкидо? Как выступать перед большой аудиторией, если вы интроверт? (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 05:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADD3C1C50F5B51B8436A7B1DC3120D140E86983
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1220268   (706094) от 18.04.2018
+
+VA - Deep House Session (Vol. 2) (2018) [MP3|320 Kbps] <Deep House, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dophamean - Sunrise
+02. Styline & Stravy ft. Hoody Time - Now We Go Deep (Original Mix)
+03. Claptone Ft. Nathan Nicholson - Under The Moon
+04. Pink Noisy feat. Barrice - Orlando Dawn (Extended Mix)(   Читать дальше...   )Жанр: Deep House, ElectronicПродолжительность: 03:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C98FD613FEDBFA613211EF163EF845EF002719AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026226   (706054) от 14.06.2016
 
 VA - Trip to Ibiza 2014 - House Set For V.I.P (2016) [MP3|256-320 кб/с] <Techno-House, Funky-House, Deep-House>
@@ -725,35 +754,6 @@ VA - Midnight In Blue: Original House Mix (2017) [MP3|320 Kbps] <House, Electro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F06030E7AD3FEB4F70DC21FFC0D72B273B3D030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132381   (701144) от 09.05.2017
-
-VA - Green Therapy Music (2017) [MP3|320 Kbps] <Chillout, Lounge, Dountempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701144.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amun - Red Eyes 4:23
-002. Chill 2 U - Nightwalker 4:54
-003. Amure - Intim 5:40
-004. Crystal Morgan - Do It 5:58(   Читать дальше...   )Жанр: Chillout, Lounge, DountempoПродолжительность: 07:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01311BE6E758C9AF016FA0C67E36DD32F35C04F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1342449   (222615) от 03.12.2019
+
+VA - Rock The Stage (2019) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222615.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Foo Fighters - Win Or Lose
+002. The Chris Robinson Brotherhood - Some Earthly Delights
+003. Quitting Whitney - Coming Over
+004. Waterparks - High Definition(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E981BD03813F2BD252CF84ED6C6EF17E7DF93D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585098   (222386) от 21.10.2022
 
 VA - Halloween Stories (2022) [MP3|320 Kbps] <Rock, Hard Rock, Heavy Metal>
@@ -716,35 +745,6 @@ VA - Compilation Part 28 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF571388CD22350EBF89174AF728978EA19D451C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655142   (204551) от 25.08.2023
-
-VA - Compilation Female Assorted part 30 (2023) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaetano Pellino - Ain't No Sunshine
-02. Victoria Ginty - Every Night, Every Day
-03. Soulmate - Lie
-04. Soulmate - Set Me Free(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F4C22FEF81EE88609BCC4502AF0BE306C9F98C
 ```
 
 https://mybot314.ru/tekegram_catalog/

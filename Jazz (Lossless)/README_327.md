@@ -1,3 +1,90 @@
+###  Публикация: 1729600   (108045) от 12.06.2024
+
+VA - Jazzy Covers 90's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik - All Woman (5:23)
+02. Hotter Skank - Enjoy The Silence (2:54)
+03. Papik - Children (3:51)
+04. Danny Losito - Stop Loving Me, Stop Loving You (3:57)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 01:20:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59113C1D27A28727D7EAE5AE8F4EC9742F019922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729597   (108034) от 12.06.2024
+
+VA - Alluring Relaxing Mellow Soothing Jazz Playlist (2024) [FLAC |Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Guessing Game (4:17)
+02. Chillaxing Jazz Kollektion - Send My Love (4:08)
+03. Chillaxonic - Oasis (4:58)
+04. Konstantin Klashtorni - Let's Chill (5:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C400FB95EBB87C741009B15486764FBC913817A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729598   (108031) от 12.06.2024
+
+VA - Alluring Ultimate Mellow Chilly Lounge Enjoyable Playlist (2024) [FLAC |Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Oasis (4:58)
+02. Chillaxing Jazz Kollektion - Still Waters (4:41)
+03. Konstantin Klashtorni - Let's Chill (5:29)
+04. Kool&Klean - Guessing Game (4:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58CBB0D9161343EB219D2225547E7A03FD5DA47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729646   (108024) от 12.06.2024
 
 Jimmie Lunceford - Baby Won't You Please Come Home (1991) Double Play [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -656,93 +743,6 @@ Another 247 Production and Dayrod - Blast (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63C45AB045F56EAD9B3A814783726C4CF5138F51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731535   (107655) от 21.06.2024
-
-Sonny Rollins - Silver City: A Celebration Of 25 Years On Milestone (1972 - 1995) 2CD, 1996, Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. McGhee [4:19]
-02. Someone to Watch over Me [9:40]
-03. I'm Old Fashioned [6:27]
-04. Just Once [3:26](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC51767804287B7789617416E352124CA0B92BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731585   (107654) от 21.06.2024
-
-Jimmy Haslip, Kevin Crockett & Richard D. Ruttenberg - Cold Fusion (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swan (3:25)
-02. Charisma (3:57)
-03. Castles (0:51)
-04. Cold Fusion (4:40)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF555014011872515119A29DC7E1857B394E4DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731582   (107653) от 21.06.2024
-
-Christian Galvez - LEVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LEVE (8:46)
-02. PURE (8:53)
-03. MODAL CHANGES (7:39)
-04. FOR MINGUS (10:56)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633440A5B4BD56B273D33A1252E3B4A418B2EE6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

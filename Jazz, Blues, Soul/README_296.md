@@ -1,3 +1,177 @@
+###  Публикация: 1570455   (443030) от 17.08.2022
+
+Ronnie Earl and the Broadcasters - Mercy Me (2022) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blow Wind Blow
+02. Alabama
+03. Blues For Ruthie Foster
+04. Soul Seraching(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D973C49EB39BF4C04BADC1ACFC25DA08546BF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 706594   (442620) от 03.10.2013
+
+VA - Norway Nights (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cover Me With Snow   (3:44)
+02.  Merciful (Herbert's We Mix)   (6:02)
+03.  Bella   (5:48)
+04.  Out Here, In There   (5:45)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD40DC3A6F8C185F5ECD82EECD4C78889518C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248589   (442564) от 20.09.2018
+
+Count Basie And The Kansas City - 7 (1962) 1996, GRP Records [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh, Lady Be Good [4:42]
+02. Secrets [4:08]
+03. I Want A Little Girl [4:17]
+04. Shoe Shine Boy [4:08](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65F3708133A0D441031B7D2FC0EB0C31F8E0824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248595   (442546) от 20.09.2018
+
+Hugh Masekela - No Borders (2016) Trapeze Music [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Smooth>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shuffle & Bow [4:16]
+02. Been Such a Long Time [4:33]
+03. Shango [5:22]
+04. Congo Women [8:33](   Читать дальше...   )Жанр: Afro-Cuban Jazz, SmoothПродолжительность: 01:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F19CD5A62D4D8606A757A19D9B290E4F626094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062381   (442468) от 13.10.2016
+
+Mel Torme - Meets The British: The London Recordings 1956/1957 (2008) Sepia Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Limehouse Blues [01:55]
+ 02.A Nightingale Sang In Berkeley Square [03:32]
+ 03.I've Got A Lovely Bunch Of Coconuts [02:37]
+ 04.These Foolish Things [03:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA9F8DA9451502F44CA4046C66F93BB55FBE637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062451   (442467) от 13.10.2016
+
+Freddie Roach - Mo' Greens Please (1963) Remaster, 2005, Toshiba[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Googa Mooga [03:29]
+ 02.Baby Don't You Cry [04:10]
+ 03.Party Time [03:17]
+ 04.Nada Bossa [03:03](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B35E4AAFE4A881E970CAD047851040D8283D382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062426   (442466) от 13.10.2016
 
 Billy Strayhorn - Lush Life (1965) 1992, Red Baron[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Piano Jazz>
@@ -571,180 +745,6 @@ The Phil Woods Quartet - Warm Woods (1957) /2014, Sony Music/[FLAC|tracks+.cue]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02A9489436580950CC81DB8BE90CACE19A3EB096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944339   (440666) от 07.10.2015
-
-Leon Spencer - Bad Walking Woman (1972) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hip Shaker [03:05]
-02.Down On Dowling Street [05:01]
-03.In Search Of Love [05:00]
-04.If You Were Me And I Were You [06:04](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hammond OrganПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F755CEBED1F6EFAE13DC814223E1DE6FE9737E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409893   (440581) от 19.09.2020
-
-Linsey Alexander - My Days Are So Long (2009) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Did You Take Your Clothes Off Last Night [4:53]
-02. My Days Are So Long [4:22]
-03. I Had A Dream [5:05]
-04. I’m In Love With A Woman [5:40](   Читать дальше...   )Жанр: BluesПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CEC9EBE6E7FFEE5F995937CC4F9772EF1B1823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944442   (440519) от 07.10.2015
-
-Kim Simmonds And Savoy Brown - The Devil To Pay (2015) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Got Nobody (05:29)
-02. Bad Weather Brewing (04:32)
-03. Grew Up In The Blues (04:08)
-04. When Love Goes Wrong (04:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E335538E7A4E0EBB968ADB3928C2D38C079675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944507   (440375) от 07.10.2015
-
-VA - Music For A Bachelor's Den Vol. 7: Sex Kittens In Hi-Fi - The Blondes (1996) /DCC Compact Classics/[FLAC|tracks+.cue]<Vocal Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diana Dors - Roller Coaster Blues [02:36]
-02. Paula Castle - Why Can't I [03:02]
-03. Jo Stafford - The Gentleman Is A Dope [02:49]
-04. Helen Carr - My Kind Of Trouble Is You [03:56](   Читать дальше...   )Жанр: Vocal Jazz, Easy ListeningПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9E7F2E22CAABE730265B7CCC11E9E201A6BAE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944510   (440368) от 07.10.2015
-
-VA - Music For A Bachelor's Den Vol. 8: Sex Kittens In Hi-Fi - The Brunettes (1996) /DCC Compact Classics/[FLAC|tracks+.cue]<Vocal Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Hit the Spot - Vicky Lane [02:05]
-02. What Wouldn't I Do for That Man - Polly Bergen [04:00]
-03. Gee Baby, Ain't I Good to You - Donna Hightower [03:08]
-04. I'm Through With Love - Marlene Cord [03:30](   Читать дальше...   )Жанр: Vocal Jazz, Easy ListeningПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB38D1984A768F0797B6C6E6AF7AE55CA66192CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062667   (440116) от 14.10.2016
-
-Duke Ellington - Unknown Session (1960) 1991, Columbia[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Everything But You [03:33]
- 02.Black Beauty [03:17]
- 03.All Too Soon [03:13]
- 04.Something To Live For [02:46](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4C43045048EF6776C2D16D9717CFD76C27D90B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1765645   (101344) от 14.12.2024
+
+Katie Melua - Call Off The Search (2004) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Off the Search (3:25)
+02. Crawling Up a Hill (3:25)
+03. The Closest Thing to Crazy (4:12)
+04. My Aphrodisiac Is You (3:35)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C32365B605C496C7D84E34A638A64D04F9E15D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765776   (101332) от 14.12.2024
+
+J.J. Johnson - J.J. Johnson's Jazz Quintets (1946 - 1949) 1992, Savoy Jazz [FLAC|Lossless|image + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jay Bird [3:01]
+02. Coppin' the Bop [3:02]
+03. Jay Jay [3:08]
+04. Mad Be Bop [2:44](   Читать дальше...   )Жанр: BopПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA81AE7DCDFE44ACB50662CD73A7D5CC1D10D85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766239   (101268) от 17.12.2024
+
+VA - The Blue Giants: Live At Groove Now (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mike Zito -- Funky Mama (Live) (5:24)
+02.Mike Zito -- Love Her With A Feeling (Live) (8:18)
+03.Mike Zito -- Every Day I Have The Blues (Live) (6:17)
+04.Mike Zito -- Texas Flood (Live) (9:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032C497361A555D62D044C377DBE70091A25E8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766632   (101252) от 19.12.2024
+
+Mick Clarke - Dirty Work (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Work (4:16)
+02. Walking Doctor Bill (3:07)
+03. Just Dropped In (4:13)
+04. Gonna Miss You Like the Devil (3:00)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CEC68BFC80016BC9D33BE0D0AFCA7D3C52B7DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766617   (101247) от 19.12.2024
+
+JoJo Meerstal - Blues from Belgium (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonshine Dreams (3:22)
+02. Route 65 Blues (3:11)
+03. By The River (2:51)
+04. Cotton field Groove (3:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A469CF29B11F500A64E85FA200118A7DA34293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766608   (101245) от 19.12.2024
+
+Hard Shine - Next Best Thing (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bootstraps (3:11)
+02. Gone (4:01)
+03. Daddy O (2:38)
+04. Next Best Thing (2:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE4856CFCAAFE1CB0D3915DA4C0BC0B6A3C606C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766520   (101243) от 19.12.2024
 
 The Oscar Peterson Trio - Another Day (1970) 2024, MPS [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -571,180 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:724E4CBB4AF5474CF1F6B6BEB72D832033FDA115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768150   (101140) от 24.12.2024
-
-Bluesblocket - Potatismos & Skandinavisk Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. POTATISMOS OCH SKANDINAVISK BLUES (4:09)
-02. BLUES ÄR INTE GRATIS (5:24)
-03. DJÄVULEN I FLASKAN (4:20)
-04. EN MAN SOM HETER LASSGÅRD (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C57D743835A6D0D509D3E9EE79F06E275032771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768155   (101139) от 24.12.2024
-
-Brad Gillies - Juxtapose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting & Hoping (3:41)
-02. Waltz & Sway (3:54)
-03. Mark Jeffrey (3:00)
-04. La Groove (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C456CAFCC35039B157757C600CC56171C4CE3C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768157   (101138) от 24.12.2024
-
-Dave Williams - Disciple (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Messiah (3:32)
-02. His Blood Can Make You Whole (3:48)
-03. No Pain No Gain (3:24)
-04. Put Your Trust in Him (7:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D18E47EF05CA36AF2E0AB37EA90F7F3F61B97B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768149   (101137) от 24.12.2024
-
-Blues For Comfort - Good Blues Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Blues Tonight (3:42)
-02. Back at the Chicken Shack (3:20)
-03. Do What You Want (3:13)
-04. It's Love Baby (24 Hours a Day) (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF007C9581643B37FEB19D59AAD96F9EDAE10D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768154   (101136) от 24.12.2024
-
-Blurred Edge - Volume: 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Too Early to Be Too Late (5:21)
-02. China Town (4:08)
-03. Ain't I Been Good to You? (3:54)
-04. Cold Inside (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7543E25DB61CADA7EEB8850508514D6E43224C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768163   (101135) от 24.12.2024
-
-John G Willis - Misfortune Cookie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Sarah Says (3:57)
-02. Hope (4:15)
-03. You Can't Get It Wrong (3:35)
-04. 20 Days (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C37F37DC367BCD704C74C5155921682F06137DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

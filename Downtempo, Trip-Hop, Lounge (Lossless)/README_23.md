@@ -1,3 +1,61 @@
+###  Публикация: 1638566   (211918) от 09.06.2023
+
+VA - Chillout Spring Gems 2023: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beamy - Lazy Daze (4:34)
+02. Martin Hiska - Sun People (6:24)
+03. Fake and True - Seas of Passion (5:04)
+04. Five Seasons - Places That You Love (5:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87D2CA6115AD379323BFC109A64000E0716181B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641594   (210668) от 23.06.2023
+
+VA - Relaxing Melodies: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Close Encounters (Original Mix) (4:10)
+02. Michael E - Infinite Beauty (Original Mix) (4:54)
+03. Martin Hiska - Circles (5:35)
+04. Beamy - Gawain (4:00)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217278204B7A5F14BA57E666A96C790E70670C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642258   (210517) от 26.06.2023
 
 Sex Music Zone - Orgasm after Orgasm: Seductive Chillout (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge>
@@ -687,64 +745,6 @@ VA - Chillout Autumn Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6BD6A22D491D3378CFCB3C2D5CAE5A3F8F2FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590155   (189410) от 12.11.2022
-
-Jay-Jay Johanson - Labyrinth (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Labyrinth (4:11)
- 02. Labyrinth (Vocal Dub Version) (4:22)
- 03. The Maze (Tomas Nordmark Labyrinth Rework) (8:38)
- 04. Paris 2 (3:32)(   Читать дальше...   )Жанр: Alternative Pop, Trip-Hop, DowntempoПродолжительность: 00:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1B8869AB986CCD379A16CDFF4201FEFCE6DC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590449   (188835) от 14.11.2022
-
-Jay-Jay Johanson - Best of 1996-2013 (2013) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris (3:18)
- 02. It Hurts Me So (Radio Edit) (4:14)
- 03. So Tell the Girls That I Am Back In Town (Radio Edit) (3:50)
- 04. The Girl I Love Is Gone (3:42)(   Читать дальше...   )Жанр: Alternative Pop, Trip-Hop, DowntempoПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195C0B732EB7A78D6442713D85DC9CF084034584
 ```
 
 https://mybot314.ru/tekegram_catalog/

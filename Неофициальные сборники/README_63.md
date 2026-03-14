@@ -1,3 +1,90 @@
+###  Публикация: 1088471   (955145) от 01.01.2017
+
+VA - Discoteka 2016 Dance Club. New Year's release (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ferrazzy - One More Time (Radio Edit) 3:39
+002. Thomas Gold Ft. Jillian Edwards - Magic (Original Mix) 2:51
+003. R3HAB & Skytech - Everything (Extended Mix) 4:15
+004. David Guetta & Cedric Gervais Ft. Chris Willis - Would I Lie To You (Extended Mix) 4:48(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E79F4562AB44C9DF5812192280076B1F8580F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361301   (955129) от 19.02.2020
+
+VA - Дискотека 2020 Deep House - The Best Vol.7 от NNNB (2020) [MP3|320 Kbps] <Deep House, Nu Disco, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diego Power - Don't Look at Me (Original Mix) (5:08)
+02. Serge Legran - Love me like crazy (4:19)
+03. TRITICUM - Waiting For (Original Mix) (3:06)
+04. A. Rassevich, Susie Johnson - The Dice (5:13)(   Читать дальше...   )Жанр: Deep House, Nu Disco, OtherПродолжительность: 38:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67076521951D0D0F6C9FECDA807B75355E192AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088808   (955069) от 01.01.2017
+
+VA - Record Dance Label: Compilation Vol.7 (Christmas Edition) (2017) [MP3|320 Kbps] <House, Melodic, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slider & Magnit - Another Day in Paradise 3:03
+02. DJ Feel & Aelyn - Где ты 3:25
+03. Макс Корж - Бессонница (Swag Time Show Remix) 2:49
+04. Марсель & JuicyTrax - По небу 3:41(   Читать дальше...   )Жанр: House, Melodic, Dance, ClubПродолжительность: 02:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:044AE027BECEA8CBAAE49E9BA597D6D854F787CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088896   (955061) от 01.01.2017
 
 VA - Piano Collection (2017) [MP3|320 Kbps] <Classical, Piano>
@@ -658,93 +745,6 @@ VA - Полный отрыв. Зимние хиты. Сборник № 2 (2016)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A0B47675C23BAB17282D65019009AC5610791DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088930   (953892) от 02.01.2017
-
-VA - Space Rift: Original Deep House Mix (2016) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953892.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A2A - Nothing 2 Lose (The Other Mix) 6:33
-002. Accurate - Give Me A Bassline 5:14
-003. Accurate - Move 6:31
-004. Acr - What Happiness 6:49(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1BB28C1C79E81F9BC06939E361A5312F5EF7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088946   (953882) от 02.01.2017
-
-VA - Bright Moments: Chillout Compilation (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953882.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bes & Meret - Ko Samui Nights 4:20
-002. Satellite Soul - Red - Original Version 4:19
-003. Agent Juno - Sunstorm - Soundtrack Version 4:03
-004. Lazy Hammock - Fading Into Oblivion - Original Mix 5:55(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 08:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B80FBBB3CFBC557EF69F354AC26F7621C270515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088794   (953870) от 02.01.2017
-
-VA - Новогодний ресторан Шансона Выпуск № 7 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953870.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виктор Калина - Дочка 4:09
-002. Андрей Иванцов - Нет Худа Без Добра 3:36
-003. Андрей Таныч - Раб Судьбы 3:02
-004. Сборная Союза - Самообман 3:38(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52ED7C81CB3C546448ECB9A6FD9B1332AF44E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

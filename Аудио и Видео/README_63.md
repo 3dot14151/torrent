@@ -1,3 +1,32 @@
+###  Публикация: 1507534   (798403) от 04.11.2021
+
+ABBA - Voyage (2021) [AAC|~325 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Have Faith in You (5:09)
+02. When You Danced With Me (2:50)
+03. Little Things (3:08)
+04. Don’t Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B81F04DABC653CF6DFEDE8C3113617187FF387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507631   (798318) от 05.11.2021
 
 VA - Midnight Hours: Urban Chillout Vibes (2021) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
@@ -713,35 +742,6 @@ VA - Bar Essentials, Vol. 3 (2020) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2694935749C0357E44FA79D2BCCDD7D2088F8EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508196   (798016) от 07.11.2021
-
-VA - Chilling Winter Best Playlist (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aktnuance - Beautiful Beginning (5:53)
-02. Habermohl - An Immense Feeling (5:44)
-03. Performative Mode - Morning Air (6:24)
-04. Cesar Martinez Ensemble - Sol y Sombra (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476D92F955DBC2EE18464B45BC943248E9A6C399
 ```
 
 https://mybot314.ru/tekegram_catalog/

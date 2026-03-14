@@ -1,3 +1,61 @@
+###  Публикация: 1786563   (68960) от 21.03.2025
+
+VA - Ori Uplift - Uplifting Only Episode 632 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victor Special - Oriental Way (Intro Mix)
+02. Ciaran McAuley - Permission To Exhale (Uplifting Mix)
+03. Avenger - Orca (New World Remaster) (Orchestral Uplifting Classic)
+04. tranzLift - G-String Air(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9865ECF195C50909C919F2F5736AB46973F1A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787957   (68651) от 28.03.2025
+
+VA - Armin van Buuren - A State Of Trance 1218 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Rob Swire - Sound Of You (Tune Of The Week)
+02. EDX - Cobalt
+03. BLR & Amber Revival - Love Me Endless
+04. Jochem Hamerling - Tofino(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DFFDE72CD8A6A1D1AC3B648C82E86EF5963F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787974   (68617) от 28.03.2025
 
 VA - Ori Uplift - Uplifting Only Episode 633 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -687,64 +745,6 @@ VA - Ori Uplift - Uplifting Only Episode 642 (2025) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65C4190F442D9FCF5995AE6D49D6ED7E2DB8A5EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799835   (66369) от 30.05.2025
-
-VA - Armin van Buuren - A State Of Trance 1227 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Morgan Page x Will Sparks - The Longest Road Ahead
-02.	Tim Clark – Forever
-03.	Evoxel – Orion (Progressive Pick)
-04.	TH;EN - My Head(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFF01CE7CB9CAEAF239386013F2D8212EFA0523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801014   (66269) от 07.06.2025
-
-Markus Schulz - Global DJ Broadcast World Tour, Epic Club Prague, Czech Republic (2025-06-05) [MP3|320 Kbps] <Trance, Techno, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KRISPR - The Angel Full of Eyes
-02. Kölsch & Kevin de Vries - Masterplan
-03. Massano - System
-04. Markus Schulz presents Dakota - Kanan(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 02:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8DA076E528F06D2214C772CDB90586B3ED3375
 ```
 
 https://mybot314.ru/tekegram_catalog/

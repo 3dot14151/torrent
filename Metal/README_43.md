@@ -1,3 +1,38 @@
+###  Публикация: 482787   (670202) от 14.06.2012
+
+Paradise Lost - 1 Album + 1 Compilation (2012) [MP3|320 кб/с]<Gothic/Doom/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа была основана в 1988 в городе Галифакс в Великобритании. Названием для группы послужила одноименная поэма Джона Милтона. Группе потребовалось записать всего две демо-ленты, чтобы получить контракт на полноценный альбом. В конце 1989 года группа заперлась в ныне легендарной Academy Studios, результатом чего стал дебютный альбом "Lost Paradise" 1990 года, он отличался тяжелым звучанием, медленным темпом композиций, мрачной атмосферой и гроулингом вокалиста Ника Холмса. Он мгновенно стал стал самым продаваемым релизом Peaceville Records, и группа отправилось в европейское турне на разогреве у дэт-метал-группы Autopsy.01. Our Saviour
+02. Eternal
+03. As I Die
+04. True Belief
+05. Hallowed Land
+06. Say Just Words
+07. Nothing Sacred
+08. Mouth
+09. Erased
+10. Forever After(   Читать дальше...   )Жанр: Gothic/Doom/Death MetalПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535968   (669242) от 15.03.2022
 
 Within Temptation - The Heart Of Everything (2007) 4CD, 2022, Special Edition [MP3|320 Kbps] <Sympho Gothic Metal>
@@ -737,35 +772,6 @@ Nekrogoblikon - Heavy Meta (2015) [MP3|~275 кб/с]<Melodic Death Metal, Folk M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42AB19A4AE6328B807DA8814A21684A651174F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539078   (659232) от 24.03.2022
-
-Almach - Dream Elegy (2021) [MP3|320 Kbps] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Adraskan (00:01:38)
-02 - Dream Elegy (00:09:27)
-03 - Kandahar (00:09:18)
-04 - Death Is An Illusion (00:06:40)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F541D8F7B8DA4B180AFC616A12A5A4631F1E5012
 ```
 
 https://mybot314.ru/tekegram_catalog/

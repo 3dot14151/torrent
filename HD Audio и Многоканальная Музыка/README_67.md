@@ -1,3 +1,148 @@
+###  Публикация: 1668137   (173817) от 12.10.2023
+
+Чёрный Кофе - Пьяная Луна (1996) Unofficial Release [FLAC 2.0|24/48|image + .cue|MC-Rip] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+A1 Где-то В Слезах
+A2 Ветер
+A3 Белая Ночь(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194072   (173783) от 23.12.2017
+
+Creedence Clearwater Revival - 1968-1969 (1978) 2LP [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_173783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Creedence Clearwater Revival
+A1. I Put A Spell On You (4:35)
+A2. The Working Man (3:05)
+A3. Suzie Q (8:39)(   Читать дальше...   )Производство: Fantasy Records - BLS 5570Жанр: RockПродолжительность: 01:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFCC2E0C2D272E01C5CF01265553FCC60E3C261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827122   (173410) от 20.10.2025
+
+Seal - Studio Albums (10 releases) (1991-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pop, Soul, R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seal - (Henry Olusegun Adeola Samuel) - британский певец и автор песен, обладатель трёх музыкальных премий «Грэмми» и трёх наград Brit Awards.1991 - Seal
+1994 - Seal II
+1998 - Human Being
+2003 - IVЖанр: Pop, Soul, R&BПродолжительность: 10:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77414652581AC4BA03506BA37F740B9E191C9BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668636   (173254) от 14.10.2023
+
+Creeper - Sanguivore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Britpop, Glam Rock, Pop-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Further Than Forever [00:09:12]
+02 - Cry To Heaven [00:04:27]
+03. Sacred Blasphemy [00:02:53]
+04. The Ballad Of Spook & Mercy [00:04:39](   Читать дальше...   )Жанр: Britpop, Glam Rock, Pop-PunkПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109DB72A78EA07353095D050C9A286819F0028A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668647   (173252) от 14.10.2023
+
+Heavy Load - Riders of the Ancient Storm (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride the Night (5:22)
+02. We Rock the World (4:15)
+03. Walhalla Warriors (5:49)
+04. Angel Dark (6:15)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A637EE4A81931B8EE695C7312B1120A87CF4ABE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668642   (173251) от 14.10.2023
 
 The Vintage Caravan - The Monuments Tour (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Classic Rock, Progressive Rock, Hard Rock>
@@ -594,151 +739,6 @@ A4 The Roads To Iliad (Instrumental)(   Читать дальше...   )Жанр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C9ECF181107B420F04BB08026294B065A36FCAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669476   (172644) от 17.10.2023
-
-Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipped] <Indie Rock, Dream Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172644.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Takedown (00:03:33)
-✧ 02 - Summer Slaughter (00:04:04)
-✧ 03 - Bianca (00:04:12)
-✧ 04 - Bone Dry Dunes (00:03:23)(   Читать дальше...   )Жанр: Indie Rock, Dream PopФормат: PCM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0EF62DE8E88FA13753CA465DF20F32333DA12F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598626   (172602) от 17.10.2023
-
-Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ронни Аткинс (имя при рождении - Пол Кристенсен, 16 ноября 1964 года) - датский певец, наиболее известный как соучредитель, ведущий вокалист и основной автор песен хэви-метал группы Pretty Maids2021 - One Shot
-2021 - 4 More Shots (The Acoustics) (EP)
-2022 - Make It Count
-2023 - TrinityЖанр: Hard Rock, Heavy MetalПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D67D9705AEE695FE8DEBAE596892AD2401AAE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669555   (172592) от 17.10.2023
-
-Guns N' Roses - Studio Albums (4 releases) (1991-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Guns N’ Roses — американская хард-рок-группа, сформировавшаяся в 1985 году в Лос-Анджелесе, штат Калифорния.1991 - Use Your Illusion I
-1991 - Use Your Illusion II
-1993 - The Spaghetti Incident
-2008 - Chinese DemocracyЖанр: Hard Rock, Heavy MetalПродолжительность: 00:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B782358CD196C28E1086295ACB91B7C98B18E967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670192   (172337) от 19.10.2023
-
-Ice Nine Kills - Welcome To Horrorwood: Under Fire (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Post-hardcore, Alternative-metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Night… (0:43)
-02. Welcome To Horrorwood (3:55)
-03. A Rash Decision (3:31)
-04. Assault & Batteries (3:28)(   Читать дальше...   )Жанр: Metalcore, Post-hardcore, Alternative-metalПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9695C2B35A8B9D12E9FAC332AA04EAB001F39A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669873   (172323) от 19.10.2023
-
-Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <House, Dance-Pop, Indie-Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romy - Loveher (03:49)
-02. Romy - Weightless (04:29)
-03. Romy - The Sea (03:11)
-04. Romy - One Last Try (02:42)(   Читать дальше...   )Жанр: House, Dance-Pop, Indie-PopПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A29B53BACA6D81B5E0D1A6CAA16759F87F2DF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

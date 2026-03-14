@@ -1,3 +1,148 @@
+###  Публикация: 737957   (150063) от 26.12.2013
+
+David Arkenstone - Ambient World (2011) 2CD [FLAC|Lossless]<New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tunnels - 5:42
+02. Water Birth - 7:40
+03. Off the Map - 7:02
+04. Star Fall - 8:32(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B6C19357E0AF89DB23037D13D23F8844DBEFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271573   (150010) от 23.12.2018
+
+VA - True Romance: Motion Picture Soundtrack (1993) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop Rock, Romantic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer - You're so Cool (03:40)
+02. Charlie Sexton - Graceland (03:25)
+03. John Waite - In Dreams (03:45)
+04. Charles & Eddie - Wounded Bird (05:10)(   Читать дальше...   )Жанр: Country Rock, Pop Rock, Romantic, Modern Classical, Soundtrack, Techno, Downtempo, Arena RockПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F396B8AE421B8B04A233C29CD11037D89E66712E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968796   (149998) от 25.12.2015
+
+Rammstein - Klavier (2015) Piano Version [FLAC|Lossless|tracks + .cue] <Acoustic, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein выпустили акустический альбом «Klavier». В него вошли 13 композиций из шести ранее вышедших альбомов группы. P.S. Голоса нет (только музыка).01. Fruhling in Paris
+02. Feuer und Wasser
+03. Nebel
+04. Sonne(   Читать дальше...   )Жанр: Acoustic, PianoПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:801C9AB7C6FB7BFD10F330B3F8FF1B097DE64144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677895   (149097) от 19.11.2023
+
+Heilung - Drif (2022) [FLAC|Lossless|Web-DL|tracks] <Neofolk, Dark Folk, Experimental>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asja (5:17)
+02. Anoana (4:57)
+03. Tenet (13:05)
+04. Urbani (2:55)(   Читать дальше...   )Жанр: Neofolk, Dark Folk, ExperimentalПродолжительность: 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9366EA2B2625DEBFFE3B9B31257764B12F16D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969212   (148968) от 26.12.2015
+
+Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Dew (08:32)
+02. Transformation Part 1 (07:26)
+03. Cathedral of Trees (07:10)
+04. Wanderer (09:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0865C08EBF727F0518B7E6C110E9EF18EF06B65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271440   (148693) от 24.12.2018
 
 VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
@@ -603,148 +748,6 @@ Yamamoto - Wellness For Your Body (2003) [FLAC|Lossless|tracks + .cue] <Meditati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B65FB830E55BED4853F150E1519FE41A966E776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271994   (145722) от 26.12.2018
-
-Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] <Trailer Music, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiery the Angels Rose (01:34)
-02. Thunderborn (02:03)
-03. Dragon Rider (02:21)
-04. Iron Poetry (feat. Kate St. Pierre) (03:09)(   Читать дальше...   )Жанр: Trailer Music, SoundtrackПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4097A10E506D618BA14C620EC1FDBA9B410AD927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969718   (145498) от 28.12.2015
-
-Paul Hardcastle - Jazzmasters VI (2010) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening Thoughts - 1:36
-02. Touch And Go - 4:34
-03. One Chance - 3:34
-04. Cloud Watching - 5:29(   Читать дальше...   )Жанр: Smooth Jazz, New AgeПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34824419F94730AF1CC10E1617E55BD5D4EAC1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637099   (145471) от 27.12.2020
-
-Ennio Morricone - Svegliati E Uccidi & Sacco E Vanzetti (2003) [MP3|320 Kbps] <Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Easy Listening, InstrumentalПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2348BD690AF7A4E8D94FC27E7D564DC5634936A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969136   (145322) от 28.12.2015
-
-VA - Асса (1987) [MP3|320 кб/с] <Rock, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Густав Гурьянов - Соло на барабанах (00:58)
-02. Юрий Чернавский и Весёлые ребята - Здравствуй, мальчик Бананан! (06:54)
-03. Борис Гребенщиков и Аквариум - Иду на ты (02:24)
-04. Александр Синицын и Союз композиторов - ВВС (06:39)(   Читать дальше...   )Жанр: Rock, SoundtrackПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E28FBA997018AED3EC0A0718D4845EE12B4D1C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271812   (145285) от 26.12.2018
-
-Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vardlokk (02:07)
-02. Skald (02:01)
-03. Ein Sat Hon Uti (04:06)
-04. Voluspá (Skaldic Version) (06:20)(   Читать дальше...   )Жанр: Folk Ambient, Dark AmbientПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68E488CD0EAA05C9F4634FD1F7E313D2F08E4EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

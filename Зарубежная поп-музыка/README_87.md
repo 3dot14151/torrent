@@ -1,3 +1,61 @@
+###  Публикация: 1748210   (104548) от 10.09.2024
+
+VA - DJ Hits Vol. 363 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clueless - Don't Speak
+02. Party Jam - Don't Stop The Music
+03. N. E. O. N. - Living In The Jungle
+04. Rytmica - Swing Da Thing(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D26498D5C8D5E2A34050D002BC12F7D076B68B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748472   (104547) от 10.09.2024
+
+VA - DJ Hits Volume 777 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat System - What's Going On (In Your Mind)
+02. Amen U.K. - Passion
+03. Celvin Rotane - Back Again
+04. U 96 - Seven Wonders(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBE48B644BA1AE6189817CBE089FE2BE76B52EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748224   (104542) от 10.09.2024
 
 VA - DJ Hits Vol. 401 (1997) [OGG Vorbis|480 Kbps] <Electronic,  Euro House, Eurodance>
@@ -750,76 +808,6 @@ Mozzart - Money (The Maxi-Singles Collection) (2007) [MP3|320 кб/с]<Italo-Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7324F465B5D9345752CDDB6CF5052726E12ECB65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476334   (85505) от 31.03.2012
-
-Samantha Fox - Greatest Hits (2009) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85505.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-Продолжительность:01:14:30
-01.Touch Me (I Want Your Body) (3:47)
-02.Do Ya Do Ya (Wanna Please Me) (3:49)
-03.Im All You Need (3:59)
-04.Nothings Gonna Stop Me Now (3:44)
-05.I Surrender (To The Spirit Of The Night) (3:57)
-06.I Promise You (Get Ready) (3:53)
-07.True Devotion (4:35)
-08.Naughty Girls (Need Love Too) (3:23)(   Читать дальше...   )2009Жанр: PopПродолжительность: 02:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B42B7AB9E76F6568E33D98D4A336DB9E0502C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474335   (84921) от 28.03.2012
-
-Beverley Craven - Promise Me - The Best Of Beverley Craven (2011) [MP3|320 кб/с]<Pop, Lounge>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promise Me
-02. Joey
-03. Woman To Woman
-04. Holding On
-05. Memories
-06. Two Of A Kind
-07. Missing You
-08. Love Scenes
-09. Mollie s Song
-10. Love Is The Light(   Читать дальше...   )Жанр: Pop, LoungeПродолжительность: 01:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14A701E96B50F435CED8CDFF134222102DF2E89
 ```
 
 https://mybot314.ru/tekegram_catalog/

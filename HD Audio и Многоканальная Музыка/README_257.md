@@ -1,3 +1,148 @@
+###  Публикация: 1815342   (5319) от 29.08.2025
+
+Evocatus - Inevitable Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Into Everlasting Night (00:56)
+ 02 - Serpent of Chaos (04:23)
+ 03 - The River Styx (03:09)
+ 04 - ...And Die in My Name (05:35)(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204E195516EF644DBA5095E9C13F1413FAAC12D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815330   (5318) от 29.08.2025
+
+Rory Block - Heavy On The Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi Heel Sneakers
+02. Walking The Back Streets
+03. What Kind Of Woman Is This
+04. Hold To His Hand(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476CDAAEC693BBA9458A8DA331EF250565F9C539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815338   (5317) от 29.08.2025
+
+Rising Steel - Legion Of The Grave (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Betrayer (04:31)
+ 02 - King Of The Universe (03:58)
+ 03 - Black Martin (05:28)
+ 04 - Legion Of The Grave (03:34)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFDC78F57E11D384911DBDAEE38A4BFD00D3F7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815350   (5316) от 29.08.2025
+
+Dragonsfire - Rebirth of the Beast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - We Ride (04:36)
+ 02 - Speak of War (04:10)
+ 03 - Hungry Beast (2025 Version) (04:59)
+ 04 - Preacher (04:28)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BEFDB2C4B0D72C925C47E4146D734F22592039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674198   (5233) от 30.08.2025
+
+Chuck Schuldiner (Death; Control Denied; Voodoocult; Naphobia) - Studio Albums (12 releases) (1987-1999) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарльз Майкл «Чак» Шульдинер (Charles Michael «Chuck» Schuldiner; 13 мая 1967 года, Глен-Ков, штат Нью-Йорк, США — 13 декабря 2001 года, Олтамонт-Спрингс, Флорида, США) — американский музыкант, наиболее известный как основатель, гитарист, вокалист, автор песен дэт-метал-группы Death, созданной в 1983 году под названием Mantas. В 1996 году основал группу Control Denied. (   Читать дальше...   )1987 - Scream Bloody Gore
+1988 - Leprosy
+1990 - Spiritual Healing
+1991 - Human(   Читать дальше...   )Жанр: Death/Thrash MetalПродолжительность: 08:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF528BB3CC24792612A6287CD657FECFA3EF7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800879   (5181) от 30.08.2025
 
 Green Day - Saviors (2024) edition de luxe, 2025, Reprise [FLAC 24/48, 24/96|Lossless|WEB-DL|tracks] <Punk, Alternative Rock, Indie Rock, Rock>
@@ -600,151 +745,6 @@ Ghosts of Sunset - California Girl (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BED565EB117376FD77CB0BBC10883B3E2A52A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815923   (4768) от 01.09.2025
-
-Maria Muldaur - One Hour Mama: The Blues of Victoria Spivey (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Handy Man (2025 Remaster) (3:59)
-02.  What Makes You Act Like That? (3:23)
-03.  Don't Love No Married Man (3:52)
-04.  Dreaming of You (2:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CF1BF962B4B2A1C8E015FE7C1D772E7A611EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742701   (4658) от 02.09.2025
-
-Insania (a.k.a. Insania Stockholm) - Studio Albums (6 releases) (1999-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Insania - шведская метал-группа из Ярфеллы, основанная в 1992 году Микко Корсбеком и Хенриком Юхано.1999 - World Of Ice
-2001 - Sunrise In Riverland
-2002 - Fantasy: A New Dimension
-2007 - Agony - Gift Of LifeЖанр: Power MetalПродолжительность: 06:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF6314E9FBF56CA51565DADA0AD66551004F5FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816138   (4538) от 03.09.2025
-
-Sabrina Carpenter - Man’s Best Friend (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4538.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Manchild (3:34)
-• 02. Tears (2:40)
-• 03. My Man on Willpower (3:18)
-• 04. Sugar Talking (3:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48F14EE41DC92DE25F6EE2294663C731B55800F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816340   (4439) от 04.09.2025
-
-Lady Gaga - Mayhem (2025) Deluxe Edition, Interscope Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disease [00:03:49]
-02. Abracadabra [00:03:43]
-03. Garden Of Eden [00:03:59]
-04. Perfect Celebrity [00:03:49](   Читать дальше...   )Жанр: PopПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C25DDF6778F59818D40888FDE841D4D86E02AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816169   (4419) от 04.09.2025
-
-De Profundis, Eamonn Dougan - Morales: Requiem a 5 & Officium defunctorum (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circumdederunt me [00:02:23]
-02. Regem, cui omnia vivunt – Venite, exsultemus [00:08:45]
-03. Parce mihi, Domine [00:03:39]
-04. Credo quod redemptor meus vivit [00:03:03](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB6104A756604486508CD5D6ABA655276E7D715
 ```
 
 https://mybot314.ru/tekegram_catalog/

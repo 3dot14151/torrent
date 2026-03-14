@@ -1,3 +1,177 @@
+###  Публикация: 1595798   (174579) от 07.12.2022
+
+Chico Hamilton - Seven Classic Albums (1955 - 1959) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174579.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. A Nice Day [2:54]
+02. My Funny Valentine [4:20]
+03. Blue Sands [6:32](   Читать дальше...   )Жанр: Hard Bop, West Coast JazzПродолжительность: 04:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8ACB7BE80BED5060253D0B7130BF796107C1FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595890   (174153) от 08.12.2022
+
+Mick Kolassa - For The Feral Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running To You (2:46)
+02. Elegant Angel (3:58)
+03. Feeling Alright (6:11)
+04. Love Ain’t Supposed to Make You Cry (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679864AE92701CAA4F1FBB1C8728D01072BC4E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595868   (174141) от 08.12.2022
+
+Blue Largo - Got to Believe (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,  Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A World Without Soul (6:08)
+02. Got to Believe (4:27)
+03. Soul Meeting (6:57)
+04. What We Gotta Do (5:33)(   Читать дальше...   )Жанр: Blues,  SoulПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72B7470400F7D1B74EEECA4C18BA0A65A690C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595882   (174135) от 08.12.2022
+
+Kerosene Drifters - The Gun Announced Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Go (3:58)
+02. Til It's Gone (4:13)
+03. Bad Mojo (3:07)
+04. Oh Gloria (4:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0F41EEE4872CB2D7BC926CF5BB0E484E8ADA88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596006   (174128) от 08.12.2022
+
+Randy Waldman - UnReel (2001) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jetsons [4:08]
+02. My Favorite Things [6:41]
+03. Leave It To Beaver [3:56]
+04. Bali Hai [5:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D043792DB71A9DE1707336E5A721D70684843A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595874   (174122) от 08.12.2022
+
+Elli de Mon - II (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zen Song (2:13)
+02. Ghost (2:55)
+03. The Judgment (3:29)
+04. Ouroboros (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D67F538D2CC4611ADFA8C429B1835B65025A81C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595891   (174112) от 08.12.2022
 
 Quinn Golden - Southern Soul Icon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B, Soul>
@@ -570,180 +744,6 @@ Buddy DeFranco (De Franco) And The All-Stars - Wholly Cats (1957) 2016, Universa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ACCCD7FDAA411669CA23E15183ABCF84FF78B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827130   (173421) от 20.10.2025
-
-Carolyn Wonderland - Truth Is (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sooner Or Later (4:13)
-02. I Ain't Going Back (2:54)
-03. Truth Is (3:39)
-04. Let's Play A Game (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34DCC99FE5572982ACE69D9557CE2E8EA6AAAEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668483   (173374) от 13.10.2023
-
-Marilyn Monroe - Film By Film (1953 - 1962) 2CD, 2004, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Some Like It Hot [1:21]
-02. I'm Through with Love [2:36]
-03. I Wanna Be Loved by You [3:05]
-04. Running Wild [1:08](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 02:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52BB3A41866F54CCB2C77453542BBF7821BDCF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267543   (173312) от 13.10.2023
-
-Dave Hole - 11 Albums  (1990 - 2018) 14 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Blues-Rock, Slide Guitar>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dave Hole (родился 30 марта 1948) - лучший в 90-х слайд-гитарст блюза, самый известный блюзмен Австралии, обладает уникальной техникой игры на гитаре - Dave левша, но играет в "правой стойке", однако для компенсации давней травмы левой руки вынужден класть руку на гриф гитары сверху, а не снизу. Почти 20 лет Dave играл блюз по клубам, прежде чем судьба (   Читать дальше...   )Список альбомов:
-1990 - Short Fuse Blues
-1992 - The Plumber
-1993 - Working OvertimeЖанр: Blues-Rock, Slide GuitarПродолжительность: 13:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDCF95CBE535E9492B619CF4D4C8F33A5E59CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668835   (173256) от 14.10.2023
-
-Oscar Peterson - In London: The Rare Trio Session (1971) 2014, Pacific Delights [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella by Starlight [5:18]
-02. Let's Fall in Love [7:03]
-03. I Can't Get Started [5:07]
-04. Alice in Wonderland [7:36](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2ADCB4071E2168F1D88EC48B47A8503D1847EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668837   (173249) от 14.10.2023
-
-Ella Fitzgerald & Joe Pass - Hamburg Duets (1976) 2008, Gambit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them There Eyes [2:18]
-02. Feelings (first version) [5:02]
-03. Feelings (second version) [4:37]
-04. One Note Samba [7:56](   Читать дальше...   )Жанр: Vocal Jazz, Guitar JazzПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA53A109F92A33EB37E422E522448B648B02166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668852   (173248) от 14.10.2023
-
-Joe Pass - Catch Me! (1963) 2003, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling in Love with Love [5:50]
-02. Summertime [6:23]
-03. Mood Indigo [5:08]
-04. Catch Me [3:10](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BE63A5B6321DBF5A86D98C5CDA8C1C3CA74E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

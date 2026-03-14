@@ -1,3 +1,90 @@
+###  Публикация: 1312826   (529225) от 06.07.2019
+
+Dave Stryker - Eight Track II (2016) Strikezone Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz-Funk, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harvest for the World [6:04]
+02. What's Going On [6:12]
+03. Trouble Man [7:29]
+04. Midnight Cowboy [5:27](   Читать дальше...   )Жанр: Post-Bop, Jazz-Funk, Straight-Ahead JazzПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C5A71AC6E58CDCC9BF30B46BBDDB7B68E6485B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312831   (529224) от 06.07.2019
+
+Dwight Trible - Inspirations (2017) Gondwana Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What the World Needs Now Is Love [5:48]
+02. Tryin' Times [5:30]
+03. I Love Paris [6:00]
+04. Feeling Good [4:59](   Читать дальше...   )Жанр: Vocal Jazz, Soul JazzПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8ACA9F9D7C3C19043D2ADF1274C05078495F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558767   (528933) от 22.06.2022
+
+Buddy DeFranco (De Franco) And Oscar Peterson - Play George Gershwin (1954) 1998, Verve Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wants to Stay Here [3:49]
+02. I Was Doing All Right [5:25]
+03. 'S Wonderful [4:25]
+04. Bess, You Is My Woman Now [4:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B981AB8B7A8EB5B3BEF81501A9CA045FC1EF96C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558764   (528864) от 22.06.2022
 
 Buddy Rich - Buddy Rich Band (1981) MCA Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Jazz-Funk>
@@ -658,93 +745,6 @@ Konstantin Klashtorni - Chillaxonic: 2nd Facet (2020) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B4B5590B8ACBC80190357E0A9B423F1734F922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156912   (526443) от 09.08.2017
-
-Art Tatum - Goldfingers (1933 - 1956) 3CD, 2011, Le Chant du Monde [FLAC|Lossless|image + .cue] <Stride, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526443.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Tea For Two:
-01. Tea For Two [03:18]
-02. After You've Gone [02:32]
-03. Liza [02:01](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 03:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB1431A7AE782602DA4D65C72DA305CF396ACDF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053099   (526155) от 17.09.2016
-
-Eddie Daniels - Blackwood (1989) GRP Records[FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blackwood [04:31]
- 02.Cruise [04:51]
- 03.Heartsong [04:58]
- 04.P.I. [04:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C7E531ED02EDAD13DE6CA2E6BA533B1FBBBA64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053442   (526153) от 17.09.2016
-
-The Bill Perkins Big Band - Our Man Woody (1991) [FLAC|Lossless|image + .cue] <Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Believe That You're In Love With Me (3:09)
-02. I've Got The World On A String (5:48)
-03. Tenderly (4:04)
-04. I Got It Bad And That Ain't Good (6:32)(   Читать дальше...   )Жанр: Big BandПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A95926CCA2B282BFFF6CA58F47B93BCAF2A0D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

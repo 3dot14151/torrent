@@ -1,3 +1,119 @@
+###  Публикация: 1100380   (899650) от 04.02.2017
+
+VA - Jazz, Relax and Baby. Instrumental Music for Calm Down (2017) [MP3|320 Kbps] <Jazz, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Newborn Baby Song Academy - Jazz Music
+02. Jazz Music Collection - Baby Music
+03. Baby Lullabies Music Land - Relaxing Music
+04. Good Mood Music Academy - Positive Thinking(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14758094051B05E58E7A21AE4103631B4B9D0B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992846   (899409) от 03.03.2016
+
+Виктор Куцов - Сыпал снег буланому под ноги (1990) [MP3|128 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кузькина любовь
+02. Сыпал снег буланому под ноги
+03. Не губите молодость ребятушки
+04. Душистая аллея(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01015558374D9DE4FA5A877D8A70C7B187546225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992692   (899312) от 03.03.2016
+
+VA - Deep House Generation (2016) [MP3|320 кб/с] <Deep House, Electro, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899312.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jutty Ranx - I See You (Pretty Pink Remix)
+002. Deep Progression - Rome (5th Avenue Mix)
+003. Sigala - Sweet Lovin' (feat Bryn Christopher - House Robot remix)
+004. South Soul - Some Chords (Velvet & Deep Club Mix)(   Читать дальше...   )Жанр: Deep House, Electro, ClubПродолжительность: 13:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E85599EED662C35C73CCB1F4FB4996852AFFAD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992661   (899302) от 03.03.2016
+
+VA - How Deep Is Your Love (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Festina Lente - Feel It - Fab Stellar Remix
+ 02. Deep-X - See Things Around
+ 03. Daniel Floor - Thinkin' About You
+ 04. Colt! - Dub3m - Lowpole Remix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86984FB36682813D0F11B2FC48E902DDD8FDCACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992799   (899218) от 03.03.2016
 
 VA - Шальной Шансон в Дорогу (2016) [MP3|256 кб/с] <Шансон>
@@ -381,6 +497,58 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294820   (898224) от 12.02.2011
+
+VA - Музыкальная энергия страсти 50/50 (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_898224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6A862DF36B642B56C936CDA121B16CB8130363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294425   (898222) от 12.02.2011
+
+VA - Лучшая 200ка: Зимний хит-парад 50/50 Part 1 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_898222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 11:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E0F77AED1BEB1EF9798BE6F72FDB534ADAEAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637775   (898187) от 01.04.2013
 
 VA - Радио Energy - NRJ HOT30 (31.03.2013) [MP3|320 кб/с]<Pop, Dance>
@@ -577,180 +745,6 @@ VA - Зимние блатные песни на радио Шансон вып�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:717C727118E1D3E41B742E511151E2CADAB5B38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100754   (898013) от 05.02.2017
-
-VA - Лучшие блатные хиты года на Шансоне выпуск № 5 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898013.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Эдуард Шенфельд - Утро Вечера Мудренее 3:45
-002. Леонид Иконников - Отцовское Начало 5:32
-003. Олег Безъязыков - Три Года Строгого 5:38
-004. Андрей Таныч - Раб Судьбы 3:02(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759CFE5A90B8D141E91299ADD638922B78B71793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100789   (897980) от 05.02.2017
-
-VA - Trance Collection Vol.57 (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897980.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 4 Strings, Fenna Day - Enough (Original Mix) 6:36
-002. A.M.R ft. Dianne - Light That Never Died (Original Mix) 6:55
-003. Adam Morris feat. Katty McGrew - I See You  (Igor Dyachkov Remix) 7:55
-004. Adip Kiyoi & Susie Ledge - Another Chance (Original Mix) 6:17(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 11:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD2D0FD4CF628C9DA20A97DEA6CA2B77466FA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100793   (897910) от 05.02.2017
-
-VA - Deep House Collection Vol.107 (2017) [MP3|272-320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897910.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2owl - Girl (Original Mix) 4:49
-002. 5prite & Umid - Check (Original Mix) 6:20
-003. 98U - Exceed (Solemn Eye Remix) 8:40
-004. Abriviatura IV, TeckSound - Real In My Dreams (Original Mix) 6:00(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F3D890363C4B3C1E2695EE457A074C8E0AB07E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100749   (897904) от 05.02.2017
-
-VA - Хиты в тачку. Сборник № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897904.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Добрыднева - Ты Свет 3:37
-002. Дмитрий Каминский - Кайфуй 3:05
-003. Арина Войт - Мама Я В Раю 3:12
-004. Зара - Забыть О Тебе 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407EE859B30E9322CF8F76538B60C401C3FA2490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100738   (897901) от 05.02.2017
-
-VA - Только хиты. Русский сборник (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897901.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. D-Bosh - Звезды Не Ездят В Метро 3:10
-002. Михаил Шабашов - У Красивых Глаз 4:11
-003. Sunsay Feat. Тося - Поезд 3:34
-004. Дарина Кройтор - Ветер 2:49(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E1F653D7625AFB1EFD96B936378992FE347156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101095   (897847) от 05.02.2017
-
-VA - Record Super Chart #473 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ofenbach & Amice - Be Mine (Amice Remix)  3:23
-02.  Consoul Trainin & Amice - Take Me To Infinity (Amice Remix)  4:44
-03.  Грибы - Копы (Vincent & Diaz Remix)  4:10
-04.  Clean Bandit & Sean Paul ft. Anne-Marie - Rockabye (Denis First Remix)  4:08(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD85253C77CA33CA7845E9D1583F9EDE290B75E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

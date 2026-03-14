@@ -1,3 +1,32 @@
+###  Публикация: 1751939   (103991) от 28.09.2024
+
+David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Compilation Album [MP3|320 Kbps] <Alternative Rock, Folk Rock, Country Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 16 Horsepower - American Wheeze
+02. 16 Horsepower - Black Bush
+03. 16 Horsepower - Black Soul Choir
+04. 16 Horsepower - Dead Run(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Country RockПродолжительность: 01:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3B6EBCAB312FF85C62C2CF499792E4C90D9A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763514   (102816) от 01.12.2024
 
 Arctic Monkeys - Compilation (2005-2022) [MP3|320 Kbps] <Indie rock, Post punk, Psychedelic rock, Alternative>
@@ -734,35 +763,6 @@ VA - Rock Love Songs (2024) [MP3|320 Kbps] <Rock, Hard Rock, Ballad>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7F7B2C69643D95734875EEA7B53A45176EE8F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736350   (49828) от 16.07.2024
-
-VA - Instrumental guitar (2024) [MP3|320 Kbps] <Rock, Instrumental, Flamenco>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jay Price - Shooting Star [02:08]
-002. Guitar Instrumentals - Back in Black (as made famous by AC/DC) [04:21]
-003. Flamenco Guitar Masters - Song For A Guy [05:19]
-004. Guitar Instrumentals - Sin City (as made famous by AC/DC) [04:46](   Читать дальше...   )Жанр: Rock, Instrumental, FlamencoПродолжительность: 08:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FD9A26BA597CA463A8661C4A6AB6429AE152CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

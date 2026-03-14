@@ -1,3 +1,177 @@
+###  Публикация: 1540717   (242872) от 31.03.2022
+
+Jack Lancaster & Robin Lumley - Marscape (1976) Expanded & Remastered Edition, 2022, Esoteric [FLAC 2.0|96/24|WEB-DL|tracks] <Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take-Off (3:09)
+02. Sail On Solar Winds (2:48)
+03. Arrival (1:51)
+04. Phobos And Deimos (4:46)(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04560F584397EB0CDC32223DD40AC34D1B3ADD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540776   (242864) от 31.03.2022
+
+Cortex - Inedit '79 (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Heard a Sigh - 3:37
+02. Back to My World - 4:46
+03. Said I Do - 5:10
+04. A Winning Team - 3:21(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2957A866A19093013661B9D4A146750463BA725C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098179   (242848) от 29.01.2017
+
+Lou Donaldson - Caracas (1994) Milestone Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hot Dog [05:19]
+ 02.Just A Dream (On My Mind) [06:23]
+ 03.Ornithology [07:09]
+ 04.I Don't Know Why (I Just Do) [05:01](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAFA48D838D42CB14B4E2CD147AD03802047B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541020   (242847) от 02.04.2022
+
+Jackie McLean Quartet - Tune Up (1966) 1993, SteepleChase [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tune Up [13:47]
+02. I Remember You [13:27]
+03. Closing [2:59]
+04. Jack's Tune [14:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F806F377C0D371B5BFC58C19B20BDDAA4586F2C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097664   (242841) от 29.01.2017
+
+Paul Smith Quartet - Softly, Baby (1957) Remaster, 2011, Capitol[FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Softly [04:19]
+ 02.Taking A Chance On Love [04:03]
+ 03.Easy To Love [04:00]
+ 04.Long Live Phineas [02:36](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1E40BE02430F9BCD5937B8C58602BE24C37842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098193   (242828) от 29.01.2017
+
+Paul Gonsalves - Gettin' Together! (1960) 1987, Original Jazz Classics[FLAC|Lossless|image + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Yesterdays [03:36]
+ 02.J. And B. Blues [05:01]
+ 03.I Surrender Dear [04:25]
+ 04.Hard Groove [05:01](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7195811996005F3C720E894FFA95D204186220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098201   (242815) от 29.01.2017
 
 Guy Barker - Timeswing (1996) 2000, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
@@ -571,179 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9D6A044F6D308580D350F6C58D321949A657D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105941   (242398) от 18.02.2017
-
-Lalo Schifrin - There's A Whole Lalo Schifrin Goin' On (1968) 2013, Universal [FLAC|Lossless|tracks + .cue] <World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Secret Code Synthesizer [02:32]
- 02.Dissolving [02:33]
- 03.Machinations [02:46]
- 04.Bride Of The Wind [02:39](   Читать дальше...   )Жанр: World FusionПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB2CA65D7C773C91E4B1997FA8C1792FB2FC5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105714   (242341) от 18.02.2017
-
-Blacktop Deluxe - 2 Album (2014 -2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа образована в марте 2013 года. Дебютный альбом "Turn Up, Be Nice, Play Hard" вышел в мае 2014 года и добрался до 4-го места в чарте Blues Independent Broadcasters Association. Ну а в 2015 вышел второй и последний, на сегодняшний день британской команды. И скажу вам - они стоят, того, чтобы на них обратили внимание))) ИМХО!Список альбомов:
-2014 - Turn Up, Be Nice, Play Hard
-2015 - Presence & GainЖанр: Blues-RockПродолжительность: 01:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF78BEFEAC508B83F06AC7573C1D5EE00BBEE9AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634874   (242337) от 23.05.2023
-
-The Smokin' Elmores - UNLEASHED (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Hearts (3:51)
-02. Miners Blues (4:34)
-03. Wild 'N' Free (3:10)
-04. Get Outta My Life (5:56)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8DAFA30EEC4C1E3655EFBFABE3FA079308246B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634927   (242324) от 23.05.2023
-
-Clare Teal - A Tribute To Ella Fitzgerald (2016) Chasing The Dragon [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got You Under My Skin [2:57]
-02. Begin the Beguine [3:57]
-03. I Get A Kick Out Of You [3:55]
-04. Ding Dong The Witch Is Dead [3:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01725A50E7816ADE1C6699953EE8A1CC4F9526A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105826   (242317) от 18.02.2017
-
-Ray Charles - Live At The Montreux Jazz Festival (2002) Geneon [FLAC|Lossless|tracks + .cue] <Soul Jazz, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ray Charles Opener [01:04]
- 02.I'll Be Home [03:25]
- 03.Busted [02:25]
- 04.Georgia On My Mind [05:50](   Читать дальше...   )Жанр: Soul Jazz, R&BПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BEB012A420843FEDABD65B6F73313EB586500D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628275   (242311) от 22.04.2023
-
-VA - Blues Tunes Vol 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bo Diddley -- Run Diddley Daddy (Alternate Take) (2:47)
-02. J.B. Hutto & the New Hawks -- Bluebird (2:46)
-03. Etta James -- Gonna Have Some Fun Tonight (3:07)
-04. Koko Taylor -- I Don't Care Who Knows (Single Version) (2:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBC793D479D79D36700FA2D3E30903CD4BEB4B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

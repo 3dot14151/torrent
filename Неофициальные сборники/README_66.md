@@ -1,3 +1,90 @@
+###  Публикация: 1089797   (950778) от 04.01.2017
+
+VA - NYE 2016 Lounge Hits (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vinyl Cartel - Redim
+02. Future Loop Foundation - I'm Only Dreaming
+03. Vinyl Cartel - Shuk Un
+04. Bencenzi - Vista(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E948933D7F52A57E5FF8CF14926CD2D3413A8450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089548   (950703) от 04.01.2017
+
+VA - Блатной шансон на любимой волне. Часть № 8 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950703.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алексей Плотников - Я Вернулся Москва 3:37
+002. Николай Искуснов - Память Моя 3:51
+003. Сергей Куренков - Сочи 3:17
+004. Александр Дюмин - Друзья 3:17(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA7E68642E512EEF1BA5C8D9EC506C36230A7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089455   (950699) от 04.01.2017
+
+VA - Русский зимний музобоз (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950699.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adil Karaca - Музыка 3:52
+002. Лена Максимова - Счастье Внутри 3:50
+003. Саша Жемчугова - Кто-То За Нас 4:06
+004. Мулат - Включила Заднюю 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04622693EDDD9943B6D0B487F97745674E952EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089430   (950697) от 04.01.2017
 
 VA - Гуляночка от радио Шансон Выпуск № 10 (2016) [MP3|256 Kbps] <Шансон>
@@ -658,93 +745,6 @@ VA - Лучшие блатные хиты года (2017) [MP3|256 Kbps] <Шан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E0CF185C87411074A851A948AE9354C0902BBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089919   (948941) от 05.01.2017
-
-VA - Remember Disco 80' (2016) [MP3|320 Kbps] <Italo Disco, Eurodance,>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Avenida - La Fuerza Del Destino 6:29
-02.  Italove - Higher 3:28
-03.  Blue System - Sorry Little Sarah (Maxi Version) 5:16
-04.  Bad Boys Blue - You're A Woman (Split Mirrors Remix) 6:26(   Читать дальше...   )Жанр: Italo Disco, Eurodance,Продолжительность: 07:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28994FEC5D5CA821C5550644B6DEC5A412D7DA82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089878   (948826) от 05.01.2017
-
-I love 90`s the party (2008) [MP3|112 Kbps] <Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948826.jpg" />
-</div>
-
-
-###  Подробнее
-
-I love 90`s the party (200 / 837:38)
-200 / 00:13:59:13 / 673,80 MB
-----------------------------------------
-[06:48] 01. Dr. Alban Vs Haddaway - I Love The 90's (Recharged 90's Mix)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 13:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E503032A4D2E9271C900EEF0E9982B9414530B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982471   (948427) от 03.02.2016
-
-VA - Because I Love You (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Berk & The Virtual Band feat. Cristina Camacho - Tainted Love
-02. Tony Martinez - Your Loving Arms (feat. Estela Martin) - Acoustic Mix
-03. WME - Losing My Religion
-04. Marc De Siau - Forever Young - Tranqui Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB1A8084AB31FB38AA00ACB6ABC9DD2FC5ABC92
 ```
 
 https://mybot314.ru/tekegram_catalog/

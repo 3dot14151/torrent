@@ -1,3 +1,90 @@
+###  Публикация: 1749430   (104355) от 14.09.2024
+
+V.A. - The Best Smooth Jazz Ever (2002) 2CD [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104355.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. David Benoit - Cast Your Fate To The Wind
+02. The Rippingtons - She Likes To Watch
+03. Special EFX - Ballerina(   Читать дальше...   )Жанр: Smooth Jazz |Продолжительность: 01:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE07FB81D2733DFB011295BC606B56D78A034C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749229   (104345) от 14.09.2024
+
+Jim Hall Trio featuring Tom Harrell - These Rooms (1988) Denon [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With a Song in My Heart [8:26]
+02. Cross Court [5:16]
+03. Something Tells Me [5:14]
+04. Bimini [9:21](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB6B8729A44904D928204802AB9FDF145F7FADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749610   (104280) от 15.09.2024
+
+Joey DeFrancesco, Robi Botos, Vito Rezza, Phil Dwyer - One Take, Vol. 4 (2010) Alma [APE|Lossless|image + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Is No Greater Love [11:13]
+02. Tenderly [7:07]
+03. Village Green [8:47]
+04. Not That [8:14](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF89DA0F84D5DCEEE27004BD5DD815B0D7618CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750012   (104259) от 17.09.2024
 
 Jim Hall - Jazzpar Quartet + 4 (1999) Storyville [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
@@ -656,93 +743,6 @@ Charles Mingus - Something Like A Bird (1978) 2013, Atlantic [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EDE3AC108E0B838006C8150CEC6A1EDA1E40ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754238   (103726) от 09.10.2024
-
-Ted Heath & His Music - Swing Is King! (1992) Limelight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Home [2:26]
-02. Cherokee [3:19]
-03. Begin the Beguine [2:42]
-04. One O'Clock Jump [3:33](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76A96B85810D332780C6C4FB65678CE3534A339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754236   (103723) от 09.10.2024
-
-Jihee Heo - Flow (2024) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Yorker Step [4:26]
-02. I Can See Only One Step Ahead [5:24]
-03. Opening the New Door [4:54]
-04. Extreme Noise Blocker [4:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4DE3A36E658E05415AB422B83D4615AE385B663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754580   (103705) от 11.10.2024
-
-Herbie Hancock / Lionel Hampton - Nightlife Late Night (2000) Direct Source Special Products [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Herbie Hancock - Live and Awake (3:57)
-02. Lionel Hampton - Jeepers Creepers (3:33)
-03. Herbie Hancock - Scoochie (5:17)
-04. Lionel Hampton - Birth of the Blues (4:34)(   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3632A0381D25AC34BCF65061B774940818A9418
 ```
 
 https://mybot314.ru/tekegram_catalog/

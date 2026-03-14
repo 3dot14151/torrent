@@ -1,3 +1,148 @@
+###  Публикация: 1696921   (119319) от 04.02.2024
+
+The Dead State - Здесь (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Здесь [00:02:12]
+02. Ты дерьмо [00:02:20]
+03. Культ хардкора [00:02:17]
+04. Враг [00:03:17](   Читать дальше...   )Жанр: Hardcore Punk, Hard RockПродолжительность: 00:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94E600B16FA1A245ABCC5A54085AF057BE8B279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696737   (119313) от 04.02.2024
+
+SAXAR - Инсулин (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В своей голове [00:03:36]
+02. НАТЕ [00:04:03]
+03. По губам [00:03:44]
+04. Интерстеллар [00:03:29](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717E525E74577843A8B206BBAB8B32F473C084D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697043   (119234) от 05.02.2024
+
+Король и Шут - Лучшее (2023) 2CD [FLAC|Lossless|image + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119234.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ром
+02. Ели мясо мужики
+03. Лесник(   Читать дальше...   )Жанр: Punk Rock |Продолжительность: 01:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587E1A0B6D614B3022D6F2C6D7AEED4597F5CE61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696731   (119109) от 05.02.2024
+
+Якорь - Русская готика (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Середина ночи [00:04:46]
+02. Скорбный лист [00:05:20]
+03. Русская готика [00:04:59]
+04. Сукины дети [00:05:13](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286411809A1FBC98123649ED17EA8DFDA240FAF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697867   (118287) от 10.02.2024
+
+Ундервуд - За горизонтом (2022) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Когда-нибудь (3:04)
+02. Ради контента (3:02)
+03. Лавацца (3:39)
+04. Шуры-муры (3:15)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C2B5A9380E322B474E33D1B2D192430CD9D7AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698982   (118102) от 11.02.2024
 
 Студия'78 - Где ты (2015) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
@@ -594,151 +739,6 @@ VA - Митьковская тишина (1995) [FLAC|Lossless|tracks + .cue] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0387A0BD363C85615630A4F508BBE90524AD6B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713278   (111884) от 06.04.2024
-
-Мамульки бенд - Светлый (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Счастье [00:04:55]
-02. Смотрю [00:03:35]
-03. Лечу [00:03:43]
-04. Ввысь-Вниз [00:04:05](   Читать дальше...   )Жанр: Ska, Pop-RockПродолжительность: 00:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF6FA104E636DB79B27F6EDBA0C12236B7496B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713554   (111864) от 06.04.2024
-
-Clownopocalypsis - Клоунский крестовый поход (2024) [FLAC|Lossless|WEB-DL|tracks] <Horror Metal, Alternative Metal, Dark Cabaret>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Клоунский крестовый поход [00:03:44]
-02. Чумной кукловод [00:03:13]
-03. Циркулярные арены Доки II [00:03:18]
-04. Звонарь [00:04:05](   Читать дальше...   )Жанр: Horror Metal, Alternative Metal, Dark CabaretПродолжительность: 00:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B9A3F3A7F434A6F5E994E58D50D06E12547A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713874   (111795) от 07.04.2024
-
-St.Vagina Dentata - Скотобаза (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Москва-скотобаза [00:02:38]
-02. Я люблю старух [00:02:15]
-03. Бухать с бомжами [00:02:04]
-04. Метрополитен - мясорубка ада [00:01:48](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:21:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F44CB53784CABB060BFC141B567FF50313B9DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713889   (111779) от 07.04.2024
-
-The Papriks - Kiss'ЛЯ'тина (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По колено [00:02:48]
-02. Погода [00:02:14]
-03. Два часа [00:02:23]
-04. Долгожданная весна [00:03:56](   Читать дальше...   )Жанр: Ska, RockПродолжительность: 00:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF9AFCE066538C9CA28C4C97FC175584A05DE6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714298   (111767) от 08.04.2024
-
-Монгол Шуудан - Ремешок (2024) [FLAC|Lossless|image + .cue] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Бей
-03. Ниспровергатели идей
-04. Волга мать река(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EB8171C9E9D4C17C4772BC0829CB1AAB9DA9BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1602308   (1046147) от 05.01.2023
+
+Riverboat - Big Talk and Muddy (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby That's Alright (3:02)
+02. Hard Times (2:44)
+03. Big Talk & Muddy (3:18)
+04. Riverboat (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60564B7E745E8EA0E2F45183451BDDF50B75F1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602297   (1046146) от 05.01.2023
+
+Lil' Red & the Rooster - Keep on! (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cool Trap Boogie (2:54)
+02. Whiskey Sip of Time (4:20)
+03. Keep on Lovin You (feat. Billy Branch) (5:16)
+04. Love the Hell Right out of Ya (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA7F81C8A9E564A84E4A8A8776965F7F48DB180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602336   (1046144) от 05.01.2023
 
 Karin Krog & Bengt Hallberg - Cabin In The Sky (2011) Gazell [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
@@ -687,64 +745,6 @@ Gary Eisenbraun - Stepping Stones (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73C477490DA8E8FA636947867A8B5EC11C5C1FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603102   (1045822) от 08.01.2023
-
-The Memphis Blues Cream - 706 Union Avenue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bear Cat (2:43)
-02. Tiger Man (3:57)
-03. Red Hot (2:41)
-04. Runnin' around (2:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:727FE932A3A51A486F045BF4A2D815EB224C98AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603097   (1045821) от 08.01.2023
-
-Steve Hophead - Steve Hophead (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep Well Silence (4:04)
-02. Let Me Feed Your Soul (4:07)
-03. One Man Show (4:49)
-04. Blue Bird (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BD96E20A82A7604206B6D1DEDC258ED52CBCE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

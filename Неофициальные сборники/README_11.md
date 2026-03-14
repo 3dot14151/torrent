@@ -1,3 +1,90 @@
+###  Публикация: 1437570   (1041582) от 06.01.2021
+
+VA - Радио Шансон. Лучшее (2020) MP3 от DON Music [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041582.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Владимир Ждамиров - А я несу тебе цветы
+002. Виталий Аксёнов - Мечта
+003. «Сентябрь» - Ладони нежные
+004. Михаил Грицкан - Ах как хотелось бы мне(   Читать дальше...   )Жанр: ШансонПродолжительность: 09:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F03B6C2BD2779AEF3C6C7B8BDA722DD88EFBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611079   (1041561) от 10.02.2023
+
+VA - Music News vol.244 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041561.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beyonce - Cuff It (Wetter Remix) (04:09)
+ 002. 2SQ - Интерес (02:38)
+ 003. A R I Z O N A - Moving On (03:21)
+ 004. A7S - Jumpstart (VIP Mix) (02:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44DBBE230FA3B60E1DD95D57A69667116B7BD4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611174   (1041554) от 10.02.2023
+
+VA - Sexy Chilling Lounge Music (2023) [MP3|320 Kbps] <Downtempo, Chill Out, Easy Listening, Light Music>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nano Banani - Cindy Thyser
+02. Lalabo - Fin and Fine  (Slomo Version)
+03. 2bpm - In My Dreams (Instrumental Beat)
+04. 2bpm - Here We Go  (Instrumental Version)(   Читать дальше...   )Жанр: Downtempo, Chill Out, Easy Listening, Light MusicПродолжительность: 03:03:01 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1B87F14D9E8E3B9B31EADC9A79FB0F966431CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437887   (1041448) от 07.01.2021
 
 Ian Gillan - Unchain Your Brain (2021) 2CD, Compilation  [MP3|320 Kbps] <Rock>
@@ -658,93 +745,6 @@ Sam 'The Man' Taylor - Sax Compilation (2023) [MP3|320 Kbps] <Jazz, Sax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BBA6AD61F6C81333E57784840537EC515DC274A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439113   (1040288) от 11.01.2021
-
-VA - Best Live Albums (2020) [MP3|320 Kbps] <Rock, Reggae, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Who - I Can't Explain (Live)
-02. The Allman Brothers Band - Statesboro Blues (Live At Fillmore East, March 13, 1971)
-03. The Rolling Stones - Midnight Rambler (Live From Madison Square Garden, New York/1969)
-04. Kiss - Rock And Roll All Nite (Live)(   Читать дальше...   )Жанр: Rock, Reggae, BluesПродолжительность: 02:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163281A6608442E3DA62839E0CDF60331BA0F04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439079   (1040286) от 11.01.2021
-
-VA - Private Partners: Rock Blues Lyric Collection (2021) [MP3|320 Kbps] <Rock Blues, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящие ветераны и винтажные мастера рок блюза в очередной раз порадуют своих фанов выпуском полноформатного коллекционного сборника "Private Partners". Выделять какие-то треки в особенности нет смысла – если бы не паузы между песнями, то можно было бы воспринять все как один большой трек, с лирическими перекатами по настроению, но с одним и тем же чувством (   Читать дальше...   )001. Eric Brooke - Movin' Uptown
-002. Don Griffin - Back To Chicago
-003. Dirty Dave Osti - Rebel Run
-004. Robert Randolph - Simple Man(   Читать дальше...   )Жанр: Rock Blues, BluesПродолжительность: 09:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACFFFE446F686A330A4A97A452D1CACD601F078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439110   (1040279) от 11.01.2021
-
-VA - Best Blues Guitar (2021) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santana - Europa (Earth's Cry Heaven's Smile)
-02. Gary Hoey, Josh Smith - Mercy Of Love (feat. Josh Smith)
-03. Buddy Guy, Jeff Beck, Keith Richards - Cognac
-04. Joe Bonamassa - When The Fire Hits The Sea(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096E43AEA56E1E3BDB83B9E4E78E70C30135C1A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 981776   (951690) от 01.02.2016
+
+VA - Private Lounge Cafe, Vol. 4 (25 Delicious Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lind Variante - Costante - Original Mix (05:01)
+02. Spa - Come to Love - Original Mix (04:55)
+03. Leo & Roby Ruini - La Suite - Original Mix (05:25)
+04. Backroom Barn - Sweet Dream - Original Mix (03:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B5CF6FA6BEACD691DE2A3C93053414503B3ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089392   (950792) от 04.01.2017
 
 VA - Trance Elegance On This Year 006 (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal Trance, Energy, Emotional, Uplifting>
@@ -716,35 +745,6 @@ VA - Kontor Top Of The Clubs: The Best of 20 Years (2017) [MP3|320 Kbps] <House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467852FA36B26BFF68E57EC0387DCB9D86B120E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982848   (945573) от 05.02.2016
-
-VA - Car Satellite: Full Set EDM (2016) [MP3|320 кб/с] <Electro, House, Trance, techno, Dubstep, Hardstyl, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945573.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Azari & III - Reckless (With Your Love) (Steve Lawler Remix)
-002. Bjarki - I Wanna Go Bang (Original Mix)
-003. Coone, Bassjackers, GLDY LX - Sound Barrier (Original Mix)
-004. Dialect - Ghost Of Red Hook(   Читать дальше...   )Жанр: Electro, House, Trance, techno, Dubstep, Hardstyl, ProgressiveПродолжительность: 11:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED577A6A9FF76A59BAFB8145F7C2EEF94B9031F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

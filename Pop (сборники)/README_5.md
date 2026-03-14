@@ -1,3 +1,38 @@
+###  Публикация: 601828   (998108) от 11.01.2013
+
+VA - Radio Italia 30 Anni (3CD) (2012) [MP3|320 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998108.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:01. Sugarfree - Cleptomania
+02. Francesco Renga - Angelo
+03. Povia - I Bambini Fanno Oh
+04. Zero Assoluto - Svegliarsi La Mattina
+05. Daniele Silvestri - La Paranza
+06. Simone Cristicchi - Ti Regalero' Una Rosa
+07. Fabrizio Moro - Pensa
+08. Giusy Ferreri - Non Ti Scordar Mai Di Me
+09. Arisa - Sincerita'
+10. Malika Ayane - Come Foglie(   Читать дальше...   )Жанр: popПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C46D775767F25A116A622774BDE56CE42273C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601619   (998020) от 11.01.2013
 
 VA - Зимние Хиты На Love Radio (2013) [MP3|256 кб/с]<Рор>
@@ -866,41 +901,6 @@ VA - Исаак Шварц. Песенка Верещагина (Лучшие п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA95EAF0FF4395D85B4335BC6DE92F4533EF291F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610214   (991147) от 28.01.2013
-
-VA - Слушай и танцуй. Лучшие хиты 2 (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991147.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Демо - Мимо облаков
-002. НеАнгелы - Просто скажи что любишь
-003. Иракли - Я тебя люблю
-004. Игра Слов - Было бы здорово
-005. Аника - За тебя
-006. Вельвет - Ну и пусть
-007. Ксения Новикова (Блестящие) - Хочу забыть
-008. Аника Далински - Завтра будет лучше
-009. A'Studio - Раз и навсегда
-010. K.Melody - Зажигай солнце(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF8CA36D2EDE440E13A1E8A2A82914DEBA0BC3BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

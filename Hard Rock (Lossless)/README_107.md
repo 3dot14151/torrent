@@ -1,3 +1,119 @@
+###  Публикация: 1788484   (22991) от 30.03.2025
+
+UFO - The Complete Studio Albums 1974-1986 (2014) BOX Set, 10xCD, Compilation, Reissue, Remastered, 2014, Chrysalis [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22991.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 01 - Phenomenon
+CD - 02 - Force It
+CD - 03 - No Heavy Petting
+CD - 04 - Lights Out(   Читать дальше...   )Жанр: Hard RockПродолжительность: 09:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE922062C02477ECEE0B48F757A8492A7FE2AF41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789328   (22578) от 03.04.2025
+
+Ratt - The Atlantics Years (1984-1990) (2020) 5 x CD, Box Set [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 - Out Of The Cellar (1984)
+Disc 2 - Invasion Of Your Privacy (1985)
+Disc 3 - Dancing Undercover (1986)
+Disc 4 - Reach For The Sky (1988)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 03:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8F41767AA52F6DC2DB620AEBD85AD10765B221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789573   (22472) от 04.04.2025
+
+Iommi, Glenn Hughes - Fused (2005) Reissue, 2024, BMG [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Между последним альбомом с Black Sabbath и следующим проектом Black Sabbath под названием Heaven & Hell, Тони Айомми редактировал некоторые записи, сотрудничая с Гленном Хьюзом. Группа получила название IOMMI и, хотя это не первая их совместная работа (они оба уже записали альбом Sabbath Seventh Star), им не удалось сохранить престиж имени Black Sabbath и поэтому (   Читать дальше...   )01. Dopamine
+02. Wasted Again
+03. Saviour Of The Real
+04. Resolution Song(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C8D740CD790F1E93ACF967BD6717719DAAE0EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789858   (22266) от 06.04.2025
+
+L.A. Guns - Leopard Skin (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taste It (04:35)
+ 02. Lucky Motherfucker (03:22)
+ 03. The Grinder (04:21)
+ 04. Hit And Run (05:27)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9914D995102A97EC65FB411AF5EC1D6425CE9336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789816   (22185) от 07.04.2025
 
 The Who - The Best Of (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
@@ -628,122 +744,6 @@ Volbeat - God of Angels Trust (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B1430685DECEE5D64163F5398EDD2FE482E1DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804077   (13244) от 27.06.2025
-
-Motorhead - The Manticore Tapes (1977) Reissue, Remastered, 2025, Sanctuary Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (The Manticore Tapes) (Instrumental) (03:46)
- 02. Leavin' Here (The Manticore Tapes) (03:23)
- 03. Vibrator (The Manticore Tapes) (03:26)
- 04. Help Keep Us on the Road (The Manticore Tapes) (04:59)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1DB949A8359CE4825FB17F1932F1A0F7ADF83F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804814   (12730) от 02.07.2025
-
-UFO(Unidentified Flying Objects) - Champions Of Rock (1996) Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Roll (4:51)
-02. Shoot Shoot (4:05)
-03. Let It Rain (4:01)
-04. When It's Time To Rock (5:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7BC74C435130EC5B65AE0AB7330E6DEBF12FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805417   (12325) от 06.07.2025
-
-Kiss - Love Gun (1977) Deluxe Edition, 2014, UMe Direct 2 [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Stole Your Love [00:03:04]
-02. Christine Sixteen [00:03:12]
-03. Got Love For Sale [00:03:28]
-04. Shock Me [00:03:46](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7652F3A79C3A71CB91AAB48371C04CAE765512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790084   (12061) от 09.07.2025
-
-AC/DC - Problem Child The Best Of The Bon Scott Years (2018) Box Set, 8 x CD, Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - A Long Way To The Top - Festival Hall, Melbourne. 31st December 1974
-Disc 2 - Problem Child - The Hippodrome, Golders Green. 17th October 1977
-Disc 3 - Whole Lotta Rock - Agora Ballroom, Cleveland. 22th July 1977
-Disc 4 - Maximum Voltage - The Old Waldorf, San Fransisco. 3rd September 1977(   Читать дальше...   )Жанр: Hard RockПродолжительность: 08:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBD3852614068DDCDF7A6516F41BFE654966069
 ```
 
 https://mybot314.ru/tekegram_catalog/

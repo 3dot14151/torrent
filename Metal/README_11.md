@@ -1,3 +1,32 @@
+###  Публикация: 166892   (974911) от 16.01.2010
+
+Pelican - Australasia (2003) [MP3|320 kbps]<Instrumental Artcore / Sludge Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightendday (11:14)
+02. Drought (8:23)
+03. Angel Tears (10:59)
+04. GW (3:34)(   Читать дальше...   )Жанр: Instrumental Artcore / Sludge Doom MetalПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974916   (974475) от 13.01.2016
 
 My Dear Addiction - Kill the Silence (2016) [MP3|320 кб/с] <Modern Metal>
@@ -734,35 +763,6 @@ Skeletoon - The Curse Of The Avenger (2016) [MP3|320 кб/с] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:719486D620522CB7C3DBC97781953EBEB8FD690E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977925   (964644) от 22.01.2016
-
-Hell In The Club - Shadow of the Monster (2016) [MP3|320 кб/с] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance!
-02. Enjoy the Ride
-03. Hell Sweet Hell
-04. Shadow of the Monster(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086591A97C222F9393D9909E885E235D692C4925
 ```
 
 https://mybot314.ru/tekegram_catalog/

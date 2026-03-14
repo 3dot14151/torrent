@@ -1,3 +1,32 @@
+###  Публикация: 1196797   (820638) от 04.01.2018
+
+VA - German Top 100 Single Charts 05.01.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820638.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Bausa - Was du Liebe nennst
+003. Mariah Carey - All I Want for Christmas Is You
+004. Wham! - Last Christmas(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841B79A93071BCCA9CBEBBF90FE73D581A074076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196316   (820407) от 04.01.2018
 
 VA - Музыка, с которой мы выросли (зарубежная) (1970-1995) Pop, rock, disco [MP3|320 Kbps] <Pop, rock, disco>
@@ -718,35 +747,6 @@ VA - LUXEmusic: Dance Super Chart Vol. 64 (2016) [MP3|320 кб/с] <Club House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C2BDFEA738293E20D044E79199DE172BA61E7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383070   (813737) от 14.05.2020
-
-VA - Classic Latin (2020) [MP3|320 Kbps] <Latin, Salsa, Rumba>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813737.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3ballmty - Quisiera Tenerte
-002. Morenito De Fuego - Amigos Con Derecho
-003. El Trono De Mйxico - Te Ves Fatal
-004. Gerardo Ortнz - El Omega(   Читать дальше...   )Жанр: Latin, Salsa, RumbaПродолжительность: 06:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCE5D340061D9F9171AD9D99C42462B81E9B515
 ```
 
 https://mybot314.ru/tekegram_catalog/

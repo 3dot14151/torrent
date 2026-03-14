@@ -1,3 +1,30 @@
+###  Публикация: 954147   (344069) от 06.11.2015
+
+Проекты - VideoHive - 3D Logo Layers [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления вашего логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E53EA1C8A7CACA88299A1CEF81AFAAD55CEB18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953941   (344062) от 06.11.2015
 
 Проекты - VideoHive - Photo Clicks [AEP]
@@ -660,33 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D07D8D3F32C8125F90132AD75A7DC34195C2F22F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954413   (341672) от 07.11.2015
-
-Проекты - Christmas Special Pack [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три проекта на Новогоднюю тематику.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DFD5C313ACED3DDCF9543D3B7E624D177429F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

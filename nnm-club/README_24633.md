@@ -1,80 +1,22 @@
-###  Публикация: 1804503   (65632) от 29.06.2025
+###  Публикация: 1795758   (67027) от 06.05.2025
 
-Tyske Ludder - Weltenbuhne (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Industrial>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Lenz ist da! [00:04:50]
-02. Europa [00:05:31]
-03. Rosen auf den Weg gestreut [00:04:53]
-04. Die Mäuler auf! [00:04:58](   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123BAEB98A41E9DBE09D3FD414EAD8EFEFAFF0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804416   (65631) от 29.06.2025
-
-Paralyzed - Rumble & Roar (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Psychedelic Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machine With A Soul [00:04:29]
-02. Railroad [00:05:25]
-03. Rosies Town [00:03:49]
-04. Heavy Blues [00:04:34](   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Stoner RockПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5282C273E4D7B1A5B22DBA77DB85AF4F6E328BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804382   (65630) от 29.06.2025
-
-Формула 1. Сезон 2025. Этап 11. Гран-при Австрии. Квалификация (28.06.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
+Футбол. Женская СУПЕР-Лига. Рубин (Казань) - ЦСКА (Москва) (26.04.2025) WEBRip [H.264] [50FPS]
 
 >>Спорт и активный отдых
->>Формула 1
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65630.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-28 июня 2025 суббота. 17:05 МСК этап 11 Шпильберг. Гран-при Австрии.. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 01:27:01
+В субботу, 26 апреля 2025 года, состоится матч седьмого тура Женской Суперлиги России, в котором встретятся казанский «Рубин» и московский ЦСКА. Столичный клуб обязан добиться успеха в предстоящем поединке и закрепиться в тройке лидеров турнирной таблицы. Смогут ли хозяева поля что-то противопоставить сопернику? Будут ли использовать стандартные положения? В составах (   Читать дальше...   )Телекомпания: СтартЖанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:49:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5F3E39639302BB890B59285178DBAF4BB540565
+magnet:?xt=urn:btih:432AFED30F8B1EE0BF5CF617581FC77844421854
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,549 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804263   (65629) от 29.06.2025
+###  Публикация: 1795771   (67026) от 06.05.2025
 
-Журнал | Наша история №7 (73) (июль 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED055A55C9270D3F4E8047510F6E4BE2669B861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804319   (65628) от 29.06.2025
-
-Бодо Шефер | Пёс по имени Мани (2022) [MP3, Pandorica Pond]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трогательная история говорящего Лабрадора Мани, который оказался настоящим финансовым гением, в доступной форме открывает перед детьми и взрослыми секреты денег. Для широкого круга читателей.Жанр: ОбучениеПродолжительность: 04:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAC8557A925866A62DD9E3BE6AEF98459EF5370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804361   (65627) от 29.06.2025
-
-Журнал | Историк №6 (126) (июнь 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65627.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяИздательство: АНО "СМИ Журнал "Историк"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D5940359102E6F69F80F2BB9A8072D3030616DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804366   (65626) от 29.06.2025
-
-Мир без воров / Tian xia wu zei / A World Without Thieves (2004) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адаптация одноимённой повести Чжао Бэньфу (1999)... История высококлассных воров Бо и Ли. В связи со своей беременностью Ли хочет выйти из игры, но Бо продолжает дело. Они встречают в поезде наивного парня Ша Гэня, который заработал 60 000 юаней на стройке. Бо решает одурачить парня и отнять деньги, однако на его защиту становится Ли и отговаривает Бо. Но богатого (   Читать дальше...   )Производство: Китай, Гонконг / Focus Films Co. Ltd., Huayi Brothers & Taihe Film Investment, Infotainment China...Жанр: драма, криминал, боевикРежиссер: Фэн СяоганАктеры: Энди Лау, Рене Лю, Гэ Ю, Ван Баоцян, Ли Бинбин, Fusheng Chen, Фань Вэй, Фэн Юаньчжэн, Фу Бяо, Гордон ЛамПеревод: профессиональный двухголосый (Кубик в Кубе), авторский (Юрий Немахов)Язык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 01:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DA5DD0F33C3F5EF06A67844C9A1C5FC5E46FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804395   (65625) от 29.06.2025
-
-Сборники - Chroma Supply - Ruminate: Experimental 3D Paint Textures [JPG, PSD, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти работы были созданы посредством экспериментального процесса слияния физических картин с цифровым 3D-программным обеспечением. Результатом является уникальная коллекция форм и структур.  Они привнесут оригинальность в различные проекты, такие как дизайн упаковки, брендинг/фирменная работа, концертные постеры, обложки альбомов и многое другое.Формат: JPG, PSD, ABRРазрешение файлов: 5000x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF03EAD8034CB7286C6CE7B22388C14861079346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804410   (65624) от 29.06.2025
-
-Оверлеи - Envato - 10 Grunge Scratch PNG - CVP5BH2 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улучшите свои визуальные эффекты с помощью этого аутентичного набора из 10 текстурных оверлеев «Grunge Scratch». Эти оверлеи содержат грубые, шероховатые текстуры, включая едва заметную зернистость пленки, царапины на краях, пыль и аналоговый поверхностный шум — идеально подходят для добавления глубины, настроения и винтажного штриха к вашим творческим работам.Формат: PNGРазрешение файлов: 6000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95A3DFD5604088C938A1D30FB85F886029120DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804475   (65623) от 29.06.2025
-
-Изабель Ибаньез | Тайны Нила (Книга 1). О чем молчит река (2025) [MP3, Екатерина Салова и др.]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Способно ли одно-единственное письмо изменить жизнь? Инес Оливера точно знает – да! Известие о загадочной гибели родителей в пустыне Египта заставляет ее отправиться в опасное путешествие. Оставив позади роскошный Буэнос-Айрес, Инес плывет в экзотическую Александрию к дяде. Но ее появлению никто не рад. Дядя намерен отправить Инес домой, и в этом ему помогает самоуверенный (   Читать дальше...   )Жанр: ФантастикаИздательство: Азбука-АттикусПродолжительность: 15:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6855D654497175798B0621CAD49715766D18FA1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804321   (65622) от 29.06.2025
-
-Styx - Circling From Above (2025) [MP3|320 Kbps] <AOR, Progressive Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circling From Above (01:56)
-02. Build And Destroy (03:52)
-03. Michigan (03:03)
-04. King Of Love (03:29)(   Читать дальше...   )Жанр: AOR, Progressive Rock, Hard Rock, Pop RockПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6415679B6ECA1577CE64C6FD19735338C9988AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804334   (65621) от 29.06.2025
-
-Фоны - Envato - Radial Light Burst #03 - 65NYGZQ [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите свои визуальные эффекты с помощью этой динамичной коллекции из 10 оранжевых ярких волновых фонов. Каждый фон отличается плавными плавными изгибами, теплыми градиентными переходами и смелой энергией — идеально подходит для создания высокоэффективных современных визуальных эффектов.Формат: PNGРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C71E68B5151D0E261D26A82B1DAF1EC3AC0493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804500   (65620) от 29.06.2025
-
-Grace Hayhurst - The World is Dying (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sludge, Progressive, Post-Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue [00:01:23]
-02. The World Is Dying [00:07:30]
-03. And It's Our Fault [00:07:07]
-04. Us vs Them [00:05:12](   Читать дальше...   )Жанр: Sludge, Progressive, Post-MetalПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6546D83E44876D06B5DBD7E272EE1BF245B48D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804356   (65619) от 29.06.2025
-
-Bennie Green - with Art Farmer (1956) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Blue Heaven [5:27]
-02. Skycoach [5:31]
-03. Cliff Dweller [5:51]
-04. Let's Stretch [10:52](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4011BA41879DE8041D612CDF327A7DEC0D686D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804388   (65618) от 29.06.2025
-
-MotoGP. Этап 10 из 22. Гран-при Нидерландов. Квалификация (28.06.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65618.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 июня 2025, суббота. 11:50 МСК этап 10 Ассен. Гран-при Нидерландов. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5EFA07F596BAEC2B4D65E51E858E28CB715604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804358   (65617) от 29.06.2025
-
-HateSphere - Hatred Reborn (2023) [FLAC|Lossless|image + .cue] <Death Metal, Thrash, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Awakening 02:23
-02. Hatred Reborn 04:10
-03. Cutthroat 04:12
-04. Gravedigger 03:57(   Читать дальше...   )Жанр: Death Metal, Thrash, Groove MetalПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECF2F35B8570354CA092446B9316DF7CB2F7BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804498   (65616) от 29.06.2025
-
-Creeping Fear - Realm Of The Impaled (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65616.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Path to Obscurity
-2. Dismembered And Thrown Into Black Flames
-3. Demonic Ascent
-4. Realm Of The Impaled(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23F21540B4083CD5955ABE697FE91756B3FBFD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804454   (65615) от 29.06.2025
-
-Avkrvst - Waving At The Sky (2025) [FLAC|Lossless|image + .cue] <Prog Rock, Progressive Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Preceding 3:14
-2. The Trauma 5:17
-3. Families Are Forever 7:49
-4. Conflating Memories 6:59(   Читать дальше...   )Жанр: Prog Rock, Progressive Metal, Melodic Death MetalПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC5CE9FBEC556E96E692F4C32E5EB85EBF94015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804426   (65614) от 29.06.2025
-
-Grupo Bryndis - Tu Amor Secreto (1995) [FLAC|Lossless|WEB-DL|tracks] <Latin, Cumbia>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tu Traición [00:03:34]
-02. Eres (Album Version) [00:03:41]
-03. Secreto Amor [00:03:29]
-04. Tu Lugar Se Ocupó (Album Version) [00:03:08](   Читать дальше...   )Жанр: Latin, CumbiaПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362D6876A67CFA17F709D188DDEE03A8BB07325C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804419   (65613) от 29.06.2025
-
-MotoGP. Этап 10 из 22. Гран-при Нидерландов. Спринт (28.06.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65613.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 июня 2025, суббота. 16:00 МСК этап 10 Ассен. Гран-при Нидерландов. Спринт (13 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617088A6DE02C827523073AA867D69C11B5167E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804442   (65612) от 29.06.2025
-
-Broken Fate - Horizon (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stolen Art (04:43)
-02. Another World (04:56)
-03. All the Reason (03:54)
-04. Majority (05:45)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57166881A1661F44446EC324B88A2D6948E4BEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804260   (65611) от 29.06.2025
-
-The Biscuit Merchant - Tempora (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Modern Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temporal Delusion [00:03:27]
-02. Kill Time [00:06:33]
-03. Victorious [00:05:13]
-04. Judgment Day [00:09:08](   Читать дальше...   )Жанр: Progressive Metal, Modern Metal, Melodic Death MetalПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42890E85DC57A365C1D61553F721A411A93A5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804390   (65610) от 29.06.2025
-
-Heaven Shall Burn - Heimat (2025) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
+Dessiderium - Keys to the Palace (2025) [MP3|320 Kbps] <Melodic, Progressive Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65610.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Keinen Schritt zurück [00:04:36]
-02. Schweineherbst [00:03:16]
-03. Eisenkopf [00:03:51]
-04. Destroy Fascism (Too Good to Steal from Edition) [00:01:58]Жанр: Melodic Death Metal, MetalcoreПродолжительность: 2 CD, 01:04:50
+01. In the Midst of May
+02. Dover Hendrix
+03. Pollen for the Bees (Pt. 1)
+04. Pollen for the Bees (Pt. 2)(   Читать дальше...   )Жанр: Melodic, Progressive Death MetalПродолжительность: 01:02:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:726C008623524CA7030734DB183B97846A589F93
+magnet:?xt=urn:btih:1607DF9AE499E2E97CD9E296EBFABAC27C102CFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804261   (65609) от 29.06.2025
+###  Публикация: 1795753   (67025) от 06.05.2025
 
-Scott Sellers - One and, and, and, and One and, and Three and, and (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk / New Wave>
+Леонид Андреев | Ангелочек. Христиане (2015) [MP3, Алексей Емельянов]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65609.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Now Or Never [00:02:35]
-02. Commit-Submit [00:03:03]
-03. Conquer [00:03:11]
-04. Feel Better [00:02:39](   Читать дальше...   )Жанр: Punk / New WaveПродолжительность: 00:39:40
+Серия/Цикл: Звучащая библиотека. Малая проза.
+Леонид Николаевич Андреев (1871–1919) – русский писатель, прозаик и драматург, один из самых знаменитых писателей России начала 20 века.
+Рассказ Л.Н. Андреева «Ангелочек» впервые опубликованный в газете «Курьер» (1899).
+Рассказ «Христиане» был написан Л.Н. Андреевым в 1905 году. Впервые рассказ был опубликован в «Журнале (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:21:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF8748DB7941904023D5671600A142245A61D88E
+magnet:?xt=urn:btih:AB5FBB0C391F4E04BF7D3AB73D9E68220952D14E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,28 +82,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804466   (65608) от 29.06.2025
+###  Публикация: 1795795   (67024) от 06.05.2025
 
-Wanted - Cutting Edge (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Безумие Манхэттена / Manhattan Madness (1916) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стив О'Дэйр, состоятельный молодой человек с Запада, по делам приезжает в Нью-Йорк, откуда он родом и где учился в университете. Он встречается с друзьями по студенческой жизни, весело проводит время. Но после многих лет жизни на Западе, жизнь в большом городе кажется ему слишком пресной, без острых ощущений. И он все время ноет об этом, раздражая друзей...
+Качество (   Читать дальше...   )Производство: США / Fine Arts Film CompanyЖанр: боевик, мелодрама, комедия, вестерн, немое киноРежиссер: Аллан ДуонАктеры: Дуглас Фэрбенкс, Джевел Кармен, Джон Ричмонд, Юджин Ормонде, Джордж Беранджер, Рут Дарлинг, Macey Harlam, Норман Керри, Альберт МакКуорри, Адольф МенжуПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1227EF33F6A7496C10668D612B99D5D5CA3F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795805   (67023) от 06.05.2025
+
+Hyena - About Rock and Roll (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65608.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cutting Edge
-02. Override
-03. Power
-04. Wasted Heart(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:05
+01. Nightriders
+02. About Rock and Roll
+03. The Eternal Zero
+04. Hail the Fire(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62D59DADF52F68F5535F5DEC43A5567275BDD47D
+magnet:?xt=urn:btih:2921AD6FE8F77013F1771E165B42D50EB1E211BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,28 +138,603 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804384   (65607) от 29.06.2025
+###  Публикация: 1795755   (67022) от 06.05.2025
 
-Enemy Ac130 Above - Cosmic Apotheosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
+Леонид Андреев | Иностранец (1996) [MP3, Сергей Бехтерев]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65607.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Diminishing Light [00:05:02]
-02. Vector Gamma [00:04:22]
-03. Nocturnal Vapor [00:04:39]
-04. Limitless Subversion [00:03:20](   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:45:57
+Серия/Цикл: Звучащая библиотека. Малая проза.
+Леонид Николаевич Андреев (1871–1919) – русский писатель, прозаик и драматург, один из самых знаменитых писателей России начала 20 века.
+Рассказ Л.Н. Андреева «Иностранец», написанный осенью 1901 года, и сегодня, более чем через 120 лет после написания, звучит очень остро…
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:51:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A9FCCC009897A840838943B6D57C10EF12FD9BB
+magnet:?xt=urn:btih:3CF46A9D1C17E928E592AEFDC35353857B7E398B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795762   (67021) от 06.05.2025
+
+НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 1-й матч) Флорида Пантерз - Торонто Мэйпл Лифс (05.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67021.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 мая 2025, вторник. 03:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 19 031 зритель (94% при вместимости 20 270)
+Главный судья: Крис Руни (Бостон, США); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Райан Дейзи (Мансфилд, США); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: setanta sportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 02:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60963C5110715B35B70AD62DAD1B7D04A0E209F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795702   (67020) от 06.05.2025
+
+Slizard - Wicked Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undead Nightmare (07:27)
+ 02. To Neverland (04:31)
+ 03. Outstretched Arms (03:20)
+ 04. No Way Out (03:26)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58E66C211AFB224445B6FAC11F7F155B78FB471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795944   (67019) от 07.05.2025
+
+Blood Incantation - Starspawn (2016) Released, 2021, Century Media [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67019.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vitrification Of Blood (Part 1)
+A2 Chaoplasm
+B1 Hidden Species (Vitrification Of Blood Part 2)
+B2 Meticulous Soul Devourment(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9719182439FBF2997A2730134A356A4698923EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795878   (67018) от 07.05.2025
+
+Dissentient - Studio Albums (4 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dissentient - канадская метал-группа из Оттавы, Онтарио, образована в 2005 году.2011 - Black Hole Machine
+2013 - The Archillect (EP)
+2019 - Portal III
+2023 - Labyrinth(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 03:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0E7BE7295FF703BAC699862AFC7021626D834F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795888   (67017) от 07.05.2025
+
+Inherited - No Regret (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Regrets
+02. Urban Guerrilla
+03. Spiritual Butcher
+04. Hard Life(   Читать дальше...   )Жанр: Thrash, Groove Metal, HardcoreПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C95AF0F864B94A6DB2C029C28BDABA0EB11984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795940   (67016) от 07.05.2025
+
+Ella Fitzgerald - Like Someone In Love (1957) 1991, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's a Lull in My Life [3:28]
+02. More Than You Know [3:17]
+03. What Will I Tell My Heart [3:32]
+04. I Never Had a Chance [2:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51356707AFA35DBB49A05AD2912BDCAE10AF236A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795977   (67015) от 07.05.2025
+
+Morcolac - Sanguinaria (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sanguinaria (07:00)
+02 - Ominous Castledusk (06:07)
+03 - Blacklight Torches From Below (05:27)
+04 - Dragonbanners Draw The Horizon (06:01)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF77F0D8EF5A3AAAE85E9065309FD02E12BA473A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796127   (67014) от 08.05.2025
+
+Футбол. Fonbet Кубок России 2024/25. Путь РПЛ Финал (игра-1). Зенит (Санкт-Петербург) - ЦСКА (Москва) (30.04.2025) WEBRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67014.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Зенит» и ЦСКА встретятся в финале Кубка России Пути РПЛ. Это двухматчевое противостояние, как известно, из турнира очень трудно вылететь. У ЦСКА солидное преимущество перед «Зенитом» по победам в Кубке страны в целом – 13 против шести с учетом советского периода отечественного футбола. Команды подходят к первому финальному матчу на Пути РПЛ с беспроигрышными сериями (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 02:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6230A76CF52FCA9767F6E40B29B9678C6CEF16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795936   (67013) от 08.05.2025
+
+Epic Death - The Seer (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freya's Fire
+02. The Berserker's Axe
+03. Warrior
+04. Odin The Seer(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0D712617653E1E6370B80AA976D225D4ACC2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796159   (67012) от 08.05.2025
+
+Coleman Hawkins With Billy Byers And His Orchestra - The Hawk In Hi-Fi (1956) 2001, Bluebird [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body and Soul [5:00]
+02. Little Girl Blue (take 3) [3:04]
+03. I Never Knew (take 5) [3:07]
+04. Dinner For One Please, James (take 3) [3:12](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5007CF868E8DDF5946989CB9E068625712A6F73F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796101   (67011) от 08.05.2025
+
+Bowers Foreman - The Boy Who Learned To Fly (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All That Defines You (4:06)
+02.  The Boy Who Learned To Fly (3:53)
+03.  Mad Man (3:30)
+04.  Car Park Station (3:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B80CEA0C85695EA589306D1336C8E232A4FD5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796118   (67010) от 08.05.2025
+
+Eric Elias Trio - HOME MADE (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Como vaya yo y lo encuentre (5:05)
+02.  Bak Bit (5:15)
+03.  Don't Follow the Red Lights (6:33)
+04.  El Temps Dirà (4:09)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7AFA203EE60D791A29C6AAFF52C2142E618801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796154   (67009) от 08.05.2025
+
+Haken - Liveforms: An Evening With Haken (Live in London 2024) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. The Last Lullaby (Live in London 2024) (02:11)
+ 02. Taurus (Live in London 2024) (04:44)
+ 03. Nightingale (Live in London 2024) (07:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB7AE066645F65515806C4CD4A342E622F57733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796100   (67008) от 08.05.2025
+
+Big Mike Hart - Modern Classic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Open Bar (4:19)
+02.  Passport (3:25)
+03.  Breeze (5:21)
+04.  Tidal Wave (3:29)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED9185358FB3C8C894A0192F8314622C0D4B058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796136   (67007) от 08.05.2025
+
+Lily of the Sea - Slow Violence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Fruit Tree (5:04)
+02.  Dear Trudence (3:03)
+03.  Slow Violence (2:41)
+04.  Hey Now (4:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D86E20589D663980C956380145EC709A42290F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796102   (67006) от 08.05.2025
+
+Christian Madden & The Enemy Chorus - Shinbone's Revenge (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twice As Thick (3:52)
+02.  The Skins (4:41)
+03.  Stoops Uprising (3:01)
+04.  Discorporate (3:54)(   Читать дальше...   )Жанр: FunkПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7A064651B981BF7F00DA370D2AB16E7B72EA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796131   (67005) от 08.05.2025
+
+Jonas Wall - Umbaji (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Oh Boy Roy (3:02)
+02.  Back Home (4:19)
+03.  Kings (5:57)
+04.  SunTan (4:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A312C3220481B47C79541D41E7364137E1C4F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796160   (67004) от 08.05.2025
+
+Roy Eldridge And Dizzy Gillespie - Roy And Diz (1954) 1994, Verve Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes I'm Happy [5:25]
+02. Algo Bueno [6:12]
+03. Trumpet Blues [7:57]
+04. Ballad Medley [11:19](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C276DBAB0F761D4CC5CB0738068DA5B94B106A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796177   (67003) от 08.05.2025
+
+Area - Crac! (1975) Japanese Edition, Reissue, 2007, Strange Days Records [FLAC|Lossless|image + .cue] <Experimental, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'elefante bianco
+02. La mela di Odessa
+03. Megalopoli
+04. Nervi scoperti(   Читать дальше...   )Жанр: Experimental, Prog RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DCDBA6ABDC37548610F5B5BD0285DEB01723BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795973   (67002) от 08.05.2025
+
+Gaia Metal - Pentandra (2025) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iluminados con Mugre
+02. Umbral
+03. Luna Eterna
+04. Resolución(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1936F929A34492B95198141219CFCCAC6048340B
 ```
 
 https://mybot314.ru/tekegram_catalog/

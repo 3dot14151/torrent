@@ -1,25 +1,22 @@
-###  Публикация: 1047787   (548506) от 31.08.2016
+###  Публикация: 990149   (551610) от 27.08.2016
 
-Хоккей. КХЛ 2016-2017. Спартак (Москва) – Динамо (Рига) (27.08.2016) HDTV [H.264/1080i-LQ]
+Phantomers (2016) [Ru] (34000m) License
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548506.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-27 августа 2016, суббота. 17:00 МСК
-Матч № 32
-Стадион: «ВТБ Ледовый дворец» (Москва, Россия), 7134 зрителя (57 % при вместимости 12500)
-(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Виталий Магранов, Алексей Бадюков)Продолжительность: 02:15:27
+Phantomers - онлайн-шутер с современной графикой, оригинальной системой прокачки оружия и реалистичной баллистикой. Стремительные сражения проходят на интерактивных, хорошо сбалансированных картах, которые переносят игроков в разные уголки планеты: от джунглей Амазонки до городов Ближнего Востока.Тип издания: LicenseРазработчик: Dream ExecutionЖанр: Action, MMO, 1st Person, ShooterЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B34D6C749DF2A837FE3CBBC3E6ADBBCCEAE848C2
+magnet:?xt=urn:btih:B2EBBB5F729E19DE3CC6E3012C52CECEE1C30C68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047811   (548505) от 31.08.2016
+###  Публикация: 1043491   (551609) от 27.08.2016
 
-VA - Finding Around Happiness  008 (2016) [MP3|320 Kbps] <Trance, Stadium Trance, Progressive>
+LoftSchool | Web-разработка для начинающих (2016) PCRec
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548505.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bobina  -  Sierra (Extended Mix)  5:07
-02. Feel & Two K  -  The End Is Near (Original Mix)  4:52
-03. Infected X  -  Pragma (Original Mix)  7:47
-04. Tommy Johnson Ft. Kim Kiona  -  Stormcaller (Extended Mix)  5:44(   Читать дальше...   )Жанр: Trance, Stadium Trance, ProgressiveПродолжительность: 01:12:34
+Если вы еще только начинаете свой путь веб-разработчика, тогда мы поможем вам получить полноценные структурированные знания, которые вы закрепите на практике, в условиях максимально приближенных к разработке.
+
+Посмотрев курс Вы научитесь:
+-Настраивать свою рабочую среду(   Читать дальше...   )Жанр: Вёрстка, HTML5, CSS3, JavaScriptПродолжительность: 02:18:37:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0624D8DA7974CBA585B12828A2E67501E6A3C88D
+magnet:?xt=urn:btih:1B316CA655675A61530A56ED09348969734AC7F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +53,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047832   (548504) от 31.08.2016
+###  Публикация: 1046404   (551608) от 27.08.2016
 
-Charles Gayle Quartet - Blue Shadows (1993) 2008, Silkheart[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+ITVDN & CBS | JavaScript Advanced + JavaScript Шаблоны + JQuery + AngularJS + ReactJS (2016) PCRec
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551608.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этих видеокурсах Вы получите больше практических знаний, которые помогут вам состояться успешным разработчиком. В программу видеокурсов входят конструкторы, прототипы, работа с окнами в браузере, с документами, событиями и многое другое.Жанр: ПрограммированиеПродолжительность: 81:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362532C4DB57A7D7A1E8193A057CCCA3605EA21E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237591   (551589) от 24.07.2018
+
+Gerry Gibbs and the Thrasher Band - Faces Unknown (2006) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post Bop, Fusion>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548504.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551589.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Inside the Sun [03:01]
- 02.Blue Shadows [11:31]
- 03.Eternity Promised 1 [17:14]
- 04.Eternity Promised 2 [02:09](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:10:22
+1. The Caribean Song (Gibbs) 6:08
+2. Chameleon (Hancock, Arr. Gibbs, Langham & Price) 6:46
+3. Maiden Voyage (Hancock, Arr. Gibbs) 8:50
+4. Blue Monk (Monk, Arr. Gibbs) 6:36(   Читать дальше...   )Жанр: Contemporary Jazz, Post Bop, FusionПродолжительность: 01:19:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F26D1BDC804ACB7F1DDF3816BFC9F02A102D7876
+magnet:?xt=urn:btih:8C8007D7ACFC0057850E49C6B01EF5C29C81812B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047979   (548503) от 31.08.2016
+###  Публикация: 1237508   (551588) от 24.07.2018
 
-Место встречи. Граждане - без языка? (31.08.2016) SATRip
+Софья Лаврентьева Ивановна | Детские забавы (1891) [PDF]
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548503.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551588.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.В этом выпуске: Почему в Латвии объявили охоту на русскоязычных чиновников? Во сколько прибалты оценили «советскую оккупацию»? И как Запад использует национальные разногласия против России?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:55:51
+Стихи для детей младшего возраста.Жанр: Детская проза, стихиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A73A4226D09282152C16B5322C4B066BFA1E5EC
+magnet:?xt=urn:btih:02481C276B85C6CD0FFDB099862A312E15EB8D8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047783   (548502) от 31.08.2016
+###  Публикация: 1237550   (551587) от 24.07.2018
 
-VA - Selections by Alexander Descroix (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Suanda Ibiza (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>Easy listening
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548502.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551587.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Zen Baboon - Chido Clara (5:40)
-02. Desert Dwellers - Saraswati's Twerkaba (5:36)
-03. Eat Static - Superior Technology Dub (6:34)
-04. Erot - Empty Thoughts (6:42)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:22
+01.Roman Messer ft. Christina Novelli - Fireflies (Extended Mix)
+02.LTN - Coconut Island (Extended Mix)
+03.Attila Syah vs J.Puchler & Xpectra ft. Joanna Angelina - Forever (Original Mix)
+04.HamzeH - A Thousand Times Over (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6870F8C05BEDC7E9DFBF372D747DAE0434F6A022
+magnet:?xt=urn:btih:ADE282F73DD1E788D045A0A892B422C40E8717F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +163,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047914   (548501) от 31.08.2016
+###  Публикация: 692508   (551581) от 24.08.2013
 
-VA - All Shades Of Sky - Uplifting Mix (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
+Журнал | Дачный совет №9 (сентябрь 2013) [PDF]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548501.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Joop  -  The Future (Mateusz Remix)  5:43
-002. Lence & Pluton  -  No More Fire (Original Mix)  5:38
-003. Airscape  -  Beautiful Tomorrow (Original Mix)  5:30
-004. Marcel Woods  -  Lemon Tree (Johann Stone Remix Edit)  3:37(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 12:50:12
+«Дачный совет» - верный помощник для садоводов и огородников в самый разгар дачных работ. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации адвоката, а также календарь дачных работ.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24C20FD0DC763A26932EBE0289F2BB8AE369D5EF
+magnet:?xt=urn:btih:C7EDF5933C70D0924899CB193D823B7318F0A7DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +189,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047919   (548500) от 31.08.2016
+###  Публикация: 815605   (551559) от 24.08.2014
 
-Johnny "Hammond" Smith - Talk That Talk (1960) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+Подшивка журналов | Теле-AudioVision №07-10 (июль-октябрь 2014) [PDF] [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548500.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Talk That Talk [05:12]
- 02.An Affair To Remember [02:36]
- 03.The End Of A Love Affair [05:22]
- 04.Minors Allowed [05:46](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:35:02
+Крупнейший в мире журнал о бизнесе цифрового ТВ. Представлены обзоры новинок электронных устройств и их характеристики, новости с международных выставок.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DEFF27108E63C476A12957FA810A39E8975F31DB
+magnet:?xt=urn:btih:7119FDD558377D87DEAEF1CBF8B69F7439F365F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +215,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047732   (548499) от 31.08.2016
+###  Публикация: 815775   (551546) от 24.08.2014
 
-VA - From Ibiza To Your Heart (2016) [MP3|320 Kbps] <Techno, Tech House>
+И.В.Ковалец | Смена сезонов (2012) [PDF]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548499.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mauro Picotto - Science (09:13)
-02. D. Diggler - Apricot (10:19)
-03. Margot - Er Suonone (05:53)
-04. Mauro Picotto - The Player (06:10)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 10:51:45
+В пособии ребенок найдет много интересных и познавательных заданий на тему времен года, которые даны с учетом его жизненного опыта. Выполняя эти задания, ребенок в игровой форме познакомится с основными признаками каждого времени года, с сезонными изменениями, которые происходят в живой и неживой природе. Узнает о занятиях и играх детей, которые различны в зависимости от времени года. Работая вместе с ребенком над пособием, Вы поможете расширить его познания о гармонии окружающего мира.
+Пособие предназначено (   Читать дальше...   )Жанр: учебное наглядное пособиеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12A21CC3C9A1ED01CCDDFD645A3E29BD2E98A21F
+magnet:?xt=urn:btih:CC7FD9B78F40DB7D504F1465CC07A6B5BFA790C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,28 +242,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047817   (548497) от 31.08.2016
+###  Публикация: 1236799   (551543) от 24.07.2018
 
-VA - Uplifting See You Again (2016) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
+Arkaine - X-Bone 004 (2011) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548497.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chris Metcalfe & Sue McLaren  -  Stardust (Original Mix)  6:27
-02. Cold Rush And Elles De Graaf  -  Daydreamer (Alan Morris Remix)  7:20
-03. Sound Apparel  -  Making End Of Heart Tale (2016 Remaster)  12:13
-04. Omar Sherif feat. Crystal Blakk  -  Hear You Calling (Extended Mix)  7:08(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 04:20:42
+01. Intelligence
+02. Voice Of DesireЖанр: HardstyleПродолжительность: 00:12:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7224C5F1A8B87525198B4E307039482FD187BFB6
+magnet:?xt=urn:btih:97B9E3927674D017CAEF84679A1ABBE2EB78A911
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,28 +269,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047767   (548496) от 31.08.2016
+###  Публикация: 1237500   (551542) от 24.07.2018
 
-VA - Heaven and Paradise Vol. 3 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Dtroy - Terra Incognita (2018) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abysmal13xm (05:22)
+ 02. Absent Drop (03:53)
+ 03. Blank Canvas (05:20)
+ 04. Fiscal Fracture (06:51)(   Читать дальше...   )Жанр: Electro, IDM, TechnoПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7120CD376E6AD1D9B6C3AA01C6EEE9147ECFB90E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236802   (551541) от 24.07.2018
+
+Atmozfears - Scantraxx 102 (2012) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atmozfears – Just Let Go
+02. Atmozfears & Phuture Noize – DestruktoЖанр: HardstyleПродолжительность: 00:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8F600BFEB1095EA74BDDB8F8D25B0899A0BF59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237504   (551540) от 24.07.2018
+
+The Exaltics - Das Heise Experiment 2 (2018) Solar One Music [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Experimental, Ambient>
 
 >>Electronic
->>Easy listening
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548496.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Backsoul System - Come Away with Me (Original Mix) (3:02)
-02. Edison Morris - Do Not Destroy (Original Mix) (3:13)
-03. Alexandre Mark - On Edge (Original Mix) (3:13)
-04. Jonic Elements - Until the Morning (Original Mix) (3:35)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:19
+01. 0001100.3.0 (02:18)
+ 02. 00022.000.8 (04:24)
+ 03. 00033.001.4 (04:12)
+ 04. 00044.00.1.5 (In Zusammenarbeit Mit Rudolf Klorzeiger) (05:56)(   Читать дальше...   )Жанр: Electro, IDM, Experimental, AmbientПродолжительность: 00:49:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A2D59BCE638EF7DF8CF246D593EAC82FF40600B
+magnet:?xt=urn:btih:8EFB5372E61C5B3F133EE1CFB90AC82C15970E89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,28 +354,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048037   (548495) от 31.08.2016
+###  Публикация: 1236804   (551539) от 24.07.2018
 
-VA - Paris Lounge (2016) [MP3|320 Kbps] <Chillout,Deep House>
+Atmozfears - Bella Nova (2013) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548495.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deeper Sublime - Femme Fatale (05:37)
-02. Twopandas - Make Me Alive (Slowdown Mix) (04:14)
-03. Matisse. Jury Jet. S. Khovansky - Early Sunrise (04:11)
-04. Project Blue Sun - About Love (07:34)(   Читать дальше...   )Жанр: Chillout,Deep HouseПродолжительность: 01:45:17
+01. Bella NovaЖанр: HardstyleПродолжительность: 00:04:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B53F85ECEE1494AD18F525C856DDC4BDF4C3FBD
+magnet:?xt=urn:btih:B503C84D9BDD3D7FF2E50EDF79B199DC00FFB61D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,25 +380,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309946   (548494) от 22.06.2019
+###  Публикация: 1236808   (551538) от 24.07.2018
 
-PDF Eraser Pro 1.9.4.4 RePack (& Portable) by TryRooM [En]
+Audiofreq & The Prophet feat. Teddy - Scantraxx085 (2012) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 
->>Утилиты, Офис, Интернет
->>Офисное ПО
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548494.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDF Eraser Pro - программа для редактирования файлов в формате PDF. При помощи этой программы Вы сможете удалить и стереть текст, изображения, логотипы и все ненужные объекты из PDF файлов. Пользователи могут использовать программу для удаления некоторого оригинального содержания из PDF файла, а затем добавить свой текст и изображения. Кроме того, PDF Eraser имеет (   Читать дальше...   )Язык интерфейса: Английский
+1.  Bring Me DownЖанр: HardstyleПродолжительность: 00:05:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43182C901179E39DA7F2344168793289AACB8ADA
+magnet:?xt=urn:btih:6F515062FDA5077B0E009D7F8F227E033E757CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,27 +406,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310011   (548493) от 22.06.2019
+###  Публикация: 1237509   (551537) от 24.07.2018
 
-PassMark BurnInTest Pro 9.0 Build 1016 RePack (& Portable) by elchupacabra [En]
+ScrollNavigator 5.9.0 RePack by KpoJIuK [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548493.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Passmark BurnInTest — профессиональная версия программы для всестороннего и детального тестирования компонентов компьютера. Утилита тестирует скорость процессора, оперативную память, жесткие диски, CD/DVD приводы, звуковые карты, видеокарты, принтеры, сетевые соединения.
+Программа, которая дает вам возможность колесом мыши прокручивать фоновое окно.
 
-BurnInTest Professional также может проводить тестирование последовательных (до 12 портов одновременно) (   Читать дальше...   )Язык интерфейса: Английский
+Программа, позволяющая сделать более точной, но в то же время динамичной, прокрутку колесика вашей мыши и сможет обеспечить перемещение по листам документов, имеющих стандартные полосы прокрутки, одновременно в обоих направлениях без необходимости перемещения курсора мыши на полосу прокрутки.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08C5EDCAAB805419D258B93FFF4714656A265AA5
+magnet:?xt=urn:btih:01DEB1E70A776F7EEF9D7307513C34ED41B2E712
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,25 +434,190 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309260   (548492) от 22.06.2019
+###  Публикация: 1237445   (551536) от 24.07.2018
 
-Astra Image PLUS 5.5.6.0 RePack (& Portable) by TryRooM [Ru/En]
+D BLOCK & S TE FAN feat MC VILLAIN - Evolutionz 017 (2011) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551536.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  The Magical MysteryЖанр: HardstyleПродолжительность: 00:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6830106472B4DEC467ED3934408C330446FEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237506   (551535) от 24.07.2018
+
+VA - We Love Summer (2018) 2CD [MP3|320 Kbps] <Dance, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551535.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Luis Fonsi & Stefflon Don - Calypso [03:20]
+02. Alvaro Soler - La Cintura [03:23]
+03. Jax Jones Feat. Mabel & Rich The Kid - Ring Ring [03:37](   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 02:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE4C9F17251F0BDCFD377902C273647B5169D3EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237563   (551533) от 24.07.2018
+
+Digilio Lounge Music - Relax Chillout Music Summer (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain Road 5:08
+02. For Only A Moment 4:05
+03. Serenade 5:07
+04. Blessings Peace 4:10(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 04:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D359715CAEFF28A6BBA245730373B563FC2C6E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236854   (551532) от 24.07.2018
+
+CRYPSIS - Break Down Low (2013) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551532.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Break Down LowЖанр: HardstyleПродолжительность: 00:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6078904F5D9AD526681526772A18D3EFC0C738B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237567   (551530) от 24.07.2018
+
+Обои - Wallpapers Full HD / Кошачьи #11 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1AEA0BD48D09ABC7440E60249B68D667410CBFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237452   (551528) от 24.07.2018
+
+Spiritual Evolution - Genesis (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551528.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In The Beginning (01:37)
+2. Let There Be Light (06:50)
+3. Earth (06:40)
+4. Oceania (05:45)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDBDCFB8BDA4CD62BFE3DFF4F6B93C810E26709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237535   (551527) от 24.07.2018
+
+FileZilla 3.35.1 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548492.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Astra Image PLUS - графический редактор, который позволит навести резкость и повысить разрешение цифровых изображений. Благодаря новой технологии обработки изображений, программа поможет улучшить и восстановить цвет и шкалу яркости изображения. Приложение позволяет вычислить статистические данные изображения, производить гистограммы, просматривать метаданные, получать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+FileZilla — это свободный многоязычный FTP-клиент с открытым исходным кодом для Microsoft Windows, Mac OS X и Linux. Он поддерживает FTP, SFTP, и FTPS (FTP через SSL/TLS) и имеет настраиваемый интерфейс с поддержкой смены тем оформления. Оснащен возможностью перетаскивания объектов, синхронизацией директории и поиском на удаленном сервере. Поддерживает многопоточную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D01D7660332393209A8FF51A44929D8A24A8FC6F
+magnet:?xt=urn:btih:7CF16936261702B4E262EABBB0B2F6B3C086B8A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,26 +625,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309929   (548491) от 22.06.2019
+###  Публикация: 1237570   (551525) от 24.07.2018
 
-Multrin 0.4.1 + Portable [En]
+Обои - Wallpapers Full HD / Кошачьи #10 [JPG]
 
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548491.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551525.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простая программа, которая позволяет организовать запущенные программы в одном окне в виде вкладок. Для этого необходимо всего лишь перетащить нужные окна в Multrin. Принцип работы интерфейса с вкладками напоминает классический веб-браузер.
-Поддерживает светлый и темный интерфейсы. Комбинация клавиш Ctrl + Tab осуществляет переключение между вкладками.Язык интерфейса: Английский
+Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AE1B8F3382D86C5D3CBACE35A508151B330F5C4
+magnet:?xt=urn:btih:61DB69544652EF065DA3E3F0435E99DAF9869D0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,25 +651,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309952   (548489) от 22.06.2019
+###  Публикация: 692670   (551519) от 24.08.2013
 
-Шэньчжэнь / Shenzhen (2019) WEBRip [VP9/2160p] [4K, UHD]
+Журнал | Вязание для вас №9 (сентябрь 2013) [PDF]
 
->>Документалистика и Телепередачи
->>Релакс / Relax
+>>Журналы
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548489.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551519.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сегодня Шэньчжэнь - это один из самых крупных и современных городов Китая, расположенный возле границы с Гонконгом. Мегаполис с населением свыше 10 млн. жителей. Китайская «силиконовая долина», по некоторым оценкам, производит большую часть всей бытовой электроники в мире. И трудно поверить, что всего 40 лет назад на этом месте была лишь рыбацкая деревушка с населением (   Читать дальше...   )Производство: КитайЖанр: Документальный, видовойРежиссер: Кин Шинг Джефф ИпПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:27
+В журнале представлен модный трикотаж: пуловеры, топы, платья. Модели выполнены на спицах и крючком - доступно проиллюстрированы фотографиями, подробными описаниями по выполнению работы, точными выкройками и схемами узоров.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A09A714A9FFA1585722D6892E6AD71B71094054A
+magnet:?xt=urn:btih:CE09CFB294E4A681FC59880A5CFBB6F32CD37388
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,262 +677,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309724   (548488) от 22.06.2019
+###  Публикация: 815792   (551494) от 24.08.2014
 
-Пилигрим  (2018) WEB-DLRip [576p] iPad
+Владимир Воланд | Все о Боге, что нужно знать атеисту (2015) [DJVU]
 
->>Аудио и Видео
->>Отечественное видео для устройств Apple
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548488.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В жизни Миры всё замечательно: она — владелица модной галереи, дома ждёт любящий муж. Но однажды на берегу моря находят мужчину с амнезией, который помнит её имя. Никто не знает, кто он. Его нет ни в одной базе данных. Но он знает о ней то, что может знать только очень близкий человек, хотя Мира ни разу в жизни его не видела. Благополучный мир Миры начинает разрушаться, (   Читать дальше...   )Производство: Россия / Кинокомпания «Север»Жанр: ТриллерРежиссер: Александр БаршакАктеры: Игорь Петренко, Елена Север, Алексей Серебряков, Владимир Ильин, Татьяна Васильева, Анна Банщикова, Дмитрий Мухамадеев, Дмитрий Куличков, Сергей Беляев, Павел КузьминПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:37:09
+В книге представлено конструктивное религиозное мировоззрение, с которым может быть полезным ознакомиться человеку атеистических и материалистических взглядов, а равно и наоборот, представителям традиционных религий. Книга также будет интересна всем духовно ищущим людям и людям с открытым разумом, чья позиция по вопросам религии еще не сформирована окончательно. Затрагивается весьма широкий круг тем, начиная от собственно религиозной проблематики и оканчивая такими далеко идущими вопросами, как политическое (   Читать дальше...   )Формат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A600071DA3E401EF0C23351507AD2585BE3286CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309416   (548487) от 22.06.2019
-
-Красный угол / Red Corner (1997) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преуспевающий американец Джек Мур, добившийся небывалого делового контракта в Китае, ощущал себя на вершине мира. Но торжество оказалось недолговечным. Он проводит ночь с прекрасной женщиной, после чего обвиняется в ее зверском убийстве. По милости непреклонного китайского правосудия, по которому подозреваемый равен виновному, Джек остается абсолютно одиноким, если (   Читать дальше...   )Производство: США, Avnet/Kerner Productions, Metro-Goldwyn-Mayer (MGM)Жанр: триллер, драма, криминалРежиссер: Джон ЭвнетАктеры: Ричард Гир, Бай Линь, Брэдли Уитфорд, Байрон Манн, Питер Донэт, Роберт Стэнтон, Цай Чинь, Джеймс Хонг, Тзи Ма, Ричард Вентура, Роджер Юан, Генри ОПеревод: Многоголосый профессиональный, двухголосый профессиональный, авторскийСубтитры: АнглийскиеПродолжительность: 02:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89655B12D5427761BCF443D38EA39252AAEF0A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309918   (548486) от 22.06.2019
-
-FastStone Image Viewer 7.3 RePack (& Portable) by KpoJIuK
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548486.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Image Viewer - вьювер, редактор и конвертор графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается пакетное изменение размеров и переименование картинок, удаление (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53136148F3A59FAC8254CDD404B5200A089ED64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309634   (548485) от 22.06.2019
-
-Caramba Switcher 2019.06.18 (beta) [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caramba Switcher - это новый, понятный автоматический переключатель раскладки клавиатуры, предназначенный для работы с русским, английским и немецким языками.Тип издания: macOS SoftwareРелиз состоялся: 20.06.2019Разработчик: Sergey MoskalevПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBC98D4B6B791677C026511982354C4ECA30FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310071   (548484) от 22.06.2019
-
-Капитан Марвел / Captain Marvel (2019) BDRemux [H.264/1080p] [2D/3D] [IMAX Edition] [ISO]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548484.jpg" />
-</div>
-
-
-###  Подробнее
-
-После столкновения с враждующими инопланетными расами, пилот военно-воздушных сил Кэрол Дэнверс обретает суперсилу и становится неуязвимой. Героине предстоит совладать со своими новыми способностями, чтобы противостоять могущественному врагу.Производство: США, Marvel Studios Inc.Жанр: Фантастика, боевик, приключенияРежиссер: Анна Боден, Райан ФлекАктеры: Бри Ларсон, Сэмюэл Л. Джексон, Бен Мендельсон, Джуд Лоу, Аннетт Бенинг, Джимон Хонсу, Ли Пейс, Лашана Линч, Джемма Чан, Кларк ГреггПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full, SDH), Английские (full, SDH, SDH Colored)Продолжительность: 02:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B2DC3DB4425EB99A3F283B2E1DD393581EAD0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356761   (548483) от 22.06.2019
-
-Планета деревьев 2 / Planete des Arbres 2 (2010) HDTVRip [H.264] (серии 1-9)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548483.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире насчитывается 100000 видов деревьев. О многих из них мы знаем с детства. Лист дуба, липы или еловая ветвь знакомы каждому. Но не все знают об удивительных фактах, которые раскрывает эта замечательная программа, посвящённая самым красивым и полезным для человека деревьям Европы и тропического пояса.Производство: Франция, Beta ProdЖанр: Документальный, природа, флора, фаунаРежиссер: Николя ГруоПеревод: Двуголосый закадровый, профессиональный (ТПО Ред Медиа)Субтитры: отсутствуютПродолжительность: серии x ~ 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B227A5FB94589EE3F9022A91EA7F8125CD54225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310001   (548479) от 22.06.2019
-
-FastStone Image Viewer v7.3 Corporate + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548479.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Image Viewer - вьювер, редактор и конвертор графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается пакетное изменение размеров и переименование картинок, удаление (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35ED4E62FF3AEC83ECA8C9348EB919377F12E534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309973   (548478) от 22.06.2019
-
-Семь пар нечистых / Рейс 13-01 (2018) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548478.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноименной повести Вениамина Каверина.
-1941 г. Бунт на корабле — это всегда страшно. Особенно, если это бунт заключенных против охраны: из людей выплескивается ненависть, от которой некуда деться в открытом море. Этот бунт может привести к смерти не только охраны судна, но и матросов, и лейтенанта Сбоева, плывущего с секретным грузом, и случайной пассажирки (   Читать дальше...   )Производство: Россия, АРК фильм при поддержке Фонда киноЖанр: боевик, драма, военный, приключенияРежиссер: Кирилл Астахов, Юрий ИльинАктеры: Юрий Борисов (II), Мари Ворожи, Василий Мищенко, Тимофей Трибунцев, Михаил Евланов, Александр Вершинин, Евгений Куршинский, Микаэл Джанибекян, Бесо Гатаев, Кирилл Белевич-ОболенскийПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6ABEAC243A700BD306ADF42826C51A108A95992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310017   (548476) от 22.06.2019
-
-Энн Руни | Математика за 15 минут (2016) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548476.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Математика за 15 минут» позволяет доступным образом понять математику как часть нашей повседневной жизни. Каждая глава отвечает на важный вопрос и разъясняет, как числа используются для передачи информации. Математика составляет основу всей науки, и именно благодаря ей человечество за века достигло такого огромного прогресса.
-
-Это мировое достижение и международный (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89BAA9BC6EABEC8AE1B2301775728FCE728CD34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309969   (548475) от 22.06.2019
-
-А. С. Пчелко, Г. Б. Поляк | Арифметика. Учебник для 3-го класса начальной школы (1955) [DJVU, PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник написан в русле так называемого классического образования, в русле традиций советской педагогической школы, получивших развитие в 30–50-е годы в СССР. Для учебника по арифметике это означает следующее: обилие текстовых задач, большое внимание к устному счету, постоянная апелляция к образному мышлению и интуиции без излишней формализации.Жанр: История, науковедение, арифметикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD1133726D4F0C7A7C1EAFC6171DA0B2BA2781A
+magnet:?xt=urn:btih:BC19566D523FDE09CBB8A8C5A656CB62C011048E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1685323   (126919) от 20.12.2023
+
+VA - Un poquito de Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seal - Anyone Who Knows What Love Is (4:31)
+02. Seth MacFarlane - If I Had A Talking Picture Of You (3:06)
+03. Al Jarreau - Someday (4:10)
+04. Tony Bennett - I Got Rhythm (1:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15CDC9168BC406B363C5D544680F8E1C2D24AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685833   (126887) от 20.12.2023
+
+Christian Sands - Christmas Stories (2023) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [5:52]
+02. Let It Snow! Let It Snow! Let It Snow! (feat. Jimmy Greene) [4:38]
+03. Have Yourself a Merry Little Christmas [4:49]
+04. God Rest Ye Merry Gentlemen (feat. Keita Ogawa) [5:45](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C70F55D5EAFCE786996212F0CF38C4C3BFA95BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685841   (126883) от 20.12.2023
+
+George Gee Swing Orchestra - Winter Wonderland (2023) Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Wonderland Mambo [3:25]
+02. What Child Is This? [5:16]
+03. Have Yourself a Merry Little Christmas [3:36]
+04. God Rest Ye Merry, Gentlemen [5:54](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5188D509535CEE5AA4A1D82D56CAF192E7A7DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685875   (126868) от 20.12.2023
 
 Pharoah Sanders Quartet - Live at Fabrik, Hamburg (1980) 2023, Jazzline [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Post-Bop>
@@ -657,93 +744,6 @@ Frank Morgan - Gene Norman Presents Frank Morgan (1955) 1989, Fresh Sound Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6FA3C37A54368F4807E55BD90BFEFAE6F6B2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687774   (125457) от 27.12.2023
-
-Frank Sinatra & Bing Crosby - Christmas Sing With Frank And Bing (1945 -1971) 1996, LaserLight [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bells [1:20]
-02. Mistletoe & Holly [1:50]
-03. Round & Round the Christmas Tree [2:12]
-04. Medley [6:57](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E4FDF7CA3151ECF0FA68C055E60472B7C08D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687385   (125438) от 27.12.2023
-
-Ramsey Lewis - Classic Encounter (1988) CBS [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Smooth Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. With a Gentle Touch [5:29]
-02. A Time for Love [6:20]
-03. J'aime la nuit (I Love the Night) [6:12]
-04. I Let a Song Go Out of My Heart/It Could Happen to You [5:54](   Читать дальше...   )Жанр: Crossover Jazz, Smooth Jazz, Piano JazzПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A698E141FB6E37763374B61DB1192DE0CDF68110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687387   (125436) от 27.12.2023
-
-Boston Brass & The Brass All-Stars Big Band - The Stan Kenton Christmas Carols (2006) Summit Records [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good King Wenceslas [1:49]
-02. God Rest Ye Merry Gentlemen [1:39]
-03. We Three Kings of Orient Are [2:13]
-04. Once in Royal David's City [2:14](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFA0D6128701B181153C184D51675F660AABDF29
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1278346   (771915) от 25.01.2019
+
+VA - Urban Drum And Bass Arena (2019) [MP3|320 Kbps] <Drum and Bass, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771915.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danger - Unknown Object
+002. Maverick Soul - Stranded
+003. Aweminus - Pants Floor
+004. Fourward - Make Some(   Читать дальше...   )Жанр: Drum and Bass, Electro BassПродолжительность: 10:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F336FA61F6A7F9159FC77BFF3632E1FD319954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278344   (771832) от 25.01.2019
 
 VA - Electro Dance Music: Winter Party (2019) [MP3|320 Kbps] <Club, Dance, House>
@@ -716,35 +745,6 @@ VA - Музыка в Авто от LORDEGRAF (2017) [MP3|320 Kbps] <House, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7FA22B520435B5836130D8D39C836AFBB9D3F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125585   (768096) от 15.04.2017
-
-VA - Visual Image: Extended Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768096.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Above & Beyond - A.I. (Original Mix) 06:29
-002. Manuel Rocca - Against The Wind (Braulio Stefield Remix) 07:36
-003. Lignum - Our Destination (Radio Edit) 03:12
-004. Above & Beyond, Justine Suissa - Little Something (Super8 & Tab Remix) 06:11(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 09:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FEA5762FE3BFA061E561D00BB9B67A5797B50C
 ```
 
 https://mybot314.ru/tekegram_catalog/

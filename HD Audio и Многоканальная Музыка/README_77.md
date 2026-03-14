@@ -1,3 +1,147 @@
+###  Публикация: 1679363   (138112) от 25.11.2023
+
+Foster & Allen - Reflections. 20 Best Loved Favorites (1987) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138112.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 True Love
+A2 Ramblin' Rose
+A3 I Love You Because
+A4 Goodnight Irene(   Читать дальше...   )Жанр: Celtic, Folk, Easy ListeningПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A7AA0F1D98679ACFBF1ACB9AD27491F0398F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679419   (138108) от 25.11.2023
+
+Old Gods of Asgard feat. Alan Wake & Mr. Door - Herald of Darkness (2023) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Herald of Darkness [13:35]
+02 - Herald of Darkness (Video Edit) [8:38]
+03 - Herald of Darkness (Radio Edit) [3:40]Жанр: Metal, Heavy MetalПродолжительность: 00:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D98D321DFE4B900D86604718F346467064EBAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088514   (138074) от 31.12.2016
+
+John Lennon & Yoko Ono - Double Fantasy (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138074.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. (Just Like) Starting Over (3:57)
+A2. Kiss Kiss Kiss (2:43)
+A3. Clean Up Time (2:59)
+A4. Give Me Something (1:35)(   Читать дальше...   )Производство: Geffen Records - GHS 2001Жанр: RockПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB95406EDB5EC49270208A11177AFDD1E23A082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349159   (137949) от 31.12.2019
+
+Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jitterbug Waltz (5:21)
+ 02. Nuages (2:26)
+ 03. A Night in Tunisia (5:55)
+ 04. Blue and Sentimental (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9664897486EBDB6E8D5CA8CF1AADEF4ABB3A8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679306   (137815) от 25.11.2023
+
+Tarja Turunen - From Spirits and Ghosts (2017) Score for a Dark Christmas, Special Edition, earMUSIC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sublime Gracia [00:04:44]
+02. Ô Viens, Ô Viens Emmanuel [00:04:59]
+03. O Christmas Tree [00:03:39]
+04. Feliz Navidad (Barbuda Relief and Recovery Charity Version) [00:06:36]Жанр: Symphonic Metal, Gothic MetalПродолжительность: 2 CD, 01:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD6024FE6D2BAD25ACB8CBE870C03CE90B1A9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679450   (137786) от 25.11.2023
 
 Freakstorm - Angel In The Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard-Rock, Miscellaneous>
@@ -599,151 +743,6 @@ Chicago - Chicago at Carnegie Hall - Complete (2021) Live [FLAC 24/192|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35965F821F49827389FA58D24C801500A6D66C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680168   (134644) от 28.11.2023
-
-Opeth - Pale Communion (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134644.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Eternal Rains Will Come (06:43)
-A2. Cusp of Eternity (05:34)
-B1. Moon Above, Sun Below (10:53)
-B2. Elysian Woes (04:48)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F06BE16125C39D0796051A37FD0283724566321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680192   (134642) от 28.11.2023
-
-White Heat UK - White Heat Perfect Storm (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss From The Devil [00:05:47]
-02. Feel The Heat [00:06:24]
-03. Guess I'm Still In Love With You [00:06:37]
-04. Chile Rose [00:05:24](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624424595B7F92D71D002BDCCD9B486BD7A9A31F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680082   (134611) от 28.11.2023
-
-The Hedrons - Tired of Taking (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Garage-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me a Chance (3:15)
-02. Only When it Rains (3:26)
-03. The Waters Coming In (2:37)
-04. Turn the Video Off (2:44)(   Читать дальше...   )Жанр: Rock, Garage-RockПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02433A9DEB681810549AD4DF62CD7A5C319C9E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680475   (134299) от 29.11.2023
-
-Квант ∞ - Зов долга (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Modern Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Волчий Мир
-02. Орда
-03. Быть Воином - Жить Вечно
-04. Медаль За Отвагу(   Читать дальше...   )Жанр: Heavy-Metal, Modern-MetalПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F4B28AB2D669518FB859BE6F58D69BE535ED95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680302   (134295) от 29.11.2023
-
-Sorcerer - Studio Albums (5 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sorcerer — шведская эпическая дум-группа из Стокгольма, основанная в 1988 году, распавшаяся в 1992 году и реформированная в 2010 году.1995 (2015) - Sorcerer
-2015 - In the Shadow of the Inverted Cross
-2017 - The Crowning of the Fire King
-2020 - Lamenting of the InnocentЖанр: Epic Doom MetalПродолжительность: 05:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC3ED87E069E8D7549EFC266D31E2662FEEC012
 ```
 
 https://mybot314.ru/tekegram_catalog/

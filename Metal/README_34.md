@@ -1,3 +1,32 @@
+###  Публикация: 1395337   (755658) от 10.07.2020
+
+Myridian - Light in the Abyss (2020) [MP3|320 Kbps] <Melodic Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Is Lost (10:54)
+ 02. Nidellavir (12:58)
+ 03. Babylon (07:50)
+ 04. The Poet (09:19)(   Читать дальше...   )Жанр: Melodic Death Metal, Doom MetalПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FA5E86934151B9B9FF3D31FB700B8C7FD617EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018361   (755619) от 20.05.2016
 
 Katatonia - The Fall of Hearts (2016) [MP3|320 кб/с] <Gothic Metal, Doom Metal>
@@ -713,35 +742,6 @@ Architects - All Our Gods Have Abandoned Us (2016) [MP3|320 кб/с] <Metalcore,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BE461DDB86171F8401C8AE9C537D3509E7B4757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216756   (747927) от 01.04.2018
-
-Realms Of Vision - Through All Unknown (2018) [MP3|320 кб/с]<Stoner Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747927.jpg" />
-</div>
-
-
-###  Подробнее
-
-[00:19] 01. Invoke
-[07:00] 02. State Of Silence
-[04:30] 03. Deception Mask
-[03:11] 04. Two Wolves(   Читать дальше...   )Жанр: Stoner Metal, Progressive MetalПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B5A355068900838926E7B14692EBE99EB63A25
 ```
 
 https://mybot314.ru/tekegram_catalog/

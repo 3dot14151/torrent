@@ -1,3 +1,138 @@
+###  Публикация: 758389   (913394) от 18.02.2014
+
+Recovery Partition for ASUS X55VD / Windows 7 Home Basic (х64) SP1 [Ru/En]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913394.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ разделов Recovery жесткого диска ноутбука ASUS X55VD-SX007R
+Образ Asus_X55VD_full_b1_s1_v*.tib содержит в себе оригинальный MBR и скрытые разделы восстановления
+Образ создан программой Acronis True Image Home 2014 после первого включения ноута.Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C010F5CC656FADCD9A812283CD7C3E2FC975E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097473   (913362) от 27.01.2017
+
+Microsoft Windows 10 10.0.14393.447 Version 1607 (Updated Jan 2017) - Оригинальные образы от Microsoft VLSC [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FDAB584CDA21CD52854561BAB15A99EB207801A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097436   (913357) от 27.01.2017
+
+Microsoft Windows 10 Professional / Education 10.0.14393.447 Version 1607 (Updated Jan 2017) - Оригинальные образы от Microsoft VLSC [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB78F6C2C9B6BAA689C49610817F5DBA592E987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991588   (905561) от 28.02.2016
+
+Recovery USB-Flash for Lenovo IdeaPad 100-15IBD / Windows 10 Home (х64) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905561.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Lenovo_100_15IBD_W10.tib,
+записанный на ноутбуке Lenovo IdeaPad 100-15IBD (80qq003vrk) с помощью программы Windows Media Creator.
+Образ флешки создан программой Acronis True Image Home 2013.
+Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF664CD14788B46590A4ABC2DAB2CAF1BD624438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099836   (900636) от 03.02.2017
+
+Microsoft Windows Server 2016 RTM Version 1607 Build 10.0.14393.447 (Updated Jan 2017) - Оригинальные образы от Microsoft VLSC [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server - это проверенная масштабируемая платформа корпоративного класса для облачных сред и центров обработки данных, на которой можно разместить самые ресурсоемкие рабочие нагрузки и использовать широкие возможности восстановления для защиты от перебоев в обслуживании. Это позволяет ускорить процесс получения прибыли за счет упрощения основной инфраструктуры, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4928C0138801610D9BF3B287CEC512D33988A611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493384   (897107) от 02.09.2021
 
 Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1165] - Оригинальные образы от Microsoft [En]
@@ -546,141 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D52584D29E3027F6B1021F83FBC7A1E8F4A3A215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497338   (866451) от 21.09.2021
-
-Microsoft Windows 10.0.19041.1237, Version 2004 (Updated September 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.1237.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2730915A193A4A66889679DB0912B585A01C733E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497342   (866348) от 21.09.2021
-
-Microsoft Windows 10.0.19042.1237, Version 20H2 (Updated September 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1237.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642F559CAB2613F780FFAA661686DD9B3F2704B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497339   (866225) от 21.09.2021
-
-Microsoft Windows 10.0.19041.1237, Version 2004 (Updated September 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.1237.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BFE3A177780F99F90EFF5E0F08B04E4632B6E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497343   (866211) от 21.09.2021
-
-Microsoft Windows 10.0.19042.1237, Version 20H2 (Updated September 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1237.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F097AE47259349E254986534E4BF7148002FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497344   (866085) от 21.09.2021
-
-Microsoft Windows 10.0.19043.1237, Version 21H1 (Updated September 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1237.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C874B86F73F4A0078C916F04D5EFC6A7C9EFBB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

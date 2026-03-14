@@ -1,3 +1,61 @@
+###  Публикация: 1413828   (407266) от 05.10.2020
+
+Trilogy - Here It Is (1980) Reissue CD, 2009, MALS [MP3|320 Kbps] <Electronic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venice  (4:34)
+02. Breakthrough  (6:07)
+03. Changing Scene  (9:22)
+04. Andy  (6:12)(   Читать дальше...   )Жанр: Electronic, Progressive RockПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8723FF8AD72AEBCD7D833DBEA9CB5D1FEC3ED161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563337   (404447) от 21.10.2012
+
+VA - 100 Hits. Driving Rock 5 СD (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:17:21
+
+1. Don McLean - American Pie (Part 1)
+2. Al Stewart - Year Of The Cat(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169287   (404060) от 26.09.2017
 
 38 Special - 38 Special (1977) Remastered, 2013, Vivid Sound [MP3|320 Kbps] <Classic Rock, Southern Rock>
@@ -714,64 +772,6 @@ Pulatova - Рой (2018) [MP3|320 Kbps] <Post-Rock, Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20EDB0449AFAA802D02B0560D0FB03C1D488FC97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414138   (387872) от 07.10.2020
-
-Molly Hatchet - Battleground (2019) 2xCD Live [MP3|320 Kbps] <Hard Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387872.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. Bounty Hunter (Live) (03:11)
- 02. Whiskey Man (Live) (03:46)
- 03. Why Woun't You Take Me Home (Live) (03:20)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 01:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC17A6EF1E99F41965DC34E3595D74A8E0EFEB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574555   (385708) от 05.09.2022
-
-The Butterfly Effect - IV (2022) [MP3|320 Kbps] <Alt.Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IV (2:53)
-02. Dark Light (4:55)
-03. Wave of Tides (3:24)
-04. Nil By Mouth (3:12)(   Читать дальше...   )Жанр: Alt.Rock, Progressive RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C73B8748050C886A0061C4F69C77E9E1DEC824
 ```
 
 https://mybot314.ru/tekegram_catalog/

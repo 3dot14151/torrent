@@ -1,3 +1,148 @@
+###  Публикация: 522351   (39257) от 26.10.2024
+
+Lama (Лама) - 4 Albums + 11 Single's (2006-2023) [APE, FLAC|Lossless|image + .cue, tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39257.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 - Мені так треба
+2008 - Світло і Тінь
+2010 - Тримай (Нове та найкраще)
+2013 - Назавжди...Жанр: Pop, RockПродолжительность: 03:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78D79A4D5FF1DF7EBC02BB0C70EFC2B616B3763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757879   (38798) от 30.10.2024
+
+Leddra Chapman - Telling Truths (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (0:52)
+02. What If I (3:07)
+03. Paint Your Hometown (3:14)
+04. Type of Monster (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717CA997DC95B69A1B76E1A31C9EE21F4E1E0AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759034   (38129) от 06.11.2024
+
+VA - best music all the time (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Ha - Take On Me (3:48)
+02. Peter Schilling - Major Tom (Single Version) (3:59)
+03. Roxette - The Look (3:57)
+04. THE GOO GOO DOLLS - Iris (4:49)(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5A28FD10B3C1AF2AB8A05A6F1DE4C05A60F96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759548   (37776) от 09.11.2024
+
+VA - 90s Nostalgia 90s Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pet Shop Boys - Go West (2003 Remaster) (5:04)
+02. Babylon Zoo - Spaceman (Radio Edit) (4:00)
+03. Mase - Feel So Good (3:23)
+04. Spacehog - In the Meantime (4:59)(   Читать дальше...   )Жанр: PopПродолжительность: 04:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438854B549F3004FCAEDD2C3BB1ACFD2F330D4C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760042   (37596) от 11.11.2024
+
+VA - 80s Summer Chillout (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears for Fears - Everybody Wants to Rule the World (4:15)
+02. Katrina and the Waves - Walking on Sunshine (3:43)
+03. Don Henley - The Boys of Summer (4:50)
+04. Chris Isaak - Wicked Game (4:49)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 05:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D19C3F76B9F61D951C466F9CFC0B34C58C93D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760553   (37196) от 15.11.2024
 
 Gwen Stefani - Bouquet (2024) [FLAC|Lossless|WEB-DL|tracks] <RnB/Swing, Electronic, Pop>
@@ -599,151 +744,6 @@ Queen - Hot Space (1982) Japanese Edition, SHM-CD, Reissue, Remastered, Repress,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16A2FE43185ED83035E0168EA2DAAFC89FF31404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770279   (32408) от 31.12.2024
-
-Wings - Wings At The Speed Of Sound (1976) Japanese Edition, SHM-CD, Reissue, 2024, Universal Music LLC [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let ’em In
-02. The Note You Never Wrote
-03. She’s My Baby
-04. Beware My Love(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2AB0D8DD96D2C2CA16D4604AD0258D93D8B2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770513   (32322) от 01.01.2025
-
-Wings - Wings Greatest (1978) Japanese Edition, SHM-CD, Compilation, Reissue, 2024, Universal Music LLC [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul McCartney / Another Day
-02. Silly Love Songs
-03. Live and Let Die
-04. Junior’s Farm(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB526047FCF62240DFEC71AF065BCEC800F6C630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770495   (32292) от 01.01.2025
-
-VA - Joggen 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disclosure - You & Me (Rivo Remix) (3:28)
-02. Meduza - Fire (Official UEFA EURO 2024 Song) (2:48)
-03. Martin Garrix - Told You So (3:07)
-04. MC Menor JP - Menina de Vermelho (HUGEL Version) (2:23)(   Читать дальше...   )Жанр: PopПродолжительность: 03:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35653C1AFFF3E216E1A8E19D16FB4689065B04A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770641   (32197) от 02.01.2025
-
-Wings - Wings Over America (1976) 2xCD, Japanese Edition, SHM-CD, Reissue, 2024, Universal Music LLC [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32197.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Part One - UICY-80472:
-01. Venus and Mars / Rock Show / Jet
-02. Let Me Roll It
-03. Spirits of Ancient Egypt(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C35969D6409C973A13BE781B487393D321BA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770919   (32028) от 04.01.2025
-
-VA - 70s Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gerry Rafferty - Right down the Line - 04:28
-02. Fleetwood Mac - Go Your Own Way (2018 Remaster) - 03:39
-03. Chicago - If You Leave Me Now - 03:54
-04. Rod Stewart - Da Ya Think I’m Sexy - 05:31(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 04:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9A0C1DC4A7E36DB60D6BB3396477E0A97591A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

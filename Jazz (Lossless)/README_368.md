@@ -1,3 +1,90 @@
+###  Публикация: 1816004   (4647) от 02.09.2025
+
+Hans Koller - Minor Meetings (1958) 2014, Sonorama Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Blues [2:28]
+02. Hi-Fi [4:14]
+03. Blues Around Joe [3:29]
+04. Saba [4:03](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD47D61BA080AD686E066D8180BBE8E15AA7321A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816204   (4381) от 04.09.2025
+
+Zoot Sims - On The Korner (1983) 1994, Pablo [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hear a Rhapsody [8:20]
+02. Tonight I Shall Sleep [6:40]
+03. Pennies from Heaven [8:20]
+04. If You Could See Me Now [5:40](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2DA6745BC114B7932DA369F3C8DDE854150FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816593   (4274) от 05.09.2025
+
+Zoot Sims - I Wish I Were Twins (1981) 1998, Pablo [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish I Were Twins [5:13]
+02. Georgia on My Mind [5:41]
+03. Changes [5:17]
+04. The Touch of Your Lips [5:34](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2AAE4ECF2AFBC321A5E0CAC9F0D7EF959E0CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817177   (3729) от 08.09.2025
 
 VA - Greatest Hits from The Roaring Twenties: The Sound of the Jazz Age (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>

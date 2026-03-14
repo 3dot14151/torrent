@@ -1,3 +1,32 @@
+###  Публикация: 1121727   (799649) от 03.04.2017
+
+VA - Beatport Top 100 Trance March (2017) [MP3|192-320 Kbps] <Trance, Progressive Trance, Uplifting Trance,Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robert Nickson - Heliopause (Original Mix). 07:20
+002. Cold Blue - Once In Time (Original Mix). 07:10
+003. Fady & Mina - Akemi (Extended Mix). 08:22
+004. Sam Jones - Good Love (Original Mix). 07:16(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting Trance,Vocal TranceПродолжительность: 11:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6272F33BB2FA5604D3D47E22D26ECC1A54605B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121692   (799596) от 03.04.2017
 
 VA - Music For Your Car Vol.2 (2017) [MP3|320 Kbps] <Hand Up, Hardcore, Dance, Club>
@@ -719,35 +748,6 @@ VA - Beatport Uplifting Trance: Electro Sound Pack #95 (2020) [MP3|320 Kbps] <Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75225FABBEF44231747BA4D40CA50FCD8EAD5708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385277   (797812) от 24.05.2020
-
-VA - Record Super Chart 637 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Capon - Shut Up Chicken 2:31
-02. Cream Soda & ХЛЕБ - Плачу на техно 2:40
-03. Topic & A7S - Breaking Me 2:47
-04. Тайпан feat. Agunda - Луна не знает пути 2:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB1DF87FE913C98CA068F483A0DE08FA7A7BCD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1802648   (66026) от 18.06.2025
+
+Chris & Mike - unique (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  COLOURS (5:16)
+02.  UNIQUE (5:26)
+03.  RESPECT (6:34)
+04.  TYPICAL (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03BA55C84A9ADA7A845D6D6C948AD9C2413ED18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802666   (66025) от 18.06.2025
+
+Fred Hostetler - Blues Back Pages (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hey Corporate Vandals (3:22)
+02.  Your Mind Is on Vacation (4:15)
+03.  Taming the Wolf (7:13)
+04.  Deep Deep Well (5:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294CFA61F8239B254C910B8CF5927DE30A99585C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802672   (66024) от 18.06.2025
+
+Leo Cookman - Everyone Left (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You Don't Know (3:44)
+02.  In Mine (3:26)
+03.  Let Her Go (3:09)
+04.  Sleeping Dogs (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A3A70A4397936A2CE5BBB383118092190A8A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802659   (66023) от 18.06.2025
+
+David Cooper - David Cooper (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  On My Way Back Home (3:56)
+02.  Shine On (4:01)
+03.  This Rain's Just Passing Through (3:30)
+04.  We Give You Praise (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E596BEDFB50AADBDDF24E14AC28AF58D9606D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802671   (66022) от 18.06.2025
+
+Kjartan Hesthagen, Ledfoot, Markus O. Klyve, Tim Scott McConnell - Plain Simple Honesty (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All You Ever Had (4:10)
+02.  Plain Simple Honesty (3:48)
+03.  My Empty Heart (4:57)
+04.  Burning Blue (2:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F04359E2C1D883773CA6549477454AD149AC1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802652   (66021) от 18.06.2025
+
+Clementine Moss - Clem & Clearlight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hey Sweetheart (6:52)
+02.  Bar Broad Blues (4:21)
+03.  Coming to Meet the Blues (4:11)
+04.  Lt Blues (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C7AA1A82AD246CD67A6194B0D6A3F3F4AE358E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802675   (66020) от 18.06.2025
 
 Los Angeles Side Hustle - Los Angeles Side Hustle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Sea Breeze & Papik - Go Back (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DA59656D8A4506E3CC9DB88860F4569FDDAF1BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803186   (65843) от 22.06.2025
-
-Sonny Rollins - Freedom Weaver (1959) 3CD, 2024, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woody 'n' You [15:55]
-02. But Not for Me [17:39]
-03. Lady Bird [18:50]
-(   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0488CA1F9DC0830931726DCAE51645D44C27DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803680   (65829) от 24.06.2025
-
-Chilly Swing Band - Study Jazz with the Feel of a Spring Breeze (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Energetic Ambition Waltz (Key Db Ver.) (3:10)
-02.  Growth and Green Canopies (Key Eb Ver.) (2:12)
-03.  Achiever's Daily Theme (Key Ab Ver.) (2:14)
-04.  Blossoming Scholar's Journey (Key Ab Ver.) (3:06)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93713908B6F61E454E5E7AC34EB82EC38BDAE91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803683   (65826) от 24.06.2025
-
-Ds Dream Band Stillminati - Electro Swing Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hit the road (4:00)
-02.  All Night (4:00)
-03.  Cinnamon Swing (2:18)
-04.  Honey has spice (4:00)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6341D511EC4B3D21C02BBF48BDFFF540E500D46F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803700   (65823) от 24.06.2025
-
-VibeSeeker - Electro Swing 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Black Lace (2:17)
-02.  Crimson Moon (2:40)
-03.  Dark Desire (3:37)
-04.  Ghost In Your Arms (3:26)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0792D333AC499AF5A077F388E8D3C2C2A738A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803614   (65812) от 24.06.2025
-
-Eddie Palmieri & Cal Tjader - Bamboleate (1967) 2007, Fania Records [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bamboleate [3:25]
-02. We've Loved Before [2:30]
-03. Resemblance [5:40]
-04. Mi Montuno [5:23](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C67FEDB530F172DA825286D646F72D6E92706C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803679   (65808) от 24.06.2025
-
-Chilly Swing Band - Music to Listen to in The Middle of Your Work (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Imagination In Jazz (Key A Ver.) (2:33)
-02.  Sustained Endeavor Whispers (Key Eb Ver.) (3:00)
-03.  Deep inside the Head (Key Ab Ver.) (2:33)
-04.  Ideas Blossom Softly (Key C Ver.) (2:34)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731C978E9097FEA87BD7CAA828BD79BB5B644515
 ```
 
 https://mybot314.ru/tekegram_catalog/

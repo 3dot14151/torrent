@@ -1,3 +1,143 @@
+###  Публикация: 940891   (460060) от 28.09.2015
+
+VA - Hotel Voyeur (2005) [APE|image+.cue]<Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460060.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1Жанр: Pop/ElectronicФормат: 2 × CD, Compilation, MixedПродолжительность: 01:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0203476E2C6528754DD0466C67477A8D07D34B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059875   (459702) от 05.10.2016
+
+Pure Orchestra  - Singin' Dog (2002) [FLAC|Lossless|tracks + .cue] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459702.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. U And I (4:05)
+2. Nation (4:13)
+3. Why She Was There (3:45)
+4.  Say It (3:40)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2FA30F69A6E8AF0112EEC428B9551FF2DB7AB01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059804   (459447) от 05.10.2016
+
+Joe Dassin - Chante l'amour (1992) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459447.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Salut les amoureux
+2. Sometime Lovin'
+3. L'Ombre d'un amour
+4. La mal aimee du courrier du coeur(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43266923F292FD065A7B34DDB8649760206FD838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246812   (459166) от 12.09.2018
+
+Mylene Farmer (Mylène Farmer) - N'Oublie Pas (2018) Single [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N'oublie Pas (feat. LP)
+02. N'oublie Pas (Version Instrumentale)Жанр: PopПродолжительность: 00:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43330FB1994F601EBDD20B3DFCA5A53552551066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942048   (457461) от 29.09.2015
+
+VA - Romantic Collection. France (1996) [FLAC|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Joe Dassin - L'ete Indien  [4:32]
+ 02.  Patricia Kaas - Mon Mac A Moi  [4:15]
+ 03.  Charles Aznavour - Il Te Suffisait Que Je T'ame  [3:08]
+ 04.  Ennio Morricone - Le Vent, Le Cri  [5:18](   Читать дальше...   )Жанр: PopПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7959105474AE345E5F47DCA3BEC380011C9BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246870   (456637) от 13.09.2018
 
 VA - The All Time Greatest Love Songs of the 60's, 70's, 80's & 90's, Vol. II (1997) 2CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Ballads>
@@ -598,151 +738,6 @@ Ace of Base - Hidden Gems, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Eur
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E920B59EF55774145AA4527FA9E3D5A92F1D046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248414   (444791) от 19.09.2018
-
-VA - One Love (2007) 2CD [FLAC|Lossless|image + .cue] <Pop, Rock, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing Cars (4:27)
- 02. Somewhere Else (3:15)
- 03. If Tomorrow Never Comes (3:36)
- 04. If You're Not The One (4:02)(   Читать дальше...   )Жанр: Pop, Rock, Funk, SoulПродолжительность: 02:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81EE6733257C280154186CB1EDC8759CCE80BB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248350   (444328) от 19.09.2018
-
-VA - Lady In Red - A Collection Of Great Ballads (1995) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris De Burgh - Lady In Red (04:17)
-02. Berlin - Take My Breath Away (04:11)
-03. Terence Trent D'arby - Sign Your Name (04:36)
-04. Cyndy Lauper - True Colors (03:46)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F3DA5959C1D4B0670FF79475EAA1F04CA67FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248366   (444311) от 19.09.2018
-
-VA - Lady In Red - A Collection Of Great Ballads Vol.2 (1996) [FLAC|Lossless|tracks + .cue] <Pop,Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo Sayer - More Than I Can Say
-02. George Baker - Paris Nights
-03. Vanessa Paradis - Joe Le taxi
-04. Glenn Medeiros - Nothing's Gonna Change My Love For You(   Читать дальше...   )Жанр: Pop,RockПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646CCF4BC5DC496CD69C493B00C82E85E8E3D59C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944293   (442936) от 06.10.2015
-
-Julio Iglesias - Mexico (2015) [FLAC|Lossless|WEB-DL]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Usted
-02. Jurame
-03. Ella
-04. Fallaste Corazon(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861F2DF667C5AC56F438D1692C26007C0212D2AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409898   (440597) от 19.09.2020
-
-Sault - Untitled (Rise) (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strong (06:18)
-02. Fearless (04:09)
-03. Rise (01:01)
-04. I Just Want to Dance (04:21)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36FE4F853B134D5BBFED9824D7B4365DA85ED58
 ```
 
 https://mybot314.ru/tekegram_catalog/

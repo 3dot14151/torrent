@@ -1,3 +1,90 @@
+###  Публикация: 974180   (975800) от 12.01.2016
+
+VA - EdShar Music (10.01.16) [MP3|128-320 kbps]<DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliverse - Wormholes (03:20)
+02. Jarvis & Roughmath - Time (feat. Ivy J) (04:21)
+03. BH & Kirk Cosier - Slipping Away (feat. Cheney) (03:49)
+04. Tristam - My Friend (04:22)(   Читать дальше...   )Жанр: DubStepПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57142A50E04C73342F4F18A67B6AD557340207ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974810   (975795) от 12.01.2016
+
+VA - Alive Strong Best Of Hits (2016) [MP3|262-320 кб/с] <Electro, Club, Bigroom, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canberra - Rebirth
+02. Exis - Manifestation (Original Mix)
+03. The Fish House - Venture (Original Mix)
+04. Fedde Le Grand - The Noise (Original Mix)(   Читать дальше...   )Жанр: Electro, Club, Bigroom, Future HouseПродолжительность: 03:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0A06BF10E41F279A8A5C4F16C1AD5B83AB4975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974545   (975732) от 12.01.2016
+
+VA - Белая вьюга (2015) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975732.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Альбах Юлия и Мазур Дмитрий — Белая вьюга
+002. Андреев Сергей — Женщина кошка
+003. Волошин Валерий — Тапер
+004. Крестный Вадим — Не уходи(   Читать дальше...   )Жанр: ШансонПродолжительность: 09:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D83A01FF671A5A6CFD823B826A5A12BF4CC129F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357011   (975614) от 02.02.2020
 
 VA - German Top 100 Single Charts 31.01.2020 [MP3|320 Kbps] <Pop>
@@ -685,93 +772,6 @@ VA - Зимний Горячий Best-Hits (2016) [MP3|256 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95F6B957A24821BE85F7FA2CC0417EF87F9AACA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357770   (973170) от 04.02.2020
-
-VA - Beatport Progressive Trance: Pack 05 (2020) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973170.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aspiration - The Story
-002. Alextrackone - Show Me The Light
-003. Mr. Greidor - Rescued In A Storm
-004. Kiyoi And Eky - Kumpala (Extended Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB60251CA5B820945E377FF0772792DFE551841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975287   (973119) от 14.01.2016
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 - ( Зарубежный выпуск - 20 ) (2016) [MP3|256 - 320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C. C. Catch - Jump In My Car 2015 (Pushkin Rec exclusive) (05:05)
-02. Boney M - Happy Song (DJ Viduta & DJ DimixeR remix) (Radio Cut) (03:03)
-03. Bad Boys Blue - You-re A Woman (Split Mirrors Remix) (06:31)
-04. Desireless - Voyage Voyage (Euro Remix Remix) (06:14)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F0439333A1DA1DCF2923741C1A13073095678D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357582   (973002) от 04.02.2020
-
-Lita Ford - Can't Catch Me (2020) 2CD Compilation [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die For Me Only (Black Widow)
-02. Hungry
-03. Back To The Cave
-04. Ready, Willing And Able(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE2411DEC8074ACDD1FA966A49763D57FE836C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

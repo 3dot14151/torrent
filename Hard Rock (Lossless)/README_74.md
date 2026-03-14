@@ -1,3 +1,119 @@
+###  Публикация: 1650726   (224668) от 03.08.2023
+
+Rainbow - Denver 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_224668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes Of The World
+02. Love’s No Friend
+03. Since You Been Gone
+04. All Night Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A67B510644A176A915785DA185CE75E1076C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650741   (224565) от 03.08.2023
+
+Rainbow - Long Island 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_224565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes Of The World
+02. Love’s No Friend
+03. Since You’ve Been Gone
+04. All Night Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4E9F4A9C9643D0E0BEFD4EBEE7B12E353B4636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965776   (224537) от 15.12.2015
+
+Love - Reel to Real (1974) 2015, High Moon Records [FLAC|lossless|image + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Is Like a River (03:08)
+02. Stop the Music (03:02)
+03. Who Are You? (03:07)
+04. Good Old Fashion Dream (02:53)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5126C6A43E16E6FB375917BC3AC099F31A5736D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651014   (224161) от 04.08.2023
+
+Mammoth WVH - Mammoth WVH II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alt.Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_224161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right? [00:04:30]
+02. Like a Pastime [00:03:45]
+03. Another Celebration at the End of the World [00:04:35]
+04. Miles Above Me [00:04:02](   Читать дальше...   )Жанр: Hard Rock, Alt.Rock, Post-GrungeПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992E18A98DD2BAB46DC47840B237A7BA10BB524D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513535   (223933) от 29.11.2021
 
 Steelover - Glove Me (1984) Reissue, 2021, Mausoleum [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -631,122 +747,6 @@ Bad Kingz - Take Me Into Your Kingdom (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CC70A2DBBF96D8B5A8CD9D276112546582B77A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585430   (221568) от 22.10.2022
-
-Sammy Hagar & The Circle - Crazy Times (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro: The Beginning Of The End (01:50)
-02. Slow Drain (04:55)
-03. Feed Your Head (03:18)
-04. Pump It Up (03:01)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EA7ED9127D54522C038AF75A6221EFE5E58CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585475   (221514) от 22.10.2022
-
-SeaWitch - Well of Spells (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Psych, Occult>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Witches Forever
-02. Force
-03. Artemis Blue
-04. Shadows(   Читать дальше...   )Жанр: Heavy Rock, Stoner, Psych, OccultПродолжительность: 00:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC5B384E136FE4EB1AEDCD0AB5DF4AF814F9614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832892   (221294) от 30.10.2025
-
-Duff McKagan - Lighthouse: Live from London (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgiveness (04:11)
- 02. Chip Away (03:01)
- 03. This Is the Song (03:34)
- 04. I Saw God on 10th St. (03:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F7820408C95EA08F78B706B7DE069D462383AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651658   (221247) от 07.08.2023
-
-Joel Hoekstra's 13 - Crash Of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Knows Everything (4:57)
-02. Crash of Life (4:27)
-03. Damaged Goods (4:17)
-04. Torn Into Lies (5:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838CD77593E0866979FCF81077D72DD1011F5F37
 ```
 
 https://mybot314.ru/tekegram_catalog/

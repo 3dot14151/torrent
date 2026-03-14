@@ -1,3 +1,122 @@
+###  Публикация: 975495   (971936) от 15.01.2016
+
+Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность:01:12:34
+1.When You Believe (4:36)
+2.Sweetheart (4:22)
+3.I Still Believe (3:56)(   Читать дальше...   )Жанр: Pop, BluesПродолжительность: 01:09:28
+1.Fantasy (4:04)
+2.My all (3:52)
+3.Open arms (3:32)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B5C28923527AB5672012F13010B5F4C73FFD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975667   (971923) от 15.01.2016
+
+VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juanito - Amor de mis amores (3:11)
+02. Juanito - Bamboleo (2:43)
+03. Olivia Valere - Cantinero de Cuba (4:15)
+04. Chico Fuente - La Paloma (3:00)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975970   (970818) от 16.01.2016
+
+Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Stupendo fino a qui (03:49)
+ 02. - La vita in un anno (03:28)
+ 03. - Avro cura di tutto (03:40)
+ 04. - Vivere a colori (04:20)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B016579EED58892A5A8A26C982C6693085B367E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975967   (970804) от 16.01.2016
+
+VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro-Cuban>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gloria Estefan - No me dejes de querer (3:27)
+02. Chayanne - Boom boom (4:25)
+03. Ricky Martin - La diosa del carnaval (Spanish Eyes) (4:04)
+04. Azucar Moreno - Mamma mía (4:16)(   Читать дальше...   )Жанр: Latin, Merengue, Afro-Cuban, Europop, Salsa, BalladПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D238F66DABF2A9D6A156E174DE0AAA8B46550AB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976428   (969782) от 17.01.2016
 
 Tracey Thorn (Everything But The Girl) - Love And Its Opposite (2010) [FLAC|Lossless|image + .cue] <Pop, Electronic>
@@ -627,122 +746,6 @@ Carrie Underwood - Storyteller (2015) [FLAC|Lossless|tracks] <Pop, Pop Rock, Cou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F335BA23B70E3386F345554634CC418537FD068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978922   (961062) от 25.01.2016
-
-Philippe Chatel - Renaissance (2016) [FLAC|Lossless|tracks] <Chanson, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 heures du matin (2:49)
-02. L'absence (4:07)
-03. La fille dans la bouteille (3:03)
-04. Chanson du pere (2:26)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A294C66639F90FC291A969CC5DC782CF71B044B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360354   (960930) от 15.02.2020
-
-Аурика Ротару - Счастье-свободная птица (2006) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Счастье - свободная птица 3:20
-02. Двi голубки 3:25
-03. Сентименте 4:48
-04. Сопiлка 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1833FA687110A25F32C60DC4BCEAF4D2A85AC546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360453   (960726) от 15.02.2020
-
-Demis Roussos - Collected (2015) 3CD, Compilation [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rain And Tears [3:14]
- 02 - End Of The World [3:16]
- 03 - I Want To Live [3:53]
- 04 - Marie Jolie [4:40](   Читать дальше...   )Жанр: PopПродолжительность: 03:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3CE06A031F090BE4C6FB5BD091E345672B34A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747962   (959667) от 21.01.2014
-
-VA - Pure Italia (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Chanson, Ballad, Vocal, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что мы знаем о современной эстраде Италии? Три-четыре раскрученных имени (типа Рамаzzотти, Челентано, Пупо и т.д.). Между тем как Рим отличается от Флоренции или Венеции, а тем более от маленьких итальянских городков -  и все вместе они составляют неповторимый аромат настоящей Италии, так и вся палитра современной итальянской эстрады это вовсе не 3-4 раскрученных (   Читать дальше...   )01. Domenico Modugno - Dio Come Ti Amo (2:09)
-02. Drupi - Sambario (4:17)
-03. Nicola Di Bari - I Giorni Dell'Arcobaleno (3:03)
-04. Gino Paoli - La Gatta (2:10)(   Читать дальше...   )Жанр: Pop, Chanson, Ballad, Vocal, EuropopПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4FA5E65C50BF8558393084ECB051F1A95052B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

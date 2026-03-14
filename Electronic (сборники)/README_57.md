@@ -1,3 +1,32 @@
+###  Публикация: 1202329   (790539) от 28.01.2018
+
+VA - Workout Mix vol.11 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Electro House, Bigroom House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Amfree, Trash Gordon - Shimmy Shake (Again) (Extended)
+ 02-Raf Marchesini - Pull Over (Original Mix)
+ 03-Mercer & Mystique - Here Comes That Sound (Original Mix)
+ 04-Reel 2 real, Kolya Funk - Move it Song (DJ Che Mash Up)(   Читать дальше...   )Жанр: Club House, Electro House, Bigroom HouseПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989DB6E3A5655DA5559989BFD90B8F2946B21239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202342   (790528) от 28.01.2018
 
 VA - Private Lounge Vol.4 (2018) [MP3|320 Kbps] <Lounge,Deep House>
@@ -713,35 +742,6 @@ VA - Options Remake Of Tracks January -A- (2019) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:151D672B95C9540BFA8F1F0D7FC313A6121E7DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511100   (789312) от 20.11.2021
-
-VA - Liquid Blue: Relax Space Mix (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789312.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bobryuko - Magic Fly
-002. Lenny Mac Dowell - Te Quero
-003. Daniela Beck - Georgia On My Mind
-004. Stargazer - Because(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE5C60D33B1436CD455F342A85AFEECDD9CE2137
 ```
 
 https://mybot314.ru/tekegram_catalog/

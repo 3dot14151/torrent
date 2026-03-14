@@ -1,3 +1,177 @@
+###  Публикация: 1244920   (478097) от 03.09.2018
+
+Deák Bill Gyula - Hatvan csapás (2008) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hatvan csapas (3:48)
+02. A nagy generacio temetesere (2:53)
+03. Kene egy uveg bor (5:03)
+04. Let-e, aki let (2:38)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0483B4C1CC8BDCA8B08A9D95ABB9B7AE173D97AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938801   (478025) от 20.09.2015
+
+Rose Room - The High Life (2015) [FLAC|tracks|WEB-DL]<Jazz, Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The High Life (2:37)
+02. Edge of Love (3:54)
+03. I'm Confessin' (3:45)
+04. Sleads Street (2:51)(   Читать дальше...   )Жанр: Jazz, Swing, GypsyПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808A4BB26CAE79E1AE1CB22A97131ACF74BD0D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939100   (477923) от 20.09.2015
+
+Nils - Alley Cat (2015) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Of A Kind
+02. Alley Cat
+03. Don't Hold Back
+04. Saturday Night(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34C6EC457D178FB1385BDB26193F1FFD8527799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938928   (477909) от 20.09.2015
+
+Joanne Shaw Taylor - White Sugar (2009) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Home (04:50)
+02. Just Another Word (04:08)
+03. Bones (05:23)
+04. Who Do You Want Me To Be (03:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BED89842AF912A2B58EBDD6BC331179C1C1E9B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057186   (477721) от 27.09.2016
+
+Art Blakey And The Jazz Messengers - Reflections In Blue (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Reflections In Blue [04:49]
+ 02.E.T.A. [05:00]
+ 03.Say, Dr. 'J' [09:03]
+ 04.Mishima [06:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06104A44C8FFF81C3B74AEF181BF40FDD35BFFA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057044   (477714) от 27.09.2016
+
+Iiro Rantala, Lars Danielsson, Peter Erskine - How Long Is Now? (2016) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage (4:22)
+02. How Long Is Now (4:03)
+03. Snapchat (4:14)
+04. Taksim By Night (4:54)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F11608792E225A94520DDC4D3BF28942976E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057064   (477713) от 27.09.2016
 
 Max Roach, Clifford Brown Quintet - Brownie Lives! (Live At Basin Street And In Concert At Carnegie Hall) 2005 [WavPack|Lossless|image + .cue] <Jazz, Hard bop>
@@ -610,180 +784,6 @@ VA - Acoustic Audiophile Voices (2004) [FLAC|Lossless]<Vocal jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057370   (475481) от 28.09.2016
-
-The Tony Lustig Quintet - Taking Flight (2016) Bimperl Entertainment & Media[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Change Is Comin' [05:56]
- 02.Fraytown [08:52]
- 03.Prometheus [08:37]
- 04.For Wayne [06:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97613106C4274BE3485DD6ADA2FD5C89FE80310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057366   (475476) от 28.09.2016
-
-John Surman - Morning Glory (1973) 2016, Fledg'ling Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cloudless Sky [08:15]
- 02.Iron Man [13:03]
- 03.Norwegian Steel - Septimus [09:33]
- 04.Hinc Illae Lacrimae - For Us All [12:33]Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3962251F96B7CCF8928D93C17C1ED79F0BC9112E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057305   (475349) от 28.09.2016
-
-The Wicked Mercy - The Wicked Mercy (2013) [FLAC|Lossless|tracks] <Blues Rock, Southern Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Knows   (04:08)
-02. River Run Dry   (03:16)
-03. Gypsy Jazz   (03:40)
-04. Wanted Man   (03:54)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF13CC7E328E11061A3AAAF6EBFAE3D1E94C08A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057375   (475242) от 28.09.2016
-
-VA - Smooth Jazz Best of Sax (2016) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LeBron - Groove City
-02. Randy Scott - Woodward Avenue
-03. Elizabeth Mis - Slow Burn
-04. Michael Lington - The Serenade(   Читать дальше...   )Жанр: JazzПродолжительность: 01:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65404665F97C8C654D80466D57052F542875DFBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406493   (474909) от 03.09.2020
-
-Howlin' Wolf, Muddy Waters, Bo Diddley - The Super Super Blues Band (2018) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Distance Call
-02. Ooh, Baby / Wrecking My Love Life
-03. Sweet Little Angel
-04. Spoonful(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF5F9F82D8C9863EBA583E14FF596B30F8DCACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406412   (474781) от 03.09.2020
-
-VA - Blues Hits (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.B. King - The Thrill Is Gone |05:26|
-02. Chuck Berry - No Particular Place To Go (Single Version) |02:44|
-03. Muddy Waters - Mannish Boy (Single Version) |02:55|
-04. John Lee Hooker - Boom Boom |02:39|(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE79F693A08A2A97D56F2C173B297C4B5708EAE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

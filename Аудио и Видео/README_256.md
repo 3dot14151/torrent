@@ -1,3 +1,32 @@
+###  Публикация: 1515275   (169666) от 07.12.2021
+
+VA - Chill Out 2022 (Compiled by DoctorSpook) (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barby - Angel Droid (9:32)
+02. Sixsense - Wherever You Are (4:17)
+03. The Big Port - Another World (4:40)
+04. TrapaleX - BimBam (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1498448C828D9C8BF460124AB7D4B54AF836142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404230   (169664) от 11.12.2020
 
 Ярослав Гжендович | Гелий-3 (2020) [M4B|AAC]
@@ -707,35 +736,6 @@ Tool - Undertow (1993) [AAC|~327 Kbps] <Hard Rock, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC60F355DD63E4C355898BD66BF38958AB6C8298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515584   (169510) от 07.12.2021
-
-VA - 50 Chart Hits of 2021.2: The Workout Motivation Album (2021) [AAC|~331 Kbps] <Eurodance, Euro-House, Techno Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rinaldo Montezz, Romy - If I Can't Have You (Radio Mix) (4:01)
-02. B.G. The Prince Of Rap, Chrizz Morisson, Timi Kullai - Sugar (House Radio Mix) (3:23)
-03. Rick De Hey, Chrizz Morisson, Timi Kullai - Blue (Da Ba Dee) (Radio Mix) (3:40)
-04. Giorgio, Randy Norton - Mad World (House Mix) (3:02)(   Читать дальше...   )Жанр: Eurodance, Euro-House, Techno PopПродолжительность: 03:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DB85CD2A88C607CF6273D24A9C8FC3F9EB732B
 ```
 
 https://mybot314.ru/tekegram_catalog/

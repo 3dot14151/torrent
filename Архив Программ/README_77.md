@@ -1,3 +1,29 @@
+###  Публикация: 1450519   (1029001) от 26.02.2021
+
+InPixio Photo Maximizer Pro 5.12.7697 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029001.jpg" />
+</div>
+
+
+###  Подробнее
+
+InPixio Photo Maximizer - графическая утилита для увеличения цифровых снимков без потери качества исходного фото-изображения. Графический редактор позволит пользователю увеличивать фокусное расстояние до объекта и при этом вы получите фото-снимок, без потери качества исходного фото-изображения. Отдельное окно, в программе в InPixio Photo Maximizer Pro, позволит вам, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F79C7FBE164E0C64AB3F9EB8EDFE09AC6D86CBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450453   (1028998) от 26.02.2021
 
 Media Player Classic Home Cinema 1.9.10 RePack (& portable) by KpoJIuK [Multi/Ru]
@@ -647,32 +673,6 @@ CoolUtils Total Image Converter преобразует изображения в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:903E29D1EB8BCC06C35083B1DC3654386F7858C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451041   (1028647) от 28.02.2021
-
-MetaProducts Offline Explorer Enterprise 8.0.4880 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028647.jpg" />
-</div>
-
-
-###  Подробнее
-
-MetaProducts Offline Explorer Enterprise — мощнейшая программа, позволяющая скачивать как отдельные файлы, так и целые веб-сайты (HTTP, FTP и HTTPS) на жесткий диск для их последующего офлайн просмотра как на отдельном компьютере, так и пользователями целой локальной сети. Используя Offline Explorer Enterprise, вы можете одновременно качать неограниченное количество (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1AD50E735ABAA785EE18B8E50A4CF988586AAF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,146 @@
+###  Публикация: 1738402   (106332) от 22.07.2024
+
+Plague Pits - Bukolik (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Coldwave, Minimal Wave, Synthpop, New Wave, EBM, Industrial, Post-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Binary Stars [00:05:09]
+02. Future Pastoral [00:03:38]
+03. Echoes [00:03:39]
+04. Blok [00:04:28](   Читать дальше...   )Жанр: Coldwave, Minimal Wave, Synthpop, New Wave, EBM, Industrial, Post-PunkПродолжительность: 00:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37D41DD3CB8F1D4E86FE032216EE68C7AD3299E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738483   (106330) от 22.07.2024
+
+Ontborg - Studio Albums (2 releases) (2019-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ontborg - мелодик-дэт-метал группа из Мерано, Южный Тироль, Италия.2019 - Within the Depths of Oblivion
+2023 - Following the Steps of DamnationЖанр: Melodic Death MetalПродолжительность: 01:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58410043C9F42253DDA1B1E9CFCB3DBC512B22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738404   (106329) от 22.07.2024
+
+Maduro - End In Noise (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <EBM, Darkwave, Darkpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lips Like Venom [00:03:30]
+02. End In Noise [00:03:52]
+03. With Your Ghost (Vanished) [00:04:58]
+04. Taste Of You (Edit) [00:03:55](   Читать дальше...   )Жанр: EBM, Darkwave, DarkpopПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A34A6D2B2C82F8DCCAA8DC8943654EBA5599AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738265   (106315) от 22.07.2024
+
+Riverside - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock/Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Riverside — польская рок-группа, образовавшаяся в 2001 году в Варшаве.2003 - Out of Myself
+2005 - Second Life Syndrome
+2007 - Rapid Eye Movement
+2009 - Anno Domini High DefinitionЖанр: Progressive Rock/MetalПродолжительность: 11:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EA5A946EB3399EC006EFD379ED67DEC271FED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738541   (106304) от 23.07.2024
+
+Peter Frampton - Frampton (1975) SACD, Remastered, 2023, Intervention Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock & Roll, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Day's Dawning 3:55
+02 - Show Me The Way 4:05
+03 - One More Time 3:21
+04 - The Crying Clown 4:05(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3DBCB429DACA8E5DDF063C7169CCBF1AE0BF444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738527   (106299) от 23.07.2024
 
 Sara D'Angelo - Drunken Monkey (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -600,149 +743,6 @@ Ronan Jade - Midnight Serenade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DAA59FA4ED8FA291053167796DF7E35C4C7EF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739346   (106128) от 27.07.2024
-
-CAGMO - Симфония Король и Шут (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лесник [00:03:22]
-02. Смельчак и ветер [00:02:57]
-03. Два друга и разбойники [00:02:16]
-04. Сапоги мертвеца [00:02:23](   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C884C7B906CA6774F78EFD699C596D49DBD437FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739354   (106106) от 27.07.2024
-
-Dmitry Spirin (ex-Тараканы) - Чем кончается Родина (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чем кончается родина [00:02:52]
-02. Если в этот раз пронесет [00:03:40]
-03. Страшнее смерти [00:03:02]
-04. Чем кончается родина (Acoustic) [00:03:03](   Читать дальше...   )Жанр: RockПродолжительность: 00:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB23AF27CC12B45A9056866BE1967DD9A0FD74CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739365   (106081) от 27.07.2024
-
-Blur - Live at Wembley Stadium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St Charles Square (Live at Wembley Stadium) [00:04:17]
-02. There’s No Other Way (Live at Wembley Stadium) [00:04:21]
-03. Popscene (Live at Wembley Stadium) [00:03:33]
-04. Tracy Jacks (Live at Wembley Stadium) [00:04:33](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 02:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2E10677C3DD44F5040896AE6BDED5A8BD8BE14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739369   (106077) от 27.07.2024
-
-KK's Priest - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106077.jpg" />
-</div>
-
-
-###  Подробнее
-
-KK's Priest — британская метал-группа бывшего гитариста Judas Priest Кеннета Даунинга.2021 - Sermons Of The Sinner
-2023 - The Sinner Rides Again (Napalm Records – NPR1264DP)Жанр: Heavy MetalПродолжительность: 01:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:958EDE81E0977B59B69594970F0A19673FD7AAB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739464   (106046) от 28.07.2024
-
-VA - Остров Сокровищ или В стиле Шансон часть 2 от Arhangel Music (2024) [FLAC 2.0|44.1/16|Lossless|tracks] <Pop, Rock, Disco, Techno, Electronic, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106046.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:12] 01. Дрянь (Standart Vers)
-[3:58] 02. Вступление (1 часть)
-[3:30] 03. Буратино!
-[2:25] 04. 22 притопа(   Читать дальше...   )Жанр: Pop, Rock, Disco, Techno, Electronic, ChansonПродолжительность: 01:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9873571A3E50381456E70C77DF99649360238EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

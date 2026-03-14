@@ -1,3 +1,61 @@
+###  Публикация: 1411459   (427461) от 25.09.2020
+
+VA - Armin van Buuren & Rodg - A State of Trance ASOT 983 (2020) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Armin van Buuren & AVIRA ft. Sam Martin - Mask
+02 Ørjan Nilsen - Sankthansaften
+03 Gareth Emery - Little Celebrity (Sound Quelle  Remix)
+04 ALPHA 9 & Spencer Brown - Afterlife(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF426073F34F5FE52A0E3181EA44006FB716A231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250507   (424763) от 28.09.2018
+
+VA - Markus Schulz & Omnia - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. B.B.E. - Seven Days and One Week (Yotto Remix)
+02. Daniel Wanrooy - Euphoria
+03. Vigel vs. Cosmo & Skoro - Drums(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF2E7D555859C33804C3FE16D7D8F22402889E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065646   (418930) от 23.10.2016
 
 ATB - Live @ Amsterdam Dance Event (2016) [MP3|256 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Markus Schulz - Global DJ Broadcast - Afterdark (2018) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B346E7807E6631A9561E8FEEA6D870948B878B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258013   (341350) от 28.10.2018
-
-VA - Ori Uplift & Alternate High - Uplifting Only 298 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akku - Megumi (DreamLife Intro Edit)
-02. Sandro Mireno - It's Your Day (EXCLUSIVE PREMIERE)
-03. Chronosapien - El Comandante
-04. Miroslav Vrlik - In The Mood (Extended Mix(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FF027D40EDA1858B35A29EEF5952F1C6A8AB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211321   (340320) от 28.10.2018
-
-Hernan Cattaneo - Resident 348-356, 358-390 (2018) (Обновляемая) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident 348 (06-01-2018)
-01. Guy Gerber - Humming Bird Blues
-02. Guy Gerber - What To Do
-03. Joeski & Doc Martin - Vajra feat. Lillia(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 42:48:42 (еженедельный микс ∽ 01:00:00)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6305A5B4C14D895B7F92C81E4C36284CBD345306
 ```
 
 https://mybot314.ru/tekegram_catalog/

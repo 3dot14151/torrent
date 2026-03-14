@@ -1,3 +1,32 @@
+###  Публикация: 1512284   (787465) от 24.11.2021
+
+VA - Beatport Deep House: Sound Pack #371 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787465.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Divas Of Color - One More Time
+002. Quantum Divas - All Be Free
+003. Allovers & Masaki Morii - Addicted
+004. Nto X Monolink - Beyond Control(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28BDBDF477348CB571D715709FFBB187E046D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512298   (787464) от 24.11.2021
 
 VA - Beatport Tech House: Sound Pack #372 (2021) [MP3|320 Kbps] <Tech House, Electro>
@@ -719,35 +748,6 @@ VA - Romantic Drum Vol 2 (2018) [MP3|320 Kbps] <Drum & Bass, Drumfunk, Techstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFAC3A896D983CC4E23B83208E37A102FA2EFE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204858   (784411) от 07.02.2018
-
-VA - Empire Records - Electro Chill 3 (2018) [MP3|320 Kbps] <Chillhouse, Chillelectro, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sunyata Project  -  Lay Your Hands On Me  4:42
-02.  Cass Ferre  -  Unification  3:39
-03.  Living Room  -  Don't Stop Me  5:06
-04.  Vanilla Signal  -  Proverbial Beast (Original Mix)  3:58(   Читать дальше...   )Жанр: Chillhouse, Chillelectro, DowntempoПродолжительность: 01:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28747396C47C5C8414985354B16D99E391FA06A
 ```
 
 https://mybot314.ru/tekegram_catalog/

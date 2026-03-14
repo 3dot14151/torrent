@@ -1,3 +1,90 @@
+###  Публикация: 1042133   (580386) от 11.08.2016
+
+Skillet - Unleashed (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Christian Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel Invincible (3:50)
+ 02. Back From the Dead (3:34)
+ 03. Stars (3:47)
+ 04. I Want to Live (3:29)(   Читать дальше...   )Жанр: Alternative Rock, Christian RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A77EF74CB1B7F826A43260A8726ADFC3C473B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042127   (580377) от 11.08.2016
+
+Skillet - Unleashed (2016) [FLAC|Lossless|image + .cue] <Alternative Rock, Christian Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel Invincible (3:50)
+ 02. Back From The Dead (3:34)
+ 03. Stars (3:46)
+ 04. I Want To Live (3:29)(   Читать дальше...   )Жанр: Alternative Rock, Christian RockПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5206D7D1FFE13B125097E741349DE841AE7589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553726   (580033) от 28.05.2022
+
+Notions - Notions (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rapcore, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580033.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. World Arcana
+2. Stain (feat. Die SixFive)
+3. Yoshitsune
+4. WOODGUTS(   Читать дальше...   )Жанр: Alternative, Rapcore, Nu Metal, Hip Hop, Trap Metal, MetalcoreПродолжительность: 00:25:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8908D5CA90E1146CD6192F48B89075E51996DBC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553739   (580026) от 28.05.2022
 
 Scary Kids Scaring Kids - Out Of Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Electronic>
@@ -658,93 +745,6 @@ Foster The People - Sacred Hearts Club (2017) [FLAC|Lossless|WEB-DL|tracks] <Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B00989DF586CE480EB4D84FE709E6392246FF7A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304233   (565122) от 25.05.2019
-
-Lewis Capaldi - Divinely Uninspired To A Hellish Extent (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grace (3:05)
-02. Bruises (3:40)
-03. Hold Me While You Wait (3:25)
-04. Someone You Loved (3:02)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABBD395C0AB5E6F59682A5BBD137DCB1CEB5A361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923390   (564392) от 31.07.2015
-
-Saint Asonia - Saint Asonia (2015) [FLAC|Lossless]<Alt. Metal, Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Place
-02. Blow Me Wide Open
-03. Live My Life
-04. Even Though I Say(   Читать дальше...   )Жанр: Alt. Metal, Modern Hard RockПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14307B765E5E118C4AB48000192BCB1228C58D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235077   (564210) от 09.07.2018
-
-Masfel - Viperagarzon (1996) [FLAC|Lossless|tracks + .cue] <Experimental rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Csigolyák (Vertebrae) (7:25)
-02. Függökert (Terraced Garden) (7:50)
-03. Menetmetszö (Thread Cutter) (6:32)
-04. Jelzöbárány (Signal Lamb) (6:26)(   Читать дальше...   )Жанр: Experimental rockПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3609AA0814512AFB8DDB120893A1A452DAE506C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

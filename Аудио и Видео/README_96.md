@@ -1,3 +1,32 @@
+###  Публикация: 1526065   (738817) от 23.01.2022
+
+VA - Beautiful Vocal Trance, ch. 2 (2018) [AAC|~340 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat Service, Ana Criado - An Autumn Tale (Radio Edit) (4:10)
+02. Nicholas Gunn, Alina Renae - Older (Costa Remix) (3:32)
+03. Witness45, Cynthia Hall, Fashion Police - I'm Still Here (Radio Edit) (2:48)
+04. Tenishia, Sue Mclaren - Strong (Radio Edit) (3:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB12342767B81CAFA1A3665836FD206F366F1228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526074   (738816) от 23.01.2022
 
 VA - Beautiful Vocal Trance, ch. 5 (2020) [AAC|~337 Kbps] <Trance>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50CC2968FEA30D92CF829D62C43CACFFFD510BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526330   (738472) от 24.01.2022
-
-Сергей Бобунец - Песни под гитару, Часть 1 (2021) [AAC|~279 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пока танцуют ангелы (3:29)
-02. Некуда бежать (2:06)
-03. Спасаю мир (2:58)
-04. Напоминай (1:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0EF7010B0537D74E53537C050D7122C1D495BE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

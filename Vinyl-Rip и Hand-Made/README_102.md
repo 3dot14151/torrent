@@ -1,3 +1,118 @@
+###  Публикация: 1811891   (8248) от 12.08.2025
+
+Dragony - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dragony — пауэр-метал группа из Вены, Австрия, основана в 2010 году.2012 - Legends
+2015 - Shadowplay
+2017 - Lords Of The Hunt
+2018 - Masters Of The MultiverseЖанр: Melodic/Symphonic Power MetalПродолжительность: 05:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA94AFC95CEB0E71499F4CDA79861CB1AA975439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811904   (8231) от 12.08.2025
+
+DragonForce (& Marc Hudson) - Studio Albums (11 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8231.jpg" />
+</div>
+
+
+###  Подробнее
+
+DragonForce — британская пауэр-метал-группа из Лондона, образованная в 1999 году. Они известны своими длинными и быстрыми гитарными соло, текстами в стиле фэнтези и звучанием, вдохновлённым ретро-видеоиграми. Сами участники группы называют свою музыку «экстремальным пауэр-металом».2003 - Valley Of The Damned
+2004 - Sonic Firestorm
+2006 - Inhuman Rampage
+2008 - Ultra Beatdown(   Читать дальше...   )Жанр: Power MetalПродолжительность: 11:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D572DBFA481300F2FE41402915B0312E65DD530D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812142   (8106) от 13.08.2025
+
+VA - Absolute New Hits 5 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Euro House, Italodance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Pearl feat.Zaradika - Celebrate
+02. Maxx - Power Of Love
+03. Odyssey - Winter Night(   Читать дальше...   )Жанр: Euro House, ItalodanceПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C2EE03AFD15369DE3FD346C3A0D2C62AA10E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812118   (8044) от 13.08.2025
+
+Rave The Reqviem - Studio Albums (5 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rave The Reqviem - индастриал-метал группа из Швеции, образована в 2011 году.2014 - Rave The Reqviem
+2016 - The Gospel of Nil
+2018 - FVNERALЖанр: Electronic, Industrial MetalПродолжительность: 03:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6555E68979BBAF3A9ECAC0CBBA86D5A6F560EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812139   (7999) от 13.08.2025
 
 A-Z (Ray Alder, Mark Zonder (Fates Warning)) - Studio Albums (2 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Hard Rock>
@@ -623,122 +738,6 @@ Iron Savior — немецкая группа, играющая в стиле п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81493A1A7BE3C1B091E61510460E3EBDB4F0DDB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814538   (5934) от 25.08.2025
-
-Incite - Studio Albums (7 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Incite — американская метал-группа из Финикса, штат Аризона, основана в 2004 году.
-Фронтмен Ричи Кавалера наиболее известен как пасынок Макса Кавалеры, участника групп Sepultura, Soulfly и Cavalera Conspiracy.2009 - The Slaughter
-2012 - All Out War
-2014 - Up In Hell
-2016 - Oppression(   Читать дальше...   )Жанр: Thrash/Groove MetalПродолжительность: 04:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175E249D13BC8F5201ADCE86A959921A24581ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814703   (5786) от 26.08.2025
-
-Warmen - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warmen - финская метал-группа, основана в 2000 году клавишником "Children of Bodom" Янне Вирманом.2000 - Unknown Soldier
-2002 - Beyond Abilities
-2005 - Accept The Fact
-2009 - Japanese HospitalityЖанр: Power Metal, Melodic Death MetalПродолжительность: 05:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1EA4E8246F039BD4776E82FF769D33F13C97EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638527   (5690) от 27.08.2025
-
-Fueled By Fire - Studio Albums (4 releases) (2006-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fueled By Fire - трэш-метал группа из Норуолка, Калифорния, США.2006 - Spread The Fire
-2010 - Plunging Into Darkness
-2013 - Trapped In PerditionЖанр: Thrash MetalПродолжительность: 02:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2514FFA1BF1C4F671993EC2C256F7275D0EF250B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814857   (5653) от 27.08.2025
-
-Orchestra Electrecord - Famous Romanian Tangos (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Latin, Tango>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tangouri Celebre Romanesti – Famous Romanian Tangos
-A1 Tangoul De Demult
-A2 Vrei Sa Ne-ntilnim Simbata Seara?
-A3 Ilona(   Читать дальше...   )Жанр: Latin, TangoПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770F6A5A497BB0F1C768AE8F34E9EA7B43480F4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

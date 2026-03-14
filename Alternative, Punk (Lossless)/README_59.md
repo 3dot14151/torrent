@@ -1,3 +1,90 @@
+###  Публикация: 1663368   (186872) от 21.09.2023
+
+Sekta Core - Sinfonia del Caos (2023) [FLAC|Lossless|WEB-DL|tracks] <ska punk, gypsy punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony Of Chaos [00:02:36]
+02. No Te Rindas [00:02:52]
+03. Zombies [00:02:25]
+04. Toro [00:03:40](   Читать дальше...   )Жанр: ska punk, gypsy punkПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00541D126A4633B4F1080D8D392D9EA2F798809C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663853   (186464) от 23.09.2023
+
+Samurai Pizza Cats - You're Hellcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wolf In Me [00:03:28]
+02. Outcast [00:03:32]
+03. Last Player [00:02:40]
+04. Pizza Homicide [00:03:00](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A051C934F4805982F9A774BB11D4C476DA81BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664028   (186280) от 24.09.2023
+
+Flat Worms - Witness Marks (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sigalert [00:02:29]
+02. SSRT [00:03:23]
+03. Time Warp in Exile [00:02:21]
+04. Suburban Swans [00:03:21](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15855EB694202DABDB57DC62D6534B2852639F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664104   (186271) от 24.09.2023
 
 Day Aches - One Last Dream Before Dying (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative rock>
@@ -655,90 +742,6 @@ The Jeffrey Lee Pierce Sessions Project - The Task Has Overwhelmed Us (2023) [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDA85D47638BBDC140B8DCBBE0C1093C6646D706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427973   (181449) от 30.11.2020
-
-Nick Cave & The Bad Seeds - Idiot Prayer (2020) Nick Cave Alone at Alexandra Palace [FLAC|Lossless|WEB-DL|tracks] <Alternative, Singer-Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spinning Song (Live at Alexandra Palace, 2020) (1:48)
-02. Idiot Prayer (Live at Alexandra Palace, 2020) (3:09)
-03. Sad Waters (Live at Alexandra Palace, 2020) (3:44)
-04. Brompton Oratory (Live at Alexandra Palace, 2020) (3:22)(   Читать дальше...   )Жанр: Alternative, Singer-SongwriterПродолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684E1D206005C695BD78FB0A2DAAD348C74481E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593186   (180931) от 26.11.2022
-
-Muse - Ghosts (How Can I Move On) [feat. Elisa] (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghosts (How Can I Move On)Жанр: AlternativeПродолжительность: 00:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D9F32734D79185EAB83AEBCAA96D1D95EE2876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665829   (180893) от 02.10.2023
-
-Soul Exchange - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chrysalis / 蛹 [00:08:04]
-02. The Great Divider [00:04:22]
-03. Totem / トーテム [00:04:46]
-04. Forged Through Fire / 火を通して鍛えられる [00:04:41](   Читать дальше...   )Жанр: Alternative, Progressive RockПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8088BF2D4347C76641C4751BA697013140AA6060
 ```
 
 https://mybot314.ru/tekegram_catalog/

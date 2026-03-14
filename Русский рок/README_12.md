@@ -1,3 +1,73 @@
+###  Публикация: 602173   (997031) от 15.01.2013
+
+Arcanorum Astrum - Прозрение (2012) [MP3|320 кб/с]<Progressive Sympho Black-Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Воин Тьмы
+02. Битва за Будущее
+03. Прозрение
+04. Война Хаоса
+05. Смертный Грех
+06. Путь к Себе
+07. Иллюзия Истины
+08. Под Светом Тайной Звезды
+09. Люцифер
+10. Without Judgement (Death cover)Жанр: Progressive Sympho Black-Death MetalПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58E6FDC22EE58FAF5FC4239EBA7B3F0DA3663A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604176   (996508) от 17.01.2013
+
+Zilly Monk - Together Forever (2011) [MP3|320 кб/с]<Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voodoo (2)- 01:56
+  02. Let's go!- 01:52
+  03. Guitar Hero-03:18
+  04. Воздушный змей- 02:31
+  05. Lego-02:43
+  06. Улетаю - 02:55
+  07. Полотенце - 00:49
+  08. Погром  - 03:06
+  09. Дураки- 01:56
+  10. Война (против себя)- 02:15(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 28:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDD7FCF43348DD9AA2B5AA6FD1298E984AB8C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604704   (996190) от 18.01.2013
 
 Волчий острог - Багряный восход возрождения (2012) [MP3|219-269 kbps] <Metal>
@@ -710,64 +780,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:781B660FE0FC97824848962B2CE6EB18C11277C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616355   (975718) от 09.02.2013
-
-Арктида - Мой Друг (2012) EP [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Клятва
-02. Истины свет
-03. Мой друг
-04. Дождь(   Читать дальше...   )Жанр: Power Metal |Продолжительность: 00:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150F73AB9B974561B933F3A39697AE7856F8CBA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357185   (975467) от 02.02.2020
-
-Маша и медведи - Пиф-Паф (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975467.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мира Война
-2. Воскресенье
-3. Пиф-Паф
-4. Спокойной Ночи(   Читать дальше...   )Жанр: RockПродолжительность: 00:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0980A228B8BCCAC4AECBC4D342D757AF7F5607B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

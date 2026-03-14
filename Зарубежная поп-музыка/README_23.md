@@ -1,3 +1,61 @@
+###  Публикация: 1279093   (766918) от 28.01.2019
+
+Emin - Good Love (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766918.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Got Me Good
+2. Let Me Go (Robin Schulz Remix)
+3. Always
+4. Good Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92994229747C989EB75C8529BE4941B5216FBAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393660   (766906) от 01.07.2020
+
+VA - Radio music (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Fonsi, Daddy Yankee, Justin Bieber - Despacito (Remix) (03:50)
+02. Maroon 5, Cardi B - Girls Like You (Cardi B Version) (03:57)
+03. Marshmello, Bastille - Happier (03:36)
+04. June - A Little Messed Up (02:48)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC4D86874920E66B2F7B1DB824C2B0CA6A776E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279095   (766745) от 28.01.2019
 
 Пающие трусы - Люблю Шнура! (2019) Single [MP3|320 Kbps] <Pop>
@@ -686,64 +744,6 @@ Dave Edmunds - 2 Albums (1983, 1984) [MP3|320 кб/с] <New Wave, Pop Rock, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2807C66814CFB4F74D988F358FB71967CD1378C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215596   (758221) от 26.03.2018
-
-Yan Tregger - Christopher Ried - Ducks & Drakes (1979) LP [MP3|320 Kbps] <Electronic, Psychedelic, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friend Island (3:31)
-02. The Girl in the Gold (2:52)
-03. Dawn and Darkness (3:35)
-04. The Ivy Heart (0:18)(   Читать дальше...   )Жанр: Electronic, Psychedelic, DiscoПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B6887D884049DA258FA0684119D7D35D26698A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018196   (757255) от 19.05.2016
-
-VA - Super Hits Of The '70s: Have A Nice Day (1990-1996) 25CD [MP3|320 кб/с] <Pop,Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiral Staircase - More Today Than Yesterday (2:58)
- 02. Smith - Baby It's You (3:25)
- 03. The Flying Machine - Smile A Little Smile For Me (3:00)
- 04. Billy Joe Royal - Cherry Hill Park (2:50)(   Читать дальше...   )Жанр: Pop, Rock|Продолжительность: 16:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0431B314B0C064029576B1478D2812EEFF8E30A
 ```
 
 https://mybot314.ru/tekegram_catalog/

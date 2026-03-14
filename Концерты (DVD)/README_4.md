@@ -1,3 +1,32 @@
+###  Публикация: 1125506   (766963) от 16.04.2017
+
+Def Leppard - And there will be a next time... Live from Detroit (2017) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+1 Let’s Go
+2 Animal
+3 Let It Go(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: RockРежиссер: Jim YukichАктеры: Def LeppardПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD22F455836C199387591E509915277B606F903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126265   (766170) от 17.04.2017
 
 J.J. Cale - In Session at the Paradise Studios '1979 (2002) DVD5
@@ -712,32 +741,6 @@ Lisa Stansfield - Live At The Royal Albert Hall (1994) DVD5 [hand made]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:503E730C52F3630EA628C6E2D9C664064CB03E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328597   (715300) от 26.04.2011
-
-Елена Ваенга - "Белая Птица" (2010) SATRip - DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка, шансонПеревод: ОригинальныйФормат: DVD videoПродолжительность: 1:43:42
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

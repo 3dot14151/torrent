@@ -1,3 +1,30 @@
+###  Публикация: 951233   (364947) от 28.10.2015
+
+Проекты - VideoHive - Awards Show Pack - 13256511 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания вашей церемонии награждения.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC4AA7ECF30F59D576D44180155F8567D70CB2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 836221   (363982) от 31.10.2014
 
 VideoHive - Stylish Gloss Presentation - 144110 [AEP]
@@ -651,32 +678,6 @@ VideoHive - Destruction Zone (Broadcast Pack) - 3156299 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC500B12BA14B6CF9A1C3D9B8038BA06A0596B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 838732   (346634) от 07.11.2014
-
-VideoHive - Luxury Slideshow - 157821 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскошь. Слайдшоу. Для презентации работ, продукции, картин и мн. др. Плагины не требуются. Превью и текстовый файл помощи - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403123C0E0B7C24F572AE4AD6A0129550FCBF141
 ```
 
 https://mybot314.ru/tekegram_catalog/

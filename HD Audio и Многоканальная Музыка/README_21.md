@@ -1,3 +1,154 @@
+###  Публикация: 1222589   (682448) от 30.04.2018
+
+Владимир Высоцкий - №4 (сборник песен) (1985) Мелодия [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682448.jpg" />
+</div>
+
+
+###  Подробнее
+
+СТОРОНА-1:
+[1:56] 01. Владимир Высоцкий - Мне каждый вечер зажигают свечи...
+[3:09] 02. Владимир Высоцкий - О нашей встрече, что там говорить...
+[2:01] 03. Владимир Высоцкий - Перед выездом в загранку..(Инструктаж)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25360C576CFB438B7EE1AA56F4BBD5C5FEC2F66C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029332   (682069) от 26.06.2016
+
+Garbage - Strange Little Birds (2016) [FLAC 2.0 24/192|image +.cue|Vinyl-Rip]<Alternative, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes (2:53)
+ 02. Empty (3:54)
+ 03. Blackout (6:33)
+ 04. If I Lost You (4:13)(   Читать дальше...   )Жанр: Alternative/Indie RockПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A550B11BE8C12202432B37A17DC07328B509C519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028883   (681772) от 26.06.2016
+
+Наутилус Помпилиус - Лучшие песни (2014) [PPCM 5.1|96/24|DVD-Audio] [upmix] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я хочу быть с тобой
+02. Дыхание
+03. Прогулки по воде
+04. Шар цвета хаки(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756E627B77A5DCF1A1F3910EFECFA100F9E39747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796584   (681493) от 16.06.2014
+
+Eruption - Leave A Light (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Leave A Light (I'll Keep A Light In My Window) 6:45
+2. Sweet Side 3:50
+3. Up And Away 3:10
+4. Left Me In The Rain 3:55
+Сторона 2
+1. Valley Of The Dolls 4:35
+2. One Way Ticket 3:35
+3. Hey There Lonely Girl 3:25
+4. No Good Searchin' 4:28(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B35E73D61900F5B929186546421C39096AB1F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222789   (678877) от 02.05.2018
+
+Владимир Высоцкий - VA №4 (Сборник песен) (1985) Мелодия [FLAC 2.0|96/24|image+.cue|Tape-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678877.jpg" />
+</div>
+
+
+###  Подробнее
+
+СТОРОНА-1:
+[1:56] 01. Мне каждый вечер зажигают свечи...
+[3:09] 02. О нашей встрече, что там говорить...
+[2:01] 03. Перед выездом в загранку..(Инструктаж)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C64BA2BB3405C3FD350CCD8902454093EBFB8A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290013   (678339) от 20.03.2019
 
 Randy Travis - Storms Of Life (1986) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, Country>
@@ -615,146 +766,6 @@ A4 Move That Wigwam(   Читать дальше...   )Жанр: Prog Rock, Psyc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E47247469E0A25306EB49CF100F5E6AFA75D7969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137878   (665359) от 28.05.2017
-
-VA (Юрий Антонов, Сергей Беликов, Ольга Зарубина и Александр Серов) - На улице Каштановой (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665359.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Юрий Антонов - На Улице Каштановой
-A2 Сергей Беликов - Сон-Трава
-B Ольга Зарубина и Александр Серов - Круиз
-===============================(   Читать дальше...   )Жанр: PopПродолжительность: 00:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A85C44C9C7F51624EA6847ABD1F1DCAFD059628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137670   (665297) от 28.05.2017
-
-Иван Кучин - Судьба воровская (1997/2015) Remastered [WavPack 2.0|192/32|image +.cue|Vinyl-Rip] <Шансон>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665297.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. В таверне
-A2. Судьба воровская
-A3. Сентиментальный детектив - 2
-A4. Таволга(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B1FE29CED20381AFFEF8D247E299C071FB8D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138118   (664319) от 29.05.2017
-
-Orchestra ''Electrecord'' (Romania) - Muzica De Dans: Twist and Swing (1966) [FLAC 1.0|96/24|tracks+.cue|Vinyl-Rip] <Twist, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664319.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	What'd I Say (twist)
-Written-By – Ray Charles
-A2	Copley Square (swing)
-Written-By – Marshall Brown(   Читать дальше...   )Жанр: Twist, SwingПродолжительность: 00:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A9FA385311AE692CA9F1398CB1E47541B02E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512571   (663315) от 19.06.2012
-
-Mylene Farmer - Vinyl Discography 9LP (2009) [FLAC 2.0 24/96|image+cue (Vinyl rip)]<Pop, Electronic, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Electronic, RockФормат: Vinyl  12”Продолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3307AD7B7EC765685D70B1B8349F938A9D834552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138474   (663044) от 30.05.2017
-
-KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Hard Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663044.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Was Made For Lovin' You (7:54)
-2. Charisma (4:26)Жанр: Hard Rock, GlamПродолжительность: 00:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4262D28043174089C8BAF420107D31F23E73D08D
 ```
 
 https://mybot314.ru/tekegram_catalog/

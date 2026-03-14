@@ -1,3 +1,90 @@
+###  Публикация: 1009797   (808362) от 22.04.2016
+
+Leo Wright - Blues Shout (1960) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sigi [03:28]
+ 02.Angel Eyes [05:14]
+ 03.Autumn Leaves [03:50]
+ 04.Indian Summer [07:06](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5081DB6C6F949CF53F01F40C733FD849578A12BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009725   (808361) от 22.04.2016
+
+Joanne Brackeen - Aft (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Haiti B [07:38]
+ 02.Charlotte's Dream [05:07]
+ 03.Dreamers [05:33]
+ 04.Aft [06:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAFEE9D3D67B87007BEB2E0BA2F82568843518C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009685   (808359) от 22.04.2016
+
+Art Farmer - Homecoming (1971/1972) Remaster, 2006, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Homecoming [04:13]
+ 02.Cascavelo [08:52]
+ 03.Some Other Time [06:01]
+ 04.Blue Bossa [06:58](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33775D75A716A2F1A952384CA0935D086F65F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009680   (808358) от 22.04.2016
 
 The Ray Bryant Trio - Little Susie (1959/1960) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -658,90 +745,6 @@ Miles Davis - Miles in St. Louis 1963 (1981) Soulard Intertainment Co. [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61ED7D6803833421F99F9A555E5E987978A66CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778574   (804339) от 19.04.2014
-
-VA - Pure... Jazz (2010) Box Set, 4 CD [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие из джазистов, представленных здесь, уже побывали в нашем клубе в различных релизах. Но, если вы хотите получить представление о всех стилях  джаза что называется "в одном флаконе", то обязательно послушайте эти 4 диска. Фирма Sony, продолжая свою серию Pure... (см. под спойлером остальные части), знакомит любителей музыки с самыми знаменитыми джазовыми (   Читать дальше...   )Жанр: Jazz (стили см. под спойлером)Продолжительность: 04:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6F1F0FC4A9C2521346356AAD7B1ACB84E1EFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010313   (804307) от 24.04.2016
-
-Reuben Wilson - Got to Get Your Own (1975) 2008, Dusty Groove America[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.What the People Gon' Say [04:18]
- 02.In the Booth, in the Back, in the Corner, in the Dark [04:22]
- 03.Back Rub [03:55]
- 04.Tight Money [05:17](   Читать дальше...   )Жанр: Jazz-Funk, Soul-JazzПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2943372D69806978079C16EE5E1D427BF1F9D75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010349   (804298) от 24.04.2016
-
-Jazz Crusaders featuring Wayne Henderson - Kick The Jazz (2008) [FLAC|Lossless|tracks + .cue] <Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Younger Rabbits (3:50)
-02. Keep That Same Old Feeling (4:27)
-03. Welcome To The New Year (4:11)
-04. Scratch It (6:34)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A37B999E3CDF0A01793D26C450E41B59A9EB41A
 ```
 
 https://mybot314.ru/tekegram_catalog/

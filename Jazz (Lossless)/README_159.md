@@ -1,3 +1,91 @@
+###  Публикация: 1240823   (523702) от 13.08.2018
+
+Romain Pilon - Copper (2018) [FLAC|Lossless|tracks + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bibou (5:57)
+02. Trippin' (5:09)
+03. Four Moons (7:25)
+04. Laniakea (5:09)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFFA38FE5685D02079376F7C197AC5CF774E0482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559649   (523543) от 26.06.2022
+
+Jimmy Smith - The Classic Verve Albums Collection (1962 - 1964) 4CD, 2019, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Organ Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523543.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- Bashin' & Hobo Flats:
+01. Walk On The Wild Side [5:59]
+02. Ol' Man River [3:59]
+03. In A Mellow Tone [4:27](   Читать дальше...   )Жанр: Hard Bop, Soul Jazz, Organ JazzПродолжительность: 04:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B1A5E20C95F6A6ED25B34BFE2A2EEB53D579907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559462   (523490) от 26.06.2022
+
+Jazz Sabbath - Vol. 2 (2022) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь, воссоединившись спустя 52 года, Jazz Sabbath вошли в студию и закончили свой второй альбом, который также записывался в 1969 году. После раскрытия кражи группы из Бирмингема Милтон Кинес и его коллеги теперь могут представить эти песни в их первоначальном виде, пополненный 52-летним опытом, энергией… и яростью.
+Теперь они могут представить свои песни в их (   Читать дальше...   )1. Paranoid
+2. Snowblind
+3. Behind The Wall Of Sleep
+4. Sabbra Cadabra(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83599FA603B3D4FFD411706877AB447E97110BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928029   (523343) от 15.08.2015
 
 Reinhard Flatischler - Schinore (1987) /Puls Productions/[APE|tracks+.cue]<Jazz, World Fusion, Ethnic Jazz>
@@ -658,93 +746,6 @@ Buddy DeFranco - Mr. Lucky (1981) 1997, Original Jazz Classics [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6639BBCD347CA7A17FD29E04BE1D47C78892EF07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560110   (520884) от 29.06.2022
-
-CeCe Gable - More Than A Song (2020) New York Jazz Project [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East of the Sun [5:06]
-02. As Long as I Live [4:01]
-03. Love Is a Necessary Evil [3:46]
-04. I Thought About You [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB57EA3806AB5D8566423C445FDC66EDDE5F1FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560403   (520750) от 29.06.2022
-
-Pal Thowsen - Carnival (1981) Remastered, 2022, Norske Albumklassikere [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Fusion, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brother to Brother (Vannelli) - 5:30
-02. Now We May Begin (Sample) - 5:26
-03. Carnival (Noddelund) - 4:44
-04. Sundown (Noddelund) - 3:30(   Читать дальше...   )Жанр: Contemporary Jazz, Fusion, Soul-JazzПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49E410136875947A5C076DBB0529EE000EA1809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560443   (520739) от 29.06.2022
-
-David Benoit - A Midnight Rendezvous (2022) [FLAC|Lossless|tracks+.cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Midnight Rendezvous
-02. Pioneer Town
-03. The Bones
-04. Floating(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDA9363D1C2C1920E7F01E189BA37FB16643366
 ```
 
 https://mybot314.ru/tekegram_catalog/

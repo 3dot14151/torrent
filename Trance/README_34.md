@@ -1,3 +1,146 @@
+###  Публикация: 1330240   (341312) от 10.10.2019
+
+Solis & Sean Truby with Audrey Gallagher - Skin Deep (Solis & Sean Truby vs. Ultimate Remix) (2019) Single [MP3|320 Kbps] <Trance, Uplifting>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341312.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Skin Deep (Solis & Sean Truby vs. Ultimate Extended Remix) [07:52]
+2. Skin Deep (Solis & Sean Truby vs. Ultimate Remix) [03:45]Жанр: Trance, UpliftingПродолжительность: 00:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E25304FFA57DE6EDD86CF8A7D405797428884DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330444   (341001) от 10.10.2019
+
+Dave Steward - Rage (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uncontrolled (8:10)
+02. Cranked (7:53)
+03. The Verge (7:47)
+04. Shadows (7:11)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53A44751C7448F0C5BA523C0F7377AA356428ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578629   (340939) от 25.09.2022
+
+VA - Ana Criado - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic & Ana Criado - Ask Me Anything (Original Mix) (3:10)
+02. Yuri Kane & Ana Criado - Running Wild (Radio Edit) (3:34)
+03. Ana Criado & Costa - Love Is An Act Of Courage (Original Mix) (3:21)
+04. Stoneface & Terminal with Ana Criado - My Heart Won't Tell You No (Radio Edit) (4:35)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7E1BC57AA3CD8C4D0539FA5C1931DCF443FD3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954453   (339732) от 08.11.2015
+
+VA - Vocal Trance - Hits Best Of (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Byuren - Safe Inside You (Radio Edit) (feat. Betsie Larkin) (03:24)
+02. Garet Emeri - Hands (Radio Edit) (feat. London Thor) (03:10)
+03. W&W - The One (Radio Edit) (02:29)
+04. Endryu Rayel - Daylight (Radio Edit) (feat. Jonny Rose) (02:46)(   Читать дальше...   )Производство: Armada DigitalЖанр: Trance, Vocal TranceПродолжительность: 02:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B75757C61CEEA775FFA01B2E315352402BF98DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330722   (339095) от 11.10.2019
+
+VA - My Nature: The Best Of Katty Heath (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dart Rayne & Yura Moonlight feat. Katty Heath - Stole The Sun (Allen & Envy Radio Edit)
+02. Katty Heath - Connection Through Sound (Original Mix)
+03. Kaimo K & Cold Rush feat. Katty Heath - Here I Am (Radio Edit)
+04. Adam Ellis feat. Katty Heath - Made It Through The Rain (Radio Edit)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 05:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D2B7CBD6730D307108D47CA79DF9B462B34B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330711   (338985) от 11.10.2019
 
 VA - Markus Schulz - Global DJ Broadcast Top 20 October (2019) [MP3|320 Kbps] <Trance>
@@ -597,151 +740,6 @@ VA - Suanda Music 2022 - Mixed by Roman Messer [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D6800BCF8C91480C70B258F479FA699C1A39EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957357   (327667) от 17.11.2015
-
-VA - Recoverworld Radio 002 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icone - Outer Limits (Original Mix) (8:35)
-02. The Cracken - Pegaz (Original Mix) (6:20)
-03. Lostly - Take This Acid (Original Mix) (7:34)
-04. Rich Smith - Nightfall (Original Mix) (7:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC620BB9D169309BA9E1214715216AB3D16548AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581347   (327287) от 05.10.2022
-
-VA - Daybreakerz (Trance & Souls) Vol.3 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Dust & DJ Eternity - World In Your Hands (Instrumental Radio Mix)
-02. Thomas Lloyd & Dave Joy - Captain Future (Extended Mix)
-03. DJ Simple - Mainstation Theme (Wavetraxx Remix)
-04. Eclipse - Future Sequence (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC5167B11EA6385441141A96280B4B4559810E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581341   (327225) от 05.10.2022
-
-VA - FSOE - October (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila x Billy Gillies - Kings (FSOE750 Anthem) (Extended Mix)
-02. Sean Tyas & Victoriya - Perfect World (Amos & Riot Night Extended Remix)
-03. Omar Sherif & Susie Ledge - Here With Me (Extended Mix)
-04. Stoneface & Terminal - Moonraver (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4CAEAA87238B38F71051F2E7D5DBD273D80F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581343   (327224) от 05.10.2022
-
-VA - New Trance 2021 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iberian - Preludio (George Crossfield Emotional Remix) (8:41)
-02. Dreamlife & SounEmot - Aun Recuerdo Ese Dia (Extended Mix) (9:40)
-03. Sothzanne String - Matter Of Time (Original Mix) (7:33)
-04. SounEmot - Juntos (Emotional Mix) (10:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB9B88911481BD652B290BE9DA3421278A8AB06D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958046   (325789) от 19.11.2015
-
-VA - Armin Van Buuren Presents: A State Of Trance Best Of (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren - Together (In A State Of Trance) (Radio Edit) (02:40)
-02. Jorn Van Deynhoven - 101010 (The Perfect Ten) (Radio Edit) (02:59)
-03. MaRLo - The Dreamers (Radio Edit) (feat. Jano) (03:36)
-04. Arisen Flame - Fireball (Radio Edit) (03:35)(   Читать дальше...   )Производство: Armada Music B.V.Жанр: TranceПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8430137D59C5034A848F05132ECB6AC6AE70555F
 ```
 
 https://mybot314.ru/tekegram_catalog/

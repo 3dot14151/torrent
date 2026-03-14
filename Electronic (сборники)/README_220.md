@@ -1,3 +1,32 @@
+###  Публикация: 1750276   (42919) от 20.09.2024
+
+VA - Compilation part 122 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davit Barqaia - Dreamers
+02. Dieez - Sienna
+03. Elno - Senteber
+04. Dndm - Rainfall(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4751A8F951A4F5F7DAEEF33B9B7441D58CC97118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750277   (42916) от 20.09.2024
 
 VA - Compilation part 123 Electronic (2024) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - Record Super Chart 09.11.2024 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED305C1A8F52067366989D401D9979CC7B924166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759905   (37611) от 11.11.2024
-
-VA - Sick Disco Moves (2024) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37611.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelo Ferreri - That Riff 05:06
- 002. Jeanne Mas - Johnny Johnny 04:46
- 003. Donna Summer - Last Dance 07:47
- 004. Gloria Gaynor - I Will Survive 08:02(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 10:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80B400213513AEBBE91C2A3225F4957E85A39E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

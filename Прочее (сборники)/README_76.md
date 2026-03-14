@@ -1,3 +1,32 @@
+###  Публикация: 1292019   (646547) от 29.03.2019
+
+VA - Горячие хиты радиостанций (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zivert - Life (Lavrushkin & Mephisto Remix) 3:16
+002. Robin Schulz feat. Erika Sirola - Speechless 3:35
+003. Lil Peep & XXXTentacion - Falling Down 3:16
+004. Platon feat. Joolay - Missing 5:44(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 05:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B043703C61E961D2C4148E96FCA09DE21475A405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141967   (646070) от 12.06.2017
 
 VA - Ночной клуб. Сборник танцевальных хитов (2017) [MP3|320 Kbps] <Dance, Сlub>
@@ -776,35 +805,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7C377109F58CDED936A4E2794EED4E333979D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292764   (643179) от 31.03.2019
-
-VA - Best 2O19 (mCITY Edition) (2019) [MP3|320 Kbps] <Pop, Dance, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker - Alone (2:40)
-02. Calvin Harris - Promises (Sonny Fodera Disco Mix) (3:57)
-03. Halsey - Hurricane (Arty Remix) (3:45)
-04. Ferreck Dawn, Joe Stone - Man Enough (Extended Mix) (4:01)(   Читать дальше...   )Жанр: Pop, Dance, TranceПродолжительность: 03:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174F38F16F7B59A851328989A128C712015DE116
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 966507   (908812) от 20.03.2020
+
+Tom Barabas - The Very Best Of (2004) Compilation [FLAC|Lossless|tracks + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Affair (Mosaic 1995) [05:55]
+02. Endless Time (Classica Nouveau 1994) [05:43]
+03. After The Rain (Journey 1996) [05:56]
+04. More Than Words (Sedona Suite 1992) [04:13](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCED9E62D45D319BFD4A40A1FC247C39A5A3E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098475   (908721) от 30.01.2017
+
+Sacred Earth - Inyan (2005) [FLAC|Lossless|image + .cue] <Meditative, New Age, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908721.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Inyan 8:08
+2. Hey Ma Durga 9:25
+3. Guru Charanam 9:52
+4. Devakinanda 10:00(   Читать дальше...   )Жанр: Meditative, New Age, MantrasПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B347BB57A7869DDDB9C688B7403AEA55D9F14C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367830   (908697) от 20.03.2020
+
+American Indian Coalition - Native Spirit (2008) [MP3|320 Kbps] <Native American, Tribal, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quanah Parker
+02. Great Father
+03. Talking Owl
+04. Victory Dance(   Читать дальше...   )Жанр: Native American, Tribal, FolkПродолжительность: 01:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B0E1359BECDC51CD357EEC001610117DF1DE0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342583   (908569) от 20.03.2020
+
+Greg Maroney - 2 альбома (2003, 2005) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грег Марони очень одаренный пианист. Его песни, тепло и естественность, которые говорят со слушателем - приближают их к своим собственным сердцам. Его жизнь и окружение, вместе со своим прошлым и настоящим, все это является частью его музыки.
+Он изучал классическое и джазовое фортепиано с пяти лет и в настоящее время выступает на концертах в качестве сольного пианиста, (   Читать дальше...   )Список альбомов:
+2003 - Harmony Grove
+2005 - Wind ChimesЖанр: New Age, Instrumental, Solo PianoПродолжительность: 01:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE69EA68568404CDFB9E3A10CAC7F5B9E248A004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 257973   (908494) от 20.03.2020
 
 Jean Michel Jarre - Greatest Hits (2008) 2CD [APE|Lossless|image + .cue] <Electronic, New Age>
@@ -630,122 +746,6 @@ Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F87D4FAB4AE9BAB849CD701E628E63D143B5C524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099710   (903264) от 02.02.2017
-
-Paul Sills - Electric Storm (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinetic (08:34)
-02. Horizons (05:02)
-03. Static Rain (06:06)
-04. Solar (05:45)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F240EC9AEB11C50969CE06C7169F56C0441CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992168   (902692) от 01.03.2016
-
-VA - Impressions Of Native America (2001) [MP3|320 кб/с] <Native american, Ethnic, Folk, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellis Island - Mother Earth Round Dance (5:45)
-02. Western Voices - The Calling (3:27)
-03. Cyberland - Circle Round The Sun (4:43)
-04. Cyberland - Explora (4:06)(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A0D7B76AF46319855F0B92CA8F6099032A9F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991929   (902336) от 01.03.2016
-
-VA - Romantic Collection - Aria & Mystique (2000) 2CD [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902336.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aria Arianna (05:04)
-2. Anitime Anywere (03:17)
-3. Ave Maria (03:51)
-4. L' Amour Est Un Oiseau Rebelle ''Carmen'' (02:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C45682BA02C4D3D020419C516CD5DE726D0EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369447   (901708) от 24.03.2020
-
-VA - Ethnic Music...indians, Dreams, Visions (2012) 2CD [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nazca - Mother Earth
-02. Nazca; Wayra Rodriguez - Vision
-03. Nazca; Wayra Rodriguez - Circle of Friendship
-04. Indians - Sunrise(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 03:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33643B10116402B9943898F98A22BDED8702A3E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

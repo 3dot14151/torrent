@@ -1,3 +1,177 @@
+###  Публикация: 1207176   (780902) от 17.02.2018
+
+Benoit Viellefon & His Orchestra - Mon Amour (2014) JohnJohn Records [FLAC|Lossless|image + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Must Be Jelly [02:45]
+02. Ca S'fait Pas [03:11]
+03. You Run Your Mouth [02:41]
+04. Mon Amour [02:52](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB02F96F21D218D2C3ABA3C1834E62E518B2AFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207025   (780814) от 17.02.2018
+
+Rick Springfield - The Snake King (2018) [FLAC|Lossless|tracks + .cue] <Blues Rock, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Land Of The Blind (4:51)
+02. The Devil That You Know (3:03)
+03. Little Demon (5:22)
+04. Judas Tree (3:21)(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2582BF31D7709850BC5E5FC5378495D81F5232DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207138   (780775) от 17.02.2018
+
+Brian Culbertson - Colors Of Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, R&B, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colors Of Love (5:23)
+02. I Want You (3:54)
+03. Love Transcended (4:56)
+04. Don't Go (5:28)(   Читать дальше...   )Жанр: Smooth Jazz, R&B, FunkПродолжительность: 01:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5C9E0F005A48041495906848CC1B2330B75CE82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207474   (780615) от 18.02.2018
+
+Leonard   Feather - 1937 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'ye Ken John Peel? [03:01]
+02. There's A Tavern In The Town [02:34]
+03. For He's A Jolly Good Fellow [02:29]
+04. Jammin' The Waltz [02:57](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D021CAE2FE2BEF785008A62F4703F7101F866366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207478   (780614) от 18.02.2018
+
+Enrico Pieranunzi & Art Farmer - Isis (1981) Soul Note [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isis [05:13]
+02. Ah-Leu-Cha [05:28]
+03. Love Walked In [06:56]
+04. Blue 'N' Boogie [03:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307805113B0A41D1AC39A3CEDC2764E5176AA738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207473   (780613) от 18.02.2018
+
+George Masso, Randy Sandke & Ed Polcer - Jazz Live At The Musikhalle: One, Two, Three (1994) Nagel Heyer Records [FLAC|Lossless|image + .cue] <Dixieland, New Orleans Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fascinating Rhythm [08:18]
+02. Liza [03:48]
+03. The Half Of It Deary Blues [05:37]
+04. Who Cares (So Long As You Care For Me) [07:26](   Читать дальше...   )Жанр: Dixieland, New Orleans Jazz, SwingПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42A72CE16471A1E1FB2FEFBB94DC999C45AEAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207392   (780610) от 18.02.2018
 
 Billy Eckstine And His Orchestra - Together (1945) [FLAC|Lossless|image + .cue] <Jazz, Swing>
@@ -570,180 +744,6 @@ Louisiana Rhythm Kings - 1929 - 1930 (2003) Classics [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A68D697687874BD1FEC1B8F1913E3E9B0A121673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208442   (779999) от 22.02.2018
-
-Harold Vick - Steppin' Out! (1963) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Miss Brooks [07:30]
-02. Trimmed In Blue [06:13]
-03. Laura [04:42]
-04. Dotty's Dream [06:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC02A82CE2D5145BE005BFB8DEC7934CCBEB22E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208437   (779998) от 22.02.2018
-
-Bob Brookmeyer And Friends (1964) 2017, Sony Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jive Hoot [04:44]
-02. Misty [05:19]
-03. The Wrinkle [05:22]
-04. Bracket [05:00](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262DA02C7667093CCBABCBD9EE64485E4AED14C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208600   (779962) от 22.02.2018
-
-Kenny Bland - Morning Jazz Background (2018) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Perfect Start of Day	3:48
-02.	Relaxing Guitar	4:16
-03.	Positive Jazz	3:34
-04.	After Hard Night	3:18(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD97B04C53DB26C882493F7533B46FF64334497E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208690   (779822) от 23.02.2018
-
-Enrico Pieranunzi Latin Jazz Quintet - Live At Birdland (2008) 2010, CAM Jazz [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk [00:12]
-02. Danza 2 [14:42]
-03. Choro del Infinito Hombre [09:08]
-04. Rosa del Mare [06:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB15DB64E020D05705AD4D48390C1DFA9F9B710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208693   (779820) от 23.02.2018
-
-Helen Forrest & Benny Goodman - The Complete Helen Forrest With Benny Goodman (1939 - 1941) 3CD, 2001, Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779820.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Busy As A Bee (I'm Buzz, Buzz, Buzzin') [03:15]
-02. What's The Matter With Me? [03:06]
-03. What'll They Think Of Next? [03:18](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 02:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9820CDEF6787709BA17B59DAB568AA13CF276D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208689   (779815) от 23.02.2018
-
-Bill Evans - The Bill Evans Album (1971) 2017, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funkallero [07:49]
-02. The Two Lonely People [06:14]
-03. Sugar Plum [07:06]
-04. Waltz for Debby [07:46](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508A6E175467AE51B155A95FD4DC0858E0ACABE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1137774   (664386) от 29.05.2017
+
+Nalle Pahlsson's Royal Mess - Royal Mess (2015) Special Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aces High  (03:51) 
+02. Hell City  (03:44) 
+03. Mr. Freedom  (04:18) 
+04. Gold Digger  (03:18) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64B09A8CC47593FD8E786ECCB0673D22D9430A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538063   (664292) от 19.03.2022
+
+Mott The Hoople (British Lions) - 21 albums, 3 Box-sets, 39CD (1969-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Glam Rock, Classic Rock, Rock, Rhythm & Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mott the Hoople — британская рок-группа, образованная в 1969 году в Херефордшире, Англия, бывшими участниками группы Silence и заимствовавшая название у романа Уилларда Мануса (главный герой которого — эксцентрик, работающий в цирковом фрик-шоу). Путь к славе "Mott The Hoople" был весьма тернистым. Mott The Hoople всегда считалась невероятно оригинально (   Читать дальше...   )--------------------------
+
+01. One More Chance To Run (3:36)
+02. Wild In The Streets (3:01)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Classic Rock, Rock, Rhythm & Blues |Продолжительность: 38:39:30 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F803ABC36981D5B3A2C72D12F36ECCAA0DFFA6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538414   (663443) от 20.03.2022
+
+Quickstrike - None Of A Kind (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Rock Disaster (03:53)
+02. Saint (04:54)
+03. Cheats n' Liars (03:14)
+04. Shut them Down (04:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C260648746E59882C6E165F25FEE87FDDC7C6861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538446   (663437) от 20.03.2022
+
+Ransom - Back To The Boozer (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vindication
+02. Colour Blind
+03. Killing Time
+04. Gender Offender(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0029F885857D57E22FD00016D51DA2942A6F5117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538438   (663429) от 20.03.2022
 
 Stone Axe - Stay Of Execution (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
@@ -642,123 +758,6 @@ AOR - L.A Darkness (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55371CBB84D1023AC4E2ABA457720985AF02E99A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031699   (651801) от 04.07.2016
-
-Doogie White & La Paz - Shut Up and Rawk (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Light the Fire
-02. Heart of Stone
-03. No Place in Heaven
-04. The Revenge of el Guapo(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B88A859360F70532527C1677DAB7D9CE4CC4BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030888   (651375) от 04.07.2016
-
-Steve Vai - Modern Primitive + Passion & Warfare (2016) 25th Anniversary Edition [FLAC|Lossless|image + .cue] <Instrumental Rock, Hard Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bop!
-02. Dark Matter
-03. Mighty Messengers
-04. The Lost Chord(   Читать дальше...   )Жанр: Instrumental Rock, Hard Rock, Progressive RockПродолжительность: 1:10:14 + 1:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7DAFB7BFBEDBF3E9DD1331C1B19F70916665767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292025   (648840) от 28.03.2019
-
-Emerald Sabbath - Ninth Star (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embryo - Intro (00:52)
-02. Die Young (04:34)
-03. Fluff (04:12)
-04. Trashed (04:38)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483644FA9BFD790FA298B1136F400D001F7A8B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799319   (648072) от 25.06.2014
-
-VA - Pure... hard rock (2011) Box Set, 4 CD [FLAC|Lossless]<Hard Rock, Heavy Metal, Album Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648072.jpg" />
-</div>
-
-
-###  Подробнее
-
-По количеству любителей тяжелой музыки наш клуб, наверное мог бы выставить большую команду на чемпионат мира по тяжелой атлетике.
-Я себя к таковым (любителям) не отношу. Но увидев этот сборник в очередной зарубежной командировке не мог пройти мимо. Здесь много известных имен, но я бы обратил Ваше внимание на не представленные на трекере, но очень интересные группы: (   Читать дальше...   )01. Alice Cooper - Poison  (4:32)
-02. Judas Priest - Living After Midnight  (3:31)
-03. Scorpions - The Cross  (4:30)
-04. Joe Satriani - Satch Boogie  (3:14)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Album Rock, Arena RockПродолжительность: 04:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F8D4EDE8E99D81AC71F0C12202CA31A3142756
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1858214   (1060098) от 09.03.2026
+
+Nicholas Knecht - Stellar Currents (2026) AI-generated content [MP3|320 Kbps] <Art Rock, Fusion, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Light at Lagrange [00:04:18]
+02. Hydroponic Dream [00:03:43]
+03. Equinox at the Dry Dock [00:04:28]
+04. Chlorophyll Groove [00:02:59](   Читать дальше...   )Жанр: Art Rock, Fusion, Space RockПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EB1896A5D2274DB87C39B8C035A7E78967AB3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855527   (1058749) от 26.02.2026
 
 Altin Gün (Altin Gun) - 5 Albums (2018-2026) In Turkis [MP3|320 Kbps] <Anatolian-Rock, Psychedelic-Rock>
@@ -716,35 +745,6 @@ Eric Clapton - Pilgrim (1998) Reissue, Remastered, 2014, Audio Fidelity [OGG Vor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F31FF7D52275E4909EBE3022213F553CE20D406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605197   (1044861) от 18.01.2023
-
-Eric Clapton - Journeyman (1989) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbis|480 Kbps] <Rock, Pop Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretending
-02. Anything For Your Love
-03. Bad Love
-04. Running On Faith(   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 00:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6BB07881C18F6E4AEFD89279C181B8C689E506
 ```
 
 https://mybot314.ru/tekegram_catalog/

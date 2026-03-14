@@ -1,3 +1,90 @@
+###  Публикация: 1448114   (1031151) от 16.02.2021
+
+VA - The Black Lavender (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сильный и монументальный вокал, гармонирующий с традиционными музыкальными инструментами и электронной музыкой – изрядная редкость. Оригинальные, атмосферные, трогательные и в то же время напористые композиции были специально отобраны и включены в релизе «The Black Lawender», в котором представлены музыкальные жанры рока и рок альтернативы.001. Coast To Coast - Be Kind (Alternative)
+002. Cymatica - Hours
+003. American Hi-Fi - Oliver's Army
+004. Good Tiger - Animal Mother(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 10:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C02FF9920E2C0A5750F17F5039D621741E386E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448112   (1031137) от 16.02.2021
+
+VA - National Pop Dance Vol.12 (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасное сочетание жанров танцевальной и поп музыки в одном музыкальном сборнике – «National Pop Dance» 12-го выпуска. Музыка идеально подойдет для ежедневного прослушивания представителям разной возрастной категории, социального статуса и предпочтениям. Это яркий пример, когда скептическое отношение к определенному жанру может измениться – стоит лишь прослушать (   Читать дальше...   )001. In-Grid - Really Really Wanna
+002. Gabrielle Aplin - Nothing Really Matters
+003. Jackson R.A. - Real Life
+004. Barclay James Harvest - Ursula(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9FD442158033B49AC8A8FE7C71A3C9E3D99074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448110   (1031136) от 16.02.2021
+
+VA - Classic Italian Songs (2021) [MP3|320 Kbps] <Classic, Vocal, Retro, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка и песни этого сборника переносят в теплую, гостеприимную Италию, заряжают вкусом к жизни и помогают ощутить её в самых тончайших оттенках. Послушайте сочные итальянские голоса, смакуйте яркие итальянские мелодии, насладитесь живыми мотивами итальянской музыки! Почувствуйте Италию душой!01. Edoardo Vianello - Guarda Come Dondolo
+02. Giuni Russo - L'addio
+03. Mina - Il Cielo In Una Stanza
+04. Sandro Giacobbe - Signora Mia(   Читать дальше...   )Жанр: Classic, Vocal, Retro, PopПродолжительность: 04:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C9CC762A4E5D3BDC2D24ED715CE07EB31FB768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621646   (1030953) от 25.03.2023
 
 VA - Turn On Electro Jazz (2023) [MP3|320 Kbps] <Jazz, Instrumental, Improvisation>
@@ -658,93 +745,6 @@ VA - Anos 70 - Internacional (2023) [MP3|320 Kbps] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97AAA42C597DC890CC2DCBD2994E3B71BEB52882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623426   (1029394) от 01.04.2023
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 124 (2023) [MP3|320 Kbps] <Club, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. Benny Benassi, Chris Nasty & Constantin - Make Some Noise
-02. Dubdogz & Zuffo & Rhoden - Mission Impossible (Extended Mix)
-03. Dj Kuba & Neitan x Bounce Inc - Work My Body (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 06:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3D52F4768325905D2BA2217C8ED7E698BEBE97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623454   (1029364) от 01.04.2023
-
-VA - Дискотека 2023 Dance Club Vol. 218 [NNNB] (2023) [MP3|320 Kbps] <Dance, House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-[3:07] 001. Morgan Page feat. TELYKast - Dancing All Alone
-[2:15] 002. Tiesto - All Nighter
-[2:24] 003. Lolita Jolie feat. Rob x Chris x Rocco - Ella Elle La(   Читать дальше...   )Жанр: Dance, House, Trance, Pop, ChillПродолжительность: 12:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC1A36FAA9C5AC75AAF26E4FDCC5FBD03EC5136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623444   (1029363) от 01.04.2023
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 126 (2023) [MP3|320 Kbps] <Club, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. Aazar - That Thing (Original Mix)
-02. AC-DC x EwellicK, Dimax White   - Thunderstruck 23 (Dj Baur VIP Edit)
-03. Akcent - Kylie (Jenia Smile & Ser Twister Remix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 05:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00CFE7AEA600227119136C24296FEF6B0642ACD
 ```
 
 https://mybot314.ru/tekegram_catalog/

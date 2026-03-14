@@ -1,3 +1,32 @@
+###  Публикация: 1469650   (1016277) от 13.05.2021
+
+VA - Soft Pop Hits 3 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Great Big World, Christina Aguilera - Say Something (3:49)
+02. Harry Styles - Sweet Creature (3:44)
+03. 3 Doors Down - Here Without You (3:58)
+04. Christina Perri - Jar of Hearts (4:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6031A247E9BDA6C9A6EBDB02104957512A5CE63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470161   (1015711) от 16.05.2021
 
 VA - NRJ 300 % HITS 2021 (3CD) [MP3|320 Kbps] <Dance, R&B, Hip Hop, Pop>
@@ -716,35 +745,6 @@ VA - 230 DJ Loaded - Musiced Dedications (2021) [MP3|192-320 Kbps] <Afrobeat, Hi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD21EC5C611DD5C68F07A56FA332C5CDA6DC6C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474908   (1012092) от 08.06.2021
-
-VA - Summer BBQ (2021) [MP3|320 Kbps] <Rhythm & Blues, Folk, Rock & Roll, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Meters - Cissy Strut
-02. Charles Wright & The Watts 103rd. Street Rhythm Band - Express Yourself
-03. Betty Wright - Clean up Woman
-04. Aretha Franklin - Chain of Fools(   Читать дальше...   )Жанр: Rhythm & Blues, Folk, Rock & Roll, DiscoПродолжительность: 03:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C186354C852D51DDBA08E34192155355DAA422
 ```
 
 https://mybot314.ru/tekegram_catalog/

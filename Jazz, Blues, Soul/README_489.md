@@ -1,3 +1,177 @@
+###  Публикация: 1701208   (116477) от 20.02.2024
+
+Dominic Kelly - Blues Adjacent (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monday Blues (2:45)
+02. My Mama Said (2:19)
+03. Side Hustle (2:42)
+04. Hypnotize Me (2:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C91FA5A7F1C9FBE07C0CC89DA8F026AE1BA6E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701304   (116347) от 21.02.2024
+
+VA - Jazz Bass - Virtuosity - Electric & Upright (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kinga Głyk - Teen Town (5:34)
+02. Jaco Pastorius - Continuum (Live) (2:34)
+03. Wayman Tisdale - Can't Hide Love (3:44)
+04. Billy Cobham - Red Baron (6:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283F34019D2014F967D4C4A9E180038193D83D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701456   (116332) от 21.02.2024
+
+Blue Mitchell - Big 6 (1958) 2007, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues March [10:26]
+02. Big Six [6:45]
+03. There Will Never Be Another You [5:05]
+04. Brother 'Ball [7:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AF85BAFD6920A0253D94557BDE9870A929D226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701457   (116330) от 21.02.2024
+
+Alan Broadbent Trio - Trio In Motion (2020) Savant Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonder Why [3:55]
+02. I Hear You [5:34]
+03. Lennie's Pennies [3:07]
+04. Struttin' with Some Barbecue [3:21](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF047190FFA6C03D0116CE5129CA40DCD091ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701461   (116323) от 21.02.2024
+
+Danielle Hebert & Phil Dwyer - Paris Is For Lovers (2007) Somerset [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La vie en rose [5:23]
+02. C'est si bon [4:43]
+03. Nuit et jour (Night and Day) [5:48]
+04. Le soir [4:24](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41517E1421AC510C140CC32C525B1EB36E553E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701764   (116191) от 22.02.2024
+
+VA - Jazz Vocals Pop Hits with a Jazz Twist (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Lanza - Together in Electric Dreams (4:14)
+02. Larkster Quartet - Suspicious Minds (3:17)
+03. Meesha - Don’t Start Now (3:10)
+04. Olivia Keast - Get Lucky (4:32)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43552690CD1F78C61982B5EA5EC75D9CD5049A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701728   (116175) от 22.02.2024
 
 The Marian McPartland Trio - Personal Choice (1983) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
@@ -571,180 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F45621430F6CB9143FD2D8D17B84876AF5FE1B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702335   (115818) от 24.02.2024
-
-Sullivan Fortner - Aria (2015) Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aria [6:32]
-02. Ballade [6:08]
-03. Parade [5:16]
-04. I Mean You [4:57](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F3463E1CCDF5877DD017A81CE1B42A686AFFF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702328   (115817) от 24.02.2024
-
-Echoes of Swing With Rebecca Kilgore - Winter Days At Schloss Elmau (2018) ACT Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Moon [4:47]
-02. Stopping by Woods on a Snowy Evening [4:31]
-03. I've Got My Love to Keep Me Warm [3:36]
-04. The Bell That Couldn't Jingle [3:28](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D2897AD49C12ACC26E07BB9ED896A14B0B4343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702324   (115816) от 24.02.2024
-
-Anita O'Day - At Vine St. Live (1991) DRG Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'd Be So Nice To Come Home To [5:42]
-02. Old Devil Moon [4:23]
-03. Is You Is Or Is You Ain't [4:22]
-04. A Song For You [3:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F327557C6B2BA010FE3B6163442E94568AB21715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702327   (115814) от 24.02.2024
-
-Anita O'Day - The Breakfast Show (1964) 2007, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Foggy Day In London Town [4:18]
-02. Is You Is Or Is You Ain't My Baby [4:15]
-03. I've Got The World On A String [4:36]
-04. You Can Depend On Me (long version) [7:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D92D93C51ADD6812A7A377E0758F6CB25A5042D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702331   (115798) от 24.02.2024
-
-Marian McPartland - At The Hickory House (1955) 1992, Jasmine Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hear Music [3:35]
-02. Tickle-Toe [2:58]
-03. Street of Dreams [2:11]
-04. How Long Has This Been Going On [4:07](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07034EC6619652410D9079CFC30AB4C2C9A7F8EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702484   (115676) от 25.02.2024
-
-Marian McPartland - Just Friends (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeepers Creepers (with Tommy Flanagan) [5:01]
-02. I've Got a Crush on You (with Tommy Flanagan) [6:06]
-03. Some Time Ago (with Renee Rosnes) [5:29]
-04. It's You or No One (with Renee Rosnes) [5:18](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFA722447CE40BE206E431A75AE02B3585A9A29
 ```
 
 https://mybot314.ru/tekegram_catalog/

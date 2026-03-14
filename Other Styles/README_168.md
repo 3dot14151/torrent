@@ -1,3 +1,73 @@
+###  Публикация: 465328   (96567) от 13.03.2012
+
+Ravi Shankar - Bridges: The Best Of Ravi Shankar (2001) [MP3|128 кб/с]<Ethnic, Indian Classical Music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sandhya Raga (11:23)
+2. Chase (2:21)
+3. West Eats Meat (6:11)
+4. Ragas In Minor Scale (7:36)
+5. Tarana (5:39)
+6. Tana Mana (3:42)
+7. Sadhanipa (8:35)
+8. Friar Park (5:57)
+9. Reunion (4:20)
+10. Prashanti (13:40)(   Читать дальше...   )2001Жанр: Ethnic, Indian Classical MusicПродолжительность: 01:16:6
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464934   (96386) от 11.03.2012
+
+Elane - Arcane (2011) [MP3|320 кб/с]<Celtic, Gothic, Fantasy Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gift (01:01)
+ 02. Heart of the Desert (03:44)
+ 03. Samarkand (03:10)
+ 04. Arcane Ride (05:30)
+ 05. Magdalena (04:52)
+ 06. Wasser und Fels (02:52)
+ 07. Die geheime Melodie (04:26)
+ 08. My Ivory Fairy (03:46)
+ 09. Abendruf (04:31)
+ 10. Lurlinnight (04:53)(   Читать дальше...   )2011Жанр: Celtic, Gothic, Fantasy Folk RockПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3719FC83C1C3A0A6EFB614BE73358107CF9DBD76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 460011   (94941) от 29.02.2012
 
 VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
@@ -189,39 +259,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAEA47CE460F7499B5D5EE0BC0EBBAD37E9B8A93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488452   (90794) от 26.04.2012
-
-Kiss The Anus Of A Black Cat - 6 albums (2005-2012) [mp3|320 kbps] <Neofolk, Apocalyptic Folk, Experimental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Word As Gospel (05:48)
-02. Define π (04:36)
-03. The Shadows Are You (03:29)
-04. Ruins (05:04)
-05. Triple Fall (03:10)
-06. Shake Off Your Dreams (05:42)
-07. Let Things Drift (04:54)
-08. Weltuntergangsstimmung (04:08)2005-2012Жанр: Neofolk, Apocalyptic Folk, ExperimentalПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61EA4D30E8E291E9C01490A2FCC2F04D822107DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -820,41 +857,6 @@ VA - Любимые мелодии Советского кино (2012) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1629151A5A7EEA837BCE8505B08F312D27D0E2EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467022   (81834) от 13.03.2012
-
-Лоракс / The Lorax - Original Songs From The Motion Picture (2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ester Dean - Let It Grow (Celebrate The World)-03:39
- 02. Fletcher Sheridan - Thneedville-02:44
- 03. Ed Helms - This Is The Place (Tricky Version)-02:24
- 04. Ed Helms - Everybody Needs A Thneed-01:31
- 05. Ed Helms - How Bad Can I Be-02:52
- 06. Fletcher Sheridan - Let It Grow-03:17
- 07. Jenny Slate - Let It Grow Gospel Ending (Original Demo)-00:53
- 08. Fletcher Sheridan - Thneedville (Original Demo)-03:58
- 09. Ed Helms - The Once-ler's Traveling Madness-01:35
- 10. Randy Crenshaw - I Love Nature-02:43(   Читать дальше...   )2012Жанр: SoundtrackПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D9A40BF73F8EDCF71BA5E7966ED59CAE811EF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

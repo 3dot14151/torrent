@@ -1,3 +1,90 @@
+###  Публикация: 1353790   (990800) от 19.01.2020
+
+VA - Rise Up DnB Mixtape (2020) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreadcore - Tripwire Feat. Theta
+02. Nicky Blackmarket - One Part Jungle
+03. Books - Roark
+04. Chaser - Bring Me Down(   Читать дальше...   )Жанр: Drum & Bass, Bassline, DubstepПродолжительность: 06:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFF950BF45278803383892F121E3CAE17510FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353771   (990797) от 19.01.2020
+
+VA - German Top 100 Single Charts 17.01.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Tones and I - Dance Monkey
+03. Apache 207 - Roller
+04. Dardan - 6AM.........(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1FC30887210B76F2EEFB79AA03C06FA3A8D813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353802   (990738) от 19.01.2020
+
+VA - Record Super Chart 621 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
+02. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48
+03. Carla Morrison - Disfruto 3:57
+04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD81E5D952581E3597D63B98189427238594B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353914   (990733) от 19.01.2020
 
 VA - Beatport Tech House: January Pack #02 (2020) [MP3|320 Kbps] <Tech, Deep House>
@@ -717,105 +804,6 @@ VA-Союз Русских Новинок (2013) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D73A817AC077EDEC451DDDF11D9791CD3841ABA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607615   (989338) от 30.01.2013
-
-VA-Зарубежный Союз Новинок (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989338.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daze - Fool Me! (Radio Edit)
- 002. Armin van Buuren - We Are Here To Make Some Noise
- 003. Maroon 5 - One More Night
- 004. Ramus & April - It's Summertime
- 005. Ocean Drive - Revolution
- 006. Inna Feat. Play & Win - INNdiA (Radio Edit)
- 007. Loreen - My Heart is Refusing Me
- 008. Roma Pafos feat. Sarkis Edwards - Say Goodbye (Sensetive5 Radio Edit)
- 009. Alex Megane - Turn Me On (Radio Edit)
- 010. B.K. - Sex (DJ Zhukovsky Official Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A69ED9227544234FB2C5ADF9573FE5234E3F697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610934   (989227) от 30.01.2013
-
-VA - Дискотека : Зимний Mix Отрыв 50/50 (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 DJ Smash & DJ Vengerov - Только Вперед (DJ Noiz & DJ Maxtal Radio Remix)
-02 Basto & Yves V - Cloud Breaker (Basto mix)
-03 Virone - Расстояние (Dj Glazunov remix)
-04 Metrik - Engine Room (original mix)
-05 Дискотека Авария - Ноги-Ноги (DJ Nejtrino & DJ Stranger Remix)
-06 Max Graham feat. Jeza - Still There's You (Tomas Heredia remix)
-07 Чи-Ли - Кошка (Sergei Karpov Minimal Pop remix)
-08 Will.I.Am feat. Jennifer Lopez - T.h.e. (DJ Rich-Art & DJ Kirillich remix)
-09 Alex Akimov & Ivan Flash feat. Dana K - Dance (Original Mix)
-10 Badiizrael - Insomnia (original mix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7930278525E9595B49EEBE9FAEC50D3634FC50A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354179   (989060) от 21.01.2020
-
-VA - Sublime Electro House: Progressive Mix (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989060.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Prodeeboy - Ultimate Destination
-002. Marcus Caballero - Serenity (Original Mix)
-003. Caleb Weiss - London Rhythm (Original Mix)
-004. Daniele Frate - Are You Ready(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 13:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E5BE938CEC7453348B55202F8EB83E535F8738
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 412131   (334071) от 18.11.2011
+
+Михаил Турецкий представляет - Арт-группа Сопрано 10 (2010) [MP3|320 kbps] <Vocal, A Capella, Pop, Other>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Vocal, A Capella, Pop, OtherПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420287   (333820) от 31.10.2020
+
+VA - Kontor Top Of The Clubs 2020.03 (2020) [MP3|320 Kbps] <House, Club House, Progressive>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabry Ponte & Jerome - Lonely [2:49]
+02. The Underdog Project - Summer Jam (Alle Farben Remix) [3:08]
+03. R.I.O. - Hey Mama [2:41]
+04. VIZE & Tom Gregory - Never Let Me Down [2:33](   Читать дальше...   )Жанр: House, ClubHouse, Progressive, DeepHouse, Electronic, DanceПродолжительность: 06:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBEB89A7ED6D523DFED5C9C88DF257FB1E0A5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955318   (333777) от 11.11.2015
+
+VA - Los clasicos argentinos Tango - Vol.04 (1996) [MP3|128 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Saludos
+02-Canchero
+03-Sera una noche
+04-Sentimiento gaucho(   Читать дальше...   )Жанр: TangoПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B52C4B932FA6556BB53BFCD001B4CC83ACA8A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420279   (333767) от 31.10.2020
+
+VA - Kontor Top Of The Clubs 2020.04 (2020) [MP3|320 Kbps] <House, Club-House, Deep-House>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twisted Harmonies - Can'T Get You Off My Mind [2:33]
+02. VIZE & Joker Bra feat. Leony - Paradise [2:36]
+03. Master KG feat. Nomcebo Zikode - Jerusalema [3:09]
+04. Joel Corry feat. MNEK - Head & Heart [2:46](   Читать дальше...   )Жанр: House, Club-House, Deep-House, Electronic, DanceПродолжительность: 07:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8232049F49B4738917083E84F2261F57BB23B25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955020   (333706) от 11.11.2015
+
+Заклятие долины змей - Klatwa doliny wezy (1987) [MP3|256 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maod (1:59)
+02. Gagaku (1:44)
+03. Maffia (2:21)
+04. Rituaal (3:36)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDD270B93EE4F1665D8EFB18AACF309BEF69848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 840692   (333691) от 13.11.2014
 
 Richard Clayderman - The Ultimate Collection (2005) 3CD [APE|Lossless]<Instrumental>
@@ -601,151 +743,6 @@ VA - Тихая ночь /3CD/ (2009) [MP3|320 kbps]<New age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FBB954691C58C7957847830E5A10C03BD17505C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956721   (328966) от 15.11.2015
-
-Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edition [MP3|320 кб/с]<World, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Lullaby (Live)
-02. Bohemian Ballet (5:17)
-03. Twosome (Marta & Katalin Version) (4:08)
-04. Deep Forest - Forest Power (3:50)(   Читать дальше...   )Жанр: World, New Age |Продолжительность: 02:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B037121BD853277927EDC6B5864D0DF5B5120D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957018   (328444) от 16.11.2015
-
-Eric Tingstad - Mississippi (2015) [OGG|442-502 кб/с]<New Age, Contemporary Guitar Instrumental, Ambient Americana>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Boats
-02. Shakin' in the Cradle
-03. Mississippi
-04. Trail of Tears(   Читать дальше...   )Жанр: New Age, Contemporary Guitar Instrumental, Ambient AmericanaПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED97761447BBB2D0477021226D2BD0AE0B8857B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956707   (328419) от 16.11.2015
-
-Larry Cann - Rodeo Road (2015) [MP3|320 кб/с]<Country, Country Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bred To Buck (feat. Lee Kernaghan)
-02. Horsepower (feat. Adam Brand)
-03. The Thrill Of It All
-04. Rodeo Moon(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB55BC33EDFB0D2227E2495F5830AEF9AC03ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956467   (328414) от 16.11.2015
-
-Soulwire (Ken Hill) - три альбома (2006-2011) дискография [FLAC|Lossless]<New Age, Chillout, Piano, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temple of Illumination (07:21)
-02. When Time Sleeps (01:41)
-03. X (05:07)
-04. Ellipsina (04:07)(   Читать дальше...   )Жанр: New Age, Chillout, Piano, DowntempoПродолжительность: 02:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3A750FE248D327A44913AF2527A4DE0517A4A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957196   (327551) от 17.11.2015
-
-Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes Ya No So (1999)/Telarc, [FLAC|image+cue]<tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Tanguedia		03:38
-02.	Four for tango		06:29
-03.	Lo que vendra		04:34
-04.	No 1 - Street tango		04:42(   Читать дальше...   )Жанр: tangoПродолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE8BBDB20325FB468539F0D16B90D88AFF1CD20
 ```
 
 https://mybot314.ru/tekegram_catalog/

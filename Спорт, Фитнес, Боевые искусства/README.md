@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060073.jpg" />
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060073.jpg" />
 </div>
 
 

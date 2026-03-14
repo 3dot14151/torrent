@@ -1,3 +1,61 @@
+###  Публикация: 1146652   (609490) от 02.07.2017
+
+The Human League - Greatest Hits (1995) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't You Want Me [03:55]
+02. Love Action (I Believe in Love) [03:48]
+03. Mirror Man [03:48]
+04. Tell Me When [04:39](   Читать дальше...   )Жанр: PopПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F5CE8E25061C80850F3C79B0EDB289C542BA2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038320   (608750) от 27.07.2016
+
+Tricia - Radiate (2013) [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything As Loss    03:18
+02. Mirror Mirror    02:50
+03. Enough    02:52
+04. Radiate    02:51(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6E8E50E6D1A4FC1F510B88B4CF359485A701CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546194   (607672) от 23.04.2022
 
 VA - Super Disco Еxclusive Remix [Vol.1-5] (2022) DJ Lexsus [MP3|320 Kbps] <Dance, House, Pop, Club, Disco>
@@ -692,64 +750,6 @@ VA - Billion Sellers - The Best Of DMC (Classic Mixes) (Vol.1) (2022) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE9EB5879299C871E35C89F979655FDB3E238165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232224   (602333) от 23.06.2018
-
-TB Frank (ex. The Neon Judgement) & Baustein - Tock! (2018) [MP3|320 Kbps] <Alternative Pop, Electro Rock, IDM>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother of Earth
-02. Bombies
-03. Margarita
-04. Snow White(   Читать дальше...   )Жанр: Alternative Pop, Electro Rock, Electro Funk, EBM, IDM, Synthpop, ReggaeПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B41AF95B386578B3EF277C9DD30258524E5323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298056   (602149) от 26.04.2019
-
-Pink (P!nk) - Hurts 2B Human (2019) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hustle
-02. (Hey Why) Miss You Sometime
-03. Walk Me Home
-04. My Attic(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DBFE9EE6CA2E4942C2D9F9EC2FB9BF09E35100
 ```
 
 https://mybot314.ru/tekegram_catalog/

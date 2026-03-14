@@ -1,3 +1,177 @@
+###  Публикация: 1727844   (108393) от 04.06.2024
+
+The Charlie Byrd Trio with Scott Hamilton - It's A Wonderful World (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Wonderful World [3:45]
+02. Between the Devil and the Deep Blue Sea [5:07]
+03. My Shining Hour [3:15]
+04. I Got It Bad and That Ain't Good [4:30](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0DDD906BA2A9E67EC342BC555D25966DCA302F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727802   (108390) от 04.06.2024
+
+VA - Slow Funk 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anduze - Getting You Off (4:40)
+02. Live Tropical Fish - Mister Man (4:06)
+03. David Florio - Love Beyond (4:09)
+04. Vito Lalinga (Vi Mode Inc. Project) - Bua (4:09)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACF63C14062FA2B4DF9030D583952D7CE1C771F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727798   (108389) от 04.06.2024
+
+VA - Acid Jazz Summer Grooves Pure Acid Jazz 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Dance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lostinwhite - Do It (3:53)
+02. Jestofunk - Straight To You (6:04)
+03. Live Tropical Fish - Mister Man (4:06)
+04. Black Mighty Wax - Follow That Fellow (3:40)(   Читать дальше...   )Жанр: Acid Jazz, DanceПродолжительность: 01:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD7FABCE9B88BB83F260B509F63629882182F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727845   (108382) от 04.06.2024
+
+The Charlie Byrd Trio & Guests - Byrd At The Gate: At The Villiage Gate (1963) 1986, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shiny Stockings [4:58]
+02. More (Theme from Mondo Cane) [2:54]
+03. Blues for Night People [7:07]
+04. Butter and Egg Man [3:40](   Читать дальше...   )Жанр: Bossa Nova, CoolПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5695AF3F36096FE2A1781BB1F980FBB344423E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727841   (108381) от 04.06.2024
+
+The Charlie Byrd Trio & Ken Peplowski - The Bossa Nova Years (1991) 2003, Concord Picante [FLAC|Lossless|tracks + .cue] <Bop, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation [5:07]
+02. One Note Samba [4:50]
+03. Corcovado [7:17]
+04. Triste [4:35](   Читать дальше...   )Жанр: Bop, Bossa NovaПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A098CB4C6B67FFA3EC868355B93D17C51534FBA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728087   (108376) от 05.06.2024
+
+The Scott Hamilton Quintet - The Second Set (1983) 1993, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things You Are [6:33]
+02. Time After Time [6:39]
+03. Taps Miller [5:36]
+04. All Too Soon [6:03](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88552C926145C2AF73EC89F7CCE1787EE8911FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728093   (108374) от 05.06.2024
 
 Scott Hamilton, Jake Hanna, Dave McKenna - Major League (1986) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -571,180 +745,6 @@ Jesse Redwing - Trim the Fat (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7C52C7D85DE0A9ECC8BC051EC3E1ED6A7030E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728226   (108312) от 07.06.2024
-
-Dede Priest and Johnny Clark's Outlaws - Best Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Garden (4:09)
-02. Never Too Late To Go To Nashville (3:56)
-03. Boat In The Attic (5:25)
-04. Best Pieces (4:55)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6001AAFA736708043C67C2AB4E6448F5DA925A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728209   (108311) от 07.06.2024
-
-Alastair Greene - Standing out Loud (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can't Fool Me (2:31)
-02. Slow Burn (2:49)
-03. Only Do (3:02)
-04. In Trouble (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46C833A7C50351C0CDC1B0296D3079E0A178B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728640   (108262) от 08.06.2024
-
-Oscar Peterson - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke Gets in Your Eyes [3:07]
-02. Deep Purple [3:12]
-03. Robbin's Nest [3:16]
-04. I'll Remember April [3:35](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E8CA59ACF102AF97E2BE6395ECC7BA9F7FD300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728645   (108259) от 08.06.2024
-
-Lee Ritenour - & His Gentle Thoughts (1977) 2003, JVC [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Captain Caribe/Getaway [10:01]
-02. Chanson [4:13]
-03. Meiso [4:54]
-04. Captain Fingers [5:32](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED16278A0C99999F562754A3BAC344A089E0DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728641   (108255) от 08.06.2024
-
-Sonny Stitt - 1950 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalon [2:32]
-02. Later [3:03]
-03. Ain't Misbehavin' [3:05]
-04. Mean to Me [3:10](   Читать дальше...   )Жанр: BopПродолжительность: 01:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61ABA920E5405FCFBDB069553EA78A7A1EFA2318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728638   (108253) от 08.06.2024
-
-Benny Goodman - 1942 (2003) Classics [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Build a Better Mousetrap [3:06]
-02. At the Darktown Strutter's Ball [2:27]
-03. When the Roses Bloom Again [2:56]
-04. Jersey Bounce [2:57](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878EDE4E8FCB3A6B7696927938B5DF67597D12B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

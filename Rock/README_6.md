@@ -1,3 +1,32 @@
+###  Публикация: 1466422   (1018450) от 30.04.2021
+
+Renaissance - 50th Anniversary: Ashes Are Burning: An Anthology Live In Concert (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Out (Live, Keswick Theatre, Glenside, PA, 12 October 2019) [00:04:13]
+02. Day Of The Dreamer (Live, Keswick Theatre, Glenside, PA, 12 October 2019) [00:09:40]
+03. Mystic And The Muse (Live, Keswick Theatre, Glenside, PA, 12 October 2019) [00:07:55]
+04. A Song For All Seasons (Live, Keswick Theatre, Glenside, PA, 12 October 2019) [00:11:08](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 2CD, 01:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A358205ADE86C762399F1E0B6D9A3C7F87C468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466493   (1018364) от 30.04.2021
 
 Pink Floyd - Live at Knebworth 1990 (2021) [MP3|320 Kbps] <Progressive rock, Art rock, Rock>
@@ -717,35 +746,6 @@ Grateful Dead - Grateful Dead Skull And Roses (2021) 50th Anniversary Expanded E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51768DF8338905166687417D4F8FCA35D8FD7D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480057   (1009331) от 26.06.2021
-
-Modest Mouse - The Golden Casket (2021) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fuck Your Acid Trip [00:03:11]
-02 - We Are Between [00:03:52]
-03 - We're Lucky [00:02:44]
-04 - Walking And Running [00:03:01](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3446CDAF7BBDCBEAF97FC6E17DB3CB3CFBD2CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

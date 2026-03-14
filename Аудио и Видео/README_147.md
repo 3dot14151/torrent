@@ -1,3 +1,32 @@
+###  Публикация: 1545527   (613157) от 20.04.2022
+
+Валерий Меладзе, Константин Меладзе - Полста, Vol. 1 (2016) [AAC|~267 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не тревожь мне душу, скрипка (4:17)
+02. Ночь накануне рождества (4:59)
+03. Посредине лета (3:32)
+04. Золотистый локон (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE976F0B60EDD8AC9F042D424E27A68720B6412C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 700329   (613155) от 13.07.2014
 
 Девчата (1961) BDRip [576p] iPad
@@ -668,35 +697,6 @@ VA - We Chill del Mar, Vol. 1 (2013) [AAC|~323 Kbps] <Lounge, Chill Out, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A061BE666E87EFF8EC421A299F9062E27E876ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545784   (609627) от 22.04.2022
-
-VA - Chillout Room Session #1 (2012) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Art Lounge - La tua galassia (5:12)
-02. Lemon From Sicily - Ti prendo (4:41)
-03. Backsoul System - Incontri notturni (4:35)
-04. Sardinia Lovers - Nel cuore (4:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD156366ED7B792E312D235D209B6771801CFA32
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,88 @@
+###  Публикация: 1803701   (65827) от 24.06.2025
+
+VA - Winter Anthems 2016 (2016) CD, Compilation, Mixed [FLAC|Lossless|tracks + .cue] <Electronic, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheat Codes X Kris Kross Amsterdam / Sex    [0:04:16.22]
+02. Sigala Feat. John Newman & Nile Rodgers / Give Me Your Love    [0:03:11.73]
+03. Sia Feat. Sean Pau / Cheap Thrills (Le Youth Remix)    [0:02:42.06]
+04. Imany / Don't Be So Shy (Filatov & Karas Remix)wn Title    [0:03:06.00](   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDA0A4B19EB6A28705BE90EBDC5939A610D00F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806765   (65347) от 14.07.2025
+
+Restive Plaggona - Manipulation Techniques (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Stay Where I Can Reach You 5:12
+02 Manipulation Techniques 5:18Жанр: TechnoПродолжительность: 10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90CEF82E214AFF3585B40354D58D63ED1636EF22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807594   (65224) от 19.07.2025
+
+Boris Brejcha – Level One (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Level One (Intro Edit) (8:05)
+02. Ice Cave (8:19)
+03. Space X (Edit) (3:36)
+04. Dimension (8:01)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DF100C34D5E88FAF05C8D5E37848973DA8BBB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808151   (65036) от 22.07.2025
 
 Carl Craig - Desire: The Carl Craig Story (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -651,93 +736,6 @@ VA - ARABICA 2024 - Arabic Oriental Deep House Chillout Desert [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A351CBD707CFC655BF3A53C84A0D8772F4C5351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747329   (44610) от 04.09.2024
-
-VA - Arab Folk (Arab Vibes of the Middle East) (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mo-Omar - Balearic Harem (5:31)
-02. Profesor Esteban - Bay Nikola (Ethno Deep Mix) (5:33)
-03. Ahmed Al Enizy - Oh Oo (5:59)
-04. Sam & Claude - Arab Money (Original Mix) (6:24)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 02:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA66641BD572D0D4FD6023FF59165B04A51325D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747518   (44500) от 05.09.2024
-
-VA - Oriental Lounge Music (The Finest Selection Arab Ethnic Tribal House Rhythms) (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahmed Al Enizy - Oh Oo (5:59)
-02. Mohammed Haifawi - Mal Hbibi (6:30)
-03. Sam & Claude - Yoksun (Gonna Keep It) (4:39)
-04. Rachid El Esseily - Arbabi (5:11)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DA45694DD3FAB9BD23315FA88A820AC75E714B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748239   (44181) от 08.09.2024
-
-VA - ARAB X (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burak Abulso'oud - Mawjouaa Galbi (6:11)
-02. Hakim Assaf - Habiba Mi Amore (3:22)
-03. Kalita Kumar - Dilbar (5:08)
-04. Rachid El Esseily - Arbabi (5:11)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DDAD55BC95EBF7B4AB5B0755CCB6E9F96F5DF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

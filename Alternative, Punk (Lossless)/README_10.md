@@ -1,3 +1,90 @@
+###  Публикация: 1495480   (880815) от 12.09.2021
+
+The Used - Heartwork (2021) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Emo-Screamo, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise Lost, a poem by John Milton [00:02:47]
+02. Blow Me (feat. Jason Aalon Butler) [00:03:20]
+03. BIG, WANNA BE [00:03:30]
+04. Bloody Nose [00:03:04](   Читать дальше...   )Жанр: Emo-Screamo, Post-HardcoreПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0933F7BEA041EDFA7DBF6DA1E91F70047F32CEB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996471   (879174) от 14.03.2016
+
+The Calling - Two (2004) [FLAC|Lossless|image + .cue] <Alternative Rock, Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One By One
+02. Our Lives
+03. Things Will Go My Way
+04. Chasing The Sun(   Читать дальше...   )Жанр: Alternative Rock, Soft Rock, Pop RockПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0759BF2C9BCBB767B53A18B183AB1E8505C1B513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996505   (879169) от 14.03.2016
+
+Hoobastank - The Greatest Hits: Don't Touch My Moustache (2012) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Crawling In The Dark (02:58)
+02. My Turn (03:11)
+03. Out Of Control (02:45)
+04. The Reason (03:55)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABFED10CD7C1FD95038409ED5BA8C17ECF70EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996596   (879090) от 14.03.2016
 
 3 Doors Down - Us And The Night (2016) [FLAC|Lossless|image+.cue] <Alternative Rock, Post-Grunge>
@@ -656,93 +743,6 @@ Linkin Park - Minutes to Midnight (2007) [FLAC]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB9AE8D105B810083A47A7B6F93728BC4B6572CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378037   (848350) от 24.04.2020
-
-Paloma Faith ‎ - Fall To Grace (2012) [FLAC|Lossless|tracks + .cue] <Indie Rock, Blues, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Picking Up The Pieces (04:07)
-02. 30 Minute Love Affair (03:21)
-03. Black & Blue (04:04)
-04. Just Be (04:40)(   Читать дальше...   )Жанр: Indie Rock, Blues, AcousticПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31789501961586F31106D6F29D4BEBFFE8E1B8CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194003   (848044) от 24.04.2020
-
-Paloma Faith - The Architect (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evolution (Feat. Samuel L. Jackson) (01:05)
-02. The Architect (03:25)
-03. Guilty (04:19)
-04. Crybaby (03:54)(   Читать дальше...   )Жанр: Alternative Rock, Indie Pop, SoulПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF3F8E976BADC5E8CC91855E21A9831EDAA9324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499351   (847675) от 02.10.2021
-
-Asking Alexandria - Stand Up And Scream (2009) [FLAC|Lossless|image + .cue] <Post-HardCore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alerion
-02. Final Episode
-03. A Candlelit Dinner With Inamorta
-04. Nobody Don't Dance No More(   Читать дальше...   )Жанр: Post-HardCore, ElectronicПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678AEC4F30FE0E471EC1088D9E597797006C151D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1819530   (1432) от 22.09.2025
+
+Surrender The Crown - Travails (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand In Defiance [00:04:40]
+02. Signal In The Noise [00:04:53]
+03. Travails [00:04:25]
+04. Belong [00:04:34](   Читать дальше...   )Жанр: RockПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C9580B27C6377E88AD5BEDC9F2872C22D7D294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819516   (1430) от 22.09.2025
+
+Castle Rat - The Bestiary (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phoenix I [00:02:15]
+02. Wolf I [00:04:37]
+03. Wizard [00:04:57]
+04. Siren [00:03:41](   Читать дальше...   )Жанр: Doom Metal, Heavy MetalПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7E556AB719813FCD57844B68131192198D8B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819543   (1427) от 22.09.2025
+
+Spinal Tap - The End Continues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nigel’s Poem [00:01:10]
+02. Let’s Just Rock Again [00:03:56]
+03. (Listen To The) Flower People [00:02:34]
+04. Brighton Rock [00:03:03](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7713B309C664CB34616DF12DF62C8453B5685F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819511   (1413) от 22.09.2025
+
+Velial Squad - Бельмо (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пёс [00:01:50]
+02. Ночной Дозор [00:02:49]
+03. Зарисовка [00:02:04]
+04. Каждый День [00:02:13](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9667BFEB9F459595F14BF7A8394AE644C87189FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819440   (1412) от 22.09.2025
+
+Malevolence - Studio Albums (4 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal, Metalcore, Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malevolence — английская металкор-группа, образованная в Шеффилде, Южный Йоркшир, в 2010 году.2013 - Reign Of Suffering
+2017 - Self Supremacy
+2022 - Malicious Inten
+2025 - Where Only The Truth Is SpokenЖанр: Groove Metal, Metalcore, HardcoreПродолжительность: 03:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC52E89ACE0CABAA173E459C9B4B8374EF9611B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819434   (1410) от 22.09.2025
 
 The Crown (ex-Crown of Thorns) - Studio Albums (12 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
@@ -598,151 +743,6 @@ Crematory - Believe (2000) Reissue 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DDCD23DB6CF6EE8BF9B16193F57F0777B5084FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819986   (946) от 25.09.2025
-
-Karina Kozhevnikova & Krugly Band - Polyphonic Circle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  So What (10:07)
-02.  Round About Midnight (10:55)
-03.  Strolling (7:32)
-04.  Oh, Doctor Jesus (7:16)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D4F9E2E9A24FE582D4BD2A2C6F8F9E8556BE69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819979   (945) от 25.09.2025
-
-Dave Weld & The Imperial Flames - Bluesin' Through the Years (Remastered) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don't Ever Change Your Ways (Remastered) (4:17)
-02.  Don't Tell Mama (Remastered) (5:02)
-03.  Red Hot Tabasco (Remastered) (3:03)
-04.  Lookin for a Man (Remastered) (5:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420228FFF329F3753CFE31CD9FA878E703912F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819984   (944) от 25.09.2025
-
-Filippo Bianchini - Mood Indigo (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jerry Potato (5:42)
-02.  To DS (Dedication To Dayna Stephens) (4:11)
-03.  Trasloco (4:16)
-04.  Every 3 Hours (4:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149B3AF7E4AD28600407048F5FDBB2728AFF6550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646462   (864) от 26.09.2025
-
-Rage - Studio Albums (31 releases) (1985-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Speed/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rage — немецкая хэви-метал группа, основанная в 1984 году Петером «Пиви» Вагнером. Они представляли собой часть немецкой хэви-/спид-/пауэр-метал сцены, зародившейся в начале-середине 1980-х годов, и входят в «большую четвёрку» этой сцены наряду с Grave Digger, Helloween и Running Wild.1985 - Prayers Of Steel (as Avanger)
-1986 - Reign Of Fear
-1987 - Execution Guaranteed
-1988 - Perfect Man(   Читать дальше...   )Жанр: Heavy/Speed/Power MetalПродолжительность: 34:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCB17C237F91FE3648F97A1BD11C93E048F2391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633139   (858) от 26.09.2025
-
-Paradox - Studio Albums (9 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash/Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paradox — немецкая метал-группа, образованная в Вюрцбурге в 1986 году.1987 - Product of Imagination
-1989 - Heresy
-2000 - Collision Course
-2008 - ElectrifyЖанр: Progressive Thrash/Power/Speed MetalПродолжительность: 08:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0591D9EA2439308421092C674656A86E607E37B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,154 @@
+###  Публикация: 971138   (984599) от 04.01.2016
+
+VA - Club 86 Recordings Best Of (2015) [MP3|320 кб/с] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burdan - Father (07:31)
+02. Chantola - Miami Burning (05:51)
+03. Klaukenberg - Walk Of Shame (05:39)
+04. Kantholz - Motel Star (06:05)(   Читать дальше...   )Производство: Club 86 RecordingsЖанр: House, Club HouseПродолжительность: 01:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442F9A784A01C4498A6D163A64891AE1C459D660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355401   (983628) от 26.01.2020
+
+VA - Gym Floor Energy 2020 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lorenz Koin feat. Norah B. - Summer Nights (Radio Edit) 3:12
+02. Dr. Space - Right Now (Radio Mix) 3:23
+03. Stephan Vegas & Rizzo DJ - Dime Que Me Amas (Radio Mix) 3:36
+04. Skelectro - The Game (Radio Edit) 2:53(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC280C3728DEF837C91C9B70DC01A1CA1BC5437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972363   (983346) от 05.01.2016
+
+VA - La Nuit (Delicious Chill House Lounge Vol 1) (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svendaq - Chill Sauce (07:27)
+02. Stephane Lumiere - Too Deep (04:15)
+03. Living Room - Carpark (04:08)
+04. Denis Melody - 2Day & 2Morrow (BarBQ Remix) (06:02)(   Читать дальше...   )Производство: KarmablackЖанр: Deep House, Chill HouseПродолжительность: 01:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9017DF815D34920687992CB11653D1B03441FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355614   (982294) от 27.01.2020
+
+VA - Workout All Music (Electro House Music Body Groove) (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon Le Grange - Yuo Mann 06:43
+02. Assian - Smalltalk 05:37
+03. Supernocs - Black Oce 04:33
+04. Supernocs - Abotha 06:07(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8128A762922F50F56D70E1D247FCB7A8DB25A8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613985   (981753) от 05.02.2013
+
+VA - Jet Set Love Vol.1 (2013) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Groove Boyz - Come to the House (feat. Cadillac - Progression Vocal Mix)
+02. Victor Arman - My Angel Eyes (feat. Anjela - Vocal Playa Mix)
+03. Zaar - Iron Money (feat. Sakurya - House Sector Mix)
+04. Tony Roja - Deep Hole in Woman (feat. Morena - La Boca Mix)
+05. Train Inc. - Come Into My Life (Beach Groovers Mix)
+06. Tribeca Motel - The Angel in the Studio (Percussive Onda Mix)
+07. Pianofingher - The Stolen Stockings (House Zone Mix)
+08. Anthony Cool - Full Jazz (Jazz Style Mix)
+09. Heaven Grooves - Insane (The Bass Mix)
+10. House Gee - Lasalsa (House Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B53BE72FE404CC1080AFF149D019D7703880A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973157   (980200) от 08.01.2016
 
 VA - Deep Insane Sensation Vol 1 (2016) [MP3|320 кб/с] <Deep House, Club House>
@@ -619,151 +770,6 @@ VA - Что бы лето не кончалось (Mixed by Dj Decibel) (2005) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E14779C171A141FBECD629A22C404F1C6B060A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359417   (963276) от 13.02.2020
-
-VA - Royal Royce - Pornpop (2004) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phonique Feat. Die Elfen - The Red Dress (Dub Mix) (6:26)
-02. Random Factor - Dreamstate (5:34)
-03. Ciudad Feliz - How (3:31)
-04. The Visitors - No Under On The Ground (3:39)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2E34726E1C5AA52E33E08C3718A5A9D64227FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360289   (960933) от 15.02.2020
-
-R-Tem - Voiceless (2004) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R-Tem - Intro (2:15)
-02. R-Tem - Voiceless (Original Mix) (7:32)
-03. R-Tem - Breathe (7:42)
-04. R-Tem - Sunrise (5:18)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2020BC6CCC9BF9ADEFBA6239199C75965BFEFF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360305   (959468) от 16.02.2020
-
-VA - Progressive MEGA Mix vol.2 (2003) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mixed by Dj Maxi - Untitled (05:56)
-02. Mixed by Dj SAnDY - Untitled (04:13)
-03. Mixed by Dj General - Untitled (05:29)
-04. Mixed by Dj project Slim Line - Untitled (03:25)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13B51861BED40C8F7BCF95740050F593E9C4D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088855   (955165) от 01.01.2017
-
-VA - Welcome 2017  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955165.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ron Carroll - The Sermon (Soheil Remix) [6:16]
-2. Max Bering - You Are Not Alone (Charlie Roennez Remix) [7:23]
-3. Steve Norton - It Hurts Me (Original Mix) [5:02]
-4. E.M.C.K. - Need to Know (Club Mix) [3:50](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35371969C4DAF87C521951F0716BF1C84213C906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088935   (955163) от 01.01.2017
-
-VA - Next Destination: Summer Chill-Out (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Loveliness 05:36
-02. Zero Feedback - Rien Ne Va Plus (Don Gorda Project remix) 06:59
-03. Enrico Donner - Yearning for More 05:25
-04. Joop & Aurelio - Macaracas 05:02(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A9B6BF67CB426D827D79207BCFC203C4C59987
 ```
 
 https://mybot314.ru/tekegram_catalog/

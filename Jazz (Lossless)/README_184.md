@@ -1,3 +1,90 @@
+###  Публикация: 1571094   (436113) от 20.08.2022
+
+Tete Montoliu - Montoliu Plays Tete (1971 - 1997) 2CD, 2006, DiscMedi Blau [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436113.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jo Vull Que Macariciis [1:56]
+02. Testimo Tant [10:11]
+03. Blues For Nuria [5:06](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 02:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4250ACFC44C9BDB8DC214983D443F73C3F1F54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249241   (436067) от 23.09.2018
+
+JF Girard - Clin d'oeil (2013) Les Disques Bros [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh rage et beau temps [5:14]
+02. Clin d'oeil [4:01]
+03. My Son Shines [5:06]
+04. Les vagues tranquilles [6:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFB278001789498A2A2B68A9415F97FA6E8AB9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571100   (436055) от 20.08.2022
+
+Lars Erstrand Trio & Quartet - The Complete Songs (2005) Opus 3 [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Nightingale Sang In Berkely Square [6:39]
+02. Let Me Call You Sweetheart [5:16]
+03. Life Can Be So Sweet [5:29]
+04. A Hunderd Years From Today [5:26](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B366C75C9314055CEC7FC73FE6A9AF0C48808AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249248   (436017) от 23.09.2018
 
 JF Girard - Jazz Waves (2017) Productions Bros [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -658,93 +745,6 @@ Odyssey Trio - Pictures (2014) [FLAC|tracks+.cue]<Contemporary Jazz, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DD7CE14ED0169113A22A32F8485D210EDC1F67F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945477   (433975) от 10.10.2015
-
-Odelia Dahan and the Yellow Submarine Ensemble - Solika (2008) [FLAC|tracks + .cue]<Nu-Jazz, World Music, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433975.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ay mansevo - excerpt - 0:28
-2. Ah sinyora novia (Kantiga de boda) - 7:18
-3. Bre Sarika - 6:53
-4. Si la mar era de leche - 5:15(   Читать дальше...   )Жанр: Nu-Jazz, World Music, FusionПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0767ACB9316DADA7D1CF67DF8A20903DA0CF8AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410667   (433974) от 22.09.2020
-
-Louis Armstrong - The Great Jazz Collection (50-e - 60-e) 1995, Scana [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What a Wonderful World [2:15]
-02. Black and Blue [4:36]
-03. Struttin' with Some Barbecue [5:55]
-04. West End Blues [4:12](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F8AEA5E7438AB71FE746273A23088DBBA83F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410591   (433969) от 22.09.2020
-
-The Orchestra Of Mirrored Reflections - Frequency Jazz (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Noir Jazz, Ambient Jazz, Post Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaving Big Sigh Of City Behind... (7:20)
-02. ...Rowing Your Boat-on In The Myst (6:34)
-03. Lemon Tea For My Voodoo Doll (feat. Sergiy "AbsurdMaers" Yagoda) (5:48)
-04. Gravity Means Love (6:17)(   Читать дальше...   )Производство: Petroglyph Music - petroglyph308Жанр: Dark Jazz, Noir Jazz, Ambient Jazz, Post Jazz, Trip HopПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3907FCC083883A4D1543B89D3FF05279ACDB8C25
 ```
 
 https://mybot314.ru/tekegram_catalog/

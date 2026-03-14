@@ -1,3 +1,32 @@
+###  Публикация: 993156   (897769) от 04.03.2016
+
+VA - Tropical Beach: Ibiza Progressive Trance (2016) [MP3|320 кб/с] <Progressive Trance, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897769.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Myde - Castle In The Sand (Radio Edit) 03:27
+002. 4 Strings - Illumina (Original Mix) 05:17
+003. Aeden - Traveler (Radio Cut) 03:45
+004. Addliss - Care For You (DJ Ives M & DJ T.H. Radio Cut) 03:26(   Читать дальше...   )Жанр: Progressive Trance, Club, ElectroПродолжительность: 07:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F8EC7B98B1F467A21C782F8011B2566B82E53B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991512   (897767) от 04.03.2016
 
 VA - Minimal Party (2016) [MP3|320 кб/с] <House>
@@ -734,35 +763,6 @@ VA - Vocal Chillout Music: Romantic Collection (2021) [MP3|320 Kbps] <Vocal, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9DE5D2BDFA22CFB2808E6E15EE7BFD1B000C9AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102183   (892939) от 08.02.2017
-
-VA - TOP Non-Stop 2010-2015: Dub-Step, Drum&Bass, Breaks (2015) [MP3|320 Kbps] <Dub-Step, Drum&Bass, Breaks>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anex - Heartbeat (5:03)
-02. Kong - Learn From Each Other (6:03)
-03. DJ Hazard - Proteus (1:26)
-04. Tom Demac - Critical Distance (Part 2, Hrdvsion remix) (9:44)(   Читать дальше...   )Жанр: Dub-Step, Drum&Bass, BreaksПродолжительность: 05:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F656708C16EA91FDA73A68ABCE4CCBD9DEE8FBC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1623748   (255543) от 04.04.2023
+
+Старый приятель - Не сегодня! (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Неба синь [00:02:27]
+02. Острова твоей любви [00:03:12]
+03. Незабудка [00:03:48]
+04. Не сегодня [00:03:06](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C1941083BEDA06CD0A8BDD6B111BA59D636A25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626510   (255121) от 16.04.2023
+
+Пётр Мамонов & Звуки Му - Аэробус любви (2023) [FLAC|Lossless|WEB-DL|tracks] <Poetry, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стихи 1 [00:12:07]
+02. Стихи 2 [00:18:58]
+03. С тобой [00:03:31]
+04. Фонарик [00:01:00](   Читать дальше...   )Жанр: Poetry, Lo-FiПродолжительность: 01:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:070424D69B0AED9D358BFE334A9D9A08B6D8F9A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627047   (255092) от 17.04.2023
+
+Цитадель - Выбора нет! (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal, Power-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Выбора нет! [00:03:54]
+02. Голод [00:03:24]
+03. 09/11 [00:05:04]
+04. Кто мы? [00:03:41](   Читать дальше...   )Жанр: Heavy-Metal, Power-MetalПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F2D6EDD80BB69E7AAF0068DBB05B040A1270C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627042   (255089) от 17.04.2023
+
+Ангел-Хранитель - Преступления и наказания (2022) 2023, Deluxe Edition, Chaotic Noiz [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:52]
+02. Раньше было... [00:05:03]
+03. Везучий [00:03:42]
+04. Волчья ягода [00:04:28](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B449D3F662DB7076F21DC266E1BF4CB98AE20C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628159   (254919) от 22.04.2023
+
+Пурген (Purgen) - Преображение (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Непокорная душа [00:04:04]
+02. Панк-любовь [00:03:54]
+03. Европейское овощеводство [00:04:29]
+04. Негативные люди 2023 [00:02:10]Жанр: Punk RockПродолжительность: 00:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09EF858C005EACA73B71C86D615A32E15ABF54E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836428   (252523) от 10.11.2025
 
 Various Artists - Любэ 35. Всё опять начинается. Трибьют. Часть 1-2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
@@ -610,151 +755,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A0F3D81428F82277CDA71D53C8EBDFC1AB1410E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608610   (245404) от 01.02.2023
-
-Сарма - Вставай,русский народ! (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Во польской стороне [00:02:18]
-02. Вставай,русский народ! [00:04:39]
-03. Прилечу к тебе соколом [00:04:43]
-04. Спят тысячи воинов [00:04:16](   Читать дальше...   )Жанр: Alt. Rock, Folk MetalПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E513DC5AD2A5C4AA4C0303B12C1714D303D1C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623940   (245352) от 04.04.2023
-
-Дмитрий Коробков - Гимн (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Империд [00:03:41]
-02. Марш благоволителей [00:04:28]
-03. Не осуждайте [00:02:32]
-04. Гимн Земле [00:05:25](   Читать дальше...   )Жанр: RockПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E3F2AB9743FB7CEDE8EA969F2C27D2B63B4FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609002   (245186) от 02.02.2023
-
-Железный Argument - Стальной пегас (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard'N'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:36]
-02. Железное сердце [00:03:41]
-03. Королева ночи [00:04:12]
-04. Делай Rock'n'roll [00:04:04](   Читать дальше...   )Жанр: Hard'N'HeavyПродолжительность: 00:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F730FC9B81846677A4AF5C50D0C28D48230CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609005   (245130) от 02.02.2023
-
-Re-Animator - Re-Animator (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard'N'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оно
-02. Ночная Школа
-03. Красный Дракон
-04. Чёрные Паруса(   Читать дальше...   )Жанр: Hard'N'HeavyПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9E72786790A4C5BAC67185754C4390BA8257AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621117   (244994) от 23.03.2023
-
-Forces United - Hits From Metal Musicals vol.2 (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knowitnot vs. Dracula (4:40)
-02. Gorgon (3:42)
-03. Half past nine (3:56)
-04. Edna Cintron (5:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2794C435ABFBA014785B0589FF4E8F8C51EF0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

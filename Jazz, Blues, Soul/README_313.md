@@ -1,3 +1,177 @@
+###  Публикация: 1168872   (407633) от 25.09.2017
+
+David Rogers Sextet - The World Is Not Your Home (2007) Jumbie Records [FLAC|Lossless|tracks + .cue] <World Fusion, African Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The World Is Not Your Home [13:12]
+02. Don't Drop That Coffin! [05:00]
+03. Oboo Ketua Nyom [11:25]
+04. Mobius Trip [07:43](   Читать дальше...   )Жанр: World Fusion, African JazzПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE0E28E2EDA14A5207A8C872D835325B2BDD951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574021   (407548) от 03.09.2022
+
+Pee Wee Russell - Weary Blues (1933 - 1963) 4CD, 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407548.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Eel [3:03]
+02. Madame Dynamite [2:57]
+03. Home Cooking [2:55](   Читать дальше...   )Жанр: Dixieland, Swing, Mainstream JazzПродолжительность: 04:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07BA416D3731A7CC46B4416766FC0134EC29FC8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574024   (407544) от 03.09.2022
+
+Joey Alexander - Origin (2022) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remembering [5:44]
+02. On the Horizon [5:28]
+03. Dear Autumn [5:38]
+04. Winter Blues [7:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C5FAEA1E1771F0E838D4B4C1A4072BEF80ADC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326094   (407433) от 18.09.2019
+
+Dizzy Gillespie - Dizzy's Diamonds: The Best Of The Verve Years (1950 - 1964) 3CD, 1992, Verve Records [FLAC|Lossless|tracks + .cue] <Bop, Afro-Cuban Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407433.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Big Band:
+01. Prelude [5:57]
+02. 'Bout to Wail [6:49]
+03. Umbrella Man [3:03](   Читать дальше...   )Жанр: Bop, Afro-Cuban Jazz, Big BandПродолжительность: 03:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45250A40CC93D69579966570842AD0E3FA1C30D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326116   (407424) от 18.09.2019
+
+The Swingaroos - Music  Of The Night (2019) [FLAC|Lossless|WEB-DL|tracks] <Retro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture: Tea for Two
+02. Manhattan
+03. Ain't Misbehavin'
+04. Without a Song / The Song Is You(   Читать дальше...   )Жанр: Retro SwingПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D471D917B6412CF2DB788EA867DCF9779DCE7074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413762   (407267) от 05.10.2020
+
+The Vanguard Jazz Orchestra - Forever Lasting: Live in Tokyo (2010) 2011, 2CD, Planet Arts [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407267.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Low Down [5:22]
+02. You Tell Me [7:53]
+03. 61st and Rich' It [14:44](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 02:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C6C59C5EDEE867B405916AA4D26A0CF1022A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413772   (407218) от 05.10.2020
 
 Barfly's - Living In Sin (2000) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -627,195 +801,6 @@ European Jazz Trio - Best of Classics (2006) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563484   (404357) от 21.10.2012
-
-VA - Greatest Audiophile Voices (2011-2012) 4CD[FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lisa Lovbrand - Light My Fire    [05:00]
-02. Donna Tucker - Won't Know Till I Get There    [03:44]
-03. Amy London - Wonderful, Wonderful    [03:35]
-04. The New Mastersounds feat. Corinne Bailey Rae - Your Love Is Mine    [05:14]
-05. Monique Klemann - In The Land of Make Believe    [03:36]
-06. Trisha O'Donnell - Neither One of Us    [04:21]
-07. The Peter Malick Group feat. Norah Jones - New York City    [03:50]
-08. Sinne Eeg - The Night Has A Thousand Eyes    [05:34]
-09. Fragile - Get Here    [04:00]
-10. Lee Engele - Walk On By    [02:52](   Читать дальше...   )01. Julian Kuchocki - Somewhere Over The Rainbow    [06:07]
-02. Carol Duboc - A House Is Not A Home    [04:52]
-03. Karin Melchert - When I Fall In Love    [03:10]
-04. Juliet Kelly - I Wish You Love    [02:52]
-05. Inger Marie Gundersen - Let It Be Me    [03:38]
-06. Adreinne Hindmarsh - Don't Know Why    [04:04]
-07. Sophie Milman - My One And Only Love    [04:35]
-08. Monique Klemann - Cry Me A River    [05:18]
-09. Jessica Lee - Lover Man    [04:39]
-10. Sue Giles - Shiny Stockings    [03:55](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 0
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711925   (404344) от 18.10.2013
-
-Big Bad Voodoo Daddy - How Big Can You Get (2009) [FLAC|Lossless]<Swing Revival>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come on with the 'come on'
-02. Calloway Boogie
-03. The call of the Jitterbug
-04. Hey now, Hey now(   Читать дальше...   )Жанр: Swing RevivalПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF99AD1D21159558B0F7E56FC4653C9F8D09A2F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712417   (404217) от 18.10.2013
-
-Stacey Kent - The Changing Lights (2013) [FLAC (tracks)|Lossless|WEB-DL]<Vocal Jazz, Bossanova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Happy Madness
-02. The Summer We Crossed Europe in the Rain
-03. One Note Samba (Samba De Uma Nota So)
-04. Mais Uma Vez(   Читать дальше...   )Жанр: Vocal Jazz, BossanovaПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9199AB1E2E2B684DF9D9E7B176F52853B184ED60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169152   (404117) от 26.09.2017
-
-Al Hirt & Pete Fountain - Super Jazz 1 (1975) 1988, CBS [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Rampart Street Parade [08:45]
-02. Jazz Funeral (Oh, Didn't He Ramble) [10:05]
-03. Salute to Satchmo Medley [09:01]
-04. Tie a Yellow Ribbon Round the Ole Oak Tree [03:10](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D53715174D5FED38FCDA9D703DE3A50CF99B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169142   (404116) от 26.09.2017
-
-Al Hirt - At The Mardi Gras (1962) 2000, RCA Victor [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Announcement & Bourbon Street Parade [03:33]
-02. Basin Street Blues [03:28]
-03. Perdido [02:39]
-04. Show Me the Way to Go Home [03:18](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4707B7106D782271D25306E0371B6B1F54EC251F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169155   (404115) от 26.09.2017
-
-Al Hirt - The Sound of Christmas (1965) 2013, Relayer Records [FLAC|Lossless|tracks + .cue] <Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nutty Jingle Bells [02:14]
-02. Medley: I Saw Mommy Kissing Santa Claus/Here Comes Santa Claus (Right Down Santa Claus Lane) [02:18]
-03. Rudolph The Red-Nosed Reindeer [02:12]
-04. Sleigh Ride [02:13](   Читать дальше...   )Жанр: DixielandПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7F74783DA3A09BD54DD3B5DA8C27B7FBC05AE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

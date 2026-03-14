@@ -1,3 +1,177 @@
+###  Публикация: 1818060   (2756) от 14.09.2025
+
+The Bleary Eyed Bastards - Good Enough for Who It's For (2025) (2CD) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Land of the Free (5:02)
+02.  The Other Side (4:37)
+03.  Two Blocks From Mercy (4:48)
+04.  Taking It All (5:41)(   Читать дальше...   )Жанр: Blues
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06662D7A6C08E0B85BB7A9DC0061E10FE46E923C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818059   (2755) от 14.09.2025
+
+The 251s - From the Five (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alright, OK, You Win (Cover) (3:22)
+02.  Look Whatcha Done (Cover) (2:52)
+03.  Sloppy Drunk (4:43)
+04.  Party Girl (Cover) (4:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974F66872ABE1225F1C25FEE77FFCD2ECCA668B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818058   (2754) от 14.09.2025
+
+SirJoe Polito - Black & White (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Happy New Year (4:47)
+02.  Pacific Coast Highway (3:49)
+03.  4 + 20 (5:01)
+04.  Lay You Down (5:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE1B73DA6D3EC61BE510301DF32B11A19F31ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818089   (2753) от 14.09.2025
+
+The Name Droppers - Cool Blue Shoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Killing Floor (3:13)
+02.  Cool Blue Shoes (3:15)
+03.  Be Alright (3:18)
+04.  Keep Pushin (3:18)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0FEDC608791DFC1031F15F4251A63A61A0E463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818063   (2750) от 14.09.2025
+
+The Charlie Daniels Band - Country Stars N' Stripes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Country Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Star Spangled Banner (1:48)
+02.  In America (3:19)
+03.  This Ain't No Rag, It's A Flag (3:31)
+04.  The Intimidator (3:11)(   Читать дальше...   )Жанр: Blues Rock, Country RockПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641E4877A900190C3B247229336AC913ED1F73F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818057   (2749) от 14.09.2025
+
+Ripoff Raskolnikov Band - Another Seven (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Last Sunny Day (5:25)
+02.  Ain't No Use (4:20)
+03.  Corridor (3:52)
+04.  Down At The Red Rocks Cafe (5:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11FFB3C43C6C6859C14FC8BF6D2E11ED7F3A906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818055   (2741) от 14.09.2025
 
 Rick Keller - Heroes (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -571,180 +745,6 @@ Shirley Johnson - Selfish Kind of Gal (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF9DAE3D1F256B4E7E1897C1C40B679CE92ECBC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819146   (1771) от 20.09.2025
-
-Special Hot Sauce - Go Get Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Go Get Gone (3:13)
-02.  Little Pretty Baby (2:32)
-03.  Wanna Keep You (4:07)
-04.  I Like Your Style (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48C85FD4FC388432A84A529C7D3C054964D6219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819136   (1769) от 20.09.2025
-
-Piper and The Hard Times - Good Company (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Good Company (3:57)
-02.  Now I'm Lovin' You (4:13)
-03.  Tear It Down (5:15)
-04.  Cowboy Gucci (3:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FC19E658570FF4F6737C9412BD722FC2AC23CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819072   (1767) от 20.09.2025
-
-Mike Zito & Albert Castiglia - Help Yourself (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help Yourself
-02. Can’t Be A Prophet
-03. Alive
-04. Soulard Serenade(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD128E59560989EBC81A67832FB690C8E4B5E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819491   (1431) от 22.09.2025
-
-Chet Baker - The Italian Sessions (1962) 1996, RCA-Victor [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Well You Needn't [6:25]
-02. These Foolish Things [4:59]
-03. Barbados [8:31]
-04. Star Eyes [7:02](   Читать дальше...   )Жанр: CoolПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:802DA72BA5BA9CC82CFEB8ADCFEF4A786790AEEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819599   (1268) от 23.09.2025
-
-Hank Mobley - Three Classic Albums Plus (1956) 2CD, 2016, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Are The Things I Love [6:41]
-02. Message From The Border [6:07]
-03. Xlento [5:41]
-04. The Latest [5:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCDBA56FDC348DD3310A62ED993CB6588BCDBC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819967   (957) от 25.09.2025
-
-Lennie Tristano And Warne Marsh - Intuition (1956) 1996, Capitol Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smog Eyes [3:34]
-02. Ear Conditioning [5:16]
-03. Lover Man [4:30]
-04. Quintessence [4:16](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D11001D856D1D9ED5229B23F22720096F63088A
 ```
 
 https://mybot314.ru/tekegram_catalog/

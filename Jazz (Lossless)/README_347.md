@@ -1,3 +1,90 @@
+###  Публикация: 1780627   (70381) от 19.02.2025
+
+Nick Brignola & Sal Salvador - A Tribute To Gerry Mulligan (1982 - 1984) 1993, Stash Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernie's Tune [6:56]
+02. Five Brothers [4:19]
+03. Song for Stray Horn [4:02]
+04. Elevation [4:18](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077857BC6CFFC997FFEF24A304E08A2E9E311389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780628   (70380) от 19.02.2025
+
+Kenny Barron - Beyond This Place (2024) Artwork Records [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Nearness of You [6:35]
+02. Scratch [5:35]
+03. Innocence [8:18]
+04. Blues on Stratford Road [6:41](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D9218E935C89C599B7A25965E9168776DACF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780635   (70378) от 19.02.2025
+
+Manhattan Jazz Quintet - The Sidewinder (1987) ProJazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Apple Jam [8:02]
+02. Django [8:43]
+03. You'd Be So Nice to Come Home To [6:02]
+04. The Sidewinder [8:26](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4FCF2AE169429978C1BD8EAB3435B12826143D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780837   (70353) от 20.02.2025
 
 Rob McConnell & The Boss Brass - The Jazz Album (1976) 1996, Sea Breeze Jazz [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
@@ -657,93 +744,6 @@ Peter White - Light of Day (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BDFE517376C2C69B8A5218DEDE47580BC745254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781814   (70139) от 25.02.2025
-
-The Emily Remler Quartet - Take Two (1982) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cannonball [4:55]
-02. In Your Own Sweet Way [4:58]
-03. For Regulars Only [6:48]
-04. Search for Peace [5:23](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29C378553B37D2F11466192F8388DA155F2339D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781813   (70138) от 25.02.2025
-
-Bill Evans - Live In Tokyo (1973) 1986, Sony [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mornin' Glory [5:47]
-02. Up with the Lark [6:47]
-03. Yesterday I Heard the Rain [6:31]
-04. My Romance [8:45](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DA28BE86651B4BF46F0223FB62552C176B7740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781974   (70094) от 26.02.2025
-
-Luiz Bonfa - Amor! (1959) 2001, Collectables [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, Bossa Nova, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brasilia [2:17]
-02. I'll Remember April [2:35]
-03. Lonely Lament [2:36]
-04. Carnival [1:44](   Читать дальше...   )Жанр: Brazilian Jazz, Bossa Nova, Guitar JazzПродолжительность: 00:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0016490CAE81C8719ADD37CB7D071B1A445B8034
 ```
 
 https://mybot314.ru/tekegram_catalog/

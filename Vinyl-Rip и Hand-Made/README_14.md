@@ -1,3 +1,119 @@
+###  Публикация: 1205785   (783180) от 11.02.2018
+
+10cc - How Dare You! (1975) [FLAC 2.0|192/24|tracks +.cue|Vinyl-Rip]  <Art-Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Dare You (4:14)
+02. Lazy Ways (4:21)
+03. I Wanna Rule the World (3:58)
+04. I'm Mandy, Fly Me (5:22)(   Читать дальше...   )Жанр: Art-Rock, Pop RockПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84750145A44EC22BAD4D6BA8D7787118BAA22D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205577   (783152) от 11.02.2018
+
+Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Easy Listening, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koi No Kisetsu (3:23)
+ 02. Yuzuki (2:25)
+ 03. Shinjuku Sodachi (2:57)
+ 04. Hoshi O Minaide (2:28)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377963   (781360) от 19.06.2020
+
+Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Down One Side (3:55)
+ 02. Like I've Never Been Gone (5:58)
+ 03. Big Log (5:07)
+ 04. In The Mood (5:21)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D7BEDC507C9AD409BF258406862B15A172F150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207556   (780371) от 19.02.2018
+
+Demis Roussos - 5 Albums (1971-1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fire And Ice 
+A1 Fire And Ice
+A2 She Came Up From The Nort
+A3 Good Days Have Gone(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 03:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE47DCD164DDA7F43736DEFB744B22B3844689A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207999   (780193) от 20.02.2018
 
 Queen - The Game (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
@@ -622,122 +738,6 @@ A4	From The Beginning(   Читать дальше...   )Жанр: Folk Rock, Ac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BE2B58A0091EC59AE800ED616BBD1FF06EB039D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016861   (763023) от 16.05.2016
-
-Deodato (Деодато) - Best Of Deodato (Лучшие произведения Деодато) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763023.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Так Говорил Заратустра (Also Sprach Zarathustra)
-A2 Прелюдия к Послеполуденному Отдыху Фавна (Prelude To Afternoon Of A Faun)
-A3 Ночи в Белом Атласе (Nights In White Satin)
-B1 Голубая Распсодия (Rhapsody In Blue)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394645   (762289) от 06.07.2020
-
-Fonograf - FG-4 (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Roc>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762289.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Prelude
-A2 Co-Ordinates
-A3 Bright Sky
-A4 FG-4(   Читать дальше...   )Жанр: Pop RocПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64ACA1696805481EE1B2777631F7653EDB5CF05B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279981   (760422) от 03.02.2019
-
-Rush - 2112 (2012) 1976 [FLAC 5.1|96/24|tracks|Lossless|DVD-Audio] <Hard Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I. Overture (04:34)
-02. II. The Temples of Syrinx (02:12)
-03. III. Discovery (03:31)
-04. IV. Presentation (03:42)(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587279EA375FC12967CCED75CC7B983A7B8D065B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522392   (758525) от 07.01.2022
-
-Александр Розенбаум - Нарисуйте Мне Дом... (1987) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Chanson, Vocal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758525.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Нарисуйте Мне Дом
-А2 Вот Опять Захандрила Дождями Природа
-А3 Дорога На Ваганьково
-А4 Вальс На Лебяжьей Канавке(   Читать дальше...   )Жанр: Chanson, VocalПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7395FFA3B85F4B35EF0A61B6A5B9978631B551
 ```
 
 https://mybot314.ru/tekegram_catalog/

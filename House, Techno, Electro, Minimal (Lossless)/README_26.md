@@ -1,3 +1,90 @@
+###  Публикация: 1217508   (742403) от 05.04.2018
+
+Substak - Deeper Walk (2018) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Early Walk (05:17)
+02. Late Walk (06:09)
+03. Outer Walk (08:38)
+04. Short Walk (05:24)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27607F682AEE826F5E4A1786FEDDC39111A922D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021199   (742315) от 28.05.2016
+
+DAVI - Metropolis EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metropolis (05:59)
+02. Change Your Life (06:51)
+03. None of Us (07:05)
+04. Change Your Life (Part. 2) (07:06)Жанр: Deep House, Tech HouseПродолжительность: 00:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980F097B17060C4B9F34665F110C7F0E76C9F898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021134   (742308) от 28.05.2016
+
+DAVI - Metanoia EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metanoia (07:28)
+02. Ordinary Nightmares (07:11)
+03. Metanoia (Club Mix) (06:53)
+04. Illusion (06:58)Жанр: Deep House, Tech HouseПродолжительность: 00:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECAB92B313E2AA89868ED64C07F0467B6E37886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397272   (741371) от 19.07.2020
 
 Phil Stroud - Australiana (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Deep House, Dub Techno>
@@ -657,93 +744,6 @@ Von Grall - Stemplot (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37DCD174ACF11802B00880D42228F9C84E97CD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023915   (720687) от 07.06.2016
-
-Elle - Yemaja (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akuj (7:21)
-02. Ikenga (7:18)
-03. Haiuri (8:39)
-04. Yemaja (8:31)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678D8AF94821AC768959231DF38CA05BC4EE5DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023879   (720660) от 07.06.2016
-
-BLNDR - Hypermental (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prsm000 (5:12)
-02. HyperMental (Calming Strobe Mix) (5:40)
-03. HyperMental (Diving Mix) (6:08)
-04. Chords Dark (5:02)(   Читать дальше...   )Жанр: Techno, Experimental, Ambient, Dub TechnoПродолжительность: 00:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C4629217D7E190ECE31C46112B4F70190D85C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023931   (720657) от 07.06.2016
-
-Hydrangea - Dawn Lights (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anomala (Intro) (1:21)
-02. First (6:03)
-03. Second Degré (4:59)
-04. Hope (5:23)(   Читать дальше...   )Жанр: Electronic,  Ambient, TechnoПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA45EC9D39B1C4DFFFA06215DE28EB1785D026C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

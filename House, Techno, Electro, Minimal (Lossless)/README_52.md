@@ -1,3 +1,88 @@
+###  Публикация: 1337613   (273265) от 11.11.2019
+
+VA - Soviett 1 Year (Compiled & Mixed by Ivan Starzev) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ksky - Paradizio (5:06)
+02. Various/Ivan Starzev - Magic (6:07)
+03. Anton Romezz - Nonpop (Ivan Starzev Remix) (7:44)
+04. DPKY - Hold On (4:28)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB91AFF0BD07B571E7933273257707F563548A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337617   (273264) от 11.11.2019
+
+VA - Get To Know: Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Face & Mark Brown - Needin' U (Dimitri From Paris) (6:25)
+02. Nile Rodgers - Do What You Wanna Do (The Reflex Greatest Dancer Mix) (5:07)
+03. Kindred Soul, Get To Know & Kayleigh Gibson - Hold On (Dr Packer Remix) (6:09)
+04. Sneaky Sound System - Can't Help The Way That I Feel (Casual Connection Remix) (5:19)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 05:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60450F6F466C9BBD5AB8B95B4B8C5D2C9622AC08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265714   (273105) от 29.11.2018
+
+Alfred Heinrichs - YOUR TEARS (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alfred Heinrichs - Your Tears In My Eyes (8:25)
+02. Alfred Heinrichs - Brise (8:25)Жанр: HouseПродолжительность: 00:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B57EF3C003271A873BCD26FD4187A1063602A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265761   (272045) от 30.11.2018
 
 Bob Moses - Battle Lines (2018) Domino Recording [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Pop Rock>
@@ -656,93 +741,6 @@ VA - Remembering The 90's: Best Hits Remixed (2017) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB04335152CB59808EED81988C3F230B2692A918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193683   (261994) от 22.12.2017
-
-Yuji KONDO - Faces Past (2017) 10 Label [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanishing Curvatures (06:47)
- 02. Juniper Fox (05:35)
- 03. Linger (05:17)
- 04. Feigning Death (05:26)(   Читать дальше...   )Жанр: Techno, Experimental, Dub TechnoПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46AD6AD4428AFD23C37F81E4F47CF8FD1B2A4F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193585   (261990) от 22.12.2017
-
-VA - Deep Value, Vol. 2 (Mixed By Pornbugs) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Aquino - Lucid (Original Mix) [08:26]
-02. El Mundo - The Message (Original Mix) [07:31]
-03. Markus Homm - Open End (Original Mix) [06:50]
-04. Philipp Gonzales - Katana's Drums (Dave Pad Remix) [07:17](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFE897CBD8022123B506FD924F38CC257BC52E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193685   (261988) от 22.12.2017
-
-Condensed Utopia - Assioma (2017) Circular Limited [FLAC|Lossless|WEB-DL|tracks] <Techno, Drone>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Complex Alternative to Violence (05:50)
- 02. Assioma (06:43)
- 03. Silence Error (06:01)
- 04. In Abcence of Light (06:27)Жанр: Techno, DroneПродолжительность: 00:25:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252E211C281CDF0F7CC35BDB0DC5E56C65D6F8EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

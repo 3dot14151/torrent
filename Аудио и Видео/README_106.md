@@ -1,3 +1,32 @@
+###  Публикация: 1530631   (727880) от 12.02.2022
+
+VA - Deep Forest 2021 (2022) [AAC|~330 Kbps] <Afro House, Tech House, Minimal / Deep Tech>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alberto Dimeo - Nubira (Original Mix) (6:27)
+02. Sebastian Rivero - Could Be (Original Mix) (6:24)
+03. Monserratt - Código (Original Mix) (5:48)
+04. DrumsMaster - Rhythm (Original Mix) (6:36)(   Читать дальше...   )Жанр: Afro House, Tech House, Minimal / Deep TechПродолжительность: 02:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085A3BC5A25B2D6D878F0B1BCC8FF07FCCD0C9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284580   (727529) от 22.02.2019
 
 Охотник на оленей / The Deer Hunter (1978) BDRip [720p] ATV
@@ -659,35 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B02C8C9D688A29433936F6F03F864B6FFF55BD2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531112   (724681) от 14.02.2022
-
-Ундервуд - Избранное 2 (2021) [AAC|~340 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дети Портвейна (3:45)
-02. Вечный полдень (4:25)
-03. Человек с ноутбуком (3:32)
-04. Точка невозврата (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACB88439E4334BDFFD096019277FD42193DB7EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

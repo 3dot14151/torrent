@@ -1,3 +1,90 @@
+###  Публикация: 1154098   (542779) от 29.07.2017
+
+Manafest - Stones (2017) [FLAC|Lossless|tracks] <Alternative Rock, Rap Rock, Christian>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stones
+02. House Of Cards
+03. Firestarter
+04. When The Truth Comes Out(   Читать дальше...   )Жанр: Alternative Rock, Rap Rock, ChristianПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D32C50101B4D529359E1C88FCFB9FE4AC86FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556957   (542585) от 14.06.2022
+
+Underoath (UnderØath) - 9 Albums (The Best of Oll) (2002-2022) [FLAC|Lossless|tracks + .cue|tracks] <Alternative Rock, Post-Hardcore, Christian Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damn Excuses [00:02:37]
+02. Hallelujah [00:03:01]
+03. I’m Pretty Sure I’m Out of Luck and Have No Friends [00:03:45]
+04. Cycle (feat. Ghostemane) [00:04:13](   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Christian RockПродолжительность: 9 CD, 06:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1363C4FFA1365419BBE62597B2DDF5B656D2A66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311393   (541983) от 29.06.2019
+
+Mega Bog - Dolphine (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For the Old World (03:57)
+02. I Hear You Listening (To the Bug on My Wall) (03:41)
+03. Diary of a Rose (04:39)
+04. Dolphine (03:14)(   Читать дальше...   )Жанр: Indie, RockПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF4486CA3CCDEF476DA49527FA82979A20D5A7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311395   (541981) от 29.06.2019
 
 Tunng - This Is Tunng…Magpie Bites and Other Cuts (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Rock>
@@ -653,97 +740,6 @@ The Kills - Future Starts Slow (2011) Single [FLAC|Lossless|tracks + .cue] <Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D7ACB24EDD304846E58907BD1E558E2442223AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560397   (520881) от 29.06.2022
-
-Fame on Fire - Levels (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Post-hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cover Band (Intro) [00:01:02]
-02. Her Eyes [00:03:15]
-03. Not Dead Yet [00:03:22]
-04. I'm Fine [00:03:38](   Читать дальше...   )Жанр: Alternative rock, Post-hardcore, MetalcoreПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DFB1501E5FD6893310F389EB75F4AFF760A855F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533879   (520854) от 12.08.2012
-
-Dead Can Dance - Anastasis (2012) [FLAC|Lossless]<Ambient, Ethereal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520854.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Children Of The Sun [7:33]
-2. Anabasis [6:51]
-3. Agape [6:54]
-4. Amnesia [6:37]
-5. Kiko [8:02]
-6. Opium [5:45]
-7. Return Of The She-King [7:51]
-8. All In Good Time [6:38]Жанр: Ambient, Darkwave, Gothic, EtherealПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241754   (518350) от 19.08.2018
-
-Blue October - I Hope You’re Happy (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight
-02. Your Love Is Like A Car Crash
-03. I Want To Come Back Home
-04. I’ll Do Me, You Do You(   Читать дальше...   )Жанр: Alternative Rock, Art RockПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2319A5B1007AC6B7B4B86B102D938DA11689B39
 ```
 
 https://mybot314.ru/tekegram_catalog/

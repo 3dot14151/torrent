@@ -1,3 +1,32 @@
+###  Публикация: 1374379   (874577) от 09.04.2020
+
+Axxis - Virus of a Modern Time (2020) (EP) [MP3|320 Kbps] <Melodic Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Babylon [00:03:38]
+02 - Boats of Hope [00:05:01]
+03 - Last Eagle [00:04:27]
+04 - Mother Money [00:05:02](   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4BED02A751F2966A821E9DB6EB5F78A5FD78EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374331   (874568) от 09.04.2020
 
 Metal Church - From the Vault (2020) [MP3|320 Kbps] <Heavy Metal>
@@ -720,35 +749,6 @@ Kill the Kong - 2 Albums / 4 Singles (2016-2019) [MP3|320 Kbps] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:821C05446B88AE87133541432E2D2624937157C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375023   (869098) от 12.04.2020
-
-Dawn Of Winter - Pray For Doom (2018) [MP3|320 Kbps] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 A Dream Within A Dream
-02 The Thirteenth Of November
-03 Woodstock Child
-04 The Sweet Taste Of Ruin(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84780FB7A279F933F7A811FFDB12CCB600CF7DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

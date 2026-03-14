@@ -1,3 +1,148 @@
+###  Публикация: 1735279   (106986) от 07.07.2024
+
+Maya Vik - Hustlebot (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Soul & Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change Your Mind [00:01:25]
+02. C.Y.M. (Let it go) [00:04:31]
+03. Swipe [00:03:29]
+04. Body Language (feat. Bernhoft) [00:03:48](   Читать дальше...   )Жанр: Synthpop, Soul & FunkПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14856BC123BBA26CDAD0999265D8F3B47580D3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735278   (106984) от 07.07.2024
+
+The Rah Band - Orkestronique (2024) [FLAC|Lossless|WEB-DL|tracks] <synthpop, space disco, britfunk, jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violine [00:06:27]
+02. Steps to the Sun [00:06:43]
+03. Digital Native (Part One) [00:05:38]
+04. Sea of Dreams [00:06:57](   Читать дальше...   )Жанр: synthpop, space disco, britfunk, jazzПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066A4F5A2FD42AD006EF52E5BA07E3AF80F8DEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735185   (106968) от 07.07.2024
+
+Sunshine Makers - Sunshine Makers (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Away [00:03:33]
+02. The Dream [00:03:01]
+03. Got to be Good [00:02:33]
+04. Nothing Lasts Forever [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18D29F14D6B7CB7D8042D3C8F2E469FF7BEC0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735383   (106942) от 08.07.2024
+
+Duran Duran - Meet El Presidente (1987) Remaster, 2024, Parlophone Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet El Presidente (Single Remix) [00:03:43]
+02. Vertigo (Do the Demolition) [00:04:44]
+03. Meet El Presidente [00:04:18]
+04. Meet El Presidente (Meet El Beat) [00:05:33](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCBFABC3DB26B64E42F1BA08EDCE2230E62A0363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735389   (106859) от 09.07.2024
+
+Drupi - The Best of Drupi (2007) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Soli	4:39
+02		Piccola E Fragile	3:57
+03		Ridammi Il Sole	4:43
+04		Vado Via	4:45(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C560B6D08204BF60F9DAEE2FA9720E06BB8F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735519   (106806) от 10.07.2024
 
 Zucchero - Overdose D' Amore Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -597,151 +742,6 @@ David Kushner - The Dichotomy (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E6D3BE54D858CAAE5E36B71D48E56AB63AF162C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747673   (104736) от 06.09.2024
-
-Michael Bolton - 'Til the End of Forever (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’m Alive
-02. Til The End Of Forever
-03. Still The Love Of My Life
-04. Next Lifetime(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CF35CF96BA474A635871BEFD9E9687B2033970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747610   (104735) от 06.09.2024
-
-The Cardigans - The Rest Of The Best (2024) Vol. 1 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pooh Song (3:14)
-02. I Figured Out (Demo '93) (2:04)
-03. After All... (Demo '93) (2:37)
-04. Plain Parade (3:38)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7295E1637953238AA60FB60E8437F0C3FF37B44C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747592   (104708) от 06.09.2024
-
-VA - Autumn Chill 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benson Boone - Beautiful Things (Acoustic) (3:21)
-02. Zach Bryan - Pink Skies (3:14)
-03. Teddy Swims - Lose Control (Strings Version) (3:28)
-04. Dasha - Austin (Boots Stop Workin') (Stripped) (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF75D28994A3F665F9EBE6647BF452C6B5E8D9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747624   (104703) от 06.09.2024
-
-The Cardigans - The Rest Of The Best (2024) Vol. 2 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War (3:56)
-02. Deuce (3:33)
-03. Das Model ('00) (2:55)
-04. For What It's Worth (Polar Session '01) (4:15)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CACDC46138E38ACF60384D4ECFFF9FBB2A6C714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747671   (104660) от 07.09.2024
-
-Niall Horan - The Show: Live On Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice To Meet Ya (Live From Łódź, Poland) [00:04:39]
-02. Save My Life (Live From Tampa) [00:03:14]
-03. Heartbreak Weather (Live From Dublin) [00:03:34]
-04. You Could Start A Cult (Live From Tokyo) [00:03:01](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37BB554110EDC1C83AE5DA1AB7B395D44C71EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

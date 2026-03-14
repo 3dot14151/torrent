@@ -1,3 +1,32 @@
+###  Публикация: 1051336   (532552) от 11.09.2016
+
+Devin Townsend Project - Transcendence (2016) Limited Edition 2 CD [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Truth - 04:47
+02. Stormbending - 05:22
+03. Failure - 06:02
+04. Secret Sciences - 07:28(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468EB4EBB0F1666EA1A5038A0D246809FD6485EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312529   (532470) от 04.07.2019
 
 Turilli & Lione Rhapsody - Zero Gravity (Rebirth and Evolution) (2019) [MP3|320 Kbps] <Symphonic Power Metal>
@@ -708,35 +737,6 @@ Batushka (Батюшка) - Hospodi (2019) [MP3|320 Kbps] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4E2A1DEB9095FD6DFCA9D10C388E1C1796D7D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314002   (522187) от 11.07.2019
-
-Theatre Of Tragedy - Remixed (2019) [MP3|320 Kbps] <Gothic Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And When He Falleth (Das Ich Remix - Remastered)
-02. Black as the Devil Painteth (Das Ich Remix - Remastered)
-03. Lorelei (Icon of Coil Remix - Remastered)
-04. Reverie (Current Remix - Remastered)(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DD2FEE7D417391FF65E9AFE54F56386D2121F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

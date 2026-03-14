@@ -1,3 +1,148 @@
+###  Публикация: 1283977   (730012) от 20.02.2019
+
+Justin Hurwitz - First Man (2018) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .cue] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-15 (01:22)
+02. Good Engineer (01:06)
+03. Karen (00:45)
+04. Armstrong Cabin (01:15)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA6DB8B431A93668F59587663A63D3C2DCB81A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128070   (729976) от 23.04.2017
+
+Richard Osborn - Endless (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Folk, World, & Country>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In a Monastery Garden (3:51)
+02. Streets of Laredo, a Pastorale (4:34)
+03. Still I Will Be Merry (6:22)
+04. Breton Fisherman's Prayer (4:33)(   Читать дальше...   )Жанр: Acoustic, Folk, World, & CountryПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FAC1E711428E12C7E745252C9CA65168A6CCE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284285   (729940) от 20.02.2019
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  6 (1990) [MP3|320 Kbps] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight Of The Bumble Bee / Hungarian Dance No. 5 / Light Cavalry  Carmen
+02. Blue Moon
+03. Holy Halls
+04. Here, There and Everywhere/  Hey Jude(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4D8426B7E070F35220178B64DC2BC192D23CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283702   (729934) от 20.02.2019
+
+Atom Music Audio - Nemesis (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Act of Revenge [02:35]
+02. Dark Forces [02:34]
+03. Nemesis [02:32]
+04. Here Comes the Hero [02:41](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3B383F023A036C704DCCEF145AC2FDE39E47EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283659   (729929) от 20.02.2019
+
+Big City Indians - Tuwa (2012) [MP3|320 Kbps] <Native american, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horses Thunder (Soquili Unole) (04:25)
+02. Ina Makoce (Mother Earth Healing Prayer) (04:52)
+03. Breath Of Water (04:27)
+04. In The Shadow Of The Light (05:16)(   Читать дальше...   )Жанр: Native american, New Age, WorldПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE045129D966191EC8248F8908B6A58C46AC3DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284297   (729925) от 20.02.2019
 
 VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  9 (1994) [MP3|320 Kbps] <Instrumental, Pop, Classical Crossover>
@@ -605,151 +750,6 @@ Rajendra Teredesai - Moksha - The Path to Inner Peace (2016) [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C95A939B0C33AD9B7FE982C13A7BEE7107E18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128619   (726456) от 26.04.2017
-
-Kari Rueslatten - To The North (2015) [FLAC|Lossless|image + .cue] <Folk, Nordic, World>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Battle Forevermore  (03:50) 
-02.  Mary's Song  (03:58) 
-03.  What We Have Lost  (04:06) 
-04.  Three Roses In My Hands  (03:03) (   Читать дальше...   )Жанр: Folk, Nordic, WorldПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078982E1957196C18697CB0FD4F794035E7497F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128983   (726453) от 26.04.2017
-
-VA - 50 Sounds of Tropical Rainforest (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxing Spa Music Zone - Sounds of Tropical Rainforest
-02. Relaxing Nature Sounds Collection - Forest at Night
-03. Nature Music Sanctuary - River of Jungle
-04. Natural Meditation Guru - Contemplative Nature(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, New AgeПродолжительность: 03:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C152478A3CA680738980455179E66702D94FE467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022986   (726407) от 04.06.2016
-
-Ramin Djawadi - Warcraft (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warcraft (01:58)
-02. The Horde (03:17)
-03. Medivh (02:43)
-04. Honor (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343460A3663483F24359F5667E112126E0B1B24C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281417   (726385) от 23.02.2019
-
-VA - Simply Chillout (2013) Box Set, 10CD [FLAC|Lossless|tracks + .cue] <New Age, Lounge, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более трех лет назад я уже выкладывал на трекере 4-х дисковый сборник с аналогичным названием 2005 года издания. Видимо, откликаясь на многочисленные просьбы трудящихся USM переиздало его, дополнив 6 новыми дисками. Мне показалось интересным  CD09 "Chilled Lennon & McCartney" - он правда то же издавался USM в 2008 году под аналогичным названием, только (   Читать дальше...   )CD01 Classical Chilout
-CD02 Chilled Piano Moods
-CD03 Chiiled Film & TV Thems
-CD04 Chilled Smooth Pop(   Читать дальше...   )Релиз состоялся: 18 февраля 2013 годаЖанр: New Age, Lounge, ChilloutПродолжительность: 10:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2630BFFF5E4F9BEC753F89865DA33EC210120869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022993   (726164) от 04.06.2016
-
-Ramin Djawadi - Варкрафт / Warcraft (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warcraft (01:58)
-02. The Horde (03:17)
-03. Medivh (02:43)
-04. Honor (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB3161AED7FD40DD1C14B1DD2AC5771E66D4941
 ```
 
 https://mybot314.ru/tekegram_catalog/

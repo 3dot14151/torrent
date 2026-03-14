@@ -1,3 +1,147 @@
+###  Публикация: 1742399   (105552) от 11.08.2024
+
+Schnallo - white fluffy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Punk / New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ich weiss [00:02:55]
+02. cherry [00:03:11]
+03. la fête des fatigués [00:04:02]
+04. schismogenesis [00:05:10](   Читать дальше...   )Жанр: Punk / New WaveПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3CCBEF6D502A2AB1035C38AD423C44F72140E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742307   (105550) от 11.08.2024
+
+Sinergy - Studio Albums (3 releases) (2000-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sinergy — финская супергруппа, исполнявшая музыку в стиле пауэр-метал. Группа основана американской вокалисткой Кимберли Госс и гитаристом группы In Flames Еспером Стрёмбладом в 1998 году.2000 - To Hell and Back
+2002 - Suicide By My Side
+2006 - Beware The HeavensЖанр: Power MetalПродолжительность: 02:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9746D5ED176D51B297AA801ABC6F9A14BA47A0AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742445   (105549) от 11.08.2024
+
+Bronnie - Jaded (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Punk, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaded [00:03:08]
+02. Back And Forth [00:03:01]
+03. OH! [00:02:59]
+04. Paranoid [00:03:03](   Читать дальше...   )Жанр: Pop Punk, Female VocalПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3FCB7BA66649FC0CC00DD4487F96E4DAB554128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742497   (105541) от 12.08.2024
+
+Nathan Haines - Notes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, soul, analog, jazz, saxophone>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love You More [00:06:58]
+02. Night Moves [00:05:47]
+03. Just Holdin' On [00:03:48]
+04. Journey To The Peak [00:07:05](   Читать дальше...   )Жанр: House, soul, analog, jazz, saxophoneПродолжительность: 01:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9B0EB321FDF6310EFA95EBFF043298E2BCAE56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742697   (105538) от 12.08.2024
+
+Bill Wyman - Drive My Car (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билл Уайман (Rolling Stones) выпустил свой девятый сольный альбом "Drive My Car" 9-го августа. "Drive My Car", представляющий собой мастерскую смесь его уникального англо-американского ритм-энд-блюза, является первым альбомом Уаймена с 2015 года, который будет доступен в цифровом формате, на CD и виниловых пластинках.01. Thunder on the Mountain (3:13)
+02. Drive My Car (3:23)
+03. Bad News (3:24)
+04. Storm Warning (3:44)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F43A5A99974023497E1772A6D5E5C08E2E7DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742698   (105517) от 13.08.2024
 
 Nicole Marxen - Thorns (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, Industrial>
@@ -600,151 +744,6 @@ Hazel Gaze - Hazel Gaze II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8578739007DCC0D54AC412698CEEF736547034D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743852   (105304) от 19.08.2024
-
-Brian Ray - My Town (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Earth Was Round (3:46)
-02. Here For You (3:49)
-03. Got A New Thing (3:24)
-04. Bad4U (3:45)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E1E78FDDB0EA9AEA41B5322C1655686767627D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744111   (105302) от 19.08.2024
-
-Hifi Sean & David McAlmont - Daylight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Funk, Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight [00:02:54]
-02. Sun Come Up [00:03:36]
-03. Coalition [00:03:10]
-04. You Are My [00:03:21](   Читать дальше...   )Жанр: Electronic, Funk, Soul, PopПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAC1071D68599ECCCC2777C065C663D45B65078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743930   (105301) от 19.08.2024
-
-Lesibu Grand - Triggered (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, new wave, punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scary Mary [00:05:13]
-02. Hot Glue Gun [00:02:27]
-03. Ordinary Girl [00:02:51]
-04. Anarchy [00:02:20](   Читать дальше...   )Жанр: Alternative, new wave, punkПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFF1D67158A3CD8937B68A7D05C87C9C645A675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743897   (105300) от 19.08.2024
-
-Zero Digital - Timeline (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope & Despair (3:32)
-02. Sinners Win (The Poo) (3:24)
-03. Turning the Dark Legacy (3:11)
-04. Taylor Swift Pants (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7774E45548EEC801936A251877284EB206F6431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743928   (105299) от 19.08.2024
-
-ACT! - Face to Face, Day by Day (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Chill-out>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House to Hold a Comet [00:06:12]
-02. Can't Say What You Did [00:04:14]
-03. Block Stream [00:04:12]
-04. Face to Face, Day by Day [00:03:46](   Читать дальше...   )Жанр: Chill-outПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12A10AFEDDD7B7462DD48DA84360D56DD358081
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1251797   (413364) от 03.10.2018
+
+Metric - Art of Doubt (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Saturday
+02. Love You Back
+03. Die Happy
+04. Now Or Never Now(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5BBD8123900126F84D2B780D6D2E439CF261D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412966   (411740) от 02.10.2020
+
+Nickelback ‎ - All The Right Reasons (2005) 15th Anniversary Expanded Edition, 2020 [FLAC|Lossless|WEB-DL|tracks] <Post-Grunge, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow You Home (2020 Remaster) [00:04:20]
+02. Fight For All The Wrong Reasons (2020 Remaster) [00:03:44]
+03. Photograph (2020 Remaster) [00:04:18]
+04. Animals (2020 Remaster) [00:03:06](   Читать дальше...   )Жанр: Post-Grunge, Hard RockПродолжительность: 01:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CD63C50635A2D0FE37CD55992178E1046459A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573517   (410539) от 01.09.2022
+
+Oceans Ate Alaska - Disparity (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradigm [00:02:44]
+02. Nova [00:03:32]
+03. Metamorph [00:02:43]
+04. Shallow Graves [00:03:19](   Читать дальше...   )Жанр: Progressive Metalcore, ElectronicПродолжительность: 00:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BDE59F6BB3387A1A070B56ABDEE27D6EE9B6B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325744   (410330) от 16.09.2019
 
 Cold - The Things We Can't Stop (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge, Nu Metal>
@@ -657,93 +744,6 @@ The Naked and Famous - Simple Forms (2016) [FLAC|Lossless|WEB-DL|tracks] <Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51E0B975529151D54A2ACD6BAA4C4578C4991186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574400   (385784) от 05.09.2022
-
-In Gloom - Self Titled (2020) Remaster, 2022 [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorched Earth [00:01:36]
-02. II [00:01:53]
-03. Sycophant (feat. Bodysnatcher) [00:03:12]
-04. Vapid Existence [00:04:48](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C293A47472B101BA280142A75662038D603485FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574373   (385783) от 05.09.2022
-
-The Last Kind Words - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ascent [00:01:38]
-02. Nihil Est [00:04:14]
-03. In Vain [00:03:30]
-04. A Sirens Call [00:04:29](   Читать дальше...   )Жанр: Post-MetalcoreПродолжительность: 2 CD, 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2783462F41DCC9FA8CB624EE15EFF71188AD9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414560   (385623) от 08.10.2020
-
-Bloodbather - Silence (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God [00:02:47]
-02. Silence [00:02:33]
-03. Erase [00:02:53]
-04. Disappear [00:02:42](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F3D8B82BCF2F6BF766EFEC72CDEBB003C5EDDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

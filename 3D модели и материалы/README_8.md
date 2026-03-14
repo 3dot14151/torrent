@@ -210,6 +210,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007821   (818837) от 16.04.2016
+
+3D модели - 3darcshop - 3darcmodels free vol.03 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_818837.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d archshop предоставляет бесплатный сборник аксесуаров для гостиных, в который входят 100 моделей в "восточном" стиле.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C500A9FBF37DBC2C1B9E6E550331CD7E1DACE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196961   (815430) от 07.01.2018
 
 3D модели - 3DExport - Ducati 748 [V-Ray|*.max, OBJ, FBX, MTL]
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FBB30CA03FF3D5C1C56ADB56FD31D12B642AD4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507341   (798337) от 04.11.2021
-
-3D модели - Daz 3D - Сборник 3D моделей #26 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D - из 50шт, категории Clothing, People, Animation, Hair.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2364FB42B6221C890264289074E5DC200A0024AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

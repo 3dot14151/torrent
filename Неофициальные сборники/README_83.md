@@ -1,3 +1,87 @@
+###  Публикация: 1366611   (922431) от 12.03.2020
+
+VA - Beats Mix Jungle (2020) [MP3|320 Kbps] <D&B, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922431.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bombo10 - Rapture
+002. Eleksoul - Get Ready (Original Mix)
+003. Monojoke - Surreal Thing
+004. Renart - Wizardos 2k219(   Читать дальше...   )Жанр: D&B, JungleПродолжительность: 08:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C58F44C26F5A13B171994D2D0864F50A2FDD7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288507   (922426) от 29.01.2011
+
+VA - Танцевальная тусовка (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388C598513294DBF493DE21CF9302E36E3F14FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366604   (922349) от 12.03.2020
+
+VA - Sweet Caramel: Pop Dance Eurobeat (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922349.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Leslie Parrish - Falling Free
+002. Fluxdaddy - When It's Over
+003. Akira - I Dream (Radio Mix)
+004. Keepin It Heale - Still Love You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91C89890ABE7EA7540CFB2E5B81F9F62C15BC64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489734   (922262) от 18.08.2021
 
 Ringo Starr - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
@@ -656,87 +740,6 @@ VA - Звезды в шоке 50/50 (2011) [MP3|128 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CEDE8ECB90D81EAC36208843B36AF0018CB94BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095218   (920670) от 23.01.2017
-
-VA - Europa Plus: Top 100 Хит-Презент (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920670.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Star Pilots - Only For Tonight.
-002. Hego Feat. Yaya - Change.
-003. Kat Graham - Baby.
-004. Franky - Люди Не Боги.(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2396A9E54BB23F965A0DC5E89B0F85813B7538E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289064   (920620) от 30.01.2011
-
-VA - Вечеринка в разгаре (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20662AF0430723922148EC67D20028D8ECF5BAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289045   (920601) от 30.01.2011
-
-VA - XXL Супер Союз 2 50/50 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C920889B443350B28229E046C14C35B8942CDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

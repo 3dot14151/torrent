@@ -1,3 +1,177 @@
+###  Публикация: 1057370   (475481) от 28.09.2016
+
+The Tony Lustig Quintet - Taking Flight (2016) Bimperl Entertainment & Media[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Change Is Comin' [05:56]
+ 02.Fraytown [08:52]
+ 03.Prometheus [08:37]
+ 04.For Wayne [06:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97613106C4274BE3485DD6ADA2FD5C89FE80310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057366   (475476) от 28.09.2016
+
+John Surman - Morning Glory (1973) 2016, Fledg'ling Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cloudless Sky [08:15]
+ 02.Iron Man [13:03]
+ 03.Norwegian Steel - Septimus [09:33]
+ 04.Hinc Illae Lacrimae - For Us All [12:33]Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3962251F96B7CCF8928D93C17C1ED79F0BC9112E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057305   (475349) от 28.09.2016
+
+The Wicked Mercy - The Wicked Mercy (2013) [FLAC|Lossless|tracks] <Blues Rock, Southern Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Knows   (04:08)
+02. River Run Dry   (03:16)
+03. Gypsy Jazz   (03:40)
+04. Wanted Man   (03:54)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF13CC7E328E11061A3AAAF6EBFAE3D1E94C08A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057375   (475242) от 28.09.2016
+
+VA - Smooth Jazz Best of Sax (2016) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LeBron - Groove City
+02. Randy Scott - Woodward Avenue
+03. Elizabeth Mis - Slow Burn
+04. Michael Lington - The Serenade(   Читать дальше...   )Жанр: JazzПродолжительность: 01:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65404665F97C8C654D80466D57052F542875DFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406493   (474909) от 03.09.2020
+
+Howlin' Wolf, Muddy Waters, Bo Diddley - The Super Super Blues Band (2018) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Distance Call
+02. Ooh, Baby / Wrecking My Love Life
+03. Sweet Little Angel
+04. Spoonful(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF5F9F82D8C9863EBA583E14FF596B30F8DCACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406412   (474781) от 03.09.2020
+
+VA - Blues Hits (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B.B. King - The Thrill Is Gone |05:26|
+02. Chuck Berry - No Particular Place To Go (Single Version) |02:44|
+03. Muddy Waters - Mannish Boy (Single Version) |02:55|
+04. John Lee Hooker - Boom Boom |02:39|(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE79F693A08A2A97D56F2C173B297C4B5708EAE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567300   (474546) от 02.08.2022
 
 Herbie Mann - Verve Jazz Masters 56 (1996) PolyGram Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Latin Jazz>
@@ -571,180 +745,6 @@ Savoy Brown - Ain't Done Yet (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D6EDC771CD419FD0F2AF0D5CE242103B9B4497E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051399   (472764) от 04.09.2020
-
-VA - Dave Grusin, Lee Ritenour, Diane Schuur, Dave Valentin: GRP Live In Session (1985) GRP Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mountain Dance [06:11]
- 02.Oasis [07:26]
- 03.The Rit Variations [06:19]
- 04.Reverend Lee [04:54](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42062A03E6399A972D4065688A9A7638E322510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567474   (472466) от 03.08.2022
-
-Mulberry Sky - Who's There? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Light in the Distance (6:04)
-02. Second Face (4:17)
-03. The Fuckening (4:00)
-04. Hot Hot Thunder (3:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55762957020FBA0B2616F7097F63C5F1FBC40D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567489   (472465) от 03.08.2022
-
-James Morrison - On The Edge (2003) Morrison Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Dangerous [7:43]
-02. Da Speech [9:33]
-03. Self Portrait [8:24]
-04. Even Seiben [13:04](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E929BB5F29D99862E7F70E1CB62213E4003834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567480   (472388) от 03.08.2022
-
-The Blue Tide - Plague Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Time (To Sing the Blues) (4:26)
-02. Together We Die (3:56)
-03. Let the Light In (4:13)
-04. Front Porch Breeze (2:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FF7CD7E621BF5723458BDC04AA066838B7B7D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567483   (472374) от 03.08.2022
-
-Ticket West - 49 Park St. Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Did You Wrong (2:32)
-02. Good Woman (feat. Laura Kits) (3:53)
-03. Nice Guy (3:23)
-04. I Buried a Friend (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AEC42979D734758BAF8D3A0C85B11D166D24656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567476   (472372) от 03.08.2022
-
-Sven Zetterberg - Rain On (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain on Tears (4:38)
-02. Easy Come Easy Go (I Wish That I Can Fall in Love Again) (3:32)
-03. I Ain't from Mississippi (4:40)
-04. Grandma's Hands (3:17)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5304988C36AF4358B6873C355512C896CF6F80B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1501719   (833531) от 11.10.2021
+
+Kt Conlon Alive in Blue - Twelve (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovin' Man (3:21)
+02. Cotton Picking (3:13)
+03. Another Blue Morning (4:35)
+04. Don't Give Me No Jive (2:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7BAFD78724CD1A09284FBFA273F2F51B458F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501718   (833468) от 11.10.2021
+
+"Chicago" Carl Snyder & Friends - Blue Streak (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born into the Blues (3:15)
+02. The Thrill Is Gone (6:01)
+03. Ain't That Bad Luck (2:26)
+04. Funny (5:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B992E45ADE965CF5CB1727FD846A58D311744EFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501726   (833467) от 11.10.2021
+
+David Edwin Townson - Modality (2021) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charger (04:14)
+ 02. Where Have You Been (03:46)
+ 03. Through The Night (03:42)
+ 04. Lydia (04:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA504816CEB85C04D8EDC145BA8E0F57650703D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380475   (833323) от 03.05.2020
+
+Sidney Bechet - Five Classic Albums Plus: Second Set 1952 - 1955 (2017) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833323.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Le Marchand De Poissons [2:47]
+02. Si Tu Vois Ma Mere [3:15]
+03. Wabash Blues [3:08](   Читать дальше...   )Жанр: Dixieland, Revival, New Orleans JazzПродолжительность: 02:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08489E53B2FCD3EF53A2300CCCD8159AC683DEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380587   (833316) от 03.05.2020
+
+VA - NOW Jazz Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thelonious Monk - 'Round Midnight (3:10)
+02. John Coltrane - Blue Train (Remastered 2003) (10:40)
+03. Herbie Hancock - Cantaloupe Island (5:32)
+04. Art Blakey - Dat Dere (8:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:120EDFB17140989A7D6A9086B51F8E0C682B8380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380603   (833312) от 03.05.2020
+
+VA - NOW Soul Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marvin Gaye - Mercy Mercy Me (The Ecology) (3:13)
+02. The Temptations - My Girl (Mono) (2:56)
+03. Stevie Wonder - Isn't She Lovely (6:33)
+04. Gloria Jones - Tainted Love (2:37)(   Читать дальше...   )Жанр: SoulПродолжительность: 01:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:326F07C474B910766F0DD6A5A5E5B77D87BC5FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005544   (832838) от 09.04.2016
 
 Stan Getz Quartet - Grand Stan (1974) Remaster, 2014, Studio Songs[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -569,180 +743,6 @@ Atlas - Atlas (1977) Reissue CD, 2008, Sonorama [MP3|320 Kbps] <Jazz-Rock, Soul,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:169705C834554921F410673413CFE9AA1D284BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114996   (830172) от 16.03.2017
-
-Stan Hope - Pastels (1999) Savant Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be Anything [07:39]
-02. Summer Serenade [04:18]
-03. Moment's Delight [03:24]
-04. That's My Kick [08:04](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18927DE6C2AAD348B78CC7223244E7C2CE3C44ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114992   (830170) от 16.03.2017
-
-Erroll Garner - The Greatest Garner (1950) 1999, ADA Sound [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Way You Look Tonight [03:15]
- 02.Turquoise [02:54]
- 03.Pavanne [03:15]
- 04.Impressions [03:16](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1DDA0B021A56C32CA56CBA20A40A41C2B34D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501964   (830102) от 13.10.2021
-
-Charlie Barnet And His Orchestra - 1940, Vol. 2 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lament For Many [3:30]
-02. Six Lessons From Madame La Zonga [2:55]
-03. Where Do You Keep Your Heart? [3:05]
-04. No Name Jive - Part 1 [3:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA2725DF75D2D4DA0C02B7E3C30E00E53392033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115014   (830072) от 16.03.2017
-
-Pete Cowley - No Place to Land (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Funky Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| License to Drive  (05:20) 
-02| The Other Side  (05:29) 
-03| Shake It Like That  (03:38) 
-04| No Place to Land  (05:04) (   Читать дальше...   )Жанр: Blues, Funky BluesПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B0231B815969557CD89F55E3976999D611B336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115043   (830059) от 16.03.2017
-
-Troy Redfern - Werewolf Etiquette (2013) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| What Goes Around  (04:40) 
-02| It Stacks  (04:07) 
-03| This Raging Heart  (05:31) 
-04| All Falls Down  (05:19) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F8F1D7EE2E2F8B77D7BCF44985968809C7B005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 312373   (830051) от 22.03.2011
-
-Peter Green - The Anthology (2008) 4CD Deluxe Box Set [WavPack|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Change Is Gonna Come (With Splinter Group)  (5:06)
-02. I'm A Steady Rollin' Man Ft. Otis Rush (With Nigel Watson&Splinter Group) (3:32)
-03. It Takes Time (With Splinter Group) (5:09)
-04. Don't Walk Away (With Splinter Group) (4:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 04:30:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

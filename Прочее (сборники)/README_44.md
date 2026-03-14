@@ -1,3 +1,32 @@
+###  Публикация: 1011691   (796355) от 28.04.2016
+
+VA - Весенняя Молодежная Хитовая 100-ка (2016) [MP3|256 кб/с] <pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796355.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jarina De Marco - Paranavigar
+002. John Newman Feat. Charlie Wilson - Tiring Game
+003. Rita Ora - Poison
+004. Юрий Федотов & A-Net - Птица(   Читать дальше...   )Жанр: popПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABE260251A2804E1F333D4E37A1C0D3B5440CA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011534   (796244) от 28.04.2016
 
 VA - Горячий хит Europa Plus №2" (2016) [MP3|256 кб/с] <Pop>
@@ -713,35 +742,6 @@ Max Oazo feat CAMI - What Is Love (2018) Remix, Cover [MP3|320 Kbps] <Club, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CCEA56511C6E84D4236296A1E7D91F1268882A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200790   (794507) от 22.01.2018
-
-VA - Top 50: Зайцев FM (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dimitri Vegas & Like Mike  -  Complicated (feat. Kiiara)  3:04
-02.  Serebro  -  В космосе  3:23
-03.  Post Malone feat. 21 Savage  -  Rockstar  3:38
-04.  Flying Decibels  -  The Road (Effective Radio Remix)  3:17(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B953D837199A31B8C86FF24D47AFB8D466FC1DBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

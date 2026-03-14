@@ -1,3 +1,32 @@
+###  Публикация: 1465870   (1018974) от 27.04.2021
+
+Parry Ray - Out Of The Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 . All That Jazz (00:03:40)
+02. She Used To Be Mine (00:04:24)
+03. Trust In Me (00:04:29)
+04. My Ship (00:03:58)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6782913EB6ED16F382845E1399A274FC93AF7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465973   (1018833) от 28.04.2021
 
 Kenny Garrett - Happy People (2002) Warner Bros. Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -716,35 +745,6 @@ Django Reinhardt - Guitar Genius (2000) [FLAC|Lossless|image + .cue] <Swing, Gyp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A17EAB0655E9F4C0B0EBA2CAD820D5B43B9EC932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469060   (1016698) от 10.05.2021
-
-Stan Getz - 5 Original Albums (1955 - 1958) 5CD, 2016, Verve [FLAC|Lossless|tracks + .cue] <Cool,  West Coast Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016698.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1-  West Coast Jazz:
-01. East of the Sun [6:20]
-02. Four [7:36]
-03. Suddenly It's Spring [7:00](   Читать дальше...   )Жанр: Cool,  West Coast Jazz, BopПродолжительность: 03:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FC86A6DD7621A8E340599668B3CB4AC43F8640
 ```
 
 https://mybot314.ru/tekegram_catalog/

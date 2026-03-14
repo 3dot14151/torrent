@@ -1,3 +1,32 @@
+###  Публикация: 1549790   (592891) от 08.05.2022
+
+VA - Y-Zotope: Relax Synthetic Sounds Mix (2022) [MP3|320 Kbps] <Relax Electronic, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экспериментальный электронный сет предлагает подборку треков, авторы которых в своём творчестве использует аутентичные народные инструменты вместе с современными электронными средствами. Они создают психоделичные саундскейпы, позволяя слушателю окунуться в фантастические миры, глубину веков, почувствовать себя путешественниками во времени и Вселенной.001. E.Lemental - Your Love
+002. Shur-I-Kan - Ebb And Flow
+003. Yoshinori Hayashi - Make Up One’s Mind
+004. Franca - Chiron(   Читать дальше...   )Жанр: Relax Electronic, SynthwaveПродолжительность: 08:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A86784A0D92CA6B718E018943B64AF2E0D051C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549763   (592840) от 08.05.2022
 
 VA - Lyrical Rhythm And Blues (2022) [MP3|320 Kbps] <R&B, Soul>
@@ -720,35 +749,6 @@ VA - 50 Summer Hits Across Workout (2016) [MP3|320 Kbps] <House, Progressive, Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79F9100D9F32C73F4EA8CAC3C898829B81958BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040808   (585468) от 06.08.2016
-
-VA - Новая Жажда Скорости Без Тормозов vol.4 (2016) [MP3|320 Kbps] <Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cally & Riot - World In My Hands (Original Mix)
-02. Frequencerz - 12FU (Original Mix)
-03. Airtunes - Vampires (Original Mix)
-04. Faizar - The Darkness Drops (Original Mix)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FEC4C074AFB730C67710BA70900D756FABE74C
 ```
 
 https://mybot314.ru/tekegram_catalog/

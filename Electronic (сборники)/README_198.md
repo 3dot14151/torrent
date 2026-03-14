@@ -1,3 +1,32 @@
+###  Публикация: 1671518   (171173) от 25.10.2023
+
+VA - Lo-Fi Harmony vol.2 (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo Fi>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171173.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aoiii & Afrikasia - W Love, Afrika [04:12]
+002. Relaxing Lo Fi - Mood For Study Sessions [02:13]
+003. Cloudchord & Big Gigantic - Keep On Movin' [03:07]
+004. Alecs Delarge - Jazz Biscuits [02:51](   Читать дальше...   )Жанр: Lounge, Downtempo, Lo FiПродолжительность: 05:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A59FF72D3A6D357EAC9F91E08E918FACC8B0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826522   (170952) от 19.10.2025
 
 Sardø - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Electronic, Vocal>
@@ -716,35 +745,6 @@ VA - Record Super Chart 18.10.2025 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34C9FA4C41993327F6E8E2303CDDDBB96C2CF210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345222   (167350) от 14.12.2019
-
-VA - Sweet Green Dreams: Natural Relaxed Mix (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167350.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Afterlife Feat. Cathy Battistessa - Speck Of Gold
-002. For The First Time - Jules Calmer
-003. Madhukar - When Love Rules
-004. Cream Lounge - Balearica Del Mar(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 08:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA003FC77448C120292047AA2313D5FAC6F2ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

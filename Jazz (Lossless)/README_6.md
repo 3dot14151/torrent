@@ -1,3 +1,32 @@
+###  Публикация: 1616129   (1036741) от 01.03.2023
+
+Dinah Washington - The Fats Waller Songbook (1957) 1992, EmArcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christopher Columbus [2:51]
+02. T'Ain't Nobody's Biz-ness If I Do [3:29]
+03. Jitterbug Waltz [1:50]
+04. Someone's Rocking My Dreamboat [2:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E9C4513B465058E65CD1CEF65996420320DB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616133   (1036738) от 01.03.2023
 
 Sun Ra And His Arkestra - Greatest Hits: Easy Listening For Intergalactic Travel (1956 - 1973) 2000, Evidence [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop, Big Band>
@@ -716,35 +745,6 @@ Kenny Barron - Other Places (1993) Gitanes Jazz [FLAC|Lossless|image + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C07154FBB803C87D398E43589DE34C5B3E4DE829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617352   (1035332) от 06.03.2023
-
-Dinah Washington - The Great Dinah Washington (1993) Goldies [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mad About the Boy [2:50]
-02. Baby (You've Got What It Takes) (with Brook Benton) [2:46]
-03. It Could Happen to You [2:21]
-04. A Rockin' Good Way (To Mess Around and Fall in Love) (with Brook Benton) [2:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1E111991EFD0079CB90BD9FBD42407F2A15550
 ```
 
 https://mybot314.ru/tekegram_catalog/

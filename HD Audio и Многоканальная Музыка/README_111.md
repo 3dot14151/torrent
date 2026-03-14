@@ -1,3 +1,148 @@
+###  Публикация: 1709359   (112828) от 24.03.2024
+
+D4oesz - Lucid Strings (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Popstar (4:00)
+02. Day Off (3:36)
+03. Dance with the Devil (4:15)
+04. Letter To Women (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92053C60EC29EE95B27564FF7EE65C3DE4347054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709367   (112827) от 24.03.2024
+
+Ratzlaff & Webb - Delta Badhand (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legends Of The Blues (3:49)
+02. Call On Me (2:58)
+03. Do You Remember (3:47)
+04. I Call My Johnson...Robert (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43D3197402F8A13C7A8AE5035FDEAB72B2C6975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709391   (112825) от 24.03.2024
+
+The End Machine - The Quantum Phase (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Hole Extinction (4:36)
+02. Silent Winter (5:45)
+03. Killer Of The Night (4:55)
+04. Hell or High Water (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FECDE36DBE3BABC8E87D5D9FB4CF60621AA2758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709385   (112824) от 24.03.2024
+
+TC Tom Comfort - Slave To The Stupid Still (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shout It Out Loud (3:24)
+02. Hate Myself For Loving Life (3:02)
+03. Back Stabber My Friend (3:37)
+04. Going To Get Higher (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB6E147AFB045F1265AB08E5C1F38B3691DC9BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709400   (112823) от 24.03.2024
+
+Ольга Воронец - Поёт Ольга Воронец (1973) [FLAC 24/192|Lossless|tracks] <Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зачем вы, девочки, красивых любите (Е.Птичкин – И.Шаферан)
+02. Бабья доля (Г.Пономаренко – М. Агашина)
+03. Как случилось (Е.Птичкин – В.Харитонов)
+04. Семёновна (Е.Барыбин – Ю.Погорельский)(   Читать дальше...   )Жанр: RetroПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E5E8559B3090731798B5D3FD197A46BF4CEF7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709358   (112819) от 24.03.2024
 
 Brother Dege - Aurora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -600,151 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D56166A2CCC04174B70EE7E79469A4D2B2CC415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710952   (112565) от 28.03.2024
-
-Glyph - Honor. Power. Glory. (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honor, Power, Glory (3:58)
-02. March of the Northern Clan (4:27)
-03. A Storm of Crimson Fire (3:29)
-04. When the World Was Young (4:07)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8707C24B7643DF2D015E7B0A30C9A7D94B2EC098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710958   (112563) от 28.03.2024
-
-The Quill - Wheel Of Illusion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wheel of Illusion (4:01)
-02. We Burn (4:41)
-03. Rainmaker (5:59)
-04. Elephant Head (4:16)(   Читать дальше...   )Жанр: Hard Rock, Stoner MetalПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF73EBADB518C6E53D4D2366B5FFB963FE636B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710822   (112562) от 28.03.2024
-
-Moonspell - Anno Satanæ (1993 Remastered) (2024) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Black Metal, Black Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (1993 Remastered) [1:12]
-02 - Goat On Fire (1993 Remastered) [5:24]
-03 - Ancient Winter Goddess (1993 Remastered) [5:35]
-04 - Wolves From The Fog (1993 Remastered) [6:10](   Читать дальше...   )Жанр: Metal, Black Metal, Black Folk MetalПродолжительность: 00:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2DB1C7B563F9EEF28C14E80C874088E01C900B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710950   (112560) от 28.03.2024
-
-Rage - Afterlifelines (1990) Reissue, Remastered, 2024, Steamhammer [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy metal Power metal, Thrash metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Beginning (1:32)
-02. End Of Illusions (3:49)
-03. Under A Black Crown (4:00)
-04. Afterlife (3:45)(   Читать дальше...   )Жанр: Heavy metal Power metal, Thrash metalПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:849D5AEDE71DD774F51A11D35386B2A9EFC00332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711410   (112501) от 30.03.2024
-
-Enrique Iglesias - Final (Vol.2) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Asi Es La Vida [2:53]
-02 - Fría [2:57]
-03 - Space in My Heart [2:59]
-04 - La Botella [3:07](   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB8371AC974FFA0DA2DC20662A1164402A64BAE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

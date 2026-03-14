@@ -1,3 +1,148 @@
+###  Публикация: 1655059   (193920) от 24.08.2023
+
+VA - The Orient Collective: Mystical Sounds of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mystic - Soul of the Universe (5:26)
+02. Mikhail Catan - Solace (6:24)
+03. Gumale - Scenery (7:11)
+04. Ali Termos - Road to Mombasa (Evan Mars Remix) (7:26)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F8506D7B2AD693180ADB2778A61988272525B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654919   (193913) от 24.08.2023
+
+VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atman (US) - Namekia (6:49)
+02. Mikhail Catan - Away (7:23)
+03. Tamer ElDerini - Fagr (5:42)
+04. Michael Simon - Canzul (6:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B3D37036B4F383BC22BC0214D61F8C8744C0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828014   (193752) от 23.10.2025
+
+Armik - Romantic Spanish Guitar, Vol. 2 (2015) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds of Passion
+02. Breathless
+03. Guitanova
+04. Isla Mujeres(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E96796425674DC2F3C4A0F85FEC97C91E9914EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828051   (193639) от 23.10.2025
+
+Francis Goya - Douce France, Vol.1-2 (2022) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol.1:
+01. Ballade Pour Adeline
+02. Belle
+03. Comme Ils Disent(   Читать дальше...   )Жанр: Instumental |Продолжительность: 01:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0952DE778488A53381527D4573E0FE64CB0183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828010   (193262) от 23.10.2025
+
+Armik - Romantic Spanish Guitar, Vol. 1 (2014) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing In The Clouds
+02. Guitarra Poeta
+03. Romance De La Luna
+04. Lagrimas(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4524BBBAF1D010F92F762D8AF533DE88F31D22A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587245   (192928) от 30.10.2022
 
 Тэм Гринхилл - Полынный ветер (2011) [FLAC|Lossless|image + .cue] <Folk>
@@ -596,149 +741,6 @@ Christopher Willis - Смерть Сталина / The Death Of Stalin (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F26CC3837CA36368041BF955CEA565D79404567E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590719   (187816) от 16.11.2022
-
-Elane - Blackvale (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Gothic, Fantasy Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sternenwind [00:06:00]
-02. Home Is Where You Are [00:04:23]
-03. Searchlight [00:04:26]
-04. Scarborough Fair [00:03:42](   Читать дальше...   )Жанр: Celtic, Gothic, Fantasy Folk RockПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291D0A623B04312C592DC494C13750788B906F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590974   (187537) от 17.11.2022
-
-Dirt Poor Robins - Queen of the Night (Soundtrack) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Cinematic Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babylon (04:05)
-02. Penelope Graves (06:17)
-03. Gambit of Night (Extended) (03:53)
-04. Come Take a Trip in My Airship (04:05)(   Читать дальше...   )Жанр: Progressive Rock, Cinematic RockПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C8587D737857D219F7900B12A0D9614F462233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591262   (187518) от 17.11.2022
-
-VA - Хочу замуж (к\ф «Хочу замуж» официальный саундтрек) (2022) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. POLINA - Что-то пошло не так
-2. Люся Чеботина - Главная причина
-3. Николай Ростов - Где ты была вчера?
-4. Апрелия - Белая птица(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591297   (187179) от 18.11.2022
-
-Constance Demby - Sacred Space Music (1988) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Longing
-02. RadianceЖанр: New AgeПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB56D70E64BBF7B8E3649F0B9B147E6277C46E3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 224151   (185858) от 25.11.2020
-
-VA - Celtic Chill Out Lounge (2010) [FLAC|Lossless|image + .cue] <Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aethera - The Mountain Side (3:56)
-02. Kieran - Drowning (5:48)
-03. Conner O'Reilly - Hear The Angels Call (5:07)
-04. John Flighten - Water And Tears (5:12)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF449EA5B0FC3A365040B5CA25F35F8521BC93CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

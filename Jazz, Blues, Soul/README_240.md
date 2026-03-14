@@ -1,3 +1,188 @@
+###  Публикация: 528489   (571292) от 29.07.2012
+
+Brecker Brothers - Out of the Loop (1994) [FLAC|Lossless]<Jazz-Funk, Jazz-Fusion, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slang
+02. Evocations
+03. Scrunch
+04. Secret Heart
+05. African Skies
+06. When It Was
+07. Harpoon
+08. The Nightwalker
+09. And Then She WeptЖанр: Jazz-Funk, Jazz-Fusion, Crossover JazzПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043578   (571187) от 17.08.2016
+
+Martin Lechner - Somethin' Old & Somethin' New, Somethin' Else! (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby Of Birdland
+02. Valerie
+03. The Masquerade Is Over
+04. Ready Or Not(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A213AEDFF6579E70880A0DA5FCCD76C1636A8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528708   (571163) от 29.07.2012
+
+Brian Simpson - Above The Clouds (2007) [APE|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Cha Gonna Do?
+02. Juicy
+03. From the Hip
+04. Let's Get Close
+05. One More Time
+06. The Last Kiss
+07. Fiona's Song
+08. Bali Listen
+09. Above the Clouds
+10. Memories Of You(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234465   (571151) от 05.07.2018
+
+Jimmie Lunceford - 1940 - 1941 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whatcha Know Joe? [2:41]
+02. Red Wagon [2:35]
+03. You Ain't Nowhere [2:56]
+04. Please Say The Word [2:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867F6CD465C8E98F271CCA5E556F7B7C749BC984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234463   (571147) от 05.07.2018
+
+Kenny Barron Quintet - Concentric Circles (2018) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DPW [4:52]
+02. Concentric Circles [7:28]
+03. Blue Waters [5:41]
+04. A Short Journey [5:30](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B14ACE7367FDD5E3B4C8A7334A5D3F3B7C8B36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303680   (570963) от 22.05.2019
+
+Take 6 - Iconic (2018) SoNo Recording Group [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In Love Again [4:15]
+02. Can't Stop The Feeling [4:05]
+03. Change The World [4:15]
+04. Sailing [4:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C93FE3C45E9181688386C93479F47C9B2BCD1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151773   (570834) от 20.07.2017
 
 Michael Garrick Sextet - Promises (1965) 2008, Vocalion [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -595,180 +780,6 @@ Tara Kannangara - Some Version Of The Truth (2015) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC411EDEF1E6C52831CA7604D49E7AB02B16AC9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044013   (569257) от 18.08.2016
-
-Reuben Wilson - The Sweet Life (1974) 2006, Groove Merchant[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Inner City Blues [04:48]
- 02.Creampuff [05:32]
- 03.Sugar [06:11]
- 04.I'll Take You There [06:27](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3CF2A7725691603DACAA28A559D89FAFA83258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234617   (569246) от 06.07.2018
-
-VA - Summer In Electro And Swing Jazz (2018) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ukulele Swing - Christian Lisi 02:49
-02. Non Dimenticare - JazzInCase 03:18
-03. Prince of Persia - Minor Swing Quintet 07:27
-04. Toccata - Parma Brass Quintet 02:07(   Читать дальше...   )Жанр: JazzПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F72FA8ACBF874BBF1C630453E0214F50DAED4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043895   (569106) от 18.08.2016
-
-Robin McKelle - The Looking Glass (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Soul, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravity
-02. Stand Up
-03. I’'m the One
-04. Forgive Me(   Читать дальше...   )Жанр: Vocal Jazz, Soul, PopПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E6BFE8DB11474D24C333E2B699D393CCD0D284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043892   (569102) от 18.08.2016
-
-Simona Parrinello - Con Alma (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beatrice
-02. Con Alma
-03. Melancholia
-04. Everybody's Song But My Own(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1938914094F45B8593F8725D48611C8AC1642E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555304   (569070) от 04.06.2022
-
-The Red Mitchell-Harold Land Quintet - Hear Ye! (1961) 1989, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triplin' Awhile [7:48]
-02. Rosie's Spirit [5:28]
-03. Hear Ye! [6:55]
-04. Somara [6:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E371EA6EA0CDB7BBBFD07EC6CDCF3B6009CEF5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555465   (569069) от 04.06.2022
-
-Phil Ranelin - Collected Works (2003 - 2019) 2CD, 2019, Wide Hive Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569069.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Freddie's Groove [8:58]
-02. Horace's Scope [5:27]
-03. This One's for Trane [8:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 02:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9241610CA624E6E6A3097959D2E3CA4282AA78
 ```
 
 https://mybot314.ru/tekegram_catalog/

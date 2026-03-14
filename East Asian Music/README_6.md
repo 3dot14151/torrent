@@ -1,3 +1,157 @@
+###  Публикация: 1036546   (618522) от 21.07.2016
+
+Iron Attack! - Space Galaxy (2016) /Doujin/ [FLAC|Lossless|tracks + .cue] <Progressive Power Metal, J-Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost in Galaxy
+02. コブラ (Yoko Maeno cover)
+03. Endless Story (Yukari Tamura cover)
+04. 愛の戦士 (Yoko Ishida cover)(   Читать дальше...   )Тип издания: DoujinЖанр: Progressive Power Metal, J-Metal, TouhouПродолжительность: 0:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B28B5624D63BBA50B40923D192B963CEA820245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229706   (617193) от 11.06.2018
+
+BugLug - Shin Jinsei (2017) [MP3|320 Kbps] <J-Rock, Visual Kei>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617193.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. BugLug - Shin Jinsei
+2. BugLug - nochi
+3. BugLug - Kotona
+4. BugLug - Maigo CH (2017.5.7 Nippon Budoukan)(   Читать дальше...   )Жанр: J-Rock, Visual KeiПродолжительность: 00:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0599D4B1C56337D56C60A480B7B437D529181FC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229551   (617182) от 11.06.2018
+
+Konomi Suzuki - Дискография, 4 альбома + 13 синглов (2012-2017) [MP3|320 Kbps] <J-Pop, J-Rock>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Konomi Suzuki (鈴木このみ родилась 5 ноября 1996 года) — японская поп-певица из Осаки, дебютировавшая в 2012 году в возрасте всего 15 лет с синглом «CHOIR JAIL», заглавная песня которого использовалась в качестве открывающей темы в аниме «Tasogare Otome x Amnesia». В 2011 году Кономи выиграла музыкальный конкурс «Animax All-Japan Anisong (   Читать дальше...   )Жанр: J-Pop, J-RockПродолжительность: 08:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F5CCAF5EC11CDB365C70A6F1A400C3252BDC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523228   (617116) от 16.07.2012
+
+Hou Chang Qing - Xiao Ao Cang Hai (2006) [MP3|320 кб/с]<Instrumental, Ethnic>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617116.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:30) 01. You are the best in the world
+(3:05) 02. Hope
+(3:54) 03. Sad pacific ocean
+(4:45) 04. A laughter from the seas
+(4:06) 05. Shanghai beach
+(3:31) 06. Dally of the fate
+(3:47) 07. If sky have love
+(5:02) 08. Love country but more love beauty
+(3:27) 09. Iron blood red heart
+(4:49) 10. The Myth (What way can i say love)(   Читать дальше...   )Жанр: Instrumental, EthnicПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85EF2BD38950F275FB0B012C29B1317FFD62964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523309   (616994) от 16.07.2012
+
+VA - Zen Spa (2011) [MP3|320 кб/с]<New age, Meditative, Lounge>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616994.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2:56) 01. Bamboo Flute Wellness
+(4:36) 02. Oriental Music
+(3:44) 03. Lotus Flower
+(2:34) 04. Contemplation
+(3:39) 05. Instrumental Music
+(3:34) 06. Meditation
+(4:10) 07. Relaxation
+(3:29) 08. Harmony Background Music
+(4:50) 09. Shakuhachi
+(3:26) 10. Tokyo Spa DreamsЖанр: New age, Meditative, LoungeПродолжительность: 01:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA64020FAA57ED7894855F8E655A9DA6B70A7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911739   (615726) от 23.06.2015
 
 Ma Chang-sheng - Mi Jing Tian Yin (2015) [MP3|320 кб/с]<New Age>
@@ -595,165 +749,6 @@ MACROSS 82-99 - Idol, Sakura (2017) [FLAC|Lossless|WEB-DL|tracks] <Vaporwave, Nu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C4E9FE9951A8D22D6F00397140C455E6363397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553385   (581885) от 26.05.2022
-
-Tears Of Tragedy - & (Acoustic) (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - クロノメトリー (00:03:56)
-02 - Spring Memory (00:05:00)
-03 - Anfillia (00:04:40)
-04 - VOICE (00:06:58)(   Читать дальше...   )Жанр: Symphonic, Melodic Power MetalПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E651A0FF3A363E3CA264A2EFB4515971420442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359956   (580802) от 07.07.2011
-
-VA - The Very Best Of Japanese Music (2004) [FLAC|Lossless]<Folk>
-
->>East Asian Music
->>Asian Traditional, Ethnic (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yamato Ensemble - Yamaji
-02. Wadaiko Matsuriza - Kabuki Gomen-Jyo!
-03. Clive Bell - Komoro Bushi
-04. Yamato Ensemble - Futatsu No Den-En-Shi I
-05. Wadaiko Matsuriza - Gaku
-06. Richard Stagg - Kumoi jishi
-07. Yamato Ensemble - Hoshun
-08. Ayako Hotta-Lister - Midare
-09. Nihon Daiko - DzaukuЖанр: FolcПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334297   (578498) от 09.07.2011
-
-Kobukuro - 8 albums + 10 singles (2001-2011) [FLAC|Lossless]<JPop, Folk Rock>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578498.jpg" />
-</div>
-
-
-###  Подробнее
-
-albums:Жанр: JPop, Folk RockПродолжительность: 00:20:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526819   (576385) от 26.07.2012
-
-VA - The First Chemical Element (Vol. I - X) (2005-2008) [MP3|320 кб/с]<Instrumental, Ethnic>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576385.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:38) 01. Vong Xuan Phong
-(4:34) 02. Nga Hoa Xuan Thien Huu Ca Uoc Hoi
-(4:02) 03. Nguyet Luong Ha
-(3:45) 04. Linh Thoi Thap Phan
-(6:55) 05. Vo Tam Khoai Ngu
-(3:50) 06. Sometimes I Feel Like A Mother
-(4:02) 07. Luc Tu Tu
-(3:21) 08. Bot Lap Mo Tu Tieu Da Khuc
-(4:12) 09. Niem Co Huong
-(3:20) 10. On Nhu Ai Nga(   Читать дальше...   )Жанр: Instrumental, EthnicПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C034BECFB3B0A34BD4CA700EE193A38A06D2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361912   (573230) от 12.07.2011
-
-Whisper Records - 8 дисков (2001 - 2011) [FLAC|Lossless]<Neo Folk, New Age, Arrangement, Original Work>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_573230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Terra's Sigh - |from　Feadan Cridhe (2002)|
-02 枯れ葉谷のポルカ - |from　紅の天地　青の流都(Guests) (2007)|
-03 Run Through under the First Sky - |from　Skywards (2007)|
-04 Bloom Coronet - |from　Yggdrasil (2004)|
-05 夕暮れに笑顔 - |from　Wheel of Green (2006)|
-06 Yggdrasil - |from　Yggdrasil (2004)|
-07 この腕で、優しく包み込む - |from　Elements (2006)|
-08 森守の儀 - |from　Wheel of Green (2006)|
-09 Song for Tomorrow - |from　Skywards (2007)|
-10 On Board (with memories) - |from　Over S. (2010)|Жанр: Neo Folk, New Age, Arrangement, Original Work, TouhouПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

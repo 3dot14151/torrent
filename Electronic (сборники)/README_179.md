@@ -1,3 +1,32 @@
+###  Публикация: 1336096   (282581) от 05.11.2019
+
+VA - Beach Dance Classics Radio (2) (2019) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282581.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kerri Chandler - Something Deeper
+002. Spiro Catalano - Work
+003. Moody F - Shattle
+004. Guna Nada Das - Heartbeat(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 12:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8C72A364165FED707B9188E01F1711E6CFB6E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964496   (281653) от 11.12.2015
 
 VA - Beatport Top 100 09.12.2015 (2015) [MP3|320 кб/с]<House, Electro, Progressive, Deep House, Tech House, Techno>
@@ -713,35 +742,6 @@ VA - Wilderness: Sunsonic Psy Trance (2019) [MP3|320 Kbps] <Psychedelic Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F4EF45F63215863B5B0D0021DD73D2BD5CF6188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336836   (276371) от 09.11.2019
-
-VA - Rhythm Of Life: Electro House Session (2019) [MP3|320 Kbps] <Electro House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276371.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tiger Stripes - Voyage
-002. Following Light - Zing (Original Mix)
-003. James Godfrey - Heart & Soul (Original Mix)
-004. Kerri Chandler - Ye Yo Ma(   Читать дальше...   )Жанр: Electro House, DanceПродолжительность: 11:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2093E67552A2F59CDE92002BCCA74F4AC55577D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

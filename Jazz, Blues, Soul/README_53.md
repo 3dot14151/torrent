@@ -1,3 +1,73 @@
+###  Публикация: 613551   (977616) от 08.02.2013
+
+Various Artists - Dreamboats and Petticoats - Dream Lovers (2013) [MP3|320 кб/с]<Rock'n'Roll>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+Продолжительность : 01:00:29
+
+1. Dream Lover - Bobby Darin
+ 2. It's Now Or Never - Elvis Presley
+ 3. It's Over - Roy Orbison
+ 4. Raining in My Heart (Single Version) - Buddy Holly
+ 5. Forget Him - Bobby Rydell
+ 6. Someone Else's Baby - Adam Faith
+ 7. Take Good Care Of My Baby - Bobby Vee(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009AEC8FC29D114ECEC8660ED9451848FB990219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615330   (977598) от 08.02.2013
+
+VA - The Golden Age Of Swing "Big Band Legends" (1995-1997) 3CD[FLAC|Lossless]<Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Russell - Doctor Blues [03:16]
+02. Fletcher Henderson - New King Porter Stomp [03:12]
+03. Horace Henderson - I'm Rhythm Crazy Now [03:20]
+04. Chick Webb - That Naughty Waltz [02:59]
+05. Count Basie - Miss Thing [05:43]
+06. Earl Hines - G.T. Stomp [02:47]
+07. Andy Kirk - Big Jim Blues [03:00]
+08. Harlan Leonard - Hairy Joe Jump [03:14]
+09. Duke Ellington - Jack The Bear [03:22]
+10. Louis Armstrong - Harlem Stomp [03:05](   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:05:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974347   (976973) от 11.01.2016
 
 The Art Van Damme Quintet - The Van Damme Sound & Martini Time (1953) 1998, Collectables[FLAC|tracks+.cue] <Mainstream Jazz, Accordion>
@@ -724,64 +794,6 @@ Al Di Meola - Consequence Of Chaos (2006) SACD [FLAC|Lossless|tracks + .cue] <Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2731D5958D40F049A3C7CF5EF9054327FB052EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975041   (974464) от 13.01.2016
-
-Hiromi - Spiral (2005) SACD, 2006 Telarc [FLAC|Lossless|tracks + .cue] <Post Bop, Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiral (10:04)
-02. Music for Three-Piece-Orchestra: Open Door - Tuning - Prologue (10:16)
-03. Music for Three-Piece-Orchestra: Déjà vu (7:45)
-04. Music for Three-Piece-Orchestra: Reverse (5:09)(   Читать дальше...   )Жанр: Post Bop, Fusion, Contemporary JazzПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D89455D8F966B0DF391B616C5A9BCD72A8D62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974949   (974463) от 13.01.2016
-
-Muddy Waters - Bottled Up (2016) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got My Mojo Working
-02. Goodbye Newport Blues
-03. I Got My Brand On You
-04. Got My Mojo Working, Pt. 2(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F211FEAB50CF64DA63900CB308066A9513C1A74
 ```
 
 https://mybot314.ru/tekegram_catalog/

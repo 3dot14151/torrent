@@ -1,3 +1,171 @@
+###  Публикация: 622058   (960319) от 22.02.2013
+
+Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ElectronicПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EDAF4941AC802103734A7644B8B967ACB6A44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979703   (958192) от 27.01.2016
+
+ABBA – Number Ones (2006) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme! Gimme! Gimme! (A Man After Midnight)
+02. Mamma Mia
+03. Dancing Queen
+04. Super Trouper(   Читать дальше...   )Жанр: Europop, DiscoПеревод: ОтсутствуетПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADE29579240FC3DF27FD1AE1CDBD91E614308AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979471   (957286) от 28.01.2016
+
+R.E.M. – In View: The Best Of R.E.M. 1988-2003 (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Videos (With Optional Interview Footage):
+
+01.Bad Day - Film Director: Tim Hope (4:02)
+02.All The Way To Reno (You're Gonna Be A Star)  - Film Director: Michael Moore (4:24)(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПеревод: ОтсутствуетПродолжительность: 02:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DCB111CDBAA5AEE58A8CA4A8840AEAAE8C168AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979319   (957219) от 28.01.2016
+
+Mylene Farmer – Music Videos II & III (2000) DVDRip (MPEG-2, PCM)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Que Mon Coeur Lache (6:44)
+02.	XXL (4:34)
+03.	L'Instant X (4:22)
+04.	California (5:18)(   Читать дальше...   )Жанр: Pop, RockПеревод: ОтсутствуетПродолжительность: 01:07:98
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C6D3505519DDE03B90B82B56F33B30AF2C2B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980011   (957198) от 28.01.2016
+
+Mylene Farmer – Music Videos II & III (2000) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Que Mon Coeur Lache (6:44)
+02.	XXL (4:34)
+03.	L'Instant X (4:22)
+04.	California (5:18)(   Читать дальше...   )Жанр: Pop, RockПеревод: ОтсутствуетПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8825368FFEE8DD10B56E6B084F9659F87EB4F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 171590   (956547) от 02.02.2010
+
+Eruption - One Way Ticket (1979) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из лучших песен группы - "One Way Ticket" (1978), более известной в СССР под названием "Синий иней" и исполнявшаяся многими ВИА. Автором песни был Нил Седака, который впервые издал эту песню в 1970 году. Однако помнят эту песню именно в исполнении Eruption.Жанр: PopПродолжительность: 2:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 622402   (955877) от 26.02.2013
 
 "O2label"/Strannik (vol.2.) (2013) HDTV [H.264]
@@ -314,6 +482,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624707   (948978) от 02.03.2013
+
+Little Richard - Long Tall Sally (Хищник / Predator) (2013) [H.264/1080p] BDRip
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_948978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собственный клип. Использована музыкальная композиция Little Richard Long Tall Sally
+Подробности не требуются.
+Ваши замечания будут учтены.
+Размещён на 2-х трекерах. Плагиатом раздачи с другого ресурса не является.Жанр: Фантастика, Боевик   Собственный клипРежиссер: Джон МактирнанАктеры: Арнольд Шварценеггер, Карл Уэзерс, Эльпидия Каррилло, Джесси ВентураПеревод: ОтсутствуетПродолжительность: 00:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E50B74098E2EF600B984FDBB1791105E5569D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 857896   (948355) от 11.01.2015
 
 Инфинити - Крылья (2014) [1080p] [hand made 60fps]
@@ -533,208 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:689848B9F82886E38128E3311093DEDA5ACCD319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982444   (943261) от 06.02.2016
-
-VA-Коллекция клипов в авто (ZAP) (2DIN) (1980-2016) HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипы собирались и конвертировались специально в авто, на 2DIN автомагнитолу.
-Представлены практически все жанры.Коллекция легко редактируется выделением ненужного и кнопочкой DEL001 2 Brothers - Dreams
-002 2 Unlimited - Let The Beat
-003 2 Unlimited-No Limit
-004 2CELLOS - They Don't Care About Us(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 50:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCADBF0F686666BA89BA7FEA5A0C00F291D3BABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981894   (943136) от 06.02.2016
-
-Коллекция клипов в авто (RUS) (2DIN) (2000-2015) HDTVRip
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипы собирались и конвертировались специально в авто,
-на 2DIN автомагнитолу.Представлены практически все жанры.001 1 - Я ухожу
-002 1-Я не стану
-003 2 парня - Я взял телефон
-004 3 - Прощай любовь(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 60:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6919AB0C3D080EE6F7D6F0C4FF8E0DB0AFB6E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859438   (942496) от 15.01.2015
-
-Сати Казанова - Дура (2013) [1080p] [hand made 60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: MKVПродолжительность: 00:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9737BDCBE187E7AC25D6325C2DBA1B800F5D50B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983606   (941882) от 07.02.2016
-
-VA – Реальная Музыка (2001) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чичерина - Ту-Лу-Ла
-02. Green Grey - Осень/MF
-03. Total - Камасутра
-04. Запрещенные - Барабанщики*	Мама-Зузу(   Читать дальше...   )Жанр: Rock, PopПеревод: ОтсутствуетПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788B0EE7733011043306534B0D1E9C170F3055AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625827   (940955) от 07.03.2013
-
-Сборник клипов - VA - Various Music part. 40 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940955.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2Elements - Tell Me Boy 1080p (3:24)
-2. Akcent feat. Anushka Manchanda - I'm Sorry 1080p (4:04)
-3. Alina Grosu - Let Go (Eurovision 2013) 1080p (3:10)
-4. Arty, Nadia Ali & BT - Must Be The Love 1080p (4:57)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D36F0EF9148FA4B3BD96D5FD9F402BC3FAC8D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984443   (938727) от 09.02.2016
-
-VA - Best of pop 2003 (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Kesici - Angel Of Berlin
-02. Pink - Family Portrait
-03. Christina Aguilera - Fighter
-04. Jennier Lopez feat Jadakis & Styles P - Jenny From The Block(   Читать дальше...   )Жанр: PopПеревод: ОтсутствуетПродолжительность: 02:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7103545647F681F1319E9CC9B81C638659A2BFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984563   (938388) от 09.02.2016
-
-VA - Танцевальный рай - The Best (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Pryzd vs. Floyd -  Proper Education
-02. Scooter - Shake That
-03. Holly Dolly - Dolly Song (leva's Pofka)
-04. Arash -  Boro Boro(   Читать дальше...   )Жанр: PopПеревод: ОтсутствуетПродолжительность: 02:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF6BA17BAC160B2D978BB4BEC983E5A1DDEC7C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

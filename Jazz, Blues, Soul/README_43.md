@@ -1,3 +1,61 @@
+###  Публикация: 1484198   (1006259) от 18.07.2021
+
+Gino Fanelli Live - King of Nuthin (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Glory (3:28)
+02. Free Man (4:27)
+03. The Knife (3:53)
+04. In My Dreams (2:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD13518B2FD126478868ECAA32E21A4F83D5342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484188   (1006258) от 18.07.2021
+
+Clint Morgan - Troublemaker (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hangman Woman (4:09)
+02. Go Down, Moses (3:25)
+03. Ain't That the Blues (4:03)
+04. Big River (4:34)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4AD1C62DE0948506D60F8C57270E8047F8A7657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484200   (1006250) от 18.07.2021
 
 Steve Morgan and the Kingfish - When Will I Know (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -687,64 +745,6 @@ Keith Richards - Blues (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86ADF10722C6475A9826C23BFB6522043E838493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350148   (1003853) от 04.01.2020
-
-Splashgirl - Doors. Keys. (2007) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Contemporary Jazz, Dark Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 Is 3 Is 2 Are One (3:21)
-02. Leo (6:04)
-03. Forsøk (5:01)
-04. Shut Up And Dance! (6:08)(   Читать дальше...   )Производство: Aim Records – AIMCD121Жанр: Dark Jazz, Contemporary Jazz, Dark ExperimentalПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ABA6E496BE4736014471210712A0E285007718C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350024   (1003848) от 04.01.2020
-
-Johnny Griffin & Eddie "Lockjaw" Davis - Four Classic Albums 1960 - 1961 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003848.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tickle Toe [5:31]
-02. Save Your Love For Me [7:09]
-03. Twins [6:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BD335EFEBBD6FD1A6A955E747543C690AB1110
 ```
 
 https://mybot314.ru/tekegram_catalog/

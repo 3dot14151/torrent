@@ -1,3 +1,148 @@
+###  Публикация: 1813830   (6597) от 21.08.2025
+
+Lava Saint - Grim Avenues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blessed Trouble (4:32)
+02.  Proven Guilty (6:05)
+03.  Halfway to the End (4:33)
+04.  A Bright Afternoon (3:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC49242E2BEA49997DD3BB136E366D9077223F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813817   (6590) от 21.08.2025
+
+Jonathan Kasper - Turn Off the Machine (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Got Your Number (3:43)
+02.  Just You (3:18)
+03.  I Fall Apart (3:33)
+04.  Turn Off the Machine (4:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB4FCD6FAE7ECC2560C1A2C096EB97B5872B9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813827   (6589) от 21.08.2025
+
+Knox Morgan - Loudspeaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Trust Yourself (3:34)
+02.  Flutter (2:25)
+03.  Odd One (3:32)
+04.  Stay Away (3:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA72006925966E96A4B9384CE65801A9A59B892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813821   (6588) от 21.08.2025
+
+Junior Vic Band - Let the Good Times Roll (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Strange Love (2:21)
+02.  Natural Ball (2:50)
+03.  Funny (But I Still Love You) (4:33)
+04.  When You Got a Good Friend (3:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8495458D833CFFE9831C46D4F0800B47484E2CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813813   (6587) от 21.08.2025
+
+Aisha Khan - Seven Shades of Blue Aisha Khan & the Rajahs (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cocaine Habit Blues (2:52)
+02.  Lucky Number 13 (5:09)
+03.  Up My Street (2:51)
+04.  El Bandarra (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A96CEF7123F819B49960227C04990E3D4A356B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813828   (6586) от 21.08.2025
 
 Last prophets - Time Moved Again (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
@@ -598,151 +743,6 @@ Heber Ataza - Viajando (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFF70B9FF703AADB1CEC3BD62013F5FAB264F281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814265   (6246) от 23.08.2025
-
-Adegoke Steve Colson & Iqua Colson - Glow: Music for Trio... Add Voice (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Getting Comfortable (5:35)
-02.  Clouds on a Sunny Day  (4:17)
-03.  Truly  (6:45)
-04.  Midnight Samba (6:12)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD3AB34C3E1FBA6866AE823F74453DD681C3BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814267   (6245) от 23.08.2025
-
-Bob Forte - Quarter Till Midnight (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Layla (4:22)
-02.  Days Of Wine And Roses (4:45)
-03.  On Green Dolphin Street (3:38)
-04.  Nobody Knows You When You're Down And Out (2:45)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D6F27B86969C189EC1BB7856CB1AAFF95EBAD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814280   (6244) от 23.08.2025
-
-Greg Chako - Comfort Food (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Freddie the Freeloader (5:54)
-02.  Gentle Rain (6:34)
-03.  Gone With The Wind (7:36)
-04.  How Long Has This Been Going On? (6:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0072AD38954306536ACFB80A1FE94E64480A4A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814274   (6243) от 23.08.2025
-
-Felice Lionetti - True (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  True (3:57)
-02.  Clock (3:48)
-03.  Generazione x (3:50)
-04.  Dream (3:21)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470EB5BC217C3D7E4B79F03EC75357324424A243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814278   (6241) от 23.08.2025
-
-Geoff Mann, Herbie Mann - Underground (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Memphis Underground (6:14)
-02.  New Orleans (4:08)
-03.  Chain of Fools (8:55)
-04.  Hold On, I'm Comin (8:35)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36726B7B2A37BE5370E503849521AE3EADB76A48
 ```
 
 https://mybot314.ru/tekegram_catalog/

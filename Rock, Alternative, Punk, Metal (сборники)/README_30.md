@@ -1,3 +1,35 @@
+###  Публикация: 1064683   (425559) от 20.10.2016
+
+VA - Hits of My Soul Vol. 15 (2016) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Bon Jovi - You Give Love A Bad Name (03:43)
+02. The Ramones - Poison Heart (04:03)
+03. Dagoba - Livin' Dead (03:40)
+04. Judas Priest - You've Got Another Thing Comin' (05:07)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8340B03483D15F8877D801F5FDF88257013EB2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064890   (423470) от 21.10.2016
 
 VA - Rock Collection 1993 (2016) [MP3|320 Kbps] <Rock, Metal>
@@ -716,35 +748,6 @@ Doro - I Am What I Am (Compilation) (2017) 2CD [MP3|320 Kbps] <Heavy Metal, Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F911F0BC9B4F9E72E90364B8FC61B198608CF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573719   (407447) от 03.09.2022
-
-Theory Of A Deadman - Compilation (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bitch Came Back
-02. Angel
-03. G.O.A.T
-04. Straight Jacket(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F02D66919CCE832D0970DD2A42C3C596C2FE9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

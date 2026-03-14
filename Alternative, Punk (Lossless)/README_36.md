@@ -1,3 +1,90 @@
+###  Публикация: 1320577   (468904) от 19.08.2019
+
+Keane - The Best Of Keane (2013) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock, Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowed Under (3:50)
+02. Walnut Tree (3:37)
+03. Fly To Me (5:33)
+04. To The End Of The Earth (3:03)(   Читать дальше...   )Жанр: Indie Rock, Pop Rock, Britpop |Продолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0A3988DF8AA832D77EBF2A8A836446E4837207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058530   (468846) от 01.10.2016
+
+New Years Day - Malevolence (2015) [FLAC|Lossless|tracks] <Alternative Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468846.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 	"Kill or Be Killed"
+2. 	"I'm About to Break You"
+3. 	"Alone"
+4. 	"Left Inside"(   Читать дальше...   )Жанр: Alternative Rock, Female VocalПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C2CE46800171F7A0007C0B27D38AE8A8048D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246035   (467902) от 08.09.2018
+
+JJ72 - JJ72 (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. October Swimmer (3:23)
+ 02. Undercover Angel (3:45)
+ 03. Oxygen (3:43)
+ 04. Willow (4:23)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701A4FAFB3B7C59B2206C0DD762572F4CFCB3486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568075   (466037) от 06.08.2022
 
 The Flatliners - New Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk,New Wave>
@@ -659,93 +746,6 @@ CD2 - 00:40:53
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7D6D06A35C91A2EA5661D388C5ADFA373966A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247110   (454545) от 14.09.2018
-
-Jungle - For Ever (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smile (03:07)
-02. Heavy, California (03:04)
-03. Beat 54 (All Good Now) (04:06)
-04. Cherry (03:16)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4B1A4E85CCF57D5D2684C96B00B4CA5A7E2ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408416   (454021) от 13.09.2020
-
-Desecration Conflict - Digital Dementia (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valor [00:04:17]
-02. Decide to Die [00:03:36]
-03. Grotesque [00:03:33]
-04. Take the Fray [00:03:53](   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBCBBC3EE2FBDE801AEF3A00D6FC2CD342987ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408079   (454019) от 13.09.2020
-
-Mindwake - B-52 (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454019.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. Nil [00:00:56]
-00. Gaïa's Throne [00:04:37]
-00. Hourglass [00:03:41]
-00. Reset [00:03:58](   Читать дальше...   )Жанр: Nu-Metalcore, HardcoreПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2B48A627E0A2F364031D880CB01B4D3E30A7C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

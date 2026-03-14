@@ -1,3 +1,29 @@
+###  Публикация: 1246512   (461171) от 11.09.2018
+
+3D модели - Hum3D - Ford F-250 Super Duty Super Cab XLT 2015 [V-Ray|*.max, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461171.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки FordФормат: V-Ray|*.max, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371D6A82CD6C464D114AE1671459637002F18CAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 142786   (458564) от 27.09.2009
 
 3D модели - Evermotion - Archmodels Vol. 064 [V-Ray|*.max]
@@ -664,34 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:309C833EE8D1CA067AB0DF506FE01E18333E2CF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567781   (395439) от 30.10.2012
-
-3D модели - Evermotion - Archmodels Vol. 088 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-Данный сборник содержит 60 высокополигональных и полностью затекстуренных моделей на тему "Рождество"!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3229A939223C9D3E6C063F6EAF2CFB51AFA85731
 ```
 
 https://mybot314.ru/tekegram_catalog/

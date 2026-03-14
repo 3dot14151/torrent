@@ -1,3 +1,32 @@
+###  Публикация: 1311581   (539952) от 30.06.2019
+
+VA - Record Super Chart 593 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539952.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Billie Eilish - Bad Guy (3:14)
+2.Meduza feat. GOODBOYS - Piece Of Your Heart (2:32)
+3.Aaron Smith - Dancin (Krono Remix) (4:15)
+4.Ed Sheeran, Justin Bieber - I Don't Care (3:39)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5352F825A9107FC6205730F0B3AD6F7898196AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925779   (539212) от 07.08.2015
 
 VA - Trance Desire Volume 52 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
@@ -720,35 +749,6 @@ VA - Dance Dance - The Best Electronic House, Techno Side (2016) [MP3|239~320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95D52DDE93C5F1B88920B2D03F571FDDDB6A3A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050938   (535129) от 10.09.2016
-
-VA - Global Music 155 DJ Vector Beauty (2016) [MP3|320 Kbps] <House, Electro House, Stadium Trance, Melodic Tech, Bounce, Dutch, Bigroom>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535129.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. R3HAB  -  Hakuna Matata (Hardwell Edit)  3:30
-002. Paul Oakenfold  -  Toca Me (Club Mix)  5:42
-003. Blasterjaxx & DBSTF  -  Parnassia (Extended Mix)  5:19
-004. Fedde Le Grand  -  The Noise  3:42(   Читать дальше...   )Жанр: House, Electro House, Stadium Trance, Melodic Tech, Bounce, Dutch, BigroomПродолжительность: 13:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7AFCE86E6AA3906FA653DBBC0D1C1EE2D9312E
 ```
 
 https://mybot314.ru/tekegram_catalog/

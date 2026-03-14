@@ -1,3 +1,149 @@
+###  Публикация: 1727750   (54153) от 06.06.2024
+
+Color for Shane - End (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Public [00:03:36]
+02. Why Did I Ever Say Yes? [00:02:24]
+03. Currency [00:02:57]
+04. Hours [00:03:21](   Читать дальше...   )Жанр: Alternative Rock, Garage RockПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F609EB4C02EC3030E7621CC8FAE59EC8FCCB9983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728219   (54145) от 06.06.2024
+
+Herb Alpert and The Tijuana Brass - Two Albums: !!Going Places!!/Early Alpert (1965, 1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Latin Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54145.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Great Manolete (La Virgen De La Macarena)
+(Calero, Montede)
+A2 Spanish Harlem
+(Leiber, Spector)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E59A8B7739AFA6FE44B74958BA9A31E33F60376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728152   (54141) от 06.06.2024
+
+The Arcane Order - Studio Albums (4 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54141.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Arcane Order - датская метал-группа из Колдинга. Первоначально сформирована в 2000 году под названием Scavenger.2006 - The Machinery Of Oblivion
+2008 - In The Wake Of Collisions
+2015 - Cult Of None
+2023 - Distortions From CosmogonyЖанр: Melodic Death/Thrash MetalПродолжительность: 03:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7404F672808400922D24EFE8BCFD5B94FD99B84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728374   (54140) от 06.06.2024
+
+elkka - Prism of Pleasure (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Deep House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break all my walls down (2:45)
+02. Right Here (3:50)
+03. Make Me (3:44)
+04. Crushhh (3:49)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 00:41:35
+https://elkka.bandcamp.com/album/prism-of-pleasure
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F248F5B357536258686480B2CB872FA999E6B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558264   (54117) от 07.06.2024
+
+Godsmack (& Sully Erna) - Studio Albums (11 releases) (1998 - 2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, hard rock, nu metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Godsmack — американская рок-группа, образованная в 1995 году в городе Лоуренс (Массачусетс). В состав группы входят вокалист и гитарист Салли Эрна, гитарист Тони Ромбола, бас-гитарист Робби Меррилл и барабанщик Шеннон Ларкин.1998 - Godsmack
+2000 - Awake
+2003 - Faceless
+2006 - IVЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 09:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530EACE44110B1C828F8491AE2D00E902917651B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584439   (54090) от 07.06.2024
 
 Oasis & Projects (Liam Gallagher; Noel Gallagher's High Flying Birds; Beady Eye) - Studio Albums (28 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Rock, ...
@@ -598,151 +744,6 @@ Connolly Hayes - Remember Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC84A06C2D2DC47B14BC3F8A23F08C4A0A7EE865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730742   (52980) от 17.06.2024
-
-Sparks - No. 1 In Heaven (1979) 45th Anniversary Edition, 2024, Lil Beethoven Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tryouts for the Human Race [00:06:08]
-02. Academy Award Performance [00:05:01]
-03. La Dolce Vita [00:05:56]
-04. Beat the Clock (Extended Version) [00:06:44](   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 01:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D18FAF108D1492EA4C2BACE91535ADB67B4C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730687   (52977) от 17.06.2024
-
-Atom Smith - Playing with Fire (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Swing, Nu Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 100% (3:30)
-02. Bad Girls (2:40)
-03. Playing with Fire (3:00)
-04. Higher and Higher (3:34)(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9636FD491A6DD33EB6E31BF7C933F84C50F4D854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730867   (52920) от 18.06.2024
-
-VA - Золотые хиты ХХ века 1 (2003) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Красные маки - Скажи мне правду
-02. Синяя птица - Клён
-03. Пламя - Снег кружится(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C2317F97E53DA0E87C14AF53A851A6A6D6D4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730999   (52811) от 19.06.2024
-
-Charles Wagner - Chucktallica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midsommar (Album Version) [00:05:29]
-02. Berzerker (Album Version) [00:04:37]
-03. Crossfire (Album Version) [00:04:27]
-04. Fire and Thrash (Album Version) [00:04:23](   Читать дальше...   )Жанр: thrash metal heavy metalПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3F70EEB5F9CA2923DF19119B1B72F058507861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731139   (52808) от 19.06.2024
-
-Hugo Kant - Beyond the Tracks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entering the Black Hole (Live at Blind Istanbul, 2022-03-26) [00:13:02]
-02. Butter (Live at Le Gorille, 2022-12-16) [00:04:34]
-03. Sure the Sun Will Rise (Live at Pulzart Festival, 2022-10-14) [00:18:50]
-04. The Eye (Live at Le Gorille, 2022-12-16) [00:14:46](   Читать дальше...   )Жанр: Trip Hop, Downtempo, FusionПродолжительность: 03:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D00DF2ED497E706F5CC5C89CADA45C87675D398
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1701224   (116500) от 20.02.2024
+
+Unheilig - Grosse Freiheit (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Meer
+02. Seenot
+03. Für Immer
+04. Geboren Um Zu Leben(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6F193CF087F09D28236E094D5CB202106DB4FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701200   (116499) от 20.02.2024
+
+Unheilig - Puppenspiel (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vorhang Auf
+02. Puppenspieler
+03. Spiegelbild
+04. Dein Clown(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A83BC102CBADA30FB2BE3C0421948E5DD1F0F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701118   (116494) от 20.02.2024
+
+Aname (Anamé) - 2 Albums (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal House, Melodic House, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116494.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Anywhere (Road Trippin') (Extended Mix) 00:06:22
+2 Someone We Used To Love (Extended Mix) EXPLICIT 00:05:25
+3 Must Be Dreaming (Extended Mix) 00:04:50
+4 Bermondsey Bender (Extended Mix) 00:05:32(   Читать дальше...   )Жанр: Vocal House, Melodic House, TechnoПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC04301D4C1F210AA229913CDE8354B6824DC6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701336   (116487) от 20.02.2024
+
+Mahmood - Nei Letti Degli Altri (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NLDA INTRO [00:01:30]
+02. TUTA GOLD [00:02:58]
+03. COCKTAIL D'AMORE [00:03:24]
+04. NEI LETTI DEGLI ALTRI [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD7A8D5564AC1E3F9B927505676CE23C4366BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701230   (116485) от 20.02.2024
+
+Unheilig - Lichter der Stadt (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Licht (Intro)
+02. Herzwerk
+03. Stark 2012
+04. So Wie Du Warst(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27753F38AE4C345C25413D82A6AD046F5B220BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701106   (116483) от 20.02.2024
 
 deer death - Next Death (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze, Alternative Rock Music>
@@ -600,151 +745,6 @@ Philip Sayce - The Wolves Are Coming (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D649AB09F51EA8595C15F6F4967EFD79C9D3EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702363   (115837) от 24.02.2024
-
-Rosie Frater-Taylor - Featherweight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alternatif, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give & Take (4:50)
-02. Falling Fast (4:33)
-03. No Scrubs (4:27)
-04. Stop Running (3:43)(   Читать дальше...   )Жанр: Rock, Alternatif, JazzПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627059973565E2F7DC4DB8058A6500075BD742FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702301   (115834) от 24.02.2024
-
-Katie Henry - Get Goin' (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Like Kerosene (3:30)
-02. Jump (3:58)
-03. A Doll's Heart (4:11)
-04. Clear Vision (3:39)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13CA1D8FB5FC0B4088BA6BC2D868092D9E562255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702360   (115833) от 24.02.2024
-
-Artimus Pyle Band - Anthems Honoring The Music of Lynyrd Skynyrd (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know A Little (3:28)
-02. Sweet Home Alabama (4:59)
-03. Simple Man (7:29)
-04. The Needle And The Spoon (4:14)(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18399090D9E112820B6F4016A22AE11E29B9E70C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702374   (115828) от 24.02.2024
-
-The Buddy Blake Band - Seven Ways From Someday (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run With The Lions (6:22)
-02. All I Was Trying to Say (Old Chicago) (3:30)
-03. Reminder (5:43)
-04. Hourglass (4:22)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB556EB4B0CC5F6D71284A123405B020CA022C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702130   (115823) от 24.02.2024
-
-Samsas Traum - Pussy Supremacy – Trauma Tales Sampler, Vol. I (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Rock, Gothic Metal, Darkwave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115823.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Die Katze hat mich dazu gezwungen - Teil 1 (M.)
-2. Die Katze hat mich dazu gezwungen - Teil 2 (G. G.)
-3. Die Katze hat mich dazu gezwungen - Teil 3 (C. M.)
-4. Die Katze hat mich dazu gezwungen - Teil 4 (J. I.)(   Читать дальше...   )Жанр: Gothic Rock, Gothic Metal, DarkwaveПродолжительность: 2CD, 02:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEB93B282CEA94CEFB9D58BFB9F65BDB1C7288E
 ```
 
 https://mybot314.ru/tekegram_catalog/

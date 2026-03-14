@@ -1,3 +1,148 @@
+###  Публикация: 957066   (621878) от 15.04.2022
+
+Инструментальный Ансамбль Рококо (1971) [FLAC 2.0 24/96|tracks+.cue (Vinyl-Rip)]<Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Арабески
+02. Акварель
+03. Королевство гномов
+04. Старый антикварЖанр: Easy ListeningПродолжительность: 00:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA4C97DCE04F51CD4B6A92C9B4BEC965FAAF942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935363   (621739) от 15.04.2022
+
+John Denver - Rocky Mountain High (1972) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Country, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621739.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Rocky Mountain High
+Steel Guitar – Eric Weissberg
+A2	Mother Nature's Son
+A3	Paradise(   Читать дальше...   )Жанр: Country, Soft RockПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D293571A8D6F193CA1EF84D8D5B7FC09C7D2368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059770   (621736) от 15.04.2022
+
+Вилли Токарев - Над Гудзоном (1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. С Днем Рождения, Милая Мама
+02. Мама, Я Сын Твой
+03. Нью-Йоркский Таксист
+04. В Шумном Балагане(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347EE62C1E788F55075A5CF9E06FCFABE28D9ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229853   (620881) от 09.06.2018
+
+Студия Гран-При - Танцуй! (1990) [FLAC 2.0|48/24|tracks|Tape-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620881.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:13] 01. Студия Гран-При - Танцуй
+[4:28] 02. Студия Гран-При - Ты Мой Путь
+[3:27] 03. Студия Гран-При - Ледяное Поле
+[3:17] 04. Студия Гран-При - Достал(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F174903E667821E2D519CFA80A7FFC2F6F0747C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229855   (620783) от 09.06.2018
+
+Студия Гран-При - Танцуй! (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620783.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:13] 01. Студия Гран-При - Танцуй
+[4:28] 02. Студия Гран-При - Ты Мой Путь
+[3:27] 03. Студия Гран-При - Ледяное Поле
+[3:17] 04. Студия Гран-При - Достал(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CD32FFA936B8A847263D598351BB8C2FC54A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033055   (620588) от 20.07.2016
 
 Jethro Tull - Aqualung (1971) 2 ADVD, 40th Anniversary Adapted Edition, 2016 [PCM 2.0| DTS 5.1, AC3] <Progressive rock, Folk rock, Hard rock>
@@ -595,151 +740,6 @@ Kenny Rogers/Кенни Роджерс - Поёт Кенни Роджерс (198
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:835C9AA4685820D3B914CC84B12EAA58E1E9DD1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804420   (615337) от 12.07.2014
-
-The Who - Quadrophenia (1979) 2LP Original Motion Picture Soundtrack [FLAC 2.0 24/192|image (Vinyl-Rip)]<Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615337.jpg" />
-</div>
-
-
-###  Подробнее
-
-C1. The High Numbers - Zoot Suit (2:01)
-C2. Cross Section - Hi Heel Sneakers (2:49)
-C3. The Who - Get Out And Stay Out (2:29)
-C4. The Who - Four Faces (3:22)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216118641C6255AA039B60457075F694C7E236FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037164   (614986) от 23.07.2016
-
-Roger Waters - Amused to Death (1992) Remastered, 2015, Sony Music [LPCM 2.0, 5.1|96/24|Blu-ray]  <Progressive Rock, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amused To Death (рус. Позабавили(сь) до смерти) — третий сольный студийный альбом Роджера Уотерса, бывшего лидера группы Pink Floyd (если не считать его саундтреки к фильмам «The Body» (1970) и «When the Wind Blows» (1986)), вышедший в 1992 году. В хит-параде Великобритании альбом достиг 8-го места, в США поднялся до 21-го места, а наивысшую позицию занял в Новой (   Читать дальше...   )01. The Ballad Of Bill Hubbard
-02. What God Wants, Part I
-03. Perfect Sense, Part I
-04. Perfect Sense, Part II(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: Progressive Rock, Symphonic Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1179BE693100CA8F43FDF125CBCFFBF3DB5574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993828   (612911) от 20.04.2022
-
-Кикки - Полуночное солнце / Kikki - Midnight Sunshine  (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasn't That Love (Кто Идет)
-02. Undercover Lovers (Тайные Влюбленные)
-03. Somebody Else Will (Кто-To Другой)
-04. Fallin In Love, Fallin Apart (Влюбиться, Разлюбить)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE2AAAC1C27647C413F393F8EFF4E12C01966D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021076   (612910) от 20.04.2022
-
-Bobbysocks / Боббисокс (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock, Synth-pop, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612910.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Свинг • Let It Swing
-A2	Рок-Н-Ролл • Midnight Rocks
-A3	Радио • Radio
-A4	Хочу Танцевать С Тобой • Don't Bring Lulu(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, SchlagerПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173C2045E881510204BD5DC50DB237D0C76BB8B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021696   (612904) от 20.04.2022
-
-Арсенал – Пульс 3 (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion,  Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612904.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Эстафета · Relay Race
-A2	Рондо · Rondo
-A3	Праздник · Festival
-A4	Пульс Улицы · Street Pulse(   Читать дальше...   )Жанр: Jazz, Fusion,  ElectronicПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E295BB7B92C3A78D4E87E192A11EAE1C9E1FB22D
 ```
 
 https://mybot314.ru/tekegram_catalog/

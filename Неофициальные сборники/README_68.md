@@ -1,3 +1,90 @@
+###  Публикация: 982606   (947124) от 04.02.2016
+
+VA - Cozy Winter Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Warm Tones
+02. Enrico Donner - Baia de Guanabara
+03. Cane Garden Quartet - Bom Dia
+04. Blue Wave - Eu Sou Carioca(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73684758174BDF47A5F4FE7F379944A7067FD8CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089956   (947117) от 06.01.2017
+
+VA - Winter Hits (2017) [MP3|320 Kbps] <Club , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947117.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3LOGY - The Banjo (Dj Desving Refresh)
+002. Will Fast - You & I (Original Mix)
+003. Morandi - Keep You Safe (Dj Andy Light & Dj O'Neill Sax Remix)
+004. Ste Essence feat. Vicky Jackson - Don't Play With My Love (Original Mix)(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 05:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A17E92BFEA8948AF155D75F021B2F3807BEABDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982490   (947075) от 04.02.2016
+
+VA - Deep and Sexy: 20 Deep House and Funky House Music Tunes Vol.6 (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Factor - This Room - Original Mix
+02. Island Beats - Intercontinental - Original Mix
+03. Progression Alpha - Dark - Original Mix
+04. James Palmer - Go - Original Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF7346C9CDF34C80BD3D6BEC69513A524AA3631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982718   (947059) от 04.02.2016
 
 VA - Silver Voice: RnB Dolce Boom (2015) [MP3|320 кб/с] <RnB, Soul, Funk>
@@ -667,93 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51DCCF579BE8B64A41EFFDF4D9ED62159A53DEB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982883   (945471) от 05.02.2016
-
-VA - Smooth & Chilly Valentines (2016) [MP3|320 кб/с] <Smooth Jazz, Lounge>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Stop Loving You - eJazz Artistry
-02. I Wanna Know - Kool&Klean
-03. It's Our Time - Love Suggestions
-04. You and I - Chillaxing Jazz Kollektion(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 01:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDE026A23813A039BEF3870917618688C493A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982903   (945374) от 05.02.2016
-
-VA - Кабацкий дым. Суперсборник русского шансона (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945374.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Геннадий Вяземский - Исповедь Ходока
-002. Сергей Куренков - Я Хочу Побыть С Тобой
-003. Александр Келеберда - Пиастры
-004. Андрей Шпехт - Следом За Тобой(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A751F551F22420114A670FAD36B19256EDA89D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363101   (945286) от 26.02.2020
-
-VA - Beatport Techno: Electro Sound Pack #13 (2020) [MP3|320 Kbps] <Techno, Tech House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L-Gil - Taoaaa (Original Mix)
-02. Danny Nectar - Power (Original Mix)
-03. Juan Campos - Rk-4
-04. Rauschhaus - Bespin(   Читать дальше...   )Жанр: Techno, Tech House, ClubПродолжительность: 06:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A61813E252EFE572E2F61340C188829B699635
 ```
 
 https://mybot314.ru/tekegram_catalog/

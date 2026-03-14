@@ -1,3 +1,90 @@
+###  Публикация: 1029975   (676408) от 29.06.2016
+
+Tim Bowman - Smile (2000) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart & Soul [04:34]
+02. Smile [04:13]
+03. Happiness Is [05:06]
+04. Wanda Patrice [03:50](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C6DBC66B4186AF7A23DED349D1B35755F0AEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290690   (676326) от 21.03.2019
+
+VA - Bossa Nova for a Summer Day (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rien que je changerais - Papik, Francesca Gramegna 04:06
+02 Dawn Pye - Hammond Express 05:48
+03 How High the Moon - Ida Landsberg, Marco guidolotti, Domenico Sanna, Simone Salvatore, Dario Rosciglione, Andrea Nunzi 03:40
+04 I Guess I'll Have to Change My Plan - Christian Lisi, Swingin' Cats Jazz Quartet 03:42(   Читать дальше...   )Жанр: Jazz, Latin, LoungeПродолжительность: 01:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7DA7F8D1094F400F64C2B550F568CA92D72A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797739   (675541) от 19.06.2014
+
+Tony Bennett & Dave Brubeck - The White House Sessions, Live 1962 (2013) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [00:52]
+02. Take Five [05:27]
+03. Band Introduction [01:19]
+04. Nomad [11:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4F75E80A54978B6A1372B05276E1DE8CD50268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509289   (675310) от 12.06.2012
 
 The Bill Holman Band - Brilliant Corners: The Music of Thelonious Monk (1997) [FLAC|Lossless]<Hard Bop, Post-Bop>
@@ -664,93 +751,6 @@ Simon Rattle & City of Birmingham Symphony Orchestra - Ellington: Mainly Black (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABDA92B5860E80E2AB22C4A8FF40898096D4C662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136676   (673249) от 23.05.2017
-
-Duke Ellington - Mood Indigo (1927 - 1936) 1989, Pro-Arte Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cotton Club Stomp [02:56]
-02. Black and Tan Fantasy [03:10]
-03. Creole Love Call [03:15]
-04. Black Beauty [02:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1027D5D73E37587B07862574934EACDE2E5920DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136600   (673248) от 23.05.2017
-
-Duke Ellington - The Conny Plank Session (1970) 2015, Gronland Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alerado (take 1) [03:58]
-02. Alerado (take 2) [04:00]
-03. Alerado (take 3) [03:26]
-04. Afrique (take 1) [07:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EE5D5FE4D5F6D8CBBD2B506D8DE231135AD111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136612   (673247) от 23.05.2017
-
-Duke Ellington - Sophisticated Lady: Duke's Greatest Hits (1992) Classic Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sophisticated Lady [03:45]
-02. Harlem Speaks [03:11]
-03. In a Sentimental Mood [03:20]
-04. Merry-Go-Round [03:02](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B7DCB23B2EDAEA3A3429D94001885DB94D3F69
 ```
 
 https://mybot314.ru/tekegram_catalog/

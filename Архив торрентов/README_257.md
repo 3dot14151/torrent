@@ -1,3 +1,29 @@
+###  Публикация: 598741   (999775) от 05.01.2013
+
+Sexy Girls Pack Wallpapers (03.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A4FE52CAE56886C81CB5176C5219226E3DB9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598735   (999774) от 05.01.2013
 
 Computer Desktop Wallpapers Collection (03.01.13) [Wallpapers]
@@ -688,35 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21D2183703EE8EC4DA063AC9CE033257DAAF53FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598916   (999721) от 05.01.2013
-
-Hypnose - Притяжение (2012) [MP3|320 кб/с]<Alt. Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Знаю
-02. С утра и в ночь
-03. Солнцем и луной (Тишина)
-04. Мистер (   Читать дальше...   )Жанр: Alt. RockПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9E02B474F33994AC817243C9EADF7A7CE9D7CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

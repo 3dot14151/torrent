@@ -1,3 +1,213 @@
+###  Публикация: 453720   (93708) от 18.02.2012
+
+Lena Horne - Love Songs (1999) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Love (2:16)
+02. Love Me Or Leave Me (3:13)
+03. The Man I Love (3:21)
+04. You're The One (3:35)
+05. People Will Say We're In Love (3:25)
+06. Don't Take Your Love From Me (3:09)
+07. Love Is The Thing (3:21)
+08. Someone To Watch Over Me (3:15)
+09. At Long Last Love (2:41)
+10. I'm Confessin' (That I Love You) (3:28)(   Читать дальше...   )1999Жанр: Vocal JazzПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453735   (93707) от 18.02.2012
+
+Gray Sargent - Shades of Gray (1993) [FLAC|Lossless]<Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Get Lost (5:04)
+02. Gray Haze (3:58)
+03. Don't Take Your Love From Me (7:21)
+04. I Know Why \ My Foolish Heart (7:03)
+05. A.P. in the P.M. (4:15)
+06. You Don't Know What Love Is (8:36)
+07. A Nightingale Sang In Berkeley Square (6:32)
+08. This Time The Dream's On Me (5:17)
+09. My Ideal (6:25)
+10. Long Ago And Far Away (5:08)(   Читать дальше...   )1993Жанр: Guitar JazzПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453234   (93559) от 16.02.2012
+
+VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Count Basie - I'm Confessin' (That I Love You) (4:51)
+02.Billy Taylor Trio - La Petite Mambo (4:49)
+03.Paul Desmond - Alice In Wonderland (4:06)
+04.Bill Evans - For Heaven's Sake (4:26)
+05.Thelonious Monk - It Don't Mean A Thing (If It Ain't Got That Swing) (4:40)
+06.Oscar Peterson - Georgia On My Mind (3:46)
+07.Eugen Cicero  - Autumn Leaves (6:24)
+08.Earl Hines - Moonlight In Vermont (3:13)
+09.Erroll Garner - Misty (2:48)
+10.George Shearing - Someone To Watch Over Me (2:35)(   Читать дальше...   )2009Жанр: JazzПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453160   (93555) от 16.02.2012
+
+Too Slim And The Taildraggers - Shiver (2011) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stoned Again (4:36)
+02. Daddies Bones (4:55)
+03. Can't Dress It Up (5:05)
+04. In Your Corner (4:54)
+05. I Heard Voices (0:48)
+06. Everybody's Got Something (5:02)
+07. Workin' (5:57)
+08. She Sees Ghosts (4:45)
+09. Inside of Me (4:29)
+10. As the Tears Go By (4:52)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453266   (93550) от 16.02.2012
+
+Hope Waits - Hope Waits (2007) [FLAC|Lossless]<Vocal Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be Satisfied (2:57)
+02. You Crossed the Line (3:58)
+03. Fortune Teller (4:47)
+04. Yesterdays (4:40)
+05. Get Behind the Mule (4:34)
+06. Ring Them Bells (3:49)
+07. Drown in My Own Tears (3:54)
+08. The Ballad of Judith Anne (4:07)
+09. Cigarettes and Coffee (4:14)
+10. Mother in Law Blues (2:51)(   Читать дальше...   )2007Жанр: Vocal Jazz, BluesПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452798   (93531) от 16.02.2012
+
+VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cal Tjader - Morning (2:59)
+02.Dusty Springfield - Breakfast In Bed (2:54)
+03.Astrud Gilberto - Champagne And Caviar (3:23)
+04.John Scofield - Green Tea (5:12)
+05.Incognito - Smiling Faces (5:10)
+06.Curtis Stigers - My Babe (4:48)
+07.Stan Getz & Joao Gilberto - Doralice (2:47)
+08.Stephane Grapelli - Hot Lips (2:51)
+09.Hildegard Knef - Coffee Song (1:59)
+10.De-Phazz - Rise And Shine (5:00)(   Читать дальше...   )2009Жанр: Vocal Jazz, BopПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453277   (93524) от 16.02.2012
 
 Red Garland Trio - Can't See For Lookin' (1996) [FLAC|Lossless]<Jazz>
@@ -662,201 +872,6 @@ The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Loss
 08..  Down to the Bone -  Gotta Get Back To You  (5:11)
 09..  The Crusaders -  Spiral  (6:10)
 10..  Down to the Bone -  Brooklyn Heights  (7:13)(   Читать дальше...   )2012Жанр: Jazz, FusionПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481769   (87938) от 12.04.2012
-
-Quadro Nuevo - In Concert (2012) [MP3|320 кб/с]<Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tu vuo'fa'L'Americano
-02. Giovanni Tranquillo
-03. Luna Rossa
-04. Sultana
-05. Canzone della Strada
-06. Paroles,Paroles
-07. Miserlou
-08. Prinzessin Josefina
-09. El Choclo
-10. Susannata(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E608D14D1078050F4D837FC74C3FE7290639F907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480119   (87413) от 09.04.2012
-
-Тенор саксофон - Полная коллекция лучших записей джазовой эпохи (1920-1970) [MP3|160 Kbps] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albertayler - For John Coltrane (13:39)
-02. Archie Shepp - Call Me By My Rightful Name (6:43)
-03. Arnett Cobb - Eddie Lockjaw - When I Grow Too Old To Dream (6:44)
-04. Arnett Cobb - Eddie Lockjaw - Go Power (5:11)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 09:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C073ACE51EEA27B3737A8761B5ABB7D4ED0F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477275   (87372) от 09.04.2012
-
-Игорь Бутман  - (2 альбома) (2007-2011) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87372.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011Жанр: JazzПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480059   (87306) от 09.04.2012
-
-VA - Oldies For A Rainy Day LPCD45 (2008) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Armstrong - What a wonderful world    [0:02:21]
-02. Patti Page - Tennessee waltz    [0:03:02]
-03. Ben E King - Stand by me    [0:03:02]
-04. Patti Page - I went to your wedding    [0:03:26]
-05. Platters  - Smoke gets in your eyes    [0:02:45]
-06. Ray Peterson - Tell Laura I love her    [0:02:52]
-07. Freddy Fender - Before the next teardrop    [0:02:37]
-08. Skeeter Davis - End of the world    [0:02:42]
-09. Tremeloes - Silence is golden    [0:03:16]
-10. Four Aces - Three coins in the fountain    [0:03:09](   Читать дальше...   )2008Жанр: Jazz, OldiesПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477597   (86079) от 03.04.2012
-
-Houston Person - In A Sentimental Mood (2000) [FLAC|Lossless]<Hard-Bop, Post-Bop, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86079.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Don't Get Around Much Anymore (to New York City) (4:10)
-2.Tenderly (to St.Louis, MO) (6:39)
-3.Skylark (to Washington, DC) (5:36)
-4.You Don't Know What Love Is (to New York City) (4:31)
-5.The Way We Were (to Chicago, IL&Brooklyn, NY) (5:15)
-6.My Funny Valentine (to Hartford, CT) (4:59)
-7.All The Things You Are (to Rio de Janeiro, Brazil) (4:53)
-8.Good Morning Heartache (to San Diego,CA) (4:58)
-9.Without A Song (to New York City) (4:20)
-10.In A Sentimental Mood (to Berkeley,CA) (3:38)(   Читать дальше...   )Жанр: Hard-Bop, Post-Bop, SoulПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476773   (85883) от 02.04.2012
-
-Warren Wolf - Warren Wolf (2011) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85883.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 427 Mass Ave. (6:17)
-2. Natural Beauties (7:19)
-3. Sweet Bread (6:03)
-4. How I Feel At This Given Moment (7:04)
-5. Eva (5:36)
-6. Señor Mouse (4:40)
-7. Emily (6:23)
-8. Katrina (7:38)
-9. One For Lenny (3:56)
-10. Intimate Dance (5:29)2011Жанр: JazzПродолжительность: 01:00:29
 
 ## Скачать торент
 ```bash

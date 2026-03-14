@@ -1,3 +1,148 @@
+###  Публикация: 1665401   (182548) от 30.09.2023
+
+Nervosa - Jailbreak (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Ambition (3:23)
+02. Suffocare (3:40)
+03. Ungrateful (3:06)
+04. Seed Of Death (4:28)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0796BAF4C15E5ABA337A250CD5307BD3A712AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665191   (182527) от 30.09.2023
+
+Don Letts - Outta Sync (2023) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <punk reggae>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outta Sync [00:04:31]
+02. Something Coming Off (feat. Hollie Cook) [00:04:01]
+03. The Universe Knows What You've Done (feat. John Cusack) [00:04:14]
+04. Touch (feat. Gaudi) [00:04:03](   Читать дальше...   )Жанр: punk reggaeПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3B1127776711B473887F1E4EF03D849614D0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665430   (182519) от 30.09.2023
+
+Heldmaschine - Flachenbrand (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal, NDH>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lockdown (4:19)
+02. Monoton (5:46)
+03. Übermensch (3:22)
+04. Stumme Schreie (4:07)(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAFB081372D2F073B90DFBE29C2AF71E0CB0B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665296   (182425) от 30.09.2023
+
+Jelusick - Follow The Blind Man (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reign of Vultures (6:32)
+02. Died (5:50)
+03. Animal Inside (5:51)
+04. Follow The Blind Man (6:15)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000FEC67ECCC75B3D7035EAA3EB9A39FF96483E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665407   (182423) от 30.09.2023
+
+Steven Wilson - The Harmony Codex (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive rock, Art rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_182423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inclination (7:16)
+02. What Life Brings (3:39)
+03. Economies of Scale (4:18)
+04. Impossible Tightrope (10:44)(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B095283B5E923F1132865FC3957A27E85D1E6175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665397   (182361) от 30.09.2023
 
 Code Orange - The Above (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, hardcore punk, industrial metal, alternative metal>
@@ -597,150 +742,6 @@ Nina & Ricky Wilde - Scala Hearts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3AEC8FA08C8A3ADD5D0BF31081B510F2021A098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665675   (181438) от 01.10.2023
-
-Orbital - Optical Delusion (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <IDM, Electro, House, Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-DISC 01
-DISC 02Жанр: IDM, Electro, House, TechnoПродолжительность: 2CD, 01:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1BB07EB0915DB8BF4B6EB0C820358E3C1EE2085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665649   (181262) от 01.10.2023
-
-Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI Records Ltd. [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181262.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Вернись К Тому, Кого Любишь • Lay Back In The Arms Of Someone
-A2 Мне Грустно От Чего-то • Something's Been Making Me Blue
-A3 Если Ты Думаешь, Что Любишь Меня • If You Think You Know How To Love Me
-A4 Передай По Кругу • Pass It Around(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0718BE65DF1F601E27263ED05CC94FAF316A20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665746   (180956) от 02.10.2023
-
-October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180956.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Marras I
-A2 Marras II
-A3 Marras III
-A4 Marras IV(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:866859237EE73B837E31A8575A50C5D43C9EC52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665727   (180860) от 02.10.2023
-
-Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diablo — финская мелодик-дэт/грув-метал группа, основанная в 1995 году как «Diablo Brothers».2000 - Elegance in Black
-2002 - Renaissance
-2004 - Eternium
-2005 - Mimic47Жанр: Melodic Death/Groove MetalПродолжительность: 05:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100F36BE192373B50EC264E0DA07BE6F3FF8BBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666041   (180753) от 02.10.2023
-
-Warwolf - The Apocalyptic Waltz (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Apocalyptic Waltz
-02 - Silver Bullets
-03 - Spawn of Hell
-04 - Flying Dutchman(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26082B17B761D64110F33158E827A63FBA1B5931
 ```
 
 https://mybot314.ru/tekegram_catalog/

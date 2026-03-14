@@ -1,3 +1,148 @@
+###  Публикация: 1216572   (749431) от 31.03.2018
+
+Потап и Настя - Не пара-альбом №1 (2008) |Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (яфшоке!)
+02. Икра
+03. Крепкие орешки
+04. Не пара(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F64A26420CEAB4EEF15DDBF1DFFA70753F81BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281931   (748513) от 10.02.2019
+
+The Dip - The Dip Delivers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sure Don't Miss You (02:54)
+02. Best Believe (03:56)
+03. Advertising (feat. Jimmy James & Delvon Lamarr) (03:00)
+04. Adeline (03:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0989A55AFA39B31B353513864933B9072A837BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281988   (748419) от 10.02.2019
+
+Meghan Trainor - The Love Train (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Blue-Eyed Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ALL THE WAYS (02:55)
+02. MARRY ME (03:35)
+03. I'M DOWN (03:16)
+04. AFTER YOU (03:26)(   Читать дальше...   )Жанр: Pop, Dance, Blue-Eyed SoulПродолжительность: 00:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C73163427E66BCBC0BF6ADFC34E1C07D913A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282002   (746407) от 11.02.2019
+
+VA - Italian Golden Ballads (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Italo Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Bano & Romina Power - Liberta
+02. Collage - Donna Musica
+03. Pupo - La Notte
+04. Ricchi e Poveri - Comme Vorrel(   Читать дальше...   )Жанр: Italo PopПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17974C851813E39D7997D22ADA9301266FDB76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396637   (745501) от 16.07.2020
+
+Тина Кароль - 4 Альбома (2006 - 2017)  [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дикая вода
+02. Мужчина моей мечты
+03. Тобi здається
+04. Космiчнi почуття(   Читать дальше...   )Жанр: РорПродолжительность: 02:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCDEB010579D4F22BAC7DE01A5E999EE7E4298C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282455   (745322) от 12.02.2019
 
 Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] <Disco, Soul, Funk>
@@ -597,152 +742,6 @@ Sam Martin - Blue Tuesday (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94058FC10A61408234BCC418CC679E2DB2A22A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526413   (738487) от 24.01.2022
-
-Madeline Juno - Besser kann ich es nicht erklaren (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neukölln (3:52)
- 02. Obsolet (3:04)
- 03. Jedes Mal (3:15)
- 04. Tu was du willst (3:11)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86C555822107B643A1B5AC9938696B1DE63DC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227755   (738012) от 25.01.2022
-
-VA - Top Of The Pops '1974 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение начатой не так давно (ссылка на серию внизу релиза) серию путешествий по победителям топов прошлого века.
-Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского (   Читать дальше...   )CD1:
-01. ABBA - Waterloo  (2:44)
-02. Sparks - This Town Ain't Big Enough For The Both Of Us  (3:03)
-03. Mud - Tiger Feet  (3:50)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 02:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84EC29F73894A81FF3F804D5D49C1D57D25AAE0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526796   (737795) от 26.01.2022
-
-VA - Romantic Pop Songs 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - Love Story (Taylor’s Version) (3:55)
-02. Imagine Dragons - Not Today (4:21)
-03. Justin Bieber - Love Yourself (3:52)
-04. Julia Michaels - Heaven (3:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17AE1C746A2D8A6CF14D6C3F72EA843E1801F5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397640   (737560) от 22.07.2020
-
-VA - Relaxing 80s Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - Big Love (3:28)
-02. Karizma Duo - Come On Eileen (2:31)
-03. Shannon & Keast - Time After Time (3:45)
-04. The Shaken Bakers - Dancing in the Dark (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098964AF7D4D14D68DEDB6A7C4C52F833A79953D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397685   (737546) от 22.07.2020
-
-VA - The Hits Album The 60s Album (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Boys - Good Vibrations (03:36)
-02. Simon & Garfunkel - Mrs. Robinson (04:02)
-03. The Byrds - Mr. Tambourine Man (02:20)
-04. The Mamas & The Papas - California Dreamin' (02:40)(   Читать дальше...   )Жанр: Pop, Rock, R'n'BПродолжительность: 03:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F5770E6A5159F4ED032370476B5198C138A351
 ```
 
 https://mybot314.ru/tekegram_catalog/

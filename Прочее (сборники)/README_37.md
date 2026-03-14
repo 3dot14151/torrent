@@ -1,3 +1,32 @@
+###  Публикация: 1114281   (833503) от 14.03.2017
+
+VA - Club Music Get On Up (2017) [MP3|320 Kbps] <Dance, Club, Funky>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833503.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Austin Mahone ft. Pitbull - Lady (Modjo Cover / Richard Vission Remix) 5:21
+002. The Weeknd vs. Don Diablo - Might Not Switch (Mighty Mi Hype Bootleg / Dirty / Acapella Out) 4:15
+003. Bruno Mars - That's What I Like (Dirty / Short Edit) 3:23
+004. Claptone - Party Girl (Format B Remix) 7:06(   Читать дальше...   )Жанр: Dance, Club, FunkyПродолжительность: 08:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B77E503A7F5445A3DE1874F1372E6593F1A541F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114200   (833141) от 14.03.2017
 
 VA - Музыка хорошего настроения. Retro Fm. Зарубежный (2017) [MP3|320 Kbps] <Pop , Disco , Rock>
@@ -714,35 +743,6 @@ VA - Vintage Nu Swing Desert (2020) [MP3|320 Kbps] <Nu Jazz, Electro Swing, EDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE34A7AC6656C2047E86036EB7BC9E1FD94653E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381534   (825823) от 07.05.2020
-
-VA - Super Hits 100 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825823.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Dua Lipa - Don't Start Now (3:03)
-2.The Weeknd - Blinding Lights (3:21)
-3.Topic - Breaking Me (2:46)
-4.Tones and I - Dance Monkey (3:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD1ECC123918B2A4728713056B3928122FD2C16
 ```
 
 https://mybot314.ru/tekegram_catalog/

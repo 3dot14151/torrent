@@ -1,3 +1,29 @@
+###  Публикация: 1037094   (615278) от 23.07.2016
+
+Шаблоны - CreativeMarket - Billboards - Mockups V02 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй том рекламных щитов и вывесок. 8 PSD файлов с функцией смарт объекта, позволяющей легко и быстро редактировать шаблоны под ваши нужды.Формат: PSDРазрешение файлов: 4000x2700 px/300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B3A59A01F4745BEFD3FB6121CD90DF50298CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037062   (615164) от 23.07.2016
 
 Шаблоны - CreativeMarket - Urban Poster Mock-up VOL.7 [PSD]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1F97EA8F205E019ACB44D7B865832E258B5A4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038042   (610023) от 26.07.2016
-
-Шаблоны - CreativeMarket - Smartphones - Mockups [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610023.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 PSD-файла, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 4000x2600px\300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9C3FA61F7E6F85E0F18A63531F5D25A54DBB1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

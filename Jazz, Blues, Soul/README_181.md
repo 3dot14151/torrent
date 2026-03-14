@@ -1,3 +1,180 @@
+###  Публикация: 1029140   (684658) от 25.06.2016
+
+Lionel Hampton All Star Band - Live At Newport '78 (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stompin' At The Savoy [04:52]
+ 02.On The Sunny Side Of The Street [04:50]
+ 03.Hamp's The Champ [10:06]
+ 04.Carnegie Hall Blues [07:19](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Big BandПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94EF7B56A5395F95C2BDD1359EDC9B1258312F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029035   (684650) от 25.06.2016
+
+Kevin Waide Project - Almost The Marrying Kind (2016) [MP3|320 кб/с] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just My Luck (03:59)
+02. Drankin' Blues (04:39)
+03. Blame It On You (04:29)
+04. I Don't Care (04:14)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B76D5A2A4751B60ECC8A08AAE9A2297C1FDA082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028990   (684541) от 25.06.2016
+
+Ahmad Jamal - Trio & Quintet Recordings With Ray Crawford (1955-1960) 2CD, 2016, Cherry Red Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684541.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.New Rhumba [04:44]
+02.A Foggy Day [04:27]
+03.All of You [03:20](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8AC610A8F37CF494B967B92B6627A8FEB693F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029003   (684534) от 25.06.2016
+
+VA - The Ladies Of Jazz (1997) [MP3|320 кб/с] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dinah Washington - Mad About The Boy (2:50)
+ 02. Sarah Vaughan - My Favourite Things (2:46)
+ 03. Astrud Gilberto - The Girl From Ipanema (3:18)
+ 04. Nina Simone - I Loves You Porgy (4:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E647C918ECB9DE47762254F7FDBB1D974FC22E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289765   (684456) от 17.03.2019
+
+Pepper Adams - The Master (1980) 1994, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enchilada Baby [5:46]
+02. Chelsea Bridge [8:57]
+03. Bossallegro [6:04]
+04. Rue Serpente [8:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD6C943E89AB31C9F0D6FA628307FE6435A2E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029047   (684417) от 25.06.2016
+
+Raging Dildos - Blue EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandolins (03:14)
+02. Strawberry Fields Forever (03:59)
+03. Macarron (03:48)
+04. Aurora (03:02)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:30:24
+
+Nadia Schilling - Vocals, Guitar, Double Bass, Glockenspiel
+Joao Branco - Guitars, Drums, Electric Bass(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76AA7A808A253A5B55789133878619DECAD956AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535540   (684216) от 07.03.2022
 
 Dave McKenna - Dancing In The Dark And Other Music Of Arthur Schwartz (1986) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -568,180 +745,6 @@ Brother Sun Sister Moon - Liberty (2016) [MP3|320 кб/с] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79E644FD5DEB84AA443DA7CEA9F5486DEFE8F16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535762   (682509) от 08.03.2022
-
-Buddy Rich - Seven Classic Albums (1955 - 1961) 4CD, 2019, Real To Reel [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682509.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Yellow Rose Of Brooklyn [4:33]
-02. Easy Does It [8:18]
-03. All Sweets [2:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 04:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8028328CAB36A96EE326BCCBE6FC37E52A5FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029446   (682362) от 26.06.2016
-
-VA - Blues 2000 (2000) Unofficial Release [APE|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Moore - Still Got The Blues
-02. Tony Joe White -  Good In Blues
-03. Dana Gilespie - Where Blue Begins
-04. Blues Company - Silent Nite(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923641D637E447AA46E6C87E9046EB6635925118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029123   (682352) от 26.06.2016
-
-VA - Sexy, Smooth & Seductive: Intimate Jazz Fantasies (2016) [MP3|320 кб/с] <Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholas Stirling - Deep Tangier (3:26)
-02. Steve Lucas - After Hours (3:19)
-03. Steve Lucas - Funky Lady (3:23)
-04. Michael McGregor - Trickflavour (3:04)(   Читать дальше...   )Производство: Nightingale MusicЖанр: Jazz, LoungeПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A9CE8CE7E6DA2D5B20A5C9CF6B58993819FBB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029390   (682345) от 26.06.2016
-
-The Rippingtons feat. Russ Freeman - True Stories (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Tales
-02. Sundance
-03. Flamenco Beach
-04. My Promise To You (feat. Jeffrey Osborne)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59A2F35765189B144BB2093D18D18810E5DB277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289767   (682167) от 18.03.2019
-
-Ray Brown - Ultimate Ray Brown Selected by Christian McBride (1999) Verve Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solo for Unaccompanied Bass [2:32]
-02. Tricotism [3:57]
-03. Tangerine [3:20]
-04. Much in Common [3:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5089168AEBDBE6499A5FE9A2E37619763551D831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289773   (682166) от 18.03.2019
-
-Dizzy Gillespie - Four Classic Albums (1954 - 1957) 2CD, 2009, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682166.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dizzy's Blues [11:53]
-02. School Days [5:40]
-03. Dizzy Speaks [0:48](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FA44F40511FAC1607EC5335C93FC1F5B6DFB32
 ```
 
 https://mybot314.ru/tekegram_catalog/

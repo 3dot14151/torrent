@@ -1,3 +1,119 @@
+###  Публикация: 917406   (589517) от 11.07.2015
+
+Deep Purple - Deep Purple (1969) K2HD, Limited Edition /2014, Victor/ [FLAC|image + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Shadows [5:35]
+02. Blind [5:26]
+03. Lalena [5:06]
+04. Fault Line [1:46](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE2780FFFB7A2848BE5C201BB8CE176FE251638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917290   (589493) от 11.07.2015
+
+Cinderella - The Best Of: The Millennium Collection (2000) [FLAC|image + .cue]<Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody's Fool [4:49]
+02. Shake Me [3:44]
+03. Somebody Save Me [3:15]
+04. Gypsy Road [3:55](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F4F3341CBB455D77328B5ECA225A9B8CBE014A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551744   (589429) от 17.05.2022
+
+Sidewinder - Vines (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sirens (00:03:11)
+02 - Mississippi Fire (00:03:56)
+03 - Badlands (00:03:09)
+04 - 99mph (00:04:24)(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFE0A467E0CBBD320B809B5DF1B39060E792E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552313   (587708) от 20.05.2022
+
+CoreLeoni - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Life Begin Tonight (4:35)
+02. Purple Dynamite (3:33)
+03. Guilty Under Pressure (3:42)
+04. Sometimes (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF169A075857817CC0999801C557A57B3AF896B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552253   (587664) от 20.05.2022
 
 Jizzy Pearl - Hell, CA (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +745,6 @@ Epic - Like A Phoenix (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA1DE16BC0AE49CED8BBD833BD44F93AB161A250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554031   (579023) от 29.05.2022
-
-Sarayasign - Throne of Gold (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Book of Wisdom (00:04:42)
-02 - When Worlds Collide (00:04:22)
-03 - Distant Memories (00:06:13)
-04 - If Only for a Moment (00:04:50)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B7ACF08E499205D8F1A1D34F1DDEBA4415C47F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920745   (578683) от 23.07.2015
-
-Guns N' Roses - Greatest Hits (2004) [FLAC|tracks + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Jungle (4:31)
- 02. Sweet Child O' Mine (5:55)
- 03. Patience (5:56)
- 04. Paradise City (6:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C175729D8D7D313D119A73826013E8317BEF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042608   (578470) от 13.08.2016
-
-Terry Brock - Back To Eden (2001) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audio Life Dream [01:07]
-02. I Wanna Love Someone [04:27]
-03. Up All Night [05:05]
-04. Native Sons [04:11](   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788E0D76785E3CAAF880E5F70E2D53FA2BE167F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233281   (578061) от 01.07.2018
-
-May Blitz | Bakerloo - 3 albums, 4 CD (1969-1971) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Psychedelic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эту группу можно сравнить с Led Zeppelin, ранними Black Sabbath или ранними Uriah Heep. К сожалению, у May Blitz не было своего прорыва, и их история закончилась после выхода двух пластинок.Список альбомов:
-May Blitz
-1970 | May Blitz
-1971 | The 2nd Of May(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Progressive Rock |Продолжительность: 03:02:57 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE952C75ABB0CA0C2FEE5B65EDD55F1F8725C77
 ```
 
 https://mybot314.ru/tekegram_catalog/

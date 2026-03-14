@@ -1,3 +1,61 @@
+###  Публикация: 1467325   (1017686) от 04.05.2021
+
+Peggy Scott-Adams - See You Next Weekend (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See You Next Weekend (5:00)
+02. Hi Class, Lo Class (3:42)
+03. Love Ain't Love Till You Give It Away (6:02)
+04. String Bean (3:57)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6B6010622187C245511BDDAF9D5044FE2E7EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467308   (1017685) от 04.05.2021
+
+David Pippin Group - Wednesday Night Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. River Life, Pt. 2 (4:17)
+02. Pale Blue Dot (5:25)
+03. Use to Be (4:20)
+04. Sugarcane (Live) (7:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580747F5B17B9DE049AFA7DDE030D8CE4C05D4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467304   (1017671) от 04.05.2021
 
 3times7 - Smile While I Sing the Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -687,64 +745,6 @@ Lester Young - 1936 - 1943 (2003) Columbia [FLAC|Lossless|tracks + .cue] <Swing>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15289C0F8D5E9905B1FA8BCE95253739625B1511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470091   (1015888) от 15.05.2021
-
-The Black Keys - Delta Kream (2021) [FLAC|Lossless|image + .cue] <Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crawling Kingsnake (6:09)
-02. Louise (4:24)
-03. Poor Boy a Long Way From Home (4:09)
-04. Stay All Night (5:44)(   Читать дальше...   )Продолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD9E06688514A0C73F53029CFCB16770A919FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470130   (1015816) от 16.05.2021
-
-Kelly Broadway - In Concert (1996) Pillar Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeysuckle Rose [4:03]
-02. Body and Soul [7:01]
-03. I Want to Talk About You [6:55]
-04. Almost Like Being in Love [5:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F039E105C2B9CD294551B223A74236F0191319
 ```
 
 https://mybot314.ru/tekegram_catalog/

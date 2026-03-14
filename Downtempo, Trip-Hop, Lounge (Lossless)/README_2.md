@@ -1,3 +1,61 @@
+###  Публикация: 1445115   (1033751) от 05.02.2021
+
+The 5th Galaxy Orchestra - The Melody of the Universe (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Nu-Disco>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - C - (4:31)
+02. The Melody of the Universe (Re-Edit) (5:00)
+03. Night Melts in Sunrise (6:16)
+04. Arianne Dub (5:51)(   Читать дальше...   )Жанр: Chillout, Lounge, Nu-DiscoПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425413DE22A7608B8E153EE0543174961EAE02A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618871   (1033675) от 13.03.2023
+
+Wes Borland - Mutiny on the Starbarge (2023) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Experimental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are the Airlock [00:05:07]
+02. Mounting the Husk [00:03:34]
+03. Lexicon Galactus [00:05:16]
+04. Don't Believe in Trees [00:02:21](   Читать дальше...   )Жанр: Trip-Hop, ExperimentalПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF4A6251E512F19FD23D3BF7ABDDAA4919A3169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445890   (1033312) от 07.02.2021
 
 The 5th Galaxy Orchestra - The Land of Forgotten Tales (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Dream Pop>
@@ -684,64 +742,6 @@ VA - Space Fly, Vol. 1: A Magic Chill Trip Presented by Frank Borell (2009) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BB03845A6919B125330E5E80B86ADC05B627A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092877   (1028402) от 01.03.2021
-
-Bonobo - Discography 48 Releases (2000-2021) Ninja Tune [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Future Jazz, Ambient, Trip Hop, Leftfield, Soul>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonobo - Fabric Presents Bonobo (Continuous DJ Mix) (01:13:49)
- 02. Bonobo - Flicker (05:45)
- 03. Bonobo - Boston Common (04:48)
- 04. Pote - Jacquot (Waters Of Praslin) (06:19)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Downtempo, Future Jazz, Ambient, Trip Hop, Leftfield, Soul •Продолжительность: 31:33:51 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A115C1B70C713327ACC8BCB7525073F1215CBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451322   (1028363) от 02.03.2021
-
-VA - Feeling Warm & Cozy: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Roberto Sol & Nera - Sensuality (Ballad mix)
-02 Mission Brown - Your Smile (Original Mix)
-03 Michael E - Conversations (Chill Mix)
-04 Klangstein - Deep Dive (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81834B82985423446A18070CB3DE1D1DCE97C780
 ```
 
 https://mybot314.ru/tekegram_catalog/

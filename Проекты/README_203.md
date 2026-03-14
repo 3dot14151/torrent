@@ -1,3 +1,29 @@
+###  Публикация: 924972   (542683) от 05.08.2015
+
+Проекты - VideoHive - Dark Build-up Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возведение здания в форме вашего логотипаФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67578D42872E94EF9FD6FB11475F8C21E23D86C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924871   (542681) от 05.08.2015
 
 Проекты - VideoHive - Service Or Product Promotion/Presentation [AEP]
@@ -644,34 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9EBA93F776F931C3E08DE195C958F87F1EF1E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154511   (540454) от 30.07.2017
-
-Проекты - Проект ProShow Producer - It's a Magical World [PSH]
-
->>Проекты
->>Детские (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект от grandpaJanek. Красочное слайдшоу с героями Диснеевских мультфильмов.
-Проект может быть использован в авторском решении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
-Превью (авторский ролик) - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01A98403F5711F1E1F68A4C6A2978F9A97BBA05
 ```
 
 https://mybot314.ru/tekegram_catalog/

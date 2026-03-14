@@ -1,3 +1,178 @@
+###  Публикация: 154414   (361572) от 23.11.2009
+
+Various Artists - SAX & SEX (1997) 4CD [FLAC|Lossless]<Instrumental, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_361572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошая подборка соло саксофона с оркестром. К сожалению исполнители не указаны.
+Компиляция "Banana Records Publishing" U.K.01. Fernando (4:43)
+02. I Just Called To Say I Love You (4:56)
+03. One More Night (5:30)
+04. Comme Elle (3:47)(   Читать дальше...   )Жанр: Instrumental, Smooth JazzПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177743   (361266) от 26.10.2017
+
+Michael Brecker Group - The Cost Of Living (1989) 1994, Jazz Door [WavPack|Lossless|image + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Istbynne Reel [09:36]
+02. Chime This [18:20]
+03. Choices [11:17]
+04. The Cost of Living [16:26](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C526EBCF4085359153F7BFB83BD638699E2EAF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328697   (361229) от 01.10.2019
+
+Ryo Fukui - Scenery +2 (1976) 2005, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Could Happen to You [4:17]
+02. I Want to Talk About You [6:33]
+03. Early Summer [10:44]
+04. Willow Weep for Me [7:43](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D91FA0180602EE8ADAC90130AC52391A9DA96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177745   (361178) от 26.10.2017
+
+Sonny Stitt & The Hank Jones Trio - The Good Life (1980) 1994, Evidence [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deuce's Wild [02:39]
+02. Autumn Leaves [03:37]
+03. Angel Eyes [04:41]
+04. Bye Bye Blackbird [04:45](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA37E2E4559528B6090A381F9C79DEB2FFB0CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177599   (361173) от 26.10.2017
+
+Chris Barber's Jazz & Blues Band - Chris Barber In Switzerland 1974/75 (2004) 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Dixieland, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. My Maryland
+02. Harlem Bound
+03. Whatcha Gonna Do?(   Читать дальше...   )Жанр: Jazz, Dixieland, BluesПродолжительность: 02:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D348351CAF758AAD1D37E6D9FDDAFC50DFF49387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328751   (361043) от 01.10.2019
+
+John Prater And The Benders - John Prater And The Benders (2019) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carolina Moonshine (05:39)
+02. I Gave Up Love (04:01)
+03. Never Love Again (04:16)
+04. Love Sweet Love (05:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D12CDA8364A74BF94A5B8E8E0AFA0E80198319E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417188   (360699) от 19.10.2020
 
 Ray Barretto & New World Spirit - Trancedance (2000) 2001, Circular Moves [FLAC|Lossless|tracks + .cue] <Latin Jazz, Salsa>
@@ -571,180 +746,6 @@ Andrew Hill - Smoke Stack (1963) 1994, Toshiba-EMI [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E6ECFF6C65CBFE8C0C119406D50D2AF37F4D62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417429   (358419) от 20.10.2020
-
-Tito Puente - The Best of Tito Puente: The Millennium Collection (1991 - 1999) 2005, Hip-O Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El #100 [5:59]
-02. Hay Que Trabajar (with Oscar D'Leon) [4:56]
-03. Mambo Sentimental [3:27]
-04. Salsumba (with Domingo Quinones) [4:10](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban JazzПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0099317C1C9055C3B655AAB01A9DB6DCF19049CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328917   (358382) от 02.10.2019
-
-Debbie Davies - 13 Albums (1993 - 2015) [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из лучших представительниц явления, характерного для 90-х, "women with guitars". Гитаристка, певица, композитор Debbie Davies родилась 22 августа 1952 года в Лос-Анджелесе в семье известного голливудского аранжировщика и преподавательницы музыки. Первую гитару ей купили, когда Дебби исполнилось 12 лет. Пластинка Эрика Клэптона и группы "Блюзбрейкерс" (   Читать дальше...   )Список альбомов:
-1993 Picture This
-1994 Loose Tonight
-1997 I Got That Feeling (BPCD 5039)\Жанр: Modern Electric, Blues-RockПродолжительность: 10:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315F7E549385BC6E024829F8E9618543B0227BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071525   (357380) от 11.11.2016
-
-Bobby Jaspar - Modern Jazz Au Club Saint Germain (1955) 2011, Universal[FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bag's Groove [04:47]
- 02.Memory of Dick [05:38]
- 03.Milestones [05:55]
- 04.Minor Drops [05:02](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C2145ADBA18F2D8EA5A6CF6002210B7DC8D6A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071574   (357378) от 11.11.2016
-
-Peggy Lee - Dream Street (1957) 1999, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Street Of Dreams [03:23]
- 02.What's New [03:00]
- 03.You're Blase [02:51]
- 04.It's All Right With Me [02:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F579B922278EC9AC85A5D562CEDCE691D9246F20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071885   (357377) от 11.11.2016
-
-Peggy Lee - Sea Shells (1958) 1999, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sea Fever [02:04]
- 02.Nine Thorny Thickets [05:00]
- 03.Little Old Car [01:12]
- 04.Greensleeves [01:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76F287CD37758DF94F8EE6975B23CA36E2AA2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071534   (357338) от 11.11.2016
-
-Kurt Elling - The Beautiful Day: Kurt Elling Sings Christmas (2016) Sony Music Masterworks[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sing A Christmas Carol [04:35]
- 02.Wenceslaus (Image I) [01:28]
- 03.Star Of Wonder [02:04]
- 04.We Three Kings [06:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0593A3349B162ACBDDAB88FC0067557FFE07AC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

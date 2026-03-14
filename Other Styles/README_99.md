@@ -1,3 +1,148 @@
+###  Публикация: 1258557   (524220) от 08.07.2019
+
+Heilung - Discography 4 Releases (2015-2019) [FLAC|Lossless|tracks+.cue, tracks] <Neofolk, Experimental, Ritual Folk, Rune Singing, Shamanic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galgaldr (10:25)
+ 02. Norupo (04:18)
+ 03. Othan (10:19)
+ 04. Traust (09:49)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Neofolk/Dark Folk/Experimental/ShamanicПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266C6DAF71F001E5814CA54824B430F6B359A6C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313693   (522964) от 10.07.2019
+
+Rondo Classico - Carnevalo (1990) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover,  Electronic>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intrada (3:09)
+02. Polka del flauto (3:28)
+03. Una serata nella palude (3:37)
+04. L'allegria (3:23)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover,  ElectronicПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A49FAE302FE5FEFE6EF42F012C5AFE8263AB0F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313697   (522925) от 10.07.2019
+
+Rondo Classico - Yellow River (2002) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Is This The Way To) Amarillo (3:22)
+02. Yellow River (3:14)
+03. Chirpy Chirpy Cheep Cheep (2:52)
+04. To Whom It Concerns (2:48)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108277E4086149DD26E3C51924AA4D8C0E10F9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240954   (522189) от 15.08.2018
+
+Grimwater - Silvermoor (2018) [MP3|320 Kbps] <Medieval Neofolk, Instrumental, Symphonic, Epic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522189.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Marching Towards The Mountain (4:33)
+ 2. The Defeat Of The Drake (3:24)
+ 3. The Dwarrowdelf (2:41)
+ 4. Rohan Rides To The Battle (3:14)(   Читать дальше...   )Жанр: Medieval Neofolk, Instrumental, Symphonic, EpicПродолжительность: 00:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E8C01FAFBAF2AEB2E77DAF28CC0927C0558C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928727   (521540) от 17.08.2015
+
+Fausto Papetti - Magic Sax, Vol. 2 (1989) /Sony Music/ [FLAC|tracks+.cue]<Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Happy Day [04:09]
+02. Tanti Auguri [02:34]
+03. Tutti I Miei Sogni [03:36]
+04. In The Mood [04:12](   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2416D264E84E9685DCF3BF507463082AD49283DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928677   (521471) от 17.08.2015
 
 Dexter Britain - Impression (2015) [MP3|320 кб/с]<Electronic, Neoclassical, Ambient, Instrumental, Piano>
@@ -603,157 +748,6 @@ Dan Owen - Stay Awake with Me (2018) [MP3|320 Kbps] <Folk-Rock, Pop, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12822CB589729E7D0042D312C8175414D8D2A1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242108   (516112) от 21.08.2018
-
-Cyril Baranov - Rosa (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. April – 3:28
-02. Rosa – 4:07
-03. Ghost River – 5:47
-04. Sunflowers Red – 4:27(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F3E78917DCAEE43CAA83A77F4BD7C9F8C8E8D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241960   (516030) от 21.08.2018
-
-VA - Street Hits 70s (2018) [MP3|320 Kbps] <Boogie, R&B, Soul-Jazz, Gospel Music, Dance, Disco, Country>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Sledge - He's the Greatest Dancer
-02. Chaka Khan - I'm Every Woman (Lew Hahn Remix)
-03. Slave - Just a Touch of Love
-04. Candi Staton - Young Hearts Run Free(   Читать дальше...   )Жанр: Boogie, R&B, Soul-Jazz, Gospel Music, Dance, Disco, CountryПродолжительность: 02:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF9F1A462B5E9C1815DF0DAB36F768529E7AB8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561223   (515531) от 04.07.2022
-
-Bernward Koch - Tree Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Key (2:40)
- 02. Inner Light (4:09)
- 03. Lonely Pinwheel (2:49)
- 04. Warm Fall Sun (3:01)(   Читать дальше...   )Жанр: New Age, Modern Classical, PianoПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52416231708C722DB98A66106F0FF173738ABD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536187   (515361) от 17.08.2012
-
-Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515361.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность: 01:17:32
-
-01. Conquest Of Paradise
-02. Titles From Chariots Of Fire
-03. Blade Runner (End Titles)
-04. Pulstar
-05. Eternal Alexander
-06. Anthem - 2002 Fifa World Cup Official Anthem
-07. Line Open(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:35:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315205   (515015) от 18.07.2019
-
-Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Experimental, Indie, Post-Rock, Electronic, Noise>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DRUMS 1 (05:28)
-02. DRUMS 2 (05:08)
-03. DRUMS 3 (07:27)
-04. DRUMS 4 (12:52)Жанр: Experimental, Indie, Post-Rock, Electronic, NoiseПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2CAA724D576019D2DA60099E93942458619565
 ```
 
 https://mybot314.ru/tekegram_catalog/

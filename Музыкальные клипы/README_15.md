@@ -1,3 +1,196 @@
+###  Публикация: 1531336   (710701) от 21.02.2022
+
+Gregorian - Masters Of Chant Chapter III (2002) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710701.jpg" />
+</div>
+
+
+###  Подробнее
+
+B октябре 2002 г. вышел альбом "Masters Of Chant Chapter III". Список звезд мировой музыки, перепетых на этом диске впечатляет – Depeche Mode, Elton John, Sting, Duran Duran, Chris Isaak, HIM… Также в альбом было включено три оригинальные композиции – Be, Before The Dawn и Out Of The Cold. Женские партии исполнила Сара Брайтман, скрывшаяся под псевдонимом (   Читать дальше...   )Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCC79AEB2CAAF34035B935A735A9C22ACB39D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329772   (709212) от 29.04.2011
+
+VH1 All Classics Hits (2005) 10xDVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов, захваченных с цифрового спутникового канала VH1 (Video Hits One) — американского музыкального телеканала.Жанр: Pop, RockПеревод: Не требуетсяПродолжительность: 10 x ~ 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737EC825FEF26D66BC2C3872501391CE08F04814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286385   (708721) от 04.03.2019
+
+Сборник клипов - Multinational Dance Hits - Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернациональный сборник танцевальных клипов, во имя мира во всем мире. Лучшее 2014 - 2019 г. Много позитива, тропического солнца и теплого моря в зимнюю стужу. Это 1я часть. Обложка и блины для дисков в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Multinational Dance Hits - Intro
+01. Dan Balan & Tany Vander & Brasco - Lendo Calendo
+02. Andrew Rayel & Emma Hewitt - My Reflection
+03. Jorge Gonzalez - Tu Boquita(   Читать дальше...   )Жанр: Pop, TranceПродолжительность: 05:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAE013E8E5CE504BCC9B3E06EE6AAC4D3EC494C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025184   (705582) от 14.06.2016
+
+VA - Millenium Melody 6 (2016) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник популярных клипов01 Lana Del Rey - High By The Beach
+02 Taylor Swift - Style
+03 ZHU - Faded
+04 Fly Project feat. Misha - Jolie(   Читать дальше...   )Производство: РоссияЖанр: РорПродолжительность: 01:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF0D23F93EF1FB3776A119A42991B2A75CCD98F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401603   (703392) от 13.08.2020
+
+Moby - My Only Love; Power Is Taken; Power Is Taken (Moby's Old School Remix) (2020) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703392.jpg" />
+</div>
+
+
+###  Подробнее
+
+2020 Moby - My Only Love (by Zombie Studio) (Master_1080p)
+2020 Moby - Power Is Taken (Moby's Old School Remix) (1080р)
+2020 Moby - Power Is Taken ft. D.H. Peligro (1080р)Производство: Zombie StudioЖанр: ElectronicРежиссер: Paulo GarciaПродолжительность: 00:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0697556AAE2F345BB8D008A589E6BB8593B1A2A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 672661   (702674) от 25.06.2013
+
+Cher - Woman's World (Live On The Voice) (2013) HDTV [H.264/1080i] <Pop>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сингл талантливой поп. дивы Cher. Живое выступление на американском "The Voice" (06.18.2013).Жанр: PopПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104DC00554F6C4D1CA74B7945AEEAC80628623D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 672087   (702539) от 25.06.2013
+
+Сборник клипов - VA - Various Music part. 43 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702539.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 9-11 - Cum se face 1080p (3:30)
+2. A.M. SNiPER - ROAR 1080p (2:39)
+3. Abel The Kid & Julio Iglesias Jr. feat Snoop Dogg A Piece Of My Love 720p (4:02)
+4. ALEXANDER PROJECT FEAT. MAAX - Сердце 1080p (3:23)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F8EED913F8E6D54F7580E1C1A13780F4125149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401275   (699693) от 15.08.2020
 
 Anaal Nathrakh - Endarkenment (2020) WEBRip [VP9/2160p] <Grindcore>
@@ -501,199 +694,6 @@ DVJ Bazuka - Summer Love (2012) [720p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:772F12186BDC6DE9660A8EFD3640ED33C77BFB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 677239   (651227) от 12.07.2013
-
-Guf (Гуф) - клипы (2006-2013 )/ Guf - all video (2006-2013) HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RapРежиссер: Guf и др.Актеры: Guf и др.Продолжительность: общая  02:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B6C42339D5316DC8CF84BF535FE1735CCBA86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344901   (648906) от 03.06.2011
-
-Ru.Music - Сборники Видеоклипов (Февраль 2010 - Июнь 2011) [4x DVD5] SATRemux
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеканал Ru.Music является детищем американской музыкальной телекомпании Russian Music Television, Ltd.
-На данный момент это возможно единственный музыкальный канал на котором ещё можно услышать хорошую качественную музыку отечественных исполнителей, как популярных, так и незаслуженно игнорируемых остальными каналами.
-
-Вашему вниманию представляю сборники из собственной коллекции, собранные из самых хитовых клипов последних нескольких лет эфира.
-
-Материал сборников - оригинальный спутниковый поток MPEG-2, не подвергавшийся никаким пережатиям/перекодированиям в процессе монтажа!
-Качество первоисточника (As Is)!Жанр: PopПродолжительность: 03:04:28 + 03:19:50 + 03:17:50 + 03:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF5BE3EC67AA4A983E6E249175129A7682A310E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770600   (637650) от 11.07.2016
-
-Motörhead Videography / Motorhead Видеография (29 клипов) (1980-2010) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rock Out
-02 - God Save The Queen (2000)
-03 - Get Back In Line (2010)
-04 - I Ain't No Nice Guy (1992)(   Читать дальше...   )Сборник из 29 видеоклипов. Скачано из сети.
-Некоторые видео пришлось вытягивать или восстанавливать...
-Использовались программы - Corel , AVS, SolveigЖанр: Heavy metal, hard rock, speed metal, rock and rollПеревод: ОтсутствуетСубтитры: нетПродолжительность: 01:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC160063C88CD43182A6EE9F30B6DADAE79FE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682118   (632610) от 22.07.2013
-
-Ocean Drive feat. Aylar - Some People (2010) [720p]HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ocean Drive feat. Aylar - Some People (Official Video)Жанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAFC35D0EC3AF11301D3565D12A316F78C84681A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349658   (631623) от 12.06.2011
-
-Вера Брежнева - Реальная жизнь (2011) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипПродолжительность: 00:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F600608930F8E4DFBC5FBAE0FA695E2D596062E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682064   (631038) от 23.07.2013
-
-Ferry Corsten - Radio Crash (2008) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ferry Corsten 'Radio Crash' [405 Recordings]Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64A42731DA03EA53FFBED1ED6E1A6FE0A80E1AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682085   (630903) от 23.07.2013
-
-Mr Sam & Andy Duguid vs. Pat Benatar - Invincible (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mr Sam & Andy Duguid vs. Pat Benatar - InvincibleЖанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA9C91C8FDBFEF12A5AA69725F95D21AAAB3CCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

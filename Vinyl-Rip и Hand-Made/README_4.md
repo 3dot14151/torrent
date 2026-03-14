@@ -1,3 +1,116 @@
+###  Публикация: 1450767   (1028846) от 27.02.2021
+
+Ryszard ''Skiba'' Skibinski - 1951-1983 (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028846.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Lutek - Pogromca Lwow
+A2 Boogie Dziadka Skiby
+A3 Jak Nas Gonili Tacy Jedni
+A4 MPO Blues(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8086AA473E2A386A93B4DAA40853E5D2DBEAC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450936   (1028743) от 28.02.2021
+
+Tango - Electric Ball (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028743.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Break This Glass = Co S Tim Sklem
+A2 Going Downhill = Na Sikme Plose
+A3 It's A Zombie = Chtelas To Videt
+A4 They'll Get You Anyway = Z Blata Do Louze(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A076D554BE6AE5FAB761F7D08FE619BC73C6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 203549   (1025347) от 20.03.2021
+
+Manowar - 11 альбомов (1982-2012) (FLAC 2.0|96,192/24|FLAC|VinylRip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy MetalПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CB4D5FCEF9FABD55633CC36D5E82B6B86BD0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461333   (1021778) от 10.04.2021
+
+Московский Камерный Оркестр. J. S. Bach – Brandenburg Concertos No. 1 in F Major BWV 1046 And No. 5 In D Major BWV 1050 (1981) [FLAC 2.0|192/24|image+.сue] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бранденбургский Концерт № 1 Фа Мажор, BWV 1046
+Violino Piccolo – Л. Полеес
+A1 Allegro
+A2 Adagio /  Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4708F9F7766C376C67139FD645986D2FFE5259A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461534   (1021712) от 10.04.2021
 
 Органная музыка. Антонио Вивальди - Времена Года (1984) - Евгения Лисицина (переложение для органа Е. Лисициной) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
@@ -640,145 +753,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04EDE047D20A25C8D40C182E5528C885AD093370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602537   (997489) от 13.01.2013
-
-Cyndi Lauper - She's So Unusual (1983) [FLAC 2.0 96/24|image (vinylRip)]<Contemporary Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Changes Everything (5:04)
-02. Girls Just Want to Have Fun (3:57)
-03. When You Were Mine (5:05)
-04. Time After Time (4:01)
-05. She Bop (3:51)
-06. All Through the Night (4:31)
-07. Witness (3:39)
-08. I'll Kiss You (4:11)
-09. He's Son Unusual (0:46)
-10. Yeah Yeah (3:13)Жанр: Contemporary Pop/RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603794   (996913) от 15.01.2013
-
-Гражданская Оборона - Звездопад (2011) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Post-punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996913.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Песня Красноармейца 2:37
-A2. Песня О Циркаче 2:40
-A3. На Дальней Станции Сойду 4:28
-A4. Шла Война 3:09
-A5. Звездопад 2:58
-B1. Ветер Северный 2:08
-B2. Город Детства 5:07
-B3. На Всю Оставшуюся Жизнь 3:06
-B4. Слово - Товарищ 2:51
-B5. Каравелла 2:54(   Читать дальше...   )Жанр: Post-punkПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600F9F1D454EA5A2F649A031DFD80B2D7DB585E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603416   (996893) от 15.01.2013
-
-Наутилус Помпилиус (Nautilus Pompilius) - Чужая земля (1992) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996893.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Монгольская Степь 5:10
-A2. Эти Реки 3:04
-A3. Иван Человеков 4:33
-A4. Чистый Бес 4:46
-A5. Чужая Земля 4:08
-B1. Прогулки По Воде 3:48
-B2. Бесы 5:00
-B3. Морской Змей 4:21
-B4. На Берегу Безымянной Реки 4:16
-B5. Летучая Мышь 5:05Жанр: RockПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E903C8D6A94FB68D5462FB08FA40F9A13A0AE782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603819   (996860) от 15.01.2013
-
-Наутилус Помпилиус (Nautilus Pompilius) - 2 альбома (1986-1988) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996860.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Скованные 4:28
-A2. Князь Тишины 3:42
-A3. Взгляд С Экрана 4:34
-A4. Стриптиз 4:58
-B1. Доктор Твоего Тела 4:45
-B2. Я Хочу Быть С Тобой 4:30
-B3. Казанова 4:11
-B4. Шар Цвета Хаки 2:46
-B5. Прощальное Письмо 3:48Жанр: RockПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FC04D141D1463E32E63C82F8395E070280BE24
 ```
 
 https://mybot314.ru/tekegram_catalog/

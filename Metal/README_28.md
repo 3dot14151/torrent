@@ -1,3 +1,31 @@
+###  Публикация: 1122001   (798843) от 05.04.2017
+
+Mammoth Weed Wizard Bastard - Noeth Ac Anoeth (2015) [MP3|320 Kbps] <Doom, Sludge, Psychedelic,>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798843.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Les Paradis Artificiels
+2. Slave Moon
+3. NachthexenЖанр: Doom, Sludge, Psychedelic,Продолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:696E56C0532202B4A9B64CE68B2A159B77E8DBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122467   (798836) от 05.04.2017
 
 Kaunis Kuolematon - Vapaus (2017) [MP3|320 Kbps] <Doom Metal, Gothic Metal, Melodic Death Metal>
@@ -717,35 +745,6 @@ Cremation - In The Maelstrom Of Time (2017) [MP3|320 Kbps] <Death metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF21C99E8105BD17C52143C7672A1254C07F8ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123220   (792530) от 07.04.2017
-
-Lento - Earthen (2007) [MP3|320 Kbps] <post-metal, instrumental, ambient>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Hadrons
-02 Need
-03 Subterrestrial
-04 Currents(   Читать дальше...   )Жанр: post-metal, instrumental, ambientПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68AFB7CD5BFEFC8EAE03F5CEEBC1C416873F10F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

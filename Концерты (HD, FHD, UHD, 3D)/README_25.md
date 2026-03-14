@@ -1,3 +1,32 @@
+###  Публикация: 701026   (476335) от 18.09.2013
+
+Madonna - The MDNA Tour (2013) BDRemux [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virgin Mary (Intro)
+ 02. Girl Gone Wild
+ 03. Revolver
+ 04. Gang Bang(   Читать дальше...   )Жанр: Музыка, Pop, DanceРежиссер: Дэнни ТуллАктеры: MadonnaПеревод: ОтсутствуетПродолжительность: 02:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE1CB851EC213E830C5052E202310569B0BC52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 701371   (473926) от 19.09.2013
 
 Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) BDRemux [1080p]
@@ -702,35 +731,6 @@ Metallica & San Francisco Symphony - S&M2 (2020) BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:945EBD6498030EDA6F1E585398CCBF97FBD4B421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941273   (461767) от 27.09.2015
-
-Rammstein - In Amerika (Disc 1) (2015)  BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein  выпустили DVD «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18.000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live From Madison Square Garden» получит официальный релиз на 2DVD и 2Blu-ray стараниями лейбла Island/UMe. Соединив зажигательное выступление (   Читать дальше...   )01. Rammlied
-02. B*********
-03. Waidmanns Heil
-04. Keine Lust(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BC3AD7417E148EC4BF3D3560EF5EE807177E7D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

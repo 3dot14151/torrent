@@ -1,3 +1,29 @@
+###  Публикация: 911492   (604598) от 29.06.2015
+
+Tekken Hybrid (2012) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En] [3D]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tekken Tag Tournament — четвёртая игра в серии файтинговых компьютерных игр Tekken. Tag Tournament представляет собой не самостоятельную игру, а дополнение к Tekken 3, и не имеет собственного сюжета. Изначально Tag Tournament вышла на аркадных автоматах, однако затем была портирована на PlayStation 2, став первой игрой в своей серии, выпущенной для этой консоли. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Namco BandaiЖанр: FightingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534D259604665C63D3EE68E3F7E7801889E98811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148750   (602811) от 08.07.2017
 
 Cars 3: Driven to Win (2017) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Multi]
@@ -671,33 +697,6 @@ Steins;Gate (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:046567CC6B124EE161F22E9A5C72F455F10B25BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917081   (589442) от 11.07.2015
-
-[PSP] Kuroko no Basuke: Kiseki no Shiai [Repack] [Jp] (2012)
-
->>Консольные Игры
->>PSP
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589442.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Kuroko no Basuke: Kiseki no Shiai» - игра для PSP, основанная на серии «Kuroko no Basuke» и сфокусированная на развитии баскетбольной команды.
-«Kuroko no Basuke: Kiseki no Shiai» - традиционный симулятор баскетбольной игры. Во время матчей игроки представлены в виде чиби-версий. Создается такое впечатление, что игра имитирует каждый матч до финала отборочных соревнований (   Читать дальше...   )Тип издания: RepackРазработчик: Bandai Namco GamesЖанр: Sport Game, Simulation GamesЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1CBFDF609662F2E9F2E959D80FC16F685DBD73
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1527502   (736410) от 29.01.2022
+
+VA - Prismenraum: Synthpop Music Compilation (2022) [MP3|320 Kbps] <Synthpop, Electropop, Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка, которая создана под влиянием одного из наиболее значимых жанров прошедшего десятилетия! Композиции лонгплея «Prismenraum» сочетают в себе современные техники, поп-музыки с Synthwave, Dream Pop, Synth Pop и классическим звучанием 80-х. Послушайте это с вниманием к музыкальным деталям, и вы поймете, почему такая музыка пока что остается самой слушаемой.001. Annie - Annie's Love Theme
+002. Tears For Fears - My Life In The Suicide Ranks
+003. Nate feat. Ljai - Season Of You
+004. Future Synth - Stay With Me(   Читать дальше...   )Жанр: Synthpop, Electropop, DiscoПродолжительность: 09:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F12876CE5000E66248587EED254EFA845E9582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527493   (736403) от 29.01.2022
 
 VA - New Electronic World: Neon Megamix (2022) [MP3|320 Kbps] <Synthwave, Electronic, Synthspace>
@@ -722,35 +751,6 @@ VA - Deep House Collection Vol.197 (2019) [MP3|320 Kbps] <House, Deep House, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC747BCC0216A27B63D91381CA3F3D3742078402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127714   (731122) от 22.04.2017
-
-VA - Beatport Top 100 Drum & Base (March) (2017) [MP3|320 Kbps] <Drum & Base>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731122.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Black Sun Empire, Prolix - No Advance (Original mix).mp3 04:36
-002. Dimension (UK) - Generator (Original mix).mp3 05:06
-003. Turno & North Base feat. Harry Shotta - Third Eye (Original mix).mp3 05:18
-004. Metrik - We Got It feat. Rothwell (S.P.Y Remix).mp3 04:57(   Читать дальше...   )Жанр: Drum & BaseПродолжительность: 08:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EAA136324D5AC8D8BEA73B7B687E386CDF60480
 ```
 
 https://mybot314.ru/tekegram_catalog/

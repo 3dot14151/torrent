@@ -1,3 +1,32 @@
+###  Публикация: 741823   (981835) от 04.01.2014
+
+V.A. - Jazz And Floyd (2013) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stella Starlight Trio - Another Brick In The Wall (Part 2)
+02. The Cooltrane Quartet - Breathe (In The Air)
+03. Michelle Simonal - Time
+04. George White Group - Money(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF0E660AF38BED936DD4D479DA09FBA0408D156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613377   (981677) от 05.02.2013
 
 Various Artists - The Art Of The Ballad (The Best of Mapleshade) (1999) [FLAC|Lossless]<Jazz>
@@ -721,35 +750,6 @@ Benny Goodman - The Best of Benny Goodman And His Orchestra 1956 - 1957 (1990) C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F03E9091889974E247A3026D3EE3B72C7FD11DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356369   (979126) от 30.01.2020
-
-Brian Culbertson - Winter Stories (2019) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sitting By The Fire
-02. Montana Skies
-03. Morning Walk
-04. Flurries(   Читать дальше...   )Жанр: Contemporary Jazz, Smooth JazzПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97759404F2260D3EB0FA5993D0044AE4B3E4FB9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

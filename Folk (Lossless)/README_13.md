@@ -491,34 +491,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488238   (101668) от 27.04.2012
-
-Ordo Rosarius Equilibrio - 12 albums (1995-2010) [FLAC|Lossless] <Apocalyptic Folk, Dark Ambient, Neofolk, Martial Industrial>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_101668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Songs 4 Hate  & Devotion: (01:01:26)
-01. Where I Stand On The Holy Mountain And Pray 4 The War (06:35)
-02. A World Not So BeautifulЖанр: Apocalyptic Folk, Dark Ambient, Neofolk, Martial IndustrialПродолжительность: 01:20:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484822   (89437) от 19.04.2012
 
 МорЖи - Кошерные песни о главном (2005) [FLAC|Lossless]<Jewish Folk>
@@ -753,6 +725,35 @@ VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13038A18CA1B5AB2ECD73C996B705B284181B4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792096   (67760) от 17.04.2025
+
+VA - Lost in Thoughts: Sentimental Rock Folk Soundtrack (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Atwater Collective - You Are My Rock (3:54)
+02.  Paul James Moore - Good Morning Sun (3:27)
+03.  Sten Veiths - Die Young (4:09)
+04.  Tanya Shakison - Give Me a Sign (3:12)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C61F3F1AC3B90D5B4722D72B84CCFB5D6E41AFFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

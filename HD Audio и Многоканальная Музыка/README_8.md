@@ -1,3 +1,119 @@
+###  Публикация: 1089925   (948933) от 05.01.2017
+
+Triumvirat - 3LP (1975-1978) [FLAC 2.0|192/24|Lossless|image + .cue|Vinyl-Rip] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948933.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Watefall
+A2 (Oh I'm) Late Again
+A3 Jo Ann Walker
+A4 For You(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D411AEF677457DE19BDA8A1EE856D68E0A80C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089742   (948647) от 05.01.2017
+
+Константин Никольский - Иллюзии (2007) [WavPack 2.0|192/24|image + .cue|Vinil-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+01.- Иллюзии (4:22)
+02.- Пред чертой (4:06)
+03.- Только там (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5145FF0DE54B82D40ED6154FCFD717424B65EC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089678   (948575) от 05.01.2017
+
+VA - RETROспектива, часть III: Эстрадные оркестры III (1933-1961) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инструментальный октет - Новые приятели
+02. Оркестр п.у. Эмброуза (соло Сэм Браун) - Кукарача (румба)
+03. Джаз-оркестр ВРК п.у. А. Н. Цфасмана - Песенка дятла (полька)
+04. Джаз-оркестр ВРК п.у. А. Н. Цфасмана - Тирольский вальс (вальс)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F4C7F50EB9BAA08B435D8DF13429EF11BEBCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089961   (948567) от 05.01.2017
+
+VA - RETROспектива, часть IV: Эстрадные оркестры IV (1939-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эстрадный оркестр ВР п.у. Б. П. Карамышева - Я миланец (медленный фокстрот)
+02. Эстрадный оркестр ВР п.у. Б. П. Карамышева - Любопытство (мамбо-бегин)
+03. Инструментальное трио - Доброй ночи (фокстрот)
+04. Инструментальное трио - Маленькая мельница (фокстрот)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FC521C0E5B5E509B7017D8E7D7430E9CFA2FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089953   (948549) от 05.01.2017
 
 Chris Rea - 9 Albums (1979-1989) [WavPack 2.0|192/32|image + .cue|Vinyl-Rip] <Pop-Rock>
@@ -625,122 +741,6 @@ Rainbow - Ritchie Blackmore's Rainbow (1975) Phonogram [FLAC 2.0|192/24|image+cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DB2F78D40949239894E3EBFA48A132A840EA78A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986225   (932473) от 13.02.2016
-
-Def Leppard - High'N'Dry 1981 (1984) Vertigo [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let It Go
-02 - Another Hit And Run
-03 - High'N'Dry
-04 - Bringin' On The Heartbreak(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B6F5468CC3B0923BFE6B06257685E5D6D16A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986278   (932468) от 13.02.2016
-
-VA (Various Artists) - Greenpeace Rocks (1993) SNC [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чай Ф - Не спеши
-02. БГ - Китай
-03. Джоанна Стингрей - Бум-бум
-04. Наутилус Помпилиус - Синоптики(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E1B51AA84A88AA25A804CBFF584C8F30C0F778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365290   (931488) от 06.03.2020
-
-Pink Floyd - The Dark Side of the Moon (2003) 1973 [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Psychedelic Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.    Speak To Me    01:08
-02.    Breathe    02:49
-03.    On The Run    03:51
-04.    Time    06:50(   Читать дальше...   )Жанр: progressive rockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1EE1C70F09CF273920ECA5BF97E0E1BBF264F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986285   (930906) от 14.02.2016
-
-Калинов мост - Дарза (1992) Not On Label [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Тропы в Китай
-02 - По-прежнему
-03 - Даждо (Для его стрелы)
-04 - Колывань(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA048C84A7B3E6E28B541B41379CA89C081A2C4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

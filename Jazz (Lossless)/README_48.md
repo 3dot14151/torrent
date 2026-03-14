@@ -1,3 +1,32 @@
+###  Публикация: 1496640   (871657) от 18.09.2021
+
+Roland Kirk - Roland Kirk's Finest Hour (2001) Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stompin' Grounds [4:49]
+02. Blue Rol [6:12]
+03. Serenade to a Cuckoo [4:34]
+04. Spring Will Be a Little Late This Year [4:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9868D92F0731B638EC8CC8B5EA326AF717153E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496644   (871655) от 18.09.2021
 
 Duke Ellington - Duke Ellington's Finest Hour (2002) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -714,35 +743,6 @@ Andre Previn - What Headphones? (1993) Angel Records [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DE7961253E228D9307A7F9C669A7042552D08A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107001   (868340) от 22.02.2017
-
-Chris Barber - Great Moments With ... (1998) AGAT Company [FLAC|Lossless|tracks + .cue] <Dixieland, Revival>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Wish I Could Shimmy Like My Sister Kate [02:55]
- 02.Volga Boatman's Song [04:37]
- 03.Perdido Street Blues [04:40]
- 04.Jazz Holiday [03:21](   Читать дальше...   )Жанр: Dixieland, RevivalПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599733F75488C00EE5E3FF4EF44E5175DAF41070
 ```
 
 https://mybot314.ru/tekegram_catalog/

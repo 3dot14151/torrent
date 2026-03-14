@@ -1,3 +1,90 @@
+###  Публикация: 1711616   (112329) от 31.03.2024
+
+Halie Loren - Live At Cotton Club (2016) Victor [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Don't Mean A Thing (If You Ain't Got That Swing) [3:15]
+02. A Whiter Shade Of Pale [6:21]
+03. Fly Me To The Moon [4:08]
+04. Hit That Jive, Jack [2:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D497439623AE1ED163EF248EA8ABC576DC50EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711905   (112252) от 01.04.2024
+
+Satolu Oda and Hank Jones Great Jazz Quintet - Just Friends (1995) Venus Records [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernie's Tune [7:29]
+02. There Will Never Be Another You [7:16]
+03. My Little Suede Shoes [7:51]
+04. Body And Soul [5:18](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8960B7315CE4AAA80A387C529ADBB6691170C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712469   (112170) от 02.04.2024
+
+Ben Webster - Live! Providence, Rhode Island (1963) 1994, Storyville Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perdido [5:51]
+02. Danny Boy [4:40]
+03. On Green Dolphin Street [6:38]
+04. Go Home [9:17](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0FD74E5C05D8D84A7BE228F5AE1556CE9B772B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712228   (112165) от 02.04.2024
 
 Grover Washington, Jr. - Time Out Of Mind (1989) [FLAC|Lossless|image + .cue] <Smooth Jazz>
@@ -657,93 +744,6 @@ Keely Smith - The Essential Capitol Collection (1950-e - 1960-e) 2007, Capitol R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F8A15F373508529CF367A682E810BEDB9967D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715349   (111564) от 12.04.2024
-
-VA - Voices From The New Cool Vol. 2 (Nu Jazz Crooners & Female Jazz Singers) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lo Greco Bros - Moonlight (5:17)
-02. Papik - All Woman (5:23)
-03. Lostinwhite - Blue Skies (4:23)
-04. Danny Losito - Stormy (2:52)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E40629A9938DB1CFD3D9C587DAECEFEB7A1BD9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715615   (111558) от 12.04.2024
-
-Papik - Cocktail Mina Vol.3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Acid Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Specchi riflessi (feat. Laura Lanzillo)
-02. La pioggia di marzo (feat. Erika Croce)
-03. Amoreunicoamore (feat. Stefy Gamboni)
-04. Mi sei scoppiata dentro il cuore (feat. Alessandro Pitoni)(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, PopПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8D480C60793CF2711DA81A34DC7ECBFFF07FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715337   (111543) от 12.04.2024
-
-VA - Relaxing Evening Jazz Chill out Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Dearest (3:52)
-02. eJazz Artistry - You're Makin' Me High (4:48)
-03. Kool&Klean - A Sky Full of Stars (4:41)
-04. Chillaxonic - Ineffable (5:22)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DEC832A16EC86C247DF07BAC6DE45814A7AB15
 ```
 
 https://mybot314.ru/tekegram_catalog/

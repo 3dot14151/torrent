@@ -1,3 +1,148 @@
+###  Публикация: 1739231   (48380) от 30.07.2024
+
+Powerwolf - Wake Up The Wicked (Deluxe Version) (2024) [FLAC 24/48,24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48380.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1 Wake Up The Wicked (Deluxe Version)
+01 - Bless 'em With the Blade [2:48]
+02 - Sinners of the Seven Seas [3:01]
+03 - Kyrie Klitorem [3:04](   Читать дальше...   )Жанр: Power Metal, Heavy Metal, Symphonic MetalПродолжительность: 02:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85334BB05BA74C15BE4EBBA4C33F5CB53E247511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738207   (48275) от 31.07.2024
+
+Isomen - 16 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dub, Lounge, Psychill>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Isomen - 2023 - Eden Garden
+Isomen - 2023 - Plastic Vision
+Isomen - 2023 - Satisfaction(   Читать дальше...   )Жанр: Electronic, Dub, Lounge, PsychillФормат: FLAC (tracks)Продолжительность: 17 CD, 24:47:09 (16 Albums)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC636A638E7C61542063D028C2467A7C4C7C79D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659835   (48267) от 31.07.2024
+
+Iced Earth - Studio Albums (16 releases) (1990-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iced Earth — американская хэви-метал-группа. Основана ритм-гитаристом и композитором Джоном Шаффером в 1985 году.1990 (2020) - Iced Earth (30th Anniversary Edition)
+1991 - Night Of The Stormrider
+1995 - Burnt Offerings
+1996 - The Dark SagaЖанр: Power/Thrash MetalПродолжительность: 15:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9902A330F57B822CA44017B4021754B2ACD58542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740377   (48168) от 01.08.2024
+
+Armin Van Buuren - Live at Tomorrowland 2024 (Mainstage) [Highlights] (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Live at Tomorrowland 2024 (Mixed) (Intro) [0:51]
+02 - No Fun (Mixed) [1:08]
+03 - Live at Tomorrowland 2024 ID #001 (Mixed) [1:51]
+04 - Leave A Little Love (Mixed) [1:06](   Читать дальше...   )Жанр: Trance, Progressive Trance, ElectronicПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B704CE6BACDC4CE5D71FE1FECC872D4949E5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740077   (48163) от 01.08.2024
+
+Army Of Lovers - Remixodus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Dance, Synth-pop, Euro Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexodus (Maxim Andreev Radio Edit) (3:22)
+02. Love Is Blue (Sagi Kariv Radio Edit) (3:55)
+03. What's That Look (SoundFactory Radio Edit) (2:59)
+04. Romanism (SoundFactory Radio Edit) (2:26)(   Читать дальше...   )Жанр: Pop, Dance, Synth-pop, Euro DiscoПродолжительность: 01:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:508F2B1F05682CC3C0096F0F2AE90BC89ECD2453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740384   (48161) от 01.08.2024
 
 Armin Van Buuren - A State of Trance Radio Top 50 - 2024, Vol. 2 (2024) [FLAC 16/44.1, 24/44.1|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Electronic>
@@ -594,151 +739,6 @@ Brave Rival - Fight or Flight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Clas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DCA61F6FCEAACDEC3C0CB479CC2B1D1B572DFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743887   (46283) от 19.08.2024
-
-Imperia - Dark Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Place (4:15)
-02. Reach My Tears (4:02)
-03. The Family Chain (4:56)
-04. The Tree Of Life (6:24)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C7085829E3649AC479A9B8146ED2E0179D1DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744118   (46282) от 19.08.2024
-
-Meg Washington\\Melbourne Symphony Orchestra - Live At Hamer Hall (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Female Vocals>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catherine Wheel (Live) [00:06:37]
-02. Sunday Best (Live) [00:04:46]
-03. Saint Lo (Live) [00:03:52]
-04. Achilles Heart (Live) [00:04:16](   Читать дальше...   )Жанр: Alternative, Female VocalsПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA54AC86107308CF46DBC6429CC7E16CC1F0CF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743989   (46280) от 19.08.2024
-
-Richard Clapton - Prussian Blue (1973) Remaster, 2024, WM Australia [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soft Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardly Know Myself (2024 Remaster) [00:03:32]
-02. Southern Germany (2024 Remaster) [00:04:12]
-03. Poor Man’s Saviour (2024 Remaster) [00:03:20]
-04. Strange Days in Chippedale (2024 Remaster) [00:03:31](   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC28BE4012D9AC08F47919853EC43DD4AB469782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743864   (46279) от 19.08.2024
-
-Good Fortune - Stories Untold (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crown of Thorns (3:52)
-02. Adolescence (3:48)
-03. Diamonds Underneath (4:13)
-04. Pieces (3:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2248A9A68B93101B133A6A9002537642BD76C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743846   (46272) от 19.08.2024
-
-Beasto Blanco - Kinetica (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run For Your Life (2:58)
-02. Nobody Move (3:32)
-03. Heavy Is The Head (3:31)
-04. Unreal (feat. Chris Harms; Lord Of The Lost) (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4325FC80580E5ABCEB9A3783C60B221369FC140
 ```
 
 https://mybot314.ru/tekegram_catalog/

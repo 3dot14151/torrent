@@ -1,3 +1,195 @@
+###  Публикация: 909305   (625850) от 18.06.2015
+
+Ирина Отиева - 5 Альбомов (1984-2001) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирина Отиева родилась 22 ноября в Тбилиси. С ранних лет была связана с музыкой: окончила музыкальную школу по классу фортепиано, выступала в различных вокально-инструментальных ансамблях, участвовала в конкурсах. Первая победа Ирины Отиевой - лауреат на джазовом фестивале, который проходил в Москве в 1976 году. В этот же год Ирина Отиева поступает на эстрадное отделение (   Читать дальше...   )Список альбомов:
+1984 - Музыка - любовь моя (с Оркестром Олега Лундстрема)
+1988 - Ностальгия по себе
+1994 - Что ты думаешь об этом?(   Читать дальше...   )Жанр: JazzПродолжительность: 04:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B1D7718226EDE483D395733A90FFB7FB9F3B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144866   (625646) от 23.06.2017
+
+Welshly Arms - Covers (2014) EP [MP3|320 Kbps] <Blues Rock, Blues, Covers>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold on I'm Coming
+02. Time Has Come Today
+03. You Got It
+04. Radar Love(   Читать дальше...   )Жанр: Blues Rock, Blues, CoversПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3E155A80DCC1B81FD761963FF23E26975BD844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144850   (625516) от 23.06.2017
+
+Welshly Arms - Welcome (2013) EP [MP3|320 Kbps] <Blues Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Seconds Too Late
+02. The Touch
+03. Your Picture
+04. That Voodoo(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 00:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94F621347E86442391DE241D834E008825ED694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522080   (625233) от 12.07.2012
+
+Billy Taylor - It's A Matter Of Pride (1994) [FLAC|Lossless]<Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At La Caroussel (5:56)
+02. Picture This (4:51)
+03. It's A Matter Of Pride (5:13)
+04. His Name Was Martin (6:07)
+05. Titoro (5:04)
+06. Back Home (8:45)
+07. Lookin' Up (6:06)
+08. Paraphrase (7:30)
+09. I'm A Lover (4:48)
+10. If You Really Are Concerned (5:54)(   Читать дальше...   )Жанр: BopПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521653   (625228) от 12.07.2012
+
+Blinddog Smokin - Start Packin' (1999) [MP3|~256 кб/с ]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. It's All Right
+2. The Dog Can't See
+3. Start Packin'
+4. Outfox The Foxes
+5. Eye Of A Needle
+6. Blues For Breakfast
+7. Black Magic
+8. Help Me
+9. Boob Job
+10. Mother Of Pearl(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D29FBF28C8786F4CC51FB64540343312FE3989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521957   (625225) от 12.07.2012
+
+VA - Down Home Blues Classics: Memphis & The South 1949-1954 (2007) 2CD [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Hill Louis - Don't Trust Your Best Friend (2:48)
+02. Lightnin' Slim - Bugger Bugger Boy (2:04)
+03. Schoolboy Cleve - She's Gone (2:13)
+04. Jerry McCain - Stay Out Of Automobiles (2:32)
+05. J.D. Horton - Why Don't You Let Me Be (2:24)
+06. Little Sam Davis - Going Home To Mother (2:34)
+07. Big Joe Williams - She's A Jiving Woman (2:47)
+08. Lost John Hunter - Y M & V Blues (3:02)
+09. Country Jim - Phillipine Blues (2:21)
+10. Lightnin' Slim - Bad Luck (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 02:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703DBFF64B7ECB060046D3D20FC4C7D1D9E1DBED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522071   (625224) от 12.07.2012
 
 Billy Pierce - One For Chuck (1991) [FLAC|Lossless]<Jazz>
@@ -612,180 +804,6 @@ Anthony Wilson - Anthony Wilson (1997) Mama Foundation [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93D9C25614FAF74D12D55D1372538B3139AFD825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294962   (623975) от 10.04.2019
-
-Dexter Gordon - Four Classic Albums: Second Set (1961, 1962) 2CD, 2019, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623975.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I Was Doing All Right [9:26]
-02. You've Changed [7:35]
-03. For Regulars Only [5:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E5240988FA5B89D03D6FA09B5A8F92F5C2941A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909594   (623936) от 19.06.2015
-
-The Pasadena Roof Orchestra - A Talking Picture, Night Out (1978, 1979 ) 2CD in 1/2015, Herzog Records/ [MP3|320 кб/с]<Jazz, Big Band, Swing, Vocals>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Had A Talking Picture Of You (03:06)
-02. 42nd Street (02:35)
-03. Pennies From Heaven (03:11)
-04. Panama Rag (03:35)(   Читать дальше...   )Жанр: Jazz, Big Band, Swing, VocalsПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCC3BB471E920CF86A31B85D8508930478B9B88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544079   (623924) от 14.04.2022
-
-Christian McBride & Inside Straight - Live At The Village Vanguard (2014) 2021, Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Bread [12:02]
-02. Fair Hope Theme [13:42]
-03. Ms. Angelou [10:03]
-04. The Shade of the Cedar Tree [8:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF74574346318CD678A6DCCB5A8FE06B2D9EF859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145092   (623795) от 24.06.2017
-
-Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Mission
-02. Soulsalicious
-03. Senorita Bonita
-04. Cancun (A Tribute To Henry Mancini)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Bossa NovaПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F02443C9D1A3DC9E1A9855EAC0E08CCCD0C3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144958   (623794) от 24.06.2017
-
-Thornetta Davis - Honest Woman (2016) [MP3|320 Kbps] <Detroit Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When My Sister Sings the Blues (01:24)
-02. I Gotta Sang the Blues (feat. Kim Wilson) (05:09)
-03. That Don't Appease Me (04:26)
-04. Set Me Free (feat. The Larry McCray Band) (03:35)(   Читать дальше...   )Жанр: Detroit BluesПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D79A54D533A8C25E3FB5F911EC4BBBE38CAF5D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544194   (623580) от 14.04.2022
-
-Edgar Winter - Brother Johnny (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mean Town Blues (5:05)
-02. Still Alive and Well (3:43)
-03. Lone Star Blues (3:57)
-04. I’m Yours and I’m Hers (4:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40960B4FCD3D3B15458FEBF9EBD6528EAC61410
 ```
 
 https://mybot314.ru/tekegram_catalog/

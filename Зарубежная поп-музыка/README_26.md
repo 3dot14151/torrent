@@ -1,3 +1,61 @@
+###  Публикация: 1283741   (731950) от 18.02.2019
+
+VA - Car Songs: The 70s (2019) 4CD [MP3|320 Kbps] <Pop Rock, Disco, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731950.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. McFadden & Whitehead - Ain't No Stoppin' Us Now
+02. Earth, Wind & Fire - September
+03. Heatwave - Boogie Nights(   Читать дальше...   )Жанр: Pop Rock, Disco, JazzПродолжительность: 04:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3D668C2C472E4F7F5F8BE091328F5B28EAA16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283738   (731715) от 18.02.2019
+
+VA - 100 Hits - The Best 80s Album (2018) 5CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731715.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Bonnie Tyler - Holding Out For A Hero
+02. Cyndi Lauper - I Drove All Night
+03. Belinda Carlisle - Leave A Light On(   Читать дальше...   )Жанр: PopПродолжительность: 06:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896AD27518F9B7A664F48A6D9D9813AEE6673A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022007   (731078) от 31.05.2016
 
 Rachael Sage - Choreographic (2016) [MP3|320 кб/с] <Pop, Folk, Rock>
@@ -688,64 +746,6 @@ VA - Spring Break Party 2017 Powered By Xtreme Sound (2017) [MP3|320 Kbps] <Deut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ABAFD16FF19411151F014CD55FED8FD59CA79AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218782   (719383) от 11.04.2018
-
-VA - Ministry Of Sound I Love Acoustic (2018) 3CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sigala & Paloma Faith - Lullaby
-02 - Jax Jones, RAYE - You Don't Know Me - Acoustic Version
-03 - Stormzy, Wretch 32, Aion Clarke, Aion - Blinded By Your Grace, Pt. 2 (Acoustic)
-04 - Not3s, Mabel - My Lover - Radio Edit(   Читать дальше...   )Жанр: PopПродолжительность: 03:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D097931383994319CFEC5F2D523F5BA09CD067A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285746   (719057) от 27.02.2019
-
-VA - Ballermann on Snow - Apres Ski Hits 2019 Schlager (Party Kracher zum Feiern beim Karneval und Fasching) (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matty Valentino - Hurra die Gams
-02. Axel Fischer - Bella Ciao (Apres Ski Hits 2019 Schlager Mix)
-03. Partynator - Mama Laudaaa
-04. Ingo ohne Flamingo - Saufen morgens, mittags, abends(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 05:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453EAF4512FDAB65CA3BFB23B72034BCDF1D46B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

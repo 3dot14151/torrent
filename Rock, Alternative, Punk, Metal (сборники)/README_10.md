@@ -1,3 +1,32 @@
+###  Публикация: 1377653   (851499) от 22.04.2020
+
+Megadeth - 100% Megadeth (2020) [MP3|320 Kbps] <Rock, Trash Metal, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy Wars...The Punishment Due (Remastered 2004)
+02. Hangar 18 (Remastered 2004)
+03. A Tout Le Monde (Remastered 2004)
+04. Dystopia(   Читать дальше...   )Жанр: Rock, Trash Metal, MetalПродолжительность: 02:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE74251BDFD02FC785F015A742BE6D8F1DA2818A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002073   (849932) от 30.03.2016
 
 Ленинград - Новинки (2016) [MP3|192 - 320 кб/с ] <Rock, Ska>
@@ -713,35 +742,6 @@ VA - Home Sweet Rock (2020) [MP3|320 Kbps] <Rock , Indie Rock, Rock Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:279B97DD3C002A484B46DE957D1F14ECA20EA77F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379970   (835897) от 01.05.2020
-
-VA - Classic Pop-Rock Hits (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sting - All This Time (Album Version) 4:55
-002. R.E.M. - Losing My Religion 4:28
-003. Queen - Bohemian Rhapsody (2011 Mix) 5:54
-004. Elton John - Your Song (Remastered) 4:03(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 07:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9719C6898E4BCAC1C8A061230A915A3B0FC6B646
 ```
 
 https://mybot314.ru/tekegram_catalog/

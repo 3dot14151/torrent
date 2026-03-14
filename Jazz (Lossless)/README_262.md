@@ -1,3 +1,90 @@
+###  Публикация: 1649789   (225877) от 02.08.2023
+
+Frank Wess, Kenny Burrell, Joe Newman - Jazz For Playboys (1956, 1957) 2000, Savoy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_225877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Playboy [5:27]
+02. Miss Blues [9:41]
+03. Baubles, Bangles and Beads [4:17]
+04. Low Life [5:02](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AB2F42713F35027D62A369DB53D7BF0B0080E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513239   (225832) от 28.11.2021
+
+Alexandra Shakina - All The Way (2020) Venus Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All The Way [6:06]
+02. Let Me Love You [5:24]
+03. Get Out Of Town [5:06]
+04. Dedicated To You [4:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3898403C0C1B5FCE87942BD7086C96E5401FB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964149   (225783) от 14.12.2015
+
+VA - The Rat Pack: 50 Original Recordings (2007) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - That's Amore (03:09)
+02. Sammy Davis Jr - Too Close For Comfort (02:21)
+03. Frank Sinatra - I've Got You Under My Skin (03:47)
+04. Frank Sinatra - Someone To Watch Over Me (03:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80EC5B26B1BC4CF46F5AA63D7957482845E6083E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342217   (225781) от 01.12.2019
 
 The Mount Fuji Doomjazz Corporation - Егор (Egor) (2012) [FLAC|Lossless|tracks + .cue] <DarkJazz, DoomJazz, Experimental>
@@ -658,93 +745,6 @@ Papik - Bossarama (2023) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Easy Listeni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCB7326535AAB7C40AE1FD4E7D0F46C831B3B3DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342730   (222904) от 03.12.2019
-
-Beaux J Poo Boo - All Things Are New (2005) Summit Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferris Wheel [7:40]
-02. Dancing with the Monk [5:26]
-03. Only Trust Your Heart [5:43]
-04. Beaux J Poo Boo [6:58](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F8FFF6C859BCE6E0866F3BFD22FDBA18FD37AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585293   (222897) от 21.10.2022
-
-Miho Hazama - Imaginary Visions (2021) Edition Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Said Cool, You Said... What? [6:45]
-02. Your Scenery Story [8:10]
-03. Mingle-Mangle Goody Bag [7:22]
-04. Home [8:48](   Читать дальше...   )Жанр: Contemporary Jazz, Big BandПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B472B7613160AEC786ED3BA602D0C0F124E5F5E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342727   (222884) от 03.12.2019
-
-John Dankworth & Rochester Pops - Ellington: Echoes of Harlem (1988) ProJazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' in Rhythm [3:35]
-02. Cottontail [4:28]
-03. In a Sentimental Mood [5:40]
-04. Perdido [4:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A35EE5DB36B9EEC4D6BE7457FF60D5D2F9D5BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

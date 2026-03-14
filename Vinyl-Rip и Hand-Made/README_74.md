@@ -1,3 +1,119 @@
+###  Публикация: 1724204   (109331) от 18.05.2024
+
+Kobra And The Lotus - Studio Albums (7 releases) (2009-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kobra and the Lotus (KATL) — канадская хэви-метал группа, образованная в 2009 году вокалисткой и автором песен Коброй Пейдж.2009 - Out Of The Pit
+2012 - Kobra And The Lotus
+2014 - High Priestess
+2015 - Words Of The Prophets (EP)Жанр: Heavy MetalПродолжительность: 05:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27B09F64047BFF22507B494009DECF1D777AD80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724404   (109196) от 20.05.2024
+
+VA - Metal Massacre 05 (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109196.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Omen - Torture Me
+A2 - Voivod - Condemned To The Gallows
+A3 - Attacker - (Call On) The Attacker
+A4 - Future Tense - Nightmare(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8962A3FA23FAF082D27D98356F9FDD801CB07B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724682   (109179) от 21.05.2024
+
+King Kong - Funky Reggae (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109179.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Love I Lost
+A2 Let Your Yeah Be Yeah
+A3 I Heard It Through The Grapevine
+A4 Papa Was A Rolling Stone(   Читать дальше...   )Жанр: Reggae, FunkПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD509BA9E5922A29369568083E5D855111810324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724633   (109174) от 21.05.2024
+
+Prong - Studio Albums (15 releases) (1987-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover/Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prong — американская грув-метал-группа, образовавшаяся в 1986 году в Нью-Йорке. Коллектив основан вокалистом и гитаристом Томми Виктором, который на протяжении всего существования Prong является единственным его постоянным участником.1987 - Force Fed - Primitive Origins (EP)
+1990 - Beg to Differ - The Peel Sessions (EP)
+1991 - Prove You Wrong
+1992 - Whose Fist Is This Anyway (EP)Жанр: Crossover/Thrash/Groove MetalПродолжительность: 11:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A121860FEDB92B93B2FE2D84776AFA9CF1425DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724637   (109155) от 21.05.2024
 
 VA - Metal Massacre 06 (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Thrash, Speed Metal>
@@ -628,120 +744,6 @@ Toxic Holocaust — американская трэш-метал-группа, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78627459D5244934FE0EA2284DBF475A522B020C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728994   (108173) от 09.06.2024
-
-Dying Fetus - War of Attrition (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brutal Death Metal, Grindcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108173.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Homicidal Retribution
-A2 Fate Of The Condemned
-A3 Raping The System
-A4 Insidious Repression(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EA09B73307699C8A9EA7937EFA8396C76CFF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729028   (108172) от 09.06.2024
-
-Dying Fetus - Descend into Depravity (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brutal Death Metal, Grindcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108172.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Your Treachery Will Die With You
-A2 Shepherd's Commandment
-A3 Hopeless Insurrection
-A4 Conceived Into Enslavement(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D07817B42027FF87FD9F8E8DEF4868DA940490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729158   (108111) от 10.06.2024
-
-Dying Fetus - Make Them Beg for Death (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Technical Brutal Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108111.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Enlighten Through Agony
-A2 Compulsion For Cruelty
-A3 Feast Of Ashes
-A4 Throw Them In The Van(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E23309185F361126F43CB3DA8C859B4B990F7D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729683   (108036) от 12.06.2024
-
-Tales Of Dark... - Studio Albums (2 releases) (2006-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tales Of Dark... - сербская дум/дэт-метал группа из Нови-Сада, образована в 2001 году и распавшаяся в 2009.2006 - Fragile Monuments
-2009 - Perdition CallsЖанр: Gothic/Doom/Death MetalПродолжительность: 02:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5AF8EC310A4A4A0D210E3E5BF3B79F0A24BF09
 ```
 
 https://mybot314.ru/tekegram_catalog/

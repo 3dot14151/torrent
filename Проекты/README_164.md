@@ -1,3 +1,29 @@
+###  Публикация: 903808   (648878) от 06.06.2015
+
+Проекты - VideoHive - iMock-Up Real Footage Vol 3 Toolkit - 11528641 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в АЕ.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676A45D0E0B43D2AA8DE2AF73D40D1FCDB267900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905764   (648837) от 06.06.2015
 
 Проекты - VideoHive - Deep Eyes | 7 in 1 logo pack [AEP]
@@ -649,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F168A0B393903A03484AC3B34C42126565B37E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227549   (646381) от 26.05.2018
-
-Проекты - VideoHive - History Timeline - 21690292 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646381.jpg" />
-</div>
-
-
-###  Подробнее
-
-History Timeline - Универсальный проект для создания альбома памяти из Ваших фото.
-Многие оценят по достоинствуФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B97BD67AB9E2E0F884D37C26DFAEA512ABB70E7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1822372   (100773) от 06.10.2025
+###  Публикация: 1763824   (102779) от 03.12.2024
 
-Danger Cobra - Danger Cobra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+VA - Fusion Funk Excursions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock, Funk>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100773.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  No Easy Way Out (4:27)
-02.  Danger Zone (3:30)
-03.  Rebel Yell (3:33)
-04.  Maniac (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:56
+01. AdrianoMaria - Trio Elètrico (7:51)
+02. AdrianoMaria - Isn't She Lovely (6:29)
+03. Afronauti - Ghost Friends (4:26)
+04. Apollo Beat - Luna 22 (2:50)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz Rock, FunkПродолжительность: 01:51:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73679C525BCABFB91C56237ADA73211C0E38FA1B
+magnet:?xt=urn:btih:F52AF3CB6A0A75D716ADCE41055A077E2745299E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822375   (100772) от 06.10.2025
+###  Публикация: 1763857   (102778) от 03.12.2024
 
-Оверлеи - GoGivo - 10 Rose Flower Overlays Transparent [PNG]
+Michael Lington - Everything Must Change (2002) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100772.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 красивейших оверлеев с розами. Файлы можно использовать в любом графическом редакторе, поддерживающем слои, просто наложив наложение поверх фотографии.Формат: PNGРазрешение файлов: 4000x6000
+01. Off the Hook (3:57)
+02. In the Shade (4:26)
+03. Through the Fire (4:44)
+04. The Moment (4:03)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:43:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45D373085B36BD548FEB6CEE8AD7BE7ED4E252D6
+magnet:?xt=urn:btih:E342F1DEA326AB0DBB188589B1057EB08E843322
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +56,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822376   (100771) от 06.10.2025
+###  Публикация: 1764076   (102777) от 05.12.2024
 
-Жадан і Собаки - Бийся за неї (2025) [FLAC|lossless|tracks] <Rock>
+The Weekend Blues Band - Misunderstood (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Lounge Blues (3:40)
+02. Guilty of Love (3:48)
+03. Misunderstood (4:01)
+04. Too Nice to Rock (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676ED28EDB957093FA4049B87B78B6557111E92E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764118   (102776) от 05.12.2024
+
+Page 99 - 99.3 FM (2024) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Westcoast, Yacht Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100771.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Інтро (01:48)
-02. Бюджет (03:36)
-03. Безробітні (03:55)
-04. Країна (03:30)(   Читать дальше...   )Продолжительность: 00:37:23
+01. Did You Mean That (3:57)
+02. Healing Waters (4:53)
+03. Fool (3:56)
+04. In My Imagination (3:31)(   Читать дальше...   )Жанр: AOR, Westcoast, Yacht RockПродолжительность: 00:43:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A4F99EE3D0BFB4B5646ED939DF8F911808BC8F8
+magnet:?xt=urn:btih:6634A8A2A13622A4B2A099C7AE64CFE1841FF427
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822374   (100770) от 06.10.2025
+###  Публикация: 1764094   (102775) от 05.12.2024
 
-Формула 1. Сезон 2025. Этап 18. Гран-при Сингапура. Гонка (05.10.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
+VA - Future Sounds. EDM 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>Спорт и активный отдых
->>Формула 1
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100770.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 октября 2025 воскресенье 15:00 МСК этап 18. Арена: Городская трасса Марина Бей. Гран-при Сингапура. Гонка (62 круга)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 02:16:25
+01. Deep Emotion - My Focus Is You (03:52)
+02. TEKTRONIC - Romdom (03:00)
+03. MaxRiven - Loveparade (02:24)
+04. JLUIS - Paradise (03:06)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:21:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C4A72D1F90AFE057B5E39B8CF35F51322814478
+magnet:?xt=urn:btih:12FD422BACFD464E63E7621D2D427A62D78BD24F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,26 +143,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822378   (100769) от 06.10.2025
+###  Публикация: 1764142   (102774) от 05.12.2024
 
-reaConverter Pro 8.0.141 [Multi/Ru]
+Intronaut - Studio Albums (7 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Post-Metal>
 
->>Мультимедиа и Графика
->>Графические редакторы
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100769.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-reaConverter Pro - мощный инструмент для тех, кто имеет дело с большим количеством изображений. C помощью программы вы сможете организовать групповую обработку и редактирование изображений. Поддерживается огромное количество форматов.
-Все параметры гибко настраиваются. Присутствует окно предпросмотра, позволяющее сразу же оценить вносимые корректировки. Предпочитаемые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Intronaut — американская прогрессив-метал-группа из города Лос-Анджелес, штат Калифорния.
+Их стиль можно охарактеризовать как прогрессив-метал с элементами психоделии, дэт-метала, джаза, индийских, африканских и афро-латинских ритмов.2006 - Null (EP)
+2006 - Void
+2008 - Prehistoricisms
+2010 - Valley Of Smoke(   Читать дальше...   )Жанр: Progressive/Post-MetalПродолжительность: 05:46:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7E92C29F6CF3C2C52DE575FAE44CC3F6D88F729
+magnet:?xt=urn:btih:D24516BABB9C0A37BD1719C80AFEAA642EC8848D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,25 +173,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822379   (100768) от 06.10.2025
+###  Публикация: 1764124   (102773) от 05.12.2024
 
-AIMP 5.40.2696 + Portable [Multi/Ru]
+Fans Of The Dark - Video (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
->>Мультимедиа и Графика
->>Аудио Плееры и Кодеки
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100768.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обновился маленький, качественный, абсолютно бесплатный аудио плеер. Проигрывает большое количество современных популярных форматов. Плеер потребляет самый минимум системных ресурсов, система его просто не замечает, но при этом мгновенно работает с плейлистами и радует своей скоростью работы, даже если сравнивать его с платными аналогичными продуктами. Радует AIMP (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Meet Me On The Corner (3:51)
+02. Let's Go Rent A Video (4:31)
+03. The Neon Phantom (3:51)
+04. Christine (5:52)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB6DDCC17A4A8A696772150378A9A14F6C99A23F
+magnet:?xt=urn:btih:21C8257F2CB83B4D40A781A28A9DC3EE889587A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -161,28 +202,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822332   (100767) от 06.10.2025
+###  Публикация: 1764098   (102772) от 05.12.2024
 
-VA - The Orient Collective: Moon Over Marrakesh (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+Radioactive - Reset (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
->>Other Styles
->>Other (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100767.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kalico Jak, Tibetania - Pyramid of Light (Original Mix) (8:02)
-02. Tibetania, Kaisser Bouzriba - Sawt El Hob (Original Mix) (6:32)
-03. The Friend, Tibetania - Desert Wind (Original Mix) (7:18)
-04. Tibetania, Noyan Music, Moohan Music - Moyo (Original Mix) (5:14)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:10
+01. Sentimental (4:33)
+02. Shame On You, Shame On Me (5:02)
+03. Gaia (5:03)
+04. When The Lights Go Down (4:08)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:49:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E0D25C226198371A95568100572BE0BBB0722ED
+magnet:?xt=urn:btih:BAAC8749F6EAB7716B2E8640E0A68593CD7E2878
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,181 +231,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822360   (100765) от 06.10.2025
+###  Публикация: 1763992   (102771) от 05.12.2024
 
-Проклятие Чаки / Curse of Chucky (2013) BDRip [H.264/1080p] [МVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ника Пирс 4 года провела в лечебнице. Ее убеждают в том, что она виновна в гибели семьи, а не кукла Чаки. Когда лечащий врач предлагает новый вариант терапии с куклой с добрым лицом, в лечебнице начинают погибать люди, и Ника начинает думать, что ее кошмары реальны. Энди Барклай повзрослел и спешит на помощь, но ему хочет помешать Тиффани — невеста Чаки, готовая (   Читать дальше...   )Производство: США, Канада / Universal 1440 Entertainment, David Kirschner ProductionsЖанр: ужасы, триллерРежиссер: Дон МанчиниАктеры: Фиона Дуриф, Даниэль Бисутти, Бреннан Эллиотт, Мейтленд МакКоннелл, Шэнтал Куэснел, Саммер Х. Хауэлл, Эй Мартинез, Брэд Дуриф, Дженнифер Тилли, Кэлли Берард и др.Перевод: Профессиональный многоголосый (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE4EC102F3000D4CC8243B49309008C132D4B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822373   (100764) от 06.10.2025
-
-Ночь перед Рождеством (1951) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм - экранизация одноименного произведения великого классика Н.В. Гоголя. Красавец-кузнец Вакула, влюбленный в прекрасную Оксану, не остановился ни перед чем: оседлал самого черта, долетел на нем до стольного города Санкт-Петебурга, добрался до самой императрицы… И все это для того, чтобы заслужить любовь капризной красавицы.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, мультфильм, детский, народная сказкаРежиссер: Валентина Брумберг, Зинаида БрумбергАктеры: Владимир Грибков, Вера Марецкая, Лилия Гриценко, Николай Гриценко, Михаил Яншин, Алексей Жильцов, Алексей ГрибовСубтитры: отсутствуютПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB06915A149B0C54DEDED5BF1285E0D1E6BAFD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822344   (100763) от 06.10.2025
-
-Магия четырёх стихий / Ein Madchen namens Willow / A Girl Named Willow (2025) BDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Ива получает в наследство от бабушки домик в заколдованном лесу и магический дар — она должна стать хранительницей стихии огня. Вместе со своим верным помощником огненным лисом она отправляется на поиски чародеек, отвечающих за стихии воды, земли и воздуха. Только объединив свои силы, они могут спасти волшебный мир.Производство: Германия / Alias Film+Sprachtransfer, Constantin Film, SamFilm GmbHЖанр: фэнтези, семейный, приключенияРежиссер: Майк МарзукАктеры: Ава Петш, Кора Трубе, Анна фон Зельд, Мари Эмбер Оземерен Тёлле, Голо Ойлер, Диана Амфт, Макс Гирман, Сибилле Каноника, Кристоф Биттенауэр, Том ХансльмайерПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: Русские (Forced), Немецкие (SDH), АнглийскиеПродолжительность: 01:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E54D6C7C2CF492AB6A96D419AA4D716BD4367C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822342   (100762) от 06.10.2025
-
-Магия четырёх стихий / Ein Madchen namens Willow / A Girl Named Willow (2025) BDRip [H.264/720p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Ива получает в наследство от бабушки домик в заколдованном лесу и магический дар — она должна стать хранительницей стихии огня. Вместе со своим верным помощником огненным лисом она отправляется на поиски чародеек, отвечающих за стихии воды, земли и воздуха. Только объединив свои силы, они могут спасти волшебный мир.Производство: Германия / Alias Film+Sprachtransfer, Constantin Film, SamFilm GmbHЖанр: фэнтези, семейный, приключенияРежиссер: Майк МарзукАктеры: Ава Петш, Кора Трубе, Анна фон Зельд, Мари Эмбер Оземерен Тёлле, Голо Ойлер, Диана Амфт, Макс Гирман, Сибилле Каноника, Кристоф Биттенауэр, Том ХансльмайерПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, НемецкийСубтитры: Русские (Forced), Немецкие (SDH), АнглийскиеПродолжительность: 01:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBF79B8C4886A8B0542AD759015B605A32C6583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822341   (100761) от 06.10.2025
-
-Магия четырёх стихий / Ein Madchen namens Willow / A Girl Named Willow (2025) BDRip [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Ива получает в наследство от бабушки домик в заколдованном лесу и магический дар — она должна стать хранительницей стихии огня. Вместе со своим верным помощником огненным лисом она отправляется на поиски чародеек, отвечающих за стихии воды, земли и воздуха. Только объединив свои силы, они могут спасти волшебный мир.Производство: Германия / Alias Film+Sprachtransfer, Constantin Film, SamFilm GmbHЖанр: фэнтези, семейный, приключенияРежиссер: Майк МарзукАктеры: Ава Петш, Кора Трубе, Анна фон Зельд, Мари Эмбер Оземерен Тёлле, Голо Ойлер, Диана Амфт, Макс Гирман, Сибилле Каноника, Кристоф Биттенауэр, Том ХансльмайерПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, НемецкийСубтитры: Русские (Forced), Немецкие (SDH), АнглийскиеПродолжительность: 01:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014305697C1D4BCCE7FEBDF03A821E8974E3CF4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822340   (100760) от 06.10.2025
-
-Магия четырёх стихий / Ein Madchen namens Willow / A Girl Named Willow (2025) WEB-DL [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Ива получает в наследство от бабушки домик в заколдованном лесу и магический дар — она должна стать хранительницей стихии огня. Вместе со своим верным помощником огненным лисом она отправляется на поиски чародеек, отвечающих за стихии воды, земли и воздуха. Только объединив свои силы, они могут спасти волшебный мир.Производство: Германия / Alias Film+Sprachtransfer, Constantin Film, SamFilm GmbHЖанр: фэнтези, семейный, приключенияРежиссер: Майк МарзукАктеры: Ава Петш, Кора Трубе, Анна фон Зельд, Мари Эмбер Оземерен Тёлле, Голо Ойлер, Диана Амфт, Макс Гирман, Сибилле Каноника, Кристоф Биттенауэр, Том ХансльмайерПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: Русские (Forced)Продолжительность: 01:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4CD0C496C3B3339F3E8B89E1484AA160550E29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822386   (100759) от 06.10.2025
-
-Цветок 1001 ночи / Il fiore delle mille e una notte (1974) BDRip [H.264]
+На необитаемом острове / Auf einsamer Insel (1913) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100759.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом фильме, вдохновлённом древними эротическими и волшебными сказками Ближнего Востока, центральный сюжет посвящён застенчивому юноше, который влюбляется в прекрасную девушку. Но из-за глупой ошибки, судьба их разлучает. И юноша отправляется на поиски, чтобы найти возлюбленную и освободить её от демонов... Фильм состоит из 15 частей, содержащих отдельные истории (   Читать дальше...   )Производство: Италия, Франция / Les Productions Artistes Associes, Produzioni Europee Associati (PEA)Жанр: фэнтези, драма, мелодрама, комедия, историяРежиссер: Пьер Паоло ПазолиниАктеры: Нинетто Даволи, Франко Читти, Тесса Буше, Маргарет Клементи, Инес Пеллегрини, Франко Мерли, Франкелис Ноэль, Али Абдулла, Кристиан Алигни, Жанна Гоффин МатьеПеревод: профессиональный многоголосый (R5), авторский (Сергей Кузнецов)Язык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 02:10:39
+Драма в рыбацком поселке. Ну, все эти известные дела - красотка любит хорошего, но бедного. Ее любит богатый, но нехороший. Этот нехороший задумывает против хорошего недоброе... Все знакомо.Производство: Германия / Eiko FilmЖанр: короткометражный, драма, немое киноРежиссер: Йозеф ДельмонтАктеры: Фред Зауэр, Миа Кордес, Йозеф ДельмонтПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:30:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7CF0EA00F6BD5232DAB3AEEFA7DFE5B39390D6C
+magnet:?xt=urn:btih:1ED7D6FC82A4F6FEA7883CE8C3454CCCF91AA504
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,28 +257,286 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822387   (100758) от 06.10.2025
+###  Публикация: 1764120   (102770) от 05.12.2024
 
-Epitaph - Don't Let The Gray Hair Fool You (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+VA - Gaming Music 2024: EDM For Players (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MaxRiven - Loveparade (02:24)
+02. Lorenz Koin - Adrenaline (02:05)
+03. JLUIS & Teknova - Fast Love (02:26)
+04. Gash & Cee-Mon - Feels Like Home (02:00)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C5D865190480C534E30F6649D6A4DA02E34E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763955   (102769) от 05.12.2024
+
+Maleficium Arungquilta - Касание сквозь стекло (2011) [FLAC|Lossless|image + .cue] <Dark Metal, Gothic Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102769.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ангелы Не Дышат
+2. Мразь
+3. Я Стала Морем
+4. Шелковый Рассвет(   Читать дальше...   )Жанр: Dark Metal, Gothic Metal, Symphonic MetalПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABEE15684E37F3813DEDB651D02FEF24BAB9CB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763872   (102768) от 05.12.2024
+
+Maleficium Arungquilta - Транс для сестры (2013) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Лицемер
+3. Нибиру
+4. Снег(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD91B7FCF9B05B8788495D10CE3037F8010CCFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764083   (102767) от 05.12.2024
+
+Smooth Jazz All Stars - Smooth Jazz Renditions of Lady Gaga (Instrumental) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloody Mary (Instrumental) (3:31)
+02. Hold My Hand (Instrumental) (3:33)
+03. Always Remember Us This Way (Instrumental) (3:29)
+04. Shallow (Instrumental) (4:16)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CC14D1F5DBBFF04662491492B757A227EBEDE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764059   (102766) от 05.12.2024
+
+Greg Koch - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Lose What You Never Had (feat. Jimmy Hall + Memphis Horns) (4:32)
+02. Can't Be Satisfied (feat Larry McCray) (3:54)
+03. The Stumble (3:53)
+04. Stormy Monday (9:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C2AF6379CAFF0F6910653ED50546DFBBC1A3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764187   (102765) от 05.12.2024
+
+The Effect - The Effect (2024) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toxic Envy (4:02)
+02. Unwanted (3:22)
+03. Tind (3:50)
+04. World Between Us (4:11)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4116AC9E1120B632BFDB24CB7DA62E4B85F614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764056   (102764) от 05.12.2024
+
+Август Стриндберг | Пляска смерти (2005) [MP3, Михаил Янушкевич, Александра Николаева, Владимир Яворский]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102764.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ад - это другие," - изрек когда-то Жан-Поль Сартр. "Ад - это мы сами", - следовало бы провозгласить после знакомства с пьесой Стриндберга "Пляска смерти", созданной им в 1901 году. Механизм рождения ненависти, его безжалостная цикличность, способность безвозвратно втягивать человека-жертву в свой круговорот исследуются драматургом на (   Читать дальше...   )Жанр: Аудиоспектакль, драмаИздательство: Нигде не купишьПродолжительность: 01:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E56C8AF4A8CC38127534D8DB85EF125F46BB3F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764103   (102763) от 05.12.2024
+
+VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pierpaolo Cricenti & Kekko DMC - Love Don't Let Me Go (Aux In Re-Edit Mix) (07:39)
+02. KARMIN SHIFF, JULIANA PASINI & Kryz Santana - Ole Ola (I'm From Brazil) (New York Brazil Mix) (03:09)
+03. B.A. Lance - Summer (A Tribute To Calvin Harris) (Radio Mix) (03:38)
+04. Mikee Introna - Get It All (03:37)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11E30A29AC34C36B222BA0A8669C35B2210B73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764123   (102762) от 05.12.2024
+
+Mel Torme & The Marty Paich Dek-Tette - In Concert Tokyo (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Don't Mean a Thing (If It Ain't Got That Swing) (Instrumental) [3:30]
+02. Sweet Georgia Brown [3:56]
+03. Just in Time [3:12]
+04. When the Sun Comes Out [4:11](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E76C4A15E3EE16FE8D82239B6F5616F3E11389A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764035   (102761) от 05.12.2024
+
+Pestilent Hex - Sorceries of Sanguine & Shadow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Black Metal, Melodic Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100758.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  One Heart (6:16)
-02.  Cold Light Of Day (5:28)
-03.  Don't Be Afraid (7:06)
-04.  Don't Let The Gray Hair Fool You (4:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:33
+01 - Nocturne [1:54]
+02 - Sciomancy and Sortilege [7:31]
+03 - Through Mirrors Beyond [6:25]
+04 - Of Hexcraft and Laws Three-fold [6:57](   Читать дальше...   )Жанр: Symphonic Black Metal, Melodic Black MetalПродолжительность: 00:45:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D79E0EF9CB1C97A3E2C001C40910B87B8D2A95D
+magnet:?xt=urn:btih:3CD87B08C88DCB07BB8DFD9BFA4FC0CA1E7E61C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,28 +544,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822390   (100757) от 06.10.2025
+###  Публикация: 1764068   (102760) от 05.12.2024
 
-Mystic Majesty - Ad Maiora Semper (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Peter MacInnis - Late Night Blues Vibe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100757.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Mastermind (4:23)
-02.  Missing Pieces (2:38)
-03.  Sea of Snakes (4:58)
-04.  Midnight Sun (4:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:12
+01. Do You Remember How to Dance? (3:31)
+02. Something to Sell (3:31)
+03. HollyHood Tay - Focusing on Me (2:32)
+04. Gotta Slow It Down (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89FBF4CAF8725A3CAA1772C7183701CAEBC4864E
+magnet:?xt=urn:btih:44A770F92C69FAE46257A38C3F685960F95E3CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,25 +573,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822389   (100756) от 06.10.2025
+###  Публикация: 1764064   (102759) от 05.12.2024
 
-Шрифты - MyFonts - Analogy [OTF]
+Mikey Junior - Traveling North (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100756.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Analogy — это современная интерпретация непреходящей элегантности, присущей шрифту Николаса Дженсона XV века. Основанный на гуманистических формах 1470-х годов, но при этом усовершенствованный для восприятия современности, Analogy сочетает в себе историческую теплоту и точность, предлагая текстовый шрифт, который одновременно легко читается и изыскан. Его каллиграфическое (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+01. Old Enough to Know (3:57)
+02. Taboo Love (4:45)
+03. You Hurt Me (3:35)
+04. Crazy over You (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4969622E2D096192E3F716DD4EC54344DF7CB91A
+magnet:?xt=urn:btih:12BF8EC7981603EDB786F053E7D7EF704E36E6BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,28 +602,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822394   (100755) от 06.10.2025
+###  Публикация: 1764066   (102758) от 05.12.2024
 
-Remigio Ducros and Luciano Simoncini - America amore amaro (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Olivier Mas - One Man Swamp Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100755.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Bus Stop (2:37)
-02.  Mawil (2:42)
-03.  Subways (2:19)
-04.  Magnolia Boulevard (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:31:19
+01. No Fun (2:59)
+02. Six Strings Down (3:14)
+03. I'm a Man (3:17)
+04. Hey, Hey (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C78BE1AE692A1614EE2373487AA20CD2E69BE55
+magnet:?xt=urn:btih:0AD0A66A48EC7B806B2D4D3AC543BB0DC7BCF3D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,25 +631,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822393   (100754) от 06.10.2025
+###  Публикация: 1764054   (102757) от 05.12.2024
 
-3D print - MyMiniFactory - 55mm - Ghost Strikers - 384198 [STL]
+Chocolate George - House of Make Believe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100754.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вооружённые передовым оружием и облачённые в устрашающую броню, «Ghost Strikers» неустанно стремятся к правосудию. Известные своей безжалостной эффективностью и призрачным присутствием, эти каратели вселяют страх в сердца преступников и бандитов.Формат: STL
+01. Ain't No Sign (3:22)
+02. Detroit Crank (3:14)
+03. Bloomer Pudding (3:20)
+04. House of Make Believe (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55D035E4D6E96999F09530BB670E9413A96AB79F
+magnet:?xt=urn:btih:5CF32B08FADBB669939382A6E9FE3D3D50788152
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,25 +660,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822220   (100753) от 06.10.2025
+###  Публикация: 1764062   (102756) от 05.12.2024
 
-Звёзды в Джунглях (2025) WEB-DL [H.264/720p] (сезон 2, выпуск 1-2 из 15)
+Innes Sibun - The Preacher (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100753.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В новом 2 сезоне звёздные участники будут выживать на Карибах в Доминиканской республике. Хотя главный фактор выживания вовсе не в месте, а в тех, кто будет рядом. В новом сезоне примут участие как новички реалити, так и те, кто уже прошёл боевое крещение и хитро улыбается при слове коалиция. Участники проходят различные испытания, в которых зарабатывают монеты на (   Читать дальше...   )Телекомпания: Россия, "План Б Медиа" по заказу ТНТ-ТелесетьЖанр: Реалити-шоуУчастники: Ася Резник, Ирина Пинчук, Аристарх Венес, Вадим Дубровин, Сергей Романович, Маша Малиновская, Екатерина Шкуро, Джефф Монсон, Альбина Кабалина, Ян ДиланСубтитры: ОтсутствуютПродолжительность: ~02:59:53 выпуск
+01. Incantation (4:38)
+02. The Preacher (5:44)
+03. I Found Your Letter (6:43)
+04. Time Is Tight (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CBD410E8F161FA5CC94513EF25EC18950310409
+magnet:?xt=urn:btih:7ADF260A7BD9DC270F3B4396F517D3DFBA04ECEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,28 +689,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822399   (100752) от 06.10.2025
+###  Публикация: 1764072   (102755) от 05.12.2024
 
-Richard D. Johnson - Warm Embrace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+Soultide - Waves of the Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100752.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  East of the Sun (3:58)
-02.  Warm Embrace (4:45)
-03.  Moonlight In Vermont (4:28)
-04.  Ruby My Dear (7:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:34
+01. Soul in the City (4:01)
+02. Moonlight in My Eyes (2:58)
+03. Twilight Groove (2:02)
+04. Midnight Reverie (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CB161B0E6AD51560477C8D27927E832A7EACF83
+magnet:?xt=urn:btih:972C4E00295FE7FE7EE25C5395916DE8D7E10626
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,141 +718,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822404   (100751) от 06.10.2025
+###  Публикация: 1764063   (102754) от 05.12.2024
 
-Riot Jazz Brass Band - Ginja (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Mac Arnold & Plate Full O' Blues - On a Mission (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100751.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Ginja (3:00)
-02.  Paradox (3:43)
-03.  Frisky (3:00)
-04.  Soundwave (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:45
+01. Blues All over You (2:45)
+02. Dance the Blues Away (2:31)
+03. I Am the Blues (3:38)
+04. Love Story (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE841E62C6303B2C511D7C99D1F6E6FFDBB887E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822409   (100750) от 06.10.2025
-
-Sam Siefert Ensemble Project - Realization (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mirrored (3:03)
-02.  Despite Everything (5:59)
-03.  Facing the Opposite (5:20)
-04.  March for Peace (8:26)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8FEDD59FBE479B87A85B9269E6ACD31997FE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822412   (100749) от 06.10.2025
-
-Schlussakkord - Drehbuch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro (2:11)
-02.  Wir sind wieder da (3:34)
-03.  Kein Weg zu lang (3:03)
-04.  Für immer verbunden (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521A684D362C45934A71091E23E765450F85DB2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822414   (100748) от 06.10.2025
-
-Smokey Brights - Dashboard Heat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Northgate Way (4:05)
-02.  Never Hurts Never Mind (4:07)
-03.  All in Who You Know (3:32)
-04.  Peace Sign Pentagram (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E0F5D9504FF523A789B8519238CD47EFEE9DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822416   (100747) от 06.10.2025
-
-Дополнения - Blender Addons Bundle 1 October 2025 [ZIP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет дополнений для Blender на 1 октября 2025 г.Формат: ZIP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062E752B741A81597950CD1F3B7D93AF3E46900E
+magnet:?xt=urn:btih:287C33BDAD2538EE93DFBF899EA453294D6D0940
 ```
 
 https://mybot314.ru/tekegram_catalog/

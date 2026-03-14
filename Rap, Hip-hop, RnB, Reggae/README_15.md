@@ -1,3 +1,119 @@
+###  Публикация: 1220663   (702334) от 20.04.2018
+
+Horus - Прометей роняет факел (2018) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Земля мертвых
+02. Желтая стрела (feat. Зараза)
+03. Гири
+04. Огонек (feat. Murda Killa)(   Читать дальше...   )Жанр: RapПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA0E6CE1C88E7315A1742ED67E3C29AD77CF362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402251   (701705) от 14.08.2020
+
+POR.NORAP - Бронетрусы (2019) [MP3|320 Kbps] <Comedy Rap, Electronic>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Муж на час 4:02
+02. Гуляй нога 3:58
+03. Раненный дракон 4:07
+04. MOROZOFF DEAD 4:29(   Читать дальше...   )Жанр: Comedy Rap, ElectronicПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94EA98DE3571FFFC728E5D25C4F8C45878307B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132808   (698494) от 10.05.2017
+
+Грот - Клавиши (2017) EP [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698494.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пуля (Акустика)
+2. Дорога к себе (Акустика)
+3. Наследство (Акустика)
+4. Бумажные крылья (Акустика)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C51ECA70CBF28251345613FF4D973441ED3077B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027501   (696284) от 19.06.2016
+
+VA - Chillhop Essentials Summer (2016) [FLAC|Lossless|Web-DL|tracks] <Hip Hop, Jazz, Broken Beat>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guggenz - Business As Usual (3:12)
+02. Joakim Karud - Canals (2:34)
+03. Birocratic - Tony's Belated Breakfast (3:11)
+04. Brock Berrigan - Split Decision (2:42)(   Читать дальше...   )Производство: Chillhop RecordsЖанр: Hip Hop, Jazz, Broken Beat, Boom Bap, Breaks, InstrumentalПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A5CAA8CC486A54F50FB21635E09EBC21A8C91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289264   (688145) от 15.03.2019
 
 Смоки Мо - Белый блюз (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -629,122 +745,6 @@ Cypress Hill - Back in Black (2022) [FLAC 2.0|44.1, 48/24|WEB-DL|tracks] <Hip-Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D46AE67CFF8785A67C36FD8C2F4BB6E066A015ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537858   (665381) от 18.03.2022
-
-Cypress Hill - Back in Black (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Hardcore, Latin, Rapcore>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takeover
-02. Open Ya Mind
-03. Certified (feat. Demrick)
-04. Bye Bye (feat. Dizzy Wright)(   Читать дальше...   )Жанр: Hip-Hop, Hardcore, Latin, RapcoreПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF9F8E14653D0487667190E19274985A1A7B844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224506   (664019) от 12.05.2018
-
-Артём Лоик - На поле в Курукшетре (2018) [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ключевая вода
-02. Меняем
-03. Бег
-04. Мысли вслух(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C7979F396164829FC0750A603A8A59813E4FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224524   (664002) от 12.05.2018
-
-Fike & Jambazi - Где-то (2013) [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снова в деле
-02. Мало огня (feat. Линда)
-03. Клоуны (feat. Нуки)
-04. Тёлки(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8147E1A39057E2BDA1B62B29111BE01289755F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224513   (664000) от 12.05.2018
-
-Дино (Триада) - Новый 3 (2018) EP [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Огонёк
-02. Кадры
-03. Утро на двоих
-04. С тобойЖанр: Rap, Hip-hopПродолжительность: 12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632E4B9BBC9B29FA685032F972C6FEB99C991FB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

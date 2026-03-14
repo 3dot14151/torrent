@@ -1,3 +1,29 @@
+###  Публикация: 1321269   (460800) от 23.08.2019
+
+Проекты - VideoHive - Cooking Show - 19498604 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект, который обязательно продвинет ваш кулинарный канал на You Tube и пр.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88EADC0ADA7CF1B5D529B4712CC5965F0661086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321264   (460791) от 23.08.2019
 
 Проекты - VideoHive - 24 Broadcast News Opener Pack - 19344528 [AEP]
@@ -650,32 +676,6 @@ Videoblocks - Cinematic Action - 120626 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48B717EA036234BABD451E3BBE4945C012DD4129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942131   (457638) от 29.09.2015
-
-Проекты - VideoHive - Daybreakers [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания превью к фильму. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FB793D0A78D321A4D7F1D5E42760C478EAD558
 ```
 
 https://mybot314.ru/tekegram_catalog/

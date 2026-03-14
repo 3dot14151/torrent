@@ -1,3 +1,32 @@
+###  Публикация: 1486089   (1004838) от 30.07.2021
+
+VA - 100 Greatest Soft Rock Songs (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toto - Africa
+02. The Police - Every Breath You Take (Remastered 2003)
+03. Eurythmics, Annie Lennox, Dave Stewart - Sweet Dreams (Are Made of This) (Remastered)
+04. Daryl Hall & John Oates - You Make My Dreams (Come True)(   Читать дальше...   )Жанр: RockПродолжительность: 07:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7242325D7AFE6B195138814E43642CB11969AEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513185   (1004715) от 31.07.2021
 
 VA - 30 The Final Countdown covers (2009) [MP3|128-320 кб/с]<Rock, Metal, Ska, Reggy>
@@ -713,35 +742,6 @@ VA - The Best Of Alterportal HITS (2015) [MP3|256- 320 кб/с] <Alternative, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DEC7DA452A0AC451A45714AC6FE6C78E5CE1648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356531   (977533) от 31.01.2020
-
-VA - Рок 2019 Главные Хиты (2020) [MP3|320 Kbps] <Rock, Alternative, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977533.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Acres - Lonely World (4:48)
-2. Alter Bridge - Wouldn't You Rather (3:49)
-3. Animal ДжаZ - Чувства (3:40)
-4. Asking Alexandria - The Violence (3:28)(   Читать дальше...   )Жанр: Rock, Alternative, OtherПродолжительность: 03:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9A0A0D9841ACB1B139BE6C31B3D76C01716DEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

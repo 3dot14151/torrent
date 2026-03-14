@@ -1,3 +1,30 @@
+###  Публикация: 819423   (533481) от 07.09.2014
+
+Videohive - High tech OS (sci-fi video display) - 133107 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впечатляющий проект вашего видео в научно-фантастическом стиле.
+Превью, sci-fi звуки  - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC556EDE2AF4E2DAC41086747C226E45E5AEAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 819521   (533478) от 07.09.2014
 
 VideoHive - Promote Your Product/Service/App/Website With Me - 2426436 [AEP]
@@ -649,32 +676,6 @@ LomoStripes - проект для создания удивительного ф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DC7B7B0DBB971D6E4EE7BAC63B0B0C055785648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674843   (531989) от 11.09.2016
-
-Проекты - VideoHive - Paint Your Dreams [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paint Your Dreams - Великий проект, чтобы подчеркнуть ваши воспоминания, портфолио фотографа или деловые СМИ в динамике.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB66DB81FDAE1F22EAE0CB80CDF01EE02408DF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

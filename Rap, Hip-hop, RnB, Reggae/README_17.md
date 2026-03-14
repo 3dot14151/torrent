@@ -1,3 +1,119 @@
+###  Публикация: 1033707   (635702) от 12.07.2016
+
+Каспийский Груз - The Брутто (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не было и не надо (feat. Гансэлло)
+02. Guantanamera (feat. Ликий Адвайта)
+03. Черная Волга
+04. Стрелки(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF992FFBFB8C73FEA129DB6C5DC270E92387D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141914   (634754) от 18.06.2017
+
+Two Feet - Momentum (2017)  EP [MP3|320 Kbps] <Trap, ChillTrap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Had Some Drinks [2:21]
+02 - Your Mother Was Cheaper [2:31]
+03 - Love Is a Bitch [3:02]
+04 - Twisted [3:17]Жанр: Trap, ChillTrapПродолжительность: 00:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD7887D58E9A2CD8A2D37E34F56D5AE298100C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143161   (634751) от 18.06.2017
+
+Guf, Slim - GuSli (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звуки гуслей (интро)
+02. Фокусы
+03. Хватит
+04. Независимость(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA58BD2A2C9892BAADEBE0340990A628FCA21DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293840   (633487) от 05.04.2019
+
+Ноггано - Лакшери (2016) [FLAC|Lossless|WEB-DL|tracks] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Семёрка
+03. Бра-за-Бро (ft. QP)
+04. Торговец снами(   Читать дальше...   )Жанр: RapПродолжительность: 02:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB14552E8420DC3C4FB1081FF4D6A2F97BA29CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293827   (633349) от 05.04.2019
 
 N1NT3ND0 (Баста) - Папа на рэйве (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
@@ -629,122 +745,6 @@ Jay-Z - 4:44 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:114E3BB8FE92133BDE42AAF0DB12F3D4AB51A4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232388   (599798) от 24.06.2018
-
-Iration - Iration (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Reggae Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Already Gold
-02. Press Play
-03. Twisted Up
-04. Broken Promises (feat. Slightly Stoopid)(   Читать дальше...   )Жанр: Reggae, Reggae RockПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4894EC4E74136BE68E4179A3DE042E62330680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039438   (595821) от 01.08.2016
-
-Desiigner - New English (2016) [MP3|320 Kbps] <Trap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro
-02 - Caliber
-03 - Make It Out
-04 - Shooters(   Читать дальше...   )Жанр: TrapПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E0C75C441820500E7688F4366ACD3A694030D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039450   (595820) от 01.08.2016
-
-Dub Pistols - Return of the Pistoleros (2015) [FLAC|Lossless|tracks] <Reggae, Dub, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pistoleros (5:05)
-02. Real Gangsters (4:30)
-03. Roll And Come In (4:06)
-04. Sticky Situation (4:11)(   Читать дальше...   )Жанр: Reggae, Dub, Hip-HopПродолжительность: 0:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D75FE7EB8BEAD5D72916811C0B20283BA53A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914805   (594344) от 04.07.2015
-
-5'nizza - Всё в одном (2015) 3CD [FLAC|image +.cue]<Acoustic Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальное издание для распространения в ходе тура "5'Nizza. Реюнион"
-2003 Пятница
-2005 05
-2015 BonusЖанр: Acoustic ReggaeПродолжительность: 02:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB094BCB35B9EF7407A51F63219DD3DE32414BAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1187642   (277145) от 30.11.2017
+
+VA - По волне моей памяти 2: Том17 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  ВИА Весёлые Ребята  -  Доброте предела нет! 3:30
+02.  Красные маки  -  Трудно расстаться 2:22
+03.  Аракс  -  Молодость 3:18
+04.  Кино  -  Кончится лето 5:56(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC04BA40471288A76D88C72E5CCBF1BBFB78AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082101   (276672) от 13.12.2016
 
 VA - MEGA Dance Hits Collection (1990 - 2001) [MP3|320 кб/с] <Eurodance, Euro-House, Italodance, Happy Hardcore, Trance>
@@ -713,35 +742,6 @@ VA - Новогодний Кавказ (2011) [MP3|128 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D05BDC4DBC73AB7A89AD4AEFD0D68C4A92C4C5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188840   (272935) от 03.12.2017
-
-VA - Дискотека 2017 Eurodance Club - Назад в 90-е (1990-2000) Reload! (от NNNB) (2017) [MP3|320 Kbps] <Eurodance, Pop, Dance и другие>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace Of Base - All That She Wants
-02. Mr. President - Coco Jamboo
-03. Yaki-Da - I Saw You Dancing
-04. Jessica Jay - Casablanca(   Читать дальше...   )Жанр: Eurodance, Pop, Dance и другиеПродолжительность: 71:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7803C9B216A208844C4854CABD4210591F1845E
 ```
 
 https://mybot314.ru/tekegram_catalog/

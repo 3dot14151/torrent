@@ -1,3 +1,32 @@
+###  Публикация: 1314002   (522187) от 11.07.2019
+
+Theatre Of Tragedy - Remixed (2019) [MP3|320 Kbps] <Gothic Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And When He Falleth (Das Ich Remix - Remastered)
+02. Black as the Devil Painteth (Das Ich Remix - Remastered)
+03. Lorelei (Icon of Coil Remix - Remastered)
+04. Reverie (Current Remix - Remastered)(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DD2FEE7D417391FF65E9AFE54F56386D2121F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559472   (521957) от 28.06.2022
 
 Final Light (Perturbator X Johannes Persson) - Final Light (2022) [MP3|320 Kbps] <Atmospheric Sludge, Post-Metal>
@@ -737,35 +766,6 @@ Marlugubre - Maladie (2022) [MP3|320 Kbps] <Death Metal, Post-Black, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDA73957F85C621BBC80619983B24F067AA45AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927792   (512567) от 25.08.2015
-
-Disturbed - Immortalized (2015) Deluxe edition [MP3|320 кб/с]<Alt. Metal, Hard Rock>
-
->>След.
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Eye Of The Storm (1:20)
-2. Immortalized (4:17)
-3. The Vengeful One (4:11)
-4. Open Your Eyes (3:57)(   Читать дальше...   )Жанр: Alt. Metal, Hard RockПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9AAA3F9D212951AC85031BF0B2717B1D12B77C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1541096   (648526) от 01.04.2022
+
+Kungs - Club Azur (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zebulon (0:49)
+ 02. Fashion (4:32)
+ 03. Never Going Home (2:50)
+ 04. Clap Your Hands (3:10)(   Читать дальше...   )Жанр: EDM, Nu Disco, Club HouseПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AA92CC2B0F4747C18F573DF17B58B702FDA4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141906   (646730) от 12.06.2017
+
+VA - Zappi Rocks Ibiza (Compiled by DJ Zappi) Vol. 1,2 (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cheapers - Autumn Blues [06:52]
+02. Elekfantz - Diggin' On You (Solomun remix) [06:40]
+03. David Glass - Gimme Love (feat Moji - Mihalis Safras remix)[06:15]
+04. Danniel Selfmade - And On And On [06:26](   Читать дальше...   )Жанр: Deep House, Tech House |Продолжительность: 05:32:38 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705E34B253C7BF60D6D6244C368672A0B138C693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227435   (646498) от 26.05.2018
+
+Actress x London Contemporary Orchestra - LAGEOS (2018) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Experimental, Techno, Minimal, Contemporary>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LAGEOS (04:38)
+ 02. Momentum (08:36)
+ 03. Galya Beat (04:33)
+ 04. Chasing Numbers (04:21)(   Читать дальше...   )Жанр: Experimental, Techno, Minimal, ContemporaryПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2B7C61DCBC76AAD0C879639F79431F1CC1C60F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 344431   (645204) от 05.06.2011
 
 GusGus - Arabian Horse (2011) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Tech House>
@@ -657,93 +744,6 @@ VA - Mollono.Bass Remix Collection 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36DB71601C3BA49EF7128DE0A793A8D9295B377F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294511   (628489) от 08.04.2019
-
-VA - Project STS-31 - Spiralgalaxie (Hubble Telescope Series Vol. III) (2016) Solar One Music [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project STS-31 - Spiralgalaxie (03:06)
-02. The Exaltics - NGC 253 (05:20)
-03. Heinrich Mueller - Adaptive Optics (04:49)
-04. Robert Heise - Stars, Gases And Dust (03:30)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831E8D195F4397B28F20E075F90E9F6C88F65581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035390   (628175) от 16.07.2016
-
-VA - Solomun Pres: Selected Remixes (2009-2015) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Broken Bells - Holding On For Life (Solomun remix)
-02 Noir & Haze - Around (Solomun Vox mix)
-03 Ron Carroll & Superfunk - Lucky Star (Solomun remix)
-04 Tiefschwarz - Corporate Butcher (feat Mama - Solomun remix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B492085B2AA10982472F738E9EEA2E51253B4945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144364   (627760) от 22.06.2017
-
-Irazu & Regis - Shtamm (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Refused To Be Found (06:07)
-2. Shtamm (07:15)
-3. Last Hours (02:01)
-4. Shtamm (Regis remix) (06:57)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D089A0BA4EDD75C9C7F67D196D9D0E5DC038EF58
 ```
 
 https://mybot314.ru/tekegram_catalog/

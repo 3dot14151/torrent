@@ -1,3 +1,32 @@
+###  Публикация: 1350879   (1003015) от 07.01.2020
+
+SPINNIN' - Best Of 2019 House Mix (2019-12-27) [MP3|320 Kbps] <House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddie Thoneick & Kurd Maverick - Lonely (feat. Errol Reid) (Extended Mix)
+02. Watermat - Preach
+03. Vintage Culture, Fancy Inc - My Girl (Extended Mix)
+04. Watermat & Sneaky Sound System - Raise(   Читать дальше...   )Жанр: HouseПродолжительность: 02:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E76BA83EB5E12FB64C57C340EFEB3A46C5ED406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350875   (1003003) от 07.01.2020
 
 SPINNIN' - 2020 Future Hits (2019-12-30) [MP3|320 Kbps] <Progressive House, Electro House, House>
@@ -671,32 +700,6 @@ MInstAll v.01.08.2021 By Andreyonohov (ISO) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36AC26B7739258FEAF301C0A1E803D2805B38B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350961   (1002682) от 08.01.2020
-
-Google Chrome 79.0.3945.117 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310507A0D25AF518877C4A1768E726EB3F2CC32D
 ```
 
 https://mybot314.ru/tekegram_catalog/

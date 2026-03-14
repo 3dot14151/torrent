@@ -1,3 +1,90 @@
+###  Публикация: 1509120   (795677) от 11.11.2021
+
+Wes Montgomery - Three Classic Albums Plus (1959, 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795677.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. 'Round Midnight [4:58]
+02. Yesterdays [3:20]
+03. The End of a Love Affair [3:18](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 02:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9907EBCE1A1CD2B7596DB91998670401AA0956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509124   (795671) от 11.11.2021
+
+Benny Goodman - Three Classic Albums Plus (1949 - 1958) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795671.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Let's Dance [1:02]
+02. Don't Be That Way [3:14]
+03. Hallelujah [4:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A783161F3B5A048F9D3C2180DF0A7CC5FD366791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509126   (795670) от 11.11.2021
+
+Benny Goodman - Three Classic Albums Plus (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795670.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Introduction into Let's Dance [1:23]
+02. Mission to Moscow [3:01]
+03. Meet the Band [5:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150875B31298242FBAA4EEDD80F5D2D01227DC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012102   (795455) от 29.04.2016
 
 Stan Getz & Joao Gilberto - Getz/Gilberto '76 (2016) Resonance Records[FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova>
@@ -660,93 +747,6 @@ Edward Simon - Poesia (2009) CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC48F247A79DC3F74891F2835C46E81535D6E96F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122883   (793717) от 06.04.2017
-
-Ike Quebec - With A Song In My Heart (1962) Remaster, 2012, EMI Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.How Long Has This Been Going On [06:02]
- 02.With A Song In My Heart [03:59]
- 03.Imagination [05:12]
- 04.What Is There To Say [04:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17935377532AF57AA214494486F6D0F5A63802AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122900   (793713) от 06.04.2017
-
-Billy Cobham - Life & Times (1976) 2000, Wounded Bird [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Life & Times [07:02]
- 02.29 [02:35]
- 03.a) Siesta b) Wake Up!!!!!! That's What You Said [03:58]
- 04.East Bay [06:12](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD176ECEF720765DAE831E8A723FD165C44AD439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386796   (793674) от 30.05.2020
-
-Francis Albert Sinatra & Antonio Carlos Jobim - Francis Albert Sinatra & Antonio Carlos Jobim (1967) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совместный альбом Фрэнка Синатры и Антонио Карлоса Жобима, вышедший в 1967 году. Наряду с оригинальными композициями Жобина, в альбом вошло несколько стандартов из "Great American Songbook" ("Change Partners", "I Concentrate on You", and "Baubles, Bangles and Beads"), исполненные в стиле босса-нова. Аранжировки в исполнении (   Читать дальше...   )01. The Girl From Ipanema (Garota De Ipanema) (3:17)
-02. Dindi (3:30)
-03. Change Partners (2:43)
-04. Quiet Nights of Quiet Stars (Corcovado) (2:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5855C3E63FE3DDA42EAF1E1E75CE2F996B2F26BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

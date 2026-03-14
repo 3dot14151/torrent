@@ -1,3 +1,90 @@
+###  Публикация: 1569858   (447301) от 15.08.2022
+
+The Charlie Byrd Quintet - Du Hot Club De Concord (1995) Concord Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing '59 [4:44]
+02. Golden Earrings [3:45]
+03. Lamentos [4:41]
+04. Carinhoso [4:58](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5CFC3CE2A966A6FBB027017093E96389A50E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248135   (446744) от 18.09.2018
+
+Harold Lopez-Nussa - Un Dia Cualquiera (2018) Mack Avenue [FLAC|Lossless|tracks + .cue] <Cuban Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cimarron [3:52]
+02. Danza de los nanigos [4:30]
+03. Una tarde cualquiera en Paris (To Bebo Valdes) [4:49]
+04. Preludio (To Jose Juan) [3:29](   Читать дальше...   )Жанр: Cuban Jazz, Piano JazzПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547C74CDE46A84D254CBB9CE4872360C127FE179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248131   (446739) от 18.09.2018
+
+Oscar Peterson, Stephane Grappelli - Skol (1979) 1990, Original Jazz Classics [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuages [8:17]
+02. How About You [5:05]
+03. Someone To Watch Over Me [6:59]
+04. Makin' Whoopee [5:23](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63EBF3638C65B808DD07E7F868E2D2A3D2CCB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 706047   (446615) от 01.10.2013
 
 Pharoah Sanders - Spiritual Blessings (2013) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Free Jazz>
@@ -702,93 +789,6 @@ Benny Golson - Horizon Ahead (2016) HighNote Records[FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5161ADD1140783F1BC063913EFE1E950136811E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061803   (444778) от 12.10.2016
-
-Count Basie & His Orchestra - Do You Wanna Jump...? (1938) 1989, Hep[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Georgianna [02:38]
- 02.Blues in the Dark [03:07]
- 03.Sent for You Yesterday [02:57]
- 04.Every Tub [03:19](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533F8F34EE2D321C76C026B28B4ABA6D01DF86CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061820   (444775) от 12.10.2016
-
-James Moody - Young At Heart (1996) Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Young at Heart [04:15]
- 02.Love and Marriage [05:28]
- 03.Nancy (With the Laughing Face) [04:27]
- 04.That Old Black Magic [06:30](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E910CD0DB10EF7A3FF51D762C9DFBBEF5EE219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062032   (444771) от 12.10.2016
-
-Peggy Lee - Black Coffee with Peggy Lee (1953, 1956) Remaster, 1999, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Black Coffee [03:11]
- 02.I've Got You Under My Skin [02:33]
- 03.Easy Living [02:48]
- 04.My Heart Belongs to Daddy [02:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05F121F91762CA7FA7866C8B6C02A0795D57792
 ```
 
 https://mybot314.ru/tekegram_catalog/

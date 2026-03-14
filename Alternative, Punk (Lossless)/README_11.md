@@ -1,3 +1,90 @@
+###  Публикация: 1378037   (848350) от 24.04.2020
+
+Paloma Faith ‎ - Fall To Grace (2012) [FLAC|Lossless|tracks + .cue] <Indie Rock, Blues, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Picking Up The Pieces (04:07)
+02. 30 Minute Love Affair (03:21)
+03. Black & Blue (04:04)
+04. Just Be (04:40)(   Читать дальше...   )Жанр: Indie Rock, Blues, AcousticПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31789501961586F31106D6F29D4BEBFFE8E1B8CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194003   (848044) от 24.04.2020
+
+Paloma Faith - The Architect (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evolution (Feat. Samuel L. Jackson) (01:05)
+02. The Architect (03:25)
+03. Guilty (04:19)
+04. Crybaby (03:54)(   Читать дальше...   )Жанр: Alternative Rock, Indie Pop, SoulПродолжительность: 01:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF3F8E976BADC5E8CC91855E21A9831EDAA9324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499351   (847675) от 02.10.2021
+
+Asking Alexandria - Stand Up And Scream (2009) [FLAC|Lossless|image + .cue] <Post-HardCore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alerion
+02. Final Episode
+03. A Candlelit Dinner With Inamorta
+04. Nobody Don't Dance No More(   Читать дальше...   )Жанр: Post-HardCore, ElectronicПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678AEC4F30FE0E471EC1088D9E597797006C151D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378443   (846605) от 25.04.2020
 
 Paloma Faith ‎ - A Perfect Contradiction (2014) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Blues, Acoustic>
@@ -658,93 +745,6 @@ Bossk - Audio Noir (2016) [FLAC|Lossless|tracks] <Post-Rock, Post-Metal, Sludge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD498A2E779785663C2AA0E58E75C59D999E91FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006505   (826992) от 12.04.2016
-
-Primal Scream - Chaosmosis (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trippin' On Your Love (feat. HAIM) (3:30)
-02. (Feeling Like A) Demon Again (4:35)
-03. I Can Change (3:17)
-04. 100% Or Nothing (feat. HAIM) (3:54)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Britpop, Pop-Rock, Dance-RockПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AA6406C0108C041D160490ABB14A645671D076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115424   (826652) от 18.03.2017
-
-Knight Area - Heaven And Beyond (2017) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbroken 07:06
-02. Dreamworld 05:14
-03. The Reaper 07:11
-04. Box Of Toys 03:47(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE181B4B6A2BF5D6ACDA22245B8862B3A61B30C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115577   (826556) от 18.03.2017
-
-Spoon - Hot Thoughts (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Thoughts (3:49)
-02. WhisperI'lllistentohearit (4:21)
-03. Do I Have to Talk You Into It (4:20)
-04. First Caress (2:49)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEE36AE6B83C51BEC892E03815EA258D03ABC56
 ```
 
 https://mybot314.ru/tekegram_catalog/

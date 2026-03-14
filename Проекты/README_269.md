@@ -1,3 +1,30 @@
+###  Публикация: 953224   (351287) от 03.11.2015
+
+Проекты - VideoHive - Bright Idea Light Bulb Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления вашего логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD41B63D117EFE82B7CE34703269BCDDA37FAF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953236   (351286) от 03.11.2015
 
 Проекты - VideoHive - E3D Title Logo Reveal [AEP]
@@ -649,33 +676,6 @@ VideoHive - Movie Opener - 147082 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC82866C96D8A315891E54E6832D4814D70A2302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953536   (348989) от 04.11.2015
-
-Проекты - VideoHive - Logo Mail [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F497A5F051CB34A462F6958160C9F7EFFA8D88
 ```
 
 https://mybot314.ru/tekegram_catalog/

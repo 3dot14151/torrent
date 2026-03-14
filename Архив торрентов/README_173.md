@@ -1,3 +1,29 @@
+###  Публикация: 1468348   (1017219) от 07.05.2021
+
+UltraISO Premium Edition 9.7.6.3810 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017219.jpg" />
+</div>
+
+
+###  Подробнее
+
+UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA0CF4F973A9006C0C944B7A4C5AFA930C806C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468434   (1017218) от 07.05.2021
 
 Foxit Reader 10.1.4.37651 [Ru/En]
@@ -651,35 +677,6 @@ Numi - необычный калькулятор, который «общает�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A742641B3CEE8C12E1960CC6B80B30757D5C4D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468904   (1016921) от 09.05.2021
-
-L'Orange & Namir Blade - Imaginary Everything (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Instrumental Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imaginary Everything (1:40)
-02. Lyra (2:48)
-03. Nihilism (2:50)
-04. Point to Point (feat. Quelle Chris) (3:32)(   Читать дальше...   )Производство: Mello Music Group - 196006280970Жанр: Hip-Hop, Underground Hip-Hop, Instrumental Hip-HopПродолжительность: 00:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8BEAD9D4045AA681B1339C5295B38E39E12C6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

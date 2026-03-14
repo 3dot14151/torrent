@@ -1,3 +1,147 @@
+###  Публикация: 1697478   (118921) от 06.02.2024
+
+Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brutus - норвежская хард-рок-группа из Осло, Норвегия, образованная в 2007 году. У Brutus тяжелый грув, основанный на блюз-ориентированном рифф-роке 1970-х годов, в духе Black Sabbath, Grand Funk Railroad, Blue Cheer, Pentagram и других.2010 - Brutus
+2013 - Behind The Mountains
+2016 - Wandering BlindЖанр: Hard Rock, Stoner RockПродолжительность: 02:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222B5D0E09D75613B3C530324777BEF7B6A97287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697370   (118915) от 06.02.2024
+
+The Last Dinner Party - Prelude to Ecstasy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prelude To Ecstasy (00:01:36)
+02 - Burn Alive (00:03:21)
+03 - Caesar on a TV Screen (00:03:49)
+04 - The Feminine Urge (00:03:26)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F5BC03ACB37A5BD5EA0BBF7B3B70EE2FC28E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697367   (118905) от 06.02.2024
+
+Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118905.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Skøgen Skulle Dø
+A2 Hævnen
+A3 Onde Børn
+A4 Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697414   (118903) от 06.02.2024
+
+Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118903.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vølvens Spådom
+A2 Jeg Er Guden, I Er Tjenerne
+A3 Skøgen Skulle Dø
+A4 Byssan Lull(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF39500BFC0B3C0B038E5EE2892A261311FD103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697364   (118901) от 06.02.2024
+
+Tyrants - Warlord (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Speed, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Neath The Red Sun (00:05:10)
+02 - Fire Rain (00:04:28)
+03 - Squad 731 (00:02:48)
+04 - Tyrant's Reign (00:03:49)(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7047F171D2FA4A188C45B883DED4118900F3121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697486   (118898) от 06.02.2024
 
 Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
@@ -599,151 +743,6 @@ A4 Blood, Tears, Dust(   Читать дальше...   )Жанр: Gothic Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF7F1808F5780DA0A7AB7392D1EEB6B5E331B164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698889   (118184) от 11.02.2024
-
-Al Di Meola - Flesh on Flesh (2002) [DSD 2.0, DST 5.1 1bit/2822,4kHz |SACD-R] <Jazz, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118184.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Zona Desperata (9:23) - Composed and arranged by Al Di Meola
-Al Di Meola, Godin electric-acoustic, Conde acoustic, VG88, percussion-bombo
-Gonzalo Rubalcaba, Fender Rhodes
-Anthony Jackson, Fodera electric contra bass(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9C2B395DC04D68BABB27BEECFD41848222C71A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698901   (118116) от 11.02.2024
-
-Heretic - Filthy Hymns for Sleazy Demons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Black 'n' Roll>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118116.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Boys from the Void
-2. Pandemonium Nights
-3. Demonizing Womanizer
-4. Holy Death Awaits(   Читать дальше...   )Жанр: Black Metal, Black 'n' RollПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123C47D27A5A89E358080A085A0875D003BAD085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698778   (118093) от 11.02.2024
-
-My Life Story - Loving You is Killing Me (2024) [FLAC 24/44.1,96|Lossless|WEB-DL|tracks] <Britpop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Running Out Of Heartbeats
-02 – I’m a God
-03 – Tits & Attitude
-04 – Numb Numb Numb (Album Version)(   Читать дальше...   )Жанр: Britpop, Pop RockПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158AA031BCFBE7B05812014B2E4DE6B9D5945964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698905   (118079) от 11.02.2024
-
-Minuit 10 - Sans Bruit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goutte à Doute [00:03:44]
-02. (17h00) [00:00:40]
-03. Sépia [00:04:59]
-04. (18h00) [00:01:29](   Читать дальше...   )Жанр: Progressive Rock, Jazz RockПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA4ABC0E76DCCAC78D5D2C640A5C7E06F2C7E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517531   (118070) от 12.02.2024
-
-Nickelback - Studio albums (11 releases) (1996-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Grunge, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nickelback — канадская рок-группа, основанная в 1995 году в городе Ханна. Группа состоит из гитариста и вокалиста Чеда Крюгера; гитариста, клавишника и бэк-вокалиста Райана Пика; басиста Майка Крюгера и барабанщика Дэниеля Адэра. Название группы образовано от англ. Here’s your nickel back. — «Вот ваша сдача». Или дословно: «Вот ваши пять центов сдачи». Никель (англ. (   Читать дальше...   )1996 - Curb
-1999 - The State
-2001 - Silver Side Up
-2003 - The Long RoadЖанр: Post-Grunge, Hard RockПродолжительность: 10:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AA1ACD4209DAC660AACEA2DA8438DD13010882
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1429381   (176760) от 06.12.2020
+
+Ани Лорак - Неизданное (2020) [AAC|~254 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_176760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бегущая по волнам (2:08)
+02. Бывшая (1:28)
+03. Дождь для нас (3:18)
+04. Мышка (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1EE542C70A6ECAF62C4DF2E8095DCED6EFFEE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429567   (176664) от 06.12.2020
 
 Dua Lipa - Future Nostalgia (2020) [AAC|~311 Kbps] <Pop>
@@ -713,35 +742,6 @@ VA - The Forest Chill Lounge, Vol. 5 (2014) [AAC|~318 Kbps] <Chillout, Lounge, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCED5D35D46B988E30F6D507AAE1FDB0B39CCF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430456   (173733) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 7 (2015) [AAC|~305 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Waiting for the Horizon (Dreamful Sky Mix) (5:23)
-02. Jean Mare - Sine Cascading (Sunset Chill Mix) (4:24)
-03. The Space Ensemble Project - Galileo in Minds (Great Chillout Mix) (5:48)
-04. Guardians of Secret - Guinean Warmth (Mystic Voice Mix) (4:59)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611DD723571F58742C4BCFCA32B9CF1179F38A91
 ```
 
 https://mybot314.ru/tekegram_catalog/

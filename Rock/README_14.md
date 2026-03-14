@@ -1,3 +1,32 @@
+###  Публикация: 1371614   (890082) от 31.03.2020
+
+Брати Гадюкіни - Сміх і гріх (2019) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сміх і гріх (03:44)
+02. Біжу по граблях (03:58)
+03. Сафарі (04:01)
+04. Сивина в бороду (04:15)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476408782BE9F66EDEDDD1C24193A9B94893704A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494453   (889351) от 07.09.2021
 
 Proud Peasant - Peasantsong (2021) [MP3|320 Kbps] <Progressive-Rock, Symphonic-Prog>
@@ -721,41 +750,6 @@ VA Rock Ballads - Сборник (2009) [MP3|320 kbps]<Classic Rock>
 08. The Beatles - And I Love Her (2:28)
 09. Rare Bird - Sympathy (2:45)
 10. The Beatles - I'll Be Back (2:20)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187806   (873233) от 30.03.2010
-
-Bon Jovi - Best Ballads (1997) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blaze Of Glory
-02. Diamond Ring
-03. Always
-04. Never Say Good-Bye
-05. Living In Sin
-06. This Ain't A Love Song
-07. Bed Of Roses
-08. Dying Ain't Much Of A Living
-09. Wanted Dead Or Alive
-10. One Light Burning(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:53
 
 ## Скачать торент
 ```bash

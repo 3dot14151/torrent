@@ -1,3 +1,32 @@
+###  Публикация: 1609435   (1043274) от 03.02.2023
+
+Eric Alexander - Revival Of The Fittest (2009) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival [7:25]
+02. My Grown-Up Christmas List [7:35]
+03. The Island [8:46]
+04. Too Late Fall Back Baby [8:15](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6861144D342FE47B1B094088EA257B4529821407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609440   (1043270) от 03.02.2023
 
 Eric Alexander - The Second Milestone (2001) Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -716,35 +745,6 @@ John Coltrane - The Complete Ray Draper Quintet Sessions (1957 - 1958) 2014, Acr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4054158F7CEC2D697B9C3189C66B696033BD2BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611631   (1041163) от 12.02.2023
-
-Simone Kopmajer - With Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Look of Love
-02. How Wonderful You Are
-03. Until It's Time for You to Go
-04. I Can't Make You Love Me(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22BDC5A4BDAD1AA093E9F2EC7825C38CC767603
 ```
 
 https://mybot314.ru/tekegram_catalog/

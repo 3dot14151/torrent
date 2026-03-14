@@ -1,3 +1,119 @@
+###  Публикация: 1447706   (1031660) от 14.02.2021
+
+VA - The Glory Of Love: A 1990 Super Popgala (1990) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну какой ещё релиз "запиливать" в День всех влюбленных? Конечно - "Слава любви"! И хоть нидерландское отделение Polydor выпустило эти баллады о любви в далёком 1990 году, надеюсь, в этом году они помогут вам найти общий язык с любимыми, кто ещё не успел этого сделать и укрепить отношения остальным. В путь, по волнам любви...01. Linda Ronstadt feat. Aaron Neville - Don’t Know Much  (3:36)
+02. Phil Collins - Groovy Kind of Love  (3:32)
+03. Carly Simon - It’s Hard to Be Tender  (3:35)
+04. Van Morrison - Have I Told You Lately That I Love You  (4:22)(   Читать дальше...   )Релиз состоялся: 1990Жанр: Pop, Rock, BalladПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91FAD2BB15E5B9DD09B3D20A1D866A33515C2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447601   (1031659) от 14.02.2021
+
+VA - Easy 80s Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - La Isla Bonita (02:59)
+02. Talisha Karrer - Only You (02:45)
+03. Shannon & Keast - Arthur’s Theme (Best That You Can Do) (03:17)
+04. Talisha Karrer - Live to Tell (04:48)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908C62821A21DC07DFE131A0C61E024D60D5C70B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447797   (1031544) от 14.02.2021
+
+Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Nostalgia (3:04)
+02. Don't Start Now (3:03)
+03. Cool (3:29)
+04. Physical (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F94B268CCA8F6FAB69CE555063C6AFA8D33169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447872   (1031352) от 15.02.2021
+
+Pentatonix - The Lucky Ones (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Now
+02. Love Me When I Don’t
+03. Coffee In Bed
+04. Be My Eyes(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FD2381D6D787FDA34F29BF284F75566FB8077E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447880   (1031329) от 15.02.2021
 
 Sia - Music (Songs From And Inspired By The Motion Picture) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -628,122 +744,6 @@ Natasha St-Pier - Дискография (11 альбомов) (1996-2018) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65E25E9252040B55395937B145F8581E0C7B79B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454848   (1025987) от 17.03.2021
-
-Roosevelt - Polydans (2021) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Way Out (04:35)
-02. Strangers (03:41)
-03. Feels Right (04:35)
-04. Closer To My Heart (04:44)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED89B0D759C0C2715244FBAF5129BE4F10E5F2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455123   (1025814) от 18.03.2021
-
-Doves - The Universal Want (2020) Japan / Bonus Tracks [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carousels (04:51)
-02. I Will Not Hide (04:15)
-03. Broken Eyes (04:15)
-04. For Tomorrow (05:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7660710B4E67EE6548F5777F3380579E0BB3A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455580   (1025622) от 19.03.2021
-
-Roosevelt - Collection 6 Releases (2013-2021) [FLAC|Lossless|tracks + .cue, tracks] <EDM, Indie Pop, Nu Disco, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Way Out (4:35)
-02. Strangers (3:41)
-03. Feels Right (4:35)
-04. Closer to My Heart (4:44)(   Читать дальше...   )Жанр: EDM, Indie Pop, Nu Disco, Synthpop |Продолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A6BD97B7D3CD3E2DD7C6DF4D662839E9C7B085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455737   (1025491) от 20.03.2021
-
-Воnniе Туlеr - Тhе Веst Is Yеt То Соmе (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Is Yet To Come
-02. Dreams Are Not Enough
-03. Hungry Hearts
-04. Stuck To My Guns(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBDE3C5BC53B2D0C3CD48194341039DFA914CE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

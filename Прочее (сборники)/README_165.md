@@ -1,3 +1,32 @@
+###  Публикация: 1434887   (148283) от 26.12.2020
+
+VA - Anjunabeats The Yearbook 2020 (Mixed) (2020) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148283.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+
+01. Jordin Post - New Day (Mixed)
+02. Spada - Part Of Me (Mixed)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F526FC07406C47CB7A313E513F226AF53BEF08DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271717   (147990) от 24.12.2018
 
 VA - Nightparty 90-х-Ностальгия (2018) [MP3|256-320 Kbps] <Dance, Euro-house, Club>
@@ -716,35 +745,6 @@ VA - Lyrical Soul Ballads (2018) [MP3|320 Kbps] <Funk, Soul, Ballads>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33877EAB039B1208B63ED9B39A9EE3AF9A9749E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087781   (144440) от 28.12.2016
-
-VA - Guitar Collection 10 (2016) [MP3|320 Kbps] <Blues, Acoustic, Metal >
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144440.jpg" />
-</div>
-
-
-###  Подробнее
-
-001|  Mark Cook - Song for Wendy  (01:43) 
-002|  Mike Howe - Lichens  (03:55) 
-003|  Tramline - Mazurka  (02:46) 
-004|  Toundra - Strelka  (07:47) (   Читать дальше...   )Жанр: Blues, Acoustic, MetalПродолжительность: 08:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537F7014002CAA3674D824BDFE37DCF44C7E77C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

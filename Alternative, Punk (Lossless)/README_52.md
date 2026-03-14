@@ -1,3 +1,90 @@
+###  Публикация: 1623501   (238401) от 02.04.2023
+
+nothing,nowhere. - Void Eternal (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Rap-Rock, Hip-Hop, Indie, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ANX13TY [00:03:26]
+02. TRAG3DY (feat. WILL RAMOS) [00:03:25]
+03. PSYCHO_PSYCHIATRY (feat. SEEYOUSPACECOWBOY) [00:03:48]
+04. CHR0MAKILL3R [00:03:41](   Читать дальше...   )Жанр: Alt.Rock, Rap-Rock, Hip-Hop, Indie, ExperimentalПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F3FDE92099C76EE47407032FE6B283D8E67ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580839   (238034) от 03.10.2022
+
+No Faith in Fortune - Dysthymia (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Symphonic, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Missed Calls [00:00:47]
+02. Self Medication [00:04:04]
+03. Crusader [00:03:39]
+04. As Heaven Knelt Before Hell [00:03:41](   Читать дальше...   )Жанр: Metalcore, Symphonic, ElectronicПродолжительность: 00:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59685039C5A3FB37F98FE214678B45D670D15115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624875   (237996) от 08.04.2023
+
+All Faces Down - Awol (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AWOL [00:02:54]
+02. Sick [00:03:02]
+03. Done Hiding [00:03:14]
+04. Kerosene [00:02:51](   Читать дальше...   )Жанр: Post-Hardcore, Alt.RockПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6583A86F27DA36ED48AE85B95E2C43A8817FB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581825   (237952) от 07.10.2022
 
 Twiztid - Songs of Samhain, Vol. III: Cult of Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Horrorcore Rap>
@@ -659,93 +746,6 @@ Cultus Black - Cultus Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Gr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC272675704A36068CD6E381F6BCBE68E41B50DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618553   (235455) от 12.03.2023
-
-For The Fallen Dreams - For The Fallen Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RE-Animate (3:19)
-02. What If (3:58)
-03. Last One Out (3:28)
-04. Without You (3:28)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A75B37D4A001D15B664D3E122A0F6128B5249C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636897   (235331) от 01.06.2023
-
-The Heavy - AMEN (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricane Coming (3:33)
-02. Ain’t A Love (3:30)
-03. Bad Muthafucker (3:49)
-04. I Feel The Love (3:00)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F1496EE794FBD282F2E667D0C5CD0360AA035A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620273   (235073) от 19.03.2023
-
-The Lords Of Altamont - To Hell With Tomorrow The Lords Are Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Garage, Retro Rock, Psychedelic Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - To Hell With Tomorrow (00:00:17)
-02 - I Said Hey (00:03:03)
-03 - Going Downtown (00:03:03)
-04 - Going Nowhere Fast (00:03:29)(   Читать дальше...   )Жанр: Garage, Retro Rock, Psychedelic Rock, PunkПродолжительность: 00:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9083F623DC860D95F6FEB93CDE9802862E374D33
 ```
 
 https://mybot314.ru/tekegram_catalog/

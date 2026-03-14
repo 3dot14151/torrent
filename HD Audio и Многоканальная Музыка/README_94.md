@@ -1,3 +1,148 @@
+###  Публикация: 1698889   (118184) от 11.02.2024
+
+Al Di Meola - Flesh on Flesh (2002) [DSD 2.0, DST 5.1 1bit/2822,4kHz |SACD-R] <Jazz, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118184.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zona Desperata (9:23) - Composed and arranged by Al Di Meola
+Al Di Meola, Godin electric-acoustic, Conde acoustic, VG88, percussion-bombo
+Gonzalo Rubalcaba, Fender Rhodes
+Anthony Jackson, Fodera electric contra bass(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9C2B395DC04D68BABB27BEECFD41848222C71A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698901   (118116) от 11.02.2024
+
+Heretic - Filthy Hymns for Sleazy Demons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Black 'n' Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118116.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Boys from the Void
+2. Pandemonium Nights
+3. Demonizing Womanizer
+4. Holy Death Awaits(   Читать дальше...   )Жанр: Black Metal, Black 'n' RollПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123C47D27A5A89E358080A085A0875D003BAD085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698778   (118093) от 11.02.2024
+
+My Life Story - Loving You is Killing Me (2024) [FLAC 24/44.1,96|Lossless|WEB-DL|tracks] <Britpop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Running Out Of Heartbeats
+02 – I’m a God
+03 – Tits & Attitude
+04 – Numb Numb Numb (Album Version)(   Читать дальше...   )Жанр: Britpop, Pop RockПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158AA031BCFBE7B05812014B2E4DE6B9D5945964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698905   (118079) от 11.02.2024
+
+Minuit 10 - Sans Bruit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goutte à Doute [00:03:44]
+02. (17h00) [00:00:40]
+03. Sépia [00:04:59]
+04. (18h00) [00:01:29](   Читать дальше...   )Жанр: Progressive Rock, Jazz RockПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA4ABC0E76DCCAC78D5D2C640A5C7E06F2C7E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517531   (118070) от 12.02.2024
+
+Nickelback - Studio albums (11 releases) (1996-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Grunge, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nickelback — канадская рок-группа, основанная в 1995 году в городе Ханна. Группа состоит из гитариста и вокалиста Чеда Крюгера; гитариста, клавишника и бэк-вокалиста Райана Пика; басиста Майка Крюгера и барабанщика Дэниеля Адэра. Название группы образовано от англ. Here’s your nickel back. — «Вот ваша сдача». Или дословно: «Вот ваши пять центов сдачи». Никель (англ. (   Читать дальше...   )1996 - Curb
+1999 - The State
+2001 - Silver Side Up
+2003 - The Long RoadЖанр: Post-Grunge, Hard RockПродолжительность: 10:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AA1ACD4209DAC660AACEA2DA8438DD13010882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670202   (117984) от 12.02.2024
 
 Anathema - Studio Albums (15 releases) (1992-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal, Progressive Rock>
@@ -600,148 +745,6 @@ Pain of Salvation - The Perfect Element- Part I (2000) Anniversary Mix, 2020, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E5C9B1EEB6E55F938FF680B0EAB2DEB3B5C6C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699826   (117433) от 15.02.2024
-
-Pain of Salvation - Remedy Lane (2002) Reissue, 2014, Inside Out Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of Two Beginnings (02:24)
-02. Ending Theme (04:59)
-03. Fandango (05:52)
-04. A Trace of Blood (08:17)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEFC1AEB7FE0CD0F2968C7AD06384A0D8C0702A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699899   (117399) от 15.02.2024
-
-Birds of Vale - Limbo (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chora (4:47)
-02. Indian River (4:46)
-03. Howler (4:58)
-04. Limbo (2:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E4CD93F36ABC3D9DF4E1B33886862DFDCAA643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700117   (117383) от 15.02.2024
-
-Honeymoon Suite - Alive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive (2:42)
-02. Find What You're Looking For (3:15)
-03. Done Doin Me (2:53)
-04. Not Afraid To Fall (2:54)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F580A0CF2DB7F1036C8ED3E170AFBC5B28C4ED7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699990   (117378) от 15.02.2024
-
-Моды - Медленно Двигаюсь Вперёд (2018) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117378.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Медленно Двигаюсь ВперёдЖанр: RockПродолжительность: 00:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D42B96FC708AD5CF58E9E7C4E00F7B0AE8F1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699894   (117372) от 15.02.2024
-
-Ahmed Mouici - Tribute To Goldies, Vol II (Pinte de blues production) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hound Dog (4:08)
-02. Walking By Myself (3:19)
-03. I Can t Be Satisfied (3:25)
-04. I Like It This Way (3:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEAC49E378F5A1B97D6C6A1D9EC284BCAFCFD29B
 ```
 
 https://mybot314.ru/tekegram_catalog/

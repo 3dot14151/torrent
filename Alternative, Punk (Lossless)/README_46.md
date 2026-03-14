@@ -1,3 +1,90 @@
+###  Публикация: 1583033   (314556) от 13.10.2022
+
+Once Was Never - The Great Dying (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just a Number [00:03:17]
+02. State of Mind [00:03:13]
+03. The Heartless [00:04:18]
+04. Slaves to the Pattern [00:03:21](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0173AF96E04367F64DBF8695C4AE0F7A3BDDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583114   (314530) от 13.10.2022
+
+Suffer UK - Sorrow We Sow, the Hatred We Know (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infernal Monologue [00:05:31]
+02. Escapism [00:03:53]
+03. Falsehood [00:04:11]
+04. Unhallowed Justice [00:03:13](   Читать дальше...   )Жанр: Beatdown DeathcoreПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7039BA88128281ADFE47DDAD3513F65663CA3DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260215   (313990) от 06.11.2018
+
+VA - Chef Aid - The South Park Album (1998) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, Breakbeat, Gangsta, Grunge, House>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primus - South Park Theme (00:40)
+02. Ozzy Osbourne; DMX; 'Ol Dirty Bastard; Crystal Method; Fuzzbubble - Nowhere To Run (04:40)
+03. Chef; Isaac Hayes - Chocolate Salty Balls (P.S. I Love You) (03:55)
+04. Rancid - Brad Logan (02:16)(   Читать дальше...   )Жанр: Alternative Rock, Breakbeat, Gangsta, Grunge, HouseПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364725F227533637585EBB6DA3A7791D7A34AA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260475   (312050) от 07.11.2018
 
 Daniel Lanois - For the Beauty of Wynona (1993) American Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Folk Rock>
@@ -658,90 +745,6 @@ Billy Idol - Rebel Yell (1983) remaster, 2010, Audio Fidelity [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262619   (293604) от 16.11.2018
-
-Aqualung - Aqualung (2002) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange and Beautiful (I'll Put a Spell on You) [03:52]
-02. Falling Out of Love [04:01]
-03. Good Times Gonna Come [04:28]
-04. If I Fall [04:55](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A0BC0142E04DDCA960D4F84BBABF85A43B9A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 421491   (293581) от 11.12.2011
-
-Sunrise Avenue - 2 альбома (2006, 2011) [FLAC|Lossless]<Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop-RockПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334598   (293362) от 30.10.2019
-
-Chelsea Wolfe - Birth of Violence (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mother Road (04:20)
-02. American Darkness (04:48)
-03. Birth Of Violence (04:20)
-04. Deranged For Rock & Roll (03:31)(   Читать дальше...   )Жанр: Alternative Rock, AcousticПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8A3AD43676D92E7E8FDFB18ACC3F9DA9E67FF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

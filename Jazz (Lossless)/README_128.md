@@ -1,3 +1,90 @@
+###  Публикация: 910438   (622022) от 20.06.2015
+
+Mario Biondi - Beyond (2015) /[FLAC|tracks|WEB-DL]<Funk, Soul, Disco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Up Your Eyes
+02. All Of My Life
+03. Love Is A Temple
+04. All I Want Is You(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1929CAACE58DF20C492DB0097D24E92A8EF142D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036335   (621172) от 20.07.2016
+
+Stephane Grappelli - Jazz Collection (1973, 1974, 1989) 1989, Object Enterprises[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.More than you Know [04:15]
+ 02.Et Maintenant [03:46]
+ 03.I Found a New Baby [06:01]
+ 04.It's Only Paper Moon [03:44](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDFF7F518B3A04A291E79FC15968179AD41A215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229928   (620971) от 09.06.2018
+
+Blue Mitchel - Blue Mitchel (1971) 2014, Boplicity Records [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Village [6:15]
+02. Blues For Thelma [7:05]
+03. Queen Bey [4:50]
+04. Are You Real [7:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281F9F46C7370FAA927E1A8A2D74557B328EFF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229933   (620970) от 09.06.2018
 
 Andre Hodeir - Essais Par Le Jazz Groupe De Paris (1949 - 1954) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
@@ -658,93 +745,6 @@ Duke Ellington - Live in Zurich, Switzerland 2.5.1950 (2007) [FLAC|tracks]<Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9210521FA79A2B4DDDEEC731099D80D8385FBB65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145943   (618353) от 27.06.2017
-
-Albert Sanz Trio - O Que Sera (2012) Nuba Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soberana Rosa [04:51]
-02. O Que Sera [06:07]
-03. Antes Que Seja Tarde [05:37]
-04. Outros Sonhos [05:34](   Читать дальше...   )Жанр: Latin Jazz, Post-Bop, Piano JazzПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A3DF5E8E71D5E309946CAA612207A67A6FA637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145941   (618242) от 27.06.2017
-
-The Joe Newman Septet - The Midgets (1956) 1998, BMG Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Moon At All [02:50]
-02. Valerie [02:58]
-03. My Dog Friday [03:32]
-04. Scooter [02:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9C1523774ADC1CF1083E4757B85FEDBDC564AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145679   (618229) от 27.06.2017
-
-The Modern Jazz Quartet - Fontessa - The Little Comedy (1960) Remaster, 1996, Giants Of Jazz [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Little Comedy: La Cantatrice-Harlequine, Fontessa (24:00)
-02. Cylinder (6:36)
-03. A Social Call (4:55)
-04. How High The Moon (8:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE6CA128824C7A1C962C284E3EF5385BC6B75B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

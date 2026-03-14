@@ -1,3 +1,32 @@
+###  Публикация: 1498957   (237525) от 14.10.2021
+
+VA - Café Deluxe Chillout - Nu Jazz / Lounge (2013) [AAC|~316 Kbps] <Easy Listening, Lounge, Nu Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marie Therese - When You Come Home (4:23)
+02. Nightzoom - So Much (Short Plugged Vocal Remix) (3:08)
+03. The Compunist - Deep Funk (4:49)
+04. Dave Neville - The Sun Is Coming (Smooth Jazz Mix) (6:47)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DC55306FEF6871BE47E7826FDFBE677F5EE468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497395   (237514) от 14.10.2021
 
 VA - Buddhatronic - the Compilation, Vol. 6 (2021) [AAC|~299 Kbps] <Downtempo, Lounge, Chill Out>
@@ -716,35 +745,6 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 1 (2020) [AAC|~326 Kbps] <Lounge, Chill 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57494F3FF0D9C4E21635F9D3ED9A66FB24AD85D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505847   (236488) от 28.10.2021
-
-VA - Sun Shiners by Smooth Deluxe, Vol. 4 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fenena Garcia Mijas - Sleeping Beauty (6:00)
-02. 351 Lake Shore Drive, Genius Jane - Time (5:09)
-03. Aiemo, Martha - Only Illusion (3:44)
-04. Yantra Mantra - Blaze and Glory (4:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53E07499FDD458EDAD4110B2BE886F79F444F7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

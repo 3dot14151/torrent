@@ -1,3 +1,148 @@
+###  Публикация: 1695252   (120449) от 28.01.2024
+
+Mitch Ryder - The Roof Is On Fire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Betty's Too Tight (00:05:41)
+02 - Tough Kid (00:06:42)
+03 - Subterranean Homesick Blues (00:05:14)
+04 - Bang Bang (00:04:07)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B285F7865134F5F0133897713502BD29878F933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695119   (120430) от 28.01.2024
+
+Bobby Darin - Born Walden Robert Cassotto (1968) [FLAC 24/192|Lossless|WEB-DL|tracks] <Folk-Rock, Country Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120430.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Questions
+2. Jingle Jangle Jungle
+3. The Proper Gander
+4. Bullfrog(   Читать дальше...   )Жанр: Folk-Rock, Country FunkПродолжительность: 00:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B329A64D5AF84BC1133524AAB09A6738F6C5351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695280   (120427) от 28.01.2024
+
+Hyloxalus - Make Me The Heart Of The Black Hole (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - He Dies In The Swamp (00:03:44)
+02 - Dream Chasm (00:06:18)
+03 - Beyond The Soil (00:05:46)
+04 - Undead In Ward 6 (00:06:31)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F875DDB3E2D1F60EC08600CAC9CF683B095BD452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695120   (120425) от 28.01.2024
+
+Bobby Darin - Commitment (1969) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk-Rock, Country Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me & Mr. Hohner
+02. Sugar Man
+03. Sausalito (The Governors Song)
+04. Song for a Dollar(   Читать дальше...   )Жанр: Folk-Rock, Country FunkПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF96CAFD8B701CFDFCB6647B03C033D1AE5DE14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695241   (120423) от 28.01.2024
+
+Mago De Oz - Alicia En El Metalverso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Celtic-Folk-Power Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alicia en el metalverso (12:01)
+02. El sombrerero loco (4:31)
+03. El metalverso (4:56)
+04. Seremos huracán (4:57)(   Читать дальше...   )Жанр: Celtic-Folk-Power Metal, Hard RockПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7246EDC2B6D41AB58C4E0DA18C6C53BE3F465D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695256   (120417) от 28.01.2024
 
 Rage Of Light - Studio Albums (4 releases) (2016-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic/Melodic Death/Groove Metal>
@@ -599,151 +744,6 @@ Avenged Sevenfold — американская метал-группа из Ха
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F436D16D58B42632B7C4B0722617C550EE1214D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696199   (119815) от 01.02.2024
-
-Romantic Candlelight Orchestra, Love Music Zone - Candlelit Piano Fancy Romantic Dinner, Night Love Songs, Instrumental Piano (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk by the Moonlight (3:53)
-02. Paris Jazz Night (4:05)
-03. Love Street (4:05)
-04. Soft & Smooth Atmosphere (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D66A42CA7BDE544CFC81FE69EB5C3F48839497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696208   (119813) от 01.02.2024
-
-Soft Jazz Music, Jazz Music Zone - Vintage Jazz at Twilight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Mood (4:01)
-02. My Reverie (3:12)
-03. Junctinoin (3:20)
-04. Twilight Serenade (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7680A8F69B851FAA10FC311D2E4C1C94041B3B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695984   (119803) от 01.02.2024
-
-Tom Waits - The Island Years (1983-1993) (2023 Remaster) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky Day Overture (2023 Remaster) (2:27)
-02. The Black Rider (2023 Remaster) (3:21)
-03. November (2023 Remaster) (2:54)
-04. Just The Right Bullets (2023 Remaster) (3:35)(   Читать дальше...   )Жанр: Experimental, rock, blues, jazzПродолжительность: 04:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CE6A345597612A063271DEEE24B40354F7A01F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696206   (119781) от 01.02.2024
-
-Smooth Jazz Music Academy - Winter's Warmth Relaxing Jazz with Hot Chocolate (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last December (3:39)
-02. Play Me Like a Guitar (3:16)
-03. Her Hazle Eyes (3:29)
-04. Morning Fun Jazz (3:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F9A3D657201E0A9B15DB76B200FB75305E68D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696219   (119779) от 01.02.2024
-
-VA - Soft Lights Romantic Night Jazz & Sensual Flamenco Guitar to Ignite Your Senses, Smooth Night Jazz Music (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Love Songs Academy - Sultry Flamenco Guitar (3:45)
-02. Jazz Guitar Club - Moonlight Magic (3:26)
-03. Jazz Night Music Paradise - Love in Summer (2:52)
-04. Romantic Love Songs Academy - Temptation Sensation (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA0692A28D27C0A20764FA36531FB9313D61EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

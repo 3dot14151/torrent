@@ -1,3 +1,148 @@
+###  Публикация: 1709092   (112897) от 23.03.2024
+
+VA - Gym Cardio Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta - I’m Good (Blue) (2:55)
+02. Ava Max - Kings & Queens (2:42)
+03. Dua Lipa - Levitating (feat. DaBaby) (3:23)
+04. Campbell - Would You (Go to Bed with Me) (2:00)(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FEF653CB3E146C2BF58526EB2445E6D702F747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708907   (112891) от 23.03.2024
+
+VA - Bravo Hits 14 (1996) CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. President - I Give You My Heart                                [03:37]
+   02. Masterboy - Mister Feeling                                         [03:53]
+   03. Garcia - Vamonos (Hey Chico Are You Ready)                         [03:55]
+   04. B.B.E. - Seven Days and One Week                                   [04:33](   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6516C299B5C0B58A15F6F7FFC72C8ED645F6D159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709098   (112877) от 23.03.2024
+
+PNAU - Hyperbolic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AEIOU (feat. Empire Of The Sun)
+02. The Hard Way (feat. Khalid)
+03. Solid Gold (feat. Kira Divine, Marques Toliver)
+04. All The Time(   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A62316F9BC75DC072D64C6451B0FB81FEC50958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710967   (112590) от 28.03.2024
+
+Beyonce - Cowboy Carter (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - AmerIIcan Requiem
+02 - BlackbIIrd
+03 - 16 Carriages
+04 - Protector(   Читать дальше...   )Жанр: Pop, Soul, CountryПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7398DF616D2D57A104C1A16243A640B5AFAC5C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711903   (112294) от 01.04.2024
+
+Caroline Polachek - Desire, I Want To Turn Into You (2023) [FLAC|Lossless|tracks + .cue] <Electronic, pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To My Island (3:53)
+02. Pretty In Possible (3:36)
+03. Bunny Is A Rider (3:14)
+04. Sunset (2:43)(   Читать дальше...   )Жанр: Art pop, alt-pop, electronicПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC1538E18300F328F8ED4FCD474858D81A5A462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712068   (112285) от 01.04.2024
 
 Norah Jones - Visions (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Jazz Vocal>
@@ -600,151 +745,6 @@ Billie Piper - Walk Of Life (2CD) (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCB93021FC070AB738D0B871385C2E26B01BD2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735279   (106986) от 07.07.2024
-
-Maya Vik - Hustlebot (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Soul & Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change Your Mind [00:01:25]
-02. C.Y.M. (Let it go) [00:04:31]
-03. Swipe [00:03:29]
-04. Body Language (feat. Bernhoft) [00:03:48](   Читать дальше...   )Жанр: Synthpop, Soul & FunkПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14856BC123BBA26CDAD0999265D8F3B47580D3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735278   (106984) от 07.07.2024
-
-The Rah Band - Orkestronique (2024) [FLAC|Lossless|WEB-DL|tracks] <synthpop, space disco, britfunk, jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violine [00:06:27]
-02. Steps to the Sun [00:06:43]
-03. Digital Native (Part One) [00:05:38]
-04. Sea of Dreams [00:06:57](   Читать дальше...   )Жанр: synthpop, space disco, britfunk, jazzПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066A4F5A2FD42AD006EF52E5BA07E3AF80F8DEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735185   (106968) от 07.07.2024
-
-Sunshine Makers - Sunshine Makers (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Away [00:03:33]
-02. The Dream [00:03:01]
-03. Got to be Good [00:02:33]
-04. Nothing Lasts Forever [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18D29F14D6B7CB7D8042D3C8F2E469FF7BEC0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735383   (106942) от 08.07.2024
-
-Duran Duran - Meet El Presidente (1987) Remaster, 2024, Parlophone Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet El Presidente (Single Remix) [00:03:43]
-02. Vertigo (Do the Demolition) [00:04:44]
-03. Meet El Presidente [00:04:18]
-04. Meet El Presidente (Meet El Beat) [00:05:33](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCBFABC3DB26B64E42F1BA08EDCE2230E62A0363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735389   (106859) от 09.07.2024
-
-Drupi - The Best of Drupi (2007) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		Soli	4:39
-02		Piccola E Fragile	3:57
-03		Ridammi Il Sole	4:43
-04		Vado Via	4:45(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C560B6D08204BF60F9DAEE2FA9720E06BB8F71
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1129842   (720547) от 29.04.2017
+
+Siberian Heat & Elen Cora - Brilliants: Best Of US (2015) LP, Compilation [OGG|312-322 Kbps] <Disco, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720547.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Siberian Heat - Pick Up The Phone (ZYX Summer Mix) 7:20
+A2. Siberian Heat - Don't Stop The Music (Special Zyx Maxi Version) 7:53
+A3. Siberian Heat - Shadows (ZYX Long Mix) 6:34
+B4. Siberian Heat - Magic Blue Eyes (Maxi Version) 8:56(   Читать дальше...   )Жанр: Disco, Italo-Disco, Synth-popПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A377995A8259DB3EACCBEE30E11C890C7E7160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129517   (720333) от 29.04.2017
+
+Филипп Киркоров - 4 альбома (1990-1993) Vinil-Rip [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночной бал (К. Кравчик — Л. Рубальская)
+02. Кармен (3. Попова — О. Серебренников)
+03. Бегущая по волнам (В. Казасян — И. Резник)
+04. Не смотри ты на часы (А. Иосифов — Л. Дербенёв)(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1790380B961E31C85569892E884A5C41E8DDA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285811   (718923) от 27.02.2019
 
 Lika Star - The Best (2019) [MP3|320 Kbps] <Pop>
@@ -689,64 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB0DB8745BB31E8D1424D015AE6C08876CF629F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 336411   (680321) от 13.05.2011
-
-Кай Метов - Золотая Коллекция (2011) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты изменила…жизнь мою
-02. Position 2
-03. Одиноким будет вечер
-04. Сделай мне приятно(   Читать дальше...   )Жанр: PopПродолжительность: 03:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785CD2700D636F9971590395B422B4659FADBB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 677810   (671699) от 10.07.2013
-
-Игорёк - Remixнём (2013) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_671699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игорёк - Подождём (Dance Edit) (3:37)
-02. Игорёк feat Глебыч - В этот вечер (2:56)
-03. Игорёк - Ночные Огоньки (Dance Edit) (3:36)
-04. Игорёк - Бросай Курить (Dance Edit) (4:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D10A6582CA406E096DADFA35F5AFE75DA6FAA85A
 ```
 
 https://mybot314.ru/tekegram_catalog/

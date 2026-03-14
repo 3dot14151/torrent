@@ -1,3 +1,32 @@
+###  Публикация: 1522835   (245229) от 09.01.2022
+
+VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 1 (2014) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twentyeight - Memories (4:51)
+02. Ambiworx - Yellowstone Peaks (10:13)
+03. Pnfa - Blue (4:39)
+04. Twentyeight - Apparitions (6:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814A3EF455D94D87044E9F27CE32BF245FB444D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522885   (245223) от 09.01.2022
 
 VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 2 (2014) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
@@ -713,35 +742,6 @@ VA - Chill Out Lovers, Vol. 1 (2022) [AAC|~317 Kbps] <Lounge, Chill Out, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E72B8FCDE4617E354A14BA5467B271D32210FBBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529406   (244755) от 06.02.2022
-
-VA - Balearic Sunset (The Buddha Ambient Edition), Vol. 2 (2022) [AAC|~275 Kbps] <Ambient, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricardo Acossa - Let Our Minds Be Equanimous (1:46)
-02. Beach Lovers - Liberating the Mind (2:12)
-03. Yamato Ojo - A Safe Haven (1:40)
-04. Dave Palmer - High Degree of Mindfulness (1:37)(   Читать дальше...   )Жанр: Ambient, LoungeПродолжительность: 01:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A03D49959F9D5B171D59714ED6D23B35151FEE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

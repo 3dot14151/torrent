@@ -1,22 +1,26 @@
-###  Публикация: 1821907   (91171) от 04.10.2025
+###  Публикация: 471007   (97268) от 20.03.2012
 
-Mary’s recipes: рецепты, меню v6.2.0 Mod by Alex.Strannik [Ru/Multi]
+[Wallpapers] HD Pictures №2
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91171.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Более 900 полезных и вкусных рецептов, план питания и список покупок в одном приложении. Быстрые и простые рецепты на каждый день. Готовое блюдо на завтрак, обед или ужин всего за 25 минут! Приложение Mary’s Recipes разработано нутрициологом и экспертом по детскому питанию Марией Кардаковой. Все рецепты тщательно подбираются и корректируются, чтобы ваша семья питалась (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 29.09.2025Разработчик: Mary's RecipesПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+[Wallpapers] HD Pictures №2
+Название: HD Pictures №2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAA9F295203AD72B28B4AAFFED75D1459BBDD627
+magnet:?xt=urn:btih:F15FAAA55AF321846C0EE531B642260BDCB61F25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +28,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821837   (91170) от 04.10.2025
+###  Публикация: 471029   (97267) от 20.03.2012
 
-На посошок / Le citta di pianura / The Last One for the Road (2025) Telecine [H.264/1080p] [звук с TS] [AD]
+[Wallpapers] Mixed Wallpapers (21.03.12)
 
->>Горячие новинки
->>Экранки с рекламой
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91170.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История повествует о двух шумных мужчинах чуть старше 50 лет, одержимых выпивкой. Их мир переворачивается с ног на голову, когда они встречают Джулио, застенчивого студента-архитектора, и все трое отправляются в путешествие по барам Венето, которое в конечном итоге меняет взгляд Джулио на мир и любовь .Производство: Италия, Германия / Vivo Film, Maze Pictures, Rai CinemaЖанр: драма, комедия, криминалРежиссер: Франческо СоссаиАктеры: Филиппо Скотти, Серджо Романо, Пьерпаоло Каповилла, Роберто Читран, Андреа Пеннакки, Simone Bergamasco, Francesco Busolin, Nicola Rossato, Giuseppe MessinaПеревод: Многоголосый профессиональный  (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:59Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F01743E7B04BD40A0D79BC91471FAE32A0DEE61
+magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +54,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821902   (91169) от 04.10.2025
+###  Публикация: 471008   (97266) от 20.03.2012
 
-GPS АнтиРадар v51.0 Mod by Slavatv5 [Ru]
+[Wallpapers] HD Wallpapers Pack 3
 
->>Программы, Игры и прочее
->>Навигация для Android
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91169.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение работает с помощью известных данных о расположении стационарных камер и радаров ДПС (такие как Стрелка или Старт СТ) и других объектов. Есть возможность добавить недостающие камеры вручную и синхронизация их между пользователями! Вам не нужно ждать пока мы добавим камеры, она пополняется просто и удобно самими пользователями!Тип издания: ProРелиз состоялся: 01.10.2025Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+[Wallpapers] HD Wallpapers Pack 3
+Название: HD Wallpapers Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3A38CA1FC66EB1F5ED50EAD79D867751484E177
+magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,26 +84,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821901   (91168) от 04.10.2025
+###  Публикация: 470987   (97265) от 20.03.2012
 
-Антирадар HUD Speed v73.0 Mod by Slavatv5 [Ru]
+[Wallpapers] HD Pictures №1
 
->>Программы, Игры и прочее
->>Навигация для Android
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91168.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Антирадар HUD Speed – это цифровой спидометр с функцией предупреждения о превышении ограничения скорости и об опасностях на дороге: камеры, Стрелки, Автодории, посты и прочее.
-HeadUp Display (HUD) – это возможность использовать ваш телефон или планшет как проекционный дисплей. Просто положите устройство под лобовое стекло и вы увидите проекцию скорости и предупреждений (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.10.2025Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+[Wallpapers] HD Pictures №1
+Название: HD Pictures №1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4837C8ABF92692E72D2439413FEAA1D4D99F77CC
+magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,25 +114,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821944   (91167) от 04.10.2025
+###  Публикация: 470988   (97264) от 20.03.2012
 
-Heartbeat in Thailand / Сердцебиение в Таиланде (2025) [Ru/Multi] (1.0) Scene TiNYiSO
+[Wallpapers] Nature Pictures №32
 
->>Win Игры
->>Горячие новинки Игр
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91167.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сердцебиение в Таиланде – интерактивная игра с живыми актёрами. После неудачного трудоустройства вы едете к дяде в Таиланд на его "большой бизнес", но вас бросают в аэропорту. К счастью, кузина заботится о вас. Но вилла дяди кажется жуткой? Ночью появляется призрак-шалунья! Сбежав, вы сталкиваетесь с сексуальной вдовой бандита, кричащей "Муж!" (   Читать дальше...   )Тип издания: SceneРазработчик: RainbowGameЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык озвучки: Китайский (упрощенный, традиционный)Язык субтитров: Русский, Английский, Индонезийский, Японский и другиеЯзык интерфейса: Русский, Английский, Индонезийский, Японский и другие
+[Wallpapers] Nature Pictures №32
+Название: Nature Pictures №32
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21D1907856B102ADFDA8806E49F8586DC6C2FD07
+magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,25 +144,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821788   (91166) от 04.10.2025
+###  Публикация: 470164   (97263) от 20.03.2012
 
-Крушащая машина / The Smashing Machine (2025) Telecine [MVO] [AD]
+VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
 
->>Горячие новинки
->>Экранки с рекламой
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91166.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История жизни и карьеры Марка Керра, американского бойца смешанных единоборств.Производство: США, Япония, Канада / A24, Magnetic Fields Entertainment, Out for the CountЖанр: биография, спорт, драмаРежиссер: Бенни СэфдиАктеры: Дуэйн Джонсон, Кенни Райс, Jerin Valel, Андре Трикоте, James McSweeney, Jonathan Corbblah, Райан Бэйдер, Илан Розенберг, Ник Торен, Джилл БейсиПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: Португальские (hardsub)Продолжительность: 01:59:31Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+1. Zyce & Flegma - Afterglow (8:41)
+2. Cabal - The sacred Spirit (7:38)
+3. Aquafeel - GloryLand (6:43)
+4. Aqualize - Land of 2 Suns (7:51)
+5. Audioload - Way Out (7:42)
+6. Andromeda - Sensation (Aquafeel RMX) (6:32)
+7. Time in Motion - Colour (8:07)
+8. Progenitor - Typical Human Behaviour (8:18)
+9. Ocean and Display - Kastefa Beach (7:59)2009Жанр: Psy-ProgПродолжительность: 01:09:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:883A30952BDEE8449CB0AE65F3F7D6A5ADE0ECD4
+magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,27 +178,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821947   (91165) от 04.10.2025
+###  Публикация: 470712   (97262) от 20.03.2012
 
-Алексей Николаевич Толстой | Невероятные приключения Буратино (Инсценировка) (1978) [MP3, Сергей Цейц, Ирина Потоцкая и др.]
+[Wallpapers] Best HD Wallpapers (20.03.12)
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91165.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Сказка за сказкой.
-Алексей Николаевич Толстой (1882–1945) – русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических романов, повестей и рассказов, публицистических произведений.
-Запись Всесоюзной студии грамзаписи «Мелодия» – инсценировка Ларисы Закошанской по мотивам сказки русского (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:40:00
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FACB9D32E1B967508600312E74A3105F6AFDB96B
+magnet:?xt=urn:btih:3468C7FACB8EACA0056A6D73D4CF71BCA75ECB2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,27 +204,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821948   (91164) от 04.10.2025
+###  Публикация: 470715   (97261) от 20.03.2012
 
-Алексей Николаевич Толстой | Приключения Буратино (Инсценировка) (1949) [MP3, Николай Литвинов]
+[Wallpapers] Nature Desktop Wallpapers (20.03.12)
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91164.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Мелодия – детям.
-Алексей Николаевич Толстой (1882–1945) – русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических романов, повестей и рассказов, публицистических произведений.
-«Золотой ключик, или Приключения Буратино» — повесть-сказка Алексея Николаевича Толстого. Это литературная (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:19:01
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:276F3ED6D3767EB6D50624D7DB66DBBD00C6C9C9
+magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -211,25 +230,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821949   (91163) от 04.10.2025
+###  Публикация: 471067   (97259) от 20.03.2012
 
-Считанные дни / Dias contados / Numbered Days (1994) BDRip [H.264] [AVO]
+[Wallpapers] HD Wallpapers Pack 4
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91163.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм, по одноимённой повести Хуана Мадрида, о любви двух людей, живущих на грани. Антонио, боевик террористической организации ЭТА, вместе с двумя другими боевиками Карлосом и Лурдес направляется в Мадрид для проведения террористического акта в столице. Под видом фотографа он поселяется в съёмной квартире и знакомится с наивной проституткой и наркоманкой Чаро и (   Читать дальше...   )Производство: Испания / Aiete Films S.A., Ariane FilmsЖанр: драма, криминал, триллерРежиссер: Иманоль УрибеАктеры: Кармело Гомес, Рут Габриэль, Хавьер Бардем, Карра Элехальде, Кандела Пеня, Эльвира Мингез, Пепон Ниэто, Хосеба Апаоласа, Чачо Каррерас, Педро КасабланкПеревод: авторский (Юрий Сербин)Язык озвучки: русский, испанскийСубтитры: английскиеПродолжительность: 01:35:16
+[Wallpapers] HD Wallpapers Pack 4
+Название: HD Wallpapers Pack 4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0576E187FB1B3C8CC58DF474D03F55857D4652C1
+magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,25 +260,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821820   (91162) от 04.10.2025
+###  Публикация: 470985   (97258) от 20.03.2012
 
-Shabake | Мирские стремления [2025, TV, 1 из 12 эп.] WEBRip 720p raw
+[Wallpapers] Nature Pictures №31
 
->>Аниме с субтитрами
->>Онгоинги
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91162.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ититаро, молодой хозяин Нагасакия, одного из ведущих торговых домов Японии периода Эдо, родился со слабым здоровьем, из-за чего не может много выходить на улицу. Он всегда окружен своими духовными спутниками, в том числе Хакутаку и Инугами, которые защищают его. Однажды ночью Ититаро выходит на улицу и становится свидетелем убийства, и с того дня в Эдо начинают происходить (   Читать дальше...   )Производство: студия BN Pictures / バンダイナムコピクチャーズЖанр: приключенияРежиссер: Окава ТакахироПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+[Wallpapers] Nature Pictures №31
+Название: Nature Pictures №31
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3200х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C422F1B324E1DE3FC91BCD1E9798C7BA7AAB6E2A
+magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,27 +290,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821953   (91161) от 04.10.2025
+###  Публикация: 470621   (97256) от 20.03.2012
 
-Шрифты - MyFonts - Suncoast [OTF, TTF]
+[Wallpapers] Desktop wallpapers (19.03.12)
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91161.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Suncoast — современный шрифт с ретро-душой. Вдохновленный шрифтом, определившим визуальную идентичность XX века, он сочетает в себе лучшее из двух миров: функциональную основательность гротесков и струящуюся теплоту гуманистических стилей.
-
-Дизайн Suncoast чистый, свежий и легко адаптируется. Созданный специально для коммерческой продукции, он отлично подходит как (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:127D5986FD443441595AE3ADAC8FD6303F1C1A7B
+magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,27 +316,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821952   (91160) от 04.10.2025
+###  Публикация: 470709   (97255) от 20.03.2012
 
-Алексей Николаевич Толстой | Простая душа (Радиоспектакль) (1994) [MP3, Алексей Емельянов, Владлен Есенский и др.]
+[Wallpapers] Computer Desktop Wallpapers Collection (20.03.12)
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91160.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Звучащая библиотека.
-Алексей Николаевич Толстой (1882–1945) – русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических романов, повестей и рассказов, публицистических произведений.
-Впервые рассказ А.Н. Толстого был напечатан под заглавием «Катя» в сборнике «Наваждение. Однако через (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:29:10
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1E93DB10F8AFD7E2F98B64218E18007CFC9468C
+magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,28 +342,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708248   (91159) от 04.10.2025
+###  Публикация: 467137   (97253) от 20.03.2012
 
-Ойме (Oyme) - Коллекция (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Traditional Folk, World & Country>
+Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House/Commertial>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91159.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ойме (в переводе с эрзянского языка, — душа) — музыкальная группа, образована в 2010 году. Творческая деятельность группы посвящена культуре финно-угорских народов России.
-Группа работает по двум направлениям: традиционная программа и world music.2016 - Штатол
-2023 - Mastorava vol. 1
-2023 - Путь одинЖанр: Traditional Folk, World & CountryПродолжительность: 02:12:12
+01 - Tommy Vee & Nicola Fasano & Steve Forest & Luca Guerrieri - Tell Me (Meg Nerak Vocal Mix)
+02 - Eurythmics vs. Tonite Only & Nicky Romero - Sweet Gonna Dreams (Relanium Bootleg)
+03 - David Di Sabato - Orbits (Alex Cucciolini Remix)
+04 - Ultra Nate - Save Me (Dj Chus and Abel Ramos Miami Mix)
+05 - Dj Soulstar feat. Wally B - Move (Tune Brothers Remix)
+06 - Tom Geiss & Mark Simmons feat. Polina - Dream On (A.C.K. & Love N Joy Remix)
+07 - Jared Dietch feat. Kelli Sae - You're Not Alone (Gregori Klosman Instrumental Mix)
+08 - Sebastien Drums feat. Mitch Crown - Fly Again (Rob Adans Remix)
+09 - Joey C & Dj Torio & Nikki Kay - Fade Away (Valetto Remix)
+10 - Mitchell Niemeyer - Botox (Nene Dasile Remix)(   Читать дальше...   )2012Жанр: Progressive House/CommertialПродолжительность: 01:04:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD88E2D6CDCB2E81D07BA297F2699EB2AE22415D
+magnet:?xt=urn:btih:8CE2EFD7CCBC8A6465C9792EC1556E6171D19814
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,28 +377,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821942   (91158) от 04.10.2025
+###  Публикация: 470613   (97252) от 20.03.2012
 
-Elisabeth Elektra - Hypersigil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
+[Wallpapers] Best HD Wallpapers (19.03.12)
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91158.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yearning [00:03:16]
-02. Boys & Girls [00:03:55]
-03. Surround Me [00:04:09]
-04. Desire [00:03:28](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:45:32
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82981C5124CACCCCBB38EC0E497664D4ACACCE95
+magnet:?xt=urn:btih:68FC7F58F2AE58EA866DB7C6B91A60B6E4ADAC9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,28 +403,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821929   (91157) от 04.10.2025
+###  Публикация: 470259   (97251) от 19.03.2012
 
-Sleazy Sweet - Sleazy Party (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Glam Metal, Hard Rock>
+[Wallpapers] Girls Wallpapers (18.03.12)
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91157.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. - Intro (0:30)
-02. - Sweet Party (3:34)
-03. - Get it (2025) (2:58)
-04. - Testing Rehearsing (2025) (3:33)(   Читать дальше...   )Жанр: Glam Metal, Hard RockПродолжительность: 00:34:39
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13A4F5983719A357E20D1EB0428205549A97A637
+magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,28 +429,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821906   (91156) от 04.10.2025
+###  Публикация: 470170   (97250) от 19.03.2012
 
-Kylie Minogue - Tension Tour Live 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+[Wallpapers] Sexy Girl Wallpapers Pack 42
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91156.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lights Camera Action (Intro;Live From The Tension Tour) [00:01:45]
-02. Lights Camera Action (Live From The Tension Tour) [00:01:28]
-03. In Your Eyes (Live From The Tension Tour) [00:02:05]
-04. Get Outta My Way (Live From The Tension Tour) [00:02:22](   Читать дальше...   )Жанр: PopПродолжительность: 01:42:27
+[Wallpapers] Sexy Girl Wallpapers Pack 42
+Название: Sexy Girl Wallpapers Pack 42
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:011F1A6455417E3AD9B847AD915B9982D6444ED2
+magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -435,28 +459,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821896   (91155) от 04.10.2025
+###  Публикация: 470316   (97247) от 19.03.2012
 
-Wednesday - Bleeds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Municipal Waste - The Fatal Feast (2012) [MP3|320 кб/с]<Thrash Metal>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91155.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Reality TV Argument Bleeds [00:03:02]
-02. Townies [00:03:15]
-03. Wound Up Here (By Holdin On) [00:03:28]
-04. Elderberry Wine [00:03:35](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:49
+1. Waste In Space
+ 2. Repossession
+ 3. New Dead Masters
+ 4. Unholy Abductor
+ 5. Idiot Check
+ 6. Covered In Sick/The Barfer
+ 7. You’re Cut Off
+ 8. Authority Complex
+ 9. Standards and Practices
+ 10. Crushing Chest Wound(   Читать дальше...   )2012Жанр: Thrash MetalПродолжительность: 00:39:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FCDAA0126EF760848BBE486A01364DED4DF853F
+magnet:?xt=urn:btih:395F85C473A0A849F1035DE32A016BC0E233842E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,25 +494,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821955   (91154) от 04.10.2025
+###  Публикация: 468559   (97244) от 19.03.2012
 
-3D print - Nomnom Figures - Rumi - Kpop Demon Hunters [STL, LYS]
+VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91154.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта модель запечатлела тот незабываемый момент, когда пламя охватило всё вокруг. Это горько-сладкое дополнение, и нам не терпится увидеть, как вы воплотите обоих персонажей в жизнь с помощью своих принтов и рисунков. Мы решили запечатлеть этот трогательный и душераздирающий момент из к-поп фильма «Охотники на демонов».Формат: STL, LYS
+1. Swedish House Mafia - Save The World
+2. Avicii - Fade Into Darkness (Vocal Extended)
+3. Axwell - Heart Is King
+4. Michael Calfan - Resurrection (Axwells Recut Club Version)
+5. Armin Van Buuren - Drowning (Avicii Remix)
+6. David Tort Feat. Gosha - One Loock (Axwell Vs Dimitri Vegas)
+7. Eric Prydz - Niton The Reason (Extended Mix)
+8. Tim Berg - Seek Romance (Avicci Vocal Extended)
+9. Albin Myers Feat. St James - There 4 You (Extended Mix)
+10. Adrian Lux - Teenage Crime (Axwell & Henrik B Remode)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 03:54:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10540AB6AF06BED085501114100B08F1D0728F96
+magnet:?xt=urn:btih:1513E762128A87881843EF7A86CA77F660D7C372
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,25 +529,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821958   (91153) от 04.10.2025
+###  Публикация: 470439   (97243) от 19.03.2012
 
-Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshou ka | May I Ask for One Final Thing? | Могу попросить ещё кое-что? [2025, TV, 1 из 13 эп.] WebRip 720p raw
+VA - Get Sexy vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
 
->>Аниме с субтитрами
->>Онгоинги
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91153.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В детстве леди Скарлет часто ввязывалась в драки, предпочитая словесной перепалке кулаки. Она считала, что поступает правильно и приносит благо обществу, наказывая обидчиков, но подобное поведение порицалось в высшем обществе, поэтому старший брат постоянно отчитывал сестру за нелепые выходки. Но в итоге увещевания близких и помолвка со вторым принцем королевства (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: приключения, фэнтезиРежиссер: Сакамото КадзуяПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
+VA - Get Sexy vol.1 (2012)Год: 2012
+Жанр: Electro House, House
+Продолжительность: 01:40:24Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТреклист:
+01.Ian Carey & Rosette Ft. Timbaland & Brasco - Amnesia (Cazzette Another Sugar Hunt Mix)
+02.Sean Paul - She Doesnt Mind (LX-Tronix Remix)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92E54C459A3E99C281791B03908A08184F95ADDA
+magnet:?xt=urn:btih:92B89A1F2E44A2D23DCB432D6D50A16CFE7AE008
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,27 +561,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821959   (91152) от 04.10.2025
+###  Публикация: 470267   (97241) от 19.03.2012
 
-Звуковые библиотеки - Bigcitiloops - Gospel Choir Vocals [WAV]
+VA - Prodвинутые Новинки Радиостанций 50\50(2012) [MP3|256 кб/с]<Pop,Dance>
 
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91152.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем Gospel Choir Vocals от Big Citi Loops — эксклюзивную коллекцию из 12 профессионально записанных сэмплов госпел-хора, тщательно подобранных для того, чтобы наполнить вашу музыку подлинной и проникновенной гармонией.
-
-Каждый сэмпл отражает суть традиционной и современной госпел-музыки, предлагая богатые текстуры и динамичные вокальные аранжировки, которые (   Читать дальше...   )Формат: WAV
+01. Мара - Головокружения
+02. Ian Carey Ft. Bobby Anthony & Snoop Dogg - Last Night
+03. Дмитрий Колдун - В Комнате Пустой
+04. Alice Cooper - What Baby Wants
+05. Мила Нитич - Каюсь
+06. Kalomira - This is the time
+07. Сергей Ялтан - Окаянная
+08. Sophie Ellis-Bextor - Not Giving Up On Love (Extended Version)
+09. Земфира - Webgirl (Alex Valenso Remix)
+10. Darren Hayes - Talk Talk Talk2012Жанр: Pop,DanceПродолжительность: 06:32:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08ED63E71B697D58F6CEBF94378F20EFCCDF7BDD
+magnet:?xt=urn:btih:D26F63ED3240ECB048B8A9A36D100B086451EFE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,25 +596,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821954   (91151) от 04.10.2025
+###  Публикация: 470199   (97240) от 19.03.2012
 
-Happy Color® – игра раскраска v2.20.4 Mod by vadj [Ru/Multi]
+Lana Lane - El Dorado Hotel (2012) [FLAC|Lossless]<Progressive Metal / Symphonic Rock>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91151.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Happy Color — самая популярная и излюбленная бесплатная игра-раскраска. В ней вы можете найти тысячи изображений на любой вкус — природа, искусство, спорт, автомобили, фэнтези, мода, интерьеры и многое другое! Happy Color делает жизнь людей ярче во всем мире! Эта раскраска — залог хорошего настроения. Раскрашивание по номерам с Happy Color — это успокаивающее и легкое (   Читать дальше...   )Тип издания: ModРелиз состоялся: 03.10.2025Разработчик: X-FLOWПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+01. A Dream Full Of Fire
+02. Maybe We'll Meet Again
+03. El Dorado
+04. Darkness Falls
+05. Hotels
+06. Believe
+07. Life Of The Party
+08. Gone Are The Days
+09. Moon God
+10. In Exile2012Жанр: Progressive Metal / Symphonic RockПродолжительность: 01:02:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94BF64A125AF0D312DAEAAFD11F9DF2416B9BD2A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,25 +631,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821956   (91150) от 04.10.2025
+###  Публикация: 469505   (97238) от 19.03.2012
 
-Голосовой блокнот (речь в текст) v2.9.3 Mod by Alex.Strannik [Ru/En]
+VA - Groove Attack (2CD) (2012) [MP3|320 кб/с]<Psychedelic Trance, Progressive Trance>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91150.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшое приложение для ведения заметок, посредством голосового набора оных (требуется основное приложение Google). В наличии возможность синтеза речи, посредством использования системной TTS-машины. В наличии возможность упорядочивания и даже печати полученных заметок, а также сохранение оных в файл. Реализованы удобные настройки и поддержка тёмного режима.Тип издания: PremiumРелиз состоялся: 02.10.2025Разработчик: Simple Seo SolutionsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+CD1 (01:19:03)
+01. Sinister Silence Feat. Camille Jones - Someday (Still Around Mix) 08:03
+02. Liquid Soul & Electric Universe - Liquid Universe 09:36
+03. Major7 - Obsession 06:37
+04. Zyce - Dreaming 07:32
+05. Liquid Soul & Symbolic - Different Reality 08:31
+06. Timelock - 99 Calibre 07:17
+07. Sonic Species - Machina Terra (E-Clip Remix) 08:41
+08. D-Addiction - WTF 08:40
+09. Rocky & Sphera - Echo (Yotopia Remix) 08:21(   Читать дальше...   )2012Жанр: Psychedelic Trance, Progressive TranceПродолжительность: 02:36:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA86C70184B139C2A93F32DD61A8F88B24490E7C
+magnet:?xt=urn:btih:A42A11B4525C841B15915E7902B2A041956B53F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,25 +666,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821965   (91149) от 04.10.2025
+###  Публикация: 470181   (97236) от 19.03.2012
 
-Lord Ambermaze (2025) [Ru/Multi] (1.01) License GOG
+[Wallpapers] Games Wallpapers Pack 2
 
->>Win Игры
->>Горячие новинки Игр
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91149.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lord Ambermaze - это увлекательное приключение на необыкновенном острове, где мир двигается только тогда, когда двигаетесь вы. Побеждайте забавных врагов, решайте головоломки, завязывайте отношения с жителями острова и спасите свою сестренку, раскрыв ужасную тайну тёмного лорда. Вы обнаружили себя на загадочном острове, принадлежащем таинственному лорду Амбермейзу. (   Читать дальше...   )Тип издания: LicenseРазработчик: Potata CompanyЖанр: Экшены, Приключенческие игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Японский, Китайский (упрощенный) и другие
+[Wallpapers] Games Wallpapers Pack 2
+Название: Games Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 3200х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63B60D6116FBB6787E0F0838A9E58C8DA0A6D151
+magnet:?xt=urn:btih:4E55FCDDD5AE2F06F6C627827297AD7434DDAF23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,25 +696,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464788   (91148) от 04.10.2025
+###  Публикация: 470185   (97233) от 19.03.2012
 
-Вера, надежда, любовь (1984) WEBRip [H.264/1080p]
+[Wallpapers] Best Wallpapers Pack 8
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91148.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-События происходят в годы гражданской войны. Красный командир (он же — и сельский учитель) отправляет юного поэта Ваню в московскую редакцию журнала «Революция и поэзия». Сопровождает Ваню в долгом, полном событий пути, бывалый солдат Сорокин...Производство: СССР / Киностудия им. М. ГорькогоЖанр: Приключения, военныйРежиссер: Владимир ГрамматиковАктеры: Владимир Стеклов, Сергей Бобровский, Марина Левтова, Александр Филиппенко, Леонид Белозорович, Александр Яковлев, Наталья Хорохорина, Андрей Калашников, Юрий Заборовский, Алексей ВесёлкинСубтитры: ОтсутствуютПродолжительность: 01:28:20
+[Wallpapers] Best Wallpapers Pack 8
+Название: Best Wallpapers Pack 8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200/1680x1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C01893571D8E73892C26503250305ED35560AE4A
+magnet:?xt=urn:btih:F538A2BAB06939F3CA62F34B57CA56ABAD9BEE8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +726,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821967   (91147) от 04.10.2025
+###  Публикация: 470584   (97230) от 19.03.2012
 
-Полицейская история 4: Первый удар / Ging chaat goo si 4: Gaan dan yam mo / Police Story 4: First Strike (1996) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+Журнал | Едим со вкусом №1-2 [2012] [PDF]
 
->>Остальное
->>hand made * video
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91147.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Агенту ЦРУ Джеки поручают следить за шпионкой Наташей, которая купила тур на Украину. Джеки надеется выследить, с кем будет контактировать девушка, но она скрывается. Джеки бросается в погоню. Он гонится за ней по Австралии и России. Главная его задача – остаться в живых и поймать Тсуи, сообщника Наташи, похитившего ядерную боеголовку. Тсуи оказывается ее любовником, (   Читать дальше...   )Производство: Гонконг, США, Австралия / Golden Harvest Company Ltd., Paragon Films Ltd., Raymond ChowЖанр: боевик, комедия, криминалРежиссер: Стэнли ТунАктеры: Джеки Чан, Джексон Лоу, Энни У, Билл Тун, Юрий Петров, Нонна Гришаева, Джон Ивис, Терри Ву, Кристофер Казмарек, Эйлен СитПеревод: Многоголосый профессиональный (R5, HTB)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:47:16
+Едим со вкусом - одно из самых лучших изданий о кулинарии. Каждый номер этого издания включает не только множество оригинальных и доступных кулинарных рецептов, включающих полную калькуляцию расходов, но и потребительскую экспертизу и тесты различных продуктов питания, кухонной утвари и бытовой техники для кухни. Также в каждом номере журнала приводятся сводный бюджет питания на месяц.
+Хороший ресторан - дома!
+Шеф-повара столичных ресторанов раскрывают свои профессиональные секреты.2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20763A98B56FAA445B24453B8A414107C90218AB
+magnet:?xt=urn:btih:F9D143374878DF19214C85538A9CBDEBA4C91C05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,27 +754,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821968   (91146) от 04.10.2025
+###  Публикация: 469736   (97229) от 19.03.2012
 
-Кто я? / Ngo si seoi / Who Am I? (1998) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+VA - Чума-Дэнс (1995) [APE|Lossless]<Pop, pop-rock>
 
->>Остальное
->>hand made * video
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91146.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа спецназа, работающая под прикрытием ЦРУ, направляется на задание по вывозу энергетического тела, которое было найдено учеными в африканских джунглях. По окончании операции всю группу пытаются ликвидировать.
-
-Один из солдат, выживший после авиакатастрофы, но потерявший память, пытается бороться со своими мыслями и вспомнить, кто он. На пути к истине ему мешают, (   Читать дальше...   )Производство: Гонконг / GH Pictures, Golden Harvest Company Ltd., Golden Harvest Pictures (China), Panasia Films, Panasia Films Production Company Ltd.Жанр: боевик, комедия, приключенияРежиссер: Бенни Чан, Джеки ЧанАктеры: Джеки Чан, Мишель Ферре, Мираи Ямамото, Рон Смержак, Эд Нельсон, Том Помперт, Глори Саймон, Фред ван Дитмарш, Фриц Кромменхёк, Дик РиенстраПеревод: Дублированный (Amalgama, ТВ3)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 02:00:18
+01. Дубы-Колдуны - Осенние Дубы (01:53)
+02. Опасные Соседи - Танцуй! (04:26)
+03. Два Самолёта - Абу (04:54)
+04. Михаил Владимиров & Мифы - Воспоминание о Париже (01:31)
+05. Камикадзе - Japanese Child (06:17)
+06. Спокойной Ночи - Она Женщина (03:10)
+07. Дубы-Колдуны - Пора по Бабам (00:59)
+08. Препинаки - Боливия (02:32)
+09. НОМ - Дедушкин Табак (04:36)
+10. НЭП - Спичек нет (05:50)(   Читать дальше...   )1995Жанр: Pop, pop-rockПродолжительность: 01:02:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99C7297410F52D606A9716965BC2EA8E3F0798B3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

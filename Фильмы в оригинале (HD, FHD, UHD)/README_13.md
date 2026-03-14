@@ -1,3 +1,29 @@
+###  Публикация: 1120453   (803015) от 30.03.2017
+
+Волынь / Wolyn / Hatred (2016) BDRip [H.264/1080p] [POL / POL Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803015.jpg" />
+</div>
+
+
+###  Подробнее
+
+События в фильме начинаются в летние месяцы 1939 года на территории Волыни, которая на тот период относилась к землям Польши. Между главной героиней, красивой польской девушкой Зосей, и украинским хлопцем возникает сильная любовь. Однако родители девушки отдают против её воли замуж за состоятельного вдовца. Скоро началась Вторая Мировая война и муж Зоси отправляется (   Читать дальше...   )Производство: Польша, Film ItЖанр: Драма, Военный, ИсторияРежиссер: Войчех СмажовскиАктеры: Мичалина Лабакс, Аркадиуш Якубик, Васил Василик, Адриан Заремба, Изабела Куна, Яцек Брачак, Мария Собочинская, Александр Збаражский, Владимир Процюк, Александр Чешеров ...Перевод: ОтсутствуетЯзык озвучки: ПольскийСубтитры: ПольскиеПродолжительность: 02:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF97C5491259EF2EF8C70E63F9028F685C6C3F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119673   (803008) от 30.03.2017
 
 Патерсон / Paterson (2016) BDRemux [H.264/1080p] [EN / RU, EN Sub]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E45E8CD1C8E708590B3C9F3E9742B8D4E84DBCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385828   (796593) от 26.05.2020
-
-Чувствительный и влюбленный / Sensitive and In Love (2020) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796593.jpg" />
-</div>
-
-
-###  Подробнее
-
-A millennial writer from San Francisco travels to the Philippines where she and her brother, a music producer, must come face to face with their traumatic childhood and embrace their seemingly unbearable trait.Производство: Филиппины / The Global Touch GroupЖанр: драмаРежиссер: Will HarperАктеры: Alecks Ambayec, Cai Cortez, Billy Ray Gallion, Cherie Gil, Madeleine Humphries, Craig Lines, Alex Vincent Medina, Bianca Rogoff, Jose Rosete, Raymund TolentinoПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: отсутствуютПродолжительность: 02:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768BD0322B69C4F6114AFFBF40271A6809BC590A
 ```
 
 https://mybot314.ru/tekegram_catalog/

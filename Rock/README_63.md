@@ -1,3 +1,61 @@
+###  Публикация: 1416652   (364958) от 17.10.2020
+
+Bruce Springsteen - Letter To You (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Minute You're Here [00:02:57]
+02. Letter To You [00:04:55]
+03. Burnin' Train [00:04:03]
+04. Janey Needs A Shooter [00:06:49](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FD95C14CFA21F3C9B4B3C0E9C179F42BD2F7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576510   (364356) от 15.09.2022
+
+The Mars Volta - The Mars Volta (2022) [MP3|320 Kbps] <Progessive Rock, Neo-Psychodelia>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blacklight Shine [00:02:55]
+02 - Graveyard Love [00:03:14]
+03 - Shore Story [00:03:15]
+04 - Blank Condolences [00:03:27](   Читать дальше...   )Жанр: Progessive Rock, Neo-PsychodeliaПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1683DAC19D61B092251D0612E256CB805E82EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576630   (364256) от 15.09.2022
 
 Witchsnake - Witchsnake (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom, Sludge Rock>
@@ -690,65 +748,6 @@ Josh Ward - Holding Me Together (2015) [MP3|320 кб/с]<Country, Country Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B48B607138F171B7D011F479FF5A2E64EDB60CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578051   (350402) от 21.09.2022
-
-High Grind - The Loud Bong Chronicles (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Skatopia
-02 Hombre de Conocimiento
-03 Vortice (Parte II)
-04 Realidad aparte(   Читать дальше...   )Жанр: Heavy Psych, Stoner, DoomПродолжительность: 00:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A437207E1E5C9C2A67BBD2BCA6C60D98AE06B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578039   (350394) от 21.09.2022
-
-Adventure - Tales Of Belle Part 2 - Unveiled By Fire (2022) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cruel Mind (5:08)
-02. I Finally Knew (5:37)
-03. Belle's Lament The Heat (3:01)
-04. Absurd Scenes (4:46)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog
-Country: Trondheim, NorwayПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7356FA7A2D843EBD8FF6493B5721614650BB211F
 ```
 
 https://mybot314.ru/tekegram_catalog/

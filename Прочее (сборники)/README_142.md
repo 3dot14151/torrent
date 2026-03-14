@@ -1,3 +1,32 @@
+###  Публикация: 1838742   (261310) от 24.11.2025
+
+VA - Music News For Forum vol.149 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_261310.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cynthia Erivo & Jonathan Bailey - As Long As You’re Mine   (04:07)
+ 002. 5 Seconds of Summer - I'll Find You (03:33)
+ 003. 5 Seconds of Summer - Start Over (03:11)
+ 004. 5 Seconds of Summer - Wishful Dreaming (03:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC53FFBD9DA5D2F45D10221C0B5931C1C5AF8EC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 505480   (261274) от 04.06.2012
 
 VA - Музыка для кача (1996-2012) [MP3|320 кб/с]<Metall, Heavy Metal, Industrial>
@@ -797,41 +826,6 @@ VA - Чарочка та шкварочка (2011) [MP3|256 кб/с] <Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B539D198D8399E6202DA1D61DB0353001677507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499911   (256942) от 22.05.2012
-
-VA - Radio DFM - Рашн Дэнс (21.05.2012) from AGR (2012) [MP3|320 кб/с]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Каста - Наши Люди (Dj Miller  Hard Rock Sofa Bassline Remix)
-02. Виктор Павлик - Город Зеленого Цвета (DJ Stranger Mix)
-03. Максим - Наверно это мой рай
-04. Quest Pistols - Я Твой Наркотик (Dj Denis Rublev Vox Mix)
-05. DJ Vini feat. Stephenie Coker - Жестокая любовь
-06. MC 77 & MainstreaM One - Я Твой (Dj Gorelov Remix)
-07. DJ Piligrim - Ты меня забудь
-08. Градусы - Голая (GASpromo Sunshine Radio Remix)
-09. Михаил Боярский - Спасибо,Родная(Dj Kvant Radio Mix)
-10. Ирина Дубцова - Ешь, Молись, Люби(   Читать дальше...   )2012Жанр: Pop, Dance, ClubПродолжительность: 02:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8F4BD2634F1F3594D240A473053F98FF107F0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

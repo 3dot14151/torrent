@@ -1,3 +1,61 @@
+###  Публикация: 1102690   (887789) от 11.02.2017
+
+Stevie Ray Vaughan - Up From The Skies (1996) [FLAC|Lossless|tracks + .cue] <Blues / Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rude Mood
+02. Pride & Joy
+03. Testify
+04. Voodoo Chile(   Читать дальше...   )Жанр: Blues / Blues-RockПродолжительность: 00:71:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C6F2748CF50841F89872A3C985997A732E0D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102688   (887771) от 11.02.2017
+
+John Lee Hooker - Burnin' plus Plays And Sings The Blues (2014) Remastered [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Burnin' (1962)
+01. Boom Boom (2:37)
+02. Process (3:51)
+03. Lost A Good Girl (2:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6CAD74E5EA282B56A152DDBFFF49465AABBA30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103301   (887764) от 11.02.2017
 
 Ronnie Earl & The Broadcasters - Good News (2014) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
@@ -684,64 +742,6 @@ Samantha Fish - Faster (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CECA3853F3963BFC6D1309A35271E435C640879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372761   (883998) от 04.04.2020
-
-The Oscar Peterson - Big 6 At Montreux 1975 (1997) Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Au Private [11:29]
-02. Here's That Rainy Day [10:25]
-03. Poor Butterfly [15:56]
-04. Reunion Blues [13:36]Жанр: Mainstream JazzПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C0EC6EA0C5AB7A4C007C166D2CD7A25FEB3462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103263   (883737) от 13.02.2017
-
-Benoit Lugue - Cycles (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funny Toy (4:37)
-02. The Blue Nine (3:39)
-03. Sugar Kane (Feat Magic Malik) (3:52)
-04. El Tigre (4:13)(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20457E9ACF0DC1C7BC6C16ABCCAEA166F51B8D1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

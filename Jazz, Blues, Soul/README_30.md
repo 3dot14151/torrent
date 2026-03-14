@@ -1,3 +1,61 @@
+###  Публикация: 1451631   (1028236) от 03.03.2021
+
+Ella Fitzgerald & Louis Armstrong - Together (1956 - 1957) 2CD, 2009, Not Now Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028236.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Can't We Be Friends [3:49]
+02. Isn't This a Lovely Day [6:19]
+03. Moonlight in Vermont [3:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CA7E4D007AAF627561F800F6571B334425E576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451777   (1028234) от 03.03.2021
+
+VA - Jazz Dictionary F (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falando De Amor (Stefano Bollani Trio)
+02. Falling In Love With Love (Dan Nimmer Trio)
+03. Feelin' Fine (Claude Williamson Trio)
+04. Feelin' Good (Eric Alexander Quartet)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3917AEEE0F3C07C408FB75DF97B9506A3987BD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451771   (1028188) от 03.03.2021
 
 Kenny Wayne Shepherd Band - Live On (1999) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -687,64 +745,6 @@ VA - Swamp Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7A9306D749F907A9F12071652D812B7410F565C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453349   (1026909) от 11.03.2021
-
-VA - St. Louis Blues Society Presents 19 in 19 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amanda Fish - Lower Your Defenses - [2:22]
- 02. Brother Jefferson;Rich McDonough - The Mirror - [4:49]
- 03. Joe Metzka - Another Disaster - [5:22]
- 04. Tru Born - Soon - [4:49](   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFD733D873D0EF71F49E25755CA7E28B5EA9EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453545   (1026901) от 11.03.2021
-
-VA - Singing With The Stars (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walter Ricci, Sylvain Luc - Caruso (3:45)
-02. Matteo Brancaleoni - More (3:28)
-03. Melania - O Sole Mio (4:00)
-04. Papik, Nadia Straccia - Black Hole Sun (3:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B8CC7A425ACCDC5BB02CEA6A1482576411389B
 ```
 
 https://mybot314.ru/tekegram_catalog/

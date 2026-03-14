@@ -1,3 +1,392 @@
+###  Публикация: 1174945   (378188) от 18.10.2017
+
+Владимир Пресняков мл. - Дискография (1988-2017) [MP3|128-320 Kbps] <Pop, Soul>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пресняков, Владимир Владимирович — Родился в Свердловске (ныне г. Екатеринбург) 29 марта 1968 года в семье музыкантов Владимира Петровича и Елены Петровны Пресняковых, в будущем солистов ВИА «Самоцветы».
+ С 12 лет пел в хоре Елоховской церкви в Москве, в 13 выступал с группой «Круиз», исполняя собственные песни «Старая сказка», «Красная книга», «Кошка».
+ Сольную карьеру (   Читать дальше...   )1988 - Дождёмся завтрашнего дня
+1989 - Папа, ты сам был таким (LP)
+1991 - Любовь (LP)
+1993 - Best Of Hits(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 14:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D94C8FA5695ED2BA5482AB9CFD6D7BB48AD56F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068940   (378163) от 02.11.2016
+
+VA - Best of 2016 - Die Hits des Jahres (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378163.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Imany - Don't Be So Shy (Filatov & Karas Remix)
+02. Alan Walker - Faded
+03. DJ Snake feat. Justin Bieber - Let Me Love You(   Читать дальше...   )Жанр: PopПродолжительность: 02:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4024800D15CFA746A730BCDB85F3906BAEF659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068616   (378162) от 02.11.2016
+
+VA - High Life - 20 Original Top Hits (1979) LP [MP3|320 Kbps] <Electronic, Pop-Rock, Synthpop, Reggae, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Village People - Y.M.C.A. (3:41)
+02. John Travolta & Olivia Newton-John - Summer Nights (3:33)
+03. 10cc - Dreadlock Holiday (4:25)
+04. Baccara - The Devil Sent You To Lorado (4:01)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, Synthpop, Reggae, DiscoПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598BAF603A0D81A9726D66AACC07FB26500B6B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573350   (377875) от 11.11.2012
+
+Anastacia - It’s a Man’s World (2012) [MP3|320 кб/с]<Pop,Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377875.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ramble On (Led Zeppelin)
+ 2. Best of You (Foo Fighters)
+ 3. Sweet Child O'Mine (Guns N' Roses)
+ 4. You Can't Always get What You Want (Rolling Stones)
+ 5. One (U2)
+ 6. Back In Black (ACDC)
+ 7. Dream On (Aerosmith)
+ 8. Use Somebody (Kings Of Leon)
+ 9. You Give Love A Bad Name (Bon Jovi)
+ 10. Wonderwall (Oasis)Жанр: Pop,Pop-RockПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924E6F354E09CCAF257B3E487638C29E1E3D6996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068897   (377812) от 02.11.2016
+
+Iowa - Import (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мои стихи, твоя гитара
+02. Мечты
+03. Алло-алло
+04. 140(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E23677C701DC96208030BCD3E6A3BEC1F2470D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572812   (377768) от 11.11.2012
+
+Весёлые ребята - Эх, напрасно, тётя... (2002) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_377768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не волнуйтесь, тётя
+02. Чашка чая
+03. Школьная пора
+04. Ни минуты покоя
+05. Бологое
+06. Уходило лето
+07. На земле живет любовь
+08. Когда молчим вдвоём
+09. Встречи
+10. Люди встречаются(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949286   (377585) от 23.10.2015
+
+The Beloved - The Sun Rising (2005) [FLAC|image+.cue]<House, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sun Rising
+ 02. Your Love Takes Me Higher
+ 03. Wake Up Soon
+ 04. Up, Up and Away(   Читать дальше...   )Жанр: House, PopПродолжительность: 1:03'00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E24D3F0A46DB1BDB50CE84F125482904FF9176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949509   (377575) от 23.10.2015
+
+The Beloved - Conscience (1993) [FLAC|image+.cue]<House,Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit (4:46)
+02. Sweet Harmony (5:04)
+03. Outerspace Girl (4:49)
+04. Lose Yourself In Me (4:33)(   Читать дальше...   )Жанр: House,PopПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E5877CE01DEFD888CC9E514F3DDF072FB64771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254146   (377520) от 12.10.2018
+
+General Lafayette - Jester (1993) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377520.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Oh My Beloved Father
+2.	The Power Of Music
+3.	Love In The Eyes Of A Child
+4.	Blow The Trumpet At The New Moon(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7F5807719B1A47C4AD26CD25B25B9DC036607D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254165   (377519) от 12.10.2018
+
+General Lafayette - King Of The Broken Hearts (1999) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377519.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	King Of The Broken Hearts
+2.	True Love Will Never Die
+3.	Like A Story You Read In A Book
+4.	Country Blues(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48020EDF4B913031BE0477200569577599BBFE24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254135   (377517) от 12.10.2018
+
+General Lafayette - Love Is A Rhapsody (1992) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377517.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Angel In Blue
+2.	For The Girl Who Couldn't Find Love
+3.	Melody For You
+4.	Angelitos(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CECAF8B8748D7EED7407770DDDE7EA7A33EF4E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253904   (377508) от 12.10.2018
+
+Passion - Passion (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In New York (11:35)
+02. Midnight Lovers (4:07)
+03. Don't Bring Back Memories (6:37)
+04. Dancing And Romancing (7:47)Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BA6567157E34C4FDF805F4D489E751C681D8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949498   (377414) от 23.10.2015
+
+Mark Ashley - Baby Blue (2015) Single [MP3|320 кб/с]<Dance, Eurodance, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Blue (Single Edit)
+02. Baby Blue (Extended Version)Жанр: Dance, Eurodance, DiscoПродолжительность: 00:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D25BF4EC5D51910389EB9B6E49FC0CC98F3F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253934   (377386) от 12.10.2018
 
 St. Vincent - MassEducation (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Baroque Pop>
@@ -368,389 +757,6 @@ VA - Disco Bunch Vol 12 (2016) [MP3|320 Kbps] <Funky, Nu Disco, Soulful, Italo D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2942CF23589917F24E879C6C5F777FA05E81D743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415536   (376165) от 12.10.2020
-
-Tommy The Bitch - Give It To Me (1979) Reissue CD, 2015, Solid Records [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give It To Me  (7:32)
-02. Love Spell  (4:28)
-03. Cool Girl  (5:40)
-04. Dancing Man  (4:34)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00C865468F5D3A99E269FAE08D4A12BC6396055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069309   (375675) от 03.11.2016
-
-Luv' - 7 Albums (1978-1993) [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландская группа "Luv'" была создана в 1977 году на волне успеха таких диско-коллективов как "Pussycat", "ABBA" и "Baccara". В составе этого трио были очаровательные девушки.  "Luv'" ушли со сцены, имея в своём активе более 10-ти хитов, попавших в TOP30. Для многих европейцев они стали символом десятилетия: это был (   Читать дальше...   )Список альбомов:
-1978 - With Luv'
-1979 - Lots of Luv'
-1979 - True Luv'(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 04:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3382254F471690130613375758AB1FC3B89425C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069271   (375567) от 03.11.2016
-
-Пицца - Zavtra (2016) [MP3|320 Kbps] <Pop, Rap, Hip-Hop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Завтра
-02. Романс
-03. Назад
-04. Тебя одну(   Читать дальше...   )Жанр: Pop, Rap, Hip-HopПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E037B962C1AF0D46664789F4D1C8B8268FEFBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069224   (375477) от 03.11.2016
-
-Robbie Williams - The Heavy Entertainment Show (2016) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Heavy Entertainment Show
-02. Party Like a Russian
-03. Mixed Signals
-04. Love My Life(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1787391C50159489B321F09BE8B055D7DC938FE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 251575   (375410) от 30.10.2010
-
-Юрий Антонов - Платиновая коллекция (2002) 2CD [APE|image + .cue] <Поп, эстрада>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.От печали до радости (04:09)
-02.Крыша дома твоего (02:35)
-03.Двадцать лет спустя (03:35)
-04.Вот как бывает (03:20)(   Читать дальше...   )Жанр: Поп, эстрадаПродолжительность: 02:40:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575650   (375391) от 10.09.2022
-
-Van Hinton - Remember Me (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On Down And Rock Me (7:03)
-02. Stay With Me (4:29)
-03. Search Find (5:25)
-04. We're Gonna Work It Out (4:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1174CEA26E0BA88591C229518A8D4FF1FAEB55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575581   (375383) от 10.09.2022
-
-Al Barton & Spirit Of Smokie - Room With A View (2011) Reissue, 2018, Big Lake [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come For Me
-02. Sacred Heart
-03. Highways And Heartaches
-04. Send Me An Angel(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B0F47201136CD6B8D68DC2E295DEED274BFB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575623   (375382) от 10.09.2022
-
-Sophie - My World (1989) [OGG Vorbis|485 Kbps] <Electronic, Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.		My World	3:48
-02.		Same	4:35
-03.		Tonite Tonite	3:52
-04.		Rapture  4:40(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EurobeatПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F258834236014ED440E52B110A1EE9C212CF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574113   (375341) от 12.11.2012
-
-Whitney Houston - I Will Always Love You-The Best of Whitney Houston (2012) [MP3|320 кб/с]<Pop,Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 You Give Good Love
- 02 Saving All My Love for You
- 03 How Will I Know? (Remastered)
- 04 Greatest Love of All
- 05 I Wanna Dance With Somebody (Remastered)
- 06 Didn’t We Almost Have It All
- 07 So Emotional (Remastered)
- 08 Where Do Broken Hearts Go?
- 09 I’m Your Baby Tonight
- 10 All the Man That I Need(   Читать дальше...   )Жанр: Pop,SoulПродолжительность: 01:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C49B12BC7CAC091A90D1F83E68DDB5454869DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949752   (375128) от 24.10.2015
-
-Vanessa Carlton - Liberman (2015) 2CD Deluxe [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Делюкс-версия альбома "Liberman" американской певицы и автора песен Ванессы Карлтон.CD1:
-01. Take It Easy (05:32)
-02. Willows (02:54)
-03. House of Seven Swords (03:44)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6AFBA572E92CABE11A0135C4320E587B2DC8BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254359   (375122) от 13.10.2018
-
-Taco - Puttin' On The Ritz (2000) CD, Compilation [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puttin' On The Ritz (4:43)
-02. La Vie En Rose (4:52)
-03. Cheek To Cheek (4:51)
-04. After Eight (3:35)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8E40200EBC03C4F9DF49A07B4EA6A4F1F03754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575662   (375037) от 10.09.2022
-
-Dr. Alban - The Very Best Of 1990 - 1997 Remastered, 2019, Sony Music [OGG Vorbis|485 Kbps] <Electronic, Reggae, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.		It's My Life	4:00
-02.		Let The Beat Go On	4:04
-03.		Look Who's Talking	3:13
-04.		Gimme Dat Lovin	4:07(   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3471EF225C5993E087383D1FCA3E8691C67A3522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949661   (374745) от 24.10.2015
-
-Selena Gomez - Revival (2015) Japanese Edition [FLAC|image+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival
-02. Kill Em With Kindness
-03. Hands to Myself
-04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55A00A06D371BCCFFC39FE04ECCE9123F332B98
 ```
 
 https://mybot314.ru/tekegram_catalog/

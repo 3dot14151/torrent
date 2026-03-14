@@ -1,3 +1,177 @@
+###  Публикация: 1519711   (147134) от 25.12.2021
+
+Tommy Dorsey And His Orchestra - 1935-1936 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Music Goes 'Round And Around [3:24]
+02. (If I Had) Rhythm In My Nursery Rhymes [2:44]
+03. Lovely Lady [3:10]
+04. Weary [3:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D32A41F970FA0E013D91CFE332F2E8D137D465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087174   (147114) от 27.12.2016
+
+Lennie Niehaus - Volume 5: The Sextet (1956) Remaster, 2006, Victor[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Thou Swell [04:51]
+ 02.I Wished On The Moon [04:17]
+ 03.Knee Deep [04:03]
+ 04.Fond Memories [04:22](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333781BD6D4EB5EF38FB8A781AD2F883D80BC9AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087345   (147109) от 27.12.2016
+
+Peter Delano - Peter Delano (1993) Verve[FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Elephants In The Sky [06:03]
+ 02.Experiencing Change [06:01]
+ 03.Gesticulations [05:13]
+ 04.Entranced [06:03](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E1C095268DD3D00384CE18FA9027669AD6472A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087344   (147067) от 27.12.2016
+
+The Rein De Graaff Trio with Conte Candoli & Bob Cooper - Thinking Of You (1993) Remaster, 2015[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, West Coast Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Thinking Of You [11:32]
+ 02.We'll Be Together Again [09:54]
+ 03.Star Eyes [10:34]
+ 04.I'll Remember April [10:11](   Читать дальше...   )Жанр: Mainstream Jazz, West Coast Jazz, Post-BopПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D9E7D09858A2EDED2830B644329FB6F096E625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087350   (147066) от 27.12.2016
+
+Terence Blanchard - The Malcolm X Jazz Suite (1993) Columbia[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Opening [08:31]
+ 02.Melody For Laura [06:26]
+ 03.Theme For Elijah [05:25]
+ 04.Blues For Malcolm [12:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D79B72723D3798FE6DC9E6A10B0F4070236BD79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087123   (147059) от 27.12.2016
+
+Franco Cerri and His European Jazz Stars (1959) Remaster, 2009, DIW Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Foxology [03:54]
+ 02.East Of The Sun [03:54]
+ 03.Felixin [04:12]
+ 04.General Riff [03:37](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E145FE4C7B457D836C9296E439D8FF3E49FE332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519423   (146730) от 25.12.2021
 
 Joe Bonamassa - Merry Christmas Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -577,180 +751,6 @@ Karl Berger - Conversations (1994) In & Out Records [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F90DF7CB6E7E28B2A85ADDE076F5841B4E0131AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348326   (145330) от 27.12.2019
-
-Joe Negri - Guitars For Christmas (2003) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Claus Is Coming to Town [3:43]
-02. Christmas Time Is Here [2:27]
-03. We Three Kings of Orient Are [2:33]
-04. We Wish You a Merry Christmas/Happy Holidays [2:01](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar Jazz, ChristmasПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D346FA8E095693FDBBE151A7B1FCCF795C60BC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348325   (145328) от 27.12.2019
-
-Joe Negri - Uptown Elegance (2004) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet and Lovely [4:56]
-02. How My Heart Sings [4:59]
-03. It's a Beautiful Day in the Neighborhood [3:04]
-04. The Best Thing for You [3:51](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, Guitar JazzПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3E13999A302CF3AAB1F969BF6117B05F33D4C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087661   (145263) от 28.12.2016
-
-Sonny Rollins - 5 Original Albums (1951-1956) 5CD, 2016, Concord Music Group[FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145263.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Worktime:
-01.There's No Business Like Show Business [06:21]
-02.Paradox [05:01]
-03.Raincheck [06:01](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 02:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241D689B10D309689BAD40F77A1019690A4D161B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087673   (145146) от 28.12.2016
-
-Michael Osborn and the Drivers - The Glamorous Life (2010) [MP3|320 Kbps] <West Coast Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Get Up (04:19)
-02. Here She Comes (04:27)
-03. The Glamorous Life (03:48)
-04. Needles and Pins (05:14)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F147832183834DD73BF11244883150D421A1C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272381   (144838) от 27.12.2018
-
-Lionel Hampton And His All-Stars - Complete Jazztone Recordings (1956) 2CD, 2007, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144838.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Romeo's Gone Now [6:30]
-02. Over the Rainbow [11:09]
-03. Dark Eyes [5:00](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAD522BC0F4B50F0773F060F692D889F8F39EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272384   (144790) от 27.12.2018
-
-Harry James - The In Person And Hi-Fi Sound Of Harry James (1952 - 1955) 2CD, 2007, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144790.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ultra [4:38]
-02. Blues from 'An American in Paris' [4:10]
-03. Mam Bongo [3:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1344711316EA48EB0D81DCECFBC0318566583CC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

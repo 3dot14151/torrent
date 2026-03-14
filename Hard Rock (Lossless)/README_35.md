@@ -1,3 +1,119 @@
+###  Публикация: 1293428   (635228) от 04.04.2019
+
+Nazareth - Greatest Hits (1993) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Hurts
+02. Where Are You Now
+03. Moonlight Eyes
+04. Games(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48960495831F10159E11B130043A10C56B3C0A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143540   (635101) от 18.06.2017
+
+Styx - The Mission (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture
+02. Gone Gone Gone
+03. Hundred Million Miles From Home
+04. Trouble At The Big Show(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15C75C1244D564C4027DCE25DAB78939481D6B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542731   (635050) от 08.04.2022
+
+Treat - The Endgame (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freudian Slip
+02. Rabbit Hole
+03. Sinbiosis
+04. Home Of The Brave(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CAB1611B9B477BA9FA5062EC98527FB421BF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542915   (633680) от 09.04.2022
+
+First Signal - Closer To The Edge (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let It End
+02. I Don't Wanna Feel The Night Is Over
+03. Show Me The Way
+04. Don't Look Away(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BF42EA29B7D810538A3750D1546325CB22E6C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542819   (633672) от 09.04.2022
 
 Black Swan - Generation Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -632,122 +748,6 @@ Dare - Sacred Ground (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1261A1471982470AFA8056256D8F1C45E2DFA569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035827   (624298) от 18.07.2016
-
-AC/DC - Rarities (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stick Around
-02. Love Song
-03. Fling Thing
-04. R.I.P. (Rock In Peace)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCE5D21713534A81509A4CC96FC311D903C5514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544074   (623819) от 14.04.2022
-
-DeVicious - Black Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterlife
-02. Heroines
-03. A Special Mind
-04. Liar(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BF1CEE7E94D1B04EFC0F0B5179DAD91F10F422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036097   (622758) от 19.07.2016
-
-Lee Aaron - Fire And Gasoline (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Boy
-02. Fire and Gasoline
-03. Wanna Be
-04. Bittersweet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF700D6802D3C5F1B70833C734CE8F7F29ABE34B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544288   (622190) от 15.04.2022
-
-Circle Of Friends - The Garden (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Piece Of Heaven (vocals – Doro) (4:48)
-02. Take My Love To Heart (vocals – Jaime Kyle) (3:22)
-03. Never Gonna Make Me Cry (backing vocals – Robin Beck, vocals – James Christian) (4:16)
-04. Bad Blood (vocals – Jeff Scott Soto) (4:42)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3344E34969399F2AE5B5B989A9BE8881F2D2B00
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1827130   (173421) от 20.10.2025
+
+Carolyn Wonderland - Truth Is (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sooner Or Later (4:13)
+02. I Ain't Going Back (2:54)
+03. Truth Is (3:39)
+04. Let's Play A Game (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DCC99FE5572982ACE69D9557CE2E8EA6AAAEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668483   (173374) от 13.10.2023
+
+Marilyn Monroe - Film By Film (1953 - 1962) 2CD, 2004, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Some Like It Hot [1:21]
+02. I'm Through with Love [2:36]
+03. I Wanna Be Loved by You [3:05]
+04. Running Wild [1:08](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 02:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52BB3A41866F54CCB2C77453542BBF7821BDCF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267543   (173312) от 13.10.2023
+
+Dave Hole - 11 Albums  (1990 - 2018) 14 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Blues-Rock, Slide Guitar>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dave Hole (родился 30 марта 1948) - лучший в 90-х слайд-гитарст блюза, самый известный блюзмен Австралии, обладает уникальной техникой игры на гитаре - Dave левша, но играет в "правой стойке", однако для компенсации давней травмы левой руки вынужден класть руку на гриф гитары сверху, а не снизу. Почти 20 лет Dave играл блюз по клубам, прежде чем судьба (   Читать дальше...   )Список альбомов:
+1990 - Short Fuse Blues
+1992 - The Plumber
+1993 - Working OvertimeЖанр: Blues-Rock, Slide GuitarПродолжительность: 13:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDCF95CBE535E9492B619CF4D4C8F33A5E59CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668835   (173256) от 14.10.2023
+
+Oscar Peterson - In London: The Rare Trio Session (1971) 2014, Pacific Delights [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stella by Starlight [5:18]
+02. Let's Fall in Love [7:03]
+03. I Can't Get Started [5:07]
+04. Alice in Wonderland [7:36](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2ADCB4071E2168F1D88EC48B47A8503D1847EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668837   (173249) от 14.10.2023
+
+Ella Fitzgerald & Joe Pass - Hamburg Duets (1976) 2008, Gambit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes [2:18]
+02. Feelings (first version) [5:02]
+03. Feelings (second version) [4:37]
+04. One Note Samba [7:56](   Читать дальше...   )Жанр: Vocal Jazz, Guitar JazzПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA53A109F92A33EB37E422E522448B648B02166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668852   (173248) от 14.10.2023
+
+Joe Pass - Catch Me! (1963) 2003, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling in Love with Love [5:50]
+02. Summertime [6:23]
+03. Mood Indigo [5:08]
+04. Catch Me [3:10](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BE63A5B6321DBF5A86D98C5CDA8C1C3CA74E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668850   (173227) от 14.10.2023
 
 Joe Pass Meets Tony Rizzi's 5 Guitars - Rose Room (1991) Alfa Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
@@ -567,180 +741,6 @@ Clare Fischer - Just Me: Solo Piano Excursions (1995) Concord Jazz [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FAC1C8EEE36984B665DADC957148FF15CAE538E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670058   (172358) от 19.10.2023
-
-Johnny Griffin Quartet + 3 - Dance Of Passion (1993) PolyGram [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Here to There [5:26]
-02. Dance of Passion [8:37]
-03. Make Up Your Mind [5:32]
-04. The Way It Is [6:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5E6D32A627866A570934B672B6F6C497F5586F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670057   (172351) от 19.10.2023
-
-Eddie "Lockjaw" Davis - The Heavy Hitter (1979) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Your Lover Has Gone [4:33]
-02. Just One of Those Things [4:16]
-03. Medley [8:24]
-04. Secret Love [5:40](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA81BD36A669ECACCBB63838711A98852D359F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670055   (172350) от 19.10.2023
-
-Clare Fischer - Alone Together (1975) 1997, Advance Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterdays [9:48]
-02. Du, Du, Liegst Mir Im Herzen [5:03]
-03. Tahlia [6:04]
-04. The Touch of Your Lips [5:20](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Piano JazzПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7E6A539114D9877487019DC769C4B33D1CEADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669659   (172341) от 19.10.2023
-
-George Mraz In Duet With Roland Hanna - Porgy & Bess (1976) 2020, Octave Lab [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summertime [5:52]
-02. It Ain't Necessarily So [4:38]
-03. Strawberry Woman [4:07]
-04. There's a Boat Dat's Leavin' for New York [5:12](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C53B5E35E2DB7DC76F10BC1009D3F6789E325C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204205   (172212) от 19.10.2023
-
-Jonny Lang - 8 Albums (1995 - 2017) [FLAC|Lossless|image + .cue, tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172212.jpg" />
-</div>
-
-
-###  Подробнее
-
-К моменту празднования своего 23-летия блюзовый гитарист и вокалист Джонни Лэнг мог похвастаться десятилетней профессиональной карьерой, четырьмя выпущенными альбомами, два из которых разошлись платиновыми тиражами, номинацией на "Грэмми", выступлениями с Бадди Гаем и Би Би Кингом, записями с Джоном Майалом и Вилли Нельсоном, участием в фильме "Blues (   Читать дальше...   )Список альбомов:
-1995 - Smokin
-1996 - Lie To Me
-1998 - Wander This WorldЖанр: Blues RockПродолжительность: 07:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A9077900847FF6428E4FFA14A6629A4860FDBD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670299   (172148) от 20.10.2023
-
-Erroll Garner - The Complete Savoy Master Takes (1945 - 1949) 2CD, 1998, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undecided [2:42]
-02. Red Sails in the Sunset [2:43]
-03. All of Me [2:50]
-04. Over the Rainbow [3:01](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6258144930C4D74FD736AC0A45574BA03B8D4089
 ```
 
 https://mybot314.ru/tekegram_catalog/

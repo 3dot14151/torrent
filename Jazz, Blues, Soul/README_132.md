@@ -1,3 +1,177 @@
+###  Публикация: 1123722   (786212) от 09.04.2017
+
+Devon Allman's Honeytribe - Space Age Blues (2010) [FLAC|Lossless|image + .cue] <Blues Rock, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Could Get Dangerous  (04:14) 
+02. Space Age Blues  (05:16) 
+03. Salvation  (04:41) 
+04. Sir Duke  (03:47) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A90D9A04195C8503B8C7578B32F6C8565C0A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123993   (786209) от 09.04.2017
+
+Devon Allman - Turquoise (2013) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Left Home  (04:05) 
+02. Don't Set Me Free  (03:40) 
+03. Time Machine  (03:39) 
+04. Stop Draggin My Heart Around  (04:46) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAEBF3B87F48F5C428A4D0007144D232AB6445F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124047   (786207) от 09.04.2017
+
+Jonathan Butler - Do You Love Me? (1997) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Song for Elizabeth (04:10)
+02 Do You Love Me? (04:34)
+03 The Other Side of the World (04:33)
+04 Life After You (04:43)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181B7B5FB2962E8E117B0DF59893C2227ADBB624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123870   (786202) от 09.04.2017
+
+Blind 'n' Dangerous - In Flames (1995) 2014, Bnd Music Co. [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gangster (5:26)
+02. Skippin' On The Edge (3:37)
+03. Splinter (4:53)
+04. I Can't Help It (5:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC9640FB906DB8632345CDB8D47068E5EF0F41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123816   (786197) от 09.04.2017
+
+Wes Jeans - Hands On (2000) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me  (03:22) 
+02. Ridin' In The Moonlight  (03:42) 
+03. Now You Look At Me  (02:24) 
+04. Use What You Got  (06:18) (   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787B6F2251D06CA48DD2B887671AEDB9DC6A7D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123947   (786193) от 09.04.2017
+
+Karolina Smietana - Illusion (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something
+02. Skylark
+03. Within
+04. É Preciso Perdoar(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375E34BF88EFE21659EB7F38BDF6DD8427DD29CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123717   (786188) от 09.04.2017
 
 VA - Ballroom Gala Jazz (2017) [MP3|320 Kbps] <Jazz>
@@ -569,182 +743,6 @@ John Abercrombie, Ralph Towner - Sargasso Sea (1976) [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D65FD91F4975051B289F85045AEE499BDE7B73A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124364   (785811) от 11.04.2017
-
-Bunny Brunel & Friends - Bass Ball (2017) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing But The Bass [04:42]
-02. Slap & Tickle [05:21]
-03. Stand Out [05:19]
-04. Lopsy Lu [06:14](   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F516ABEF4238F97AEB899E9450B75F52A3FA37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124377   (785810) от 11.04.2017
-
-Jay Jesse Johnson - Set The Blues On Fire (2015) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell Or High Water (3:54)
-02. Ghosts In Texas (4:21)
-03. Since My Baby's Gone (4:57)
-04. Wheelhouse Boogie (5:03)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6D70F62265F393524B6A13738C3607915B63FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124545   (785805) от 11.04.2017
-
-Joey Gilmore - Brandon's Blues (2015) [FLAC|Lossless|image + .cue] <Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Thing Go Bad   (04:19) 
-02. Cheaper To Keep Her  (05:18) 
-03. Brandon's Blues  (04:29) 
-04. Somebody Have Mercy  (04:13) (   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16EAC420B00285E721DD08394266E1F94EDCBC87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124372   (785791) от 11.04.2017
-
-The Hot 8 Brass Band - On the Spot (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Funk, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 8 Kickin' It Live (7:09)
-02. Get It How You Live (6:39)
-03. Bottom Of The Bucket (6:49)
-04. On The Spot (5:32)(   Читать дальше...   )Жанр: Funk, New Orleans JazzПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3BADF876F7D11FC40C1597AA55EEDC4A9020B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124315   (785788) от 11.04.2017
-
-VA - Timeless Piano Instrumental: Smooth Jazz Collection (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piano Atmosphere Ensemble - Timeless Piano Instrumental
-02. Sentimental Piano Jazz Club - Late Night Date
-03. Relaxing Piano Jazz Music Ensemble - Smooth Restaurant Music
-04. Jazz Piano Bar Academy - Deep Relax(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CAE78993083E551C4FE9CEE8BFFFE095FA1FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124594   (785777) от 11.04.2017
-
-The Blues Cousins (Блюз Казнс) - Дождь (1999) [APE|Lossless|image + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леван Ломидзе является первым  российским       гитаристом, признанным на родине Блюза.
-2002 году был подписан долгосрочный контракт с Вашингтонским Блюзовым сообществом, о проведении 5 туров по США , включая выступления на самых престижных блюз фестивалях Америки. В общей сложности было проведено более 100 концертов.
-На фестивале « Blues Sur Sein 2000» (Франция) Леван (   Читать дальше...   )01. One Step (3:50)
-02. Nobody Knows (3:34)
-03. Дождь (3:50)
-04. Come Together (3:18)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE70C41474FCFADB48758857B01FF955405EE38
 ```
 
 https://mybot314.ru/tekegram_catalog/

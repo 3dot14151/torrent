@@ -1,3 +1,90 @@
+###  Публикация: 1451525   (1028241) от 03.03.2021
+
+VA - Melodic Synthpop Release (2021) [MP3|320 Kbps] <Synthpop, Electropop, Pop Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это музыкальное направление, ежегодно дарящее миру новых звезд, без которых невозможно представить себе современную эстраду. Особенность этой музыки это эксперимент и отсутствие строгих рамок и шаблонов. Порой это чувственные и трепетные композиции, порой ритмичные и танцевальные.001. Golin - Play Odds
+002. Elektrotechnika - Olivia
+003. Mondtraeume - Free
+004. Stephen Paul Taylor - Gdmf(   Читать дальше...   )Жанр: Synthpop, Electropop, Pop DanceПродолжительность: 11:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6CD5BE6D5C182A23BF96BAB04FE4E9D0C675B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451524   (1028239) от 03.03.2021
+
+VA - House Garden Music: Deep Session (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшее средство от депрессии и подавленного настроения - музыка сборника от House Garden Music! Композиции могут похвастаться великолепной атмосферой позитива и тонким чувством стиля. Альбом буквально полностью пропитан легкими нотками романтики и танцевального духа. Хорошая работа во всех смыслах. Приятного прослушивания!01. Jt Donaldson - Untied
+02. Sharam - Do Ya
+03. Gerah - Iris (Original Mix)
+04. Wolf Story - Peak(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F228C322313BDE296D87988BDE16AF951A07754B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451523   (1028238) от 03.03.2021
+
+VA - EDM Neon Hypnotic (2021) [MP3|320 Kbps] <EDM, House, Techno, Electro, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неоновые люди, неоновые предметы, неоновые танцы. Флуоресцирующие лица, летающие неоны всех цветов радуги, полумрак и манящий клубный саунд! А главное, стойкое ощущение чего-то совершенно инопланетного, загадочного и фантастического.001. Alex Dolby - White River
+002. Al Mar - Eleven Seconds
+003. Space Afrika - Untitled
+004. Ed Bronx - Dark Matter(   Читать дальше...   )Жанр: EDM, House, Techno, Electro, ClubПродолжительность: 11:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356B5799DC88079996B71484EBCD56E9847D5C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451790   (1028233) от 03.03.2021
 
 VA - Beatport Bassline: Electro Sound Pack #251 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
@@ -658,93 +745,6 @@ VA - Music News vol.79 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81BF36141F5420A9D0F4AC9DC3C04C7A97F6B4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452650   (1027598) от 07.03.2021
-
-VA - March Urban Trance Party (2021) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем Вам погрузиться в только лучшую атмосферу андеграунда, вместе с лучшими ди джеями европы, которые не перестают удивлять своих слушателей креативом мышления и взглядом на современную музыку.001. Cquenz - Breathe You In
-002. Ultimate - Outside World
-003. Emj - Cosmic Ocean
-004. Xijaro & Pitch - Head Over Heels(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 12:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB50FEACD2CFC2CC7C8333F321FB59629A21E969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452649   (1027597) от 07.03.2021
-
-VA - E-Dance: Clubbing Electro House (2021) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отпадная клубная музыка в жанре Elесtrо Hоusе собрана настоящими меломанами, клаберами и ценителями качественного саунда в альбоме «E-Dance: Clubbing Electro House». Вас ждет очень много заводных мотивов, сэмплов и крутой вокал. Вся эта музыка звучит на топовых радио и видео каналах мира, на масштабных фестивалях и корпоративах. С первых треков мощный бит поднимет (   Читать дальше...   )001. Steve Massano - Division
-002. Blaze & Udaufl - Spread Love
-003. Markus Grunewelden - No Quick Fix
-004. Dama Blank - Deep(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 11:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0B01A9BE794937A8DAAA785F8AE0ACC6E1A944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452651   (1027586) от 07.03.2021
-
-VA - My Feelings Electropop Music (2021) [MP3|320 Kbps] <Synthpop, Electropop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкий не напрягающий напев, классические синтезаторные тембры, околофанковый гитарный саунд, приятный запоминающийся мотив - все это в совокупности составляет отличную музыкальную композицию, которую не стыдно поместить в плейлист для ежедневного прослушивания.001. DJ Antention - Runaway
-002. Irrlicht - La Piece
-003. Albino - Amando
-004. Boy Blue - Don't Leave Me Alone(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 09:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A327A163D737FB89BC10C599B7EE6242BB4F1A7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

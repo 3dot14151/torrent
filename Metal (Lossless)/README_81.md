@@ -1,3 +1,352 @@
+###  Публикация: 1510768   (790447) от 18.11.2021
+
+Warfield - Master Executor (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master Executor (05:45)
+02. Men, Machines... Memories (04:18)
+03. Breaking the Spell (05:39)
+04. Missing Children (06:01)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5820CB091F5F97D9DF4747A691F09E5C98AFA6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510830   (790446) от 18.11.2021
+
+Dark Heart - Dark Heart (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkest Eyes (04:51)
+02. Cast To Stone (05:42)
+03. Edge Of Dreams (04:59)
+04. Degrees Of Separation (04:56)(   Читать дальше...   )Жанр: Heavy Metal, NWOBHMПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36568C57A69602F5EB34925EDB73BAB1E3114BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510722   (790386) от 18.11.2021
+
+Be'lakor - Coherence (2021) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Locus (10:49)
+02. The Dispersion (1:53)
+03. Foothold (7:19)
+04. Valence (9:10)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842DA829381648E34601A76113301AAA6021B3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510553   (790335) от 18.11.2021
+
+The Three Tremors - The Three Tremors (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Признанные хэви-метал вокалисты Tim «The Ripper» Owens (JUDAS PRIEST, ICED EARTH, YNGWIE MALMSTEEN), Harry «The Tyrant» Conklin (JAG PANZER) и Sean «The Hell Destroyer» Peck (CAGE, DEATH DEALER, DENNER/SHERMANN) объединили свои усилия в новом проекте под названием THE THREE TREMORS.
+Так же в группе участвует прославленный гитарист Dave Garcia, чье упорство разжигает (   Читать дальше...   )01. Invaders From The Sky
+02. Bullets For The Damned
+03. When The Last Scream Fades
+04. Wrath Of Asgard(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72AC493288455FD20D095A8C75E9B01EE9719DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510615   (790158) от 18.11.2021
+
+Judas Priest - 50 Heavy Metal Years Of Music (2021) 42xCD,  Box Set, Compilation, Limited Edition, Reissue, Sony Music [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790158.jpg" />
+</div>
+
+
+###  Подробнее
+
+JUDAS PRIEST выпустили огромный лимитированный box-set "50 Heavy Metal Years", куда вошли все их официальные студийные и концертные альбомы, а также 13 дисков с ранее не издававшимся материалом.CD - 1 - Rocka Rolla:
+01. One For The Road
+02. Rocka Rolla
+03. Winter(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 35:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E1AD93FC372DDEF675E781E0FD237DC0B71CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275527   (789936) от 12.01.2019
+
+Ironia - Hate State (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     The Claws Of Your Life
+02.     Hate State
+03.     Looking For You
+04.     Burn Your World(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152375FCD497C5C1C21F8000073C6E05A1D213BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511094   (789805) от 19.11.2021
+
+Exodus - Persona Non Grata (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Persona Non Grata
+02. R.E.M.F.
+03. Slipping Into Madness
+04. Elitist(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147F68B466256640D2FC7344A516B121DC3C2155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511300   (789467) от 20.11.2021
+
+Hell Fire - Mania (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warpath
+02. Mania
+03. On The Loose
+04. Born To Burn(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8FDEAA2CF6C9592CF57C8AAD4A574E89A80012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511269   (789463) от 20.11.2021
+
+Nightland - The Great Nothing (2021) [FLAC|Lossless|WEB-DL|tracks] <MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Conjunction Of Benetnash
+02. For Once My Name
+03. Shade Of A Lowering Star
+04. Further(   Читать дальше...   )Жанр: MDMПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BED0809FAE642C82B13564302239EB4EBFD188A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511230   (789431) от 20.11.2021
+
+Aephanemer - A Dream Of Wilderness (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Of Hope
+02. Antigone
+03. Of Volition
+04. Le Radeau de La Meduse(   Читать дальше...   )Жанр: Symphonic Melodic Death MetalПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B86E7954C5CB278AE8828D191CA4BAC11068E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511389   (789372) от 20.11.2021
+
+Power Reset - Dungeon Master (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Void (01:16)
+02. Mystic Quest (06:39)
+03. Instinctive Hunter (04:10)
+04. Faded Dreams (04:49)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E9AEE1598909905F51DA603DE16B225CD1F5AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511150   (789368) от 20.11.2021
+
+TwentyDarkSeven - Catch A Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking High Wire
+02. Broken
+03. Hypocrites And Parasites
+04. One Light Burning(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FFF5A83BCB560CC7A6C612A382AA7D6A870CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510911   (789198) от 20.11.2021
 
 Beast In Black - Dark Connection (2021) [FLAC|Lossless|tracks + .cue] <Melodic Heavy Metal, Power Metal>
@@ -398,354 +747,6 @@ Emigrate - The Persistence Of Memory (2021) [FLAC|Lossless|WEB-DL|tracks] <Indus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2BF51605D45C479697E6DAFEFB68F770BBB549F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511971   (787851) от 23.11.2021
-
-Exodus - Persona Non Grata (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Persona Non Grata
-02. R.E.M.F.
-03. Slipping Into Madness
-04. Elitist(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1C87EBB02D60E0CA278229A8E243F495A10C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276748   (787658) от 17.01.2019
-
-Lordi - Monstereophonic (Theaterror Vs. Demonarchy) (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SCG8: One Message Waiting (1:10)
-02. Let's Go Slaughter He-Man (I Wanna Be The Beast-Man In The Masters Of The Uni... (4:31)
-03. Hug Your Hardcore (3:40)
-04. Down With The Devil (4:30)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86541817771DCB0716B5D4A8E6C288C496E68A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276575   (787657) от 17.01.2019
-
-Lordi - Deadache (2008) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SCG IV (0:42)
-02. Girls Go Chopping (4:03)
-03. Bite It Like A Bulldog (3:29)
-04. Monsters Keep Me Company (5:29)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5180CE6C2F5B32CEC06BA414C8F204AA60D212C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276708   (787656) от 17.01.2019
-
-Lordi - Scare Force One (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SCG7: Arm Your Doors And Cross Check (1:37)
-02. Scare Force One (4:58)
-03. How To Slice A Whore (2:48)
-04. Hell Sent In The Clowns (4:20)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E96A3F82FBF0F308A6B768020B96E855EB6CECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203596   (787637) от 03.02.2018
-
-W.A.S.P. - ReIdolized: The Soundtrack to the Crimson Idol (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787637.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-1. The Titanic Overture
-2. The Invisible Boy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC0B15B01C920AD662FB2BB0196A38C9CBE93F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276565   (787629) от 17.01.2019
-
-Lordi - The Arockalypse (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SCG3 Special Report (3:46)
-02. Bringing Back the Balls to Rock (3:32)
-03. The Deadite Girls Gone Wild (3:45)
-04. The Kids Who Wanna Play With the Dead (4:07)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865434B8A29557B9ED54E1BF097020A73349B396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276774   (787625) от 17.01.2019
-
-Moonspell - 1755 (2017) Limited Edition [FLAC|Lossless|image + .cue] <Dark Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Em Nome do Medo (5:32)
-02. 1755 (5:12)
-03. In Tremor Dei (4:27)
-04. Desastre (3:23)(   Читать дальше...   )Жанр: Dark Metal, Gothic MetalПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DB899EA881B23851A59DFCDCE4F9368A2E2DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512331   (787460) от 24.11.2021
-
-Within Temptation - Enter & The Dance (1997-1998) Reissue, Compilation, 2014, Nuclear Blast Entertainment [FLAC|Lossless|image + .cue] <Gothic Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enter
-01. Restless (6:10)
-02. Enter (7:16)
-03. Pearls Of Light (5:16)(   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 01:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6022AD35C32A39CF4C4B8A2EC66B1290A8328AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512688   (787139) от 25.11.2021
-
-Leverage - Above The Beyond (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlight
-02. Emperor
-03. Into The New World
-04. Do You Love Me Now(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442E1F7FC9D07121988512E462FB5A2BCED313B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512620   (787080) от 25.11.2021
-
-Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son Of Vengeance
-02. The Kingdom Of Ice
-03. Glory For Salvation
-04. Eternal Snow(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE72311464D912FA7D9AD0C5AC5B1599A1E371C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277224   (787036) от 19.01.2019
-
-Embalmer - There Was Blood Everywhere (1995) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Was Blood Everywhere (1:51)
- 02. The Necro-Filing Cabinet (2:37)
- 03. Blood Sucking Freaks (2:09)
- 04. May the Wounds Bleed Forever (3:27)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC688DFC6E51D1B5A1AA8E72878D0F2D0ADFFDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277234   (787032) от 19.01.2019
-
-Lividity - ...'Til Only the Sick Remain (2002) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.L.C. (Tight 'lil Cunt) (4:22)
- 02. Coated With My Semen (3:23)
- 03. Unrelenting Homicidal Obsession (3:31)
- 04. A Woman's Place Is on My Face (3:00)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE3819334B6E5469A085DFC9173E580A7C3389F
 ```
 
 https://mybot314.ru/tekegram_catalog/

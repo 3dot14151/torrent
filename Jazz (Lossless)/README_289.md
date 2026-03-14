@@ -1,3 +1,90 @@
+###  Публикация: 1194976   (152195) от 27.12.2017
+
+Henry Mancini - Combo! (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moanin' [02:54]
+02. Sidewalks of Cuba [03:23]
+03. Dream of You [02:57]
+04. Swing Lightly [04:20](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E119F8641653A21090041FBB53C074A218CD376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434324   (152086) от 24.12.2020
+
+Jerry Bergonzi - Tenorist (2007) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gecko Plex [6:08]
+02. Pannonica [6:52]
+03. Simultaneous Looks [6:55]
+04. Table Steaks [8:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FC5CBEDF1A76A750B9FE140A4331998CA7D774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434279   (151963) от 24.12.2020
+
+Andreas Georgiou - Asate (2003) [FLAC|Lossless|tracks + .cue] <Fusion, Vocal Jazz, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nea Selini (Georgiou) - 3:54
+02. Dhoron Exagnismou (Georgiou) - 3:23
+03. Let the Spirit Flower (Georgiou) - 7:01
+04. Rainforest (Georgiou) - 10:55(   Читать дальше...   )Жанр: Fusion, Vocal Jazz, Ethnic JazzПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73806D3B70CFDC57623AC22C540504E041A19DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434326   (151869) от 24.12.2020
 
 Jerry Bergonzi - Spotlight On Standards (2016) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -658,92 +745,6 @@ George Benson - Invitation (1990) ORO [FLAC|Lossless|image + .cue] <Hard Bop, Ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:769D1A766F0E7D1EB0FF8452656D5C23029776FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677370   (150516) от 18.11.2023
-
-VA - Acid Jazz Classics, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Men 4 Soul - Operator (6:31)
-02. Anduze - How To Love A Good Man (3:33)
-03. Jerome van Rossum - Truth (4:29)
-04. Jestofunk - Disco Queen (3:21)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0498A0AEB2A03F06132821D3E6339FFC1658C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086699   (150452) от 25.12.2016
-
-Casiopea - Made in Melbourne (1994) Pioneer[FLAC|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fightman [05:06]
- 02.Passionate Voltage [03:10]
- 03.Final Chance [03:53]
- 04.New History [04:49](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B5BA535AC34218790D3E2AF8203D01ACE8B2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271402   (150434) от 23.12.2018
-
-Billy Harper Quintet - Live on Tour in the Far East Vol. 3 (1995) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soran-Bushi-B.H. [23:47]
-02. Call of the Wild and Peaceful Heart [20:48]
-03. Cry of Hunger [31:39]Жанр: Post-BopПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28ACB3EAF952B3FDA4B4F38BE1E17E9043DEF118
 ```
 
 https://mybot314.ru/tekegram_catalog/

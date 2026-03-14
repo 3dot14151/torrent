@@ -1,3 +1,32 @@
+###  Публикация: 1184838   (297157) от 19.11.2017
+
+Kris Kristofferson - The Austin Sessions (Expanded Edition) (2017) [MP3|320 Kbps] <Country, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me And Bobby McGee (Remastered) (4:29)
+ 02. Sunday Morning Coming Down (Remastered) (5:18)
+ 03. For The Good Times (Remastered) (3:57)
+04. The Silver Tongued Devil And I (Remastered) (3:34)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8ED73B9EA8A6781BB8D15B4618B390996489E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960388   (296796) от 03.12.2015
 
 Бряц-Band - 2 альбома (2005-2008) [MP3|320 кб/с]<Folk, Rock, Instrumental>
@@ -736,35 +765,6 @@ Bain Wolfkind (+ Novo Homo) - 7 albums (2004-2012) [mp3|192-320 kbps] <Dark Folk
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624964   (241449) от 11.04.2023
-
-Atahualpa - Atahualpa Rock (2020) [MP3|320 Kbps] <Native American, Rock, World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Altamar, Punales [04:47]
-02. Inerte [03:58]
-03. La Senda de Enfrente [02:44]
-04. No Sabe Perder [04:54](   Читать дальше...   )Жанр: Native American, Rock, WorldПродолжительность: 00:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D5B0AE4946DD078D2115D7AE8318B769F8E595
 ```
 
 https://mybot314.ru/tekegram_catalog/

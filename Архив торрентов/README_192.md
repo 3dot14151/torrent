@@ -1,3 +1,32 @@
+###  Публикация: 1475126   (1012581) от 05.06.2021
+
+Eric Prydz - BBC Radio 1 Dance at Big Weekend (2021-05-28) [MP3|~245 Kbps (V0)] <Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pryda - Creamfields 2017 ID 01 (Working Title)
+02. Pryda - Euro T
+03. ToNjA Holma - All Night
+04. Pryda - Level 99(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6041BCF41577DFB1AA60BB5D50DEA83432ECCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475128   (1012571) от 05.06.2021
 
 FBackup 9.0.307 [Multi/Ru]
@@ -660,32 +689,6 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E22D0B66B7AAD5F6C0EE22EDB2D7FA9BBFD5425D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475134   (1012363) от 06.06.2021
-
-Maxthon Browser 6.1.2.1000 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия Maxthon 6 разработана как полнофункциональный веб-браузер. Он сочетает в себе уникальные функции популярного браузера Maxthon 5 и важнейшие преимущества проекта с открытым исходным кодом Chromium. Maxthon 6 - это первый шаг на пути к новому Интернету, известному как Метанет (Metanet).Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720937FCB77A81AED01FF349A6B024F98281A902
 ```
 
 https://mybot314.ru/tekegram_catalog/

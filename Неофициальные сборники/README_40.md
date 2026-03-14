@@ -1,3 +1,90 @@
+###  Публикация: 1485533   (1005304) от 26.07.2021
+
+VA - Fitness Motivation Hits 2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Corry, MNEK - Head & Heart (2:46)
+02. Ofenbach, Quarterhead, Norma Jean Martine - Head Shoulders Knees & Toes (2:36)
+03. DMNDS, Strange Fruits Music, Fallen Roses, Lujavo, Nito-Onna - Calabria (2:08)
+04. VINAI - Touch (2:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9B7CA6685C4804F386096A7EF459E11C951EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484688   (1005187) от 27.07.2021
+
+VA - Technical & Progressive Death Metal 6 (2017-2021) from Domovoy767 [MP3|320 Kbps] <technical death metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005187.jpg" />
+</div>
+
+
+###  Подробнее
+
+abstract mechanism. Vol.1
+
+1. Depth - Eyes Of Eternity
+2. Desecrate - Tears Of Blood And Sand(   Читать дальше...   )Жанр: technical death metal, progressive death metal, technical thrash metalПродолжительность: 40:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FBE1E7A5A16B6D777A4FF61B3F2783826D0279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485754   (1005183) от 27.07.2021
+
+VA - Наш Тик Ток 2 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xcho - Путь (2:56)
+02. VESNA305 - БЕЛАМОРЕ (2:47)
+03. GAVRILINA - Омут (2:09)
+04. Бамбинтон - Party Music (3:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2FD6B4C8D0B0D1FBCF31A3F23D34CC7C76655BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485863   (1005078) от 28.07.2021
 
 VA - Feel Good Classic Hits (2021) [MP3|320 Kbps] <Pop, Rock, Other>
@@ -658,93 +745,6 @@ VA - Finest Hour: Country Collection (2019) [MP3|320 Kbps] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B25CE78DE382B97DD95906CC405A6E85BA5C527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349508   (1004302) от 02.01.2020
-
-VA - Hi Games Vol.4 (Chiptune Edition) (2020) [MP3|320 Kbps] <Chiptune>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vince Kaichan - Drag Strike
-02. H-Mister - Destination
-03. Glenntai, RoBKTA - ASGORE (from UNDERTALE)
-04. Jredd - Moon Glider(   Читать дальше...   )Жанр: ChiptuneПродолжительность: 02:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D04DEB92B18DD99DCD8AFB31C2610595702365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349592   (1004295) от 02.01.2020
-
-VA - Animalistic Vol.02 (2019) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004295.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beyond The Grey - Unthinkable Tragedy
-002. Vitaform - Devil's Mirror
-003. Hands Of God - 2 Shotz
-004. Primal Fear - Apocalypse(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 08:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AFD90A2141979EF82A080F0C8042C9973D0C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349588   (1004271) от 02.01.2020
-
-VA - Hardstyle Dance Music For Fitness Vol.03 (2019) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004271.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Estasia - Queen Of The South
-002. Audiofreq - Sky Fall
-003. Dj Allan Xp - Laser Battle
-004. Matt Cubero - Cedan(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, ElectroПродолжительность: 09:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D2100EBB87508DFBFEAAFC80154773D0778C59
 ```
 
 https://mybot314.ru/tekegram_catalog/

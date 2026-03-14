@@ -1,3 +1,32 @@
+###  Публикация: 1440914   (1038061) от 20.01.2021
+
+VA - Beatport Tech House: Electro Sound Pack #177-1 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Композиции музыкальной этой подборки определенно должны попасть в топ лучших альбомов года каждого меломана. Ведь уже упоминание известного медиа лейбла в его названии говорит само за себя, обещая нам музыку полного драйва и адреналина.001. Acid Joy - Goes On
+002. Ultra Pop - Dance To The Beat
+003. Dillon Tap - Womp
+004. Deebesh - Of A Sudden(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 09:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D86187F86C058DBE733CBA30C884C9B46C9EF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440910   (1038060) от 20.01.2021
 
 VA - Beatport Trance: Electro Sound Pack #180-1 (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
@@ -716,35 +745,6 @@ VA - Beatport Techno Electronic: Sound Pack #232 (2021) [MP3|320 Kbps] <Techno, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:287801BF5D17CF0149F225F271950074A6D438E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444149   (1034948) от 31.01.2021
-
-VA - Gravity Dance (2021) [MP3|320 Kbps] <Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник "Gravity Dance" в полной мере можно отнести к музыке экспериментального направления, где в построении музыкального ряда используются отстранённые голоса и звуки, синтезированный саунд и аномально растянутые ритмы. Экстремальные эмоциональные и психические состояния, галлюцинации, существование на грани запредельного – всё это вы найдёте здесь в (   Читать дальше...   )001. Richard Filtter - Sofocante
-002. Acrobotik - Nestle In
-003. Wxlter - Astral Divinity
-004. Das Butterschnitzel - Full On Love(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 09:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1327677199AA320C50D06AA977940C71FC27BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

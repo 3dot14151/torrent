@@ -1,3 +1,148 @@
+###  Публикация: 1597902   (165168) от 16.12.2022
+
+VA - FSOE 750 - Kings & Queens (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Gillies - Nostalgia (Extended Mix)
+02. Billy Gillies - Density (Extended Mix)
+03. George Acosta & Fisher - True Love (Billy Gillies Remix)
+04. Billy Gillies - Lovesick (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 06:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A7BC560EBC2AA5E97CE798A088E8AE3663C475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597775   (165138) от 16.12.2022
+
+VA - Abora Recordings: Best Of 2021 (Mixed By Ori Uplift) (incl. Extended Mixes) (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New World - Komorebi (Emotional Intro Mix)
+02. Sandro Mireno & Jan Miller - Here Comes The Rain (Extended Mix)
+03. Maratone & Linney - Closer To You (Lasse Macbeth Extended Remix)
+04. BarWall - Where Will I Go (Extended Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CEF988E09DEC3FAEBDC78EA0AB9EE021D80FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597897   (165120) от 16.12.2022
+
+VA - Black Hole Trance Music 12-22 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JES - Is It True (Extended Mix) [6:54]
+02. Markus Schulz & Copini - Atlas (Extended Mix) [4:17]
+03. BT - Flaming June (Dan Thompson Extended Remix) [7:16]
+04. Ciaran McAuley & Susie Ledge - You're Never Alone (Extended Mix) [7:16](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3882880078EBBF670F2F10625D1610BF5B35BD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597913   (165113) от 16.12.2022
+
+VA - Enhanced Music Best Of (Mixed by Tritonal) (2022) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klur - Entangled (Extended Mix)
+02. Klur & Hildur Ottilia - Heart To Heart (Extended Mix)
+03. Modera & Phoebe Tsen - Lotus Flower (Extended Mix)
+04. Sound Quelle & Lauren L'aimant - Colours (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 04:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9F7D4E325852EA93E64E289BBC84EC5535CA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597771   (164882) от 16.12.2022
+
+VA - A State Of Trance Year Mix (Mixed by Armin van Buuren) (2022) 2CD [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Roland Clark - A State Of Unity (ASOT Year Mix 2022 Intro)
+02. Hardwell - INTO THE UNKNOWN (Extended Mix)
+03. Gareth Emery & Omnia - Unity (Extended Mix)
+04. Armin van Buuren & Florentin feat. Jordan Grace - Echoes (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 11:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3CCCCBD73B956B91159659EC09FB7E59A27407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516936   (164435) от 13.12.2021
 
 VA - FSOE 700 - Rise Up (Mixed by Fuenka & Paul Denton) (2021) [MP3|320 Kbps] <Trance, Progressive House>
@@ -598,151 +743,6 @@ VA - Future Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAE849B10EC3545B9882DEC7FBBC80280E5FBC30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968801   (151725) от 25.12.2015
-
-VA - Recoverworld Radio 004 (Mixed by Rich Smith) (2015) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Maguire - It's Complicated (Original Mix) (7:45)
-02. Pablo Anon - Andromeda (Original Mix) (6:44)
-03. Billy Rutts - You're the Cause (Original Mix) (7:24)
-04. Ian Buff - Whatever Whenever (Original Mix) (6:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1DF0CBEFD15BA6B7DC4B45524B108D59574AF09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677283   (151314) от 17.11.2023
-
-VA - Trance Autumn 2023 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitry Ruman - System Life (Original Mix) (7:39)
-02. Roman Sand - Shining Light (Original Mix) (6:43)
-03. Dimassive - Breeze (Extended Mix) (6:30)
-04. 40THAVHA - Jump and Dont'stop (Extended Mix) (6:58)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC0C7B676430A70E8214F316E92B9FF5C60EB1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677291   (151277) от 17.11.2023
-
-VA - 10 Years Of Suanda Music - Mixed by Christopher Corrigan (2023) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christopher Corrigan & Rebecca Louise Burch - Ellie (Extended Mix) (6:27)
-02. Christopher Corrigan - We All Want (Extended Mix) (7:11)
-03. Christopher Corrigan - Stay With Me (Extended Mix) (6:15)
-04. Christopher Corrigan - With You (Extended Mix) (6:43)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2113ABAFC8CCCDB7769BA3C3188175D5839EB118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601477   (150923) от 31.12.2022
-
-VA - Interplay Highlights 2022 (2022) [MP3|320 Kbps] <Trance, House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150923.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ANASTASiiA - Skyline
-2. Alexander Popov/Whiteout/LTN/Ghostbeat - Right Back (LTN, Ghostbeat Remix)
-3. Ron With Leeds - Petrichor
-4. Prime Punk - Not Available(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DFDE5A6CF391C009340297F45884DC5A4F5B0B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826076   (150675) от 18.10.2025
-
-VA - Rising Sun Wonders (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2bnsn - Kagerou 06:48
-02. Yusuke Teranishi & Shuntaro Sogabe - Everlasting (Shingo Nakamura Remix) 05:38
-03. Inxisiv - Forever 08:17
-04. Asioto - Moving Away From The Past 07:05(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 01:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E93D9B1A714E9C23971B62F22B11CB8FE7531E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

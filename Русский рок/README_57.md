@@ -1,3 +1,87 @@
+###  Публикация: 1408709   (451826) от 14.09.2020
+
+Weesp - 4CD: (The Void/Black Sails/Crystal Clean Waters/Боль) (2015-2020) [MP3|320 Kbps] <Post Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мотыльки [00:04:15]
+02. Железный Край [00:03:57]
+03. Настоящим [00:03:44]
+04. Выстрел в Небо [00:04:50](   Читать дальше...   )Жанр: Post MetalПродолжительность: 4CD, 02:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56310340CB3F7527B655ECE2D7E940369A0844B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247733   (451091) от 16.09.2018
+
+Radio Tapok - Последняя песня (2018) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трек выполнен в стиле группы Кино.1. Последняя песняЖанр: RockПродолжительность: 00:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB8A632D21185CA141D35DF1D4CE8EB2D589A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247730   (451054) от 16.09.2018
+
+Zero People - Красота (2018) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертый альбом сайд-проекта музыкантов группы Animal ДжаZ Александра Красовицкого и Александра Заранкина.1. Зверь
+2. Токсичное чувство
+3. Стена
+4. Псих(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AA4528B8FE6107C72AD95B15B193922053899F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163554   (450114) от 05.09.2017
 
 Глеб Самойлоff & The Matrixx - Звезда (2017) Single [MP3|320 Kbps] <Rock>
@@ -645,90 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:796A1240D119D53728B68C9941182FB3345CEC23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409924   (440726) от 19.09.2020
-
-ЧайФ - Не теряй надежду (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не теряй надеждуЖанр: RockПродолжительность: 00:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74EBF70E411883F71C3B60D950C84FCC90BB0337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409917   (440582) от 19.09.2020
-
-Фёдор Чистяков - Последний из могикан (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Russky Rock'n'roll (04:16)
- 02.Trains Rolled Down The Street (04:44)
- 03. Little Corey (03:29)
- 04. Lenin Street (04:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FA79A35AFB2895A4A4C4F38AD7BE1F6B2B3876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944588   (440081) от 07.10.2015
-
-Stigmata - Legion EP (2015) [MP3|~245 кб/с (V0)]<Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440081.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Legion (2:59)
-2. Радио "Смерть" (4:58)
-3. На повтор (3:14)
-4. Голод (Scang cover) (4:14)Жанр: Melodic MetalcoreПродолжительность: 00:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10742E3BD60868724B4CC39179CEA23AD88CE7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

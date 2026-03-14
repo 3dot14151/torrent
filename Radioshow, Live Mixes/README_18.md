@@ -1,3 +1,61 @@
+###  Публикация: 1425382   (222662) от 20.11.2020
+
+ARTBAT - Tomorrowland Friendship Mix (2020-11-19) [MP3|320 Kbps] <Techno, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Asher & James Massiah - Time & Space (Reprise Mix)
+02. Colyn - Khazad Dum
+03. Yotto - Nova
+04. Innellea - The World Returns(   Читать дальше...   )Жанр: Techno, Progressive HouseПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5677D259E5BB8101C03FD8EE42941255AECE699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343376   (218794) от 06.12.2019
+
+VA - Markus Schulz -Global DJ Broadcast  - World Tour Montreal (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.BBE - Seven Days And One Week (Yotto  Remix)
+02.Tiger Stripes - Ride
+03.Sam Paganini - Rave (Talla 2XLC  Prog Rework)
+04.ID - ID(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBCA1AE733CD3F994A42BF0B8D4DB5D71089052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343385   (218757) от 06.12.2019
 
 VA - Ori Uplift & Phoenix - Uplifting Only 356 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -684,64 +742,6 @@ Martin Garrix - Live @ IDEM, RAI, ADE (2023-10-20) [MP3|320 Kbps] <Electro House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AC25B7B65BDEDFD548BD4CB2DF54EA93341C21D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345569   (166632) от 15.12.2019
-
-DJ KUBA & NEITAN - Yearmix 2019 2019-12-08 [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ KUBA & NEITAN ft. Kris Kiss - Helicopter w/DJ KUBA & NEITAN ft. Kris Kiss - Helicopter (VIP Mix)
-02. Europe - The Final Countdown w/Dimitri Vegas & Like Mike & Martin Garrix - Tremor (Sensation 2014 Anthem) w/Hardwell & MAKJ - Countdown (Acappella) w/REGGIO & DJ Junior - Spectrum
-03. Wasback & DJ Junior - Alive
-04. Blinders - Relieve(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA8FD5FDCA89B4C0A58A86A24CCEBEF0C91F6DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516073   (165410) от 12.12.2021
-
-Renton - Birthday Mix (2018) [FLAC|Lossless|WEB-DL|image + .cue] <Chillout, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babe Roots feat. Milly James - Sun Is Shinning (3:21)
-02. Twoom - Huntress (4:17)
-03. Kiimyo - Tehran's Rain (4:15)
-04. Mashti/Jean Von Baden feat. Fuat Talay - Bossamor (4:01)(   Читать дальше...   )Жанр: Chillout, Deep HouseПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A974D7DF1628CDF707420056D4CB32FC07082033
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1264366   (1005258) от 26.07.2021
+
+Rare Bird - 9 albums, 1 Box-set, 16 CD (1969-2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005258.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Rare Bird" появилась на свет в Лондоне в октябре 1969 года. Группа, которая в начале своего пути потрясла слушателя красотой музыки, неординарностью аранжировок и нестандартным набором музыкальных инструментов, а именно – отсутствием электрогитары и двумя клавишными. 1970-й год стал пиком популярности группы, ведь даже "Billboard magazine" признал (   Читать дальше...   )--------------------------
+
+01. Are You Ready (3:21)
+02. Rain On Me (4:15)(   Читать дальше...   )Жанр: Progressive Rock, Crossover Prog, Psychedelic Rock, Blue Eyed Soul |Продолжительность: 12:47:14 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34A6C4F6E7BE1B3ADB8D01E8F5F6B2FA24BE6DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486133   (1004882) от 30.07.2021
+
+Heaven & Earth - V (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drive
+02. Beautiful
+03. Never Dream Of Dying
+04. Ship Of Fools(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27CFDD21388A4C4C3BDB9826D0C63233215A6E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486563   (1004592) от 01.08.2021
+
+Nitrate - Renegade (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danger Zone
+02. Renegade
+03. You Think You've Got It
+04. Big City Lights(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0219C5EE31B1D9B0FA1A9B7EA25C5C9AE6CBB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486492   (1004585) от 01.08.2021
+
+Restless Bones - Captured by the Roots (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonewalk (04:41)
+02. Monster (03:43)
+03. Common Sense (04:59)
+04. Sail Away (feat. Don Airey) (04:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEE96FD2A44048A939F18DAF571F4997C42F3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349448   (1004494) от 01.01.2020
 
 Six Feet Under (Sweden) - Discography: 2 albums (1983-1984) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
@@ -639,128 +755,6 @@ Foreigner - The Best Ballads (1995) [FLAC|Lossless]<Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432774   (989807) от 07.01.2012
-
-Bon Jovi - CrossRoad - The Best Of (1994) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989807.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Livin' On A Prayer
-2 - Keep The Faith
-3 - Someday I'll Be Saturday Night
-4 - Always
-5 - Wanted Dead Or Alive
-6 - Lay Your Hands On Me
-7 - You Give Love A Bad Name
-8 - Bed Of Roses
-9 - Blaze Of Glory
-10 - In These Arms(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661923   (987760) от 22.01.2020
-
-VA - Smoke On The Water - A Tribute To Deep Purple (1994) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speed King (Kelly Keeling - lead vocals, Yngwie Malmsteen - all guitars) [4:32]
-02. Space Truckin' (Kip Winger - lead vocals, Tony MacAlpine - lead guitar) [4:53]
-03. Stormbringer (Glenn Hughes - all vocals, John Norum - lead guitar) [4:18]
-04. Rat Bat Blue (Richie Kotzen - lead vocals, Richie Kotzen - lead guitar) [4:58](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E19B7F6F06695513AB7CAB792F07FE0CDBCA49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354644   (987032) от 23.01.2020
-
-Mammoth Mammoth - 4 albums, 2 EP (2008-2019) [FLAC|Lossless|image + .cue | tracks + .cue ] <Heavy Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mammoth Mammoth (стилизовано как MAMMOTH MAMMOTH) австралийская группа, играющая hard rock/stoner rock, образована в 2007 году в Мельбурне. Группа становилась все более известной благодаря своим лайв-выступлениям, где фронтмэн Майки Такер не знает границ. Согласно интервью в блоге Riff Media, Такер упал через стеклянное окно в The Tote Hotel, ударив его головой, (   Читать дальше...   )Список альбомов:
-2008 | Mammoth Mammoth (Volume I) (EP)
-2012 | Volume III: Hell's Likely
-2015 | Volume IV: Hammered Again(   Читать дальше...   )Жанр: Heavy Rock, Stoner |Продолжительность: 03:51:36 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C226C08709ABE6F36075140D186DA0AD67E8FB8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642668   (986935) от 23.01.2020
-
-W.E.T. - 2 Альбома (2009/2013) Japan Edition [FLAC|lossless] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Away [3:56]
-02. Learn To Live Again [3:32]
-03. Rise Up [3:22]
-04. Love Heals [4:28](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FD8A7F38BAA6148BA2161342ADF68471754ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/

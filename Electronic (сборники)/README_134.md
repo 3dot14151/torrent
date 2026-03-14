@@ -1,3 +1,38 @@
+###  Публикация: 545619   (485265) от 10.09.2012
+
+VA - Trance Tattoe #22 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lange & Audrey Gallagher - Our Way Home (Original Mix)
+02. Marc Simz feat. Naomi Striemer - This Is Love (Original Mix)
+03. Mike Shiver feat. Bo Bruce - Still Here
+04. Moonbeam feat. Blackfeel Wite - In Your Eyes (Original Mix)
+05. Omnia & IRA - The Fusion (Original Mix)
+06. Progressiver - Searching For The Truth (Original Mix)
+07. Ralphie B - Icarus
+08. Rave Channel - Illusion (Original Mix)
+09. Reminder - On The Beach (Stoneface & Terminal Remix)
+10. Rex Mundi - Opaque (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CBD18024E176B2BAE4F49C8DB7476FC0C066B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319342   (484723) от 11.08.2019
 
 VA - Future Ambient Electronic (2018) [MP3|320 Kbps] <Ambient, Downtempo, Electronic>
@@ -731,35 +766,6 @@ VA - Beatport Trance: Electro Sound Pack #161 (2020) [MP3|320 Kbps] <Trance, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26B0EC3AB7C77B7DFC405E3179704A4F0B17FE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567016   (478502) от 31.07.2022
-
-Joe Kelly & Heavyweight Recordings - Best Of In The Mix (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Hard Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Underground hard trance.01 Joe Kelly - What's Happening (Original Mix) (REDEMPTION,2002)
-02 JK Theory - Want Me (Original Mix) (NRGFLOW,2003)
-03 Synaps - What Have I Seen (Original Mix) (HEAVYWEIGHT,???)
-04 Synaps - Megatron (Original Mix) (HEAVYWEIGHT,2002)(   Читать дальше...   )Жанр: Hard TranceПродолжительность: 1:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE2FBDFBBFC31B55C083BC6A2FD74FDEC4D8081
 ```
 
 https://mybot314.ru/tekegram_catalog/

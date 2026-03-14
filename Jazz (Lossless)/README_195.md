@@ -1,3 +1,102 @@
+###  Публикация: 564131   (402852) от 23.10.2012
+
+Lee Ritenour - Rhythm Sessions (2012) [FLAC|Lossless]<Fusion, Smooth Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_402852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Village [05:06]
+02. River Man [04:35]
+03. Fat Albert Rotunda [04:43]
+04. 800 Streets By Feet [03:26]
+05. Children's Songs #1 [05:16]
+06. L.A. By Bike [05:45]
+07. Maybe Tomorrow [03:42]
+08. Spam Boo Limbo [04:02]
+09. July [04:54]
+10. Rose Pedals [03:53](   Читать дальше...   )Жанр: Fusion, Smooth Jazz, Guitar JazzПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564503   (402749) от 23.10.2012
+
+VA - Audiophile Female Voices (2005) [FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_402749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Susan Wong - Cavatina [04:00]
+02. Michelle - Don't It Make My Brown Eyes Blue [03:42]
+03. Rosanne Lui - Tennessee Waltz [03:43]
+04. Vince Mai - I Cover the Waterfront (feat. Tania Hancheroff) [04:54]
+05. Susan Wong - Stay Awhile [03:35]
+06. Michelle - As Time Goes By [02:58]
+07. Rosanne Lui - Fly Me to the Moon [04:39]
+08. Susan Wong - Rainy Days and Mondays [03:46]
+09. Vince Mai - Triste (feat. Tania Hancheroff) [05:45]
+10. Rosanne Lui - Smoke Gets in Your Eyes [04:21](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169602   (401624) от 29.09.2017
+
+XXIth Century Infinity Jazz Ensemble - Digging In Archives (2009) JAZZO Sophia [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_401624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [00:17]
+02. Bells [16:59]
+03. Alabama [12:48]
+04. Living Space [18:05](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AE2E4852FD303C1E3F56EDEAF524BF633E06E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169882   (401598) от 29.09.2017
 
 Machito & His Afro-Cuban Orchestra - Vacation At The Concord (1959) 2004, Verve [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
@@ -697,93 +796,6 @@ Miroslav Vitous - Infinite Search (1969) 1998, EastWest [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B166F142857B173A24005E6E3CD1E2A6AA4EAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171627   (395821) от 05.10.2017
-
-John Handy - Mosaic Select 35 (1965 - 1968) 3CD, 2009, Mosaic Records [FLAC|Lossless|tracks + .cue] <Post-Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395821.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. If Only We Knew [26:54]
-02. Spanish Lady [19:32]
-03. Dancy Dancy [05:33](   Читать дальше...   )Жанр: Post-Bop, World FusionПродолжительность: 03:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDEA3767F0665D0B867F03EE8C0516B38815B3CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171624   (395815) от 05.10.2017
-
-Erik Soderlind - Twist For Jimmy Smith (2009) Prophone Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wiwes and Lovers [05:10]
-02. Close Your Eyes [06:43]
-03. Polka Dots and Moonbeams [06:15]
-04. Mr C. [05:26](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDCF439F3B2994A7E69AF6496067FA88B7C78CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171717   (395762) от 05.10.2017
-
-Bria Skonberg - With A Twist (2017) Sony Music/Okeh [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Baby Just Cares For Me [03:06]
-02. Sway [03:15]
-03. Alright, Okay, You Win [03:19]
-04. Cocktails For Two (Quintet Version) [03:21](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C31C36E6555604877FBD0C407DC374889EE08D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

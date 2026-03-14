@@ -1,3 +1,29 @@
+###  Публикация: 288507   (922426) от 29.01.2011
+
+VA - Танцевальная тусовка (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388C598513294DBF493DE21CF9302E36E3F14FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366604   (922349) от 12.03.2020
 
 VA - Sweet Caramel: Pop Dance Eurobeat (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -707,35 +733,6 @@ VA - Танцевальная зима. Снежная 100-ка. Версия �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ECDEAD8C172F71862EC83FBB703D3DDC1792E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366757   (916667) от 15.03.2020
-
-VA - B машину ремиксы Vol. 4 (2020) [MP3|320 Kbps] <House, Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nando Fortunato - I Wanna Change (Housenick Remix)
-02. Zivert - Безболезненно (Vadim Adamov & Hardphol Radio Edit Remix)
-03. Танцы Минус - Половинка (Dj. Richi Remix)
-04. Dan Balan - До Утра (Den Dubstep Remix)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 03:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414D15A7054A3671D461749E59F94B9EE6ED6620
 ```
 
 https://mybot314.ru/tekegram_catalog/

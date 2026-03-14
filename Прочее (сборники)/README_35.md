@@ -1,3 +1,32 @@
+###  Публикация: 1111619   (846746) от 06.03.2017
+
+VA - Woman’s Day (2017) [MP3|320 Kbps] <Pop , R&B , Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846746.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Space Gang - Human Nature 4:41
+002. Seefeld Avec Mady - Ride On 3:44
+003. STJ - She Believes (Radio Version) (feat. Liba) 3:42
+004. Alex Naevecke feat. Schascha - Summerlove 4:11(   Читать дальше...   )Жанр: Pop , R&B , ChilloutПродолжительность: 06:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AFAA60ACCBD43D38B45E72C1B91F975BDA5C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111602   (846738) от 06.03.2017
 
 VA - The Passion Of Reggaeton: February Mix (2017) [MP3|320 Kbps] <Reggaeton, Latin, Hip Hop>
@@ -722,35 +751,6 @@ VA - Весенний Mix. Клубная туса (2016) [MP3|320 кб/с] <Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44A58CFBC0DAF55406C7F00EAA9258926F0472EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113204   (840016) от 10.03.2017
-
-VA - Hits Collection [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dance, House, Trapical>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Carly Rae Jepsen - Run Away With Me 4:09
-002. Major Lazer & Showtek - Believer 3:43
-003. Robin Schulz Feat. Jasmine Thompson - Sun Goes Down 2:56
-004. The Chainsmokers Feat. Xylo - Setting Fires 4:07(   Читать дальше...   )Жанр: Dance, House, TrapicalПродолжительность: 04:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8C7EF03D40C539A47FCBA485FAA6631D052A1D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

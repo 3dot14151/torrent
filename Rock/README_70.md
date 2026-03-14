@@ -1,3 +1,61 @@
+###  Публикация: 961852   (296988) от 03.12.2015
+
+Pink Floyd - 1965: Their First Recordings (2015) [MP3|320 кб/с]<Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucy Leave
+02. Double O Bo
+03. Remember Me
+04. Walk with Me Sydney(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E511C7FABC7C8972B1742202FB2DB473212FDE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962156   (296980) от 03.12.2015
+
+Pianoбой - Take Off (2015) [MP3|320 кб/с]<Piano Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Take Off — третья студийная пластинка Дмитрия Шурова и его группы Pianoбой. Это десять эмоциональных песен о любви, свободе и жажде жить. Take Off (с англ. «взлёт», «отрыв») — это состояние, когда человек, птица или самолёт концентрирует свои лучшие качества, чтобы преодолеть силы, держащие его на земле. Не всегда это удаётся, но без отрыва не бывает полёта. А без (   Читать дальше...   )01. Лучшее, Что Есть
+02. Родинки
+03. Freedom To Love
+04. Так Добре З Тобою(   Читать дальше...   )Жанр: Piano RockПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5246D950FF5B9819E5A0B7D5378BB6691FB6EE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 420856   (296430) от 10.12.2011
 
 Neo Geo - Self-Titled (2011) [MP3|320 kbps]<Alternative, Electronic, Rock>
@@ -694,64 +752,6 @@ Joe Satriani - Supernova Remix - The Free EP (2016) [MP3|320 Kbps] <Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F88DD02BA091405040F84C134388B5FE94A3ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186955   (284062) от 26.11.2017
-
-Sandy and The Wild Wombats - Devoted to Rock`n`Roll (2017) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Night (02:41)
-02. I Gotta Move (02:52)
-03. Lady (02:16)
-04. Hey (03:40)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D445AA0A9DE0E8578FE4B648CE97E7A5F5017DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264211   (282959) от 22.11.2018
-
-The Alan Bown - Listen & Stretching Out (1970-71) Compilation, 1993, Edsel Records [MP3|320 Kbps] <Psych-Prog, Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282959.jpg" />
-</div>
-
-
-###  Подробнее
-
-LISTEN (1970)
-01. Wanted Man
-02. Crash Landing
-03. Loosen Up(   Читать дальше...   )Жанр: Psych-Prog, Jazz RockПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99405F610930A59C38354F55E48D3D55D97CE10C
 ```
 
 https://mybot314.ru/tekegram_catalog/

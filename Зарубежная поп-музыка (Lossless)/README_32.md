@@ -1,3 +1,148 @@
+###  Публикация: 1127336   (731721) от 21.04.2017
+
+Bee Gees - Timeless: The All-Time Greatest Hits (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spicks and Specks (2:52)
+ 02. New York Mining Disaster 1941 (2:10)
+ 03. To Love Somebody (3:01)
+ 04. Massachusetts (2:26)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873927FBF9C88AC609435D43DDDD3B2CDC6999C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022094   (730949) от 31.05.2016
+
+Arthur Beatrice - Working Out (2014) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Councillor
+02. Late
+03. Midland
+04. Carter (Uncut)(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767FA09EDC92632D9F030E6CAA48909A6A97EA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530139   (730774) от 09.02.2022
+
+VA - Winter Acoustic 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhys Lewis - The Sun Will Rise (3:03)
+02. Mipso - Hey, Coyote (3:35)
+03. Bear's Den - Berlin (4:29)
+04. Andrew Bird - Andalucia (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A314187C91A494932EB3772AAF21D9CC21C7A27F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022180   (729879) от 01.06.2016
+
+Tegan and Sara - Love You to Death (2016) [FLAC|Lossless|tracks] <Indie Pop, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Girl
+02. Faint of Heart
+03. Boyfriend
+04. Dying to Know(   Читать дальше...   )Жанр: Indie Pop, Synth PopПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C789627A89855B0279E6817FCFC67281DB28D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022201   (729526) от 01.06.2016
+
+The High Violets - Heroes and Halos (2016) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Dream Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How I Love (Everything About You)
+02. Dum Dum
+03. Long Last Night
+04. Break a Heart(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Dream PopПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5716830C68EABE214377CB2FB5C86C8842957ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022169   (729511) от 01.06.2016
 
 Supermax - The Magic Of Supermax (2015) [FLAC|Lossless|tracks + .cue] <Pop, Funk, Reggae>
@@ -600,151 +745,6 @@ VA - Summer Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A904D9D836F7E81E1FDE0FADDAB7E07C9A708B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285585   (721076) от 26.02.2019
-
-Robyn - Honey (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop, Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Missing U (04:57)
-02. Human Being (feat. Zhala) (03:46)
-03. Because It's in the Music (04:34)
-04. Baby Forgive Me (04:16)(   Читать дальше...   )Жанр: Synth-pop, Dance-popПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F266BD3B6AEF76DCC93361D74565BE7121A070A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285226   (721075) от 26.02.2019
-
-Big Wild - Superdream (2019) [FLAC|Lossless|tracks + .cue] <Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City of Sound (03:52)
-02. Joypunks (03:15)
-03. 6's To 9's (feat. Rationale) (03:26)
-04. No Words (03:35)(   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024A8785C9C042447D1F2A2416AA4C8F8A39F145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129756   (720802) от 29.04.2017
-
-Didi Robinson - Du Warst Mein Schoenster Traum (1992) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Du hast noch nie das Meer gesehn
-2. Jenny's Traume
-3. Wenn die Erde bebt
-4. Das verlorene Lacheln(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2380051F2D8DB196554BD8C2846B1A1896D905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531772   (720646) от 16.02.2022
-
-Julio Iglesias - Recital At The Festival ''The Golden Orpheus '73'' (1973) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now As Twenty Years Since
-02. Like The Poplar Along The Road
-03. Nina
-04. El Pajaro Chogui(   Читать дальше...   )Жанр: PopПродолжительность: 00:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35A6BC4B9C2E282754B1BFEF4CABB588CB36625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129621   (720437) от 29.04.2017
-
-Dalida - 30 ans deja (2017) 2CD  [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720437.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Bambino
-02. Gondolier
-03. Histoire d'un amour(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6906B8F49C3FF7E6534980B7FDAEE250F10E48BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

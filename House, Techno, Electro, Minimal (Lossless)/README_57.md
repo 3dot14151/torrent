@@ -1,3 +1,90 @@
+###  Публикация: 1591295   (187501) от 17.11.2022
+
+Hernan Cattaneo & Soundexile - Future Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hernán Cattáneo & Soundexile - Glide (Future Mix)
+02. Hernán Cattáneo & Soundexile - Flair (Future Mix)
+03. Hernán Cattáneo & Soundexile - Atrial Rhythms (Future Mix)
+04. Hernán Cattáneo & Soundexile - Solo (Future Mix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83B46704EE07E2C9B6E1E4DCB0AAF22EA1FB81F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591135   (187483) от 17.11.2022
+
+George Kopaliani - Nostalgic Road (2020) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars (5:16)
+02. Sunset (4:11)
+03. Nostalgia (4:59)
+04. Alone (4:27)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18BD19A09672060C46EB44ACC9877FC54EEF6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663449   (186834) от 21.09.2023
+
+Dj W!ld - W!Ldbeats 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oui Non [00:07:28]
+02. Suite de Coeur [00:06:11]
+03. Back To Africa [00:06:17]
+04. Disco And Shit [00:08:13](   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FF626E0A0611733DB095EC5F904F47E688C99F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663763   (186436) от 23.09.2023
 
 Klubbheads - Pump Up The Heads! (2021) [FLAC|Lossless|tracks + .cue] <House>
@@ -641,93 +728,6 @@ Terekke - Discography 7 Releases (2011-2019) L.I.E.S. [FLAC|Lossless|tracks] <Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3CD4C66DB0241DB063F5827F12408795A7C5D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577942   (169467) от 11.12.2019
-
-Scooter - Music For A Big Night Out (2012) [FLAC|Lossless|image + .cue] <House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full Moon (1:44)
-02. I'm A Raver, Baby (3:14)
-03. Army of Hardcore (2:58)
-04. 4 AM (3:18)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9C2A5E46F9C977D7759528378155CC1A6D3193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672253   (169242) от 28.10.2023
-
-Yotam Avni - Summer of Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shame Shame Shame [00:01:52]
-02. Some Jews Are Better Than Others [00:06:51]
-03. Voices Feat. Karen Vogt [00:02:50]
-04. No Democracy For You [00:06:12](   Читать дальше...   )Жанр: TechnoПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45077E18268324F894943AB4285120B3F859FDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202098   (169017) от 12.12.2019
-
-Knobs - Discography 14 Releases (2009-2016) Nachtstrom Schallplatten [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quantumplation (Grouch Mix) (09:02)
- 02. Quantumplation (Knobs Mix) (08:23)
- 03. Quantumplation (Krumelur Mix) (08:11)
- 04. Quantumplation (Kliment Mix) (08:17)(   Читать дальше...   )Тип издания: WEBЖанр: Techno/Psytrance/Minimal/PsytechПродолжительность: 09:43:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896F3DBE8902AF467AB60BEA8F6D0DF4844F48BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

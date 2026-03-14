@@ -1,3 +1,32 @@
+###  Публикация: 1442550   (1036455) от 25.01.2021
+
+VA - Big Retro Hits 90s (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часто бывает так, что очень долго не слушаешь трек. Уже забыл про его существование, а потом, случайно, слышишь знакомый мотив, и тебя накрывает волной воспоминаний. Послушав эту музыку словно побывал на каком-то эмоциональном аттракционе, когда годы и события сменяли друг друга с невообразимой скоростью.001. The Blue Rubatos - Say Me
+002. Talk Talk - Such A Shame
+003. Sister Sledge - Thinking Of You
+004. Jaki Graham - Round And Around(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 08:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9EFD612CD12F7D6A15682AF7CCD79102E9BEDA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443348   (1035727) от 28.01.2021
 
 VA - Festa Italiana (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
@@ -718,35 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9268E3CF43DAAF04FF7C0C5D9EB86D2938BB774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458326   (1023814) от 29.03.2021
-
-VA - National Pop Dance Music (Vol.14) (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый депрессивный период года - "уже не зима, но ещё не весна"! Как раз самое время чтобы компенсировать его пагубное влияние хорошей музыкой! А поможет Вам в этом 14-й релиз "National Pop Dance Music", в котором собрано 180 популярно-танцевальных хитов.001. Misterraffy - E Se Non Ti Sta Bene
-002. Ava Max - My Head & My Heart
-003. Nora Grand - Hallelujah
-004. Showmain feat Lucyliao - Alive(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7BD371607728E646CD660CCA2C438F3A34DA53
 ```
 
 https://mybot314.ru/tekegram_catalog/

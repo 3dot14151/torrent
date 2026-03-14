@@ -1,3 +1,29 @@
+###  Публикация: 1822975   (104431) от 09.10.2025
+
+3D print - Ghamak - Celestial Sagittarii [STL, LYS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы стоим на страже между высокими башнями и на скалах. Любой, кто пройдёт под нашими сводами, обречён на смерть.Формат: STL, LYS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC16EC932B73C4D5CD7B66FF4F2A7A843857F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822776   (101605) от 08.10.2025
 
 3D print - The Dragon Trappers Lodge - Stoican Halloween [STL, LYS]
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF3AD7E200D240524A6C8F02F04B48BB574DE530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782970   (25866) от 03.03.2025
-
-3D материалы - Unity Asset Bundle 1 February 2025 [UNITYPACKAGE]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unity Asset Bundle 1 февраля 2025 года предлагает обширную коллекцию ресурсов, специально разработанных для разработчиков, стремящихся создавать захватывающие и динамичные 3D-среды.Формат: UNITYPACKAGE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56790C34E417BC90533E5009EAFDBE545833E94C
 ```
 
 https://mybot314.ru/tekegram_catalog/

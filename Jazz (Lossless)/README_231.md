@@ -1,3 +1,90 @@
+###  Публикация: 1189300   (270485) от 06.12.2017
+
+Steve Lacy - More Monk (1989) 1991, Soul Note [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shuffle Boil [04:43]
+02. Straight No Chaser [04:32]
+03. Off Minor [05:21]
+04. Ruby My Dear [06:33](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33670637700528D6F778EDA81A3E8CD27759ED16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189542   (270484) от 06.12.2017
+
+Bud Shank Quintet & Lou Levy Trio - Jazz in Hollywood Series (1954) 1997, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casa de Luz [05:39]
+02. Lotus Bud [03:23]
+03. Left Bank [03:25]
+04. Shank's Pranks [03:18](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EBEAFCA04A7CCB7CB36F448F2C91F0D4D3D7D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189547   (270439) от 06.12.2017
+
+Stan Kenton & His Orchestra - 7.5 On The Richter Scale (1973) 1991, Creative World Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live And Let Die [03:48]
+02. Body And Soul [04:48]
+03. Down And Dirty [05:37]
+04. Country Cousin [03:09](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA536D2E0808A6639E5B8ACEA973C2D6A6917D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189303   (270428) от 06.12.2017
 
 Count Basie - Basie's Beatle Bag (1966) 1998, Verve [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
@@ -658,93 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF6DB3A3F40DFAC2B56AC284A981E34328188117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338887   (268242) от 17.11.2019
-
-Carmell Jones - Jay Hawk Talk 1965 (2014) Universal [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jay Hawk Talk [5:52]
-02. Willow Weep For Me [4:58]
-03. What Is This Thing Called Love? [8:58]
-04. Just In Time [5:34](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BC75026AC0099F920340623C8A3DFDEF53CFEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338884   (268228) от 17.11.2019
-
-Count Basie And Lester Young - Classic 1936-1947 Studio Sessions (2016) 8CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268228.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Shoe Shine Boy [3:01]
-02. Evenin' [2:58]
-03. Boogie Woogie [3:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 09:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908E743D935D57063FC1E3A6AEC64ABA672FEDCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190346   (268112) от 09.12.2017
-
-Nick Brignola - What It Takes (1991) Reservoir [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star Eyes [06:33]
-02. Asia [08:17]
-03. Au Privane [07:01]
-04. In A Sentimental Mood [09:53](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5C3CD97F5DC0150895B1DF3ABC3A4B63D47497
 ```
 
 https://mybot314.ru/tekegram_catalog/

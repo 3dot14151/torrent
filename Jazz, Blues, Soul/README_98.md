@@ -1,3 +1,61 @@
+###  Публикация: 1110956   (850529) от 04.03.2017
+
+Lee Konitz meets Don Friedman (1992) 1994, Camerata Tokyo [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alone Together [11:54]
+ 02.In Your Own Sweet Way [10:12]
+ 03.Huntington Street [07:46]
+ 04.Opus d'Amour [09:41](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D3E0BC5BE86FF607EE3618392B9BFD2696334F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002019   (850463) от 30.03.2016
+
+Jeff Healey - Heal My Soul (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daze Of The Night (04:00)
+02. Moodswing (04:07)
+03. Baby Blue (04:04)
+04. I Misunderstood (04:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DDA671AA9818817219B2A1126742F21DD4A3EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110930   (850442) от 04.03.2017
 
 Guillermo Gregorio, Mats Gustafsson, Kjell Nordeson - Background Music (1998) HatOLOGY [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -685,64 +743,6 @@ Isham Jones - 1929-1934 (2008) Jazz Oracle [FLAC|Lossless|tracks + .cue] <Early 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14148B77A6F835E9388EFFACA827769540B52A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111801   (846805) от 06.03.2017
-
-Jackie McLean - Strange Blues (1957) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Strange Blues [07:35]
- 02.Millie's Pad [11:20]
- 03.What's New [06:38]
- 04.Disciples Love Affair [06:53](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715A74B7D31A50A6BADE26DC98194FE2FC3C3457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111848   (846804) от 06.03.2017
-
-Junior Cook - Senior Cookin' (1979, 1981) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.J.C. [07:12]
- 02.I'm Getting Sentimental Over You [05:06]
- 03.Play Together Again [05:16]
- 04.Waltz For Junior [07:44](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8513B8A706BBCC22D170A93C79086E4476DE7B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

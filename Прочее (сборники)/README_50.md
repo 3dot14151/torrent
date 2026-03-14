@@ -1,3 +1,32 @@
+###  Публикация: 1390194   (783274) от 14.06.2020
+
+VA - Громкие новинки Июня (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783274.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Afrojack & Chico Rose feat. Jeremih - Cloud 9 (3:04)
+2. Agunda - Мелькает Свет (2:03)
+3. alyona alyona - Пам'ятаю (1:53)
+4. Animal ДжаZ - О Хлебе И Воде (Piano Version) (2:44)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B140FF8D7D226B4D9C02C5EF2692F549FA3EA139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205720   (783252) от 11.02.2018
 
 VA - House Clinic (2018) [MP3|320 Kbps] <House, Electro House, Big Room>
@@ -714,35 +743,6 @@ VA - Радио DFM Top 30: Хит-парад D-Чарт (16.02) (2018) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18FF97DD32EF4FDFCA8429E2E455D95701539390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208887   (779639) от 24.02.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 23.02.2018 [MP3|320 Kbps] <Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Post Malone ft. 21 Savage - Rockstar
-02. Imagine Dragons - Whatever It Takes
-03. Janieck - Does It Matter
-04. Vanotek feat. Eneli - Back To Me(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69714A4D775736FBDA226AA7B290C95C278D48E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

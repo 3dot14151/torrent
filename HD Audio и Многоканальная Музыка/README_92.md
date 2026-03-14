@@ -1,3 +1,148 @@
+###  Публикация: 1696628   (119433) от 03.02.2024
+
+Thomas Frank Hopper - Paradize City (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troublemaker (3:09)
+02. Tribe (3:41)
+03. A Song for the Devil (3:03)
+04. Chimera (5:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E5A34AB456E14D91DC70A702F1E29D12E8521C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696596   (119432) от 03.02.2024
+
+Kelp - Datcho Dr (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Off Dead (Cigarettes) (4:34)
+02. French Café (3:57)
+03. Traffic Stop (2:21)
+04. Youth (6:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F4063317A92F483C546B5250674B8F72D4AF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696626   (119431) от 03.02.2024
+
+Drip Fed Empire - Revolutionist (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wandering Soul [00:01:38]
+02. Give Me More [00:03:15]
+03. MK4 [00:04:25]
+04. The Work Of God [00:04:08](   Читать дальше...   )Жанр: Rapcore, MetalcoreПродолжительность: 00:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:840446A2F087AF4344B98BAD9A8BD2A9C8FCFC90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696638   (119428) от 03.02.2024
+
+Dominia - Timeless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man With a Heart-Crumb Within
+02. The Weeping Beauty
+03. Illusion
+04. Vikarma(   Читать дальше...   )Жанр: Gothic Doom MetalПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE605C40197E28CFC4D7DEE2491C73045EC770B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696621   (119427) от 03.02.2024
+
+Rumboat Chili - All The Time In The World (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. While You Got It (5:39)
+02. City Of Lights (3:35)
+03. Livin' My Fantasy (3:52)
+04. Shot Down (5:08)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499E4C06BF8079658019991008E215ED11D42EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696624   (119423) от 03.02.2024
 
 Suicide Bombers - All For The Candy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Glam, Hard Rock>
@@ -596,150 +741,6 @@ A4 Crown(   Читать дальше...   )Жанр: Atmospheric Black Metal, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9828534FC90C6994C3D4D55A35E1C2D993E508E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697478   (118921) от 06.02.2024
-
-Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brutus - норвежская хард-рок-группа из Осло, Норвегия, образованная в 2007 году. У Brutus тяжелый грув, основанный на блюз-ориентированном рифф-роке 1970-х годов, в духе Black Sabbath, Grand Funk Railroad, Blue Cheer, Pentagram и других.2010 - Brutus
-2013 - Behind The Mountains
-2016 - Wandering BlindЖанр: Hard Rock, Stoner RockПродолжительность: 02:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222B5D0E09D75613B3C530324777BEF7B6A97287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697370   (118915) от 06.02.2024
-
-The Last Dinner Party - Prelude to Ecstasy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prelude To Ecstasy (00:01:36)
-02 - Burn Alive (00:03:21)
-03 - Caesar on a TV Screen (00:03:49)
-04 - The Feminine Urge (00:03:26)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F5BC03ACB37A5BD5EA0BBF7B3B70EE2FC28E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697367   (118905) от 06.02.2024
-
-Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118905.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Skøgen Skulle Dø
-A2 Hævnen
-A3 Onde Børn
-A4 Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697414   (118903) от 06.02.2024
-
-Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118903.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vølvens Spådom
-A2 Jeg Er Guden, I Er Tjenerne
-A3 Skøgen Skulle Dø
-A4 Byssan Lull(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF39500BFC0B3C0B038E5EE2892A261311FD103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697364   (118901) от 06.02.2024
-
-Tyrants - Warlord (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Speed, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Neath The Red Sun (00:05:10)
-02 - Fire Rain (00:04:28)
-03 - Squad 731 (00:02:48)
-04 - Tyrant's Reign (00:03:49)(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7047F171D2FA4A188C45B883DED4118900F3121
 ```
 
 https://mybot314.ru/tekegram_catalog/

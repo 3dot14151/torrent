@@ -1,3 +1,61 @@
+###  Публикация: 1218782   (719383) от 11.04.2018
+
+VA - Ministry Of Sound I Love Acoustic (2018) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sigala & Paloma Faith - Lullaby
+02 - Jax Jones, RAYE - You Don't Know Me - Acoustic Version
+03 - Stormzy, Wretch 32, Aion Clarke, Aion - Blinded By Your Grace, Pt. 2 (Acoustic)
+04 - Not3s, Mabel - My Lover - Radio Edit(   Читать дальше...   )Жанр: PopПродолжительность: 03:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D097931383994319CFEC5F2D523F5BA09CD067A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285746   (719057) от 27.02.2019
+
+VA - Ballermann on Snow - Apres Ski Hits 2019 Schlager (Party Kracher zum Feiern beim Karneval und Fasching) (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matty Valentino - Hurra die Gams
+02. Axel Fischer - Bella Ciao (Apres Ski Hits 2019 Schlager Mix)
+03. Partynator - Mama Laudaaa
+04. Ingo ohne Flamingo - Saufen morgens, mittags, abends(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 05:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453EAF4512FDAB65CA3BFB23B72034BCDF1D46B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285964   (717063) от 28.02.2019
 
 Los Valentinos - High Voltage (1977) LP [MP3|320 Kbps] <Disco, Pop Rock, Instrumental >
@@ -686,64 +744,6 @@ VA - Top Easy Listening Hits (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:592232322A02333447878573D330EA85EDD6D38B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286704   (708967) от 04.03.2019
-
-ABBA - Classic ABBA (2005) Compilation, Remastered [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterloo (2:47)
-02. Gimme! Gimme! Gimme! (A Man After Midnight) (4:49)
-03. One Man, One Woman (4:36)
-04. Love Isn't Easy (But It Sure Is Hard Enough) (2:54)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21274E10D8AD3CD02A885B87AD15C8EF6EB7D8FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220349   (706190) от 18.04.2018
-
-Nick Straker Band - The Very Best Of (1997) CD [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Walk In The Park (3:51)
-02. Don't Come Back (3:40)
-03. A Little Bit Of Jazz (5:28)
-04. Straight Ahead (6:44)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E404E858C6E667B916D0A4028ECA3EE9C20348C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1262618   (293331) от 16.11.2018
+
+Chilly Gonzales - Solo Piano (2004) [FLAC|Lossless|image + .cue] <Instrumental, Piano, Modern Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будучи ребенком, канадец Джейсон Бек (Jason Beck), более известный как Чилли Гонзалес (Chilly Gonzales), мечтал стать музыкальным Доктором Зло: литавры и духовые достаются супергероям, так почему бы не попрактиковать супертеррор на обычном, негеройском, инструменте? Первым было фортепьяно, затем гитара, барабаны, саксофон, скрипка… диджейский пульт, микрофоны, лэптоп. (   Читать дальше...   )01. Gogol (2:03)
+02. Manifesto (3:08)
+03. Overnight (3:23)
+04. Bermuda Triangle (1:34)(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7B70470F00236D6C4124EB7919D53655D8C147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262668   (293330) от 16.11.2018
+
+Chilly Gonzales - Solo Piano II (2012) [FLAC|Lossless|image + .cue] <Instrumental, Piano, Modern Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293330.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Solo Piano II» (продолжение не менее великолепной пластинки «Solo Piano») есть, пожалуй, лучшая манифестация гонзалесовского, извините, гения. Собственно говоря, это фортепианная музыка. Очень негромкая. Очень точно записанная — так, что слышно, как пальцы прикасаются к клавишам и как человек тихо вздыхает в паузах. Очень тонко придуманная — так что романтические (   Читать дальше...   )01. White Keys
+02. Kenaston
+03. Minor Fantasy
+04. Escher(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB709481DBAAF57D625777542B0DC26AA95FEBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262763   (293326) от 16.11.2018
+
+Glen Campbell - Sings For The King (2018) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Call On Him
+02. Easy Come, Easy Go
+03. Any Old Time
+04. Anyone Can Play (Rock Version)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2CE294F0ACF3814D391BDEFD40A52913E4BB1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262767   (293163) от 16.11.2018
+
+Byron Metcalf - Inner Rhythm Meditations Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Abient, New-Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Naturally Occuring Heart (09:22)
+02. Visions From The Sixth Sense (10:13)
+03. A Steadfast Path (09:27)
+04. Embrace Of Uncertainty (07:54)(   Читать дальше...   )Жанр: Abient, New-AgeПродолжительность: 01:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7ED51CDE409ABDDABA7B1F0B7D4043A1932DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962379   (292960) от 05.12.2015
+
+VA - Fifty Shades Of Grey (Original Motion Picture Soundtrack) (2015) Target Exclusive [FLAC|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Annie Lennox - I Put a Spell On You (Fifty Shades of Grey) [3:31]
+02.Laura Welsh - Undiscovered [2:54]
+03.The Weeknd - Earned It (Fifty Shades of Grey) [4:11]
+04.Jessie Ware - Meet Me In the Middle [5:08](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5BE5A117C9DAE876D7B22DAF700DDCE1DAC8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079857   (291990) от 05.12.2016
 
 Greg Maroney - The Light Within (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Piano>
@@ -606,156 +751,6 @@ Tom Holkenborg - Терминатор: Темные судьбы / Terminator: D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E3B5717482CEC6AF6180EE4DAE8A8D7FE34064A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334792   (289198) от 01.11.2019
-
-Кирилл Богомилов - Русь Первозданная (2019) [FLAC|Lossless|tracks + .cue] <Folk. Instrumental>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Преданья Старины Глубокой (3:59)
-02. Средь Полей Руси Широких (4:41)
-03. Русь Первозданная (3:23)
-04. Соколики Ясные (Плясовая) (6:14)(   Читать дальше...   )Жанр: Folk, InstrumentalПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0595115F3C91EF4795893475CEBCE007F7554C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080567   (288471) от 07.12.2016
-
-Nikonn - Effrosyni (2016) [MP3|320 Kbps] <Ambient, Downtempo, Dream Pop>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:15)
-02. Denied (feat. Evelyne) (04:23)
-03. Never (feat. Foko) (04:37)
-04. Take Me Down (feat. Evelyne) (03:30)(   Читать дальше...   )Жанр: Ambient, Downtempo, Dream PopПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE7112861B055E63DCB0169E5BE9CB9B4FBFB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080321   (288277) от 07.12.2016
-
-Akela Sun - Ambient & Meditation (2016) [MP3|320 Kbps] <Ambient, Electronic, Soundtrack>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Across the Southern Slies (feat. Guido Negraszus) (09:25)
-02. Slow in Motion (04:39)
-03. Floating Ice (03:57)(   Читать дальше...   )Жанр: Ambient, Electronic, SoundtrackПродолжительность: 02:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B014C9602F859E79B4BB15DA8FBE44AA539356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584886   (288190) от 09.12.2014
-
-Hilary Stagg - 7 альбомов (1988-2001) [MP3|320 кб/с]<New Age, Neoclassical, Instrumental, Harp>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-1988 - Beyond the Horizon
-1989 - Feather Light
-1991 - Dream Spiral
-1993 - The Edge of Forever
-1995 - Winter Magic
-1997 - Sweet Return
-2001 - A TributeЖанр: New Age, Neoclassical, Instrumental, HarpПродолжительность: 05:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF6F4EE09ADAEEA68C680C44FEFEDA094DEC998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334899   (287735) от 02.11.2019
-
-Meister der Entspannung und Meditation - Early Morning Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287735.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Contemplation 02:04
-2. Sleepless Summer 06:40
-3. New Moon 04:11
-4. Last Monday 04:44(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACCFDE2400DC4A514190FEF222812A62BF6DF9E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

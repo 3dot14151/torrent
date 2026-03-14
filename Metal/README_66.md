@@ -1,3 +1,32 @@
+###  Публикация: 1408390   (456119) от 12.09.2020
+
+Frowning - Death Requiem (2020) [MP3|320 Kbps] <Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ﻿The Sound of Abandonment (11:28)
+02. Submerged in Emptiness (10:52)
+03. Apocalyptic Essential ﻿Misery (11:09)
+04. Reflection (As I Lay Dying cover) (08:35)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE66FBC10ED014CDFA69AEF2F802C1AB0D90A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408481   (456019) от 12.09.2020
 
 Night - High Tides - Distant Skies (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
@@ -720,35 +749,6 @@ Raven - Metal City (2020) [MP3|320 Kbps] <Speed, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCAF1CD61DD2232E13447A373729CEA4F1784103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409388   (447368) от 16.09.2020
-
-Finntroll - Vredesvävd (2020) [MP3|320 Kbps] <Blackened Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Väktaren (02:46)
-02. Att Döda Med En Sten (03:37)
-03. Ormfolk (03:58)
-04. Grenars Väg (03:44)(   Читать дальше...   )Жанр: Blackened Folk MetalПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340CC581BC2AB7FE5E74334B59175F0E1913C02A
 ```
 
 https://mybot314.ru/tekegram_catalog/

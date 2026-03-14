@@ -1,3 +1,29 @@
+###  Публикация: 1055182   (490087) от 21.09.2016
+
+Проекты - VideoHive - Exclusive Titles [4k] - 17811017 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания 30 эксклюзивных и элегантных титров (нижней трети).Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D11CBA42DE4D1E75CD8ED150745C1B822C1A9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055175   (490086) от 21.09.2016
 
 Проекты - VideoHive - Parallax Slideshow - 17766304 [AEP]
@@ -651,33 +677,6 @@ Waving Flags Maker - это современный и универсальный
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8437264545D273D8A7C7538A7578E1F5A3BA30F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 675295   (487478) от 22.09.2016
-
-Проекты - VideoHive - Cartoon Casual Typography Presentation [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный проект для продвижения различных бизнес-идей.
-Примечание: Версия 2 имеет новое название -  Cartoon Sunny Day Motivation.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C359D63D4C3288D2B72917188E6DA3BAAADD956A
 ```
 
 https://mybot314.ru/tekegram_catalog/

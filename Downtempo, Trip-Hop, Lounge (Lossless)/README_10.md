@@ -1,3 +1,61 @@
+###  Публикация: 1522803   (756641) от 08.01.2022
+
+VA - Invisible Smile: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska – Next Time Soon (06:03)
+02. Dellasollounge – Come With Me (original mix) (03:18)
+03. Marga Sol – Butterflies (original mix) (06:50)
+04. Steen Thottrup – Balearic Bliss (original mix) (05:57)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B113582A55EB69714452668E94F7EB8CCACB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215644   (756478) от 27.03.2018
+
+DJ Krush - Cosmic Yard (2018) Es.U.Es Corporation [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Breakbeat, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Regulus (03:49)
+02. Stellar Wind (03:21)
+03. Divine Protection (feat. 渥美幸裕) (04:18)
+04. Asterism (Interlude) (01:37)(   Читать дальше...   )Жанр: Downtempo, Breakbeat, Trip HopПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CAB3F06285BA56ED1E64A19C310835E79B5DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216064   (752840) от 29.03.2018
 
 VA - Erotica Vol. 2 (Most Erotic Lounge And Chillout Tunes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
@@ -688,64 +746,6 @@ Nouvelle Vague - Rarities (2019) Anthology [FLAC|Lossless|WEB-DL|tracks] <Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8FEA2185E20F115412DCD179FCEB63199F63E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529977   (729914) от 10.02.2022
-
-VA - Blue Sailing: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beamy - Elmwood (4:37)
-02. Marga Sol - What I Long For (Chill Mix) (5:24)
-03. Gary B - Bring Me Hope (Original Mix) (3:24)
-04. Michael E - Infinite Beauty (Original Mix) (4:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906F61A970A9029FEFBC34565A9A74E59523A365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530592   (728985) от 11.02.2022
-
-VA - Maretimo Chill Radio - Best of Vol. 1 - Positive Summer Vibes (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Credo – Siesta Del Sol (Laid Back Summer remastered Cut) (04:57)
-02. Cafe Americaine – Solitude Charmante (Level One remastered mix) (04:21)
-03. Miss Lopez – Jeso Creadu (Paraiso Verda mix) (05:32)
-04. Vladi Strecker – Over The Sea (Island Sounds Deluxe remastered mix) (07:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FD5DA4A46F885A1547FCE9C387FC30DEEA2B72
 ```
 
 https://mybot314.ru/tekegram_catalog/

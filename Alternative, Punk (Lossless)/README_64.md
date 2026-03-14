@@ -1,3 +1,90 @@
+###  Публикация: 1825253   (136703) от 16.10.2025
+
+Patti Smith - Horses (1975) 50th Anniversary, 2025, Arista Records LLC [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk, Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Volume 1
+01. Gloria: In Excelsis Deo [00:05:55]
+02. Redondo Beach [00:03:25]
+03. Birdland [00:09:13](   Читать дальше...   )Жанр: Punk, Alternative Rock, Indie RockПродолжительность: 01:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C666046CF83AC2A067B28A68F5F94D33669E4F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825261   (136702) от 16.10.2025
+
+Kaash Paige - 2 Late To Be Toxic (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative, R&B, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GOD SAVE ME [00:02:49]
+02. What happened 2 us [00:02:31]
+03. Sexy Freestyle [00:01:46]
+04. High [00:03:21](   Читать дальше...   )Жанр: Alternative, R&B, SoulПродолжительность: 00:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65AB6E4E8B1E5E65EC18D195F4F7C5CE01E57FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680381   (134330) от 29.11.2023
+
+U.S. Highball - No Thievery, Just Cool (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Jangle Pop, Power Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See You in Hell [00:03:35]
+02. London Colin [00:02:06]
+03. Adjacent Donovan [00:01:57]
+04. Tiny Partick [00:01:54](   Читать дальше...   )Жанр: Indie-Pop, Jangle-Pop, Power-PopПродолжительность: 00:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251E30A189BABAF6767EDF26FCF49A0A55B67535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680198   (134326) от 29.11.2023
 
 Orange Stable - Nichts für ungut (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska & Rocksteady>
@@ -664,93 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C250823CA40E7B95AA522F74E62820C485C4BF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685737   (127079) от 19.12.2023
-
-Meredith Hunter - Proud to be Different (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:18]
-02. Wolverine Song [00:03:20]
-03. Silent Rain [00:03:10]
-04. Lovers and Liars [00:02:55](   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5247350B0B9AAE4258D965CE7601DBB65FDA21F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686316   (126446) от 23.12.2023
-
-A Crime Called... - Primal Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On These Days [00:03:40]
-02. Back N Forth [00:03:02]
-03. Miracle [00:02:50]
-04. Sleep Walk [00:03:01](   Читать дальше...   )Жанр: Alt.Rock, Modern RockПродолжительность: 00:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1970B3364B286E8BDF70C896D55326E344F06179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686493   (126395) от 23.12.2023
-
-Challenger Deep - III.The Path (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Sludge, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacrifice [00:06:29]
-02. Filth [00:05:49]
-03. Passion [00:03:22]
-04. Confidence [00:05:09](   Читать дальше...   )Жанр: Post-Metal, Sludge, Post-HardcoreПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0049C1E72BCA1D7DF7E63E1D079EFA2B839FFD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

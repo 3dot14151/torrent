@@ -1,3 +1,32 @@
+###  Публикация: 1123220   (792530) от 07.04.2017
+
+Lento - Earthen (2007) [MP3|320 Kbps] <post-metal, instrumental, ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Hadrons
+02 Need
+03 Subterrestrial
+04 Currents(   Читать дальше...   )Жанр: post-metal, instrumental, ambientПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68AFB7CD5BFEFC8EAE03F5CEEBC1C416873F10F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201483   (792218) от 25.01.2018
 
 Anvil - Pounding The Pavement (2018) [MP3|320 Kbps] <Heavy Metal>
@@ -716,35 +745,6 @@ BPMD - American Made (2020) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECC1F38578D7306A2FDC2517BEF238ED4FB3AEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204919   (784370) от 07.02.2018
-
-Iahsari - Shrine Of The Ancient Gods (2018) [MP3|320 Kbps] <Symphonic Metal, Folk Metal, Ethnic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784370.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Daisi (Intro)
-2. Unbowed (Blood Of Colchis)
-3. Sirenum Scopuli
-4. Shatilis Asulo (Maiden Of Shatili)(   Читать дальше...   )Жанр: Symphonic Metal, Folk Metal, EthnicПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E44375A50EF7B884BCDAA4563C458B1356090D
 ```
 
 https://mybot314.ru/tekegram_catalog/

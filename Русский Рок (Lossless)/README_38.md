@@ -1,3 +1,148 @@
+###  Публикация: 960046   (310070) от 27.11.2015
+
+Александр Градский - Русские Песни/Звезда Полей (1980/1986) [FLAC|image + .cue]<Rock, Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ничто в полюшке
+02. Дарю платок (страдания)
+03. Таня белая (хоровод-танок)
+04. Плач(   Читать дальше...   )Жанр: Rock, VocalПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AECDC3ECCC6C36C7F45F64D1B43D973A51103EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960052   (309941) от 27.11.2015
+
+Александр Градский - Сатиры (1987) [FLAC|image + .cue]<Rock, Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Театр
+02. Ошибка
+03. Потомки
+04. Споры(   Читать дальше...   )Жанр: Rock, VocalПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D56235DC9C97EB7D9F8D9237F7B2A80F72667CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960069   (309453) от 27.11.2015
+
+Ария - Котел истории. Live MMXV (2015) [FLAC|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309453.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 июля 2015 года группа АРИЯ сыграла уникальный концерт на пивоваренном заводе Московской Пивоваренной Компании, прямо среди варочных котлов. На шоу присутствовали самые преданные фанаты группы, которые по этому случаю предстали в образах викингов. И вот, спустя несколько месяцев, аудио-запись этого концерта станет доступна для всех поклонников АРИИ. CD-диск с записью (   Читать дальше...   )01. Интро
+02. Горящая стрела
+03. Ангелы неба
+04. Не сходи с ума(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86023578208F26789803A117CF4BEB1BD38E82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260750   (307452) от 09.11.2018
+
+Пикник - Немного огня (1994) Reissue, 2010, Вектор [FLAC|Lossless|image + .cue] <Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307452.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:09] 01. Немного огня
+[4:20] 02. Твое сердце должно быть моим
+[5:42] 03. За невинно убиенных
+[2:26] 04. Теряя их на ветру(   Читать дальше...   )Жанр: Art-RockПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88940899488CCD3A43300AFF6F9FBBD2AC157684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729324   (307146) от 03.12.2013
+
+Мара - Откровенность (2003) [FLAC|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Самолеты   (3:20)
+02.  Патроны   (3:37)
+03.  Рак   (3:02)
+04.  Для тебя   (3:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E794F842B23717E0E510F16A8B6B7ABFDEB0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261259   (305655) от 10.11.2018
 
 Svartby - Swamp, My Neighbour (2015) [FLAC|Lossless|image + .cue] <Folk Black Metal>
@@ -597,150 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA1381F8B9611FF7FDE897D33695ACACA26AC59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963101   (291150) от 06.12.2015
-
-Облачный Край - Ыгыатта (2011) [WavPack|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ария Варяжских Гостей
-02. Облачный Край
-03. Анатомия Гнева
-04. Контрольный Мазок(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC1C2EACA82A9E5E25E53982FB9DA03EA99D04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962408   (290868) от 06.12.2015
-
-Мамульки Bend - Хрясь! (2015) [FLAC|Lossless|tracks +.cue] <Alternative, Comedy rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чудо-Мутанты (02:10)
-02. Марафон (01:38)
-03. Нечего сказать (02:38)
-04. Мегамысль (03:13)(   Читать дальше...   )Жанр: Alternative, Comedy rockПродолжительность: 00:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37BB73BB873A94F52253B3BE110CBBCDCCD6B4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080670   (288283) от 07.12.2016
-
-Messer Fur Frau Muller (Нож для Фрау Мюллер) - Allo, Superman! (2000) Japanese edition [FLAC|Lossless|image + .cue] <Experimental, Easy Listening>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Hypnotyzed Snowman
-2 Allo, Superman!
-3 Aufwiedersehen, John!
-4 Goodbye, Sea!(   Читать дальше...   )Жанр: Experimental, Easy ListeningПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C11836ABCC30C6FCB71C8EE564DBA06961A4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263167   (288125) от 19.11.2018
-
-Сергей Дудин - Вечный зов (1999) переиздание, 2006 [FLAC|Lossless|image + .cue]<Art Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Начало
-02. Дождь
-03. Сон
-04. Поборись(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77411ABDC14F1EAEF799C386FF7C3C766B3EA6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263602   (287400) от 19.11.2018
-
-Кино (Виктор Цой) - Атаман (2018) Single, Limited Edition [FLAC|lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Атаман (версия 2012 г.) (04:12)
-02. Атаман (версия 1990 г.) (03:00)
-03. Атаман (демо-версия 2012 г.) (04:16)Жанр: RockПродолжительность: 00:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B9D0A78029F40C12163581274C7B17C15781A8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1655060   (204610) от 24.08.2023
+
+Sonny Criss - Rockin' In Rhythm (1968) 1999, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eleanor Rigby [5:38]
+02. When The Sun Comes Out [6:32]
+03. Sonnymoon For Two [4:56]
+04. Rockin' In Rhythm [4:45](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900F07AE467CD85A478534CAC2C6E462F47621C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655489   (204319) от 26.08.2023
+
+V.A. - Magic Moments 16 (In the Spirit of Jazz) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nils Landgren - Chapter II
+02. Peter Somuah - Reincarnation
+03. Jakob Manz - Wade in the Water
+04. Matthieu Saglio - Irta(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DF1B37A2601FC3E9C7E5F84E382F199FF9CD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655425   (204207) от 26.08.2023
+
+Oscar Pettiford & Vinnie Burke - Bass by Pettiford / Burke (1955) 1999, Bethlehem [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sextette [2:56]
+02. Golden Touch [2:33]
+03. Cable Car [2:21]
+04. Tricrotism [2:42](   Читать дальше...   )Жанр: BopПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36961AA420544530CBA8FBC89C1BFA57DD09B46C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655646   (204008) от 27.08.2023
 
 Roy Haynes With Booker Ervin - Cracklin' (1963) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -657,93 +744,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD706B3A9342FC9E43908BBDBC56A69EF80BC08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658279   (191636) от 07.09.2023
-
-Mal Waldron & Jackie McLean - Left Alone '86 (1987) Bellaphon [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left Alone (master take) [8:27]
-02. God Bless the Child [3:23]
-03. All of Me [6:49]
-04. Cat Walk [9:46](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443830DB512A985A5DA0C58606D67642F795B7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588554   (191422) от 05.11.2022
-
-Jack Teagarden - The Complete Roulette Jack Teagarden Sessions (1959 - 1961) 4CD, 2003, Mosaic Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191422.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jack Teagarden Introduces the Band [1:37]
-02. That's a Plenty [5:30]
-03. Tin Roof Blues [4:46](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 04:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61228C8E1F153C03961E47B5A6914741BC41091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588557   (191419) от 05.11.2022
-
-The Airmen Of Note - The 2021 Jazz Heritage Series (2021) Department of the Air Force [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Means and Ends [6:10]
-02. Chant [7:13]
-03. Jive Coffee [8:54]
-04. With a Song in My Heart [6:26](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73082B2C79326D1B13EFD2F28C22CD4D5B96BA16
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1801050   (66245) от 07.06.2025
+
+Unna & Helge Tallqvist Band - Today I Sing the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Where Can I Go (2:44)
+02.  Voodoo Man (4:46)
+03.  Use What You Got (3:04)
+04.  Somebody's Always Trying (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3C6DAE216C4B2C03AB860FEDCABEFF6539A1CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801084   (66226) от 08.06.2025
+
+Nikki Iles & NDR Bigband - Face To Face (2023) Edition Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misfits [8:18]
+02. Red Ellen [7:15]
+03. Face to Face [6:28]
+04. Wild Oak [8:38](   Читать дальше...   )Жанр: Contemporary Jazz, Big BandПродолжительность: 00:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8ABAABD99E4E49CFD1B14DB6D8B10581D29774A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801037   (66217) от 08.06.2025
+
+Tim Hardin Trio - Light Intelligence Series 2 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mozart: 'Alla turca' from Piano Sonata in A major [4:11]
+02. Mozart: 'Allegro molto' from Symphony No.40 in G minor [4:13]
+03. Beethoven: Fur Elise [3:49]
+04. Beethoven: 'Allegro' from Violin Sonata No.5 in F major [3:34](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F693E9D6891FB6415125955B61D5287EDA6629D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801040   (66216) от 08.06.2025
+
+Tim Hardin Trio - Light Intelligence Series 3 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martini: Plaisir d'amour [4:45]
+02. Gounod: Ave Maria [4:17]
+03. Saint-Saens: The Swan [3:48]
+04. Bizet: Menuett from 'L'arlesienne' [3:28](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD972E0F1FE383EAAB0A8304C1BA1A57053610EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801034   (66214) от 08.06.2025
+
+Tim Hardin Trio - Light Intelligence Series 4 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chopin: Fantaisie Impromptu in C sharp minor Op.66 [4:11]
+02. Chopin: Nocturne No.2 in E flat major Op.9-2 [4:13]
+03. Chopin: Etude 'Chanson de l'adieu' in E major Op.10-3 [4:56]
+04. Chopin: Prelude 'Raindrop' in D flat major Op.28-15 [4:28](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CF508F9A9D8BFCAFFBEDE9FE14E6CA7765AC02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801489   (66207) от 11.06.2025
+
+Kenny Wheeler - Song For Someone (1973) 2004, Psi [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toot-Toot [4:15]
+02. Ballad Two [8:27]
+03. Song for Someone [2:40]
+04. Causes Are Events [8:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A7FF1F0AC6823B2B1923BC51CFD6335253D97E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801725   (66193) от 12.06.2025
 
 Magnetic Gardener - Time Ain't My Friend (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Electric Church - Used and Abused (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B9604833219CDF1DB2C9E6A87294FB4BCF2C032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802648   (66026) от 18.06.2025
-
-Chris & Mike - unique (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  COLOURS (5:16)
-02.  UNIQUE (5:26)
-03.  RESPECT (6:34)
-04.  TYPICAL (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03BA55C84A9ADA7A845D6D6C948AD9C2413ED18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802666   (66025) от 18.06.2025
-
-Fred Hostetler - Blues Back Pages (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hey Corporate Vandals (3:22)
-02.  Your Mind Is on Vacation (4:15)
-03.  Taming the Wolf (7:13)
-04.  Deep Deep Well (5:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294CFA61F8239B254C910B8CF5927DE30A99585C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802672   (66024) от 18.06.2025
-
-Leo Cookman - Everyone Left (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You Don't Know (3:44)
-02.  In Mine (3:26)
-03.  Let Her Go (3:09)
-04.  Sleeping Dogs (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A3A70A4397936A2CE5BBB383118092190A8A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802659   (66023) от 18.06.2025
-
-David Cooper - David Cooper (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  On My Way Back Home (3:56)
-02.  Shine On (4:01)
-03.  This Rain's Just Passing Through (3:30)
-04.  We Give You Praise (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E596BEDFB50AADBDDF24E14AC28AF58D9606D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802671   (66022) от 18.06.2025
-
-Kjartan Hesthagen, Ledfoot, Markus O. Klyve, Tim Scott McConnell - Plain Simple Honesty (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All You Ever Had (4:10)
-02.  Plain Simple Honesty (3:48)
-03.  My Empty Heart (4:57)
-04.  Burning Blue (2:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F04359E2C1D883773CA6549477454AD149AC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802652   (66021) от 18.06.2025
-
-Clementine Moss - Clem & Clearlight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hey Sweetheart (6:52)
-02.  Bar Broad Blues (4:21)
-03.  Coming to Meet the Blues (4:11)
-04.  Lt Blues (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C7AA1A82AD246CD67A6194B0D6A3F3F4AE358E
 ```
 
 https://mybot314.ru/tekegram_catalog/

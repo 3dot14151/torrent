@@ -1,3 +1,90 @@
+###  Публикация: 1626750   (243352) от 17.04.2023
+
+АстАртА - Город потерянных душ (2023) [MP3|320 Kbps] <epic metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Падший [00:02:45]
+02 - Демон [00:04:35]
+03 - Апокалипсис [00:02:50]
+04 - Страшный суд [00:03:58](   Читать дальше...   )Жанр: epic metalПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41DE80359104F33C2E630CBF8D3935F8CCF0B66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626748   (243220) от 18.04.2023
+
+Вершитель - Вместо тысячи книг (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243220.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 - Страшный суд [00:04:02]
+08 - Сон [00:05:39]
+07 - Жажда крови [00:07:23]
+06 - Чёрный маг [00:04:42](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCFB03E95A5A1597DF9B795A91B6E10CC9054CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627262   (243207) от 18.04.2023
+
+Камбатт (CumButt) - Изделие номер один (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Культура [00:02:28]
+02 - Ставрополье [00:03:38]
+03 - Привет, полиция! [00:02:39]
+04 - Интерьер [00:02:07](   Читать дальше...   )Жанр: RockПродолжительность: 00:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6CC979A43102F0FE09584A7BC56C76D36F850A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614207   (243094) от 21.02.2023
 
 Outpost 11 - 4 Albums (2018-2023) [MP3|320 Kbps] <electro-industrial, EBM>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61C48AF144F6BC948331F9E768EFE093538B0849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406879   (240715) от 05.09.2020
-
-Yarek Ovich - Introversion (2020) [MP3|320 Kbps] <Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:13]
-02. Gone with Autumn Leaves [00:05:39]
-03. See the Sun [00:05:59]
-04. Introversion [00:06:43](   Читать дальше...   )Жанр: Depressive Black MetalПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBEB46B6984E91334B5C934EBFD2892B81C0B03A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406884   (240574) от 05.09.2020
-
-Arcanum Sanctum - Ad Astra (2020) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanderers in Space [00:01:36]
-02. The Quest [00:04:39]
-03. Pack Rat [00:04:28]
-04. Down to Earth [00:03:06](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32500AE26027D21FD98BB2302C6B2A25CA7AD053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620659   (240523) от 21.03.2023
-
-Проект KvazaR - На черте (2023) [MP3|320 Kbps] <MetalCore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Сатанизм [00:04:41]
-02 - Мой крик [00:03:14]
-03 - Крысы [00:02:52]
-04 - Алыми закатами [00:04:36](   Читать дальше...   )Жанр: MetalCoreПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2D7E76AF965BB3E92BFDAD4B0EA20B83DCE844
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1145943   (618353) от 27.06.2017
+
+Albert Sanz Trio - O Que Sera (2012) Nuba Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soberana Rosa [04:51]
+02. O Que Sera [06:07]
+03. Antes Que Seja Tarde [05:37]
+04. Outros Sonhos [05:34](   Читать дальше...   )Жанр: Latin Jazz, Post-Bop, Piano JazzПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A3DF5E8E71D5E309946CAA612207A67A6FA637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145941   (618242) от 27.06.2017
+
+The Joe Newman Septet - The Midgets (1956) 1998, BMG Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Moon At All [02:50]
+02. Valerie [02:58]
+03. My Dog Friday [03:32]
+04. Scooter [02:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9C1523774ADC1CF1083E4757B85FEDBDC564AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145679   (618229) от 27.06.2017
+
+The Modern Jazz Quartet - Fontessa - The Little Comedy (1960) Remaster, 1996, Giants Of Jazz [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Little Comedy: La Cantatrice-Harlequine, Fontessa (24:00)
+02. Cylinder (6:36)
+03. A Social Call (4:55)
+04. How High The Moon (8:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE6CA128824C7A1C962C284E3EF5385BC6B75B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145894   (618225) от 27.06.2017
+
+Rita Reys - The Real… Rita Reys (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Summertime
+02. Raindrops Keep Fallin' On My Head
+03. The Windmills Of Your Mind(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 03:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6304E1128B9C815E70621C44412F2B7AD9DB15D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544703   (618133) от 17.04.2022
+
+Borderhill Bay - Harmaa (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ei Puhettakaan (2:30)
+02. Harmaa (3:26)
+03. Helpompaa (3:03)
+04. Hoo Doo (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B41D400C05555E22D3543A4633B6C4541B7D3D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544700   (618130) от 17.04.2022
+
+Bluesbury - MMXXI (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gemini Heart (5:54)
+02. So Damn Cool (5:01)
+03. Walk In My Shadow (4:35)
+04. (I Wanna) Make Love To You (8:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA50B00FB0423BFC8A161D419A8BC251DA5372C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544701   (618121) от 17.04.2022
 
 BlueTouch - The Music of Robert Johnson (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -582,183 +756,6 @@ Celine Bonacina Crystal Quartet - Crystal Rain (2016) [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9160254CD2FC1BF6BC3A6F75AAB2516170828A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037045   (615742) от 23.07.2016
-
-Carla Cook - Dem Bones (2001) [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The More I See You (4:53)
-02. Like A Lover (6:42)
-03. Oh Gee (4:13)
-04. Dem Bones (6:55)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4590F1E3B3C0071BF6D3B7BFF0BC3CB38B40CA01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230255   (615709) от 12.06.2018
-
-Chet Baker And Crew (1956, 1959) 2CD, 2018, Jazz Images [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615709.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tabu [5:40]
-02. Halema [3:54]
-03. To Mickey's Memory [5:16](   Читать дальше...   )Жанр: CoolПродолжительность: 01:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59FB2A5D6644720611BDE54B0B15264D6218456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036936   (615675) от 23.07.2016
-
-Laurindo Almeida - Guitar From Ipanema (1964) Japan Edition, 2011, Capitol / EMI [FLAC|Lossless|image + .cue] <Jazz, World Fusion, Brazilian Traditions>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl from Ipanema    02:20
-02. Manha de Carnaval    03:10
-03. Sarah's Samba    02:08
-04. Winter Moon    02:59(   Читать дальше...   )Жанр: Jazz, World Fusion, Brazilian TraditionsПродолжительность: 00:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0117801AF2CADFE1EE31A442AC35B9DA825A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037063   (615668) от 23.07.2016
-
-Melanie De Biasio - Blackened Cities (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615668.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blackened CitiesЖанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B03ACB0DA8B60E1ED95A3B9FA88D80AFA4EC1837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230521   (615621) от 12.06.2018
-
-Maria Christina, Federico Casagrande - Morning Swim (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz, Singer-Songwriter>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Swim (4:55)
-02. Ocean Song (4:59)
-03. Blank Canvas (4:06)
-04. Love And Rage (4:21)(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Singer-SongwriterПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A96CD0DCD5B786C173BE7661D133CE918CAC07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523766   (615492) от 17.07.2012
-
-Joanne Le Blanc - Found & Lost (2012) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_615492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Built for Comfort [03:54]
-02. I Just Want to Make Love to You [03:27]
-03. I'd Rather Go Blind [05:13]
-04. I'm a Woman [04:45]
-05. I'd Rather Drink Muddy Water [03:17]
-06. Paying the Cost to Be the Boss [03:31]
-07. Voodoo Woman [05:34]
-08. How Blue Can You Get? [06:45]
-09. I Can't Quit You [04:53]
-10. You Can Have My Husband [03:31]Жанр: BluesПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1752362   (41882) от 30.09.2024
+
+VA - Entrance Music Legends Top 25 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner State feat. Tiff Lacey - Changes (Angel Ace 2019 Remix) [6:06]
+02. Hoyaa - Fragile (Ahmed Romel Remix) [8:53]
+03. Hoyaa - Autumn (Original Mix) [8:44]
+04. Hoyaa - The Better Side (Kaimo K Bangin' Mix) [7:35](   Читать дальше...   )Жанр: TranceПродолжительность: 03:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477E6E0433C233E09358FDA07C6AFF8E235BAA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752817   (41702) от 02.10.2024
+
+VA - Top 10 August 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SME - I Miss You (Original Mix) [4:51]
+02. D.J.G. & M.I.K! - Who You Are (Original Mix) [4:11]
+03. Kvaii - Iridescent (POINoir Remix) [7:00]
+04. Stereorandom - Paradise (Original Mix) [6:15](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F882051E5C561B308E1B8084DC78BE91AF95CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754230   (40872) от 09.10.2024
+
+VA -  Dance to Trance Amsterdam 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djcincinati & NELLY TGM - Your Silence [7:38]
+02. Irregular Ratio - The Way Out (Extended Mix) [5:03]
+03. Ray Van Miles & Landi - Stars (Extended Mix) [6:46]
+04. W A T T O - Activate [3:54](   Читать дальше...   )Жанр: TranceПродолжительность: 03:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A25661396F03EAB7C17BDA91F896316F9AF7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755596   (40169) от 16.10.2024
+
+VA - FSOE ADE Compilation (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila & Philippe El Sisi & Omar Sherif with Jaren - Count On Me (Extended Mix) [8:57]
+02. Billy Gillies - Closed Eyes (Extended Mix) [6:11]
+03. Paul Denton - The Code (Extended Mix) [6:39]
+04. Alex M.O.R.P.H. - Arcadia (Extended Mix) [6:10](   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC40B19E76FFECBEDB70A7B92A23DC1BAE831175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755762   (40093) от 17.10.2024
+
+VA - Uplifting Only Top 15: October 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkingz - Stay Forever (Intro Mix) [5:45]
+02. William Silva & NELLY TGM - I Belong To Heaven (Extended Mix) [5:52]
+03. Dmitriy Kuznetsov - Elven Wind (Extended Mix) [6:31]
+04. Db Mokk & DNY'L - I Still Breathe (Extended Mix) [5:55](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A3BE2678AED940AF9FDAA131497FB6BCBDCA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756588   (39573) от 22.10.2024
 
 Kyau & Albert - All in Good Time (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -594,151 +739,6 @@ VA - A State Of Trance Year Mix 2024 (DJ Mix) (Mixed By Armin Van Buuren) (2024)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3342A8C5F89CE6FF93FC78AF5938C3E377A3E45C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766390   (33763) от 18.12.2024
-
-VA - Best of Argento 2024 - Extended Mixes (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nitrous Oxide & Seb Hennig - Constellation (Phillip Castle Extended Remix) (05:56)
-02. Rodrigo Deem - Bad Kingdom (Extended Mix) (05:56)
-03. Marcos - Human (Extended Mix) (07:30)
-04. Digital Drift - You Don't Mind (Extended Mix) (06:02)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B83986559B0F46781C6E4017B2BDFF61E7D8749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766414   (33755) от 18.12.2024
-
-VA - Black Hole Recordings - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maor Levi, Elysian, Emma Hewitt & ilan Bluestone - Now We Are Free (05:06)
-02. XiJaro, Pitch & Adara - Goodbye (03:08)
-03. Da Tweekaz & HALIENE - Heaven (Million Miles Rework) (03:13)
-04. Protoculture, DIM3NSION & Dennis Sheperd - Sublimity (03:31)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7875A6D164874358FEBA1B8455E2E98DD40F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768031   (33263) от 23.12.2024
-
-VA - The Best Releases 2024 of Enigma Emotions (By Abstract Moon) (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Fletcher - Winter Bloom (Original Mix) [6:51]
-02. Moroni - Black & White (Original Mix) [5:32]
-03. C37 - Loved into Submission (Original Mix) [4:44]
-04. Sam Fletcher - A Little More Time (Lost States Remix) [4:56](   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D350A8BAB0925C63CD52BB1E7EBE34A02A670C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768016   (33259) от 23.12.2024
-
-VA - A State Of Trance Year Mix 2024 (Mixed By Armin Van Buuren) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33259.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren & Moby - Extreme Ways (Extended Mix) (06:08)
-002. Jerome Isma-Ae - Hold That Sucker Down (Hel:slowed Extended Remix) (05:09)
-003. Hel:slowed & Amber Revival - Wildfire (Extended Mix) (07:15)
-004. Estiva - Fine Day (Extended Mix) (07:00)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 13:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20CE2DCD0BF20DC3868756390DC4B89433CAB215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767927   (33236) от 23.12.2024
-
-VA - The Best Releases 2024 of Your Melodies (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iberian - Trust Me (Original Mix) (06:09)
-02. Ocoro - Honjaya (Original Mix) (07:52)
-03. Juan Almiñana Obando & Poetry Maiden - Never Again (Original Mix) (07:04)
-04. SounEmot, Arcvalx & Elyssandre - Don't Let Them Take Away Your Light (Original Mix) (05:26)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06B3B4D9FCD535AE4F8CD03A140E6F5DA1FA91B
 ```
 
 https://mybot314.ru/tekegram_catalog/

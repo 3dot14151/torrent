@@ -1,3 +1,177 @@
+###  Публикация: 1729140   (53625) от 11.06.2024
+
+Mildred Bailey - 1940 - 1942 (2002) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fools Rush In [3:21]
+02. From Another World [2:47]
+03. I'm Nobody's Baby [3:00]
+04. Give Me Time [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E6090E959408FD0FE0AA062C504CF5E3F053DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729438   (53623) от 11.06.2024
+
+Jack Walrath - Neohippus (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Village of the Darned [6:43]
+02. Watch Your Head [6:44]
+03. Fright Night [6:13]
+04. Annie Lee [5:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B3443C65B7BDF67957F333F955B42EEC4F464F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729142   (53618) от 11.06.2024
+
+Lee Ritenour - The Very Best Of Lee Ritenour (2003) GRP [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Little Bumpin' [4:28]
+02. Water to Drink (Agua de Beber) [5:07]
+03. Get Up, Stand Up [5:00]
+04. Harlequin [4:43](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04B15E8E4C70C7E1EB0C881B161594A9DA6847F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729436   (53617) от 11.06.2024
+
+Warren Wolf - Black Wolf (2009) M&I [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Day to Day [6:39]
+02. Maiden Voyage [5:27]
+03. The Wire [5:49]
+04. Chelsea Bridge [6:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66005A1BA343E879C779C303BB653228A2982F1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729534   (53615) от 11.06.2024
+
+Toronzo Cannon - Shut Up & Play! (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Can’t Fix the World
+02 – I Hate Love
+03 – Him
+04 – Had to Go Through It to Get to It(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09741F0B9A04A8A11C27C95E0E5D28F91BC7448D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139377   (53327) от 14.06.2024
+
+Vladimir Tolkachev Jazz Orchestra (Владимир Толкачев) - General's Full-Dress Coat (Мундир Генерала) (2002) Ermatell Records [APE|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chattanooga Choo - Choo [03:21]
+02. The Game Is Over [07:02]
+03. Pure Emotion [03:08]
+04. Jump One O'Clock [04:29](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642DC561D78A2AA2F24F82746490AADE2E96CB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731200   (52681) от 20.06.2024
 
 Mike Franano - Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ VA - Refreshing Soothing Easy Listening Tunes for Rest, Study or Travel (2024) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ED7F2C2E04A556A22BC6502E657F6326E8B4141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744364   (46077) от 21.08.2024
-
-VA - Groovy Ride, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michelle Ann Owens - Here I Come (3:12)
-02. Lovescandal - If You Really Love Me (4:00)
-03. Gruvolento records - Friday (2:09)
-04. Marvin Conan - Fire Me Up (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 02:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00510D1D7F40C841AF9A4A16A52E5768ECA31DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744370   (46075) от 21.08.2024
-
-VA - Magnificent Soothing Tunes for Relaxed and Happy Vacation Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Every Now & Then (3:29)
-02. eJazz Artistry - Sweet Love (4:01)
-03. eJazz Artistry - No Rhyme, No Reason (3:48)
-04. Love Suggestions - Life Is Love (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02849A4A9CAA71FBE7D7141B346934FC26955C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744369   (46073) от 21.08.2024
-
-VA - Luxurious Instrumentals for Relaxed and Happy Vacation Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Memories of Us (4:32)
-02. Kool&Klean - Every Now & Then (3:29)
-03. eJazz Artistry - Story of My Life (5:06)
-04. Chillaxonic - Oasis (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF89FC7851AA4D8C839E401085993850C74A599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744365   (46071) от 21.08.2024
-
-VA - Slippin’ Away (Melancholic Mix for Long Lonely Nights) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travellin' Blue Kings - Never Never Land (4:36)
-02. Timo Arthur - I Wish I’d Thought of That (3:59)
-03. Miss Freddye - Slippin' Away (4:37)
-04. JJ Soul Band - Front Page News (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8E53256F5446473F3311F48E1AFA244478ACC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747322   (44605) от 04.09.2024
-
-VA - Best of Whiskey Blues (Smooth, Relaxing Tunes) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Jazz Trio - Sound of Wood (4:47)
-02. Kevin Desire - No Man Blues (4:02)
-03. D - Lazy River (3:08)
-04. Travellin' Blue Kings - Never Never Land (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B8C4EC5317FCCC2AD5094330027EB6A1F7C3D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748001   (44190) от 08.09.2024
-
-VA - The Blues Won’t Leave Me Alone (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicken House Purple - That I Was Back Then (3:25)
-02. Invisible Eddie - The Blues Won't Leave Me Alone (3:33)
-03. The Night Styles - Dear Bartender (3:18)
-04. Kelly Gale - Be My Friend (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286D8EF9C778C003B13C4B8B6FE58E2F818CC1A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

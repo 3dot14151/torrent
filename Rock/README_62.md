@@ -1,3 +1,64 @@
+###  Публикация: 251962   (371078) от 01.11.2010
+
+The Band - Discography (1968..2005) [MP3|320 kbps]<Country / Roots / Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Country / Roots / Blues RockПродолжительность: 31:20:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575441   (370894) от 14.11.2012
+
+Kid Rock - Rebel Soul (2012) [MP3|320 кб/с]<Rock, Country, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chickens In The Pen (4:49)
+02.  Let's Ride (4:50)
+03.  Catt Boogie (4:24)
+04.  Detroit, Michigan (3:56)
+05.  Rebel Soul (4:02)
+06.  God Save Rock N Roll (5:21)
+07.  Happy New Year (3:34)
+08.  Celebrate (4:01)
+09.  The Mirror (4:46)
+10.  Mr. Rock N Roll (6:37)(   Читать дальше...   )Жанр: Rock, Country, Southern RockПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9ED593D7D7C02EEFBE3B5D471602885B71CE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575424   (370399) от 14.11.2012
 
 Joe Cocker - Fire It Up (2012) [MP3|320 кб/с]<Classic Rock>
@@ -687,64 +748,6 @@ Eagles - Live From The Forum MMXVIII (2020) [MP3|320 Kbps] <Classic Rock, Legend
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D23146CA756436D61E8DC7312B1E393B6F37AD68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416652   (364958) от 17.10.2020
-
-Bruce Springsteen - Letter To You (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Minute You're Here [00:02:57]
-02. Letter To You [00:04:55]
-03. Burnin' Train [00:04:03]
-04. Janey Needs A Shooter [00:06:49](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FD95C14CFA21F3C9B4B3C0E9C179F42BD2F7E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576510   (364356) от 15.09.2022
-
-The Mars Volta - The Mars Volta (2022) [MP3|320 Kbps] <Progessive Rock, Neo-Psychodelia>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blacklight Shine [00:02:55]
-02 - Graveyard Love [00:03:14]
-03 - Shore Story [00:03:15]
-04 - Blank Condolences [00:03:27](   Читать дальше...   )Жанр: Progessive Rock, Neo-PsychodeliaПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1683DAC19D61B092251D0612E256CB805E82EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

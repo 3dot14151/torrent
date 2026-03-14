@@ -1,3 +1,61 @@
+###  Публикация: 1775217   (71487) от 25.01.2025
+
+VA - Dance Classics Gold 3 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Summer - Last Dance
+02. The Jacksons - Can You Feel It
+03. Kool & The Gang - Get Down On It
+04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A00B67CCDB3F2158E505D9F3030239808674061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775103   (71476) от 25.01.2025
+
+VA - Dance Classics Gold 2 (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool & The Gang - Celebration
+02. Gloria Gaynor - Never Can Say Goodbye
+03. The Four Tops - Don't Walk Away
+04. The Trammps - The Night The Lights Went Out(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11A02274CB65D187D1B26B9DB479F71103EAE70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775307   (71445) от 26.01.2025
 
 VA - Dance Classics Gold 4 (1993) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
@@ -687,64 +745,6 @@ VA - One Shot '80 Volume 3 (1999) [OGG Vorbis|480 Kbps] <Synth-pop, Disco, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9451AA592947AECCD84C75EA93DFCA1B9C0B4E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783027   (69892) от 03.03.2025
-
-VA - One Shot '80 Volume 6 (1999) [OGG Vorbis|480 Kbps] <Pop, Italo-Disco, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Human Legue - Don't You Want Me
-02. Sandra - Maria Magdalena
-03. Rick Astley - Never Gonna Give You Up
-04. Samantha Fox - Touch Me (I Want Your Body)(   Читать дальше...   )Жанр: Pop, Italo-Disco, Synth-pop, DiscoПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54179E1D9F50B0D5CECBA46B01B27AFCE2B7BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783055   (69891) от 03.03.2025
-
-VA - One Shot '80 Volume 7 (1999) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joan Jett & The Blackhearts - I Love Rock'n'roll
-02. The Knack - My Sharona
-03. Blondie - Call Me
-04. Yes - Owner of a Lonely Heart(   Читать дальше...   )Жанр: Rock, Pop, Pop Rock, Synth-popПродолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6195821FB4634CA11F30B25C0C0AA1044131A280
 ```
 
 https://mybot314.ru/tekegram_catalog/

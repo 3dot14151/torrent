@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1858911   (1060746) от 
+
+VA - Ori Uplift - Uplifting Only Episode 683 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamira & Tsuki Shizumutoki – Jinse (Kaokao Remix)
+02. Doppenberg & MIDI Kittyy – Who You Are
+03. Adip Kiyoi – Your Symphony
+04. Shadows&Nightmares – Self-Transcendence (Fan Favorite (679))(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3050150B54CCE90D2A8AFC9D88735A81625CBE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858884   (1060745) от 
+
+VA - Armin van Buuren - A State Of Trance 1268 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Susana – Standing With The Light
+02. Morten – Rotation
+03. Beatsole – Into The Light
+04. Derek Vo & Lovlee – Away(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B32690AA178C03A85813B33AE5AA3333DF616DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857544   (1059656) от 06.03.2026
 
 VA - Ori Uplift - Uplifting Only Episode 682 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -688,64 +746,6 @@ Tiesto - Prismatic 001 (2026-01-02) [MP3|320 Kbps] <Dance, Electro Pop, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAD9FC73130037799B33118DE1657F57ABAD7AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846761   (1051648) от 09.01.2026
-
-GOODBOYS - Linked Radio (01-04) (2025) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GOODBOYS & KREAM - Paradise
-02. Duke Dumont & Jay Norton vs. Landmark - Ocean Drive vs. Only Solution (GOODBOYS Edit)
-03. Twisted Moon vs. Danny Tenaglia ft. Celeda - Keep This vs. Music Is The Answer (Dancin' And Prancin') (GOODBOYS Edit)
-04. Bart Skils & Weska - Something More (Joris Voorn Remix)(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 03:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286F95FD37921148C72D61065D699EF4266149AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846318   (1051313) от 24.01.2026
-
-VA - Tomorrowland Brasil (2025) [MP3|320 Kbps] <Techno, House, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agents Of Time & CERES - Baby
-02. Argy & Eli & Dani & Peki & ØSHER - Chasing Highs
-03. Cassian & YOTTO & Da Hool - Love Parade  w/Junior Jack - E Samba (Acappella)
-04. Agents Of Time ft. Ross Quinn - Friend Of Mine(   Читать дальше...   )Жанр: Techno, House, TranceПродолжительность: 36:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB848891D5BCC2889E46C1646635480C1FB085D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

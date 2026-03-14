@@ -1,3 +1,38 @@
+###  Публикация: 612579   (977236) от 08.02.2013
+
+Madonna - The Best Songs (2013) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl Gone Wild
+02. Gang Bang
+03. I Don't Give A (feat Nicki Minaj)
+04. Love Spent
+05. Falling Free
+06. Beautiful Killer
+07. Best Friend
+08. I'm a Sinner
+09. Candy Shop Medley
+10. Devil Wouldn't Recognize You(   Читать дальше...   )Жанр: PopПродолжительность: 03:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422BA1F07E9930F99E23F0253A0DAED32A8DEFB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357187   (975281) от 02.02.2020
 
 Adriano Celentano - Hunting Down Good Tunes (2020) [MP3|320 Kbps] <Pop>
@@ -722,35 +757,6 @@ VA - Ultimate 90's - 4CDs of the greatest music from the 1990's (2015) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8903C8BB6CEDCCFEC90857F1226D56282B56C171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361896   (952253) от 21.02.2020
-
-Таисия Повалий - Ейфорія (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952253.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дай мені любов
-2. Ейфорія
-3. Алло
-4. Я його вдихаю(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E80C23181341C33BA43DFDB4EDFE02E6D708377
 ```
 
 https://mybot314.ru/tekegram_catalog/

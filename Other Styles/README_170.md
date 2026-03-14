@@ -1,3 +1,32 @@
+###  Публикация: 1792094   (67767) от 17.04.2025
+
+VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Atwater Collective - White Rabbit (2:51)
+02.  Josh Arnold - Buried Love (3:20)
+03.  The Lost Gecko - Brothers (4:54)
+04.  Marc Miner - Sweet Revenge (6:13)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13038A18CA1B5AB2ECD73C996B705B284181B4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792096   (67760) от 17.04.2025
 
 VA - Lost in Thoughts: Sentimental Rock Folk Soundtrack (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
@@ -716,35 +745,6 @@ Tantric Sex Background Music Experts - Entrance to Sex (2024) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06E83186511F0CAED67BDF861DD3C0E066AAF3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585597   (60377) от 08.04.2024
-
-Stoner Boner - Seductive Eruptions: Tantric Sex Music for the Ultimate High (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ultimate High (432hz) [00:02:33]
-02. Tantric Sex Magic (432hz) [00:02:20]
-03. My Mistress Marijuana (432hz) [00:03:02]
-04. Marijuana Kundalini Meditation (432hz) [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77380C13F54034EA8AD24B7F9D317D4C3FBBA254
 ```
 
 https://mybot314.ru/tekegram_catalog/

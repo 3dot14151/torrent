@@ -1,3 +1,32 @@
+###  Публикация: 1537888   (243700) от 19.03.2022
+
+VA - Dirty Weekend (25 Groovy House Tunes), Vol. 5 (2019) [AAC|~331 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slippy Beats - Daydream (Extended Mix) (4:39)
+02. Tim Nice - Lonely (6:35)
+03. Hoxtones, Amfree, Jenson - Stay The Night (Extended Mix) (4:06)
+04. Housetronix - Turn It Up (6:20)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74689C9967B8AD93E2E6F3887483B7DF5F8504D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538122   (243692) от 19.03.2022
 
 VA - Late Night Chillout Music (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
@@ -713,35 +742,6 @@ VA - Autumn Grooves (The Lounge & Chill out Deluxe Collection), Vol. 1 (2020) [A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B274E741FDD55FA3878ED21C997326CDB8BB12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547226   (240984) от 02.05.2022
-
-EASTERN WIZARD - The Land of Mysteries (2022) [AAC|~326 Kbps] <Organic House, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Land of Mysteries (5:44)
-02. Unlocking Secrets of the Universe (5:54)
-03. Chasing the Light in Casablanca (7:16)
-04. Heaven (4:27)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC8D81ADEB96641553CB7684D0A75C282FAFA30
 ```
 
 https://mybot314.ru/tekegram_catalog/

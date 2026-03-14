@@ -1,3 +1,125 @@
+###  Публикация: 358192   (585889) от 02.07.2011
+
+Sandra - Everlasting Love (1988) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Everlasting Love (PWL Remix) [03:58]
+ 02.  (I'll Never Be) Maria Magdalena [03:58]
+ 03.  Secret Land [04:42]
+ 04.  Heaven Can Wait [04:03]
+ 05.  Hi! Hi! Hi! [04:10]
+ 06.  We'll Be Together [04:09]
+ 07.  In the Heat of the Night [05:19]
+ 08.  Around My Heart [03:18]
+ 09.  Little Girl [03:14]
+ 10.  Loreen [04:11]1988Жанр: SynthpopПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552995   (584759) от 23.05.2022
+
+Boston - Don't Look Back (1978) Santa Maria Press [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Prog Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584759.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Don't Look Back
+A2 The Journey
+A3 It's Easy
+A4 A Man I'll Never Be(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A87CEE71C750B5A7E2BE0A764DDE2466524F633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041013   (584456) от 07.08.2016
+
+Ray Charles - Selected Songs (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Funk, Soul,  Rhythm & Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584456.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Can't Stop Loving You
+A2 Georgia On My Mind
+A3 Hit The Road Jack
+A4 Take These Chains From My Heart(   Читать дальше...   )Жанр: Funk, Soul,  Rhythm & BluesПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72222CA9D886E21DFC7CEDA0568C75FE740FF782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041019   (584429) от 07.08.2016
+
+Группа Стаса Намина - Сюрприз Для Мсье Леграна (1983) Repress 1984 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584429.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Подводный Замок
+А2 Лето Пикассо
+А3 Друг Покинул Этот Мир
+А4 Парафраз На Темы Песен(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04180D0FFEEB4A4F830CFF26E91B74A9F63BA69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040839   (584266) от 07.08.2016
 
 C.C. Catch - Diamonds: Her Greatest Hits (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Euro Disco>
@@ -640,119 +762,6 @@ SIDE A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3379715825309C0F79E6D50C159268B4B7604447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303670   (565125) от 25.05.2019
-
-Baba Yaga  (Баба Яга) - Where Will You Go (Куда Ты Пойдешь?) (1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565125.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Where Will You Go (Куда ты пойдешь)
-A2 So Ends Another Day (Так заканчивается день)
-A3 Side To Side (Бок о бок)
-A4 Red Bird (Красная птица)(   Читать дальше...   )Жанр: Folk Rock, Blues RockПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B769561943A34700E8816A33302557EC72CFB03A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 691399   (559913) от 20.08.2013
-
-The Flirts - Blondes, Brunettes & Redheads (1985) US [FLAC 2.0|24/192|image|Vinyl-Rip]<Hi NRG, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559913.jpg" />
-</div>
-
-
-###  Подробнее
-
-С начала 80-х годов маленькая независимая компания "O"Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд "O"Records, таких как Divine и The Flirts спродюсированные Бобби Орландо (Bobby ORLANDO) пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная (   Читать дальше...   )Жанр: Hi NRG, Synth-pop, DiscoФормат: Vinyl, LP, AlbumПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D7177BBC3582D38A31AF8DD0A25CD038A2DA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924496   (559064) от 03.08.2015
-
-Genesis - Duke (1980) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559064.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Behind The Lines (5:36)
-A2. Duchess (6:36)
-A3. Guide Vocal (1:22)
-A4. Man Of Our Times (5:37)(   Читать дальше...   )Производство: Charisma Records / Nippon PhonogramЖанр: Progressive RockПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E71868C9C0C7591109F2A7E68944F15264EC075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045217   (556920) от 25.08.2016
-
-Каунт Бейси - Когда Садится Солнце (1985) Записи 1940 - 1950гг. [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Когда Садится Солнце
-02. Пьеса Для Фортепиано
-03. Какой Медленный Блюз
-04. Привет, Мама Лоди(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA72C8EA6F00CD75F694F84876057A3284DA01B
 ```
 
 https://mybot314.ru/tekegram_catalog/

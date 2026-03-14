@@ -1,3 +1,145 @@
+###  Публикация: 1822757   (104453) от 09.10.2025
+
+Deaf Havana - We're Never Getting Out (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life in Forward Motion [00:03:27]
+02. Carousel [00:03:52]
+03. Break [00:03:47]
+04. Lawn Tennis [00:02:25](   Читать дальше...   )Жанр: Alternative Rock, Pop-RockПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4161169AF4D5039D871CEC46ACDA7F0630BA41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822762   (104450) от 09.10.2025
+
+Playingtheangel - любовь побеждает смерть (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Hip-Hop, Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. выбирал [00:02:38]
+02. любовь побеждает смерть [00:03:17]
+03. религия [00:02:43]
+04. проблемы в раю [00:03:18](   Читать дальше...   )Жанр: Alternative Hip-Hop, Pop-RockПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802FD7628BE3C3AE6080BBE40420A857B3BC5E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822799   (104448) от 09.10.2025
+
+Acres - The Host (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodlust [00:03:12]
+02. Not So Different [00:03:33]
+03. Staring At The Sun [00:03:23]
+04. Built To Bleed [00:03:01](   Читать дальше...   )Жанр: Metalcore, Alternative MetalПродолжительность: 00:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A6585CD6F8E193482A5188F196EBC6E486A6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822934   (104439) от 09.10.2025
+
+Cult Of Luna - Studio Albums (9 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Atmospheric Sludge/Post-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cult of Luna — шведская пост-метал-группа из Умео, основана в 1998 году.2001 - Cult of Luna
+2003 - The Beyond
+2004 - Salvation
+2006 - Somewhere Along the Highway(   Читать дальше...   )Жанр: Atmospheric Sludge/Post-MetalПродолжительность: 12:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5164CF6CE2F3EAC46A61DA2AE6BA526A0E3BE482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749429   (104346) от 14.09.2024
+
+Mastodon, Lamb of God - Floods of Triton (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floods of Triton (4:30)Жанр: Groove MetalПродолжительность: 00:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F0249F1B3CBDA600A041971810973571A78ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749426   (104341) от 14.09.2024
 
 The Funeral Portrait - Greetings From Suffocate City (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
@@ -600,151 +742,6 @@ Unto Others - Never, Neverland (2024) Deluxe Edition [FLAC 24/96|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB9555228AF74CD32240E209153E978948ED8E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750304   (104230) от 19.09.2024
-
-Zetra - Zetra (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Synth-Rock, Synth-Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suffer Eternally (4:13)
-02. Sacrifice (3:57)
-03. Starfall (4:00)
-04. The Mirror (3:02)(   Читать дальше...   )Жанр: Synth-Rock, Synth-PopПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113087B7FCB586C1484F2EA911F4D1B969B25408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750296   (104229) от 19.09.2024
-
-Ctraltu - NO EXIT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink patrol (4:31)
-02. Ruhrschnellweg (3:42)
-03. The way U talk to me (3:01)
-04. Aufzugsbekanntschaften (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC088395EF45639ACA9590E6CAF3DAE49E6DD7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750387   (104228) от 19.09.2024
-
-Skid Row - Live in London (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slave to the Grind (3:38)
-02. The Threat (3:53)
-03. Big Guns (4:53)
-04. 18 and Life (5:11)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Glam MetalПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0B3A8C0F60B02586DF6F6023AD707E93FCBBBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750380   (104227) от 19.09.2024
-
-Eclipse - Megalomanium II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse Blues (3:22)
-02. The Spark (2:51)
-03. Falling to My Knees (2:58)
-04. All I Want (3:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51AF326125DBE45C0E1C6B3DF0E80B9E5C3765D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750415   (104226) от 19.09.2024
-
-Charlotte Wessels - The Obsession (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Gothic Rock, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing Sunsets (4:16)
-02. Dopamine (feat. Simone Simons) (3:36)
-03. The Exorcism (4:49)
-04. Soulstice (3:03)(   Читать дальше...   )Жанр: Alternative Rock, Gothic Rock, Symphonic RockПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331E6C8814262940699DE775EE45A0F91913DE5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

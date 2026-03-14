@@ -1,3 +1,32 @@
+###  Публикация: 1474908   (1012092) от 08.06.2021
+
+VA - Summer BBQ (2021) [MP3|320 Kbps] <Rhythm & Blues, Folk, Rock & Roll, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Meters - Cissy Strut
+02. Charles Wright & The Watts 103rd. Street Rhythm Band - Express Yourself
+03. Betty Wright - Clean up Woman
+04. Aretha Franklin - Chain of Fools(   Читать дальше...   )Жанр: Rhythm & Blues, Folk, Rock & Roll, DiscoПродолжительность: 03:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C186354C852D51DDBA08E34192155355DAA422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475952   (1011972) от 09.06.2021
 
 VA - Evrybody Clap: Disco Party (Vol.03) (2021) [MP3|320 Kbps] <Disco, Dance, Remixes>
@@ -737,41 +766,6 @@ VA - Русский хитовый взрыв №3 (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:405C5277A5B946DFA2A558FC7738A8B49DA16F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601828   (998108) от 11.01.2013
-
-VA - Radio Italia 30 Anni (3CD) (2012) [MP3|320 кб/с]<pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998108.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:01. Sugarfree - Cleptomania
-02. Francesco Renga - Angelo
-03. Povia - I Bambini Fanno Oh
-04. Zero Assoluto - Svegliarsi La Mattina
-05. Daniele Silvestri - La Paranza
-06. Simone Cristicchi - Ti Regalero' Una Rosa
-07. Fabrizio Moro - Pensa
-08. Giusy Ferreri - Non Ti Scordar Mai Di Me
-09. Arisa - Sincerita'
-10. Malika Ayane - Come Foglie(   Читать дальше...   )Жанр: popПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C46D775767F25A116A622774BDE56CE42273C07
 ```
 
 https://mybot314.ru/tekegram_catalog/

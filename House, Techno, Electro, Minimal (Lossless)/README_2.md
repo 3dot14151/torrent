@@ -1,3 +1,59 @@
+###  Публикация: 1440784   (1038511) от 18.01.2021
+
+VA - Soft, Deep & Dark #1-5 (2017-2020) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Dub Techno, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Groove; Pablo Bolívar - Inside You (6:39)
+02. Francisco Aguado - Aimless Dreams (6:14)
+03. Anton Kubikov - Echoma (6:57)
+04. Pablo Bolívar - Probably Never (7:22)(   Читать дальше...   )Жанр: Deep House, Dub Techno, Downtempo |Продолжительность: 02:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED90AED385A1DF3FBB369E78EA81ECBDC9C123D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441239   (1037994) от 20.01.2021
+
+VA - Alpha 9 Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Keeley – A Sort of Homecoming (Michael Cassette Extended Mix) (07:24)
+02. ALPHA 9 – Before the Dawn (feat. Kameron Alexander)Жанр: Progressive House, TranceПродолжительность: 01:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4914DA1969F1FD807F180C7251C0B1F78A11166C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441681   (1037513) от 22.01.2021
 
 VA - The Sound Of Christmas Gifts (2020) MixCult Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Minimal, Ambient>
@@ -679,64 +735,6 @@ VA - Yossi Amoyal Presents Fluere II (2020) Sushitech Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33DF84EF6D6B7E7825A8B6C4D9932F0AD21BCCA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449139   (1030230) от 20.02.2021
-
-VA - Spencer Brown Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond - Sun In Your Eyes (Spencer Brown Remix) (10:00)
-02. Spencer Brown - 5th & Concord (7:09)
-03. Above & Beyond; Richard Bedford - Northern Soul (Spencer Brown Remix) (9:03)
-04. Jody Wisternoff; Mimi Page - For Those We Knew (S.B. & Claybourne Remix) (9:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3806B7CA21FD0468F2B644DA4D4A8D6C6FB601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225330   (1030214) от 20.02.2021
-
-VA - Depth Charge - Electro Boogie - Shape Generator (1999) Studio !K7 [FLAC|Lossless|tracks+.cue] <Electro, Breakbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human - Evil Knevil (02:47)
-02. Echo Park - Needled (06:00)
-03. Sawtooth - White Water D-Mixed (04:04)
-04. Little Computer People - Little Computer People (04:47)(   Читать дальше...   )Жанр: Electro, BreakbeatПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6195D96ADCB218D444706E36FB6587B5485D2C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

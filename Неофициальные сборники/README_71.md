@@ -1,3 +1,90 @@
+###  Публикация: 1091169   (943121) от 09.01.2017
+
+VA - About EDM Sweet Festival Elements (2016) [MP3|256-320 Kbps] <Dance, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943121.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The 1975 - Somebody Else (Reed Streets RMX / Dirty / Cutdown) 3:48
+002. Tom Budin x WHTKD - Bad Vibe (Original Mix) 4:00
+003. Goldfish Ft. Diamond Thug - Deep Of The Night (Cutdown) 4:10
+004. Majestique - Moonlight (Short Edit) 3:02(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 08:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0911FD2C281EF3CA26D086988917A5AB6F176D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091569   (943110) от 09.01.2017
+
+VA - New Year Jelly (2016) [MP3|320 Kbps] <Dance, Technodance, Euro-House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jessica Jay - Casablanca (06:21)
+02. Pharao - I Show You Secrets (04:03)
+03. 2 Unlimited - No-One (03:29)
+04. Dj Bobo - Somebody Dance With Me (03:34)(   Читать дальше...   )Жанр: Dance, Technodance, Euro-HouseПродолжительность: 03:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9740AC502823969469FD4C434D721E685F51CAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983252   (943109) от 06.02.2016
+
+VA - Bust A Move Vol.2 (2015) [MP3|320 кб/с] <Psychedelic, FullOn, Night>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brain Hunters Feat John Go - Another Level (7:48)
+02. Funk Truck Vs Soundfanatic - Dr!ve (7:45)
+03. Dissy - Cocaine (8:19)
+04. Tube - So Sexy (8:54)(   Читать дальше...   )Жанр: Psychedelic, FullOn, NightПродолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C59B6AB8F31E677831B3CE5D4D1264BB99AECF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091502   (943108) от 09.01.2017
 
 VA - Resident Advisor - RA Poll Top 50 Tracks of 2016 (2017) [MP3|254-320 Kbps] <Minimal, Dancehall, Dub, Juke, IDM, Abstract и другие>
@@ -664,93 +751,6 @@ VA - TOP HITS. Dance party (2016) [MP3|320 кб/с] <Club, Dance, Remix>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E37433EFC455C7163CC9D14ADE854B1F61F2DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091838   (941746) от 10.01.2017
-
-VA - Resident Advisor Top 50 Charted Tracks December 2016 (2017) [MP3|204-320 Kbps] <Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butch, C.Vogt - Bliss (Original Mix) 07:21
-02. Full Intention - Keep Pushing (Original Mix) 06:28
-03. DJ Koze - Driven (Original Mix) 06:39
-04. Pig&Dan - Chemistry (Original Mix) 08:16(   Читать дальше...   )Жанр: Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech HouseПродолжительность: 06:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DEC81D39E9B98184661B4188DFAA5D85A90529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983821   (941704) от 07.02.2016
-
-VA - Радио ENERGY (NRJ) часть 2 (2009-2016) [MP3|320 кб/с] <Dance, Pop, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 99 Souls & Destiny's Child & Brandy - The Girl Is Mine (03:02)
-02. Above & Beyond & Gareth Emery Pres. OceanLab - On A Good Day (Metropolis) (07:53)
-03. Adam Lambert - Ghost Town (03:21)
-04. Akcent - Faina (DJ Nejtrino & DJ Baur Radio Mix) (03:09)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 05:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8229FDA20B096A569A2E58A49C0D1A336771977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091753   (941687) от 10.01.2017
-
-VA - Melody Across The World Dreams (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Harmonic, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941687.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Sound Apparel - Making End Of Heart Tale (2016 Remaster)  12:13
-002.  Allen & Envy With Cari - Promises (Original Mix)  6:35
-003.  ReOrder - Across The World (Original Mix)  5:41
-004.  Alternate High - Hero (Etasonic Remix)  8:57(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Harmonic, EnergyПродолжительность: 13:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A26A69193A493B5862321C6B6FB252A92AC4DD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1023915   (720687) от 07.06.2016
+
+Elle - Yemaja (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akuj (7:21)
+02. Ikenga (7:18)
+03. Haiuri (8:39)
+04. Yemaja (8:31)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678D8AF94821AC768959231DF38CA05BC4EE5DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023879   (720660) от 07.06.2016
+
+BLNDR - Hypermental (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prsm000 (5:12)
+02. HyperMental (Calming Strobe Mix) (5:40)
+03. HyperMental (Diving Mix) (6:08)
+04. Chords Dark (5:02)(   Читать дальше...   )Жанр: Techno, Experimental, Ambient, Dub TechnoПродолжительность: 00:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C4629217D7E190ECE31C46112B4F70190D85C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023931   (720657) от 07.06.2016
+
+Hydrangea - Dawn Lights (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anomala (Intro) (1:21)
+02. First (6:03)
+03. Second Degré (4:59)
+04. Hope (5:23)(   Читать дальше...   )Жанр: Electronic,  Ambient, TechnoПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA45EC9D39B1C4DFFFA06215DE28EB1785D026C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024047   (720578) от 07.06.2016
 
 Gai Barone - Towards (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -648,93 +735,6 @@ Foreign Sequence - Thousand Frustrations (2018) Concrete Collage [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:399508A7EBF29180FEC2FC09E171F06AA9D84858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286986   (707429) от 05.03.2019
-
-909 Resistance - GoodBye RackFive (2018) Arrakis [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LM2 (05:14)
-02. BBR5 (05:17)
-03. LM2 (Mik Izif Remix) (05:58)
-04. LM2 (J-Rex Acid Remix) (07:27)Жанр: Techno, AcidПродолжительность: 00:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94278ED556D66873AF8517B3C5D539F0FC8FAB75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286974   (707314) от 05.03.2019
-
-Planetary Assault Systems - Straight Shooting (2019) Mote-Evolver [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beam Riders (06:48)
- 02. Born Anchors (06:08)
- 03. Humans Use Concrete (05:28)
- 04. Engage Now (07:13)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014BF28483FED1091871A35DAD02382AFB03224E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131550   (707091) от 06.05.2017
-
-Actress - AZD (2017) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Experimental, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nimbus (00:54)
-02. Untitled 7 (05:13)
-03. Fantasynth (05:02)
-04. Blue Window (03:42)(   Читать дальше...   )Жанр: Experimental, Techno, MinimalПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12102F982807C6A2A3C1E491B0787ECDEEF73218
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1431714   (166232) от 15.12.2020
+
+Blacklite District - You're Welcome (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hardcore, Rapcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over This (2:53)
+ 02. Falling (2:40)
+ 03. Go Home (3:06)
+ 04. Wishing Dead (3:33)(   Читать дальше...   )Жанр: Alternative Rock, Hardcore, Rapcore, ElectronicПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C732014F497D37F97BF4D042B2D1D842D7A966B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673255   (165406) от 01.11.2023
+
+Divine Horsemen - Bitter End Of A Sweet Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Roots Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memory Fails [00:03:38]
+02. Talking In Your Sleep Again [00:03:57]
+03. You Knew No Other Way [00:04:38]
+04. Vanina Vanini [00:04:08](   Читать дальше...   )Жанр: Post-Punk, Roots RockПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECAFAF648159352AD5129E6ED30A8E8C72F7187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673245   (165121) от 01.11.2023
+
+Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) Orchestral Version, 2023, Fearless Records [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-hardcore, Alternative-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Horrorwood (Orchestral Version) [00:03:55]
+02. A Rash Decision (Orchestral Version) [00:03:37]
+03. Assault & Batteries (Orchestral Version) [00:02:59]
+04. The Shower Scene (Orchestral Version) [00:03:08](   Читать дальше...   )Жанр: Metalcore, Post-hardcore, Alternative-metalПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B3132B01F181B3FA59E88A80044E89DB8D3F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431960   (164485) от 17.12.2020
 
 Blacklite District - Instant // Concern (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore, Electronic>
@@ -659,92 +746,6 @@ Maggie Lindemann - I feel everything (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4F7A36F3225550032A4268752FD5489A90100CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271565   (150315) от 23.12.2018
-
-Soundgarden - Black Hole Sun (1994) Single [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Hole Sun (5:21)
- 02. Like Suicide (Acoustic Version) (6:12)
- 03. Kickstand (Live) (1:58)Жанр: Alternative Rock, GrungeПродолжительность: 00:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD47B63C07250999BA22EBC0597E0ACC33A60A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271562   (150282) от 23.12.2018
-
-Soundgarden - Songs From the Superunknown (1995) EP [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superunknown (LP Version) (5:13)
- 02. Fell On Black Days (Video Version) (5:28)
- 03. She Likes Surprises (International LP Version) (3:18)
- 04. Like Suicide (Acoustic Version) (6:17)(   Читать дальше...   )Жанр: Alternative Rock, GrungeПродолжительность: 00:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84DD3FD06BEC7FD55C3DC64A0203571D3FEC2DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677700   (149129) от 19.11.2023
-
-Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC|Lossless|WEB-DL|tracks] <Alternative-Rock, Progressive-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:22)
-02. Apocalypse Please (4:12)
-03. Time is Running Out (3:57)
-04. Sing for Absolution (4:56)(   Читать дальше...   )Жанр: Alternative-Rock, Progressive-RockПродолжительность: 01:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F241ED71FE8F4A2956DA3D9D8D1A32EA766B5E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

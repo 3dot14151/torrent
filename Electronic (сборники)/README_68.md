@@ -1,3 +1,32 @@
+###  Публикация: 1214326   (764968) от 21.03.2018
+
+VA - Deep Delicate House (2018) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764968.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alpha Carpet - Megabytes (Red Zone Mix)
+002. Zhu - Nightcrawler (Rawanara Remix)
+003. Jin Tonique - Not Easy (Mark Kay's Deep Mix)
+004. Alexander Price - Waiting (Paramour Dub Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6D1A412BFFC680A73D0F745618730042A8644A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214227   (764935) от 21.03.2018
 
 VA - Better Day Trance Mix (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
@@ -716,35 +745,6 @@ VA - Beatport Techno Electronic: Sound Pack #121 (2020) [MP3|320 Kbps] <Techno, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A345B47F4D169DF232FA7F6C695946AAEF131F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 780358   (762016) от 25.04.2014
-
-VA - Deep Mood vol 2 (Smooth Deep House) (2014) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Route 94 - My Love (feat. Jess Glynne)
-002. Click Click, Upstroke - Barricade (Original Mix)
-003. David Keno - Crusade (Original Mix)
-004. Freakme - Exual Groove (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D218803CA5B509F6F3B7F4EC304A1125075FCDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

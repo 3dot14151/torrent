@@ -1,3 +1,148 @@
+###  Публикация: 963961   (656461) от 19.05.2018
+
+Aimer - 6 альбомов + 11 синглов (2011-2018) [FLAC|Lossless|tracks] <J-Pop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(170503) Aimer Best Selection “blanc”
+(170503) Aimer Best Selection “noir”
+(180221) Refːrain／Mabayui Bakari (Koi wa Ameagari no You ni OP)Жанр: J-PopПродолжительность: 00:11:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8E361E9615A4AAA47C0D23A6CCE6DDF54F867C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226231   (655555) от 20.05.2018
+
+Trident - 6 альбомов (2013-2016) [FLAC|Lossless|tracks] <J-Pop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655555.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2013.10.30) Blue Field
+(2014.06.25) Purest Blue
+(2015.01.28) Blue Snow
+(2015.09.16) Blue Destiny(   Читать дальше...   )Тип издания: CommercialЖанр: J-RockФормат: Anime SoundtrackПродолжительность: 00:02:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1157E9C9E8BEF2C3D1678B2EA7D0B267244595A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226476   (655453) от 20.05.2018
+
+GARNiDELiA — 4 альбома + 10 синглов (2014-2018) [FLAC|tracks] <J-Pop, J-Rock>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(150121) Linkage Ring (1st Album)
+(150826) BiRTHiA (2nd Album)
+(161214) Violet Cry (3rd Album)(   Читать дальше...   )Тип издания: CommercialЖанр: J-PopФормат: Anime SoundTracksПродолжительность: 00:06:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B3750802C3BED9D3ACE0282E5BDD5134C9C1C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944378   (655450) от 20.05.2018
+
+fhana - 3 альбома + 13 синглов (2013-2018) [FLAC|tracks] <J-Pop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(150204) Outside of Melancholy
+(160427) What a Wonderful World Line
+(180328) World AtlasЖанр: J-PopПродолжительность: 00:08:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3131B1B887539C31965043CE39428EDEFC625D05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851195   (655445) от 20.05.2018
+
+ChouCho - 4 альбома + 9 синглов (2011-2018) [FLAC|tracks] <J-Pop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+160525 (LACA-15565~6) ChouCho ColleCtion “bouquet”
+171025 (LACM-14658) Ashita no Kimi Sae Ireba Ii (Imouto Sae Ireba Ii. OP Single)
+180110 (LACA-15680) color of timeЖанр: J-PopПродолжительность: 00:07:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892324F3BD38E7506A9FCBB7CBD9A8EF89775FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 850932   (655439) от 20.05.2018
 
 EGOIST - 2 альбома + 9 синглов (2011-2017) [FLAC|tracks] <J-Pop, J-Rock, Electronic>
@@ -618,160 +763,6 @@ albums:Жанр: JRock, Pop RockПродолжительность: 00:13:01
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036546   (618522) от 21.07.2016
-
-Iron Attack! - Space Galaxy (2016) /Doujin/ [FLAC|Lossless|tracks + .cue] <Progressive Power Metal, J-Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost in Galaxy
-02. コブラ (Yoko Maeno cover)
-03. Endless Story (Yukari Tamura cover)
-04. 愛の戦士 (Yoko Ishida cover)(   Читать дальше...   )Тип издания: DoujinЖанр: Progressive Power Metal, J-Metal, TouhouПродолжительность: 0:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B28B5624D63BBA50B40923D192B963CEA820245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229706   (617193) от 11.06.2018
-
-BugLug - Shin Jinsei (2017) [MP3|320 Kbps] <J-Rock, Visual Kei>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617193.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. BugLug - Shin Jinsei
-2. BugLug - nochi
-3. BugLug - Kotona
-4. BugLug - Maigo CH (2017.5.7 Nippon Budoukan)(   Читать дальше...   )Жанр: J-Rock, Visual KeiПродолжительность: 00:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0599D4B1C56337D56C60A480B7B437D529181FC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229551   (617182) от 11.06.2018
-
-Konomi Suzuki - Дискография, 4 альбома + 13 синглов (2012-2017) [MP3|320 Kbps] <J-Pop, J-Rock>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Konomi Suzuki (鈴木このみ родилась 5 ноября 1996 года) — японская поп-певица из Осаки, дебютировавшая в 2012 году в возрасте всего 15 лет с синглом «CHOIR JAIL», заглавная песня которого использовалась в качестве открывающей темы в аниме «Tasogare Otome x Amnesia». В 2011 году Кономи выиграла музыкальный конкурс «Animax All-Japan Anisong (   Читать дальше...   )Жанр: J-Pop, J-RockПродолжительность: 08:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F5CCAF5EC11CDB365C70A6F1A400C3252BDC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523228   (617116) от 16.07.2012
-
-Hou Chang Qing - Xiao Ao Cang Hai (2006) [MP3|320 кб/с]<Instrumental, Ethnic>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617116.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:30) 01. You are the best in the world
-(3:05) 02. Hope
-(3:54) 03. Sad pacific ocean
-(4:45) 04. A laughter from the seas
-(4:06) 05. Shanghai beach
-(3:31) 06. Dally of the fate
-(3:47) 07. If sky have love
-(5:02) 08. Love country but more love beauty
-(3:27) 09. Iron blood red heart
-(4:49) 10. The Myth (What way can i say love)(   Читать дальше...   )Жанр: Instrumental, EthnicПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85EF2BD38950F275FB0B012C29B1317FFD62964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523309   (616994) от 16.07.2012
-
-VA - Zen Spa (2011) [MP3|320 кб/с]<New age, Meditative, Lounge>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616994.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2:56) 01. Bamboo Flute Wellness
-(4:36) 02. Oriental Music
-(3:44) 03. Lotus Flower
-(2:34) 04. Contemplation
-(3:39) 05. Instrumental Music
-(3:34) 06. Meditation
-(4:10) 07. Relaxation
-(3:29) 08. Harmony Background Music
-(4:50) 09. Shakuhachi
-(3:26) 10. Tokyo Spa DreamsЖанр: New age, Meditative, LoungeПродолжительность: 01:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA64020FAA57ED7894855F8E655A9DA6B70A7E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

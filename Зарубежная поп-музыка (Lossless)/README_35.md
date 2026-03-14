@@ -1,3 +1,146 @@
+###  Публикация: 1287393   (703241) от 07.03.2019
+
+Mylene Farmer - Dance Remixes (1992) Compilation, Reissue, 2000, Polydor [FLAC|Lossless|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We'll never die (Techno remix) (7:28)
+02. Sans contrefaзon (Boy remix) (5:48)
+03. Tristana (Remix club) (7:14)
+04. Sans logique (Illogical club remix) (7:13)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FBA248849A749D474DF0798705F8543FA9CE25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132295   (702728) от 08.05.2017
+
+Julio Iglesias - Mexico & Amigos (2017) [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/12. Usted (Con Diego Torres) (3:29)
+ 02/12. Jurame (Con Juan Luis Guerra) (4:08)
+ 03/12. Ella (Con Sin Bandera) (3:46)
+ 04/12. Fallaste Corazon (Con Placido Domingo) (4:01)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE210015FF37147B5E9634BF7C651A54716F51D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132277   (702659) от 08.05.2017
+
+Katy Perry - Chained to the Rhythm (2017) Single [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chained to the Rhythm (feat Skip Marley) (3:58)
+02. Chained to the Rhythm (Instrumental)  (3:58)Жанр: PopПродолжительность: 00:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0960CC8DCD70146C3FC4FE2E7D591058AEB6D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026790   (702163) от 16.06.2016
+
+Thomas Anders - Lunatic (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lunatic (3:19)
+02. Lunatic (Extended Version) (5:31)
+03. Lunatic (Instrumental) (3:21)
+04. You're My Heart, You're My Soul (New Hit Version) (3:28)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FDE0AD8B9BC8649DEF75D165F3D73892E93127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401692   (701724) от 14.08.2020
+
+VA - Romantic Pop Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ellie Goulding - How Long Will I Love You (02:28)
+02. Justin Bieber - Purpose (03:30)
+03. Lewis Capaldi - Someone You Loved (03:04)
+04. Shawn Mendes - Mercy (Acoustic Guitar) (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D267E3C7C6610B11C17E3DF959C8EDEF0AF8B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402491   (701722) от 14.08.2020
 
 GASHI - 1984 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retrowave>
@@ -598,155 +741,6 @@ Avril Lavigne - Love Sux (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EC87882711A754EF21EBAAACBA6A3448DBB2DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535011   (690525) от 04.03.2022
-
-Bryan Adams - Pretty Woman - The Musical (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Hollywood (3:38)
-02. Anywhere But Here (2:58)
-03. Something About Her (2:33)
-04. Luckiest Girl In The World (2:57)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2020A7D9599DEB5F793B6B8B1F8CB8E5A1B6FA6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403594   (690472) от 20.08.2020
-
-Joe Dassin - 41 Succes (1990) [FLAC|Lossless|image + .cue] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690472.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. L'Ete Indien 4:30
-02. La Fleur Aux Dents 2:11
-03. Marie-Jeanne 4:11(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 02:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC9FA0E24C4D799A311875E3581C28259743E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288982   (690383) от 14.03.2019
-
-VA - Minos 2019 - 18 Super Hits (2018) [FLAC|Lossless|tracks + .cue] <Pop, Folk, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Νίκος Οικονομόπουλος – Τώρα Τι Να Το Κάνω 3:34
-02. Έλενα Παπαρίζου – Κάτι Σκοτεινό (   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7139C89AFCCCCF0036A3A02D481FF3700CE98AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289124   (690382) от 14.03.2019
-
-VA - Ultra Dance 20 (2019) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kygo – Happy Now [03:31]
-02. Calvin Harris – One Kiss [03:34]
-03. Steve Aoki – Waste It On Me [03:12]
-04. Dynoro – In My Mind [02:59](   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307AE57F0E589A4CC4F8AB07E7659659410EC394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505670   (689471) от 05.06.2012
-
-Kylie Minogue - The Best Of Kylie Minogue (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can’t Get You Out Of My Head
-02. Spinning Around
-03. I Should Be So Lucky
-04. Love At First Sight
-05. In Your Eyes
-06. Kids (with Robbie Williams)
-07. Better The Devil You Know
-08. All The Lovers
-09. Give Me Just A Little More Time
-10. Celebration(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

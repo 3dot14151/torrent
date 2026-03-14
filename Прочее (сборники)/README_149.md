@@ -1,3 +1,32 @@
+###  Публикация: 1581289   (231375) от 04.10.2022
+
+VA - Русские Хиты 5 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_231375.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Пропаганда - Недоступный Абонент (2:32)
+002. Группа Вместе - Сделай шаг (2:39)
+003. ANNA ASTI - По барам (3:57)
+004. Katya Stefa - Притяжение (2:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75E8B68A7704399446711CB9F263D77C7F10095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637250   (230767) от 04.06.2023
 
 VA - Музыка для машины Vol.23 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -716,35 +745,6 @@ VA - The Official UK Top 100 Singles Chart 26.11.2021 [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE665C82428A8B6633C29BE5F7EEE75F189641A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584108   (225237) от 18.10.2022
-
-VA - Music News vol.222 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225237.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AMELI - Раздеться (02:05)
- 002. Aksel' - Свободна (01:55)
- 003. Alex Parker feat. Francis On My Mind - Love The Way You Lie (02:48)
- 004. Allega - Не Мани Меня (03:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3F897CA473BE7AFD330E204B0B504DD02C4AB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

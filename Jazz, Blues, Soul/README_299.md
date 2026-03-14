@@ -1,3 +1,177 @@
+###  Публикация: 1249243   (436006) от 23.09.2018
+
+Jan Lundgren - Potsdamer Platz (2017) ACT Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Potsdamer Platz [5:19]
+02. No. 9 [4:43]
+03. Lycklig Resa [6:03]
+04. Bullet Train [5:23](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E192321B5E825CE1597CB1B123BD28BD8C806D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249442   (436004) от 23.09.2018
+
+John Stevens - Red (2005) [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Fly With Me (3:24)
+ 02. My Blue Heaven (2:40)
+ 03. Someone to Watch Over Me (4:44)
+ 04. Here, There and Everywhere (3:02)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6DE890140894B357503A86AC0D583575CDE824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249093   (435842) от 23.09.2018
+
+Liz McComb - Soul, Peace & Love (2006) [FLAC|Lossless|image + .cue] <Blues, soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Peacemakers
+02.Oh When The Saints
+03.Come Back Lover
+04.God Made A Miracle(   Читать дальше...   )Жанр: Blues, soulПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78AAD29DAC946F385C6848224634A617B7039002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063338   (435565) от 16.10.2016
+
+Mel Torme & Margaret Whiting - Broadway, Right Now! (1961) 2010, Flare Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fireworks [00:00]
+ 02.Make Someone Happy [02:12]
+ 03.Tall Hope [03:33]
+ 04.I Loved You Once In Silence [03:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16A867557361209EBA379C242E30999194226D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063379   (435563) от 16.10.2016
+
+Grover Washington Jr. - Paradise (1979) 1983, Elektra[FLAC|Lossless|tracks + .cue] <Crossover Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Paradise [08:02]
+ 02.Icey [03:54]
+ 03.The Answer In Your Eyes [08:31]
+ 04.Asia's Theme [05:11](   Читать дальше...   )Жанр: Crossover Jazz, Smooth JazzПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3636F23E8AF1A149F1C2515062D2AEAF9E694F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063382   (435556) от 16.10.2016
+
+Denny Zeitlin - Both / And:Solo Electro-Acoustic Adventures (2013) Sunnyside Communications[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Meteorology [10:43]
+ 02.Dawn [06:05]
+ 03.Tiger, Tiger [07:13]
+ 04.Kathryn's Song [08:01](   Читать дальше...   )Жанр: Jazz Fusion, Avant-Garde JazzПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BCD70FB7C23EBF266D4E26F26727F48AE6FEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249384   (435536) от 23.09.2018
 
 Delta Moon - Babylon Is Falling (2018) [MP3|320 Kbps] <Blues Rock>
@@ -571,180 +745,6 @@ Odyssey Trio - Pictures (2014) [FLAC|tracks+.cue]<Contemporary Jazz, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DD7CE14ED0169113A22A32F8485D210EDC1F67F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945477   (433975) от 10.10.2015
-
-Odelia Dahan and the Yellow Submarine Ensemble - Solika (2008) [FLAC|tracks + .cue]<Nu-Jazz, World Music, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433975.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ay mansevo - excerpt - 0:28
-2. Ah sinyora novia (Kantiga de boda) - 7:18
-3. Bre Sarika - 6:53
-4. Si la mar era de leche - 5:15(   Читать дальше...   )Жанр: Nu-Jazz, World Music, FusionПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0767ACB9316DADA7D1CF67DF8A20903DA0CF8AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410667   (433974) от 22.09.2020
-
-Louis Armstrong - The Great Jazz Collection (50-e - 60-e) 1995, Scana [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What a Wonderful World [2:15]
-02. Black and Blue [4:36]
-03. Struttin' with Some Barbecue [5:55]
-04. West End Blues [4:12](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F8AEA5E7438AB71FE746273A23088DBBA83F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410591   (433969) от 22.09.2020
-
-The Orchestra Of Mirrored Reflections - Frequency Jazz (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Noir Jazz, Ambient Jazz, Post Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaving Big Sigh Of City Behind... (7:20)
-02. ...Rowing Your Boat-on In The Myst (6:34)
-03. Lemon Tea For My Voodoo Doll (feat. Sergiy "AbsurdMaers" Yagoda) (5:48)
-04. Gravity Means Love (6:17)(   Читать дальше...   )Производство: Petroglyph Music - petroglyph308Жанр: Dark Jazz, Noir Jazz, Ambient Jazz, Post Jazz, Trip HopПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3907FCC083883A4D1543B89D3FF05279ACDB8C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410575   (433957) от 22.09.2020
-
-John Legend - Bigger Love (2020) [FLAC|Lossless|tracks + .cue] <R&B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ooh Laa (02:59)
-02. Actions (02:54)
-03. I Do (02:47)
-04. One Life (03:14)(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A4375F8888D116700BAB46AE8347B65754F348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945346   (433933) от 10.10.2015
-
-Willie May - Blues Mona (2015) [MP3|320 кб/с]<Blues, Country Blues, Funky>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lock It Up (03:25)
-02. Big Legged Woman (03:38)
-03. Monas Watching Eye (04:12)
-04. Stop Hurtin' Me (03:38)(   Читать дальше...   )Жанр: Blues, Country Blues, FunkyПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1956004CF7C4F1AA9AD389DDBBD943DD2A51E6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945467   (433929) от 10.10.2015
-
-O.V. Wright - Memphis Unlimited (2009) [FLAC|tracks+.cue]<Soul, Funk, Rhythm and Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Been Searching (2:40)
-02. Nothing Comes To A Sleeper (3:20)
-03. The Only Thing That Saved Me (2:36)
-04. He's My Son (Just The Same) (2:50)(   Читать дальше...   )Жанр: Soul, Funk, Rhythm and BluesПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94608A5C19BD498F1FB68928906AD3561FA4FC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

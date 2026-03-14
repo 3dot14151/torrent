@@ -1,3 +1,90 @@
+###  Публикация: 1070955   (361945) от 09.11.2016
+
+Chuck Mangione - Classics Volume 6 (1987) 1990, A&M Records[FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Feels So Good [09:44]
+ 02.Hill Where The Lord Hides [06:26]
+ 03.Bellavia [06:33]
+ 04.Fun And Games [07:15](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E2721FFA23C5AA66D6897B2AB582EC088EBCCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576857   (361840) от 16.09.2022
+
+The Pete Jolly Trio And Friends - Little Bird (1963) 2007, P-Vine Non Stop [FLAC|Lossless|image + .cue] <Cool, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Bird [2:25]
+02. Three-Four-Five [2:59]
+03. Never Never Land [6:40]
+04. Alone Together [8:07](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Piano JazzПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7467A8443B595A3D1B253A4B6A019AEA615D19F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836686   (361772) от 01.11.2014
+
+Club Des Belugas & Thomas Siffling - The Chinchin Sessions (2013) [FLAC|Lossless|WEB-DL]<Nu Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Small Steps
+02. This Little Life of Mine (Feat. Veronika Harcsa)
+03. Anticipation
+04. One Hand Clapping (Feat. Veronika Harcsa)(   Читать дальше...   )Жанр: Nu Jazz, Electro SwingПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AB7A29F1C9D366A6E8E7764C84FC4BD24FB325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255829   (361769) от 19.10.2018
 
 Bob Cooper - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, West Coast Jazz>
@@ -659,93 +746,6 @@ Bobby Jaspar - Modern Jazz Au Club Saint Germain (1955) 2011, Universal[FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C2145ADBA18F2D8EA5A6CF6002210B7DC8D6A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071574   (357378) от 11.11.2016
-
-Peggy Lee - Dream Street (1957) 1999, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Street Of Dreams [03:23]
- 02.What's New [03:00]
- 03.You're Blase [02:51]
- 04.It's All Right With Me [02:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F579B922278EC9AC85A5D562CEDCE691D9246F20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071885   (357377) от 11.11.2016
-
-Peggy Lee - Sea Shells (1958) 1999, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sea Fever [02:04]
- 02.Nine Thorny Thickets [05:00]
- 03.Little Old Car [01:12]
- 04.Greensleeves [01:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76F287CD37758DF94F8EE6975B23CA36E2AA2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071534   (357338) от 11.11.2016
-
-Kurt Elling - The Beautiful Day: Kurt Elling Sings Christmas (2016) Sony Music Masterworks[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sing A Christmas Carol [04:35]
- 02.Wenceslaus (Image I) [01:28]
- 03.Star Of Wonder [02:04]
- 04.We Three Kings [06:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0593A3349B162ACBDDAB88FC0067557FFE07AC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

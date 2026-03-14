@@ -1,3 +1,32 @@
+###  Публикация: 1567016   (478502) от 31.07.2022
+
+Joe Kelly & Heavyweight Recordings - Best Of In The Mix (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Hard Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Underground hard trance.01 Joe Kelly - What's Happening (Original Mix) (REDEMPTION,2002)
+02 JK Theory - Want Me (Original Mix) (NRGFLOW,2003)
+03 Synaps - What Have I Seen (Original Mix) (HEAVYWEIGHT,???)
+04 Synaps - Megatron (Original Mix) (HEAVYWEIGHT,2002)(   Читать дальше...   )Жанр: Hard TranceПродолжительность: 1:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE2FBDFBBFC31B55C083BC6A2FD74FDEC4D8081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160081   (478187) от 23.08.2017
 
 VA - Trance Nation: The Vocal Session (2017) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
@@ -755,35 +784,6 @@ VA - South Beach Vocal Trance Party (2015) [MP3|320 кб/с]<Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EAC4439399F7ADA4BA0C03928FBB07D50140D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939355   (475795) от 21.09.2015
-
-VA - Music compilation September (2015) [MP3|320 кб/с]<House, Electro, Progressive, DubStep, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Adam Lambert – Ghost Town ( Viduta Remix )
-02.Audien feat. Lady Antebellum - Something Better (Vanze Bootleg)
-03.Bassnecta – You & Me
-04.Brandon Flowers – I Can Change (Michael Brun Remix)(   Читать дальше...   )Жанр: House, Electro, Progressive, DubStep, ClubПродолжительность: 02:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF992F4D81DD89CE5BCC1616B2CFCFFFB2055D41
 ```
 
 https://mybot314.ru/tekegram_catalog/

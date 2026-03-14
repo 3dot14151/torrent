@@ -1,3 +1,117 @@
+###  Публикация: 1728994   (108173) от 09.06.2024
+
+Dying Fetus - War of Attrition (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brutal Death Metal, Grindcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108173.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Homicidal Retribution
+A2 Fate Of The Condemned
+A3 Raping The System
+A4 Insidious Repression(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EA09B73307699C8A9EA7937EFA8396C76CFF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729028   (108172) от 09.06.2024
+
+Dying Fetus - Descend into Depravity (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brutal Death Metal, Grindcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108172.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Your Treachery Will Die With You
+A2 Shepherd's Commandment
+A3 Hopeless Insurrection
+A4 Conceived Into Enslavement(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D07817B42027FF87FD9F8E8DEF4868DA940490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729158   (108111) от 10.06.2024
+
+Dying Fetus - Make Them Beg for Death (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Technical Brutal Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108111.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Enlighten Through Agony
+A2 Compulsion For Cruelty
+A3 Feast Of Ashes
+A4 Throw Them In The Van(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E23309185F361126F43CB3DA8C859B4B990F7D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729683   (108036) от 12.06.2024
+
+Tales Of Dark... - Studio Albums (2 releases) (2006-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tales Of Dark... - сербская дум/дэт-метал группа из Нови-Сада, образована в 2001 году и распавшаяся в 2009.2006 - Fragile Monuments
+2009 - Perdition CallsЖанр: Gothic/Doom/Death MetalПродолжительность: 02:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5AF8EC310A4A4A0D210E3E5BF3B79F0A24BF09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729606   (108035) от 12.06.2024
 
 Nox Aurea - Studio Albums (2 releases) (2009-2010) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
@@ -621,120 +735,6 @@ B1. Gate of Hell (02:47)(   Читать дальше...   )Жанр: Doom, Deat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C96CFE848C5EB9063B4713B6AE3B0C39D8EDF3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735294   (106977) от 07.07.2024
-
-Carpathian Forest - Through Chasm, Caves And Titan Woods (1995) EP, Reissue, 2013, Peaceville [FLAC|24/192|tracks|Vinyl-Rip] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106977.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Carpathian Forest
-A2 - The Pale Mist Hovers Towards The Nightly Shores
-A3 - The Eclipse / The Raven
-B1 - When Thousand Moon Have Circled(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAEC1A599786F0C45FBF7F2C9F154790CDC5E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735366   (106952) от 07.07.2024
-
-Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropolis (2016) EP, Released, 2017, W.T.C. Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106952.jpg" />
-</div>
-
-
-###  Подробнее
-
-A - The Burning Voice
-B - HamartiaЖанр: Black MetalПродолжительность: 00:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C9D194A745C8DEC837854B8951547E5E852457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735364   (106951) от 07.07.2024
-
-Shrine of Insanabilis - Disciples of the Void (2015) Released, 2016, Fallen Empire [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106951.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - End All
-A2 - Ruina
-A3 - Acausal Paths
-A4 - (..............)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F9D088B770907E2FB7B1472FD02776E87CE433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735247   (106911) от 08.07.2024
-
-Гелена Великанова - Великие Исполнители России XX Века (2005) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Жаль, что время ушло
-(М. Табачников - А. Завальнюк)
-02. Ты запой мне эту песню(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FE62D32C366B6937D1CFE2C5C0E2877D902BEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

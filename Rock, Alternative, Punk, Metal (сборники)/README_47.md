@@ -1,3 +1,32 @@
+###  Публикация: 1780295   (27325) от 17.02.2025
+
+VA - Music For You vol.29 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buckethead - Soothsayer (Dedicated To Aunt Suzie) (09:05)
+ 02. At Vance - Solfeggietto (01:03)
+ 03. Tony MacAlpine - Tears Of Sahara (03:47)
+ 04. Animals as Leaders - Woven Web (04:08)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 03:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0063E560117F43BE025674A86B303EF7DA4A0F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780505   (27195) от 18.02.2025
 
 VA - Music For You vol.30 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
@@ -716,35 +745,6 @@ VA - Apathy (2025) [MP3|320 Kbps] <Metal, Hard-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4316DC132A46D729CA532ABB99783DCBC3C30125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795912   (19080) от 07.05.2025
-
-Smokie - Compilation (2025) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay Back in the Arms of Someone [04:05]
-02. Whiskey in the Jar [05:00]
-03. Something's Been Making Me Blue [03:00]
-04. Heat of the Night [05:08](   Читать дальше...   )Жанр: RockПродолжительность: 03:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B8439F05EA61416FBB5778399A27DCF4BA101D
 ```
 
 https://mybot314.ru/tekegram_catalog/

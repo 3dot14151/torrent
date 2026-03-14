@@ -1,3 +1,147 @@
+###  Публикация: 1691748   (123070) от 13.01.2024
+
+The Grandmaster - Black Sun (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sun
+02. Watching The End
+03. While The Sun Goes Down
+04. Learn To Forgive(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8EF022A0DEB428E6B398B477608D74B585F267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691749   (123064) от 13.01.2024
+
+Ryujin - RYUJIN (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal, Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hajimari [0:41]
+02 - Gekokujo [4:48]
+03 - Dragon, Fly Free [4:23]
+04 - Raijin & Fujin [6:10](   Читать дальше...   )Жанр: Metal, Melodic Death MetalПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8FFEA8CDAE06FB41A9ED96411D1E2FD557BC52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691767   (123056) от 13.01.2024
+
+Triple Kill - Studio Albums (3 releases) (2017-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Thrash/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triple Kill - Thrash/Power Metal-группа сформированная в 2016 году в Мельбурне, Австралия.2017 - The First Kill
+2018 - Age of Rebellion
+2023 - Blackened DawnЖанр: Heavy/Thrash/Power MetalПродолжительность: 01:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7243D16CB5D49ABF21C4E127623671BCB5AB6D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691708   (123050) от 13.01.2024
+
+Alluvial - Death Is But A Door (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Deathcore, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bog Dweller [00:04:30]
+02. Fogbelt [00:03:52]
+03. Area Code [00:03:47]
+04. Death Is But A Door [00:04:52]Жанр: Progressive Deathcore, DjentПродолжительность: 00:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68782000C7C6A69452E5A3EA3748F4ADDB2B7FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691668   (122926) от 14.01.2024
+
+Metallica - Unload (Bootleg) (1999) [FLAC 16/44.1|Lossless|tracks|MC-Rip] <Acoustics, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122926.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Low Man's Lyric 08:14
+2. Helpless 03:43
+3. Tuesday's Gone (feat. Jerry Cantrell) 08:54
+4. Poor Twisted Me 04:13(   Читать дальше...   )Жанр: Acoustics, RockПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D945DE4278DD86451514DA3B1A535105188A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691954   (122920) от 14.01.2024
 
 Laudanum - As blue as my veins (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro pop>
@@ -600,151 +744,6 @@ B2 Vomit RitualЖанр: Death MetalПродолжительность: 00:10:08
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6255D79591533C7D345A5B0BFB637F0DE3CD073C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692882   (122178) от 18.01.2024
-
-Saxon - Hell, Fire And Damnation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prophecy (1:24)
-02. Hell, Fire And Damnation (5:33)
-03. Madame Guillotine (5:25)
-04. Fire And Steel (3:37)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5836CB1BA884D3D8891CEE4F01C0369D8B1037E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692931   (122175) от 18.01.2024
-
-Metalite - Expedition One (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expedition One (4:02)
-02. Aurora (4:12)
-03. CtrIAltDel (4:55)
-04. Cyberdome (4:45)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCFE35D5F0466BE7AB813277C1F7754CB69E032F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692878   (122157) от 18.01.2024
-
-Project 86 - OMNI, Pt. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Never Let a Crisis Go to Waste (00:03:39)
-02 - UltravioleNt (00:03:49)
-03 - Complete the Circle (00:03:20)
-04 - The Ex and the Why (00:03:29)(   Читать дальше...   )Жанр: Alternative Metal, Industrial MetalПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227CA8C1C81464DE78F701421558F79B79842DB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692901   (122155) от 18.01.2024
-
-Gotus - Gotus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me To The Mountain (3:49)
-02. Beware Of The Fire (3:57)
-03. Love Will Find Its Way (5:51)
-04. Undercover (3:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608E35E20A93DBC59EF5E1312230ABCA238B6235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692948   (122140) от 18.01.2024
-
-Darzamat - Studio Albums (7 releases) (1996-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darzamat — польский музыкальный коллектив из города Катовице. По мнению критиков, творчество группы сочетает различные стили экстремальной музыки и в основном характеризуется как симфонический блэк-метал, дарк-метал и дэт-метал, кроме того присутствуют элементы пэган-метала и готик-метала. Участники также используют комбинацию мужского и женского вокала: традиционный (   Читать дальше...   )1996 - In The Flames Of Black Art
-1999 - In The Opium Of Black Veil (EP)
-2003 - Oniriad
-2004 - SemiDevilishЖанр: Symphonic Black/Gothic MetalПродолжительность: 04:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F1B9555315F8792152DEF43C8CEAD49471B070
 ```
 
 https://mybot314.ru/tekegram_catalog/

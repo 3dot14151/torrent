@@ -1,3 +1,148 @@
+###  Публикация: 1770367   (100548) от 31.12.2024
+
+Rosie & the Revival - Soundchecks and Tape Decks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Getting Started (3:53)
+02. Wait a Minute (3:21)
+03. Whole Lotta Rosie (5:04)
+04. Listen to Her Heart (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F37902159D47E93662FCE8B40AEF0C3ACA9AC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770341   (100545) от 31.12.2024
+
+Blues Rock Generations - Blues Rock Generations No.6 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When You Got a Good Friend (3:43)
+02.  Blue Suede Shoes (3:44)
+03.  Riding with the King (4:21)
+04.  River of Tears (4:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AA2AC650DC24306688D7EA36AE8334A5662A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770370   (100539) от 31.12.2024
+
+Tuff Luck - An Acoustic Afternoon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make You Mine (3:29)
+02. Tell Me (3:22)
+03. A50 Avenue (5:24)
+04. The Wool (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3F510B8456EE2E4FB16AFD2184A2A8FCFA1082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770365   (100537) от 31.12.2024
+
+Ronnie Baker Brooks - Blues In My DNA (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Feeling You (4:37)
+02. Lonnie Brooks' Blessing (0:14)
+03. Blues In My DNA (4:48)
+04. My Love Will Make You Do Right (4:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A477C2692F0E7AE579F8FC5A2031775251BC926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770362   (100536) от 31.12.2024
+
+River Arrow - R.A.W (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Damn It, Fred (4:13)
+02. In the Neighborhood (4:01)
+03. Queen of Hearts (4:56)
+04. Bayou & I (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BEE254595642CFA111FAECD75C20D271136DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822157   (98605) от 05.10.2025
 
 Sparks - MADDER! (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
@@ -616,166 +761,6 @@ VA - Lonely Shepherd (2001) [DTS 5.1 | image (Upmix)]<Instrumental, Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97720F86088B7AE4354429D2329E19A505F65DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475795   (85522) от 31.03.2012
-
-Europe - The Final Countdown (1986)  [APE 2.0 24/48 | tracks (VinylRip)]<hard rock,heavy metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Final Countdown
-02. Rock the Night
-03. Carrie
-04. Danger on the Track
-05. Ninja
-06. Cherokee
-07. Time Has Come
-08. Heart of Stone
-09. On the Loose
-10. Love Chaser1986Жанр: hard rock,heavy metalПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9561E9AE966EAFF6D3C5534CE24DE9BBD1CBAF96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472484   (84364) от 25.03.2012
-
-Esperanza Spalding - Radio Music Society (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]<Jazz, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radio Song
-02. Cinnamon Tree
-03. Crowned & Kissed
-04. Land Of The Free
-05. Black Gold
-06. I Can't Help It
-07. Hold On Me
-08. Vague Suspicions
-09. Endangered Species
-10. Let Her(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz-Pop, Neo-SoulПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F8BA0443F78F017275D3822242A2EA84F53E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469233   (83197) от 19.03.2012
-
-Ennio Morricone - Live in Venice (2007) Upmix [DTS 5.1|44.1/24 WAVE|tracks] <Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deborah's Theme (Once Upon a Time in America) (Ennio Morricone)  (3:59)
-02. Addio Monti (from The Betrothed) (Ennio Morricone)  (2:59)
-03. Vatel (Ennio Morricone)  (5:35)
-04. H2S (Ennio Morricone)  (2:40)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C647A88DE47F74C891643380B423A818D5EA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455918   (77641) от 21.02.2012
-
-Гарик Сукачев и Неприкасаемые - Grand Collection (2002) [DTS 5.1|tracks (upmix)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Моя бабушка курит трубку
-02 Свободу Анджеле Дэвис!
-03 За окошком месяц май
-04 Знаю я, есть края...
-05 Ольга
-06 Я милого узнаю по походке
-07 Белый колпак
-08 Прощай, мой друг
-09 Дорожная
-10 10 000 километров(   Читать дальше...   )Жанр: RockФормат: DTS UpmixПродолжительность: 1:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616E05ACD4B321F777C61E25DE666BA9CD18B853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455411   (77439) от 20.02.2012
-
-Булат Окуджава - Лучшее (2012) [DTS 5.1|tracks (upmix)]<Author song>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Author song |Формат: DTS Upmix |Продолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4A9FA24BB4C818CD26C35ADF767FE609435E84
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1552643   (586690) от 21.05.2022
+
+VA - Music News vol.189 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586690.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christina Aguilera feat. Lil' Kim & Mya & Pink - Lady Marmalade (Thunderpuss Radio Mix) (04:12)
+ 002. Adamnim - Больно (02:40)
+ 003. Adamnim - Мультивселенная (Больно 2) (02:40)
+ 004. Aila - Ищу Тебя (03:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:30:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6D2481AF1C030667AD5E85B9B0A4A217278AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040461   (586328) от 05.08.2016
 
 Bad Boys Blue - Hit Collection (2016) [MP3|320 Kbps] <Disco, Pop, Eurodance>
@@ -704,35 +733,6 @@ VA - Guitar And Soul (2019) [MP3|320 Kbps] <Lyric, Guitar, Pop, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:711D22302D9C93C61F7A1BA29EDE84E2CF9F2FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302672   (580247) от 16.05.2019
-
-VA - не Громкие новинки недели 15 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580247.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.5sta Family - Плечи (Lavrushkin & Max Roven Remix) (2:42)
-2.Aize - В Невесомости (3:20)
-3.Alesta - Темнота (3:59)
-4.AMCHI - Медленно (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0AC74FDE71B6BD2055F2EB68D2CCD3D9068F3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

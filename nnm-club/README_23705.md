@@ -1,25 +1,22 @@
-###  Публикация: 1726238   (108825) от 27.05.2024
+###  Публикация: 1720692   (110257) от 04.05.2024
 
-VA - Fulltime, Vol. 5 (Reworked by DJs) (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Disco, Italo-Disco, Electro>
+Блэк Джэк / Black Jack (1968) BDRip [H.264] [VO]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108825.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kano - It's a War (Purple Disco Machine & Lorenz Rhode Remix) (6:42)
-02. Maxero - Silenced By You (Mind Enterprises Remix) (5:15)
-03. Alex Party - Don't Give Me Your Life (Classic Alex Party Mix) (5:33)
-04. Kano - Unconditional Lover (Dr. Packer Remix) (6:12)(   Читать дальше...   )Жанр: Nu-Disco, Italo-Disco, ElectroПродолжительность: 01:31:41
+После ограбления банка на Диком Западе в банде Джека Мерфи все начинает идти наперекосяк. Как обычно, проблемы возникают при дележе добычи.Производство: Италия, Израиль / Cinematografica Mercedes, Rombi International FilmsЖанр: ВестернРежиссер: Джанфранко БальданеллоАктеры: Роберт Вудс, Люсьена Бриду, Рик Батталья, Ларри Долгин, Федерико Чентренс, Нино Фусканьи, Миммо Пальмара, Гоффредо Унгер, Саша Крушарска, Джованни Иван СкратульяПеревод: Одноголосый любительский, В. КотовЯзык озвучки: Русский, итальянский, английскийСубтитры: ОтсутствуютПродолжительность: 01:39:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83A2938954EAC442ECA49D29EA49957AD56ACA43
+magnet:?xt=urn:btih:A29C573A2E01A6CDA7A100C1C4B13177E39A8F2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726107   (108824) от 27.05.2024
+###  Публикация: 1720740   (110256) от 04.05.2024
 
-БИО - 1987 556 25 7 (2024) [FLAC|Lossless|tracks + .cue] <Synth-Pop>
+13 дней. Дело «Промпартии» (1930) TVRip
 
->>Pop
->>Отечественная поп-музыка (Lossless)
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108824.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Рельсы, шпалы
-02.Тоннели метро
-03.Наша славная страна
-04.Электроток(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:46:31
+Фильм о судебном процессе по делу о вредительстве в промышленности, который состоялся с 25 ноября по 7 декабря 1930 года. В ходе процесса обвиняемые признались, что в случае прихода к власти они намеревались сформировать контрреволюционное правительство. Из восьми обвиняемых - пятеро были приговорены к расстрелу, остальные - к длительным срокам лишения свободы.
+Имеет (   Читать дальше...   )Производство: СССР, СоюзкинохроникаЖанр: документальный, политика, историяРежиссер: Яков ПосельскийЯзык озвучки: русскийСубтитры: русские интертитры (небольшое количество)Продолжительность: 00:42:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E118EA3B356062CBFE7D826E4692AE3F410CEC2D
+magnet:?xt=urn:btih:04BBB664F051C8C940D95CA0A10A949F1BCF2BAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726232   (108823) от 27.05.2024
+###  Публикация: 1720543   (110255) от 04.05.2024
 
-VA - Fulltime, Vol. 1 (Reworked by DJs) (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Disco, Italo-Disco, Electro>
+YT Downloader 9.7.11 RePack (& Portable) by Dodakaedr [Ru/En]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108823.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ago - You Make Me Do It (Dr. Packer & Mark Lower Remix) (6:24)
-02. Kano - It's A War (Re-Tide Remix) (6:56)
-03. B.B. and Band - All Night Long (Massimo Berardi Remix) (6:20)
-04. Rainbow Team - Let' Em Be (Villanis Dub Edit) (6:08)(   Читать дальше...   )Жанр: Nu-Disco, Italo-Disco, ElectroПродолжительность: 01:48:14
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F4177C7143CA2F2D61167B2AB0874E7ABA01391
+magnet:?xt=urn:btih:560C4EA9D15B5104899E300D61A5BBF494C54749
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +77,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726175   (108822) от 27.05.2024
+###  Публикация: 1720688   (110254) от 04.05.2024
 
-John Haydock - Solitary Traveller (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Главная дорога (04.05.2024) WEBRip [H.264/720p]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108822.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Night Ain't Through With Us Yet (3:49)
-02. The Coast Road (5:00)
-03. Three More Trains (3:52)
-04. Chasing Down a Hurricane (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:49
+Гаражный коктейль: когда и как правильно менять тормозную жидкость.
+С ног на голову: ни один водитель не собирается переворачиваться, но на дороге случается всякое — дождь, ямы или неверное движение рулем. Андрей Федорцов и Денис Юченков перевернулись в автомобиле, чтобы показать, как выбраться из опрокинувшейся машины.
+Автоотчеты с заниженными ценами: как обманывают (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EDA0DD86922DF4AA1C3C57F6F88131CF7B6C00A
+magnet:?xt=urn:btih:F9F756182B0F77A2A85FBA72A46497FB95ED1DAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726248   (108821) от 27.05.2024
+###  Публикация: 1720745   (110253) от 04.05.2024
 
-Darkthrone - It Beckons Us All (2024) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal, Heavy Metal>
+Змеиный полдень (2024) WEBRip [H.264/720p] (сезон 1, серии 1-8 из 8)
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108821.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Howling Primitive Colonies (6:31)
-02. Eon 3 (5:43)
-03. Black Dawn Affiliation (6:11)
-04. And In That Moment I Knew the Answer (3:18)(   Читать дальше...   )Жанр: Black Metal, Doom Metal, Heavy MetalПродолжительность: 00:43:31
+После развода Варя оставила в прошлом мечты о женском счастье, переехала в Москву и с головой погрузилась в работу и воспитание сына - трудного подростка Саши. Однако знакомство с немцем всё меняет: Варя приняла его предложение о замужестве и решилась переехать в Германию чтобы там продолжить лечение сына. Варя с Сашей отправились в родной город, с которым связано (   Читать дальше...   )Производство: Россия | «Кинокомпания Гамма»Жанр: МелодрамаРежиссер: Евгений ТатаровАктеры: Анастасия Сорокина, Александр Дуда, Александр Лымарев, Екатерина Радченко, Виктория Бычкова, Марк Кузнецов, Афина Лукиди, Сергей Иванюк, Ирина Аверина, Вячеслав ШатненкоПродолжительность: ~00:49:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:144DF8A38BC4BEDD75CD100618E551B4F9F68A53
+magnet:?xt=urn:btih:F1C3F08FFD55D63E39F2D4A6D458D872AA2D12A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726135   (108820) от 27.05.2024
+###  Публикация: 1720659   (110252) от 04.05.2024
 
-Christian De Mesones - You Only Live Twice (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Голубая соль / Pooreun sogeum (2011) BDRip [H.264] [VO]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежное кино
+>>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108820.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Only Live Twice (Album Version) (4:14)
-02. Sexy Beast (Album Version) (4:03)
-03. Throb! (Bass Godz Remix) (4:58)
-04. Arrival (New York Mix) (3:01)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:15
+Пусан, Южная Корея. Наши дни... Легендарный гангстер на пенсии Юн Ду Хон мечтает открыть ресторан и записывается на кулинарный курс, где знакомится с Чо Се бин. Между ними намечаются незамысловатые романтические отношения. Но длится это недолго. Пройдёт неделя, и авторитет узнает, что девушка — профессиональная убийца, которую нанял для его ликвидации наследник его (   Читать дальше...   )Производство: Южная Корея / CJ E&M Film Financing & Investment Entertainment & Comics, CJ Entertainment, Frontier Works Comic, Media & Cinema StudioblueЖанр: драма, криминал, боевикРежиссер: Хён Сын ЛиАктеры: Кан Хо Сон, Се Гён Син, Чжон Мён Чхон, Чжон Хёк Ли, Мин Чжун Ким, Ё Чжон Юн, Рве Ха Ким, Даль Су О, Эсом, Кён Ён Ли, Ён Чжин Чо, Док Чже Чо, Док Мун Чхве, Ки Вон Ян, Ён Нам ЧанПеревод: любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (sanzhirov), английскиеПродолжительность: 02:01:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FD7FDF52975D025800AB3F1E356605B4CF7F24E
+magnet:?xt=urn:btih:A663D733DA32E5F1A99949B94C8D911463BFCB72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +157,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726214   (108819) от 27.05.2024
+###  Публикация: 1720749   (110251) от 04.05.2024
 
-Luca Pasqua - My Jazz Side (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Своя игра (04.05.2024) WEBRip [H.264/1080p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108819.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Memories (Alt. Mix) (5:40)
-02. Dust In The Wind (4:46)
-03. Estate (Alt.Mix) (6:08)
-04. Fifty Fifty (6:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:20:05
+В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
+
+Во второй круг юбилейного турнира вышли 18 участников из 30 — они продолжат борьбу (   Читать дальше...   )Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46FB0AD9C73A85DC688180032FD5121C05DDDE71
+magnet:?xt=urn:btih:06AC4EE92A3D0DCDB221459CFD37A24D29A3101D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +185,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726074   (108818) от 27.05.2024
+###  Публикация: 1720633   (110250) от 04.05.2024
 
-Tommy Turrentine - Tommy Turrentine (1960) 1993, Bainbridge Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Минтранс / Тест-драйв Мерседес CL63 AMG 2010 (04.05.2024) WEBRip [H.264/720p]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108818.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gunga Din [6:42]
-02. Webb City [5:50]
-03. Time's Up [4:13]
-04. Long as You're Living [3:58](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:49
+🔸 Покупка машины с ограничениями. Что делать, если судебный пристав наложил арест из-за долгов прошлого хозяина?
+🔸 Тест-драйв Мерседес CL63 AMG 2010: удобный, но не для всех. Чем немцы удивят при хорошем качестве?
+🔸 Некоторые подробности функционирования автомобиля. Можно ли в машине отключить подушку безопасности и зачем это делать?
+🔸 (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89C1F3F52515D85FFB2A786E6B6EFD5FC436BEA3
+magnet:?xt=urn:btih:A6130A4F22BF12C29D0B4EBF06DD00CE5C389C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +214,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726069   (108817) от 27.05.2024
+###  Публикация: 1720684   (110249) от 04.05.2024
 
-The Lew Tabackin Quartet - I'll Be Seeing You (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Чингиз Абдуллаев | Дронго (Книга 104). Пьедестал для аутсайдера (2024) [MP3, LanaFar]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108817.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Surrender, Dear [6:21]
-02. Wise One [7:11]
-03. I'll Be Seeing You [5:21]
-04. Ruby My Dear [9:13](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:18
+К знаменитому сыщику Дронго обратилась женщина из Швейцарии с просьбой обеспечить безопасность бывшему мужу, известному олигарху Илье Смыкалову. Дронго отказался было от дела, ведь он эксперт по особо тяжким делам, а не телохранитель, но вскоре изменил свое решение. И причиной тому был не высокий гонорар, а полученная сыщиком информация, которая моментально перевела (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 04:42:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:600642A3E916B3A4F2455FC4F15957A00E8BA74A
+magnet:?xt=urn:btih:B4D84EA9A43CCB9EF90BFBF54AC6C5C76F46EC0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +240,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726218   (108816) от 27.05.2024
+###  Публикация: 1720718   (110248) от 04.05.2024
 
-Sant Andreu Jazz Band & Joan Chamorro - Jazzing 14 Vol.1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+Военная тайна с Игорем Прокопенко (04.05.2024) WEBRip [H.264]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108816.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Top Hat, White Tie & Tails (2:17)
-02. Bewitched (4:38)
-03. Four Brothers (3:13)
-04. For All We Know (5:40)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:13:14
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E956BFC4A39055FA7358B2C3E62CF6730310430A
+magnet:?xt=urn:btih:0BC98F4BF1E3A5AE4D324EF6F2AF9120DAF3E005
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,54 +266,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725965   (108815) от 27.05.2024
+###  Публикация: 1720662   (110247) от 04.05.2024
 
-Код-дракона - От заката до рассвета (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. От заката до рассвета [00:03:11]
-02. На гитаре [00:03:17]
-03. Дубовая роща [00:03:30]
-04. Тонкая нить 2 [00:03:59](   Читать дальше...   )Жанр: RockПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93259C84C18BE1F78308871BEA80FBFE09631E9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726200   (108814) от 27.05.2024
-
-PhotoRoom 4.9.7 (b1416) Mod by Mixroot [Ru/Multi]
+Lucky Patcher 11.3.3 [Ru/Multi]
 
 >>Архив торрентов
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108814.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 24.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+Lucky Patcher (Лаки патчер) – отличное решение если вам вдруг нужно вырезать лицензию из приложений. Некоторые игры и программы имеют стандартный код взаимодействия с Google Play, но при этом очень сильные инструменты защиты от изменения. Лаки патчер сканирует ваше устройство и собирает информацию про все установленный приложения, а потом сортирует их в удобные списки, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 03.05.2024Разработчик: ChelpuSПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE694E2248E93CE5579A44E6017245689263CA19
+magnet:?xt=urn:btih:EF3300DB63CB3721D0948DD400E114721C0BDE17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,28 +292,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726104   (108813) от 27.05.2024
+###  Публикация: 1720538   (110246) от 04.05.2024
 
-Bad News - Every Mistake Imaginable: The Complete Frilly Pink Years 1987-1988 (1987) Reissue, Remastered, 2024, Parlophone Records [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+U.D.O. - We Are One (2020) Collaboration[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108813.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hey Hey Bad News [00:05:16]
-02. Warriors of Ghengis Khan [00:05:29]
-03. Bohemian Rhapsody [00:12:58]
-04. Bad News [00:05:31](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:59:11
+A1 Pandemonium
+A2 We Are One
+A3 Love And Sin
+A4 Future Is The Reason Why(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F2F091AE93DC828F132BFDD16379B88DCC545CD
+magnet:?xt=urn:btih:86529A13DDBC643461F0CB523B436A114F32D560
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,28 +321,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726230   (108812) от 27.05.2024
+###  Публикация: 1720618   (110245) от 04.05.2024
 
-Soundset City - Always Lounge (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Lounge>
+PowerDirector – Video Editor v13.4.2 b2405031 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 04.05.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269D2E69960EF9D4DB3CD3477986DBFED8245A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720686   (110244) от 04.05.2024
+
+P.O.D. - Veritas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal / Rapcore>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108812.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. With You (3:18)
-02. Desire (3:27)
-03. Chillout Night Bar (3:34)
-04. Smooth Touch (3:14)(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:02:50
+01 - DROP (feat. Randy Blythe) [00:03:11]
+02. I GOT THAT [00:03:19]
+03 - AFRAID TO DIE (feat. Tatiana Shmayluk from Jinjer) [00:03:04]
+04. DEAD RIGHT [00:02:09](   Читать дальше...   )Жанр: Alt.Metal / RapcoreПродолжительность: 00:34:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB62EF15A513982BA8B104F574E074997782992B
+magnet:?xt=urn:btih:982CC80466079745403E895A476EDA00047C7931
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,28 +376,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725973   (108811) от 27.05.2024
+###  Публикация: 1720544   (110243) от 04.05.2024
 
-16 Плюс - 16+, Pt. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+PhotoRoom 4.9.4 (b1368) Mod by Mixroot [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108811.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ПО НОГАМ [00:02:19]
-02. НМДС [00:02:19]
-03. ГРЯЗНЫЙ ДЭНС [00:01:43]
-04. ТАНЕЦ ОГНЯ [00:02:46](   Читать дальше...   )Жанр: RockПродолжительность: 00:21:32
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 22.04.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAE04506314F2A0329D7C1D0366BE6730291CAE9
+magnet:?xt=urn:btih:3D70AD6DC086FCFA4DBB5261AE5FD767A5191E0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,28 +402,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726167   (108810) от 27.05.2024
+###  Публикация: 1720656   (110242) от 04.05.2024
 
-John Haydock - A Few More Miles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+VA - New Music Friday (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108810.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. New Jerusalem (4:09)
-02. Sunset over Broadway (3:48)
-03. Apocalypse Blues (4:53)
-04. Runaway Love (4:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:25
+01. N.E.O.N & Dellahouse - No More (original mix) (05:34)
+02. Abee Sash - When I First Saw You (Mant Deep Remix) (04:44)
+03. Deepsan - Beating Heart (original mix) (03:09)
+04. Cristian Ferrer & Deep Strips - Cristian Ferrer & DEnd Of The Night (radio edit) (03:42)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:20:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42580CA44C4C67BF215DDF5D71E6B23B5C6F34D8
+magnet:?xt=urn:btih:8CA419E41DA5651A0851BEF344E1156A83F05EC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +431,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726228   (108809) от 27.05.2024
+###  Публикация: 1720703   (110241) от 04.05.2024
 
-Smooth Jazz Music Ensemble, Jazz Sax Lounge Collection, Restaurant Jazz Music Collection - Night Saxophone Jazz in The City: Cozy Bar Ambience for Relax, Good Mood (2024) [FLAC 24/48|Lossless|WEB-D ...
+Журнал | Юный ученый №4 (78) (2024) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108809.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. City Lights Lullaby (3:08)
-02. Restaurant Jazz Music Collection - Downtown Dreaming (3:24)
-03. Jazz Sax Lounge Collection - Jazz Club Comfort (2:59)
-04. Saxophone Street Serenade (3:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:31:49
+Журнал "Юный ученый" публикует научные статьи, написанные школьниками под руководством учителей. Тематический рубрикатор журнала построен на основе новых федеральных стандартов и включает в себя все обязательные предметные области и учебные предметы, в рамках которых школьники занимаются научной деятельностью.Жанр: Международный научный журналИздательство: ООО «Издательство Молодой ученый»Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD63CAB5E10ABA9183DDF2587387EFA855CA37FF
+magnet:?xt=urn:btih:DB07861B1B61EC1F32015910AE6A3E877AFA7CC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,28 +457,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726242   (108808) от 27.05.2024
+###  Публикация: 1720636   (110240) от 04.05.2024
 
-Studying Music Group, Instrumental Music Ensemble - 2024 Relaxing Saxophone for Studying (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Поедем, поедим! Красная Поляна: кулинарные вершины, скоростные склоны и музей друзей  (04.05.2024) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108808.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moonlit Pages (3:42)
-02. Fireside Reflections (3:36)
-03. Literary Groove (4:16)
-04. Candlelit Conversations (3:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:55
+Федерико Арнальди и «Поедем, поедим!» снова отправились на самый популярный курорт в России. Что еще они не видели в Сочи? Оказалось, что очень многое! Итальянец прокатился на самых скоростных склонах и изучил «медленный туризм», зашел в музей друзей и узнал, где греки зимуют. И покорил еще и кулинарные вершины: попробовал горную уху и раклет, приготовил кинзмари (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A61A01EC4EA3DFB89A328F4B114B754D0D3FE4AD
+magnet:?xt=urn:btih:14DBCECA9956D591458DD206A085AC6B68261995
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,25 +483,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726080   (108807) от 27.05.2024
+###  Публикация: 1720669   (110239) от 04.05.2024
 
-Митрополит Стефан (Яворский) | Камень веры Православно-Кафолической Восточной Церкви (2010) [PDF]
+FastCopy Pro 5.7.8 [Multi]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108807.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Камень веры» – полное систематическое изложение Православного вероучения. Книга была написана в 1718 году выдающимся церковным и государственным деятелем Петровских времен Митрополитом Стефаном Яворским (1658–1722) в защиту Православия, «Православным сынам Святой Церкви на утверждение и духовное созидание, претыкающимся же о камень – на восстание и исправление» (   Читать дальше...   )Жанр: ПравославиеИздательство: Общество памяти игумении ТаисииФормат: PDFКачество: Обработанный скан
+FastCopy - инструмент для быстрого копирования/удаления файлов и папок. Поддерживает юникод (unicode) символы и пути/имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51C53056D1BED1890A21AE926E8DE3DC1C10CD01
+magnet:?xt=urn:btih:3C07040D55E24C08D8B78C0857C64C85F1991D4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,28 +509,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726246   (108806) от 27.05.2024
+###  Публикация: 1720569   (110238) от 04.05.2024
 
-VA - Love Making Music (Sensual Saxophone Jazz) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Райан Блюменталь | Вскрытие (2022) [MP3, Константин Романенко]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108806.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Charlie Neve - Pretty Woman (4:56)
-02. Jan Henlich - Night in Montreal (4:31)
-03. Charlie Neve - Unforgettable (4:14)
-04. Tom Cray - April in Paris (4:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:26:48
+«Патология может смотреть вам прямо в лицо, но если у вас нет опыта или вы не читали об этом раньше, то, вероятно, пропустите улику», – говорит Райан Блюменталь, судмедэксперт из ЮАР.
+В своей книге он рассказывает, чем судебная медицина в этой части света отличается от практики в других странах, и делится уникальным опытом.
+Вы узнаете, как порой судмедэксперты работают (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: БОМБОРАПродолжительность: 06:36:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D60A601FA851E07034E81D41CF42D6097E810DA6
+magnet:?xt=urn:btih:FCB246574F0BAB8D46BDD5D3A52B988BDE9A2B22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,28 +537,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726260   (108805) от 27.05.2024
+###  Публикация: 1720795   (110237) от 04.05.2024
 
-Sequoia Grove - Tales from Midgard (2024) [FLAC|Lossless|WEB-DL|tracks] <Pagan, Folk, Symphonic Metal>
+FireAlpaca 2.11.20 RePack (& Portable) by elchupacabra
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108805.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Dragon and the Farmer [00:10:54]
-02. Ice Giant Gierrod, Pt. 1: Gierrod Is My Name [00:04:36]
-03. Ice Giant Gierrod, Pt. 2: Gierrod's Revenge [00:06:28]
-04. Ice Giant Gierrod, Pt. 3: Gierrod's Demise [00:06:26](   Читать дальше...   )Жанр: Pagan, Folk, Symphonic MetalПродолжительность: 00:48:30
+FireAlpaca - это достаточно простой, но удобный графический редактор для преобразования изображений, фотографий и любых других картинок. Здесь нет каких-то продвинутых или специфических функций, но базовый набор инструментов позволяет быстро и легко редактировать нужные изображения.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F65CC44B6E3A227785D9FB5820B673D1862263D6
+magnet:?xt=urn:btih:8DA00CECBA54418840DCA00791076361B9AAEB3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,26 +563,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726124   (108804) от 27.05.2024
+###  Публикация: 1720596   (110236) от 04.05.2024
 
-НХЛ. Кубок Стэнли 2024. Восток - Финал. 3-й матч. Нью-Йорк Рейнджерс - Флорида Пантерз (26.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+KineMaster - Video Editor & Maker v7.4.10.32410.GP Mod by Shadow_Patcher [Ru/Multi]
 
->>Спорт и активный отдых
->>Хоккей
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108804.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-26 мая 2024, воскресенье. 22:00 МСК. Финал - Восток. 3-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 780 зрителей (102% при вместимости 19 434)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Скотт Черри (Дрэйтон, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:21:05
+Скачайте KineMaster и испытайте лучшие возможности редактирования видео! Это легко благодаря мощным инструментам редактирования, эксклюзивным функциям и библиотеке ресурсов, которые можно использовать, чтобы оживить свои видео!Тип издания: PremiumРелиз состоялся: 03.05.2024Разработчик: KineMaster, Video Editor Experts GroupПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7E49BB5C43C3E59512025101DAE4E92441565B5
+magnet:?xt=urn:btih:3DFDFF82BE9C6E69F1D54E6AC378D0F2DA74C760
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,28 +589,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726189   (108803) от 27.05.2024
+###  Публикация: 1720698   (110235) от 04.05.2024
 
-Motörhead, Lemmy & Larry Wallis - The Boys of Ladbroke Grove (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock, Heavy Metal, Rock and Roll>
+Speedtest от Ookla 5.3.6 Mod by maxi123444 [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108803.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lemmy & The Upsetters – Paradise (The Brains Mix) 02:46
-02. Motörhead – Keep Us On The Road (Live) (The Brains Mix) 03:14
-03. Larry Wallis – Police Car ( Re-Recorded) (2023 Mix) 03:25
-04. Pink Fairies – Lone Wolf 03:06(   Читать дальше...   )Жанр: Hard Rock, Rock, Heavy Metal, Rock and RollПродолжительность: 01:04:35
+Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.04.2024Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63F8E2FBE1E38DF87D31448BBCF073C132849849
+magnet:?xt=urn:btih:998AE7BF9914CF56746C57B1F5457DEA5AFFE41B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,28 +615,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726114   (108802) от 27.05.2024
+###  Публикация: 1720652   (110234) от 04.05.2024
 
-Andralls - Universal Collapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+Лига городов (2024) WEBRip [H.264/720p] (сезон 2, выпуск 13)
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Юмор (ТВ)
+>>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108802.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110234.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cross Of Shame
-02. How Many Lives I Need To Die
-03. Escape From The Traps
-04. Dead Consumers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:56
+«Лига городов» – новый юмористический проект телеканала ТНТ и компании АМиК, в котором команды будут бороться за звание Чемпиона сезона и приз в 10 миллионов рублей. Одержать победу в серьезной юмористической схватке коллективам помогут наставники, гуру юмора – Сергей Светлаков, Марина Кравец, Алексей Щербаков и Артем Калайджян. Каждый из них отберет под свое крыло (   Читать дальше...   )Производство: Россия | «АМИК», «ТНТ»Жанр: Юмор, комедия, играСубтитры: ОтсутствуютПродолжительность: 01:15:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EE57230E530B0001848D32225EB21D3AB450167
+magnet:?xt=urn:btih:AD9DC335EE166EEA0884B1D45794AC006435BCD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,28 +641,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726019   (108801) от 27.05.2024
+###  Публикация: 1720679   (110233) от 04.05.2024
 
-Cypecore - The Alliance (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+Газета | Моя грядка изобилия №3 (131) (апрель 2024) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108801.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. The Alliance
-03. Dissatisfactory
-04. Dreamsmasher(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:15
+«Моя грядка изобилия», газета профессиональных советов экологического органического живого земледелия ставит своей главной целью - помочь всем людям, имеющим несколько соток земли, выращивать на своих грядках максимум овощей, картофеля, ягод, фруктов, дабы обеспечить себя и своих близких витаминной продукцией без всякой «химии».Жанр: Садоводство, огородничествоИздательство: ИП М.И. Кузнецова (г.Уфа)Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D13690B42EC45891626E7B50B7C593F5940F177
+magnet:?xt=urn:btih:5303168FE672C75C3A55BD683207470231CBFDE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,28 +667,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726240   (108800) от 27.05.2024
+###  Публикация: 1720699   (110232) от 04.05.2024
 
-Spike Wilner Trio - Contrafactus (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Журнал | Юный ученый №3 (77) (2024) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108800.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110232.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. At First Blush (7:44)
-02. Contrafactus (5:12)
-03. Kinetic Neurosis (3:27)
-04. Ants Go Marching (6:37)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:56:07
+Журнал "Юный ученый" публикует научные статьи, написанные школьниками под руководством учителей. Тематический рубрикатор журнала построен на основе новых федеральных стандартов и включает в себя все обязательные предметные области и учебные предметы, в рамках которых школьники занимаются научной деятельностью.Жанр: Международный научный журналИздательство: ООО «Издательство Молодой ученый»Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6F5FC8AB2BB0EAEE7276F2E201190155F13B020
+magnet:?xt=urn:btih:483AA826A08F08100D67647F78386BD788865398
 ```
 
 https://mybot314.ru/tekegram_catalog/

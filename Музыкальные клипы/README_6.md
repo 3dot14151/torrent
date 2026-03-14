@@ -1,3 +1,205 @@
+###  Публикация: 982444   (943261) от 06.02.2016
+
+VA-Коллекция клипов в авто (ZAP) (2DIN) (1980-2016) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипы собирались и конвертировались специально в авто, на 2DIN автомагнитолу.
+Представлены практически все жанры.Коллекция легко редактируется выделением ненужного и кнопочкой DEL001 2 Brothers - Dreams
+002 2 Unlimited - Let The Beat
+003 2 Unlimited-No Limit
+004 2CELLOS - They Don't Care About Us(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 50:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCADBF0F686666BA89BA7FEA5A0C00F291D3BABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981894   (943136) от 06.02.2016
+
+Коллекция клипов в авто (RUS) (2DIN) (2000-2015) HDTVRip
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипы собирались и конвертировались специально в авто,
+на 2DIN автомагнитолу.Представлены практически все жанры.001 1 - Я ухожу
+002 1-Я не стану
+003 2 парня - Я взял телефон
+004 3 - Прощай любовь(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 60:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6919AB0C3D080EE6F7D6F0C4FF8E0DB0AFB6E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859438   (942496) от 15.01.2015
+
+Сати Казанова - Дура (2013) [1080p] [hand made 60fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: MKVПродолжительность: 00:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9737BDCBE187E7AC25D6325C2DBA1B800F5D50B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983606   (941882) от 07.02.2016
+
+VA – Реальная Музыка (2001) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чичерина - Ту-Лу-Ла
+02. Green Grey - Осень/MF
+03. Total - Камасутра
+04. Запрещенные - Барабанщики*	Мама-Зузу(   Читать дальше...   )Жанр: Rock, PopПеревод: ОтсутствуетПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788B0EE7733011043306534B0D1E9C170F3055AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625827   (940955) от 07.03.2013
+
+Сборник клипов - VA - Various Music part. 40 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940955.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2Elements - Tell Me Boy 1080p (3:24)
+2. Akcent feat. Anushka Manchanda - I'm Sorry 1080p (4:04)
+3. Alina Grosu - Let Go (Eurovision 2013) 1080p (3:10)
+4. Arty, Nadia Ali & BT - Must Be The Love 1080p (4:57)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D36F0EF9148FA4B3BD96D5FD9F402BC3FAC8D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984443   (938727) от 09.02.2016
+
+VA - Best of pop 2003 (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Kesici - Angel Of Berlin
+02. Pink - Family Portrait
+03. Christina Aguilera - Fighter
+04. Jennier Lopez feat Jadakis & Styles P - Jenny From The Block(   Читать дальше...   )Жанр: PopПеревод: ОтсутствуетПродолжительность: 02:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7103545647F681F1319E9CC9B81C638659A2BFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984563   (938388) от 09.02.2016
+
+VA - Танцевальный рай - The Best (2007) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Pryzd vs. Floyd -  Proper Education
+02. Scooter - Shake That
+03. Holly Dolly - Dolly Song (leva's Pofka)
+04. Arash -  Boro Boro(   Читать дальше...   )Жанр: PopПеревод: ОтсутствуетПродолжительность: 02:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF6BA17BAC160B2D978BB4BEC983E5A1DDEC7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 859875   (937526) от 18.01.2015
 
 Настя Любимова ft. St1m - Мода На Любовь (2014) WEBRip [H.264/720p-LQ]
@@ -508,200 +710,6 @@ Mylene Farmer - Je Te Dis Tout (2013) HDTV [H.264/1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51AC95D15BDB86E412FEEE7614B712A83924C4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756997   (919358) от 15.02.2014
-
-The Beatles - Video Collection. Vol. 2 (2003) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_919358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am The Walrus
-02. Hello, Goodbye
-03. Across The Universe
-04. Lady Madonna(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E95DC2E835EBBCE6C180A9B67EB804B8CECF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756987   (919301) от 15.02.2014
-
-The Beatles - Video Collection. Vol. 1 (2003) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please, Please Me
-02. Twist And Shout
-03. From Me To You
-04. I Wont Belong(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 02:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590BAF711AB77AD4F637A3583953534F67B44013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988840   (918119) от 21.02.2016
-
-VA - Дискохит 90-х (большая коллекция клипов) (1970 - 1990) VHSRip
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танцевальные сборник 90-х, клипы в сборке в неплохом качестве, кто-то что-то из сборки для себя выберет, если не хотите качать весь сборник, выбор делается при добавлении торента - снятием отметки с ненужного клипа.Диск1:
-01. Anticappella ft. MC Fixx It- Move your body.avi
-02. Centory- Point of no return.avi
-03. MC S.A.R. & The Real McCoy- Automatic lover.avi(   Читать дальше...   )Производство: Europa, USAЖанр: Музыкальные клипыПродолжительность: 27:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80822F70CCE7DA870FECA70E656C713AF2BF1B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632981   (917960) от 21.03.2013
-
-Ed Sheeran - Give Me Love (2012) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58C76C7B9EF6A701932338B600313CE5D4B197A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633196   (917829) от 21.03.2013
-
-Alizee - A Cause De L'automne (2012) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C56DFD4BB0E7EA2FCA635E041F1C50FF78AE06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367146   (917326) от 15.03.2020
-
-Flyingdick - Китайский квартал (2020) WEB-DL [V9/2160p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 2020 - FLYINGDICK - Китайский кварталЖанр: RapCoreПродолжительность: 00:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCDDB046CFF314058802FD4BB6B65BD605C58A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367571   (915656) от 16.03.2020
-
-Pyogenesis - 8 Music Videos (2015-2020) WEB-DL [VP9/H.264/2160p/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915656.jpg" />
-</div>
-
-
-###  Подробнее
-
-001  2015 Pyogenesis - Lifeless
-002  2015 Pyogenesis - Steam Paves Its Way (The Machine)
-003  2017 Pyogenesis - Every Man For Himself... And God Against All
-004  2017 Pyogenesis - I Have Seen My Soul(   Читать дальше...   )Производство: PixelFilm, AFM RecordsЖанр: Gothic Metal, Alternative RockПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF36A663A954373350E47F563AD51FCA6F4EF29D
 ```
 
 https://mybot314.ru/tekegram_catalog/

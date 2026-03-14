@@ -1,3 +1,90 @@
+###  Публикация: 1716459   (111316) от 16.04.2024
+
+Pat Martino & Gil Goldstein - We Are Together Again (2012) Warner [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body and Soul [7:13]
+02. Before You Ask [7:03]
+03. Footprints [5:31]
+04. In a Sentimental Mood [4:47](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8800C478C4F72826164DF9DAC1EF9BFB229E96CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716628   (111315) от 16.04.2024
+
+Erroll Garner & Billy Taylor - Separate Keyboards (1945, 1949) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erroll Garner - Cottage for Sale [2:59]
+02. Erroll Garner - Rosalie [3:05]
+03. Erroll Garner - Everything Happens to Me [3:06]
+04. Erroll Garner - Stairway to the Stars [2:51](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 00:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FF7C9847D6FF594CA8271D2F744442FF7FCA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716626   (111313) от 16.04.2024
+
+Erroll Garner - Piano Magic (1940-e - 1950-e) 1999, Hallmark [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play, Piano, Play [3:15]
+02. Pastel [2:58]
+03. Frankie & Johnny Fantasy [2:57]
+04. Stardust [2:49](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF484C0ED12D36EFFC9A010A67FD9AE0B947F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716535   (111312) от 16.04.2024
 
 VA - Klavier - Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -657,93 +744,6 @@ Gerald Albright - 30 (2018) Bright Music Records [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B90909608565E503EAA507A533A01374801F6F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718148   (111002) от 23.04.2024
-
-Bonnie Bowden - The Great American Songbook (2012) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indian Summer [3:24]
-02. I Hadn't Anyone Til You [3:34]
-03. I Gotta Right to Sing the Blues [4:38]
-04. Yesterdays [3:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931D1E26DF247D7C2C1E75C29A257D116DAC5599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718348   (110979) от 24.04.2024
-
-Chris Flory - City Life (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandria, VA [4:27]
-02. Besame Mucho [4:05]
-03. S'posin' [5:26]
-04. Tin Tin Por Tin Tin [4:09](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F3BDE6F5D56FA50B26393830E4A28611C7BC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718387   (110964) от 24.04.2024
-
-Blue Sun - Festival (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Prog Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Festival 2:48
-02. Katedralen 4:26
-03. Pa Fjeldet 3:22
-04. Kaere Irene 2:14(   Читать дальше...   )Жанр: Jazz-Rock, Prog RockПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B934B6C5CD1EFD6B5AC83045D3ADDDFF1D99494
 ```
 
 https://mybot314.ru/tekegram_catalog/

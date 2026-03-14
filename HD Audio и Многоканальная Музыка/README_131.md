@@ -1,3 +1,145 @@
+###  Публикация: 1728523   (108324) от 07.06.2024
+
+Darko Us - Starfire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <progressive metalcore, deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starfire (1:14)
+02. Distant World (feat. Storm Strope (ex-The Last Ten Seconds of Life)) (4:27)
+03. Death Charge (feat. Marc Zelli of Paleface Swiss) (3:33)
+04. 5D (3:57)(   Читать дальше...   )Жанр: progressive metalcore, deathcoreПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F17E82DAEBDD07EC6FD4CA406145485DC5A471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728567   (108313) от 07.06.2024
+
+Issa - Another World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Rock, Trip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armed & Dangerous (4:54)
+02. All These Wild Nights (5:12)
+03. Only In The Dark (4:59)
+04. Never Sleep Alone (4:09)(   Читать дальше...   )Жанр: Melodic Rock, Trip-HopПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D88469FDD5BF84E0A6EAED59A8C15472461F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728701   (108306) от 08.06.2024
+
+Nightwish - Perfume Of The Timeless (2024) Single [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfume Of The Timeless (8:12)Жанр: Symphonic metalПродолжительность: 00:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3829C6B657F3D4F7A1F4D9CEDD1DA7DCF14B1ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728787   (108293) от 08.06.2024
+
+Tanerélle (Tanerelle) - Electric Honey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B, around trip-hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Honey [00:00:57]
+02. Blink [00:02:39]
+03. Let Me In [00:02:58]
+04. Mirror [00:03:07](   Читать дальше...   )Жанр: R&B, around trip-hopПродолжительность: 00:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99206B9764F4B21AFB37448FADFA00EE97A74AEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728782   (108292) от 08.06.2024
+
+Quantic - Dancing While Falling (2023) Deluxe Edition, 2024, [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run feat. Andreya Triana (Extended Version) [00:06:16]
+02. Brooklyn Heat feat. Andreya Triana (Extended Version) [00:06:35]
+03. Subway Lover (Extended Version) [00:06:17]
+04. Unconditional feat. Rationale (Extended Version) [00:06:22](   Читать дальше...   )Жанр: DiscoПродолжительность: 2 CD, 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C7BCFB7F24B66405FEEA78CE287C356C669A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728695   (108283) от 08.06.2024
 
 From Ashes to New - Blackout (2023) Deluxe, 2024, Better Noise Music [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alternative Metal, Rapcore>
@@ -599,151 +741,6 @@ Parker James & Paul DeFiglia & Caleb Breaux - Afterglow (2024) [FLAC 24/48|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:544E51A45533AF3E552BB94320B9BF8D281B7471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728992   (108165) от 09.06.2024
-
-LØLØ (LOLO) - falling for robots & wishing i was one (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. intro (0:55)
-02. omg (2:34)
-03. faceplant (2:42)
-04. 2 of us (2:47)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B9980A056A7015BC2C77FD1C8048788F3044ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728751   (108164) от 09.06.2024
-
-Ilya Serov - Colors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Champagne Sky (4:10)
-02. Beat of My Heart (4:05)
-03. Glow (4:21)
-04. Sea Breeze (3:58)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF01103F4B4D4E568D8B6916A6099EB30386A4BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728750   (108163) от 09.06.2024
-
-Ileana Mottola - Cool Life (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Travel (7:04)
-02. Night in Torino (5:31)
-03. Remember (4:06)
-04. Smile (5:20)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8EE34E24AE8ED1463F70A7D9714CFF3150B8E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729021   (108161) от 09.06.2024
-
-Sons of Arrakis - Volume II (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic-Doom-Metal, Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scattering [00:03:47]
-02. High Handed Enemy [00:04:24]
-03. Beyond the Screen of Illusion [00:03:50]
-04. Interlude I [00:01:08](   Читать дальше...   )Жанр: Psychedelic-Doom-Metal, Stoner RockПродолжительность: 00:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972FFE9922A6215FDB2795A19268874D4A534E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728950   (108157) от 09.06.2024
-
-Sant Andreu Jazz Band - Jazzing 14 Vol.2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Never Knew (6:10)
-02. When You're Smiling (3:39)
-03. The Nearness Of You (4:26)
-04. Chinatown My Chinatown (2:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE9109C618694F99C3FE981F869CEB3B4749C56
 ```
 
 https://mybot314.ru/tekegram_catalog/

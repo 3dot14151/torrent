@@ -1,3 +1,177 @@
+###  Публикация: 1728226   (108312) от 07.06.2024
+
+Dede Priest and Johnny Clark's Outlaws - Best Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desert Garden (4:09)
+02. Never Too Late To Go To Nashville (3:56)
+03. Boat In The Attic (5:25)
+04. Best Pieces (4:55)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6001AAFA736708043C67C2AB4E6448F5DA925A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728209   (108311) от 07.06.2024
+
+Alastair Greene - Standing out Loud (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can't Fool Me (2:31)
+02. Slow Burn (2:49)
+03. Only Do (3:02)
+04. In Trouble (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46C833A7C50351C0CDC1B0296D3079E0A178B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728640   (108262) от 08.06.2024
+
+Oscar Peterson - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke Gets in Your Eyes [3:07]
+02. Deep Purple [3:12]
+03. Robbin's Nest [3:16]
+04. I'll Remember April [3:35](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E8CA59ACF102AF97E2BE6395ECC7BA9F7FD300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728645   (108259) от 08.06.2024
+
+Lee Ritenour - & His Gentle Thoughts (1977) 2003, JVC [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Caribe/Getaway [10:01]
+02. Chanson [4:13]
+03. Meiso [4:54]
+04. Captain Fingers [5:32](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED16278A0C99999F562754A3BAC344A089E0DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728641   (108255) от 08.06.2024
+
+Sonny Stitt - 1950 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon [2:32]
+02. Later [3:03]
+03. Ain't Misbehavin' [3:05]
+04. Mean to Me [3:10](   Читать дальше...   )Жанр: BopПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61ABA920E5405FCFBDB069553EA78A7A1EFA2318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728638   (108253) от 08.06.2024
+
+Benny Goodman - 1942 (2003) Classics [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Build a Better Mousetrap [3:06]
+02. At the Darktown Strutter's Ball [2:27]
+03. When the Roses Bloom Again [2:56]
+04. Jersey Bounce [2:57](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878EDE4E8FCB3A6B7696927938B5DF67597D12B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728643   (108252) от 08.06.2024
 
 Muggsy Spanier - 1949 - 1954 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
@@ -571,180 +745,6 @@ Vince Guaraldi - A Flower Is A Lovesome Thing (1957) Original Jazz Classics [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A6CC7EA8F613E2BE6EC9CD61B7B19F1DFA0036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729966   (107962) от 14.06.2024
-
-Neon Swingers - Electro Swing Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon Lights (2:32)
-02. It's Not Just the Steps (3:53)
-03. Nothing to prove (2:33)
-04. Bright Red Shoes (2:58)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7E88316858D12A2EEBCDB927BB683F2A2BA764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730284   (107908) от 15.06.2024
-
-Michael Brecker - Michael Brecker (1987) 1996, Impulse! [FLAC|Lossless|image + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sea Glass [5:51]
-02. Syzygy [9:46]
-03. Choices [8:07]
-04. Nothing Personal [5:32](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E6B65DBA130886CB94F2CF0A7AE1C0704C6FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730296   (107897) от 15.06.2024
-
-David Gogo - YEAH! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond In The Rough (2:59)
-02. Hurricane (2:56)
-03. Well Worth The Wait (4:15)
-04. Real Good Woman (3:03)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E5800BB0D15AD79D7D396BE2FCD30C61E5B70D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730285   (107893) от 15.06.2024
-
-Jack Walrath & Hard Corps - Journey, Man! (1996) Evidence [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bouncin' with Ballholzka [8:11]
-02. Ancient Intrigues [6:50]
-03. When Love Has Gone (It Comes Out Like This) [6:08]
-04. Pete's Steps [8:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648604D1E5C945FF2349B736099FD5798DFA7F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730165   (107892) от 15.06.2024
-
-Vince Guaraldi - The Latin Side Of Vince Guaraldi (1964) 1996, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Latin Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Lucky [2:56]
-02. What Kind of Fool Am I? [4:09]
-03. Corcovado [3:24]
-04. Work Song [4:17](   Читать дальше...   )Жанр: Latin Jazz, Piano JazzПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1520ADB81320CE7F491F286CA68DA21B758619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730170   (107888) от 15.06.2024
-
-Mary Lou Williams Trio - Free Spirits (1975) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dat Dere [4:48]
-02. Baby Man #2 [7:56]
-03. Baby Man [8:31]
-04. All Blues [7:00](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DC876211A3CA4558D5D2D22630243CC170D1DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1608610   (245404) от 01.02.2023
+
+Сарма - Вставай,русский народ! (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Во польской стороне [00:02:18]
+02. Вставай,русский народ! [00:04:39]
+03. Прилечу к тебе соколом [00:04:43]
+04. Спят тысячи воинов [00:04:16](   Читать дальше...   )Жанр: Alt. Rock, Folk MetalПродолжительность: 00:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E513DC5AD2A5C4AA4C0303B12C1714D303D1C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623940   (245352) от 04.04.2023
+
+Дмитрий Коробков - Гимн (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Империд [00:03:41]
+02. Марш благоволителей [00:04:28]
+03. Не осуждайте [00:02:32]
+04. Гимн Земле [00:05:25](   Читать дальше...   )Жанр: RockПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E3F2AB9743FB7CEDE8EA969F2C27D2B63B4FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609002   (245186) от 02.02.2023
+
+Железный Argument - Стальной пегас (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard'N'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:36]
+02. Железное сердце [00:03:41]
+03. Королева ночи [00:04:12]
+04. Делай Rock'n'roll [00:04:04](   Читать дальше...   )Жанр: Hard'N'HeavyПродолжительность: 00:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F730FC9B81846677A4AF5C50D0C28D48230CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609005   (245130) от 02.02.2023
+
+Re-Animator - Re-Animator (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard'N'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оно
+02. Ночная Школа
+03. Красный Дракон
+04. Чёрные Паруса(   Читать дальше...   )Жанр: Hard'N'HeavyПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9E72786790A4C5BAC67185754C4390BA8257AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621117   (244994) от 23.03.2023
+
+Forces United - Hits From Metal Musicals vol.2 (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knowitnot vs. Dracula (4:40)
+02. Gorgon (3:42)
+03. Half past nine (3:56)
+04. Edna Cintron (5:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2794C435ABFBA014785B0589FF4E8F8C51EF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451073   (244918) от 28.02.2021
 
 Легион - Мифы древности (2007) [FLAC|Lossless|image + .cue] <Melodic Power, Heavy Metal>
@@ -602,151 +747,6 @@ Hounds Of Bayanay (Псы Байаная) - Legends Of The North (2023) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CDCEDDBF7ECBE02D99F77BB84C0D2B3E96FCE20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614773   (243002) от 23.02.2023
-
-Cold Eternity - Холодная Вечность (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part 1: Холодная Вечность [00:03:46]
-02. Part 2: Вечная жизнь смерти [00:02:18]
-03. Part 3: Новые миры [00:02:34]
-04. Part 4: Земля [00:03:45](   Читать дальше...   )Жанр: RockПродолжительность: 00:22:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D54FB926F7B5EF7E20B956E41C2443E345952E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627443   (242954) от 19.04.2023
-
-Урсус - Новый дивный мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мир без глаз [00:03:18]
-02. Добрые люди [00:04:23]
-03. Спутник [00:05:27]
-04. Мёртвая рыба [00:04:23](   Читать дальше...   )Жанр: Punk rock, MetalПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA59808AB59207A16B433F49A6A11D759B397F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617005   (242269) от 05.03.2023
-
-Phantomass - Phantomass (2014) [FLAC|Lossless|WEB-DL|tracks] <occult stoner doom>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dagon [00:09:59]
-02. Love [00:04:27]
-03. Loud [00:07:17]
-04. Dragula [00:08:39](   Читать дальше...   )Жанр: occult stoner doomПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7A71AFAB8A0757F02216FE5CBB75F96BE8B5D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616989   (242183) от 05.03.2023
-
-Карбаш - Плазмосфера (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вперёд [00:03:10]
-02. Ветер [00:02:41]
-03. Скрипка [00:02:43]
-04. Дым [00:02:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F8D314DB2211A3F1D2D43667CA262E21E63936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617033   (242169) от 05.03.2023
-
-Техмашrecords - Чёрное и белое (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иммунитет [00:02:17]
-02. Два Каина [00:02:52]
-03. Капкан [00:02:58]
-04. Открой окно [00:01:54](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BEAB5A145838DD5B9D8C5B132EF08908BCEE2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

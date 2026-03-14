@@ -1,3 +1,32 @@
+###  Публикация: 1588947   (190780) от 07.11.2022
+
+VA - Record Super Chart 05.11.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meduza & James Carter feat. Elley Duhe & Fast Boy - Bad Memories (2:28)
+02. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)
+03. Dj Quba, Sandra K - Eins Zwei Polizei (2:14)
+04. Markul & Тося Чайкина - Стрелы (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3420F018BDE45A0CF321329681178E886991944A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589411   (190149) от 09.11.2022
 
 VA - Deep House, Baby 5 (2022) [MP3|320 Kbps] <Deep House>
@@ -716,35 +745,6 @@ VA - Свежак Vocal Trance NNM 2 (2020) [MP3|320 Kbps] <Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A7924D50EF7D7ED67AB13D41077BDA6364F1BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667157   (177256) от 07.10.2023
-
-VA - Car Music Mix 4 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTBAT - Flame - Edit (5:27)
-02. Zven, Ghetto - S.W.A.T (2:13)
-03. Yves V & Fafaq - Bring It Back (2:51)
-04. Tony Igy x Pakito, K.Funk, M.Gold - Video Astronomia (Dj Baur Mixshow) (3:58)(   Читать дальше...   )Жанр: G-House, Bass Progressive, OtherПродолжительность: 08:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0D9A54C4FB73F159EB85575C830482C744BC4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

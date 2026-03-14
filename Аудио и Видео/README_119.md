@@ -1,3 +1,32 @@
+###  Публикация: 1534336   (696085) от 01.03.2022
+
+VA - Santorini Solaire Chill 2 (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e, Diego Porchile - When Eyes Speak (Original Mix) (5:21)
+02. Dave de Tommaso, Davide Aru, Dacosta - Timeless (3:33)
+03. Digby Jones, Airglo - Cielo (Night Stars at Cafe Del Mar Mix) (3:49)
+04. Gary B, Ken Fan - Volar (4:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC859C562BEA8D1796744E8D4FCD9D372189E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534334   (696083) от 01.03.2022
 
 VA - Evening Chillin': Urban Chillhouse Music (2022) [AAC|~322 Kbps] <Chill House>
@@ -702,35 +731,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027945   (694457) от 20.06.2016
-
-Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (Original Motion Picture Soundtrack) (2016) [AAC|WEB-DL|256 кб/с]<Soundtrack>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opar (by Zoe Mthiyane) (03:29)
-02. Diamonds (04:51)
-03. Togetherness (01:45)
-04. Steamer and Butterfly (02:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC2EC66FA76B7450DB6A1F089851E6524D48C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

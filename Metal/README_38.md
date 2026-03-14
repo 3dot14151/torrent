@@ -1,3 +1,32 @@
+###  Публикация: 1129945   (718506) от 30.04.2017
+
+Wolfpakk - Wolves Reign (2017) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling 04:55
+02. Run All Night 04:14
+03. Blood Brothers 04:39
+04. Wolves Reign 06:15(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8446A2BC2D70CC431F9A7A94842EDB16F3E39BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130047   (718431) от 30.04.2017
 
 All That Remains - Madness (2017) [MP3|320 Kbps] <Metalcore, Melodic Hard Rock>
@@ -716,35 +745,6 @@ Romuvos - Infront Of Destiny (2016) [MP3|320 кб/с] <Epic Folk Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:171FDA8E7560B8DBBAC4E68135B1CFBEC44C1028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401324   (711609) от 09.08.2020
-
-Black Crown Initiate - Violent Portraits of Doomed Escape (2020) [MP3|320 Kbps] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invitation (7:55)
-02. Son of War (4:04)
-03. Trauma Bonds (6:03)
-04. Years in Frigid Light (album version) (6:44)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F924B39D258D3AF22378B13E992C433ABAE35458
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 1271994   (145722) от 26.12.2018
+
+Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] <Trailer Music, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fiery the Angels Rose (01:34)
+02. Thunderborn (02:03)
+03. Dragon Rider (02:21)
+04. Iron Poetry (feat. Kate St. Pierre) (03:09)(   Читать дальше...   )Жанр: Trailer Music, SoundtrackПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4097A10E506D618BA14C620EC1FDBA9B410AD927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969718   (145498) от 28.12.2015
+
+Paul Hardcastle - Jazzmasters VI (2010) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening Thoughts - 1:36
+02. Touch And Go - 4:34
+03. One Chance - 3:34
+04. Cloud Watching - 5:29(   Читать дальше...   )Жанр: Smooth Jazz, New AgeПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34824419F94730AF1CC10E1617E55BD5D4EAC1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637099   (145471) от 27.12.2020
+
+Ennio Morricone - Svegliati E Uccidi & Sacco E Vanzetti (2003) [MP3|320 Kbps] <Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Easy Listening, InstrumentalПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2348BD690AF7A4E8D94FC27E7D564DC5634936A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969136   (145322) от 28.12.2015
+
+VA - Асса (1987) [MP3|320 кб/с] <Rock, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Густав Гурьянов - Соло на барабанах (00:58)
+02. Юрий Чернавский и Весёлые ребята - Здравствуй, мальчик Бананан! (06:54)
+03. Борис Гребенщиков и Аквариум - Иду на ты (02:24)
+04. Александр Синицын и Союз композиторов - ВВС (06:39)(   Читать дальше...   )Жанр: Rock, SoundtrackПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E28FBA997018AED3EC0A0718D4845EE12B4D1C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271812   (145285) от 26.12.2018
+
+Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vardlokk (02:07)
+02. Skald (02:01)
+03. Ein Sat Hon Uti (04:06)
+04. Voluspá (Skaldic Version) (06:20)(   Читать дальше...   )Жанр: Folk Ambient, Dark AmbientПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68E488CD0EAA05C9F4634FD1F7E313D2F08E4EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519970   (145163) от 26.12.2021
 
 Richard Clayderman - Love Letters Friends & Family (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
@@ -601,151 +743,6 @@ Firedance (David Arkenstone) - Spirit of the Drum (2008) [FLAC|Lossless]<New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F2D09E006FA67FEC743E178327FAE1AE5CB8325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436138   (138721) от 30.12.2020
-
-Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Forest (Symphonic Version)
-02. Cafe Europa (Symphonic Version)
-03. Night Bird (Symphonic Version)
-04. Bulgarian Melody (Symphonic Version)(   Читать дальше...   )Жанр: Ambient, Downtempo, New AgeПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC1A651966C38850B7FBAE358B7B71B05BD24C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195824   (138290) от 31.12.2017
-
-Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138290.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Guru Puja (5:03)
-2. Sundhara Chalisa (17:48)
-3. Namoh (10:24)
-4. Devi Chant (10:14)(   Читать дальше...   )Жанр: Meditative, Mantras, EthnicПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACA517BA436E103D2EE13B04432A8E49FBFFC7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195762   (138081) от 31.12.2017
-
-Gregorian - Holy Chants (2017) [FLAC|Lossless|tracks + .cue] <New Age, Electronic, Pop Rock>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celebrate Christmas (2:32)
- 02. Walking In The Air (3:57)
- 03. You'll See The Snow (4:10)
- 04. Ding Dong (2:14)(   Читать дальше...   )Жанр: New Age, Electronic, Pop RockПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06983BA2DF9330B979F489ECE883B6F49F2B9769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273318   (137794) от 31.12.2018
-
-Philip Wesley - The Magic of Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – The Whisper of Winter
-02 – O Holy Night
-03 – God Rest Ye Merry Gentlemen
-04 – Winter Has Come(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF029B88C1E25A0C0A4DDC1DF8ABCDF34D415103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601054   (137685) от 31.12.2022
-
-Ambra - Child Of The Universe (2003) [OGG Vorbis|480 Kbps] <Electronic, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinite Space Part 1
-02. Infinite Space Part 2
-03. The Rebirth Of The Sun
-04. La Renaissance Du Soleil(   Читать дальше...   )Жанр: Electronic, New Age, DowntempoПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3036366191BE5907E5885EF7EE63B7F4EFA749F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 953846   (344777) от 06.11.2015
+
+Johnny "Hammond" Smith - Open House (1963) /2001, Milestone/[FLAC|tracks+.cue]<Soul-Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Open House [04:39]
+ 02.Cyra [05:28]
+ 03.I Remember You [05:02]
+ 04.Theme From Cleopatra [02:37](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1D8FAD3B78868D7ED6B9BFFFDF33CF761C5A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953797   (344765) от 06.11.2015
+
+Amos Milburn - Blues, Barrelhouse & Boogie Woogie: 1946-1955 (1996) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  After Midnite (2:55)
+02.  My Baby's Boogying (2:27)
+03.  Down The Road Apiece (2:57)
+04.  Amos' Blues (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 03:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A2A9140D87B322A66D672D15A7C3A1D0AFF8D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953867   (344761) от 06.11.2015
+
+Big Cat - Big Cat (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Now On (04:41)
+02. Under The Bridge (03:56)
+03. Thief Of Hearts (04:16)
+04. Stand Up Man (03:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8FF63851E74D80E628C2180F21AE3D0E3B839DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179655   (344692) от 02.11.2017
+
+Julian & Roman Wasserfuhr - Gravity (2011) ACT [FLAC|Lossless|image + .cue] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twinkle Eyes [04:55]
+02. English Man In New York [05:38]
+03. Interlude [01:32]
+04. L.O.V.E. [05:20](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FDBC1E0557E00EE9E314D9DAFF24E178EC5681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179959   (344688) от 02.11.2017
+
+Cootie Williams - In Hi-Fi (1958) 1999, RCA Victor [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just in Time [03:31]
+02. Summit Ridge Drive [03:21]
+03. Nevertheless, I'm In Love With You [03:43]
+04. On The Street Where You Live [03:30](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75CE5EF6026E8F2ED3EA3AC8391218A361E3C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179654   (344687) от 02.11.2017
+
+Paul Jackson, Jr. - I Came To Play (1988) Atlantic [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Came to Play [04:29]
+02. My Love's for Real [05:19]
+03. Morning Joy [04:44]
+04. Personal Touch [05:56](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8117C6E7A1CBFD6293ACC0DC1D877B58CA9D591C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179955   (344684) от 02.11.2017
 
 Paul Jackson, Jr. - Out Of The Shadows (1990) 2014, Warner [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
@@ -595,180 +769,6 @@ Paul Cacia Big Band - Portrait (1992) 2003 [FLAC|Lossless|image + .cue] <Big Ban
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:851DE919BB848290FE159BC7ABB62AC68274E851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073598   (343053) от 17.11.2016
-
-Judy Garland - America's Treasure (1960) 1986, Del Pack[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Swanee [02:08]
- 02.San Francisco [03:26]
- 03.You Made Me Love You [03:22]
- 04.For Me And My Gal [01:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF533827AA98361B71F8C2862B6DE404124E55DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180248   (342949) от 03.11.2017
-
-Zone - Metade (2011) Dneeyedfish [FLAC|Lossless|image + .cue] <World Fusion, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metade [05:06]
-02. Don't Know [05:11]
-03. Nao Abro Mao [03:58]
-04. Your Precious Love [03:57](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B8B6307E6DA85C5E72E9DEFB65C99A2B53F0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073402   (342856) от 17.11.2016
-
-Patti Labelle - When a Woman Loves (2000) [FLAC|Lossless|tracks + .cue] <Soul,R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Kitchen
-02. When a Woman Loves
-03. Make Tonight Beautiful
-04. If I Was a River(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C41A24ED6F5D8423448734E0249250083A2931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180244   (342805) от 03.11.2017
-
-Charles Lloyd New Quartet - Passin' Thru (2017) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Weaver [17:46]
-02. Part 5, Ruminations [11:55]
-03. Nu Blues [11:52]
-04. How Can I Tell You [09:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE9004C162F5A6A0C0AB2A6A803575E1BB56C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179903   (342790) от 03.11.2017
-
-Willie May - Haunted House (2017) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Big Fannie (03:18)
-02. Haunted House (04:45)
-03. Ain't It Funny (04:01)
-04. Another Moon Song (03:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078670A92F1193A82BC7E0CF0738273115928B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073669   (342667) от 17.11.2016
-
-VA - The Very Best of Jazz Manouche (2014) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Django Reinhardt - Body And Soul  (03:26) 
-02|  The Angelo Debarre Quartet - Hot Lips  (02:27) 
-03|  Stochelo Rosenberg - Embracable You  (03:46) 
-04|  Romane - Swing For Ninine  (03:13) (   Читать дальше...   )Жанр: JazzПродолжительность: 03:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C091E19316E4EA393AF49C53254E2D6CF8531E
 ```
 
 https://mybot314.ru/tekegram_catalog/

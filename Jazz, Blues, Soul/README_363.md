@@ -1,3 +1,177 @@
+###  Публикация: 1187950   (277394) от 30.11.2017
+
+Marcus Printup - Song For The Beautiful Woman (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Inquiry [06:42]
+02. I Remember April [07:15]
+03. Song For The Beautiful Woman [06:38]
+04. Trauma [06:24](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABB1808A52A6C9D2A8C322ED8E4656A9758B642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187947   (277391) от 30.11.2017
+
+Art Pepper & Blue Mitchell - The Dolo Coker Sessions (1976) 2008, Synergy Records [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumping Jacks [04:07]
+02. Gone With The Wind [04:28]
+03. Roots 4FB [14:59]
+04. Mr. Yohe [06:25](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081F54F1B1BFFBF02DBDF5E6BA71DEAD74FC7277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082806   (277125) от 13.12.2016
+
+Bart&Baker - Electro Swing Tribute (2016) [MP3|320 Kbps] <Swing, Electro Swing, Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Via Con Me (feat. Pierre Santini & Lada Redstar) (Bruce Leers Vintage Remix) (3:32)
+02. Fever - 39 de fievre (feat. Clementine & Mathieu Bore) (3:49)
+03. Get Lucky (feat. Matt Le Rouge & Landser) (3:45)
+04. Istanbul (Kalleti Klub Remix) (4:43)(   Читать дальше...   )Производство: Wagram MusicЖанр: Swing, Electro Swing, ElectronicПродолжительность: 01:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A2F5CAF84AF320EDD7DD9EEABC6CF775C3F078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265147   (276600) от 26.11.2018
+
+John Scofield - Combo 66 (2018) Universal [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Dance [7:32]
+02. Combo Theme [7:22]
+03. Icons At The Fair [5:33]
+04. WIlla Jean [7:59](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7366CF4EB77006FD107C254EC0503AA61C81BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337035   (276383) от 09.11.2019
+
+Tad Shull Quartet - In the Land of the Tenor (1993) [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's the Kicker (Shull) - 7:40
+02. Night Horse (Shull) - 5:16
+03. I Keep Going Back to Joe's (Fisher-Segal) - 8:04
+04. A Portrait of Bojangles (Ellington) - 7:42(   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF56F78BE429F45CB0223A12612196337FF5378E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337054   (276381) от 09.11.2019
+
+Terell Stafford - This Side Of Strayhorn (2011) MaxJazz [FLAC|Lossless|image + .cue] <Post-Bop, Trumpet Jazz, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raincheck [7:56]
+02. Smada [8:58]
+03. My Little Brown Book [7:20]
+04. Lush Life [7:44](   Читать дальше...   )Жанр: Post-Bop, Trumpet Jazz, Straight-Ahead JazzПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8984366A9CB081B3296385C3760CD95FD39976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337046   (276380) от 09.11.2019
 
 Emil Viklicky Quartet - 'Round Midnight (1991) Arta Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -568,180 +742,6 @@ Jay Thomas / Gary Smulyan - Lowdown Hoedown (2016) CUG Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8582A009BC61CEE0E90C70BBE66EC77D7850DD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337300   (275026) от 10.11.2019
-
-Benny Carter - Four Classic Albums Plus 1958 - 1960 (2012) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275026.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Old Fashioned Love [7:52]
-02. I’m Coming Virginia [5:49]
-03. A Walkin’ Thing [6:00](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Big BandПродолжительность: 02:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416696567786F3340D3E400D7F63BA3BC9CFC205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188439   (274998) от 02.12.2017
-
-Paul Desmond Quartet - First Place Again (2005) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "I Get a Kick Out of You" (Cole Porter) – 8:38
-02. "For All We Know" (J. Fred Coots, Sam M. Lewis) – 5:33
-03. "Two Degrees East, Three Degrees West" (John Lewis) – 7:28
-04. "Greensleeves" (Traditional) – 2:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADF25E7DBF976CF5262819D599D1B24D24BBF1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188429   (274997) от 02.12.2017
-
-Stan Kenton - Kenton's West Side Story (1961) 1994, Capitol Records [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue [04:06]
-02. Something's Coming [03:40]
-03. Maria [04:30]
-04. America [04:41](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B40425CF1A68EC674E1BBEAC76EF4EB31D70B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083384   (274994) от 15.12.2016
-
-Carl Allen - The Pursuer (1994) Atlantic Recording Corporation[FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The pursuer [05:23]
- 02.Hidden agenda [07:05]
- 03.Pinocchio [05:04]
- 04.Alternative thoughts [08:53](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27703121EDC9C171278C85F215E0D860CD827CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083391   (274986) от 15.12.2016
-
-The Zawinul Syndicate - Lost Tribes (1992) Sony[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Patriots [04:53]
- 02.South Africa [06:42]
- 03.Lost Tribes [03:48]
- 04.Rua Paula Freitas [05:01](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1884D0F17CF29E51306F45393531644308A94616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337439   (274885) от 10.11.2019
-
-Jody Mayfield - Soul Sanctuary (2019) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Deacon
-02. Rear View Mirror
-03. Just One Look (Feat. Sherita Murphy)
-04. Park Avenue(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F870AEB81E7738DB600E516E082E7759451C5C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

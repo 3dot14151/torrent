@@ -1,3 +1,55 @@
+###  Публикация: 608910   (992890) от 26.01.2013
+
+Cinema Wallpapers  (25.01.13) [Wallpapers] (jpg)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E2E607D2A0E59C25DDDCEF3F382F5D21DFB187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608179   (992888) от 26.01.2013
+
+Фотография - Фотограф Nikos Vasilakis (jpg)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Nikos VasilakisРазрешение файлов: ~  500x750 ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF9EB29A03EF6309B184E301ED2AE01066685A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609169   (992887) от 26.01.2013
 
 Журнал | Skin Shots №85 (UK) [февраль-март 2013] [PDF] [En]
@@ -663,64 +715,6 @@ Wave Machines - Pollen (2013) [FLAC|Lossless]<Alternative Rock, Indie-Rock, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:830DC91BE85BDB733703672E01BF2BEE7B873478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608475   (992805) от 26.01.2013
-
-Tesla - Matador EP (15.01.2013) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matador (Original Mix) 6:46
-02. Goodbye 27 (Original Mix) 8:07
-03. Matador (Lorenzo D’Ianni Remix) 6:02
-04. Goodbye 27 (Forest People Replant) 6:30
-05. Goodbye 27 (Inphasia Remix) 7:41Жанр: TechnoПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BF4AC386497B034EFF7EB0BCB852A5598F0A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608817   (992798) от 26.01.2013
-
-EZ CD Audio Converter 1.0.5.1 Ultimate [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.
-
-(   Читать дальше...   )Название программы: Easy CD-DA ExtractorЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

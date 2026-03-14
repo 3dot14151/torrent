@@ -1,3 +1,90 @@
+###  Публикация: 1129453   (722715) от 28.04.2017
+
+Pee Wee Russell - Ask Me Now! (1963) 2002,  Universal [APE|Lossless|image + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turnaround  [04:15]
+02. How About Me [04:17]
+03. Ask Me Now! [02:31]
+04. Some Other Blues [03:17](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0389AC134F4B289A3228A27524C62ECBC756B401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129379   (722714) от 28.04.2017
+
+Pee Wee Russell & Coleman Hawkins - Jazz Reunion (1961, 1963) 2002, Past Perfect [APE|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Too Soon [07:34]
+02. 28th And 8th [07:27]
+03. What Am I Here For [07:53]
+04. If I Could Be With You One Hour [06:30](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB944A72308B29005259B7ED5A849F62D83551E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129477   (722713) от 28.04.2017
+
+Kenny Burrell - God Bless the Child (1971) 1987 [WavPack|Lossless|image + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722713.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Be Yourself (5:56)
+2. Love Is The Answer (5:00)
+3. Do What You Gotta Do (9:30)
+4. Ballad Of The Sad Young Men (2:17)(   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EBC625916C28358C644E0C4896F991CA361D9EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129425   (722712) от 28.04.2017
 
 Kenny Burrell - Midnight Blue (1967) 1999, RVG Edition [WavPack|Lossless|image + .cue] <Jazz, Hard Bop>
@@ -658,93 +745,6 @@ Humphrey Lyttelton - In Canada (1983) 2015, Sackville [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8159097C286DD02384266F0814B411575D71B7F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285687   (719158) от 27.02.2019
-
-Kim Mills - The Ruby And The Pearl (2005) Jazz Karma Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ruby and the Pearl [4:31]
-02. That's All [4:23]
-03. Corcovado (Quiet Nights of Quiet Stars) [3:20]
-04. I Only Have Eyes for You [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2E2D929C391D6840183BED4695DBF9A028BF5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285622   (719157) от 27.02.2019
-
-Chris Potter - Circuits (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invocation (02:08)
-02. Hold It (06:49)
-03. The Nerve (08:30)
-04. Koutomé (06:47)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE949F0AD89D81525CFC9997644B668DD03FD96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129916   (719003) от 30.04.2017
-
-Al Haig & Jimmy Raney - Strings Attached (1975) Remaster, 2007, Absord Music [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dolphin Dance [07:30]
-02. Enigma [04:55]
-03. Invitation [09:22]
-04. You Came To Me From Out Of Nowhere [06:26](   Читать дальше...   )Жанр: BopПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:986809BDE3BCF60883F183BE41F1FCFAFEC6B749
 ```
 
 https://mybot314.ru/tekegram_catalog/

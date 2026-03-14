@@ -1,3 +1,177 @@
+###  Публикация: 1651595   (221270) от 07.08.2023
+
+Patrick Yandall - Dance in the Rain (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_221270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Boy (4:22)
+02. Find Your Purpose (4:25)
+03. Dance In The Rain (4:17)
+04. House Party (4:21)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71800411A4B48A0995FF8BF3F1A4426A4195F149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651594   (221263) от 07.08.2023
+
+Everett B Walters - Funkin Under the Chicago Skyline (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_221263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Minutes 2 Funk (5:07)
+02. On The Upside (5:35)
+03. Where Did Time Go (3:09)
+04. It's So Amazing (4:41)(   Читать дальше...   )Жанр: Smooth Jazz, FunkПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96A1AFBF4B3051A6E30373EDED2B85D85EDD6C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651599   (221233) от 07.08.2023
+
+Thom Rotella - Say Hey! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_221233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virtual Insanity (3:35)
+02. Patti Cake (4:29)
+03. Sugar (4:23)
+04. Somethin’ about You (3:55)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83CBB63BC2D266B17F67B1200BA64BA1DAE11C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651606   (221161) от 07.08.2023
+
+VA - Jazzin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_221161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Armstrong - What A Wonderful World (2:18)
+02. Etta James - At Last (3:03)
+03. Nina Simone - Feeling Good (2:55)
+04. Nat King Cole - L-O-V-E (2:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A566FA421EECB047C29430F943E72E2A2BE6384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342891   (221129) от 04.12.2019
+
+Mr Blues - Ain't No Saint (2019) [MP3|320 Kbps] <Blues, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thundering Pipes
+02. Dreaming Again
+03. Ain't No Saint
+04. Been Hit(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22BE2893450ED313395FCED43346ACE689590716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084545   (221033) от 18.12.2016
+
+Babylon Circus - La Belle Etoile (2009) [WavPack|Lossless|tracks + .cue] <Ska-Jazz,Punk,Variete>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Des Fois
+02. Marions-Nous Au Soleil
+03. L'Envol
+04. Sur La Tete(   Читать дальше...   )Жанр: Ska-Jazz,Punk,VarieteПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEE1B2F65D167883B65AF2970E13A04C08A07B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425539   (220977) от 21.11.2020
 
 The Thad Jones / Mel Lewis Orchestra - The Complete Solid State Recordings of The Thad Jones / Mel Lewis Orchestra (1966 - 1970) 1994, 5CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop ...
@@ -577,177 +751,6 @@ Ben Webster Quartet - My Man: Live At Montmartre (1973) 1986, SteepleChase [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C21EB0B624A555F1A7C048B1A16FE6915FABA816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651983   (219527) от 09.08.2023
-
-James Moody - Return From Overbrook (1958) 1996, GRP [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Train From Overbrook [3:06]
-02. Don't Worry 'Bout Me [2:34]
-03. Why Don't You [2:26]
-04. I'm Free aka What's New? [3:31](   Читать дальше...   )Жанр: Bop, Hard Bop, Big BandПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A887A7E2257158DEE811AD6D4D508B838FD6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425783   (219318) от 22.11.2020
-
-Dakota Staton - Time To Swing (1959) 2009, DRG Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Lights Are Low [1:56]
-02. Willow Weep for Me [2:31]
-03. But Not for Me [1:55]
-04. You Don't Know What Love Is [2:28](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57363B81C3A03204E76FE62797C10BCB4169B76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585805   (219268) от 24.10.2022
-
-Jeremiah Johnson - Hi-Fi Drive By (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Blues RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112ACED9376AAE31923EA46DF4144EF88C20F99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084769   (219233) от 19.12.2016
-
-Sonny Cox - The Wailer (1966) Remaster, 1998, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Come Rain Or Come Shine [03:44]
- 02.I'm Just A Lucky So And So [04:21]
- 03.Soulero [04:57]
- 04.The Retreat Song [04:32](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59E816B14828EC82B0293D3DB29BAB23E29437A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585801   (219226) от 24.10.2022
-
-Denys Lable, Christian Padovan - Dédoublé (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never enough (3:52)
-02. Mon beau nuage (2022) (Instrumental) (4:09)
-03. Hi-Heel sneakers (4:10)
-04. For good times' sake (Instrumental) (4:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682E4DB3362C4B9A11E4BF0EF7D4CFBA45A1375E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084776   (219224) от 19.12.2016
-
-Coleman Hawkins - Bouncing With Bean (1926-1949) 2CD, 2010, Le Chant Du Monde[FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219224.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.The Stampede [03:18]
-02.Miss Hannah [03:03]
-03.Hello Lola [03:20](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F808BE7E44077714EA155F01925458E3796CEC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

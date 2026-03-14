@@ -1,3 +1,32 @@
+###  Публикация: 1212118   (776418) от 10.03.2018
+
+Drudkh - Їм часто сниться капіж (They Often See Dreams About the Spring) (2018) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Накрите небо бурим дахом (09:54)
+02. У дахів іржавім колоссю... (08:44)
+03. Вечірній сумерк окутує кімнату (09:29)
+04. За зорею, що стрілою сяє (06:46)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99F919E9ECD48EF71FBCCAAFC5F5FE42BA6A577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212524   (775115) от 13.03.2018
 
 Axel Rudi Pell - Knights Call (2018) [MP3|320 Kbps] <Heavy Metal>
@@ -713,35 +742,6 @@ Swallow The Sun - When A Shadow Is Forced Into The Light (2019) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEAD1510B56F849CECFB32890A76303FDB59FB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125526   (768091) от 15.04.2017
-
-She Must Burn - 1 альбом + 1 EP (2015-2017) [MP3|320 Kbps] <Symphonic Deathcore / Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritual
-02. The Wicked (feat. Scott Ian Lewis of Carnifex)
-03. Gloom (feat. Sean Harmanis of Make Them Suffer)
-04. Hallowed Grounds(   Читать дальше...   )Жанр: Symphonic Deathcore / MetalcoreПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643038EBECFC500C0D10FE75871AFC4E29057228
 ```
 
 https://mybot314.ru/tekegram_catalog/

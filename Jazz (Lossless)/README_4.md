@@ -1,3 +1,32 @@
+###  Публикация: 1611631   (1041163) от 12.02.2023
+
+Simone Kopmajer - With Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look of Love
+02. How Wonderful You Are
+03. Until It's Time for You to Go
+04. I Can't Make You Love Me(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22BDC5A4BDAD1AA093E9F2EC7825C38CC767603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438586   (1040948) от 09.01.2021
 
 Sun Ra - Cosmos (1976) 2008, Inner City Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -715,35 +744,6 @@ Freddie Hubbard - Above & Beyond (1982) 1999, Metropolitan Records [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C615F642CF881F8CB3FEF878A7B92DDFA7AF4F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614436   (1038605) от 22.02.2023
-
-Jeremy Pelt - Men Of Honor (2010) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backroad [6:47]
-02. Milo Hayward [4:52]
-03. Brooklyn Bound [5:40]
-04. Danny Mack [6:57](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035639A5F3CD7F71A97FA5E9811765978A7DDEA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

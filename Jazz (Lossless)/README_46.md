@@ -1,3 +1,32 @@
+###  Публикация: 1104045   (880275) от 15.02.2017
+
+Bim Bam Baby - Who Am I Gonna Love Tonight (1999) [FLAC|Lossless|image + .cue] <Jump Jive, Neo Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight I'm Gonna Love You
+02. Come Back My Love
+03. Love Roller Coaster
+04. I Gotta Have Your Love(   Читать дальше...   )Жанр: Jump Jive, Neo SwingПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE71CC49A05D69668FE31CBEBE5992E647C63707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104215   (880264) от 15.02.2017
 
 McCoy Tyner Quartet - New York Reunion (1991) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -716,35 +745,6 @@ Scott Henderson, Jeff Berlin, Dennis Chambers - HBC (2012) Mascot Label Group[FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:194DC436DACB852FAF46CE5996D9313595C8F335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643379   (875633) от 13.04.2013
-
-Gabin - TAD|Replay (2012) [FLAC|Lossless]<Nu Jazz, Jazzy Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Dancin' Dans La Maison (feat. Z-Star)
-02. City Song (feat. Gary Go)
-03. So Many Nights (feat. Mia Cooper)
-04. Life Can Be So Beautiful (feat. Z-Star)(   Читать дальше...   )Жанр: Nu Jazz, Jazzy LoungeПродолжительность: 01:09:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

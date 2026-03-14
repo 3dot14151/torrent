@@ -1,3 +1,148 @@
+###  Публикация: 1708828   (112922) от 22.03.2024
+
+Игорь Николаев - Мисс Разлука (1991) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01. Стефания. (Музыка и стихи И.Николаева)
+02. Я сказал себе "Стоп!". (Музыка и стихи И.Николаева)
+03. Консуэло. (С.Краевский - Д.Берков)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EED893AF0EDE0E2F20186E73479E29BF6A8D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708894   (112919) от 22.03.2024
+
+Stress Reducing Music Zone, Instrumental Jazz Music Guys, Positive Music Universe - Boogie Wonderland: Amazing Electric Guitar Jazz for Emotional Release (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]  ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emo Grooves (3:55)
+02. Positive Music Universe - Posi-Jazz Express (4:01)
+03. Instrumental Jazz Music Guys - Soulful Therapy (3:45)
+04. Feel-Good Beats (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F690E040EEBD4CE149E69438FF0359D9291B3F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708849   (112917) от 22.03.2024
+
+Romantic Evening Jazz Club and Good Mood Music Academy - Jazzy Evening Calm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispering Moonlight Groove (3:42)
+02. Good Mood Music Academy - Smooth Velvet Serenade (3:17)
+03. Twilight Tranquility Tune (3:33)
+04. Good Mood Music Academy - Evening Bliss Melody (3:13)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6B12079ACDAA6577350D899B633A5ED9037850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708699   (112913) от 22.03.2024
+
+Darkthrone - Ravishing Grimness (1999) Reissue, 2011, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112913.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Lifeless
+A2 The Beast
+A3 The Claws Of Time
+B1 Across The Vacuum(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE5232675FD56D4512611FFD5A3418E6FDB0590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708935   (112912) от 22.03.2024
+
+Darkthrone - Plaguewielder (2001) Reissue,  2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112912.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Weakling Avenger
+A2 Raining Murder
+A3 Sin Origin
+B1 Command(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DFD1F23E84D899651C9087B7FFCD79906F3681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708848   (112911) от 22.03.2024
 
 Samson - Don't Get Mad, Get Even (1984) [FLAC|24/192|image|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
@@ -600,151 +745,6 @@ Nils Lofgren Band - Spares (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B3F37C34E360673B7A3905C6BC8B4A5C3B81AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709359   (112828) от 24.03.2024
-
-D4oesz - Lucid Strings (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Popstar (4:00)
-02. Day Off (3:36)
-03. Dance with the Devil (4:15)
-04. Letter To Women (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92053C60EC29EE95B27564FF7EE65C3DE4347054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709367   (112827) от 24.03.2024
-
-Ratzlaff & Webb - Delta Badhand (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legends Of The Blues (3:49)
-02. Call On Me (2:58)
-03. Do You Remember (3:47)
-04. I Call My Johnson...Robert (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43D3197402F8A13C7A8AE5035FDEAB72B2C6975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709391   (112825) от 24.03.2024
-
-The End Machine - The Quantum Phase (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Hole Extinction (4:36)
-02. Silent Winter (5:45)
-03. Killer Of The Night (4:55)
-04. Hell or High Water (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FECDE36DBE3BABC8E87D5D9FB4CF60621AA2758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709385   (112824) от 24.03.2024
-
-TC Tom Comfort - Slave To The Stupid Still (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shout It Out Loud (3:24)
-02. Hate Myself For Loving Life (3:02)
-03. Back Stabber My Friend (3:37)
-04. Going To Get Higher (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB6E147AFB045F1265AB08E5C1F38B3691DC9BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709400   (112823) от 24.03.2024
-
-Ольга Воронец - Поёт Ольга Воронец (1973) [FLAC 24/192|Lossless|tracks] <Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зачем вы, девочки, красивых любите (Е.Птичкин – И.Шаферан)
-02. Бабья доля (Г.Пономаренко – М. Агашина)
-03. Как случилось (Е.Птичкин – В.Харитонов)
-04. Семёновна (Е.Барыбин – Ю.Погорельский)(   Читать дальше...   )Жанр: RetroПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5E8559B3090731798B5D3FD197A46BF4CEF7F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

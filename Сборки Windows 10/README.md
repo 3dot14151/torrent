@@ -1,4 +1,59 @@
 https://t.me/izofen
+###  Публикация: 1858909   (1060656) от 
+
+Microsoft® Windows® 10 Professional VL x64 22H2 RU by OVGorskiy 03.2026
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060656.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинального русского образа операционной системы Windows 10 Pro VL (22H2) от Microsoft с дополнительным материалом (x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных нам кнопки и меню "Пуск", гаджеты для рабочего стола, дополнительные (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD76FDD26D3D478BC293174BFB9FF6F73EDB4AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858529   (1060417) от 11.03.2026
+
+Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.7058 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+Используется лаунчер от ФБ
+ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c
+Установлены обновления по 11.03.2026 года включительно(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292F04E2BA76EA653FE3B4EFC672EF3E5AE8DFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855531   (1058308) от 23.02.2026
 
 Windows 10 (v22h2) x64 PRO by KulHunter v30 (esd) [En]
@@ -656,63 +711,6 @@ Windows 10 22H2 (19045.2728) x64 (3in1) by Brux [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B321DCC607A73391DA458690C51A79187F2675A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453934   (1026287) от 14.03.2021
-
-Windows 10 3in1 VL (x64) Elgujakviso Edition (v.30.01.21) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа от MSDN
-ru_windows_10_business_editions_version_20h2_updated_jan_2021_x64_dvd_f09398b8.iso
-Все изменения в системах производились стандартными средствами MicrosoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D809C7E00833DE6A03C9080F7608A89E19E70FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455663   (1025157) от 21.03.2021
-
-Windows 10 Pro x64 3in1 20H2.19042.867 March 2021 by Generation2 [Multi/Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка создана на основе оригинального образа Microsoft Windows 10 20H2 x64.
-В один образ объединены три редакции: две с автоактивацией и одна без.
-Интегрированы обновления по март 2021 года, билд повышен до 19042.867.
-Системы абсолютно чистые.(   Читать дальше...   )Язык интерфейса: Русский, ангийский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F96368DAD13C590342B2D7463130CDF8C6A6C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

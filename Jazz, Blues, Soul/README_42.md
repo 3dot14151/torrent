@@ -1,3 +1,61 @@
+###  Публикация: 1482205   (1007726) от 07.07.2021
+
+Sonic Blue - Last Train (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaving Trunk (4:50)
+02. Love with a Feeling (4:42)
+03. All Over Now (4:23)
+04. Last Train (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D282F3FE1EE4982868F6E8ECB3E52D6C0713B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482196   (1007699) от 07.07.2021
+
+VA - Виртуозы жанра Blues Vol. 2 (2021) 2CD [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Cadillac Three - I'm Southern [03:09]
+02.  Chris Eger Band - If You Want It [04:22]
+03.  The Blackwater Fever - In Stereo (Remixed) (Remastered) [03:38]
+04.  Yungjohnn - Inside Job [05:01](   Читать дальше...   )Жанр: Blues RockПродолжительность: 09:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFC8EB93A7C5DBC5CDE2DAF9ADC3012F11E3854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482494   (1007633) от 08.07.2021
 
 The Sai Ghose Trio - E-Motion (2004) [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -687,64 +745,6 @@ Teena Marie - Super Hits (2002) Compilation [FLAC|Lossless|WEB-DL|tracks] <R&B, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2580248D075C3927C68418409B8A885D65422CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484198   (1006259) от 18.07.2021
-
-Gino Fanelli Live - King of Nuthin (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Glory (3:28)
-02. Free Man (4:27)
-03. The Knife (3:53)
-04. In My Dreams (2:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD13518B2FD126478868ECAA32E21A4F83D5342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484188   (1006258) от 18.07.2021
-
-Clint Morgan - Troublemaker (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hangman Woman (4:09)
-02. Go Down, Moses (3:25)
-03. Ain't That the Blues (4:03)
-04. Big River (4:34)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4AD1C62DE0948506D60F8C57270E8047F8A7657
 ```
 
 https://mybot314.ru/tekegram_catalog/

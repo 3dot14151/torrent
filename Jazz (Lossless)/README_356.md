@@ -1,3 +1,90 @@
+###  Публикация: 1802980   (65961) от 20.06.2025
+
+Miles Davis - Kind of Blue (1997) CD, Album, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Modal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So What    [0:09:25.32]
+02. Freddie Freeloader    [0:09:49.05]
+03. Blue in Green    [0:05:37.43]
+04. All Blues    [0:11:35.57](   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC7B638F85B5A13EE1523A846803DADA7C31A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803114   (65940) от 21.06.2025
+
+Caravan Palace - Dusty House Mix (Mixed) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Cook (Shiny Mob Remix) (Mixed)
+02. Moonshine (Bakermat Remix) (Mixed)
+03. Russian (Mixed)
+04. Tattoos (Mixed)(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B847E59058D7B2631D4B4963F7E10C4F77A20E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803119   (65913) от 21.06.2025
+
+Sea Breeze & Papik - Go Back (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Beyond
+02. Him
+03. JoJo
+04. No Shine(   Читать дальше...   )Жанр: Pop Jazz, SoulПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA59656D8A4506E3CC9DB88860F4569FDDAF1BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803186   (65843) от 22.06.2025
 
 Sonny Rollins - Freedom Weaver (1959) 3CD, 2024, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -658,93 +745,6 @@ VA - Jazzyness 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D45CED2331B16EEB87C9C916B9DFB0D9FD197C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805034   (65541) от 03.07.2025
-
-VA - Afro Funky Mix (Summer 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jestofunk - Fluid (6:34)
-02.  Funk Mediterraneo - Tribe Secret (4:10)
-03.  Vito Lalinga (Vi Mode Inc. Project) - Afro Bahia (5:24)
-04.  Yuri Piccolotto - Save Our Souls (6:29)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEA927C96E19089DF7FAE824190396718C480FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805053   (65529) от 03.07.2025
-
-Hank Jones - Lazy Afternoon (1989) Concord [WavPack|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak Low [4:13]
-02. Peedlum [5:05]
-03. Lazy Afternoon [7:46]
-04. Work Song [4:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FF4578E7C97B2976630CAD43245415CF4C0A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805265   (65446) от 05.07.2025
-
-The Red Norvo Trio - The Savoy Sessions (1951) 1995, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Believe That You're In Love With Me [2:54]
-02. Time And Tide [2:33]
-03. Little White Lies [3:46]
-04. Prelude To A Kiss [4:04](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60DB61AAC97667B9213EDC3C61E90CC5752A4DF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1746524   (104902) от 31.08.2024
+
+Dust Bolt - Studio Albums (6 releases) (2010-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dust Bolt - трэш-метал группа, образовавшаяся в баварском городке Ландсберг-на-Лехе.2010 - Chaos Possession
+2012 - Violent Demolition
+2014 - Awake The Riot
+2016 - Mass ConfusionЖанр: Thrash MetalПродолжительность: 04:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63126E6DA01FF2C85A9EC030C270FAFE94841AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746320   (104901) от 31.08.2024
+
+Violent Homicidal Slasher (VHS) - For a Few Riffs More (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Western Music>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Django [00:03:29]
+02. Death (Metal) Rides A Horse [00:03:35]
+03. Dead People Don't Need A Leader [00:02:42]
+04. Cutthroats [00:01:34](   Читать дальше...   )Жанр: Rock, Western MusicПродолжительность: 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CF53B2F2F8BD986DDF593F25FA3FDFAB61EB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746714   (104868) от 01.09.2024
+
+Антон Зацепин & Золотое Кольцо - Широка Река (2004) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Широка река (Золотое кольцо и А. Зацепин)
+02. Ничего не получится (Золотое кольцо)
+ОЗ. В сказку пусти меня (Золотое кольцо)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D652BB67ECBBAA1922C4B0FBE1BEA46263086204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746839   (104834) от 02.09.2024
+
+Enslaved - Studio Albums (19 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Black/Viking Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enslaved — норвежская метал-группа, в первые годы игравшая блэк-метал, а позднее эволюционировавшая в сторону викинг-метала с элементами прогрессива.1993 - Hordanes Land
+1994 - Frost
+1994 - Vikingligr Veldi
+1997 - EldЖанр: Progressive Black/Viking MetalПродолжительность: 15:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AB8827AA09E7DC99F5D02F2F6CB35B16FDAA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746940   (104829) от 02.09.2024
+
+T. Graham Brown - From Memphis to Muscle Shoals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Tears Me Up (2:57)
+02. Take Me to the River (4:04)
+03. You Better Move On (2:45)
+04. Do Right Woman, Do Right Man (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2FAA6211BF8C3DD9335500C8708FC9A8A5C53E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746929   (104826) от 02.09.2024
 
 Jerry Phillips - For The Universe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -600,151 +745,6 @@ Cat Stevens - Foreigner (1973) Remastered, 2024, UMC [FLAC 24/96|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1620B8CED0DF37318896761D69214D1DFD1F53EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747091   (104786) от 04.09.2024
-
-Egali Zunno - Human Foundation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human Foundation (3:32)
-02. Roots of Instinct (3:08)
-03. The Crossroad of the Spirit (3:17)
-04. Awakening of the Void (3:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490575563CB8EF692BCB1AF64A02F1877FF5AAFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747095   (104755) от 04.09.2024
-
-Hozier - Unreal Unearth (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Selby (Part 1) (3:40)
-02. De Selby (Part 2) (3:48)
-03. First Time (3:53)
-04. Francesca (4:30)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 01:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:776EDDAD8149EBEDEFFD2956AEA6D16F301E7BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747106   (104752) от 04.09.2024
-
-Spitfyre - Fall Of Empires (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Human (3:17)
-02. Spitfyre (4:59)
-03. Shame (3:16)
-04. Intoxicated (3:16)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D20433C25A29CEE81AB83F08456B8F9EF665B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747099   (104748) от 04.09.2024
-
-Joe Calabro - The Storm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Fire (3:30)
-02. Into the Fire (Instrumental) (3:30)
-03. No One Knows (3:31)
-04. No One Knows (Instrumental) (3:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B65E433DE271CF2562310C7FAC22A3719DA2A538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747093   (104747) от 04.09.2024
-
-Fullria - Aqueles Dias (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. É tarde (3:08)
-02. Realidade distorcida (2:46)
-03. Tudo errado (3:06)
-04. Aqueles dias (2:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FA05CFF71628B047A43A0A14A01DC3ED58ED8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

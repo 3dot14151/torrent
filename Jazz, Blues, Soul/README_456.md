@@ -1,3 +1,177 @@
+###  Публикация: 1086341   (153585) от 24.12.2016
+
+Terry Gibbs And His Big Band - Swing Is Here! (1960) 2009, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Song Is You [02:33]
+ 02.It Might As Well Be Swing [03:14]
+ 03.Dancing In The Dark [03:09]
+ 04.Moonglow [02:45](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16A5D8259BA9CC005C03E96532F79A4562E6940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434054   (153569) от 23.12.2020
+
+Oniblu - Play The Blues (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hide & seek (4:04)
+02. I want you (3:52)
+03. Goodbye yesterday (2:52)
+04. Play the blues (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6510F3A34B98EB3F0E89C624CB053CC2D31F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086352   (153568) от 24.12.2016
+
+VA - Jazz Moods Volume 1 (1993) Jazz World[FLAC|Lossless|image + .cue] <Swing, Bop, Hard Bop, Post-Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wynton Marsalis & Art Blakey's Jazz Messengers - Moanin' [09:32]
+02. Joe Williams & Claude Bolling Orchestra - Blues In My Heart [03:11]
+03. Ben Webster Quartet - Londonderry Air [04:35]
+04. Toots Thielemans & The Louis Vandyke Trio - Have You Met Miss Jones [03:06](   Читать дальше...   )Жанр: Swing, Bop, Hard Bop, Post-Bop, Vocal JazzПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293548DF310BC5B54507304D03EF36D0FF51BF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086357   (153562) от 24.12.2016
+
+Yusef Lateef - Autophysiopsychic (1977) 2003, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Robot Man [06:39]
+ 02.Look On Your Right Side [05:11]
+ 03.YL [07:55]
+ 04.Communication [09:23](   Читать дальше...   )Жанр: Post-Bop, Jazz FunkПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C13987115339A16675A4B416A2553E65BE642D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086150   (153557) от 24.12.2016
+
+Enrico Rava & Enrico Pieranunzi - Nausicaa (1993) Egea[FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Canzone di Nausicaa [05:07]
+02.Coralie [03:09]
+03.L'Age Mur [07:23]
+04.Over board [03:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BE8E96470B6FE4F76843BA79B6BE7E2D8A7F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086178   (153545) от 24.12.2016
+
+Lee Morgan - Last Album (1971) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Capra Black [15:35]
+ 02.In What Direction Are You Headed? [16:35]
+ 03.Angela [06:31]
+ 04.Croquet Ballet [10:56](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A49235346EAF91045731D797C8EEFC4B0DCD49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086480   (153539) от 24.12.2016
 
 J.J. Johnson - Quintergy: Live At The Village Vanguard (1988) 1991, Island Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -575,180 +749,6 @@ Yusef Lateef - The Complete Yusef Lateef (1967) 2002, Collectables [WavPack|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F46AA68D48F47B8AC2884447423C52D1C0147C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194979   (152449) от 27.12.2017
-
-Stephane Grappelli - Live 1994 (1998) Justin Time Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All God's Chillun Got Rhythm [03:00]
-02. I Thought About You [04:00]
-03. It's You Or No One [03:48]
-04. Night And Day [04:21](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA57999E2A0566E3C4A4F917B35FB869DE52722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518740   (152387) от 21.12.2021
-
-VA - Blues Happy Christmas (2021) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Brown - Santa Claus Go Straight To The Ghetto
-02. Albert King - Santa Claus Wants Some Lovin'
-03. G. Love & Special Sauce - Christmas Cookies
-04. The Singing Contractors - Joy To The World(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8432F82F74BADEAADE083F7963D6665977818D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194976   (152195) от 27.12.2017
-
-Henry Mancini - Combo! (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moanin' [02:54]
-02. Sidewalks of Cuba [03:23]
-03. Dream of You [02:57]
-04. Swing Lightly [04:20](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E119F8641653A21090041FBB53C074A218CD376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434324   (152086) от 24.12.2020
-
-Jerry Bergonzi - Tenorist (2007) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gecko Plex [6:08]
-02. Pannonica [6:52]
-03. Simultaneous Looks [6:55]
-04. Table Steaks [8:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FC5CBEDF1A76A750B9FE140A4331998CA7D774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434279   (151963) от 24.12.2020
-
-Andreas Georgiou - Asate (2003) [FLAC|Lossless|tracks + .cue] <Fusion, Vocal Jazz, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nea Selini (Georgiou) - 3:54
-02. Dhoron Exagnismou (Georgiou) - 3:23
-03. Let the Spirit Flower (Georgiou) - 7:01
-04. Rainforest (Georgiou) - 10:55(   Читать дальше...   )Жанр: Fusion, Vocal Jazz, Ethnic JazzПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73806D3B70CFDC57623AC22C540504E041A19DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434326   (151869) от 24.12.2020
-
-Jerry Bergonzi - Spotlight On Standards (2016) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Witchcraft [8:57]
-02. Bi-Solar [7:03]
-03. Blue Cube [8:27]
-04. First Lady [6:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6C0D16C71052F4C2E8B869F6334CC424211BDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

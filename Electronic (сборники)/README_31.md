@@ -1,3 +1,32 @@
+###  Публикация: 991451   (906316) от 28.02.2016
+
+VA - LUXEmusic Топ Февраль (2016) [MP3|320 кб/с] <Club House, Dance, Electro House, House Music, Mash Up, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Hello (DJ PitkiN Remix)
+02. Alekseev - Пьяное Солнце (OlegPerets & Ivan Flash Remix)
+03. Alex Kafer - Так говорят во сне (DJ Denis Rublev Remix)
+04. Anthony El Mejor pres. Мурат Насыров Cover - Я Это Ты (DJ Denis Rublev & DJ Anton Cover Mix)(   Читать дальше...   )Жанр: Club House, Dance, Electro House, House Music, Mash Up, PopПродолжительность: 03:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937B7E0E5E8EB82FAA65D29AC62B64AFB2E86C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991349   (906065) от 28.02.2016
 
 VA - Record Super Chart № 425 (2016) [MP3|128-320 кб/с] <Club House, Electro House, Dance>
@@ -720,35 +749,6 @@ VA - Peak Time: Techno Party (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A75AE7FFF5F4429E80593D09E299A7B24D62571D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492127   (902368) от 30.08.2021
-
-VA - Soft Chaos: Electronic Set (2021) [MP3|320 Kbps] <Synthetic, Electronic, Experimental, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902368.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blood Wine Or Honey - Mystery Operator
-002. Ihf - It Wasn't Enough
-003. Tal Fussman - Tell Me All About It
-004. Squarepusher - Squarepusher Theme(   Читать дальше...   )Жанр: Synthetic, Electronic, Experimental, SynthwaveПродолжительность: 12:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8E1A9E193C7DAF02E216A5768811B9EE23B4E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

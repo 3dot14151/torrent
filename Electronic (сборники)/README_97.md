@@ -1,3 +1,32 @@
+###  Публикация: 905620   (649485) от 06.06.2015
+
+VA - Lounge Cocktails (2013) [MP3|320 кб/с]<Lounge, Jazz>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hank Mobley, Djalma Ferreira, Luiz Antonio - Recado Bossa Nova (Remastered) (08:11)
+02. Cal Tjader - Soul Burst (Guajera) (04:41)
+03. Stan Getz, Charlie Byrd, Antonio Carlos Jobim, Newton Mendonсa - Desafinado (05:50)
+04. Roy Ayers Ubiquity, William Allen - This Side Of Sunshine (03:17)(   Читать дальше...   )Жанр: Lounge, JazzПродолжительность: 01:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4367CD86DA1A30CC08133332D32C7C909A1D5CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905773   (649367) от 06.06.2015
 
 VA - Hits Cocktail Vol. 8 (2015) [MP3|320 кб/с]<Club, Dance, House>
@@ -725,35 +754,6 @@ VA - Крутые пушки Весна 2022 [MP3|320 Kbps] <Club, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4D84DFBE87E5BB9AD43E78D28483EA8C1FCFC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032405   (646176) от 07.07.2016
-
-VA - Harder Better Trance (2016) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.T.A. -  Analemma 7:32
-02. Faisi & Wacattak -  Dreaming 7:40
-03. Amen B & Ross Rayer -  Paradise (Bardalimov Remix) 5:46
-04. Nakhiya -  Paranagua 8:02(   Читать дальше...   )Жанр: TranceПродолжительность: 04:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884556C6637D553ECF0A96BC96EEAFB5BABA0A38
 ```
 
 https://mybot314.ru/tekegram_catalog/

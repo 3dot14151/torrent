@@ -1,3 +1,148 @@
+###  Публикация: 1672384   (169546) от 28.10.2023
+
+Prospective - Reasons To Leave (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Searching
+02. Haunt Me
+03. OCD
+04. Fake Routine(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4813BBD4055478643D187227B5157E1BADC1DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672267   (169504) от 28.10.2023
+
+Ragana - Desolation's Flower (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <blackened doom, blackened screamo>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desolation's Flower [00:08:29]
+02. Woe [00:06:35]
+03. Ruins [00:05:55]
+04. DTA [00:04:04](   Читать дальше...   )Жанр: blackened doom, blackened screamoПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E0F9B26A78EC48F57839694A15EB140D61157E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672551   (169459) от 28.10.2023
+
+Death - Leprosy (1988) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leprosy (06:20)
+02. Born Dead (03:28)
+03. Forgotten Past (04:37)
+04. Left To Die (04:37)(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035C1F723584BCE25B0AEDE0AD0EBBF6F7BF2749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672262   (169403) от 28.10.2023
+
+Mass Hysteria - Tenace, Pt. 2 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore / Frenchcore / Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'inversion des pôles [00:04:33]
+02. L'air bien [00:06:05]
+03. Washington décès [00:04:09]
+04. Un Assange passe [00:04:37](   Читать дальше...   )Жанр: Rapcore / Frenchcore / ElectronicПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C4EC3BF7B38789EDB3B896C12AD26ED706B45C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672377   (169370) от 28.10.2023
+
+King Gizzard & The Lizard Wizard - The Silver Cord (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169370.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Theia (03:24)
+2. The Silver Cord (04:20)
+3. Set (03:56)
+4. Chang'e (03:46)(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 01:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59BC2A608C06F6C03DAFB1AFE33F24930D5DC09D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515334   (169209) от 07.12.2021
 
 Julia Fischer, Martin Helmchen - Schubert: Complete Works for Violin and Piano (2014) 2SACD [DSD 2.0, 5.1|2822,4/1|SACD-R] <Classical>
@@ -601,151 +746,6 @@ B2. Hope(   Читать дальше...   )Жанр: Progressive Power MetalП�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:584311E08528C64FED8854D83F3CC5B28E56DACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673467   (165395) от 01.11.2023
-
-Bernie Marsden - And About Time Too (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Blues Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165395.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. You"re The One
-A2. Song For Fran
-A3. Love Made A Fool Of Me
-A4. Here We Go Again(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AA4C8085F665DC3F5E96FEEEC2B7A9E4D0B2E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673470   (165358) от 01.11.2023
-
-Electric Sun - Earthquake (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Electric Sun (05:27)
-02 - Lilac (02:51)
-03 - Burning Wheels Turning (06:42)
-04 - Japanese Dream (04:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8C75D52A4E3CE89DB5FF78902F2D5749B6C8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576373   (164935) от 01.11.2023
-
-In This Moment - Studio Albums (8 Releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Industrial Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164935.jpg" />
-</div>
-
-
-###  Подробнее
-
-In This Moment — американская группа, образованная в Лос-Анджелесе вокалисткой Марией Бринк и гитаристом Крисом Хоувортом в 2005 году. Также к группе присоединился барабанщик Джефф Фабб. В начале творческого пути трио выступало под именем Dying Star. Недовольная своим музыкальным стилем, группа полностью изменила звучание, и сменила название на In This Moment и также (   Читать дальше...   )2007 - Beautiful Tragedy
-2008 - The Dream
-2010 - A Star-Crossed Wasteland
-2012 - BloodЖанр: Gothic/Industrial Metal, MetalcoreПродолжительность: 07:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E9C98D858F5000466361A1FFC82009093AEC33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554322   (163795) от 17.12.2022
-
-Stratovarius (Kotipelto, Cain's Offering) - Studio Albums (23 releases) (1989 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stratovarius — финская англоязычная пауэр-метал-группа, образованная в 1984 году, изначально под названием Black Water. Пришедший в группу в 1985 году гитарист Тимо Толкки стал основной движущей силой в группе и сформировал звучание в стиле спид-метал. Stratovarius стали одними из ранних исполнителей пауэра и существенно повлияли на развитие этого направления.1989 - Fright Night
-1992 - Twilight Time
-1994 - Dreamspace
-1995 - Fourth DimensionЖанр: Melodic Power MetalПродолжительность: 23:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3779ED687AD3D9EBE0DCD07CD9905A7BB50A4421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673744   (163596) от 03.11.2023
-
-Riverside - Out of Myself (2003) Reissue 2021, Sony Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163596.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - The Same River
-A2 - Out Of Myself
-A3 - I Believe
-A4 - Reality Dream(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC86F13BDF95ABAEA3E89E7F2A4644B0592ABF43
 ```
 
 https://mybot314.ru/tekegram_catalog/

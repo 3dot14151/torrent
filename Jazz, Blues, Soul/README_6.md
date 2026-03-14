@@ -1,3 +1,61 @@
+###  Публикация: 1842057   (1048334) от 14.12.2025
+
+Omar And The Howlers - Downtown Boogie (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hideaway (2:58)
+02.  If Walls Could Talk (1:59)
+03.  Slow Down (3:04)
+04.  Grits Ain't Groceries (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B4F43670C0427167809946D479B87D3D0A09E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842059   (1048333) от 14.12.2025
+
+Paul Cebar - Paul Cebar (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bob Jennings - When We Sing (2:39)
+02.  Mike Fredrickson - We Sure Got Enough (3:26)
+03.  Scott Ligon - Sunday Ride (3:34)
+04.  Reggie Bordeaux - Keep On (Lookin' Like That) (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA9142A02AA4B3A21E3F91C6F3D88B479E09479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842063   (1048332) от 14.12.2025
 
 Robert Jon & The Wreck - Heartbreaks & Last Goodbyes (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -687,64 +745,6 @@ Jeanette Berger - Live in Studio (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838F0F2A519752F7980560CCD7B1631626E6035C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601454   (1046419) от 01.01.2023
-
-Rob Galbraith - Songs From St. James CME (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus Help Me Through This Life (2:39)
-02. I Just Came By This Morning (2:28)
-03. If I Can Just Get You To Jesus (3:05)
-04. Don't Be Like That (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5880785988B8B4BE0365C3EC4EC97BE59F1C91B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601771   (1046354) от 02.01.2023
-
-Cyrus Chestnut - Kaleidoscope (2018) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golliwog's Cakewalk [5:06]
-02. Darn That Dream [5:10]
-03. Gymnopedie No.1 [6:19]
-04. Entre cloches [5:48](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead Jazz, Piano JazzПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B7AB661B7DAFF4AC90CB7C0A92442BFDA8A257
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1477182   (1010807) от 16.06.2021
+
+Sophie Ellis‐Bextor - Trip the Light Fantastic (2007) [FLAC|Lossless|tracks + .cue] <Europop, Electro, Synth-pop >
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catch You (radio version)
+ 02. Me and My Imagination
+ 03. Today the Sun’s on Us
+ 04. New York City Lights(   Читать дальше...   )Жанр: Europop, Electro, Synth-popПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58457BDDB126A785DA8B748B38B313DF1F8F30E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477959   (1010663) от 17.06.2021
+
+VA - Vaccine of Sadness (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Rodrigo - drivers license (04:02)
+02. Lewis Capaldi - Someone You Loved (03:02)
+03. Maroon 5 - Sad (03:14)
+04. Lady Gaga - Dope (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2675A0334D5A744A1653DE73D56D29E81B9AF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478588   (1010195) от 20.06.2021
+
+VA - Goodbye My Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marshmello - Leave Before You Love Me (02:35)
+02. Katy Perry - The One That Got Away (03:47)
+03. Maroon 5 - Beautiful Goodbye (04:15)
+04. Lewis Capaldi - Before You Go (03:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D968EDED87421EF4C0015B1462CD4BADE890D66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478646   (1010192) от 20.06.2021
+
+VA - Acoustic Summer 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Wild World (Acoustic) (03:20)
+02. Shannon & Keast - Do I Wanna Know (Acoustic) (04:17)
+03. Logan York - Cheerleader (Acoustic) (03:36)
+04. Talisha Karrer - Everybody Hurts (Acoustic) (03:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D45AF5D5E0EA4EB4EF907D7CE452F61B75B9D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478647   (1010176) от 20.06.2021
 
 VA - Acoustic 10s and 20s Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -630,122 +746,6 @@ VA - 80s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9049181F0DCA5BCA8FBE843C6DC91FBC8767DFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487464   (1003053) от 07.08.2021
-
-Billie Eilish - Happier Than Ever (2021) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Getting Older (4:04)
- 02. I Didn’t Change My Number (2:38)
- 03. Billie Bossa Nova (3:17)
- 04. my future (3:30)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33CF4D1D9E938FE535A541669836724CCBC539A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350735   (1002935) от 07.01.2020
-
-Pink (P!NK) - Greatest Hits... So Far 2019!!! (2010/2019) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So What (3:36)
-02. F**kin Perfect (3:33)
-03. Raise Your Glass (3:23)
-04. Get The Party Started (3:13)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0835677630566AC6B4BC17FF05CEBD5A6B555613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350881   (1002683) от 08.01.2020
-
-a-ha - Minor Earth | Major Sky (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minor Earth Major Sky (Early Version) (5:48)
-02. Little Black Heart (Alternate Mix) (4:35)
-03. Velvet (Early Version) (5:19)
-04. Summer Moved On (Early Version) (4:38)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDEF740A66B25A704C2D549A46B3D18C5BBBA95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488051   (1002493) от 09.08.2021
-
-VA - 100 Hits Number 1's (2018) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002493.jpg" />
-</div>
-
-
-###  Подробнее
-
-У каждого исполнителя есть несколько хитов, которые мы называем номер 1. Это по мнению большинства - вершина достижений каждого из исполнителей. Вот три года назад Demon Music Group решила собрать под обложкой одного бокссета такие высшие достижения некоторых исполнителей и дать возможность слушателям вспомнить и насладиться ещё раз хитами прошлого. Вряд ли Вы для (   Читать дальше...   )CD1:
-01. Britney Spears - …Baby One More Time  (3:31)
-02. Justin Timberlake feat. Timbaland - Sexyback  (4:03)
-03. Shakira feat. Wyclef Jean - Hips Don’t Lie  (3:39)(   Читать дальше...   )Тип издания: Box Set, 5 CDРелиз состоялся: 02 ноября 2018Жанр: Pop, Rock, DanceПродолжительность: 06:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE4F3E95494B5BF7A7600AADDF4AD4C13C9D75E
 ```
 
 https://mybot314.ru/tekegram_catalog/

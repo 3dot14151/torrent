@@ -1,3 +1,191 @@
+###  Публикация: 296892   (885256) от 19.02.2011
+
+Агата Кристи - Сборник видеоклипов (1993-2003)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75130B978045A3B8804181DAA973A7C0127A4A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995213   (884290) от 11.03.2016
+
+History of Rock (2016) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884290.jpg" />
+</div>
+
+
+###  Подробнее
+
+A History of Rock за 15 минут. 348 рок звёзд, 84 гитариста, 64 песни, 44 ударника, в одном клипе!Производство: 00:49:25Жанр: RockРежиссер: Ithaca AudioПродолжительность: 00:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43FC0F1B877CAC8CB25B3951883AFCF24DB5708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372669   (883628) от 04.04.2020
+
+Testament - Children Of The Next Level (2020) WEBRip [VP9/2160p-LQ] <Thrash, Heavy Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Testament - Children Of The Next Level (2160) PCMПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8265FC9DCCB4E9CA444D1A61FDABD9EC1CFF02CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372777   (883626) от 04.04.2020
+
+Hocico - 6 Music Videos (2008-2019) WEBRip [VP9/H.264/2160p/1080p/480p-LQ] <EBM, Dark Electro>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883626.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2008 Hocico - Drowning - Banned (480)
+002 2009 Hocico - Born To Be (Hated) (Metetelo Por El Culo) (480)
+003 2011 Hocico - Bite Me! (1080)
+004 2015 Hocico - Bienvenido A La Maldad (1080)(   Читать дальше...   )Производство: Out Of LineЖанр: Aggrotech, EBM, Dark Electro, Electro-IndustrialПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9B8DF6AE67E058A3E5362ADD4324810DB1B6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 118791   (883304) от 24.03.2010
+
+Drum'n'Bass Clips. Коллекция музыкальных драм'н'бэйс клипов. (Обновлён 24.03.2010) DVDRip, SATRip (158 клипов)
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Drum'n'Bass / JungleФормат: AVI, MPG, MKV, WMV, MOV
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641931   (881012) от 10.04.2013
+
+Sarah Brightman - Angel (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_881012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D296AD8290D0C9A1D53B022FD5594F30D4465D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 642092   (880802) от 10.04.2013
+
+Сборник клипов - VA - Various Music part. 41 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_880802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alyona Lanskaya - Solayoh (Belarus) 2013 Eurovision Song Contest 1080p (3:07)
+2. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like 1080p (4:09)
+3. BAZUKA - Good For Me 720p (2:53)
+4. BAZUKA - Suck My Ass 720p (2:46)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8738D5E68BF365811D3D237D7A24D143533DE37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 136931   (880669) от 21.02.2011
 
 Видеоклипы российских исполнителей / Russian Music Videos [VOB] [DVD5, DVD9]
@@ -511,192 +699,6 @@ Gangnam Style 3D / PSY - Gangnam Style (2012) HDRip [H.264/1080p]  [ Гориз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B42D7985B869CC4A45DEB4BCBED6FF2B1A97BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766413   (867087) от 16.03.2014
-
-Демонстрационный DVD-Video диск #2. Dolby Digital 6.1, DTS Multichannel Sound 6.1 [DVD5]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Демонстрационные музыкальные клипыПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDA5F313A85175D4B1C3F56BEFA9CDDEB97EE4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375037   (867033) от 13.04.2020
-
-Torrential Rain - Home Alone (2020) WEBRip [VP9/2160p-LQ]<Electronic Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Torrential Rain - Home AloneЖанр: Electronic MetalcoreПродолжительность: 00:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA4F979839B1A4144235FF3BB0107EECAE334FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302073   (866889) от 01.03.2011
-
-Кипелов - Жить вопреки (Бонус-DVD) (2011) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка / Heavy MetalПродолжительность: интервью: 00:37:53
-фотогалерея: 00:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D8F662B568624635B918850F994158FEC493DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645345   (865656) от 18.04.2013
-
-Calvin Harris feat. Ellie Goulding - I Need Your Love (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro, HouseПродолжительность: 00:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B90B65B3D284017ED3A9B93B23A39308BFAE03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645347   (865575) от 18.04.2013
-
-2 Chainz ft. Lil Wayne - Yuck (Uncensored) (2013) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB35F510CB7C5E1D1FFF3C6078CFF11D59F8B300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189176   (864656) от 04.04.2010
-
-A-Teens - Music Video (Клипография) (1999-2004) DVDRip,TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно испытал жестокий приступ ностальгии, и в результате появился этот релиз. Это та самая группа - продолжательница дела легендарной ABBA, также известная по большому количеству всевозможных кавер-версий и безумно популярная в 2000 году (а может и сейчас даже найдутся поклонники). Очень красочное видео и незамысловатый текст песен - одним словом - Europop. Дорожки (   Читать дальше...   )01. Gimme! Gimme! Gimme! (A man after midnight) {03:42} (1999)
-02. Mamma mia {03:43} (1999)
-03. Super trouper {04:27} (1999)
-04. Dancing queen {04:26} (2000)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375133   (863867) от 15.04.2020
-
-We Blame The Empire - Updraft (2020) WEBRip [H.264/1080p-LQ] <Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863867.jpg" />
-</div>
-
-
-###  Подробнее
-
-CDA We Blame The Empire (2020) AeroПроизводство: Animals Mosh Harder RecordsЖанр: MetalcoreПродолжительность: 00:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA32B99DCD6469B16AE31680D9FDE6062FC375B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

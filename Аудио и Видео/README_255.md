@@ -1,3 +1,32 @@
+###  Публикация: 1430684   (169850) от 11.12.2020
+
+Владимир Высоцкий - Оригинал первый (апрель 1972 года) (2020) [AAC|~172 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Певец у микрофона (4:14)
+02. На маскараде (2:44)
+03. Марш аквалангистов (1:41)
+04. Оловянные солдатики. Детская песня (2:08)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E457A0EDF35BC29C4AE0AD601B88177EC8DEEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430708   (169845) от 11.12.2020
 
 Владимир Высоцкий - Оригинал пятый (октябрь - декабрь 1973 года) [Часть 2] (2020) [AAC|~189 Kbps] <Acoustic, Chanson, Ballad>
@@ -714,35 +743,6 @@ VA - Urban Soulful Grooves, Vol. 4: Urban Vibes for Urban People (2021) [AAC|~32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:595039CD20ED16FDC2E739B5F29679D60EA569CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515275   (169666) от 07.12.2021
-
-VA - Chill Out 2022 (Compiled by DoctorSpook) (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barby - Angel Droid (9:32)
-02. Sixsense - Wherever You Are (4:17)
-03. The Big Port - Another World (4:40)
-04. TrapaleX - BimBam (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1498448C828D9C8BF460124AB7D4B54AF836142
 ```
 
 https://mybot314.ru/tekegram_catalog/

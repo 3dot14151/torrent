@@ -1,3 +1,32 @@
+###  Публикация: 1264077   (282274) от 22.11.2018
+
+VA - Dance Generation: EDM Megamix (2018) [MP3|320 Kbps] <Dance, Club, Electro Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282274.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jonas Blue Back & Forth - Back & Forth
+002. Panic! At The Disco - King Of The Clouds
+003. Athena Manoukian - I Surrender
+004. Charlie Brennan And Miller Guth - When We Were Young(   Читать дальше...   )Жанр: Dance, Club, Electro DanceПродолжительность: 11:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C69BD62359061CE476FDA03896C1B0A4EC76664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186508   (282184) от 27.11.2017
 
 VA - По волне моей памяти 2: Том9 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
@@ -714,35 +743,6 @@ VA - По волне моей памяти 2: Том19 (Compiled by Виктор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:195A3ADF36FD0A600917EF97F5BA711E046DC96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187642   (277145) от 30.11.2017
-
-VA - По волне моей памяти 2: Том17 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ВИА Весёлые Ребята  -  Доброте предела нет! 3:30
-02.  Красные маки  -  Трудно расстаться 2:22
-03.  Аракс  -  Молодость 3:18
-04.  Кино  -  Кончится лето 5:56(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AC04BA40471288A76D88C72E5CCBF1BBFB78AE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

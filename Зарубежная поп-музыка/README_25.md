@@ -1,3 +1,61 @@
+###  Публикация: 1282892   (742459) от 14.02.2019
+
+Patricia Paay - 4 Albums (1975-1981) LP [MP3|320 Kbps] <Europop, Pop Rock, Disco, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Patricia Paay -  голландская поп исполнительница, радиоведущая, гламур модель, звезда телевидения.Список альбомов:
+1975 - Beam Of Light
+1977 - The Lady Is A Champ
+1978 - Malibu Touch(   Читать дальше...   )Жанр: Europop, Pop Rock, Disco, BalladПродолжительность: 02:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDCBB744B7F5F10068F0100760E0E2CB2F42E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217445   (742409) от 05.04.2018
+
+Deana Carter (Дина Картер) - Father Christmas (2001) Rounder Records [MP3|320 Kbps] <Country, Alternative Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. I'll Be Home for Christmas 4:47
+02. The Christmas Song 4:42
+03. Merry Christmas Darling 3:28
+04. Blue Christmas 3:54(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F26258B6ED3ED69B321B429F7BAC3DDE496B9BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021200   (741720) от 28.05.2016
 
 Sandra - The Very Best Of Sandra (2016) 2CD, Compilation [MP3|320 кб/с] <Pop>
@@ -687,64 +745,6 @@ VA - Inner Light - Retrowave Sounds (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7171F612825E710E2EE7B420FD6F3746D30782A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283741   (731950) от 18.02.2019
-
-VA - Car Songs: The 70s (2019) 4CD [MP3|320 Kbps] <Pop Rock, Disco, Jazz>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731950.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. McFadden & Whitehead - Ain't No Stoppin' Us Now
-02. Earth, Wind & Fire - September
-03. Heatwave - Boogie Nights(   Читать дальше...   )Жанр: Pop Rock, Disco, JazzПродолжительность: 04:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3D668C2C472E4F7F5F8BE091328F5B28EAA16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283738   (731715) от 18.02.2019
-
-VA - 100 Hits - The Best 80s Album (2018) 5CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731715.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Bonnie Tyler - Holding Out For A Hero
-02. Cyndi Lauper - I Drove All Night
-03. Belinda Carlisle - Leave A Light On(   Читать дальше...   )Жанр: PopПродолжительность: 06:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896AD27518F9B7A664F48A6D9D9813AEE6673A9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

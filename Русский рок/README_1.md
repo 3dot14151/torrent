@@ -1,3 +1,61 @@
+###  Публикация: 1602303   (1046130) от 05.01.2023
+
+Нет Крови - 3 Albums (2019-2023) [MP3|320 Kbps] <Gothic, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2019 - Под луной, Part 1 (Version 2019)
+2020 - Под Луной, Pt.2
+2022 - Под Луной, Pt. 3Жанр: Gothic, Heavy MetalПродолжительность: 3 CD, 02:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19B40B1643D69105269F0CB2354A1AD5EE5CC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602294   (1046129) от 05.01.2023
+
+ДекаЛог - 2 Albums (2019-2022) [MP3|320 Kbps] <Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нам нужна любовь [00:04:46]
+02. Ты далеко [00:03:58]
+03. Кто ты [00:03:16]
+04. Ад для нас [00:04:32](   Читать дальше...   )Жанр: IndustrialПродолжительность: 2 CD, 01:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B92909552D611A3646B9B069005673C7230E56A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602266   (1046128) от 05.01.2023
 
 Istomin - Пустошь (2023) [MP3|320 Kbps] <Heavy Metal>
@@ -685,64 +743,6 @@ Kiberspassk - 2 Albums (2021-2023) [MP3|320 Kbps] <Industrial Rock, Breakcore, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9047E34E10CA3112A94CCEC5FCE87122C035844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606841   (1044320) от 23.01.2023
-
-Комната Возле Окна - Возврату не подлежит (2023) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Бис [00:04:14]
-02 - Не нужно [00:04:23]
-03 - Крылья [00:04:18]
-04 - Аврора [00:05:12](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A5046704C95705F79FB8B0430D8FFEB2F802C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606814   (1044296) от 23.01.2023
-
-The Hatters - По ходу люблю (2023) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044296.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Просто проваливай
-2. У-ля-ля
-3. Знаю
-4. Hey You(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E56D730437CC725496E59A9E677AA7550F9C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

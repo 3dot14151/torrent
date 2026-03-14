@@ -1,3 +1,148 @@
+###  Публикация: 1794845   (19681) от 01.05.2025
+
+VA - 90s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madonna - Vogue (4:49)
+02. THE GOO GOO DOLLS - Iris (4:49)
+03. Diddy - I’ll Be Missing You (feat. Faith Evans & 112) (5:06)
+04. Alanis Morissette - Ironic (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 04:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C8DB3F53F1ACF684879E1EF4DEB0F0E4B7FD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795323   (19490) от 03.05.2025
+
+Thomas Anders - … Sings Modern Talking: Let's Talk About Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19490.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cheri Cheri Lady (Thomas' Version) (3:45)
+02. With a Little Love (Thomas' Version) (3:17)
+03. Wild Wild Water (Thomas' Version) (4:23)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE64BD8FA1B26A3FEF35A4A5939A149E86408FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795224   (19447) от 03.05.2025
+
+Suzanne Vega - Flying with Angels (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speakers' Corner
+02. Flying with Angels
+03. Witch
+04. Chambermaid(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D2368EA84081300B019E02CB102EA158D13B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795458   (19164) от 06.05.2025
+
+VA - Like, Omigod! The '80s Pop Culture Box (Totally) (2002) 7 x CD, Compilation, Remastered Box Set [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop, New Wave, Hip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bananarama - Venus (3:50)
+02. Bangles - Walk Like an Egyptian (3:24)
+03. Art of Noise - Paranoimia (3:19)
+04. Orchestral Manoeuvres in the Dark - If You Leave (4:26)(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, New Wave, Hip HopПродолжительность: ~09:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFA29ED278D41D6253CC6B687A552AA67CFFAEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796620   (18606) от 11.05.2025
+
+V.A. - 00s Love Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Blunt – You’re Beautiful
+02. Coldplay – Fix You
+03. Jason Mraz – I’m Yours (Radio Edit)
+04. Paramore – The Only Exception(   Читать дальше...   )Жанр: PopПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB048D9CE503E176F77B21CC03D3DFB305610A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797592   (17989) от 17.05.2025
 
 Britney Spears - Oops!... I Did It Again (2000) 25th Anniversary Edition, 2025, Sony Music [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -598,151 +743,6 @@ Elton John - Greatest Hits 1974 (1992) CD, Compilation, Reissue [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61DE005C53ABAFFB98E9C1FAAF5D1A61CE8D6FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805851   (12007) от 09.07.2025
-
-VA - Summer House Music 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bl3ss & Camrinwatsin - Kisses (Feat. Bbyclose) 02:18
-02. Lf System - Afraid To Feel 02:58
-03. A7s - Dumb 02:30
-04. Billy Gillies - Dna (Loving You)Жанр: Pop, DanceПродолжительность: 02:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED4C548F147CDEC673F8C9760D460911F46C188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806798   (11530) от 14.07.2025
-
-Thomas Anders - …Sings Modern Talking - Ready For Romance - Thomas' Version (2025) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11530.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Thomas Anders - …Sings Modern Talking - Ready For Romance:
-01. Brother Louie (Thomas' Version) 3:53
-02. Just We Two (Mona Lisa) (Thomas' Version) 4:10
-03. Lady Lai (Thomas' Version) 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 02::10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF63E1B1560E6C6A12FEB507E6A4D1D527B0DEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808456   (10395) от 25.07.2025
-
-Sandra - Paintings In Yellow (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiroshima (6:52)
-02. (Life may be) A Big Insanity (4:30)
-03. Johnny Wanna Live (4:29)
-04. Lovelight In Your Eyes (5:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252FCCCD11799F220B45609DBC8D1C95DD9A991A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808454   (10364) от 25.07.2025
-
-Sade - Love Deluxe (1992) 1st Austrian Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Ordinary Love (07:21)
-02. Feel No Pain (05:09)
-03. I Couldn’t Love You More (03:50)
-04. Like a Tattoo (03:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0FF61244B539F5DE91C5618F6753577604C7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808451   (10362) от 25.07.2025
-
-Roxette - Joyride (1991) 1st UK Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joyride (4:24)
-02. Hotblooded (3:18)
-03. Fading Like a Flower (Every Time You Leave) (3:53)
-04. Knockin' On Every Door (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215F28F22AF3FCB58E0BA0AC681B9B18D19542A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

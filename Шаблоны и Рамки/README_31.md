@@ -1,3 +1,29 @@
+###  Публикация: 1345519   (166159) от 15.12.2019
+
+Рамки - GraphicRiver - Golden Photo Frame Template - 22665292 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Золотые рамки для фотографий.Формат: PSDРазрешение файлов: 1500x1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F1666D3E579F05841A1332E42474556DA6A75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345875   (165645) от 16.12.2019
 
 Шаблоны - Adobe Stock - Tablet Surrounded by Valentine's Day Elements - 246885760 [PSDT]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60303A809F8F646817B6424ED8563429511AB1D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433911   (154216) от 22.12.2020
-
-Шаблоны - GraphicRiver - Phone 12 Case 3d Mockup - 29444862 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 6 реалистичных и простых в редактировании iPhone 12 Case 3D Mockup для Photoshop.Формат: PSDРазрешение файлов: 6000×6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E1325B361D2840B382ED6DA0FEBDA28EC3FF50
 ```
 
 https://mybot314.ru/tekegram_catalog/

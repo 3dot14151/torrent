@@ -1,3 +1,38 @@
+###  Публикация: 488324   (129280) от 28.04.2012
+
+VA - Клубные Новинки Vol.65 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Bayer feat. Molly Bancroft - Keep Your Secrets (Original Mix)
+02. Beyonce - Love On Top (DJ Escape & Tony Coluccio Remix)
+03. Amelle feat. DBX - God Won't Save U Now (7th Heaven Club Mix)
+04. Matt Bukovski - Alterations (Original Mix)
+05. Sultan & Ned Shepard feat. Quilla - Walls (Original Mix)
+06. Toni Braxton - I Heart You (Mark Picchiotti Re-Imagined Vocal Mix)
+07. Rita Ora feat. Tinie Tempah - R.I.P. (Seamus Haji Club Mix)
+08. ReOrder & Stine Grove - Seize The Day (Original Mix)
+09. Claes Rosen - Whats Up Tonight (2012 Rework)
+10. Avicii feat. Salem Al Fakir - Silhouettes (Vocal Mix)2012Жанр: Club, DanceПродолжительность: 04:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD8E45E5C3C818E1F36777961A99F4167E6C0A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489364   (129270) от 28.04.2012
 
 VA - Club Charts Vol.2 (2012) [MP3|256 кб/с]<Dance, Club>
@@ -740,35 +775,6 @@ VA - Music News vol.330 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB5F6C768DC47F2CAAD69F7D4F1C3D79F233497E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691334   (123199) от 13.01.2024
-
-VA - Mega Dance Hits Collection (1990-2001) [MP3|320 кб/с] <Eurodance, Euro-House, Pop, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123199.jpg" />
-</div>
-
-
-###  Подробнее
-
-0001. Mr. John - It's Not Too Late (Extended Club Version)
-0002. King Of Paradise - Give Me Your Love (My Desire Mix)
-0003. Space Master - World Of Confusion (Extended Mix)
-0004. DJ Bobo - Respect Yourself (B+B Remix)(   Читать дальше...   )Жанр: Eurodance, euro-house, pop, technoПродолжительность: 465:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14329F610744D7CFA4E296740B526D00046D2B2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

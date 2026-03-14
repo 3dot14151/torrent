@@ -1,3 +1,32 @@
+###  Публикация: 1542088   (641103) от 05.04.2022
+
+Lamuzgueule - Iceberg Club: Supplement Caramel (Reedition) (2022) [AAC|~321 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641103.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Stracciatella (Intro) (0:32)
+1.02. Ice Cream (3:28)
+1.03. Triple Lutz (3:50)
+1.04. Marshmallow (3:51)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 01:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05CEA36188EA152135B5CFABBE5B8F3BAF9E278C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541769   (641098) от 05.04.2022
 
 VA - Candy Girls (Indie Hearts Voices) (2022) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
@@ -675,35 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD7AA276895176B3D822976200C72AA4F6F45CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907163   (639447) от 11.06.2015
-
-Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HBO Series) Season 5 (2015) [AAC|WEB-DL|256 кб/с]<Soundtrack>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:46)
-02. Blood of the Dragon (01:34)
-03. House of Black and White (05:09)
-04. Jaws of the Viper (02:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807B37FF48169F55E769E2130EE71DA905D7A5D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

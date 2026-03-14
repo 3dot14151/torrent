@@ -1,3 +1,119 @@
+###  Публикация: 1151830   (694127) от 02.03.2022
+
+Shy - Excess All Areas (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694127.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Emergency
+A2 Can't Fight The Nights
+A3 Young Heart
+A4 Just Love Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEBED8B5EB0AAA6D219FDB7F9D961E29262A747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150975   (694000) от 02.03.2022
+
+George Harrison - Somewhere In England (1981) [FLAC 2.0|192/24|image+.cue|Vinyl-Ri] <Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694000.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Blood From A Clone
+A2 Unconsciousness Rules
+A3 Life Itself
+A4 All Those Years Ago(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B1F8F64BFB391086913FC53E92A74495250133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221228   (692986) от 25.04.2018
+
+группа ЛЕДИ - Горькая ложь (1991) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692986.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:17] 01. На Дискотеке
+[4:16] 02. Какой же ты суровый
+[3:35] 03. Южный(Нежный) город
+[3:49] 04. Я как птица на свет(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E910DCF892C1980FB42D6F25C243D9797420D8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534675   (690520) от 04.03.2022
+
+The Beatles - The Beatles (White Album) (1968) 1977 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690520.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Back In The U.S.S.R.
+A2 Dear Prudence
+A3 Glass Onion
+A4 Ob-La-Di, Ob-La-Da(   Читать дальше...   )Жанр: Pop Rock, Psychedelic RockПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2AAA4FD7082BA267DE6AA85CF1AFA0C6F3B14B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534515   (690368) от 04.03.2022
 
 Scorpions - Rock Believer (2022) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Rock>
@@ -646,119 +762,6 @@ VA - Dance Hits Collection (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Disco, Eur
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B3C16641CB9BFC79448C46B8450579E0C82AC33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798239   (671197) от 21.06.2014
-
-Генрик Шеринг - Л. Бетховен (Концерт для скрипки с оркестром) (1987) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Allegro Ma Non Troppo  25:22
-Сторона 2
-1. Larghetto. Rondo, Allegro  20:02Жанр: ClassicalПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B6AC8E01730AFBF2D1C1B0635D232EEF54676C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537164   (669316) от 15.03.2022
-
-Oscar - Oscar (1974) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669316.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Well Known Lady
-A2 Good Loving Woman
-A3 Encore After Encore
-A4 Hugo(   Читать дальше...   )Жанр: Glam Rock, Pop RockПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537150   (669264) от 15.03.2022
-
-Wes Montgomery - A Day In The Life (1967) 1984 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669264.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A Day In The Life
-A2 Watch What Happens
-A3 When A Man Loves A Woman
-A4 California Nights(   Читать дальше...   )Жанр: JazzПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136C5507E207F16C4F3C12B39B404209A033BEA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789598   (669152) от 22.06.2014
-
-Scorpions - 2 Альбома (1977-1993) [FLAC 2.0 24/192] image + .cue, (Vinyl-Rip)<Hard Rock><Hard Rock, Heavy Metal>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard Rock, Heavy MetalПродолжительность: 01:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E77FA18272F09C8F7AC35C06949DC6B5FE99606
 ```
 
 https://mybot314.ru/tekegram_catalog/

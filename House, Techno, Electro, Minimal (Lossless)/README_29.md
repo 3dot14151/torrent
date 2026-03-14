@@ -1,3 +1,90 @@
+###  Публикация: 1534904   (690530) от 04.03.2022
+
+Blank & Jones - #WhatWeDoAtNight 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco, Indie Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beach (3:45)
+ 02. Storm (2:40)
+ 03. Lush (3:29)
+ 04. Equator (3:13)(   Читать дальше...   )Жанр: House, Nu Disco, Indie DanceПродолжительность: 00:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C31577BDA77F27692167F89A1CF1229A8EBAE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534960   (690514) от 04.03.2022
+
+Bob Moses - The Silence in Between (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Deep House, Hardcore House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seen it Coming (4:13)
+ 02. Love Brand New (3:18)
+ 03. Never Ending (4:02)
+ 04. Time and Time Again (5:40)(   Читать дальше...   )Жанр: Electro House, Deep House, Hardcore HouseПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5416AB4B67B03244DCE60082EF0D3F95D3C551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028675   (688762) от 23.06.2016
+
+GusGus vs. T-World - GusGus vs. T-World (2000) [FLAC|Lossless|tracks+.cue] <Techno, Progressive House, Trance, Breaks, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthem (07:51)
+02. Northern Lights (06:12)
+03. Earl Grey (07:06)
+04. Purple (09:20)(   Читать дальше...   )Жанр: Techno, Progressive House, Trance, Breaks, DowntempoПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543D398206F866202925DDB2F6D6E01A55E4453B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403669   (688568) от 21.08.2020
 
 Cut Copy - Freeze, Melt (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Dance Punk, Indie>
@@ -654,93 +741,6 @@ Monolink - Burning Sun (2017) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD48892E4A2CD26CF1BEFF8B3E319DF7BBFFD016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030136   (676530) от 29.06.2016
-
-Solid Stone - Introspection (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solid Stone - Introspection (5:09)
-02. Solid Stone - Broken (6:28)
-03. Solid Stone & Wellenrausch - Ursa Major (7:21)
-04. Solid Stone - Profound (4:49)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F15E8B07DA4D36DD55326E4708745717C77E2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030475   (674688) от 30.06.2016
-
-S'express - Enjoy This Trip (2016) [FLAC|Lossless|tracks] <House, Deep House, Soul>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From S'Express (Tom Furse Update) (4:37)
-02. Pimps Pushers Prostitutes (Horsemeat Disco Remix) (feat. Billie Ray Martin) (5:47)
-03. Hey Music Lover' (Punks Jump Up Excursion Album Version) (4:01)
-04. Mantra Mania (Monarchy Remix) (4:53)(   Читать дальше...   )Жанр: House, Deep House, SoulПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:094636209A8D00565F30FD04210E13A9FBEAC097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030617   (674572) от 30.06.2016
-
-VA - In The Mix 002 - Progressive Sessions (Mixed by Audio Noir) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manu Delago - Chemical Reaction (feat Rahel) (7:05)
-02. Lux Departure - Twenty Forty Six (Yoky Playground remix) (7:20)
-03. Moonbeam - Black Skies (feat Loolacoma - extended mix) (7:07)
-04. Dofamine - Moon (8:35)(   Читать дальше...   )Жанр: Progressive House, Tech House, TechnoПродолжительность: 05:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5564A9D456A1338EFAFD3472B459845C6B78B211
 ```
 
 https://mybot314.ru/tekegram_catalog/

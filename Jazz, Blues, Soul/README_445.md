@@ -1,3 +1,177 @@
+###  Публикация: 1672883   (167325) от 30.10.2023
+
+Bill O'Connell - A Change Is Gonna Come (2022) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment's Notice [8:08]
+02. Loco-Motive [6:06]
+03. Covid Blues [5:08]
+04. A Change Is Gonna Come [6:38](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D1984DFED7D6714AC9C497A07BA20EC704AC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672884   (167314) от 30.10.2023
+
+Zoe Rahman - The Cynic (2000) Manushi Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. October [6:27]
+02. Apple Pie [5:48]
+03. Monica [5:14]
+04. The Cynic [5:02](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A832FA68ACAED959F9ECCA51E91BE8B912A8F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672881   (167300) от 30.10.2023
+
+Jeff Lorber - The Definitive Collection (2000) Arista [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Funk, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tune 88 [4:32]
+02. Water Sign [4:37]
+03. Night Love [5:15]
+04. Fusion Juice [4:14](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, Jazz FusionПродолжительность: 01:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA7F463C1EBE4784F3B43FCC153622B6DEE2B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672926   (167205) от 30.10.2023
+
+VA - Cool Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dave Brubeck Trio - Avalon (Album Version) (2:06)
+02. Modern Jazz Quartet - Rose Of The Rio Grande (2:13)
+03. The Dave Brubeck Trio - Perfidia (Album Version) (2:17)
+04. The Dave Brubeck Quartet - Lulu's Back In Town (2:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F4CC772297F3B63A71D2B9C4DCB456F930EF24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673033   (167193) от 30.10.2023
+
+Kammerflimmer Kollektief - Schemen (2023) [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Jazz Noir>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erstes Kapitel (verschliffen) (8:17)
+02. Zweites Kapitel (ruckartig) (8:09)
+03. Drittes Kapitel (ungesagt, dann vergessen) (3:25)
+04. Viertes Kapitel (bewusstseinsfrei) (4:48)(   Читать дальше...   )Производство: Karlrecords - KR101Жанр: Experimental, Ambient, Avantgarde Jazz, Jazz NoirПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76B8446F95947425020137647636315F73BC3B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672927   (167128) от 30.10.2023
+
+VA - Laid-Back Groovy Romantic Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Warm Summer Nights (4:42)
+02. Chillaxing Jazz Kollektion - Colors (5:07)
+03. eJazz Artistry - I Can't Stop Loving You (4:22)
+04. Kool&Klean - Kiss & Dance (4:44)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8563BF4DF13C7529689A11CBBBD6FBB8A1D73D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516163   (167058) от 10.12.2021
 
 Harry James - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -571,180 +745,6 @@ Yves Brouqui - Live At Smalls (2002) Elabeth [FLAC|Lossless|image + .cue] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE4F710884917CCED7ADA2B76EE7B59CDF89BD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673179   (166506) от 31.10.2023
-
-Toshiyuki Miyama And His New Herd - Tribute (1978) 1991, Teichiku Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matrix [4:25]
-02. Seth Song [6:08]
-03. Collins Street [5:09]
-04. For Erroll [5:58](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CA420DAF6BD1EBAA6820ECC87327891F9DCD81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673177   (166352) от 31.10.2023
-
-Chet Baker Trio - Live in Paris: The Radio France Recordings (1983 - 1984) 2CD, 2022, Elemental Music [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arbor Way [18:55]
-02. Strollin' [14:27]
-03. Margerine [9:53]
-04. Lament [15:15](   Читать дальше...   )Жанр: CoolПродолжительность: 02:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B20605E8163214BDD03CB4C55C20D05419B2F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516427   (166257) от 11.12.2021
-
-Erroll Garner - 1944-1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaslight [10:16]
-02. Red Cross [7:27]
-03. He Pulled A Fast One (Part 1) [2:50]
-04. He Pulled A Fast One (Part 2) [3:42](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC02169AAB7B5DAACD7A58113AA17F8DC59631C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516416   (166233) от 11.12.2021
-
-Lee Konitz & The Brazilian Band - Brazilian Serenade (1996) Venus Records [FLAC|Lossless|image + .cue] <Bossa Nova, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Favela [7:20]
-02. Once I Loved [6:31]
-03. Recado Bossa Nova [5:23]
-04. September [6:06](   Читать дальше...   )Жанр: Bossa Nova, CoolПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE08216592F513418F4122AAC3DACF8D799FDD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431752   (166202) от 15.12.2020
-
-Pat O'Bryan and Friends - Boomer's Last Stand (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pat O'Bryan and Friends, Elizabeth Lee -- Tell Me the Truth (feat. Elizabeth Lee) (4:26)
-02. Life During Plague Time (3:46)
-03. Chicago (4:50)
-04. Pat O'Bryan and Friends, Carolyn Wonderland-- She Looks Just Like You (feat. Carolyn Wonderland) (3:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984674445E9F0374C7C4DB93B98A9B3FA09BBD76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431909   (166196) от 15.12.2020
-
-Blue Contagion - Blue Contagion (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues; Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Ever Go to Memphis (3:46)
-02. Build It on a Rock (4:03)
-03. Like I Don't Care If I Die (4:05)
-04. Before the Light Fades (5:44)(   Читать дальше...   )Жанр: Blues; Blues RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639A024930CA8B4B1502A7ED01E0EEEEB8E4F58A
 ```
 
 https://mybot314.ru/tekegram_catalog/

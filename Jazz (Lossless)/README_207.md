@@ -1,3 +1,90 @@
+###  Публикация: 952883   (353790) от 02.11.2015
+
+Dizzy Gillespie - One Night In Washington (1955) /2013, Warner/[FLAC|tracks+.cue]<Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Afro Suite - Manteca [16:49]
+ 02.Hobnail Boogie [07:57]
+ 03.Wild Bill's Boogie [06:26]
+ 04.Caravan [05:16](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A5B8BC33B0D8B7210AD1D5E1E3BCAA6B3C2E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417909   (353679) от 22.10.2020
+
+Weather Report - Live In London (80-e) 2020, Angel Air [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corner Pocket [9:38]
+02. Unkown [13:56]
+03. Fast City [9:41]
+04. Where the Moon Goes [7:08](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83278AEEDC13DB8036A3CCF7140FE403085118AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417720   (353673) от 22.10.2020
+
+Glenn Miller Orchestra - The 40's Glenn Miller Orchestra (1993) [FLAC|Lossless|image + .cue] <Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wishing (Will Make It So) (2:52)
+02. Stairway to the Stars (2:54)
+03. Moon Love (2:55)
+04. Over the Rainbow (2:30)(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54AF4C0175947B3EBEAB7B8448695A239A3BCBD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952815   (353669) от 02.11.2015
 
 Harry Connick, Jr. - That Would Be Me (2015) /Columbia Records/[FLAC|image+.cue]<Vocal Jazz>
@@ -664,93 +751,6 @@ Ramsey Lewis & Nancy Wilson - The Two Of Us (1984) CBS [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEAA7C437B6073151448300DCE57FBB1392364EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179149   (351526) от 30.10.2017
-
-The Phil Woods Quintet - American Songbook (2002) 2006, Kind Of Blue [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Foggy Day [05:33]
-02. All The Things You Are [09:33]
-03. I've Got You Under My Skin [05:06]
-04. When The Sun Comes Out [05:21](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E541AE582CC48747976E878C41EF77687AB458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418111   (351491) от 23.10.2020
-
-Martial Solal & Johnny Griffin - In & Out (2000) Dreyfus Jazz [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Stepped Out of a Dream [7:13]
-02. Come With Me [6:10]
-03. In and Out [4:51]
-04. Hey Now [6:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69CFDBF195A4FFCBE34B861AFF0ACE36EA27BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418272   (351229) от 23.10.2020
-
-Melody Gardot - Sunset In The Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Love Me
-02. C’est Magnifique (ft. Antonio Zambujo)
-03. There Where He Lives In Me
-04. Love Song(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EC0B2081479A40A09095559DBB6B532F696557
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1730093   (107934) от 14.06.2024
+
+Ensiferum - Unsung Heroes (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symbols
+02. In My Sword I Trust
+03. Unsung Heroes
+04. Burning Leaves(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991272E0858EF8EFAC4C69FD8205EC17D1F90C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730137   (107933) от 14.06.2024
+
+Walt Disco - The Warping (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Seed (00:00:57)
+02 - Gnomes (00:03:34)
+03 - Come Undone (00:03:39)
+04 - The Warping (00:03:55)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DAC5556A9A264B9423BAA8C1CF271E05DD33361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730108   (107932) от 14.06.2024
+
+Ensiferum - Two Paths (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107932.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ajattomasta Unesta
+A2 For Those About To Fight For Metal
+A3 Way of the Warrior
+A4 Two Paths(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C21E15A7E0AA1E82F13AE0520D1622A5C0A9E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730130   (107931) от 14.06.2024
+
+Ebba Bergkvist & The Flat Tire Band - Four Wings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Wings (5:03)
+02. The Pack (3:32)
+03. Northeast Passage (4:07)
+04. Vice Versa (3:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B3E35CC9A8A69CE9AD85DD09C9FD1A6EA37966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730138   (107930) от 14.06.2024
+
+T-Dow - Vol. 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Stay (2:32)
+02. Until The Sun Goes Down (3:18)
+03. Trouble In My Way (3:42)
+04. Running Man (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1326141E0F4E9E91321BB873E09697E24AE06A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730094   (107929) от 14.06.2024
 
 John Grant - The Art of the Lie (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <synthpop, synthfunk, artpop>
@@ -600,151 +745,6 @@ Nation Beat - Archaic Humans (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15D0EE23B1A75057DB92C7A02758D5E15854FC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730739   (107836) от 17.06.2024
-
-Iiro Rantala - Tough Stuff (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tough Stuff (4:44)
-02. Tae Kwon Don't (3:11)
-03. Second Date Waltz (3:21)
-04. Will You Be My Bop? (4:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBFDB4C17780076C5C3F69448544A7336BF7F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730750   (107835) от 17.06.2024
-
-Stanton Moore - Groove Alchemy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squash Blossom (4:32)
-02. Pie-Eyed Manc (4:49)
-03. Pot Licker (4:35)
-04. Root Cellar (4:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7FDBB4237251C84969851FD1DBBECADE5DB195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730744   (107834) от 17.06.2024
-
-Jose (José) Privat - Clin d'Œil (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coin Carbet (5:32)
-02. Connivence (4:37)
-03. Domnik (5:37)
-04. Hello Louiss (4:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C460F586C8E0E68937C4115B6DEDFB8679BD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730749   (107833) от 17.06.2024
-
-Sacrum - SACRUM (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INTRO (2:50)
-02. SUBITE A LA SACRUNETA (6:26)
-03. INTERLUDIO (0:11)
-04. EN BOLAS (6:45)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C54AFC6AF72E05A4C62BD7B41087E97F3A4099D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730741   (107832) от 17.06.2024
-
-John Pena - Life, Legacy & Music, Pt. 2 (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just in Time (5:46)
-02. Rojo (5:15)
-03. Zuul (5:28)
-04. Lo Que Soñé (5:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC901A7653DC0FD38ACDB8E114B1A331A94ACFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

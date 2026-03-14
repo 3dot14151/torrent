@@ -1,3 +1,194 @@
+###  Публикация: 499690   (256454) от 21.05.2012
+
+Jazzamor - Lucent Touch (2011) [FLAC (tracks+cue)|Lossless]<Acid Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Acid Jazz, LoungeПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499424   (256377) от 21.05.2012
+
+Marcus Miller - Renaissance (2012) [MP3|320 кб/с]<Jazz-Funk, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detroit
+02. Redemption
+03. February
+04. Slippin' Into Darkness(   Читать дальше...   )Жанр: Jazz-Funk, FusionПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFA2A964B39DA1942EB64C49116F69DB5FB6761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499046   (256296) от 21.05.2012
+
+Danny Cowan Group - Drivin' Back To Texas (2005) [FLAC|Lossless]<Blues, Texas Style>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backwards Shuffle  (04:13)
+02. When The Blues Follow You Home  (06:57)
+03. Drivin' Back To Texas  (05:06)
+04. The Whip  (04:17)
+05. Runnin' From The Devil  (05:38)
+06. I Been Mean  (04:26)
+07. Lonesome Heart Blues  (04:58)
+08. He's The Man  (03:11)
+09. You Got The Soul  (03:43)
+10. Blue Is The Color Of My Heart  (04:59)(   Читать дальше...   )2005Жанр: Blues, Texas StyleПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498486   (256283) от 21.05.2012
+
+Berget Lewis - Finally (2007) [FLAC|Lossless]<Funk, Soul, Pop>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally (Intro)
+02. Feel This Way Again
+03. I'll Do Anything
+04. Where I Belong (Wanna Fly)
+05. Sooner Or Later
+06. Let Me See Ya Move
+07. Boogie Night
+08. All About Me
+10. I've Tried
+11. Back In My Life (Interlude)(   Читать дальше...   )2007Жанр: Funk, Soul, PopПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498503   (256271) от 21.05.2012
+
+Bernhard Lackner - Stories From Home (2011) [FLAC|Lossless]<Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollywood
+02. The Tribute
+03. Turnaround
+04. That Time Of The Year
+05. Home
+06. You Will Be Missed
+07. European Summer
+08. Two Flies With One Hit
+09. Reprise2011Жанр: Fusion, Jazz-RockПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498501   (256260) от 21.05.2012
+
+Bernd Reiter Quartet feat. Roman Schwaller - Live At The Jazzland-Vienna (2007) [FLAC|Lossless]<Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strike Up The Band
+02. Theme For Ernie
+03. Ruby, My Dear
+04. Bitter Suite
+05. Cheese Cake
+06. Body And Soul
+07. Dear John2007Жанр: Hard Bop, Post-BopПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836976   (255940) от 13.11.2025
 
 VA - Gotham (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental Jazz>
@@ -571,182 +762,6 @@ Joe Bonamassa - Tales Of Time (2023) Live [FLAC|Lossless|image + .cue] <Blues Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85484C9C2BA792367147F0CA4863B1244972EB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627311   (255023) от 19.04.2023
-
-The Curse of K.K. Hammond - Death Roll Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swamp Thing (0:17)
-02. Death Roll Blues (feat. David & the Devil) (5:16)
-03. What's the Weatherman Done? (4:11)
-04. Anhedonia (5:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBA2979C2E34C21FD245403415648E90575CFE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627803   (254991) от 20.04.2023
-
-Gary Moore - After Hours (1992) Japanese Edition, Reissue, 2023, Universal [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254991.jpg" />
-</div>
-
-
-###  Подробнее
-
-После напряжённого тура в 1990 году Мур записывает альбом «After Hours», который также как и его предшественник был выдержан в стилистике блюз-рока, но с большим влиянием соула и с добавлением духовой секции, игравшей в стилистике соул. Несмотря на то, что альбом получился очень похожим на «Still Got The Blues», его успех был скромнее.
-
-В After Hours вошли как оригинальные (   Читать дальше...   )01. Cold Day in Hell
-02. Don’t You Lie to Me (I Get Evil)
-03. Story of the Blues
-04. Gary Moore & B.B. King / Since I Met You Baby(   Читать дальше...   )Жанр: BluesПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E048BE309C6CE5BC2EDE7ED5FCC34B8FCC28B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629277   (254778) от 26.04.2023
-
-The Phil Woods Quartet - 'More' Live (1979) 1995, Genes [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milestones [10:43]
-02. Eiderdown [13:11]
-03. Strollin' [11:04]
-04. See Hunt & Liddy [10:29]Жанр: Post-BopПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88CB90D2C457F31C9CCBF52383BFBCD87C16CAF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629274   (254777) от 26.04.2023
-
-Woody Herman & His Bands - Their Finest Albums (1952 - 1963) 4CD, 2022, Enlightenment [FLAC|Lossless|tracks + .cue] <Swing, Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Brothers [3:35]
-02. Like Some Blues Man [10:04]
-03. Skoobeedoobee [4:35]
-04. Monterey Apple Tree [10:34](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 04:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E5A02499DE2AE3AAF80C290A8A15ABDE546179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629662   (254753) от 27.04.2023
-
-Melani L. Skybell - Through The Years (1998) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'd Be So Nice to Come Home To [3:41]
-02. These Foolish Things [4:40]
-03. Love Is Here to Stay [3:57]
-04. Close Your Eyes [4:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2070D0DF23D0B23903D32536D3ECE69425B0F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836712   (254181) от 12.11.2025
-
-Fernando Noronha & Black Soul - Ain't No Hiding From The Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  When You Get Love (3:32)
-02.  Broken (4:18)
-03.  Hey Now (3:34)
-04.  Highway 61 (3:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1519ADB8B9EAC9A12AB61BE1F0403310C865C087
 ```
 
 https://mybot314.ru/tekegram_catalog/

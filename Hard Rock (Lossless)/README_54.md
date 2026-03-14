@@ -1,3 +1,119 @@
+###  Публикация: 1177793   (360898) от 26.10.2017
+
+Alice Cooper - Welcome To My Nightmare (1975) Remastered, 2002, Atlantic/Rhino [FLAC|Lossless|image + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To My Nightmare
+02. Devil's Food
+03. The Black Widow
+04. Some Folks(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE34882885F25EE6C9C49796D985F5F1B3BD8A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417173   (360573) от 19.10.2020
+
+Lazarus - Down N' Dirty (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Dancer
+02. Bedroom Eyes
+03. Love At First Bite
+04. Let The Sparks Fly(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A4F32C17779556BB324C016B4990E3A6F70642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071291   (359436) от 10.11.2016
+
+Overland - Diamond Dealer (2009) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Train Train 05:08
+02. You Lift Me Up 04:35
+03. Where Is The Love 03:24
+04. Brave New World 05:33(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEACC76D964D132FA3CA5A196B093B4AB539F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071373   (359427) от 10.11.2016
+
+The Quireboys - Halfpenny Dancer (2009) [FLAC|Lossless|image + .cue] <Hard rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There She Goes Again
+02. Devil Of A Man
+03. Love To Love
+04. Mona Lisa Smiled(   Читать дальше...   )Жанр: Hard rock, GlamПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4940C7E015588EFEC2971EB5331043C2944DA53A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256063   (358889) от 20.10.2018
 
 Uriah Heep - Living The Dream (2018) Japan [WavPack|Lossless|image + .cue] <Hard Rock>
@@ -650,122 +766,6 @@ Tony Mills - Streets of Chance (2017) [FLAC|Lossless|image + .cue] <Melodic Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DF3D5EE39BC6D617FC251224C024561E7D3C8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578245   (345832) от 23.09.2022
-
-House Of Lords - Saints And Sinners (2022) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что термин "супергруппа" в наши дни используется почти как инфляционный, House Of Lords определенно была таковой в первые дни своего существования. Помимо певца James Christian в основном составе были Gregg Griuffria, Chuck Wright, Ken Mary и Lanny Cordola. Этот квинтет оказал большое влияние на melodic metal и создал нестареющую классику (   Читать дальше...   )01. Saints and Sinners (3:58)
-02. House of the Lord (5:38)
-03. Take it all (4:31)
-04. Road Warrior (5:17)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5436D2D7119D4C69F5146F349553E7C0A857A37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257287   (345660) от 26.10.2018
-
-Kissin' Dynamite - Ecstasy (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got The Fire (4:32)
- 02. You're Not Alone (4:28)
- 03. Somebody's Gotta Do It (3:53)
- 04. Ecstasy (4:10)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162933EACDA3F1696AE0EEE0DE667667BC7A65FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102422   (345443) от 08.10.2019
-
-Deep Purple - Time For Bedlam (2017) EP [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time For Bedlam 04:36
-02. Paradise Bar (Non Album Track) 04:10
-03. Uncommon Man (Previously Unreleased Instrumental Version) 06:58
-04. Hip Boots (Rehearsal, Ian Paice's Recording) 04:00Жанр: Hard RockПродолжительность: 00:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50708ACAD3ED6BEEB0E7F8C650EC2AD2DEC4262E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578430   (343547) от 24.09.2022
-
-B52 - 2 Albums (2017-2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Az út nem fogy el [00:04:11]
-02. Új világ felé [00:03:14]
-03. Hazug játékok [00:04:08]
-04. A rosszat szerettem [00:04:06](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2 CD, 01:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42E199109D4D82D8BD238F96236278F62247EBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

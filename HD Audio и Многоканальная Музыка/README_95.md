@@ -1,3 +1,145 @@
+###  Публикация: 1699826   (117433) от 15.02.2024
+
+Pain of Salvation - Remedy Lane (2002) Reissue, 2014, Inside Out Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Two Beginnings (02:24)
+02. Ending Theme (04:59)
+03. Fandango (05:52)
+04. A Trace of Blood (08:17)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEFC1AEB7FE0CD0F2968C7AD06384A0D8C0702A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699899   (117399) от 15.02.2024
+
+Birds of Vale - Limbo (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chora (4:47)
+02. Indian River (4:46)
+03. Howler (4:58)
+04. Limbo (2:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E4CD93F36ABC3D9DF4E1B33886862DFDCAA643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700117   (117383) от 15.02.2024
+
+Honeymoon Suite - Alive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive (2:42)
+02. Find What You're Looking For (3:15)
+03. Done Doin Me (2:53)
+04. Not Afraid To Fall (2:54)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F580A0CF2DB7F1036C8ED3E170AFBC5B28C4ED7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699990   (117378) от 15.02.2024
+
+Моды - Медленно Двигаюсь Вперёд (2018) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117378.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Медленно Двигаюсь ВперёдЖанр: RockПродолжительность: 00:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D42B96FC708AD5CF58E9E7C4E00F7B0AE8F1B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699894   (117372) от 15.02.2024
+
+Ahmed Mouici - Tribute To Goldies, Vol II (Pinte de blues production) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hound Dog (4:08)
+02. Walking By Myself (3:19)
+03. I Can t Be Satisfied (3:25)
+04. I Like It This Way (3:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEAC49E378F5A1B97D6C6A1D9EC284BCAFCFD29B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699901   (117371) от 15.02.2024
 
 Electric Gypsy - Dragoons Wander At Night (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock, Country>
@@ -600,150 +742,6 @@ Serena Forni - Rhythmic Nocturne (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CEDE4648D1C8B818DAC814231B1CB4F169F2E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700594   (117023) от 17.02.2024
-
-Jazz Instrumental Music Academy, Calming Jazz Relax Academy - Vintage Elegance: Vibes of Smooth Jazz, Relaxing Jazz Atmosphere, Background for Nice Evening Time (2024) [FLAC 24/48|Lossless|WEB-DL|t ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night And Day (3:25)
-02. Calming Jazz Relax Academy - Soft Winds (3:33)
-03. Moonglow (3:23)
-04. Calming Jazz Relax Academy - Deep Purple (3:52)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982ACCE1C2F6572EC447056822349F84FB812F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700648   (117011) от 17.02.2024
-
-Unheilig - Phosphor (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Macht
-02. Willenlos
-03. Ikarus
-04. Sage Ja!(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F173CF113DF006299B249C8FA710A050ABA4816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700462   (117008) от 17.02.2024
-
-Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Gardenian была основана в Швеции в 1996 году Тимом Бломом (ударные) и Джимом Кьеллом (гитара, вокал). Вскоре к группе присоединились Хокан Скогер (бас) и Никлас Энгелин (гитара).1997 - Two Feet Stand
-1999 - Soulburner
-2000 - SindustriesЖанр: Melodic Death MetalПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C4710E801238F3A9E8C3F166DD9A9DA4083C31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700330   (117006) от 17.02.2024
-
-A Somerset Parade - Carcosa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal, Industrial Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Stars In Black Skies [00:01:27]
-02. Invader Summer [00:04:01]
-03. Alpha [00:02:58]
-04. Sometimes Dead Is Better [00:03:42](   Читать дальше...   )Жанр: Alt.Metal, Industrial RockПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDF216DFC8D838918407FB04BE87A5CD507B626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700475   (117005) от 17.02.2024
-
-Omni - Collection (2019-2024) Sub Pop Records [FLAC 24/44.1, 24/88.2|Lossless|WEB-DL|tracks] <Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exacto (2:39)
-02. Plastic Pyramid (feat. Izzy Glaudini) (3:25)
-03. Common Mistakes (1:50)
-04. INTL Waters (2:55)(   Читать дальше...   )Жанр: Alternative/Indie RockПродолжительность: 01:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53E04F035BD484551C831E1B2A72D147EEC630D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1375966   (861804) от 16.04.2020
+
+Ana Popovic - Live for Live (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro / Ana's Shuffle
+02. Can You Stand the Heat
+03. Object of Obsession
+04. Love You Tonight(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C39A762AB1651533FB2216CCE090FF43DED740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109186   (861098) от 26.02.2017
+
+Doug Webb - Bright Side (2016) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Society Al [06:02]
+ 02.Silver Lining [05:50]
+ 03.The Drive [03:27]
+ 04.Bahia [05:15](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC79CBFDCE132AAF1F6FA2270041F1EBE6F0092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108972   (861086) от 26.02.2017
 
 Juan Gonzalez, Julio Simon, Rey Delis, Oscar Ruiz - Cuarteto de Saxofones de Santiago (1998) Auvidis [FLAC|Lossless|image + .cue] <World Fusion, Cuban Jazz>
@@ -691,64 +749,6 @@ Bill Barron - The Tenor Stylings of Bill Barron (1961) 1993, Nippon Columbia[FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DA4DAE89288A0F5F244D4DFA6C744803D96C298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000640   (857571) от 26.03.2016
-
-Duke Ellington - Vocal (1927-1947) 2СD, 2007, Camelot[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857571.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.I Got It Bad (And That Ain't Good) [03:20]
-02.Solitude [03:05]
-03.Mood Indigo [02:48](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6232AA6B2AF852969134B51FDBC6D6D552545B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000817   (857570) от 26.03.2016
-
-Spike Drivers - Sunset Motel (2014) [FLAC|Lossless|tracks] <Blues rock, Country, Roots Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best Of Me    04:36
-02. Victoria    03:48
-03. West Virginia    04:57
-04. My Condition    03:33(   Читать дальше...   )Жанр: Blues rock, Country, Roots RockПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA41CFA1F8F3D81D48C5DA781869BA426C3E1E6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

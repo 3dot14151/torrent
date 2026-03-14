@@ -1,3 +1,90 @@
+###  Публикация: 1333330   (305616) от 24.10.2019
+
+VA - ọrun VA004 (orun VA004) (2019) End Of Perception [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sacred Geometry - Hōjō (06:25)
+02. Unjin - Dragonfly (06:32)
+03. Saphileaum - He, Who Walks Above The Crumbling (06:43)
+04. Motionen - Ion (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884FD71F21694F93454148B5FECCD7A040FE92A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333335   (305526) от 24.10.2019
+
+Lemna - Retrocausality: A Posteriori (2019) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supervoid (06:54)
+02. Flatland (06:14)
+03. Platonia (05:39)
+04. Tesseract (06:26)Жанр: Techno, Ambient, ExperimentalПродолжительность: 00:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11A4D68246FC86D4CBC58D5044545A70E40FC47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333367   (305525) от 24.10.2019
+
+Fourtimeszero - Shaping Lifeforms (2019) Natural Expressions [FLAC|Lossless|Cassette|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaping Lifeforms (05:39)
+ 02. Drained (05:49)
+ 03. Spirit Reincarnate (ft. Lo Mismo) (06:04)
+ 04. Just A Track (06:09)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD83282ABB3079D6242EB6ACBCE7489669A698D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960839   (305447) от 29.11.2015
 
 Music Instructor - Electric City (Maxi-Single) (1999) [FLAC|tracks+.cue]<House, Breaks, Electro>
@@ -650,88 +737,6 @@ VA - Viewpoints Chapter One (2008) AW-Recordings [FLAC|Lossless|tracks+.cue] <Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:078739B701EFEDDE388CF3DFC6B79DEE109C18EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185245   (294816) от 20.11.2017
-
-VA - Музыка Космической Эры (2006) [FLAC|Lossless|image + .cue] <Electronic, Electro, Space Rock>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zodiac - Zodiac
-02. Supersonic Future - Самое Большое Космическое Путешествие
-03. Револьвер - Космодромы опустели
-04. Ким и Буран - Star Track(   Читать дальше...   )Жанр: Electronic, Electro, Space RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB0444798835AB7226F0649BE020400FF58397B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334526   (294766) от 29.10.2019
-
-Alan Walker - The Spectre (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Electro, Chillwave, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Spectre (3:14)Жанр: Electro, Chillwave, Nu-DiscoПродолжительность: 00:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B7B29551CFDBA3A81813C49257BAE25445AE6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334527   (294680) от 29.10.2019
-
-Alan Walker - Faded (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Electro, Chillwave, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faded (3:33)
- 02. Faded - Instrumental (3:34)Жанр: Electro, Chillwave, Nu-DiscoПродолжительность: 00:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A5D1CAB97BFD23273ADA87BE6D6BD39C139B69
 ```
 
 https://mybot314.ru/tekegram_catalog/

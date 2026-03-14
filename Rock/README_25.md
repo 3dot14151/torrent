@@ -1,3 +1,61 @@
+###  Публикация: 1014649   (776192) от 08.05.2016
+
+The Artwoods - Art Gallery (1966) Remastered, 2014, RPM Records [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can You Hear Me
+02. Down In The Valley
+03. Things Get Better
+04. Walk On The Wild Side(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7C832DC83EADC7DAC7E0FDFE2F9D98A3A87E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014485   (776180) от 08.05.2016
+
+Wet Willie - Wet Willie (1971) Remastered, 2015, Capricorn Records [MP3|320 кб/с] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have A Good Time
+02. Dirty Leg
+03. Faded Love
+04. Spinning Round(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F799C2B0554C649A36AB5CAAEDF86ACBCCAFE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014727   (776172) от 08.05.2016
 
 John Illsley - Long Shadows (2016) [MP3|320 кб/с] <Rock, Blues, Folk>
@@ -684,64 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D316331B1CCB50CE3BCA8C4D9366996924FBC0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279024   (766811) от 28.01.2019
-
-Axe - Living On The Edge (1980) Unofficial Reissue, 1997, Axepertise Entertainment Ltd. [MP3|320 Kbps] <Arena Rock, AOR, Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living On The Edge
-02. Fantasy Of Love
-03. First Time, Last Time
-04. Carry On(   Читать дальше...   )Жанр: Arena Rock, AOR, Melodic Hard RockПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD9C9FDD8FC58FE47F636010FBAB3DECCC3CC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214028   (766589) от 19.03.2018
-
-Lost Gravity - How To Make A Giant (2018) Priston Records [MP3|320 Kbps] <Rock, Hard Rock, Grunge Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lost Gravity - это рок-группа, созданная в 2007 году Бреном Валом в Лондоне , Англия. Группа известна своими мощными гитарными риффами, отличными вокальными мелодиями и отличными барабанами. На творчество группы ощутимо повлияли такие коллективы как AC / DC , Alice in Chains и Metallica. В начале было выпущено несколько LP. И наконец в 2014 и в 2018 годах выходят (   Читать дальше...   )01. Under The Sun 4:12
-02. Shine 4:13
-03. Through Your Eyes 3:10
-04. The Last Satellite 4:21(   Читать дальше...   )Жанр: Rock, Hard Rock, Grunge RockПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4788BE8769181BA020B6D8BF3AA0C8AFB1F69F
 ```
 
 https://mybot314.ru/tekegram_catalog/

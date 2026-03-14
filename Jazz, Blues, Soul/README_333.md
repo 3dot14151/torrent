@@ -1,3 +1,177 @@
+###  Публикация: 1577793   (352460) от 20.09.2022
+
+Jack McDuff - Legends Of Acid Jazz (1964) 1997, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scufflin' [4:53]
+02. Au Privave [3:19]
+03. Hallelujah Time [3:49]
+04. Misconstrued [6:59](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220AA87E7E5352CFE17D8DDBA402158C2225A130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577621   (352458) от 20.09.2022
+
+Antonio Vergara - Once In A Lifetime (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The City Of The Big Lights (3:58)
+02. Our Yell (3:42)
+03. Trying To Heal Your Soul (with Ciro Fogliatta) (7:14)
+04. Asphalt Jungle (5:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35F59B6A3642B8B2D94341247D2D7C45FA6E180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577798   (352447) от 20.09.2022
+
+Alexander Hawkins Mirror Canon - Break a Vase (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый секстет британского пианиста Александра Хокинса не совсем новый: почти все участники ранее играли у него же в Alexander Hawkins Ensemble и других составах. Кроме самого Алекса за роялем и сэмплером, в группу вошли ударник Стивен Дэвис, контрабасист Ник Чарльз, гитарист Отто Фишер, звездный саксофонист Шабака Хатчингс и перкуссионист Ричард Олатунде Бейкер. (   Читать дальше...   )01. The Perfect Sound Would Like to Be Unique (Hawkins) - 1:37
+02. Stamped Down, or Shovelled (Hawkins) - 6:45
+03. Sun Rugged Billions (Hawkins) - 4:30
+04. Generous Souls (Hawkins) - 5:59(   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDFD09AE5D477DE72CAA0BBA2C91C41984ECB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577695   (352433) от 20.09.2022
+
+Trotsky Experience Band - Nine (9) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Skies
+02. Well Alright
+03. Big Boy Now
+04. Sonny Boy Blow(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA90692CB4492B40F34FF41B4D514FD8FE88C3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072652   (352383) от 13.11.2016
+
+The Blues Vision - School Blues 195 BPM (2010) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Blues Around My Bed  (04:12) 
+  02|  Feel Like Going Back  (02:46) 
+  03|  Don't You See  (04:07) 
+  04|  Do You Understand?  (07:14) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1DCFB3D06722F811EED1BE224DB77FC3C450116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329455   (352380) от 05.10.2019
+
+Jerry Bergonzi - Intersecting Lines (2014) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intersecting Lines [6:48]
+02. Dream Step [6:34]
+03. Creature Feature [6:07]
+04. Tanzania [5:13](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0611EC306855F40503718BD43A09E5BDE5D11633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072634   (352292) от 13.11.2016
 
 Papik - Music Inside (2012) [FLAC|Lossless|image + .cue] <Vocal Jazz, Nu Jazz>
@@ -571,180 +745,6 @@ Joe Bonamassa - Royal Tea (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E52253980843FBF00941AC1DB1A91683CEC3F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418272   (351229) от 23.10.2020
-
-Melody Gardot - Sunset In The Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Love Me
-02. C’est Magnifique (ft. Antonio Zambujo)
-03. There Where He Lives In Me
-04. Love Song(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EC0B2081479A40A09095559DBB6B532F696557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 37377   (351037) от 03.11.2015
-
-(Jazz, Rock) Алексей Козлов и ансамбль АРСЕНАЛ - Избранное - 2001, APE (image + .cue)
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_351037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ностальгия (Nostalgie)
-02. Башня из Слоновой Кости (Ivory Tower)
-03. Тайна (Mystery)
-04. Сюита в Фа Миноре (Suite in Fm)(   Читать дальше...   )Жанр: Jazz, RockФормат: ape + cueПродолжительность: 1:13:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578022   (350395) от 21.09.2022
-
-Red Holloway - Legends Of Acid Jazz (1963, 1965) 1998, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monkey Sho' Can Talk [3:41]
-02. Brethren [5:10]
-03. Crib Theme [10:16]
-04. The Burner [10:39](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104163C5DA359B2F6D321FF4390DDC24D2F630ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577947   (350298) от 21.09.2022
-
-Chris Antonik - Morningstar (2022) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waves of Stone (feat. Jarekus Singleton) 05:12
-02. Pilgrim 04:12
-03. Back to the Good 04:13
-04. Trust In Me 05:10(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA0B83D38FC9426027E9DF0C3BCA5EA1D8ABA92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329650   (350285) от 06.10.2019
-
-Wes Montgomery - Back On Indiana Avenue: The Carroll DeCamp Recordings (1950-e) 2CD, 2019, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350285.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Four on Six [4:48]
-02. Mr. Walker [3:47]
-03. 'Round Midnight [7:14](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 02:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAE84CD36D856042F98D4CB928D4B6FBF2B28E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072910   (350135) от 14.11.2016
-
-Sonny Rollins - Global Warming (1998) Milestone Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Island Lady [09:12]
- 02.Echo-Side Blue [07:17]
- 03.Global Warming [06:32]
- 04.Mother Nature's Blues [11:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE8CA1AE96CF0A5980126DE36344636A0AF9EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

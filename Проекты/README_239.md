@@ -1,3 +1,29 @@
+###  Публикация: 943519   (447006) от 04.10.2015
+
+Проекты - VideoHive - Logo 3 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа к слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E40F99B23D581FB55AD6072F7B810303CDE29A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409340   (446929) от 16.09.2020
 
 Проекты - Motion Array - Hello, Autumn Slideshow - 790174 [AEP]
@@ -650,32 +676,6 @@ Award Packaging - это яркий и динамичный шаблон After E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B376FB20D822BCA9923E76E011C9E8B8263B480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062009   (443890) от 12.10.2016
-
-Проекты - VideoHive - Modern Opener - 17241697 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84722265C825D9B99F0AEE15BC3A0EA74CD87CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

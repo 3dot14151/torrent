@@ -1,3 +1,61 @@
+###  Публикация: 906493   (643819) от 09.06.2015
+
+Ancient Sky - Mosaic (2015) [MP3|320 кб/с]<Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sing Swing
+02. Two Lights
+03. Garbage Brain
+04. Know(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DA2DEFD12CFBABE2951DC93FE5ABFD095F92A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032542   (643814) от 08.07.2016
+
+Los Venturas - Miles High (2016) [MP3|320 Kbps] <60's Guitar's Instrumental Surf Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Rey De Los Cielos
+02. O Fata Romana
+03. Pradesh Hypno Beat
+04. Ringispil(   Читать дальше...   )Жанр: 60's Guitar's Instrumental Surf RockПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE358DF454F5DA1CD2473A346AE8552B40E0F17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906558   (643483) от 09.06.2015
 
 Led Zeppelin - Live (Bootleg) (1993) [MP3|320 кб/с]<Сlassic Rock, Hard Rock, Blues>
@@ -701,64 +759,6 @@ Gggolddd - This Shame Should Not Be Mine (2022) [MP3|320 Kbps] <Gothic Rock, Tri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:220C94F6178867FAD7CDF4B16DC14856FCF17EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541454   (637250) от 07.04.2022
-
-Caught in Action - Devil's Tango (2022) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New York City (03:52)
-02. Miracle (04:33)
-03. Devil's Tango (04:05)
-04. Simple Man (04:02)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C0D20A3F0D7BEAFEDB7B434F9E91BEC5990A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541707   (637111) от 07.04.2022
-
-Sweet - Hits (2022) Special Edition, Remastered [MP3|320 Kbps] <Glam Rock, Classic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blockbuster (Remastered) [00:03:19]
-02. Ballroom Blitz (Remastered) [00:03:46]
-03. Fox On The Run (Remastered) [00:03:30]
-04. Little Willy (Remastered) [00:03:11](   Читать дальше...   )Жанр: Glam Rock, Classic Rock, Pop RockПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3005BC56CBB652C043EDF51EB2C06EDD2ADB49
 ```
 
 https://mybot314.ru/tekegram_catalog/

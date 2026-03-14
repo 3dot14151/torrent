@@ -1,3 +1,90 @@
+###  Публикация: 1304233   (565122) от 25.05.2019
+
+Lewis Capaldi - Divinely Uninspired To A Hellish Extent (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grace (3:05)
+02. Bruises (3:40)
+03. Hold Me While You Wait (3:25)
+04. Someone You Loved (3:02)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABBD395C0AB5E6F59682A5BBD137DCB1CEB5A361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923390   (564392) от 31.07.2015
+
+Saint Asonia - Saint Asonia (2015) [FLAC|Lossless]<Alt. Metal, Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Place
+02. Blow Me Wide Open
+03. Live My Life
+04. Even Though I Say(   Читать дальше...   )Жанр: Alt. Metal, Modern Hard RockПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14307B765E5E118C4AB48000192BCB1228C58D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235077   (564210) от 09.07.2018
+
+Masfel - Viperagarzon (1996) [FLAC|Lossless|tracks + .cue] <Experimental rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Csigolyák (Vertebrae) (7:25)
+02. Függökert (Terraced Garden) (7:50)
+03. Menetmetszö (Thread Cutter) (6:32)
+04. Jelzöbárány (Signal Lamb) (6:26)(   Читать дальше...   )Жанр: Experimental rockПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3609AA0814512AFB8DDB120893A1A452DAE506C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235221   (562269) от 10.07.2018
 
 Madsen - Lichtjahre (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop Rock, Pop Punk>
@@ -658,93 +745,6 @@ Bring Me The Horizon - 2004-2013 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1094B05668DBF6A6D72D9C4E2B5699690E2E3E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237360   (552341) от 23.07.2018
-
-Bad Wolves - Disobey (2018) Eleven Seven Music [FLAC|Lossless|tracks + .cue] <Alternative Rock, Groove Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Officer Down (3:29)
- 02. Learn To Live (3:40)
- 03. No Masters (3:53)
- 04. Zombie (4:15)(   Читать дальше...   )Жанр: Alternative Rock, Groove Metal, MetalcoreПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFF8DD3FE102CFFB46ABD26FF410E84B5DE3E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046393   (551790) от 27.08.2016
-
-Bad Omens - Bad Omens (2016) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Houses (04:00)
-02. Exit Wounds (03:26)
-03. The Worst In Me (03:49)
-04. Feral (04:05)(   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, RockПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9AFAF3A4FAC21142E12FE413D838E3E4AC8844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309429   (551218) от 19.06.2019
-
-Rustin Man - Drift Code (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551218.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Vanishing Heart (04:40)
-2. Judgement Train (05:10)
-3. Brings Me Joy (03:17)
-4. Our Tomorrows (04:46)(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02326B69077EF080F1A25DF2BDE4CE322C314112
 ```
 
 https://mybot314.ru/tekegram_catalog/

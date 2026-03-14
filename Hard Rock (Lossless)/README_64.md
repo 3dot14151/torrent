@@ -1,3 +1,119 @@
+###  Публикация: 1617001   (242192) от 05.03.2023
+
+Razorbats - Hit Crazy (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Maybe It's Time to) Break up the Band [00:03:18]
+02. Only in America [00:04:26]
+03. Atomic [00:03:32]
+04. Shotgun Wedding [00:03:22](   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60992EA9001068F7B41777F4B0CA08868110F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628485   (242144) от 23.04.2023
+
+Infinite & Divine - Ascendancy (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashes To Ashes (3:23)
+02. Larp (4:24)
+03. Remedy (3:42)
+04. Our Time (3:38)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F685798E6E7A24ADE97D7286C768EFFF88BF451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543755   (242088) от 13.04.2022
+
+Scorpions - Wind Of Change (The Collection) (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy World
+02. Alien Nation
+03. Tease Me Please Me
+04. No Pain No Gain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9701992B4498DC91902FFC86421B29ABC334B227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458782   (242084) от 30.03.2021
+
+Black Spiders - Black Spiders (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Sensation
+02. Slugged Out
+03. Air It Out
+04. Piece Of The Action(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3444F97200EF21B2A7E343EA5BE4AF9043AD7F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635031   (242066) от 24.05.2023
 
 Circus Of Rock - Lost Behind The Mask (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ Gable - Brown Paper Bag (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:687ECF6EABBC6BC88CF7711880C373E3A505BD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620529   (240541) от 21.03.2023
-
-Kahr - Kahr (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock, sludge post metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I konn (Ned) [00:04:47]
-02. Laufen stolpern aufstehn [00:05:30]
-03. Der "Jo, na eh" Blues [00:05:32]
-04. In die Kastln schaun [00:05:28](   Читать дальше...   )Жанр: Heavy Psychedelic Rock, sludge post metalПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370F8C6D4BDCDD06A530A3A7975B4A6DB18D62C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626188   (240511) от 15.04.2023
-
-VA - Screaming Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iggy Pop -- Frenzy (3:01)
-02. Disturbed -- Bad Man (3:22)
-03. Halestorm -- Wicked Ways (3:27)
-04. Slipknot -- The Dying Song (Time to Sing) (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D345A04ADAD64E18C1916A3C256C46DBA39F36B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464223   (240462) от 21.04.2021
-
-Last Chance Riders - Fool's Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fool's Gold 04:37
-02. Over Me 04:06
-03. Tangled Up 04:43
-04. Crossed The Line 04:03(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65770C0A8E02A75A55055F505C890D8A470150A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626924   (240419) от 16.04.2023
-
-Gary Moore - Run for Cover (1985) Reissue, 2023, Universal, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск содержит заново переделанную песню «Empty rooms», выпущенную в качестве сингла (20-я позиция в Великобритании), и песню «Out in the Fields», достигшей пятой позиции. В «Out in the Fields» Гэри Мур делит вокальные партии вместе с Филом Лайнотом. Это последняя известная запись, сделанная Лайнотом до его трагической смерти 4 января 1986.01. Run for Cover
-02. Reach for the Sky
-03. Military Man
-04. Empty Rooms(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42AFD6A415A0A56579F55A18CF8BC3AFF460B568
 ```
 
 https://mybot314.ru/tekegram_catalog/

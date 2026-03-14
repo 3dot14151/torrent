@@ -1,3 +1,29 @@
+###  Публикация: 1348895   (140657) от 29.12.2019
+
+Zомбилэнд: Контрольный выстрел / Zombieland: Double Tap (2019) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспощадная и бесстрашная четверка охотников на зомби продолжает свое путешествие в глубь страны. На этот раз им предстоит сразиться не только с новыми видами живых мертвецов, но и познакомиться с другими выжившими. Кроме того, в собственных рядах наших героев намечается серьезный разлад.Производство: США / Columbia Pictures, PariahЖанр: Ужасы, комедия, боевикРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Эмма Стоун, Эбигейл Бреслин, Зои Дойч, Эван Джогиа, Розарио Доусон, Люк Уилсон, Томас Миддлдитч, Виктория ХоллПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Full), английские (Forced, Full)Продолжительность: 01:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D392641950C15610135143120BAF734CA5631EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520675   (140615) от 29.12.2021
 
 Greta Van Fleet - From The Fires (2017) [AAC|~330 Kbps] <Rock>
@@ -684,35 +710,6 @@ VA - Steyoyoke Gems Nocturnal 10 (2021) [AAC|~330 Kbps] <Progressive House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:280CDBECB95EA92386BF4ABC12717F744AA571A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521043   (138123) от 31.12.2021
-
-VA - Organica - Sound Tales 2 (2021) [AAC|~303 Kbps] <Deep House, Dub Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mikaere - What We Lost in the Winter (6:58)
-02. Schulz Audio - Eff Yeah Brutalism (6:51)
-03. Volunteer - Project Alpha (8:01)
-04. Tender H - Under Rain (Groofeo Remix) (5:29)(   Читать дальше...   )Жанр: Deep House, Dub TechnoПродолжительность: 03:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF355571D710DFE6DF8A8DAB370B87434464582
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1785569   (69275) от 16.03.2025
+
+Elton John - Star Collection (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Eldorado
+02. Bellive
+03. Blessed(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DCEACC1D0125A4C8AB39D886499204267272E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785507   (69255) от 16.03.2025
+
+Александр Серов - Звёздная Коллекция (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Ностальгия (Ностальгия По Тебе)
+02. Дверь (Обледенелая дверь)
+03. Ночь (Ворованная ночь)(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF6F8DCC1EF159D930BB916174765170AA54EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785499   (69254) от 16.03.2025
+
+The Mission (U.K.) - Studio Albums (6 releases) (1996-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Post-punk, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69254.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Mission - английская рок -группа, образованная в 1986 году.1996 - Blue
+2001 - Aura
+2007 - God is a Bullet
+2013 - The Brightest LightЖанр: Gothic Rock, Post-punk, Hard RockПродолжительность: 06:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0293A54AC82F7F78DFBF3B6C550A70E9B24CC1ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785502   (69236) от 16.03.2025
+
+Halloween - Psy-Ko (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transe 9:02
+02. Gnomes 10:20
+03. Crise de foi 8:19
+04. Plume de Plomb 5:20(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3B186A7D24C127E4BE7931AA25847C68161869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785534   (69234) от 16.03.2025
+
+Sentenced - Down (1996) Reissue, 2020, 	Cosmic Key Creations [WavPack|32/192|image + .cue|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69234.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Intro - The Gate
+A2 Noose
+A3 Shadegrown
+A4 Bleed(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46037E3858D6AAE0DB92A4B0851C5E6334BD124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785429   (69211) от 16.03.2025
 
 Rioghan - Kept (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Gothic Metal, Progressive Metal>
@@ -600,151 +745,6 @@ A4 Esprit De Corps(   Читать дальше...   )Жанр: Symphonic Black 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B34AE6B6D8339B66F6FE0605D7DCE0EF96B34B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786364   (69011) от 20.03.2025
-
-Accu§er (Accuser; ex-Breaker; ex-Scartribe) - Studio Albums (15 releases) (1985-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Accu§er - немецкая метал-группа. Основана в 1986 году в Зигене. В 1985 году выпустила альбом под именем Breaker. В период с 2002 по 2008 год носила название Scartribe.1985 - Dead Rider (as Breaker)
-1987 - The Conviction/Experimental Errors
-1989 - Who Dominates Who
-1991 - Double TalkЖанр: Thrash/Groove MetalПродолжительность: 12:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EAD40EA9348A5B6E42D04C7126F048D99681F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786366   (69010) от 20.03.2025
-
-High Spirits - Hard to Stop (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Since You've Been Gone
-02. Restless
-03. Face To Face
-04. Hearts Will Burn(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF2857DFEA9842CB06A7B3D8AF0132B112D94BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786568   (69000) от 21.03.2025
-
-Леонид Фёдоров & Игорь Крутоголов - В солнечном блеске (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69000.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В солнечном блеске
-2. Если солнце село в лужу
-3. Ворон к ворону
-4. Альбатрос(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DDFF8E92E103D343E413802F3775C14B45C159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786595   (68994) от 21.03.2025
-
-Tears For Fears - Songs For A Nervous Planet (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Say Goodbye To Mum And Dad [3:46]
-02 - The Girl That I Call Home [3:45]
-03 - Emily Said [4:00]
-04 - Astronaut [3:44](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Indie PopПродолжительность: 01:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5158CD24EC96AB4B0B0ACE370D7866D15527B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786566   (68975) от 21.03.2025
-
-Калевала - Глазами Офелии (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68975.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Колокольчик ищет волка
-2. Глазами Офелии
-3. Земной святой
-4. Соколица(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA31AA9581ED9D2D644B066A391EFE8CB86E66C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 710508   (415933) от 14.10.2013
+
+Avicii - True (2013) [FLAC|Lossless|tracks + .cue]<House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wake Me Up   (4:07)
+02.  You Make Me   (3:53)
+03.  Hey Brother   (4:15)
+04.  Addicted To You   (2:28)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A9868FF8A214EA264F02A195993747E4D583E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066179   (414784) от 25.10.2016
+
+IsoQuant - Risen From Ashes (2016) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rising Dust (Prologue) (03:13)
+02. Wall of Sand (07:20)
+03. Burning Soil (09:17)
+04. Dirt Storm (07:18)(   Читать дальше...   )Жанр: Dark Ambient, Techno, MinimalПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5249AA2B6842E4B8BAC53BC41255BE8387BA6ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066249   (414619) от 25.10.2016
+
+VA - Schneeweiss V (Presented by Oliver Koletzki) (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Jeremy Olander - Lunar
+02-Hvob - Tender Skin (DJ Tennis Remix)
+03-Julian Wassermann & H.B.C. - 1000 Times
+04-Benotmane & Darlyn Vlys feat. Haptic - Quarantine(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FA40B85C218EE67C049EFDA0E7619653377960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 710695   (414091) от 15.10.2013
 
 VA - So Fresh Dance (2013) [FLAC|Lossless|tracks + .cue]<House, Dance>
@@ -660,90 +747,6 @@ Jean Michel Jarre - Complete Oxygene (1997) [FLAC|Lossless]<Ambient,  New Age,  
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175452   (379041) от 18.10.2017
-
-VA - Amsterdam Coffeeshop Chillout Vol.13 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soulful-Cafe - So Suddenly (Radio Version)  3:42
-02.  Deep X - Go Ahead (Club Extended Mix)  4:59
-03.  Lady Mojo - Boiling (Radio Edit)  2:57
-04.  Soulful-Cafe - Can You Feel It Coming (Radio Version)  3:26(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292E1571007E1278ECEC7E690C7B535426773353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415151   (378547) от 11.10.2020
-
-Terrence Dixon - Galactic Halo (2020) Axis [FLAC|Lossless|WEB-DL|tracks] <Techno, Detroit Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Centrifugal Force (03:49)
- 02. Direct Drive (05:47)
- 03. Galactic Halo (04:55)
- 04. Multiple Star (03:49)(   Читать дальше...   )Жанр: Techno, Detroit Techno, MinimalПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63B9D62EE57E0C2BE2194FAD3A6D2BC45F8D50B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834473   (377823) от 25.10.2014
-
-Flight Facilities - Down To Earth (2014) [FLAC|Lossless|WEB-DL]<Tech House, Deep House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377823.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Жанр: Tech House, Deep House, Nu DiscoПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5675FBF6002539C56519236585EF8DCA991755
 ```
 
 https://mybot314.ru/tekegram_catalog/

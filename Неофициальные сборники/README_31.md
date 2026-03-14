@@ -1,3 +1,90 @@
+###  Публикация: 1466863   (1018090) от 02.05.2021
+
+VA - Deep House: Luxe Mood Electro Sound (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятно мелодичная музыка в сочетании с элементами красивого вокала заставит погрузиться Вас в состояние эйфории, отбросив все условности окружающей реальности. Новые треки апрельского выпуска сборника "Deep House: Luxe Mood Electro Sound" уже ждут Вас и готовы пополнить Вашу музыкальную коллекцию!001. Metro DJ - New Age Funk
+002. Laurence Guy - Love Theme
+003. Dwayne Pinnock - Obsession
+004. Thulane Da Producer - Deep Incarnate(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C90129892EFD740306F2B2898C6E94F74D2885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466941   (1018078) от 02.05.2021
+
+VA - Record Super Chart 01.05.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eneli, Monoir - 3 to 1 (3:39)
+02. Tiesto - The Business (2:44)
+03. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)
+04. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3785AA5CFAAF6961B8250D0A0A59B971BDA0C3F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466997   (1018065) от 02.05.2021
+
+VA - just hits (2021) [MP3|256 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018065.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sam Smith - Diamonds (3:33)
+002. MEDUZA, Dermot Kennedy - Paradise (2:47)
+003. Miley Cyrus, Dua Lipa - Prisoner (2:49)
+004. VINAI, VAMERO - Rise Up (3:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FE38FCDDE91ADDF072819EB5635F838D761CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467051   (1018035) от 02.05.2021
 
 Miсk Kоlаssа - History Of The World Blues 2014-2020 (2021) [MP3|320 Kbps] <Blues, Rock Blues, Folk>
@@ -658,93 +745,6 @@ TOP 40 PromoDJ Май 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A10BCDD6257044624852C26651AEE0C0999C8427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469321   (1016531) от 11.05.2021
-
-VA - 100 Hits Remixed (2021) [MP3|~245 Kbps (V0)] <Disco, Dance, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016531.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adam van Hammer - Self Control (Radio Edit) (3:10)
-002. Aurora feat. Lizzy Pattinson - Summer Son (Radio Edit) (3:28)
-003. Dirty Disco - I Feel Dirty (Space City Remix) (6:35)
-004. Eiffel 65 - Move Your Body (D.J.Gabry Ponte Original Radio Edit) (4:29)(   Читать дальше...   )Жанр: Disco, Dance, HouseПродолжительность: 08:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5686BD3663C4577A5FE1609EB8C20E79CD45C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469622   (1016307) от 13.05.2021
-
-VA - Beatport Techno Electronic: Sound Pack #281 (2021) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минималистический формат в техно музыке, вразрез всеобщему сужденью, один из самых сложных стилей. Ввиду того, что наименьшим составом нот получить эффектного звучания крайне трудно. Но авторам музыкальных треков этого компилата от Beatport похоже удалось это сделать!001. Cube Andy B - Triangle
-002. Sami Wentz - Monkeyz
-003. Emrah Celik - Blotic
-004. Bruce Zalcer - Requiem(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 09:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA92C4E812E347245B49F9145C1E4C745C1E4AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469672   (1016303) от 13.05.2021
-
-VA - Trance Music Collections 2021 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syncbat & Conciliator Project - To The Stars (Conciliator Project Remix)
-02. Damir TC - The Girl's Voice (Original Mix)
-03. Dmitriy Osipov - Sky (Original Mix)
-04. Dream Travel - 2 Chance (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive, ElectronicПродолжительность: 04:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0E2AEE9D18C0CA7B8F27300801B27C1910272D
 ```
 
 https://mybot314.ru/tekegram_catalog/

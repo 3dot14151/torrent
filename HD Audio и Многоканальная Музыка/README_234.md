@@ -1,3 +1,148 @@
+###  Публикация: 1761721   (36447) от 22.11.2024
+
+Alice Cooper - Muscle Of Love (Expanded) (1973) Reissue, Remastered, 2024, Warner Records LLC [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock >
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Big Apple Dreamin' (Hippo) (2024 Remaster) (5:10)
+02. Never Been Sold Before (2024 Remaster) (4:28)
+03. Hard Hearted Alice (2024 Remaster) (4:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:20:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366626F42E24167B70B0C37C003E781968FF8F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759535   (36429) от 23.11.2024
+
+Queen - Greatest Hits II (1991) /2013 SHM-SACD/ [DSD 2.0 1bit/2822,4kHz |SACD-R]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36429.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Kind Of Magic 04:22
+2. Under Pressure 03:56
+3. Radio Ga Ga 05:43
+4. I Want It All (Single Version) 04:02(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D5B72D446BE76DAF9EF62EC937808069E8A311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762218   (36294) от 24.11.2024
+
+VA - Golden Ballads. Лучшие Баллады Последних Десятилетий (2002) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Scorpions - Wind Of Change
+02. Eagles - Hotel California
+03. Iggy Pop - In The Death Car(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD77480CC8B9599FF7572FBE9010EF646776E743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762207   (36255) от 24.11.2024
+
+Клава Кока - Депрессаунд (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Убегай [00:02:29]
+02. Ты грустишь [00:02:58]
+03. Пьяный вокзал [00:02:36]
+04. Стерва [00:02:26](   Читать дальше...   )Жанр: PopПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA50FA1296BFD624442D028E29A4A4F1CAC9E7EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762424   (36184) от 25.11.2024
+
+VA - Romantic Collection. Metal Ballads (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36184.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Scorpions - When You Came Into My Life
+02. Marillion - One Fine Day
+03. Nazareth - God Save The South(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30621F116366F2119F1F6E82211614F817B3C27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677836   (36135) от 25.11.2024
 
 Suicidal Angels - Studio Albums (9 releases) (2007-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
@@ -602,151 +747,6 @@ Virgin Steele — американская рок-группа, играющая
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A0294FEA70E264685E687A3C5BEF1E143B91339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613622   (35046) от 06.12.2024
-
-Xandria - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xandria — немецкая группа, исполняющая музыку в жанре симфоник-метал.2003 - Kill the sun
-2004 - Ravenheart
-2005 - India
-2007 - Salome - The seventh veilЖанр: Symphonic MetalПродолжительность: 09:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29EB4C05C222406CFAE0E94EA0598B0516FBFC6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764303   (35021) от 06.12.2024
-
-Roxette - Crash! Boom! Bang! 30th Anniversary Edition (1994) Reissue, 2024, Warner Music Sweden [FLAC 16/44.1, 24/44.1|Lossless|WEB-DL|tracks] <Pop, Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Harleys & Indians (T&A Demo Aug 10, 1993) [3:27]
-02 - Crash! Boom! Bang! (T&A Demo May 6, 1993) [4:15]
-03 - Fireworks (T&A Demo Jan 30, 1993) [3:31]
-04 - Run To You (T&A Demo Dec 12, 1992) [3:45](   Читать дальше...   )Жанр: Pop, Rock, Pop RockПродолжительность: 02:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF055FF9E03E605248DC09319645508021A7B9ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764350   (34890) от 07.12.2024
-
-Dua Lipa - Dua Lipa Live from the Royal Albert Hall (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (Live from the Royal Albert Hall) [00:01:46]
-02. End Of An Era (Live from the Royal Albert Hall) [00:03:59]
-03. Houdini (Live from the Royal Albert Hall) [00:03:36]
-04. Training Season (Live from the Royal Albert Hall) [00:03:40](   Читать дальше...   )Жанр: PopПродолжительность: 01:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEFDF2D47DDECE8C9A7773844C3A60655E32C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764552   (34889) от 07.12.2024
-
-Sexual Music Collection - Jazz SEXtet: Sexy Sounding Jazz for Couples in Love (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexually Twisted (3:14)
-02. Ignite The Spark (3:26)
-03. Provocative Girl (3:35)
-04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E346A1E7DF294D331E358291559FDA8633F4AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658825   (34821) от 08.12.2024
-
-the Gathering - Studio Albums (14 releases) (1992-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom/Gothic/Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34821.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Gathering — рок-группа из Нидерландов, основанная в 1989 году братьями Рене и Хансом Рюттенами.1992 - Always
-1994 - Almost A Dance
-1995 - Mandylion
-1997 - Nighttime BirdsЖанр: Death/Doom Metal, Trip Rock, Progressive RockПродолжительность: 15:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9F569124D39D09264B26A2B1D7FCFF8B55A781
 ```
 
 https://mybot314.ru/tekegram_catalog/

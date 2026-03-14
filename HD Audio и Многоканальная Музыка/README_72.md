@@ -1,3 +1,148 @@
+###  Публикация: 1674708   (160667) от 07.11.2023
+
+Seventh Wonder - Mercy Falls (2008) Reissue, 2023, Frontiers Music SRL [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160667.jpg" />
+</div>
+
+
+###  Подробнее
+
+A01. A New Beginning
+A02. There And Back
+A03. Welcome To Mercy Falls
+A04. Unbreakable(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE706A299898C6CF1A5FE5E8D9A0FEBEAA62CF7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674754   (160655) от 07.11.2023
+
+Seventh Wonder - The Great Escape (2010) Reissue, 2023, Frontiers Music SRL [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160655.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Wiseman
+A2. Alley Cat
+A3. The Angelmaker
+B4. King Of Whitewater(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D79F0D2F176BF1F22D1ABE5203ACFB61CD50A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675059   (160628) от 07.11.2023
+
+Cliff Richard - Cliff with Strings - My Kinda Life (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best of Me (4:04)
+02. Carrie (3:53)
+03. My Kinda Life (3:31)
+04. Wired for Sound (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B271498896F48E4F69A57FEAA739066C1F2D39B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675075   (160596) от 07.11.2023
+
+Bob Marley & The Wailers - Catch A Fire (50th Anniversary) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Reggae, World>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160596.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+01. Concrete Jungle [4:14]
+02. Slave Driver [2:55]
+03. 400 Years [2:47](   Читать дальше...   )Жанр: Reggae, WorldПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A841B8D3D359A37509E97402097F364289CAF0C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675153   (160421) от 08.11.2023
+
+David Coverdale - Whitesnake (1977) [FLAC|24/192|image |Vinyl-Rip] <Hard Rock, Blues-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side one
+01. "Lady"
+02. "Blindman" (Coverdale)
+03. "Goldies Place" (Coverdale)(   Читать дальше...   )Жанр: Hard Rock, Blues-rockПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78572654FFAE4B6DAA591D91089C8C7CCF9313F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675552   (160316) от 09.11.2023
 
 Gama Bomb - BATS (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -601,151 +746,6 @@ Camel - 5 Albums (1974 - 2002) [DTS 5.1|tracks (Upmix)]<Progressive rock, sympho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80AFEB5A0666EBCCADA4B06E14601EFB7E90608C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968048   (158178) от 22.12.2015
-
-Telarc Heads Up SACD Sampler Vol 5 (2005) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <demos/samplers>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158178.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. What'll I Do? - Tierney Sutton
-  2. LWB's House (The Remix) - Dave Holland
-  3. Walkin' In N.Y. - Manhattan Transfer
-  4. Wind Song - Hiromi(   Читать дальше...   )Жанр: VariousПродолжительность: 01:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4212292897F7A88AE1C3015010B4932F1A02E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968049   (158169) от 22.12.2015
-
-Telarc Heads Up SACD Sampler Vol 7 (2009) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <demos/samplers>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158169.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Some Skunk Funk - Randy Brecker with Michael Brecker
-2. Oh What A Beautiful Morning - Ray Charles
-3. You Are My Sunshine - Tierney Sutton Band
-4. Caravan - Hiromi(   Читать дальше...   )Жанр: VariousПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F0145D314C14A655120B3B2E310342B4BAD24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967718   (158120) от 22.12.2015
-
-Various Artists – Telarc SACD Sampler I (2002) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <demos/samplers>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158120.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Moanin' (Monty Alexander)
-2. Badia (Celebrating the Music of Weather Report)
-3. Nature Boy (Philip Bailey)
-4. Feelin' Fine (Spyro Gyra)(   Читать дальше...   )Жанр: VariousПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A34C459AC3A026A5DB8BB8D63024DC1E6FE764E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433242   (157954) от 20.12.2020
-
-The Beatles - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Beat, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 Michelle (Rubber Soul)
-A2 Girl (Rubber Soul)
-A3 Help! (Help!)(   Читать дальше...   )Жанр: Beat, Pop RockПродолжительность: 01:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88A6C65591CF69EDDB3F37FD061C2C53813192B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085463   (157857) от 21.12.2016
-
-Roxy Music – Avalon (2003) 1982 [DTS 5.1|44.1/16|image +.cue|SACD] <Art Rock, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avalon — восьмой и последний студийный альбом британской рок-группы Roxy Music, изданный лейблами Warner Bros и E.G. в 1982 году.01. More Than This 4:31
-02. The Space Between 4:30
-03. Avalon 4:16
-04. India 1:45(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1CC44F4A4D57A9E3A9F5AAA8A918F34AF096CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

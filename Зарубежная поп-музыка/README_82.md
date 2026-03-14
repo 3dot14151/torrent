@@ -1,3 +1,61 @@
+###  Публикация: 1687077   (125737) от 25.12.2023
+
+VA - Bravo Hits 20 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Janet Jackson - Together Again
+02. Natalie Imbruglia - Torn
+03. Espen Lind - When Susannah Cries
+04. The Kelly Family - One More Song(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031FC464A0D1E6B51217D3326C11ED854BBCC256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686994   (125727) от 25.12.2023
+
+VA - Bravo Hits 19 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanson - MMMbop
+02. Real McCoy - Party
+03. Squeezer - Saturday Night
+04. Chili feat. Carrapicho - Tic Tic Tac(   Читать дальше...   )Жанр: Electronic, Pop, RockПродолжительность: 02:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2471FF8C502508B1851A0B90689570B276EB92C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687127   (125578) от 26.12.2023
 
 Agnetha Faltskog - A+ (2023) [MP3|320 Kbps] <Pop>
@@ -687,64 +745,6 @@ VA - Maxi Hit-Sensation 97-04 (2007) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E250271E2EC526E2D625E9730CA65361F2DDAB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699346   (117806) от 13.02.2024
-
-VA - Absolute Dance (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haddaway - What Is Love (Rapino Brothers Mix)
-02. Flm - Megdoglom Erted (Master Mix)
-03. M People - How Can I Love You More
-04. Soul System - It's Gonna Be A Lovely Day(   Читать дальше...   )Жанр: Electronic, Pop, Euro House, EurodanceПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE10164E0C951CAA58AADC2A7F31153EE6DFA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699505   (117772) от 13.02.2024
-
-VA - Billboard Top Pop Hits, 1960 (1994) [OGG Vorbis|480 Kbps] <Electronic, Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Duane Eddy & The Rebels - Because They're Young
-02.  Brenda Lee - I'm Sorry
-03.  Mark Dinning - Teen Angel
-04.  Brian Hyland - Itsy Bitsy Teenie Weenie Yellow Polkadot Bikini(   Читать дальше...   )Жанр: Electronic, Rock, Funk / Soul, PopПродолжительность: 00:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3677C4403ECDDD9B8F36B9DE54FFAAF00FA5D966
 ```
 
 https://mybot314.ru/tekegram_catalog/

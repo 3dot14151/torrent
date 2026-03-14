@@ -1,3 +1,119 @@
+###  Публикация: 1004332   (840313) от 05.04.2016
+
+Lisa Lystam Family Band - Give You Everything (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give You Everything (04:37)
+02. Changes (04:27)
+03. Mean Man (03:53)
+04. Worship Me (04:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76990D05088C1FC402BDCC7DFB6217A345F9D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113130   (840211) от 10.03.2017
+
+Andy Narell - Fire In The Engine Room (2000) Heads Up [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chakalaka [06:58]
+ 02.Unusual Bird [07:47]
+ 03.Coffee Street [08:13]
+ 04.Blue Mazooka [07:54](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA14C7D20E84CE7434090262C879AD45B98D31C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112898   (840207) от 10.03.2017
+
+Kaira - Kaira (2017) [FLAC|Lossless|WEB-DL|tracks] <Cool Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840207.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shining Star (4:11)
+ 2. Never Say Never (5:05)
+ 3. You Are Too Perfect (4:50)
+ 4. Playing With Your Life (5:10)(   Читать дальше...   )Жанр: Cool JazzПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D68C869AAA7ECD47318994B1BB919A27D342FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004258   (840204) от 05.04.2016
+
+Thelonious Monk - Blue Monk (1948-1963) 3CD, 2014, Le Chant Du Monde[FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840204.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Misterioso [02:47]
+02.Evidence [02:35]
+03.Mohawk [03:39](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 03:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E72E7305403E485B622A38C546135A9D8EAE40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004184   (840187) от 05.04.2016
 
 Colin Pollock - Three Cherries Red (2014) [MP3|320 кб/с] <Blues, Rockin' Blues>
@@ -637,122 +753,6 @@ Ripoff Raskolnikov Band - Odds and Ends (2016) [MP3|320 кб/с] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:849FB2F3F413510F2C76DA55571E810DC579E076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004518   (838290) от 06.04.2016
-
-Jeff Jensen - The River City Sessions (Live) (2016) [MP3|320 кб/с] <Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (Live) (0:53)
-02. T-Bone Shuffle (Live) (5:34)
-03. Make It Through (Live) (3:43)
-04. Empty Bottles (Live) (5:31)(   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 01:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4000CD0747956B0488A776513613BA9338BFD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501059   (838246) от 08.10.2021
-
-Mezz Mezzrow - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathless Blues [2:57]
-02. Really the Blues - Part 1 [3:12]
-03. Really the Blues - Part 2 [2:53]
-04. Evil Gal Blues [2:58](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B11B6CB8C6377C46D9BA6C531A7C9C82C4A2B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501057   (838245) от 08.10.2021
-
-Art Farmer - Here's That Rainy Day (1990) Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here's That Rainy Day [6:35]
-02. Didn't We [3:08]
-03. Soul Side [4:28]
-04. So Bist Du [3:36](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397019DFE65BCED903445D00150ACD44E9147DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501052   (838242) от 08.10.2021
-
-New York Voices - Reminiscing In Tempo (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Round, Round, Round (Blue Rondo a la Turk) [7:14]
-02. Open Your Eyes, You Can Fly [5:11]
-03. Answered Prayers (E de Deus) [5:06]
-04. A Dance for Me [4:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D9C9DA7B7D97AAA97954C32891C7D2F4DD6696
 ```
 
 https://mybot314.ru/tekegram_catalog/

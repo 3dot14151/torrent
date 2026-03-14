@@ -1,3 +1,61 @@
+###  Публикация: 1461979   (1021463) от 12.04.2021
+
+Paolo Di Sabatino - Paolo Di Sabatino (2002) Il Manifesto [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Country Lane [7:18]
+02. Rua Algoinhas 301 [7:04]
+03. Kenny [4:07]
+04. I Can Touch The Stars [4:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED4BC742F28EE13CF7BF09843773C008A51373B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462034   (1021462) от 12.04.2021
+
+Nils Krogh - Disposition (2007) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disposition (3:56)
+02. Things We Do (5:34)
+03. Lost Luggage (3:45)
+04. All I Want (3:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF2E7F725287C1219EAEA54F73DF0DBDC411635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462024   (1021440) от 12.04.2021
 
 JJ Sansaverino - Cocktails & Jazz (2021) [MP3|320 Kbps] <Smooth Jazz>
@@ -687,64 +745,6 @@ Buddy DeFranco (De Franco) - 1949 - 1952 (2007) Classics [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CC392F94437405670531C5CA7E2DA257AE5C902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465760   (1018993) от 27.04.2021
-
-Gidi Derzy, Denis Fortoos - The Living Room Sessions (Gidi Derzy Music) (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018993.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winter Drops - 03:35
-2. My Latin Flavor - 03:02
-3. Covibe Holiday - 04:02
-4. December Morning Sun - 03:02(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99379192C76262B83D24F8AE7F02A44BA2E12A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465870   (1018974) от 27.04.2021
-
-Parry Ray - Out Of The Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 . All That Jazz (00:03:40)
-02. She Used To Be Mine (00:04:24)
-03. Trust In Me (00:04:29)
-04. My Ship (00:03:58)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6782913EB6ED16F382845E1399A274FC93AF7D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

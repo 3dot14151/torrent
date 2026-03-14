@@ -1,3 +1,90 @@
+###  Публикация: 1071574   (357378) от 11.11.2016
+
+Peggy Lee - Dream Street (1957) 1999, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Street Of Dreams [03:23]
+ 02.What's New [03:00]
+ 03.You're Blase [02:51]
+ 04.It's All Right With Me [02:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F579B922278EC9AC85A5D562CEDCE691D9246F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071885   (357377) от 11.11.2016
+
+Peggy Lee - Sea Shells (1958) 1999, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sea Fever [02:04]
+ 02.Nine Thorny Thickets [05:00]
+ 03.Little Old Car [01:12]
+ 04.Greensleeves [01:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76F287CD37758DF94F8EE6975B23CA36E2AA2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071534   (357338) от 11.11.2016
+
+Kurt Elling - The Beautiful Day: Kurt Elling Sings Christmas (2016) Sony Music Masterworks[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sing A Christmas Carol [04:35]
+ 02.Wenceslaus (Image I) [01:28]
+ 03.Star Of Wonder [02:04]
+ 04.We Three Kings [06:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0593A3349B162ACBDDAB88FC0067557FFE07AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071503   (357129) от 11.11.2016
 
 Sam "The Man" Taylor - Sam Taylor Pops Daizen Shu (2003) [FLAC|Lossless|image + .cue] <Instrumental, saxophone>
@@ -658,93 +745,6 @@ Walt Dickerson Quartet - Impressions of a Patch of Blue (1965) /1999, Verve Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BD97AC75C071B1EDFA0E44BF4BA3593E1D77815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952883   (353790) от 02.11.2015
-
-Dizzy Gillespie - One Night In Washington (1955) /2013, Warner/[FLAC|tracks+.cue]<Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Afro Suite - Manteca [16:49]
- 02.Hobnail Boogie [07:57]
- 03.Wild Bill's Boogie [06:26]
- 04.Caravan [05:16](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A5B8BC33B0D8B7210AD1D5E1E3BCAA6B3C2E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417909   (353679) от 22.10.2020
-
-Weather Report - Live In London (80-e) 2020, Angel Air [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corner Pocket [9:38]
-02. Unkown [13:56]
-03. Fast City [9:41]
-04. Where the Moon Goes [7:08](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83278AEEDC13DB8036A3CCF7140FE403085118AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417720   (353673) от 22.10.2020
-
-Glenn Miller Orchestra - The 40's Glenn Miller Orchestra (1993) [FLAC|Lossless|image + .cue] <Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wishing (Will Make It So) (2:52)
-02. Stairway to the Stars (2:54)
-03. Moon Love (2:55)
-04. Over the Rainbow (2:30)(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54AF4C0175947B3EBEAB7B8448695A239A3BCBD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

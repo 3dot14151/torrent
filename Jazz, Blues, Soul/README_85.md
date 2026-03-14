@@ -1,3 +1,61 @@
+###  Публикация: 1372761   (883998) от 04.04.2020
+
+The Oscar Peterson - Big 6 At Montreux 1975 (1997) Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Au Private [11:29]
+02. Here's That Rainy Day [10:25]
+03. Poor Butterfly [15:56]
+04. Reunion Blues [13:36]Жанр: Mainstream JazzПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C0EC6EA0C5AB7A4C007C166D2CD7A25FEB3462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103263   (883737) от 13.02.2017
+
+Benoit Lugue - Cycles (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funny Toy (4:37)
+02. The Blue Nine (3:39)
+03. Sugar Kane (Feat Magic Malik) (3:52)
+04. El Tigre (4:13)(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20457E9ACF0DC1C7BC6C16ABCCAEA166F51B8D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104050   (883706) от 13.02.2017
 
 Mel Torme - Sunday In New York & Other Songs About New York (1963) Remaster, 2013, Warner [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Parov Stelar - Live @ Pukkelpop (2016) [MP3|320 кб/с] <Nu Jazz, Electro Swing
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBD0C81E74527FC7760BE704DBAD675D03EABF5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495362   (880623) от 12.09.2021
-
-Andrew Cyrille Quartet - The News (2021) [FLAC 2.0|88/24|tracks|WEB-DL] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880623.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mountain
-2. Leaving East of Java
-3. Go Happy Lucky
-4. The News(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA0BD182616ABEFD0B387792301CA9C7CAEA173E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373290   (880484) от 06.04.2020
-
-The Oscar Peterson Trio - At The Concertgebouw 1957 (2005) Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lady Is A Tramp [4:50]
-02. We'll Be Toghether Again [2:33]
-03. Bluesology [9:21]
-04. Budo [4:26](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C9FA6EE8663C16DC6CEFE4416DA6A4778357DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

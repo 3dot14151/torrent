@@ -1,3 +1,61 @@
+###  Публикация: 1585120   (222889) от 21.10.2022
+
+Stereo Mammoth - EGO (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ego
+02. EgoDeath
+03. Rotting Your Brain
+04. No Devils Round Here(   Читать дальше...   )Жанр: Heavy Rock, Stoner, PsychПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD70AB7B442BBA27F5CFE250839C800FA3887E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585215   (222869) от 21.10.2022
+
+O.R.k. - Screamnasium (2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As I Leave
+02. Unspoken Words
+03. Consequence
+04. I Feel Wrong(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216EF89AD11DE73ABAEED669E9CDD2A144D0E701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585064   (222841) от 21.10.2022
 
 Comedy of Errors - 5 Albums (2011-2022) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
@@ -687,62 +745,6 @@ The Who - WHO (2019) Deluxe Edition [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7122B25EF2C6EE20D73B5680C40E4F9C3DAAB077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585923   (219633) от 24.10.2022
-
-Bon Jovi - Bon Jovi (1984) Remastered, 1998, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runaway
-02. Roulette
-03. She Don't Know Me
-04. Shot Through The Heart(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B4B73B23BDB93634B7ADD377A99AC02B8B80C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585930   (219571) от 24.10.2022
-
-Who Killed Janis - 2 Albums (2022) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil Walks with Me [00:02:20]
-02. Anymore [00:03:56]Жанр: Hard RockПродолжительность: 2 CD, 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D734DF799ADAB3B33E39D238D105B0611ACC6FC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

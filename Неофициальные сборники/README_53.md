@@ -1,3 +1,90 @@
+###  Публикация: 973491   (980246) от 08.01.2016
+
+VA - Extra Lounge (New year edition) (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTJ Xperience - I'll Never Change Up on You (06:47)
+02. Nitin Sawhney - Fires (03:59)
+03. Gomer Edwin Evans - A Time to Chill (06:05)
+04. Luis Hermandez - Aura (04:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA749C8A922A7398AF31738D4CDEB4DA97E9C89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972819   (980174) от 08.01.2016
+
+VA - (OST) Люди в Черном / Men in Black (1997) [MP3|320 кб/с]
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M.I.B. Main Theme
+02. M.I.B. Closing Theme
+03. Edgar's Truck - A New Man
+04. D's Memories - Chase(   Читать дальше...   )Жанр: OST-ScoreПродолжительность: 01:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49DA9D24A34559B8BFE3FEE3AE34E3E95567A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973018   (980161) от 08.01.2016
+
+VA - Подарочный Шансон (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пятилетка - Далеко Далеко
+02. Сергей Кама - Копи Копеечку
+03. Сергей Гвоздика - Зима И Весна
+04. Эльдар Артист И Мемфис - Старая Мать(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF6FAE429DCAADEA330C616E7A8F21A40214C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973384   (980106) от 08.01.2016
 
 VA - Back To 80's Disco Party Vol.1 (2015) [MP3|320 кб/с] <Disco, Italo Disco, Eurodisco>
@@ -680,105 +767,6 @@ VA - Рок 2019 Главные Хиты (2020) [MP3|320 Kbps] <Rock, Alternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C9A0A0D9841ACB1B139BE6C31B3D76C01716DEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614130   (977372) от 08.02.2013
-
-VA - 100 Huge Hits Of The 60s & 70s (2007) 4CD BoxSet[MP3|320 кб/с]<Pop-Rock, Jazz, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Undertones - Teenage Kicks [02:27]
-02. The Regents - 7 Teen [03:25]
-03. Sham 99 - Hersham Boys [03:28]
-04. Jilted John - Jilted John [02:56]
-05. Jonathan Richman And The Modern Lovers - Roadrunner [04:07]
-06. Dave & Ansel Collins - Double Barrel [02:45]
-07. Althia & Donna - Uptown Top Ranking [03:53]
-08. Ken Boothe - Everything I Own [03:47]
-09. Nicky Thomas - Love Of The Common People [02:20]
-10. Bob And Marcia - Young, Gifted And Black [03:10](   Читать дальше...   )Жанр: Pop-Rock, Jazz, RockПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4A70E625E00AE7FB1A05EE0876EC26F42C17ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615363   (977177) от 08.02.2013
-
-VA - Romantic Blues Collection (2013) [MP3|320 кб/с]<Pop,Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dana Gillespie - Where Blue Begins
- 02. Oscar Benton - Bensonhurst Blues
- 03. Paul Mauriat - El Condor Pasa
- 04. Cesaria Evora - Bessame Mucho
- 05. Snowy White - I Loved Another Woman
- 06. Tina Turner - Easy as life
- 07. Sam Brown - Stop
- 08. Chris Rea - Looking For The Summer
- 09. Vaya Con Dios - Forever blue
- 10. Tony Joe White - Cold Fingers(   Читать дальше...   )Жанр: Pop,BluesПродолжительность: 01:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFB5F16B232B2342F186D30E9DFD31B70D8BFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974429   (976969) от 11.01.2016
-
-VA - Sunrise Avenue, Vol. 7 (20 Lounge & Chill-Out Pearls) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glenn Edwads - Pure Water (Ibiza Sunset Mix) (04:30)
-02. Brian Connors - Tropical Sunset (04:08)
-03. Gore Fontaine - Hindu Love (03:25)
-04. Jason Chambers - Black Horse (03:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89430474FCB206AF785D8A771F7CCBA9123A4936
 ```
 
 https://mybot314.ru/tekegram_catalog/

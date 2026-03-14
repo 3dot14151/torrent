@@ -1,3 +1,90 @@
+###  Публикация: 1062365   (442309) от 13.10.2016
+
+Miles Davis - Free Trade Hall: Vol. 1-2 (1960) 2CD, 2004, Magnetic Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442309.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Four [10:55]
+02.All Of You [14:15]
+03.Walkin' (incomplete) [04:24](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DCDE28E3744BE749617C55A329ACBC95328B888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164497   (442027) от 09.09.2017
+
+Hal Galper - Live at Maybeck Recital Hall, Vol.6 (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spoken Introduction [00:17]
+02. Whisper Not [07:08]
+03. It Never Was You [07:08]
+04. All God's Chillun Got Rhythm [03:43](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E66002DC77752568D6BBC5BEB1A75F15D81479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164119   (442026) от 09.09.2017
+
+Rob Brown Ensemble - Crown Trunk Root Funk (2008) AumFidelity [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocking Horse [10:58]
+02. Clearly Speaking [06:57]
+03. Sonic Ecosystem [11:18]
+04. Ghost Dog [07:34](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A0CED292B7C6FAD0639C47EA14540F2E312F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164488   (442009) от 09.09.2017
 
 Stan Getz - Sweet Rain (1986) Verve [FLAC|Lossless|image + .cue] <Cool, Post-Bop>
@@ -659,93 +746,6 @@ Ella Fitzgerald - Oh, Lady, Be Good!: Best of the Gershwin Songbook (1959) 1996,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4081F61A4B8E6FEF2546CD5DB7FD1E3422BF9F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570847   (438474) от 19.08.2022
-
-Art Blakey & The Jazz Messengers - A Day With Art Blakey, Vol.I (1961) 1987, Intercon Music Corp. [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Summit [8:44]
-02. The Breeze and I [9:58]
-03. Blues March [9:49]
-04. Moanin' [11:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA5E52C9FD9731F60CFE7F57365B7F73A898F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249024   (438132) от 22.09.2018
-
-Joey DeFrancesco + The People - Project Freedom (2017) Mack Avenue [FLAC|Lossless|tracks + .cue] <Soul Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (Prelude) [0:41]
-02. Project Freedom [7:00]
-03. The Unifier [5:58]
-04. Better Than Yesterday [7:36](   Читать дальше...   )Жанр: Soul Jazz, Contemporary JazzПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D3B1F9AE4AAD01D308407C9AD696ED4FF7ECF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249028   (438030) от 22.09.2018
-
-Freddie Hubbard - The Body & The Soul (1963) 1996, GRP Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body and Soul [4:40]
-02. Carnival (Manha De Carnaval) [5:21]
-03. Chocolate Shake [3:59]
-04. Dedicated to you [3:25](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45501C29FB401154EBDCE4889EA56EA0D8B2969
 ```
 
 https://mybot314.ru/tekegram_catalog/

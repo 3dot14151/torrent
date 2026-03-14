@@ -1,3 +1,124 @@
+###  Публикация: 1413600   (407128) от 05.10.2020
+
+Slade - Cum On Feel the Hitz: The Best of Slade (2020) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cum On Feel The Noize (4:23)
+02. Skweeze Me, Pleeze Me (4:28)
+03. Mama Weer All Crazee Now (3:43)
+04. Coz I Love You (3:23)(   Читать дальше...   )Жанр: Glam, Hard RockПродолжительность: 02:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C633A6F7DCE65B7D6BE5F6D89DDA7E163D221D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168659   (404895) от 25.09.2017
+
+Billy Idol - The best (1994) [FLAC|Lossless|image + .cue] <Punk Rock,  Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Speed
+02.Cradle Of Love
+03.Shock To The System
+04.Dancing With Myself(   Читать дальше...   )Жанр: Punk Rock,  Hard RockПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A4960F8DC7016A46AEDB0A2AE75621B437E803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168633   (404727) от 25.09.2017
+
+Twisted Sister - 11 альбомов, 19CD (1982-2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Glam Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Twisted Sister — американская глэм-метал-группа из Нью-Йорка. Несмотря на хороший потенциал, «Twisted Sister», основанные Френчем в 1972 и вначале исполнявшие в основном кавер-версии песен известных глэм-рокеров, смогли стать популярными только через десять лет после начала своей карьеры. Одной из причин этого была постоянная смена состава. Относительно стабильный (   Читать дальше...   )Список альбомов:
+1989 | Under The Blade
+1983 | You Can't Stop Rock 'n' Roll
+1984 | Stay Hungry(   Читать дальше...   )Жанр: Heavy Metal, Glam Metal, Hard Rock |Продолжительность: 14:43:49 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853109D2D02A571FA637E7B9DCB688A57AFF67DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528722   (404184) от 18.10.2013
+
+Baroness - Yellow & Green (2012) 2CD [FLAC|Lossless]<Stoner / Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yellow Theme (1:45)
+02. Take My Bones Away (4:59)
+03. March to the Sea (3:11)
+04. Little Things (5:03)
+05. Twinkler (3:17)
+06. Cocainium (5:09)
+07. Back Where I Belong (6:15)
+08. Sea Lungs (3:21)
+09. Eula (6:48)Жанр: Stoner Rock / Progressive RockПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565193   (399837) от 26.10.2012
 
 Deep Purple - Machine Head (1972) 4 Remastered CD Box Set /2012, EMI Records/ [WavPack|Lossless]<Rock, Hard Rock>
@@ -634,122 +755,6 @@ SirGibson - Elder Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71D8EDE2E16E0ADD2303466F635BC8BB5FB3EEAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949577   (372876) от 25.10.2015
-
-Clutch - Psychic Warfare (2015) [FLAC|tracks+.cue]<Southern Rock /Hard Rock /Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Affidavit (0:25)
-02. X-Ray Visions (3:42)
-03. Firebirds! (3:00)
-04. A Quick Death In Texas (3:57)(   Читать дальше...   )Жанр: Southern Rock /Hard Rock /StonerПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7DA7EEE3EBF210333D2520F75B57FC16066723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254537   (372819) от 14.10.2018
-
-Nazareth - Tattooed On My Brain (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Dance With The Devil
-02. Tattooed On My Brain
-03. State Of Emergency
-04. Rubik's Romance(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB09F03FF65C6C657C7474DBBA0DF888AD065A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949863   (372583) от 25.10.2015
-
-Gary Moore - Out In The Fields - The Very Best Of (1998) 2CD Japanese Edition [FLAC|image + .cue]<Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out In The Fields (04:17)
- 02. Over The Hills And Far Away (05:21)
- 03. Run For Cover (04:12)
- 04. Parisienne Walkways (Edit) (Live) (05:49)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 02:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D3E1551344F38F69D04B3A0551E493591A2FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175980   (372023) от 21.10.2017
-
-Europe - Walk The Earth (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372023.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Walk The Earth (4:16)
- 2. The Siege (4:01)
- 3. Kingdom United (2:52)
- 4. Pictures (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583E202B2BB6E9C9DE04D4739DB3E17E42311E79
 ```
 
 https://mybot314.ru/tekegram_catalog/

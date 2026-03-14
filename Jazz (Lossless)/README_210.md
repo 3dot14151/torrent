@@ -1,3 +1,102 @@
+###  Публикация: 580663   (343637) от 25.11.2012
+
+Italian Secret Service - Not The Same (2009) [FLAC|Lossless]<Acid Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_343637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ceccarellis Ice Cream
+02. Control Yourself
+03. 24-7
+04. Smell Like Ten Spirit
+05. Italian Melody
+06. No Se
+07. Cartoons
+08. Call Me Linda
+09. Haupe
+10. Lazy Man(   Читать дальше...   )Жанр: Acid Jazz, LoungeПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257663   (343582) от 27.10.2018
+
+Niels Henning Orsted Pedersen (NHOP) & Mulgrew Miller - The Duo-Live! (2000) 2CD, 2016, Storyville Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343582.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Whisper Not [10:22]
+02. Sophisticated Lady [7:46]
+03. Mood Indigo [10:32](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8112F8CF655BE656407B0E584C35790F343785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 256830   (343502) от 13.11.2010
+
+Gary Burton - Libertango (The Music of Astor Piazzolla) (1999) [APE|Lossless]<Jazz ,Tango>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_343502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Libertango
+02. Invierno Porteno
+03. Escualo
+04. Buenos Aries Hora Cero
+05. Fuga Y Misterio
+06. Milonga Del Angel
+07. Michelangelo 70
+08. Contrabajissimo
+09. Fugata
+10. Mumuki(   Читать дальше...   )Жанр: Jazz ,TangoПродолжительность: 1:11:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580530   (343367) от 25.11.2012
 
 Ben Sidran - Don't Cry For No Hipster (2012) [FLAC|Lossless]<Contemporary Jazz>
@@ -682,93 +781,6 @@ CD1 - La Vie Facile:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5A86E186D0C6C1AB052C01AEA6FF5B8BCFCC3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180516   (340285) от 04.11.2017
-
-Paolo Fresu Quintet - Ballads (1991) Splasc(h) Records [WavPack|Lossless|image + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Sunny Gets Blue [04:15]
-02. In a Sentimental Mood [03:47]
-03. Star Crossed Lovers [06:07]
-04. Monk's Mood [01:59](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810E2A0454FE8BABE5E815AAA66D9CCA622523BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180518   (340281) от 04.11.2017
-
-Carol Welsman - Journey (2012) Justin Time Records [APE|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Route 66 [03:23]
-02. On The Road Again [03:55]
-03. You Came A Long Way From St. Louis [04:54]
-04. By The Time I Get To Phoenix [05:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF05A0AC3F9765D5DA172CC3BABBFD5E480E5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180606   (340156) от 04.11.2017
-
-Matt Bianco - Gravity (2017) Japan [FLAC|Lossless|image + .cue] <Smooth Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joyride
-02. Invisible
-03. Gravity
-04. Heart In Chains(   Читать дальше...   )Жанр: Smooth Jazz, Latin JazzПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC47E0000D5C0548743D190AED7C09E9664139E
 ```
 
 https://mybot314.ru/tekegram_catalog/

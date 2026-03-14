@@ -1,3 +1,90 @@
+###  Публикация: 1554830   (574023) от 01.06.2022
+
+Lou Donaldson - The Complete Blue Note Lou Donaldson Sessions (1957 - 1960) 6CD, 2002, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574023.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Sputnik [10:05]
+02. Dewey Square [7:18]
+03. Strollin' In [14:38](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 07:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEAEDF4D300A765C1D7FF6A20AFE41E8F446F6F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921803   (573799) от 26.07.2015
+
+Lennie Tristano - Descent Into The Maelstrom (1952-1966) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Descent Into The Maelstrom [03:29]
+02. Dream: Paris [03:06]
+03. Image: Paris [03:23]
+04. Take 1 - Rehearsal From Recording Date [04:34](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, CoolПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26EF5D5E4DB069A998630D87FD15526E946E14CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921797   (573797) от 26.07.2015
+
+Jimmy Smith - Fourmost (1991) /2000, Milestone/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Special [06:58]
+02. Main Stem [06:43]
+03. Summertime [08:28]
+04. Things Ain't What They Used to Be [06:37](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C8E98F9978319791C1E528156B91D8C8D47781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303514   (573137) от 21.05.2019
 
 Horace Parlan, Jesper Lundgaard, Ed Thigpen - Relaxin' With Horace (2004) Stunt Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -671,93 +758,6 @@ Cynthia Tauro - Moments (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67256B931BECBC9ECDE1974D1106962D6FAC4342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151762   (570751) от 20.07.2017
-
-Jimmy Raney - Live In Tokyo (1976) 2016, Xanadu Master Edition [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Friends [04:21]
-02. How About You? [05:21]
-03. Darn That Dream [05:00]
-04. Anthropology [04:04](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE86B081B30CD93F8E101654355EA5B3924CAEF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151765   (570719) от 20.07.2017
-
-Herbie Hancock - Thrust (1974) 2016, Audio Fidelity [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Palm Grease [10:39]
-02. Actual Proof [09:42]
-03. Butterfly [11:18]
-04. Spank-A-Lee [07:17]Жанр: Jazz FusionПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A612A1337AB5337B46583D22D96A45C3970F802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922556   (570046) от 28.07.2015
-
-Shorty Rogers - The Fourth Dimension In Sound (1961) /2014, Warner/[FLAC|tracks+.cue]<Jazz, West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One O'Clock Jump [03:42]
-02. Speak Low [03:35]
-03. Tonight [02:56]
-04. Lover [04:50](   Читать дальше...   )Жанр: Jazz, West Coast Jazz, CoolПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388BF592CC91CD6FCBF9D9AB52879E75342AC377
 ```
 
 https://mybot314.ru/tekegram_catalog/

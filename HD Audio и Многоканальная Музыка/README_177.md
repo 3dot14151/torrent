@@ -1,3 +1,148 @@
+###  Публикация: 1775266   (71491) от 25.01.2025
+
+Wildness - Avenger (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wings of Fire (3:13)
+02.  Crucified (4:24)
+03.  Broken Heart (3:26)
+04.  Caught up in a Moment (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38ECAD2B5744AE6192AC6CAB27F1E05017C99C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775014   (71483) от 25.01.2025
+
+Amaranthe - The Catalyst (2024) Bonus Version, 2025, Nuclear Blast [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metal, Power Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71483.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. The Catalyst (3:41)
+• 02. Insatiable (2:59)
+• 03. Damnation Flame (3:34)
+• 04. Liberated (3:06)(   Читать дальше...   )Жанр: Melodic Metal, Power Metal, MetalcoreПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E576E747C55FDB60F2CA53CD1D5DBADB655DC7C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775189   (71480) от 25.01.2025
+
+DJ Maretimo - Winter Time Vol.13 - 18 Premium Trax...Chillout, Chillhouse, Downbeat Lounge (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Chill House, Downbeat, Lounge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71480.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Frank Borell - Don'T Be Shy (Skyfall Mix) (4:39)
+• 02. Airstream - Another Dream (Nightfly Mix) (4:37)
+• 03. Vladi Strecker - Winter Time (The Bossa Mix) (8:22)
+• 04. Retro Rider - Posada Al Mar (The Mystic Ocean Cut) (6:18)(   Читать дальше...   )Жанр: Chill-Out, Chill-House, Downbeat, LoungeПродолжительность: 01:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89C3C06E40E4B34A0BFAE37A22EF4EA3BC59397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775011   (71479) от 25.01.2025
+
+Empire Of The Sun - Ask That God (2024) Deluxe Edition, 2025, EMI Recorded Music Australia Pty Ltd [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electropop, Synth-pop, Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71479.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Empire Of The Sun - Changes (3:38)
+• 02. Empire Of The Sun - Cherry Blossom (3:28)
+• 03. Empire Of The Sun - Music On The Radio (2:56)
+• 04. Empire Of The Sun - The Feeling You Get (4:16)(   Читать дальше...   )Жанр: Electropop, Synth-pop, Indie PopПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC85C8DBF3149EB13964624AE215EAEBD864A9C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775004   (71471) от 25.01.2025
+
+Across the Shade - Madness (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Metal, Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71471.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Falling Leaf (5:02)
+• 02. On The Horizon (3:35)
+• 03. Don't Fall Asleep (3:27)
+• 04. Protect The Day (3:46)(   Читать дальше...   )Жанр: Gothic Metal, Melodic Death MetalПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7572B6B1D2C93086962078475031C31270797B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775249   (71470) от 25.01.2025
 
 Anbaric - Energy Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -600,151 +745,6 @@ Jackson Potter - small things (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3129B4A760DB3BB4EC2A5469A8D258CD58C04DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775813   (71377) от 28.01.2025
-
-Jonne Aaron (Negative ) - Studio Albums (5 releases) (2012-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jonne Aaron (Йонне Аарон Лииматайнен) - финский певец. Он стал одним из самых ярких кумиров подростков и рок-звезд Финляндии в 2000-х годах. Он известен как вокалист, композитор, автор текстов и фронтмен финской глэм-рок-группы Negative.2012 - Vain Elemaa
-2013 - Onnen Vuodet
-2014 – Risteyksessa
-2019 - Tiikerin Raidat(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C662822F1BEEDF2F3004BADC0B026B90541C7712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775812   (71373) от 28.01.2025
-
-Black Cat Hoodoo - Music Heros (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Music Heros (3:39)
-02.  Change Gears (2:37)
-03.  Red Eye (3:38)
-04.  12 O'clock Jump (4:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615001D1B21C2B55A596EDDC6DA9996B346A23A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775831   (71372) от 28.01.2025
-
-Judy Wexler - No Wonder (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Wonder (4:39)
-02. The Summer Knows (4:25)
-03. You Stepped Out of a Dream (3:07)
-04. Never Will I Marry (4:09)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A116D11598BBE0FA50246B31094BCB2F723A0F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776182   (71325) от 30.01.2025
-
-Diego Banchero Trio - Gathered Lectures from a Lifetime (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Fusion, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking for the Pusher (04:12)
-02. Macabro Suite (06:33)
-03. Le 4 A (06:29)
-04. Vestale (03:43)(   Читать дальше...   )Жанр: Progressive Rock, Fusion, InstrumentalПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F708C52AB2B956BC605E7CF3907E3EBC2E6957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691315   (71278) от 01.02.2025
-
-Labyrinth (Italy) - Studio Albums (11 releases) (1996-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Labÿrinth — пауэр-метал-группа, образованная в 1991 году в Массе, Италия.1996 - No Limits
-1998 - Return To Heaven Denied
-1999 - Timeless Crime
-2000 - Sons Of ThunderЖанр: Progressive Power MetalПродолжительность: 10:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF68A638D73F5023D6CC459171A9D336B5A762CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

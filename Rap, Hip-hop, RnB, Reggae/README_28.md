@@ -1,3 +1,119 @@
+###  Публикация: 1425245   (221549) от 20.11.2020
+
+Баста - 40 (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [02:25]
+02. С самых низов [05:39]
+03. Верил всегда (feat. Odi) [05:44]
+04. Время догонит нас (feat. Moscow Gospel Team) [06:06](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C79B6FFBF1418FD755E2D10911F5E4BD3C3790C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342928   (221526) от 04.12.2019
+
+Chingy - Powerballin' (2004) [FLAC|Lossless|tracks + .cue] <Crunk/Midwest Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haters 101 (Intro)
+02. Give Em Some Mo
+03. Fall-N ft. G.I.B.
+04. Balla Baby(   Читать дальше...   )Жанр: Crunk/Midwest Hip-HopПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440B557E0905B0301AB3633F55387EE7677F4C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514012   (221110) от 01.12.2021
+
+VA - Chillhop Essentials - Winter (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moods – Snaring River (2:54)
+02. Otxhello – Happy In My Mind (2:03)
+03. Taro – The Little Place (2:08)
+04. Ian Ewing, Toonorth, Philanthrope – Mortal Wombat (2:50)(   Читать дальше...   )Производство: Chillhop MusicЖанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF444DE03AD8B68FE34AE420657200A3523DF061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513864   (221043) от 01.12.2021
+
+Нигатив - Либератта (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кто я [03:18]
+02. Крылья [03:11]
+03. Наоборот [04:00]
+04. Человек - винегрет [03:03](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813BB3BB4589F2A6BB254982495D5AA10630B22F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425239   (220837) от 21.11.2020
 
 Санчес - Продано. Часть 3. Возрождение (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8432DDF32226D2382C08CCC1859F7052C5125A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651377   (206987) от 06.08.2023
-
-Skindred - Smile (2023) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Religion
-02. GIMME THAT BOOM
-03. Set Fazers
-04. Life That's Free(   Читать дальше...   )Жанр: Hip Hop, Rock, ReggaeПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DA187EEC24CD1567BBF742F9F4135D7FAA1B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582522   (206311) от 09.10.2022
-
-VA - Chillhop Essentials Fall (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruck P – Green Valley Trail (2:43)
-02. Teddy Roxpin – Highland Park After Dark (1:47)
-03. Blue Wednesday, juniorodeo – Find Yourself (2:12)
-04. dryhope – Zero Point (1:56)(   Читать дальше...   )Производство: Chillhop MusicЖанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B220AF51334182939218F59E92606858316693E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617208   (201673) от 07.03.2023
-
-Элджей - SAYONARA Боль (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Окошки
-02. Punks Not Dead
-03. Алка-зельтцер
-04. Sayonara bоль(   Читать дальше...   )Жанр: Рэп, Rap, Hip-HopПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F52403E3801EBB3447A7BCAC8872951A0F8528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620923   (200981) от 22.03.2023
-
-Sam Smith - Gloria (2023) [FLAC|Lossless|tracks + .cue] <Contemporary R&B, Vocal>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_200981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me More (03:23)
-02. No God (03:17)
-03. Hurting Interlude (00:18)
-04. Lose You (03:10)(   Читать дальше...   )Жанр: Contemporary R&B, VocalПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F4216BA4CF3787BDF69B0C20DFC25B6A0F4FAE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

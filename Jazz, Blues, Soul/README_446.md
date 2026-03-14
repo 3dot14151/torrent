@@ -1,3 +1,177 @@
+###  Публикация: 1673179   (166506) от 31.10.2023
+
+Toshiyuki Miyama And His New Herd - Tribute (1978) 1991, Teichiku Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matrix [4:25]
+02. Seth Song [6:08]
+03. Collins Street [5:09]
+04. For Erroll [5:58](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CA420DAF6BD1EBAA6820ECC87327891F9DCD81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673177   (166352) от 31.10.2023
+
+Chet Baker Trio - Live in Paris: The Radio France Recordings (1983 - 1984) 2CD, 2022, Elemental Music [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arbor Way [18:55]
+02. Strollin' [14:27]
+03. Margerine [9:53]
+04. Lament [15:15](   Читать дальше...   )Жанр: CoolПродолжительность: 02:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B20605E8163214BDD03CB4C55C20D05419B2F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516427   (166257) от 11.12.2021
+
+Erroll Garner - 1944-1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaslight [10:16]
+02. Red Cross [7:27]
+03. He Pulled A Fast One (Part 1) [2:50]
+04. He Pulled A Fast One (Part 2) [3:42](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC02169AAB7B5DAACD7A58113AA17F8DC59631C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516416   (166233) от 11.12.2021
+
+Lee Konitz & The Brazilian Band - Brazilian Serenade (1996) Venus Records [FLAC|Lossless|image + .cue] <Bossa Nova, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Favela [7:20]
+02. Once I Loved [6:31]
+03. Recado Bossa Nova [5:23]
+04. September [6:06](   Читать дальше...   )Жанр: Bossa Nova, CoolПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE08216592F513418F4122AAC3DACF8D799FDD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431752   (166202) от 15.12.2020
+
+Pat O'Bryan and Friends - Boomer's Last Stand (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pat O'Bryan and Friends, Elizabeth Lee -- Tell Me the Truth (feat. Elizabeth Lee) (4:26)
+02. Life During Plague Time (3:46)
+03. Chicago (4:50)
+04. Pat O'Bryan and Friends, Carolyn Wonderland-- She Looks Just Like You (feat. Carolyn Wonderland) (3:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984674445E9F0374C7C4DB93B98A9B3FA09BBD76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431909   (166196) от 15.12.2020
+
+Blue Contagion - Blue Contagion (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues; Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Ever Go to Memphis (3:46)
+02. Build It on a Rock (4:03)
+03. Like I Don't Care If I Die (4:05)
+04. Before the Light Fades (5:44)(   Читать дальше...   )Жанр: Blues; Blues RockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639A024930CA8B4B1502A7ED01E0EEEEB8E4F58A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516502   (166152) от 11.12.2021
 
 Beegie Adair - Winter Wonderland (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Piano Jazz>
@@ -568,180 +742,6 @@ Anat Cohen - Claroscuro (2012) Anzic Records [FLAC|Lossless|tracks + .cue] <Mode
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B392FA7207A9AE72193CF2DE41AB4CF510F88ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597780   (165303) от 16.12.2022
-
-Kenny Drew, Jr. - Kenny Drew, Jr. (1991) Antilles [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Walked Bud [4:12]
-02. Evening in the Park [7:31]
-03. Third Phase [6:59]
-04. Monk's Mood [6:18](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADD4BB43A4C4C329A4B246364E84112847F8050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346033   (165252) от 17.12.2019
-
-Bill Evans - 25 Evans (2005) 2CD, Universal [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165252.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Danny Boy [3:45]
-02. Blue Monk [4:34]
-03. Spartacus Love Theme [5:11](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 02:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4EF6BF7598FCF63DF1A1E222BD9D922F894360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597786   (165225) от 16.12.2022
-
-Nat "King" Cole - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Will Make You Laugh [3:18]
-02. Stop! The Red Light's On [2:40]
-03. Hit the Ramp [3:24]
-04. I Like to Riff [2:49](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8489D539BBE63FD2E41DA4A0152D530507EE77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597783   (165214) от 16.12.2022
-
-Django Reinhardt - 1941 - 1942 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hungaria [2:29]
-02. De nulle part [3:02]
-03. Dinette [2:53]
-04. Crepuscule [3:03](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68EF0A06874FBFAADA45327FF96C606EBA6657C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516660   (165109) от 12.12.2021
-
-Bello Band - Who Cares...? (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are My Fantasy (3:54)
-02. Who Cares...? (3:19)
-03. Revolution (3:10)
-04. Love is Gone (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B566D3B006C7745242B1E8095C1549E986495A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516658   (165105) от 12.12.2021
-
-Richard Madden - Second Nature (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Load (4:17)
-02. Sweet Envy (4:36)
-03. Messin' with the Kid (2:25)
-04. Reefer Headed Woman (3:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66502C332EEA20691D3CAA20C198BAF236642793
 ```
 
 https://mybot314.ru/tekegram_catalog/

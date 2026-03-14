@@ -1,3 +1,32 @@
+###  Публикация: 1521774   (763547) от 04.01.2022
+
+VA - Time to Chill (2012) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johannes Huppertz - Bittersweet Symphonie (4:34)
+02. Artenovum - Bizarre Moments (Mystic Ambient Cut) (4:48)
+03. Gushi, Raffunk - Eyes' Cloud (4:17)
+04. Newton - Morning Star (4:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E6CC14651004CD6E2CC60976B5F1EEED5C35C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521937   (763546) от 04.01.2022
 
 Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 5 (2020) [AAC|~350 Kbps] <Lounge, Chill Out, Downtempo>
@@ -682,32 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F13B71FD9BD528A6B455399A8D16CDD6D6FF1743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214707   (761545) от 24.03.2018
-
-Кто наш папа, чувак? / Father Figures (2017) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питер и Кайл Рейнольдсы — два брата, которых эксцентричная мать вырастила в полной уверенности, что их отец умер, когда они были маленькими. Но после того, как они выясняют, что это неправда, они отправляются на поиски своего настоящего отца, в ходе которых узнают о своей матери больше, чем, вероятно, когда-либо хотели знать.Производство: СШАЖанр: КомедияРежиссер: Лоуренс ШерАктеры: Эд Хелмс, Оуэн Уилсон, Гленн Клоуз, Кэт Уильямс, Кристофер Уокен, Дж.К. Симмонс, Терри Брэдшоу, Винг Реймз, Кэтрин Аселтон, Джессика ГомесПеревод: Дублированный (iTunes)Субтитры: Русские,  АнглийскиеПродолжительность: 01:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7120A9E24E2754E7A60F61AC9E3B2D741C55463E
 ```
 
 https://mybot314.ru/tekegram_catalog/

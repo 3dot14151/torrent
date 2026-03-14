@@ -1,3 +1,32 @@
+###  Публикация: 994142   (891662) от 07.03.2016
+
+Freddie Hubbard - Keystone Bop: Sunday Night (1981) 1994, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Birdlike [15:23]
+ 02.The Littlest One Of All [10:26]
+ 03.The Intrepid Fox [16:03]
+ 04.Sky Dive [17:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786BF435CFBC6938FB903397A09ED95736889F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994360   (891658) от 07.03.2016
 
 Brother Jack McDuff - Tobacco Road (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk, Hammond Organ>
@@ -716,35 +745,6 @@ Paul Quinichette - For Basie (1957) 2001, Silen[APE|Lossless|image + .cue] <Main
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:018AB55D4350B7FC001D4AC353527D45088E666E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103270   (887995) от 11.02.2017
-
-Lee Konitz - frescalalto (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Post-Bop, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella By Starlight (9:35)
-02. Thingin (6:26)
-03. Darn That Dream (5:18)
-04. Kary's Trance (4:58)(   Читать дальше...   )Жанр: Post-Bop, JazzПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8928E21CB616A2D96BDAACAED87D77FD69228A
 ```
 
 https://mybot314.ru/tekegram_catalog/

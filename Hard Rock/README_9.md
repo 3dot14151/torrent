@@ -1,3 +1,32 @@
+###  Публикация: 1021146   (742494) от 28.05.2016
+
+The Alex Parche Project - Prohibido El Paso (1994) [MP3|320 кб/с] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prohibido El Paso    02:48
+02. Medicine Show    03:47
+03. Salvation City    04:21
+04. Heat Of The Night    04:21(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDD98A0336A0EBAAD0F01C6C8899E3689F4D208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127138   (741004) от 20.04.2017
 
 Racing The Sun - Killing Time (2017) [MP3|320 Kbps] <Hard Rock, Grunge, Punk Rock>
@@ -719,35 +748,6 @@ Deep Purple - Whoosh! (2020) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:238F11495D85781DEE2D14166DBD949D67D973EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025619   (709830) от 12.06.2016
-
-Knockin' Lost John - Got A Spell (2016) [MP3|320 кб/с] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's My Lady (03:55)
-02. Im Your Man (Single) (03:31)
-03. My Queen (04:21)
-04. Got A Spell (04:14)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41AE184022A2C12919253DB8588181144368D52A
 ```
 
 https://mybot314.ru/tekegram_catalog/

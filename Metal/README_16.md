@@ -1,3 +1,30 @@
+###  Публикация: 988510   (920707) от 20.02.2016
+
+Mastodon - White Walker (2016) [MP3|320 кб/с] <Heavy Metal, Progressive Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Walker (04:22)
+02. White Walker (A Capella) (03:12)Жанр: Heavy Metal, Progressive Metal, RockПродолжительность: 00:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F16B2A6EBDC7F141268AAE719A90824A23C7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490122   (920698) от 19.08.2021
 
 Dream Theater - A View From The Top Of The World (2021) Single [MP3|320 Kbps] <Progressive Metal>
@@ -729,35 +756,6 @@ Kreator - London Apocalypticon - Live at the Roundhouse (2020) 3CD [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A0B7E3F22FB5421CE80ADDF847B362401014332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097533   (914120) от 27.01.2017
-
-Betraying the Martyrs - The Resilient (2017) [MP3|320 Kbps] <Symphonic Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost For Words (04:00)
-02. Take Me Back (04:50)
-03. The Great Disillusion (04:15)
-04. Dying to Live (03:45)(   Читать дальше...   )Жанр: Symphonic Metalcore, DeathcoreПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C5D43C0DE3EDD755E7050F51CD70E592DC6354
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1346960   (155448) от 21.12.2019
+
+Katie Melua - Live In Concert (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tu Ase Turpa Ikavi
+02. Plane Song
+03. Belfast
+04. Nine Million Bicycles(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 01:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8578F32168CA16952CC221D92E940DDB0D0C4214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600639   (155331) от 28.12.2022
+
+Xavier Soranells and The Andy James Band - From Barcelona to Boston (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Things (3:33)
+02. Dangerous (3:05)
+03. Two Personal Assistants (3:56)
+04. I Need Somebody to Love (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F76451B57BCD3D0D114888F9385DC5420F847EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518293   (155180) от 19.12.2021
+
+Lolo - X (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockin' Blues, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Train Kept a-Rollin' (3:01)
+02. I Need a Man (3:09)
+03. Blue Suede Shoes (2:35)
+04. Ooby Dooby (3:40)(   Читать дальше...   )Жанр: Rockin' Blues, Soul, FunkПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599A0728BC107273308224403B990441D7F8057A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433826   (155040) от 22.12.2020
+
+Thomas Quasthoff & NDR Bigband - Nice 'N' Easy (2018) Okeh [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice 'n' Easy [3:37]
+02. Body and Soul [6:27]
+03. But Not for Me [5:42]
+04. Moonglow [3:57](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B764CBCB7E600C216999069EE0285AC6AA5F93D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433865   (155012) от 22.12.2020
+
+Matthew Halsall - Salute To The Sun (2020) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Spiritual Jazz, Ambient>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155012.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Harmony with Nature - 09:11
+2. Joyful Spirits of the Universe - 10:40
+3. Canopy & Stars - 07:51
+4. Mindfulness Meditations - 02:49(   Читать дальше...   )Жанр: Contemporary Jazz, Spiritual Jazz, AmbientПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67AEA98F8229C97E5DB5C7B1C059C8DC0BD470BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433591   (154996) от 22.12.2020
+
+Aaron Schembri - City Lights (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Lights (2:25)
+02. Don't Mean Nothing (feat. Normie Rowe) (3:51)
+03. Don't You Worry Now (feat. Ross Wilson) (3:57)
+04. Good Enough For You (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE2B47966071301F5F19BFFFA4A119F8B674E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085861   (154982) от 23.12.2016
 
 Mike Nock - Piano Solos (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -571,180 +745,6 @@ Eric Legnini - Six Strings Under (2019) Bendo Music [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C504640C8064965FB3237E96255FAD8F0EC53115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194785   (154411) от 26.12.2017
-
-Yusef Lateef - Prayer To The East (1957) 1993, Savoy Jazz [WavPack|Lossless|image + .cue] <Hard Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Night in Tunisia [09:55]
-02. Endura [13:10]
-03. Prayer to the East [08:19]
-04. Love Dance [06:46](   Читать дальше...   )Жанр: Hard Bop, World FusionПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBBD55784A387F63DDF5C09D0EC1553B2F85C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194784   (154408) от 26.12.2017
-
-Dollar Brand Duo - Good News from Africa (1973) 2008, Enja [FLAC|Lossless|tracks + .cue] <Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ntsikana's Bell [06:10]
-02. Msunduza [04:42]
-03. Good News / Swazi / Waya-Wa-Egoli [07:30]
-04. Adhan and Allah-O-Akbar [04:14](   Читать дальше...   )Жанр: Ethnic JazzПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4D04EE56466B9ED9C961D9684FDCAE8D1907AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194617   (154397) от 26.12.2017
-
-Ernie Watts, Pete Christlieb, Rickey Woodard - The Tenor Trio (1997) JVC [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Up and Down [04:12]
-02. Strollin' [07:24]
-03. Groovin' High [05:43]
-04. Love for Sale [06:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B6DEE32DF2BC05826731B43C20430EFD06E0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347183   (154369) от 22.12.2019
-
-Jeff Goldblum & The Mildred Snitzer Orchestra - I Shouldn't Be Telling You This (2019) Decca [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Face the Music and Dance (feat. Sharon van Etten) [4:07]
-02. The Sidewinder/The Beat Goes On (feat. Inara George) [4:32]
-03. Driftin' [4:43]
-04. The Thrill Is Gone/Django (feat. Miley Cyrus) [3:55](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC53B3B56C930549860BEB14265951A8B610130C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600853   (154362) от 29.12.2022
-
-Eddie Condon And His All Stars - Jammin' At Condon's (1955) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There'll Be Some Changes Made [7:20]
-02. How Come You Do Me Like You Do [12:58]
-03. Blues My Naughty Sweetie Gives to Me [5:47]
-04. Tin Roof Blues [7:38](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29FAD8A2A3752B87ECB72C5372AA495A630BCAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676814   (154349) от 15.11.2023
-
-Jaz Blues - Evening Romantic Blues Collection (2022) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evening Blues Collection [04:46]
-02. Soothing for Trouble [03:55]
-03. Crazy Blues (Enjoy Fun & Freedom) [03:49]
-04. Love Ain't Wait [04:17](   Читать дальше...   )Жанр: Jazz, Blues, InstrumentalПродолжительность: 01:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7631363869046B6B7EC0476CCF3D40DF2D9FCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1296822   (608532) от 19.04.2019
+
+The Tallest Man on Earth - I Love You. It's a Fever Dream. (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hotel Bar
+02. The Running Styles of New York
+03. There’s A Girl
+04. My Dear(   Читать дальше...   )Жанр: Indie Rock, FolkПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1426070CB67DB2472B2E70C5F76FBE0FD3166D64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038615   (605058) от 29.07.2016
+
+Slinky Droids - The SlinkyDroids Project (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic Rock, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victorious
+02. In the Crescent of Things
+03. Flight
+04. The Woman Who Loved the Deep Sea(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Space RockПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B5F90F26A346E2B6A8E198B96F9FEB7101BF7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038526   (604907) от 29.07.2016
+
+Gogol Bordello - Pura Vida Conspiracy (2013) [FLAC|Lossless|tracks + .cue] <Gypsy punk, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Rise Again    03:42
+02. Dig Deep Enough    03:42
+03. Malandrino    03:33
+04. Lost Innocent World    04:26(   Читать дальше...   )Жанр: Gypsy punk, Folk RockПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1D2741D52C92026F43FAB7D538A186CF3CDFBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231775   (603760) от 20.06.2018
 
 For The Fallen Dreams - Six (2018) Rise Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore>
@@ -658,93 +745,6 @@ Cigarettes After Sex - Cigarettes After Sex (2017) Partisan Records [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B76A64F47FD495034044F2632E4C653EE9817A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039771   (594515) от 02.08.2016
-
-Foals - Holy Fire (2013) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude    04:07
-02. Inhaler    04:52
-03. My Number    04:00
-04. Bad Habit    04:40(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BF8CCB38F86CFDD60491D5851F0434389C884D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039645   (594438) от 02.08.2016
-
-Catfish and the Bottlemen - The Ride (2016) [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7
-02. Twice
-03. Soundcheck
-04. Postpone(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190FB889D670A2164EB55C3845BC9A76274F4EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150443   (593970) от 15.07.2017
-
-Reamonn - 5 Albums (2000-2008) Full Studio Discography [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faith (3:29)
-02. Million Miles (3:49)
-03. Through The Eyes Of A Child (3:53)
-04. Free Like A Bird (3:08)(   Читать дальше...   )Жанр: Alternative Rock, Pop-Rock |Продолжительность: 04:43:27 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8212AB87A421A94FBCC2C6760961DFEBF910F3D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

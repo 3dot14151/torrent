@@ -1,3 +1,90 @@
+###  Публикация: 1118686   (811074) от 26.03.2017
+
+Zaz - Paris, Encore! (2015) [FLAC|Lossless|image + .cue] <Nu Jazz, Chanson>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris Sera Toujours Paris (2:59)
+02. Sous Le Ciel De Paris (3:18)
+03. La Parisienne (3:01)
+04. Dans Mon Paris (version Swing Manouche) (3:19)(   Читать дальше...   )Жанр: Nu Jazz, ChansonПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E824991D60D2B250DEAC274E49D0A1D266AE8DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197953   (810365) от 10.01.2018
+
+Bucky Pizzarelli - Challis In Wonderland (2011) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunday [05:00]
+02. Sugar [04:06]
+03. Challis In Wonderland [04:02]
+04. Davenport Blues [07:10](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B69BA1492F0DE553F3090056D0BB0515B569FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009374   (810294) от 21.04.2016
+
+Art Farmer - Early Art (1954) Remaster, 2006, Victor Entertainment[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Autumn Nocturne [04:10]
+ 02.Soft Shoe [05:03]
+ 03.Confab In Tempo [03:59]
+ 04.I'll Take Romance [05:01](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBFBD0CB41A4EBF47E2C4592AFDB0B9288481201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009461   (810293) от 21.04.2016
 
 Joe Zawinul - The Rise & Fall Of The Third Stream (1967) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Third Stream>
@@ -658,93 +745,6 @@ Art Farmer - Listen to Art Farmer and the Orchestra (1962) Remaster, 2002, Unive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53B0A7407314521F94B79FB0F40B0A44E1E5BF5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009797   (808362) от 22.04.2016
-
-Leo Wright - Blues Shout (1960) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sigi [03:28]
- 02.Angel Eyes [05:14]
- 03.Autumn Leaves [03:50]
- 04.Indian Summer [07:06](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5081DB6C6F949CF53F01F40C733FD849578A12BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009725   (808361) от 22.04.2016
-
-Joanne Brackeen - Aft (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Haiti B [07:38]
- 02.Charlotte's Dream [05:07]
- 03.Dreamers [05:33]
- 04.Aft [06:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAFEE9D3D67B87007BEB2E0BA2F82568843518C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009685   (808359) от 22.04.2016
-
-Art Farmer - Homecoming (1971/1972) Remaster, 2006, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Homecoming [04:13]
- 02.Cascavelo [08:52]
- 03.Some Other Time [06:01]
- 04.Blue Bossa [06:58](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33775D75A716A2F1A952384CA0935D086F65F80
 ```
 
 https://mybot314.ru/tekegram_catalog/

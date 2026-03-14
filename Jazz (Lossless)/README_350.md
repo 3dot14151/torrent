@@ -1,3 +1,87 @@
+###  Публикация: 1785110   (69411) от 14.03.2025
+
+Bud Powell - The Definitive Bud Powell (1947 - 1953) 2002, Blue Note [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bud's Bubble [2:35]
+02. Tempus Fugit [2:28]
+03. Celia [3:00]
+04. Cherokee [3:38](   Читать дальше...   )Жанр: BopПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972FF89CAF3E393560524C89C8711221117C6ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785280   (69296) от 15.03.2025
+
+Art Pepper - Neon Art: Volume One (1981) 2015, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Car [16:52]
+02. Blues for Blanche [17:56]Жанр: Post-BopПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF448C5F4522AB6A6896926CEC8D7977700D46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785285   (69293) от 15.03.2025
+
+Art Pepper - Neon Art: Volume Two (1981) 2015, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mambo Koyama [18:39]
+02. Over the Rainbow [14:37]
+03. Allen's Alley [9:17]Жанр: Post-BopПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2268B1C7F9E418C0698213620E8E1C6F8DB6F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785276   (69291) от 15.03.2025
 
 Wayne Shorter - Night Dreamer (1964) 2024, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -656,93 +740,6 @@ Gene Ammons - Three Classic Albums Plus (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B51D4B905C92383DCA5F7F718E4571D1817CFEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787822   (68697) от 27.03.2025
-
-Duke Ellington - Early Ellington: The Complete Brunswick And Vocalion Recordings Of Duke Ellington (1926 - 1931) 3CD, 1994, Decca Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maori (A Samoan Dance) (1st version) [3:11]
-02. When You're Smiling (The Whole World Smiles with You) (Take A) [3:07]
-03. When You're Smiling (The Whole World Smiles with You) (Take B) [3:06]
-04. Maori (A Samoan Dance) (2nd version) (Take A) [3:01](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:22:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A56D84713CD23F7FB7920A922F9A2DE29EC390B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788024   (68634) от 28.03.2025
-
-Woong San - Tomorrow (2012) Pony Canyon [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow [4:14]
-02. Am I Blue [4:18]
-03. The Boulevard Of Broken Dreams [5:16]
-04. This Masquerade [5:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8592BC9518CFDFFE48F791BC650089EC40027982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788204   (68558) от 29.03.2025
-
-Duke Pearson - Four Classic Albums (1959 - 1962) 2CD, 2016, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Someone In Love [5:29]
-02. Black Coffee [4:28]
-03. Taboo [4:53]
-04. I'm Glad I'm There [4:51](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51DF518EDE67ECAAD6BC548D5817D6C3F1692CA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

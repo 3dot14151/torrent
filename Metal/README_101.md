@@ -1,3 +1,32 @@
+###  Публикация: 1661947   (188262) от 16.09.2023
+
+Manntra - Meridian (2017) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ne Lazi 03:22
+02. Meridian 03:36
+03. Lanterne 03:20
+04. Otac 03:56(   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5787AE1409044BBC2A62469070D86A367CB9B32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661954   (188254) от 16.09.2023
 
 Manntra - Oyka! (2019) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
@@ -712,35 +741,6 @@ Tzompantli - 2 Albums (2020-2022) [MP3|320 Kbps] <Death Metal, Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E725015B54E8F9E9C5097C43FB980FE20F341D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594317   (178249) от 01.12.2022
-
-Gutlocker - To Be Alive (2022) [MP3|320 Kbps] <Groove Metal, Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Send Them All In [00:05:25]
-02 - Make My Day [00:04:46]
-03 - Sink or Swim (feat. Kieran Scott) [00:02:40]
-04 - To Be Alive [00:04:53](   Читать дальше...   )Жанр: Groove Metal, Sludge MetalПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEAE8BF36C92FE5EB190FAECF3B705A27D5669BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

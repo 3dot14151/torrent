@@ -1,3 +1,32 @@
+###  Публикация: 936562   (493857) от 12.09.2015
+
+The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
+02. When The Whip Comes Down
+03. Let s Spend The Night Together
+04. Shattered(   Читать дальше...   )Жанр: RockРежиссер: Hal Ashby & Tom TrbovichПродолжительность: 02:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC94FCD54FD44FA7EC8800B580312FE97023103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936944   (492231) от 13.09.2015
 
 The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p-LQ]
@@ -700,35 +729,6 @@ Ayreon - Electric Castle Live and Other Tales (2020) Blu-ray [H.264/1080p] [Cust
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A9BECE2F38EB0B252DFB06EA739BEFE77754167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701026   (476335) от 18.09.2013
-
-Madonna - The MDNA Tour (2013) BDRemux [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virgin Mary (Intro)
- 02. Girl Gone Wild
- 03. Revolver
- 04. Gang Bang(   Читать дальше...   )Жанр: Музыка, Pop, DanceРежиссер: Дэнни ТуллАктеры: MadonnaПеревод: ОтсутствуетПродолжительность: 02:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE1CB851EC213E830C5052E202310569B0BC52E
 ```
 
 https://mybot314.ru/tekegram_catalog/

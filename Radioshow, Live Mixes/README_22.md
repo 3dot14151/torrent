@@ -1,3 +1,61 @@
+###  Публикация: 1702003   (115824) от 24.02.2024
+
+VA - Armin van Buuren - A State Of Trance 1161 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Armin van Buuren & Ferry Corsten & Rank 1 & Ruben de Ronde - Destination (Cubicore Remix) (ASOT) (Tune Of The Week)
+02.	Lufthaus - Sunlight (Rodriguez Jr. Remix) (ARMADA) (Progressive Pick)
+03.	Vincent De Moor - Flowtation (Dan Stone Remix) (XL)
+04.	Armin van Buuren ft. Anne Gudrun - Love Is A Drug (Agents Of Time Remix) (ARMIND) (Future Favorite)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24269ECE7B671A517405A33FAE265780F6000219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703641   (114819) от 01.03.2024
+
+VA - Armin van Buuren - A State Of Trance 1162 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Andrew Bayer - Blood Pressure (OPHELIA)
+02.	Allen Watts, SILVELA, Watt_Silla - Sweet Lies (FIND YOUR HARMONY)
+03.	Hel:sløwed x JNSN - Want Me (FLASHOVER)
+04.	Elysian - Sparks In The Night (BLACK HOLE)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6979D8BFD66459CDFD28DE9581895F7E0FA1938A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704750   (114030) от 06.03.2024
 
 VA - Live @ RAI, Amsterdam Dance Event (2023) [MP3|320 Kbps] <Melodic House, Progressive House, Techno>
@@ -690,64 +748,6 @@ Sara Landry - Live @ All Night Long, Knockdown Center New York, United States (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B086380EDAD5DB7CE51B6440059BD8040081707D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719756   (110411) от 02.05.2024
-
-KAAZE - Live @ Illuzion Phuket, Thailand (2024-04-20) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KAAZE & ID - Give It To Me (Intro Version)
-02. KAAZE - The Way
-03. KAAZE - Underground (Don't You Want Me) w/Tove Lo - Habits (Stay High) (Acappella)
-04. KAAZE - ID w/Rui Da Silva ft. Cassandra Fox - Touch Me (Acappella)(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2161090CAF0BED18B02C46CE328B92DB6BCC702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719813   (110377) от 02.05.2024
-
-Pretty Pink - Live @ DxB Boat Party Dubai, United Arab Emirates (2024-03-23) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Pink - Happening (Pretty Pink Edit)
-02. Underworld - Born Slippy (Pretty Pink Remix)
-03. Julian Jordan - The Bass (Pretty Pink Remix)
-04. Sunbeam - Outside World (ID Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A59AAAD656ED1B1071ABA7DE031489C0022B727B
 ```
 
 https://mybot314.ru/tekegram_catalog/

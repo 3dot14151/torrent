@@ -1,3 +1,148 @@
+###  Публикация: 1693700   (121342) от 23.01.2024
+
+Ennio Morricone - 100 Movie Themes Hits/Original Versions - Super Gold (2005) Box Set 6 CD [OGG Vorbis|480 Kbps] <Pop, Classical, Folk, World>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Giu' La Testa (From Giu' La Testa)
+02.  Metti una Sera a Cena (From Metti una Sera a Cena)
+03.  La Califfa (From La Califfa)
+04.  Per Qualche Dollaro in Piu' (From Per Qualche Dollaro in Piu')(   Читать дальше...   )Жанр: Pop, Classical, Folk, WorldПродолжительность: 05:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0340B081356DF818BADE175C6ED6C24BAEB0EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694005   (120857) от 26.01.2024
+
+VA - Adult Smooth Jazz: Sax for Sex (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erotica - Adult Smooth Jazz (3:15)
+02. Saxophone - Erotic Slow Emotions (3:33)
+03. Slow Sex Music - Taste My Lips (3:32)
+04. Erotica - Crying Guitar (4:58)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A890BAC35445D41B241772106A6F9B86778AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694473   (120310) от 29.01.2024
+
+VA - There With Me: Intimate Soundtracks for Lovers (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Classical Piano Academy - Sensual Keys of Desire (3:36)
+02. Jazz Music Lovers Club - Passionate Moonlit Whispers (3:02)
+03. Sexual Piano Jazz Collection - In Your Tender Arms (3:08)
+04. Classical Piano Academy - Eternal Sensual Serenade (4:02)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB019057DBB21BE329A0A47EC24FA3C5F9D7187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695292   (119942) от 31.01.2024
+
+Paul Mauriat - Amapola (1984) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Can Wait Forever
+02.  Almost Paradise (Love theme from 'Footloose')
+03.  Against All Odds (Take a Look at Me Now)
+04.  Flashdance... What a Feeling(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97631FF043B6B40235AE75181529028C6B6F95E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696155   (119829) от 01.02.2024
+
+VA - Александр Зацепин. 31 июня (2021) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оркестр п/у М. Фадеева - Вступление
+02. Жанна Рождественская - Песня леди Джейн
+03. Лариса Долина - Драконография
+04. Татьяна Анциферова - Чарльстон(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9E3D1AC97CFE02876DFC3758A9746CC92C5FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695385   (119798) от 01.02.2024
 
 Paul Mauriat - White Christmas (1977) Reissue, 1984, Philips [OGG Vorbis|480 Kbps] <Pop, Easy Listening, Holiday>
@@ -600,151 +745,6 @@ Auscultate - Songs of the Beatles (2002) [MP3|320 Kbps] <Gregorian, A Capella, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B540D379F35A081455A5A6DB891BE1859E6F1927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700143   (115534) от 26.02.2024
-
-Oliver Scheffner - Ambient Moments (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age,Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115534.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.New Life
-2.Moments
-3.Endless Night
-4.Think About Me(   Читать дальше...   )Жанр: New Age,AmbientПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9288F79C2DE93382B5B12D2A7544F2935F17BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700801   (115512) от 26.02.2024
-
-Meldis - Отдохни, волшебник (2006) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дорога
-02. Женитьба короля Трандуила
-03. Сонный рыцарь
-04. Мэглор(   Читать дальше...   )Жанр: Folk, Celtic HarpПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD7F125A7A3FF1C24453563256BFA0A6ABC306D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700804   (115503) от 26.02.2024
-
-Meldis - Арфография (2007) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wherever he goes
-02. Rambe's to Cashel/Planxty Captain O'Kane
-03. Cruel Sister
-04. Lorient(   Читать дальше...   )Жанр: Folk, Celtic HarpПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A401247DCA26E78F08EA43C3F2EB9B8813E7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702517   (115011) от 29.02.2024
-
-VA - The Orient Collective: Mithras (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sylva Drums & Tibetania - Virupaksha Temple (Original Mix) (7:29)
-02. Tadej Jaki & Tibetania - Ksenos (Original Mix) (6:56)
-03. Behind The Green Door & Tibetania - Wizer (Original Mix) (8:00)
-04. Mikhail Catan & Tibetania - Delirium (Diego Galloso & Noam Garcia Remix) (6:38)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7241AF6B86479836959643551AFC677CB17064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703064   (114849) от 01.03.2024
-
-VA - The Orient Collective: Mystic Dunes (2023) FLAC Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Nigora (5:58)
-02. Juantxo Munoz - Tibet (5:10)
-03. DaDa Sound Project - Sevemedim (Downtempo Mix) (5:24)
-04. DaDa Sound Project - Sevemedim (Dawa Su Beat Mix) (5:20)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE747DC8E5C609051D8FE870842FEB46A98E18A
 ```
 
 https://mybot314.ru/tekegram_catalog/

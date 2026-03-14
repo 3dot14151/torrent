@@ -1,3 +1,32 @@
+###  Публикация: 1844693   (1050286) от 27.12.2025
+
+Threestyle - Christmas Is My Favourite Season (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Christmas Is My Favourite Season (3:22)
+02.  First Christmas (3:45)
+03.  Christmas in July (3:45)
+04.  New Kind of Christmas (3:29)(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, ChristmasПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E883CAD2AF6AB845A43B2B0883D5C6B30C07F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844696   (1050283) от 27.12.2025
 
 Threestyle, Magdalena Chovancova, Robert Fertl, Damon Dae - We Have That Magic (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
@@ -716,35 +745,6 @@ CD1 - The Art of Duo:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:479B873C146407FA5DF761FA965083B7470358DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603007   (1045878) от 08.01.2023
-
-Vic Dickenson & Urbie Green - Slidin' Swing (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You Were Young, Maggie [4:53]
-02. Nice Work If You Can Get It [4:43]
-03. You Brought A New Kind Of Love To Me [5:18]
-04. Everybody Loves My Baby [9:33](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1FC549AD1B4198E6AEDE98D84CC0A769F6C8B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

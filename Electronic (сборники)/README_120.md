@@ -1,3 +1,32 @@
+###  Публикация: 1236646   (554061) от 19.07.2018
+
+VA - Good Vibes (2018) [MP3|320 Kbps] <Deep, Techno House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554061.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Way Out West - Lullaby Horizon
+002. Volksfreude - I Want You There
+003. Sandra Kanivets - Moonlight (Original Mix)
+004. Rough Cut & NoShame - My Love (Original Mix)(   Читать дальше...   )Жанр: Deep, Techno House, ElectroПродолжительность: 09:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4574D7A66F7C228D6EBBE465980B241015D4AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236846   (553839) от 20.07.2018
 
 VA - TOP Non-Stop 2010-2015 - Trance. Volume 1. Set Of New Feelings (2016) [MP3|320 Kbps] <Trance, Progressive House>
@@ -716,35 +745,6 @@ VA - Euphoric Melodic Trance Limitless (2016) [MP3|320 Kbps] <Trance, Melodic, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC38A48CEFD9223FB534FD50526093BB7AC027D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047408   (549261) от 30.08.2016
-
-VA - LUXEmusic - Dance Super Chart Vol.83 (2016) [MP3|320 Kbps] <Club House, Deep House, Electro House, Future House, House Music, Mash Up>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549261.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alekseev - Снов осколки (Astero Club Remix)
-2. Andrey Keyton & Sharapov feat. Tinaya - I Want You Soul (Original Mix)
-3. Artik & Asti - Я твоя (Alex Clod & Gilevich Remix)
-4. Artik Pres. Asti - Больше Чем Любовь (Viento Remix)(   Читать дальше...   )Жанр: Club House, Deep House, Electro House, Future House, House Music, Mash UpПродолжительность: 03:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D36F86909C1B2F52BDC5DA49AFC728DFFDE0EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

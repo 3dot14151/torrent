@@ -1,3 +1,148 @@
+###  Публикация: 1429491   (176529) от 06.12.2020
+
+VA - Buddha-Bar Elements (2020) [MP3|320 Kbps] <Chillout, Downtempo, Deep-House, Miscellaneous>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_176529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tebra - Jovano (6:33)
+02. Kled Mone - Manastir (6:06)
+03. Tebra - Sve Na Crno (6:58)
+04. Calavera Manya - Mir (6:32)(   Читать дальше...   )Жанр: Chillout, Downtempo, Deep-House, MiscellaneousПродолжительность: 04:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661A109E5AAC441D7C672E1930CA46BA4112896D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595337   (175130) от 06.12.2022
+
+Cult Of Youth - With Open Arms (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blameless [00:04:28]
+02. Green Cross [00:02:58]
+03. Shadowforce [00:03:40]
+04. Flowers of Essence [00:04:10](   Читать дальше...   )Жанр: Post-Punk, Dark FolkПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E0FF8E88510DFBADBB2E9C95F3F550314CEACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344599   (175018) от 08.12.2020
+
+Rodrigo Y Gabriela - 11:11 (2010) [FLAC|Lossless|tracks + .cue] <Latin, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_175018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanuman
+02. Buster Voodoo
+03. Triveni
+04. Logos(   Читать дальше...   )Жанр: Latin, FolkПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D063AB5ADC9A5033DDB39C210273F82759648E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668166   (173691) от 12.10.2023
+
+Samantha Delight - Passionately Sexy & Sensual Jazz Music with Orgasmic Vocal (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexually Twisted (3:14)
+02. Ignite The Spark (3:25)
+03. Provocative Girl (3:35)
+04. Seductive Mind (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1A3E1D01D3694B969B777321FA0F886DD9ED22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668360   (173656) от 12.10.2023
+
+VA - Body Language: Hot Sexual Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexual Piano Jazz Collection - Body Language (3:31)
+02. Jazz Erotic Lounge Collective - Sink in You (3:52)
+03. Sensual Lounge Music Universe - Motel 69 (3:00)
+04. Sexual Piano Jazz Collection - Nasty Thoughts (4:33)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2C35EFA208592CD20A02860258E96B16C8DD9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826920   (173516) от 19.10.2025
 
 VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -599,151 +744,6 @@ Ottmar Liebert - Nouveau Flamenco  (1990) [MP3|320 kbps] <Flamenco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32113FCD8FC96FBCF53C9A0E60F56DE214085746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515706   (168515) от 08.12.2021
-
-Wuauquikuna - Collection (2021) 2альбома [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost in the waves
-02. Native tears
-03. Wuambrito otra vez
-04. Sounds of nature(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 02:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1733892FAA2C7EC7AC65ED37C1E5D68DE8C388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515610   (168482) от 08.12.2021
-
-VA - Лучшие гармонисты России (2012) [MP3|224 Kbps] <Русские народные песни, гармонь>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Сметанин - На реке на Виледи (1:36)
-02. Сергей Сметанин - Вологодская тальянка (1:23)
-03. Сергей Сметанин - От скуки на все руки (2:55)
-04. Сергей Сметанин - Как на Северной Двине (3:29)(   Читать дальше...   )Жанр: Русские народные песни, гармоньПродолжительность: 06:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D66B60CE53E12DC4CD105B339F517CF0393032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596324   (168244) от 12.12.2022
-
-Mitchell Gaynor M.D. - Crystal Sonic Sound Sleep (2013) [FLAC|Lossless|tracks + .cue] <Relax, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delta Sleep 1
-02. Delta Sleep 2
-03. Delta Theta Sleep
-04. Delta Alpha Sleep(   Читать дальше...   )Жанр: Relax, HealingПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59A5EEC546AE24FCC6290B4972E2725EBC6D2B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596632   (168200) от 12.12.2022
-
-John Debney - Один дома / Home Sweet Home Alone (2021) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cousin Chaos
-02. What's With You Today
-03. Hunter And Uber Jeff
-04. It's A Christmas Miracle(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D82B716AA36B1783D166D8426803082DE9048B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672723   (167975) от 29.10.2023
-
-Люди Леса - Другие шепоты, другие тени (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadness Horn 5:17
-02. Talisman 6:14
-03. White Stone 4:38
-04. Voron 4:27(   Читать дальше...   )Жанр: Dark FolkПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB0363EDC9B93165569D2BD0502B84FD0D03345
 ```
 
 https://mybot314.ru/tekegram_catalog/

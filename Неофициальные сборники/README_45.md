@@ -1,3 +1,108 @@
+###  Публикация: 600419   (998952) от 08.01.2013
+
+VA - Top 100 Зимний драйв - 2013 (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Ferrari - Te Pego E Pa (Official Remix 2013)
+02. Samo'L - Двигаем Телами
+03. DJ Smash feat. Radio Killer - Save Me Tonight
+04. СтаЯ feat. Murzin Denis - Не Я (Radio Version)
+05. Доминика - Зима
+06. 5sta Family - Без Ума
+07. Misty & Тельман - Только Ты
+08. Вячеслав Самарин - Снег Кружит
+09. Винтаж и ChinKong - Свежая Вода
+10. Animal ДжаZ и МакSим - ЖивиЖанр: PopПродолжительность: 06:05:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600300   (998843) от 08.01.2013
+
+VA - Gangnam Style Hits (2013) [MP3|320 кб/с]<Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998843.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Psy - Gangnam Style (3:39)
+2. Scissor Sisters - Only the Horses (3:42)
+3. Br!k Ft Philly - Get It Poping (Luis Gutierrez Remix) (3:42)
+4. Federico Seven Feat Marti Caos - Night Dreams (Radio Mix) (3:59)
+5. Asaf Avidan & the Mojos - Reckoning Song (Wankelmut Remix) (3:30)
+6. Kyota - Nemo (Original Mix) (6:54)
+7. Andu Angelo Feat Rares & Joshua - Fly With You (Original Mix) (3:40)
+8. Ray Burnz - Fck The Club (Club Mix) (9:18)
+9. Calabria Vs Rob Estell - Nature (Club Mix) (4:41)
+10. Dima Koch - Eurythmic Hook (Original Mix) (5:10)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 05:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C3A075F5F152DE43A9F760C6484A27A64D173C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600726   (998633) от 09.01.2013
+
+VA - Дискотека 2013 Dance Club Vol. 99 (2013) [MP3|320 кб/с]<Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998633.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Morandi - Everytime (Radio Edit) (4:00)
+2. DAS feat. Лера Туманова (Электра) - Чувствовать Пульс (3:31)
+3. Michael Mind Project feat. Birk Storm - Give Me Love (3:49)
+4. DJ Smash feat. Radio Killer - Save Me Tonight (3:37)
+5. Nelly - Hey Porsche (3:30)
+6. Niku feat. Sardi & DeeJay Iljano - One More Time (Radio Edit) (New Version) (3:41)
+7. Don Omar - Pa Que El Party Se Active (3:03)
+8. Bass Ace feat. DJ Skazka - Начнем Сначала (3:55)
+9. Skrillex - The Reason (4:16)
+10. Timbaland feat. Lil Wanye, Missy Elliott &amp; T-Pain - The Party Anthem (3:57)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 02:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAFBD83DC28BC95BD41FD1BC0B312231906D247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600478   (998629) от 09.01.2013
 
 VA - Золотой шансон. Жиганский 2 (2012) [MP3|320 кб/с]<Шансон>
@@ -795,111 +900,6 @@ VA - Зимняя Дискотека DFm (2013) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43C41B0D90F64D75FBB154355F5813F300B9FB77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603400   (997028) от 15.01.2013
-
-VA - Танцевальная Сборная Хитов. Зарубежный (2013) [MP3|256 kbps] <Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997028.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Girls Aloud - Something New
- 002. Cher - Woman's World
- 003. Michel Nekoz - I Like It
- 004. Soul Bros. - Tonight (Crew 7 Radio)
- 005. Pitbull feat. Shakira - Get It Started
- 006. Los Americanos - Red Light Angel (RainDropz! Remix Edit)
- 007. Mia Martina feat. Adrian Sina - Toi Et Moi (Go Crazy)
- 008. Tango & Cash - In your eyes
- 009. Booty Luv - Black Widow
- 010. Comis - My Sexy Tango (Radio Edit)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 06:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5CDE1D2074262F7FFA967009E53F4D9CC8A2FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603545   (996989) от 15.01.2013
-
-VA-Зимний хит-парад звёзд Российской попмузыки (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996989.jpg" />
-</div>
-
-
-###  Подробнее
-
-101. A'Studio - Я искала тебя
-102. Юрий Шатунов - А лето цвета
-103. МакSим - Это же я
-104. Влад Дарвин - Сохраню Любовь
-105. Денис Клявер - Твои руки
-106. Николай Трубач - Отшумела
-107. Фабрика - Фильмы о любви
-108. Премьер-Министр - Любимая
-109. 140 ударов в минуту - Мне с тобою Тикитак
-110. Елка - Около тебя(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA244093076C9234D1AE7F4A65E5C48EF1EDB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603258   (996849) от 15.01.2013
-
-VA - Зарубежная поп музыка (2013) [MP3|320 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PSY feat. Sung Si Kyung - Passionate Goodbye
-02. Rio feat U Jean - Animal
-03. Reea - Come And Get My Love (Radio Edit)
-04. Rene Rodrigezz & Sivana Reese feat. MC Yankoo - Rock'N'Roll (New Album Reworked Edit)
-05. Matura - Disco Band-97
-06. R.J. & Pitbull - Live 4 Die 4 (David May Edit Mix)
-07. Aligator feat. Daniel Kandi - The Perfect Match (Radio Edit)
-08. Christian Burns & Paul Oakenfold & Jes-as We Collide (Radio Edit)
-09. Project 46-Feel The Fire (Radio Edit)
-10. Pulsedriver - Rock The Shit(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 01:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C83ECF6866FF7AAB08829D34EB18500525423E
 ```
 
 https://mybot314.ru/tekegram_catalog/

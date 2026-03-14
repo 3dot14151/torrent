@@ -1,3 +1,32 @@
+###  Публикация: 1504877   (808075) от 25.10.2021
+
+Pink Floyd - The Dark Side of the Moon (2016) [AAC|~342 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak to Me (1:04)
+02. Breathe (in the Air) (2:50)
+03. On the Run (3:36)
+04. Time (7:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F53CAA14CC07AE155FD29CAE3CB2AED953EF39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383933   (807840) от 17.05.2020
 
 Ловушка разума / The Wave (2019) WEB-DL [1080p] ATV
@@ -674,35 +703,6 @@ VA - Nizza Lounge, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34DB97D7E6B0729B5EFDB2EB78F9B3B582A20FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505388   (804630) от 27.10.2021
-
-VA - Soulvibes: Urban Chillout Music (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beamy - Twisted Soul (M-Sol Project Laidback Mix) (4:51)
-02. Patiotic - Acoustic Brain (1:59)
-03. Digby Jones - Hello (1:46)
-04. Living Room - Surfing on a Karma Wave (Worldtraveller's Karma Retreat) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D78605FAE56D10D14C00F698ECDE5F4254180A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1357407   (974392) от 03.02.2020
+
+Manny Albam - Four Classic Albums 1955 - 1957 (2015) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974392.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Anything Goes [3:47]
+02. Headstrong [2:24]
+03. Black Bottom [3:42](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 02:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A141B61D2443A8C871058FFA737443DBB3F419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975359   (973436) от 14.01.2016
 
 Roscoe Mitchell and the Sound Ensemble - Snurdy McGurdy and her Dancin' Shoes (1980) 2003, Nessa[APE|image+.cue] <Avant-Garde Jazz, Free Improvisation>
@@ -716,35 +745,6 @@ Putte Wickman & Jan Lundgren - We Will Always Be Together (2004) Gazell Records[
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCA29D13F1CB23AB9344B80007E92CF132F27E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976798   (967833) от 19.01.2016
-
-Maria Schneider Orchestra - Concert In The Garden (2004) ArtistShare[FLAC|tracks+.cue] <Modern Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Concert In The Garden [11:58]
- 02.Three Romances: Part 1 Choro Dancado [09:46]
- 03.Three Romances: Part 2 Pas de Deux [09:03]
- 04.Three Romances: Part 3 Danca Ilusoria [09:06](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6FD64D70273A4E1A37046E7870951D5AC91292
 ```
 
 https://mybot314.ru/tekegram_catalog/

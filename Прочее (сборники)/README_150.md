@@ -1,3 +1,32 @@
+###  Публикация: 1584108   (225237) от 18.10.2022
+
+VA - Music News vol.222 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225237.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AMELI - Раздеться (02:05)
+ 002. Aksel' - Свободна (01:55)
+ 003. Alex Parker feat. Francis On My Mind - Love The Way You Lie (02:48)
+ 004. Allega - Не Мани Меня (03:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3F897CA473BE7AFD330E204B0B504DD02C4AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268801   (224835) от 12.12.2018
 
 VA - HitZone Best Of Dance (2018) [MP3|320 Kbps] <Dance, Pop>
@@ -716,35 +745,6 @@ VA - Mega Party Hits - Headlights Message (2015) [MP3|192-320 кб/с] <Club, Eu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B594FC2303D0C7943CD6A3B30B214A55329CD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425483   (220546) от 21.11.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 20.11.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foushee - Deep End (2:21)
-02. Jason Derulo - Take You Dancing (3:10)
-03. Sam Smith - Diamonds (3:33)
-04. Hurts - Redemption (4:18)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FE648EB06841AD89182451F5515FE699D28E93
 ```
 
 https://mybot314.ru/tekegram_catalog/

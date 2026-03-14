@@ -1,3 +1,32 @@
+###  Публикация: 1609805   (1043131) от 04.02.2023
+
+Avi Rosenfeld - Very Heepy Very Purple XIV (2023) [MP3|320 Kbps] <Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got A Riff [00:03:54]
+02. Fire And Ice ft. Damond Jiniya [00:05:12]
+03. In The Mass Grave [00:04:47]
+04. Marching Through The Gates [00:04:46](   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE4BAB53594C381350FA8946AF98B5ECCA4C61C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436610   (1043081) от 01.01.2021
 
 Here Lies Man - Ritual Divination (2021) [MP3|320 Kbps] <Psychedelic Rock, Stoner, Fuzz Rock>
@@ -716,35 +745,6 @@ The Three-Body Problem - Light Gave Way (2023) [MP3|320 Kbps] <Progressive Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA1F5EB96446310D23CC6AAB35D7186E72F0B477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611707   (1040559) от 14.02.2023
-
-VA - Intrigue - Steven Wilson presents Progressive Sounds in UK Alternative Music 1979-89 (2023) 4CD, Super Deluxe Edition, Demon Records [MP3|320 Kbps] <Progressive Rock,  Psychodelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD-01 - Steven Wilson Presents Intrigue - Progressive Sounds In UK Alternative Music 1979–89
-CD-02 - Steven Wilson Presents Intrigue - Progressive Sounds In UK Alternative Music 1979–89
-CD-03 - Steven Wilson Presents Intrigue - Progressive Sounds In UK Alternative Music 1979–89(   Читать дальше...   )Жанр: Progressive Rock,  PsychodelicПродолжительность: 4 CD, 05:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A8B73C3236383247ED984E78A98AF043DD0C94
 ```
 
 https://mybot314.ru/tekegram_catalog/

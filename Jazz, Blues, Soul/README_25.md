@@ -1,3 +1,61 @@
+###  Публикация: 1620229   (1032358) от 19.03.2023
+
+The Answer - Sundowners (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock, Hard-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sundowners [00:06:31]
+02 - Blood Brother [00:03:12]
+03 - California Rust [00:03:38]
+04 - Want You To Love Me [00:03:21](   Читать дальше...   )Жанр: Blues Rock, Hard-RockПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE3F262B808844694C0B82C7BD1F6E45E7EE723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446937   (1032345) от 11.02.2021
+
+Roseanna Vitro - Softly (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling in Love with Love [3:38]
+02. In Summer (Estate) [5:36]
+03. A Song for All Ages [4:54]
+04. Softly, as in a Morning Sunrise [4:39](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F6BEA1462206204FB8C37AEC1425E058440A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446944   (1032343) от 11.02.2021
 
 Mezz Mezzrow - 1951 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
@@ -687,64 +745,6 @@ Elles Bailey - Shining in the Half Light (Deluxe Edition) (2023) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67E83ED192D622FDC6DD0FABCE3340D58A624852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447214   (1031812) от 13.02.2021
-
-Marty Straub - Let's Try Some Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Try Some Blues (4:11)
-02. Bailey's Blue (3:07)
-03. Everybody Knows Your Name (5:06)
-04. Backroads (4:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4626C0B743430CE7E3A8A72A00AD9915FC85BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447218   (1031811) от 13.02.2021
-
-Michele Biondi - Down by the River (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down by the River (4:02)
-02. Lonely and Lost (3:57)
-03. The Jail (3:27)
-04. Brotherhood (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6543C39A30208A213368453D767C567E89A1DC7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

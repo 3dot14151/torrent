@@ -1,3 +1,148 @@
+###  Публикация: 1760501   (37291) от 14.11.2024
+
+As I Lay Dying - Through Storms Ahead (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Permanence (1:11)
+02. A Broken Reflection (3:55)
+03. Burden (4:06)
+04. We Are The Dead (feat. Alex Terrible, Tom Barber) (3:44)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADFA0193C6B546E15C675C5C16BA5AD72ED59E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760493   (37290) от 14.11.2024
+
+Starchaser - Into The Great Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stella Exodus (0:21)
+02. Into The Great Unknown (3:59)
+03. Battalion Of Heroes (4:53)
+04. Who Am I (4:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF3B5C0E16ED29CCF553BB004DCAA44552DEDC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760455   (37289) от 14.11.2024
+
+Abc - 2 Albums (2022, 2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beauty of Heaven (Interlude 3) [00:01:49]
+02. The Reality Created by the Observer [00:01:55]
+03. Going up All On, Goodbye ! [00:02:44]
+04. If I'm Ever Looking at You [00:03:45](   Читать дальше...   )Жанр: SynthpopПродолжительность: 4 CD, 03:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90CD891259A585BD64645002DAA5E09B770C6E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760486   (37284) от 14.11.2024
+
+George Harrison - Living in the Material World (50th Anniversary) (1973) Reissue, Remastered, 2024, BMG Rights Management (US) LLC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Me Love (Give Me Peace on Earth) (2024 Mix) (3:37)
+02. Sue Me, Sue You Blues (2024 Mix) (4:46)
+03. The Light That Has Lighted the World (2024 Mix) (3:31)
+04. Don't Let Me Wait Too Long (2024 Mix) (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F1A370E309FC88D0A645563CD2F99D703B67C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760505   (37278) от 14.11.2024
+
+Nickelback - Live From Nashville (Live From Nashville) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Grunge, Hard Rock, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Quentin (3:59)
+02. Savin' Me (with Chris Daughtry) (3:37)
+03. Far Away (4:05)
+04. Animals (4:11)(   Читать дальше...   )Жанр: Post-Grunge, Hard Rock, Alternative MetalПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1C6D0520FD5E1AA976628E5071C79D3ADB7F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760515   (37271) от 14.11.2024
 
 Trapeze - Lost Tapes, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -591,151 +736,6 @@ Ludivine issambourg - Above the Laws (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F142008A55DC9B067E2BC0B3AF41B5E779353500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761603   (36573) от 21.11.2024
-
-As the Sun Falls - Studio Albums (4 releases) (2020-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36573.jpg" />
-</div>
-
-
-###  Подробнее
-
-As the Sun Falls - мелодик-дэт-метал группа, основанная в 2020 году.2020 - Memoriam (EP)
-2021 - Last Days of Light
-2022 - Far Beyond (EP)
-2024 - Kaamos(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 02:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9CAB9777C8B626EF70F75B8CD3000A359DE0CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761593   (36570) от 21.11.2024
-
-Alexander Aruca - October Wind (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking Free (3:20)
-02. Somebody Just Like You (3:39)
-03. Deception for All (3:40)
-04. If You Remember (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B7B4910A2DBF036FB9F44B504CAA4FCCEB83C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761610   (36569) от 21.11.2024
-
-Emmy Meli - Hello Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emmy Meli - Hello Stranger (0:35)
-02. Emmy Meli - Silence (2:15)
-03. Emmy Meli - Breakthrough (2:37)
-04. Emmy Meli - Happy Ending (2:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4289BAF7FC4F232BA47F6F45171C15BCB1202631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761605   (36566) от 21.11.2024
-
-Widespread Panic - Hailbound Queen (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Rock, Alternative Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Baby (7:23)
-02. Blue Carousel (5:47)
-03. Keep Me in Your Heart (4:29)
-04. Trashy (9:35)(   Читать дальше...   )Жанр: Southern Rock, Alternative Rock, Blues RockПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B855A24F3307E75E9679A761D6E7F8FED9A940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761697   (36560) от 21.11.2024
-
-Xandria - Universal Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Time To Live Forever
-02. Universal
-03. 200 Years (feat. Ally Storch of Subway to Sally)
-04. Live The Tale(   Читать дальше...   )Жанр: Symphonic, Gothic MetalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FF8D9DE12DE34CFF4E478F70B800318F4BF47D
 ```
 
 https://mybot314.ru/tekegram_catalog/

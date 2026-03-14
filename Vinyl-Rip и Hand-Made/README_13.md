@@ -1,3 +1,119 @@
+###  Публикация: 1273436   (799731) от 02.01.2019
+
+Tina Turner - Twenty Four Seven (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799731.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Whatever You Need
+A2 All The Woman
+A3 When The Heartache Is Over
+A4 Absolutely Nothing's Changed(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038B0E144940142EC43CE5A263CC3D512A3093BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121789   (799603) от 03.04.2017
+
+VA - RETROспектива, часть XVI. Мелодии и песни из кинофильмов V (1939-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лолита Торрес - Ай, девчонка (из к.ф. ''Жених для Лауры'')
+02. Лолита Торрес - Ясная дорога (из к.ф. ''Жених для Лауры'')
+03. Андраш Варга - Вальс свечей (из к.ф. ''Мост Ватерлоо'')
+04. Виктория Иванова и  Иван Шмелёв - Дуэт Лены и Фёдора (из к.ф. ''Укротительница тигров'')(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E160C5FD11760312B9D7BAE929ED5F724B63B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121901   (799579) от 03.04.2017
+
+KOTO - Plays Synthesizer World Hits (1990)  [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799579.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Trans Europe Express
+A2. Tender Force
+A3. James Bond Theme
+A4. The Force(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72D1100049543FDE2A1DA4F56221D5C8D4243F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200363   (796143) от 20.01.2018
+
+Sade - Stronger Than Pride (1988) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <R&B, Downtempo>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796143.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Love Is Stronger Than Pride (4:17)
+A2. Paradise (4:02)
+A3. Nothing Can Come Between Us (4:24)
+A4. Clean Heart (4:01)(   Читать дальше...   )Производство: Not On Label - BL 1017Жанр: R&B, DowntempoПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3048926114DED2031AAFC5845A63E24A651E54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274259   (794133) от 06.01.2019
 
 Pete Seeger - Waist Deep In The Big Muddy And Other Love Songs (1993) 1967 [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk>
@@ -629,122 +745,6 @@ Beth Hart & Joe Bonamassa - Black Coffee (2018) [FLAC 2.0 24/192|image|Vinyl-Rip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8F48E93BD74B0141E5DFFF4E3344AA5035C4398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205785   (783180) от 11.02.2018
-
-10cc - How Dare You! (1975) [FLAC 2.0|192/24|tracks +.cue|Vinyl-Rip]  <Art-Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Dare You (4:14)
-02. Lazy Ways (4:21)
-03. I Wanna Rule the World (3:58)
-04. I'm Mandy, Fly Me (5:22)(   Читать дальше...   )Жанр: Art-Rock, Pop RockПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84750145A44EC22BAD4D6BA8D7787118BAA22D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205577   (783152) от 11.02.2018
-
-Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Easy Listening, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koi No Kisetsu (3:23)
- 02. Yuzuki (2:25)
- 03. Shinjuku Sodachi (2:57)
- 04. Hoshi O Minaide (2:28)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377963   (781360) от 19.06.2020
-
-Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Down One Side (3:55)
- 02. Like I've Never Been Gone (5:58)
- 03. Big Log (5:07)
- 04. In The Mood (5:21)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D7BEDC507C9AD409BF258406862B15A172F150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207556   (780371) от 19.02.2018
-
-Demis Roussos - 5 Albums (1971-1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fire And Ice 
-A1 Fire And Ice
-A2 She Came Up From The Nort
-A3 Good Days Have Gone(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 03:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE47DCD164DDA7F43736DEFB744B22B3844689A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1513202   (225965) от 28.11.2021
+
+VA - Prognoesis, Vol. 01 (2021) [AAC|~329 Kbps] <Organic House, Progressive House, Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Demure - Bellabony (6:44)
+02. Julian Nates - Origami (7:21)
+03. Agustin Pietrocola - Dementor (7:30)
+04. Mooh - Connected (7:03)(   Читать дальше...   )Жанр: Organic House, Progressive House, Melodic House & TechnoПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDF39B130C84DBB0787581DC31443A09F649345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513209   (225957) от 28.11.2021
 
 VA - World Of Psychill (2021) [AAC|~307 Kbps] <PsyChill, Psybient>
@@ -686,35 +715,6 @@ VA - This Is Soulful House 2 (2019) [AAC|~331 Kbps] <Soulful House, Deep House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B93F5DDD21DE4C5B23A35A3183A6F2018619854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513465   (224185) от 29.11.2021
-
-VA - Music for Mindfulness, vol. 2 (2018) [AAC|~302 Kbps] <Downtempo, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troels Hammer, Clara Valente - Ai Meu Bem (4:29)
-02. Max Essa - Orange Trail (5:07)
-03. Aleceo, Sergi Kampanella - Clouds (6:06)
-04. Peter Visti, Lukas Visti - Cantamos de la Guitarra (2:52)(   Читать дальше...   )Жанр: Downtempo, Chill OutПродолжительность: 01:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A5FD3A7BAABE7FBF81331F278B0E81C5A51B99
 ```
 
 https://mybot314.ru/tekegram_catalog/

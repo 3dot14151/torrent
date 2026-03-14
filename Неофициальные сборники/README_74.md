@@ -1,3 +1,90 @@
+###  Публикация: 1092391   (938874) от 12.01.2017
+
+VA - Блатной шансон на любимой волне Выпуск № 9 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Раиса Отрадная - Девчата 2:38
+002. Сергей Клушин & Андрей Климнюк - Развод 2:59
+003. Дмитрий Соснин - Мой Сад 4:35
+004. Лесоповал - Посередке Следствие 3:16(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72963262FEC9FDF17856C74F014590089B20FED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092388   (938865) от 12.01.2017
+
+VA - Зимние зарубежные хиты экспресс. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938865.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lady Gaga - Perfect Illusion 3:02
+002. Dnce - Unsweet 3:21
+003. Claudia Leitte - Taquita 3:22
+004. Alicia Keys & Pharrell Williams - Apple 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73FAA3A4BD912761893E16EB351D2FB0D841F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984422   (938843) от 09.02.2016
+
+VA - Зимние Новинки Интернета 50+50 (2016) [MP3|320 кб/с] <Pop, Dance, Rock, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Егор Крид - Будильник (Sunset Live Remix)
+02. Turbotronic - Booty Shake (Original Mix)
+03. Ленинград - Экспонат
+04. Lea Rue - I Cant Say No (Broiler RmX)(   Читать дальше...   )Жанр: Pop, Dance, Rock, ChansonПродолжительность: 06:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:944B886B90121BCAF5F8B31A2BF37D0636B449A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 283935   (938795) от 18.01.2011
 
 VA - Зарубежные хиты января Vol.2 (2011) [MP3|320 kbps]<Pop/Dance/Club>
@@ -655,93 +742,6 @@ VA - Respect System Groove Dancing (2017) [MP3|251-320 Kbps] <Club, Funky, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49A9A256828E48D850EC6E989288B5A33764A2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984954   (937256) от 10.02.2016
-
-VA - Miami Dance - Lights Impression (2016) [MP3|212-320 кб/с] <Acid House, Hard NRG, Electroclash, UK Funky, Bigroom, New Rave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937256.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sandro Silva X Dirtcaps - Someone Like U (Radio Edit) 03:22
-002. Hardwell And Dannic Feat. Haris - Survivors (Original Mix) 04:36
-003. Nervo Ft. Kreayshawn, Dev & Alisa - Hey Ricky (Extended Mix) 04:07
-004. Steve Angello & Laidback Luke - Show Me Love (Feat Robin S) (Anevo Remix) 05:15(   Читать дальше...   )Жанр: Acid House, Hard NRG, Electroclash, UK Funky, Bigroom, New RaveПродолжительность: 10:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1518F3825215807B5D7F1FA792A55100E1C6FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984768   (937253) от 10.02.2016
-
-VA - After Ultimate Club Anthems (2016) [MP3|320 кб/с] <Club, House, Progressive, Funky>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silverleaf - Like No Other (Original Mix) 05:24
-02. Mekki Martin & Damae - Shine (Original Mix) 05:17
-03. Luca Debonaire Feat. Tavo - Warehouse (Feat. Tavo) 05:42
-04. Discover. - Vogue (Original Mix) 06:32(   Читать дальше...   )Жанр: Club, House, Progressive, FunkyПродолжительность: 04:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB91FEF0562073AC5330EF1F054DAA67577B3C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984946   (937244) от 10.02.2016
-
-VA - Wicked Bass: Psychill Dubstep (2016) [MP3|320 кб/с] <Dubstep, Electro, DnB>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937244.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. SBCR & TWNTYMLS - Back To The Top (TWNTYMLS VIP) 03:24
-002. Sadhu, Code:Pandorum & Samplifire - Tequilariddim 04:09
-003. Rickyxsan x Dirty Audio - Gettin' That 02:50
-004. Pegboard Nerds - End Is Near (Bear Grillz Remix) 03:05(   Читать дальше...   )Жанр: Dubstep, Electro, DnBПродолжительность: 10:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C011E2B6FE87049659E71DCEAA540E91D98B47
 ```
 
 https://mybot314.ru/tekegram_catalog/

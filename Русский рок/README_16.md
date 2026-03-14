@@ -1,3 +1,61 @@
+###  Публикация: 1096041   (922819) от 22.01.2017
+
+Rajfajh - 2 albums, 3 demos, 3 singles, 5 compilations, 2 EP, 1 Live (1995-2015) [MP3|112-320 Kbps] <Black Metal, Noise, Dark Ambient, Death Metal, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922819.jpg" />
+</div>
+
+
+###  Подробнее
+
+1995 - Спонтанность
+1996 - Всё Человеческое Чуждо (Demo)
+1996 - Настика (Demo)
+1998 - Техноген (Single)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 07:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E11B6D43F9717E0E008CF8DCA3182C80C5BF9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988081   (922737) от 19.02.2016
+
+Собаки Качалова - Пацифик (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пацифик
+02. Дом – работа
+03. Без тебя так темно
+04. Девушки(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3FCA4F680505947B74C6AA24295E4C97E8BF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095997   (922076) от 22.01.2017
 
 Макс Фадеев - 3 Albums + 1 Compilation + 1 Soundtrak + 3 Singles (1991-2016) [MP3|320 kbps] <Alternative, Rock, Meditative>
@@ -689,64 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD8E3308BAFAB2F96BADFBEB0C0AF47AB3B967AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989634   (913567) от 24.02.2016
-
-Гравитация - Открытые Пространства (2016) Авторская раздача [MP3|320 кб/с] <Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Берег
-2. Питер
-3. Гравитация
-4. Разводят мосты(   Читать дальше...   )Жанр: РокПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7644BE050CA5D69F22082E408CEDAB12AA60E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097778   (912608) от 28.01.2017
-
-Nox Doloris - 1 album, 2 EP, 1 single, 2 demos (2008-2016) [MP3|320 Kbps] <Sympho Black Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2008. Demo
-2010. Demo
-2011. Sacrifice Me (EP)(   Читать дальше...   )Жанр: Sympho Black Death MetalПродолжительность: 02:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9283C5962EB09FD5B68BA96460A51660537045
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1750304   (104230) от 19.09.2024
+
+Zetra - Zetra (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Synth-Rock, Synth-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suffer Eternally (4:13)
+02. Sacrifice (3:57)
+03. Starfall (4:00)
+04. The Mirror (3:02)(   Читать дальше...   )Жанр: Synth-Rock, Synth-PopПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113087B7FCB586C1484F2EA911F4D1B969B25408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750296   (104229) от 19.09.2024
+
+Ctraltu - NO EXIT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink patrol (4:31)
+02. Ruhrschnellweg (3:42)
+03. The way U talk to me (3:01)
+04. Aufzugsbekanntschaften (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC088395EF45639ACA9590E6CAF3DAE49E6DD7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750387   (104228) от 19.09.2024
+
+Skid Row - Live in London (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slave to the Grind (3:38)
+02. The Threat (3:53)
+03. Big Guns (4:53)
+04. 18 and Life (5:11)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Glam MetalПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0B3A8C0F60B02586DF6F6023AD707E93FCBBBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750380   (104227) от 19.09.2024
+
+Eclipse - Megalomanium II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocalypse Blues (3:22)
+02. The Spark (2:51)
+03. Falling to My Knees (2:58)
+04. All I Want (3:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51AF326125DBE45C0E1C6B3DF0E80B9E5C3765D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750415   (104226) от 19.09.2024
+
+Charlotte Wessels - The Obsession (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Gothic Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Sunsets (4:16)
+02. Dopamine (feat. Simone Simons) (3:36)
+03. The Exorcism (4:49)
+04. Soulstice (3:03)(   Читать дальше...   )Жанр: Alternative Rock, Gothic Rock, Symphonic RockПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331E6C8814262940699DE775EE45A0F91913DE5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750402   (104217) от 20.09.2024
 
 Figen Morfen - Stay positive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -599,151 +744,6 @@ Asia Monet Ray - Asia Monet (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE1E8CC0F915547A84BAEF3491E15141D2F848B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751031   (104126) от 22.09.2024
-
-Joan As Police Woman - Lemons, Limes and Orchids (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <alternative-rock, indie-pop, singer-songwriter>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Dream 03:32
-02 Full-Time Heist 03:57
-03 Back Again 03:54
-04 With Hope In My Breath 03:50(   Читать дальше...   )Жанр: alternative-rock, indie-pop, singer-songwriterПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0307D8C93015D2B9CC96987CBF867255294E0E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750806   (104121) от 22.09.2024
-
-Bloodest Saxophone feat. Crystal Thomas - Extreme Heat (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mailman's Sack (2:12)
-02. I Don't Need You No More (3:00)
-03. Undercover Of The Night (3:56)
-04. Dinah (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7713142767C85C440EF3B265ECA31F8F598F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751034   (104114) от 22.09.2024
-
-Wizard - Studio Albums (12 releases) (1995-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wizard — пауэр-метал-группа из Германии, сформированная в 1989 году. Группу часто называют «немецким ответом Manowar».1995 - Son Of Darkness
-1997 - Battle Of Metal
-1999 - Bound By Metal
-2001 - Head of the DeceiverЖанр: Power MetalПродолжительность: 10:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3B5A3F747182C624A04A9D171F668A2F3279C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750836   (104111) от 22.09.2024
-
-Kat Von D - My Side of the Mountain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Darkwave, Gothic Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead [00:02:29]
-02. Vampire Love [00:03:45]
-03. H.A.T.E. [00:03:12]
-04. Truth In Reverse [00:03:33](   Читать дальше...   )Жанр: Synthpop, Darkwave, Gothic-PopПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188DA1AC9FC25FE5940AEB8835C89E3A4B8828A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750977   (104106) от 22.09.2024
-
-Somewhereout - Providence (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Metal, Post-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhereout, Alba Bermejo, Begoña Ramos, Carlos Strachan - Under the Black Stars (7:13)
-02. Somewhereout, Abraham Linares - The Sword (4:31)
-03. Somewhereout - Gone (4:49)
-04. Somewhereout, Jesus Martinez, Israel Lupi - The Green Book (5:33)(   Читать дальше...   )Жанр: Post-Metal, Post-RockПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C603D5CE4C92ECADDC277676FCEE016FF3B79B54
 ```
 
 https://mybot314.ru/tekegram_catalog/

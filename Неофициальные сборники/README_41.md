@@ -1,3 +1,90 @@
+###  Публикация: 1349508   (1004302) от 02.01.2020
+
+VA - Hi Games Vol.4 (Chiptune Edition) (2020) [MP3|320 Kbps] <Chiptune>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vince Kaichan - Drag Strike
+02. H-Mister - Destination
+03. Glenntai, RoBKTA - ASGORE (from UNDERTALE)
+04. Jredd - Moon Glider(   Читать дальше...   )Жанр: ChiptuneПродолжительность: 02:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D04DEB92B18DD99DCD8AFB31C2610595702365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349592   (1004295) от 02.01.2020
+
+VA - Animalistic Vol.02 (2019) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004295.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beyond The Grey - Unthinkable Tragedy
+002. Vitaform - Devil's Mirror
+003. Hands Of God - 2 Shotz
+004. Primal Fear - Apocalypse(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 08:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AFD90A2141979EF82A080F0C8042C9973D0C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349588   (1004271) от 02.01.2020
+
+VA - Hardstyle Dance Music For Fitness Vol.03 (2019) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004271.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Estasia - Queen Of The South
+002. Audiofreq - Sky Fall
+003. Dj Allan Xp - Laser Battle
+004. Matt Cubero - Cedan(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, ElectroПродолжительность: 09:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D2100EBB87508DFBFEAAFC80154773D0778C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349591   (1004267) от 02.01.2020
 
 VA - Cyber Space: Future Synth Electronic (2020) [MP3|320 Kbps] <Synthwave, Synthetic, Electronic>
@@ -658,93 +745,6 @@ VA - Viral Beats (2025) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C54E81DA4E9D41CFB4301B4C519A9052599E5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487522   (1003315) от 06.08.2021
-
-VA - The Purgatory (Vol.02) (2021) [MP3|320 Kbps] <Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003315.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Be All End All - End Sequence
-002. Soul Of Ears - Invincible We Are
-003. Vestindien - Beerenberg
-004. Values - Temperance(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 10:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33ED0ECAC3823F2D97A1644FCEC7A1B7E6DF73D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487517   (1003313) от 06.08.2021
-
-VA - Lyric Funk: Listening Soul Mix (2021) [MP3|320 Kbps] <Funk, Soul, Disco, RnB>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003313.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tyree Glenn Jr - Skin Tight
-002. Silky Vincent Group - Changed Man
-003. Celeste - Tonight Tonight
-004. DJ Moy, Funk O'ya - Destinations Funk(   Читать дальше...   )Жанр: Funk, Soul, Disco, RnBПродолжительность: 08:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5A15E7C7FF088829B19C5E96ABAE66DE16351B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349958   (1003299) от 06.01.2020
-
-VA - Vibrant Color Sound: Top 100 Dj Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003299.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Angelo & Don Argento - Entrance Of The Underworld
-002. Verve - Freedom (Apo Tulup Remix)
-003. Divorosso - Boxy Baby
-004. Lessovsky - Fluids(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 10:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4670BF7C40B18A4A5E224E43DE871A3241B0F07
 ```
 
 https://mybot314.ru/tekegram_catalog/

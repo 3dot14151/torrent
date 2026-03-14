@@ -1,3 +1,90 @@
+###  Публикация: 1351303   (1002474) от 09.01.2020
+
+VA - Neon Night: Electro House (2020) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002474.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dub Striker - 51 Pegasi B
+002. Jeff Omega - Booty Showin'
+003. Stu & Brew - Disordered
+004. Lessovsky - Never Ever End(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 12:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FF183455B8D98FC8D906EC5E2746EB49D1D231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351299   (1002473) от 09.01.2020
+
+VA - Beatport Trance Pack: #03 (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theis Ez - Joy
+02. Broning - Invaders (Original Mix)
+03. Neil Bronson With Lorela - Cant Get Over
+04. Make One - Katana(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 06:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96ACAF2686EEB7456CC3A3FF9ACC497C065A1851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351185   (1002464) от 09.01.2020
+
+VA - Beatport Techno Edm: Pack #03 (2020) [MP3|320 Kbps] <Techno, Minimal, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Alchemical Theory - Dark Forest
+02. Irregular Synth - Clojure (Mr. Jones Remix)
+03. Koen Groeneveld - Wild Noise
+04. Ellen Allien - Bowie In Harmony(   Читать дальше...   )Жанр: Techno, Minimal, EDMПродолжительность: 06:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1F5383919BE10AAAEDACCD5F02D43DD0600825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351183   (1002432) от 09.01.2020
 
 VA - Hip Hop Dj Party (2020) [MP3|320 Kbps] <Rap, Hip Hop>
@@ -658,93 +745,6 @@ VA - Pansperman: Renegade Techno Master Top 100 (2020) [MP3|320 Kbps] <Techno, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CDE973ABBFE5F4130AAB69076FFDE3A6B26E7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352478   (1001082) от 14.01.2020
-
-VA - Start A New Day: Trance Mix (2020) [MP3|320 Kbps] <Trance, Electro, Progressive, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001082.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Imarek - Save Our Souls (Original Mix)
-002. Goarilla - Honeycake
-003. Metta & Glyde - Limerence (Original Mix)
-004. Elevven And Jes - Heartbeat Tonight(   Читать дальше...   )Жанр: Trance, Electro, Progressive, UpliftingПродолжительность: 13:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED8AEB0452BF6A4313CE7D1E447109E6979F33C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351766   (1001049) от 14.01.2020
-
-VA - German Top 100 Single Charts 10.01.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001049.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.The Weeknd - Blinding Lights (3:21)
-2.Tones and I - Dance Monkey (3:29)
-3.Apache 207 - Roller (2:38)
-4.Regard - Ride It (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 05:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A5FFF4E5DF4CBE4A8EDAC305B812E154627418A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351808   (1001045) от 14.01.2020
-
-VA - Record Super Chart 620 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001045.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Tones and I - Dance Monkey (DJ Noiz Remix) (4:00)
-2.SAINt JHN - Roses (Imanbek Remix) (3:58)
-3.Meduza feat. Becky Hill & GOODBOYS - Lose Control (2:48)
-4.FILV & Edmofo feat. Emma Peters - Clandestina (2:28)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F98F1FA583FE57CFCA6CE576CDDFEC807953CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

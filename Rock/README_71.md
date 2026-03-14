@@ -1,3 +1,61 @@
+###  Публикация: 1186955   (284062) от 26.11.2017
+
+Sandy and The Wild Wombats - Devoted to Rock`n`Roll (2017) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Night (02:41)
+02. I Gotta Move (02:52)
+03. Lady (02:16)
+04. Hey (03:40)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D445AA0A9DE0E8578FE4B648CE97E7A5F5017DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264211   (282959) от 22.11.2018
+
+The Alan Bown - Listen & Stretching Out (1970-71) Compilation, 1993, Edsel Records [MP3|320 Kbps] <Psych-Prog, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282959.jpg" />
+</div>
+
+
+###  Подробнее
+
+LISTEN (1970)
+01. Wanted Man
+02. Crash Landing
+03. Loosen Up(   Читать дальше...   )Жанр: Psych-Prog, Jazz RockПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99405F610930A59C38354F55E48D3D55D97CE10C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187239   (282531) от 27.11.2017
 
 Van Morrison - Versatile (2017) [MP3|320 Kbps] <Rock, Blues Rock>
@@ -705,64 +763,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C10D950580B44F4E550186D244F6254F2B44DBA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083756   (273777) от 16.12.2016
-
-The Red Button - Can't Stop Thinking About Her (2007) [MP3|320 Kbps] <Brit Pop, Beat Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cruel Girl
-02. She's About To Cross My Mind
-03. Floating By
-04. She's Going Down(   Читать дальше...   )Жанр: Brit Pop, Beat RockПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082AD1D820E682C8AA79178932BAF971C42A725D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083619   (273772) от 16.12.2016
-
-Slaughter And The Dogs - Vicious (2016) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Trust (All I Want From You)  (03:03) 
-02|  Hollywood Whores  (02:28) 
-03|  Get It On (Bang A Gong)  (04:50) 
-04|  Someday  (03:28) (   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3846421C213D05EAF5D0F1234F74D91ABBE4A6A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

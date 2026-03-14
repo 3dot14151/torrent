@@ -1,3 +1,119 @@
+###  Публикация: 1098306   (908523) от 30.01.2017
+
+DJ Tiёsto - In My Memory (Limited Vinyl Edition) (2001) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908523.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. DJ Tiesto - Magik Journey (Album) 11:07
+B1. DJ Tiesto - Magik Journey (Alternative) 10:01
+C1. DJ Tiesto - Dallas 4 PM 6:46
+D1. DJ Tiesto feat. Nicola Hitchcock - In My Memory 6:08(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D32980DC3D80BA9F5016FFA2555CDAF3B34A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098617   (908510) от 30.01.2017
+
+VA - Tiёsto - Nyana (Limited Edition Sampler) (2003) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908510.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Reinhard Voigt - Supertiel (7:30)
+A2. Conjure One feat. Sinead O'Connor - Tears From The Moon (Tiesto In Search Of Sunrise Remix) (8:10)
+B1. Solar Factor - Urban Shakedown (6:54)
+B2. GTR - Mistral (9:18)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569774D38921D7A97C634AC843F9755CAD48D961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098601   (908447) от 30.01.2017
+
+Tiёsto - Elements Of Life (Limited Vinyl Edition) (2007) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908447.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Tiesto - Ten Seconds Before Sunrise (7:28)
+B1. Tiesto feat. JES - Everything (6:56)
+C1. Tiesto - Carpe Noctum (6:58)
+D1. Tiesto - Bright Morningstar (8:16)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F5F3B4CD88F33CE47FE940353C514100A1F917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098652   (908384) от 30.01.2017
+
+Paul van Dyk - Out There And Back (2000) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908384.jpg" />
+</div>
+
+
+###  Подробнее
+
+A. We Are Alive (07:35)
+B1. Travelling (07:42)
+B2. Pikes (07:12)
+C. Columbia (07:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204F40F5614F2DEF168C111DAB845727B9D4294A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098631   (907982) от 30.01.2017
 
 Enigma - The Fall Of A Rebel Angel (2016) [WavPack 2.0|32/192|image+.cue|Vinyl-Rip] <Downtempo, New Age, Ambient>
@@ -635,122 +751,6 @@ A4. Trouble 4:42(   Читать дальше...   )Жанр: Blues RockПрод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D5431EF63FAA91ABF6E1B1F7EE07F350DE67922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104385   (879773) от 15.02.2017
-
-Frank Sinatra - Duets (1993) First Press [WavPack|192/32|image + .cue|Vinyl-Rip] <Jazz, Easy listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lady Is A Tramp With Luther Vandross (3:24)
-02. What Now, My Love? With Aretha Franklin (3:15)
-03. I've Got A Crush On You With Barbra Streisand (3:25)
-04. Summer Wind With Julio Iglesias (2:32)(   Читать дальше...   )Жанр: Jazz, Easy listeningПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D9756435C197DF0E5FB0857CBB9191D5FA30D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996679   (878696) от 14.03.2016
-
-Nightwish - Endless Forms Most Beautiful (2015) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Symphonic Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878696.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Shudder Before The Beautiful
-A2. Weak Fantasy
-A3. Elan
-B1. Yours Is An Empty Hope(   Читать дальше...   )Жанр: Symphonic Metal, Heavy MetalПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FAF093F6150CCE86D55D0F1BB354A025FD6C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105134   (878009) от 16.02.2017
-
-Manfred Mann's Earth Band - Messin' (1973) 1983, Reissue [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878009.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Messin' (9:55)
-A2. Buddah (7:03)
-A3. Cloudy Eyes (5:35)
-B1. Get Your Rocks Off (2:51)(   Читать дальше...   )Производство: Bronze - 28 856-270Жанр: Progressive RockПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD7F480458F1482862DE7FE14CA7DB2AE2E64B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997355   (875456) от 16.03.2016
-
-Manfred Mann's Earth Band - Nightingales & Bombers (1975) [FLAC 2.0|192/24|image|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875456.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Spirits In The Night (6:27)
-A2. Countdown (3:06)
-A3. Time Is Right (6:33)
-A4. Crossfade (3:41)(   Читать дальше...   )Производство: Bronze Records - 89 059 XOTЖанр: Progressive RockПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6438D39027558495235AE58EBC30CBE7229CD865
 ```
 
 https://mybot314.ru/tekegram_catalog/

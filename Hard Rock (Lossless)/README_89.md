@@ -1,3 +1,119 @@
+###  Публикация: 1679121   (140527) от 24.11.2023
+
+Dead Moon - Going South (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Must Be A Witch [00:02:53]
+02. Dead Moon Night [00:04:55]
+03. Don't Burn The Fires [00:03:47]
+04. Johnny's Got A Gun [00:02:41](   Читать дальше...   )Жанр: Hard-Rock, Punk-RockПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF29FE39E34D6749494D1BDF8DF50E138E084FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195727   (140040) от 30.12.2017
+
+Gary Moore - Blues And Beyond (2017) 4CD Box-Set Limited Edition [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одним из интереснейших музыкантов, которых подарили миру Британские острова, является Гэри Мур.
+Бокс в виде коробки с беспрецедентными живыми записями и официальной биографией Гэри Мура «Не могу дождаться завтра», написанной Гарри Шапиро. Специальная коллекция его самых мощных и эмоциональных блюзовых студийных и концертных записей.01. Too Tired (6:25)
+02. The Sky Is Crying (13:55)
+03. Further On Up The Road (8:23)
+04. Fire (4:05)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Blues, Rhythm & Blues |Продолжительность: 04:19:51 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C019A88CB74BF01092C793AFCBE07C3D5E67A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436228   (139627) от 30.12.2020
+
+George Lynch & Jeff Pilson - Heavy Hitters (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One of Us (Originally by Joan Osbourne) (5:32)
+02. You Got the Love (Originally by Rufus & Chaka Khan) (4:57)
+03. I Feel the Earth (Originally by Carole King) (3:45)
+04. Ordinary World (Originally by Duran Duran) (5:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11E08BA96EA1D9748FF76508EB496D2E87C2BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520823   (139344) от 30.12.2021
+
+Alex Harvey - The Last Of The Teenage Idols (2016) 14 CD Box Set, Limited Edition [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бокс-сет шотландского экстровагантного-рок музыканта Алекса Харви, состоящий как из студийных альбомов группы The Sensational Alex Harvey Band, а также творчества его сольных альбомов.Список альбомов:
+CD1 - CD14
+Подробно в описанииЖанр: Hard Rock, Glam Rock, Classic Rock, Rock'n'Roll |Продолжительность: 15.34.45 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0E0935701A310A483DDDC94CA6F59DEDCC99F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196043   (138811) от 31.12.2017
 
 Dante Fox - Six String Revolver (2017) [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock, Female Vocal>
@@ -641,122 +757,6 @@ Damn Yankees - Damn Yankees / Don't Tread (1990/1992) [WavPack|Lossless]<Hard Ro
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216907   (131239) от 07.12.2023
-
-Gary Moore & Projects: Skid Row, Colosseum II, Greg Lake, BBM -54 Albums, 2EP, 1 Box Set (1970 - 2021) 106 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Classic Rock & Hard Rock & B ...
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gary Moore (полное имя Роберт Уильям Гари Мур; родился 4 апреля 1952 года в Белфасте, Северная Ирландия - умер 6 февраля 2011 г.) - легендарный ирландский гитарист, певец и композитор. Для "муровской" манеры игры на гитаре характерен звук с применением овердрайва и высоким значением сустейна. В ходе своего творческого пути, уходящего корнями в 1960-е, он (   Читать дальше...   )Список альбомов:
-1973 The Gary Moore Band - Grinding Stone
-1978 Gary Moore - Back On The Streets
-1980 Gary Moore - G-ForceЖанр: Classic Rock & Hard Rock & Blues-RockПродолжительность: 103:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32B45526850893D90ECA558AB69201B7921319C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959725   (131230) от 07.12.2023
-
-Cinderella (Tom Keifer) - 14 Albums, 1 Box Set  (1986 - 2019) 25 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock, Blues Rock, Glam>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinderella - американская рок-группа, основанная в 1983 году в Филадельфии. Неизменными участниками группы на протяжении всей её истории являются поющий гитарист и клавишник Tom Keifer, басист Eric Brittingham и соло-гитарист Jeff LaBar. За время клубных выступлений группа приобрела известность, став превосходной концертной командой. Как-то на выступлении группы (   Читать дальше...   )Список альбомов:
-1986 - Night Songs
-1988 - Long Cold Winter
-1990 - Heartbreak StationЖанр: Hard Rock, Blues Rock, GlamПродолжительность: 24:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB205A275114F6605AF8AAA19727A5E1723E98F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682670   (131153) от 08.12.2023
-
-Blue Oyster Cult (Blue Öyster Cult) - First Night (2023) 50th Anniversary Live, 2023, Frontiers Records[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transmaniacon MC (Live) (3:30)
-02. I'm On The Lamb But I Ain't No Sheep (Live) (3:26)
-03. Then Came The Last Days Of May (Live) (7:45)
-04. Stairway To The Stars (Live) (3:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55833FED95C50CB3F8C0B2BC2DC0715BBC7FD10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320740   (130917) от 08.12.2023
-
-Humble Pie - 23 Albums, 2 Box Set (1969 - 2022) 43 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130917.jpg" />
-</div>
-
-
-###  Подробнее
-
-После ухода из "Small Faces" Стив Марриотт присоединился к бывшему фронтмену "Herd" Питеру Фрэмптону. В результате совместных репетиций на свет появился новый британский проект "Humble Pie". Компанию в этот деле Стиву и Питеру составили басист Грег Ридли (экс-"Soookv Tooth" и ударник Джерри Ширли (экс-'Valkyrie"). Первые (   Читать дальше...   )Список альбомов:
-1969 - As Safe As Yesterday Is
-1969 - Town And Country
-1970 Humble PieЖанр: Hard Rock, Classic Rock, Blues RockПродолжительность: 39:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243D765C0F07AC4F7E0C58F2CA78CF284B7181E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

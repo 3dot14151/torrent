@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1858450   (1060469) от 10.03.2026
+
+VA - Chillhop Essentials Spring (2026) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leavv, JUICEB☮X – Skylight (2:10)
+02. Mac Kay – Flora (2:38)
+03. chromo, the dreamer – Cloud Builders. (3:28)
+04. goosetaf, Gregory David – Dine 'n Dash (3:25)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CC307DC6E084FF4EBB6B24F6FEB9506AF7AF91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858219   (1060339) от 09.03.2026
+
+Гио ПиКа - Коми АССР (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снова в игре (intro) [00:01:45]
+02. Северный ветер [00:02:11]
+03. Доброе утро, лагерь [00:01:56]
+04. Царь гора [00:02:00](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DC8D4EED5DD9C04CDEC6309BE60139DED21967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858286   (1060251) от 10.03.2026
+
+Gnarls Barkley - Atlanta (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul, Alternative Rock, Rap, Hi-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow Died Today [00:03:52]
+02. I Amnesia [00:03:57]
+03. Pictures [00:03:56]
+04. Line Dance [00:02:59](   Читать дальше...   )Жанр: Soul, Alternative Rock, Rap, Hi-HopПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB358B33A502987101C5E1BFCEE8150BBB6E7F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856560   (1059080) от 28.02.2026
 
 Bruno Mars - The Romantic (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Funk , Soul, Pop>
@@ -659,93 +746,6 @@ SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F191E7D48B3B0F0B905E901E93367E056BF9CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602256   (1046012) от 06.01.2023
-
-L'One (Леван Горозия) - Концерт с симфоническим оркестром (Live 8_X 2022) (2023) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро (Live 8_X 2022) [00:02:33]
-02 - Ракета, Твой день настал (Live 8_X 2022) [00:02:54]
-03 - Сон (Live 8_X 2022) [00:04:07]
-04 - Дорога (Live 8_X 2022) [00:03:24](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DC7AFE57BAF55F482EA643CD72D92355C320DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581379   (1045802) от 08.01.2023
-
-Вася Васин - 4 Albums (2009-2023) [MP3|320 Kbps] <Rap, Hip-Hop, Spoken Word>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2009 - Демонстрация достижений (CD-1)
-2009 - Демонстрация достижений (CD-2)
-2011 - Tzar Vasilich(   Читать дальше...   )Жанр: Rap, Hip-Hop, Spoken WordПродолжительность: 5 CD, 03:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F85A65F8B2CD88F530B4FCD20F46C8730A9A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606931   (1044218) от 24.01.2023
-
-VA - The Many Faces of Stevie Wonder (2021) 3xCD [FLAC|Lossless|image + .cue] <R&B, Soul, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stevie Wonder, настоящее имя которого Stevland Hardaway Morris, родился 13 мая 1950 года, - одна из самых любимых американских икон и бесспорный гений не только R&B, но и популярной музыки в целом. Слепой практически с рождения, обостренное восприятие звука помогло Wonder'у создавать яркую, красочную музыку, полную жизни и амбиций. Почти все, что он записывал, (   Читать дальше...   )CD1 - The Many Faces Of Stevie Wonder:
- 01. Stevie Wonder - I Call Pretty Music But The Old People Call It The Blues (Part 1) (2:31)
-02. Stevie Wonder & Clarence Paul - Little Water Boy (2:35)
-03. Stevie Wonder - Superstition (Live) (5:41)(   Читать дальше...   )Жанр: R&B, Soul, PopПродолжительность: 02:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E80D26C0C786126CB3C0888AE3A7409675C7398
 ```
 
 https://mybot314.ru/tekegram_catalog/

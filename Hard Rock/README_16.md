@@ -1,3 +1,32 @@
+###  Публикация: 1555732   (567493) от 05.06.2022
+
+The Black Moods - Into the Night (2022) [MP3|320 Kbps] <Alt.Rock, Hard Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Youth Is Wasted On The Young [00:03:32]
+02. Hollywood [00:04:23]
+03. Saturday Night [00:03:45]
+04. She Gets Out [00:04:36](   Читать дальше...   )Жанр: Alt.Rock, Hard Rock, Indie RockПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D6C8B5CB285969C6C4DDDCB402F8D10D1DC969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555739   (567485) от 05.06.2022
 
 Rise of Division - Dichotomy (2022) [MP3|320 Kbps] <Hard Rock, Post-Grunge>
@@ -728,35 +757,6 @@ Tyler Bryant & The Shakedown - Truth And Lies (2019) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32DE9A44B2CBC328869E87B9B9A46BA23BAA0807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311011   (544221) от 27.06.2019
-
-VA - Big Hair Metal (2019) [MP3|320 Kbps] <Hard Rock, Hair Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Kiss - Do You Love Me (00:03:38)
-02 - Steve Stevens - Atomic Playboys (00:05:47)
-03 - Twisted Sister - Tonight (00:03:52)
-04 - Vince Neil - Sister of Pain (00:05:02)(   Читать дальше...   )Жанр: Hard Rock, Hair MetalПродолжительность: 03:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CCF2ECF3B03906AB0E9BDD9E61477B314D6DE73
 ```
 
 https://mybot314.ru/tekegram_catalog/

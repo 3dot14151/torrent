@@ -1,3 +1,177 @@
+###  Публикация: 1275452   (790524) от 11.01.2019
+
+Jimmie Noone - 1930 - 1934 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You're Smiling [2:49]
+02. I Lost My Gal From Memphis [2:27]
+03. On Revival Day [2:34]
+04. I'm Drifting Back To Dreamland [2:45](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4793E3A5CCF7B4DE4DAAEDE171FC7E7C6AF02A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275479   (790522) от 11.01.2019
+
+David Tixier Trio - Universal Citizen (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far From the World
+02. Tokyo
+03. Lost Among Ghosts
+04. Tribute to an Old Man(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B083EAFAED5EBCBAEAA6CF333F7050D123D796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275280   (790521) от 11.01.2019
+
+Chris Whitehouse's Connected - Grounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Down
+02. Head Honcho
+03. Yes, And?
+04. Two Four One(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D4D637B13C485C93B586C4A256BF0DA740D090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275284   (790518) от 11.01.2019
+
+David Linx - 7000 Miles (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poses
+02. From One Family To Another
+03. 7000 Miles
+04. America(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE12ACC6E5A39A378338B109933EEB58EF46CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275432   (790517) от 11.01.2019
+
+Charlie Haden & Kenny Barron - Night And The City (1996) 1998, Verve [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twilight Song [12:48]
+02. For Heaven's Sake [10:45]
+03. Spring Is Here [10:21]
+04. Body And Soul [10:25](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742DF311561938F67CA82CD302C338267F4FED94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275485   (790513) от 11.01.2019
+
+Debbie Kirkland - Coming From Blue (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kissing You
+02. Xuxu Bird
+03. I Want To Be Romanced
+04. A Wish(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3FB13C17A860C4AB896C501918B4C60D0A900B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275314   (790511) от 11.01.2019
 
 Dead Combo - Odeon Hotel (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Blues, Folk,>
@@ -570,180 +744,6 @@ Duende Libre - Drift (2018) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C508AC14385AF285821424886D3BDB8D3920CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275497   (789935) от 12.01.2019
-
-Dragon's Brew - Cold Brew (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VNH
-02. Bekaphobia
-03. Kuligin C
-04. Aktivovany Jelen(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90EACCBD006E49FF1D9AFE05ED6A6B3355A84DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275634   (789921) от 12.01.2019
-
-Nat Adderley - "That's Nat" Adderley (1955) 1991, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porky [5:16]
-02. I Married An Angel [4:33]
-03. Big 'E' [10:41]
-04. Kuzzin's Buzzin' [5:11](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159A3D64DEE7324D4FDB3C7405CCB23A9F58A912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275521   (789918) от 12.01.2019
-
-Alex Skolnick Trio - Conundrum (2018) [FLAC|Lossless|tracks + .cue] <Fusion, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbound
-02. Django Tango
-03. Conundrum
-04. Gymnopedie No.1(   Читать дальше...   )Жанр: Fusion, JazzПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844FA36D0A1A1457F8A12EDED066F1D787D7CA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275491   (789916) от 12.01.2019
-
-Denny Jiosa - Mueve Tu Cuerpo (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fumarlo Bebe
-02. Mueve Tu Cuerpo
-03. Missing You
-04. Dance In Heaven(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF818EA76F2BFE374B074BA406424327E491F8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275493   (789914) от 12.01.2019
-
-Dog Drive Mantis - How Did We Get Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sink
-02. Dancing On Symbols
-03. This May Bear Some Fruit
-04. Scrunch(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5212B29027C381A6F46ABB2BE3D1D9036924DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275530   (789905) от 12.01.2019
-
-Dumbo Station - Tirana Cafe (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dumbo StationMaurizio Giammarco. 4:55
-02. Big OneElvio Ghigliordini. 6:58
-03. Narvalo. 6:19
-04. Your PoisonDavide Shorty. 4:11(   Читать дальше...   )Жанр: Fusion, Jazz-Rock, Jazz-FunkПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8399553EB3D7401B22F9AF913C3F6CDB7B377C
 ```
 
 https://mybot314.ru/tekegram_catalog/

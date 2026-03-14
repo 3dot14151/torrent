@@ -1,3 +1,32 @@
+###  Публикация: 1068003   (383358) от 31.10.2016
+
+Straightout - Phobia (2016) [MP3|320 Kbps] <Melodic Death, Black Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383358.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zionis Anti Trinitas
+2. Segitiga Pemusnah
+3. Berhala Paganis
+4. Anjing Neraka(   Читать дальше...   )Жанр: Melodic Death, Black Metal, MetalcoreПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9FD83B10EEBA5D62465FF6522783D5074490338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067977   (383355) от 31.10.2016
 
 Engage The Unseen - A Storm Is Coming (2016) [MP3|320 Kbps] <Metalcore>
@@ -722,35 +751,6 @@ Parkway Drive - Darker Still (2022) [MP3|320 Kbps] <Heavy Metal, Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDC0579447EFA231E3F8DE999C35E9AF4DAFC7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575146   (379345) от 08.09.2022
-
-LunariaN - Burn the Beauty (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Wait Until I'm Gone (04:20)
-02. Dream Catcher (03:58)
-03. Embrace (03:48)
-04. Bleeding Out (04:53)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5392FF33D9F302F1CEA7291B6359FC2A89F5261
 ```
 
 https://mybot314.ru/tekegram_catalog/

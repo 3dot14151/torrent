@@ -1,3 +1,119 @@
+###  Публикация: 1035827   (624298) от 18.07.2016
+
+AC/DC - Rarities (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stick Around
+02. Love Song
+03. Fling Thing
+04. R.I.P. (Rock In Peace)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCE5D21713534A81509A4CC96FC311D903C5514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544074   (623819) от 14.04.2022
+
+DeVicious - Black Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterlife
+02. Heroines
+03. A Special Mind
+04. Liar(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4BF1CEE7E94D1B04EFC0F0B5179DAD91F10F422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036097   (622758) от 19.07.2016
+
+Lee Aaron - Fire And Gasoline (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Boy
+02. Fire and Gasoline
+03. Wanna Be
+04. Bittersweet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF700D6802D3C5F1B70833C734CE8F7F29ABE34B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544288   (622190) от 15.04.2022
+
+Circle Of Friends - The Garden (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Piece Of Heaven (vocals – Doro) (4:48)
+02. Take My Love To Heart (vocals – Jaime Kyle) (3:22)
+03. Never Gonna Make Me Cry (backing vocals – Robin Beck, vocals – James Christian) (4:16)
+04. Bad Blood (vocals – Jeff Scott Soto) (4:42)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3344E34969399F2AE5B5B989A9BE8881F2D2B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544245   (622073) от 15.04.2022
 
 Meat Loaf - The Very Best of Meat Loaf (1998) 2xCD, Compilation, Repress [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ Gillan - Magic (1982) Remaster /1988, Virgin Records/ [FLAC|Lossless]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF73B08FCC7FF7620282A0B9CDD5A5415F5E0542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147152   (609727) от 02.07.2017
-
-AOR - Return To L.A. (2015) [FLAC|Lossless|image + .cue] <Hard Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victim Of My Own Desire  (04:58) 
-02. The Trail To Your Heart  (04:41) 
-03. Dangerous To Know  (04:47) 
-04. Angels Never Sleep  (05:18) (   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F42200E07699649E3048915A88A3311C4CDB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231090   (608853) от 16.06.2018
-
-Sharks - Jab It In Yore Eye (1974/ 2011) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Like A Fever (3:33)
-02. Baby Shine A Light (4:56)
-03. Sun Beat Down (4:48)
-04. Rain Or Shine (3:47)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB7CA0F20E06BFDC6C186E44900CB73E32F9D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231087   (608770) от 16.06.2018
-
-Paul Kossoff, Andy Fraser (ex.Free) - 9 альбомов, 10 CD (1972-2003) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пол Коссоф родился в семье актёра Дэвида Коссофа. В середине 1960-х уже играл в любительских группах. Первой его профессиональной группой стала Black Cat Bones, где также играл барабанщик Саймон Кирк. Группа играла на разогреве у Fleetwood Mac, а Пол Коссоф подружился с гитаристом этой группы Питером Грином. Коссоф и Грин нередко устраивали джемы, много рассуждали (   Читать дальше...   )Список альбомов:
-Paul Kossoff
-1972 | Kossoff Kirke Tetsu Rabbit - Kossoff Kirke Tetsu Rabbit
-1973 | Kossoff - Back Street Crawler(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues Rock |Продолжительность: 09:26:45 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71808ABA7E4BF5A579A37BB524B2A439DBDE90C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038015   (608716) от 27.07.2016
-
-Gypsy Pistoleros - Welcome To The Hotel De La Muerte (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Down With The Gypsies
-02. Walk Through The Shadows
-03. Sangre De Las Rosas
-04. Welcome To The Hotel De La Muerte(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763A50BDFB374F21EF136B12BB43C6BA767AB12E
 ```
 
 https://mybot314.ru/tekegram_catalog/

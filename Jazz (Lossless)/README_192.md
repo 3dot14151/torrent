@@ -1,3 +1,90 @@
+###  Публикация: 1168241   (410682) от 23.09.2017
+
+Bob Rockwell Quartet - Shades of Blue (1996) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shades of Blue [05:55]
+02. Someday You'll Be Sorry [07:07]
+03. Wonder Why [07:42]
+04. Mr. Syms [08:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E4813E4ABC49240834848002C6AEEA5827F5A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168235   (410613) от 23.09.2017
+
+Sonny Stitt - Mr. Bojangles (1973) 2013, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Bojangles [07:36]
+02. The World Is A Ghetto [06:59]
+03. Killing Me Softly With His Song [04:44]
+04. Blue Monsoon [05:08](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC14D713EF6E3C6308894653596A55AAA71A234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168250   (410612) от 23.09.2017
+
+Rita Reys - Hollands Glorie: The Lady Strikes Again (2005) CNR Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Beginning to See the Light [03:53]
+02. All or Nothing at All [03:57]
+03. Honeysuckle Rose [02:52]
+04. All of You [02:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D91A397D355E26D4F51F955229A1D081659C65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573567   (410550) от 01.09.2022
 
 Hank Jones - Upon Reflection: The Music Of Thad Jones (1993) Verve [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -658,93 +745,6 @@ Mal Waldron - Soul Eyes (1997) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F9E52DEE7D0C11562ABBD3566D2A3E6A7705DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413490   (408541) от 04.10.2020
-
-Oscar "Papa" Celestin & Sam Morgan - Recorded In New Orleans (1925 - 1928) 1995, Jazz Oracle [FLAC|Lossless|tracks + .cue] <Ragtime, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Original Tuxedo Rag [2:38]
-02. Careless Love [3:06]
-03. Black Rag [2:34]
-04. I'm Satisfied You Love Me [3:18](   Читать дальше...   )Жанр: Ragtime, New Orleans JazzПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79BDE7F246A7EB8028C6EEEF4D4E24815701C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413488   (408535) от 04.10.2020
-
-Nancy Wilson - Spotlight on Nancy Wilson (1959 - 1968) 1995, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What a Little Moonlight Can Do [2:27]
-02. Little Girl Blue [2:51]
-03. My One and Only Love [3:01]
-04. The Best Is Yet to Come [2:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2F0B79747B5DBC2D40684EB792D9AD0A9AF512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067215   (408480) от 28.10.2016
-
-Eric Alexander - Second Impression (2016) HighNote Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Second Impression [06:21]
- 02.So Many Stars [05:44]
- 03.Blues for Mo [05:18]
- 04.Jennie's Dance [05:55](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117724B083FA6881BE853E29A6263678B2134BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

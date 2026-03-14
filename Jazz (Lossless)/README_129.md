@@ -1,3 +1,90 @@
+###  Публикация: 1145943   (618353) от 27.06.2017
+
+Albert Sanz Trio - O Que Sera (2012) Nuba Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soberana Rosa [04:51]
+02. O Que Sera [06:07]
+03. Antes Que Seja Tarde [05:37]
+04. Outros Sonhos [05:34](   Читать дальше...   )Жанр: Latin Jazz, Post-Bop, Piano JazzПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A3DF5E8E71D5E309946CAA612207A67A6FA637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145941   (618242) от 27.06.2017
+
+The Joe Newman Septet - The Midgets (1956) 1998, BMG Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Moon At All [02:50]
+02. Valerie [02:58]
+03. My Dog Friday [03:32]
+04. Scooter [02:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9C1523774ADC1CF1083E4757B85FEDBDC564AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145679   (618229) от 27.06.2017
+
+The Modern Jazz Quartet - Fontessa - The Little Comedy (1960) Remaster, 1996, Giants Of Jazz [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Little Comedy: La Cantatrice-Harlequine, Fontessa (24:00)
+02. Cylinder (6:36)
+03. A Social Call (4:55)
+04. How High The Moon (8:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE6CA128824C7A1C962C284E3EF5385BC6B75B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145894   (618225) от 27.06.2017
 
 Rita Reys - The Real… Rita Reys (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
@@ -666,93 +753,6 @@ Members Of The Duke Ellington Orchestra - A Tribute To Duke Ellington (1997) Gre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D115C0E43245FC09BF2203351F6291D91B463F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146545   (614771) от 29.06.2017
-
-Apollo Saxophone Orchestra - Perpetual Motion (2012) Nimbus [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream, Classical>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perpetual Motion [05:20]
-02. Dear Bach [07:24]
-03. Celebration [04:39]
-04. Black [04:23](   Читать дальше...   )Жанр: Modern Creative, Third Stream, ClassicalПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9409C5910BB2C40F6DC1BEEF7AE024A4A249DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146529   (614770) от 29.06.2017
-
-Stanley Turrentine - Six Classic Albums (1960, 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614770.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Look Out & Blue Hour:
-01. Look Out [07:11]
-02. Journey into Melody [04:57]
-03. Return Engagement [04:49](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 03:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD3376DA9C76A3AC194710E721399A6A4FE09D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911931   (614500) от 24.06.2015
-
-Art Blakey And The Jazz Messengers - Roots & Herbs (1961) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ping Pong [07:08]
-02. Roots And Herbs [06:08]
-03. The Back Sliders [07:52]
-04. United [07:30](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC428EDAA9D2A805153BF9BFE1F9C622574B3D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

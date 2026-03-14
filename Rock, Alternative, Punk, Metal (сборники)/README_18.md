@@ -1,3 +1,32 @@
+###  Публикация: 1529900   (731977) от 08.02.2022
+
+Richard Koechli - Richard Koechli (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Unsung King (Tampa Red)
+02. I'm Going Down
+03. Etat D'urgence
+04. Of Em Gliche Grond Schtah(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501D49621E96BAF54C3CA5F2C4C50B0C2F1E6527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127376   (731498) от 21.04.2017
 
 VA - Рок в машину (2015-2017) [MP3|320 Kbps] <Rock>
@@ -719,35 +748,6 @@ Ten Years After - The Platinum Collection (2019) 2CD [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A23F8E15D1E63316CEB5D7FA621B67085C8C7C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025597   (710185) от 12.06.2016
-
-Splattafish - Celestial Plague (2016) [MP3|320 кб/с] <Death Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eradication
-02. Anemic Disposition
-03. Orchestration Of Terra
-04. Odious Nefarious(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A43673A124F216F1EB3167257AFCD30B3B1F55
 ```
 
 https://mybot314.ru/tekegram_catalog/

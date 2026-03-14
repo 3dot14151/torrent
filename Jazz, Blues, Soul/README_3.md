@@ -1,3 +1,61 @@
+###  Публикация: 1847340   (1052115) от 11.01.2026
+
+Blues Nite Revue - Tap Your Foot (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Please Remember Me (5:22)
+02.  You gotta Move (4:34)
+03.  Cornbread, Peas and Black Molasses (2:42)
+04.  I Feel like Going Home (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8442A3A0E5B9058659DFA5A25F0BC97FC23D8AB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847337   (1052114) от 11.01.2026
+
+Alexandra Wright - Bartering with the Mirror (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mary and the Frame (5:00)
+02.  Pretty Monster (3:31)
+03.  Walk Alone (3:30)
+04.  Arsenic Chianti (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C3B6358738DB70696E5FD480465FBA6397E489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847345   (1052111) от 11.01.2026
 
 Deltar - Vol. 4 (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -687,64 +745,6 @@ Trowbled Ron - Snnr (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:683D86FAC0436D2F1104901233B0B1CD3C00E828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844707   (1050277) от 27.12.2025
-
-Uncle Watson's Widow - Fool's Song (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hymn 43 (4:00)
-02.  Fool's Song (4:38)
-03.  Iron Fist (2:50)
-04.  Poker Face (3:16)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434211152DF69CCB879DA541AC89CA8D90DC088D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844708   (1050276) от 27.12.2025
-
-VA - Nocturne Blues (Slowed + Reverb) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Titus Turner - Lean Greens (Slowed + Reverb) (4:46)
-02.  Fenton Robinson - You Don't Know What Love Is (Slowed + Reverb) (4:55)
-03.  Titus Turner - I Need Your Love To Carry On (Slowed + Reverb) (3:07)
-04.  Andy Anderson - You Shake Me Up (Slowed + Reverb) (2:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83D16C901EFFA01DD767FB060935E309C1DE4BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

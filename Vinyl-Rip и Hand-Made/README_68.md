@@ -1,3 +1,119 @@
+###  Публикация: 1705617   (113826) от 09.03.2024
+
+ВИА «Поющие сердца» - Антонина Жмакова и ансамбль «Поющие сердца» (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Прекрасный день (М. Голдсборо – рус. текст В. Харитонова)
+02. Не сегодня – завтра (В. Векштейн – В. Харитонов)
+03. Твои шаги (Е. Марней, Паллавичини, Массари – рус. текст И. Кохановского)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275F4064F1F7447CB1E61DEEA0D8FE0D4802E875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705613   (113822) от 09.03.2024
+
+ВИА «Песняры» - Песняры III (1978) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113822.jpg" />
+</div>
+
+
+###  Подробнее
+
+I сторона
+01. Явор и калина (Ю. Семеняко — Я. Купала)
+02. Поцелуй (И. Лученок — В. Коризна)
+03. По воду шла (белорусская народная песня, обработка В. Ткаченко)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1FDC9734BB3C284F7E75370D19A7754AD6A8AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705627   (113817) от 09.03.2024
+
+The Moody Blues - The Other Side Of Life (1986) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01. Твои сокровенные мечты (Дж. Хейуорд) — 4:50
+Your Wildest Dreams (J. Hayward)
+02. Разговоры, разговоры (Дж. Хейуорд – Дж. Лодж) — 3:55(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E75E46114179205577E3DD79E2ACE6C79A2AC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705626   (113814) от 09.03.2024
+
+AC/DC - Stiff Upper Lip (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Stiff Upper Lip"
+02. "Meltdown"
+03. "House of Jazz"
+04. "Hold Me Back"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAA135FCAB30E63D786256E6A293CDABB56DBB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705600   (113810) от 09.03.2024
 
 Sting - The Soul Cages (1991) 1992 [FLAC 24/192|Lossless|tracks] <Rock>
@@ -629,122 +745,6 @@ VA - Музыкальный телетайп 3 (1988) [FLAC 24/192|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:612496321138E34F83DE0AE2697AE70E6D990E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706805   (113488) от 14.03.2024
-
-ВИА "Экспресс" (Венгрия) - Серебрянный "Экспресс" (1979) [FLAC 24/96|Lossless|tracks] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01 - Уже четыре часа (М. Малек — Т. Шоймош);
-02 - Губная гармоника (А. Шие — Ф. Кондьел);
-03 - Мечта (П. Калмус — Т. Шоймош);(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B11C51DAD9F45DE3786709B13545783C2345EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706799   (113477) от 14.03.2024
-
-VA - Перекати-поле. Песни на стихи Лидии Козловой (1990) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01 - Перекати-поле (А. Лунев)
-Надежда Чепрага
-02 - Не повторяй (А. Кальварский)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0084FDC69A0D983069AB6C45967536D1B1CFA753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706709   (113471) от 14.03.2024
-
-Darkthrone - Under a Funeral Moon (1993) Reissue, 2010, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113471.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Natassja In Eternal Sleep
-A2 Summer Of The Diabolical Holocaust
-A3 The Dance Of Eternal Shadows
-A4 Unholy Black Metal(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8043BDA0ABD65552E7AB1DB668F9A3830EA30A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707114   (113369) от 16.03.2024
-
-VA - Радуга (2 пластинка) (1979) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01. Хор и оркестр Рея Коннифа - Смех под дождем. (Н.Седака - П.Коди)
-02. Демис Руссос - От сувенира к сувениру. (С.Влавианос - Р.Костадинос)
-03. Вокальный дуэт "Баккара" - Дорогой. (Р.Сойа - Ф.Достэл)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D70161BCD134BFC21B925B940E01382FA103D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

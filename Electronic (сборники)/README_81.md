@@ -1,3 +1,32 @@
+###  Публикация: 1401023   (713504) от 08.08.2020
+
+VA - Imaginary World Electronic (2020) [MP3|320 Kbps] <09:36:35>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713504.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Omega Danzer - Travelling The Wastelands
+002. Four Seconds Ago - The Vacancy
+003. Daniel Holt - Alles
+004. Lazer Station - Tonight He Comes(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 09:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837C13DD874A101820479270F8B04B33B0714C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401016   (713344) от 08.08.2020
 
 VA - Expression Vocal House (2020) [MP3|320 Kbps] <Vocal House, Electro>
@@ -716,35 +745,6 @@ VA - X-Pollination: Tech House Dance Project (2016) [MP3|320 кб/с] <Techno, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09E8674B0893947E1D485B64EF7DC728BFB0FD0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025525   (710112) от 12.06.2016
-
-VA - Red Lips House: Soulful Female Vocal House Trax from Deep 2 Progressive (2016) [MP3|320 кб/с] <Deep House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix - Time 2 Love - Intro Vocal Mix
-02. Housetronik - Soul Fever - Romero Shape Club Mix
-03. Atrium - Mint Flavour - Ibiza Chillhouse Mix
-04. Intention Crew - Do It Right - Full House Mix(   Читать дальше...   )Жанр: Deep House, Vocal HouseПродолжительность: 03:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3C68EF50099E148599E2C0351346C34F0596B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

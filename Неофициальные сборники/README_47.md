@@ -1,3 +1,90 @@
+###  Публикация: 1352952   (993230) от 16.01.2020
+
+VA - Best tracks of Transitions by John Digweed on Kiss 100. 2008 Volume 5 Compiled by Firstlast (2020) [MP3|192-320 Kbps] <Progressive House, Techno House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carl Craig - At Les (1997) (5:12)
+02. Unknown Artist - Unknown Track (2008-01-27 Pedro Puentes) (2:28)
+03. Radiohead - Nude (Chris Fortier 40oz remix) (7:18)
+04. NUfrequency - Go That Deep (Charles Webster Remix) (6:13)(   Читать дальше...   )Жанр: Progressive House, Techno House, Deep HouseПродолжительность: 09:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F982CF00C19CFC06BB86A75C4080727606F33C8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352962   (993117) от 16.01.2020
+
+VA - Classic Rock timeless! 3 (2020) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judas Priest - Ram It Down
+02. Rammstein - You Hate (''Du Hast'' English Version)
+03. Slade - Thanks For The Memory
+04. Ringo Starr - It's Not Love That You Want(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 07:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A74B1E391A287B45668B70962EB2E74C9346CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352919   (992995) от 16.01.2020
+
+VA - Зимняя свежая 30-тка Vol. 3 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992995.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.ARUBA ICE - Зачем топтать мою любовь (Remix) (3:41)
+2.Buga - Элали (3:25)
+3.Daasha - Samoe (3:20)
+4.Dionis - Рассвет (4:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08881F1B2F4920A5D6B1619C6B42A9B5A0C305F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608666   (992902) от 26.01.2013
 
 VA - Best of Euphoric Emotions Vol.11 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
@@ -727,93 +814,6 @@ VA - Слушай и танцуй. Лучшие хиты 2 (2013) [MP3|256 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF8CA36D2EDE440E13A1E8A2A82914DEBA0BC3BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353790   (990800) от 19.01.2020
-
-VA - Rise Up DnB Mixtape (2020) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreadcore - Tripwire Feat. Theta
-02. Nicky Blackmarket - One Part Jungle
-03. Books - Roark
-04. Chaser - Bring Me Down(   Читать дальше...   )Жанр: Drum & Bass, Bassline, DubstepПродолжительность: 06:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFF950BF45278803383892F121E3CAE17510FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353771   (990797) от 19.01.2020
-
-VA - German Top 100 Single Charts 17.01.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Tones and I - Dance Monkey
-03. Apache 207 - Roller
-04. Dardan - 6AM.........(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1FC30887210B76F2EEFB79AA03C06FA3A8D813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353802   (990738) от 19.01.2020
-
-VA - Record Super Chart 621 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
-02. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48
-03. Carla Morrison - Disfruto 3:57
-04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD81E5D952581E3597D63B98189427238594B20
 ```
 
 https://mybot314.ru/tekegram_catalog/

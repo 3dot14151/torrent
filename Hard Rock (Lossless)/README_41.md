@@ -1,3 +1,125 @@
+###  Публикация: 1044531   (565519) от 20.08.2016
+
+Robin George and Dangerous Music - Painful Kiss (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painful Kiss 04:33
+02. Lonesome Daze 04:11
+03. Catarina 04:04
+04. The Rubicon 04:26(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA4516ACC9C4D7610B4DCA80E864409F424EC21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304269   (565419) от 25.05.2019
+
+Sammy Hagar & The Circle - Space Between (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil Came To Philly (2:35)
+02. Full Circle Jam (Chump Change) (3:38)
+03. Can't Hang (3:56)
+04. Wide Open Space (3:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E818468DDFEEC083D8ADEDC509CA72BD8DEEBF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555793   (565324) от 06.06.2022
+
+Don Dokken - Solitary (2008) (Reissued-2020) [WavPack|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 In The Meadow
+02 I'll Never Forget
+03 Where The Grass Is Green
+04 Jealous(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83ADBF7868FCA97D503D9D23D9D36503BBAEEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529601   (565086) от 01.08.2012
+
+Armageddon - Heavy Metal Saga (2002) [FLAC|Lossless]<Heavy Metal / Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Of Thunder
+02. Children Of Savage Kind Of Seed
+03. No Advice
+04. Black Swan Rider
+05. Magic Star
+06. Sarabanda
+07. Memories
+08. Clouds In The Sky
+09. Go Down With R'N'R
+10. Link Of The Time(   Читать дальше...   )Жанр: Heavy Metal / Hard Rock
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235002   (564077) от 09.07.2018
 
 BB Steal - On The Edge (1991) [FLAC|Lossless|image + .cue] <Hard Rock,  Arena Rock>
@@ -631,122 +753,6 @@ Hardbone - Bone Hard (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D729975BCB334BF607E1E2DB0867589281EC7D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307839   (554507) от 12.06.2019
-
-Hardbone - This Is Rock'n'Roll (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554507.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bottlemate - 3:00
-2. Wild Nights - 3:58
-3. Girls & Gasoline - 4:44
-4. Grave Digger - 4:08(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC8023617415C3A14B9E8AECB9AB6F8DA9C7F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236692   (554031) от 19.07.2018
-
-Kiss - The Best Of Kiss Volume 2 (2004) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creatures of the Night (04:05)
-02. I Love It Loud (04:18)
-03. Lick It Up (03:58)
-04. All Hell’s Breakin’ Loose (04:35)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23CB9CB8ED9248F126E7552C096192E84E5204F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237203   (553291) от 22.07.2018
-
-Joker - Joker (1990) 1991, TECP-25726 [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553291.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Want Love (04:48)
-2. Say Yeah (04:25)
-3. Lorraine (04:14)
-4. Party for Your Life (03:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0028761770A42CE8E7BEC81F8986B64F8976AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308971   (552876) от 17.06.2019
-
-Buckcherry - Warpaint (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warpaint (3:52)
-02. Right Now (3:38)
-03. Head Like A Hole (3:53)
-04. Radio Song (4:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5E8B15FFCA992DD89541F22E8B7DF1B61F3145
 ```
 
 https://mybot314.ru/tekegram_catalog/

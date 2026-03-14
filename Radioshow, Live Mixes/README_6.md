@@ -1,3 +1,61 @@
+###  Публикация: 1213761   (767401) от 18.03.2018
+
+VA - Ori Uplift & Smirro - Uplifting Only 266 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ori Uplift:
+01. FAN FAVORITE: Eric Senn - Osiris (Extended Mix)
+02. Dreamlife & Blue Moon - Last Farewell (George Crossfield Emotional Remix)
+03. Syntouch - Lasting Light (VoIces Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504D60518138E7963CBA0E5B32A41F2E2AC1B3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213755   (767365) от 18.03.2018
+
+VA - Markus Schulz & Cosmic Gate - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. Markus Schulz presents Dakota - The Spirit of the Warrior (Davey Asprey Remix)
+02. Marcus Santoro - Whispers
+03. Signum featuring Scott Mac - Coming on Strong (Gareth Emery & Ashley Wallbridge Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D85A5D2FA6BAB8DFD218961BC06B966A57ACED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393626   (766952) от 01.07.2020
 
 Kyau & Albert - Anjunabeats Worldwide 681 (2020-06-22) [MP3|320 Kbps] <Trance, Progressive House>
@@ -684,64 +742,6 @@ Cosmic Gate - Live @ Sunset Set, Puerto Vallarta, Mexico (2022-01-19) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57C979115FECECEF04BC5EB1CB9E21983073B2D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527961   (735392) от 31.01.2022
-
-KAAZE - Best Of 2021 Mashups (2021-12-27) [MP3|320 Kbps] <Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.KAAZE vs. Miley Cyrus – Midnight Runners (KAAZE Mashup)
-02.KAAZE – Eye Of The Legends (KAAZE Mashup)
-03.KAAZE vs. Robert Miles & Ariana Grande – Humming Last Childer (KAAZE Mashup)
-04.KAAZE vs Meduza & Shouse – Dark Loose Tonight (KAAZE Mashup)(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF60379D0D03601E4B1E090A86C2F305558C1D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528196   (735391) от 31.01.2022
-
-Marc Benjamin - Nicky Romero & Friends Presents NYE (2021-12-31) [MP3|320 Kbps] <Electro Pop, Big Room, Future House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Eilish - Your Power (Marc Benjamin Remix)
-02. Tiësto, KAROL G - Don’t Be Shy
-03. Dua Lipa vs. SAINt JHN & Imanbek vs. Marc Benjamin & Malarkey - Hallucinate vs. Roses vs. I Got 5 On It (Marc Benjamin Mashup)
-04. Marc Benjamin feat. NEVRMIND - Waiting For You (Future Disco Remix)(   Читать дальше...   )Жанр: Electro Pop, Big Room, Future HouseПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85EC1EC6B28F9823B92152135526609A040434F
 ```
 
 https://mybot314.ru/tekegram_catalog/

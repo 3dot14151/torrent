@@ -1,3 +1,90 @@
+###  Публикация: 1216178   (753065) от 29.03.2018
+
+Art Pepper - Live At The Village Vanguard (1977) 4CD, 1987, Victor [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753065.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. But Beautiful [11:43]
+02. My Friend John [10:02]
+03. Valse Triste [12:23](   Читать дальше...   )Жанр: Post-BopПродолжительность: 03:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2763F23E1993BE01A9FCBBDEA8E1238C29FD624D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281525   (752089) от 08.02.2019
+
+Della Reese - All Of Me (1999) 2001, Hallmark Music & Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Fall In Love [3:27]
+02. That's All [3:37]
+03. Come Rain Or Shine [3:02]
+04. Love Me Tender [3:01](   Читать дальше...   )Жанр: Vocal Jazz, Soul JazzПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAD857B585A1F088FCD4C389117CB3F672313A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523399   (751670) от 11.01.2022
+
+Rebecca Kilgore - with the Keith Ingham Sextet (2001) Jump [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything But You [3:13]
+02. Make with the Kisses [3:03]
+03. For You, For Me, Forevermore [5:01]
+04. Imagination [3:18](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387F029F11C340F6A244FCAA4A2AD4C40C1BD3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216392   (751368) от 30.03.2018
 
 Bill Barron - A Swedish - American Venture (1966 - 1984) 2002, Dragon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -656,93 +743,6 @@ The Buddy Rich Big Band - The New One! 1967 (1998) Pacific Jazz [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:604C3FCAAF710E752DD952E81D791CFF5044DB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396458   (746969) от 15.07.2020
-
-Charlie Shavers Featuring Maxine Sullivan - Four Classic Albums Plus 1954 - 1959 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746969.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Keepin' Out Of Mischief Now [2:50]
-02. How Can You Face Me? [3:19]
-03. S'posin' [3:38](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 02:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AD583FD77207EE86EE97097155CE320E3AB199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020133   (746905) от 25.05.2016
-
-Sonny Rollins - After the Bridge (1964) 2CD, Remaster, 2014, Sony Music[FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746905.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Fifty-Second Street Theme [14:54]
- 02.Django [05:28]
- 03.Now's the Time [16:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226D0B6F886FD30F8DA596F86125555607DF08AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524004   (746636) от 14.01.2022
-
-Anita O'Day - The Complete Recordings (1949 - 1950) 1997, Baldwin Street Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them There Eyes [2:41]
-02. Memories of You [3:01]
-03. How Come? [2:44]
-04. I Can't Believe That You're in Love with Me [2:52](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF36E3F57BC77E77420EBE9CAC3A9BB74792E09
 ```
 
 https://mybot314.ru/tekegram_catalog/

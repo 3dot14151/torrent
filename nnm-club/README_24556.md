@@ -1,25 +1,22 @@
-###  Публикация: 1792771   (67635) от 20.04.2025
+###  Публикация: 1786345   (69036) от 20.03.2025
 
-T. Rex - Bolan B-Sides (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Lighting calculations / Расчеты освещения v6.1.1 Mod by Balatan [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67635.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cadilac [03:53]
-02. Baby Strange [03:06]
-03. Lady [02:15]
-04. Thunderwing [03:46](   Читать дальше...   )Жанр: RockПродолжительность: 01:14:47
+Фундаментальный для тех, кто хочет правильно рассчитать освещение помещения. Используя это приложение с его схемами и расчетами, у осветительной техники больше нет секретов!Тип издания: ProРелиз состоялся: 19.03.2025Разработчик: Ettore GallinaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C2B3FC64293E713EEA25F9CA013395AF866A71A
+magnet:?xt=urn:btih:8CF37C9A064DDACAE8DDAFCD661E0469B34D8A47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792548   (67634) от 20.04.2025
+###  Публикация: 1786334   (69035) от 20.03.2025
 
-Gunslinger Girl | Школа убийц (2002) [15 томов, 100 глав] [Манга] [Русский] [PNG, TIF] [18+] [Complete]
+TuneIn Radio Pro v37.7 Mod by Balatan [Ru/Multi]
 
->>Манга и Арт
->>Манга, Манхва, Маньхуа
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67634.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда-то у этих девочек было счастливое детство, любящие родители и радужное будущее… Но всё это исчезло в один миг. Жестокий мир лишил их не только семьи, но даже и собственных тел. Теперь они - секретное оружие на службе у правительства, полулюди, запрограммированные на уничтожение особо опасных преступников и террористов. Модифицированные искусственные тела, специальные (   Читать дальше...   )Жанр: боевик, драма, научная_фантастика, психология, трагедияФормат: PNG, TIFПродолжительность: 21 мая 2002 - 27 сентября 2012
+TuneIn объединяет спортивные события, музыку, новости, подкасты и радио со всего мира в одном приложении. Благодаря самому большому в мире каталогу оригинального аудиоконтента по запросу или в прямом эфире вы всегда сможете услышать то, что для вас важнее всего, открыть для себя новые моменты, которые произведут на вас впечатление.Тип издания: Paid / Mod ExtraРелиз состоялся: 20.03.2025Разработчик: TuneIn IncПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2922018BBA3452142B3CAA5FE67393EA33469AD
+magnet:?xt=urn:btih:30F1BAE9357D698D714CE960B0ED60E90AD2CB09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792757   (67633) от 20.04.2025
+###  Публикация: 1786208   (69034) от 20.03.2025
 
-VA - Italian Restaurant Chill Music Vol. 3 (Beats to relax) (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat, Lounge, Chill Out>
+VA - Dream Electric (2018) 2LP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67633.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Papik - Tac (3:49)
-02. Bodyles - Washington (3:35)
-03. Papik - Gente Come Noi (4:25)
-04. Cristiana Polegri - Cocktail D'Amore (3:39)(   Читать дальше...   )Жанр: Nu Jazz, Broken Beat, Lounge, Chill OutПродолжительность: 01:48:22
+01. Teeel - Chernobyl Yeti (4:21)
+02. VHS Dreams - Downtown (4:08)
+03. Sung - Street Fame (3:56)
+04. RF.extreme - Nowhere (3:14)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:12:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F513EE6523DD0DE7DED2D0F18290D253556FBA69
+magnet:?xt=urn:btih:D9CECE3E36E3B78CBBBD539BA4C0A12F2F47BFFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792687   (67632) от 20.04.2025
+###  Публикация: 1786442   (69033) от 20.03.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Groovy Lilly Pulitzer Hippie Mug Wrap Sublimation Design [PNG]
+Шрифты - Konstantin Kuznetsov - Behance - Amiak NHZDN 1.0 Free font - 221604737 [OTF, TTF, WOFF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67632.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сублимационный дизайн для кружек.Формат: PNGРазрешение файлов: 2925 × 1425
+Бесплатный шрифт c кириллицей.
+Разработчик: Konstantin Kuznetsov
+
+Материал раздаётся с официальной документацией.(   Читать дальше...   )Формат: OTF, TTF, WOFF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09E4AB99F98EBCE48F1B79621CD880C3AB22FA5B
+magnet:?xt=urn:btih:9B3C6E5F3373F868B2CBE73729FFD0C3A07F6695
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792183   (67631) от 20.04.2025
+###  Публикация: 1785990   (69032) от 20.03.2025
 
-Ильдар Южный - Песни из чуланчика (2025) [MP3|320 Kbps] <Chanson>
+Puzzle Ways - Adventure (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67631.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Да гори оно огнём [00:04:28]
-02 - А память над годами проплывает [00:03:37]
-03 - Прощание с вором [00:04:29]
-04 - Земля измучена войной [00:04:02](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:05:03
+01. Adventure (3:58)
+02. Forsaken (5:30)
+03. Hear My Melody (4:49)
+04. Feed the Monster (3:43)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:55:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62B601C3CC43808379D0D40C25D7417312576004
+magnet:?xt=urn:btih:7052CB60CD7B0926D6D1E60DC7B313E928D739B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +137,104 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792683   (67630) от 20.04.2025
+###  Публикация: 1786387   (69031) от 20.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Pastel Ombre Digital Papers [JPG]
+Осло. 31-го августа / Oslo, 31. august (2011) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм является вольной интерпретацией романа Пьера Дрие Ла Рошеля «Блуждающий огонёк» (1931) и художественного фильма Луи Маля «Огонь внутри» (1963)... Андерс - 34-летний пациент реабилитационной клиники в Осло. 31 августа он получает разрешение выйти в город на день для прохождения собеседования для трудоустройства. После встречи с другом Томасом Андерс отправляется (   Читать дальше...   )Производство: Норвегия, Дания, Швеция / Motlys, Don't Look Now, Norsk FilminstituttЖанр: драмаРежиссер: Йоаким ТриерАктеры: Андерс Даниелсен Лье, Малин Крепин, Аксель Танке, Ганс Олав Бреннер, Ингрид Олава, Эйстейн Рёгер, Кьерсти Одден Скьелдаль, Петтер Видт Кристиансен, Эмиль ЛундПеревод: профессиональный многоголосый (Тайм Медиа Групп), любительский одноголосый (агент смит)Язык озвучки: русский, норвежскийСубтитры: русские (Jason Jerusalem)Продолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FBBA1AA39F22E2E47E6E560D41C24114CEE397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786326   (69030) от 20.03.2025
+
+Последний су / Le dernier sou / The Last Penny (1946) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Циничный аферист Стефани руководит своего рода агентством, осуществляющим многочисленные мошенничества. Среди других сообщников он нанимает молодую женщину Марсель, которую подчиняет себе с помощью шантажа. Когда появляется Пьер Дюрбан, Марсель узнает в нём одного из своих друзей детства и пытается уберечь его от афер своего босса.Производство: Франция / Continental FilmsЖанр: драма, криминалРежиссер: Андре КайятАктеры: Жильбер Жиль, Жинетт Леклерк, Ноэль Роквер, Энни Френс, Фернан Шарпен, Габриель Фонтан, Рене Женен, Зели Изель, Эжен Фруин, Поль ФуаврПеревод: Многоголосый любительский (Студия 56)Язык озвучки: русский, французскийСубтитры: русские, английские, французскиеПродолжительность: 01:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702440EF28D37A0F1DDA99B4BAAE7A2762FB83F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786198   (69029) от 20.03.2025
+
+Апперкот / Uppercut (2025) WEBRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69029.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце дня собираясь запереть тренажёрный зал, его владелец, некогда талантливый боксёр Эллиот Даффонд обнаруживает незваную гостью. Молодая незнакомка заявляет, что хочет добиться успехов на ринге и просит Эллиота сделать её своей ученицей. Стареющий тренер пытается отмахнуться от этой назойливой «мушки», но своей настойчивостью девушка вызывает в нём интерес. (   Читать дальше...   )Производство: Германия, США / Hello Moment Productions, Good Weird Films, How Ru? EntertainmentЖанр: драма, спортРежиссер: Torsten RuetherАктеры: Винг Реймз, Луиза Гроссманн, Джордан Е. Купер, Джоанна Кэссиди, Скотт Монахэн, Эндрю Ибах, Lynn Favin, Мэнни Айала, Biko Eisen-Martin, Cedric Brandon Jones и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:43Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C081F75C80F332E5A8CABE91DA62E11F7A6DAD28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786298   (69028) от 20.03.2025
+
+Шрифты - Denis Serebryakov - MyFonts - Nekst Mono [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67630.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Абстрактные узоры пастельных тонов.Формат: JPGРазрешение файлов: 3600 x 3600
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F468B84B72B8200823498C78E76E8DF87701FCD4
+magnet:?xt=urn:btih:1FF2CB2EAEB1A52066831B6CE56CBC2E2A5C911C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,80 +242,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792684   (67629) от 20.04.2025
+###  Публикация: 1786431   (69027) от 20.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Splatters Seamless Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшовные узоры - абстрактные брызги.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521E63D5A7F70A6AB16C472EE96FC70945C836B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792682   (67628) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Floral Seamless Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цветочные бесшовные узоры. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE6B93DCE607669CFACE7D11963766976ABD1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792499   (67627) от 20.04.2025
-
-Ice on Fire - Nine Shades of Evil (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+Сергей Маврин - MavrBand. Премьера (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock, Metal, Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67627.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Perfect World [00:06:59]
-02. Dry Your Tears [00:04:34]
-03. A Dream for My Mind [00:05:20]
-04. To Live Is to Die [00:04:41](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:48:23
+01 - Хаос. Intro (Live) [1:08]
+02 - Запрещённая реальность (Live) [6:12]
+03 - Пусть настанет завтра (Live) [4:18]
+04 - Свет дневной иссяк (Live) [5:03](   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Metal, RockПродолжительность: 00:53:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A133A32B21672B2F731D1CCA12728CD74F3F99CE
+magnet:?xt=urn:btih:DA638A35670E34B4C9BFB70DF755465FEC2E1ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,25 +271,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792676   (67626) от 20.04.2025
+###  Публикация: 1786447   (69026) от 20.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Mother's Day Floral Butterfly Patterns [JPG]
+Шрифты - Monotype Imaging Inc. - Archive [TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67626.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Узоры в виде цветов и бабочек. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+Использованный в различных проектах The Entente в течение последних трех лет студийной практики, ARCHIVE развился в свою окончательную форму.
+
+Pro версии шрифта поддерживают кириллицу.Формат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:697C2826316737732C867AF5D2AD3425FF04D0DE
+magnet:?xt=urn:btih:E7BB56531184F3D9FD52BE6CC912FEACA7A7E14E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,54 +299,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792148   (67625) от 20.04.2025
+###  Публикация: 1786304   (69025) от 20.03.2025
 
-Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67625.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fighting The World
-A2. Blow Your Speakers
-A3. Carry On
-A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6A2FE8D7E39FFAD3B67F397330CDF2A633EEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792678   (67624) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Needle Plush Felt Flowers Patterns [JPG]
+Шрифты - Denis Serebryakov - MyFonts - Canapa [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67624.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цветочные бесшовные узоры. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB92DB96E6C80301DA7766518BA56773895B89B2
+magnet:?xt=urn:btih:724276F47074E307CC7E187FFE77B524D9B48CB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,25 +326,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792631   (67623) от 20.04.2025
+###  Публикация: 1786405   (69024) от 20.03.2025
 
-Лев Биноклев | Солнечные зайчики и таинственное ограбление. (2025) [MP3, Данил Сидорин]
+Шрифты - Denis Serebryakov - MyFonts - Gik [OTF]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67623.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В квартире старого дома, прямо в чудесной хрустальной вазе, живут Солнечные зайчики. Целое семейство радует хозяев: родители-зайчики мерцают в бокалах, а малыши носятся вокруг новогодней ёлки. Но всё меняется с приходом грабителей: из квартиры исчезает хрустальная ваза, а вместе с ней и солнечные малыши. Героям придется постараться, чтобы спасти семейную реликвию. (   Читать дальше...   )Жанр: детская литература, детектив, приключения.Язык озвучки: РусскийИздательство: Издательские решенияПродолжительность: 00:59:50
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99C025C8DB746B88721C5CD264829266DC24ADA5
+magnet:?xt=urn:btih:0657A3C4F8EF99110DFB0628D9E7A92DC768A2AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,112 +353,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792764   (67622) от 20.04.2025
+###  Публикация: 1786327   (69023) от 20.03.2025
 
-Чудо техники с Сергеем Малозёмовым (20.04.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотреть больно! Виноват ли компьютер в сухости глаз и как бороться с этой проблемой? Работают ли очки с дырочками или стоит покупать особые линзы, чтобы защитить глаза?
- Честная битва кухонной техники: какие устройства — напрасная трата денег, а какие могут неожиданно удивить?
- Британские инноваторы создали самоохлаждающуюся банку для напитков .
- Шапочка для мыться (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720DC49E682622FBCAA5288A5AE74CCD5BC6D7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792775   (67621) от 20.04.2025
-
-Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|image|Vinyl-Rip] <Nu metal, Alternative metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67621.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1-742617000027
-A2-(Sic)
-A3-Eyeless
-A4-Wait And Bleed(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3140B3F7A4037C94DF41D59CCA3C56E4A69F95EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792779   (67620) от 20.04.2025
-
-Ally Venable - Money & Power (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brown Liquor (3:48)
-02.  Maybe Some Day (3:19)
-03.  Money & Power (3:28)
-04.  Do You Cry (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDA058783434EC3B6E92AAA479CE5AA44151FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792756   (67619) от 20.04.2025
-
-Журнал | Лечащий Врач (том 28) №4 (2025) [PDF]
+Журнал | Небосвод №5 (май 2025) [PDF]
 
 >>Журналы
->>Другие журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67619.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: Медицинский научно-практический журналИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
+Журнал "Небосвод" расскажет вам новости из мира астрономии. В журнале вы найдете статьи известных астрономов и обычных любителей астрономии. Вы познакомитесь с миром звезд, планет и галактик. Из статей вы узнаете, что и как наблюдать на небе. Также в каждом номере помещен астрономический календарь с подробными звездными картами, и вы будете в курсе последних (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: НебосводФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA8E957BD18A06C8BB2E1A4EC66B1C50C9CA3BFA
+magnet:?xt=urn:btih:1BB532919AB760C5D222C451F2FA39CE32E7ADDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,25 +379,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792429   (67618) от 20.04.2025
+###  Публикация: 1786043   (69022) от 20.03.2025
 
-Mashle | Mashle: Magic and Muscles | Магия и мускулы (2020) [16 томов, 162 главы + 4 экстра] [Манга] [Русский] [PNG, JPG] [Complete]
+Grateful Dead - Greatest Hits Live Broadcast Collection (2025) [MP3|320 Kbps] <Rock>
 
->>Манга и Арт
->>Манга, Манхва, Маньхуа
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67618.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это мир магии, где магия используется для всего. Но в глубине леса живёт молодой человек, который проводит время, тренируя мышцы и набираясь сил. Он не может использовать магию, но он наслаждается мирной жизнью со своим отцом. Но однажды его жизнь подверглась опасности! Сможет ли его мускулистое тело защищать его от магов, которые хотят его захватить? Так и начинается (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, сёнэнПеревод: KomgerФормат: PNG, JPGПродолжительность: 27 января 2020 - 3 июля 2023
+01 - Don't Ease Me In (Live) [00:03:38]
+02 - Sugar Magnolia (Live) [00:04:50]
+03 - Brokedown Palace (Live) [00:05:43]
+04 - Bertha (Live) [00:05:51](   Читать дальше...   )Жанр: RockПродолжительность: 02:15:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5202F28C38A0917E167279C626D770DDA6AAB479
+magnet:?xt=urn:btih:01076B990961A075963A2D1B9B7AD477B382CB01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,51 +408,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792544   (67617) от 20.04.2025
+###  Публикация: 1786416   (69021) от 20.03.2025
 
-Enen no Shouboutai | Пламенная бригада пожарных (2015) [34 тома, 304 главы + Экстра] [Манга] [Русский] [PNG, JPG] [Complete]
-
->>Манга и Арт
->>Манга, Манхва, Маньхуа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как вы бы хотели умереть? Состарится или умереть от болезни, укуса, яда или просто задохнутся? Но в этом мире самый ужасный способ умереть это - сгореть заживо. Люди начали воспламенятся то тут, то там, в пламени превращаясь в демонов и забирая жизни всех кто рядом. Так их начали называть огненными людьми. Никто не знает как они появляются, никто не может противостоять (   Читать дальше...   )Жанр: приключения, комедия, мистика, сёнэнФормат: PNG, JPGПродолжительность: 23 сентября 15 - 22 февраля 2022
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F05EC0752A1A84449A90EEF949BBF025B13DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792686   (67616) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Black Inky Flowers Seamless Patterns [JPG]
+Шрифты - Denis Serebryakov - MyFonts - Appetite Pro Rounded [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67616.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшовные цветочные узоры. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0073EB3494B0B2A4D44CB6E43FC163B96625823F
+magnet:?xt=urn:btih:6314A366BD673C38F9BB8132A3689118DC5C02B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,28 +435,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792753   (67615) от 20.04.2025
+###  Публикация: 1786308   (69020) от 20.03.2025
 
-Photosphere, Unusual Cosmic Process - Mental Detachment (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Electronic>
+Шрифты - Denis Serebryakov - Behance - Taler - 127688031 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF8BE3C675BB878406349EE68C3143839A391C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786299   (69019) от 20.03.2025
+
+Шрифты - Denis Serebryakov - MyFonts - Displace 2.0 [TTF, WOFF, WOFF2, EOT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: TTF, WOFF, WOFF2, EOT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83B3B9019484857D19DF357977885C1CB0FE7B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785988   (69018) от 20.03.2025
+
+Digitalo - Love Dance Cosmos (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi There Woman (4:09)
+02. My Baby (3:53)
+03. Milky Way (3:53)
+04. Summer Time Lover (3:56)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D41C7CBAF0AF371257813C6C9118137DD48B946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786422   (69017) от 20.03.2025
+
+Шрифты - Denis Serebryakov - MyFonts - Appetite Pro [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1DDADD6FFD47BDFFE036ACF4B386CDB394F8665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786468   (69016) от 20.03.2025
+
+Bestial Warlust - Blood & Valour (1995) Reissue, 2005, Black Ace Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black, Death Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67615.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A storm is coming (3:33)
-02. Mind reconstruction (3:32)
-03. Steps in to the future (3:47)
-04. Tempest of my soul (3:34)(   Читать дальше...   )Жанр: Ambient, ElectronicПродолжительность: 00:45:44
+A1. Blood & Valour (02:51)
+A2. Death Rides Out (02:28)
+A3. Prelude: Descention / Hells Blood (05:27)
+A4. Barbaric Horde (04:46)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:34:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD000803331D56291D7F60995DD8773EAF4AA47E
+magnet:?xt=urn:btih:F066AEAE3B7C97DAE60EAB82A8A2AE427BAB073F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,80 +574,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792688   (67614) от 20.04.2025
+###  Публикация: 1786343   (69015) от 20.03.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Neon Skulls Halloween Pattern [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшовные узоры - неоновые черепа.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDCB8774E4C220F9671FB99BD70F50E28F298D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792781   (67613) от 20.04.2025
-
-Паттерны - Creative Fabrica - Autumn Pattern PNG Design Bundle [PNG, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние узоры в векторе и растре.Формат: PNG, EPSРазрешение файлов: 4167 x 4167
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA4FDA656CFF4110973E42CBDA8BB704121FB7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792807   (67612) от 20.04.2025
-
-Joachim Witt - Ich (2015) Remastered, 2025, Ventil [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Industrial>
+...And Oceans - A.M.G.O.D (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Black Metal, Industrial, Electronic Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67612.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Uber das Meer (Remastered) [00:04:23]
-02. Was soll ich dir sagen (Remastered) [00:04:23]
-03. Warten auf Wunder (Remastered) [00:04:15]
-04. Bitte geh mir aus dem Weg (Remastered) [00:04:05](   Читать дальше...   )Жанр: Pop Rock, IndustrialПродолжительность: 00:58:01
+A1 Intelligence Is Sexy
+A2 White Synthetic Noise
+A3 Tears Have No Name
+A4 Esprit De Corps(   Читать дальше...   )Жанр: Symphonic Black Metal, Industrial, Electronic MetalПродолжительность: 00:48:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B314756C624C6E78BDA27C0A938D8AA0E51CCCFF
+magnet:?xt=urn:btih:9B34AE6B6D8339B66F6FE0605D7DCE0EF96B34B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -652,25 +603,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792679   (67611) от 20.04.2025
+###  Публикация: 1786365   (69014) от 20.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Blue Plaid Seamless Patterns [JPG]
+Project G-7 - Tribute to Wes Montgomery, Vol.1 (1993) Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67611.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клетчатые узоры.Формат: JPGРазрешение файлов: 3600 x 3600
+01. Impressions [4:21]
+02. Remembering Wes [6:53]
+03. Groove Yard [4:49]
+04. Canadian Sunset [5:58](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:51:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:063F74A39107C8145575B591DEB83314AD83B9AF
+magnet:?xt=urn:btih:5C7DBEED32EDB0103C46A5FBD91EDE271629F10C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,25 +632,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792670   (67610) от 20.04.2025
+###  Публикация: 1786369   (69013) от 20.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Retro Fall Leaves Seamless Pattern Pack [JPG]
+Project G-7 - Tribute to Wes Montgomery, Vol.2 (1993) Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67610.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69013.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор бесшовных узоров на тему опавших листьев.Формат: JPGРазрешение файлов: 3600 x 3600
+01. More Blues for Wes [4:28]
+02. Bock to Bock [6:35]
+03. For Heaven's Sake [6:27]
+04. Montgomery Blue [6:09](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:47:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:226DAB80C940AF7FCA6CFB45390EE42466CB594F
+magnet:?xt=urn:btih:3F32767B59B0B07D2C912FFDBFF8C0C89EED537E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786362   (69012) от 20.03.2025
+
+Herbie Hancock - My Point Of View (1963) 2024,Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Man, Blind Man [8:19]
+02. A Tribute to Someone [8:46]
+03. King Cobra [6:55]
+04. The Pleasure Is Mine [4:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A018DF0FC5615C9F7D8219DA0C1042966657C2A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786364   (69011) от 20.03.2025
+
+Accu§er (Accuser; ex-Breaker; ex-Scartribe) - Studio Albums (15 releases) (1985-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Accu§er - немецкая метал-группа. Основана в 1986 году в Зигене. В 1985 году выпустила альбом под именем Breaker. В период с 2002 по 2008 год носила название Scartribe.1985 - Dead Rider (as Breaker)
+1987 - The Conviction/Experimental Errors
+1989 - Who Dominates Who
+1991 - Double TalkЖанр: Thrash/Groove MetalПродолжительность: 12:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EAD40EA9348A5B6E42D04C7126F048D99681F89
 ```
 
 https://mybot314.ru/tekegram_catalog/

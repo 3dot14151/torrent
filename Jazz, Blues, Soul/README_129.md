@@ -1,3 +1,177 @@
+###  Публикация: 1275497   (789935) от 12.01.2019
+
+Dragon's Brew - Cold Brew (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VNH
+02. Bekaphobia
+03. Kuligin C
+04. Aktivovany Jelen(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90EACCBD006E49FF1D9AFE05ED6A6B3355A84DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275634   (789921) от 12.01.2019
+
+Nat Adderley - "That's Nat" Adderley (1955) 1991, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porky [5:16]
+02. I Married An Angel [4:33]
+03. Big 'E' [10:41]
+04. Kuzzin's Buzzin' [5:11](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159A3D64DEE7324D4FDB3C7405CCB23A9F58A912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275521   (789918) от 12.01.2019
+
+Alex Skolnick Trio - Conundrum (2018) [FLAC|Lossless|tracks + .cue] <Fusion, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbound
+02. Django Tango
+03. Conundrum
+04. Gymnopedie No.1(   Читать дальше...   )Жанр: Fusion, JazzПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844FA36D0A1A1457F8A12EDED066F1D787D7CA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275491   (789916) от 12.01.2019
+
+Denny Jiosa - Mueve Tu Cuerpo (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fumarlo Bebe
+02. Mueve Tu Cuerpo
+03. Missing You
+04. Dance In Heaven(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF818EA76F2BFE374B074BA406424327E491F8B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275493   (789914) от 12.01.2019
+
+Dog Drive Mantis - How Did We Get Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sink
+02. Dancing On Symbols
+03. This May Bear Some Fruit
+04. Scrunch(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5212B29027C381A6F46ABB2BE3D1D9036924DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275530   (789905) от 12.01.2019
+
+Dumbo Station - Tirana Cafe (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dumbo StationMaurizio Giammarco. 4:55
+02. Big OneElvio Ghigliordini. 6:58
+03. Narvalo. 6:19
+04. Your PoisonDavide Shorty. 4:11(   Читать дальше...   )Жанр: Fusion, Jazz-Rock, Jazz-FunkПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8399553EB3D7401B22F9AF913C3F6CDB7B377C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510942   (789866) от 19.11.2021
 
 Franco Ambrosetti Band - Lost Within You (2021) Unit Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -571,180 +745,6 @@ John Di Martino's Romantic Jazz Trio - The Sweetest Sound (2004) Venus Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4FD3C775E75FE5800CBBC93312C1D04C4D7F8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511499   (788780) от 21.11.2021
-
-Eric Alexander Quartet - Blues At Midnight (2013) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sayonara Blues [8:17]
-02. Hittin' The Jug [7:57]
-03. Willow Weep For Me [6:00]
-04. Dis Here [6:15](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03426E6407082C7079CD610D2E6267A60AD3531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511555   (788774) от 21.11.2021
-
-The Union Blues - We All Need The Morning (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Down Easy 04:11
-02. Nothing To Say 04:18
-03. Like A Knife 04:10
-04. Dontcha Take My Blues Away 04:14(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F89D1154F584BAC6BEDAF29C66C3DF51200D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203259   (788681) от 01.02.2018
-
-Philippe Mall - Hydra (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saloum
-02. Bali
-03. Nice Place
-04. Obolus(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5098A40FFA6F988CF7B6873E4C2B4B7AC3337BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203294   (788678) от 01.02.2018
-
-David "Fathead" Newman - Under A Woodstock Moon (1996) Kokopelli [APE|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature Boy [04:40]
-02. Amandla [05:19]
-03. Up Jumped Spring [04:29]
-04. Spring Can Really Hang You Up the Most [05:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06AA7B9298087339ABF65D3218DB58743756B188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276243   (788624) от 15.01.2019
-
-Les Doigts De L'Homme - Dans Le Monde (2003) DropStudio [FLAC|Lossless|tracks + .cue] <Gypsy, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surfin' Caravan [2:01]
-02. Enterrement Sur Une Jambe [4:29]
-03. Les Yeux Noirs [3:46]
-04. Angelo [4:21](   Читать дальше...   )Жанр: Gypsy, SwingПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A765B77D6217F33D496E2AD40DE7475BD9371F42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276303   (788616) от 15.01.2019
-
-Esther Phillips - Capricorn Princess (1976) Expanded Edition, SoulMusic Records, 2016 [FLAC|Lossless|tracks] <Jazz-Funk, Soul, Disco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic's In the Air (2:59)
-02. I Haven't Got Anything Better to Do (3:37)
-03. Boy, I Really Tied One On (3:46)
-04. Candy (5:15)(   Читать дальше...   )Жанр: Jazz-Funk, Soul, DiscoПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4681386DD6252662B5FA56DC395DFA899ED9AC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

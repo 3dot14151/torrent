@@ -1,3 +1,90 @@
+###  Публикация: 1440263   (1038994) от 16.01.2021
+
+VA - Night Beats Blues (2021) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пристрастие к музыке в жанре Blues принято считать каким-то специфичным знаком утончённого вкуса, ведь не зря она считается обязательным атрибутом разнообразных богатых заведений. А звучание вокала в сопровождении "живого" инструментала делает музыку еще более изысканной и привлекательной.001. Mississippi Heat - Yeah Now Baby
+002. Matthew La Seur - Spoonful
+003. Casey Kiser - House Of Cards
+004. Blues Cousins - Cant You See(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 09:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BA217CC4C57DED066ED75C93BA7B7416A9A933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438781   (1038929) от 16.01.2021
+
+VA - Не спи за баранкой 4 (Музыка в машину) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Deluxe - Panic Control (1:55)
+02. Miltreo - Move It (2:07)
+03. KARA KROSS - Поколение (Dj Killjoy Radio edit) (2:08)
+04. Anton Lacosta, Aleks Marty - Fake Friends (2:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30425F6C5C342E6694162D22F67ADF7DF7E2FDAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 140348   (1038645) от 17.01.2021
+
+VA - Relax Collection 7 - Гармония Тишины (2009) [MP3|320 Kbps] <Instrumental, Chill-Out, Lounge, Lo-Fi>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aguaflames - Noiman (4:10)
+02. Alex Hudish - At Ease (3:37)
+03. Alpha X - Blue Love (4:47)
+04. Andres Bela - Perceptions (6:26)(   Читать дальше...   )Жанр: Instrumental, Chill-Out, Lounge, Lo-FiПродолжительность: 04:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970971B82FDC76997C884055DC1C370F0E2C9B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614457   (1038568) от 22.02.2023
 
 VA - Music News vol.247 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -658,93 +745,6 @@ VA - Disco Real Time Discoteca Mashup (2023) [MP3|320 Kbps] <Nu Disco, Funky, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5183477544C7852FCBC71FB292AD34EAE00B0B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615591   (1037505) от 26.02.2023
-
-VA - Music News vol.248 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037505.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Diana Di - Я Буду (02:58)
- 002. 22Bullets feat. Alex Aris - Love Is Gone (02:35)
- 003. 22Bullets feat. Dripteese - To Get You (02:50)
- 004. 24kGoldn - Bite (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F5823874A792B909274878DBE5FAE5DC7F6AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615331   (1037499) от 26.02.2023
-
-Elias Rahbani - Compilation (2023) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance of Maria
-02. I Think of You
-03. L'amoureux De Paris
-04. I Remember(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00A79F2622189FE75A495B83389A533F9C1388A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441490   (1037492) от 22.01.2021
-
-VA - Beatport Electro House: Sound Pack #221 (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта подборка современной танцевальной музыки поможет не уснуть на работе и отдохнуть после неё, а также неплохо скрасит вашу вечеринку у друзей или тусовку на даче. Ищите для себя новых звёзд с 221-м сборником Electro House от Beatport. Заводные хиты, клубная музыка, современные треки с популярных радиостанций – всё, мимо чего нельзя пройти мимо!001. Wireless - Robot Communication
-002. Andrea Ferri - Dangerous Stars
-003. Dani Corbalan - Nobody Like You
-004. A-Massive - Ain't No Stoppin' Us Now(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 07:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E9C4FA67E28E2AA7C621B9D6033CC7812F96E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

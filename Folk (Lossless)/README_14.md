@@ -1,32 +1,3 @@
-###  Публикация: 1792096   (67760) от 17.04.2025
-
-VA - Lost in Thoughts: Sentimental Rock Folk Soundtrack (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Atwater Collective - You Are My Rock (3:54)
-02.  Paul James Moore - Good Morning Sun (3:27)
-03.  Sten Veiths - Die Young (4:09)
-04.  Tanya Shakison - Give Me a Sign (3:12)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C61F3F1AC3B90D5B4722D72B84CCFB5D6E41AFFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797565   (66609) от 22.05.2025
 
 Willie Nelson - Oh What A Beautiful World (2025) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
@@ -753,6 +724,35 @@ Joan Baez - Gone From Danger (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:749FF62F2BF88DC1119DF9A8B5A58B27141B04A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805810   (12025) от 09.07.2025
+
+VA - 101 Greatest Country Hits - Vol. Two: Country Sunshine (1994) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dottie West / Country Sunshine    [0:02:06.05]
+02. Ray Stevens / Misty    [0:02:55.70]
+03. B.J. Thomas / (Hey Won’t You Play) Another Somebody Done Somebody Wrong Song    [0:03:26.02]
+04. Tanya Tucker / Delta Dawn    [0:02:57.30](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2109B6CA87707CDE33889E5376D408BA9673070
 ```
 
 https://mybot314.ru/tekegram_catalog/

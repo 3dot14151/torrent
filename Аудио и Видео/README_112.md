@@ -1,3 +1,32 @@
+###  Публикация: 1532523   (713044) от 20.02.2022
+
+VA - Smooth Jazz Cafe, Vol. 1 (2016) [AAC|~317 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angela Puxi - Anima (6:02)
+02. Emelie Christiansson - Silly Boy (3:34)
+03. Denis Melody - One Day In Odessa (4:37)
+04. Roberto Sol - Happy Prince (3:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B068DED96F35A801AE321C4FE3AD0EE8078A3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532560   (713023) от 20.02.2022
 
 VA - Morning Vibes (The Sound For the Breakfast Coffee) (2022) [AAC|~324 Kbps] <Jazz, Nu Jazz, Lounge, Easy Listening>
@@ -666,35 +695,6 @@ VA - Notes from the Depth, Vol. 15 (2020) [AAC|~331 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53BA548D08EC194BF274DAAA5A4BF5FEEE38D6F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532972   (709097) от 22.02.2022
-
-Martin Hiska - Deep Blue Sunset Sessions (2020) [AAC|~343 Kbps] <Lounge, Chill Out, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset Session (5:10)
-02. Lady In Blue (4:41)
-03. Seasides (5:58)
-04. Luna (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB225C09C36C770076238EACD33604667122255
 ```
 
 https://mybot314.ru/tekegram_catalog/

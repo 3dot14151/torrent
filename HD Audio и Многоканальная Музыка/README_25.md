@@ -1,3 +1,148 @@
+###  Публикация: 804420   (615337) от 12.07.2014
+
+The Who - Quadrophenia (1979) 2LP Original Motion Picture Soundtrack [FLAC 2.0 24/192|image (Vinyl-Rip)]<Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615337.jpg" />
+</div>
+
+
+###  Подробнее
+
+C1. The High Numbers - Zoot Suit (2:01)
+C2. Cross Section - Hi Heel Sneakers (2:49)
+C3. The Who - Get Out And Stay Out (2:29)
+C4. The Who - Four Faces (3:22)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216118641C6255AA039B60457075F694C7E236FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037164   (614986) от 23.07.2016
+
+Roger Waters - Amused to Death (1992) Remastered, 2015, Sony Music [LPCM 2.0, 5.1|96/24|Blu-ray]  <Progressive Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amused To Death (рус. Позабавили(сь) до смерти) — третий сольный студийный альбом Роджера Уотерса, бывшего лидера группы Pink Floyd (если не считать его саундтреки к фильмам «The Body» (1970) и «When the Wind Blows» (1986)), вышедший в 1992 году. В хит-параде Великобритании альбом достиг 8-го места, в США поднялся до 21-го места, а наивысшую позицию занял в Новой (   Читать дальше...   )01. The Ballad Of Bill Hubbard
+02. What God Wants, Part I
+03. Perfect Sense, Part I
+04. Perfect Sense, Part II(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: Progressive Rock, Symphonic Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1179BE693100CA8F43FDF125CBCFFBF3DB5574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993828   (612911) от 20.04.2022
+
+Кикки - Полуночное солнце / Kikki - Midnight Sunshine  (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasn't That Love (Кто Идет)
+02. Undercover Lovers (Тайные Влюбленные)
+03. Somebody Else Will (Кто-To Другой)
+04. Fallin In Love, Fallin Apart (Влюбиться, Разлюбить)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE2AAAC1C27647C413F393F8EFF4E12C01966D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021076   (612910) от 20.04.2022
+
+Bobbysocks / Боббисокс (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock, Synth-pop, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612910.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Свинг • Let It Swing
+A2	Рок-Н-Ролл • Midnight Rocks
+A3	Радио • Radio
+A4	Хочу Танцевать С Тобой • Don't Bring Lulu(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, SchlagerПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173C2045E881510204BD5DC50DB237D0C76BB8B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021696   (612904) от 20.04.2022
+
+Арсенал – Пульс 3 (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion,  Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612904.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Эстафета · Relay Race
+A2	Рондо · Rondo
+A3	Праздник · Festival
+A4	Пульс Улицы · Street Pulse(   Читать дальше...   )Жанр: Jazz, Fusion,  ElectronicПродолжительность: 00:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E295BB7B92C3A78D4E87E192A11EAE1C9E1FB22D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007249   (612896) от 20.04.2022
 
 Louis Armstrong - Louis Armstrong In Prague (live at the Lucerna Hall 1965) 1983 [FLAC 2.0|96/192|image+cue|Vinyl-Rip] <Jazz>
@@ -597,154 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47321DCFF92100F0C1DCB192C08E1FA48E574E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942971   (607453) от 23.04.2022
-
-Валерий Меладзе и группа Мистикана - Live Olimpic Moscow (1997) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Увертюра
-02.	Как Ты Красива Сегодня
-03.	Река Времени
-04.	Странница-Осень(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6061A21F70283F17B60FCDFB48696300F2ED176D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844684   (607448) от 23.04.2022
-
-Glenn Miller And His Orchestra - Glenn Miller Plays Selections From The Glenn Miller Story And Other Hits (Original Recording) (1956) [FLAC 2.0|24/96 (Vinyl Rip)]<Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607448.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Moonlight Serenade
-Written-By – Glenn Miller
-A2	American Patrol
-Written-By – Meacham, J. Gray(   Читать дальше...   )Жанр: Jazz/Big BAnd, SwingПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8150C1AF10A4FE3A53FF560DA9DB217CA0F3E2B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038521   (606596) от 28.07.2016
-
-The Traveling Wilburys - The Traveling Wilburys Collection (2007) 3LP Vinyl Boxset, Remastered, Deluxe Edition [FLAC 2.0|96/24|tracks|Vinyl-Rip]<Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Handle with Care (3:20)
-02. Dirty World (3:30)
-03. Rattled (2:59)
-04. Last Night (3:51)(   Читать дальше...   )Производство: Wilbury Records, Rhino Records - R2 167868Жанр: Pop Rock, Classic RockПродолжительность: 01:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59E7FC728411C25A96B48DACBD0DD5759D573FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038463   (606203) от 28.07.2016
-
-Supertramp - Crime of the Century (1974) 2014, Reissue [DTS-HD MA, LPCM, Dolby TrueHD 2.0|192/24|Blu-ray] <Art Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crime of the Century — третий студийный альбом британской прог-рок-группы Supertramp, выпущенный в 1974 году. Это первый альбом группы в «классическом» составе и с продюсером Кеном Скоттом (англ. Ken Scott), до этого работавшим с Дэвидом Боуи и The Beatles.
-
-Диск записывался на нескольких студиях, включая Ramport Studios, принадлежащую группе The Who, и Trident Studios. (   Читать дальше...   )1. School
-2. Bloody Well Right
-3. Hide In Your Shell
-4. Asylum(   Читать дальше...   )Жанр: Art Rock, Progressive RockПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A1EDC6D7C1BC4AFABC08E7B44C48D0A78F2230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038520   (606201) от 28.07.2016
-
-The Rolling Stones - Exile On Main Street (1972) 2013 [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Blues Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exile on Main St. (рус. Изгнанник на Главной улице) — студийный альбом The Rolling Stones 1972 года, ставший 10-м альбомом коллектива, изданным в Британии, и 12-м — в США.
-Музыкальный материал, представленный на нём, стал более разнообразным, нежели на прошлых релизах Stones: пластинка сочетала в себе влияния кантри, фолк-рока, блюза и даже калипсо. Первые впечатления (   Читать дальше...   )01. Rocks off
-02. Rip this joint
-03. Shake your hips
-04. Casino boogie(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888BE73BAA3576213F9F48C752C8F44B3F2FA48C
 ```
 
 https://mybot314.ru/tekegram_catalog/

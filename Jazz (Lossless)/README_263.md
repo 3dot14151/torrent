@@ -1,3 +1,90 @@
+###  Публикация: 1342730   (222904) от 03.12.2019
+
+Beaux J Poo Boo - All Things Are New (2005) Summit Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferris Wheel [7:40]
+02. Dancing with the Monk [5:26]
+03. Only Trust Your Heart [5:43]
+04. Beaux J Poo Boo [6:58](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F8FFF6C859BCE6E0866F3BFD22FDBA18FD37AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585293   (222897) от 21.10.2022
+
+Miho Hazama - Imaginary Visions (2021) Edition Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Said Cool, You Said... What? [6:45]
+02. Your Scenery Story [8:10]
+03. Mingle-Mangle Goody Bag [7:22]
+04. Home [8:48](   Читать дальше...   )Жанр: Contemporary Jazz, Big BandПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B472B7613160AEC786ED3BA602D0C0F124E5F5E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342727   (222884) от 03.12.2019
+
+John Dankworth & Rochester Pops - Ellington: Echoes of Harlem (1988) ProJazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' in Rhythm [3:35]
+02. Cottontail [4:28]
+03. In a Sentimental Mood [5:40]
+04. Perdido [4:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A35EE5DB36B9EEC4D6BE7457FF60D5D2F9D5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425277   (222860) от 20.11.2020
 
 Art Farmer, Benny Golson, Jazztet - The Complete Argo-Mercury Sessions (1960 - 1962) 2004, 7CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -658,93 +745,6 @@ Babylon Circus - La Belle Etoile (2009) [WavPack|Lossless|tracks + .cue] <Ska-Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CEE1B2F65D167883B65AF2970E13A04C08A07B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425539   (220977) от 21.11.2020
-
-The Thad Jones / Mel Lewis Orchestra - The Complete Solid State Recordings of The Thad Jones / Mel Lewis Orchestra (1966 - 1970) 1994, 5CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220977.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. ABC Blues [12:57]
-02. Kids Are Pretty People [5:47]
-03. Don't Ever Leave Me [4:35](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 04:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845357079A4F27B165B1312280AAA7D66368DB1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425540   (220922) от 21.11.2020
-
-Bill Evans - Trio 64 (1963) 1997, Verve Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Lulu [3:52]
-02. A Sleepin' Bee [5:30]
-03. Always [4:03]
-04. Santa Claus is Coming to Town [4:25](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 01:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717991350B802487AC86DE5CEFE808EB5765831B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585527   (220833) от 23.10.2022
-
-Marian McPartland - On 52nd Street (1953) 2002, Savoy Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Foggy Day [3:07]
-02. The Lady Is a Tramp [3:48]
-03. I've Got the World on a String [4:18]
-04. Manhattan [4:03](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB255E8969CE6FABAD511B3A24AF705C324512B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

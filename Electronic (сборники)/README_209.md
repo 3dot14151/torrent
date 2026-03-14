@@ -1,3 +1,32 @@
+###  Публикация: 1693282   (121882) от 20.01.2024
+
+VA - Aquarelle Chilled (2024) [MP3|320 Kbps] <Chillout, Relax, Downtembo, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121882.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jose Luis Encinas - Summer Tangos [03:40]
+002. Zjay - Blue Vibes [05:07]
+003. Aleyum - The Subtleties Of Life [04:14]
+004. Scandroid Experiment's - Zero Mood [03:36](   Читать дальше...   )Жанр: Chillout, Relax, Downtembo, AmbientПродолжительность: 08:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5D9F04F20D1F2EBD23A697052F11C09880F51F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693584   (121739) от 21.01.2024
 
 VA - Record Super Chart 20.01.2024 [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - D.Trance 105 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F757CA21B575F2494F351173A16AA1C48C29BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702699   (115582) от 26.02.2024
-
-VA - Record Super Chart 24.02.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zerb feat. Sofiya Nzau - Mwaki (Tiesto's VIP Mix) (2:40)
-02. Ofenbach feat. Norma Jean Martine - Overdrive (Extended Mix) (3:39)
-03. АИГЕЛ - Пыяла (3:30)
-04. Dua Lipa - Houdini (3:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CBB230CB8B3E5F21E0667FF8FBA1DE624D74B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

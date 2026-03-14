@@ -1,3 +1,32 @@
+###  Публикация: 995859   (882699) от 12.03.2016
+
+VA - Amnezia Super Hits 01 (2016) [MP3|320 кб/с] <EuroDance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rob & Chris - Zeitmaschine (90s Mix) 02:23
+02. Dr.Alban ft. Haddaway, FrancaMorgano & Katja Bredahl - Volcano 03:44
+03. Twenty 4 Seven ft. Stay-C & Li-Ann - Slave To The Music (Housemaxx Edit) 03:46
+04. E-Rotic - Video Starlet 03:28(   Читать дальше...   )Жанр: EuroDanceПродолжительность: 03:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EEEEB4839F67FCBF6BC63058F1424401F1A45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373173   (882181) от 05.04.2020
 
 VA - Spring Day: Chill House Selected (2020) [MP3|320 Kbps] <Chill House, Chillout>
@@ -716,35 +745,6 @@ VA - House Nation Volume 7 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70B5E214DB6A1E6D806495D8E673755470B53E69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997013   (877661) от 15.03.2016
-
-VA - Beautiful Now: Minimal Tech House NRJ (2016) [MP3|262-320 кб/с] <Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robbert Simmons - Give It to Me (Radio Mix) (feat. Anthony Brody)
-002. Loquai - Nightcrawler
-003. Make One - Jumper
-004. Fast Company - Take Me Away (Original Mix)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 08:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454770B33CE400696F118FBF061281D9C40A3C41
 ```
 
 https://mybot314.ru/tekegram_catalog/

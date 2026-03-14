@@ -1,3 +1,244 @@
+###  Публикация: 616290   (972397) от 12.02.2013
+
+VA - Greatest Ever - Memories - The Definitive Collection (2006) [MP3|320 кб/с]<Oldes>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddy Holly - Peggy Sue [02:32]
+02. Ray Charles - Kissa Me Baby [03:10]
+03. Carl Perkins - Blue Suede Shoes [02:15]
+04. Rosemary Clooney with Perez Prado & his Orchestra - Sway [02:23]
+05. Everly Brothers - Wake Up Little Susie [02:01]
+06. Patsy Cline - Walkin' After Midnight [02:33]
+07. Connie Francis - Lipstick On Your Collar [02:18]
+08. Jerry Lee Lewis - Great Balls Of Fire [01:53]
+09. The Chordettes - Mr Sandman [02:23]
+10. The Big Bopper - Chantilly Lace [02:24](   Читать дальше...   )Жанр: OldesПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD975ED6B83FBF90B348E818B5683019DE4FCE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975661   (972099) от 15.01.2016
+
+VA - All the Hits Now 2001 Italia (2001) [FLAC|Lossless|tracks + .cue] <Italian Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiziano Ferro - Xdono (4:02)
+02. Tiromancino - Due destini (4:37)
+03. Lunapop - Resta con me (2001 version) (4:14)
+04. Velvet - Boyband (3:37)(   Читать дальше...   )Жанр: Italian PopПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CAC25B9A6F561D5EAC0D2E96D7F8B6362ED0E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975364   (972028) от 15.01.2016
+
+Julio Iglesias - A Mis 33 Anos (1978) [FLAC|Lossless|tracks + .cue] <Ballad, Chanson, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soy un truhan, soy un senor (3:05)
+02. Sono io (4:21)
+03. Si me dejas no vale (2:19)
+04. Por un poco de tu amor (2:58)(   Читать дальше...   )Жанр: Ballad, Chanson, VocalПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A193680EB1F8F5D85482DAED1E01EBFD105E8461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439576   (971974) от 21.01.2012
+
+Masterboy - Коллекция (7 Альбомов, 27 Синглов) (1990-2006) [FLAC|Lossless]<Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Euro-HouseПродолжительность: 00:11:46
+
+01. Megamix (Single Edit) [4:17]
+02. Megamix (Maxi Version) [7:29]
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975622   (971938) от 15.01.2016
+
+Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor [FLAC|Lossless|tracks + .cue] <Pop, Rock, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Amour A Deux [04:55]
+ 02. Dis Lui Toi Que Je T'Aime [03:58]
+ 03. L'Amour En Soi [05:07]
+ 04. La Vague A Lames [03:21](   Читать дальше...   )Жанр: Pop, Rock, ChansonПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27B0598E6942A0E1936675271842D666F3AF501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975495   (971936) от 15.01.2016
+
+Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность:01:12:34
+1.When You Believe (4:36)
+2.Sweetheart (4:22)
+3.I Still Believe (3:56)(   Читать дальше...   )Жанр: Pop, BluesПродолжительность: 01:09:28
+1.Fantasy (4:04)
+2.My all (3:52)
+3.Open arms (3:32)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B5C28923527AB5672012F13010B5F4C73FFD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975605   (971932) от 15.01.2016
+
+Dimitri From Paris - Night Dubbin' (2009) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Dub, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Winans - Let My People Go (dub version) (6:38)
+02. Third World - One More Time (dub) (6:24)
+03. Wuf Ticket - The Key (dub) (8:34)
+04. Lenny White - My Turn to Love You (dub) (6:38)(   Читать дальше...   )Жанр: Dub, DiscoПродолжительность: 03:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5FA72CE6ECC28F08CD5D5B629FC7CAEE8BB548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975667   (971923) от 15.01.2016
+
+VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juanito - Amor de mis amores (3:11)
+02. Juanito - Bamboleo (2:43)
+03. Olivia Valere - Cantinero de Cuba (4:15)
+04. Chico Fuente - La Paloma (3:00)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617710   (971737) от 12.02.2013
 
 C.C. Catch - 25th Anniversary Box 5CD (1986-1990) /2011, Klub80 Records Remastered/ [FLAC|Lossless]<Disco, Euro-Disco>
@@ -516,238 +757,6 @@ Artik & Asti - 7 (Part 2) (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD99CE6F7D626F3A570AB0F103BBAE6182DAD8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358567   (968752) от 08.02.2020
-
-Asgeir - Bury The Moon (2020) Ásgeir [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pictures                                                              [03:58]
-02. Youth                                                                 [03:30]
-03. Breathe                                                               [03:15]
-04. Eventide                                                              [03:48](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B2CE6A62C1F542DC2C000EE036756E833B2524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358498   (968751) от 08.02.2020
-
-VA - Композитор Юрий Эрикона-Женщине... (1999) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Малинин - Ты такая красивая
-02. Азиза - Заблудилась вдалеке мечта моя
-03. И. Кобзон - Колыбельная
-04. И. Резник - Вдовушка(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA462482A9D9BC7BA0D632EBFB2E49EC628CC8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358497   (968684) от 08.02.2020
-
-Надежда Чепрага - 3 Альбома (1998 - 2004) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мне приснился шум дождя
-02. Амор ( До встречи )
-03. Записная книжка
-04. Нанэ Цоха ( из к/ф Табор уходит в небо )(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 02:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1989DEEE6CB7A116F70465D91775F50F96B6413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358505   (968681) от 08.02.2020
-
-VA - 100 Greatest Number Ones (The Best No.1s Ever) (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968681.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lukas Graham - 7 Years 3:57
-002. Dua Lipa - New Rules 3:29
-003. Tones and I - Dance Monkey 3:30
-004. Tinie Tempah feat. Jess Glynne - Not Letting Go (XYconstant Remix) 4:49(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1549949892909DD1091F8C9F8EE8B3E117E1D725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358451   (968569) от 08.02.2020
-
-Roxette - The Ballad Hits (2002) Limited Edition, 2xCD [FLAC|Lossless|tracks + .cue] <Synth-pop, Ballad, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968569.jpg" />
-</div>
-
-
-###  Подробнее
-
-СD1:
-01.A Thing About You (3:49)
-02.It Must Have Been Love (4:19)
-03.Listen to Your Heart (5:14)(   Читать дальше...   )Жанр: Synth-pop, Ballad, Pop RockПродолжительность: 01:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76A88CEFC93B302AD84E8DED74123B8562A9B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976993   (967828) от 19.01.2016
-
-Joy Enriquez - The Call (2016) [FLAC|Lossless|tracks] <Pop, Folk, CCM>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - O' Happy Day (06:01)
- 02. - Shine (feat. Heavenly Joy) (05:00)
- 03. - Conquer (04:11)
- 04. - Hallelujah (04:26)(   Читать дальше...   )Жанр: Pop, Folk, CCMПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13ED441359B09087A6D0908D29340527C47CE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976948   (967798) от 19.01.2016
-
-VA - 2006 Grammy Nominees (2006) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorillaz feat. De la Soul - Feel Good Inc. (3:28)
-02. Green Day - Boulevard of Broken Dreams (4:21)
-03. Mariah Carey - It’s Like That (3:23)
-04. Paul McCartney - Fine Line (3:06)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB4F102663287A4A3EB5ACFC56555D7639D9274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976912   (967790) от 19.01.2016
-
-VA - 2008 Grammy Nominees (2008) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Timberlake - What Goes Around... Comes Around (5:11)
-02. Amy Winehouse - Rehab (3:33)
-03. Beyoncé - Irreplaceable (3:46)
-04. Foo Fighters - The Pretender (4:27)(   Читать дальше...   )Жанр: Hip Hop, Rock, Funk / Soul, PopПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9310E7184CF2AD91510EFA8764C1349B2F62AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

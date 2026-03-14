@@ -1,3 +1,119 @@
+###  Публикация: 1672010   (40998) от 01.10.2025
+
+Bal-Sagoth - Studio Albums (6 releases) (1995-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Epic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bal-Sagoth — английская группа, играющая в жанре симфонический блэк-метал, существующая с 1993 года. Как представитель эпик-метала, Bal-Sagoth тяготеют к крупным эпическим формам, создавая сюжетные концептуальные альбомы в жанре фэнтэзи.1995 - A Black Moon Broods over Lemuria
+1996 - Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule
+1997 - Battle Magic
+1999 - The Power CosmicЖанр: Symphonic/Epic Black MetalПродолжительность: 05:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8936449B0F7493FC1146813EAB6EE5EFE99884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592127   (40997) от 01.10.2025
+
+Drowning Pool - Studio Albums (7 releases) (2001-2025) hand made [restored, declipped] [FLAC|44.1/16|tracks +.cue] <Post-Grunge, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Drowning Pool — американская рок-группа из Далласа (Техас). Образована в 1996 году.2001 - Sinner
+2004 - Desensitized
+2007 - Full Circle
+2010 - Drowning PoolЖанр: Post-Grunge, Nu MetalПродолжительность: 06:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4678C39DE13D135B7F6D5CC8E578198CFC092F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575577   (40712) от 11.10.2024
+
+Axel Rudi Pell - Studio Albums (28 releases) (1989-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy/Power Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аксель Руди Пелль (нем. Axel Rudi Pell; 27 июня 1960, Ваттеншейд, Арнсберг, ФРГ) — немецкий гитарист, играющий в стиле мелодичный хеви-метал, а также композитор и музыкальный продюсер. Основатель одноимённого проекта Axel Rudi Pell.1989 - Wild Obsession
+1991 - Nasty Reputation
+1992 - Eternal Prisoner
+1993 - The Ballads (Compilation)Жанр: Heavy/Power Metal, Hard RockПродолжительность: 28:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584F4A6A3A62C72AC07FA1D95796F2C7D873DD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695340   (40673) от 11.10.2024
+
+Ad Infinitum - Studio Albums (5 releases) (2020-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ad Infinitum — швейцарско-немецкая симфо-метал группа. Первоначально это был сольный проект швейцарской певицы Мелиссы Бонни, который преобразовался в полноценную группу с приходом барабанщика Никласа Мюллера, басиста Йонаса Асплинда и гитариста Адриана Тесенвитца.2020 - Chapter I: Monarchy
+2020 - Chapter I: Revisited
+2021 - Chapter II: Legacy
+2023 - Chapter III: DownFall(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 03:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5BB6ED316B3FCDC8FC10C3C88A10E24A298DA49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580496   (40372) от 14.10.2024
 
 Death Angel - Studio Albums (11 releases) (1987-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
@@ -621,120 +737,6 @@ The Cure — британская рок-группа, образованная 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77F5954CD38F22D17317573FE856CD649EAF0F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705943   (38383) от 03.11.2024
-
-Brothers Of Metal - Studio Albums (3 releases) (2017-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brothers of Metal — шведская пауэр-метал-группа, образованная в 2012 году.2017 - Prophecy of Ragnarok
-2020 - Emblas SagaЖанр: Heavy/Power MetalПродолжительность: 02:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA74682F7827E932DC0618C54977723583DC48D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683069   (38381) от 03.11.2024
-
-Stahlmann (& Sundenklang) - Studio Albums (11 releases) (2010-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neue Deutsche Härte, Industrial, EBM>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stahlmann — немецкая группа, играющая в стилях Neue Deutsche Härte, Industrial, EBM, в своих композициях группа соединяет жесткое гитарное звучание и глубокий вокал.2010 - Stahlmann
-2012 - Quecksilber
-2013 - Adamant
-2015 - Co2Жанр: Neue Deutsche Harte, Electronic, RockПродолжительность: 07:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12B4A8E9366687124EE01321F9E81CC932E2FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720053   (38364) от 03.11.2024
-
-Ensiferum - Studio Albums (11 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ensiferum (лат. «меченосец», «вооружённый мечом») — финская фолк-метал-группа, основанная в 1995 году. Участники группы характеризуют свой стиль как «мелодичный фолк-метал».2001 - Ensiferum
-2004 - Iron
-2008 - Victory Songs
-2009 - From AfarЖанр: Epic Folk MetalПродолжительность: 08:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09DEFB0CAB02688004CA7F950EF249D9BEB75D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690702   (38296) от 04.11.2024
-
-Vision Divine - Studio Albums (9 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vision Divine — итальянская пауэр-метал-группа, образованная в 1998 году. Многие участники коллектива так или иначе были связаны с другой итальянской пауэр-метал-группой Labyrinth.1999 - Vision Divine
-2002 - Send Me An Angel
-2004 - Stream Of Consciousness
-2005 - The Perfect MachineЖанр: Power/Progressive MetalПродолжительность: 08:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2A7313DF0C0AD47EB459EECD38503B0A76631F
 ```
 
 https://mybot314.ru/tekegram_catalog/

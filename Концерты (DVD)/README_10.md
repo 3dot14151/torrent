@@ -1,3 +1,29 @@
+###  Публикация: 580126   (344866) от 24.11.2012
+
+Ария - В желтом круге арены (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_344866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy MetalАктеры: Ария, Владимир Холстинин, Виталий Дубинин, Михаил Житняков, Сергей Попов, Максим УдаловПродолжительность: 01:57:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179463   (344455) от 02.11.2017
 
 Suicidal Angels - Division Of Blood (Bonus DVD) (2016) DVD5
@@ -690,36 +716,6 @@ Dio - Evil Or Divine (Live in New York City) (2003) DVD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3BA54F00B3178D99CAD3FB939FBAA77AFA5E4DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960998   (301135) от 01.12.2015
-
-New Order, Live In Glasgow (2008) DVD9 + DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301135.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD1: Концерт в Глазго. Съёмки - октябрь 2006 года. (DVD-9)
-DVD2: Редкие и ранее не опубликованные съёмки. (DVD-5)1	Crystal	7:07
-2	Turn	4:33
-3	True Faith	5:49
-4	Regret	4:05(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, House, New Wave, Electro, Synth-popПеревод: ОтсутствуетЯзык субтитров: English, French, German, Spanish, Brazilian Portuges.Продолжительность: DVD1:~ 01:47:00, DVD2:~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C77EBF0A19EA969F743901AAE6661DBB1C12AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1249989   (429271) от 26.09.2018
+
+The Four Freshmen - Voices in Love & Love Lost (1958, 1959) 1998, Collectors' Choice Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Always Chasing Rainbows [3:05]
+02. There Is No Greater Love [2:56]
+03. Moonlight [3:04]
+04. It Could Happen to You [3:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A044D9378E849F96EB5D80BD2068AEA58E8BC1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249970   (429137) от 26.09.2018
+
+Chris Farlowe - Hotel Eingang (2008) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jealous Man (03:02)
+02. Don't Wanna Love You Anymore (03:37)
+03. It Should've Been Me (03:46)
+04. So Hard To Get Along With (04:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9650037807051F0720C8B077E21823B6FC7614A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250160   (428934) от 26.09.2018
+
+Melvin Taylor - 8 Albums (1982 - 2013) 9CD [FLAC|Lossless|image + .cue] <Electric Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Melvin Taylor - гитарист-самоучка из Чикаго, который освоил блюзовую гитару и слайд-гитару по пластинкам B.B. King , Albert King и Jimi Hendrix. По мнению AllMusicGuide, Taylor, возможно, наиболее талантливый из новых гитаристов со времен Stevie Ray Vaughan. Так это или нет, каждый может решить сам, но то, что Melvin - талантище, это бесспорно. Когда в начале 80-х (   Читать дальше...   )Список альбомов:
+1982 - Blues On The Run
+1984 - Plays The Blues For You
+1995 - Melvin Taylor & The Slack BandЖанр: Electric Chicago BluesПродолжительность: 06:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4291DE556B3F5BDB54B64E7203639FE8A0323742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166016   (428657) от 15.09.2017
+
+Miles Davis Quintet - Winter in Europe 1967 (2006) Gambit Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [00:32]
+02. Agitation [06:58]
+03. Footprints [09:07]
+04. Around Midnight [08:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD420B56841F73F688E4AC1B6649283A4CC3C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166017   (428509) от 15.09.2017
+
+Eva Cortes - El Mar De Mi Vida (2010) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Mar De Mi Vida [04:26]
+02. Casi [03:35]
+03. C'est Si Bon - Que es Mejor? [03:20]
+04. Desterrado [05:42](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E4F4DE9729AF2868998892F2956DC1A5DC01EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064246   (428388) от 19.10.2016
+
+Peggy Lee - Rendezvous With Peggy Lee (1946-1949) 2000, Vocalion[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Can't Give You Anything But Love [02:36]
+ 02.Why Don't You Do Right? [02:28]
+ 03.Stormy Weather [03:10]
+ 04.Them There Eyes [03:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F6FEE9815AB6243B93C76FB28632CB933C4F90B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064176   (428378) от 19.10.2016
 
 Gary Burton & Friends - Departure (1997) [WavPack|Lossless|image + .cue] <Contemporary Jazz, Post Bop>
@@ -576,180 +750,6 @@ Elvin Jones - Live At The Lighthouse Vol. 1 (1972) /2013, EMI Music/[FLAC|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EC37245F35D29F1B3E4AEAFE8285310A37F3C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946315   (425255) от 14.10.2015
-
-Vidar Busk & His True Believers - Stompin' Our Feet With Joy (2011) [MP3|320 кб/с]<Blues, Rockabilly>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stompin' Our Feet With Joy (04:43)
-02. Boogie Leg (02:57)
-03. Working Man Blues (02:18)
-04. 5-10-15 Hours (04:16)(   Читать дальше...   )Жанр: Blues, RockabillyПродолжительность: 01:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209DDC82F71FAEDC37F734275C568AF32B9E34CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946439   (425252) от 14.10.2015
-
-Elvin Jones - Live At The Lighthouse Vol. 2 (1972) /2013, EMI Music/[FLAC|tracks+.cue]<Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction / Happy Birthday Greeting [00:54]
-02.Sweet Mama [15:32]
-03.I'm A Fool To Want You [11:35]
-04.The Children, Save The Children [08:01](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C462A07AFD8F4C60BC9566C43597E756D1DB3EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946845   (425251) от 14.10.2015
-
-Jeff Pitchell and Texas Flood - Fat Cigars (1997) [MP3|320 кб/с]<Texas Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye For An Eye (03:31)
-02. Fat Cigars (04:05)
-03. One Hand (05:54)
-04. Whole Lotta Lovin (03:56)(   Читать дальше...   )Жанр: Texas BluesПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B282E459632AF32B1530E31308A5FF002E23772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946786   (425250) от 14.10.2015
-
-Jonathan Fritzen - Fritzenized (2015) [FLAC|image + .cue]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fingers on Fire (4:11)
-02. Euphoria (feat. Paul Taylor) (4:29)
-03. A Funky Night (feat. Laila Adele) (4:09)
-04. Enchantment (4:27)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C749DDE73AE5D4C3347F56C735CF4CFE61CF1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946707   (425159) от 14.10.2015
-
-Freddie Roach - Brown Sugar (1964) /2014, Universal/[FLAC|tracks+.cue]<Hard Bop, Soul Jazz, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Brown Sugar [04:23]
- 02.The Righ Time [07:20]
- 03.Have You Ever Had The Blues [06:43]
- 04.The Midnight Sun Will Never Set [06:56](   Читать дальше...   )Жанр: Hard Bop, Soul Jazz, Hammond OrganПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF728B86B0B9CCF6A1AEDFE2FF7A5942D4BEF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946672   (425155) от 14.10.2015
-
-Stacie Collins - Roll the Dice (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost and Found (03:25)
-02. King Of Rock (03:42)
-03. Gonna Fly (03:32)
-04. It's Over (04:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D5B5BCC7AF947250D8DCF6371EF0E8BDA72C6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

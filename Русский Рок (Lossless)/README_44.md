@@ -1,3 +1,148 @@
+###  Публикация: 1622580   (239185) от 29.03.2023
+
+Sweetlee - Двери (2019) [FLAC|Lossless|WEB-DL|tracks] <grange, psychedelic, stoner rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Покой [00:07:01]
+02. Чайки [00:07:57]
+03. Двери [00:05:16]
+04. Солнце звезда [00:06:09](   Читать дальше...   )Жанр: grange, psychedelic, stoner rockПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA37D82EA9C2BA1739EA5B2EB1B9F471FCF38F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476847   (238993) от 13.06.2021
+
+АутистЪ - 3 Albums (2019-2021) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зарница горит (Дисциплина) [00:01:51]
+02. Нет дискотеки [00:02:11]
+03. Двуногий смеётся [00:03:11]
+04. Лето обещает быть холодным (2021) [00:02:06](   Читать дальше...   )Жанр: Hardcore PunkПродолжительность: 3 CD, 00:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB93ECC186E669B20AFF755D1C05169F792E73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622846   (238973) от 30.03.2023
+
+Лес Гинкго - Нечего терять (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Скотт [00:02:35]
+02. Нтврн [00:03:26]
+03. Хьюстон [00:02:36]
+04. Порно [00:02:26](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F381134ACCAB9FDC6B757ECE7EBD064A1051B81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476751   (238923) от 13.06.2021
+
+Первый легион - Завет (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Покаяние [00:03:30]
+02. Щит, меч, острый топор [00:03:27]
+03. Где нет святых [00:03:42]
+04. Завет [00:04:48](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E64F9A3ACB3D2AC3436576497CAB585F4E4E4EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623102   (238905) от 31.03.2023
+
+Пионерлагерь Пыльная Радуга - ВОЙ (2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ПНВТ`23 [00:04:47]
+02. Можно [00:03:24]
+03. Долбоящер [00:03:11]
+04. Песня Маугли Против Людей (Основана на стихотворении Р. Киплинга в переводе В. Бетаки) [00:04:54](   Читать дальше...   )Жанр: Grunge, RockПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2B77A918F9DA0E7ABF71BAA4CD2CA5588FAC75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622853   (238784) от 31.03.2023
 
 Эй' Гоблин! - 2 Releases (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk Rock>
@@ -597,151 +742,6 @@ Shabnak - Fusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Tribal Metal, Industrual 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03A78763FFEB866E810FB8598A2960F9EA3C0473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456084   (236617) от 21.03.2021
-
-Delorian Domain - Alchemilla (2017) [FLAC|Lossless|WEB-DL|tracks] <Extreme Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alchemilla [00:02:19]
-02. Black Rosarium [00:05:23]
-03. My Fall [00:05:49]
-04. The 21 Sacraments [00:02:29](   Читать дальше...   )Жанр: Extreme MetalПродолжительность: 00:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC8D0ED7EC8BBBE2218FE87A90DF42B29C856B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640218   (236543) от 16.06.2023
-
-Nedrugh - Depersonalize (2023) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236543.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Depersonalize
-2. Faith In Salvation
-3. Mystifier
-4. Secret Alliances(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F478E89C05F2A2954677B78DA72A0FAD29B274C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640030   (236513) от 16.06.2023
-
-Autumn Rain Melancholy - Seven Steps to Infinity (2004) 2022, Autumn Rain Melancholy [FLAC|Lossless|WEB-DL|tracks] <Symphonic Doom Metal, Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Начало [00:01:43]
-02. Слёзы осени [00:04:07]
-03. Снег [00:04:15]
-04. . . . [00:05:57](   Читать дальше...   )Жанр: Symphonic Doom Metal, Symphonic Black MetalПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E0A539629B6872F1F3A201F60529B94CF27C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640000   (236504) от 16.06.2023
-
-WastedSky - Стая (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шторм [00:02:16]
-02. Пластик [00:04:24]
-03. Сквозь горизонт [00:04:35]
-04. Для тебя [00:05:38](   Читать дальше...   )Жанр: Alternative Metal, Nu-MetalПродолжительность: 00:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4354637DA6FDCDC558654D22684B03DDB0C8CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950644   (236446) от 09.05.2022
-
-Бригадный Подряд - 17 Albums + Single, Live's & Compilation (1986-2022) [APE, FLAC|Lossless|image + .cue, tracks] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236446.jpg" />
-</div>
-
-
-###  Подробнее
-
-1986 - Бригадный Подряд
-1988 - Все - Punk рок!
-1997 - Розовая Вода (не Hi-Fi) (переиздание 2008)
-1997 - ХудшееЖанр: Punk-RockПродолжительность: 21:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB9768BDE78F861C9242B0365EC22F6395B3B34
 ```
 
 https://mybot314.ru/tekegram_catalog/

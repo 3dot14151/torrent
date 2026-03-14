@@ -1,3 +1,177 @@
+###  Публикация: 1036552   (619247) от 21.07.2016
+
+VA - King & Deluxe Acetate Series: Beef Ball Baby - New Orleans R&B Sessoions (2015) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddie Gorman - Answer To Chubby's Bedroom Blues (2:54)
+ 02. Eddie Gorman - Beef Ball Baby (2:37)
+ 03. Paul Gayten & His Band, vocal Eddie Gorman - Don't Worry 'Bout Nothin' (2:44)
+ 04. Eddie Gorman - Hey Now (2:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC557D818FE06563461EC5F1A93BFA1DA1D14A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036613   (619147) от 21.07.2016
+
+Larry Miller - Unfinished Business (2010) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mad Dog    04:14
+02.  As Blue As It Gets    04:13
+03.  Cruel Old World    09:21
+04.  Still Aint Done With The Blues    03:58(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C0BF063C42DF8B26EA915A900F7A6912445AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036820   (619146) от 21.07.2016
+
+VA - When the Saints Go Marching in: Jazz Greatest (2005) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название диска происходит от известнейшей композиции впервые исполненной Louis Armstrong - When The Saints Go Marching In (Когда святые маршируют). Впоследствии практически каждый джазист почитал своим долгом перепеть (и переиграть) эту, ставшую классикой, композицию. Ну и, конечно, только от одного перечисления имен тех, кто представлен на этом сборнике может у (   Читать дальше...   )01. Louis Armstrong - When The Saints Go Marching In  (3:12)
+02. Duke Ellington - The Mooche  (5:26)
+03. Benny Goodman - King Porter Stomp  (3:08)
+04. Nat King Cole - It's Only A Paper Moon  (1:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517A7391146DB05EBA9E7797CD0829796A611CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036753   (619145) от 21.07.2016
+
+The Stumble - The Other Side (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Orleans    04:43
+02. Just Stop    04:16
+03. Be My Slave    05:57
+04. Freedom Like a Woman    07:25(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF81A869B9D16098045600579E151BA2747BC7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230067   (619076) от 10.06.2018
+
+Betty Carter - Social Call (1955, 1956) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight In Vermont [3:27]
+02. Thou Swell [1:43]
+03. I Could Write a Book [2:40]
+04. Gone With the Wind [4:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE6AD531EB812118A5FDC3846603105E3C9229D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230172   (618973) от 10.06.2018
+
+Club Des Belugas - Ragbag (2018) [FLAC|Lossless|image + .cue] <Swing-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is What You Want  [05:27.64]
+02. Ragbag  [03:55.25]
+03. Tequila [04:23.26]
+04. Beyond The Window   [04:42.64](   Читать дальше...   )Жанр: Swing-JazzПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450C654BBB106C28FD66F80A21EB288F67B64F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295604   (618858) от 13.04.2019
 
 Carlos Martins - Passagem (1996) Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -571,180 +745,6 @@ Ben Webster - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E40EDA92E379E3A85DA53BF4630578B233D6AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145943   (618353) от 27.06.2017
-
-Albert Sanz Trio - O Que Sera (2012) Nuba Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soberana Rosa [04:51]
-02. O Que Sera [06:07]
-03. Antes Que Seja Tarde [05:37]
-04. Outros Sonhos [05:34](   Читать дальше...   )Жанр: Latin Jazz, Post-Bop, Piano JazzПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A3DF5E8E71D5E309946CAA612207A67A6FA637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145941   (618242) от 27.06.2017
-
-The Joe Newman Septet - The Midgets (1956) 1998, BMG Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Moon At All [02:50]
-02. Valerie [02:58]
-03. My Dog Friday [03:32]
-04. Scooter [02:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9C1523774ADC1CF1083E4757B85FEDBDC564AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145679   (618229) от 27.06.2017
-
-The Modern Jazz Quartet - Fontessa - The Little Comedy (1960) Remaster, 1996, Giants Of Jazz [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Little Comedy: La Cantatrice-Harlequine, Fontessa (24:00)
-02. Cylinder (6:36)
-03. A Social Call (4:55)
-04. How High The Moon (8:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE6CA128824C7A1C962C284E3EF5385BC6B75B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145894   (618225) от 27.06.2017
-
-Rita Reys - The Real… Rita Reys (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Summertime
-02. Raindrops Keep Fallin' On My Head
-03. The Windmills Of Your Mind(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 03:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6304E1128B9C815E70621C44412F2B7AD9DB15D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544703   (618133) от 17.04.2022
-
-Borderhill Bay - Harmaa (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ei Puhettakaan (2:30)
-02. Harmaa (3:26)
-03. Helpompaa (3:03)
-04. Hoo Doo (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B41D400C05555E22D3543A4633B6C4541B7D3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544700   (618130) от 17.04.2022
-
-Bluesbury - MMXXI (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gemini Heart (5:54)
-02. So Damn Cool (5:01)
-03. Walk In My Shadow (4:35)
-04. (I Wanna) Make Love To You (8:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA50B00FB0423BFC8A161D419A8BC251DA5372C
 ```
 
 https://mybot314.ru/tekegram_catalog/

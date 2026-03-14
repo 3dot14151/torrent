@@ -1,3 +1,373 @@
+###  Публикация: 1728364   (108336) от 07.06.2024
+
+VA - DJ Hits 35 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tokyo Ghetto Pussy - Everybody On The Floor (Pump It) (Pump It - Remix)
+02. One Love Feat. Marky Mark - That's The Way I Like It (Club Mix)
+03. Mr. President - Gonna Get Along (Without Ya Now) (Extended)
+04. Joe Samba Jr. feat. African Vibes - I Like Summer (Radio Remix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DAACD6E1016C4747A9335A21C1F649C08AFA4F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728352   (108332) от 07.06.2024
+
+VA - DJ Hits 34 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olli's Club - It's Allright (Euro Radio Edit)
+02. Mata Hari - Spy In The Name Of Love (Spy Remix)
+03. Sultans of Dance - Move On Your Body (Radio Edit)
+04. Freak Brothers - Funky Feeling (Funky Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E60773A5B7C2F2CE0113069B8171AA2F346CE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728669   (108310) от 08.06.2024
+
+Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1995, Rocket [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Fantastic And The Brown Dirt Cowboy
+02. Tower Of Babel
+03. Bitter Fingers
+04. Tell Me When The Whistle Blows(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD184840D88B1735A9C7968DFD076E8A724E359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728665   (108309) от 08.06.2024
+
+БИО - 1987 556 25 7 (2024) [MP3|320 Kbps] <Synth-Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Рельсы, шпалы
+02.Тоннели метро
+03.Наша славная страна
+04.Электроток(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96F490F230876438D029E51C96210158E2A8AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728550   (108288) от 08.06.2024
+
+VA - DJ Hits Volume 36 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Unlimited - Do What's Good For Me
+02. Alexia feat. Double You - Me And You
+03. Eurogroove - It's On You (Scan Me)
+04. Bass Bumpers - Keep On Pushing(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A063AF7DADFD5804B40E8800183A5F7BC9B70D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728660   (108257) от 08.06.2024
+
+VA - Nothing But... Pure Dance, Vol. 22 (2024) [MP3|320 Kbps] <Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rish NK, AMANI KL10 - Paisa (02:29)
+ 02. Coma Baby - Gone (03:47)
+ 03. Viktor Vos - Like It Used To Be (04:08)
+ 04. Ward Rivers - Prison Food (02:49)(   Читать дальше...   )Жанр: Pop DanceПродолжительность: 01:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D327CDF68408E5E2C8AEC596A809AF03D8B1BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728857   (108213) от 09.06.2024
+
+Mephisto - Forever Mine (2021) [FLAC|Lossless|tracks] <Nu-Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mephisto - Forever Mine (2:56)
+02. Mephisto - Forever Mine (Extended Mix) (4:47)Жанр: Nu-Disco, HouseПродолжительность: 00:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63CB5739A7F7EDDF2C037768C9F2C276812E6C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729106   (108146) от 10.06.2024
+
+VA - DJ Hits 37 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N-Trance & Richardo Da Force - Stayin' Alive
+02. Masterboy - Feel The Fire
+03. DJ Bobo - Everything Has Changed
+04. The Outhere Brothers - La La La Hey Hey(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95594B6A2E55A1A4AF2E2B43F1279102024B2414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729070   (108138) от 10.06.2024
+
+D*Wise Ft Sarah Ann - Crying At The Discotheque [2021 Spacer remix EP] (2021) [FLAC|Lossless|tracks] <Hi-NRG, Nu-Disco, Lounge, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crying At The Discothèque (R.F.N. 80s Spacer mix) (4:00)
+02. Crying At The Discothèque (très chic playlist 2021 remix) (4:01)
+03. Crying At The Discothèque (acoustic unplugged remix) (4:34)
+04. Crying At The Discothèque (R.F.N. 80s Spacer maxi mix) (5:30)(   Читать дальше...   )Жанр: Hi-NRG, Nu-Disco, Lounge, HouseПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478DFF6421E10CB1BFDDE50B005A23E2A020694D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729214   (108136) от 10.06.2024
+
+The Distance And Franky Miller Feat. Easi - Crying At The Discotheque (2023) [FLAC|Lossless|tracks] <Electro House, Electro-Disco, Nu-Disco, Synth-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crying At The Discothèque (00:02:20)
+02. Crying At The DiscothèqueЖанр: Electro House, Electro-Disco, Nu-Disco, Synth-PopПродолжительность: 00:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6408DA0A6FFE1828B14C875DF72F46ED2FE8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729242   (108125) от 10.06.2024
+
+VA - DJ Hits 39 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run 4 Fun - Please Don't Talk To Jessica (Pleasure Mix)
+02. General Base - I See You (General Radio Mix)
+03. Real Hype - Train Of Love (Radio Edit)
+04. Sophie Weller - Venus (Goddess Of Love)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC33D8A334079A1F09463A6FF55FA8FF7A5FAC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729010   (108119) от 10.06.2024
+
+Kujan - Crying at the Discoteque (2021) [FLAC|Lossless|tracks] <Nu-Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kujan - Crying at the Discoteque (3:24)Жанр: Nu-Disco, HouseПродолжительность: 00:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E999F11E89425E99A08FE2523F38F2588C9767C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729249   (108117) от 10.06.2024
+
+VA - DJ Hits 40 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-Pression - This Is Our Night
+02. MC Miker & DJ Sven - Let's Ride
+03. Frankie Nocenti - Get Away
+04. Alison - My Love(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98CFB0AA54DEB38FD66A99D12C2592F5754590CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729216   (108116) от 10.06.2024
 
 Discotron, Sandy's Groove - Crying At The Discoteque (2022) [FLAC|Lossless|tracks] <Nu-Disco, House>
@@ -367,376 +737,6 @@ VA - DJ Hits Vol. 57 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F15407128B7E554DE7A9C2A9BB83E41FE1F9B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730986   (107822) от 18.06.2024
-
-VA - DJ Hits Vol. 65 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snap! & Einstein - The Power '96
-02. Mr. President - Coco Jamboo
-03. Los Del Rio - Maria, Maria (Pura Carroceria)
-04. Klubbheads - Klubbhopping(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841CD42D58AE8530813EA6107A107AC46845524F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731000   (107821) от 18.06.2024
-
-VA - DJ Hits Vol. 66 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zucchero - My Love (Album Version)
-02. Fool's Garden - Wild Days (Radio Version)
-03. Deep Blue Something - Breakfast At Tiffany's
-04. Just Friends - Anytime Anyplace(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F6978BCF8EF190A9313EE07D992AC905EB8A3FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730877   (107817) от 18.06.2024
-
-Dutch Rhythm Combo Ft. Isa GT - Alerta (remixes) (2010) [FLAC|Lossless|tracks] <Disco, Nu-Disco, House, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dutch Rhythm Combo Ft. Isa GT - Alerta (Lipelis and Simple Symmetry remix) (6:30)
-02. Dutch Rhythm Combo Ft. Isa GT - Alerta (Paul Marmota remix) (4:10)
-03. Dutch Rhythm Combo with Jan Willems Ft. Isa GT – Alerta (Turntable Dubbers redub) (6:00)Жанр: Disco, Nu-Disco, House, ElectroПродолжительность: 00:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22B5D4A7A4F335ED0748A7FC572E13053DB4251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730942   (107815) от 18.06.2024
-
-Chillymouse - Only You (Bootmasters & Visioneight remix) (2021) [FLAC|Lossless|tracks] <Deep House, Disco House, Future House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillymouse - Only You (Bootmasters & Visioneight remix) (4:53)Жанр: Deep House, Disco House, Future HouseПродолжительность: 00:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58BFEDE46E56CF6E5713AFE13DD520FC2565BFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730939   (107810) от 18.06.2024
-
-Redemm - Be My Lover (2024) [FLAC|Lossless|tracks] <Euro House, Deep House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redemm - Be My Lover (3:06)Жанр: Euro House, Deep HouseПродолжительность: 00:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF94F1F58E4BFAF6B5C64E6C4C52F83EE5C9608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730830   (107795) от 18.06.2024
-
-VA - DJ Hits Vol. 59 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Vision - All Right (Extended Version)
-02. 740 Boyz - Bump Bump Booty Shake (Radio Version)
-03. Blumchen - Herz An Herz (Herz In Der Luft Radio Mix)
-04. Fun Factory - Doh Wah Diddy (Dee Dee Radio)(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A2C8FF82F1348A7D7FD093F80F7890499FA4D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730900   (107794) от 18.06.2024
-
-VA - DJ Hits Vol. 61 (1996) [OGG Vobis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. President - Coco Jamboo (Extended)
-02. Backstreet Boys - Get Down (Ho Rap Edit)
-03. Carol Bailey + Alex Party - I Can't Make You Love Me (Alex Party Short Mix)
-04. Neuronic - Heaven (Motiv 8 Club Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2A550B305EB6E74272168F30384646B6A6624F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730831   (107793) от 18.06.2024
-
-VA - DJ Hits Vol. 60 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fools Garden - Leemon Tree
-02. R.Miles - Children
-03. Culture Beat - Crying In The Rain
-04. Scooter - Let Me Be Your Valentine(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4564E6FE0EA85FAA3B267BFCAC9AF8FCD5EBA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730961   (107790) от 18.06.2024
-
-VA - DJ Hits Vol. 62 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Long
-02. Beat System - Fresh
-03. Ice MC - Give me the Light
-04. Grandmaster Flash - If U wanna party(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D561445E3C7DC24D02DC0A8481F0357C0E50F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731007   (107780) от 19.06.2024
-
-VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Mercy - Where do you go (club mix)
-02. Justine Earp - Ooo la la la (voodoo club radio 1)
-03. Ally & Jo - The lion sleeps tonight (remix)
-04. Captain Hollywood Project - Love & Pain(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3734184AAC1F04B42E6E5D97B4568B7D2EDB446B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731209   (107778) от 19.06.2024
-
-VA - DJ Hits Vol. 77 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bushman - No 1 Else
-02. Sold Out - Hey Hoh (12' Eurodance Mix)
-03. Gale Robinson - Love, Joy & Passion
-04. K.C. Flightt - Bang! (Mixmaster Club - F. Edit)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB9D4999AFCFCF03CF93335511890B3426D38F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731131   (107775) от 19.06.2024
-
-VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Techno>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scooter - Rebel Yell
-02. Awex - Wicked Plasticman
-03. Klubbheads - Klubbhapping
-04. Blьmchen - Boomerang(   Читать дальше...   )Жанр: Electronic, Euro House, TechnoПродолжительность: 01:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D051CE0D667D9DE5F8D3F8C6836773DB1D7D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731369   (107771) от 20.06.2024
-
-VA - DJ Hits Vol. 87 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Machine - U Make Me Come A Life.(Simply Mix)
-02. Dana E - I Only Wanna Be With You.(Cube Version)
-03. Maxima - You Set My World On Fire.(Radio Mix)
-04. Joyce Sims - Who's Crying Now(Radio Version)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC1B7326F86C61508C3D2AC1933A1DE279BC159
 ```
 
 https://mybot314.ru/tekegram_catalog/

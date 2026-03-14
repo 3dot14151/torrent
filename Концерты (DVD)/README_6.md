@@ -1,3 +1,38 @@
+###  Публикация: 518346   (643617) от 03.07.2012
+
+The Realm Of Napalm Records Vol. III (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_643617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Napalm Records представляет фанатам тяжелой музыки новый, третий DVD сборник лейбла. Треклист DVD включает в себя такие великие группы как Monster Magnet, Grave Digger, Alestorm и много других.1. ALESTORM - Shipwrecked
+2. ARKONA Liki - Bessmertnykh Bogov
+3. ARKONA - Stenka Na Stenku
+4. ARKONA - Yarilo
+5. ARTAS - Rassenhass
+6. DIABULUS IN MUSICA - Sceneries of Hope
+7. DRACONIAN - The Last Hour of Ancient Sunlight
+8. EDENBRIDGE - Higher
+9. FEJD - Gryning
+10. GRAVE DIGGER - Highland FarewellЖанр: MetalПеревод: ОтсутствуетФормат: DVD VideoПродолжительность: 03:52:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 348128   (639619) от 08.06.2011
 
 Серия "Jazz Icons" / Duke Ellington (Дюк Эллингтон) - Live in '58 (2007) DVD9
@@ -693,32 +728,6 @@ Ozzy Osbourne - Speak Of The Devil (17.07.2012) DVD9
 ###  Подробнее
 
 Жанр: Hard Rock, Heavy MetalПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361397   (568821) от 14.07.2011
-
-The BEATLES: Invade Paris! Conquer America! 1964 Vol.1 (2011) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 01:39:42
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,90 @@
+###  Публикация: 1480273   (1008986) от 28.06.2021
+
+VA - National Pop Dance Music (Vol.20) (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008986.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mitch Keller - Wir Sind Immer Noch Hier
+002. Teddy Karo - Sag Mir Wann
+003. Semino Rossi - Oh No Senorita
+004. Marianne Rosenberg - Fuer Immer Nur Da(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 08:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FE278E4D587FAFA2A8908E1908B273A15781C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480509   (1008935) от 28.06.2021
+
+VA - Rock Blues Bar (2021) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008935.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Josh Smith - Clover
+002. Stereophonics - Restless Mind
+003. Tim Staffell - Redwood League
+004. New Orleans Heartbreakers - Dock Of The Bay(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 08:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED02CB1153B03F44029F9024C59AC2E0C1E7FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481074   (1008609) от 01.07.2021
+
+VA - The Space Mechanics (2021) [MP3|320 Kbps] <Future House, Electro, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008609.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Johannes Brecht - Deep Down
+002. Kenshi Kamaro - Q
+003. Sb-Six - Meadows
+004. Franco Giacusa - It's Time The Game(   Читать дальше...   )Жанр: Future House, Electro, EDMПродолжительность: 11:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7074BB52D6FB2F9FF4037BB044FE31528C95EC46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480933   (1008603) от 01.07.2021
 
 VA - Beach Vibe: Deep House Summertime Sessions (2021) [MP3|320 Kbps] <Deep House, Dance, EDM>
@@ -658,93 +745,6 @@ VA - Private Summer Theme: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:768E6A711FBCD8D501B932BDC0984BC5E0E6149F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482521   (1007614) от 08.07.2021
-
-VA - Beatport Electro House: Sound Pack #314 (2021) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007614.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Sunburst Band - He Is
-002. Michael Cassette - Through The Windows
-003. Kazantip - Deep Impact
-004. Igor Bartyuk - Dzëmgi(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33480147B459815F8E6F36C77C36DA60B951D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482519   (1007610) от 08.07.2021
-
-VA - Beatport Hard Dance: Sound Pack #315 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bass D & King Matthew - Like A Dream
-002. Myst - Goodbye
-003. Phd & Gem Stone - The Beat
-004. Brad Riffresh - Pay Attention(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 08:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EA78596FA8A285BC56752D2E57D81472A667EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482513   (1007597) от 08.07.2021
-
-VA - Easy Listening: Music For A Relaxed Mood (2021) [MP3|320 Kbps] <Easy Listening, Popular, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007597.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kino - Take On Me
-002. Orchester Ambros Seelos - Sail Along Silv'ry Moon
-003. Mcendoz - Bossarian
-004. Sarah De Koster - Gorgeous(   Читать дальше...   )Жанр: Easy Listening, Popular, JazzПродолжительность: 10:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0A98869CF28A914D0947A5DE8E2B928F231937
 ```
 
 https://mybot314.ru/tekegram_catalog/

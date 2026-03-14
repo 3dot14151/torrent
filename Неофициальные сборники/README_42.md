@@ -1,3 +1,90 @@
+###  Публикация: 1487522   (1003315) от 06.08.2021
+
+VA - The Purgatory (Vol.02) (2021) [MP3|320 Kbps] <Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003315.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Be All End All - End Sequence
+002. Soul Of Ears - Invincible We Are
+003. Vestindien - Beerenberg
+004. Values - Temperance(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 10:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33ED0ECAC3823F2D97A1644FCEC7A1B7E6DF73D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487517   (1003313) от 06.08.2021
+
+VA - Lyric Funk: Listening Soul Mix (2021) [MP3|320 Kbps] <Funk, Soul, Disco, RnB>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003313.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tyree Glenn Jr - Skin Tight
+002. Silky Vincent Group - Changed Man
+003. Celeste - Tonight Tonight
+004. DJ Moy, Funk O'ya - Destinations Funk(   Читать дальше...   )Жанр: Funk, Soul, Disco, RnBПродолжительность: 08:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5A15E7C7FF088829B19C5E96ABAE66DE16351B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349958   (1003299) от 06.01.2020
+
+VA - Vibrant Color Sound: Top 100 Dj Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003299.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Angelo & Don Argento - Entrance Of The Underworld
+002. Verve - Freedom (Apo Tulup Remix)
+003. Divorosso - Boxy Baby
+004. Lessovsky - Fluids(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 10:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4670BF7C40B18A4A5E224E43DE871A3241B0F07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350499   (1003194) от 06.01.2020
 
 Teach In - Bye Bye Bye (2020) (2 CD Compilation) [MP3|320 Kbps] <Pop>
@@ -658,93 +745,6 @@ VA - The Sound Of Now (2020) [MP3|320 Kbps] <Tech House, Electro, EDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A872164F93F9D9C8CFF31887C092F230EA5947AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351303   (1002474) от 09.01.2020
-
-VA - Neon Night: Electro House (2020) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002474.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dub Striker - 51 Pegasi B
-002. Jeff Omega - Booty Showin'
-003. Stu & Brew - Disordered
-004. Lessovsky - Never Ever End(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 12:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0FF183455B8D98FC8D906EC5E2746EB49D1D231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351299   (1002473) от 09.01.2020
-
-VA - Beatport Trance Pack: #03 (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theis Ez - Joy
-02. Broning - Invaders (Original Mix)
-03. Neil Bronson With Lorela - Cant Get Over
-04. Make One - Katana(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 06:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96ACAF2686EEB7456CC3A3FF9ACC497C065A1851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351185   (1002464) от 09.01.2020
-
-VA - Beatport Techno Edm: Pack #03 (2020) [MP3|320 Kbps] <Techno, Minimal, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Alchemical Theory - Dark Forest
-02. Irregular Synth - Clojure (Mr. Jones Remix)
-03. Koen Groeneveld - Wild Noise
-04. Ellen Allien - Bowie In Harmony(   Читать дальше...   )Жанр: Techno, Minimal, EDMПродолжительность: 06:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1F5383919BE10AAAEDACCD5F02D43DD0600825
 ```
 
 https://mybot314.ru/tekegram_catalog/

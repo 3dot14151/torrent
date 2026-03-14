@@ -1,3 +1,67 @@
+###  Публикация: 242863   (447628) от 07.10.2010
+
+Joe Satriani - The Very Best (2010) [MP3|320 kbps]<Рок / Guitar, Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_447628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surfing With the Alien
+02. Always With Me, Always With You
+03. The Crush of Love
+04. Flying in a Blue Dream
+05. Summer Song
+06. Time Machine
+07. Luminous Flesh Giants
+08. Ceremony
+09. Starry Night
+10. Up in Flames(   Читать дальше...   )Жанр: Рок / Guitar, Instrumental RockПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409265   (447578) от 16.09.2020
+
+Tramtracks - Then? (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Bittersweet (04:41)
+ 02. Call It On (03:43)
+ 03. Emphatic (04:33)
+ 04. Cat Fink (04:09)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4957878C5146C826551388300A4DAD2AB1995D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409405   (447488) от 16.09.2020
 
 Mythos - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
@@ -717,66 +781,6 @@ Hush - Aloud 'n' Live (1973) [MP3|320 Kbps] <Glam Rock, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E4DF27732E149DCCEDDC91F93F0AC94FF919C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248797   (439833) от 21.09.2018
-
-Trubetskoy - Трафик (2018) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439833.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Снова в эфире «Trubetskoy» ! И снова у нас есть кое-что для вас! Это наш новый ЕР или макси-сингл - как хотите. Дни и ночи на студии, недосып и недоедание... Так, сейчас не об этом. Три песни, одну вы знаете, две новые. Мы очень хотим, чтобы вам они закатили также, как и нам."1. Время
-2. Пой, Changer
-3. ТрафикЖанр: RockПродолжительность: 00:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CE839286187A7320E4D4F30BFECA49F6173265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248790   (439478) от 21.09.2018
-
-VA - 101 Hits - No.1 Dad 5CD (2018) [MP3|320 Kbps] <Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439478.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Thin Lizzy - The Boys Are Back In Town
-02. The Jam - Going Underground(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:13:28
-
-01. The Kooks - Naive
-02. Cast - Flying(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CAD40573BD71E874352EBF825BEA5B245672925
 ```
 
 https://mybot314.ru/tekegram_catalog/

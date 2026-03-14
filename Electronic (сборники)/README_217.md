@@ -1,3 +1,32 @@
+###  Публикация: 1711001   (61497) от 28.03.2024
+
+VA - Electronic compilation part 66 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamidshax - For You
+02. Adik - Margarita
+03. Hamidshax - Before
+04. George Kopaliani - Beyond the Horizon(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E72600646F55CABEAFB82E2372C5A33DAE29A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940643   (61334) от 30.03.2024
 
 Владимир Захаров (Рок-Острова) (24 альбома) (1997-2024) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - A State of Trance 2024 (DJ Mix) [Mixed by Armin Van Buuren] (2024) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB702C48AF12B304455835544CB3584E84AD90D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724242   (56030) от 19.05.2024
-
-VA - Electronic compilation part 78 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamidshax - Aroma
-02. Rodle - Ayesha
-03. Akmalov - Black Or White
-04. Akmalov - Break My Heart(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D11B880C4FED888A4C8D85B0C604221F74E36CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

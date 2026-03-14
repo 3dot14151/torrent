@@ -1,3 +1,29 @@
+###  Публикация: 920821   (575197) от 25.07.2015
+
+Проекты - VideoHive - Mosaic Slides [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4D60C0078EEBBA492F2C51BE90D785A0B7EFAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920814   (575195) от 25.07.2015
 
 Проекты - VideoHive - Voyager [AEP]
@@ -656,32 +682,6 @@ VideoHive - Wedding Rose - 4351024 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE30135A82E191E723C20D374DA528B162032D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812542   (572557) от 13.08.2014
-
-VideoHive - Minimal Page Flip [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слайд-шоу из фотографий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E793D8AB5DDC9F0C932C3A6DF7EF67D98F4C62
 ```
 
 https://mybot314.ru/tekegram_catalog/

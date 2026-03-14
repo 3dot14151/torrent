@@ -1,3 +1,32 @@
+###  Публикация: 1800317   (15855) от 02.06.2025
+
+VA - Intimacy 2 (2025) [MP3|320 Kbps] <Easy Listening, Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Kid LAROI - NIGHTS LIKE THIS (1:27)
+02. Artemas - wet dreams (1:39)
+03. Artemas - ur special to me (1:54)
+04. Omido, Nic Dean - Precious (2:05)(   Читать дальше...   )Жанр: Easy Listening, ChilloutПродолжительность: 04:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89737F3F80E8B1C474C96AC195A5638DBE0B927C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800356   (15849) от 02.06.2025
 
 VA - Music News For Forum vol.097 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Music News For Forum vol.108 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDC982FE3BF77AF0EF9A15F0F37FFA49F016F32D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804274   (12341) от 06.07.2025
-
-VA - Music News For Forum vol.105 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12341.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daria Kupr - Lose Control (02:16)
- 002. СТАСИА feat. Jambul & MZARI - Девонька (03:08)
- 003. 2xA - DO MY THING (01:36)
- 004. 3EED - Употребить внутрь (02:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 16:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C63EC3D70CAC6F96C442642FFDCB28AF489B3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1278987   (767849) от 27.01.2019
+
+Switchfoot - Native Tongue (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Happen (04:41)
+02. Native Tongue (04:38)
+03. All I Need (03:08)
+04. Voices (02:58)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F92BB753D42C872379AB1891EA59EBBDC71621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278918   (767792) от 27.01.2019
+
+The Dandy Warhols - Why You So Crazy (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred N Ginger (00:40)
+02. Terraform (03:18)
+03. Highlife (02:32)
+04. Be Alright (03:49)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063CBA4EECEA0E7C600BB3B0D43731135A634557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279106   (766642) от 28.01.2019
+
+Linkin Park - Meteora (2003) Unofficial Release [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Foreword
+02.Don't Stay
+03.Somewhere I Belong
+04.Lying From You(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB6F3C18A8814DFED47E0FFD6A5AFC54ECD3619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125827   (766316) от 17.04.2017
 
 Loose Tooth - Big Day (2017) [FLAC|Lossless|tracks + .cue] <Rock, Alternative, Indie>
@@ -656,93 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E2AD4082AF1DD3C2267D87B48DFB352E7DEDFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282491   (745393) от 12.02.2019
-
-HEALTH - VOL. 4 :: SLAVES OF FEAR (2019) [FLAC|Lossless|tracks + .cue] <Noisecore, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psychonaut (02:24)
-02. Feel Nothing (02:59)
-03. God Botherer (02:23)
-04. Black Static (03:05)(   Читать дальше...   )Жанр: Noisecore, IndustrialПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D732DF0A3984DF2B451DEE8467CA58026A03E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282647   (743838) от 13.02.2019
-
-Tender - Fear of Falling Asleep (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Handmade Ego (05:09)
-02. Bottled Up (04:46)
-03. No Devotion (03:27)
-04. Fear of Falling Asleep (04:10)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B43E3AD6D8F6BC4B5A8AAD575948BAC813B0D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282501   (743837) от 13.02.2019
-
-Chasms - The Mirage (2019) [FLAC|Lossless|tracks + .cue] <Industrial, No Wave, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Shadow
-02.Every Heaven In Between
-03.Deep Love Deep Pain
-04.Gratuitously Cruel(   Читать дальше...   )Жанр: Industrial, No Wave, ShoegazeПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040946C21AE9716D3C968426917F0CEA280B7E5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

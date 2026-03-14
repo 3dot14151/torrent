@@ -1,276 +1,25 @@
-###  Публикация: 1506836   (799141) от 02.11.2021
+###  Публикация: 1121259   (800642) от 02.04.2017
 
-VA - Chillout Your Mind, Vol. 5 (Ultimate Chillout Collection) (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - All Phased Out (Original Mix) (5:02)
-02. Michael e - Beauty & Seduction (Original Mix) (4:48)
-03. Digby Jones, Funkdust - Ah Negresco (3:27)
-04. Living Room - A Cup of Jazz (Original Mix) (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC974DA0E774EF582B81D4413B6626B500656AEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506943   (799140) от 02.11.2021
-
-Worksheet Crafter Premium Edition 2021.2.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте свой собственный Worksheet быстро и легко. Сделайте идеальные обучающие шаблоны, рабочие листы и классные тесты для ваших  учеников всего за несколько кликов. Создайте свои Worksheet, это весело использовать и так же просто, как пользоваться Microsoft Word.Тип издания: macOS SoftwareРелиз состоялся: 10.08.2021Разработчик: © 2021 Worksheet CrafterПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B46A96DEE81461C3CC5331BE242998F125648F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507046   (799139) от 02.11.2021
-
-VideoDuke 2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузите фильмы на Mac с помощью VideoDuke! Он поддерживает все популярные видео-сайты и сохраняет ваши видео в различных форматах файлов. Вы также можете скачать потоковое видео на Mac с очень быстрой скоростью и с отличным качеством.
-Вы можете скачать любое видео, которое вам нравится, одним щелчком мыши. Просто вставьте ссылку на видео, и VideoDuke сделает все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 Eltima SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5F1136AFC4A2A34C1347214CEA51EA0368276C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506888   (799138) от 02.11.2021
-
-VA - Relaxing Therapy Session with José Sierra (Pt 1) (2020) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sami Sivananda - Shikantaza (Original Mix) (2:47)
-02. Finland & Aaskoven - Fontanelle (Original Mix) (6:19)
-03. Dellasollounge - Authum Winds (10:20)
-04. Prana Tones - Mystical Relaxation (Original Mix) (4:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F1FA0A89FC7E475AC3ED58826AB29AB679A35C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507002   (799137) от 02.11.2021
-
-VA - Future Chill (2021) [AAC|~327 Kbps] <Lo-Fi, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misc.Inc - Revelations (2:41)
-02. Alex Cortiz - Lonesome Rider (5:25)
-03. Worldtraveller - The Rory Glory Smokadelic Bloomdub (3:50)
-04. Pearldiver - Hypnotizing (Worldtraveller's Slow Motion Edit) (2:42)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD1B8D2047A6EFE53EC219DDB69A740394BD461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506863   (799136) от 02.11.2021
-
-VA - Moscow Orange: Urban Chillout Music (2020) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beamy - Twisted Soul (5:07)
-02. Patiotic - Remembering You (Original Mix) (4:04)
-03. Paul Seling - Sing (3:41)
-04. Chillson, Marc Hartman - The Streets of Love (Original Mix) (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2922F099753BD2CDADA0772A9772D926A27207A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506866   (799135) от 02.11.2021
-
-VA - St. Petersburg Orange: Urban Chillout Music (2020) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triangle Sun - Beautiful (Original Mix) (4:43)
-02. The Soul Crusaders - Share My Song (4:39)
-03. Roberto Sol, Alison Degbe - No Need to Hurry (4:31)
-04. Marga Sol - Temple of Love (Original Mix) (6:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C09BE348FE3B1549B10D0265C52AD63E4BC4D0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506350   (799134) от 02.11.2021
-
-Two Friends - Big Bootie Mix Volume 020 (2021-10-25) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skulkids - Never Heal w/Dominic Fike - 3 Nights (Acappella) w/Olivia Rodrigo - Good 4 U (Acappella) w/Whethan ft. Flux Pavilion & MAX - Savage (Instrumental) w/The Notorious B.I.G. - Juicy (Acappella)
-02. Dualities - Lose Myself In You w/Bob Marley & The Wailers - Buffalo Soldier (Acappella) w/Jason Derulo ft. 2 Chainz - Talk Dirty (Acappella)w/Plastik (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C860374313AA99A344448DA1B657E319C4BFF6B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506965   (799133) от 02.11.2021
-
-Wipr – Ad and Tracker Blocker 1.29 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wipr блокирует всю рекламу, трекеры, майнеры криптовалюты, файлы cookie ЕС и уведомления GDPR, а также другие неприятности, поэтому вы можете сосредоточиться на важном для вас контенте при использовании Safari.Тип издания: macOS SoftwareРелиз состоялся: 22.10.2021Разработчик: © 2021 Giorgio CalderollaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C4738F422CD256BD84B56B7BA0B142D1D6D380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506270   (799132) от 02.11.2021
-
-Tiësto - Musical Freedom Radio October (2021-10-16) [MP3|320 Kbps] <Electro House, Big Room>
+VA - Luxury Chill out Deluxe: The Worlds Rich and Famous Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799132.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800642.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tiesto & Karol G - Don't Be Shy
-02. Kiko Franco & Bruno Be - Friday Night (It's Not Right)
-03. Mr. Belt & Wezol ft. Yasmin Jane - Broken Moonlight
-04. KREAM & Millean. ft. Bemende - What You've Done To Me(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:59:12
+01. Atrium – Praise for the Beach – Radio Edit
+02. Eliane Davis – In the Sun – Chillout Do Brazil Mix
+03. Lounge Lotion – Dawn of Light – Balearic Extended Mix
+04. Club Salinero – Shade in the Sun – Ibiza Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08FEBD48A557495DA48C3DF79955608130343C1A
+magnet:?xt=urn:btih:7D5994F72B3434FDAF19BD4B5A563470596020EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,82 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506909   (799131) от 02.11.2021
+###  Публикация: 1121019   (800641) от 02.04.2017
 
-Things 3 v3.15.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: © 2021 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6902A8D8598FF76072FA3B1FD7A644219F31FB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506905   (799130) от 02.11.2021
-
-Cinch 1.2.4 fix [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinch дает вам простой способ управлять окнами на Mac с помощью мышки, перетаскивая окна приложений в «горячие зоны» экрана. Перетащите окно, когда курсор мыши попадет в одну из таких зон, отпустите клавишу мыши.
-Cinch придется по вкусу тем, кто много и часто работает с несколькими открытыми окнами. Это может быть: окно браузера и текстовый редактор или пару окон (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.10.2019Разработчик: © Irradiated Software, LLC.Поддерживаемая ОС: macOS 10.6.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BCC999074A731A006DF5091D95583D6D08EAF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506574   (799129) от 02.11.2021
-
-VA - Halloween Party (2021) [MP3|320 Kbps] <Pop, Rock, R&B>
+VA - Музыкальный презент на Europa Plus выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799129.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800641.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bobby 'Boris' Pickett & The Crypt-Kickers - Monster Mash (3:11)
-02. Rockwell - Somebody's Watching Me (Single Version) (3:55)
-03. Lady Gaga - 911 (2:51)
-04. Stevie Wonder - Superstition (4:27)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 01:20:39
+001. Marina Evans - Леди 3:12
+002. M19 - Белые Ночи 3:11
+003. Алекса Пол - Запах От Dior 3:11
+004. Дмитрий Нестеров - Моя Девушка Не Любит Футбол 3:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02482DCBECE6E61C73AAB0FD6B7ED26D5C35F124
+magnet:?xt=urn:btih:226345FF6A4A6560ED8969257BF191A7F8534319
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,84 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506578   (799128) от 02.11.2021
+###  Публикация: 1121344   (800640) от 02.04.2017
 
-VA - Halloween Songs (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Duran - Hungry Like the Wolf (2009 Remaster) (3:38)
-02. Talking Heads - Psycho Killer (2005 Remaster) (4:19)
-03. Warren Zevon - Werewolves of London (2007 Remaster) (3:27)
-04. Ava Max - Sweet but Psycho (3:05)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA684F327E5248E061D9EC3FF0B4A9F21AD81418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507010   (799127) от 02.11.2021
-
-Верёвки Леонтины / Les Ficelles de Leontine (1910) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая забавная киношутка. Модная в те годы эксцентрика.
-Озорная девчонка (очень частый персонаж комедий тех времен) разошлась не на шутку. Своими шалостями весь городок на уши поставила.Производство: Франция, Pathé FrèresЖанр: Комедия, короткометражный, немое киноРежиссер: Нет сведенийАктеры: Нет сведенийПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260452FB34D9760E4A07BF20AD9BD7371799EE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506870   (799126) от 02.11.2021
-
-Konrad Paszkudzki Trio - Serenade In Blue: Harry Warren Song Book (2018) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+Issa Murad - Joussour (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799126.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800640.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. About A Quarter To Nine [5:12]
-02. Forty-Second Street [3:25]
-03. I Only Have Eyes For You [4:15]
-04. I Wish I Knew [3:47](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:45:49
+01. Joussour (04:21)
+02. L'égare (06:31)
+03. La Folle Qui Danse (03:34)
+04. La Mer (07:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6B3A524726A9536AC246B58AACC0BB067350B49
+magnet:?xt=urn:btih:876E65AF9CF93C7EA96D865609D7C6929EEA3665
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,54 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507017   (799125) от 02.11.2021
+###  Публикация: 1121283   (800639) от 02.04.2017
 
-Умелые сыщики / Slick Sleuths (1926) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частные сыщики Матт и Джефф идут по следу знаменитого опаснейшего преступника по прозвищу Призрак.Производство: США, Bud Fisher Film CorporationЖанр: Рисованная анимацияРежиссер: Чарльз Р. Бауэрс, Бад ФишерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32A8BD48A4474B18B5045EE81C8DC45F2A856DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506644   (799124) от 02.11.2021
-
-Markus Schulz - Global DJ Broadcast Afterdark (2021-10-28) [MP3|320 Kbps] <Progressive House, Trance, Techno>
+Фигурное катание. Чемпионат мира 2017. Хельсинки (Финляндия). Мужчины. Произвольная программа (01.04.2017) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799124.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800639.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rebel Boy & SAM WOLFE - Psalm 39
-02. Cosmic Boys & AKKI (DE) - Dark Places
-03. Mario Ochoa - Black Hole
-04. Layton Giordani - Living Simulation(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 04:00:47
+01 апреля 2017 года, суббота. 10:50 МСК
+Чемпионат мира по фигурному катанию 2017. Хельсинки (Финляндия)
+Мужчины. Произвольная программа
+Стадион: Хартвалл-Арена (Хельсинки, Финляндия)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:52:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6BB26611E87C51036F7772C0A7EF3E1A54A86BD
+magnet:?xt=urn:btih:E51DD2CF5184AA173AD6813BB733522379369DC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,28 +114,419 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507006   (799123) от 02.11.2021
+###  Публикация: 1273399   (800638) от 01.01.2019
 
-VA - A Day to Chill: Chillout Your Mind (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+С. Б. Кан | Революция 1848 года в Австрии и Германии (1948) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Революция 1848 года осталась незавершённой как в Австрии, так и в Германии. Выяснить причины поражения этой революции и причины победы реакционных сил, сумевших к лету 1849 г. повсеместно в Центральной Европе восстановить старые порядки, являлось основной задачей этой книги.Жанр: История, политология, экономика, публицистика, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F81E76D3C64C5060D3A61D3F9E3EA72ADC6EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273381   (800637) от 01.01.2019
+
+Italoconnection - Metropoli (2018) 2CD, Expanded Edition [MP3|320 Kbps] <Synth-pop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horizon (5:02)
+02. Humanize (3:56)
+03. Sleeping (4:41)
+04. King Of The Night (3:40)(   Читать дальше...   )Жанр: Synth-pop, Italo-DiscoПродолжительность: 02:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE73CD673C41C70A281F4C8DAB1A317F3B6ED88A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273499   (800636) от 01.01.2019
+
+Lisa - Lisa (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sex Dance (5:55)
+02. Invisible Love (5:17)
+03. Rocket To Your Heart (5:48)
+04. Mandatory Love (5:42)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5596C88E4090C0204649C941CB64DA861210117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273384   (800635) от 01.01.2019
+
+В. И. Пичета (ред.) | История Чехии (1947) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800635.jpg" />
+</div>
+
+
+###  Подробнее
+
+В советской исторической литературе нет книги, которая познакомила бы читателя с историей Чехии с древнейших времён до наших дней. Между тем потребность в такой книге очевидна.
+
+Авторы настоящей книжки ставят своей задачей познакомить советского читателя с историческими судьбами героического чешского народа, веками боровшегося за свою независимость против немецкой (   Читать дальше...   )Жанр: История, политология, экономика, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1546E95615EF8B39D971E274D255FF843D2197B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273445   (800634) от 01.01.2019
+
+Биатлон с Дмитрием Губерниевым. Сезон 2018-2019. Выпуск 5. Часть 1 (2018) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эфир от: 29.12.2018
+Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную. В программе все, о чем хотят знать болельщики: новости и комментарии, интервью с лидерами соревнований и рассказы о спортсменах и командах.
+Выпуск посвещён 17-ой Рождественской гонке звёзд (   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98594A9FA821402C7B44EA4136492566D687A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273364   (800633) от 01.01.2019
+
+Джон Робб | Панк-Рок: устная история (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800633.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Панк-Рок: устная история» – это первый подробный анализ периода, полностью основанный на воспоминаниях и личных мнениях людей, принимавших непосредственное участие в панк-движении, бывших свидетелями его взлета и перемен. И в этом ее цель и интимность. Вся британская сцена была уникальной по своей самобытности, вибрациям и энергетике и оказала необыкновенное влияние (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная литература о культуре и искусстве, Зарубежная публицистика, МузыкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E0AA5CF1FB4ADA7A15B00F94607455FCE1E29E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273468   (800632) от 01.01.2019
+
+Биатлон с Дмитрием Губерниевым. Сезон 2018-2019. Выпуск 5. Часть 2 (2018) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эфир от: 29.12.2018
+Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную. В программе все, о чем хотят знать болельщики: новости и комментарии, интервью с лидерами соревнований и рассказы о спортсменах и командах.
+Выпуск посвещён 17-ой Рождественской гонке звёзд (   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B56E48A501E0716C34F6EECE8DF9E49C39B0C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273470   (800631) от 01.01.2019
+
+Биатлон. Рождественская гонка звёзд (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joka Classic Biathlon World Team Challenge auf Schalke 2018 (в России более известно под названием «Рождественская гонка») — ежегодное коммерческое соревнование по биатлону, которое проходит с 2002 года.
+17-ая Рождественская гонка звёзд 2018 по традиции прошла в немецком городе Гельзенкирхене 29 декабря 2018 года.
+01. Масс-старт
+02. Гонка преследования(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBC702A589A31B734D5E1001684D98B4DDEF2B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273402   (800630) от 01.01.2019
+
+VA - Club Night Cream Moon (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800630.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Deep Fog, Cream - Moon
+002. Dj Aroze - I See You
+003. Eddie Niguel - 4 The People
+004. Interaxxis - I Don't Understand The Machine(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6832DA15E1D9E2EA4AA78D51C3F8E8ECDB19DC95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273454   (800629) от 01.01.2019
+
+VA - A Day In The Life: Impressions Of Pepper (2018) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Antonio Sanchez - Sgt. Pepper's Lonely Hearts Club Band (00:02:53)
+02 - Mary Halvorson - With a Little Help from My Friends (00:03:08)
+03 - Makaya McCraven - Lucy in the Sky with Diamonds (00:05:56)
+04 - Wildflower - Getting Better (00:04:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DB267EF090C01B82EB94B0DE65AFBA1E17FAC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273385   (800628) от 01.01.2019
+
+Mirko Hirsch - Undercover - Free Christmas Edition (2018) Compilation, Remastered [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick De Moore - It's Love (Maxi Version) (6:19)
+02. Dario Silver - Lonely In The Name Of Love (5:06)
+03. Dario Silver - Electric Heartbeat (6:36)
+04. Dario Silver - Computer Girl (5:34)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708E02F3D82C4E1254C0B0159ABEA8B5159A8B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273387   (800627) от 01.01.2019
+
+Николай Носов | Фантазеры (1981) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для детей младшего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B050BEA383E5D09B213BAAF5CE74AA3CA9CB878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273475   (800626) от 01.01.2019
+
+Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа A. Дания — Швейцария (29.12.2018) HDTVRip [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800626.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 декабря 2018, воскресенье. 00:00 МСК
+43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
+Предварительный раунд. Группа A.
+Дания — Швейцария(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F452FADB00E7A6173C61A5852B3E16E93BECD522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273507   (800625) от 01.01.2019
+
+Mode-One - Melodies Of Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Love You (feat. Lian Ross) (3:48)
+02. The Train Is Coming (3:53)
+03. City Of Angels (4:02)
+04. Come Back To Me (3:18)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7121013BAFE12E1158FD8BDD65E9E49CC15C5191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273469   (800624) от 01.01.2019
+
+Вы умрете, или мы вернем вам деньги / Dead in a Week: Or Your Money Back (2018) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799123.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800624.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - Apres Sun (Original Mix) (4:06)
-02. Chris le Blanc, Leo Zabarella - Melville Sings the Blues (Album Mix) (3:35)
-03. Living Room - A Cup of Jazz (Original Mix) (3:42)
-04. Pier-O - Cocktail Tune (4:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:53:17
+После очередной неудавшейся попытки свести счеты с жизнью незадачливый писатель Уильям обращается к услугам наемного убийцы Лесли — неумолимого ангела смерти из «Гильдии Убийц» — организации, готовой оказать помощь всякому, кто нуждается в быстром и безболезненном уходе из жизни. У Лесли доброе сердце, но нетвердая рука. Начальство мечтает отправить его на пенсию, (   Читать дальше...   )Производство: ВеликобританияЖанр: Боевик, комедияРежиссер: Том ЭдмундсАктеры: Кристофер Экклстон, Анайрин Барнард, Том Уилкинсон, Фрейя Мавор, Гетин Энтони, Найджел Линдсэй, Мэрион Бэйли, Натали Баскомб, Марсия Уоррен, Велибор ТопичПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:30:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23D5CACB7D69ED0069044445DFF26D12FB4909A9
+magnet:?xt=urn:btih:9F30C9F0F0334CEA42627CDD777616E511BEA63E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,28 +534,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507065   (799122) от 02.11.2021
+###  Публикация: 1273448   (800623) от 01.01.2019
 
-Eyes Of Eden - Faith (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
+Aston Grey Project - Outta Time (2018) [MP3|320 Kbps] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (The Warm Up) Play It For Me 04:08
+02. Outta Time 04:25
+03. Coastal Crusin' 03:55
+04. Wanna Be Down 04:20(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB59296DE6D6B81D7300AC1BF66A08EEEAD5675B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273466   (800622) от 01.01.2019
+
+Формула 1. Самые драматичные моменты сезона 2018 WEBRip [H.264/1080p-LQ] [ENG]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самые драматичные и шокирующие моменты сезона 2018 годаТелекомпания: Formula OneЖанр: Спорт, Авто спортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 00:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7C2295961F803399B9C717403E242A7D149681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273394   (800621) от 01.01.2019
+
+Billy's Band - Песни Дедов Морозов (2016) 2017, Self-released [FLAC|Lossless|image + .cue] <Alco-jazz>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799122.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800621.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Winter Night (3:37)
-02. When Gods Fall (3:37)
-03. Star (3:48)
-04. Pictures (4:10)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:14
+01. С неба снежинки как звёзды летят (3:48)
+02. Падал крупными хлопьями снег (2:25)
+03. У Нового года примета особая (2:46)
+04. Хватит счастья нам на всех  (2:30)(   Читать дальше...   )Жанр: Alco-jazzПродолжительность: 00:35:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAB7C6F2275B325127CE0729B7FE9844D4C6F820
+magnet:?xt=urn:btih:2D56B33020B72991E5DEB4AE0FCD476B49EDBA0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,54 +618,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 579438   (799121) от 04.04.2017
+###  Публикация: 1273379   (800620) от 01.01.2019
 
-Шары ярости / Balls of Fury (2007) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэнди Дайтона - одаренный игрок в пинг-понг, опозорившийся на мировой арене и вынужденный зарабатывать, выступая в шоу в Лас-Вегасе.
-Но шанс на возвращение в мир большого спорта ему предоставляет ЦРУ. Надо лишь принять участие в подпольном турнире, который проводит у себя в поместье криминальный авторитет Фанг - известный душегуб и энтузиаст настольного теннисаПроизводство: СШАЖанр: Боевик, Комедия, КриминалРежиссер: Бен Гарант / Robert Ben GarantАктеры: Дэн Фоглер, Кристофер Уокен, Джордж Лопез, Мэгги Кью, Джеймс Хонг, Терри Крюс, Роберт Патрик, Дидрих Бейдер, Аиша Тайлер, Томас Леннон, Кэри-Хироюки Тагава, Бретт ДельБуоноПеревод: ДублированныйПродолжительность: 01:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477B7CE0A00C8372B03EF67DE239395AB92060C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122316   (799120) от 04.04.2017
-
-Стефани Гарбер | Караваль (2017) [FB2]
+Гектор Шульц | Раскол. Наследие (2018) [FB2]
 
 >>Художественная литература
->>Фантастика, Фэнтези
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799120.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800620.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый роман цикла «Караваль».
+Человечество говорит, что Раскол изменил этот мир. Сделал его мрачным и жестоким, наполнил чудовищами и смердящим страхом. Убрал свет, заменив его на вечную тьму…
+Человечество всегда ищет причины везде, кроме себя. Говорите, Раскол всему виной? Нет. Люди. И теперь людям держать ответ за то, что они сделали.Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4CE0264E269F312D56C95BC89684A382E791B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273380   (800619) от 01.01.2019
+
+Н. М. Лукин, В. М. Далин (ред.) | Новая история в документах и материалах. Выпуск 1 [3-е изд.] (1935) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800619.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом издании сохранены еще прежние хронологические рамки. Но в него внесен ряд существенных дополнений. Во-первых, включена совершенно новая глава "Консульство и Первая империя", совершенно отсутствовавшая в первом издании. В этой главе дается, между прочим, ряд документов, впервые появляющихся на русском языке.
 
-Скарлетт, дочь губернатора одного из Покоренных островов империи Элантинов, с детства мечтала принять участие в Каравале – полном волшебства спектакле, удивительной игре, которую ежегодно устраивает некий таинственный человек, известный как магистр Легендо. И вот в один прекрасный день девушка наконец-то получает пригласительный билет. (   Читать дальше...   )Жанр: Зарубежное фэнтези, Любовное фэнтезиФормат: FB2
+Во-вторых, в главу "Парижская коммуна" (   Читать дальше...   )Жанр: История, политология, документалистика, публицистика, литературоведениеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A40A6DB23DBA445FC7A32F930D51CDE68EEB8F5D
+magnet:?xt=urn:btih:95312E0088884007F1061DE33D6F6E68F533B82C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,25 +673,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121959   (799119) от 04.04.2017
+###  Публикация: 1121120   (800618) от 02.04.2017
 
-BBC. Великий рифт: Дикое сердце Африки / Great Rift: Africa's Wild Heart (2010) BDRip [H.264/1080p] (серии 1-3 из 3)
+Hodge Podge Blues Band - Hodge Podge Blues Band (2010) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues Female Vocals>
 
->>Зарубежные TV-бренды
->>BBC
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799119.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Трёхсерийный фильм BBC в области естествознания, показывающий ландшафты и дикую природу Восточно-Африканской Великой Рифтовой Долины. Поддерживая многообразие дикой жизни, фауны и различных сред обитания, Рифтовая Долина стала основой для некоторых очень важных экосистем Африки. В фильме показано формирование долины 30 миллионов лет назад, особенно выделяя многие (   Читать дальше...   )Телекомпания: Великобритания, BBC, Animal Planet Co-ProductionЖанр: Документальный, естествознание, природа, флора, фаунаРежиссер: Хью КуоршиПеревод: Одноголосый закадровый, любительскийЯзык субтитров: Русские, АнглийскиеПродолжительность: 3 х ~00:59:00
+01. Banker Of Love (4:10)
+02. Thirty Pieces Of Silver (4:20)
+03. Dark Regrets (3:01)
+04. Come To Me (5:50)(   Читать дальше...   )Жанр: Blues, Blues Female VocalsПродолжительность: 00:49:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB844F22DC1D6524A63D684176AD87A41371DB98
+magnet:?xt=urn:btih:7B6ADF82573B1DD83E4202ADE5F945A8BE6538F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,82 +702,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121914   (799118) от 04.04.2017
+###  Публикация: 1121076   (800617) от 02.04.2017
 
-Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+VA - Trance Traveling 87 (Mixed by VNP) (Special Uplifting Mix) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
 
->>Other Styles
->>OST (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799118.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crash (01:59)
-02. Heatseeker (03:32)
-03. Alone in the White (03:31)
-04. Welcome to the Village (03:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:51
+01.  Suncatcher - The Beach (Extended Mix)  6:07
+02.  Armin van Buuren & Garibay feat. Olaf Blackwood - I Need You (Standerwick Remix)  3:40
+03.  Heatbeat - Bondi (Extended Mix)  4:36
+04.  Ben Gold - Pilot (Extended Mix)  4:52(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 03:37:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABE36B725F3207A4C1B3965DC411A4C9F0ECE8DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121944   (799117) от 04.04.2017
-
-FontViewOK 4.46 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами крошечная программа, которая после запуска отобразит пользователю все установленные в его операционной системе шрифты, и конечно вы сможете с ними работать. Особенность программы, позволяющая вводить любой текст в специальное отведенное поле и сразу просматривать результат, то есть сразу будет видно, как набранное слово будет смотреться в том или ином (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4036BE66521042C4B7A1859EFC94AB2A2E1E5479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122267   (799116) от 04.04.2017
-
-Почти идеальная деревня / Un village presque parfait (2014) HDRip [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая горная деревушка Сан-Луан ля Модерн после закрытия фабрики по производству копчёного лосося медленно умирает. Жители разъезжаются кто куда в поисках работы, оставшиеся живут на пособие. Мэр деревни выигрывает грант, чтобы снова открыть фабрику, но есть одно «но»: в деревне должен быть врач для оформления медицинской страховки.
-
-Успешный пластический хирург (   Читать дальше...   )Производство: ФранцияЖанр: КомедияРежиссер: Стефани МюньеАктеры: Дидье Бурдон, Лоран Дойч, Лионель Астье, Дени Подалидес, Эли Семун, Кармен Маура, Анни Грегорио, Армель, Пьер Менес, Гвендолин ГурвенекПеревод: Многоголосый закадровый, профессиональный (GreenРай Studio)Субтитры: отсутствуют.Продолжительность: 01:39:13Реклама: присутствуют аудио и видео вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3A423179328320675C9D889DA0ED50D6880271
+magnet:?xt=urn:btih:D7C8BD7E83E4B25B3BB19CC9A0577A2B02E92515
 ```
 
 https://mybot314.ru/tekegram_catalog/

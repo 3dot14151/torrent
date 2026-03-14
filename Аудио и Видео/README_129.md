@@ -1,3 +1,32 @@
+###  Публикация: 1537551   (666821) от 17.03.2022
+
+VA - This Is Chillout Jazz, Vol. 2 (Cool Jazzy Sounds in a Lounge Mood) (2014) [AAC|~343 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italian Secret Service - Vox Media (5:04)
+02. Papik, Sarah Jane Morris, Fabrizio Bosso - Let The Music Play (4:03)
+03. Ithamara Koorax, Jose Roberto Betrami, Jeorge Pescara, Arnaldo De Souteiro, Haroldo Jobim - Goin' Out of My Head (3:13)
+04. Bossa Nostra, Bruna Loppez - Maiden Voyage (6:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD4ACA46C88E1BCA406033909E4E7D19E6A07AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537355   (666820) от 17.03.2022
 
 High Step Society - High Step Society (2017) [AAC|~324 Kbps] <Electro Swing>
@@ -701,32 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:316326941436E86C4727BE2A8D41E5E58FCE05D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224566   (665814) от 10.05.2018
-
-Титан / The Titan (2018) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский военный Рик принимает участие в грандиозной космической программе. Лучшие умы планеты пытаются создать сверхлюдей, которые после гибели Земли обеспечат продолжение существования человечества на планете Титан. Однако эксперимент по скрещиванию генов Homo sapiens с инопланетным существом приводит к совершенно непредсказуемым последствиям.Производство: СШАЖанр: Фантастика, триллерРежиссер: Леннарт РаффАктеры: Сэм Уортингтон, Тейлор Шиллинг, Том Уилкинсон, Агнесс Дейн, Натали Эммануэль, Ноа Джуп, Кори Джонсон, Александр Йованович, Диего Бонета, Аарон ХеффернанПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A505BB5C0FD8476FFBF51FA2D46F99226BF97B
 ```
 
 https://mybot314.ru/tekegram_catalog/

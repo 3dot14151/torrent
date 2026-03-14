@@ -1,3 +1,154 @@
+###  Публикация: 1047884   (548251) от 31.08.2016
+
+Carly Rae Jepsen - Emotion Side B (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Time
+02. Higher
+03. The One
+04. Fever(   Читать дальше...   )Жанр: PopПродолжительность: 00:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F24308131EEB947EC6D29A097E13B42B92BC4D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310057   (546885) от 24.06.2019
+
+VA - POLAND - Romantic Collection (Unknown) [FLAC|Lossless|image + .cue] <Pop, Ballad, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Z. Kurtycz - Caluje twa dlon madame (3:23)
+02. Czerwone Gitary - Historia jednej znajomosci (3:02)
+03. M. Rodowicz - Jada wozy kolorowe (3:45)
+04. Skaldowie - Przesliczna wiolonczelistka (3:03)(   Читать дальше...   )Жанр: Pop, Ballad, RetroПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5393F31D2F91D19AC163723B90EAC629C52F623D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310036   (546841) от 24.06.2019
+
+VA - Paris' Nights - Romantic Collection (Unknown) [FLAC|Lossless|image + .cue] <Pop, Ballad, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D. Roussos - Danse A La Vie (4:25)
+02. T.Cutugno - Et Si Tu N'Existais Pas (4:22)
+03. F.Franconis - Fanny Fanny (3:27)
+04. R.De Godewaerswelde - Quand La Mer Monte (2:26)(   Читать дальше...   )Жанр: Pop, Ballad, RetroПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40A563BE14DBCFA215814D956717ECDAAEB7FA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694059   (545657) от 30.08.2013
+
+Various Artists - Hits 2013 Vol-2 (2013) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Hush / Harlem Shake
+ 02. Bang La Decks / Kuedon (Obsession)
+ 03. Faydee ft. Lazy J / Laugh Till You Cry
+ 04. Xonia / Remember
+ 05. A.J. Kriss ft. Sonny Boy W / I’m Trying To Make London My New Home
+ 06. Jutty Ranx / I See you
+ 07. Dj Sava / Cocktail
+ 08. Dsaparecidos Vs. Walter Master J / Danser
+ 09. Stereolizza / Go Back To Your Mama
+ 10. VOX HALO ft. LaDolla / Criminal(   Читать дальше...   )Жанр: PopПродолжительность: 02:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134416F7879F8EC7F85E85855F3C026679D57438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048657   (545630) от 03.09.2016
+
+Sophie Ellis-Bextor - Familia (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Forever (4:21)
+02. Death Of Love (4:20)
+03. Crystallise (3:31)
+04. Hush Little Voices (4:14)(   Читать дальше...   )Жанр: Pop, Europop, Singer/SongwriterПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5EE8E2B8489031EE74B633649A936D12F935FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049277   (544785) от 04.09.2016
 
 Mariah Carey - Music Box (1993) [FLAC|Lossless|image + .cue] <Pop, R&B>
@@ -602,151 +753,6 @@ VA - Sounds Of The Eighties The Rolling Stone Collection 1983-1985 (1995) Time L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF5106881351667933709B2903BDB186802A9922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050160   (540368) от 07.09.2016
-
-Bee Gees - Best Of Bee Gees Vol.1 (1969) Reissue, 1987, Polydor [FLAC|Lossless|image + .cue]<Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holiday 02:56
-02. I've Gotta Get A Message To You 03:00
-03. I Can't See Nobody 03:48
-04. Words 03:19(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACCDD100260A423E1BFB8060686D775C6237BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239430   (538983) от 05.08.2018
-
-Tracey Thorn - SOLO : Songs And Collaborations 1982 - 2015 (2015) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Trip Hop, House, Acoustic, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Protection (7" Edit) (4:55)
-02. Easy (3:58)
-03. Better Things (4:17)
-04. Night Time (3:44)(   Читать дальше...   )Жанр: Pop, Trip Hop, House, Acoustic, Ballad |Продолжительность: 01:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1198D2A7D6E02DFA378256EFE0DD0663352CD9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239491   (538446) от 05.08.2018
-
-KAZKA - КАРМА (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. КАРМА (04:05)
-02. СВЯТА (03:09)
-03. САМА (03:57)
-04. ЗАПАЛА (03:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BAB4D900FC2D208AE709C2CE666985B63D08B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050525   (538279) от 08.09.2016
-
-Carrie Underwood - Greatest Hits - Decade #1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Pop, Country Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Something in the Water (3:58)
- 02.Little Toy Guns (3:31)
- 03.Inside Your Heaven (4:03)
- 04.Jesus, Take the Wheel (3:46)(   Читать дальше...   )Жанр: Pop, Country PopПродолжительность: 01:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C23192B5D0F4735169E42B7E5916E113E27813F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926010   (537201) от 08.08.2015
-
-Hanne Sorvaag - Cover Me (2010) [FLAC|image + .cue]<Pop / Soft Rock / Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring Me Down [02:59]
-02. Brief And Beautiful [03:43]
-03. My Heart Is Yours [02:29]
-04. November, December [04:22](   Читать дальше...   )Жанр: Pop / Soft Rock / CountryПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5EBCADDBA0F81C673D3C42E6FD1FF26B8C6C19
 ```
 
 https://mybot314.ru/tekegram_catalog/

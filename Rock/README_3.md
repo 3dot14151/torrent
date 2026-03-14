@@ -1,3 +1,32 @@
+###  Публикация: 1443044   (1036040) от 27.01.2021
+
+Canary - Cage Company (1981) LP [MP3|320 Kbps] <Krautrock, Prog Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loser (5:00)
+02. Climb The Hill (3:59)
+03. Where Ever You Go (5:37)
+04. Monstershow (4:59)(   Читать дальше...   )Жанр: Krautrock, Prog Rock, Hard RockПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03641D89B5EA6D4FE729564F4AAA368270B123B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443319   (1035779) от 28.01.2021
 
 Vierzig Grad - Vierzig Grad (1981) LP [MP3|320 Kbps] <Krautrock, Pop Rock>
@@ -716,35 +745,6 @@ The Who & Isobel Griffiths Orchestra - Live At Wembley (2023) 2CD [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F45C563D847CDF709D0E688AE2B8BC5C8063902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622566   (1029785) от 30.03.2023
-
-Ville Valo - Neon Noir (2023) [MP3|320 Kbps] <Gothic-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Echolocate Your Love [00:03:24]
-02 - Run Away From the Sun [00:04:12]
-03 - Neon Noir [00:04:56]
-04 - Loveletting [00:04:49](   Читать дальше...   )Жанр: Gothic-RockПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07505F8CB077FF489E8252EEFF3A4EB6ECAFCFBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 990976   (907700) от 27.02.2016
+
+VA - Хиты Забытых Дискотек Vol.2 (2016) [MP3|205-320 кб/с] <Pop, Dance, Eurodance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907700.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Suzanne - Give Me Love (05:44)
+002. Troll - Jimmy Dean (06:56)
+003. Jimmy & Susy - Come Back (06:06)
+004. Ken Martal - I Can't Leave You (06:15)(   Читать дальше...   )Жанр: Pop, Dance, Eurodance, DiscoПродолжительность: 09:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5180DEED7EAFBC0EF52DDFB42D905EEA44297BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991227   (907613) от 27.02.2016
 
 VA - Дискотека Руки Вверх 61 (2016) [MP3|320 кб/с] <Pop>
@@ -722,35 +751,6 @@ VA - 50 Лучших треков в машину 5 (2016) [MP3|256-320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4F8C28FE9B8A961BB1DDA6072BC730E9DC7ABA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099962   (901857) от 03.02.2017
-
-VA - San Valentino Cocktail In Love (2017) [MP3|320 Kbps] <Lounge, Jazz, Chillout, Lo-Fi>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901857.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. St Project - Smooth Operator (feat. Ely Bruna) 3:58
-2. Dolce Vita - And I Love Her 3:13
-3. Martini - One Call Away 3:15
-4. Hollywood Blvd - All Of Me 4:36(   Читать дальше...   )Жанр: Lounge, Jazz, Chillout, Lo-FiПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF769499EE002BF40CADF0A6FE8BCE94B342BEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

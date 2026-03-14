@@ -1,3 +1,90 @@
+###  Публикация: 1609576   (1043177) от 04.02.2023
+
+Mod Sun - God Save The Teen (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop-Punk, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyelids [00:02:46]
+02. Revenge [00:02:37]
+03. Avril's Song [00:02:45]
+04. Shelter (feat. Avril Lavigne) [00:03:10](   Читать дальше...   )Жанр: Alternative, Pop-Punk, Pop-RockПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAC7AB44B227FD1151C88AEC32290FBC70E28F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437004   (1042806) от 02.01.2021
+
+If These Trees Could Talk - The Bones Of A Dying World (2016) [FLAC|Lossless|tracks + .cue] <Post Rock, Instrumental, Post Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solstice (7:50)
+02. Swallowing Teeth (4:27)
+03. Earth Crawler (6:38)
+04. After The Smoke Clears (6:18)(   Читать дальше...   )Производство: Metal Blade Records – 3984-15461-2Жанр: Post Rock, Instrumental, Post MetalПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0FA16CC6B26211BA86FE4B707F69110409E8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437013   (1042557) от 03.01.2021
+
+Caspian - On Circles (2020) [FLAC|Lossless|tracks + .cue] <Post Rock, Alternative Rock, Post Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildblood (6:53)
+02. Flowers Of Light (5:02)
+03. Nostalgist (feat. Kyle Durfey) (5:56)
+04. Division Blues (7:02)(   Читать дальше...   )Производство: Triple Crown Records – TCR03235Жанр: Post Rock, Alternative Rock, Post Metal, InstrumentalПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8996F652B83563D1B58A880AE1725292A66EA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438079   (1041501) от 07.01.2021
 
 Catherine Wheel - Adam and Eve (1998) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -659,93 +746,6 @@ Silverside - V: Transmissions (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF35331B713893744AC274E28DEBE5A6F0D0A287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616872   (1035863) от 04.03.2023
-
-Imminence - Heaven in Hiding (2021) Deluxe Edition, 2023, Arising Empire [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Become a Name... [00:02:01]
-02. Ghost [00:04:15]
-03. Temptation [00:03:43]
-04. Surrender [00:03:41](   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 01:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B7C933B5396AFD0E19011C36D540D8179DABA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617365   (1035334) от 06.03.2023
-
-Xiu Xiu - Ignore Grief (2023) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock, Art Pop, Avant-Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Real Chaos Cha Cha Cha [00:05:17]
-02. 666 Photos of Nothing [00:03:51]
-03. Esquerita, Little Richard [00:03:33]
-04. Maybae Baeby [00:03:20](   Читать дальше...   )Жанр: Experimental Rock, Art Pop, Avant-FolkПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DAEE60731EF56F5C4C43B7F7A837310C96A063B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618446   (1034174) от 11.03.2023
-
-Tom Chaplin - Midpoint (2022) 2 CD [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Fall Down
-02. Rise and Fall
-03. Black Hole
-04. Stars Align(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, AlternativeПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110221E808FABA42ACB4C8136BF32519C744325D
 ```
 
 https://mybot314.ru/tekegram_catalog/

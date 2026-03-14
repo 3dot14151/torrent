@@ -1,3 +1,148 @@
+###  Публикация: 1758630   (103380) от 03.11.2024
+
+Белое злато - БеЗешкино (2024) [MP3|320 Kbps] <Фолк, Эстрада>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ой, Варенька [00:01:26]
+02 - Ах, вы сени [00:01:37]
+03 - Верю, мама, верю [00:02:58]
+04 - Однажды морем я плыла [00:03:14](   Читать дальше...   )Жанр: Фолк, ЭстрадаПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A3D53B4490F79602393118432921376BDC9B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760959   (103123) от 17.11.2024
+
+Айархаан - Добун Дуораан (2007) [MP3|320 Kbps] <Yakutia Folk, NeoFolk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Уhуктуу [03:53]
+02. Орто дойду оноhуллуута [05:17]
+03. Алгыс ырыата [02:00]
+04. Ураанхайым дойдулара [02:59](   Читать дальше...   )Жанр: Yakutia Folk, NeoFolkПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34D247E32A357E2F57335B85F0C52F57252CAAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761939   (103014) от 23.11.2024
+
+Mates of State - Bring It Back (2006) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Hard (4:43)
+02. Think Long (4:23)
+03. Fraud in the ’80s (3:58)
+04. Like U Crazy (4:39)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340A211B964B501AF965EF1892FCA2DE89CD8ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761996   (103007) от 23.11.2024
+
+Pam Tillis - Every Time (1998) CD, HDCD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Said a Prayer (2:57)
+02. Every Time (3:44)
+03. You Put the Lonely on Me (2:32)
+04. A Whisper and a Scream (2:57)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ACE63D7F5790CF6968D924EFD3E1A28B338020E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762299   (102898) от 26.11.2024
+
+Mannheim Steamroller By Chip Davis - Christmas In The Aire (1995) [FLAC|Lossless|tracks + .cue] <Instrumental, Pop, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy to the World (3:40)
+02. Joseph Dear Oh Joseph Mine (3:11)
+03. Rudolph The Red Nosed Reindeer (3:16)
+04. Herbei, Oh Ihr Gläubigen (O Come All Ye Faithful) (3:34)(   Читать дальше...   )Жанр: Instrumental, Pop, ClassicalПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C0D449A7937656A1AB907807619006A0229325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762344   (102897) от 26.11.2024
 
 Tim Janis - The Promise (2005) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental, Ambient>
@@ -300,69 +445,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488660   (101773) от 28.04.2012
-
-The Soil Bleeds Black - 8 albums (1996-2009) [mp3|192-320 kbps] <Medieval, Neofolk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Saith The Song Of Sigurd (02:50)
-02. Pastime With Good Company (02:56)
-03. Canto Alla Vita (04:11)
-04. A Hymn For Thy Lady, Fair And Chaste (02:43)
-05. Dum Pater Familias (05:40)
-06. Earthe (05:45)
-07. Lament For The Young English King (03:59)
-08. Letum Exequor (04:23)
-09. Oh Ye Of Noble Heart (02:49)
-10. Shout (04:44)(   Читать дальше...   )1996-2009Жанр: Medieval, NeofolkПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43E5B2EA1B225C506B9C33E8C89CE7AB6D665ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488238   (101668) от 27.04.2012
-
-Ordo Rosarius Equilibrio - 12 albums (1995-2010) [FLAC|Lossless] <Apocalyptic Folk, Dark Ambient, Neofolk, Martial Industrial>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_101668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Songs 4 Hate  & Devotion: (01:01:26)
-01. Where I Stand On The Holy Mountain And Pray 4 The War (06:35)
-02. A World Not So BeautifulЖанр: Apocalyptic Folk, Dark Ambient, Neofolk, Martial IndustrialПродолжительность: 01:20:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822676   (101575) от 08.10.2025
 
 Radio Wolf and Parallels - Proximity (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <OST>
@@ -565,40 +647,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487654   (100480) от 25.04.2012
-
-Vergissmeinnicht - 2 albums (2008-2011) [mp3|320 kbps] <Neofolk, Ambient>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acouasm (03:35)
-02. Salvation (03:31)
-03. Evening Moon (06:30)
-04. Mist (03:15)
-05. Cosmos (06:23)
-06. Existence (05:47)
-07. Imaginary Friends (03:40)
-08. His Own Strange Song (03:55)
-09. Outro (On The Hills Of Manchuria) (03:00)2008-2011Жанр: Neofolk, AmbientПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA5BB37DDF3DAE69C203F1369E14D6C8E968144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487060   (100321) от 23.04.2012
 
 AguaFlames - Ti Qua? (2008) [MP3|320 кб/с]<Chillout/Lounge>
@@ -718,76 +766,6 @@ VA - Ayurveda Lounge. Relaxation & Meditation. Volume 2 (2012) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BBD7E4CF0B395B09C342B22A0142552DEEF41F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465328   (96567) от 13.03.2012
-
-Ravi Shankar - Bridges: The Best Of Ravi Shankar (2001) [MP3|128 кб/с]<Ethnic, Indian Classical Music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sandhya Raga (11:23)
-2. Chase (2:21)
-3. West Eats Meat (6:11)
-4. Ragas In Minor Scale (7:36)
-5. Tarana (5:39)
-6. Tana Mana (3:42)
-7. Sadhanipa (8:35)
-8. Friar Park (5:57)
-9. Reunion (4:20)
-10. Prashanti (13:40)(   Читать дальше...   )2001Жанр: Ethnic, Indian Classical MusicПродолжительность: 01:16:6
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464934   (96386) от 11.03.2012
-
-Elane - Arcane (2011) [MP3|320 кб/с]<Celtic, Gothic, Fantasy Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gift (01:01)
- 02. Heart of the Desert (03:44)
- 03. Samarkand (03:10)
- 04. Arcane Ride (05:30)
- 05. Magdalena (04:52)
- 06. Wasser und Fels (02:52)
- 07. Die geheime Melodie (04:26)
- 08. My Ivory Fairy (03:46)
- 09. Abendruf (04:31)
- 10. Lurlinnight (04:53)(   Читать дальше...   )2011Жанр: Celtic, Gothic, Fantasy Folk RockПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3719FC83C1C3A0A6EFB614BE73358107CF9DBD76
 ```
 
 https://mybot314.ru/tekegram_catalog/

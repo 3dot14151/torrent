@@ -1,3 +1,32 @@
+###  Публикация: 1511414   (245817) от 21.11.2021
+
+bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 в 1 [01:48]
+02. Дождь (feat. Kasha) [02:28]
+03. Магия [01:50]
+04. Хочу быть как все (feat. Бакей) [01:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B46556536D604014EB5C803DD19173932F1B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624526   (242092) от 06.04.2023
 
 L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2513F0D3CCE0F46EC156A3FA9C6CC4C60F227DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965158   (227633) от 13.12.2015
-
-Не будите спящих - Делай свое дело (2015) [MP3|320 кб/с]<Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WI-FI
-02. Фифа
-03. Давай уедем туда
-04. Каюсь(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F1A066A30E1E480B4BE48A22FF07E46628D188
 ```
 
 https://mybot314.ru/tekegram_catalog/

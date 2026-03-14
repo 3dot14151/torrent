@@ -1,3 +1,90 @@
+###  Публикация: 1570847   (438474) от 19.08.2022
+
+Art Blakey & The Jazz Messengers - A Day With Art Blakey, Vol.I (1961) 1987, Intercon Music Corp. [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Summit [8:44]
+02. The Breeze and I [9:58]
+03. Blues March [9:49]
+04. Moanin' [11:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA5E52C9FD9731F60CFE7F57365B7F73A898F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249024   (438132) от 22.09.2018
+
+Joey DeFrancesco + The People - Project Freedom (2017) Mack Avenue [FLAC|Lossless|tracks + .cue] <Soul Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (Prelude) [0:41]
+02. Project Freedom [7:00]
+03. The Unifier [5:58]
+04. Better Than Yesterday [7:36](   Читать дальше...   )Жанр: Soul Jazz, Contemporary JazzПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D3B1F9AE4AAD01D308407C9AD696ED4FF7ECF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249028   (438030) от 22.09.2018
+
+Freddie Hubbard - The Body & The Soul (1963) 1996, GRP Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body and Soul [4:40]
+02. Carnival (Manha De Carnaval) [5:21]
+03. Chocolate Shake [3:59]
+04. Dedicated to you [3:25](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45501C29FB401154EBDCE4889EA56EA0D8B2969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249013   (438023) от 22.09.2018
 
 Arianna Neikrug - Changes (2018) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -658,93 +745,6 @@ Clark Terry & Chris Woods - Swiss Radio Days Jazz Series: Lucerne 1978, vol.8 /1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD46000C0F5B14FEBB9F2C3D6F041F5713A7225F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571094   (436113) от 20.08.2022
-
-Tete Montoliu - Montoliu Plays Tete (1971 - 1997) 2CD, 2006, DiscMedi Blau [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436113.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jo Vull Que Macariciis [1:56]
-02. Testimo Tant [10:11]
-03. Blues For Nuria [5:06](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 02:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4250ACFC44C9BDB8DC214983D443F73C3F1F54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249241   (436067) от 23.09.2018
-
-JF Girard - Clin d'oeil (2013) Les Disques Bros [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh rage et beau temps [5:14]
-02. Clin d'oeil [4:01]
-03. My Son Shines [5:06]
-04. Les vagues tranquilles [6:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFB278001789498A2A2B68A9415F97FA6E8AB9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571100   (436055) от 20.08.2022
-
-Lars Erstrand Trio & Quartet - The Complete Songs (2005) Opus 3 [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Nightingale Sang In Berkely Square [6:39]
-02. Let Me Call You Sweetheart [5:16]
-03. Life Can Be So Sweet [5:29]
-04. A Hunderd Years From Today [5:26](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B366C75C9314055CEC7FC73FE6A9AF0C48808AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

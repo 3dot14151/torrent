@@ -1,3 +1,119 @@
+###  Публикация: 255905   (1030342) от 19.02.2021
+
+Le Valedon - Sensuous Sax (1995, 1996) 2СD  [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goin' In Circles 	      (04:16)
+ 02. I Can't Make You Love Me (04:56)
+ 03. Colour My World 	      (02:57)
+ 04. Everytime You Go Away    (04:29)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF0CEBE30296C0841BD1FF79E5ED87054B7CC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162997   (1030334) от 19.02.2021
+
+Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cuesta Abajo (03:13)
+02.Silencio (02:42)
+03.Caminito (02:29)
+04.Tomo Y Obligo (02:18)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDCC909F3D16A485D0B6BC69B2374DC61299551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 305074   (1030332) от 19.02.2021
+
+The Gino Marinello Orchestra - Romantic Instrumental. Collection (1987-1998) [FLAC|Lossless|image + .cue, tracks] <Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+1987 - Latenight Melodies
+1989 - Romantique De La France(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 06:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908E500D0EB0F7ADC5960DE865B2456C9A93B591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622255   (1030276) от 28.03.2023
+
+Teufelstanz - In Omne Tempus (2015) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. XIMUUS
+03. Стареющий Вагант
+04. A-Kenavo(   Читать дальше...   )Жанр: Medieval Folk, BagpipeПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BC302CC2AB8C280CF0FF94C09516CA259319FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622381   (1030267) от 28.03.2023
 
 Dark Diva - 3 Albums (2021-2023) [MP3|320 Kbps] <Trip Hop, Folk>
@@ -626,123 +742,6 @@ Romantic Piano Music Masters - Спокойное фортепиано: Инст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAC142A5A72D415E89DC576727346FE65C417003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453672   (1026734) от 12.03.2021
-
-Marc Canham - I Care A Lot (2021) Original Motion Picture Soundtrack [FLAC|Lossless|tracks] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Just Doing My Job (03:43)
-02 - Liquidated (01:08)
-03 - Pull The Trigger (01:18)
-04 - Welcome Home (03:01)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6715DF7D5DAF15E9D589B2A776580068B634151F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850361   (1026713) от 12.03.2021
-
-Baulta - 4 Альбома + 1 EP (2011-2021) [MP3|320 кб/с] <Post-Rock, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026713.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011 - Deeply Sorry To Interrupt Your Megalomania
-2012 - That's My House You're Living In
-2013 - The Greatest Solos Of Mr. Bellini Vol.1 (EP)
-2014 - Any Fool Can Regret Yesterday(   Читать дальше...   )Жанр: Post-Rock, InstrumentalПродолжительность: 03:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB933EF93D097821F7EB766904FEDD3E881C5AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453725   (1026709) от 12.03.2021
-
-Blackmore's Night - Nature's Light (2021) [FLAC|24/48|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon December
-02. Four Winds
-03. Feather in the Wind
-04. Darker Shade of Black(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5976BD001EC0B363107C86EDD76CE9BC60C988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453745   (1026576) от 13.03.2021
-
-Empyrium - 7 Studio Albums (1996-2021) 7xCD [FLAC|Lossless|image + .cue] <Neofolk, Doom Metal>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая группа Empyrium образовалась в 1994 году. Первые два альбома группы представляли собой смесь фолка, дум и блэк-метала, за ними последовали два альбома акустического неофолка.
-После выхода альбома 2002 года "Weiland" группа решила прекратить запись: «Empyrium исследует природную мистику с 1994 года, и через 8 лет мы чувствуем, что движемся дальше (   Читать дальше...   )1996 - A Wintersunset
-1997 - Songs Of Moors And Misty Fields
-1999 - Where At Night The Wood Grouse Plays
-2002 - Weiland(   Читать дальше...   )Жанр: Neofolk, Doom MetalПродолжительность: 06:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA967EA77FD027B18D668AECF9C0350DC40E345
 ```
 
 https://mybot314.ru/tekegram_catalog/

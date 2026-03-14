@@ -1,3 +1,148 @@
+###  Публикация: 1807967   (10772) от 21.07.2025
+
+italo Brutalo - Second Horizon (2025) Radio Version [FLAC 24/48|Lossless|WEB-DL|tracks] <Italo Disco, Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Sight (Radio Version) [00:02:32]
+02. Memory Sync (Radio Version) [00:02:33]
+03. Digital Freedom (Radio Version) [00:02:26]
+04. Surveillance State (Radio Version) [00:02:34](   Читать дальше...   )Жанр: Italo Disco, SynthpopПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F500D3966BED1D0469E475D8B7CEECEDCAC41593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807960   (10762) от 21.07.2025
+
+Dave Stewart - Dave Does Dylan (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simple Twist Of Fate
+02. I Want You
+03. Emotionally Yours
+04. Forever Young(   Читать дальше...   )Жанр: Pop rock, Soft RockПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972AAE86A4BB9E482E54FAEB9ECF2C1660A1834D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808112   (10591) от 23.07.2025
+
+Alice Cooper - The Revenge of Alice Cooper (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Mamba (4:58)
+02. Wild Ones (4:18)
+03. Up All Night (3:07)
+04. Kill the Flies (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF2CCD731EB392F6E39958FC41C8051100CBB2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808402   (10492) от 24.07.2025
+
+Black Sabbath - The Eternal Idol (2025 Remaster) (1987) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shining (2025 Remaster) (5:57)
+02. Ancient Warrior (2025 Remaster) (5:33)
+03. Hard Life to Love (2025 Remaster) (4:59)
+04. Glory Ride (2025 Remaster) (4:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657E4C180150496A400AD06349702FE2DE50EAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808337   (10463) от 24.07.2025
+
+Ozzy Osbourne - Mama I'm Coming Home (1991) (EP) [WavPack|32/192|image + .cue|Vinyl-Rip] <Heavy Metal,Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10463.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Mama I'm Coming Home
+A2 - Don't Blame Me
+B1 - I Don't Know
+B2 - Crazy TrainЖанр: Heavy Metal, Hard RockПродолжительность: 00:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEE261A8FD5E9582F196EB53920B48627D4E821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808441   (10457) от 24.07.2025
 
 Giorgio Moroder - Extended Versions 2025 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance, Disco>
@@ -601,151 +746,6 @@ Motograter — американская метал-группа, образов�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E8FAE7F357EBC168F1DF10B2D5702C6196A815F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626818   (8517) от 30.09.2025
-
-Livin' Blues - Blue Breeze (1976) 1978 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8517.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Shylina
-A2 Back Stage
-A3 Midnight Blues
-A4 Pisces(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C00C372180E6E3E917A5629FBEF4DFACD0D3B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811675   (8441) от 11.08.2025
-
-Leah - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Leah - (Leah McHenry) Лиа МакГенри, известная под псевдонимом Лиа — канадская исполнительница хэви-метала. Её иногда называют "Enya of heavy metal", поскольку она исполняет музыку, сочетающую симфонический и кельтский метал с фолком и этнической музыкой.2012 - Of Earth & Angels
-2013 - Otherworld (EP)
-2015 - Kings & Queens
-2018 - The Quest(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 06:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB48463A61754806ED3BA12E4EA291E05A389F95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811666   (8411) от 11.08.2025
-
-Pawlo-X Sax - Smooth Jazz Summer 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Smooth jazz to relax (6:18)
-02.  Contemporary Smooth jazz love (5:52)
-03.  Smooth Jazzy Sax For Lovers (4:55)
-04.  Smooth Jazz Passion (5:10)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D8E70AD7B157A4D3A8C75ACC177DD404A5558B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811664   (8401) от 11.08.2025
-
-Mr. Saxxy and the Funkaholix - The Dusty Tape Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Old Guitar (4:23)
-02.  Night’s Got a Rhythm (4:32)
-03.  Thankful for the Rain (5:04)
-04.  Groove in the Grays (3:25)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz Rock, Vocal JazzПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E507B1B0EC4660E3CD396DB267BE1D553CF004DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811592   (8383) от 11.08.2025
-
-My Dying Bride - A Map Of All Our Failures (2012)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Doom, Death Metal, Gothic, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8383.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Kneel Till Doomsday
-A2 - The Poorest Waltz
-B1 - A Tapestry Scorned
-B2 - Like A Perpetual Funeral(   Читать дальше...   )Жанр: Doom, Death Metal, Gothic, Doom MetalПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F593CED2C587AC2E79F1DA820378594F985D6CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

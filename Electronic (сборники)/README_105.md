@@ -1,3 +1,32 @@
+###  Публикация: 1230267   (617298) от 11.06.2018
+
+VA - Theme Of The Streets (2018) [MP3|320 Kbps] <Chillout, Lounge, LO-Fi>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617298.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michaele - Shaman
+002. Oliver Scheffner - Dreams of Sunbeams
+003. Francesco Digilio - The Autumn Nights
+004. DJ Deviance - Vanilla Sky(   Читать дальше...   )Жанр: Chillout, Lounge, LO-FiПродолжительность: 07:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFEF183F9B8EBF56CD8ED3EE5405EE3E83D360A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036930   (617280) от 22.07.2016
 
 VA - Kamasutra Erotic Chillout Vol.3: Sounds of Love (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -731,35 +760,6 @@ VA - Amnezia Super Hits 04 (2016) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A17BEF902BC79E045232E22DCD46F6CD12389763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037767   (612126) от 25.07.2016
-
-VA - 50 Perfect Summer Party Hits (2016) [MP3|263~320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Aoki & Boehm Feat. WALK THE MOON -  Back 2 U (Extended Mix) 6:36
-02. John Dahlback Ft. Bullysongs -  Walking With Shadows (Happy Love Remix) 3:28
-03. Pulsedriver -  I Want Your Soul (Sal De Sol 2015 Mix) 4:06
-04. Arnold Palmer -  Hey There Delilah (Luca Debonaire Edit) 3:40(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CD193A86238BDA1A84F518FC837ABFCF7F0F24
 ```
 
 https://mybot314.ru/tekegram_catalog/

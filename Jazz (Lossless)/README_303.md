@@ -1,3 +1,90 @@
+###  Публикация: 1689992   (124218) от 05.01.2024
+
+Romantic Moods Academy, Night's Music Zone - Bed Erotica: Sexy Background Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Check It Out (4:29)
+02. Kinda Sexy (4:19)
+03. Sexy Lounge Suit (3:40)
+04. Seductive Sexcapade (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E364C747B986661ED0D45C2EEA493B2CF90BD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689980   (124173) от 05.01.2024
+
+Wild Bill Davison - The Commodore Master Takes (1943 - 1946) 1997, Commodore [APE|Lossless|image + .cue] <Dixieland, New Orleans Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's A-Plenty [4:19]
+02. Panama [4:26]
+03. Riverboat Shuffle [2:54]
+04. Muskrat Ramble [3:15](   Читать дальше...   )Жанр: Dixieland, New Orleans Jazz, SwingПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230F31EEA653B6C7E057635B89412BB6317D51C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690255   (124050) от 06.01.2024
+
+Isoo Fukui Quartet Featuring Kazuhiro Matsuishi - Sunrise / Sunset (1976) 2013, Think! Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7th Avenue Sunrise [8:51]
+02. Happy Walk [6:42]
+03. Lady T [5:55]
+04. Don't Explain [7:15](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B379B7C48E5B266BF2E4B22DA0352ACDF861FD79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690433   (123919) от 07.01.2024
 
 Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
@@ -658,93 +745,6 @@ VA - The Quiet Storm Soothing Easy Listening Warm Tunes (2024) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DE62C4679E4C77E21C8CAEAD88249EFB24E1E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692883   (122000) от 19.01.2024
-
-Ruth Price - Sings With Johnny Smith (1956) 2002, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Nobody's Baby [1:59]
-02. It Never Entered My Mind [3:56]
-03. Wonderful Guy [2:13]
-04. Until the Real Thing Comes Along [3:40](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF1FC663C12192A474611A63A76F74E25F0F671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693045   (121993) от 19.01.2024
-
-Sonny Stitt - My Mother's Eyes (1963) 2011, EMI Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Special [3:41]
-02. My Mother's Eye [5:27]
-03. Stitt in Time [4:14]
-04. Blue Skies [4:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26361D6AB4F9D3B82B35C5FC920CE1C9272D7A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693048   (121990) от 19.01.2024
-
-Ruby Braff - And His New England Songhounds, Vol. 2 (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indian Summer [5:51]
-02. Thousand Islands [5:13]
-03. What's New [7:28]
-04. Heartaches [2:25](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D85528FCA7C53C248D88A3E94AC04C1EA9EDD8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

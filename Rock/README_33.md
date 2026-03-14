@@ -1,3 +1,61 @@
+###  Публикация: 1538324   (663275) от 20.03.2022
+
+VA - Soft Rock Love (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Big Love (2018 Remaster) (3:42)
+02. Chris Rea - Your Warm and Tender Love (4:33)
+03. Coldplay - Everglow (4:42)
+04. Pretenders - I'll Stand By You (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4D4836396B12B27F4FAA5C19930E5C0E2BCBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138278   (663169) от 30.05.2017
+
+Georgia Satellites - Georgia Satellites (1986) [MP3|320 Kbps] <Southern Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663169.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Keep Your Hands To Yourself
+2. Railroad Steel
+3. Battleship Chains
+4. Red Light(   Читать дальше...   )Жанр: Southern Rock, Rock & RollПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9B21A1B534C379FB78C1F97C402F31CFAF29A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225061   (662883) от 13.05.2018
 
 Richie Sambora (Ричи Самбора) - Ballad Of Youth (1991) Single, Mercury [MP3|320 Kbps] <Rock, Blues Rock, Ambient>
@@ -690,65 +748,6 @@ Sting - Digitally Remastered (1998) Promo CD [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2C2226B21B635683FEC5D343DEADF20B973C898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140440   (655976) от 06.06.2017
-
-Phoenician - Last Orders (2017) [MP3|320 Kbps] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mobius (05:27)
-02. Beacon (04:11)
-03. Cast Out (02:50)
-04. The Beetroot Parade (05:24)(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26B44D07F77FFF24F6095F4975BE036F9885DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963798   (654649) от 28.03.2022
-
-Fool's Garden (Fools Garden) - 12 Альбомов, 22 Сингла (1993-2021) [MP3|320 кб/с] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая поп-рок-группа, основанная в 1991 году. Исполняет песни исключительно на английском языке. Наиболее известная песня — «Lemon Tree», долгое время занимала места в мировых чартах.  После смены состава в 2003 году группа стала называться Fools Garden (без апострофа).
-Все участники группы являются большими поклонниками знаменитых поп-рок и рок-групп, таких, как (   Читать дальше...   )1993 - Once In A Blue Moon
-1995 - Dish Of The Day
-1997 - Go And Ask Peggy For The Principal Thing
-2000 - For Sale(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 16:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D631FB7C173FC07D9FEAE66F9DA25E7F675197F
 ```
 
 https://mybot314.ru/tekegram_catalog/

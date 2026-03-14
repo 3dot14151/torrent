@@ -1,23 +1,25 @@
-###  Публикация: 482698   (99527) от 13.04.2012
+###  Публикация: 1764590   (101548) от 07.12.2024
 
-[Wallpapers] Нравятся! Сотня № 010 (1920х1080-2560х1600)
+Saltatio Mortis - Finsterwacht (Feuer und Erz Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Metal, Power Metal, Heavy Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99527.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Хотя на вкус и цвет...
+01 - Finsterwacht (Orchester Version) [6:39]
+02 - Feuer und Erz (Orchester Version) [3:58]
+03 - Oh treues Herz (Orchester Version) [2:42]
+04 - Darkenguard [8:32](   Читать дальше...   )Жанр: Metal, Power Metal, Heavy MetalПродолжительность: 01:32:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D83EDECA6BD2659155C82F16AEF887BD44B90740
+magnet:?xt=urn:btih:2EE91695D81468CDC0170E690F5468DAE2DD773B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,26 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482688   (99526) от 13.04.2012
+###  Публикация: 1764448   (101547) от 07.12.2024
 
-[Wallpapers] Нравятся! Сотня № 006 (1920х1080-2560х1600)
+Seekae - The Worry (2014) 10th Anniversary Edition, 2024, Future Classic [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Downtempo>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99526.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Хотя на вкус и цвет...
+01. Another (Cut Copy high on e-bow mix) [00:05:59]
+02. Test & Recognise (Flume Re-work) [00:05:03]
+03. The Worry (1tbsp Remix) [00:03:48]Жанр: IDM, Experimental, DowntempoПродолжительность: 2 CD, 00:59:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC83D258A09B16D568EC2EE2E378FA8851AFAB98
+magnet:?xt=urn:btih:2FD2EE7B32EF80C8C530E21B877636647D30C4CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,26 +55,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482687   (99524) от 13.04.2012
+###  Публикация: 1764593   (101546) от 07.12.2024
 
-[Wallpapers] Нравятся! Сотня № 005 (1920х1080-2560х1600)
+Своя игра (07.12.2024) WEBRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99524.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Хотя на вкус и цвет...
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:41:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:349EFDFBF4C8F7907E5A8E37A8F62B6D3C90EBA5
+magnet:?xt=urn:btih:F3DEB8260179EBFC7BA4D5B400B68FAEF1DFF100
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,27 +81,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482300   (99522) от 13.04.2012
+###  Публикация: 1764582   (101545) от 07.12.2024
 
-Шофер мисс Дэйзи / Driving Miss Daisy (1989) DVDRip
+Тест-драйв JAECOO J7 X7 2024 — Минтранс (07.12.2024) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99522.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Атланте, в богатом квартале, живет пожилая дама — мисс Дэйзи. Ей уже трудно водить машину самой, и сын присылает к ней шофера — чернокожего Хоука Колберна.
-
-Вскоре новый водитель становится ближайшим другом и советчиком своей хозяйки, что вызывает волну возмущения у соседей, враждебно настроенных по отношению к чернокожим.Жанр: Драма, КомедияРежиссер: Брюс БересфордАктеры: Морган Фриман, Джессика Тэнди, Дэн Эйкройд, Пэтти ЛюПон, Эстер Ролли, Joann Havrilla, Уильям Холл мл., Элвин М. ШугарманПеревод: Многоголосый закадровыйПродолжительность: 01:41:44
+🔸 Юридические тонкости. Можно ли ездить на разбитой машине, пока не получены выплаты от страховой?
+🔸 Тест-драйв JAECOO J7 X7 2024. Все «плюсы» и «минусы» китайского автомобиля.
+🔸 Не едет. Правда ли, что роботизированная коробка передач ломается чаще, чем остальные?
+🔸 Полезно повторить. Для чего нужен ручной тормоз?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D817449654010F33EC0DD775A89E1F060CE73CA
+magnet:?xt=urn:btih:6ACB4D2582E30DF2FF09764363D216EC13803E4C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,25 +110,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482541   (99521) от 13.04.2012
+###  Публикация: 1764526   (101544) от 07.12.2024
 
-Журнал | Домой. Строительство и ремонт №13 [2012 апрель] [JPEG]
+Laufey - A Night At The Symphony: Hollywood Bowl (Live at the Hollywood Bowl) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 
->>Журналы
->>Домоводство (журналы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99521.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Специализированный рекламный журнал «ДОМОЙ. Строительство и Ремонт» – это полноцветный еженедельный журнал о строительных, отделочных материалах, мебели и интерьере.2012 апрельФормат: JPG
+01. Dreamer (Live at the Hollywood Bowl) [00:03:35]
+02. While You Were Sleeping (Live at the Hollywood Bowl) [00:02:55]
+03. Falling Behind (Live at the Hollywood Bowl) [00:02:51]
+04. Fragile (Live at the Hollywood Bowl) [00:04:03](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7C7E1CA48CB1309BDE9ACFCCCF225D6C45EB3C5
+magnet:?xt=urn:btih:B634893E8A465BCC0B5C2B9AD0BFA19B3297F973
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,27 +139,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482495   (99520) от 13.04.2012
+###  Публикация: 1764577   (101543) от 07.12.2024
 
-Slackel KDE-4.8.2 [x32 + x64] (2xDVD)
+India.Arie - Acoustic Soul (2001) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Funk / Soul>
 
->>Архив торрентов
->>Архив *Nix
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99520.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обновился Slackel – использующий последнюю стабильную версию рабочей среды KDE настольный дистрибутив и Live CD GNU/Linux на базе current-ветки Slackware и Salix OS. Редакция Slackel KDE 4.8.2 доступна в виде комплекта из 4-х ISO-образов: 32-bit и 64-bit установочных образов, а также 32-bit и 64-bit Live-образов, которые могут быть записаны на DVD или работать с USB-носителя.
-
-root password: live (standard user login: one / no password)
+01. Intro (0:50)
+02. Video (4:10)
+03. Promises (4:38)
+04. Brown Skin (4:56)(   Читать дальше...   )Жанр: Funk / SoulПродолжительность: 01:01:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8CD9F2B4D8BF953407E42FD87AFC7E00A5B61B1
+magnet:?xt=urn:btih:4007BCE983F5900EDF0B5200BD5BF28679905956
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -161,34 +168,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482646   (99518) от 13.04.2012
+###  Публикация: 1764401   (101542) от 07.12.2024
 
-Savage - Sons Of Malice (2012) [MP3|320 кб/с]<Heavy Metal>
+Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Stereo Montréal, Canada) (2024-12-05) [MP3|320 Kbps] <Trance, Tech House, Techno>
 
->>Архив торрентов
->>Архив Музыки
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99518.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Rage Within
-02. Black N Blue
-03. Sons Of Malice
-04. The Hanging Tree
-05. Monkey On My Back
-06. Junkyard Dogs
-07. Blow
-08. Waking The Dead
-09. Choose Revolution
-10. NOW(   Читать дальше...   )2012Жанр: Heavy MetalПродолжительность: 00:58:13
+Markus Schulz (Recorded Live from Stereo in Montreal - October 13 2024)
+01. Kolsch & Kevin de Vries - Masterplan
+02. Solardo - Riser
+03. Jerome Isma-Ae & Alastor - Timelapse(   Читать дальше...   )Жанр: Trance, Tech House, TechnoПродолжительность: 02:02:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56E158C00FD1E196CCF6C3AA8C7E276A80001692
+magnet:?xt=urn:btih:ED25DAFC0CC0A56A8A53A0050C9A5C9EB419BAFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,25 +197,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482596   (99515) от 13.04.2012
+###  Публикация: 1764542   (101541) от 07.12.2024
 
-[EN] Квартирантка / The Perfect Roommate (2011) HDTV
+Babbba - Witty affair (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, Swing>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99515.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эшли — студентка колледжа. Попав в аварию на незастрахованной машине, она решает взять квартирантку, чтобы хоть как-то сократить расходы на квартиру. Ей становится, приятная на вид Кэрри Ремингтон. Через некоторое время, Эшли замечает, что квартирантка начинает прилаживаться к ее отцу Ричарду Данфилду обеспеченному вдовцу. Тогда Эшли решает сделать то, что нужно было сделать с самого начала — поинтересоваться прошлым Кэрри…Жанр: ТриллерРежиссер: Кертис КроуфордАктеры: Боти Блисс, Эшли Леггат, Уильям Р. Моусес, Джон МакЛарен, Питер Дж. ГрэйПеревод: ОтсутствуетПродолжительность: 01:32:19
+01. Here comes the fun (2:40)
+02. A jazzy tale (2:37)
+03. A dream in black and white (2:52)
+04. An evening serenade (2:51)(   Читать дальше...   )Жанр: Smooth Jazz, SwingПродолжительность: 01:02:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94401366BA22D2D60265BF20EC8D4F8CA16A6725
+magnet:?xt=urn:btih:F83DA58451A1E7BD36B3B4882680097EB91EB5C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,29 +226,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482667   (99511) от 13.04.2012
+###  Публикация: 1764494   (101540) от 07.12.2024
 
-[Wallpapers] Nature Pictures №43
+Кавминводы: где поправить здоровье, зарядиться позитивом и что попробовать | «Поедем, поедим!» (07.12.2024) WEBRip [H.264/1080p]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99511.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №43
-Название: Nature Pictures №43
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Терренкур, детокс и гастроискушения — «Поедем, поедим!» в Кавминводах!
+Федерико Арнальди пройдет курс лечения в санатории, прочувствует, что такое местный терренкур, попробует стать настоящим джигитом, взберется на священную гору и... найдет невесту в Казацком подворье. А еще попробует все виды хачапури, приготовит овощные пирожные и утку с пшенной кашей и муссом (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96A16F3008A310789E23FBD07932839F0A41FE5E
+magnet:?xt=urn:btih:004D03269F7633F53C362CA6DBF7F20F1A5A57BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,25 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481920   (99510) от 13.04.2012
+###  Публикация: 1764595   (101539) от 07.12.2024
 
-Роднополисы 2 - Здорова мама (2011) TVRip
+Swallow The Sun - Shining (2024) [FLAC|Lossless|image + .cue] <Gothic, Doom Metal>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99510.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый клип от авторов "Роднополисов"Жанр: PopРежиссер: Константин ВоронАктеры: К. Ворон, Н. Белых и дрПродолжительность: 00:5:29
+01. Innocence Was Long Forgotten 04:20
+02. What I Have Become 04:07
+03. MelancHoly 03:38
+04. Under the Moon & Sun 06:09(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:49:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88EE6BE24FF1EA5F9B657BE4E3E066CED6719871
+magnet:?xt=urn:btih:D8551C2E2A6FD79D414D21CDEBF993A1BDEA31AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,27 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481950   (99509) от 13.04.2012
+###  Публикация: 1764614   (101538) от 07.12.2024
 
-[EN] Мера Веры / Measure of Faith (2011) DVDRip
+Seefeel - Squared Roots (2024) EP [FLAC|Lossless|Web-DL|tracks] <IDM, Ambient, Shoegaze>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Electronic
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99509.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Внешне у Фейт Донахью (Tiara Gathright) замечательная жизнь - хорошая работа в церкви, красивый и успешный муж, прекрасные друзья. Она даже и представить не могла какие сложности могут неожиданно возникнуть в жизни. Внезапно умирает ее любимая бабушка, а затем появляется неожиданный гость - надломленный и безработный брат. Два раздельно проживающих брата должны попытаться улучшить отношения между собой, очистив души от налета лжи и обмана, чтобы навсегда изменить свои жизни.
-
-Faith Donahue seems to have the picture perfect life: a great job in the church, a handsome, successful husband and wonderful friends. But Faith's world is about to unravel in ways she never imagined. After the sudden death of her beloved grandmother, Faith receives an unexpected guest - her broke and unemployed brother. The two estranged siblings must try and mend their troubled relationship forcing each to come to terms with deeper seeded secrets and lies that will change their lives forever.Жанр: ДрамаРежиссер: Джейсон ХьюиттАктеры: Ларк Вурхис, Гленн Пламмер, Тиара ГатрихтПеревод: ОтсутствуетПродолжительность: 01:23:16
+01. So Shall You Be (3:48)
+02. Tail Trails (3:09)
+03. As X Is Y (7:09)
+04. Touchless Tones (3:59)(   Читать дальше...   )Жанр: IDM, Ambient, ShoegazeПродолжительность: 00:26:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF242AFBCE560540BC0C02B2703C0DD461A18C7B
+magnet:?xt=urn:btih:4AEDA19EA9B49A589348682E1C2F1C9870D943CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,34 +311,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482352   (99508) от 13.04.2012
+###  Публикация: 1764550   (101537) от 07.12.2024
 
-VA - Русские Новинки Vol.44 from AGR (2012) [MP3|320 кб/с]<Pop>
+ZOYA - Eternity (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99508.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Наталья Могилевская - На Грани (Remix)
-02. K.Melody - Воспоминание
-03. Юрий Шатунов - А Лето Цвета
-04. Reality - Время Лечит
-05. Тимур Темиров - Веришь
-06. Music Hayk - Потоки Тока
-07. Karizma - On My Way (Russian Version)
-08. Тимур Timbigfamily & Лючана - Dance With Me
-09. Катя Чехова - Сердце Тебе В Ответ (Лёгкая Версия)
-10. Danila Rastv - Ну, Как Ты Там(   Читать дальше...   )2012Жанр: PopПродолжительность: 02:59:07
+01. ZOYA - Crystal Cove (Extended Mix) [05:30]
+02. Nourey & ZOYA - Freya (Extended Mix) [05:43]
+03. ZOYA - One (We'd Be Love) (Extended Mix) [05:02]
+04. ZOYA - Eternity (Extended Mix) [05:57](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:13:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C79563340A543B17A0E4E77893B371A408E8C422
+magnet:?xt=urn:btih:C1A97D479C9DDDFBDAF5634632372DA1337B25BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -341,29 +340,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482645   (99504) от 13.04.2012
+###  Публикация: 1764367   (101536) от 07.12.2024
 
-[Wallpapers] Wallpapers Mix 28 (1600x1200- 4000x3000)
+Jethro Tull - The Jethro Tull Christmas Album (Fresh Snow At Christmas) (2024 Remix) (2003) 2024, InsideOutMusic [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock, Folk Rock, Progressive Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99504.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Wallpapers Mix 28 (1600x1200- 4000x3000)
-Название: Wallpapers Mix 28 (1600x1200- 4000x3000)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200- 4000x3000
-Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
+01 - Birthday Card at Christmas (2024 Remix) [3:41]
+02 - Holly Herald (2024 Remix) [4:18]
+03 - A Christmas Song (2024 Remix) [2:48]
+04 - Another Christmas Song (2024 Remix) [3:33](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:02:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0FB221012A1154FC944B478BDCD258EE866A498
+magnet:?xt=urn:btih:CCAC9FBC4147EA644F0D35E48603A302ECB81B08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,57 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482662   (99503) от 13.04.2012
+###  Публикация: 1764576   (101535) от 07.12.2024
 
-[Wallpapers] Nature Pictures №42
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99503.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №42
-Название: Nature Pictures №42
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68733C105078C93190E042F5C8F1EE149FB2A280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482378   (99499) от 13.04.2012
-
-Корсар - Каменный ангел (Single) (2012) [MP3|320 кб/с]<Heavy Metal>
+6 страниц назад - Мой рок (2015) [MP3|320 Kbps] <Alternative>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99499.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101535.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Каменный ангел
-02. Он не отдаст тебя
-03. Его ли дом?2012Жанр: Heavy MetalПродолжительность: 00:18:42
+01. Мой Рок
+02. Шанс
+03. Художник Жизни
+04. Твои Маски(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:56:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:147BF3EC77A6919CF43C09767C77E26CB81D7E97
+magnet:?xt=urn:btih:E952F86B5A9403C4BA75127C91D91F2B5489C6C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,25 +398,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482524   (99497) от 13.04.2012
+###  Публикация: 1764533   (101534) от 07.12.2024
 
-[Wallpapers] Wallpapers Sexy Girls Pack (14.04.12)
+Джакомо Казанова | Мемуары (2007) [MP3, Владимир Рыбальченко]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99497.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101534.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Серия/Цикл: Архив мировой литературы.
+Джакомо Казанова (1725–1798) – известный итальянский авантюрист, путешественник и писатель.
+Сын эпикурейского века и преданной удовольствиям Венеции, он видел смысл жизни в наслаждении, и, быть может, сумел лучше остальных своих современников, стоявших на такой же точке зрения, осуществить эту программу. Всё, даже предрассудки (   Читать дальше...   )Жанр: Зарубежная литература, мемуарыПеревод: Александр Строев, Ирина СтафИздательство: АрМир (аудио)Продолжительность: 10:57:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72F2518D2D9C699B3DE007D5DE7EEBC170728050
+magnet:?xt=urn:btih:158E13EA3D1CDDCA830F75966AAB8498DF669A07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,34 +426,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482140   (99494) от 13.04.2012
+###  Публикация: 1764459   (101533) от 07.12.2024
 
-Exumer - Fire & Damnation (2012) [MP3|320 кб/с]<Speed / Thrash Metal>
+Marvin Gaye - Greatest Hits Live (1974) Remaster, 2024, Cult Legends [MP3|320 Kbps] <Soul, Funk, R&B>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99494.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fire & Damnation (03:16)
- 02. Vermin of the Sky (03:17)
- 03. The Weakest Limb (03:50)
- 04. New Morality (03:08)
- 05. Waking The Fire (03:13)
- 06. Fallen Saint (03:54)
- 07. Crushing Point (03:01)
- 08. Devil Chaser (02:42)
- 09. I Dare You (03:40)
- 10. Tribal Furies (03:28)2012Жанр: Speed / Thrash MetalПродолжительность: 00:33:33
+01 - What's Goin' On (Live) [00:04:15]
+02 - Let`s Get It On (Live) [00:04:32]
+03 - How Sweet It Is (Live) [00:02:48]
+04 - I`ll Be Doggone (Live) [00:01:11](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 00:42:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4920E535311EF50D74708E27BCF8EB2C94923973
+magnet:?xt=urn:btih:66C52C7C2C61D2B8E5DFB547D9D20E7488CBE2F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,25 +455,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482520   (99493) от 13.04.2012
+###  Публикация: 1764501   (101532) от 07.12.2024
 
-[Wallpapers] Super Girls Wallpapers (14.04.12)
+VA - Pretty Little Deep-House Friends, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99493.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101532.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Cataldo aka Sleeping Noize - On You (05:44)
+02. Ganga - Autumn (Dj Malte Of Real XS Mexican Club Mix) (09:21)
+03. David Hopperman - Mourouni (Extended Mix) (05:02)
+04. PM Project - The Wave (07:14)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:46:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7CD9705B2BB6DB270FAAD139B8B325300DA4101
+magnet:?xt=urn:btih:B5B9A96D51534909B896759D5DE827F4CD3703C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,26 +484,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482686   (99492) от 13.04.2012
+###  Публикация: 1764453   (101531) от 07.12.2024
 
-[Wallpapers] Нравятся! Сотня № 004 (1920х1080-2560х1600)
+Tori Amos - Diving Deep Live (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99492.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101531.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Хотя на вкус и цвет...
+01. God (Live 2024) [00:05:07]
+02. Ocean to Ocean (Live 2024) [00:09:28]
+03. Amber Waves (Live 2024) [00:05:07]
+04. Daisy Dead Petals (Live 2024) [00:03:50](   Читать дальше...   )Жанр: PopПродолжительность: 02:01:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42D31CF2F4925D5362D2B2D0B65F2A9A16818DA1
+magnet:?xt=urn:btih:9F46984BC6DF2F699E67C7D006E2B8A761A0CBB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,28 +513,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481843   (99491) от 13.04.2012
+###  Публикация: 1764477   (101530) от 07.12.2024
 
-Amongst The Deceit - Tribulations Of Man (2011) [MP3|320 кб/с]<Brutal Death>
+Scarred For Life - Scarred For Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99491.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Inceptum 1:26
- 02. Inferior Lives 4:08
- 03. Dark Science 4:33
- 04. Dawn Of The Martyr 4:41Жанр: Brutal DeathПродолжительность: 00:38:20
+01. Bad Mutha Fucka 03:53
+02. Hung Like Jesus 04:39
+03. Good Question 04:25
+04. 9 Times Out Of 10 03:34(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDD4F0C6BBE039F7786672B9365D7E775E5CFBE7
+magnet:?xt=urn:btih:AB1E8CC8BE6FB3A41DA8DD0674A9D4C8B260C3CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,28 +542,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480892   (99490) от 13.04.2012
+###  Публикация: 1764505   (101529) от 07.12.2024
 
-Trifixion - A Utopia For The Damned (2011) [MP3|~245 кб/с (V0)]<Brutal Technical Death>
+Живая еда с Сергеем Малозёмовым (07.12.2024) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99490.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Human Construct (Intro) (01:53)
- 02. Fucked In Gutteral Vortex (03:56)
- 03. Delta 9 Messiah (04:10)
- 04. In Nomine Patris (03:56)Жанр: Brutal Technical DeathПродолжительность: 00:47:13
+Домашняя паста и лапша — итальянская, китайская, узбекская и японская: правда ли сделанная своими руками лучше магазинной? Шеф-повар из Италии раскрыл секреты идеальной пасты и рассказал о тонкостях приготовления в комбайне и руками.
+  Действительно ли пальмовое масло опасно, что говорят о нем диетологи и правда ли, что в Россию привозят грязное техническое пальмовое (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72F2FB8ED4C0014EF8E33E529D47E0FCF30BD3CC
+magnet:?xt=urn:btih:CDA7CDC2F1FC17EE7CE8BBD8C22E4490E6C18DC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,33 +569,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481590   (99489) от 13.04.2012
+###  Публикация: 1764487   (101528) от 07.12.2024
 
-220v - Overcharged (2008) [FLAC|Lossless]<Psychedelic / Full-On>
+НХЛ 2023-2024. Питтсбург Пингвинз - Нью-Йорк Рейнджерс (06.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Архив торрентов
->>Архив Музыки
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99489.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 220v - Overcharged [08:17]
- 02. 220v - Friday [06:49]
- 03. 220v - Insane To The Brain [07:22]
- 04. 220v - Keeping The Music Real [08:10]
- 05. 220v - Swinguin Beat [07:54]
- 06. Eskimo - Every single sound (220V Remix) [07:54]
- 07. 220v - Kizuna [08:12]
- 08. 220v - The Future Shock [07:22]
- 09. 220v - Turn The Beat Back [06:44]2008Жанр: Psychedelic / Full-OnПродолжительность: 01:08:42
+10 октября 2024, четверг. 02:30 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 190 зрителей (97% при вместимости 18 673)
+Главный судья: Джейк Бренк (Детройт Лейк, США); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Дерек Нансен (Оттава, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:15:27
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C0309F63055A76E19AC722DF3546F863A6BA48F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,34 +596,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482164   (99488) от 13.04.2012
+###  Публикация: 1764482   (101527) от 07.12.2024
 
-VA - MAXI. Популярные новинки Раdio Плюс (2012) [MP3|256-320 kbps]<Pop | Dance>
+НХЛ 2023-2024. Вашингтон Кэпиталз - Торонто Мэйпл Лифс (06.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Архив торрентов
->>Архив Музыки
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99488.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bahh Tee - Я Наверное
-02. Frisco Disco ft. Ski - One Way Ticket (Original Club Mix)
-03. Lia Love feat. Chaddi - Down Down (Kriss Raize Radio Edit)
-04. T1One feat. U'Lee (44) - Всё Будет Как Прежде
-05. Макsим - Небо-самолёты
-06. A-VIA & Extasy Project - Мама-Любовь
-07. Katy Perry - Wide Awake
-08. Spencer & Hill feat. Ari - Surrender (Radio Edit)
-09. Людмила Соколова - Дарю Тебе Счастье
-10. Оксана Почепа - Стаи птиц (DJ Audiophil Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:16:14
+7 декабря 2024, суббота. 03:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 18 723 зрителя (92% при вместимости 20 270)
+Главный судья: Кори Сиврет (Милгров, Канада); Главный судья: Франсис Шаррон (Оттава, Канада); Линейный: Трент Кнорр (Пауэлл Ривер, Канада); Линейный: Трэвис Гаврилетц (Трэил, Канада)Телекомпания: TSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:53:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B73ACAADD045E4568220F6E9A18C07F96FA6423A
+magnet:?xt=urn:btih:90C0831C3FE25F709CBF06B2C13224857F8E8AC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,34 +623,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482758   (99486) от 13.04.2012
+###  Публикация: 1764473   (101526) от 07.12.2024
 
-VA - Trance Maniacs Party: Trancefer Wave #96 (13.04.2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
+Brazen Abbot - Bad Religion (1997) Remastered, 2024, Frontiers Records s.r.l. [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99486.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101526.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Solesystem presents Mel-O-Maniacs - A Little Big Planet (Basil O'Glue Remix)
-002. Santerna - Aquamarine
-003. Radion 6 - B U Tiful (Original Mix)
-004. Patric la Funk - Baltic (Original Mix)
-005. Ralphie B - Bullfrog (Original Mix)
-006. Veracocha - Carte Blanche (Dabruck & Klein Remix)
-007. Marcel Woods - Champagne Dreams (W&W Remix)
-008. Ummet Ozcan - Cocoon (Original Mix)
-009. Matt Bowdidge - Crossing North (Original Mix)
-010. Mark Burton - Delusion (Original Mix)(   Читать дальше...   )13.04.2012Жанр: Trance, Uplifting TranceПродолжительность: 03:36:53
+01. The Whole World Is Crazy [00:05:00]
+02. Nightmares [00:04:52]
+03. Two Of Kind [00:05:36]
+04. I Will Rise Again [00:05:02](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24D9BAB52FF711E9861F50BF0B9E5287973EE9D4
+magnet:?xt=urn:btih:962A7069B255BE2DDE5A79D97F71F3F6CE05D0BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -705,29 +652,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482682   (99483) от 13.04.2012
+###  Публикация: 1764462   (101525) от 07.12.2024
 
-[Wallpapers] HD Wallpapers №10
+The Old Dead Tree - Second Thoughts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99483.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101525.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers №10
-Название: HD Wallpapers №10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200/1680x1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Unpredictable (3:33)
+02. Don't Waste Your Time (3:41)
+03. The Lightest Straw (4:32)
+04. Better Off Dead (1:54)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:54:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C49978FCF3B11DFB99CA646FA9F2F098880C80D9
+magnet:?xt=urn:btih:27F241890893E970F2CEFAF77AEC45BA85F5338F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -735,29 +681,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481989   (99480) от 13.04.2012
+###  Публикация: 1764559   (101524) от 07.12.2024
 
-Jeff Hughell (ex-Brain Drill) - I Came To Hate [EP] (2009) [MP3|320 кб/с]<Technical Instrumental>
+John Hicks - John Hicks (1982) 2003, Evidence [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99480.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Came To Hate
- 02. Elbowed Back To Life
- 03. Fuck You All
- 04. Classicaly
- 05. Black Label Bongo Thrash2009Жанр: Technical InstrumentalПродолжительность: 00:18:42
+01. Pas de Trois (Dance for Three) [4:21]
+02. Steadfast [5:27]
+03. For John Chapman [5:52]
+04. Star-Crossed Lovers [5:24](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:498971FAC13080EF6ACEF2D0839969C2A376225C
+magnet:?xt=urn:btih:706F56ABA76895953C2B9873C62551CA9DCEBD7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764434   (101523) от 07.12.2024
+
+Пятеро на одного (07.12.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FAD619D9CA9CF722EC9D1A4A55F85A3AF9E75B
 ```
 
 https://mybot314.ru/tekegram_catalog/

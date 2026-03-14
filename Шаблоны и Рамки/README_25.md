@@ -1,3 +1,29 @@
+###  Публикация: 1074388   (337957) от 19.11.2016
+
+Шаблоны - GraphicRiver - Coffee Shop - Flyer Template [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coffee Shop - Flyer - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3579x2551 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7707845F2DAE54602F714984555C4D47ED20F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074494   (337860) от 19.11.2016
 
 Шаблоны - GraphicRiver - A4/ A5 Landscape Bifold Brochure Mockups V2 [PSD]
@@ -651,35 +677,6 @@ Watercolor unicorn magic collection - Этот набор высокого ка�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C59729450E07A8BCC760DBA7E29C917B659126EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258391   (318130) от 04.11.2018
-
-Шаблоны - Creative Market - I am Creator / Trilogy - 475210 [PSD, ATN]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор шаблонов для создания презентаций, брендинга, оформления тематических страниц в Интернете и социальных сетях.
-Доступно 3 ракурса:
-- сверху (363 предмета, 46 сцен);
-- фронтальный (253 предмета , 28 сцен);(   Читать дальше...   )Формат: PSD, ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CBB0D7910D57D6FE2A972B3C07F755A8F11F95
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1642047   (210528) от 25.06.2023
+
+VA - Music News vol.275 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210528.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lena Archis - Обещания (02:38)
+ 002. AKHTYAM - Koh Toh (02:15)
+ 003. Alina Eremia & Banger Tunes - Cine-i Focul, Cine-i Apa (Victor Stan & Andaro Remix) (04:02)
+ 004. Aloe Blacc feat. End Of The World - What Is Love (02:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342DC035F714D482B79BD65315A194268919BF53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641994   (210509) от 25.06.2023
 
 VA - Music News vol.274 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -714,35 +743,6 @@ VA - Remix NNM 5 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CF53C4225CAFBDB4E29BF7FEF1AFEBF65BD1791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650591   (207290) от 02.08.2023
-
-VA - Music News vol.286 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207290.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alpha Annette feat. Techno Bear - Просто Звёзды  (04:24)
- 002. 3-ий Январь - Тёмная Ночь (03:06)
- 003. 84 feat. Rekudo & LOOKBUFFALO - Мой Район (03:13)
- 004. 89ers feat. Michael Rivera & Nikolai - Fever (Ready To Flow) (02:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FECD7EF2E5F6DAB889570CADFC4469D5F8B4A15B
 ```
 
 https://mybot314.ru/tekegram_catalog/

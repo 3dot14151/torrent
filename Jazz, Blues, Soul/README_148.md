@@ -1,3 +1,177 @@
+###  Публикация: 1126756   (764480) от 19.04.2017
+
+Mike Morgan & The Crawl - Texas Man (2002) [MP3|320 Kbps] <Texas Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Texas Man (05:34)
+02. The Way You Left Me Girl (03:12)
+03. Wild About You (04:32)
+04. Guitar Rhumbo (02:59)(   Читать дальше...   )Жанр: Texas BluesПродолжительность: 00:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740C7298388933E5074D331E1609A92E097BB887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214636   (764147) от 22.03.2018
+
+Michael Musillami Trio - Zephyr (2015) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loops [09:40]
+02. Pacific School [09:48]
+03. Francesca's Flowers [04:30]
+04. Zephyr Cove (Bass Entrance) [02:35](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C1A550A75249C00AC3A54BC0E85996BE60DE7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214640   (764144) от 22.03.2018
+
+Janice Lakers - The Rainbow Lady (1985) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rainbow Lady [03:58]
+02. So Sorry, S'il Vous Plait [02:43]
+03. Body And Soul [06:26]
+04. In Your Own Sweet Way [03:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6C9A7D7A2D5715261967EDB42BD87568AE5292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214642   (764073) от 22.03.2018
+
+Samba Trio - Tristeza (1982) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tristeza [02:52]
+02. Amelia Emilia [06:37]
+03. Chick De Ipanema [03:16]
+04. O Pato [02:53](   Читать дальше...   )Жанр: Latin Jazz, Bossa NovaПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B6E50E3DDAAD1B74F9CAF502D4E22725AAB25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280059   (763726) от 01.02.2019
+
+Carl Saunders - Be Bop Big Band (2002) Sea Breeze Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Compilation [6:31]
+02. Love Dance [8:20]
+03. Emily [3:40]
+04. I'm All for You [8:37](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6CA28CC5A9D3813C7B3B90EAD9193AF558A598E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394188   (763722) от 05.07.2020
+
+Yoko Kanno & Seatbelts - Space Bio Charge (2009) CD Collection [FLAC|Lossless|image + .cue] <Electronic, Jazz, Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763722.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-1  Fly Up In The Air (Eco. Size)  2:54
+1-2  Tank! (T.V Stretch)  3:26
+1-3  荒野のヒース  6:34
+1-4  トルキア (Eco. Size)  5:35(   Читать дальше...   )Жанр: Electronic, Jazz, RockПродолжительность: 03:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB3C1901B36013854A425E490757A177DB15D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280056   (763705) от 01.02.2019
 
 Dick Haymes - My Heart Tells Me (1950-e - 1960-e) 1997, Memoir [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
@@ -571,180 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4440CDF6BF3008F765FC7DCA6572DB41F9681F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215019   (761927) от 24.03.2018
-
-Frank Socolow - Sounds By Socolow (1956) 1999, Toshiba [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Finegold [03:04]
-02. But Not For Me [03:14]
-03. Swing Low Sweet Socolow [02:58]
-04. How About You [03:59](   Читать дальше...   )Жанр: BopПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB7D78EE20CE043E4BAE1867995601280B5C731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214882   (761926) от 24.03.2018
-
-Bud Freeman - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Found A New Baby [02:44]
-02. Easy To Get [02:47]
-03. China Boy [02:41]
-04. The Eel [02:45](   Читать дальше...   )Жанр: SwingПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B3BB2445A15328F43717C30ACB205463DAF1AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215022   (761925) от 24.03.2018
-
-Phillip Johnston Transparent Quartet - The Needless Kiss (1998) Koch Jazz [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pipeline [03:03]
-02. Memory [11:07]
-03. Planetella Rock [04:27]
-04. The Heyday [05:19](   Читать дальше...   )Жанр: Avant-Garde Jazz, Modern CreativeПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3597C12E8A33A2DEF6B6B9DF552A3CA4B7E70C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215015   (761820) от 24.03.2018
-
-Batida - Batida (1983) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Samba, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ponteio [04:29]
-02. Pra Quem Quiser [04:03]
-03. Listen To The Land [00:40]
-04. Oceans Between Us [04:33](   Читать дальше...   )Жанр: Latin Jazz, Samba, Bossa NovaПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7E8653C0C74117FB3B9841EDC65ABA642653D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017260   (761332) от 17.05.2016
-
-Billy Higgins - The Soldier (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sugar And Spice [04:51]
- 02.Midnite Waltz [09:48]
- 03.Just In Time [05:46]
- 04.If You Could See Me Now [06:47](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AC7F93D7BD26CE4DB51945769ECF8967E5B460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017524   (761329) от 17.05.2016
-
-Tim Garland - One (2016) [FLAC|Lossless|tracks] <Contemporary Jazz, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761329.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sama'i for Peace (5:37)
-2. Bright New Year (7:05)
-3. The Eternal Greeting (6:00)
-4. Colours of Night (6:46)(   Читать дальше...   )Жанр: Contemporary Jazz, JazzПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9779DA8E5F95B405CC6CC4B1825F40719486E01A
 ```
 
 https://mybot314.ru/tekegram_catalog/

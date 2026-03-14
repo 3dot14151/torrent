@@ -1,188 +1,22 @@
-###  Публикация: 1798683   (66594) от 23.05.2025
+###  Публикация: 1790833   (67991) от 11.04.2025
 
-Skunk Anansie - The Painful Truth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - An Artist Is An Artist [3:12]
-02 - This Is Not Your Life [3:25]
-03 - Shame [4:07]
-04 - Lost and Found [4:16](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DEA183473D97B2E9F69F86BF42429DBF6FC9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798641   (66593) от 23.05.2025
-
-Эльвис Каримов | Привет, я Эльвис! Бизнес без фильтров (2025) [MP3, Эльвис Каримов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о том, как обычный парень шаг за шагом добивался своих целей и благодаря настойчивости в итоге пришел к построению компании – лидера рынка в сфере логопедии. История написана простым языком, в ней нет наставлений, но она мотивирует вас к действию и, возможно, поможет избежать некоторых ошибок. Книга не столько о бизнесе, сколько о жизни, о том, как важно следовать (   Читать дальше...   )Жанр: БизнесИздательство: Writer's WayПродолжительность: 07:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90C2F90301374D69C7B7DF6FAE83CA0AFE15092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798703   (66592) от 23.05.2025
-
-Энциклопедия Стамбула / Istanbul Ansiklopedisi (2025) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Несрин пытается разгадать загадку и доработать «Стамбульскую энциклопедию», написанную Решадом Экремом Кочу. Однажды в её дом приезжает Зехра — молодая девушка, которая приходится ей родственницей по материнской линии. Несрин помогает ей поступить в университет и знакомит с ритмом жизни большого города. Но далеко не все правила нового дома нравятся Зехре. (   Читать дальше...   )Производство: Турция / Tims & B ProductionsЖанр: драмаРежиссер: Selman NacarАктеры: Джанан Эргюдер, Хелин Кандемир, Каан Мирач Сезен, Незакет Эрден, Толга Текин, Эджем Сена Байыр, Ebrar Karabakan, Kerem Atasavun, Эрдем Шеноджак, Virgile Mangiavillano и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E24A512F57765791E7FDC9D4EAE47396495E889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798773   (66591) от 23.05.2025
-
-Lenny Kravitz - Let It Ride Remixes, Pt. 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let It Ride (HoneyLuv Remix) [3:32]
-02 - Let It Ride (DJ Ruckus & Nez Remix; Edit) [3:13]
-03 - Let It Ride (Notre Dame Remix; Edit) [4:10]
-04 - Let It Ride (Solardo Remix; Radio) [3:12](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12FEE7786874EC93847E486236546FEB85819E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798728   (66590) от 23.05.2025
-
-Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66590.jpg" />
-</div>
-
-
-###  Подробнее
-
-A. The Sword Woman (05:23)
-B. Voyage of the Sunchaser (05:33)Жанр: Epic Heavy, Doom MetalПродолжительность: 00:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CF38DEEC841A7DB49543DFD00A7CBBB67A7002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798679   (66589) от 23.05.2025
-
-VA - Ori Uplift - Uplifting Only Episode 641 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Fletcher & Ruslan Aschaulov & Juan Almiñana Obando – Unforgettable Memories (Intro Mix)
-02. Bryce Keuris X Henry Moe X Aylin – Between The Stars
-03. Tycoos & Daisy Lou – Darkness Into Light (Daniel Kandi Remix)
-04. Ahmed Romel – Cupertino (SoundLift Remix) (Orchestral Uplifting Classic)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E506F61049E010F7DE3D0903B28BFB0ADD5159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797344   (66588) от 24.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Coquette Bow Clipart [PNG]
+Растровый клипарт - Pattern Universe - Creative Fabrica - Rolled Paper Flowers Seamless Patterns [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66588.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с бантами.Формат: PNGРазрешение файлов: 4096 x 4096
+12 бесшовных узоров (орнаментов) в виде цветов.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68F401D14EDF57F39185AD11B70E884FDAEE9617
+magnet:?xt=urn:btih:60A120221AD0EC54BF784D6B86D395F919A619B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797179   (66587) от 24.05.2025
+###  Публикация: 1790869   (67990) от 11.04.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Hat Clipart [PNG]
+Растровый клипарт - Pattern Universe - Creative Fabrica - Boho Fall Cute Flowers Seamless Patterns [JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66587.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт с головными уборами.Формат: PNGРазрешение файлов: 4096 x 4096
+Бесшовные цветочные узоры.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8FC4E8BA289120A08905299BEC3F30EB58FD944
+magnet:?xt=urn:btih:D4E20DB2D43AD9AA154DA7F387CC26D06C83A367
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,28 +50,239 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798706   (66586) от 24.05.2025
+###  Публикация: 1790952   (67989) от 11.04.2025
 
-VA - Kings of Ibiza 2025 (Real Deep Touch Downs) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+Журнал | Родина №1 (январь 2025) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный исторический журнал "Родина" — это продолжение традиций научно-популярной исторической журналистики, заложенных создателями одноименного дореволюционного издания еще в 1879 году. Современная "Родина" выходит с января 1989 года и неизменно предоставляет читателю богатый просветительский материал.Жанр: Исторический научно-популярный журналИздательство: "Редакция "Российской газеты"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EC6AD478A866A72D42E73FD69D19B3598A7257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790975   (67988) от 11.04.2025
+
+Журнал | Родина №2 (февраль 2025) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный исторический журнал "Родина" — это продолжение традиций научно-популярной исторической журналистики, заложенных создателями одноименного дореволюционного издания еще в 1879 году. Современная "Родина" выходит с января 1989 года и неизменно предоставляет читателю богатый просветительский материал.Жанр: Исторический научно-популярный журналИздательство: "Редакция "Российской газеты"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C014D79A9F094B2250276C246991DCAA468A2CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790977   (67987) от 11.04.2025
+
+Журнал | Родина №3 (март 2025) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный исторический журнал "Родина" — это продолжение традиций научно-популярной исторической журналистики, заложенных создателями одноименного дореволюционного издания еще в 1879 году. Современная "Родина" выходит с января 1989 года и неизменно предоставляет читателю богатый просветительский материал.Жанр: Исторический научно-популярный журналИздательство: "Редакция "Российской газеты"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC21DD4A56F4FB244FED79852DE63CE925676305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790866   (67986) от 11.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Gold & Black Plaid Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67986.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 бесшовных узоров в золотую и черную клетку (созданы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671971AC067A5D5CF116462B705AA8CB7DB996E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790877   (67985) от 11.04.2025
+
+Текстуры - DizzyArtStudio - Creative Fabrica - Maroon Iridescent Leopard Print Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леопардовые текстуры.Формат: JPGРазрешение файлов: 3600 x 3601 - 3601 x 3601
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9C211DC013DF659429EDFAB4856403DBD5231C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790870   (67984) от 11.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Mexican Knitted Flowers Seamless Pattern [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67984.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 Бесшовных цветочных узоров - Мексиканский трикотаж.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A664FB15A1FCDAB659DDB4864BC2C555B7BE583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790858   (67983) от 11.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Black & Gold Art Deco Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чёрно-золотые узоры в стиле арт-деко.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE24D7E261071AF96D429B45F8086947074CED47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790814   (67982) от 11.04.2025
+
+The Man-Eating Tree - Night Verses (2025) [MP3|320 Kbps] <Atmospheric Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Night Verses [00:01:03]
+02 - Days under the Dark [00:07:40]
+03 - Seer [00:04:40]
+04 - These Traces [00:05:12](   Читать дальше...   )Жанр: Atmospheric Gothic MetalПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A3DE5286952E7675E745AF2CCDDBE357C4AE84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790689   (67981) от 11.04.2025
+
+Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [MP3|320 Kbps] <House, Electro House, Dance-pop>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66586.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kenhya - In the Ocean (Summer Dub Mix) (02:18)
-02. Calmabohain - Take Me Away (03:26)
-03. Lemongrass - Easy Rider (05:14)
-04. Mia Lemar - Drop by Drop (04:35)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:17:09
+01. New New New (Avicii Remix Edit) [00:03:06]
+02. Lala Song (Tocadisco Remix) [00:05:35]
+03. Love You No More (Chuckie Remix) [00:05:41]
+04. What A Wonderful World (Greg Cerrone Remix) [00:03:03](   Читать дальше...   )Жанр: House, Electro House, Dance-popПродолжительность: 00:51:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCAF04FC58E94420EEE45530E1C787184BBB9970
+magnet:?xt=urn:btih:7D5B9011DAE30460216681B69AF17FF02ED6669E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,25 +290,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797175   (66585) от 24.05.2025
+###  Публикация: 1790854   (67980) от 11.04.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Summer Vacation Clipart [PNG]
+Растровый клипарт - Pattern Universe - Creative Fabrica - Pink Scandinavian Flowers Digital Papers [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66585.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт на тему летнего отпуска.Формат: PNGРазрешение файлов: 4096 x 4096
+12 бесшовных узоров из цветов.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:851CCD2FF664E44691A03B61BB430CB1D84AE294
+magnet:?xt=urn:btih:B4D1612B489363B742149C9B663D5A63CE1D4650
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -271,25 +316,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797112   (66584) от 24.05.2025
+###  Публикация: 1790844   (67979) от 11.04.2025
 
-Паттерны - Free PSD Templates - Floral Patterns [PNG, AI, PSD, EPS]
+Растровый клипарт - sugamiart - Creative Fabrica - Free Valentine Glitter Digital Paper [JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66584.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цветочные узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 5766 x 5800 - 5834 x 5828
+Бесплатная цифровая бумага с розовым блеском на день Святого Валентина.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7C48FF099033107F3BFD961850000AEA56B9623
+magnet:?xt=urn:btih:89CEDE8FF0CA30E0EDEB1E9E8DCE98CA21C77040
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -297,27 +342,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797708   (66583) от 24.05.2025
+###  Публикация: 1790906   (67978) от 11.04.2025
 
-Текстуры - MiksKS - Experimental Textures [JPG]
+Magnolia Park - Vamp (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Metal, Metalcore, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pain [00:03:26]
+02. Shadow Talk [00:02:58]
+03. Cult [00:03:06]
+04. The Screams [00:03:13](   Читать дальше...   )Жанр: Alt. Metal, Metalcore, ElectronicПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D26E4627ACD39DCD0318EAFCC389CF204C3787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790845   (67977) от 11.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Tropical Leaves Seamless Patterns [JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66583.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные разнообразные текстуры.
-Разработчик: MiksKS
-Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 4096 x 4096
+12 бесшовных тропических узоров (орнаментов).Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC5E56B065AB957BFEA0E43214FD87123696AC71
+magnet:?xt=urn:btih:980FCC2AEBD3E4C6A9320096DA0005AF1B319E1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,54 +397,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797962   (66582) от 24.05.2025
+###  Публикация: 1790907   (67976) от 11.04.2025
 
-Фоны - Graphic Studio - Creative Fabrica - Abstract Hearts Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абстрактные фоны с сердечками.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C659EDFE5F6C2C8329EDB69C03E09126D586E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798709   (66581) от 24.05.2025
-
-VA - Amsterdam Classic Trance Festival (2025) [MP3|320 Kbps] <Trance>
+VA - Armin van Buuren - A State Of Trance 1220 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
 >>Electronic
->>Trance
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66581.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aleks Neptune - The Wolfs (06:53)
-02. Cryalta Generation - Airflow (07:39)
-03. Aleksey Litunov - The Time Has Gone (05:40)
-04. Andrey Gaydukov - Gentle Embraces (06:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:23
+01. Above & Beyond ft. Zoë Johnston - Quicksand (Don't Go)
+02. Mitiska & Midnite Amity & Mully - Say It
+03. Nora En Pure - Memories (Progressive Pick)
+04. AVIRA & Ennea ft. Rubicini - Ring Ring(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1231B5DA30DCE302F54920857EA4FA966C45DB8C
+magnet:?xt=urn:btih:FCFF8144651D2BB6FDE799F1D1BD6F04AFA929FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -380,25 +426,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797712   (66580) от 24.05.2025
+###  Публикация: 1790932   (67975) от 11.04.2025
 
-Фоны - Design Stocks - Iridescent Abstract Backgrounds [JPG, PNG]
+Nightwish - Human. :||: Nature. (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music
+02. Noise
+03. Shoemaker
+04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F40D7463340ACB4CC674DB740EFF55E5027CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790847   (67974) от 11.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Groovy Flowers Digital Papers [JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66580.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Абстрактные фоны в радужных тонах.Формат: JPG, PNGРазрешение файлов: 6000 x 4000
+12 бесшовных узоров (орнаментов) в виде цветов.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:098ED198565803D46EEA382D5B1E5E55BFDFC872
+magnet:?xt=urn:btih:B1B2A295CB050C6BC6FC5366117544613C84703B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,52 +481,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798951   (66579) от 24.05.2025
+###  Публикация: 1790853   (67973) от 11.04.2025
 
-Год девятнадцатый (1938) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66579.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе Иосифа Прута.
-Начало 1919 года. Над Астраханью нависла серьезная угроза: с воздуха наносит удары авиация англичан, флотилия интервентов приближается морем, Колчак и Деникин осаждают город с суши. По указанию нового руководителя обороны города группа коммунистов тайно пробирается в захваченный англичанами Баку, под видом нефтеторговцев закупает (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: боевик, приключения, экранизацияРежиссер: Илья ТраубергАктеры: Георгий Горбунов, Виталий Полицеймако, Андрей Апсолон, Владимир Гардин, Атамоглан Рзаев, Ханс Клеринг, Борис Кудряшов, Михаил Вольский, Александр Жуков, Николай КрючковСубтитры: отсутствуютПродолжительность: 01:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BD56EC01248206A59D3CFBD3F00AF87F5F254B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797115   (66578) от 24.05.2025
-
-Паттерны - Free PSD Templates - Hexagon Patterns [JPG, PNG, AI, PSD, EPS]
+Растровый клипарт - Pattern Universe - Creative Fabrica - Soft Pastel Flowers Digital Papers [JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66578.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные орнаменты с шестиугольниками в векторе и растре.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2084
+12 Бесшовных узоров из цветов.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5952B188AFA024327AE34F8076B1653889BD699
+magnet:?xt=urn:btih:766FC570E45834389A65581CFCE0506CE656B44E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +507,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798718   (66577) от 24.05.2025
+###  Публикация: 1790852   (67972) от 11.04.2025
 
-Kmfdm - Hau Ruck 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Industrial Rock, Electro-Industrial>
+Растровый клипарт - Pattern Universe - Creative Fabrica - Spring Floral Fruits Digital Papers [JPG]
 
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66577.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Free Your Hate 2025 [00:05:03]
-02. Hau Ruck 2025 [00:05:21]
-03. You'Re No Good 2025 [00:04:58]
-04. New American Century 2025 [00:04:50](   Читать дальше...   )Жанр: Progressive Rock, Industrial Rock, Electro-IndustrialПродолжительность: 00:50:48
+12 Бесшовных узоров из весенних цветов и фруктов (сгенерированных AI).Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4624937AF9650B732C516F2EF09780890C3D0CA7
+magnet:?xt=urn:btih:C06627087EBAB2F5D418D1AA5F278083F2166C6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,224 +533,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798165   (66576) от 24.05.2025
+###  Публикация: 1790939   (67971) от 11.04.2025
 
-Queens of the Stone Age - Queens of the Stone Age (1998) Remaster, 2024 Matador [FLAC|Lossless|tracks + .cue] <Stoner Rock, Alternative Rock>
+VA - ЖЖ Was Here [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marmion - Schoneberg (Marmion remix)
+02. X-Cabs - Neuro 99
+03. Silverblue - Do U Know
+04. Vincent De Moor - Flowtation(   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF6B69280155587F7E82DC863251097F6B8B085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790902   (67970) от 11.04.2025
+
+Manowar - Hail to England (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood Of My Enemy
+02. Each Dawn I Die
+03. Kill With Power
+04. Hail To England(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD689E523DCE48849A86356F3737C82E714E1BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790864   (67969) от 11.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Mixed Media Flowers Digital Paper [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67969.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 бесшовных узоров цветов (сгенерированных искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D889BF8E68F5AD83904BFE9BF4E4EF4DCEB7BCB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790859   (67968) от 11.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Summer Citrus Fruits Seamless Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67968.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 бесшовных узоров из летних цитрусовых фруктов (сгенерированных искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F942DB4479E5FEAE94AFC0FA8C9C5919938D9D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790851   (67967) от 11.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Vintage Beige Plaid Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67967.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 цифровых листов бумаги в винтажную бежевую клетку (созданы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE1B7B0E93D68C377EA9628758FB818521B472C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790990   (67966) от 11.04.2025
+
+Haven - Turn It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66576.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Regular John (4:38)
- 02. Avon (3:25)
- 03. If Only (3:23)
- 04. Walkin on the Sidewalks (5:02)(   Читать дальше...   )Жанр: Stoner Rock, Alternative RockПродолжительность: 01:00:09
+01. Ready to Rock (3:09)
+02. Over the Edge (5:11)
+03. Turn It Up (3:42)
+04. Rebel of the World (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DD24F9FCCF9D068D9FA412F421B9B22AA528F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798923   (66575) от 24.05.2025
-
-Фёдор Достоевский | Вечный муж (2022) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
-Повесть Фёдора Достоевского «Вечный муж», которую сам автор отнёс к жанру рассказа. Писатель изображает встречу обманутого (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 06:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE34FF7AF92DB75BDA08BF65365F310C1CAD0A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798860   (66574) от 24.05.2025
-
-Неподходящая работа для женщины / An Unsuitable Job for a Woman (1982) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённом романе П. Д. Джеймса 1972 года... Найдя своего босса мёртвым у него кабинете, Корделия Грей берёт на себя обязанности в его частном детективном агентстве. Когда вскоре помощница крупного бизнесмена поручает ей расследовать самоубийство его сына, она берётся за своё первое дело и оказывается втянутой в паутину тёмных семейных тайн...Производство: Великобритания / Boyd's Company, Carolina Bank, Goldcrest Films International, National Film Finance Corporation (NFFC)Жанр: драма, криминал, детективРежиссер: Кристофер ПетитАктеры: Билли Уайтлоу, Пол Фримен, Пиппа Гард, Доминик Гард, Элизабет Сприггс, Дэвид Хорович, Доун Арчибальд, Бернадетт ШортПеревод: авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23B0EDD5CA702AB222C899CE88B3A17A5822007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798937   (66573) от 24.05.2025
-
-Своя игра (24.05.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Даниил Нуриманов, Наталья Степурина, Дмитрий КармадоновЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF73A11C18E43E0DE92724B9E7A95839B1D744C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798959   (66572) от 24.05.2025
-
-Onslaught - Origins Of Aggression (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thermonuclear Devastation Of The Planet Earth (01:54)
- 02. Black Horse Of Famine (01:28)
- 03. Angels Of Death (02:41)
- 04. Power From Hell (04:50)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C8C80EADDA23520062C15A97A2391DD2CC3CFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798231   (66571) от 24.05.2025
-
-Mikio Masuda - Black Daffodils (1998) JVC [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Sentimental Mood [5:54]
-02. There Is No Greater Love [7:14]
-03. Improvisation #2 [4:43]
-04. Blue Monk [4:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4515F518D00F3FD4F5B0956B79C37D513BA6FF7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798912   (66570) от 24.05.2025
-
-Тест-драйв KNEWSTAR 001 — Минтранс (24.05.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66570.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Сдача прицепа для легкового автомобиля в аренду.
-🔸 Может ли суд признать арендодателя предпринимателем?
-🔸 Тест-драйв Knewstar 001: все плюсы и минусы.
-🔸 Лайфхак: как достать запасное колесо, если оно закреплено под днищем?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9292F639C3B8947BC978893EAC88BFA4C1C9B576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798088   (66569) от 24.05.2025
-
-Rosemary Clooney & The Count Basie Orchestra - At Long Last (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just in Time [2:54]
-02. Like Someone in Love [3:53]
-03. Willow Weep for Me [4:23]
-04. Lullaby of Broadway [3:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABF192302C0427CD56587DDCC9BF70B8F660559
+magnet:?xt=urn:btih:8AC4FB70EE011B3F701D6918C2F17C90CC4AEE87
 ```
 
 https://mybot314.ru/tekegram_catalog/

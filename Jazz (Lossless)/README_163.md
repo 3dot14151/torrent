@@ -1,3 +1,90 @@
+###  Публикация: 1315780   (508908) от 23.07.2019
+
+Mound City Blue Blowers - 1935 - 1936 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's The Reason (I'm Not Pleasin' You) [3:10]
+02. She's A Latin From Manhattan [3:04]
+03. You've Been Takin' Lessons [3:07]
+04. Indiana [2:49](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BD393D8EFF4654DFABDFB9BC4847328E1069EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932902   (508398) от 30.08.2015
+
+Blue Mitchell - Out Of The Blue (1958) /1991, Riverside/[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues On My Mind [09:10]
+02. It Could Happen To You [05:57]
+03. Boomerang [05:06]
+04. Sweet-Cakes [06:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F0288E2412E4853BA4C844B829AF926D1475B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932571   (508397) от 30.08.2015
+
+John Patton - That Certain Feeling (1968) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. String Bean [05:45]
+02. I Want To Go Home [08:39]
+03. Early A.M. [07:20]
+04. Dirty Fingers [06:20](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1067C0172D405DCEFFEE04A69663FC1566DC29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932735   (508396) от 30.08.2015
 
 Clark Terry with Thelonious Monk - In Orbit (1958) /1987, Riverside/[FLAC|tracks+.cue]<Bop, Mainstream Jazz>
@@ -658,93 +745,6 @@ Peter White - Smile (2014) [FLAC|Lossless]<Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F42F86C0EA4D0F4DA3503C2349E73B006966F05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316477   (505966) от 26.07.2019
-
-Eddie Higgins Quartet featuring Scott Hamilton - My Funny Valentine (2005) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'd Be So Nice To Come Home To [7:02]
-02. I'm A Fool To Want You [3:56]
-03. When Sunny Gets Blue [4:55]
-04. Alone Together [7:08](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B66A11A0AA6EFC56C1682ACC52491C663945E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181571   (505860) от 01.09.2015
-
-Shakti with John McLaughlin - 6 альбомов (1976 - 2001) [FLAC, APE, Lossless]<Jazz, Carnatic music, World fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_505860.jpg" />
-</div>
-
-
-###  Подробнее
-
-John McLaughlin - один из самых разносторонних и влиятельных гитаристов нашего времени, добившихся признания во всем мире. Джон Маклафлин - инновационный фьюжн-гитарист, получивший известность с начала 70-х, возглавлял незабвенный Mahavishnu Orchestra и на протяжении всех лет своей творческой карьеры сохранил репутацию феноменального и последовательно любознательного (   Читать дальше...   )1976 - Shakti with John McLaughlin
-1977 - A Handful of Beauty
-1977 - Natural Elements
-1999-John McLaughlin, Zakir Hussain, T.H.”Vikku”Vinayakram – Remember Shakti(2cd)(   Читать дальше...   )Жанр: Jazz,Carnatic music, World fusionПродолжительность: 06:51:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933592   (505503) от 02.09.2015
-
-Teddy Edwards Quartet - Good Gravy (1981) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Be Good [14:50]
-02. Oleo [05:54]
-03. Georgia [10:48]
-04. Good Gravy [09:04]Жанр: Hard Bop, West Coast JazzПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E21EA8AA312389277E7C383FB2516E02F5DE53
 ```
 
 https://mybot314.ru/tekegram_catalog/

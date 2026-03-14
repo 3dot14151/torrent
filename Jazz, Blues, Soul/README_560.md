@@ -1,3 +1,177 @@
+###  Публикация: 1796993   (66867) от 13.05.2025
+
+Brody Buster - Redemption (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Can You Hear Me (4:41)
+02.  Born to Be Bad (4:52)
+03.  Deadwood Shuffle (2:53)
+04.  Working for the Devil (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5BA8F0A04F7C27320A233627D40EA9AF3511D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797009   (66866) от 13.05.2025
+
+Noel Evans - AZTEC MOON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aztec Moon (4:34)
+02.  Carry Me (4:05)
+03.  Silver and Gold (4:25)
+04.  Sad and Lonely and Blue (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6404BF80D0D1782E7AC4FFE213E3F7034843FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796997   (66865) от 13.05.2025
+
+Dave Packham - The Wedding Dance (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  And I Love Her (5:50)
+02.  King and Queen (5:47)
+03.  Every Now and Then (5:31)
+04.  Make My Bed (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FFB738BAD32BCA394297674EBE2CDACC13D715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797001   (66864) от 13.05.2025
+
+JB & The Huggeli - The Blues Supadupa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aint It Good (4:24)
+02.  Blues In My Hometown (3:44)
+03.  My Comfy Chair (3:41)
+04.  Ole Fessor Lindgreen - Blues House Party ("The Big One") (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068AD1405D6C421C358FA939D6A5D7F943D994C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796996   (66862) от 13.05.2025
+
+Crystal Shawanda - Sing Pretty Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Preaching Blues (4:36)
+02.  Stop Funkin Me Around (3:48)
+03.  Would You Know Love (4:41)
+04.  I Gave up Everything for You, 'cept the Blues (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3F22A95223533CDE14786692D3F3979F8FA116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797007   (66860) от 13.05.2025
+
+MHMM - Do Not Disturb (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Don't Mind (4:22)
+02.  When The Blues Is Falling Down On Me (5:45)
+03.  The Bridge (4:46)
+04.  Because I'm Down (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3442A0BD11615C71A708DA5F22DD899ABDB45387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797015   (66859) от 13.05.2025
 
 Ruthie Foster - Mileage (Deluxe Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Mikio Masuda - Black Daffodils (1998) JVC [FLAC|Lossless|tracks + .cue] <Post-Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4515F518D00F3FD4F5B0956B79C37D513BA6FF7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798088   (66569) от 24.05.2025
-
-Rosemary Clooney & The Count Basie Orchestra - At Long Last (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just in Time [2:54]
-02. Like Someone in Love [3:53]
-03. Willow Weep for Me [4:23]
-04. Lullaby of Broadway [3:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABF192302C0427CD56587DDCC9BF70B8F660559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798228   (66568) от 24.05.2025
-
-Mikio Masuda - Smokin' Night (1988) JVC [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One for Lucia [5:31]
-02. Romantic Rain [5:59]
-03. Come Sunday [5:20]
-04. Mbalishu [5:28](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31901DA304F1AC4F30E433046590558390DD9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798087   (66549) от 24.05.2025
-
-Chris Connor - Warm Cool: The Atlantic Years (1956 - 1968) 2CD, 1999, 32 Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summertime [3:13]
-02. Lonely Town [4:21]
-03. I've Got a Crush on You [2:18]
-04. A Foggy Day [3:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F163B33D23CF30CF85D4D49A16D10C9F987A1489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799428   (66491) от 27.05.2025
-
-VA - Jazz House Instrumental Volume 4 (Jazzy Soulful Tracks And Instrumental Club Tunes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Acusmatic group - Secret Lovers (Suonho Motion Capture Mix) (7:08)
-02.  Duran Y Garcia - Night In Paris (5:51)
-03.  Jazz 2 More - Listen This (3:54)
-04.  Belladonna - My Mood (4:15)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 02:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C16678308FEA884D93B82CCB79878AD4AD035FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799431   (66490) от 27.05.2025
-
-VA - Jazz Kissa (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nina Simone - If I Should Lose You (3:59)
-02.  Ahmad Jamal - Perugia (3:56)
-03.  The Eddie Higgins Trio - Shelley's World (3:55)
-04.  Bud Powell Trio - Lullaby of Birdland (1:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD24FA4759EEBA35F37E5D4AA8A9322D7720984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799426   (66482) от 27.05.2025
-
-VA - GIMME THE FUNK_ 90's Funky Tracks (Funk Grooves & Funky House Tunes from the Nineties) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jestofunk - I'm Gonna Love You (Mc Turbo Sax) (4:22)
-02.  LTj - Gimme The Funk (4:21)
-03.  James Thompson - Don't Stop the Sax (7:14)
-04.  Black & Brown - Jurassik Funk (5:46)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 01:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B94FA30ADDFF46563CE15DF51E7F044E949CA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

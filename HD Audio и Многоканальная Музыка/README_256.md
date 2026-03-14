@@ -1,3 +1,148 @@
+###  Публикация: 1814265   (6246) от 23.08.2025
+
+Adegoke Steve Colson & Iqua Colson - Glow: Music for Trio... Add Voice (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Getting Comfortable (5:35)
+02.  Clouds on a Sunny Day  (4:17)
+03.  Truly  (6:45)
+04.  Midnight Samba (6:12)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD3AB34C3E1FBA6866AE823F74453DD681C3BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814267   (6245) от 23.08.2025
+
+Bob Forte - Quarter Till Midnight (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Layla (4:22)
+02.  Days Of Wine And Roses (4:45)
+03.  On Green Dolphin Street (3:38)
+04.  Nobody Knows You When You're Down And Out (2:45)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D6F27B86969C189EC1BB7856CB1AAFF95EBAD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814280   (6244) от 23.08.2025
+
+Greg Chako - Comfort Food (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Freddie the Freeloader (5:54)
+02.  Gentle Rain (6:34)
+03.  Gone With The Wind (7:36)
+04.  How Long Has This Been Going On? (6:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0072AD38954306536ACFB80A1FE94E64480A4A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814274   (6243) от 23.08.2025
+
+Felice Lionetti - True (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  True (3:57)
+02.  Clock (3:48)
+03.  Generazione x (3:50)
+04.  Dream (3:21)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470EB5BC217C3D7E4B79F03EC75357324424A243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814278   (6241) от 23.08.2025
+
+Geoff Mann, Herbie Mann - Underground (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Memphis Underground (6:14)
+02.  New Orleans (4:08)
+03.  Chain of Fools (8:55)
+04.  Hold On, I'm Comin (8:35)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36726B7B2A37BE5370E503849521AE3EADB76A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814287   (6239) от 23.08.2025
 
 Heidarlegur - Time Machine to Travel Back to Childhood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -600,151 +745,6 @@ The Who - Live At The Oval 1971 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:852349A3B142BBBB67C5F3BDA3D78E4F4B43B108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815342   (5319) от 29.08.2025
-
-Evocatus - Inevitable Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Into Everlasting Night (00:56)
- 02 - Serpent of Chaos (04:23)
- 03 - The River Styx (03:09)
- 04 - ...And Die in My Name (05:35)(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204E195516EF644DBA5095E9C13F1413FAAC12D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815330   (5318) от 29.08.2025
-
-Rory Block - Heavy On The Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi Heel Sneakers
-02. Walking The Back Streets
-03. What Kind Of Woman Is This
-04. Hold To His Hand(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476CDAAEC693BBA9458A8DA331EF250565F9C539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815338   (5317) от 29.08.2025
-
-Rising Steel - Legion Of The Grave (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Betrayer (04:31)
- 02 - King Of The Universe (03:58)
- 03 - Black Martin (05:28)
- 04 - Legion Of The Grave (03:34)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFDC78F57E11D384911DBDAEE38A4BFD00D3F7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815350   (5316) от 29.08.2025
-
-Dragonsfire - Rebirth of the Beast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - We Ride (04:36)
- 02 - Speak of War (04:10)
- 03 - Hungry Beast (2025 Version) (04:59)
- 04 - Preacher (04:28)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BEFDB2C4B0D72C925C47E4146D734F22592039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674198   (5233) от 30.08.2025
-
-Chuck Schuldiner (Death; Control Denied; Voodoocult; Naphobia) - Studio Albums (12 releases) (1987-1999) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чарльз Майкл «Чак» Шульдинер (Charles Michael «Chuck» Schuldiner; 13 мая 1967 года, Глен-Ков, штат Нью-Йорк, США — 13 декабря 2001 года, Олтамонт-Спрингс, Флорида, США) — американский музыкант, наиболее известный как основатель, гитарист, вокалист, автор песен дэт-метал-группы Death, созданной в 1983 году под названием Mantas. В 1996 году основал группу Control Denied. (   Читать дальше...   )1987 - Scream Bloody Gore
-1988 - Leprosy
-1990 - Spiritual Healing
-1991 - Human(   Читать дальше...   )Жанр: Death/Thrash MetalПродолжительность: 08:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF528BB3CC24792612A6287CD657FECFA3EF7E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

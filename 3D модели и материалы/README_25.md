@@ -1,3 +1,30 @@
+###  Публикация: 1334965   (290539) от 31.10.2019
+
+3DDD - Pro Models 1 July 2019 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 62 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DACFA75696FFECB1649434C8C075FDBB661593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263076   (289404) от 18.11.2018
 
 3D модели - ArtStation - Humvee Ambulance [MAX, FBX, OBJ]
@@ -649,32 +676,6 @@ KitBash3D - Mini Kit: Aristocracy [MAX, OBJ, FBX]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:980D4DB0763E81D2180E1148DA657D1D60035AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340405   (263835) от 23.11.2019
-
-Unreal Engine - Modular Subway Tunnels [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор модульных элементов, из которых вы можете создавать тоннели метро и заполнять подземные помещения! Этот набор содержит различные элементы туннелей, комнат, коридоров, а также их наполнение.Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A878ABAF5FFDDB8EA25D91D025B4B5E98587858C
 ```
 
 https://mybot314.ru/tekegram_catalog/

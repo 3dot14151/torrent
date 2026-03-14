@@ -1,3 +1,119 @@
+###  Публикация: 1690823   (123292) от 12.01.2024
+
+Teramaze - Her Halo (2015) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123292.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. An Ordinary Dream (Enla Momento)
+B1. To Love, A Tyrant
+B2. Her Halo
+C1. Out Of Subconscious(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B48CB57E962B8C02D52953822EB377A5348279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690687   (123278) от 12.01.2024
+
+Graveworm - Studio Albums (10 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Death/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Graveworm — итальянская дарк-метал-группа, образованная в 1993 году.1997/1998 - When Daylight's Gone & Underneath The Crescent Moon
+1999 - As The Angels Reach The Beauty
+2001 - Scourge Of Malice
+2003 - Engraved In BlackЖанр: Melodic Black/Death/Gothic MetalПродолжительность: 08:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85ADEDB81DB9292B0C30461F3BBB3935CD18747E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691212   (123249) от 12.01.2024
+
+Batushka - Litourgiya (2015) Reissue, 2018, Witching Hour Productions [FLAC|24/192|tracks|Vinyl-Rip] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123249.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ектения • I • Очищение
+A2 Ектения • II • Благословение
+A3 Ектения • III • Премудрость
+A4 Ектения • IV • Милость(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6D10BB09207C0A3E4BA1835AB8505F5FF42E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691146   (123243) от 12.01.2024
+
+Al-Namrood - 10 Years of Resistance (2018) [FLAC|24/192|tracks|Vinyl-Rip] <Black, Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123243.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Estorat Taghoot
+A2 Fe Al Diaji
+A3 Hayat Al Khlood
+A4 Al Jahliyah(   Читать дальше...   )Жанр: Black, Folk MetalПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADB02171C9E835554D51F1A404B83A1873CA82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690861   (123241) от 12.01.2024
 
 Teramaze - Are We Soldiers (2019) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Rock>
@@ -625,121 +741,6 @@ Nevermore — американская метал-группа из Сиэтла
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAE1A42BD7D81B818E2D436A1386A53649BBE001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695256   (120417) от 28.01.2024
-
-Rage Of Light - Studio Albums (4 releases) (2016-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic/Melodic Death/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rage Of Light - Melodic Death/Trance метал-группа из Швейцарии.2016 - Chasing A Reflection (EP)
-2019 - Imploder
-2021 - Redemption
-2023 - Opaque (EP)Жанр: Electronic/Melodic Death/Groove MetalПродолжительность: 02:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446E0DEBBC6D8173825DAB3B75670C59F6803B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695558   (120256) от 29.01.2024
-
-Still Remains - The Serpent (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Serpent
-02. The Wax Walls of an Empty Room
-03. Stay Captive
-04. Anemia in Your Sheets(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418ACE6BF65EEF9BB925C1254AAFAB010D346F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695859   (120133) от 30.01.2024
-
-Reign of Fury - Studio Albums (4 releases) (2011-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reign of Fury - мелодик-трэш-метал группа из Великобритании.2011 - Psycho Intentions
-2012 - World Detonation
-2015 - Death Be Thy Shepherd
-2019 - Exorcise RealityЖанр: Thrash MetalПродолжительность: 02:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8934EE90D1F6E22BD222517F5E5D8FF3AE53A89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550415   (119842) от 01.02.2024
-
-Avenged Sevenfold - Дискография (10 albums) (2001-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <NWOAHM, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avenged Sevenfold — американская метал-группа из Хантингтон-Бич, образованная в 1999 году.2001 - Sounding the Seventh Trumpet
-2003 - Waking the Fallen
-2005 - City of EvilЖанр: NWOAHM, Progressive MetalПродолжительность: 12:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F436D16D58B42632B7C4B0722617C550EE1214D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1303576   (572848) от 21.05.2019
+
+VA - Sweet Lounge Session Vol 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titron - Mali (Original Mix) 3:28
+02. Krystian Shek - Coming Back Soon (Original Mix) 3:20
+03. Xemplify - I Have A Dream (Original Mix) 5:49
+04. Monodeluxe - Steel Vibes (Original Mix) 4:21(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B045AB944594C5A78F02C6B6E92D5A2D8FB49D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554955   (572311) от 02.06.2022
+
+VA - Green Fields: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Sour - Frozen Swamp (05:17)
+02. Martin Hiska - Both Tides (06:28)
+03. Michael E - After The Storm (05:57)
+04. Peter Pearson - A Special Time (03:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289FBED6E1972443ADB16A4CA5B71E93A842560F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921891   (569876) от 28.07.2015
 
 VA - Cafe Ipanema (2011) [FLAC|tracks+.cue]<Downtempo, Bossa Nova>
@@ -692,61 +750,6 @@ Puremusic - Discography 11 Releases (2013-2017) Silk Sofa Music [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95D64DD877BB6CD672FCC8483D56A1E507FFD861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557691   (539167) от 16.06.2022
-
-VA - Vocal Lounge Gems: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ali Mohtashami & Ren Faye - Taste The Rain (04:08)
-02. Marga Sol - Hold Me (04:59)
-03. Jane Maximova - Novel (Lemongrass remix) (04:08)
-04. Beamy - Colours (05:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16199FEF785520E83169D90A3626A48F6B1E569D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311716   (538232) от 01.07.2019
-
-VA - Sweet Lounge Session Vol 4 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PNFA – RootsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7878BB94D53E81F8D142040220EDABD3645CD94
 ```
 
 https://mybot314.ru/tekegram_catalog/

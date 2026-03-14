@@ -1,3 +1,90 @@
+###  Публикация: 1459326   (1023248) от 01.04.2021
+
+VA - International Jazz Day: March Release (2021) [MP3|320 Kbps] <Jazz, Soul, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Вам замечательный сборник "International Jazz Day" из 130 чувственных произведений джаз музыки. Спокойная и очаровывающая музыка затронет струны души даже самого отъявленного скептика. Музыканты поют о любви, человеческих восприятиях и отношениях, а мелодии саксофона вызывают еще больше эмоций.001. Christian Howes - When Will The Blues Leave
+002. Fourplay - Max-O-Man
+003. Antti Lötjönen - Rowan
+004. Pilots On Dope - Eu E O Meu Amor(   Читать дальше...   )Жанр: Jazz, Soul, BluesПродолжительность: 10:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5300D630F4E47E8C22A5378B711DF527E8E9C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459458   (1023086) от 02.04.2021
+
+VA - Pop & Dance (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023086.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Travis Scott, HVME - Goosebumps (2:42)
+002. Joel Corry, MNEK - Head & Heart (2:46)
+003. Tony Junior, NIGHT MOVES, Lasse Meling - Unstoppable (3:21)
+004. The FifthGuys, Polina Grace - Seven Nation Army (2:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F80B88005305DD1D0325BE1333AB4EB3BF6698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459845   (1023003) от 03.04.2021
+
+VA - Landscape: Chill Ambient Music (2021) [MP3|320 Kbps] <Ambient, New Age, Chillout, Meditative>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ambient - это не просто музыка, это образ жизни, мышления и восприятия мира. Это самая многогранная музыка, самая непредсказуемая, самая зачаровывающая. Это музыка, которая настраивает человека на позитивный лад и несёт приятные эмоции.001. Weber & Weber - 4x Sample
+002. Ataxy - Air
+003. A Winged Victory - Nothing
+004. Fridrik Karlsson - Chillout Heaven(   Читать дальше...   )Жанр: Ambient, New Age, Chillout, MeditativeПродолжительность: 11:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593E70C6E8EB225586C6EB36B3B4B5DCA9DD044C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459841   (1022998) от 03.04.2021
 
 VA - Dread Lion Dub (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub, Ska>
@@ -658,93 +745,6 @@ VA - TOP 40 PromoDJ Апрель 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21EEB3CD011D41621C415FFCEE746058D92E5E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460754   (1022226) от 07.04.2021
-
-VA - 50 Disco Hits (2021) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Blue - You're a Woman (5:21)
-02. Amadeus Liszt - Win The Race (Radio Edit) (3:34)
-03. Eddy Huntington - U.S.S.R. (5:59)
-04. Paul McDouglas - Turbo-Geil (5:51)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6715D1B041DDEAB0BB10B60BD7030ED83BB22B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460057   (1022223) от 07.04.2021
-
-VA - Новинки с разных популярных MP3 сайтов, vol.106 (2021) [MP3|320 Kbps] <Club, Dance, Disco, Pop, Rap, RnB, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rus 
-001. 10AGE - Нету Интереса
-002. 104 feat. Miyagi, Скриптонит - Не Жаль
-003. Agunda, Тайпан - Мерцают Огни(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 06:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2624785F7D6FFD2BA71E9887D7344A75C3871640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460757   (1022206) от 07.04.2021
-
-VA - Наш Тик Ток (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Grey - Сложно (2:52)
-02. Моше Эд - Молодой и пьяный (2:16)
-03. FELIX - Лали 17 (2:18)
-04. Юля Годунова - Смотри как надо (2:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6290CF6317A790D8057C038721D7B6F3782EF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

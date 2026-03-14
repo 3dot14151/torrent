@@ -1,3 +1,32 @@
+###  Публикация: 1654051   (213705) от 18.08.2023
+
+Skinher - Heartstruck (2023) [MP3|320 Kbps] <Heavy Metalб Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are Next! (03:58)
+02. The Maniac is Back (05:42)
+03. Interstellar Love Hysteria (04:30)
+04. Night Cull (05:48)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7343983F09984A8315DF12294EC69E1C610D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654053   (213698) от 18.08.2023
 
 Vanta - Empire On Fire (2023) [MP3|320 Kbps] <Progressive, Heavy Metal>
@@ -715,35 +744,6 @@ Elegant Weapons - Horns for a Halo (2023) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B03740E19C0DA029DC3FD75D45277C16ED6928A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654280   (194113) от 20.08.2023
-
-Within Temptation - Bleed Out (2023) [MP3|320 Kbps] <Symphonic-Rock, Symphonic-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bleed Out (00:04:30)
-02 - Wireless (00:04:41)
-03 - Don't Pray For Me (00:03:41)
-04 - Shed My Skin (00:04:30)(   Читать дальше...   )Жанр: Symphonic-Rock, Symphonic-MetalПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05547A28B07B3CF44F44954832DC0223410E1268
 ```
 
 https://mybot314.ru/tekegram_catalog/

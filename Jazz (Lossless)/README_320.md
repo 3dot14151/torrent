@@ -1,3 +1,90 @@
+###  Публикация: 1718148   (111002) от 23.04.2024
+
+Bonnie Bowden - The Great American Songbook (2012) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indian Summer [3:24]
+02. I Hadn't Anyone Til You [3:34]
+03. I Gotta Right to Sing the Blues [4:38]
+04. Yesterdays [3:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931D1E26DF247D7C2C1E75C29A257D116DAC5599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718348   (110979) от 24.04.2024
+
+Chris Flory - City Life (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandria, VA [4:27]
+02. Besame Mucho [4:05]
+03. S'posin' [5:26]
+04. Tin Tin Por Tin Tin [4:09](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F3BDE6F5D56FA50B26393830E4A28611C7BC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718387   (110964) от 24.04.2024
+
+Blue Sun - Festival (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Prog Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Festival 2:48
+02. Katedralen 4:26
+03. Pa Fjeldet 3:22
+04. Kaere Irene 2:14(   Читать дальше...   )Жанр: Jazz-Rock, Prog RockПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B934B6C5CD1EFD6B5AC83045D3ADDDFF1D99494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718353   (110962) от 24.04.2024
 
 Walt Dickerson Quartet - To My Queen Revisited (1978) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -658,93 +745,6 @@ Instrumental Wedding Music Zone, Jazz Erotic Lounge Collective - Wedding Night E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD88DA7B84E1D3491784D3B3981876C887BB636D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719856   (110482) от 01.05.2024
-
-Dave Brubeck - Jazz Impressions Of Japan & Jazz Impressions Of New York (1960, 1964) 2001, Columbia [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokio Traffic [5:54]
-02. Rising Sun [4:43]
-03. Toki's Theme [2:11]
-04. Fujiyama [5:06](   Читать дальше...   )Жанр: CoolПродолжительность: 01:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3156B56DB19C689EB4AA1D8DFDBAE037A0BE874C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719852   (110478) от 01.05.2024
-
-Bobby Watson & Horizon - Horizon Reassembled (2004) Palmetto Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemoncello [7:13]
-02. Pere [7:51]
-03. The Love We Had Yesterday [5:53]
-04. Ginger Bread Boy [5:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AE5CD30C5F3062EC4611EB0D8A4F42083E0BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719616   (110476) от 01.05.2024
-
-Bobby Watson & Horizon - Post-Motown Bop (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Punjab of Java Po' [5:29]
-02. Big Girls [5:42]
-03. Falling in Love with Love [6:32]
-04. 7th Avenue [5:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5425FBE4D44D2DD6B8C864FE94CEEEBD04B51A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1455701   (1025492) от 20.03.2021
+
+VA - Neverending Sunrise (2021) [MP3|320 Kbps] <Progressive, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите поднять себе настроение? Это легко сделать с помощью любимой музыки! Мега-сборник, состоящий из 100 хитов зарубежных исполнителей, подарит Вам более десяти часов самой популярной музыки ушедшего зимнего сезона. Наслаждайтесь музыкой и окунитесь в тёплые воспоминания приятных моментов зимних каникул!001. Miss Monique - City Nights, City Lights
+002. Patrick Medina - Don't Try To Be A Copy
+003. Mino Safy - Vegvisir
+004. Fabio Massano - Vamous(   Читать дальше...   )Жанр: Progressive, Vocal HouseПродолжительность: 12:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8723578DC36643851515DDA971414D88C1BF1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455696   (1025490) от 20.03.2021
 
 VA - Glow Party: Trance Favorites (2021) [MP3|320 Kbps] <Trance, Uplifting, Progressive>
@@ -716,35 +745,6 @@ VA - Beatport Techno: Electro Sound Pack #268 (2021) [MP3|320 Kbps] <Techno, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67A8229787EA5D3BE5F8C70882C59C55F7CF10D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459328   (1023324) от 01.04.2021
-
-VA - Night Tropic Party: Clubbing Techno Mix (2021) [MP3|320 Kbps] <Club, Dance, Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техно охватывает большую аудиторию меломанов и какое-то время было довольно модным явлением. Но любое модное направление рано или поздно сменяется другим, и техно со временем все глубже уходит в андеграунд. Возможно, причина в том, что эту музыку затруднительно слушать дома — она предназначена для клубов, вечеринок и танцев.001. Jf Lee - Lago (Original Mix)
-002. Iva Dive - Bang Bang (Original Mix)
-003. Alonso Bierg - Natural Flow
-004. Human Robot - Cyberphysical Space(   Читать дальше...   )Жанр: Club, Dance, Techno, Tech HouseПродолжительность: 12:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C308AA1F70E17858BAE7D6865764FF21BD0781
 ```
 
 https://mybot314.ru/tekegram_catalog/

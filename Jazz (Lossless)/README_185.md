@@ -1,3 +1,90 @@
+###  Публикация: 945477   (433975) от 10.10.2015
+
+Odelia Dahan and the Yellow Submarine Ensemble - Solika (2008) [FLAC|tracks + .cue]<Nu-Jazz, World Music, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433975.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ay mansevo - excerpt - 0:28
+2. Ah sinyora novia (Kantiga de boda) - 7:18
+3. Bre Sarika - 6:53
+4. Si la mar era de leche - 5:15(   Читать дальше...   )Жанр: Nu-Jazz, World Music, FusionПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0767ACB9316DADA7D1CF67DF8A20903DA0CF8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410667   (433974) от 22.09.2020
+
+Louis Armstrong - The Great Jazz Collection (50-e - 60-e) 1995, Scana [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What a Wonderful World [2:15]
+02. Black and Blue [4:36]
+03. Struttin' with Some Barbecue [5:55]
+04. West End Blues [4:12](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F8AEA5E7438AB71FE746273A23088DBBA83F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410591   (433969) от 22.09.2020
+
+The Orchestra Of Mirrored Reflections - Frequency Jazz (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Noir Jazz, Ambient Jazz, Post Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaving Big Sigh Of City Behind... (7:20)
+02. ...Rowing Your Boat-on In The Myst (6:34)
+03. Lemon Tea For My Voodoo Doll (feat. Sergiy "AbsurdMaers" Yagoda) (5:48)
+04. Gravity Means Love (6:17)(   Читать дальше...   )Производство: Petroglyph Music - petroglyph308Жанр: Dark Jazz, Noir Jazz, Ambient Jazz, Post Jazz, Trip HopПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3907FCC083883A4D1543B89D3FF05279ACDB8C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249557   (433601) от 24.09.2018
 
 Kenny Dorham - Eight Classic Albums (1953 - 1960) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop>
@@ -660,93 +747,6 @@ Omar Sosa - A New Life (Solo Piano) (2003) [FLAC|image+.cue]<Afro-Cuban Jazz, La
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB1297041F69219AD008B04AF0BBEC7ED2E17036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945718   (431850) от 11.10.2015
-
-Omara Portuondo - Magia Negra The Beginning (2014) [FLAC|tracks|WEB-DL]<Vocal, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magia Negra
-02. No Puedo Ser Feliz
-03. Besame Mucho
-04. Noche Cubana(   Читать дальше...   )Жанр: Vocal, Latin JazzПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACD2F87AEC8B0C48E205E3769FA8C21F028AA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945715   (431848) от 11.10.2015
-
-Omar Sosa - Eggun (2013) [FLAC|Lossless]<World Fusion, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alejet
-02. El Alba
-03. Interludio I
-04. Alternativo Sketches(   Читать дальше...   )Жанр: World Fusion, Contemporary Jazz, Piano JazzПродолжительность: 01:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAED556C64AEC199CC65350DDA9B04F015C33E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571523   (431844) от 22.08.2022
-
-Angelo Debarre, Serge Camps, Frank Anastasio - Gypsy Guitars (1989) Hot Club Records [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues en Mineur [3:24]
-02. Chansons Hongroises [5:17]
-03. Cherokee [3:49]
-04. La Gitane [3:39](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297455738FCFAB689ECED733DB19337A3294EDB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1228961   (629849) от 04.06.2018
+
+VA - NRJ Summer Hits Only (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629849.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Tal - Mondial
+02. Aya Nakamura - Djadja
+03. Rudimental, Jess Glynne, Macklemore, Dan Caplen - These Days (Feat. Jess Glynne, Macklemore & Dan Caplen)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3107373CD3269321FB72CA6DB3326356D09902F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294476   (628376) от 08.04.2019
+
+Lou & Hollywood Bananas - Meet The Ska All Stars: Greatest Hits (1980) LP [MP3|320 Kbps] <Pop, Disco, Ska>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hong-Kong Ska (2:20)
+02. I Won't Never Let You Go (2:43)
+03. Ska-Baloo Cha (2:52)
+04. Skeilzat (4:07)(   Читать дальше...   )Жанр: Pop, Disco, SkaПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38256E09B5A8AEF24FC507AF2C3A8A5053D6CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294492   (628373) от 08.04.2019
 
 VA - Ballermann XXL (Die besten Mallorca Party Schlager Hits zum Opening 2019 im Mallorcastyle) (2019) [MP3|320 Kbps] <Pop>
@@ -703,64 +761,6 @@ VA - Heisse Ballerfrauen auf Mallorca Die Partyhits 2017 [MP3|320 Kbps] <Schlage
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4414320858767A6F335A74F2F9BBCD3F425608DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911599   (616429) от 23.06.2015
-
-Victor Manuelle - Que Suenen los Tambores (2015) [MP3|320 кб/с]<Latin, Salsa>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agua Bendita (4:00)
-02. No Queria Enganarte (4:32)
-03. Sal A Bailar (4:05)
-04. La Foto Que Falto (4:10)(   Читать дальше...   )Жанр: Latin, SalsaПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E203023C68023402DAE63A7B55A2E2A68F0C2893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146175   (616348) от 28.06.2017
-
-VA - Dancefloor Fuller (2017) [MP3|320 Kbps] <Schlager, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noel Terhorst – Traumpilot 03:27
-02. Wolfgang Lippert – Der Morgensong 03:21
-03. De Lancaster – Wir sind jung, wir sind frei 03:26
-04. Kaboom – Y.M.C.A. Reloaded (Extended) 04:31(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68DEFA6F353849A109A7E88B8993E0B55F351B31
 ```
 
 https://mybot314.ru/tekegram_catalog/

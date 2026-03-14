@@ -1,3 +1,177 @@
+###  Публикация: 845602   (309425) от 29.11.2014
+
+Miles Davis - Nefertiti (1988) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nefertiti [07:54]
+02. Fall [06:41]
+03. Hand Jive [08:59]
+04. Madness [07:34](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A661B93BC295110C3A51D71AD38207F7ED7CBEA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845601   (309419) от 29.11.2014
+
+Miles Davis - Ballads (1998) [FLAC|Lossless]<Jazz, Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Won't You Please Come Home [08:28]
+02. Once Upon a Summertime [03:27]
+03. I Fall In Love Too Easily [06:47]
+04. Song #2 [01:37](   Читать дальше...   )Жанр: Jazz, Cool, Mainstream JazzПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA1CB4B5EA8A8AA86CBA907614CD85FC95EE6B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077195   (309080) от 27.11.2016
+
+Alice Coltrane - Radha-Krsna Nama Sankirtana (1977) 2002, Warner Bros. Records [WavPack|Lossless|tracks + .cue] <Fusion Jazz, World jazz, Hindu Devotional,>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Govinda Jai Jai- 5:44
+02. Ganesha -2:42
+03. Prema Muditha -4:32
+04. Hare Krishna -5:53(   Читать дальше...   )Жанр: Fusion Jazz, World jazz, Hindu Devotional,Продолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0921D024B90D170268565247CDF8524D68D6FAA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422548   (308853) от 09.11.2020
+
+Sonny Rollins - The Best of Sonny Rollins: The Blue Note Years (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Decision [8:03]
+02. Poor Butterfly [6:08]
+03. Why Don't I [5:45]
+04. Misterioso [9:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E008F2A0C110E8179606BD048D9B70B6FD309E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422552   (308845) от 09.11.2020
+
+Sonny Rollins & Co. feat. Jim Hall - The Bridge: Complete 1962 Sessions (2013) Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without a Song [7:27]
+02. Where Are You? [5:09]
+03. John S. [7:42]
+04. The Bridge [5:59](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48291053F1D1F7DFB5436C412FCE54750E0C953A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422429   (308573) от 09.11.2020
+
+Susan Santos - No U Turn (2019) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Woman (03:10)
+02. Slow Down (03:53)
+03. Fool Me (04:40)
+04. Shakin' All Over (02:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59941C7A0B2D0CAA8855D5BB1CD6294F92FBEBB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422547   (308571) от 09.11.2020
 
 Diana Krall - This Dream Of You (2020) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -577,180 +751,6 @@ VA - Jazz Loves Disney 2. A Kind Of Magic (2017) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0870B9D0A46BA534B80FA43444EA9915CFA950DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729859   (307465) от 03.12.2013
-
-Buck 69 - No Medicine Like The Blues (2013) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Blues
-02. Ugly Teacher Blues
-03. Dead End Road
-04. No Medicine Like The Blues(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A2D12DD8A5EE4B7A6B6B09B13138C430FADF95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846096   (307224) от 30.11.2014
-
-Count Basie - Salle Pleyel, Apr. 17th, 1972 (Paris Jazz Concert) (2002) 2CD [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307224.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1. Basie Power
-2. Big Stuff
-3. Fun Time(   Читать дальше...   )Жанр: JazzПродолжительность: 02:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D5C5F0FE90F535B65119DCABABE03E5DDF249D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077316   (307176) от 28.11.2016
-
-Oddjob - Koyo (2004) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Their Song [4:39]
-02. Malmö - Lund [5:56]
-03. Man Machine [8:47]
-04. Titanic [4:10](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F5BAF41D0B740653570A18E4109E5FB691D458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077313   (307174) от 28.11.2016
-
-Oddjob - Oddjob (2002) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dwarf 'n' Tony [5:05]
-02. Sideburns [6:55]
-03. Lim [4:47]
-04. Bloodstream [4:57](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAA1F5BDCFD4C43518721898F63E8255932B070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077319   (307172) от 28.11.2016
-
-Oddjob - Folk (2015) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Folk #1 [7:39]
-02. Folk #2 [7:15]
-03. Folk #3 [6:12]
-04. Folk #4 [7:26](   Читать дальше...   )Жанр: Contemporary Jazz, Post-Bop, FusionПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7D03E2560510B489326E3B9AF9832FCA8F02A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077317   (307170) от 28.11.2016
-
-Oddjob - Luma (2006) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luma [5:46]
-02. Walk On Water [5:33]
-03. Bigfoot [2:42]
-04. Dariaa [7:15](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4737B5B9F958DEB214F18A5B49C676B0E9320AEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

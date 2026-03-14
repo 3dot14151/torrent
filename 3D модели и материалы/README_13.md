@@ -1,3 +1,29 @@
+###  Публикация: 1215021   (761362) от 24.03.2018
+
+3D модели - Daz 3D - UHD Leather - Shaders and Merchant Resource - 47753  [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761362.jpg" />
+</div>
+
+
+###  Подробнее
+
+UHD Leather - это набор текстур и шейдеров высокой четкости для Iray, которые можно использовать в качестве торгового ресурса для ваших собственных продуктов! Внутри вы найдете 4k 280 карт с черепичными изображениями (diffuse color, diffuse detail, specular, base normal and detail normal), которые используются для создания 112 отдельных кожаных пресетов. для DAZ (   Читать дальше...   )Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68FE9B3E10720139D9DFA3EC10FF1061A0EB5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215014   (761284) от 24.03.2018
 
 3D модели - Daz 3D - UHD Fuzzy Cloth - Shaders and Merchant Resource - 48369  [DUF]
@@ -661,34 +687,6 @@ Topcoat это совершенно новый  плагин от Greyscalegoril
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C55C103746EB2E36921C764881532D35F6D3301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022794   (726855) от 03.06.2016
-
-3D модели - Evermotion - Archmodels for Corona Vol. 1 [Corona|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник 3d моделей от Evermotion, адаптированных под Corona Renderer!
-
-В данный сборник вошли 100 моделей деревьев.Формат: Corona|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7A75C56F20688355FF3597BA5B87F27EC117F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

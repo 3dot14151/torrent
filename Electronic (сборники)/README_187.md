@@ -1,3 +1,32 @@
+###  Публикация: 1079232   (243225) от 04.12.2016
+
+VA - Top Hit Music Mission Charts (2016) [MP3|239~320 Kbps] <House, Funky,  Nu Disco, Tribal, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W&W - Bigfoot (GirlsLoveDJs & Praia Del Sol Remix) 4:10
+02. Gianpiero Xp & Coveri & Donati feat. Serena - Magisexual (Extended Mix) 4:48
+03. Da Buzz - Bring Back the Summer (Original Mix) 3:20
+04. Club Crave - Replay (Sub Phonix Remix) 5:36(   Читать дальше...   )Жанр: House, Funky,  Nu Disco, Tribal, Dance, ClubПродолжительность: 07:26:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1A495AEF05B7A697BFD4DCAC4BBB66469FE783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539375   (243200) от 27.03.2022
 
 VA - The Synthpop Disco (2022) [MP3|320 Kbps] <Synthpop, Electronic, Electro Pop>
@@ -716,35 +745,6 @@ VA - Beatport Electro House: Sound Pack #295 (2021) [MP3|320 Kbps] <Club, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D75EC0C36CE686BBD4B149248D015729E92629EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476702   (239200) от 12.06.2021
-
-VA - Beatport Funky House: Sound Pack #296 (2021) [MP3|320 Kbps] <Funky, Disco House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239200.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Audio Jacker - Love Ballad
-002. Sao & Misudj - Funky Trip
-003. Lee Cox - Back On The Boogie
-004. Horse Meat Disco - Love If You Need It(   Читать дальше...   )Жанр: Funky, Disco House, Nu DiscoПродолжительность: 09:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27AF5FA3B312C3FA6F97610F9CB5096DE422226F
 ```
 
 https://mybot314.ru/tekegram_catalog/

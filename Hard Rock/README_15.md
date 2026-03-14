@@ -1,3 +1,32 @@
+###  Публикация: 914191   (598563) от 02.07.2015
+
+Truk - Truk Tracks (1971) Remastered 2008 [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Woman
+02. Got To Find A Reason
+03. Pretty Lady
+04. Winter's Coming On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3AB5FABFE7E349C9C82DFB4A53BFDC4481184B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526418   (597074) от 24.07.2012
 
 Heart - Greatest Hits (1985-1995) (2000) [MP3|320 кб/с]<Hard Rock / Rock>
@@ -733,35 +762,6 @@ Europe - The Final Countdown 30th Anniversary Show (2017) Live At The Roundhouse
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94E871CB60DDCDA29CC6B4A6CBA35D807477445A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555732   (567493) от 05.06.2022
-
-The Black Moods - Into the Night (2022) [MP3|320 Kbps] <Alt.Rock, Hard Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Youth Is Wasted On The Young [00:03:32]
-02. Hollywood [00:04:23]
-03. Saturday Night [00:03:45]
-04. She Gets Out [00:04:36](   Читать дальше...   )Жанр: Alt.Rock, Hard Rock, Indie RockПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D6C8B5CB285969C6C4DDDCB402F8D10D1DC969
 ```
 
 https://mybot314.ru/tekegram_catalog/

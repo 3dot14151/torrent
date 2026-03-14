@@ -1,3 +1,29 @@
+###  Публикация: 1072495   (347149) от 15.11.2016
+
+Шаблоны - GraphicRiver - Picture Art Mockup [Vol 8] [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Picture Art Mockup - шаблон для презентации Ваших проектов.Формат: PSDРазрешение файлов: 3000x2250 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271FAC0545F8060D4A270FD27FD900BD2FD37677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072553   (347014) от 15.11.2016
 
 Шаблоны - GraphicRiver - Logo Mockup Pack. Craft and Cardboard Edition [PSD]
@@ -653,32 +679,6 @@ Nail Salon - шаблон для Вашего творчества.Формат:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55582A9557F4DAF5C5DB6B15A6AF0DC49AE8A997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074388   (337957) от 19.11.2016
-
-Шаблоны - GraphicRiver - Coffee Shop - Flyer Template [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coffee Shop - Flyer - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3579x2551 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7707845F2DAE54602F714984555C4D47ED20F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

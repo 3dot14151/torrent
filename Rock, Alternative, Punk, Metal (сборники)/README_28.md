@@ -1,3 +1,35 @@
+###  Публикация: 1244485   (479821) от 02.09.2018
+
+VA - 101 Hits - Keep On Running (5CD) (2018) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479821.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+
+01. Avicii - Wake Me Up
+02. Kungs Vs. Cookin' On 3 Burners - This Girl(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:16:45
+
+01. White Lies - To Lose My Life
+02. Orson - No Tomorrow(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F4D06C18E782517B46C791A2618112C58AD360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319736   (479335) от 14.08.2019
 
 VA - Purgatory: Metal Compilation (2019) [MP3|320 Kbps] <Metal>
@@ -722,35 +754,6 @@ VA - Rock And Flowers (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9987E71683AD760FD8CC81E8D2DDF4DACFFDABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408312   (458156) от 11.09.2020
-
-VA - Seventh Seal (2020) [MP3|320 Kbps] <Hard Rock, Ballad, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fairyland - The Hidden Kingdom Of Eloran
-02. Dream Evil - The End
-03. Primal Fear - Seven Seals
-04. Wisdom - Unholy Ghost(   Читать дальше...   )Жанр: Hard Rock, Ballad, MetalПродолжительность: 05:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169715AEA04F12ABCE568AF3B271C544A5F961FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1370663   (61205) от 31.03.2024
+
+Mop Mop - Kiss Of Kali (2009) [FLAC|Lossless|image + .cue] <Electronic, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Beat
+02. Locomotive
+03. The Lowered Flag
+04. Jazzdancer(   Читать дальше...   )Жанр: Electronic, JazzПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA032C292FF8CCCF782801A1B593B1BBF849AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370458   (61172) от 31.03.2024
+
+Mop Mop - Isle Of Magic (2013) [FLAC|Lossless|tracks + .cue] <Jazz, Latin, Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jua Kiss
+02. Let I Go
+03. Kamakumba
+04. Heritage(   Читать дальше...   )Жанр: Jazz, Latin, Funk / SoulПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6D35806A4F2D0B04F1CF48D624A6F89AC582EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287502   (60509) от 07.04.2024
+
+Jimmy Thackery - 25 Albums (1992 - 2016) 28 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Певец, поэт-песенник и гитарист-виртуоз Jimmy Thackery родился в Питсбурге 19 мая 1953 года. В Вашингтоне, округ Колумбия в средней школе, он играл в группе с братом Bonnie Raitt, David Raitt, с которым потом записали альбом That's It! (2000). Thackery выпускает альбомы почти ежегодно с начала своей сольной карьеры. Первую известность Jimmy принесла группа The Nighthawks, (   Читать дальше...   )Список альбомов:
+1992 Jimmy Thackery & The Drivers - Empty Arms Motel
+1993 Jimmy Thackery & John Mooney - Sideways In Paradise
+1994 Jimmy Thackery & The Drivers - Trouble ManЖанр: Modern Electric, Blues-RockПродолжительность: 27:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C5E9A9E3030CEE3D89C80E72CA971E56D43C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716332   (59613) от 15.04.2024
+
+John Haydock - Straight Line On A Curved Road (2024) [FLAC|Lossless|image + .cue] <Electric Blues, Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretty Blue Eyes
+02. Straight Line On A Curved Road
+03. Isle Of The Dead
+04. Lucy Don't Live Here Anymore(   Читать дальше...   )Жанр: Electric Blues, Rockin' BluesПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7EB808BB2CE0D103142599C394156445C4F5F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717937   (58864) от 22.04.2024
+
+V.A. - Bossa Nova Covers of Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Nu Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eve St. Jones - All Night Long (all Night)
+02. Sarah Menescal - Clocks
+03. Sarah Menescal - Always on My Mind
+04. Groove Da Praia - Digging Your Scene(   Читать дальше...   )Жанр: Bossa Nova, Nu Jazz, PopПродолжительность: 02:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F92CE7A82D9C6417E6521920BCB93BFB9DBABC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719418   (57925) от 01.05.2024
+
+Bobby Watson - Back Home In Kansas City (2022) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Home in Kansas City [4:33]
+02. Red Bank Heist [7:33]
+03. Our Love Remains [5:26]
+04. Bon Voyage [6:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A400E31DC3485BC4D0936EBB88B39991735111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719474   (57924) от 01.05.2024
 
 Judy Wexler - What I See (2013) Jazzed Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -568,180 +742,6 @@ Mildred Bailey - 1939 - 1940 (2002) Classics [FLAC|Lossless|tracks + .cue] <Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB5F47B18BE6E24AB79B45190854BA806A46EB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729140   (53625) от 11.06.2024
-
-Mildred Bailey - 1940 - 1942 (2002) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fools Rush In [3:21]
-02. From Another World [2:47]
-03. I'm Nobody's Baby [3:00]
-04. Give Me Time [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E6090E959408FD0FE0AA062C504CF5E3F053DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729438   (53623) от 11.06.2024
-
-Jack Walrath - Neohippus (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Village of the Darned [6:43]
-02. Watch Your Head [6:44]
-03. Fright Night [6:13]
-04. Annie Lee [5:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B3443C65B7BDF67957F333F955B42EEC4F464F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729142   (53618) от 11.06.2024
-
-Lee Ritenour - The Very Best Of Lee Ritenour (2003) GRP [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Bumpin' [4:28]
-02. Water to Drink (Agua de Beber) [5:07]
-03. Get Up, Stand Up [5:00]
-04. Harlequin [4:43](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04B15E8E4C70C7E1EB0C881B161594A9DA6847F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729436   (53617) от 11.06.2024
-
-Warren Wolf - Black Wolf (2009) M&I [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Day to Day [6:39]
-02. Maiden Voyage [5:27]
-03. The Wire [5:49]
-04. Chelsea Bridge [6:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66005A1BA343E879C779C303BB653228A2982F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729534   (53615) от 11.06.2024
-
-Toronzo Cannon - Shut Up & Play! (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Can’t Fix the World
-02 – I Hate Love
-03 – Him
-04 – Had to Go Through It to Get to It(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09741F0B9A04A8A11C27C95E0E5D28F91BC7448D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139377   (53327) от 14.06.2024
-
-Vladimir Tolkachev Jazz Orchestra (Владимир Толкачев) - General's Full-Dress Coat (Мундир Генерала) (2002) Ermatell Records [APE|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chattanooga Choo - Choo [03:21]
-02. The Game Is Over [07:02]
-03. Pure Emotion [03:08]
-04. Jump One O'Clock [04:29](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642DC561D78A2AA2F24F82746490AADE2E96CB02
 ```
 
 https://mybot314.ru/tekegram_catalog/

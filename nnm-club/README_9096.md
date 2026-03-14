@@ -1,22 +1,22 @@
-###  Публикация: 1222523   (682591) от 30.04.2018
+###  Публикация: 897482   (685241) от 13.05.2015
 
-Супермошенники / Supercon (2018) WEB-DL [H.264/720p-LQ] [EN/EN Sub]
+Corel PaintShop Pro X7 17.2.0.17e Special Edition RePack by -{A.L.E.X.}- [Multi/Ru]
 
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682591.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа вышедших в тираж телезвезд зарабатывает участием в конвентах. Но мириться с таким положением вещей им надоедает, и компания решает обокрасть властного телепродюсера.Производство: США,Momentum ProductionsЖанр: КомедияРежиссер: Зак НатсонАктеры: Мэгги Грэйс, Клэнси Браун, Райан Квантен, Джон Малкович, Майк Эппс, Расселл Питерс, Дэна Снайдер, Кэйли Флеминг, Джош Перри, Джефф Поуп...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, полные (full)Продолжительность: 01:39:50
+Увлеченные фотографией просто не могут не влюбиться в Corel PaintShop Pro X7. Программа имеет удобные инструменты для редактирования, упрощенное рабочее пространство и потрясающие эффекты профессионального уровня. Это приложение для редактирования фотографий поможет каждый раз получать именно такое изображение, какое вы хотите! Фотографии можно отретушировать за считанные секунды. Или можно использовать более детальные художественные возможности, создавая захватывающие дух композиции. А когда все готово, одним (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1253DF0801CB758ADBEEFEDA4E95EC7487A6403B
+magnet:?xt=urn:btih:CEA914CC52E97E93252B0A6801874D07CC9A4E50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535854   (682590) от 08.03.2022
+###  Публикация: 897607   (685240) от 13.05.2015
 
-Spirit Of The Forest - Kingdom Of Despair (2010) [FLAC|Lossless|image + .cue] <Black Metal>
+JPEGmini 1.9 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682590.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mystic Caves (5:06)
-02. Animosity (5:42)
-03. A Strange Forest (2:08)
-04. Echoesof Deepness (6:08)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:09:43
+JPEGmini – программа для сжатия размеров фотографий и картинок. Инструмент используется для уменьшения фотографий с целью размещения на интернет-ресурсах, отправке по электронной почте и для освобождения памяти на жестком диске или других носителях.
+
+Использует запатентованный метод рекомпрессии и способна радикально уменьшить размер картинок (вплоть до пятикратного уменьшения), сохраняя качество на уровне оригинала. Алгоритм JPEGmini имитирует человеческое зрительное восприятие, максимально сжимая фото путем (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 мая 2015Разработчик: ICVT Ltd.Поддерживаемая ОС: Mac OS X 10.7 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3921D0BAB65A2827D30576B872B7DDB0EAAF57D
+magnet:?xt=urn:btih:000C59896E47361CD04E8874748F0334985CAAF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029342   (682589) от 26.06.2016
+###  Публикация: 897529   (685238) от 13.05.2015
 
-Grand Slam - A New Dawn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+Adobe Flash Player 17.0.0.188 Final [3 в 1] RePack by D!akov [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682589.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Light Up The Sky
-02. Rock My World
-03. Face
-04. One Way To Heaven(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:10
+Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера для доставки динамичных приложений, контента и видеоматериалов на различные экраны и браузеры. Среда Flash Player оптимизирована для создания высокоэффективных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89EFF8CF23AB60A3A46BEB9A3BCE45452F438889
+magnet:?xt=urn:btih:8EE20E2BC76677E543383FF6EFC29C95AD11C817
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222713   (682588) от 30.04.2018
+###  Публикация: 896158   (685235) от 13.05.2015
 
-Владимир Скиба, Владимир Курбатов | Руководство по защите от внутренних угроз информационной безопасности (2008) [DJVU]
+Терон Дюмон | Сила концентрации (2015) [MP3]
 
->>Компьютерная литература
->>
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682588.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подробно изложена суть угроз внутренней IT-безопасности и существующие способы защиты от этих угроз. Приведено огромное количество примеров из практики борьбы с инсайдерами и утечками. Используя представленный в книге материал, читатель сможет на практике значительно минимизировать риски утечки конфиденциальной информации из своей организации, узнать требования к (   Читать дальше...   )Жанр: Компьютерная литература, безопасностьФормат: DJVU
+Все мы знаем, что для достижения любой выбранной цели, нам необходимо концентрироваться. Умение концентрироваться – это навык, обладающий наивысшей ценностью. Чтобы достичь успеха в чем угодно, вы должны быть способны концентрировать все свои мысли на той идее, над которой вы работаете. Но не теряйте силы духа, если пока вы не можете удерживать свое внимание на одной мысли достаточно долго. Очень немногие на это способны. Это может показаться довольно странным, но нам проще концентрироваться на чем-то неблагоприятном (   Читать дальше...   )Жанр: Практическая психологияПродолжительность: 04:15:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9871BE94D175D69FA55B10DB4C6C6803D5A923BA
+magnet:?xt=urn:btih:76DAADDC2B3E2B79A112073848B6E48BE6E41B0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +104,228 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535643   (682585) от 08.03.2022
+###  Публикация: 1135030   (685231) от 17.05.2017
 
-Vertigini - Микшер Русской кибернетики с Евгением Сваловым (4Mal) и Александром Киреевым (02.03) #253 (2022) [MP3|320 Kbps, V1|image + .cue, tracks] <Deep House, Nu Disco>
+Duke Ellington - Play 22 Original Big Band Hits (1946 - 1947) 1987, Hindsight Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train (Theme) [03:04]
+02. Crosstown [02:49]
+03. Passion Flower [03:34]
+04. Perdido [02:26](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB7DC8FF0414325F036D10B09FE713491C7B738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135026   (685230) от 17.05.2017
+
+Duke Ellington - Ellington '56 (1986) Charly [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East St. Louis Toodle-Oo [03:32]
+02. Creole Love Call [03:48]
+03. Stompy Jones [03:54]
+04. The Jeep Is Jumpin' [02:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD9098495D2E1A24EB0BB365141CEEC16801CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134983   (685229) от 17.05.2017
+
+Хоккей. Чемпионат мира 2017. Предварительный раунд. Группа A. 6-й тур. Россия – Латвия (15.05.2017) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685229.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 мая 2017, понедельник. 21:15 МСК
+81-й Чемпионат мира по хоккею с шайбой 2017. Предварительный раунд
+Группа A. 6-й тур
+Россия – Латвия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: Русскиe (Вшитые, отключаемые)Продолжительность: 01:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8543CB8BDEC89EA0ECBA500D6217ED10B31E7D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135046   (685228) от 17.05.2017
+
+Duke Ellington - Never-Before-Released Recordings (1965 - 1972) 1991, Limelight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Old Circus Train [07:29]
+02. Swamp Goo [04:41]
+03. Trombone Buster [03:17]
+04. Bourbon Street Jingling Jollies [03:54](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3285FFCC7A3B5DEB4AEF4A11EE9AEA9F5FC6472C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134997   (685227) от 17.05.2017
+
+Хоккей. Чемпионат мира 2017. Предварительный раунд. Группа A. 7-й тур. Россия – США (16.05.2017) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685227.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 мая 2017, вторник. 17:15 МСК
+81-й Чемпионат мира по хоккею с шайбой 2017. Предварительный раунд
+Группа A. 7-й тур
+Россия – США(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5BF026B4D18468994CF6FB11A18AEDAA1920ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135037   (685226) от 17.05.2017
+
+Duke Ellington - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beautiful Indians - Hiawatha [02:48]
+02. The Beautiful Indians - Minnehaha [03:01]
+03. It Shouldn't Happen to a Dream [03:07]
+04. Diminuendo in Blue [02:52](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F247B0AD15F6D57818B02ECFEAE6C8BFB09FC73E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134641   (685225) от 17.05.2017
+
+НАСА начинает криогенные испытания конструкции телескопа James Webb Space Telescope
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_685225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не так давно специалисты НАСА начали проведение заключительного испытания конструкции нового телескопа James Webb Space Telescope при криогенной температуре. Эти испытания проводятся в низкотемпературной камере Космического центра НАСА имени Джонсона, куда телескоп был доставлен из Центра космических полетов НАСА имени Годдарда. Сейчас телескоп уже находится в камере (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134923   (685224) от 17.05.2017
+
+Oil 10 - Links (2001) [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682585.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Vertigini - Микшер Русской кибернетики (02.03.2022) #253 (Continuous DJ Mix)
-02 Kosmo Kint, Kapote - Misbehave
-03 Crazy P - One True Light
-04 Ingram - D.J.'s Delight (Mark Knight & Michael Gray Remix)(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:00:01
+01. Strange Days (06:09)
+02. Solar Tides (07:29)
+03. Baby Boom (05:15)
+04. The Deep (06:22)(   Читать дальше...   )Жанр: Abstract, IDM, AmbientПродолжительность: 00:57:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A92EBAE62EFD05C9DDD2C075F87F1154FD0C269
+magnet:?xt=urn:btih:20A4FBEB0A74519A6719AFDA39C50BD26AFB9CE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,219 +333,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029527   (682584) от 26.06.2016
+###  Публикация: 1135039   (685223) от 17.05.2017
 
-Футбол. Чемпионат Европы 2016. 1/8 финала. Франция - Ирландия (26.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682584.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 июня 2016, воскресенье. 16:00 МСК
-1/8 финала
-
-Стадион: Стад де Люмьер (Лион, Франция) , 56 279 зрителей (95 % при вместимости 59 500)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Денис Казанский, Юрий Розанов)Продолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDC59B6769A0D27A963C7841E101A397FA80970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507826   (682583) от 08.06.2012
-
-Значит, война / This Means War [UNRATED] (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два секретных агента, которые к тому же и закадычные друзья, влюбляются в одну и ту же женщину, но ни один не желает уступить другому.Производство: Overbrook Entertainment / Robert Simonds Company, The / Robert Simonds ProductionsЖанр: Боевик, Мелодрама, КомедияРежиссер: МакДжиАктеры: Том Харди, Крис Пайн, Риз Уизерспун, Тиль Швайгер, Челси Хэндлер, Джон Пол Руттан, Эбигейл Спенсер, Анджела Бассетт, Розмари Харрис, Джордж ТулиатосПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9374564AD305D2336D12892700489ECFB12DB14D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221776   (682581) от 30.04.2018
-
-От заката до рассвета 3: Дочь палача / From Dusk Till Dawn 3: The Hangman's Daughter (1999) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такие отчаянные бандиты, как Джонни, рано или поздно оказываются на виселице. На этот раз Джонни повезло: в безумной перестрелке таинственный незнакомец спасает его от смерти, и он бежит, похитив дочь своего палача — Эсмеральду. Взбешенный и опозоренный, палач бросается в погоню. И когда возмездие было почти неизбежным, яростные противники оказываются перед лицом (   Читать дальше...   )Производство: США / Dimension Films, A Band Apart, Los Hooligans ProductionsЖанр: Боевик, УжасыРежиссер: П.Дж. ПешеАктеры: Марко Леонарди, Майкл Паркс, Темуэра Моррисон, Ребекка Гэйхарт, Ара Сели, Ленни Лофтин, Соня Брага, Орландо Джонс, Дэнни Трехо, Джордана СпироПеревод: Профессиональный (многоголосый закадровый), авторский (одноголосый закадровый)Субтитры: Русские, английскиеПродолжительность: 01:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3966DB77C9B79618372A0502BA3BEE6BCAD7150D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029323   (682580) от 26.06.2016
-
-VA - Goa Summer (2016) [MP3|320 кб/с] <Trance, Goa Trance, Psychedelic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vini Vici -  Veni Vidi Vici (Future Frequency Remix) 7:50
-02. VOEK -  Before (Neelix Well Done Remix) 8:15
-03. Liquid Soul & Zyce feat. Solar Kid -  We Come in Peace (Talpa Remix) 5:51
-04. XV Kilist & Rocco -  Who Would You Call (Bitmonx Remix) 7:40(   Читать дальше...   )Жанр: Trance, Goa Trance, PsychedelicПродолжительность: 05:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D848EB73A4F19DF0593D506AA69C7493344172B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 207506   (682579) от 26.06.2010
-
-Воронины (2010) SATRip (Сезон 4, серия 1-20 (61-80))
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: КомедияРежиссер: Александр ЖигалкинАктеры: Георгий (Егор) Дронов, Екатерина Волкова, Станислав Дужников, Борис Клюев, Анна ФроловцеваПродолжительность: 00^24^00 минуты серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507781   (682578) от 08.06.2012
-
-Хроника / Chronicle (2012) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три школьника получают супер способности после обнаружения упавшего метеорита. Скоро они попадут в водоворот событий, в котором откроются их темные стороны.Жанр: Фантастика, боевик, триллер, драмаРежиссер: Джошуа ТранкАктеры: Дэйн ДеХаан, Алекс Расселл, Майкл Б. Джордан, Майкл Келли, Эшли Хиншоу, Бо Петерсен, Анна Вуд, Руди Малкольм, Люк Тайлер, Кристал-Донна РобертсПеревод: ДублированныйЯзык субтитров: Русский, английский, арабский, болгарский, иврит, чешский, эстонский, португальский, исландский,  сербский, латышский, литовский, украинскийПродолжительность: 01:20:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222654   (682577) от 30.04.2018
-
-Sandii & The Sunsetz - Immigrants (1982) Reissue, 2006, YEN Records, GT Music [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams Of Immigrants
-02. Open Sesame
-03. Living On The Front Line
-04. The Mirrors Of Eyes(   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7D3D6196D2359C085F444238AF9BD4A787AD28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029426   (682576) от 26.06.2016
-
-Brother Sun Sister Moon - Liberty (2016) [MP3|320 кб/с] <Blues>
+Duke Ellington - The Jazz Collector Edition: Historic Recording (1989) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682576.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bentonia Blues (04:06)
-02. Ain't Got No Money (03:28)
-03. St Paul Woman (04:14)
-04. Old Negro Spiritual (03:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:24
+01. The Perfume Suite: Balcony Serenade/Strange Feeling/Dancers in Love/Coloratura [11:46]
+02. Take the 'A' Train [04:37]
+03. Black and Tan Fantasy [05:11]
+04. Perdido [03:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79E644FD5DEB84AA443DA7CEA9F5486DEFE8F16F
+magnet:?xt=urn:btih:18E09BB6010AB087439CD67E14012BED225C1328
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,25 +362,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222780   (682573) от 30.04.2018
+###  Публикация: 1135033   (685222) от 17.05.2017
 
-Tales of Terror 3: Estate of the Heart / Трепетные Истории 3: Поместье Сердце (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+Duke Ellington - The 1954 Los Angeles Concert (1988) GNP Crescendo Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Win Игры
->>Adventure/Quest (Casual)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682573.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Родовое поместье Сердце считается заброшенным с 1904 года, но ходят слухи, что в нем обитают призраки и все посетители исчезают бесследно. Профессор Артур Нолан, его дочь Марджи и ее друг Джесси отправляются в таинственный особняк. Профессор уверен, что это очередная мистификация, Джесси пытается доказать обратное. А Марджи хочет во всём разобраться сама. Отважитесь (   Читать дальше...   )Тип издания: UnofficialРазработчик: Deep ShadowsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+01. Smada [02:33]
+02. Black and Tan Fantasy [05:13]
+03. How High the Moon [05:10]
+04. Serious Serenade [03:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:55:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12D516F216E5CF0DA86EC06D7C03C0C70F268AF3
+magnet:?xt=urn:btih:FE6CA00206AF000384A5B6C8A7111D7EA277FB15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,28 +391,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029367   (682572) от 26.06.2016
+###  Публикация: 1135051   (685221) от 17.05.2017
 
-Футбол. Чемпионат Европы 2016. 1/8 финала. Хорватия - Португалия (25.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+Duke Ellington - 40 Great Jazz Performances (1990) 3CD, That's Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685221.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Take the 'A' Train [03:03]
+02. Do Nothing Till You Hear from Me [01:41]
+03. Everything Goes [04:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F484F492B92106CAB044C84578A5C7D35155EA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135058   (685220) от 17.05.2017
+
+Duke Ellington - The Essential Duke Ellington (1990) CBS Disques SA [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [02:58]
+02. Sophisticated Lady [03:01]
+03. Perdido [04:32]
+04. I Got It Bad and That Ain't Good [03:39](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769FF28FE400A0719129E54DACCE99BAC64509A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134988   (685219) от 17.05.2017
+
+Duke Ellington - The English Concert (1971) 1999, BGO Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Togo Brava-Brava Togo Suite: Part I & II [12:02]
+02. Togo Brava-Brava Togo Suite: Part III & IV [04:45]
+03. C-Jam Blues [04:42]
+04. Happy Reunion [04:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3550C72B222166B759C0C44E3ACBE123135278C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135042   (685218) от 17.05.2017
+
+Cookie 5.5.6 [Multi]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682572.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-25 июня 2016, суббота. 22:00 МСК
-1/8 финала
+Cookie  - Программа для полного удаления cookie-файлов, очистки кэшей и истории посещения веб-страниц в браузерах. Cookie поможет сохранить безопасность и приватность пользователя в сети.
 
-Стадион: Феликс Болар (Ланс, Франция) , 33 523 зрителя (81 % при вместимости 41 233)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Нобель Арустамян, Роман Трушечкин)Продолжительность: 02:33:40
+•  Безопасное удаление нежелательных данных, и спокойно отдыхать, зная, что внешние угрозы не могут восстановить личные данные.
+•  Устали от целевых объявлений, которые таинственным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17 мая 2017Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50BF63FFE58C4E19616EC0073C310F8B3ADB8265
+magnet:?xt=urn:btih:6B692E06DBF7D6C264219258B2978BF63035C018
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,26 +507,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221981   (682570) от 30.04.2018
+###  Публикация: 1134938   (685217) от 17.05.2017
 
-Подъем с глубины / Deep Rising (1998) WEB-DLRip [H.264/720p]
+VA - Chillout Stars (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682570.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Банда наемников отправляется на перехват океанского пассажирского лайнера с целью захвата драгоценностей и денег. Вооруженные до зубов, они рассчитывают на успех этой тщательно спланированной операции.
-Но боевая уверенность захватчиков сменяется ужасом перед небывалыми чудовищами, устроившими пир на корабле! У этих монстров здесь не было противников! И кровь тысяч (   Читать дальше...   )Производство: США, Канада / Calimari Productions, Cinergi Pictures Entertainment Inc., Hollywood PicturesЖанр: Фантастика, Боевик, УжасыРежиссер: Стивен СоммерсАктеры: Трит Уильямс (John Finnegan), Фамке Янссен (Trillian St. James), Энтони Хилд (Simon Canton), Кевин Дж. О’Коннор (Joey Pantucci), Уэс Стьюди (Hanover), Деррик О’Коннор (Captain Atherton)Перевод: Профессиональный (многоголосый, закадровый), профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: Русские, английскиеПродолжительность: 01:46:20
+01.  Monodeluxe - Watching You (Original Mix)  3:55
+02.  Ingo Herrmann - Amorph (Original Mix)  3:09
+03.  Ruhr Chill Factory - Urban Lounge Factor (Original Mix)  4:46
+04.  Peter Pearson - Lost In A Dream (Original Mix)  3:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5565318ECA0176ED9860C420061453F7B8FD2884
+magnet:?xt=urn:btih:EE0D9D61F8C52B4F7253080D68D6C3BCBF3D3DE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -439,27 +536,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029306   (682569) от 26.06.2016
+###  Публикация: 1134978   (685216) от 17.05.2017
 
-Eagles & Butterflies - Constellations EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+Hazel 4.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 мая 2017Разработчик: Noodlesoft, LLC.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5794E29846DCBFB7AD6710D9CA8D4E616522981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134943   (685215) от 17.05.2017
+
+VA - Total Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682569.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Comet (Original Mix) (06:18)
-02. Moon (Original Mix) (08:29)
-03. Sun (Original Mix) (09:34)Жанр: Deep House, Tech HouseПродолжительность: 00:24:21
+01.  Sealovers - Wild Huntress  4:33
+02.  Panamera Project - Pratty Night  3:55
+03.  Don Markus - I Don't Won't Illusion  5:10
+04.  Midtempo Lovers - Neutral Wonder  3:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EFD03D8DB87BC57D452F923F72087F74A769C9E
+magnet:?xt=urn:btih:46E18C01B1B708F81C2069DDBEBC4D212B3D4D95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,27 +591,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 213718   (682567) от 26.06.2010
+###  Публикация: 1134944   (685214) от 17.05.2017
 
-Джон Голсуорси | Сага о Форсайтах (1901-1933) [FB2]
+VA - Lunch Break Vol.1 (Chilling Dining Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>След.
->>Классическая поэзия и проза
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682567.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сага о Форсайтах — монументальная серия разноплановых произведений английского писателя Джона Голсуорси, описывает жизнь состоятельной семьи Форсайтов.
-Критика буржуазных семейных отношений перерастает здесь в обличение всего собственнического мира.
-Зародышем цикла стала новелла «Спасение Форсайта» (1901), за которой последовал роман «Собственник» (1906) - реалистичная (   Читать дальше...   )Жанр: Классическая прозаФормат: FB2
+01.  Kai French - Balearic Dreams (Original Mix)  3:05
+02.  Urban Phunk Society - Night Train (Original Mix)  3:21
+03.  Castlebed - Hazy Place (Original Mix)  3:50
+04.  Zer - Yellow Reflections (Original Mix)  5:13(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A34E11311694C1D79A9152F17EEB5D0DE2223A0
+magnet:?xt=urn:btih:DAF91108BD373496C6A56A98939334ADCB3A737B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -495,25 +620,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222629   (682566) от 30.04.2018
+###  Публикация: 1134953   (685213) от 17.05.2017
 
-Растровый клипарт - Fotolia - Fashion sexy girls with long and shiny curly hair [JPG]
+VA - Exotic Liquors Lounge Edition (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682566.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Модные сексуальные девушки с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5504x8256-8256x5504
+01.  Ingo Herrmann - Serenata (Original Mix)  3:51
+02.  Vitali And His Lounge Orchestra - Smooth Dance (Original Mix)  5:15
+03.  Kulyela - Rare Mambo (Original Mix)  3:56
+04.  Pulse Tone - Zeus (Original Mix)  3:45(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:11:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1E1FE6E9A2FC82D7D41ABD50FD56B182B3535E6
+magnet:?xt=urn:btih:0A090639BBEB9C2D32DBAA521B8EFE1E74E78E2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,186 +649,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 320177   (682565) от 08.06.2012
+###  Публикация: 1134961   (685212) от 17.05.2017
 
-Подшивка журналов | Шпиль (2006-2012) [PDF, DJVU] [Обновлено 08.06.2012]
+Django Reinhardt & Stephane Grappelli - Jazz Anthology (1938 - 1946) 2007, Promo Sound [FLAC|Lossless|tracks + .cue] <Swing>
 
->>Журналы
->>Игровые журналы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682565.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издается с 2002 года. «Шпиль!» – культовый игровой журнал нового поколения, созданный для энергичной и активной молодежи – поклонников видеоигр, киберспорта, компьютерной техники и мобильной связи. Это помощник в выборе аппаратных средств, мобильных телефонов, это Интернет-навигатор и, конечно, проводник в мире компьютерных игр.Формат: PDF, DJVU
+01. Daphne [03:15]
+02. Honeysuckle Rose [03:00]
+03. Sweet Georgia Brown [03:13]
+04. Liza [02:58](   Читать дальше...   )Жанр: SwingПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0974387C2683F565ED44C68C601BB37AB0C8CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 335324   (685209) от 11.05.2011
+
+Опять двойка (1957) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный корреспондент Мурзилка отправляется на задание, цель которого — выяснить, за что поставили двойку мальчику с известной картины Фёдора Решетникова «Опять двойка». Выясняется, что двойка поставлена по географии, но мальчик не хочет признаться, что её не учил, в результате чего вместо экватора попадает на южный полюс.Жанр: Мультфильм, короткометражкаРежиссер: Борис Степанцев, Евгений РайковскийПродолжительность: 00:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B06705C170D0F619ED6F626E4AE840AD2C072753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 213137   (685178) от 25.06.2010
+
+Дезорганизованная преступность / Disorganized Crime (1989) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_685178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальных преступлений не бывает. В справедливости этого утверждения на собственной шкуре убедился вор Фрэнк Салазар, задумавший ограбить банк в Монтане. Он разработал отличный план налета, подобрал четырех опытнейших подельников, предусмотрел все мелочи и был готов поклясться, что все пойдет как по маслу. К несчастью, его оптимизм угас, когда прямо накануне "дела" на хвосте героя повисают копы. Тем временем, не дождавшись своего заводилы в условленном месте в срок, другие "джентльмены удачи" начинают заметно нервничать и совершать одну глупейшую ошибку за другой. Число анекдотичных промахов незадачливых грабителей растет как снежный ком, на глазах погребая под собой хваленый план Салазара. И вскоре герои обнаруживают, что находятся на грани самого большого профессионального позора в своей преступной жизниЖанр: Криминал, КомедияРежиссер: Джим Кауф / Jim KoufАктеры: Хойт Экстон / Hoyt Axton/, Корбин Бернсен / Corbin Bernsen/, Рубен Блэйдс / Ruben Blades/, Лу Даймонд Филлипс / Lou Diamond Phillips/, Уильям Расс / William Russ/, Дэниэл Ройбак / Daniel Roebuck/,Перевод: Профессиональный (многоголосый, закадровый) + Авторский (одноголосый) Александр Готлиб + оригинальный английский
 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028957   (682564) от 26.06.2016
-
-Журнал | Таинственые истории №13 (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всё самое таинственное и необычное из жизни простых людей, нас с вами. Рассказ от первого лица и немного о таинственном в биографиях знаменитых людей.
-Собственный скан.Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F259C0054568A8C58D81A4A1EA0424647F75D647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222271   (682562) от 30.04.2018
-
-Неподсуден (1969) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация рассказа Льва Ющенко «Командир».
-В ранней молодости, после случившейся авиакатастрофы, Сергей Егоров был оклеветан Сорокиным, в результате чего его оставила Надежда, которую он любил. С тех пор прошло 16 лет. Надя вышла замуж за Сорокина и воспитывает с ним сына Сережу. Все члены этой семьи однажды становятся пассажирами лайнера, которым управляет Егоров. (   Читать дальше...   )Производство: СССР, киностудия: "Мосфильм"Жанр: ДрамаРежиссер: Владимир Краснопольский, Валерий УсковАктеры: Олег Стриженов, Людмила Максакова, Леонид Куравлев, Ольга Сошникова, Светлана Светличная, Сергей Никоненко, Владимир Гусев, Володя Кузнецов, Коля Лиров, Петр Глебов, Валентина Владимирова, Нина АгаповаПродолжительность: 01:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3746C8F08F16F214A70A85A7C8467F508565AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029356   (682560) от 26.06.2016
-
-Сто к одному (26.06.2016) SATRip
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB5D82438D19ABA1B5CBB494CBE16575A002684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222717   (682559) от 30.04.2018
-
-Владимир Батаев, Робин Штенье | Меч за 500 золотых (2018) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Героев.net».
-
-Меч средней паршивости стоит пятёрку. Мой – тридцать пять полновесных золотых. И это, я вам скажу, отличный меч! А тут – пятьсот! Обалдеть можно...
-Что значит "Предмет нельзя поместить в инвентарь"? Эй, я уже и так от цены обалдел! Ладно, повешу за спину, как идиот и позёр. Что значит "Предмет нельзя экипировать"? (   Читать дальше...   )Жанр: ЛитРПГ, Юмористическое фэнтези, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E88D5074A20B38740C864E6DAB513FC9F34E06E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029228   (682557) от 26.06.2016
-
-Полина Клюкина | Дерись или беги (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682557.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дерись или беги», первая книга молодого прозаика Полины Клюкиной, состоит из жестких, бескомпромиссных, ярких рассказов. Литературные мэтры уже признают ее сложившимся прозаиком. Захар Прилепин в предисловии говорит: «Клюкина только начала писать прозу, но у нее уже хочется чему-нибудь научиться. Упрямству. Честности. Юности. Уменью произносить какие-то слова так, (   Читать дальше...   )Жанр: Рассказы,Современная прозаПродолжительность: 07:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B506A9E77A3227478BF9C3E1DD417AF347850B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222596   (682556) от 30.04.2018
-
-Надежда Попова | Ловец человеков (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое дело молодого инквизитора Курта Гессе, недавнего выпускника академии Конгрегации, откомандированного в глухую провинцию, кажется надуманным и безосновательным. Но чем глубже Курт погружается в расследование, тем отчетливее понимает: тут что-то не так. Неужели в землях барона фон Курценхальма действительно появился вампир? А может, кому-то просто выгодно, чтобы (   Читать дальше...   )Жанр: Детективная фантастикаПродолжительность: 13:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F632941BE858062FBFF398EDABE6F5C0E9C4BE9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1483842   (1006534) от 16.07.2021
+
+Lena Horne - Love Songs (50-e - 60-e) 2005, Legacy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me or Leave Me [3:12]
+02. The Man I Love (Live) [4:29]
+03. What Is This Thing Called Love? [2:42]
+04. At Long Last Love [2:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99D4E6330D8F7073A6871ED0D4A80BB714D50A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484656   (1005948) от 21.07.2021
 
 Richard "Groove" Holmes - Groove's Groove (1977 - 1988) 1997, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -716,35 +745,6 @@ John Gary - The Essential John Gary (2001) RCA [FLAC|Lossless|tracks + .cue] <Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FCAC02CBB34A0C566CBF663E482606A1FF1A751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351967   (1001695) от 12.01.2020
-
-Eddie ''Lockjaw'' Davis - Four Classic Albums Plus 1952 - 1959 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001695.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Very Saxy [8:20]
-02. Lester Leaps In [6:16]
-03. Fourmost [5:23](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 02:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCFA4E082669E5BC6F571E599F31201588582AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1645467   (233324) от 09.07.2023
+
+Nektar - 4 Albums (2008-2023) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2008 - Book of Days (Deluxe Edition)
+2012 - A Spoonful of Time - Deluxe Edition (2CD)
+2012 - Man in the Moon / Evolution(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 5 CD, 07:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808F7E09DBFC4130A4DB7DAA5C5A75E0DBDF1194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645538   (233298) от 09.07.2023
+
+Big Big Train - Ingenious Devices (2023) [MP3|320 Kbps] <Crossover Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East Coast Racer 15:46
+02. The Book Of Ingenious Devices 01:20
+03. Brooklands 12:23
+04. Voyager 14:11(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 00:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322D07557D58B02774DA08F27B9D6C3ED744F97C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577507   (233229) от 18.09.2022
 
 Kotipelto - Coldness (2004) [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Metal>
@@ -686,64 +744,6 @@ King Crimson - Mister Stormy's Monday Selection, Vol. 10 (2023) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3194EF469B878607E8567DBFBA80AD7F2CBEF269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648479   (231379) от 23.07.2023
-
-The Residents - 13th Anniversary Show - Live In The USA (1986) Reissue, Remastered, 2015, Klanggalerie (2CD)[MP3|320 Kbps] <Alternative Rock, Avantgarde, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walter Westinghouse (Live) [00:09:00]
-02. Easter Woman (Live 1986) [00:02:31]
-03. Amber (Live 1986) [00:01:45]
-04. Red Rider (Live 1986) [00:01:32](   Читать дальше...   )Жанр: Alternative Rock, Avantgarde, ExperimentalПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE6A9824CF32C36975777D27EEDD3C5AEF7F924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647934   (231107) от 21.07.2023
-
-Feuerschwanz - Fegefeuer (2023) 3CD, Digital Deluxe Album [MP3|320 Kbps] <Gothic, Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1: Fegefeuer
-Disc 2: Live at Wacken 2022
-Disc 3: instrumentalЖанр: Gothic, Black, Death MetalПродолжительность: 3 CD, 02:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E359156C3AE58046CAC1C68B1FE0C991AB9169C
 ```
 
 https://mybot314.ru/tekegram_catalog/

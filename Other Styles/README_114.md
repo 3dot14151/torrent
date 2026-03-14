@@ -1,3 +1,148 @@
+###  Публикация: 1166700   (421437) от 18.09.2017
+
+VA - Classic Film Music For The Millennium (2000) [MP3|320 Kbps] <Instrumental, Easy Listening, Soundtrack>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421437.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Philharmonic Symphony of London - Theme From 2001: A Space Odyssey (1:58)
+2. RCA Symphony Orchestra - Laura (2:43)
+3. Wally Stott & His Orchestra - As Time Goes By (2:39)
+4. RCA Symphony Orchestra - Love Theme From The Glenn Miller Story (3:18)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, SoundtrackПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4B4C7C8DFCCB3B888A8C4B4C4D5CE10EC82F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064921   (420820) от 22.10.2016
+
+Leonard Cohen - You Want It Darker (2016) [FLAC|Lossless|image + .cue] <Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Want It Darker [4:44]
+02. Treaty [4:02]
+03. On The Level [3:28]
+04. Leaving The Table [3:47](   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33840A26661750E9F575B4A9B1CD63A672BD26E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947257   (420108) от 16.10.2015
+
+Fleur (Flёur) - Штормовое предупреждение (2014) [FLAC|tracks|WEB-DL]<Cardiowave, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предельно насыщенные образами, полные удивительной отрешенности от реального мира тексты. Живая и очень чувственная музыка. "Flëur", и в этом, и в предыдущем альбомах, подобны жизни в забытьи. Там где сложно определить - спишь ты или бодрствуешь. Там где внутренний мир исполнительниц рисует хаотичные картины разрушений, и коллапс окружающего пространства; (   Читать дальше...   )01. Интро
+02. Железо поёт
+03. Мы летали
+04. Кислород(   Читать дальше...   )Жанр: Cardiowave, FolkПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBDDD1CFE636B65577FDC38785FAE01ED68FC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251111   (420043) от 30.09.2018
+
+The Romantic Strings Orchestra - Night And Day: The Great Songs Of Cole Porter (1993) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begin the Beguine (3:33)
+02. Easy to Love (2:52)
+03. Let's Do It Let's Fall in Love (2:44)
+04. Night and Day (2:28)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3354E572FE7764ADE25FBA7D33A80D6A90B78C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166809   (419723) от 19.09.2017
+
+Trevor Rabin & Harry Gregson-Williams - Enemy of the State (1998) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Main Titles
+02 - Enemy Of The State Main Theme
+03 - Brill's Theme
+04 - The Ferry(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661AE7CF4250A577D87F9FC3ED328A19611140C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167020   (419719) от 19.09.2017
 
 VA - About Time (2013) [MP3|320 Kbps] <Soundtrack>
@@ -611,156 +756,6 @@ LeAnn Rimes - You Light Up My Life (1997) [FLAC|Lossless|tracks] <Country, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A17CAB852F5A63994D7253D627939CB5ECA9FF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167717   (414874) от 21.09.2017
-
-The Romantic Strings Orchestra - Ebb Tide: Romantic Piano & Orchestra (1996) Compilation [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ebb Tide (Ronnie Aldrich) (2:54)
-02. Deep Purple (Jim Tyler) (2:48)
-03. Do, Do, Do (Peter Parker) (2:47)
-04. Almost Like Being In Love (Ronnie Aldrich) (2:44)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58B193407C74EDEF73485D8E6B02804D11201A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558794   (414738) от 10.10.2012
-
-Prabodhi - 2 albums (1989, 1991) [MP3|320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414738.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:38) 1. A Dream Comes True
-(5:26) 2. Like The Birds In The Sky
-(4:44) 3. Rhythm Of The Eternal Forest
-(5:21) 4. The Sun Is Shining On The Other Side Of The Valley
-(4:04) 5. Temple Of Muktinath
-(7:38) 6. In View Of The Annapurna
-(4:37) 7. Higher And Higher
-(8:33) 8. On The Pass
-(4:39) 9. Coming HomeЖанр: New ageПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6959687F4C96212A04C1D264E789D4A1C24A3663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066114   (414571) от 25.10.2016
-
-Phil Thornton - Pure Crystal Bowls (2016) [FLAC|Lossless|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obsidian (Root Chakra) [00:06:36]
-02. Carnelian (Sacral Chakra) [00:09:03]
-03. Citrine (Solar Plexus Chakra) [00:10:35]
-04. Kunzite (Heart Chakra) [00:12:10](   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1B38B69E740C5F9C3DF53163324DA58AC074F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167274   (414516) от 21.09.2017
-
-Andrea Guerra - The Pursuit Of Happyness (2006) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Opening
-02 - Being Stupid
-03 - Running
-04 - Trouble At Home(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61749F3BA3AECBAEFEB0A0145F54750B8566808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558465   (414110) от 10.10.2012
-
-Medwyn Goodall - Moon Goddess 2 (2012) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonstone (5:25)
-02. Serving Grace (4:14)
-03. In the Moment (6:06)
-04. Starseed (4:40)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4877B1B7B8648AECE838BB3DF8E12831FB4D665
 ```
 
 https://mybot314.ru/tekegram_catalog/

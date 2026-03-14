@@ -1,3 +1,117 @@
+###  Публикация: 1704602   (114155) от 05.03.2024
+
+VA - Музыкальный телетайп 4 (1988) [FLAC 24/192|Lossless|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Людвиг Ван Бетховен - Соната №14. Часть 1 - Adagio sostenuto (Генрих Нейгауз, ф-но)Жанр: ClassicalПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DC3CF8925ED6984013B5E8180F046325C8CCA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704593   (114153) от 05.03.2024
+
+Гос. симф. оркестр СССР, Л. Гинзбург - J.S.Bach - Die Brandenburgische Konzerte BWV 1046 (И. С. Бах - Бранденбургский концерт №1) (1955) [FLAC 24/96|Lossless|tracks] <Classical, Concerto>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01.  I. Адажио
+02.  II. Адажио
+Сторона 2:(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2898F71AA5B058AB7CC23CD2F10CD370AE39EC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704613   (114149) от 05.03.2024
+
+Duran Duran - Liberty (1990) 1992 [FLAC 24/192|Lossless|tracks] <Electronic, New Wave, Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1.
+01.Violence Of Summer (Love's Taking Over)
+02.Liberty
+03.Hot Head(   Читать дальше...   )Жанр: Electronic, New Wave, SynthpopПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B0338FA0BE02B97BBC4303B65333763CE2B661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704526   (114145) от 05.03.2024
+
+AC/DC - Highway To Hell (1979)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Highway to Hell"
+02. "Girls Got Rhythm"
+03. "Walk All Over You"
+04. "Touch Too Much"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936989504FE8B4A6356EFFE26742EEAFB578B022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704643   (114124) от 05.03.2024
 
 Emerson, Lake & Powell - Эмерсон, Лейк и Пауэлл (1986) 1988 [FLAC 24/96|Lossless|tracks] <Prog Rock>
@@ -628,122 +742,6 @@ AC/DC - The Razors Edge (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1806501DB310E439618365EECA7B6C15C330B054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705617   (113826) от 09.03.2024
-
-ВИА «Поющие сердца» - Антонина Жмакова и ансамбль «Поющие сердца» (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Прекрасный день (М. Голдсборо – рус. текст В. Харитонова)
-02. Не сегодня – завтра (В. Векштейн – В. Харитонов)
-03. Твои шаги (Е. Марней, Паллавичини, Массари – рус. текст И. Кохановского)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275F4064F1F7447CB1E61DEEA0D8FE0D4802E875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705613   (113822) от 09.03.2024
-
-ВИА «Песняры» - Песняры III (1978) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113822.jpg" />
-</div>
-
-
-###  Подробнее
-
-I сторона
-01. Явор и калина (Ю. Семеняко — Я. Купала)
-02. Поцелуй (И. Лученок — В. Коризна)
-03. По воду шла (белорусская народная песня, обработка В. Ткаченко)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1FDC9734BB3C284F7E75370D19A7754AD6A8AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705627   (113817) от 09.03.2024
-
-The Moody Blues - The Other Side Of Life (1986) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01. Твои сокровенные мечты (Дж. Хейуорд) — 4:50
-Your Wildest Dreams (J. Hayward)
-02. Разговоры, разговоры (Дж. Хейуорд – Дж. Лодж) — 3:55(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E75E46114179205577E3DD79E2ACE6C79A2AC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705626   (113814) от 09.03.2024
-
-AC/DC - Stiff Upper Lip (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Stiff Upper Lip"
-02. "Meltdown"
-03. "House of Jazz"
-04. "Hold Me Back"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAA135FCAB30E63D786256E6A293CDABB56DBB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1379970   (835897) от 01.05.2020
+
+VA - Classic Pop-Rock Hits (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sting - All This Time (Album Version) 4:55
+002. R.E.M. - Losing My Religion 4:28
+003. Queen - Bohemian Rhapsody (2011 Mix) 5:54
+004. Elton John - Your Song (Remastered) 4:03(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 07:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9719C6898E4BCAC1C8A061230A915A3B0FC6B646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380333   (835129) от 02.05.2020
 
 VA - Dreaming Up Life: Indie Rock Music (2020) [MP3|320 Kbps] <Indie, Pop Rock, Alternative>
@@ -717,35 +746,6 @@ VA - Oblivion: Metal & Hard Rock Compilation (2021) [MP3|320 Kbps] <Metal, Hardc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14755B760254B1E320BA7AAA346FB74DB62C4D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502841   (821333) от 18.10.2021
-
-VA - Household Names: Indie Pop-Rock Collection (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821333.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arvid Nero - Four O'clock Wasteland
-002. Tomemitsu - The River
-003. Julien Baker - Crying Wolf
-004. Chvrches - Never Say Die(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 08:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873E91BB7C2AE04DDF205082A1052E891452594A
 ```
 
 https://mybot314.ru/tekegram_catalog/

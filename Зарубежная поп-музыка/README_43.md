@@ -1,3 +1,61 @@
+###  Публикация: 1308841   (553518) от 16.06.2019
+
+VA - Radio Italia Summer Hits 2019 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553518.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Charlie Charles - Calipso 3:11
+02. Takagi & Ketra - Jambo 2:37
+03. Ultimo - Rondini Al Guinzaglio 4:01(   Читать дальше...   )Жанр: PopПродолжительность: 02:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043913C0760D83B942E24AF267433074A7193B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236950   (553313) от 22.07.2018
+
+VA - 100X Zomer (2018) 5CD [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553313.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01
+01. Luis Fonsi & Demi Lovato - Echame La Culpa
+02. Zedd ft. Maren Morris & Grey - The Middle
+03. Axwell - Dreamer(   Читать дальше...   )Жанр: DanceПродолжительность: 05:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7165745B81CD849278C44DA1B237B6E9A002D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046405   (552947) от 26.08.2016
 
 Ingrid Michaelson - It Doesn't Have to Make Sense (2016) [MP3|320 Kbps] <Pop>
@@ -694,70 +752,6 @@ Q - Dancin' Man (1977) LP [MP3|320 Kbps] <Pop, Disco, Funk Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:533BD5C77202A4245E1EA1936722DD3DB1081FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311339   (541908) от 29.06.2019
-
-VA - Sternstunden der Volksmusik (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541908.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Kastelruther Spatzen;Walter Widemair;Manuela Pirkner;Sepp Safrin - Eine weie Rose
-02. Die Zillertaler - Der liebe Gott muss a Tiroler sein
-03. Slavko Avsenik Und Seine Original Oberkrainer - Trompetenecho(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378F24A46C3C927D5031349EAC67CC72B24F153C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531398   (541824) от 05.08.2012
-
-Lana Del Rey - Unreleased (2012) [MP3|128-320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541824.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Axl Rose Husband (3:03)
-2. Big Spender (feat. Smiler) (3:18)
-3. Children Of The Bad Revolution (3:25)
-4. Daddy Issues (feat. Aaron LaCrate) (4:54)
-5. Damn You (0:34)
-6. Dangerous Girl (4:22)
-7. Dayglo Reflection (feat. Bobby Womack) (4:18)
-8. Disco (4:05)
-9. Driving in Cars with Boys (4:16)
-10. Dum Dum (4:06)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E864A8E9702EB7E4061153F8352AB1AADFCD6FD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

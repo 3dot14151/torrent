@@ -1,3 +1,32 @@
+###  Публикация: 474653   (31951) от 05.01.2025
+
+Tangerine Dream - Machu Picchu (Maxi EP) (2012) [MP3|320 кб/с]<Electronic music, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caminos Del Inca (10:00)
+02. Machu Picchu (5:32)
+03. Adiуs A Cusco (8:08)
+04. Tayta Inti (7:26)(   Читать дальше...   )Жанр: Electronic music, New Age, AmbientПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F640F1885F84D41157C02E7C494293538D92B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945803   (31934) от 05.01.2025
 
 Tomas Lanquist - On Faery Wings (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
@@ -716,35 +745,6 @@ James Horner - Titanic: Music From the Motion Picture (1997) CD, Album [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3651805C7371788706905CAB0B0D308A553D8338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798807   (17251) от 23.05.2025
-
-VA - The Orient Collective: Ancient Beauty (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania, Jennifer Dons - Desert Groove (Original Mix) (5:24)
-02. Don Lockwood, Tibetania - Whirligig (Original Mix) (5:22)
-03. Gabriel Slick, Tibetania - Day & Night (Original Mix) (5:54)
-04. Tibetania, Willco - Cosmic Breath (Original Mix) (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45639DB9FE223B803FD5BE2E75E51BA6083FB285
 ```
 
 https://mybot314.ru/tekegram_catalog/

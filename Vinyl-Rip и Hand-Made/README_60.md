@@ -1,3 +1,119 @@
+###  Публикация: 1680509   (134207) от 29.11.2023
+
+Poison Dollys - Invasion (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134207.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Love Is For Suckers
+A2 On My Way
+A3 Only You
+A4 Where You Are(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D21262AB5F1F6425EE985BA8DEFF9D540381C3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680828   (133972) от 30.11.2023
+
+Opeth - Sorceress (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133972.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Persephone (01:52)
+A2. Sorceress (05:48)
+A3. The Wilde Flowers (06:49)
+A4. Will o the Wisp (05:05)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B5560B127628C874758422F72FA1DBD78DD10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680643   (133951) от 30.11.2023
+
+Lucia Altieri - Lucia Altieri (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133951.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ra-Ta-Ta
+A2 Suona Orchestra (Cinta Orchestra)
+A3 Lui E Cosi (Asa E El)
+A4 Con Amore (Cu Dragoste)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CB716CFC68BD32768AF0093627BBDF48143897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680786   (133939) от 30.11.2023
+
+Opeth - Deliverance & Damnation Remixed (2015) Compilation [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliverance
+A. Wreath (11:13)
+B. Deliverance (13:39)
+C1. A Fair Judgement (10:23)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF47024966D3DD594781D5F0B0D3FB616721E37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680819   (133897) от 30.11.2023
 
 Them - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
@@ -623,119 +739,6 @@ Ayreon - The Human Equation (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FAA9527A96EC5AABE98385542B61DE872305AB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683868   (128097) от 13.12.2023
-
-System Of A Down - Steal This Album! (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Alternative Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128097.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Chic 'N' Stu
-A2 Innervision
-A3 Bubbles
-A4 Boom!(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B885BCE2311F1E892EEE8D4BF17C19A95011F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684101   (127986) от 14.12.2023
-
-Mario Lanza/Марио Ланца - Голос и ночь, Всё это ты, Прекраснейшая ночь года (1990) Из собраний М. Магомаева, Ю. Крууса, О. Шишова, Н. Тюрина [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Classic ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из кинофильма "Потому, что ты моя"Жанр: Pop, Classical, RetroПродолжительность: 02:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02EC2818F0C326084AFCCFEA0EFE39D87FA3D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684158   (127971) от 14.12.2023
-
-Semblant - Studio Albums (5 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Semblant - готик/экстремальный симфонический металл из Куритибы, Парана, Бразилия, образованная в 2006 году.2010 - Last Night of Mortality
-2011 - Behind the Mask
-2014 - Lunar Manifesto
-2020 - ObscuraЖанр: Extreme Symphonic MetalПродолжительность: 03:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FD30F9F739E0D75E1F1AC74A4E2CABB7262092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684117   (127952) от 14.12.2023
-
-Ayreon - The Theory of Everything (2013) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phase I: Singularity
-A-a - Prologue: The Blackboard
-A-b - The Theory Of Everything Part 1
-A-c - Patterns(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992D7A28717DCB9723207EC0D9AEBE42858DE70B
 ```
 
 https://mybot314.ru/tekegram_catalog/

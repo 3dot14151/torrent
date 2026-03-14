@@ -1,3 +1,61 @@
+###  Публикация: 1479694   (1009464) от 25.06.2021
+
+Stan Getz - Communications '72 (2007) Gitanes Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Communications '72 [3:41]
+02. Outhouse blues [5:17]
+03. Now you've gon [4:37]
+04. Back to Bach [3:35](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDBC6F9F19DAAFF112F5CB090E5126C8664C0FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479961   (1009344) от 26.06.2021
+
+Amos Hoffman, Edwin G. Hamilton - Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz Funk, Groove, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009344.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Let's Have Fun - 03:30
+2. American Dream - 04:12
+3. Southern Hospitality(Feat. Mark Rapp) - 04:01
+4. Genuine Love - 04:17(   Читать дальше...   )Жанр: Fusion, Jazz Funk, Groove, SoulПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB1A03D930F659F92167610407DFE56AAF298DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479915   (1009267) от 26.06.2021
 
 Jeff Liberman - Peace And Harmony (2021) [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
@@ -688,64 +746,6 @@ Dave Rudolf - Nostalgia (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BF0D102690980CD2A0BF087128A93A7168040DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482205   (1007726) от 07.07.2021
-
-Sonic Blue - Last Train (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaving Trunk (4:50)
-02. Love with a Feeling (4:42)
-03. All Over Now (4:23)
-04. Last Train (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D282F3FE1EE4982868F6E8ECB3E52D6C0713B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482196   (1007699) от 07.07.2021
-
-VA - Виртуозы жанра Blues Vol. 2 (2021) 2CD [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Cadillac Three - I'm Southern [03:09]
-02.  Chris Eger Band - If You Want It [04:22]
-03.  The Blackwater Fever - In Stereo (Remixed) (Remastered) [03:38]
-04.  Yungjohnn - Inside Job [05:01](   Читать дальше...   )Жанр: Blues RockПродолжительность: 09:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFC8EB93A7C5DBC5CDE2DAF9ADC3012F11E3854
 ```
 
 https://mybot314.ru/tekegram_catalog/

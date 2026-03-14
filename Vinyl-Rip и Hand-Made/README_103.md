@@ -1,3 +1,119 @@
+###  Публикация: 1814538   (5934) от 25.08.2025
+
+Incite - Studio Albums (7 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Incite — американская метал-группа из Финикса, штат Аризона, основана в 2004 году.
+Фронтмен Ричи Кавалера наиболее известен как пасынок Макса Кавалеры, участника групп Sepultura, Soulfly и Cavalera Conspiracy.2009 - The Slaughter
+2012 - All Out War
+2014 - Up In Hell
+2016 - Oppression(   Читать дальше...   )Жанр: Thrash/Groove MetalПродолжительность: 04:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175E249D13BC8F5201ADCE86A959921A24581ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814703   (5786) от 26.08.2025
+
+Warmen - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warmen - финская метал-группа, основана в 2000 году клавишником "Children of Bodom" Янне Вирманом.2000 - Unknown Soldier
+2002 - Beyond Abilities
+2005 - Accept The Fact
+2009 - Japanese HospitalityЖанр: Power Metal, Melodic Death MetalПродолжительность: 05:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EA4E8246F039BD4776E82FF769D33F13C97EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638527   (5690) от 27.08.2025
+
+Fueled By Fire - Studio Albums (4 releases) (2006-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fueled By Fire - трэш-метал группа из Норуолка, Калифорния, США.2006 - Spread The Fire
+2010 - Plunging Into Darkness
+2013 - Trapped In PerditionЖанр: Thrash MetalПродолжительность: 02:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2514FFA1BF1C4F671993EC2C256F7275D0EF250B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814857   (5653) от 27.08.2025
+
+Orchestra Electrecord - Famous Romanian Tangos (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Latin, Tango>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tangouri Celebre Romanesti – Famous Romanian Tangos
+A1 Tangoul De Demult
+A2 Vrei Sa Ne-ntilnim Simbata Seara?
+A3 Ilona(   Читать дальше...   )Жанр: Latin, TangoПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770F6A5A497BB0F1C768AE8F34E9EA7B43480F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815057   (5508) от 28.08.2025
 
 Щурците - Shtourtsite (1978) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Prog Rock>
@@ -627,122 +743,6 @@ Taetre - метал-руппа из Гётеборга, Швеция, образ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC54EACDF18F00A3E974E980B3645C56A5A69288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818329   (2469) от 16.09.2025
-
-Katya Filipova - Катя Филипова (1977) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2469.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Чай За Двама • Tea For Two • Чай Для Двоих
-A2 Начало • Beginning • Casanova Brown
-A3 Дълъг Ден, Кратка Нощ • A Long Day, A Short Night • Длинный День, Короткая Ночь
-A4 Танц За Теб • A Dance For You • Танец Для Тебя(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E38686F333013CC66C9DF98679E3721D24DBBB50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818348   (2451) от 16.09.2025
-
-Dagoba - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dagoba — французская метал-группа, основанная в 1997 году в Марселе.2001 - Release the Fury (EP)
-2003 - Dagoba
-2006 - What Hell Is About
-2008 - Face the Colossus(   Читать дальше...   )Жанр: Groove/Industrial MetalПродолжительность: 07:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23FB35512F71E2FAE57E257994D48E9B14E21C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818659   (2144) от 18.09.2025
-
-Fear My Thoughts - Studio Albums (6 releases) (2001-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fear My Thoughts - немецкая метал-группа из Райнфельдена, существовавшая с 1998 по 2010 год.2001 - 23
-2002 - Vitriol
-2004 - The Great Collapse
-2005 - Hell Sweet HellЖанр: Hardcore/Metalcore, Melodic Death MetalПродолжительность: 04:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3E9CC1880AC71F90764DDD82B41E5AA17CD40F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818670   (2141) от 18.09.2025
-
-Karel Vacek - Zustan Tu S Nami Muziko Ceska - Pisnicky Karla Vacka (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country, Polka>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2141.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Stesti Na Rozcesti
-A2 Hej, Panimamo
-A3 Skrivanek Zpival
-A4 Proc Nezustane Slunce Stat(   Читать дальше...   )Жанр: Folk, Country, PolkaПродолжительность: 00:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DBB8EB0789391BF6C6C8D91224077E3791C127
 ```
 
 https://mybot314.ru/tekegram_catalog/

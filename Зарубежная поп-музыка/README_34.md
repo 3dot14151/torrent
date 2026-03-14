@@ -1,3 +1,61 @@
+###  Публикация: 1033448   (638138) от 11.07.2016
+
+VA - The Best Ever: Summer (2016) [MP3|320 Kbps] <Disco, Pop, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icona Pop feat. Charli XCX – I Love It 02:34
+02. Rudimental feat. John Newman – Feel The Love 03:37
+03. B.O.B – So Good 03:29
+04. CeeLo Green – Forget You 03:41(   Читать дальше...   )Жанр: Disco, Pop, RnBПродолжительность: 01:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8298CB61C08C0712E7DC532819273D246C3BE64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907579   (637987) от 12.06.2015
+
+Hilary Duff - Breathe In. Breathe Out. (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sparks
+02. My Kind
+03. One in a Million
+04. Confetti(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678F22A85D0D66E2A177ECC0EB13800EA10C61F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907450   (637819) от 12.06.2015
 
 Adam Lambert - The Original High (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
@@ -718,64 +776,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:999AF2F5DF08471375D4B067116D46261D62B36C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228961   (629849) от 04.06.2018
-
-VA - NRJ Summer Hits Only (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629849.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Tal - Mondial
-02. Aya Nakamura - Djadja
-03. Rudimental, Jess Glynne, Macklemore, Dan Caplen - These Days (Feat. Jess Glynne, Macklemore & Dan Caplen)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3107373CD3269321FB72CA6DB3326356D09902F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294476   (628376) от 08.04.2019
-
-Lou & Hollywood Bananas - Meet The Ska All Stars: Greatest Hits (1980) LP [MP3|320 Kbps] <Pop, Disco, Ska>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hong-Kong Ska (2:20)
-02. I Won't Never Let You Go (2:43)
-03. Ska-Baloo Cha (2:52)
-04. Skeilzat (4:07)(   Читать дальше...   )Жанр: Pop, Disco, SkaПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38256E09B5A8AEF24FC507AF2C3A8A5053D6CB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

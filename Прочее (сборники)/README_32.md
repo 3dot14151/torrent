@@ -1,3 +1,32 @@
+###  Публикация: 1375377   (865617) от 14.04.2020
+
+VA - Easy Listening: Soul Heaven (2020) [MP3|320 Kbps] <Easy Listening, Jazz>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brice Davoli - Big Balloons
+02. Martin Liege - Stream Of Love
+03. Brice Davoli - I'm Not In My Plate
+04. Chillson - Easy Does It(   Читать дальше...   )Жанр: Easy Listening, JazzПродолжительность: 03:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECBC3B504AFC2628F0BC3FF587A679651ADB5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874375   (864895) от 02.03.2015
 
 VA - The Official UK Top 40 Singles Chart (01-03-2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
@@ -718,35 +747,6 @@ VA - ЕвроХит Топ 40 Europa Plus 17.04.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:644900220183877DE3AE9E7B6AA7838664AB457F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109193   (858777) от 27.02.2017
-
-VA - Dance Wicked (2017) [MP3|320 Kbps] <House, Electro, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858777.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Deugene - Deadliest Sound (Original Mix) 3:38
-002. Daleri Ft Vice - Somebody Told Me (En Route) 3:06
-003. Aleo - Haribda (Original Mix) 4:27
-004. 808 State - In Yer Face (Bicep Remix) 7:42(   Читать дальше...   )Жанр: House, Electro, ProgressiveПродолжительность: 07:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9697C0A1F7A99B376EB7C10CFE4034F979B94037
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1128619   (726456) от 26.04.2017
+
+Kari Rueslatten - To The North (2015) [FLAC|Lossless|image + .cue] <Folk, Nordic, World>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Battle Forevermore  (03:50) 
+02.  Mary's Song  (03:58) 
+03.  What We Have Lost  (04:06) 
+04.  Three Roses In My Hands  (03:03) (   Читать дальше...   )Жанр: Folk, Nordic, WorldПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:078982E1957196C18697CB0FD4F794035E7497F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128983   (726453) от 26.04.2017
+
+VA - 50 Sounds of Tropical Rainforest (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relaxing Spa Music Zone - Sounds of Tropical Rainforest
+02. Relaxing Nature Sounds Collection - Forest at Night
+03. Nature Music Sanctuary - River of Jungle
+04. Natural Meditation Guru - Contemplative Nature(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, New AgeПродолжительность: 03:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C152478A3CA680738980455179E66702D94FE467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022986   (726407) от 04.06.2016
+
+Ramin Djawadi - Warcraft (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warcraft (01:58)
+02. The Horde (03:17)
+03. Medivh (02:43)
+04. Honor (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343460A3663483F24359F5667E112126E0B1B24C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281417   (726385) от 23.02.2019
+
+VA - Simply Chillout (2013) Box Set, 10CD [FLAC|Lossless|tracks + .cue] <New Age, Lounge, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более трех лет назад я уже выкладывал на трекере 4-х дисковый сборник с аналогичным названием 2005 года издания. Видимо, откликаясь на многочисленные просьбы трудящихся USM переиздало его, дополнив 6 новыми дисками. Мне показалось интересным  CD09 "Chilled Lennon & McCartney" - он правда то же издавался USM в 2008 году под аналогичным названием, только (   Читать дальше...   )CD01 Classical Chilout
+CD02 Chilled Piano Moods
+CD03 Chiiled Film & TV Thems
+CD04 Chilled Smooth Pop(   Читать дальше...   )Релиз состоялся: 18 февраля 2013 годаЖанр: New Age, Lounge, ChilloutПродолжительность: 10:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2630BFFF5E4F9BEC753F89865DA33EC210120869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022993   (726164) от 04.06.2016
+
+Ramin Djawadi - Варкрафт / Warcraft (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warcraft (01:58)
+02. The Horde (03:17)
+03. Medivh (02:43)
+04. Honor (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB3161AED7FD40DD1C14B1DD2AC5771E66D4941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023199   (726104) от 04.06.2016
 
 Yanni - The Dream Concert: Live from the Great Pyramids of Egypt (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
@@ -591,151 +736,6 @@ Rebekah Long - Here I Am (2016) [FLAC|Lossless|tracks] <Country, Bluegrass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE14C443D2DFB7FA2CBA55C216438B34F7518605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023922   (722245) от 06.06.2016
-
-Sayama - Yoga Meditations (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light of Dawning [00:08:32]
-02. Contemplating Prasada [00:08:51]
-03. Bindu [00:08:33]
-04. Holding a Peaceful Repose [00:08:38](   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7BF0691AC5DEC894892B89C98D94531D303040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 790242   (721951) от 27.05.2014
-
-VA - The All Time Greatest Songs (2001) 30 CD [MP3|320 кб/с]<R&B, Pop, Dance, Rock, Soundtrack, Country, Blues, Disco, World Music>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guus Meeuwis - Het Is Een Nacht (4:45)
-02. Fluitsma & van Tijn - 15 Miljoen Mensen (3:45)
-03. Poema's - Mijn Houten Hart (4:18)
-04. Simone Kleinsma & Paul de Leeuw - Zonder Jou (3:57)(   Читать дальше...   )Жанр: R&B, Pop, Dance, Rock, Soundtrack, Country, Blues, Disco, World Music|Продолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5ED59F515FBA419314E6C0BD2DEE0824CD7F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218727   (721270) от 10.04.2018
-
-Danheim - Munarvagr (2017) [MP3|320 Kbps] <Dark Folk, Dark Ambient>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 0:44
-02. Vindold 3:28
-03. Tyrfing 3:27
-04. Tyr 3:40(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150E20635C462E5A4AC6361C207F1859D92860E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 234819   (720826) от 04.08.2020
-
-Pepe & Celin Romero - Famous Spanish Dances (1982) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar Concertos>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Granados: Danzas espanolas, op.37 no.5 "Andaluza" (04:00)
-02. Granados: Danzas espanolas, op.37 no.4 "Villanesca" (05:33)
-03. Granados: Danzas espanolas, op.37 no.2 "Oriental" (04:40)
-04. Granados: Goyescas: Intermedio (04:43)(   Читать дальше...   )Жанр: Instrumental, Guitar ConcertosПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0367653D71AA03379BD5AFA7100A7ED42C932C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258033   (720820) от 04.08.2020
-
-Ottmar Liebert + Luna Negra XL - Little Wing (2001) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agua Fria (Cold Water)	(04:02)
-02. Little Wing			(04:49)
-03. The Girl From Ipanema	(06:31)
-04. Interlude #1: Longing	(01:10)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FAED298740D8FE93E2FE75A6D9FA01B727816E
 ```
 
 https://mybot314.ru/tekegram_catalog/

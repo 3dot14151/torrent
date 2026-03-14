@@ -1,3 +1,90 @@
+###  Публикация: 1148154   (603948) от 06.07.2017
+
+Ignasi Terraza Trio - Jazz a les Fosques I (1999) 2006, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candy [05:41]
+02. September Song [06:25]
+03. Love for Sale [05:56]
+04. I Remember Clifford [07:13](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528D506D2736AEA991875CAC7077025708A7AFF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148161   (603947) от 06.07.2017
+
+Susana Sheiman & Ignasi Terraza Trio - Swing Appeal (2011) Swit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Glad There Is You [05:35]
+02. P.S. I Love You [04:15]
+03. Spring Can Really Hang You Up the Most [05:13]
+04. Just One of Those Things [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0599BC5588194726DCF98FA25DB54C34E90BB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148175   (603946) от 06.07.2017
+
+Ignasi Terraza - Sol-IT (2010) 2CD, 2012, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603946.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. You're My Everything [05:02]
+02. These Foolish Things [05:07]
+03. Round Midnight [04:58](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C4EA76AEA7707F9EC1CD59F93B83A3192F5401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148190   (603945) от 06.07.2017
 
 The Pharaohs - Awakening (1971) 1996, Scarab Records, Luv 'N Haight, Ubiquity Recordins  -  LHCD 025 [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
@@ -657,93 +744,6 @@ Miles Davis - Antwerp Blues (1967) 1998, Megadisc [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FE97DDAD3011487CF10665D70A42CE94F28BDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232169   (602780) от 22.06.2018
-
-Tony Bennett - My Best To You (1982) Reissue 1995 [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Second Time Around
-02. I Wanna Be Around
-03. I Left My Heart In San Francisco
-04. For Once In My Life(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121B9C18A0160D5435A59FA7A950FA41EBEDC3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297983   (602679) от 25.04.2019
-
-Louis Hayes And The Cannonball Legacy Band - Dreamin' Of Cannonball (2002) TCB Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is This Thing Called Love [7:10]
-02. The Chant [5:51]
-03. Dat Dere [5:18]
-04. I Can't Get Started [7:32](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C9A2D977358B603545C3319EAC88F54DB0A244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149207   (602585) от 09.07.2017
-
-Carol Welsman - I Like Men: Reflections Of Miss Peggy Lee (2009) Welcar Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Like Men [02:38]
-02. Do I Love You [03:48]
-03. Lover [03:43]
-04. I Love Being Here With You [03:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C150BBC3ADE3F5D0C361CA4E56D0A1ECCA95895
 ```
 
 https://mybot314.ru/tekegram_catalog/

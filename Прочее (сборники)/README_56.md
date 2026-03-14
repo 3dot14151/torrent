@@ -1,3 +1,32 @@
+###  Публикация: 1215363   (759954) от 25.03.2018
+
+VA - New Music Friday UK From Spotify 24-03 (2018) [MP3|320 Kbps] <Britpop Revival, Baroque Pop, Afrobeats, Dancehall>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Ezra - Shotgun 3:21
+02. David Guetta, Sia - Flames 3:15
+03. Shawn Mendes, Teddy Geiger, Geoff Warburton, Scott Harris - In My Blood 3:32
+04. Diplo, Trippie Redd - Wish (Feat. Trippie Redd) 2:55(   Читать дальше...   )Жанр: Britpop Revival, Baroque Pop, Afrobeats, DancehallПродолжительность: 03:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2BE0F57868E499091E6F6C204A29EA167BD56D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280336   (759741) от 03.02.2019
 
 Nelly Furtado - Say It Right (2019) Remix [MP3|320 Kbps] <Club, Dance>
@@ -709,35 +738,6 @@ VA - Club Funky House: Majestic Remix (2016) [MP3|320 кб/с] <Club, Electro, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90E6F8C327B0F4E90C27F327B165F2155DD6DD58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395965   (750159) от 13.07.2020
-
-VA - Vocalove (2020) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Harry Styles - Adore You (3:27)
-02 - Sam Smith - Stay With Me (2:52)
-03 - Shaed - Trampoline (3:04)
-04 - Lauryn Hill - Can't Take My Eyes Off of You (I Love You Baby) (3:41)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E09B142907723B14841FD241B43CBB4841E70FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

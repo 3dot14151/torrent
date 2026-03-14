@@ -1,3 +1,32 @@
+###  Публикация: 1361825   (952262) от 21.02.2020
+
+Black Swan - Shake the World (2020) [MP3|320 kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская рок-группа Black Swan, в состав которой входят басист Джефф Пилсон (Foreigner, Dokken), вокалист Робин МакОули (Survivor), гитарист Реб Бич (Winger, Whitesnake) и барабанщик Мэт Старр (Mr. Big, Ace Frehley), выпустила свой дебютный студийный альбом. Первая полноформатная пластинка получила название "Shake the World" и появилась 14 февраля 2020 (   Читать дальше...   )01. Shake the World (04:35)
+02. Big Disaster (04:37)
+03. Johnny Came Marching (05:46)
+04. Immortal Souls (06:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC70689999DB6239752F38374124E07BB10483DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361937   (952238) от 21.02.2020
 
 H.e.a.t - H.e.a.t II (2020) [MP3|320 Kbps] <Hard Rock>
@@ -711,34 +740,6 @@ Inglorious - Inglorious (2016) [MP3|320 кб/с] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9605B3F210B6B17B4B566DD75ABEF85873DE3734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366459   (922363) от 12.03.2020
-
-State Cows - 2 альбома (2010-2013) [MP3|320 Kbps] <Westcoast, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2010 - State Cows
-2013 - The Second OneЖанр: Westcoast, AORПродолжительность: 02:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD73E1C8C66FDBF207260CB58FB476EE0B3CA45D
 ```
 
 https://mybot314.ru/tekegram_catalog/

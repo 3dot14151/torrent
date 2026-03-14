@@ -1,3 +1,119 @@
+###  Публикация: 1612067   (1040633) от 14.02.2023
+
+Brannon - Heartbreak Is Misery (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Powerful (3:17)
+02. Hard Habit to Break (3:14)
+03. Without You I'd Die (4:02)
+04. Bad Love (feat. R Reed) (3:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B98DA00B6312A64C4A7E671B75C47FBB4205BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612081   (1040606) от 14.02.2023
+
+Wig Wam - Out of the Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of the Dark (4:28)
+02. High n Dry (3:34)
+03. Forevermore (4:56)
+04. Bad Luck Chuck (3:48)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A9385916801658A0961BBC86B0B9FD617B9E14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612071   (1040605) от 14.02.2023
+
+Glenn - Inner Sanctum (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fate (3:21)
+02. Magical (3:23)
+03. My Sweet Mary (3:11)
+04. Dreams (4:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E81593353737A62E3D9F700E663B9699C27B77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612066   (1040604) от 14.02.2023
+
+Black Cat Moan - Departure (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash (2:51)
+02. Departure (3:49)
+03. Molotov Cocktail (3:46)
+04. Boogie Woogie Man (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12914C13834EE7F0F197BB6A7BE1BABC5A9FC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612068   (1040596) от 14.02.2023
 
 Child's Play - Long Way (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +745,6 @@ El Supremo - Acid Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FB21A8CDF2EA2B561B2B81FE968D7025B03E0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615012   (1038110) от 24.02.2023
-
-Godsmack - Lighting Up The Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You And I [00:05:17]
-02. Red White & Blue [00:04:04]
-03. Surrender [00:03:40]
-04. What About Me [00:03:55](   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D443CDA205AD08FE3C93F671594B27F423DBC186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441120   (1038028) от 20.01.2021
-
-Billionaires Boys Club - Something Wicked Comes (1993) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Won't See You Again (5:13)
-02. Voyeur Romance (3:35)
-03. Eternal Flame (4:28)
-04. Something Wicked Comes (4:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D67012D6320FE7543D222E3A936A1356F0C05F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615064   (1037853) от 25.02.2023
-
-Motorhead - Bad Magic: Seriously Bad Magic (2015) Remastered, 2023, Silver Lining Music Ltd[FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victory Or Die [00:03:08]
-02. Thunder & Lightning [00:03:06]
-03. Fire Storm Hotel [00:03:35]
-04. Shoot Out All of Your Lights [00:03:14](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A9CEF03123ED9B45600B088898460BA2216C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441335   (1037677) от 21.01.2021
-
-Blackout - Hindsight 2020 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Of Cool (04:12)
-02. Dreadlock Mama (05:28)
-03. Head Of A Pin (04:26)
-04. What Does It Mean (04:00)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues RockПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24BB72033F24DD7F72F274A3A454B629A8E3EA59
 ```
 
 https://mybot314.ru/tekegram_catalog/

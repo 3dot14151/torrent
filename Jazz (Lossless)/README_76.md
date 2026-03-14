@@ -1,3 +1,90 @@
+###  Публикация: 1123873   (786221) от 09.04.2017
+
+Valery Ponomarev - Profile (1991) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Was Afraid You'd Never Call Me [06:56]
+ 02.I Concentrate On You [14:07]
+ 03.Time [09:48]
+ 04.High Voltage At Rudy's [09:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DCC720FF029BD171648B507E808B8FF93300CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124047   (786207) от 09.04.2017
+
+Jonathan Butler - Do You Love Me? (1997) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Song for Elizabeth (04:10)
+02 Do You Love Me? (04:34)
+03 The Other Side of the World (04:33)
+04 Life After You (04:43)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181B7B5FB2962E8E117B0DF59893C2227ADBB624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123947   (786193) от 09.04.2017
+
+Karolina Smietana - Illusion (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something
+02. Skylark
+03. Within
+04. É Preciso Perdoar(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375E34BF88EFE21659EB7F38BDF6DD8427DD29CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123888   (786169) от 09.04.2017
 
 John Pizzarelli - John Pizzarelli Meets The Beatles (1998) 1999, BMG Japan [FLAC|Lossless|image + .cue] <Jazz, Bebop>
@@ -656,93 +743,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C61BA379B1D96B9851C3EFA55F4A330F7A9F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277455   (785413) от 20.01.2019
-
-Frank Sinatra, Dean Martin, Sammy Davis Jr. - Eee-O 11: The Best Of The Rat Pack (2001) [FLAC|Lossless|image + .cue] <Jazz, Pop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Sinatra - I'm Gonna Live Till I Die
-02. Dean Martin - Ain't That A Kick In The Head
-03. Sammy Davis Jr. - Too Close For Comfort
-04. Frank Sinatra & Sammy Davis Jr. - Me And My Shadow(   Читать дальше...   )Жанр: Jazz, Pop, SwingПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BAB6F7073510A5C2265E28C3CC0822B8FA2EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388884   (785170) от 08.06.2020
-
-Josh Berman & His Gang - There Now (2012) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Just Around the Corner [7:09]
-02. Sugar [5:06]
-03. One Train May Hide Another [6:42]
-04. Cloudy [6:10](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D58EA54C34B7825A8AAC8B8F3939DF3D64E6F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388857   (785169) от 08.06.2020
-
-Nat Adderley Quintet - Mercy, Mercy, Mercy (1997) Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spontaneous Combustion [5:56]
-02. Hummin' [7:52]
-03. On the Sunny Side of the Street [3:25]
-04. What Is This Thing Called Love? [6:03](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332F2D82DB7E88DEA29BE4A5364B656858A953F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

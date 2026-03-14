@@ -1,3 +1,61 @@
+###  Публикация: 1648479   (231379) от 23.07.2023
+
+The Residents - 13th Anniversary Show - Live In The USA (1986) Reissue, Remastered, 2015, Klanggalerie (2CD)[MP3|320 Kbps] <Alternative Rock, Avantgarde, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walter Westinghouse (Live) [00:09:00]
+02. Easter Woman (Live 1986) [00:02:31]
+03. Amber (Live 1986) [00:01:45]
+04. Red Rider (Live 1986) [00:01:32](   Читать дальше...   )Жанр: Alternative Rock, Avantgarde, ExperimentalПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE6A9824CF32C36975777D27EEDD3C5AEF7F924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647934   (231107) от 21.07.2023
+
+Feuerschwanz - Fegefeuer (2023) 3CD, Digital Deluxe Album [MP3|320 Kbps] <Gothic, Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1: Fegefeuer
+Disc 2: Live at Wacken 2022
+Disc 3: instrumentalЖанр: Gothic, Black, Death MetalПродолжительность: 3 CD, 02:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E359156C3AE58046CAC1C68B1FE0C991AB9169C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648793   (230653) от 24.07.2023
 
 VA - Meddle Reimagined - A Tribute To Pink Floyd (2023) [MP3|320 Kbps] <Rock>
@@ -692,64 +750,6 @@ Eagles - Hell Freezes Over (1994) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA8F93B78C265E76B94EA9F68FAD839879D17F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583861   (226927) от 17.10.2022
-
-Blake Hobson - 2 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock, Progressive Metal, Rock Opera, Comedy Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hymn of Preface [00:02:51]
-02. Rite of Passage [00:09:50]
-03. Starry Shore [00:02:04]
-04. The Atlantic [00:08:36](   Читать дальше...   )Жанр: Progressive Rock, Progressive Metal, Rock Opera, Comedy RockПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF718FEBAA8A503F25BCB08E92F32F36D67C782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583966   (226906) от 17.10.2022
-
-Richard Marx - Paid Vacation (1993) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way She Loves Me
-02. One More Try
-03. Silent Scream
-04. Nothing To Hide(   Читать дальше...   )Жанр: Rock, Pop, Soft RockПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08881659F59BDD5808A3DFE892A1E85A55CC692
 ```
 
 https://mybot314.ru/tekegram_catalog/

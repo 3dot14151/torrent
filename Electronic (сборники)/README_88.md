@@ -1,3 +1,32 @@
+###  Публикация: 1535193   (686429) от 06.03.2022
+
+VA - Essential Synthwave (2022) [MP3|320 Kbps] <Electronic, Syntwave, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка современной футуристической электроники предлагается вашему вниманию и ждет своей оценки. Идеи представленных треков имеют под собой социально-футурологическую и научно-фантастическую направленность и способны вызывать в воображении слушателя сюрреалистические образы.001. Stockholm Youth - Fallin'
+002. Anchorsong - Plum Rain
+003. The Boomtown Rats - Man Like Me
+004. Benfika - Reflejo(   Читать дальше...   )Жанр: Electronic, Syntwave, SynthspaceПродолжительность: 09:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D119B9B1E1A54A03CBEC1CE35CCE0E5012B240A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535198   (686428) от 06.03.2022
 
 VA - The Techno Streaming Sound (Vol.03) (2022) [MP3|320 Kbps] <Techno, Electro, Minimal>
@@ -716,35 +745,6 @@ VA - Goa Summer (2016) [MP3|320 кб/с] <Trance, Goa Trance, Psychedelic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D848EB73A4F19DF0593D506AA69C7493344172B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029381   (682494) от 26.06.2016
-
-VA - Trance Euphoria Top DJ Dreams (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz With Fisherman & Hawkins -  Gotham Serenade (New York City)  (Original Mix) 6:56
-02. Giuseppe Ottaviani -  Liverpool (Standerwick Remix) 6:24
-03. Paul Van Dyk & Genix -  For You (Original Mix) 6:56
-04. Andrew Rayel -  Daylight (Club Mix) 5:09(   Читать дальше...   )Жанр: TranceПродолжительность: 09:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F9AE38FD7A48D73949EF0B16A069C1F3D6982FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

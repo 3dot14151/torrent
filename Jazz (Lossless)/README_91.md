@@ -1,3 +1,90 @@
+###  Публикация: 1396458   (746969) от 15.07.2020
+
+Charlie Shavers Featuring Maxine Sullivan - Four Classic Albums Plus 1954 - 1959 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746969.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Keepin' Out Of Mischief Now [2:50]
+02. How Can You Face Me? [3:19]
+03. S'posin' [3:38](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 02:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AD583FD77207EE86EE97097155CE320E3AB199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020133   (746905) от 25.05.2016
+
+Sonny Rollins - After the Bridge (1964) 2CD, Remaster, 2014, Sony Music[FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746905.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Fifty-Second Street Theme [14:54]
+ 02.Django [05:28]
+ 03.Now's the Time [16:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226D0B6F886FD30F8DA596F86125555607DF08AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524004   (746636) от 14.01.2022
+
+Anita O'Day - The Complete Recordings (1949 - 1950) 1997, Baldwin Street Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes [2:41]
+02. Memories of You [3:01]
+03. How Come? [2:44]
+04. I Can't Believe That You're in Love with Me [2:52](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF36E3F57BC77E77420EBE9CAC3A9BB74792E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524002   (746634) от 14.01.2022
 
 Ayako Hosokawa - Call Me (1979) 1989, Three Blind Mice [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -656,93 +743,6 @@ Al Di Meola - Orange And Blue (1994) [FLAC|Lossless]<Jazz, Fusion>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397034   (742743) от 18.07.2020
-
-Roy Eldridge - Three Classic Albums Plus (1954 - 1956) 2011, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742743.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I've Found A New Baby [9:19]
-02. I Can't Get Started [11:00]
-03. Trumpet Blues [7:57](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE40D7349BB836DE134DE085CA98EED594ACAF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397040   (742740) от 18.07.2020
-
-Franklin Kiermyer & Pharoah Sanders - Solomon's Daughter (1994) Evidence [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Die Before I Wake [14:53]
-02. Three Jewels [13:58]
-03. Akdemus [7:43]
-04. Peace on Earth [5:56](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D9411377920904AA2E316CA608117C7C096EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020401   (742513) от 28.05.2016
-
-Buddy De Franco - Sweet And Lovely (1956) Remaster, 2012, Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Getting A Balance [09:02]
- 02.That Old Black Magic [06:44]
- 03.They Say It's Wonderful [07:19]
- 04.But Beautiful [04:39](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D287D7FFF7C1A07691ED7045DAF82B59D161EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

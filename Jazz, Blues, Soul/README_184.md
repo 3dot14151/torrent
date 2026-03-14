@@ -1,3 +1,177 @@
+###  Публикация: 1536120   (678532) от 10.03.2022
+
+Buddy Rich - The Absolutely Essential 3 CD Collection (1930-е - 1960-е) 3CD, 2016, Big3 [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678532.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jim Jam Stomp [2:49]
+02. The Carioca [4:04]
+03. One O'Clock Jump [3:24](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703A2982E591C598DCF29D98EF7664CC0DBDFDD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290389   (678494) от 20.03.2019
+
+Phronesis - We Are All (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678494.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One for Us (09:02)
+2. Matrix for D.A. (07:05)
+3. The Edge (05:57)
+4. Emerald Horseshoe (05:30)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2958B3CEB5CFB1BED0D410CDD18915FBFB8232D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290288   (678493) от 20.03.2019
+
+Susie Arioli - Christmas Dreaming (2010) Spectra Musique [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have Yourself a Merry Little Christmas [4:10]
+02. Winter Wonderland [2:54]
+03. Blue Christmas [3:17]
+04. Call Collect on Christmas [3:37](   Читать дальше...   )Жанр: Vocal Jazz, ChristmasПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAD99AE648F5A52D5765B9B03F8E40B8D3E3E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290289   (678488) от 20.03.2019
+
+Susie Arioli - Spring (2015) Spectra Musique [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loverboy [3:56]
+02. Mean to Me [4:22]
+03. Dearest Darling [3:54]
+04. Can't Say No [3:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171DE8FA54477F8180ECF3AADCC9961CB1A445C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290414   (678486) от 20.03.2019
+
+Dale Cooper Quartet & The Dictaphones - Metamanoir (2011) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Ambient, Dub>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Une Petit Cellier
+02. Eux Exquis Acrostole
+03. Ma Insaisissable Abri
+04. Sa Prodigieux Hermitage(   Читать дальше...   )Производство: Denovali Records – den110Жанр: Dark Jazz, Ambient, Dub, Doom JazzПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94EF895807B6B5AF2008553B09EA0DF83F35340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290501   (678485) от 20.03.2019
+
+Dizzy Gillespie All-Star Groups & Big Band - Four Classic Albums (1954 - 1957) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678485.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Be Bop [12:51]
+02. Wee [8:30]
+03. Dark Eyes [12:10](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E823ABCD930B691CCBCBC5216DF0A03AA63875E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290292   (678483) от 20.03.2019
 
 Susie Arioli Band - Live At The Montreal International Jazz Festival (2006) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -583,186 +757,6 @@ VA - Milestones - Un incontro in Jazz (2007) [FLAC|Lossless|tracks + .cue] <Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D6EA92E1D7C13A52F79F78D99933391DCFA8145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029927   (676678) от 29.06.2016
-
-Tim Bowman - Tim Bowman (2008) [FLAC|Lossless|image + .cue] <Smooth Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Sundays (03:45)
-02. High Def (04:54)
-03. For You, My Love (04:02)
-04. Motor City Shuffle (04:13)(   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EDA8ABE2F8838A821850F041024FD57519871D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290753   (676598) от 21.03.2019
-
-Bo Kaspers Orkester - Hittills (1999) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svart att saga nej (3:25)
-02. Ett & noll (4:08)
-03. Allt ljus pa mig (4:12)
-04. Det gar en man omkring i mina skor (2:38)(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47A6A1306CDA4EBD9C6B6A0CEA64CB3549BE636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029975   (676408) от 29.06.2016
-
-Tim Bowman - Smile (2000) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart & Soul [04:34]
-02. Smile [04:13]
-03. Happiness Is [05:06]
-04. Wanda Patrice [03:50](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C6DBC66B4186AF7A23DED349D1B35755F0AEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509267   (676356) от 11.06.2012
-
-VA - The Best Of Blues - Величайшие мировые хиты (2000) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_676356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01..  Etta James -  I'd Rather Go Blind  (2:37)
-02..  Aretha Franklin -  Today I Sing The Blues  (2:48)
-03..  T-Bone Walker -  That Evening Train  (3:06)
-04..  Junior Wells -  Use Me  (5:18)
-05..  Charlie Musselwhite -  Trouble No More  (3:43)
-06..  Fenton Robinson -  Somebody Loan Me A Dime  (4:23)
-07..  The Mighty Houserockers -  Madison Blues  (3:32)
-08..  Tommy Tacker -  Drunk  (3:18)
-09..  Billy Boy Arnold & Tony McPhee -  Don't Stay Out All Night  (3:17)
-10..  Carey Bell& Willie Williams -  You Went Away Baby  (4:13)(   Читать дальше...   )2000Жанр: BluesПродолжительность: 02:16:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290690   (676326) от 21.03.2019
-
-VA - Bossa Nova for a Summer Day (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rien que je changerais - Papik, Francesca Gramegna 04:06
-02 Dawn Pye - Hammond Express 05:48
-03 How High the Moon - Ida Landsberg, Marco guidolotti, Domenico Sanna, Simone Salvatore, Dario Rosciglione, Andrea Nunzi 03:40
-04 I Guess I'll Have to Change My Plan - Christian Lisi, Swingin' Cats Jazz Quartet 03:42(   Читать дальше...   )Жанр: Jazz, Latin, LoungeПродолжительность: 01:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7DA7F8D1094F400F64C2B550F568CA92D72A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839176   (676064) от 27.11.2025
-
-Antone's 50th Allstars - Tell Me One More Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_676064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lou Ann Barton - Sugar Coated Love (3:42)
-02.  Snooky Pryor - I’m So Glad (4:04)
-03.  Angela Strehli - It Hurts Me, Too (3:12)
-04.  Lazy Lester - No Special Rider (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B351724419BD788EF91C04C9F2C7598A8240F504
 ```
 
 https://mybot314.ru/tekegram_catalog/

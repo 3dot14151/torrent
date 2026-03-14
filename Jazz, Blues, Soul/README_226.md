@@ -1,3 +1,189 @@
+###  Публикация: 525524   (596972) от 24.07.2012
+
+Various Artists - Blue Note Trip Vol. 10: Late Nights / Early Mornings 2CD (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_596972.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Lou Rawls - Lifetime Monologue (2005 digital remaster)
+02. Donald Byrd - Kofi
+03. Marlena Shaw - Woman Of The Ghetto (live)
+04. Reuben Wilson - Bambu (digital remastered)
+05. Moacir Santos - Off & On
+06. Doris - Beatmaker
+07. Grant Green - Let The Music Take Your Mind (live 2002 digital remaster)
+08. Horace Silver - The Sophisticated Hippie
+09. Nancy Wilson - Goin' Out Of My Head(   Читать дальше...   )Жанр: JazzПродолжительность: 02:14:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356906   (596946) от 29.06.2011
+
+VA - Coffee Time Jazz (2007) [FLAC|Lossless]<Jazz, Bossa Nova, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_596946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ella Fitzgerald - Black Coffee[03:30]
+02.Noro Morales & His Orchestra - Isla Verde [02:38]
+03.Paul Desmond - El Condor Pasa [03:06]
+04.Lalo Schifrin - Rapaz De Bem [02:35]
+05.Joe Henderson - Boto [06:37]
+06.Les McCann - Guantanamera [02:56]
+07.Cal Tjader - It Didn't End [03:58]
+08.Kenyon Hopkins - Hard Latin [02:13]
+09.Baja Marimba Band - Flyin' High [02:08]
+10.Chico O'Farrill - A Man And A Woman [02:31](   Читать дальше...)Жанр: Jazz, Bossa Nova, Smooth JazzПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150065   (596648) от 13.07.2017
+
+Edmond Hall - Four Classic Albums Plus (1954 - 1959) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596648.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Petite Fleur [04:09]
+02. Ellington Medley [09:43]
+03. Clarinet Marmalade [03:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4186CCECFFE294CFFE21FAE2A5D58D2319ECA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150090   (596627) от 13.07.2017
+
+Torque - Forward (2011) Neuklang [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forward [04:42]
+02. Der Kleine Nasenbar [04:11]
+03. Jungle [04:32]
+04. Bologna [04:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Modern CreativeПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0325D46369B4CCDDF31213F033A479A2A2664FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150141   (596616) от 13.07.2017
+
+Davey And The Blu Dog - Wake up Call (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One More (07:06)
+02. Get On Home (05:14)
+03. My Two Uncles (05:47)
+04. My Dog Drives Me Crazy (07:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AFB2BC88A8E07751DAB804F7E14A28EF0AD7F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150147   (596608) от 13.07.2017
+
+Rosanna Francesco - Musica Romantica (Jazz) (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musica strumentale
+02. Pianoforte e chitarra
+03. Lounge smooth jazz
+04. Magia della notte(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D43F3D48FBBF73728CE1522F1F9C03CDC93F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914824   (596581) от 03.07.2015
 
 Curtis Fuller - Soul Trombone (1961) /2015, Universal Music/[FLAC|tracks+.cue]<Jazz, Hard Bop>
@@ -579,180 +765,6 @@ Harold Land - Choma (Burn) (1971) 2014, Boplicity [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0A3F91EB76E3678481CA8A71F81AE0661867FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548318   (595095) от 05.05.2022
-
-Erroll Garner - Portrait (1944 - 1954) 10CD, 2003, Documents [FLAC|Lossless|image + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595095.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - I Hear A Rhapsody:
-01. Perdido [2:45]
-02. I Hear A Rhapsody (Parts 1&2) [8:19]
-03. You Where Born To Be Kissed [5:14](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 09:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6474D1309256D5D68B070629F0327A4FDBF0BECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232968   (595094) от 27.06.2018
-
-Sarah Vaughan And Her Trio - At Mister Kelly's (1957) 1987, Emarcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September In The Rain [3:43]
-02. Willow Weep For Me [5:14]
-03. Just One Of Those Things [3:10]
-04. Be Anything But Darling Be Mine [4:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE89978A58E571F42AEC5313936F06C8A9815359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300056   (595062) от 04.05.2019
-
-Eric Seva - Espaces Croises (2009) Le Chant du Monde [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Resonances [8:05]
-02. Crossroad [6:40]
-03. Espaces Croises [6:58]
-04. Place Duodurum [5:35](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2F8E77AE7BA73BC8F9FE185FBCE9C69C6190E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548616   (594994) от 05.05.2022
-
-Peggy Lee & June Christy - The Complete Peggy Lee & June Christy Capitol Transcription Sessions (1945 - 1949) 5CD, 1998, Mosaic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594994.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Make Love To Me [4:01]
-02. How High The Moon [1:45]
-03. Wrap Your Troubles In Dreams [2:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 04:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72602EAAB332CF8E98272EE019181CC10A11C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039756   (594806) от 02.08.2016
-
-Jimmy Jones - Jimmy Jones Trio (1954) Remaster, 2014, Sony Music[FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Easy to Love [03:15]
- 02.Little Girl Blue [03:48]
- 03.Lush Life [03:55]
- 04.Squeeze Me [03:54](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB1C26ED195FE2813F13CB01F5E8C12B3789D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039625   (594805) от 02.08.2016
-
-Kneebody + Daedelus - Kneedelus (2015) [FLAC|Lossless|image + .cue] <Jazz Funk, Electronic, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loops [00:06:20]
-02. The Hole [00:03:57]
-03. Drum Battle [00:05:24]
-04. They Are We [00:04:37](   Читать дальше...   )Жанр: Jazz Funk, Electronic, FusionПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC4708A9B77B944FB7A76A253E40DD8AF1F0423
 ```
 
 https://mybot314.ru/tekegram_catalog/

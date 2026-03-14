@@ -1,3 +1,61 @@
+###  Публикация: 1775106   (71469) от 25.01.2025
+
+Eric Prydz - Live @ 20 Years Of Pryda, HISTORY Toronto, Canada (2025-01-18) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pryda - Annexet
+02. Pryda - Bergen
+03. Eric Prydz - Liberate (Eric Prydz 2017 Remix)
+04. Pryda - The Hoax(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC54E05C836B1D53A4C4E75377783CC02E156CA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775095   (71466) от 25.01.2025
+
+Vintage Culture - Live @ Affairs, Green Valley Camboriu, Brazil (2025-01-04) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture & Fancy Inc & Meca - Electricity
+02. CamelPhat x ARTBAT ft. Rhodes - For A Feeling (Adam Sellouk & Y do I Remix)
+03. Elderbrook & Vintage Culture - Run (DEPARTAMENTO Remix)
+04. Gabss & Vintage Culture - Creatures(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 03:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFA416A87CC9692E96BE4E5F5B258001B282DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775434   (71443) от 26.01.2025
 
 Joel Corry - Tomorrowland Friendship Mix (2025-01-23) [MP3|320 Kbps] <Tech House, Techno>
@@ -686,64 +744,6 @@ VA - Armin van Buuren - A State Of Trance 1217 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4B5777C0BC7649B6D9409CC9C3DD76537A2181B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786563   (68960) от 21.03.2025
-
-VA - Ori Uplift - Uplifting Only Episode 632 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victor Special - Oriental Way (Intro Mix)
-02. Ciaran McAuley - Permission To Exhale (Uplifting Mix)
-03. Avenger - Orca (New World Remaster) (Orchestral Uplifting Classic)
-04. tranzLift - G-String Air(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9865ECF195C50909C919F2F5736AB46973F1A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787957   (68651) от 28.03.2025
-
-VA - Armin van Buuren - A State Of Trance 1218 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Rob Swire - Sound Of You (Tune Of The Week)
-02. EDX - Cobalt
-03. BLR & Amber Revival - Love Me Endless
-04. Jochem Hamerling - Tofino(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DFFDE72CD8A6A1D1AC3B648C82E86EF5963F30
 ```
 
 https://mybot314.ru/tekegram_catalog/

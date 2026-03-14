@@ -1,3 +1,32 @@
+###  Публикация: 1615200   (206197) от 28.02.2023
+
+DJ PafTron - TechnoTron Transformers (2023) [MP3|320 Kbps] <Techno, Hard Techno, Minimal Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rise Of The Machines Transformers (skit 1)
+02 DJ PafTron-TechnoTron Megatron
+03 Rise Of The Machines Transformers (skit 2)
+04 DJ PafTron-TechnoTron 2 Optimus Prime(   Читать дальше...   )Жанр: Techno, Hard Techno, Minimal TechnoПродолжительность: 11:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC362E8E0BD7DF472DD72A0A0E660C7A5DA77CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602497   (204430) от 05.01.2023
 
 VA - Радио Рекорд Итоговый Суперчарт 2022 - 100 лучших треков (2023) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - TOP Non-Stop 2010-2019 - Lounge & Chillout. Volume 2 (2022) [MP3|192-320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92499B6CD8CCBFF187788B03D0CDB55762DAEF62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408688   (200163) от 07.04.2023
-
-VA - TOP Non-Stop 2010-2019 - Dance House Music (2020) [MP3|192-320 Kbps] <Funky House, Techno House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Penn & KPD - Disc-Jockey (2018) (4:22)
-02. The New Elastics - It's Just A Word (Kellerkind remix, 2012) (5:28)
-03. David Penn - That Vibe (2017) (4:35)
-04. Cesar Merveille & Pablo Cahn-Speyer - Tribute (2010) (8:14)(   Читать дальше...   )Жанр: Funky House, Techno House, Progressive HouseПродолжительность: 07:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7BE9E6F0FB7300333E784B3EB8887BDA727603
 ```
 
 https://mybot314.ru/tekegram_catalog/

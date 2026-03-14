@@ -1,3 +1,32 @@
+###  Публикация: 1127801   (730948) от 22.04.2017
+
+VA - Folk Collection (2017) [MP3|320 Kbps] <Folk Rock, Country, World>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vince Gill - Take Me Down (feat. Little Big Town)  (05:02) 
+02. Alexandra Keller - Drawin' the Line  (03:05) 
+03. Blackmore's Night - The Moon is Shining  (06:19) 
+04. Blackmore's Night - The Spinner's Tale  (03:30) (   Читать дальше...   )Жанр: Folk Rock, Country, WorldПродолжительность: 02:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2229BA7753BA71B8194FF79ACB2B92AAB5C3BD60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021935   (730945) от 31.05.2016
 
 VA - Passion Dance Hit 90s (2016) [MP3|314-320 кб/с] <Electronic, Dance, Latin, Samba, Hard Trance, Euro House>
@@ -716,35 +745,6 @@ VA - Top 100 Зайцев.Нет Март 2018 [MP3|320 Kbps] <Pop, Dance, Other
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E7F2C59FF3A4C1F19F0B7C40303CDB2E9DA72D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128980   (724844) от 27.04.2017
-
-VA - Dancefloor Everyday Mix (2017) [MP3|192-320 Kbps] <Progressive, Electro, Indietronica, Bigroom, Future House, Club, Synthpop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Smooth & Tony Arzadon – Turn Up The Bass (Original Club Mix) 03:21
-02. Dan Slater & Jimjam F. Nalaya Brown – Minute Of You (Dirty Disco Club Mix) 07:28
-03. Rene Amesz – Liam (Rene Amesz Club Mix) 03:24
-04. Dan Slater & Jimjam F. Nalaya Brown – Minute Of You (George Figares & Dj Blacklow Club Mix) 06:17(   Читать дальше...   )Жанр: Progressive, Electro, Indietronica, Bigroom, Future House, Club, SynthpopПродолжительность: 09:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C53037791CD022A313F6FCF183C0F1D0BAFC5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

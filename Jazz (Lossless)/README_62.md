@@ -1,3 +1,90 @@
+###  Публикация: 1196920   (819197) от 05.01.2018
+
+Peggy Lee - Sings Leiber & Stoller (1952 - 1969) 2002, Hip-O Select [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kansas City [02:29]
+02. Some Cats Know [04:25]
+03. Don Juan [03:09]
+04. I Ain't Here [04:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E3CD19C9595A9C90417AF1A0E19E386EB11136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382525   (819140) от 11.05.2020
+
+VA - Jazz Covers 80s Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Wake Me Up Before You Go-Go
+02. Talisha Karrer - Livin’ on a Prayer
+03. Alice Lamb - Never Too Much
+04. Meg Birch - Town Called Malice(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E150BC8C5B8D8AD597C6F4D98CD28769D8EA8D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008083   (818103) от 17.04.2016
+
+David Reinhardt Trio - Colombe (2011) Cristal Records[APE|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lady [04:44]
+ 02.Xv [05:42]
+ 03.A Fool's Errand [05:11]
+ 04.Aparecida [06:20](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Guitar JazzПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A17833550AD7FF2A6B831AC9F819A55C24D7273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008092   (818100) от 17.04.2016
 
 Gonzalo Rubalcaba - XXI Century (2011) SPassion[FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
@@ -658,93 +745,6 @@ Julie London - The Ultimate Collection (2014) 3CD Box Set [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A00E8E518A8DC8B5006A4F4DD7922F09A4E388DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382888   (815682) от 13.05.2020
-
-Mildred Bailey - That Rockin' Chair Lady 1930-e (1994) Topaz Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Georgia on My Mind [3:32]
-02. Rockin' Chair [3:03]
-03. Is That Religion? [3:03]
-04. Harlem Lullaby [2:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A1495BE6C94B1EA9E5F8353449A998509139F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382883   (815677) от 13.05.2020
-
-Maynard Ferguson - New Vintage 1977 (2004) Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title (from the 20th Century-Fox Film 'Star Wars') [4:14]
-02. Oasis [6:31]
-03. Maria (from 'West Side Story') [6:28]
-04. El Vuelo (The Flight) [7:18](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6362A4D9FC39E69CE4DA1B37E3C1CDE77E084FA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117985   (815619) от 24.03.2017
-
-Gene Ammons - Boss Tenor (1960) 1999, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hittin' The Jug [08:32]
- 02.Close Your Eyes [03:48]
- 03.My Romance [04:17]
- 04.Canadian Sunset [05:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFB2728F1403EE4B45DD094CB3DC170DFA4F23B
 ```
 
 https://mybot314.ru/tekegram_catalog/

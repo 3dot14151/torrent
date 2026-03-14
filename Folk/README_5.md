@@ -1,3 +1,32 @@
+###  Публикация: 938280   (483655) от 17.09.2015
+
+Blackmore's Night - All Our Yesterdays (2015) [MP3|320 кб/с]<Folk, Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All of Our Yesterdays
+02. Allan Yn N Fan
+03. Darker Shade Of Black
+04. Long Long Time(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC9F5415D10838FFE17E36FF3DCFAE9A8CA3CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544980   (483226) от 11.09.2012
 
 William Jackson - Celtic Experience (Haunting Themes From Scotland & Ireland)   Vol.1-2 (1998-1999) [MP3|320 кб/с]<Folk, Celtic, Instrumental>
@@ -749,40 +778,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F45CD8035D543E208139644C42B6D729149BC474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709041   (419042) от 13.10.2013
-
-Летописи Междуречья - Странник (2012) [MP3|256-320 кб/с]<Folk-Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419042.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Странник (03:40)
-2. Художник и Богач (02:55)
-3. Летописи Междуречья (04:25)
-4. Шаман (02:51)
-5. Леший Овраг (03:49)
-6. Идущим (03:17)
-7. Воспоминания (04:40)
-8. На Лесном Озере (03:00)
-9. Летописи Междуречья - Война (03:40)Жанр: Folk-RockПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3A7A2DBD3A63D77173AAB6E4E00CFAB28234CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

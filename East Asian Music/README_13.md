@@ -1,3 +1,157 @@
+###  Публикация: 173161   (368064) от 04.11.2011
+
+RAMPANT - 2 albums (2008-2010) [FLAC|Lossless]<Jrock,metalcore,alternative metal,female vocal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_368064.jpg" />
+</div>
+
+
+###  Подробнее
+
+1- NAKED
+ 2- STILL GROWING FLOWER
+ 3- 道なき未知へ
+ 4- シロイハナ
+ 5- IF I AIN’T GOT YOU
+ 6- melt away2007-2008Жанр: Jrock,metalcore,alternative metalПродолжительность: 00:28:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415996   (367336) от 16.10.2020
+
+Crystal Lake (JAP) - 6 Albums, 4 Maxi-Singles (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watch Me Burn [00:03:29]
+02. Disobey [00:03:12]Жанр: MetalcoreПродолжительность: 9 CD, 03:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031853C7A07A98C23ECE18311D8068F5432BB540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573979   (366122) от 16.11.2012
+
+VA - Guitar Romantic (1992) [MP3|320 кб/с]<Instrumental>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366122.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2:50) 01. Duo Shao Rou Qing Duo Shao Lei
+(2:56) 02. Shui Neng Jin Zhi Wo De Ai
+(3:20) 03. Qian Yan Wan Yu
+(2:40) 04. Feng Qi Qi Yi Mian Mian
+(3:28) 05. Han Yu Qu
+(3:39) 06. Pu Tao Cheng Shou Shi
+(2:47) 07. Qing Ren De Yan Lei
+(3:16) 08. Lei De Xiao Yu
+(3:37) 09. Guan Da Nuo Mei La
+(2:39) 10. Wo Zen Neng Li Kai NiЖанр: InstrumentalПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02C2E9FBEAA24F2D28AB3A292DA0843713AFCE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569782   (365921) от 16.11.2012
+
+Ikuro Fujiwara - 2 albums (2005, 2009) [MP3|320 кб/с]<New age, Instrumental, Piano>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365921.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:46) 01. Tears Of Moonlight
+(2:01) 02. Half Moon
+(4:51) 03. Tsukino Hohoemi
+(5:21) 04. Deep Sea (Winter Sea)
+(5:56) 05. A Swan Lake In Moscow
+(1:37) 06. Fuurin
+(6:15) 07. Asian Girl
+(2:15) 08. Kogarashi
+(1:44) 09. Sakura Sakura
+(1:41) 10. Sumire(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 03:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3858438CE9DF7DE90E1CD2972616473C8B5AACBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576178   (365148) от 16.11.2012
+
+PSY - Gangnam Style (CD Single) (2012) [FLAC|Lossless]<K-Pop, Hip-Hop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_365148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gangnam StyleЖанр: K-Pop, Hip-HopПродолжительность: 00:03:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576423   (363935) от 17.11.2012
 
 VA - Beautiful Butterflies (2003) [MP3|320 кб/с]<Instrumental>
@@ -628,148 +782,6 @@ AlbumsЖанр: J-PopПродолжительность: 00:20:55
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77D944AC779E689ED01D6C554546B24462002702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579478   (336413) от 27.09.2022
-
-The Art of Mankind - Archetype (2018) 2CD [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Melodic Death MetalПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A46EC58244140806D3F8857A1C2269DD31342E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074821   (335764) от 20.11.2016
-
-Loudness - Lightning Strikes (2016) 30th Anniversary Limited Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Go 04:14
-02. Dark Desire 04:20
-03. 1000 Eyes 04:36
-04. Face To Face 03:50(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BE294BEC1DA9C3124C4249247C5E8C1E939402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074863   (335763) от 20.11.2016
-
-Loudness - Buddha Rock 1997-1999 (2016) 35th Anniversary Limited Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghetto Machine 05:04
-02. Slave 03:17
-03. Evil Ecstacy 04:10
-04. San Francisco 04:09(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65289CE1CF19E1B0A62781DECA6164DC6F73FCE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181268   (335066) от 06.11.2017
-
-Daisy×Daisy — 6 альбомов + 5 синглов (2008-2014) [MP3|320 kbps] <JPop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-(2013.03.20) Daisy×Daisy - Dangerous×Dizzy×Daisy
-(2013.11.27) Daisy×Daisy - TWINKLE BOX ~Daisy×Daisy BEST~
-(2014.08.27) Daisy×Daisy - REACTIVATIONЖанр: JPopПродолжительность: 00:08:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F06806D05382554A06E6C4FE054D8820851770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579647   (334530) от 28.09.2022
-
-Arclipse - City of Haze (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - World's begins (01:01)
-02 - The Haze (03:59)
-03 - Awake (04:00)
-04 - sub space (04:19)(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F01F2DB25721112D3F4FF35131FD227DF8F88E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

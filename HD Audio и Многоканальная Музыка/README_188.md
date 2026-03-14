@@ -1,3 +1,148 @@
+###  Публикация: 1786364   (69011) от 20.03.2025
+
+Accu§er (Accuser; ex-Breaker; ex-Scartribe) - Studio Albums (15 releases) (1985-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Accu§er - немецкая метал-группа. Основана в 1986 году в Зигене. В 1985 году выпустила альбом под именем Breaker. В период с 2002 по 2008 год носила название Scartribe.1985 - Dead Rider (as Breaker)
+1987 - The Conviction/Experimental Errors
+1989 - Who Dominates Who
+1991 - Double TalkЖанр: Thrash/Groove MetalПродолжительность: 12:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EAD40EA9348A5B6E42D04C7126F048D99681F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786366   (69010) от 20.03.2025
+
+High Spirits - Hard to Stop (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Since You've Been Gone
+02. Restless
+03. Face To Face
+04. Hearts Will Burn(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF2857DFEA9842CB06A7B3D8AF0132B112D94BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786568   (69000) от 21.03.2025
+
+Леонид Фёдоров & Игорь Крутоголов - В солнечном блеске (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В солнечном блеске
+2. Если солнце село в лужу
+3. Ворон к ворону
+4. Альбатрос(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DDFF8E92E103D343E413802F3775C14B45C159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786595   (68994) от 21.03.2025
+
+Tears For Fears - Songs For A Nervous Planet (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Say Goodbye To Mum And Dad [3:46]
+02 - The Girl That I Call Home [3:45]
+03 - Emily Said [4:00]
+04 - Astronaut [3:44](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Indie PopПродолжительность: 01:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5158CD24EC96AB4B0B0ACE370D7866D15527B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786566   (68975) от 21.03.2025
+
+Калевала - Глазами Офелии (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68975.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Колокольчик ищет волка
+2. Глазами Офелии
+3. Земной святой
+4. Соколица(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA31AA9581ED9D2D644B066A391EFE8CB86E66C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779606   (68973) от 21.03.2025
 
 Disarmonia Mundi - Studio Albums (6 releases) (2001-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
@@ -596,151 +741,6 @@ Mia Morgan - Silber (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deutschrock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9D297A26202E9982E3EFFCDE4A4385FB337D347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787048   (68857) от 23.03.2025
-
-Diamond Construct - Angel Killer Zero (2024) Deluxe Edition, 2025, Greyscale Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68857.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Hashira (00:02:56)
-✧ 02 - Jynx (00:03:22)
-✧ 03 - Neon (00:03:12)
-✧ 04 - Zodiac Memories (00:04:13)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B802DB21F3A16ACB7096A49236DEF391AA503F1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787052   (68856) от 23.03.2025
-
-Th Da Freak - Negative Freaks (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative , Grunge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WAS Mode [00:03:38]
-02. Kelso [00:03:19]
-03. 7 Pairs Of Keys [00:03:02]
-04. Rage Is Consuming Me [00:02:40](   Читать дальше...   )Жанр: Alternative , GrungeПродолжительность: 00:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9870ABDE3C18FC5F1B6E7B0905FC4107B2ADA425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786940   (68852) от 23.03.2025
-
-Sharp Pins - Radio DDR (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Power Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Time I Hear [00:02:43]
-02. Lorelei [00:01:55]
-03. You Don’t Live Here Anymore [00:03:50]
-04. If I Was Ever Lonely [00:02:21](   Читать дальше...   )Жанр: Power PopПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3064CB38F7A4976B599685109A962F446A3E8D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787080   (68845) от 24.03.2025
-
-Gotthard - Stereo Crush (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AI & I (2:53)
-02. Thunder & Lightning (3:38)
-03. Rusty Rose (4:14)
-04. Burning Bridges (3:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12E32E093517111906690260DAECC1EE26023A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787191   (68844) от 24.03.2025
-
-Nightwish - Angels Fall First (1997) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvenpath
-02. Beauty and the Beast
-03. The Carpenter
-04. Astral Romance(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D26DF54B0BA7C3C1A8F23BE7B711772124C960
 ```
 
 https://mybot314.ru/tekegram_catalog/

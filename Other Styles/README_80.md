@@ -1,3 +1,154 @@
+###  Публикация: 1035615   (626708) от 17.07.2016
+
+VA - Spirit Horse (2016) [MP3|320 Kbps] <New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wychazel - Earth Dance
+02. Jon Richards - Homeland
+03. Medwyn Goodall - Dances on Clouds
+04. Wychazel - Soul Journey(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 01:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1261736B5D2C19C7833DECF96323D54FC1E9A22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035470   (626662) от 17.07.2016
+
+Sean Christopher - Mystique (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metamorphosis [00:06:14]
+02. The Sacrifice [00:05:15]
+03. Ballerina [00:04:09]
+04. For Dreams May Come [00:03:18](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1678D02CA2D97BB3DFBD4805EF015C27ED82DB81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521529   (626624) от 11.07.2012
+
+Ennio Morricone - Film Music - 5 Альбомов (1987-2004) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как кинокомпозитор он был пять раз номинирован на «Оскар», а в 2007 году он получил «Оскар» за выдающийся вклад в кинематограф. Кроме того, в 1987 году за музыку к фильму «Неприкасаемые» он был удостоен премий «Золотой глобус» и «Грэмми». Среди фильмов, к которым Морриконе написал музыку, следует особо отметить следующие: «Нечто», «За пригоршню долларов», «На несколько долларов больше», «Хороший, плохой, злой», «Однажды на Диком Западе», «Однажды в Америке», «Миссия», «Малена», «Декамерон», «Багси», «Профессионал», «Неприкасаемые», «Новый кинотеатр „Парадиз“», «Легенда о пианисте», телесериал «Спрут». В 1996 году Эннио Морриконе вместе с фотографом Де Лука, Аугусто получил премию «Города Рима» за книгу "Наш Рим".1. The Ballad Of Hank McCain (2:04)
+ 2. Ad Ogni Costo (2:58)
+ 3. Main Titles Of The Sicilian Clan (3:43)
+ 4. Main Titles Of Violent City (2:29)
+ 5. The Iron Mayor (2:35)
+ 6. Goodbye Palermo (3:45)
+ 7. Deborah's Theme (4:23)
+ 8. Far Memories Of Sicily (2:30)
+ 9. Al Capone (2:57)
+ 10. End Titles (3:14)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD44401BCC9F58EE988F8752F3955D155A15FB23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035548   (626580) от 17.07.2016
+
+VA - Ghostbusters / Охотники за привидениями (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk The Moon - Ghostbusters (03:45)
+02. G-Eazy - Saw It Coming (Feat. Jeremih) (03:30)
+03. Elle King - Good Girls (02:59)
+04. 5 Seconds Of Summer - Girls Talk Boys (03:36)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81573188F13F784EF161975CABF29A79C905B981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035547   (626517) от 17.07.2016
+
+VA - Ghostbusters / Охотники за привидениями (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk The Moon - Ghostbusters (03:45)
+02. G-Eazy - Saw It Coming (Feat. Jeremih) (03:30)
+03. Elle King - Good Girls (02:59)
+04. 5 Seconds Of Summer - Girls Talk Boys (03:36)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9B484F3153D607621C42170ED31F045DE46021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229263   (626463) от 06.06.2018
 
 VA - Eamonn Karran - I’ll Be With You (2018) [MP3|320 Kbps] <New Age>
@@ -624,157 +775,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21D28A06DAC6C2C675C6CBD6CDD13C96699F804A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035935   (622654) от 19.07.2016
-
-California Guitar Trio - Masterworks (2012) [MP3|213~253 Kbps (V0)] <Instrumental, Acoustic, Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Passacaglia    05:43
-02.  Adagio Sostenuto, Moonlight Sonata    02:59
-03.  Presto Agitato, Moonlight Sonata    04:38
-04.  Adagio Opus 11    04:05(   Читать дальше...   )Жанр: Instrumental, Acoustic, ClassicalПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CBDA4D5159DC1A5C68D46E69213D6C738793843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295229   (622496) от 11.04.2019
-
-Our Native Daughters - Songs of Our Native Daughters (2019) [FLAC|Lossless|tracks + .cue] <Folk, Blues, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Myself (3:54)
-02. Moon Meets the Sun (4:07)
-03. Barbados (5:52)
-04. Quasheba, Quasheba (4:42)(   Читать дальше...   )Жанр: Folk, Blues, AmericanaПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88820EF7A32FA65D9FB890001317E82F3CC3A77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295042   (622376) от 11.04.2019
-
-VA - Country Forever (2019) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622376.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01.Dolly Parton - 9 To 5
-02.Tammy Wynette - Stand By Your Man(   Читать дальше...   )Жанр: CountryПродолжительность: 03:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6498A6B484BF91B21D37774F304F15EF14520BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219679   (621686) от 20.07.2010
-
-Namaste - True Crystals (2009) [MP3|256 kbps]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621686.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:12) 01. Hematite
-(6:32) 02. Citrine
-(6:09) 03. Amber
-(7:10) 04. Rose Quartz
-(6:33) 05. Adventurine
-(6:11) 06. Aquamarine
-(5:55) 07. Celestite
-(6:40) 08. Amethyst
-(6:33) 09. Clear Quartz
-(6:05) 10. Onyx(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145511   (621548) от 25.06.2017
-
-Wuauquikuna - VII: The Sun Of The Inka's (2016) [FLAC|Lossless|image + .cue] <Native American, Chillout, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andean Winds
-02. Dance Of Fire
-03. Maldito Licor
-04. The Sun Of The Inka's(   Читать дальше...   )Жанр: Native American, Chillout, WorldПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2470BD5CD96534ACAA5CE009DDC55EFCFDFA6723
 ```
 
 https://mybot314.ru/tekegram_catalog/

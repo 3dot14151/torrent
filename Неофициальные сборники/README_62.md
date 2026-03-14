@@ -1,3 +1,90 @@
+###  Публикация: 979941   (957409) от 28.01.2016
+
+VA - Atmosphere Bliss: Vocal And Uplifting Trance (2016) [MP3|320 кб/с] <Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957409.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beat Service - Reach The Sun (Chris SX Edit)
+002. Denise Rivera - The Day (Radio Edit)
+003. Dan Chase - Life Won't Let Us Fall (Radio Edit)
+004. Katty Heath - Love Again (Radio Edit)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 09:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6943F56C88933278292C7A6FC9D5E7734B8CED82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 748527   (957306) от 23.01.2014
+
+Joy - 25 Best Songs (2012) [MP3|~245 кб/с]<Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello 1986
+02. Touch By Touch 1986
+03. Cheek To Cheek 1986
+04. Fire In The Night 1986(   Читать дальше...   )Жанр: EurodanceПродолжительность: 01:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F60504DAB09BB21822101AAF338805C608E0BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980014   (957218) от 28.01.2016
+
+VA - Space And Time (2016) [MP3|320 кб/с] <Disco, Electonic, Space rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geraldine Cordeau - Space And Time `84 (5:29)
+02. Logic System - Orient Express `82 (4:14)
+03. Kraftwerk - Spacelab `78 (5:55)
+04. Supersempfft - Roboterwerke `79 (4:31)(   Читать дальше...   )Жанр: Disco, Electonic, Space rockПродолжительность: 05:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41394E2B7E762DC3403BFC5FF633E5194E2E3F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 748548   (957163) от 23.01.2014
 
 Deep Forest - 25 Best Songs (2012) [MP3|~245 кб/с]<New Age>
@@ -664,93 +751,6 @@ VA - 90s Dance Classics (2016) [MP3|320 Kbps] <Latin Pop, Jazz, Soul, Dance, RnB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4660B9EF7FACF1A4DA04307802C0D2214A29989A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088471   (955145) от 01.01.2017
-
-VA - Discoteka 2016 Dance Club. New Year's release (2016) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ferrazzy - One More Time (Radio Edit) 3:39
-002. Thomas Gold Ft. Jillian Edwards - Magic (Original Mix) 2:51
-003. R3HAB & Skytech - Everything (Extended Mix) 4:15
-004. David Guetta & Cedric Gervais Ft. Chris Willis - Would I Lie To You (Extended Mix) 4:48(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E79F4562AB44C9DF5812192280076B1F8580F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361301   (955129) от 19.02.2020
-
-VA - Дискотека 2020 Deep House - The Best Vol.7 от NNNB (2020) [MP3|320 Kbps] <Deep House, Nu Disco, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diego Power - Don't Look at Me (Original Mix) (5:08)
-02. Serge Legran - Love me like crazy (4:19)
-03. TRITICUM - Waiting For (Original Mix) (3:06)
-04. A. Rassevich, Susie Johnson - The Dice (5:13)(   Читать дальше...   )Жанр: Deep House, Nu Disco, OtherПродолжительность: 38:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67076521951D0D0F6C9FECDA807B75355E192AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088808   (955069) от 01.01.2017
-
-VA - Record Dance Label: Compilation Vol.7 (Christmas Edition) (2017) [MP3|320 Kbps] <House, Melodic, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slider & Magnit - Another Day in Paradise 3:03
-02. DJ Feel & Aelyn - Где ты 3:25
-03. Макс Корж - Бессонница (Swag Time Show Remix) 2:49
-04. Марсель & JuicyTrax - По небу 3:41(   Читать дальше...   )Жанр: House, Melodic, Dance, ClubПродолжительность: 02:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044AE027BECEA8CBAAE49E9BA597D6D854F787CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

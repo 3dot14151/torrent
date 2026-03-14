@@ -1,3 +1,90 @@
+###  Публикация: 1292159   (648851) от 28.03.2019
+
+Mike Melvoin, Charlie Haden, Bill Henderson - The Capitol Sessions (2000) Naim [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bud's Open [3:50]
+02. I Think You Know [5:55]
+03. You Won't Hear Me Say Goodbye [4:42]
+04. Here's Looking at You [5:14](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9426B1776C7F5367389A53B830F9908EB5E5AC8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141694   (648815) от 11.06.2017
+
+Lars Gullin - with Chet Baker: 1955 - 56, Vol.1 (1992) Dragon Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny's Dream [04:21]
+02. Igloo [05:26]
+03. Lars Meets Jeff [05:34]
+04. Cool Blues [03:21](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE1B1F9410825679C1677A5DA8F9580AF62C741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141811   (648814) от 11.06.2017
+
+Bob Belden Ensemble - Treasure Island (1990) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Treasure Island - 7:40
+02. Deja Vu - 9:17
+03. The Treasure - 4:51
+04. Rites of Passage - 5:15(   Читать дальше...   )Жанр: Contemporary Jazz, Post-Bop, FusionПродолжительность: 01:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADF0A40C091B9B7656245E519813CF70F9041A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141690   (648611) от 11.06.2017
 
 Chick Corea - The Musician (2017) 3CD, Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
@@ -658,93 +745,6 @@ Denny Zeitlin - Cathexis (1964) Remaster, 2014, Sony Music[FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F93F67623F68F026D9664CED1F70E9FD8ABCF741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032364   (646171) от 07.07.2016
-
-Darji & Hank Jones - Darji Meets Hank Jones (1982) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Darji's Groove [03:54]
- 02.Sugmad's Lullaby [07:39]
- 03.Soul Speaks [10:08]
- 04.Happy Blue [04:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:372EBC68CD01F1770F539859BA5F9C43460F8AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032466   (646168) от 07.07.2016
-
-Kenny Dorham - Whistle Stop (1959, 1961) 2CD, 2012, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646168.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Whistle Stop:
-01.Philly Twist [05:40]
-02.Buffalo [07:40]
-03.Sunset [06:20](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C8632A0FB2970EA2F69F6BB1DC36D1939F3A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032477   (646061) от 07.07.2016
-
-Pamela Williams - Eight Days of Ecstasy (1988) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scarlet (5:49)
-02. Still in Love (4:34)
-03. Love in the Afternoon (4:27)
-04. I've Got Love on My Mind (3:32)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7ECDB92DC5554B2AE088637E40DB1C8A23FCDA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

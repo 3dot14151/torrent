@@ -1,3 +1,177 @@
+###  Публикация: 1016701   (759281) от 18.05.2016
+
+Bryan Lee - Crawfish Lady (2000) [WavPack|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Palace Of The King [03:48]
+ 02. Louisiana Woman [05:16]
+ 03. Can't Get Enough [03:17]
+ 04. Crawfish Lady [05:18](   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE16F235C646B441D43A0B44490C2109A507EC87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018012   (759279) от 18.05.2016
+
+Bombino (Omara “Bombino” Moctar) - Azel (2016) [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akhar Zaman (This Moment) (03:52)
+02. Iwaranagh (We Must) (05:00)
+03. Inar ( If You Know the Degree of My Love for You) (03:47)
+04. Tamiditine Tarhanam (My Love, I Tell You) (04:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC3A642F7F553E257FF50B47C9F408C51734D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017886   (759275) от 18.05.2016
+
+Herb Ellis, Joe Pass, Ray Brown, Jake Hanna - Jazz / Concord (1972) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Look For The Silver Lining [04:48]
+ 02.Shadow Of Your Smile [02:32]
+ 03.Good News Blues [03:23]
+ 04.Honeysuckle Rose [03:08](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF2C47F846191C3778D23885E371AEAD27E9D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017767   (759270) от 18.05.2016
+
+Oz Noy - Twisted Blues Volume 1 (2011) [FLAC|Lossless|tracks + .cue] <jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twisted Blues
+02. Oh Really?
+03. You Are The State
+04. Whole Tone Blues(   Читать дальше...   )Жанр: jazzПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8BF0790A946D128AF9D764283C4AB653DE674E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017907   (759082) от 18.05.2016
+
+Нино Катамадзе & Insight - Yellow (2016) [FLAC|Lossless|image + .cue] <World Music, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song Is All I Have
+02. Yellow Dogs
+03. Feels Like Never Before
+04. The Side Of The Sun(   Читать дальше...   )Жанр: World Music, JazzПродолжительность: 00:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1948A2E93C5F45AC7274A71CF3AE68EBD3A25819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017861   (759077) от 18.05.2016
+
+Gregory Porter - Take Me To The Alley (Deluxe Edition) (2016) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding On
+02. Don't Lose Your Steam
+03. Take Me To The Alley
+04. Daydream(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451966EF6BB50D75B5DEC43298AE4B48428350FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394999   (758916) от 08.07.2020
 
 Bill Evans - Symbiosis 1974 (1994) MPS Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Third Stream>
@@ -572,180 +746,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0FC531416E3A1AB664F0CCC9B7506016612CFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215779   (756743) от 27.03.2018
-
-Paul Jeffrey - Watershed (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minor Scene [05:20]
-02. Brand New Day [06:02]
-03. Love Letters [05:46]
-04. Moon Madness [05:57](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A975549D4551F4EEBB3D25A5CC3507B25BA084FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522794   (756637) от 08.01.2022
-
-Brett Littlefair - Footstompin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Little Town (2:49)
-02. Girl Can Groove (3:28)
-03. Stop Your Talkin' (2:46)
-04. Makin' My Name (3:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CC00E0AFBBD6326E54CD79249A5EBFB5B8CE6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522797   (756636) от 08.01.2022
-
-The Dave Paul Band - Loving the Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Shiver (3:58)
-02. Further on up the Road (2:36)
-03. Hey Joe (5:38)
-04. Rolling Stone (5:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B0D368F54E6DA0BA46A58FE677576C4AE40DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215541   (756353) от 27.03.2018
-
-Original Chicago Blues All Stars - Gold (2018) 2CD [FLAC|Lossless|WEB-DL|tracks]
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756353.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01.  Original Chicago Blues All Stars Theme  4:04
-02.  Eyesight To The Blind  4:40
-03.  How Long Blues  4:25(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 01:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC00F7E87DA4DDB47D71EDB8653555218849A293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215833   (756339) от 27.03.2018
-
-Mario Biondi - Brasil (2018) [MP3|320 Kbps] <Jazz, Soul, Pop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felicidade
-02. Devotion
-03. Upside Down (Flor De Lis)
-04. Rivederti (Italian Version)(   Читать дальше...   )Жанр: Jazz, Soul, PopПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFA80F9E7258A5CD7EAC3F443E7F20EB64ED5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018447   (756035) от 20.05.2016
-
-Bobbi Humphrey - Dig This! (1972) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lonely Town, Lonely Street [04:37]
- 02.Is This All? [03:44]
- 03.Smiling Faces Sometimes [06:22]
- 04.Virtue [04:28](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-FunkПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736254EF1770D669F5ABB459F7BF51F0F648D067
 ```
 
 https://mybot314.ru/tekegram_catalog/

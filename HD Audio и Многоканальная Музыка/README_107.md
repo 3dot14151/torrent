@@ -1,3 +1,148 @@
+###  Публикация: 1707366   (113273) от 17.03.2024
+
+Savage Oath - Divine Battle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knight of the Night (7:21)
+02. Wings of Vengeance (6:52)
+03. Blood for the King (6:45)
+04. Smoke at Dawn (2:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A2F22A05D76F2CBB2107D783966365C97405E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707660   (113256) от 17.03.2024
+
+M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113256.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Land Of The Free
+A2 Devolution
+A3 Repent
+A4 The Angry Man(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DB94CAB33BABA1A705F146B9CFEAD888DB5471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707548   (113255) от 17.03.2024
+
+M.O.D - Surfin' M.O.D (1988) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movie Side
+A1 Goldfish From Hell
+A2 Totally Narley Talking By Katrina & Bill
+A3 Surfin' U.S.A.(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60AD2ED7C2A630227DB595ACE1D83F5F5EFC9E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707362   (113249) от 17.03.2024
+
+Charles Lloyd - The Sky Will Still Be There Tomorrow (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Bop, Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Defiant, Tender Warrior (4:17)
+02. The Lonely One (5:46)
+03. Monk’s Dance (6:50)
+04. The Water Is Rising (5:08)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B20653882BEEE382670F10F1FB5E0FF07965E4B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707376   (113248) от 17.03.2024
+
+Coventhrall - Legacy of Morfuidra (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (1:56)
+02. Morfuidra (4:14)
+03. Dreadnought (3:49)
+04. In These Halls (5:16)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCDCEBCEF89C448D6CE94E82071CEE6D8E1E57A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707618   (113245) от 17.03.2024
 
 The Rebel Saints - The Rebel Saints (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -599,151 +744,6 @@ Aloboi - Urban Hermit (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <house, downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E26B848546AC63B626E4190893DA83AAF36DB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708012   (113125) от 19.03.2024
-
-Marco Castelletti - Sonic Sketches (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riflessioni Nella Sauna (2:03)
-02. Quivering Melodies (2:36)
-03. Curve (2:16)
-04. Serene Summertime (2:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBAC70FFA6A2909DA7782F2F959383D7339845F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707883   (113124) от 19.03.2024
-
-The Black Crowes - Happiness Bastards (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Hard Rock,>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bedside Manners (3:41)
-02. Rats and Clowns (3:34)
-03. Cross Your Fingers (3:50)
-04. Wanting and Waiting (4:16)(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Hard Rock,Продолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E646FCD3071F6AB0136C1443C54751CEFFC6C035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707767   (113122) от 19.03.2024
-
-Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113122.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Transilvanian Hunger
-A2 Over Fjell Og Gjennom Torner
-A3 Skald Av Satans Sol
-A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708016   (113118) от 19.03.2024
-
-Naima Farao - Dots (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Space (0:58)
-02. Heirloom (4:32)
-03. Vortex (2:49)
-04. Buoyancy Of Water (3:40)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A70D9E429059AD556BC80D01497B23807F0878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708011   (113117) от 19.03.2024
-
-Jutesets - Spring Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring Planet (2:52)
-02. Happy Earth (2:53)
-03. Yellow Bird (2:35)
-04. Balmy Night (2:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B3166E0EB7AD153662AE80ED59AD500D7DE58F
 ```
 
 https://mybot314.ru/tekegram_catalog/

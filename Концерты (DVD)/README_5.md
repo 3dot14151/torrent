@@ -1,3 +1,29 @@
+###  Публикация: 328597   (715300) от 26.04.2011
+
+Елена Ваенга - "Белая Птица" (2010) SATRip - DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_715300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка, шансонПеревод: ОригинальныйФормат: DVD videoПродолжительность: 1:43:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024290   (713803) от 10.06.2016
 
 Bryan Ferry - Nuits de Fourviere. Live in Lyon (2011) DVD5
@@ -722,41 +748,6 @@ Vaya Con Dios - Live 2005 & 2006 (2016) TVRip>DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D8146ABB9467694250EC2A71E7DFBADD7AD16FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518346   (643617) от 03.07.2012
-
-The Realm Of Napalm Records Vol. III (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Napalm Records представляет фанатам тяжелой музыки новый, третий DVD сборник лейбла. Треклист DVD включает в себя такие великие группы как Monster Magnet, Grave Digger, Alestorm и много других.1. ALESTORM - Shipwrecked
-2. ARKONA Liki - Bessmertnykh Bogov
-3. ARKONA - Stenka Na Stenku
-4. ARKONA - Yarilo
-5. ARTAS - Rassenhass
-6. DIABULUS IN MUSICA - Sceneries of Hope
-7. DRACONIAN - The Last Hour of Ancient Sunlight
-8. EDENBRIDGE - Higher
-9. FEJD - Gryning
-10. GRAVE DIGGER - Highland FarewellЖанр: MetalПеревод: ОтсутствуетФормат: DVD VideoПродолжительность: 03:52:20
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

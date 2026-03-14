@@ -1,3 +1,90 @@
+###  Публикация: 1027886   (694936) от 20.06.2016
+
+The Phil Woods Quartet With Gene Quill - Phil Talks With Quill (1957) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Doxie I [05:56]
+ 02.A Night In Tunisia [09:12]
+ 03.Hymn For Kim [08:11]
+ 04.Dear Old Stockholm [09:14](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F34AE4C0118763DC626641882D63F63BE7C92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027917   (694696) от 20.06.2016
+
+Lazy - Dirty Martini (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694696.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dirty Martini
+ 2. Baby
+ 3. Mirror
+ 4. Cold(   Читать дальше...   )Жанр: Jazz, Pop, VocalПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF45A711C8AEF99CD5CD34A7056435E8ED3AC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534506   (694371) от 02.03.2022
+
+John Bunch - An English Songbook (2003) Chiaroscuro Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hadn't Anyone 'Til You [3:54]
+02. Pure Imagination [3:56]
+03. What Kind of Fool Am I? [3:39]
+04. A Nightingale Sang in Berkeley Square [3:30](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2623C62ACF238D42F3C62281655A6CF6214042F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288696   (694311) от 12.03.2019
 
 Fire! Orchestra - Exit (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz, Free Improvisation>
@@ -653,93 +740,6 @@ Paul Desmond - Glad To Be Unhappy (1963, 1964) 2017, Sony Music [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F848A54BC17BDC0B473A8BC34635789B3668B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221770   (691538) от 26.04.2018
-
-Serge Chaloff - Blue Serge (1956) 1992, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Handful of Stars  [05:38]
-02. The Goof and I [04:49]
-03. Thanks for the Memory  [03:51]
-04. All the Things You Are  [05:31](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7A81D25E907608F38BFB93331A023C2DB7C24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028129   (690971) от 22.06.2016
-
-Joanne Brackeen & Clint Houston - New True Illusion (1976) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Steps - What Was [09:16]
- 02.Search For Peace [06:07]
- 03.New True Illusion [08:56]
- 04.My Romance [07:56](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39D7C9BC05A219382311E3945302D999CD85742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028207   (690967) от 22.06.2016
-
-Warren Wolf - Convergence (2016) Mack Avenue Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Soul Sister [04:57]
- 02.Four Stars From Heaven [11:07]
- 03.King Of Two Fives [05:09]
- 04.New Beginning [04:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82609F1270DD93F95A2EE36C1D757277809C85F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

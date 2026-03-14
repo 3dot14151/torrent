@@ -1,3 +1,151 @@
+###  Публикация: 1411859   (422961) от 27.09.2020
+
+Голос Омерики - Чехословакия (2020) [FLAC|Lossless|WEB-DL|tracks] <Ska-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как ох**нно нигде не работать [00:03:57]
+02. Министр культуры [00:03:38]
+03. Чёрный плащ [00:02:49]
+04. Мизантроп [00:03:29](   Читать дальше...   )Жанр: Ska-PunkПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D7069A93EE4546F6432560031AFD6B7167FD52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411776   (422953) от 27.09.2020
+
+Кис Кис - 3 Albums / 3 Singles (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Punk, Electroclash>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карантин-Single [00:03:29]Жанр: Pop-Punk, ElectroclashПродолжительность: 6 CD, 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B82843674FA24CB3FBFDF0C8807E49C83F1188F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324694   (422914) от 10.09.2019
+
+VA - Без меня. Трибьют Егора Летова (2019) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Indie Rock, Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422914.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ploho - Мы - лёд
+2. ГРОМЫКА - Слава психонавтам
+3. Гречка - Всё идёт по плану
+4. Найк Борзов - Про дурачка(   Читать дальше...   )Жанр: Punk Rock, Indie Rock, Hip-HopПродолжительность: 01:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FF77701A66CAF576F683BA91088BFBCD7887B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557182   (421450) от 07.10.2012
+
+Аквариум - Воздухоплавание В Компании Сфинксов (2012) [FLAC|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_421450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дед Мороз Блюз (04:01)
+02. Бригадир (02:11)
+03. Под Мостом Как Чкалов (04:58)
+04. Генерал (03:22)
+05. Из Дельты Гнезда (03:52)
+06. Слова Растамана (06:15)
+07. ХХIIй Век (07:41)
+08. Та, Котрую Я Люблю (03:54)
+09. 4D (04:26)
+10. Новая Песня о Родине (03:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 709724   (421413) от 12.10.2013
+
+Глеб СамойлоFF & The Matrixx - Живые но Мертвые (2013) [FLAC|Lossless]<Neo-Post-Gotic, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421413.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 0-0
+2. Меня зовут
+3. Доброе утро, товарищ мертвец
+4. Москва-река(   Читать дальше...   )Жанр: Neo-Post-Gotic, RockПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54471AFA6220A2FFEB5438867D6D9B1B103771B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250619   (420102) от 30.09.2018
 
 BY CRY - BY CRY (2015) [FLAC|Lossless|tracks + .cue] <Folk, Rock>
@@ -631,149 +779,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCEF83B1FBC9E040CB18F335FCABF21192EC3D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413746   (407167) от 05.10.2020
-
-Кипелов feat. Симфонический оркестр - Live в Crocus City Hall, Москва, 13/03/2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407167.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро (Инструментал) (Live в Москва; feat. Симфонический оркестр)
-2. Жить вопреки (Live в Москва; feat. Симфонический оркестр)
-3. Власть огня (Live в Москва; feat. Симфонический оркестр)
-4. Вавилон (Live в Москва; feat. Симфонический оркестр)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5267B5768FC3D201F5749B957634C2AF16CFF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565272   (400908) от 25.10.2012
-
-П.Т.В.П. (Последние Танки В Париже, ПТВП, Лёха/Алексей Никонов) - Ультиматум (2012) [FLAC|Lossless]<Punk Rock, Rock, Punk Hardcore, Noise>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-___________________________
-01.Жанр: Punk Rock, Rock, Punk Hardcore, NoiseПродолжительность: 00:32:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170161   (399216) от 01.10.2017
-
-Кипелов - Звезды и Кресты (2017) [FLAC|Lossless|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Звезды и кресты
-03. Рожденный летать
-04. Дама Пик(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D6D5FBAB7BC73670AC2B0AF1A13A5FD4AABA70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171358   (395694) от 05.10.2017
-
-Amatory - Огонь (2016) EP [FLAC|Lossless|tracks] <Alternative Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Монстр (feat. ATL) (3:15)
-02. Огонь (3:33)
-03. Молчание (3:40)Жанр: Alternative Metal, Nu-MetalПродолжительность: 00:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD5203BF1AA2C1A8473D857C7AFAD74A993AE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171357   (395634) от 05.10.2017
-
-Amatory - 6 (2015) [FLAC|Lossless|tracks] <Alternative Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Первый (3:18)
-02. Прощай (3:24)
-03. Имя война (3:14)
-04.  15/03 (3:50)(   Читать дальше...   )Жанр: Alternative Metal, Nu-MetalПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C5F37639DB4C32592617299B961E448905AB2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

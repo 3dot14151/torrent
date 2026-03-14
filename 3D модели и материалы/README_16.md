@@ -1,3 +1,30 @@
+###  Публикация: 1227262   (646580) от 26.05.2018
+
+3D модели - Daz 3D - Floyd 8 Pro Bundle - 51347 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Floyd 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA41E49338A9960A8ABAA5E10A31606AF7103A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032744   (643445) от 08.07.2016
 
 3D модели - Aston Martin 3D Collection [V-Ray|*.max]
@@ -653,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:449D88003EDF9FD1D598127FECBA04790A4E33C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302819   (579323) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [LXO]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: LXO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FCB53ACA9A523ACE2D4DF7EFB51F5E65C99F7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

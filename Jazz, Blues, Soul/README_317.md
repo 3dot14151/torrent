@@ -1,3 +1,182 @@
+###  Публикация: 1173303   (390650) от 11.10.2017
+
+Kuh Ledesma - Unforgettable (1986) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fascinating Rhythm [02:57]
+02. It Had to Be You [03:59]
+03. Too Marvelous for Words [03:19]
+04. Singing in the Rain [03:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7998FC6C56576B702BB33392AE3E8187928FDB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173298   (390621) от 11.10.2017
+
+Quincy Jones - Complete Recordings 1960-1962 (2014) 4CD, Enlightenment Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390621.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pleasingly Plump [02:18]
+02. G'Wan Train [06:22]
+03. Moonglow [02:50](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Pop, Big BandПродолжительность: 04:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8FADC3FC07E3217750831C36CAF4AF10FFE417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 151048   (390544) от 07.11.2009
+
+Paul Brown - The City (2005) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_390544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Monkey 04:37
+02. Hello Again 03:58
+03. Side Steppin' 03:35
+04. The City 05:01(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173583   (389783) от 12.10.2017
+
+Eddie Heywood - 1944-1946 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just You, Just Me [03:14]
+02. Save Your Sorrow [01:43]
+03. Begin The Beguine [03:24]
+04. Blue Lou [03:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A9FD435C96F4AE803701CE75C0E670BC29CAF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173589   (389781) от 12.10.2017
+
+James Carter - Gardenias for Lady Day (2003) Columbia [WavPack|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gloria [06:02]
+02. Sunset [05:25]
+03.Жанр: Post-BopПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B726404DEE5710D55CDAC84A498DB866CFC78D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570847   (389404) от 06.11.2012
+
+Burton Gaar - Fried Grits & Greens (2011) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_389404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fried Grits & Greens
+ 02. Last Train To Memphis
+ 03. Trouble
+ 04. Drowning In the Blues
+ 05. One Step Away
+ 06. Sugarfied
+ 07. Turn Around
+ 08. Wake Up and Watch me Leave
+ 09. So Over You
+ 10. Strung Out On the Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 52:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570863   (389399) от 06.11.2012
 
 Bugs Henderson Group - Backbop (1998) [FLAC|Lossless]<Blues-Rock>
@@ -587,181 +766,6 @@ Jessica Williams - Higher Standards (1997) Candid [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:116FA051A3E0DD2DD5AA7C19087BFA3CEF6B7C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414051   (387592) от 07.10.2020
-
-Rob Barron - From This Moment On (2020) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rob Barron - оплот лондонской джазовой и студийной сцены. Постоянно пользующийся спросом, высоко ценимый за его импровизационное чутье, врожденную музыкальность и ловкость, которые раскрывают влияния, вдохновленные великими музыкантами Blue Note greats Cedar Walton, Wynton Kelly and Sonny Clark.
-Его любовь к фортепиано возникла в раннем возрасте и быстро превратилась (   Читать дальше...   )01. Lover Man (04:56)
-02. Pure Imagination (05:59)
-03. My Foolish Heart (06:25)
-04. Butch and Butch (04:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC608141C030A1F75143DA4CEF734290A17A8E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174125   (387540) от 14.10.2017
-
-Jessica Williams - In The Key Of Monk (1997) 1999, Jazz Focus [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bemsha Swing [04:39]
-02. Just a Gigolo [04:32]
-03. Reflections [06:03]
-04. I Love You Sweetheart of All My Dreams [03:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D304C21C7CBD6B531C75BD0E9C3B9D147D2A8EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326272   (387433) от 19.09.2019
-
-Herbie Mann - Windows Opened & The Inspiration I Feel (1968) 2001, Collectables [FLAC|Lossless|tracks + .cue] <World Fusion, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is a Mountain [6:07]
-02. If I Were a Carpenter [5:41]
-03. Paper Man [6:49]
-04. Footprints [8:27](   Читать дальше...   )Жанр: World Fusion, Jazz-PopПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BAE7728E26CC78B270B7CC3C22E18EA6D51E5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326279   (387431) от 19.09.2019
-
-Randy Waldman - Superheroes (2018) BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Adventures of Superman (TV Theme) [6:53]
-02. Mighty Mouse Theme [5:17]
-03. Spiderman Theme [5:08]
-04. Superman (Movie) [4:52](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Big BandПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0708330AD64719401D0F8A9A5E6794671CF889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326310   (387029) от 19.09.2019
-
-Blues Ball - Blues Ball (2003) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's On A Roll
-02. I Know Why
-03. Her Memory
-04. These Blues(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D13323BD0253BCDCF3B3518E7699FAF559C6C52F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067378   (386833) от 29.10.2016
-
-VA - 100 Hits - Ultimate Soul (2016) 5CD, Box Set [FLAC|Lossless|tracks + .cue] <Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc - 01
-01. Bill Withers - Ain't No Sunshine
-02. Champaign - How 'Bout Us
-03. Marvin Gaye - Sexual Healing(   Читать дальше...   )Жанр: SoulПродолжительность: 06:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDE8C8F1F71A06D86D940ED2B7BFFCC2F531615
 ```
 
 https://mybot314.ru/tekegram_catalog/

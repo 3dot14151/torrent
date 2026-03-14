@@ -1,3 +1,61 @@
+###  Публикация: 1640463   (211256) от 17.06.2023
+
+Expose - 2 Albums (1987, 1989) LP [MP3|320 Kbps] <Electronic, Freestyle, Electro, Synth-pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанная в 1984 году в Майами компания Exposé (первоначально X-Posed) была детищем продюсера танцевальной музыки Льюиса А. Мартини. Полностью женское трио состояло из Сандры Казанас, Алехандры Лоренцо и Лори Миллер.01. Come Go With Me (4:21)
+02. Let Me Be The One (4:23)
+03. Exposed To Love (3:36)
+04. Seasons Change (4:55)(   Читать дальше...   )Жанр: Electronic, Freestyle, Electro, Synth-pop, Dance-popПродолжительность: 01:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F788537FF397299E3D04B12363266D611999636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642527   (210367) от 28.06.2023
+
+VA - Fall in Love this Summer (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U2 - With Or Without You (4:56)
+02. Lifehouse - You And Me (3:15)
+03. Surfaces - Grace (2:26)
+04. Stephen Sanchez - Lady by the Sea (3:02)(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF95454725DC5C9839EE6857A364788E61F88B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645592   (209371) от 10.07.2023
 
 VA - Easy Modern Classics (2023) [MP3|320 Kbps] <Pop>
@@ -687,66 +745,6 @@ Demis Roussos - Complete 28 Original Albums (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33F06B69EA9A59EE855AF6589D81E9B094F3C56F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 6708   (202264) от 22.08.2023
-
-Toto Cutugno (Тото Кутуньо) [Сборник] <Pop>
-
->>След.
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тото Кутуньо (7.07.1943 - 22.08.2023) — итальянский композитор, эстрадный певец.
-Родился 7 июля 1943 в городке Фосдиново, Тоскана. Полное имя - Сальваторе Кутуньо. Его отец, сицилиец по происхождению, служил в военном флоте, а в свободное время увлекался игрой на трубе. Именно он дал сыну первые уроки музыки.
-У Кутуньо нет музыкального образования - он самородок. (   Читать дальше...   )1. Toto Cutugno - L'йtй Indien (Africa) (5:14)
-          2. Toto Cutugno - A... Rio (3:41)
-          3. Toto Cutugno - Adulele (3:53)
-          4. Toto Cutugno - Aeroporto Kennedy (4:11)(   Читать дальше...   )Жанр: ПОП
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4486F46FBDAE513A696AD9EB848F3C829C53E2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619053   (201372) от 14.03.2023
-
-VA - NRJ Hit List (2023) [MP3|320 Kbps] <Europop, Synthpop, Dancehall, Afrobeat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aya Nakamura - Baby
-02. Soprano - 3615 Bonheur
-03. Central Cee - Let Go
-04. Pierre De Maere - Enfant De(   Читать дальше...   )Жанр: Europop, Synthpop, Dancehall, AfrobeatПродолжительность: 03:04:40 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99BDCF269978B54C6EA0C7E5C2B9F410A1F8A8BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

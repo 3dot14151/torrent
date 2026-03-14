@@ -1,3 +1,38 @@
+###  Публикация: 496021   (251640) от 13.05.2012
+
+VA - Hits Of The Moment (10.05.2012) (2CD)[MP3|320 кб/с]<House, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251640.jpg" />
+</div>
+
+
+###  Подробнее
+
+10.05.2012Жанр: House, Club, DanceПродолжительность: 01:16:56
+01.SoulKey Feat. Yaniv Gezz - My Heart Shouting
+02.Chino Y Nacho Ft. Jay Sean - Bebe Bonita (Techno Remix)
+03.Bingo Players Feat. Heather Bright - Dont Blame The Party
+04.Papajam - Do What I Wanna Do
+05.Mohombi - Say Jambo
+06.Ocean's Four Feat. Adam Clay - Beautiful Life 2012 (Marchesini & Farina Rework)
+07.Dirty Kidz Feat.Shalya Don Seydina - Ole Ola
+08.Bogdan Ioan - With You (Summer Edit)
+09.Antonie De Mornak - Live 1.0(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D03CD44A47F033725D5D3B8F818DA86BD1676A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495399   (251446) от 12.05.2012
 
 VA - Правильная Рэпчина Часть 8 (2012) [MP3|256 кб/с]<Рэп>
@@ -776,41 +811,6 @@ VA - Русские Новинки Vol.51 from AGR (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25832DF06FACA3E5489EC2DBCAC4369D37CA527A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493539   (248711) от 08.05.2012
-
-VA - Клубные Новинки Vol.74 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joris Voorn – Spank the Maid (Original Mix)
-02. Evave feat. Aelyn - Hand To Hand (Anjey Olaf Remix)
-03. Beat Service feat. Ben Hague - Why Me (Original Mix)
-04. Karanda - Cloud Nine (Original Mix)
-05. Bartlett Bros. - Sweet Child (Fabio Xb Rework)
-06. Protoculture - Cobalt (Original Mix)
-07. Beto Dias, Felipe Wrechiski, Deep Nation - Price To Pay (G-Low Mix)
-08. Mike Newman - Violence Groove (Original Club Mix)
-09. Avicii feat. Salem Al Fakir - Silhouettes (Original Mix)
-10. Kat Graham - Put Your Graffiti On Me (Moto Blanco Club Mix)2012Жанр: Club, DanceПродолжительность: 04:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495E045C8CE4253C8BE7132FF757B665CCBC343F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1379339   (836391) от 01.05.2020
+
+Сергей Ильинов - Fantasy (1996) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Ильинов родился в апреле 1961 года в Оренбурге. Окончив музыкальную школу по классу классической гитары, подался в Москву, где играл на басу и пел в различных «ресторанных» коллективах. В 1988-м создал музыкальный театр-студию «Служба доверия», работал ди-джеем, звукорежиссером и композитором на радио (в том числе в Русской редакции BBC).01. Дождь (2:26)
+02. Воздух (3:57)
+03. Ветер (3:29)
+04. Ночь (2:58)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E71C7D49E4952E4575D617E06A682E69174121F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378973   (836377) от 01.05.2020
+
+Louis Landon - Southwest Solo Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Agave 04:18
+2. Antelope Canyon 04:14
+3. Tonto Natural Bridge 03:44
+4. Apache Trail 04:01(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F408C8BCB698BF53AEE15F290C12AF889E1E621C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113673   (836341) от 12.03.2017
+
+Chris Spheeris & Paul Voudouris - Greatest Hits & Unreleased Masters (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enchantment [00:04:31]
+02. Orlando [00:04:55]
+03. Pura Vida [00:03:50]
+04. Respect 2 [00:15:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD58189819CF8AB4D7BD938933F19C7B35164108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379509   (836103) от 01.05.2020
+
+2002 - Celtic Fairy Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836103.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Castle of Dromore 04:58
+2. The Green Fields of Autumn 05:43
+3. Lullaby 05:07
+4. South Wind 05:06(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24437C6C9D140F9247AE6C276DB62A794F7F8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378943   (835987) от 01.05.2020
 
 Gelka - Wishful Thinking (2020) [MP3|192 Kbps] <Electronica>
@@ -628,122 +744,6 @@ Salvador Candel - Luna (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D7E6E5B5E3B03A1362CCE4BFEB49376A6AD624A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380759   (831453) от 04.05.2020
-
-Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC|Lossless|WEB-DL|tracks] <Field Recording>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZOOM0001 (01:04)
- 02. ZOOM0002 (02:35)
- 03. ZOOM0003 (02:29)
- 04. ZOOM0004 (02:22)(   Читать дальше...   )Жанр: Field RecordingПродолжительность: 01:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5602040761846DA6DC18ECDA0A9CD31AAD568B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380680   (831361) от 04.05.2020
-
-Asian Zen - Valentine’s Healthy Rituals (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831361.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Focus and Visualization 03:38
-2. In Harmony with Partner 03:39
-3. String and Healthy Body 03:39
-4. Stress and Anxiety Relieve 03:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D838EB07F6FC0C3C461333324EBCE4463B0B710F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379924   (830754) от 04.05.2020
-
-Salvador Candel - Tocando Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830754.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bailando en las estrellas 03:02
-2. Eternidad 05:05
-3. Tocando cielo	04:41
-4. Abrazando a la tierra 08:49(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A194CA22B59CB6D82EBD3A089359778BCDA401D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005908   (830743) от 10.04.2016
-
-Vineyard - Unto the King (1989) [FLAC|Lossless|tracks + .cue] <Praise & Worship>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Cry Holy (Eddie Espinosa) (03:30)
-02. Lord We Praise You (Eddie Espinosa) (02:33)
-03. Words Can Never Say (Eddie Espinosa) (03:25)
-04. Soften My Heart (Eddie Espinosa) (03:03)(   Читать дальше...   )Жанр: Praise & WorshipПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2E82A4B67EE983C03D217C69F68E23CF4A57BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

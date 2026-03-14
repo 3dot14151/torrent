@@ -1,3 +1,32 @@
+###  Публикация: 1430456   (173733) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 7 (2015) [AAC|~305 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_173733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Waiting for the Horizon (Dreamful Sky Mix) (5:23)
+02. Jean Mare - Sine Cascading (Sunset Chill Mix) (4:24)
+03. The Space Ensemble Project - Galileo in Minds (Great Chillout Mix) (5:48)
+04. Guardians of Secret - Guinean Warmth (Mystic Voice Mix) (4:59)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611DD723571F58742C4BCFCA32B9CF1179F38A91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430469   (173730) от 10.12.2020
 
 VA - The Forest Chill Lounge, Vol. 3 (2013) [AAC|~314 Kbps] <Chillout, Lounge, Downtempo>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28A20A090C6AB2118A7EA85712AEAC60CD570840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430684   (169850) от 11.12.2020
-
-Владимир Высоцкий - Оригинал первый (апрель 1972 года) (2020) [AAC|~172 Kbps] <Acoustic, Chanson, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Певец у микрофона (4:14)
-02. На маскараде (2:44)
-03. Марш аквалангистов (1:41)
-04. Оловянные солдатики. Детская песня (2:08)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E457A0EDF35BC29C4AE0AD601B88177EC8DEEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

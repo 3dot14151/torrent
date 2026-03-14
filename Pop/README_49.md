@@ -1,3 +1,241 @@
+###  Публикация: 989260   (917110) от 22.02.2016
+
+Mimi Page - The Ethereal Blues (2015) [MP3|320 кб/с] <Alternative Pop, Dream Pop, Trip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917110.jpg" />
+</div>
+
+
+###  Подробнее
+
+На творчество талантливой и востребованной исполнительницы, автора музыки и текстов оказали влияние такие мэтры, как Nine Inch Nails, Tori Amos, Radiohead, Thomas Newman и Enya.01. Singing in the Dark
+02. The Way
+03. Human Hurricane
+04. Hold Me(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Trip HopПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FFB05A654574F6F1B08E8BB8403121D0B02D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289548   (916857) от 01.02.2011
+
+VA - Золотая русская коллекция. Облака в реке (2005) [MP3|320 kbps]<retro, pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ВИА Синяя птица - Клён (Ю.Акулов-Л.Шишко)
+02. ВИА Самоцветы - Салют (В.Пресняков, Ю.Маликов-Б.Салибов)
+03. ВИА Норок - О чём плачут гитары (М.Долган-рус.яз.В.Сундеев)
+04. ВИА Сябры - Печки-лавочки (О.Иванов-А.Поперечный)
+05. ВИА Поющие сердца - Вот какая беда (Б.Савельев-И.Кохановский)
+06. ВИА Самоцветы - Али-Баба (В.Пресняков, Ю.Маликов-И.Шаферан)
+07. ВИА Пламя 2000 - Не надо печалиться (А.Экимян-Р.Рождественский)
+08. ВИА Поющие сердца - Облака в реке (А.Днепров-И.Кохановыский)
+09. ВИА Надежда - До отправления поезда (А.Пахмутова-Н.Добронравов)
+10. ВИА Верные друзья - Девятый класс (Б.Монастырский-Ю.Рыбчинский)(   Читать дальше...)Жанр: retro, popПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB882EA4EC00A8D2BDF311B71D9AF6B082A24DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989168   (916637) от 22.02.2016
+
+Shania Twain - 6 студийных альбомов и 2 сборника (1993-2007) [FLAC|Losless|image+.cue] <Country, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальная дискография Шанайи Твэйн по версии Википедии и Wikipedia:
+1. Shania Twain (20 апреля 1993)
+2. The Woman in Me (7 февраля 1995)
+3. Come on Over (4 ноября 1997)(   Читать дальше...   )Жанр: Country, Pop, RockПродолжительность: 09:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416905C4A69EDB019173946DCA0CBA3206C68C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988621   (916620) от 22.02.2016
+
+Юрий Антонов - Зеркало (1993) Unofficial Release [FLAC|Lossless|image + .cue] <Schlager, Pop Rock>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Зеркало 	03:40
+02. 	Не Забывай 	03:54
+03. 	Двадцать Лет Спустя 	03:39
+04. 	Вот Как Бывает 	03:25(   Читать дальше...   )Жанр: Schlager, Pop RockПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A8D67312CEAB5CDDE5B56BB1B1A9E55764AD4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097276   (915710) от 26.01.2017
+
+Сергей Трофимов (Трофим) - Сорокапяточка (2011) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нет, Я Не Стал (3:20)
+ 02. Жми На Фузз (5:14)
+ 03. Во Облацех (2:19)
+ 04. Наблюдения Во Время Прогулки (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC161A3D61AB1E6F1A002C04E1A8C3448ECF0BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989875   (915693) от 23.02.2016
+
+VA - Танцы COVER (1999) S&V #05/1999 [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dana International - Women In Love (3:41)
+02. Dionne Faux - My Heart Will Gone On (4:23)
+03. Didi - Believe (4:22)
+04. Michael T - Horny (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E966581FF958D314DF71D40F6016165F4438D88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097395   (915683) от 26.01.2017
+
+Сергей Трофимов (Трофим) - Всё Не Важно (2010) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шансонье (4:00)
+ 02. Формула счастья (2:56)
+ 03. Густо - не пусто (3:44)
+ 04. Отпускная (2:58)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF877F6D6269A92172A1023047B2CAAB74D7BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367568   (915658) от 16.03.2020
+
+Tom Jones - Hide & Seek (The Lost Collection) (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915658.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Breathless
+2. City Girl
+3. Promise Her Anything
+4. Once There Was A Time (Stereo Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05B0BE9180ACAF6C71789EA6CF53941417529A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490780   (915654) от 22.08.2021
 
 Talisha Karrer - Acoustic Covers 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -510,236 +748,6 @@ VA - KONTOR TRAPICAL (2017) [FLAC|Lossless|tracks] <Dance, House, Dubsteр>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F8FA8D83A7E697455E80FD867F8A9A52CF3D3BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 290215   (912097) от 04.02.2011
-
-Nani Bregvadze (Нани Брегвадзе) - Russian Love, Romance & Destiny (1998) [MP3|320 kbps]<retro, романс>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трэклист:
-01.Жанр: retro, романсПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6490715F1C47A8FA733D9DBB6C76A85475CE283A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 758346   (912062) от 19.02.2014
-
-VA - Pure... singer/songwriter (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Singer - Songwriter, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное singer/songwriter нужно было бы перевести как барды-песенники или сочинители-исполнители, но прослушав эти 4 диска из серии Pure (ссылку на серию см. ниже) решил, что скорее это хороший сборник поп музыки. Тем более, что и allmusic.com его определил также. Интересно, что во всех поисковиках (в том числе и на нашем трекере в мр3) альбом значиться как singer/songwriters, (   Читать дальше...   )CD1:
-01. Bob Dylan-It.s all over now  (4:17)
-02. Simon & Garfunkel - Bridge over troubled water  (4:53)
-03. John Denver - leaving on a jet plane  (3:39)(   Читать дальше...   )Жанр: Pop, Rock, Singer - Songwriter, FolkПродолжительность: 04:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E7B7A8588CBBA6A94373E40D132D6AD304D34A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097747   (912049) от 28.01.2017
-
-VA - NOW That's What I Call Music! 61 (US series) (2017) [FLAC|Lossless|tracks] <Pop, Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - 24K Magic (3:45)
-02. Maroon 5 feat. Kendrick Lamar - Don't Wanna Know (3:33)
-03. Alessia Cara - Scars To Your Beautiful (3:46)
-04. Ariana Grande feat. Nicki Minaj - Side To Side (3:42)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F0B9DA1AADED0356F208D529F6137B140A10C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989954   (911281) от 25.02.2016
-
-VA - Легендарные Песни. Выпуск 01 (86-91) (2002) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ласковый Май - Белые Розы (5:40)
-02. Мираж - Музыка Нас Связала (4:25)
-03. Евгений Белоусов - Девочка Моя Синеглазая (6:09)
-04. Комбинация - Бухгалтер (4:31)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64313CC589EA5FD6B2AC1FB7C52C0BB46CA307B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368281   (911024) от 19.03.2020
-
-Качеля - Грустить и танцевать (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Море зовёт (4:22)
-02. Если ты уйдёшь (4:49)
-03. Город детства (4:00)
-04. Ветра (4:33)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABFBD0609010BE9C7FE0EDFA341F83342ABC713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368217   (910871) от 19.03.2020
-
-Stylove - The 2nd Album (2019) Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Music Energy (4:39)
-02. Canzone (4:20)
-03. Dolce Vita (Edit Version) (3:37)
-04. Lady Fantasy (3:12)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924B89BC8A34EC03F5AE862D8B70144D85C1ABBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491487   (910699) от 25.08.2021
-
-VA - All Acoustic (2021) [MP3|320 Kbps] <Pop, RnB, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katy Perry - The One That Got Away (Acoustic) 4:19
-02. Florence + The Machine - Shake It Out (Acoustic) 4:13
-03. Jp Cooper, Jonas Blue - Perfect Strangers (Acoustic) 3:11
-04. Niall Horan - Slow Hands (Acoustic) 2:41(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 02:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E63B2985ABE8F3556CF0E0F218A29B0FD2A088F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491625   (910578) от 25.08.2021
-
-London Boys - Requiem: The London Boys Story (2021) 5CD Expanded Box Set [MP3|320 Kbps] <Eurodance, Eurobeat>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Requiem (4:20)
-02. Kimbaley (My Ma-Mama Say) (4:19)
-03. Harlem Desire (3:50)
-04. Chinese Radio (3:50)(   Читать дальше...   )Жанр: Eurodance, EurobeatПродолжительность: 06:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE16EA56EC76FDF33F122098250736F533932AA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

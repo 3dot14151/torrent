@@ -1,3 +1,32 @@
+###  Публикация: 1511878   (788369) от 22.11.2021
+
+VA - Electro Cocktail, Vol. 1 (2018) [AAC|~321 Kbps] <Lounge, Chill House, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leach - Stop Thinking (6:21)
+02. Miss Luna - Love Peace Happiness (Florito Mix) (4:57)
+03. Bes & Meret - Flying High (6:31)
+04. Kurtz - Catch Your Spirit (6:19)(   Читать дальше...   )Жанр: Lounge, Chill House, DowntempoПродолжительность: 02:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E689CBD5C6FA19B654231904933DB17C8A75947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511767   (788359) от 22.11.2021
 
 VA - Squid Game (Original Soundtrack from the Netflix Series) (2021) [AAC|~285 Kbps] <Score>
@@ -680,35 +709,6 @@ VA - Soundbar Deluxe Chill Lounge, Vol. 6 (2020) [AAC|~307 Kbps] <Lounge, Chill 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D385ADA5DE3A477E327502E54060CF8AB3C9279A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512163   (787389) от 24.11.2021
-
-VA - Soundbar Deluxe Chill Lounge, Vol. 5 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Colours of My Mind (Deep East Cut) (4:51)
-02. Jean Mare, Svetlana - Everything (5:58)
-03. For Found Future - A Place in the Sun (Sunset Chillout Mix) (4:56)
-04. Be Free - Belletic (Chillout Mix) (3:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BDE7EA0622D6C6AB76740F4B7159E712C5CA70
 ```
 
 https://mybot314.ru/tekegram_catalog/

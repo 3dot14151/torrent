@@ -1,3 +1,119 @@
+###  Публикация: 1633099   (234631) от 13.05.2023
+
+Веселые Ребята - Любовь - огромная страна (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classic Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234631.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Любовь - Огромная Страна
+A2 Я К Тебе Не Подойду
+A3 Отчего
+A4 Вечная Весна(   Читать дальше...   )Жанр: Classic Rock, Prog RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAD26BF0A0C9FA18BA2436F744B4FB8201ABA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633720   (234242) от 16.05.2023
+
+Wuthering Heights - Studio Albums (5 releases) (1999-2010) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive/Power/Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wuthering Heights — основанная в 1989 году датская хеви-металлическая группа с несколько эклектичным музыкальным стилем на стыке пауэр-метала, фолк-метала и прогрессивного метала.1999 - Within
+2002 - To Travel for Evermore
+2003 - Far From the Madding Crowd
+2007 - The Shadow Cabinet(   Читать дальше...   )Жанр: Progressive/Power/Folk MetalПродолжительность: 04:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2790C2EB12578DDB8E8939DB4CD50EF1643E1ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644307   (233980) от 05.07.2023
+
+Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Electronic, Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233980.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		I'm Your Baby Tonight	5:00
+A2		My Name Is Not Susan	4:38
+A3		All The Man That I Need	4:09
+A4		Lover For Life	4:45(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFCAC09B0B95719E08F455F57E20928094D910D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664625   (233869) от 21.05.2022
+
+Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (3:46)
+02. Blush Response (5:43)
+03. Wait For Me (5:31)
+04. Rachel's Song (4:34)(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3824C5253A25DA16BF5F765E988682004A1948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644684   (233757) от 06.07.2023
 
 Валерия - Звёздная Коллекция (2001) Compilation, Unofficial Release [FLAC|24/48|image + .cue|Tape-Rip] <Europop, Euro House, Pop Rock>
@@ -630,122 +746,6 @@ A4 The Dooley Family – Sneaking Up On Me(   Читать дальше...   )Ж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE295B1A4D28869EEC14D76C44A8F616674DF333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965009   (227704) от 13.12.2015
-
-Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. I Can't Stand The Rain  6:30
-2. Movin'  4:24
-3. I'll Take You There  2:52(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A5FA839A3BA8784EA5DBFD90310AF74010359B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267991   (227654) от 10.12.2018
-
-Кино - Атаман (2018) [DSD2.0|11,28MHz/1bit|image+.cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227654.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:15] 01. КИНО - Атаман (версия 2012 г.)
-[3:04] 02. КИНО - Атаман (версия 1990 г.)
-[4:17] 03. КИНО - Атаман (демо-версия 2012 г.) BONUS CD
-(   Читать дальше...   )Жанр: RockПродолжительность: 00:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B43F8206F0D3AE6FB02265F86A20A2DE1F487E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964605   (227333) от 13.12.2015
-
-Boney M - Ночной полет на Венеру (1980) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_227333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Nightflight To Venus - Ночной полет на Венеру  4:42
-2. Hooray, Hooray - Ура, каникулы  3:56
-3. He Was A Steppenwolf - Он был степным волком  6:50(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D1B3F57618B4E802E4A5A97D4A70337216A99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649382   (224838) от 03.08.2023
-
-Aldo Nova - Blood On The Bricks (1991) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Arena Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224838.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Blood On The Bricks {04:53}
-A2. Medicine Man {04:47}
-A3. Bang Bang {04:27}
-A4. Someday {05:06}(   Читать дальше...   )Жанр: Arena RockПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8ED3083FF09ED5E427AB8813ABDAAFC9DFE03C
 ```
 
 https://mybot314.ru/tekegram_catalog/

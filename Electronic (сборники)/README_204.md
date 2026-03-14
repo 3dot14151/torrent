@@ -1,3 +1,32 @@
+###  Публикация: 1435380   (144405) от 28.12.2020
+
+VA - Beatport Drum And Bass: Electro Sound Pack #214 (2020) [MP3|320 Kbps] <Drum & Bass, Bassline>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144405.jpg" />
+</div>
+
+
+###  Подробнее
+
+С музыкой 214-го саунд пака от Beatport в голове постоянно всплывают слова вроде "Сильно" с контекстом "То, что искал!". Как всегда Вашему вниманию очень проработанный, эклектичный, изобретательный и экзотичный винегрет из самых разных стилей Bassline, звуков и путанных, сбивающихся драм-ритмов.001. Anma - Witchdrum
+002. Murdock - Double Dutch
+003. Maxim R Ft Mokina - Several Seven
+004. Delta Heavy - Take The Stairs(   Читать дальше...   )Жанр: Drum & Bass, BasslineПродолжительность: 09:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F31CB7F576B376F7C9F7483D31F6B862C4AF5E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435375   (144332) от 28.12.2020
 
 VA - Feel The Nature: Ambient Sound (2020) [MP3|320 Kbps] <Ambient, Downtempo, New Age>
@@ -723,35 +752,6 @@ VA - Unknown 80's (part X) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C32118FC2BB2836A8C42ECEDC667CBD79B1BF4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520387   (141983) от 28.12.2021
-
-VA - The Space Beats (2021) [MP3|320 Kbps] <Synthspace, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка сборника под названием "The Space Beats" отправит Вас на космический крейсер, который вот-вот отправиться в увлекательное фантастическое путешествие по тысячам планет нашей необъятной галактики. Раскрываются фермы стартового комплекса, включается реактор, ярким сиянием загораются ракетные двигатели, и наш корабль отправляется к очередной звездной (   Читать дальше...   )001. Lost Souls Of Saturn - Ring Transmission
-002. Chase Smith - Phenylketoneutropics
-003. Marco Monteverde - Tribal Green
-004. Red Rooms - Space Odyssey(   Читать дальше...   )Жанр: Synthspace, ElectronicПродолжительность: 09:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F606DC6FDADA296641212E18484735F054F523
 ```
 
 https://mybot314.ru/tekegram_catalog/

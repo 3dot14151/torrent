@@ -1,3 +1,177 @@
+###  Публикация: 1737622   (106507) от 18.07.2024
+
+Albert Castiglia - Righteous Souls (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Centerline (4:44)
+02. Get Down To The Nitty Gritty (4:10)
+03. Mama, I Love You (6:12)
+04. You Can't Judge A Book By The Cover (4:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F323C74079AA36880947D21F95E2328294251B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737524   (106499) от 18.07.2024
+
+T.S. Monk - Take One (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monaco [6:34]
+02. Skippy [3:40]
+03. Infra-Rae [6:07]
+04. Waiting [5:43](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E813A3AE7F957AF32A160E3A8792BAFF1D584C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737523   (106498) от 18.07.2024
+
+John Patton - Soul Connection (1983) 2008, Just A Memory [FLAC|Lossless|tracks + .cue] <Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Connection [9:49]
+02. Pinto [5:20]
+03. Extensions [6:51]
+04. Space Station [5:40](   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78933B5E0BEDE9FF551DA60B6FA123757E2E50B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737701   (106494) от 19.07.2024
+
+Junior Mance - Holy Mama (1976) 2008, Test Of Time Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By the Time I Get to Phoenix [7:34]
+02. God Bless the Child [8:21]
+03. That Mellow Feeling [7:17]
+04. Holy Mama [5:22](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Piano JazzПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D2DA23D1353EF951ECF91FEB62EC33BE8D5EC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737703   (106493) от 19.07.2024
+
+T.S. Monk - Changing Of The Guard (1993) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelo [6:08]
+02. Changing of the Guard [5:04]
+03. Appointment in Milano [5:44]
+04. Monk's Dream [6:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F057EA184207B9C1F758BE196C930ED55ADB0C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737702   (106479) от 19.07.2024
+
+Lorne Lofsky, Guido Basso, Joey DeFrancesco, Vito Rezza - Alma Records Presents One Take, Vol. 1 (2004) Alma Records [FLAC|Lossless|image + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Romance [9:53]
+02. If I Were a Bell [8:40]
+03. My Funny Valentine [5:24]
+04. Someday My Prince Will Come [8:30](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF266890E06E619902F531A785ED03418BB8CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737888   (106441) от 20.07.2024
 
 T.S. Monk - The Charm (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -571,180 +745,6 @@ Feddy on Guitar - Give Me One More Chance (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6407C47541D215030EB5DD31A88CC5D3D078BAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738660   (106254) от 24.07.2024
-
-Neil Sadler - Past to Present (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Love Left, No More (6:02)
-02. You Ain't Gonna Get Me Next Time (5:14)
-03. A Bad Case of Company Blues (4:56)
-04. I Ain't Gonna Cross No River (6:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85720E281C8BE39028E03AFEE824DC23E860AA50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738658   (106253) от 24.07.2024
-
-Mean Old Fireman - Rescue 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Not Crying (6:29)
-02. 12 Bars (7:23)
-03. Werewolves of London (Acoustic) (5:42)
-04. Highland Blues (1:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4B1CB8995DF661EB213DE7FA186C2B82232FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738633   (106252) от 24.07.2024
-
-Federico Verteramo - In My Own Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You saved my heart (3:00)
-02. New chapters to write (2:27)
-03. Won't you grow with me (2:47)
-04. Hold it close (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4327C137F629902B7DE3E9D7F8EA32B8FB50F07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738659   (106251) от 24.07.2024
-
-Mr Tchang Bluz Explosion - Time To Move (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't supersticious (4:36)
-02. Louise (3:41)
-03. Come on lover (3:30)
-04. What a world (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5C341A539F0759C14ED86C928E3BFACC7F3830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738662   (106249) от 24.07.2024
-
-Powersection - Losing My Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Losing My Blues (2:47)
-02. Celebration (3:08)
-03. You (4:09)
-04. Son of a Policeman (4:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6232EFC600D6EE7CF4F21BB26140AABB2516C520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738698   (106248) от 24.07.2024
-
-Toshiyuki Miyama & The New Herd - The Essence (1964 - 1971) 2CD, 2023, Nippon Crown [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 77 Sunset Strip [3:04]
-02. The Fugitive [2:02]
-03. Get Back [2:55]
-04. La pioggia [2:36](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87E7C3B7319AF6A383D2CFAFB97A13686EA104E
 ```
 
 https://mybot314.ru/tekegram_catalog/

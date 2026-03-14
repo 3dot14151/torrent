@@ -1,3 +1,90 @@
+###  Публикация: 1130574   (710822) от 04.05.2017
+
+Don Byas - Complete 1946-1951 European Small Group Master Takes (2001) 3CD, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710822.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Working Eyes [03:00]
+02. Gloria [03:08]
+03. Peanut Butter Blues [02:53](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 02:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26D8C423CCF9AD0E0BAA77D8020B50B607D2A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131089   (710818) от 04.05.2017
+
+Buster Williams Quartet - Live At The Montreux Jazz Festival 1999 (2008) TCB Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tokudo [09:54]
+02. The More I See You [13:46]
+03. Announcement [01:15]
+04. You And The Night And The Music [12:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB066D850FFC50D71BEBB92D8E514529BC3D47D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130814   (710794) от 04.05.2017
+
+Angelo Debarre & Ludovic Beier - Swing Rencontre (2002) Marianne Melodie [FLAC|Lossless|tracks + .cue] <Gypsy, Swing, Jazz Manouche>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Will Never Be Another You [03:43]
+02. Swing 42 [03:32]
+03. Manoir de Mes Reves [05:59]
+04. Dinette [03:36](   Читать дальше...   )Жанр: Gypsy, Swing, Jazz ManoucheПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:016084A9ACB18B9066D43E04D4B41DD4C4DA050D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130816   (710793) от 04.05.2017
 
 Angelo Debarre & Ludovic Beier - Entre Ciel et Terre (2006) Le Chant Du Monde [FLAC|Lossless|tracks + .cue] <Gypsy, Swing, Jazz Manouche>
@@ -658,93 +745,6 @@ Frank Sinatra, Dean Martin, Sammy Davis Jr. - The Clan In Chicago (1994) Live At
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5455F78F7C782FF135F0149FFD4CFCCE243188FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025810   (707938) от 13.06.2016
-
-Frank Sinatra - Blue Skies (1995) Series Success [APE|Lossless|image + .cue] <Jazz, Swing, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Skies
-02. Night And Day
-03. Somebody Loves Me
-04. You Make Me Feel So Young(   Читать дальше...   )Жанр: Jazz, Swing, VocalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B374EC184425F8A3734534165882C0862A23D23A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401654   (707705) от 11.08.2020
-
-Toots Thielemans - Four Classic Albums (1957 - 1961) 2016, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Standards>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707705.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. East Of The Sun [7:20]
-02. Don't Blame Me [2:31]
-03. 18th Century Ballroom [3:50](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, StandardsПродолжительность: 02:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595292FE2D8D3C022A51B451DF69705AA8BF8AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287062   (707432) от 05.03.2019
-
-Arne Domnerus & Rolf Ericson - 1950 - 1951 (2003) Dragon Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Shall I Say [3:16]
-02. Barit [2:53]
-03. I Cover the Waterfront [2:39]
-04. Lullaby in Rhythm [2:47](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C63503F45658FA66E75967CF204B09ED51E16B
 ```
 
 https://mybot314.ru/tekegram_catalog/

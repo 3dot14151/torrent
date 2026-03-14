@@ -1,3 +1,148 @@
+###  Публикация: 1808129   (65021) от 22.07.2025
+
+Evan Arview - Deeper Still (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Movin' (3:13)
+02.  Learning How To Say Goodbye (Album Version) (5:03)
+03.  Nothing To Fear (4:39)
+04.  True (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8161FCB23BB0EABF199B00A0E82C4FFB6F7BC51A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808134   (65017) от 22.07.2025
+
+Fred and the Healers - No Escape (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The pulse (2:49)
+02.  Wise man (3:41)
+03.  Big bang (2:36)
+04.  Another fall (5:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F900B7019B79C5667CC98352D606D9CEBCA603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808128   (65016) от 22.07.2025
+
+Eric Essix - My Heartbeat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My Heartbeat (3:51)
+02.  Gumbo (4:12)
+03.  Together Is Better (4:31)
+04.  Close To You (They Long To Be) Close To You (5:42)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177E1B34B22B945A70EAACCC923D8C3EF26716AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808147   (65015) от 22.07.2025
+
+Alex G - Headlights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. June Guitar [00:03:52]
+02. Real Thing [00:03:18]
+03. Afterlife [00:03:30]
+04. Beam Me Up [00:03:28](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3563468049A68D1706C657210EFA86CAE0AAF2F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808139   (65014) от 22.07.2025
+
+Iain Hornal - Return To The Magic Kingdom (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Bit More [00:03:32]
+02. Positive People [00:04:35]
+03. Already Dead [00:03:50]
+04. If It Were You [00:03:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20418A14F21A425D164261BE95F5F49610FC0184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808288   (64998) от 24.07.2025
 
 Split Chain - motionblur (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu-Metal, Shoegaze>
@@ -600,151 +745,6 @@ Fever Ray - The Year of The Radical Romantics (2025) [FLAC 24/48|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:416DBA55A7E4D3989B0A3AE61E767FDBDC86AB67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809348   (64720) от 30.07.2025
-
-Buddy Guy - Ain't Done With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hooker Thing (1:09)
-02.  Been There Done That (3:48)
-03.  Blues Chase The Blues Away (4:50)
-04.  Where U At (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763EABE2A867ACF0B9A8C5B50281F9C52D51F20A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809410   (64716) от 30.07.2025
-
-Pulpit Vomit - Hospital Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Powerviolence, Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Razor Jaw [00:01:20]
-02. Ghost in the Bedroom Closet [00:01:04]
-03. The Filth [00:02:49]
-04. No Place in Power [00:01:54](   Читать дальше...   )Жанр: Powerviolence, HardcoreПродолжительность: 00:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EB48588B97B26F3E8DFE633B6AF0C18BBE22FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809469   (64715) от 30.07.2025
-
-Antlers - Antlers (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:14]
-02. Sword Ov The Immortal [00:06:11]
-03. Carpathian Plague [00:05:57]
-04. Cry Of The Last Mammoth [00:06:18](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 01:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40A4D24E83D2C594A78DB0A276F21E7DC72A0552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809473   (64714) от 30.07.2025
-
-Behold the Beloved - Harsh Realities (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dear Martyr [00:04:11]
-02. Darker The Night [00:04:21]
-03. Untouchable [00:03:27]
-04. Toxic Lullabies [00:04:36](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129CB3813FE95C541086E933514228616D108931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809654   (64686) от 31.07.2025
-
-Torben Enevoldsen - Seven (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instrumental Heavy Metal, Shred>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravitas (04:15)
- 02. Perfect Vision (04:30)
- 03. New Horizons (04:16)
- 04. Transformation (03:59)(   Читать дальше...   )Жанр: Instrumental Heavy Metal, ShredПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7A10184D2E222F8461D4FC286F71AAAC75F508
 ```
 
 https://mybot314.ru/tekegram_catalog/

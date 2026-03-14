@@ -1,3 +1,119 @@
+###  Публикация: 994336   (891565) от 07.03.2016
+
+Gen X (Generation X) - Kiss Me Deadly (1981) Reissue, 2005, EMI [FLAC|Lossless|image + .cue] <Dance Punk, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий и последний альбом легендарной команды, после чего  Billy Idol активно занялся сольной деятельностью!01. Dancing With Myself
+02. Untouchables
+03. Happy People
+04. Heavens Inside(   Читать дальше...   )Жанр: Dance Punk, Pop RockПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F58A6936617EDA7A51BEC9D89224D74947CA1D64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994277   (891546) от 07.03.2016
+
+VA - Die Hit-Giganten - Partyklassiker (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, House, Pop Rap>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvis vs. JXL - A Little Less Conversation (JXL radio edit remix) (3:33)
+02.Madness - Our House (3:22)
+03.The Clash - Should I Stay or Should I Go (3:09)
+04.Cyndi Lauper - Girls Just Want to Have Fun (3:47)(   Читать дальше...   )Жанр: Pop Rock, House, Pop Rap, Schlager, Disco, Synth-pop, Classic RockПродолжительность: 02:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8523C05AC6F6481588921C2CFB58874EF9CDC953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994372   (891442) от 07.03.2016
+
+Eighth Wonder - Fearless (1988) Reissue, 2010, Cherry Pop [FLAC|Lossless|image + .cue] <Pop, Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cross My Heart
+02. When The Phone Stops Ringing
+03. Baby Baby
+04. Will You Remember?(   Читать дальше...   )Жанр: Pop, Dance PopПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2EE78715831661BDBF62BE14F1DFB114FD9B633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994417   (891322) от 07.03.2016
+
+VA - Die Hit-Giganten: Best of Disco (2013) Box Set, 3CD [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как видите стараниями коллег по клубу серия немецкого подразделения Sony Music продолжает жить на нашем трекере (ссылка на все релизы серии внизу поста). Пожалуй, именно у нас на трекере самое полное собрание этой серии. В данном боксете представлены хиты мира диско. Вспомним как это было!CD1:
+01. Boney M. - Daddy Cool  (3:28)
+02. Baccara - Yes Sir, I Can Boogie  (4:29)
+03. Patrick Hernandez - Born to Be Alive  (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 03:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89879A135FB66087933FA1A38E3CA8D84E5FFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869309   (890832) от 15.02.2015
 
 VA - BRAVO Hits 88 (2015) [FLAC|Lossless]<Pop, Rock, Dance, R&B>
@@ -625,123 +741,6 @@ Stephanie - Stephanie (1986) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BED891A7EA73EFCF2ACA92EE272FC721E5049A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870785   (884193) от 19.02.2015
-
-VA - Pure... 90s Dance Party (2010) Box Set, 4CD [FLAC|Lossless]<Dance, Pop, Rock, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из немногих дисков этой серии, которого нет в личной фонотеке. Но как то не попадался он на прилавках, а все композиции, которые на нем есть уж очень хотелось иметь.
-Не так много времени нас отделяет от танцевальных 90-х. Так что смело врубайте этот бокссет и наслаждайтесь.CD1:
-01. Britney Spears - ...Baby One More Time  (3:33)
-02. Backstreet Boys - Everybody (Backstreet's Back)  (3:47)
-03. Los Del Rio - Macarena  (3:53)(   Читать дальше...   )Жанр: Dance, Pop, Rock, Pop-RockПродолжительность: 04:23:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E7494B7761967C3D65EF7B147A7814365A1FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372645   (883618) от 04.04.2020
-
-Francisca Valenzuela - La Fortaleza (2020) [FLAC|Lossless|WEB-DL|tracks] <Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nunca Quise Herirte (2:07)
-02. Heroe (3:26)
-03. Tomame (3:07)
-04. Ven a Buscarlo (3:21)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E018A2C28CA2307377CCEB77D649645717E5798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372499   (883610) от 04.04.2020
-
-Purity Ring - WOMB (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. rubyinsides (03:34)
-02. pink lightning (04:14)
-03. peacefall (04:16)
-04. i like the devil (02:55)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FD25F7D554BCB3DDB52B07E22209EDEA4FBEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103958   (883514) от 13.02.2017
-
-Hermes House Band - No.1 Gold Selection (Greatest Hits) (2006) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go West
-02. Come On Eileen
-03. I Will Survive 2006
-04. (Is This The Way To) Amarillo(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20BBF4B2DF2988DE7B6599671A05C54D1D1DAA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

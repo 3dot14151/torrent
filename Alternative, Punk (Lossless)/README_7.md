@@ -1,3 +1,90 @@
+###  Публикация: 1364607   (935041) от 04.03.2020
+
+Envy - Insomniac doze (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Further ahead of warp (06:51)
+02. Shield of selfishness (04:30)
+03. Scene (07:08)
+04. Crystallize (10:34)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE493C268B312350A779F01BF94044E58D35769
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364598   (935040) от 04.03.2020
+
+Envy - All the Footprints You've Ever Left and the Fear Expecting Ahead (2001) [FLAC|Lossless|tracks + .cue] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero (02:05)
+02. Farewell To Words (02:47)
+03. Lies, And Release From Silence (04:49)
+04. Left Hand (03:02)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCBBFF3E96150AB4A09C88E90BA29D8789F2115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364608   (935039) от 04.03.2020
+
+Envy - Recitation (2010) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guidance (03:21)
+02. Last Hours of Eternity (07:04)
+03. Rain Clouds Running in a Holy Night (08:32)
+04. Pieces of the Moon I Weaved (04:48)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6680E8A208FF0F911307D94245645A5F4E82F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364589   (935035) от 04.03.2020
 
 Envy - The Fallen Crimson (2020) [FLAC|Lossless|tracks + .cue] <Hardcore>
@@ -658,93 +745,6 @@ Colony House - Only the Lonely (2017) [FLAC|Lossless|tracks] <Indie Rock, Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94B221F00B2B57DE92B0CF6A9F81B293B1E4D75B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095309   (924464) от 21.01.2017
-
-As Lions - Selfish Age (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aftermath (3:38)
-02. The Suffering (3:48)
-03. Bury My Dead (3:33)
-04. Deathless (3:33)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D42BB579D387543C3AA0C2209B96D8D12D5E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366247   (924113) от 11.03.2020
-
-Silverstein - A Beautiful Place To Drown (2020) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Habits (feat. Intervals) (02:53)
-02. Burn It Down (feat. Caleb Shomo) (03:10)
-03. Where Are You (02:54)
-04. Infinite (feat. Aaron Gillespie) (02:43)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3020EE589147BCAB48C5EC372F68FECE15654A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331345   (923892) от 17.08.2021
-
-Acid Test - Drop 1993  [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock, Industrial, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quicksand 0:40
-02. Drop 3:37
-03. Blown 4:15
-04. I've Been 3:58(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Industrial, AmbientПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51DC84E5DA8052C54C6EC6097E81390FF87916ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

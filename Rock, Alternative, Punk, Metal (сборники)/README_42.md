@@ -1,3 +1,32 @@
+###  Публикация: 1347709   (148656) от 24.12.2019
+
+VA - Animalistic: Hard Rock Review (2019) [MP3|320 Kbps] <Hard Rock, Hardcore, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148656.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Duneeater - Stigma 66
+002. Gran Duca - All Hail The Autowagen
+003. Senchineru - Creep
+004. Let Them Hang - Network In Blood(   Читать дальше...   )Жанр: Hard Rock, Hardcore, MetalПродолжительность: 08:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954E8AE069CD0D877D09A5A1841059247ABCFA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271683   (148469) от 24.12.2018
 
 VA - Rock in Auto Vol 4. (2017) [MP3|320 Kbps] <Rock>
@@ -722,35 +751,6 @@ Chris Bell - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3098E6A9207A0D994061E82A0E5A602D7D86D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521056   (137601) от 31.12.2021
-
-Blues Cousins - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shadow
-02. Back to Texas
-03. Sleepless Night
-04. Nobody  Knows(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086360311628F4C36EBBE7904A688B24563815B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

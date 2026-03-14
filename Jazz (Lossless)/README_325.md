@@ -1,3 +1,90 @@
+###  Публикация: 1726691   (108684) от 29.05.2024
+
+Jeff Shirley - Modes of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rule of Thumb (6:33)
+02. Transients (4:21)
+03. Zentangle (5:14)
+04. Organ Trail (6:33)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317BB5B17378404A89A5934590F16CB2F5F0912E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726410   (108683) от 29.05.2024
+
+VA - Sweet Enjoyable Intimate Soft Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Aurora (5:13)
+02. Kool&Klean - Islands in Tranquility (5:06)
+03. eJazz Artistry - Story of My Life (5:06)
+04. Chillaxing Jazz Kollektion - Wherever I Go (4:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA1E5B64B742C1705D20B7FD52E4C41CC8FA73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726412   (108682) от 29.05.2024
+
+VA - The Groove Funk Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stato Brado - Black Hole (4:54)
+02. Ltj Xperience - Don't Let The System  Get You Down (Regrooved Mix) (7:33)
+03. Blade & Masquenada Family - Sex Cat (4:56)
+04. Lainz - P-Lainz (6:23)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07466E4139D17EFA613BEE50D607FE1C1D9C5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726413   (108676) от 29.05.2024
 
 VA - Ultimate Enjoyable Sweet Intimate Lounge Chill Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -658,93 +745,6 @@ Chris Potter - Eagle's Point (2024) Edition Records [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF33E6EF0EFB4612D9935049B77CCC0D5B7A0E73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727800   (108396) от 04.06.2024
-
-VA - Exquisite Dream-Like Relaxing Soothing Jazz Tunes to Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Ineffable (5:22)
-02. Chillaxing Jazz Kollektion - Made a Way (4:08)
-03. Konstantin Klashtorni - Humble and Kind (4:07)
-04. Kool&Klean - I Said, You Said (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7AF8567F9E0968209759DFC7D55720C9A201C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727799   (108394) от 04.06.2024
-
-VA - Dream-Like Exquisite Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Cosmic Visions (4:26)
-02. Kool&Klean - Reality (4:28)
-03. eJazz Artistry - Sweet Love (4:01)
-04. Konstantin Klashtorni - Stylish Walk (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9534869EE1524203D18281ABB6E7245160DA3B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727844   (108393) от 04.06.2024
-
-The Charlie Byrd Trio with Scott Hamilton - It's A Wonderful World (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Wonderful World [3:45]
-02. Between the Devil and the Deep Blue Sea [5:07]
-03. My Shining Hour [3:15]
-04. I Got It Bad and That Ain't Good [4:30](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0DDD906BA2A9E67EC342BC555D25966DCA302F
 ```
 
 https://mybot314.ru/tekegram_catalog/

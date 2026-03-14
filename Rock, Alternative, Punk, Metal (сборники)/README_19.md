@@ -1,3 +1,32 @@
+###  Публикация: 1025597   (710185) от 12.06.2016
+
+Splattafish - Celestial Plague (2016) [MP3|320 кб/с] <Death Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eradication
+02. Anemic Disposition
+03. Orchestration Of Terra
+04. Odious Nefarious(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A43673A124F216F1EB3167257AFCD30B3B1F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025600   (710180) от 12.06.2016
 
 Cryptic Abyss - Feed 'Em To The Sea (2016) [MP3|320 кб/с] <Death Metal>
@@ -717,35 +746,6 @@ VA - Compilation part 7 (Rock, Blues Rock) (2022) [MP3|320 Kbps] <Rock, Blues Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ACD051B33853BAC78721C873E2EB8AE8468EE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403869   (686041) от 22.08.2020
-
-VA - Women in rock (Compilation) (2020) [MP3|320 Kbps] <Rock, Hard Rock, Hard 'N' Heavy>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blondie - Atomic
-02. Gossip - Heavy Cross
-03. Lita Ford - Kiss Me Deadly
-04. Hole - Celebrity Skin(   Читать дальше...   )Жанр: Rock, Hard Rock, Hard 'N' HeavyПродолжительность: 05:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B5910EE842C1118C9F5A107905CCF357E48FC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

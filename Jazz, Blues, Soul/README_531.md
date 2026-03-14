@@ -1,3 +1,177 @@
+###  Публикация: 1761146   (103067) от 19.11.2024
+
+Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.2 (1953) Blue Moon [WavPack|Lossless|image + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love and the Weather [6:32]
+02. It Don't Mean a Thing [6:21]
+03. Spring Is Here [6:07]
+04. Varsity Drag [6:56](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26BD72F2773AA3D1598CCC187ABCC476A87DE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762100   (103010) от 23.11.2024
+
+Walter Trout - Broken (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken (feat. Beth Hart)
+02. Turn And Walk Away
+03. Courage In The Dark
+04. Bleed (feat. Will Wilde)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7977C3CFA3DEE9D88064FA4CF9B1DAF59E973CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762059   (102935) от 24.11.2024
+
+Teddy Wilson - 1947 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sheik Of Araby [2:39]
+02. Limehouse Blues [2:54]
+03. After You've Gone [2:41]
+04. Georgia On My Mind [3:09](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F1A160DD29FB9D0E21ECBF7ABCF2F8A47F3D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762169   (102934) от 24.11.2024
+
+Stu Williamson - Stu Williamson Plays (1956) 1989, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lady Is a Tramp [4:16]
+02. Stu's Due Blues [5:42]
+03. The Things We Did Last Summer [2:52]
+04. Yardbird Suite [3:52](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, CoolПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105F1E39D0D4A3FFFF0438419D8DE780577A973D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762437   (102918) от 25.11.2024
+
+Teddy Wilson - Gentleman Of Keyboard (1934 - 1957) 1990, Giants Of Jazz [FLAC|Lossless|image + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody Loves Me [2:54]
+02. I'm Painting The Town Red [2:57]
+03. All My Life [3:11]
+04. Why Do I Lie To Myself About You? [3:03](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF819BB43D3047C22D58F0360DE7333C0903762F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762546   (102901) от 26.11.2024
+
+VA - Fusion Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phish - Stash (7:11)
+02. Max Mutzke - Inner City Blues (feat. Max Mutzke) (5:11)
+03. Chicago - South California Purples (6:29)
+04. Boney James - Surrender (feat. Boney James) (4:43)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 02:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9137DC8171BE204468E2281802FA363F3BED41F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762547   (102900) от 26.11.2024
 
 VA - The Independent Blues Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -569,180 +743,6 @@ Bassment Displacement - Bassment Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75CD4F9A9795AB5527422FE502F14F5C2BC1C516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763483   (102791) от 01.12.2024
-
-Hussy Hicks - Swimming in Uncertainty (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minnie Marks - fool on the hill (3:46)
-02. Chris E Thomas - ain't it a shame (3:59)
-03. sundial (2:53)
-04. he knows (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE5C358F1C7CE39E3D2EF5C722019FACAA63B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763475   (102790) от 01.12.2024
-
-Dirty Deep - Rust Of My Knees (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radio Tone (0:58)
-02. Opposite People (3:58)
-03. Unconditional Love (3:28)
-04. Who's The Devil Now (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB3113A023DA8C713400C33480506967D4C2582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763486   (102789) от 01.12.2024
-
-Pepe Ahlqvist & Jukka Gustavson - Stovall, Coahoma - A Tribute to Eddie Boyd (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stovall, Coahoma (5:05)
-02. Reap What You Sow (4:33)
-03. She Is Real (3:59)
-04. I Cried (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552DBE92DADA837F1CC6C3AE7CACA58F44B87AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763480   (102788) от 01.12.2024
-
-Eddie 9V - Saratoga (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saratoga (3:32)
-02. Halo (3:02)
-03. Love Moves Slow (3:29)
-04. Tides (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4C99FFB24EBFBAEEA55540D49AD44340273465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763473   (102787) от 01.12.2024
-
-Beggars Blue - Busting My Tail (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Busting My Tail (3:24)
-02. One of These Days (3:24)
-03. I Can't Turn My Back on You (3:28)
-04. What Do You Miss (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60CD1BAC4CC4945D2A8DB6A70C2140A5CC61C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763464   (102785) от 01.12.2024
-
-Allsiders - No Further Questions (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wish I Could Quit (3:28)
-02. Upon the Fire (5:37)
-03. Bad Desire (3:59)
-04. Can't Control My Mind (4:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C4DAD9337A2AA01D977A64C8629C8E5570C6D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1038042   (610023) от 26.07.2016
+
+Шаблоны - CreativeMarket - Smartphones - Mockups [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610023.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 PSD-файла, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 4000x2600px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9C3FA61F7E6F85E0F18A63531F5D25A54DBB1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038048   (610022) от 26.07.2016
 
 Шаблоны - CreativeMarket - Smartphones - Mockups V02 [PSD]
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2090A2B07FF975694E0F0DA992BCA052D0B96EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045495   (559102) от 23.08.2016
-
-Шаблоны - Best Price Offer V1 PSD Flyer Template + Facebook Cover [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флаер и Facebook Cover для Вашего творчества. Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 1350x1950 / 3546х1313 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDDA072DF9764F63AAD4FA00ACD43565765FDE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

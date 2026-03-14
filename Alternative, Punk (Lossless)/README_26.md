@@ -1,3 +1,90 @@
+###  Публикация: 1143723   (632908) от 19.06.2017
+
+Linkin Park - One More Light (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody Can Save Me (3:46)
+ 02. Good Goodbye (feat. Pusha T and Stormzy) (3:31)
+ 03. Talking to Myself (3:51)
+ 04. Battle Symphony (3:36)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC75AA8198C48B597F58A8EDBE132AA82D0AD808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143913   (631207) от 20.06.2017
+
+Royal Blood - How Did We Get So Dark? (2017) [FLAC|Lossless|tracks + .cue] <Alternative, Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Did We Get So Dark? (3:57)
+02. Lights Out (3:57)
+03. I Only Lie When I Love You (2:49)
+04. She's Creeping (3:23)(   Читать дальше...   )Производство: Warner Bros. Records, Black Mammoth Records – 0190295831172Жанр: Alternative, Rock, Garage RockПродолжительность: 00:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A1345923948693D1BC0329D233EC729A343EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143831   (631066) от 20.06.2017
+
+Nickelback - Feed The Machine (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feed The Machine (5:02)
+02. Coin For The Ferryman (4:50)
+03. Song On Fire (3:51)
+04. Must Be Nice (3:43)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE9B7B23F3FA538EF7A1E7F00CF646259C45ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908049   (630029) от 16.06.2015
 
 FFS (Franz Ferdinand and Sparks) - FFS (2015) [FLAC|tracks|WEB]<Indie Rock>
@@ -657,93 +744,6 @@ Cage The Elephant - Social Cues (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:776FAE1F61EEEF4B95859706B6DD13A43326FA7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296822   (608532) от 19.04.2019
-
-The Tallest Man on Earth - I Love You. It's a Fever Dream. (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hotel Bar
-02. The Running Styles of New York
-03. There’s A Girl
-04. My Dear(   Читать дальше...   )Жанр: Indie Rock, FolkПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1426070CB67DB2472B2E70C5F76FBE0FD3166D64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038615   (605058) от 29.07.2016
-
-Slinky Droids - The SlinkyDroids Project (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victorious
-02. In the Crescent of Things
-03. Flight
-04. The Woman Who Loved the Deep Sea(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Space RockПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B5F90F26A346E2B6A8E198B96F9FEB7101BF7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038526   (604907) от 29.07.2016
-
-Gogol Bordello - Pura Vida Conspiracy (2013) [FLAC|Lossless|tracks + .cue] <Gypsy punk, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Rise Again    03:42
-02. Dig Deep Enough    03:42
-03. Malandrino    03:33
-04. Lost Innocent World    04:26(   Читать дальше...   )Жанр: Gypsy punk, Folk RockПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1D2741D52C92026F43FAB7D538A186CF3CDFBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

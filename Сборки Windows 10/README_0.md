@@ -1,3 +1,60 @@
+###  Публикация: 1453934   (1026287) от 14.03.2021
+
+Windows 10 3in1 VL (x64) Elgujakviso Edition (v.30.01.21) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинального образа от MSDN
+ru_windows_10_business_editions_version_20h2_updated_jan_2021_x64_dvd_f09398b8.iso
+Все изменения в системах производились стандартными средствами MicrosoftЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D809C7E00833DE6A03C9080F7608A89E19E70FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455663   (1025157) от 21.03.2021
+
+Windows 10 Pro x64 3in1 20H2.19042.867 March 2021 by Generation2 [Multi/Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка создана на основе оригинального образа Microsoft Windows 10 20H2 x64.
+В один образ объединены три редакции: две с автоактивацией и одна без.
+Интегрированы обновления по март 2021 года, билд повышен до 19042.867.
+Системы абсолютно чистые.(   Читать дальше...   )Язык интерфейса: Русский, ангийский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F96368DAD13C590342B2D7463130CDF8C6A6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484015   (1006180) от 18.07.2021
 
 Windows 10 21H1 (Build 19043.1110) (60in2) x86/x64 by Sergei Strelec [Ru]
@@ -628,64 +685,6 @@ Windows 10 Enterprise 2019 LTSC with Update [17763.1518] AIO (x86-x64) by adguar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:678A78F2FB4FFFFF365811A15A37472F9D642191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577813   (351760) от 20.09.2022
-
-Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1.4 (esd) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MDSN: ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
-Отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.
-Применен загрузчик от Windows 10 (v21h2) x64(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8FFF8F478E65A148950A1C55527A489DCFDDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578392   (344933) от 23.09.2022
-
-Windows 10 (v21h2) x64 HSL/PRO by KulHunter v11 (esd) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MSDN: ru-ru_windows_10_consumer_editions_version_21h2_
-updated_sep_2022_x64_dvd_6a39c6aa.iso
-Отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B44F5433630643CB656413E60CBB9BB0D79BACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

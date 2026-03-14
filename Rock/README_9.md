@@ -1,3 +1,32 @@
+###  Публикация: 1353534   (991743) от 18.01.2020
+
+VA - 70s Forever: The Ultimate Rock & Pop Classics (2019) 3CD [MP3|320 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rod Stewart - Maggie May (Single Version)
+02. Patti Smith Group - Because The Night
+03. Heart - Barracuda
+04. Daryl Hall & John Oates - Rich Girl(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D136731603686D178DF8413C8092B0741DA2978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607268   (991148) от 28.01.2013
 
 Bonnie Tyler - All The Best (3CD) (1996) [MP3|320 кб/с]<pop>
@@ -746,35 +775,6 @@ David Bowie - Is It Any Wonder? (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03D31E4CAC475727EEA1B14B428B1C499FBD380E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361104   (957069) от 18.02.2020
-
-VA - Rock Love (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biffy Clyro - Many of Horror
-02. Bad Company - Feel like Makin' Love (2015 Remaster)
-03. Starship - Nothing's Gonna Stop Us Now
-04. Faith No More - Easy(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E343CC578AC4134E2DF1B2617DEE5611CCB71BE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

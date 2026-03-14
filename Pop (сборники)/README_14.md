@@ -1,3 +1,32 @@
+###  Публикация: 1366757   (916667) от 15.03.2020
+
+VA - B машину ремиксы Vol. 4 (2020) [MP3|320 Kbps] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nando Fortunato - I Wanna Change (Housenick Remix)
+02. Zivert - Безболезненно (Vadim Adamov & Hardphol Radio Edit Remix)
+03. Танцы Минус - Половинка (Dj. Richi Remix)
+04. Dan Balan - До Утра (Den Dubstep Remix)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 03:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414D15A7054A3671D461749E59F94B9EE6ED6620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366961   (916662) от 15.03.2020
 
 VA - B машину ремиксы Vol. 5 (2020) [MP3|320 Kbps] <House, Pop, Dance>
@@ -728,35 +757,6 @@ VA - German Top 100 Single Charts 27.01.2017 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DF2BA77C40E817449F27C4C17466377FC4CF332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097973   (910635) от 29.01.2017
-
-VA - 100 пудовые зимние хиты на Europa Plus. Версия 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алсу - Я Пойду Чуть-Чуть Поплачу 3:37
-002. Santey Feat. Emelie Cyreus - Naked Souls 3:29
-003. Чаян Фамали - Моделька 3:31
-004. Mona - Счастье 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79BA18218AFCE6A4ECA972296A970771ECDC9AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

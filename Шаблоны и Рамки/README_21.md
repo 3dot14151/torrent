@@ -1,3 +1,29 @@
+###  Публикация: 546510   (478218) от 13.09.2012
+
+Шаблоны - Photobooks MIX 3 [PSD,PNG,JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые шаблоны для создания альбомов , Scrapbook - "LOVE"  и набор рамок
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC17D7490A7359F47F57CC15E007B88C1647D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547114   (475764) от 14.09.2012
 
 Шаблоны - Photobooks MIX 4 [PSD,PNG,JPEG]
@@ -657,33 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B249F706CEB8AAA3BF2A08F7DDCD73A7AD527190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947330   (417675) от 17.10.2015
-
-Шаблоны - Виньетки для Xara Photo & Graphic Designer [XAR]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Послойные шаблоны для создания виньеток.
-Проекты предназначены для редактирования в Xara Photo & Graphic Designer.Формат: XAR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8C9ACD058FAD5FF5B0A0AFDA8439642A6D3012
 ```
 
 https://mybot314.ru/tekegram_catalog/

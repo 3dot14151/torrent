@@ -1,3 +1,116 @@
+###  Публикация: 1074195   (337859) от 19.11.2016
+
+Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [WavPack|192/32|tracks|Vinyl-Rip] <Progressive & Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Shine on You Crazy Diamond  11:46
+02. Learning to Fly 5:22
+03. Yet Another Movie & Round and Around 7:10(   Читать дальше...   )Жанр: Progressive & Art RockПродолжительность: 01:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6718A21081EAFCC78388CE02D30DC97CABBBF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179381   (337196) от 05.11.2017
+
+Поет Аида Ведищева (1969, 1974)  [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:56:40 (общая)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B7FD7C0169F91B5DA4FF5384A9B47ECA989B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181277   (335358) от 06.11.2017
+
+Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335358.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Atomic (4:06)
+A2. Some Other Place, Some Other Time  (4:52)
+A3. Star Vision (5:51)
+A4. Run To The Stars (4:39)(   Читать дальше...   )Производство: Rockland Records - RKL 20323Жанр: Space RockПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B5822D464C356CDA712AF27CD41606469F8578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953999   (335158) от 10.11.2015
+
+VA - Добрые колыбельные для сладких снов (3) в исполнении В. Толкуновой, О. Анофриева и И. Суриной (2000) [FLAC 2.0 16/44,1|tracks+.cue (MC-Rip)]<Lullaby>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В. Толкунова - Наступил час ночной
+02. О. Анофриев - Баю баюшки баю, не ложися на краю
+03. И. Сурина - Спи, малютка
+04. Оркестр - Вечером(   Читать дальше...   )Жанр: LullabyПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BFB381C53A6131C9A0A4AFD1D2BCBAA6174DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579161   (334580) от 28.09.2022
 
 Boycott - Группа Boycott (1989) Licensed From – Polarvox Oy [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
@@ -631,128 +744,6 @@ A4 Всю Ночь • All Night Long(   Читать дальше...   )Жан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA387D8B0DCBC532BCA999543DC9270E9A70FED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580932   (322080) от 28.11.2012
-
-Chris Rea - Road to hell (1989) [FLAC 2.0 96/24 |tracks(VinylRip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road To Hell (Part I) 04:53
-02. The Road To Hell (Part II) 04:33
-03. You Must Be Evil 04:22
-04. Texas 05:11
-05. Looking For A Rainbow 08:04
-06. Your Warm And Tender Love 04:33
-07. Daytona 05:07
-08. That's What They Always Say 04:28
-09. I Just Wanna Be With You 03:41
-10. Tell Me There's A Heaven 06:01Продолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347B0C39054828C5477118EB37132CD600B5FCD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582338   (320742) от 10.10.2022
-
-UB40 - Крыса На Кухне • Rat In The Kitchen (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae, Dub, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320742.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Что Я Хочу • All I Want To Do
-A2 Ты Можешь Встретить Кого-Нибудь • You Could Meet Somebody
-A3 Говорю Всё Как Есть • Tell It Like It Is
-A4 Лифт • The Elevator(   Читать дальше...   )Жанр: Reggae, Dub, Synth-popПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52464339673B026A4B99DFF1ECC882203DD2AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421303   (319542) от 04.11.2020
-
-Barbra Streisand - Guilty (1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Easy Listening, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319542.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Guilty
-A2 Woman In Love
-A3 Run Wild
-A4 Promises(   Читать дальше...   )Жанр: Easy Listening, Pop RockПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E1C8A769C7A41F33C5BDDB8287514EE9743C55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582759   (318609) от 11.10.2022
-
-Tina Turner - Foreign Affair (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Soul, Rhythm & Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318609.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Steamy Windows
-A2 The Best
-A3 You Know Who (Is Doing You Know What)
-A4 Undercover Agent For The Blues(   Читать дальше...   )Жанр: Pop Rock, Soul, Rhythm & BluesПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B244ED4421BC554ABD789BA06C28E9C9F1672AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

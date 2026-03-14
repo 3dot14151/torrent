@@ -1,3 +1,30 @@
+###  Публикация: 1480436   (1008967) от 28.06.2021
+
+RAR Extractor Max - WinRAR 7.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008967.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAR Extractor Max унаследовал преимущества RAR Extractor Pro, разработчики переработали интерфейс и добавили более мощные функции.
+Поддержка разархивирования RAR, winmail.dat, ZIP, 7z, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, lzma, exe, msi, cpio, lzx, jar, swf, xip, ace, arj, pak, pkg, apk, lbr, lqr, cab, rpm, cpt, sea, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.06.2021Разработчик: ElimisoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96682B5D8B0445865ADA8A945F4CCBBADC0ADD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480451   (1008955) от 28.06.2021
 
 Steinberg - SpectraLayers Pro 8.0.0 (x64) [En]
@@ -651,33 +678,6 @@ Pixelmator Pro — это невероятно мощный, красивый и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9658EC65C15D4C1B05C627F2E8EEB4F57A06960A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480533   (1008746) от 30.06.2021
-
-Byword 2 v2.9.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Byword — сила в простоте.
-Byword — минималистичный текстовый редактор от Metaclassy с поддержкой технологии Markdown. Если кратко, то Markdown — это простой язык разметки текстов, который позволяет создавать фактически полностью оформленную веб-публикацию одновременно с написанием самого материала. «Оформленную» — это значит с гиперссылками, выделением текста в нужных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26.06.2021Разработчик: Metaclassy, LdaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E4419C43F55711A4C8CB7B3AA53D3E600DB741
 ```
 
 https://mybot314.ru/tekegram_catalog/

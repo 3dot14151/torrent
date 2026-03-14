@@ -1,3 +1,90 @@
+###  Публикация: 1209832   (779018) от 01.03.2018
+
+Moaning - Moaning (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Go (02:51)
+02. Tired (03:12)
+03. Artificial (03:32)
+04. Close (02:55)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD945B3D80F2C0D913C6316D06958B8757D05CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209862   (779014) от 01.03.2018
+
+Cranes - Population Four (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779014.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tangled Up (05:36)
+2. Fourteen (03:15)
+3. Breeze (03:41)
+4. Can't Get Free (02:49)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBEBF8085B61C101842036E5DF66BF13CF0A35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210861   (778207) от 05.03.2018
+
+Superorganism - Superorganism (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It’s All Good (03:23)
+02. Everybody Wants to Be Famous (03:04)
+03. Nobody Cares (03:49)
+04. Reflections on the Screen (03:52)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B0F54055DECB503B5BB528AF933197EE74C898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211992   (776460) от 10.03.2018
 
 Vance Joy - Nation of Two (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock>
@@ -658,93 +745,6 @@ TOY - Happy in the Hollow (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0314C93D3872351371AE74245C6C0FCA57979E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278987   (767849) от 27.01.2019
-
-Switchfoot - Native Tongue (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Happen (04:41)
-02. Native Tongue (04:38)
-03. All I Need (03:08)
-04. Voices (02:58)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F92BB753D42C872379AB1891EA59EBBDC71621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278918   (767792) от 27.01.2019
-
-The Dandy Warhols - Why You So Crazy (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fred N Ginger (00:40)
-02. Terraform (03:18)
-03. Highlife (02:32)
-04. Be Alright (03:49)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063CBA4EECEA0E7C600BB3B0D43731135A634557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279106   (766642) от 28.01.2019
-
-Linkin Park - Meteora (2003) Unofficial Release [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Foreword
-02.Don't Stay
-03.Somewhere I Belong
-04.Lying From You(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB6F3C18A8814DFED47E0FFD6A5AFC54ECD3619
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1105045   (875068) от 18.02.2017
+
+VA - Latin Lovers (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Fuentes - El Perdon (03:26)
+02. Alejandro - Obsesionado (03:29)
+03. Antonio Bueno. Laila - Safari (03:28)
+04. Rodrigo Mendez - Bobo (03:31)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66DEEEC86DE29321220C4DF9A454DF9E766FD83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105957   (874878) от 18.02.2017
 
 Иван Дорн - Jazzy Funky Dorn (2017) [MP3|320 Kbps] <Pop>
@@ -714,35 +743,6 @@ VA - NRJ 200% Hits 2015 (2015) [MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A7ED97EC01C48CF9863ABE24A2AE8D91F6B56C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000935   (855638) от 27.03.2016
-
-Awa Ly - Five and a Feather (2016) [MP3|256 кб/с] <Pop, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storyteller
-02. Let You Down
-03. Let Me Love You
-04. Help You Out(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB40447750D854D2258CF2A62E923C49AF89F05
 ```
 
 https://mybot314.ru/tekegram_catalog/

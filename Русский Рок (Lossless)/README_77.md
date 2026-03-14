@@ -1,3 +1,145 @@
+###  Публикация: 1791031   (21308) от 15.04.2025
+
+VA - Охота! 87 (2019) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ДЗЁМГИ - Паломники планет (4:02)
+02. Большой Лебовски - Летняя (3:07)
+03. НЭмо - Kirov-Reportin (3:33)
+04. SOAB - Kilometer (3:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589F70B0A64193DD428A8AD947EB726EF86FE748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508172   (19263) от 05.05.2025
+
+Рожь (RYE) - 5 Releases (2019-2025) [FLAC|Lossless|Web-DL|tracks, tracks + .cue] <Atmospheric Black Metal, Post Metal, Funeral Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2025 - Знание (WEB)
+2023 - Всё (WEB)
+2021 - Вечное (CD)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Post Metal, Funeral DoomПродолжительность: 02:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6DAEB2CA8E46A2C89818218832AA861D865AFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796271   (18810) от 09.05.2025
+
+Секрет - SPB FM Stereo (2025) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Самолётом до Пулково
+02. Это Питер, детка!
+03. Раз, два, три...
+04. Радость моя(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E4BCBBB7C738B81042AC64E4FAC3D86F897DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799491   (16528) от 28.05.2025
+
+ЛихорадкА - Смысловые Диссонансы (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свет (3:24)
+02. Темные Звезды (3:52)
+03. Моя Вселенная (4:12)
+04. Ночь Умрет (5:46)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE967E451D81218631DAFF230DEB7E6F14D1FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800069   (16112) от 31.05.2025
+
+Ария - Гордиев узел (2025) Single [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гордиев узелЖанр: Heavy MetalПродолжительность: 00:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F2EEC3C8B0A43F0DB353AB0A67D22166DE7979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801269   (15130) от 09.06.2025
 
 EverEve - .Enetics (2003) 2 x CD, Deluxe Edition, Limited Edition [FLAC|Lossless|image + .cue] <Goth Rock, Heavy Metal>

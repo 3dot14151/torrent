@@ -1,3 +1,235 @@
+###  Публикация: 1782025   (70089) от 26.02.2025
+
+VA - 25 Years Of Anjuna Mixed By Luttrell (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaytech - Pyramid (Dinka Extended Mix) (06:48)
+02. Soundprank - Beginnings (08:52)
+03. Michael Cassette - Through The Windows (Extended Mix) (04:49)
+04. Dusky - Mr Man (Extended Mix) (07:22)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E5D9CF364ECDC8D1E7045CAC749C116373CEE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783471   (69790) от 06.03.2025
+
+VA - CF Mix, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Approximate - Gamma Radiation (Original Mix) [6:52]
+02. NEO|WISE - Uncertain (Original Mix) [6:33]
+03. Jad0 - Indra (Original Mix) [6:15]
+04. Matías Delóngaro - Mausy (Original Mix) [6:56](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A294E6D1DC38285C6C3C1FE2F789C4CA824CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783450   (69782) от 06.03.2025
+
+VA - Winter Collection 2025 (2025) [MP3|320 Kbps] <Progressive House, Deep House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimas Mixon - Closed The Road (Original Mix) [8:40]
+02. Akustika - New Year (Original Mix) [7:54]
+03. Edvard Hunger - My Life (Original Mix) [6:22]
+04. Sasha Sound - Self-Education (Original Mix) [6:53](   Читать дальше...   )Жанр: Progressive House, Deep House, Melodic House & TechnoПродолжительность: 02:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30C8DA6D4F2A37E1CC2844F740ABE7EA2C1399B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783600   (69736) от 07.03.2025
+
+VA - 3 Years Anniversary House Furia - Music Collection (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FaraoN & Nowakowski - No Matter What (04:51)
+02. FaraoN - Remind You (04:36)
+03. FaraoN & Iriser - Love To Hold (03:50)
+04. Ijan Zagorsky - Stay (04:17)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2C6D2AECFE78400092F005254E4BC71BB3B3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783811   (69734) от 07.03.2025
+
+VA - TRIPPY CODE Best of Vol.01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abel Blanes - Just A Dream (Sabeel Chohan Radio Remix) [3:10]
+02. Abel Blanes - Just A Dream (Radio Edit) [5:09]
+03. Abel Blanes - Deep Red (Radio Edit) [3:26]
+04. Abel Blanes - Empty Streets (Radio Edit) [4:11](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 05:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC73C3787580F1B5CFA715B86EBC6913D935F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783773   (69733) от 07.03.2025
+
+VA - Best of Trippy Code Chill House Vol.1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Sono - Insomnia (Extended Mix) [4:25]
+02. ELI DAVID - Your Time (Original Mix) [8:01]
+03. Fehrmon & Overmute - Loneliness (Original Mix) [9:06]
+04. Shlomi Shanti - Dajame Marte (Original Mix) [5:14](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E5CAE5210122DD5F4433C112194C14FC8D00DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784051   (69641) от 09.03.2025
+
+VA - Deep & Soul 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleanger & M-Sol DEEP - Call For Aid (Original Mix) [4:49]
+02. Yohai Mor & M-Sol DEEP - Soul's Voice (Original Mix) [5:57]
+03. Duel (HU) & M-Sol DEEP - Up With The Birds (Original Mix) [7:13]
+04. 4Moon Music & M-Sol DEEP - Open Heart (Original Mix) [6:25](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653378D2D80C4E90C9444520D3F514C302F5CDDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784952   (69518) от 13.03.2025
+
+VA - Black Hole House Music 03-25 (2025) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PARAFRAME & Haley Johnsen - Feel It Now (Extended Mix) (05:10)
+02. Milkwish & Mike Konstanty - Show Me the Way (Extended Mix) (06:25)
+03. Thomas Schwartz & Fausto Fanizza - Acrophobia (Extended Mix) (07:03)
+04. JOA (US) - Missing Part of Me (Extended Mix) (06:38)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246B8D0D098FC36470E63429E0BEEBC6E22318A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785097   (69395) от 14.03.2025
 
 VA - Ibiza Nights 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -513,235 +745,6 @@ VA - Ibiza Beach Vibes (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49A0709AE8F20FD0ACA4EE302CDFDE3B930DB741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788235   (68563) от 29.03.2025
-
-VA - The Sound of 2025, Chapter 3: London (Day Mix) (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jake Crooker - Heye (Intro Mix - Mixed) (06:55)
-02. UNWA - Nightfall (Original Mix - Mixed) (05:59)
-03. Martiln & Emedi - Saturate (Tom Sommerson Remix - Mixed) (03:44)
-04. Sputyan - Search for Happiness (Original Mix - Mixed) (04:38)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B89D8B19E33DCD02D601393AFFCE2B174B4FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788562   (68479) от 31.03.2025
-
-VA - Interplay Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DaWTone – Tropical DreamЖанр: Progressive House, Melodic House & TechnoПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD34D57AAB75464D8599ECB9803BBCFB7F85E311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789465   (68317) от 04.04.2025
-
-VA - DJ MIX (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Denver, Nowakowski & Fuentez - SINNER (Orginal-mix) (03:06)
-02. FaraoN & Nowakowski - Crush (Croatia Summer edit) (06:58)
-03. FaraoN - Circles (04:20)
-04. Nowakowski - Run Alone (04:54)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA564B2B8A01B5F9F7754B1B9C2638CC7F0C3172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789484   (68299) от 04.04.2025
-
-VA - Spring Emotions (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase - Unfrozen Hearts (05:29)
-02. Alysia Sun & A-Mase - Good Bye! (extended mix) (04:03)
-03. A-Mase & Natune - My Way (album version) (04:35)
-04. A-Mase & Sharliz - Beautiful Things 2.0 (07:03)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3BC92992A7EF38FF441EBD7B085E8239DC6FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789434   (68296) от 04.04.2025
-
-VA - Miami Dance Vibes 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Eclipse - Better With You (02:56)
-02. Marcelo Flexx - Give You Up (Piano mix) (02:43)
-03. Code Xpand - Go You On My Mind (02:27)
-04. Ghosts Of Mars - Space Sign (02:36)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6682EB8634515C1C5F69917C01A23576C8A9DDD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790046   (68169) от 07.04.2025
-
-VA - 25 Years Of Anjuna Mixed By Eli & Fur (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (01:07:55)
-01. Eli & Fur – Feel The Fire (Journeyman Remix (Mixed)) (06:56)
-02. Dee Montero – Headspace (feat. Meliha) (Mixed) (06:05)
-03. M.O.S. – Khimiya (Mixed) (04:50)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 03:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E3B0AE57BD63ED3029F25181AB91DFF7816B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790141   (68164) от 07.04.2025
-
-VA - EDM Dance 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JLUIS - Pray For Me (03:09)
-02. 90bangerz - Lost In Time (02:28)
-03. Stephan F & YA-YA - In Your Arms (03:00)
-04. Dani Corbalan - Out of Time (02:55)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A3C55E824E1870BD9939AA245CB9FF275DEC1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790454   (68083) от 09.04.2025
-
-VA - Luminaries 01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grafine - Feel [2:45]
-02. Dias Ridge - Moment [3:00]
-03. Hayyoo - Goes Away [2:36]
-04. Fløa - Unlock [3:24](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63A3F52D922994F9BA30E5B9C6D29348199F77C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 712430   (403247) от 19.10.2013
+
+Secret Service - 25 Best Songs (2012) [MP3|206 - 282 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flash In The Night 1982
+02. Will You Му Near Me 1984
+03. Night City 1985
+04. Broken Hearts 1981(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8871DD08B28AD0F01AE96005BE0D4C67773A53D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 712398   (403245) от 19.10.2013
 
 Pet Shop Boys - 25 Best Songs (2012) [MP3|227 - 266 кб/с]<Synthpop>
@@ -752,35 +781,6 @@ DJ Krush - Best of (2017) [Compiled by Firstlast] [MP3|192-320 Kbps] <Trip-Hop; 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD7FB9EB8878886C4AAF6303D547262116C6CFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171915   (394722) от 06.10.2017
-
-VA - Disco Chillout (2017) [MP3|320 Kbps] <Chillout, Lounge, Ambient, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skye Dream - Tranquil Living
-02. Dake - With All (Original Mix)
-03. Triangle Sun - Spaceship
-04. Drew feat. Angel Stoxx - Let Go (Deepjack & Mr.Nu Remix)(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, HouseПродолжительность: 05:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC02F0D676E078FA3C477F43A41CEDE22BBF1DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

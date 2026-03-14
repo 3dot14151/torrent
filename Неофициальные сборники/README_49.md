@@ -1,3 +1,102 @@
+###  Публикация: 607615   (989338) от 30.01.2013
+
+VA-Зарубежный Союз Новинок (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989338.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daze - Fool Me! (Radio Edit)
+ 002. Armin van Buuren - We Are Here To Make Some Noise
+ 003. Maroon 5 - One More Night
+ 004. Ramus & April - It's Summertime
+ 005. Ocean Drive - Revolution
+ 006. Inna Feat. Play & Win - INNdiA (Radio Edit)
+ 007. Loreen - My Heart is Refusing Me
+ 008. Roma Pafos feat. Sarkis Edwards - Say Goodbye (Sensetive5 Radio Edit)
+ 009. Alex Megane - Turn Me On (Radio Edit)
+ 010. B.K. - Sex (DJ Zhukovsky Official Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A69ED9227544234FB2C5ADF9573FE5234E3F697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610934   (989227) от 30.01.2013
+
+VA - Дискотека : Зимний Mix Отрыв 50/50 (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJ Smash & DJ Vengerov - Только Вперед (DJ Noiz & DJ Maxtal Radio Remix)
+02 Basto & Yves V - Cloud Breaker (Basto mix)
+03 Virone - Расстояние (Dj Glazunov remix)
+04 Metrik - Engine Room (original mix)
+05 Дискотека Авария - Ноги-Ноги (DJ Nejtrino & DJ Stranger Remix)
+06 Max Graham feat. Jeza - Still There's You (Tomas Heredia remix)
+07 Чи-Ли - Кошка (Sergei Karpov Minimal Pop remix)
+08 Will.I.Am feat. Jennifer Lopez - T.h.e. (DJ Rich-Art & DJ Kirillich remix)
+09 Alex Akimov & Ivan Flash feat. Dana K - Dance (Original Mix)
+10 Badiizrael - Insomnia (original mix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7930278525E9595B49EEBE9FAEC50D3634FC50A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354179   (989060) от 21.01.2020
+
+VA - Sublime Electro House: Progressive Mix (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989060.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Prodeeboy - Ultimate Destination
+002. Marcus Caballero - Serenity (Original Mix)
+003. Caleb Weiss - London Rhythm (Original Mix)
+004. Daniele Frate - Are You Ready(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 13:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E5BE938CEC7453348B55202F8EB83E535F8738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354178   (989043) от 21.01.2020
 
 VA - Subtle Vibrations: Relax Compilation (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
@@ -661,105 +760,6 @@ VA - Зайцев.нет Лучшие новинки Января (2020) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A800975682FF4792ACB8E132BD37476098BADF8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611011   (986257) от 02.02.2013
-
-VA - Drum and Bass Pro V.4 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hosta - When You Were Mine (VIP Mix)
-02. John B feat. Kirsty Hawkshaw - Connected (McMash Clan Remix)
-03. Netsky - I Refuse
-04. Tut Tut Child feat. Emily Underhill - Alive (Original Mix)
-05. Vospi ft. Leila - Kind Words (nClear remix)
-06. Menace & Borderline - Murky
-07. State of Mind - Azwell
-08. The Brainkiller - Follow Me (Chaos Teory Remix)
-09. Mr.Tools - What Is Your Profession (Original Mix)
-10. Brookes Brothers - The Blues(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99065549EAE4E007452C899FB3ED8B588A065993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612752   (986253) от 02.02.2013
-
-Twistex - The Best (2013) [MP3|256 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Powerdrive (Original Mix)
- 02. Signs Of Time (Original Mix)
- 03. Teaser Upcoming Songs 2012
- 04. This Is Stupid (Original Mix)
- 05. Time Warp (Original Mix)
- 06. Tricky Finger (Original Mix)
- 07. Twee
- 08.Twistex Feat. Gunslinger Jones - To The Beach (Savant Remix)
- 09.Twistex Feat. Skepsis - Over The River (Original Mix)
- 10.Twistex Feat. Skepsis - Ozeriah Beach (Original Mix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 02:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD67C323AB040B4E195C07A5BA50EA3A7F86815C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355026   (986153) от 24.01.2020
-
-VA - World of Electronic Music Vol.5 (2019) [MP3|320 Kbps] <Synthpop, Futurepop, Electropop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986153.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eisfabrik - Eisfabrik
-002. A Spell Inside - Resist
-003. Belief - Pastlight
-004. Colony 5 - Fate(   Читать дальше...   )Жанр: Synthpop, Futurepop, ElectropopПродолжительность: 10:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2A181A2D8AB11575BF667173DABFC52D8E933D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1212677   (775191) от 13.03.2018
+
+VA - Morning Coffe Chillout Original Party (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775191.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daminika - Snatches Of Memory (Original Mix)
+002. DJSaint - Souls (Harold-Alexis Remix)
+003. Leslie Dhani - What I Need - Deep House Dance Mix
+004. Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C7C479E3563F612E457F2AB929257E53F9682E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015495   (775080) от 10.05.2016
 
 VA - Luxury Chill House (2016) [MP3|320 кб/с] <Chillout, Downtempo, Chillhouse>
@@ -726,35 +755,6 @@ VA - Neotrance Selected Works [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Neotra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:876E9994534FC2E3C2CD6B3E5AACE69ED1E228F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278346   (771915) от 25.01.2019
-
-VA - Urban Drum And Bass Arena (2019) [MP3|320 Kbps] <Drum and Bass, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771915.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danger - Unknown Object
-002. Maverick Soul - Stranded
-003. Aweminus - Pants Floor
-004. Fourward - Make Some(   Читать дальше...   )Жанр: Drum and Bass, Electro BassПродолжительность: 10:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F336FA61F6A7F9159FC77BFF3632E1FD319954
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1088782   (950556) от 04.01.2017
+
+VA - Хитовый бум на Europa Plus. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950556.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stevie Wonder Feat. Ariana Grande - Faith 2:41
+002. Sia - Never Give Up 3:42
+003. John Legend - Surefire 4:03
+004. Tommy Trash - Lover 3:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B62B8F65ACE4BF6BA8762877CFEE22A09F2C64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089449   (950040) от 04.01.2017
 
 VA - Новогодняя Дискотека 80-х от Авторадио – 15 Лет (2017) [MP3|320 Kbps] <Pop , Dance>
@@ -722,35 +751,6 @@ VA - Singles Chart Hot 100 Billboard (31 December) (2016) [MP3|32-320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60D5504CD4F7FF0091EE5990DEAEB9B18F63A3BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091569   (943110) от 09.01.2017
-
-VA - New Year Jelly (2016) [MP3|320 Kbps] <Dance, Technodance, Euro-House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jessica Jay - Casablanca (06:21)
-02. Pharao - I Show You Secrets (04:03)
-03. 2 Unlimited - No-One (03:29)
-04. Dj Bobo - Somebody Dance With Me (03:34)(   Читать дальше...   )Жанр: Dance, Technodance, Euro-HouseПродолжительность: 03:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9740AC502823969469FD4C434D721E685F51CAE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

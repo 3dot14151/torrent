@@ -1,3 +1,119 @@
+###  Публикация: 1004518   (838290) от 06.04.2016
+
+Jeff Jensen - The River City Sessions (Live) (2016) [MP3|320 кб/с] <Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (Live) (0:53)
+02. T-Bone Shuffle (Live) (5:34)
+03. Make It Through (Live) (3:43)
+04. Empty Bottles (Live) (5:31)(   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 01:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4000CD0747956B0488A776513613BA9338BFD97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501059   (838246) от 08.10.2021
+
+Mezz Mezzrow - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathless Blues [2:57]
+02. Really the Blues - Part 1 [3:12]
+03. Really the Blues - Part 2 [2:53]
+04. Evil Gal Blues [2:58](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B11B6CB8C6377C46D9BA6C531A7C9C82C4A2B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501057   (838245) от 08.10.2021
+
+Art Farmer - Here's That Rainy Day (1990) Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's That Rainy Day [6:35]
+02. Didn't We [3:08]
+03. Soul Side [4:28]
+04. So Bist Du [3:36](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397019DFE65BCED903445D00150ACD44E9147DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501052   (838242) от 08.10.2021
+
+New York Voices - Reminiscing In Tempo (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Round, Round, Round (Blue Rondo a la Turk) [7:14]
+02. Open Your Eyes, You Can Fly [5:11]
+03. Answered Prayers (E de Deus) [5:06]
+04. A Dance for Me [4:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D9C9DA7B7D97AAA97954C32891C7D2F4DD6696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004450   (838060) от 06.04.2016
 
 Horace Parlan - Joe Meets The Rhythm Section (1986) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -636,122 +752,6 @@ Dayme Arocena - Cubafonia (2017) Beat Records [FLAC|Lossless|tracks + .cue] <Afr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:127735C5BC73CB5DAB678D76000EA72759829A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113942   (835340) от 13.03.2017
-
-Lane Mack - Lane Mack (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Is Coming (4:21)
-02. High And Tight (3:48)
-03. Jesus' Cadillac (4:13)
-04. Be You (2:49)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E736A95E2888409F9A584C5681FC249EEBEFCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501529   (835311) от 10.10.2021
-
-Pete Johnson - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Boogie-Woogie, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Margie [3:04]
-02. Minuet Boogie [2:38]
-03. 66 Stomp [2:46]
-04. Pete Kay Boogie [3:01](   Читать дальше...   )Жанр: Boogie-Woogie, Piano JazzПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08BFF8E3219A89FC6AB9D44BD03E2DFF35B73A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114071   (835305) от 13.03.2017
-
-Jeff Healey - Mess Of Blues (2008) Compilation [FLAC|Lossless|tracks + .cue] <Blues Rock, Rock & Roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  I'm Tore Down  (05:27) 
-02|  How Blue Can You Get  (08:55) 
-03|  Sugar Sweet  (03:46) 
-04|  Jambalaya  (04:00) (   Читать дальше...   )Жанр: Blues Rock, Rock & RollПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3C0E4F8B70C0191160C1E6030BB488928ECE6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113861   (835292) от 13.03.2017
-
-Lazer Lloyd - Lazer Lloyd (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Burning Thunder  (03:31) 
-02|  Suffering  (04:22) 
-03|  Rockin' In The Holy Land  (03:40) 
-04|  Never Give Up  (04:28) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804A6BDBC66065F980ECB09C17312CC4074877C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

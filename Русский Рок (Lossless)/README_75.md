@@ -1,3 +1,148 @@
+###  Публикация: 61005   (50836) от 07.07.2024
+
+Группа Стаса Намина - Цветы (1972-1979) [FLAC|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_50836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звездочка моя ясная (5:16)
+02. Не надо (2:59)
+03. Есть глаза у цветов (4:14)
+04. Честно говоря (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED970A6F3550CDD5751D7B3D4ED0A846E2A2342F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735292   (50769) от 07.07.2024
+
+ДДТ (DDT) - 13 Альбомов (1992-2014) Reissue Navigator Records, 16CD [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_50769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В очереди за правдой
+02. Туман
+03. Танцует солнце
+04. Реальность(   Читать дальше...   )Жанр: RockПродолжительность: 14:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF61986019266D48E6BA011DC6B8A744211955D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734712   (50753) от 07.07.2024
+
+Slaughter To Prevail - 4 Albums, 4 Singles (2015-2024) [FLAC|Lossless|WEB-DL|tracks] <Ural Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_50753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - Chapters of Misery (EP)
+2017 - Misery Sermon
+2021 - Kostolom(   Читать дальше...   )Жанр: Ural DeathcoreПродолжительность: 8 CD, 03:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE330844FAABB2513340D040219A380E2A14E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735682   (50550) от 09.07.2024
+
+Машина Времени - 50 лет Live (2020) 2 x CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_50550.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Intro (Увертюра)
+02. Время ходит на мягких лапах
+03. Песня о капитане(   Читать дальше...   )Жанр: RockПродолжительность: 02:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B52B5C92926FAB8D29A5B782FF44DB9F1B492FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737229   (49814) от 16.07.2024
+
+Сплин - Вира и майна (2020) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Призрак
+02. За семью печатями
+03. Беги, моя жизнь
+04. Джин(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC402C2263F407644923CFBF3028D58F8FFEA9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741692   (47426) от 08.08.2024
 
 Мельница - Дорога Сна (2003) [WavPack|Lossless|image + .cue] <Folk Rock>
@@ -597,148 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:689C3115D0829C2976DD7CF0B2E8964D7918B08A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760884   (36873) от 18.11.2024
-
-Д.И.В.А. (ДИВА) - Нет дыма без огня + Заветы старых мастеров (2016-2023) [FLAC|Lossless|image + .cue] <Heavy Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Power MetalПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB5A65FAAF9BA83BDF4DCBA3C861869072B2A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761357   (36765) от 19.11.2024
-
-Первый Легион - Ритуал (2024) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зло ждёт 03:21
-02. Чёрный монолит 03:25
-03. Ритуал 03:24
-04. Дотла 02:48(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD297CD10BC120E013DF3AD5CDA8B990A14D5FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761524   (36563) от 21.11.2024
-
-TRUST X - На краю вечности (2011) [FLAC|Lossless|image + .cue] <Power-metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Погасшее солнце (с участием А.Беркута и А.Смирнова)
-2.Июньский вечер
-3.Up to the Skies
-4.Погасшее солнце (альбомная версия)(   Читать дальше...   )Жанр: Power-metalПродолжительность: 01:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3200B251D88709B68F44E4316291F6F47AF040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762338   (36242) от 24.11.2024
-
-Пикник - Железные Мантры (2008) Digipack [WavPack|Lossless|image + .cue] <Soft Rock, Goth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Недобитый Романтик
- 02. Гиперболоид
- 03. Колдыри Да Колдобины
- 04. Железные Мантры(   Читать дальше...   )Жанр: Soft Rock, Goth RockПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB5F85C1BD3E4B632F610EA1689CB006B7010F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762818   (36000) от 27.11.2024
-
-Алиса - Гoйда (2024) 2 x CD, Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36000.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Шестой конвой
-02. Гoйда
-03. Меч(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D84B609EB809E990050374FA9289805DB177E35
 ```
 
 https://mybot314.ru/tekegram_catalog/

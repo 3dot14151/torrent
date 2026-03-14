@@ -1,3 +1,148 @@
+###  Публикация: 1055400   (488166) от 22.09.2016
+
+Ансамбль Мелодия играет танго Оскара Строка (1979) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Retro, Tango>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Черные глаза  3:24
+02. Неаполитанское танго  3:10
+03. Когда весна придет опять  3:06(   Читать дальше...   )Жанр: Retro, TangoПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FFACB1A13245B5EB6F20CF6E4E0E8784D8A237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937659   (487780) от 15.09.2015
+
+AC/DC - For Those About To Rock (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487780.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. For Those About To Rock (We Salute You) (5:44)
+A2. Put The Finger On You (3:25)
+A3. Let's Get It Up (3:54)
+A4. Inject The Venom (3:31)(   Читать дальше...   )Производство: Atlantic Rec. / Warner-Pioneer corp.Жанр: Hard RockПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38BBE28B527E495331EE968026B352FA3785AAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405229   (485173) от 29.08.2020
+
+Рондо - Убей Меня Своей Любовью (1991) Rondo - Kill Me With Your Love [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soft Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485173.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Венчает Гроза = Married By Thunderstorm
+A2 Когда Ты Скажешь Мне ''Прощай'' = When You Tell Me ''Goodbye''
+A3 Смотри, Но Не Трогай = Now Look, But You Can't Take It
+A4 Крошка Жанет = Baby Jeannette(   Читать дальше...   )Жанр: Soft Rock, Hard RockПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B231A82BE78F88221E8E999E1C252719199498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043278   (483272) от 24.09.2016
+
+Давид Тухманов - По волне моей памяти (1976) [WAV Pack 2.0|192/32|tracks|Vinyl-Rip] <Symphonic Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Я мысленно вхожу в ваш кабинет (Максимилиан Волошин) 5:06
+Vocals – Мехрдад Бади
+02. Из Сафо (VII век до н.э.) 5:18(   Читать дальше...   )Жанр: Symphonic Rock, Classic RockПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE8FEF60DA23E030C15B845BDA4CB72FA3EEC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 700522   (483138) от 15.09.2013
+
+Аукцыон - Дупло (1990) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок / Авангард>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483138.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Пионер (5:27)
+A2. Немой (5:21)
+A3. Боюсь (6:00)
+A4. Ябеда (4:37)(   Читать дальше...   )Жанр: Рок / АвангардПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392092AA191C208BA20B20BDB95FDF5F07D67E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159161   (481624) от 21.08.2017
 
 VA - Робинзон - Леонид Дербенёв (1985) [DSD2.0|5,64MHz/1bit|image+.cue|Vinyl-Rip] <Pop, Disco>
@@ -600,150 +745,6 @@ Peter Gabriel - Up (2002) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive Rock, New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B068C1F660AB66DB123712053D37A44DE2A8A52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245731   (467329) от 08.09.2018
-
-Genesis - Anthology 1970-1998 (2007) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive Rock, AOR, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - On The Shoreline
-02 - Hearts On Fire
-03 - Do The Neurotic
-04 - Feeding The Fire(   Читать дальше...   )Жанр: Progressive Rock, AOR, PopПродолжительность: 45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1389C8554C8F5BC14F2F0ACA1441F54CFCFFCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939804   (466270) от 25.09.2015
-
-David Gilmour - Rattle That Lock (2015) [DTS 5.1 44.1 /16 | .wav+.cue (BD-Audio)] <art rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466270.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 5 A.M.
-2. Rattle That Lock
-3. Faces Of Stone
-4. A Boat Lies Waiting(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B85CE6B20B2F465D01F8541FA988CF7E6E165C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568222   (464086) от 07.08.2022
-
-Down (Phil Anselmo, Pantera) - Дискография (6 releases) (1995 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Sludge Metal, Stoner Metal, Southern Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Down — метал-группа из США, основанная в 1991 году в Новом Орлеане. Первоначально являлась сайд-проектом музыкантов Pantera, Crowbar, Corrosion of Conformity и Eyehategod, но со временем превратилась в полноценную группу.1995 - Nola
-2002 - A Bustle in Your Hedgerow
-2007 - Over the UnderЖанр: Sludge Metal, Stoner Metal, Southern RockПродолжительность: 05:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735A1C9C5D74E5EAACCD17ECD327F5DE6C9684C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 149811   (463829) от 08.09.2020
-
-Theatre Of Tragedy - Aegis(Upmix) (1998/2008) [DTS] <Gothic Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cassandra (6:49)
-02. Lorelei (5:38)
-03. Angйlique (5:46)
-04. Aoede (6:11)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9695D48DEEAECACA763C6444DBF3CAEB2E426F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059513   (462105) от 04.10.2016
-
-Jack Bruce - Songs For A Tailor (1969) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Art Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462105.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Never Tell Your Mother She's Out Of Tune
-A2 Theme For An Imaginary Western
-A3 Tickets To Water Falls
-A4 Weird Of Hermiston(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031AC6E8CA59882F1C8ED132CF6C5FF5BACC5B91
 ```
 
 https://mybot314.ru/tekegram_catalog/

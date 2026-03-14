@@ -1,3 +1,29 @@
+###  Публикация: 1605613   (1044853) от 18.01.2023
+
+ISO Workshop 11.8 Pro RePack (& Portable) by FC Portables [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044853.jpg" />
+</div>
+
+
+###  Подробнее
+
+ISO Workshop – небольшая программа для работы с образами дисков: извлечения данных из образов практически всех существующих форматов (iso, bin, nrg, cdi, mdf, img, gi, pdi, dmg, b5i, b6i), конвертирование из поддерживаемых форматов в iso, записи (только iso и cue) на CD, DVD, BD диски и создание образов с оптических носителей.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF529FF17A5D73872688D8BBCB20DD7BD9B30D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605623   (1044845) от 18.01.2023
 
 Firefox Browser ESR 102.7.0 Portable by PortableApps [Ru]
@@ -645,32 +671,6 @@ Aiseesoft Audio Converter for Mac Конвертер аудио файлов, п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90DB304717753343849ACFF0D948EF2CAFE7EBD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605754   (1044762) от 19.01.2023
-
-BurnAware Professional 16.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044762.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FB7C11A7EFDE68D45B900F2E64511F9889761B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1733600   (107264) от 30.06.2024
+
+Tiësto - Tomorrowland Friendship Mix (2024-06-27) [MP3|320 Kbps] <Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Port & Stryv ft. Malachii - Move
+02. RAFFA GUIDO - Famax
+03. Disclosure ft. Eliza Doolittle - You & Me (Rivo Remix)
+04. Tiësto & Prophecy - My City(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE92B80AF1C1D62282D8C9CF6A8EB664F336A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733848   (107205) от 01.07.2024
+
+VA - Live @ Pinkpop Festival Netherlands (2024) [MP3|320 Kbps] <Progressive House, Melodic House, Techno, Drum & Bass>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pendulum @ North Stage, Pinkpop, Netherlands 2024-06-22
+01. Pendulum - Napalm
+02. Pendulum - The Island, Pt. I (Dawn)
+03. Pendulum - The Island, Pt. II (Dusk)(   Читать дальше...   )Жанр: Progressive House, Melodic House, Techno, Drum & BassПродолжительность: 02:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F175951CB0B8EACF6669F11221A75B632A67977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734784   (107048) от 05.07.2024
 
 VA - Armin van Buuren - A State Of Trance 1180 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -675,64 +733,6 @@ VA - Armin van Buuren - A State Of Trance 1197 (2024) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05322831652000E8EB833D15E4EEAF8CA2DBC067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759177   (103297) от 07.11.2024
-
-Adam Beyer & Vintage Culture - Drumcode Radio 744(OCA Stage, Só Track Boa Festival Belo Horizonte, Brazil 2024-09-14) (2024-11-06) [MP3|320 Kbps] <Melodic House, Techno, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTBAT & Vintage Culture - ID w/Celeda - The Underground (Acappella)
-02. Adriatique & Argy - ID
-03. SCRIPT - Higher
-04. Max Styler & Gorgon City - Touch(   Читать дальше...   )Жанр: Melodic House, Techno, Tech HouseПродолжительность: 01:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B617D4F41753BDFFFD960AD52C570160D2B92E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759897   (103194) от 12.11.2024
-
-Steve Angello - Radio 1's Essential Mix (2024-11-09) [MP3|~245 Kbps (V0)] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Angello & Modern Tales - Darkness In Me
-02. Anti Up - Freaky Feed Me
-03. Magnificence & Corey James - Time Machine
-04. Marco Strous & Gabe - Snogo(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F818627ED3DB7AA65C6020F967B351EA978C77D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1297280   (582203) от 14.05.2019
+
+VA - Live @ Synergy (Alte Kaserne Zurich, Switzerland) 2019-04-06 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Madwave - Live @ SYNERGY, Alte Kaserne Zurich, Switzerland 2019-04-06 (00:59:50):
+01. Dawnseekers - Gothic Dream (Rene Ablaze Madwave Mix Edit)
+02. F.G. Noise - Drive Out
+03. Manuel Le Saux & Unbeat - Evo(   Читать дальше...   )Жанр: TranceПродолжительность: 07:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3B6DDDB63CE90F59F6FD9B3F1264B4A21EEDCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554044   (579031) от 29.05.2022
+
+Two Friends - Big Bootie Mix Volume 021 (2022-05-23) [MP3|320 Kbps] <Dance, Electro Pop, Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galantis & David Guetta & Little Mix - Heartbreak Anthem w/Dan + Shay - I Should Probably Go To Bed w/The Anxiety & Willow & Tyler Cole - Meet Me At Our Spot w/M83 - Midnight City (Rave Republic Remix) w/The Killers - Somebody Told Me
+02. SM1LO & twoDB ft. Lena Leon - In My Head w/Kelly Clarkson - Because Of You w/Daft Punk - Harder Better (   Читать дальше...   )Жанр: Dance, Electro Pop, PopПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CBD87ECDCC7608026087594B9058769D2A34EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528352   (578849) от 29.05.2022
 
 Trance Wax - Trance Wax Radio (01-07) (2021-2022) [MP3|320 Kbps] <Trance, Breaks>
@@ -687,64 +743,6 @@ David Guetta - Capital FM Summertime Ball, Wembley Stadium London (2022-06-12) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AD227A3CFEAF8AF069A07CDA5057820AA2611D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558434   (528856) от 22.06.2022
-
-Justus - Live at W Amsterdam, Netherlands (Exclusive Mix) (2022-05-30) [MP3|320 Kbps] <Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justus - Tunnel w/J Balvin & Skrillex - In Da Getto w/Foreigner - Cold As Ice
-02. Ron Van Den Beuken - Timeless (Justus Until Sunrise Version) w/Yeah Yeah Yeahs - Heads Will Roll (A-Trak Remix)
-03. Justus - Speed w/Tiësto & Ava Max - The Motto
-04. ShortRound - Fly w/R.E.M. - Losing My Religion(   Читать дальше...   )Жанр: Big RoomПродолжительность: 00:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B6D0BDA111AAA1034A5135860A94B72DAD9EC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558865   (528797) от 22.06.2022
-
-David Guetta & MORTEN - Live @ kineticFIELD, EDC Las Vegas, United States (2022-05-21) [MP3|~245 Kbps (V0)] <Progressive House, Electro House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN - Permanence
-02. David Guetta & MORTEN & Roland Clark - Alive Again
-03. David Guetta & MORTEN - ID
-04. David Guetta & MORTEN - Kill Me Slow(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170FB2D5DC435312D7A8C0B885F7AAB91204338E
 ```
 
 https://mybot314.ru/tekegram_catalog/

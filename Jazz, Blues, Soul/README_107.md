@@ -1,3 +1,177 @@
+###  Публикация: 1006654   (827301) от 12.04.2016
+
+Mike Nock Quartet - In Out And Around (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Break Time [07:09]
+ 02.Dark Light [05:58]
+ 03.Shadows Of Forgotten Love [09:40]
+ 04.The Gift [07:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F03FE645544C392B334F079870FCD9052084C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006651   (827249) от 12.04.2016
+
+Joe Zawinul - Zawinul (1970) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Doctor Honoris Causa [13:48]
+ 02.In A Silent Way [04:47]
+ 03.His Last Journey [04:35]
+ 04.Double Image [10:33](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2C2AD004636CDD6B91DEDF5F8C838B4AB1378D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006467   (827248) от 12.04.2016
+
+Abbey Lincoln - Abbey Is Blue (1959) Remaster,2005,Riverside Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afro-Blue (03:20)
+02. Lonely House (03:40)
+03. Let Up (05:32)
+04. Thursday's Child (03:32)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82E8D4BE5EF9C12877BF94F4A9D1CA0B4545550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006605   (827247) от 12.04.2016
+
+Pharoah Sanders - Village Of The Pharoahs & Wisdom Through Music (1973) 2011, Verve Music Group[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Village of The Pharoahs, Part One [07:15]
+ 02.Village of The Pharoahs, Part Two [04:58]
+ 03.Village of The Pharoahs, Part Three [04:52]
+ 04.Myth [01:48](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB57172F4368B01D3256789F62FBA2B2A1CE859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006569   (827245) от 12.04.2016
+
+Doctor Jazz's Universal Remedy! - Release 1.0 (2004) Unofficial Release [APE|Lossless|image + .cue] <Jazz, Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Milt Shake
+02	Groovy Night
+03	Elizabeat
+04	Seven Reasons Why(   Читать дальше...   )Жанр: Jazz, Future JazzПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2B3DE1CE41BF79561A9BF109E3E397BF5AC083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006776   (827168) от 12.04.2016
+
+Dennis Jones - Pleasure & Pain (2009) [FLAC|Lossless|tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827168.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Brand New Day (3:14)
+ 2. Don't Worry About Me (3:45)
+ 3. I'm Good (2:54)
+ 4. Kill the Pain (4:32)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25DD6D8970E87405CFC435E091B9F5478231F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006557   (827089) от 12.04.2016
 
 The Glenn Miller Orchestra - In The Digital Mood (1984) Digital Mastering [APE|Lossless|image + .cue] <Jazz, Swing>
@@ -571,180 +745,6 @@ Samantha Fish - Chills & Fever (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15EC1686718043221217ED01C4FBEA657F81B460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115358   (826456) от 18.03.2017
-
-Miles Davis - Kind Of Blue (1962) Remaster, 1987, CBS [FLAC|Lossless|image + .cue] <Modal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So What (9:03)
-02. Freddie Freeloader (9:33)
-03. Blue In Green (5:26)
-04. All Blues (11:31)(   Читать дальше...   )Жанр: ModalПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EEB74B7688435C83D15DAF5034F0DF284962C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381476   (826336) от 07.05.2020
-
-Dakota Staton - Dakota At Storyville 1961 (1991) Collectables [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is You Is, or Is You Ain't My Baby [3:00]
-02. This Is the Beginning of the End [2:35]
-03. Saturday Night (Is the Loneliest Night of the Week) [2:08]
-04. The Show Must Go On [2:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C28AB048A70CC34FF595064286E06E3FC2974F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381485   (826334) от 07.05.2020
-
-The Dave Brubeck Quartet - Jazz At Oberlin 1953 (2003) Fantasy [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Foolish Things (Remind Me of You) [6:33]
-02. Perdido [7:52]
-03. Stardust [6:30]
-04. The Way You Look Tonight [7:52](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35269B7EF82A14079A0B44471A8BE0D43598043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381480   (826249) от 07.05.2020
-
-Stan Getz & Charlie Byrd - Jazz Samba 1962 (2013) Analogue Productions [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desafinado [5:52]
-02. Samba Dees Days [3:36]
-03. O Pato [2:35]
-04. Samba Triste [4:47](   Читать дальше...   )Жанр: Bossa Nova, Latin JazzПродолжительность: 00:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88904C10CA1495E4789E6967BFEAB1AA3B066CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196232   (826034) от 01.01.2018
-
-Maria Jacobs - Lucky Girl (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Favorite Things
-02. If We Never Touch Again
-03. Lucky Girl
-04. What If(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F8ACADC100EFF62B447837436294B76BABFD8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006899   (825582) от 13.04.2016
-
-Moacir Santos - Saudade (1974) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Early Morning Love [03:28]
- 02.A Saudade Mata A Gente [06:12]
- 03.Off And On [03:40]
- 04.The City Of LA [03:40](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17399B5F220FE18B90C4F17CCDB9BA3A946C8B30
 ```
 
 https://mybot314.ru/tekegram_catalog/

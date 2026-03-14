@@ -1,3 +1,32 @@
+###  Публикация: 1009740   (808239) от 22.04.2016
+
+August Redmoon - Drums Of War (2016) [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808239.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Bring Down The House
+2.The Only Man On Earth
+3.Fools Are Never Alone
+4.Drums Of War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29DD08878B285D98EE494ACE5400FCA34E2C9EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009477   (808237) от 22.04.2016
 
 This Ending - Garden Of Death (2016) [MP3|320 кб/с] <MDM>
@@ -714,34 +743,6 @@ Mammoth Weed Wizard Bastard - Y Proffwyd Dwyll (2016) [MP3|320 Kbps] <Doom, Slud
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25CD4639D19B43A74D14B32CE78C56F0D7BDC622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122001   (798843) от 05.04.2017
-
-Mammoth Weed Wizard Bastard - Noeth Ac Anoeth (2015) [MP3|320 Kbps] <Doom, Sludge, Psychedelic,>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798843.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Les Paradis Artificiels
-2. Slave Moon
-3. NachthexenЖанр: Doom, Sludge, Psychedelic,Продолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:696E56C0532202B4A9B64CE68B2A159B77E8DBBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1812499   (7649) от 15.08.2025
+
+VA - Ori Uplift - Uplifting Only Episode 653 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LR Uplift – Emotions (SouthDreamer Intro Mix)
+02. Alexander de Roy & Hidden Tigress – Intention (Eximinds Remix) (Fan Favorite (650))
+03. Tycoos – Future Horizons (Uplifting Classic)
+04. Ciaran McAuley & Sean Tyas & Clara Yates – Runaway(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A54C3FD9A8DC13268D3E5A46A3147919A936B80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813923   (6406) от 22.08.2025
+
+VA - Armin van Buuren - A State Of Trance 1239 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hardwell played:
+01. UUFO & Shogun – Seven Days And One Week
+02. Armin van Buuren & Hardwell – Follow The Light
+03. Alex Gaudino ft. Crystal Waters – Destination Calabria (Hardwell Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE698948C1E87727AE8E7660827A277BF951DC82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771651   (6319) от 23.08.2025
 
 Dirty South - Live Mixtape 001-006 (2025) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>

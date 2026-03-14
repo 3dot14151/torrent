@@ -1,3 +1,90 @@
+###  Публикация: 1640434   (236393) от 17.06.2023
+
+Steve Gadd, Eddie Gomez, Ronnie Cuber - Center Stage (2022) Leopard [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Jazz Fusion, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signed, Sealed, Delivered [7:17]
+02. Watching the River Flow [8:04]
+03. I Can't Turn You Loose [5:15]
+04. Che Ore So [6:14](   Читать дальше...   )Жанр: Jazz-Rock, Jazz Fusion, Big BandПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F24CE0B6C99BF84807E09A22286669D5287B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631939   (236350) от 08.05.2023
+
+Hank Jones - Here's Love (1963) 2011, Universal [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_236350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's Love [2:47]
+02. My Wish [3:38]
+03. You Don't Know [3:14]
+04. Dear Mister Santa Claus [4:00](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D612DC8F570AFAA89EDE9375B430B581EC703C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631545   (236323) от 08.05.2023
+
+Charlie Barnet - Giants Of The Big Band Era (1990) MAGMA [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_236323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East Side West Side [2:57]
+02. Cherokee [3:25]
+03. Pomton Turnpike [2:26]
+04. Volga Boatmen [2:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14231214DF08FEC192C301AACF743D4761869C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457289   (236318) от 25.03.2021
 
 Dena DeRose - Live at Jazz Standard, Vol. 1 (2007) MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
@@ -658,93 +745,6 @@ Enrico Rava & Fred Hersch - The Song Is You (2022) ECM Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30B54F5919ED0916D593566DC5E87763FC90B5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635992   (235807) от 28.05.2023
-
-Lennie Tristano - The Duo Sessions (1967 - 1976) 2020, Dot Time Records [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of a Dream [6:18]
-02. Ballad [6:53]
-03. Chez Lennie [6:36]
-04. Inflight [2:07](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 01:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC195E85C55213900F963E10CCEB9459005574A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615239   (235792) от 25.02.2023
-
-Freddie Hubbard - Here To Stay (1962) 1988, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philly Mignon [5:30]
-02. Father and Son [6:38]
-03. Body and Soul [6:28]
-04. Nostrand and Fulton [7:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A22B9629898369F380A8D10990781E4DCAE192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635862   (235788) от 28.05.2023
-
-Billy Bang - Big Bang Theory (2000) Justin Time Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Contrary Motion [5:19]
-02. At Play In The Fields Of The Lord [7:38]
-03. Big Bang Theory [9:54]
-04. Theme For Taraby [6:03](   Читать дальше...   )Жанр: Contemporary Jazz, Free ImprovisationПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE7D0711ED4DDC41151D5D1EE0F952809930765
 ```
 
 https://mybot314.ru/tekegram_catalog/

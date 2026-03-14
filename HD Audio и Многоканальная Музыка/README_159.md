@@ -1,3 +1,148 @@
+###  Публикация: 1753009   (103883) от 03.10.2024
+
+JD McPherson - Nite Owls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine Getaway (2:55)
+02. I Can’t Go Anywhere with You (2:50)
+03. Just Like Summer (3:44)
+04. Nite Owls (3:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D1A22E4E10D72BBE9A9832399802EA3C4607FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753142   (103882) от 03.10.2024
+
+The Wayback Machine - Future History (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Pleasure Knowing You (3:39)
+02. It's Probably Me (3:27)
+03. The Better Days (4:42)
+04. Lost in the Shadow (4:56)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27E117BBC23FB8FDE14733D685D7F94A9036D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753135   (103880) от 03.10.2024
+
+Soul Asylum - Slowly But Shirley (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only Thing I'm Missing (2:31)
+02. High Road (3:09)
+03. You Don't Know Me (4:55)
+04. Freeloader (2:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3A67547012775AF8CC97C93C1FA208DACF03C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753010   (103876) от 03.10.2024
+
+Kant - Paranoia Pilgrimage (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Great Serpent (5:01)
+02. Baba Yaga (3:49)
+03. Book Of Creation (3:18)
+04. Traitor's Lair (5:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B9D37E5E3D7F24BE024C79A42453E8D13F4622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753280   (103864) от 04.10.2024
+
+Eric Clapton - Meanwhile (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pompous Fool (4:45)
+02. Heart of a Child (7:04)
+03. Eric Clapton & Jeff Beck - Moon River (5:06)
+04. Sam Hall (5:27)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B97299090641B447576133C99D27EE87836EA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753289   (103857) от 04.10.2024
 
 Toby Lee - House On Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -598,151 +743,6 @@ Oceanator - Everything is Love and Death (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A92CA47951D61E912E9143A1EDD5E2DAE2DE69CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754041   (103735) от 08.10.2024
-
-k.d. lang - Three Albums (1981-1990) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country, Western Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103735.jpg" />
-</div>
-
-
-###  Подробнее
-
-00:42:28
-
-Side A:
-A1 Save Me(   Читать дальше...   )Жанр: Country, Western SwingПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A53376C0D615700A1EF6434179825DD83BA0CFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754138   (103734) от 08.10.2024
-
-Marc Broussard - Time Is A Thief (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire (3:58)
-02. Mood (3:30)
-03. Cold Blooded (3:10)
-04. You Deserve More (3:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1377C3AD417CEEAC2E5F52095954797069B141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754104   (103732) от 08.10.2024
-
-April Art - Rodeo (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, Electronic, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rodeo [00:03:22]
-02. Burn [00:02:54]
-03. Who I Never Meant to be [00:03:27]
-04. Not Sorry [00:03:14](   Читать дальше...   )Жанр: Alt.Metal, Electronic, Female VocalПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858C93B02B5B8CBABA2C026B27800DC4A0A590FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754137   (103731) от 08.10.2024
-
-Little Steve and The Big Beat - Circles (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 99 LBS (2:35)
-02. The Shame Is On You (4:08)
-03. Anna Lee (4:37)
-04. Walking At Night (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C72FE1A5A9A21A642501E5CB2153ABF8E28682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754125   (103730) от 08.10.2024
-
-The New Roses - Attracted To Danger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You Fall In Love (3:57)
-02. Natural Born Vagabonds (4:01)
-03. Attracted To Danger (3:23)
-04. Four Wheels (3:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:328CC23F6113B7A5578C4DAC58F609426E8CA1F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

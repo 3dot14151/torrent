@@ -1,3 +1,90 @@
+###  Публикация: 1648935   (231239) от 26.07.2023
+
+Charlie Rouse / Paul Quinichette - The Chase Is On (1957) 2004, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chase Is On [3:18]
+02. When The Blues Come On [5:49]
+03. This Can't Be Love [5:25]
+04. Last Time For Love [4:30](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB61007639D822396D00BF57DFEF450625FF0F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637817   (230548) от 06.06.2023
+
+Steps Ahead - Steps Ahead (1983) [FLAC|Lossless|tracks + .cue] <Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_230548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pools (Don Grolnick) 11:15
+02. Islands (Mike Mainieri) 6:23
+03. Loxodrome (Eddie Gomez) 5:25
+04. Both Sides Of The Coin (Michael Brecker) 6:10(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520C4F76F794430D6468741BC3F33853FFEBEFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648645   (230022) от 27.07.2023
+
+Glenn Miller - The Very Best Of (1938 - 1942) 2CD, 2011, One Day Music [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tuxedo Junction [3:30]
+02. On A Little Street In Singapore (Vocal Ray Eberle) [2:44]
+03. Moonlight Serenade [3:27]
+04. Song Of The Volga Boatmen [3:26](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D816B1E3974F85B3948A8B376452823C55E481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586436   (229968) от 08.12.2012
 
 Avishai Cohen - Triveni II (2012) [FLAC|Lossless]<Jazz>
@@ -664,93 +751,6 @@ Mildred Bailey - Smoke Dreams 1935 - 1939 (1999) Definitive Records [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE618562713412ACC538EFDFEE9EB4C41082B6A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341910   (227685) от 30.11.2019
-
-Mildred Bailey - Band Vocalist, Vol. 2 1931 - 1934 (1994) The Old Masters [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Standards, Traditional Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley [8:30]
-02. Stop The Sun, Stop The Moon [2:40]
-03. Strangers [2:44]
-04. I'll Nevet Be The Same [3:23](   Читать дальше...   )Жанр: Vocal Jazz, Standards, Traditional PopПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E86A4243BC7E526705327D2BB1E40C1AB5DBC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341907   (227675) от 30.11.2019
-
-Mildred Bailey - A Forgotten Lady 1935 - 1942 (1996) Jazz Archives [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Day Is Done [3:29]
-02. Willow Tree [3:20]
-03. Honeysuckle Rose [2:57]
-04. Squeeze Me [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B76C36F0F71BBA4D44D607CB4D9A595E19E5AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341904   (227658) от 30.11.2019
-
-Bucky Pizzarelli - April Kisses (1999) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helena [2:42]
-02. April Kisses [3:18]
-03. Afterthoughts, Part 1 [1:55]
-04. Afterthoughts, Part 2 [1:03](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50244D14A1B9DD875E3E48FB108396E7FF9761B
 ```
 
 https://mybot314.ru/tekegram_catalog/

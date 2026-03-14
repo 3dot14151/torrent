@@ -1,3 +1,90 @@
+###  Публикация: 1809675   (64703) от 31.07.2025
+
+VA - Jazz & House Summer Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jazz 2 More - Spiritual Session (5:24)
+02.  Don Carlos - Free (4:52)
+03.  Acusmatic group - Secret Lovers (Suonho Motion Capture Mix) (7:08)
+04.  Anduze - Bad Side (6:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE40FCC09B9FAF459188C057F7AE8B4026DEEA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809679   (64701) от 31.07.2025
+
+VA - Las Mejores Canciones de Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cannonball Adderley - Autumn Leaves (10:59)
+02.  Diana Krall - 'S Wonderful (4:29)
+03.  Antonio Carlos Jobim - The Girl From Ipanema (2008 Remastered) (3:14)
+04.  Paul Motian - Blue In Green (Take 3) (5:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB334E751084C19E8F9AFF0927E800FD9F46982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809673   (64696) от 31.07.2025
+
+VA - Chillout Jazz Del Mar Summer 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Papik - Blackbird (1:43)
+02.  Nic Cattaneo - Triste (4:58)
+03.  Paolo Sessa - The Sea In Spring (4:03)
+04.  Soulstance - Magnetic (4:26)(   Читать дальше...   )Жанр: Chillout JazzПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63EFD0F07147A8303F87E75D1069B26C4444F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809687   (64695) от 31.07.2025
 
 VA - Under The Umbrella (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
@@ -658,93 +745,6 @@ Vic Dickenson & Joe Thomas - Mainstream (1958) 2013, Warner [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:310F549AADD890BFBAB03913ECA6CEA6CF16C35B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729132   (53628) от 11.06.2024
-
-Mildred Bailey - 1939 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Cried for You [2:45]
-02. Begin the Beguine [2:46]
-03. What Shall I Say? [2:55]
-04. It's Slumbertime Along the Swanee [2:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B188BD55411B4DDDBBF3F459B8AF857E2D467F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729134   (53627) от 11.06.2024
-
-Mildred Bailey - 1939 - 1940 (2002) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Little Man Who Wasn't There [2:33]
-02. A Ghost of a Chance [3:11]
-03. You're the Moment in My Life [2:32]
-04. You and Your Love [2:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5F47B18BE6E24AB79B45190854BA806A46EB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729140   (53625) от 11.06.2024
-
-Mildred Bailey - 1940 - 1942 (2002) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fools Rush In [3:21]
-02. From Another World [2:47]
-03. I'm Nobody's Baby [3:00]
-04. Give Me Time [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E6090E959408FD0FE0AA062C504CF5E3F053DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

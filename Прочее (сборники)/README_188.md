@@ -1,3 +1,32 @@
+###  Публикация: 1776414   (28985) от 01.02.2025
+
+VA - Music News For Forum vol.058 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28985.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Katusha Svoboda - Ой (02:50)
+ 002. AFBEAVERS - Стоит ли (04:06)
+ 003. Akha - Моя (02:09)
+ 004. Akris & Teddy - Черные глаза (02:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8207B850324833A3B2F39ECCC418BD558324E333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776996   (28774) от 03.02.2025
 
 VA - Music News For Forum vol.059 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Billboard Hot 100 Singles Chart 22.03.2025 (2025) [MP3|320 Kbps] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E66A8FC92822A526303518598234E9297A50553A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787257   (23615) от 24.03.2025
-
-VA - Music News For Forum vol.067 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23615.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brianna Mei - Без правил (02:46)
- 002. Ad Voca & Maunavi - Faded (02:13)
- 003. Afrojack - Never Forget You (03:04)
- 004. Ago - Два сердца (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C858EC6DC344387507A29B513855FFFE8EDF2130
 ```
 
 https://mybot314.ru/tekegram_catalog/

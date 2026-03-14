@@ -1,3 +1,32 @@
+###  Публикация: 1409388   (447368) от 16.09.2020
+
+Finntroll - Vredesvävd (2020) [MP3|320 Kbps] <Blackened Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Väktaren (02:46)
+02. Att Döda Med En Sten (03:37)
+03. Ormfolk (03:58)
+04. Grenars Väg (03:44)(   Читать дальше...   )Жанр: Blackened Folk MetalПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340CC581BC2AB7FE5E74334B59175F0E1913C02A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569833   (447323) от 15.08.2022
 
 Deer Creek - Menticide (2022) [MP3|320 Kbps] <Sludge, Doom Metal>
@@ -719,41 +748,6 @@ Corrupt-R - Awakening (2020) [MP3|320 Kbps] <Modern Metal, Djent Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:952132ACA3B73256FC2732C2BF1C85A7B30D1D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555348   (431782) от 03.10.2012
-
-AxeWound - Vultures (2012) [MP3|320 кб/с]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vultures (feat. Synyster Gates)
-02. Post Apocalyptic Party
-03. Victim Of The System
-04. Cold
-05. Burn Alive
-06. Exochrist
-07. Collide
-08. Destroy
-09. Blood Money And Lies
-10. Church of NothingЖанр: MetalcoreПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C535DB188DB527491BF23E9A75EDF4C6965FDE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 940379   (469155) от 24.09.2015
+
+Louis Armstrong - Hear Me Talkin' To Ya (1995) /Castle Communications/[FLAC|tracks+.cue]<New Orleans Jazz, Dixieland, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Weary Blues [03:04]
+02.Muskrat Ramble [02:36]
+03.Wild Man Blues [03:15]
+04.St James Infirmary [03:17](   Читать дальше...   )Жанр: New Orleans Jazz, Dixieland, Vocal JazzПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D06982213C364662A316970FA5CB2F629E146CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940426   (469147) от 24.09.2015
+
+Cannonball Adderley - Sophisticated Swing The EmArcy Small Group Sessions [FLAC] (1958) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Bimini (Adderley) 3:40
+02. Sermonette (Adderley, Hendricks) 3:36
+03. Hoppin' John (Adderley) 2:16(   Читать дальше...   )Жанр: Hard Bop Jazz, Soul Jazz, Saxophone JazzФормат: 2 × CD, CompilationПродолжительность: 02:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5FE260FB8139C95A1609EE00A3B7B53D15830A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058417   (468836) от 01.10.2016
+
+Chuck Loeb - Unspoken (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cotton Club (Feat. Jeff Lorber)
+02. Natural Light (Feat. Andy Snitzer)
+03. Unspoken (Feat. Brian Culbertson)
+04. Happy Hour (Feat. Mitchel Forman)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962EE907BA4800CAADEA8CCB752F9A87B60340EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407128   (468610) от 06.09.2020
 
 Wynton Marsalis Septet - United We Swing: Best of the Jazz at Lincoln Center Galas (2018) Blue Engine Records [FLAC|Lossless|tracks + .cue] <Swing, Straight-Ahead Jazz, Vocal Jazz>
@@ -676,99 +763,6 @@ VA - Ladies First (2012) [FLAC|Lossless]<Jazz Vocal, Jazz-Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940726   (465064) от 26.09.2015
-
-Chanticleer - Lost in the Stars (1996) /Teldec/[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It's De-lovely / All Through the Night [03:22]
-02.Night and Day [03:05]
-03.I Can Dream, Can't I? [05:36]
-04.You and the Night and the Music [03:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C89A766B79762BE749DD91849173EB5849A0FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548946   (465021) от 19.09.2012
-
-Sara Gazarek - 2 альбома (2007 & 2012) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything I've Got [03:26]
-02. Blossom & Bee [03:36]
-03. Fly Away Birdie [04:31]
-04. The Luckiest [04:19]
-05. Down With Love [04:46]
-06. Lucky To Be Me [05:33]
-07. Tea For Two [06:10]
-08. I'm Old Fashioned [05:01]
-09. So This Is Love [04:14]
-10. The Lies Of Some Handsome Men [05:37](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940758   (464906) от 26.09.2015
-
-Ike Quebec - Bossa Nova Soul Samba (1962) /1996, Ars Nova/[FLAC|tracks+.cue]<Hard Bop, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Loie [03:12]
-02.Lloro Tu Despedida [03:07]
-03.Goin' Home [05:44]
-04.Me 'N You [06:01](   Читать дальше...   )Жанр: Hard Bop, Bossa NovaПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5B19C86C7A8503132DE7718296C9DFE877A231
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1041473   (581471) от 10.08.2016
+
+VA - Mechanoids Carnival (2016) [MP3|320 Kbps] <Dubstep, Drumm and Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581471.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Frim - 110 Squad
+002. TroyBoi & Diplo - Afterhours (BONE Remix)
+003. NGHTMRE & Boombox Cartel - Aftershock (NTCRCKRS Remix)
+004. Elephante - Age Of Innocence (CrankDat Remix)(   Читать дальше...   )Жанр: Dubstep, Drumm and BassПродолжительность: 06:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C43E906781DEB1C79AA7260CE4152A19C17DB2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041684   (581466) от 10.08.2016
 
 VA - The Best - In Music We Trust  Vol.5 (2016) [MP3|320 Kbps] <House, Trance, Club>
@@ -744,35 +773,6 @@ VA - Electropower 2016 - Best of Electro & House (2016) [MP3|320 Kbps] <Funky, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FBCDC3A63651505280D9FD6897A4A9B66CBD99D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042373   (578517) от 13.08.2016
-
-VA - Lounge Music Players (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Tabu – Song for Malala
- 02. Katia B – Parece Mentira
- 03. GYSNOIZE – Million Miles Away
- 04. EDO – Erevan(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F1EA50D276CF0D4136BD71F11FE84A8DC2E0C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1455936   (1025301) от 21.03.2021
+
+Moderator - Midnight Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Trip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Story Begins (Intro) [00:02:02]
+02. Unspoken [00:03:29]
+03. Walking Slow [00:03:59]
+04. Wish I Was Dead [00:03:42](   Читать дальше...   )Жанр: Trip Hop, Beats, JazzyПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB9C91719F86C5B0F4A04797E157ED02A476485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457116   (1024613) от 25.03.2021
+
+Pueblo Vista & VA - Hello Spring : MMXX : Lo-Hop Anthology (2020) [FLAC|Lossless|tracks] <Hip-Hop, Instrumental, Chill>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Stratt, Pueblo Vista - Morning Ramen (01:32)
+02. Chiccote'S Beats, Pueblo Vista - Fields (03:03)
+03. Mr Tav, Pueblo Vista - Flower (01:55)
+04. Pueblo Vista, RLLBTS - Passed (02:21)(   Читать дальше...   )Жанр: Hip-Hop, Instrumental, ChillПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD099D402174C581D530553215FAFAEC5E3F53B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459367   (1023282) от 01.04.2021
+
+Каста - Чернила осьминога (2021) Deluxe Edition [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пароль от почты
+2. Не то
+3. Годы неправды (feat. Рем Дигга)
+4. Нипонимони(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC9E0216D590356A0D652A7B69BD5F7CEF0E7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459722   (1023162) от 02.04.2021
 
 zavet - nights before gotika (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -658,93 +745,6 @@ Alfa Mist - Bring Backs (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AE4658EC1D2141A5938B91867C09F322D3192FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467883   (1017562) от 05.05.2021
-
-Snoop Dogg - From Tha Streets 2 Tha Suites (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CEO (3:25)
-02. Roaches In My Ashtray (feat. ProHoeZak) (3:32)
-03. Gang Signs (feat. Mozzy) (4:54)
-04. Talk Dat Shit To Me (feat. Kokane) (3:29)(   Читать дальше...   )Производство: Doggy Style RecordsЖанр: Hip-HopПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2074FD7D8168A47B2C42511227A890660BB27519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467913   (1017413) от 06.05.2021
-
-Ka - Descendants of Cain (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Now and Then (3:34)
-02. Unto the Dust (3:07)
-03. Patron Saints (2:35)
-04. My Brother's Keeper (2:50)(   Читать дальше...   )Производство: Iron Works RecordsЖанр: Hip-Hop, Abstract HopПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75945BCAA2B2B3FCD0762DEA4E691064ABB7F6C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468631   (1017087) от 08.05.2021
-
-Честер Небро - MANO A MANO (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mano a Mano [02:22]
-02. Msr [03:02]
-03. Кто тебе сказал [03:07]
-04. Dangerous [03:23](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313DB8FEED0B023D1ABC696A1248F72B112F9B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

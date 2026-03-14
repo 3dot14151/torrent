@@ -1,3 +1,61 @@
+###  Публикация: 1340149   (264238) от 22.11.2019
+
+Robbie Williams - The Christmas Present (2019) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264238.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+1. Winter Wonderland
+2. Merry Xmas Everybody
+3. Let It Snow! Let It Snow! Let It Snow!(   Читать дальше...   )Жанр: PopПродолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86CBD15CF40FDA960A820EC9C14EE3C4DC4E28B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340323   (263991) от 23.11.2019
+
+Rebel Force Band - Living In These Star Wars (1977) LP [MP3|320 Kbps] <Electronic, Novelty, Space Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living In These Star Wars (3:48)
+02. Don't Fall In Love With An Android (3:18)
+03. Leia (4:16)
+04. Chewie the Rookie Wookie (2:26)(   Читать дальше...   )Жанр: Electronic, Novelty, Space Rock, DiscoПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110FBF70B735DD382733BA6FCA14E707BB7D406D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191651   (263859) от 15.12.2017
 
 Bottle Of Moonshine - Everybody Watches No One Knows (2014) [MP3|320 Kbps] <60's-70's Retro Pop, Female Vocal Jazz>
@@ -717,70 +775,6 @@ VA - Ils Chantent Dalida (2012) [MP3|320 кб/с]<French Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B1EB39EC8537BDD61BDD0CDFF32DCE43B9E2F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499444   (256425) от 21.05.2012
-
-Tom Jones - Spirit in the Room (2012) [MP3|320 кб/с]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tower Of Song (L. Cohen)
-02. (I Want To) Come Home (P.McCartney)
-03. Hit Or Miss (Odetta)
-04. Love And Blessings (P. Simon)
-05. Soul Of A Man (Blind Willie Johnson)
-06. Bad As Me (T.Waits)
-07. Dimming Of The Day (R & LThompson)
-08. Travelling Shoes (V. Hall Ward)
-09. All Blues Hail Mary (J. Henry)
-10. Charlie Darwin (Low Anthem)Жанр: Pop-RockПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A92C3065CB5C2734ED2B9D270767D3BA70D1205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836884   (255603) от 13.11.2025
-
-VA - Now That's What I Call Music! 27 (1994) 2CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Funk / Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace Of Base - The Sign     03:09
- 02. Chaka Demus & Pliers (With Jack Radics & Taxi Gang) - Twist & Shout     03:56
- 03. DReam - Things Can Only Get Better     03:59
- 04. East 17 - It's Alright     04:41(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Funk / SoulПродолжительность: 02:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C01A20468652A751E2C67CEF3BA0AF80C18CEB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

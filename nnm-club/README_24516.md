@@ -1,25 +1,22 @@
-###  Публикация: 1787972   (68677) от 28.03.2025
+###  Публикация: 1781987   (70083) от 26.02.2025
 
-АИГЕЛ - Killer Qız (2025) [MP3|320 Kbps] <IDM, Electronic>
+Журнал | Диабет. Образ жизни №3 (2023) [PDF]
 
->>Electronic
->>IDM
+>>Журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68677.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Killer Qız
-2. Cir Tartımı
-3. Tönyaq Balqışı
-4. Qupşıl(   Читать дальше...   )Жанр: IDM, ElectronicПродолжительность: 00:36:14
+Научно-популярный медицинский журнал, предназначенный в первую очередь для людей с сахарным диабетом, их родственников, врачей-специалистов, а также для всех тех, кто привержен здоровому образу жизни. Цель журнала – повышение качества жизни при сахарном диабете, распространение знаний о заболевании, практические рекомендации по питанию, физической нагрузке, самоконтролю, (   Читать дальше...   )Жанр: Медицинский журналИздательство: МОО "Международная программа "Диабет"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F611CE35883FDF0D321397E140B98190A93BFDE4
+magnet:?xt=urn:btih:B859165955A1DC0D0F266AF9E6B217FF63953D81
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,27 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787945   (68676) от 28.03.2025
+###  Публикация: 1782038   (70082) от 26.02.2025
 
-Шрифты - Dmitri Zdorov - Dimka - Xarrovv [TTF, OTF, WOFF2]
+НХЛ 2024-2025. Питтсбург Пингвинз - Филадельфия Флайерз (25.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68676.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri Zdorov
-Материал раздается с официальной документацией и дополнениями.Формат: TTF, OTF, WOFF2
+26 февраля 2025, среда. 03:00 МСК. Стадион: Уэллс Фарго-центр (Филадельфия, США), 19 089 зрителей (95% при вместимости 20 011)
+Главный судья: Митч Даннинг (Текумсе, Канада); Главный судья: Горд Дуайер (Галифакс, Канада); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Тайсон Бэкер (Сейнт Мэрис, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:55:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76BBF91DFAC54C69955A61850DDCB4BC9B05D6C3
+magnet:?xt=urn:btih:DA1E278A9DFDB1FD439B7F8A86716BE5868BA7E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,28 +51,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788019   (68675) от 28.03.2025
+###  Публикация: 1782037   (70081) от 26.02.2025
 
-VA - Trance Top 100, Vol. 2 (2025) [MP3|320 Kbps] <Trance>
+НХЛ 2024-2025. Калгари Флэймз - Вашингтон Кэпиталз (25.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Electronic
->>Trance
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68675.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Rene Ablaze - Legends (03:01)
-002. Rino da Silva & DJ Jaycan - Liquid Sky (03:27)
-003. Diago - Verto (03:11)
-004. Woody Van Eyden & Rene Ablaze - All My Life (Maarten De Jong remix) (03:49)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:17:53
+26 февраля 2025, среда. 03:00 МСК Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Брэндон Шредер (Санборн, США); Главный судья: Кайл Реман (Стеттлер, Канада); Линейный: Девин Берг (Китченер, Канада); Линейный: Томми Хьюз (Лондон, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:53:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55787F63C287340445EEE87AD6D167B90CF026A8
+magnet:?xt=urn:btih:13A6448FB5F93E70636A386CE92DBFAE9927E5B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,28 +78,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787937   (68674) от 28.03.2025
+###  Публикация: 1782060   (70080) от 26.02.2025
 
-Шрифты - Dmitri Zdorov - Dimka - DiTulum [OTF, WOFF, WOFF2]
+Greg Coulson - Greg Coulson: Live at Crescent Records Studio (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68674.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri Zdorov
-
-В добавленных файлах "DiTulum3 By He Rez AD" от "He Rez AD" расширена кириллица - добавлена Украинская и Молдавская, им же добавлены файлы форматов WOFF, WOFF2.Формат: OTF, WOFF, WOFF2
+01.  Someone To Be There (Live at Crescent Records Studio) (5:27)
+02.  Greg Coulson feat. Will Wilde - Introverted Blues (Live at Crescent Records Studio) (6:16)
+03.  Kid Charlemagne (Live at Crescent Records Studio) (5:23)
+04.  Greg Coulson feat. Will Wilde - Nick Of Time (Live at Crescent Records Studio) (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEE3506F375C0492CD952D4D213F193F64C99389
+magnet:?xt=urn:btih:A3429A10B74B246A77F1A0B28C1D1F8960ED2FB0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,25 +107,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788039   (68673) от 28.03.2025
+###  Публикация: 1781989   (70079) от 26.02.2025
 
-Пресеты - KB Presets: Like Yesterday Collection [XMP]
+Nightrage - Studio Albums (11 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68673.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 цветных и 4 черно-белых пресетов, начиная от мягкой, чистой основы для фотографий в помещении и заканчивая матовым 35-миллиметровым видом и мечтательным финишем с теплыми полутонами, идеально подходящим для золотого часа. Также есть 3 предустановки, предназначенные для имитации Polaroid для забавного редактирования, когда вы забываете взять с собой Instax!Формат: XMP
+Nightrage — музыкальная группа, играющая мелодичный дэт-метал. Была создана в 2000 году в Салониках греческими гитаристами Мариосом Илиопулосом и Гасом Джи.2003 - Sweet Vengeance
+2005 - Descent Into Chaos
+2007 - New Disease Is Born
+2009 - Wearing a Martyr's CrownЖанр: Melodic Death MetalПродолжительность: 08:55:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D31B4B7D6B9D89B4D91015DEA52AD724CB7F4FBA
+magnet:?xt=urn:btih:63355DB2D842FCCB4CEED27C14C56504962D683D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,26 +136,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787982   (68672) от 28.03.2025
+###  Публикация: 1781978   (70078) от 26.02.2025
 
-Excite Audio - Bloom Drum Percussion 1.0.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [En]
+Brian Lynch - Madera Latino (2012) 2CD, 2016, Hollistic Musicworks [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop>
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68672.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Зажгите свой ритм с Bloom Drum Percussion — яркой коллекцией перкуссии и органических грувов с использованием латинских и африканских инструментов, сыгранных вручную. От грува бразильской самбы до глубокого резонанса западноафриканского ритма — каждый звук рассказывает историю движения и выражения.
-Excite Audio запечатлел широкий спектр перкуссии, охватывающий весь (   Читать дальше...   )Язык интерфейса: Английский
+01. Tomorrow's Destiny [9:06]
+02. Joshua C. [9:58]
+03. On the New Ark [8:28]
+04. Song of Songs [11:11](   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 01:49:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86346E9AD5A780B952B26C75E2006277C1591D46
+magnet:?xt=urn:btih:CD31CB9285F4E4B5A21CF801F6770CA9293702CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +165,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787949   (68671) от 28.03.2025
+###  Публикация: 1782033   (70077) от 26.02.2025
 
-Шрифты - Maxim Raikov - Behance - VLASHU Free Font - 112107257 [TTF, OTF]
+Saint Asonia - Studio Albums (3 releases) (2015-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Hard Rock, Nu Metal>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68671.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Maxim Raikov
-
-Материал раздается с официальной документацией.Формат: TTF, OTF
+Saint Asonia (стилизация в оригинале SΔINT ΔSONIΔ) — канадская рок-группа, основанная Адамом Гонтье, бывшим вокалистом группы Three Days Grace и гитаристом Staind Майком Мьюшаком.2015 - Saint Asonia
+2019 - Flawed Design
+2022 - Introvert / ExtrovertЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 02:34:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:490AA3D016D04F7A47DEAA7D01086C3D683A2431
+magnet:?xt=urn:btih:1845FB9BDA6D0DC64134E27DA18CBDB1F1170EE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,25 +193,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788118   (68670) от 28.03.2025
+###  Публикация: 1782226   (70076) от 27.02.2025
 
-Firefox Browser ESR 115.21.1 Portable by PortableApps [Ru]
+Михаил Салтыков-Щедрин | Дневник провинциала в Петербурге (2023) [MP3, Кирилл Радциг]
 
->>Архив торрентов
->>Архив Программ
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68670.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+Михаил Евграфович Салтыков-Щедрин (1826–1889), русский писатель-сатирик и публицист, автор романов, повестей, очерков, рассказов, сказок.
+Переезжая из провинции в столицу, человек может меняться с удивительной скоростью. Вот и наш герой-провинциал, направляясь в Петербург, еще в дороге начинает испытывать досаду на таких же, как он: никуда-то от этих понаехавших (   Читать дальше...   )Жанр: Русская литература, классика, роман-хроникаИздательство: «Эксмо»Продолжительность: 13:07:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E782CB43CDF8517A7E09219F2695C31DE8C15C50
+magnet:?xt=urn:btih:D5F37BC7014F00FFAFA52626E0FAD24E6B2C3563
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,106 +220,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787891   (68669) от 28.03.2025
+###  Публикация: 1782231   (70075) от 27.02.2025
 
-VA - Vino Amaro - Big Canzone Italiana (2019) [MP3|320 Kbps] <Canzone Italiana>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby Solo - Una Lacrima Sul Viso
-  02. Nicola Di Bari - La prima cosa bella
-  03. Riccardo Fogli - Vecchio Frak
-  04. Johnny Dorelli - Parla piu' piano(   Читать дальше...   )Жанр: Canzone ItalianaПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4A39AC49669EC520F9D9F0168C0200450C9A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788113   (68668) от 28.03.2025
-
-Firefox Browser ESR 115.21.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EECAA14ACA3681374F9EE24024188BB466CF53D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788087   (68667) от 28.03.2025
-
-Александр  Довженко | Дневниковые записи/Щоденникові записи 1939-1956 (2013) [PDF] [RU, UKR]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - первая полная научная публикация дневниковых записей Александра Петровича Довженко за период с 1939 г. по 1956 г. Согласно дневниковому жанру, автор фиксирует основные события своей личной и творческой жизни, начиная с выхода на экраны фильма "Щорс" (1939) и до завершения работы над сценарием "Поэма о море" (1956). Подробно описаны (   Читать дальше...   )Жанр: Дневники, история, культурологияЯзык: Русский / УкраинскийИздательство: ФолиоФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FF4C03DD42DEFC849664F17D419CB3D455D069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788156   (68666) от 28.03.2025
-
-В.В. Бабайцева | Русский язык. Учебник для 10-11 класса (углублённый уровень) (2023) [PDF]
+Агния Барто | Игрушки (2017) [PDF, DJVU]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68666.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник, состоящий из теоретической и практической части, углубля­ет знания учащихся о языке как многофункциональной развивающейся системе, обеспечивает совершенствование коммуникативной, языковой, лингвистической (языковедческой) и культуроведческой компетенций.Жанр: УчебникЯзык: РусскийФормат: PDFКачество: Обработанный скан
+Мишка, зайка, лошадка, бычок - с детства знакомые и любимые герои стихотворений Агнии Барто. Без них невозможно представить ни одну детскую библиотеку. Эту книжку с весёлыми иллюстрациями Виктора Чижикова удобно взять с собой на прогулку или в путешествие.Жанр: Детские стихиИздательство: РечьФормат: PDF, DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86EDCA5881AF5444841302B9EE1B10C9E1CF487C
+magnet:?xt=urn:btih:2F66EF31F437F7639C9C485D44FAEAECAE856AFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,25 +246,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787985   (68665) от 28.03.2025
+###  Публикация: 1782101   (70074) от 27.02.2025
 
-Three-Body Technology - VO-TT 1.1.0 VST, VST 3, AAX (x64) RePack by SEnki [En]
+Футбол. Чемпионат Италии 2024/25. Серия Б, 26-й тур Палермо - Мантова (16.02.2025) WEBRip [H.264]
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68665.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VO-TT (VOcal-oTT) — это интуитивный многополосный динамический процессор в стиле OTT, специально разработанный для вокального микширования. С минимальными настройками VO-TT творит свою мгновенную магию, преобразуя любой вокальный контент в сбалансированный профессиональный звук.Язык интерфейса: Английский
+Палермо находится в самом разгаре борьбы за топ-8 Серии Б, до желанной строчки команде осталось набрать только два очка. Мантова не выигрывает в 3 последних матчах, но при этом демонстрирует приличную игру в атаке и может воспользоваться проблемами Палермо в защите. В последних 5 играх Палермо забил 7 голов, но также пропустил 6. Оборона команды не может справиться (   Читать дальше...   )Телекомпания: ФутболЖанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:47:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22B9D774D5D637E9053AE1F854FFB80DA678FF20
+magnet:?xt=urn:btih:A5CE90F50BAFC7139800FAF698DF57F51189332F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,27 +272,108 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787948   (68664) от 28.03.2025
+###  Публикация: 1782165   (70073) от 27.02.2025
 
-Шрифты - Dmitri Zdorov - Dimka - Mescalito [OTF, WOFF2]
+Журнал | Сваты на даче №2 (122) (февраль 2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70073.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A121F81B7021E8D73A293178E46B1A55A52C7D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782241   (70072) от 27.02.2025
+
+Architects - The Sky, The Earth & All Between (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metalcore, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegy (3:36)
+02. Whiplash (3:46)
+03. Blackhole (3:21)
+04. Everything Ends (3:40)(   Читать дальше...   )Жанр: Progressive Metalcore, Alternative MetalПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADBA1AC0F6ACBD00FCA4F9A96A06FABE7D535EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782237   (70071) от 27.02.2025
+
+Владимир Иванович Даль | Лиса-лапотница (1986) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лиса-лапотница — русская народная сказка о проделках рыжей мошенницы и заслуженном возмездии. Пользуясь чужим гостеприимством, хитрая лисичка устраивалась на ночлег, а наутро обвиняла хозяев в исчезновении своего имущества. Получив богатый откуп, плутовка продолжала путь по окрестным сёлам и действовала по отработанному сценарию. Однажды лисице попался мужик, который (   Читать дальше...   )Жанр: Детская прозаИздательство: Детская литератураФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646A49F9C93BB8EA3D55CA383A714E2DE9689736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782221   (70070) от 27.02.2025
+
+Шрифты - Creative Market - Beyork - A Classic Sans Serif Font - 290876760 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68664.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri Zdorov
-Материал раздается с официальной документацией и дополнениями.Формат: OTF, WOFF2
+Представляем новый фирменный шрифт Beyork — классический шрифт без засечек, воплощающий элегантность и силу, что делает его отличным выбором для сложных дизайнов. Семейство шрифтов предлагает шесть различных стилей: Regular, Italic, Semibold, Semibold Italic, Bold и Bold Italic, что обеспечивает универсальность для широкого спектра применений.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A0434C1F4B4F759F23D4105D2344C05F01E9325
+magnet:?xt=urn:btih:A4BE5E3C13C8D4BC66DAC85A61A54A421D964C47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -382,281 +381,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788016   (68663) от 28.03.2025
+###  Публикация: 1782217   (70069) от 27.02.2025
 
-Arch Enemy - Blood Dynasty (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Melodic Death Metal, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dream Stealer [4:30]
-02 - Illuminate the Path [4:49]
-03 - March of the Miscreants [4:50]
-04 - A Million Suns [3:46](   Читать дальше...   )Жанр: Metal, Melodic Death Metal, Death MetalПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B609AF4422F8FD09D2494A39BA2869CBA2EDA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788055   (68662) от 28.03.2025
-
-VA - I Love ZYX Italo Disco Collection 10 (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Mine - Hypnotic Tango (Extended Player '89)
-02. Robert Camero - Lady Suprise (12'' Version)
-03. Broken Dreams - Broken Dreams (12'' Version)
-04. Taco - Got To Be Your Lover (Special D.J. Remix)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91BF17B07CA365F63E4C61489EBCCE9008665AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788135   (68661) от 28.03.2025
-
-VA - I Love ZYX Italo Disco Collection 11 (2011) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colonna - A Secret From My Heart
-02. Trick - Don't Cry Roxanna
-03. Silent Circle - Time For Love (Super Action Mix)
-04. Marco Rochowski - The Journey(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3717FD991860E38707A47E06D770E4B3925219C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788104   (68660) от 28.03.2025
-
-Firefox Browser 136.0.4 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772294777BA47FE7C4DD7F9C027E42DB33011663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788028   (68659) от 28.03.2025
-
-VA - I Love ZYX Italo Disco Collection 9 (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Ton - Video Killed The Radio Star (Vocal)
-02. Coangielu - Feeling (Extended Version)
-03. Chaya - Russian Affair (Extended Version)
-04. Gazuzu - Go Go Gorilla (Vocal Version)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784293B358059AA074929358ADC266FDF5C16AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788110   (68658) от 28.03.2025
-
-Firefox Browser ESR 128.8.1 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101EFD1E6D06E95CC89D341E22E0A9D25BCAF07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787626   (68657) от 28.03.2025
-
-Desire - Games People Play (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkside [00:04:11]
-02. Dangerous Drug [00:06:40]
-03. Human Nature [00:03:45]
-04. Dream Girl [00:04:25](   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5BDFF258EFFB2AD07625D43F604E2ABBEA7836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788096   (68656) от 28.03.2025
-
-Yelena Eckemoff - Scenes From the Dark Ages (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Jazz Fusion, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pilgrims
-02. Village Tavern
-03. From Peasants Life
-04. Spell-Bound Fortress(   Читать дальше...   )Жанр: Progressive Rock, Jazz Fusion, FolkПродолжительность: 01:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04F5EE3EC41EDF0EE318AC53311AE193C1D0EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787979   (68655) от 28.03.2025
-
-АИГЕЛ - Killer Qız (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <IDM, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68655.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Killer Qız
-2. Cir Tartımı
-3. Tönyaq Balqışı
-4. Qupşıl(   Читать дальше...   )Жанр: IDM, ElectronicПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AACB6852A7C3C5A5A89E174A80178CDB9A1DE48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787941   (68654) от 28.03.2025
-
-Шрифты - Dmitri Zdorov - Dimka - Wimzik [OTF]
+Шрифты - Creative Market - CS Axone – Ancient Greek Font - 290819982 [OTF, TTF. WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68654.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri ZdorovФормат: OTF
+Вдохновленный древнегреческим шрифт CS Axone — это шрифт, вдохновленный элегантностью и величием древнегреческих рукописей. Он передает суть классического письма с его отчетливыми формами и изысканными деталями, привнося нотку исторической изысканности в современный дизайн.
+
+Кириллица не поддерживается.Формат: OTF, TTF. WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7B02085B4DF752365802A437C5BA532CCAB084C
+magnet:?xt=urn:btih:D10FF078C4E9FB9DC9E58B54CBD8C0B5D92A6CC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,25 +409,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788108   (68653) от 28.03.2025
+###  Публикация: 1782243   (70068) от 27.02.2025
 
-Firefox Browser ESR 128.8.1 [Ru]
+VA - I Love Tocata 80s (2012) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
 
->>Архив торрентов
->>Архив Программ
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68653.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+01. Atlanta - Romantic Break
+02. Modern Talking - You're My Heart, You're My Soul
+03. Spagna - Easy Lady
+04. Baltimora - Woody Boogie(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 02:36:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB1DF3B663023E409A66B51550F4ABA49C955CB1
+magnet:?xt=urn:btih:E228D1CC71238C986D79C6C93E3CE29E5FA6B817
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,27 +438,279 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788049   (68652) от 28.03.2025
+###  Публикация: 1782213   (70067) от 27.02.2025
 
-Lese - Sweep (Infinity Filter) 1.3.5 VST 3 (x64) [En]
+Dirkschneider - Balls To The Wall Reloaded (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68652.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sweep — фильтрующий эффект.
-Используя те же алгоритмы, которые звукорежиссеры используют для создания фильтров shepard tones / risset, Sweep использует множество фильтров, чтобы создать ощущение, что ваш звук растет (или падает) бесконечно.
-В случае Sweep левый и правый каналы можно разделить и управлять отдельно для более сложного стереоэффекта свипированияЯзык интерфейса: Английский
+01. Balls To The Wall (feat. Joakim Broden) (5:46)
+02. London Leatherboys (feat. Biff Byford) (4:00)
+03. Fight It Back (feat. Mille Petrozza) (3:44)
+04. Head Over Heels (feat. Nils Molin) (4:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA51E6673EE16E3A96D4CAE4DD4D0F7691E92816
+magnet:?xt=urn:btih:71996DA87E396F47A60934BE03858C75F2DFEA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782152   (70066) от 27.02.2025
+
+Журнал | Делаем сами №3 (576) (февраль 2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70066.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387BBEFB3E1E166BFED1E0659F28C135E6E51D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782183   (70065) от 27.02.2025
+
+VA - Trance In Motion. Vol.386 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - Lethal Industry (Rose Ringed Extended Remix)
+02. Eximinds & Alexander Komarov with Nerissa Simmone - Until Sunrise (Extended Mix)
+03. Talla 2XLC & Fragma - Toca's Miracle (Extended Mix)
+04. Ishiro & Starry Major - Echoes Of Waves (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E68ABDD7F373D64FF02518C71696A074668A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782160   (70064) от 27.02.2025
+
+Шрифты - MyFonts - Munchio [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем рукописный шрифт, который сочетает в себе повседневность и смелый, резкий стиль. Вдохновленный динамичными штрихами маркера, этот шрифт создан, чтобы сделать ваши проекты выдающимися. Работаете ли вы над брендингом, плакатами или цифровыми медиа, этот шрифт привнесет подлинный, игривый штрих, который привлечет внимание и оставит неизгладимое впечатление. (   Читать дальше...   )Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF27509EF3D46259325BF6B14692C281174EC1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782242   (70063) от 27.02.2025
+
+VA - I Love Tocata 80s (2012) [AAC|320 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlanta - Romantic Break
+02. Modern Talking - You're My Heart, You're My Soul
+03. Spagna - Easy Lady
+04. Baltimora - Woody Boogie(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 02:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D80233AAEA8F6FAE6F46E84E158897D06C1615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782154   (70062) от 27.02.2025
+
+Журнал | Делаем сами №4 (577) (февраль 2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70062.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BC805FCD7BD48CC4478DEDEC39A27765F859C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782222   (70061) от 27.02.2025
+
+Михаил Салтыков-Щедрин | Дневник провинциала в Петербурге (Моноспектакль) (2012) [MP3, Алексей Девотченко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения. Из фондов «Радио России».
+Михаил Евграфович Салтыков-Щедрин (1826–1889), русский писатель-сатирик и публицист, автор романов, повестей, очерков, рассказов, сказок. Его творчество, несомненно, стало одним из ярчайших явлений русской и мировой литературы второй половины XIX века.
+Моноспектакль в исполнении Алексея Девотченко по мотивам (   Читать дальше...   )Жанр: Русская литература, классика, роман-хроникаИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CF3277CBD166BFFCB72711EE390F2E028725CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782157   (70060) от 27.02.2025
+
+Power Word Kill - Power Word Kill (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scattered Ashes (6:14)
+02.  Devil Woman (6:57)
+03.  Gelatinous Cube (6:12)
+04.  Eye of the Great Machine (0:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B28426C47796019107A6046B49F6AA7E58EC42B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782177   (70059) от 27.02.2025
+
+Rumer - In Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  It Could Be The First Day (2:41)
+02.  Am I Forgiven (3:32)
+03.  Saving Grace (3:40)
+04.  Dangerous (4:00)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964E8206EC89775EE96BAC999FD67AF89D3C7D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782159   (70058) от 27.02.2025
+
+Roger Street Friedman - Long Shadows (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Blues, Folk Rock, Americana>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rolling In Again (4:00)
+02.  I Think We Know (4:46)
+03.  Give It All Away For Free (4:35)
+04.  The Banks of the Brazos (5:19)(   Читать дальше...   )Жанр: Folk Blues, Folk Rock, AmericanaПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F4138F2A4BA58CF1322F5B1BE11CA493CFBE46
 ```
 
 https://mybot314.ru/tekegram_catalog/

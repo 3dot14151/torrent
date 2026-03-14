@@ -1,3 +1,32 @@
+###  Публикация: 1395965   (750159) от 13.07.2020
+
+VA - Vocalove (2020) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Harry Styles - Adore You (3:27)
+02 - Sam Smith - Stay With Me (2:52)
+03 - Shaed - Trampoline (3:04)
+04 - Lauryn Hill - Can't Take My Eyes Off of You (I Love You Baby) (3:41)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E09B142907723B14841FD241B43CBB4841E70FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396019   (750153) от 13.07.2020
 
 VA - Summer Lovin' (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
@@ -709,35 +738,6 @@ VA - Hello Summer - Opening Party (2016) [MP3|320 кб/с] <Dancehall, Moombahto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E26A35191757D534DEE367A0D9A6C797137D40BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020878   (743810) от 27.05.2016
-
-VA - Party Hits Summer Editions (3 CD) (2016) [MP3|241-320 кб/с] <Disco, Club, Bigroom, Nu-Funk, Grime, Big Beat>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743810.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 House:
-01. Air-Lines - New Game (Original Mix) 07:46
-02. Arno Cost & Norman Doray - Apocalypse 2014 (Kryder & Tom Staar Remix) 05:42
-03. Audien & Matthew Koma - Serotonin (Original Mix) 05:08(   Читать дальше...   )Жанр: Disco, Club, Bigroom, Nu-Funk, Grime, Big BeatПродолжительность: 12:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6452D34D41B18EBD8B27CBF7804F17552F64CBFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

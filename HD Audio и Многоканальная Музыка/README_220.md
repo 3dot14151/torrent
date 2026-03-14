@@ -1,3 +1,148 @@
+###  Публикация: 1733609   (51584) от 29.06.2024
+
+Eagles - Eagles Live (1980) Japanese Edition [FLAC|24/96|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51584.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Hotel California
+A2 Heartache Tonight
+A3 I Can't Tell You Why
+B1 The Long Run(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDFCB3500B775B96DEBCA2DC7834BA606444094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731477   (51396) от 01.07.2024
+
+The Grass Roots - Lovin' Things (1969) [FLAC 2.0|24/192|image+.cue|Vinyl Rip] <Pop Rock, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51396.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Lovin' Things
+A2 The River Is Wide
+A3 (You Gotta) Live For Love
+A4 City Women(   Читать дальше...   )Жанр: Pop Rock, Psychedelic RockПродолжительность: 00:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69EB5B3C2953CBC93ED2F4B3A7183171E275644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734003   (51079) от 04.07.2024
+
+Cher - Living Proof (2001) Deluxe Edition, 2024, Warner Music UK Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for the Lonely (2024 Remaster) [00:03:21]
+02. Different Kind of Love Song (Eclectic Version; 2024 Remaster) [00:03:52]
+03. Alive Again (2024 Remaster) [00:04:19]
+04. The Music's No Good Without You (2024 Remaster) [00:04:42](   Читать дальше...   )Жанр: PopПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655F1BBE760BC9089F6DB21D86BA78DF824F53F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734837   (51022) от 05.07.2024
+
+Deep Purple - Lazy Sod (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Sod (3:41)
+02. Pictures of You (3:51)
+03. Portable Door (3:48)
+04. When a Blind Man Cries (Live in Milan 2022) (5:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE21C2EB8E9CFD46E2E04908D38EA65CC42781CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734830   (50966) от 05.07.2024
+
+The Alan Parsons Project - Vulture Culture (1984) Remaster, 2024, Ariola [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Crossover Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_50966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Talk About Me (2024 Remaster) (4:29)
+02. Separate Lives (2024 Remaster) (5:03)
+03. Days Are Numbers (The Traveller) [2024 Remaster] (4:28)
+04. Sooner or Later (2024 Remaster) (4:28)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CD84DE1B3DF2071362006C89F78D6E7E2B70BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735909   (50465) от 10.07.2024
 
 Betty Harris - Soul Perfection (1969) Remastered, 2024, Sansu Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk, Soul>
@@ -596,151 +741,6 @@ A3. Беда (С. Романов) 3:10(   Читать дальше...   )Жан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAA2EA8063865892E3AA860E5878E7F7A98F8F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739231   (48380) от 30.07.2024
-
-Powerwolf - Wake Up The Wicked (Deluxe Version) (2024) [FLAC 24/48,24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48380.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1 Wake Up The Wicked (Deluxe Version)
-01 - Bless 'em With the Blade [2:48]
-02 - Sinners of the Seven Seas [3:01]
-03 - Kyrie Klitorem [3:04](   Читать дальше...   )Жанр: Power Metal, Heavy Metal, Symphonic MetalПродолжительность: 02:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85334BB05BA74C15BE4EBBA4C33F5CB53E247511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738207   (48275) от 31.07.2024
-
-Isomen - 16 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dub, Lounge, Psychill>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Isomen - 2023 - Eden Garden
-Isomen - 2023 - Plastic Vision
-Isomen - 2023 - Satisfaction(   Читать дальше...   )Жанр: Electronic, Dub, Lounge, PsychillФормат: FLAC (tracks)Продолжительность: 17 CD, 24:47:09 (16 Albums)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC636A638E7C61542063D028C2467A7C4C7C79D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659835   (48267) от 31.07.2024
-
-Iced Earth - Studio Albums (16 releases) (1990-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iced Earth — американская хэви-метал-группа. Основана ритм-гитаристом и композитором Джоном Шаффером в 1985 году.1990 (2020) - Iced Earth (30th Anniversary Edition)
-1991 - Night Of The Stormrider
-1995 - Burnt Offerings
-1996 - The Dark SagaЖанр: Power/Thrash MetalПродолжительность: 15:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9902A330F57B822CA44017B4021754B2ACD58542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740377   (48168) от 01.08.2024
-
-Armin Van Buuren - Live at Tomorrowland 2024 (Mainstage) [Highlights] (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Live at Tomorrowland 2024 (Mixed) (Intro) [0:51]
-02 - No Fun (Mixed) [1:08]
-03 - Live at Tomorrowland 2024 ID #001 (Mixed) [1:51]
-04 - Leave A Little Love (Mixed) [1:06](   Читать дальше...   )Жанр: Trance, Progressive Trance, ElectronicПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B704CE6BACDC4CE5D71FE1FECC872D4949E5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740077   (48163) от 01.08.2024
-
-Army Of Lovers - Remixodus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Dance, Synth-pop, Euro Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexodus (Maxim Andreev Radio Edit) (3:22)
-02. Love Is Blue (Sagi Kariv Radio Edit) (3:55)
-03. What's That Look (SoundFactory Radio Edit) (2:59)
-04. Romanism (SoundFactory Radio Edit) (2:26)(   Читать дальше...   )Жанр: Pop, Dance, Synth-pop, Euro DiscoПродолжительность: 01:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508F2B1F05682CC3C0096F0F2AE90BC89ECD2453
 ```
 
 https://mybot314.ru/tekegram_catalog/

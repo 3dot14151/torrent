@@ -1,3 +1,38 @@
+###  Публикация: 187806   (873233) от 30.03.2010
+
+Bon Jovi - Best Ballads (1997) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blaze Of Glory
+02. Diamond Ring
+03. Always
+04. Never Say Good-Bye
+05. Living In Sin
+06. This Ain't A Love Song
+07. Bed Of Roses
+08. Dying Ain't Much Of A Living
+09. Wanted Dead Or Alive
+10. One Light Burning(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374585   (872981) от 10.04.2020
 
 Mungo Jerry - Touch the Sky (2020) [MP3|320 Kbps] <Blues, Rock, Classic Rock>
@@ -728,35 +763,6 @@ Mephisto Walz - Discography (8 albums) (1986-2004) [MP3|192-320 kbps] <Gothic Ro
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109437   (859153) от 27.02.2017
-
-Tower - Titan (1982) Reissue, 2010, CNR Music [MP3|320 Kbps] <Pop Rock,  Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction/Titan (9:37)
-02. Get Back (3:18)
-03. Moon (4:12)
-04. We Are (The Boys And Girls) (3:11)(   Читать дальше...   )Жанр: Pop Rock,  Symphonic RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98F41FD2B63F89713ACB4D99BA71F6C97F8B5D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

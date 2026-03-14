@@ -1,3 +1,183 @@
+###  Публикация: 1359417   (963276) от 13.02.2020
+
+VA - Royal Royce - Pornpop (2004) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phonique Feat. Die Elfen - The Red Dress (Dub Mix) (6:26)
+02. Random Factor - Dreamstate (5:34)
+03. Ciudad Feliz - How (3:31)
+04. The Visitors - No Under On The Ground (3:39)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2E34726E1C5AA52E33E08C3718A5A9D64227FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 277498   (961419) от 02.01.2011
+
+VA - Record Super Chart - TOP 100 (2010) [MP3|192-320 kbps]<House, Electro House, Trance, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_961419.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tiesto & Diplo feat. Girlicious - C'Mon Get Hood
+002. Yolanda Be Cool & Dcup - We No Speak Americano
+003. Pendulum - The Island (Part II)
+004. Dan Balan - Justify Sex
+005. Stromae - Alors On Dance (DJ Pomeha Remix)
+006. David Guetta Feat. Kid Cudi - Memories
+007. Swedish House Mafia Ft. Pharrell - One (Your Name)
+008. Lady Gaga - Alejandro (Bimbo Jones Mix)
+009. Duck Sauce - Barbra Streisand
+010. Kaskade feat. Haley - Dynasty (Dada Life Remix)(   Читать дальше...)Жанр: House, Electro House, Trance, DanceПродолжительность: 09:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC115A732B9AAF1DE3619E6DBE072B5CF9B27AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360289   (960933) от 15.02.2020
+
+R-Tem - Voiceless (2004) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R-Tem - Intro (2:15)
+02. R-Tem - Voiceless (Original Mix) (7:32)
+03. R-Tem - Breathe (7:42)
+04. R-Tem - Sunrise (5:18)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2020BC6CCC9BF9ADEFBA6239199C75965BFEFF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360305   (959468) от 16.02.2020
+
+VA - Progressive MEGA Mix vol.2 (2003) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mixed by Dj Maxi - Untitled (05:56)
+02. Mixed by Dj SAnDY - Untitled (04:13)
+03. Mixed by Dj General - Untitled (05:29)
+04. Mixed by Dj project Slim Line - Untitled (03:25)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13B51861BED40C8F7BCF95740050F593E9C4D47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088855   (955165) от 01.01.2017
+
+VA - Welcome 2017  [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955165.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ron Carroll - The Sermon (Soheil Remix) [6:16]
+2. Max Bering - You Are Not Alone (Charlie Roennez Remix) [7:23]
+3. Steve Norton - It Hurts Me (Original Mix) [5:02]
+4. E.M.C.K. - Need to Know (Club Mix) [3:50](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35371969C4DAF87C521951F0716BF1C84213C906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088935   (955163) от 01.01.2017
+
+VA - Next Destination: Summer Chill-Out (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Loveliness 05:36
+02. Zero Feedback - Rien Ne Va Plus (Don Gorda Project remix) 06:59
+03. Enrico Donner - Yearning for More 05:25
+04. Joop & Aurelio - Macaracas 05:02(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A9B6BF67CB426D827D79207BCFC203C4C59987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088839   (955152) от 01.01.2017
 
 VA - The Best Running Beats 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
@@ -560,176 +740,6 @@ Dj Бинокль - Смотри В Оба - Голос Клубного Дне�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF916A8F6873686350366EB628C8869AE8782C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362740   (942647) от 28.02.2020
-
-VA - Dj Бинокль - Housemission II (PlayOff) (2004) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tooth-Paste Vol.2 - Play Off (4:02)
-02. D. Ramirez Feat. Pete Simpson - Freaque On (Seamus Haji Remix) (7:04)
-03. Candy Dulfer - Let Me Show You (G Men Investigate On The Dub) (6:17)
-04. Main Ingredients (2)	Lean On Me (Piano Dub) (4:35)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60CB863EB2B83C4A2E8C1E0A45566EBF4897B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362711   (942637) от 28.02.2020
-
-Dj Бинокль - Dnepro House (2001) [MP3|320 Kbps] <House, Euro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942637.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Play House Some More! (29:33)
-2. And Now It`s Time (30:04)Жанр: House, Euro HouseПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E178781592486C9B50CC8CCD6913B91639E106A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362733   (942627) от 28.02.2020
-
-VA - Dj Бинокль - Love and Tears (2003) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funk Bandit - Crazy Love (Crazy Acapella)
-02. Indigo Feat Elisabeth Troy - Real Love (Reprise & Grant Nelson Dub Mix)
-03. Bad Cabbage - Your Rude (Get Fucked) (Fuckapella)
-04. J Haystax - Still In Luv With You (Full Vocal Dub)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4234879A799923E57DC4DF57BECFAE5646C3C54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362706   (942617) от 28.02.2020
-
-Dj Бинокль - Housemission (2000) [MP3|320 Kbps] <House, Speed Garage, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942617.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Summer Dream (29:12)
-2. Mirrow In My Mind (29:40)Жанр: House, Speed Garage, Progressive HouseПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842AEA254D8612717DFB29489539C6ECB680BCED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362716   (942542) от 28.02.2020
-
-VA - Dj Бинокль - Fucking Society (2002) [MP3|320 Kbps] <House, Euro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Funk U Later - Something About You (DFR Mix)
-03. Jame Gumb - I Am (Sporting Mix)
-04. Reloop - Fucking Society (DJ Jean Mix)(   Читать дальше...   )Жанр: House, Euro HouseПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD69EA65598EE4E284324FAB7D6CCCC1850273B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092076   (940302) от 11.01.2017
-
-VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero Feedback - Rien ne va plus - Don Gorda Project Remix
-02. Don Gorda Project - Do That Again
-03. Enrico Donner - I Need A Love
-04. Lazypojke - Ta en fika(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C6F2B2837931A8C02A68EA2A8ECCE211BD183A
 ```
 
 https://mybot314.ru/tekegram_catalog/

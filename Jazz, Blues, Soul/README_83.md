@@ -1,3 +1,61 @@
+###  Публикация: 994522   (889879) от 08.03.2016
+
+The Harold Land & Carmell Jones Quintets - Complete Studio Recordings (1961-1963) 2CD, 2007, Lone Hill Jazz[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889879.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Blues March [03:09]
+02.I'm Gonna Go Fishing [11:14]
+03.Come Rain Or Come Shine [04:31](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705535052A7F252FCF4502F6B3DFC8D5A6444C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102409   (889690) от 10.02.2017
+
+The Rein De Graaff Trio with Ronnie Cuber and Nick Brignola - Baritone Explosion! Live At Nick's (1994) 2016, Solid Reco[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Softly As In A Morning Sunrise [13:15]
+ 02.Caravan [13:55]
+ 03.In A Sentimental Mood [02:20]
+ 04.What's New [02:51](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F12FAA90159090C7EECA142B2B4341ED179227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102469   (889570) от 10.02.2017
 
 Carl Wyatt & The Delta Voodoo Kings - Doing The Boogaloo (2016) [MP3|320 Kbps] <Blues Rock>
@@ -687,64 +745,6 @@ Oscar Peterson Trio - Encore At The Blue Note (1993) 1998, Telarc[FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A8AEF88ADCEE51F87AA2E11E8D6601A914DF6F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102690   (887789) от 11.02.2017
-
-Stevie Ray Vaughan - Up From The Skies (1996) [FLAC|Lossless|tracks + .cue] <Blues / Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rude Mood
-02. Pride & Joy
-03. Testify
-04. Voodoo Chile(   Читать дальше...   )Жанр: Blues / Blues-RockПродолжительность: 00:71:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C6F2748CF50841F89872A3C985997A732E0D34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102688   (887771) от 11.02.2017
-
-John Lee Hooker - Burnin' plus Plays And Sings The Blues (2014) Remastered [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Burnin' (1962)
-01. Boom Boom (2:37)
-02. Process (3:51)
-03. Lost A Good Girl (2:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6CAD74E5EA282B56A152DDBFFF49465AABBA30
 ```
 
 https://mybot314.ru/tekegram_catalog/

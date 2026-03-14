@@ -1,3 +1,90 @@
+###  Публикация: 1151762   (570751) от 20.07.2017
+
+Jimmy Raney - Live In Tokyo (1976) 2016, Xanadu Master Edition [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Friends [04:21]
+02. How About You? [05:21]
+03. Darn That Dream [05:00]
+04. Anthropology [04:04](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE86B081B30CD93F8E101654355EA5B3924CAEF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151765   (570719) от 20.07.2017
+
+Herbie Hancock - Thrust (1974) 2016, Audio Fidelity [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Palm Grease [10:39]
+02. Actual Proof [09:42]
+03. Butterfly [11:18]
+04. Spank-A-Lee [07:17]Жанр: Jazz FusionПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A612A1337AB5337B46583D22D96A45C3970F802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922556   (570046) от 28.07.2015
+
+Shorty Rogers - The Fourth Dimension In Sound (1961) /2014, Warner/[FLAC|tracks+.cue]<Jazz, West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One O'Clock Jump [03:42]
+02. Speak Low [03:35]
+03. Tonight [02:56]
+04. Lover [04:50](   Читать дальше...   )Жанр: Jazz, West Coast Jazz, CoolПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388BF592CC91CD6FCBF9D9AB52879E75342AC377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527741   (569567) от 30.07.2012
 
 Brad Leali - Claus Raible Quartet - D.A.'s Time (2007) [FLAC|Lossless]<Post-Bop, Bebop>
@@ -676,93 +763,6 @@ Buck Clayton - Tenderly (1959) 2009, Inner City Records [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F98D5BED548C45F75B0C98E95FD9376293498A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044220   (567566) от 19.08.2016
-
-Rez Abbasi - Bazaar (2006) [FLAC|Lossless|tracks + .cue] <Fusion, Indian Classical, Modal Music>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bazaar (Abbasi) - 7:34
-02. Leather (Abbasi) - 6:02
-03. Thin Elephant (Abbasi) - 9:08
-04. Life Goes (Abbasi) - 8:58(   Читать дальше...   )Жанр: Fusion, Indian Classical, Modal MusicПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4AA9AE9CBDD26CEC30BC02FE72CA42A139E559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152264   (567505) от 22.07.2017
-
-Yusef Lateef - The Golden Flute (1966) 2004, Universal [APE|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road runner [04:48]
-02. Straighten up and fly right [03:29]
-03. Oasis [04:27]
-04. (I don't stand) A ghost of a chance with you [04:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994DE713EF61FE5B1DAA2FB2D1C21D210B699F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152247   (567503) от 22.07.2017
-
-Shirley Scott - Blue Seven (1961) 2000, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Seven [06:51]
-02. How Sweet [07:40]
-03. Don't Worry 'Bout it Baby, Here I Am [06:46]
-04. Nancy (With The Laughing Face) [05:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4014693C96AA2D84C6F8F9971778FA12A1CF93
 ```
 
 https://mybot314.ru/tekegram_catalog/

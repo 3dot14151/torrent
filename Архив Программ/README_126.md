@@ -1,3 +1,29 @@
+###  Публикация: 1476113   (1011832) от 10.06.2021
+
+Advanced Installer 18.3 RePack (& Portable) by xetrin [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced Installer - приложение, с помощью которого, разработчики и системные администраторы смогут без труда создавать инсталляционные пакеты в формате MSI. Программа функционирует под управлением ОС Windows 7/8/8.1/10, а создаваемые с ее помощью пакеты могут использоваться для развертывания приложений на платформах Microsoft Windows XP/2003/2008/2012 Server/Vista/7/8/8.1/10.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9023C5481CD947DF27773460B702A12E6DE472F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476330   (1011831) от 10.06.2021
 
 Acoustica Premium Edition v7.3.8 RePack (& Portable) by TryRooM [Ru/En]
@@ -651,32 +677,6 @@ Tipard Video Converter Ultimate - профессиональная програ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24E410B44304AF427CA0D2FBC8E0B342591941EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476575   (1011623) от 11.06.2021
-
-Auslogics Windows Slimmer 3.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Windows Slimmer предлагает быстрый и простой способ сделать Windows компактнее и эффективнее. Уменьшите размер системы для экономии дискового пространства и оптимизации производительности.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E675C852522CAB2CDB58E7F277AAB2357B98C766
 ```
 
 https://mybot314.ru/tekegram_catalog/

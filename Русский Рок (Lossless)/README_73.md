@@ -1,3 +1,148 @@
+###  Публикация: 1808084   (65032) от 22.07.2025
+
+Oleg Stalker - Star Wanderer (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hatred [00:03:53]
+02. Star Wanderer [00:05:21]
+03. Dreams [00:04:39]
+04. Taste Of Freedom [00:06:01](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A14990C90DDF5EAF765EC42FAE0C01BAA5F8CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808268   (64987) от 24.07.2025
+
+Ермак! - Дневник памяти (2025) Делюкс [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Emo>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Глава 1: май [00:01:00]
+02. Ветер перемен [00:02:52]
+03. Глава 2: июнь [00:01:10]
+04. Срывает провода [00:03:40](   Читать дальше...   )Жанр: Post-Hardcore, EmoПродолжительность: 00:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A1FC9194EB56E0D9951910B4E6A77AC6084816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808269   (64983) от 24.07.2025
+
+Oblivion Machine - Око дня (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аврора [00:07:01]
+02. Огонь [00:04:42]
+03. Деволюция [00:04:07]
+04. Пути [00:05:28](   Читать дальше...   )Жанр: Heavy Metal, Modern MetalПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48806530141A8BAE7F4262E5370601FE0B6C2F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808634   (64922) от 25.07.2025
+
+Икотка - Заговор (2020) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Death, Doom, Black-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сглаз
+02. Заговор от Змей
+03. Заговор от Тоски
+04. Прощение(   Читать дальше...   )Жанр: Death, Doom, Black-MetalПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9013268DE34A0F391E0BFA1018D562F34BEF49FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707687   (62657) от 17.03.2024
+
+Бездна Анального Угнетения (Б.А.У.) - Министерство Несчастья (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Alternative Metal, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. айти [00:03:25]
+02. Зумер [00:03:32]
+03. Ты, походу, забыл [00:05:36]
+04. Дядюшка Сяо [00:03:33](   Читать дальше...   )Жанр: Thrash Metal, Alternative Metal, PunkПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A70280D763BA2B190EA56F9C85BEC73D9FFDC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939153   (61256) от 31.03.2024
 
 Zемфира (Земфира, The Uchpochmack) - 7 Albums + 10 Singles + Live + OST`s (1998-2023) [FLAC, APE, WV|Lossless|image + .cue, tracks] <Rock>
@@ -606,151 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9663A4876995CDBA853D44D56968D44C7B503051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633592   (59797) от 14.04.2024
-
-Линда - 6 оригинальных альбомов (1994-2000) [APE|Lossless] <Alternative / Trip-hop>
-
->>След.
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative / Trip-hop |Продолжительность: 00:44:06
-
-01 | Отпусти | 05:22
-02 | Дыханье | 04:25(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8C2BBAFAA7AA92C11A178DFD25971370A4279B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 240285   (59796) от 14.04.2024
-
-Земфира - 3 CD Box Set (1999-2002) Мистерия Рекордс, переиздание 2010 [APE|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Паранойя  (4:04)
-02. Трафик  (4:03)
-03. Бесконечность  (5:06)
-04. Мачо  (4:22)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4218F32E09AE958D05AD33C8C55C94FA1B725016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184534   (59795) от 14.04.2024
-
-Би-2 - О Чем Говорят Мужчины (2010) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Скандал (3:30)
-02. Реки Любви (4:09)
-03. Вечная Призрачная Встречная (5:12)
-04. Ярмарка Невест (5:26)(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B5E693B4ADBD205C83DCA795253C12AF31E64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 101330   (59793) от 14.04.2024
-
-Пикник - Железные Мантры (2008) (подарочное издание) [FLAC|Losless|image + .cue] <Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59793.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Недобитый романтик (4:10)
-2. Гиперболоид (3:57)
-3. Колдыри да колдобины (3:54)
-4. Железные мантры (4:37)(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76321CBBF8316E877C60229ABFBDF2EBD64E3356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191010   (59791) от 14.04.2024
-
-Пикник - Театр абсурда (2010) [FLAC|Lossless]<Art Rock>
-
->>След.
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Театр абсурда :: 3:48
-02. Кукла с человеческим лицом :: 3:55
-03. Не в опере Венской... :: 3:51
-04. Фетиш :: 5:06(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BB9E884D8F559AEC17A85AFB77C7C5A946D8E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

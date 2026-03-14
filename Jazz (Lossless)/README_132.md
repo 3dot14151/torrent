@@ -1,3 +1,90 @@
+###  Публикация: 912995   (609440) от 27.06.2015
+
+Illinois Jacquet - The Soul Explosion (1969) /2000, Prestige/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soul Explosion [09:20]
+02. After Hours [07:36]
+03. St. Louis Blues [03:10]
+04. I'm A Fool To Want You [08:54](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272BAC588885BDC406F8BD0320CD822D4B63203E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912767   (609324) от 27.06.2015
+
+Narada Michael Walden - Divine Emotion (1988) [FLAC|tracks+.cue]<Funk, Soul, Disco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divine Emotions
+02. Can't Get You Outta My Head
+03. That's The Way That I Feel About Cha
+04. Wild Thing(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20AE50042478532623C513A0AEE890A1AFC833F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231093   (608935) от 16.06.2018
+
+VA - Мой любимый старый джаз (My Loved Old Jazz) (1930-e - 1960-e) 2005, Би Смарт [FLAC|Lossless|image + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Armstrong - St.Louis Blues [8:53]
+02. Louis Armstrong - Twelfth Street Rag [3:10]
+03. Louis Armstrong - West End Blues [3:19]
+04. Louis Armstrong - Loveless Love [4:30](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:605C2BFD1F1C3A997DF6E08E758AB92C683EC5AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231053   (608768) от 16.06.2018
 
 Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) GMCD092 [FLAC|Lossless|tracks + .cue] <Jazz, Vocal Jazz, Pop, Acoustic>
@@ -667,93 +754,6 @@ Phil Woods - A Jazz Life (1956-1988) 1992, Philology [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07E769138B6433C3EB71D5A38C5E9BA4643F35F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147898   (605819) от 04.07.2017
-
-Johnny Colon - Keeping It Real (2007) Johnny Colon [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misty [05:34]
-02. My Funny Valentine [06:06]
-03. They Can't Take That Away From Me [04:03]
-04. Angel Eyes [04:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A66C9B059F7FBB71F571220079CDA717A1A2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147904   (605754) от 04.07.2017
-
-Larry Coryell's 11th House - Seven Secrets (2016) Savoy Jazz [FLAC|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alabama Rhap Corollary [05:01]
-02. Mr. Miyake [05:02]
-03. Dragon's Way [08:04]
-04. Philly Flash [05:08](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BE1B8B7B2744DB550698D4C15A5BCC27BE6FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231497   (605173) от 18.06.2018
-
-Stan Getz - The Best Of Two Worlds featuring Joao Gilberto (1975) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bossa Nova, Cool, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Rainbow [3:34]
-02. Aguas de Marco [4:42]
-03. Ligia [5:23]
-04. Falsa Baiana [5:17](   Читать дальше...   )Жанр: Bossa Nova, Cool, Latin JazzПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBBFD1078C57AAC26B3473FFC918F4EB3F1EE8E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1290144   (682074) от 18.03.2019
+
+Elysian Fields - The Afterlife (2009) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Dark Jazz, Noir Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How We Die (5:22)
+02. Where Can We Go But Nowhere (4:46)
+03. Drown Those Days (4:04)
+04. Turns Me On (3:57)(   Читать дальше...   )Производство: Vicious Circle – Reverb 103Жанр: Alternative Rock, Dark Jazz, Noir Rock, Dream PopПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EC4C7728498DAB546D688C169E938B7C3A5B41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289922   (682071) от 18.03.2019
+
+Karen O & Danger Mouse - Lux Prima (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Art Rock, Trip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682071.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lux Prima (09:02)
+2. Ministry (05:06)
+3. Turn the Light (03:19)
+4. Woman (02:54)(   Читать дальше...   )Жанр: Electronic, Art Rock, Trip HopПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF5A8814D8EA38B2921822BD3D1B067690AEF8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289825   (681981) от 18.03.2019
+
+Messer Chups - Mondo Harp (2019) [FLAC|Lossless|tracks + .cue] <Punk, Surf, Trash>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humanica [2:19]
+02. Green Flippers [2:40]
+03. Love is a Magical Things [3:09]
+04. The Cruse of Catzilla [3:11](   Читать дальше...   )Жанр: Punk, Surf, TrashПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995D812411752FF2C9FED7820298BD35D1EC9A92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289995   (681879) от 18.03.2019
 
 Amanda Palmer - There Will Be No Intermission (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
@@ -667,93 +754,6 @@ Stephen Malkmus - Groove Denied (2019) [FLAC|Lossless|tracks + .cue] <Rock, Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7710B2487F6002BF24712EA915E596D822B40A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291179   (668586) от 25.03.2019
-
-The Cure - Join The Dots (B-Sides & Rarities 1978>2001: The Fiction Years) (2004) 4CD, RM. [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home |B-Side of 'Mint Car' (3:24)
-02. Waiting |B-Side of 'Mint Car' (3:35)
-03. A Pink Dream |B-Side of 'Mint Car' (3:45)
-04. This Is a Lie (Ambient Mix) B-Side of 'Gone' (4:33)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, New Wave |Продолжительность: 04:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBCC163995563671B6ECDE1A4264A1E29E9F3B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031000   (668582) от 03.07.2016
-
-Metronomy - Summer 08 (2016) Because Music [FLAC|Lossless|tracks] <Alternative, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Together
- 02. Miami Logic
- 03. Old Skool
- 04. 16 Beat(   Читать дальше...   )Жанр: Alternative, ElectronicПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0453BA73162B32E066E74B43E6F4DC03766AEC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537651   (665393) от 18.03.2022
-
-Skillet - Dominion (2022) [FLAC|Lossless|image + .cue] <Alternative Metal, Alternative Rock, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surviving The Game
-02. Standing In The Storm
-03. Dominion
-04. Valley Of Death(   Читать дальше...   )Жанр: Alternative Metal, Alternative Rock, Christian RockПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA4CCF9B6E0882624B3D69B2A70E8867E59D766
 ```
 
 https://mybot314.ru/tekegram_catalog/

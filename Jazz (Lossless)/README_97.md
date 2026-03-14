@@ -1,3 +1,90 @@
+###  Публикация: 1284832   (726582) от 23.02.2019
+
+Putney  Dandridge  And  His  Orchestra - 1935 - 1936 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Heavenly Thing [2:48]
+02. Mr. Bluebird [2:53]
+03. Nagasaki [2:49]
+04. Chasing Shadows [2:42](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E932143393A27712C13C47FF2DC1B770A4F74A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399835   (725148) от 02.08.2020
+
+Oscar Peterson & Clark Terry - Oscar Peterson Trio + One (1964) 1984, EmArcy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brotherhood of Man [3:36]
+02. Jim [3:04]
+03. Blues for Smedley [6:59]
+04. Roundalay [3:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE15328E64BB866C3E8733EE1D73DF3AC073DE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128789   (724977) от 27.04.2017
+
+June Christy - Complete Capitol Small Group Transcriptions (1945, 1946) 2001, Jazz Factory [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Love To Me [04:02]
+02. How High The Moon [01:44]
+03. Wrap Your Troubles In Dreams [02:14]
+04. Can't Help Loving That Man [03:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031C31889EDF87CAFB1C037653DDB35383E41EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128787   (724975) от 27.04.2017
 
 Sidney Bechet - Jazz Anthology (1952) 2007, Promo Sound [FLAC|Lossless|image + .cue] <Dixieland, Revival>
@@ -658,93 +745,6 @@ Slide Hampton - Jazz With A Twist & Explosion! (1962) 2001, Atlantic [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E49827E5F097245189AFC8798FB8B054A7E9DF39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129453   (722715) от 28.04.2017
-
-Pee Wee Russell - Ask Me Now! (1963) 2002,  Universal [APE|Lossless|image + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turnaround  [04:15]
-02. How About Me [04:17]
-03. Ask Me Now! [02:31]
-04. Some Other Blues [03:17](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0389AC134F4B289A3228A27524C62ECBC756B401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129379   (722714) от 28.04.2017
-
-Pee Wee Russell & Coleman Hawkins - Jazz Reunion (1961, 1963) 2002, Past Perfect [APE|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Too Soon [07:34]
-02. 28th And 8th [07:27]
-03. What Am I Here For [07:53]
-04. If I Could Be With You One Hour [06:30](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB944A72308B29005259B7ED5A849F62D83551E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129477   (722713) от 28.04.2017
-
-Kenny Burrell - God Bless the Child (1971) 1987 [WavPack|Lossless|image + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722713.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Be Yourself (5:56)
-2. Love Is The Answer (5:00)
-3. Do What You Gotta Do (9:30)
-4. Ballad Of The Sad Young Men (2:17)(   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EBC625916C28358C644E0C4896F991CA361D9EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

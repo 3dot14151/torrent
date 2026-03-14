@@ -1,3 +1,32 @@
+###  Публикация: 1074228   (243994) от 19.11.2016
+
+VA - 100% Explode Dance Anthems (2016) [MP3|190-320 Kbps] <Electro-R&B, House, Revival и др.>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Lora - All Up To Maybe (Original Club Mix) 05:10
+02. Bedouin - Bufo (Original Mix) 08:38
+03. Bruno Mars - 24K Magic (Brain Purist Remix) (Instrumental) 07:05
+04. Dj Lora - All Up To Maybe (I Wont Pretend) (Original Club Mix) 06:05(   Читать дальше...   )Жанр: Electro-R&B, House, Revival и др,Продолжительность: 08:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA65D4A3C393379368BC195BA6E3BF9F2D9C576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622892   (243964) от 30.03.2023
 
 VA - Morning Chill & Relax 3 (2023) [MP3|320 Kbps] <Pop, Chillout, Other>
@@ -716,35 +745,6 @@ VA - The Official UK Top 100 Singles Chart 21.04.2023 [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD3DC684CD579DD058F70F2252B48AE417BD9A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573165   (238351) от 30.08.2022
-
-VA - Solid Gold Hits (2022) [MP3|320 Kbps] <New Wave, Euro Disco, Rhythm & Blues, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starship - Nothing's Gonna Stop Us Now
-02. Fleetwood Mac - Dreams (2018 Remaster)
-03. Red Hot Chili Peppers - Under the Bridge
-04. Faith Hill - This Kiss(   Читать дальше...   )Жанр: New Wave, Euro Disco, Rhythm & Blues, RockПродолжительность: 04:02:34 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBDF26F135AB2783F415CC55404106A865D5284
 ```
 
 https://mybot314.ru/tekegram_catalog/

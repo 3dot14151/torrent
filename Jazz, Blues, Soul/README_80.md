@@ -1,3 +1,61 @@
+###  Публикация: 1101308   (896425) от 06.02.2017
+
+VA - Jazz at Picasso (2008) Live Jazz in Kiev [FLAC|Lossless|image + .cue] <Mainstrim Jazz, Contemporary Jazz, Instrumental Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Stars Ban - Tune 88
+02. Txnu Naissoo - On Green Dolphin Street
+03. Various Artists - Virgin Ocean
+04. Majestic Duo feat. Vladimir zinkovsky - One for All(   Читать дальше...   )Жанр: Mainstrim Jazz, Contemporary Jazz, Instrumental JazzПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0748FB2646DCDD8E00A590349CFF4A527C2BAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101225   (896423) от 06.02.2017
+
+Dolf De Vries Trio - Where's That Rainy Day (1986) Remaster, 2016, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.La Mer [04:20]
+ 02.You Make Me Feel Brandnew [04:01]
+ 03.Bernie's Tune [02:19]
+ 04.Comecar De Novo [03:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055CFE903DC703870FC1898BB69F4A10CE6E1A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101226   (896422) от 06.02.2017
 
 Art Farmer & Fritz Pauer - Azure (1987) Soul Note[FLAC|Lossless|tracks + .cue] <Cool>
@@ -687,64 +745,6 @@ Ronnie Foster - Sweet Revival (1972) Remaster, 2013, EMI Music[FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08D8FA8D26452F43B896DF9193C6A8338DFCF733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994001   (894086) от 06.03.2016
-
-Thisbe Vos - Sophistication (2011) [FLAC|Lossless|image + .cue] <Contemporary Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный альбом - 6 оригинальных композиций и 6 - в традициях классических джазовых стандартов 1940-1950 гг. Рекомендуется поклонникам Ella Fiztgerald, Julie London и Diana Krall!01. House of Make Believe (Thisbe Vos) - 04:33
-02. The Frim Fram Sauce (Joe Ricardel/Redd Evans) - 02:48
-03. After You've Gone (Thisbe Vos) - 04:08
-04. They Can't Take That Away From Me (George Gershwin/Ira Gershwin) - 02:58(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C9EB1A3EEC8C87C37E2C6ECB86B5B036EF3E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993842   (894036) от 06.03.2016
-
-Drivetime - California Dreamin' (2016) [MP3|320 кб/с] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby the Rain Must Fall (04:02)
-02. Whispers (03:45)
-03. I Told You Once (04:17)
-04. Californiia Dreamin' (04:22)(   Читать дальше...   )Производство: New Vibe RecordsЖанр: JazzПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D292D680E1A61B49A0285BE4B99CDAFCD6D93AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

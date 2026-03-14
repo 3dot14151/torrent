@@ -1,3 +1,148 @@
+###  Публикация: 1261463   (303385) от 11.11.2018
+
+Unknown Artists. Verdi – La Traviata (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Opera>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01 Overture
+02 Libiamo Ne' Lieti Calici
+03 Un Di' Felice, Eterea (Duet)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C8B317DCEF3FB23C92E2F815AE7D860439D942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184079   (303202) от 16.11.2017
+
+Radiorama - Four Years After (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303202.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Daddy Daddy 3:15
+A2 Bad Boy You 4:06
+A3 Baciami (Kiss Me) 4:14
+A4 Flight Of Fantasy (Remix '89) 5:15(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi NRGПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCBF0B60EE38D1729C38ED26BDB004BA0CCC081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184149   (303058) от 16.11.2017
+
+Pet Shop Boys - Super (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happiness (4:05)
+02. The Pop Kids (3:56)
+03. Twenty-something (4:23)
+04. Groovy (3:30)(   Читать дальше...   )Жанр: Synth-pop, BalladПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86194D95EB0462787CFD9987A8CBF0DD61A46D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730880   (303017) от 05.12.2013
+
+БГ и Сева Гаккель - Концерт на Таганке (1984) 2LP /2013, Solyd Records/ [WavPack 2.0 24/192|image (Vinyl-Rip)]<Рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303017.jpg" />
+</div>
+
+
+###  Подробнее
+
+C1. Пока не начался джаз (2:41)
+C2. Рождественская песня (5:13)
+C3. 25 к 10 (2:12)
+C4. Электрический пес (3:12)(   Читать дальше...   )Жанр: РокПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCC212C7B6C9CD38316EABF13A0C0A990F34F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261605   (302952) от 11.11.2018
+
+Steve Hackett – Wolflight (2015) [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audio] <progressive rock, folk rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of The Body (02:31)
+02. Wolflight (07:58)
+03. Love Song To A Vampire (09:18)
+04. The Wheel's Turning (07:23)(   Читать дальше...   )Жанр: Prog Rock, Folk RockПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DE2C5C5045732249C0CB2D16B0AEA4095A551A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333522   (302814) от 25.10.2019
 
 Кино - Группа Крови (1988) [DSD 128 1bit/5,64 MHz |Vinyl-Rip] <Рок>
@@ -605,151 +750,6 @@ Rockets -Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electro, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72FA5930D05C0F7141A0157059789542E01A67DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262393   (293150) от 16.11.2018
-
-VA - Jazz Collection Non Stop Part I (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Bernard Allison - So Devine
-02. George Benson - Off Broadway
-03. Eartha Kitt - Nobody Taught Me(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A97B61574C39C7435504081EB30868D33264BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185421   (293131) от 21.11.2017
-
-Gazebo - Telephone Mama (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-
-A1 Telephone Mama
- A2 First!(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DB1CC47D89527F6FC9E55DA8369313AB908B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185401   (293124) от 21.11.2017
-
-Den Harrow - Overpower (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-
-1. Bad Boy 4:18
- 2. Overpower 4:18(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F8F90DECF1492457B62EC2EE220B38D3593419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185474   (292955) от 21.11.2017
-
-VA - Italo Maxi-Hits (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]  <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292955.jpg" />
-</div>
-
-
-###  Подробнее
-
-1-1 –Scotch Delirio Mind 5:24
-1-2 –Paul J. Qualley Please Please 4:30
-1-3 –Rewind Rosalie (Pop & Go!) 6:05
-1-4 –Orlando Johnson With Just A Kiss 6:10(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B36E88A2E913F1E7AE0DE3617645967B22D7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185459   (292941) от 21.11.2017
-
-Mylene Farmer - Interstellaires (2015) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292941.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Interstellaires
-A2 Stolen Car
-A3 À Rebours
-B1 C'est Pas Moi(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3DCBB1AB97828E87A35B508BE264AA4FB5BD46
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1724197   (109342) от 18.05.2024
+
+Soul Button - Master Minds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Lumina
+02 – Tartribe
+03 – Mystique Veil
+04 – Tartribe (Nick Devon Remix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E83799E020FCC3A29FB85F723C27E18D1BB45A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724186   (109340) от 18.05.2024
+
+A. G. Cook - Britpop (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Electronic, Powerpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Silver Thread Golden Needle (00:09:56)
+02 - Britpop (00:03:22)
+03 - You Know Me (00:04:07)
+04 - Prismatic (00:03:49)(   Читать дальше...   )Жанр: Synthpop, Electronic, PowerpopПродолжительность: 01:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA1581F7075D4524771A6E56E7B549C76B4559E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724146   (109338) от 18.05.2024
+
+VA - Everyone's Getting Involved (2024) A tribute to Talking Heads’ Stop Making Sense [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Psycho Killer - Miley Cyrus [00:03:44]
+02 - Heaven - The National [00:04:17]
+03 - Thank You for Sending Me an Angel - Blondshell [00:03:08]
+04 - Found a Job - The Linda Lindas [00:04:12](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4334C50C20AFF2221A22FE1A0CD983D863EF459A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724074   (109336) от 18.05.2024
+
+Orchestre Mario Cavallero - Hit Parade Chante - Pop Hits - Vol. 6 (1973) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Pop, Sound-alike>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109336.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Fais Comme L'oiseau
+A2 Le Lundi Au Soleil
+A3 La Complainte De L'heure De Pointe ''A Velo Dans Paris''
+A4 Si On Chantait(   Читать дальше...   )Жанр: Pop, Sound-alikeПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C668C239C5237EF2C9AC043A292F1035680A2DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724204   (109331) от 18.05.2024
+
+Kobra And The Lotus - Studio Albums (7 releases) (2009-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kobra and the Lotus (KATL) — канадская хэви-метал группа, образованная в 2009 году вокалисткой и автором песен Коброй Пейдж.2009 - Out Of The Pit
+2012 - Kobra And The Lotus
+2014 - High Priestess
+2015 - Words Of The Prophets (EP)Жанр: Heavy MetalПродолжительность: 05:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27B09F64047BFF22507B494009DECF1D777AD80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724129   (109330) от 18.05.2024
 
 Talking Heads - Stop Making Sense (1984) Deluxe Edition, 2023, Rhino - Warner Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experimental Rock, Art Punk, Dance Rock>
@@ -598,151 +743,6 @@ Monsieur MALA - Monsieur MALA (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2482948EAC1C24116CCBFBF8897F66D789AE4FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724363   (109260) от 19.05.2024
-
-Johan Rudebjer trio - Sandkorn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandkorn (4:51)
-02. Flärken (4:19)
-03. Fred (2:39)
-04. Jazz eller hockey? (4:17)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B6E3D57362640AC68DD4E720C9A406E9535934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724364   (109257) от 19.05.2024
-
-Matthew Rotker-Lynn - Introducing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thermo (5:33)
-02. All Or Nothing At All (7:56)
-03. Edda (4:24)
-04. Oblivion (4:31)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409158A8FAD047ED7752A90C17DDB308771D1291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724257   (109252) от 19.05.2024
-
-Relaxing Jazz Music, Smooth Jazz Lounge School - London Jazz Rhythms: Jazz Relaxing Adventure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth Jazz for London Coffee Festival (4:08)
-02. Relaxing Background Music (4:07)
-03. Waltz Time (4:35)
-04. Instrumental Soul Jazz (4:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B752C325CC58165700E5A436C1CDD37F3BCCDBA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724329   (109244) от 19.05.2024
-
-Adam Hawley - Unstoppable (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unstoppable (4:12)
-02. Up On It (4:04)
-03. Absolute Love (4:02)
-04. Uptop (4:21)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E674F8AFC3409C0C75C6C475AC63884E87DD59B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724251   (109243) от 19.05.2024
-
-Phil Davis - ALIVE (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Playing Field (5:01)
-02. Three Of A Kind (4:48)
-03. Back To NOLA (4:36)
-04. RetroSpective (5:16)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02504D6EFB4D4B8ED8744A80A18B868C5B948EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

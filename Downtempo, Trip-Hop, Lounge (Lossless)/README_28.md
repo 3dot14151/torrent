@@ -1,3 +1,60 @@
+###  Публикация: 1691422   (123281) от 12.01.2024
+
+Blank & Jones - #WhatWeDoAtNight 4 EP 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Night
+02. The Beach
+03. Fall in LoveЖанр: Electronic, Downtempo, Chill outПродолжительность: 00:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828ED11740B7AC6A47748CC8AA4E3CF7046A10F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691427   (123276) от 12.01.2024
+
+Schwarz & Funk - Diamonds of Lounge, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Nu Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mondays
+02. Nebu
+03. Intake (Bossa Mix)
+04. Jewels(   Читать дальше...   )Жанр: Electronic, Lounge, Nu JazzПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C2AEF8474C2F76B160EF207CCDB918906AFFE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692110   (122768) от 15.01.2024
 
 18 Summers - Virgin Mary (2002) [FLAC|Lossless|image + .cue] <Downtempo, Synth-pop, Darkwave>
@@ -687,64 +744,6 @@ VA - Tranquil Horizons: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EC8F69E86E063EECAAD169836094F556DF18493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708689   (113044) от 21.03.2024
-
-Orion & J.Shore - Brotherhood (2011) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orion & J.Shore - One Sunday (7:04)
-02. Orion & J.Shore - Architect's Dream (Album Reconstruction) (6:28)
-03. Orion & J.Shore - Oasis (5:19)
-04. Orion & J.Shore - Nails (9:43)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473065E7A79BCCBC258C3F90EC853493268C64DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709641   (112792) от 25.03.2024
-
-VA - Chillout Music 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innate Joy - Rhyming Games (4:22)
-02. Duenec - Reciprocal Steps (4:23)
-03. Silex Soils - Outgoing Nature (4:24)
-04. Blumenseele - Corroborating the Hypothesis (4:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6917099AE375915539B5E89C9FB10D89A92253C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

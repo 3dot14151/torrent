@@ -1,3 +1,148 @@
+###  Публикация: 1736272   (106718) от 11.07.2024
+
+Tuk - CONFRONTATIONS (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Safest Place (1:17)
+02. Confronted (4:46)
+03. All the Same to You (3:29)
+04. I Only Smoke When I Drink (4:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B3C20BD2106CBAFAC216CEF0CA0EE96BDF9EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736412   (106714) от 12.07.2024
+
+Vengaboys - The Greatest Hits Collection (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, Dance, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Parada de Tettas [4:06]
+02 - To Brazil! [3:07]
+03 - Up & Down [3:45]
+04 - We Like To Party! (The Vengabus) [3:43](   Читать дальше...   )Жанр: Electronic, Dance, PopПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E473DF187B37D0B4B571D1653F6EB161E73A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736446   (106707) от 12.07.2024
+
+Axxis - Coming Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackest Vision (cv) (3:27)
+02. Coming Home (cv) (3:13)
+03. Atlantica (cv) (3:42)
+04. Moonlight Bay (cv) (4:02)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0362968D5D2861BB676F33F0DE7886BA454E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736424   (106705) от 12.07.2024
+
+Amorphis - Tales From The Thousand Lakes (Live At Tavastia) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Thousand Lakes (Live at Tavastia) [1:55]
+02 - Into Hiding (Live at Tavastia) [4:12]
+03 - The Castaway (Live at Tavastia) [5:35]
+04 - First Doom (Live at Tavastia) [3:50](   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388D16C089406BB265C8939762BB84B2B9CCEE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736516   (106701) от 12.07.2024
+
+John Hiatt - Stolen Moments (1990) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One:
+A1 Real Fine Love
+A2 Seven Little Indians
+A3 Child Of The Wild Blue Yonder(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590B37716A3D6A4F0CAC70B6A1B75434EAD2979D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736448   (106695) от 12.07.2024
 
 Spektra - Hypnotized (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -594,151 +739,6 @@ AdrianoMaria - Night And Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F2413EB5C45E486FC2AB5DA91791AED7743123C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736911   (106575) от 14.07.2024
-
-Joe Tatton Trio - Galáctico (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Take (3:25)
-02. Hey! (4:46)
-03. El Gato (4:29)
-04. Guinnee Drop (3:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF5D433AC8BEDA823EE75166AAFA25410F0EF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736914   (106574) от 14.07.2024
-
-Ken Peplowski - At Mezzrow (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vignette (7:21)
-02. Prisoner Of Love (4:40)
-03. Beautiful Love (9:27)
-04. All The Things You Are (6:23)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E2B63E9616101B2E7249EC6BEFEB9E28146152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736896   (106573) от 14.07.2024
-
-Enri Zavalloni - Organ Express (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Organ Express (4:55)
-02. Harlem Hot Wheels (2:57)
-03. Shotguns Barbecue (3:04)
-04. Dribbling Boogaloo (3:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3D275112728B2FC30CEB45271CAEAB638A77B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736909   (106572) от 14.07.2024
-
-J Use - Whispers in the Moonlight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whispers in the Moonlight (3:31)
-02. Moonlit Serenade (3:13)
-03. Silent Love (4:00)
-04. Friend Zone Serenade (2:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE32AC29F5EC4D8FD075B08E5BE7F801F738F07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737072   (106564) от 16.07.2024
-
-John Summit - Comfort In Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Breaks, Drum & Bass>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Summit - Comfort In Chaos (4:27)
-02. John Summit, Paige Cavell - Tears (3:56)
-03. Of The Trees, John Summit - Stay With Me (4:22)
-04. Hayla, John Summit - Shiver (3:54)(   Читать дальше...   )Жанр: Electronic, Breaks, Drum & Bass, Progressive House, Melodic House & TechnoПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1A92F5D1EEC601757D2DF3F10F8DD220A8310C
 ```
 
 https://mybot314.ru/tekegram_catalog/

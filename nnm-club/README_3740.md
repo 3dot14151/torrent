@@ -1,25 +1,22 @@
-###  Публикация: 1095809   (919418) от 24.01.2017
+###  Публикация: 988756   (921004) от 20.02.2016
 
-Cкелетон. Кубок мира 2016-2017. 5-й Этап. Санкт-Мориц (Швейцария). Мужчины (20.01.2017) WEB-DL [H.264/720p-LQ]
+Газета | Сезон у дачи №3 (205) (Февраль 2016) [PDF]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919418.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 января 2017, пятница. 11:30 МСК
-Кубок мира 2016-2017. 5-й Этап. Санкт-Мориц (Швейцария):
-Мужчины. 1-я и 2-я попытка
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:49:02
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:196C5241213AACA5B3EAF4DD1BA646F3DFFD7C96
+magnet:?xt=urn:btih:CBFCDED95B0857B5100945FEC68A05BB78750786
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,27 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096597   (919417) от 24.01.2017
+###  Публикация: 988352   (921003) от 20.02.2016
 
-Лыжные гонки. Кубок мира 2016-2017. Ульрисехамн (Швеция). Мужчины. Эстафета 4х7.5 км (22.01.2016) IPTV [H.264/1080p-LQ]
+Журнал | Цветок №3 (285) (февраль 2016) [PDF]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919417.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-22 января 2017 года, воскресенье. 15:00 МСК
-Этап Кубка Мира по лыжным гонкам 2016-2017. Ульрисехамн (Швеция):
-Мужчины. Эстафета 4х7.5 кмТелекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:12:35
+Практический журнал для цветоводов и дачников, рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей.Жанр: Садоводство, цветоводствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A76726A180655B1A0C7E9B2BA4EBF85C9B817B49
+magnet:?xt=urn:btih:B5C3237A8DF7C8C93C24D8657964CC980A9E00DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,27 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096590   (919415) от 24.01.2017
+###  Публикация: 988519   (921002) от 20.02.2016
 
-Лыжные гонки. Кубок мира 2016-2017. Ульрисехамн (Швеция). Женщины. Эстафета 4х5 км (22.01.2016) IPTV [H.264/1080p-LQ]
+Сергей Марков | Летопись Аляски (2013) [MP3]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919415.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-22 января 2017 года, воскресенье. 13:30 МСК
-Этап Кубка Мира по лыжным гонкам 2016-2017. Ульрисехамн (Швеция):
-Женщины. Эстафета 4х5 кмТелекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 00:59:21
+"В течение многих лет я занимался поисками и изучением архивных материалов о русских открытиях в странах Тихого океана. Мне приходилось работать в архивах музеях Великого Устюга, Вологды, Сольвычегодска, Каргополя, рассылать множество писем в Нежин и Кяхту, Кострому и Иркутск, Рыльск и Красноярск, Курск и Владивосток, Пензу и Кунгур и другие города, где родились, (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 09:10:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE269C4A64BF0FAC344C4791336A68C539573D14
+magnet:?xt=urn:btih:B440E026638AD36B3E7F7A158E767BBBCE22682E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095590   (919413) от 24.01.2017
+###  Публикация: 988636   (921001) от 20.02.2016
 
-Гандбол. Чемпионат Мира 2017. Мужчины. Группа A. 5-й тур. Россия - Бразилия (19.01.2017) WEB-DL [H.264/720p-LQ]
+Ринат Валиуллин | В каждом молчании своя истерика (2016) [MP3]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919413.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-19 января 2017 года, четверг. 16:00 МСК
-Чемпионат Мира 2017. Мужчины. Предварительный раунд
-Группа A. 5-й тур. Россия - Бразилия
-(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:24:46
+Она сидела перед ним, перелистывая свои бесконечные ноги, а он, еще ни разу не читавший таких интересных книг, не знал, с какой страницы начался этот роман. Роман, в котором дружба, выдержанная годами в сосуде взаимопонимания, медленно оплеталась гибкой лозой любви до тех пор, пока стекло не треснуло, и изнутри не брызнула горячая кровь мести и ненависти.Жанр: Современная прозаПродолжительность: 05:29:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:080F53AD18F31CB349C6B2DF5E7726577ACE56FA
+magnet:?xt=urn:btih:B0BCDD2DB254DB98EC615AFDAE77747B845C3FB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,28 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096535   (919411) от 24.01.2017
+###  Публикация: 988396   (921000) от 20.02.2016
 
-VA - Sun Emotions Vol.1 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+В. А. Брюханов | Мировоззрение К. Э. Циолковского и его научно-техническое творчество (1974) [DJVU]
 
->>Electronic
->>Easy listening
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919411.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  DJ Pantelis - That Summer (The Balearica Anthem)  4:16
-02.  Florito - A La Playa  5:29
-03.  DJ Quincy Ortiz - The Way Home  7:01
-04.  Todoroff - Lost Without You (feat. David Paul)  6:36(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:34:32
+Предлагаемая вниманию читателя книга В. А. Брюханова является попыткой марксистского анализа философских и методологических основ научно-технического творчества К. Э. Циолковского.Жанр: История, философия, науковедениеФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BD76BA7E58381B0FD7498FE130C8088000578BF
+magnet:?xt=urn:btih:7B80403C8EBE6A8EDC92C411DB396212874028E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,27 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096534   (919409) от 24.01.2017
+###  Публикация: 1095859   (920999) от 23.01.2017
 
-Downie 2.6.8 [Multi/Ru]
+С. К. Минин | Религия и коммунизм (1922) [PDF] [Ua]
 
->>Архив торрентов
->>Архив 4Apple
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919409.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
-
-Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 января 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
+В издание вошла стенограмма лекции С. К. Минина, посвященная вопросам религии и отношения революции к религиозным организациям и учениям.Жанр: История, политология, религиоведениеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AC9B4F82CD74AB143BCCAD0822D4D393CED1AD9
+magnet:?xt=urn:btih:B8A9BABA03231F4F9D0680BB6E75DF9070615B7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,231 +154,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096588   (919407) от 24.01.2017
+###  Публикация: 1096102   (920998) от 23.01.2017
 
-VA - Chill Party Chillout Fine Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)  7:00
-02.  Don Gorda Project feat. Solanos - Festa Do Sol (Funk Edit)  4:47
-03.  Enrico Donner - The Place  6:17
-04.  Solanos - Infinite Fields  5:24(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA862FC6F744BDB75918B355E120D72EEE681C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096554   (919406) от 24.01.2017
-
-The Modern Jazz Quartet - The Last Concert (1974) 2CD, 2005, Atlantic[FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919406.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Softly As In A Morning Sunrise [06:25]
-02.The Cylinder [05:26]
-03.Summertime [07:48](   Читать дальше...   )Жанр: CoolПродолжительность: 02:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6C52C1058B879D8927525A747A383710FE4BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096363   (919404) от 24.01.2017
-
-Paradigm Shift - Becoming Aware (2016) [FLAC|Lossless|image + .cue] <Neo Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919404.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Revolutionary Cure (14:49)
-2. An Easy Lie.(8:47)
-3. The Void.(3:19)
-4. The Shift (4:33)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8242085E42269AEC062CA44154E0EA229DE4E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096493   (919402) от 24.01.2017
-
-Internal Cold - 1 album, 1 EP (2013-2016) [MP3|192-320 Kbps] <Atmospheric Black Metal, Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919402.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cold And Cursed
-2. In A Pursuit Of Death
-3. Nothing Will Turn Out Well
-4. The Morbid Spectre Of Disease(   Читать дальше...   )Жанр: Atmospheric Black Metal, Depressive Black MetalПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2E600F57AAA2F84377D0DB8476FEA746DC540A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096563   (919400) от 24.01.2017
-
-Igor Butman, Eddie Gomez, Andrei Kondakov, Lenny White - Jazz 4х4 (1997) Союз[FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Любовные письма [06:01]
- 02.Французские связи [04:39]
- 03.Заброшенный парк [08:34]
- 04.Щёки [06:19](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB29177045A02BE736B39D3424C84C53037F2E61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096551   (919397) от 24.01.2017
-
-Arktis - On The Rocks (1976) Reissue, 1997, Garden Of Delights [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919397.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dangerous Love
-2. Since You've Been Gone
-3. Never Come Back
-4. Please, Call Me(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B18375F67EAC85843411F6741CFEE5C0726623A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096397   (919395) от 24.01.2017
-
-VA - Redux Presents: The Finest Selection (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919395.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Para X - Extasia (original mix) (07:08)
-2. UDM - Omega (extended mix) (06:09)
-3. F.G. Noise & TrancEye - The Mist (original mix) (06:42)
-4. Kayan Code - False Reality (feat Juha V - Dreamy Banging vocal mix) (07:49)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4154ABE052B72972E4BAE3B95151D701F2D2D6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095805   (919393) от 24.01.2017
-
-Southbound Snake Charmers - Rhythm 'n' Rust (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Dirty Blues>
+The Lachy Doley Group - Lovelight (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919393.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Don't Speak Too Soon 06:31
-02 Out In The Cold 05:13
-03 Shot Down 03:56
-04 Set Ya'll Free 04:01(   Читать дальше...   )Жанр: Blues, Dirty BluesПродолжительность: 00:42:45
+01 We're Free (04:20)
+02 Love Come Around (04:02)
+03 Lovelight (03:46)
+04 Ain't No Love In The Heart Of The City (04:51)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:38:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E3324DBB7DFB7ED377D46B977C7D39A16BB5B52
+magnet:?xt=urn:btih:E865247C4CCBC5831925F9CBB272E7AF88A24202
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,28 +183,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096732   (919391) от 24.01.2017
+###  Публикация: 1096367   (920997) от 23.01.2017
 
-VA - Abora Recordings Best Of 2016 (Mixed by Ori Uplift, Receptive & Illitheas) (2017) [MP3|320 Kbps] <Trance>
+Н. Елизаров, И. Булатов | Кулак, «Его Святейшество» Папа Римский и оборона страны (1930) [DJVU]
 
->>Архив торрентов
->>Архив Музыки
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919391.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Illitheas & Johannes Fischer - Tears of Hope (Intro Mix) (6:17)
-02. Type 41 - I'm Sorry (feat. Danny Claire - Original Mix) (7:13)
-03. Type 41 - Heiwa (Original Mix) (8:01)
-04. Attila Syah - Letters To Heaven (Original Mix) (7:44)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:01:05
+В брошюре приведены выдержки из документов Папы Римского Пия XI и других зарубежных церковников с объявлением "крестового похода" против СССР, рассказано о протестах трудящихся нашей страны и других стран против подобных акций, укреплении обороноспособности СССР.Жанр: История, политология, религиоведениеФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3FDDFA6EE807EFC74EFA66B113569640D900FC1
+magnet:?xt=urn:btih:3397966AD2F5CCACADBDD125ADF4F33A28803806
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,28 +209,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 631940   (919386) от 20.03.2013
+###  Публикация: 1096230   (920996) от 23.01.2017
 
-VA - MTV Top the Hits 2013 3CD (2013) [FLAC|Lossless]<Pop, Dance, Rock, R&B, Trance, Other>
+VA - Empire Records - Dancenudisco 4 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919386.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обычно на трекере размешаются в основном МР3ки. Сборник хитов в приличном качестве довольно большая редкость. Тем более, что все, представленные в этом сборнике треки действительно хиты!CD1Жанр: Pop, Dance, Rock, R&B, Trance, OtherПродолжительность: 01:08:49
-
-1. Pitbull Ft. Christina Aguilera - Feel This Moment (3:50)
-2. Rihanna Ft. David Guetta - Right Now (3:02)(   Читать дальше...   )
+01. Jackie Tech - You Can Have It All (Filatov & Karas Remix)
+02. Emy Care - Fly In The Sky (Dance Mix)
+03. Deep Fresh feat. Alina Petko - So Hight (Original Mix)
+04. Irina Makosh, Wallmers, Lisitsyn - Silent Tears (Original Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 02:01:49
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:481A97EF06190487A21FAD3ED2BD9E93AF10B961
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,25 +238,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096507   (919385) от 24.01.2017
+###  Публикация: 1096180   (920995) от 23.01.2017
 
-В. Каринский | Про Мишу и козла Тишу (1927) [PDF]
+Plaag - 1 album, 1 EP (2011-2012) [MP3|210-256 Kbps] <Black Metal, Black'n'Roll>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919385.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Стихи для детей младшего школьного возраста.Жанр: Детская проза, стихиФормат: PDF
+01. Once
+02. Stitched 'n Stapled
+03. Hear 'em Roll
+04. Plague(   Читать дальше...   )Жанр: Black Metal, Black'n'RollПродолжительность: 01:05:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92B1309C3ED3EEEFE289D886F1927B34F8DB25AF
+magnet:?xt=urn:btih:47E5AC1B4E4C73D5EC092F81A74DE747D970B43A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,54 +267,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 632621   (919383) от 20.03.2013
+###  Публикация: 1095795   (920994) от 23.01.2017
 
-ESET Smart Security 6.0.314.2 RePack (x86/x64) by SmokieBlahBlah [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919383.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET NOD32 Smart Security 6.0 - новая версия комплексного антивируса NOD32. Решение "все-в-одном" с многоуровневой защитой. Включающий антивирус на движке известного антивируса NOD32, брандмауэр, антишпионский модуль и фильтр для защиты от спама. Антивирус совместно с функцией поиска шпионских модулей поможет обнаружить и удалить самые разные виды вредоносных приложений. Защитите свой компьютер или ноутбук от потери или кражи с помощью функциональности нового компонента Анти-Вор. Функция Анти-вор (Anti-Theft) позволяет обнаружить местоположение и вернуть потерянный или украденный ноутбук или компьютер.Название программы: ESET Smart Security 6.0.314.2 RePack (x86/x64) by SmokieBlahBlahЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096148   (919382) от 24.01.2017
-
-Lou Gazzara - Musical Love Affair (2017) [FLAC|Lossless|tracks] <Jazz>
+Demetria Taylor - Bad Girl (2011) [MP3|320 Kbps] <Chicago Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919382.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'm Gonna Live Till I Die [01:54]
-02. Birth Of The Blues [03:17]
-03. If I Can Dream [02:48]
-04. At Last [03:05](   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:07
+01.  I'm A Woman / Hoochie Coochie Woman (05:51)
+02. All Your Love (07:50)
+03. Voodoo Woman (05:11)
+04. Bad Girl (04:12)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 01:07:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A363385AFC5FA867E558BBF1E1DA6C0844B5CE0E
+magnet:?xt=urn:btih:6FD9FCC05555510FAB99486B98375EA25139AB3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,28 +296,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096490   (919380) от 24.01.2017
+###  Публикация: 1095898   (920993) от 23.01.2017
 
-Svartby - Swamp, My Neighbour (2015) [MP3|320 Kbps] <Folk Metal>
+Разработан технологический процесс производства высококачественных сверхдлинных углеродных нанотрубок
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на обладание множеством привлекательных уникальных механических и электрических свойств, углеродные нанотрубки, за редкими исключениями, пока остаются лишь предметом научных исследований, с которым работают ученые в стенах своих лабораторий. Такая ситуация складывается из-за того, что до последнего времени не существовало технологии производства высококачественных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095870   (920992) от 23.01.2017
+
+Г. Кунов | Как возникла религия и вера в богов? (1922) [PDF] [Ua]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920992.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии указывается тесная связь между религиозными представлениями диких народов, их образом жизни и окружающей их природой. Автор показывает, что не только вера в бога и в бессмертие у всех народов исходит из одинаковых простых основных представлений, но что все развитие религии со строгой закономерностью идет по одинаковым путям.Жанр: История, религиоведение, этнография, социологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047EA93C99017DD9FFB79C140A87F9EF7498EF25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096138   (920991) от 23.01.2017
+
+VA - Kind Vibrations (2015) [FLAC|Lossless|tracks] <Downtempo, Ambient, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sufi's Life - Blessings To All [08:49]
+02. Tor.Ma In Dub - The Secret Message [04:00]
+03. Ishdub - Tatanka (Melodica Version) [06:17]
+04. Gnomes of Kush - Jah Love The Kush [03:57](   Читать дальше...   )Жанр: Downtempo, Ambient, HouseПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B568E97F330AFB41E0BC9D7BB28DED519822532B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096362   (920990) от 23.01.2017
+
+Riff Action Family - So Lonely To Play Without You (2017) [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919380.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Morbid Quag
-2. Trojansk Ratta
-3. Goat Crack
-4. Karl’s Egg Farm(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:34:26
+01. Ratman (03:07)
+02. Chess Match (04:13)
+03. Nothing Stops Me (03:12)
+04. Interstellar (06:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0293C63A64B82D978DC2B843712CCCF7E32C5B73
+magnet:?xt=urn:btih:B06F1C69C7E3D427DC52E416536C967405FF628B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,25 +406,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 757287   (919376) от 15.02.2014
+###  Публикация: 1096265   (920989) от 23.01.2017
 
-Блэки летит на Луну / Black to the Moon 3D (2013) Blu-Ray 3D [1080p]
+Phantom Blues Band - Inside Out (2011) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
 
->>Архив торрентов
->>Архив Мультфильмов
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919376.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Овечка Блэки — настоящая чума для всей фермы. Она — постоянный нарушитель спокойствия, энергии у нее на десятерых. Она — черная овечка и очень гордится этим, потому что не хочет быть такой, как все. Животные-соседи называют ее «очаровательным бедствием». Иногда они считают Блэки невыносимой, но в конце концов стараются помочь в осуществлении ее безумных фантазий. (   Читать дальше...   )Производство: Испания, Италия, Франция / Lumiq StudiosЖанр: Мультфильм, комедия, приключенияРежиссер: Франсис Нилсен / Francis NielsenАктеры: Кристина Хьюз, Питер Хадсон, Брайан Вермейр, Бобби Джексон, Кэролин ФаллинПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:20:26
+1. I Can't Stand It (2:49)
+2. Good Time For the Blues (3:16)
+3. Boogah Man (3:27)
+4. So Far From Heaven (6:00)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:51:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:815BEDBB9FF072FBCAC5E12AF9A33F76C10F7AA7
+magnet:?xt=urn:btih:F50D4A9ED0F739815C6F0B6CE3D9B281797EA557
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,83 +435,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096700   (919373) от 24.01.2017
+###  Публикация: 1096327   (920988) от 23.01.2017
 
-Macsome iTunes Converter 2.1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macsome iTunes Music Converter - Конвертировать DRM защищенную музыку в незащищенный формат
-Macsome iTunes Music Converter - программа для пакетного удаления DRM-защиты с различных типов файлов. Приложение поддерживает все аудио форматы, которые поддерживает iTunes. Преобразование происходит на 5X скорости с качеством Audio-CD.
-
-Macsome iTunes Music Converter позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 января 2017Разработчик: Macsome Inc.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6796485141DD281F4EF1E6D1C542DF864899963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632526   (919372) от 20.03.2013
-
-Идеальный побег / A Perfect Getaway (2009) BDRip [Театральная версия / Theatrical Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медовый месяц — самое счастливое время для молодоженов. Они — красивая пара, добившаяся успеха в жизни и впереди ожидающая только счастья и радости! Их свадебное путешествие на Гавайи похоже на сказку. Правда, все это омрачается грозными сообщениями о том, что на острове, куда они отправились, орудуют серийные убийцы.Жанр: боевик, триллер, детектив, приключенияРежиссер: Дэвид ТуиАктеры: Стив Зан, Тимоти Олифант, Милла Йовович, Киле Санчез, Марли Шелтон, Крис Хемсворт, Энтони Руйвивар, Дейл Дикки, Питер Нэви Туясосопо, Венди БраунПеревод: Дубляж + Профессиональный (многоголосый закадровый)- УкраинскийЯзык субтитров: Русские, Английские (SRT)Продолжительность: 01:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FB40457B930A627B0F19ED11F903B0725BE88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096519   (919365) от 24.01.2017
-
-VA - Christmas Swing (2014) [FLAC|Lossless|tracks + .cue] <Jazz, Retro>
+Roberto Fonseca - Abuc (2016) Impulse![FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919365.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bing Crosby - 01 It’s Beginning to Look a Lot Like Christmas (2:48)
-02. Nat King Cole - 02 Mrs. Santa Claus (2:14)
-03. Frank Sinatra - 03 The Christmas Song (3:30)
-04. Marlene Dietrich - 04 Candles Glowing (2:34)(   Читать дальше...   )Жанр: Jazz, RetroПродолжительность: 00:41:30
+01.Cubano Chant [04:28]
+ 02.Afro Mambo [03:46]
+ 03.Tumbao de la Unidad [03:53]
+ 04.Contradanza del Espiritu [05:41](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:52:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8229CA5428624E0BCFF2CB8E528C5CD9242E9096
+magnet:?xt=urn:btih:DCA98EC467A8C84EFE858B9F9C90A627B1DBADDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,25 +464,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095695   (919361) от 24.01.2017
+###  Публикация: 1096024   (920987) от 23.01.2017
 
-Буало-Нарсежак | Недоразумения (2007) [MP3]
+Ф. Энгельс | Развитие социализма от утопии к науке (1917) [PDF] [Ua]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919361.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Маpи-Лоp тепеpь, навеpное, звонит в полицию. Скандал pазpазится завтpа. Все в оцепенении узнают, что Жоpж Севp покончил с собой, выстpелив из pужья себе в лоб, и что его зять, Филипп Меpибель, бежал. Так ли это? Все настолько осложнилось!.. На самом деле убил себя Меpибель, и это он сам, Севp, пpидумал мистификацию, чтоб выдать меpтвеца... Конечно! Это ни на (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:11:54
+Работа "Развитие социализма от утопии к науке" возникла из трех глав труда Ф. Энгельса "Анти-Дюринг", переработанных им в самостоятельную книгу. В ней раскрыты историческая роль утопического социализма и его ограниченность, охарактеризованы предпосылки возникновения научного социализма, даны его главные положения. В книге Ф. Энгельс доказывает, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DD1E97B22AA608AB212B0A1BB1853415C2163E1
+magnet:?xt=urn:btih:8E37D04F907D295ADA3C70C74FB9EDE9F818CBC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -705,28 +490,228 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 756997   (919358) от 15.02.2014
+###  Публикация: 1096351   (920986) от 23.01.2017
 
-The Beatles - Video Collection. Vol. 2 (2003) DVDRip [H.264]
+VA - Cool Chillout Music: Nice Chill Out Bestsellers (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 
->>Театр и Музыкальное видео
->>Музыкальные клипы
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_919358.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Am The Walrus
-02. Hello, Goodbye
-03. Across The Universe
-04. Lady Madonna(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:24:05
+01.  DJ Rostej - Minutes of Stories (Chillout Mix)  2:46
+02.  Seven24 - Behind the Sky (Chillout Mix)  5:11
+03.  DJ Rostej - Long Way (Chillout Mix)  4:46
+04.  MAA - Light of Soul (Chillout Mix)  2:24(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:49:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2E95DC2E835EBBCE6C180A9B67EB804B8CECF3B
+magnet:?xt=urn:btih:61B0638C9474E1D65A6CF0745E2FD7DBEE093665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096232   (920985) от 23.01.2017
+
+VA - Empire Records - Chill Out 10 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GoodLuck - Back In The Day (Radio Edit)
+02. UnClubbed - Need To Feel Loved (feat. Zoe Durrant)
+03. Toca Lounge - Electric Feeling (Lounge House Mix)
+04. Beth - Don't You Worry Child (Charming Horses Remix Edit)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A2850364A4F637654630F167EA6C4EDC572E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096220   (920984) от 23.01.2017
+
+VA - Louis Armstrong & Friends: What A Wonderful Christmas (1997) Hip-O Records[FLAC|Lossless|image + .cue] <Vocal Jazz, Christmas Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Armstrong With Benny Carter's Orchestra - Christmas In New Orleans [2:54]
+02. Louis Armstrong With Gordon Jenkins & His Orchestra - White Christmas [2:39]
+03. Dinah Washington - Silent Night [2:22]
+04. Mel Torme - The Christmas Song [3:06](   Читать дальше...   )Жанр: Vocal Jazz, Christmas JazzПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538C42350EB81067996B170D8044B9242FE39E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095876   (920983) от 23.01.2017
+
+The Modern Jazz Quartet - Together Again: Echoes (1984) 2005, Pablo Records[FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.That Slavic Smile [08:05]
+ 02.Echoes [07:10]
+ 03.The Watergate Blues [06:09]
+ 04.The Hornpipe [08:20](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9D30F308C006BD37B5209B723327992D2D5C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095618   (920982) от 23.01.2017
+
+Кондильяк | Сочинения [3 тома] (1980-1983) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920982.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1 том том входит первый труд выдающегося французского философа Этьенна Бонно Кондильяка, внесшего особенно крупный вклад в теорию познания века Просвещения. Этот труд - "Опыт о происхождении человеческих знаний" (1746) - принес автору европейскую славу. На русском языке публикуется впервые.
+
+Во 2 том входят следующие произведения: "Трактат о системах", (   Читать дальше...   )Жанр: История, философия, искусство, лингвистика, логикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EBBEB17368AF3F7CEA752D3F12C7C04A2C428C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096242   (920981) от 23.01.2017
+
+VA - Empire Records - Club Hit 6 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SRTW feat. Charity Children - Whispering Still (Little Rose Remix)
+02. Groove Insane - Broken Heart (Artful Fox Bootleg Remix)
+03. Mr & Mrs Cactus - Synchronized (Steve Diamond Remix)
+04. Klingande feat. M-22 - Somewhere New (George Kwali Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEAA8929D93268324D66D171E2C91CFD1B563D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096268   (920980) от 23.01.2017
+
+VA - Cinematic Chillout: Wintertime Collection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Gorda Project - Dreamscape  6:11
+02.  Enrico Donner - Where the Sun Rises (Feat. Ali Rouass)  7:07
+03.  DJ Riquo - Deep Winds  5:08
+04.  Cane Garden Quartet - Sea Jam  5:24(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0D788B2D5AB357A91C33E322ABDA670CF20C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756884   (920973) от 14.02.2014
+
+Сборник - День всех влюбленных 3 / Valentine's Day 3 [JPEG,PSD,EPS,AI,PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изображения ко Дню всех влюбленных
+для тех, кто еще не поздравилФормат: JPEG,PSD,EPS,AI,PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B640CF63F8DAB65DDECAC11E7356019E50F360
 ```
 
 https://mybot314.ru/tekegram_catalog/

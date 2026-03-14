@@ -1,3 +1,61 @@
+###  Публикация: 1585341   (222674) от 21.10.2022
+
+VA - Car Booster Vol. 1 (2022) CD, Compilation [MP3|320 Kbps] <Electro Pop, Dance, Club, Future House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drive With BeatsBasslovers United - Black Bugatti
+02. YunaMartin Van LectroMonroe & MoralezzJetason - Love Like Fire
+03. Patrick MetzkerYuna - In or Out
+04. Drive With BeatsBeachbag - Speed of Light(   Читать дальше...   )Жанр: Electro Pop, Dance, Club, Future HouseПродолжительность: 00:57:22 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE33EA42E6D58B275BCF8C7A89424BE78B2D9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585305   (222667) от 21.10.2022
+
+Laura Branigan - The Best Of Branigan (1995) [OGG Vorbis|480 Kbps] <Electronic, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solitaire
+02. Show Me Heaven
+03. Ti Amo
+04. Spanish Eddie(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE0DC300AA7C0334D194F2E4915140BF5E5BF39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424986   (222633) от 20.11.2020
 
 VA - 50 Chart Hits of 2020 The Winter Workout Album [MP3|320 Kbps] <Pop, Dance>
@@ -705,64 +763,6 @@ VA - Ballermann Megamix (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C33C92DC2E47016C9B2B1375CA21DE71FD24BFA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585854   (219484) от 24.10.2022
-
-VA - Ballermann Huttengaudi (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bierkapitan - Schere Stein paar Bier (Schnick Schnack Schluck)
-02. Peter Wackel - An der Theke
-03. Ikke Huftgold - Ich schwanke noch
-04. Lorenz Buffel & Anna-Maria Zimmermann - Ein Lied fur diese Welt(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:07:07 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D6A783BD48A4589F3DFC97DD70FC4AEBCC2145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585871   (219458) от 24.10.2022
-
-VA - Karneval am Ballermann 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Zipfelbuben - Olivia
-02. Tim Toupet - Pietro Lombaaadi
-03. Bierkapitan - Ein Pils steht im Wald (die Tannen zapfen)
-04. Almklausi - Wir machen mit bei der Rettung der Erde(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:06:02 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944102C8E1C016D9A4B918C932E540597AF6C287
 ```
 
 https://mybot314.ru/tekegram_catalog/

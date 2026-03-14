@@ -1,3 +1,119 @@
+###  Публикация: 245526   (888298) от 01.04.2020
+
+Satyaa & Pari - To the One (2010) [FLAC|Lossless|tracks + .cue] <Spiritual, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sitaram Radheshyam (19:22)
+02. To the One (9:41)
+03. Shakti Om (9:06)
+04. Lokah Samasta (8:48)(   Читать дальше...   )Жанр: Spiritual, New AgeПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C60BCAA31ACC26F3A066BB60622CF974CBC02E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661224   (888275) от 01.04.2020
+
+Oystein Sevag - Space For A Crowded World (2012) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Landing (5:50)
+02. Urban Nocturne (4:14)
+03. Gentle (3:54)
+04. Song from another Place (3:30)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED63C4CA8FBB6F5D5AFD1408F8C0A661F66AEBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994728   (888198) от 09.03.2016
+
+Sudha - Planet Love (2004) [APE|Lossless|image + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wendeyaho (05:50)
+02. La 'Ieikawai (06:55)
+03. Ishq Allah (04:48)
+04. Undea Hibi (07:22)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825806DFE3E0E2675C809FE65ABB0029C0DB89FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640835   (888174) от 01.04.2020
+
+Blue Seas Grand Orchestra - Poetry of The Natures (2013) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <New Age, Easy Listening, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepy Lagoon (3:46)
+02. Theme From A Summer Place (2:50)
+03. Moon River (3:10)
+04. The Windmills Of Your Smile (3:13)(   Читать дальше...   )Жанр: New Age, Easy Listening, RelaxПродолжительность: 01:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671E8570ABBB64C42B87FFB92B70D15275EB2DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 664037   (888094) от 01.04.2020
 
 VA - Relax With... 11 альбомов (1993-1997) [FLAC|Lossless|image + .cue] <Nature Sounds, Relax>
@@ -628,122 +744,6 @@ Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Origin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A40DEB7E9F979658AED9065FF3F0EAB3020B3ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103813   (882918) от 13.02.2017
-
-Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plastic Heart (02:50)
-02. Shark Chevelle (01:18)
-03. Man Of Focus (03:25)
-04. Sumo Showdown (03:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B3BC58268EEB7E2E373517318E673F92603306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373149   (882074) от 05.04.2020
-
-Govi - Your Lingering Touch: Govi at His Romantic Best (2001) [FLAC|Lossless|tracks + .cue] <New Age, New Flamenco>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Of Joy
-02. Magellan's Beat
-03. Sailing Away
-04. Your Lingering Touch(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90315AF8F667E03B797E8D8CC6D21162B51A299E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373045   (882054) от 05.04.2020
-
-Toundra - Das Cabinet Des Dr. Caligari (2020) [FLAC|Lossless|tracks + .cue] <Soundtrack, Post Rock, Instrumental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Titelsequenz (1:40)
-02. I. Akt (10:51)
-03. II. Akt (12:12)
-04. III. Akt (11:35)(   Читать дальше...   )Производство: Inside Out Music - IOMLP 543Жанр: Soundtrack, Post Rock, InstrumentalПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:140A0D964DB47285F6BBB826F52740E319080010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104121   (881710) от 14.02.2017
-
-VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black (07:32)
-02. Your Greatest Enemy (02:42)
-03. The Arrival of Robin (02:52)
-04. Joker Crashes the Party (01:33)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:32 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893E9EC4D66D227258C3F473F851FEBBB1AB149A
 ```
 
 https://mybot314.ru/tekegram_catalog/

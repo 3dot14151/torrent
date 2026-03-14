@@ -1,3 +1,32 @@
+###  Публикация: 1353729   (990804) от 19.01.2020
+
+John Pizzarelli - Double Exposure (2012) Telarc [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Fine/Sidewinder [3:49]
+02. Harvest Moon [5:19]
+03. Traffic Jam/The Kicker [3:30]
+04. Ruby Baby [4:54](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4142AF4A93428F68589401BC14184B46D1425F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353819   (990731) от 19.01.2020
 
 Diana Krall - Wallflower (2015) [FLAC|Lossless]<Vocal Jazz, Pop>
@@ -748,35 +777,6 @@ Hank Crawford - More Soul 1960 (2003) Atlantic [FLAC|Lossless|tracks + .cue] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40314B18BE0641FE01ACEB4655CC085D86C5AB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355126   (984987) от 25.01.2020
-
-Nat King Cole - Jazz Encounters 1945 - 1950 (1992) Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leap Here (alternate take) [3:22]
-02. Leap Here [3:25]
-03. Metronome Riff [2:45]
-04. You Can Depend on Me [3:00](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA217727B1AACE23BA5E8EAAEF449B9A7DB83F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

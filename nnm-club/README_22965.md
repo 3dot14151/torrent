@@ -1,19 +1,128 @@
-###  Публикация: 1824179   (128559) от 15.10.2025
+###  Публикация: 491365   (130341) от 03.05.2012
 
-Google запустил режим ИИ для поиска в России и Белоруссии
+Артист / The Artist (2011) HDRip
 
->>3
->>След.
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_128559.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Компания Google объявила на днях о грядущем запуске режима ИИ для фирменного поисковика более чем для 40 дополнительных стран и регионов, более чем на 35 новых языках. В рамках постепенного запуска режим ИИ в поиске Google заработал для России и Белоруссии на русском языке.В Google отметили:
-(   Читать дальше...   )
+Голливуд, 1927 год. Звезда немого кино Джордж Валентайн и слышать не хочет о микрофонах на съемочной площадке. А безнадежно влюбленная в Валентайна статистка Пеппи Миллер стремительно набирает популярность в новом звуковом кинематографе. Только любовь поможет героям обрести счастье.Жанр: Драма, мелодрама, комедияРежиссер: Мишель ХазанавичусАктеры: Жан Дюжарден, Беренис Бежо, Джон Гудмен, Джеймс Кромуэлл, Пенелопа Энн Миллер, Мисси Пайл, Угги, Бет Грант, Эд Лотер, Джоэль МюррейПеревод: Немое кино / Дублированный (в конце фильма)Язык субтитров: Русский (на интертитры)Продолжительность: 01:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D60A3BD2546ED9B4BEC2F1AD3F739639A37035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524734   (130340) от 18.01.2022
+
+DoMi Sakurazawa - Friendship (2022) [AAC|~366 Kbps] <Jazz, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friendship (DoMi Sakurazawa Remix) (6:16)
+02. Searching For You (DoMi Sakurazawa Remix) (4:34)
+03. Signs Of You (DoMi Sakurazawa Remix) (4:53)
+04. Please Wait (DoMi Sakurazawa Remix) (2:56)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2517B25271E011B4C93F9663FF70AD994F9085B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524976   (130339) от 18.01.2022
+
+Default Folder X 5.6.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.01.2022Разработчик: © 1996-2022 St. Clair SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41F8EDF777C0BE23C57E3743C2FDD31D97339DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524987   (130336) от 18.01.2022
+
+My PaintBrush Pro 2.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130336.jpg" />
+</div>
+
+
+###  Подробнее
+
+My PaintBrush для Mac — это мощное многослойное приложение для рисования. Используйте вдохновляющие инструменты и кисти для создания и сохранения плавных изображений на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © eTinySoft Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE705B4F07E4B957C2975772E1D51E5A749BA73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491071   (130335) от 03.05.2012
+
+Movavi Video Suite 10.3 SE [Русский / Английский]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Suite 10 - удобныя инструмент для для работы с видео файлами. Ну если говорить конкретнее то этот инструмент способен осуществлять такие операции как редактирование, конвертация видео, создание новых фильмов также просто вы сможете и сделать запись своего dvd диска.
+В програмный комплект входят все самые полезные инструменты для обработки dvd и видео.
+Интерфейс Movavi Video Suite 10 разделен на четыре вкладки, каждая из которых содержит полный набор инструментов для удобной работы с видео, музыкой, данными или фотографиями. Встроенный конвертер содержит предустановки для многих типов устройств, так что вы не ошибетесь, в какой формат перегонять видео для Xbox 360, а в какой, например, для телефонов Motorola. Видеоредактор умеет все, что должна уметь такая программа. А медиасплиттер еще проще, и будет полезен, если вы хотите разделить ролик на несколько частей.
+Прямо в Movavi Video Suite 10 вы можете записать видео с веб-камеры или звук с микрофона. Встроена неплохая утилита для записи и копирования (   Читать дальше...   )Название программы: Movavi Video SuiteЯзык интерфейса: Русский / Английский
 
 ## Скачать торент
 ```bash
@@ -25,28 +134,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683212   (128558) от 10.12.2023
+###  Публикация: 1524951   (130334) от 18.01.2022
 
-Lisa Hilton - Paradise Cove (2022) Ruby Slippers Productions [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
+Sound Grinder Pro 3.2.2 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sound Grinder Pro предоставляет мощный набор функций редактирования формы волны и пакетной обработки. Редактируйте аудиофайлы в новом редакторе формы волны с поддержкой многоканальных файлов, улучшенным обзором формы волны, звуковыми действиями, поддержкой петель, маркеров и регионов, автоматическим выбором регионов и т. д.
+Обрабатывайте файлы с помощью любимых плагинов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.01.2022Разработчик: © 2022 Monkey Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D753541CB92C749A1C6D2F0243F97BAF8E0E57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524910   (130333) от 18.01.2022
+
+VA - Best Restaurant Background Music 2022 (2022) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Mundi - Chuchaqui (5:47)
+02. Kieloval - Space Thoughts (5:53)
+03. The Crispy Galaxy - Cream Soda (6:09)
+04. Eulenspiegel - An Unspoken Thing (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0208A9DB688749C25D211F67E177215641E83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524963   (130331) от 18.01.2022
+
+Wondershare PDFelement Pro 8.5.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130331.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat и другими приложениями PDF.
+Примечание:
+Плагины не установлены.Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518A0801CD14FC54956F40F4B508E35AF8CF8966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525013   (130329) от 18.01.2022
+
+TunesKit Video Converter 2.1.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный видео конвертер, видеоредактор и DVD риппер, который может конвертировать любое видео в 250 форматов с 60-кратной скоростью без потери качества. Вы также можете использовать его для редактирования видео или копирования любых защищенных или коммерческих DVD-фильмов в любой формат на Mac.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2021Разработчик: © 2021 TunesKit StudioПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BDA215856C6C57D93C61AAD36D3732F115B909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524925   (130328) от 18.01.2022
+
+TunesKit AceMovi Video Editor 4.8.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130328.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86E3D60639391459F6C06A4ACF0B7C86A76F6DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524857   (130327) от 18.01.2022
+
+Anita O'Day - Complete Signature & London Recordings (1942 - 1950) 2CD, 2001, The Jazz Factory [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128558.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Birks' Works [4:14]
-02. Fast Time Blues [3:54]
-03. Blues Vagabond [4:58]
-04. Another Simple Sunday with You [6:29](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:49:18
+CD1:
+01. I'm Going Mad for a Pad [3:08]
+02. And Her Tears Flowed Like Wine [3:09]
+03. And Her Tears Flowed Like Wine [3:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:08:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18459E336D4E663D71969075CDCCACD2EA12DEB4
+magnet:?xt=urn:btih:4B457CFA3AFE9E5CD117A547A5A8915831ACB7C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,28 +299,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683123   (128557) от 10.12.2023
+###  Публикация: 490923   (130326) от 02.05.2012
 
-Rubicon - Aliapolis (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+[Wallpapers] Girls Desktop Wallpapers Pack 7
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128557.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Aliapolis
-02 District Of The Black Flame
-03 No Place To Run
-04 The Show(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:51
+Разрешение файлов: 1920x1080 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:320416B29E4D7026BFAAB0FAB8F315013561702B
+magnet:?xt=urn:btih:13511D874525193F13BFE91E00D3C1C8D21463A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,28 +325,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683127   (128556) от 10.12.2023
+###  Публикация: 490946   (130325) от 02.05.2012
 
-Crazer - ФАКты (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
+[Wallpapers] Girls Desktop Wallpapers Pack 9
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128556.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.	Мы сами
-02.	ФАКты
-03.	Волшебный сад
-04.	Светом или тьмой(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:03
+Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F0545AF17B3E8F7692C2EA37F0DD4BB3D416B42
+magnet:?xt=urn:btih:7BBA4BF230FCF8B1241D062C2DEFC484C7BC6F13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,25 +351,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683386   (128555) от 10.12.2023
+###  Публикация: 1525024   (130324) от 18.01.2022
 
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Неувядаемый Цвет» (2019) [PDF]
+VideoSolo Screen Recorder For Mac 2.0.50 [En]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128555.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акафист Пресвятой Богородице в честь иконы Ее «Неувядаемый Цвет».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+Независимо от того, какие виды экранных действий на вашем компьютере, например, онлайн-видео игры, скайп-чат, демонстрации, вы можете использовать VideoSolo Screen Record для записи их на видео.
+• Захват экрана на вашем компьютере в HD-видео
+• Запишите звук с компьютерной системы и микрофона одновременно
+• Сделайте снимок определенных областей экранаТип издания: macOS SoftwareРелиз состоялся: 29.12.2021Разработчик: © 2022 VideoSoloПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19B7DB2D2A3530B34A539054BB6997A603ACEF63
+magnet:?xt=urn:btih:84C1F18271E2226F6EC869ACEA8BC9D586C47853
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,28 +380,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683214   (128554) от 10.12.2023
+###  Публикация: 1524743   (130323) от 18.01.2022
 
-Terri Lyne Carrington - Money Jungle: Provocative In Blue (2013) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
+VA - Moonlight Lounge (Mediterranean Roots), Vol. 2 (2022) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128554.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Money Jungle [6:21]
-02. Fleurette Africain [5:57]
-03. Backward Country Boy Blues [6:01]
-04. Very Special [4:11](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 01:02:26
+01. Living Room - Yeah Uhhh Oui (3:00)
+02. Weber & Weber - Speaking Without Words (4:49)
+03. Svendaq - Blue Bossa (6:01)
+04. Chillson, Marc Hartman - A Lifetime (4:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBE0315A946F64F0ED0B666CBB33FE7B421EE687
+magnet:?xt=urn:btih:C334A7071945C4C8F38830289D2F2AC12C360B28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,28 +409,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683178   (128553) от 10.12.2023
+###  Публикация: 490701   (130322) от 02.05.2012
 
-Blacksilver - Blacksilver (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+[Wallpapers] Gilrs Wallpaper Collection (01.05.12)
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128553.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Life in a Bubble (4:36)
-02. Whiskey and Beer (4:08)
-03. Sweet Lady (5:37)
-04. Beautiful (6:31)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:06
+Обои для рабочего столаРазрешение файлов: 1280х1024 - 4000х2479
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E727318E8FC86BF085A9F86F65C39B8A46123381
+magnet:?xt=urn:btih:251D9B9282D320B93AF9DC325490FE99E7BD4026
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,25 +435,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683387   (128551) от 10.12.2023
+###  Публикация: 1525008   (130321) от 18.01.2022
 
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Иверская» (2022) [PDF]
+Клоун Коко курильщик / Koko Smokes (1928) TVRip [H.264]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128551.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акафист Пресвятой Богородице в честь иконы Ее «Иверская».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+Курение это зло, бесспорно. Надо бросать эту вредную привычку, одни неприятности от нее.Производство: США, Inkwell StudiosЖанр: Рисованная анимация, короткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:05:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29BA2CBF48AFA9C9B7EF31AD32DD023145BE6DC5
+magnet:?xt=urn:btih:9496138982305628F5D84BD9EEA024DE61E495F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,28 +461,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683210   (128550) от 10.12.2023
+###  Публикация: 490699   (130320) от 02.05.2012
 
-Jessica Williams - Arrival (1994) Jazz Focus [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+[Wallpapers] Sexy Girls Pack Wallpapers (01.05.12)
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128550.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Birks Works [6:27]
-02. I've Never Been in Love Before [5:35]
-03. Japanese Folk Song [6:23]
-04. Misterioso [7:12](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:09:02
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 2560x1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DBF64D4866689EAB0D02D63D55148A1A5A9ECD1
+magnet:?xt=urn:btih:B50485FB1FC2F3083BE0F9DEB9CDE2C0D50A3613
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,28 +487,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683357   (128547) от 10.12.2023
+###  Публикация: 1524745   (130319) от 18.01.2022
 
-Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
+VA - Oriental Lounge Affair (Exotic Arabian and Indian Moods) (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Lo-Fi>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128547.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ancient Ceremony — немецкая симфо блэк-метал-группа, образованная в 1991 году. После 2005 года от группы не поступало никаких новостей и, предположительно, на данный момент она распущена.1995 - Cemetary Visions
-1997 - Under Moonlight We Kiss
-1999 - Fallen Angel's Symphony
-2000 - Synagoga DiabolicaЖанр: Symphonic Black MetalПродолжительность: 03:33:50
+01. Krishna Singh - The Spirit Of Buddha (Heart Chakra Mix) (4:57)
+02. Ragi - Double Dream (Vocal Mix) (2:43)
+03. Sarod Sapla Glee - Two Spirits (India Radio Cut) (2:39)
+04. Green Taboo - Oriental Vibes (Original Mix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo-FiПродолжительность: 00:38:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7F6C776EE1B96B68C075E188564D25862C5161E
+magnet:?xt=urn:btih:199452276BFC100B31F7270A9B94683003A9078E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,25 +516,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683324   (128545) от 10.12.2023
+###  Публикация: 1524989   (130318) от 18.01.2022
 
-Своя игра (10.12.2023) WEBRip [H.264/1080p]
+PDF Reader Pro Edition 2.8.7 [Multi/Ru]
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128545.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:03
+PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2022Разработчик: © 2014-2022 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A46DF55142DAAB54EEAD87D144B2F1C122641C6
+magnet:?xt=urn:btih:6635084D0A53077823CC143DCB6A8F0A2BA3EB6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,28 +542,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683242   (128544) от 10.12.2023
+###  Публикация: 491039   (130317) от 02.05.2012
 
-Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
+[Wallpapers] Girls Desktop Wallpapers Pack 11
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128544.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chaos
-02. Dawn Of A Million Souls
-03. Journey On The Waves Of Time
-04. To The Quasar: а) The Taurus Pulsar b) Quasar 3C273(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:05:18
+Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDA58600C7A0A869A21F41F7C0F800DCD50D342F
+magnet:?xt=urn:btih:B693A7AF720CB65836512B9FE2D130AD9D3689C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,28 +568,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683182   (128543) от 10.12.2023
+###  Публикация: 1524908   (130315) от 18.01.2022
 
-Eli Paperboy Reed - Hits And Misses (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Jazz-Funk, Blue-Eyed Soul>
+VA - Pure Deluxe 4 (2014) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128543.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130315.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ace Of Spades (2:42)
-02. Do It Again (3:24)
-03. To Be Alone With You (3:29)
-04. Anytime You Want Me (4:21)(   Читать дальше...   )Жанр: Blues, Jazz-Funk, Blue-Eyed SoulПродолжительность: 00:34:49
+01. Oliver Schlolaut, Frank Doberitz - Can't You Hear Me (Enigmatic Vocal Chillout Mix) (5:02)
+02. Artenovum, Emma Laveigh - Cosmic Fade (5:01)
+03. Richard Bonnee - Ma Vie (Short Electronic Deep Mix) (3:25)
+04. Nightzoom - Silence (Ambient Mix) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5029B1548535C33BD1287ACBE0104B8663A8362D
+magnet:?xt=urn:btih:E98F00CBECAB742218D18C45131A77CE60119DE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,28 +597,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683200   (128542) от 10.12.2023
+###  Публикация: 491044   (130314) от 02.05.2012
 
-Минтранс (09.12.2023) WEBRip [H.264/720p]
+[Wallpapers] Girls Desktop Wallpapers Pack 12
 
->>Документалистика и Телепередачи
->>За рулем
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128542.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-🔸 Как цветовая гамма может повлиять на водительские права? Почему нельзя крепить номерной знак красными катафотами?
-🔸 Тест-драйв Москвич-3 2023: московская прописка.
-🔸 Opel Insignia Country Tourer 2014. Действительно ли эта машина плохо продается и почему?
-🔸 Экономия при замене масла. Есть ли смысл считать моточасы?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:02
+Разрешение файлов: 1920x1080 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BBFA4E07E8045577BC65DE81ED10A9632A4B291
+magnet:?xt=urn:btih:C9786C8273BA9F4E7823E0907734CA28EFE20160
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,28 +623,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683376   (128540) от 10.12.2023
+###  Публикация: 490866   (130313) от 02.05.2012
 
-Dog Fashion Disco - Anarchists of Good Taste (2001) Deluxe Edition, 2018, Razor To Wrist Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz-Rock, Hard Rock, Punk, Avantgarde, Funk Metal>
+Excelsis - Kurt Of Koppigen (1998) [MP3|320 кб/с]<Dark Power Metal>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128540.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Leper Friend [00:04:29]
-02. 9 to 5 at the Morgue [00:04:38]
-03. Mushroom Cult [00:04:27]
-04. Antiquity’s Small Rewards [00:03:48](   Читать дальше...   )Жанр: Jazz-Rock, Hard Rock, Punk, Avantgarde, Funk-MetalПродолжительность: 01:02:58
+01. Intro (1:36)
+02. Before the Storm (7:40)
+03. Kurt of Koppigen (4:52)
+04. Grimhilde (4:55)
+05. The Dragonslayer (7:40)
+06. The Lord of Halten (5:17)
+07. Ambush in Langenthal (5:42)
+08. Song of Agnes (4:08)
+09. Distant Sky or the Wild Hunt (6:50)
+10. The Lost Chapter (6:03)(   Читать дальше...   )1998Жанр: Dark Power MetalПродолжительность: 01:06:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:033FC158A46796557634920929F8373AE000DD15
+magnet:?xt=urn:btih:2FEF820F27EB770EE70E0CC9BC2C6B8A51D4E34F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,25 +658,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683169   (128539) от 10.12.2023
+###  Публикация: 1524904   (130312) от 18.01.2022
 
-Газета | Загадки истории №14 (538) (2023) [PDF]
+VA - Pure Deluxe 1 (2014) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Журналы
->>Другие журналы
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128539.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+01. Karen Gibson Roc, Johannes Huppertz - Fly Light (4:13)
+02. Marie Therese - Lost Somewhere (4:04)
+03. Ann Grace - Sentimenti (5:31)
+04. Mare et Monti - Sans Soucis (5:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B8B1F14909891898B2EF655678633ED5E9F04C7
+magnet:?xt=urn:btih:F96FFE9240AE24DE30D86FAFC7CED42A1FAB773C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,280 +687,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683312   (128538) от 10.12.2023
+###  Публикация: 1524864   (130310) от 18.01.2022
 
-Strike Master - Strike Master (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+VA - Sun & Chill, Vol. 1 (2012) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128538.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Follow Me
-02. No Future
-03. Boy In The Hole
-04. As I March(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:50
+01. Dave Neville - Sun Is Coming (Smooth Jazz Mix) (6:47)
+02. Soundset City - Sweep Along (Groovy Lounge Mix) (4:07)
+03. For Found Future - Drops of the Future (Smooth Ambient Mix) (6:35)
+04. Marie Therese - Call of Sirens (3:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1292567B9053B0DEFD8E18354D76C87EA4388AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683314   (128537) от 10.12.2023
-
-Strike Master - U.F.T.M (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maximum Amount Of Aggressions
-02. Thrashing The Blind School
-03. Ritual Killings
-04. Street Criminals(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DF298E8FADDD890FFD3A6D8A8B00ACA0BDEBA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683124   (128536) от 10.12.2023
-
-Sympuls-e - Immensity (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Pathfinder 4:25
-02 Alone with the Dark 5:21
-03 One Way Journey 4:24
-04 Infinity Around 5:00(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6918630F7CCA47C9A7CED015012F9F870CBE136A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683350   (128535) от 10.12.2023
-
-Osiris - Meanders A Soul (2021) [FLAC|Lossless|image + .cue] <Symphonic Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Seasons Of Flooding Chaos (Akhet nw Isfet)
-02 Of Hate, Passion And Eternity
-03 Forgotten Stones Of Time
-04 Faceless Men(   Читать дальше...   )Жанр: Symphonic Melodic Black MetalПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33DEFB1DF5577022BCF5EEE691D084AD9DEF89E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683379   (128534) от 10.12.2023
-
-Благовест | Акафист святителю Митрофану, епископу Воронежскому (2017) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святитель Митрофан, епископ Воронежский родился в 1623 году в пределах Владимирских от родителей духовного звания и в миру звался Михаилом. Родители дали ему воспитание в духе веры православной. Овдовев на 40 году своей жизни, он принял постриг в 1663 году в Успенской Злотниковской пустыни. С 1665 года – игумен Яхромского Космина монастыря, с 1675 года – игумен Троицкого (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658B458F8B18EFA645DA8F0E4C1BFAA4C2081136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683389   (128533) от 10.12.2023
-
-Благовест | Акафист святой преподобномученице великой княгине Елисавете (2022) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист святой преподобномученице великой княгине Елисавете.Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B53F00FDB8D3A7AEA1A831B4485642D7E52D4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683369   (128532) от 10.12.2023
-
-Polkadot Cadaver - Echoes Across The Hellscape (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Emotional Creatures
-02 – Where Do I Belong
-03 – Godless Noise
-04 – A Dog Without Water(   Читать дальше...   )Жанр: Avant-Garde MetalПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E033DA3276C7AF2A60AAECCFA7C232BA7D52EE16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683180   (128531) от 10.12.2023
-
-Dave Kelly - Sun On My Face (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Do It, Let's Fall In Love (4:03)
-02. Lovin' Arms (4:16)
-03. Sun On My Face (3:32)
-04. Georgia On My Mind (4:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD064D23255E34EC2AD9E56A5CA957B73CD47A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683140   (128530) от 10.12.2023
-
-Supuration - Incubation (2003) [APE|Lossless|image + .cue] <Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Confusion (November)
-02. The Old Mirror (December)
-03. Incubation (January)
-04. The Nameless Boys (February)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A1B4CC1A2D28DE3454A28C5BC6874D070E5380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683383   (128529) от 10.12.2023
-
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Млекопитательница» (2015) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист Пресвятой Богородице в честь иконы Ее «Млекопитательница».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE36D0FC17F11B7D5D98625345D4BE313DEFE36
+magnet:?xt=urn:btih:2E8BBAFF9740FA6E2DB6377E168914A23F6806A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

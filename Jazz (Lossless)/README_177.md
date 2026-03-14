@@ -1,3 +1,90 @@
+###  Публикация: 942087   (458227) от 29.09.2015
+
+Elvin Jones introduces Takehisa Tanaka - When I Was At Aso-Mountain (1993) /2005, Enja/[FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Beautiful Love [07:31]
+02.I Was Too Young [08:29]
+03.You Don't Know What Love Is [10:18]
+04.My Dream Come True, To E. J. [05:27](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DA749276B0592ED2A4253909DFC180CACDEDAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568810   (458043) от 10.08.2022
+
+Max Roach - The Complete Remastered Recordings On Black Saint & Soul Note, Vol. 2 (1979 - 1985) 6CD, 2016, Black Saint [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458043.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Pictures In A Frame:
+01. Reflections [3:37]
+02. Mwalimu [8:16]
+03. A Place of Truth [4:11](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Avant-Garde JazzПродолжительность: 04:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A244A867EC195D6B2C3043199D34774F32BDFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060126   (457742) от 06.10.2016
+
+Rob Agerbeek Trio - Miss Dee (1980) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Birks Works [03:47]
+ 02.Cup Bearers [04:08]
+ 03.Little 'Miss Dee' [05:06]
+ 04.Out Of This World [06:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8227A23E360214D95857BF8BB39444E366AD97C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059874   (457738) от 06.10.2016
 
 The Trio: John Surman, Stu Martin, Barre Phillips - Conflagration (1971) Remaster, 2002, Dawn Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
@@ -663,93 +750,6 @@ Tony Bennett & Diana Krall - Love Is Here To Stay (2018) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B047208F8DEDD80F0EB9C4F2A7FC5B8143F2473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408637   (454028) от 13.09.2020
-
-Stanley Cowell - Juneteenth (2014) 2015, Vision Fugitive [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Shall 2 [3:29]
-02. Juneteenth Suite: Introduction [1:20]
-03. Juneteenth Suite: Proclamation [2:04]
-04. Juneteenth Suite: Reality Dreams Echoes [2:42](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D734DD87BBFBE14B56333A9B430D83BA6330A3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408633   (454026) от 13.09.2020
-
-Stanley Cowell Trio - Bright Passion (1993) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brilliant Circles [8:17]
-02. Bright Passion [6:18]
-03. Dave's Chant #2 [6:10]
-04. Round About Midnight [7:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9927D8ADF0171D215A23B010DCB891EC0E378461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408643   (454025) от 13.09.2020
-
-Stanley Cowell - Are You Real? (2014) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Photon in a Paper World [11:34]
-02. You Taught My Heart to Sing [9:54]
-03. Mrs. Parker of KC [6:08]
-04. I Remember Diz [8:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846B8776EDD86E73466A26355804A497EC20866E
 ```
 
 https://mybot314.ru/tekegram_catalog/

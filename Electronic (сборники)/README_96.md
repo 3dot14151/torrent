@@ -1,3 +1,32 @@
+###  Публикация: 1031364   (652173) от 04.07.2016
+
+Timur Mingazov - MBS Mix #26 (Spring Song / Trance Mar`16) (2016) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652173.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Music Born In Silence Intro
+2.Husman, Kelly Sweet – Atmosphere
+3.Kyau & Albert – Bend Girl
+4.Jerome Isma-Ae, Alastor,London Thor – Smoke & Mirrors(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5446D5CAFFFE4E8A219CEACEE8A3620EA6D38627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031363   (652171) от 04.07.2016
 
 Timur Mingazov - MBS Mix #27 (Why Spring- - Deep House Apr `16) | (2016) [MP3|320 Kbps] <Deep House>
@@ -716,35 +745,6 @@ VA - Chill Acoustic Playlist 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Pia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43FE25623B3C565D5A372A94D644AD76F207A3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905620   (649485) от 06.06.2015
-
-VA - Lounge Cocktails (2013) [MP3|320 кб/с]<Lounge, Jazz>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hank Mobley, Djalma Ferreira, Luiz Antonio - Recado Bossa Nova (Remastered) (08:11)
-02. Cal Tjader - Soul Burst (Guajera) (04:41)
-03. Stan Getz, Charlie Byrd, Antonio Carlos Jobim, Newton Mendonсa - Desafinado (05:50)
-04. Roy Ayers Ubiquity, William Allen - This Side Of Sunshine (03:17)(   Читать дальше...   )Жанр: Lounge, JazzПродолжительность: 01:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4367CD86DA1A30CC08133332D32C7C909A1D5CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

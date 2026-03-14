@@ -1,3 +1,145 @@
+###  Публикация: 1755132   (40356) от 14.10.2024
+
+Jasmin Bayer - Poetic License (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Eye (7:11)
+02. Together (4:36)
+03. Poetic License (4:59)
+04. Rise Like A Phoenix (7:07)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C792AE9449F4A13C2E7C9D54291CCDDF7CB5063C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755165   (40350) от 14.10.2024
+
+Paul Heaton - The Mighty Several (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rianne Downey - National Treasure (3:18)
+02. Rianne Downey - Quicksand (3:01)
+03. After The Sugar Rush (4:27)
+04. Fish ‘N’ Chip Supper (3:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94923EF1D0786755AEDD73DAFC43E08182AF71F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755486   (40286) от 15.10.2024
+
+Лена Катина (ex t.A.T.u.) - Манекен (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Остров [00:02:53]
+02. Такси [00:02:54]
+03. Белла чао [00:02:38]
+04. Одна ночь [00:03:35](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61620B8F71AEDB1765444EC415C8DB92C035A65F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755378   (40284) от 15.10.2024
+
+Вячеслав Добрынин - Браво, Маэстро! I+II (1997) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Chanson, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Chanson, SchlagerПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0480D3E1AC726DEC83377099979E6C7997A12DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755473   (40266) от 15.10.2024
+
+Dame Area - Toda la Verdad Sobre Dame Area (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial, EBM, Punk, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Si No Es Hoy Cuándo Es [00:05:32]
+02. Vengo Dall'aldilà [00:03:13]
+03. Sempre Cambiare [00:02:55]
+04. Urlo Di Guerra [00:02:58](   Читать дальше...   )Жанр: Industrial, EBM, Punk, New WaveПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:894CFA773FA6188291A9CC6377949B4553EA1579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755429   (40265) от 15.10.2024
 
 Nocturna (Italy) - Studio Albums (2 releases) (2022-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
@@ -593,151 +735,6 @@ ABBA - The Singles (The First Fifty Years) (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5173D72CC1ACE898B00E5234DC19D19E6C02DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756983   (39411) от 24.10.2024
-
-The Holitter - The Start (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wings Loves Rebellon (4:59)
-02. Warrior Over Moonlight (5:00)
-03. Warrior of Starlight (3:52)
-04. Millenium Platinum Shield (5:07)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DF766550E665FB983516468C44D56293418AA93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757016   (39397) от 24.10.2024
-
-Queen - Queen 1 (Collector's Edition) (1973) Reissue, Remastered, 2024, Hollywood Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - Queen I (2024 Mix):
-01. Keep Yourself Alive (2024 Mix) (3:46)
-02. Doing All Right (2024 Mix) (4:11)
-03. Great King Rat (2024 Mix) (5:45)(   Читать дальше...   )Жанр: RockПродолжительность: 04:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243D0183F380DB4AE9BAB3162AF88242A1ABA67F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757001   (39367) от 24.10.2024
-
-Behemoth - XXX Years Ov Blasphemy (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chant of the Eastern Lands (Live) (6:31)
-02. Lasy Pomorza (Live) (6:46)
-03. Summoning (Of the Ancient Ones) (Live) (5:15)
-04. Blackvisions of the Almighty (Live) (4:19)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 01:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227F366EF0EE81C16C009CF7973B99B15835709F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756987   (39351) от 24.10.2024
-
-The Smoothies - Autumn Nights in Paris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn in Paris (4:00)
-02. An American in Paris (3:25)
-03. Autumn Lost in Paris (3:43)
-04. Autumn Wedding in Paris (4:33)(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9798FD96B6CE40A3EBA374EEDFDE447DB93FA0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757127   (39287) от 25.10.2024
-
-Ellen Andrea Wang - Closeness II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. August (5:12)
-02. Hummingsong (4:49)
-03. I Like London In The Rain (3:17)
-04. Lands Herlighet (5:02)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83DDDBAE426266AC5DB0140375331E3A3B0A066
 ```
 
 https://mybot314.ru/tekegram_catalog/

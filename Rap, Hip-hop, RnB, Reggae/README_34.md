@@ -1,3 +1,125 @@
+###  Публикация: 456036   (77606) от 21.02.2012
+
+Bob Marley - Greatest Hits (2007) [MP3|320 кб/с]<Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iron Lion Zion (3:15)
+02. Could You Be loved (4:00)
+03. Is This Love (3:53)
+04. I Shot The Sheriff (4:43)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 02:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D0584F582A444D4C1D52F9822EB09F7FF2EA0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454765   (77161) от 19.02.2012
+
+Cephei MC - Beat and Piano (Сборник красивой и чувственной музыки) (2012) [MP3|320 kbps]<Hip-Hop, Rnb, Dance>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Симфония Любви (04:53)
+02. in Dreams (05:21)
+03. Ветер перемен (04:22)
+04. Criminal romance (03:52)
+05. Moon (04:12)
+06. Позитив (04:36)
+07. В поисках открытий (03:42)
+08. Расстояние (02:36)
+09. Серенада сердца (07:10)
+10. Музыка Лунной ночи (05:13)(   Читать дальше...   )2012Жанр: Hip-Hop, R'n'b, DanceПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A06F3B5F2BC74B2BA3278D9A0B08FD334FFAB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450763   (75516) от 11.02.2012
+
+25/17 - Межсезонье (2012) EP [MP3|320 kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_75516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Межсезонье
+02. Жизнь продолжается (п.у. D-Man 55)
+03. Стена (п.у. MC 1.8, Карандаш)
+04. Восток (п.у. Саграда (Соль Земли))(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771700   (71822) от 07.01.2025
+
+Joell Ortiz & L'Orange - Signature (2023) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uncle Chris Car (1:43)
+02. In My Feelings (2:21)
+03. Housing Authority (feat. KXNG Crooked) (2:59)
+04. One Day (2:49)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom BapПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1059B9F4AB18CDF9DFDB40437FF318C8E04A60B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771699   (71820) от 07.01.2025
 
 Apathy - Connecticut Casual: Chapter 2 (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Boom Bap>
@@ -629,122 +751,6 @@ VA - Chillhop Essentials Summer (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F4FBD779E02CB20B5FCC99CDD8C3A2E1093BFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731478   (52565) от 21.06.2024
-
-Баста - Акустика (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Баста - Моя игра (Acoustic Version) (04:17)
-02. Баста - ЧК (Чистый кайф) (Acoustic Version) (03:46)
-03. Баста - Осень (Acoustic Version) (03:45)
-04. Баста & STRANIZA - Помни (Acoustic Version) (02:35)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55229CDE4FADFE9CE4005BD893975AD3BBF9C840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 287648   (52539) от 22.06.2024
-
-Cypress Hill - 8 Albums + 3 Compilation + 14 Singles & EP's (1991-2010) [FLAC|Lossless]<Hip-Hop / Hardcore Hip-Hop / Latin Rap / Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cypress Hill — американская хип-хоп и рэпкор группа из Лос-Анджелеса. Группа продала за 20 лет существования более 20 миллионов копий своих альбомов. В начале группа называлась DVX (аббревиатура от Devastating Vocal Xcellence), но в 1988 году, после ухода Mellow Man Ace, получила своё настоящее имя. В общем счёте, альбомы Cypress Hill получали восемь раз статус платинового (   Читать дальше...   )Список альбомов:
-1991 - Cypress Hill
-1993 - Black Sunday
-1995 - III - Temples Of Boom(   Читать дальше...   )Жанр: Hip-Hop / Hardcore Hip-Hop / Latin Rap / RockПродолжительность: 14:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8D3C68732ECFCDEE375B34B7A5EC4AABE73C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731155   (52259) от 24.06.2024
-
-Hugo Kant - 9 Albums (2011-2024) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo, Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Hugo Kant - 2011 - I Don't Want to Be an Emperor
-Hugo Kant - 2011 - Searching London
-Hugo Kant - 2013 - Another Point of Mix I(   Читать дальше...   )Жанр: Trip Hop, Downtempo, FusionПродолжительность: 9 CD, 08:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CB2BCE355D3B4EC283F39B67F139FB8CABF408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266837   (51784) от 28.06.2024
-
-Damian Marley - 4 Albums + Single + Compilation (1996-2010) [FLAC|Lossless]<Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэ́миан Ма́рли (англ. Damian Marley; полное имя Дэ́миан Ро́берт Не́ста Ма́рли, англ. Damian Robert Nesta Marley; 21 июля 1978, Кингстон, Ямайка) — ямайский музыкант, регги-исполнитель, обладатель 3-х наград «Грэмми».Список альбомов:
-1996 - Mr. Marley
-2001 - HalfWay Tree
-2005 - Welcome To Jamrock(   Читать дальше...   )Жанр: ReggaeПродолжительность: 04:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18E4846DAC6AE3246E312ED523EE52A65726772
 ```
 
 https://mybot314.ru/tekegram_catalog/

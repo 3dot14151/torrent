@@ -1,3 +1,177 @@
+###  Публикация: 1713897   (111778) от 07.04.2024
+
+Tal Farlow - The Guitar Artistry of Tal Farlow (1959) 2021, Universal [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Foggy Day [3:23]
+02. The Man in My Life [4:48]
+03. Sweet Lorraine [5:28]
+04. Wess Side [4:39](   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81134C621F7366629F259E2F5F099482CFC9A3BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714304   (111775) от 08.04.2024
+
+Melody Gardot - Sayonara Meu Amor (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Chanson de vieux amants
+02. Once I Was Loved
+03. Get Out Of Town (Acoustic Version)
+04. Se Voce Me Ama(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C537867C09735C3668F6DD3D8AC25C2C8BE0EC79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714073   (111761) от 08.04.2024
+
+Makoto Ozone - Spring Is Here (1987) Sony [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Love [6:26]
+02. Spring Is Here [5:30]
+03. Someday My Prince Will Come [6:12]
+04. On the Street Where You Live [7:42](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC05A7BB1668BDDCBA9FE988E844387005A8627C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714071   (111759) от 08.04.2024
+
+Dick Noel - A Time for Love (1978) 2007, SSJ [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Time for Love [4:24]
+02. The Girl Next Door [5:33]
+03. Emily [4:17]
+04. My One and Only Love [4:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6ABC329504B29B921CD9B65590EC47C3246F0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714379   (111730) от 09.04.2024
+
+Pat Martino - We'll Be Together Again (1976) 1990, Breaktime [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Road (Olee, Variations and Song, Open Road) [16:00]
+02. Lament [5:04]
+03. We'll Be Together Again [5:05]
+04. You Don't Know What Love Is [4:46](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3638C1C4B0D8A7EB18BF3B7F933471C4B813F1B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714377   (111728) от 09.04.2024
+
+Kenny Burrell - Moon And Sand (1979) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon and Sand [6:30]
+02. My Ship [6:37]
+03. For Once in My Life [4:23]
+04. U.M.M.G. [3:01](   Читать дальше...   )Жанр: Latin Jazz, Mainstream Jazz, Guitar JazzПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C552D6D5FDA144C253CB795453A49C35C3C65E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714382   (111719) от 09.04.2024
 
 Chris Connor - Sings Lullabys of Birdland (1956) 2007, Victor Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -570,180 +744,6 @@ VA - Italian Jazzy Mix for Restaurant (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA80BE7CFDC2E4C6685403004AC57466B758C65C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715408   (111523) от 12.04.2024
-
-James Carter - Layin' In The Cut (2000) Atlantic [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Layin' in the Cut [6:58]
-02. Motown Mash [7:23]
-03. Requiem for Hartford Ave. [5:58]
-04. Terminal B [6:44](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4865C89CDBD6CCB342BB65C9F1DA1D8031EF421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715406   (111520) от 12.04.2024
-
-Anita O'Day - 1950 - 1952 (2003) Classics [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tennessee Waltz [3:01]
-02. Yeah Boo [2:18]
-03. Something I Dreamed Last Night [3:11]
-04. If I Could Steal You From Somebody Else [2:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886F5F9580CF7217F863E6DE31E4092359413199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715405   (111519) от 12.04.2024
-
-Anita O'Day - 1945 - 1950 (2002) Classics [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them There Eyes [2:41]
-02. Memories of You [3:01]
-03. How Come? [2:44]
-04. I Can't Believe That You're in Love With Me [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D376DE00CD343CC5C5F9789E2443A4471B113DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715616   (111518) от 12.04.2024
-
-Harry Orlove - Mildly Popular (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down South In New Orleans (4:19)
-02. Deep Ellum Blues (6:38)
-03. Looking for Trouble (6:16)
-04. Hello Walls (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A652BF6445428CB45FBC1861917F3B4AF990E3DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715611   (111516) от 12.04.2024
-
-Big Chico - 30 Anos De Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just a Blew in to Your Town (3:08)
-02. Bad Feeling (6:22)
-03. Made My Gateaway (feat. Laretha Weathersby) (6:05)
-04. I Wonder Why (3:06)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B82A6D47FE72FBA5497117737117A7975F75F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715609   (111515) от 12.04.2024
-
-Jeff Gaeth - Pecking Order (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red-Handed (5:18)
-02. Aquamarine (4:38)
-03. Pecking Order (5:06)
-04. Almost Home Again (5:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD376787D1D06ABCDDF38D9C227CCCF029B389B
 ```
 
 https://mybot314.ru/tekegram_catalog/

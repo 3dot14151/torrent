@@ -1,3 +1,32 @@
+###  Публикация: 1617352   (1035332) от 06.03.2023
+
+Dinah Washington - The Great Dinah Washington (1993) Goldies [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad About the Boy [2:50]
+02. Baby (You've Got What It Takes) (with Brook Benton) [2:46]
+03. It Could Happen to You [2:21]
+04. A Rockin' Good Way (To Mess Around and Fall in Love) (with Brook Benton) [2:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1E111991EFD0079CB90BD9FBD42407F2A15550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617423   (1035320) от 06.03.2023
 
 Marchio Bossa - I asked for you (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova>
@@ -716,35 +745,6 @@ Dinah Washington - Sings The Blues (2006) Going For A Song [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80AEF7721DEF07D7BA2C0231DC14636E03F0A6A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445318   (1033799) от 05.02.2021
-
-Frank Butler - Wheelin' And Dealin' (1978) 1987, Break Time [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wheelin' and Dealin' [6:25]
-02. I Got It Bad/Tenderly [8:17]
-03. Four [7:34]
-04. Secret Love [5:43](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28994D1B1BB0A90FEF883DCB6BD276E83BFCAE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

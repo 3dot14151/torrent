@@ -1,3 +1,90 @@
+###  Публикация: 1146545   (614771) от 29.06.2017
+
+Apollo Saxophone Orchestra - Perpetual Motion (2012) Nimbus [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream, Classical>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perpetual Motion [05:20]
+02. Dear Bach [07:24]
+03. Celebration [04:39]
+04. Black [04:23](   Читать дальше...   )Жанр: Modern Creative, Third Stream, ClassicalПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9409C5910BB2C40F6DC1BEEF7AE024A4A249DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146529   (614770) от 29.06.2017
+
+Stanley Turrentine - Six Classic Albums (1960, 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614770.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Look Out & Blue Hour:
+01. Look Out [07:11]
+02. Journey into Melody [04:57]
+03. Return Engagement [04:49](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 03:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD3376DA9C76A3AC194710E721399A6A4FE09D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911931   (614500) от 24.06.2015
+
+Art Blakey And The Jazz Messengers - Roots & Herbs (1961) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ping Pong [07:08]
+02. Roots And Herbs [06:08]
+03. The Back Sliders [07:52]
+04. United [07:30](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC428EDAA9D2A805153BF9BFE1F9C622574B3D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230579   (614114) от 13.06.2018
 
 McCoy Tyner - Suddenly (1991) 2001, Past Perfect [APE|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -660,105 +747,6 @@ Bob Mamet Trio - Impromptu (2010) [FLAC|Lossless]<Post-Bop>
 08. Illinois Road
 09. Keziah
 10. Impromptu (Reprise)Жанр: Post-BopПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296475   (611756) от 17.04.2019
-
-Dakh Daughters - Air (2019) [FLAC|Lossless|WEB-DL|tracks] <Cabaret, Jazz, Folk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inshe Misto (05:53)
- 02. Yaponske Kino (05:54)
- 03. O, Panno Inno! (04:48)
- 04. Pisnia Pro Te, Yak Vona Vykhodyt Na Krutuiu Horu (13:46)(   Читать дальше...   )Жанр: Cabaret, Jazz, FolkПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DAAA3462E6F83C46F4FC6374063A2D0D73F16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524666   (611582) от 19.07.2012
-
-Bob Moses - When Elephants Dream of Music (1993) [FLAC|Lossless]<Post-Bop, Progressive Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trevor
-02. Picolo And Lulu
-03. Everybody Knows When You're Up And In
-04. Lava Flow
-05. Happy To Be Here Today
-06. For Miles
-07. Embraceable Jew
-08. Bugs Bunny
-09. Black Orchid
-10. Disappearing Blues(   Читать дальше...   )Жанр: Post-Bop, Progressive JazzПродолжительность: 01:06:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524677   (611457) от 19.07.2012
-
-Bobby Caldwell - Perfect Island Nights (2005) [FLAC|Lossless]<Smooth Jazz, R&B, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby Caldwell - In The Afterlife
-02. Crazy For You
-03. Donna
-04. Where Is The Love w/Denise Williams
-05. Perfect Island Nights
-06. Our Day Will come
-07. I Need Your Love
-08. Can't Get Over You
-09. Call Me Up
-10. Extra Mile(   Читать дальше...   )Жанр: Smooth Jazz, R&B, VocalПродолжительность: 00:46:56
 
 ## Скачать торент
 ```bash

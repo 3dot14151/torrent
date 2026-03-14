@@ -1,3 +1,117 @@
+###  Публикация: 1122194   (798821) от 05.04.2017
+
+Shakra - Life Tales: The Ballads (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock,  Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Be There
+02. Anything
+03. Love Will Find A Way
+04. Why(   Читать дальше...   )Жанр: Hard Rock,  Heavy MetalПродолжительность: 01:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E1EA84A9F6E8B474A94D540CD73BBAA661C88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273840   (798770) от 04.01.2019
+
+Azrael - Moonchild (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798770.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Birth Of The Universe (Instrumental) [01:40]
+2. Moonchild [04:50]
+3. Surveillance Society [04:39]
+4. Fly Till The End Of Time [04:48](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E41790FFB9BBEDABBB290F4B3556B6E8FD6FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273794   (798769) от 04.01.2019
+
+Lizard - Half-Live (2018) [FLAC|Lossless|tracks + .cue] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half-Live I (19:49)
+02. Half-Live II (24:03)Жанр: Prog RockПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321FEA39A00BEA155013DC14E70163EA88FEFB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273785   (798767) от 04.01.2019
+
+Boston ‎– Walk On (1994) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need Your Love (5:33)
+02. Surrender To Me (5:33)
+03. Livin' For You (4:57)
+Walk On Medley:(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A7B11CEEE2555BE6A75954039CCD3B70505986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507742   (798286) от 05.11.2021
 
 Eclipse - Wired (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
@@ -630,122 +744,6 @@ George Lynch - Shadow Train (2015) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6243EBEC77C629A7C18EA608D456642E701EE81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051993   (793219) от 30.05.2020
-
-Geordie - 8 Albums, 1 Box Set (1973 -2016) 19 CD [FLAC|Lossless|image + .cue|tracks+.cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Geordie - одна из немногих выдающихся рок-групп 70-х годов, которая за сравнительно короткий период своей творческой деятельности создала немало шедевров мировой рок-музыки, достойных внимания. Geordie вспоминают главным образом благодаря тому, что в её рядах начинал своё восхождение к славе нынешний вокалист AC/DC Brian Johnson, хотя банда изрядно пошумела (   Читать дальше...   )Список альбомов:
-1973 - Hope You Like It
-1974 - Don't Be Fooled By The Name
-1976- Save The WorldЖанр: Hard RockПродолжительность: 14:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64B01A3A0C484CAC6D3DAC9339162F3C00A860D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510003   (792941) от 14.11.2021
-
-Amore Ad Lunam - White Wings Raven Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard, Gothic Metal, Male Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Screams (feat. Vivanativa) (03:38)
-02. Stay (feat. Vlad in Tears) (04:28)
-03. Gravity (feat. Nino Planeta) (05:21)
-04. Without You (feat. A Million Souls) (03:42)(   Читать дальше...   )Жанр: Melodic Hard, Gothic Metal, Male Female VocalПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2F1CDF532450FB5B975AC18DA3EFC6A5B26236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509772   (792935) от 14.11.2021
-
-Rondinelli - Our Cross-Our Sins (2002) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naughty Dragon 05:38
-02. Dawn 05:39
-03. It's A Lie 05:14
-04. The Meaning Of Evil 06:24(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1C5613501C4CD55C4E445D883B0CBD848D371C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201359   (792872) от 24.01.2018
-
-Worry Blast - .44 (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outta Nowhere (03:21)
-02. Dirty Mind (02:42)
-03. .44 (03:12)
-04. Hot'n'ready (03:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291E01D82F5C6312E14943EBB4B27421C9DFEBEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

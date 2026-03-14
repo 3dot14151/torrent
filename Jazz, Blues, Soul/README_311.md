@@ -1,3 +1,177 @@
+###  Публикация: 1413281   (410101) от 03.10.2020
+
+Scott Hamilton - Organic Duke (1994) 2000,  Concord Jazz [APE|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump for Joy [4:59]
+02. Blue Hodge [7:54]
+03. Moon Mist [3:59]
+04. Paris Blues [6:01](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D79C7E9CAB3C2BC8FFC25AB7151FBB04BDCAF1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066873   (410076) от 27.10.2016
+
+The DGB - More Is More (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Won't Let Love
+02. Leave This Town
+03. Been There Twice
+04. Hold On(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0318575D7173F7F2FAAD4DBADBC52F809874C012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413315   (409995) от 03.10.2020
+
+Ben Granfelt - True Colours (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victorious (04:52)
+ 02. No Turning Back (05:28)
+ 03. Hey Stranger (04:33)
+ 04. Arms of an Angel (05:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C296F5BCDD2062255D5FF3E5ED92BB699BE91415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413323   (409864) от 03.10.2020
+
+Magnolia Bayou - Strange Place (2020) [MP3|320 Kbps] <Southern Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dig Deep (04:12)
+ 02. Sleepin' in the Dog House (04:06)
+ 03. Sugarspell (04:01)
+ 04. Preachin' Blues (05:08)(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B03594C8DDA885176885569E48577BD5F9B293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413319   (409859) от 03.10.2020
+
+William Shatner - The Blues (2020) [MP3|320 Kbps] <Blues Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Home Chicago (02:55)
+ 02. I Can't Quit You Baby (04:39)
+ 03. Sunshine of Your Love (04:21)
+ 04. The Thrill Is Gone (04:54)(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2215B3968DEE12BC72F579E2B54594FEADDE192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948596   (409811) от 21.10.2015
+
+Elvin Jones - The Ultimate (1968) /2014, Universal/[FLAC|tracks+.cue]<Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In The Truth [05:07]
+ 02.What Is This? [07:10]
+ 03.Ascendant [05:16]
+ 04.Yesterdays [05:41](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B61E8341E41AE85E139C0372846667C8847C944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948789   (409800) от 21.10.2015
 
 The Billy Taylor Trio - A Touch Of Taylor (1955) /2013, Universal/[FLAC|tracks+.cue]<Bop, Piano Jazz>
@@ -571,180 +745,6 @@ Enrico Pieranunzi - Originals (2012) Jazzit Records [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C824635DA8CF33862E18EB8D75151E24FE12081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573690   (408734) от 02.09.2022
-
-Tommy McLain - I Ran Down Every Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Tomorrows Now (3:08)
-02. I Ran Down Every Dream (feat. Elvis Costello) (3:23)
-03. I Hope (3:47)
-04. Livin' on the Losin' End (2:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A3B61F57F91BE6DB88D4446A653FA41D638E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325885   (408711) от 17.09.2019
-
-Jackie McLean - Four Classic Albums (1957 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408711.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Filide [7:28]
-02. Millie's Pad [8:42]
-03. Two Sons [7:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D8C49BFE0A16B8B183FE81A1707DC9D0C9AF04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325919   (408699) от 17.09.2019
-
-Nicki Parrott - Papa Loves Mambo (2019) [FLAC|Lossless|image + .cue] <Vocal Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papa Loves Mambo
-02. Somos Novios
-03. Perfidia
-04. Kiss Of Fire(   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33CF8418CD81CC4F751DEA04FF1DE85E52188DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573676   (408656) от 02.09.2022
-
-Marcus King - Young Blood (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Too Late (2:56)
-02. Lie Lie Lie (3:36)
-03. Rescue Me (4:46)
-04. Pain (4:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3071BD633397EDCC0F783A886757725F0383D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184134   (408638) от 24.09.2017
-
-VA - Сны Аризоны (2001) [MP3|320 kbps]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408638.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Peter Green - Bandit (2:55)
-2. Steve Ray Vaughan - Little Wing (6:49)
-3. Peter Green - Tribal Dance (4:34)
-4. Roy Buchanan - Sunset Over Broadway (4:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C27C9B6D3016389E139EC8798A5A19D37784A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413494   (408544) от 04.10.2020
-
-Mal Waldron - Soul Eyes (1997) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judy [3:41]
-02. Soul Eyes [7:22]
-03. Fire Waltz [5:02]
-04. Spaces [6:57](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Vocal JazzПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F9E52DEE7D0C11562ABBD3566D2A3E6A7705DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

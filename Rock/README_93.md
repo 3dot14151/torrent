@@ -1,3 +1,61 @@
+###  Публикация: 1686743   (125991) от 25.12.2023
+
+Rainbow - Transmission Impossible (2022) [MP3|320 Kbps] <AOR, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Eyes Of The World [00:07:27]
+02 - Love's No Friend [00:10:15]
+03 - Since You Been Gone [00:03:58]
+04 - Man On The Silver Mountain [00:04:05](   Читать дальше...   )Жанр: AOR, Hard RockПродолжительность: 03:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED34F601EE8602810C940015C6C7E7EAF66A15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686748   (125593) от 26.12.2023
+
+Johnny Hallyday - Symphonique (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabrielle [00:02:54]
+02. J'ai oublié de vivre [00:04:44]
+03. Derrière l'amour [00:04:41]
+04. Que je t'aime [00:03:22](   Читать дальше...   )Жанр: Pop-Rock, Rock'n'RollПродолжительность: 2 CD, 04:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1557FDBE0B00627DE73BCA777BCBB3BB8494D395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688370   (125105) от 30.12.2023
 
 AC/DC - Under The Covers (2023) [MP3|320 Kbps] <Rock, Hard Rock>
@@ -687,64 +745,6 @@ Mike Oldfield - Opus Revisited (Live 1973) (2024) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3771BFF0363375C3D58F90070C41A52137E4E809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704270   (114495) от 03.03.2024
-
-Nigel Olsson - Nigel Olsson's Drum Orchestra And Chorus (1971) LP [MP3|320 Kbps] <Blues Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский музыкант (родился 10 февраля 1949 года в Уолласи, графство Мерсисайд, Англия). Барабанщик и певец, участник Plastic Penny, позже играл на барабанах (в основном) с Элтоном Джоном, а также с Uriah Heep в 1970 году.01. Sunshine Looks Like Rain (2:33)
-02. I'm Coming Home (3:55)
-03. Nature's Way (3:12)
-04. Hummingbird (6:21)(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC85FB82367DDB1F3AF8739C4BCC206766B4BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712761   (112026) от 04.04.2024
-
-408 - Hot Mess (2024) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Remember Her Like That [00:03:07]
-02 - Girl Of My Dreams [00:02:38]
-03 - Break Up With Your Girlfriend [00:03:26]
-04 - Hot Mess [00:02:42](   Читать дальше...   )Жанр: Alternative, Pop-PunkПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630D9CCA3A7F56DA817E108156432D23D98CDFE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

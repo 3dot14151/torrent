@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1858146   (1060164) от 08.03.2026
+
+Franck Pourcel And His Orchestra - Pourcel Himself (2024) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rotor Motor
+02. Sunny Cuckoo
+03. Summer Tide
+04. Applewine(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E00BD759B21172EE905738370DBC09806573F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858148   (1060163) от 09.03.2026
+
+Mladen Franko & Norman Candler Magic Strings - Just Beautiful (2024) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Find a Way
+02. Steps to Heaven
+03. Seawind
+04. Love Image(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A04EDDDB78E458C52CE4C0B1753BEB212222F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857829   (1060040) от 07.03.2026
 
 Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
@@ -21,6 +79,64 @@ Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50EB9509EC8463CD445092F57627D5AA6353CACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858083   (1059941) от 08.03.2026
+
+Paul Mauriat - Retalhos De Cetim (1974) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1059941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O Show Já Terminou
+02. Teimosa
+03. Folhas Secas
+04. Joanna Francesa(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A54F0DEE4980144FF0A75C9AF2410BA806F390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858088   (1059939) от 08.03.2026
+
+Paul Mauriat - Sommer Souvenirs (1975) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1059939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Tell Her
+02. Es stieg ein Engel vom Olymp
+03. Deine Spuren im Sand
+04. I Got A Name (From ″Last American Hero″)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB442D8479352B5C6DC6165A8F82D58AC6301D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,119 +744,6 @@ Ted Hammond Orchestra - Hammond Evergreens (2022) Vol. 1, 2 [MP3|320 Kbps] <Hamm
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFB6EC5F84FD07AC93F30E5578607A324BB12561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604704   (1044946) от 17.01.2023
-
-Канцлер Ги - Страшная сказка (2010) [FLAC|Lossless|image + .cue] <Folk-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Ezzelino
-03. Письмо тирана Римини Папе Римскому
-04. Due Angeli(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1066E2642F367CE76DD5FECF51DBD55DBAF625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606205   (1044437) от 22.01.2023
-
-Deep Forest - Deep Forest / Comparsa (1998) Reissue, 2001, Epic Records Group [OGG Vorbis|450 Kbps] <Electronic, Folk, World & Country>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noonday Sun
-02. Green And Blue
-03. Madazulu
-04. 1716(   Читать дальше...   )Жанр: Electronic, Folk, World & CountryПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1685FC19B7389D3ED0A634769EA57D66F51A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605665   (1044418) от 22.01.2023
-
-Тролль гнет ель - Дискография (11 релизов) (2005-2022) [MP3|320 Kbps] <Folk Rock, Metal, Beer Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk Rock, Metal, Beer FolkПродолжительность: 06:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2798118184ED172AC0DDB5126716B6967E1EE947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606056   (1044417) от 22.01.2023
-
-Le Grand Orchestre De Paul Mauriat - Penelope (1971) Reissue, Remastered, 1997, Philips [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Penelope
-02. El Condor Pasa
-03. Anonimo Veneziano 'Anonimo Veneziano
-04. El Mourir De Plaisir(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC39788461998D311D464F4E3F6097F7F13CF29
 ```
 
 https://mybot314.ru/tekegram_catalog/

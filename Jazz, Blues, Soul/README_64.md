@@ -1,3 +1,61 @@
+###  Публикация: 1364667   (935037) от 04.03.2020
+
+Tom Harrell - The Art Of Rhythm (1998) RCA Victor [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petals Danse [7:42]
+02. Madrid [7:44]
+03. Oasis [6:19]
+04. Caribe [5:48](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBF92FA23FE8687E3A45C51FE34C788F5954090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364650   (935036) от 04.03.2020
+
+Lena Horne - Stormy Weather (1993) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling in Love with You (2:00)
+02. From This Moment On (1:51)
+03. Night and Day (2:37)
+04. Old Devil Moon (2:35)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1B25C72E3FB9CF3A492DC6236DA6DD20996169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364664   (934653) от 04.03.2020
 
 Dexter Gordon - Clubhouse 1965 (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -684,64 +742,6 @@ George Cables Trio - Cables' Fables (1991) 1995, SteepleChase[APE|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DE2D1D1942357D48051029B3326CEFE13D14068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093732   (932542) от 16.01.2017
-
-Glenn Kaiser Band - Carolina Moon (2001) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Torch  (03:52) 
-02|  Out Cold  (05:11) 
-03|  Mercy  (05:41) 
-04|  Carolina Moon  (04:41) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F78BA155A7E07C34D58EA824D537E0BB51740F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986291   (932536) от 13.02.2016
-
-Layla Zoe - Breaking Free (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backstage Queen (06:13)
-02. Why Do We Hurt The Ones We Love (05:22)
-03. Wild One (05:01)
-04. Highway Of Tears (11:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4108F1969C5B663F17A2DBB02971BA784AD5EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

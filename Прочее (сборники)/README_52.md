@@ -1,3 +1,32 @@
+###  Публикация: 1212120   (776262) от 10.03.2018
+
+VA - Dance Hot Mixes Popular Radio Mixes (2018) [MP3|320 Kbps] <Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776262.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ya Rick Ft. Addie Nicole - Follow My Destiny (Original Mix) 03:17
+002. Vinicius Nape, Jonathas Noronha - Explore (Original Mix) 06:12
+003. Tyron Hapi, Mimoza - Anyway (Majestic Remix) 02:34
+004. Thomas Mengel Ft. Isotobia Forrest - Invincible (Mike Shiver Extended Mix) 04:44(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 07:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DB6F4EE58638D329F62F42CBD05011D5820049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014761   (776181) от 08.05.2016
 
 VA - Dance Hits Vol.337 (2016) [MP3|320 кб/с] <Club, Dance, Hand Up>
@@ -707,35 +736,6 @@ VA - не Громкие новинки недели 72 (2020) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0596E80240FBA9387FE75A86857686C3DCD9BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016427   (770396) от 14.05.2016
-
-VA - Auto-hits. Hot mix (2016) [MP3|320 кб/с] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason D3an - Bounce Around The World (Radio Edit)
-02. Steve Aoki Feat. Sherry St. Germain - Heaven On Earth (Ookay Remix)
-03. Ellie Goulding - Army (Mike Mago Remix)
-04. Laserion - Welcome To Shangri-La (Juan Belmonte Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E3B67EA745C8B4BD763206A302D7916CF97B2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

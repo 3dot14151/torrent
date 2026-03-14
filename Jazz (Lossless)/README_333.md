@@ -1,3 +1,90 @@
+###  Публикация: 1746235   (104929) от 30.08.2024
+
+Stan Getz - Scandinavian Days (1959) 1991, Fresh Sound [FLAC|Lossless|image + .cue] <Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stan Getz Introduces The Members Of His Quartet [1:02]
+02. Laverne Walk [4:17]
+03. I Remember Clifford [6:04]
+04. Stuffy [6:13](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BE8833D36B11443CF4916B1ED8D43672890116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746437   (104892) от 31.08.2024
+
+Conte Candoli & Lee Morgan - Double or Nothin' (1957) 1992, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reggie Of Chester [4:38]
+02. Stablemates [5:12]
+03. Celedia [4:44]
+04. Moto [5:45](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2910E49BC5D50C52AD34EFE6F82304B45D751AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747043   (104802) от 03.09.2024
+
+Loose Ends - Look How Long (1990) [FLAC|Lossless|tracks + .cue] <Contemporary R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look How Long
+02. Don't You Ever (Try To Change Me)
+03. Time Is Ticking
+04. Love's Got Me(   Читать дальше...   )Жанр: Contemporary R&BПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C2DD5A779E9DFCB4C4C642FA6FEE32D831B20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746877   (104800) от 03.09.2024
 
 Stan Getz - In Stockholm (1955) 2008, Verve [FLAC|Lossless|tracks + .cue] <Bop, Cool>
@@ -658,93 +745,6 @@ VA - Soulful Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E524DEFEF3F8BE9CE56821E216887A56814D1CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749430   (104355) от 14.09.2024
-
-V.A. - The Best Smooth Jazz Ever (2002) 2CD [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104355.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. David Benoit - Cast Your Fate To The Wind
-02. The Rippingtons - She Likes To Watch
-03. Special EFX - Ballerina(   Читать дальше...   )Жанр: Smooth Jazz |Продолжительность: 01:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE07FB81D2733DFB011295BC606B56D78A034C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749229   (104345) от 14.09.2024
-
-Jim Hall Trio featuring Tom Harrell - These Rooms (1988) Denon [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. With a Song in My Heart [8:26]
-02. Cross Court [5:16]
-03. Something Tells Me [5:14]
-04. Bimini [9:21](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 01:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB6B8729A44904D928204802AB9FDF145F7FADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749610   (104280) от 15.09.2024
-
-Joey DeFrancesco, Robi Botos, Vito Rezza, Phil Dwyer - One Take, Vol. 4 (2010) Alma [APE|Lossless|image + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is No Greater Love [11:13]
-02. Tenderly [7:07]
-03. Village Green [8:47]
-04. Not That [8:14](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF89DA0F84D5DCEEE27004BD5DD815B0D7618CD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

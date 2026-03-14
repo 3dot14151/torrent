@@ -1,3 +1,90 @@
+###  Публикация: 1640747   (233958) от 19.06.2023
+
+Earl Hines - Fine & Dandy (1949) 1992, Vogue [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snappy Rhythm [2:57]
+02. I Never Dreamt [3:03]
+03. Chicago [3:12]
+04. Night Life In Pompeii [3:09](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D942B7FFDB7C05A7B8E28229A9E42349EFD11F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643298   (233922) от 01.07.2023
+
+Dexter Gordon Quartet - Live in Chateauvallon (1978) 2CD, 2020, Elemental Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than You Know [24:53]
+02. Gingerbread Boy [37:42]
+03. Long Tall Dexter (closing announcements) [4:58]
+(   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607F0D94D98825529A98459F1E92F94D4F73FFD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623306   (233902) от 01.04.2023
+
+Rachel Therrien - Mi Hogar (2023) Outside in Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capricho Arabe [9:20]
+02. Moment's Notice [5:29]
+03. The Wizard [5:39]
+04. Mojo [6:05](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Latin JazzПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17047A5A1CFD2F49DE7958260CDA0132C4362C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640748   (233900) от 19.06.2023
 
 Carrol McLaughlin - Jazz Harp (1985) 1997, Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream jazz>
@@ -658,93 +745,6 @@ Charlie Byrd - Four Classic Albums (1957 - 1960) 2CD, 2014, Avid Jazz [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B18D12F885F1061128195CBA8F9A723A3CF373A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642896   (233118) от 29.06.2023
-
-Bill McGee - The Tree of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian De Mesones - Flight Time (4:31)
-02. Brandon Lane - Life Got In The Way (5:01)
-03. Ken Friend - Summers In Surry (3:43)
-04. Reco Winn - On And On (4:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311F99A669595CDB4EA539AED0FD81C88007C661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642901   (233105) от 29.06.2023
-
-Rob Zinn - Anything Can Happen (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take That! (4:16)
-02. All In (3:47)
-03. Amante (5:41)
-04. Anything Can Happen (4:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1CB44DA229D682E956164E0ACE99F06577F6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539841   (233093) от 27.03.2022
-
-Illinois Jacquet & His Big Band - Jacquet's Got It! (1987) Atlantic [WavPack|Lossless|image + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tickletoe [7:13]
-02. Smooth Sailin' [6:52]
-03. More Than You Know [5:31]
-04. Stompin' at the Savoy [4:17](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E861C594046CD9B0AC3E64D493F2273269515C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

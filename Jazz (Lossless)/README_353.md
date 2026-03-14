@@ -1,3 +1,90 @@
+###  Публикация: 1794848   (67212) от 01.05.2025
+
+Saori Yano - Groovin' High (2006) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak Low [9:21]
+02. Manteca [6:56]
+03. My Ideal [6:11]
+04. Greenism [4:45](   Читать дальше...   )Жанр: Post-Bop, BopПродолжительность: 01:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A0EB943C9616A77DFD0056BBB99EC6CEA8F4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794846   (67211) от 01.05.2025
+
+Saori Yano - Sakura Stamp (2005) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Lee [1:54]
+02. Sweet Love of Mine [6:26]
+03. Sakura Stamp [6:39]
+04. Shawnuff [4:34](   Читать дальше...   )Жанр: Post-Bop, BopПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40355A09BDDEC10F047144590B4DD79B7388F394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794851   (67198) от 01.05.2025
+
+Saori Yano - Little Tiny (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Baby Shot Me Down [8:18]
+02. Split Kick [6:44]
+03. (They Long to Be) Close to You [7:27]
+04. She Rote [5:30](   Читать дальше...   )Жанр: Post-Bop, Soul JazzПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D9241D08C370ED0CA62876194D2506006FDDD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795082   (67190) от 02.05.2025
 
 Mal Waldron - Four Classic Albums (1956 - 1959) 2CD, 2024, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -658,93 +745,6 @@ Boney James - Slow Burn (2024) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D357FC3602CD11E47B72C7219BA4A7CFEAD789B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797252   (66831) от 15.05.2025
-
-Lewis Nash - Stompin' At The Savoy (2005) M&I Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stompin' at the Savoy [5:22]
-02. Delilah [7:07]
-03. Get Happy [4:27]
-04. I Thought About You [4:50](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B69BD407C8AF69693B73BE9B006ECD866306A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797447   (66801) от 16.05.2025
-
-Brother Jack McDuff - Gin And Orange (1969) 2008, Dusty [FLAC|Lossless|tracks + .cue] <Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mac-Duffin [3:04]
-02. The Electric Surfboard [5:02]
-03. On the Case [3:00]
-04. Channel One [5:57](   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03F50DD5D7F0C83718F580A1015679B108CD26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797851   (66708) от 18.05.2025
-
-Ahmed Abdul-Malik - Four Classic Albums (1958 - 1962) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <World Fusion, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nights on Saturn [7:32]
-02. The Hustlers [5:32]
-03. Oud Blues [4:08]
-04. La Ibkey [5:51](   Читать дальше...   )Жанр: World Fusion, Hard BopПродолжительность: 02:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBC221C7B3092A13229FB7E36E5FC5E8DF912FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

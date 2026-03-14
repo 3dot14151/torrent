@@ -1,3 +1,32 @@
+###  Публикация: 1042373   (578517) от 13.08.2016
+
+VA - Lounge Music Players (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Tabu – Song for Malala
+ 02. Katia B – Parece Mentira
+ 03. GYSNOIZE – Million Miles Away
+ 04. EDO – Erevan(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F1EA50D276CF0D4136BD71F11FE84A8DC2E0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042534   (578514) от 13.08.2016
 
 VA - Motel Atlantique: Gold Selection (2016) [MP3|320 Kbps] <Deep House>
@@ -722,35 +751,6 @@ VA - Beatport Top 100 Trance June (2017) [MP3|320 Kbps] <Trance, Progressive Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15D1000FAF656CCA68EDB7D447F8C480F2A43985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233891   (575627) от 02.07.2018
-
-VA - Club Dance Ambience Vol.154 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575627.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alakin Kirill - Save to memory (Extended mix)
-002. Alakin Kirill - Tarzan (Original mix)
-003. All Saints - Love Lasts Forever (Pink Panda Extended Vocal Mix)
-004. Andrey Pitkin & Alexander Gecko - Flying Emotion  (Extended Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8379B70F44BCF3434E228FF66BD2638E51C0F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

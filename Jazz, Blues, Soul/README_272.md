@@ -1,3 +1,180 @@
+###  Публикация: 1317698   (499632) от 02.08.2019
+
+Oliver Jones Trio - Live at Biddles (1983) Justin Time [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mean to Me [5:47]
+02. It Might as Well Be Spring [7:34]
+03. Tenderly [5:55]
+04. Hymn to Freedom [4:40](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718392AF918B2EB156340EFF35CB020971D8559F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317679   (499631) от 02.08.2019
+
+Count Basie - Four Classic Albums Plus (1957 - 1962) 2CD, 2015, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499631.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pennies From Heaven [3:31]
+02. Please Be Kind [2:43]
+03. (Love Is) The Tender Trap [2:35](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 02:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD808768F2A4F84FC8CC42B57A43D36E9AF6D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317700   (499630) от 02.08.2019
+
+Oliver Jones Trio - Just Friends (1989) Justin Time [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues for Helene [5:17]
+02. Just Friends [4:06]
+03. In My Solitude [4:49]
+04. Last Night in Rio [5:54](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B95C0B88032F8D9C69E1942D1BC4342304C72BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934788   (499558) от 08.09.2015
+
+The Righteous Brothers - Les Genies du Rock - Rock And Roll Heaven (1995) [MP3|320 кб/с]<Pop, Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Give It To The People (3:23)
+02.  Dr Rock'N'Roll (3:37)
+03.  High Blood Pressure (3:26)
+04.  Hey Girl (3:33)(   Читать дальше...   )Жанр: Pop, Blues, SoulПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640B3C5567B50F745A1F40496EEDE7A5F922F313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542040   (499276) от 02.09.2012
+
+Leela James - Loving You More... In The Spirit Of Etta James (2012) [FLAC|Lossless]<Rhythm & Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Will Never Die [01:31]
+02. Something's Got A Hold On Me [03:20]
+03. It Hurts Me So Much [03:21]
+04. I'm Loving You More Every Day  [03:46]
+05. I'd Rather Go Blind [04:11]
+06. I Want You To Ta-Ta You Baby [03:48]
+07. Damn Your Eyes [03:52]
+08. Nobody Loves You Like Me [03:00]
+09. Old School Kind Of Love [03:55]
+10. Sunday Kind Of Love [03:50](   Читать дальше...   )Жанр: Rhythm & BluesПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541942   (499109) от 02.09.2012
+
+Incognito - Surreal (2012) [FLAC|Lossless]<Acid Jazz, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Acid Jazz, Soul, FunkПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317912   (498629) от 03.08.2019
 
 Eddie "Lockjaw" Davis - Lock, The Fox / The Fox & the Hounds (1966) 2001, Collectables [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
@@ -569,180 +746,6 @@ Scott Bradlee’s Postmodern Jukebox - Emoji Antique (2015) [MP3|320 кб/с]<Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19D467BD86B3DF8C692A32D09F136E414B528884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936030   (497273) от 10.09.2015
-
-Scott Bradlee’s Postmodern Jukebox - Selfies on Kodachrome (2015) [MP3|320 кб/с]<Jazz, Swing, Vintage>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steal My Girl (feat. Jeffrey James) (03:27)
-02. Straight Up (feat. Ashley Stroud) (02:44)
-03. I'm Not the Only One (feat. Casey Abrams) (03:22)
-04. Habits (feat. Haley Reinhart) (03:36)(   Читать дальше...   )Жанр: Jazz, Swing, VintageПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E37FBD35B7A8EBAD11065C139804F764F3F28522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565057   (496757) от 22.07.2022
-
-Stefano Cocco Cantini - Niccolina Al Mare (2001) Materiali Sonori [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brazilian Like [5:59]
-02. Averti tra le braccia [6:17]
-03. Love Letter [7:31]
-04. Brazilian Suite [4:16](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE8A132C339A5E5EAD401DBAC963426D7D6931E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318233   (496676) от 05.08.2019
-
-Oliver Jones - A Class Act (1991) Justin Time [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark My Time [4:21]
-02. Everybody's Song But My Own [6:29]
-03. Scrambled [4:26]
-04. Very Early [5:52](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4158E5531740A73728C30F0BA85B25E2F947F5AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318240   (496675) от 05.08.2019
-
-Hampton Hawes Quartet - All Night Session!, Vols. 1-3 (1956) 2CD, 2001, Victor [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496675.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jordu [7:07]
-02. Groovin' High [5:48]
-03. Takin' Care [8:09](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A3FE6679484CACEDF68B70A0F18192677F7A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318235   (496672) от 05.08.2019
-
-Coleman Hawkins - Bean And The Boys (1950-e) HighNote [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disorder at the Border [6:40]
-02. Yesterdays [4:36]
-03. Bean and the Boys [5:35]
-04. Disorder at the Border [3:23](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB63E06BD253B0A9330A9F21B1ED242F202CB22B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318244   (496671) от 05.08.2019
-
-Matt Mauser And The Pete Jacobs Big Band - Perfectly Frank (2013) Whitestone Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Fly with Me [3:10]
-02. Luck Be a Lady [4:55]
-03. The Best Is Yet to Come [2:59]
-04. The Way You Look Tonight [3:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC96CE74630CB70197048D3FB89203C21B036D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

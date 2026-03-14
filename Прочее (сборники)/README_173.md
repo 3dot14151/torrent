@@ -1,3 +1,32 @@
+###  Публикация: 1739323   (106119) от 27.07.2024
+
+VA - Music News For Forum vol.005 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106119.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Empire Of The Sun - Friends I Know (03:21)
+ 002. Alok feat. Innerverse & Frey - Allein Allein (02:39)
+ 003. AMOR - Lady (02:46)
+ 004. Amy Shark feat. Tom Delonge - My Only Friend (03:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF866382D515F9FC3A8C863386D955DCADA6839A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748029   (104695) от 07.09.2024
 
 VA - Music News For Forum vol.020 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -798,41 +827,6 @@ VA - Хиты на радио клубнячек и попса vol.8 (2012) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92E84F646B1FAF691CBD35DD26C8B5D0F7A89B0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484226   (99877) от 17.04.2012
-
-VA - Клубные новинки Vol. 66 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Oshean - A Day Will Come (Original Mix).mp3
-02. Andreea Banica - Electrified (Sagi Abitbul Official Remix).mp3
-03. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck With You (Extended Mix).mp3
-04. Cahill feat. Chrome - Can't You See (Club Edit).mp3
-05. Christos Fourkis - Set Free (Radio Mix).mp3
-06. Coffee and Honey feat. Alexandra - Smile (Club Mix).mp3
-07. CUT & RUN - Calm & Queasy.mp3
-08. DJ Adamus - Free The Night (Club Edit).mp3
-09. Faberlique - Sleep Blind (Taras Bazeev Remix).mp3
-10. Funkwhite - Plug & Play (Extended Mix).mp3(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBC52487425A7EBB966F1D671410483B22DA219
 ```
 
 https://mybot314.ru/tekegram_catalog/

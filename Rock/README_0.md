@@ -1,3 +1,32 @@
+###  Публикация: 1605197   (1044861) от 18.01.2023
+
+Eric Clapton - Journeyman (1989) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbis|480 Kbps] <Rock, Pop Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretending
+02. Anything For Your Love
+03. Bad Love
+04. Running On Faith(   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6BB07881C18F6E4AEFD89279C181B8C689E506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605468   (1044811) от 18.01.2023
 
 Eric Clapton - Time Pieces - The Best Of Eric Clapton (1982) Remastered, 2014, Audio Fidelity [OGG Vorbis|470 Kbps] <Rock, Blues Rock, Soft Rock>
@@ -716,35 +745,6 @@ Nightwish - Wishmaster (2000) Reissue, 2004, Back On Black [OGG Vorbis|700 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47E60B228345DFC08C5BA36E397F9D1D6A9CDA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609805   (1043131) от 04.02.2023
-
-Avi Rosenfeld - Very Heepy Very Purple XIV (2023) [MP3|320 Kbps] <Blues Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got A Riff [00:03:54]
-02. Fire And Ice ft. Damond Jiniya [00:05:12]
-03. In The Mass Grave [00:04:47]
-04. Marching Through The Gates [00:04:46](   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE4BAB53594C381350FA8946AF98B5ECCA4C61C
 ```
 
 https://mybot314.ru/tekegram_catalog/

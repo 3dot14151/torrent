@@ -1,3 +1,141 @@
+###  Публикация: 1262259   (294449) от 15.11.2018
+
+Microsoft Windows 10.0.17763.107 Enterprise LTSC Version 1809 (October 2018 Updated) - Оригинальные образы от Microsoft VLSC [En/Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 включает “универсальную” архитектуру приложений, которая расширяет функциональность приложений Metro. Теперь данные приложения могут быть разработаны для запуска на других продуктах Microsoft - включая планшеты, компьютеры, смартфоны, встроенные системы, Xbox One, Surface Hub и HoloLens.
+
+Пользовательский интерфейс Windows 10 был пересмотрен для организации (   Читать дальше...   )Язык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C159CBB3E35B741A180C0A286991DE9E0B47C4AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262367   (292530) от 16.11.2018
+
+Microsoft Windows 10.0.17763.107 Version 1809 (October 2018 Updated) - Оригинальные Business образы от Microsoft VLSC [En/Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 включает “универсальную” архитектуру приложений, которая расширяет функциональность приложений Metro. Теперь данные приложения могут быть разработаны для запуска на других продуктах Microsoft - включая планшеты, компьютеры, смартфоны, встроенные системы, Xbox One, Surface Hub и HoloLens.
+
+Пользовательский интерфейс Windows 10 был пересмотрен для организации (   Читать дальше...   )Язык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECB35A0B87CDE89F0575930CE38DF7B8638D335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262135   (285421) от 20.11.2018
+
+Microsoft Windows 10.0.17763.107 Version 1809 (October 2018 Updated) - Оригинальные образы от Microsoft [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы Windows 10 October 2018 Update от 13 ноября 2018 года.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E4A1323B0230A27D090202D254907753B297DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187980   (275379) от 01.12.2017
+
+Microsoft Windows 10 10.0.16299.64 Version 1709 (Updated Nov. 2017) - Оригинальные образы от Microsoft [VLSC/MSDN] [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы Windows 10 Fall Creators Update (версия 1709 16299.64) VLSC/MSDN.
+Осеннее обновление Windows 10 Fall Creators Update (Redstone 3) от 28 ноября 2017 года.
+С обновлением Windows 10 Fall Creators Update (версия 1709) должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2719F110CB0C9AC3DAE17DB1D82A5BB02232FC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187956   (275365) от 01.12.2017
+
+Microsoft Windows 10 10.0.16299.64 Version 1709 (Updated Nov. 2017) - Оригинальные образы от Microsoft [VLSC/MSDN] [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы Windows 10 Fall Creators Update (версия 1709 16299.64) VLSC/MSDN.
+Осеннее обновление Windows 10 Fall Creators Update (Redstone 3) от 28 ноября 2017 года.
+С обновлением Windows 10 Fall Creators Update (версия 1709) должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540C017D5F74C638B1CAAF4EF13039B5002F297A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188281   (274100) от 02.12.2017
 
 Microsoft Windows 10 10.0.16299.64 Version 1709 (Updated Nov. 2017) - Оригинальные образы от Microsoft [VLSC/MSDN] [Ukr]
@@ -569,148 +707,6 @@ Windows 7 SP1 7601.28021 x64 3in1 by OneSmiLe [12.11.2025] [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0428A4A081EC85DDF272310F1BBB1BD6828D2854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836812   (255667) от 12.11.2025
-
-Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.7171 [Ru]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-26200.6584.250915-1905.25h2_ge_release_svc_refresh_CLIENT_CONSUMER_A64FRE_ru-ru
-Установлены обновления по 12.11.2025
-Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3742D72737AFD242FEF0F9FA06AF043ACC9212D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836813   (255636) от 13.11.2025
-
-Windows 7 SP1 with Update [7601.28021] AIO (x64) by SURASOFT (v25.11.11) [Ru/En]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов от MSDN.
-ru_windows_7_professional_with_sp1_x64_dvd_621772.iso
-ru_windows_7_ultimate_with_sp1_x64_dvd_618249.iso
-ru_windows_7_enterprise_with_sp1_x86_dvd_620274.iso(   Читать дальше...   )Язык интерфейса: Русский , Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933BAFAB3AD4FC4629728B48F76E140AF8207457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836826   (255635) от 13.11.2025
-
-Windows 10 22H2 19044.6575/19045.6575 by SURASOFT (v25.11.11) [Ru]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов
-ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c.iso
-ru_windows_10_enterprise_ltsc_2021_with_update_19044.6456_aio_2in1_x64_dvd
-Были интегрированы обновления по 11 ноября 2025 года.(   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169682C11132763EE265780119539BCBFFCC5E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620783   (255421) от 07.04.2023
-
-Microsoft Windows 10.0.19045.2728, Version 22H2 (Updated March 2023) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
-
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.2728.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6A4FC92787EDA26437582F4527A2756190ACFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620787   (255419) от 07.04.2023
-
-Microsoft Windows 11 [10.0.22621.1413], Version 22H2 (Updated March 2023) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B26C9335F339D29338DE792383FBF078F6B027
 ```
 
 https://mybot314.ru/tekegram_catalog/

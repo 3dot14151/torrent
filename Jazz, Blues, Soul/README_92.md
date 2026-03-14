@@ -1,3 +1,61 @@
+###  Публикация: 998714   (868599) от 20.03.2016
+
+Kenny Barron Trio - Book Of Intuition (2016) Universal[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Magic Dance [07:54]
+ 02.Bud Like [05:31]
+ 03.Cook's Bay [06:03]
+ 04.In The Slow Lane [06:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85484E5547AA3A3430D8BF90A034C0BA42635AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998627   (868598) от 20.03.2016
+
+Caustic Roll Dave - Approaching Noise (2014) [FLAC|Lossless|tracks + .cue] <Industrial Blues, Blues Rock, Lo-Fi>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What We Understand (02:42)
+02. You've Got Your Silver, You've Got Your Gold (02:56)
+03. Thoughts Send Him Down (03:21)
+04. Restart (02:42)(   Читать дальше...   )Жанр: Industrial Blues, Blues Rock, Lo-FiПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87024816FA2F843D30A3BBD5357F3A32115DCC41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 873582   (868547) от 28.02.2015
 
 Smooth Jazz Cafe - Smooth Jazz Cafe (2014) [FLAC|Lossless]<Smooth Jazz>
@@ -684,64 +742,6 @@ Woody Blues Trio - Vivitos y bluseando (2016) [MP3|320 кб/с] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77A5123DD0B1566716B66DF03EEF87B34F0EC651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107705   (866580) от 23.02.2017
-
-Modern Jazz Septet - The Days Of Default (1998) 2002, Dialog Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Eternal Triangle [08:10]
- 02.Uranius [04:57]
- 03.Messenger [12:15]
- 04.Open, Sesame! [09:53](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654BF81CF9753B77294FB7DDB46AA3AD2F7C46EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107769   (866568) от 23.02.2017
-
-Duke Ellington - The 1962 MOMA Recital (2010) La Maison du Duke [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.New York City Blues [05:13]
- 02.Blue Belles Of Harlem [04:46]
- 03.The Clothed Woman [04:12]
- 04.Melancholia [02:16](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E1D399EE260B8AB71591105416331012CC1C27
 ```
 
 https://mybot314.ru/tekegram_catalog/

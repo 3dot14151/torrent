@@ -1,3 +1,90 @@
+###  Публикация: 1131983   (705533) от 07.05.2017
+
+Anan Ryoko - Another Beginning (2010) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, Hip Hop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Garden  (01:56) 
+02. All Day, All Night, Always feat. AK  (05:28) 
+03. The Shape of Love feat. TeN from A Hundred Birds  (04:33) 
+04. Forever We Will Be feat. Kero One  (05:06) (   Читать дальше...   )Жанр: Jazz, Pop, Hip HopПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B789146F4A3882AEEBCC63C56EB83002309FAD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131907   (705532) от 07.05.2017
+
+Tamba Trio - Black + Blue (1974) 2001, BMG [APE|Lossless|image + .cue] <Bossa Nova, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Se E Questao De Deus Ate Logo [02:45]
+02. Nao Tem Perdao [02:42]
+03. Reflexos [02:55]
+04. Gazera [01:50](   Читать дальше...   )Жанр: Bossa Nova, Brazilian JazzПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4100AAB3C1476C27A322A896198FAB9FE68A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287257   (705528) от 06.03.2019
+
+Fredrik Kronkvist - Altitude (2003) Sittel Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zenith [5:38]
+02. Litet grann fran ovan [4:38]
+03. Desert Night [6:17]
+04. Yemaya [4:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E89B45A52192973D34829494D9809B4EBFB257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287248   (705527) от 06.03.2019
 
 Bernt Rosengren & Claes-Goran Fagerstedt - Jazz Club 57 (1957 - 1962) 2000, Dragon Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
@@ -655,93 +742,6 @@ Johnny Griffin & Matthew Gee - Soul Groove (1963) Remaster, 2012, Warner[FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AE51A88DD097BC613DF93ADE4C01228161FD63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026767   (702518) от 16.06.2016
-
-Joe Lovano & Dave Douglas - Sound Prints (2015) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sound Prints [04:39]
- 02.Sprints [13:59]
- 03.Destination Unknown [08:33]
- 04.To Sail Beyond The Sunset [10:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00673B36A5C67DFA1D5CE9E15EDCD6AC8E51694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220697   (702457) от 20.04.2018
-
-Rosemary Clooney - Eight Classic Albums (1955 - 1961) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702457.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. You'll Never Know [03:08]
-02. On The Atchison, Topeka And The Santa Fe [02:34]
-03. Buby [02:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 04:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A10CB2617F33E059790BE3ECABA11FB5D8D6680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026676   (702439) от 16.06.2016
-
-Brian Melvin featuring Jaco Pastorius - Night Food (1985) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ain't Nothin' But A Party [01:49]
- 02.Don't Forget The Bass [04:48]
- 03.Night Food [02:55]
- 04.Zen Turtles [05:31](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977D006844935E4ACB8DF677F44CFE5549FE2560
 ```
 
 https://mybot314.ru/tekegram_catalog/

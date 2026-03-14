@@ -1,3 +1,162 @@
+###  Публикация: 479502   (98957) от 07.04.2012
+
+INNA - WOW (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5831ED6424E6FC8EBDF5DC3FEF21C5E30447B77D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459312   (94904) от 28.02.2012
+
+Celia ft. Shaggy - Dame (2011) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A759CF3F616375E95A6AD01EADB165B32F688731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455296   (94209) от 23.02.2012
+
+Dekolte - Без тебя (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20CE3B64AA6867C5059AA4451C7C09859BB0FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483263   (88840) от 16.04.2012
+
+Best of Mtv / Mtv 2012 (2012) 720p 1080p WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов от Mtv1. Chris Brown - Turn Up The Music (4:17)
+2. David Guetta - Turn Me On ft. Nicki Minaj (3:30)
+3. Demi Lovato - Skyscraper (4:05)
+4. Drake - The Motto (Edited) ft. Lil Wayne, Tyga (4:01)(   Читать дальше...   )Жанр: Dance,Pop,RnB,HipHop,OtherРежиссер: MtvАктеры: Chris Brown, David Guetta, Evanescence, Flo Rida, Rihanna, Katy Perry ...Перевод: ОтсутствуетПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F247843CE9640E991C261681516D81ECDBA80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480393   (87461) от 09.04.2012
+
+Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 0:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7821E8C23966F164F40C2710B7154CC11D7BADA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479549   (86964) от 07.04.2012
+
+Basshunter - Saturday (Uncensored) (2012) [H.264] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_86964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69E401FA02594BB1F3A6F6C16BEAB2B430A38D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479494   (86899) от 07.04.2012
 
 Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
@@ -518,171 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AA74B6C4B957C5920C7F6523E928D45A560A370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460656   (79575) от 02.03.2012
-
-Pirate party The Best Videoclip (2010-2012) HDTVRip 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79575.jpg" />
-</div>
-
-
-###  Подробнее
-
-200 музыкальных видеоклипов.Большинство видео материала записано с известных музыкальных каналов высокой чёткости.Жанр: Club, Dance, Electronic, Pop, TranceПеревод: Не требуетсяФормат: MP4Продолжительность: 200 х ~00:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A467C2474C03F09B6DC52E026E33E6FBEDADACD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458841   (78735) от 27.02.2012
-
-Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный клип на композицию Emma Hewitt - Colours (Armin van Buuren Remix)Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C601DA0ED9FDF8A40AEB8066CF19A42C0A1DD4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458167   (78394) от 25.02.2012
-
-NikitA - Машина (2009) HDRip [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0820853631BD1DAD1095278CEEF9FB414E7CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455499   (78191) от 24.02.2012
-
-VA - Millenium Sexy vol.3 - Сборник видеоклипов (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Narcotic Sound and Christian D - Danca Bonito
-02 Blank And Jones feat Bobo - Perfect Silence
-03 NikitA - Bite
-04 David Deejay - Perfect 2
-05 Dj.Sava feat Andreea D and Yolo - Money Maker
-06 Klaas and Bodybangers - Freak
-07 Dev - In The Dark
-08 Outwork feat Mr. Gee - Elektro
-09 Dj.Flower - Jamaican Love
-10 Heaven feat Glance - Sexy Girl(   Читать дальше...   )Жанр: VariousПродолжительность: ~01:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DC6C6C973B99AE17476F4B83332ACE0159ABB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448157   (77057) от 19.02.2012
-
-Виниловое видео (2011-2012) IPTVRip [Обновляемая]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыкальная, развлекательная передачаРежиссер: Светлана ЛялькинаПродолжительность: Выпуск: ~ 00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87788B345D2D8219EFFC60EFBE5C7865704E50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453487   (76803) от 17.02.2012
-
-Катя Самбука - Зашли мне лям (Uncensored) (2010) WEBRip [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_76803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCE8941741446526C6C17A383B3D50B9E36F4FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

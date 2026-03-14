@@ -1,3 +1,90 @@
+###  Публикация: 1627414   (237348) от 19.04.2023
+
+The Ruby Braff Trio - Me, Myself And I (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muskrat Ramble [4:39]
+02. Let Me Sing and I'm Happy [3:34]
+03. You've Changed [4:10]
+04. You're a Lucky Guy [4:10](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697186A908C97E6EF72A2E22BBE952D52F9DEB35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360407   (237323) от 15.02.2020
+
+Roy Eldridge - Classic Jazz Archive 1935 - 1945 (2004) 2CD, Membran Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237323.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Wabash Stomp:
+01. When I Grow Too Old To Dream [2:40]
+02. (Lookie, Lookie, Lookie) Here Comes Cookie [3:03]
+03. Big Chief De Soto (Grand Terrace Swing) [2:58](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98DEF8E8F7EC39027031A0F02428D2828820DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627746   (237212) от 20.04.2023
+
+Buck Clayton - Goin' To Kansas City (1960) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello, Babe [3:04]
+02. An Old Manuscript [3:31]
+03. Kansas City Ballad [3:10]
+04. The Jumping Blues [4:12](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE51EA8366B561DF29FBBEDBCBE6C79C7B181741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627750   (237205) от 20.04.2023
 
 Phil Woods - Rights Of Swing (1961) 2001, King Record [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -658,93 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB18F644E26A334901DEE7FF26A43D5F0F90E8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640434   (236393) от 17.06.2023
-
-Steve Gadd, Eddie Gomez, Ronnie Cuber - Center Stage (2022) Leopard [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Jazz Fusion, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Signed, Sealed, Delivered [7:17]
-02. Watching the River Flow [8:04]
-03. I Can't Turn You Loose [5:15]
-04. Che Ore So [6:14](   Читать дальше...   )Жанр: Jazz-Rock, Jazz Fusion, Big BandПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F24CE0B6C99BF84807E09A22286669D5287B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631939   (236350) от 08.05.2023
-
-Hank Jones - Here's Love (1963) 2011, Universal [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here's Love [2:47]
-02. My Wish [3:38]
-03. You Don't Know [3:14]
-04. Dear Mister Santa Claus [4:00](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D612DC8F570AFAA89EDE9375B430B581EC703C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631545   (236323) от 08.05.2023
-
-Charlie Barnet - Giants Of The Big Band Era (1990) MAGMA [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East Side West Side [2:57]
-02. Cherokee [3:25]
-03. Pomton Turnpike [2:26]
-04. Volga Boatmen [2:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14231214DF08FEC192C301AACF743D4761869C68
 ```
 
 https://mybot314.ru/tekegram_catalog/

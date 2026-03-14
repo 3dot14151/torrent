@@ -1,3 +1,38 @@
+###  Публикация: 516088   (654740) от 27.06.2012
+
+VA - Самый Взрывной Летний МIX (2012) [MP3|128-320 кб/с]<House, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Anton Neumark, Johnny Beast - We Rock The Party (Original
+02 DJ Solovey and Jim (E. Glotikov) - Ready To Party (Original
+ 03 Fred Falke - 909 PM At The Beach (Syntheticsax Bootleg)
+ 04 Fast Foot - Galaxy ( SICK SLAUGHTERHOUSE )
+ 05 Flashtronica - I Cant Stop (Ural Djs Remix)
+ 06 Javi Reina Alex Guerrero ft. Syntheticsax - Oig (Check off
+ 07 Kulten Yeuk - Drunk Trumpet (Johnny Beast Remix)
+ 08 Dj Viduta - Summer Mood ( Original Mix )
+ 09 Nity - Ты Лето (Ural Djs Version)
+ 10 Porn Kings - Amour (DJ Jim Remix Radio)Жанр: House, PopПродолжительность: 04:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2322F56466008AB16D1EC64A526DA618BE13D551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516122   (654734) от 27.06.2012
 
 VA - Союз Клубный. Выпуск 8 (2012) [MP3|256 kbps]<Club>
@@ -756,35 +791,6 @@ VA-Русский рок. Фреш (2012) [MP3|192 kbps]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4357EC1A976629233CC2B0C7A985132D14351202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905065   (651347) от 05.06.2015
-
-VA - Car Audio. Первый летний (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Dubstep, Trance, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adamwah - Departure (Original Mix)
-2. Adultnapper, Black Light Smoke - Idiot Fair (H.O.S.H., The Deer Dub)
-3. Afrobeat, 6Souther, Tenisara - Never Look Back (Original Mix)
-4. Alfonso Muchacho - You Changed Me (Original Mix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Dubstep, Trance, TechnoПродолжительность: 14:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F453DB9BF54295B1638BC8BB5BE7CFEAEAA3E40
 ```
 
 https://mybot314.ru/tekegram_catalog/

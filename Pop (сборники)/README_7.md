@@ -1,3 +1,32 @@
+###  Публикация: 742836   (976352) от 07.01.2014
+
+VA - Итоговый ЕвроХит Топ 40 2013  [MP3|~245 кб/с (V0)]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие песни 2013 года по версии слушателей Европы Плюс!01. Daft Punk - Get Lucky (06:07)
+ 02. Rihanna - Diamonds (03:45)
+ 03. Pink & Nate Ruess - Just Give Me A Reason (04:05)
+ 04. Mind Vortex - Alive (03:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E5A99429F129D3F3BDAD19CCA3F993258C6810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974680   (975868) от 12.01.2016
 
 Reverend and The Makers - Collection (2007-2012) [OGG|459-548 кб/с] <Dance Rock, Indie Rock, Electropop>
@@ -752,35 +781,6 @@ Joy - 25 Best Songs (2012) [MP3|~245 кб/с]<Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F60504DAB09BB21822101AAF338805C608E0BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623372   (955709) от 26.02.2013
-
-VA - The Official UK Top 40 Singles Chart (24-02-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую очередной UK Singles Chart — официальный хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
-Составляется с 1952 года как аналог американского Billboard.
-По ссылке в дополнительной информации Вы найдете и USA Billboard Hot 40 (23-02-2013)
-Во все треки вшиты обложки альбомов.Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 02:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11BAEF8A13B0113B8E65C7924BA20CD7065DEC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

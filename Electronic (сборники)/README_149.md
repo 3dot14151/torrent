@@ -1,3 +1,32 @@
+###  Публикация: 1252161   (411164) от 04.10.2018
+
+VA - Sound Of A Feeling (2018) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411164.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ciland - Red Eyes
+002. Nebula - Inner Voice
+003. Nick The Lot - Sound Of A Feeling
+004. Dankle - Big Sound (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 10:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CA2EFB7A70127E8F28E9A8DCEC96712BF03024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948527   (411109) от 20.10.2015
 
 Laid Back - Best Hits (3CD) (1981-2013) (2015) [MP3|320 кб/с]<Electronic, Synth-pop, Reggae, Downtempo>
@@ -716,35 +745,6 @@ VA - Sapphire Lounge (30 Luxury Chillout Tunes) (2013) [MP3|320 кб/с]<Lounge,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE88F38888F146AB3BDD1C8437DA14D7663D9640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948945   (408258) от 22.10.2015
-
-VA - Uplifting Sexy Trance Sound (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maywave - Flowing Passion (Snow Flakes Remix)
-02. Raddle B & Nellu L vs Marcprest - 7 Billion People 14 Billion Faces (Philler Music Remix)
-03. Morvan - Alyssa (Michael Retouch Remix)
-04. Minamoca & Yu-I - Eternal (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 06:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88694E49CFBA1FF0714E49289ECE29FEC2DA23DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

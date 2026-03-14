@@ -1,3 +1,177 @@
+###  Публикация: 1539659   (234912) от 27.03.2022
+
+Stoney & Meat Loaf - Stoney & Meat Loaf (1971) Remastered, Reissue, 2021, UNI - MOTOWN [FLAC 2.0|192/24|WEB-DL|tracks] <Gospel, R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (I'd Love To Be) As Heavy As Jesus (2:52)
+02. She Waits By The Window (4:06)
+03. It Takes All Kinds Of People (2:28)
+04. Game Of Love (3:49)(   Читать дальше...   )Жанр: Gospel, R&B, SoulПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A4F80AFDCA79BECA1E0E946633D173A7793DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639162   (234909) от 12.06.2023
+
+Sam Taylor - Sam Taylor Best Selection (2013) Universal [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Easy listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harlem Nocturne [3:28]
+02. Lover Come Back To Me [3:19]
+03. Red Sails In The Sunset [2:48]
+04. Misty [3:27](   Читать дальше...   )Жанр: Smooth Jazz, Easy listeningПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD86B95BE6216782449C4780666256886AE9B4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642164   (234901) от 26.06.2023
+
+McCoy Tyner - Milestone Profiles (1972 - 1980) 2CD, 2006, Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Kicker [4:09]
+02. Song for My Lady [7:33]
+03. Dindi [3:37]
+04. St. Thomas [4:48](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC7E3FB1AECF782CD951C4E701C924F35B3C0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642166   (234808) от 26.06.2023
+
+Carmen Lundy - Fade To Black (2022) Afrasia Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine a Light [8:07]
+02. So Amazing [3:31]
+03. Daughter of the Universe [5:39]
+04. Ain't I Human [3:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE626FC1EB60CCA80EB925B74099785FFBB126C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621339   (234802) от 24.03.2023
+
+George Kawaguchi - Best: 50 Years Anniversary (1995) King Record [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EJ Blues [10:53]
+02. George's Boogie (from 'Drum Boogie') [17:02]
+03. Watermelon Man [5:55]
+04. Maiden Voyage [8:17](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6334A00AD7BA7174619C85EA969C634E84799593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621131   (234783) от 24.03.2023
+
+Walt Weiskopf - Song For My Mother (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outsider [7:14]
+02. Three Armed Man [5:23]
+03. Barebones [6:46]
+04. End of the Year So Soon [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1359939C896BB9803FA41FA7A5491CB29D47EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642382   (234767) от 27.06.2023
 
 Bob Brookmeyer - The Dual Role Of Bob Brookmeyer (1954, 1955) 2014, Prestige [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -568,180 +742,6 @@ Igor Fedotov - Believe in Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C08AA4E8C219221ADEA9037EDDBD1021300B1B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639987   (234382) от 15.06.2023
-
-Selwyn Birchwood - Exorcist (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Done Cryin' (4:39)
-02. Florida Man (3:39)
-03. Horns Below Her Halo (6:15)
-04. Underdog (4:31)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9AB32EC73CF6A4411E8D1208DE9E6D76026871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639857   (234359) от 15.06.2023
-
-Jeff Coffin - Between Dreaming And Joy (2022) Ear Up Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vinnie the Crow [4:20]
-02. Ruthie [4:04]
-03. Tip the Band [5:37]
-04. In the Belly of the Whale [5:19](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E9857DBD453E12B113EE28848EA30482B7E779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642934   (234343) от 29.06.2023
-
-Papik & Sea Breeze - West Coast Rendez Vous (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chains Of Our Love (feat. Filippo Perbellini)
-02. How Long (feat. Lo Van Gorp)
-03. A Blur In A Morning Dew (feat. Dario Daneluz)
-04. I Shouldn't Say (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Pop Jazz, SoulПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7492BB622AB90830C8DA5800D10CDB068AF28EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639980   (234305) от 15.06.2023
-
-Arielle - '73 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dulcet (Live) (0:49)
-02. Somewhere Slow (4:17)
-03. '73 (3:11)
-04. Goes Without Saying (4:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957679063C040A06B3F8668BD4212ACB3B66E50B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622295   (234284) от 28.03.2023
-
-Sun Ra Arkestra - Living Sky (2022) Omni Sound [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chopin [7:46]
-02. Somebody Else's Idea [6:22]
-03. Day of the Living Sky [6:03]
-04. Marshall's Groove [11:05](   Читать дальше...   )Жанр: Avant-Garde Jazz, Big BandПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7403ED2C8774C944F2BF4E205AFF7F079C97D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633651   (234280) от 16.05.2023
-
-The United States Army Field Band Jazz Ambassadors - The Legacy Of Stan Kenton (1997) Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Opener [3:02]
-02. Stan Kenton Medley [8:38]
-03. Opus in Pastels [3:10]
-04. Unison Riff [3:18](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE97E85859BB3C7559A26F60238D902F83DA5387
 ```
 
 https://mybot314.ru/tekegram_catalog/

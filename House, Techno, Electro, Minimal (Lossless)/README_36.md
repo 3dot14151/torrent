@@ -1,3 +1,90 @@
+###  Публикация: 916877   (589895) от 10.07.2015
+
+VA - Deep Sounds: The Very Best Of Deep House (Spring Edition) 3CD (2015) [FLAC|Lossless]<Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Latroit & Bishøp - Loving Every Minute
+02. Nora En Pure - True (Lexer Remix)
+03. Rivera Feat. April - Bang!
+04. Pierce Fulton - Kuaga (Sonny Alven Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FED0E4FFF1258A91F50472C0758187AD8E84CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918116   (587937) от 14.07.2015
+
+VA - Compiled & Mixed (By Ewan Rill And Milos Miladinovic) - 2015 [FLAC|Lossless|WEB-DL]<Tech House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ewan Rill - Compiled And Mixed (continuous DJ mix)
+02. Michael A - 23 59 Am (original mix)
+03. Marcelo Vasami - City Reflections (original mix)
+04. Mehmet Akar - A Kind Of Panic (Kintar remix)(   Читать дальше...   )Жанр: Tech House, Progressive HouseПродолжительность: 09:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A9FB7724A901085CF0D5F2BD4CC35FEAAF7C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040391   (587354) от 04.08.2016
+
+Arcane - Automaton (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Berlin-School, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Automaton (04:39)
+02. Brazen Head (03:39)
+03. Predetermined Sequence (06:10)
+04. Perew's Man (03:53)(   Читать дальше...   )Жанр: Berlin-School, Ambient, ExperimentalПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D6C7D7757A2C86999342A907A399708928E35D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300921   (587304) от 09.05.2019
 
 Emmanuel - Stamina EP (2019) ARTS / Darkmatter Inc. [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -660,93 +747,6 @@ VA - Pure Salinas Vol.7 ( Mixed by Dj Zappi) (2016) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:710B0A35B8771C40400DC025924D71DA059A2D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233888   (575898) от 02.07.2018
-
-U96 - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Angels (feat Terri B!)
-03. F......Camera
-04. Zukunftsmusik (feat Wolfgang Flar)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 01:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA745C023B94A8B621187B277367B891C8A2DBF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554698   (575678) от 31.05.2022
-
-VA - FG Top 10: May 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Freegrant & Slow Fish - Connected (Extended Mix) 07:06
-02. Seleck - Blows My Mind (Original Mix) 06:55
-03. Ric Niels - Sabeht (Original Mix) 07:01
-04. Santiago Luna - Free (Original Mix) 06:00(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A1104695B6E8A39F58EED3784DCBFB0AC48E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234161   (574698) от 03.07.2018
-
-VA - Madre Natura, Vol. 32 (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574698.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Darius Syrossian - Andranik (06:38)
-2. Anna - Leave House (08:16)
-3. Paul C & Paolo Martini - Tears For Fears (Joyce Muniz remix) (06:30)
-4. Viktor Talking Machine - Abby (07:33)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7BD0A4C2299D02312DC70733BE0D85A68D567BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

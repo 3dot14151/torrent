@@ -1,3 +1,119 @@
+###  Публикация: 1672778   (168063) от 29.10.2023
+
+Death - Individual Thought Patterns (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Overactive Imagination (03:31)
+02. In Human Form (03:58)
+03. Jealousy (03:42)
+04. Trapped In A Corner (04:15)(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B040AA3EDB20D562A9BB694C32B233F42913F468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672667   (167985) от 29.10.2023
+
+Death - The Sound of Perseverance (1998) Reissue 2016, Relapse Records [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scavenger Of Human Sorrow (06:57)
+02. Bite The Pain (04:29)
+03. Spirit Crusher (06:47)
+04. Story To Tell (06:36)(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A51D6968F01296F1D835CD65C7CF20A4114E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672719   (167966) от 29.10.2023
+
+Bolt Thrower - Studio Albums (8 releases) (1988-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bolt Thrower — британская дэт-метал-группа, образовавшаяся в 1986 году в Бирмингеме, Англия, и ставшая (согласно Allmusic) «самой последовательной и стойкой дэт-метал-группой Британии, сумевшей через все взлёты и падения сохранить звучание и не поддаться на коммерческие соблазны»1988 - In Battle There Is No Law
+1989 - Realm Of Chaos
+1991 - War Master
+1992 - The IVth CrusadeЖанр: Death MetalПродолжительность: 06:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F53D880D8944389925010ED692DC5015E458B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672620   (167741) от 29.10.2023
+
+Мираж - Неизданное (1989-1991) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167741.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1 (34:04)
+
+[4:53] 1. Я жду тебя
+[4:05] 2. Эхо(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4459A0DE943680AD4F5845D64CAAC96AFBAEE041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515939   (166749) от 10.12.2021
 
 VA - Танец На Барабане. Поют Н. Гнатюк, Е. Головин, А. Ефремов (1981) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
@@ -627,122 +743,6 @@ B4. King Of Whitewater(   Читать дальше...   )Жанр: Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1D79F0D2F176BF1F22D1ABE5203ACFB61CD50A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675153   (160421) от 08.11.2023
-
-David Coverdale - Whitesnake (1977) [FLAC|24/192|image |Vinyl-Rip] <Hard Rock, Blues-rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side one
-01. "Lady"
-02. "Blindman" (Coverdale)
-03. "Goldies Place" (Coverdale)(   Читать дальше...   )Жанр: Hard Rock, Blues-rockПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78572654FFAE4B6DAA591D91089C8C7CCF9313F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551791   (160021) от 22.12.2022
-
-Battle Beast - Дискография (6 releases) (2011 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battle Beast — финская хэви-метал-группа из Хельсинки. Группа была основана в 2005 году.2011 - Steel
-2013 - Battle Beast
-2015 - Unholy Savior
-2017 - Bringer of PainЖанр: Heavy Metal, Power MetalПродолжительность: 05:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D54000534ACA8DF8939623144159B2EB51A68A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315014   (159988) от 22.12.2022
-
-Earth, Wind & Fire - Touch The World (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Smooth Jazz, Soul, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159988.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 System Of Survival
-A2 Evil Roy
-A3 Thinking Of You
-A4 You And I(   Читать дальше...   )Жанр: Smooth Jazz, Soul, FunkПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D762DE48E3BE4104DB6252EB6CCE61BFD52ABD26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675854   (159864) от 10.11.2023
-
-Butcher Babies - Studio Albums (5 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Groove Metal, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Butcher Babies — американская метал группа из Лос-Анджелеса, Калифорния. Группа была создана в 2010 году2013 - Goliath
-2015 - Take It Like A Man
-2017 - Lilith
-2023 - Eye for an Eye... / ...'Til the World's BlindЖанр: Metalcore, Groove Metal, Thrash MetalПродолжительность: 03:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA661C389E4F781C2601AB5481DEC028227949A
 ```
 
 https://mybot314.ru/tekegram_catalog/

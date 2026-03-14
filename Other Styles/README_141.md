@@ -1,3 +1,148 @@
+###  Публикация: 1337874   (271505) от 13.11.2019
+
+Music for Quiet Moments - # Classical Love (2019) [MP3|320 Kbps] <Instrumental, Piano, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pebble Beach 03:54
+2. Shine On 03:45
+3. Elixir of Life 03:33
+4. Forever Tonight 03:29(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 02:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B1BBD11C1B601489632C05CF8F7E77BFD804DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084470   (271459) от 18.12.2016
+
+Alwan - Sidewalk (2016) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Lonely Sidewalk [00:02:28]
+02 -  The Boundary [00:03:58]
+03 -  Sedimentary [00:03:16]
+04 -  Meetup [00:04:21](   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB65FA8D5ABFE338D5516A709D9DF6FB1118C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084484   (271371) от 18.12.2016
+
+Daniel Roeder & Jacob Yates - Music for Meditation (2016) [MP3|320 Kbps] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Breathing in Moonlight [00:03:04]
+02 -  Emancipation [00:05:01]
+03 -  Brittle Earth [00:04:19]
+04 -  Fear Not [00:05:12](   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0C6D2965083D4574C7E6382D3459C75130D7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189394   (271274) от 05.12.2017
+
+Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erda 05:08
+02. The Ruin 05:24
+03. Runatal 05:40
+04. Boudicca 04:54(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF677BD76ED160C61B9F3315FFB63A8D0E253FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189337   (271062) от 05.12.2017
+
+Emmanuele Landini - Zodiac: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acquarius
+02. Aries
+03. Cancer
+04. Capricorn(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CCE051CE6BDD57F633531A7997A2CCAADF34059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266378   (270963) от 01.12.2018
 
 Blonker - The Sound Of Blonker (1995) 3CD-Box [MP3|320 Kbps] <Instrumental Pop>
@@ -597,151 +742,6 @@ VA - Horizon Zero Dawn: The Frozen Wilds Original Soundtrack (2017) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B85BEB9D8F691B84A4BFAA34C75246387F731B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190021   (268868) от 08.12.2017
-
-Ashaneen - Dancing on the Edge of Infinity (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing of the Egde of Infinity
-02. Timeless Voyager
-03. To Eternity and Beyond
-04. Unlimited Awareness(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA030B0AE6B5CAAAFC6D6411C228B54C59B35D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338894   (267982) от 17.11.2019
-
-VA – Super Instrumental Vol.2 (2002) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A. Ventura - Schiwago-Melodie
-02. C. Santana - Moonflower
-03. D. Modena - Song Of Ocarina
-04. G. Ventura - Une Belle Historie(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F50348F91080C64A207C9A0608706BE5552769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190292   (267760) от 09.12.2017
-
-Serj Tankian - Furious / Легенда о Коловрате (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Ambush
-3. Horde Patrol
-4. The Prince(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F52E08B8D55D5887D6E79C34A982664C7724DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190497   (267572) от 09.12.2017
-
-VA - Latin Hits 2018 - 60 Super Exitos Latinos - Club Edition (2017) [MP3|320 Kbps] <Reggaeton, Salsa, Bachata>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chiquito Team Band - Abreme Los Caminos 3:21
-02. Raulin Rodriguez - Corazon Con Candado 4:23
-03. Osmani Garcia "La Voz", Dayami La Musa - Bumper 3:16
-04. El Chacal - Las Balas 3:50(   Читать дальше...   )Жанр: Reggaeton, Salsa, BachataПродолжительность: 03:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277E56BBE42033FC921C698377A92040F68E68AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219410   (267474) от 05.12.2018
-
-Leonhardt North - The Spirit Of Pandora (2010) [MP3|256 kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandora
-02. Dreaming Under Branches
-03. Na Vi
-04. Forest Dance(   Читать дальше...   )Жанр: New age, AmbientПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCB555B0F19330C789E7BCBD58DBAA78281636A
 ```
 
 https://mybot314.ru/tekegram_catalog/

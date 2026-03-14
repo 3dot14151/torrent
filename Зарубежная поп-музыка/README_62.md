@@ -1,3 +1,61 @@
+###  Публикация: 1423393   (300083) от 13.11.2020
+
+Harold Faltermeyer - Harold F (1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prophecy  (4:33)
+02. Appassionata  (3:18)
+03. Them Changes  (4:12)
+04. Must Be Paradise  (4:30)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA1B6388CD59806C2691DDD3898AA19F3947BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184802   (299003) от 18.11.2017
+
+Eros Ramazzotti - Eros Duets (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cose Della Vita (Can't Stop Thinking Of You) (feat. Tina Turner)
+02. Fino All'Estasi (feat. Nicole Scherzinger)
+03. Inevitabile (feat. Giorgia)
+04. I Belong To You (Il Ritmo Della Passione) (feat. Anastacia)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FE326474B5319B02C98B343902710FF592D8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334050   (298947) от 27.10.2019
 
 VA - Ballermann Apres Ski Megamix 2020 (2019) [MP3|320 Kbps] <Pop, Schlager>
@@ -684,64 +742,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80C9D2EE32C306E2D19A11D407337E7AF1B726F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335209   (289881) от 01.11.2019
-
-VA - Dance Anthems 2019.03 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dolls – It's A Loving Thing 2k19 (Remundo edit) (3:29)
-02. Chrizz Morisson vs Timi Kullai & AK-SWIFT – In The Middle Of The Night (Remundo Deep dub) (2:56)
-03. Dyana Dye Shkendije – Love Is The Key (Bmonde EDM remix) (4:37)
-04. Houzer & LeBons – It's My Show (extended mix) (4:02)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160C95047AEBA946C6632B3A73C2DC6B12E26306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335277   (289876) от 01.11.2019
-
-Jessica Mauboy - HILDA (2019) [MP3|320 Kbps] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blessing (3:09)
-02. Come Runnin' (3:19)
-03. Selfish (3:26)
-04. Jealous (3:28)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C797C3F8849BDAFD0BF55CE16D217BDE5E8E43EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,76 +1,22 @@
-###  Публикация: 346748   (645506) от 05.06.2011
+###  Публикация: 517504   (648029) от 01.07.2012
 
-Юрий Андреев | Книга 14 Скрижалей [The Book of 14 Tables] [1 издание] [2011] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645506.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Книга 14 Скрижалей" - содержит все наиболее важные этические утверждения из главной книги автора – «МетаНомикон» - в самостоятельной систематизации и с измененной формой изложения ряда формулировок.
-Книга содержит 14 основных глав - "Скрижалей", а также небольшие вступительную и заключительную главы ("Вступление" и "Итог"). Жанр книги - преимущественно этическая философия, с уклоном в метафизику и с ярко выраженным религиозно-мистическим оттенком. В книге есть даже полностью религиозная глава ("Скрижаль Культа") - не связанная напрямую с ее основным содержанием, содержащая текст написанный задолго до начала создания самой этой книги, но включенная в книгу автром ввиду исключительной важности и уникальности содержания этой главы (текст этой главы, кстати, не обнародовался автором около 14 лет).
-Философия книги строится вокруг тех же двух Идей, вокруг которых строится главная книга автора - "МетаНомикон" - т.е. вокруг Идеи примата Этического начала во (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E770DFCF2A8BCC06BA0F0DB843D0CFB551826F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 679801   (645499) от 15.07.2013
-
-Проекты - VideoHive - Wild Nature Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон проекта для демонстрации логотипа или слогана.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39862BC93C7FC9316A5338BCC2D6638FAD692043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518023   (645475) от 02.07.2012
-
-[Wallpapers]Sunset Full HD Wallpapers
+[Wallpapers] Computer Desktop Wallpapers Collection (30.06.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645475.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648029.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B441FE277732318A9BD21A436609534C6AE44E47
+magnet:?xt=urn:btih:E87BF71891B3E07038DE309E143BF75BB3E3C7CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,207 +24,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 517965   (645474) от 02.07.2012
+###  Публикация: 516652   (648027) от 01.07.2012
 
-VA - Летний Кураж Европы Плюс (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Cher - Strong Enough (Dj Ozeroff & Dj Sky Feat. Lebedev Radio Remix)
-02 София Ротару И Николай Басков - Я Найду Свою Любовь
-03 Michel Telo - Ai Se Eu Te Pego (Slayback Remix)
-04 Таисия Повалий - Я Помолюсь За Тебя
-05 Vanessa & Marcko - Oh Lala (Radio Edit)
-06 T-Killah Feat. Виктория Дайнеко - Mirror Mirror
-07 Nicki Minaj - Marilyn Monroe
-08 Братья Грим - Парашюты (Aksioma Project Remix)
-09 Angelika Vee - Tokio Love ( Radio Edit )
-10 Саша Зверева (Feat Sasha Dith)Жанр: PopПродолжительность: 05:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161F2775A4B6FFD9A643DE5161E38A48CBF189C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517531   (645472) от 02.07.2012
-
-[Wallpapers]Superior Quality HD Pack Wallpapers 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F5FA992A61F8FF92AFF67D948E874970E23664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518106   (645468) от 02.07.2012
-
-Алексей Фомин |  Возвращение великого воеводы [2012] [FB2][TXT][JAVA (jar+jad)]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645468.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-я книга из серии "Время московское"Формат: FB2,TXT,JAVA (jar+jad).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D715E2EB2A8AAEF4C8E9E45AD126B30B5E272988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517820   (645464) от 02.07.2012
-
-VA - Прилив хитов русский (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645464.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-001. А.Р.М.И.Я Feat. Dj Mendez - Сладкий Плен
-002. Филипп Киркоров - Дискобой
-003. Турбомода - Маленький Секрет
-004. Слава - Люди Любят
-005. Нюша - Выбирать Чудо
-006. Митя Фомин И Кристина Орса - Не Манекен
-007. Маша Собко - Гроза
-008. Вирус - Просто Рядом Иди (Электроники Club Mix 2011 Radio Edit)
-009. Арина И Размер Project - My Moscow Love(   Читать дальше...   )Жанр: PopПродолжительность: 12:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FEE756DD475AFA92D0854361FE1546DF02A8FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517516   (645463) от 02.07.2012
-
-[Графика] Художница Ira Tsantekidou
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Художница Ira Tsantekidou
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BA778747B2E26E0C13390BAAC5D05A42EB6F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518049   (645462) от 02.07.2012
-
-Rainmeter 2.3.2 Final [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_645462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rainmeter - программа для мониторинга ресурсов компьютера. Данная утилита позволяет отображать: график загрузки центрального процессора, количество свободной и занятой памяти компьютера (оперативной, виртуальной и дисковой). Кроме того, эта программа показывает сетевую информацию, а именно: IP-адрес, DNS-адрес, трафик, скорость использования канала отдельно по каждому из направлений. Также следует отметить такую возможность Rainmeter, как загрузка новостных лент и прогноза погоды. Данное программное обеспечение обладает информативным и приятным пользовательским интерфейсом, который с легкостью вписывается в окружение рабочего стола.Название программы: RainmeterЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517938   (645461) от 02.07.2012
-
-VA - The Tipping Point (2012) [MP3|320 кб/с]<Psychedelic / Full-On, Progressive>
+James Grant - Anjunabeats Worldwide 284 (Anjunadeep Edition) (24-06-2012) [MP3|256 кб/с]<Tech-House, Downtempo, Progressive House, Deep House, Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645461.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Feel - New Age (6:32)
-2. Reactant - Next Time (7:52)
-3. Mechanical Species - Where Is The Surface (9:35)
-4. Minimal Criminal - All Hail The Mountain King! (6:52)
-5. Connected Visions - Lift Off (8:05)
-6. TAC - Tipping Point (9:23)
-7. TJP - Roundabout (10:04)
-8. Bes & Pepz - Jingle Smells (8:08)
-9. Messy Mass - Beasts Of The Jungle (7:04)Жанр: Psychedelic / Full-On, ProgressiveПродолжительность: 01:13:35
+01.	Anjunabeats Worldwide - Intro	(00:20)
+02.	Jody Wisternoff - 95	(05:17)
+03.	Andre Lodemann feat. Natalie Claude - Going To The Core	(06:20)
+04.	DifferentME - Back To Tomorrow	(06:15)
+05.	Jody Wisternoff - Red Stripes	(05:28)
+06.	Disclosure - What's In Your Head	(03:23)
+07.	Dusky - Henry 85	(05:12)
+08.	PBR Steetgang - At Gez	(05:28)
+09.	Miguel Campbell - Something Special	(04:25)
+10.	Andre Lodemann - The Light	(06:54)(   Читать дальше...   )Жанр: Tech-House, Downtempo, Progressive House, Deep House, TranceПродолжительность: 02:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E4D40ED5F6FB26BDBEDE42CA6B9F7EB3AF504EB
+magnet:?xt=urn:btih:60E767E9F05BCEDC8975A3FFFC3773F713641AA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,28 +59,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031865   (645459) от 07.07.2016
+###  Публикация: 517194   (648025) от 01.07.2012
 
-The Doobie Brothers - Live at Wolf Trap (2013) BDRip [H.264/720p]
+VA - Спецвыпуск Новинок Сезона. Зарубежный (2012) [MP3|256 кб/с]<Dance, Pop>
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645459.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Doobie Brothers американская музыкальная группа, которая начиная с 1970 года играла калифорнийский поп-рок в духе The Beach Boys. К концу 1970-х годов, когда вышли их наиболее популярные записи во главе с бестселлером «What a Fool Believes» (премия «Грэмми» за лучшую песню 1979 года), от рок-музыки в их записях не осталось и следа. The Doobie Brothers продолжали (   Читать дальше...   )01. Rockin’ Down The Highway
-02. Jesus Is Just Alright
-03. Dangerous
-04. Another Park, Another Sunday(   Читать дальше...   )Жанр: Rock, Country Rock, Pop RockПеревод: Отсутствует / Не требуетсяПродолжительность: 02:01:26
+001. Dr. Shiver vs Cekky Sound ft. Pro Bangah - Sexy Babe (Radio Mix)
+002. Chris Garcia feat. Sherry St Germain - I Rock Alone
+003. Lady Gaga - The Edge Of Glory
+004. Sak Noel - Where
+005. Nelly Furtado - Night Is Young (BunHeaD Remix)
+006. Jennifer Lopez - Im Into You
+007. Katy Perry - Last Friday Night (Jakes Klimis Loannidis Small Room Radio Edit)
+008. Seventeen - Trinity
+009. Blaxy Girls - Mr. & Mrs. President (English Version)
+010. Christopher S. Ft Max Urban - Star(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:43:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3BF992E4CEB75145521A5F9D341997023FC842E
+magnet:?xt=urn:btih:DFE3794E83B178FF18B54E2D3A63A96A8CB78F74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -315,25 +94,182 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 518151   (645458) от 02.07.2012
+###  Публикация: 515506   (648024) от 01.07.2012
 
-Василий Водовозов | Практическая славянская грамматика с примерами и упражнениями [1885] [PDF]
+VA - Massive Miami 2012 (2012) [MP3|320 кб/с]<Progressive House, Club House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Ortega - Crystal - Francesco Diaz & Young Rebels Remix (6:39)
+02. Danny Howard - Red Man Rising - Original Mix (7:20)
+03. Frankox - On Fire - Original Mix (6:03)
+04. Denetti - Six Week - Original Mix (6:30)
+05. Argento - Rising Stars - Duher & D-Frost Remix (6:16)
+06. Futuristic Polar Bears - Offshore - Daniel Ortega & Mike Moorish Remix (7:47)
+07. Moussa Clarke - Love Key - Jody Wisternoff Remix (7:30)
+08. SL Curtiz - That Dirty Piano - Original Mix (6:09)
+09. Peter Brown - Hey Everybody - No Vox Mix (6:51)
+10. DJ Credo - Shake! - Andres Montae Remix (5:35)(   Читать дальше...   )Жанр: Progressive House, Club HouseПродолжительность: 02:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD1FF2D9FE7A21C61576FB7A81D6CB5C3614A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517573   (648023) от 01.07.2012
+
+The Prophecy23 - Green Machine Laser Beam (2012) [MP3|320 кб/с]<Melodic Death Metal/Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tough Cool and Here to Mosh 00:40
+02. Ice Road Trucker Vs the Sun 03:45
+03. Don't Step Back 03:04
+04. Beyond the Purple Pipes 03:43
+05. Green Machine Laser Beam 03:36
+06. Sergeant P of the 23 00:18
+07. We Are the Pit Police 03:37
+08. Wake Me Up for Lunch 03:57
+09. Honor to Whom, Honor Is Due 04:12
+10. Captain Quick and the Pirates 04:07(   Читать дальше...   )Жанр: Melodic Death Metal/Thrash MetalПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018E2935E30932767B280B07E8DB5F01827C3DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032104   (648022) от 06.07.2016
+
+Twilight - The Edge (1992) Reissue, 1999 [FLAC|Lossless|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Far Beyond the Edge of Sanity    06:12
+02.  Blacklight    04:19
+03.  Salem    06:02
+04.  Twilight    06:12(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44CB7E57CA8AB52FBDE7A3FF70CE1E72ADD0D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031982   (648021) от 06.07.2016
+
+Denner - Shermann - Masters Of Evil (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel's Blood
+02. Son Of Satan
+03. The Wolf Feeds At Night
+04. Pentagram And The Cross(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 0:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3DE48356E41F2263B4CA56091D91C8EB1C7CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032103   (648020) от 06.07.2016
+
+Brother Jack McDuff - Live! (1963) 1994, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rock Candy [06:41]
+ 02.It Ain't Necessarily So [06:38]
+ 03.Sanctified Samba [04:50]
+ 04.Whistle While You Work [05:12](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F422B46D53360C17D639675E82EBF628A40767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032251   (648019) от 06.07.2016
+
+Алексей Бодров, игумен Иннокентий (Павлов) (ред.) | ПРИМИРЕНИЕ. Сборник материалов коллоквиума в Крестовоздвиженском монастыре. Шеветонь, Бельгия (1997) [FB2, EPUB, MOBI]
 
 >>Разное (категория книг)
->>
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645458.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первая часть книги начинается чтением и объяснением отрывков из Остромирова евангелия, представляющего образцы древнеславянского языка, наиболее близкого к летописному и наиболее правильного в своих формах. Далее при объяснении всякий раз необходимо обращаться к отрывку, чтобы помнить связь речи, а не довольствоваться примерами, представленными в объяснении; где примеры собраны из многих, прежде прочитанных отрывков, там учащийся точно также проверяет эти примеры по отрывкам, или, что еще лучше, сам их отыскивает. Словом, - здесь необходимо как можно более самостоятельной работы. Вторая часть книги изложена исключительно по синтетическому методу. Упражнения, приложения к каждой статье, здесь состоят большей частью из отдельных фраз, который учащийся дополняет, вставляя слово в соответственной форме. Приведены некоторые новые подробности в статьях о наречии, о предлоге и союзе и по синтаксису.Жанр: Раритеты, учебная литература, грамматикаФормат: PDF
+Сборник составлен из статей, написанных богословами, представляющими разные христианские конфессии. Рассматриваются богословские основы примирения, его роль в повествованиях Ветхого и Нового Заветов, в святоотеческой и монашеской традиции и другие аспекты этой важнейшей и актуальной темы. Книга предназначена для специалистов по проблемам современной церкви, она будет (   Читать дальше...   )Жанр: ЭкуменизмФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39804855CBD1B71500F53A68479C7A6DBD975A62
+magnet:?xt=urn:btih:1FD3FCA8D822FA591D9F99E5A9F8DA325F5F0D67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -341,28 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032331   (645457) от 07.07.2016
+###  Публикация: 1032004   (648018) от 06.07.2016
 
-MinstreliX - Memoirs (2007) [FLAC|Lossless|tracks + .cue] <Neoclassical Power Metal>
+VA - Amazing Vocal Sound — Summer (2016) [MP3|320 Kbps] <Progressive House, House>
 
->>East Asian Music
->>Asian Rock, Metal (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645457.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Amiel 02:42
-02. Whispers in the Wind 04:52
-03. Moon Sickness 06:03
-04. To Immortality 04:58(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 1:03:14
+01. Calvin Harris & Rihanna — This Is What You Came For (Original Mix) (3:42)
+ 02. Disciples & David Guetta — No Worries (Original Mix) (3:28)
+ 03. DVBBS & Shaun Frank feat. Delaney Jane — La La Land (Extended Mix) (3:36)
+ 04. Flume feat. Tove Lo — Say It (Original Mix) (4:22)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 02:02:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A96DAFD4431CF371CAD9D2BAC747A80FD4CD7383
+magnet:?xt=urn:btih:DF0A24DC473579C9F11A51E860C1B93440625EB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,25 +306,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032366   (645455) от 07.07.2016
+###  Публикация: 1031840   (648017) от 06.07.2016
 
-Шпион / Spy (2015) HDRip [Unrated Cut] [AVO]
+Yusef Lateef - Yusef's Mood, Complete 1957 Sessions with Hugh Lawson (2008) 4CD, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648017.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Beauregard [03:36]
+02.O'Blues [09:12]
+03.Happyology [11:16](   Читать дальше...   )Жанр: Hard BopПродолжительность: 05:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4BD5DD94A4333CCA9780AD3034E415A8B01593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031916   (648016) от 06.07.2016
+
+Beyond Twilight - For The Love Of Art And The Making (2006) [APE|Lossless|image + .cue] <Heavy Metal, Prog Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  In the Eyes of my Soul (First Movement)    00:47
+02.  Creep Evil    00:59
+03.  Sleeping Beauty - The Journey    01:29
+04.  Purity    01:48(   Читать дальше...   )Жанр: Heavy Metal, Prog Rock, Symphonic RockПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A47D50892794E1AD91B528D8021B2DA6058B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032173   (648015) от 06.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 64 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Torrevado - Living In The Shuttle ( 1985 )
+02. David Lyme - Bambina ( Original Version 1986 )
+03. C. C. Catch - Stay ( 1986 )
+04. Laban - Jeg Ka' Li' Dig Alligevel ( 1982 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B6AAA733C47552D4907920BD12B30B103F0BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799364   (647989) от 25.06.2014
+
+Сарила: Затерянная земля / The legend of Sarila (2013) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далеко на севере лагерь эскимосов-кочевников находится под угрозой голода и вымирания. Шаман племени, Крулик, не в силах помочь, и людей охватывает отчаяние. Некоторые из них обретают надежду в древней легенде о далёкой Сариле — земле, спрятанной среди ледников, в которой не существует холода и голода. Легенда гласит, что только те, кто чист сердцем, могут попасть (   Читать дальше...   )Производство: КанадаЖанр: Приключения, СемейныйРежиссер: Нэнси СевардАктеры: Кристофер Пламмер, Рашель Лефевр, Дастин Миллиган, Тим Розон, Женевьев Бюжо, Джеймс Кидни, Тайрон Бенскин, Анджела Галуппо, Илайс Туфексис, Роберт ХигденПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B69A47F91FC12A0A02BBA3AF54C5EFE8A0ABC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799354   (647983) от 25.06.2014
+
+Оттенки серого / Shades of Gray (1997) DVDRip
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645455.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сьюзан Купер всю свою жизнь мечтала стать секретным агентом и даже устроилась работать в ЦРУ. Однако, дальше сотрудника самой низкой ступени ей так и не удалось продвинуться. Понимая, что осуществить свою мечту практически невозможно, она все-таки продолжает надеяться на лучшее и с нетерпением ожидает своего шанса. И вскоре судьба дарит ей такую возможность. Лучший (   Читать дальше...   )Производство: США / Chernin Entertainment, Feigco Entertainment, Twentieth Century FoxЖанр: Боевик, Комедия, КриминалРежиссер: Пол ФигАктеры: Мелисса МакКарти, Джейсон Стэйтем, Джуд Лоу, Роуз Бирн, Миранда Харт, Бобби Каннавале, Морена Баккарин, Раад Рави, Джессика Чаффин, Сэм РичардсонПеревод: Авторский А.ГавриловПродолжительность: 02:10:22
+Красивая, молодая художница, делающая портреты преступников для полиции, однажды знакомится с водителем грузовика, чей шарм и чувство юмора завоевывают ее сердце. И все бы ничего, если его не обвинили в преднамеренном убийстве. Художница оказывается перед ужасной дилеммой: может ли мужчина, которого она любит, быть Убийцей?Производство: США, Everest Pictures Inc.Жанр: Боевик, триллерРежиссер: Джаг Мундра/Jag MundhraАктеры: Кристофер Майкл, Венди МакДональд, Дэвид Бласс, Даг Джеффри, Джонни Джонсон III, Соня Коул, Моника Валлес, Кели О’Бирн, Блейк Бэйли, Том Райли, Ли Энн Беман, Кэти Шоуэр, Мэри Свенсон, Гранивиль’Дэнни’ Амес, Мишель Хельм и др.Перевод: Профессиональный (двухголосый, закадровый)Язык субтитров: ОтсутствуетПродолжительность: 01:37:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FC66BCBCE1D02B472F87ECD088EA02CFB2DC3BB
+magnet:?xt=urn:btih:66C6E703D3E6018B593174AD56FAA54362756336
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,34 +445,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 517975   (645454) от 02.07.2012
+###  Публикация: 799285   (647972) от 25.06.2014
 
-Henry Mancini - Trail Of The Pink Panther / След Розовой Пантеры (2011) [MP3|320 кб/с]<Score, OST>
+Учимся вместе: Руби и Йо-йо / Rubi (2011) WEB-DLRip [H.264/720p-LQ]  (Сезон 01-03, Серии 01-169 из 169)
 
->>Other Styles
->>OST
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645454.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Main Title (5:03)
- 2. The Easy Life In Paris – Long Version (2:56)
- 3. Salute To Balls (3:17)
- 4. The Bagman (2:19)
- 5. Scotland Yard (0:29)
- 6. In A Mist (2:16)
- 7. The Message (1:34)
- 8. One On One (1:21)
- 9. The Easy Life In Paris No. 1 (1:29)
- 10. Bruno’s Tune (1:19)(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 00:44:06
+Опрятная и аккуратная героиня мультипликационного фильма девочка по имени Руби, рассказывает маленьким зрителям об окружающем их мире. В доступной и увлекательной форме она учит правильно и грамотно соблюдать личную гигиену, помогать родителям по дому, ухаживать за своими игрушками. Маленький человечек, оказываясь в незнакомом для него мире, не знает как правильно (   Читать дальше...   )Производство: Китай / Hits for kidsЖанр: Мультсериал, Обучающий, Развивающий, ДетскийРежиссер: Ю Яньпин, Ян КвиренПерсонажи: Руби, Йо-йоПеревод: Одноголосый закадровыйПродолжительность: Серия по ~ 00:06:00 , ~ 00:07:00 (Третий сезон)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BA18428E0F1D0C97D60BBD46F0B77F3865B9710
+magnet:?xt=urn:btih:1291A2C74F336A8A510CF01EA5D8C0BACB1BA423
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,25 +471,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032190   (645453) от 07.07.2016
+###  Публикация: 799232   (647967) от 25.06.2014
 
-[ВАЗ 2010 -2111 -2112] (1986-2000) Электронное руководство по тюнингу
+Демонстрационный DVD-Video / DVD-Video: The Dolby Experience (2014) 2xDVD5
 
->>Автомобили
->>Автомобильные мультимедийные материалы
+>>Остальное
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645453.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Электронное руководство по тюнингу автомобилей ВАЗ десятого семейства: двигатель, трансмиссия, подвеска и др. Запустить через run.exeФормат: EXE
+Продолжительность: 01:24:34 +
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16E8D9DF347F6AA220514BF8B2604CB1F6067D1F
+magnet:?xt=urn:btih:665904D4E7EF4ABBF9601B83AD13BF41D5C7DC98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,28 +497,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032339   (645451) от 07.07.2016
+###  Публикация: 906016   (647960) от 07.06.2015
 
-VA - Radio 538 Hitzone 78 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
+Сегодня. Итоговая программа (07.06.2015) SATRip
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645451.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1:
-01. Justin Timberlake - Can't Stop The Feeling!  (3:58)
-02. Kungs vs. Cookin' On 3 Burners - This Girl  (3:17)
-03. Enrique Iglesias feat. Wisin - Duele El Corazon  (3:22)(   Читать дальше...   )Тип издания: Box Set, 2CDПроизводство: Sony Music B.V. - 88985332742Жанр: Top 40, Pop, RockПродолжительность: 02:32:03
+«Сегодня. Итоговая программа» — еженедельная информационно-публицистическая программа. Ее концепцию в нескольких словах можно определить как «репортерский взгляд на главные события недели». Подводя итоги, корреспонденты программы стремятся не только не упустить всех деталей и обозначить различные точки зрения на проблему, но и найти в теме оригинальный поворот, ответвление, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:48:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FACFAF88DCD12A784ADFA1FAE10A57ACB3CBE4B
+magnet:?xt=urn:btih:EF1E91BF20D91EBD5A85E130027657E535758CE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,25 +523,194 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032470   (645450) от 07.07.2016
+###  Публикация: 905733   (647959) от 07.06.2015
 
-AutoRuns 13.61 Portable [Ru/En]
+Scott LaFaro - Pieces Of Jade (2009) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hear A Rhapsody [06:17]
+02. Sacre Bleu [06:11]
+03. Green Dolphin St [06:36]
+04. Sacre Bleu [06:18](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADF020BC1395F747C97921EBC83566AE3C202ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906082   (647958) от 07.06.2015
+
+В центре событий с Анной Прохоровой (07.06.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Политика, общество и все самое необычное и неожиданное за неделю - в этой программе.
+
+Вечер воскресенья - время, когда человек морально и физически готовится к началу новой трудовой недели. Именно с этих позиций выстраивает свою программу ее коллектив и ведущая Анна Прохорова. Каждую неделю в мире происходит множество событий – и не только в высоких сферах политики (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FCEBD983D6767C1E5DB1F0F1BDC6F0756FC09E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905825   (647957) от 07.06.2015
+
+Secrets Of The Sky - Pathway (2015) [MP3|320 кб/с]<Post-Metal, Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647957.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I
+2. Three Swords
+3. II
+4. Angel In Vines(   Читать дальше...   )Жанр: Post-Metal, Doom Metal, Progressive MetalПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C3D9AA587D886322C00831CF708035C706D52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906064   (647956) от 07.06.2015
+
+Laura Teller - Three Sides To Everything (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeremy (5:50)
+02. City Livin' People (3:52)
+03. Stillness Of A Kiss (3:23)
+04. Two Steps Closer (4:01)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF18D7C8141E1873B0C5AB0AD1B9EA41ADA721D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141685   (647955) от 11.06.2017
+
+Проекты - VideoHive - Dynamic Opener - 19622485 [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647955.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Dynamic Opener» включает два современных шаблона для After Effects. Они отлично подойдут для создания динамичного вступительного ролика.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A09D8E42739CBC06172CF0759DF9DAC914AD9CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141674   (647954) от 11.06.2017
+
+Заключенная / Besetment (2017) WEB-DLRip [H.264/720p-LQ][AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аманда - простая девушка из американской глубинки. Однажды она теряет работу, и ей приходится срочно начать поиски подходящей вакансии. Спустя некоторое время, она находит работу в маленьком городе, находящемся неподалёку от крупной автомагистрали. Аманда устраивается в местный мотель, даже не подозревая, через какие ужасные испытания ей предстоит здесь пройти. Вскоре (   Читать дальше...   )Производство: СШАЖанр: Триллер, УжасыРежиссер: Брэд ДугласАктеры: Эбби Уатен Мэрлин Мэйсон Майкл Мейер Max Gutfreund Грег Джеймс Ханна Бэйрфут Линдсэй Клейн Дуглас Роу Соня Дэвис Джон Т. Вудс ...Перевод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:16Реклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5663FEE9FE0C43161563947A150834ED2F618307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141849   (647953) от 11.06.2017
+
+Marmoset Toolbag 3.02 (х64) [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645450.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AutoRuns - утилита для контроля автозагрузки программ. Она позволяет увидеть, какие программы настроены на запуск в процессе загрузки или входа в систему, причем эти программы отображаются именно в том порядке, в каком система Windows обрабатывает их. Это относится к программам, находящимся в папке автозагрузки или прописанным в разделах реестра Run, RunOnce и других. (   Читать дальше...   )Язык интерфейса: Русский (druc), Английский
+Toolbag - небольшой, удобный и полноценный редактор материалов и инструмент для быстрого представления трехмерных моделей в реальном времени. Toolbag поможет упростить и ускорить рабочий процесс трехмерным моделлерам и даст возможность без труда эффектно отобразить модели, наборы текстур и анимации - без долгой возни с шейдерами или временем рендера.
+
+Программа разработана (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28056DBB71027F54D7151D8CDD166353A6FF2011
+magnet:?xt=urn:btih:D306B73C8ED5D35364E15BB1248B4BE37E5B0B9F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,212 +718,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032327   (645449) от 07.07.2016
+###  Публикация: 1141567   (647952) от 11.06.2017
 
-Vaya Con Dios - Live 2005 & 2006 (2016) TVRip>DVD5
+Человек-комар / A Mosquito-Man (2016) WEB-DLRip [H.264/1080p-LQ] [AVO, AD]
 
->>Театр и Музыкальное видео
->>Концерты (DVD)
+>>След.
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645449.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник из двух концертов Vaya Con Dios 2005-2006 гг.AVO Session (Live 03.11.2005)
-01. Take Heed
-02. La Llorona
-03. Je L'ame Je L'ame(   Читать дальше...   )Жанр: Jazz/BluesРежиссер: Roli BaerlocherАктеры: Vaya Con DiosПеревод: ОтсутствуетПродолжительность: 01:53:45 (01:06:05 + 00:47:40)
+У Джима Кроули день не задался с самого утра. Его уволили с работы, конфисковали его автомобиль и ему изменила жена. Джим полностью раздавлен. Cлучайно он встречает одного ученого, который предлагает ему пропустить по стаканчику и забыть о проблемах. Спустя некоторое время, Джим приходит в себя на помойке и понимает, что обладает сверхъестественными способностями. (   Читать дальше...   )Производство: США, Big Screen Entertainment GroupЖанр: Фантастика, Триллер, Комедия, ПриключенияРежиссер: Майкл МанассериАктеры: Рики Уэйн, Монти Бейн, Фалах Кэннон, Кимберли Кейтс, Майкл Манассери, Дэнни Муни, Джордан ТровиллионПеревод: Авторский одноголосый, закадровый - А.Важенин (BadBajo)Озвучка / Автор перевода: BadBajoСубтитры: Арабские (неотключаемые)Продолжительность: 01:19:35Реклама: Текстовые вставки рекламы какого-то арабского трекера (не моя).
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D8146ABB9467694250EC2A71E7DFBADD7AD16FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032421   (645448) от 07.07.2016
-
-Экшены - GraphicRiver - Photo Edges Actions for Photoshop Bundle [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет содержит в общей сложности 168 экшенов, которые создают круто выглядящие края, границы вокруг изображения, эдакие псевдо-рамки. Экшены универсальны и гибки в применении так как их можно использовать с файлами любого размера, ориентации и разрешения. Автор приводит ссылку на видеоурок в Ютубе, но, к сожалению она не рабочая. Но в каждой папке есть урок (   Читать дальше...   )Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165D0C5F3C68EC5B1AEE403F5AA534F16A24B70C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032428   (645447) от 07.07.2016
-
-Резня в парке аттракционов / The Funhouse Massacre (2015) HDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специально для Хэллоуина парк аттракционов сделали стилизованным для такого праздника, оборудовав всеми ужасными атрибутами. Народ с удовольствием посещает аттракционы и не догадывается, что совсем скоро их веселью придет конец. Ведь из специальной тюрьмы для психопатов удалось сбежать шестерым самым жестоким и неадекватным преступникам. Вскоре они приходят в парк (   Читать дальше...   )Производство: СШАЖанр: Ужасы, КомедияРежиссер: Энди ПалмерАктеры: Роберт Инглунд, Джер Бернс, Скотти Томпсон, Мэтт Энджел, Чести Бальестерос, Клинт Ховард, Кортни Гейнс, Эрик Чаварриа, Марс Крейн, Кэндис Де ВиссерПеревод: Одноголосый закадровый, любительский (Хихидок)Продолжительность: 01:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30E19A0E033D12E545C8C05503FE8CDCBB9346B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032382   (645446) от 07.07.2016
-
-Проекты - VideoHive - Elegant Fashion [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elegant Fashion - элегантный модный проект в качестве интро для ваших фильмов, рекламных роликов, и просто быстрого энергичного слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F3ABCD6B18B0B76129F64C3222492A75188500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032336   (645445) от 07.07.2016
-
-Мартин Гарднер | Загадки сфинкса и другие математические головоломки (2015) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед читателем — впервые переведенная на русский язык работа выдающегося американского математика и популяризатора науки Мартина Гарднера. Автор как всегда остается верен своему уникальному стилю, который характеризуют яркость, доходчивость, тонкий юмор, блеск мысли, постоянное вовлечения читателя в самостоятельное творчество. В книге представлены занимательные (   Читать дальше...   )Жанр: Головоломки. Ребусы. КроссвордыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD6A4F83AC82FD2127B844FAC4FC0BA1458B891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032393   (645444) от 07.07.2016
-
-Проекты - VideoHive - Liquid Logo Reveal - 6941467 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Liquid Logo Reveal - шейповая жидкостная анимация для показа вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BBD562EBE02F0FBBA11806A03D7A9C704FBEDCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031859   (645443) от 07.07.2016
-
-Билл Брайсон | Краткая история почти всего на свете (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645443.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Краткая история почти всего на свете» Билла Брайсона — самая необычная энциклопедия из всех существующих! И это первая книга, которой была присуждена престижная европейская премия за вклад в развитие мировой науки имени Рене Декарта.
-По признанию автора, он старался написать «простую книгу о сложных вещах и показать всему миру, что наука — это интересно!».
-Книга (   Читать дальше...   )Жанр: Научно-популярное изданиеПродолжительность: 29:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CDEF626B7C76A51E202CAB8DEE0435061778E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032384   (645442) от 07.07.2016
-
-Проекты - VideoHive - Summer [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Summer - хорошо организованный, легкий проект с 17 медиа-заполнителями на тему "Лето"Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652892EF58B71620905998D354C7237718E30E33
+magnet:?xt=urn:btih:5B3EAC036304D9BBE64BACDD111CC74DD7D3067D
 ```
 
 https://mybot314.ru/tekegram_catalog/

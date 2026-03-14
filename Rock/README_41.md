@@ -1,3 +1,61 @@
+###  Публикация: 1149311   (601159) от 10.07.2017
+
+Haley & Alexis - All In (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbeat (03:22)
+02. Kisses Never Lie (03:33)
+03. Firestorm (03:08)
+04. Bruises Fade (03:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5343310B47F2F7BE557C87C4D9DE45F87E7ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547563   (600958) от 01.05.2022
+
+Unitopia - More Than A Dream – The Dream Complete (3CD) (2017) [MP3|320 Kbps] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Outsider (Originally Released on The Stories of H. P. Lovecraft) [00:11:51]
+02. Decameron Date 6 Tale 9 (Originally Released on Decameron - 10 Days in 100 No... [00:20:05]
+03. Haunted Storm (Previously Unreleased) [00:06:41]
+04. Ride (Dance mix) [00:05:43](   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 3 CD, 03:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666F89EF2D0CE21FCCCD94347766AF3B4A37CA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547343   (600266) от 02.05.2022
 
 Archive - Call To Arms And Angels (2022) 2CD [MP3|320 Kbps] <Progressive Rock, Trip Hop>
@@ -694,64 +752,6 @@ The One-Eyed Show - Brothers, Cousins And Fools (2014) [MP3|320 кб/с]<70's Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B939A41F766877190F20594D5817E1215AE15D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917577   (589102) от 12.07.2015
-
-Jimi Hendrix - It’s Going To Be A Bit Loud (1969) [MP3|320 кб/с]<Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don’t Live Today [11:25]
-02. Spanish Castle Magic [6:09]
-03. Hey Joe [7:08]
-04. Voodoo Child [9:50](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F01E3E3DD8B6CD951FCF22B966DFBC7AF15969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917674   (588636) от 13.07.2015
-
-The Shadows - The Absolutely Essential 3CD Collection (2014) [MP3|320 кб/с]<Instrumental Classic Rock, Surf Rock, Oldies Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588636.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Apache [02:56]
-02. Feelin' Fine [01:54]
-03. Don't Be A Fool (With Love) [02:07](   Читать дальше...   )Жанр: Instrumental Classic Rock, Surf Rock, Oldies Pop RockПродолжительность: 02:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41EE13F8C0A895A5068FED1F68A2416E7AC9B65
 ```
 
 https://mybot314.ru/tekegram_catalog/

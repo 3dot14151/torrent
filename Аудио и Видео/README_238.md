@@ -1,3 +1,32 @@
+###  Публикация: 1495318   (234146) от 13.10.2021
+
+Ночные Снайперы - 1993, vol.1 (2021) [AAC|~316 Kbps] <Rock, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. иду одна (2:22)
+02. гости мои (2:32)
+03. лето (2:36)
+04. по твоей земле (3:25)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73D16AF6F8B534B2C5381239E7E1E5E2283CE34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498718   (234134) от 13.10.2021
 
 VA - Vanlife Chill, Vol. 7 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
@@ -716,35 +745,6 @@ VA - Lounge Tribute, Vol. 4 (2010) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:705A35A59FA1E4EF1AA0870F5FB24ABDCFAECD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530611   (233240) от 12.02.2022
-
-VA - Lounge Tribute, Vol. 6 (2012) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kheops & the Cats - Someone Like You (5:36)
-02. People of the Sun - Skinny Love (4:12)
-03. Alien on Mars - Paradise (4:28)
-04. Dj Kodi - Feel So Close (4:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF863D6967C321FDA020AAC89972D167410CFA07
 ```
 
 https://mybot314.ru/tekegram_catalog/

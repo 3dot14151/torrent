@@ -1,3 +1,32 @@
+###  Публикация: 1029942   (675005) от 30.06.2016
+
+VA - The Sweet Lounge Vol.7: Lounge in Naples (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Cardillo - Shiraz
+02. Andrea Cardillo - Another Direction
+03. Andrea Cardillo - Asiatic Girl
+04. Brass - Alley Cat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3347E5FB9908E00A87FE7F3DE48BFBD72E14B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030494   (675000) от 30.06.2016
 
 VA - Digitize Just A Dream (2016) [MP3|320 Kbps] <Trance, Energy, Melodic>
@@ -715,35 +744,6 @@ VA - Country Fever (2016) [MP3|320 Kbps] <Blues, Folk, Gospel, Soft Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:222B8CB9824CED3D8FF57DA5D929906306F17F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291182   (672210) от 23.03.2019
-
-VA - Cafe del Mar: Best of the Best (2019) [MP3|320 Kbps] <Lounge, Future-Jazz, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672210.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bonobo - Noctuary
-002. Lux - Northern Lights
-003. Salt Tank - Sargasso Sea
-004. Paco de Lucía - Entre Dos Aguas (Remastered 2014)(   Читать дальше...   )Жанр: Lounge, Future-Jazz, Chillout, Downtempo, Easy-ListeningПродолжительность: 09:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0771DABB8B9848AC8FF968984E1F947FFADBE24F
 ```
 
 https://mybot314.ru/tekegram_catalog/

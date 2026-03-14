@@ -1,3 +1,90 @@
+###  Публикация: 1317201   (502622) от 30.07.2019
+
+Jean-Loup Longnon & His New York Orchestra (1988) Atlantic Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment's Notice/Vous Allez Jouer Du Bop (Now You're Going To Play Bop) (6:32)
+02. Nathalie…Un Matin (Nathalie…One Morning) (7:02)
+03. Torride (9:09)
+04. Body And Soul (6:43)(   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Big BandПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A4CEF1CCBBE20E820AA8E08F4B66C3B2B3FA92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563908   (502614) от 16.07.2022
+
+Lee Konitz - Chicago'N All That Jazz (1975) 1989, Lester Recording [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Own Best Friend [3:58]
+02. Razzle Dazzle [4:13]
+03. Loopin' de Loop [4:02]
+04. Funny Honey [5:06](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1747A0F7137CF2E2AC9F5C7DA6A6A675FFBAB272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934555   (502534) от 05.09.2015
+
+Jessi Teich - Twisted Soul (2015) [FLAC|Lossless]<Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Haunting
+02. Think You Do
+03. Clap Hands
+04. Carnival(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1EA2035EA1C6C82BE3E7A304B4AE971436884C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934547   (502533) от 05.09.2015
 
 Claudia Morris - Secret Love (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
@@ -661,91 +748,6 @@ Bireli Lagrene - Acoustic Moments (1991) Blue Note [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33B7441F2590A143795793E59430E2F9FBDE7598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935634   (498509) от 09.09.2015
-
-Rusty Bryant - Fire Eater (1971) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Eater [09:37]
-02. Free At Last [08:37]
-03. The Hooker [09:31]
-04. Mister S. [07:38]Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C98D6A4BE7CE11FEAAB3FD9B185357D262A2FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318161   (497812) от 04.08.2019
-
-Denny Zeitlin - Live at Maybeck Recital Hall, Vol.27 (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues on the Side [3:48]
-02. The Girl Next Door [4:21]
-03. My Man's Gone Now [9:05]
-04. Lazy Bird [3:01](   Читать дальше...   )Жанр: Post-Bop, Hard Bop, Piano JazzПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA1D6E701EC845F8698591D1C67CCB970D544ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564872   (497736) от 21.07.2022
-
-Max Roach with The New Orchestra of Boston and The So What Brass Quintet (1993, 1995) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Festival Journey [50:51]
-02. Ghost Dance [12:13]Жанр: Hard Bop, Post-Bop, Third StreamПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149A4E8CFE2EE00EEC60E8A648254A69C9A95653
 ```
 
 https://mybot314.ru/tekegram_catalog/

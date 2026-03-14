@@ -1,3 +1,32 @@
+###  Публикация: 1776291   (29124) от 31.01.2025
+
+Secret Service - The Lost Box (2012) [AAC|320 Kbps] <Electronic, Pop Rock, Hi NRG, Synth-pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satellites
+02. If I Do
+03. Different
+04. Eyes Are Talking(   Читать дальше...   )Жанр: Electronic, Pop Rock, Hi NRG, Synth-popПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68911E71C669E17575239848D2633F5E1A4A51D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776242   (29118) от 31.01.2025
 
 Secret Service - When The Night Closes In (1985) [AAC|320 Kbps] <Electronic, Pop, Synth-pop, New Wave>

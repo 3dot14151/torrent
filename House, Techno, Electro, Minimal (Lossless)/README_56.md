@@ -1,3 +1,90 @@
+###  Публикация: 1612540   (207151) от 17.02.2023
+
+VA - 80s & 90s Remixed - The Dance HIT Workout (2023) [FLAC|Lossless|WEB-DL|tracks] <Funky House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Disco Boys - Around the World (DAZZ Remix) (2:38)
+02. Svniivan - Wonderwall (2:11)
+03. Morado & Schwarz - Dance with Somebody (Teddy Cream Remix) (2:54)
+04. Perfect Pitch - Boten Anna (3:09)(   Читать дальше...   )Жанр: Funky House, DanceПродолжительность: 01:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031DC77B62D77805B57FAAED54C30B6FE750C7C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652893   (206384) от 13.08.2023
+
+Moby - Resound NYC (2023) [FLAC|Lossless|tracks + .cue] <Electronic, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Heart (feat. Gregory Porter)
+02. Extreme Ways (feat. Dougy Mandagi)
+03. South Side (feat. Ricky Wilson)
+04. Flower (Find My Baby)Жанр: Electronic, HouseПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F243CFB0A50B1FFD7838633A01B20DA1E41E7AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593663   (206130) от 01.03.2023
+
+VA - So you... (Mixed and compiled by Kaatee) (2022) [WavPack 2.0|48/32|image +.cue|WEB-DL] <Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mikhail Kobzar & Fillimonov - Morning Sara [04:12]
+02. YoD. Beresnev - Bed-Hero [03:24]
+03. Leonardo Gonnelli & Forrest. - Back To You [02:52]
+04. IamX, Leefa The Dj - Touch Your Heart [04:57](   Читать дальше...   )Жанр: Deep House, TechnoПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DB871B437BFFE6EB82C2669B456224D98B514C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653417   (205492) от 16.08.2023
 
 VA - File Under: Trance (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
@@ -647,93 +734,6 @@ Hot Natured - Different Sides Of The Sun (2013) [FLAC|Lossless]<Tech House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F76084B04A8C9E953D9E6A846A451E31A129C4E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591295   (187501) от 17.11.2022
-
-Hernan Cattaneo & Soundexile - Future Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hernán Cattáneo & Soundexile - Glide (Future Mix)
-02. Hernán Cattáneo & Soundexile - Flair (Future Mix)
-03. Hernán Cattáneo & Soundexile - Atrial Rhythms (Future Mix)
-04. Hernán Cattáneo & Soundexile - Solo (Future Mix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83B46704EE07E2C9B6E1E4DCB0AAF22EA1FB81F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591135   (187483) от 17.11.2022
-
-George Kopaliani - Nostalgic Road (2020) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars (5:16)
-02. Sunset (4:11)
-03. Nostalgia (4:59)
-04. Alone (4:27)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18BD19A09672060C46EB44ACC9877FC54EEF6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663449   (186834) от 21.09.2023
-
-Dj W!ld - W!Ldbeats 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oui Non [00:07:28]
-02. Suite de Coeur [00:06:11]
-03. Back To Africa [00:06:17]
-04. Disco And Shit [00:08:13](   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FF626E0A0611733DB095EC5F904F47E688C99F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1251824   (413351) от 03.10.2018
+
+Sue Foley - The Ice Queen (2018) Deluxe Edition [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come To Me (03:52)
+02. 81 (05:34)
+03. Run (04:03)
+04. The Ice Queen (06:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B16B144E0088A28B07F3724E845170ABD6A3AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168022   (412903) от 22.09.2017
+
+Bill Leslie - Diggin' the Chicks (1962) 2004, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Night Irene [05:24]
+02. Angel Eyes [04:51]
+03. Madge [04:35]
+04. Margie [04:30](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88163AF4D39F6759C6D24A352F0AFCB51B352B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168020   (412899) от 22.09.2017
+
+Terry Gibbs - Hootenanny My Way (1963) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joshua [03:25]
+02. John Henry [03:23]
+03. When Johnny Comes Marching Home [04:21]
+04. Michael [04:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CA2917C12384A91D7CECCD55DC74229E4AD168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168017   (412896) от 22.09.2017
+
+Johnny Smith - Plays Jimmy Van Heusen (1955) 2017, Warner [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. But Beautiful [02:54]
+02. Swinging On A Star [02:39]
+03. I Could Have Told You [02:54]
+04. It Could Happen To You [02:09](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924A5C309A88000139DEDD00EC19AC6209BF6AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325489   (412807) от 15.09.2019
+
+Deborah Franciose - Gypsy Heart (1993) North Star Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zephyr [3:52]
+02. Serengeti [4:32]
+03. Patty Joe [4:17]
+04. Gypsy Heart [3:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296BDCE9084F3B6445EBFEB16C8FF8FB0ABDC520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325493   (412805) от 15.09.2019
+
+Ernie Andrews - Jump For Joy (2003) HighNote [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Never Fall in Love with Me [6:36]
+02. Danger Zone [5:31]
+03. Sweet Lorraine [5:07]
+04. You Are Too Beautiful [7:04](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20E97B9EFD578295064962AE3E8FDB05E2A49A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325487   (412803) от 15.09.2019
 
 Anders Widmark Trio - Visor (2010) Blue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool>
@@ -569,180 +743,6 @@ Mitchel Forman - Harvest Song (1997) /Jazzline/[FLAC|image+.cue]<Jazz Fusion, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69C1E1CCD5CAA85BBAA36665CF5C68A3A500217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948334   (411788) от 20.10.2015
-
-Ray Bryant - Trio (1956) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cubano Chant [03:07]
- 02.Off Shore [03:57]
- 03.Well, You Needn't [03:19]
- 04.Cry Me A River [03:52](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379BCA055470FBF14180D86181B5ABDBE69A7410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711485   (411720) от 16.10.2013
-
-Joe Cocker - Joe Cocker Gold (2006) 2CD [APE|Lossless]<Rock, Blues Rock, Soft Rock, Classic Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01.Feelin' Alright
-02.With A Little Help From My Friends
-03.Delta Lady(   Читать дальше...   )Жанр: Rock, Blues Rock, Soft Rock, Classic RockПродолжительность: 02:24:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302E75DB38FFE028324A03D1E11E757DB7C64BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948604   (411612) от 20.10.2015
-
-Johnny "Hammond" Smith Trio plus Seldon Powell - Black Coffee (1962) /2012, Universal/[FLAC|tracks+.cue]<Soul-Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Black Coffee [04:20]
- 02.Monterey Theme [03:08]
- 03.I Remember Clifford [04:19]
- 04.Far Away Places [07:17](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C5CEFDD0EFEBA4FDFE1ADBE66984B9120F656C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948255   (411605) от 20.10.2015
-
-Scott Hamilton - plays with The Dany Doriz Caveau De La Huchette Orchestra (2014) /Fremeaux & Associes/[FLAC|tracks+.cue]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Slipped Disc [04:25]
- 02.Dropsy [05:14]
- 03.Cotton Tail [04:35]
- 04.Amen [07:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A76F9848C97FD274527123F5A15C76637F1D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948328   (411604) от 20.10.2015
-
-Johnny Hammond - Gambler's Life (1974) /2013, King Records/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Gambler's Life [06:03]
- 02.Rhodesian Thoroughfare [06:21]
- 03.This Year's Dream [06:25]
- 04.Star Borne [08:21](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hammond OrganПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E33B4DF130B8E0235D949A59D25454B5D3552D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252246   (411313) от 04.10.2018
-
-Donny McCaslin - Fast Future (2015) Greenleaf Music [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast Future [5:54]
-02. No Eyes [5:56]
-03. Love and Living [9:30]
-04. Midnight Light [6:39](   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8EDD6E7174351CE3D73A3E80C94E88E1F4DA333
 ```
 
 https://mybot314.ru/tekegram_catalog/

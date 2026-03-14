@@ -1,3 +1,32 @@
+###  Публикация: 1750317   (43037) от 19.09.2024
+
+VA - Music News For Forum vol.024 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43037.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Диана Астер - Больная любовь (01:46)
+ 002. Brandon Stone - Ты целая Вселенная (03:00)
+ 003. Carine - Nobody Like Us (02:21)
+ 004. Cheat Codes feat. Julia Church - Modern Tragedy (03:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:649F16CF14991B56492C764425BA86DCC17BE1FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750279   (42979) от 20.09.2024
 
 VA - compilation musical kaleidoscope part 2 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone>
@@ -715,35 +744,6 @@ VA - Хіти Дня в Україні (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A0C882B587D9CFDCA966CB3AF6A2BACA5FD004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757477   (39088) от 27.10.2024
-
-VA - Musical kaleidoscope part 9 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Emotionel
-02. Sisco Le Voyageur - Bella N°3
-03. Цифеi - Tarsonis
-04. Jumanov - Rain(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C28DB53674291AF0DFA08BA2D7D4E3572646E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

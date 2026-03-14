@@ -1,3 +1,90 @@
+###  Публикация: 1160797   (471988) от 26.08.2017
+
+Dave Brubeck featuring Paul Desmond - St. Louis Blues (1959, 1962) 2003, Jazz Selection [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Louis Blues [05:42]
+02. Nomad [06:13]
+03. Thank You [05:52]
+04. Brandenburg Gate [04:30](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439B811456EF5A63EEC6CCD195728FDD3747F8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940089   (471636) от 23.09.2015
+
+Jimmy Woods - Awakening !! (1961/1962) /1995, OJC/[APE|image+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Awakening [04:11]
+02.Circus [04:26]
+03.Not Yet [08:00]
+04.A New Twist [03:41](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1A18E1D9A62F328133FBFDDE37A6C39010F16B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939724   (471633) от 23.09.2015
+
+Gil Evans Orchestra - Giants Of Jazz (1957-1959) /1994, Giants Of Jazz/[FLAC|tracks+.cue]<Post-Bop, Modern Big Band, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Manteca [05:20]
+02.'Round Midnight [04:05]
+03.Lester Leaps In [04:20]
+04.Django [08:07](   Читать дальше...   )Жанр: Post-Bop, Modern Big Band, CoolПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBFAA201AE3F9474A57DE324613ABFD3A1C62627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940102   (471630) от 23.09.2015
 
 Shelly Manne and His Men - Septet and Quintet Sessions 1951-1958 (2008) (3CDs) [FLAC|tracks+.cue]<Jazz, Bebop, West coast jazz, Third Stream, Fusion>
@@ -681,93 +768,6 @@ The Alan Broadbent Trio - Pacific Standard Time (1995) /PAR Media Music/[FLAC|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C344F517D9B3796FDA1C7071A4B3EF9884EF566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940379   (469155) от 24.09.2015
-
-Louis Armstrong - Hear Me Talkin' To Ya (1995) /Castle Communications/[FLAC|tracks+.cue]<New Orleans Jazz, Dixieland, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Weary Blues [03:04]
-02.Muskrat Ramble [02:36]
-03.Wild Man Blues [03:15]
-04.St James Infirmary [03:17](   Читать дальше...   )Жанр: New Orleans Jazz, Dixieland, Vocal JazzПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D06982213C364662A316970FA5CB2F629E146CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940426   (469147) от 24.09.2015
-
-Cannonball Adderley - Sophisticated Swing The EmArcy Small Group Sessions [FLAC] (1958) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Bimini (Adderley) 3:40
-02. Sermonette (Adderley, Hendricks) 3:36
-03. Hoppin' John (Adderley) 2:16(   Читать дальше...   )Жанр: Hard Bop Jazz, Soul Jazz, Saxophone JazzФормат: 2 × CD, CompilationПродолжительность: 02:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5FE260FB8139C95A1609EE00A3B7B53D15830A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058417   (468836) от 01.10.2016
-
-Chuck Loeb - Unspoken (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cotton Club (Feat. Jeff Lorber)
-02. Natural Light (Feat. Andy Snitzer)
-03. Unspoken (Feat. Brian Culbertson)
-04. Happy Hour (Feat. Mitchel Forman)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962EE907BA4800CAADEA8CCB752F9A87B60340EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

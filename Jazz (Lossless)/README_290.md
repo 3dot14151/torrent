@@ -1,3 +1,89 @@
+###  Публикация: 1677370   (150516) от 18.11.2023
+
+VA - Acid Jazz Classics, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Men 4 Soul - Operator (6:31)
+02. Anduze - How To Love A Good Man (3:33)
+03. Jerome van Rossum - Truth (4:29)
+04. Jestofunk - Disco Queen (3:21)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0498A0AEB2A03F06132821D3E6339FFC1658C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086699   (150452) от 25.12.2016
+
+Casiopea - Made in Melbourne (1994) Pioneer[FLAC|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fightman [05:06]
+ 02.Passionate Voltage [03:10]
+ 03.Final Chance [03:53]
+ 04.New History [04:49](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B5BA535AC34218790D3E2AF8203D01ACE8B2CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271402   (150434) от 23.12.2018
+
+Billy Harper Quintet - Live on Tour in the Far East Vol. 3 (1995) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soran-Bushi-B.H. [23:47]
+02. Call of the Wild and Peaceful Heart [20:48]
+03. Cry of Hunger [31:39]Жанр: Post-BopПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28ACB3EAF952B3FDA4B4F38BE1E17E9043DEF118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271397   (150430) от 23.12.2018
 
 Billy Harper Quintet - Live On Tour In The Far East, Vol. 1 (1992) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -657,93 +743,6 @@ Terence Blanchard & Donald Harrison - New York Second Line (1985) Concord Jazz [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94865D61ADC980CD1AC86F6534C3E7CBE0F01309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678053   (147914) от 20.11.2023
-
-Lee Morgan - Tom Cat (1964) 1990, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Cat [9:45]
-02. Exotique [9:33]
-03. Twice Around [7:35]
-04. Twilight Mist [6:57](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C62CEE7154C19F8C609D971829BE3029C98159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678057   (147891) от 20.11.2023
-
-Stefon Harris - African Tarantella: Dances With Duke (2006) Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thanks for the Beautiful Land on the Delta [6:03]
-02. Portrait of Wellman Braud [6:00]
-03. Bourbon Street Jingling Jollies [3:55]
-04. Sunset and the Mocking Bird [5:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBE05F4167DF3872C30B73E46A15832B95AD4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271929   (147804) от 25.12.2018
-
-Confusion Project - Primal (2018) Soliton [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Old Oak
-02. Primal
-03. Monologue I
-04. Into The Forest(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B34294DC14A2B73129612F1E0376E8B55E7DCFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

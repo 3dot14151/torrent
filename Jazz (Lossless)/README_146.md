@@ -1,3 +1,90 @@
+###  Публикация: 1044220   (567566) от 19.08.2016
+
+Rez Abbasi - Bazaar (2006) [FLAC|Lossless|tracks + .cue] <Fusion, Indian Classical, Modal Music>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bazaar (Abbasi) - 7:34
+02. Leather (Abbasi) - 6:02
+03. Thin Elephant (Abbasi) - 9:08
+04. Life Goes (Abbasi) - 8:58(   Читать дальше...   )Жанр: Fusion, Indian Classical, Modal MusicПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4AA9AE9CBDD26CEC30BC02FE72CA42A139E559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152264   (567505) от 22.07.2017
+
+Yusef Lateef - The Golden Flute (1966) 2004, Universal [APE|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road runner [04:48]
+02. Straighten up and fly right [03:29]
+03. Oasis [04:27]
+04. (I don't stand) A ghost of a chance with you [04:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994DE713EF61FE5B1DAA2FB2D1C21D210B699F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152247   (567503) от 22.07.2017
+
+Shirley Scott - Blue Seven (1961) 2000, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Seven [06:51]
+02. How Sweet [07:40]
+03. Don't Worry 'Bout it Baby, Here I Am [06:46]
+04. Nancy (With The Laughing Face) [05:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4014693C96AA2D84C6F8F9971778FA12A1CF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555661   (567491) от 05.06.2022
 
 Maynard Ferguson - The Complete Roulette Recordings Of The Maynard Ferguson Orchestra (1958 - 1961) 10CD, 1994, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Big Band>
@@ -672,93 +759,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77433F2E973652AD63F24DF27D25F1A3FB5D740B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152782   (563746) от 24.07.2017
-
-Bobby Jaspar - Three Classic Albums Plus (1956, 1957) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563746.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Bag's Groove [04:47]
-02. Memory Of Dick [05:38]
-03. Milestones [05:55](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D9573E3676D0F2F347BCD525DC94956EA94E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152777   (563745) от 24.07.2017
-
-Milt Jackson - Quartet (1955) Remaster, 2013, Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonder Why [05:26]
-02. My Funny Valentine [04:41]
-03. Moonray [05:06]
-04. The Nearness Of You [04:05](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769C291230E3431E80BD358400F82ED0C2541F17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152548   (563742) от 24.07.2017
-
-Miramode Orchestra - Tumbler (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Future Jazz, Leftfield>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tumbler (feat. Mara von Ferne) (4:35)
-02. Break Loose (feat. Mara von Ferne) (3:59)
-03. The Sphere (5:02)
-04. Mice in Kindergarten (5:41)(   Читать дальше...   )Жанр: Electronic, Future Jazz, LeftfieldПродолжительность: 00: 41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E0BCFEF4378DD27C2C7FAB78DB9B6569B58462
 ```
 
 https://mybot314.ru/tekegram_catalog/

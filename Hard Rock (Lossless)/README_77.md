@@ -1,3 +1,120 @@
+###  Публикация: 1570542   (207882) от 26.07.2023
+
+H.E.A.T - 9 Studio Albums (2008-2022) 14xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа H.E.A.T, играющая в стиле Melodic Hard Rock возникла в январе 2007 года в результате объединения двух шведских групп Dream и Trading Fate. В 2008 году выпустили дебютный альбом «H.e.a.t» в который вошли 13 треков.
+После долгих летних гастролей по Швеции в 2009, они впервые отыграли концерт в Японии — на фестивале LOUD PARK, после чего второй год подряд участвовали (   Читать дальше...   )2008 - H.E.A.T
+2010 - Freedom Rock
+2012 - Address The Nation
+2014 - Tearing Down The Walls(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 11:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D909BE28303844F0BB309442F25FB1500EC0414F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652481   (206477) от 12.08.2023
+
+Suzi Quatro & KT Tunstall - Face To Face (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine A Light [00:03:23]
+02. Face To Face [00:03:37]
+03. Scars [00:03:27]
+04. Good Kinda Hot [00:03:18](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD33EE1C3E5DDE475CB40059263CA6C40139079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654413   (205842) от 20.08.2023
+
+Aerosmith - Greatest Hits (2023) 3CD Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205842.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Mama Kin
+02. Dream On
+03. Lord Of The Thighs(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 03:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34899ED3CF1BDE4E521160C7D983AAE977599C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653290   (205608) от 15.08.2023
+
+Enuff Z'Nuff - Tweaked (1995) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stoned [05:09]
+02.  Bullet From A Gun [04:20]
+03.  Mr. Jones [05:36]
+04.  My Dear Dream [03:08](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7671D305BF9028AA7A304188C4704B681ED9C6B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653297   (205601) от 15.08.2023
 
 Enuff Z'nuff - Peach Fuzz (1996) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
@@ -628,119 +745,6 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:714F2C4B8DD342B83E79ABC98096E1E60E58EEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642499   (196533) от 27.06.2023
-
-Laura Wilde - Charmed + Dangerous (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Roll (2:11)
-02. Scarlet Woman (3:35)
-03. Wind Me Up (3:32)
-04. I Love This City (2:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439CC8A0114F68FB4B250FB75517E09E9554D7CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654075   (194107) от 20.08.2023
-
-Aerosmith - Greatest Hits (2023) [FLAC|24/96|tracks|WEB-DL] <Classic Rock, Blues Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic Rock, Blues Rock, RockПродолжительность: 02:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AF66CBD376D65EEF36F268CF206D9A22D67818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828065   (193635) от 23.10.2025
-
-Doro - Warriors Of The Sea (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warriors Of The Sea(4:20)
-02. Touch Too Much(4:27)
-03. Tattooed Angels(4:08)
-04. Horns Up High(3:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09747B96EFCFB7A68A2914D834E54D1B185D039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587158   (193226) от 29.10.2022
-
-Lillian Axe - From Womb To Tomb (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe
-02. I Am Beyond
-03. Neverending Me (Dempsey's Kick)
-04. A(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C0DFAD2A805CED7848380FD072DD409E64DA9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1560933   (516602) от 03.07.2022
+
+Black Sabbath - Russian Vinyl Collection/Блэк Сэбэт - Русская коллеция винила (1990) 6LP [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516602.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sabbath Bloody Sabbath • Кровавая суббота
+A2 A National Acrobat • Национальный акробат
+A3 Fluff • Пух
+A4 Sabbra Cadabra • Саббра Кадабра(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 04:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3153064D4C14D10A793B331CA37198DBE2E20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930155   (516201) от 22.08.2015
+
+Luciano Pavarotti - The Essential Pavarotti (1991) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Classical, Opera>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516201.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 La Donna E Mobile
+A2 Che Gelida Manina
+A3 E Lucevan Le Stelle
+A4 Nessun Dorma(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293F2FF3BA36F246BFDCA9242A86B9E2C6EFBB59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930968   (514025) от 24.08.2015
+
+Roger Hodgson - Hai Hai (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514025.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Right Place (4:05)
+A2. My Magazine (4:41)
+A3. London (4:12)
+A4. You Make Me Love You (5:10)(   Читать дальше...   )Производство: A&M RecordsЖанр: Pop RockПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40E82248AF276620639AF249BD1BBEFAF7F3002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 229812   (513758) от 26.08.2010
+
+Fleetwood Mac - Say You Will (2003) [MLP 2.0, 5.1 96/24 |DVD-Audio]<rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's The World Coming To [03:48]
+02. Murrow Turning Over In His Grave [04:12]
+03. Illume (9-11) [04:51]
+04. Thrown Down [04:02](   Читать дальше...   )Жанр: RockПродолжительность: 01:16:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931025   (512811) от 25.08.2015
+
+Vangelis - Spiral (1977) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512811.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Spiral
+A2 Ballad
+A3 Dervish D.
+B1 To The Unknown Man(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10969C4F1F95E26EBFF2388AF0F51039C120C967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315486   (512612) от 20.07.2019
 
 В. С. Высоцкий - Лучшие песни 3 (1980/1996) [FLAC 2.0|44,1/24|image+.cue|MC-Rip] <Chansone>
@@ -594,151 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BA58E8605695D09B1A6EEDE0876797CE1396BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055400   (488166) от 22.09.2016
-
-Ансамбль Мелодия играет танго Оскара Строка (1979) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Retro, Tango>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Черные глаза  3:24
-02. Неаполитанское танго  3:10
-03. Когда весна придет опять  3:06(   Читать дальше...   )Жанр: Retro, TangoПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FFACB1A13245B5EB6F20CF6E4E0E8784D8A237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937659   (487780) от 15.09.2015
-
-AC/DC - For Those About To Rock (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487780.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. For Those About To Rock (We Salute You) (5:44)
-A2. Put The Finger On You (3:25)
-A3. Let's Get It Up (3:54)
-A4. Inject The Venom (3:31)(   Читать дальше...   )Производство: Atlantic Rec. / Warner-Pioneer corp.Жанр: Hard RockПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BBE28B527E495331EE968026B352FA3785AAEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405229   (485173) от 29.08.2020
-
-Рондо - Убей Меня Своей Любовью (1991) Rondo - Kill Me With Your Love [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soft Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485173.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Венчает Гроза = Married By Thunderstorm
-A2 Когда Ты Скажешь Мне ''Прощай'' = When You Tell Me ''Goodbye''
-A3 Смотри, Но Не Трогай = Now Look, But You Can't Take It
-A4 Крошка Жанет = Baby Jeannette(   Читать дальше...   )Жанр: Soft Rock, Hard RockПродолжительность: 00:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B231A82BE78F88221E8E999E1C252719199498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043278   (483272) от 24.09.2016
-
-Давид Тухманов - По волне моей памяти (1976) [WAV Pack 2.0|192/32|tracks|Vinyl-Rip] <Symphonic Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Я мысленно вхожу в ваш кабинет (Максимилиан Волошин) 5:06
-Vocals – Мехрдад Бади
-02. Из Сафо (VII век до н.э.) 5:18(   Читать дальше...   )Жанр: Symphonic Rock, Classic RockПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE8FEF60DA23E030C15B845BDA4CB72FA3EEC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 700522   (483138) от 15.09.2013
-
-Аукцыон - Дупло (1990) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок / Авангард>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483138.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Пионер (5:27)
-A2. Немой (5:21)
-A3. Боюсь (6:00)
-A4. Ябеда (4:37)(   Читать дальше...   )Жанр: Рок / АвангардПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392092AA191C208BA20B20BDB95FDF5F07D67E13
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1077417   (306790) от 28.11.2016
+
+VA - Power-Up Workout Break Hits (2016) [MP3|192-320 Kbps] <Merengue, Reggaeton, Moombahton, Regional Mexicano, Reggae, Twerk, Trap, Hip Hop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mist - Ain't The Same (Clean) 03:20
+02. Dae Dae - Dead Ass Wrong (Intro Clean) 03:39
+03. Rich Rocka - Ok (Dirty) 03:25
+04. Amine - Baba (Intro Clean) 04:14(   Читать дальше...   )Жанр: Merengue, Reggaeton, Moombahton, Regional Mexicano, Reggae, Twerk, Trap, Hip HopПродолжительность: 04:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA429F152E7393BABF60D940DF97281BBD6D96DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581809   (305883) от 05.12.2012
 
 Slakker - Totalrealism (Unreleased) (2012) [MP3|320 кб/с]<Instrumental, Downtempo, IDM>
@@ -719,35 +748,6 @@ VA - Best of Deep House. Volume 7. Wizard of Love [Compiled by Firstlast] (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:043379F59C7CEE7AE2F02A0E5091552091B6A2E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333456   (303541) от 25.10.2019
-
-VA - Your Bass List (2019) [MP3|257-320 Kbps] <DnB, Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303541.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Panix - Socery
-002. Untrue - Sacrifice
-003. Nacho Sotomayor - Wonderful
-004. Hugh Hardie - Endless(   Читать дальше...   )Жанр: DnB, BassПродолжительность: 09:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E55BA224272EB7B8AE6F701BB2E8DECCE1F987
 ```
 
 https://mybot314.ru/tekegram_catalog/

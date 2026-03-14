@@ -1,3 +1,38 @@
+###  Публикация: 522261   (621148) от 14.07.2012
+
+Reverence - When Darkness Calls (2012) [MP3|320 кб/с]<Heavy/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Darkness Calls (5:00)
+ 02. Bleed For Me (4:11)
+ 03. Phantom Road (3:47)
+ 04. Devil In Disguise (4:31)
+ 05. Too Late (5:17)
+ 06. Gatekeeper (3:55)
+ 07. The Price You Pay (4:19)
+ 08. Monster (4:54)
+ 09. Revolution Rising (5:33)
+ 10. After The Leaves Have Fallen (3:36)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C956D86962F05008B962756B9BDD053437E180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911032   (620807) от 21.06.2015
 
 Ignition - A New Conspiracy (2015) [MP3|320 кб/с]<Heavy / Thrash Metal>
@@ -713,35 +748,6 @@ Doomraiser - Reverse (Passaggio Inverso) (2015) [MP3|320 кб/с]<Traditional Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62126E4AE47C18998514A42B9B8324A64B933DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911376   (616572) от 23.06.2015
-
-Nightshift - Winter Within (2014) [MP3|320 кб/с]<Heavy / Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Walk
-02. Hunter's Moon
-03. Distant Win
-04. Point of No Return(   Читать дальше...   )Жанр: Heavy / Speed MetalПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37336C253DD4B1386C82E18DCD4F847419B12A95
 ```
 
 https://mybot314.ru/tekegram_catalog/

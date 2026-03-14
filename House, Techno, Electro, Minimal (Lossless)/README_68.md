@@ -1,3 +1,90 @@
+###  Публикация: 1747329   (44610) от 04.09.2024
+
+VA - Arab Folk (Arab Vibes of the Middle East) (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mo-Omar - Balearic Harem (5:31)
+02. Profesor Esteban - Bay Nikola (Ethno Deep Mix) (5:33)
+03. Ahmed Al Enizy - Oh Oo (5:59)
+04. Sam & Claude - Arab Money (Original Mix) (6:24)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 02:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA66641BD572D0D4FD6023FF59165B04A51325D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747518   (44500) от 05.09.2024
+
+VA - Oriental Lounge Music (The Finest Selection Arab Ethnic Tribal House Rhythms) (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahmed Al Enizy - Oh Oo (5:59)
+02. Mohammed Haifawi - Mal Hbibi (6:30)
+03. Sam & Claude - Yoksun (Gonna Keep It) (4:39)
+04. Rachid El Esseily - Arbabi (5:11)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DA45694DD3FAB9BD23315FA88A820AC75E714B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748239   (44181) от 08.09.2024
+
+VA - ARAB X (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burak Abulso'oud - Mawjouaa Galbi (6:11)
+02. Hakim Assaf - Habiba Mi Amore (3:22)
+03. Kalita Kumar - Dilbar (5:08)
+04. Rachid El Esseily - Arbabi (5:11)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DDAD55BC95EBF7B4AB5B0755CCB6E9F96F5DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748420   (44100) от 09.09.2024
 
 Jean-Michel Jarre - Paris Stadium (2024) EP, Live [FLAC|Lossless|WEB-DL|tracks] <Electronic Techno>
@@ -652,93 +739,6 @@ Power Music Workout - Xtreme Cardio Mix 40 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EEF3D4785FB469D26882F09EA1BD6E81AB369D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758405   (38482) от 02.11.2024
-
-Power Music Workout - Workout Top Songs 2024 - Fall Edition [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Belong Together (Workout Version 125 BPM) (3:07)
-02. Maria (Workout Version 129 BPM) (3:21)
-03. Austin (Boots Stop Workin') (Workout Version 130 BPM) (3:58)
-04. Karaoke (Workout Version 130 BPM) (2:43)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21AD26079F09D765723291766728DFD60620DAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758578   (38388) от 03.11.2024
-
-Power Music Workout - 2024 Ultimate Fitness Tracks [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Had Some Help (Workout Remix 129 BPM) (4:01)
-02. Lose Control (Workout Remix 129 BPM) (2:45)
-03. Too Sweet (Workout Remix 132 BPM) (3:40)
-04. Feels (Workout Remix 136 BPM) (3:31)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6CDECB5EFA5BF5AB8EE648E76C7E8D983E9F61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758837   (38260) от 04.11.2024
-
-Mikhail Catan, Tibetania - Secret Garden (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Garden (6:31)
-02. Traveller (6:05)
-03. About Love (6:14)
-04. Sacredness (6:25)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC62D130168F60435EBC62EF1A5498D80E18B61
 ```
 
 https://mybot314.ru/tekegram_catalog/

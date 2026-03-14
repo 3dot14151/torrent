@@ -1,3 +1,119 @@
+###  Публикация: 1628877   (254819) от 25.04.2023
+
+Underworld - Underneath The Radar (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254819.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Glory! Glory! 4:50
+A2 Call Me No. 1 3:57
+A3 Rubber Ball (Space Kitchen) 3:38
+A4 Show Some Emotion 3:48(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2CDF3AB7551983EC057E40159B7AD5EC014802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629672   (254741) от 27.04.2023
+
+Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254741.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Into The Blue (4:08)
+A2. Million Miles (3:28)
+A3. I Was Gonna Cancel (3:32)
+B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6368B651AB53F531204BA100055EBE19AAC61E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629685   (254728) от 27.04.2023
+
+Зодиак - Музыка во Вселенной (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electro, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254728.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Таинственная галактика (4:45)
+A2. Лазерная иллюминация (4:11)
+A3. Серебряная мечта (3:33)
+A4. Фотофиниш (4:34)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAAE095706F44266BEC0CA327A1FCD13E959B6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629965   (254717) от 28.04.2023
+
+Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254717.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 The Getaway
+2 Dark Necessities
+3 We Turn Red
+4 The Longest Wave(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4D569EE6D0D78E363150CDF52152EB2B38363F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836720   (254164) от 12.11.2025
 
 VA - Good Morning America (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop>
@@ -626,122 +742,6 @@ Composed By – Giovanni Bottesini
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C8337BCB9053E9CBE0BC3BD8A93930889A4B12B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621149   (245044) от 23.03.2023
-
-VA («Червоны гитары», М. Родович, Д. Фардон, Саймон и Гарфанкель) - Не Задирай Носа (1972) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245044.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 «Червоны гитары» - Не Задирай Носа
-(С. Краевский – М. Гашинский)
-A2 Марыля Родович - Баллада О Поезде
-(А. Зелинский - А. Осецка)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550AF49E2C3A2B0C7F8826325B155A975903E1A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624768   (244997) от 07.04.2023
-
-Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244997.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Human Beings 4:35
-A2 State Of Grace 4:59
-A3 Latest Craze 4:27
-A4 Just Like You Said 4:14(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621BB3724FC425A93AFF2836B39F31F87ADDA40B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624816   (244978) от 07.04.2023
-
-LondonBeat - Speak (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244978.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 There's A Beat Going On
-A2 Beat Patrol
-A3 Failing In Love Again
-A4 9AM (The Comfort Zone)(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06507D2E611CFFDD83FB9666FF9139CA25810404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631497   (244756) от 06.05.2023
-
-ВИА Экспресс - Экспресс 2 (Венгрия) (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244756.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Всегда мало времени
-A2 Наш вечер
-A3 Мы были друзьями
-A4 Ты ушла из моей жизни(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6922EF5C5E57799B1CF2C132CE43015CD11E02AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

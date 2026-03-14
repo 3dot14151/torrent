@@ -1,3 +1,177 @@
+###  Публикация: 1790135   (68157) от 07.04.2025
+
+Okay Alright - soften my eyes after sleepless nights (deluxe) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  redwoods (4:05)
+02.  u always saw the best in me (3:17)
+03.  misty (2:46)
+04.  ides of march (3:57)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B2E8594CEBFF8B87FC325B587920D03BC7BC10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790149   (68155) от 07.04.2025
+
+Tony Slone - Tony Slone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Last Kiss Goodnight (3:32)
+02.  Give Her Your Heart (3:49)
+03.  Prisoners Prayer (4:00)
+04.  Cold Day (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD697A90A7B5F73292D8F72A9599397ACC27D3FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790134   (68154) от 07.04.2025
+
+Mike Dangeroux - Empty Chair (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  End Like This (3:26)
+02.  Money Back (3:45)
+03.  Play My Cards Right (4:16)
+04.  No Good for Me (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9EAB792F43658B69753676E64DF5B7BCB437DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790142   (68153) от 07.04.2025
+
+PS & Co - I brennandi husi (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Í brennandi húsi (6:29)
+02.  Krossgötur (3:51)
+03.  Súperegóblús (2:52)
+04.  Veiðiblús (6:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7481C859228651390AA82309F25D49D86B7DBE86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790131   (68152) от 07.04.2025
+
+Marcos Ottaviano - Marcos Ottaviano And His Blues Band: Celebrando 35 Anos De Carreira (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When the Music Stops (3:48)
+02.  Trouble in Mind (3:33)
+03.  Got to Move (3:46)
+04.  Come Back Home (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C6420F1881CDE90C921303502F09125E3A247E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790147   (68151) от 07.04.2025
+
+Tim Hain - Tales of Timeless Tim (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sister Rosetta (3:38)
+02.  Bone Age (3:46)
+03.  Love Lives On (4:40)
+04.  Last Drop (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE3EEB6752CFDC62D162939C8C3E16181F89E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790143   (68150) от 07.04.2025
 
 Richard Davies & The Dissidents - High Times & Misdemeanours (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -570,180 +744,6 @@ Kid Ramos - Strange Things Happening (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F1B4069B87B195DF53DF9B392F1383D1B815DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791174   (67877) от 12.04.2025
-
-Tobacco Road Blues band - Lis & Skull (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emely Myles - Move It (feat. Emely Myles) (3:31)
-02. I Knocked Three Times (3:36)
-03. God Made a Perfect Job (3:54)
-04. I’m Your Boogeyman (4:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC935923E83C941D353FA38652BD17F9BC8D04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791168   (67876) от 12.04.2025
-
-Metal Bots - Soulful Strains (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Morning (3:11)
-02. Dusty Road Blues (4:00)
-03. Love My Old Guitar (3:46)
-04. Sweet Spirit (3:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69281D926F2BA40C4F82CA27E75CCEF97B2804F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791375   (67868) от 13.04.2025
-
-Jeff Rymes - Zodiac Shuffle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way Down Luziana (3:36)
-02. Freddy Lee (3:01)
-03. Lowdown Blues (3:49)
-04. The Tale of the Runaway Train (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A128713242738054A256C77C6283CD5172E70E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791275   (67865) от 13.04.2025
-
-Scott Bradlee's Postmodern Jukebox - Puttin' On The Rizz (2024) [FLAC|Lossless|WEB-DL|tracks] <Swing, Jazz, Blue-Eyed Soul, Blues, Dance-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pour Some Sugar on Me [4:21]
-02 - 50 Ways to Leave Your Lover [3:35]
-03 - Say You'll Be There [3:22]
-04 - One Week [2:41](   Читать дальше...   )Жанр: Swing, Jazz, Blue-Eyed Soul, Blues, Dance-PopПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE53329A5F37BAD0110773CF1A91AC84E8F9C549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791270   (67841) от 13.04.2025
-
-Scott Bradlee's Postmodern Jukebox - Lounge Language Models (2025) [FLAC|Lossless|WEB-DL|tracks] <Swing, Jazz, Blue-Eyed Soul, Blues, Dance-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Good Luck, Babe! [3:21]
-02 - Rag Doll [2:59]
-03 - A Bar Song (Tipsy) [3:53]
-04 - It Must Have Been Love [4:28](   Читать дальше...   )Жанр: Swing, Jazz, Blue-Eyed Soul, Blues, Dance-PopПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98EF431334C3854C8BB17DC4393EA4EAB57DFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791382   (67836) от 13.04.2025
-
-Maxwellium - Blood &Smoke (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King of the Smoke (3:18)
-02. Iron & Ashes (3:37)
-03. Devils Debt (3:29)
-04. Ravens & Rats (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD5EB49644E50813E2A18353D90CF612030683E
 ```
 
 https://mybot314.ru/tekegram_catalog/

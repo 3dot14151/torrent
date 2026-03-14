@@ -1,3 +1,148 @@
+###  Публикация: 1086523   (151863) от 24.12.2016
+
+Manfred Mann's Earth Band - The Roaring Silence (1976) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Blinded By The Light (7:09)
+A2. Singing The Dolphin Through (8:21)
+A3. Waiter Theres A Yawn In My Ear (5:40)
+B1. The Road To Babylon (6:53)(   Читать дальше...   )Производство: Bronze - 27 870 XOTЖанр: Progressive RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1849946DB1CEAD15E746C8041CD140C24A4F6181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601070   (151812) от 30.12.2022
+
+Santana - Caravanserai (1972) Reissue, Remastered, 2022, Sony Records Int'l  [DSD64(DST64) 2.0, 5.0|2822,4/1|SACD-R] <Jazz, Rock, Latin>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Caravan of Reincarnation
+02. Waves Within
+03. Look Up (To See What's Coming Down)
+04. Just in Time to See the Sun(   Читать дальше...   )Жанр: Jazz, Rock, LatinПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE482B77F772BC27AAFAA5443EE5E9B59AB7C53B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677381   (150787) от 17.11.2023
+
+Daft Punk - Random Access Memories (2023) Drumless Edition [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Electronic, Synth-pop, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Life Back to Music (Drumless Edition) [4:35]
+02. The Game of Love (Drumless Edition) [5:23]
+03. Giorgio by Moroder (Drumless Edition) [9:06]
+04. Within (Drumless Edition) [3:49](   Читать дальше...   )Жанр: Electronic, Synth-pop, FunkПродолжительность: 01:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32FCBD787DF9C4FF8E9791AE40D0B4A49984FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677184   (150607) от 17.11.2023
+
+Ария - Студийные альбомы (10 релизов) (1995-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150607.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ария» — советская и российская хеви-метал-группа. Одна из самых успешных российских рок-групп, при этом — это одна из немногих российских метал-групп, достигших серьёзного коммерческого и творческого успехов и популярности за пределами поклонников хэви-метала. Лауреат премии Fuzz 2007 года как лучшая live-группа. Её бывшими участниками были образованы многие другие (   Читать дальше...   )1995 - Ночь Короче Дня
+1998 - Генератор Зла
+2001 - Химера
+2003 - Крещение ОгнёмЖанр: Heavy MetalПродолжительность: 10:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07BF373F8AA23730936920D702296EEAA7A4585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677570   (150565) от 18.11.2023
+
+Giant Lungs - Giant Lungs (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Stoner Rock, Desert Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150565.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flying Lures (04:17)
+2. Girls with Fins (06:08)
+3. Aromatico (03:54)
+4. Shallow (05:32)(   Читать дальше...   )Жанр: Stoner Rock, Desert RockПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D083E2BBEBB33D760B9888D4F7D05E60038B75AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677649   (150562) от 18.11.2023
 
 Sean Shibe - Profesión (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Classical>
@@ -600,151 +745,6 @@ A Day To Remember - For Those Who Have Heart (2007) Remastered, Reissue, 2023, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661C7A97BB2B756A37C8FC1D90A68EB0B65779B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678160   (147813) от 20.11.2023
-
-Wrabel - based on a true story (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Another Song About Love
-02 – Feel It Now (Alive)
-03 – Just Like You
-04 – Abstract Art(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E3C37D36F4CDE8F59379BD2A42397D2EFD335F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678122   (147747) от 20.11.2023
-
-Cannibal Corpse - Chaos Horrific (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overlords of Violence (3:08)
-02. Frenzied Feeding (3:33)
-03. Summoned for Sacrifice (4:05)
-04. Blood Blind (4:34)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740FC7BADF6C2E95E813066922A3CE09741DCF7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677804   (147728) от 20.11.2023
-
-Saint Deamon - League of the Serpent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - At Break of Dawn [4:28]
-02 - League of the Serpent [4:05]
-03 - The Final Fight [3:38]
-04 - Lord of the Night [3:19](   Читать дальше...   )Жанр: Metal, Power MetalПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2123614A37A1DB4ACA156505EDC98A0616CDF8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678197   (147719) от 20.11.2023
-
-A Mountain Of One & Ricardo Villalobos - Ricardo Villalobos reimagines: Stars Planets Dust Me (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Downtempo, House, Minimal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147719.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Star (Ricardo Villalobos Master) 07:34
-2. Custard Last Stand / AMO1 Ambient Version (Ricardo Villalobos Master) 09:46
-3 .Make My Love Grow (Ricardo Villalobos Mix Down) 04:46
-4 .Black Apple Pink Apple (Ricardo Villalobos Remix) 10:06(   Читать дальше...   )Жанр: Electronic, Downtempo, House, MinimalПродолжительность: 01:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B400DB32A541AA2EB1501475FD1A66B76D0370CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678147   (147712) от 20.11.2023
-
-VENUS - Obscured Until Observed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Thrash Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sons of Grus [4:42]
-02 - The Observatory [8:12]
-03 - City of Nektron [5:42]
-04 - Circus Strange [4:39](   Читать дальше...   )Жанр: Progressive Metal, Thrash Metal, Power MetalПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC92C544B1C485316530255A0FB57004EDF0DBAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

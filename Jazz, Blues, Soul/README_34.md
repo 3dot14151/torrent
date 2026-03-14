@@ -1,3 +1,61 @@
+###  Публикация: 1460724   (1022404) от 06.04.2021
+
+Louis Mezzasoma - Mercenary (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kick Some Ass (2:47)
+02. Mercenary (4:34)
+03. Flat Land (4:13)
+04. Who U R (6:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F41F35A2510AAB35E242A01D21979E1F12819BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460722   (1022400) от 06.04.2021
+
+Little Bob Blues Bastards - We Need Hope (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Need Hope (3:03)
+02. I Was a Kid (2:13)
+03. Ready to Fly (3:44)
+04. Long Legs (2:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8FAA575D9F5AF416351E88AC8DA353E3B0CED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460717   (1022397) от 06.04.2021
 
 Kirk Nelson & Jambalaya West - Lagniappe (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -687,64 +745,6 @@ Popa Chubby - Tinfoil Hat (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B447073BA2A00A91DE8DF90D998F25E66106C79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461979   (1021463) от 12.04.2021
-
-Paolo Di Sabatino - Paolo Di Sabatino (2002) Il Manifesto [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Country Lane [7:18]
-02. Rua Algoinhas 301 [7:04]
-03. Kenny [4:07]
-04. I Can Touch The Stars [4:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED4BC742F28EE13CF7BF09843773C008A51373B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462034   (1021462) от 12.04.2021
-
-Nils Krogh - Disposition (2007) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disposition (3:56)
-02. Things We Do (5:34)
-03. Lost Luggage (3:45)
-04. All I Want (3:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF2E7F725287C1219EAEA54F73DF0DBDC411635
 ```
 
 https://mybot314.ru/tekegram_catalog/

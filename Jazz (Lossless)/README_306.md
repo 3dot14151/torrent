@@ -1,3 +1,90 @@
+###  Публикация: 1696335   (119605) от 02.02.2024
+
+Dave Pell - Four Classic Albums (1956 - 1957) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Had The Craziest Dream [2:54]
+02. The Way You Look Tonight [2:23]
+03. Nap’s Dream [5:14]
+04. Time After Time [3:14](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 02:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AA0388BFDAD08573ED161CE1AE2CBE8A7AFDFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696340   (119604) от 02.02.2024
+
+Anita O'Day - Indestructible! (2006) Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Skies [2:58]
+02. This Can't Be Love [3:17]
+03. Is You Is [4:02]
+04. All Of Me [3:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF1705D88B1CD73F57FDAFE3357E4FFB702CB663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696567   (119473) от 03.02.2024
+
+VA - Relaxing Soothing Jazz Chilly Jams Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - I Can Only Imagine (4:55)
+02. Konstantin Klashtorni - Stand by You (4:14)
+03. Chillaxing Jazz Kollektion - Happiness (4:18)
+04. eJazz Artistry - Real Love (4:16)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 02:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62A53CB0FC6D87B07A22A2CA3471F54EBB9CD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696561   (119461) от 03.02.2024
 
 VA - Smooth Jazz Hits 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -659,93 +746,6 @@ VA - Best Groovy Smooth Jazz for Traveling and Vacation (2024) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EB3F02305594EAF9BC2AB2899C7FDCEEE7547C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697654   (118749) от 07.02.2024
-
-Chet Baker - Late Night Chet Baker (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is No Greater Love (2:33)
-02. Oh, You Crazy Moon (3:36)
-03. My Funny Valentine (2:20)
-04. Time After Time (Vocal Version) (2:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 04:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8AB3F3EE3383FBA6F53F966E47FF039CE4CF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697673   (118734) от 07.02.2024
-
-Eric Dolphy - Muses (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone Together (Schwartz) - 12:07
-02. Muses (Dolphy) - 8:49
-03. Iron Man (Dolphy) - 8:27
-04. Love Me (Young) - 3:40(   Читать дальше...   )Жанр: Free JazzПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E986F4FE9EED5177617B4C940BEDCBB252734B5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697572   (118733) от 07.02.2024
-
-Grant Geissman - Bop! Bang! Boom! (2012) Futurism Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boom! [4:46]
-02. The Singularity [5:38]
-03. Q Tip (For Quincy Jones) (with Tom Scott) [5:30]
-04. Un poco espanol (with Russell Ferrante) [6:02](   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D13B7FC983DA578968B98A8D8421818D627C4845
 ```
 
 https://mybot314.ru/tekegram_catalog/

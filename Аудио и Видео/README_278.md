@@ -1,3 +1,32 @@
+###  Публикация: 1775633   (71402) от 28.01.2025
+
+VA - Dance Classics Vol. 4 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jacksons - Blame It on the Boogie
+02. McFadden & Whitehead - Ain't No Stoppin' Us Now
+03. The Gap Band - Say Oops Upside Your Head
+04. Donna Summer - Last Dance(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10125E28A5E5E3C2589857712280504A0FC66841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775484   (71321) от 31.01.2025
 
 VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
@@ -711,35 +740,6 @@ Secret Service - Aux Deux Magots (1987) [AAC|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD9EE58E54E3595997BDDCB555F3F78F3914B404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776291   (29124) от 31.01.2025
-
-Secret Service - The Lost Box (2012) [AAC|320 Kbps] <Electronic, Pop Rock, Hi NRG, Synth-pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satellites
-02. If I Do
-03. Different
-04. Eyes Are Talking(   Читать дальше...   )Жанр: Electronic, Pop Rock, Hi NRG, Synth-popПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68911E71C669E17575239848D2633F5E1A4A51D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

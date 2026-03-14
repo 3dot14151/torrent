@@ -1,3 +1,148 @@
+###  Публикация: 1718265   (110968) от 24.04.2024
+
+U.D.O. - Mission No. X (2005) Released, 2012, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Embarkation
+02. Mission No. X
+03. 24/7
+04. Mean Streets(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A55D62CA8AC5044E4A2B73413159B02A1B037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718260   (110965) от 24.04.2024
+
+Brace For War - Chromium Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chromium Blues (4:20)
+02. Monterey Blues (4:47)
+03. Seraphim Blues (2:59)
+04. Too Far Gone (5:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174AB42CD44F94D3B14F84A4A9B0CAA6257E3C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718319   (110961) от 24.04.2024
+
+Shawn Kellerman - Kell's Kitchen (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SKB (4:02)
+02. Drivin' (3:49)
+03. Show Me What You Got (4:19)
+04. We Are Blues Men (4:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D888AF51E522BD50EB40165436EB2E58344089C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718551   (110927) от 25.04.2024
+
+Accept - Humanoid (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diving Into Sin (4:01)
+02. Humanoid (4:35)
+03. Frankenstein (4:15)
+04. Man Up (5:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99D0556F96D0F44A41DC4E73D6E92681F1BB20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718475   (110917) от 25.04.2024
+
+Kickin Valentina - Star Spangled Fist Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gettin Off (3:52)
+02. Dirty Rhythm (4:21)
+03. Fireback (3:15)
+04. Man on a Mission (4:35)(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC9A548AB99FBD221E694C222CD7069D555826C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718588   (110914) от 25.04.2024
 
 U.D.O. - Mastercutor (2007) Released, 2010, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
@@ -598,151 +743,6 @@ Bar Music Masters - Lemonade Lounge: Jazz Beats in Every Refreshing Glass (2024)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:519D002A47DF8D9F99264F3610A42F08A99CCD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719316   (110618) от 28.04.2024
-
-Marina Kaye - Heavenbound (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <World, Europe French Music>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavenbound [00:03:13]
-02. What if [00:03:21]
-03. Dark Magic [00:03:15]
-04. Ghost [00:03:23](   Читать дальше...   )Жанр: World, Europe French MusicПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C06BC1945B7E3E5BFB56958CEFF6CF6CF22A2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719156   (110611) от 28.04.2024
-
-Juan Pablo Balcazar - Otro Quatuor Pour La Fin Du Temps (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preludio al Quartet (9:26)
-02. I El Despertar (5:55)
-03. II El Anuncio (6:23)
-04. III El Abismo (3:36)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812307333CE9004D1C08208515E4DCEA6F03EE9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719157   (110610) от 28.04.2024
-
-Nigel Price Organ Trio - That's It. Right There (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Shirley (6:57)
-02. Morning Star (7:55)
-03. Night Flight (6:37)
-04. You Don't Know Me (8:18)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3316954DE75FFDB381CF7DEE3953EE8A1A3401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719134   (110609) от 28.04.2024
-
-Bruno Montrone - Unaware Beauty (Studio) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edward Lee (Studio) (8:50)
-02. Riflessiva (Studio) (6:39)
-03. Unaware Beauty (Studio) (6:42)
-04. The Hodgepodge (Studio) (4:54)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E819F2AB9C49093E5A8CAA6C677DF60FB38B578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719158   (110607) от 28.04.2024
-
-Stefano Paolini - Modern Jazz Drumming, Vol. 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three and Four (4:30)
-02. Three and Four (No Drums) (4:30)
-03. Relaxin at Home (5:44)
-04. Relaxin at Home (No Drums) (5:44)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F7726497D40C38164F234356856F3D57BC79AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

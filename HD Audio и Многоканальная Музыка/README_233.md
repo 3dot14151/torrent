@@ -1,3 +1,148 @@
+###  Публикация: 1761603   (36573) от 21.11.2024
+
+As the Sun Falls - Studio Albums (4 releases) (2020-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36573.jpg" />
+</div>
+
+
+###  Подробнее
+
+As the Sun Falls - мелодик-дэт-метал группа, основанная в 2020 году.2020 - Memoriam (EP)
+2021 - Last Days of Light
+2022 - Far Beyond (EP)
+2024 - Kaamos(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 02:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9CAB9777C8B626EF70F75B8CD3000A359DE0CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761593   (36570) от 21.11.2024
+
+Alexander Aruca - October Wind (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking Free (3:20)
+02. Somebody Just Like You (3:39)
+03. Deception for All (3:40)
+04. If You Remember (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B7B4910A2DBF036FB9F44B504CAA4FCCEB83C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761610   (36569) от 21.11.2024
+
+Emmy Meli - Hello Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emmy Meli - Hello Stranger (0:35)
+02. Emmy Meli - Silence (2:15)
+03. Emmy Meli - Breakthrough (2:37)
+04. Emmy Meli - Happy Ending (2:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4289BAF7FC4F232BA47F6F45171C15BCB1202631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761605   (36566) от 21.11.2024
+
+Widespread Panic - Hailbound Queen (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Rock, Alternative Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Baby (7:23)
+02. Blue Carousel (5:47)
+03. Keep Me in Your Heart (4:29)
+04. Trashy (9:35)(   Читать дальше...   )Жанр: Southern Rock, Alternative Rock, Blues RockПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B855A24F3307E75E9679A761D6E7F8FED9A940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761697   (36560) от 21.11.2024
+
+Xandria - Universal Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Time To Live Forever
+02. Universal
+03. 200 Years (feat. Ally Storch of Subway to Sally)
+04. Live The Tale(   Читать дальше...   )Жанр: Symphonic, Gothic MetalПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FF8D9DE12DE34CFF4E478F70B800318F4BF47D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761597   (36557) от 21.11.2024
 
 Opeth - The Last Will And Testament (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive death metal>
@@ -600,151 +745,6 @@ Motley Crue - Dr. Feelgood (1989) 35th Anniversary, Remaster, 2024,  BMG Rights 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDA08DB1FF5F85A529C56C9CB1436F8E6C0BFD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761721   (36447) от 22.11.2024
-
-Alice Cooper - Muscle Of Love (Expanded) (1973) Reissue, Remastered, 2024, Warner Records LLC [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock >
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Big Apple Dreamin' (Hippo) (2024 Remaster) (5:10)
-02. Never Been Sold Before (2024 Remaster) (4:28)
-03. Hard Hearted Alice (2024 Remaster) (4:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366626F42E24167B70B0C37C003E781968FF8F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759535   (36429) от 23.11.2024
-
-Queen - Greatest Hits II (1991) /2013 SHM-SACD/ [DSD 2.0 1bit/2822,4kHz |SACD-R]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36429.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Kind Of Magic 04:22
-2. Under Pressure 03:56
-3. Radio Ga Ga 05:43
-4. I Want It All (Single Version) 04:02(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D5B72D446BE76DAF9EF62EC937808069E8A311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762218   (36294) от 24.11.2024
-
-VA - Golden Ballads. Лучшие Баллады Последних Десятилетий (2002) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Scorpions - Wind Of Change
-02. Eagles - Hotel California
-03. Iggy Pop - In The Death Car(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD77480CC8B9599FF7572FBE9010EF646776E743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762207   (36255) от 24.11.2024
-
-Клава Кока - Депрессаунд (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Убегай [00:02:29]
-02. Ты грустишь [00:02:58]
-03. Пьяный вокзал [00:02:36]
-04. Стерва [00:02:26](   Читать дальше...   )Жанр: PopПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA50FA1296BFD624442D028E29A4A4F1CAC9E7EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762424   (36184) от 25.11.2024
-
-VA - Romantic Collection. Metal Ballads (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36184.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A:
-01. Scorpions - When You Came Into My Life
-02. Marillion - One Fine Day
-03. Nazareth - God Save The South(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30621F116366F2119F1F6E82211614F817B3C27B
 ```
 
 https://mybot314.ru/tekegram_catalog/

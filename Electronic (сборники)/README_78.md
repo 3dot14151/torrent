@@ -1,3 +1,32 @@
+###  Публикация: 1284939   (724785) от 24.02.2019
+
+VA - Mystica Depth (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724785.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Makia Blue - Voyage To Farland
+002. G.B. Beckers - Klangschwaden
+003. Earth Connect - My Kind Of Disco
+004. Flower Bath - Index Plan (Feat. Aka Carpenter)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F51F7B2BB7DBC516EF627E7E6574D40EA7F6F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285015   (724774) от 24.02.2019
 
 VA - Tech House Electro Sessions (2019) [MP3|320 Kbps] <Electro, Tech House>
@@ -716,35 +745,6 @@ VA - Trap Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Trap, Future Bass
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40CF75CD916F3C90F5DB22D095073B2930B5263B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129242   (722624) от 28.04.2017
-
-VA - Beatport Trance  Pack (28.04.) (2017) [MP3|320 Kbps] <Trance, Energy, Tech Trance, Uplifting, Emotional, Blissful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aurora Night & Ensen - Seren (Extended Mix)  5:48
-02.  Robert Nickson & M.I.K.E. Push - Tachyon (Extended Mix)  7:26
-03.  Andy Elliass & Ozzy XPM - La Sagrada (Extended Mix)  7:15
-04.  Kyau & Albert - Trace (Original Mix)  5:24(   Читать дальше...   )Жанр: Trance, Energy, Tech Trance, Uplifting, Emotional, BlissfulПродолжительность: 04:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292427FE6ED8C5B44541FCE504375E39EBEFF78C
 ```
 
 https://mybot314.ru/tekegram_catalog/

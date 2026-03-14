@@ -1,3 +1,183 @@
+###  Публикация: 581056   (340815) от 26.11.2012
+
+Chris Thompson (ex-Mannfred Mann's Earth Band) - Do Nothing Till You Hear From Me (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_340815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Take My Sugar to Tea (2:49)
+02. Caravan (3:12)
+03. Boulevard Of Broken Dreams (3:49)
+04. Take These Chains (3:03)
+05. Solitude (3:38)
+06. Those Wedding Bells Are Breakin' (Up That Old Gang of Mine) (2:24)
+07. Moonlight Serenade (2:51)
+08. Do Nothing till You Hear From Me (3:28)
+09. True Love Wins Again (4:29)
+10. Davy's on the Road Again (5:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578900   (340800) от 25.09.2022
+
+Troy Redfern - The Wings of Salvation (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gasoline [00:03:51]
+02. Sweet Carolina [00:03:53]
+03. Come On [00:03:47]
+04. Navajo [00:03:22](   Читать дальше...   )Жанр: Southern Blues RockПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207C884CAAACDF9DB8907796D73A9A74BDEFC0DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074076   (340729) от 18.11.2016
+
+VA - Rough Guide To Ethiopian Jazz (2016) [FLAC|Lossless|tracks + .cue] <World Music, Ethiopian Jazz, Folk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mulatu Astatke - Gamo 5:12
+02. Akale Wube - Alegntaye 4:17
+03. The Budos Band - Origin of Man 4:52
+04. The Ex / Getatchew Mekurya - Ambassel 7:36(   Читать дальше...   )Жанр: World Music, Ethiopian Jazz, FolkПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F25AAF1F9B61188E8934BD29DCD040EF5BDA94E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258075   (340724) от 28.10.2018
+
+VA - The Cover Art Of Blue Note (2003-2006) 2CD [MP3|320 Kbps] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norah Jones - I'll Be Your Baby Tonight (Bob Dylan / Robert Palmer)
+02. Cassandra Wilson - Fragile (Sting)
+03. Holly Cole - I Can See Clearly Now (Johnny Nash)
+04. Caecilie Norby - Man's Got Soul (Curtis Mayfield)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617A2E72643829D8D99F0134EE8D48A51D70C383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073996   (340456) от 18.11.2016
+
+Orchestra Nazionale Della Luna - Orchestra Nazionale Della Luna (2016) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Itamerengue [1:27]
+ 2. Karibou [6:07]
+ 03. The Truth [6:21]
+ 04. Luna 17 B [8:51](   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4A86B9485A32755E22EC9A8C59D0FA417C537E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074062   (340436) от 18.11.2016
+
+VA - Jazz Only Jazz: Erotic Jazz Moments 2 (Essential Collection) (2016) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nils Landgren - Killing Me Softly (06:10)
+02. Caro Josee - Paris (feat. Manusch Weiss) (05:49)
+03. De-Phazz - Zero Zero (04:16)
+04. Lou Tavano - Emotional Riot (04:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF85B04A0D3B1731DF3A0A5D79353C8D121E85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180511   (340286) от 04.11.2017
 
 Gil Evans Paris Workshop & Laurent Cugny - Spoonful (2017) 2CD, Jazz&People [FLAC|Lossless|tracks + .cue] <Big Band, Post Bop, Contemporary Jazz>
@@ -571,189 +751,6 @@ Howard Rumsey's Lighthouse All-Stars - In The Solo Spotlight! (1954, 1957) 1990,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:949F7ED39584B90EC16644B5322BCA623D8CF371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258270   (338832) от 29.10.2018
-
-Stephane Grappelli - 1935 - 1943 (1998) Giants Of Jazz [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alabamy Bound [2:52]
-02. I've Found A New Baby [2:38]
-03. You Took Advantage Of Me [2:57]
-04. Out Of Nowhere [3:18](   Читать дальше...   )Жанр: SwingПродолжительность: 01:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3739DCD47411DDED81AC1A720787AA005AEE41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074308   (338758) от 19.11.2016
-
-The Bob Lanza Blues Band - Time to Let Go (2016) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Your Own Business (03:58)
-02. Time to Let Go (03:26)
-03. When the Sun Comes Up (05:39)
-04. Your Turn to Cry (04:25)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F28C7B1261B84D5B05BF848E7B3EAE9DD7DCA8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074241   (338752) от 19.11.2016
-
-Cliff Stevens - Grass Won't Grow (2016) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Don't You Say  (04:44) 
-02|  Price You Pay  (04:40) 
-03|  Grass Won't Grow  (03:45) 
-04|  Running  (04:53) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3A23EA3EFBA44488651419649FEA2F3E176FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581570   (338165) от 27.11.2012
-
-Curtis Counce - Sonority (1989) [FLAC|Lossless]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_338165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woody'n You
-02. How Long Has This Been Going On?
-03. Landslide (Alternate Take)
-04. Sonor (Alternate Take)
-05. So Nice
-06. Origin
-07. Bella Rosa
-08. A Night In Tunisia
-09. A Drum ConversationЖанр: Hard BopПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581579   (338159) от 27.11.2012
-
-Cristina Zavalloni Open Quartet - Danse a Rebours (1996) [FLAC|Lossless]<Vocal Jazz, Modern>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_338159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancra
-02. Dance a Rebours
-03. Bound
-04. I thought about you
-05. Morbillo Blues
-06. Huis-Clos
-07. 50 anni fa
-08. Round DanceЖанр: Vocal Jazz, ModernПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180842   (338020) от 05.11.2017
-
-Les McCann - In New York (1961) 1989, Capitol Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chip Monck [07:46]
-02. Fayth, You're... [06:11]
-03. Cha-Cha Twist [07:39]
-04. A Little 3/4 For God & Co. [09:25](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F6353E1406FE6909F4118F648543A86573C93D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

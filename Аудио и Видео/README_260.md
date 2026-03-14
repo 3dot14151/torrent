@@ -1,3 +1,29 @@
+###  Публикация: 1345667   (165609) от 16.12.2019
+
+Злодеи / Villains (2019) WEB-DL [1080p] ATV (AVO)
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая пара грабителей Микки и Джули проникает в уединенный загородный дом. Его владельцы оказываются тайными садистами, которые держат в подвале маленькую пленницу, и они пойдут на всё, лишь бы их секрет оставался сокрытым за стенами дома. Грабителям не повезло.Производство: США / BRON Studios, Star Thrower Entertainment, Creative Wealth Media FinanceЖанр: Ужасы, триллер, драма, комедияРежиссер: Дэн Берк, Роберт ОльсенАктеры: Билл Скарсгард, Майка Монро, Джеффри Донован, Кира Седжвик, Блейк Баумгартнер, Ной Роббинс, Дэнни ДжонсонПеревод: Авторский одноголосый (BadBajo)Субтитры: Английские (SDH)Продолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EE57EA0812FE1B6AD2D3E56BE78762DA8E7A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516630   (165516) от 12.12.2021
 
 VA - Nature Lovers (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
@@ -707,35 +733,6 @@ VA - Chillout King Ibiza: Sunset Hours (2019) [AAC|~328 Kbps] <Lounge, Chill Out
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:304E7A93143D329DB00976519237AF0A5D5DF22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516854   (164470) от 13.12.2021
-
-Bobby Lyle - Ivory Flow (2021) [AAC|~340 Kbps] <Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living In The Flow (Radio Edit) (4:34)
-02. Living In The Flow (5:01)
-03. Bobby Lyle, Stanley Clarke - Feel The Heat (3:59)
-04. Bobby Lyle, Tatiana Ladymay Mayfield - In A Sentimental Mood (5:34)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714A33C7912957AE6E1CA8AF73C7612A90ACD9A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

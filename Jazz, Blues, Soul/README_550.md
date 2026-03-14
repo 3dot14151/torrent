@@ -1,3 +1,177 @@
+###  Публикация: 1782953   (69874) от 03.03.2025
+
+Doctor Ray Blues Band - Singles 2022 - 2023 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rhythm and Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deus Gosta de Mim (4:07)
+02.  Pedro Soyer - Forasteiro Blues (4:39)
+03.  Ramon "Doctor Ray" - Three Little Clowns (4:19)
+04.  Don't Point Your Finger So Fast (5:18)(   Читать дальше...   )Жанр: Rhythm and BluesПродолжительность: 01:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6A0F2527CE22935FB8879BA107E45ADEC673E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782952   (69872) от 03.03.2025
+
+Bluestackface - Yet To Prove (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Clearly It's Dead (3:35)
+02.  The Design (5:21)
+03.  Totally Terrified (2:39)
+04.  Without My Heart (4:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C9B7FF898641917C6982F2082CA42582D62E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782958   (69871) от 03.03.2025
+
+Flickering Alley - Bluebird's Whisper (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twilight Horizon (2:53)
+02.  Aurora's Ascent (2:11)
+03.  Verdant Apex (2:35)
+04.  Broken Aperture (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51697D02561B73488A226B2CC1AE507A0CE33EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782977   (69870) от 03.03.2025
+
+John Haydock - Play It as It Lays (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm Real (4:36)
+02.  The Riverside (5:10)
+03.  Cry Just Like the Rain (5:00)
+04.  Play It as It Lays (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACA796B27D240DFCB5E646F4987FDCF3C7BBC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782975   (69866) от 03.03.2025
+
+John Haydock - Heard It on the Radio (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Darkness on the Water (3:46)
+02.  Runaround (4:18)
+03.  You Got the Fire (4:03)
+04.  21 Reasons (5:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC5A493F90AD3DCC8F78F1D9C1B9C157D3ACF31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782955   (69864) от 03.03.2025
+
+Downhome Kin - Gravel & Grit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hushed Horizons (2:30)
+02.  Obsidian Grace (3:40)
+03.  Iridescent Steps (2:04)
+04.  Midnight Blues (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E419CB7D9947D6B6F4640571BDD223C4A450246C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782962   (69858) от 03.03.2025
 
 Joey DeFrancesco - Live: The Authorized Bootleg (2007) Concord Jazz [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
@@ -571,180 +745,6 @@ The John Graas Project - Jazz Studio 1/2 Complete Sessions (1953, 1954) 2004, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30B6618F3B07C96593C154EB0969CDD6C30075EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783438   (69794) от 06.03.2025
-
-The Syd Lawrence Orchestra - Big Band Swing (1984) Philips [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One O'Clock Jump [3:25]
-02. Mood Indigo [3:27]
-03. Jumping at the Woodside [3:44]
-04. Don't Be That Way [3:12](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F43CD2D123106F8458FE7D24255BB7C2EFDF6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783913   (69673) от 08.03.2025
-
-Art Pepper - Living Legend (1975) 2006, Victor [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ophelia [7:54]
-02. Here's That Rainy Day [5:40]
-03. What Laurie Likes [6:45]
-04. Mr. Yohe [7:13](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB074277391160C5F8F90986B67DB0F16541EE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783809   (69672) от 08.03.2025
-
-Bud Powell - At The Blue Note Cafe, Paris (1961) 1990, Magic Music [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Will Never Be Another You [6:26]
-02. Thelonious [3:49]
-03. Round Midnight [6:03]
-04. Night in Tunisia [7:05](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5644B09E4FC27B57F0434795BAB1310E06672F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783812   (69671) от 08.03.2025
-
-Art Pepper - Among Friends (1978) 1988, Discovery Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Among Friends [6:25]
-02. 'Round Midnight [6:48]
-03. I'm Getting Sentimental over You [5:03]
-04. Blue Bossa [4:23](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C7B56C4CBF850B4C3D0865FB10421A99C041C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783911   (69670) от 08.03.2025
-
-Bud Powell - Live at the Blue Note Cafe, Paris (1961) 2007, ESP-Disk' [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groovin' High [12:34]
-02. Taking a Chance on Love [9:52]
-03. Bud's Blues/52nd Street Theme [11:35]
-04. There Will Never Be Another You [6:22](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE43CE0E79E9AE422230767A111ED84FB047694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783910   (69666) от 08.03.2025
-
-Houston Person & Ron Carter - Remember Love (2018) HighNote Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Here to Stay [6:57]
-02. My One and Only Love [4:38]
-03. Why Not [6:11]
-04. Day Dream [5:02](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539A0977F273EA53242C280DFD3C5F563E46FBA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

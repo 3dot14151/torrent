@@ -1,3 +1,61 @@
+###  Публикация: 1015731   (773143) от 12.05.2016
+
+Francesca Michielin - Riflessi Di Me (2012) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sola (04:01)
+02. Arcobaleni (03:38)
+03. Quello Che Vorrei (04:03)
+04. Mai Pi (03:21)(   Читать дальше...   )Жанр: Italy PopПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC89D1AB81B1F67CB7E0DFA71D07BE11B9F5992C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391683   (773112) от 21.06.2020
+
+R Plus & Dido - The Last Summer (2020) Deluxe Edition [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773112.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Landing
+2. Together
+3. My Boy
+4. Clouds Like Islands(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A20F6E266B40B7ECCFC92D780C1D34C5B01354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278491   (771836) от 25.01.2019
 
 Bananarama - Viva (2009) Deluxe Expanded Edition [MP3|320 Kbps] <Europop, Synthpop, Remixes>
@@ -687,64 +745,6 @@ Kim Wilde - Here Comes The Aliens (2018) [MP3|320 Kbps] <Pop, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0F2BC1F7B7605AB9221ACBEADF4AA7FC2C9BCC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279093   (766918) от 28.01.2019
-
-Emin - Good Love (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766918.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Got Me Good
-2. Let Me Go (Robin Schulz Remix)
-3. Always
-4. Good Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92994229747C989EB75C8529BE4941B5216FBAF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393660   (766906) от 01.07.2020
-
-VA - Radio music (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Fonsi, Daddy Yankee, Justin Bieber - Despacito (Remix) (03:50)
-02. Maroon 5, Cardi B - Girls Like You (Cardi B Version) (03:57)
-03. Marshmello, Bastille - Happier (03:36)
-04. June - A Little Messed Up (02:48)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC4D86874920E66B2F7B1DB824C2B0CA6A776E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1790462   (68071) от 09.04.2025
+
+Fear Factory - Obsolete (1998) Reissue, 2018, Roadrunner Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68071.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Shock
+A2 - Edgecrusher
+A3 - Smasher/Devourer
+A4 - SecuritronЖанр: Industrial, Death MetalПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0477A67F198C6A30DC595C8C3F6DAC80051ACF0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790554   (68068) от 09.04.2025
+
+Fear Factory - Digimortal (2001) Reissue, 2007, Roadrunner Records [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Will Become
+02. Damaged
+03. Digimortal
+04. No One(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C61AD82AB41787CCC189D858E1922E8D80FBBB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790319   (68067) от 09.04.2025
+
+Yandel - Sinfonico  (En Vivo) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Latin>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Intro (Sinf¢nico En Vivo)
+02 – Pu¤o De Tito (Sinf¢nico En Vivo)
+03 – Perm¡tame (Sinf¢nico En Vivo)
+04 – Como Antes (Sinf¢nico En Vivo)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7597E6AC783F4F1E3EEADF43C57731BAAA32EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790660   (68029) от 10.04.2025
+
+Derek MC Gowan - Rainlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rainlight (4:49)
+02.  The Man in the Suit (5:08)
+03.  Johnny's Gone (3:44)
+04.  The Boys (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD08C2CC40A9AF0817A982EFD18FA61524536C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790743   (68028) от 10.04.2025
+
+Mood Waves Record - Gentle Spring Notes Filling the Air (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Springtime Café Moments with Smooth Jazz (2:05)
+02. Soft Jazz Piano for a Peaceful Spring Day (2:46)
+03. Slow Coffee, Soft Jazz, and Spring Sunshine (2:06)
+04. Sunlit Coffee Time with Smooth Piano (1:10)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AB59E208E0713BC11F1DE008328A9157846117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790651   (68027) от 10.04.2025
 
 A.J. Croce - Heart of the Eternal (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -596,152 +741,6 @@ Steven Hufalar - Memento Mori (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A902120E72EBEC5D1E95480F9902D29334A8F6ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790901   (67955) от 11.04.2025
-
-Macbeth (Germany) - Studio Albums (5 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macbeth - рок-группа из Эрфурта, Германия. Группа была создана в 1985 году, в ГДР, в 1987 году сменила название на Caiman, а в 1989 году распалась.
-С 2003 года группа снова активна.2006 - Macbeth
-2009 - Gotteskrieger
-2012 - Wiederganger
-2015 - ImperiumЖанр: Heavy/Thrash MetalПродолжительность: 04:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D4715DC2D8BE51DCCBBF794319E0E75F57F1CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791028   (67947) от 11.04.2025
-
-Chvrches - The Bones Of What You Believe (2013) 10th Anniversary Edition, 2023, Liberator Music[FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, Indietronica>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mother We Share (3:11)
-02. We Sink (3:34)
-03. Gun (3:54)
-04. Tether (4:46)(   Читать дальше...   )Жанр: Synthpop, IndietronicaПродолжительность: 01:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729E803832A2814C43005B780BE2D6E421847FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791231   (67920) от 12.04.2025
-
-Metallica - Reload (1997) Reissue, 2015, Blackened [FLAC|24/192|tracks|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67920.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fuel
-A2. The Memory Remains
-A3. Devil's Dance
-A4. The Unforgiven II(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C138BD3B2BA1229987584BA63B42E10D0069EB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791105   (67898) от 12.04.2025
-
-Epica - Aspiral (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic-Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cross the Divide (00:04:18)
-02 - Arcana (00:05:02)
-03 - Darkness Dies in Light - A New Age Dawns Part VII - (00:07:59)
-04 - Obsidian Heart (00:05:04)(   Читать дальше...   )Жанр: Symphonic-MetalПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6D81BBFD84D96486ED57F162A44716B9774437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791283   (67888) от 12.04.2025
-
-Macbeth (Italy) - Studio Albums (5 releases) (1998-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macbeth - проект, родившийся в 1995 году, в Милане, Италия. Развивался от симфонической готики до более экспериментальной, с некоторыми электронными элементами.1998 - Romantic Tragedy's Crescendo
-2001 - Vanitas
-2005 - Malae Artes
-2007 - Superangelic Hate BringersЖанр: Symphonic Gothic MetalПродолжительность: 03:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25051DCFDB15ADED0E3744665FC2153A3EA98249
 ```
 
 https://mybot314.ru/tekegram_catalog/

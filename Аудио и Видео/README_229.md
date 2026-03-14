@@ -1,3 +1,32 @@
+###  Публикация: 1529406   (244755) от 06.02.2022
+
+VA - Balearic Sunset (The Buddha Ambient Edition), Vol. 2 (2022) [AAC|~275 Kbps] <Ambient, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricardo Acossa - Let Our Minds Be Equanimous (1:46)
+02. Beach Lovers - Liberating the Mind (2:12)
+03. Yamato Ojo - A Safe Haven (1:40)
+04. Dave Palmer - High Degree of Mindfulness (1:37)(   Читать дальше...   )Жанр: Ambient, LoungeПродолжительность: 01:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A03D49959F9D5B171D59714ED6D23B35151FEE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529399   (244749) от 06.02.2022
 
 VA - Winter Lounge, Vol. 1 (2020) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
@@ -715,35 +744,6 @@ VA - Viva 2021.4 (2022) [AAC|~331 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ABAB768A666513785FCE83391189FFC672D9B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535146   (244219) от 06.03.2022
-
-VA - Chilling in the Bar: Urban Chillout Music (2022) [AAC|~314 Kbps] <Chill Out, Chill Hop, Lo Fi>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Deeper Love (Original MIx) (5:50)
-02. Living Room - A Cup of Jazz (Original Mix) (3:42)
-03. Digby Jones - Heatwave (3:40)
-04. James Butler - Piano Suite De Luxe (Original Mix) (2:07)(   Читать дальше...   )Жанр: Chill Out, Chill Hop, Lo FiПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C350C8E7C809134ADFF4B0B42EACC981FE38521
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,176 @@
+###  Публикация: 1792711   (67595) от 20.04.2025
+
+Saori Yano - Best (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Lee [1:55]
+02. Suna to Skirt [6:56]
+03. Crazy He Calls Me [7:56]
+04. Rizlla [5:33](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD0E3ACD4295D43439576FFB701197C01755694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792730   (67574) от 20.04.2025
+
+Dogshark - Earth Is Not Room Enough (2024) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Going Down/John The Revelator (5:12)
+02. Blockchain (4:23)
+03. AI's Rise (5:52)
+04. Perfect Evening (4:19)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F00D16625DDDB252361A18D9C6D08D34D0C24A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792710   (67572) от 20.04.2025
+
+Clifford Brown - Memorial Album (1953) 2003, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hymn of the Orient [4:10]
+02. Easy Living [3:46]
+03. Minor Mood [4:37]
+04. Cherokee [3:28](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD257084A8C20793CAF5BE58BB4B503E16F3F4F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793068   (67566) от 22.04.2025
+
+Bucky Pizzarelli - Renaissance: A Journey From Classical To Jazz (2015) Arbors Records [FLAC|Lossless|tracks + .cue] <Swing, Classical>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tedesco Concerto No.1 in D, Op.99: Allegretto [7:23]
+02. Tedesco Concerto No.1 in D, Op.99: Andantino alla romanza [6:43]
+03. Tedesco Concerto No.1 in D, Op.99: Ritmico e cavalleresco [7:29]
+04. Send in the Clowns [3:31](   Читать дальше...   )Жанр: Swing, ClassicalПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E29804AAA54BC0EEFBAAE1955B1F8B950B89E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793065   (67555) от 22.04.2025
+
+Roy Eldridge & Charlie Shavers - Swing Trumpets (2024) Circle Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After You've Gone [2:50]
+02. The Gasser [3:00]
+03. I Surrender Dear [2:51]
+04. Minor Jive [2:47](   Читать дальше...   )Жанр: SwingПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AA6D93B2F79A4B23B79F765769CAF8C48589CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793220   (67538) от 23.04.2025
+
+Buddy Rich - Just In Time: The Final Recording (1986) 2CD, 2019, Gearbox Records [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good News (feat. Steve Marcus) [31:18]
+
+Продолжительность: 00:31:18Жанр: Big Band, Mainstream JazzПродолжительность: 01:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3079AB6206848091C2F5DC05A9D2A584A4C2B0A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793406   (67518) от 24.04.2025
 
 Yasuhiro Kohno - Princess Sayaka (1995) ASCAP Record [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -571,180 +744,6 @@ Gurf Morlix - The Taste of Ashes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B26715DE5E67564215461831E8DC30AB3374F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794551   (67252) от 29.04.2025
-
-Dudley Taft - The Speed of Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanted Man (3:22)
-02. Miles and Miles to Go (4:47)
-03. Work It Out (3:23)
-04. Burn It Down (2:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15483C3D7A51D5F9076B24750B2A9A6015869BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794560   (67251) от 29.04.2025
-
-Katie & The Bad Sign - Revolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolf at the Door (3:44)
-02. Revolution (3:38)
-03. Heartless Woman (3:38)
-04. Shake Me Down (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23816DF46281BF7A535A0DD4D9AE5C87C47BA12F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794539   (67237) от 29.04.2025
-
-Chris Kramer and Paddy Boy Zimmermann - Tales Of Tampa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Crazy About You Baby (3:00)
-02. Seminole Blues (3:15)
-03. You Rascal You No. 1 (3:50)
-04. Black Angel Blues (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1F9E0ED9CF8E597D52B06F7093CA1DF0088645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794529   (67235) от 29.04.2025
-
-Sarah Jane Cion - Summer Night (2001) Naxos [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Never Land/Pure Imagination [5:12]
-02. Walking on the Moon [5:03]
-03. Summer Night [5:25]
-04. Gabrielle [7:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD48D262380C47552DAE31AB6EC86401416DFFE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794548   (67231) от 29.04.2025
-
-Dr. Jules' Cool Blues - The Iconoclast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish the Blues Had Used a Condom (3:06)
-02. ADD (3:38)
-03. Don't Drink the Kool Aid (4:50)
-04. The Barflies At The Bar (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9043E346F78F21974DAD472FBB71AC52DE0D9F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794844   (67215) от 01.05.2025
-
-Saori Yano - 02 (2004) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laird Baird [4:39]
-02. Suna to Skirt [6:56]
-03. Lover Man [6:13]
-04. Rizlla [5:34](   Читать дальше...   )Жанр: Post-Bop, BopПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F9106A98AFC886D9792B6612EB0862DC51E68D
 ```
 
 https://mybot314.ru/tekegram_catalog/

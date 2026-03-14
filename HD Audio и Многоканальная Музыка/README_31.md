@@ -1,3 +1,148 @@
+###  Публикация: 695492   (544636) от 31.08.2013
+
+Pussycat - Blue Lights (1981) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Disco, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rio
+02. Blue Lights In My Eyes
+03. Then The Music Stopped
+04. Rain(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD00B4E3451E7B707AE6C11C5E51559980D5E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817135   (544111) от 01.09.2014
+
+David Lanz & Paul Speer - Desert Vision (1997) 2005 [DTS 5.1 CD-DA|44.1 /16|image+.cue|DVD-Video] <new age>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544111.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Eagle's Path 7:46
+2. Seguaro 5:24
+3. Desert Rain 3:25
+4. Sculptures 6:46(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DFC9E405D88848C1071D1D3F0EBC0C11F465565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311165   (543687) от 28.06.2019
+
+Harry Secombe - At Your Request (1958) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening, Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543687.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Song Of Songs
+A2 At The Balalaika
+A3 Granada
+A4 Shine Through My Dreams(   Читать дальше...   )Жанр: Pop, Easy Listening, VocalПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27BF96131A3EEC9E00077F216931169E6E8BE90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153806   (542648) от 29.07.2017
+
+ВИА ''Ритм'' - Дискотека «А». Из Репертуара Аллы Пугачевой (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Disco, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542648.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Все Силы Даже Прилагая · Exerting All Powers
+A2 Улетай, Туча · Fly Away, Cloud
+A3 Женщина, Которая Поет · The Woman Who Sings
+A4 Три Желанья · Three Wishes(   Читать дальше...   )Жанр: Pop, Disco, FunkПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0011E5CC6EB1A6F6C9E8F2F162A92F7ED6E6E1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661593   (542556) от 05.08.2015
+
+Джо Дассен - Поет Джо Дассен (1980) [FLAC 2.0 96/24|traks(Vinil-Rip)]<Pop, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Et Si Tu N'Existais Pas - Если бы тебя не было  3:24
+2. L' Albatros - Альбатрос	3:08
+3. Ma Musique - Моя музыка	2:54(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20652EE75E8A853E4972B70D0989FDE6ADFBD402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 818408   (541029) от 03.09.2014
 
 Pink Floyd - The Division Bell (1994) 2LP, 20th Anniversary /2014, Parlophone Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
@@ -625,151 +770,6 @@ Eric Clapton - Reptile (2001) [FLAC 2.0|88.2/24|tracks|DVD-Audio] <Blues, Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FBD2F24170CB5AADDB4B7E01B27D115C6C1DA2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560933   (516602) от 03.07.2022
-
-Black Sabbath - Russian Vinyl Collection/Блэк Сэбэт - Русская коллеция винила (1990) 6LP [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516602.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sabbath Bloody Sabbath • Кровавая суббота
-A2 A National Acrobat • Национальный акробат
-A3 Fluff • Пух
-A4 Sabbra Cadabra • Саббра Кадабра(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 04:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3153064D4C14D10A793B331CA37198DBE2E20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930155   (516201) от 22.08.2015
-
-Luciano Pavarotti - The Essential Pavarotti (1991) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Classical, Opera>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516201.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 La Donna E Mobile
-A2 Che Gelida Manina
-A3 E Lucevan Le Stelle
-A4 Nessun Dorma(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293F2FF3BA36F246BFDCA9242A86B9E2C6EFBB59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930968   (514025) от 24.08.2015
-
-Roger Hodgson - Hai Hai (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514025.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Right Place (4:05)
-A2. My Magazine (4:41)
-A3. London (4:12)
-A4. You Make Me Love You (5:10)(   Читать дальше...   )Производство: A&M RecordsЖанр: Pop RockПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40E82248AF276620639AF249BD1BBEFAF7F3002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 229812   (513758) от 26.08.2010
-
-Fleetwood Mac - Say You Will (2003) [MLP 2.0, 5.1 96/24 |DVD-Audio]<rock>
-
->>HD Audio и Многоканальная Музыка
->>DVD-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's The World Coming To [03:48]
-02. Murrow Turning Over In His Grave [04:12]
-03. Illume (9-11) [04:51]
-04. Thrown Down [04:02](   Читать дальше...   )Жанр: RockПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931025   (512811) от 25.08.2015
-
-Vangelis - Spiral (1977) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<New Age>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512811.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Spiral
-A2 Ballad
-A3 Dervish D.
-B1 To The Unknown Man(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10969C4F1F95E26EBFF2388AF0F51039C120C967
 ```
 
 https://mybot314.ru/tekegram_catalog/

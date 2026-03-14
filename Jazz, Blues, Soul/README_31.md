@@ -1,3 +1,61 @@
+###  Публикация: 1453349   (1026909) от 11.03.2021
+
+VA - St. Louis Blues Society Presents 19 in 19 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amanda Fish - Lower Your Defenses - [2:22]
+ 02. Brother Jefferson;Rich McDonough - The Mirror - [4:49]
+ 03. Joe Metzka - Another Disaster - [5:22]
+ 04. Tru Born - Soon - [4:49](   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFD733D873D0EF71F49E25755CA7E28B5EA9EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453545   (1026901) от 11.03.2021
+
+VA - Singing With The Stars (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walter Ricci, Sylvain Luc - Caruso (3:45)
+02. Matteo Brancaleoni - More (3:28)
+03. Melania - O Sole Mio (4:00)
+04. Papik, Nadia Straccia - Black Hole Sun (3:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B8CC7A425ACCDC5BB02CEA6A1482576411389B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453344   (1026898) от 11.03.2021
 
 VA - Legendary Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues; Soul; R&B>
@@ -687,64 +745,6 @@ VA - Blues Rock 50 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:886576DC95597AC204C9FC6595D85A476610DF74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455313   (1025856) от 18.03.2021
-
-Toots Thielemans & Kenny Werner (2001) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dolphin Dance [7:08]
-02. The Dolphin [7:00]
-03. Sinatra Medley [5:58]
-04. Tender Is the Night [3:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2D217F1239FAD212215DB55FBA6E90F9FA04FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455223   (1025852) от 18.03.2021
-
-Abus Dangereux - Bis (1982) 2015, Musiclip [FLAC|Lossless|WEB-DL|tracks] <azz-Rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025852.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Radio Pékin - 04:05
-2. Phaedra - 08:34
-3. Nostalgy Square - 08:39
-4. Bulletin météo - 08:14(   Читать дальше...   )Жанр: azz-Rock, FusionПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A4B5161F5417819B4C576981BDC0AC578BF3D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

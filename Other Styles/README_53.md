@@ -1,3 +1,148 @@
+###  Публикация: 745322   (767609) от 27.01.2019
+
+Michel Legrand & His Orchestra - Strings On Fire (1962) LP /Columbia/ [MP3|320 кб/с]<Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfidia 				(03:19)
+02. El Chocio 				(02:38)
+03. Boulevard Of Broken Dreams 		(02:26)
+04. What Is This Thing Called Love	(02:55)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429C014CA4A5BD6744033701317E654EFD169294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607541   (767446) от 30.06.2020
+
+VA - Intouchables (Неприкасаемые / 1+1 /) - OST (2011) [FLAC|Lossless|tracks + .cue] <Electronic, Blues, Classical, Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludovico Einaudi - Fly
+02. Earth, Wind & Fire - September
+03. Omar Sy, Francois Cluzet, Audrey Fleurot - Des References...
+04. Ludovico Einaudi - Writing Poems(   Читать дальше...   )Жанр: Electronic, Blues, Classical, Stage & ScreenПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4747FECD47FD01720570B241B72A78F9B69A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125471   (767036) от 16.04.2017
+
+Объединенный хор Свято-Троицкой Сергиевой Лавры и Московской Духовной академии - Русская святая Пасха. The Russian Holy Easter. Избранные праздничные гимны (1995) [FLAC|Lossless|image + .cue] <R ...
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767036.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лаврский пасхальный звон и крестный ход
+2. Пасхальное начало (Московский напев)
+3. Пасхальный канон (Московский напев, катавасия киевского распева в гармонизации иеромонаха Нафанаила)
+4. Кондак Пасхи (Напев Свято-Троицкой Лавры)(   Читать дальше...   )Жанр: Russian choral musicПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C64A9FAB190273D17608D30F5F9B0B2AD60E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278824   (766932) от 28.01.2019
+
+c h a p e l s - Repertoire (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Chapels
+02 Delicate
+03 Free Spirit
+04 Lost(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FDA3C8D81B86108D0EF9FFA66DFCA9E9668C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279245   (766813) от 28.01.2019
+
+John K. - Romantic Guitar II (2001) [FLAC|Lossless|image + .cue] <Instrumental, GUitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke Gets In Your Eyes
+02. Unforgettable
+03. Tonight I Celebrate My Love
+04. From The Distant(   Читать дальше...   )Жанр: Instrumental, GUitarПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB0CA91D8C7B39BDAD0BCE0CEFA4CB78E631B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213783   (766556) от 19.03.2018
 
 Richard Clayderman - Ballade pour Adeline (2012) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
@@ -600,151 +745,6 @@ Paul Mauriat - Diamond Collections (1996) Unofficial Release [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DEE6AC6697B3585E45E20229FAA37AC4E5275FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214930   (761465) от 24.03.2018
-
-Snatam Kaur - Beloved (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amul - Priceless (07:04)
-02. Gopaal (08:04)
-03. Water of Your Love (04:58)
-04. Har Uplift (08:32)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E960577997C0C489E246A02191BD2D7CD87C4D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017719   (761110) от 17.05.2016
-
-Isis & Cobra - The Goddess Spiral Meditations (2013) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return of the Goddess
-02. Golden Spiral
-03. The Central Sun
-04. Return of the Goddess - Music(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DFFDE371F8174930AF4679E844603FDE47DC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016972   (760784) от 17.05.2016
-
-Jennifer Nettles - Playing with fire (2016) [MP3|320 кб/с] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сольный альбом исполнителя.01. Playing With Fire (3:03)
-02. Unlove You (3:56)
-03. Hey Heartbreak (3:35)
-04. Drunk In Heels (3:22)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B63C2606D6FDDC93F64F528AA2616BE88BCFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280475   (760530) от 03.02.2019
-
-Jann Beaudry - Legere (2019) [MP3|320 Kbps] <Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isi a
-02. Paris perdu
-03. Ce matin
-04. Le second soir(   Читать дальше...   )Жанр: EthnicПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6DBAFC3DCB581B65034651DFB2356C6868AE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280330   (760418) от 03.02.2019
-
-Friska Viljor - Broken (2019) [MP3|320 Kbps] <Indie>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unless You Love Me
-02. Is It over?
-03. Trap
-04. Lights Out(   Читать дальше...   )Жанр: IndieПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782B209501200CED3D7ED6F834EC8EA24B88B43C
 ```
 
 https://mybot314.ru/tekegram_catalog/

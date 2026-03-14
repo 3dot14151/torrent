@@ -1,3 +1,148 @@
+###  Публикация: 1589504   (190030) от 10.11.2022
+
+Arida Vortex - Riders Of Steel (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guests From My Nightmares (Instrumental)
+02. Small Toy Soldier
+03. Riders Of Steel
+04. We Will Rise Again(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB605C1AECB1E3E5FF46BCEF8B289E7496FABFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590072   (189397) от 12.11.2022
+
+Ундервуд - За горизонтом (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189397.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Когда-нибудь
+2. Ради контента
+3. Лавацца
+4. Шуры-муры(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36071DB2402C3DEBF81A73AD1E3F91F7182D855E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589968   (189293) от 12.11.2022
+
+Машина Времени - Новый Поворот (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Право 3:07
+02. Родной Дом 4:47
+03. Кафе "Лира" 3:49
+04. Поворот 3:44(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17A23C7D74B961D4E2E1E4636534C2EBFC76606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590476   (188890) от 14.11.2022
+
+Snowborn - Pipe of the Peace (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suffocate [00:09:13]
+02. Bar [00:04:30]
+03. Sad Cowboy [00:04:24]
+04. Pipe of the Peace [00:03:57](   Читать дальше...   )Жанр: Heavy Rock, Stoner, DoomПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2C0BACA8A7415C1DAFD3E686BF4BCE11CE660C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590400   (188856) от 14.11.2022
+
+Raven Said - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Occult Wave, Goth Rock, Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Flowering and a Flattering (EP Version) [00:04:20]
+02. Transparent Sorrow (EP Version) [00:03:40]
+03. Except My Love for Her (Cold Desire Version) [00:04:14]
+04. Immersive Waves [00:04:26]Жанр: Occult Wave, Goth Rock, Post PunkПродолжительность: 2 CD, 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9823219DF99F9265EAE75F69ABBF0572EC1C38D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590739   (188526) от 15.11.2022
 
 The Korea - Vorratokon (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal, Progressive Metalcore>
@@ -595,151 +740,6 @@ The Re-Stoned - Orange Session (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9078B332BBC9A601E028C3013B20E91FF6D71160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591707   (185528) от 20.11.2022
-
-Олег Чубыкин - 400 отелей (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сок и слёзы [00:03:40]
-02. Имена и цифры [00:03:16]
-03. Лучше чем деньги [00:03:47]
-04. Новый друг [00:03:45](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59DB8E3BB401B35D30EA2694469314C79BE6888F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591781   (185519) от 20.11.2022
-
-Анатомия Меланхолии - Мир Морок (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Groove Metal, Melancholic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Разобщённые (Instrumental) [00:03:21]
-02. Сбежать (Instrumental) [00:04:29]
-03. Жизнь без гайдов (Instrumental) [00:04:53]
-04. Купи-продай (Instrumental) [00:03:36](   Читать дальше...   )Жанр: Heavy Metal, Groove Metal, Melancholic MetalПродолжительность: 2 CD, 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CD347EE059A86ECAE78073C402C22498BAF14E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591828   (185447) от 20.11.2022
-
-Два самолета - Подруга подкинула проблем (2000) [FLAC|Lossless|WEB-DL|tracks] <Acoustic Rock, Reggae, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Небесное пиво [00:04:41]
-02. Жизнь запарка [00:02:55]
-03. Александр Македонский [00:03:39]
-04. Мамочка в крыжовнике [00:03:21](   Читать дальше...   )Жанр: Acoustic Rock, Reggae, SkaПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4657DF8534E651593AEDCE2DDD205E6B086328BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591845   (185113) от 20.11.2022
-
-Drakon - П​р​о​б​у​ж​д​е​н​и​е (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Потаенность Лесной Темноты
-02. В Распрях Туманных
-03. Лунный Путь
-04. Во Мраке Ночи(   Читать дальше...   )Жанр: Black Metal, Pagan MetalПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC89C4F4203C7F2FC6D9ED63B11A8A02EA7700C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664500   (184753) от 27.09.2023
-
-Борода Бабая - Легенды мрачного города (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крысолов [00:03:49]
-02. Впусти меня [00:03:41]
-03. Корабль дураков [00:02:59]
-04. Мои друзья умерли [00:03:58](   Читать дальше...   )Жанр: RockПродолжительность: 00:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C65CACBB4FE824EE786715BCADF5B63387EB3A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

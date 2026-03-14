@@ -1,3 +1,90 @@
+###  Публикация: 1407689   (462749) от 09.09.2020
+
+Duke Ellington - An Intimate Piano Session (1969 - 1972) 2017, Storyville [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Anticipation [3:16]
+02. Le Sucrier Velours (take 1) [4:55]
+03. Lotus Blossom (take 1) [3:46]
+04. A Blue Mural from Two Perspectives (take 1) [1:13](   Читать дальше...   )Жанр: Swing, Piano Jazz, Vocal JazzПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA9E8CED32A8BAE9BC73D4980AD357A86057208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941479   (462727) от 27.09.2015
+
+Alexis Cole & Bucky Pizzarelli - A Beautiful Friendship (2015) [FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Beautiful Friendship
+02. East Of The Sun
+03. Honeysuckle Rorse
+04. I Thought About You(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F9D9ADAD80F54291D634EE2A9819B0D8192789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407710   (462595) от 09.09.2020
+
+Freddie Fox - Limitless (2020) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top It Off (05:41)
+02. Too Tuff (03:49)
+03. Lets Dance (04:14)
+04. Sweet Kisses (04:56)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE9584F409984451BA7AB58D36753ADF7B5E1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059445   (462278) от 04.10.2016
 
 T-Square - Yes, No (1988) Sony Music[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -657,93 +744,6 @@ Richard "Groove" Holmes - Night Glider (1973) 2019, Solid Records [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA89ABCAE604CDD8FBCAB1F343F43CD6CCAD7AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942087   (458227) от 29.09.2015
-
-Elvin Jones introduces Takehisa Tanaka - When I Was At Aso-Mountain (1993) /2005, Enja/[FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Beautiful Love [07:31]
-02.I Was Too Young [08:29]
-03.You Don't Know What Love Is [10:18]
-04.My Dream Come True, To E. J. [05:27](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DA749276B0592ED2A4253909DFC180CACDEDAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568810   (458043) от 10.08.2022
-
-Max Roach - The Complete Remastered Recordings On Black Saint & Soul Note, Vol. 2 (1979 - 1985) 6CD, 2016, Black Saint [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458043.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Pictures In A Frame:
-01. Reflections [3:37]
-02. Mwalimu [8:16]
-03. A Place of Truth [4:11](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Avant-Garde JazzПродолжительность: 04:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A244A867EC195D6B2C3043199D34774F32BDFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060126   (457742) от 06.10.2016
-
-Rob Agerbeek Trio - Miss Dee (1980) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Birks Works [03:47]
- 02.Cup Bearers [04:08]
- 03.Little 'Miss Dee' [05:06]
- 04.Out Of This World [06:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8227A23E360214D95857BF8BB39444E366AD97C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,120 @@
+###  Публикация: 870785   (884193) от 19.02.2015
+
+VA - Pure... 90s Dance Party (2010) Box Set, 4CD [FLAC|Lossless]<Dance, Pop, Rock, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из немногих дисков этой серии, которого нет в личной фонотеке. Но как то не попадался он на прилавках, а все композиции, которые на нем есть уж очень хотелось иметь.
+Не так много времени нас отделяет от танцевальных 90-х. Так что смело врубайте этот бокссет и наслаждайтесь.CD1:
+01. Britney Spears - ...Baby One More Time  (3:33)
+02. Backstreet Boys - Everybody (Backstreet's Back)  (3:47)
+03. Los Del Rio - Macarena  (3:53)(   Читать дальше...   )Жанр: Dance, Pop, Rock, Pop-RockПродолжительность: 04:23:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E7494B7761967C3D65EF7B147A7814365A1FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372645   (883618) от 04.04.2020
+
+Francisca Valenzuela - La Fortaleza (2020) [FLAC|Lossless|WEB-DL|tracks] <Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nunca Quise Herirte (2:07)
+02. Heroe (3:26)
+03. Tomame (3:07)
+04. Ven a Buscarlo (3:21)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E018A2C28CA2307377CCEB77D649645717E5798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372499   (883610) от 04.04.2020
+
+Purity Ring - WOMB (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. rubyinsides (03:34)
+02. pink lightning (04:14)
+03. peacefall (04:16)
+04. i like the devil (02:55)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FD25F7D554BCB3DDB52B07E22209EDEA4FBEB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103958   (883514) от 13.02.2017
+
+Hermes House Band - No.1 Gold Selection (Greatest Hits) (2006) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go West
+02. Come On Eileen
+03. I Will Survive 2006
+04. (Is This The Way To) Amarillo(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20BBF4B2DF2988DE7B6599671A05C54D1D1DAA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995691   (882844) от 12.03.2016
 
 VA - Got Hits! Perfect Pop Album (2003) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Europop>
@@ -630,122 +747,6 @@ Hound Dog & The Megamixers - The Greatest Ever Junior Party Megamix (1990) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:471BDA0EA009628FFF5FA4477A3F79DB59E7EAFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496213   (874650) от 16.09.2021
-
-Gabrielle - Do It Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Me Softly with His Song
-02. Everything I Wanted
-03. Falling
-04. Stop Right Now(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68879A5B266F8011EA3C4DF578BC01092FD82AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374307   (874581) от 09.04.2020
-
-Jive Bunny And The Mastermixers - ...The Best!! (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Big Band>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The JB Shuffle (4:06)
-02. That's what I like (4:04)
-03. Glen Miller Medley (3:55)
-04. The Juke Box Story (5:37)(   Читать дальше...   )Жанр: Rock & Roll, Big BandПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CB4783239DF42ACEBC3D8C2598D4CA8CF70405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997612   (873894) от 17.03.2016
-
-Two Of Us - Inside Out (1988) [APE|Lossless|image + .cue] <Synth-Pop, Sophist-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Inner Voices
-02. I ll Be Around
-03. Building An Empire
-04. We Got A Break It Out(   Читать дальше...   )Жанр: Synth-Pop, Sophist-PopПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053B5304FA80BA517FBC327CD100DE8CCB365593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106164   (873640) от 19.02.2017
-
-Stella - Works for You (2017) [FLAC|Lossless|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_873640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Come Collect
-02 – Nest
-03 – Watch Me Dive
-04 – One Toy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5050CE0AD6CDCB741B1AB509313B95DFDB8ED493
 ```
 
 https://mybot314.ru/tekegram_catalog/

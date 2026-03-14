@@ -1,3 +1,148 @@
+###  Публикация: 1819986   (946) от 25.09.2025
+
+Karina Kozhevnikova & Krugly Band - Polyphonic Circle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  So What (10:07)
+02.  Round About Midnight (10:55)
+03.  Strolling (7:32)
+04.  Oh, Doctor Jesus (7:16)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D4F9E2E9A24FE582D4BD2A2C6F8F9E8556BE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819979   (945) от 25.09.2025
+
+Dave Weld & The Imperial Flames - Bluesin' Through the Years (Remastered) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't Ever Change Your Ways (Remastered) (4:17)
+02.  Don't Tell Mama (Remastered) (5:02)
+03.  Red Hot Tabasco (Remastered) (3:03)
+04.  Lookin for a Man (Remastered) (5:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420228FFF329F3753CFE31CD9FA878E703912F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819984   (944) от 25.09.2025
+
+Filippo Bianchini - Mood Indigo (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jerry Potato (5:42)
+02.  To DS (Dedication To Dayna Stephens) (4:11)
+03.  Trasloco (4:16)
+04.  Every 3 Hours (4:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149B3AF7E4AD28600407048F5FDBB2728AFF6550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646462   (864) от 26.09.2025
+
+Rage - Studio Albums (31 releases) (1985-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Speed/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rage — немецкая хэви-метал группа, основанная в 1984 году Петером «Пиви» Вагнером. Они представляли собой часть немецкой хэви-/спид-/пауэр-метал сцены, зародившейся в начале-середине 1980-х годов, и входят в «большую четвёрку» этой сцены наряду с Grave Digger, Helloween и Running Wild.1985 - Prayers Of Steel (as Avanger)
+1986 - Reign Of Fear
+1987 - Execution Guaranteed
+1988 - Perfect Man(   Читать дальше...   )Жанр: Heavy/Speed/Power MetalПродолжительность: 34:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFCB17C237F91FE3648F97A1BD11C93E048F2391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633139   (858) от 26.09.2025
+
+Paradox - Studio Albums (9 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash/Power/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paradox — немецкая метал-группа, образованная в Вюрцбурге в 1986 году.1987 - Product of Imagination
+1989 - Heresy
+2000 - Collision Course
+2008 - ElectrifyЖанр: Progressive Thrash/Power/Speed MetalПродолжительность: 08:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0591D9EA2439308421092C674656A86E607E37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820092   (814) от 26.09.2025
 
 Ana Popovic - Dance To The Rhythm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -600,152 +745,6 @@ Fish Hook Smile - Fish Hook Smile (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E5EC7BB4B098E1A9E936CD55BC33A1E197D639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571320   (155) от 29.09.2025
-
-Manowar - Studio Albums (19 releases) (1982-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Manowar — американская хэви-метал-группа из Оберна, штат Нью-Йорк, основана в 1980 году.
-Группа известна воинской тематикой и эстетикой своих песен, приверженностью «истинному металу» (true metal) и частым обращением к скандинавской мифологии.1982 - Battle Hymns
-1983 - Into Glory Ride
-1984 - Hail To England
-1984 - Sign Of The Hammer(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 13:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3FB3F76D3777EE81EC6438409862EDFBF68D032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548439   (140) от 29.09.2025
-
-Motörhead (Motorhead) - Studio Albums (23 releases) (1977-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motörhead — британская рок-группа, образованная в июне 1975 года басистом, певцом и автором песен Иэном Фрейзером Килмистером (1945–2015). Группу часто считают одним из первых участников NWOBHM, которая вдохнула новую жизнь в хэви-метал в конце 1970-х — начале 1980-х годов.1977 - Motörhead
-1979_1 - Overkill
-1979_2 - Bomber
-1979_3 - On ParoleЖанр: Heavy MetalПродолжительность: 17:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82FBD1FA270076AFD781208BDAC208F7D3B74955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776093   (102) от 29.09.2025
-
-Between the Buried and Me (BTBAM) - Studio Albums (18 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Technical Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Between the Buried and Me - прогрессив-метал группа из города Роли, штат Северная Каролина, США; сформирована в 2000 году.2002 - Between The Buried And Me
-2003 - The Silent Circus
-2005 - Alaska
-2006 - The Anatomy OfЖанр: Progressive Metal, Technical Death Metal, MetalcoreПродолжительность: 16:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C5BD67C506E752F6A6A40F3E67D98F44042DFEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820850   (18) от 29.09.2025
-
-Dario Mollo projects (Crossbones, EZoo, The Cage, Twilight Road, Voodoo Hill) - Studio Albums (10 releases) (1989-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, H ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарио Молло — итальянский гитарист и музыкальный продюсер, наиболее известный, тремя альбомами "The Cage", которые он записал с бывшим вокалистом Black Sabbath Тони Мартином, а также работой в группе "Voodoo Hill" с бывшим вокалистом и басистом Deep Purple Гленном Хьюзом.Crossbones
-EZoo
-The Cage
-Twilight RoadЖанр: Hard Rock, Heavy MetalПродолжительность: 09:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B054F92E238272EFE6871E59CE5FC71172B1EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820836   (12) от 29.09.2025
-
-Arabs In Aspic - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arabs In Aspic - норвежская группа, играющая прогрессивный рок, была основана в Тронхейме в 1997 году. Музыкальные корни коллектива уходят в золотую эру рока. Их звучание — это смесь громких, тяжёлых гитар и барабанов, двенадцатиструнной акустики, фанкового баса и перкуссии, пронзительных органов Hammond, мягких Fender Rhodes, меллотронов и синтезаторов 1970-х.2003 - Progeria (EP)
-2004 - Far out in Aradabia
-2011 - Strange Frame Of Mind
-2013 - Pictures in a DreamЖанр: Progressive RockПродолжительность: 05:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB0F5AC165EDEF8B7EB33C4C4FEFBCE893FF3D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

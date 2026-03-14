@@ -1,3 +1,148 @@
+###  Публикация: 1749811   (26880) от 21.02.2025
+
+Killswitch Engage - Studio Albums (9 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_26880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Killswitch Engage - американская металкор-группа из города Уэстфилд, штат Массачусетс, образовалась в 1999 году.2000 - Killswitch Engage
+2002 - Alive Or Just Breathing
+2004 - The End Of Heartache
+2006 - As Daylight DiesЖанр: MetalcoreПродолжительность: 07:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A5B8651102B65C38EB8D4B251FD663898FA4C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780959   (26873) от 21.02.2025
+
+Lacuna Coil - Sleepless Empire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Siege [4:25]
+02 - Oxygen [3:46]
+03 - Scarecrow [4:49]
+04 - Gravity [4:04](   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E71BF082BD772E272545B6E4460C8577B1CFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575781   (26439) от 26.02.2025
+
+Ozzy Osbourne - Studio Albums (14 releases) (1980-2022) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_26439.jpg" />
+</div>
+
+
+###  Подробнее
+
+О́ззи О́сборн (англ. Ozzy Osbourne; настоящее имя — Джон Майкл О́сборн, англ. John Michael Osbourne; род. 3 декабря 1948, Марстон Грин, Бирмингем) — британский рок-певец, музыкант, один из основателей и участник группы Black Sabbath, оказавшей значительное влияние на появление таких музыкальных стилей, как хард-рок и хеви-метал. Успешность его карьеры (   Читать дальше...   )1980 - Blizzard Of Ozz
+1981 - Diary Of A Madman
+1983 - Bark At The Moon
+1986 - The Ultimate Sin(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 14:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3479F1C0AA90019C6C2C0EAA0F7D384EDD9A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664217   (26300) от 27.02.2025
+
+Staind - Studio Albums (8 releases) (1996-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Hard Rock, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_26300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Staind — американская метал-группа из города Спрингфилд, штат Массачусетс, основанная в 1995 году.1996 - Tormented
+1999 - Dysfunction
+2001 - Break The Cycle
+2003 - 14 Shades of GreyЖанр: Nu Metal, Hard Rock, Post-grungeПродолжительность: 07:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6867D2B0DA72A7759B6C1321B93F57D38B21BC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745353   (26279) от 27.02.2025
+
+Brainstorm - Studio Albums (14 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_26279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brainstorm — немецкая пауэр-метал-группа. Создана в 1989 году. Лицом группы является вокалист Энди Б. Франк, также известный участием в Symphorce и прогрессив-группе Ivanhoe. Brainstorm отличается более «тёмным» стилем музыки от большинства пауэр-метал-команд.1997 - Hungry
+1998 - Unholy
+2000 - Ambiguity
+2001 - Metus Mortis(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 14:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638AE89B856511491E3A4D32058B37398926C717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606286   (26268) от 27.02.2025
 
 A Day to Remember - Studio Albums (8 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Post-hardcore>
@@ -597,151 +742,6 @@ SIDE A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE473B138EE1C2A7B0A242DD154CF3D523B2ACA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641536   (24595) от 15.03.2025
-
-Septicflesh (Septic Flesh) - Studio Albums (12 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Atmospheric/Symphonic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Septic Flesh — метал-группа из Греции. Коллектив сочетает в своём звучании такие жанры как дэт-метал, симфоник-метал и дум-метал.1994 - Mystic Places of Dawn
-1995 - Esoptron
-1997 - Ophidian Wheel
-1998 - A Fallen TempleЖанр: Atmospheric/Symphonic Death MetalПродолжительность: 11:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2F2FB70D24FFE987691F13935D0B58511A7D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785351   (24573) от 15.03.2025
-
-AC/DC - Star Colletion (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Stiff Upper Lip
-02. Big Gun
-03. The Jack(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DF406D0C1FC71E7A6689D5B781563CC3557D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785268   (24508) от 16.03.2025
-
-Борис Гребенщиков, Аквариум - Коллекция (1982-2024) 2025 [FLAC|24/44.1-96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Борисович Гребенщиков (род. 27 ноября 1953, Ленинград, СССР) — советский и российский поэт, музыкант, композитор, певец, гитарист. Основатель рок-группы «Аквариум». Один из родоначальников рок-музыки на русском языке. С 2005 по 2022 год — ведущий программы «Аэростат», которая транслировалась на «Радио России». Ныне программа выходит в интернете.01. Портал (Вход) (0:43)
-02. Ворожба (3:07)
-03. Вино Из Песка (3:55)
-04. Не Выходи За Дверь (3:03)(   Читать дальше...   )Жанр: Folk, rock, miscellaneousПродолжительность: 10:24:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD06D81FC9D1885040C79C959FA411A012ED2098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262394   (24398) от 17.03.2025
-
-VA - Jazz Collection Non Stop Part II (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Michael Lington & Wendy Moten - Don't Go
-02. Orchestra - Chattanooga Choo Choo
-03. The Robert Cray Band - I'm Afraid(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C680CED789F6E17F98B1447DEF9CB3520032C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577374   (24319) от 18.03.2025
-
-Lacrimosa - Studio Albums (11 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Goth Rock, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lacrimosa — группа из Швейцарии, лидеры которой — основатель, композитор и вокалист Тило Вольфф и клавишница и вокалистка Анне Нурми. Музыка Lacrimosa довольно разнообразна и выходит за рамки одного жанра, группа работала в разных стилях, но чаще всего в жанре готик-метал.1997 - Stille
-1999 - Elodia
-2001 - Fassade
-2003 - EchosЖанр: Gothic/Symphonic MetalПродолжительность: 11:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C3FA59AF44B0522EA9AD986A4169BAA68781EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

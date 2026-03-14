@@ -1,3 +1,90 @@
+###  Публикация: 1843780   (1049778) от 23.12.2025
+
+The Black Keys - Compilation (2002-2025) [MP3|320 Kbps] <Garage rock, Blues rock, Indie rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Man Will Do Wrong (& The Arcs) ❂ Electrophonic Chronic 2023
+02. Ain't Nothing Like You (Hoochie Coo) (& Jim Jones & Mos Def) ❂ Blakroc 2009
+03. Behind The Eyes (& The Arcs) ❂ Electrophonic Chronic 2023
+04. Can't Find My Mind (& The Cramps) ❂ OST He Put The Bomp ! In The Bomp 2007(   Читать дальше...   )Жанр: Garage rock, Blues rock, Indie rockПродолжительность: 08:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C260EEFC530264BABFB276673CF0E5D9FD25E1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844089   (1049745) от 24.12.2025
+
+VA - Music News For Forum vol.152 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Simona Nae - De Craciun (02:53)
+ 002. ADDA - Flori In Decembrie (02:49)
+ 003. AGAV - Avis De Tempete (02:30)
+ 004. AGAYAN - Механизм (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D871D95B6BB3F944CB844DAA22C6DCF66ADE3F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843696   (1049547) от 21.12.2025
+
+Dakota Lane - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Déjà Vu
+02 - Lucifer
+03 - I Am Safe Inside Your Heart
+04 - Lonely Satellite(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC503CB1DDEC65ED3066B6DC171B7794B30FA943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843695   (1049546) от 21.12.2025
 
 Dakota Lane - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
@@ -658,93 +745,6 @@ VA - Vocal Trance NNM 6 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2C6EAF9B81DBCA62E47A17F038399CC7026A2EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841729   (1048234) от 12.12.2025
-
-VA - No name compilation part 20 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dova Music - Winter Lonely Love
-02 - Mr Salama - Neon Heart
-03 - Azimov - Stay Tonight
-04 - Delih - Still Loving You(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3CADB5C69C416114CB612F244E8353317CC118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841731   (1048232) от 12.12.2025
-
-VA - No name compilation part 22 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Azimov - Midnight Shadow
-02 - Kasimoff - Cheri Cheri Lady (Instrumental Guitar)
-03 - Umideep - Forgive My Move
-04 - Adex - Inbox(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3704A3BD44FE07249FDDB5EFFB1CC3B4A44AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841726   (1048231) от 12.12.2025
-
-Sardø - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Minha Alegria
-02 - La Bella Luna
-03 - Midnight
-04 - Oh Love(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806076589E1CF502B7E3CA252B868E3E3A60169A
 ```
 
 https://mybot314.ru/tekegram_catalog/

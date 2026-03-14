@@ -1,3 +1,61 @@
+###  Публикация: 1111801   (846805) от 06.03.2017
+
+Jackie McLean - Strange Blues (1957) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Strange Blues [07:35]
+ 02.Millie's Pad [11:20]
+ 03.What's New [06:38]
+ 04.Disciples Love Affair [06:53](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715A74B7D31A50A6BADE26DC98194FE2FC3C3457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111848   (846804) от 06.03.2017
+
+Junior Cook - Senior Cookin' (1979, 1981) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.J.C. [07:12]
+ 02.I'm Getting Sentimental Over You [05:06]
+ 03.Play Together Again [05:16]
+ 04.Waltz For Junior [07:44](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8513B8A706BBCC22D170A93C79086E4476DE7B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111771   (846797) от 06.03.2017
 
 Delta Moon - Cabbagetown (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
@@ -687,64 +745,6 @@ George Cables Trio - Bluesology (1998) SteepleChase [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:475C41C086214F63E6F076B8C377DC4067DBAE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111997   (845236) от 07.03.2017
-
-Jason Moran - All Rise (2014) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Put Your Hands On It [00:21]
- 02.Ain't Misbehavin' [03:43]
- 03.Yacht Club Swing [04:03]
- 04.Lulu's Back In Town [02:39](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D765AB26298B0055A3227CB0DF0442919318D334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112020   (845235) от 07.03.2017
-
-George Cables Trio - Dark Side, Light Side (1997) SteepleChase [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dolphin Dance [09:41]
- 02.Dark Side, Light Side [09:16]
- 03.Ruby, My Dear [07:38]
- 04.Alone Together [07:26](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE148EA47C2C7EC1A7F64F93FB527EAEA9D9D6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

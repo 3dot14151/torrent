@@ -1,3 +1,61 @@
+###  Публикация: 1250876   (422650) от 29.09.2018
+
+Technique - Michael Angelo (1983) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can We Try Again (3:47)
+02. Movie Star (5:36)
+03. Time Is Of The Essence (3:42)
+04. Now And Then (3:33)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ACBBE3E24355FA29184B1769955B83A19572242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947062   (422486) от 15.10.2015
+
+Demi Lovato - Confident (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confident
+ 02. Cool for the Summer
+ 03. Old Ways
+ 04. For You(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C4C112500B8414CF378A36CC81E91AE37BE909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324807   (421332) от 11.09.2019
 
 Nino De Angelo - Samuraj (1989) LP [MP3|320 Kbps] <Electronic, Pop>
@@ -681,64 +739,6 @@ VA - The Best Of Christmas Hits (2016) [MP3|320 Kbps] <Pop, Jazz, Easy Listening
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67AC8C96AA68A78423EDE4DEC8A957DCF43419B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252176   (409096) от 05.10.2018
-
-VA - 101 Hits - Long Hot Summer (2018) 5CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409096.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Sergio Mendes Feat. The Black Eyed Peas - Mas Que Nada
-02. Shaft - (Mucho Mambo) Sway(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAA7A74B4BBA4E74224D1DC400E51D990B83974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573796   (408740) от 02.09.2022
-
-Sandra - Stay In Touch (2012), (2CD) [OGG Vorbis|485 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay In Touch
-02. Infinite Kiss
-03. Between Me And The Moon
-04. Maybe Tonight(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41ACF15E4A9842163282E8A9418F9F0B8DE2359F
 ```
 
 https://mybot314.ru/tekegram_catalog/

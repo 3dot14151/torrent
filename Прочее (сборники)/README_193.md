@@ -1,3 +1,32 @@
+###  Публикация: 1811489   (8696) от 10.08.2025
+
+VA - Music News For Forum vol.124 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8696.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. MARAKYIA - Это любовь (02:22)
+ 002. A7S feat. David Guetta & Wizkid - Lighter (Hypaton Remix) (02:17)
+ 003. Adem Bogoceli & Farenthide - Yimanya (Skytech & Fafaq Extended Remix) (04:57)
+ 004. Akmalov - 10 (02:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03FBACBC5050546310F44881C15E6A699CFA67BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811865   (8285) от 12.08.2025
 
 VA - Musical kaleidoscope part 49 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax>
@@ -716,35 +745,6 @@ VA - Rainbow Party (2025) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB7C56CEAAC60E5C8162AAAC5FB00BA8B56BFAC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816701   (4173) от 06.09.2025
-
-VA - ЕвроХит Топ 40 Europa Plus 05.09.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Warren - Ordinary (3:07)
-02. twocolors, Safri Duo & Chris de Sarandy - Head Above Water (2:54)
-03. Blackpink - JUMP (2:44)
-04. Demi Lovato - Fast (3:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DFD639ED027D5FFC04AB95BE05EC442F7C2DAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 985560   (934093) от 12.02.2016
+
+VA - Global Hits 2002 (2002) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. iiO - Rapture (Tastes So Sweet) (3:07)
+02. Roger Sanchez - Another Chance (3:19)
+03. The Supermen Lovers feat. Mani Hoffman - Starlight (3:29)
+04. Modjo - Lady (Hear Me Tonight) (4:57)(   Читать дальше...   )Жанр: Dance-popПродолжительность: 01:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F020F7A7C13EA218612C3EFA397CF54C43EFFF3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364797   (933710) от 05.03.2020
+
+Vanessa Daou - Welcome to My Blues: An Anthology (1994-2017) (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Soul, Acid Jazz, Trip-Hop, Lounge>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once in a While (5:24)
+ 02. Trouble Comes (5:09)
+ 03. Snow (A Deeper Drift) (3:56)
+ 04. How Do You Feel (3:51)(   Читать дальше...   )Жанр: Electronic, Soul, Acid Jazz, Trip-Hop, LoungeПродолжительность: 02:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E258FD9CB1011852470F7CAAC3EEA732F43415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365065   (933555) от 05.03.2020
+
+VA - Retro 80s Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christopher Cross - Never Be the Same (4:10)
+02. Laura Branigan - Spanish Eddie (4:08)
+03. Peter Cetera - Best of Times (4:16)
+04. Matt Bianco - Nervous (4:31)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8610B16B9BFB8A0ED2761BCA94FA0F36F6204DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985641   (932531) от 13.02.2016
+
+VA - EGB: La musica de una generacion (2014) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Bowie - Let's Dance (3:58)
+02. Joe Cocker - You Can Leave Your Hat On (4:09)
+03. Gloria Gaynor - I Will Survive (3:43)
+04. Wham! - Wake Me Up Before You Go Go (3:47)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A11C62BD53BB7CF10E70D207627D7983F1ECFB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985864   (932522) от 13.02.2016
 
 Ronan Keating - Time of My Life (2016) [FLAC|Lossless|tracks] <Pop>
@@ -628,128 +744,6 @@ Mandy Moore - Silver Landings (2020) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C23D45153915BAE068BE31299C058764BC4BA882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288535   (921587) от 29.01.2011
-
-Lara Fabian - Best Of (2CD, Edition Limitee) (2010) [FLAC|Lossless]<Pop, French pop, Adult contemporary>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921587.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. On S'Aimerai Tout Bas (Inйdit)  (4:02)
-02. Je T'Aime  (4:23)
-03. Tout  (4:17)
-04. Si Tu M'Aimes (3:30)
-05. Humana (5:39)
-06. La Diffйrence  (4:15)
-07. Pas Sans Toi  (4:45)
-08. Tu T'En Vas (3:47)
-09. Je Suis Malade  (4:24)(   Читать дальше...)Жанр: Pop, French pop, Adult contemporaryПродолжительность: 02:08:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988415   (920553) от 20.02.2016
-
-Sade - The Best Of Sade (1994) Compilation [FLAC|Lossless|image + .cue] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Love Is King (3:41)
-02. Hang On To Your Love (4:33)
-03. Smooth Operator (4:21)
-04. Jezebel (5:31)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7FA12F604DB8794CC16A7FB47FB39508830C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863597   (920051) от 29.01.2015
-
-Bjork - Vulnicura (2015) [FLAC|Web-Dl|Lossless]<Pop, Experimental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stonemilker
- 02. Lionsong
- 03. History of Touches
- 04. Black Lake(   Читать дальше...   )Жанр: Pop, ExperimentalПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD69BDC72D64BEC42CBD2E43AA038ED7A17E8824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631940   (919386) от 20.03.2013
-
-VA - MTV Top the Hits 2013 3CD (2013) [FLAC|Lossless]<Pop, Dance, Rock, R&B, Trance, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычно на трекере размешаются в основном МР3ки. Сборник хитов в приличном качестве довольно большая редкость. Тем более, что все, представленные в этом сборнике треки действительно хиты!CD1Жанр: Pop, Dance, Rock, R&B, Trance, OtherПродолжительность: 01:08:49
-
-1. Pitbull Ft. Christina Aguilera - Feel This Moment (3:50)
-2. Rihanna Ft. David Guetta - Right Now (3:02)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 968048   (158178) от 22.12.2015
+
+Telarc Heads Up SACD Sampler Vol 5 (2005) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <demos/samplers>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158178.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. What'll I Do? - Tierney Sutton
+  2. LWB's House (The Remix) - Dave Holland
+  3. Walkin' In N.Y. - Manhattan Transfer
+  4. Wind Song - Hiromi(   Читать дальше...   )Жанр: VariousПродолжительность: 01:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4212292897F7A88AE1C3015010B4932F1A02E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968049   (158169) от 22.12.2015
+
+Telarc Heads Up SACD Sampler Vol 7 (2009) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <demos/samplers>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158169.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Some Skunk Funk - Randy Brecker with Michael Brecker
+2. Oh What A Beautiful Morning - Ray Charles
+3. You Are My Sunshine - Tierney Sutton Band
+4. Caravan - Hiromi(   Читать дальше...   )Жанр: VariousПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F0145D314C14A655120B3B2E310342B4BAD24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967718   (158120) от 22.12.2015
+
+Various Artists – Telarc SACD Sampler I (2002) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <demos/samplers>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158120.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Moanin' (Monty Alexander)
+2. Badia (Celebrating the Music of Weather Report)
+3. Nature Boy (Philip Bailey)
+4. Feelin' Fine (Spyro Gyra)(   Читать дальше...   )Жанр: VariousПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A34C459AC3A026A5DB8BB8D63024DC1E6FE764E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433242   (157954) от 20.12.2020
+
+The Beatles - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Beat, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Michelle (Rubber Soul)
+A2 Girl (Rubber Soul)
+A3 Help! (Help!)(   Читать дальше...   )Жанр: Beat, Pop RockПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88A6C65591CF69EDDB3F37FD061C2C53813192B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085463   (157857) от 21.12.2016
+
+Roxy Music – Avalon (2003) 1982 [DTS 5.1|44.1/16|image +.cue|SACD] <Art Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avalon — восьмой и последний студийный альбом британской рок-группы Roxy Music, изданный лейблами Warner Bros и E.G. в 1982 году.01. More Than This 4:31
+02. The Space Between 4:30
+03. Avalon 4:16
+04. India 1:45(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1CC44F4A4D57A9E3A9F5AAA8A918F34AF096CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600402   (157538) от 27.12.2022
 
 At the Gates - Studio Albums (7 releases) (1992 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
@@ -610,151 +755,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1A8F531EF97CB518707B3E7245E308CBFD3F4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086523   (151863) от 24.12.2016
-
-Manfred Mann's Earth Band - The Roaring Silence (1976) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151863.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Blinded By The Light (7:09)
-A2. Singing The Dolphin Through (8:21)
-A3. Waiter Theres A Yawn In My Ear (5:40)
-B1. The Road To Babylon (6:53)(   Читать дальше...   )Производство: Bronze - 27 870 XOTЖанр: Progressive RockПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1849946DB1CEAD15E746C8041CD140C24A4F6181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601070   (151812) от 30.12.2022
-
-Santana - Caravanserai (1972) Reissue, Remastered, 2022, Sony Records Int'l  [DSD64(DST64) 2.0, 5.0|2822,4/1|SACD-R] <Jazz, Rock, Latin>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Caravan of Reincarnation
-02. Waves Within
-03. Look Up (To See What's Coming Down)
-04. Just in Time to See the Sun(   Читать дальше...   )Жанр: Jazz, Rock, LatinПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE482B77F772BC27AAFAA5443EE5E9B59AB7C53B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677381   (150787) от 17.11.2023
-
-Daft Punk - Random Access Memories (2023) Drumless Edition [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Electronic, Synth-pop, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Life Back to Music (Drumless Edition) [4:35]
-02. The Game of Love (Drumless Edition) [5:23]
-03. Giorgio by Moroder (Drumless Edition) [9:06]
-04. Within (Drumless Edition) [3:49](   Читать дальше...   )Жанр: Electronic, Synth-pop, FunkПродолжительность: 01:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32FCBD787DF9C4FF8E9791AE40D0B4A49984FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677184   (150607) от 17.11.2023
-
-Ария - Студийные альбомы (10 релизов) (1995-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150607.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ария» — советская и российская хеви-метал-группа. Одна из самых успешных российских рок-групп, при этом — это одна из немногих российских метал-групп, достигших серьёзного коммерческого и творческого успехов и популярности за пределами поклонников хэви-метала. Лауреат премии Fuzz 2007 года как лучшая live-группа. Её бывшими участниками были образованы многие другие (   Читать дальше...   )1995 - Ночь Короче Дня
-1998 - Генератор Зла
-2001 - Химера
-2003 - Крещение ОгнёмЖанр: Heavy MetalПродолжительность: 10:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07BF373F8AA23730936920D702296EEAA7A4585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677570   (150565) от 18.11.2023
-
-Giant Lungs - Giant Lungs (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Stoner Rock, Desert Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150565.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flying Lures (04:17)
-2. Girls with Fins (06:08)
-3. Aromatico (03:54)
-4. Shallow (05:32)(   Читать дальше...   )Жанр: Stoner Rock, Desert RockПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D083E2BBEBB33D760B9888D4F7D05E60038B75AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

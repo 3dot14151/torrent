@@ -1,3 +1,90 @@
+###  Публикация: 1140263   (657006) от 05.06.2017
+
+The Bud DeTar Big Band - Live At S.U.N.Y. Brockport (1999) Self Released [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Dipper [06:18]
+02. Cheers [02:50]
+03. Basically Blues [05:08]
+04. Bud's Blues [05:30](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991182A9F2B533BF347747180FA786A31806692C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140268   (657005) от 05.06.2017
+
+Tubby Hayes & Paul Gonsalves - Change of Setting (1965) 2016, Harkit Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change of Setting [04:23]
+02. Royal Flush [03:40]
+03. Child's Fancy [04:19]
+04. Min and Madge Blues [04:16](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45032D75AA64CA3C91FD41AB17D358FF81F9D273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140279   (657004) от 05.06.2017
+
+Harry Connick, Jr. - Occasion (2005) Par Media Music [FLAC|Lossless|tracks + .cue] <Modern Creative, Chamber Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brown World [04:41]
+02. Valentine's Day [05:15]
+03. Occasion [03:02]
+04. Spot [05:59](   Читать дальше...   )Жанр: Modern Creative, Chamber JazzПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D6A2A9A898BD717B763C05761AB20CB77CE119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140143   (657003) от 05.06.2017
 
 Franck Avitabile - Short Stories (2006) Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -687,105 +774,6 @@ Bill Evans Trio Featuring Scott La Faro - Sunday At The Village Vanguard (1997) 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516033   (654507) от 27.06.2012
-
-Art Blakey And The Jazz Messengers - Moanin' (1999) [FLAC|Lossless]<Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warm-Up And Dialogue Between Lee And Rudy [00:35]
-02. Moanin' [09:30]
-03. Are You Real? [04:47]
-04. Along Came Betty [06:08]
-05. The Drum Thunder Suite [07:30]
-* First Theme: Drum Thunder
-* Second Theme: Cry A Blue Tear
-* Third Theme: Harlem's Disciplines
-06. Blues March [06:13]
-07. Come Rain Or Come Shine [05:45](   Читать дальше...   )Жанр: Jazz, BopФормат: CD ADDПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516123   (654498) от 27.06.2012
-
-Ray Charles and Cleo Laine - Porgy & Bess (1990) [FLAC|Lossless]<Jazz, Stage & Screen>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summertime [06:17]
-02. My Man's Gone Now [04:43]
-03. A Woman Is A Sometime Thing [02:45]
-04. They Pass By Singin' [03:05]
-05. What You Want Wid Bess? [02:25]
-06. I Got Plenty O' Nuttin' [03:52]
-07. Buzzard Song [03:25]
-08. Bess, You Is My Woman [05:29]
-09. Oh, Doctor Jesus [02:14]
-10. Crab Man [01:45](   Читать дальше...   )Жанр: Jazz, Stage & ScreenФормат: CDПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904529   (654466) от 03.06.2015
-
-Lester Young - The President Plays (2008) [FLAC|Lossless]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ad Lib Blues [05:55]
-02. Just You, Just Me [07:42]
-03. Tea For Two [07:45]
-04. Indiana [07:04](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8422FD303CD59E7926CC9759D6ACF75B7F98C296
 ```
 
 https://mybot314.ru/tekegram_catalog/

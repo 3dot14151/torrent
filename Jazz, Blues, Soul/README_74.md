@@ -1,3 +1,61 @@
+###  Публикация: 1491072   (913836) от 23.08.2021
+
+The Plunders - Speak Easy (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Cost of Low Life Livin' (3:23)
+02. I Get the Blues (3:46)
+03. Last Wave of Summer (3:38)
+04. Fallen Angels Fly (4:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B788110165FFB3A8472089DD056A6FACC6408581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491053   (913835) от 23.08.2021
+
+Los Blues Morning Singers - Winding Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winding Road (3:59)
+02. Confusion Woman (4:36)
+03. Learning to Say No (3:25)
+04. Lotto Prize (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18F7F5027DED0AADC0B1A91151A43BB8F1602D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491048   (913833) от 23.08.2021
 
 Jack Biilmann - Full Circle (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -683,64 +741,6 @@ Dave Lambert - Broken Wings (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F4D6B34E6A9EFA7665635CC1991E60037CED398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097978   (910989) от 29.01.2017
-
-Donny McCaslin - Casting For Gravity (2012) Greenleaf Music[FLAC|Lossless|tracks + .cue] <Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Stadium Jazz [07:21]
- 02.Says Who [06:20]
- 03.Losing Track Of Daytime [07:41]
- 04.Alpha And Omega [04:14](   Читать дальше...   )Жанр: Modern CreativeПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5E6574F0A0601B37F4450CDC619423EA8FD0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097826   (910987) от 29.01.2017
-
-Delbert McClinton & Self-Made Men - Prick of the Litter (2017) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Do It (3:20)
-02. Doin' What You Do (3:41)
-03. Middle of Nowhere (3:18)
-04. Skip Chaser (2:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB907ECE185D7550E33A69B21A7075E7A2F2B70
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1480149   (1009144) от 27.06.2021
+
+PowerISO 7.9 (DC 27.06.2021) RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009144.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BEB8C8646AC2680AC4E785564F026EF4ED9B59F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480234   (1009126) от 27.06.2021
 
 Unscripted v3.3.7 [En] - Posing Guide for Photographers
@@ -660,33 +686,6 @@ Dashcam Viewer - это современный и продвинутый мен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBC6FA9C3573E577C37C6BAD3FAF2743941034A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480436   (1008967) от 28.06.2021
-
-RAR Extractor Max - WinRAR 7.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008967.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR Extractor Max унаследовал преимущества RAR Extractor Pro, разработчики переработали интерфейс и добавили более мощные функции.
-Поддержка разархивирования RAR, winmail.dat, ZIP, 7z, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, lzma, exe, msi, cpio, lzx, jar, swf, xip, ace, arj, pak, pkg, apk, lbr, lqr, cab, rpm, cpt, sea, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.06.2021Разработчик: ElimisoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96682B5D8B0445865ADA8A945F4CCBBADC0ADD12
 ```
 
 https://mybot314.ru/tekegram_catalog/

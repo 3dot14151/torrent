@@ -1,3 +1,32 @@
+###  Публикация: 1527740   (736440) от 29.01.2022
+
+VA - Sunrise Meditation, Vol. 08 (2021) [AAC|~315 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tranquillo - Elaborated Compassion (Original Mix) (4:32)
+02. Vibes In Motion - Dont Worry (Original Mix) (4:51)
+03. Marc Hartman - Afterlife (Original Mix) (5:23)
+04. Chambre 29 - L'amour d'Alberta et Paul (Original Mix) (5:04)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527D608AEB372D0721B88F3DAF80348363D4A189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527749   (736438) от 29.01.2022
 
 VA - Flowers of Chillout (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
@@ -713,35 +742,6 @@ MUUI - No Man Is an Island (2022) [AAC|~335 Kbps] <Deep House, Progressive House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D73DD3349BC63E67122C067A7A8A48598E6B86D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528049   (735414) от 31.01.2022
-
-VA - Chillaxing Time, Vol. 10 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tapelapse - Daydreaming (2:10)
-02. Weathertunes - Long Beach (Original Mix) (5:22)
-03. Minus Blue - Ocean Sky (Original Version) (5:23)
-04. Tapelapse - Benztown Lo-Fi (3:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AC2E13F134ADBA53E585EF29B23436355C2108
 ```
 
 https://mybot314.ru/tekegram_catalog/

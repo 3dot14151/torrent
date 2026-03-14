@@ -1,3 +1,31 @@
+###  Публикация: 834303   (380387) от 24.10.2014
+
+VideoHive - Renaissance - 111382 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для начала фильма или презентации логотипа в стиле "триллер". Плагины не требуются. Превью и видеоурок - в раздаче.
+
+От автора проекта: Proudly presenting this short and cinematic video, based on typography and on an epic renaissance style. It’s a sure choice for DVD menus, impressive titles and any kind of intro you can think about.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7BE5760DEC72EE11A828B42216B2FAB6AB30C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 834222   (380087) от 24.10.2014
 
 VideoHive - AE CS3 Useful Particle project - 27660 [AEP]
@@ -659,32 +687,6 @@ Photo Album - проект для создания свадебного, сем�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADB865B77B0CFB000D0276088A9EECE3368315CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068560   (377624) от 02.11.2016
-
-Проекты - VideoHive - Glitter Particles | Logo Reveal Pack - 16828680 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glitter Particles | Logo Reveal Pack - раскрытие логотипа или названия при помощи блестящих частиц.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52756D6207CA91F44EB121856C939AE7C02FE37D
 ```
 
 https://mybot314.ru/tekegram_catalog/

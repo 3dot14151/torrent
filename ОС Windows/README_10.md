@@ -1,3 +1,136 @@
+###  Публикация: 884579   (806451) от 03.04.2015
+
+Windows XP Professional 5.1.2600.2158 SP2 (x86) Retail (X12-89963 / X12-55674) [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows XP (внутренняя версия - Windows NT 5.1) — операционная система семейства Windows NT корпорации Microsoft. Была выпущена 25 октября 2001 года и является развитием Windows 2000 Professional. Название вошло в практику использования, как профессиональная версия.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59C27001115986C5E22062630E796357CF88C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503653   (805699) от 26.10.2021
+
+Windows Server 2022 LTSC, Version 21H2 Build 20348.288 (Updated October 2021) Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FBA72CB9618F77ADF0A83C63380F69785301ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384807   (801485) от 21.05.2020
+
+Microsoft Windows 10.0.17763.1217 Version 1809 (May 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1217.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10356DF3F8D6099EB0201A1CAA1152DA47FE5640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384812   (801479) от 21.05.2020
+
+Microsoft Windows 10.0.18363.836 Version 1909 (May 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.836.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9DCAFBA96897231EE92915F20DEAD0A9B3A37F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384813   (801371) от 21.05.2020
+
+Microsoft Windows 10.0.18363.836 Version 1909 (May 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.836.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB2AE35EBBFE09C180AB8E48E6BE053B6C971DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384809   (801366) от 21.05.2020
 
 Windows Server 2019 LTSC Version 1809 Build 17763.1217 (Updated May 2020) Оригинальные образы от Microsoft MSDN [Ru/En]
@@ -558,143 +691,6 @@ Windows 11 - это серия операционных систем, разра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D38EBD7A563937EBE123EB7D8720B52F7E95A001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510547   (790689) от 17.11.2021
-
-Microsoft Windows 10 IoT Enterprise LTSC 2021, Version 21H2 - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 IoT Enterprise LTSC 2021 основана на Windows 10 Pro версии 21H2 (выпущена в ноябре 2021 года), добавляя дополнительные функции, предназначенные для удовлетворения потребностей крупных и средних организаций (включая крупные академические учреждения), такие как расширенная защита от современных угроз безопасности, полная гибкость развертывания ОС, возможности (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E10FD1688E053AA6A311C31847503BA730772E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510492   (790106) от 18.11.2021
-
-Microsoft Windows 10.0.19044.1288, Version 21H2 - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1288.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44DD87F15E2C6D916B3AD65DB4AE672AD1B4495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277154   (786921) от 19.01.2019
-
-Microsoft Windows 10.0.17763.253 Version 1809 (January 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.253 (January 2019 Update).
-Оригинальные образы business_edition и consumer_edition.
-RTM Build 17763.1.rs5_release.180914-1434 + Cumulative Update KB4480116 = OS Build 17763.253.rs5_release_svc_prod1.181231-1749Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3906EFF036625DE5E2C96F85F6BD0A15679E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277196   (786919) от 19.01.2019
-
-Microsoft Windows 10.0.17134.523 Version 1803 (January 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1803 Build 17134.523 (Updated January 2019).
-Оригинальные образы business_edition и consumer_edition.
-RTM Build 17134.1.rs4_release.180410-1804 + Cumulative Update KB4480966 = OS Build 17134.523.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC53D07051AAE52471C5DFC95B0D6DEE80143349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277176   (786902) от 19.01.2019
-
-Microsoft Windows 10.0.17134.523 Version 1803 (January 2019 Update) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1803 Build 17134.523 (Updated January 2019).
-Оригинальные образы business_edition и consumer_edition.
-RTM Build 17134.1.rs4_release.180410-1804 + Cumulative Update KB4480966 = OS Build 17134.523.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35060B3FB7EC03485DA73858FED76DF511FFE81
 ```
 
 https://mybot314.ru/tekegram_catalog/

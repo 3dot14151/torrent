@@ -1,3 +1,148 @@
+###  Публикация: 1285585   (721076) от 26.02.2019
+
+Robyn - Honey (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Missing U (04:57)
+02. Human Being (feat. Zhala) (03:46)
+03. Because It's in the Music (04:34)
+04. Baby Forgive Me (04:16)(   Читать дальше...   )Жанр: Synth-pop, Dance-popПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F266BD3B6AEF76DCC93361D74565BE7121A070A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285226   (721075) от 26.02.2019
+
+Big Wild - Superdream (2019) [FLAC|Lossless|tracks + .cue] <Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City of Sound (03:52)
+02. Joypunks (03:15)
+03. 6's To 9's (feat. Rationale) (03:26)
+04. No Words (03:35)(   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024A8785C9C042447D1F2A2416AA4C8F8A39F145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129756   (720802) от 29.04.2017
+
+Didi Robinson - Du Warst Mein Schoenster Traum (1992) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Du hast noch nie das Meer gesehn
+2. Jenny's Traume
+3. Wenn die Erde bebt
+4. Das verlorene Lacheln(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2380051F2D8DB196554BD8C2846B1A1896D905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531772   (720646) от 16.02.2022
+
+Julio Iglesias - Recital At The Festival ''The Golden Orpheus '73'' (1973) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now As Twenty Years Since
+02. Like The Poplar Along The Road
+03. Nina
+04. El Pajaro Chogui(   Читать дальше...   )Жанр: PopПродолжительность: 00:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35A6BC4B9C2E282754B1BFEF4CABB588CB36625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129621   (720437) от 29.04.2017
+
+Dalida - 30 ans deja (2017) 2CD  [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720437.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bambino
+02. Gondolier
+03. Histoire d'un amour(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6906B8F49C3FF7E6534980B7FDAEE250F10E48BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129834   (720338) от 29.04.2017
 
 VA - 538 Hitzone 81 (2017) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Electronic, Dance, Pop Rock>
@@ -600,153 +745,6 @@ Tom Odell - Wrong Crowd (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DC0F0EC4D7F86018AF40476737E5E5BDF0DDBFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219397   (713771) от 14.04.2018
-
-VA - The Sound Of Summer (2017) Limited Special Edition[FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приближается лето. По всем признакам, в том числе и музыкальным. Из последней командировки предлагаю свой улов.
-Уж не знаю, каким принципом руководствовались составители - скорее всего всем сестрам по серьгам. Уж больно широк спектр исполнителей. Но небольшой и содержательный буклет прикладывается.
-Не знаю как Вам, а у меня в машине уже неделю крутиться... С наступающим (   Читать дальше...   )01. Pharrell Williams - Happy  (3:54)
-02. Marvin Gaye & Kygo - Sexual Healing  (3:07)
-03. Olly Murs feat. Demi Lovato - Up  (3:44)
-04. Mr. Probz - Waves  (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0681DDFF01F7A8E836171E2BEF2ECA9D6F069DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025023   (713418) от 10.06.2016
-
-Vanessa Mai - Fur Dich (2016) [FLAC|Lossless|image + .cue] <Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ich Sterb Fur Dich (3:14)
-02. Wie Ein Blitz (3:06)
-03. Ich Hor Auf Mein Herz (3:26)
-04. Phanomenal (3:03)(   Читать дальше...   )Жанр: РорПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70737EE8B8C8B6DAC086200E6C95F90B0432430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286412   (712851) от 02.03.2019
-
-Madonna - Platinum Hits '2000 (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Pie
-02. Frozen
-03. Beautiful Stranger
-04. The Power of Goodbye(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A5DC9638C62D1BFA3605A8E2E1B3CB5D5642BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025240   (712199) от 11.06.2016
-
-Femme Schmidt - Raw (2016) [FLAC|Lossless|tracks] <Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To The Edge    03:34
-02. The Music    03:54
-03. Golden    03:24
-04. Temple of Tears    03:36(   Читать дальше...   )Жанр: Pop, Female VocalПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA907CA9E3B5DEE51F66887C03A8AFF54988F85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025156   (712133) от 11.06.2016
-
-VA - Billboard 1986 - 1989 vol.5 (unknown year) Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Me Amadeus
-02. Papa Don't Preach
-03. Glory of Love
-04. There'll Be Sad Song(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52FF7511BDC41CF6BC945C38107DCD5EE2DA2B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

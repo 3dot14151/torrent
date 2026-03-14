@@ -1,3 +1,31 @@
+###  Публикация: 605181   (995803) от 19.01.2013
+
+Manjaro Linux 0.8.3 openbox (легкий дистрибутив на основе Arch) [i686, x86-64]
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлена редакция Manjaro Linux 0.8.3 с легковесным рабочим окружением Openbox, основанного на Arch Linux. Включена поддержка игровой платформы Steam; реализована система автоматических уведомлений о наличии системных обновлений.
+
+В Manjaro Linux 0.8.3 используются ядро LTS-серии 3.4  Опытные пользователи оценят такие новые для Manjaro возможности, как Unified Extensible Firmware Interface (EFI), B-Tree File System (btrfs), поддержку RAID.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605213   (995800) от 19.01.2013
 
 Собачья работа (1-8 серии из 8) (2012) [720p] HDTVRip
@@ -671,38 +699,6 @@ Insects Wallpapers (3/2013) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EB3BF2058B6BB527168546F97510A7C4BABF22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606097   (995664) от 20.01.2013
-
-[Wallpapers] The magnificent collection of wallpaper №8 [1140 шт.]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995664.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] The magnificent collection of wallpaper №8Название: The magnificent collection of wallpaper №8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х720 - 6500х4000
-Количество: 1140 шт.
-Расширение (тип) файлов: jpgСкриншоты:
-  
- Время раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4718871CDD57C8E5EC474FF86E15124AC4678CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

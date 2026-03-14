@@ -1,3 +1,29 @@
+###  Публикация: 1035460   (627866) от 16.07.2016
+
+Проекты - VideoHive - 3D Book Constructor - 15076094 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627866.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D Book Constructor - красивая анимация 3D книги с возможностью встраивания фотографий, видео и текста для демонстраций в любых целях.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB9C0D14CA3B6DEFFCDF3CF10BDBA0D40131226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 683280   (627540) от 24.07.2013
 
 VideoHive - Spectrum Panels - 97963 [AEP]
@@ -653,32 +679,6 @@ Isometric Slideshow - Изометрическое слайд-шоу с уник
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E377E834F3D25B01429183DA4A550656E1DEF68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035839   (624303) от 18.07.2016
-
-Проекты - VideoHive - Transformed Glitch Logo 3 - 14910129 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Transformed Glitch Logo 3 - трансформирующийся логотип с эффектами цифровых глюков.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13ED2295BE0362FEF5BDBC928BD076A3AE6537D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

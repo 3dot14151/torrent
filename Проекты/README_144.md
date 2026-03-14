@@ -1,3 +1,29 @@
+###  Публикация: 792559   (707713) от 03.06.2014
+
+VideoHive – Memory Photo Slideshow - 6812386 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный проект слайд-шоу с красивым перелистыванием слайдов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BAC17A8F71FA18AC33AB7BE2E814849AECCEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026053   (707628) от 13.06.2016
 
 Проекты - Проект ProShow Producer - Vector Flowers [PSH]
@@ -649,32 +675,6 @@ Ramadan Kareem является красивым и привлекательны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25814C9141766A0768F556BD48BE28E552C3E34C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131770   (704472) от 07.05.2017
-
-Проекты - VideoHive - Outline - Explainer Kit - 16854650 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор различных элементов для создания объясняющего видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B89611799AF241263CFEFA9A775A8C9A95650B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

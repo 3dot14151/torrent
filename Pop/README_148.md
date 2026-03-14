@@ -1,3 +1,381 @@
+###  Публикация: 910786   (620113) от 21.06.2015
+
+Шоколад - Улыбнись (2002) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мне тебя не хватает 4:08
+02. Я еду к морю 3:28
+03. Как мне жаль 4:39
+04. Улыбнись 4:14(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0E4B603FACE49383A51AC4035187F22B6F2DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910805   (619963) от 21.06.2015
+
+Забытый Разговор - Навсегда (1997) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Арабское золото 3:55
+02. Навсегда 3:44
+03. 6 лет, 6 ночей 4:22
+04. Титаник 4:24(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB944EA6C9F19AC8D6DCAE2229BE00EC6E6B2B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684566   (619859) от 28.07.2013
+
+Вадим Козин - Неизданное (1976) /1998/ [WavPack|Lossless]<Романс / Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я люблю эту землю (02:52)
+02. Бульвары Магадана (02:44)
+03. Магаданская сторонка, магаданский ветерок (02:45)
+04. Я живу на улице Портовой (01:48)(   Читать дальше...   )Жанр: Романс / РетроПродолжительность: 00:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693911A097C4C2D6799308DA9729663089D59943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910774   (619850) от 21.06.2015
+
+Рома Жуков - Я люблю Вас, девочки, я люблю Вас, мальчики (1994) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Серебряная лира 4:36
+02. Слепой рассвет 4:10
+03. Милый мальчик 5:11
+04. Зима 4:15(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB279E3E5618459D276212E83E18CB52FCA0CC1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910880   (619721) от 21.06.2015
+
+Аркадий Хоралов - Давай попробуем вернуть / Ариведерчи (2010) 2CD [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ариведерчи [03:22]
+02. Грусть [04:11]
+03. Бархатный сезон [04:02]
+04. Мне бесконечно жаль [03:57](   Читать дальше...   )Жанр: PopПродолжительность: 01:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABADF9B0C382B890443DAD68743B3B00E54F781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145866   (619690) от 26.06.2017
+
+Fun Fun - Greatest Hits & Remixes (2017) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Station (7" Version) 03:19
+02. Give Me Your Love (7" Version Remix) 03:56
+03. Color My Love (7" Version) 04:06
+04. Living In Japan (7" Version) 03:38(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 02:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F901FA21EB45E6A6ACAB03233C17394B22DCFB88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145751   (619679) от 26.06.2017
+
+Italove - The Album (Super Deluxe Promo) (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Trust You (Like I Trust Myself)
+02. Too Late to Cry
+03. No Fear
+04. Heading for the Sun(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 03:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318CFA1F5FBFE3F6E026DD83B66F585E66711A91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145580   (619596) от 26.06.2017
+
+VA - Главные песни о старом (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Балаган Лимитед - Сладкая ягода
+02.  Мурашки по телу - Позвони мне
+03.  Призедент и Амазонка - Комарово
+04.  Шиншиллы - В землянке(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5C3AED4A7A39D1003EE2482D02D12C78EAE87E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036589   (619095) от 21.07.2016
+
+Savage Garden - Savage Garden (1997) 2CD, Mixed [APE|Lossless|image + .cue] <Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You (Xenomania Funky mix)
+02. Break Me Shake Me (Broken mix)
+03. Santa Monica (Bittersweet mix)
+04. Tears of Pearls (Tears on the Dancefloor mix)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 01:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215EA7CA71DC9F16EB2462780D8596EE2AA36C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036732   (619094) от 21.07.2016
+
+Bruce & Bongo - 1 Albums, 3 Singles & EPs (1986-1992) [MP3|320 Kbps] <Electronic, Europop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bruce & Bongo (Брюс энд Бо́нго) — базировавшийся в Западной Германии дуэт, который состоял из британцев Брюса Хаммонда  и Дугласа Уилгроува.
+Наиболее известен по своей песне 1986 гола «Geil» (англ.), которая в Германии мгновенно стала хитом, проведя 4 недели на 1 месте. Немецкое слово «geil» в данном контексте имеет значение «крутой» или «классный» (на молодёжном (   Читать дальше...   )01. Intro (0:30)
+02. Geil (Edited Mix) (5:37)
+03. Monkey Dance (4:22)
+04. Fussganger (5:00)(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 01:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12251F7D29D4E787C0D91743024C113246097FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036532   (618984) от 21.07.2016
+
+ABBA - The Album (1977) Reissue, Deluxe Edition, 2007, Polar [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle (5:53)
+02. Take A Chance On Me (4:07)
+03. One Man, One Woman (4:34)
+04. The Name Of The Game (4:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B4E81C9976FAF7A529FDCC6CEDA2D9DDDF362E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230156   (618977) от 10.06.2018
+
+VA - The Mojo Machine Turns You On 1 (1997) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомню, что MOJO - это британский музыкальный журнал, выходящий ежемесячно и издающийся с 1993 года. Иногда он выпускает вот такие сборники групп и солистов, представленных в журнале. Как правило выпуск сопровождается достаточно интересным буклетом, являющимся как бы продолжением журнала. Сборники в продажу не поступают, а распространяются по подписке, о чем на (   Читать дальше...   )01. Gary Moore - Afraid of Tomorrow  (5:00)
+02. Steve Winwood - Fill Me Up  (4:27)
+03. Prefab Sprout - Whoever You Are  (2:49)
+04. John Mayall - Stone Cold Deal  (4:19)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD550C67812BB5050B4099CE0420ED268C2E5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036607   (618907) от 21.07.2016
+
+ВИА Коробейники - Коробейники (2004) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Золотые купола  "
+02. "Ой полным полна моя коробушка  "
+03. "Калинушка  "
+04. "Огромный мир  "(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F648F70EE2309ABF99BF644EB75CADCE378BC1BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523147   (618850) от 15.07.2012
 
 Demis Roussos - The Singles+ (2 CD) (2003) [MP3|320 кб/с]<Pop>
@@ -395,383 +773,6 @@ Revelacion - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67AFEEBECEAD12546E6BF092618765D9C8C78063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145932   (618094) от 27.06.2017
-
-La Flavour - Mandolay (1980) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandolay (6:20)
-02. Only The Lonely (Have A Reason To Be Sad) (4:32)
-03. Can You Dance (3:27)
-04. Can't Kill The Beat (3:34)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22433EE98857DA830CD04A83859B65240E08D59C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145854   (618083) от 27.06.2017
-
-Lucho Gatica - Historia de un amor (2013) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Historia de un amor - duet with Laura Pausini
-02. No me platiques - duet with Beto Cuevas
-03. Bésame mucho - duet with Nelly Furtado
-04. Quizás quizás quizás - duet with Michael Bublé(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5638D3AF7201E905E8B432AF498FE13F03AC091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145936   (618079) от 27.06.2017
-
-Paradisio - Greatest Hits (20th Anniversary) (2017) [MP3|320 Kbps] <Eurodance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bailando (feat. Marisa, DJ Patrick Samoy)
-02. Vamos a la Playa (feat. Shelby Diaz)
-03. Bandolero (feat. Marisa, DJ Patrick Samoy)
-04. Suavemente (feat. Miguel Fernandez)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D2D3AFAA8EF5EF16ED7854095E3E95F492BC33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911335   (618027) от 22.06.2015
-
-VA - Dance Collection The Remixes 2010s (2015) [MP3|320 кб/с]<Euro Dance, Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D' Mixmaster - Bad Romance (Bad Romance) (07:27)
-02. Kate Project - California Gurls (The Factory Team Remix) (05:05)
-03. All Stars Generation - Waka Waka (This Time for Africa) (Lysark & Simone Farina Remix) (05:52)
-04. MC Joe, The Vanillas - Love the Way You Lie (R.P. Remix) (05:19)(   Читать дальше...   )Производство: Dance FlavourЖанр: Euro Dance, Pop DanceПродолжительность: 02:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759EA753F705E5A11F8042439D6C13389FAE2E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146051   (617978) от 27.06.2017
-
-Carole King - The Real... Carole King (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. I Feel The Earth Move
-02. Nightingale
-03. Brother, Brother(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9E7B1249D66D8A8AE26D8176A15B48615AF289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620495   (617593) от 22.06.2015
-
-Михаил Муромов - Звёзды советской эстрады (2009) [APE|Lossless]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_617593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Яблоки на снегу (М.Муромов - А.Дементьев)
-02. Прощай (М.Муромов - К.Львович)
-03. Странная женщина (М.Муромов - Л.Рубальская)
-04. Тёплые ливни (М.Муромов - А.Поперечный)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230329   (617385) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 19 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert X - Vision
-02. Kono - Cleopatra (Dance Version)
-03. Raigo - Let Me Live
-04. J. Ford - Mind Wanderer (Japanese Mix)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B48F96DD9B076E12F41E5CAF6DB6842C3B9390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230324   (617382) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 17 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Via Verdi - Love Is A Dream
-02. Ryvon - Sing A Happy Song
-03. Federico L'Olandese Volante - Just Another Love Song
-04. Too Too Toy - Don't Wake Up(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F838F9B09D48919E640BD5C0138A565E4DCD53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230318   (617302) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 16 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiki Gaida - Virginal Mystery
-02. Parsifal - Carillon (English Version)
-03. Tenere - Moon Destination (Vocal English Version)
-04. Zener - New Generation(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CE1DD01FCB7DFBD2C145BBDA75008B49D5926F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230335   (617301) от 11.06.2018
-
-VA - Italo Dance Summer Hits (2012) [MP3|320 Kbps] <Italo-Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hessencia - Cosmo (The Arcane Charmers Remix) 06:28
-02. Hoxygen feat. Krystal Em & Scio - Only Smoke (The Arcane Charmers Remix Edit) 03:36
-03. DJ Doddo - Tu sei (Radio Edit) 03:09
-04. Il Viaggiatore - Respiro (Vocal Mix) 03:30(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 02:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390273957452DCF7023854475C954C2628E857DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230328   (617300) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 18 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F. Monieri - Up Medley Walk Away
-02. Shane - Simba
-03. New Glory - Run Along The Road
-04. Stop Limit Line - Colonel(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F1ACEDA62C8541C9515A37F3508A0FD00050CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036961   (617173) от 22.07.2016
-
-Вахтанг Кикабидзе - Старики - разбойники (2004) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Старики - разбойники
-02. Я в тебя по-прежнему влюблен
-03. Первая любовь
-04. Наверное кажется(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3FE0780E02C3E1CFECB19BE8841F70FC9F818F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295785   (617024) от 14.04.2019
-
-Bibio - Ribbons (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beret Girl (01:56)
-02. The Art of Living (03:16)
-03. Before (03:11)
-04. Curls (03:17)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Pop RockПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8611EEA91D86BEFE4F5E1AD0D9B5FD046DB4374
 ```
 
 https://mybot314.ru/tekegram_catalog/

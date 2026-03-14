@@ -1,3 +1,177 @@
+###  Публикация: 1627312   (237293) от 19.04.2023
+
+The FuZz Blues - Seven (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come to Road (2:41)
+02. Dad (2:20)
+03. Don't You Call My Name (3:30)
+04. Lord (3:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4064FFCA4FA17550CD97DD462B02CE9E54B61BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627317   (237277) от 19.04.2023
+
+Zed Mitchell - Live @ Croatia Records Studio (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm River  (1:33)
+02. Money For My Blues  (4:59)
+03. One Night In Berlin  (5:49)
+04. River Minus Water  (7:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CFB0A8995CF15DC61DBE681CD10517180F992BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627746   (237212) от 20.04.2023
+
+Buck Clayton - Goin' To Kansas City (1960) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello, Babe [3:04]
+02. An Old Manuscript [3:31]
+03. Kansas City Ballad [3:10]
+04. The Jumping Blues [4:12](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE51EA8366B561DF29FBBEDBCBE6C79C7B181741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627750   (237205) от 20.04.2023
+
+Phil Woods - Rights Of Swing (1961) 2001, King Record [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude and Part I [6:46]
+02. Part II (Ballad) [7:52]
+03. Part III (Waltz) [5:56]
+04. Part IV (Scherzo) [11:34](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBDE12D7ED0450D413D7A18F43E8128082D10B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452164   (237204) от 05.03.2021
+
+Willie ''The Lion'' Smith - 1937 - 1938 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Achin' Hearted Blues [3:04]
+02. Honeymoonin' on a Dime [2:45]
+03. The Dipsy Doodle [2:51]
+04. That's a Plenty [2:32](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3464346FB44E1766A5F042076DD9EDC8D7995A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638604   (237194) от 12.06.2023
+
+Relaxing Piano Crew - Jazz Ballad Piano Played in a Hideaway Restaurant (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keeping a Great Secret (2:30)
+02. Induvidual Eating Moods (2:08)
+03. Listening to Some Ballads (2:10)
+04. Rampant Restaurant Ragtime (2:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67FD5081D56F77078B2CAE5D7F24EEFFAF3AE838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607564   (237192) от 27.01.2023
 
 Fats Waller - 1936 - 1937 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
@@ -571,180 +745,6 @@ Jimmy Giuffre - Jimmy Giuffre (1954, 1955) 2005, Membran Music [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ED4400B0B32B87A5F4488490FC1E8185B606633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641489   (236499) от 22.06.2023
-
-Mizz Lowe - Classy Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honey Tree (feat. Bobby Rush) (4:14)
-02. Classy Woman (feat. Bobby Rush) (3:21)
-03. Hip Shakin Mama (feat. Bobby Rush) (4:06)
-04. Easy Baby (3:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852AD217F7A7585B940A0B8F9866F202FFF7834A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641488   (236482) от 22.06.2023
-
-Mike Guldin and Rollin' & Tumblin - The Franklin Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Franklin Shuffle (3:47)
-02. Kevin McKendree -- Killin' Floor (feat. Kevin McKendree) (5:27)
-03. The McCrary Sisters -- The Right Thing (feat. The McCrary Sisters & Yates McKendree) (4:23)
-04. Sometimes You Gotta Roll the Dice (2:26)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EF653102E2A4C49EF00E1559FE2A1129ED2A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641493   (236450) от 22.06.2023
-
-White Noise Band - Bite the Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triton (5:35)
-02. Gathering (4:33)
-03. Sing'n Ride (6:36)
-04. Shadow and Sun (4:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C530D7E06151485753AF73834EE721E4B44834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640307   (236449) от 17.06.2023
-
-European Jazz Trio - Pray: Spring Sea (2012) M&I [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pray [4:30]
-02. The Four Seasons: Winter 2nd Movement [4:33]
-03. Recuerdos de la Alhambra [5:59]
-04. Haruno Umi (Spring Sea) [5:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A6FDD752DD416667E692B4F2CE710F14E6C8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609442   (236421) от 03.02.2023
-
-Barney Kessel - Three Classic Albums Plus (1957 - 1959) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236421.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Some Like It Hot [4:22]
-02. I Wanna Be Loved by You [3:42]
-03. Stairway to the Stars [3:20](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Guitar JazzПродолжительность: 02:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB18F644E26A334901DEE7FF26A43D5F0F90E8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641474   (236401) от 22.06.2023
-
-Jack Biilmann - Divided Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Blood (3:45)
-02. Drink The Water (4:07)
-03. Trouble's Coming (3:33)
-04. Skipping Stone (3:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACD2E9231183B7343CFC957B2757A2C7E01E583
 ```
 
 https://mybot314.ru/tekegram_catalog/

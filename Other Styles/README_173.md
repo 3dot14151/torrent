@@ -1,3 +1,32 @@
+###  Публикация: 1761573   (36565) от 21.11.2024
+
+Conor Oberst - Conor Oberst (2008) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cape Canaveral (4:04)
+02. Sausalito (3:10)
+03. Get‐Well‐Cards (3:34)
+04. Lenders in the Temple (4:35)(   Читать дальше...   )Жанр: Folk Rock, Indie RockПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B40910D3247A9CCB02CD266EF5DD200802A708B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762020   (36366) от 23.11.2024
 
 Joe Berluck - The Erotic Voice of Joe Berluck (1970) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Relax>
@@ -718,35 +747,6 @@ Tangerine Dream - The Island of the Fay (2011) [MP3|320 kbps]<New age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9AF039FAA9D8395E94A8F49A0F88275EFF094AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474653   (31951) от 05.01.2025
-
-Tangerine Dream - Machu Picchu (Maxi EP) (2012) [MP3|320 кб/с]<Electronic music, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caminos Del Inca (10:00)
-02. Machu Picchu (5:32)
-03. Adiуs A Cusco (8:08)
-04. Tayta Inti (7:26)(   Читать дальше...   )Жанр: Electronic music, New Age, AmbientПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F640F1885F84D41157C02E7C494293538D92B6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

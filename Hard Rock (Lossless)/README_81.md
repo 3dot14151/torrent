@@ -1,3 +1,119 @@
+###  Публикация: 1663663   (186415) от 23.09.2023
+
+Bonfire - 3 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+2023/1986 - Don't Touch the Light (MMXXIII Version)
+2023/1989 - Point Blank (MMXXIII Version)
+2023/1987 - Fireworks (MMXXIII Version)Жанр: Hard Rock |Продолжительность: 02:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902552DC39E814EC430B7C6868BA5864719881F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663874   (186412) от 23.09.2023
+
+The Who - Tommy (1969) Super Deluxe, 2014, Geffen [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186412.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Original Album 2013 Remastered:
+01. Overture [00:05:20]
+02. It's A Boy [00:00:38]
+03. 1921 [00:02:49](   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797F229632AD15276A85906D1C69EEA7AD292807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664011   (186290) от 24.09.2023
+
+Yawning Man - Pot Head (2016) Reissue, Remastered, 2023, Ripple Music [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manolete [00:06:46]
+02. Digital Smoke Signals [00:07:09]
+03. Encounters With An Angry God [00:05:01]
+04. Samba Di Primavera [00:05:03]Жанр: Stoner Rock, Psychedelic RockПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0693422BCABA7D543B016CD76FA8ABA3835AE25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664150   (186053) от 25.09.2023
+
+Bang Camaro - Bang Camaro I-III (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_186053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2007 - Bang Camaro I
+2009 - Bang Camaro II
+2023 - Bang Camaro IIIЖанр: Hard RockПродолжительность: 02:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21107725F17C413B62B9742629382486A6A4449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592015   (185581) от 20.11.2022
 
 Orbiter - A Goddamn Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Bluesy>
@@ -629,122 +745,6 @@ Nikki Stringfield - Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7151503C5544665E64C5C291AC1DF4347D071160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427905   (181498) от 30.11.2020
-
-Dust - 2 albums, 3 CD (1971-2013) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Dust была создана в 1968 году в Бруклине, Нью-Йорк. В состав группы вошли школьные друзья, совсем молодые музыканты - гитарист и вокалист Ричи Вайз, басист Кенни Ааронсон и ударник Марк Белл. Как многие начинающие коллективы трио вначале оттачивало свое музыкальное мастерство, исполняя каверы Rolling Stones, Who и других британских групп. Дебютный альбом трио (   Читать дальше...   )--------------------------
-
-Hard Attack
-01. Pull Away/So Many Times (5:02)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Psychedelic Rock, Acid Rock |Продолжительность: 02:31:16 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0E03AE061E17DD982EBBD3F6B9F9B3D0FA61EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665639   (181403) от 01.10.2023
-
-Jorn - 50 Years On Earth [The Anniversary Box Set] (2018) 12CD [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_181403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информация: Йорн Ланде (норв. Jørn Lande, также известен как Jorn; 31 мая 1968) — норвежский вокалист в музыкальных жанрах хэви-метал и хард-рок. За 15 лет своей музыкальной карьеры в его активе более 20 студийных альбомов с полным или частичным участием и около дюжины концертных. В последние годы работает сольно и как сессионный музыкант.Альбомы:
-Disc 01 - Worldchanger (2001)
-Disc 02 - Out To Every Nation
-Disc 03 - The Duke (2006)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 11:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42CA86F4D22400F874389DDE244BD6D12631818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665697   (181319) от 01.10.2023
-
-Dead Addiction - ...of Vice and Men (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to San Vector (2:08)
-02. Live at the Scene of the Crime (4:56)
-03. Frozen Dream (6:10)
-04. Blood Money (5:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC369E71C2F9CE7DCA7A49BE611FE8279A3B831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593088   (181201) от 26.11.2022
-
-Burnt Out Wreck - Stand and Fight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Up Yourself [00:05:28]
-02. Stand and Fight [00:05:20]
-03. Lion [00:04:16]
-04. Ain't Done Nothing Wrong [00:06:40](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425FED6EE4E1F8F1E992DEC48A8ED3E1844AB044
 ```
 
 https://mybot314.ru/tekegram_catalog/

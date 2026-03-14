@@ -1,3 +1,61 @@
+###  Публикация: 1730961   (107790) от 18.06.2024
+
+VA - DJ Hits Vol. 62 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Long
+02. Beat System - Fresh
+03. Ice MC - Give me the Light
+04. Grandmaster Flash - If U wanna party(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D561445E3C7DC24D02DC0A8481F0357C0E50F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731007   (107780) от 19.06.2024
+
+VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Mercy - Where do you go (club mix)
+02. Justine Earp - Ooo la la la (voodoo club radio 1)
+03. Ally & Jo - The lion sleeps tonight (remix)
+04. Captain Hollywood Project - Love & Pain(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3734184AAC1F04B42E6E5D97B4568B7D2EDB446B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731209   (107778) от 19.06.2024
 
 VA - DJ Hits Vol. 77 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
@@ -687,64 +745,6 @@ Fem Snabba - Pupiller (серия "Другие восьмидесятые") (19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5F8D495C94D42E2F14D9A945FF06EA73517A85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735706   (106837) от 09.07.2024
-
-VA - DJ Hits 141 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Captain Jack - Little Boy (Airplay Mix)
-02. Blumchen - Du Und Ich (Langer Inch Mix)
-03. Das Modul - Robby Roboter (Radio Edit)
-04. Dune - Million Miles From Home (Video Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, HouseПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC22FACA932CF4F7C8BBE43A51D8A07A40834C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736160   (106649) от 13.07.2024
-
-VA - 100 Hits Pop Essentials (2017) Box Set: 5CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Lopez - Waiting For Tonight
-02. Anastacia - I'm Outta Love
-03. Christina Aguilera - Genie In A Bottle
-04. Dido - Here With Me(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, FolkПродолжительность: 06:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B1D89B9A092C864082F3AD4C0C03980B582B58
 ```
 
 https://mybot314.ru/tekegram_catalog/

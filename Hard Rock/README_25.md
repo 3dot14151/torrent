@@ -1,3 +1,32 @@
+###  Публикация: 957428   (326711) от 18.11.2015
+
+Dirty Sound Magnet - What Lies Behind (2012) [MP3|320 кб/с]<Blues rock, Hard rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind memory (3:45)
+02. Heavy hours (4:54)
+03. Mike's awakening (3:42)
+04. Mr Robert (3:22)(   Читать дальше...   )Жанр: Blues rock, Hard rockПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B84F58E208097C984541658042D261C2B8C32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957720   (326708) от 18.11.2015
 
 The Warrior Kings - The Warrior Kings (2012) [MP3|320 кб/с]<Blues rock, Hard rock>
@@ -728,35 +757,6 @@ Airbourne - Boneshaker (2019) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B5094D74C0924751730EC7AC89008396CAF1433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261552   (303394) от 11.11.2018
-
-Stephen Pearcy (ex-Ratt) - View To A Thrill (2018) Japanese Edition [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.U Only Live Twice 2:57
-02.Malibu 3:05
-03.Double Shot 3:08
-04.One In A Million 2:37(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9FBEFA025E0152B1851B50EF3CC6AA52FB92834
 ```
 
 https://mybot314.ru/tekegram_catalog/

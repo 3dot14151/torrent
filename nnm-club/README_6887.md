@@ -1,22 +1,22 @@
-###  Публикация: 1210502   (778698) от 03.03.2018
+###  Публикация: 1207877   (780135) от 20.02.2018
 
-Прогулка по гордой земле / Walk the Proud Land (1956) DVDRip [H.264] [VO]
+Red Giant Magic Bullet Suite 13.0.6 [En]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778698.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Агент по делам индейцев пытается наладить мир с Апачами, основанный на уважении к личности, а не на подчинении силе…Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Джесси ХиббсАктеры: Оди Мерфи, Энн Бэнкрофт, Пэт Краули, Чарльз Дрэйк, Томми Ралл, Роберт Уоррик, Джей Сильверхилс, Юджин Маццола, Энтони Карузо, Виктор МилланПеревод: Одноголосый закадровый, любительскийСубтитры: ОтсутствуютПродолжительность: 01:24:34
+Red Giant Magic Bullet Suite — пакет мощных плагинов для профессиональной цветокорекции, регулировки освещения используемые в программах: Adobe After Effects, Adobe Premiere Pro, Adobe Photoshop, Sony Vegas. В комплект входят основные инструменты: Magic Bullet Looks 3, Magic Bullet Colorista III, Magic Bullet Film, Magic Bullet Mojo 2, Magic Bullet Cosmo 2, Denoiser (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:375CAB79A9C5BEC37D6EEADF8A2C311805D5AC0F
+magnet:?xt=urn:btih:54D0C586B0C31404970D905B071AECAE3B33AFDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210580   (778697) от 03.03.2018
+###  Публикация: 1062747   (780134) от 20.02.2018
 
-PrivaZer 3.0.42 Donors version + Portable [Multi/Ru]
+Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) Repack Other s [Deluxe Edition]
 
->>Архив торрентов
->>Архив Программ
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778697.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Shadow Warrior 2 — продолжение ниндзя-шутера Shadow Warrior, являющегося в свою очередь ремейком знаменитой игры 1997 года. Издавать игру будет компания Devolver Digital, разработчиком выступает польская студия Flying Wild Hog. В нем повествование ведется от лица Вана, однако внешне ниндзя будут выглядеть по-разному. В перерывах между миссиями герои смогут приобретать (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D1950689080E4209C58540FBB0AA5C13EE9EA14
+magnet:?xt=urn:btih:0A07E937C60E61AB87F932BC71E10ACCD853F144
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210630   (778696) от 03.03.2018
+###  Публикация: 1062599   (780133) от 20.02.2018
 
-4K Video Downloader 4.4.5.2285 RePack (& Portable) by ZVSRus [Ru/En]
+Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/upd17/dlc) Repack =nemos= [Deluxe Edition]
 
->>Архив торрентов
->>Архив Программ
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778696.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K Video Downloader позволяет скачивать видео, аудио и субтитры с YouTube в высоком качестве на ваш компьютер. Если вы хотите закачать видео на iPad, iPhone и другие девайсы, тогда это приложение — ваш выбор! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Paste Url".Язык интерфейса: Русский | Английский
+Shadow Warrior 2 - продолжение  ниндзя-шутера Shadow Warrior, являющегося в свою очередь ремейком знаменитой игры  1997 года. Издавать игру будет компания Devolver Digital, разработчиком выступает польская студия Flying Wild Hog.  В нем повествование ведется от лица Вана, однако внешне ниндзя будут выглядеть по-разному. В перерывах между миссиями герои смогут приобретать (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:188EA2227083EBB3C76D66D338B8FF732E7AA7D3
+magnet:?xt=urn:btih:A8EAD37D80C2EC54E5BD376E6A3CC73B06A517ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,28 +76,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210470   (778695) от 03.03.2018
+###  Публикация: 1208184   (780132) от 21.02.2018
 
-VA - Rock Kaleidoscope 2 (2018) [MP3|320 Kbps] <Classic Rock, Rock & Roll, Blues Rock>
+Mose Allison - Ramblin' With Mose (1958) 2005, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778695.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 The Byrds – Turn! Turn! Turn!
-002 The Hollies - The Air That I Breathe
-003 The Alan Parsons Project - Don't Answer Me
-004 Nazareth - Love Hurts(   Читать дальше...   )Жанр: Classic Rock, Rock & Roll, Blues RockПродолжительность: 03:56:03
+01. I Got A Right To Cry [02:52]
+02. Old Devil Moon [05:11]
+03. The Minstrels [03:31]
+04. You Belong To Me [04:24](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:52:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C161042EFD835FB818E7CA4EDBEC809447BFE20
+magnet:?xt=urn:btih:E9D82A760D2C53022D7A0FFB1770C372FF30CCB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210669   (778694) от 03.03.2018
+###  Публикация: 1208192   (780131) от 21.02.2018
 
-Обои - Desktop Wallpapers Full HD. Part (143) [JPG]
+Billy Childs - Rebirth (2017) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778694.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+01. Backwards Bop [06:38]
+02. Rebirth [07:39]
+03. Stay [05:59]
+04. Dance of Shiva [06:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:56:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7089DEDA61566BD00E4A3406D43D2ABB669450F
+magnet:?xt=urn:btih:DF92CC8983AF6F0EE753A2F2FDDA423342F9438D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210255   (778693) от 03.03.2018
+###  Публикация: 1208181   (780130) от 21.02.2018
 
-Ю.П. Солнцев и др. | Нанотехнологии и специальные материалы (2017) [PDF]
+The Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) 2011, EMI Music [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
 
->>Научная и техническая литература
->>Учебники
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778693.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Развитие материаловедения во многом определяет прогресс современного машиностроения. Создание новых материалов и разработка передовых технологий не только позволяют уменьшить массу машин, приборов и конструкций, но и дают возможность создать новые, не имеющие аналогов механизмы. Разработка материалов стимулирует появление новых технических идей и проектов, с прогрессом (   Читать дальше...   )Жанр: Материаловедение, химияФормат: PDF
+01. After You've Gone [04:53]
+02. When Johnny Comes Marching Home [05:16]
+03. Deep River [05:43]
+04. Till We Meet Again [04:19](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:48:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5265F225934EE928DCF6D75F798738C3B35A1441
+magnet:?xt=urn:btih:2B0B91CB24EBC447B5BA78FA0C1EA7B742A6CDBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210510   (778692) от 03.03.2018
+###  Публикация: 1208140   (780129) от 21.02.2018
 
-Престиж / The Prestige (2006) HDRip [H.264] [MP4|1280x544]
+VA - Power Sounds (Volume 1) (2018) [MP3|320 Kbps] <Progressive House>
 
->>Мультимедиа и прочее
->>Мобильное Видео
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778692.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роберт и Альфред — фокусники-иллюзионисты, которые на рубеже XIX и XX веков соперничали друг с другом в Лондоне. С годами их дружеская конкуренция на профессиональной почве перерастает в настоящую войну. Они готовы на все, чтобы выведать друг у друга секреты фантастических трюков и сорвать их исполнение. Непримиримая вражда, вспыхнувшая между ними, начинает угрожать (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, Триллер, Драма, ДетективРежиссер: Кристофер НоланАктеры: Хью Джекман, Кристиан Бэйл, Майкл Кейн, Пайпер Перабо, Ребекка Холл, Скарлетт Йоханссон, Саманта Мэхурин, Дэвид Боуи, Энди СеркисПеревод: Дублированный (Лицензия)Субтитры: Русские (полные), Английские (полные)Продолжительность: 02:10:29
+01. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound  04:18
+02. Denis Dawydow, Simon Aces - F.A.Q.  05:15
+03. Julian Blaze, StarBouncers - Valentine (Time to Groove)  04:43
+04. Grimm Brothers - Back to Trumpets  04:52(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:37:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0E571367168BAF9EA5969F244EDCC8C9ED6950B
+magnet:?xt=urn:btih:1AE5201ABF7BB3643285CE8A64BEA1FDCFA0C1E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,28 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210586   (778691) от 03.03.2018
+###  Публикация: 1208325   (780128) от 21.02.2018
 
-Kitaro - India (1983) Reissue, 1985, Geffen Records [FLAC|Lossless|image + .cue] <New Age, World Music>
+John Shima - Elements Unknown (2017) FireScope [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778691.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Он родился 4 февраля 1953 г. в семье крестьян. Его настоящее имя — Такахаси Масанори. Весь мир его называет — Kitaro. Не имея музыкального образования, Kitaro учился музыке самостоятельно, и его первым инструментом была гитара. В начале 70-х, после окончания школы, Kitaro постепенно перешёл на клавишные инструменты, а затем освоил флейту, барабаны Taiko и др. Он (   Читать дальше...   )1. The Mist (6:09)
-2. Caravansary (4:51)
-3. Mountain Streams (4:46)
-4. Pray (6:39)(   Читать дальше...   )Жанр: New Age, World MusicПродолжительность: 00:43:27
+01. Elements (08:27)
+ 02. Symbols (07:15)
+ 03. Implant (07:17)
+ 04. Illuminate (07:24)Жанр: Electro, IDM, TechnoПродолжительность: 00:30:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA6041488440886A888442B0516C5D40D5148F5D
+magnet:?xt=urn:btih:421DD4CBB53312BED78054C89BD42CFAEE35FC1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +221,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209774   (778690) от 03.03.2018
+###  Публикация: 1208199   (780127) от 21.02.2018
 
-А.Ю. Александров и др.| Сборник задач и упражнений по теории устойчивости (2016) [PDF]
+Christine Jensen Jazz Orchestra - Habitat (2013) Justin Time Records [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
 
->>Научная и техническая литература
->>Учебники
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778690.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящее пособие содержит задачи и упражнения по курсу теории устойчивости в соответствии с учебным планом факультета прикладной математики — процессов управления СПбГУ. Помимо классических тем в него впервые включены теоретические материалы и задачи по современным разделам теории устойчивости, таким как устойчивость систем с неопределенными параметрами, устойчивость (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+01. Treelines [11:39]
+02. Tumbledown [10:29]
+03. Blue Yonder [07:53]
+04. Nishiyuu [14:58](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 01:06:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1DCB4CB33EB9012B0CDBAAF2AE23EC82C27512A
+magnet:?xt=urn:btih:C9DF4DFFD20F3F1B38FF567B4127020D447A7B02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,27 +250,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210552   (778689) от 03.03.2018
+###  Публикация: 1208011   (780126) от 21.02.2018
 
-Вести в 20-00. Большие Вести. Россия 1 HD (02.03.2018) HDTV [H.264/1080i-LQ]
+Pharoah Sanders - Izipho Zam: My Gifts (1969) 2006, Bomba Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778689.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вечерний выпуск «Вестей» посвящен главным событиям дня. «Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия».
-
-Президент в эти минуты общается с делегатами (   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: НовостиПродолжительность: 01:00:08
+01. Prince of Peace [08:52]
+02. Balance [12:40]
+03. Izipho Zam [28:47]Жанр: Avant-Garde JazzПродолжительность: 00:50:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:008C7C195C5788A459D86F9F8539F52CEE26F876
+magnet:?xt=urn:btih:A7619A2C45ABA5A4D448271086710FE96F4E7B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -266,28 +278,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209826   (778688) от 03.03.2018
+###  Публикация: 1208180   (780125) от 21.02.2018
 
-VA - Indie Rock Playlist Best of 2016 - 2017 (2017) [MP3| ~203-289 Kbps] <Indie/Rock>
+Earl Hines - Spontaneous Explorations (1964) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778688.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. V Sparks - (IRP) Intro
-2. The Magnetic North - A Death In The Woods
-3. Roald van Oosten - A Dream Within A Dream
-4. Cold Weather Company - Another Involved(   Читать дальше...   )Жанр: Indie/RockПродолжительность: 05:55:24
+01. Undecided [04:03]
+02. Fatha's Blues [05:12]
+03. A Sunday Kind Of Love [04:20]
+04. I've Found A New Baby [03:28](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:37:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08ECB016E23063D89CF16F061F3F3976365D6D5E
+magnet:?xt=urn:btih:E7724CB1C92A408B972E62E9CCD9091C79A01177
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,28 +307,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210256   (778687) от 03.03.2018
+###  Публикация: 1208196   (780124) от 21.02.2018
 
-VA - Goa Culture Vol.27 (2018) [MP3|320 Kbps] <Psy Trance, Psychedelic >
+Bernard Primeau Jazz Ensemble - Virage (1997) Swing'in Time Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778687.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Serenity Flux  -  The Trip (Original Mix)  8:43
-02.  Liquid Soul & Ritmo  -  Be Right (Original Mix)  7:11
-03.  Ilai  -  Freak Roots (Original Mix)  7:39
-04.  Ilai & Static Movement  -  Ancient Dance (Impulser Remix)  6:27(   Читать дальше...   )Жанр: Psy Trance, PsychedelicПродолжительность: 02:20:39
+01. Southend Stomp [06:36]
+02. Numbly [07:05]
+03. Con Alma [08:19]
+04. Traffic Jamm'n [09:15](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:09:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4533052E89CC6C331D32B6AB903E88CBA92DAD66
+magnet:?xt=urn:btih:4DDF3335887AB994274ABCC312E717F37283A7A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -324,25 +336,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210420   (778686) от 03.03.2018
+###  Публикация: 1207957   (780123) от 21.02.2018
 
-Рок  (2017) WEB-DLRip [576p] iPad
+Chico Hamilton with Paul Horn (1954, 1956, 1957) 2010, P-Vine Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
 
->>Аудио и Видео
->>Отечественное видео для устройств Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778686.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Рок» — музыкальный жанр или злая судьба? Героев фильма, которые отправились покорять Москву, сопровождает и то, и другое. Эта троица даже еще не группа и не команда и, наверное, не друзья. Но так было в начале пути. Чем дальше ребята удаляются от дома, чем опаснее их приключения и встреченные на пути люди, тем сильнее они меняются внутренне. Этот путь стал самым (   Читать дальше...   )Производство: РоссияЖанр: Драма, приключенияРежиссер: Иван ШахназаровАктеры: Дмитрий Чеботарёв, Кирилл Фролов, Иван Ивашкин, Виталий Кищенко, Никита Тарасов, Евгений Стычкин, Полина Северная, Валерий Жуков, Георгий Пицхелаури, Евгений МундумПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:27:03
+01. Porch Light [04:02]
+02. Autumn Landscape [03:44]
+03. Uyawda [04:43]
+04. Lolly Pop [02:19](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:32:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63713C6F1C6366974B49BB62DF5E24E80EF3AB9E
+magnet:?xt=urn:btih:89AC385F6961D8D016C29EDE8FC31202DDDC48C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,28 +365,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210393   (778685) от 03.03.2018
+###  Публикация: 1208198   (780122) от 21.02.2018
 
-Sally Oldfield - The Enchanted Way (2018) [MP3|320 Kbps] <Folk, Pop, Singer-Songwriter>
+Orchestre National de Jazz de Montreal - Christine Jensen: Under the Influence Suite (2017) Justin Time Records [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
 
->>Other Styles
->>Folk
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778685.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.	Mandala (2017) (Re-Worked and Re-Mastered)	4:57
-02.	Break Through the Rock (Re-Worked and Re-Mastered)	3:37
-03.	No Heart (Re-Worked and Re-Mastered)	3:58
-04.	Digging for Gold (Re-Worked and Re-Mastered)	4:01(   Читать дальше...   )Жанр: Folk, Pop, Singer-SongwriterПродолжительность: 01:18:23
+01. Part I (For Kenny Wheeler): Ouverture [01:17]
+02. Part I (For Kenny Wheeler): Starbright [15:26]
+03. Part II (For Jan Jarczyk): To Jan [06:21]
+04. Part III (For John Coltrane): Drum Interlude [01:35](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 00:51:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CDBBDB59A52081D2575A7895BA79BDD7879C59D
+magnet:?xt=urn:btih:5860D7C5BB2A3C84E23718FBCABA571E50DD6514
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -379,25 +394,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210521   (778684) от 03.03.2018
+###  Публикация: 1208187   (780121) от 21.02.2018
 
-Wise Disk Cleaner 9.7.1.688 + Portable [Multi/Ru]
+Mose Allison - I Don't Worry About A Thing & Mose Alive (1962, 1966) 1999, Collectables Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778684.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
+01. I Don't Worry About A Thing [02:19]
+02. It Didn't Turn Out That Way [02:44]
+03. Your Mind Is On Vacation [02:38]
+04. Let Me See [04:12](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 01:10:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EE22B07BD3F8B028FCF55C85E456188CD327B0C
+magnet:?xt=urn:btih:FACAB99484580D881D01BEE74F0CAD5D50AF3CF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,26 +423,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210666   (778683) от 03.03.2018
+###  Публикация: 1208282   (780120) от 21.02.2018
 
-Царская милость (1973) WEBRip
+М.В. Лутцев и др. | Католицизм в конфессиональном пространстве Уральского региона (2015) [PDF, DJVU]
 
->>Театр и Музыкальное видео
->>Театр
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778683.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм - спектакль с участием артистов театра МХАТ им. Горького по одноименной пьесе Камена Зидарова в постановке Крыстю Мирского.
-Действие происходит в Болгарии в 1915 году, во времена правления царя Фердинанда I.Производство: СССР, ТО "Экран"Жанр: Драма, спектакльРежиссер: Павел Массальский, Мария МуатАктеры: Алла Тарасова, Павел Массальский, Лев Иванов, Евгений Киндинов, Элла Позднякова, Раиса Максимова, Иван Тарханов, Константин Градополов, Владимир Кашпур, Елена Хромова, Юрий Недзвецкий, Василий Марков, Алексей Мяздриков, Татьяна Махова, Сергей СафоновСубтитры: отсутствуютПродолжительность: 01:17:13
+В сборнике представлены материалы Межрегионального круглого стола «Католицизм в конфессиональном пространстве Уральского региона» посвящённого 170-летию издания указа о постройке католического собора в г. Оренбурге (28 ноября 2014 г., Оренбург). Книга объединяет научные статьи, освящающие историю и современное положение Римско-Католической Церкви в России и на Урале, (   Читать дальше...   )Жанр: Материалы Межрегионального круглого столаФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C2748DC601302ABD55928EBCE2AF4152610E04B
+magnet:?xt=urn:btih:00E03D71B5A10C9349D8B64309F4255ED84796FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,26 +449,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210578   (778682) от 03.03.2018
+###  Публикация: 1208186   (780119) от 21.02.2018
 
-Марина Снежная | Слеза принцессы фей (2015) [FB2]
+The Primitive Painter - The Primitive Painter (1994) Klang Elektronik [FLAC|Lossless|tracks] <Techno, Ambient, IDM>
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778682.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для того чтобы стать Королевой, Принцессе фей необходимо обрести настоящего возлюбленного. Но как быть, если никто из мира фейри ее не привлекает, а все мысли о смертном воине, за которым она украдкой наблюдает?
-Ей готовы пойти навстречу и разрешить такую неподобающую любовь. Подарить избраннику вечную жизнь вдвоем с могущественной возлюбленной. Но перед этим смертный (   Читать дальше...   )Жанр: Любовно-фантастические романы, Любовное фэнтезиФормат: FB2
+01. Hope (11:02)
+ 02. Disfigured Phantasy (05:53)
+ 03. Levitation (08:16)
+ 04. Psycho Kinesis (05:23)(   Читать дальше...   )Жанр: Techno, Ambient, IDMПродолжительность: 01:16:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21E6F53AAC5838F3B0CFF84E327C49000621C812
+magnet:?xt=urn:btih:A2F75A81FC8F8707077B79FFFDA466F31B8822E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,27 +478,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210471   (778681) от 03.03.2018
+###  Публикация: 1208193   (780118) от 21.02.2018
 
-Damn Yankees - Damn Yankees (1990), Don't Tread (1992) [FLAC|Lossless|tracks + .cue] <Hard Rock, AOR>
+Tom Guarna - The Wishing Stones (2017) Destiny Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz, Post-Bop>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778681.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пути двух выдающихся американских гитаристов Ted Nugent и Tommy Shaw пересекались не раз и поэтому немудрено, что в их головах возникла идея организовать совместный проект. Shaw уже успел уйти из "Styx" и занимался сольной карьерой, заканчивая альбом "Ambition". Nugent же тоже завершил работу над очередным диском и они с Томми начали готовить (   Читать дальше...   )Список альбомов:
-1990 - Damn Yankees
-1992 - Don't TreadЖанр: Hard Rock, AORПродолжительность: 01:38:54
+01. Prelude [02:19]
+02. Song for Carabello [05:15]
+03. Surrender Song [07:05]
+04. Hope [07:17](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Post-BopПродолжительность: 01:14:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC612ECA949F64DD71490574BF9A9D0AF391E16B
+magnet:?xt=urn:btih:7CA57C893A95F2D24EE4BA06E215027D90E6E83E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -487,191 +507,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210431   (778680) от 03.03.2018
+###  Публикация: 1208038   (780117) от 21.02.2018
 
-Дом актера. Георг Отс (2015) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778680.jpg" />
-</div>
-
-
-###  Подробнее
-
-В московском Доме актера прошел вечер памяти Георга Отса.
-Для российской публики великий баритон, которому исполнилось бы 95 лет, до сих пор был и остается в первую очередь "Мистером Икс".
-Дань памяти великому певцу пришли отдать самые верные поклонники его творчества.
-(   Читать дальше...   )Жанр: МузыкаРежиссер: Арне МиккАктеры: Александр Ворошило, Юрий Веденеев, Нина Минасян, Кристель Пяртна, Дмитрий Вдовин, Арне Микк, Юри ЛуикСубтитры: отсутствуютПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFBE7DAD3F70CFCDBC3834CFA2DD6587CDC00B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210651   (778679) от 03.03.2018
-
-Марина Крамер | Требуется влюбленное сердце (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778679.jpg" />
-</div>
-
-
-###  Подробнее
-
-У следователя Лены Крошиной самое трудное дело, как водится, сердечное. Не стоит врать самой себе: она счастлива вырваться в Москву не потому, что ниточка очередного убийства тянется в столицу. Проверить на прочность чувства, которые связывают ее с обожаемым провинциальным денди, фотографом-неудачником, – именно этим она займется в командировке. Кстати, давно замечено: (   Читать дальше...   )Жанр: Остросюжетные любовные романы, Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F5C03158C899BE51671A45A3907E1A01A1AA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210587   (778678) от 03.03.2018
-
-Балаган Лимитед - Счастливые (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Провинция (3:10)
-02. Счастливая (3:25)
-03. Полюби (3:46)
-04. Мама (feat. Стас Сорока) (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1F9FB6FAC80880BA8CA5397A7D791452618DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210639   (778677) от 03.03.2018
-
-YTD Video Downloader PRO 5.9.4 (20180214) RePack (& Portable) by ZVSRus (20180214) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778677.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTD Video Downloader позволяет загрузить нужный вам файл всего за один клик. Нужно просто добавить адрес с вашим роликом, который вы хотите загрузить, нажать кнопку скачать и остальное программа сделает самостоятельно. Из отличительных особенностей программы можно отметить следующее. Возможность конвертировать скачанные файлы прямо в программе. Например, вы можете (   Читать дальше...   )Язык интерфейса: Русский | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA0763682ACBDE827D15540EE24D7068DD66237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210583   (778676) от 03.03.2018
-
-Марина Снежная | Пленницы четырех миров (2015) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две девушки, две разные судьбы, и один объединяющий фактор – отец. Гламурная красавица Ольга не желает смириться с тем, что уникальное наследство, оставленное родителем, должно достаться скромной секретарше Алевтине.
-Древний артефакт, открывающий портал в другой мир, навсегда меняет жизнь сестер. Все мелкие неурядицы кажутся пустячными и тут же забываются, когда (   Читать дальше...   )Жанр: Любовно-фантастические романы, Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DFBFE5BCC86E46FAAF51204F88736077ECB340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210626   (778675) от 03.03.2018
-
-Горбатов: тащил, тащит и будет тащить! (2015) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трагикомедия о бывшем мэре маленького провинциального города, который вступает в борьбу с молодым чиновником из новой администрации за последний материальный символ своего былого успеха — старый рекламный щит.Производство: РоссияЖанр: Короткометражный, драма, комедияРежиссер: Никита ОрдынскийАктеры: Анатолий Меньщиков, Игорь ПетровСубтитры: ОтсутствуютПродолжительность: 00:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBA78E48EA2848CAD743C082EBDCBFCA9804E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209867   (778674) от 03.03.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Биатлон. Смешанная эстафета 2x6 км + 2x7,5 км (20.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Лыжные гонки. Женщины. Гонка 10 км. Свободный стиль (15.02.2018) WEB-DL [H.264/720p-LQ]
 
 >>Спорт и активный отдых
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778674.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 февраля 2018 года, вторник. 14:15 МСК
+15 февраля 2018 года, четверг. 09:30 МСК
 XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Биатлон. Смешанная эстафета
-Женщины - 2x6 км + Мужчины - 2x7,5 км(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:59
+Лыжные гонки. Женщины.
+Гонка 10 км. Свободный стиль(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:06:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01D10B5D7EC82D2205D78553C5F2A6A2E9D8B6A9
+magnet:?xt=urn:btih:581AE629CA5D8E91C72BC962843C001AFA1FF7BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,25 +536,199 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209793   (778673) от 03.03.2018
+###  Публикация: 1208301   (780116) от 21.02.2018
 
-Гарольд и Мод / Harold and Maude (1971) BDRip [H.265/1080p] [10-bit]
+VA - True People: The Detroit Techno Album (1996) React [FLAC|Lossless|tracks+.cue] <Techno, Detroit Techno>
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778673.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гарольд — сын миссис Чэйзен, богатой женщины, которая не обращает на него внимания. Страдая от депрессии и отсутствия друзей, он инсценирует тщательно продуманные, но смехотворные самоубийства, которые на рассеянную маму никакого впечатления не производят. Очарованный смертью и всей ее внешней атрибутикой, Гарольд на старом катафалке сам разъезжает по кладбищам вокруг (   Читать дальше...   )Производство: США  Mildred Lewis and Colin Higgins Productions, Paramount PicturesЖанр: Комедия, ДрамаРежиссер: Хэл ЭшбиАктеры: Рут Гордон, Бад Корт, Вивьен Пиклз, Сирил Кьюсак, Чарлз Тайнер, Эллен Джир, Эрик КристмасПеревод: Одноголосый закадровыйСубтитры: русские, английскиеПродолжительность: 01:31:44
+01. Blake Baxter - Where Is The Love (05:42)
+ 02. Santonio Echols - Sources (05:01)
+ 03. Eddie 'Flashin' Fowlkes - T.M.F.61 (05:59)
+ 04. Thomas Barnett - Operation-10 (05:05)(   Читать дальше...   )Тип издания: CD •Жанр: Techno, Detroit Techno •Продолжительность: 00:54:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55D9EB518D708DFF1E67FA957FF395BFB63CC53A
+magnet:?xt=urn:btih:12557AE82B0B714A70BCA091AA511E8114685B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208141   (780115) от 21.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Женщины. 2-й тур. Китай — Россия (ОАР) (15.02.2018) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780115.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 февраля 2018 года, четверг. 03:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг. Женщины. 2-й тур.
+Китай — Россия (ОАР)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FEF509CADA5F7B9E774B25474EDE1D3BA2EE531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208170   (780114) от 21.02.2018
+
+Paulina Cassidy - Drawing Up A Storm (2018) Projekt Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Darkwave, Ethereal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterdancer (06:08)
+ 02. Ocean Nymph (03:45)
+ 03. Seahorses (03:34)
+ 04. Asleep In The Undercurrent (04:33)(   Читать дальше...   )Жанр: Ambient, Downtempo, Darkwave, EtherealПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9240883905E63FBB277159D0258D9D864C99CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206913   (780113) от 21.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Мужчины. Могул. Финал (12.02.2018) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780113.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 февраля 2018 года, понедельник. 15:00 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Фристайл. Мужчины.
+Могул. Финал(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E17EA688A5D525FD003B208E3A7A499EF2CA6D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208275   (780112) от 21.02.2018
+
+Джейн Эллис | Русская Православная Церковь. Согласие и инакомыслие (1990) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор истории оппозиции в Русской Православной Церкви и представления неконформистской интеллигенции о внутрицерковной жизни, выраженные в самиздате.Жанр: Монография, историяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F6848B188E9F1CBD0B7E60400526E4B1E12658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208152   (780111) от 21.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Женщины. 2-й тур. Китай — Россия (ОАР) (15.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780111.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 февраля 2018 года, четверг. 03:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг. Женщины. 2-й тур.
+Китай — Россия (ОАР)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F36FA4E88103768913905436FBD4B6D8E707920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208174   (780110) от 21.02.2018
+
+Елена Тростникова (сост.) | Мудрость отцов-пустынников [Православная библиотека] (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто мы? Какие силы в нас действуют? Чего мы можем достичь? В этой книге вы найдёте ответы и наставления старцев, прикоснётесь к опыту отцов-пустынников, который передавался лично от учителя к ученику.
+
+Книга рекомендована Издательским Советом Русской Православной Церкви.
+(   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15FAACF983E8A60279D91C935BF783E8F426A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

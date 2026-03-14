@@ -1,3 +1,61 @@
+###  Публикация: 1737731   (49510) от 19.07.2024
+
+VA - DJ Hits 145 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strech & Vern - I'a Alive
+02. Alpha - Revolution In Paradise
+03. Junior Vasques - If Madonna Calls
+04. Imperio - Atlantis(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92962D049BB8628C9BFE9BA5ABC60583383AC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741418   (47536) от 07.08.2024
+
+VA - 90s Radio Hits (2024) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Hot Chili Peppers - Under the Bridge
+02. Seal - Kiss from a Rose
+03. Cher - Believe
+04. Marc Cohn - Walking in Memphis(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 04:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA4D20BED709D1742345AA9A0D8382512E3AF46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741396   (47523) от 07.08.2024
 
 VA - 90s Music - Greatest Hits (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
@@ -686,64 +744,6 @@ VA - Суперхиты Дискотеки 90-х Vol.2 (2011) [OGG Vorbis|480 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6A8981DF9ED13D1369BF1E82888C0C55B86AEA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753473   (41391) от 05.10.2024
-
-VA - Суперхиты Дискотеки 90-х Vol.3 (2011) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Unlimited - No Limit
-02. U96 - Love Religion
-03. E-Type - This Is The Way
-04. Dr. Alban - It's My Life(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F559C3F02796829EF6970DA88B03494C6488008A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753663   (41250) от 06.10.2024
-
-VA - Суперхиты Дискотеки 90-х Vol.4 (2012) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace of Base - Happy Nation
-02. Corona - The Rhythm Of The Night
-03. Mr. President - Up'n Away
-04. Cappella - U Got 2 let the Music(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB1FFEF7B38E800C7EDA59C9C1FAA67C868E115
 ```
 
 https://mybot314.ru/tekegram_catalog/

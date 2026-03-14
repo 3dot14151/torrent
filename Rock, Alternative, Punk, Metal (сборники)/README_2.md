@@ -1,3 +1,32 @@
+###  Публикация: 1468544   (1017031) от 08.05.2021
+
+Brian Johnson - Brian Johnson & Geordie & AC DC (2007) Compilation, Unofficial Release [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Black Cat [00:04:11]
+02-Natural Born Loser [00:03:23]
+03-Ain't It Just Like A Woman [00:03:18]
+04-Strange Man [00:04:17](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E0D20A480B7AC84F66F40390D903D5651DB53B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468945   (1016765) от 10.05.2021
 
 VA - Punk Rock Bulldozer (2CD) (2021) [MP3|320 Kbps] <Punk Rock>
@@ -716,35 +745,6 @@ abstract mechanism. Vol.1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68FBE1E7A5A16B6D777A4FF61B3F2783826D0279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486089   (1004838) от 30.07.2021
-
-VA - 100 Greatest Soft Rock Songs (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toto - Africa
-02. The Police - Every Breath You Take (Remastered 2003)
-03. Eurythmics, Annie Lennox, Dave Stewart - Sweet Dreams (Are Made of This) (Remastered)
-04. Daryl Hall & John Oates - You Make My Dreams (Come True)(   Читать дальше...   )Жанр: RockПродолжительность: 07:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7242325D7AFE6B195138814E43642CB11969AEAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

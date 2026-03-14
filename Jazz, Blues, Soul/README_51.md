@@ -1,3 +1,65 @@
+###  Публикация: 614496   (981513) от 05.02.2013
+
+Jimmy Smith - Jazz Inspiration (2012) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981513.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Sermon [20:10]
+2. Fungii Mama [4:53]
+3. When Johnny Comes Marching Home [7:56]
+4. Jumpin' The Blues [5:26]
+5. Back At The Chicken Shack [7:59]
+6. The Champ [8:36]
+7. All Day Long [10:29]
+8. See See Rider [6:33]Жанр: JazzПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52507D2E27002AB22052100242D6CD017524E212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355840   (981213) от 28.01.2020
+
+Bruce Ackley Trio - The Hearing (1998) Avant [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of the Box [3:15]
+02. 1, 2, Radical 3 [6:25]
+03. Juggernaut [5:15]
+04. Mr. Mood [6:58](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD0E258944CA892994D55367660D93CDD00BD80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355838   (981157) от 28.01.2020
 
 Leon Thomas With Oliver Nelson - In Berlin 1970 (2002) BMG [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul-Jazz>
@@ -686,61 +748,6 @@ Kim Simmonds & Savoy Brown - The Devil To Pay (2015) [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E857E53C076EF971CFBA3CCD6CE4C5AE1374E109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973418   (980199) от 08.01.2016
-
-Julie London - Calendar Girl (1956) [MP3|320 кб/с] <Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  June In January (2:10)
-02.  February Brings The Rain (2:22)
-03.  Melancholy March (2:19)
-04.  I'll Remember April (2:00)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4043779FEEC79007A79B08E909002CFE513B20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437170   (980146) от 15.01.2012
-
-Patti Labelle - The Universal Masters Collection: Classic Patti Labelle (2001) [FLAC|Lossless]<Soul / R&B / Pop>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Soul / R&B / PopПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

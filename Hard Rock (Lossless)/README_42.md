@@ -1,3 +1,119 @@
+###  Публикация: 1307839   (554507) от 12.06.2019
+
+Hardbone - This Is Rock'n'Roll (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554507.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bottlemate - 3:00
+2. Wild Nights - 3:58
+3. Girls & Gasoline - 4:44
+4. Grave Digger - 4:08(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC8023617415C3A14B9E8AECB9AB6F8DA9C7F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236692   (554031) от 19.07.2018
+
+Kiss - The Best Of Kiss Volume 2 (2004) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creatures of the Night (04:05)
+02. I Love It Loud (04:18)
+03. Lick It Up (03:58)
+04. All Hell’s Breakin’ Loose (04:35)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23CB9CB8ED9248F126E7552C096192E84E5204F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237203   (553291) от 22.07.2018
+
+Joker - Joker (1990) 1991, TECP-25726 [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553291.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Want Love (04:48)
+2. Say Yeah (04:25)
+3. Lorraine (04:14)
+4. Party for Your Life (03:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0028761770A42CE8E7BEC81F8986B64F8976AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308971   (552876) от 17.06.2019
+
+Buckcherry - Warpaint (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warpaint (3:52)
+02. Right Now (3:38)
+03. Head Like A Hole (3:53)
+04. Radio Song (4:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5E8B15FFCA992DD89541F22E8B7DF1B61F3145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046584   (551934) от 27.08.2016
 
 Vasco Rossi - Stupido Hotel (2001) [FLAC|Lossless|tracks + .cue] <Rock>
@@ -632,122 +748,6 @@ Ian Gillan - The best of (1992) [FLAC|Lossless|image + .cue] <Hard rock, Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:642A7BD378FE4F58B7C2036E7E0F4C4E7628A2FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154716   (538938) от 31.07.2017
-
-Federal Charm - Federal Charm (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gotta Give It Up (4:48)
-02. I'm Not Gonna Beg (3:07)
-03. No Money Down (3:44)
-04. Somebody Help Me (4:14)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6511611B37F0F8F75B92F00FBED2B8E8E05023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154273   (538830) от 31.07.2017
-
-Ritchie Blackmore's Rainbow - Stranger In Us All (1995) [FLAC|Lossless|image + .cue] <Hard rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolf to the Moon
-02. Cold Hearted Woman
-03. Hunting Humans (Insatiable)
-04. Stand and Fight(   Читать дальше...   )Жанр: Hard rockПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2B113EA09757B7CDE492D526F1CC939F4DAA99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557646   (537452) от 17.06.2022
-
-Steve Marriott - Marriott (1976) Reissue, Remastered, 2007, Universal [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный сольник основателя Humble Pie .01. East Side Struttin’
-02. Lookin’ For A Love
-03. Help Me Through The Day
-04. Midnight Rollin’(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF62890CCBE76A635B8F3E4758E15D4CE69235B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557856   (537451) от 17.06.2022
-
-Lazarus Dream - Lifeline (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead End Symphony
-02. Don't Look Down
-03. Mind Like A Windmill
-04. Freedoom(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE7F21FC69748329BA875506AF804D86FB01183
 ```
 
 https://mybot314.ru/tekegram_catalog/

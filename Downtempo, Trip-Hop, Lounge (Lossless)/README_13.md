@@ -1,3 +1,61 @@
+###  Публикация: 1295761   (617089) от 14.04.2019
+
+VA - The Beatless Collection Vol. 1 (2008) Elektrolux [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Electro>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subsonic Park - X-ident (06:18)
+ 02. Joris Voorn - This Is Our Fiction (02:00)
+ 03. Hiroshi Watanabe - Genesis (Beatless Version) (05:22)
+ 04. Subsonic Park - After Dark (Video Edit) (08:15)(   Читать дальше...   )Жанр: Ambient, Downtempo, ElectroПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F46CD9F7BEEABC17C752E858034E55A5C50564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146274   (616341) от 28.06.2017
+
+Michael E - Behind Closed Doors (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chill Out, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Try  (6:26)
+02.  Over The Hills & Far Away  (6:25)
+03.  Balearic Soul  (6:01)
+04.  Behind Closed Doors  (7:13)(   Читать дальше...   )Жанр: Downtempo, Chill Out, LoungeПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CB3405EC0D36D339B6F5947E4B0EB8953D03DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146171   (615952) от 28.06.2017
 
 V.A. - Vintage Cafe: Lounge & Jazz Blends Vol.10 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
@@ -689,64 +747,6 @@ VA - Sweet Lounge Session Vol 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CCBCBC66ED5258B879B82DE2431FBCECDE9823C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303576   (572848) от 21.05.2019
-
-VA - Sweet Lounge Session Vol 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Titron - Mali (Original Mix) 3:28
-02. Krystian Shek - Coming Back Soon (Original Mix) 3:20
-03. Xemplify - I Have A Dream (Original Mix) 5:49
-04. Monodeluxe - Steel Vibes (Original Mix) 4:21(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B045AB944594C5A78F02C6B6E92D5A2D8FB49D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554955   (572311) от 02.06.2022
-
-VA - Green Fields: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour - Frozen Swamp (05:17)
-02. Martin Hiska - Both Tides (06:28)
-03. Michael E - After The Storm (05:57)
-04. Peter Pearson - A Special Time (03:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289FBED6E1972443ADB16A4CA5B71E93A842560F
 ```
 
 https://mybot314.ru/tekegram_catalog/

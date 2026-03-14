@@ -1,3 +1,32 @@
+###  Публикация: 1374272   (874120) от 09.04.2020
+
+VA - Русский Рок ревью 2020 [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_874120.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Estradarada - Чемпион (3:16)
+2.Port Avenue - Прятки (3:50)
+3.Rooftops - Джоинт (3:06)
+4.Total & CHERKUNOVA - Бойцы (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DF4EDEBCBA5494A7B0060FA412E7E7B2769A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374390   (872985) от 10.04.2020
 
 VA - Advanced Rock (2020) [MP3|320 Kbps] <Rock, Punk, Alternative>
@@ -722,35 +751,6 @@ Kiss - 100% KISS (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0BDD12D83096C6B511EB644DB878528857BE57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375991   (861618) от 16.04.2020
-
-Dire Straits - 100% Dire Straits (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sultans Of Swing (Live At The Royal Albert Hall)
-02. Brothers in Arms
-03. Walk of life
-04. Calling Elvis(   Читать дальше...   )Жанр: RockПродолжительность: 02:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3B044E7DF38B6861E990054AD2E78B41AC4D7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

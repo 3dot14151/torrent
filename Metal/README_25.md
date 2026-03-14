@@ -1,3 +1,32 @@
+###  Публикация: 1003884   (841791) от 04.04.2016
+
+Final Chapter - Legions Of The Sun (2016) [MP3|320 кб/с] <Symphonic Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trace Of Fate
+02. Sail Away
+03. Garden Of Fear
+04. Legions Of The Sun(   Читать дальше...   )Жанр: Symphonic Power Metal, Speed MetalПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D7C64F6D1EFEC375BD342904733ACF8DBF3138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003971   (841705) от 04.04.2016
 
 Grimner - Frost Mot Eld (2016) [MP3|320 кб/с] <Folk Metal, Viking Metal>
@@ -732,35 +761,6 @@ Rage - My Way (2016) Single [MP3|320 кб/с] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C17E6621DE8821AE5B54C5721587EDB34801D9AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007371   (823228) от 14.04.2016
-
-Otep - Generation Doom (2016) Deluxe Edition [MP3|320 кб/с] <Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero
-02. Feeding Frenzy
-03. Lords Of War
-04. Royals(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639432B40CB133B16D271E5392EDBEEAFDB71A8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

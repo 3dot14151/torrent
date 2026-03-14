@@ -1,3 +1,148 @@
+###  Публикация: 1727459   (108533) от 02.06.2024
+
+Arooj Aftab - Night Reign (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aey Nehin (5:46)
+02. Na Gul (5:30)
+03. Autumn Leaves (4:47)
+04. Bolo Na (6:15)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FAB9D9FE6DFC3F6BD55BC459C65C488CA42FD64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557168   (108526) от 02.06.2024
+
+Doomsday Dementia - 4 Albums (2018-2022) [FLAC|24/44.1,48|WEB-DL|tracks] <Crust Punk, Doom, Sludge, Stoner Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Doomsday Dementia - 2016 - Doomsday Dementia (24bit-44.1kHz)
+Doomsday Dementia - 2021 - the 3 blind mice demo (ep) (24bit-44.1kHz)
+Doomsday Dementia - 2022 - 3 songs from nov.2021 session outtakes, covid 19 jamroom demos (24bit-44.1kHz)(   Читать дальше...   )Жанр: Crust Punk, Doom, Sludge, Stoner MetalПродолжительность: 5 CD, 03:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7178F17605D3FF945702D54483A6179949B2D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727438   (108518) от 02.06.2024
+
+Sexy Lovers Music Collection, Sexual Music Collection - Steamy Foreplay Excitement (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensual Sunset (3:39)
+02. Overload with Kisses (3:40)
+03. Give Me Some Loving (5:05)
+04. Kaleidoscope (4:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00728240792EBB9AA4838EE957BAEAA48825ECF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727429   (108495) от 02.06.2024
+
+Erasure - Cowboy (1997) Expanded Edition, 2024, BMG Company [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain (2024 Remaster) [00:04:11]
+02. Worlds On Fire (2024 Remaster) [00:03:37]
+03. Reach Out (2024 Remaster) [00:03:47]
+04. In My Arms (2024 Remaster) [00:03:36](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6464DFD562DAA69C421A931220140B78B93D4FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727425   (108491) от 02.06.2024
+
+Dead Or Alive - The Pete Hammond Hi-NRG Remixes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hi-NRG, Dance, Synth-pop, New Wave, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Spin Me Round (Like a Record) (2000 Pete Hammond Hi-NRG Remix) (9:39)
+02. Hit and Run Lover (Pete Hammond Hi-NRG Remix) (8:29)
+03. U Were Meant 4 Me (Pete Hammond Hi-NRG Remix) (8:31)
+04. Lover Come Back to Me (2000 Pete Hammond Hi-NRG Remix) (8:25)(   Читать дальше...   )Жанр: Hi-NRG, Dance, Synth-pop, New Wave, ElectronicПродолжительность: 01:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39C8959387FB1AFB53499889A2D057E9C9CF95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727544   (108485) от 02.06.2024
 
 Silver Convention - Get Up & Boogie: The Worldwide Singles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Disco, Soul>
@@ -600,148 +745,6 @@ Half Heard Voices - Moon Burial (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC41167E99FE02AD389460DAD3CD3262B599311A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728523   (108324) от 07.06.2024
-
-Darko Us - Starfire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <progressive metalcore, deathcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starfire (1:14)
-02. Distant World (feat. Storm Strope (ex-The Last Ten Seconds of Life)) (4:27)
-03. Death Charge (feat. Marc Zelli of Paleface Swiss) (3:33)
-04. 5D (3:57)(   Читать дальше...   )Жанр: progressive metalcore, deathcoreПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F17E82DAEBDD07EC6FD4CA406145485DC5A471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728567   (108313) от 07.06.2024
-
-Issa - Another World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Rock, Trip-Hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armed & Dangerous (4:54)
-02. All These Wild Nights (5:12)
-03. Only In The Dark (4:59)
-04. Never Sleep Alone (4:09)(   Читать дальше...   )Жанр: Melodic Rock, Trip-HopПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D88469FDD5BF84E0A6EAED59A8C15472461F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728701   (108306) от 08.06.2024
-
-Nightwish - Perfume Of The Timeless (2024) Single [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfume Of The Timeless (8:12)Жанр: Symphonic metalПродолжительность: 00:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3829C6B657F3D4F7A1F4D9CEDD1DA7DCF14B1ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728787   (108293) от 08.06.2024
-
-Tanerélle (Tanerelle) - Electric Honey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B, around trip-hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Honey [00:00:57]
-02. Blink [00:02:39]
-03. Let Me In [00:02:58]
-04. Mirror [00:03:07](   Читать дальше...   )Жанр: R&B, around trip-hopПродолжительность: 00:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99206B9764F4B21AFB37448FADFA00EE97A74AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728782   (108292) от 08.06.2024
-
-Quantic - Dancing While Falling (2023) Deluxe Edition, 2024, [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run feat. Andreya Triana (Extended Version) [00:06:16]
-02. Brooklyn Heat feat. Andreya Triana (Extended Version) [00:06:35]
-03. Subway Lover (Extended Version) [00:06:17]
-04. Unconditional feat. Rationale (Extended Version) [00:06:22](   Читать дальше...   )Жанр: DiscoПродолжительность: 2 CD, 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C7BCFB7F24B66405FEEA78CE287C356C669A67
 ```
 
 https://mybot314.ru/tekegram_catalog/

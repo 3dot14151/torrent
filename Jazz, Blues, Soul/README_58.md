@@ -1,3 +1,61 @@
+###  Публикация: 1361170   (955725) от 19.02.2020
+
+Thelonious Monk - The Complete Albums Collection 1957-61 (2015) 5CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955725.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ruby, My Dear [6:23]
+02. Trinkle, Tinkle [6:41]
+03. Off Minor [5:17](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 06:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2453A8450F2EA2DD47893E3670E9F251D8A8ECC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088864   (955173) от 01.01.2017
+
+Barney Kessel - Contemporary Latin Rhythms! (1961) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues In The Night [02:40]
+ 02.Days Of Wine And Roses [02:30]
+ 03.Latin Dance #1 [02:32]
+ 04.Lady Bird [03:31](   Читать дальше...   )Жанр: Bop, Cool, West Coast JazzПродолжительность: 00:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633110CE61F95FE64A514AA3114C238149B092F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088963   (955169) от 01.01.2017
 
 Bobby Scott - The Compositions Of Bobby Scott (1955) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
@@ -690,64 +748,6 @@ Andy Bey & The Bey Sisters (1964-1965) 2000, Prestige[FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF457C0821033B7B4257165D55A26113DBDB707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089320   (950859) от 04.01.2017
-
-Hank Mobley - Dig Dis (1960) 2CD, 2011, Not Now Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950859.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Soul Station:
-01.Remember [05:43]
-02.This I Dig of You [06:26]
-03.Dig Dis [06:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384F13D3C9F2DF60256D34BB7D43C1F2B286023C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089329   (950790) от 04.01.2017
-
-Paul Smith - Brazilian Detour (1966) Remaster, 2013, Warner [FLAC|Lossless|tracks + .cue] <Cool, Bossa Nova, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.One Note Samba [02:48]
- 02.Lullaby Of Birdland [02:40]
- 03.Meditation [02:32]
- 04.The Lamp Is Low [01:43](   Читать дальше...   )Жанр: Cool, Bossa Nova, Latin JazzПродолжительность: 00:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F381A3D6B8B7A95575A4E91A043F1E64A7FD98D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

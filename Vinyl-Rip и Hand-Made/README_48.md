@@ -1,3 +1,116 @@
+###  Публикация: 1639869   (211473) от 15.06.2023
+
+Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Sunrise (The Magician Birthday)
+02. July Mornin' (Look At Yourself)
+03. Return To Fantasy (Return To Fantazy)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C712DB72B74F771C8CCB2D9B8C39F647EBEB45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640068   (211409) от 16.06.2023
+
+Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Black/Viking Metal, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bathory — шведская группа, внёсшая значительный вклад в развитие блэк-метала и викинг-метала, возникшая в Стокгольме в 1983 году. В составе Bathory побывало множество музыкантов, но лидером в начале творческого пути и фактически единственным участником в конце был музыкант-мультиинструменталист Quorthon.АЛЬБОМЫЖанр: Black/Viking Metal, Thrash MetalПродолжительность: 07:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407B5A3C6067B04B9BFBA040B26DADB14FCF09C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301237   (211271) от 03.08.2022
+
+Григорий Лепс - Баллада о борьбе (2008) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_211271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Баллада о борьбе
+02. Падают листья
+03. Шелест(   Читать дальше...   )Жанр: Pop Rock, ChansonПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D080BC1187730DE3931B2E38C72E2E47942B736B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640518   (211108) от 18.06.2023
+
+Alice Cooper - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Poison
+02. Hey Stupid
+03. Feed My Frankenstein(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641447   (210780) от 22.06.2023
 
 А. Журбин, Ю. Димитрин - Орфей и Эвридика. Зонг-опера в 2х частях (1980) Box Set, 2LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock-Opera, Modern>
@@ -633,122 +746,6 @@ A4 Ticket To The Moon(   Читать дальше...   )Жанр: Synth-pop, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F787043A0FC2CB2B0C08B19421C4317098EA5DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653165   (205984) от 18.08.2023
-
-Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205984.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Immortal
-A2 Patient Number 9
-A3 Parasite
-B1 No Escape From Now(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC930CB49178CE821FAA5917B03CB286D01ABE26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830794   (205759) от 27.10.2025
-
-Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical/Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quo Vadis - канадская дэт-метал-группа из Монреаля, Квебек, образованная в 1992 году.1996 - Forever...
-2000 - Day Into Night
-2001 - Passage In Time
-2004 - Defiant ImaginationЖанр: Technical/Melodic Death MetalПродолжительность: 02:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12743AAABEAF35762E2EAC29235D96F9FF08C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654042   (205374) от 19.08.2023
-
-Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sign Of Satan
-02. After The Bomb
-03. Dark Fade
-04. Homicide Rocker(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC90F74B74782CCCA087D4670E926F780CEF65D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654423   (205144) от 21.08.2023
-
-Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Death Tone
-02.Metal Daze
-03.Fast Taker
-04.Shell Shock(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C65853B6674537CA4F6CB88939C6F3BF0C3C2C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

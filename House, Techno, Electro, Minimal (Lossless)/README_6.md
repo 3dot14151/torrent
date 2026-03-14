@@ -1,3 +1,61 @@
+###  Публикация: 1480709   (1008856) от 29.06.2021
+
+VA - Monday Dreamin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Techno, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Souls Of Saturn & TOKiMONSTA - Revision Of The Past
+02. Rampa - The Church
+03. Moodymann - Keep On Coming (feat. CD)
+04. Butch - Raindrops (feat. Kemelion)(   Читать дальше...   )Жанр: Tech House, Deep House, Techno, ProgressiveПродолжительность: 02:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0657FA7B165457ED9AEEF73041EF4E8780AC93C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370617   (1008833) от 29.06.2021
+
+Протон-4 | Proton-4 - Discography 6 Releases (2015-2021) A-TRIUM [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свет Звезд (03:12)
+ 02. Полет Во Сне (03:47)
+ 03. Покоряя Галактику (04:18)
+ 04. Ветер Весны (04:53)(   Читать дальше...   )Тип издания: WEBЖанр: Synthwave, Retrowave •Продолжительность: 02:31:22 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0B0C031DD057BA0A4A7D9491693C4CF32F9882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481229   (1008494) от 02.07.2021
 
 Barker & Baumecker - Transsektoral (2012) Ostgut Ton [FLAC|Lossless|tracks+.cue] <Techno, Experimental>
@@ -679,61 +737,6 @@ Doyeq - Discography 43 Releases (2009-2021) [FLAC|Lossless|WEB-DL|tracks] <Dub T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2261EB0DEB2C65ECA9D9986A2D7861D992753B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487832   (1003071) от 07.08.2021
-
-Fidem Community - Discography 20 Singles (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two One (06:31)Тип издания: Web •Жанр: Deep House •Продолжительность: 02:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DCC8AF15E025B26226CCADE3833172CE9228C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483801   (1003052) от 07.08.2021
-
-Overmono - fabric presents Overmono | Unmixed + DJ Mix (2021) Fabric Worldwide [FLAC|Lossless|WEB-DL|tracks] <House, UK Garage, Breakbeat, Techno, Drum & Bass>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overmono - So U Kno (05:44)
- 02. Artwork - The Soul (Mixed) (01:48)
- 03. Foremost Poets - MoonRaker (02:28)
- 04. Milanese - Billy Hologram (03:52)(   Читать дальше...   )Жанр: House, UK Garage, Breakbeat, Techno, Drum & BassПродолжительность: 03:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4437692807FBDF6217A012493AF6E467D7E861A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

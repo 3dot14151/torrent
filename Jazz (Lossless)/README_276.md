@@ -1,3 +1,90 @@
+###  Публикация: 1668136   (174734) от 11.10.2023
+
+Django Reinhardt - BD Jazz (1933 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vito [2:31]
+02. I've Found a New Baby [2:46]
+03. The Object of My Affection [2:51]
+04. Cette chanson est pour vous [3:07](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224645EB04D0E6B0A2E54BBD6C26C2144F8BAE2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595798   (174579) от 07.12.2022
+
+Chico Hamilton - Seven Classic Albums (1955 - 1959) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174579.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. A Nice Day [2:54]
+02. My Funny Valentine [4:20]
+03. Blue Sands [6:32](   Читать дальше...   )Жанр: Hard Bop, West Coast JazzПродолжительность: 04:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8ACB7BE80BED5060253D0B7130BF796107C1FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596006   (174128) от 08.12.2022
+
+Randy Waldman - UnReel (2001) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jetsons [4:08]
+02. My Favorite Things [6:41]
+03. Leave It To Beaver [3:56]
+04. Bali Hai [5:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D043792DB71A9DE1707336E5A721D70684843A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595976   (174092) от 08.12.2022
 
 Jon Balke & Siwan - Hafla (2022) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Folk>
@@ -657,93 +744,6 @@ Andre Previn - Four Classic Albums (1957 - 1959) 2CD, 2011, Avid Jazz [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:006C51A90CA4588B98614B97A3A8C2505295ABF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669387   (172874) от 16.10.2023
-
-Grant Green - Alive! (1970) 2000, Blue Note [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let the Music Take Your Mind [8:29]
-02. Time to Remember [11:36]
-03. Band Introduction by Buddy Green [0:33]
-04. Sookie, Sookie [10:58](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Guitar JazzПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C136AFE7AC7BC0C441852D2073604301CB5B1083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669654   (172681) от 17.10.2023
-
-David Hazeltine - The New Classic Trio (2012) Sharp Nine Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Stood Still [5:18]
-02. I Wish I Knew [6:14]
-03. Hob Nob with Brother Bob [5:56]
-04. I'll Let You Know [6:49](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C54041773C2AA9448345975B2BF55336BA4E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669658   (172677) от 17.10.2023
-
-Roland Hanna & George Mraz - Romanesque (2023) Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humoresque [8:23]
-02. Serenade [5:45]
-03. My Reverie [6:14]
-04. Chant Sans Paroles, Op.2, No.3 [4:32](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E10C75C3F9C77CB7B1D8B6D00B1C0C2C5FDEB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

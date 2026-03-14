@@ -1,3 +1,61 @@
+###  Публикация: 1097978   (910989) от 29.01.2017
+
+Donny McCaslin - Casting For Gravity (2012) Greenleaf Music[FLAC|Lossless|tracks + .cue] <Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stadium Jazz [07:21]
+ 02.Says Who [06:20]
+ 03.Losing Track Of Daytime [07:41]
+ 04.Alpha And Omega [04:14](   Читать дальше...   )Жанр: Modern CreativeПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5E6574F0A0601B37F4450CDC619423EA8FD0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097826   (910987) от 29.01.2017
+
+Delbert McClinton & Self-Made Men - Prick of the Litter (2017) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Do It (3:20)
+02. Doin' What You Do (3:41)
+03. Middle of Nowhere (3:18)
+04. Skip Chaser (2:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB907ECE185D7550E33A69B21A7075E7A2F2B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097565   (910986) от 29.01.2017
 
 Michael Maxwell and His Orchestra - In The Big Band Mood (1997) Avalon Music[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -684,64 +742,6 @@ Blue Attitude - Alpha (2016) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCED934CEFF20DB5CBD91AADB00490B0236C6ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991082   (908180) от 27.02.2016
-
-VA - Jazz and Blues on Edison , volume 1 (1920-1929) 2006, Document Records[FLAC|Lossless|tracks + .cue] <Big Band, Dance Bands, Early Jazz, Jazz Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lopez & Hamilton - Dixie Land [04:12]
- 02.Genevieve Gordon - Baby's Got The Blues [03:46]
- 03.Original Memphis Five - St. Louis Gal [04:43]
- 04.Ethel Finney - You Gonna Wake Up Some Morning [04:02](   Читать дальше...   )Жанр: Big Band, Dance Bands, Early Jazz, Jazz BluesПродолжительность: 01:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5AE2C677D2786FAAC3B753A1A5EBA9CCE2AF1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991161   (908121) от 27.02.2016
-
-Aziza Mustafa Zadeh - Contrasts II (2007) Jazziza Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction [01:45]
- 02.Mozarts Jazz Ballade [03:29]
- 03.Guarding Dreams [02:27]
- 04.The Queen Of The Night [02:57](   Читать дальше...   )Жанр: Jazz Fusion, Piano JazzПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B91C75568879CAE3448B66C4ED6A6ED8E1BB672
 ```
 
 https://mybot314.ru/tekegram_catalog/

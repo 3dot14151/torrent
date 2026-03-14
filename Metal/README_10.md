@@ -1,3 +1,32 @@
+###  Публикация: 163983   (986542) от 07.01.2010
+
+Melechesh - Emissaries (2006) [MP3|~256 kbps] <Mesopotamian metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986542.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rebirth of the Nemesis (6:37)
+2. Ladders to Sumeria (4:01)
+3. Deluge of Delusional Dreams (6:25)
+4. Touching the Spheres of Sephiroth (3:09)(   Читать дальше...   )Жанр: Mesopotamian metal (Black/Death/Middle-Eastern Folk Metal)Продолжительность: 00:55:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355019   (985963) от 24.01.2020
 
 Annihilator - Ballistic, Sadistic (2020) [MP3|320 Kbps] <Heavy Metal, Thrash Metal, Speed Metal>
@@ -731,35 +760,6 @@ Abbath - Abbath (2016) [MP3|320 кб/с] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F037C27A15A4C2B3A25C5A91FE3CB2A3A8E0280D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 166892   (974911) от 16.01.2010
-
-Pelican - Australasia (2003) [MP3|320 kbps]<Instrumental Artcore / Sludge Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightendday (11:14)
-02. Drought (8:23)
-03. Angel Tears (10:59)
-04. GW (3:34)(   Читать дальше...   )Жанр: Instrumental Artcore / Sludge Doom MetalПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

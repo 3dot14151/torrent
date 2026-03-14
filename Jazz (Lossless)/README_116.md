@@ -1,3 +1,90 @@
+###  Публикация: 1138718   (663247) от 30.05.2017
+
+Jeff Kashiwa - Let It Ride (2012) Native Language Music [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Ride [04:16]
+02. Stomp [04:41]
+03. The Name Game [05:08]
+04. Up [03:36](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1E6D8C4730A7DA11F0841E87AF3A93E0793832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225007   (662922) от 13.05.2018
+
+Bobby Jaspar - Bobby Jaspar's New Jazz (1954) 2017, Sony Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Foggy Day in London Town [02:57]
+02. Coraline [02:40]
+03. Blossom [03:49]
+04. Paradoxe [02:33](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926C1F3418A587AEB05B129E2953405B10B4F3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225010   (662879) от 13.05.2018
+
+Dr. Lonnie Smith - All In My Mind (2018) Blue Note [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juju [08:19]
+02. Devika [06:56]
+03. 50 Ways To Leave Your Lover [09:28]
+04. On A Misty Night [07:45](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-Funk, Hammond OrganПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865ACCD644E250A415D3B038DE6AE74DC054114E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138835   (662426) от 31.05.2017
 
 Nada Jovic & Dusko Goykovic (Goykovich) Quintet - Take Me In Your Arms (1966) 2002, Cosmic Sound [APE|Lossless|image + .cue] <Vocal Jazz>
@@ -655,93 +742,6 @@ Bill Evans - Autumn Leaves (1969) /2015, Studio Songs Japan/ [FLAC|Lossless]<Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D18F3CA4324FDC64F1FF32ACFF49498128C467E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225526   (659847) от 16.05.2018
-
-Lee Morgan - Expoobident (1960) 2000, Koch Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expoobident [05:02]
-02. Easy Living [05:58]
-03. Triple Track [05:01]
-04. Fire [04:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F353D43D1EEAB26599D30C19ED6897736B3DA66A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225527   (659844) от 16.05.2018
-
-Steve Khan - Arrows (1979) 2017, Sony Music [FLAC|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Suite (For Folon): Part I - City Monsters, Part II - Dream City [11:50]
-02. Candles [07:02]
-03. Daily Village [06:43]
-04. Some Arrows [05:49](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2DCCFEB68F2EAE245F40F59384C93F5B01A06ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139654   (659381) от 03.06.2017
-
-Frank Avitabile - Bemsha Swing (2002) Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reverie [03:27]
-02. Fine-Tune [04:17]
-03. Carrousel [04:47]
-04. Body and Soul [05:34](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168FD76498D19220BE81DE333F0BF9D50D0804ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

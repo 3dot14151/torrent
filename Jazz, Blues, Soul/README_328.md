@@ -1,3 +1,183 @@
+###  Публикация: 950786   (366186) от 28.10.2015
+
+Mojo Society - Mojo Groove (2006) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mojo Groove (04:57)
+02. Nao Tire O Meu Blues (02:07)
+03. When The Night Comes Falling From The Sky (05:54)
+04. How Blue Can You Get (05:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5A1F532357148A960A565BE8DC214430F71215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576461   (366161) от 14.09.2022
+
+The B. Christopher Band  - Snapshots from the Second Floor (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Twisted Up (3:33)
+02. Where You At (4:37)
+03. Sugar Baby (3:35)
+04. Talk to Me (3:35)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA4A54702CFDE7210087FB925E15F2A97D34ED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255354   (366040) от 17.10.2018
+
+VA - The Blues White Album (2002) [MP3|320 Kbps] <Blues, Cover>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Thackery & The Drivers - Why Don’t We Do It In The Road? [5:34]
+02. Lucky Peterson - Yer Blues [5.20]
+03. Anders Osborne - Happiness Is A Warm Gun [3:26]
+04. Kenny Neal, Lucky Peterson, Tab Benoit - Revolution [4:54](   Читать дальше...   )Жанр: Blues, CoverПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FE7B12EE0C6BD4AFB291A64B5989F9E30F83FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950797   (365993) от 28.10.2015
+
+Dudley Taft - Skin and Bones (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skin and Bones (03:59)
+02. Lonesome Memphis Blues (04:02)
+03. Ain't Nothing Gonna Stop Us Now (03:37)
+04. Leland Mississippi Blues (03:41)(   Читать дальше...   )Жанр: Blues Rock, Memphis BluesПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CDB88DCC289E6DDCD6FB73A4873D33456FAEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950856   (365989) от 28.10.2015
+
+Midnite Johnny (Morana) - So Complicated (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Trouble (03:29)
+02. Come On Home (03:52)
+03. Spy Boy (05:18)
+04. Everybody Ought To Make A Change (04:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB79A60D643EA3CB2B40B37338B28C55E2B7BD51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575998   (365938) от 16.11.2012
+
+VA - Blow Up A-Go-Go! Dancefloor Classics From The Legendary Blow Up Club (1999) [FLAC (tracks)|Lossless]<Soul, Funk, Beat, Mod>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_365938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Quik - Bert's Apple Crumble [1967] (02:13)
+02. James Clarke - Blow Up A-Go-Go! [1973] (02:32)
+03. Georgie Fame - Somebody Stole My Thunder [1969] (03:07)
+04. Soul Hooligan - Sweet Pea [1998] (04:03)
+05. The Coasters - Love Potion No.9 [1970] (02:37)
+06. Johnny Otis Show - Watts Breakaway [1969] (02:34)
+07. The Spencer Davis Group - I'm A Man [1967] (02:52)
+08. Mongo Santamaria - Cloud Nine [1970] (04:22)
+09. Incredible Bongo Band - Bongolia [1971] (02:14)
+10. Bobby Hughes Experience - Sahara 72 [1999] (05:07)(   Читать дальше...   )Жанр: Soul, Funk, Beat, Rock'n'Roll, ModПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226141   (365896) от 17.10.2018
 
 Basia - Butterflies (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz, Bossa Nova>
@@ -571,177 +751,6 @@ VA - Genuine Houserockin' Music, Vol. 4 (1990) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0E9E8FE03FC5702AE79E0B5817347ECAC323370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951028   (363669) от 29.10.2015
-
-Johnny Hodges - With Billy Strayhorn And The Orchestra (1961) /1999, Verve/[FLAC|image+.cue]<Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Don't Get Around Much Anymore [03:05]
- 02.I Got It Bad (And That Ain't Good) [03:39]
- 03.Gal From Joe's [02:30]
- 04.Your Love Has Faded [03:04](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977C2BDD0873EE3F190E2DC17CFCE44A3F8CB812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950800   (363668) от 29.10.2015
-
-VA - Genuine Houserockin' Music, Vol. 1 (1986) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363668.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Johnny Winter - Sound The Bell (3:28)
-2. Koko Taylor - Come To Mama (4:38)
-3. Lonnie Mack - Satisfy Suzie (4:09)
-4. Albert Collins with Robert Cray and Johnny Copeland - Blackjack (6:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD86FC1007A7E5F82EBB56A00DABF2530708C2A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951492   (363664) от 29.10.2015
-
-Nat King Cole Trio - Live at the Circle Room & More (1946/1949) /1999, Definitive Records/[FLAC|tracks+.cue]<Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Opening Theme [00:40]
- 02.Oh, But I Do [02:58]
- 03.I'm Thru With Love [03:11]
- 04.'C' Jam Blues [03:50](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F109A2A49EA46F9EDCACDD9F81365E650B03564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328487   (363604) от 30.09.2019
-
-John Coltrane - Blue World (1960-е) 2019, Impulse! [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NaimaЖанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666E7198F8FF20518ECFF98054C39A1C87B035CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328576   (363553) от 30.09.2019
-
-The Steve Howe Trio - New Frontier (2019) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiatus [02:24]
-02. Left To Chance [06:33]
-03. Fair Weather Friend [04:26]
-04. Zodiac [03:07](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3267EF818388C1D6BC9C17DB432D40046E47EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328434   (363385) от 30.09.2019
-
-John Mayall With Eric Clapton - Blues Breakers (2019) Remaster, 1966 [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Your Love (03:39)
-02. Hideaway (03:17)
-03. Little Girl (02:37)
-04. Another Man (01:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C7969C3AEE97F76FD8BCB31ACDEDAC6CB9506F
 ```
 
 https://mybot314.ru/tekegram_catalog/

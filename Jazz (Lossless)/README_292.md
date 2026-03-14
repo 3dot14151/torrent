@@ -1,3 +1,90 @@
+###  Публикация: 1435133   (146707) от 27.12.2020
+
+Ella Fitzgerald & Duke Ellington - Ella & Duke At The Cote D'Azur (1966) 2CD, 1997, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146707.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Mack the Knife [4:57]
+02. The Old Circus Train Turn-around Blues [11:01]
+03. Lullaby of Birdland [2:56](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA701174D7578CFC0560DF7BAB6519CCF6469B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087360   (146623) от 27.12.2016
+
+VA - The Beatles in Jazz (1999) Unofficial Release [APE|Lossless|image + .cue] <Smooth Jazz, Traditional Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Benson - The long & Winding Road
+02. Groove Collective - She's So Heavy
+03. Russ Freeman - While My Guitar Gently Weeps
+04. Lee Ritenour - A Day In The Life(   Читать дальше...   )Жанр: Smooth Jazz, Traditional JazzПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4570B697D1217B8537EBD2F947300F6A3F7952A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271792   (146586) от 25.12.2018
+
+Michael Buble (Bublé) - Love (Deluxe Edition) (2018) [FLAC|Lossless|WEB-DL 24Bit] <Vocal, Jazz , Pop , Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Fall in Love (04:03)
+02. I Only Have Eyes for You (03:22)
+03. Love You Anymore (03:02)
+04. La vie en rose (feat. Cécile McLorin Salvant) (03:49)(   Читать дальше...   )Жанр: Vocal, Jazz , Pop , BluesПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E87C2F9E1E8C6047F2B9678FBDE9E1B2477B790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348071   (146418) от 26.12.2019
 
 Peggy Lee - The Essential Collection 1946 - 1953 (2007) 2CD, Avid Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -658,93 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:902032F74C35991036CAE368C76E40873785900C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678617   (144230) от 22.11.2023
-
-Stan Getz - Quartets (1950) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There's a Small Hotel [2:56]
-02. I've Got You Under My Skin [3:17]
-03. What's New [3:21]
-04. Too Marvelous for Words [2:56](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6408401D246BA80F91847E5D32579C0C4BA82484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678384   (144141) от 22.11.2023
-
-Lee Morgan - Expoobident (1960) 1995, Charly Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terrible 'T' [5:24]
-02. Mogie [7:49]
-03. I'm a Fool to Want You [5:41]
-04. Running Brook [6:09](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0492369EB553E569092140535C2B0DE0A31D149B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520194   (144047) от 27.12.2021
-
-Charlie Barnet - 1939-1940 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Duke's Idea [3:05]
-02. My Heart Keeps Crying [2:55]
-03. Lilacs In The Rain [3:13]
-04. Take A Tip From The Whip-Poor-Will [2:30](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F88498E111B1ACF1EC8D0E815A42291872146587
 ```
 
 https://mybot314.ru/tekegram_catalog/

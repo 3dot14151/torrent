@@ -1,3 +1,125 @@
+###  Публикация: 1361079   (947936) от 24.02.2020
+
+Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO Series) (2019) [FLAC|Lossless|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DOOMSDAY PREPPER (04:47)
+02. CLOCKMAKER (03:49)
+03. A MAN WALKS INTO AN INTRINSIC FIELD (01:34)
+04. SPLICE OF LIFE (00:36)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3914F96E75C539F96E19A4459DB1A7A76478B1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 750508   (947932) от 29.01.2014
+
+David Arnold & Michael Price - Sherlock - Original Television Soundtrack Music From Series Three (2014) [MP3|256 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How It Was Done (2:44)
+02. God Rest His Soul (1:44)
+03. Floating Dust (3:29)
+04. #Sherlocklives (2:49)
+05. Back to Work (2:57)
+06. Vanishing Underground (2:29)
+07. John is Quite a Guy (4:06)
+08. Lazarus (3:36)
+09. Lestrade - The Movie (3:07)
+10. To Battle (4:02)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F443EEFF5A103835358536EBCFEB2777A101CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090154   (947508) от 06.01.2017
+
+Louis Landon - Soul Healing Piano Music (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Conscious Love [00:05:04]
+02 -  Healing Words [00:04:41]
+03 -  No More Fear [00:04:42]
+04 -  Clear Direction [00:04:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B774F8D5B94205B77C80231DC640CD5CC4B160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982085   (947004) от 04.02.2016
+
+Leo Kottke - Standing In My Shoes (1997) [MP3|320 кб/с] <Folk, World, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standing In My Shoes 03:59
+02. World Turning 04:00
+03. Dead End 04:17
+04. Vaseline Machine Gun 03:11(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D273CB9D789E840B3ABE8A0003D4484191150FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090555   (945975) от 07.01.2017
 
 Phil Thornton - Seven Rings (feat. Sika) (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -628,122 +750,6 @@ Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C754EA5C94D8A374ECB07A4C655ABD3A0F79802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363531   (942318) от 28.02.2020
-
-Группа Терёха - По следу солнца (2020) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942318.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. По следу солнца
-3. Порушка – Параня
-4. Колечко(   Читать дальше...   )Жанр: FolkПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550CED02A67C54DC93C7B20ADD8994A52548DD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983662   (941771) от 07.02.2016
-
-Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juice Newton - Angel of the Morning (04:13)
-02. Junkie XL - Maximum Effort (02:08)
-03. Junkie XL - Small Disruption (01:13)
-04. Salt-N-Pepa - Shoop (04:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA873D8DFB92F99667F6B461A0694E56BDE26FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983667   (941596) от 07.02.2016
-
-Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juice Newton - Angel of the Morning (04:13)
-02. Junkie XL - Maximum Effort (02:08)
-03. Junkie XL - Small Disruption (01:13)
-04. Salt-N-Pepa - Shoop (04:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCBE5587CEEB0E72B0CA9DF3286AE8CC00A1C172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091709   (941516) от 10.01.2017
-
-R. Carlos Nakai & Will Clipman - Awakening The Fire (2013) [FLAC|Lossless|tracks + .cue] <New Age, Flute>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oasis
-02. Kindling the Essence
-03. Endless Journey
-04. First Morning(   Читать дальше...   )Жанр: New Age, FluteПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9595991F6F46694EDDCFFE4B5A1A4EF0D96215E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1397342   (739886) от 21.07.2020
+
+Datum X - Burn The Soul (2020) [MP3|320 Kbps] <Melodic Death Metal, Gothic Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Images ( Memories, Pt. 1) (03:29)
+ 02. Burn The Soul (04:56)
+ 03. By My Side (04:29)
+ 04. Into Resurrection (01:45)(   Читать дальше...   )Жанр: Melodic Death Metal, Gothic Metal, Symphonic MetalПродолжительность: 01:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4555C1F24B76DA97B036D9865DF21E182DF8BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283435   (739729) от 17.02.2019
 
 Norvhar - Kauna (2019) [MP3|320 Kbps] <Folk Metal, Viking Metal, Melodic Death Metal>
@@ -716,35 +745,6 @@ Tarja - The Brightest Void (2016) [MP3|320 кб/с] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E2966C4C6131E861D7EFE9D0C6ED709D79377B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022758   (727852) от 03.06.2016
-
-Paradox - Pangea (2016) [MP3|320 кб/с] <Thrash Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apophis
-02. Raptor
-03. The Raging Planet
-04. Ballot or Bullet(   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F768E58FB37B64A29D951F2AB107FBC8A4834762
 ```
 
 https://mybot314.ru/tekegram_catalog/

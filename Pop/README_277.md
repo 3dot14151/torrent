@@ -1,3 +1,378 @@
+###  Публикация: 1269365   (221516) от 14.12.2018
+
+Paradise Express - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance (8:20)
+02. Poinciana (7:35)
+03. Reverend Lee (6:25)
+04. Star In My Life (5:59)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F14A0A6CD964F697F7979753166F1CE6FBEDBDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342916   (221357) от 04.12.2019
+
+VA - The Party Album (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221357.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. P!nk - Get the Party Started 3:12
+02. ABBA - Mamma Mia 3:31
+03. John Travolta & Olivia Newton-John - The Grease Mega-Mix 4:51(   Читать дальше...   )Жанр: PopПродолжительность: 04:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17793171DBA3097B03B4AB687766AAB79D2FE7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585538   (221281) от 22.10.2022
+
+Mylene Farmer - Greatest Hits (2013) 2 CD, Unofficial Release [OGG Vorbis|480 Kbps] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A L'Ombre
+02. Lonely Lisa
+03. Oui Mais... Non
+04. Degeneration(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 02:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EBC6AC7CAD46E73F11278CC61555099D20A5C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342929   (221196) от 04.12.2019
+
+Digital Emotion - You'll Be Mine / Run Away (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'll Be Mine
+02. Run AwayЖанр: Disco, ElectronicПродолжительность: 00:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF3498B22D854DB11411E904B8EE87A6CB2A3DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651696   (221144) от 07.08.2023
+
+Pussycat - Unreleased Demos 1983 (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_221144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Can't Get over You (Demo Version) [00:03:02]
+02 - See White Wishes Fall (A Christmas Song) (Demo Version) [00:03:22]
+03 - Don't Come Crying to Me (Demo Version) [00:03:43]
+04 - Nothing Left for Us (Demo Version) [00:03:54](   Читать дальше...   )Жанр: PopПродолжительность: 00:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E70B3E30302043D644BF249B1161A1AD4A75AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343032   (221137) от 04.12.2019
+
+Drezden - Эдельвейс (2019) [MP3|320 Kbps] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221137.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ЭДЕЛЬВЕЙС
+2. ДАВИДА ОЛЕНЬ
+3. О'ХЕНРИ
+4. АЛАДДИН(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734EA067E7536DCAD292E3885913FBE07DBC454B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084656   (220983) от 18.12.2016
+
+VA - Die Hit Rekorde Champions der 90er (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Jackson - Black Or White (3:19)
+02. Roxette - It Must Have Been Love (4:19)
+03. Take That - How Deep Is Your Love (3:42)
+04. Backstreet Boys - Quit Playing Games (With My Heart) (3:54)(   Читать дальше...   )Производство: Sony Music MediaЖанр: PopПродолжительность: 02:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A62ECA499FC10DBC00795884CF77038F77FA681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342993   (220970) от 04.12.2019
+
+Алиса Вокс - Упругий поп концерт (2019) Live [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220970.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выстрелы (Live)
+2. Мой (Live)
+3. Фейерверк (Live)
+4. Вечер (Live)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744CA0E9D1CBED8B03C7153404CB11EDD59BF125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084177   (220934) от 18.12.2016
+
+Dan Lacksman - Electric Dreams (2013) CD [MP3|320 Kbps] <Electronic, Synth-pop, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dan Lacksman - полное имя Daniel Pierre Lanckmans. Известен прежде всего как один из "Telex" - электро-поп группы конца 70-х - начала 80-х. После "Telex" продюсировал проект "Deep Forest". Альбом записан и смикширован в студии Synsound, Брюссель (С)2012. Вышел в свет в мае 2013.01. A=440  (4:41)
+02. Electric Dreams  (3:29)
+03. Mac Or PC  (3:18)
+04. I Want My Space  (4:19)(   Читать дальше...   )Жанр: Electronic, Synth-pop, ExperimentalПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD3D07FF01CD6056EE130124460EC80EA9F5F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342985   (220877) от 04.12.2019
+
+Mo-Do - Was Ist Das? (1995) [FLAC|Lossless|tracks + .cue] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eins, Zwei, Polizei (5:13)
+02. Hamlet (4:11)
+03. Gema Tanzen (4:14)
+04. Liebes Tango (4:12)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C3FA5C52B8E390CA097A86D15649BF455D24D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084086   (220856) от 18.12.2016
+
+Electronic System - Disco Machine (1977) Reissue, 2004, Musique Belgique Archive [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект от Dan Lacksman, продюсера и звуко-инженера известной группы "Telex".01. Flight to Tokio  (6:13)
+02. Cosmos Trip  (5:13)
+03. Fly to Venus  (5:37)
+04. Sailing to an Unknown Planet  (5:36)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCB1A43E24D26F7ACFD2EB6734C4932BA10103C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084281   (220836) от 18.12.2016
+
+VA - ZYX Italo Disco [New Generation 7'' Collection] (2016) [MP3|320 Kbps] <Synthpop, New Wave, Retro-Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220836.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. D. White Feat. Soulya Id - Devil's Plan 03:54
+02. Dario Silver - Back Tonight 03:37
+03. Savage - Save Me 04:12(   Читать дальше...   )Жанр: Synthpop, New Wave, Retro-SoulПродолжительность: 02:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4954054A562998534342B892B6DA67C66A844F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084176   (220802) от 18.12.2016
+
+Annie Lennox - Diva (1992) Reissue, 2007, BMG Japan [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why (4:54)
+ 02. Walking On Broken Glass (4:13)
+ 03. Precious (5:09)
+ 04. Legend In My Living Room (3:46)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6EFD7C568AF9C2FAB5A20C0E684C84FD348C9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084240   (220778) от 18.12.2016
 
 Sandra - Fading Shades (1995) [FLAC|Lossless|image + .cue] <Pop, Europop>
@@ -380,389 +755,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7539E61EFF812AAEA73561B62A942117D6FB274C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587057   (219905) от 11.12.2012
-
-Joe Dassin - Grand Collection (2001) [MP3|320 кб/с]<Chanson, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Salut
-02 L'ete indien
-03 Les Champs-Elysees
-04 Et si tu n'existais pas
-05 Il faut naitre a Monaco
-06 A Toi
-07 Ca va pas changer le Monde
-08 L'equipe a Jojo
-09 Salut les Amoreux
-10 L'amerique(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21F8D2FBFE3681E484CCF53E30E9368A55E45B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585855   (219608) от 24.10.2022
-
-VA - Ballermann Fruehlingsalarm (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kreisligahelden - Heute wird der Helm lackiert
-02. Marry - Wir feiern den DJ
-03. Bierkapitдn - Schere Stein paar Bier (Schnick Schnack Schluck)
-04. Nancy Franck - Korken knallen(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:04:34 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99129056BFFA2C83714E01960F874C743C3C173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585870   (219565) от 24.10.2022
-
-VA - Ballermann: Die Mallorca Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tobee - Mallorca Kinder
-02. Ina Colada - Anna-Marie
-03. Nancy Franck - Korken knallen
-04. Kreisligahelden - Heute wird der Helm lackiert(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:06:06 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256A79790F8A26F3B0175037EFB57DA5E8FB538F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585856   (219559) от 24.10.2022
-
-VA - Ballermann Schlager Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melanie Mueller Joerg Draeger - Fuer eine Nacht
-02. Celina Mars - Heut Nacht
-03. Nancy Franck - Korken knallen
-04. Marry - Wir feiern den DJ(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:10:13 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6F905FEAA2FD136699B1E7D444722768AD4243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585869   (219551) от 24.10.2022
-
-VA - Best of Ballermann 2022: Die Hits Deines Sommers (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almklausi - Wir machen mit bei der Rettung der Erde
-02. Tim Toupet feat. Lorenz Buffel - Pietro Lombaaadi
-03. Schafer Heinrich - Ich hatte heut schon Sex
-04. Biervampir - Biervampir(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:08:01 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42FF8679A7B7346CDE6D6DA4AE5246DF286DFA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585865   (219533) от 24.10.2022
-
-VA - Dorfdisko 2022 - Ballermann Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julian Sommer - Dicht im Flieger
-02. Micha von der Rampe - Partyanimal
-03. Mickie Krause - Eine Woche wach
-04. HBZ - Gasteliste +1(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 04:43:41 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF6E45B6CD0BF7224AE2D7F4B4889980956D109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585866   (219523) от 24.10.2022
-
-VA - Ballermann Party Mix - Alle Hits Der Playa von 1998-2022 "Summer Edition" (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Bier - Bierkapitan
-02. Tobee - Cordula Grun
-03. Micky Band Bruhl - Buenos Dias Matthias (Version 2021)
-04. Buddy - Ab in den Suden (Neuaufnahme)(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:10:32 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D60565BA627BAC8C4E75A82EDE1FE4F719F3BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585868   (219514) от 24.10.2022
-
-VA - Ballermann Megamix (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nancy Franck - Korken knallen
-02. Marc Koste - Open Air
-03. Die Eierheiligen - Feiereier
-04. Rick Arena Moses C. - Vorn an der Theke stehn(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 04:08:14 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33C92DC2E47016C9B2B1375CA21DE71FD24BFA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585854   (219484) от 24.10.2022
-
-VA - Ballermann Huttengaudi (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bierkapitan - Schere Stein paar Bier (Schnick Schnack Schluck)
-02. Peter Wackel - An der Theke
-03. Ikke Huftgold - Ich schwanke noch
-04. Lorenz Buffel & Anna-Maria Zimmermann - Ein Lied fur diese Welt(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:07:07 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D6A783BD48A4589F3DFC97DD70FC4AEBCC2145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585871   (219458) от 24.10.2022
-
-VA - Karneval am Ballermann 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Zipfelbuben - Olivia
-02. Tim Toupet - Pietro Lombaaadi
-03. Bierkapitan - Ein Pils steht im Wald (die Tannen zapfen)
-04. Almklausi - Wir machen mit bei der Rettung der Erde(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:06:02 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944102C8E1C016D9A4B918C932E540597AF6C287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585852   (219440) от 24.10.2022
-
-VA - Ballermann Party Hits Megamix 2022.2 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Zipfelbuben - Olivia
-02. Tim Toupet - Pietro Lombaaadi
-03. Tobee - Mallorca Kinder
-04. DJ Fett und Faul - Wir sind besoffen(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 03:08:23 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604417FC17EF04E119171C812718AE4B44AFD0DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585873   (219433) от 24.10.2022
-
-VA - Ballermann 6 Balneario Pras.: Die Party Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Zipfelbuben - Olivia
-02. Frenzy - Welcome To Mallorca
-03. Die Flippers - Wir sagen danke schon (feat. Olaf der Flipper) (Jerome Remix)
-04. Isa Glucklich - Guck mal diese Biene da - Summ Summ (Mallorca Mix)(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:16:58 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89C534A3D25453C85C81A7CF7F3091D2FCADAC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585858   (219364) от 24.10.2022
-
-VA - Ballermann Opening Party Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marry - Wir feiern den DJ
-02. Justin Pollnik - Bier spielt die Musik
-03. Nancy Franck - Korken knallen
-04. Bierkapitan - Schere Stein paar Bier (Schnick Schnack Schluck)(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:06:08 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E934E3812B6BA51217BE7A8C346BDFCDC2C3B33B
 ```
 
 https://mybot314.ru/tekegram_catalog/

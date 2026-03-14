@@ -1,3 +1,32 @@
+###  Публикация: 1842211   (1048587) от 15.12.2025
+
+Reyvi - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Plus Jamias Toi
+02 - Entre Toi Et Moi
+03 - Danse Danse
+04 - Cheri Cheri Lady(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB7C3905A0F8E062AAA90217EC375C4CB76A9C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841896   (1048441) от 13.12.2025
 
 VA - No name compilation part 24  Dance, Synthwave,  Disco (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
@@ -716,35 +745,6 @@ VA - German Top 100 Single Charts 22.01.2021 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6343AC13E61BB1E04506823B51F28BF4336BA782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442550   (1036455) от 25.01.2021
-
-VA - Big Retro Hits 90s (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто бывает так, что очень долго не слушаешь трек. Уже забыл про его существование, а потом, случайно, слышишь знакомый мотив, и тебя накрывает волной воспоминаний. Послушав эту музыку словно побывал на каком-то эмоциональном аттракционе, когда годы и события сменяли друг друга с невообразимой скоростью.001. The Blue Rubatos - Say Me
-002. Talk Talk - Such A Shame
-003. Sister Sledge - Thinking Of You
-004. Jaki Graham - Round And Around(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 08:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9EFD612CD12F7D6A15682AF7CCD79102E9BEDA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

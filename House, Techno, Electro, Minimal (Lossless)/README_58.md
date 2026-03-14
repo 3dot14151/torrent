@@ -1,3 +1,90 @@
+###  Публикация: 577942   (169467) от 11.12.2019
+
+Scooter - Music For A Big Night Out (2012) [FLAC|Lossless|image + .cue] <House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full Moon (1:44)
+02. I'm A Raver, Baby (3:14)
+03. Army of Hardcore (2:58)
+04. 4 AM (3:18)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9C2A5E46F9C977D7759528378155CC1A6D3193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672253   (169242) от 28.10.2023
+
+Yotam Avni - Summer of Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shame Shame Shame [00:01:52]
+02. Some Jews Are Better Than Others [00:06:51]
+03. Voices Feat. Karen Vogt [00:02:50]
+04. No Democracy For You [00:06:12](   Читать дальше...   )Жанр: TechnoПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45077E18268324F894943AB4285120B3F859FDAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202098   (169017) от 12.12.2019
+
+Knobs - Discography 14 Releases (2009-2016) Nachtstrom Schallplatten [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quantumplation (Grouch Mix) (09:02)
+ 02. Quantumplation (Knobs Mix) (08:23)
+ 03. Quantumplation (Krumelur Mix) (08:11)
+ 04. Quantumplation (Kliment Mix) (08:17)(   Читать дальше...   )Тип издания: WEBЖанр: Techno/Psytrance/Minimal/PsytechПродолжительность: 09:43:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896F3DBE8902AF467AB60BEA8F6D0DF4844F48BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672629   (168046) от 29.10.2023
 
 Kölsch - I Talk To Water (2023) [FLAC|Lossless|WEB-DL|tracks + .cue] <Tech House, Deep House, Progressive>
@@ -649,90 +736,6 @@ The Timewriter - This Is The Timewriter (2022) [FLAC|Lossless|WEB-DL|tracks] <ED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57B2FAD6F487AE79062D91E7271FFD08BCA0FE0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675880   (158987) от 12.11.2023
-
-Beate Zurwehme ft LDX#40 - Fck Sigrid Kárzer (2022) [FLAC|Lossless|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fck Sigrid Kárzer (8:31)Жанр: TechnoПродолжительность: 00:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F132CC4B3C619E29AFE139ACDE2ED1F6A9E1B799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600230   (158942) от 26.12.2022
-
-VA - BEST OF 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House. Dub Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Microlot -  Sensory Cortex  (6:29)
-02.  Dexter Curtin, Marcus Jahn -  Own Breeding (Alexander Bogdanov Remix)  (6:47)
-03.  Dott. Santafeo -  Basileo Regolo  (6:20)
-04.  Mick Whitehouse -  Dotti  (5:08)(   Читать дальше...   )Жанр: Deep House, Tech House. Dub Techno, MinimalПродолжительность: 03:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49318A8B39D8F40CDBF75FED3103DEEE3D246DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390616   (157284) от 18.12.2021
-
-Wolfgang Gartner - Weekend in America (2011) [FLAC|Lossless]<Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Em (feat. Eve)
-02. Space Junk
-03. Menage A Trois
-04. Circus Freaks (feat. Jim Jones & Cam'ron)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672B1B7538F546E23EB7A188F81729AF7D860122
 ```
 
 https://mybot314.ru/tekegram_catalog/

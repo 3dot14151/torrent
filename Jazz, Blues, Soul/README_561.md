@@ -1,3 +1,177 @@
+###  Публикация: 1798088   (66569) от 24.05.2025
+
+Rosemary Clooney & The Count Basie Orchestra - At Long Last (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just in Time [2:54]
+02. Like Someone in Love [3:53]
+03. Willow Weep for Me [4:23]
+04. Lullaby of Broadway [3:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABF192302C0427CD56587DDCC9BF70B8F660559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798228   (66568) от 24.05.2025
+
+Mikio Masuda - Smokin' Night (1988) JVC [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One for Lucia [5:31]
+02. Romantic Rain [5:59]
+03. Come Sunday [5:20]
+04. Mbalishu [5:28](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31901DA304F1AC4F30E433046590558390DD9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798087   (66549) от 24.05.2025
+
+Chris Connor - Warm Cool: The Atlantic Years (1956 - 1968) 2CD, 1999, 32 Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summertime [3:13]
+02. Lonely Town [4:21]
+03. I've Got a Crush on You [2:18]
+04. A Foggy Day [3:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F163B33D23CF30CF85D4D49A16D10C9F987A1489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799428   (66491) от 27.05.2025
+
+VA - Jazz House Instrumental Volume 4 (Jazzy Soulful Tracks And Instrumental Club Tunes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Acusmatic group - Secret Lovers (Suonho Motion Capture Mix) (7:08)
+02.  Duran Y Garcia - Night In Paris (5:51)
+03.  Jazz 2 More - Listen This (3:54)
+04.  Belladonna - My Mood (4:15)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 02:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C16678308FEA884D93B82CCB79878AD4AD035FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799431   (66490) от 27.05.2025
+
+VA - Jazz Kissa (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nina Simone - If I Should Lose You (3:59)
+02.  Ahmad Jamal - Perugia (3:56)
+03.  The Eddie Higgins Trio - Shelley's World (3:55)
+04.  Bud Powell Trio - Lullaby of Birdland (1:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD24FA4759EEBA35F37E5D4AA8A9322D7720984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799426   (66482) от 27.05.2025
+
+VA - GIMME THE FUNK_ 90's Funky Tracks (Funk Grooves & Funky House Tunes from the Nineties) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jestofunk - I'm Gonna Love You (Mc Turbo Sax) (4:22)
+02.  LTj - Gimme The Funk (4:21)
+03.  James Thompson - Don't Stop the Sax (7:14)
+04.  Black & Brown - Jurassik Funk (5:46)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 01:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B94FA30ADDFF46563CE15DF51E7F044E949CA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799424   (66479) от 27.05.2025
 
 VA - Best Sound of Chill & Lounge 2025 – Summer Edition (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz, Contemporary Jazz>
@@ -571,180 +745,6 @@ Loop of Boom - Human Artifacts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACF8D9508D86B7CC2E742E2B07F42BEC19668620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799757   (66393) от 29.05.2025
-
-John Elijah - Take and Give (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Heart Goes Boom (3:42)
-02.  The Giver (4:56)
-03.  Ghost Of My Past (3:25)
-04.  I'm Old (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E471612375E2F7ADF5418F1160854DE8821CBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799765   (66388) от 29.05.2025
-
-Sam Ghezzi - Bad Boy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Drop Anchor (2:08)
-02.  I'm Lost Without You (2:30)
-03.  Bad Boy (3:52)
-04.  The Seventh Son (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F413B676B89B805210E1D28D10DED7CC88CB98D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799758   (66381) от 29.05.2025
-
-John Stewart Simpson and Old Brown Dog - Chasing the Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ride On (5:23)
-02.  Enjoy the Ride (6:21)
-03.  Mekong Girl (4:40)
-04.  Not a Bad Night to Die (6:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E08AA243DABEEE492FDA8047A26428F0BA5F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799763   (66379) от 29.05.2025
-
-VA - The Midnighters Vol. III (Last Chapter) (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental Jazz Noise>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TO DIE ON ICE - ANAL - Tutto quello che ci resta (3:30)
-02. Spectre Horsemen, Pale With Dust - Hair Tourniquet (4:11)
-03. Satvrne - Esprit de Nuit (4:42)
-04. Brainwave Caravan - Please Let Me Rest In Your Arms Mother Earth (7:53)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Experimental Jazz NoiseПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FAFD45322D35381836616BB1B62A84CAAF923A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799760   (66375) от 29.05.2025
-
-Lowell Hopper - Opposite Direction (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Opposite Direction (4:33)
-02.  Midnight Breeze (4:37)
-03.  G. Vernon Burrell, Jr. - The Still Within (2:08)
-04.  Under the Moonlight (4:52)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13C33B746C72CDE48590347B09A1B709E5B6130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799937   (66374) от 30.05.2025
-
-Teskey - White Wolf (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Under the Sun (3:25)
-02.  Cast Aside Child (4:40)
-03.  Upside Down World (5:04)
-04.  Don't Take My Angel (5:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF60935F384E8955E7E32B8766A527031BB975E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1627541   (242981) от 19.04.2023
+
+Riverside - Riverside 20 The Shorts & The Longs (2021) 2xCD [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 - Vol.1 - The Shorts:
+01. Story of My Dream (05:48)
+ 02. In Two Minds (Remastered) (04:36)
+ 03. Loose Heart (Remastered) (04:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 03:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCF0BE7B9388E594639A94CB6DC469B9A777F36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615357   (242807) от 25.02.2023
+
+Toot Farangi - Stingchasers (2023) [MP3|320 Kbps] <Progressive Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychedelic Jellyfish (4:15)
+02. The Sting (8:14)
+03. Kelp! (3:31)
+04. Call Of Cetacea (6:39)(   Читать дальше...   )Жанр: Progressive Rock, AORПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34424472CCBCA9B9D9F9F115E6574512E6E415C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457382   (242803) от 26.03.2021
 
 Band of Spice - By the Corner of Tomorrow (2021) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
@@ -692,64 +750,6 @@ Howling Giant - 8 Albums (2015-2021) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E7E79D80B28AA1BBAB5332BBF814081EECDC223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565136   (239800) от 23.07.2022
-
-Trillion Ton Beryllium Ships - Consensus Trance (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Beg Your Pardon
-02 Mystical Consumer
-03 Consensus Trance
-04 Distalgia For Infinity(   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner DoomПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F16E19A091BCC2898E4C56A87843B140D88B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467334   (239782) от 03.05.2021
-
-Gods of Space - 4 Albums (2018-2021) [MP3|320 Kbps] <Sci-Fi Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Against All Odds [00:04:39]
-02. Suborbital Hymn [00:05:00]
-03. Exit Point [00:03:31]
-04. Falling Sky [00:05:04](   Читать дальше...   )Жанр: Sci-Fi Stoner RockПродолжительность: 4CD, 01:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6442FFD2DC48321B606E75A37759EC64A3FF0A8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

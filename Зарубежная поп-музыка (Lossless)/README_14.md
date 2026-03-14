@@ -1,3 +1,125 @@
+###  Публикация: 288535   (921587) от 29.01.2011
+
+Lara Fabian - Best Of (2CD, Edition Limitee) (2010) [FLAC|Lossless]<Pop, French pop, Adult contemporary>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921587.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. On S'Aimerai Tout Bas (Inйdit)  (4:02)
+02. Je T'Aime  (4:23)
+03. Tout  (4:17)
+04. Si Tu M'Aimes (3:30)
+05. Humana (5:39)
+06. La Diffйrence  (4:15)
+07. Pas Sans Toi  (4:45)
+08. Tu T'En Vas (3:47)
+09. Je Suis Malade  (4:24)(   Читать дальше...)Жанр: Pop, French pop, Adult contemporaryПродолжительность: 02:08:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988415   (920553) от 20.02.2016
+
+Sade - The Best Of Sade (1994) Compilation [FLAC|Lossless|image + .cue] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Love Is King (3:41)
+02. Hang On To Your Love (4:33)
+03. Smooth Operator (4:21)
+04. Jezebel (5:31)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7FA12F604DB8794CC16A7FB47FB39508830C51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863597   (920051) от 29.01.2015
+
+Bjork - Vulnicura (2015) [FLAC|Web-Dl|Lossless]<Pop, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stonemilker
+ 02. Lionsong
+ 03. History of Touches
+ 04. Black Lake(   Читать дальше...   )Жанр: Pop, ExperimentalПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD69BDC72D64BEC42CBD2E43AA038ED7A17E8824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631940   (919386) от 20.03.2013
+
+VA - MTV Top the Hits 2013 3CD (2013) [FLAC|Lossless]<Pop, Dance, Rock, R&B, Trance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычно на трекере размешаются в основном МР3ки. Сборник хитов в приличном качестве довольно большая редкость. Тем более, что все, представленные в этом сборнике треки действительно хиты!CD1Жанр: Pop, Dance, Rock, R&B, Trance, OtherПродолжительность: 01:08:49
+
+1. Pitbull Ft. Christina Aguilera - Feel This Moment (3:50)
+2. Rihanna Ft. David Guetta - Right Now (3:02)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367077   (918969) от 14.03.2020
 
 VA - 90s Guitar Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -627,119 +749,6 @@ VA - FETENFETZER Oldies Party (2002) [FLAC|Lossless|image + .cue] <Rock & Roll, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65A6F6C35E34B85599B7C196314960F197DD06EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368687   (909060) от 20.03.2020
-
-VA - Party Megamix Vol. 2 (1994) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Pop, Cover, MedleyПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8911E85A523940A23913F31C2FC4A01EA4E409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098762   (908940) от 30.01.2017
-
-Marquess - Frenetica (2007) [FLAC|Lossless|tracks] <Latin Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manana
-02. Vayamos Companeros
-03. En Espana
-04. You and not Tokio (feat. S.A.M.)(   Читать дальше...   )Жанр: Latin PopПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904BEDFEB74C29F5A6BA73B985790E838AFECB84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098284   (908876) от 30.01.2017
-
-Unspoken - Follow Through (2016) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Christian, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Higher  (03:28) 
-02|  The Cure  (03:29) 
-03|  Open the Clouds  (03:10) 
-04|  Miracle  (03:12) (   Читать дальше...   )Жанр: Christian, Pop, RockПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F37CE9119F0DC7C595007D164570515795D7DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098845   (908872) от 30.01.2017
-
-Tomita Lab - Shipahead (2010) [FLAC|Lossless|tracks + .cue] <JPop, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Taint (3:01)
-02. Pedro, Shouboushi to Sensuifu (feat. Motoharu Sano) (4:52)
-03. Shipahead (0:45)
-04. Yasoukyoku (feat. Hitomitoi) (5:46)(   Читать дальше...   )Жанр: JPop, JazzПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4819E755A27C0F182C0211C74FD7F856DB25E1DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

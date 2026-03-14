@@ -1,3 +1,177 @@
+###  Публикация: 1761329   (36661) от 20.11.2024
+
+Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.3 (1953, 1954) 1995, Blue Moon [WavPack|Lossless|image + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Nearness of You [3:41]
+02. Pot Luck [3:55]
+03. Nobody Else But Me [3:34]
+04. With the Wind and the Rain in Your Hair [3:48](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D3FF2FADB2B8E6F3C92EAB776074A517D14339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761580   (36574) от 21.11.2024
+
+Maxwell - Embrya (1988) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Neo Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gestation: Mythos (7:32)
+02. Everwanting: To Want You to Want (6:33)
+03. I'm You: You Are Me and We Are You (Pt Me & You) (5:32)
+04. Luxury: Cococure (5:41)(   Читать дальше...   )Жанр: Funk, Soul, Neo SoulПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1588A2F7061DD170EC0FE485D53EF4A95E5B3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761453   (36556) от 21.11.2024
+
+Frank Sinatra - A Voice On Air (1935 – 1955) 4CD, 2015, Legacy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haunted Heart [2:53]
+02. Wrap Your Troubles In Dreams (Alternate) [2:46]
+03. I’m Looking Over A Four Leaf Clover [2:20]
+04. Nature Boy (Alternate Orchestral Version) [2:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 05:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8ADDD47F88CFED213A9FAA6E3AD255344FF7FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761914   (36486) от 22.11.2024
+
+Michael Kiwanuka - Small Changes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Parade
+02. Small Changes
+03. One And Only
+04. Rebel Soul(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D438E646ECAAAFEDE715E741B1F62E56FA30BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762393   (36146) от 25.11.2024
+
+The Pointer Sisters / The New Cast Recording - Highlights From "Ain't Misbehavin’! The Fats Waller Broadway Musical (1996) [FLAC|Lossless|tracks+.cue] <Jazz, Stage & Screen>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening (4:22)
+02. Ain't Nobody's Bizness If I Do (1:42)
+03. Honeysuckle Rose (4:15)
+04. Squeeze Me (3:28)(   Читать дальше...   )Жанр: Jazz, Stage & ScreenПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C93070B3256C4332156ED67A32DD674CC3531C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762606   (36045) от 26.11.2024
+
+V.A. - Bossa Nova International Pop Hits (Bossanova Jazz Covers of Popular Songs) (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik - Missing
+02. Neja - All That She Wants
+03. Ely Bruna - Take On Me
+04. Banda Brasileira - As It Was (Bossa Version)(   Читать дальше...   )Жанр: Pop Jazz, Bossa NovaПродолжительность: 01:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402A9669A61453DA592A924B05652F27B127B1ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762736   (35946) от 27.11.2024
 
 Drew Neirin - A Star Shaped Pegs Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ VA - Gershwin – The Gershwin Songbook - 'S Marvelous (1994) CD, Compilation [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE9DEBCB56CA4797F522A6249E0514B17986E07C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763821   (35313) от 03.12.2024
-
-VA - Dance Electro Swing For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugarpie And The Candymen - Drive My Car (2:18)
-02. Cristian Stolfi, Ariano Kina - Escucha la Musica (Original Mix) (6:00)
-03. Christian Lisi - Maramao Perchè Sei Morto (3:51)
-04. Emsy Prank - Backside (Original Mix) (3:12)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E0F243A7FC1F42E77AC2E291043722515B1217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763830   (35311) от 03.12.2024
-
-VA - Whiskey Sour: Bar Blues, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JJ Soul Band - That Kinda Man (3:47)
-02. Laura Vida - I Sing My Own Kind of Blues (3:38)
-03. Suzanne's Band - Back to Brown (2:31)
-04. Chicken House Purple - That I Was Back Then (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F278336FC44663CF307936DAF89B048213CA3C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763826   (35309) от 03.12.2024
-
-VA - Smooth Jazz Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick Braun - Batucada (The Beat) (4:03)
-02. Norman Brown - Champagne Life (5:22)
-03. Lee Ritenour - Put The Top Down (5:00)
-04. David Benoit - Botswana Bossa Nova (3:55)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CADC47B8CBB94A9B3988EC4252C42FC562D5445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763951   (35214) от 04.12.2024
-
-Phineas Newborn, Jr. - Harlem Blues (1969) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harlem Blues [4:12]
-02. Sweet and Lovely [7:38]
-03. Little Girl Blue [6:15]
-04. Ray's Idea [5:21](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9E3F18C40CB12F659424545EF1550B82FBBEB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763952   (35212) от 04.12.2024
-
-Teddy Wilson And His Trio - Mr. Wilson and Mr. Gershwin (1959) 1992, Sony [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liza (All the Clouds'll Roll Away) [3:02]
-02. Nice Work If You Can Get It [3:28]
-03. Oh, Lady Be Good [2:39]
-04. Somebody Loves Me [3:17](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7390182CEB8F1FE77FE52F9A318CD7DB24E06492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764055   (35118) от 05.12.2024
-
-Downhome Kin - Whiskey & Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scratched Record Love (3:55)
-02. Midnight Train (3:58)
-03. Piano Man's Lament (2:37)
-04. Love Under the Moonlight (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10EFD40A2B608103DE50A8AA72412560976451A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,22 @@
-###  Публикация: 476093   (98302) от 01.04.2012
+###  Публикация: 1822188   (100868) от 05.10.2025
 
-Cause For Effect - Progressive And Minimalist Recording (2010) [MP3|320 кб/с]<Jazzgrind / grindcore / fusion / jazz / progressive>
+Moon+ Reader Pro v10.2 (b1002000) Mod by Lucky Las [Ru/Multi]
 
->>Архив торрентов
->>Архив Музыки
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98302.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Forester 031 (0:31)
- 02 Servitor(0:48)
- 03 Classic galaxy(0:42)
- 04 Not ok radioactive situation(0:49)
- 05 Slug situation(0:47)
- 06 Hypnoconsultism(0:57)
- 07 Headless 200(0:51)
- 08 Diplomat 6(0:53)
- 09 Apparatus(0:46)
- 10 Multism(0:50)(   Читать дальше...   )2010Жанр: Jazzgrind / grindcore / fusion / jazz / progressiveПродолжительность: 00:19:46
+Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 03.10.2025Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2C3B5BA047D13D26DB98FC8041FB71DDC1288AA
+magnet:?xt=urn:btih:CA31A7C96C053CA446C0BB97B51F8D01E7690042
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,34 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474754   (98300) от 01.04.2012
+###  Публикация: 1822191   (100867) от 05.10.2025
 
-VA - HouseVip (22.03.12) [MP3|320 кб/с]<Electro House>
+Moon+ Reader Pro v10.2 (b1002001) Mod by Balatan [Ru/Multi]
 
->>Архив торрентов
->>Архив Музыки
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98300.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Alya - Damelo (DJ Geny Tur & DJ МакsимOFF Remix) (3:52)
- 2. Bastille - One Night Love Affair (Aylen Remix) (4:28)
- 3. Benny Benassi feat. Sandy - Illusion (Ramirez Remix) (4:31)
- 4. Cascada - Summer Of Love (Michael Mind Project Remix) (4:52)
- 5. Cher Lloyd - Want U Back (Cahill Extended Mix) (5:52)
- 6. G&G feat. Jonny Rose & Chris Reeder - All Falls Down (Extended Mix) (4:16)
- 7. Klaas - Engelstrommeln (Radio Edit) (3:03)
- 8. Michael Telo - Ai Se Eu Te Pego (DJ Geny Tur Remix) (4:34)
- 9. Spring Emotions & Seaside Clubbers - Egoist (Mondo Remix) (7:05)
- 10. Wendel Kos & Big Fish - Ready To Rock (Original Mix) (6:16)22.03.12Жанр: Electro HouseПродолжительность: 00:48:54
+Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 03.10.2025Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA64F19B724799C08378DC63E47A3D62D07470F5
+magnet:?xt=urn:btih:600FD16BA4983279E744A84837E08BA8D26404A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -68,34 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474757   (98297) от 01.04.2012
+###  Публикация: 1822222   (100866) от 05.10.2025
 
-VA - House Vip (23.03.2012) [MP3|320 кб/с]<Electro House>
+Tomodachi no Imouto ga Ore ni dake Uzai / My Friend's Little Sister Has It In for Me! / Младшая сестра друга меня так раздражает! [2025, TV, 1 из ?] WEBRip 720p raw
 
->>Архив торрентов
->>Архив Музыки
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98297.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Ace Of Base - All For You (Critz & Lucas T. Remix) (5:26)
- 2. Ann Winsborn - Je N'ai Pas Compris (DJ Arctic ' Pump' Remix) (5:01)
- 3. Basshunter - Now You're Gone (Freaky DJs & Dima Project Remix) (4:48)
- 4. Bobina & Betsie Larkin - You Be Long To Me (Menny Strong Remix) (6:51)
- 5. Bodybangers feat. Gerald G! - Set The Night On Fire (Original Mix) (5:06)
- 6. Bodyrox feat. Chipmunk & Luciana - Bow Wow Wow (Bluestone vs. Loverush Radio Edit) (3:24)
- 7. Chris Brown with Rihanna - Turn Up The Music (Miami Life Remix) (5:15)
- 8. Compact Disco - Sound Of Of Hearts (Stereo Palma Remix) (7:10)
- 9. DJ Cargo vs. Locco Freakz - Reach Up (Freaky DJ's Mash Up 2k12) (3:48)
- 10. Dubsective - Shara (Original Mix) (5:00)23.03.2012Жанр: Electro HouseПродолжительность: 00:51:53
+Если девушка дразнит тебя, значит, ты ей нравишься!
+К сожалению, Акитеру по собственному опыту известно, что это не так. Потому что все девушки, с которыми он общается, относятся к нему с презрением, и ни одна из них не согласилась пойти с ним на свидание! К счастью, он больше озабочен тем, чтобы обеспечить себе и своим друзьям-разработчикам игр место в компании (   Читать дальше...   )Жанр: комедия, романтика.Режиссер: Кога КадзуомиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:228029AA41FAC340D27E99AC17CD8DDD493D68D9
+magnet:?xt=urn:btih:51CE0BF26B535EC29908EBE2A3F5C10A2AD2C82E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,32 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474499   (98296) от 01.04.2012
+###  Публикация: 1822210   (100865) от 05.10.2025
 
-Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012) [MP3|320 кб/с]<Electro House , House>
+Аста Нильсен. В критический момент / Im grossen Augenblick (1911) WEBRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Музыки
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98296.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012)
-Год: 27.03.2012
-Жанр: Electro House , House
-Продолжительность: 01:02:32Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-1. Rene Rodrigezz & DJ Antoine feat. MC Yankoo - Shake 3x (Original Mix)
-2. Michael Woods - Last Day On Earth (DJ Solovey Remix)(   Читать дальше...   )
+Первая часть фильма, к сожалению, утеряна. Но я все равно решил вам его представить, уж больно здесь Аста Нильсен хорошенькая, стройненькая такая, шейка тоненькая...кхм. Итак, сюжет. Молоденькая горничная Анни в богатом поместье была соблазнена племянником хозяйки поместья. Как это водится, забеременела. О неравном браке не могло быть даже речи. И ее просто выгнали. (   Читать дальше...   )Производство: Германия / Deutsche Bioscop GmbHЖанр: драма, немое киноРежиссер: Урбан ГадАктеры: Аста Нильсен, Гуго Флинк, Эмиль Альбес, Макс Обал, Евгения ВернерПеревод: немой с интертитрамиСубтитры: немецкие (интертитры), русскиеПродолжительность: 00:36:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E6FDC235DD9B1351D3AAC1CACC1BC9130078662
+magnet:?xt=urn:btih:546126167AA16E6943ECA5642BFFEE90CEC8562C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,34 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476223   (98295) от 01.04.2012
+###  Публикация: 1822223   (100864) от 05.10.2025
 
-VA - Klubnye novinki Vol.60 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+Чужой: Земля / Alien: Earth (2025) WEB-DL [H.264/720p] (сезон 1, серии 1-8 из 8) RHS, HATE Studio, TVShows, Jaskier, LostFilm, HDrezka, Ю.Сербин
 
->>Архив торрентов
->>Архив Музыки
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98295.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex Sayz feat. Christina Skaar - Falling
-02. Alex Valenso - Sky (Club Mix)
-03. Andeeno Damassy vs. Natalia Kills - Mirrors  (Club Mix)
-04. Andrey Dubovitskiy Vs Dj Bobo - Love Is All Around (k Club Mix)
-05. Bang Bang - Music Is My Girlfriend
-06. Christopher S feat. Lisa - There For You
-07. Cristian Marchi & Syke'n'Sugarstarr feat. Lisa Millett - U Got Me Rockin' (Cristian Marchi & Paolo Sandrini Prog Mix)
-08. Digital Mass - God Is A DJ (Original Mix)
-09. Dirty South feat. Andreas - Glorious (Daddy's Groove Mix)
-10. DJ-Relay & Kathleen Moore - Spiel Mit Mir(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:39:58
+2120 год. Земля и колонизированная часть Солнечной системы поделены между корпорациями. Исследовательский космический корабль Weyland-Yutani с образцами агрессивной внеземной фауны на борту терпит крушение в городе, принадлежащем корпорации Prodigy, которой управляет Бой Кавальер. Он посылает на место аварии отряд гибридов — некогда смертельно больных детей, чьи (   Читать дальше...   )Производство: США / 20th Television, FX Productions, 26 Keys ProductionsЖанр: ужасы, фантастикаРежиссер: Дана Гонсалес, Угла Хёйксдоуттир, Ноа ХоулиАктеры: Сидни Чендлер, Алекс Лоутер, Сэмюэл Бленкин, Бабу Сизей, Адарш Гурав, Лили Ньюмарк, Джонатан Аджайи, Тимоти Олифант, Кит Янг, Эсси ДэвисПеревод: Дублированный (RHS, HATE Studio), Многоголосый (TVShows, Jaskier, LostFilm, HDrezka), Авторский (Ю.Сербин)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, 2x full), английские (full, SDH)Продолжительность: ~00:55:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C664652BB3BFD26E81FA809A50262DC6A9733DF0
+magnet:?xt=urn:btih:0E6AF19507CB69F0C069CA7B2A3EF5113A1F01E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,34 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476549   (98294) от 01.04.2012
+###  Публикация: 1822228   (100863) от 05.10.2025
 
-VA - Trance Ministry 2CD (2012) [MP3|320 кб/с]<Trance, Hard Trance>
+Fumetsu no Anata e Season 3 | To Your Eternity Season 3 | Для тебя, Бессмертный [ТВ-3] [2025, TV, 1 из 12] WEBRip 720p raw
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98294.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Green Court - Inside Your Gates (Cosmic Gate remix) (7:50)
-2. Patrice Milan - Eternal Spirit (Wavetraxx remix) (7:06)
-3. Jake Nicholls - Decade (DJ Space Raven & Shokk remix) (7:19)
-4. S.Y.S. - Weiber (7:27)
-5. Antheya - High (original vocal mix) (7:32)
-6. Benya - Rhea (DJ Choose remix) (7:25)
-7. Crush - First Union (Riot 303, observer mix) (6:49)
-8. Junk Project - Beats Brings Silence (4:57)
-9. Silent Harmony - Save the Whales (Vincent De Moor mix) (6:38)
-10. Tectonic Shift - Silver Dusk (feat Andre Visior) (9:36)2012Жанр: Trance, Hard TranceПродолжительность: 02:42:13
+После сражений в Ренриле Фуши, подобно дереву, пускает корни по всему миру, сражаясь за уничтожение Ноккеров. Сотни лет спустя, выполнив свою миссию, он пробуждается в современной эпохе. Он наслаждается мирной жизнью, свободной от вражеских угроз, в окружении дорогих друзей, как старых, так и новых. Но зловещие тени снова нависают над ним. Враги, проникающие в глубины (   Читать дальше...   )Производство: Studio Massket, DriveЖанр: приключения, фэнтезиРежиссер: Sayama KiyokoПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4F109C7FB79AA18299CD622EE1D83B9B0BCC612
+magnet:?xt=urn:btih:C1D208562B981D66C433644CA765FC908CFD4464
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,32 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476627   (98292) от 01.04.2012
+###  Публикация: 1822230   (100862) от 05.10.2025
 
-VA - Trance Maniacs Party: Progressive Session #35 (2012) [MP3|320 кб/с]<Trance>
+Mugen Gacha 9999! | Backstabbed in a Backwater Dungeon! | Бeскoнeчнaя гaчa! [2025, TV, 01 из 12] WEBRip 1080p Raw+Rus
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98292.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Trance Maniacs Party: Progressive Session #35 (2012)Год: 2012
-Жанр: Trance
-Продолжительность: 03:46:29
-Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Akira Kayosa & Hugh Tolland feat. Stine Grove - Always With You (Lee Canning Remix)
-02. 100MG - Amorphism(   Читать дальше...   )
+Когда Лайт изгоняют из Конкорда племен, его бывшие товарищи мгновенно обращаются против него. Лайт с трудом спасается от этого дьявольского предательства... только для того, чтобы оказаться в самой глубокой части Бездны, самом опасном подземелье в королевстве! Чтобы не быть съеденным плотоядными монстрами, он использует свое единственное магическое умение — Неограниченную (   Читать дальше...   )Производство: Япония, студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Сакураби КацусиЯзык озвучки: Русский закадровый (Dream Cast), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб)Продолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EA8F210B8A62DBEE3CD957A731954FE4BDCEAFF
+magnet:?xt=urn:btih:5F90C2E1D6FEE7B0E0719A1EE1B10E725D6C7CA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,69 +181,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476648   (98289) от 01.04.2012
+###  Публикация: 1822165   (100861) от 05.10.2025
 
-DJ Kocmoc - Red Station vol.3 (31.03.2012) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dubsective - Sanskrit (Original Mix)
-02. Friction vs Camo & Krooked feat. Dynamite MC - Stand Up (Sigma Remix)
-03. Hallucinator - Suicide (Cooh Remix)
-04. Logistics - Beatbox Master (Original Mix)
-05. Noisia - Machine Gun (Original Mix)
-06. Noisia - Thursday (Black Sun Empire Remix)
-07. Noisia - Soul Purge (Current Value Remix)
-08. Hallucinator - Motherfucker (Original Mix)
-09. Emalkay - Flesh and Bone (Delta Heavy Remix)
-10. Oscillatorz - The Miles (Original Mix)(   Читать дальше...   )31.03.2012Жанр: Drum & BassПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D176E320C92D2709582BEDF48E97069BBAAA2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476089   (98288) от 01.04.2012
-
-The Aether Tree - Esperanza (2011) [MP3|320 кб/с]<Avant-Garde Metal / World Jazz / Post-Metal>
+Bad Cop Bad Cop - Lighten Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98288.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Alma Hueca 09:47
- 2. Cracks in the Mirror 05:46
- 3. Pyrexia 07:10
- 4. Dewdrops at Dusk 10:03
- 5. The Art and the Equation 08:33
- 6. Mia Rosa 05:58
- 7. Menos Grande 06:01
- 8. Esperanza 08:22
- 9. Scratching at Clouds 06:40
- 10. Amor y Decadencia 10:472011Жанр: Avant-Garde Metal / World Jazz / Post-MetalПродолжительность: 01:19:07
+01. All Together Now [00:03:31]
+02. Strugglinh [00:03:13]
+03. Straight Out of Detox [00:02:50]
+04. Note to Self [00:02:58](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:36:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83447A05CCF0A0A685D9319087018F72FA406965
+magnet:?xt=urn:btih:768E3AC806684AF34A7DE71FB8B4C80E13308FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,32 +210,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476610   (98285) от 01.04.2012
+###  Публикация: 1822224   (100860) от 05.10.2025
 
-VA - 20 Progressive House Tunes Vol.2 (2012) [MP3|320 кб/с]<House, Trance>
+BikeComputer Pro v9.2.3 GP Mod by Balatan [Ru/Multi]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98285.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - 20 Progressive House Tunes Vol.2 (2012)
-Год: 2012
-Жанр: House, Trance
-Продолжительность: 02:43:34Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. 16 Bit Lolitas - You Are An Astronaut (Original Mix) (07:29)
-02. Matisse & Sadko - Amulet (Original Mix) (07:07)(   Читать дальше...   )
+BikeComputer Pro - возможно, одно из лучших приложений для велоспорта. Версия Pro содержит все необходимые функции:Тип издания: ModРелиз состоялся: 05.10.2025Разработчик: Robert OehlerПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:161AC159D9C65E8A64CDD02EF5B79BBE588D5774
+magnet:?xt=urn:btih:EDD899F7DFDD8DA6A3E1F4B71D64A3F0F4761426
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,34 +236,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475500   (98284) от 31.03.2012
+###  Публикация: 1822134   (100859) от 05.10.2025
 
-Аloe Blacc - Good Things (2010) [MP3|320 кб/с]<Soul>
+Coheed And Cambria - The Father of Make Believe (2025) New Entities Edition, Virgin Music Group[FLAC|Lossless|WEB-DL|tracks] <Alternative, Prog Rock>
 
->>Jazz, Blues, Soul
->>Jazz
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98284.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Need A Dollar
-02. Green Lights
-03. Hey Brother
-04. Miss Fortune
-05. Life So Hard
-06. Take Me Back
-07. Femme Fatale
-08. Loving You Is Killing Me
-09. Good Things
-10. You Make Me Smile(   Читать дальше...   )Жанр: SoulПродолжительность: 00:47:18
+01. Yesterday’s Lost [00:03:24]
+02. Goodbye, Sunshine [00:04:16]
+03. Searching for Tomorrow [00:03:33]
+04. The Father of Make Believe [00:04:39](   Читать дальше...   )Жанр: Alternative, Prog RockПродолжительность: 01:15:37
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D6533136995172D27DF8223722EB88195F7E82F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,34 +265,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476245   (98280) от 31.03.2012
+###  Публикация: 1510117   (100858) от 05.10.2025
 
-VA - Erotic Feelings: 30 Sexy Lounge Tracks For Passionated Moments (2012) [MP3|320 kbps]<Chillout | Lounge | Downtempo>
+Волчица / Матушка Гусыня / Gasmamman (2015) HDRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98280.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. That's the Way Love Goes - Yuliet Topaz
-02. Spacechild - Aries In Mars
-03. Wann ist es Liebe - Jazzamor feat. Publique
-04. The Mood Is Good - Vst
-05. 2 Becomes 3 (4.57m Edit) - Soulounge feat. Cultured Pearls
-06. A Joint After The Sex - Marcus Zelonka
-07. Femme fatale - Deeper Sublime & Eriq Johnson
-08. Mon coeur - Bloomfield
-09. Love Hungry - Weathertunes
-10. Bedtime - Naoki Kenji(   Читать дальше...   )2012Жанр: Chillout | Lounge | DowntempoПродолжительность: 02:30:33
+"Волчица" - это захватывающая шведская криминальная драма-триллер, завоевавший любовь зрителя в Швеции и за ее пределами.
+Соня живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится вступить в совершенно неизвестный ей преступный мир и "брататься" с гангстерами (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43673DE6E75892DEFD9731D0E52851FF65489B73
+magnet:?xt=urn:btih:D76DFD8516D732CEA97B38FF8B4C80A696AB4DF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,25 +292,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476349   (98279) от 31.03.2012
+###  Публикация: 1822233   (100857) от 05.10.2025
 
-Прожекторперисхилтон. Сезон 4. Выпуск 24(124) (30.03.2012) DVBRip
+Придворный маг решил стать сильнейшим | Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Sarete Saikyou o Mezasu [2025, TV, 1 из 12] WEBRip 1080p HEVC 10-bit Raw+Rus
 
->>Архив торрентов
->>Архив Юмора
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98279.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:29:45
+Придворный маг Алек Игрет на протяжении нескольких лет помогал принцу Регулу Галдане в зачистке подземелий. Принц оказался слишком слаб, поэтому Алеку пришлось посвятить себя только магии поддержки. Однако Регул внезапно решил изгнать молодого мага из своего отряда. На помощь Алеку приходит Йорха Айзенц, его боевая подруга по Институту магии, которая состоит в легендарном (   Читать дальше...   )Производство: Япония / Студия GekkouЖанр: Приключения, фэнтезиРежиссер: Такахаси КэнЯзык озвучки: Русский (Deep (Amber)), (Deep (AniStar)); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:009553A4085F1F856F5172BE0ADB0DB617E5718B
+magnet:?xt=urn:btih:7AB20A945360EF29990D42BF04D886991D45C4E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,34 +318,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476173   (98278) от 31.03.2012
+###  Публикация: 1822237   (100856) от 05.10.2025
 
-Erik Jackson - Rainy Days (2012) [MP3|320 кб/с]<Acid Jazz>
+Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Sarete Saikyou o Mezasu / Придворный маг, пользовавшийся магией поддержки, решил стать сильнейшим после изгнания [2025, TV ...
 
->>Архив торрентов
->>Архив Музыки
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98278.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Put On A Record (Intro)
-02 It's Time
-03 Now And Then
-04 Tonights Forecast (Interlude)
-05 Rainy Days
-06 Starlight
-07 Through The Storm
-08 Be Mine
-09 Genuinely
-10 Staying Home Tonight (with you)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 00:39:19
+«Этой группе не нужен некомпетентный маг, который умеет только поддерживать. Ты уволен, Алек Игрет».
+Внезапно Алек, придворный маг, который присоединился к группе наследного принца, чтобы помочь ему завоевать подземелья, был изгнан из группы. И не только из группы, но и из королевского дворца из-за преследований со стороны наследного принца. Друг из «магической академии» (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Такахаси КэнЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:584D8959A4CC21EEED9E429E1CE95246A3138CFB
+magnet:?xt=urn:btih:B985753797995565CC3FFE442E8AB902F15D9A3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,34 +345,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476236   (98276) от 31.03.2012
+###  Публикация: 1822231   (100855) от 05.10.2025
 
-Ladyhawke - Anxiety (2012) [MP3|320 кб/с]<Indie Rock, New Wave, Electronic, Synth, Female Vocal>
+Smart AudioBook Player Pro v11.5.3 Mod by Balatan [Ru/Multi]
 
->>Архив торрентов
->>Архив Музыки
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98276.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Girl Like Me
-02. Sunday Drive
-03. Black, White & Blue
-04. Vaccine
-05. Blue Eyes
-06. Vanity
-07. The Quick & the Dead
-08. Anxiety
-09. Cellophane
-10. Gone Gone GoneЖанр: Indie Rock, New Wave, Electronic, Synth, Female VocalПродолжительность: 00:36:09
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 05.10.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8A36A09BA1CA8529C37A67295CB980FE360ABDF
+magnet:?xt=urn:btih:64B38EA269FB20DB380A34B1B55361C97B8F48ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,26 +371,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476403   (98275) от 31.03.2012
+###  Публикация: 1822123   (100854) от 05.10.2025
 
-Георгий Горностаев | Насекомые СССР [1979] [DJVU]
+OTT Navigator IPTV v1.7.3.3 Mod by TryRoom [Ru/Multi]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98275.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100854.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красота и обилие форм делают насекомых интереснейшим объектом наблюдений и коллекционирования, придавая познавательный и эстетический смысл любительским занятиям энтомологией.
- В справочнике-определителе автор в популярной форме рассказывает о представителях мира насекомых Советского Союза, приводит цветные и черно-белые иллюстрации, которые помогут определить тот или иной вид.1979Жанр: Образование, развитиеФормат: DJVU
+Просмотр IPTV вашего провайдера на любом устройстве (телефон, планшет, ТВ, ТВ-приставка). Поддерживает как Android TV / TV-приставок (DPAD-пульт), так и телефоны и планшеты.
+"Приложение не предоставляет никаких источников самостоятельно. Оно работает с плейлистом вашего провайдера или приложенным вами источником".Тип издания: Mod / PremiumРелиз состоялся: 04.10.2025Разработчик: Scillarium StudioПоддерживаемая ОС: Android 6.0+, Android TVЯзык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48530D97BE22D17F5AC28163289F6EA43845E14A
+magnet:?xt=urn:btih:E32926F23A417B37A6A4CB60E661866255AEB695
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,34 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476265   (98273) от 31.03.2012
+###  Публикация: 1822225   (100853) от 05.10.2025
 
-VA - Дискотека "Наступает Ночь" (2012) [MP3|256 kbps]<Disco | Dance>
+Dirkschneider & The Old Gang - Babylon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98273.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100853.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Мираж vs DJ Грув - Наступает ночь 2012
-002 Savage - Dont Cry Tonight (Alexandra Damiani Radio Mix)
-003 Дмитрий Маликов - До завтра (Andry Makarov Remix)
-004 Mirami - Venus (Extended Version)
-005 Иванушки International - Снегири (Aleksey Kraft Remix 2012)
-006 Emanuele Carocci Feat. Laura - Maria Magdalena (Pop Mix)
-007 Корни и Фабрика - Не обижай жених
-008 Frisco Disco feat. Ski - One Way Ticket (Radio Version)
-009 Отпетые Мошенники - Девушки бывают разные (DJ Bee Remix)
-010 Eagles - Hotel California (Ivan Flash Remix)(   Читать дальше...   )2012Жанр: Disco | DanceПродолжительность: 06:21:31
+01. It Takes Two To Tango [00:04:40]
+02. Babylon [00:06:09]
+03. Hellbreaker [00:05:06]
+04. Time To Listen [00:03:42](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:01:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E8F4C040F44335750B17AC439282E9AA9D111B0
+magnet:?xt=urn:btih:1C045E1F8989A3B543DF4CF2F95469BE11874DD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,25 +427,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476414   (98271) от 31.03.2012
+###  Публикация: 1822244   (100852) от 05.10.2025
 
-Open Xange 2012.04 RC1 [x86_64] (1xDVD)
+Shinjite Ita Nakama-tachi ni Dungeon Okuchi de Korosarekaketa ga Gift "Mugen Gacha" / Backstabbed in a Backwater Dungeon / Бесконечная гача [2025, TV, 1 из 12] WEBRip 720p raw
 
->>Архив торрентов
->>Архив *Nix
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98271.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100852.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Open Xange - легкий в использовании дистрибутив Linux, основанный на Fedora и использующий рабочий стол KDE по умолчанию. Fedora - дистрибутив Linux, который спонсируется фирмой Red Hat и поддерживается сообществом. Проект служит для тестирования новых технологий, которые в дальнейшем включаются в продукты Red Hat и других производителей. Компания Red Hat не предоставляет поддержку пользователям Fedora, поддержка осуществляется открытым сообществом.
+Когда Лайт изгоняют из Конкорда племен, его бывшие товарищи мгновенно обращаются против него. Лайт с трудом спасается от этого дьявольского предательства... только для того, чтобы оказаться в самой глубокой части Бездны, самом опасном подземелье в королевстве! Чтобы не быть съеденным плотоядными монстрами, он использует свое единственное магическое умение — Неограниченную (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Сакураби КацусиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B9CC4CA823CCBF8E071E38DD85D4A85CBF36A26
+magnet:?xt=urn:btih:FAE42DA123226F3CF257A88374FEB116C45E183C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,234 +453,241 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475953   (98269) от 31.03.2012
+###  Публикация: 1822247   (100851) от 06.10.2025
 
-Марджори Аллингхэм | Таинственная улика (2012) [MP3]
+FxSound 1.2.1.0 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100851.jpg" />
+</div>
+
+
+###  Подробнее
+
+FxSound (ранее DFX Audio Enhancer) - отличное приложение, которое позволяет существенно улучшить качество звука в различных приложениях и онлайн сервисах, при помощи изменения в режиме реального времени различных параметров аудиосигнала звуковой карты ПК. К примеру, с помощью данной программы, можно улучшить качество звучания любимых треков в различных медиапроигрывателях, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B41EC8BB0874B12DE92D82C720AE248EDC2AD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822245   (100850) от 05.10.2025
+
+Gutalax - The Shitpendables (2021) [APE|Lossless|image + .cue] <Goregrind>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diarrhero
+02. Nosím místo ponožky kousek svojí předkožky
+03. Poopcorn
+04. Buttman(   Читать дальше...   )Жанр: GoregrindПродолжительность: 00:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75427544473877A1242F807D6C422E470BEC368C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822249   (100849) от 05.10.2025
+
+Mofa Gongzhu de Xiao Fannao | Who Made me a Princess | Однажды я стала принцессой [2025, TV, 4 из 16] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что маленькая Атанасия де Эльджео Обелия — настоящая принцесса, владеющая магией, с самого её рождения реальность была к ней жестока. Мать умерла при родах, успев запечатать магические силы дочери, отец отрёкся, бросив на произвол судьбы и равнодушных слуг. Выжить младенцу помогла таинственная сила, раскрывшая малышке уготованное ей трагичное будущее. (   Читать дальше...   )Производство: Colored Pencil Animation (Китай)Жанр: исекай, фентази, приключенияРежиссер: Kuaikan ManhuaПеревод: официальный (Crunchyroll)Язык озвучки: Японский (дубляж)Субтитры: Русские, АнглийскиеПродолжительность: 16 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC5AE05178BF649E14B688583FACCE90EB4C798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822252   (100848) от 05.10.2025
+
+Мятежная Луна, часть 1: Дитя огня / Rebel Moon - Part One: A Child of Fire (2023) WEB-DLRip [AV1/2160p] [4K, HDR, 10-bit] [Director's Cut] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100848.jpg" />
+</div>
+
+
+###  Подробнее
+
+В галактической империи Праматерь после убийства королевской семьи власть узурпировал коварный сенатор. На окраинах зарождается революция, поэтому среди планет курсирует боевой корабль под руководством безжалостного адмирала Нобла. Когда ищущие повстанцев прибывают на захолустную луну Велдт, чтобы пополнить запасы пищи, а также убивать и насиловать, они неожиданно (   Читать дальше...   )Производство: США / Grand Electric, The Stone QuarryЖанр: фантастика, боевик, драма, приключенияРежиссер: Зак СнайдерАктеры: София Бутелла, Эд Скрейн, Михил Хёйсман, Чарли Ханнэм, Стаз Нэйр, Пэ Ду-на, Джимон Хонсу, Рэй Фишер, Клеопатра Коулмэн, Фра Фи и др.Перевод: Дублированный (Read Head Sound), многоголосый (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (forced, full SDH), французские (full, SDH)Продолжительность: 03:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23F8DA66868F2B3FCECD21D8588231AD0056B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822147   (100847) от 05.10.2025
+
+Адаптация Пчёл - Остановка Май (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По условиям любви [00:03:19]
+02. Панама [00:03:16]
+03. Я звонил и узнавал [00:04:09]
+04. Улица Есенина [00:04:03](   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8620F816DC10110CCDC037953EA84CD6C4B6EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822254   (100846) от 05.10.2025
+
+Chichi wa Eiyuu, Haha wa Seirei, Musume no Watashi wa Tensei-sha. / Мой отец - герой, моя мать - дух, а я перерождённая их дочерью [2025, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будучи девочкой, обладающей как духом, так и человеческой кровью, восьмилетняя Эллен имеет власть над стихиями — хотя и не над традиционными четырьмя стихиями. Она обладает способностью преобразовывать свое окружение, манипулируя элементами периодической таблицы. Кроме того, Эллен обладает обширными научными знаниями, поскольку в прошлой жизни она была ученым.
+Во (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Фукусима ТосинориЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A0EB01FAA0727D1E4C65CB782137757BDD190B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822045   (100845) от 05.10.2025
+
+Книжная серия | Сыщик Нестор Загорский [18 книг] (2022-2024) [FB2] [Проект Анонимус]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые в современной России запущен проект, состоящий из серии детективных книг, связанных между собой главными героями и сюжетной линией. Авторство романов, входящих в данную серию, будет скрыто до момента издания последней книги серии. Интрига состоит в том, чьему перу принадлежат данные произведения. Один ли это автор или творческий коллектив писателей?Жанр: Детектив, ИсторияИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDBCEAB6441AB9E30197A69731CE4B5901D7BC62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822256   (100844) от 05.10.2025
+
+Sawaranaide Kotesashi-kun / Don't Touch Kotesashi / Не трогай меня, Котэсаси [2025, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коуё Котесаси обладает исключительными навыками массажа и мечтает стать спортивным врачом. Чтобы получить стипендию в медицинском университете, он поступает в среднюю школу при университете Сэйва, которая славится своими спортивными достижениями.
+Происходя из бедной семьи, Коуё устраивается на работу в общежитии школы, чтобы покрыть свои расходы. Однако вскоре он (   Читать дальше...   )Жанр: комедия, романтика, этти.Режиссер: Сайто ХисасиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 12 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093F684FC386CBE00119082B871F31E8C88BE739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822253   (100843) от 05.10.2025
+
+Филип Дик | Вращающееся колесо (2025) [MP3, Александр Большешальский]
 
 >>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98269.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100843.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Марджори Аллингхэм — знаменитая английская писательница, из-под пера которой вышли более 30 детективных романов, в том числе популярнейшая серия об Альберте Кемпионе. В ее романах есть все — сатира и смех, убийства и шантаж, любовь и интриги. Книги М. Аллингхэм не уступают по напряженности повествования произведениям Агаты Кристи, с которой ее часто сравнивают. Новая (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:00:08
+Бард Сунг-Ву получает задание — отправиться в глушь и проверить, не зарождаются ли среди низших каст, Фермеров и Техников, тайные еретические культы. Но сам он думает о другом: однажды совершённый грех не даёт ему покоя. Сунг-Ву уверен, что в следующем перевоплощении его ждёт участь насекомого-падальщика на далёкой зловонной планете. Теперь его единственное желание (   Читать дальше...   )Жанр: научная фантастика, ПостапокалиптикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:03:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEDB0CEEF08109E6D96BD50494AC6B36023F0D14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475980   (98264) от 31.03.2012
-
-Susie Arioli - All The Way (2012) [MP3|192 кб/с]<Vocal Jazz, Swing, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Funny Valentine
-02. Time On My Hands
-03. Here's to the Losers
-04. All the Way
-05. Here's That Rainy Day
-06. It's Always You
-07. Forgetful
-08. There's a Lull In My Life
-09. Come Rain or Come Shine
-10. When Your Lover Has Gone(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Easy ListeningПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F155E1F16DF8F2176CC6075FFBC829108C77254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476391   (98263) от 31.03.2012
-
-cHAMBAo - Endorfinas En La Mente (2004) [MP3|320 кб/с]<Electronic, Latin, Flamenco>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chambao
-02. Lo Verás
-03. Desconocido
-04. Ahí Estás Tú
-05. Vida
-06. Volando Voy
-07. Los Muchachos De Mi Barrio
-08. Mejor Me Quedo Aquí
-09. Una De Tantas
-10. As De Corazones(   Читать дальше...   )Жанр: Electronic, Latin, FlamencoПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64CE5D4CC414549AA66885B7B02F65CD4EAD38F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476374   (98262) от 31.03.2012
-
-VA - Disco Stars (2012) [MP3|320 kbps]<Pop | Italo-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lee Marrow - Mr. Fantasy
-02. Michael Bedford - More Than A Kiss
-03. Michael Bedford - Tonight
-04. Mike Mareen - Stand Up
-05. P. Lion - Dream
-06. Silent Circle - Danger Danger
-07. Roger Meno - I Find The Way
-08. Rose - Magic Carillon
-09. Scotch - Pictures
-10. Silver Pozzoli - Pretty Baby(   Читать дальше...   )2012Жанр: Pop | Italo-DiscoПродолжительность: 06:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD09FDA5B01179F292F17C69DD6803177A06CFA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473488   (98261) от 31.03.2012
-
-Дон Камилло, монсеньор / Don Camillo monsignore ma non troppo (1961) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98261.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз монсеньор дон Камилло и его извечный противник сенатор Пеппоне возвращаются в родной городок из Рима, чтобы разрешить спор по поводу старой маленькой часовни. Городские власти решили снести часовню и на ее месте построить жилой дом. И снова начинаются извечные козни между непримиримыми соперниками доном Камилло и Пеппоне...Жанр: комедияРежиссер: Кармине ГаллонеАктеры: Фернандель, Джино Черви, Леда Глория, Джина Ровере, Валерия Чанготтини, Саро Урци, Марко Тулли, Андреа Кекки, Эмма Граматика, Карл ЦоффПеревод: Многоголосый закадровыйПродолжительность: 01:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80AC4A88260E9CD6A44E3643C83FE6659C1ED667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476000   (98260) от 31.03.2012
-
-Зверское / Atrocious (2010) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брат и сестра расследуют городскую легенду, странным образом связанную с «летним» домиком их семьи. 4 апреля 2010 года семья Квинтаниллья были найдены убитыми в их загородном доме. Полиция сообщила о 37 часах из жизни семейства, зафиксированных на видео.«Зверское» показывает реальные записи этого ужасного случая. Семья направлялась в свой старый фермерский дом, где Кристиан и Джули расследуют легенду о Девочке из леса. Каждый день они записывают на видео то, чем занимались в ходе своего расследования. Через пять дней после прибытия на место их обнаружили мертвыми.Жанр: Ужасы, ТриллерРежиссер: Фернандо Барреда ЛунаАктеры: Рафаэль Амайа, Джос Масегоса, Чус Перейро, Кристиан ВаленсиадрПеревод: Одноголосый закадровыйЯзык субтитров: немецкий, английскийПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476014   (98259) от 31.03.2012
-
-Любимые / The Loved Ones (2009) DVD9
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый красавец школы Брент Митчелл отказался идти с Лолой на выпускной. Очень зря, ибо она, с помощью своего папаши-психопата похищает Брента и устраивает свой собственный выпускной.Жанр: Ужасы, Триллер, ДрамаРежиссер: Шон БирнАктеры: Ксавьер Сэмюэл, Робин МакЛиви, Джон Брамптон, Ричард Уилсон, Виктория Тейн, Джессика МакНэми, Эндрю С. Гилберт, Сьюзи ДогертиПеревод: Одноголосый закадровый (acolith)Язык субтитров: русский, английскийПродолжительность: 01:20:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475178   (98258) от 31.03.2012
-
-Дикий Юг. Тасмания - последнее убежище / Wild South. Tasmania the last refuge (1990-1999) IPTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D868F864E822896CAB7362CE74DA8ED6B90995C2
+magnet:?xt=urn:btih:AD34236EF1D9BDAD4812505FF777394D898FDE5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

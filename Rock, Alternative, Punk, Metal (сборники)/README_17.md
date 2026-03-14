@@ -1,3 +1,32 @@
+###  Публикация: 1280759   (758626) от 04.02.2019
+
+VA - Heavy Metal Collections Vol. 10 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758626.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Dark Sky - Into The Arena (2018)(1:36)
+02. Mob Rules - Ghost Of A Chance (2018)(4:45)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D88FD183E0E0EDF034176CE6D3D6AD4E3125357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280764   (758605) от 04.02.2019
 
 VA - Heavy Metal Collections Vol. 12 (3CD) (2019) [MP3|320 Kbps] <Heavy - Metal>
@@ -714,35 +743,6 @@ VA - Glam, Heavy Metal Ballads (2020) 5CD [MP3|320 Kbps] <Rock, Hard Rock, Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3666035BE8260D7C09BF03470F276B4A5987750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529900   (731977) от 08.02.2022
-
-Richard Koechli - Richard Koechli (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Unsung King (Tampa Red)
-02. I'm Going Down
-03. Etat D'urgence
-04. Of Em Gliche Grond Schtah(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501D49621E96BAF54C3CA5F2C4C50B0C2F1E6527
 ```
 
 https://mybot314.ru/tekegram_catalog/

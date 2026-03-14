@@ -443,41 +443,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486490   (90021) от 22.04.2012
-
-Parzival (+ Stiff Miners) - 8 albums (1995-2011) [mp3|192-320 kbps] <Martial Industrial, Medieval, Darkwave>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zeit  (03:06)
-02. Urheimat (03:54)
-03. Nach Nord (03:36)
-04. Sei Bereit (03:51)
-05. Peitsche Und Zuckerbrot (04:01)
-06. Der Geist Des Barons (04:02)
-07. Leben Ist Fabrik (03:52)
-08. Die Grosse Schau (03:52)
-09. Der Anilingurtel (03:53)
-10. Der Aarn (03:49)(   Читать дальше...   )1995-2011Жанр: Martial Industrial, Medieval, DarkwaveПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE31BA52520A516A779A0E84DD0AFF5F18B39D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465701   (81213) от 10.03.2012
 
 Барто - Привет! Тоталитаризм (2012) [MP3|320 Kbps]<Electronic, Electroclash>

@@ -1,3 +1,90 @@
+###  Публикация: 1427112   (184567) от 27.11.2020
+
+Brother Jack McDuff - Down Home Style (1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_184567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vibrator [4:48]
+02. Down Home Style [5:06]
+03. Memphis in June [4:16]
+04. Theme from Electric Surfboard [3:34](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-FunkПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E80F8A4EDB2D4639CDE56DABCB7679CF9B4164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427137   (184395) от 27.11.2020
+
+VA - Swinging Classics (2006) [FLAC|Lossless|tracks + .cue] <Jazz, Classical>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_184395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё одно приобретение из новых. Хотя диску уже более 14 лет не мог пройти мимо, потому как джазовые аранжировки классических произведений всегда несут в себе заряд нового прочтения известных мелодий. И для любителей джаза, равно как и для любителей классической музыки джазовые обработки произведений композиторов – классиков всегда откроют новые краски в хорошо знакомых (   Читать дальше...   )01. Eugen Cicero - Sonata in C (after Domenico Scarlatti)  (3:58)
+02. Bill Evans Trio - Valse (Siciliano in G Minor) (after J.S. Bach)  (5:51)
+03. Stan Getz - Once (after Gabriel Faure)  (2:50)
+04. Hank Jones - Fugue Tune (after J.S. Bach)  (4:28)(   Читать дальше...   )Релиз состоялся: 26 июля 2006 годаЖанр: Jazz, ClassicalПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94AA56C41B3D15D91C393FF335E34D75E994307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664913   (184071) от 28.09.2023
+
+Ralph Burns - Bijou (1955) 1999, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring Sequence [6:13]
+02. It Might as Well Be Spring [4:54]
+03. Spring Is Here [3:37]
+04. Sprang [3:58](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74DFC781F398398446EED0963F86D216F9EFE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664911   (184031) от 28.09.2023
 
 Kenny Drew Trio With Clark Terry - Serenity (1978) 1988, Alfa Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -659,93 +746,6 @@ Kaoru Nakasone - Fragrance (2000) M&I [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C100BB8A4DDB67AB5D8D8FBA6608AE98BAC8BEF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427625   (181573) от 30.11.2020
-
-Tab Smith - Jump Time (1951, 1952) 1991, Delmark Records [FLAC|Lossless|image + .cue] <Swing, Jump Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Because of You [3:15]
-02. Slow Motion [2:53]
-03. Dee Jay Special [2:58]
-04. Sin [3:14](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 00:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD187AB055E18281B952F26620991522912A55A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427630   (181567) от 30.11.2020
-
-Tab Smith - Top 'N' Bottom (1953, 1954) 1997, Delmark Records [FLAC|Lossless|image + .cue] <Swing, Jump Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Top 'n' Bottom [2:50]
-02. My Ideal [3:19]
-03. Mr. Gee [2:49]
-04. Don't Get Around Much Anymore [2:59](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC5EBAF7A02C2DDFBDD0F235AF1C9E86FCACF72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427629   (181541) от 30.11.2020
-
-Tab Smith - Ace High (1952, 1953) 1992, Delmark Records [FLAC|Lossless|image + .cue] <Swing, Jump Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cottage for Sale [3:28]
-02. Sunny Side of the Street [2:42]
-03. Tis Autumn [2:55]
-04. Teddy's Brannin' [2:50](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927C2F1867FA29C57AD81CCB210D238E67F37818
 ```
 
 https://mybot314.ru/tekegram_catalog/

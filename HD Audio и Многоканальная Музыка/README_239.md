@@ -1,3 +1,148 @@
+###  Публикация: 1774710   (30110) от 22.01.2025
+
+Andrea Longato - Thinking Heart (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daisies (5:01)
+02.  Sure Thing (6:34)
+03.  Mona Lisa Kite (4:41)
+04.  Wishlist (5:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B0B50A4C6BC5DC623BF67A145F1418072A712D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774736   (30109) от 22.01.2025
+
+Evan Oberla - Canal Street Revolution (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  While We Were Sleeping... (2:03)
+02.  Canal Street Revolution (3:45)
+03.  Electrophysiology (5:32)
+04.  Black Diamond (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB34907D38D54FFABFD18AFBA1C988A7533F725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774733   (30108) от 22.01.2025
+
+Davy Mooney & Ko Omura - The Word (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sheep Wash (6:42)
+02.  Wormcast (5:57)
+03.  The Word (5:18)
+04.  Purusha (4:52)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFFB4D43AD8BB25409BD3AE7252ACA0C4D122C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774676   (30107) от 22.01.2025
+
+Alex McLaughlin - A Brand New State (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Desert Chapel (6:58)
+02.  Trailhead (6:24)
+03.  Signals (6:19)
+04.  The Solar Punks (7:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02DA0FBABAAAB6C6E502A82F75B62A8876FFA653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774731   (30106) от 22.01.2025
+
+D. Heywood - Winelight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My Heavenly Sweet Angel (Live) (5:20)
+02.  A Glass of Wine (5:32)
+03.  Lovin' You Endlessly (4:50)
+04.  Sylky Smooth (4:55)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C37FF57C1B8D4F2AD1484E958B3F71769FD6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774738   (30105) от 22.01.2025
 
 Fabienne Ambuehl - Thrive (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -598,151 +743,6 @@ David Rose - Perfect Harmony Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7900220CF3C61B3DB2BC2193A4E8328780089C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749811   (26880) от 21.02.2025
-
-Killswitch Engage - Studio Albums (9 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Killswitch Engage - американская металкор-группа из города Уэстфилд, штат Массачусетс, образовалась в 1999 году.2000 - Killswitch Engage
-2002 - Alive Or Just Breathing
-2004 - The End Of Heartache
-2006 - As Daylight DiesЖанр: MetalcoreПродолжительность: 07:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A5B8651102B65C38EB8D4B251FD663898FA4C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780959   (26873) от 21.02.2025
-
-Lacuna Coil - Sleepless Empire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Siege [4:25]
-02 - Oxygen [3:46]
-03 - Scarecrow [4:49]
-04 - Gravity [4:04](   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E71BF082BD772E272545B6E4460C8577B1CFF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575781   (26439) от 26.02.2025
-
-Ozzy Osbourne - Studio Albums (14 releases) (1980-2022) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26439.jpg" />
-</div>
-
-
-###  Подробнее
-
-О́ззи О́сборн (англ. Ozzy Osbourne; настоящее имя — Джон Майкл О́сборн, англ. John Michael Osbourne; род. 3 декабря 1948, Марстон Грин, Бирмингем) — британский рок-певец, музыкант, один из основателей и участник группы Black Sabbath, оказавшей значительное влияние на появление таких музыкальных стилей, как хард-рок и хеви-метал. Успешность его карьеры (   Читать дальше...   )1980 - Blizzard Of Ozz
-1981 - Diary Of A Madman
-1983 - Bark At The Moon
-1986 - The Ultimate Sin(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 14:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3479F1C0AA90019C6C2C0EAA0F7D384EDD9A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664217   (26300) от 27.02.2025
-
-Staind - Studio Albums (8 releases) (1996-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Hard Rock, Post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Staind — американская метал-группа из города Спрингфилд, штат Массачусетс, основанная в 1995 году.1996 - Tormented
-1999 - Dysfunction
-2001 - Break The Cycle
-2003 - 14 Shades of GreyЖанр: Nu Metal, Hard Rock, Post-grungeПродолжительность: 07:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6867D2B0DA72A7759B6C1321B93F57D38B21BC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745353   (26279) от 27.02.2025
-
-Brainstorm - Studio Albums (14 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brainstorm — немецкая пауэр-метал-группа. Создана в 1989 году. Лицом группы является вокалист Энди Б. Франк, также известный участием в Symphorce и прогрессив-группе Ivanhoe. Brainstorm отличается более «тёмным» стилем музыки от большинства пауэр-метал-команд.1997 - Hungry
-1998 - Unholy
-2000 - Ambiguity
-2001 - Metus Mortis(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 14:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638AE89B856511491E3A4D32058B37398926C717
 ```
 
 https://mybot314.ru/tekegram_catalog/

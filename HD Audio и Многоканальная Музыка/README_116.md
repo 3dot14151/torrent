@@ -1,3 +1,148 @@
+###  Публикация: 1716779   (111305) от 17.04.2024
+
+Citron - Tropic Of Cancer/Full Of Energy (1983/1986) 2xLP [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Heavy Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Heart Of Steel
+02. Garden Party
+03. Let My Of Myself(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95CB92998D1079A31829EBE1339C27B851B056E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716810   (111301) от 17.04.2024
+
+Void Chapter - humAnIty (2023) Deluxe, 2024, FiXT[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic Rock, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. humAnIty is the new A.I. (Instrumental) [00:00:35]
+02. Diabolic (Extended) (Instrumental) [00:04:31]
+03. Resist (Extended) (Instrumental) [00:05:04]
+04. Reclaimer (Extended) (Instrumental) [00:05:16](   Читать дальше...   )Жанр: Electronic Rock, Industrial MetalПродолжительность: 2 CD, 02:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54360154BC4C291E766C629350D43EC27537FCD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717046   (111290) от 18.04.2024
+
+Crimson Train - Crimson Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long roads (3:49)
+02. Morning star (4:15)
+03. The price of gold (4:30)
+04. Crimson train (3:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07309698E518485D60843C940C0DFBCFF48C2F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717080   (111287) от 18.04.2024
+
+Bless Her Evil - We Are Mystery... (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Brother The Crow (03:32)
+02 - The Moon Upside Down (04:16)
+03 - Dark Cluster (03:58)
+04 - Life (04:52)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1301FD59D98EEAC7EE75690FA753A332798BB8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717167   (111279) от 18.04.2024
+
+Vella la Vella - Revolution (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B.M.F (3:40)
+02. Crush On You (3:05)
+03. Revolution (3:37)
+04. Blonde, Bad and Beautiful (3:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991350FF2B92A5513DC94FE0001D527AB0295A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716547   (111278) от 18.04.2024
 
 Neal Francis - Francis Comes Alive (2023) Deluxe Edition, 2023, ATO Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie Rock, Ethereal>
@@ -599,151 +744,6 @@ Cedric Burnside - Hill Country Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18E8F1B27D9B1ED0C3A3B5F93E778DE8D8658C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717511   (111135) от 20.04.2024
-
-SeeYouSpaceCowboy - Coup de Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Emocore, Post-Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allow Us To Set The Scene [00:02:26]
-02. Subtle Whispers To Take Your Breath Away [00:03:06]
-03. And the Two Slipped Into The Shadows [00:03:25]
-04. Red Wine And Discontent [00:03:33](   Читать дальше...   )Жанр: Emocore, Post-HardcoreПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCEE86CBE38D7406B526100072D663B21597882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717775   (111110) от 21.04.2024
-
-Warfect - Spectre of Devastation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spectre Of Devastation
-02. Pestilence
-03. Rat King
-04. Left To Rot(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2824F01F2C95FC9787A4AA945F737EE835F2DD44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717952   (111077) от 22.04.2024
-
-Tarja Turunen - What Lies Beneath (2010) Special Edition, 2024, earMUSIC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111077.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Anteroom of Death (4:45)
-2. Until My Last Breath (4:26)
-3. Naiad (7:09)
-4. Dark Star (4:43)(   Читать дальше...   )Жанр: Symphonic Metal, Gothic MetalПродолжительность: 02:25:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9241B8C77B03A027993DC88BD53A874A5A79181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715639   (111072) от 22.04.2024
-
-Poisonblack - Studio Albums (6 releases) (2003-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Groove/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Poisonblack — финская метал-группа, возглавляемая бывшем фронтменом Sentenced, певцом и гитаристом Вилле Лайхиала.2003 - Escapexstacy
-2006 - Lust Stained Despair
-2008 - A Dead Heavy Day
-2010 - Of Rust And BonesЖанр: Heavy/Groove/Gothic MetalПродолжительность: 05:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2594363B9035A13F3A27CFCB0A75CF11EE2FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717915   (111067) от 22.04.2024
-
-U.D.O. - Solid (1997) Released, 2011, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Independence Day
-02. Two Faced Woman
-03. Desperate Balls
-04. The Punisher(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400A9C0F401B1D74AC86D5F4B27B5E510137712C
 ```
 
 https://mybot314.ru/tekegram_catalog/

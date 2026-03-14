@@ -1,3 +1,148 @@
+###  Публикация: 1525739   (129186) от 21.01.2022
+
+VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand & Susana - I Matter to You (Extended Mix) [06:14]
+02. Christian Burns - Breathing Fire (Farius Extended Remix) [05:52]
+03. Giuseppe Ottaviani - The Wind in Your Face (Extended Mix) [06:44]
+04. Eco - Let You Down (Chris Schweizer Extended Remix) [06:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734827AEB0A65F3AA9848F1808F10E8113088C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683910   (128098) от 13.12.2023
+
+VA - Abora Recordings: Best of 2022 (Mixed by Ori Uplift) (incl. Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New World - True Nature (Emotional Intro Mix) [8:42]
+02. Maratone & Saphron & Hardcode - Walk Through Shadows (Extended Mix) [7:21]
+03. Tycoos & Mike Zaloxx & Shar - Running Out (Extended Mix) [5:34]
+04. Specific Slice & Sandro Mireno - Leviathan And The Lone Galleon (Extended Mix) [6:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB7148ED42A6D344FE3ABF76C295C252700F9EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684030   (127976) от 14.12.2023
+
+VA - The Best Of Suanda Progressive 2023 [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kike L - If You Call My Name (Extended Mix) [6:15]
+02. Inrayzex - Summer Times (Extended Mix) [6:07]
+03. Milad E & David Deere - Aerospace (Extended Mix) [5:59]
+04. SMR LVE - Wanderlust (Extended Mix) [5:14](   Читать дальше...   )Жанр: Trance, Progressive, Vocal TranceПродолжительность: 01:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0056C80D48105F9A03E9C179EFC211A84FFD5091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684107   (127942) от 14.12.2023
+
+VA - The Best Of Gert 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primestate Project - Terraform (Original Mix) [6:15]
+02. Arcanum - Aeternum (AFTERUS Extended Remix) [5:37]
+03. Master Beat Projekt - Ocean Wave (Extended Mix) [6:15]
+04. Mazeev - Quintessence (Original Mix) [5:27](   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350CEDE794867ABF1B3FE968F49F268215AD9877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684336   (127582) от 16.12.2023
+
+VA - Black Hole Trance Music 12-23 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate - The Truth 2.0 (Extended Mix) [6:07]
+02. Dennis Sheperd & Gid Sedgwick - Happier Than Now (Extended Mix) [5:01]
+03. Markus Schulz & Emma Hewitt - Till We Fade (Extended Mix) [6:43]
+04. Greg Oakland feat. Jaime Deraz - Ethereal (Extended Mix) [5:19](   Читать дальше...   )Жанр: TranceПродолжительность: 02:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA6D4FF1FAFBEAD191E3AC0AB726447831132E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684500   (127565) от 16.12.2023
 
 VA - Interplay 2023 (Selected By Alexander Popov) - Extended Versions (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -600,151 +745,6 @@ VA - Best of Phoenix Recordings 2023 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1104B2459CDD2FE27040E53BE9DD07ACCDCE9EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692595   (122361) от 17.01.2024
-
-VA - Top 8 December 2023 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sothzanne String - The Day You Left (Cedric Paul Remix) [8:13]
-02. Sauli - Focus (Gav Crayton Remix) [6:29]
-03. Elissandro - Only You (Original Mix) [8:06]
-04. Victor Special - Feel Free Your Dreams (Original Mix) [7:33](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B28E3AD889D8820F7B3315B598B12845580A35C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692989   (122033) от 19.01.2024
-
-VA - Black Hole Trance Music 01-24 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto feat. Nicola Hitchcock - In My Memory (Maor Levi Extended Remix) [5:13]
-02. Natalie Gioia - Your Love Is My Compass (Extended Mix) [4:53]
-03. Dennis Sheperd & Aurosonic & LTN - No Borders (Extended Mix) [7:09]
-04. Daniel Wanrooy & JES - We'll Be Together (Extended Mix) [7:49](   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A6DE4669AA19ABE1C95E907230B3E4D00F175B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693617   (121703) от 21.01.2024
-
-VA - TOP 10 Trance 2023 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nation Epic - Feat Worlds (Extended Mix) [6:17]
-02. Ad Tsapiyow Dens - The City Of Trance (Original Mix) [8:50]
-03. Artyom Kitsenko - Gamma (Original Mix) [6:38]
-04. Mart Craig - Last Chance (Extended Mix) [5:10](   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19930663C7CF348013FED2F8CF01275B68757B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823198   (121561) от 10.10.2025
-
-VA - Black Hole Trance Music 10-25 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - What Remains Of Us (Extended Mix) [7:38]
-02. Solarstone - over the mountains (12'') [7:50]
-03. Roger Shah, Kristina Sky & Evan Henzi - Memories Of Space (Extended Mix) [7:10]
-04. Steve Brian & talkofthetown - Heart On The Line (Extended Mix) [6:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BD7B47FBB15FBB5A68165252BF20598AE64B9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823163   (121557) от 10.10.2025
-
-VA - A State of Trance - Classics Top 10, Vol. 9 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Orbion (Extended Mix) [9:35]
-02. John O'Callaghan feat. Josie - Out Of Nowhere (Extended Mix) [7:28]
-03. Mauro Picotto & CRW - I Feel Love (V2) (Extended Mix) [5:19]
-04. Silent Electra - Polarity (Jochen Miller Extended Remix) [8:14](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3D962F4071AD6B5E48EC8FD8F0D0438C7D033A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 981952   (950143) от 02.02.2016
+
+Gary Bartz - Shadows (1991) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Marion's Theme [09:50]
+ 02.Shadows [12:31]
+ 03.Songs Of The Underground Railroad [10:26]
+ 04.Peresina [14:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D74434D1E9BC6EF98C4B1BBC4DD93B39C54338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981941   (950138) от 02.02.2016
 
 Deborah Brown - Jazz 4 Jazz (1988) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Vocal Jazz>
@@ -714,35 +743,6 @@ Ronnie Foster - Two Headed Freap (1972) Remaster, 2014, Universal[FLAC|tracks+.c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:457A2C28995040B9EBF8C9C07CC8CA97666A7E88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983010   (945634) от 05.02.2016
-
-Frances Wayne - The Warm Sound (1957) Remaster, 2012, Warner[FLAC|tracks+.cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Early Autumn [03:15]
- 02.'Round Midnight [03:04]
- 03.Prelude To A Kiss [04:01]
- 04.My One And Only Love [03:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7879E0F4D04E697CB665E802B253FE578901523B
 ```
 
 https://mybot314.ru/tekegram_catalog/

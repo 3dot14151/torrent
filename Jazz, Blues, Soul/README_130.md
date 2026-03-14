@@ -1,3 +1,177 @@
+###  Публикация: 1511499   (788780) от 21.11.2021
+
+Eric Alexander Quartet - Blues At Midnight (2013) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sayonara Blues [8:17]
+02. Hittin' The Jug [7:57]
+03. Willow Weep For Me [6:00]
+04. Dis Here [6:15](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03426E6407082C7079CD610D2E6267A60AD3531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511555   (788774) от 21.11.2021
+
+The Union Blues - We All Need The Morning (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Down Easy 04:11
+02. Nothing To Say 04:18
+03. Like A Knife 04:10
+04. Dontcha Take My Blues Away 04:14(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F89D1154F584BAC6BEDAF29C66C3DF51200D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203259   (788681) от 01.02.2018
+
+Philippe Mall - Hydra (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saloum
+02. Bali
+03. Nice Place
+04. Obolus(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5098A40FFA6F988CF7B6873E4C2B4B7AC3337BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203294   (788678) от 01.02.2018
+
+David "Fathead" Newman - Under A Woodstock Moon (1996) Kokopelli [APE|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Boy [04:40]
+02. Amandla [05:19]
+03. Up Jumped Spring [04:29]
+04. Spring Can Really Hang You Up the Most [05:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06AA7B9298087339ABF65D3218DB58743756B188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276243   (788624) от 15.01.2019
+
+Les Doigts De L'Homme - Dans Le Monde (2003) DropStudio [FLAC|Lossless|tracks + .cue] <Gypsy, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surfin' Caravan [2:01]
+02. Enterrement Sur Une Jambe [4:29]
+03. Les Yeux Noirs [3:46]
+04. Angelo [4:21](   Читать дальше...   )Жанр: Gypsy, SwingПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A765B77D6217F33D496E2AD40DE7475BD9371F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276303   (788616) от 15.01.2019
+
+Esther Phillips - Capricorn Princess (1976) Expanded Edition, SoulMusic Records, 2016 [FLAC|Lossless|tracks] <Jazz-Funk, Soul, Disco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic's In the Air (2:59)
+02. I Haven't Got Anything Better to Do (3:37)
+03. Boy, I Really Tied One On (3:46)
+04. Candy (5:15)(   Читать дальше...   )Жанр: Jazz-Funk, Soul, DiscoПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4681386DD6252662B5FA56DC395DFA899ED9AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275980   (788611) от 15.01.2019
 
 Esther Kaiser - Songs of Courage (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -571,180 +745,6 @@ The Reunion Project - Varanda (2017) Self Released [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4504B62FDF2CB8149BF9CEA1CE0E9C4B372EA6BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277071   (787033) от 19.01.2019
-
-Goldmeister-Alles Gold (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sie ist weg
-02.Hamma!
-03.Mit Dir
-04.Dickes B(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F0127DAD07D82B0CD3F20315582AE13CD9E493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277092   (786981) от 19.01.2019
-
-King King ‎ - Standing In The Shadows (2013) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Than I Can Take (3:56)
-02. Taken What's Mine (5:20)
-03. A Long History Of Love (7:18)
-04. Jealousy (4:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B3F5894AE16E91117A427F9D3499C126380E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388247   (786896) от 05.06.2020
-
-Dizzy Gillespie - A Night in Tunisia 1989 (1991) First Choice [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manteca [6:33]
-02. Con Alma [5:42]
-03. Lorraine [6:53]
-04. Brother 'K' [7:11](   Читать дальше...   )Жанр: BopПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B43B486FE034A51AA2DC7255DD0C28F7562FFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388249   (786893) от 05.06.2020
-
-Dizzy Gillespie - Dee Gee Days: The Savoy Sessions 1951 - 1952 (1985) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tin Tin Deo [2:41]
-02. Birk's Works [3:07]
-03. We Love to Boogie [2:54]
-04. Lady Be Good [2:43](   Читать дальше...   )Жанр: BopПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438C22A3E1BC0AB427CCE7FEBF2B7BD28F08BD4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388238   (786888) от 05.06.2020
-
-Wynton Kelly - Kelly At Midnite (1960) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kelly At Midnite - альбом джазового пианиста Уинтона Келли записанный в 1960 году и выпущенный под лейблом Vee Jay Records.01. Temperance (7:32)
-02. Weird Lullaby (7:14)
-03. On Stage (5:16)
-04. Skatin' (5:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34182399106EE5423FE4576505DEBAC7C052B0D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388459   (786766) от 06.06.2020
-
-21st Century Swing Band - Millennium Swing (1999) MCG Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bennie's from Heaven [4:16]
-02. It Don't Mean a Thing If It Ain't Got That Swing [4:03]
-03. Steppin' Out with My Baby [2:33]
-04. I'm Gonna Move [3:26](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3A601C3F3268E62CC61CF2E26A62B3CA999EE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

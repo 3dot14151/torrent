@@ -1,3 +1,32 @@
+###  Публикация: 1065425   (418938) от 23.10.2016
+
+Pantera - The Great Southern Trendkill (1996) 2CD, Remastered, 2016, Rhino Records [MP3|320 Kbps] <Thrash, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Great Southern Trendkill   (03:49) 
+02. War Nerve   (04:48) 
+03. Drag the Waters   (04:55) 
+04. 10's   (04:50) (   Читать дальше...   )Жанр: Thrash, Heavy Metal |Продолжительность: 01:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B671E68621E47C39DE888F632B3633A780CFC88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324998   (418673) от 12.09.2019
 
 Lindemann - Steh auf (2019) Single [MP3|320 Kbps] <Industrial Metal>
@@ -714,35 +743,6 @@ Axxis - Monster Hero (2018) [MP3|320 Kbps] <Melodic Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:797B584E1B0BFE30A7CFBD8A500E1E3750DADCD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252554   (409090) от 05.10.2018
-
-Behemoth - I Loved You At Your Darkest (2018) [MP3|320 Kbps] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409090.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Solve
-2. Wolves Ov Siberia
-3. God = Dog
-4. Ecclesia Diabolica Catholica(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB25BBF81BF699EDBFEC72EEA2BA0D2CB860FECA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1736350   (49828) от 16.07.2024
+
+VA - Instrumental guitar (2024) [MP3|320 Kbps] <Rock, Instrumental, Flamenco>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jay Price - Shooting Star [02:08]
+002. Guitar Instrumentals - Back in Black (as made famous by AC/DC) [04:21]
+003. Flamenco Guitar Masters - Song For A Guy [05:19]
+004. Guitar Instrumentals - Sin City (as made famous by AC/DC) [04:46](   Читать дальше...   )Жанр: Rock, Instrumental, FlamencoПродолжительность: 08:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FD9A26BA597CA463A8661C4A6AB6429AE152CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737357   (49107) от 23.07.2024
 
 VA - Music of Vikings, Scandinavians, Pagans, Celts and the Middle Ages (2024) 2CD [MP3|320 Kbps] <Celtic, Folk, Rock>
@@ -717,35 +746,6 @@ VA - Christmas Glam Santa's Secret (2024) [MP3|320 Kbps] <Rock, Glam>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5AA4EEB3A17A48ECE60B8B0250223B16F8B2F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763753   (35328) от 03.12.2024
-
-VA - Rock Stream Mix (2024) [MP3|320 Kbps] <Soft rock, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35328.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 4Db - 45 Degrés - (06:17)
- 002. Endless Dive - Archimboldi - (06:53)
- 003. Cold Years - Die Tonight - (03:22)
- 004. Sunchild, Karfagen & Hoggwash - Grail And Time - (05:54)(   Читать дальше...   )Жанр: Soft rock, RockПродолжительность: 11:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66868B3C851B6B03A162B929365A16E1E7383D8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1510503   (791416) от 16.11.2021
+
+Gov't Mule - Heavy Load Blues (2021) 2xCD, Deluxe Edition [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc A:
+01. Blues Before Sunrise (3:44)
+02. Hole In My Soul (4:29)
+03. Wake Up Dead (5:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E88F9597CF595C5111661D0C754E2CD5A9E6CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510330   (791372) от 16.11.2021
+
+Gov't Mule - Heavy Load Blues (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Before Sunrise (3:44)
+02. Hole In My Soul (4:29)
+03. Wake Up Dead (5:55)
+04. Love Is A Mean Old World (4:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF25E774531A4C3C307CC61B840E46F9B46D2889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387529   (791342) от 02.06.2020
+
+Peters Drury Trio - When Old Met New (1999) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Me to the Moon [3:25]
+02. Not Meant to Fall [5:16]
+03. Summertime [5:14]
+04. All or Nothing at All [6:59](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 01:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0877C25FFCEA854D61E49FF3E1201800F56917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387552   (791337) от 02.06.2020
+
+Otis Redding - Stax Classics (2017) [FLAC|Lossless|tracks + .cue] <Rhythm & Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791337.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 (Sittin' On) The Dock Of The Bay
+2 These Arms Of Mine
+3 Try A Little Tenderness
+4 I've Been Loving You Too Long(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 00:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5AABF707C9883C1CE89111804BBCAF6F4DD7F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387663   (791219) от 02.06.2020
+
+VA - The Devil's Music Rock and Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Doors - Roadhouse Blues
+02. Big Mama Thornton - Rock Me Baby
+03. John Lee Hooker - You Lost a Good Man
+04. Carey Bell - Sleeping with the Devil(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70106EB8201718AA62546EE3F96A23FB0774D048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275274   (791163) от 10.01.2019
+
+Bruut! - V (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lopez
+02. Maestro
+03. Phteven
+04. Bud(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95DD30691D204455D76E0AE6C4C6CCCDEEED1FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275264   (791159) от 10.01.2019
 
 Barabas Lorinc Quartet - Other Than Unusual (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Contemporary Jazz>
@@ -571,180 +745,6 @@ Beth Hart / Бет Харт - Screamin' For My Supper (1999) Atlantic, Lava, 143
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D88D622DE28AF934017944298BB8D8B90D98397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275452   (790524) от 11.01.2019
-
-Jimmie Noone - 1930 - 1934 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You're Smiling [2:49]
-02. I Lost My Gal From Memphis [2:27]
-03. On Revival Day [2:34]
-04. I'm Drifting Back To Dreamland [2:45](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4793E3A5CCF7B4DE4DAAEDE171FC7E7C6AF02A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275479   (790522) от 11.01.2019
-
-David Tixier Trio - Universal Citizen (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far From the World
-02. Tokyo
-03. Lost Among Ghosts
-04. Tribute to an Old Man(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B083EAFAED5EBCBAEAA6CF333F7050D123D796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275280   (790521) от 11.01.2019
-
-Chris Whitehouse's Connected - Grounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Down
-02. Head Honcho
-03. Yes, And?
-04. Two Four One(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D4D637B13C485C93B586C4A256BF0DA740D090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275284   (790518) от 11.01.2019
-
-David Linx - 7000 Miles (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poses
-02. From One Family To Another
-03. 7000 Miles
-04. America(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE12ACC6E5A39A378338B109933EEB58EF46CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275432   (790517) от 11.01.2019
-
-Charlie Haden & Kenny Barron - Night And The City (1996) 1998, Verve [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twilight Song [12:48]
-02. For Heaven's Sake [10:45]
-03. Spring Is Here [10:21]
-04. Body And Soul [10:25](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742DF311561938F67CA82CD302C338267F4FED94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275485   (790513) от 11.01.2019
-
-Debbie Kirkland - Coming From Blue (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kissing You
-02. Xuxu Bird
-03. I Want To Be Romanced
-04. A Wish(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3FB13C17A860C4AB896C501918B4C60D0A900B
 ```
 
 https://mybot314.ru/tekegram_catalog/

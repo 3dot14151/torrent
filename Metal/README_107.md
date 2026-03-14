@@ -1,3 +1,32 @@
+###  Публикация: 1348771   (141596) от 29.12.2019
+
+Silvertomb - Edge of Existence (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insomnia / Sunrise (5:18)
+02. Love You Without No Lies (4:25)
+03. So True (5:08)
+04. Not Your Savior (3:55)(   Читать дальше...   )Жанр: Heavy Metal, Stoner DoomПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D076026B53188F34EEC2351E43A3A131BF9423F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088067   (140715) от 30.12.2016
 
 A Sound Of Thunder - Who Do You Think We Are (2016) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
@@ -749,35 +778,6 @@ Hideous Divinity - Obeisance Rising (2012) [MP3|320 кб/с]<Brutal Technical De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C704DF67F6746BAEDA5FCAE10C4F9B506453414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684254   (127618) от 16.12.2023
-
-Therion - Leviathan III (2023) [MP3|320 Kbps] <Symphonic Rock, Operatic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ninkigal (3:06)
-02. Ruler Of Tamag (6:44)
-03. An Unsung Lament (6:58)
-04. Maleficium (3:34)(   Читать дальше...   )Жанр: Symphonic Rock, Operatic MetalПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490906CFF877F8148FCE3C427D3D3527F6B7CA4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

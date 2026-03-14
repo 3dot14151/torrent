@@ -1,3 +1,32 @@
+###  Публикация: 987760   (924499) от 18.02.2016
+
+VA - Sports Music For A Better Life (2016) [MP3|320 kbps] <Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troy Mandalon - Prism 04:13
+02. Clickbank - Personal 03:36
+03. Zal Trigger - History 04:26
+04. Another - Getsing 03:58(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CC1A275445843A1ED46FEA7B62E033851CFE41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095187   (924383) от 21.01.2017
 
 VA - Trance Mission: Best Of 2016 (Mixed by DJ Feel) (2017) [MP3|320 Kbps] <Trance, Energy, Emotional, Vocal, Uplifting, Progressive>
@@ -730,35 +759,6 @@ VA - House Nation Volume 3 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A1E191CEDC3BF1EEB8C8059476743E02BA6E3DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988240   (919187) от 21.02.2016
-
-VA - February Top 100 - Collection Trance (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919187.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Madhukar - Eternal Heaven (13:46)
-002. Ganga - Autumn - Dj Malte Of Real XS Mexican Club Mix (9:17)
-003. Pan-Pot - Sleepless (Stephan Bodzin Remix) (9:00)
-004. Talamanca - A Day At The Beach (Original Mix) (8:47)(   Читать дальше...   )Жанр: TranceПродолжительность: 10:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFA25BF89FDAAF27FDCA886565C1235937C379A
 ```
 
 https://mybot314.ru/tekegram_catalog/

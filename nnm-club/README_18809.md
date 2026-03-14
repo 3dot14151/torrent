@@ -1,694 +1,12 @@
-###  Публикация: 1835722   (251677) от 07.11.2025
+###  Публикация: 497908   (253611) от 17.05.2012
 
-Бесплатные деньги / Money for Nothing (1993) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальных событиях, произошедших с Джоуи Койлом, портовым грузчиком из Филадельфии, который в феврале 1981 года нашёл на улице сумку с 1 200 000 долларов, выпавшую из проезжавшей инкассаторской машины. Сначала он решает оставить деньги и не думать о последствиях, но его друг Кенни и другие знакомые пытаются его убедить вернуть их. В это время полиция (   Читать дальше...   )Производство: США / David Permut Productions, Hollywood PicturesЖанр: драма, комедия, криминалРежиссер: Рамон МенендезАктеры: Джон Кьюсак, Деби Мейзар, Майкл Мэдсен, Бенисио Дель Торо, Майкл Рапапорт, Мори Чайкин, Джеймс Гандольфини, Фионнула Флэнаган, Элизабет Бракко, Eleanor Coyle, Ленни Венито, Филип Сеймур Хоффман, Фрэнки ФэйзонПеревод: профессиональный двухголосый (Видеосервис), авторский (Василий Горчаков; Михаил Яроцкий)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF638A37D630074DE932C37A2C2FD76D44CAA03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835723   (251676) от 07.11.2025
-
-Валентина Богушевич | Мифы Древней Греции (2004) [MP3, Владимир Болотин, Олег Абрамов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мифы Древней Греции.
-Маленьких слушателей обязательно увлекут захватывающие приключения Одиссея, путешествие Аргонавтов, подвиги Геракла и множество других сюжетов, ставших неотъемлемой частью культурного наследия человечества.
-Серия «Мифы Древней Греции» поможет ребенку сделать первый, самый важный шаг, к получению настоящего классического образования, (   Читать дальше...   )Жанр: Детская литература, легенды и мифыИздательство: Детское издательство «Елена», Creative AttractionПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30646092FD259DC788DBDA968A11967E740D8FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835720   (251675) от 07.11.2025
-
-НХЛ 2025-2026. Вашингтон Кэпиталз - Питтсбург Пингвинз (06.11.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251675.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 ноября 2025 пятница 03:30 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США) 17 437 зрителей (94% при вместимости 18 573).Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5F05FFF55834B15E369482E1AF5F04DABE4D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835728   (251674) от 07.11.2025
-
-VA - L’Amour Fané Compilation (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Le Dernier Mot
- 02 - Le Train De Nuit
- 03 - Je M’en Vais
- 04 - Minuit(   Читать дальше...   )Жанр: Vocal, Easy listening, AIПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3508D047E0CCD0971FFCD5DA72356935F08C9107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835726   (251673) от 07.11.2025
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2025.11.07) IPTV [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251673.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E151D42D49D5DE3BB6533472334FF965D85CD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835716   (251672) от 07.11.2025
-
-Juno Skye - Favorites Collection (2025) [MP3|320 Kbps] <Vocal,  Easy listening, Other, AI>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Don't Lie to Me
- 02 - Got Your Heart in a Headlock
- 03 - I Gotta Get Someone to Call My Lover
- 04 - If I'm the Problem(   Читать дальше...   )Жанр: Vocal,  Easy listening, Other, AIПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D5C7F09BED31587AF0717033AEF4BEB81E7C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835714   (251671) от 07.11.2025
-
-Рафаэль Дамиров | Последний Герой (Книга 3). Последний Герой Том 3 (2025) [MP3, Григорий Метелица]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Матёрый опер из 90-х неожиданно оказывается в нашем времени — в теле молодого и субтильного штабного лейтенанта. В отделе Полиции его никто не воспринимает всерьёз.
-Но он-то знает, как работать по старой школе: жёстко, с улицы, с притона. Теперь он снова на службе — среди оперков с айфонами, забывших, как колоть жуликов без компьютеров и баз данных, как брать опасного (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7A27419A00D4AE92AE7DE7B915893DF67BCC34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835709   (251670) от 07.11.2025
-
-VA - Live @ Amsterdam Music Festival, Johan Cruijff ArenA, ADE, Netherlands (2025-10-25) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Alle Farben ft. Ava Silver - Lost In Time (Intro Edit)
-02. Armin van Buuren & JOA - Heavy (DJ KUBA & NEITAN Remix)
-03. ID - Amsterdam ID
-04. Armin van Buuren & Adam Beyer vs. D-Shake - Techno Trance(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FE5B03451CDE68BA8FB31138E119388A607FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835676   (251669) от 07.11.2025
-
-VA - No name compilation part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Echønova - Where Are You Going Like That
-02 - Limora - Where Are U
-03 - Echønova - Still Hear You
-04 - Umideep - My Tears(   Читать дальше...   )Жанр: Electronic, Vocal, Easy listeningПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B42DCE26B88B9606AB05A45A94A3CD733ABB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835675   (251668) от 07.11.2025
-
-VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Menda - Listen
-02 - Mr Salama - Radio
-03 - Dova Music - Golden Night
-04 - Kasimoff - It's Killing Me(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 02:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457BFDFBA2CF764FF91BB432A0AAFC4C4C55D532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835719   (251667) от 07.11.2025
-
-Глаза ангела / Angel Eyes (2001) BDRip [H.265/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина-полицейский Шерон Пог, патрулируя самые криминогенные районы южной части Чикаго, попадает в практически безвыходную ситуацию, и от пули преступника её спасает неожиданное появление странного незнакомца. Его зовут Кэтч. Он потерял в автокатастрофе жену и ребёнка. И теперь он блуждает в земном мире, видя своё предназначение лишь в совершении добрых дел. Однако (   Читать дальше...   )Производство: США / AE Two Film Productions, Morgan Creek ProductionsЖанр: драма, мелодрамаРежиссер: Луис МандокиАктеры: Дженнифер Лопес, Джеймс Кэвизел, Джереми Систо, Терренс Ховард, Соня Брага, Виктор Арго, Монит Мазур, Ширли Найт, Дэниэл Магдер, Гилейн Сент-ОнджПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EDC00BC06B14EC6EEFDC0F63F5EE75FCAB8E276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835665   (251666) от 07.11.2025
-
-Валентина Новикова | Семья и зависимость. Цикл передач с В.Новиковой (2010) [MP3, В.Новикова]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл передач В.Новиковой на радио "Град Петров". В передачах затрагиваются темы наркомании и алкоголизма, прочих зависимостей, роли семьи в появлении и искоренении разных зависимостей. Материал уникальный. Очень интересный и может оказаться полезным практически любому. Очень рекомендую послушать хотя бы пару передач. Воды мало, все очень насыщено.
-Всего (   Читать дальше...   )Жанр: Психология, наркологияИздательство: Радио "Град Петров"Продолжительность: 11:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196616460FC590AFC8D2328DD02541D06382098D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835662   (251665) от 07.11.2025
-
-VA - Ori Uplift - Uplifting Only Episode 665 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandro Mireno & Alaera – Awakening (Piano Intro Mix)
-02. Mhammed El Alami & NELLY TGM – We Are One
-03. BiXX – Appreciation
-04. DreamLife & Aleksey Gunichev – Good Night My Dream(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7685A29BFDA1EE0DB83C98049824EA93EBD24F81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835658   (251664) от 07.11.2025
-
-Е.Е. Никитин, Б.М. Смирнов | Атомно - молекулярные процессы: В задачах с решениями (1988) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251664.jpg" />
-</div>
-
-
-###  Подробнее
-
-В форме задач представлены вопросы физики столкновения атомных и молекулярных частиц. Рассмотрены вопросы, связанные с потенциалом взаимодействия атомных частиц (общие вопросы), теории столкновения, а также различные аспекты физики столкновений электронов с атомами и молекулами, упругих и неупругих процессов при соударении атомов, ионов и молекул, химические процессы (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3820291749F7F99BF4BE6F92D83E5A17B238E6B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835657   (251663) от 07.11.2025
-
-Сергей Попов | Зоопарк нейтронных звезд (2008) [MP3, Сергей Попов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Попов,
-кандидат физико-математических наук,
-Государственный астрономический институт имени Штернберга (ГАИШ), Москва
-Добро пожаловать в удивительный мир аудиокниги "Зоопарк нейтронных звезд"! Эта захватывающая история, написанная Сергеем Поповым, погрузит вас в удивительные просторы Вселенной и позволит вам узнать много нового о ней.Жанр: Учебная и научно-популярная литература. ЛекцияИздательство: Аудиокнига своими рукамиПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB0E7C84781B988C946E2D3286C8CD9F99FEB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835656   (251662) от 07.11.2025
-
-VA - Armin van Buuren - A State Of Trance 1250 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yuri Kane ft. Kate Walsh – Right Back
-02. Gareth Emery ft. Christina Novelli – Concrete Angel
-03. Gareth Emery & STANDERWICK ft. HALIENE – Saving Light
-04. Above & Beyond ft. Zoë Johnston – No One On Earth (Gabriel & Dresden Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC36ECB5EFDA2ACDD19EE8274DD78CE6A0CBE7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835650   (251661) от 07.11.2025
-
-Владимир Колычев | Колычев. Роковой соблазн. Слово вора (2025) [MP3, Павел Краб]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он сразу обратил внимание на эту красотку в зефирного цвета сарафане. Сумочка приоткрыта, в ней угадывается кошелек. Паша Страхов хоть и фартовый вор, но купился, не устоял перед соблазном и с опозданием понял, что это ментовская замануха. Его рука мгновенно оказалась в жестком захвате. Так с кошельком в руке его и повязали.
-Его подруга Зойка ждала Пашу все пять (   Читать дальше...   )Жанр: Бандитские разборки, Криминальные боевикиИздательство: ЭксмоПродолжительность: 07:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E125A62D8BCDCBCB7D19E1F78A2F1F1C813C643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835727   (251660) от 07.11.2025
-
-Люди Икс: Последняя битва / X-Men: The Last Stand (2006) BDRip [H.265/1080p] [10 bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Людям Икс во главе с профессором Чарльзом Ксавьером приходится вступить в битву с самой эволюцией в лице их воскресшего товарища по команде. Джин Грэй, возрождённая в облике Тёмного Феникса, представляет опасность не только для самой себя, но и для мутантов и для всей человеческой расы.Производство: США, Канада, Великобритания / 20th Century Fox Film CorporationЖанр: фантастика, боевик, приключенияРежиссер: Бретт РэтнерАктеры: Хью Джекман, Холли Берри, Иэн Маккеллен, Фамке Янссен, Келси Грэммер, Шон Эшмор, Аарон Стэнфорд, Патрик Стюарт, Бен Фостер, Эллиот ПейджПеревод: Дублированный (Лицензия), многоголосый (Kinoteatr TV)Язык озвучки: Русский, узбекский, английскийСубтитры: АнглийскиеПродолжительность: 01:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4406F07883BA0CCCF11738AA5C182359774E7ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835599   (251659) от 08.11.2025
-
-Данные пользователей будут хранить три года вместо одного
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251659.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 1 января 2026 года срок хранения метаданных о переписках пользователей российского сегмента интернета вырастет с одного года до трёх лет — соответствующее постановление подписал глава правительства Михаил Мишустин.Хранить метаданные о переписках обязаны компании, которые зарегистрированы в России как организаторы распространения информации (ОРИ). Это лица, которые (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496291   (251655) от 13.05.2012
-
-[Wallpapers] New Sexy Girls Wallpapers (13.05.12)
+[Wallpapers] Computer Desktop Wallpapers Collection (18.05.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FCDE5EC1D8D1531604C329F5B817D5716B6521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496107   (251653) от 13.05.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 19
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251653.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 19
-Название: Nature Desktop Wallpapers Pack 19
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CF9D2833EA7106DA8B7C2CED4FF963E4470BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495567   (251649) от 13.05.2012
-
-Queendom - Still Rising (2012) [FLAC|Lossless]<Soul>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Till the Battle Is Won (3:18)
-02. They Don't Know (3:49)
-03. Heaven (4:12)
-04. Zum Zuma (3:06)
-05. Gone (3:49)
-06. Babylon (4:41)
-07. Soldier (3:26)
-08. We Go Play (4:02)
-09. Declaration of Dependence (2:27)
-10. Uncle (3:47)(   Читать дальше...   )2012Жанр: SoulПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496129   (251648) от 13.05.2012
-
-[Wallpapers] Bentley (50 снимков)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251648.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Bentley (50 снимков)
-Название: Bentley (50 снимков)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200 - 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:История английского автопроизводителя Bentley началась 18 января 1919 года, когда Уолтер Оуэн Бентли (англ. Walter Owen Bentley), совместно с Ф. Барджесом и Г. Варлеем разработали свой первый автомобиль.
-В 1922 году машины «Bentley» выиграли командный приз в гонках Tourist Trophy, а год спустя один из представителей этой славной серии финишировал четвёртым в Ле-Мане.
-В конце 1930 года Bentley выпустила свою самую престижную модель — 8L. Она стала «лебединой песней» фирмы как независимой.
-Bentley Motors Ltd. — британская автомобилестроительная компания, специализирующаяся на производстве автомобилей класса «люкс». С 1998 года входит в состав германского концерна Volkswagen Group.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82ECF5EDB53DA4945F249639B46F4C949CF8DAC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495948   (251644) от 13.05.2012
-
-Sherazade - La Loungerie (2006) [MP3|320 кб/с]<Ethno-Lounge, New age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251644.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2:54) 01. Fly Away
-(5:00) 02. La Dolce Vita
-(5:57) 03. Belanna
-(5:12) 04. Mon Palais De Solitude
-(4:02) 05. Amoroso
-(5:53) 06. Tomae
-(3:35) 07. Lola
-(2:04) 08. Leja Men Dewai
-(6:19) 09. Distance Love
-(3:33) 10. Buddha Reggae(   Читать дальше...   )2006Жанр: Ethno-Lounge, New ageПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08ABE43B0185B9FDB225A17A9D899F54719B715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495770   (251643) от 13.05.2012
-
-[Wallpapers] The Best Wallpapers (12.05.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251643.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253611.jpg" />
 </div>
 
 
@@ -698,7 +16,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3754AC4A466A5AF630584FB241761CF38D35B4D7
+magnet:?xt=urn:btih:98AA739820FB428324B8541548849845C97820E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,34 +24,718 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 495343   (251641) от 13.05.2012
+###  Публикация: 497631   (253610) от 17.05.2012
 
-VA - 5 Years Of Noir Music (2012) [MP3|320 кб/с]<Tech House, Deep House>
+[Wallpapers] Lamborghini
 
->>Electronic
->>House
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251641.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kolombo - Shape Your Life (feat. Vince L - Martin Dawson Remix)
-02. Hot Since 82 - Let It Ride (Nicolas Masseyeff Remix)
-03. Larse - So Long (Manuel Tur Remix)
-04. Johan Ilves & Migova - Femme Desire (Adana Twins One Night In Paris Remix)
-05. Noir Westboy - Shes Got My Heart (Larse Remix)
-06. Los Suruba - Spanish Pantalones (Hot Since 82 Remix)
-07. Tiger Stripes - I Found U (Kellerkind Remix)
-08. Superhero - It's Not For You (feat. C Layne - The Mekanism Remix)
-09. Noir - Times Of My Life (feat. Alexander Perls - Noir Habischman Remix)
-10. Pirupa & Pigi - Sweet Devil (Amine Edge & DANCE Remix)(   Читать дальше...   )2012Жанр: Tech House, Deep HouseПродолжительность: 01:31:37
+[Wallpapers] Lamborghini
+Название: Lamborghini
+Официальный сайт: www.netcarshow.com
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200
+Расширение (тип) файлов: jpgВремя раздачи: 19:00 до 07:00 (до первых скачавших, перебои со связью бывают,зависит от провайдера)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E1543DC36791DC6E7CF97DA6DA872E1A59BAFD6
+magnet:?xt=urn:btih:0DB42D11B58C9AD31C14CFD55C3E0600C8D81975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497655   (253609) от 17.05.2012
+
+[Wallpapers] Best HD Wallpapers Pack (16.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19ECB66AB0660AEF022999E2A3A7BB7A8DF2169B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497065   (253608) от 17.05.2012
+
+Inner Ear Brigade - Rainbro (2012) [FLAC|Lossless]<Avant-Prog / Progressive Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knee - 5:05
+02. Oom Pah - 5:09
+03. Missing The Train - 3:41
+04. Rainbro - 5:02
+05. Too Good To Be True - 4:11
+06. Somnambulist Subversion - 4:34
+07. Nut Job - 3:12
+08. Forgotten Planet - 6:00
+09. Dirty Spoons - 5:12
+10. 25 Miles To Freedom - 10:30Жанр: Avant-Prog / Progressive RockПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497883   (253606) от 17.05.2012
+
+VA - Клубные Новинки Vol.79 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Stoxx - Something To Remember (Bastian Van Shield Remix)
+02. Jakub Rene Kosik - Spica (Original Mix)
+03. Estiva & Tania Zygar - Death Of Me (Original Mix)
+04. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
+05. Jaytech - Overdrive (Jaytech's 2012 Remix)
+06. Andain - Much Too Much (Mike Shiver Remix)
+07. Matan Caspi - Surprise Me feat Mykle Anthony (Original Mix)
+08. Digitize feat. Laura - Breathe In (Progressive Remix)
+09. Daniel Wanrooy feat. Hannah Ray - Your Life
+10. Max Vertigo feat. SevenEver - Tech Love (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3922F35256D80B08A030E5ADF0B82B753DC92CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497909   (253605) от 17.05.2012
+
+[Wallpapers] Best HD Wallpapers Pack (18.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B347116337C28D19B8EEFC036F546AA2E06B6541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497645   (253604) от 17.05.2012
+
+Рассказы о волосах / Hairtales (2008) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы и наши волосы - тема представленной документальной ленты австралийского ТВ.Жанр: ДокументальныйРежиссер: Скотт Отто Андерсон, Кэт МурПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D646C73EE3D0063961167E53013EE5BB1DA85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497614   (253603) от 17.05.2012
+
+[Wallpapers] Ferrari
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253603.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Ferrari
+Название: Ferrari
+Официальный сайт: www.netcarshow.com
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200
+Расширение (тип) файлов: jpgВремя раздачи: 19:00 до 07:00 (до первых скачавших, перебои со связью бывают,зависит от провайдера)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698442B3A9D3CCE104502C4615FFF4A52AD7119F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498015   (253600) от 17.05.2012
+
+[Wallpapers] Creative Desktop Wallpapers Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253600.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Creative Desktop Wallpapers Pack 7
+Название: Creative Desktop Wallpapers Pack 7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B039DEEBB81212B14AC7CEF903F387BD7C04794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497200   (253599) от 17.05.2012
+
+Drapsnatt - Hymner Till Undergangen (2010) [MP3|320 кб/с]<Folk/Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253599.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. En Ensam Sol Gar Ner
+2. Arvssynd
+3. Drapsnatt
+4. Mannen I Min Spegel
+5. Somna In
+6. Ve Er
+7. Tonerna De Klinga
+8. En Besvuren Plats
+9. Gasten2010Жанр: Folk/Black MetalПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF69DE7EE040D8469817161F55CA9C70A3A0F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497116   (253593) от 17.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 32
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B1954574E0073B0F592DF1A5699FB0CFBC6414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497906   (253592) от 17.05.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (17.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4992x3328
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383B19CCBC561F74E0F5C567E0F7C710054D6C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497907   (253590) от 17.05.2012
+
+[Wallpapers] Wallpapers Sexy Girls (17.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1457B923541204BDC36D9B15AD38F614A511B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497667   (253589) от 17.05.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (16.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 3537х1800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5148BE2CDD2D8A056E6E98B91CA1E63A50336442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497918   (253588) от 17.05.2012
+
+[Wallpapers] Girls Wallpapers (18.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 5030х3551
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C35A54A5ADD319A1C7ADCAF8E3E6A91309BC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497666   (253587) от 17.05.2012
+
+[Wallpapers] Girls Wallpapers Mix (16.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1280х1024 - 5222х3888
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC764D8BA3D3A11C4711017E84B7CA70E02FD20B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497899   (253586) от 17.05.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (17.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C91CFAFE9422E7A7B686D2378502482251B208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498014   (253584) от 17.05.2012
+
+[Wallpapers] Computer Desktop Wallpapers Pack 27
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253584.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Computer Desktop Wallpapers Pack 27
+Название: Computer Desktop Wallpapers Pack 27
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5542BEED7D9F796765A53991E857E3C5679AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498101   (253583) от 17.05.2012
+
+VA - Trance Maniacs Party: Uplifting Breeze #37 (07.04.2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Woldman feat. Nicole Ambresi & DJ Leo D vs. Kuku Sky - Always (BluEye Uplifting Remix) [06:58]
+02. Claessen & Martens - El Dorado [07:54]
+03. Kamil Esten - Fields Of Love (Dan Stone Remix) [07:11]
+04. Oen Bearen & Tranceye - Goodnight My Everything (Suprano Remix) [06:58]
+05. Indecent Noise - Grim Reaper (Original Mix) [07:29]
+06. Moonbeam feat. Avis Vo - Hate Is The Killer (Arty Remix) [05:48]
+07. Marcos - Hypnotic (Activa Remix) [07:39]
+08. Farhad Mahdavi - Immortal Dreams (Original Mix) [08:00]
+09. Dave Schiemann - Insider (Wezz Devall Remilf) [06:45]
+10. Aerian - Mahe (Original Mix) [07:48](   Читать дальше...   )07.04.2012Жанр: Trance, Uplifting TranceПродолжительность: 02:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC70A62686F161BF9556D5901DA744D7C71CE45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497440   (253580) от 16.05.2012
+
+Sonic the Hedgehog 4: Episode 2 [Multi5/-] (RePack) 2012 | R.G. ReCoding
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonic the Hedgehog 4: Episode II является продолжением Sonic the Hedgehog 4: Episode I, действия которого развернутся после событий первой части. Сонику и Тейлзу предстоит объединиться в борьбе против вернувшегося Метал Соника и коварного Доктора Эгманна, которые заключили между собой союз, и разрушить их дьявольские планы. В игре реализована возможность совместного прохождения, как по сети, так и локально.(   Читать дальше...   )Тип издания: RePackЖанр: Аркада, Казуальная, ПлатформерЯзык озвучки: Отсутствует, не требуетсяЯзык интерфейса: Английский, Немецкий, Французский, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67C0CF0D77B4C12CA29DEDEE0B260F825B0F76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496399   (253579) от 16.05.2012
+
+Counter-Strike 1.6 Original [Ru/En] (pv47/48/No-Steam) 2012
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная идея игры заключается в том, что две группировки противостоя друг другу - Террористы (Т) и Контр-Террористы (СТ). Присутствует также возможность наблюдать за каждым игроком из его же глаз, или же видеть изображение карты с намеченными на ней координатами игроков (overview).
+
+Цель игры CS - уничтожить всех игроков из команды противника, либо выполнить цель игры, которая является различной на каждом типе карт. После каждого ранда обе команды получают деньги, которые могут быть потрачены на экипировку. Выигравшая команда получает значительно больше денег, чем проигравшая.
+(   Читать дальше...   )Разработчик: Valve Corporation & Barking Dog StudiosЖанр: MMO Action (Tactical / Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4FC9A6C61748F8F9929EE77AC82828D3D55FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 397103   (253578) от 16.05.2012
+
+Тайный круг / The Secret Circle (2011) HDTVRip (сезон 1, серии 1-22 из 22) Кубик в Кубе
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253578.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам серии одноимённых романов писательницы Лизы Джейн Смит.
+Тихая и застенчивая старшеклассница Кэсси после смерти матери переезжает из солнечной Калифорнии в мрачный городок Нью-Салем, к бабушке, которая увлечена мистикой и до странного много знает о травах. Поначалу Кэсси скучает по дому и прежним друзьям, но вскоре знакомится с компанией подростков, которые (   Читать дальше...   )Производство: США, Канада / Alloy Entertainment, CBS Television StudiosЖанр: Фэнтези, драма, мелодрамаРежиссер: Лиз ФридлендерАктеры: Бриттани Робертсон, Логан Браунинг, Томас Деккер, Шелли Хенниг, Луис Хантер, Джессика Паркер Кеннеди, Фиби Тонкин, Эшли Кроу, Гейл Харольд, Адам Харингтон  и др.Перевод: Профессиональный двухголосый (Кубик в Кубе)Продолжительность: серии по ~00:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497186   (253575) от 16.05.2012
+
+Garmin. City Navigator Russia NT 2013.10
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253575.jpg" />
+</div>
+
+
+###  Подробнее
+
+City Navigator NT России предоставляет подробные карты дорог и достопримечательностей для вашего устройства, так что вы можете перемещаться с точным, от поворота к повороту на любой адрес или перекресток, включая рестораны, заправочные станции, жилье, достопримечательности и многое другое. Покрытие включает в себя крупных городских районов в западной части России, включая Москву и Санкт-Петербург.
+ Отображение дорог и имена на кириллице (не на английском языке).
+ Содержит зоны покрытия в Москве и Санкт-Петербурга, а также междугородной сети автомобильных дорог на западе России.
+ Отображение достопримечательностей по всей стране, включая рестораны, жилье, достопримечательности, магазины и многое другое.
+ Для навигаторов серии Garmin NUVI 37xx, а также для всей линейки 2xxx Russian. Главной особенностью этой версии является полное внедрение функции «Junction View» , обеспечивающей реалистичные изображения приближающихся перекрестков.
+
+Доп. информация: FID 2618
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 59134   (253573) от 16.05.2012
+
+Тайна третьей планеты (1981) DVD-5 (Реставрация)
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастический фильм по одноименной повести К.Булычева.Жанр: МультфильмРежиссер: Владимир ТарасовПеревод: Оригинальный (Русский)Продолжительность: 0:30:0
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497530   (253572) от 16.05.2012
+
+Windows XP Professional SP3 Clear AS 05.2012 [Русский]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на оригинальном русском образе Windows XP Pro SP3 Rus VL x86, в которую интегрированы критические обновления системы по 15 мая 2012 года, драйвера самых распространённых AHCI-контроллеров AMD, Intel, nForce, JMicron, Marvell, SiS, VIA , а также IE 8 и WMP 11 с последними обновлениями.
+
+Пропатчен UXTheme.dll для установки тем без цифровой подписи и увеличено кол-во одновременных соединений TCP/IP до 100. Установочный процесс  автоматизированный (ключ, базовые настройки уже введены в процесс установки) и полу-автоматический (с вводом своих данных ,а также вводом 25-значного ключа для установки). ОС активированная, проходит проверку на сайте Майкрософт.
+
+Для установки в ручном режиме потребуется ключ, который находится в корне диска (serial.txt).
+
+Сборка сделана без излишеств в твиках реестра и прочих настройках. При создании сборки не использовалась nLite и подобные ей программы.Название программы: Windows XP Professional SP3 Clear ASЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497488   (253571) от 16.05.2012
+
+Warhammer 40 000: Dawn Of War 2: Retribution + 18 DLC [Ru] (RePack/3.19.1.6123) 2011 l Fenixx
+
+>>След.
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warhammer® 40,000®: Dawn of War II® - Retribution™ - второе отдельное дополнение к Warhammer® 40,000®: Dawn of War® II, действие которого разворачиваются спустя несколько лет после событий Dawn of War II - Chaos Rising. Уничтоженные, казалось, раз и навсегда тираниды возродились, на смену разбитым орочьим вождям приходят Флибустьеры Капитана Бладфлага, а из тёмных глубин Хаоса выходят новые нечистивые чемпионы. Игрокам будут предложены одиночные кампании за все игровые расы, каждая из которых расскажет свою историю войны за субсектор Аврелия. Впервые в одиночном режиме игроки смогут взять под контроль орды тиранид и превратить врагов в пищу Великого Пожирателя.(   Читать дальше...   )Тип издания: RePackРазработчик: Relic EntertainmentЖанр: Strategy (Real-time / Tactical) / 3D / Add-on (Standalone)Язык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5121FE886BE4CB01D985D50AE330F03550EBA8D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1204858   (784411) от 07.02.2018
+
+VA - Empire Records - Electro Chill 3 (2018) [MP3|320 Kbps] <Chillhouse, Chillelectro, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sunyata Project  -  Lay Your Hands On Me  4:42
+02.  Cass Ferre  -  Unification  3:39
+03.  Living Room  -  Don't Stop Me  5:06
+04.  Vanilla Signal  -  Proverbial Beast (Original Mix)  3:58(   Читать дальше...   )Жанр: Chillhouse, Chillelectro, DowntempoПродолжительность: 01:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28747396C47C5C8414985354B16D99E391FA06A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204866   (784406) от 07.02.2018
 
 VA - Empire Records - House Swinging 2 (2018) [MP3|320 Kbps] <House>
@@ -716,35 +745,6 @@ VA - Cryptic House 11 (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Deep House, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF63DF58DA7FE308493C9A1DBA17E04817A6F625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206758   (781734) от 15.02.2018
-
-VA - Psychedelic Bass (Compiled by ZeByte) (2018) [MP3|256-320 Kbps] <Psydub, Psychill, Psyglitch>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_781734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Subaqueous  -  Invoco (feat. Marya Stark & Boaz Drum)  3:59
-02.  Deez & Smigonaut  -  Moonlit Excursions (Original Mix)  3:32
-03.  Liquid Bloom  -  Fire Gathering (Regen Atyya Remix)  7:16
-04.  Taotempo  -  Low Tide (Original Mix)  4:46(   Читать дальше...   )Жанр: Psydub, Psychill, PsyglitchПродолжительность: 04:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD64AA7EECD000734D124AE142D1C2B541B69A5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

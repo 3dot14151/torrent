@@ -1,3 +1,61 @@
+###  Публикация: 917577   (589102) от 12.07.2015
+
+Jimi Hendrix - It’s Going To Be A Bit Loud (1969) [MP3|320 кб/с]<Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don’t Live Today [11:25]
+02. Spanish Castle Magic [6:09]
+03. Hey Joe [7:08]
+04. Voodoo Child [9:50](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F01E3E3DD8B6CD951FCF22B966DFBC7AF15969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917674   (588636) от 13.07.2015
+
+The Shadows - The Absolutely Essential 3CD Collection (2014) [MP3|320 кб/с]<Instrumental Classic Rock, Surf Rock, Oldies Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588636.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Apache [02:56]
+02. Feelin' Fine [01:54]
+03. Don't Be A Fool (With Love) [02:07](   Читать дальше...   )Жанр: Instrumental Classic Rock, Surf Rock, Oldies Pop RockПродолжительность: 02:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41EE13F8C0A895A5068FED1F68A2416E7AC9B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918206   (587989) от 14.07.2015
 
 Exovex - Radio Silence (2015) [MP3|320 кб/с]<Progressive Rock>
@@ -688,70 +746,6 @@ The Pineapple Thief - Your Wilderness (2016) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D113A0C9A371E06CEF9B1F1DC6DF3398FB179C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 223415   (578228) от 01.08.2010
-
-Y & T - Facemelter (2010) [MP3|320 kbps]<Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude, on with the Show (1:38)
-02. On with the Show (4:09)
-03. How Long (4:25)
-04. Shine On (5:00)
-05. I Want your Money (4:42)
-06. Wild Child (4:08)
-07. I'm Coming Home (5:13)
-08. If you Want me (4:32)
-09. Hot Shot (5:04)
-10. Blind Patriot (4:08)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554476   (577629) от 30.05.2022
-
-Omega - Time Robber & Skyrover (2022) 2CD, Compilation [MP3|320 Kbps] <Progressive Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Overture (00:02:43)
-02 - Skyrover (00:03:55)
-03 - Russian Winter (00:05:05)
-04 - The Lost Prophet (00:05:52)(   Читать дальше...   )Жанр: Progressive Rock, Space RockПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B74A0294ECAF1F32B5407E186E5564C3B6FD0FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

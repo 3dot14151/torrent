@@ -1,3 +1,90 @@
+###  Публикация: 1077685   (243404) от 01.12.2016
+
+National Youth Jazz Orchestra - Hallmark (1993) [FLAC|Lossless|image + .cue] <Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallmark (5:26)
+02. I Have Been Here Before (5:10)
+03. Blood Orange (7:15)
+04. Adeus Tristeza (4:53)(   Читать дальше...   )Жанр: Big BandПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5F66C64D4EB2EC5329F251D42F3240F76DB0C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077994   (243395) от 01.12.2016
+
+Mitch Watkins - Curves (1990) Enja Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ocho Rios [03:43]
+ 02.Point to Point [05:48]
+ 03.For a Friend [02:17]
+ 04.Sublime in Time [05:18](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F1CFF654050FC29B0AD76EF2B4A58B28C4DB8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078203   (243390) от 01.12.2016
+
+Mongo Santamaria - Mongo at the Village Gate (1963) 1990, Riverside[FLAC|Lossless|tracks + .cue] <Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Introduction by 'Symphony Sid' [00:43]
+ 02.El Toro [06:35]
+ 03.Fatback [06:00]
+ 04.Mongo's Groove [03:20](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBAFF71FB31B6F1DD60461EE30D9736BDA38208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538311   (243384) от 20.03.2022
 
 Junior Mance Trio - Junior's Blues (1963) 1998, Original Jazz Classics [WavPack|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
@@ -658,93 +745,6 @@ JB Project - Akira Jimbo & Brian Bromberg - Brombo III!!! (2017) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7C6321A7F6AA607DC14A4DF00CD95FB6D10D7DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540776   (242864) от 31.03.2022
-
-Cortex - Inedit '79 (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Heard a Sigh - 3:37
-02. Back to My World - 4:46
-03. Said I Do - 5:10
-04. A Winning Team - 3:21(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2957A866A19093013661B9D4A146750463BA725C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098179   (242848) от 29.01.2017
-
-Lou Donaldson - Caracas (1994) Milestone Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hot Dog [05:19]
- 02.Just A Dream (On My Mind) [06:23]
- 03.Ornithology [07:09]
- 04.I Don't Know Why (I Just Do) [05:01](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEAFA48D838D42CB14B4E2CD147AD03802047B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541020   (242847) от 02.04.2022
-
-Jackie McLean Quartet - Tune Up (1966) 1993, SteepleChase [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tune Up [13:47]
-02. I Remember You [13:27]
-03. Closing [2:59]
-04. Jack's Tune [14:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F806F377C0D371B5BFC58C19B20BDDAA4586F2C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

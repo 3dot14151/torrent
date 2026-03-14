@@ -1,3 +1,147 @@
+###  Публикация: 1245731   (467329) от 08.09.2018
+
+Genesis - Anthology 1970-1998 (2007) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive Rock, AOR, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - On The Shoreline
+02 - Hearts On Fire
+03 - Do The Neurotic
+04 - Feeding The Fire(   Читать дальше...   )Жанр: Progressive Rock, AOR, PopПродолжительность: 45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1389C8554C8F5BC14F2F0ACA1441F54CFCFFCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939804   (466270) от 25.09.2015
+
+David Gilmour - Rattle That Lock (2015) [DTS 5.1 44.1 /16 | .wav+.cue (BD-Audio)] <art rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466270.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 5 A.M.
+2. Rattle That Lock
+3. Faces Of Stone
+4. A Boat Lies Waiting(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B85CE6B20B2F465D01F8541FA988CF7E6E165C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568222   (464086) от 07.08.2022
+
+Down (Phil Anselmo, Pantera) - Дискография (6 releases) (1995 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Sludge Metal, Stoner Metal, Southern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Down — метал-группа из США, основанная в 1991 году в Новом Орлеане. Первоначально являлась сайд-проектом музыкантов Pantera, Crowbar, Corrosion of Conformity и Eyehategod, но со временем превратилась в полноценную группу.1995 - Nola
+2002 - A Bustle in Your Hedgerow
+2007 - Over the UnderЖанр: Sludge Metal, Stoner Metal, Southern RockПродолжительность: 05:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735A1C9C5D74E5EAACCD17ECD327F5DE6C9684C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 149811   (463829) от 08.09.2020
+
+Theatre Of Tragedy - Aegis(Upmix) (1998/2008) [DTS] <Gothic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassandra (6:49)
+02. Lorelei (5:38)
+03. Angйlique (5:46)
+04. Aoede (6:11)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9695D48DEEAECACA763C6444DBF3CAEB2E426F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059513   (462105) от 04.10.2016
+
+Jack Bruce - Songs For A Tailor (1969) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Art Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462105.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Never Tell Your Mother She's Out Of Tune
+A2 Theme For An Imaginary Western
+A3 Tickets To Water Falls
+A4 Weird Of Hermiston(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 00:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031AC6E8CA59882F1C8ED132CF6C5FF5BACC5B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568303   (461945) от 08.08.2022
 
 Unisonic (Helloween, Gamma Ray, Iron Savior) - Studio Albums (2012 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal>
@@ -599,154 +743,6 @@ Rainbow - Long Live Rock ‘n’ Roll (1977) SHM-SACD /2010/ [DSD 2.0 1bit/2822,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:090E3F36192B0A660ED3E918ACA26BAE20DAE837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944289   (442358) от 06.10.2015
-
-David Gilmour - Rattle That Lock (2015) [LPCM 2.0 96kHz 24bit, DTS 5.1 96/24 | Audio-DVD5 (BD-Audio)] <art rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rattle That Lock («Греми замкОм») — четвёртый сольный альбом Дэвида Гилмора, выпущенный 18 сентября 2015 года. За выходом альбома последует короткий тур по Европе осенью 2015 и Америке весной 2016 года.
-
-Альбом был записан в Medina Studio и на плавучей студии Гилмора "Астория".
-Титульный сингл альбома был выпущен 17 июля 2015 года и доступен для скачивания (   Читать дальше...   )1. 5 A.M. 03:02
-  2. Rattle That Lock 04:57
-  3. Faces of Stone 05:32
-  4. A Boat Lies Waiting 04:36(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:53:53 (+3 bonus video tracks)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC1920B556EC91436F70CF88776260920C8C67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853402   (441849) от 20.09.2018
-
-VA - Антология советского киношлягера - Любимые песни из кинофильмов: Обыкновенное чудо и др. (1996) [FLAC 2.0 (image+.cue)|16/44,1 (MC-Rip)]<Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песни и музыкальная тема из т/ф "Двенадцать стульев"
-
-01. Белеет мой парус - Андрей Миронов
-02. Танго любви - Андрей Миронов(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED43C6456353DABE26831DCE11BD04540C1EEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164020   (441150) от 09.09.2017
-
-Pink Floyd - Wish You Were Here (2016) 1975 [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On You Crazy Diamond (1 - 5) (13:28)
-02. Welcome To The Machine (7:36)
-03. Have A Cigar (5:10)
-04. Wish You Were Here (5:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACA3DF70C50ECF5949B642CB3C139DAE637F1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570537   (440363) от 18.08.2022
-
-Children of Bodom - Studio Albums (12 releases) (1997 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Children of Bodom — финская англоязычная группа из города Эспоо, исполнявшая музыку в стиле мелодик-дэт-метал с элементами различных других направлений метала.1997 - Something Wild
-1999 - Hatebreeder
-2000 - Follow The Reaper
-2003 - Hate Crew Deathroll(   Читать дальше...   )Жанр: Melodic Death/Power MetalПродолжительность: 10:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187216DAFA8327AEF0CB682A3E84BD586894F08B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323333   (437700) от 03.09.2019
-
-Audrey Hepburn, Rex Harrison - My Fair Lady (The Original Sound Track Recording) (1964) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Musical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture
-02. Why Can't The English?
-03. Wouldn't It Be Loverly
-04. I'm Just An Ordinary Man(   Читать дальше...   )Жанр: Soundtrack, MusicalПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CB27A7C81D69A4BC7AADFDC0284D0A3CF12253
 ```
 
 https://mybot314.ru/tekegram_catalog/

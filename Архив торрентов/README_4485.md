@@ -1,22 +1,22 @@
-###  Публикация: 484975   (99957) от 19.04.2012
+###  Публикация: 1769591   (100634) от 29.12.2024
 
-Величайшие автомобили: Cobra / Great Cars: Cobra (2004) SATRip
+Photo Lab PRO v3.13.44 Mod by Mixroot [Ru/Multi]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99957.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100634.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Более сорока лет машины Керола Шелби поражают мир своей мощью и скоростью. Не важно был ли он за рулем или руководил гоночной командой - Шелби был обречен на победы. Не имело значения сколько машин он создал и сколько гонок он выиграл. Каждый раз главной его целью было сделать новый автомобиль еще лучше и быстрее.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 28.12.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1308EB9AF5DFF8430C562080EC5C705DF9556E1C
+magnet:?xt=urn:btih:D2524B919B6382BC1F1379838D28B4F9EE2A61BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,15 +24,174 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484944   (99956) от 19.04.2012
+###  Публикация: 1769590   (100632) от 29.12.2024
 
-[Wallpapers] Best HD Wallpapers Pack (19.04.12)
+ПТЭЭП-2022 v3.10 Mod by 0x7d [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мобильная врсия Правил технической эксплуатации электроустановок потребителей.
+ПТЭЭП 2022 - Правила технической эксплуатации электроустановок потребителей
+Утверждены приказом Минэнерго России от 12 августа 2022 г. N 811
+Данный документ вступает в силу с 07.01.2023 г.(   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 28.12.2024Разработчик: Instruktag KnigaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4D3B1E253E65C8AE612208547EE3B31AD4DF7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769783   (100629) от 29.12.2024
+
+Text Editor Pro 31.2.0 + Portable + Bonus [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощным инструментом редактирования текста с подсветкой синтаксиса для сценариев и языков программирования, является небольшая и компактная программа – Text Editor Pro. Программу можно сравнить с известным текстовым редактором Notepad++ функционал у них схожий, отличаются только по размеру. Утилита работает во всех версиях ОС, выпущенных корпорацией Microsoft. В последних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EB915660EE24237920E42456F86410DCEEC920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769597   (100621) от 29.12.2024
+
+STEEZY Studio - Learn To Dance v5.3.0 Mod by youarefinished [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100621.jpg" />
+</div>
+
+
+###  Подробнее
+
+STEEZY - танцевальная студия №1 на вашем устройстве Android или Smart TV - используйте ее, чтобы научиться танцевать шаг за шагом в удобном для вас темпе. С более чем 800 классами, которые добавляются каждую неделю, всегда есть больше стилей и забавных процедур для изучения. Классы варьируются от новичков до экспертов, так что прыгайте в любое удобное для вас место, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.12.2024Разработчик: STEEZYПоддерживаемая ОС: Android 8.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C928A631E5AB3CCD6B649B3D87FCF951EA01D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769514   (100616) от 29.12.2024
+
+Magic Eraser / Магический ластик v2.16.4 Mod by Maximoff⁠ [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.12.2024Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479BBC3369C83A310718D78648D725178DCE0F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770143   (100601) от 30.12.2024
+
+Photo Studio PRO v2.7.12.3613 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 28.12.2024Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C8EEEAA3AD051A153039FD81DA92379B9E72D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770035   (100568) от 30.12.2024
+
+Filmora - Редактор видео с AI v14.3.61 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filmora - программа для редактирования видеозаписей теперь доступна в вашем мобильном телефоне. Совершенно бесплатная, без водяных знаков и ограничений по времени. С Filmora видеозаписи создаются очень быстро и легко. Мощный инструмент содержит все функции редактирования, которыми оснащены профессиональные студии. С помощью Filmora можно создавать забавные видеоролики (   Читать дальше...   )Тип издания: Pro / ExtraModРелиз состоялся: 30.12.2024Разработчик: FilmoraGo StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6782AE5C528A57C9DE69B11A2002ABE7B821CFAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488476   (100524) от 26.04.2012
+
+[Wallpapers] Best Impressive Full HD Wallpapers (27.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99956.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100524.jpg" />
 </div>
 
 
@@ -42,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B8D6807E34471ED13E88072F2D843A9BBF2E9B3
+magnet:?xt=urn:btih:778A22D6EF47FF26651EF4489F822251B419EB20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,29 +209,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485106   (99955) от 19.04.2012
+###  Публикация: 488067   (100522) от 26.04.2012
 
-[Wallpapers]Delicious Wallpapers
+[Wallpapers] Desktop Wallpapers Collection (26.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99955.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers]Delicious Wallpapers
-Название: Delicious Wallpapers
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D225BB01351FA6212CE9C013A1854A4345C1040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488565   (100521) от 26.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100521.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Computer Desktop Wallpapers Pack 7
+Название: Computer Desktop Wallpapers Pack 7
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200/2796x3567
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1B5B74645798D3D477FDB53B2D48B929934C9C8
+magnet:?xt=urn:btih:7B9BB69DAF355A2EEE965DFF80C05077AA4422B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,25 +265,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485210   (99954) от 19.04.2012
+###  Публикация: 488561   (100517) от 26.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls Pack (20.04.12)
+[Wallpapers] Nature Desktop Wallpapers Pack 5
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99954.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x3000
+[Wallpapers] Nature Desktop Wallpapers Pack 5
+Название: Nature Desktop Wallpapers Pack 5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E6C27810D8A7F7BB05DC00FF03A63FCE723FBF7
+magnet:?xt=urn:btih:320B1990F70671CA5DCF579EEA343684F3059A1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,25 +295,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485211   (99951) от 19.04.2012
+###  Публикация: 488531   (100513) от 26.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls (20.04.12)
+VA - Club Charts (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owen Breeze Manuel 2santos Feat. Mercy Grey - Le Grand (Radio Edit)
+02. Dj Alex Ghost Feat. Dj Tagro - Skyrim (Radio Edit)
+03. Alexey Romeo Feat. Gerald G - This Is Your Life (Radio Edit)
+04. Romano Sapienza Feat. Rodriguez - Tacata
+05. Akcent - I'm Sorry (Reworked Radio Edit 2012)
+06. Inventive Sound Feat. Danny D - Crazy About U (Radio Edit)
+07. Laurentiu Duta Feat. Andreea Banica - Shining Heart (Radio Edit)
+08. Loverush Uk! Feat. Bryan Adams - Tonight In Babylon (Radio Edit)
+09. Robkay Feat. David Posor - Dein Lied (Dein Radio Edit)
+10. Dj Hara Feat. Chriss - Bring It To Me (Radio Edit)(   Читать дальше...   )2012Жанр: Dance, ClubПродолжительность: 06:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78186D29F1CC9F4DE0D866552335E2D1665AD8C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488110   (100511) от 26.04.2012
+
+[Wallpapers] Wallpapers Mix 29 (1600x1200-4272x2476)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99951.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 2582х1849
+[Wallpapers] Wallpapers Mix 29 (1600x1200-4272x2476)
+Название: Wallpapers Mix 29 (1600x1200-4272x2476)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200-4272x2476
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F898163FF83BDC099453AF9BB1FEA58F3A71E88F
+magnet:?xt=urn:btih:FBF2E7BBAB5F14B9E5B9176BF72FBB9053958AD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,25 +360,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484945   (99950) от 19.04.2012
+###  Публикация: 488289   (100510) от 26.04.2012
 
-[Wallpapers] Sexy Girls Pack Wallpapers (19.04.12)
+[Wallpapers] Wallpaper Sexy Girls 0.12
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99950.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4075x2288
+Обои для рабочего стола.Разрешение файлов: 1600х1200,1920х1080,1920х1200
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4115A14186D31D2E9A8F59E408CFE2CB2FC9F47C
+magnet:?xt=urn:btih:EAF6957DB845CA2B8030214E9C5185EF31502F24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,25 +386,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485218   (99949) от 19.04.2012
+###  Публикация: 488291   (100507) от 26.04.2012
 
-[Wallpapers] Girls Desktop Wallpapers №23
+[Wallpapers] Texture pack 2
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99949.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1280х1024 - 2560х1600
+Текстурные обои(фоны) для рабочего стола.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7942913FBF52D0E77E4AD5DFA7F70189CE5EBB0D
+magnet:?xt=urn:btih:42CE714BE502B03CB33A73FA30E3B0CB8C5AF529
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,25 +412,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484677   (99944) от 18.04.2012
+###  Публикация: 488304   (100505) от 26.04.2012
 
-Журнал | Современный дом и офис №1 [2012 февраль-март] [PDF]
+Журнал | Копилка семейных советов №8 [апрель 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99944.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полная информация о модных тенденциях и дизайнерских идеях на интерьерном рынке, помощник в решении практических вопросов строительства, ремонта и обустройства комфортного качественного интерьера. Журнал регулярно знакомит своих читателей с новинками рынка, рассказывает о наиболее авторитетных марках и производителях мебели, отделочных материалов, строительных компонентов.2012 февраль-мартФормат: PDF
+«Копилка семейных советов» - полезные советы для дачников и огородников по дизайну и уходу за растениями, кулинарные рецепты, оздоровительные и юридические советы, советы по воспитанию детей, благоустройству дома, рукоделие, секреты жизни звезд и многое другое.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5288B5EB49E4D87BD1C647E92D40A4AE9EA5C5FC
+magnet:?xt=urn:btih:E578BA47F972E874CFE40CF72B85FDDA8DB84345
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,25 +438,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484869   (99943) от 18.04.2012
+###  Публикация: 488479   (100503) от 26.04.2012
 
-[Wallpapers] Wallpapers Fantasy №5 (Pavel)
+[Wallpapers] Wallpapers Sexy Girls (27.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99943.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола 50 шт
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 7200х5600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1253520E194C40624CB51401A4DAA038027FAEF8
+magnet:?xt=urn:btih:090574B70836FA8DAD83CE19F80AEF001BDE246D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,60 +464,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482346   (99915) от 18.04.2012
+###  Публикация: 488076   (100502) от 26.04.2012
 
-Silent Scream - Primiera (2010) [MP3|320 кб/с]<Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (3:49)
-02. Easy Going (6:00)
-03. Panica (7:04)
-04. Axe Fx (7:14)
-05. Shocker (6:57)
-06. Primiera (7:31)
-07. Gold Rush (7:28)
-08. Pandora (6:29)
-09. Selection (7:01)
-10. Prozac (6:07)2010Жанр: PsytranceПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4F37DD46B5FD690D454CAF4943CD5C0A90ECD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484458   (99913) от 18.04.2012
-
-[Wallpapers] HQ Wallpapers by KSV (18.04.12)
+[Wallpapers] Wallpapers Sexy Girls Pack (26.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99913.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4443x3520
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1D341DD8568B9BEB75A5FE8329009247D3A1D5E
+magnet:?xt=urn:btih:406EEE17D9888DE0E256AFC4BC527528991DC5B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -297,25 +490,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483867   (99911) от 18.04.2012
+###  Публикация: 488075   (100501) от 26.04.2012
 
-[Wallpapers] Mixed Wallpapers 0.6
+[Wallpapers] Sexy Girls Pack Wallpapers (26.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99911.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Микс обоев для рабочего стола.
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4368x2730
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90F51231A01E201215D1E2B7C6B5E1C885E84E30
+magnet:?xt=urn:btih:BAFB8C7A30DA1E864E6A3A031F65455D45891D1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -323,25 +516,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484490   (99900) от 18.04.2012
+###  Публикация: 488078   (100500) от 26.04.2012
 
-[Wallpapers] Girls Wallpapers Mix (18.04.12)
+[Wallpapers] Wallpapers Sexy Girls (26.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99900.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 4000х2667
+Обои для рабочего столаРазрешение файлов: 1280х1024 - 2881х2048
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC93603AC3C4D44BD749E789BD8A960C4D1B3D03
+magnet:?xt=urn:btih:DBC90FF10411BE118DD7453D51784C369B54D716
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,25 +542,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484494   (99896) от 18.04.2012
+###  Публикация: 488677   (100499) от 26.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls (18.04.12)
+Улетное видео по-русски. Новый сезон  (2012.04.25) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64A9F79D8F91E5D42DC5613DE0AA1B085F5B299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488481   (100497) от 26.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (27.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99896.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 4000х2662
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5440x4080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EDAE7C3F7388A1F1C34A6F237766EB103EB42C7
+magnet:?xt=urn:btih:7AAA00A1F484367FCE4B5D0C7B9EB0B9B0B125C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,152 +594,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482966   (99888) от 17.04.2012
+###  Публикация: 488077   (100495) от 26.04.2012
 
-Лейтенант Коломбо - Полька Джэмбори (2012) [MP3|320 кб/с]<Old-school Hip-Hop/Funky/Breakbeat>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Фанки Флибустьеры (3:24)
- 02. Вапабадубап (Боевик) (2:26)
- 03. Кинг Оф Рок (3:29)
- 04. Дядя Фрэнки Уходит В Отставку (2:54)
- 05. Кэмбоооу (3:58)
- 06. Фантомас Разбушевался (3:53)
- 07. Р-Н-Р Так Р-Н-Р (2:14)2012Жанр: Old-school Hip-Hop/Funky/BreakbeatПродолжительность: 00:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FAA566A2C441D80C09E18C39018FD2F989E5802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483701   (99881) от 17.04.2012
-
-День Зеро / Day Zero (2007) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка снова вернулась к призывной армии. Трое друзей — адвокат, таксист и писатель — в тридцатидневный срок должны явиться на службу. У каждого из них своя жизнь, но детские узы дружбы не ослабели.
-
-Рифкин — женат, работает адвокатом, его карьера идет в гору. Недавно его назначили партнером фирмы, поэтому он ищет любую лазейку для того, чтобы не идти в армию.
-
-Феллер пишет свой второй роман. Первый роман имел оглушительный успех, и повестка о призыве в армию мешает ему, вызывая творческое бессилие. Он решает составить список 10-ти вещей, которые ему нужно сделать до того, как он начнет служить в армии.
-
-Диксон работает таксистом, живет один и охотно готов служить в армии. Но неожиданно в его жизни происходят события, которые меняют его жизнь.
-
-В течение тридцати дней их дружба проходит испытание на прочность, также как их представления о жизни, смерти, отваге и любви.Жанр: ДрамаРежиссер: Брайан Гуннар КоулАктеры: Элайджа Вуд, Крис Клейн, Джон Бернтал, Джиннифер Гудвин, Элизабет Мосс, Элли Шиди, София Васильева, Джон РотменПеревод: Многоголосый закадровыйЯзык субтитров: отсутствуютПродолжительность: 01:29:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483785   (99878) от 17.04.2012
-
-VA - DJ Club Spring (2012) [MP3|160-320 кб/с]<Club, Dance, Electro, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99878.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christopher S feat. Max Urban - Star (Organ Remix).
-002. Remady & Manu-L Feat. J-Son - Single Ladies (Extended Mix).
-003. Chris Garcia Feat. Sherry St Germain - I Rock Alone (Club Extended).
-004. G & G Feat. Jonny Rose & Chris Reeder - All Falls Down (Jean Elan Remix).
-005. BAZEDA, Custom Drops - Love To Party (Original Mix).
-006. Esteban Aracil - Where Is The Love (Soultwister Remix).
-007. suGar, Eva Kade, Evil T - All Around (Andrea Bertolini Remix).
-008. Lana Del Rey - Videogames (Ben DJ & D-Seven Remix).
-009. Sander Kleinenberg - This Is Miami (DJ Morricone remix).
-010. Jimmyburnside - Uppers & Downers (Original Mix).2012Жанр: Club, Dance, Electro, HouseПродолжительность: 28:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA3E003A567BFD109FE4936D73ADC7C1583C8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484342   (99872) от 17.04.2012
-
-Журнал | Cosmopolitan Shopping №5 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cosmopolitan Shopping — незаменимый гид по стильным покупкам. Это модный, интересный и полезный журнал, который всегда готов ответить на три главных вопроса в жизни женщины: что купить? Где купить? С чем носить?2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D482AC4D2B45FFC62E046D28212CA8531E28389C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484459   (99870) от 17.04.2012
-
-[Wallpapers] Army and military equipment Wallpapers (18.04.12)
+[Wallpapers] Sexy Women Wallpaper (26.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99870.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Обои для рабочего столаРазрешение файлов: 1280х960 - 5616х3744
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:637269915AD9FEA3AE6F1D0C232180CD4A81B72F
+magnet:?xt=urn:btih:8E3C0BA23716F1C9289E3D211959E83F15A0B9B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,214 +620,94 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483888   (99864) от 17.04.2012
+###  Публикация: 487523   (100494) от 26.04.2012
 
-Skreatch vs. Joe Smooth - Promised Milkshake (2012) [H.264] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D7812E5FFA15912B09801401205E10A1974F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484431   (99859) от 17.04.2012
-
-DotEXE - Donations Accepted (2012) [MP3|320 кб/с]<Drum'n'Bass, Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing You Can Do
-02. Come Back To Me
-03. Footsteps
-04. Horsey (DotEXE Remix)
-05. Alicja
-06. Anything You Want
-07. Elektro Funk
-08. Fast Car
-09. Turn On The Radio
-10. Why Can't I Sleep(   Читать дальше...   )2012Жанр: Drum'n'Bass, DubstepПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFD74CE103216D60A8707A6755F217D87129735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483938   (99855) от 17.04.2012
-
-Curandero - Aras (2010) [MP3|320 кб/с]<World>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99855.jpg" />
-</div>
-
-
-###  Подробнее
-
-(09:20) 1. Aras
-(04:53) 2. Segue
-(11:17) 3. River
-(11:25) 4. Man Of The Shadows
-(00:35) 5. Once Upon A Time
-(07:57) 6. Embrujada2010Жанр: WorldПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C9CBCEBD72C831CD7A91BFABB12993BEBB5899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484259   (99853) от 17.04.2012
-
-Decontrolled - The Circle (2012) [MP3|320 кб/с]<Modern Metal, Nu-Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter the Circle
-02. Hidea
-03. Blacklights
-04. Rapture
-05. Encrypted
-06. The Circle
-07. Omnipotent
-08. Deathwish in the Continuum
-09. Grand Scheme
-10. Alive(   Читать дальше...   )2012Жанр: Modern Metal, Nu-MetalПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B93384B587B9355895E702579E6A139F591534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483967   (99852) от 17.04.2012
-
-Astrohenge - II (2011) [MP3|320 кб/с]<Progressive Psychedelic Sludge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodbye (01:39)
- 02. Space Honkly (02:46)
- 03. Tomb Of The Mummy (03:42)
- 04. Lab Chimp Uprising (02:10)Жанр: Progressive Psychedelic SludgeПродолжительность: 00:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E81C81FC48205B9D5F9BD1DB1DB2E192EE4ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484059   (99851) от 17.04.2012
-
-Randall - Eight Storeys (2004) [MP3|320 кб/с]<Ambient, Istrumental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Randall - Eight Storeys (2004)
-Год: 2004
-Жанр: Ambient, Istrumental
-Продолжительность: 00:40:50
-Лейбл: Spacious Music
-Страна: UKКодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130338DFB0022C07FCAC091E9305007281470AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483168   (99846) от 17.04.2012
-
-[Wallpapers] Wallpaper Sexy Girls 0.6
+[Wallpapers] Computer Desktop Wallpapers Pack 2
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99846.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.
+[Wallpapers] Computer Desktop Wallpapers Pack 2
+Название: Computer Desktop Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F64AC5802E58B128BFC056E3712079FB1B675F37
+magnet:?xt=urn:btih:633AA5D8BAE77DAAEAF681E325FB82E6DDF45E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487823   (100493) от 26.04.2012
+
+Brendan Benson - What Kind Of World (2012) [MP3|320 кб/с]<Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Kind Of World
+02. Bad For Me
+03. Light Of Day
+04. Happy Most Of The Time
+05. Keep Me
+06. Pretty Baby
+07. Here In The Deadlights
+08. Met Your Match
+09. Thru The Ceiling
+10. No One Else But You(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009EA992CAA0B83C201FDFB0C46820C77CA0D982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487535   (100492) от 26.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100492.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Computer Desktop Wallpapers Pack 4
+Название: Computer Desktop Wallpapers Pack 4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200/1680х1050 - 4000х2500
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78CB66540EA3EEC4DC133B9832943D4ECC9FBB78
 ```
 
 https://mybot314.ru/tekegram_catalog/

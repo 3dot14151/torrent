@@ -1,3 +1,176 @@
+###  Публикация: 1579410   (336419) от 27.09.2022
+
+Fantastic Cat - The Very Best of Fantastic Cat (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'mon Armageddon (3:17)
+02. New Year's Day (3:12)
+03. Nobody's Coming To Get You (4:03)
+04. Wild & Free (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89645FDF4FFC3EA1CC92C284FEE94C35617015D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579409   (336416) от 27.09.2022
+
+Fabulous Kings - It's Closing Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (4:49)
+02. It's Closing Time (5:43)
+03. The Undertaker (Part I) (5:15)
+04. Give Her To Me Lord (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF9BB8148978824B3DBCD6C0D10FAD474F04747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579399   (336415) от 27.09.2022
+
+Clint Pigg - Dead Man Walking (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Man Walking (3:44)
+02. Lonesome (4:26)
+03. All I Have (3:27)
+04. Papa (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E7B6BF49547FCE937B020271FF50B16C4496CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074783   (336352) от 20.11.2016
+
+Sonny Rollins - Our Man In Jazz (1962) 1995, Classic Compact Discs[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Oleo [25:28]
+ 02.Dearly Beloved [08:22]
+ 03.Doxy [15:23]Жанр: Hard BopПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49D78F9A74DC396F76EDC9FFEA54BAC48ACE1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074774   (336223) от 20.11.2016
+
+The Bob Lanza Blues Band - Time to Let Go (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Your Own Business 03:57
+02. Time to Let Go 03:25
+03. When the Sun Comes Up 05:38
+04. Your Turn to Cry 04:24(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2978A11115E9DC13B9EF00B223456932F913906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074836   (336141) от 20.11.2016
+
+Sonny Rollins - All The Things You Are (1963, 1964) 1990, Bluebird[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Yesterdays [05:15]
+ 02.All The Things You Are [09:35]
+ 03.Summertime [06:00]
+ 04.Just Friends [04:42](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7172BF5CB75AD32796B8EC27983266318612F20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420043   (335823) от 30.10.2020
 
 Billy Cobham - Ayajala Live (2015) [FLAC|Lossless|tracks + .cue] <Fusion>
@@ -583,179 +756,6 @@ B.B. King (Би Би Кинг) - Anthology (5CD) (2007) [APE|Lossless]<Blues>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420198   (334007) от 31.10.2020
-
-Duke Ellington - 3 Essential Albums (1959, 1966, 1972) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334007.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Back To Back:
-01. Wabash Blues [6:31]
-02. Basin Street Blues [8:06]
-03. Beale Street Blues [7:39](   Читать дальше...   )Жанр: Swing, Big Band, Mainstream JazzПродолжительность: 03:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC59570E687F352EDD891A4AAFB500A024DA691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181450   (333959) от 07.11.2017
-
-The Joe Newman Quintet - Jive At Five (1960) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wednesday's Blues [09:10]
-02. Jive At Five [05:39]
-03. More Than You Know [04:02]
-04. Cuein' The Blues [04:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB6784720B2FB42DE8197CDD50C909FE9286D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420297   (333957) от 31.10.2020
-
-Jimmie Vaughan - The Pleasure's All Mine (2020) 2xCD [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333957.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. The Pleasure's All Mine (03:44)
- 02. Come Love (03:17)
- 03. I'm Leavin' It Up To You (03:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A5F971A6B3FB8F56F79A206C0811FE7A8FD48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955539   (333935) от 11.11.2015
-
-The Australian Jazz Quintet  +1 (1957) /2014, Solid Records/[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jazz In D Minor - Part I: Medium [07:33]
- 02.Jazz In D Minor - Part II: Slow [07:16]
- 03.Jazz In D Minor - Part III: Medium [07:15]
- 04.Cubano Chant [04:41](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A4FC1CE435E7E8A25BEA3B1AE3399C0EFA2958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955576   (333911) от 11.11.2015
-
-John Coltrane - "Live" At The Village Vanguard (1961) 2007, Verve [FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Spiritual [13:50]
- 02.Softly As In A Morning Sunrise [06:40]
- 03.Chasin' The Trane [16:12]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487E9DCBAD03E78EB68B843E5CD5C4E0EA5CAB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420400   (333876) от 31.10.2020
-
-VA - Signora Ward Records - Doom Jazz/Dark Jazz/Funeral Jazz vol. 2 (2020) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Funeral Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last call at Nightowls - Veracruz (Roma version) (5:51)
-02. Lowering - A White Cat (5:36)
-03. Shadowed Silhouette - Boundless Graveyard (8:10)
-04. Joel Fausto & Illusion Orchestra - The Portal (4:42)(   Читать дальше...   )Жанр: Doom Jazz, Dark Jazz, Funeral Jazz, Noir Jazz, Noise, ExperimentalПродолжительность: 01:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09EDFBBF8E597188A06D1FF0BDE63EE7BBF3A1DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

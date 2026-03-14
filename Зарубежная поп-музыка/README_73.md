@@ -1,3 +1,61 @@
+###  Публикация: 1585854   (219484) от 24.10.2022
+
+VA - Ballermann Huttengaudi (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bierkapitan - Schere Stein paar Bier (Schnick Schnack Schluck)
+02. Peter Wackel - An der Theke
+03. Ikke Huftgold - Ich schwanke noch
+04. Lorenz Buffel & Anna-Maria Zimmermann - Ein Lied fur diese Welt(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:07:07 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D6A783BD48A4589F3DFC97DD70FC4AEBCC2145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585871   (219458) от 24.10.2022
+
+VA - Karneval am Ballermann 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Zipfelbuben - Olivia
+02. Tim Toupet - Pietro Lombaaadi
+03. Bierkapitan - Ein Pils steht im Wald (die Tannen zapfen)
+04. Almklausi - Wir machen mit bei der Rettung der Erde(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:06:02 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:944102C8E1C016D9A4B918C932E540597AF6C287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585852   (219440) от 24.10.2022
 
 VA - Ballermann Party Hits Megamix 2022.2 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
@@ -685,64 +743,6 @@ VA - 80s & 90s Party Hits (2023) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D40B077CA6E8D04E3B985DF5566CE0170208109F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640463   (211256) от 17.06.2023
-
-Expose - 2 Albums (1987, 1989) LP [MP3|320 Kbps] <Electronic, Freestyle, Electro, Synth-pop, Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанная в 1984 году в Майами компания Exposé (первоначально X-Posed) была детищем продюсера танцевальной музыки Льюиса А. Мартини. Полностью женское трио состояло из Сандры Казанас, Алехандры Лоренцо и Лори Миллер.01. Come Go With Me (4:21)
-02. Let Me Be The One (4:23)
-03. Exposed To Love (3:36)
-04. Seasons Change (4:55)(   Читать дальше...   )Жанр: Electronic, Freestyle, Electro, Synth-pop, Dance-popПродолжительность: 01:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F788537FF397299E3D04B12363266D611999636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642527   (210367) от 28.06.2023
-
-VA - Fall in Love this Summer (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U2 - With Or Without You (4:56)
-02. Lifehouse - You And Me (3:15)
-03. Surfaces - Grace (2:26)
-04. Stephen Sanchez - Lady by the Sea (3:02)(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF95454725DC5C9839EE6857A364788E61F88B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1098484   (908380) от 30.01.2017
+
+VA - Super Hits - Best of Songs 80’ (2017) [MP3|320 Kbps] <Pop , Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908380.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Terence Trent D'Arby - Sign Your Name 4:36
+002. Billy Idol - White Wedding 4:14
+003. Marvin Gaye - Sexual Healing 4:04
+004. Steve Perry - Oh Sherrie 3:49(   Читать дальше...   )Жанр: Pop , DiscoПродолжительность: 07:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834A8D4F20BD397B95F12776FDB105BB5ADD3B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098447   (908206) от 30.01.2017
+
+VA - Rock в дорогу Vol.6 (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Beyond The Black - In the Shadows
+02 In This Moment - Whore
+03 The Rasmus - No Fear
+04 W.A.S.P. - Golgotha(   Читать дальше...   )Жанр: RockПродолжительность: 04:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB5EB09BEAF32FB5F966DBDDC6181974CC24367D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991004   (908201) от 27.02.2016
+
+VA - After Eight Vol 4 (25 Bar Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key Of Dreams - Rainy Days
+02. The Contact Project - Silver One
+03. Sensotango - Libre
+04. Francesco Demegni - Lethal Lady(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF70B0340129C6B8574C4080188FC28CFB73D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866648   (908200) от 05.02.2015
+
+The Carbonfools - The Best (2008 - 2014) [MP3|192, 320 кб/с]<Alternative, Electronic, Indie, Pop Rock, Dance Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carbonfreak
+02. Furilla
+03. But She
+04. The Mirror(   Читать дальше...   )Жанр: Alternative, Electronic, Indie, Pop Rock, Dance RockПродолжительность: 01:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA5F30DB3BDDFD958F4FBF7F86D22D004086E04F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991254   (908197) от 27.02.2016
 
 VA - Electro House 50 Vol. 2 (2016) [MP3|320 кб/с] <Progressive, Electro, Club>
@@ -629,122 +745,6 @@ VA - Chillout Dream. Winter (2017) [MP3|320 Kbps] <Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09CC184CD5D7A11B7F2C02E6F7B4B21E657344F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991049   (907298) от 27.02.2016
-
-VA - Дискотека 2016 Club Dance Vol. №149 от NNNB (2016) [MP3|128-320 кб/с] <Club, Dance, Deep House, Trance, Electro House, Progressive House, Drum’n’Bass, Trap, Bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Analise feat. Alexis - I Love You
-02. Scooter - Don't Break The Silence
-03. Yandel feat. Pitbull & El Chacal - Ay Mi Dios
-04. The Chainsmokers feat. Daya - Don't Let Me Down(   Читать дальше...   )Жанр: Club, Dance, Deep House, Trance, Electro House, Progressive House, Drum’n’Bass, Trap, BassПродолжительность: 10:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F080B731A903756A773EF5BA193CD4E18F9B2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099008   (907215) от 31.01.2017
-
-VA - Beatport Trance Pack (31.01.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bluskay - Breakthrough (Original Mix)  7:22
-02.  Ronski Speed - Horoscope (Ronski Speed Remix)  6:37
-03.  Alex M.O.R.P.H. & Song ft. The Moon - Dont Talk Away The Magic (Heatbeat Remix Extended)  6:42
-04.  Gary McPhail - Scott (Ula Remix)  7:10(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, VocalПродолжительность: 08:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32002A2D41DB7291896F44F7035612985055681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368318   (907077) от 21.03.2020
-
-Linkin Park - Essentials (2020) [MP3|320 Kbps] <Rock, Alt.Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linkin Park - In The End 3:37
-02. Linkin Park - Numb 3:06
-03. Linkin Park - One More Light 4:15
-04. Linkin Park - Somewhere I Belong 3:34(   Читать дальше...   )Жанр: Rock, Alt.RockПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF848BB730E17D8D20F278F312BD3C6E6F11485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368314   (907073) от 21.03.2020
-
-System Of A Down - Essentials (2020) [MP3|320 Kbps] <Rock, Alternative, Nu-Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chop Suey! 3:31
-02. Sugar 2:34
-03. Toxicity 3:39
-04. B.Y.O.B. 4:16(   Читать дальше...   )Жанр: Rock, Alternative, Nu-MetalПродолжительность: 01:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE47B061AB711929BAE74F9ABF7D7000D886F2FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

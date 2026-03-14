@@ -1,3 +1,32 @@
+###  Публикация: 1573165   (238351) от 30.08.2022
+
+VA - Solid Gold Hits (2022) [MP3|320 Kbps] <New Wave, Euro Disco, Rhythm & Blues, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starship - Nothing's Gonna Stop Us Now
+02. Fleetwood Mac - Dreams (2018 Remaster)
+03. Red Hot Chili Peppers - Under the Bridge
+04. Faith Hill - This Kiss(   Читать дальше...   )Жанр: New Wave, Euro Disco, Rhythm & Blues, RockПродолжительность: 04:02:34 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBDF26F135AB2783F415CC55404106A865D5284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548094   (237930) от 02.05.2022
 
 VA - Shazam Хит-парад World Top 200 Апрель (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -714,35 +743,6 @@ VA - Music News vol.267 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15D10FB4A665B6DF04DCD0BA05C53E2102FADF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581289   (231375) от 04.10.2022
-
-VA - Русские Хиты 5 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231375.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Пропаганда - Недоступный Абонент (2:32)
-002. Группа Вместе - Сделай шаг (2:39)
-003. ANNA ASTI - По барам (3:57)
-004. Katya Stefa - Притяжение (2:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75E8B68A7704399446711CB9F263D77C7F10095
 ```
 
 https://mybot314.ru/tekegram_catalog/

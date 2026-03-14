@@ -1,3 +1,61 @@
+###  Публикация: 1619509   (1032905) от 16.03.2023
+
+VA - British Blues: From Skiffle to Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Status Quo -- Spinning Wheel Blues (3:19)
+02. Cyril Davies & His R&B All Stars -- Chicago Calling (2:25)
+03. Man -- Sudden Life (4:41)
+04. Atomic Rooster -- Save Me (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E5B9648F73AD2D42EBE3EADCAAF38203F73D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446268   (1032884) от 08.02.2021
+
+Mark Sutherland - The Good Fight (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock;Psychedelic>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Your Love (4:52)
+02. Black Swan (3:45)
+03. Next to Me (3:49)
+04. So Called Modern Times (4:30)(   Читать дальше...   )Жанр: Blues Rock;PsychedelicПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C72B1F52226791C9FC716EA487C40F42AE4D16B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619760   (1032793) от 17.03.2023
 
 The Gayle Harrod Band - Temptation (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -687,64 +745,6 @@ PD Martin - Soulbeat Incarnate (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01A021E2CB2217B1223D8B622787E6B071A65A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620229   (1032358) от 19.03.2023
-
-The Answer - Sundowners (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock, Hard-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sundowners [00:06:31]
-02 - Blood Brother [00:03:12]
-03 - California Rust [00:03:38]
-04 - Want You To Love Me [00:03:21](   Читать дальше...   )Жанр: Blues Rock, Hard-RockПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE3F262B808844694C0B82C7BD1F6E45E7EE723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446937   (1032345) от 11.02.2021
-
-Roseanna Vitro - Softly (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling in Love with Love [3:38]
-02. In Summer (Estate) [5:36]
-03. A Song for All Ages [4:54]
-04. Softly, as in a Morning Sunrise [4:39](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F6BEA1462206204FB8C37AEC1425E058440A17
 ```
 
 https://mybot314.ru/tekegram_catalog/

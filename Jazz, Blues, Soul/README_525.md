@@ -1,3 +1,177 @@
+###  Публикация: 1748008   (104593) от 08.09.2024
+
+VA - Wild About You (Sexy Feel-Good Blues, Rock, Funk Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Lawrence - Oh Baby Baby (3:46)
+02. JJ Soul Band - Wild About You (2:56)
+03. Suzanne's Band - Back to Brown (2:31)
+04. Bob Russell - Heaven Can Wait (2:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3220B89CC2974D2E64A70AC98BBB8127767C5F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747995   (104592) от 08.09.2024
+
+VA - Smoky Blues: Smooth Lounge Mix (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timo Arthur - I Wish I’d Thought of That (3:59)
+02. Martin Howard - The Night Train (2:49)
+03. John Jenkins - Rodeo Girl (4:05)
+04. JJ Soul Band - Angelique (6:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75020E0352551BB8D0C7BEB0B19CF2A61F512A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748069   (104590) от 08.09.2024
+
+Scott Hamilton - Jazz Signatures (2001) Concord [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raincheck [5:06]
+02. In Your Own Sweet Way [7:04]
+03. Jitterbug Waltz [7:37]
+04. If You Could See Me Now [5:32](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685309AD4892408AB50163ACA3AA1F9743DC3A52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748121   (104588) от 08.09.2024
+
+VA - Enriching Peaceful Supreme Happiness Smooth Experience Playlist During Vacation (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Scent of Spring (4:52)
+02. Chillaxing Jazz Kollektion - Alluring Smiles (3:53)
+03. Chillaxonic - Inner Reflections (4:32)
+04. Konstantin Klashtorni - Used to Love You (4:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FE879B7E5C9171C5FF7D1990E01C0F0F2D4C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748112   (104587) от 08.09.2024
+
+Lowell Hopper - Impulse (2024) [FLAC|Lossless|WEB-DL|tracks] <Smoonth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impulse (4:12)
+02. Golden Hour (3:55)
+03. If You Wanna (4:42)
+04. Turn the Lights Down Low (4:24)(   Читать дальше...   )Жанр: Smoonth JazzПродолжительность: 00:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2849AA6D180332DB0BB3D34521002D656F7E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748122   (104586) от 08.09.2024
+
+VA - Magical Breathtaking Relaxing Tunes for Calmness and Quiet Beauty of a Vacation (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Kissed by the Sun (4:11)
+02. Chillaxonic - Aurora (5:13)
+03. Chillaxing Jazz Kollektion - Enigma (3:34)
+04. eJazz Artistry - I Can't Stop Loving You (4:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88000A558E83492508AD6FC58ACF19ACF9F9C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748119   (104579) от 08.09.2024
 
 VA - Divine Seductive Easy Listening Relaxation Chill Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -571,180 +745,6 @@ Stan Getz - The Complete Quintet Sessions (1948 - 1952) 1994, Blue Moon [WavPack
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C9B3CF3ECA705FAF5C01C5D09CE6F35C378F571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750582   (104147) от 21.09.2024
-
-Alastair Greene, Eric Johanson & Katarina Pejak - Blues Caravan 2024 (Blues Caravan 2024 Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alastair Greene - Come on in My Kitchen (3:02)
-02. Jeremy's Boat (4:27)
-03. Notes on Boredom (4:10)
-04. Excuses (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F548720B8F123FE1E62D37D1F73321805F6B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750766   (104119) от 22.09.2024
-
-Frank Sinatra - Sinatra 80th: Live In Concert (1995) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are The Sunshine Of My Life [2:37]
-02. What Now My Love [2:41]
-03. My Heart Stood Still [3:29]
-04. What's New [2:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9B8D956B3AB626781D0697CD079A8D394363F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751634   (104058) от 26.09.2024
-
-Sonny Stitt - & The Top Brass (1962) 1998, Atlantic [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Souls Valley [4:31]
-02. Coquette [3:19]
-03. On a Misty Night [4:04]
-04. Stittsie [5:57](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD70DD985D5AC9C73B88459DC29E593FFB8ACDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751603   (104054) от 26.09.2024
-
-Cannonball Adderley - Paris Jazz Concert: Salle Pleyel, Olympia (1960, 1961,1969) 2CD, 2002, LaserLight [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rufus Still Skinned (Rumpelstiltskin) [13:06]
-02. Black Orpheus [9:33]
-03. Work Song [9:12]
-04. Experience in E [13:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFCBD8603DB0EA616E2C660440A9739F197642A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752053   (103998) от 28.09.2024
-
-Frank Sinatra - Frank Sinatra: Legend (1998) Hey Presto! [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Surrey With The Fringe On Top [2:20]
-02. The Devil And The Deep Blue Sea [2:12]
-03. That Old Black Magic [2:26]
-04. I Don't believe In Rumours [2:44](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Easy ListeningПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6D3FDEE5531D70E772FE0A8C3F9F6E51A84360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752068   (103994) от 28.09.2024
-
-Van Morrison - New Arrangements And Duets (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain’t Gonna Moan No More (feat. Kurt Elling)
-02. Broken Record (feat. Kurt Elling)
-03. Avalon Of The Heart
-04. Close Enough For Jazz (feat. Curtis Stigers)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A3C6A1B3F13B246A0CE95ACAD88A1B5AA41022
 ```
 
 https://mybot314.ru/tekegram_catalog/

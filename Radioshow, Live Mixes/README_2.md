@@ -1,3 +1,61 @@
+###  Публикация: 1460928   (1022302) от 07.04.2021
+
+The Blizzard - AVACast Guest Mix (2021-03-29) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blizzard - Torden
+02. The Blizzard & The Madison - Sequoia
+03. The Blizzard - Sol
+04. The Blizzard - Snøfnugg(   Читать дальше...   )Жанр: TranceПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6131CA723FBD3CD80DB8AE678A1D233C7AE0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461691   (1021782) от 10.04.2021
+
+Armin van Buuren - One World Radio Armin's Weekend Kick-Off 100 (Extended Special) (2021-04-09) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren ft. Sharon Den Adel - In And Out Of Love (Ilan Bluestone & Maor Levi Remix)
+02. Armin van Buuren & AVIRA ft. Sam Martin - Mask
+03. Armin van Buuren & Avian Grays ft. Jordan Shaw - Something Real
+04. Above & Beyond ft. Zoë Johnston - There's Only You (Above & Beyond Club Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E15754FABB0DF33D7E0116AB6A0B1C644D114D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462094   (1021432) от 12.04.2021
 
 Nora En Pure - Live @ Graubünden, Switzerland (2021-04-03) [MP3|320 Kbps] <Deep House, Progressive House>
@@ -687,64 +745,6 @@ PAX - Fated(   Читать дальше...   )Жанр: Progressive House, Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:144C093246B57F71D73141FFCD54BEEC7FBD78B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737621   (959383) от 26.01.2016
-
-Tiesto - Club Life 351 - 460 (Обновляемая) (2013-2016) [MP3|128-320 кб/с]<Progressive House, Electro House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tube & Berger feat. Juliet Sikora - Set It Off
-02. Tim Berg feat. Amanda Wilson - Seek Bromance (Dear David & Posse Version)
-03. C-Block - So Strung Out (Christian Cardwell & Nigel Stately Remix)
-04. Lexer feat. Chantal - Dream & Love (Pingpong Tanzt Mix / SonneMondSterne Version)(   Читать дальше...   )Жанр: Progressive House, Electro House, Deep HouseПродолжительность: 195:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657EB75E46E4D0B0D3F057721F7B2240007F1636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363650   (942610) от 28.02.2020
-
-Cold Blue - Live @ Crystal Forest Medellin, Colombia 2020-02-22 [MP3|256 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Blue - Golden Leaves
-02. Cold Blue - Once In Time
-03. Cold Blue - Dreamland
-04. Cold Blue - Simplicity(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF1F9D2D8D6340B49DF6C2DCB1A85138CE1FF94E
 ```
 
 https://mybot314.ru/tekegram_catalog/

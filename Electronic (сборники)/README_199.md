@@ -1,3 +1,32 @@
+###  Публикация: 1345222   (167350) от 14.12.2019
+
+VA - Sweet Green Dreams: Natural Relaxed Mix (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167350.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Afterlife Feat. Cathy Battistessa - Speck Of Gold
+002. For The First Time - Jules Calmer
+003. Madhukar - When Love Rules
+004. Cream Lounge - Balearica Del Mar(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 08:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA003FC77448C120292047AA2313D5FAC6F2ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345224   (167249) от 14.12.2019
 
 VA - House Garden Music: Edm Extended Mix (2019) [MP3|320 Kbps] <House, Electro, Edm>
@@ -716,35 +745,6 @@ VA - Deep House: NME Hot Electro Set (2021) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A23759DC7B40CAEA10712B5CAA1FA386FD0F2C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598792   (161311) от 21.12.2022
-
-Vargo - Compilation (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (Original Chorus Mix)
-02. Relax (Blank & Jones, Vargo Vocal Rmx)
-03. Those Were the Days
-04. Slowdive(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAFC067257AEF0AFB5AF313858F8F8B63B575B32
 ```
 
 https://mybot314.ru/tekegram_catalog/

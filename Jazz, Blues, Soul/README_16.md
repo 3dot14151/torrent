@@ -1,3 +1,61 @@
+###  Публикация: 1438486   (1040815) от 09.01.2021
+
+Layla Zoe - Nowhere Left to Go (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pray (4:12)
+02. Nowhere Left to Go (3:47)
+03. Sometimes We Fight (4:44)
+04. Don't Wanna Help Anyone (4:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9220FB07319305654E7EAF4A7090FA51AB9A08E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438524   (1040812) от 09.01.2021
+
+Layla Zoe - Nowhere Left to Go (2021) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pray (04:12)
+ 02. Nowhere Left to Go (03:47)
+ 03. Sometimes We Fight (04:44)
+ 04. Don't Wanna Help Anyone (04:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237D9806A4EA15F13C1BF80F7AE9CF7989BBFACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438487   (1040808) от 09.01.2021
 
 Ned Evett - Glass Guitar (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -686,64 +744,6 @@ Shaun Murphy - Flame Still Burns (2020) [FLAC|Lossless|image + .cue] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBC567655EFFCEF15201AAEC04D5F9462034F227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439517   (1039520) от 14.01.2021
-
-Lachy Doley - Double Figures (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gimme Some Lovin' (5:51)
-02. Fire To Save (4:01)
-03. Conviction (5:29)
-04. Make It Up (4:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14292A019796DFD61D38C135E77972B34EC56EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439525   (1039517) от 14.01.2021
-
-William Shatner - The Blues (2020) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Home Chicago (2:55)
-02. I Can't Quit You, Baby (4:39)
-03. Sunshine Of Your Love (4:21)
-04. The Thrill Is Gone (4:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F385E7AF40BDE2637AC6CEDDC9045BCD50D7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1539078   (659232) от 24.03.2022
+
+Almach - Dream Elegy (2021) [MP3|320 Kbps] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Adraskan (00:01:38)
+02 - Dream Elegy (00:09:27)
+03 - Kandahar (00:09:18)
+04 - Death Is An Illusion (00:06:40)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F541D8F7B8DA4B180AFC616A12A5A4631F1E5012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903007   (659216) от 30.05.2015
 
 Armored Saint - Win Hands Down (2015) [MP3|320 кб/с]<Heavy Metal>
@@ -728,35 +757,6 @@ Warfect - Scavengers (2016) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE1BA0067804D2A3C688BDA43F67A62F67473594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031620   (652151) от 04.07.2016
-
-Divine Intervention - Traveler (2016) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prequel
-02. Misdirect
-03. Architect
-04. Alpha(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF965E4D670C1FCA1345C2D8278B7D75E72FBCBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

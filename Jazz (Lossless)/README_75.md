@@ -1,3 +1,90 @@
+###  Публикация: 1203744   (787727) от 03.02.2018
+
+Brubeck & Desmond - Jazz At Storyville (1952) 1986, Fantasy [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over the rainbow [05:07]
+02. You go to my head [07:52]
+03. Give a little whistle -Oh,lady be good [06:56]
+04. This can't be love [04:10](   Читать дальше...   )Жанр: CoolПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70974E9A4AAB07E6A5CC191C7C9A8A3D963D997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203755   (787711) от 03.02.2018
+
+Tamuz Nissim - Echo Of A Heartbeat (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Time in a Bottle 5:52
+02.	Fried Bananas 3:41
+03.	My World 4:45
+04.	Just Squeeze Me 5:17(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4934663A78E729C00EA9486A1A0C50944B6D6D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203773   (787710) от 03.02.2018
+
+John Surman, Nelson Ayres, Rob Waring - Invisible Threads (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Creative Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At First Sight
+02. Autumn Nocturne
+03. Within the Clouds
+04. Byndweed(   Читать дальше...   )Жанр: Modern Creative JazzПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEDED257402CD6BCF215117B0BD677B61CF84ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203775   (787705) от 03.02.2018
 
 Carmen McRae - Sings Lover Man And Other Billie Holiday Classics (1961) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -658,93 +745,6 @@ Anita O'Day - Anita O'Day's Finest Hour (1954 - 1962) 2000, Verve [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE269B03FBD47DAD2EF0CC3863C950EBCDE6D78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123873   (786221) от 09.04.2017
-
-Valery Ponomarev - Profile (1991) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Was Afraid You'd Never Call Me [06:56]
- 02.I Concentrate On You [14:07]
- 03.Time [09:48]
- 04.High Voltage At Rudy's [09:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DCC720FF029BD171648B507E808B8FF93300CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124047   (786207) от 09.04.2017
-
-Jonathan Butler - Do You Love Me? (1997) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Song for Elizabeth (04:10)
-02 Do You Love Me? (04:34)
-03 The Other Side of the World (04:33)
-04 Life After You (04:43)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181B7B5FB2962E8E117B0DF59893C2227ADBB624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123947   (786193) от 09.04.2017
-
-Karolina Smietana - Illusion (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something
-02. Skylark
-03. Within
-04. É Preciso Perdoar(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375E34BF88EFE21659EB7F38BDF6DD8427DD29CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1339657   (265358) от 20.11.2019
+
+Mustasch - Killing It For Life (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265358.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Where Angels Fear To Tread (Album Version) [4:08]
+ 2 - Ransacker [5:13]
+ 3 - Before A Grave [5:06]
+ 4 - Freddie Mercury [4:53](   Читать дальше...   )Жанр: Heavy Metal, Stoner MetalПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD3E002AD2CB4D7C9F714F9CE96F1EB3946E7A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339666   (265257) от 20.11.2019
 
 Lindemann - F&M Frau Und Mann (Deluxe Edition) (2019) [MP3|320 Kbps] <Industrial, Neue Deutsche Harte>
@@ -753,35 +782,6 @@ Fallen Lillies - Cran (2025) [MP3|320 Kbps] <Glam Metal, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53F11966837F9DE163A4B75BEE58B2CCED41415D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834174   (248548) от 03.11.2025
-
-Moonspell - Opus Diabolicum - The Orchestral Live Show (Live) (2025) [MP3|320 Kbps] <Atmospheric-Gothic-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tungstennio (feat. Orquestra Sinfonietta de Lisboa) (Live)(6:52)
-02.Em Nome do Medo (feat. Orquestra Sinfonietta de Lisboa) (Live)(5:31)
-03.1755 (feat. Orquestra Sinfonietta de Lisboa) (Live)(5:34)
-04.In Tremor Dei (feat. Orquestra Sinfonietta de Lisboa) (Live)(4:18)(   Читать дальше...   )Жанр: Atmospheric-Gothic-MetalПродолжительность: 01:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2A121588ECC0B294B397A0224EA61EDD632861
 ```
 
 https://mybot314.ru/tekegram_catalog/

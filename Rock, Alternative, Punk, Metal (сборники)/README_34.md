@@ -1,3 +1,32 @@
+###  Публикация: 844212   (318036) от 25.11.2014
+
+VA - 100 Hits Total Rock (2014) 5 CD (2014) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318036.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Disc:
+01 Meat Loaf - Bat Out of Hell (4:49)
+02 Alice Cooper - Poison (4:30)
+03 Boston - More Than a Feeling (3:29)(   Читать дальше...   )Жанр: RockПродолжительность: 06:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D1A24B592B67B6D2ABF8A2A5DAB53707B8A1B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182330   (316398) от 10.11.2017
 
 VA - Для Тех, Кто Помнит! Русский Рок Vol.7 от Ovvod7 (2017) [MP3|320 Kbps] <Рок>
@@ -725,35 +754,6 @@ Bon Jovi Music Box (2002)(   Читать дальше...   )Жанр: Rock, Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEE7A217AAF20159BCFCBA07CC5FBAAAA6CAC3CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 159116   (292502) от 20.12.2009
-
-Boney Nem - 40 лучших композиций (до 2008) [MP3|192]<Панк рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Daddy Cool
-02 - В мире животных
-03 - We are the world, we are the children
-04 - It's My Life(   Читать дальше...   )Жанр: Панк рокПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

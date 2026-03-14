@@ -1,3 +1,38 @@
+###  Публикация: 580241   (344689) от 24.11.2012
+
+VA - Сборник дабстепа с женским вокалом (2010-2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344689.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	501 - Grindhouse
+2.	501 ft. Belle Humble - Headrush
+3.	Above & Beyond feat. Zoe Johnston - You Got To Go (Seven Lions Dubstep Remix)
+4.	Adele vs. Skrillex - Set Fire To Everybody (ca7's Mashup)
+5.	Adventure Club Ft Krewella - Rise & Fall
+6.	Amy Kuney - Kiss me Like You Mean it (Butch Clancy Remix)
+7.	Aelyn - In And Out Of Love (DJ Men Bootleg Mix)
+8.	Bat For Lashes - Daniel (Mt Eden Dubstep remix)
+9.	Big Gigantic - We Are The Sun by Savoy ft. Heather Bright
+10.	Booty Luv - Say It (Nero Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 11:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBADFF51AB22DB035A5DCD05011CF991BA0F71C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953838   (344666) от 06.11.2015
 
 VA - Fantastic Running (Best of Jogging Music) (2014) [MP3|320 кб/с]<Electro, Minimal, Deep House>
@@ -745,41 +780,6 @@ Dj Parafich [Based on the LAOS project] - Vocal Drum And Base Romantica (2012) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C285F178829A1C46589623B3CFCA9201FEC39A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580737   (340624) от 26.11.2012
-
-VA - DubStep Pro V.6 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vinyl Scratch - Drowned In Love
-02. Peace Treaty - In Time (Gnitti Remix)
-03. Dead Audio feat. Jade Harris - Take Me Away (Extended Mix)
-04. Killafoe - Hatorade (J.Nitrous Remix)
-05. WiSkiM - Empty Rivers
-06. DJ Vibes - Sing It Loud (DJ Slim, Bedsit Producers Refix)
-07. Obscenity & Killabyte ft. Messinian - Blitz Crank (Original Mix)
-08. Foxes feat. Matt Wiggins & Ghostwriter - Echo (MONSTA Remix)
-09. Suoy - Final Symphony (Original Mix)
-10. Phaeleh Feat. Soundmouse - The Cold in You (Kahn Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 04:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069822792E9043CBE99FDF356499768206B60134
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1551047   (21792) от 11.04.2025
+
+Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_21792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epica — нидерландская группа, образована в 2003 году ритм-гитаристом и вокалистом Марком Янсеном после его ухода из After Forever. Визитной карточкой Epica являются женский вокал в сочетании с мужским гроулингом и скримингом. Также в группе используется струнный оркестр и хор.2003 - The Phantom Agony
+2005 - Consign To Oblivion
+2007 - The Divine Conspiracy
+2009 - Design Your Universe(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 16:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE55D1D117A0951BA575A8AB0A4F50CAD457BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791615   (21239) от 16.04.2025
+
+The Darkness - Dreams on Toast (2025) Members' Edition, 2025, Cooking Vinyl Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Rock and Roll Party Cowboy
+02 – I Hate Myself
+03 – Hot on My Tail
+04 – Mortal Dread(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F09CFA5E8BE4152C6A6B6C82EF17D679BEF9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792017   (21216) от 16.04.2025
+
+OK Go - And the Adjacent Possible (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock, Power Pop, Electronic, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impulse Purchase [00:02:39]
+01. A Stone Only Rolls Downhill [00:03:20]
+03. Love [00:03:50]
+04. A Good, Good Day at Last [00:02:59](   Читать дальше...   )Жанр: Indie Rock, Power Pop, Electronic, DiscoПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E658DEA835D70416FFC3FD251507B47B1BB1FC1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791353   (21212) от 16.04.2025
+
+Nightsteel - Nightsteel (2024) Remastered, 2025, Cosmic Fire Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nightsteel [4:39]
+02 - Darkness Reigns [5:17]
+03 - Screams of Agony [3:48]
+04 - Warlord's Betrayal [4:07](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160DDDF9A371BE4D58C7AA7B1CC5DEB38A3C645E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791518   (21109) от 17.04.2025
+
+Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The Song Of Songs (1986) Repress, Quadraphonic [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Renaissance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21109.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Osculetur Me	2:55
+A2 Trahe Me	2:50
+A3 Nigra Sum, Sed Formosa	4:25
+A4 Vineam Meam Non Custodivi	2:50(   Читать дальше...   )Жанр: Classical, RenaissanceПродолжительность: 01:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE0C8427675FD79E66C2AB4E67F0EBB79FA3CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548427   (20958) от 19.04.2025
 
 Arch Enemy - Дискография (17 albums) (1996-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
@@ -599,151 +744,6 @@ Crematory - Destination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51F271CC63CED88008F2AE660B5687D81686E0D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795416   (19356) от 04.05.2025
-
-Thomas Anders - … Sings Modern Talking: Let's Talk About Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 00:36:42
-01. Cheri Cheri Lady (Thomas' Version - In the Mix) (3:04)
-02. With a Little Love (Thomas' Version - In the Mix) (2:54)
-03. Wild Wild Water (Thomas' Version - In the Mix) (2:55)(   Читать дальше...   )Жанр: PopПродолжительность: 2CD, 01:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC16886594F90E67ED9EC7BAF5B41E9F1BDDDAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795979   (19040) от 07.05.2025
-
-Caliban - The Undying Darkness (2006) [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro
-02 - I Rape Myself
-03 - Song About Killing
-04 - It's Our Burden To Bleed(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4149C489DF7C8DE0398E594666B43F3E53BE6E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795892   (19039) от 07.05.2025
-
-Believer - Extraction from Mortality (1989) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Technical Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19039.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Unite
-A2 Vile Hypocrisy
-A3 D.O.S. (Desolation Of Sodom)
-A4 Tormented(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F493BAABCC128DFF80E1F6AE8D47D80A016635B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795818   (19035) от 07.05.2025
-
-Bekor Qilish - Throes of Death From the Dreamed Nihilism (2022) Released, 2023, I, Voidhanger Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Avant-Garde Black, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19035.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Cryptic Hatred (04:34)
-A2. Self-Destructed Destruction (03:41)
-A3. Verminous Barrier (02:20)
-B1. Ocean of Malice (04:42)(   Читать дальше...   )Жанр: Avant-Garde Black, Death MetalПродолжительность: 00:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520683272C3DF6F488C4F90A273D58022D645F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796167   (18934) от 08.05.2025
-
-Behemoth - The Shit Ov God (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shadow Elite (4:39)
-02. Sowing Salt (3:07)
-03. The Shit Ov God (5:37)
-04. Lvciferaeon (4:16)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94D04400422EA2E7D8729B840A9D98C59C19EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

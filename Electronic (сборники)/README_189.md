@@ -1,3 +1,32 @@
+###  Публикация: 964934   (228873) от 12.12.2015
+
+VA - Trance Desire Volume 58 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_228873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neev Kennedy with Adrian&Raz - Crystal Clear (Igor Dyachkov & U-Jeen Remix) (06:41)
+02. Dart Rayne & Yura Moonlight feat. Cathy Burton - Incomplete (Original Mix) (06:51)
+03. Myon & Shane 54 feat. Amy Pearson - Hurricane (Myon & Shane 54 In Search Of Sunrise Mix) (08:12)
+04. Tenishia & Ana Criado - Ever True (Club Mix) (07:25)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245471C24F7B9CCE5CC572CD51B22F5B0A0BD949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965230   (228633) от 13.12.2015
 
 VA - Chillout Hits (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -746,35 +775,6 @@ VA - In Da Club 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Trance, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA3CC0A2434A98D22783CE3AA73F3E3D9A493F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342238   (224385) от 01.12.2019
-
-VA - Tried Everything: Dance Mixtape (2019) [MP3|320 Kbps] <House, Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224385.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Markus Schulz & Nifra - Ave Maria (Extended Festival Mix)
-002. Deks - Retro
-003. Lucas Zamora - Believe In Me
-004. Timmy Trumpet - World At Our Feet(   Читать дальше...   )Жанр: House, Trance, ElectroПродолжительность: 10:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A82DBC5FB7E18689EDF32FDC6D7D4D79E388BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1739030   (106226) от 25.07.2024
+
+Geegun - The Best Of (2008) [WavPack|Lossless|image + .cue] <Thug Rap, Gangsta, Pop Rap, Hardcore Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Только Тебе
+ 02. Мы Завели
+ 03. На Первом
+ 04. Skit(   Читать дальше...   )Жанр: Thug Rap, Gangsta, Pop Rap, Hardcore Hip-HopПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7426D7BE9DFAC58C45BF390DAF2C60C8091A6462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738293   (106216) от 25.07.2024
+
+Естественный Zагар - Солнечная Радиация (2008) [WavPack|Lossless|image + .cue] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Лето
+02		Ибицу Смыло
+03		Мало Солнца
+04		Ветер(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFBBBBE1D57F38401FF9115C56A1919874BB2CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740838   (105747) от 04.08.2024
+
+Лигалайз - XL (2006) [WavPack|Lossless|image + .cue] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+ 02. Остаться
+ 03. Почувствуй Силу
+ 04. Будущие Мамы(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E019A5EB1E94802362F277692E739551776E7922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741288   (105662) от 07.08.2024
+
+Многоточие - За Бесконечность Времени... (2007) [WavPack|Lossless|image + .cue] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+ 02. Кольца Спирали
+ 03. Её Слёзы Пахнут Проявителем
+ 04. Они Говорят(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8353AEEF4D6BA55BDA72DBB513F67BDB9E52ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741978   (105348) от 18.08.2024
 
 Logic - Ultra 85 (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -642,128 +758,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0502B31A7DD614A9F7F1902239130A932F5490EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456036   (77606) от 21.02.2012
-
-Bob Marley - Greatest Hits (2007) [MP3|320 кб/с]<Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iron Lion Zion (3:15)
-02. Could You Be loved (4:00)
-03. Is This Love (3:53)
-04. I Shot The Sheriff (4:43)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 02:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D0584F582A444D4C1D52F9822EB09F7FF2EA0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454765   (77161) от 19.02.2012
-
-Cephei MC - Beat and Piano (Сборник красивой и чувственной музыки) (2012) [MP3|320 kbps]<Hip-Hop, Rnb, Dance>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Симфония Любви (04:53)
-02. in Dreams (05:21)
-03. Ветер перемен (04:22)
-04. Criminal romance (03:52)
-05. Moon (04:12)
-06. Позитив (04:36)
-07. В поисках открытий (03:42)
-08. Расстояние (02:36)
-09. Серенада сердца (07:10)
-10. Музыка Лунной ночи (05:13)(   Читать дальше...   )2012Жанр: Hip-Hop, R'n'b, DanceПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A06F3B5F2BC74B2BA3278D9A0B08FD334FFAB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450763   (75516) от 11.02.2012
-
-25/17 - Межсезонье (2012) EP [MP3|320 kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Межсезонье
-02. Жизнь продолжается (п.у. D-Man 55)
-03. Стена (п.у. MC 1.8, Карандаш)
-04. Восток (п.у. Саграда (Соль Земли))(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771700   (71822) от 07.01.2025
-
-Joell Ortiz & L'Orange - Signature (2023) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Underground Hip-Hop, Boom Bap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uncle Chris Car (1:43)
-02. In My Feelings (2:21)
-03. Housing Authority (feat. KXNG Crooked) (2:59)
-04. One Day (2:49)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom BapПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1059B9F4AB18CDF9DFDB40437FF318C8E04A60B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

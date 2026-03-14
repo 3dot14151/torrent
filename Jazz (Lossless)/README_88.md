@@ -1,3 +1,90 @@
+###  Публикация: 1280497   (760631) от 03.02.2019
+
+McKinney's Cotton Pickers - 1929 - 1930 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plain Dirt [2:42]
+02. Gee, Ain't I Good To You? [3:26]
+03. I'd Love It [3:06]
+04. The Way I Feel Today [2:47](   Читать дальше...   )Жанр: SwingПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB565140C3989206231B8395E97646A53880DC51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280495   (760630) от 03.02.2019
+
+Blue Mitchell - Vital Blue (1971) 2017, Solid Records [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booty Shakin' [5:30]
+02. Vital Blue [5:25]
+03. Unseen Sounds [3:34]
+04. Herman's Helmet [7:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C57D70BF17A41F9CF4139CFE48E662DF22FAFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280334   (760624) от 03.02.2019
+
+Ant Law - Life I Know (2018) [FLAC|Lossless|tracks+.cue] <Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Movies. 4:52
+02. Searching. 2:40
+03. Aquilinus. 7:45
+04. Pure Imagination. 2:50(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3839CE322AFD9E918F58B9AA365A456863579B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394850   (760622) от 07.07.2020
 
 Andre Previn - Plays Songs By Harold Arlen 1960 (1994) Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -661,93 +748,6 @@ Jimmy Scott - The Source (1970) [FLAC|Lossless]<Vocal Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018264   (757743) от 19.05.2016
-
-Bobby Hutcherson - In The Vanguard (1987) Landmark[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Little Niles [06:46]
- 02.Estate [07:57]
- 03.Well, You Needn't [07:33]
- 04.Young And Foolish [10:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CAD6D656B79C9C8B749BA5F1A40DF196FEDEFDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018106   (757732) от 19.05.2016
-
-Paul Motian, Bill Frisell, Joe Lovando - I Have The Room Above Her (2005) [APE|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Osmosis Part III
-02. Sketches
-03. Odd Man Out
-04. Shadows(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691D440EECFC2DAAF27736E313C4F944DBE2B7AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018330   (757559) от 19.05.2016
-
-Spyro Gyra - Morning Dance (Japan Edition) (1984) [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Dance (04:01)
-02. Jubilee (04:39)
-03. Rasul (03:59)
-04. Song For Lorraine (04:02)(   Читать дальше...   )Жанр: Jazz-Funk, Smooth JazzПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B679A96EE89CC2D9FCC647F428028F45D041862
 ```
 
 https://mybot314.ru/tekegram_catalog/

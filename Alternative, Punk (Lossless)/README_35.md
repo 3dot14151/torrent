@@ -1,3 +1,90 @@
+###  Публикация: 1243285   (492114) от 27.08.2018
+
+The Amity Affliction - Misery (2018) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivy (Doomsday)
+02. Feels Like I'm Dying
+03. Holier Than Heaven
+04. Burn Alive(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347624CDFBC82A9A7DBF81BBEF1D07E9B85F50E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936619   (491531) от 13.09.2015
+
+Bring Me The Horizon - That’s the Spirit (2015) [FLAC|tracks+.cue]<Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doomed
+02. Happy Song
+03. Throne
+04. True Friends(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF3221BB4FC45A535A7876DA84651DB9D6CF49F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404569   (491477) от 26.08.2020
+
+Spun Out - Touch the Sound (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another House [04:25]
+02. Such Are the Lonely [03:5]1
+03. Dark Room [04:07]
+04. Running It Backwards [04:21](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E092DE83D099B66D548F91D2D77FDD2CD0E2B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404651   (491475) от 26.08.2020
 
 Glasswork - Metabole (2020) [FLAC|Lossless|image + .cue] <Alternative Rock>
@@ -664,93 +751,6 @@ King Gizzard And The Lizard Wizard - Infest the Rats' Nest (2019) [WEB] [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:520DEABA08B016B74E628DCD1CE4121731C1E18B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320577   (468904) от 19.08.2019
-
-Keane - The Best Of Keane (2013) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snowed Under (3:50)
-02. Walnut Tree (3:37)
-03. Fly To Me (5:33)
-04. To The End Of The Earth (3:03)(   Читать дальше...   )Жанр: Indie Rock, Pop Rock, Britpop |Продолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B0A3988DF8AA832D77EBF2A8A836446E4837207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058530   (468846) от 01.10.2016
-
-New Years Day - Malevolence (2015) [FLAC|Lossless|tracks] <Alternative Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468846.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 	"Kill or Be Killed"
-2. 	"I'm About to Break You"
-3. 	"Alone"
-4. 	"Left Inside"(   Читать дальше...   )Жанр: Alternative Rock, Female VocalПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8C2CE46800171F7A0007C0B27D38AE8A8048D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246035   (467902) от 08.09.2018
-
-JJ72 - JJ72 (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. October Swimmer (3:23)
- 02. Undercover Angel (3:45)
- 03. Oxygen (3:43)
- 04. Willow (4:23)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701A4FAFB3B7C59B2206C0DD762572F4CFCB3486
 ```
 
 https://mybot314.ru/tekegram_catalog/

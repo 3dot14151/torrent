@@ -1,3 +1,90 @@
+###  Публикация: 1136900   (671150) от 24.05.2017
+
+Dave Brubeck - Lullaby in Rhythm (1949 - 1955) 4CD, 2006, Membran Music [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671150.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Blue Moon [02:58]
+02. Tea for Two [02:47]
+03. Indiana [02:35](   Читать дальше...   )Жанр: CoolПродолжительность: 04:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A09498DE0B18BF3330747A4A341C0BB2AC5D495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136858   (671019) от 24.05.2017
+
+Dexter Gordon - Dexter Calling (1961) 2004, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul sister [07:46]
+02. Modal mood [05:24]
+03. I want more [05:21]
+04. The end of a love affair [06:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07DE6E14471AAF5C2773A9BA400E6B7E78E4BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536964   (670982) от 14.03.2022
+
+Duke Ellington - Peer Gynt Suites  Nos. 1 & 2, Suite Thursday (1960) 1990, Sony [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Mood [4:27]
+02. In The Hall Of The Mountain King [2:36]
+03. Solveig's Song [4:02]
+04. Ase's Death [3:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3925FBB7E8A9FAE591F2260046680B92E48B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291304   (670846) от 24.03.2019
 
 The E.J. Strickland Quintet - Warriors For Peace (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary Jazz>
@@ -658,93 +745,6 @@ The Zawinul Syndicate - The Immigrants (1988) [FLAC|Lossless|image + .cue] <Fusi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFC83B129BBF392B352973B93BB93FB788E353FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137412   (667942) от 26.05.2017
-
-Erin Boheme - What Love Is (2006) Сoncord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone To Love [04:08]
-02. One Night With Frank [04:17]
-03. Let's Make The Most Of A Beautiful Thing [04:42]
-04. What Love Is [05:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FFD3932EFD4E6220C635B3EB3F393267DB612F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137451   (667884) от 26.05.2017
-
-Quincy Jones - Q's Jook Joint (1995) [FLAC|Lossless|image + .cue] <RnB, Swing, Disco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jook Joint Intro (1:32)
-02. Let The Good Times Roll (2:56)
-03. Cool Joe, Mean Joe (Killer Joe) (7:32)
-04. You Put A Move On My Heart (6:14)(   Читать дальше...   )Жанр: RnB, Swing, DiscoПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6824B7B286E593B991A05E9FA2714EBD047B9240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137434   (667828) от 26.05.2017
-
-Quincy Jones ‎– The Dude - The Dude (1981) Remaster, 1984, A&M Records [FLAC|Lossless|image + .cue] <Soul-Jazz, Disco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ai No Corrida (06:18)
-02. The Dude (05:35)
-03. Just Once (04:32)
-04. Betcha' Wouldn't Hurt Me (03:33)(   Читать дальше...   )Жанр: Soul-Jazz, DiscoПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73DF9E151AC53B99B3A6B99626438C5197A22BBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

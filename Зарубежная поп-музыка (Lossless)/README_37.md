@@ -1,3 +1,154 @@
+###  Публикация: 1290531   (676459) от 21.03.2019
+
+VA - Canzoni - 48 Canti D'Emotioni (Unknown) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Piccola E Fragile / Drupi (4:02)
+02. Angelo Blu / Gepy & Gepy (3:20)
+03. Ma Che Bella Storia D´ Amore / Jo Chiarello (5:01)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 03:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C0C8D55C19D7CACF8DD8B93C7EAE6D379C7D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030261   (675902) от 29.06.2016
+
+Whitney Houston - Greatest Hits (2010) 2CD [FLAC|Lossless|image + .cue] <Rhythm & Blues, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	I Have Nothing 	04:54
+02. 	Didn't We Almost Have It All 	04:39
+03. 	Saving All My Love For You 	04:00
+04. 	All The Man That I Need 	03:59(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 02:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33972A7B069BEC454B8192FDB46889A1E3661964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509674   (675454) от 12.06.2012
+
+Sucre - A Minor Bird (2012) [FLAC|Lossless]<Pop Rock, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hiding Out 3:28
+2. When We Were Young 2:54
+3. Troubled Waters 3:56
+4. Light Up 2:33
+5. Chemical Reaction 5:08
+6. Say Something 4:04
+7. Persuasion 3:22
+8. Stampede 2:58
+9. No Return 4:18
+10. Endless Sleep 3:17(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536282   (675145) от 12.03.2022
+
+Clark Datchler - Journey Songs One (2022) 3xCD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675145.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Raindance Remastered:
+01. State Of Play (3:31)
+02. Drowning My Sorrows (3:41)
+03. Crown Of Thorns (5:03)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9641B65897F2EC209E7D0045BB5C91343595F7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136495   (674623) от 22.05.2017
+
+Julio Iglesias - The Very Best Of Julio Iglesias (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674623.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Amor (3:20)
+2. Nathalie (3:54)
+3. Pobre Diablo (2:54)
+4. To All The Girls I've Loved Before (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EACB741EBD9407E1D59A873F50EB2711A416B07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030414   (674568) от 30.06.2016
 
 VA - Pavarotti & Friends For War Child (1996) [APE|Lossless|image + .cue] <Rock, Pop, Classical>
@@ -597,151 +748,6 @@ Kimbra - Primal Heart (2018) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C4D5795272509122114D3CC2B096FCD568113D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137033   (669215) от 25.05.2017
-
-Dionne Warwick - The Real... Dionne Warwick (2015) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Easy Love
-2. Love Power
-3. Heartbreaker(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 03:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F70D395A0D2B3C3120B16F57E6D694B26A885E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030988   (668650) от 03.07.2016
-
-Delta Goodrem - Wings Of The Wild (2016) Sony Music Entertainment [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feline [00:04:15]
- 02. Wings [00:03:25]
- 03. Dear Life [00:03:09]
- 04. Just Call [00:04:01](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0864259794C98AC40F51B9012135D0C4D831510C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031265   (668599) от 03.07.2016
-
-The Pointer Sisters - Best Of The Pointer Sisters (1998) [APE|Lossless|image + .cue] <Pop, R'n'B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm So Excited
-02. Jump (For My Love)
-03. Automatic
-04. Neutron Dance(   Читать дальше...   )Жанр: Pop, R'n'B, SoulПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5778584DE032F97E2C7F563DE7420AF2480EA7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031253   (668590) от 03.07.2016
-
-Book Of Love - MMXVI-The 30th Anniversary Collection (Remastered) (2016) [FLAC|Lossless|tracks] <Synth-Pop, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boy (2016 Remastered)
-02. Book Of Love (2016 Remastered)
-03. I Touch Roses (2016 Remastered)
-04. You Make Me Feel So Good (2016 Remastered)(   Читать дальше...   )Жанр: Synth-Pop, PopПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61239B44B885642A356364F89719EDF6B11EFFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031378   (668499) от 03.07.2016
-
-VA - Radio Italia - Summer Hits (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zucchero - Partigiano reggiano (3:00)
-02. Alessandra Amoroso - Vivere a colori (4:20)
-03. Vasco Rossi - Il blues della chitarra sola (3:07)
-04. Tiromancino - Piccoli miracoli (3:31)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BA1D1A178A5486C039544D84BDA73AE9587705
 ```
 
 https://mybot314.ru/tekegram_catalog/

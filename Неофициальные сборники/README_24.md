@@ -1,3 +1,90 @@
+###  Публикация: 1456344   (1025137) от 22.03.2021
+
+VA - Beatport Disco Jackin' House: Sound Pack #258 (2021) [MP3|320 Kbps] <Funky, Disco Groove,  Jackin' House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весна вступает в свои права, но одного весеннего солнца для хорошего настроения точно недостаточно. Необходимо добавить ко всему еще и соответствующую музыку, именно её и несет с собой эта отличная 258-я подборка танцевальной музыки от Beatport, которая включила в себя целую сотню ремикс-треков диско стиля!001. Monique Rossi - How Wonderful You Are
+002. Mali - One Two Three Four
+003. Pva - Talks
+004. Domscott - The Cracks About(   Читать дальше...   )Жанр: Funky, Disco Groove,  Jackin' HouseПродолжительность: 09:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6151AB15E4A200531429DF7DE62E369BBF6641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456318   (1025126) от 22.03.2021
+
+VA - Let's Dance (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GotSome, Alex Mills - Shout It Back (3:23)
+02. Habbo Foxx - For You (3:44)
+03. Purple Disco Machine, Moss Kena, The Knocks - Fireworks (3:19)
+04. Elliot Fitch - The One (3:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60CF1935882754BB2C96D1DF7B39D020DBBD1D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456351   (1025123) от 22.03.2021
+
+VA - Simply Soulful Disco House (2021) [MP3|320 Kbps] <Nu Disco, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка 80-90х отличалась какими-то особыми ритмами, звучанием и танцевальностью. Многие хиты тех времен популярны и сегодня и частенько звучат на дискотеках в виде ремиксов. Предлагаем вам подборку самых лучших треков, которые были немного обработаны и теперь звучат по-новому. Откройте для себя любимые песни с другой стороны!001. Forma - Going Down Real Slow
+002. Mark Boson - Vox Populi
+003. Sted E & Hybrid Heights - Free Your Mind
+004. Crimsen - When U(   Читать дальше...   )Жанр: Nu Disco, Funky HouseПродолжительность: 12:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E069F070473F99C26CADEB0998027B136CC3713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456350   (1025119) от 22.03.2021
 
 VA - Happier Day: Best Country Songs (2021) [MP3|320 Kbps] <Country, Blues, Folk>
@@ -657,93 +744,6 @@ VA - ЕвроХит Топ 40 Europa Plus 26.03.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EEE57A3F3DC87700C1A2DE8BE7DF2771D1C800E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457874   (1024197) от 27.03.2021
-
-Hector Loza - The Best (2021) [MP3|320 Kbps] <Native American, World music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abrazame
-02. Amor Inca
-03. Despacito
-04. El Imigrante(   Читать дальше...   )Жанр: Native American, World musicПродолжительность: 01:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4442A934382779EEC90C6DBB45B0A086479989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457651   (1024190) от 27.03.2021
-
-VA - Club Music vol.1 (2021) [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024190.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ANIKV, SALUKI, Alex Shik - Меня не будет (Alex Shik Remix) (3:03)
-002. RASA, Lavrushkin - Dior (Lavrushkin Radio Mix) (2:47)
-003. Armin van Buuren - Blah Blah Blah (3:03)
-004. Laidback Luke, Mark Bale - Party Starter (2:11)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 06:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A532E89A1667F6D794A1B155B4AC51EB584D46E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458053   (1024153) от 27.03.2021
-
-VA - Blood And Soul (2021) [MP3|320 Kbps] <Soul, Blues, Lyric Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам грустно и хочется тосковать? Вас переполняют эмоции и вы ищете собеседника? Вы счастливы и душа просит поэзии? Тогда вам нужна эта музыка! Ведь за каждой песней стоит уникальная история человека, а в ней боль и радость, разочарование и надежда на лучшее.001. Step By Step - Now You're Gone
-002. Twiliters - Can't You Stay A Little Longer
-003. Yu Sakai - Barefoot Fairy
-004. The Esquires - Bamboo Isle(   Читать дальше...   )Жанр: Soul, Blues, Lyric JazzПродолжительность: 05:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007E2CF12A0672647F7DB0AB89C1301E4052770B
 ```
 
 https://mybot314.ru/tekegram_catalog/

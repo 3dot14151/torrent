@@ -1,3 +1,32 @@
+###  Публикация: 1302672   (580247) от 16.05.2019
+
+VA - не Громкие новинки недели 15 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580247.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.5sta Family - Плечи (Lavrushkin & Max Roven Remix) (2:42)
+2.Aize - В Невесомости (3:20)
+3.Alesta - Темнота (3:59)
+4.AMCHI - Медленно (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0AC74FDE71B6BD2055F2EB68D2CCD3D9068F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920287   (580005) от 22.07.2015
 
 VA - Дискотека 2015 Deep House - The Best (2015) [MP3|320 кб/с]<Deep, Progressive House, NuDisco, Indie Dance>
@@ -707,35 +736,6 @@ VA - Cosmotronica & Space Disco Vol.3 (2017) [MP3|320 Kbps] <Sуthwаve, Deep H�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2557E250DD2D701517CA827810D4B540736FBE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233179   (576019) от 02.07.2018
-
-Andru Donalds - the voice of the Enigma - Snowin’ Under My Skin (1999) [MP3|320 Kbps] <Disco, Hip-Hop, Энигматик>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 — Simple Obsession
-02 — Waiting For The Hurricane
-03 — All Out Of Love
-04 — Just For One Day(   Читать дальше...   )Жанр: Disco, Hip-Hop, ЭнигматикПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42583C73DC62AE956B148AC99ED3CFEF375CE005
 ```
 
 https://mybot314.ru/tekegram_catalog/

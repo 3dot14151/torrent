@@ -1,3 +1,38 @@
+###  Публикация: 615362   (976899) от 09.02.2013
+
+VA - 20 Trance Hits (2005-2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amex & Bartlett Bros. feat Lizzie Curious - A New Dawn (Fabio XB Rework)
+02. Armin van Buuren feat Ana Criado - I'll Listen (Original Mix)
+03. Armin van Buuren pres. Gaia - Stellar (DNS Project Remix)
+04. ATB & Dash Berlin - Apollo Road
+05. ATB & Amurai feat Melissa Loretta - Heartbeat
+06. Cerf, Mitiska & Jaren - Beggin' You (Armin van Buuren Remix)
+07. DJ HaLF Ivan Flash - The Sound Of Disco (DJ PLSCH Remix)
+08. Fabio XB Feat. Micky Vi - Make This Your Day (Original Vocal Mix)
+09. Frank Lamboy - No Fear (extended mix)
+10. Gareth Emery feat. Christina Novelli - Concrete Angel (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0554A4AC41FE0D1E5A9F2D3F2B7868C94BD43EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356620   (976774) от 01.02.2020
 
 VA - Consolidated DnB Party (2020) [MP3|320 Kbps] <Drum & Bass>
@@ -743,35 +778,6 @@ VA - Luxury Deep House (2020) [MP3|320 Kbps] <Deep, Chill House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A179F5FFAA957F95DAB14F28CA2D2BE02F2614FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357894   (971900) от 05.02.2020
-
-VA - Trap Sound: Experimental Electronic (2020) [MP3|320 Kbps] <Electronic, Synth, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971900.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marcus Meinhardt - House Of Beats
-002. Innershades - Escape
-003. Naum Gabo - Raze
-004. Dark Moon Rising - Nameless Fear(   Читать дальше...   )Жанр: Electronic, Synth, TechnoПродолжительность: 12:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A405FF3FC5FF5E6E9BBFF834BBBD239D2D435685
 ```
 
 https://mybot314.ru/tekegram_catalog/

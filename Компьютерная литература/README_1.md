@@ -1,3 +1,299 @@
+###  Публикация: 1852862   (1056561) от 12.02.2026
+
+А.В. Помазанов | Защита информации от утечки по техническим каналам. Учебное пособие (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены принципы построения устройств и методы защиты информации от утечки по техническим каналам. Приводятся классификация технических каналов утечки информации и современные технические средства защиты информации. Рассматривается место и роль современных комплексов радиомониторинга в системах технической защиты информации.Жанр: Компьютерная литература, КриптографияИздательство: Издательство Южного федерального университетаФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25ED0B38B6491749EE8C220AC75B0A7CD2A425E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852861   (1056560) от 12.02.2026
+
+Г.А. Емельянов | Цифровая безопасность личности (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание представляет сборник практических советов по цифровой (кибер), финансовой и, частично, информационной безопасности физического лица (личности), персональных электронных устройств (как мобильных, так и стационарных), обеспечения безопасности, приватности, конфиденциальности и анонимности пользователя, а также сохранности данных в целостности и доступности.Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32A203EC168BF9CB4E5752923A83121356A51AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852860   (1056559) от 12.02.2026
+
+Dominik Tornow | Think Distributed Systems (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reason confidently about distributed systems.
+
+Distributed systems are complex—but they’re also everywhere in modern software. A fuzzy understanding of how distributed systems work is no longer an option. Think Distributed Systems helps you develop clear and dependable mental models of distributed systems, so you can reason about complex problems with confidence. (   Читать дальше...   )Жанр: Client-Server Networking Systems,  Computer Systems Analysis & Design, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB09F2BEF6C83DC18C8027AE9F2BDA8E13D4DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852858   (1056558) от 12.02.2026
+
+Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Just the Docker you need to know in 22 bite-sized lessons!
+
+In Learn Docker in a Month of Lunches, Docker expert Elton Stoneman guides through everything you need to know about Docker in 22 short lessons you can complete on your lunch break. This freshly-revised bestseller has been updated for modern tools and the latest versions of Linux, Windows, or Mac, with new (   Читать дальше...   )Жанр: Software Design & Engineering, Cloud Computing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53E5479E5F8C5FDFC1F342F01207F70588226FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852857   (1056557) от 12.02.2026
+
+Chris Zetter | Build a Database Server. Learn how real databases work by following this practical guide to building your own (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn how real databases work by following this practical guide to building your own in a programming language of your choice.
+Build a language from scratch- Create an interpreter that can parse, type check and run SQL queries. Start with running simple queries and build up to more complex ones.
+Learn SQL (the fun way) - Gain a deeper understanding of SQL. Cover (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5461CF17A782182A57708A11FD0C66B8F7C4497F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852856   (1056556) от 12.02.2026
+
+Adarsh Divakaran | Deep Dive Python. Techniques and Best Practices for Developers (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Take your programming skills to the next level by expanding real-world Python applications in open-source code. This book is an essential guide for experienced developers looking to enhance their Python proficiency.
+
+Using code examples from popular open-source projects you’ll master Python concepts and see how they are applied in production-level code. By understanding (   Читать дальше...   )Жанр: Object-Oriented Design, Python Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Apress MediaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562B6FEFA631BBF532163046E69905E69FE4CDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852855   (1056555) от 12.02.2026
+
+Hillel Wayne | Logic for Programmers (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logic is the most important branch of math to software engineering. Knowing logic opens up a vast world of development techniques, from everyday tricks of the trade to exotic tools for cracking impossible tasks.
+This book teaches the basics of logic and nine special logic-powered techniques: property testing, decision tables, constraint solving, and more. Over 40 (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9037D6999B60FCDDCA7F8F6B6C37BF2619BBF2BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852854   (1056554) от 12.02.2026
+
+Florent Poux | 3D Data Science with Python. Building Accurate Digital Environments with 3D Point Cloud Workflows. 1st Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Our physical world is grounded in three dimensions. To create technology that can reason about and interact with it, our data must be 3D too. This practical guide offers data scientists, engineers, and researchers a hands-on approach to working with 3D data using Python. From 3D reconstruction to 3D deep learning techniques, you'll learn how to extract valuable insights (   Читать дальше...   )Жанр: Computer Programming Languages, Python Programming, Computer SoftwareЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140D70FDE5FB6C281043128AB4031C66AE29FC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852853   (1056552) от 12.02.2026
+
+Малькольм Макдональд | Грокаем безопасность веб-приложений (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безопасность приложений — приоритетная задача для веб-разработчиков. Вы работаете над интерфейсом фронтенд-фреймворка? Разрабатываете серверную часть? В любом случае вам придется разбираться с угрозами и уязвимостями и понимать, как закрыть, дырки через которые хотят пролезть черные хакеры.
+Здесь вы найдете все, что нужно практикующему разработчику для защиты приложений (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F70911515AFC9D06812E1E010020046C3971335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852852   (1056551) от 12.02.2026
+
+Йоаким Сунднес | Python. Системный анализ данных, расчеты и моделирование (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами подробное руководство по применению в научных целях Python - современного и наиболее востребованного языка программирования. Его преимущество заключается в том, что это так называемый язык высокого уровня с простым и интуитивно понятным синтаксисом. Однако несмотря на то, что Python хорошо подходит в качестве языка для начинающих, он также активно применяется (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DF7B2333A18A11D6582A17B2A45DFE8548321D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852851   (1056550) от 12.02.2026
+
+Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Programming for Humans. 3rd Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Your Python code may run correctly, but what if you need it to run faster? This practical book shows you how to locate performance bottlenecks and significantly speed up your code in high-data-volume programs. By explaining the fundamental theory behind design choices, this expanded edition of High Performance Python helps experienced Python programmers gain a deeper (   Читать дальше...   )Жанр: Computer Performance Optimization, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C95BD1500740C3DF127BCBD18AC632C3EE40240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852850   (1056549) от 12.02.2026
 
 Laurence Moroney | AI and ML for Coders in PyTorch. A Coder's Guide to Generative AI and Machine Learning (2025) [PDF, EPUB] [EN]
@@ -390,305 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5C93B83C9E4602C51D093C51350ABFE8524579D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852805   (1056527) от 12.02.2026
-
-Дэйв Лидс | Kotlin в иллюстрациях (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга проведет вас по основам Kotlin шаг за шагом – с забавными иллюстрациями, понятными примерами и четкими объяснениями. Вы усвоите основные понятия по порядку и без лишней сложности, построив прочную базу знаний. Программируйте весело и эффективно!
-Книга станет идеальным помощником начинающим изучать программирование или желающим восполнить пробелы в знаниях.Жанр: Компьютерная литератураИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446F54DAA09A301B658D61129EB4BE4CFD6E681D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852818   (1056525) от 12.02.2026
-
-Алекс Руис де Вилья | Причинно-следственный анализ в науке о данных (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Понимание сути и роли причинности имеет большое значение для анализа данных. Эта книга послужит прочной основой для применения методов причинно-следственного вывода в повседневных задачах науки о данных. Вы научитесь правильно выбирать и применять математические и статистические инструменты, необходимые для успешного моделирования причинно-следственных связей.
-Книга (   Читать дальше...   )Жанр: Database Storage & Design, Data Mining, Data ProcessingИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C4CCE7442FC9A3AAFFEF70783F15446EFEB5711
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852820   (1056524) от 12.02.2026
-
-С.А. Молодяков | Применение нейронных сетей для обработки мультимедийного контента (100 примеров на Python) (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056524.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии излагаются вопросы применения нейронных сетей для обработки мультимедийного контента. В представленных алгоритмах обработки и редактирования данных кроме нейронных сетей используются функции библиотек OpenMP, FFmpeg и других. Приведены 100 примеров полностью рабочих программ, написанных на языке Python. Примеры разделены по главам: алгоритмы преобразования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПОЛИТЕХ-ПРЕССФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34137364CD05A7DC307D6F50787284859F0AD991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852823   (1056523) от 12.02.2026
-
-А.М. Адонин | Профессия. Руthоn-разработчик (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга позволит вам получить знания, достаточные для профессии Руthоn-разработчик (начиная с уровня Junior Developer). Это даст вам возможность устройства на работу программистом, или возможность работать на себя - искать заказы на фриланс-биржах, создавать свои собственные приложения и игры, а затем выпускать их на таких площадках как Google Play, Steam и подобных. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Наука и ТехникаФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D3068DC1706B14AF28AA3EF052A986CE1D7551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852779   (1056320) от 10.02.2026
-
-Пол Макфедрис | Веб-дизайн с нуля. HTML + CSS на практике. 2-е изд. (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы умеете пользоваться браузером, то сможете создать и сайт! Второе издание книги «Веб-дизайн с нуля» представляет собой наглядное пошаговое руководство с описанием простых и увлекательных проектов. Благодаря ему вы освоите HTML, CSS и другие важные веб-технологии. С помощью уникальной онлайн-песочницы, созданной специально для книги, вы с нуля создадите лендинг, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF1FACD75CA2171EC4836315D0A625EABF33DD40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852866   (1056290) от 10.02.2026
-
-Jennifer Robbins | Learning Web Design. A Beginner's Guide to HTML, CSS, JavaScript, and Web Images. 6th Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Do you want to build web pages but have no prior experience? This friendly guide is the perfect place to start. You'll begin at square one, learning how the web and web pages work, and then steadily build from there. By the end of the book, you'll have the skills to create a simple site with multicolumn pages that adapt for mobile devices.
-
-Each chapter provides (   Читать дальше...   )Жанр: CSS Programming, JavaScript Programming, Introductory & Beginning ProgrammingЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64FD1EDD3E8316DE92DD2EBF5820A655CF990CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852798   (1056289) от 10.02.2026
-
-Paul McFedries | Build a Website with ChatGPT. No coding experience necessary (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Create a portfolio of cool and creative websites—all without having to write your own code.
-
-Build a Website with ChatGPT teaches you zero-coding web development utilizing powerful generative AI tools like ChatGPT. If you can open a web browser, you’re ready to start building—absolutely no coding experience required.
-(   Читать дальше...   )Жанр: Artificial Intelligence Expert Systems, Web Design, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09708CD3E4331A59D86133A4301887260A62EA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852665   (1056154) от 08.02.2026
-
-Yohan J. Rodriguez | The C# and .NET Interview Compendium. 700+ Questions and Code Examples for Serious Developers (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056154.jpg" />
-</div>
-
-
-###  Подробнее
-
-A practical .NET interview prep guide with hundreds of real-world questions and C# code to help you land your next job.
-Master the core concepts. Answer with confidence.
-The C# and .NET Interview Compendium is a 700+ page, question-driven guide to help you crush technical interviews with concise definitions, real-world code, and zero fluff.
-This book doesn’t just (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4634A500717525A40F74FB4476E2271AEB4D96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852668   (1056153) от 08.02.2026
-
-Joyce Farrell | Microsoft Visual C#. Introduction to Object Oriented Programming (MindTap Course List). 8th Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Develop strong programming skills needed for professional success with Farrell's MICROSOFT VISUAL C#: INTRODUCTION TO OBJECT ORIENTED PROGRAMMING, 8th Edition. Approachable, clear and straightforward examples and style help you understand structured and object-oriented programming concepts. Master critical principles and techniques that easily transfer to other programming (   Читать дальше...   )Жанр: Object-Oriented Design, Microsoft Programming, Introductory & Beginning ProgrammingЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE6A57E196CFD8C10AA0B8180DC8F5FDD5F5440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852671   (1056152) от 08.02.2026
-
-Chandradev Prasad Sah | Ultimate Blazor WebAssembly for Web Development. Unlock the Full Potential of Blazor WebAssembly 8.0 and C# to Build High-Performance Web Applications with Ease (English Edi ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Empower Your Web Development with Blazor WASM 8.0
-
-Book Description
-Ultimate Blazor WebAssembly for Web Development is your comprehensive guide to mastering the latest advancements in Blazor technology. This book will equip you with the knowledge and skills needed to leverage Blazor Web Assembly 8.0 and C# effectively and seamlessly to enhance the performance of (   Читать дальше...   )Жанр: Microsoft .NET, C# Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Orange EducationФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45530900FA67563CB1675BD9A32C232AC8083EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852673   (1056151) от 08.02.2026
-
-Б. Страуструп | C++11. Язык программирования C++. Четвертое издание (2024) [PDF, DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет стандарт ISO/IEC 14882-2011 (называемый в обиходе C++11) и призвана помочь программистам быстро и доступно перейти от стандарта С++98 и любых других языков программирования к С++11. Традиционно, как и в предыдущих изданиях, автор демонстрирует свой «фирменный стиль» — эффективные подходы к решению разнообразных задач проектирования и программирования, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БИНОМ-МЕДФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE68159E93F4FA1FC819F1F1865047FF366E7215
 ```
 
 https://mybot314.ru/tekegram_catalog/

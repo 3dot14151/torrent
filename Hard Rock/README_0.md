@@ -1,3 +1,32 @@
+###  Публикация: 1439835   (1039559) от 14.01.2021
+
+Voodoo Circle - Locked & Loaded (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flesh & Bone (04:01)
+ 02. Wasting Time (05:47)
+ 03. Magic Woman Chile (06:17)
+ 04. Locked & Loaded (03:35)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F1E1769417E1A2FFC34A70B6FE7107670BA334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440035   (1039155) от 16.01.2021
 
 Miss Lava - Doom Machine (2021) [MP3|320 Kbps] <Hard Rock, Stoner>
@@ -716,35 +745,6 @@ Def Leppard - Deep Cuts (2021) EP [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A14B79EC341B33CC64170A36E0FAF007FE8877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451938   (1027666) от 06.03.2021
-
-Noora Louhimo Experience - Eternal Wheel Of Time And Space (2021) [MP3|320 Kbps] <Hard Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Wheel Of Time And Space (06:44)
- 02. Valkyrie (04:22)
- 03. All These Yesterdays (04:09)
- 04. Piece Of Your Love (04:18)(   Читать дальше...   )Жанр: Hard Rock, BluesПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795C5713330A85F789063B7B928CCE87FC9C6FBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

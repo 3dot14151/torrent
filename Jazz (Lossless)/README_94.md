@@ -1,3 +1,90 @@
+###  Публикация: 1526114   (738819) от 23.01.2022
+
+Charlie Ventura Quartet & Quintet - Complete Verve Studio Sessions (1951 - 1952) 2001, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon [2:53]
+02. I'm Confessin' [3:07]
+03. Bugle Call Rag [2:50]
+04. Rose Room [2:49](   Читать дальше...   )Жанр: SwingПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5270650604EDD65C4C34A060B741B6F412014D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526175   (738795) от 23.01.2022
+
+D'Sound - 25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flashback
+02. Good Nature (feat. Pher, Cory Henry)
+03. Save Some (feat. Macy Gray)
+04. Right Now (feat. Autumn Rowe)(   Читать дальше...   )Жанр: Acid Jazz, Soul, FunkПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD27E51E7C485F463312268D9DF0435790D6494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526385   (738491) от 24.01.2022
+
+Stanley Cowell Trio - Dancers In Love (2000) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Whole New World [7:53]
+02. Ole Texas [5:24]
+03. Charleston Rag [4:30]
+04. I Never Dreamed [6:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F670BF910D2EF81DA6775425F7E5BED988F34D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526357   (738473) от 24.01.2022
 
 Massimo Farao' Trio - Luiza (2015) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -658,93 +745,6 @@ Artie Shaw - 1951 - 1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54F66BD436F62144E5A8F8AD99FDC8FC89A51FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399627   (732970) от 01.08.2020
-
-Kenny Barron & Mark Sherman - Interplay (2015) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afternoon in Paris [6:12]
-02. Venture Within [7:43]
-03. Dear Old Stockholm [4:53]
-04. Darn That Dream [7:37](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8789552E2030C18C50204C04D82AC14611CD534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399630   (732969) от 01.08.2020
-
-John Lewis & The American Jazz Orchestra - Ellington Masterpieces (1989) EastWest [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sepia Panorama [3:43]
-02. Johnny Come Lately [3:29]
-03. All Too Soon [4:07]
-04. Ko-Ko [2:48](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B1825C4CC8FD9B70610036B1B4E3A8D3E93892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789521   (732809) от 25.05.2014
-
-Lizz Wright - Fellowship (2010) [FLAC|Lossless]<Vocal Jazz, Gospel>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fellowship
-02. (I've Got to Use My) Imagination
-03. I Remember, I Believe
-04. God Specializes(   Читать дальше...   )Жанр: Vocal Jazz, GospelПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D29435334A7BC307160E98E0EB9E7283739BA2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

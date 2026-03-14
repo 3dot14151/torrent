@@ -1,3 +1,213 @@
+###  Публикация: 1793162   (20592) от 22.04.2025
+
+Паттерны - Creative Fabrica - Geometric Colorful Festive Vector Tiles [JPG, PNG, SVG, PDF, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Геометрическая, красочная, праздничная векторная графика из плиток в векторе и растре. Идеально подходит для создания проектов в области скрапбукинга, изготовления всех видов поделок.Формат: JPG, PNG, SVG, PDF, EPSРазрешение файлов: 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57B957B2A76D4F226DE3024D56FCA0D10D12FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793098   (20587) от 22.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Galaxy Shimmer Celestial Texture Digital [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с изображениями мерцающей галактики в небе.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F525BC28DAD0CA8E4DFEFB8D4BD4EBE979B6ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793167   (20581) от 22.04.2025
+
+Фоны - Behance - Luxury Polygon Backgrounds - 193679017 [AI, EPS10, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные абстрактные геометрические фоны в векторе и растре.
+Материал раздаётся с официальной документацией.Формат: AI, EPS10, JPGРазрешение файлов: 5000 × 3333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEAD9A56979BEDBCEACAACA32F75EB371C47A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793179   (20483) от 23.04.2025
+
+Текстуры - themefire pro - Behance - Winter Snowflakes Frame Textures - 188769903 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры со снежинками. Сгенерировано ИИ.
+Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 5000 × 3333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312730C4C4A274CC8C42C1D50A1DD0AEB982F469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793178   (20470) от 23.04.2025
+
+Фоны - M graphiics - Behance - GOLD & BLACK ABSTRACT HD BACKGROUNDS - 175505851 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные чёрно-золотые абстрактные фоны. Сгенерировано ИИ.Формат: PSDРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC7A0677687B49F5CA3C7B7D88A6D1B4800F58E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793357   (20401) от 24.04.2025
+
+Фоны - Tosh Jmosh - Behance - 500 3D BACKGROUNDS MEGA PACK - 183811785 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные абстрактные фоны.Формат: PNGРазрешение файлов: 1456 x 806 - 1832 x 816
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26E94A28B7A978E8D419DEB0AACA5E5BF68B6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793431   (20384) от 24.04.2025
+
+Растровый клипарт - Designworld - Creative Fabrica - Watercolor Botanical Forest Wildflower [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочный клипарт.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CB63C632B5C4391F301B8D9D3D6762309EC161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793348   (20380) от 24.04.2025
+
+Фоны - Shi Mino - Behance - Iridescent Abstract Backgrounds - 122731687 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные абстрактные фоны.Формат: PNGРазрешение файлов: 4800 x 2700 - 4800 x 4800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265AA78BAEC3E06FFF7C50204B9BAFDEE636199C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793342   (20377) от 24.04.2025
 
 Фоны - Behance - Flat Splash and Grid Wave Backgrounds - 177260105 [AI, EPS, JPG]
@@ -465,214 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCEAE55DE17A2D625ABF0C16A62722F5E5F129C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795823   (19141) от 06.05.2025
-
-Растровый клипарт - Graphic Studio - Creative Fabrica - Adorable Baby Animal Patterns [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узоры с изображениями детёнышей животных.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B42D61A91733DA37223CA8E10B0524751DDA90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795744   (19139) от 06.05.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Mid-Century Christmas Memories Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны на тему Рождества.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EDA00181802796DF4C8F833E4E380C88EAC03C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795825   (19138) от 06.05.2025
-
-Растровый клипарт - Graphic Studio - Creative Fabrica - Japanese Waves Seamless Patterns [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Паттерны (узоры) с изображением волн.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0C3A2387A1826897D6556D509E454C3DF5132D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795734   (19137) от 06.05.2025
-
-Растровый клипарт - Graphic Studio - Creative Fabrica - Watercolor Floral Purple Wisteria [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с фиолетовыми глициниями.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D568B60138FA9649E27B14B307ECAE719BFF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795713   (19133) от 06.05.2025
-
-Растровый клипарт - Graphic Studio - Creative Fabrica - Autumn Woodland Charm Patterns [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с очаровательными узорами осеннего леса.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE08519F978F310BBAD70877F3CD75243DCE743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795725   (19132) от 06.05.2025
-
-Растровый клипарт - Graphic Studio - Creative Fabrica - Groovy Boho Seamless Patterns [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшовные узоры в стиле бохо.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFAD3BACA1EE4CFDACFABE75B9BCE32D3A2776B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795715   (19128) от 06.05.2025
-
-Растровый клипарт - Graphic Studio - Creative Fabrica - Rustic Christmas Nostalgic Scrapbook [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт под рождественский альбом.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13EABA24725CA23067C208FBB62ACFC4E5617E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795773   (19123) от 06.05.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Watercolor Ocean Waves Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельные фоны с океаническими волнами.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9B0597BDE6CFC4B54D4E09CE90B241FF1D1863
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,188 @@
+###  Публикация: 781851   (752390) от 30.04.2014
+
+Lindsey Stirling - Beyond The Veil (2014) [H.264/1080p-LQ] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental, Dubstep, RockПродолжительность: 00:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14BDC628A3586FB50B706A059D48F9873B71A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663788   (751321) от 02.06.2013
+
+The ВЙО - Карпаты (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97828AF6C8C32FDBBF75B3833BAF5F242F40763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663800   (750690) от 02.06.2013
+
+Винтаж - Знак Водолея (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483AA5E6CC8E03A37F8D2E4141EAA4930E0D3F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663793   (750682) от 02.06.2013
+
+Ани Лорак - Оранжевые сны (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087A024763672B1F59F6A639B9991C0991A7DC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 323682   (746871) от 15.04.2011
+
+[FR] Zaz - Zaz / Limited Special Edition (Интервью + Концерт + Видеоклипы) (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Интервью + Концерт + ВидеоклипыСубтитры: НемецкиеПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940C19D5E2073CC2A6EBD37CB6B5622A414FEC60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664518   (745685) от 05.06.2013
+
+Мираж - Музыка нас связала (1989) VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745685.jpg" />
+</div>
+
+
+###  Подробнее
+
+клип на песню "Музыка нас связала"Жанр: МузыкаПродолжительность: 00:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9EB6F1765988A20A6CB47AA56AED3B43EE3244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216387   (744439) от 03.04.2018
+
+Океан Эльзы - Без тебя / Океан Ельзи - Без тебе (2018) WEBRip [H.264/2160p] [4K]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Украинская группа Океан Эльзы выпустила новую песню и клип под названием Без тебе.
+– Весна всегда приходит неожиданно, – прокомментировала группа Океан Эльзы премьеру клипа на официальной странице в Facebook.
+Слова песни принадлежат Святославу Вакарчуку.
+В клипе главный герой путешествует на машине по малым городам, встречая много близнецов, ищет свою родственную (   Читать дальше...   )Производство: УкраинаЖанр: RockРежиссер: Анна БурячковаСубтитры: отсутствуютПродолжительность: 00:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528C9AF85A91804ACE23C5682F31C0B9DD6D915E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 785644   (738913) от 11.05.2014
 
 Lindsey Stirling - Child of Light (2014) [H.264/1080p] WEBRip
@@ -513,199 +698,6 @@ Gregorian - Masters Of Chant - Moments Of Peace In Ireland (2001) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6224CE41A7AE0AE8202CEA636B305CEAAF1740FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531336   (710701) от 21.02.2022
-
-Gregorian - Masters Of Chant Chapter III (2002) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710701.jpg" />
-</div>
-
-
-###  Подробнее
-
-B октябре 2002 г. вышел альбом "Masters Of Chant Chapter III". Список звезд мировой музыки, перепетых на этом диске впечатляет – Depeche Mode, Elton John, Sting, Duran Duran, Chris Isaak, HIM… Также в альбом было включено три оригинальные композиции – Be, Before The Dawn и Out Of The Cold. Женские партии исполнила Сара Брайтман, скрывшаяся под псевдонимом (   Читать дальше...   )Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCC79AEB2CAAF34035B935A735A9C22ACB39D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 329772   (709212) от 29.04.2011
-
-VH1 All Classics Hits (2005) 10xDVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов, захваченных с цифрового спутникового канала VH1 (Video Hits One) — американского музыкального телеканала.Жанр: Pop, RockПеревод: Не требуетсяПродолжительность: 10 x ~ 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737EC825FEF26D66BC2C3872501391CE08F04814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286385   (708721) от 04.03.2019
-
-Сборник клипов - Multinational Dance Hits - Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернациональный сборник танцевальных клипов, во имя мира во всем мире. Лучшее 2014 - 2019 г. Много позитива, тропического солнца и теплого моря в зимнюю стужу. Это 1я часть. Обложка и блины для дисков в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Multinational Dance Hits - Intro
-01. Dan Balan & Tany Vander & Brasco - Lendo Calendo
-02. Andrew Rayel & Emma Hewitt - My Reflection
-03. Jorge Gonzalez - Tu Boquita(   Читать дальше...   )Жанр: Pop, TranceПродолжительность: 05:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BAE013E8E5CE504BCC9B3E06EE6AAC4D3EC494C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025184   (705582) от 14.06.2016
-
-VA - Millenium Melody 6 (2016) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник популярных клипов01 Lana Del Rey - High By The Beach
-02 Taylor Swift - Style
-03 ZHU - Faded
-04 Fly Project feat. Misha - Jolie(   Читать дальше...   )Производство: РоссияЖанр: РорПродолжительность: 01:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF0D23F93EF1FB3776A119A42991B2A75CCD98F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401603   (703392) от 13.08.2020
-
-Moby - My Only Love; Power Is Taken; Power Is Taken (Moby's Old School Remix) (2020) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703392.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 Moby - My Only Love (by Zombie Studio) (Master_1080p)
-2020 Moby - Power Is Taken (Moby's Old School Remix) (1080р)
-2020 Moby - Power Is Taken ft. D.H. Peligro (1080р)Производство: Zombie StudioЖанр: ElectronicРежиссер: Paulo GarciaПродолжительность: 00:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0697556AAE2F345BB8D008A589E6BB8593B1A2A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672661   (702674) от 25.06.2013
-
-Cher - Woman's World (Live On The Voice) (2013) HDTV [H.264/1080i] <Pop>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сингл талантливой поп. дивы Cher. Живое выступление на американском "The Voice" (06.18.2013).Жанр: PopПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104DC00554F6C4D1CA74B7945AEEAC80628623D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672087   (702539) от 25.06.2013
-
-Сборник клипов - VA - Various Music part. 43 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702539.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 9-11 - Cum se face 1080p (3:30)
-2. A.M. SNiPER - ROAR 1080p (2:39)
-3. Abel The Kid & Julio Iglesias Jr. feat Snoop Dogg A Piece Of My Love 720p (4:02)
-4. ALEXANDER PROJECT FEAT. MAAX - Сердце 1080p (3:23)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F8EED913F8E6D54F7580E1C1A13780F4125149
 ```
 
 https://mybot314.ru/tekegram_catalog/

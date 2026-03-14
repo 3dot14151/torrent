@@ -1,3 +1,90 @@
+###  Публикация: 1291179   (668586) от 25.03.2019
+
+The Cure - Join The Dots (B-Sides & Rarities 1978>2001: The Fiction Years) (2004) 4CD, RM. [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home |B-Side of 'Mint Car' (3:24)
+02. Waiting |B-Side of 'Mint Car' (3:35)
+03. A Pink Dream |B-Side of 'Mint Car' (3:45)
+04. This Is a Lie (Ambient Mix) B-Side of 'Gone' (4:33)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, New Wave |Продолжительность: 04:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCC163995563671B6ECDE1A4264A1E29E9F3B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031000   (668582) от 03.07.2016
+
+Metronomy - Summer 08 (2016) Because Music [FLAC|Lossless|tracks] <Alternative, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Together
+ 02. Miami Logic
+ 03. Old Skool
+ 04. 16 Beat(   Читать дальше...   )Жанр: Alternative, ElectronicПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0453BA73162B32E066E74B43E6F4DC03766AEC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537651   (665393) от 18.03.2022
+
+Skillet - Dominion (2022) [FLAC|Lossless|image + .cue] <Alternative Metal, Alternative Rock, Christian Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surviving The Game
+02. Standing In The Storm
+03. Dominion
+04. Valley Of Death(   Читать дальше...   )Жанр: Alternative Metal, Alternative Rock, Christian RockПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA4CCF9B6E0882624B3D69B2A70E8867E59D766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139920   (658214) от 04.06.2017
 
 Earshot - Two (2004) [FLAC|Lossless|tracks + .cue] <Alternative, Nu Metal>
@@ -658,93 +745,6 @@ Zebrahead - Brain Invaders (2019) Japan Edition [FLAC|Lossless|tracks + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:732E590804FC85E3B13BD61EDA541279D2529700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032608   (643910) от 08.07.2016
-
-Hole - Celebrity Skin (1998) [WavPack|Lossless|image + .cue] <Grunge, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celebrity Skin
-02. Awful
-03. Hit So Hard
-04. Malibu(   Читать дальше...   )Жанр: Grunge, Alternative RockПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0227AE1719DE954D0CE7F442F92464A68985C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292684   (643387) от 31.03.2019
-
-And the Kids - When This Life Is Over (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Way Sit Back (04:36)
-02. Butterfingers (03:31)
-03. Champagne Ladies (04:26)
-04. 2003 (03:06)(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD21D2A9A152DF030D5D4DD8C99DE034C117B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227814   (643140) от 28.05.2018
-
-From Ashes To New - Day One (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land of Make Believe (3:12)
- 02. Farther From Home (3:34)
- 03. Lost and Alone (3:10)
- 04. Shadows (3:27)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64371AA598D10540BDAAD48304A2ED71DB2D4BE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1111301   (241728) от 05.03.2017
+
+Eddie "Lockjaw" Davis & Shirley Scott - Jaws (1958) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Let a Song Go Out of My Heart [05:20]
+ 02.I'll Never Be the Same [04:45]
+ 03.You Stepped Out of a Dream [04:21]
+ 04.Old Devil Moon [04:27](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72E12CFC76034C9CA606A485AC6EF679ED21391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628966   (241722) от 25.04.2023
+
+Thad Jones - The Magnificent Thad Jones (1956) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. April in Paris [6:42]
+02. Billie-Doo [7:30]
+03. If I Love Again [7:27]
+04. If Someone Had Told Me [5:51](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD24678E09A7CD9EAD809DCD1B1EB12C5784C29D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111304   (241718) от 05.03.2017
+
+Dave Douglas - Meaning And Mystery (2006) Greenleaf Music [FLAC|Lossless|tracks + .cue] <Post-Bop,  Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Painter's Way [05:30]
+ 02.Culture Wars [12:47]
+ 03.The Sheik of Things to Come [07:46]
+ 04.Blues to Steve Lacy [05:55](   Читать дальше...   )Жанр: Post-Bop,  Contemporary JazzПродолжительность: 01:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4431286A13880A72F41B3B728BAA3EFFBA6783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459828   (241713) от 03.04.2021
 
 Von Freeman And Frank Catalano - You Talkin' To Me?! (2000) Delmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -658,93 +745,6 @@ VA - Easy Going Light Jazz Instrumentals to Chill and Relax (2023) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71D40325F957CC2B751DB5E86208A37ED5950E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630531   (241229) от 02.05.2023
-
-Michael Davis & Bill Reichenbach - Bonetown (1999) Hip-Bone Music [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. H, I, Jay and Kai [5:03]
-02. Oklahoma Roots [6:50]
-03. Option to Toast [5:43]
-04. Cole Henry [4:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706478FA12A2CBA8AF2C5613B0FC7F813ED5793D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386696   (241224) от 30.05.2020
-
-Cleo Laine - Portrait Of A Song Stylist (1989) The Harmony Collection [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On a Clear Day [3:10]
-02. I Could Write a Book [2:29]
-03. The Look of Love [3:00]
-04. Come Rain or Come Shine [1:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44876506BD0592156CC24CE4E6F3EEDDA4950EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625994   (241207) от 12.04.2023
-
-VA - Sensual Rhythm and Romance Jazzy Chilly Instrumentals (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean -- Begin Again (4:34)
-02. Chillaxing Jazz Kollektion -- Wherever I Go (4:19)
-03. Chillaxonic -- Mellifluous (4:27)
-04. eJazz Artistry -- Come Share My Love (4:31)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F236D1C1A02C9FA36F9742E6E602BAA507FB14D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

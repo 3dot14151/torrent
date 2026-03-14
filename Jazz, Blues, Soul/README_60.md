@@ -1,3 +1,61 @@
+###  Публикация: 1090507   (947719) от 06.01.2017
+
+Duke Jordan Trio - Two Loves (1973) 1990, SteepleChase[FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Subway Inn [08:12]
+ 02.My Old Flame [08:46]
+ 03.Blue Monk [05:15]
+ 04.Two Loves [03:06](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF02E8A2211DCEA885C7786D40753B607A8BEA07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090401   (947696) от 06.01.2017
+
+Cee Cee James, Seriously Raw - Live At Sunbanks (2010) Live [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Crossroad Blues  (05:03) 
+02|  I Ain't Superstitious  (04:48) 
+03|  Make It To The Other Side  (06:43) 
+04|  I Got A Right To Sing The Blues  (05:39) (   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3EAE3FE917887B8B6AED22DE1459E5AA478981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090327   (947694) от 06.01.2017
 
 Little Mike & The Tornadoes - Heart Attack (1990) [FLAC|Lossless|image + .cue] <Blues>
@@ -684,64 +742,6 @@ Duke Jordan - Blue Duke (1983) 2007, BMG[FLAC|Lossless|image + .cue] <Hard Bop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D186C51C05B680077BB8D25B8BBFD943C4E9F391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091046   (945049) от 08.01.2017
-
-Bobby Hutcherson - Oblique (1967) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.'Til Then [04:47]
- 02.My Joy [07:14]
- 03.Theme From Blow Up [08:16]
- 04.Subtle Neptune [08:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D93C2000DE2B3E5E6A064085CD439A19067F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091066   (945047) от 08.01.2017
-
-New Generation (Новое поколение) - Two-Face Janus (Двуликий Янус) (1994) Ermatell Records[FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mister Jazz [08:25]
- 02.Song For Son [05:51]
- 03.Drank Blues [06:01]
- 04.Bongo-Bip [04:04](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBC4D3B15A7F7AFF2F78D9C0B68FDEA893A273B
 ```
 
 https://mybot314.ru/tekegram_catalog/

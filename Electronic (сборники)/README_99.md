@@ -1,3 +1,32 @@
+###  Публикация: 1541098   (642611) от 04.04.2022
+
+DJ PafTron - My Name Is DJ (2022) [MP3|320 Kbps] <G-House, Deep House, Trance, Techno, Dance, Rave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 My Name Is DJ (skit)
+02 DJ Battle Africa Club set
+03 Train Techno
+04 My House Party(   Читать дальше...   )Жанр: G-House, Deep House, Trance, Techno, Dance, RaveПродолжительность: 09:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55654FC59DDFF6EA9BDEF2D15CA74B7D268D1490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032954   (642011) от 09.07.2016
 
 VA - Trance Music Energy Andromeda (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -747,35 +776,6 @@ VA - Deep House Collection Vol.198 (2019) [MP3|320 Kbps] <House, Deep House, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E84D1E6FCC617CF81620451BEB227867735A283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033662   (638244) от 11.07.2016
-
-VA - Strandhouse Rugensommer (2016) [MP3|320 Kbps] <Funky, Deep House, Tech>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monointerpret - Die Immer Lacht (Radio 2016 Remake) 03:28
-02. Beach House Brothers - Sunny Dance 04:05
-03. Cazintel - Paradise 05:37
-04. Chevro - Real Love (Deep House Remix) 06:34(   Читать дальше...   )Жанр: Funky, Deep House, TechПродолжительность: 03:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246BBA06181A16F055BAA131A8A676D43EA511CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

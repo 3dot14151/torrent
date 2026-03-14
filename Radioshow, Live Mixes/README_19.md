@@ -1,3 +1,61 @@
+###  Публикация: 1345569   (166632) от 15.12.2019
+
+DJ KUBA & NEITAN - Yearmix 2019 2019-12-08 [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ KUBA & NEITAN ft. Kris Kiss - Helicopter w/DJ KUBA & NEITAN ft. Kris Kiss - Helicopter (VIP Mix)
+02. Europe - The Final Countdown w/Dimitri Vegas & Like Mike & Martin Garrix - Tremor (Sensation 2014 Anthem) w/Hardwell & MAKJ - Countdown (Acappella) w/REGGIO & DJ Junior - Spectrum
+03. Wasback & DJ Junior - Alive
+04. Blinders - Relieve(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA8FD5FDCA89B4C0A58A86A24CCEBEF0C91F6DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516073   (165410) от 12.12.2021
+
+Renton - Birthday Mix (2018) [FLAC|Lossless|WEB-DL|image + .cue] <Chillout, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babe Roots feat. Milly James - Sun Is Shinning (3:21)
+02. Twoom - Huntress (4:17)
+03. Kiimyo - Tehran's Rain (4:15)
+04. Mashti/Jean Von Baden feat. Fuat Talay - Bossamor (4:01)(   Читать дальше...   )Жанр: Chillout, Deep HouseПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A974D7DF1628CDF707420056D4CB32FC07082033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517268   (163719) от 14.12.2021
 
 Hodel - Live @ Monday Bar (God Rave The Queen Cruise), Tallink Silja, Sweden (2021-11-06) [MP3|320 Kbps] <Trance>
@@ -684,64 +742,6 @@ Nifra - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32D4B5E712ABDC26F0B43EC651BF6B8E8A99DB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681129   (133139) от 02.12.2023
-
-Markus Schulz & Ilan Bluestone & Daniel Wanrooy - Global DJ Broadcast In Search Of Sunrise 19 Release Special (2023-11-30) [MP3|320 Kbps] <Progressive House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Summer of '99 (from In Search of Sunrise 19)
-02. Anske - Heavenly Cake
-03. OCATA - Welcome to the Awakening
-04. Ben Bohmer - After EarthЖанр: Progressive House, Trance, TechnoПродолжительность: 01:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C10F57E2338EFED550C6C61CC1101D461572F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681071   (133127) от 02.12.2023
-
-VA - Armin van Buuren - A State Of Trance 1149 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zack Martino - Kill My Heart (Evoxel & Antrex Remix)
-02. Ferry Corsten & Diandra Faye - Stay Awake
-03. Alex Sonata & TheRio - Feels Like Home
-04. Ruben de Ronde & Farius & David Frank - Radiant(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BF282212EAB0BFAFD65710B6D82BCE5629745D
 ```
 
 https://mybot314.ru/tekegram_catalog/

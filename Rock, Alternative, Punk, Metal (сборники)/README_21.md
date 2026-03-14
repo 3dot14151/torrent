@@ -1,3 +1,32 @@
+###  Публикация: 901032   (665414) от 24.05.2015
+
+VA - Dr. Metal Presents: Vol.5 (2015) [MP3|224 кб/с]<Heavy, Speed, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665414.jpg" />
+</div>
+
+
+###  Подробнее
+
+001-Heavy Metal-Hymn
+002-Blasdead-Killer Of The Skies
+003-Adastra-Get Back To The Ring
+004-Edguy-Key To My Fate(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89AF722CBAA98E2E81E948FB2B3B81073B2B61C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137877   (665132) от 28.05.2017
 
 VA - Остаться Молодым: Сборник Русского Рока (2017) [MP3|256-320 Kbps] <Рок, Альтернатива, Классика Рока>
@@ -725,35 +754,6 @@ VA - All New Rock 2 (2022) [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3350E49DFDB8DDE10CA3801612BD9DD9CDD1E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292984   (640884) от 01.04.2019
-
-VA - Рок впрок 12 (2019) [MP3|320 Kbps] <Рок, Поп-Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. alexvish - Живой
-02. ТимерТау - Игрушки
-03. Zемля Королевы Моd - Ворон
-04. Shortы - Танцевальная(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 03:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FDEF0A418AC8DAD05720D03362AF6BB47F001D
 ```
 
 https://mybot314.ru/tekegram_catalog/

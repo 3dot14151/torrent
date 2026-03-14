@@ -1,3 +1,119 @@
+###  Публикация: 1056810   (477614) от 27.09.2016
+
+Seven - 7 (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Shoot To Kill 4:07
+ 02. - Inside Love 3:49
+ 03. - Diana 3:33
+ 04. - Still 3:32(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB0EC167ED1911AB3007BCAC3A3D00DA5390D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056783   (477518) от 27.09.2016
+
+Seven - Shattered (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Light Of 1000 Eyes 4:18
+ 02. - A Better Life 4:12
+ 03. - Fight 4:26
+ 04. - Shattered 5:13(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90A9E3426F1F693EB7FC7F9E2827197F7465606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567107   (476490) от 01.08.2022
+
+All I Know - Vanity Kills (2008) Reissue, 2022, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night Long (3:03)
+02. Bad Boy (2:43)
+03. Asphyxia (4:18)
+04. Rain (2010 Beau Hill Remix) (3:56)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE26A8B1EC3CCCCE4F121086EAA07B5B6ED5FF23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567096   (476413) от 01.08.2022
+
+DeVicious - Black Heart (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterlife (4:49)
+02. Heroines (6:10)
+03. A Special Mind (5:40)
+04. Liar (3:46)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F91C463A1E735B977D2979D776D8DB45863B8F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 385595   (476154) от 09.09.2011
 
 David Coverdale - The Early Years: Whitesnake & Northwinds (2CD) (1976-77, Reissue 2003) [FLAC|Lossless]<Classic Rock, Hard Rock>
@@ -650,122 +766,6 @@ Edge Of Forever - Feeding The Fire (2004) Jараnеsе Еditiоn [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F64997168CE0E545729591FDC499399205FAACFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059407   (461831) от 04.10.2016
-
-Sass Jordan - Rats (1994) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Damaged 03:18
-02.Slave 03:36
-03.Pissin' Down 05:20
-04.High Road Easy 04:01(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDAFC87001EFDD59C1DDDB89BF0D168EF6AB5D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568467   (461808) от 08.08.2022
-
-Orianthi - Live from Hollywood (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орианти, гениальная гитаристка, которая выступала на разогреве у Стива Вая в возрасте 15 лет, а позже была выбрана в группу поддержки Майкла Джексона, выпустила живое видео. Обязательно для всех поклонников рока и всех гитаристов!01. Contagious (4:02)
-02. Sinners Hymn (3:58)
-03. Heaven In This Hell (4:00)
-04. Think Like A Man (4:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8899E7472EE80BA8D2E65B5934AA3DFA62C12DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246697   (461558) от 11.09.2018
-
-Andrew W.K. - Close Calls With Brick Walls (2006) South Korea, Bonus Tracks [FLAC|Lossless|tracks + .cue] <Hard Rock, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Came for You (02:16)
-02. Close Calls With Bal Harbour (01:22)
-03. Not Going to Bed (02:57)
-04. You Will Remember Tonight (04:06)(   Читать дальше...   )Жанр: Hard Rock, ExperimentalПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D099002876845A0B5C5DDB7CEBA7618EEC57B4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568616   (459930) от 09.08.2022
-
-Debauchery vs. Blood God - Demons Of Rock 'n' Roll (2022) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Death 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459930.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Blood God:
-01. Demons Of Rock 'n' Roll
-02. Going To Hell
-03. Nude Nuns(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Death 'n' RollПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA05AB7B7330653F9A57123C0B5674C77147D7E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

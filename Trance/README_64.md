@@ -1,3 +1,146 @@
+###  Публикация: 1788299   (68578) от 29.03.2025
+
+VA - Redux Selection, Vol. 4 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brent Rix - Dream Chaser (André Wildenhues Extended Remix) [7:07]
+02. Matt Rodgers - EnTranced (Extended Mix) [7:23]
+03. Helena Kristiansson, JoX & Snowman - Best Day (Extended Mix) [5:29]
+04. Forbidden Mind - Eclipse (Extended Mix) [7:25](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82AB4DE6D5C59EA61A655D0CC6925779DA5950D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788759   (68427) от 01.04.2025
+
+VA - 25 Years Of Anjuna Mixed By Nourey (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (01:08:27)
+01. Nourey – Intro (25 Years Of Anjunabeats)Жанр: Trance, Progressive, ElectronicПродолжительность: 03:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517831B7439EAE7965AD24335D6D9CFBC8E84FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789237   (68334) от 03.04.2025
+
+VA - Budapest Session 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey Litunov - Keep Your Dreams (06:13)
+02. Korenevskiy - Ice Voyage (05:18)
+03. MayroN - First Round (03:21)
+04. OBSIDIAN Project - Night Life (03:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972D0925F6F2FEEA5792AAF21F421A98BFAA3D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789426   (68324) от 04.04.2025
+
+VA - The Sound of 2025, Chapter 3: London (Night Mix) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hårek - Tonight (F4T4L3RR0R Edit - Mixed) (04:49)
+02. PRODGY - Control (Original Mix - Mixed) (02:56)
+03. Aumak - Little Love (Lexenn Remix - Mixed) (03:13)
+04. AR7ANIS - Korhal (Original Mix - Mixed) (03:24)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D6D8ADB42D88CF3BE8809DD689F67DA8735339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790156   (68184) от 07.04.2025
+
+VA - Vocal Trance Legends - Esmee Bor Stotijn (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trance Classics & Esmee Bor Stotijn - Janeiro (Original Mix) [3:50]
+02. Trance Classics & Esmee Bor Stotijn - It's Time (Stargazers Remix) [3:31]
+03. Trance Classics & Esmee Bor Stotijn - Till The Sky Falls Down (Original Mix) [3:00]
+04. ShoXeRr & Esmee Bor Stotijn - Forever Of Light Years (Original Mix) [3:22](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884053E7AEB4E45D99F3BACFABDFBD29CC982AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789878   (68141) от 07.04.2025
 
 VA - Nothing But... Trancetopia, Vol. 24 (2025) [MP3|320 Kbps] <Trance>
@@ -600,151 +743,6 @@ VA - Top 11 February 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD7AE66314F2F12DA75B713EA5596E87A9391F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798709   (66581) от 24.05.2025
-
-VA - Amsterdam Classic Trance Festival (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleks Neptune - The Wolfs (06:53)
-02. Cryalta Generation - Airflow (07:39)
-03. Aleksey Litunov - The Time Has Gone (05:40)
-04. Andrey Gaydukov - Gentle Embraces (06:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1231B5DA30DCE302F54920857EA4FA966C45DB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798859   (66538) от 25.05.2025
-
-VA - Coven (2022-2025) [MP3|320 Kbps] <Trance, deep-house, progressive-house, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Various Artists - Coven (2025)
-Various Artists - Coven, Vol. 1 (2022)
-Various Artists - Coven, Vol. 2 (2023)(   Читать дальше...   )Жанр: Trance, deep-house, progressive-house, DanceПродолжительность: 6 CD, 04:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFCD23A97FD0E5EB7FC340D7631E2F70A1DF2D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799682   (66407) от 29.05.2025
-
-VA - Uplifting Only Top 15: May 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deme3us - You (Intro Mix) [5:47]
-02. Double U & Okka Oo Tha - Dreaming Of Us (Extended Mix) [9:22]
-03. Dyrsein & Renata Cast - Don't Change My Soul (Extended Mix) [8:54]
-04. Casepeat & Plutian - Firebird (Extended Mix) [6:31](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196A6D22DC3EA677F3BDD7399470D37B17CE6644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799684   (66380) от 29.05.2025
-
-VA - Redux Selection, Vol. 6 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob Binner & peakXperience - Touch Of You (Extended Mix) [6:54]
-02. Sebastian Feldmann - Think and grow Big (Extended Mix) [6:36]
-03. Paul Courbet - Northern Lights (Extended Mix) [6:21]
-04. Cadeya - Never Mind (Extended Mix) [6:23](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E9968A6A0DEA81B60C410444F30EAB1BC458CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799854   (66365) от 30.05.2025
-
-Alexander Spark - Destiny (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Spark & Lucid Blue - Destiny (Extended Mix) [5:32]
-02. Alexander Spark & Jeef B - If I Say (Extended Mix) [6:10]
-03. Alexander Popov & Alexander Spark - Run It (Extended Mix) [3:42]
-04. Alexander Spark & Alexander Turok - No Fear (Extended Mix) [3:38](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC90E2E0F5F66B92D3436CFBD50D1C42ABBF926
 ```
 
 https://mybot314.ru/tekegram_catalog/

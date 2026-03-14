@@ -1,3 +1,151 @@
+###  Публикация: 942971   (607453) от 23.04.2022
+
+Валерий Меладзе и группа Мистикана - Live Olimpic Moscow (1997) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Увертюра
+02.	Как Ты Красива Сегодня
+03.	Река Времени
+04.	Странница-Осень(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6061A21F70283F17B60FCDFB48696300F2ED176D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 844684   (607448) от 23.04.2022
+
+Glenn Miller And His Orchestra - Glenn Miller Plays Selections From The Glenn Miller Story And Other Hits (Original Recording) (1956) [FLAC 2.0|24/96 (Vinyl Rip)]<Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607448.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Moonlight Serenade
+Written-By – Glenn Miller
+A2	American Patrol
+Written-By – Meacham, J. Gray(   Читать дальше...   )Жанр: Jazz/Big BAnd, SwingПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8150C1AF10A4FE3A53FF560DA9DB217CA0F3E2B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038521   (606596) от 28.07.2016
+
+The Traveling Wilburys - The Traveling Wilburys Collection (2007) 3LP Vinyl Boxset, Remastered, Deluxe Edition [FLAC 2.0|96/24|tracks|Vinyl-Rip]<Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Handle with Care (3:20)
+02. Dirty World (3:30)
+03. Rattled (2:59)
+04. Last Night (3:51)(   Читать дальше...   )Производство: Wilbury Records, Rhino Records - R2 167868Жанр: Pop Rock, Classic RockПродолжительность: 01:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D59E7FC728411C25A96B48DACBD0DD5759D573FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038463   (606203) от 28.07.2016
+
+Supertramp - Crime of the Century (1974) 2014, Reissue [DTS-HD MA, LPCM, Dolby TrueHD 2.0|192/24|Blu-ray] <Art Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crime of the Century — третий студийный альбом британской прог-рок-группы Supertramp, выпущенный в 1974 году. Это первый альбом группы в «классическом» составе и с продюсером Кеном Скоттом (англ. Ken Scott), до этого работавшим с Дэвидом Боуи и The Beatles.
+
+Диск записывался на нескольких студиях, включая Ramport Studios, принадлежащую группе The Who, и Trident Studios. (   Читать дальше...   )1. School
+2. Bloody Well Right
+3. Hide In Your Shell
+4. Asylum(   Читать дальше...   )Жанр: Art Rock, Progressive RockПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A1EDC6D7C1BC4AFABC08E7B44C48D0A78F2230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038520   (606201) от 28.07.2016
+
+The Rolling Stones - Exile On Main Street (1972) 2013 [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Blues Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exile on Main St. (рус. Изгнанник на Главной улице) — студийный альбом The Rolling Stones 1972 года, ставший 10-м альбомом коллектива, изданным в Британии, и 12-м — в США.
+Музыкальный материал, представленный на нём, стал более разнообразным, нежели на прошлых релизах Stones: пластинка сочетала в себе влияния кантри, фолк-рока, блюза и даже калипсо. Первые впечатления (   Читать дальше...   )01. Rocks off
+02. Rip this joint
+03. Shake your hips
+04. Casino boogie(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888BE73BAA3576213F9F48C752C8F44B3F2FA48C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038473   (606196) от 28.07.2016
 
 Bryan Adams - Reckless (1984) 2014, A&M [DTS-HD MA, LPCM, Dolby TrueHD 2.0, 5.1|96/24|Blu-ray] <Rock, Pop Rock, Soft Rock>
@@ -602,151 +750,6 @@ VA - RETROспектива, часть XVIII. Зарубежные исполн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64E0A7817962C1675FCE0D75B0081BAF5343C3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127117   (601967) от 30.04.2022
-
-VA - RETROспектива, часть XIX. Зарубежные исполнители III (1930-1969) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лолита Торрес (Аргентина) - Страдания любви (самба-песня)
-02. Гуальтиеро Мизиано (Италия) - Огненная луна
-03. Пилар и Элена Гарсиа (Испания) - Колумбина
-04. Жижи Марга (Румыния) - Это прекрасно (фокстрот)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081C4F9BBCD987819C2DA407F4F31920DDF4EBEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134776   (601963) от 30.04.2022
-
-VA - RETROспектива часть XX. Зарубежные исполнители IV (1955-1962) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Джика Петреску (Румыния) - Тебя я полюбил, Москва
-02. Джика Петреску (Румыния) -Я тебя люблю (на румынском языке)
-03. Виктор Симон (Бразилия) - Карнавал в Рио (на португальском языке)
-04. Виктор Симон (Бразилия) - Площадка в Яйя (на португальском языке)(   Читать дальше...   )Жанр: Pop, Retro
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE66C27B17D5DF7B2609ED8FC6E6497062986E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122116   (601962) от 30.04.2022
-
-VA - Мелодии экрана, 9 серия (1962) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вокальный квартет - Песня подруг (из к.ф. ''Девчата'')
-02. Люсьена Овчинникова и Николай Погодин - Старый клён (из к.ф. ''Девчата'')
-03. Оркестр - Липси (из к.ф. ''Озорные повороты'')
-04. Майя Кристалинская - Позови меня (из к.ф. ''Мальчик мой'')(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C871B9FA6E8EE259BECE614FB616DC4419B1FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126527   (601959) от 30.04.2022
-
-VA - RETROспектива, часть XVII. Зарубежные исполнители I (1939-1967) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анс. "Филипинки" - Валентина
-02. Пиляр и Элена Гарсия - Пичирильо
-03. Предраг Гойкович - Маленькая девочка
-04. Луиджи Ионеско - Тюльпаны(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FD43E55A64EF0B77E42C5304BA11003F404DF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139402   (601943) от 30.04.2022
-
-Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1980 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classic Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601943.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Captain Fantastic And The Brown Dirt Cowboy
-A2 Tower Of Babel
-A3 Bitter Fingers
-A4 Tell Me When The Whistle Blows(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52221C668449D2F6388AB942984951CCC20E3AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

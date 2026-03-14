@@ -1,3 +1,119 @@
+###  Публикация: 870976   (846917) от 01.04.2016
+
+Юра Саркисян (кларнет) - 2002 (2002) [FLAC 2.0|44.1/16|tracks|MC-Rip] <Folk/Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Праздничный танец
+02. Танец Юрика
+03. Восточный таней
+04. Далеко ты от меня(   Читать дальше...   )Жанр: Folk/PopПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1199CC2B9492386438ED62F77D76981AD3AE1F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003224   (845110) от 02.04.2016
+
+Аспид - Кровоизлияние (1992) 2016, Metal Race [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро
+02 - Он пришел (Аспид)
+03 - К цели одной
+04 - Дай мне(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A98F8D0099E1C56F5E4432BE9CD04DE618D9F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112154   (844772) от 07.03.2017
+
+Manfred Mann's Earth Band With Chris Thompson - Criminal Tango (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844772.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Going Underground (5:19)
+A2. Who Are The Mystery Kids (3:45)
+A3. Banquet (5:17)
+A4. Killer On The Loose (4:00)(   Читать дальше...   )Производство: Virgin - 207 629-630Жанр: Progressive RockПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECBB14DFE7ECA3470324BCDF5CED82DC1C208BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499462   (842350) от 05.10.2021
+
+Московский Камерный Орк., дир. Л. Маркиз - Mozart - Cassation No. 1 In G Major K. 63 / Concerto No. 2 For Harpsichord And Orchestra In B Flat Major (1972) [FLAC 2.0|96/24|image +.cue] <Classical ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cassation No. 1 In G Magor K. 63 --- Кассация № 1 Соль Мажор К. 63
+A1 Marche
+A2 Allegro
+A3 Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758B21FB195E6A2868BB9C44981F05983F1924E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500378   (841290) от 06.10.2021
 
 Cinderella - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Heavy Metal>
@@ -635,122 +751,6 @@ A4 Let It Be Me(   Читать дальше...   )Жанр: Jazz, Easy Listenin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65BBDA74124C619F8598F4FDA3F70CE3B441445B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196121   (825797) от 01.01.2018
-
-VA - Песни Виктора Дорохина и Любови Воропаевой - Девочка Моя Синеглазая (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Vinyl-Rip] <Pop, Dance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825797.jpg" />
-</div>
-
-
-###  Подробнее
-
-[6:18] 01. Евгений Белоусов - Девочка моя синеглазая
-[4:55] 02. Екатерина Семенова - Мужчина, который спешит
-[4:00] 03. Евгений Белоусов - Алушта
-[4:11] 04. Екатерина Семенова - На минутку(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA940BC928DDC3F906FF8072977DFBCCC6CAFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116120   (824358) от 19.03.2017
-
-Bonnie Tyler - Natural Force (1978) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Pop Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824358.jpg" />
-</div>
-
-
-###  Подробнее
-
-side A
-A1 It's A Heartache
-A2 Blame Me
-A3 Living For The City(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2906884ADBF37668CA2AD34CEE6069019342E8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116642   (822065) от 20.03.2017
-
-Depeche Mode - Spirit (2017) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Synth-Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822065.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Going Backwards (5:43)
- A2. Where's The Revolution (4:59)
- A3. The Worst Crime (3:48)
- A4. Scum (3:14)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CEC420DC3E5414FF59DA2B5823983FE25E3B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117793   (816626) от 23.03.2017
-
-Rainbow - Bent Out Of Shape (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816626.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Stranded (4:30)
-A2. Can't Let You Go (4:22)
-A3. Fool For The Night (4:04)
-A4. Fire Dance (4:31)(   Читать дальше...   )Производство: Polydor - 28MM 0300Жанр: Hard RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ADBCE6D9ADDB527CE6AC29CE084009EFF6027DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

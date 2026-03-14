@@ -1,3 +1,148 @@
+###  Публикация: 1787942   (68640) от 28.03.2025
+
+The Crown - Crown of Thorns (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal, Death Metal, Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Hunt with the Devil [4:56]
+02 - Churchburner [4:15]
+03 - Martyrian [4:50]
+04 - Gone to Hell [4:46](   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Melodic Death MetalПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BA0AF3268C1E436BD751E4FF2E351570939440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788073   (68639) от 28.03.2025
+
+Black & Damned - Resurrection (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence Breaker [00:04:05]
+02. Ruthless Wrath [00:04:26]
+03. Red Heavens [00:04:41]
+04. Bound By The Moon [00:04:27](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE1735E5986D987CDA2827F3505E9B6A6B5F4BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788068   (68638) от 28.03.2025
+
+Bad Valentine - I Am A Mess (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-Rock, Electronic, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Does Happiness Mean To You? [00:02:51]
+02. Don'T Think About It [00:03:28]
+03. Happy Never After [00:03:24]
+04. Sugar Water [00:03:09](   Читать дальше...   )Жанр: Alt.Rock, Pop-Rock, Electronic, Female VocalПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA5164A7A493C7263247B727A87A7A1D8DB27F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788103   (68635) от 28.03.2025
+
+Nightwish - Century Child (2002) Released, 2007, Universal Music Group International [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bless the Child
+02. End of All Hope
+03. Dead to the World
+04. Ever Dream(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9376DFCB91C68CB9699D6C9108965E3EF48F444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788134   (68629) от 28.03.2025
+
+Vampyros Lesbos - Vi Per Sanguinem (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Gothic, LGTM>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willst Du mal? [00:04:51]
+02. Schwarz und Weiss [00:03:40]
+03. Sklavin [00:04:08]
+04. Mausetot [00:05:08](   Читать дальше...   )Жанр: EBM, Gothic, LGTMПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267C617549053260E7DDC299E02B3365A5EFB1F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787907   (68627) от 28.03.2025
 
 Edge Of Forever - The Days of Future Past (The Remasters) (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -600,151 +745,6 @@ Don Airey - Pushed to the Edge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6CAC4B4869B261D2DEB51193A2862647E0D2402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788411   (68522) от 30.03.2025
-
-Defacement - Defacement (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68522.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Limbo I
-A2. Shattered
-A3. Limbo II
-A4. Disavowed(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E6FC0E459AA1AB3B3D3C9B79FCDF21A8923D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788536   (68521) от 30.03.2025
-
-Jerry T. and the Black Alligators - Bourbon Cask Finish (10 Years Edition) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  3 Girlz on the Fryin' pan (4:27)
-02.  Grown Man Wants to Play with Dolls (5:55)
-03.  Time to Write a Song (3:50)
-04.  Bugs and Roaches in the Studio (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5423FE68C3C6CA3ABB97CFE458CC3E06D1539B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788541   (68520) от 30.03.2025
-
-LaKnarra - Laknarra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Frozen Margarita (3:52)
-02.  Tripper (3:30)
-03.  So Lady (8:46)
-04.  Five Billion Years (6:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB09A1B7B2D0F24EA7F6095FB59DCF98A9D319F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788437   (68519) от 30.03.2025
-
-Anouar Brahem - After the Last Sky (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz, Modern Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remembering Hind [00:01:52]
-02. After the Last Sky [00:05:42]
-03. Endless Wandering [00:08:11]
-04. The Eternal Olive Tree [00:04:00](   Читать дальше...   )Жанр: Contemporary Jazz, Modern JazzПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5470B61070B28043C2BC1E19A8403CC88CA0C3EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788353   (68518) от 30.03.2025
-
-Unknown Mortal Orchestra - IC-02 Bogotá (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie, Garage, Psychedelic, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth 1 [00:11:10]
-02. Earth 2 [00:06:32]
-03. Earth 3 [00:08:44]
-04. Earth 5 [00:03:47](   Читать дальше...   )Жанр: Indie, Garage, Psychedelic, RockПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7025427119925D50C7FFFA0BEF964E3A21E482B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1185412   (293742) от 21.11.2017
+
+VA - Full Moon Trance Party (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dave Marxon - Neuroscience (Madwave Radio Mix)
+002. Simon Ice - Skiner (Original Mix)
+003. The Thrillseekers with Katherine Amy - I Gotta Let You Know
+004. Susana - Unbreakable (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 07:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C40A5238B73337A7D0D829B4C6266B9B408F100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262654   (293510) от 16.11.2018
 
 VA - Ambient Silver Sounds (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
@@ -716,35 +745,6 @@ VA - Flight Times Worlds Music (2016) [MP3|218~320 Kbps] <House, Electro, Hands 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AA4BB24708463AE7C3BE07047821CF6932A1F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080042   (290407) от 06.12.2016
-
-VA - LUXEmusic: Dance Super Chart Vol.97 (2016) [MP3|256~320 Kbps] <House, Mash Up, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren vs. ak9 - Ping Pong (Night & Toni Aries Mashup) 3:56
-02. Denis Rublev feat. Alex Kafer & Lera - Я у твоих ног (DJ Prezzplay Cover Mix) 4:16
-03. Eminem vs Tujamo - Without Bounce Me (Fabien Jora Mashup) 3:45
-04. 50 Cent x Anton Liss - Holy Technology (Alex Milano & Yastreb Mashup) 3:39(   Читать дальше...   )Жанр: House, Mash Up, Club, DanceПродолжительность: 03:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAE66F3530F89132A5F25EE55D3D74013FEE0B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

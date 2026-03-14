@@ -1,3 +1,177 @@
+###  Публикация: 1008087   (818099) от 17.04.2016
+
+Joe Henderson - Page One (1963) 2009, Analogue Productions[FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blue Bossa [08:03]
+ 02.La Mesha [09:09]
+ 03.Homestretch [04:15]
+ 04.Recorda Me [06:03](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3D937FBF464DBDFE573EF37D0C0F6783960418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008310   (818095) от 17.04.2016
+
+Brother Jack McDuff - Do It Now! (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Snap Back Jack [04:53]
+ 02.Mush Melon [04:46]
+ 03.Summer Samba [05:13]
+ 04.Do It Now [05:31](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-Funk, Hammond OrganПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:026DE1CA6BA0090712A06729E6959DA16466A40C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008048   (818091) от 17.04.2016
+
+Martin Lechner - Somethin' Old & Somethin' New, Somethin' Else! (2016) [MP3|320 кб/с] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby Of Birdland (03:56)
+02. Valerie (02:59)
+03. The Masquerade Is Over (06:22)
+04. Ready Or Not (03:49)(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6731FEE98A6A8A78D6B3089B394664900D19F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008229   (817934) от 17.04.2016
+
+Konstantin Klashtorni - Smooth Jazz III (2016) [MP3|320 кб/с] <Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Irresistible (04:13)
+02. Walking on Dream (03:54)
+03. Humble and Kind (04:07)
+04. Good to Be Alive (04:12)(   Читать дальше...   )Производство: Kvk MusicЖанр: Jazz, LoungeПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089CA8CF57967B2EB38378390D274D8E4E217A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503695   (817891) от 20.10.2021
+
+Sadao Watanabe - I'm With You (2016) Red River [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tokyo Dating [7:30]
+02. Hip Walk [4:18]
+03. Tree Tops [6:17]
+04. Episode [6:12](   Читать дальше...   )Жанр: Crossover Jazz, Big BandПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B20FBB5A47E819EA2EA548EE65641E940C64F631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503783   (817795) от 20.10.2021
+
+Vincent Ingala - Fire & Desire (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Dancer
+02. Could This Be Real
+03. On The Move
+04. This Or That(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:4013
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB73A05F1AA634D8C7BA358BBC93CD12B0FAAFDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197180   (817730) от 06.01.2018
 
 Wild Bill Davison - Pretty Wild & With Strings Attached (1956, 1957) 2000, Arbors Records [FLAC|Lossless|image + .cue] <Swing, Big Band>
@@ -571,180 +745,6 @@ Konstantin Klashtorni - Smooth Jazz I (2011) [MP3|192 кб/с] <Jazz, Smooth Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CB862D4ED841C8F99B9E5CAECD8CF813A1D2FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503922   (815969) от 21.10.2021
-
-Norah Jones - I Dream Of Christmas (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Calling (Jolly Jones)
-02. Christmas Don't Be Late
-03. Christmas Glow
-04. White Christmas(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:107A74024CB6562682D8C370114CE583325B3399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008608   (815924) от 18.04.2016
-
-Konstantin Klashtorni - Smooth Jazz II (2011) [MP3|320 кб/с] <Jazz, Smooth Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Together Again (04:07)
-02. You Make Me Smile (04:25)
-03. Forever In Love (04:53)
-04. Nice and Easy (05:13)(   Читать дальше...   )Производство: Kvk MusicЖанр: Jazz, Smooth Jazz, LoungeПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B9D63B10F2F1A3AA56E32B1A988653C373799A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197409   (815919) от 07.01.2018
-
-Geri Allen - Maroons (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feed The Fire 1 [01:33]
-02. No More Mr. Nice Guy [07:07]
-03. And They Partied [05:33]
-04. Number Four [04:39](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA47B896E9BB418ABC24084D01534583E8E5AE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197491   (815918) от 07.01.2018
-
-Jim Rotondi - Dark Blue (2016) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Graz [06:13]
-02. BC [05:14]
-03. Biru Kirusai [05:27]
-04. Dark Blue [08:00](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC456B9BEC8B9BE354687A3F16B1901E03BB166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197410   (815916) от 07.01.2018
-
-Geri Allen - Grand River Crossings: Motown & Motor City Inspirations (2013) Membran [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin' [02:22]
-02. Tears of a Clown [05:32]
-03. That Girl [06:06]
-04. Grand River Crossings I [00:48](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A52C12BCFC22B0ACB4B1A5D851620A62CC2DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197406   (815912) от 07.01.2018
-
-Blue Mitchell - Stablemates (1977) 2006, Candid [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stablemates [06:01]
-02. Portrait Of Jennie [07:40]
-03. There Will Never Be Another You [07:06]
-04. Getting Sentimental Over Blue [07:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA1D3BC57BE427ECA2D301D9E29079B7A071222
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 914696   (596372) от 03.07.2015
+
+VA - Summer Session 2015 (mixed by Dj V) (2015) [MP3|320 кб/с]<Disco House, Club House, Electro House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежегодная летняя компиляция представлена тремя дисками: 1 - легкая танцевальная коммерция для beach party, 2 - более клубная и энергичная музыка, 3 - лучшие танцевальные композиции прошлых лет (в этом году вспоминаем лето 2008)01-Flo Rida feat. Robin Thicke & Verdine White - I Don't Like It I Love It (Cutmore Club Remix)
+02-Nadia Ali vs. Plage - Our Rapture (DJ Che MashUp)
+03-Ariana Grande - Baby I (A Director's Cut Radio Edit)
+04-Mambana vs. Yogi - Libre o No (DJ Flight Secret Mash)(   Читать дальше...   )Жанр: Disco House, Club House, Electro House, DanceПродолжительность: 03:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23E2A175EBB3F8289A930F08A40109B88D02634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039447   (596081) от 01.08.2016
 
 VA - Finding Around Happiness (Energy Tech Trance) 007 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
@@ -728,35 +757,6 @@ The Virtual Vision - это авангард в мире электронной 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1F8A0CD0D61B4527FD332A8D36D7059B1E42371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549790   (592891) от 08.05.2022
-
-VA - Y-Zotope: Relax Synthetic Sounds Mix (2022) [MP3|320 Kbps] <Relax Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экспериментальный электронный сет предлагает подборку треков, авторы которых в своём творчестве использует аутентичные народные инструменты вместе с современными электронными средствами. Они создают психоделичные саундскейпы, позволяя слушателю окунуться в фантастические миры, глубину веков, почувствовать себя путешественниками во времени и Вселенной.001. E.Lemental - Your Love
-002. Shur-I-Kan - Ebb And Flow
-003. Yoshinori Hayashi - Make Up One’s Mind
-004. Franca - Chiron(   Читать дальше...   )Жанр: Relax Electronic, SynthwaveПродолжительность: 08:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A86784A0D92CA6B718E018943B64AF2E0D051C
 ```
 
 https://mybot314.ru/tekegram_catalog/

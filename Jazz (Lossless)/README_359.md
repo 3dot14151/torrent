@@ -1,3 +1,90 @@
+###  Публикация: 1729132   (53628) от 11.06.2024
+
+Mildred Bailey - 1939 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Cried for You [2:45]
+02. Begin the Beguine [2:46]
+03. What Shall I Say? [2:55]
+04. It's Slumbertime Along the Swanee [2:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B188BD55411B4DDDBBF3F459B8AF857E2D467F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729134   (53627) от 11.06.2024
+
+Mildred Bailey - 1939 - 1940 (2002) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Little Man Who Wasn't There [2:33]
+02. A Ghost of a Chance [3:11]
+03. You're the Moment in My Life [2:32]
+04. You and Your Love [2:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB5F47B18BE6E24AB79B45190854BA806A46EB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729140   (53625) от 11.06.2024
+
+Mildred Bailey - 1940 - 1942 (2002) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fools Rush In [3:21]
+02. From Another World [2:47]
+03. I'm Nobody's Baby [3:00]
+04. Give Me Time [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E6090E959408FD0FE0AA062C504CF5E3F053DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729438   (53623) от 11.06.2024
 
 Jack Walrath - Neohippus (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -658,93 +745,6 @@ Frank Sinatra - Night And Day (1996) Golden Stars [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CBBFF035E7B207D3709D4C30034FCEC6B2D39D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751159   (42615) от 23.09.2024
-
-Frank Sinatra - On The Air! - Love Me Or Leave Me (1997) QED Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Can't Be Love [2:59]
-02. You Took Advantage Of Me [2:39]
-03. I Dont Know Why [2:23]
-04. I Only Have Eyes For You [2:18](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF1AB3D32E29FE94B0B00A85D0F1CB777CCBBED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751318   (42510) от 24.09.2024
-
-Frank Sinatra - S'Wonderful (1996) Razamataz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S'Wonderful [1:45]
-02. I've Got My Love To Keep Me Warm [2:02]
-03. I Don't Stand A Ghost Of A Chance [3:16]
-04. Begin The Beguine [3:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847297D38C324FF056689BE2665DC03404742F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751464   (42414) от 25.09.2024
-
-Frank Sinatra - Sensational Sinatra (1997) Penny [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Make Me Feel So Young [2:58]
-02. The Lady Is A Tramp [3:07]
-03. On The Sunny Side Of The Street [2:00]
-04. Dancing In The Dark [2:32](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Easy ListeningПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D7A6ACBD05EF7912B0E6E39B71365DBDDBF0FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

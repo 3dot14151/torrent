@@ -1,3 +1,29 @@
+###  Публикация: 1110813   (851522) от 03.03.2017
+
+Шаблоны - GraphicRiver - Geometrical Photo Template [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Придайте Вашим фотографиям стильный и современный дизайн, с элементами различных фигур, с помощью этого шаблона.Формат: PSDРазрешение файлов: 3000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF1B4577F4F20F1D30E6DC98F87E57E7A760BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110788   (851521) от 03.03.2017
 
 Рамки - CreativeMarket - 10 Minimalist White Mockup Frames [PSD]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:114DFD12BFF6A7A6B84D09B1EA7E8772DE8A4F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383099   (813119) от 14.05.2020
-
-Шаблоны - Design Bundles - Print Work BUNDLE - 568548 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813119.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этого пакета вы можете сделать хорошую презентацию вашего дизайна печатных работ.Формат: PSDРазрешение файлов: 4000x2670
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5279B60D385A4A5CC1E68AB0820F20B9A2F472
 ```
 
 https://mybot314.ru/tekegram_catalog/

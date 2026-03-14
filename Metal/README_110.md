@@ -1,3 +1,32 @@
+###  Публикация: 1723621   (109502) от 16.05.2024
+
+Pain - I Am (2024) [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Just Dropped By (to say goodbye) [00:03:52]
+02 - Don't Wake The Dead [00:04:07]
+03 - Go With The Flow [00:03:02]
+04 - Not For Sale [00:03:11](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3DB2FC47A67845CAC508D3134B6384E04AF79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723723   (109474) от 16.05.2024
 
 Castle Rat - Into The Realm (2024) [MP3|320 Kbps] <Doom Metal>
@@ -713,35 +742,6 @@ Gone til Winter - Gone til Winter (2009) Demo [MP3|320 Kbps] <Gothic Metal, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:289D0CA16A0B7160FBAE169681F69DAF62398B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729097   (108100) от 10.06.2024
-
-Gone til Winter - The First Season (2011) Compilation [MP3|320 Kbps] <Gothic Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solemnise
-02. Heat Signal
-03. Kill Me
-04. Utopia(   Читать дальше...   )Жанр: Gothic Metal, RockПродолжительность: 00:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C72058395867BB6434F5E9AD2687DFBDDF5EA94
 ```
 
 https://mybot314.ru/tekegram_catalog/

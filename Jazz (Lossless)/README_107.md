@@ -1,3 +1,90 @@
+###  Публикация: 1221770   (691538) от 26.04.2018
+
+Serge Chaloff - Blue Serge (1956) 1992, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Handful of Stars  [05:38]
+02. The Goof and I [04:49]
+03. Thanks for the Memory  [03:51]
+04. All the Things You Are  [05:31](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7A81D25E907608F38BFB93331A023C2DB7C24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028129   (690971) от 22.06.2016
+
+Joanne Brackeen & Clint Houston - New True Illusion (1976) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Steps - What Was [09:16]
+ 02.Search For Peace [06:07]
+ 03.New True Illusion [08:56]
+ 04.My Romance [07:56](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39D7C9BC05A219382311E3945302D999CD85742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028207   (690967) от 22.06.2016
+
+Warren Wolf - Convergence (2016) Mack Avenue Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Soul Sister [04:57]
+ 02.Four Stars From Heaven [11:07]
+ 03.King Of Two Fives [05:09]
+ 04.New Beginning [04:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82609F1270DD93F95A2EE36C1D757277809C85F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028109   (690965) от 22.06.2016
 
 Benjamin Faugloire Project - Birth (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano>
@@ -658,93 +745,6 @@ Jan Garbarek, Arild Andersen, Edward Vesala - Triptykon (1973) Remaster, 1992, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17A81F4DDF1B2222F75344274E9E8EB9659A723F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222257   (687486) от 28.04.2018
-
-Kenny Dorham & Barry Harris Quartet - New York 1964 (2006) Rare Live Recordings [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [03:18]
-02. Confirmation [06:56]
-03. Ma, He's Making Eyes at Me [06:03]
-04. 'Round Midnight [07:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85340C81F4F5ED4995677A75C4C0B167AE9DACD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028651   (686913) от 24.06.2016
-
-Joanne Brackeen & Ryo Kawasaki - Trinkets And Things (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Trinkets And Things [05:13]
- 02.Shadowbrook Air [06:02]
- 03.Winnie And Woodstock [05:21]
- 04.Fair Weather [04:48](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FE27285482E7D1498A310932647DB3A83F0DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028901   (686911) от 24.06.2016
-
-Stacy Sullivan - Stranger In A Dream (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loving You
-02. The Surrey With The Fringe On Top (From Oklahoma!)/Oh, What a Beautiful Mornin’
-03. Portrait of Mercer Ellington/Prelude to a Kiss
-04. Stranger in a Dream(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:869ECF86058D72C27C2465E9ABAE5B612FCA9F7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

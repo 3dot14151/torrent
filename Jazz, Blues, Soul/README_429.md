@@ -1,3 +1,177 @@
+###  Публикация: 1590431   (188843) от 14.11.2022
+
+Sister Mercy - Honey (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold on Honey (4:18)
+02. Weeping Woman (4:28)
+03. Long Way to Midnight (4:03)
+04. Beale Street Boogie (4:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D4978003878D8D86479044C4C80214997AAFDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590422   (188842) от 14.11.2022
+
+Henrik Freischlader - Recorded by Martin Meinschäfer II (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free (5:25)
+02. Aware of Things (5:12)
+03. Turn Back the Clock (5:54)
+04. Rule the World (4:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655C81D5AF7BAE30128B65AC1A2CFC6B2910DDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590578   (188839) от 14.11.2022
+
+Junko Onishi - Baroque (2010) Verve [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tutti [9:05]
+02. The Mother's (Where Johnny Is) [5:51]
+03. The Threepenny Opera [19:42]
+04. Stardust [4:47](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD0A93B0715EF33C0685B961715E2001095E9C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590418   (188832) от 14.11.2022
+
+Aynsley Lister - Along for the Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazing (4:53)
+02. Bide My Time (4:56)
+03. Wait For Me (3:42)
+04. Is This Really Happening Now (3:52)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64830B9314518B0EE2C3AFABE043E38D16BD32E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590446   (188824) от 14.11.2022
+
+VA - The good awakening blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvis Presley - Hearthbreak Hotel (2:09)
+02. Double Soul - Think About Things (2:34)
+03. JPB John Papa Boogie - You Only Go Around Once (5:09)
+04. Barbara Belloni Band - A Hard Rain's a-Gonna Fall (7:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C0D134F62A995FFD3B9B595AE63EF315A2034D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590427   (188805) от 14.11.2022
+
+Luke Winslow-King - If These Walls Could Talk - If These Walls Could Talk (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Sunday June (2:30)
+02. Honeycomb (2:57)
+03. Jessie's Love Song (3:14)
+04. Don't Tell Me I Don't Love You (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC34FABA325AE52F089E9F000FA62D048D1A996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590547   (188788) от 14.11.2022
 
 Tommy Flanagan - Super Session (1980) 1988, Enja Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -570,179 +744,6 @@ CD1 - Sings A String Of Harold Arlen:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B3FE2259505E485BB23F1A701E8BAA02DF7D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591109   (187506) от 17.11.2022
-
-VA - A Tribute To Eric Clapton (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kirk Fletcher & Brian Auger -- Cocaine (3:26)
-02. Sammy Kershaw & Albert Lee -- Lay Down Sally (3:54)
-03. Arthur Brown, James Williamson & Rat Scabies -- I Feel Free (2:52)
-04. Dug Pinnick & Eric Gales -- Sunshine Of Your Love (4:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9CA9171D4DCF7665DBCF97957FFC2DC96ED3B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591465   (187242) от 18.11.2022
-
-Jimmy Cobb - This I Dig Of You (2019) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This I Dig of You [5:46]
-02. Blood Wolf Moon Blues [6:52]
-03. I'm Getting Sentimental over You [6:39]
-04. My Old Flame [4:59](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0540CC017D73BD408CD393551281E4AFEBAA7F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663081   (187203) от 20.09.2023
-
-Dave Liebman - Live At Smalls (2023) Cellar Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning [14:58]
-02. The Middle [33:03]
-03. The End [24:49]Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D1DC6B66F07EA5D048B6EC14C53A8E80B612BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663106   (187180) от 20.09.2023
-
-The Blues Project - Evolution (2023) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evolution
-02. I Won't Go Back
-03. I Played A Little Fiddle
-04. In the Spirit(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1098EAEFCC440DE0F11B4EFBCC9186F7294AEC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663112   (187161) от 20.09.2023
-
-Lachy Doley - A World Worth Fighting For (2023) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A World Worth Fighting For
-02. These Words
-03. Get Out Your Ear's Way (feat. Bootsy Collins)
-04. Don't Beat Yourself Up(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D784EBD894A23D5B82F15EAD9F8A4392B576B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591642   (186930) от 19.11.2022
-
-Joe Pass - Virtuoso #2 (1976) 1987, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giant Steps [3:34]
-02. Five Hundred Miles High [6:21]
-03. Grooveyard [4:46]
-04. Misty [5:25](   Читать дальше...   )Жанр: Bop, Guitar JazzПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762F2BE13BFAD90D1B781BDBECB1F61114E152FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

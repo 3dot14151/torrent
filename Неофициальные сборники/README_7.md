@@ -1,3 +1,90 @@
+###  Публикация: 1839721   (1046819) от 30.11.2025
+
+VA - Erotic Lounge Collection Part 3 (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Aria Black - Still Here in the Quiet
+02 - L’amour Fané - Sous Ma Peau
+03 - Aria Black - Two Fires, One Heart
+04 - L’amour Fané - Si Tu Vis Mieux Sans Moi(   Читать дальше...   )Жанр: Vocal, Easy listening, AIПродолжительность: 00:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3D2FDFBF9E80EB32EF0CFE5D6F03EAE4129AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839740   (1046814) от 30.11.2025
+
+Мария Варгас - Favorites Collection Part 2 (2025) [MP3|192 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ты Боль Моя
+ 02 - Плачь, Плачь, Мэри
+ 03 - Я Тебе Не Верю Ритмичный Блюз
+ 04 - Тебя Придумала Сама(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874DED9B1122CD3A1635C16FEBF583F82BE3A542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839736   (1046813) от 30.11.2025
+
+LIYNA - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Vocal Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lovely Chaos
+ 02 - Touch Me Not
+ 03 - Novela
+ 04 - Falling(   Читать дальше...   )Жанр: Vocal Deep HouseПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9FCF1AAD1D33001D1D45960325EB4BBB0871CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839743   (1046811) от 30.11.2025
 
 VA - No name compilation part 17 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soulful Blues Ballad>
@@ -658,93 +745,6 @@ Haley Reinhart - Compilation (2023) [MP3|320 Kbps] <Soul, Jazz, Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB6BCE64D3B4941E045A8BE430FFE3F411B2675A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604780   (1044945) от 17.01.2023
-
-Julia Westlin - Compilation (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyone
-02. Hello
-03. Crazy
-04. All Your Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EAF9826F8860D92B67319673FB798ACC5F6B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599678   (1044941) от 17.01.2023
-
-VA - В машине с музыкой Vol.325 (2022) MP3 (320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ислам Итляшев - Ресторан (03:40) 2022
-02. Rasa Feat. & Dashi - Не Хочу Домой (03:08) 2022
-03. Nifiant - Never Let Me Go (03:23) 2022
-04. Александр Чурей - Застольно-Хулиганское (04:10) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2F3B42BA6A0CD3A31CB2A58653632B3E864E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604480   (1044937) от 17.01.2023
-
-VA - Старый Новый год Vol.01 (2022-2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044937.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kylie Minogue - Only You
-002. Никита Хазановский - Новый Год
-003. Paul Potts - Ave Maria
-004. Сергей Одинцов - Новый Год(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDA36032C4F5143C266F465970F512851930232
 ```
 
 https://mybot314.ru/tekegram_catalog/

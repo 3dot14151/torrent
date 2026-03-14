@@ -1,22 +1,22 @@
-###  Публикация: 475364   (98058) от 30.03.2012
+###  Публикация: 1822456   (100711) от 06.10.2025
 
-Роберт Пайк | Жертва [2011] [MP3]
+Саша Фишер | Звезда заводской многотиражки (Книга 3) (2024) [MP3, Андрей Андриевский]
 
 >>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98058.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Из тюрьмы Синг-Синг сбежали четверо заключенных, которых ничто никогда не связывало, ни в тюрьме, ни до нее. Причем один из них имел возможность через несколько месяцев досрочно освободиться. Что толкнуло его связаться с этой компанией и пойти на побег? Не оправдались и расчеты преследователей на то, что неожиданный беглец постарается спрятаться где-нибудь подальше. Он отправился в Нью-Йорк. Что задумал преступник и какие события последуют за этим?2011Жанр: Детектив
+Продолжение приключений Жана Колокольникова в Советском Союзе начала восьмидесятых.Жанр: Фантастика, попаданцыИздательство: ЛитРесПродолжительность: 08:39:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD7A67679FA87001D934E28CF887082C98CCA066
+magnet:?xt=urn:btih:65FFB8D159FCA20291690E11F84D8A649D165367
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,30 +24,48 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475032   (98057) от 30.03.2012
+###  Публикация: 1822343   (100710) от 06.10.2025
 
-Anthony Gomes - Up 2 Zero (2012) [FLAC|Lossless]<Blues-Rock>
+У опасной черты (1983) WEBRip [H.264/1080p]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98057.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100710.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Back To The Start  (3:34)
-02. One Last Time  (4:55)
-03. Love Sweet Love  (3:30)
-04. Fly Away  (3:40)
-05. Darkest Before The Dawn  (3:53)
-06. Room 414  (2:47)
-07. Voodoo Moon  (4:16)
-08. Anywhere You Run  (3:57)
-09. Last Bluesman Gone  (2:10)
-10. Up 2 Zero  (3:13)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:39:29
+В 1943 году после поражения под Сталинградом и на Курской дуге гитлеровская Германия решила применить химическое оружие, запрещенное всеми международными конвенциями. На оккупированных западных территориях СССР в обстановке строжайшей секретности началась подготовка к испытаниям ОВ на советских военнопленных...Производство: СССР / МосфильмЖанр: военныйРежиссер: Виктор ГеоргиевАктеры: Любовь Виролайнен, Александр Збруев, Александр Граве, Эрнст Романов, Улдис Лиелдидж, Эдуард Марцевич, Евгений Лазарев, Иван Косых, Пётр Фёдоров, Виктор Шульгин, Виктор Косых и др.Продолжительность: 01:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCC485018EDF4E2D515C8E295CBC2454A05F43C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821588   (100709) от 06.10.2025
+
+«Почту России» оштрафовали за 10-дневную задержку сообщения через интернет
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_100709.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Почта России» получила штраф за 10-дневную задержку сообщения... ЧЕРЕЗ ИНТЕРНЕТ — нет, это не новость  ИА «Панорама», а реальная история.
+(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -59,28 +77,247 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475735   (98056) от 30.03.2012
+###  Публикация: 1768799   (100708) от 27.12.2024
 
-Журнал | АиФ. Спецвыпуск. Дача №4 [2012] [PDF]
+Футбол. Кубок Франции 2024/2025. 1/32 финала Руан - Лилль (20.12.2024) WEBRip [35fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок Франции 1/32 финала. (20.12.2024)
+Стадион: Роберт Диошон (Ле Пети-Кевийи, Франция)
+
+Лилль продлил беспроигрышную серию во всех турнирах до шестнадцати матчей, одна победа осталась до рекорда, в принципе это будет легко сделать, ведь в Кубке Франции соперник из Национального чемпионата, сейчас "доги" в отличной форме, не смотря на потерю очков с Марселем, (   Читать дальше...   )Телекомпания: СтартЖанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B214BEE7A7FE0952AEA4DC14BC2E0EAF5D9E414E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769135   (100707) от 27.12.2024
+
+Газета | Невыдуманные истории №51 (455) (декабрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100707.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43591EFB6A122B2844AD76C4F8A3BBD7ABACAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769171   (100706) от 27.12.2024
+
+VA - Interplay Highlights 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passive Progressive & Sentient Mullet – Like a WaveЖанр: Trance, Progressive, ElectronicПродолжительность: 01:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9F9773EA9DA878B64171D0777ED919F4D6F764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768771   (100705) от 27.12.2024
+
+Empty Mirror - 2 Albums (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <Sympho Doom, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exordium [00:01:44]
+02. Luminous Child [00:05:35]
+03. Deus Profanus [00:05:54]
+04. Zephyros [00:05:51](   Читать дальше...   )Жанр: Sympho Doom, Gothic MetalПродолжительность: 2 CD, 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107E51BB1C5DDDC0FB608B45D81CB37E1F76E45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769136   (100704) от 27.12.2024
+
+Газета | Невыдуманные истории №52 (456) (декабрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100704.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F664F6750E82AB3531F914AE67C5423FE0E04B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768065   (100703) от 27.12.2024
+
+Аэдра - 2 Альбома (2008 - 2010) [FLAC|Lossless|tracks + .cue] <Heavy Power Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На Крылья Зари (05:23)
+02. Мистерия Снов (03:41)
+03. Забвенье И Снег (04:33)
+04. Театр Боли И Слёз (05:12)(   Читать дальше...   )Жанр: Heavy Power Metal, Modern MetalПродолжительность: 01:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F1153A17C88785B083112B087F8071903789F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769014   (100702) от 27.12.2024
+
+Adrian von Ziegler - Of the Old World (2024) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Albion [5:34]
+02 - The Wanderer [4:33]
+03 - Ethelborn [2:42]
+04 - Tale of the Gaels [6:42](   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE56AAFFBA20E239610FB8447A7CFEA1701E40A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769185   (100701) от 27.12.2024
+
+Газета | Загадки истории №52 (627) (2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100701.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53BD6480F368C423FC6A3173F5A8E6AE7B01EAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769199   (100700) от 27.12.2024
+
+Журнал | Дачный клуб №11 (164) (ноябрь 2024) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98056.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот номер "Аиф. Спецвыпуск. Дача" посвящён животрепещущей теме, волнующей каждого дачника, - весенней обрезке сада.
-   Пользуясь советами экспертов, вы сможете понять главные задачи обрезки и освоить простые приёмы их выполнения.
-   Попробуйте - ведь в результате Ваш сад станет аккуратным, урожайным, здоровым и долговечным.
-   Следующий номер спецвыпуска будет (   Читать дальше...   )Формат: PDF
+В журнале «Дачный клуб» собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты блюд из урожая. Уникальный опыт российских дачников, яркие иллюстрации, вопросы читателей, рекомендации специалистов.Жанр: Дом, сад, огород, дачаИздательство: ООО "Город Медиа Софт"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B9FE193805C00ACDD0AC35E507D770792FB1F37
+magnet:?xt=urn:btih:8278CE16BAB0CED80412B9FB92D5559BE362EC5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -88,25 +325,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475360   (98053) от 30.03.2012
+###  Публикация: 1768313   (100699) от 27.12.2024
 
-Ю.М. Ключников | Лики русской культуры [2010] [PDF]
+Тени Свободы - 7 Альбомов (2006-2017) [FLAC|Lossless|image + .cue] <Punk>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98053.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга известного поэта, публициста, философа, путешественника, автора десяти книг стихов и прозы Юрия Ключникова «Лики русской культуры» представляет собой сборник статей, эссе, очерков, посвященных выдающимся русским писателям, поэтам, музыкантам, ученым, полководцам. Перед взором читателя встают образы и творческие судьбы2010Формат: PDF
+1. Успех
+2. Бежать
+3. Глупые выживут
+4. Боль(   Читать дальше...   )Жанр: PunkПродолжительность: 03:29:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51285048883AC79F6AEAEC7EB1110D7DB99204C6
+magnet:?xt=urn:btih:CF023D1078857AAE7876B4820D600E5995858A35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,34 +354,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475686   (98052) от 30.03.2012
+###  Публикация: 1769128   (100698) от 27.12.2024
 
-Jeff Cascaro - The Other Man (2012) [FLAC|Lossless]<Soul, Vocal Jazz>
+VA - Armin van Buuren - A State Of Trance 1205 (Yearmix 2024) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100698.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren & Moby - The Road Ahead (A State of Trance Year Mix 2024 Intro)
+002. Armin van Buuren & Moby - Extreme Ways
+003. Jerome Isma-Ae - Hold That Sucker Down (Hel:sløwed Remix)
+004. Hel:sløwed & Amber Revival - Wildfire(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F6832E889DA61620036E613C2772BEFFE1FE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769170   (100697) от 27.12.2024
+
+Ефрем Амирамов - 11 Альбомов (1994-2011) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Молодая ( Remake )
+02. Аленка
+03. Поход
+04. Любимая моя(   Читать дальше...   )Жанр: ШансонПродолжительность: 07:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2529EE26B0CE425EDEE54F7032F80CA2BB32101B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769186   (100696) от 27.12.2024
+
+Газета | Тайны СССР №13 (164) (июнь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3859F8C57130F1780D434C814173C39C164B3D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769414   (100695) от 28.12.2024
+
+Футбол. Чемпионат Испании 2024/2025. 18 тур. Барселона - Атлетико (21.12.2024) TVRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100695.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 Декабря 2024. Стадион: Олимпик Льюис Компанис
+Матч 18-го тура Испанской Примеры. Барселона - Атлетико (Мадрид)
+
+Команда Диего Симеоне выдала серию из 6 побед (Лас-Пальмас, Мальорка, Алавес, Вальядолид, Севилья и Хетафе). А у Барселоны в шести последних турах чемпионата Испании лишь одна победа при двух ничьих и трех поражениях. В составе Барселоны травмированы (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F7E6320F2E20319CCEE74B2722FEB748CD44CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769341   (100694) от 28.12.2024
+
+The Hornets - Giorgio's Crawdaddy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98052.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gettin' Started (0:49)
-02. Roots (4:58)
-03. The Other Man (4:11)
-04. The Girl Who Got Away (Back In The Days) (4:10)
-05. Stop! (3:59)
-06. Beale Street (4:34)
-07. You (5:25)
-08. Swing Thing (4:22)
-09. Going Home (4:03)
-10. Give It To Me (5:15)(   Читать дальше...   )2012Жанр: Soul, Vocal JazzПродолжительность: 00:51:33
+01. All That Jazz (2:13)
+02. The Young Always Win (6:11)
+03. At The Marquee (3:08)
+04. Crawdaddy (2:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:44
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:54D24A7D72DF43584C2C343C57B4C0CB76F70077
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -149,220 +496,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472953   (98050) от 30.03.2012
+###  Публикация: 1769329   (100693) от 28.12.2024
 
-Unisonic - Ignition [MCD] (2012) [FLAC|Lossless]<Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unisonic (03:22)
-02. My Sanctuary (04:13)
-03. Souls Alive (Demo Version) (05:11)
-04. I Want Out (Live Version) (05:32)Жанр: Power MetalПродолжительность: 00:18:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475545   (98049) от 30.03.2012
-
-Журнал | Загородная резиденция №1 [2012 февраль-март] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загородная резиденция - журнал о ценностях загородной жизни, будет интересен тем, кто живет в частном доме или только собирается его себе приобрести. В каждом номере советы от ведущих специалистом, обзор рынка, примеры удачных проектов.2012 февраль-мартФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAEAB4C48655FC6A67BFBECDABCB24C4D3D7DFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475313   (98048) от 30.03.2012
-
-VA - Горячий Автохит (2012) [MP3|256 kbps]<Club | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loverush Uk! Feat. Bryan Adams - Tonight In Babylon (Radio Edit)
-02. Robkay Feat. David Posor - Dein Lied (Dein Radio Edit)
-03. Dj Hara Feat. Chriss - Bring It To Me (Radio Edit)
-04. Dj Tatiana Feat. Topsax - Love Drop (Sax Version The Original Mix)
-05. Dj Winn Feat. Freeman Drilla - All About You (Radio Edit)
-06. John Dubs Dj Kenny - Life Arel (Radio Edit)
-07. Sarah West - Black Blue
-08. Nadia Oh - Fqn Amazing
-09. T.I. Feat. Meek Mill - Who What When
-10. Alex Sergius Feat. Роман Гвоздев - Дежавю(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF1FF0A5AA5D39CD9D4F15B6D9F1C432DD6AA97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475538   (98047) от 30.03.2012
-
-Mozilla SeaMonkey 2.9 Beta 2 [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98047.jpg" />
-</div>
-
-
-###  Подробнее
-
-SeaMonkey — проект, основанный на добрых традициях Mozilla Suite. Классическая Mozilla развивалась много лет, обрела свой круг преданных фанатов, но так и не дошла до широких масс, выдвинув на эту роль красивый современный браузер Mozilla Firefox. За основу SeaMonkey взята Mozilla Suite, как проверенный годами продукт, обладающий колоссальной стабильностью и выверенным кодом. К этой основе было добавлено множество функций, ставших привычными для пользователей Mozilla Firefox и Mozilla Thunderbird. В состав SeaMonkey входит несколько компонентов.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475466   (98044) от 30.03.2012
-
-VA - Club Music Energy 50/50 (2012) [MP3|192-256 kbps]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriana & А.Арабов feat. Stilet - Прости Меня (DJ Nejtrino Version)
-02. Катя Лель - Твоя (Ural Djs mix)
-03. Алена Высоцкая - С Ума Сходил (Dj Prosvirin Dfm Mix)
-04. Bobina feat. Betsie Larkin - You Belong To Me
-05. Lena Katina (ex. t.A.T.u) - Never Forget (Trojan Project Radio Remix)
-06. David Guetta - Titanium (Feat. Sia)
-07. Severiano Deejay Feat. K - Flow & Rella Roxx - Unspoken Feelings
-08. Pem D - White Feat. Adrianna Szojda - Take Me Away (Original Mix)
-09. Всё Включено - Солнце на закат (Версия 2011) (сlub extended)
-10. MM Dance - Отдыхаем (Dj Alfred extended mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3B3A32EAB38C60D4E93D619C23B3AC69467555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475492   (98043) от 30.03.2012
-
-VA - Самый, Самый! Русский (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вера Брежнева - Sexy Bambina
-02. Шахзода - Нереально без тебя
-03. DIK - Вселенная
-04. Тамерлан и Алена Омаргалиева - Hey Yo
-05. Митя Фомин - Садовник (Radio Edit)
-06. Алисия & Влад Корса - Здесь и сейчас
-07. Ирина Ортман - Медленно
-08. Шиншиллы - Пушкин Саша
-09. Ажур - Город
-10. Марта - Из тысячи лиц(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF93365B1D159B2CAFC6813960642C857068B2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475036   (98040) от 30.03.2012
-
-145 th Street - Where the Blues Lives (2012) [FLAC|Lossless]<Chicago Blues, Electric Blues>
+Mick Clarke - Singles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98040.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Where the Blues Lives (5:18)
-02. Tell Me, Baby (4:45)
-03. Before Its Time (6:26)
-04. Your Little Show (5:35)
-05. Blues Never Sleeps (5:43)
-06. What Am I S'posed to Do (7:38)
-07. Make Love to You (5:48)
-08. Seven Days (4:40)
-09. Good Mornin' Blues (5:45)
-10. Give Her What She Wants (6:10)2012Жанр: Chicago Blues, Electric BluesПродолжительность: 00:57:47
+01. Susie Q (2:42)
+02. Keeper of the Fire (4:02)
+03. Heartbeat (2:45)
+04. Louie Louie (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:57
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E0BD6ABD9A533710E82F4002DAFB34A1BE248925
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,32 +525,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475026   (98039) от 30.03.2012
+###  Публикация: 1769333   (100692) от 28.12.2024
 
-Gary Smulyan - Smul's Paradise (2012) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
+Scraptones - Truth and Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98039.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sunny (9:01)
-02. Up In Betty's Room (6:42)
-03. Pistaccio (4:44)
-04. Smul's Paradise (8:27)
-05. Little Miss Halfsteps (4:53)
-06. Aires (8:15)
-07. Blues for DP (6:36)
-08. Heavenly Hours (4:02)2012Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:52:41
+01. Truth and Bones (5:25)
+02. All or Nothing (4:46)
+03. Sea of Broken Dreams (4:52)
+04. Bleeding Spirits (5:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:35
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:35289F0B62575437160EF2C09F6E58E769101D78
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,34 +554,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474764   (98038) от 30.03.2012
+###  Публикация: 1769438   (100691) от 28.12.2024
 
-VA - House Vip (27.03.2012) [MP3|320 кб/с]<Electro House>
+Пятеро на одного (28.12.2024) WEBRip [H.264/720p-LQ]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98038.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Christopher S feat. Jamayl Da Tyger - Jump! (Mike Candys Remix) (4:36)
- 2. Cobra Starship vs. Purple Project - You Make Me Feel (Denis First ft. P.P Booty) (5:46)
- 3. Corey Andrew, Liz Mugler, Riviera Kidd - Symphony Of Life (Riviera Kidd Remix) (7:31)
- 4. Fragma – Thousand Times (Marc Lime & K Bastian Remix) (6:29)
- 5. Jason Derulo - Breathing (Michael Mind Project Remix) (5:39)
- 6. Jordan Rivera - One Night (Jack Ferreira Vocal Club Mix) (6:00)
- 7. Labrinth - Last Time (R3hab Mix) (6:00)
- 8. LMFAO - Sorry For Party Rocking (R3hab Remix) (5:12)
- 9. Movetown feat. Nana - Lonely (Mario Lopez Remix) (6:31)
- 10. Tito Torres & Ella - Sunrise (Slin Project Remix) (5:52)27.03.2012Жанр: Electro HouseПродолжительность: 00:59:42
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BBA65DA366CB75581C8A0E7196DC26C2CC39AD9
+magnet:?xt=urn:btih:F6C538660EC7793D89D0D379544221A9FBDA9A15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,34 +580,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475486   (98035) от 30.03.2012
+###  Публикация: 1769330   (100690) от 28.12.2024
 
-VA - Самый, Самый! Зарубежный (2012) [MP3|256 kbps]<Pop | Dance>
+Mike Gannon - Every day I have the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98035.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Britney Spears - Criminal
-02. Mylene Farmer - Lonely Lisa
-03. JLS - Do You Feel What I Feel
-04. R.J. feat. Pitbull - U Know It Aint Love (David May Original Radio Mix)
-05. Beyonce - Dance For You
-06. Pixie Lott feat. Pusha T - What Do You Take Me For
-07. Kazaky - Dance For Change
-08. Marlon Roudette - Riding Home
-09. Nero - Reaching Out
-10. Nicole Scherzinger - Try With Me(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:58:43
+01. Roll with the Punches (4:29)
+02. Route 66 (3:36)
+03. Get Together (3:15)
+04. Yeah Yeah (3:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80E3760E54A58E892DC58923D3928BD15190D419
+magnet:?xt=urn:btih:6AC3AEB45BE195A26CE3E9941026655E4F214BBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,25 +609,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475549   (98034) от 30.03.2012
+###  Публикация: 1769337   (100689) от 28.12.2024
 
-Журнал | Жилая среда №3 [март 2012] [PDF]
+The Creaking Floorboards - Treading Lightly (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98034.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Жилая среда» представляет на своих страницах самые интересные реализованные интерьеры архитекторов и дизайнеров Санкт-Петербурга. Помогает читателю разобраться в многообразии стилей и направлений, рассказывает о тенденциях в интерьерном дизайне, о новинках мировых и отечественных брендов, являясь эффективным навигатором, позволяющим ориентироваться в многообразии (   Читать дальше...   )Формат: PDF
+01. Murder (2:53)
+02. Started Something New (2:44)
+03. Anthropomorphic (3:10)
+04. Blue Minute (2:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B3CBB267539E52B4E0CFDD82173918874BCA381
+magnet:?xt=urn:btih:046B7A338F5B49765918B5116D5A8F277BDC3157
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,34 +638,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475550   (98033) от 30.03.2012
+###  Публикация: 1769425   (100688) от 28.12.2024
 
-VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.14 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+VA - Reason II Rise: Realms Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98033.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Matt Hewie & Patrick Aurelle - Kiss My (Radio Edit)
-02.Ияра - На Губах Тай (DJ Nariman Mix)
-03.Lia Love feat. Chaddi - Down Down (Kriss Raize Radio Edit)
-04.Aslan и Эльдар Далгатов - Опа Опа
-05.Trina feat. Kid Cadet & Vinny Venditto - Outer Space
-06.MMDance - Баня (DJ Noiz & DJ Sender Remix) (Radio Edit)
-07.Antonio Mellifluous feat. Andrew Mastilias - Diamonds In Your Heart
-08.Олег Винник - Аэропорт
-09.Maxigroove - Wonderful Life (Radio Mix)
-10.Leyla - Ночной DJ2012Жанр: Pop, DanceПродолжительность: 05:15:48
+01. Jake Crooker - New World (Mixed) [04:48]
+02. Menno Veda - Orbit (Mixed) [02:00]
+03. Afterus - Sparta (Mixed) [04:43]
+04. Pinkque & Darren Porter - Divergent (Mixed) [04:21](   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:392EBDA41A9CAF8AB9AFD329E3F1DC98034F132F
+magnet:?xt=urn:btih:805A759EB9C359A19DB18A4DC32DEE1B6569E77A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,34 +667,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475040   (98032) от 30.03.2012
+###  Публикация: 1769335   (100687) от 28.12.2024
 
-Monster Mike Welch - Axe To Grind (1997) [FLAC|Lossless]<Modern Electric Blues, Blues-Rock>
+Southernman Robbie - Back to the Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98032.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Did She Say (3:31)
-02. Palm of Her Hand (3:07)
-03. Axe to Grind (4:59)
-04. The Elkmont Stomp (2:37)
-05. Every Time You Lie (3:11)
-06. Afraid of My Own Tears (2:54)
-07. Take Your Best Shot (4:30)
-08. She Couldn't Know (3:16)
-09. Time Stands Still (3:14)
-10. That's My Sin (4:34)(   Читать дальше...   )1997Жанр: Modern Electric Blues, Blues-RockПродолжительность: 00:48:27
+01. Big River Little Town (4:29)
+02. The Witch (Gal Durly Dee) (2:40)
+03. Dreamin' (3:43)
+04. Babe & I (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:31
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:AA4753CFEA239736A58B455F21C373F406E2703C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,246 +696,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475347   (98025) от 30.03.2012
+###  Публикация: 1769418   (100686) от 28.12.2024
 
-VA - 538 Hitzone 59 2CD (2011) [MP3|320 кб/с]<Dance>
+VA - Coldharbour Reflections 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 
->>Архив торрентов
->>Архив Музыки
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98025.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 Время звучания 01:08:02
----------------------------------
-01 - Lucenzo ft. Don Omar - Danza Kuduro
-02 - Maroon 5 ft. Christina Aquilera - Moves Like Jagger
-03 - Katy Perry - Last Friday Night
-04 - James Morrison - Slave To The Music
-05 - Snow Patrol - Called Out In The Dark
-06 - Alexis Jordan - Hush Hush
-07 - Krystl - Fool For You
-08 - Onerepublic - Good Life(   Читать дальше...   )2011Жанр: DanceПродолжительность: 02:20:27
+01. Markus Schulz - Ram Attack (03:46)
+02. DIM3NSION & Daxson - Ardora (03:12)
+03. Mike EFEX - Malfunction (02:39)
+04. Stoneface & Terminal - In My Mind (02:48)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:46:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DB832AB57CFDAF07201FA38FB5372EF58ABC523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474104   (98024) от 30.03.2012
-
-VA - Клубные Новинки Vol.55 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy Mantzur - Epics (David Granha Remix)
-02. DJ Yellow, Yota - I Can't Resist You (DJ Yellow's Sleep No More Drum Edit)
-03. Alexander Popov - When The Sun (Eximinds Remix)
-04. Daniele Sorrenti - A Bailar (DJ Chick Remix)
-05. Beat Service feat. Gemma Pavlovic - Masquerade (Sunn Jellie Remix)
-06. Arkadi & William Daniel - Skypark (Original Mix)
-07. D&S - Tomato (Original Mix)
-08. Max Graham feat. Susana - Down To Nothing (Original Mix)
-09. Masaya (CH) - Again (Nhar Remix)
-10. Madonna - Girl Gone Wild (Offer Nissim Club Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF7DD5EBF539A713BCEE88D3850E045157C62C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474946   (98022) от 29.03.2012
-
-Я, Франциск Скорина... (1969) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историко-биографический фильм о белорусском издателе и просветителе Франциске (Георгие) Скорине, жившем в первой половине XVI века, основателе первой белорусской типографии в Вильнюсе, авторе фундаментальных исследований в области лингвистики.Жанр: Биографическая повестьРежиссер: Борис СтепановАктеры: Олег Янковский, Николай Гриценко, Гедиминас Карка, Гунта Виркава, Янис Грантыньш, Ростислав Янковский, Борис Гитин, Стефания Станюта, Владимир Золотухин, Тамара Муженко, Арнольд Помазан, Здислав СтоммаПродолжительность: 01:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6726A6CEAE5BBC71EBDA7FD5E60638E8AC0F315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475029   (98021) от 29.03.2012
-
-Опасная банда / De Bende van Oss / The Gangs of OSS (2011) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Йоханна хочет порвать с преступным прошлым, которое ее окружает. Но когда ее муж освобождается из тюрьмы, все возвращается на круги своя. Йоханне все труднее и труднее уйти от зверств, совершаемых бандой Oss, и чем дальше, тем глубже она погружается в обман, проституцию и убийства.Жанр: Драма, криминалРежиссер: Андре ван ДаренАктеры: Матиас Скунартс, Сильвия Хукс, Джульетт Ван Арденн, Дан Шурманс, Пьер Бокма, Беня Бружнинг, Дэннис Оверем, Фрэнк ЛаммерсПеревод: Одноголосый закадровый (любительский)Продолжительность: 01:51:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475156   (98018) от 29.03.2012
-
-VA - Хиты Радио Record 20 50/50 (2012) [MP3|160-320 kbps]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98018.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Temple One feat. Neev Kennedy - Love The Fear (Tom Fall remix)
-002 Винтаж - Амстердам (feat. Владимир Пресняков)
-003 Tiesto - Maximal Crazy (original mix)
-004 DJ Цветкоff & Оля Милакса - Белая ночь (Dj Amor remix)
-005 Starkillers, Dmitry KO - Disco Fans (Butterfly Terrace mix)
-006 Serebro - Мама люба
-007 Analog People vs. Feel Good Prod. - Feel Good Vibe (Dj Shum & Dj Oleg Petroff Mashizz)
-008 Вера Брежнева - Реальная жизнь (DJ Vengerov remix)
-009 Duck Sauce - Big Bad Wolf (original mix)
-010 MM Dance - Отдыхаем (Dj Alfred extended mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 049:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9883889610884C7331ED6EB6955FE669AD8D9F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474934   (98017) от 29.03.2012
-
-VA - Magic of Instrumental music (2012) [MP3|256 kbps]<Instrumental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.Taylor - Ima Wa Shiwasekai
-02. N.Mouskuri - Recuerdes De La Alhambra
-03. R.Coniff - Those Were The Days
-04. E.Simoni - Pan Serenade
-05. B.Stenberg - Allegretto
-06. The Ventures - Mexico
-07. E.Schimseheimer - Bamboleo
-08. F.Duval - Kalinas Melodie
-09. S.Preux - Phytandros
-10. Aimable - La Moskova(   Читать дальше...   )2012Жанр: InstrumentalПродолжительность: 05:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B25DDB69680F107623791E3B5429B43872EFA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474935   (98016) от 29.03.2012
-
-Джон Ле Карре | Убийство по-джентльменски [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Джордж Смайли
-Оригинальное название:2009Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF1459E5F763DCB5C01AED78EEEF0EA4DDFAEF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474829   (98014) от 29.03.2012
-
-Александр Сивинских | Проходящий сквозь стены (2 Книги) [2004,2010] [FB2, RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проходящий сквозь стены
-Перед Россией открылась дверь в мир высокотехнологического будущего: именно здесь будет производиться новейший суперпроцессор. Однако никому не известно, что за корпорация намерена вложить миллиарды в проект, а главное, каково его истинное назначение. Детективу Павлу Дезире поставлена задача: приоткрыть хотя бы краешек тайны. Задание может показаться невыполнимым, но только не для Павла. Ведь он — комбинатор, человек, способный проникать сквозь любые стены. Да и помощник у него подходящий — мелкий пронырливый бес. В прямом смысле слова.
-Тайные общества и мифические чудовища, безжалостные опричники и прекрасные весталки, оборотни на службе китайской разведки и байкеры с неустойчивой психикой на службе у собственных комплексов — вот лишь малая часть элементов головоломки, которую предстоит сложить напарникам. И не ясно, обрадует ли их полученная картина. Может статься, она спасёт земную цивилизацию. А возможно — подтолкнёт к гибели.2004, 2010Формат: FB2,RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0051DAB79291B63494F5388657F01DEE01B22560
+magnet:?xt=urn:btih:C69FBF08E537E392EC1983A5FCCEDF1B5F52E06B
 ```
 
 https://mybot314.ru/tekegram_catalog/

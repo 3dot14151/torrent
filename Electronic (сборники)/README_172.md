@@ -1,3 +1,32 @@
+###  Публикация: 1332880   (309722) от 22.10.2019
+
+VA - Mushrooms Of Psychedelic, Vol.02 (2019) [MP3|320 Kbps] <Psy Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Tone - Physical Sounds (Original Mix)
+02. Wave Funktion - Alien Conduit
+03. Norma Project - Heart Of Stone
+04. E-Beiz - Enigma(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 09:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3716D50CE39A4029C35C5363D44574AB46EAAC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332874   (309689) от 22.10.2019
 
 VA - Somatic Cell: Hyperactive Psy Trance (2019) [MP3|320 Kbps] <Trance Psychedelic>
@@ -732,35 +761,6 @@ VA - Радио Рекорд - Record Club за 26.11.2016 [MP3|320 Kbps] <Club,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD2DD094BD134EC43B17E3C8F7A415747847BA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077417   (306790) от 28.11.2016
-
-VA - Power-Up Workout Break Hits (2016) [MP3|192-320 Kbps] <Merengue, Reggaeton, Moombahton, Regional Mexicano, Reggae, Twerk, Trap, Hip Hop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mist - Ain't The Same (Clean) 03:20
-02. Dae Dae - Dead Ass Wrong (Intro Clean) 03:39
-03. Rich Rocka - Ok (Dirty) 03:25
-04. Amine - Baba (Intro Clean) 04:14(   Читать дальше...   )Жанр: Merengue, Reggaeton, Moombahton, Regional Mexicano, Reggae, Twerk, Trap, Hip HopПродолжительность: 04:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA429F152E7393BABF60D940DF97281BBD6D96DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

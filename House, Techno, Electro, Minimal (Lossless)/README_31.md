@@ -1,3 +1,87 @@
+###  Публикация: 1138051   (665708) от 28.05.2017
+
+VA - Seven Stories: Voyage & Return (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yacine Dessouki & Alani - Distant Reflections [06:33]
+02. Luis Leon - Die Blaue Blume [08:27]
+03. No Gravity - Escape The Forest [05:41]
+04. Quartz - Redemption [08:08](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5583AC90E57E9AAD35B6EC8B94AE0058DDF3E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538268   (664407) от 19.03.2022
+
+Deorbiting - Space House (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C58C4A1D1C235DDD33DD2BE3B08E70D269750BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225247   (661821) от 14.05.2018
+
+VA - Miami Deep House Essentials 2018 (2018) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Deep House, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nando Rodriguez, Black Of Birds - Brighter Days (Black Of Birds Interpretation) 8:01
+02. Fat V - How? (Original Mix) 5:12
+03. Nuka Abelsen - Raw And Pure (Original Mix) 4:50
+04. Otnicka - Before Sunrise (Original Mix) 4:55(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 04:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306AA134DC2C9D08D161C86ED6A4ED860072924C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139035   (661290) от 01.06.2017
 
 VA - Endless Music (Mixed & Compiled by Paul Lomax) Vol. 1,2 (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
@@ -664,93 +748,6 @@ VA - Blue Marlin Ibiza-Bruce Hill & Valentin Huedo (unmixed tracks) (2017) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA1FBFF39DF6740FE00EE92CEE09072A1335EFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541096   (648526) от 01.04.2022
-
-Kungs - Club Azur (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zebulon (0:49)
- 02. Fashion (4:32)
- 03. Never Going Home (2:50)
- 04. Clap Your Hands (3:10)(   Читать дальше...   )Жанр: EDM, Nu Disco, Club HouseПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AA92CC2B0F4747C18F573DF17B58B702FDA4F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141906   (646730) от 12.06.2017
-
-VA - Zappi Rocks Ibiza (Compiled by DJ Zappi) Vol. 1,2 (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cheapers - Autumn Blues [06:52]
-02. Elekfantz - Diggin' On You (Solomun remix) [06:40]
-03. David Glass - Gimme Love (feat Moji - Mihalis Safras remix)[06:15]
-04. Danniel Selfmade - And On And On [06:26](   Читать дальше...   )Жанр: Deep House, Tech House |Продолжительность: 05:32:38 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705E34B253C7BF60D6D6244C368672A0B138C693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227435   (646498) от 26.05.2018
-
-Actress x London Contemporary Orchestra - LAGEOS (2018) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Experimental, Techno, Minimal, Contemporary>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LAGEOS (04:38)
- 02. Momentum (08:36)
- 03. Galya Beat (04:33)
- 04. Chasing Numbers (04:21)(   Читать дальше...   )Жанр: Experimental, Techno, Minimal, ContemporaryПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2B7C61DCBC76AAD0C879639F79431F1CC1C60F
 ```
 
 https://mybot314.ru/tekegram_catalog/

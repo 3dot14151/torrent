@@ -1,3 +1,90 @@
+###  Публикация: 1678053   (147914) от 20.11.2023
+
+Lee Morgan - Tom Cat (1964) 1990, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Cat [9:45]
+02. Exotique [9:33]
+03. Twice Around [7:35]
+04. Twilight Mist [6:57](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C62CEE7154C19F8C609D971829BE3029C98159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678057   (147891) от 20.11.2023
+
+Stefon Harris - African Tarantella: Dances With Duke (2006) Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thanks for the Beautiful Land on the Delta [6:03]
+02. Portrait of Wellman Braud [6:00]
+03. Bourbon Street Jingling Jollies [3:55]
+04. Sunset and the Mocking Bird [5:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBE05F4167DF3872C30B73E46A15832B95AD4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271929   (147804) от 25.12.2018
+
+Confusion Project - Primal (2018) Soliton [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Old Oak
+02. Primal
+03. Monologue I
+04. Into The Forest(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B34294DC14A2B73129612F1E0376E8B55E7DCFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678117   (147801) от 20.11.2023
 
 VA - Breezin' Smooth Jazz Tunes West Coast Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -658,93 +745,6 @@ Franco Cerri and His European Jazz Stars (1959) Remaster, 2009, DIW Records[FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E145FE4C7B457D836C9296E439D8FF3E49FE332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435133   (146707) от 27.12.2020
-
-Ella Fitzgerald & Duke Ellington - Ella & Duke At The Cote D'Azur (1966) 2CD, 1997, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146707.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Mack the Knife [4:57]
-02. The Old Circus Train Turn-around Blues [11:01]
-03. Lullaby of Birdland [2:56](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA701174D7578CFC0560DF7BAB6519CCF6469B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087360   (146623) от 27.12.2016
-
-VA - The Beatles in Jazz (1999) Unofficial Release [APE|Lossless|image + .cue] <Smooth Jazz, Traditional Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Benson - The long & Winding Road
-02. Groove Collective - She's So Heavy
-03. Russ Freeman - While My Guitar Gently Weeps
-04. Lee Ritenour - A Day In The Life(   Читать дальше...   )Жанр: Smooth Jazz, Traditional JazzПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4570B697D1217B8537EBD2F947300F6A3F7952A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271792   (146586) от 25.12.2018
-
-Michael Buble (Bublé) - Love (Deluxe Edition) (2018) [FLAC|Lossless|WEB-DL 24Bit] <Vocal, Jazz , Pop , Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Fall in Love (04:03)
-02. I Only Have Eyes for You (03:22)
-03. Love You Anymore (03:02)
-04. La vie en rose (feat. Cécile McLorin Salvant) (03:49)(   Читать дальше...   )Жанр: Vocal, Jazz , Pop , BluesПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E87C2F9E1E8C6047F2B9678FBDE9E1B2477B790
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1366102   (924913) от 10.03.2020
+
+VA - Elite NME Dance Club (2020) [MP3|320 Kbps] <Dance, Pop, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924913.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J Gabriel - It Comes And Goes
+002. Mohjah - Zion Gates (Dub)
+003. Marcelo Diaz - Big Enough
+004. Dj Plur - I Turn To You (Radio Edit)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 11:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5D326AB3BE3FC5B2CBD12E1D34AE70E50587A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095349   (924637) от 21.01.2017
+
+VA - Снежный популярный отрыв (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924637.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Милан Савич - Так И Скажи 3:10
+002. Андрей Гризли & Вахтанг - Небо Над Нами 3:29
+003. Женя Тополь - Ты-Мой Свет 3:30
+004. Alex Belak - Невыносимая 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD29BD7C27C83CCB77C0FBD7367CFECBA7FE31E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095329   (924634) от 21.01.2017
+
+VA - Зимняя сотка хитовая Выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924634.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andy Rey - Музыка 3:00
+002. Евгений Мошков - Это Будет Мой Дом 3:56
+003. Лорена Сарбу - Разрываешь Мне Душу 3:16
+004. Денис Повалий - Спасибо 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EB4B8E1C9B5F1B5464395CDE67399E2BAC5212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095333   (924550) от 21.01.2017
 
 VA - Зимний музобоз русский Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -658,93 +745,6 @@ VA - Bass Pantheon (2020) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:158D7FCEC73BAAF0CE2E6CC7FE2DCDEAD91FAB7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366295   (923953) от 11.03.2020
-
-VA - Beatport Electro House: Sound Pack #23 (2020) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923953.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evgenii Grachev - Few (Original Mix)
-002. Jhon Bernal - Patience (Original Mix)
-003. Carda Feat. Sophia - For A Little
-004. Kevin Brand - Falling For You(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 11:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFD3AD4D307AB3DBEA08CC83A86E5BA3C627259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366293   (923948) от 11.03.2020
-
-VA - Beatport House: Electro Sound Pack #30 (2020) [MP3|320 Kbps] <House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923948.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ninetoes - Volar La Pluma (Extended Mix)
-002. Gene Farris - The Way To Go
-003. David Pietras And Sentinel - Light
-004. Glass Coffee - Aneela(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 12:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D63DF2DDA15DF756686440015ED678BFA9C22BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366377   (923893) от 11.03.2020
-
-VA - Alone With You: Deep House Extended Set (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923893.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abel A Beat - The Deep Eyes (Original Mix)
-002. Action Alexi - Beautiful Life
-003. Albin Lee Meldau - I Need Your Love (Just Kiddin Remix)
-004. Bautista Orol - Latinoamerica(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF4F207EE4FEEBC01A06229A10E47CC24043D5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

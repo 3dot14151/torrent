@@ -1,3 +1,61 @@
+###  Публикация: 1846761   (1051648) от 09.01.2026
+
+GOODBOYS - Linked Radio (01-04) (2025) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GOODBOYS & KREAM - Paradise
+02. Duke Dumont & Jay Norton vs. Landmark - Ocean Drive vs. Only Solution (GOODBOYS Edit)
+03. Twisted Moon vs. Danny Tenaglia ft. Celeda - Keep This vs. Music Is The Answer (Dancin' And Prancin') (GOODBOYS Edit)
+04. Bart Skils & Weska - Something More (Joris Voorn Remix)(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 03:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286F95FD37921148C72D61065D699EF4266149AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846318   (1051313) от 24.01.2026
+
+VA - Tomorrowland Brasil (2025) [MP3|320 Kbps] <Techno, House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agents Of Time & CERES - Baby
+02. Argy & Eli & Dani & Peki & ØSHER - Chasing Highs
+03. Cassian & YOTTO & Da Hool - Love Parade  w/Junior Jack - E Samba (Acappella)
+04. Agents Of Time ft. Ross Quinn - Friend Of Mine(   Читать дальше...   )Жанр: Techno, House, TranceПродолжительность: 36:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB848891D5BCC2889E46C1646635480C1FB085D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846171   (1051230) от 06.01.2026
 
 Hardwell - Hardwell On Air 527 (Yearmix 2025) (2026-01-02) [MP3|320 Kbps] <Techno, Big Room>
@@ -686,64 +744,6 @@ David Guetta - United at Home - Paris Edition from the Louvre (2020-12-31) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACFEC223EC5D67EE2458F110FAA7F0A44EE70D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260313   (1041866) от 05.01.2021
-
-Arika Lane - TopTrance Radioshow (2011-2021) [MP3|256 - 320 Kbps] <Uplifting Trance, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041866.jpg" />
-</div>
-
-
-###  Подробнее
-
-TOPTRANCE 128 MainMix by Arika Lane:
-01. Daniel Kandi - Nova II (The Second Journey) (Extended Mix)
-02. FAWZY - Resonating Force (Ula Remix)
-03. Victor Special - Inhaling Sounds of Thunder (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, TranceПродолжительность: 01:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFB41738231B49F48E0B82BF4BC2A7E782C3FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438426   (1041155) от 08.01.2021
-
-VA - Markus Schulz - Global DJ Broadcast (Deeper Shades) (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massane - No Return
-02. Marsh & Phenoir featuring Mariel Beausejour - Don't Wait
-03. Beije - Standing Between the Worlds
-04. Markus Schulz & Adina Butar - In Search of Sunrise (Watercraft Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEE758610A12A7DAB5E3476BA49A44CCA183795
 ```
 
 https://mybot314.ru/tekegram_catalog/

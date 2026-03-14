@@ -1,3 +1,32 @@
+###  Публикация: 1536715   (672887) от 13.03.2022
+
+VA - Il Caffe Italiano Milano (Italian Lounge Espresso Music) (2017) [AAC|~325 Kbps] <Jazz, Nu Jazz, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik, Alan Scaffardi - Prendila così (3:40)
+02. Matteo Brancaleoni - Una Carezza In Un Pugno (3:07)
+03. Zerosospiro - C'èun Tic (2:55)
+04. Parma Brass Quintet - Via con me (3:15)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D06AF6C583EAEA85B6073206E5D547066D7691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536724   (672885) от 13.03.2022
 
 VA - Electronica Royale, Vol. 1 (Organic Downtempo Vibes Deluxe) (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo, Ambient>
@@ -662,35 +691,6 @@ VA - Licence to Chill 2022 (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4844CBF1C9B8968C258B7DA26D321008D2C116B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537130   (669416) от 15.03.2022
-
-VA - Ibiza Feeling (2022) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Basics On Lounge - Hovering (6:08)
-02. Gries - On the Move (5:42)
-03. Asservat - Intriguing Additions (6:08)
-04. Gamma Orionis - Spring Trees (5:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D26D86B498C1201B7D6A2704A2733471A21812
 ```
 
 https://mybot314.ru/tekegram_catalog/

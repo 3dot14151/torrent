@@ -1,3 +1,149 @@
+###  Публикация: 1526413   (738487) от 24.01.2022
+
+Madeline Juno - Besser kann ich es nicht erklaren (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neukölln (3:52)
+ 02. Obsolet (3:04)
+ 03. Jedes Mal (3:15)
+ 04. Tu was du willst (3:11)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86C555822107B643A1B5AC9938696B1DE63DC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227755   (738012) от 25.01.2022
+
+VA - Top Of The Pops '1974 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение начатой не так давно (ссылка на серию внизу релиза) серию путешествий по победителям топов прошлого века.
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского (   Читать дальше...   )CD1:
+01. ABBA - Waterloo  (2:44)
+02. Sparks - This Town Ain't Big Enough For The Both Of Us  (3:03)
+03. Mud - Tiger Feet  (3:50)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 02:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EC29F73894A81FF3F804D5D49C1D57D25AAE0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526796   (737795) от 26.01.2022
+
+VA - Romantic Pop Songs 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - Love Story (Taylor’s Version) (3:55)
+02. Imagine Dragons - Not Today (4:21)
+03. Justin Bieber - Love Yourself (3:52)
+04. Julia Michaels - Heaven (3:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AE1C746A2D8A6CF14D6C3F72EA843E1801F5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397640   (737560) от 22.07.2020
+
+VA - Relaxing 80s Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Big Love (3:28)
+02. Karizma Duo - Come On Eileen (2:31)
+03. Shannon & Keast - Time After Time (3:45)
+04. The Shaken Bakers - Dancing in the Dark (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098964AF7D4D14D68DEDB6A7C4C52F833A79953D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397685   (737546) от 22.07.2020
+
+VA - The Hits Album The 60s Album (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beach Boys - Good Vibrations (03:36)
+02. Simon & Garfunkel - Mrs. Robinson (04:02)
+03. The Byrds - Mr. Tambourine Man (02:20)
+04. The Mamas & The Papas - California Dreamin' (02:40)(   Читать дальше...   )Жанр: Pop, Rock, R'n'BПродолжительность: 03:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F5770E6A5159F4ED032370476B5198C138A351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397898   (736685) от 24.07.2020
 
 Alekseev (Никита Алексеев) - 2 Альбома (2017 - 2019) [FLAC|Lossless|tracks + .cue]<Рор>
@@ -598,151 +744,6 @@ DJ BoBo - 25 Years Greatest Hits (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83BBA7320194BF0E92307FC3DB3CEA6749D23C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127336   (731721) от 21.04.2017
-
-Bee Gees - Timeless: The All-Time Greatest Hits (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spicks and Specks (2:52)
- 02. New York Mining Disaster 1941 (2:10)
- 03. To Love Somebody (3:01)
- 04. Massachusetts (2:26)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873927FBF9C88AC609435D43DDDD3B2CDC6999C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022094   (730949) от 31.05.2016
-
-Arthur Beatrice - Working Out (2014) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Councillor
-02. Late
-03. Midland
-04. Carter (Uncut)(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767FA09EDC92632D9F030E6CAA48909A6A97EA7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530139   (730774) от 09.02.2022
-
-VA - Winter Acoustic 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhys Lewis - The Sun Will Rise (3:03)
-02. Mipso - Hey, Coyote (3:35)
-03. Bear's Den - Berlin (4:29)
-04. Andrew Bird - Andalucia (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A314187C91A494932EB3772AAF21D9CC21C7A27F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022180   (729879) от 01.06.2016
-
-Tegan and Sara - Love You to Death (2016) [FLAC|Lossless|tracks] <Indie Pop, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Girl
-02. Faint of Heart
-03. Boyfriend
-04. Dying to Know(   Читать дальше...   )Жанр: Indie Pop, Synth PopПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C789627A89855B0279E6817FCFC67281DB28D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022201   (729526) от 01.06.2016
-
-The High Violets - Heroes and Halos (2016) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How I Love (Everything About You)
-02. Dum Dum
-03. Long Last Night
-04. Break a Heart(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Dream PopПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5716830C68EABE214377CB2FB5C86C8842957ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

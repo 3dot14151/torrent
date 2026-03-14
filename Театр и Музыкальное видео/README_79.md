@@ -1,3 +1,255 @@
+###  Публикация: 822218   (479770) от 18.09.2014
+
+I Like a Beautiful Dream 3 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Cat's Parade
+02. Thank you Great Spirit
+03. Adult Swim - Neon Indian
+04. Marie-Louise - Skinny Dip(   Читать дальше...   )Жанр: Ambient, Chillout, New Age, Pop, Instrumental, RockПродолжительность: 02:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC44BD0B6883AE4028F1C9F212324DD7392877E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159883   (479750) от 22.08.2017
+
+Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary Show] BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Europe почти четыре десятка лет играют мелодичный коммерческий хард-поп, который, в зависимости от угла зрения, можно назвать как эталонным, так и сверхпредсказуемым. Нужно сказать, что «The Final Countdown» стал, возможно, первым хард-роковым номером, запись которого была показана по Центральному телевидению Советского Союза. Многим русским тинейджерами этот мелодичный (   Читать дальше...   )01. Hole In My Pocket
+02. The Second Day
+03. Praise You
+04. Nothin To Ya(   Читать дальше...   )Производство: Германия | AdaЖанр: Hard RockРежиссер: Patric UllaeusПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C887296BA0BC454ECA382DC80BB16456D14186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244594   (479729) от 02.09.2018
+
+Квартирник на НТВ у Маргулиса. Юрий Стоянов (09.01.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479729.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эту субботу в атмосферную студию Евгения Маргулиса пришел российский актер театра и кино, народный артист России Юрий Стоянов. Он сыграл на гитаре, исполнил любимые композиции, а также поделился интересными воспоминаниями.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C68D712B2E1B858C8B73DD7A6BE749F827B316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938637   (479676) от 19.09.2015
+
+VA - Осенний марафон № 191 / Видеоклипы (Коктейль Зарубежных Новинок) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (18.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A Great Big World  ft. Futuristiс - Hold Each Other (Official Video) (00:03:40)
+2. Alesha Dixon - Tallest Girl (Official Video) (00:03:21)
+3. Anda Adam - Save Me Tonight (Official Video) (00:03:06)
+4. Anja Nissen - Triumph (Official Video) (00:03:09)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Trance, IndieПродолжительность: 01:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F766EF1ADE20D825EBB23C9EF71C9F367230D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 140808   (479593) от 16.09.2009
+
+The Beatles - документальные ролики из ремастерированного бокс сета / The Beatles - The Mini Documentaries - Box Set Remastered (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка / RockСубтитры: English - French - German - Spanish - Italian - Brazilian Portuguese - DutchФормат: NTSCПродолжительность: ~00:50:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938654   (479453) от 19.09.2015
+
+Slayer - Repentless (Live At Wacken) (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертное выступление Slayer на Wacken Open Air в 2014 году. Входит бонус-диском в комплект к лимитированному изданию нового альбома "Repentless".1. Intro
+2. Hell Awaits
+3. The Antichrist
+4. Mandatory Suicide(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52910E7F00701A687DE75CC4950656FC37D4F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938453   (479364) от 19.09.2015
+
+Deep Purple - From the Setting Sun... in Wacken (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Purple объявили о выпуске двух концертных фильмов, снятых на Wacken и в Японии. To The Rising Sun (в Wacken) был снят на девять HD камер и отмечается что в первый раз Deep Purple выпустит 3D-фильм.01. Highway Star
+02. Into The Fire
+03. Hard Lovin' Man
+04. Vincent Price(   Читать дальше...   )Жанр: Rock,  Hard RockПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964FA080AF78BDA012505777B81040719A7E8679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056786   (478922) от 26.09.2016
+
+David Gilmour - Europejska Stolica Kultury Wroclaw Part.1 (2016) HDTV [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление британского rock музыканта, автора и исполнителя, мультиинструменталиста и музыкального продюсера Дэвида Гилмора в польском Вроцлаве в июне 25, 201601. 5 A.M.
+02. Rattle That Lock
+03. Faces of Stone
+04. Wish You Were Here(   Читать дальше...   )Производство: Польша|TVP2Жанр: Progressive rock, Psychedelic rockПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBAAF3817A8D8BA2CADA1E4F03C28A5584F0263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546313   (478713) от 13.09.2012
+
+Colonia - Laz za laz (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD31AF4D92BB77CF39A254A5CFF1A920F092E46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546179   (478696) от 13.09.2012
 
 Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
@@ -467,267 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54F0DA1CF98ADB7874C67D63D9C0BEDD81F96C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547554   (473970) от 15.09.2012
-
-Dio - Singles Box Set (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Diver
-02. Stand Up And Shout
-03. Rainbow In The Dark
-04. Mystery(   Читать дальше...   )Жанр: МузыкаПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160529   (473769) от 25.08.2017
-
-Graham Bonnet Band: Live...Here Comes the Night (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Грэма Боннета и его группы на Frontiers Rock Festival 2016 в Милане. Грэм Боннэт — британский рок-вокалист, автор песен. Участник групп Marbles, Rainbow, Michael Schenker Group, Impellitteri, Alcatrazz, Forcefield, Blackthorne и других. Также выпустил несколько сольных альбомов.
-Релиз от01. Eyes Of The World
-02. All Night Long
-03. S.O.S.
-04. Stand In Line(   Читать дальше...   )Производство: Frontiers RecordsЖанр: Hard RockПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0695A66CEC3428A1258D8408881EA5E83FFAE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547498   (473727) от 15.09.2012
-
-Live At Wacken Open Air 2011 (2011) [1080p] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wacken Open Air – крупнейший в мире летний фестиваль тяжелой музыки, проходящий под открытым небом. Это грандиозное трехдневное событие проходит ежегодно в первые выходные августа в местечке Вакен (Германия, район Гамбурга). Свою историю Wacken Open Air ведет с 1990 года. За время своего существования фестиваль прошел путь от любительского концерта под открытым небом до одного из самых профессиональных по организации и качественных по составу участников мероприятия среди себе подобных. Сегодня Wacken Open Air - это не просто несколько единомышленников. Это целая организация (полное название: ICS Festival Service GmbH), которая занимается исключительно фестивалем, и в которой работает весьма многочисленный штат. Главной задачей всех этих людей является создание коммерчески успешного фестиваля, и это удается последние несколько лет. В 21 веке практически все фестивали проходили с аншлагом. Организаторы фестиваля заботятся об имидже фестиваля, ежегодно создавая настоящий праздник для металлистов всего мира. Как правило (   Читать дальше...   )Kvelertak - MjodЖанр: Концерт, Heavy, power, gothic, thrash, progressive, death metalПродолжительность: 03:18:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160574   (473647) от 25.08.2017
-
-Status Quo - The Last Night Of The Electrics (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись выступления группы Status Quo в London O2 Arena 11 декабря 2016 года. История команды началась с бит-группы The Spectres, где играли Фрэнсис Росси (гитара, вокал) и Алан Ланкастер (бас), к которым в конце 1967-го присоединился Рик Парфитт. Середина 70-х стала самым успешным периодом в карьере Status Quo. Каждый из альбомов того времени присутствовал в топ-5. (   Читать дальше...   )1 Caroline
-2 The Wanderer
-3 Something Bout You Baby I Like
-4 Rain(   Читать дальше...   )Производство: Германия | EarmusicЖанр: RockПродолжительность: 01:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26D3F5E6C66556C7AD3B12261BEF00BB56C874E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939630   (473086) от 22.09.2015
-
-VA - Осенний марафон № 192 /  Видеоклипы (Сборник Зарубежной Хорошей Музыки) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (21.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. 9Muses - Hurt Locker (Official Video) (00:03:25)
-2. Ask Embla - Fathers Eyes (Official Video) (00:04:11)
-3. B-Brave ft. Cho, Frenna - Verleiden (Remix) (Official Video) (00:03:12)
-4. Big Data ft. White Sea - The Business of Emotion (Official Video) (00:04:17)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Trance, Drum&BassПродолжительность: 01:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC8D7C1FDEA01B9A9052BF73AE16250FD262EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 239594   (472811) от 25.09.2010
-
-Uriah Heep-The Magician's Birthday Party (2001) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт 7 декабря 2001 в Лондоне. На редкость удачная программа
-для нынешнего состава группы. Во многом благодаря идее привлечь "на одну ночь"
-бывших коллег Джона Лоутона и Кена Хенсли.01. Stealin'
-02. Return to Fantasy
-03. Tales
-04. Sweet Pretender(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 01:34:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939703   (472795) от 22.09.2015
-
-Metallica - Live at Rock in Rio (2015) HDTV [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metallica — американская метал-группа, образованная в 1981 году. Исполняет музыку в стиле трэш-метал и хэви-метал. Metallica оказала большое влияние на развитие метала и входит (наряду с такими группами как Slayer, Megadeth и Anthrax) в «большую четвёрку трэш-метала». Альбомы Metallica были проданы в общей сложности в количестве более 100 миллионов экземпляров по (   Читать дальше...   )1-Fuel
-2-For Whom the Bell Tolls
-3-Battery
-4-King Nothing(   Читать дальше...   )Жанр: Rock, Thrash MetalПродолжительность: 02:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895E5FCFFCB252407FE3C85BC463DD4AA724E0F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702050   (472731) от 20.09.2013
-
-Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath - Iron Man
-02. Black Sabbath - Paranoid
-03. Eric Burdon & War - Paint It Black-Medley
-04. Eric Burdon & War - Spill The Wine(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2700AED505F926128A1466972005A2A2A603CA29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701921   (472726) от 20.09.2013
-
-Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath - Black Sabbath
-02. Rare Bird - Sympathy
-03. Blodwyn Pig - See My Way
-02. Canned Heat - Future Blues(   Читать дальше...   )Жанр: Музыка,  RockПродолжительность: 01:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0B189738625619CEA2B2BED8140927CB903B35
 ```
 
 https://mybot314.ru/tekegram_catalog/

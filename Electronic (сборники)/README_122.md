@@ -1,3 +1,32 @@
+###  Публикация: 1048797   (545749) от 03.09.2016
+
+VA - Beatport Top 100 Tech House August (2016) [MP3|320 Kbps] <Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Chapman - Body Jack (Get My Swerve On)
+02. Darius Syrossian, Doorly - Gravity Check (Original Mix)
+03. Moonwalk - Meteora
+04. Mat.Joe - Nonstop Nonsense (Original Mix)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 11:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610B948FC814F11B2222E90BBA94D24A37C7316A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048793   (545734) от 03.09.2016
 
 VA - Beatport Top 100 Deep House August (2016) [MP3|320 Kbps] <Deep House, House, Electronica, Disco>
@@ -716,35 +745,6 @@ VA - Digital Turbo Trance Sunset (2016) [MP3|320 Kbps] <Trance, Energy, Harmonic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A8A98F7A135A2356DCC45A76748F29963D1ABF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311581   (539952) от 30.06.2019
-
-VA - Record Super Chart 593 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539952.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Billie Eilish - Bad Guy (3:14)
-2.Meduza feat. GOODBOYS - Piece Of Your Heart (2:32)
-3.Aaron Smith - Dancin (Krono Remix) (4:15)
-4.Ed Sheeran, Justin Bieber - I Don't Care (3:39)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5352F825A9107FC6205730F0B3AD6F7898196AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

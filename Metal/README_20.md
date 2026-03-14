@@ -1,3 +1,32 @@
+###  Публикация: 995149   (886176) от 10.03.2016
+
+Killswitch Engage - Incarnate (2016) Deluxe Edition [MP3|320 кб/с] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone I Stand (04:30)
+02. Hate By Design (03:47)
+03. Cut Me Loose (03:02)
+04. Strength Of The Mind (03:47)(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A314DD606C5233ED980D45F730BCA894FF8EB9CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372414   (885626) от 03.04.2020
 
 Aliens Ate My Setlist - 3 ЕР, 2 Singles (2012-2020) [MP3|320 Kbps] <Electronic Post-Hardcore>
@@ -707,35 +736,6 @@ I Miss My Death - Mysto (2020) [MP3|320 Kbps] <Gothic Sympho Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFDB857CA92AF08ED85E301183AF6FEDD7697781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374379   (874577) от 09.04.2020
-
-Axxis - Virus of a Modern Time (2020) (EP) [MP3|320 Kbps] <Melodic Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Babylon [00:03:38]
-02 - Boats of Hope [00:05:01]
-03 - Last Eagle [00:04:27]
-04 - Mother Money [00:05:02](   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4BED02A751F2966A821E9DB6EB5F78A5FD78EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

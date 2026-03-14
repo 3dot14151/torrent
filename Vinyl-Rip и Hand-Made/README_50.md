@@ -1,3 +1,119 @@
+###  Публикация: 1624200   (200378) от 04.04.2023
+
+Bad Boys Blue - Heart Beat (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200378.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Wanna Hear Your Heartbeat (Sunday Girl) 3:50
+A2 Mon Amie 4:35
+A3 One Night In Heaven 4:45
+A4 Baby I Love You 4:05(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0516415DA150824AE74BA119DF738D99981E4E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624989   (200228) от 08.04.2023
+
+Sandra - The Long Play (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200228.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		In The Heat Of The Night	5:20
+A2		On The Tray (Seven Years)	3:45
+A3		Little Girl	3:11
+A4		You And I	6:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1658B77489D61A9EB9B53A0D0B3571339125FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626371   (199887) от 14.04.2023
+
+Scorpions - Blackout (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199887.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Blackout
+A2. Can't Live Without You
+A3. No One Like You
+A4. You Give Me All I Need(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D83B40EE1942AE7E89374231DC99BC6E5CB45C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557543   (199804) от 14.04.2023
+
+Overkill - Studio Albums (21 releases) (1985 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Overkill — американская трэш-метал-группа, основанная в 1980 году в Нью-Джерси. Состав группы претерпел неоднократные изменения, и единственными неизменными участниками Overkill с момента основания являются вокалист Бобби «Blitz» Эллсворт и басист Д. Д. Верни. У группы есть талисман по имени Чали, который нарисован на большинстве обложек их альбомов — череп с костлявыми (   Читать дальше...   )1993 - I Hear Black
+1994 - W.F.O.
+1996 - The Killing Kind
+1997 - From The Underground And Below(   Читать дальше...   )Жанр: Thrash/Groove MetalПродолжительность: 18:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA79B0D8D4BF1B2D305537A46923BDBE826D231A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627881   (199581) от 20.04.2023
 
 Queen - Innuendo (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Glam>
@@ -628,123 +744,6 @@ A4 Anniversary Song(   Читать дальше...   )Жанр: Pop, Easy Liste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF4D3D6A5EB5844DEC31847A3D5027AB20CE10B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657320   (192745) от 03.09.2023
-
-Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cleansed By Fire (10:37)
-02 - Scapegoat (07:11)
-03 - The Devil's Bride (06:08)
-04 - Lament (06:22)(   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 01:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531077   (192610) от 03.09.2023
-
-Hellyeah - Studio Albums (6 releases) (2007 - 2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hellyeah — американская грув-метал-группа из Далласа, штат Техас, представляющая собой «супергруппу». Коллектив был основан в 2006 году вокалистом Чедом Греем, гитаристом Грэгом Триббеттом из Mudvayne, гитаристом Томом Максвеллом из Nothingface, басистом Бобом Зилла из Damageplan и ударником Винни Полом из Pantera, Damageplan и Rebel Meets Rebel.
-В 2014 году группа (   Читать дальше...   )2007 - Hellyeah
-2010 - Stampede
-2012 - Band Of Brothers
-2014 - Blood For Blood(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 04:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D56803B2EA75FD2EB4705BE79094586D72417EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657591   (192447) от 04.09.2023
-
-Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Glam, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192447.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Will Follow
-A2 Tell Me A Story
-A3 Talking 'Bout A Feeling
-A4 Knee Deep In Sky High(   Читать дальше...   )Жанр: Glam, Classic RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE16C61CBB84414735DA1FBAC1927212DAE29EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657722   (192270) от 05.09.2023
-
-Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лицензия от Virgin Records Ltd [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192270.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Валотт • Valotte
-A2 С Тобой Все В Порядке • O.K. For You
-A3 По Телефону • On The Phone
-A4 Космос • Space(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029C3FA11D0FE7920587CCEB40A869598C025EB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

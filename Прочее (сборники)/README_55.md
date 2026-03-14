@@ -1,3 +1,32 @@
+###  Публикация: 1394580   (763627) от 05.07.2020
+
+VA - Rock & Chill (2020) [MP3|320 Kbps] <Rock, Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - Leave Out All The Rest 3:29
+02. Stone Temple Pilots - Sunburst 6:29
+03. Red Hot Chili Peppers - Scar Tissue 3:36
+04. Nirvana - Dumb 2:32(   Читать дальше...   )Жанр: Rock, Pop, OtherПродолжительность: 04:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11A480B9E9DBBEF2309D13BA0159CDBA5AD7111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279992   (763526) от 01.02.2019
 
 VA - Billboard Hot 100 Singles Chart 02.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
@@ -716,35 +745,6 @@ VA - Red And White: March Party (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EBE15277E04A48A4183973DDFCECDEF3C3A92A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215363   (759954) от 25.03.2018
-
-VA - New Music Friday UK From Spotify 24-03 (2018) [MP3|320 Kbps] <Britpop Revival, Baroque Pop, Afrobeats, Dancehall>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Ezra - Shotgun 3:21
-02. David Guetta, Sia - Flames 3:15
-03. Shawn Mendes, Teddy Geiger, Geoff Warburton, Scott Harris - In My Blood 3:32
-04. Diplo, Trippie Redd - Wish (Feat. Trippie Redd) 2:55(   Читать дальше...   )Жанр: Britpop Revival, Baroque Pop, Afrobeats, DancehallПродолжительность: 03:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2BE0F57868E499091E6F6C204A29EA167BD56D
 ```
 
 https://mybot314.ru/tekegram_catalog/

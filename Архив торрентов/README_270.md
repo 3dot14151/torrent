@@ -1,3 +1,29 @@
+###  Публикация: 601125   (998393) от 10.01.2013
+
+Sexy Girls Wallpapers (09.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18B8F6A969D040C07351C0447C45C1B3EC4C4CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600679   (998392) от 10.01.2013
 
 Fiona Apple - The Idler Wheel is Wiser ... (2011) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Adult Alternative Pop/Rock>
@@ -684,36 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC2FDBF47F1BD0DA3159F1C1D984FCB21CA6CB18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601253   (998342) от 10.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 27
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998342.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 27
-Название: New 2013 Wallpaper Pack 27
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376A1A22416A9F7D78A8A0773DD102938446230D
 ```
 
 https://mybot314.ru/tekegram_catalog/

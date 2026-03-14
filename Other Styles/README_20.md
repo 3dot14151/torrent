@@ -1,3 +1,119 @@
+###  Публикация: 984495   (935463) от 11.02.2016
+
+NuSound - Erotic Moods - The Collection: Volumes 1-3 (1998-2001) 2006 Neurodisc Records, Inc. [FLAC|Lossless|tracks + .cue] <Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dream (5:18)
+02. On Wings of Angels (4:05)
+03. Breathe with Me (4:27)
+04. I Feel You in My Soul (4:36)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69599966D0E2F08171DB846368DD167BA33D84AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984611   (935455) от 11.02.2016
+
+Blowing Free - Sax Moods (1995) 2004 Правительство звука [FLAC|Lossless|tracks + .cue] <Easy Listening, Soft Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchained Melody (3:29)
+02. I Will Always Love You (4:08)
+03. Songbird (3:25)
+04. Careless Whisper (4:14)(   Читать дальше...   )Жанр: Easy Listening, Soft JazzПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28CE7586DD41D82E3259EE661B618EB0050CE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985166   (935449) от 11.02.2016
+
+Richard Clayderman - The Classics (1997) [FLAC|Lossless|tracks + .cue] <Easy listening, Semi-classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barcarolle (3:01)
+02. Feelings (3:17)
+03. Elisabethan Serenade (1:57)
+04. My Way (3:50)(   Читать дальше...   )Жанр: Easy listening, Semi-classicalПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F86760728B10299FF17D90755F3EA9BB33669F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985145   (935448) от 11.02.2016
+
+Richard Clayderman - When A Man Loves A Woman (1995) 2002  Universal Music Russia [FLAC|Lossless|tracks + .cue] <Modern, Romantic>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Always Love You (4:12)
+02. When a Man Loves a Woman (2:58)
+03. Goodnight Girl (3:35)
+04. The Streets of Philadelphia (3:37)(   Читать дальше...   )Жанр: Modern, RomanticПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C30C23D63A68C40F20FFDE8D2876DBC50D1BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985187   (935269) от 11.02.2016
 
 Fausto Papetti - Oggi 4: Quarantaseiesima raccolta (1988) [FLAC|Lossless|tracks + .cue] <Easy Listening>
@@ -635,122 +751,6 @@ Aenigmatica - Enigmatic (2016) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:009398BCB51C39B0BA364C2404DD8EE21DBF2869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365305   (929006) от 08.03.2020
-
-Max Arnald - Piano Covers 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (4:07)
- 02. Hello (4:09)
- 03. Stitches (4:04)
- 04. A Kind of Magic (4:04)(   Читать дальше...   )Жанр: New Age, Modern Classical, Piano, RelaxationПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0D0C92BA3AC382309B1038C48F4F6CAD7B716F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986626   (928891) от 15.02.2016
-
-Janis Joplin - Janis Little Girl Blue (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack, Blues, Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Janis Joplin - Careless Love (3:07)
-02. Big Brother & The Holding Company - Down On Me (2:03)
-03. Janis Joplin - Women Is Losers (Live) (5:06)
-04. Big Brother & The Holding Company - Ball And Chain (Live) (8:07)(   Читать дальше...   )Жанр: Soundtrack, Blues, RockПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C994BB86B1E2C0DA6EFCF8BF631B1076BA07D4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986121   (928767) от 15.02.2016
-
-VA - Quentin Tarantino's The Hateful Eight / Омерзительная восьмёрка (Original Motion Picture Soundtrack) (2015) Score by Ennio Morricone [FLAC|Lossless|tracks + .cue] <Soundtracks, Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Ultima Diligenza Di Red Rock (07:33)
-02. Overture (03:12)
-03. "Major Warren Meet Daisy Domergue" (00:33)
-04. Narratore Letterario (02:02)(   Читать дальше...   )Жанр: Soundtracks, ClassicalПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EA36560D8C1A0E09F95651C353C6F48604CD47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 630480   (926551) от 16.03.2013
-
-Johnny Cash - Sings The Songs That Made Him Famous (1958) [FLAC 2.0 24/96|tracks (WEB-DL)]<Country>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ballad Of a Teenage Queen [02:15]
- 02.  There You Go [02:21]
- 03.  I Walk The Line [02:47]
- 04.  Don't Make Me Go [02:30](   Читать дальше...   )Жанр: Country & BluegrassПродолжительность: 00:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD34BB920578802434747537DC5C8C8A8E1232DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

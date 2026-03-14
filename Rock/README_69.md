@@ -1,3 +1,61 @@
+###  Публикация: 1332937   (309367) от 22.10.2019
+
+Jeff Lynne's ELO - From Out Of Nowhere (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309367.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. From Out Of Nowhere
+2. Help Yourself
+3. All My Love
+4. Down Came The Rain(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4C12BF20CF263CFBB3E619D8B9D6B8F82554C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260683   (309138) от 08.11.2018
+
+Imagine Dragons - Origins (2018) Deluxe Edition [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natural
+02. Boomerang
+03. Machine
+04. Cool Out(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE60C827886E3BFFAC5128943DAA3E18A10A541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077113   (309074) от 27.11.2016
 
 The Blackbirds - No Destination (1968) Remastered, 2005, Long Hair [MP3|320 Kbps] <Psychedelic Rock, Pop Rock, Beat, Krautrock>
@@ -693,64 +751,6 @@ The Wet Fish - Ready To Blow (2020) [MP3|320 Kbps] <Rock & Roll>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED13D87A078B17A1FCF38BFA07B7F47CA9508F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961852   (296988) от 03.12.2015
-
-Pink Floyd - 1965: Their First Recordings (2015) [MP3|320 кб/с]<Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucy Leave
-02. Double O Bo
-03. Remember Me
-04. Walk with Me Sydney(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E511C7FABC7C8972B1742202FB2DB473212FDE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962156   (296980) от 03.12.2015
-
-Pianoбой - Take Off (2015) [MP3|320 кб/с]<Piano Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Take Off — третья студийная пластинка Дмитрия Шурова и его группы Pianoбой. Это десять эмоциональных песен о любви, свободе и жажде жить. Take Off (с англ. «взлёт», «отрыв») — это состояние, когда человек, птица или самолёт концентрирует свои лучшие качества, чтобы преодолеть силы, держащие его на земле. Не всегда это удаётся, но без отрыва не бывает полёта. А без (   Читать дальше...   )01. Лучшее, Что Есть
-02. Родинки
-03. Freedom To Love
-04. Так Добре З Тобою(   Читать дальше...   )Жанр: Piano RockПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5246D950FF5B9819E5A0B7D5378BB6691FB6EE46
 ```
 
 https://mybot314.ru/tekegram_catalog/

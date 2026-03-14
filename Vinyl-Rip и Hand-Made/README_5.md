@@ -1,3 +1,142 @@
+###  Публикация: 602537   (997489) от 13.01.2013
+
+Cyndi Lauper - She's So Unusual (1983) [FLAC 2.0 96/24|image (vinylRip)]<Contemporary Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Changes Everything (5:04)
+02. Girls Just Want to Have Fun (3:57)
+03. When You Were Mine (5:05)
+04. Time After Time (4:01)
+05. She Bop (3:51)
+06. All Through the Night (4:31)
+07. Witness (3:39)
+08. I'll Kiss You (4:11)
+09. He's Son Unusual (0:46)
+10. Yeah Yeah (3:13)Жанр: Contemporary Pop/RockПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603794   (996913) от 15.01.2013
+
+Гражданская Оборона - Звездопад (2011) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Post-punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996913.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Песня Красноармейца 2:37
+A2. Песня О Циркаче 2:40
+A3. На Дальней Станции Сойду 4:28
+A4. Шла Война 3:09
+A5. Звездопад 2:58
+B1. Ветер Северный 2:08
+B2. Город Детства 5:07
+B3. На Всю Оставшуюся Жизнь 3:06
+B4. Слово - Товарищ 2:51
+B5. Каравелла 2:54(   Читать дальше...   )Жанр: Post-punkПродолжительность: 01:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600F9F1D454EA5A2F649A031DFD80B2D7DB585E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603416   (996893) от 15.01.2013
+
+Наутилус Помпилиус (Nautilus Pompilius) - Чужая земля (1992) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996893.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Монгольская Степь 5:10
+A2. Эти Реки 3:04
+A3. Иван Человеков 4:33
+A4. Чистый Бес 4:46
+A5. Чужая Земля 4:08
+B1. Прогулки По Воде 3:48
+B2. Бесы 5:00
+B3. Морской Змей 4:21
+B4. На Берегу Безымянной Реки 4:16
+B5. Летучая Мышь 5:05Жанр: RockПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E903C8D6A94FB68D5462FB08FA40F9A13A0AE782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603819   (996860) от 15.01.2013
+
+Наутилус Помпилиус (Nautilus Pompilius) - 2 альбома (1986-1988) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996860.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Скованные 4:28
+A2. Князь Тишины 3:42
+A3. Взгляд С Экрана 4:34
+A4. Стриптиз 4:58
+B1. Доктор Твоего Тела 4:45
+B2. Я Хочу Быть С Тобой 4:30
+B3. Казанова 4:11
+B4. Шар Цвета Хаки 2:46
+B5. Прощальное Письмо 3:48Жанр: RockПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3FC04D141D1463E32E63C82F8395E070280BE24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599817   (996846) от 15.01.2013
 
 Ария - 3 альбома (1987-1991) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Hard Rock, Heavy Metal>
@@ -695,128 +834,6 @@ A4. Top Of The World [4:33](   Читать дальше...   )Жанр: Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED5AB61891CAA9D775D72B75817588B02CE65779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970826   (985764) от 03.01.2016
-
-VA - Кубинская эстрадная оркестровая музыка 60-х годов (1961) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маленький ансамбль - Оркестр Э. Лекуона
-02. Мама Инес - Оркестр Э. ГренетаЖанр: Pop, RetroПродолжительность: 00:04:41
-
-Страна-производитель: USSR
-Издатель (лейбл): Пластмасс(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A1C7680908B3B23444F48E7FC6B6274AC089F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613874   (982375) от 04.02.2013
-
-Depeche Mode - 2 альбома (1987, 1990) [1st, US press] [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982375.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. World In My Eyes 4:26
-A2. Sweetest Perfection 4:44
-A3. Personal Jesus 4:18
-A4. Halo 4:30
-A5. Waiting For The Night 6:10
-B1. Enjoy The Silence 6:13
-B2. Policy Of Truth 4:55
-B3. Blue Dress 5:45
-B4. Clean 5:29Жанр: Synth-popПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE98CDF9D88713EFFB06255062F95905FC51DB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972583   (981994) от 06.01.2016
-
-Yovanna/Иованна - 3xEP: Песни Д. Плессаса и К. Капнисиса (1962, 1964) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песни К. Капнисиса
-01. Говорят, Говорят
-02. Капитан Фафальос
-03. Дождь(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4AC16232D0088A43E407C9B5CFDF33F03C30B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972443   (981818) от 06.01.2016
-
-VA - Место встречи - Выпуск 4 (1988) [FLAC 2.0 24/192] image+.cue (Vinyl-Rip) <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Заставка -Место встречи-
-02 - Для тех, кто любит рок - AC/DC
-03 - Меня не провести - Status Quo
-04 - Удовлетворение - Rolling Stones(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455619579D282BF72742EB0247C87405ACDD2B3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

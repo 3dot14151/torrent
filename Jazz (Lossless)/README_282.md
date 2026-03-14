@@ -1,3 +1,87 @@
+###  Публикация: 1345775   (165903) от 16.12.2019
+
+Phil Hey Quartet - Subduction: Live at the Artists' Quarter (2005) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway One [8:39]
+02. Darius Dance [9:52]
+03. The Best Thing for You [4:36]
+04. Subduction [6:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362AE94E82271BD07F0DF24DAD3C68AFB03A5F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 341515   (165837) от 15.12.2020
+
+Berk & The Virtual Band - Jazz Chill / Jazz Chill Vol.2 (2006, 2007) [APE, FLAC|Lossless|image + .cue]<Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Jazz, Smooth JazzПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891127DCDD6FB72388398BDC90FDD91B2F29BAFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345683   (165716) от 16.12.2019
+
+VA - Smooth Jazz Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Colionne - Got To Keep It Moving
+02. Oli Silk - Tokyo
+03. Cindy Bradley - Massive Transit
+04. Julian Vaughn - Wayman's Way(   Читать дальше...   )Жанр: JazzПродолжительность: 01:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEEC3FD2C65C0B583264F5F5C9F0D90DD08D108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673354   (165520) от 01.11.2023
 
 Django Reinhardt - BD Jazz, Vol.2 (1937 - 1953) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
@@ -658,93 +742,6 @@ Caro Emerald - Metropole Orkest & Caro Emerald (2017) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:861B08B85D6FDF9B8627FB5CCFED698E5F848A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598027   (164329) от 17.12.2022
-
-Kenny Drew - The Classic Albums (1953 - 1961) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164329.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Yesterdays [5:20]
-02. Stella by Starlight [2:28]
-03. Gloria [3:22](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 05:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8837B140D209F6A21F024C247FA0DAC28289E768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432516   (164287) от 17.12.2020
-
-Jamie Cullum - The Pianoman At Christmas (2020) Island Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Jazz-Pop, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Christmas [3:15]
-02. Beautiful, Altogether [3:31]
-03. Hang Your Lights [4:57]
-04. The Jolly Fat Man [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Jazz-Pop, ChristmasПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423F01D478FDF5FF7A8BA5C59DE89D1D7CCB4503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346451   (163928) от 19.12.2019
-
-Ray Bryant - Four Classic Albums 1956 - 1962 (2016) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163928.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cubano Chant [3:07]
-02. Off Shore [3:56]
-03. Well You Needn't [3:19](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21232CA3201CA58ADC9370141A32E426983571CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

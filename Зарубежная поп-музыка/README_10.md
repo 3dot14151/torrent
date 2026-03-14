@@ -1,3 +1,32 @@
+###  Публикация: 1371818   (888699) от 01.04.2020
+
+Kristina Bazan - EPHV1 (2018) [MP3|320 Kbps] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VR
+02. Iron Veins
+03. Old Soul
+04. Killer(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DBB753149B8542DF2BC6F51A0657219A9C567C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103238   (887797) от 11.02.2017
 
 Leda - Welcome To Joyland (1978) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
@@ -719,35 +748,6 @@ DJ BoBo - Rare Trax (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2FC6B085BF298C35F51E4741EE60A9150199117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105045   (875068) от 18.02.2017
-
-VA - Latin Lovers (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Fuentes - El Perdon (03:26)
-02. Alejandro - Obsesionado (03:29)
-03. Antonio Bueno. Laila - Safari (03:28)
-04. Rodrigo Mendez - Bobo (03:31)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66DEEEC86DE29321220C4DF9A454DF9E766FD83
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 950231   (373103) от 25.10.2015
+
+VA - Gold Lounge - The Lounge of Luxury (2015) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Horner - Mellow Daze (02:10)
+02. The Big Sound - Lounge Lizard (02:02)
+03. Ginger Tunes - Round Midnight (05:19)
+04. Jive Ass Sleepers - Big Bad Boss Man (04:49)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 02:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999432AA06B12147F488032BCA8D50DDC5921019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950142   (373061) от 25.10.2015
 
 VA - Halloween Party (20 Trick or Treat Dance Hits) (2015) [MP3|320 кб/с]<Dance, Electro House>
@@ -723,38 +752,6 @@ VA - Space Ibiza: 1989 - 2016 (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DFD4D3426AC3466397C42CFB16C7CEBDA875A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575081   (368779) от 15.11.2012
-
-VA - A State Of Vocal Trance Volume 10 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368779.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - A State Of Vocal Trance Volume 10 (2012)
-Год: 2012
-Жанр: Vocal Trance
-Продолжительность: 03:04:13Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:001. Allure feat. Emma Hewitt — Stay Forever (Extended)
-002. Ana Criado & Ronski Speed — Afterglow (Ronski Speed Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D772AE8B4AD2B5170EA85F7D53FE801D391F6E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

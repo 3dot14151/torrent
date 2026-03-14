@@ -1,3 +1,32 @@
+###  Публикация: 925190   (542810) от 05.08.2015
+
+Boney M. - 25 Best Songs (2015) [MP3|~245 кб/с]<Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy Cool 1976 (03:29)
+02. Ma Baker 1977 (04:37)
+03. Rivers Of Babylon 1978 (04:23)
+04. 10.000 Lightyears 1984 (04:34)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037044B61896531CAC268DA3B45578E332164D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531560   (542747) от 05.08.2012
 
 VA - Русская Новинка Пляжного Сезона (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -785,35 +814,6 @@ VA - Top of Dance - Club Music Edition (2015) [MP3|320 кб/с]<Dance, Club, Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD428EBD8E8742F0DEB81DB83CB7775F3F888B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926173   (535579) от 09.08.2015
-
-VA - Love Lounge - Hooki-Sonic Recordings (2015) [MP3|320 кб/с]<Downtempo, Deep House, Soulful>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Shake That Thing 06:55
-02. King Hookiss - After Midnight (Chillout Mix) 08:00
-03. Ladamar - Loverbreak (Radio Edit) 06:54
-04. Trillian - Colour Me Sexy 06:30(   Читать дальше...   )Жанр: Downtempo, Deep House, SoulfulПродолжительность: 08:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B762FB535DA17D06BD71952C886F1DA001F0C233
 ```
 
 https://mybot314.ru/tekegram_catalog/

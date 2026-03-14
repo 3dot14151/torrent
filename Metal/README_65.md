@@ -1,3 +1,32 @@
+###  Публикация: 940448   (469145) от 24.09.2015
+
+Exilia - Purity (2015) [MP3|320 кб/с]<Nu Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rewind
+02. She's Not Me
+03. New Bloom
+04. Bliss(   Читать дальше...   )Жанр: Nu Metal, Female VocalПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E3CD7F3AB7F560E1ABA36D69AE48258F50BFB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940428   (468962) от 24.09.2015
 
 Gloryhammer - Space 1992: Rise of the Chaos Wizards (2015) 2CD [MP3|320 кб/с]<Symphonic Power Metal>
@@ -716,35 +745,6 @@ Dephosphorus - Sublimation (2020) [MP3|320 Kbps] <Dea﻿th Metal, Black M﻿etal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFC45414CC39CA708E3DBD28EFBE4F2193CE6A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408390   (456119) от 12.09.2020
-
-Frowning - Death Requiem (2020) [MP3|320 Kbps] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ﻿The Sound of Abandonment (11:28)
-02. Submerged in Emptiness (10:52)
-03. Apocalyptic Essential ﻿Misery (11:09)
-04. Reflection (As I Lay Dying cover) (08:35)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE66FBC10ED014CDFA69AEF2F802C1AB0D90A94
 ```
 
 https://mybot314.ru/tekegram_catalog/

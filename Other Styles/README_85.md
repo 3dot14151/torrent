@@ -1,3 +1,148 @@
+###  Публикация: 1148736   (602505) от 09.07.2017
+
+Dolly Parton - The Real... Dolly Parton (The Ultimate Collection) (2013) 3CD [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Dumb Blonde
+02. Just Because I'm A Woman
+03. D.I.V.O.R.C.E.(   Читать дальше...   )Жанр: CountryПродолжительность: 02:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267F760097CC60CF88E2E195F2974EA17A9FB4CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148943   (602487) от 09.07.2017
+
+Empire Of Love - Mysterious I-II (2016-2017) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of The Sun (4:54)
+02. Heya (5:45)
+03. In The Dream Of The Monk (4:32)
+04. Inside You (4:36)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B497B5B3FD313FCEE8D0A9E9A90AA07316FB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149108   (602365) от 09.07.2017
+
+VA - Sax & Sex Collection (1995)(10CD)[FLAC|Lossless|tracks + .cue] <Smooth Jazz, Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Stewart & Candy Dufler - Lili Was Here (04:18)
+02. Kenny G. - Let Go (05:48)
+03. David Sanborn - Goodbye (05:32)
+04. George Howard - Baby Come To Me (06:37)(   Читать дальше...   )Жанр: Smooth Jazz, Instrumental, Easy ListeningПродолжительность: 11:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E5D4D4F5E7C4A69643488F4E6820CC46660E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232014   (602223) от 23.06.2018
+
+VA - Deadpool 2 / Дэдпул 2 (2018) [MP3|320 Kbps] <Pop, Rap, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celine Dion - Ashes
+02. Diplo, French Montana & Lil Pump - Welcome to the Party (feat. Zhavia Ward)
+03. DJ Shadow - Nobody Speak (feat. Run The Jewels)
+04. Peter Gabriel - In Your Eyes(   Читать дальше...   )Жанр: Pop, Rap, ElectronicПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33A213F8CD1FB8FD9AF407CB8C03A901FF45748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298085   (602127) от 26.04.2019
+
+Alan Silvestri - Avengers: Endgame / Мстители: Финал (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Totally Fine (04:30)
+02. Arrival (01:50)
+03. No Trust (03:09)
+04. Where Are They? (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2200CA7F36190D7FBA634F8D5D9E199833ADDD93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298248   (601876) от 27.04.2019
 
 Angelight - Четыре ветра (2006) [FLAC|Lossless|tracks + .cue] <New Age>
@@ -620,157 +765,6 @@ Mark Pinkus - Deep Diving (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CF962DB175B1ABAF4258843BF0DF398E5863422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039243   (598045) от 31.07.2016
-
-Craig Padilla - Heaven Condensed (2016) [MP3|320 Kbps] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stonington Moon 09:24
- 02. Heaven Condensed 28:46
- 03. Across the Light 07:18
- 04. Heavenly Sails 28:31Жанр: Ambient, New AgeПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF2073A8958CA56B9CC95AAFABD00381BDEA3C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038958   (597487) от 31.07.2016
-
-Levin Minnemann Rudess - From the Law Offices Of (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Instrumental, Jazz-Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to the Machine [00:04:18]
-02. Ready, Set, Sue [00:03:31]
-03. Riff Splat [00:05:34]
-04. What is the Meaning? [00:04:21](   Читать дальше...   )Жанр: Progressive Rock, Instrumental, Jazz-RockПродолжительность: o1:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E4CDEBC6A01F69440238CA4E19AAE6100EE935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039268   (597373) от 31.07.2016
-
-Ewan Dobson - 2 Альбома (2008, 2010) [FLAC|Lossless|tracks + .cue] <Acoustic, Bluegrass>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know Your Pain    03:59
-02. Level 5    05:19
-03. Orange    04:04
-04. Dancing with Her    03:14(   Читать дальше...   )Жанр: Acoustic, BluegrassПродолжительность: 02:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8324EBC58AC27B0CD74D78C967F7B0D8A696108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526195   (597056) от 24.07.2012
-
-Fausto Papetti - Collections (2009) [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фаусто Папетти был на вершине славы в 1960—1970 гг., и почти каждый его новый альбом достигал вершин хит-парадов. Его сборники выпускались даже на латиноамериканском рынке. В 1970 гг., на пике своей популярности, он выпускал по два альбома в год. Особенностью его сборников также стали сексуальные обложки, на которых изображались обнаженные девушки. Самым продаваемым (   Читать дальше...   )1.  A Whiter Shade Of Pale (2:59)
-2.  All The Time In The World (3:21)
-3.  You're The First, The Last, My Everything (3:07)
-4.  Stayin' Alive (4:34)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2C98A51133311804F932601852933260C0FF95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526603   (596889) от 24.07.2012
-
-В. Цой - Кино в Кино (2002) [MP3|320 кб/с]<Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дальше действовать будем мы [03:52]
- 02. Закрой за мной дверь, я ухожу [03:59]
- 03. Раньше в твоих глазах... [02:24]
- 04. Попробуй спеть вместе со мной [05:14]
- 05. Перемен! [05:14]
- 06. Звезда по имени Солнце [03:24]
- 07. Группа крови [04:21]
- 08. Невеселая песня [05:49]
- 09. Следи за собой [05:26]
- 10. Моро едет к морю [02:22](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7532414615CB5F716678BF17EAC613E09409CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

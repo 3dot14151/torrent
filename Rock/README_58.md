@@ -1,3 +1,61 @@
+###  Публикация: 1413097   (412026) от 02.10.2020
+
+Methodica - Clockworks (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Trick (extended Version) (07:45)
+ 02. When I Fell Out Of The Sky (07:07)
+ 03. The Door To You (07:42)
+ 04. Shooting Stars (03:33)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 01:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD429385D6D6ED270142EA5D71C9D0624FFA6CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413034   (411739) от 02.10.2020
+
+Queen + Adam Lambert - Live Around The World (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411739.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tear It Up (Live At The O2, London, UK, 02/0718)
+2. Now I'm Here (Live At Summer Sonic, Tokyo, Japan, 2014)
+3. Another One Bites The Dust (Live At Summer Sonic, Tokyo, Japan, 2014)
+4. Fat Bottomed Girls (Live At The American Airlines Center, Dallas, USA, 2019)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EE8C1B9E776A045654AA203C880D7E320FD644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252147   (411163) от 04.10.2018
 
 Дядя Ваня - #Люди (2018) [MP3|320 Kbps] <Rock, Hard Rock, Ska>
@@ -688,64 +746,6 @@ Freddie Mercury and Montserrat Caballe - Barcelona [Japanese Edition] (1988) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A2BFDDF029189F7CC6352BD7F769603D8E44E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413828   (407266) от 05.10.2020
-
-Trilogy - Here It Is (1980) Reissue CD, 2009, MALS [MP3|320 Kbps] <Electronic, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venice  (4:34)
-02. Breakthrough  (6:07)
-03. Changing Scene  (9:22)
-04. Andy  (6:12)(   Читать дальше...   )Жанр: Electronic, Progressive RockПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8723FF8AD72AEBCD7D833DBEA9CB5D1FEC3ED161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563337   (404447) от 21.10.2012
-
-VA - 100 Hits. Driving Rock 5 СD (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:17:21
-
-1. Don McLean - American Pie (Part 1)
-2. Al Stewart - Year Of The Cat(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

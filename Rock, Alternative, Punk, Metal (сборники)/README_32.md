@@ -1,3 +1,32 @@
+###  Публикация: 1416483   (367183) от 16.10.2020
+
+VA - Rock Drive 11 (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 H.E.A.T. - Dangerous Ground
+02 Crystal Shawanda - Church House Blues
+03 Gathering Of Kings - Lorelei
+04 Dion & Joe Bonamassa - Blues Comin' On(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7BB1DA3B7FDBBB1BCD75F274F95BDBC92CACBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255253   (365888) от 17.10.2018
 
 VA - Shy Of Shameless: October Blues Collection (2018) [MP3|320 Kbps] <Blues, Rock Blues, Rock and Roll>
@@ -715,35 +744,6 @@ T.Rex - Greatest Hits (2020) [MP3|320 Kbps] <Glam-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53BA959A6C9CF85E62DB498247CAB7581470A382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417510   (353247) от 22.10.2020
-
-VA - Rock Classic Ballad: Special Performance (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353247.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Custard - Deliver Me
-002. Kaledon - Lilibeth
-003. Claymore - Crossroad Of Forever
-004. Winterstorm - Break The Ice(   Читать дальше...   )Жанр: RockПродолжительность: 07:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7024DF2F0AAE09E4774126EB59971849BD98EE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

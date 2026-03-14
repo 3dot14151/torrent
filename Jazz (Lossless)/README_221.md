@@ -1,3 +1,90 @@
+###  Публикация: 1261777   (301275) от 12.11.2018
+
+Clifford Brown - Jazz 'Round Midnight (1954 - 1956) 1993, Verve [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lands End [4:57]
+02. (I Don't Stand A) Ghost of a Chance [7:21]
+03. Willow Weep for Me [3:27]
+04. September Song (feat. Sarah Vaughan) [5:47](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94420C3D7198EE35CA7B757947B73EA869737763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261766   (301274) от 12.11.2018
+
+Billy Eckstine - Jazz 'Round Midnight (1950-e - 1960-e) 1994, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone to Watch over Me [3:17]
+02. My Old Flame [3:19]
+03. The Song Is You [2:53]
+04. Star Dust [2:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A70636C37CA11105AA3B17AFAEAC641CE634E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261784   (301272) от 12.11.2018
+
+Sun Ra And His Arkestra - Super-Sonic Jazz (1956) 1991, Evidence [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. India [4:52]
+02. Sunology [5:43]
+03. Advice to Medics [2:05]
+04. Super Blonde [2:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B7787665FCFE7985B828525CF4E7247CBBB284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261773   (301271) от 12.11.2018
 
 Milt Jackson - Jazz 'Round Midnight (1964 - 1968) 1997, Verve [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -670,93 +757,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D515EBE18CD4CA137A6F6C7EE99F9A2B3A0D0254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423739   (298076) от 14.11.2020
-
-Dakota Staton - Dakota Staton (1991) Muse Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Man [2:49]
-02. Mean to Me [5:07]
-03. The Thrill Is Gone [5:28]
-04. The Bitter Earth [4:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC31BAFC7B7FC3F7CC57CC2C7DC84B4A3AB718B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078938   (298061) от 02.12.2016
-
-Ella Fitzgerald & Louis Armstrong - The Wonderful World Of Ella Fitzgerald & Louis Armstrong - 16 Great Songs (1988) [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't We Be Friends (3:47)
-02. A Foggy Day (4:31)
-03. Love Is Here To Stay (3:59)
-04. Don't Be That Way (4:57)(   Читать дальше...   )Жанр: Vocal JazzПеревод: Музыка на этом компакт-диске была записана на аналоговом оборудовании. Мы попытались сохранить, насколько это возможно звук оригинальной записи.Продолжительность: 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152B9F491800762C576CFAEE10479255281FA124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184927   (297540) от 19.11.2017
-
-Jeremy Wall - Cool Running (1991) Amherst Records [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of the Blue [05:19]
-02. Riverrun [04:29]
-03. Key West Strut [05:24]
-04. Global Village [05:24](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5525243EBB1B107192FB51F98A66DE2D9FCDFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

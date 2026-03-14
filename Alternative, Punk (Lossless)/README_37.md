@@ -1,3 +1,90 @@
+###  Публикация: 1247110   (454545) от 14.09.2018
+
+Jungle - For Ever (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smile (03:07)
+02. Heavy, California (03:04)
+03. Beat 54 (All Good Now) (04:06)
+04. Cherry (03:16)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4B1A4E85CCF57D5D2684C96B00B4CA5A7E2ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408416   (454021) от 13.09.2020
+
+Desecration Conflict - Digital Dementia (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valor [00:04:17]
+02. Decide to Die [00:03:36]
+03. Grotesque [00:03:33]
+04. Take the Fray [00:03:53](   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCBBC3EE2FBDE801AEF3A00D6FC2CD342987ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408079   (454019) от 13.09.2020
+
+Mindwake - B-52 (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454019.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. Nil [00:00:56]
+00. Gaïa's Throne [00:04:37]
+00. Hourglass [00:03:41]
+00. Reset [00:03:58](   Читать дальше...   )Жанр: Nu-Metalcore, HardcoreПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2B48A627E0A2F364031D880CB01B4D3E30A7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569171   (453827) от 12.08.2022
 
 Norma Jean - Deathrattle Sing For Me (2022) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Metalcore>
@@ -657,93 +744,6 @@ Katatonia - The Great Cold Distance (2006), Reissue, 2017, Peaceville, [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4288CFBCB8D5628387BA7842E5F7F9A5B2B6DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943252   (435250) от 09.10.2015
-
-Blue Stahli - The Devil (2015) Deluxe Edition [FLAC|tracks|WEB-DL]<Industrial Rock, Electronic >
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning
-02. Not Over Til We Say So
-03. Armageddon
-04. Down In Flames(   Читать дальше...   )Тип издания: АльбомЖанр: Industrial Rock, ElectronicПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38875BD9521AF00E27D188250E6AA849B3D98332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362141   (434228) от 12.09.2017
-
-The Verve - 8 альбомов, 20 CD (1993 - 2017) [FLAC|Lossless|image + .cue|tracks+.cue] <Psychedelic Rock, Indie, Shoegaze, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434228.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Verve - британская рок-группа, образованная в 1989 году в Уигане, Большой Манчестер, Англия и распадавшаяся трижды, последний раз в 2009 году. После распада большинство участников группы занялись своими сольными проектами. Создать собственную группу Ричард Эшкрофт (Richard Ashcroft) решил, уже будучи студентом колледжа. Чуть позже к банде присоединился профи (   Читать дальше...   )Список альбомов:
-1992 The Verve
-1993 A Storm In Heaven
-1994 No Come Down(   Читать дальше...   )Жанр: Psychedelic Rock, Indie, Shoegaze, AlternativeПродолжительность: 20:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECDBE5CAFE01CAFD5671B5DD27E612B4E7CD50F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249626   (433602) от 24.09.2018
-
-Sparta - Wiretap Scars (2002) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock, Post-Hardcore, Emo>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cut Your Ribbon (3:06)
- 02. Air (3:57)
- 03. Mye (3:39)
- 04. Collapse (4:17)(   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, Post-Hardcore, EmoПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35B8460340E192C3DB4D7A292E30B9E7C1FAB25
 ```
 
 https://mybot314.ru/tekegram_catalog/

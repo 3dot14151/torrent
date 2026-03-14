@@ -1,3 +1,61 @@
+###  Публикация: 1375483   (865485) от 14.04.2020
+
+Peter Pearson - A Piece of a Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Piece of a Dream
+02. Chilled to the Heart
+03. Affairs of the Heart
+04. Midnight Oil(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D01B432F6989B35D6BC8E49CF1650486E45468A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375351   (865395) от 14.04.2020
+
+VA - Satin Love (Luxury Jazz Music For Fine Dine & Lounge) (2018) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Easy Listening, Smooth Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865395.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Fabrice Mogini - Dinner In Style (Original Mix) (3:20)
+2.Riaan Nieuwenhuis - In The Light (Original Mix) (4:33)
+3.Vocalatti - Parisienne Chill (Original Mix) (3:14)
+4.Alexandre Molodkov - Awash Yacht (Original Mix) (3:27)(   Читать дальше...   )Жанр: Lounge, Easy Listening, Smooth JazzПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37EBBDAAE35D47679FB4F38DA1ADAB1B09349A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375813   (863869) от 15.04.2020
 
 Jens Buchert - Cocoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient Dub, Downbeat, Trip-Hop, Deep House>
@@ -684,64 +742,6 @@ VA - The Essential Downtempo: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A4CE8B94AC557887D0348310B131CDD65D4EBC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118347   (813191) от 25.03.2017
-
-Lemongrass - Orion (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystery Sky (5:10)
- 02. Kyoto Garden (5:45)
- 03. Sur la mer (4:31)
- 04. Sunset Glow (4:39)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C41CBDA8877120330FCC92ADF51F862CD630F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383304   (811582) от 15.05.2020
-
-VA - Happy Moments Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811582.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Roberto Sol, Lisa De Andrade - Coracao (4:24)
-2.Alexandra Hampton, Merge Of Equals - Beautiful (4:25)
-3.Divincii - Che Star (Original Mix) (4:47)
-4.The Soul Crusaders - Into the Setting Sun (4:38)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71CD1CBF2209E0650D9CFAA5CA66C593F342F96
 ```
 
 https://mybot314.ru/tekegram_catalog/

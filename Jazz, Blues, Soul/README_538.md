@@ -1,3 +1,212 @@
+###  Публикация: 466767   (96425) от 12.03.2012
+
+Annie Ross - Gypsy (1995) [FLAC|Lossless]<Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsy Overture—Instrumental
+02. Everything’s Coming Up Roses
+03. You’ll Never Get Away
+04. Some People
+05. All I Need Is a Boy
+06. Small World
+07. Together Where You Go
+08. Let Me Entertain You
+09. Reprise1995Жанр: Vocal Jazz, Big BandПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466953   (96409) от 12.03.2012
+
+Al Hirt - Swingin' Dixie! (2010) [APE|Lossless]<Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan
+02. Tiger Rag
+03. Fidgety Feet
+04. Tailgate Ramble
+05. St. Louis Blues
+06. Saints
+07. Floatin' Down To Cottontown
+08. Mississippi Mud
+09. And The Angels Sing
+10. New Orleans(   Читать дальше...   )2010Жанр: Dixieland, New Orleans JazzПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465216   (96348) от 11.03.2012
+
+Mina Agossi - Red Eyes (2012) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes without a face (5:06)
+02. The crying girl (4:00)
+03. The stars are in your eyes (6:03)
+04. Sleep Babe Blues (4:32)
+05. Why Did You Do It? (3:51)
+06. As if (4:16)
+07. Red House (2:48)
+08. Let it rain (4:53)
+09. Oh you! (2:26)
+10. Red eyes (6:35)2012Жанр: Vocal JazzПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465210   (96320) от 11.03.2012
+
+Квартал - КвартаLove (2001) [WavPack|Lossless]<Blues, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сада-Якко (4:07)
+02. Сердце моё (4:46)
+03. Южный крест (4:06)
+04. Октябрь-пастух (4:19)
+05. Амудсен (3:50)
+06. Слова на серой скале (4:51)
+07. Ay Mi Vida (5:32)
+08. Новый вальс (3:14)
+09. Садко (2:02)
+10. Я изнемогаю от любви (Песнь песней) (4:06)(   Читать дальше...   )2001Жанр: Blues, Jazz-RockПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462897   (95619) от 05.03.2012
+
+Roy Roberts - Deeper Shade Of Blue (1999) [FLAC|Lossless]<Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Help You Tonight (3:52)
+02. Blues Get Off My Shoulder (3:19)
+03. Tonight Your Love Belongs To Me (3:47)
+04. Mr. D.J. (3:26)
+05. I Tried (5:29)
+06. I Can't Go On (3:47)
+07. I'll Chase Your Blues Away (6:17)
+08. Learning To Love You Again (3:24)
+09. My Shades Of Blue (5:29)
+10. I've Been Makin' Love (4:10)(   Читать дальше...   )1999Жанр: Modern Electric BluesПродолжительность: 00:5200
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462905   (95613) от 05.03.2012
+
+Steve Weingart & Renee Jones - Dialogue (2011) [FLAC|Lossless]<Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Village (5:32)
+02. Restless (4:59)
+03. Back Down (5:37)
+04. Eethray (5:27)
+05. Lighthouse (5:04)
+06. Busy Day (5:39)
+07. Empty Chair (3:05)
+08. Spider Web (5:29)
+09. Tell Tales (4:59)
+10. Do Note Move (5:45)(   Читать дальше...   )2011Жанр: Jazz, FusionПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462911   (95603) от 05.03.2012
 
 Alice Coltrane - Universal Consciousness & Lord Of Lords (2011) [FLAC|Lossless]<Jazz, Modern Composition>
@@ -668,216 +877,6 @@ Udi Levy - Ahava (2011) [FLAC|Lossless]<Smooth Jazz, Blues>
 08. City Lights (4:59)
 09. Memories of You (5:20)
 10. Roughly Smooth (5:26)2011Жанр: Smooth Jazz, BluesПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453720   (93708) от 18.02.2012
-
-Lena Horne - Love Songs (1999) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Love (2:16)
-02. Love Me Or Leave Me (3:13)
-03. The Man I Love (3:21)
-04. You're The One (3:35)
-05. People Will Say We're In Love (3:25)
-06. Don't Take Your Love From Me (3:09)
-07. Love Is The Thing (3:21)
-08. Someone To Watch Over Me (3:15)
-09. At Long Last Love (2:41)
-10. I'm Confessin' (That I Love You) (3:28)(   Читать дальше...   )1999Жанр: Vocal JazzПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453735   (93707) от 18.02.2012
-
-Gray Sargent - Shades of Gray (1993) [FLAC|Lossless]<Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Get Lost (5:04)
-02. Gray Haze (3:58)
-03. Don't Take Your Love From Me (7:21)
-04. I Know Why \ My Foolish Heart (7:03)
-05. A.P. in the P.M. (4:15)
-06. You Don't Know What Love Is (8:36)
-07. A Nightingale Sang In Berkeley Square (6:32)
-08. This Time The Dream's On Me (5:17)
-09. My Ideal (6:25)
-10. Long Ago And Far Away (5:08)(   Читать дальше...   )1993Жанр: Guitar JazzПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453234   (93559) от 16.02.2012
-
-VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Count Basie - I'm Confessin' (That I Love You) (4:51)
-02.Billy Taylor Trio - La Petite Mambo (4:49)
-03.Paul Desmond - Alice In Wonderland (4:06)
-04.Bill Evans - For Heaven's Sake (4:26)
-05.Thelonious Monk - It Don't Mean A Thing (If It Ain't Got That Swing) (4:40)
-06.Oscar Peterson - Georgia On My Mind (3:46)
-07.Eugen Cicero  - Autumn Leaves (6:24)
-08.Earl Hines - Moonlight In Vermont (3:13)
-09.Erroll Garner - Misty (2:48)
-10.George Shearing - Someone To Watch Over Me (2:35)(   Читать дальше...   )2009Жанр: JazzПродолжительность: 01:08:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453160   (93555) от 16.02.2012
-
-Too Slim And The Taildraggers - Shiver (2011) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stoned Again (4:36)
-02. Daddies Bones (4:55)
-03. Can't Dress It Up (5:05)
-04. In Your Corner (4:54)
-05. I Heard Voices (0:48)
-06. Everybody's Got Something (5:02)
-07. Workin' (5:57)
-08. She Sees Ghosts (4:45)
-09. Inside of Me (4:29)
-10. As the Tears Go By (4:52)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453266   (93550) от 16.02.2012
-
-Hope Waits - Hope Waits (2007) [FLAC|Lossless]<Vocal Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be Satisfied (2:57)
-02. You Crossed the Line (3:58)
-03. Fortune Teller (4:47)
-04. Yesterdays (4:40)
-05. Get Behind the Mule (4:34)
-06. Ring Them Bells (3:49)
-07. Drown in My Own Tears (3:54)
-08. The Ballad of Judith Anne (4:07)
-09. Cigarettes and Coffee (4:14)
-10. Mother in Law Blues (2:51)(   Читать дальше...   )2007Жанр: Vocal Jazz, BluesПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452798   (93531) от 16.02.2012
-
-VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cal Tjader - Morning (2:59)
-02.Dusty Springfield - Breakfast In Bed (2:54)
-03.Astrud Gilberto - Champagne And Caviar (3:23)
-04.John Scofield - Green Tea (5:12)
-05.Incognito - Smiling Faces (5:10)
-06.Curtis Stigers - My Babe (4:48)
-07.Stan Getz & Joao Gilberto - Doralice (2:47)
-08.Stephane Grapelli - Hot Lips (2:51)
-09.Hildegard Knef - Coffee Song (1:59)
-10.De-Phazz - Rise And Shine (5:00)(   Читать дальше...   )2009Жанр: Vocal Jazz, BopПродолжительность: 01:00:44
 
 ## Скачать торент
 ```bash

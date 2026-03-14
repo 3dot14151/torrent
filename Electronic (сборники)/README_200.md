@@ -1,3 +1,32 @@
+###  Публикация: 1598792   (161311) от 21.12.2022
+
+Vargo - Compilation (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (Original Chorus Mix)
+02. Relax (Blank & Jones, Vargo Vocal Rmx)
+03. Those Were the Days
+04. Slowdive(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAFC067257AEF0AFB5AF313858F8F8B63B575B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433280   (161133) от 20.12.2020
 
 VA - Record Super Chart 667 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Techno Electro Sound: EDM Liveset (2019) [MP3|320 Kbps] <Techno, EDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EAE6566DC554D2053AB5ED825AEB1B3BA911E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346604   (157807) от 20.12.2019
-
-VA - Beatport Electronic Pack 01 (2019) [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157807.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gui Boratto - No Turning Back
-002. Raymond D Barre - Shodar (Original Mix)
-003. Duca - No Comment (Original Mix)
-004. Soman - Impact(   Читать дальше...   )Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 12:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED3D3DB6E29C6890765CE851A08961059184C98
 ```
 
 https://mybot314.ru/tekegram_catalog/

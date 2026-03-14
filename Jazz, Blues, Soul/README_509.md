@@ -1,3 +1,177 @@
+###  Публикация: 1726154   (108798) от 27.05.2024
+
+dB Bluesband - Do You Need a Ring (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do you need a ring (3:01)
+02. Laissez le bon temps rouler (3:33)
+03. Too fast (2:32)
+04. Show me Suzanne (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F930958DDF56EF2B92A4CA73DE3DF77CC3C28FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726146   (108795) от 27.05.2024
+
+Randy Scott - Oasis (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fixation (4:10)
+02. Twilight (4:34)
+03. Glow (4:56)
+04. Oasis (3:40)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A759ECA354ADC99866F653FE70C02C2EFDFFCF75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726139   (108794) от 27.05.2024
+
+Paula Atherton - Dancin' Shoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baila (4:11)
+02. Inside Out and Backwards (4:14)
+03. Keep It Comin' (4:05)
+04. Give Me a Reason (5:26)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33880E38AEE180459438A8727D08C00E8190AFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726160   (108784) от 27.05.2024
+
+Greg Wilson - It's My Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Midnight (Cover) (5:01)
+02. Rock with Me (Cover) (4:20)
+03. It’s My Soul (3:38)
+04. Check up on My Baby (Cover) (3:46)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85CF0BDF2E2E37F7824CECC90997DE5083406CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725815   (108778) от 27.05.2024
+
+Dave Stryker Quartet - Blue Degrees (1993) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Degrees [11:00]
+02. Scorpian Dance [8:24]
+03. Alfie [5:35]
+04. Out of Bounds [8:02](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A19732DA6050FE3D4F80690CB466A9434C154D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726071   (108776) от 27.05.2024
+
+Horace Parlan - Blue Parlan (1978) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye Pork Pie Hat [8:06]
+02. Sunspots [6:14]
+03. Firm Roots [4:33]
+04. Monk's Mood [5:53](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CBE251B391101321A6900AE8F4F9013FC3346C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726076   (108773) от 27.05.2024
 
 Lorne Lofsky - Lorne Lofsky (1992) Jazz Inspiration [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Guitar Jazz>
@@ -571,180 +745,6 @@ Allen Gilliland - Revenge (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7448B96FD4CABAECB2956BBD224C8FBC78EC6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726413   (108676) от 29.05.2024
-
-VA - Ultimate Enjoyable Sweet Intimate Lounge Chill Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Islands in Tranquility (5:06)
-02. Chillaxing Jazz Kollektion - Wherever I Go (4:19)
-03. Konstantin Klashtorni - Together Again (4:07)
-04. Chillaxonic - Quintessence (4:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD82EBEC01BA90EE01C6AAC4952568348EF242A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726556   (108673) от 29.05.2024
-
-The Birdland Big Band - Live (2019) Birdland Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of Birdland [5:55]
-02. On the Street Where You Live [5:26]
-03. Let's [4:56]
-04. Taking Flight [7:21](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0811E679AB9AB01ED8E0DEF7F352C7A77691BB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726558   (108672) от 29.05.2024
-
-Horace Parlan - In Copenhagen (1999) 2008, Storyville [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parker's Mood [5:30]
-02. Broken Promises [4:27]
-03. Two Sleepy People [7:00]
-04. I'm Getting Sentimental over You [5:14](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB8DF37EA647CF8EA44B507502D8BC309905B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726821   (108643) от 31.05.2024
-
-Don Carroll - Blues Organ (2008) [MP3|320 Kbps] <Hammond, Blues, Organ>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. North Reids Prairie [02:51]
-02. What The Funk [02:54]
-03. Blues? I Think I Got 'em [04:28]
-04. Bump And Grind [04:04](   Читать дальше...   )Жанр: Hammond, Blues, OrganПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1B463BC9A3CC5601CD7BEF597EABF84189CC19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726806   (108631) от 31.05.2024
-
-The Birdland Big Band - Storybook: The Music Of Mark Miller (2023) Birdland Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storybook [6:45]
-02. Water Lily [6:56]
-03. Tenderly [4:16]
-04. Chorale and Alleluia [7:38](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7DF47949366AB22949823BDB4C0CE613335F11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726807   (108614) от 31.05.2024
-
-Mary Lou Williams - Zodiac Suite (1945) 1991, Vintage Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aries [2:24]
-02. Taurus [2:30]
-03. Gemini [3:00]
-04. Cancer [4:37](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57ADF9D0A5171AA5373EC61A4AD8BB7C83E4161
 ```
 
 https://mybot314.ru/tekegram_catalog/

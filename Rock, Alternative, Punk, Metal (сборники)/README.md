@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1858433   (1060485) от 10.03.2026
+
+Dave Stewart - Compilation (1990-2025) [MP3|320 Kbps] <Pop rock, Soft rock, New wave, Miscellaneous>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Single Night (& Martina McBride) ❂ Lucky Numbers 2013
+02. Tragedy Street ❂ Greetings From The Gutter 1994
+03. All Messed Up (& Martina Mcbride) ❂ The Blackbird Diaries 2011
+04. Happy To Be Here ❂ SlyFi 1998(   Читать дальше...   )Жанр: Pop rock, Soft rock, New wave, MiscellaneousПродолжительность: 06:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9A6C073B520BF52E393A5258DFB06C84ADBAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856485   (1058796) от 28.02.2026
 
 VA - Russian Rock 2019-2020  [MP3|320 Kbps] <rock>
@@ -717,35 +746,6 @@ VA - The Stress: Rock Psychedelic Compilation (2023) [MP3|320 Kbps] <Psychedelic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5647BF312DFB978D8FEFE482C118900545E3E140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609738   (1043143) от 04.02.2023
-
-VA - The Rock Meeting (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043143.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Waterboys - Bed On The Floor
-002. U2 - Even Better
-003. Electric Light Orchestra - Moment In Paradise
-004. Morgen - Everything's Gone(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 11:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01849C3A8ADA77203C1FEB9278F1025FAE2DA93E
 ```
 
 https://mybot314.ru/tekegram_catalog/

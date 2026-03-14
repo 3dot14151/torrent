@@ -1,3 +1,32 @@
+###  Публикация: 1068390   (380865) от 01.11.2016
+
+VA - Trance Traveling 82 (Mixed By VNP) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Vocal, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ana Criado - Vulnerable (Denis Kenzo Remix)  6:15
+02. Reskide - Drawbridge (Extended Mix)  3:45
+03. Moonlight Tunes - You Will Find The Way (Original Mix)  4:45
+04. Mardven - Aim (Extended Mix)  3:08(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Vocal, Energy, ProgressiveПродолжительность: 04:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18954690368FF110B788E44119789DB13C74C19E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326534   (380772) от 22.09.2019
 
 VA - Hits of My Soul Vol. 49 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
@@ -737,35 +766,6 @@ VA - Soul of Ibiza Volume 46 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EADA4311FBC0E37C0FFCA2D4A036E697FEB49B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175601   (376636) от 19.10.2017
-
-VA - Radio ParadokS – Vocal Trance (2017) [MP3|256-320 Kbps] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & JES – If Not Now (Album Mix)
-02. Somna – Believer (Extended Mix)
-03. Sunlounger & Eden Iris – Dancing With a Ghost (Club Mix)
-04. Carl Daylim feat. Rita Raga – Not Here To Stay (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 10:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D71C06531B26A0DF140DC12D70DA57B0CD44D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

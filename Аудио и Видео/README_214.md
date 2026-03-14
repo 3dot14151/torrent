@@ -1,3 +1,32 @@
+###  Публикация: 1422952   (306408) от 10.11.2020
+
+VA - After Sunset Lounge: Chillout Your Mind (2020) [AAC|~331 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Your Gentle Eyes (Original Mix) (5:40)
+02. Michael e - Lovely as a Summer Day (6:00)
+03. Michael e, Tim Gelo - All That We Are (7:46)
+04. Tigerforest - Azure (4:02)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC9E3F3D2C5EE51AC1FEE96121E253CEA02E32E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422945   (306407) от 10.11.2020
 
 VA - City Sunset Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo, Lounge, Chillout>
@@ -682,32 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7EA687FFDA27B419F312781B2324621C47341D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261594   (303123) от 11.11.2018
-
-Кристофер Робин / Christopher Robin (2018) BDRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303123.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни повзрослевшего Кристофера Робина царит повседневная рутина. Однажды он встречает друга детства — медвежонка Винни. Вместе им предстоит вернуться в Стоакровый лес, чтобы не только отыскать потерявшихся друзей, но и вновь обрести счастье.Производство: СШАЖанр: Мультфильм, фэнтези, драма, комедия, приключения, семейныйРежиссер: Марк ФорстерАктеры: Юэн МакГрегор, Хейли Этвелл, Бронте Кармайкл, Марк Гейтисс, Оливер Форд Дейвис, Ронки Адеколуэхо, Эдриан Скарборо, Роджер Эштон-Гриффитс, Кен Нвосу, Джон ДаглишПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBDBB8379962DAA0FDF7442106FF64EAED5B88E
 ```
 
 https://mybot314.ru/tekegram_catalog/

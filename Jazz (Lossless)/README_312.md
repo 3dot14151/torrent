@@ -1,3 +1,90 @@
+###  Публикация: 1704353   (114290) от 04.03.2024
+
+Wynton Marsalis - Wynton Marsalis (1982) CBS [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Father Time [8:13]
+02. I'll Be There When the Time Is Right [2:35]
+03. RJ [3:51]
+04. Hesitation [5:45](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C99F713A54D5DCB76ED6F52AEB28DBEB2CF785B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704350   (114288) от 04.03.2024
+
+Charles Williams - Trees And Grass And Things (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trees and Grass and Things [4:37]
+02. Chop! Chop! [4:41]
+03. Cracklin' Bread [7:35]
+04. Exactly Like You [4:43](   Читать дальше...   )Жанр: Jazz-Funk, Soul-JazzПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5E5C7752F98DDE3AEA777710A1D549E53834DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704349   (114286) от 04.03.2024
+
+Cedar Walton - Composer (1996) Astor Place [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martha's Prize [6:15]
+02. The Vision [7:25]
+03. Happiness [5:51]
+04. Minor Controversy [7:14](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90757FED6897F0565F350C219D2373C42AF5A418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704623   (114109) от 05.03.2024
 
 Cedar Walton Trio - Plays Billy Strayhorn (1974, 1988) 2009, Jazz Ball Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -658,93 +745,6 @@ Stephane Grappelli - Just One Of Those Things (1973) 1992, Black Lion [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9C7E4F8D12CB6086F9BE5B333B0EDBE56FBB31D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705315   (113852) от 08.03.2024
-
-Wynton Marsalis & The Lincoln Center Jazz Orchestra - Experience Jazz Like Never Before (2003) Marnier-Lapostolle [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oska-T [11:41]
-02. My Favorite Things [4:15]
-03. Continuous [5:04]
-04. Dizzy Atmosphere [5:41](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Big BandПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BECD51A726C324FFB7425F7893D147FE61E8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705024   (113846) от 08.03.2024
-
-V.A. - In Paris Highlights. CD, Compilation (1995) [FLAC|Lossless|image + .cue] <Jazz, Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Turner - I've Got The World On A String		02:54
-02. Gerry Mulligan - The Lady Is A Tramp		03:43
-03. VaGerry Mulligan - My Funny Valentine		04:44
-04. Lionel Hampton - I Only Have Eyes For You		03:34(   Читать дальше...   )Жанр: Jazz, Bop, Hard BopПродолжительность: 01:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C68BCEA59253C13203AD6065BBFA02B09C399A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705318   (113840) от 08.03.2024
-
-Lionel Hampton - Hot Mallets, Vol. 1 (1937 - 1939) 1987, BMG [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buzzin' Around with the Bee [3:07]
-02. Stompology [3:00]
-03. On the Sunny Side of the Street [3:15]
-04. I'm Confessin' (That I Love You) [3:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A216CE99AAA552E0CC0E2E19F0430BBAAA05A93B
 ```
 
 https://mybot314.ru/tekegram_catalog/

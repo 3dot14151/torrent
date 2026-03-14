@@ -1,3 +1,32 @@
+###  Публикация: 1343375   (218602) от 06.12.2019
+
+VA - Beatport Electro House December Pack #01 (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218602.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Milf Hunter - Nuclear
+002. Big Bunny - Life Is Good
+003. Jeffrey Goldstar - Real (Original Mix)
+004. Steve Jameson - Break It Down(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F307EC2040D045BE04B2F45E961A0F90B433DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343338   (218478) от 06.12.2019
 
 VA - EDM Hardstyle For Heavy Fitness (2019) [MP3|320 Kbps] <Hard Dance, Hardstyle, EDM>
@@ -732,35 +761,6 @@ VA - World of Electronic Music Vol.2 (2019) [MP3|320 Kbps] <Synthpop, Futurepop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8569802EB404BEE6BC353092EAACFBF5E1898CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514826   (214008) от 05.12.2021
-
-VA - Herbal Ambient Sound (Vol.02) (2021) [MP3|320 Kbps] <Ambient, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка, протекая словно теплый ручей, завиваясь в воронки, утягивает слушателя за собой, она закручивает и уносит в другую реальность подсознания. Мелодии придают ощущение легкости и полета, что очень благоприятствует как пассивной, так и активной медитации!001. Dag Rosenqvist - Lämnar Allt Igen
-002. The Green Kingdom - Another Sky
-003. August Rosenbaum - Accordeon Permutation
-004. Amethystium - Some Kind Of Sunrise(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 09:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B434056BCD25CCA31567325D78EF333287DDBDED
 ```
 
 https://mybot314.ru/tekegram_catalog/

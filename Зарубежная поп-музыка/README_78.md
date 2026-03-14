@@ -1,3 +1,61 @@
+###  Публикация: 1599797   (159330) от 25.12.2022
+
+Sarah Brightman - Diva : The Singles Collection (2006) [OGG Vorbis|480 Kbps] <Modern Classical, Downtempo, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Phantom Of The Opera
+02. The Music Of The Night
+03. Pie Jesu
+04. Who Wants To Live Forever(   Читать дальше...   )Жанр: Modern Classical, Downtempo, Synth-popПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610DD8F0AD9CF679238A60FC5D43A054E1CE18EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600258   (158964) от 26.12.2022
+
+VA - Best of the Best 2022 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - Anti-Hero (3:20)
+02. TALK - Run Away to Mars (3:33)
+03. Yung Gravy - Betty (Get Money) (2:26)
+04. Reve - CTRL + ALT + DEL (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E142EB8F37901D5CD9E2161D793A6BC5207E99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600419   (157738) от 27.12.2022
 
 The Cars - Heartbeat City (1984) Reissue, Remastered, 2016, Mobile Fidelity Sound Lab [OGG Vorbis|550 Kbps] <Rock, Electronic, Pop Rock>
@@ -687,64 +745,6 @@ VA - Hit News Vol. 4/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD70E5FE7CCBBC2A83D85AAC669902E22B23FDFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194606   (153419) от 26.12.2017
-
-VA - 100 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Perfect
-02. Portugal. The Man - Feel It Still
-03. Sam Smith - Too Good At Goodbyes
-04. Naaz - Up To Something(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1840C65B54FBC39CD7E4F7371B8088313580A129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194607   (153256) от 26.12.2017
-
-Ivan Dorn (Иван Дорн) - 4 альбома (2012-2017) [MP3|320 Kbps] <Pop, Soulful, Funk, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153256.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 - Co'n'Dorn (2 CD)
-2014 - Randorn (Deluxe)
-2017 - Jazzy Funky Dorn  (Live)
-2017 - OTDЖанр: Pop, Soulful, Funk, DanceПродолжительность: 05:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1222EAEA7024408B41CB4BAADD352B51AFEFD848
 ```
 
 https://mybot314.ru/tekegram_catalog/

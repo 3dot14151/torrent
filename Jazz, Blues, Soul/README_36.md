@@ -1,3 +1,61 @@
+###  Публикация: 1465760   (1018993) от 27.04.2021
+
+Gidi Derzy, Denis Fortoos - The Living Room Sessions (Gidi Derzy Music) (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018993.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Winter Drops - 03:35
+2. My Latin Flavor - 03:02
+3. Covibe Holiday - 04:02
+4. December Morning Sun - 03:02(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99379192C76262B83D24F8AE7F02A44BA2E12A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465870   (1018974) от 27.04.2021
+
+Parry Ray - Out Of The Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 . All That Jazz (00:03:40)
+02. She Used To Be Mine (00:04:24)
+03. Trust In Me (00:04:29)
+04. My Ship (00:03:58)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6782913EB6ED16F382845E1399A274FC93AF7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465973   (1018833) от 28.04.2021
 
 Kenny Garrett - Happy People (2002) Warner Bros. Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -683,64 +741,6 @@ Pat Smillie - Last Chance (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:684FCAAB4F6D5062B1A5B72313E6A06D2C6CF299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467325   (1017686) от 04.05.2021
-
-Peggy Scott-Adams - See You Next Weekend (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. See You Next Weekend (5:00)
-02. Hi Class, Lo Class (3:42)
-03. Love Ain't Love Till You Give It Away (6:02)
-04. String Bean (3:57)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6B6010622187C245511BDDAF9D5044FE2E7EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467308   (1017685) от 04.05.2021
-
-David Pippin Group - Wednesday Night Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. River Life, Pt. 2 (4:17)
-02. Pale Blue Dot (5:25)
-03. Use to Be (4:20)
-04. Sugarcane (Live) (7:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580747F5B17B9DE049AFA7DDE030D8CE4C05D4D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

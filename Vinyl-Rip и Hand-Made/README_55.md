@@ -1,3 +1,119 @@
+###  Публикация: 1669644   (172673) от 17.10.2023
+
+Sieges Even - Life Cycle (1988) Reissue, 2022, Golden Core [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172673.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Repression And Resistance
+A2 Life Cycle
+A3 Apocalyptic Disposition
+A4 The Roads To Iliad (Instrumental)(   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9ECF181107B420F04BB08026294B065A36FCAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669476   (172644) от 17.10.2023
+
+Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipped] <Indie Rock, Dream Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172644.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Takedown (00:03:33)
+✧ 02 - Summer Slaughter (00:04:04)
+✧ 03 - Bianca (00:04:12)
+✧ 04 - Bone Dry Dunes (00:03:23)(   Читать дальше...   )Жанр: Indie Rock, Dream PopФормат: PCM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0EF62DE8E88FA13753CA465DF20F32333DA12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598626   (172602) от 17.10.2023
+
+Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ронни Аткинс (имя при рождении - Пол Кристенсен, 16 ноября 1964 года) - датский певец, наиболее известный как соучредитель, ведущий вокалист и основной автор песен хэви-метал группы Pretty Maids2021 - One Shot
+2021 - 4 More Shots (The Acoustics) (EP)
+2022 - Make It Count
+2023 - TrinityЖанр: Hard Rock, Heavy MetalПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D67D9705AEE695FE8DEBAE596892AD2401AAE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669555   (172592) от 17.10.2023
+
+Guns N' Roses - Studio Albums (4 releases) (1991-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Guns N’ Roses — американская хард-рок-группа, сформировавшаяся в 1985 году в Лос-Анджелесе, штат Калифорния.1991 - Use Your Illusion I
+1991 - Use Your Illusion II
+1993 - The Spaghetti Incident
+2008 - Chinese DemocracyЖанр: Hard Rock, Heavy MetalПродолжительность: 00:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B782358CD196C28E1086295ACB91B7C98B18E967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669873   (172323) от 19.10.2023
 
 Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <House, Dance-Pop, Indie-Pop>
@@ -629,122 +745,6 @@ Death - Symbolic (1995) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EECD267AEBFBE2A091DB17592F7B7E116F9CE14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672778   (168063) от 29.10.2023
-
-Death - Individual Thought Patterns (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Overactive Imagination (03:31)
-02. In Human Form (03:58)
-03. Jealousy (03:42)
-04. Trapped In A Corner (04:15)(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B040AA3EDB20D562A9BB694C32B233F42913F468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672667   (167985) от 29.10.2023
-
-Death - The Sound of Perseverance (1998) Reissue 2016, Relapse Records [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scavenger Of Human Sorrow (06:57)
-02. Bite The Pain (04:29)
-03. Spirit Crusher (06:47)
-04. Story To Tell (06:36)(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A51D6968F01296F1D835CD65C7CF20A4114E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672719   (167966) от 29.10.2023
-
-Bolt Thrower - Studio Albums (8 releases) (1988-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bolt Thrower — британская дэт-метал-группа, образовавшаяся в 1986 году в Бирмингеме, Англия, и ставшая (согласно Allmusic) «самой последовательной и стойкой дэт-метал-группой Британии, сумевшей через все взлёты и падения сохранить звучание и не поддаться на коммерческие соблазны»1988 - In Battle There Is No Law
-1989 - Realm Of Chaos
-1991 - War Master
-1992 - The IVth CrusadeЖанр: Death MetalПродолжительность: 06:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F53D880D8944389925010ED692DC5015E458B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672620   (167741) от 29.10.2023
-
-Мираж - Неизданное (1989-1991) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167741.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1 (34:04)
-
-[4:53] 1. Я жду тебя
-[4:05] 2. Эхо(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4459A0DE943680AD4F5845D64CAAC96AFBAEE041
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1328488   (363595) от 30.09.2019
+
+VA - Fow Above: Electro House Edm Mix (2019) [MP3|320 Kbps] <Electro House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363595.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Land Mammal - Vibrations (Original Mix)
+002. Tommy Largo - Party Down
+003. Elaven - Shaman
+004. Kei How - Matsuri (Original Mix)(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 11:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0A5E61063C14A35DFCE80E7B173E67A0FDA5ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328482   (363589) от 30.09.2019
 
 VA - Technobird: Selection Of Electronic Music (2019) [MP3|320 Kbps] <Techno, Electronic>
@@ -734,35 +763,6 @@ VA - Beatport Top 100 Tech House October (2016) [MP3|320 Kbps] <Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7D9E805028AFF05C207E95ED5720DE85F14B79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328722   (359269) от 02.10.2019
-
-VA - Hedkandi: Hardstyle Edition (2019) [MP3|320 Kbps] <Hard Dance, Electro, Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K.H.D. - Humans Are Decoy Vip
-02. Archefluxx - Eyes To The Future
-03. Makaja Gonzales - Red Monkey
-04. Andrex Core - Don't Stop(   Читать дальше...   )Жанр: Hard Dance, Electro, HardstyleПродолжительность: 04:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B65BC3ACB850FF9B6A46DBAB60D351F3575488
 ```
 
 https://mybot314.ru/tekegram_catalog/

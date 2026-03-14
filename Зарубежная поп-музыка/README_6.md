@@ -1,3 +1,38 @@
+###  Публикация: 605032   (996213) от 18.01.2013
+
+Night Works - Urban Heat Island (2013) [MP3|320 кб/с]<Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys Born in Confident Times
+02. Modern European
+03. Lifeline
+04. Nathaniel
+05. Armajaro
+06. I Tried So Hard
+07. The Eveningtime
+08. Share the Weather
+09. Riches (Vocal Dub)
+10. Long Forgotten Boy(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9C9CF47E504B8CA0B8634A67D55FF5425A0360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604561   (996134) от 18.01.2013
 
 Francesco Napoli - Disco Italiano (2010) [MP3|~225 кб/с (V1)]<pop>
@@ -779,41 +814,6 @@ Andrea Bocelli - Passione [Deluxe Edition] (2013) [MP3|320 кб/с]<Pop/Classica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:859456C1C9D1ACCDBC808CC1924CDB41A5AEEE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612579   (977236) от 08.02.2013
-
-Madonna - The Best Songs (2013) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl Gone Wild
-02. Gang Bang
-03. I Don't Give A (feat Nicki Minaj)
-04. Love Spent
-05. Falling Free
-06. Beautiful Killer
-07. Best Friend
-08. I'm a Sinner
-09. Candy Shop Medley
-10. Devil Wouldn't Recognize You(   Читать дальше...   )Жанр: PopПродолжительность: 03:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422BA1F07E9930F99E23F0253A0DAED32A8DEFB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1708290   (113050) от 20.03.2024
+
+The Art Farmer-Benny Golson Jazztet - Back To The City (1986) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to the City [7:55]
+02. From Dream to Dream [6:48]
+03. Write Soon [9:44]
+04. Vas Simeon [7:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8CD8557A420B6673B1704D0603AD9FDC1D4FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708292   (113048) от 20.03.2024
+
+Art Farmer-Benny Golson Jazztet - Blues On Down (1960, 1961) 1994, Chess [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi-Fly [5:55]
+02. Blues on Down [6:05]
+03. Five Spot After Dark [3:23]
+04. My Funny Valentine [4:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BF397850909A299A15ABE086BF27777808C7C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708554   (113009) от 21.03.2024
+
+Benny Golson - California Message (1980) 1995, Timeless [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Message [5:43]
+02. Soul Talk [6:33]
+03. Blues March [5:55]
+04. The Berliner [5:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711EB3C1AEC7D730F8A4C45E79846D3848BEC847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708563   (113008) от 21.03.2024
 
 Benny Golson - Quartet "Live" (1989) 1991, Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -656,93 +743,6 @@ Mike Mainieri - An American Diary: The Dreamings (1997) 1999, NYC Records [APE|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CD3884F40B0164DF076FD69EDE855EF58AC37EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711616   (112329) от 31.03.2024
-
-Halie Loren - Live At Cotton Club (2016) Victor [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Don't Mean A Thing (If You Ain't Got That Swing) [3:15]
-02. A Whiter Shade Of Pale [6:21]
-03. Fly Me To The Moon [4:08]
-04. Hit That Jive, Jack [2:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D497439623AE1ED163EF248EA8ABC576DC50EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711905   (112252) от 01.04.2024
-
-Satolu Oda and Hank Jones Great Jazz Quintet - Just Friends (1995) Venus Records [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernie's Tune [7:29]
-02. There Will Never Be Another You [7:16]
-03. My Little Suede Shoes [7:51]
-04. Body And Soul [5:18](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8960B7315CE4AAA80A387C529ADBB6691170C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712469   (112170) от 02.04.2024
-
-Ben Webster - Live! Providence, Rhode Island (1963) 1994, Storyville Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perdido [5:51]
-02. Danny Boy [4:40]
-03. On Green Dolphin Street [6:38]
-04. Go Home [9:17](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0FD74E5C05D8D84A7BE228F5AE1556CE9B772B
 ```
 
 https://mybot314.ru/tekegram_catalog/

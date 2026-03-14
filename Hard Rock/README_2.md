@@ -1,3 +1,38 @@
+###  Публикация: 599447   (999336) от 06.01.2013
+
+Airbourne - Runnin' Wild (2007) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand Up For Rock 'N' Roll
+02. Runnin' Wild
+03. Too Much, Too Young, Too Fast
+04. Diamond In My Rough
+05. Fat City
+06. Blackjack
+07. What's Eatin' You
+08. Girls In Black
+09. Cheap Wine & Cheaper Women
+10. Heartbreaker(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2FFB0CAD5D6E41DF5114503CF63CE442C1272B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602663   (997551) от 13.01.2013
 
 Corroded - State of Disgrace (2012) [MP3|320 кб/с]<Hard Rock>
@@ -737,35 +772,6 @@ Last Autumn's Dream - In Disguise (2016) Japanese Edition [MP3|320 Kbps] <Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B6622ACA41592831BD5A74A5F1DB876E1A1FF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361825   (952262) от 21.02.2020
-
-Black Swan - Shake the World (2020) [MP3|320 kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская рок-группа Black Swan, в состав которой входят басист Джефф Пилсон (Foreigner, Dokken), вокалист Робин МакОули (Survivor), гитарист Реб Бич (Winger, Whitesnake) и барабанщик Мэт Старр (Mr. Big, Ace Frehley), выпустила свой дебютный студийный альбом. Первая полноформатная пластинка получила название "Shake the World" и появилась 14 февраля 2020 (   Читать дальше...   )01. Shake the World (04:35)
-02. Big Disaster (04:37)
-03. Johnny Came Marching (05:46)
-04. Immortal Souls (06:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC70689999DB6239752F38374124E07BB10483DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

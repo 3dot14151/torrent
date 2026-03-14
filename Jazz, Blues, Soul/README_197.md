@@ -1,3 +1,177 @@
+###  Публикация: 904844   (653562) от 04.06.2015
+
+Billy Craig - To Come To Us (2015) [MP3|320 кб/с]<Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love The Blues (3:59)
+02. Texas Born (4:31)
+03. Something Real (5:00)
+04. Gimme Cash (5:38)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14469378345513D0A091AA7227E20E50677FE1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904922   (653560) от 04.06.2015
+
+Milt Jackson - Wizard Of The Vibes (1998) [FLAC|Lossless]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tahiti [03:30]
+02. Lillie [03:16]
+03. Bags' Groove [03:06]
+04. What's New? [03:14](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB302E12D5A1D2465713589E34031DC31924310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904736   (653552) от 04.06.2015
+
+Al Cohn, Bill Perkins, Richie Kamuca - The Brothers! (2011) [MP3|320 кб/с]<Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blixed (3:48)
+02. Kim's Kaper (3:14)
+03. Rolling Stone (3:08)
+04. Sioux Zan (3:09)(   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E750DC389BB9FE5F6B02FF3A82CFB05E9C182F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904718   (653551) от 04.06.2015
+
+Charles Wilson - Sweet & Sour Blues (2015) [MP3|320 кб/с]<Blues Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Out Of Love (2:44)
+02. Good Ole Monday (3:43)
+03. Sweet & Sour Loving (5:39)
+04. Getting Old, The Alternative (4:48)(   Читать дальше...   )Жанр: Blues SoulПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB243266D76341C2016D4781E0B04898DD157C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904851   (653550) от 04.06.2015
+
+Screamin' Jay Hawkins - Portrait Of A Man (2015) [MP3|320 кб/с]<Blues Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Put A Spell On You (3:04)
+02. Because Of You (2:40)
+03. Don't Deceive Me (3:47)
+04. I Don't Know (3:35)(   Читать дальше...   )Жанр: Blues Soul, R&BПродолжительность: 01:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8D860C8578339C9AF4F16498A5004FA0E0A7F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904735   (653549) от 04.06.2015
+
+Al Cohn, Bill Perkins, Richie Kamuca - The Brothers! (2011) [FLAC|tracks+.cue]<Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blixed (3:48)
+02. Kim's Kaper (3:14)
+03. Rolling Stone (3:08)
+04. Sioux Zan (3:09)(   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACE7B4661FF5C7D3F0F6D9DFD5BDC4099E7FEB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904943   (653548) от 04.06.2015
 
 Renato Sellani - Chopin (2010) [FLAC|Lossless]<Jazz, Cool, Piano Jazz>
@@ -571,180 +745,6 @@ Marco Mezquida Trio + Bill McHenry - Cantabile (2015) Fresh Sound New Talent [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A271EBD874F367D9D4323A913ACAA9279B71A1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141204   (652564) от 09.06.2017
-
-Maynard Ferguson - Birdland Dream Band, vol.1  (1956) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wailing Boat [03:10]
-02. Somebody Wants Me Down There  [04:06]
-03. Maynard the Fox [02:50]
-04. Blue Birdland  [04:13](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0CFB293A818A6A142B327D4005D42F382A84C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141294   (652563) от 09.06.2017
-
-Jackie McLean - One Step Beyond (1963) 1988, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturday And Sunday [10:31]
-02. Saturday And Sunday (alternate take) [09:26]
-03. Frankenstein [07:32]
-04. Blue Rondo [04:53](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D54CF8F2DF6A9F411140F3C92BA4D0014943F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141225   (652562) от 09.06.2017
-
-Billy Strayhorn with Duke Ellington - Rare Strayhorn (1941 - 1965) 2015, La Maison du Duke [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clementine [02:54]
-02. Raincheck [03:19]
-03. Entrance Of Youth [05:26]
-04. Pianistically Allied (aka Tonk) [03:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D78B9F4F64B5C11AE4055CC64D8400A7F94149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141213   (652561) от 09.06.2017
-
-Clementine - Cle (2003) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Une Fille Comme Ci (6:01)
-02. Un Homme et une Femme (Grandis Mix) (5:11)
-03. Sur le Queen Mary (3:48)
-04. Akujyo (4:24)(   Читать дальше...   )Жанр: Latin Jazz, Bossa Nova, Vocal JazzПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0A5DD7C992E28AD6FAF695FBE2A4072BA7241C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141210   (652559) от 09.06.2017
-
-The Harry Allen Quartet - Someone to Light Up My Life (2005) Master Mix Music [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Shining Hour [5:28]
-02. Day In Day Out [6:04]
-03. Here's To That Rainy Day [5:44]
-04. Someone To Light Up My Life [6:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44C3E66A347CFC32BAF6FE89EEF078A746844F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141220   (652556) от 09.06.2017
-
-Wynton Kelly Trio & Wes Montgomery - Smokin' In Seattle: Live At The Penthouse (1966) 2017, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is No Greater Love [08:19]
-02. Not A Tear [06:33]
-03. Jingles [04:33]
-04. What's New? [04:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB61D7F38484D6FCBB485E5EF8624CFB2BAD0D9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

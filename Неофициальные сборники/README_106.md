@@ -1,3 +1,206 @@
+###  Публикация: 994317   (889740) от 08.03.2016
+
+VA - Самая лучшая женщина. Праздничный сборник (2016) [MP3|256 кб/с] <Шансон, Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889740.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Игорь Наджиев - Самая лучшая женщина.mp3
+002.  Александр Куданов - Счастье мое.mp3
+003.  Олег Голубев - Я Буду Рядом.mp3
+004.  Александр Антонов - Двое Под Дождем.mp3(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 06:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316ED3DA261219725A5F101A776903B2D10C75E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994254   (889692) от 08.03.2016
+
+VA - 8 Марта Хиты Для Единственных И Любимых (2016) [MP3|320 кб/с] <Pop, Шансон>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лев Лещенко - Моя любимая.mp3
+02. Рождество - Карандаши.mp3
+03. Евгений Росс - Милая, единственная, нежная.mp3
+04. Фристайл, Сергей Кузнецов - Самая любимая.mp3(   Читать дальше...   )Жанр: Pop, ШансонПродолжительность: 01:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C71FBF3A83DAB0A1268F29EF6E64AFC2F2E1751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102631   (889682) от 10.02.2017
+
+VA - Trance Elegance On This Year 009 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal, Tech Trance, Blissful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Allen & Envy With Andy Elliass Ft. Natalie Gioia - In Love (Somna Remix)  6:40
+02.  Mike Saint-Jules & Amy Kirkpatrick - Galaxy (Original Mix)  6:10
+03.  Nomosk & Ansia Orchestra - Adventure (UDM Remix)  7:54
+04.  Roger Shah & Antillas Ft Zara Taylor - Fire (Extended Mix)  7:35(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal, Tech Trance, BlissfulПродолжительность: 02:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAB03B57DE231FA8D5D63C462419D43FDA4274F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994782   (889627) от 08.03.2016
+
+VA - 80-90th Discotheque In A New Way Vol.24 (2016) [MP3|320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandra Damiani & Tayma vs. Savage - Only You (Alexandra Damiani Extended Mix)
+02. Desireless - Voyage
+03. New Mode - Enjoy the Silence (Depeche Mode)
+04. Baccara - Cara mia (mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 05:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763848254FD8D159D1222E52650C444FE7F15C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102656   (889601) от 10.02.2017
+
+VA - Зимний музобоз русский. Версия № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889601.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Татьяна Чубарова - Тебя Любить Нельзя А Хочется 4:03
+002. Samoel - Я Не Такой 3:58
+003. Aisha - Взгляд 3:19
+004. Sam Wick - Самая Красивая 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF57C27BCF88DC7EE0A74B97FB94F41CE187647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102663   (889595) от 10.02.2017
+
+VA - Снежный популярный отрыв. Выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889595.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Иван Тетенов - Как Мне Жить 4:26
+002. Станислав Сорока - Иди За Мной 3:53
+003. Балаган Лимитед - Полюби 3:46
+004. Jolya Pi - Не Играем 2:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3234E30A585563A971B98D513A0C3AEB7F6175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102657   (889580) от 10.02.2017
+
+VA - Зимняя 100-ка хитовая выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889580.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Магомед Аликперов - Обними 3:40
+002. Mika'l Feat. Remak - Ты Не Забыла 2:55
+003. Иван Розин - Плохой Хороший 2:55
+004. Кристалл - Летим Вдвоем 4:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556947E4783B3DE0787350297D5FAD3406501046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102793   (889579) от 10.02.2017
 
 VA - Resident Advisor Top 50 Charted Tracks January (2017) [MP3|320 Kbps] <Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech House>
@@ -542,209 +745,6 @@ VA - 200 Hits America Latina (2015) [MP3|320 кб/с] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26C8AFCD0B0D034221E266159F308EA5CEEFF8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994988   (888120) от 09.03.2016
-
-Precious Wilson (ex. Eruption) - Collection (1979-1983) [OGG|438-537 кб/с] <Disco, Funk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are On The Race Track
-02. Cry To Me
-03. Video
-04. Kisuaheli(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB7BA001CB315742B194C66D8C115C357277194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371790   (888097) от 01.04.2020
-
-VA - Shazam Хит-парад Russia Top 100 Март (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888097.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Intelligency - August (3:27)
-2.El Capon - Shut Up Chicken (2:30)
-3.The Weeknd - Blinding Lights (3:21)
-4.Тайпан, Agunda - Луна не знает пути (2:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB24EF222842847D68C480CD631ED02E2C710A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994953   (888018) от 09.03.2016
-
-Михаил Звездинский - Магнитоальбом (1990) [MP3|320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Осеннее золото
-02. Звезда Давида
-03. Все теперь против нас
-04. Я пережил и многое и многих...(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F913B292C8A113BD44DA103FEDE1B9A552660C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995008   (887957) от 09.03.2016
-
-VA - Музыка хорошего настроения 3 (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887957.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arseniya - Аритмия
-002. Andeeno Damassy Feat. Jimmy Dub - Dime Tu
-003. Bliss & Klymvx Feat. Snoop Dogg & Cozy - California
-004. Rihanna - Sex With Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDCBA65BDF8F9764A318EF458E440354E5978FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371852   (887925) от 01.04.2020
-
-VA - Ремиксы 2К20 3 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887925.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.3-ий Январь - Юппи (Beloe Cloud Remix) (Radio Edit) (3:25)
-2.ANIVAR - Новый рассвет (ARROY & Sergey Raf Remix) (3:15)
-3.Bahh Tee feat. Люся Чеботина - Дисконнект (Fagira remix) (3:39)
-4.BARINOVA - Самый-самый (Maxim Keks Remix) (3:58)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 05:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A31B5EB9A54467C82F7FEC401A07A768FF8ACF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994920   (887892) от 09.03.2016
-
-VA - Record Super Chart № 426 (2016) Radio Record [MP3|128-320 кб/с] <Club House, Electro House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sander Van Doorn, MOTi - Lost
-02. KSHMR, Marnik - Bazaar!
-03. Scooter - Mary Got No Lamb
-04. Tiesto  Tony Junior - Get Down(   Читать дальше...   )Жанр: Club House, Electro House, DanceПродолжительность: 01:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92E4D2B5B8AF9B6A222ABF5455A93E6F5233998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494633   (887831) от 08.09.2021
-
-VA - Maniac Hard Dance (2021) [MP3|320 Kbps] <Club, Hard Dance, Hardstyle, Core Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887831.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Agressive Noize - Show Me The Way
-002. Dance House Project - Can't Stop Me
-003. Axray - Sahnekapsel
-004. Ezkill - Hands In The Air(   Читать дальше...   )Жанр: Club, Hard Dance, Hardstyle, Core DanceПродолжительность: 08:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7600603AA2F24BB12CDDC6A1BF1C73545353CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1265690   (273018) от 29.11.2018
+
+VA - Winter Soul (2018) [MP3|320 Kbps] <R&B, Soul, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberta Flack & Donny Hathaway, Donny Hathaway, Roberta Flack – Where Is the Love
+02. Aretha Franklin – Hooked On Your Love
+03. Eric Gadd – Why Don’t You, Why Don’t I (Radio Edit)
+04. Randy Crawford – Give Me the Night(   Читать дальше...   )Жанр: R&B, Soul, JazzПродолжительность: 01:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12AFB657E0716654364A4F1936E5BED7519D9ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596646   (272898) от 29.11.2018
+
+Gary Moore - Legacy (2CD) (2012)  (Compilation) [APE|Lossless]<Rock, Hard Rock, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out In The Fields
+ 02. Ready For Love
+ 03. Wishing Well
+ 04. Hold On To Love(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues-RockПродолжительность: 01:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA19CE741559091F8CECD7ACE2939D414C77922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337861   (272712) от 12.11.2019
+
+D.E.W. East - Introducing D.E.W. East (1999) [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Every Man His D.E.W. (Wallace) - 6:27
+02. Mr. B.C. (Dean) - 7:42
+03. The Thruster (Elmes) - 10:41
+04. It's Easy to Remember (Hart-Rodgers) - 7:17(   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37442FA0C9690774036F355E56A92896D8DE608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337658   (272710) от 12.11.2019
+
+Steve Grossman - Katonah (1989) [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katonah (Grossman) - 11:04
+02. Afternoon in Paris (Lewis) - 8:52
+03. I Hear a Rhapsody (Fragos-Baker-Gasparre) - 6:44
+04. Taurus People (Grossman) - 9:02(   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2320FE2EC576CB8ACDA9E0F4A27D555CC996DC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337746   (272703) от 12.11.2019
+
+Charlie Watts Meets The Danish Radio Big Band (2017) Impulse! [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvin Suite, Part 1 [9:16]
+02. Elvin Suite, Part 2 [5:54]
+03. (Satis) Faction [6:11]
+04. I Should Care [8:01](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D86E0C045C2170BC40B3D30E6409A179806390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337762   (272702) от 12.11.2019
+
+The Hot Club of San Francisco - John Paul George & Django (2016) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Lovin' - 2:38
+02. Because - 3:35
+03. Michelle - 3:36
+04. I Will - 3:03(   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59058BFF9F0CFB46219CD2AC77B0567CB77CE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084186   (272667) от 17.12.2016
 
 J.J. Johnson - J.J.'s Broadway (1963) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -569,180 +743,6 @@ Cannonball Adderley with Milt Jackson - Things Are Getting Better (1958) 1993, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67D9D99C77E758F04A38DC16E12A930C208DBECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084414   (271464) от 18.12.2016
-
-Guy Lafitte - Blue And Sentimental (1954) 2011, Universal[FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blue And Sentimental [06:39]
- 02.She's Funny That Way [03:14]
- 03.If I Had You [02:51]
- 04.Get Happy [02:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781AE9D2F9B4DC55972CD51B88074816FF29649C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084422   (271462) от 18.12.2016
-
-Betty Carter & Trio - I Didn't Know What Time It Was (1993) Jazz Door[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Intro [07:49]
- 02.What's New [03:55]
- 03.Tight [01:50]
- 04.Medley [09:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6EA73ABF35D6EF6CE5E87BF5F564BCDD3E5D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084194   (271461) от 18.12.2016
-
-Jay Gordon Band - White Heaven Powdered Black (2000) [FLAC|Lossless|image + .cue] <Blues Rock, Heavy Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Let It Ring  (03:55) 
-02|  Freight Train  (04:28) 
-03|  Propaganda  (03:49) 
-04|  Karma  (03:52) (   Читать дальше...   )Жанр: Blues Rock, Heavy Blues RockПродолжительность: 00:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D716AB02B6809717531273192075AB526DB9F260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084097   (271384) от 18.12.2016
-
-Kim Simmonds And Savoy Brown - Goin' To The Delta (2014) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|   Laura Lee  (04:23) 
-02|   Sad News  (06:13) 
-03|   Nuthin' Like The Blues  (04:56) 
-04|   When You've Got a Good Thing  (05:17) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D37FB912D98CCA09181E0AD40D464067AF664F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084055   (271381) от 18.12.2016
-
-Jay Gordon's Blues Venom - Woodchoppers Ball (2015) [FLAC|Lossless|image + .cue] <Blues Rock, Heavy Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  The Stinger  (03:21) 
-02|  Hobo Hilton  (05:22) 
-03|  Chainsaw Boogie  (04:44) 
-04|  Stranger Blues  (03:57) (   Читать дальше...   )Жанр: Blues Rock, Heavy Blues RockПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D176AF62179FAC2F87727739991437E218B8075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084168   (271350) от 18.12.2016
-
-Billy Paul - Ebony Woman (1970) 2012, Neptune Records/Sony Music/Big Break Records/Cherry Red Record [FLAC|Lossless|tracks + .cue] <Soul, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ebony Woman (3:54)
-02. Mrs Robinson (4:32)
-03. The Windmills Of Your Mind (8:00)
-04. Everyday People (3:55)(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 00: 36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D063A4B391EFD5B53796FAA04B6D4E9D4E64D1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

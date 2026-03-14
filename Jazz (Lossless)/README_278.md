@@ -1,3 +1,90 @@
+###  Публикация: 1670832   (171781) от 22.10.2023
+
+George Van Eps & Howard Alden - Keepin' Time (1994) 1996, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Skies [4:31]
+02. Satin Doll [6:33]
+03. It Had to Be You [6:49]
+04. Body and Soul [5:06](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A75C0065F3C98974C412B76A488C5C8EC6845D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670816   (171780) от 22.10.2023
+
+Anita O'Day - In a Mellow Tone (1989) DRG Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In a Mellow Tone [4:42]
+02. On the Trail [4:03]
+03. The Man With a Horn [3:41]
+04. Once in a While [4:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E828C973E5FB5BA861DB25C73E826D35F0E82157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670820   (171779) от 22.10.2023
+
+Anita O'Day - My Ship (1975) 2003, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satin Doll [2:19]
+02. Mean To Me [3:35]
+03. Why Shouldn't I [2:13]
+04. Body And Soul [4:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8BA11D3F2737125E1B7F642C11EBB7CE203450A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670821   (171777) от 22.10.2023
 
 Grant Green - Sunday Mornin' (1961) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
@@ -658,93 +745,6 @@ Ruby Braff - The Mighty Braff (1954, 1955) 1989, Charly Records [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E832D4EB2225C180A75201D50B60AD984D1C834E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671560   (171262) от 25.10.2023
-
-Robert Conti - To The Brink! (2005) Pinnacle Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Brink! [9:30]
-02. Anticipation [4:49]
-03. Pork Loin! [6:06]
-04. Here's That Rainy Day [6:57](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF114A04707D4FD6F09D62AAC5C29F971B0D23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671619   (171239) от 25.10.2023
-
-VA - 30 Cozy, Harmonious, Pleasing to the Ear and Relaxing Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Velvet Meadows (4:28)
-02. Chillaxing Jazz Kollektion - Like a River (5:23)
-03. Kool&Klean - The Sea (6:11)
-04. eJazz Artistry - Story of My Life (5:06)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D729408C58E36E8ECF90E5FA532BE34E6A50F88A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671616   (171227) от 25.10.2023
-
-VA - Autumn Slow Chill-out Jams to Relax and Unwind (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out/Smooth Jazz/Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Beyond the Horizon (4:58)
-02. Chillaxing Jazz Kollektion - Serendipity (4:38)
-03. Konstantin Klashtorni - Let's Chill (5:29)
-04. Chillaxonic - Oasis (4:58)(   Читать дальше...   )Жанр: Chill Out/Smooth Jazz/LoungeПродолжительность: 02:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76419487FCC186AE06F069D1C75EC45A41051AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

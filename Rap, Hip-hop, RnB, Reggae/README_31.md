@@ -1,3 +1,119 @@
+###  Публикация: 1597746   (164988) от 16.12.2022
+
+Horus - Рагнарёк и точка (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Холоден [00:03:04]
+02 - Номад [00:04:03]
+03 - Адонай [00:03:42]
+04 - Красный урожай [00:02:59](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21189C6D26C43E2D648FE9E44EBB4D2B58CDC7C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597881   (164932) от 16.12.2022
+
+Руставели - МАГМА (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Магма [00:02:32]
+02. Моя страда [00:02:31]
+03. Из тьмы [00:02:16]
+04. Стрела [00:03:13](   Читать дальше...   )Жанр: Alternative Hip-HopПродолжительность: 00:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C709BA8C3AD0CC2CB4BE4159C2F365F8750BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516815   (164207) от 13.12.2021
+
+Alicia Keys - Keys (2021) 2CD [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only You (Unlocked) [00:03:11]
+02. Skydive (Unlocked) [00:03:03]
+03. Best Of Me (Unlocked) [00:03:43]
+04. LALA (Unlocked) (feat. Swae Lee) [00:04:31](   Читать дальше...   )Жанр: Soul, R&B, PopПродолжительность: 2 CD, 01:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94A4FEB8D3B10DFA8693D5F0AB1071D3DD5D7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432893   (163127) от 18.12.2020
+
+Jon Moskowitz presents: DJ Cappel & Smitty - Blue Eyes Meets Bed-Stuy (Notorious B.I.G. vs Frank Sinatra) (2006) Mashup [FLAC|Lossless|tracks + .cue] <Jazzy Hip-Hop, Electronic, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juicy / New York, New York (2:18)
+02. Everyday Struggle / A Day in the Life (4:02)
+03. Nasty Boy / For Every Man There's a Woman (4:44)
+04. Come On / My Way Of Life (4:11)(   Читать дальше...   )Производство: Moskowitz MMVI – BEMBSECDЖанр: Jazzy Hip-Hop, Electronic, Hip-Hop, MashupПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC41DED43747BFA90F5CFE6E4E39F79C7B957558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432846   (162890) от 18.12.2020
 
 Eminem - Music To Be Murdered By: Side B (2020) Deluxe Edition, Explicit [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
@@ -635,128 +751,6 @@ Grebz - MC Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11BF08D26F4B0BD3EA8EDCD049C8240ACA6C08A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594691   (133420) от 26.12.2012
-
-Rita Ora - Ora (2012) [FLAC (tracks+.cue)|Lossless]<R&B, Dance>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Facemelt
-02. Roc The Life
-03. How We Do (Party)
-04. R.I.P. (ft. Tinie Tempah)
-05. Radioactive
-06. Shine Ya Light
-07. Love & War (ft. J. Cole)
-08. Uneasy
-09. Fall in Love (ft. Will.I.Am)
-10. Been Lyin(   Читать дальше...   )Жанр: R&B, DanceПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681123   (132979) от 02.12.2023
-
-Гио ПиКа, Кравц - 60 секунд до зимы (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:01:13]
-02. Лишь о тебе [00:02:13]
-03. Маяк [00:02:12]
-04. Твоя планета [00:03:14](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FA3E7085A6C78001210993CABA841BA1B8670E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681368   (132947) от 02.12.2023
-
-Гуф - Zапретное Место (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Добро пожаловать [00:03:39]
-02. Раунд 2 [00:02:32]
-03. ПТ [00:02:32]
-04. Улетный день [00:02:08](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A710E5C96D64F528DA953E09414600D393CFB05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682298   (131442) от 07.12.2023
-
-4К - Матовый (2023) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:01:47]
-02 - Родная улица [00:03:51]
-03 - Если чё [00:03:18]
-04 - Навали-ка [00:05:23](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7DE187D1F5FF9F9E2E205AD4701F2C03DFAFDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

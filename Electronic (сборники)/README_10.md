@@ -1,3 +1,32 @@
+###  Публикация: 1473949   (1013402) от 31.05.2021
+
+VA - Ibiza Chillout #15 (2021) [MP3|320 Kbps] <Chillout, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan Kick - All That We Do  (Original Mix)
+02. Damian Force - Where Is Your Love  (Louis Feen Remix)
+03. The Bestseller - Fly Away  (Original Mix)
+04. DJ Skywalk - Love 2 Love  (Squib Extended Mix)(   Читать дальше...   )Жанр: Chillout, ElectronicПродолжительность: 01:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC46AF43903304BC3067B8C15292EC3B7AB896FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473983   (1013401) от 31.05.2021
 
 VA - World Sound Funky: Jackin House Mixtape (2021) [MP3|320 Kbps] <Funky House, Jackin' House, Nu Disco>
@@ -716,35 +745,6 @@ VA - Audiowarp, Best Of The Mix (2021) Mixed by aQuaLuna [MP3|320 Kbps] <Hard Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:065F800B8B7C6F2325A3D1A6855EA2D7EF835CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479253   (1009572) от 24.06.2021
-
-VA - Chillout Deep Sounds (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009572.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Project Blue Sun - Lost In Your Eyes
-002. Amethystium - Nightfall
-003. Marshall Watson - A Door In The Sky
-004. Begin - Super Barrio(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, LoungeПродолжительность: 12:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10BC4EF0A35A05DB7B108423A96414F4B35F92B
 ```
 
 https://mybot314.ru/tekegram_catalog/

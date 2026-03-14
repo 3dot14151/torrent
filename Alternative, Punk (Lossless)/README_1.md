@@ -1,3 +1,90 @@
+###  Публикация: 1616872   (1035863) от 04.03.2023
+
+Imminence - Heaven in Hiding (2021) Deluxe Edition, 2023, Arising Empire [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Become a Name... [00:02:01]
+02. Ghost [00:04:15]
+03. Temptation [00:03:43]
+04. Surrender [00:03:41](   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 01:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B7C933B5396AFD0E19011C36D540D8179DABA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617365   (1035334) от 06.03.2023
+
+Xiu Xiu - Ignore Grief (2023) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock, Art Pop, Avant-Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Real Chaos Cha Cha Cha [00:05:17]
+02. 666 Photos of Nothing [00:03:51]
+03. Esquerita, Little Richard [00:03:33]
+04. Maybae Baeby [00:03:20](   Читать дальше...   )Жанр: Experimental Rock, Art Pop, Avant-FolkПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DAEE60731EF56F5C4C43B7F7A837310C96A063B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618446   (1034174) от 11.03.2023
+
+Tom Chaplin - Midpoint (2022) 2 CD [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Fall Down
+02. Rise and Fall
+03. Black Hole
+04. Stars Align(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, AlternativeПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110221E808FABA42ACB4C8136BF32519C744325D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618453   (1034167) от 11.03.2023
 
 Blue October - Approaching Normal (2009) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
@@ -658,93 +745,6 @@ Eskimo Joe – популярная альтернативная группа и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57555CC2FBDC0DD04293B5F5A10BB31AE5491718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456978   (1024779) от 24.03.2021
-
-Alter Bridge - AB III.5 (2010) Special Edition, Reissue, 2011, Roadrunner Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slip To The Void (4:53)
-02. Isolation (4:13)
-03. Ghost Of Days Gone By (4:25)
-04. All Hope Is Gone (4:49)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224A4C5022AC656660FFB4E6F0D903D98948884D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456901   (1024777) от 24.03.2021
-
-Alter Bridge - Blackbird (2007) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ties That Bind
-02. Come To Life
-03. Brand New Start
-04. Buried Alive(   Читать дальше...   )Жанр: Alternative Metal, Post-GrungeПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4259627EDD42AEFD98686327B62233E1665B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002940   (1024467) от 25.03.2021
-
-The Cranberries - 14 альбомов, 1 Box Set (1993 - 2019) 25 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Alternative, Pop-Rock>
-
->>След.
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024467.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Cranberries - ирландская рок-группа, образованная в 1989 году и добившаяся мировой известности в 1990-х. Хотя официально группа не распущена, с 2003 года её активность приостановилась. Воссоединится в ноябре 2009 года. Яркий и сильный вокал Долорес О’Риордан, мелодичный рок с легкими национальными влияниями, «открытый» гитарный драйв, проникновенная лирика (песни (   Читать дальше...   )Список альбомов:
-1993 - Everybody Else Is Doing It So Why Can't We
-1994 - No Need To Argue (The Complete Sessions 1994-1995)
-1996 - To The Faithful Departed (The Complete Sessions 1996-1997)Жанр: Alternative, Pop-RockПродолжительность: 22:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA699A9081C4EB2DDF1942D9CBC79BE10715223
 ```
 
 https://mybot314.ru/tekegram_catalog/

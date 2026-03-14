@@ -1,3 +1,177 @@
+###  Публикация: 1290789   (674454) от 22.03.2019
+
+Marie Bergman - Fruit (1996) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down with Love [1:36]
+02. Wish Someone Would Care [4:24]
+03. Let Me Be the First to Know [5:42]
+04. Crazy He Calls Me [5:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC403A31230ACD5866794FD08749657612258646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029938   (674420) от 30.06.2016
+
+Laurence Jones - Take Me High (2016) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got No Place To Go
+02. Something's Changed
+03. Live It Up
+04. Addicted To Your Love(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4432A90A33B9AF0A6AB49163A191F9F0D7E2D7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290856   (674343) от 22.03.2019
+
+Nick Waterhouse - Nick Waterhouse (2019) [FLAC|Lossless|tracks + .cue] <Blues, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By Heart (04:03)
+02. Song for Winners (03:00)
+03. I Feel an Urge Coming On (03:20)
+04. Undedicated (04:08)(   Читать дальше...   )Жанр: Blues, Soul, FunkПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37867734EA21DBCA7EFEE9EF3EE1E476CCDEE45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290851   (674327) от 22.03.2019
+
+Gary Hoey - Neon Highway Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674327.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Under The Rug (feat. Eric Gales)
+2. Mercy Of Love (feat. Josh Smith)
+3. Your Kind Of Love
+4. Don't Come Crying (feat. Ian Hoey)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529B8692BF93BB688F66F7F0862D685F4992177C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223511   (673481) от 05.05.2018
+
+Chick Corea - Expressions (1994) JRP Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lush Life [06:33]
+02. This Nearly Was Mine [03:37]
+03. It Could Happen to You [03:41]
+04. MyShip [03:23](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BBC95D7B5CBE9500FE0457C8F8A1D9BEA379C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223503   (673417) от 05.05.2018
+
+Bill Wyman's Rhythm Kings (Bill Wyman) - Monkey Grip (1974) Rolling Stones Records [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bill Wyman, настоящее имя William George Perks - британский бас - гитарист, участник группы Rolling Stones с момента её создания в 1962 до 1993 года. С 1997 года выступает с собственной группой Bill Wyman’s Rhythm Kings. В детстве он пел в церковном хоре, играл на аккордеоне.Купив гитару он решил попробовать себя в группе. Но, слоняясь по дискотекам, приметил, что (   Читать дальше...   )01. I Wanna Get A Gun 5:00
+02. Crazy Woman 2:44
+03. pussy 2:12
+04. Mighty fine time 3:39(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937BD2DDA0BCE8C3FDFE8F688E9AC31FA2F22AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223628   (673416) от 05.05.2018
 
 Sylvia Bennett - I Wish You Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Adult Contemporary, Easy Listening, Smooth Jazz>
@@ -571,180 +745,6 @@ Duke Ellington - Falling in Love with Duke Ellington (2000) RCA Victor [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F81D921E40D042655D95CB8443EE5D5D167F2108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136738   (673232) от 23.05.2017
-
-The Dave Brubeck Quartet - Someday My Prince Will Come (1965) 1993, Jazz Hour [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someday My Prince Will Come [06:22]
-02. One Moment [09:04]
-03. Joe's Blues [07:42]
-04. Take the 'A' Train [06:32](   Читать дальше...   )Жанр: CoolПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9794737C2F475B7904F9B3A1B9AB1CB205D587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136516   (673127) от 23.05.2017
-
-VA - Jazz Dictionary B (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barry Harris Trio - Bag's Groove (4:45)
-02. Vladimir Shafranov Trio - Baubles, Bangles and Beads (6:10)
-03. Trio San - Be-Bop (7:31)
-04. The Monty Alexander Trio - Beautiful Friendship (4:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B409D76530DF6789BEAE76AF39CF9A1575FF6AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136393   (673126) от 23.05.2017
-
-VA - Bossa Nova Love: The Chill Playlist (2017) [MP3|320 Kbps] <Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Didier Sustrac - Il suffirait
-02. Sampla - Glad You Came (Bossa Mix)
-03. Evandro Reis - Sunny Beach
-04. Giovanni Tornambene - Montreux Cafe'(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D064FCD4C34FE0185AF88DBF439CF38C18A720EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136522   (673015) от 23.05.2017
-
-VA - Smooth Summer Jazz (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instrumental Jazz Music Ambient - Smooth Summer Jazz
-02. Smooth Jazz Music Academy - Get Out of Bad Mood
-03. Coffee Lounge Collection - Relaxing Jazz
-04. Classical Jazz Academy - Jazz Tunes(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE407FCA6A8907D421AFA8505D2C94974D2F4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136657   (673014) от 23.05.2017
-
-Dave Weckl - Hard-Wired (1994) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard-Wired (4:02)
-02. Afrique (5:53)
-03. Dis' Place This (6:38)
-04. In Flight (6:11)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9EA5DEC43ADB3AB382B43F91FE34C671D49FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136499   (673011) от 23.05.2017
-
-VA - Jazz Dictionary A (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Alexander Quartet - Afro Blue (7:19)
-02. The Eddie Higgins Trio - Again (4:48)
-03. Massimo Faraт Trio - Ain't Misbehavin' (6:30)
-04. Konrad Paszkudzki Trio - Ain't That A Kick in the Head? (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E7285DA7DD6C8AF35B80C935ADDB60D691843FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

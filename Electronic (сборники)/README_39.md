@@ -1,3 +1,32 @@
+###  Публикация: 1375374   (865501) от 14.04.2020
+
+VA - Beatport Techno: Electro Sound Pack #56 (2020) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865501.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tom Nihil - Pain
+003. Joao Ferrari - I Wanna (Original Mix)
+004. Stephan Crown - Rinasab (Original Mix)
+005. Erofex - Foggy (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 12:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019C1D838BE21BF5F5F5F8F07897BD2C2B8A69F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375375   (865500) от 14.04.2020
 
 VA - Beatport Trance: Electro Sound Pack #55 (2020) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Blow The Speakers: EDM Party (2021) [MP3|320 Kbps] <Dance, Electro, Club Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19C74B5F905350BD9097F11DEDAFE285DF053312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498456   (857807) от 26.09.2021
-
-VA - Try The Better World (2021) [MP3|320 Kbps] <Ambient, Meditation, Relax, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857807.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Federico Durand - Laurel
-002. Chris Decato - A Promise
-003. Jas Shaw - Snacks Of Carelessness
-004. Humans By Billions - Le Livre(   Читать дальше...   )Жанр: Ambient, Meditation, Relax, New AgeПродолжительность: 09:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F780EA8300CD6985253B7F7A40931D6455D51979
 ```
 
 https://mybot314.ru/tekegram_catalog/

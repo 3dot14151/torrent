@@ -1,3 +1,61 @@
+###  Публикация: 1102899   (889319) от 10.02.2017
+
+Blank & Jones - #WhatWeDoAtNight (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. #WhatWeDoAtNight (9:19)
+ 02. Nighttime (7:10)
+ 03. COH (6:49)
+ 04. Seven Souls (7:33)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D412E5DE99993041D41BC42C1B77D477B25F89BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494483   (889217) от 07.09.2021
+
+VA - Elektro Codes (One, Two, Three) (1997-2000) Elektrolux [FLAC|Lossless|tracks+.cue] <Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889217.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. MAS 2008 - Outpost Omega To Houston (04:59)
+ 02. Index ID - Raumzentriert (05:48)
+ 03. N)E(M - Welcome To Third Space (06:36)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Electro •Продолжительность: 05:43:33 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274E15DF66F2A8D0BC7EBA240918BAC9CBBD0E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280023   (888786) от 07.09.2021
 
 John Beltran (Placid Angles, Nostalgic) - Discography 43 Releases (1995-2021) Delsin, Ubiquity [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, IDM, Detroit Techno, Future Jazz, Leftfield>
@@ -680,64 +738,6 @@ David August - Times (2013) [FLAC|Lossless]<Tech House, Deep House>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374920   (871199) от 11.04.2020
-
-Paolo Lucchi - The Dusk Sessions (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Void (03:31)
- 02. Warmer (05:25)
- 03. Notch (07:50)
- 04. Worms (03:03)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FD5EBDEF3183EDBD13DE37B9391A5C7D57DB89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375092   (869087) от 12.04.2020
-
-Bicep - Bicep (2017) Ninja Tune [FLAC|Lossless|tracks+.cue] <House, Techno, Downtempo, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orca (04:34)
- 02. Glue (04:29)
- 03. Kites (06:26)
- 04. Vespa (01:27)(   Читать дальше...   )Жанр: House, Techno, Downtempo, TranceПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA4FAE77EC4A32128307DCED3F4238BA7FC3E83
 ```
 
 https://mybot314.ru/tekegram_catalog/

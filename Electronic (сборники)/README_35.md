@@ -1,3 +1,32 @@
+###  Публикация: 1494614   (887746) от 08.09.2021
+
+VA - Clubbing Dance House: Energy Playlist (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887746.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dream Frequency - A.I.
+002. Dawne - Tequila For Breakfast
+003. Sentinel Groove - Feel Good
+004. Sound-X-Monster - Rock It!(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95413B2CB88CC020A230B2D566305061EE422535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494623   (887745) от 08.09.2021
 
 VA - HGM: Organic House Deep Downtempo Mix (2021) [MP3|320 Kbps] <Deep House, Chill House>
@@ -715,35 +744,6 @@ VA - Trance Desire Volume 63 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7920B254C32B9F6C5399BE947994E161F0E812F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995859   (882699) от 12.03.2016
-
-VA - Amnezia Super Hits 01 (2016) [MP3|320 кб/с] <EuroDance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob & Chris - Zeitmaschine (90s Mix) 02:23
-02. Dr.Alban ft. Haddaway, FrancaMorgano & Katja Bredahl - Volcano 03:44
-03. Twenty 4 Seven ft. Stay-C & Li-Ann - Slave To The Music (Housemaxx Edit) 03:46
-04. E-Rotic - Video Starlet 03:28(   Читать дальше...   )Жанр: EuroDanceПродолжительность: 03:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EEEEB4839F67FCBF6BC63058F1424401F1A45E
 ```
 
 https://mybot314.ru/tekegram_catalog/

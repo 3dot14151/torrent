@@ -1,3 +1,32 @@
+###  Публикация: 928384   (521753) от 17.08.2015
+
+Family Of The Year - Collection (2010 - 2015) [MP3|320 кб/с]<Alternative, Indie Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Barn
+02. The Princess And The Pea (feat. Willy Mason)
+03. St. Croix
+04. In The End(   Читать дальше...   )Жанр: Alternative, Indie Pop RockПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D017F17F20075D4C07BCFE4C9568F7B8823F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314031   (521419) от 12.07.2019
 
 VA - Tree Of Life: Rock Digest June (2019) [MP3|320 Kbps] <Rock, Alternative>
@@ -722,38 +751,6 @@ VA - Beyond The Matrix: Hard Masterpieces (2017) [MP3|320 Kbps] <Rock, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D476ECEA71C5E3E4F43AE2BF0E453E03DDF48DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244485   (479821) от 02.09.2018
-
-VA - 101 Hits - Keep On Running (5CD) (2018) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479821.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-
-01. Avicii - Wake Me Up
-02. Kungs Vs. Cookin' On 3 Burners - This Girl(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:16:45
-
-01. White Lies - To Lose My Life
-02. Orson - No Tomorrow(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F4D06C18E782517B46C791A2618112C58AD360
 ```
 
 https://mybot314.ru/tekegram_catalog/

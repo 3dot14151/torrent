@@ -1,3 +1,73 @@
+###  Публикация: 476334   (85505) от 31.03.2012
+
+Samantha Fox - Greatest Hits (2009) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85505.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+Продолжительность:01:14:30
+01.Touch Me (I Want Your Body) (3:47)
+02.Do Ya Do Ya (Wanna Please Me) (3:49)
+03.Im All You Need (3:59)
+04.Nothings Gonna Stop Me Now (3:44)
+05.I Surrender (To The Spirit Of The Night) (3:57)
+06.I Promise You (Get Ready) (3:53)
+07.True Devotion (4:35)
+08.Naughty Girls (Need Love Too) (3:23)(   Читать дальше...   )2009Жанр: PopПродолжительность: 02:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B42B7AB9E76F6568E33D98D4A336DB9E0502C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474335   (84921) от 28.03.2012
+
+Beverley Craven - Promise Me - The Best Of Beverley Craven (2011) [MP3|320 кб/с]<Pop, Lounge>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promise Me
+02. Joey
+03. Woman To Woman
+04. Holding On
+05. Memories
+06. Two Of A Kind
+07. Missing You
+08. Love Scenes
+09. Mollie s Song
+10. Love Is The Light(   Читать дальше...   )Жанр: Pop, LoungeПродолжительность: 01:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14A701E96B50F435CED8CDFF134222102DF2E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472897   (84339) от 25.03.2012
 
 Katy Perry - Teenage Dream-The Complete Confection (2012) [MP3|320 кб/с]<Pop, Dance>
@@ -807,64 +877,6 @@ VA - Dance Classics Gold 2 (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0DE7B8D4BA03ADD2A77248D5530F706F5EE93E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775217   (71487) от 25.01.2025
-
-VA - Dance Classics Gold 3 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - Last Dance
-02. The Jacksons - Can You Feel It
-03. Kool & The Gang - Get Down On It
-04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A00B67CCDB3F2158E505D9F3030239808674061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775103   (71476) от 25.01.2025
-
-VA - Dance Classics Gold 2 (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool & The Gang - Celebration
-02. Gloria Gaynor - Never Can Say Goodbye
-03. The Four Tops - Don't Walk Away
-04. The Trammps - The Night The Lights Went Out(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11A02274CB65D187D1B26B9DB479F71103EAE70
 ```
 
 https://mybot314.ru/tekegram_catalog/

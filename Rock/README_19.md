@@ -1,3 +1,61 @@
+###  Публикация: 1197136   (817716) от 06.01.2018
+
+Wild Turkey - Battle Hymn (1971) Reissue, 1991, Edsel Records [MP3|320 Kbps] <Classic Rock, Prog-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817716.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Butterfly
+2. To The Stars
+3. Twelve Streets Of Cobbled Black
+4. Dulwich Fox(   Читать дальше...   )Жанр: Classic Rock, Prog-RockПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDB7F7FF5B4E9A0AC37E862869947668FA0DE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197322   (817710) от 06.01.2018
+
+Wild Turkey - Turkey (1972) Reissue, 1995, Edsel Records [MP3|320 Kbps] <Classic Rock, Prog-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817710.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Good Old Days
+2. Tomorrow's Friend
+3. Universal Man
+4. Eternal Mother / The Return(   Читать дальше...   )Жанр: Classic Rock, Prog-RockПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1C24AF73BA476415BB483478C4632902745AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008325   (816035) от 18.04.2016
 
 April Wine - Harder.....Faster (1979) [MP3|320 кб/с] <Rock>
@@ -681,64 +739,6 @@ OCN (Ocean) - Wojna Swin (2011) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F15059889DED33B13D396F003CFA144700F18B05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199023   (802941) от 14.01.2018
-
-The Go Getters - Love & Hate (2017) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love & Hate (03:07)
-02. Maria (04:10)
-03. Red Hot Mama (03:44)
-04. Don't Get Started (03:28)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5938065DEE55EB203126BE711CBEB4A17FACA4A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199021   (802935) от 14.01.2018
-
-William T. & The Black 50's - Rock'n'Roll... Baby!!! (2018) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock'n'Roll Queen (02:37)
-02. Katherina Corinna (02:50)
-03. I've Been Fooled (02:40)
-04. Never Give Up (03:21)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398E0AF4C2CCC0EB58A8F2426FC32772F793E71F
 ```
 
 https://mybot314.ru/tekegram_catalog/

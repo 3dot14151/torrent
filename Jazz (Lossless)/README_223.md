@@ -1,3 +1,90 @@
+###  Публикация: 1079352   (294541) от 04.12.2016
+
+Paris Jazz Big Band - Source(s) (2012) Cristal Records[FLAC|Lossless|tracks + .cue] <Modern Big Band, Progressive Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Huyana (Nicolas Folmer) [08:05]
+ 02.Wild (Pierre Bertrand-Cagnes) [07:18]
+ 03.Zamba Blanca (Pierre Bertrand-Cagnes) [05:05]
+ 04.Cajon Negro (Pierre Bertrand-Cagnes) [04:52](   Читать дальше...   )Жанр: Modern Big Band, Progressive JazzПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EA24FB5F9AD0860DEE4F72E15A8020BEA570A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079540   (294370) от 04.12.2016
+
+Milt Jackson and the Monty Alexander Trio - Soul Fusion (1978) 1992, OJC[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Parking Lot Blues [05:24]
+ 02.3000 Miles Ago [07:55]
+ 03.Isn't She Lovely [04:58]
+ 04.Soul Fusion [05:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695090B9634FBBCF57701A48068E51B93416CD08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079629   (294360) от 04.12.2016
+
+SaraLee - Queen Of Your Heart (2016) Scene [FLAC|Lossless|tracks] <Rockabilly, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294360.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Oh Oh
+2. Voodoo Voodoo
+3. New York City Bank
+4. Stay By My Side(   Читать дальше...   )Жанр: Rockabilly, SwingПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735696460516C52219A30644436B2791694B79A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079623   (294187) от 04.12.2016
 
 Swing Republic - Midnight Calling (2012) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
@@ -658,93 +745,6 @@ Zoot Sims & Al Cohn - Zoot Case (1982) 1991, Sonet Records[FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7882733583EC33748CC2BB3FF87A4BB445B85E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080019   (290417) от 06.12.2016
-
-John Coltrane - A Love Supreme. In Concert (1961, 1965) 1991, Suisa[APE|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Part I: Acknowledgement [06:07]
- 02.Part II: Resolution [11:54]
- 03.Part III: Pursuance [13:05]
- 04.Part IV: Psalm [08:15](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE362EE8F92728EE1DA6935B4291CD5335C1B673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080402   (290416) от 06.12.2016
-
-Thelonious Monk - Criss-Cross (1963) 1993, Columbia[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hackensack [04:18]
- 02.Tea For Two [03:53]
- 03.Criss-Cross [04:46]
- 04.Eronel [04:37](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0A535F11B9ED5B4E8A7A71D0C96C9B9636C177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080083   (290341) от 06.12.2016
-
-Ray Charles & Betty Carter - Just You Just Me (1991) Traditional Line[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ev'ry Time We Say Goodbye [04:42]
- 02.You and I [03:30]
- 03.Intro: Goodbye/We'll Be Together Again [03:22]
- 04.People Will Say We're in Love [02:54](   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BBD247F3D35818A94CF957678721BCEC466B6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 452970   (153867) от 22.12.2020
+
+Rainbow - Down To Earth  (1979) 2CD Deluxe Edition /2011, Polydor/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night Long [0:03:55.07]
+02. Eyes Of The World [0:06:43.17]
+03. No Time To Lose [0:03:45.55]
+04. Makin' Love [0:04:39.49]
+05. Since You Been Gone [0:03:21.16]
+06. Love's No Friend [0:04:55.54]
+07. Danger Zone [0:04:32.26]
+08. Lost In Hollywood [0:04:54.40]
+09. Bad Girl (7' Single B-Side) [0:04:51.11]
+10. Weiss Heim (7' Single B-Side) [0:05:14.60]Жанр: Hard RockПродолжительность: 00:46:53 / 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3698E7663D91BB45CF81382B4D018FC2A7CDC4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518891   (153079) от 21.12.2021
+
+Yeah Bop Station - Upfront (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run From Your Money
+02. Don't Turn Your Back On Me
+03. Don't Like To Work
+04. Blue Moon(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C83DC61B6E59515F95863ABAAE26A78184806D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518786   (153050) от 21.12.2021
+
+Phil Koubek Project - I'm Your Rock Star (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Want To R&R
+02. Wake Me When It's Over
+03. Darkest Part Of My Heart
+04. Shed That Skin(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73AA6F9313DA133D51FDFFFAC95E42C0CBA4552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518829   (152952) от 21.12.2021
+
+Small Jackets - Just Like This! (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock, Rock 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Town
+02. Getting Higher
+03. Next Level
+04. Breakin’ The Line(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Rock 'n' RollПродолжительность: 00:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03AE792F0CE32FEC79E7F4017F26498769F13D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601150   (152710) от 30.12.2022
 
 Boudreaux - Fallen Angel (1994) Reissue, 2021, Metallic Blue Records [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
@@ -634,122 +756,6 @@ Dare - 8 Albums (1988 - 2016) 8CD [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7713C7796F193170AA8BB469FE187BDDF79E7071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679121   (140527) от 24.11.2023
-
-Dead Moon - Going South (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Must Be A Witch [00:02:53]
-02. Dead Moon Night [00:04:55]
-03. Don't Burn The Fires [00:03:47]
-04. Johnny's Got A Gun [00:02:41](   Читать дальше...   )Жанр: Hard-Rock, Punk-RockПродолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF29FE39E34D6749494D1BDF8DF50E138E084FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195727   (140040) от 30.12.2017
-
-Gary Moore - Blues And Beyond (2017) 4CD Box-Set Limited Edition [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одним из интереснейших музыкантов, которых подарили миру Британские острова, является Гэри Мур.
-Бокс в виде коробки с беспрецедентными живыми записями и официальной биографией Гэри Мура «Не могу дождаться завтра», написанной Гарри Шапиро. Специальная коллекция его самых мощных и эмоциональных блюзовых студийных и концертных записей.01. Too Tired (6:25)
-02. The Sky Is Crying (13:55)
-03. Further On Up The Road (8:23)
-04. Fire (4:05)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Blues, Rhythm & Blues |Продолжительность: 04:19:51 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C019A88CB74BF01092C793AFCBE07C3D5E67A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436228   (139627) от 30.12.2020
-
-George Lynch & Jeff Pilson - Heavy Hitters (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One of Us (Originally by Joan Osbourne) (5:32)
-02. You Got the Love (Originally by Rufus & Chaka Khan) (4:57)
-03. I Feel the Earth (Originally by Carole King) (3:45)
-04. Ordinary World (Originally by Duran Duran) (5:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11E08BA96EA1D9748FF76508EB496D2E87C2BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520823   (139344) от 30.12.2021
-
-Alex Harvey - The Last Of The Teenage Idols (2016) 14 CD Box Set, Limited Edition [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бокс-сет шотландского экстровагантного-рок музыканта Алекса Харви, состоящий как из студийных альбомов группы The Sensational Alex Harvey Band, а также творчества его сольных альбомов.Список альбомов:
-CD1 - CD14
-Подробно в описанииЖанр: Hard Rock, Glam Rock, Classic Rock, Rock'n'Roll |Продолжительность: 15.34.45 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0E0935701A310A483DDDC94CA6F59DEDCC99F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1813183   (6939) от 19.08.2025
+
+VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [OPUS|160 kbps] <pop, rock, rap>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6939.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aretha Franklin - Respect.opus — 00:02:27
+002. Public Enemy - Fight The Power.opus — 00:04:42
+003. Sam Cooke - A Change Is Gonna Come.opus — 00:03:11
+004. Bob Dylan - Like A Rolling Stone.opus — 00:06:09(   Читать дальше...   )Жанр: pop, rock, rapПродолжительность: 34:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3552843121BF622EE46CF84DB13432D0DF87C3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813458   (6925) от 19.08.2025
 
 Сергей Мазаев & Моральный Кодекс - Compilation (1991-2025) [MP3|320 Kbps] <Pop rock, Jazz rock, Blues rock>

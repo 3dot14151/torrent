@@ -1,3 +1,148 @@
+###  Публикация: 1754408   (40783) от 10.10.2024
+
+The Smoothies - Soulful Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Groove of Your Love (3:27)
+02. Together Forever (3:06)
+03. Summer Fades (2:49)
+04. Missing You (My Friend) (2:38)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E253BB1A524821C5F977121D987357128EA44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754399   (40781) от 10.10.2024
+
+Summer Jazz Paradise, Instrumental Jazz Music Ambient and Swing Background - Summer 2024 Vintage Swing Jazz Collection (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Swing, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Jazz Paradise - Swingin' in the Sunshine (3:24)
+02. Instrumental Jazz Music Ambient - Jazz by the Pool (3:36)
+03. Breezy Afternoon Swing (3:52)
+04. Summer Jazz Paradise - Starlit Serenade (3:51)(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DE584B196F1585E3BB63216AFBA7CFD70D43BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754409   (40776) от 10.10.2024
+
+The Smoothies - Velvet Vibes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Longing Echoes (3:05)
+02. Lonely Roads (2:49)
+03. Hold me close stay right here (2:54)
+04. Moonlit Groove (2:47)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DFD366AC5605EFB2A4CFAA1B08BB39440BEB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754490   (40772) от 10.10.2024
+
+John Lennon - Mind Games (Meditation Mixes) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind (Mind Games Meditation Mix / Binaural ∿Gamma Waves∿ 100Hz) (10:02)
+02. Magic (Mind Games Meditation Mix) (10:58)
+03. Space (Mind Games Meditation Mix / Binaural ∿Theta Waves∿ 8Hz) (5:42)
+04. Seed (Mind Games Meditation Mix) (5:59)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E109EC1988BFD972F4F41C3D5D812C588299B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754398   (40767) от 10.10.2024
+
+Ezra Collective - Dance, No One's Watching (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:22)
+02. The Herald (3:45)
+03. Palm Wine (5:14)
+04. cloakroom link up. (Act 1) (0:25)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F5BADF52D8CBE978323CCB222C7E5CFB245C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754436   (40766) от 10.10.2024
 
 Blacksmith Tales - Pathway to Hamlet’s Mill (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog, Symphonic Prog>
@@ -600,148 +745,6 @@ Cruachan — ирландская группа, играющая в стиле �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:173BDC202A5DE1D15C1786156ED818C689174950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755132   (40356) от 14.10.2024
-
-Jasmin Bayer - Poetic License (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Eye (7:11)
-02. Together (4:36)
-03. Poetic License (4:59)
-04. Rise Like A Phoenix (7:07)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 01:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C792AE9449F4A13C2E7C9D54291CCDDF7CB5063C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755165   (40350) от 14.10.2024
-
-Paul Heaton - The Mighty Several (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rianne Downey - National Treasure (3:18)
-02. Rianne Downey - Quicksand (3:01)
-03. After The Sugar Rush (4:27)
-04. Fish ‘N’ Chip Supper (3:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94923EF1D0786755AEDD73DAFC43E08182AF71F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755486   (40286) от 15.10.2024
-
-Лена Катина (ex t.A.T.u.) - Манекен (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Остров [00:02:53]
-02. Такси [00:02:54]
-03. Белла чао [00:02:38]
-04. Одна ночь [00:03:35](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61620B8F71AEDB1765444EC415C8DB92C035A65F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755378   (40284) от 15.10.2024
-
-Вячеслав Добрынин - Браво, Маэстро! I+II (1997) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Chanson, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Chanson, SchlagerПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0480D3E1AC726DEC83377099979E6C7997A12DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755473   (40266) от 15.10.2024
-
-Dame Area - Toda la Verdad Sobre Dame Area (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial, EBM, Punk, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Si No Es Hoy Cuándo Es [00:05:32]
-02. Vengo Dall'aldilà [00:03:13]
-03. Sempre Cambiare [00:02:55]
-04. Urlo Di Guerra [00:02:58](   Читать дальше...   )Жанр: Industrial, EBM, Punk, New WaveПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894CFA773FA6188291A9CC6377949B4553EA1579
 ```
 
 https://mybot314.ru/tekegram_catalog/

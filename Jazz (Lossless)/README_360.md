@@ -1,3 +1,90 @@
+###  Публикация: 1751159   (42615) от 23.09.2024
+
+Frank Sinatra - On The Air! - Love Me Or Leave Me (1997) QED Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Can't Be Love [2:59]
+02. You Took Advantage Of Me [2:39]
+03. I Dont Know Why [2:23]
+04. I Only Have Eyes For You [2:18](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF1AB3D32E29FE94B0B00A85D0F1CB777CCBBED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751318   (42510) от 24.09.2024
+
+Frank Sinatra - S'Wonderful (1996) Razamataz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S'Wonderful [1:45]
+02. I've Got My Love To Keep Me Warm [2:02]
+03. I Don't Stand A Ghost Of A Chance [3:16]
+04. Begin The Beguine [3:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847297D38C324FF056689BE2665DC03404742F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751464   (42414) от 25.09.2024
+
+Frank Sinatra - Sensational Sinatra (1997) Penny [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Make Me Feel So Young [2:58]
+02. The Lady Is A Tramp [3:07]
+03. On The Sunny Side Of The Street [2:00]
+04. Dancing In The Dark [2:32](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Easy ListeningПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D7A6ACBD05EF7912B0E6E39B71365DBDDBF0FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751724   (42300) от 26.09.2024
 
 VA - Italian Restaurant Lounge Music (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, Lounge>
@@ -658,93 +745,6 @@ VA - Ultimate Chillout Ambient Lounge III (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F9FEB110125614643BB90E4333B4BB843AE9BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755539   (40158) от 16.10.2024
-
-VA - Classy Charming Luxury Light Jazz Chilly Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Begin Again (4:14)
-02. Chillaxonic - Oasis (4:58)
-03. eJazz Artistry - One Summer Night (4:01)
-04. Kool&Klean - Amazing (3:49)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57C2B916450DFD9377D207AFCE27EBC788958CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755538   (40156) от 16.10.2024
-
-VA - Charming Classy Luxury Lounge Chilly Relaxing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - It Will Rain (3:53)
-02. Chillaxonic - Oasis (4:58)
-03. Kool&Klean - Feel Again (3:53)
-04. eJazz Artistry - Letters from Home (3:58)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BAE0CB519520A235F44995D059B6625842078CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755397   (40065) от 17.10.2024
-
-Steve Lacy - Only Monk (1985) 1993, Soul Note [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evidence [3:46]
-02. Humph [3:32]
-03. Eronel [4:41]
-04. Pannonica [5:52](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C0BAB61BB7F3E11715C12EC72F6824771C450F
 ```
 
 https://mybot314.ru/tekegram_catalog/

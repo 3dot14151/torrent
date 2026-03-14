@@ -1,3 +1,90 @@
+###  Публикация: 1072099   (244300) от 12.11.2016
+
+Nancy Wilson - Hollywood-My Way (1963) 2006, Capitol Jazz[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.My Shining Hour [01:59]
+ 02.The Days Of Wine And Roses [03:27]
+ 03.Moon River [02:08]
+ 04.Secret Love [03:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721B60357C3968AA87968E5671AF20758C25DE42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072655   (244287) от 13.11.2016
+
+Dj Para - Fallen On Def Ears (2009) [FLAC|Lossless|tracks + .cue] <Funk, Nu Jazz, Hip Hop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recue Me (3:48)
+02. It's The Hornet (3:34)
+03. D Blues In C (0:59)
+04. Save Your Breath (3:56)(   Читать дальше...   )Жанр: Funk, Nu Jazz, Hip HopПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E469BA9BC5F4FFD2A383DC780190ADE16F7552B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072646   (244279) от 13.11.2016
+
+Francisco "Paquito" Hechavarria - Frankly (2009) [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Cuban Traditions>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change Partners (Irving Berlin)
+02. Sweet Lorraine (Cliff Burwell-Mitchell Parish)
+03. Oh You Crazy Moon (Johnny Burke-Jimmy Van Heusen)
+04. I've Got The World On A String (Harold Arlen-Ted Koehler)(   Читать дальше...   )Жанр: World Fusion, Latin Jazz, Cuban TraditionsПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00844B20564BC6D940F770F69909D7556DF14B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610803   (244274) от 09.02.2023
 
 Steve Khan - Backlog (2017) Tone Center [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Latin Jazz>
@@ -658,93 +745,6 @@ Eric Reed - Black, Brown, and Blue (2023) Smoke Sessions Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5D300412CB471876C7CC83A8690CD13E5F02F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611555   (243834) от 12.02.2023
-
-Chico Hamilton - The Complete Remastered Recordings On Black Saint & Soul Note (1989 - 1993) 5CD, 2014, CAMJazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Beginning [2:16]
-02. Conquistadore Rides Again [4:24]
-03. Tap Drums [4:23]
-04. Dance of the Tympanies [6:22](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 04:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5D5485F6708BCFC85714E037B7AAFE717C5AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632906   (243797) от 12.05.2023
-
-Stan Getz - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust [2:42]
-02. Goodnight My Love [2:41]
-03. There's a Small Hotel [2:55]
-04. Too Marvelous for Words [2:56](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16CFD9E41B33DB392DD307B32A7FBA50BA4C7D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076494   (243702) от 26.11.2016
-
-Pasadena Roof Orchestra - Roots Of Swing (2008) [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change Partners (3:51)
-02. Nobody's Sweetheart (2:46)
-03. Time On My Hands (3:32)
-04. Casa Loma Stomp (3:00)(   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC68262FC629D70A30EAC47A91E83F562A05D239
 ```
 
 https://mybot314.ru/tekegram_catalog/

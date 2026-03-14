@@ -1,3 +1,119 @@
+###  Публикация: 1806191   (11817) от 11.07.2025
+
+Mariah Carey - The Best (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Funk, Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11817.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Dreamlover
+02. Without You
+03. Now That I Know(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CC2DD9E772D029757D2EEB44ADF787C87D04EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806357   (11715) от 12.07.2025
+
+Chris Rea - The Best Of (1992) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11715.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Touche D'Amour
+02. All Summer Long
+03. Wired To The Moon(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58541A7E2D4D0F2D85853BEEE52620ADED271CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806383   (11695) от 12.07.2025
+
+VA - Балкантон Приглашает В Дискотеку (1986) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11695.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Васил Найденов - Полный порядок
+A2 Роксана Белева - Песенка Сверчков
+A3 ВГ ''Стил'' - Третий Лишний
+A4 Венета Рангелова - Районное Кино(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B745228240B1FD15CBA02AA1F6E5892C892A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806987   (11294) от 16.07.2025
+
+Demolition Hammer - Tortured Existence (1990) Released, 2023, Century Media [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11294.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 .44 Caliber Brain Surgery
+A2 Neanderthal
+A3 Gelid Remains
+A4 Crippling Velocity(   Читать дальше...   )Жанр: Thrash Metal, Groove MetalПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E097900CB91043353303081A85BAE03A83BE440E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807017   (11293) от 16.07.2025
 
 Demolition Hammer - Epidemic of Violence (1992) Released, 2023, Century Media [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Groove Metal>
@@ -630,121 +746,6 @@ Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD41EDF9054CB68CD6C582C4F0D36ED3498A52A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811891   (8248) от 12.08.2025
-
-Dragony - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dragony — пауэр-метал группа из Вены, Австрия, основана в 2010 году.2012 - Legends
-2015 - Shadowplay
-2017 - Lords Of The Hunt
-2018 - Masters Of The MultiverseЖанр: Melodic/Symphonic Power MetalПродолжительность: 05:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA94AFC95CEB0E71499F4CDA79861CB1AA975439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811904   (8231) от 12.08.2025
-
-DragonForce (& Marc Hudson) - Studio Albums (11 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8231.jpg" />
-</div>
-
-
-###  Подробнее
-
-DragonForce — британская пауэр-метал-группа из Лондона, образованная в 1999 году. Они известны своими длинными и быстрыми гитарными соло, текстами в стиле фэнтези и звучанием, вдохновлённым ретро-видеоиграми. Сами участники группы называют свою музыку «экстремальным пауэр-металом».2003 - Valley Of The Damned
-2004 - Sonic Firestorm
-2006 - Inhuman Rampage
-2008 - Ultra Beatdown(   Читать дальше...   )Жанр: Power MetalПродолжительность: 11:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D572DBFA481300F2FE41402915B0312E65DD530D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812142   (8106) от 13.08.2025
-
-VA - Absolute New Hits 5 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Euro House, Italodance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Pearl feat.Zaradika - Celebrate
-02. Maxx - Power Of Love
-03. Odyssey - Winter Night(   Читать дальше...   )Жанр: Euro House, ItalodanceПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C2EE03AFD15369DE3FD346C3A0D2C62AA10E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812118   (8044) от 13.08.2025
-
-Rave The Reqviem - Studio Albums (5 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rave The Reqviem - индастриал-метал группа из Швеции, образована в 2011 году.2014 - Rave The Reqviem
-2016 - The Gospel of Nil
-2018 - FVNERALЖанр: Electronic, Industrial MetalПродолжительность: 03:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6555E68979BBAF3A9ECAC0CBBA86D5A6F560EE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

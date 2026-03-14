@@ -1,3 +1,90 @@
+###  Публикация: 1439113   (1040288) от 11.01.2021
+
+VA - Best Live Albums (2020) [MP3|320 Kbps] <Rock, Reggae, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Who - I Can't Explain (Live)
+02. The Allman Brothers Band - Statesboro Blues (Live At Fillmore East, March 13, 1971)
+03. The Rolling Stones - Midnight Rambler (Live From Madison Square Garden, New York/1969)
+04. Kiss - Rock And Roll All Nite (Live)(   Читать дальше...   )Жанр: Rock, Reggae, BluesПродолжительность: 02:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163281A6608442E3DA62839E0CDF60331BA0F04C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439079   (1040286) от 11.01.2021
+
+VA - Private Partners: Rock Blues Lyric Collection (2021) [MP3|320 Kbps] <Rock Blues, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящие ветераны и винтажные мастера рок блюза в очередной раз порадуют своих фанов выпуском полноформатного коллекционного сборника "Private Partners". Выделять какие-то треки в особенности нет смысла – если бы не паузы между песнями, то можно было бы воспринять все как один большой трек, с лирическими перекатами по настроению, но с одним и тем же чувством (   Читать дальше...   )001. Eric Brooke - Movin' Uptown
+002. Don Griffin - Back To Chicago
+003. Dirty Dave Osti - Rebel Run
+004. Robert Randolph - Simple Man(   Читать дальше...   )Жанр: Rock Blues, BluesПродолжительность: 09:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACFFFE446F686A330A4A97A452D1CACD601F078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439110   (1040279) от 11.01.2021
+
+VA - Best Blues Guitar (2021) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santana - Europa (Earth's Cry Heaven's Smile)
+02. Gary Hoey, Josh Smith - Mercy Of Love (feat. Josh Smith)
+03. Buddy Guy, Jeff Beck, Keith Richards - Cognac
+04. Joe Bonamassa - When The Fire Hits The Sea(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096E43AEA56E1E3BDB83B9E4E78E70C30135C1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439291   (1040116) от 12.01.2021
 
 VA - Forever Love: Syntpop Mix (2021) [MP3|320 Kbps] <Synthpop, Electropop>
@@ -658,93 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 15.01.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A52C7270FCB06DCCE57C80D286B97477FDC6FB14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440263   (1038994) от 16.01.2021
-
-VA - Night Beats Blues (2021) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пристрастие к музыке в жанре Blues принято считать каким-то специфичным знаком утончённого вкуса, ведь не зря она считается обязательным атрибутом разнообразных богатых заведений. А звучание вокала в сопровождении "живого" инструментала делает музыку еще более изысканной и привлекательной.001. Mississippi Heat - Yeah Now Baby
-002. Matthew La Seur - Spoonful
-003. Casey Kiser - House Of Cards
-004. Blues Cousins - Cant You See(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 09:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BA217CC4C57DED066ED75C93BA7B7416A9A933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438781   (1038929) от 16.01.2021
-
-VA - Не спи за баранкой 4 (Музыка в машину) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Deluxe - Panic Control (1:55)
-02. Miltreo - Move It (2:07)
-03. KARA KROSS - Поколение (Dj Killjoy Radio edit) (2:08)
-04. Anton Lacosta, Aleks Marty - Fake Friends (2:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30425F6C5C342E6694162D22F67ADF7DF7E2FDAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 140348   (1038645) от 17.01.2021
-
-VA - Relax Collection 7 - Гармония Тишины (2009) [MP3|320 Kbps] <Instrumental, Chill-Out, Lounge, Lo-Fi>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aguaflames - Noiman (4:10)
-02. Alex Hudish - At Ease (3:37)
-03. Alpha X - Blue Love (4:47)
-04. Andres Bela - Perceptions (6:26)(   Читать дальше...   )Жанр: Instrumental, Chill-Out, Lounge, Lo-FiПродолжительность: 04:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970971B82FDC76997C884055DC1C370F0E2C9B84
 ```
 
 https://mybot314.ru/tekegram_catalog/

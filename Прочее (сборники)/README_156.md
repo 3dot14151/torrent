@@ -1,3 +1,32 @@
+###  Публикация: 1630359   (199125) от 30.04.2023
+
+VA - ЕвроХит Топ 40 Europa Plus 28.04.2023 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tove Lo - Borderline (3:13)
+02. The Future X - This Kind Of Love (2:50)
+03. Maneskin feat. Tom Morello - Gossip (2:48)
+04. Tiesto - Lay Low (2:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9544A0016631628E9FA7206A1089D31D4AF93226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630438   (199052) от 30.04.2023
 
 VA - В машине с музыкой Vol.332 (2023) [MP3|320 Kbps] <Pop, Dance, Rock>
@@ -715,35 +744,6 @@ VA - Musical kaleidoscope part 59 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D28781B0E7DC8A2DDD34BA109AAEC49BD83A5FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828745   (193402) от 24.10.2025
-
-VA - Anything and everything assorted part 8 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, AI, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dova Music - Hold Me Tonight
-02 - Jumanov - October
-03 - Mr Salama - Feel Your Love
-04 - Stive Morgan - Chicago Plus(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, AI, OtherПродолжительность: 01:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCE753A8EDDAED00CAA0BE74BBF1E6FDFF14859
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,149 @@
+###  Публикация: 1758901   (38192) от 05.11.2024
+
+Visions of Atlantis - Studio Albums (10 releases) (2002-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visions of Atlantis — симфоник-метал и пауэр-метал-группа из Штирии, Австрия, основанная в 2000 году.
+Участники группы были вдохновлены симфо-пауэр-метал-группой Nightwish и легендой об Атлантиде2002 - Eternal Endless Infinity
+2004 - Cast Away
+2007 - Trinity
+2011 - DeltaЖанр: Symphonic Power MetalПродолжительность: 08:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C91DCD17B7A80D500872E1C81EB9305F1F3B513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674502   (38187) от 05.11.2024
+
+Nightmare (France) - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightmare - французская пауэр-метал группа из Гренобля, основана в 1979 году.2001 - Cosmovision
+2003 - Silent Room
+2005 - The Dominion Gate
+2007 - Genetic DisorderЖанр: Heavy/Power MetalПродолжительность: 09:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A8A59EA31FFF7DF07ADCB267D11E1E33028810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758961   (38178) от 05.11.2024
+
+Chuck Ragan - Love & Lore (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All In (3:54)
+02. Wild In Our Ways (4:09)
+03. Northern World (3:53)
+04. Echo The Halls (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69409426A13FAB7F6A0050D172299F8DA3A59D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758911   (38176) от 05.11.2024
+
+Tribulation - Sub Rosa In AEternum (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Dark metal, Gothic metal, Death metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Unrelenting Choir (2:52)
+02. Tainted Skies (3:51)
+03. Saturn Coming Down (5:59)
+04. Hungry Waters (5:22)(   Читать дальше...   )Жанр: Dark metal, Gothic metal, Death metalПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8BBC9EE2CC23B46BFABB796E98D34F2FA4941CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758968   (38175) от 05.11.2024
+
+Billy Jeter - Delta Traces (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby Rush - Hambone Stomp (3:04)
+02. Rose's Shack (3:32)
+03. Detroit Johnny - Ballad of Goosie Willie (3:55)
+04. Haywood House (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8EB5FFE5992D7655664609BA3870356DE322659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758963   (38173) от 05.11.2024
 
 Electric High - Colorful White Lies (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -601,151 +747,6 @@ Lionville - Supernatural (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF61F014944B9B8966312D7E9147AF9410716F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760501   (37291) от 14.11.2024
-
-As I Lay Dying - Through Storms Ahead (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Permanence (1:11)
-02. A Broken Reflection (3:55)
-03. Burden (4:06)
-04. We Are The Dead (feat. Alex Terrible, Tom Barber) (3:44)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADFA0193C6B546E15C675C5C16BA5AD72ED59E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760493   (37290) от 14.11.2024
-
-Starchaser - Into The Great Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella Exodus (0:21)
-02. Into The Great Unknown (3:59)
-03. Battalion Of Heroes (4:53)
-04. Who Am I (4:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF3B5C0E16ED29CCF553BB004DCAA44552DEDC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760455   (37289) от 14.11.2024
-
-Abc - 2 Albums (2022, 2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beauty of Heaven (Interlude 3) [00:01:49]
-02. The Reality Created by the Observer [00:01:55]
-03. Going up All On, Goodbye ! [00:02:44]
-04. If I'm Ever Looking at You [00:03:45](   Читать дальше...   )Жанр: SynthpopПродолжительность: 4 CD, 03:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90CD891259A585BD64645002DAA5E09B770C6E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760486   (37284) от 14.11.2024
-
-George Harrison - Living in the Material World (50th Anniversary) (1973) Reissue, Remastered, 2024, BMG Rights Management (US) LLC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me Love (Give Me Peace on Earth) (2024 Mix) (3:37)
-02. Sue Me, Sue You Blues (2024 Mix) (4:46)
-03. The Light That Has Lighted the World (2024 Mix) (3:31)
-04. Don't Let Me Wait Too Long (2024 Mix) (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F1A370E309FC88D0A645563CD2F99D703B67C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760505   (37278) от 14.11.2024
-
-Nickelback - Live From Nashville (Live From Nashville) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Grunge, Hard Rock, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Quentin (3:59)
-02. Savin' Me (with Chris Daughtry) (3:37)
-03. Far Away (4:05)
-04. Animals (4:11)(   Читать дальше...   )Жанр: Post-Grunge, Hard Rock, Alternative MetalПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A1C6D0520FD5E1AA976628E5071C79D3ADB7F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,33 @@
+###  Публикация: 1500929   (839821) от 07.10.2021
+
+Gus G. - Quantum Leap (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Guitar Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Греческий гитарист-виртуоз Гас Джи (Gus G.), хорошо известный в рок- и метал-кругах по работе с Оззи Осборном (Ozzy Osbourne) и собственной группой FIREWIND, выпустит новый сольный альбом "Quantum Leap" 8 октября на лейбле AFM.
+Он заявил: "Это мой первый полностью инструментальный сольный альбом. Это означает, что там вообще нет вокала, нет гостевых (   Читать дальше...   )01 - Into the Unknown (05:22)
+ 02 - Exosphere (03:40)
+ 03 - Quantum Leap (04:49)
+ 04 - Chronesthesia (05:02)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Guitar InstrumentalПродолжительность: 01:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403B67FB32EDD31B212EDAA4A6FF527427D60C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113168   (839648) от 10.03.2017
 
 Deep Purple - All I Got Is You (2017) EP [MP3|320 Kbps] <Hard Rock>
@@ -710,35 +740,6 @@ Dirty Tricks - Night Man (1976) Reissue, 2004, Majestic Rock [MP3|320 Kbps] <Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A82D43024B155E525DB1678E4C2222CB1630EEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199590   (801035) от 16.01.2018
-
-Midnight Flyer - Midnight Flyer (1981) Reissue, 2013, Air Mail Archive [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Boy
-02. Love Games
-03. French Kisses
-04. In My Eyes(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD383E497291171F2C7797AB2CB7B103A7AFA62
 ```
 
 https://mybot314.ru/tekegram_catalog/

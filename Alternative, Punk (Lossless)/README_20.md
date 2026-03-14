@@ -1,3 +1,90 @@
+###  Публикация: 1129560   (720713) от 29.04.2017
+
+Feist - Pleasure (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720713.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pleasure (04:45)
+2. I Wish I Didn’t Miss You (04:18)
+3. Get Not High, Get Not Low (04:57)
+4. Lost Dreams (05:18)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF522BA3AEBC4F677B45AC18737892286213902E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285595   (719159) от 27.02.2019
+
+VA - Les 35 Ans De Radio Libertaire (2017) Compilation [FLAC|Lossless|tracks + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D' de Kabal vs Franco Mannara - Ils voudraient que nous soyons cela (03:07)
+02. Achab - Black Block (04:08)
+03. La Twal - Sog Nig Keynmol / Ne dis jamais (04:17)
+04. Les Ogres de Barback - Grand mère (08:34)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91133AEB9F917822221113C48466AA33BF12755E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285943   (716947) от 28.02.2019
+
+Weezer - Weezer (Black Album) (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Knock the Hustle (03:42)
+02. Zombie Bastards (04:11)
+03. High as a Kite (03:48)
+04. Living in L.A. (03:38)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46718F3AB6C559174D5DF210C13A05ECFEC3C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285865   (716821) от 28.02.2019
 
 Adia Victoria - Silences (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -659,93 +746,6 @@ Attila - Villain (2019) Attila Music LLC [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:955D7FA8BBF9ECA363ED5135CF06C9B65D7ED575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287040   (707131) от 05.03.2019
-
-VA - Punk Collection (unknown year) Unofficial Release [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sex Pistols - Anarchy in U.K.
-02. The Stranglers - No More Heroes
-03. The Knack - My Sharona
-04. Iggy and the Stooges - I Got a Right(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F3A33A8C7C2814755138DA561B8E9DD6804E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131691   (706953) от 06.05.2017
-
-Say Sue Me - Say Sue Me (2017) [FLAC|Lossless|tracks] <Indie Pop, Surf>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706953.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To Be Wise (03:43)
-2. My Problem (04:12)
-3. One Week (03:19)
-4. I Know I'm Kind Of Boring (02:50)(   Читать дальше...   )Жанр: Indie Pop, SurfПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942FF8AC544681F294164FA5ECD21625298FD0ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286613   (706895) от 05.03.2019
-
-Balthazar - Fever (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fever (06:05)
-02. Changes (03:46)
-03. Wrong Faces (03:57)
-04. Whatchu Doin’ (03:44)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0492B09327BDAA8A98E9E1B54637104E0C2380
 ```
 
 https://mybot314.ru/tekegram_catalog/

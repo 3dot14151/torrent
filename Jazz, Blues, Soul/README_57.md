@@ -1,3 +1,61 @@
+###  Публикация: 979075   (960951) от 25.01.2016
+
+Earl Bostic - The Earl Bostic Story (1950-e) 4CD, 2006, Proper Records[FLAC|tracks+.cue] <Swing, Jump Blues, R&B, Standards>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960951.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Major And The Minor:
+01.The Man I Love [03:18]
+02.Hurricane Blues [03:12]
+03.The Major and the Minor [02:56](   Читать дальше...   )Жанр: Swing, Jump Blues, R&B, StandardsПродолжительность: 04:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78876E1D26B7B6BB4D5939C0FDEF680A7BBA7277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360522   (960931) от 15.02.2020
+
+Tino Gonzales - Nuke The World (2003) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Full Of Sorrow
+02. You're Not The One
+03. Nuke The World
+04. How Do You Play The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0F2F97B3C378E4904C02320A004FA1F2A175FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360297   (960587) от 15.02.2020
 
 Фрэнк Синатра (Frank Sinatra) - Легендарные Музыканты 16 (2019) [MP3|320 Kbps] <Jazz, Vocal>
@@ -683,64 +741,6 @@ Kenny G - The Very Best Of (1994) limited Edition [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68136AE8AF79386F318D79B3144359CE1117562D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361170   (955725) от 19.02.2020
-
-Thelonious Monk - The Complete Albums Collection 1957-61 (2015) 5CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955725.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ruby, My Dear [6:23]
-02. Trinkle, Tinkle [6:41]
-03. Off Minor [5:17](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 06:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2453A8450F2EA2DD47893E3670E9F251D8A8ECC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088864   (955173) от 01.01.2017
-
-Barney Kessel - Contemporary Latin Rhythms! (1961) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues In The Night [02:40]
- 02.Days Of Wine And Roses [02:30]
- 03.Latin Dance #1 [02:32]
- 04.Lady Bird [03:31](   Читать дальше...   )Жанр: Bop, Cool, West Coast JazzПродолжительность: 00:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633110CE61F95FE64A514AA3114C238149B092F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

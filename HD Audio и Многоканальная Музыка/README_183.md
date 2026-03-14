@@ -1,3 +1,148 @@
+###  Публикация: 1782602   (69968) от 01.03.2025
+
+(hed) Planet Earth - Best of Unauthorized (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore, Nu Metal, Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Raise Hell
+02 – Wake Up
+03 – Bartender
+04 – Killing Time(   Читать дальше...   )Жанр: Rapcore, Nu Metal, HardcoreПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E299ED8E983FE0A16EEF7D9E69700673F60239E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782447   (69967) от 01.03.2025
+
+Untimely Demise - Studio Albums (6 releases) (2009-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Untimely Demise - канадская метал-группа из Саскатуна, Саскачеван.2009 - Full Speed Metal (EP)
+2010 - City Of Steel
+2013 - Systematic Eradication
+2016 - Black WidowЖанр: Thrash MetalПродолжительность: 03:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CEF3EEEC755143695A0687DFE87B2F8B96A4D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782682   (69965) от 01.03.2025
+
+Addicted CH - Time Is Endless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Time Is Endless (01:22)
+ 02 - Karma (05:19)
+ 03 - Unlighten Sky (05:18)
+ 04 - The Sin (04:38)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B670CBF85E18032C45B5C54F1308ECF04061114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782591   (69963) от 01.03.2025
+
+Elderbrook - Another Touch (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Part Of You
+02 – Shallow Water
+03 – Afters
+04 – Sunshine(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2255D5DB8066F9CAED9D53978DD4E10B53374A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782606   (69960) от 01.03.2025
+
+Rick Springfield - Big Hits: Rick Springfield's Greatest Hits, Vol. 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock, Pop Rock, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – I’ll Make You Happy
+02 – What’s Victoria’s Secret
+03 – The Man T
+04 – Wide Awake(   Читать дальше...   )Жанр: Melodic Rock, Pop Rock, RockПродолжительность: 01:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC9E8B3260D03127C4C56DA1A51916108980D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782599   (69959) от 01.03.2025
 
 Max Cooper - On Being (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Techno, IDM,Jungle, Leftfield, Experimental>
@@ -593,151 +738,6 @@ Thrashist Regime - трэш-метал группа из Абердина, Шо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E04E0BBB62A77B84E681ADC9E5A5F60E417EF72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783404   (69791) от 06.03.2025
-
-Gravecloud - A Tear In The Veil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death / Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Horizon [00:01:37]
-02. Smoke And Iron [00:04:39]
-03. Ashen Rain (The Tower I) [00:06:20]
-04. Evolving Chaos (The Tower II) [00:05:17](   Читать дальше...   )Жанр: Melodic Death / Symphonic MetalПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20442B7EEB4EF56BF1A13F9C96E16C506C7E8A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783397   (69787) от 06.03.2025
-
-Years Of Messages - The Bitterness of Love & Obsession (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Electro, EBM>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She [00:04:57]
-02. Distance [00:04:05]
-03. Obsession [00:03:57]
-04. Ego Death [00:04:09](   Читать дальше...   )Жанр: Dark Electro, EBMПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36ED9B8D314A0C9C91FADB6554D5123D82BEB3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783421   (69786) от 06.03.2025
-
-Andrew Bird - Collection (2016-2024) [FLAC|24/44.1-96|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эндрю Бёрд — американский инди-рок-мультиинструменталист, певец и автор песен. С 1996 года он выпустил 16 студийных альбомов, а также несколько концертных альбомов и EP, охватывающих различные жанры, включая свинг, инди-рок и фолк.01. Crying In The Night (2:35)
-02. Stephanie (2:19)
-03. Without A Leg To Stand On (4:13)
-04. Crystal (4:43)(   Читать дальше...   )Жанр: Alternative & indie, jazz, pop, christmas musicПродолжительность: 04:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0510D25ABAB0754E6915A627C6DC73DF328102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783563   (69784) от 06.03.2025
-
-Stuka - Electronic Body Metal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <EBM, Electro Industrial>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chainsword Dismemberment [00:00:39]
-02. Death Is Certain [00:05:04]
-03. Violence [00:04:34]
-04. Red Planet Marches to War [00:05:35](   Читать дальше...   )Жанр: EBM, Electro IndustrialПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A21FEF1B71850E59CA6464217C8752A9E9E82E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783737   (69769) от 07.03.2025
-
-Tate McRae - So Close To What (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69769.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Miss possessive (00:02:19)
-✧ 02 - Revolving door (00:03:00)
-✧ 03 - bloodonmyhands (00:02:42)
-✧ 04 - Dear god (00:02:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0C0E801D41706D3CDF464E2788AFE7A63B0A70
 ```
 
 https://mybot314.ru/tekegram_catalog/

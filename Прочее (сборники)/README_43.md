@@ -1,3 +1,32 @@
+###  Публикация: 1273322   (799370) от 03.01.2019
+
+VA - New Year's Eve Party Hits 2019 (2018) [MP3|320 Kbps] <Dance, Electronic, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chainsmokers - Young
+02. Pitbull, J Balvin, Camila Cabello - Hey Ma
+03. Diplo, Zhavia Ward, French Montana, Lil Pump - Welcome to the Party
+04. Drake - God's Plan(   Читать дальше...   )Жанр: Dance, Electronic, Pop, Hip-HopПродолжительность: 05:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DC3F07F727CDD0FECF6073A82130B27C6749D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273621   (799361) от 03.01.2019
 
 VA - ЕвроХит Топ 40 Europa Plus Итоги Года 2018 [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Top 40 Hits Music April Work (2016) [MP3|320 кб/с] <Electro, Bigroom, Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B8993A78B987ACF83CFCF09DD34763E716DD2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011691   (796355) от 28.04.2016
-
-VA - Весенняя Молодежная Хитовая 100-ка (2016) [MP3|256 кб/с] <pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796355.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jarina De Marco - Paranavigar
-002. John Newman Feat. Charlie Wilson - Tiring Game
-003. Rita Ora - Poison
-004. Юрий Федотов & A-Net - Птица(   Читать дальше...   )Жанр: popПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABE260251A2804E1F333D4E37A1C0D3B5440CA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

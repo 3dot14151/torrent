@@ -1,3 +1,32 @@
+###  Публикация: 1544309   (621893) от 15.04.2022
+
+VA - Motivation Mix (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Tree, Alok - Life Goes On - Alok Remix (2:37)
+02. Strange Fruits Music, DMNDS, Steve Void - Calabria - Steve Void Edit (2:08)
+03. Twelve, Askar and the Ghosts - Talk (2:57)
+04. Imanbek, Cher Lloyd - Baddest (2:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6C9A2FE63D5571D1E00508409840CCEB6760D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910243   (621781) от 20.06.2015
 
 VA - Car Audio. Живyщий мyзыкoй.(Sound Clinic - Special Еdition) (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Trap, Dubstep, Electro, Trance, Progressive, Techno>
@@ -794,41 +823,6 @@ VA - Esthetics Lounge Vol. 4 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6522DEF48932186DA9CF80F914BA1D657336D46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523352   (617217) от 16.07.2012
-
-VA - Esthetics Lounge Vol. 5 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617217.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Late Night Alumni - Empty Streets (5:01)
-2. Mimi Page - Mimi Page - My Vanilla Sky (2:44)
-3. Lemongrass - Riddle (Feat. Jane Maximova) (4:27)
-4. Bloomfield - Rendez-Vous A Paris (6:11)
-5. Afterlife - Black Iris (4:44)
-6. Massive Gold - Lady Love - Radio Gaga Lounge Mix (5:50)
-7. Soulounge - Love's In Need Of Love Today (Feat. Roger Cicero & Nathalie Dorra) (3:59)
-8. Abe Duque - Following My Heart (Feat. Virginia) (6:13)
-9. Mimi Page - Mimi Page - Black Valentine (3:10)
-10. Idenline - At Sunset (3:43)Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A087943FC6526F4D3BCCEB163ED4778998D23E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

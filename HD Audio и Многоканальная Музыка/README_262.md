@@ -1,3 +1,148 @@
+###  Публикация: 1818393   (2460) от 16.09.2025
+
+Лабов'sky Jam - Увидел солнце (Часть 1). Трибьют ГрОб (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кого-то ещё [00:02:00]
+02. И снова темно [00:02:00]
+03. Он увидел солнце [00:02:41]
+04. Вселенская большая любовь [00:04:04](   Читать дальше...   )Жанр: Punk, RockПродолжительность: 00:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D56227A46DE4800BBD93C0882596E110076A2EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818427   (2455) от 16.09.2025
+
+Joe Bonamassa - B.B.King's Blues Summit 100, Vol. I (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Why I Sing The Blues (6:44)
+02.  To Know You Is To Love You (5:31)
+03.  There Must Be A Better World Somewhere (5:44)
+04.  Let The Good Times Roll (4:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E98CB5C86A5208EC625A5F1F5D090ADE924D23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818348   (2451) от 16.09.2025
+
+Dagoba - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dagoba — французская метал-группа, основанная в 1997 году в Марселе.2001 - Release the Fury (EP)
+2003 - Dagoba
+2006 - What Hell Is About
+2008 - Face the Colossus(   Читать дальше...   )Жанр: Groove/Industrial MetalПродолжительность: 07:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23FB35512F71E2FAE57E257994D48E9B14E21C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818611   (2322) от 17.09.2025
+
+Igorrr - Amen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Avantgarde Metal, Breakcore, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daemoni (4:09)
+02. Headbutt (3:44)
+03. Limbo (4:41)
+04. Blastbeat Falafel (3:15)(   Читать дальше...   )Жанр: Avantgarde Metal, Breakcore, Electronic, Experimental, IDMПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01144DC2CD0445F9FF9D64285486C3DDDF060BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818602   (2303) от 17.09.2025
+
+Year Of The Goat - Trivia Goddess (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard-Rock, Psychedelic-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power of Eve [00:06:48]
+02. Trivia Goddess [00:04:28]
+03. Kiss of a Serpent [00:05:39]
+04. Mét Agwe [00:08:00](   Читать дальше...   )Жанр: Hard-Rock, Psychedelic-RockПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE94C3CBE0B0368283F24E8F908FC83EDC42E752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818570   (2296) от 17.09.2025
 
 Modeselektor - DJ-Kicks: Modeselektor (2025) 2CD [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Techno, Glitch, IDM, Grime, Hip-Hop>
@@ -597,151 +742,6 @@ Sarah McLachlan - Better Broken (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCAA56F592870F31C95CB3732E7F024CA82DBC16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819149   (1790) от 20.09.2025
-
-Neverlove - Kings Of Strip Club (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KINGS OF STRIP CLUB [00:04:07]
-02. Сама так хотела [00:02:45]
-03. S1000RR [00:02:50]
-04. Не такая [00:02:55](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74041FEAC7352AED641DCCAF46480B02BEE46845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819036   (1782) от 20.09.2025
-
-I Prevail - Violent Nature (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Synthetic Soul (4:30)
-02. - NWO (2:41)
-03. - Pray (3:12)
-04. - Annihilate Me (3:22)(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733205A48AEFD9854A6299948C3721F9C7016A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819103   (1781) от 20.09.2025
-
-Novembers Doom - Major Arcana (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.June(1:58)
-02.Major Arcana(6:38)
-03.Ravenous(6:28)
-04.Mercy(5:56)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBBE2F0B92D4EA68E24E4891DE0D738F990E631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819047   (1780) от 20.09.2025
-
-Catsclaw - Perfect Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Death [00:03:26]
-02. Become The Blade [00:03:13]
-03. The Shield [00:03:08]
-04. Remember The Days [00:04:32](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350A33ECD67171F79F52D490F39569908B5116D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819034   (1778) от 20.09.2025
-
-King Princess - Girl Violence (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Girl Violence (2:16)
-02. - Jaime (2:23)
-03. - Origin (2:14)
-04. - I Feel Pretty (3:02)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578C538C0649B80FE26EC3D4D4C99C9248F8CC56
 ```
 
 https://mybot314.ru/tekegram_catalog/

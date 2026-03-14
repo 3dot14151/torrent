@@ -1,3 +1,148 @@
+###  Публикация: 1751048   (104079) от 23.09.2024
+
+Dred Scott Trio - Cali Mambo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moses Patrou - Cali Mambo (4:38)
+02. Tom Beckham - Star Eyes (6:33)
+03. Tom Beckham - Poinciana (5:46)
+04. Tom Beckham - La Enganadora (3:59)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A775B916486B4B5DBBCA0DA07237E918CDF070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751054   (104078) от 23.09.2024
+
+Frankywright - Echoes of Sorrow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Did You Go (5:30)
+02. Goodbye, My Love (3:21)
+03. Midnight Tears (5:51)
+04. Echoes of Sorrow (5:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DCC94CBC52640BBA9A735F701D980AD3ADAC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751445   (104073) от 25.09.2024
+
+Max Diller & Blossom - Solastalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After the Rain (4:27)
+02. Broken Flower (7:21)
+03. Sun Dance (5:00)
+04. Still Blooming (3:59)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93397C0FC7F17F5C6BA942C01D63968D4E32D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751434   (104072) от 25.09.2024
+
+Eric Escanes - Near and Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skipping Stone (3:43)
+02. PAX (4:43)
+03. Baba (2:08)
+04. Tokyo Moon (3:27)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A53B4456E145EC5C876586B2EF31CAF9F6B591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751443   (104071) от 25.09.2024
+
+Magnus Dauner - Portrait In Rhythm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Ersten Sonnenstrahlen Nach Dem Sturm (4:01)
+02. Not My Mountain (4:23)
+03. Tanz Auf Der Falltüre (6:17)
+04. Beautiful Melodie (3:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B633E840519AFCB2000F22C2B0DBEC3022050238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751436   (104070) от 25.09.2024
 
 Forq - Big Party (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -600,151 +745,6 @@ Antigua Jazz Band - Swing City Sessions #10 (2024) [FLAC 24/48|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2BFFAD1E331839527EB614388CE820E8C952B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751995   (103978) от 28.09.2024
-
-Alex Kautz - Where We Begin (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chorinho (4:40)
-02. Bebe (6:15)
-03. Mira Eso (6:18)
-04. Within (6:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BB830422E05A31750BAD841892AC562B79E3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751998   (103977) от 28.09.2024
-
-Amos Hoffman - Minor Operation (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aunt Sharon (6:02)
-02. Minor Operation (7:02)
-03. Hidden Garden (4:30)
-04. All Alone (3:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42ED2F0CFFEE11C49ECF0D52D8F1607E9842E01E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752009   (103976) от 28.09.2024
-
-Diz and the Doormen - Diz-Connected (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Same Old Blues (2:57)
-02. I'd Do It All Again (2:59)
-03. Diz-Connected (3:20)
-04. Mess Around (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195301866E2DEEC882F4129AD13F373C04C155E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752011   (103975) от 28.09.2024
-
-El Poder de la Infancia - El Poder de la Infancia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclesiástica (0:54)
-02. Lluvia en Atacama (7:37)
-03. Buscaminas (3:51)
-04. Agente Libre (3:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA3B9E6DCFB5182ACBF535EE1D10E871DA2DA88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751994   (103970) от 28.09.2024
-
-Albert Bover - A Parisian Affair (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Douce amertume (5:10)
-02. Sol en Vigo (4:18)
-03. O Castro (5:38)
-04. Cyclic Episode (4:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE38E8E9078EF84D858D91070CB5F867382100D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

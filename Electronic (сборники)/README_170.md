@@ -1,3 +1,32 @@
+###  Публикация: 959359   (317196) от 24.11.2015
+
+VA - Charming Bourgeois Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Walden - Mirando El Mar - Original Mix
+02. Jazzoman - Gente - Original Mix
+03. Keerg - Lonely Hughes - Original Mix
+04. Fith Groove - Calibrato - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F7DC8F0873C18925893B04E3D468D404CF0B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959353   (317194) от 24.11.2015
 
 VA - Charming Bourgeois Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -751,35 +780,6 @@ PRODUCTION DEEJAYS - WORKIN BOOTLEGS VOL 1 (2012) [MP3|320 кб/с]<house / club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D15FF4DF3342F60C27F556EEB0DEA3555D556DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076323   (314042) от 25.11.2016
-
-VA - Радио Рекорд - Record Club за 23.11.2016 [MP3|320 Kbps] <Electronic, House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Angello, Still Young - Follow Me
-02. Abel Ramos, Albert Neve - Party
-03. Amersy - Rise
-04. Merk & Kremont - CIAO(   Читать дальше...   )Жанр: Electronic, House, TechnoПродолжительность: 05:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D98247780CD6FC2226CE718020C11696101862
 ```
 
 https://mybot314.ru/tekegram_catalog/

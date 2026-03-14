@@ -1,3 +1,148 @@
+###  Публикация: 956721   (328966) от 15.11.2015
+
+Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edition [MP3|320 кб/с]<World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Lullaby (Live)
+02. Bohemian Ballet (5:17)
+03. Twosome (Marta & Katalin Version) (4:08)
+04. Deep Forest - Forest Power (3:50)(   Читать дальше...   )Жанр: World, New Age |Продолжительность: 02:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B037121BD853277927EDC6B5864D0DF5B5120D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957018   (328444) от 16.11.2015
+
+Eric Tingstad - Mississippi (2015) [OGG|442-502 кб/с]<New Age, Contemporary Guitar Instrumental, Ambient Americana>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Boats
+02. Shakin' in the Cradle
+03. Mississippi
+04. Trail of Tears(   Читать дальше...   )Жанр: New Age, Contemporary Guitar Instrumental, Ambient AmericanaПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED97761447BBB2D0477021226D2BD0AE0B8857B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956707   (328419) от 16.11.2015
+
+Larry Cann - Rodeo Road (2015) [MP3|320 кб/с]<Country, Country Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bred To Buck (feat. Lee Kernaghan)
+02. Horsepower (feat. Adam Brand)
+03. The Thrill Of It All
+04. Rodeo Moon(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB55BC33EDFB0D2227E2495F5830AEF9AC03ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956467   (328414) от 16.11.2015
+
+Soulwire (Ken Hill) - три альбома (2006-2011) дискография [FLAC|Lossless]<New Age, Chillout, Piano, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temple of Illumination (07:21)
+02. When Time Sleeps (01:41)
+03. X (05:07)
+04. Ellipsina (04:07)(   Читать дальше...   )Жанр: New Age, Chillout, Piano, DowntempoПродолжительность: 02:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3A750FE248D327A44913AF2527A4DE0517A4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957196   (327551) от 17.11.2015
+
+Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes Ya No So (1999)/Telarc, [FLAC|image+cue]<tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Tanguedia		03:38
+02.	Four for tango		06:29
+03.	Lo que vendra		04:34
+04.	No 1 - Street tango		04:42(   Читать дальше...   )Жанр: tangoПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE8BBDB20325FB468539F0D16B90D88AFF1CD20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957318   (327544) от 17.11.2015
 
 VA - Fast and Furious 7 (original motion picture soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
@@ -605,149 +750,6 @@ Olga Stankevich (Ольга Станкевич) - Дискография (2010-2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E3496A52A2067D956E2CB0F691CC45392B27885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181326   (323361) от 07.11.2017
-
-VA - Stranger Things / Очень странные дела (Music from the Netflix Original Series) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Byers - INTRO - Will Singing the Clash (00:27)
-02. The Police - Every Breath You Take (04:12)
-03. The Clash - Should I Stay or Should I Go (Remastered) (03:06)
-04. Jim Hopper - 'Coffee and contemplation' (00:09)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC499BD6971BBF7BD67585A7E13C4FA9CB8671E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075151   (323152) от 21.11.2016
-
-The Man from RavCon - Strange Universe (2016) [FLAC|Lossless|image + .cue] <Instrumental, Progressive-Rock, Ambient, Psychedelic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude / Jupiter [5:38]
-02. Quasar [4:21]
-03. Strange Universe [6:11]
-04. Friday's Fugue [2:59](   Читать дальше...   )Жанр: Instrumental, Progressive-Rock, Ambient, PsychedelicПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10246C104BD129B20E2B06F7217C184AB2E655B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259200   (323050) от 02.11.2018
-
-Отава Ё - Любишь ли ты (2018) [MP3|320 Kbps] <Neo-Folk, Post-Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323050.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Как на горке, на горе
-2. Ой, Дуся, ой, Маруся
-3. Метёлки
-4. Посеяли девки лён(   Читать дальше...   )Жанр: Neo-Folk, Post-FolkПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D428DBF8A7834DA64DF0BBD139AD97FCA7AA9C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580732   (322992) от 09.10.2022
-
-VA - RELAX - Морской бриз - Звуки живой природы в сопровождении известных романтических мелодий (1999) [FLAC|Lossless|tracks] <Instrumental, Nature, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RELAX - Морской бриз - Трек 1 (30:00)
-02. RELAX - Морской бриз - Трек 2 (30:00)Жанр: Instrumental, Nature, RelaxПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0177546FD10FC943FB9B672973E786500870C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331692   (322782) от 16.10.2019
-
-VA - Игла. Remix (2010) [FLAC|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кино и Игорь Вдовин - Звезда по имени Солнце
-02. Кино и Игорь Вдовин - Дальше действовать будем мы
-03. Messer Chups - Шапито буги
-04. Игорь Вдовин и Юрий Каспарян - Дорога(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE136B9BF4EEA3E75637AA21BB08CBC855D617EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

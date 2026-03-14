@@ -1,3 +1,93 @@
+###  Публикация: 605422   (995438) от 20.01.2013
+
+Patti Smith - 14 альбомов (1975-2012) Дискография [WAVPack/FLAC|Lossless]<Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gloria 5:52
+02. Free Money 3:50
+03. Ain't It Strange 6:35
+04. Pissing In A River 4:50
+05. Because The Night 3:22
+06. Rock N Roll Nigger 4:52
+07. Dancing Barefoot 4:16
+08. Frederick 3:02
+09. So You Want To Be A Rock N Roll Star 4:18
+10. People Have The Power 5:06(   Читать дальше...   )Жанр: Post-PunkПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352913   (993317) от 16.01.2020
+
+Nada Surf - Never Not Together (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Much Love (04:02)
+02. Come Get Me (04:52)
+03. Live Learn and Forget (04:21)
+04. Just Wait (03:57)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF4682CB5E4D39BB6C4775B8A7B09DD8C5ADA05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608812   (992720) от 26.01.2013
+
+Nirvana - With The Lights Out (3 × CD, Compilation) (2004) [FLAC|Lossless]<Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: GrungeПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0897975EEBBDA2B7E3805921ECA219447B8C545B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353459   (991968) от 18.01.2020
 
 ...And You Will Know Us by the Trail of Dead - X The Godless Void and Other Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -674,93 +764,6 @@ Madness - Divine Madness (1992) [FLAC|Lossless|image + .cue] <Rock, Ska Revival,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1716E2ED12FE413CBF3655F02F5CE70528D9AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357747   (970741) от 06.02.2020
-
-Bombay Bicycle Club - Everything Else Has Gone Wrong (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up (02:33)
-02. Is It Real (03:05)
-03. Everything Else Has Gone Wrong (04:09)
-04. I Can Hardly Speak (03:59)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E4A66DD764AF3059FF07DC7C71F30DF4C869AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 428789   (968435) от 08.02.2020
-
-Mando Diao - 11 альбомов (2002 - 2019) [FLAC|Lossless|tracks + .cue]<Indie Rock, Garage>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mando Diao - шведская рок-группа, история котрой начинается в 1999 году в Бурленге. Название группы, по словам самих музыкантов, не имеет определённого смысла, однажды лидеру банды Бьорну Диксгорду приснился странный человек, который бежал ему навстречу и кричал "Мандо Диао". Дебютный альбом Bring 'Em In, вышедший в сентябре 2002 года получил хорошую критику, (   Читать дальше...   )Список альбомов:
-2002 - Bring 'Em In
-2004 - Hurricane Bar
-2006 - Ode To OchrasyЖанр: Indie Rock, GarageПродолжительность: Кодек: FLAC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F31EB36219E440B478BA1EFAD7FE555CC4F0F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358581   (967498) от 09.02.2020
-
-Asgeir (Ásgeir) - Afterglow (2017) 2CD [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterglow (Alternative Version) (Bonus Track) (04:49)
-02. Unbound (Alternative Version) (Bonus Track) (03:52)
-03. Where Is My Mind? (Bonus Track) (04:06)
-04. Trust (Bonus Track) (03:11)Жанр: Indie PopПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CF2F275B1E8C7478954F0617DAE5C3E138F920
 ```
 
 https://mybot314.ru/tekegram_catalog/

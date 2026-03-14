@@ -1,3 +1,148 @@
+###  Публикация: 1729882   (107993) от 13.06.2024
+
+Velvet Meadow - Velvet Meadow (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedeleic, indie rock, Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cant Be Late (00:05:18)
+02 - Spring Song (00:04:55)
+03 - I Dont Like Money Anyways (00:03:48)
+04 - Colours (00:03:36)(   Читать дальше...   )Жанр: psychedeleic pop, indie rock, fadeaway, Space RockПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8A8F8CCE1D2628FF4F26370686CB51B70E23BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729920   (107992) от 13.06.2024
+
+Nestor (Néstor) - Teenage Rebel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Law Of Jante (feat. Freya Miller) (1:27)
+02. We Come Alive (3:29)
+03. Teenage Rebel (4:32)
+04. Last To Know (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241DABD4B532719039C99F6B964B114BB527C1A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729887   (107991) от 13.06.2024
+
+Velvet Meadow - Never Want To Leave My Head (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedeleic pop, indie rock, fadeaway, Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - If She Really Loved Me (00:04:40)
+02 - Slow Down (00:03:39)
+03 - My Reasons Why (00:05:03)
+04 - IVe Come To Realize (00:05:12)(   Читать дальше...   )Жанр: psychedeleic pop, indie rock, fadeaway, Space RockПродолжительность: 01:15:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2DC8C0247DB941D89C810DEB0CE838D4A9C036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729972   (107989) от 13.06.2024
+
+Ron Jameson Project - CrossRoad Blues: Rock'n'Roll for the King of Kings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got to Get in Touch (2:41)
+02. Prodigal Son (4:50)
+03. Don't Be Dismayed (MD) (5:37)
+04. Walkin' Shoes (2:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C8C24A65B34F1ED9A153905EE8F0BBC5A3EAA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729925   (107988) от 13.06.2024
+
+The Dead Daisies - Resurrected, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mine All Mine (3:33)
+02. How Does It Feel (3:09)
+03. Last Time I Saw The Sun (4:13)
+04. Mainline (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE1F0D13B221DE459919371132A539FFEA78ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729737   (107986) от 13.06.2024
 
 Blitz - Kicking Up A Storm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -596,151 +741,6 @@ Ensiferum - Victory Songs (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64D6FDCD32DC8E10EB165B687A40B67F0CE0FFB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730093   (107934) от 14.06.2024
-
-Ensiferum - Unsung Heroes (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symbols
-02. In My Sword I Trust
-03. Unsung Heroes
-04. Burning Leaves(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991272E0858EF8EFAC4C69FD8205EC17D1F90C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730137   (107933) от 14.06.2024
-
-Walt Disco - The Warping (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Seed (00:00:57)
-02 - Gnomes (00:03:34)
-03 - Come Undone (00:03:39)
-04 - The Warping (00:03:55)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAC5556A9A264B9423BAA8C1CF271E05DD33361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730108   (107932) от 14.06.2024
-
-Ensiferum - Two Paths (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107932.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ajattomasta Unesta
-A2 For Those About To Fight For Metal
-A3 Way of the Warrior
-A4 Two Paths(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C21E15A7E0AA1E82F13AE0520D1622A5C0A9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730130   (107931) от 14.06.2024
-
-Ebba Bergkvist & The Flat Tire Band - Four Wings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Wings (5:03)
-02. The Pack (3:32)
-03. Northeast Passage (4:07)
-04. Vice Versa (3:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B3E35CC9A8A69CE9AD85DD09C9FD1A6EA37966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730138   (107930) от 14.06.2024
-
-T-Dow - Vol. 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Stay (2:32)
-02. Until The Sun Goes Down (3:18)
-03. Trouble In My Way (3:42)
-04. Running Man (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1326141E0F4E9E91321BB873E09697E24AE06A
 ```
 
 https://mybot314.ru/tekegram_catalog/

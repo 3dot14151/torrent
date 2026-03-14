@@ -1,3 +1,177 @@
+###  Публикация: 1577497   (354817) от 19.09.2022
+
+Too Slim And The Taildraggers - Brace Yourself (2022) Live [FLAC|Lossless|image + .cue] <Blues-Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mississippi Moon (5:32)
+02. Fortune Teller (4:32)
+03. Cowboy Boot (7:37)
+04. Devil In A Doublewide (4:23)(   Читать дальше...   )Жанр: Blues-Rock, BluesПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D18DB01D20CB239CD797BF7F4E02D485A8F762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577736   (354649) от 19.09.2022
+
+V.A. - Smooth Jazz n Chill Vol. 7 (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholas Cole - Feelings
+02. Michael Broening - Summer In Blue
+03. Cindy Bradley - Love Yourself
+04. Mark Jaimes - Evenin'(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A457A05FBD3CBB09ACCD99066443F32210282FB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329281   (354599) от 04.10.2019
+
+Bud Shank & Bob Cooper - European Tour '57 (2006) Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vielaf [5:26]
+02. For Bud [4:25]
+03. Mademoiselle Butterfly [6:33]
+04. A Night in Tunisia [7:30](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E54782B591DFE8C0873803BEF82137CBF7647B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256571   (354413) от 22.10.2018
+
+Tiny Grimes - Five Classic Albums (1958, 1959) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354413.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Marchin' Along [17:40]
+02. A Smooth One [5:58]
+03. Blues Wail [6:47](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Guitar JazzПродолжительность: 04:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8147F987DD769183A918A5C8E6FC3633C4F090B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178766   (354095) от 29.10.2017
+
+Les & Larry Elgart - Best Of Big Bands (1940-e) 1990, CBS [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyliner [02:15]
+02. Mood Indigo [02:43]
+03. Song Of India [02:38]
+04. So Rare [02:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E676D22875FCF7DECA4EDED36414157A120343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178768   (354093) от 29.10.2017
+
+Art Tatum - Trio Days (1944) 1999, Ars Nova [FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got Rhythm [02:20]
+02. Cocktails For Two [02:45]
+03. I Ain't Got Nobody [02:35]
+04. After You've Gone [02:31](   Читать дальше...   )Жанр: Stride, Piano JazzПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A29D667A6D7F5AF967557CFDFF592B54F9A03D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178883   (354082) от 29.10.2017
 
 Nelson Riddle & His Orchestra - The Silver Collection (1972) 1989, MPS [FLAC|Lossless|tracks + .cue] <Easy Listening, Big Band>
@@ -577,180 +751,6 @@ Rob "Wild Boar" Moore - Used to Be Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A50A16DDBC55876A76B427E70875B2A069DFD98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577793   (352460) от 20.09.2022
-
-Jack McDuff - Legends Of Acid Jazz (1964) 1997, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scufflin' [4:53]
-02. Au Privave [3:19]
-03. Hallelujah Time [3:49]
-04. Misconstrued [6:59](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220AA87E7E5352CFE17D8DDBA402158C2225A130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577621   (352458) от 20.09.2022
-
-Antonio Vergara - Once In A Lifetime (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The City Of The Big Lights (3:58)
-02. Our Yell (3:42)
-03. Trying To Heal Your Soul (with Ciro Fogliatta) (7:14)
-04. Asphalt Jungle (5:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35F59B6A3642B8B2D94341247D2D7C45FA6E180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577798   (352447) от 20.09.2022
-
-Alexander Hawkins Mirror Canon - Break a Vase (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый секстет британского пианиста Александра Хокинса не совсем новый: почти все участники ранее играли у него же в Alexander Hawkins Ensemble и других составах. Кроме самого Алекса за роялем и сэмплером, в группу вошли ударник Стивен Дэвис, контрабасист Ник Чарльз, гитарист Отто Фишер, звездный саксофонист Шабака Хатчингс и перкуссионист Ричард Олатунде Бейкер. (   Читать дальше...   )01. The Perfect Sound Would Like to Be Unique (Hawkins) - 1:37
-02. Stamped Down, or Shovelled (Hawkins) - 6:45
-03. Sun Rugged Billions (Hawkins) - 4:30
-04. Generous Souls (Hawkins) - 5:59(   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDFD09AE5D477DE72CAA0BBA2C91C41984ECB33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577695   (352433) от 20.09.2022
-
-Trotsky Experience Band - Nine (9) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Skies
-02. Well Alright
-03. Big Boy Now
-04. Sonny Boy Blow(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA90692CB4492B40F34FF41B4D514FD8FE88C3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072652   (352383) от 13.11.2016
-
-The Blues Vision - School Blues 195 BPM (2010) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Blues Around My Bed  (04:12) 
-  02|  Feel Like Going Back  (02:46) 
-  03|  Don't You See  (04:07) 
-  04|  Do You Understand?  (07:14) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1DCFB3D06722F811EED1BE224DB77FC3C450116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329455   (352380) от 05.10.2019
-
-Jerry Bergonzi - Intersecting Lines (2014) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intersecting Lines [6:48]
-02. Dream Step [6:34]
-03. Creature Feature [6:07]
-04. Tanzania [5:13](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0611EC306855F40503718BD43A09E5BDE5D11633
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,146 @@
+###  Публикация: 1764676   (33974) от 16.12.2024
+
+Kai Strauss - Wailin' In Vienna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kai Strauss - OLD FASHIONED DADDY (3:12)
+02. Kai Strauss - 5$ SHAKE (3:20)
+03. Kai Strauss - TRAVELIN' MAN (4:07)
+04. Kai Strauss - STRANDED (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4379C10B14255A3D79F533AF32A5A5E2E1085D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765739   (33973) от 16.12.2024
+
+Dark Lightning - Studio Albums (2 releases) (2023-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Lightning - симфоник-метал группа из Германии с жёсткими риффами, мощным вокалом и эпичными мелодиями, образовавшаяся в 2018 году.2023 - Dark Lightning (EP)
+2024 - The Demons We CreateЖанр: Symphonic MetalПродолжительность: 01:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E513BB817D2B95CF188871173FEB94C778BDE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766069   (33972) от 16.12.2024
+
+VA - Alfredo Golino & Collettivo 112 (Classe Pop Rock) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alessandro Cuccato - The Ring (3:50)
+02. Claudio Pandolfi - Driving my car (4:34)
+03. Enzo Boscarino - Bump 'n' Jump (4:34)
+04. Leo Ingegno - Breaking news (4:49)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C21257560CD3F569CD992FFDF71D66F78D8780E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766068   (33969) от 16.12.2024
+
+The Smoothies - Let's Make Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby's Gone (3:14)
+02. Melancholic Thoughts (3:02)
+03. Montréal Memories (3:15)
+04. Concrete Pride (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43066ED62A76950E2AB2A6DEEBD614F6A5856F22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766461   (33758) от 18.12.2024
+
+Canblaster - Liberosis (Director'S Cut) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full Focus [00:04:17]
+02. Orbital Frame [00:04:36]
+03. Sequence Break [00:04:41]
+04. Jouska [00:05:52](   Читать дальше...   )Жанр: ElectronicПродолжительность: 2CD, 01:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9FECF85A5428DB65AE90B2AC46BC13D73297A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596539   (33693) от 19.12.2024
 
 Therion - Studio Albums (21 releases) (1991-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal, Symphonic/Operatic Metal>
@@ -597,151 +740,6 @@ Patriarkh (ex- Batushka) - Prophet Ilja (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:134776AD9072BDB422D0ADC1F057C2A212EC878D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770889   (32095) от 03.01.2025
-
-The Smoothies - January Cozy Nights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Empty House (3:21)
-02.  You're my Diamond (3:35)
-03.  Send Me Your Love (2:54)
-04.  We Were Young and Free (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF41C209702CEB3D7CC641171BAA7A1B7BDC0CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586614   (32066) от 04.01.2025
-
-Accept - Studio Albums (23 releases) (1979-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Accept — немецкая рок-группа, играющая в стиле хэви-метал. Отличительными особенностями музыки группы являются оригинальный вокал, плотность и насыщенность звука, мелодичность и виртуозность гитарных соло. Подчёркнуто брутальная, агрессивная ритмическая основа, в сочетании с хард-роковой, зачастую пронизанной классическими ходами, мелодикой гитарной партии и уникальным (   Читать дальше...   )1993 - Objection Overruled
-1994 - Death Row
-1996 - Predator
-2010 - Blood of the Nations(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 23:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A78E145EA4DE94AFA9F99235D87EEB381B90619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770864   (31990) от 04.01.2025
-
-S.U.P. - Anomaly (1995) Limited Edition, Reissue, 2016, Overpowered Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Goth Rock, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anomaly (Live) [00:00:44]
-02. Pain Injection (Live) [00:04:39]
-03. In Those Times (Live) [00:03:52]
-04. The Work (Live) [00:05:39](   Читать дальше...   )Жанр: Alternative Rock, Goth Rock, Doom MetalПродолжительность: 2 CD, 01:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADA4F3F98B29E32E4E5B83085BB58F2122B4A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770857   (31988) от 04.01.2025
-
-Mutagenic Host - The Diseased Machine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neurological Necrosis [00:04:39]
-02. Genestealer [00:03:30]
-03. The Twisted Helix [00:04:42]
-04. Artificial Harvest of the Obscene [00:05:14](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04CE7E1B067E8504E6376E0CF474530BE9E01C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771043   (31915) от 05.01.2025
-
-Pink Floyd - Live At Usher Hall (Edinburgh, UK, 5 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shine On You Crazy Diamond (Live At Usher Hall, Edinburgh, UK, 5 November 1974) [21:12]
-02 - Raving And Drooling (Live At Usher Hall, Edinburgh, UK, 5 November 1974) [13:08]
-03 - Speak to Me (Live At Usher Hall, Edinburgh, UK, 5 November 1974) [2:25]
-04 - Breathe (In the Air) (Live At Usher Hall, Edinburgh, UK, 5 November 1974) [2:56](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D909266FAA1F6E7744BC6B5EAC9E0AEDA628AA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1201328   (792656) от 24.01.2018
+
+VA - Deep House Collection Vol.154 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Monkeyzz feat. Louise Mambell - Ghost (Original Mix) 3:50
+02. Abriviatura IV - Bringing Me Down (Original Mix) 5:17
+03. Adisyn - Digital Heart (Original Mix) 7:02
+04. Alan Junior - Train Of Love (Original Mix) 5:41(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27239ACB8CD0D63E544F577D992D4BF4C2EA266E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387004   (792581) от 31.05.2020
 
 VA - Record Super Chart 638 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Record Super Chart #521 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E310B63A9AF87AC84B52441E5ADE127D5A848C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202329   (790539) от 28.01.2018
-
-VA - Workout Mix vol.11 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Electro House, Bigroom House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Amfree, Trash Gordon - Shimmy Shake (Again) (Extended)
- 02-Raf Marchesini - Pull Over (Original Mix)
- 03-Mercer & Mystique - Here Comes That Sound (Original Mix)
- 04-Reel 2 real, Kolya Funk - Move it Song (DJ Che Mash Up)(   Читать дальше...   )Жанр: Club House, Electro House, Bigroom HouseПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989DB6E3A5655DA5559989BFD90B8F2946B21239
 ```
 
 https://mybot314.ru/tekegram_catalog/

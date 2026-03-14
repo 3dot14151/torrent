@@ -1,3 +1,61 @@
+###  Публикация: 909581   (628577) от 17.06.2015
+
+Kegan DeBoheme - Songs of Woe (2015) [MP3|320 кб/с]<Classic Rock 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Songs of woe (04:11)
+02. Gone Tomorrow (03:01)
+03. Flowers (for a brother) (02:42)
+04. Rose Painted Gold (02:44)(   Читать дальше...   )Жанр: Classic Rock 70'sПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792742B94E181D227AE1E5BC171955C78F2CF25D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909420   (628187) от 17.06.2015
+
+VA - Classic Rock Presents: The Sound of 2015 (2015) [MP3|320 кб/с]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628187.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blackberry Smoke - Let Me Help You (Find The Door) (3:05)
+2. Aaron Keylock - Medicine Man (2:38)
+3. Preachers Son - Jericho (4:10)
+4. Sons Of Bill - Road To Canaan (4:04)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0558C053DDB6E6F5310393F1E66B117C218C0590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229241   (628071) от 05.06.2018
 
 Polestar 1 - Flying Thru The Universe (1980) LP [MP3|320 Kbps] <Electronic, Progressive Rock, Space Rock>
@@ -690,64 +748,6 @@ VA - Rock Ballads - The Most Beautiful Classic Rock Songs (2004) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3C363365BDFA8CC6FE96A6B570EA3B44F26B9F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910828   (619838) от 21.06.2015
-
-God Is An Astronaut - Helios | Erebus (2015) [MP3|320 кб/с]<Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agneya
-02. Pig Powder
-03. Vetus Memoria
-04. Finem Solis(   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A7D0085C41068753EBADF81DB5AED51DED4159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036797   (619152) от 21.07.2016
-
-The Wackers - Hot Wacks (1972) Reissue, 2005, Collectors' Choice Music [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hardly Know Her Name
-02. We Can Be
-03. Oh My Love
-04. Wait And See(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F26576003246FA903B5547A82CFA424037A6CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

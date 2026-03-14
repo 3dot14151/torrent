@@ -1,3 +1,90 @@
+###  Публикация: 1042264   (579682) от 12.08.2016
+
+(Николай Громин) Nikolaj Gromin & Jesper Lundgaard Duo - Blues For Thad (1991) [WavPack|Lossless|image + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579682.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Solar (6:28)
+2. Karen (4:19)
+3. My Romance (6:14)
+4. Blues For Thad (7:36)(   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD21664DB034446C5F58A6EE51C8F0AB152B8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042247   (579676) от 12.08.2016
+
+Jeff Berlin - Crossroads (1998) [WavPack|Lossless|image + .cue] <Jazz-rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossroads (5:44)
+02. Bach (4:45)
+03. Joe Frazier (Part II) (6:11)
+04. Motherlode (5:31)(   Читать дальше...   )Жанр: Jazz-rock, FusionПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE3E80275FFEEAEFFAAF18C31AAF782780A0CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042258   (579674) от 12.08.2016
+
+Nicolai Gromin Trio (Николай Громин) - Blue In Green (1997) [WavPack|Lossless|image + .cue] <Mainstream Jazz, Guitar Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579674.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In A Sentimental Mood (10:53)
+2. Falling In Love With Love (7:49)
+3. Blue In Green (4:27)
+4. I Fear It Down (3:51)(   Читать дальше...   )Жанр: Mainstream Jazz, Guitar Jazz, Hard BopПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83739956E96B6599FB796686A9B6E57F9086CD2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042254   (579597) от 12.08.2016
 
 Players (Jeff Berlin, Steve Smith, Scott Henderson, T Lavitz) - Players (1987) [WavPack|Lossless|image + .cue] <Jazz Fusion>
@@ -675,93 +762,6 @@ Romane - Swing for ninine (2011) [FLAC|Lossless]<Swing, Guitar Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042645   (576736) от 14.08.2016
-
-Alexandre Tharaud - Le Boeuf sur le Toit: Swinging Paris (2012) Virgin Classics[FLAC|Lossless|image + .cue] <Ragtime, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chopinata [03:30]
- 02.The man I love [02:04]
- 03.Yes Sir, that's my baby [01:31]
- 04.Do it again [01:37](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEFEC344BD7FD187FF59ADA3285B258A025DA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042457   (576730) от 14.08.2016
-
-Franco Cerri - Passavo Di Qui (2012) [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Italiano (2:18)
-02. Que Reste-T-Il De Nous Amours (3:46)
-03. That's My Desire (2:54)
-04. Mose's Ballad (2:45)(   Читать дальше...   )Жанр: BopПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06609E852F84642B7620E502F72A41DDEB504AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042489   (576727) от 14.08.2016
-
-Ronnie Cuber - Passion Fruit (1986) King Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Passion Fruit [07:05]
- 02.You Promised To Be True [05:27]
- 03.What It Is [07:10]
- 04.Love Notes [07:21](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14847F7FA5C07FEC6B923D98E838B43E914FADF
 ```
 
 https://mybot314.ru/tekegram_catalog/

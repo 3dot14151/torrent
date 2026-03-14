@@ -1,3 +1,32 @@
+###  Публикация: 1436848   (1042761) от 02.01.2021
+
+VA - Ремиксы 2К21 (2021) [MP3|320 Kbps] <Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artem Smile & Emmanuil - Я ворвусь на танцпол (Yuza Radio Remix) (2:44)
+02. Idris Leos - В последний раз (Dj Amor Radio Mix) (3:23)
+03. Kan - Хулиган (Yuza Radio Remix) (3:29)
+04. Денис Клявер - Тебя удача найдет (Vostokov Remix) (2:50)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 06:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618C6B4ED5950BE33305EFF93F9D6BB44B12DA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436985   (1042559) от 03.01.2021
 
 VA - Best New Hype Drum & Bass (2020) [MP3|320 Kbps] <D&B>
@@ -716,35 +745,6 @@ VA - Vocal Chillout: Move With The Beat Vol.02 (2021) [MP3|320 Kbps] <Vocal Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B666DF3F4B865AA597736B3CD182A00F7B23F988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440914   (1038061) от 20.01.2021
-
-VA - Beatport Tech House: Electro Sound Pack #177-1 (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Композиции музыкальной этой подборки определенно должны попасть в топ лучших альбомов года каждого меломана. Ведь уже упоминание известного медиа лейбла в его названии говорит само за себя, обещая нам музыку полного драйва и адреналина.001. Acid Joy - Goes On
-002. Ultra Pop - Dance To The Beat
-003. Dillon Tap - Womp
-004. Deebesh - Of A Sudden(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 09:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D86187F86C058DBE733CBA30C884C9B46C9EF8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

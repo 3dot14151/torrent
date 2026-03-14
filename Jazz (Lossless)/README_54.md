@@ -1,3 +1,32 @@
+###  Публикация: 1499673   (846322) от 03.10.2021
+
+Marcos Valle & Victor Biglione - Live In Montreal (2007) [FLAC|Lossless|tracks + .cue] <MPB>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azimuth 3:20
+02. Preciso Aprender A Ser Só 4:11
+03. Samba De Verão 4:02
+04. Terra De Ninguém 3:11(   Читать дальше...   )Жанр: MPBПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5360177E0D5B550764FB1B5C0001A8B023612F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499758   (846320) от 03.10.2021
 
 Ella Fitzgerald - The Irving Berlin Songbook, Vols. 1-2 (1958) 2CD, 1986, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -715,35 +744,6 @@ Bobby Hutcherson - Cruisin' The 'Bird (1988) 1992, Landmark Records[FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC334EE2839921F679CF4F44DADBA4FB164D76A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003513   (843581) от 03.04.2016
-
-Joe Zawinul - Money In The Pocket (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Money In The Pocket [04:47]
- 02.If [03:48]
- 03.My One And Only Love [03:53]
- 04.Midnight Mood [06:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD305B94339720FBFE288C47A774B82D4F6A1A6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,150 @@
+###  Публикация: 884464   (807323) от 03.04.2015
+
+int.Records — Acid Travel (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807323.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:57] 01. hrym - アシッドトラベル
+[05:04] 02. hrym - ミスティックフライヤ
+[04:41] 03. hrym - 極彩色エイジャ
+[06:28] 04. hrym - Closed Book
+[02:49] 05. hrym - トリップイン(   Читать дальше...   )Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B3803698DBF10EDD01410FAEE1D249EC0C45E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884466   (807317) от 03.04.2015
+
+Independent Works — THE THING! (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807317.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:10] 01. 田中健一 - 死体旅行～T.S.P MIX!
+[05:56] 02. 田中健一 - 黒い秋
+[04:28] 03. 田中健一 - ENDLESS OPERA
+[08:23] 04. 田中健一 - ACID SUN
+[08:36] 05. 田中健一 - THE THINGТип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:00:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBB31E3149D6117AACD891430E3F701B5188D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010148   (803217) от 24.04.2016
+
+Babymetal - Metal Resistance (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, J-Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road of Resistance
+02. KARATE
+03. Awadama Fever
+04. YAVA!(   Читать дальше...   )Жанр: Heavy Metal, J-MetalПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F36DBD3FB8BBA2AA072E5444ED7330D2B5B9C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274002   (798690) от 04.01.2019
+
+Yuki Murata - Piano Fantasia (2018) Ricco Label [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. clammbon (1:54)
+ 02. forgotten carousel (2:48)
+ 03. dear my cat (3:44)
+ 04. utopia (3:14)(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96182E5F5B817CB0544059969F811E1FADD876D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508798   (796243) от 10.11.2021
+
+Galneryus - Union Gives Strength (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Howling Darkness 09:29
+02. Flames of Rage 09:00
+03. Hold On 06:19
+04. Bleeding Sanity 05:11(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 00:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C626240E346F4D7DCF144A0759907C7123A9EC6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274445   (793014) от 07.01.2019
 
 Lovebites - Clockwork Immortality (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
@@ -641,153 +788,6 @@ Yuki Murata - Films (2009) Ricco Label, RE. [FLAC|Lossless|tracks + .cue] <Moder
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98340C0925E1C68E2E1DCAC46A3FF8958A091436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019932   (747870) от 24.05.2016
-
-Yoshida Brothers - Yoshida Brothers (2003) [FLAC|Lossless|tracks + .cue] <Folk, Easy Listening>
-
->>East Asian Music
->>Asian Traditional, Ethnic (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tabidachi (Starting on a Journey)
-02. Hyakka Ryouran (Blooming)
-03. Madrugada
-04. Storm(   Читать дальше...   )Жанр: Folk, Easy ListeningПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B89F6ADA3FCB7A106A734053A2A1C1853AC900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021071   (741792) от 28.05.2016
-
-Kazumi Watanabe - Guitar is Beautiful KW45 (2016) [MP3|320 кб/с] <Jazz, Fusion, Acoustic, New Age, Guitar Virtuoso>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741792.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Curve of Life – Shinichi Ubukata, Kazumi Watanabe
- 2. Flamenco Blue – Kazumi Watanabe, Jin Oki
- 3. Tico Tico – Takuya Miura, Kazumi Watanabe
- 4. Jammi – Mei Inoue, Kazumi Watanabe(   Читать дальше...   )Жанр: Jazz, Fusion, Acoustic, New Age, Guitar VirtuosoПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E48AD4FF15787EE1DDC4257931293179E9D898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526721   (737790) от 26.01.2022
-
-Loudness - Sunburst~我武者羅 (2021) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная группа LOUDNESS выпустила впервые за свою долгую карьеру двойной альбом с новыми песнями под названием SUNBURST – MY WARRIOR aka SUNBURST～我武者羅.
-Этот альбом особенный для группы, так как посвящен их 40-летию.
-LOUDNESS имеет долгую и богатую историю, состоящую из множества различных составов. Участники группы были из других (   Читать дальше...   )CD - 1:
-01. Rising Sun
-02. OEOEO
-03. 大和魂(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D90DB46998407FBE081E81C3E2978E31344244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022429   (728347) от 02.06.2016
-
-Silent Elegy - Gone With The Wind (2016) [MP3|320 кб/с] <Gothic Metal, Symphonic Metal>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Baptism
-2. Reborn
-3. Valkyrie
-4. Indelible Memory(   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C078FCC445B7DF04B02E7E4694AC739A04D5B097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022719   (727115) от 03.06.2016
-
-Tadaaki Otaka - Takemitsu: How Slow the Wind (2001) [FLAC|Lossless|image + .cue] <Classical>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727115.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rain Coming, for chamber orchestra (08:25)
-2. Archipelago S., for 21 players (13:25)
-3. Fantasma/Cantos 2, for trombone & orchestra (16:05)
-4. Requiem, for string orchestra (08:17)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E5C9DA54A8A612C92FB87AF2EA51942B044920
 ```
 
 https://mybot314.ru/tekegram_catalog/

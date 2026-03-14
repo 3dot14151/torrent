@@ -1,3 +1,32 @@
+###  Публикация: 1784382   (25015) от 11.03.2025
+
+VA - Compilation Part 147 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muvi - Species
+02. Jumanov - Be Careful
+03. Davit Barqaia - Listen to Me
+04. Jambeats - Drift Away(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E14B7605F72850DD962E83830C5361608CC4B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785260   (24578) от 15.03.2025
 
 VA - Compilation Part 148 Electronic (2025) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - Compilation Part 159 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:956AD71F0BD9EEC1F4307E53F0186FCF3F1D2A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795489   (19230) от 05.05.2025
-
-VA - Musical kaleidoscope part 39 Assorted (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Enigma French 52
-02. Dj Aurm - Just Say Yes
-03. Dj Lava - And Life Isn't That Long
-04. Danekoo1 - Girls on the Beach(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8E94512C8965ED2922CDE4D2F9B021F07A5AAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

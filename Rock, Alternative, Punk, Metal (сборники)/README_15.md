@@ -1,3 +1,32 @@
+###  Публикация: 1211911   (776857) от 09.03.2018
+
+VA - Good Times Roll (2018) [MP3|320 Kbps] <Rock and Roll, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776857.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hornbuckle - Knife In Your Hand
+002. Fatboy - Down At The Room
+003. The Boo Devils - Tonight
+004. Gaspard Royant - 7' Club(   Читать дальше...   )Жанр: Rock and Roll, RockПродолжительность: 05:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6130F6DBD23BEBA053FBF1C0DB8D2CFECCAED0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211896   (776744) от 09.03.2018
 
 Uriah Heep - The Byron Era (2018) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock>
@@ -718,35 +747,6 @@ VA - Black Aphrodite (2018) [MP3|320 Kbps] <Heavy, Power, Death Metall>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D27D87A3A59BA9BDBDF2DCF0659C4AB59A6990E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126467   (765375) от 18.04.2017
-
-VA - I Love Music! - Gothic Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765375.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Batalion d'Amour - Bez Nas 5:56
-002. Bitterfeldt - Eines Tages 8:47
-003. Bitterfeldt - Nordlicht 9:35
-004. Bliss In The Abyss - The Book Of Silence 7:16(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Symphonic MetalПродолжительность: 08:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA455D1583DFC31737EB75AFA46392C33FF99116
 ```
 
 https://mybot314.ru/tekegram_catalog/

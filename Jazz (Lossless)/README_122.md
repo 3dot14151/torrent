@@ -1,3 +1,90 @@
+###  Публикация: 1032364   (646171) от 07.07.2016
+
+Darji & Hank Jones - Darji Meets Hank Jones (1982) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Darji's Groove [03:54]
+ 02.Sugmad's Lullaby [07:39]
+ 03.Soul Speaks [10:08]
+ 04.Happy Blue [04:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:372EBC68CD01F1770F539859BA5F9C43460F8AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032466   (646168) от 07.07.2016
+
+Kenny Dorham - Whistle Stop (1959, 1961) 2CD, 2012, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646168.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Whistle Stop:
+01.Philly Twist [05:40]
+02.Buffalo [07:40]
+03.Sunset [06:20](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C8632A0FB2970EA2F69F6BB1DC36D1939F3A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032477   (646061) от 07.07.2016
+
+Pamela Williams - Eight Days of Ecstasy (1988) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scarlet (5:49)
+02. Still in Love (4:34)
+03. Love in the Afternoon (4:27)
+04. I've Got Love on My Mind (3:32)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7ECDB92DC5554B2AE088637E40DB1C8A23FCDA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906353   (645803) от 08.06.2015
 
 Randy Brecker - Nostalgic Journey: Tykocin Jazz Suite (2009) [FLAC|Lossless]<Jazz, Post-Bop>
@@ -682,93 +769,6 @@ Marcus Miller - Renaissance (2012) Victor Entertainment [FLAC|Lossless]<Jazz, Ja
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033087   (642175) от 09.07.2016
-
-Steve Smith - Viewpoint (2015) [FLAC|Lossless|WEB-DL|tracks] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bemsha Swing [07:26]
-02. Time Check [05:29]
-03. The Brush Off [07:11]
-04. Willowcrest [04:57](   Читать дальше...   )Жанр: FusionПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F03F077D7E68DAAB9C7196528F7B32089422B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033077   (642173) от 09.07.2016
-
-Michele Hendricks - A Little Bit of Ella (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Georgia Brown
-02. How High the Moon
-03. Love for Sale
-04. It Don't Mean a Thing(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA2BC62FAC748C0A5B9A704E919D90D36256917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032965   (641897) от 09.07.2016
-
-VA - Jazz: Sexy Saxophones (2015) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Garzone - My One and Only Love (7:58)
-02. Christina Von Bulow, Soren Kristiansen, Jesper Lundgaard & Eliot Zigmund - Tenderly (6:47)
-03. Hugo Rasmussen - Stardust (5:42)
-04. Jakob Dinesen - That's All (7:09)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAEBFBCC52804F87EC8A081B052AC53C039A46C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

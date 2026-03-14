@@ -1,3 +1,32 @@
+###  Публикация: 1807753   (65100) от 20.07.2025
+
+Asphodelus - Sculpting from Time (2023) [MP3|320 Kbps] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterside
+02. Fallen Dreamer
+03. Life Painted Vermilion
+04. Monuments of Deception(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8233C35B025381BC0B16AACA14EBCE61BC99228B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807942   (65090) от 21.07.2025
 
 Axiom Chaos - Primacy Arrival (2025) [MP3|320 Kbps] <Death Metal>
@@ -710,35 +739,6 @@ Nightwish - Yesterwynde (2024) [MP3|320 Kbps] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97CBF7E6AEA7FA1FC702052717C8F270AA6EE6F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750960   (42742) от 22.09.2024
-
-Nightwish - Yesterwynde (2024) Limited edition earbook, 2024, Napalm Eagles [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterwynde (Orchestral Version) (3:23)
-02. An Ocean Of Strange Islands (Orchestral Version) (9:25)
-03. The Antikythera Mechanism (Orchestral Version) (5:53)
-04. The Day Of... (Orchestral Version) (4:24)(   Читать дальше...   )Жанр: Symphonic-MetalПродолжительность: 3CD, 03:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7483D5C1F286D79D7C1EF3321B4016708C659266
 ```
 
 https://mybot314.ru/tekegram_catalog/

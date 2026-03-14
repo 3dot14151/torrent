@@ -1,3 +1,148 @@
+###  Публикация: 1794855   (67205) от 01.05.2025
+
+VA - He, Kleine Linda (1977) Compilation, Russian Labels [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67205.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Kreis - Wirst Du Da Sein
+A2 Thomas Luck - Madchen Fur Einen Sommer
+A3 Zsuzsa Koncz, Gruppe ''Fonograf'' - Du Bist Noch Nicht Mein Mann
+A4 Michael Hansen - Solang Die Liebe Bleibt(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E667406AF65D2342DB6A3470205476ED154F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794836   (67199) от 01.05.2025
+
+Ladislav Staidl Orchestra - Music Therapy (1979) Compilation, Repress 1981 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67199.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Avalanche
+A2 Piccola E Fragile
+A3 Piano Concerto In A Minor
+A4 Le Concerto De La Mer(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2683ABF20574B4E61266642B80A626E0F88017E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794891   (67195) от 01.05.2025
+
+Soulfly - Dark Ages (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67195.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. The Dark Ages
+A2. Babylon
+A3. I And I
+A4. Carved Inside(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E556FBE75FCDB812ADC7FEA45478886B6ECD8D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794865   (67194) от 01.05.2025
+
+The Defaced - Studio Albums (4 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67194.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Defaced - метал-группа из Хельсингборга, Швеция, основана в 1999 году.2001 - Domination Commence
+2002 - Karma in Black
+2008 - Anomaly
+2022 - CharlatansЖанр: Groove/Thrash MetalПродолжительность: 02:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D66C0C3F4ADE8DFA452D837D734F196AED980B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795138   (67172) от 03.05.2025
+
+Ghost Brigade - Studio Albums (4 releases) (2007-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal, Post-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghost Brigade - метал-группа из Ювяскюля, Финляндия, основана в 2005 году.2007 - Guided by Fire
+2009 - Isolation Songs
+2011 - Until Fear No Longer Defines Us
+2014 - IV - One With the StormЖанр: Melodic Death/Doom Metal, Post-MetalПродолжительность: 03:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632E934776AC7C54D18B00736CE482D66E4EC978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795131   (67140) от 03.05.2025
 
 All for Metal - Gods of Metal (Year of the Dragon) (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Heavy Metal>
@@ -600,151 +745,6 @@ Eric Elias Trio - HOME MADE (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA7AFA203EE60D791A29C6AAFF52C2142E618801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796154   (67009) от 08.05.2025
-
-Haken - Liveforms: An Evening With Haken (Live in London 2024) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. The Last Lullaby (Live in London 2024) (02:11)
- 02. Taurus (Live in London 2024) (04:44)
- 03. Nightingale (Live in London 2024) (07:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB7AE066645F65515806C4CD4A342E622F57733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796100   (67008) от 08.05.2025
-
-Big Mike Hart - Modern Classic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Open Bar (4:19)
-02.  Passport (3:25)
-03.  Breeze (5:21)
-04.  Tidal Wave (3:29)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED9185358FB3C8C894A0192F8314622C0D4B058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796136   (67007) от 08.05.2025
-
-Lily of the Sea - Slow Violence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Fruit Tree (5:04)
-02.  Dear Trudence (3:03)
-03.  Slow Violence (2:41)
-04.  Hey Now (4:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D86E20589D663980C956380145EC709A42290F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796102   (67006) от 08.05.2025
-
-Christian Madden & The Enemy Chorus - Shinbone's Revenge (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twice As Thick (3:52)
-02.  The Skins (4:41)
-03.  Stoops Uprising (3:01)
-04.  Discorporate (3:54)(   Читать дальше...   )Жанр: FunkПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7A064651B981BF7F00DA370D2AB16E7B72EA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796131   (67005) от 08.05.2025
-
-Jonas Wall - Umbaji (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Oh Boy Roy (3:02)
-02.  Back Home (4:19)
-03.  Kings (5:57)
-04.  SunTan (4:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A312C3220481B47C79541D41E7364137E1C4F93
 ```
 
 https://mybot314.ru/tekegram_catalog/

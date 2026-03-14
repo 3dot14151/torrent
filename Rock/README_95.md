@@ -1,3 +1,61 @@
+###  Публикация: 1735441   (106928) от 08.07.2024
+
+Hawkestrel - Presents Pre-Med - Old Habits Die Hard (2024) [MP3|320 Kbps] <Progressive Rock, Space Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Gone (04:13)
+ 02. In Between The Black And White (04:19)
+ 03. Courage Or Conviction (07:04)
+ 04. Least Of All You (04:13)(   Читать дальше...   )Жанр: Progressive Rock, Space Rock, Psychedelic RockПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD056CADBA101FF9E4574EF2A218CB503336FBA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735660   (106787) от 10.07.2024
+
+DS Caw - Nothing To Fight For (2024) [MP3|320 Kbps] <Classic Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Rain (03:46)
+ 02. Nothing To Fight For (03:11)
+ 03. Static On The Radio (03:22)
+ 04. Demon In My Pocket (03:28)(   Читать дальше...   )Жанр: Classic Rock, BluesПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C03E0E32B36EC4EFA163D984A59BE51E7A11D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735729   (106773) от 10.07.2024
 
 Slade - Live In London 1972 (Live) (2024) [MP3|320 Kbps] <Rock>
@@ -686,70 +744,6 @@ Alice in Chains - Los Angeles 1990 (1990) HQ Remaster, 2024, TimeLine [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F46F63C7164B8EFB3AB6DDD291D1E2C57D38E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490931   (102646) от 02.05.2012
-
-Keane - Strangeland (2012) [MP3|320 кб/с]<Pop-Rock, Piano Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are Young
-02. Silenced By The Night
-03. Disconnected
-04. Watch How You Go
-05. Sovereign Light Cafe
-06. On The Road
-07. The Starting Line
-08. Black Rain
-09. Neon River
-10. Day Will Come(   Читать дальше...   )2012Жанр: Pop-Rock, Piano Rock, BritpopПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFAF0741BEF5B090B7A63B38AD9B2E27189C163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765736   (101342) от 14.12.2024
-
-The Cure - Songs Of A Lost World and Songs Of A Live World: Troxy London MMXXIV (2024) [MP3|320 Kbps] <Rock, Gothic, Post Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone (Live Troxy London MMXXIV) [07:00]
-02. And Nothing Is Forever (Live Troxy London MMXXIV) [07:01]
-03. A Fragile Thing (Live Troxy London MMXXIV) [04:48]
-04. Warsong (Live Troxy London MMXXIV) [04:37](   Читать дальше...   )Жанр: Rock, Gothic, Post PunkПродолжительность: 01:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD06174B90982BDE116F092FA68DA9B7D1A6B09B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1553356   (582960) от 25.05.2022
+
+Brad Mehldau - Jacob's Ladder (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Prog Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe as His Skies Are Wide (3:43)
+02. Herr und Knecht (Master and Slave) (7:48)
+03. (Entr'acte) Glam Perfume (5:45)
+04. Cogs in Cogs I - Dance (4:11)(   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Prog RockПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED58239D0FA1EB3B0C022C41D37A5409A283A388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553323   (582958) от 25.05.2022
+
+Chick Webb & Ella Fitzgerald - The Complete Chick Webb & Ella Fitzgerald Decca Sessions (1934 - 1941) 8CD, 2013, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz ...
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582958.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dog Bottom [2:40]
+02. Jungle Mamma [3:16]
+03. Heebie Jeebies [3:11](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 09:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9BA61569CCFDE5B07E081AA19982D9AD32A0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553330   (582820) от 25.05.2022
+
+Rhoda Scott - Lady All Stars (2022) Sunset Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R&R [5:34]
+02. City of the Rising Sun [4:46]
+03. Les chateaux de sable [5:28]
+04. Laissez-moi [6:04](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Soul-JazzПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0EF68705032EDFFAAB2B16E610E32A106E12CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041512   (582612) от 09.08.2016
 
 Mike Pachelli - electricite (2007) [FLAC|Lossless|image + .cue] <Avant Garde Jazz, Free Jazz>
@@ -668,93 +755,6 @@ Dafnis Prieto - Absolute Quintet (2006) Zoho[FLAC|Lossless|tracks + .cue] <Conte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ADCFE49917F4CAEE3A4CFD7AC44D5FB4E96C545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042264   (579682) от 12.08.2016
-
-(Николай Громин) Nikolaj Gromin & Jesper Lundgaard Duo - Blues For Thad (1991) [WavPack|Lossless|image + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579682.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Solar (6:28)
-2. Karen (4:19)
-3. My Romance (6:14)
-4. Blues For Thad (7:36)(   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD21664DB034446C5F58A6EE51C8F0AB152B8AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042247   (579676) от 12.08.2016
-
-Jeff Berlin - Crossroads (1998) [WavPack|Lossless|image + .cue] <Jazz-rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crossroads (5:44)
-02. Bach (4:45)
-03. Joe Frazier (Part II) (6:11)
-04. Motherlode (5:31)(   Читать дальше...   )Жанр: Jazz-rock, FusionПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE3E80275FFEEAEFFAAF18C31AAF782780A0CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042258   (579674) от 12.08.2016
-
-Nicolai Gromin Trio (Николай Громин) - Blue In Green (1997) [WavPack|Lossless|image + .cue] <Mainstream Jazz, Guitar Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579674.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In A Sentimental Mood (10:53)
-2. Falling In Love With Love (7:49)
-3. Blue In Green (4:27)
-4. I Fear It Down (3:51)(   Читать дальше...   )Жанр: Mainstream Jazz, Guitar Jazz, Hard BopПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83739956E96B6599FB796686A9B6E57F9086CD2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

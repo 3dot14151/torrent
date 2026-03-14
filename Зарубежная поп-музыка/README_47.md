@@ -1,3 +1,64 @@
+###  Публикация: 1317606   (500280) от 01.08.2019
+
+ABBA - Singles Collection 1972 - 1982 (1999) Box Set 27CD [MP3|320 Kbps] <Pop, Pop Rock, Disco, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкое 27-ми дисковое коробочное издание 1999 года, содержащее все синглы, выходившие на миньонах за 10 лет истории группы.
+ABBA - мегапопулярный шведский музыкальный квартет, существовавший в 1972 - 1982 годах и названный по первым буквам имён исполнителей:
+Агнета Фэльтскуг (швед. Agnetha Ase Faltskog) - вокал (р. 5 апреля 1950, Йёнчёпинг, Швеция).
+Бьёрн Ульвеус (   Читать дальше...   )Список альбомов:
+CD1 - People Need Love 1972
+CD2 - Ring Ring 1973
+CD3 - Waterloo 1974(   Читать дальше...   )Жанр: Pop, Pop Rock, Disco, SchlagerПродолжительность: 03:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2680431E941EC7D8B70058B74C0683E942760CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935310   (499461) от 08.09.2015
+
+Phildel - The Disappearance Of The Girl (2013) [OGG| 397-475 кб/с]<Alternative Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Disappearance Of The Girl (04:08)
+02. Storm Song (03:50)
+03. Mistakes (03:04)
+04. Moonsea (04:08)(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A9431831C189AF24FECA0D45307A65F62E8DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317604   (499435) от 02.08.2019
 
 VA - Driving In My Car: Ultimate Car Anthems (2019) [MP3|320 Kbps] <Pop, Rock>
@@ -696,64 +757,6 @@ Sertab Erener - Kirik Kalpler Albumu (2016) [MP3|320 Kbps] <Turkish Pop, Pop Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD391155D1CC4CC4FDBBAEFE838726BBAF64C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159414   (484162) от 20.08.2017
-
-The Runaway Club - Apollo (2016) [MP3|320 Kbps] <80's Electronic Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When We Were Kids
-02. I Don't Care
-03. So Damn Good
-04. Shooting at the Moon(   Читать дальше...   )Жанр: 80's Electronic PopПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6FD1E233854A1B4C3DC3A33C0DDB2272440F909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244138   (484107) от 31.08.2018
-
-VA - Top Hits Estate (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484107.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Takagi & Ketra - Amore e Capoeira
-02. BoomDaBash - Non Ti Dico No
-03. J-AX - Italiana(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582912B6246F98EFC7F159783A061209AC50C345
 ```
 
 https://mybot314.ru/tekegram_catalog/

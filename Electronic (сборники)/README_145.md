@@ -1,3 +1,32 @@
+###  Публикация: 1063577   (432249) от 17.10.2016
+
+VA - Beatport Top 100 House September (2016) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432249.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Leandro Da Silva - I Love House Music (Club Mix)
+002. Martin Waslewski - Clouds (Purple Disco Machine Remix)
+003. Nora En Pure - Convincing (Original Club Mix)
+004. Sam Divine, Curtis Gabriel, Nat Conway - Confessions (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 10:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D5E618262231E4946FA890F7830FF99B4B73D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410754   (431916) от 23.09.2020
 
 VA - Fast Mover: Tech House Electro Sound Mix (2020) [MP3|320 Kbps] <Tech House, EDM>
@@ -725,35 +754,6 @@ VA - Vocal Dubstep Vol.2 (2017) [MP3|320 Kbps] <Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB4E2912F4A9DA00586B45538A3248E9EE0D2964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064356   (426394) от 20.10.2016
-
-VA - Deep Mood, Chillhouse Selection (2016) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piet Lorrigan - Drink and Relax - The Bahia's Friends Mix
-02. Harley Coles - Drink Evolution - Fusion Mix
-03. Jaasiel Vega - Social Groove - Deep Groovers Mix
-04. Flat Crumb - Cool Emoticon - On The Beach Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7BFA0AF6D5E6319C0AA8E1D026D5A056BF4F3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

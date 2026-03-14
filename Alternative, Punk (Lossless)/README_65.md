@@ -1,3 +1,90 @@
+###  Публикация: 1685737   (127079) от 19.12.2023
+
+Meredith Hunter - Proud to be Different (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:18]
+02. Wolverine Song [00:03:20]
+03. Silent Rain [00:03:10]
+04. Lovers and Liars [00:02:55](   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5247350B0B9AAE4258D965CE7601DBB65FDA21F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686316   (126446) от 23.12.2023
+
+A Crime Called... - Primal Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On These Days [00:03:40]
+02. Back N Forth [00:03:02]
+03. Miracle [00:02:50]
+04. Sleep Walk [00:03:01](   Читать дальше...   )Жанр: Alt.Rock, Modern RockПродолжительность: 00:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1970B3364B286E8BDF70C896D55326E344F06179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686493   (126395) от 23.12.2023
+
+Challenger Deep - III.The Path (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Sludge, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrifice [00:06:29]
+02. Filth [00:05:49]
+03. Passion [00:03:22]
+04. Confidence [00:05:09](   Читать дальше...   )Жанр: Post-Metal, Sludge, Post-HardcoreПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0049C1E72BCA1D7DF7E63E1D079EFA2B839FFD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686869   (126202) от 24.12.2023
 
 art against agony - Sound of Inevitability (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Experimental>
@@ -660,93 +747,6 @@ Blooming Discord - Memories From The Future (2024) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9FE4A61419A5046BF5D0BAAA359BFC57E798FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700551   (117041) от 17.02.2024
-
-Paloma Faith - The Glorification of Sadness (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweatpants
-02. Pressure (feat. Kojey Radical)
-03. God in a Dress
-04. How You Leave A Man(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5FB7323BEFB76C2DEBB3554B7FDF4FE0CE92CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700313   (117034) от 17.02.2024
-
-The Requiem - A Cure To Poison The World (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Punk Rock, Mall Emo, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is How The World Ends
-02. An Elegy Written On Porcelain Arms
-03. Less Than Zero
-04. I’ll Be Late For My Funeral(   Читать дальше...   )Жанр: Alt. Rock, Punk Rock, Mall Emo, Post-HardcoreПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF24625174F1A43E6DA4B8C0D53CDFAA65433161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702413   (115696) от 25.02.2024
-
-Distant - Heritage (2023) 3CD Absolute Deluxe Edition, 2024, Century Media [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acid Rain [00:01:54]
-02. Paradigm Shift [00:03:23]
-03. Born of Blood [00:03:16]
-04. The Grief Manifest [00:03:33](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 3 CD, 02:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A818BE398A8B81DE5E21AD8EC3AD2C391DBEBC90
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1461866   (1021568) от 11.04.2021
+
+VA - Harmonic Convergence (2021) [MP3|320 Kbps] <New Age, Meditative, Relax, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предлагается погрузиться в атмосферу, которую с чьей-то легкой руки стали именовать музыкой нового века. Это своеобразное музыкальное направление, которое выделяется на всём музыкальном фоне и стоит особняком. Это мелодия мироздания, которую может услышать любой, потому что эти звуки есть наша вселенская природа. Эта музыка принуждает задуматься нас о духовном (   Читать дальше...   )001. Weathertunes - The Golden Twilight
+002. Jaubi - Time- Donut Of The Heart
+003. Josiah Steinbrick - Nemi
+004. Enya - The Magic Of The Night(   Читать дальше...   )Жанр: New Age, Meditative, Relax, AmbientПродолжительность: 08:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E75163A44D8E02A3B28CD6889984DB329A69CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461875   (1021561) от 11.04.2021
+
+VA - The Very Best Improvisations: Vocal Jazz Music (2021) [MP3|320 Kbps] <Jazz, Soul, Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для искушённых ценителей "мягкого" джаза в сопровождении классического джаз-вокала предлагается сборник под названием "The Very Best Improvisations" в котором присутствуют композиции поистине высшей пробы. Значительная часть музыки лонгплея знакома нам по аранжировкам и музыкальному сопровождению к известным кинофильмам001. Laila Biali - Let's Dance
+002. Anette Von Eichel - It's What We Do
+003. Nicola Conte Gianluca Petrella - Imani River
+004. Norah Jones - Falling(   Читать дальше...   )Жанр: Jazz, Soul, Smooth JazzПродолжительность: 07:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5269955245E0EC514EC6EB5B234EE45EBD6AB51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461690   (1021526) от 11.04.2021
+
+VA - Record Super Chart 10.04.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
+02. Eneli, Monoir - 3 to 1 (3:39)
+03. Tiesto - The Business (2:44)
+04. Slava Marlow - ТЫ ГОРИШЬ КАК ОГОНЬ (2:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75A845FF9004A7109E9FB05D822A5A223E04039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461864   (1021507) от 11.04.2021
 
 VA - Новинки русского рока (2021) [MP3|320 Kbps] <Rock>
@@ -658,93 +745,6 @@ VA - Сегодня на радио хиты FM Vol.11 (2021) [MP3|320 Kbps] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:470270D6A0FD64A9ADE70C5DAB6B3DF4944DC725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462486   (1020890) от 15.04.2021
-
-VA - Новинки Русских Ремиксов (2021) [MP3|256-320 Kbps] <Remix, Dance, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Султан Лагучев - Горький Вкус (Mikis Remix)
-02.Скаттл - Твои Слезы (Denis Bravo Remix)
-03.Пропаганда - Богиня (Leo Burn Remix)
-04.Пицца - Улыбка (Denis Bravo Radio Edit)(   Читать дальше...   )Жанр: Dance, Electro, Remixes, DanceПродолжительность: 02:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392D4F2B58D10862A24380E49E455041EC588422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462855   (1020832) от 16.04.2021
-
-VA - Vocal Synthwave Retrowave 2 (2021) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wandering Now - This is the Way (4:33)
-02. Penfriend - Exotic Monsters (3:41)
-03. Talkbox, Talie Rose - Reach Out (3:24)
-04. Lesse - Alive (3:33)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 04:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21AFF1D96A6A3FF90F16C47304A6E463F38D5F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463003   (1020769) от 16.04.2021
-
-VA - Best 80s Disco Hits 2 (2021) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Amore - Don't Let Me Go (Vocal Amore Extended Mix) (8:00)
-02. Boney M - Silly Confusion (1) (7:18)
-03. CHIC - I Want Your Love (6:55)
-04. Donna Summer - Hot Stuff (6:40)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1700589FDE30074759CE5D3E5E84131762DC6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

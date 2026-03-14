@@ -1,3 +1,148 @@
+###  Публикация: 1730742   (52980) от 17.06.2024
+
+Sparks - No. 1 In Heaven (1979) 45th Anniversary Edition, 2024, Lil Beethoven Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tryouts for the Human Race [00:06:08]
+02. Academy Award Performance [00:05:01]
+03. La Dolce Vita [00:05:56]
+04. Beat the Clock (Extended Version) [00:06:44](   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D18FAF108D1492EA4C2BACE91535ADB67B4C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730687   (52977) от 17.06.2024
+
+Atom Smith - Playing with Fire (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Swing, Nu Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 100% (3:30)
+02. Bad Girls (2:40)
+03. Playing with Fire (3:00)
+04. Higher and Higher (3:34)(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9636FD491A6DD33EB6E31BF7C933F84C50F4D854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730867   (52920) от 18.06.2024
+
+VA - Золотые хиты ХХ века 1 (2003) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Красные маки - Скажи мне правду
+02. Синяя птица - Клён
+03. Пламя - Снег кружится(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C2317F97E53DA0E87C14AF53A851A6A6D6D4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730999   (52811) от 19.06.2024
+
+Charles Wagner - Chucktallica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midsommar (Album Version) [00:05:29]
+02. Berzerker (Album Version) [00:04:37]
+03. Crossfire (Album Version) [00:04:27]
+04. Fire and Thrash (Album Version) [00:04:23](   Читать дальше...   )Жанр: thrash metal heavy metalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3F70EEB5F9CA2923DF19119B1B72F058507861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731139   (52808) от 19.06.2024
+
+Hugo Kant - Beyond the Tracks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entering the Black Hole (Live at Blind Istanbul, 2022-03-26) [00:13:02]
+02. Butter (Live at Le Gorille, 2022-12-16) [00:04:34]
+03. Sure the Sun Will Rise (Live at Pulzart Festival, 2022-10-14) [00:18:50]
+04. The Eye (Live at Le Gorille, 2022-12-16) [00:14:46](   Читать дальше...   )Жанр: Trip Hop, Downtempo, FusionПродолжительность: 03:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D00DF2ED497E706F5CC5C89CADA45C87675D398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731136   (52807) от 19.06.2024
 
 Hugo Kant - Far From Home (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, Trip-Hop, Instrumental Hip-Hop, Nu Jazz>
@@ -600,151 +745,6 @@ Anastacia - Our Songs (2023) Gold Deluxe Edition, 2024, Stars by Edel [FLAC 24/4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A9703933CAC42081948D436919C408403098422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733609   (51584) от 29.06.2024
-
-Eagles - Eagles Live (1980) Japanese Edition [FLAC|24/96|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51584.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Hotel California
-A2 Heartache Tonight
-A3 I Can't Tell You Why
-B1 The Long Run(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDFCB3500B775B96DEBCA2DC7834BA606444094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731477   (51396) от 01.07.2024
-
-The Grass Roots - Lovin' Things (1969) [FLAC 2.0|24/192|image+.cue|Vinyl Rip] <Pop Rock, Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51396.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Lovin' Things
-A2 The River Is Wide
-A3 (You Gotta) Live For Love
-A4 City Women(   Читать дальше...   )Жанр: Pop Rock, Psychedelic RockПродолжительность: 00:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69EB5B3C2953CBC93ED2F4B3A7183171E275644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734003   (51079) от 04.07.2024
-
-Cher - Living Proof (2001) Deluxe Edition, 2024, Warner Music UK Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for the Lonely (2024 Remaster) [00:03:21]
-02. Different Kind of Love Song (Eclectic Version; 2024 Remaster) [00:03:52]
-03. Alive Again (2024 Remaster) [00:04:19]
-04. The Music's No Good Without You (2024 Remaster) [00:04:42](   Читать дальше...   )Жанр: PopПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655F1BBE760BC9089F6DB21D86BA78DF824F53F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734837   (51022) от 05.07.2024
-
-Deep Purple - Lazy Sod (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Sod (3:41)
-02. Pictures of You (3:51)
-03. Portable Door (3:48)
-04. When a Blind Man Cries (Live in Milan 2022) (5:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE21C2EB8E9CFD46E2E04908D38EA65CC42781CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734830   (50966) от 05.07.2024
-
-The Alan Parsons Project - Vulture Culture (1984) Remaster, 2024, Ariola [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Crossover Prog>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Talk About Me (2024 Remaster) (4:29)
-02. Separate Lives (2024 Remaster) (5:03)
-03. Days Are Numbers (The Traveller) [2024 Remaster] (4:28)
-04. Sooner or Later (2024 Remaster) (4:28)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0CD84DE1B3DF2071362006C89F78D6E7E2B70BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

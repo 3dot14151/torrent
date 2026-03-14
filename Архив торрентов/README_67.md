@@ -1,3 +1,32 @@
+###  Публикация: 1442961   (1036062) от 27.01.2021
+
+NCH Doxillion Plus 5.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Doxillion - один из самых стабильных, простых в использовании и всеобъемлющих конвертеров файлов мультиформатных документов.
+● Конвертируйте текстовые документы в считанные минуты после загрузки
+● Быстрый и простой процесс конвертации документов в один клик
+● Пакетный конвертер файлов для конвертации тысяч файловТип издания: macOS SoftwareРелиз состоялся: 26.01.2020Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7206D3A623E396019ABEB80685E4A9BC2E9941A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442948   (1036061) от 27.01.2021
 
 Posterino 3 v3.10.0 [Multi]
@@ -652,35 +681,6 @@ Sandboxie - yтилита для контроля за работой разли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A03FE1700FB3DB9969420F047507DED51B9B5B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443012   (1036011) от 27.01.2021
-
-VA - Best Of Inception 2020 (2021) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alanisnotcool - Distant Earth (Original Mix)
-02. Minicied - Shadows (Original Mix)
-03. Skyhunter & Omega (PL) - Melancholy (Original Mix)
-04. Nerutto - Illuminate (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A33FDCBEA6D4493330C747653A43677B9D4DEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

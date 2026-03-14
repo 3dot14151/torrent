@@ -1,3 +1,90 @@
+###  Публикация: 1095046   (927216) от 19.01.2017
+
+VA - Мой любимый Русский Рок. Коллекция (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927216.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мамульки Bend - Русский Рок
+002. Ария + Гости - Воля и разум
+003. Город 312 - Небо в алмазах
+004. Каскад - Иней на стекле(   Читать дальше...   )Жанр: RockПродолжительность: 11:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0298E7578CFAF0B8727F87FF713F4C82E4459A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365783   (927014) от 09.03.2020
+
+VA - Blues Rock Drive 8  (2020) от DON Music [MP3|320 Kbps] <Rock, Blues Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Derek Fresquez & Cuttin The Chord - She's a Dream
+02. Steinar Ytrehus - MC Brady
+03. Charlie Vitamine - Chicago Blues
+04. Georgia Randall - Put It Down(   Читать дальше...   )Жанр: Rock, Blues Rock, BluesПродолжительность: 05:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE07926F4795BA86F51B0A72150275E76456761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489215   (926533) от 15.08.2021
+
+VA - Club&Dance Летние Треки Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 23.45 & 5sta Family - Я буду (Sasha First & Eugene Star Radio Edit) (2:55)
+02. Alvaro Soler feat. Cali Y El Dandee - Manana (Amice Remix) (4:22)
+03. Artik & Asti - Фурия (Vincent & Diaz Radio Mix) (3:51)
+04. Cassette - My Way (Ramirez & Yudzhin Remix) (4:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB246AFC9C725EB35810A3ECF5B520192AF1C426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987634   (926244) от 17.02.2016
 
 VA - 100% Bigroom Vol. 1 (2016) [MP3|320 кб/с] <Progressive House, House, Electro House>
@@ -655,93 +742,6 @@ Nazareth - The Platinum Collection (2021) 2CD [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9570FA0AFE8546713A5A0040B4F89A59DA8D6A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366102   (924913) от 10.03.2020
-
-VA - Elite NME Dance Club (2020) [MP3|320 Kbps] <Dance, Pop, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924913.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. J Gabriel - It Comes And Goes
-002. Mohjah - Zion Gates (Dub)
-003. Marcelo Diaz - Big Enough
-004. Dj Plur - I Turn To You (Radio Edit)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 11:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5D326AB3BE3FC5B2CBD12E1D34AE70E50587A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095349   (924637) от 21.01.2017
-
-VA - Снежный популярный отрыв (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924637.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Милан Савич - Так И Скажи 3:10
-002. Андрей Гризли & Вахтанг - Небо Над Нами 3:29
-003. Женя Тополь - Ты-Мой Свет 3:30
-004. Alex Belak - Невыносимая 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD29BD7C27C83CCB77C0FBD7367CFECBA7FE31E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095329   (924634) от 21.01.2017
-
-VA - Зимняя сотка хитовая Выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924634.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andy Rey - Музыка 3:00
-002. Евгений Мошков - Это Будет Мой Дом 3:56
-003. Лорена Сарбу - Разрываешь Мне Душу 3:16
-004. Денис Повалий - Спасибо 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9EB4B8E1C9B5F1B5464395CDE67399E2BAC5212
 ```
 
 https://mybot314.ru/tekegram_catalog/

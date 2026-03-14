@@ -1,103 +1,22 @@
-###  Публикация: 1850085   (1054310) от 26.01.2026
+###  Публикация: 1851216   (1055064) от 01.02.2026
 
-Андрей Артёмов | Особый порядок (2023) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054310.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данную книгу вошли произведения художественной прозы: роман «Особый порядок», повести «Лунные рассветы» и «Близкие подруги», а также избранные рассказы.Жанр: Современная русская литератураИздательство: Нигде не КупишьПродолжительность: 06:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D98FDE5396B6A50C9E12BD8A2E04B59ABDB651E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850079   (1054309) от 26.01.2026
-
-Марк Берколайко | Гомер, сын Мандельштама (2023) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054309.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Гомер, сын Мандельштама» – это второе издание опубликованного десять лет назад романа «Гомер», а его новое название позаимствовано с любезного разрешения Елены Зейферт из ее рецензии, появившейся тогда же в журнале «Знамя». Игорь (Гошка) Меркушев, в детстве прозванный Гомером, собирается в день своего шести­десятилетия уйти из жизни – только так он может загнать (   Читать дальше...   )Жанр: Современная русская литература, Социальная прозаИздательство: Нигде не КупишьПродолжительность: 07:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F823BEF7A9AFB28BF424E4F2DF0949CA3D6A3C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850203   (1054308) от 26.01.2026
-
-Д. Казаков | Физика элементарных частиц для любознательных. Первая энциклопедия с видеоуроками (2025) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054308.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей книге «Физика элементарных частиц для любознательных» директор Лаборатории теоретической физики Объединенного института ядерных исследований (ОИЯИ) Дмитрий Игоревич Казаков делится последними научными сведениями о строении атомного ядра и рассказывает об удивительном мире элементарных частиц материи, управляемых законами квантовой физики.Жанр: Энциклопедии, ФизикаИздательство: АСТФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5923BF8E3D38CBBEAC50CD4B9809D27E2A137BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850202   (1054307) от 26.01.2026
-
-Shane Brubaker | Bioinformatics with Python Cookbook. 4th Edition (2025) [PDF, EPUB] [EN]
+Майк МакГрат | Программирование для начинающих. Основные принципы. 2-е издание (2025) [PDF]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054307.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Enhance your bioinformatics toolbox with practical Python recipes, tips, and tricks for key tasks like aligning sequence data, calling variants, and building Infrastructure as Code.
-Key Features
-Perform sequence analysis at primary, secondary, and tertiary levels using Python libraries
-Solve real-world problems in the fields of phylogenetics, protein design, and (   Читать дальше...   )Жанр: Bioinformatics, BiotechnologyЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Открывать новое бывает непросто, но с «Программированием для начинающих» вы легко погрузитесь в мир ИТ даже при отсутствии опыта. Следуйте понятным инструкциям, выполняйте интересные практические задания. Внутри есть вся необходимая информация, рассмотрены ключевые концепции разработки и подобраны наглядные цветные примеры. Вы научитесь: писать программный код на (   Читать дальше...   )Жанр: Компьютерная литература, PythonИздательство: Эксмо, БомбораФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C695E5A0273384E0E2DFF528AE75480DF79BE210
+magnet:?xt=urn:btih:D5346FE337BA186B500C57F844A4B0347990C558
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,26 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850200   (1054306) от 26.01.2026
+###  Публикация: 1851217   (1055063) от 01.02.2026
 
-Лука Маццучелли | 86 400 секунд. Как управлять драгоценной валютой, которая лежит у нас на жизненном счету и обнуляется каждую ночь (2025) [PDF]
+Анна Цыбина | Нейросеть. Помощник в изучении английского языка. И не только (2025) [PDF]
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054306.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У каждого из нас есть ровно 86 400 секунд в сутках. Вопрос в том, как их потратить, чтобы вечером не сожалеть об очередном бесцельно прожитом дне…
-Если вы чувствуете, что время ускользает сквозь пальцы, а жизнь состоит из рутины и бегства за чужими целями, — эта книга для вас. В ней Лука Маццучелли, психолог, психотерапевт и коуч с многолетним опытом, расскажет, (   Читать дальше...   )Жанр: Саморазвитие, Тайм-менеджментИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+Погрузимся в практику, переосмыслив развитие языковых навыков — от грамматики и чтения до создания своих учебных материалов — всё через ИИ.
+Основные темы книги:
+5 стратегий промптинга для эффективного взаимодействия с ИИ.
+Пошаговые методики развития всех языковых навыков: от аудирования до письма.(   Читать дальше...   )Жанр: Английский язык, Искусственный интеллектИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E57FF582A1F6DD34D6BDD95F2AED0B9C8C886081
+magnet:?xt=urn:btih:917E85D18C79C65BFE65FDB784F388D17EB3884B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,25 +53,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850199   (1054305) от 26.01.2026
+###  Публикация: 1851218   (1055062) от 01.02.2026
 
-М.А. Сухинина | Квантовая психология. Ключи к твоей реальности (2025) [PDF]
+А.Н. Сыщикова | Японский язык для начинающих (2025) [PDF]
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054305.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Все мы хотя бы однажды слышали, что мысли материальны. Давайте проверим это! Никаких сложных теорий и многолетних медитаций, потребуется лишь немного времени, концентрация и знания, как это сделать. Вам повезло – последний компонент у вас в руках, вам же остается только открыть эту книгу. Что Вас ждет внутри? Теория квантовой психологии: что это на самом деле, откуда (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+Александра Сыщикова - дипломированный специалист по японскому языку и литературе, автор учебных и справочных пособий.
+Перед вами практическое пособие для тех, кто начинает изучение японского языка с нуля. Здесь представлена базовая грамматика, а также основные сведения о японской письменности, чтении и произношении.
+Пособие подходит для самостоятельных занятий и (   Читать дальше...   )Жанр: Языки, обучениеИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC412F1E8E15F9531842A1147647D251A29F897B
+magnet:?xt=urn:btih:3C002261A1B28D9EDB546F987756211CE198D38F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,26 +81,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850198   (1054304) от 26.01.2026
+###  Публикация: 1851219   (1055061) от 01.02.2026
 
-А. Владимирская, В. Дианова | Уставшие. Воркбук, который поможет побороть выгорание (2025) [PDF, EPUB]
+Н. Крнета, Н. Румак | Японский язык. Полная грамматика в схемах и таблицах (2025) [PDF]
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054304.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Устали или выгорели? И с тем и другим можно справиться – надо только определиться, что именно с вами происходит, и составить план спасения самого себя: понять, что с этим делать, и как помочь себе, даже если нет сил.
-Воркбук «Уставшие» – практическая рабочая тетрадь, которая проведет вас по методике бестселлера «Уставшие» от Алёны Владимирской, ведущего хедхантера (   Читать дальше...   )Жанр: ПсихологияИздательство: БомбораФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Наталия Крнета - преподаватель японского языка в ИСАА МГУ со стажем работы более 20 лет, кандидат филологических наук, автор многочисленных исследований в области языкознания, справочных и учебных пособий. Наталья Григорьевна Румак - преподаватель японского языка в ИСАА МГУ, кандидат филологических наук, переводчик художественной литературы и автор множества учебных (   Читать дальше...   )Жанр: Языки, пособиеИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C98C2A154493EBBADB63AED47C1B0F1D4CF8BB9E
+magnet:?xt=urn:btih:607B3FA075456D8AEBFDF28C72AB82C2521A3BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,105 +107,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850197   (1054303) от 26.01.2026
+###  Публикация: 1851220   (1055060) от 01.02.2026
 
-П.П. Урбанович, Д.М. Романенко | Компьютерные сети. Учебное пособие (2022) [PDF]
+Чун Ин Сун, А.В. Погадаева | Корейский язык. Полная грамматика в схемах и таблицах (2020) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное учебное пособие разработано признанными специалистами в области корееведения в России Чун Ин Сун и Анастасией Викторовной Погадаевой и включает подробное описание самой важной грамматики корейского языка.
+В пособии представлены подробные таблицы и схемы, емко и наглядно иллюстрирующие даже самые сложные и непонятные грамматические правила корейского языка. (   Читать дальше...   )Жанр: Языки, справочникИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1CA3304D86861DD2223E75611DC374D6DBF11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851221   (1055059) от 01.02.2026
+
+Alan Simpson | Python Automation For Dummies (2026) [PDF] [EN]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054303.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Даны общие понятия и определения из области компьютерных сетей и технологий, описаны сетевые компоненты. Приведены наиболее распространенные виды топологий, используемые для физического соединения компьютеров в сети, основные методы доступа к каналу связи, рассмотрены применяемые на практике физические среды передачи данных. Передача данных в сети рассматривается (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Инфра-ИнженерияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20718120DAA7B157856956578FB178F2CD1C1F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850196   (1054302) от 26.01.2026
-
-Д. Пачеко, С. Сгро | Принципы модернизации программных архитектур (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробное руководство по проектированию масштабируемого и поддерживаемого программного обеспечения, написанное признанными экспертами в области программных архитектур. Рассматриваются основные сложности монолитных приложений и антипаттерны, которые приводят к проблемам их масштабирования и сопровождения. Изложены принципы качественного проектирования, включая слабую (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BECA884584EE2D9E3AE53EEA687FFCDAEA6DBBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850194   (1054301) от 26.01.2026
-
-Дж. Галбрейт | Сетевое программирование на Python (2024) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена разработке серверных приложений и клиент-серверных архитектур на Python. Рассказано о поддержке SSL в Python 3, представлены примеры работы с протоколами TCP, UDP, HTTP, SMTP, IMAP, FTP, RPC, взаимодействия с сервисами DNS. Освещена работа с электронной почтой в приложениях. Описаны цели протокола TLS и методы их достижения на Python. Подробно описаны (   Читать дальше...   )Жанр: Компьютерная литература, PythonИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7598B8A6DD3D4BE872DD721302C8AB59DFC2E77F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850189   (1054300) от 26.01.2026
-
-Pallavi Sapkale, Shilpa Mehta, S. Balamurugan | Quantum Computing and Machine Learning for 6G. 1st Edition (2026) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Secure your expertise in the next frontier of wireless technology with this essential book, which provides a deep dive into the integration of machine learning and quantum computing to build the necessary infrastructure for 6G communication networks.
+Streamline Your Workflow and Boost Productivity with Python Automation
 
-Despite the potential benefits of 6G, the technology to enable its realization is not yet available. As a result, (   Читать дальше...   )Жанр: Mobile & Wireless Telecommunications, Radio Operation, Radio Communications,Язык: АнглийскийИздательство: Wiley-ScrivenerФормат: PDFКачество: Изначально электронное (ebook)
+In today's workplaces, there's a high demand for know-how on the Python programming language, especially for writing time-saving scripts that can simplify routine work tasks. Python Automation For Dummies delivers, with simple explanations of how you can use Python to automatically wrangle data (   Читать дальше...   )Жанр: Software Design Tools, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:159B34B293185E7E9F5EF5EF878B8A4476233964
+magnet:?xt=urn:btih:E7F17B156995B8FCD4F7578520A0F665F6B0EC0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,52 +162,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850187   (1054299) от 26.01.2026
+###  Публикация: 1851222   (1055058) от 01.02.2026
 
-Олег Велесов | Мир Загона (Книга 6). Шлак. Безумная королева (2026) [MP3, Сергей Дидок]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тавроди нашёл нас.
-Я всегда был слишком доверчив, чтобы принимать жёсткие решения. Пришло время всё поменять. Но для этого придётся вернуться в Загон. Он изменился, он стал настолько другим, что узнать его невозможно. Из ниоткуда появились новые люди. Кто они: проводники, решившие подмять Территории под себя, или новый двуликий, ведущий собственную игру…Жанр: Боевая фантастика, Постапокалипсис, АнтиутопияИздательство: Аудиокнига своими рукамиПродолжительность: 12:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDD69762881392BD600B6DC981E2D29B9244160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850186   (1054298) от 26.01.2026
-
-Эд Ботт | Windows 10 для IT-специалистов (2016) [PDF]
+Chenyang Shi | Mastering Algorithms with Python. A Practical Approach to Problem Solving and Python Implementation (2025) [PDF] [EN]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054298.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данное руководство познакомит вас с новыми функциями и возможностями Windows 10. Автор - заслуженный эксперт по операционной системе Windows Эд Ботт (Ed Bott) - составил общий обзор Windows 10 для IT-профессионалов, готовых начать процесс развертывания, с множеством практических советов для эффективной работы. Книга начинается с обзора операционной системы, затем (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Эком ПаблишерзФормат: PDFКачество: Изначально электронное (ebook)
+Gain a solid understanding of algorithms and improve your problem-solving abilities using Python code. With practical examples and clear explanations, this book bridges the gap between dense academic texts and overly simple industry guides.
+
+Focusing on the logic behind essential algorithms such as Breadth First Search (BFS), Depth First Search (DFS), Divide-and-Conquer, (   Читать дальше...   )Жанр: Computer Algorithms, Programming Algorithms, Python ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:645B1DC06629AA95106544FE16E704DB895532BE
+magnet:?xt=urn:btih:C77948D65247D41E5EF1E9F463A48C9927E50D49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,25 +190,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850184   (1054297) от 26.01.2026
+###  Публикация: 1851223   (1055057) от 01.02.2026
 
-Pau McFedries | Microsoft Excel Formulas and Functions (Office 2021 and Microsoft 365) (2022) [PDF, EPUB]
+Abi Aryan | LLMOps. Managing Large Language Models in Production (2025) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054297.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Use Excel 365 and Excel 2021 core features to build spreadsheets that solve business problems and deliver reliable answers. Drawing on his unsurpassed experience, Paul McFedries helps you make the most of formulas and functions, including recent improvements ranging from dynamic arrays to XLOOKUP and LET. McFedries' step-by-step projects walk you through handling (   Читать дальше...   )Жанр: Microsoft Office Guides, Microsoft Excel Guides, Spreadsheet BooksЯзык: АнглийскийИздательство: Pearson EducationФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Here's the thing about large language models: they don't play by the old rules. Traditional MLOps completely falls apart when you're dealing with GenAI. The model hallucinates, security assumptions crumble, monitoring breaks, and agents can't operate. Suddenly you're in uncharted territory. That's exactly why LLMOps has emerged as its own discipline.
+
+LLMOps: Managing (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Artificial Intelligence Expert Systems, Natural Language ProcessingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:642E047F69F558E6A199DDD0203A9B053F402E30
+magnet:?xt=urn:btih:964C916C9564305D57DCE6439F2CFFF69C3A4CD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,25 +218,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850205   (1054296) от 14.02.2026
+###  Публикация: 1851226   (1055056) от 01.02.2026
 
-R.I.P. - Reincarnation Insurance Program (2026) [Ru/Multi] (0.8.1.6) Repack Let'sРlay [Early Access]
+Mayo Oshin, Nuno Campos | Learning LangChain. Building AI and LLM Applications with LangChain and LangGraph (2025) [PDF, EPUB] [EN]
 
->>Win Игры
->>Demo/Beta версии Игр
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054296.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-R.I.P. органично сочетает град пуль из Vampire Survivors с прогрессией, завязанной на снаряжении, из серии игр Diablo. Мир кишит коррозионными вирусами и зомби, вы - элитный сотрудник R.I.P., и ваша цель проста: избавиться от нескончаемых орд физическими методами. Убивайте монстров, подбирайте добычу, перекраивайте снаряжение и собирайте различные комплекты - это (   Читать дальше...   )Тип издания: RepackРазработчик: WarmCore StudioЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык субтитров: Русский, Английский, Японский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Японский, Немецкий и другие
+If you're looking to build production-ready AI applications that can reason and retrieve external data for context-awareness, you'll need to master--;a popular development framework and platform for building, running, and managing agentic applications. LangChain is used by several leading companies, including Zapier, Replit, Databricks, and many more. This guide (   Читать дальше...   )Жанр: Natural Language Processing, Customer Relations, Computer ScienceЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D29B0A7C1A70D1E9E2BA7920290CF13A991AD0C3
+magnet:?xt=urn:btih:EF1C6639DB1D0F55C541D1051EE9CD01398079E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,26 +244,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850140   (1054295) от 26.01.2026
+###  Публикация: 1851228   (1055055) от 01.02.2026
 
-Журнал | Дилетант №2 (122) (февраль 2026) [PDF]
+Liz Rice | Container Security. Fundamental Technology Concepts That Protect Cloud Native Applications. 2nd Edition (2026) [PDF, EPUB] [EN]
 
->>Журналы
->>Другие журналы
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054295.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый исторический журнал, в живой, далеко не академической форме передающий колорит эпох и помогающий ориентироваться в истории, искать и находить в прошлом ответы на многие сегодняшние вопросы.
-В каждом номере увлекательные и познавательные материалы, подготовленные именитыми историками, великолепными писателями, популярными журналистами. Каждый выпуск журнала (   Читать дальше...   )Жанр: Исторический журналИздательство: ООО "Образование 21 век"Формат: PDFКачество: Необработанный скан
+As containerized and cloud native applications become foundational to modern software infrastructure, the need for a deep, conceptual understanding of their security implications has never been more urgent. Container Security, second edition, offers a rigorous yet practical examination of the technologies that underpin container platforms—equipping developers, operations (   Читать дальше...   )Жанр: Computer Networking, Cloud Computing, Computer Network SecurityЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A150D49979676001E9C0F166E7D179BDE5DD5AF1
+magnet:?xt=urn:btih:0060DB96E6722AFA9242537B84BC6C1D635C47F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,26 +270,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850117   (1054294) от 26.01.2026
+###  Публикация: 1851231   (1055054) от 01.02.2026
 
-Журнал | Монокль №4 (1418) (19-25 января 2026) [PDF]
+Bill Lubanovic | Introducing Python. Modern Computing in Simple Packages. 3rd Edition (2025) [PDF, EPUB] [EN]
 
->>Журналы
->>Другие журналы
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054294.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Деловой журнал «Монокль» – новое и старое издание одновременно. С 16 октября 2023 года его издает команда журналистов, которая в течение 28 лет делала журнал «Эксперт».
-В «Монокле» вы найдете макроэкономический анализ, прогнозы, обзоры конъюнктурных рынков и отраслей – от природного газа до изготовления манекенов, анализ финансовых рынков и новости финансовой политики (   Читать дальше...   )Жанр: Деловой журналИздательство: Александр ПопцовФормат: PDFКачество: Обработанный скан
+Stuck in a coding conundrum? Whether you're an advanced beginner, an intermediate developer, or a curious newcomer, the complexities of coding can often feel like a labyrinth with no exit. With Python, however, you can start writing real code quickly—but where should you start?
+In this updated third edition, Bill Lubanovic acts as your personal guide to Python, offering (   Читать дальше...   )Жанр: Computer Programming Languages, Python Programming, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E94A1D3C254607B6B65CE9B569F571F480948DD6
+magnet:?xt=urn:btih:E4B891304A751A976EDD338A1768E0E4F36BF994
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,25 +297,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850113   (1054293) от 26.01.2026
+###  Публикация: 1851232   (1055053) от 01.02.2026
 
-Тимофей Афаэль, Алексей Сказ | Цикл "Темный Лорд устал" [6 книг] (2025-2026) [FB2] [Обновляемая]
+Ю.Е. Воскобойников | Статистический анализ экспериментальных данных в пакетах MathCAD и Excel (2022) [PDF]
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054293.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что страшнее Темного Лорда на троне? Только уставший Темный Лорд в отпуске. Сбежав от своей империи ради покоя, Кассиан получил новый мир, который не желает оставлять его в покое. Теперь каждому, кто посмеет нарушить его тишину — от назойливого героя до гигантского монстра — предстоит узнать, что нет ничего опаснее, чем бог, который просто хочет, чтобы его не трогали.Жанр: Бояръ-Аниме, Попаданцы, Юмористическое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+Учебное пособие содержит изложение методов и алгоритмов математической статистики, решения задач фильтрации, аппроксимации, спектрального и гармонического анализа, возникающих при обработке и анализе экспериментальных данных.
+Приводятся необходимые теоретические положения и соответствующие расчетные соотношения. Отдельное внимание уделяется реализации этих соотношений (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E5B9F797A7A1DDF5CB9685CA2B087DE5CBB0520
+magnet:?xt=urn:btih:29BAE9D1AD3F7EB3267ED7FB824A4AA769929E62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,26 +324,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850107   (1054292) от 26.01.2026
+###  Публикация: 1851234   (1055052) от 01.02.2026
 
-Kenneth Kuttler | Real and Functional Analysis. Textbooks in Mathematics (2026) [PDF] [EN]
+С.П. Фиников | Курс дифференциальной геометрии (1952) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый курс дифференциальной геометрии написан по программе физико-математических и механико-математических факультетов, но отличается некоторыми особенностями: плоские кривые рассматриваются как часть пространственных, широко используется кинематические соображения при рассмотрении перемещений трехгранника, связанного с точкой кривой или поверхности.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934B1472B82BC96C250341A3F07CCE81942A0A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851235   (1055051) от 01.02.2026
+
+Александр Нефёдкин | Боевые колесницы с серпами. «Тяжелые танки» Древнего мира (2020) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055051.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лезвия колесниц серпоносных нередко / Столь неожиданно рвут тела в беспорядочной бойне, / Что на земле увидать отсеченные руки и ноги…» – так римский поэт описывал смертоносное действие колесниц с серпами на поле боя. Колесницы с косоподобными лезвиями длиной около метра, установленными на колесах с каждой стороны квадриги, на протяжении почти четырех сотен лет (   Читать дальше...   )Жанр: Энциклопедии, ИсторияИздательство: ЯузаФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2F06278C0EB32CBF6A146E31DF93E761FA0536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851237   (1055050) от 01.02.2026
+
+В.И. Глебов, С.Я. Криволапов | Практикум по математической статистике. Проверка гипотез с использованием Excel, MatCalc, R и Python (2019) [PDF]
 
 >>Научная и техническая литература
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054292.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This unique book gives a manageable introduction to functional analysis and a thorough treatment of real analysis. Authored as a graduate textbook in analysis, the book could be used for a course in real analysis based on the Lebesgue theory of integration and/or a course on functional analysis.
-The author uses basic topological ideas to unify the presentation of (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Chapman and Hall/CRCФормат: PDFКачество: Изначально электронное (ebook)
+В пособии приведено около 100 задач, посвященных проверке статистических гипотез. Представлены темы: 1) общие свойства (статистика критерия, мощность критерия, Р-значение); 2) критерии случайности, независимости, однородности; 3) критерии согласия (простые гипотезы); 4) критерии согласия (сложные гипотезы); 5) параметрические гипотезы.
+Разобраны примеры решения задач (   Читать дальше...   )Жанр: Компьютерная литература, МатематикаИздательство: ПрометейФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC194F9416873602DDA2B9F1720E6F7AB7303F62
+magnet:?xt=urn:btih:2B710ED35D4380AB1174BA9D4799781C9509DFF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,28 +403,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850106   (1054291) от 26.01.2026
+###  Публикация: 1851238   (1055049) от 01.02.2026
 
-Giulia Enders | Gut.The Inside Story of Our Body’s Most Underrated Organ (2026) [PDF, EPUB] [EN]
+Александр Дашьян, Андрей Чаплыгин | Вторая мировая война на море. Полная иллюстрированная энциклопедия (2019) [PDF]
 
 >>Научная и техническая литература
->>Здоровье и медицина
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054291.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Transform your understanding of the human gut: An enlightening journey through the most underrated organ with Dr. Giulia Enders' groundbreaking exploration of digestive health, microbial connections, and whole-body wellness.
-
-Discover the secrets of your digestive system—and how to hone a healthy gut—plus new research on the mind-gut connection.
-(   Читать дальше...   )Жанр: Гастроэнтерология, Макробиотика, АнатомияЯзык: АнглийскийИздательство: HarperOneФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Вторая мировая война охватила не только сушу. С самого начала войны боевые действия развернулись и на море.
+Уже 14 октября 1939 г. немецкая подводная лодка смогла прямо в базе потопить английский линкор «Ройял Оук», а 13 лекабря 1939 г. у берегов. Аргентины развернулось одно из первых морских сражений Второй мировой войны, в результате которого был потоплен немецкий (   Читать дальше...   )Жанр: Энциклопедии, ИсторияИздательство: Яуза, ЭксмоФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3F5F117F7192AA56C799E5BD27BD311B1C6CD08
+magnet:?xt=urn:btih:31894B26F69C6664CF47C535F5408E798645A553
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,53 +430,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850105   (1054290) от 26.01.2026
+###  Публикация: 1851239   (1055048) от 01.02.2026
 
-Jaewoong Eum | Practical Kotlin Deep Dive. Unlocking the 'How' and 'Why' behind Kotlin fundamentals and internal mechanisms (2026) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Takes you from “how to use Kotlin” into “how Kotlin really works,” revealing the internal implementations, desmifying bytecodes and compiler behavior, and internals that shape the language. If you want to write smarter, more confident Kotlin across fundamentals, coroutines, and multiplatform, this is the book that shows you why everything is the way it is.
-
-Practical (   Читать дальше...   )Жанр: Java Programming, Mobile App Development & Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Independently publishedФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1258AD53F0B263E2952722D73EE5B90F4D27CED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850104   (1054289) от 26.01.2026
-
-Steven McGee | McGee's Evidence-Based Physical Diagnosis. 6th Edition (2025) [PDF] [EN]
+В.Н. Шунков, В.В. Ликсо, А.Н. виноградов | Охота. Иллюстрированная энциклопедия (2015) [PDF]
 
 >>Научная и техническая литература
->>Здоровье и медицина
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054289.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Emphasizing the most important physical signs needed to determine an underlying condition or disease, McGee's Evidence-Based Physical Diagnosis, Sixth Edition, offers vital insight and instruction on the fundamental clinical skill of physical diagnosis. Internationally renowned author Dr. Steven McGee clearly shows how to pare down the multiple tests needed to confirm (   Читать дальше...   )Жанр: Медицина, Общая практикаЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
+Еще с древнейших времен человек занимался охотой с целью прокормить себя. Сегодня охота – это еще и разумный отдых, который сплачивает человека с природой. Настоящее издание по праву можно назвать энциклопедией охотничьего дела. На ее страницах рассказывается о правилах охоты на некоторых животных и птиц, о том, как правильно организовать и провести коллективную (   Читать дальше...   )Жанр: Энциклопедии, ОхотаИздательство: ХарвестФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:655B5E30FC25C3DEF1D85DCEAED4EBF0E819918E
+magnet:?xt=urn:btih:F44CF801E391079F1353CD07A33A412801049486
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,25 +456,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850062   (1054288) от 26.01.2026
+###  Публикация: 1851242   (1055047) от 01.02.2026
 
-Omid Motamedisedeh | 96 Common Challenges in Power Query. Practical Solutions for Mastering Data Transformation in Excel and Power BI (2025) [PDF, EPUB] [EN]
+П.К. Рашевский | Курс дифференциальной геометрии (1956) [DJVU]
 
->>Компьютерная литература
->>
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054288.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This comprehensive guide is designed to address the most frequent and challenging issues faced by users of Power Query, a powerful data transformation tool integrated into Excel, Power BI, and Microsoft Azure. By tackling 96 real-world problems with practical, step-by-step solutions, this book is an essential resource for data analysts, Excel enthusiasts, and Power (   Читать дальше...   )Жанр: Microsoft Excel Guides, Microsoft Programming, Databases & Big DataЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Книга содержит кривые на плоскости, дифференциальные и векторные функции, линейчатые и развёртывающиеся поверхности, внутренняя геометрия поверхности.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60D1E57C8C6C71FCB5982CF96C3AB13BDF584E28
+magnet:?xt=urn:btih:1DB6403B648ADA227D03273AB57C44D65C3825E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,27 +482,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850059   (1054287) от 26.01.2026
+###  Публикация: 1851240   (1055046) от 01.02.2026
 
-David Langer | Python in Excel Step-by-Step (2026) [PDF] [EN]
+П.К. Рашевский | Курс дифференциальной геометрии (1938) [DJVU]
 
->>Компьютерная литература
->>
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054287.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-An intuitive guide for professionals wanting to prepare for the future of Microsoft Excel by building Python in Excel skills and unleashing the power of their data.
+Курс дифференциальной геометрии» П.К. Рашевского, выпущенный в 1938 году издательством ГОНТИ НКТП СССР и является классическим учебником для вузов. Книга охватывает теорию кривых (плоских и пространственных) и поверхностей, и была написана автором в период активного преподавания на мехмате МГУ.Жанр: МатематикаИздательство: ГОНТИ НКТП СССРФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8FF90ADC6D06D479EDC89FE79D5C7F88A7D8BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851248   (1055045) от 01.02.2026
+
+Лидия  Клёс | Узоры для вязания на спицах. Большая иллюстрированная энциклопедия (2019) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая большая энциклопедия по вязанию на спицах от самого авторитетного немецкого издательства ТОРР! На этот раз вы найдете в книге обширную и удивительно разнообразную коллекцию из 500 узоров для вязания на спицах всех видов. Классические, современные, инновационные. Каждый узор снабжен детальным описанием и понятной четкой схемой.
 
-A hands-on guide to the foundational Python in Excel skills you’ll need to understand and use this powerful analytics tool, Python in Excel Step-by-Step is for current Excel users interested in expanding (   Читать дальше...   )Жанр: Spreadsheet Books, Data Mining, Python ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+Ажурные и плотные, фактуры и (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:694DAF1CA7123670232BB63A0C28B2259FF4D12A
+magnet:?xt=urn:btih:8198474A5A81284C9F352EF305D71C8ABAF94153
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,25 +536,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850207   (1054286) от 26.01.2026
+###  Публикация: 1851249   (1055044) от 01.02.2026
 
-Проекты - VideoHive - Soft Blur Transitions - 61544842 [AEP]
+Альфред Брем | Жизнь животных. Большая иллюстрированная энциклопедия (2022) [PDF, FB2, EPUB, RTF]
 
->>Проекты
->>Элементы (проекты)
+>>Научная и техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054286.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поднимите свои видеопроекты на новый уровень с помощью Soft Blur Transitions — профессионально разработанного видеошаблона, созданного для достижения потрясающих визуальных результатов с минимальными усилиями. Этот шаблон разработан с учетом гибкости и простоты использования, что делает его подходящим для создателей любого уровня — будь вы создатель контента, кинорежиссер, (   Читать дальше...   )Формат: AEP
+В этом издании легендарных трудов Альфреда Брема собраны самые популярные виды млекопитающих, птиц, рыб, пресмыкающихся, земноводных, членистоногих и моллюскообразных. Вы откроете для себя неизведанный мир фауны, найдете множество интересных фактов и историй из жизни представителей животного мира со всех уголков нашей планеты. Популярные классы животных разбиты по (   Читать дальше...   )Жанр: Энциклопедии, ЖивотныеИздательство: ЭксмоФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:893E6861B49527C594DC76A4CAF0976A5C1FCDC7
+magnet:?xt=urn:btih:DD89EB8791B7CBA149BAE165A79E7D1189BE0992
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,25 +562,134 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850058   (1054285) от 26.01.2026
+###  Публикация: 1851250   (1055043) от 01.02.2026
 
-М. Руссо, А. Феррари | Подробное руководство по DAX. Бизнес-аналитика с Microsoft Power BI, SQL Server Analysis Services и Excel (2021) [PDF]
+И.В. Мельников, С.А. Сидоров | Рыбалка. Иллюстрированная энциклопедия (2010) [PDF]
 
->>Компьютерная литература
->>
+>>Научная и техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054285.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Расширенная и дополненная с учетом современных требований и техник, эта книга представляет собой наиболее полное руководство по языку DAX, применяемому в области бизнес-аналитики, моделирования данных и анализа. Эксперты Microsoft BI Марко Руссо и Альберто Феррари излагают как основы, так и отдельные нюансы работы с DAX: от простых табличных функций до продвинутых (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК ПрессФормат: PDFКачество: OCR
+Рыбалка – отличный вид отдыха и поэтому достаточно распространенное занятие для многих. Но результат, как правило, определяется массой объективных факторов, из которых не последнее место занимают умение и опыт рыболова.
+
+В настоящем издании представлена информация, которая поможет добиться успеха как начинающему рыболову, так и уже имеющему опыт. Это – и характеристики (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: ХарвестФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D582869850CEDB41A8A89EA999B42F715D6937EE
+magnet:?xt=urn:btih:957C989367BCD532F1E5BFE445266A73074AAD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851251   (1055042) от 01.02.2026
+
+А. Яскевич (сост.) | Большая иллюстрированная энциклопедия. Искусство Японии (2024) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энциклопедия включает более 800 статей, расположенных в алфавитном порядке. Они рассказывают о различных школах, направлениях, техниках, стилях, жанрах и видах японского искусства. Книга прекрасно иллюстрирована; в ней несколько сотен цветных фотографий и репродукций, что делает ее поистине уникальным изданием такого рода. Энциклопедия адресована всем, кто интересуется (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07040264E14728B8F1DAD2BD4CB732836CA9692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851253   (1055041) от 01.02.2026
+
+М. Куценко | Насекомые. Иллюстрированная энциклопедия начинающего энтомолога (2021) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055041.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой подробной иллюстрированной энциклопедии описаны более 240 видов насекомых, обитающих на территории России: их классификация и систематика, анатомия, физиология, ареал обитания и жизненный цикл. Подробнейшие характеристики каждого вида и великолепные иллюстрации помогут не только научиться отличать один вид от другого, но и узнать все о жизни этих удивительных (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07757332133A7ECBA33D2A5D3224BC83656DFEC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851254   (1055040) от 01.02.2026
+
+Г.С.М. Кокстер | Введение в геометрию (1966) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055040.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Введение в геометрию» представляет собой популярное изложение основ почти всех разделов геометрии.
+Кинга состоит из четырех частей, отражающих содержание основных курсов, читающихся в наших педагогических институтах: элементарной геометрии; аналитической геометрии; так называемой высшей геометрии, включающей в себя элементы оснований геометрии, аффинной, проективной (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62DC32285BC86769F462144211F5ED74733FF3CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851255   (1055039) от 01.02.2026
+
+The Diagram Group | Musical Instruments of the World. An Illustrated Encyclopedia with more than 4000 original drawings (1976) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055039.jpg" />
+</div>
+
+
+###  Подробнее
+
+"One of the nicest things.is that you don't have to be a musician to love it. It's a browser's delight."--The New York Times
+
+It's the best-looking musical encyclopedia ever! Using a completely visual approach, this ultimate reference has over 4,000 drawings showcasing the evolution of instruments--and music--from primitive whistles to electric guitars (   Читать дальше...   )Жанр: Энциклопедии, МузыкаЯзык: АнглийскийИздательство: Facts On File PublicationsФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67405E7E7BCEF08D7B69EA16295B2CB45FE4CC5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

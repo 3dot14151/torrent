@@ -1,3 +1,188 @@
+###  Публикация: 1406952   (470518) от 05.09.2020
+
+David Sanborn - Anything You Want: The Warner-Reprise-Elektra Years 1975-1999 (2020) 3xCD [FLAC|Lossless|image + .cue] <Contemporary Jazz, Jazz-Funk, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470518.jpg" />
+</div>
+
+
+###  Подробнее
+
+David William Sanborn - американский альт-саксофонист.
+30 июля 2020 года музыкант отметил своё 75 летие и в этом году исполнилось 45-лет со дня выхода дебютного сольного альбома.
+SoulMusic Records подготовил это 3-дисковое издание, которое охватывает значительный виток карьеры маэстро,  это лучшее из 17 альбомов, которые он записал в качестве сольного исполнителя (   Читать дальше...   )CD - 1: New York Dave & The Cali-Crossover Express
+CD - 2: Sanborn : Soul Man
+CD - 3: Evening Ember EvocationsЖанр: Contemporary Jazz, Jazz-Funk, Smooth JazzПродолжительность: 03:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0C9B63329EAE4EC25887FD726A989C5004F411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567683   (470318) от 04.08.2022
+
+Johnathan Blake - Homeward Bound (2021) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Beginning Was the Drum [1:00]
+02. Homeward Bound (For Ana Grace) [9:13]
+03. Rivers & Parks [8:00]
+04. Shakin' the Biscuits [4:52](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70825B549D2617C8DD89841083DF14EED566F1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245706   (470179) от 07.09.2018
+
+Eric Reed - Here (2006) MaxJazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stablemates [7:44]
+02. Kokomo [2:03]
+03. I C H. N. (For Herbie Nichols) [4:49]
+04. Hymn [1:28](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B913B06BB9822C6F531139B3FD7E4727FD0DFAA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245563   (470178) от 07.09.2018
+
+Lars Jansson - Giving Recieving (2001) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giving-Receiving [06:28]
+02. Gruaud Larose part 1 [01:36]
+03. Gruaud Larose part 2 [06:07]
+04. Soft Breeze [04:50](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B55E338A781BCB8C6251AB36BA813EBD0F0FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547775   (470161) от 17.09.2012
+
+Tiziana Ghiglioni - So Long Flores (2004) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sharp Blues [11:16]
+02. Vers-ils [09:31]
+03. Very Silent [06:12]
+04. A Prayer for the Sun [06:54]
+05. Six Blue Fragments [08:57]
+06. Versailles [08:19]
+07. Overnight Sight [07:12]
+08. Flying Around You [08:29]Жанр: JazzПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548211   (470031) от 17.09.2012
+
+Sarah-Jane Morris - August (2001) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Leave Me This Way [04:26]
+02. I Can't Stand The rain [04:06]
+03. Into My Arms [04:29]
+04. Chelsea Hotel [03:05]
+05. You Can't Put Your Arms Around A Memory [03:16]
+06. Piece Of My Heart [04:21]
+07. Blind Old Friends [04:47]
+08. Move On Up [04:38]
+09. Mercy, Mercy Me [05:01]
+10. Try A Little Tenderness [05:16](   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160927   (469978) от 27.08.2017
 
 Elisabeth Kontomanou - Brewin' the Blues (2008) [FLAC|Lossless|image + .cue] <Vocal Jazz, Post-Bop>
@@ -583,186 +768,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9CCA61FCE92CD2D1971601EAA951DC84F432330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245959   (467659) от 08.09.2018
-
-Giuseppe Milici Quartet - Jazz Tribute to Michael Jackson (2010) [FLAC|Lossless|image + .cue] <Smooth Jazz, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467659.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Liberian Girl
-2 You Are Not Alone
-3 Another Part of Me
-4 Billie Jean(   Читать дальше...   )Жанр: Smooth Jazz, Crossover JazzПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C8F1D7DA77395FA369A0B65BF2D34C91AE57F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161411   (467646) от 28.08.2017
-
-VA - Forum West - Modern Jazz From West Germany: Wewerka Archive 1962-1968 (2004) Sonar Kollektiv [APE|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Lauth Sextet / Intrada [02:23]
-02. Hans Koller Ensemble / Mingus Privat [03:52]
-03. Joe Haider Septet / Straight Out [05:35]
-04. Hans Koller Ensemble / Casa Loma [02:51](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Bop, Hard BopПродолжительность: 01:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:647E946836530C96AC9138AC58FB3F25C4373393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548584   (467593) от 18.09.2012
-
-VA - Ladies First (2012) [MP3|320 кб/с]<Jazz Vocal, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston - I Will Always Love You [04:26]
-02. Celine Dion - The Power Of Love [04:49]
-03. Bette Midler - From A Distance [04:41]
-04. Faith Hill - There You'll Be [03:43]
-05. Linda Lonstadt - Desperado [03:36]
-06. Beverly Craven - Promise Me [03:38]
-07. Lisa Stansfield - All Around The World [04:28]
-08. Susan Boyle - I Dreamed A Dream [03:12]
-09. Sarah McLachlan - I Will Remember You [04:50]
-10. Cyndi Lauper - True Colours [03:50](   Читать дальше...   )Жанр: Jazz Vocal, Jazz-PopПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28151C72BA1397112C81C56757510F7CA8DAACDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940598   (467294) от 25.09.2015
-
-Wynton Kelly - Piano (1958) /2004, Riverside/ [FLAC|tracks+.cue]<Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Whisper Not [07:12]
-02.Action [07:12]
-03.Dark Eyes [05:59]
-04.Dark Eyes (take 2) [05:23](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B695585B820A427EDB01C45B9BC7BC5C132BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940630   (467191) от 25.09.2015
-
-Billie Holiday - Jazz Masters (1996) /Mandarim Records/[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Let's Do It [02:58]
-02.Georgia On My Mind [03:20]
-03.Love Me Or Leave Me [03:21]
-04.St. Louis Blues [02:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4ECE1204F8C2237CA3E5CE776FAD6E56751D94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940686   (467027) от 25.09.2015
-
-Lauren Anderson - Truly Me (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Day (03:32)
-02. Shame (03:41)
-03. My Reminder (04:49)
-04. Can't You See (04:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB827D679986198C6DE318305E343E0FA4158DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,146 @@
+###  Публикация: 1791728   (67752) от 17.04.2025
+
+Brainstorm - Ambiguity (2000) Reissue, 2023, Atomic Fire [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67752.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Crush Depth
+A2 - Tear Down The Walls
+A3 - Beyond My Destiny
+A4 - Arena(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:5746
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EC8D278E5F039D015C11E9DDE787796F3363A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791980   (67751) от 17.04.2025
+
+The Darkness - Easter is Cancelled (2019) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock and Roll Deserves to Die [00:05:24]
+02. How Can I Lose Your Love [00:03:02]
+03. Live 'Til I Die [00:03:32]
+04. Heart Explodes [00:03:47](   Читать дальше...   )Жанр: RockПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61EB03AC7F6EBDC299AC8106141445894F0C8279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792504   (67724) от 19.04.2025
+
+Юлия Савичева - 9 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67724.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Утром на заре
+2. Времени нет
+3. Город
+4. За окнами(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9A785D6252A51C5A5BE24CD0A5137D4BABE271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792508   (67690) от 19.04.2025
+
+Marilyn Manson - In The Air Tonight (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Industrial Metal, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67690.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In The Air Tonight
+2. As Sick As The Secrets Of (Sleep)Жанр: Industrial Metal, Alternative RockПродолжительность: 00:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DB05F48FD03858E5652B81B669DF165C75EF845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792491   (67662) от 19.04.2025
+
+Cold Iron - Return To Darkness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Return To Darkness (03:30)
+ 02 - Shipwreck In Hell (04:41)
+ 03 - One Sided (03:53)
+ 04 - Rise (04:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3D9B06EB26988EF3352EBCA96CA0A3E6EB0D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792576   (67661) от 19.04.2025
 
 Storm Orchestra - Get Better (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
@@ -598,151 +741,6 @@ Niviane - Queen Of Phantoms (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96D03FF0ADFF642220D9E0681F88A27EA64E311D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792642   (67577) от 20.04.2025
-
-Black Stone Cherry - This is Black Stone Cherry's RSD album. The band really likes it. (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock, Post-Grunge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Horse (feat. John Cooper of Skillet and Ayron Jones) [00:03:43]
-02. Out Of Pocket (feat. Jesse Leach) [00:03:09]
-03. What's Love Got To Do With It [00:03:19]
-04. Give Me One Reason (The Plug) (Acoustic) [00:03:34](   Читать дальше...   )Жанр: Southern Rock, Hard Rock, Post-GrungeПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E895DE44F1A3DA816F25101E9632AC86135ED267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792497   (67576) от 20.04.2025
-
-George Grigoriu - Odata Cu Cintecul (1977) Melodii De George Grigoriu [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67576.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Angela Ciochina - Odata Cu Cintecul
-A2 Mi-a Batut - Primavara-n Geam
-A3 Mihaela Runceanu - Sperante-vis, Sperante-flori
-A4 George Sava - Se Scalda Ceru-n Ochii Tai(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB15464D342D3BC85CEEECD10D9948E7F95A4557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792533   (67571) от 20.04.2025
-
-Brainstorm - Metus Mortis (2001) Reissue, 2023, Metal Blade Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67571.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Metus Mortis
-A2 - Blind Suffering
-A3 - Shadowland
-A4 - Checkmate In Red(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A615CE996BCC238839902418F1E4125016772C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792932   (67570) от 22.04.2025
-
-Dhune - Agony Tool (2025) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Dirt [00:03:47]
-02. Bite Me [00:05:02]
-03. We'll Disappear [00:04:09]
-04. Agony Tool [00:04:57](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDB066C486C17708E06FDC7707FEDD1BA9ACB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792939   (67565) от 22.04.2025
-
-Party Pupils - Virtual Clarity (2025) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Believe In Love
-02 – Tokyo Blur
-03 – Hiya
-04 – White Light(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FA3AB12AF904046D395EE5B0813984414171ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

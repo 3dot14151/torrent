@@ -1,3 +1,177 @@
+###  Публикация: 1783438   (69794) от 06.03.2025
+
+The Syd Lawrence Orchestra - Big Band Swing (1984) Philips [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One O'Clock Jump [3:25]
+02. Mood Indigo [3:27]
+03. Jumping at the Woodside [3:44]
+04. Don't Be That Way [3:12](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F43CD2D123106F8458FE7D24255BB7C2EFDF6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783913   (69673) от 08.03.2025
+
+Art Pepper - Living Legend (1975) 2006, Victor [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ophelia [7:54]
+02. Here's That Rainy Day [5:40]
+03. What Laurie Likes [6:45]
+04. Mr. Yohe [7:13](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB074277391160C5F8F90986B67DB0F16541EE85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783809   (69672) от 08.03.2025
+
+Bud Powell - At The Blue Note Cafe, Paris (1961) 1990, Magic Music [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Will Never Be Another You [6:26]
+02. Thelonious [3:49]
+03. Round Midnight [6:03]
+04. Night in Tunisia [7:05](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5644B09E4FC27B57F0434795BAB1310E06672F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783812   (69671) от 08.03.2025
+
+Art Pepper - Among Friends (1978) 1988, Discovery Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Among Friends [6:25]
+02. 'Round Midnight [6:48]
+03. I'm Getting Sentimental over You [5:03]
+04. Blue Bossa [4:23](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C7B56C4CBF850B4C3D0865FB10421A99C041C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783911   (69670) от 08.03.2025
+
+Bud Powell - Live at the Blue Note Cafe, Paris (1961) 2007, ESP-Disk' [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groovin' High [12:34]
+02. Taking a Chance on Love [9:52]
+03. Bud's Blues/52nd Street Theme [11:35]
+04. There Will Never Be Another You [6:22](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE43CE0E79E9AE422230767A111ED84FB047694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783910   (69666) от 08.03.2025
+
+Houston Person & Ron Carter - Remember Love (2018) HighNote Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Here to Stay [6:57]
+02. My One and Only Love [4:38]
+03. Why Not [6:11]
+04. Day Dream [5:02](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539A0977F273EA53242C280DFD3C5F563E46FBA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784249   (69642) от 09.03.2025
 
 Downhome Kin - Backroads & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Art Pepper - The Way It Was! (1956 - 1960) 1989, Original Jazz Classics [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0747B04530DCCDCFCA42B86B62774146A58D3730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784509   (69531) от 12.03.2025
-
-Bud Powell - Bud's Bubble (1944 - 1947) 2000, EPM Musique [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Remember April [2:54]
-02. Everything Happens to Me [2:42]
-03. Indiana [2:45]
-04. I Should Care [3:03](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D1F62E027EE81D570A3106152EEAA3F9C69AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784657   (69530) от 12.03.2025
-
-Bud Powell - Jazz Giant (1949, 1950) 2001, Verve Records [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tempus Fugue-It (Tempus Fugit) [2:29]
-02. Celia [3:01]
-03. Cherokee [3:40]
-04. I'll Keep Loving You [2:44](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62FC82A8D2F13529D28B9B79D374B76B5A4D5E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784808   (69487) от 13.03.2025
-
-Art Pepper - Winter Moon (1980) 2005, Galaxy [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Song [5:32]
-02. Here's That Rainy Day [5:21]
-03. That's Love [4:53]
-04. Winter Moon [5:32](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD48FB73A8BEF4006D582A5DDA1505D8042864B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784811   (69484) от 13.03.2025
-
-The Bud Powell Trio - Time Was (1956, 1957) 1987, Bluebird [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Will Never Be Another You [3:40]
-02. They Didn't Believe Me [3:21]
-03. I Cover the Waterfront [2:34]
-04. Time Was [3:07](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B983D25143A3D1C3ECF475B330FA5B5B33997F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784800   (69483) от 13.03.2025
-
-Tony Scott - Three Classic Albums Plus (1953 - 1958) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's You Or No One [2:55]
-02. Rock Me But Don't Roll Me [2:34]
-03. Deep Purple [1:58]
-04. The Jitterbug Waltz [3:12](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01262E6672932E90B8282AB6BA6F8D353C8671E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785105   (69413) от 14.03.2025
-
-Art Pepper - Timeless (1952, 1953) 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way You Look Tonight [3:47]
-02. Nutmeg [3:13]
-03. What's New [3:29]
-04. Surf Ride [2:52](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AD28F0C4A7DF4560928EEAA218A1410A39E4A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

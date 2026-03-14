@@ -1,3 +1,90 @@
+###  Публикация: 1352478   (1001082) от 14.01.2020
+
+VA - Start A New Day: Trance Mix (2020) [MP3|320 Kbps] <Trance, Electro, Progressive, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001082.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Imarek - Save Our Souls (Original Mix)
+002. Goarilla - Honeycake
+003. Metta & Glyde - Limerence (Original Mix)
+004. Elevven And Jes - Heartbeat Tonight(   Читать дальше...   )Жанр: Trance, Electro, Progressive, UpliftingПродолжительность: 13:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8AEB0452BF6A4313CE7D1E447109E6979F33C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351766   (1001049) от 14.01.2020
+
+VA - German Top 100 Single Charts 10.01.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001049.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.The Weeknd - Blinding Lights (3:21)
+2.Tones and I - Dance Monkey (3:29)
+3.Apache 207 - Roller (2:38)
+4.Regard - Ride It (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 05:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5FFF4E5DF4CBE4A8EDAC305B812E154627418A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351808   (1001045) от 14.01.2020
+
+VA - Record Super Chart 620 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001045.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Tones and I - Dance Monkey (DJ Noiz Remix) (4:00)
+2.SAINt JHN - Roses (Imanbek Remix) (3:58)
+3.Meduza feat. Becky Hill & GOODBOYS - Lose Control (2:48)
+4.FILV & Edmofo feat. Emma Peters - Clandestina (2:28)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F98F1FA583FE57CFCA6CE576CDDFEC807953CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352435   (1001044) от 14.01.2020
 
 VA - Beatport Trance Pack #04 (2020) [MP3|320 Kbps] <Progressive Trance>
@@ -733,111 +820,6 @@ VA - Tropiques Dancefloor 2013 (2012) [MP3|320 кб/с]<Dance, Pop,Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C04C5274007D51EBE1528FBF5674F89862615945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600419   (998952) от 08.01.2013
-
-VA - Top 100 Зимний драйв - 2013 (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Ferrari - Te Pego E Pa (Official Remix 2013)
-02. Samo'L - Двигаем Телами
-03. DJ Smash feat. Radio Killer - Save Me Tonight
-04. СтаЯ feat. Murzin Denis - Не Я (Radio Version)
-05. Доминика - Зима
-06. 5sta Family - Без Ума
-07. Misty & Тельман - Только Ты
-08. Вячеслав Самарин - Снег Кружит
-09. Винтаж и ChinKong - Свежая Вода
-10. Animal ДжаZ и МакSим - ЖивиЖанр: PopПродолжительность: 06:05:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600300   (998843) от 08.01.2013
-
-VA - Gangnam Style Hits (2013) [MP3|320 кб/с]<Dance, Club, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998843.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Psy - Gangnam Style (3:39)
-2. Scissor Sisters - Only the Horses (3:42)
-3. Br!k Ft Philly - Get It Poping (Luis Gutierrez Remix) (3:42)
-4. Federico Seven Feat Marti Caos - Night Dreams (Radio Mix) (3:59)
-5. Asaf Avidan & the Mojos - Reckoning Song (Wankelmut Remix) (3:30)
-6. Kyota - Nemo (Original Mix) (6:54)
-7. Andu Angelo Feat Rares & Joshua - Fly With You (Original Mix) (3:40)
-8. Ray Burnz - Fck The Club (Club Mix) (9:18)
-9. Calabria Vs Rob Estell - Nature (Club Mix) (4:41)
-10. Dima Koch - Eurythmic Hook (Original Mix) (5:10)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 05:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C3A075F5F152DE43A9F760C6484A27A64D173C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600726   (998633) от 09.01.2013
-
-VA - Дискотека 2013 Dance Club Vol. 99 (2013) [MP3|320 кб/с]<Dance, Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998633.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Morandi - Everytime (Radio Edit) (4:00)
-2. DAS feat. Лера Туманова (Электра) - Чувствовать Пульс (3:31)
-3. Michael Mind Project feat. Birk Storm - Give Me Love (3:49)
-4. DJ Smash feat. Radio Killer - Save Me Tonight (3:37)
-5. Nelly - Hey Porsche (3:30)
-6. Niku feat. Sardi & DeeJay Iljano - One More Time (Radio Edit) (New Version) (3:41)
-7. Don Omar - Pa Que El Party Se Active (3:03)
-8. Bass Ace feat. DJ Skazka - Начнем Сначала (3:55)
-9. Skrillex - The Reason (4:16)
-10. Timbaland feat. Lil Wanye, Missy Elliott &amp; T-Pain - The Party Anthem (3:57)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 02:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAFBD83DC28BC95BD41FD1BC0B312231906D247
 ```
 
 https://mybot314.ru/tekegram_catalog/

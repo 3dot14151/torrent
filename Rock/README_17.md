@@ -1,3 +1,58 @@
+###  Публикация: 309850   (839255) от 17.03.2011
+
+Slade - The Live Anthology 1972 - 1982, 2CD (2009) [MP3|320 kbps]<Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Glam Rock, Hard RockПродолжительность: 02:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB653C8EDA50603A1A46A442F939E2CFA66F5B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501114   (838122) от 08.10.2021
+
+Santiano - Wenn die Kälte kommt (2021) 2CD [MP3|320 Kbps] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wenn die Kälte kommt
+2. Was du liebst
+3. Heave Ho
+4. Nichts als Horizonte(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0468B5B5FBB0829324BEBF09DBF96E87254FF0F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 310242   (837381) от 18.03.2011
 
 Panic At The Disco - Vices And Virtues (2011) [MP3|192-320 kbps]<Rock>
@@ -691,64 +746,6 @@ Nicolette Larson - Live At The Roxy (1979) Remastered, 2006, Rhino Handmade [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32FDCB17DEC9F451741CFD601C3A5C534ED8FD0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196224   (826042) от 01.01.2018
-
-Lindi Ortega (Линди Ортега) - Untitles (2008) EP [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodbye My Love 3:37
-02. Lonely Day 3:29
-03. Dying Of Another Broken Heart 2:57
-04. So Far Gone 3:19(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09562A16602BFD2C3E084B7BC6F0564C43018C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196191   (825993) от 01.01.2018
-
-Nicolette Larson - In The Nick Of Time (1979) Warner Bros. Records, HS 3370, US [MP3|320 Kbps] <Pop Rock, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Jones 3:19
-02. Just In The Nick Of Time 3:24
-03. Let Me Go, Love 3:49
-04. Rio de Janeiro Blue 3:50(   Читать дальше...   )Жанр: Pop Rock, SoulПродолжительность: 00:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEFF1BAEE365D351091A2A0DA6B5C749A6F4349B
 ```
 
 https://mybot314.ru/tekegram_catalog/

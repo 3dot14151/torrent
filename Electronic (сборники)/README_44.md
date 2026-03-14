@@ -1,3 +1,32 @@
+###  Публикация: 1005208   (834831) от 08.04.2016
+
+VA - Heavens Waiting: Chillout Session (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chillwalker - Heaven's Waiting (Vocal Mix)
+002. Slow Rhythms - Waiting for the Dawn
+003. Lady White - Let Me Try (Ripping Mix)
+004. Steen Thottrup - Save a Little Prayer - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9918FE9A1262BD33A4BAD6118DC20A2C729C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005288   (834721) от 08.04.2016
 
 VA - We Love Club Weapons Vol.2 (2016) [MP3|320 кб/с] <House, Electro House>
@@ -717,35 +746,6 @@ VA - Bigroom Club Hits 2K16 (2016) [MP3|320 кб/с] <House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B776FDC10B8A03FC821A78A2640900387DC560D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005896   (831071) от 10.04.2016
-
-VA - Minimal Pump The Beat (2016) [MP3|320 кб/с] <Minimal Techno, Minimal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zareh Kan - Biss Bass
-02. Paul Schmitz - Eutis
-03. Zareh Kan, Stephen Advance - We Are Just Kids (Fritz Fridulin Remix)
-04. Decavell - Linpinpin(   Читать дальше...   )Жанр: Minimal Techno, Minimal HouseПродолжительность: 04:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D724C4030340880250B6F9013E73F3F79750BC4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

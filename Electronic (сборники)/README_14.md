@@ -1,3 +1,32 @@
+###  Публикация: 1352466   (1001087) от 14.01.2020
+
+VA - Sacred Space: Mushroom Psy Trance Mix (2020) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001087.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Avalon - Universal
+002. Ajja - Bayaya
+003. Heisenberg - Theory Of Everything
+004. Id-S - Heaven Is Not On Earth(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318DB72BD8A94D4CF7E21593B17F01642A8B2F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352468   (1001084) от 14.01.2020
 
 VA - Pansperman: Renegade Techno Master Top 100 (2020) [MP3|320 Kbps] <Techno, Electronic, Minimal, EDM>
@@ -805,35 +834,6 @@ VA - Electronic New Season (2020) [MP3|320 Kbps] <Electronic, EDM, Synthetic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F7B4FE76015EB0ADAB2EFAD0EBCB4591D4186EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353170   (992627) от 17.01.2020
-
-VA - Christmas Carol: Lounge Interior Sound (2020) [MP3|320 Kbps] <Lounge, Chillout, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992627.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pindaric Spleen - Millennia
-002. Beautiful Morning - Marga Sol
-003. Señora - Ritmo Casablanca
-004. Dany Cohiba - Carnival Madness(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 09:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916649CD5EF6F4DD585946054EC64E5473D92BDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

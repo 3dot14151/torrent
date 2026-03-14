@@ -1,3 +1,32 @@
+###  Публикация: 912325   (612514) от 25.06.2015
+
+To/Die/For (To Die For) - Cult (2015) [MP3|320 кб/с]<Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Black
+02. Screaming Birds
+03. Unknown III
+04. Mere Dream(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36419499AB61EB9D7CE1DD7FC7AB80A23080FFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545861   (611032) от 21.04.2022
 
 Udo Dirkschneider - My Way (2022) Cover album [MP3|320 Kbps] <Heavy Metal, Hard Rock>
@@ -730,35 +759,6 @@ HaddaH - Path To Nefrath (2015) EP [MP3|320 кб/с]<Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D1226A62A3C9A8635ED81EE803C9D2BA4D54BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913667   (600426) от 01.07.2015
-
-CellRot - Interstellar Telepathy (2015) [MP3|320 кб/с]<Avant-garde Black Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600426.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Whoreable
-2. Failed Mutation
-3. Kinbaku Bound
-4. Disincarnate Goddess(   Читать дальше...   )Жанр: Avant-garde Black Metal, Industrial MetalПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999FB7DCDF52C77A70C4F04E4A6CEFA92C9D2DC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

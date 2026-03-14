@@ -1,3 +1,148 @@
+###  Публикация: 1788985   (68351) от 02.04.2025
+
+Skrillex - F*CK U SKRILLEX YOU THINK UR ANDY WARHOL BUT UR NOT!! <3 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dance, Dubstep, Trap>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - SKRILLEX IS DEAD [0:52]
+02 - SPITFIRE [1:30]
+03 - WHILE YOU WERE SLEEPING VIP [0:58]
+04 - SLICKMAN [0:45](   Читать дальше...   )Жанр: Dance, Dubstep, TrapПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DEB03C2A8329CE99182C193B0FEF074D65C0800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789066   (68347) от 02.04.2025
+
+Memphis May Fire - Shapeshifter (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaotic [00:02:51]
+02. Infection [00:02:47]
+03. Overdose (feat. Blindside) [00:03:07]
+04. Paralyzed [00:03:15](   Читать дальше...   )Жанр: Post-Hardcore, Alternative MetalПродолжительность: 00:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2496BE663D2F714EB48B15A9EB2C85EC4C95F885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789336   (68341) от 03.04.2025
+
+Allegaeon - The Ossuary Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Technical Death Metal, Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Refraction (0:59)
+02. Chaos Theory (4:32)
+03. Driftwood (4:28)
+04. Dies Irae (3:47)(   Читать дальше...   )Жанр: Technical Death Metal, Melodic Death MetalПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487666979A8223D10AB0793493A0E7B8089FABFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789229   (68338) от 03.04.2025
+
+Aretha Franklin - The Electrifying (1962) Remastered, 2025, ZOROTY [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68338.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. I Surrender, Dear (Remastered) (2:47)
+• 02. Rock-A-Bye Your Baby with a Dixie Melody (Remastered) (2:26)
+• 03. Operation Heartbreak (Remastered) (2:59)
+• 04. I Told You So (Remastered) (2:45)(   Читать дальше...   )Жанр: Soul, BluesПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348B2E322D63F76DCDAFD2DA0E0DA2929CAB2D05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789252   (68336) от 03.04.2025
+
+Butcher Brown - Letters From The Atlantic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Garage punk, jazz funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Seagulls (00:01:43)
+02 - Unwind (00:03:58)
+03 - Backline (00:03:09)
+04 - Right Here (00:01:31)(   Читать дальше...   )Жанр: Garage punk, jazz funkПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258F01FE8CD4AB40070A81ECB21E455B0B2A083F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789333   (68331) от 03.04.2025
 
 Smith/Kotzen - Black Light / White Noise (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -599,151 +744,6 @@ Jerome Godboo - Deep Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:722D3011A907E7E28FD1D22F464D21A13B2FB143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789776   (68228) от 05.04.2025
-
-The Devil Makes Three - Spirits (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lights On Me (3:52)
-02.  Spirits (3:39)
-03.  Ghosts Are Weak (3:08)
-04.  Half As High (2:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:201A9CF408085C616501EB74AF7D3044BAAAC01C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789754   (68227) от 05.04.2025
-
-Natacha Lycurgue - Falling Petals - The Fearful-Avoidant's Discard (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The burden you choose (3:26)
-02.  We Knew Better (2:55)
-03.  Beware of the Whisper (3:12)
-04.  Your Dark Passenger (4:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04AFFB95FE45D7605BD78A6EC7BC175F91853E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789431   (68222) от 06.04.2025
-
-Bleed from Within - Zenith (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Groove Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violent Nature [00:03:55]
-02. In Place of your Halo [00:03:43]
-03. Zenith [00:04:18]
-04. God Complex [00:04:05](   Читать дальше...   )Жанр: Melodic Death Metal, Groove Metal, MetalcoreПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FEC27940A0B7986DA9DB2F9C198D80F9079EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789908   (68220) от 06.04.2025
-
-Sheila - A L’avenir (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Chanson>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Dilemne
-02 – Les amoureux
-03 – Rac‚e
-04 – Courir(   Читать дальше...   )Жанр: Pop ChansonПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2ACF01705CE10C504AD96914F814E5E61DA675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783158   (68217) от 06.04.2025
-
-Fatal Embrace (Germany) - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fatal Embrace - трэш-метал-группа из Берлина, Германия, образованная в начале 1993 года под названием Nosferatu.2000 - The Ultimate Aggression
-2002 - Legions Of Armageddon
-2006 - Dark Pounding Steel
-2010 - The Empires Of InhumanityЖанр: Thrash MetalПродолжительность: 05:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD947D813C35DC373CEE754CA10FFBE71E514546
 ```
 
 https://mybot314.ru/tekegram_catalog/

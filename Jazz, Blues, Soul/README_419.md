@@ -1,3 +1,177 @@
+###  Публикация: 1587086   (214039) от 29.10.2022
+
+Martial Solal & The Danish Radio Jazz Orchestra - Contrastes: The Jazzpar Prize (2000) Storyville Records [FLAC|Lossless|image + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DRJO No.1 [7:46]
+02. Ritournelle No.1 [9:41]
+03. Monster Piece [7:22]
+04. Summertime [7:35](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF321502E5630475D0D9629652C0FBBEA0064B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344156   (213860) от 09.12.2019
+
+John Colianni - Live at Maybeck Recital Hall, Vol. 37 (1995) Concord Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue and Sentimental [3:33]
+02. Stardust [5:57]
+03. What's Your Story Morning Glory? [4:51]
+04. It Never Entered My Mind [5:32](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597DE5643DECA7C95700E96C6AEF0F79A514F6DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344164   (213856) от 09.12.2019
+
+T.K. Blue (Talib Qadir Kibwe) - Eyes of the Elders (2000) [FLAC|Lossless|image + .cue] <Post-Bop, African Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wee (Best) - 5:04
+02. Village Council - Interlude 1 (Kibwe) - 0:43
+03. Dance of the Nile (Kibwe) - 5:43
+04. Frozen Mist (Smith) - 5:17(   Читать дальше...   )Жанр: Post-Bop, African JazzПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F47783C50CFC3F5C637AAA94CECFA28C3A365A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344150   (213803) от 09.12.2019
+
+The Buck Clayton Legacy Band - Claytonia (2011) [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трэклист:
+1. Outer Drive - 5.29
+2. I'll Make Believe - 6.21
+3. Party Time - 6.10(   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00: 54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4552CE7D0CDD29D05BFCCE3E575A7A26FC0931C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653918   (213801) от 18.08.2023
+
+Sonny Criss - Intermission Riff (1951) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intermission Riff [6:38]
+02. How High The Moon [12:06]
+03. Perdido [14:03]
+04. Body And Soul [5:01](   Читать дальше...   )Жанр: BopПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16364A1DE56D36D9D364188E03562636928F315F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653863   (213791) от 18.08.2023
+
+Martins Aneiros Band - Rain (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boring Gentleman (3:03)
+02. I Can't Do That (3:45)
+03. Rain (4:54)
+04. You're Liar (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E3A622C24D9872DF57F3675C2215D393AE206F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653864   (213785) от 18.08.2023
 
 Mikey Junior - Blues in the Barn, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Kurt Edelhagen featuring Ken Wray - Icons of Jazz: Edelhagen meets Ken Wray (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2619DFF0BFBB615B3E27892E503AE7E75F11773B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559809   (213044) от 27.06.2022
-
-Patrick McLaughlin - Just Like the Record (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Sky (3:10)
-02. Bar Room Dream (3:44)
-03. First and Last of Me (2:52)
-04. So Alive (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD99EDDF33E4AAF97110F566183C6DB1E5E95422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559807   (213043) от 27.06.2022
-
-Kat Riggins - Progeny (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk On (3:38)
-02. Sinkin Low (3:03)
-03. Espresso (3:35)
-04. Got to be God (4:05)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44E226860CC2EC129748BEACA5B2C7DD0F36402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560560   (212957) от 30.06.2022
-
-Melody Gardot & Philippe Powell - Entre eux deux (2022) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Foolish Heart Could Love You
-02. What of Your Eyes
-03. Plus fort que nous
-04. A la Tour Eiffel(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16FD73F8388457FCB772FEEAE3C1185470A8DA20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226445   (212608) от 13.07.2022
-
-Danielle Nicole - Дискография: 2 альбома, 1 ЕР (2015-2018) [FLAC|Lossless|image + .cue | tracks + .cue] <Blues Rock, Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниэль Николь (Даниэль Николь Шнебелен) - американская певица, музыкант, несомненно, одна из талантливейших современных блюзовых исполнительниц  из Канзас-Сити, штат Миссури, США. Настоятельно рекомендуется!--------------------------
-
-01. You Only Need Me When You're Down (Radio Edit) (2:45)
-02. Starvin' for Love (3:30)(   Читать дальше...   )Жанр: Blues Rock, Blues, SoulПродолжительность: 02:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD195CE6AB759F21078BED6B579BFCFDF006B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831212   (212449) от 28.10.2025
-
-Nancy Wilson - Four Classic Albums Plus (1959 - 1962) 2CD, 2019, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Your Love For Me [2:45]
-02. Teaneck [4:32]
-03. Never Will I Marry [2:20]
-04. I Can't Get Started [4:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C52C08B6643CA0BFC77AF0654A31D051263B84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831237   (212447) от 28.10.2025
-
-The Modern Jazz Quartet - Four Classic Albums (1953 - 1957) 2CD, 2008, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Versailles [3:28]
-02. Angel Eyes [3:53]
-03. Fontessa [11:16]
-04. Over The Rainbow [3:57](   Читать дальше...   )Жанр: CoolПродолжительность: 02:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02F77B626B4B59B70015552D42298F8ABE0BC22
 ```
 
 https://mybot314.ru/tekegram_catalog/

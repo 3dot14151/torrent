@@ -1,3 +1,61 @@
+###  Публикация: 1064434   (426251) от 20.10.2016
+
+Papadosio - Pattern Integrities (2016) EP [MP3|320 Kbps] <Experimental Electronic Rock, Instrumental Jam Band, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Each and Every Wave
+02. Oblivion
+03. Threes
+04. Vactrollio(   Читать дальше...   )Жанр: Experimental Electronic Rock, Instrumental Jam Band, Progressive RockПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261A065F4893A1F34A7D175B6307BEAD19A5319D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572138   (425600) от 25.08.2022
+
+Kerry Livgren - Q.A.R. (2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Intelligence Theory
+02. One out of One
+03. Everyone's Home
+04. Above This Night(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1710619D8D599224AEA8ED2F2E9C1F982EF6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411996   (423166) от 27.09.2020
 
 Ray Thomas - Words & Music (2020) [MP3|320 Kbps] <Progressive Rock>
@@ -694,64 +752,6 @@ Omega - Beat (2022) 1966-68, Compilation [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C48405D51E3646BF0C0E9B0D5BAA1A312FC31D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413097   (412026) от 02.10.2020
-
-Methodica - Clockworks (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Trick (extended Version) (07:45)
- 02. When I Fell Out Of The Sky (07:07)
- 03. The Door To You (07:42)
- 04. Shooting Stars (03:33)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 01:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD429385D6D6ED270142EA5D71C9D0624FFA6CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413034   (411739) от 02.10.2020
-
-Queen + Adam Lambert - Live Around The World (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411739.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tear It Up (Live At The O2, London, UK, 02/0718)
-2. Now I'm Here (Live At Summer Sonic, Tokyo, Japan, 2014)
-3. Another One Bites The Dust (Live At Summer Sonic, Tokyo, Japan, 2014)
-4. Fat Bottomed Girls (Live At The American Airlines Center, Dallas, USA, 2019)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3EE8C1B9E776A045654AA203C880D7E320FD644
 ```
 
 https://mybot314.ru/tekegram_catalog/

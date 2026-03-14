@@ -1,3 +1,90 @@
+###  Публикация: 1215453   (758220) от 26.03.2018
+
+Steve Parker - Interplanetary Dust LP (2018) Planet Rhythm [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phase One (06:07)
+ 02. Deep Space Odyssey (06:09)
+ 03. Interplanetary Dust (06:46)
+ 04. Magnetic Star (06:01)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37D8F178564F50F51CE49F1D08052B598093A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215595   (758217) от 26.03.2018
+
+VA - Back To Love 03.03 (2003) [FLAC|Lossless|tracks] < House, Disco, Hip-Hop, Acid House, Garage House >
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Frankie Knuckles - The Whistle Song (EK 12'' Mix) (7:02)
+02.Lisa Stansfield - People Hold On (New Jersey Jazz Mix) (6:48)
+03.Sydney Youngblood - If Only I Could (Extended Version) (6:30)
+04.Crystal Waters - Gypsy Woman (She's Homeless) (Basement Boy 'Strip To The Bone' Mix) (6:52)(   Читать дальше...   )Жанр: House, Disco, Hip-Hop, Acid House, Garage HouseПродолжительность: 02:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527A98B681BD910C56788CFF5FFE7BD334B16CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215451   (758111) от 26.03.2018
+
+Luke Vibert - Arcadia (2018) De:tuned [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balath (03:14)
+ 02. pHlacid (06:28)
+ 03. Arcadia (06:28)
+ 04. Worry Ledge (04:35)Жанр: Electro, Acid, TechnoПродолжительность: 00:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2259CCC457C4E31BEE5C12ACB58D48160CB1F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018217   (757629) от 19.05.2016
 
 Tripswitch - Vagabond (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Progressive House>
@@ -651,93 +738,6 @@ David August - D'Angelo (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A08D5F951836D29675927AA1881A7FB112C27A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217508   (742403) от 05.04.2018
-
-Substak - Deeper Walk (2018) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early Walk (05:17)
-02. Late Walk (06:09)
-03. Outer Walk (08:38)
-04. Short Walk (05:24)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27607F682AEE826F5E4A1786FEDDC39111A922D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021199   (742315) от 28.05.2016
-
-DAVI - Metropolis EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metropolis (05:59)
-02. Change Your Life (06:51)
-03. None of Us (07:05)
-04. Change Your Life (Part. 2) (07:06)Жанр: Deep House, Tech HouseПродолжительность: 00:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980F097B17060C4B9F34665F110C7F0E76C9F898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021134   (742308) от 28.05.2016
-
-DAVI - Metanoia EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metanoia (07:28)
-02. Ordinary Nightmares (07:11)
-03. Metanoia (Club Mix) (06:53)
-04. Illusion (06:58)Жанр: Deep House, Tech HouseПродолжительность: 00:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECAB92B313E2AA89868ED64C07F0467B6E37886
 ```
 
 https://mybot314.ru/tekegram_catalog/

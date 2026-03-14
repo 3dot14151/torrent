@@ -1,3 +1,177 @@
+###  Публикация: 1049005   (545667) от 03.09.2016
+
+VA - Jazz Funk Instrumentals (Funky Soul Jazzy Instrumental Acid Tracks) (2016) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Mighty Wax - Manhattan Skyline (feat. Piero Odorici) 5:25
+02. Black & Brown - Tribal Boogaloo 3:38
+03. Sam Paglia - Lo bianco theme 3:43
+04. Jestofunk - Close to My Heart 4:44(   Читать дальше...   )Жанр: JazzПродолжительность: 02:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA26B987778A12CB9F75340ECDB574B32941C6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310756   (545340) от 26.06.2019
+
+Xose Miguelez - Ontology (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ontology [4:32]
+02. Chasing Myself [4:21]
+03. Frozen Roses [3:40]
+04. Sweet Delia [7:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28CAF682E5E1DB877DFA7E42B429B71D618D8BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049289   (544979) от 04.09.2016
+
+Hank Crawford - Mr. Blues (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mr. Blues [03:53]
+ 02.On A Clear Day (You Can See Forever) [03:08]
+ 03.Hush Puppies [03:28]
+ 04.Danger Zone [03:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323884CFBF6FBDDEF1B8F12333949A0A91E269B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048954   (544970) от 04.09.2016
+
+Iiro Rantala, Lars Danielsson, Peter Erskine - how long is now? (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage     (04:21)
+02. How Long Is Now      (04:02)
+03. Snapchat      (04:13)
+04. Taksim by Night      (04:54)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213CBC2E44506D8B73F552562DA5649DA38C7A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049284   (544926) от 04.09.2016
+
+Teddy Wilson And His Piano - Intimate Listening (1954) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The One I Love [03:01]
+ 02.Darn That Dream [02:18]
+ 03.Tea For Two [03:20]
+ 04.Oh, Lady Be Good [03:02](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Piano JazzПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8DD388311E5FDE4FF1503CB424CF5FA3A29538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049308   (544922) от 04.09.2016
+
+Rob Tognoni - Energy Red (2012) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take you home now     [05:41]
+02. Boogie don't need no rest     [04:04]
+03. Fire from hell     [03:31]
+04. Someone to love me     [05:24](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6919007CF68973E92017E7979BCD54CAA9F379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049114   (544921) от 04.09.2016
 
 John Scofield - Still Warm (1986) Gramavision[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
@@ -577,180 +751,6 @@ Ed Bickert - Ed Bickert (1975) Remaster, 2013, Ratspack Records[FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:625778EEEB1F874E303B3BBD1DC3AB573FE45A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239182   (542431) от 03.08.2018
-
-The Record Company - All Of This Life (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life To Fix (03:59)
-02. I'm Getting Better (And I'm Feeling It Right Now) (03:16)
-03. Goodbye To The Hard Life (04:12)
-04. Make It Happen (04:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20258EEAF83B7A628924C9E2017807B60CB364F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239106   (542425) от 03.08.2018
-
-Boz Scaggs - Out Of The Blues (2018) Exclusive Edition [FLAC|Lossless|tracks + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock and Stick
-02. I've Just Got to Forget You
-03. I've Just Got to Know
-04. Radiator 110(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3B116AF5C53F20BACA992F76CF0E085EAC1BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049886   (542405) от 06.09.2016
-
-Junior Mance - Live At The Top (Guest Artist: David Newman) (1968) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Before This Time Another Year [09:34]
- 02.I Wish I Knew How It Would Feel To Be Free [09:40]
- 03.That's All [09:13]
- 04.Turning Point [07:52]Жанр: Hard BopПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B281E5C4649C906B24F7A8ACF8322F03D63FCEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049496   (542402) от 06.09.2016
-
-Jack DeJohnette - Zebra (1985) Pan Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Free Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.NToro I [08:41]
- 02.Jongo [04:54]
- 03.Aho [09:43]
- 04.Kpledzo [07:59](   Читать дальше...   )Жанр: Post-Bop, Free FunkПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0710CFBBB0923CE81FA48EA71DEA3554FA257EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049583   (542381) от 06.09.2016
-
-Ivan 'Boogaloo Joe' Jones - Snake Rhythm Rock & Black Whip (1972, 1973) 1992, BGP[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hoochie Coo Chickie [05:28]
- 02.Snake Rhythm Rock [05:31]
- 03.The First Time Ever I Saw Your Face [05:49]
- 04.He's So Fine [06:33](   Читать дальше...   )Жанр: Jazz-Funk, Hard BopПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2056C423140E39DEBA902B6BFFC8C4C732B8516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049503   (542376) от 06.09.2016
-
-Charlie Hunter - Everybody Has A Plan Until They Get Punched In The Mouth (2016) GroundUP Music[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Modern Jazz, Jazz Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Everybody Has A Plan Until They Get Punched In The Mouth [05:02]
- 02.(Looks Like) Somebody Got Ahead Of Schedule On Their Medication [07:33]
- 03.Leave Him Lay [04:03]
- 04.We Don't Want Nobody Nobody Sent [05:32](   Читать дальше...   )Жанр: Jazz-Funk, Modern Jazz, Jazz BluesПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBD0580504689EAD81B591950198ED03E410948
 ```
 
 https://mybot314.ru/tekegram_catalog/

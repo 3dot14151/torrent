@@ -1,3 +1,118 @@
+###  Публикация: 1782033   (70077) от 26.02.2025
+
+Saint Asonia - Studio Albums (3 releases) (2015-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Hard Rock, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saint Asonia (стилизация в оригинале SΔINT ΔSONIΔ) — канадская рок-группа, основанная Адамом Гонтье, бывшим вокалистом группы Three Days Grace и гитаристом Staind Майком Мьюшаком.2015 - Saint Asonia
+2019 - Flawed Design
+2022 - Introvert / ExtrovertЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 02:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1845FB9BDA6D0DC64134E27DA18CBDB1F1170EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782311   (70020) от 28.02.2025
+
+Sirrah (Poland) - Studio Albums (3 releases) (1996-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Death/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sirrah - польская метал-группа, играющая в стиле дум\дэт-метал, образовавшаяся в городе Ополе в 1992 году1996 - Acme
+1997 - Did Tomorrow Come
+2013 - Thrill You (Single)
+.Жанр: Gothic/Death/Doom MetalПродолжительность: 01:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827837427EC9DB8514073186E00439577922ABC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782447   (69967) от 01.03.2025
+
+Untimely Demise - Studio Albums (6 releases) (2009-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Untimely Demise - канадская метал-группа из Саскатуна, Саскачеван.2009 - Full Speed Metal (EP)
+2010 - City Of Steel
+2013 - Systematic Eradication
+2016 - Black WidowЖанр: Thrash MetalПродолжительность: 03:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CEF3EEEC755143695A0687DFE87B2F8B96A4D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782683   (69921) от 02.03.2025
+
+Silent Stream of Godless Elegy (SSoGE) - Studio Albums (9 releases) (1996-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death/Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Silent Stream of Godless Elegy - фолк-метал группа из Чехии, сформированная в 1995 году.1996 - Iron
+1998 - Behind the Shadows
+2000 - Themes
+2004 - Relic DancesЖанр: Doom/Death/Folk MetalПродолжительность: 07:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949EE514903372029284757FEB44927B32FD143B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782880   (69898) от 02.03.2025
 
 Harlott - Studio Albums (5 releases) (2012-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
@@ -623,122 +738,6 @@ A4 Bleed(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F46037E3858D6AAE0DB92A4B0851C5E6334BD124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785699   (69194) от 17.03.2025
-
-Madonna - Star Collection vol.2 (2000) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Pop, Synth-pop, Dance-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Beautiful Stranger
-02. Frozen
-03. Secret(   Читать дальше...   )Жанр: Pop, Synth-pop, Dance-popПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C0C4EE524952A83EF80D462A488C9CF55146D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785736   (69169) от 17.03.2025
-
-Sentenced - Frozen (1998) Reissue, 2016, Century Media [FLAC|24/192|tracks|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69169.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Kaamos
-A2 Farewell
-A3 Dead Leaves
-A4 For The Love I Bear(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76ECB60708AFB9489D029D806546FE47AFB94CE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785785   (69150) от 17.03.2025
-
-Sentenced - The Funeral Album (2005) Reissue, 2016, Century Media [FLAC|24/96|tracks|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69150.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 May Today Become The Day
-A2 Ever-Frost
-A3 We Are But Falling Leaves
-A4 Her Last 5 Minutes(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8EF4E5C3C3B175BABD8C50DF9A4F4E44404126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785901   (69139) от 18.03.2025
-
-W.A.S.P. - The Last Command (1985) [DSD128|24/44,1|tracks|Vinyl-Rip] <Heavy Metal, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69139.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Wild Child
-A2. Ballcrusher
-A3. Fistful of Diamonds
-A4. Jack Action(   Читать дальше...   )Жанр: Heavy Metal, Glam MetalПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A0EB40604C3E07C0FA8F1A0415D4C507E54DB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

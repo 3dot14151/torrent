@@ -1,22 +1,25 @@
-###  Публикация: 1022496   (729002) от 02.06.2016
+###  Публикация: 1127772   (731157) от 22.04.2017
 
-Место встречи. Последняя Надежда Украины?! (01.06.2016) SATRip
+Clark Terry - Clark Terry's Big-B-A-D-Band: Live! At Buddy's Place (1976) Universe [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729002.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:58:17
+01. Modus Operandi [09:38]
+02. Come Sunday [05:28]
+03. Gap Sealer [05:48]
+04. Jeep's Blues [06:29](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:49:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F93BB5548D5743EA39D2C2E93B1A22FA27161D8
+magnet:?xt=urn:btih:828223038A621EBB4D12FEEF17DF68733A5B2FED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,231 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022353   (729001) от 02.06.2016
+###  Публикация: 1127480   (731156) от 22.04.2017
 
-VA - Sensual Steps: Relax Compilation (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+Футбол. Лига Европы УЕФА 2016-2017. 1/4 финала. 2-й матч. Бешикташ (Турция) – Лион (Франция) (20.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731156.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 апреля 2017, четверг. 22:05 МСК
+Лига Европы УЕФА 2016-2017. Плей-офф. 1/4 финала. 2-й матч
+Бешикташ (Стамбул, Турция) – Лион (Лион, Франция)
+Стадион: Водафон Арена (Стамбул, Турция), вместимость: 43500(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543B901DE2422D8458FDEADE83CF0E0F665D28DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127655   (731155) от 22.04.2017
+
+Valery Ponomarev & Feelin's (2006) Монолит [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valery Ponomarev [01:14]
+02. Feelin's (I) [04:35]
+03. Cat Dancing on the Piano [04:53]
+04. Take 7 [03:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAFC6E9430C19673E81B0D889603095583F6A5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127600   (731154) от 22.04.2017
+
+Kenny Barron - Sambao (1992) [WavPack|Lossless|image + .cue] <Latin Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731154.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sambao (6:21)
+2. Yalelel (5:51)
+3. Bacchanal (6:38)
+4. Belem (5:43)(   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E5D8BDAA64649508C2115F0CF27D81468F9400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127673   (731153) от 22.04.2017
+
+Kahil El'Zabar's Ritual Trio - Africa N' da Blues (2000) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ka-Real (Take 2) [12:39]
+02. Africanos / Latinos [09:53]
+03. Miles' Mode [07:22]
+04. Autumn Leaves [11:27](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2377EA61F65D6DF52E0B70FDD4E6439C1EF554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127621   (731152) от 22.04.2017
+
+VA - Big Room Bass Vol.2 (2017) [MP3|320 Kbps] <Trance, Tech Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Frainbreeze & Thoba - Border Lines (Radio Edit)  3:16
+02.  Roman Messer & Denis Sender - Don't Give Up (Radio Edit)  3:05
+03.  Aelyn - Game Over (Ruslan Radriges Radio Edit)  3:22
+04.  Feel - The Razor (Hydrogenio Radio Edit)  3:41(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57348DC55B30FA70947D9AF3B8A9BAE5C790C2B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127563   (731151) от 22.04.2017
+
+VA - Trancespotting Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tranc Eye - When The Sun Goes Down (Miroslav Vrlik Radio Cut)  3:19
+02.  Puma Scorz - Amanita (Radio Cut)  3:30
+03.  Martin Everson & Bprime - Waterfall (Radio Cut)  3:47
+04.  George Harrold - The Gateway (Radio Cut)  4:14(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AFDA3A9F975C19D9FF393398468C91C3C3C2896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127599   (731150) от 22.04.2017
+
+VA - Trance With Sunglasses (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jan Jacarta - Wormhole (Jan Jacarta Remix)  6:35
+02.  Art Of Trance - Haagen Daaz (Remastered)  7:48
+03.  Physical Dreams - Lost In Time  8:21
+04.  JayB - Desire (Dub Version)  6:44(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B789D299993ECF2DFFFE50964F9896190EB6236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127753   (731149) от 22.04.2017
+
+VA - Сотка популярных весенних хитов версия № 6 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729001.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Maremare - That Beach Is Mine
-002. Diamans - Reach Heavens (Chillout Mix)
-003. Don Gorda Project - Sunbrella
-004. Seven24 - The Journey (Chris Wonderful Remix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:44:22
+001. Инфинити Feat. Гена Дудин - Воланчик 3:18
+002. Илья Гуров - Геолокация 3:14
+003. Егор Диких - Маэстро 3:55
+004. Владимир - Голливуд 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD9A059C1787C17CF9D49F0C64E46FDA668D86D0
+magnet:?xt=urn:btih:5A7B603CF98C64D994E059185CFFE8478918EE45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022498   (729000) от 02.06.2016
+###  Публикация: 1127577   (731148) от 22.04.2017
 
-Withem - The Unforgiving Road (2016) Japanese EdItion [FLAC|Lossless|image + .cue] <Progressive Metal>
+VA - Black Hole House Music 04-17 (2017) [MP3|320 Kbps] <House>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729000.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ...Intro
-02. Exit
-03. In the Hands of a God
-04. The Pain I Collected(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:53:27
+01.  Tyng & KMRN - Cracks On The Wall (feat. Shadisha)  6:27
+02.  James DX - Maximum Effort (Original Mix)  6:01
+03.  RBYN - Angel (Metrush Remix)  3:15
+04.  Bobina & May-Britt Scheffer - Born Again (Filatov & Karas Extended Remix)  4:14(   Читать дальше...   )Жанр: HouseПродолжительность: 01:25:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C524C515D6E7CF02B2D3B0E7FCF73BFB01BDCCCA
+magnet:?xt=urn:btih:A939B9F601617750A4C40F6273D287A53C2BB67D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +288,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022622   (728999) от 02.06.2016
+###  Публикация: 1127667   (731147) от 22.04.2017
 
-Константин Носилов | Рассказы для детей (1914) [PDF]
+Новая технология изготовления нанопроводников значительно облегчит процесс записи деятельности отдельных нейронов
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728999.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_731147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+Исследовательская группа, возглавляемая учеными из Калифорнийского университета в Сан-Диего, разработала новую технологию изготовления матриц из нанопроводников, использование которой позволит произвести запись электрической деятельности отдельных нейронов в самых мелких деталях. А практическое применение таких матриц наноэлектродов и нанопроводников позволит в будущем (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66D50A99601A697B051B7B8CD2759CC129CC9BB3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,85 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022338   (728998) от 02.06.2016
+###  Публикация: 1127731   (731146) от 22.04.2017
 
-Таня Лебединская - Ты мною дорожишь (2001) [MP3|256 кб/с] <Chanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Глашатаи любви
-02. Быть второй
-03. Шахерезада
-04. Ты мною дорожишь(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CADCF30513A63FB868151C28F0CD9345B4FF2CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022485   (728997) от 02.06.2016
-
-VA - LUXEmusic Топ Май (2016) [MP3|128-320 кб/с] <House Music, Mash Up, Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker - Faded (Alexx Slam Leo Burn ft. TPaul Sax Mix)
-02. Andrew Rai & Anton Liss ft. Cotry - Wonder (Original Mix)
-03. Andrew Rai x No Hopes feat. Veselina Popova - At Night (Original Mix)
-04. Andrey Exx & Troitski feat. Diva - Touch Me (No Hopes & Sharapoff Remix)(   Читать дальше...   )Жанр: House Music, Mash Up, PopПродолжительность: 02:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C856C9F8DA71A2818B4BB9E56E8B67DE7CBBBC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022450   (728996) от 02.06.2016
-
-VirtualHostX 7.1.1 [En]
+Nice Clipboard - a cloud synced clipboard manager 1.4.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728996.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VirtualHostX - приложение, которое помогает вам организовать виртуальный хостинг на вашем Mac. Это идеальное решение для Web-дизайнеров, которым необходимо работать сразу над несколькими проектами. С VirtualHostX вы можете легко создавать и управлять виртуальными хостами с помощью всего лишь нескольких щелчков мыши.
+Nice Clipboard - Отличная реализация менеджера буфера обмена
+Nice Clipboard - Чистый, привлекательны и простой в использовании.
 
-После установки программы достаточно просто добавить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 июня 2016Разработчик: Click On Ideas LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+Nice Clipboard - менеджер буфера обмена, который всегда ждет вас под значком Menubar на вашем Mac или на главном экране на вашем iPhone. Он синхронизируется с помощью iCloud между вашими компьютерами Mac и  iOS устройствами и написан с использованием (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 апреля 2017Разработчик: Jedrzej GronekПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:604EA4B39A5B05659E7F72EE88CEE07995F74A45
+magnet:?xt=urn:btih:D77E629E20586BA7EA272081747DA097B24C4BE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,28 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021681   (728995) от 02.06.2016
+###  Публикация: 1127747   (731145) от 22.04.2017
 
-Deem Beat - Last Call (Mix) (2016) [MP3|320 кб/с] <Deep House, Tech House, Electronica>
+VA - Звездная тусовочка. Отдыхаем с лучшими хитами. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728995.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Pax - Alive (Original Mix)
-2. Aki Bergen & Richter feat. Luben - If (Original Mix)
-3. Pauke Schaumburg - Exchange (Original Mix)
-4. Gundelach - Fjernsynet (Fur Coat Remix)(   Читать дальше...   )Жанр: Deep House, Tech House, ElectronicaПродолжительность: 1:00:47
+001. Диана Громова - Не Хочется 2:58
+002. Mike Perry Feat. Casso - Inside The Lines 3:25
+003. Катерина Sky - Мне Тебя Не Хватает 3:21
+004. Sigala & Digital Farm Animals - Only One 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2490A9C3046B9DF5AFEC3EC9B00EEEF5BFDACBA0
+magnet:?xt=urn:btih:7E9A6761CB1FA8CD3400D41DD14B87F25ACE8A0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -223,28 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022507   (728994) от 02.06.2016
+###  Публикация: 1127755   (731144) от 22.04.2017
 
-Iron Savior - Titancraft (2016) Japanese EdItion [FLAC|Lossless|image + .cue] <Speed Metal, Power Metal>
+VA - Лучший весенний хит. Версия № 11 (2017) [MP3|256 Kbps] <Pop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728994.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Under Siege (Intro)
-02. Titancraft
-03. Way of the Blade
-04. Seize the Day(   Читать дальше...   )Жанр: Speed Metal, Power MetalПродолжительность: 01:05:05
+001. Швец - Фиолент 2:27
+002. Тина Кароль - Lost In The Rain 3:18
+003. Ольга Бузова - Привыкаю 3:49
+004. Катерина Корс - Так Близко 3:49(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1726C954D0ADC862E937A9BB4C5606F2E89A46E
+magnet:?xt=urn:btih:BDE0AD65191035BF58AF24E60E4B08802BB382A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,28 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530514   (728993) от 11.02.2022
+###  Публикация: 1127685   (731143) от 22.04.2017
 
-Ben Nicky - Live @ Hellfire, Victoria Warehouse Manchester, United Kingdom (2022-02-05) [MP3|320 Kbps] <Trance, Hard Dance>
+VA - Living Room’s Just Good Mood (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728993.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fred again.. & The Blessed Madonna - Marea (We've Lost Dancing) (Billy Gillies Rework)
-02. D-Block & S-te-Fan - Takin' Off (DJ Isaac Remix)
-03. Underworld & Ashley Bradbury vs. Chris Schweizer - Choose Control (Ben Nicky Mashup)
-04. Nutcase22 - Captain (Restricted Edit)(   Читать дальше...   )Жанр: Trance, Hard DanceПродолжительность: 00:58:09
+01. Worldtraveller - Deep Ocean Dive [00:03:38]
+02. Art Stoner - Breakwater [00:07:35]
+03. Living Room - Living Jazz [00:04:22]
+04. Omegaman - Paradiso [00:04:15](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:39:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBDD0B32AFD864995CDB526A2044F1457EFDFB41
+magnet:?xt=urn:btih:EFD826ECB632F0F31EADB602171875AAED41A8D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,220 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530419   (728992) от 11.02.2022
+###  Публикация: 1127455   (731142) от 22.04.2017
 
-Meganebu! | Клуб очкариков [2013, TV, 12 эп.] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они – не такие, как все, и таинственное устройство с дужками и стеклами для них вовсе не оптический инструмент, не модный аксессуар и даже не фетиш массовой культуры. Это - знак Пути, высокого предназначения и принадлежности к новому, совершенному человечеству! Именно так думает 17-летний Акира Сома, создавший в Гималайской технической школе «клуб очкариков», который (   Читать дальше...   )Производство: Студия Studio Deen / スタジオディーンЖанр: повседневность, комедияРежиссер: Ямамото СобиПеревод: Nika ElrikЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBF64719E19C674C00191CD1C70DCF8B4CDFE8B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530475   (728991) от 11.02.2022
-
-Enigma - Voyageur (2003) [AAC|~314 Kbps] <Electronic, Abstract, Downtempo, Ambient>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_728991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From East to West (4:11)
-02. Voyageur (4:36)
-03. Incognito (4:23)
-04. Page of Cups (7:01)(   Читать дальше...   )Жанр: Electronic, Abstract, Downtempo, AmbientПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530587   (728990) от 11.02.2022
-
-Побережье Бретани / La Bretagne cote mer (2020) HDTVRip [H.264] [FR / RU Sub]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_728990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необузданная и таинственная Бретань обладает необыкновенной притягательной силой. Уютные порты, крошечные острова, обточенные ветрами скалы, загадочные менгиры... Все это вызывает восхищение туристов. Этот край с разнообразными пейзажами то радует нас тропическим зноем, то пугает буйством океана. Бретонская самобытность самоутверждается на красочных шумных фестивалях. (   Читать дальше...   )Производство: Франция, TV5MONDE Europe HDЖанр: документальный, история, путешествияРежиссер: Эрик БакосПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (неотключаемые, Hiventy)Продолжительность: 00:51:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530561   (728989) от 11.02.2022
-
-Hanne Boel - Compilation (2022) [MP3|320 Kbps] <Pop Rock, Pop Soul>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_728989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landet
-02. Uden Forsvar
-03. Give Up
-04. Let's Go Out Tonight(   Читать дальше...   )Жанр: Pop Rock, Pop SoulПродолжительность: 01:46:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530568   (728988) от 11.02.2022
-
-В центре бури / Inside the Storm (2018-2022) WEBRip [H.264/1080p-LQ] (серии 1-11)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал о взлетах и падениях крупнейших мировых компаний Lehman Brothers, Barings Bank, Kodak и Kingfisher Airlines, судьбоносные решения и роковые ошибки в мире их бизнеса. Используя архивы новостей, эксклюзивные интервью, видео и привлекательную графику, мы раскрываем новые подробности о личностях, экономических силах и решениях, связанных с крахом (   Читать дальше...   )Производство: США, Toggle FilmЖанр: Документальный, исследование, историяРежиссер: Лео ГиззиПеревод: многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F8D2283DDCC06DAACA44D6A17A9193D439F04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530469   (728987) от 11.02.2022
-
-Glitchmachines - Convex 1.3.1 VST (x64) Retail [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_728987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Convex — это процессор мультиэффектов, предназначенный для облегчения создания искаженных артефактов, синкопированных паттернов и искаженных цифровых текстур.
-На основе трех классических эффектов; Многорежимный фильтр, регулятор высоты тона и задержка, Convex генерирует динамические вариации входного сигнала путем перекрестного затухания между двумя экземплярами (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530483   (728986) от 11.02.2022
-
-Girish And The Chronicles - Hail To The Heroes (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Primeval Desire
-02. Children Of The Night
-03. I'm Not the Devil
-04. Love's Damnation(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E754FC543380EFAF725DD34B8E7CAE98231C6B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530592   (728985) от 11.02.2022
-
-VA - Maretimo Chill Radio - Best of Vol. 1 - Positive Summer Vibes (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+VA - Ferry Corsten Presents Corstenas Countdown April (2017) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728985.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In Credo – Siesta Del Sol (Laid Back Summer remastered Cut) (04:57)
-02. Cafe Americaine – Solitude Charmante (Level One remastered mix) (04:21)
-03. Miss Lopez – Jeso Creadu (Paraiso Verda mix) (05:32)
-04. Vladi Strecker – Over The Sea (Island Sounds Deluxe remastered mix) (07:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:38:20
+01.  Ferry Corsten presents Gouryella - Venera (Vee's Theme)  3:08
+02.  DIM3NSION - Voorpret  7:02
+03.  Dan Dobson - Black Magic (Extended Mix)  6:15
+04.  Venaccio - Apollo (Extended Mix)  6:20(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07FD5DA4A46F885A1547FCE9C387FC30DEEA2B72
+magnet:?xt=urn:btih:543A69E9715615088B7649693533B2594FB519D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,132 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530414   (728984) от 11.02.2022
+###  Публикация: 1127699   (731141) от 22.04.2017
 
-Эвальд Ильенков | О роли практики в познании (2022) [MP3, Павел Ермаков]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_728984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труд создал всё человеческое в человеке. Автор предлагает читателю последовательно рассуждая прийти к этому выводу.Жанр: ПсихологияПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530440   (728983) от 11.02.2022
-
-XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Канада - Германия. Мужчины  (10.02.2022) HDTVRip  [H.264/720p] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728983.jpg" />
-</div>
-
-
-###  Подробнее
-
-XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Канада - Германия. Мужчины (10.02.2022)Телекомпания: Матч! ИграЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AC4A884EC2CAA3A07FFFE2829A316F0BC10CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530581   (728982) от 11.02.2022
-
-Hakkenden: Touhou Hakken Ibun | Hakkenden: Eight Dogs of the East | Хаккэндэн: Легенда о восьми псах Востока [2013, TV, 26] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728982.jpg" />
-</div>
-
-
-###  Подробнее
-
-По легенде, от нежданного духовного союза демона-пса и принцессы земли Ава произошли восемь великих воинов. Каждого из них отличали три вещи: знак «ину», то есть «пес», в нареченном имени, родимое пятно в виде пиона и бусина четок с названием одной из конфуцианских добродетелей. По воле судьбы духовные братья могли родиться в разных семьях и стать врагами в бесконечных (   Читать дальше...   )Производство: Студия Studio Deen / スタジオディーンЖанр: приключения, комедия, мистикаРежиссер: Ямасаки ОсамуПеревод: Amanri (1-13); Chirito (14-26)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8A47BB1E1B3FE46AF5669B4C1277C6DB6231BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530409   (728981) от 11.02.2022
-
-Kotoura-san | Котоура [2013, TV, 12 эп. + 6SP] BDRip 720p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непохожим на других всегда живется тяжко – в этом на горьком опыте убедилась Харука Котоура, с детства слышащая чужие мысли. Быть рядом с человеком, для которого ты словно открытая книга – нелегкое испытание. Даже родная мать его не выдержала и сбежала, бросив «чудовище» на попечение деда. Легко предсказать реакцию окружающих, когда те узнавали, с кем их свела судьба. (   Читать дальше...   )Производство: Студия AICЖанр: комедия, романтика, драма, мистикаРежиссер: Ота МасахикоПеревод: General TAB; Kasumi; Schum; TassadarЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 6SP по 2 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F878E3A26B62C55FCD5D9225582CD75DF423E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530573   (728980) от 11.02.2022
-
-VA - Distant Places Lounge Vol.1: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+IooN-Cosmic Downtempo - Masters Of The Universe (2017) [MP3|320 Kbps] <Ambient, Drone>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728980.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Free Spirit Muse - Breath-Ful Moments (20:21)
-02. Matt Sour - Like a Fairy Tale (Original Mix) (4:44)
-03. Gary B - Afraid to Fall (Original Mix) (4:53)
-04. Michael E - Wind Chime (Original Mix) (5:53)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:30
+1.Passing Horizontal 16:04
+2.Nanomeditative Submersion 08:42
+3.Ascending To Master Stillness 07:11
+4.Masters Of Universal Equilibrium 08:07(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:37:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC95F4D0ECC4D135AE7FC26DC2BC9680CE393493
+magnet:?xt=urn:btih:ED67F9263A6C68F92190D6AE50FAD600EE7C0708
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,25 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530493   (728979) от 11.02.2022
+###  Публикация: 1127588   (731140) от 22.04.2017
 
-Wise Care 365 Pro 6.1.8.605 RePack (& Portable) by 9649 [Multi/Ru]
+VA - EDM Base Vol.2 (2017) [MP3|320 Kbps] <Trance>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_728979.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01.  Attila Syah & Cari - Dark Side Of The Moon (Radio Edit)  4:00
+02.  Audino - Beat Maniac (Original Mix)  3:47
+03.  Frainbreeze & Lucid Blue - World Of Nothing (Radio Edit)  2:33
+04.  Moroshka - 4AM (Original Mix)  4:44(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:39
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:FDE2A918B8F933A152CA0EDD717F426D1C78AE0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,25 +517,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530442   (728978) от 11.02.2022
+###  Публикация: 1127639   (731139) от 22.04.2017
 
-XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Финляндия - Словакия. Мужчины (10.02.2022) HDTVRip [H.264/720p] [hand made 50fps]
+Маина Боборико | За круглым оконцем (1972) [DJVU]
 
->>
->>
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_728978.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Финляндия - Словакия. Мужчины (10.02.2022)Телекомпания: Матч! АренаЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:34
+Повесть Маины Боборико «За круглым оконцем» рассказывает о жизни сегодняшних школьников, их дружбе и учебе, о любви к природе.
+
+Для детей среднего и старшего школьного возраста.Жанр: Детская прозаФормат: DJVU
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:78143E4E5F9FBC99A1E860EA4DF4E6DF506B8740
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,25 +545,197 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530550   (728977) от 11.02.2022
+###  Публикация: 1127764   (731138) от 22.04.2017
 
-По дороге с Норманом Ридусом / Ride with Norman Reedus (2021) WEBRip [H.264/1080p] (сезон 4, серия 1-6 из 6)
+VA - Высшая лига. Весна выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
 
->>
->>
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_728977.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сериал о путешествиях на мотоцикле, в котором Норман Ридус и приглашенная звезда недели путешествуют в определенную точку Америки на мотоцикле, изучая местную байк-культуру и места для мотоциклистов.Производство: США, AMC Studios, Clyde Phillips Productions, Lions Gate TelevisionЖанр: документальный, путешествияРежиссер: Джеф О'БрайанПеревод: многоголосый профессиональный (HDRezka Studio)Субтитры: русские (Forced), английскиеПродолжительность: 6x ~00:43:00
+001. Непара - Половинки 3:44
+002. Nina Ann - Ты Спросишь Однажды 3:30
+003. Лена Семенова - Уверен Ли Ты 3:46
+004. Лаурита - Пока Пока 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1825A9F4ECD0281FDD0393D96D56A1A98D13BD6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127005   (731137) от 22.04.2017
+
+Биатлон. Чемпионат России 2017. Уват (Россия). Спринт (25.03.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731137.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 марта 2017 года, суббота
+Чемпионат России по биатлону 2017 года. Уват (Россия)
+1. Женщины. Спринт 7,5 км
+2. Мужчины. Спринт 10 км(   Читать дальше...   )Телекомпания: АСН “Тюменская арена"Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:12 - 01:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276AB8F3BE6DDBC055C3F6CBABC47E114C57929F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127757   (731136) от 22.04.2017
+
+VA - Топовая сотня весенняя версия № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731136.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Пающие Трусы - Давай Туси 3:01
+002. Леля - Грешная 3:43
+003. Ваня Чебанов - Ты №1 3:41
+004. Кейс - Держать Тебя За Руку 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC148303E262BD503D758C5B342C6C9D2C6784F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127578   (731134) от 22.04.2017
+
+Quiver: The Programmer's Notebook 3.0.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quiver — это записная книжка, специально созданная для программиста.
+
+Основные возможности:
+	•	С помощью Quiver вы легко можете объединить текст, код и Markdown в одной заметке.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2017Разработчик: HappenApps, Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A52C60770BEA4CA29BADEB52DC84C197442569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127506   (731133) от 22.04.2017
+
+Козельская Введенская Оптина пустынь (изд.) | «Житие и писания молдавскаго старца Паисия Величковскаго» [Репринт 2001] (1847) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5C08F72C0E39D20B2881D2D304A53269E8EC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127592   (731132) от 22.04.2017
+
+Sublime Text 3 Dev (3130) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 апреля 2017Разработчик: Jon SkinnerПоддерживаемая ОС: OS X 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C15FB0A0701F545E4F2A28D3F78BE89AAFBAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127798   (731131) от 22.04.2017
+
+VA - German Top 50 Official Dance Charts 21.04. (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731131.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Claptone Ft. George Kranz - The Drums (Din Daa Daa) 3:26
+002. Nalin & Kane - Beachball 2017 (Sebastien Remix) 2:58
+003. DJ Higheffect Ft. Silvia Dias - Sweet Dreams 3:35
+004. Tujamo - Make U Love Me 3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946CA398AE0B2F5E51ED000C2E2FEB26861B4598
 ```
 
 https://mybot314.ru/tekegram_catalog/

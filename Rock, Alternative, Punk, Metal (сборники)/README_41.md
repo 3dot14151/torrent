@@ -1,3 +1,32 @@
+###  Публикация: 1515819   (167814) от 09.12.2021
+
+VA - Alternative Rebel Rock (CD.03) (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чаще всего в рок музыкальных произведениях есть момент, когда все инструменты затихают, оставляя лишь электрогитару, которая играет эпическое соло. Эти отрывки в композициях высоко ценятся не только среди любителей и слушателей рока, но и среди самих музыкантов, так как во время соло, гитарист «не прикрыт» и не заглушен другими инструментами. Он не имеет права на (   Читать дальше...   )001. Ya Tseen - At Tugáni
+002. Møaa - Lam
+003. Maxпmo Park - All Of Me
+004. David Bowie - Running Gun Blues(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EDB33641CF5F29B32A016582F76BD66DC5E7DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672791   (167706) от 29.10.2023
 
 VA - Acoustic Rock (2023) [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ David Hallyday - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23BCF5868A60058242B3968ED58762780BBCF189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347709   (148656) от 24.12.2019
-
-VA - Animalistic: Hard Rock Review (2019) [MP3|320 Kbps] <Hard Rock, Hardcore, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148656.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Duneeater - Stigma 66
-002. Gran Duca - All Hail The Autowagen
-003. Senchineru - Creep
-004. Let Them Hang - Network In Blood(   Читать дальше...   )Жанр: Hard Rock, Hardcore, MetalПродолжительность: 08:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954E8AE069CD0D877D09A5A1841059247ABCFA4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

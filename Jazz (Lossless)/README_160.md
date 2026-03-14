@@ -1,3 +1,90 @@
+###  Публикация: 1560110   (520884) от 29.06.2022
+
+CeCe Gable - More Than A Song (2020) New York Jazz Project [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East of the Sun [5:06]
+02. As Long as I Live [4:01]
+03. Love Is a Necessary Evil [3:46]
+04. I Thought About You [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB57EA3806AB5D8566423C445FDC66EDDE5F1FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560403   (520750) от 29.06.2022
+
+Pal Thowsen - Carnival (1981) Remastered, 2022, Norske Albumklassikere [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Fusion, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brother to Brother (Vannelli) - 5:30
+02. Now We May Begin (Sample) - 5:26
+03. Carnival (Noddelund) - 4:44
+04. Sundown (Noddelund) - 3:30(   Читать дальше...   )Жанр: Contemporary Jazz, Fusion, Soul-JazzПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49E410136875947A5C076DBB0529EE000EA1809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560443   (520739) от 29.06.2022
+
+David Benoit - A Midnight Rendezvous (2022) [FLAC|Lossless|tracks+.cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Midnight Rendezvous
+02. Pioneer Town
+03. The Bones
+04. Floating(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDA9363D1C2C1920E7F01E189BA37FB16643366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928975   (520640) от 18.08.2015
 
 Franz Koglmann - Orte Der Geometrie (1989) /hat ART/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
@@ -667,102 +754,6 @@ Lucky Millinder - 1951 - 1960 (2008) Classics [FLAC|Lossless|tracks + .cue] <Swi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B72B9F2A27A60E4BC472F3408214A5848F1C0D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534944   (516975) от 16.08.2012
-
-Abe Rabade - A Modo (2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9 Contra 4 [11:06]
-02. Transito no. 3: Jamal's Mood [09:44]
-03. Arabesco Da Iria [05:57]
-04. A Modo [10:13]
-05. Perdas [06:52]
-06. Comico, Tonico, Sonico [06:42]
-07. Carmencita [12:26]Жанр: JazzПродолжительность: 01:03:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534989   (516572) от 16.08.2012
-
-Shirley Bassey -  Goldfinger ( 1993 ) & Best Of ( 2012 )[FLAC|Lossless]<Jazz, Vocal, Ballad>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This is my life [03:16]
-02. Goldfinger [02:51]
-03. You are the sunshine of my life [03:04]
-04.  Fly me to the moon [02:40]
-05. I get a kick out of you [02:48]
-06. Love is a many splendored thing [02:53]
-07. The liquidator [02:20]
-08. Moon river [03:00]
-09. Natali [03:11]
-10. If you go away [02:42](   Читать дальше...   )Жанр: Jazz, Vocal, BalladПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242193   (516293) от 21.08.2018
-
-Louis Hayes And The Cannonball Legacy Band - Maximum Firepower (2006) Savant [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jessica's Birthday [4:02]
-02. This Here [5:23]
-03. Lisa [4:03]
-04. Little Boy With The Sad Eyes [6:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECDF462B2BD8C4E1A2E7F3F39534DA7FD7B753AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

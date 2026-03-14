@@ -1,3 +1,32 @@
+###  Публикация: 1104183   (878018) от 16.02.2017
+
+VA - Территоря Нежности. Медляки Для Влюблённых (2017) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878018.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3 Doors Down - Here Without You 3:56
+002. Adriano Celentano - Confessa 5:15
+003. Adriano Celentano - Il Tempo Se Ne Va 3:57
+004. All-4-One - I Swear 4:20(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E9F7C52BA374B53801597CF17C4EA7A5C41281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104423   (877532) от 16.02.2017
 
 VA - Дискотека Dance Club. The Best (2017) [MP3|64-320 Kbps] <Pop , Dance>
@@ -719,35 +748,6 @@ VA - Весенняя свежая 30-тка Vol. 2 (2020) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E9730AF7DD529196A556CD812532A8D63C6B25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997823   (871971) от 18.03.2016
-
-VA - Italo and Space Disco (2016) [MP3|320 кб/с] <Italo Disco, Synthpop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871971.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hyboid - Space Age Gigolo
-002. Yuriy Sosnin - The Galaxy
-003. Dance with the Dead - Signals
-004. DJ Roland - Klarnet Mix(   Читать дальше...   )Жанр: Italo Disco, SynthpopПродолжительность: 06:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FB9C8557B55ABC447BEA9CF0FB400AF63C0DC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,139 @@
+###  Публикация: 1673298   (165808) от 31.10.2023
+
+Microsoft Windows 11 [10.0.22631.2428], Version 23H2 - Оригинальные образы от Microsoft MSDN/VLSC [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 23H2 — это крупное обновление, которое включает ряд новых функций и улучшений. Новые функции должны сделать Windows 11 более удобной, эффективной и безопасной системой.
+
+Оригинальные образы - Windows 11 Build 22631.2428.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332ECC3B11172CCF8997DDDD34A8A60E4EF38D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673300   (165643) от 31.10.2023
+
+Microsoft Windows 11 IoT Enterprise [10.0.22631.2428], Version 23H2 - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 IoT Enterprise - это следующая эволюция Windows для интернета вещей (IoT), а также самое значительное обновление операционной системы Windows со времен Windows 10. Оно включает в себя множество гибких и сбалансированных инноваций, направленных на повышение качества обслуживания пользователей. Windows 11 IoT Enterprise разработана для поддержки современного (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4D3437A27BAB97F301A22F9F7C5798DECC0202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432281   (163897) от 17.12.2020
+
+Microsoft Windows 10.0.18362.1256 Version 1903 (Updated December 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.1256.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB264A83E1B40B82E8D5DED06126AB07C82F38BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432283   (163863) от 17.12.2020
+
+Microsoft Windows 10.0.18363.1256 Version 1909 (Updated December 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.1256.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA81397FECDC07989421F18C0522B909B27FBDAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432286   (163798) от 17.12.2020
+
+Microsoft Windows 10.0.19041.685 Version 2004 (Updated December 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.685.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7B3D03FDCC50787A23A04B63803C61E141DA26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432278   (163783) от 17.12.2020
 
 Microsoft Windows 10.0.17763.1637 Version 1809 (Updated December 2020) - Оригинальные образы от Microsoft MSDN [En]
@@ -558,142 +694,6 @@ Windows 10 November 2021 Update (под кодовым названием "21H2"
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B19CE3F24A82E4F43B0AD9BE7E2996220C4945E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598866   (161124) от 21.12.2022
-
-Microsoft Windows 11 [10.0.22000.1335], Version 21H2 (Updated December 2022) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3A9BCCB3A436A6230D365EE27B60A063CD5C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598863   (161094) от 21.12.2022
-
-Microsoft Windows 10.0.19045.2364, Version 22H2 (Updated December 2022) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
-
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.2364.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4279B486531693E620C5694B75841F3D53EE5996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598867   (161080) от 21.12.2022
-
-Microsoft Windows 11 [10.0.22621.963], Version 22H2 (Updated December 2022) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E092AE4845BC1DEF101A5C18CFC6B8506798B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598860   (161054) от 21.12.2022
-
-Microsoft Windows 10.0.19043.2364, Version 21H1 (Updated December 2022) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.2364.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B203C0EF5713AF8C9A6FE341953692017DAFC03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598869   (161009) от 21.12.2022
-
-Windows Server 2022 LTSC, Version 21H2 Build 20348.1366 (Updated December 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DFA04F465481B2AF34173CD64DC28238C69D515
 ```
 
 https://mybot314.ru/tekegram_catalog/

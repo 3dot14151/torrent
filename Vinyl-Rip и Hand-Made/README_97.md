@@ -1,3 +1,119 @@
+###  Публикация: 1631046   (30139) от 22.01.2025
+
+Grave Digger (Hellryder; Steelhammer; The Fyredogs) - Studio Albums (27 releases) (1984-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_30139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grave Digger — хэви-метал группа из Гладбека, Северный Рейн-Вестфалия (Германия), образованная в 1980 году Крисом Болтендалем и Питером Массоном.1984 - Heavy Metal Breakdown & Rare Tracks
+1985-86 - Witch Hunter - War Games
+1986 - Stronger Than Ever
+1993 - The ReaperЖанр: Heavy/Power MetalПродолжительность: 26:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9050D2AB784C5AB2A4B4DE6D620EE213694455F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774471   (30102) от 22.01.2025
+
+Dalibor Janda - Take Them To Mars (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30102.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Take Them To Mars (Vsechno Na Mars)
+A2 Try To Be A Man (V Parku, V Herne)
+A3 Lookin' On The Tiger Eyes (Nejvic)
+A4 Poor Old Tricks (Znam Tvuj Trik)(   Читать дальше...   )Жанр: Europop, Pop RockПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1D1DEE9A309A7FC723CEDD073740B72BBC576F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625216   (29938) от 24.01.2025
+
+Venom (& Venom inc., ex-M:Pire of Evil) - Studio Albums (11 releases) (1997-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <NWOBHM, Speed/Thrash/Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_29938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Venom — британская метал-группа, образованная в 1979 году. Наряду с Motörhead, оказавшими на Venom самое непосредственное влияние, считается одной из прото-трэшевых команд, но при этом, как и Mercyful Fate, относится к первой волне блэк-метала.1997 - Cast In Stone
+2000 - Resurrection
+2006 - Metal Black
+2008 - Hell(   Читать дальше...   )Жанр: NWOBHM, Speed/Thrash/Black MetalПродолжительность: 11:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFEC495EA2D2F3C2B314D4991DC7E058269ABFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605211   (28705) от 04.02.2025
+
+Александр Галич - Ночной Дозор (1990) [FLAC 2.0|88,2/24|image +.cue|Vinyl-Rip] <Chancone>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_28705.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Королевская Баллада
+A2 Фантазия На Русские Темы Для Балалайки С Оркестром И Двух Солистов - Тенора И Баритона
+B1 Вальс, Посвященный Уставу Караульной Службы
+B2 Поезд (Памяти С. Михоэлса)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3BD655533158CC43053476B7C066D12CF2E3CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533726   (27653) от 14.02.2025
 
 Lacuna Coil - Studio Albums (12 releases) (1999-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Alternative Metal>
@@ -627,122 +743,6 @@ VA - Музыкальный калейдоскоп (10   выпусков) (1964
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:337E6F32A687A8A9C81AB20906F70B9D05AD816A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610278   (22937) от 31.03.2025
-
-W.E.T. - Studio Albums (5 releases) (2010-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22937.jpg" />
-</div>
-
-
-###  Подробнее
-
-W.E.T. - супергруппа мелодичного рока, созданная Джеффом Скоттом Сото, Эриком Мортенссоном и Робертом Саллом. Название группы состоит из инициалов групп, с которыми ранее работали музыканты: Work of Art (Сэлл), Eclipse (Мартенссон) и Talisman (Сото).2010 - W.E.T.
-2013 - Rise Up
-2018 - Earthrage
-2021 - RetransmissionЖанр: Melodic Hard RockПродолжительность: 04:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCFAF257650C5857C6100089E9DFD81AB49D79C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620765   (22898) от 31.03.2025
-
-Magic Kingdom - Studio Albums (6 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Kingdom — бельгийская пауэр-метал-группа, основанная в 1998 году гитаристом Душаном Петросси.1999 - The Arrival
-2004 - Metallic Tragedy
-2010 - Symphony Of War
-2015 - Savage RequiemЖанр: Power MetalПродолжительность: 06:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E079493DE9AB9074D977482C4E2AF7AF0CC0E962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679783   (22733) от 02.04.2025
-
-КИНО - Черный альбом (1990) hand made, remastered [FLAC|16/44.1|tracks|CD-Rip] <Rock>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22733.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1 (42:51)
-
-[6:00] 1. Кончится лето
-[5:54] 2. Красно-желтые дни(   Читать дальше...   )Жанр: RockПродолжительность: 01:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0BDBB5480F0ADADC367CD76B2E444F63CD6611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588379   (22656) от 03.04.2025
-
-Король и Шут - Студийные альбомы (13 релизов) (1993-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Хорор-панк, фолк-панк, панк-рок>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22656.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Король и Шут» (сокращённо – «КиШ») – российская рок-группа, история которой началась в 1988 году в Ленинграде. Коллектив прославился своим необычным для отечественной сцены стилем: его песни – это короткие сказки, рассказанные под жёсткую гитарную музыку. Группа прекратила своё существование в 2013 году в связи со смертью её лидера Михаила Горшенёва. Участники последнего (   Читать дальше...   )1993 (2018) - Истинный убийца
-1996 - Камнем по Голове
-1997 - Будь как дома, Путник…
-1998 - Акустический альбомЖанр: Хорор-панк, фолк-панк, панк-рокПродолжительность: 11:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830F24EFAA3B14D926C301B941C965B6F5BBEBC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

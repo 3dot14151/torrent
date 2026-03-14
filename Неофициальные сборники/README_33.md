@@ -1,3 +1,90 @@
+###  Публикация: 1471874   (1014815) от 22.05.2021
+
+VA - Music News vol.102 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014815.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kamaliya - Танцую (03:59)
+ 002. A.T feat. Rafal - Многоточия (02:50)
+ 003. Aarne feat. The Limba & Markul - Noir (02:09)
+ 004. Adelina - Не Улетай (03:08)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 10:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D5190DBF30827BA7D55944BD6DEC26526D71D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472065   (1014675) от 23.05.2021
+
+VA - Fresh Pop 2 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014675.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wulf - I'm Not Going Anywhere (2:59)
+002. Michael Schulte - Stay (2:52)
+003. Robert Grace - The Hurt You Gave Me (2:31)
+004. Bente - Ga Maar (2:54)(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3CB1513DED0F09DC024F6369EAD5ADA34C4A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471990   (1014672) от 23.05.2021
+
+VA - The Official UK Top 100 Singles Chart 21.05.2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tion Wayne, Russ Millions - Body
+02. Olivia Rodrigo - good 4 u (New Entry)
+03. Doja Cat, SZA - Kiss Me More
+04. Lil Nas X - MONTERO (Call Me By Your Name)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9DF28F18C95A6DA7932AC5ECAD2D6A20DB042C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472619   (1014238) от 26.05.2021
 
 VA - Chocolate Funky House (2021) [MP3|320 Kbps] <Funky, Disco House, Nu Disco>
@@ -658,93 +745,6 @@ VA - 70's Rock Power (2021) [MP3|320 Kbps] <Rock, Classic-Rock, Hard-Rock, Balla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E2612939D8E0AF267092BAE1E9638258E1A5D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473287   (1013874) от 28.05.2021
-
-VA - EDM Live Set (2021) [MP3|320 Kbps] <Club, Dance, Tech House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013874.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eye feat Alexia - Virtual Reality
-002. Autograf & Scorsi - Waiting
-003. Turbotronic - Zzinhage
-004. Steve Aoki - Like It Like That(   Читать дальше...   )Жанр: Club, Dance, Tech House, EDMПродолжительность: 09:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15C8CAE4EFD5B3DC261ABF42868B54AA43A03C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472927   (1013857) от 28.05.2021
-
-VA - 35 Spring Step Hits (2021) [MP3|320 Kbps] <Electropop, Dance, Hip Hop, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axel Force - Alive (Fitness Version 132 Bpm)
-02. Mc Joe - Levitating (Fitness Version 132 Bpm)
-03. Axel Force - Run Runaway (Fitness Version 132 Bpm)
-04. Mc Ya - Tap In (Fitness Version 132 Bpm)(   Читать дальше...   )Жанр: Electropop, Dance, Hip Hop, EurodanceПродолжительность: 02:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA35636369F296E8CA5EB3D2BEFB35A4EC40AA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472960   (1013853) от 28.05.2021
-
-VA - 245 DJ Loaded - Knowledge Dancing (2021) [MP3|320 Kbps] <House, Bassline, Dancehall, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. YG & Mozzy - Bompton To Oak Park (Dirty)
-02. Trippie Redd & SOS LO feat. Chris King - Honorable Flex (Intro - Clean)
-03. Tujamo - You Know (Radio Edit)
-04. Trippie Redd & SOS LO feat. Chris King - Honorable Flex (Clean)(   Читать дальше...   )Жанр: House, Bassline, Dancehall, R&BПродолжительность: 14:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048C23E69A9A35E652C99768FD060787CECEDD3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

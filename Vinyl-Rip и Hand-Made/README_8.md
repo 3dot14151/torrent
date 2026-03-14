@@ -1,3 +1,119 @@
+###  Публикация: 861288   (935842) от 19.01.2015
+
+Supertramp - Breakfast In America (1979)  Japan Press [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935842.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Gone Hollywood (5:19)
+A2. The Logical Song (4:11)
+A3. Goodbye Stranger (5:51)
+A4. Breakfast In America (2:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADE775C4C119D980E8AC7E45A697BC49B26E0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985520   (933975) от 12.02.2016
+
+Rainbow - Ritchie Blackmore's Rainbow (1975) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Hard-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Man On The Silver Mountain
+02 - Self Portrait
+03 - Black Sheep Of The Family
+04 - Catch The Rainbow(   Читать дальше...   )Жанр: Hard-rockПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB2F78D40949239894E3EBFA48A132A840EA78A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986225   (932473) от 13.02.2016
+
+Def Leppard - High'N'Dry 1981 (1984) Vertigo [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Let It Go
+02 - Another Hit And Run
+03 - High'N'Dry
+04 - Bringin' On The Heartbreak(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B6F5468CC3B0923BFE6B06257685E5D6D16A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986278   (932468) от 13.02.2016
+
+VA (Various Artists) - Greenpeace Rocks (1993) SNC [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чай Ф - Не спеши
+02. БГ - Китай
+03. Джоанна Стингрей - Бум-бум
+04. Наутилус Помпилиус - Синоптики(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E1B51AA84A88AA25A804CBFF584C8F30C0F778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986285   (930906) от 14.02.2016
 
 Калинов мост - Дарза (1992) Not On Label [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
@@ -626,122 +742,6 @@ D1. Tiesto - Euphoria (7:34)(   Читать дальше...   )Жанр: Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A7650CE41A392D200F5473D6C4B3FA4DE024B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098306   (908523) от 30.01.2017
-
-DJ Tiёsto - In My Memory (Limited Vinyl Edition) (2001) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908523.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. DJ Tiesto - Magik Journey (Album) 11:07
-B1. DJ Tiesto - Magik Journey (Alternative) 10:01
-C1. DJ Tiesto - Dallas 4 PM 6:46
-D1. DJ Tiesto feat. Nicola Hitchcock - In My Memory 6:08(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D32980DC3D80BA9F5016FFA2555CDAF3B34A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098617   (908510) от 30.01.2017
-
-VA - Tiёsto - Nyana (Limited Edition Sampler) (2003) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908510.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Reinhard Voigt - Supertiel (7:30)
-A2. Conjure One feat. Sinead O'Connor - Tears From The Moon (Tiesto In Search Of Sunrise Remix) (8:10)
-B1. Solar Factor - Urban Shakedown (6:54)
-B2. GTR - Mistral (9:18)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569774D38921D7A97C634AC843F9755CAD48D961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098601   (908447) от 30.01.2017
-
-Tiёsto - Elements Of Life (Limited Vinyl Edition) (2007) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908447.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Tiesto - Ten Seconds Before Sunrise (7:28)
-B1. Tiesto feat. JES - Everything (6:56)
-C1. Tiesto - Carpe Noctum (6:58)
-D1. Tiesto - Bright Morningstar (8:16)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F5F3B4CD88F33CE47FE940353C514100A1F917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098652   (908384) от 30.01.2017
-
-Paul van Dyk - Out There And Back (2000) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908384.jpg" />
-</div>
-
-
-###  Подробнее
-
-A. We Are Alive (07:35)
-B1. Travelling (07:42)
-B2. Pikes (07:12)
-C. Columbia (07:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204F40F5614F2DEF168C111DAB845727B9D4294A
 ```
 
 https://mybot314.ru/tekegram_catalog/

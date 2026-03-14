@@ -1,3 +1,30 @@
+###  Публикация: 1257388   (344732) от 26.10.2018
+
+3D модели - 3ddd - PRO 3D-models Pack 21 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 21 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C04793FF490C453F390DC3B5F668014ABA132B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257467   (344729) от 26.10.2018
 
 3D модели - 3ddd - PRO 3D-models Pack 19 [Corona|V-Ray|*.max, FBX, OBJ]
@@ -659,32 +686,6 @@ Hum3D - MAN Lion’s Intercity Bus with HQ interior 2015 [V-Ray|*.max, 3DS, C4D,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8C37D85846843C597F551131F7CFFD589C5A440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183499   (309054) от 13.11.2017
-
-3D модели - Collection 3D models for a child's room [MAX, 3DS]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Collection 3D models for a child's room: Сборник профессиональных 3D-моделей детской мебели зарубежных (фабрики NPA, Cilek, Beatrix Potter, CLEVEROOM, IKEA) и отечественных производителей. В коллекцию вошли 28 комплектов мебели для детей разной возрастной категории (новорождённых, малышей, подростков), шторы, игрушки (низкополигональные), картинки, бесшовные текстуры (   Читать дальше...   )Формат: MAX, 3DS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99146C928B0470846FD93FDBDD792225B56EF8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

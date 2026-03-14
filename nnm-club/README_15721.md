@@ -1,25 +1,22 @@
-###  Публикация: 1414210   (387890) от 07.10.2020
+###  Публикация: 1173179   (391297) от 10.10.2017
 
-Allen Farnham - Meets The RIAS Big Band (1996) 1998, Concord Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Big Band>
+А.Г. Дугин | Ноомахия. Войны ума. Англия или Британия Морская миссия и позитивный субъект (2015) [PDF, DJVU]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387890.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_391297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. RIAS-ticity [7:25]
-02. Work Song, Part I [1:43]
-03. Work Song, Part II [6:55]
-04. Lost in Zurich (Verloren in Zurich) [7:57](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Big BandПродолжительность: 01:12:40
+Книга посвящена исследованию английской идентичности, которую автор рассматривает как продукт интенсивного и драматического диалога между кельтским и германским началами в контексте англо-британской цивилизации. Англо-британский Dasein, согласно автору, не конституирует самостоятельного Логоса (в отличие от немецкого и французского Логосов), но представляет собой (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC8EF9CD7CD4E5BEED224C99FFCA4FF50E57462F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414171   (387889) от 07.10.2020
+###  Публикация: 1173131   (391296) от 10.10.2017
 
-Louis Armstrong - Big Bands, Vol.2 (1931 - 1932) 1988, JSP Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Журнал | Сум-До-Ку и другие занимательные игры №20 (2017) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387889.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391296.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blue Again [3:13]
-02. Little Joe [3:12]
-03. I'll Be Glad When You're Dead, You Rascal You [3:12]
-04. Them There Eyes [3:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:46
+Журнал для досугаЖанр: Журнал для досугаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12DF7FA6405EEA28D5F41FE03D8C788210A7A490
+magnet:?xt=urn:btih:019946349FCE1560A0A0FDEF3C214A62E8F7CB8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,112 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414336   (387888) от 07.10.2020
+###  Публикация: 1172925   (391295) от 10.10.2017
 
-Ward XVI - The Art of Manipulation (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:02:01]
-02. Take My Hand [00:01:59]
-03. The Art of Manipulation [00:05:01]
-04. Interlude 1 [00:00:50](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B149D4BFD512DF0616AEF83A71F03775B057986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414121   (387887) от 07.10.2020
-
-Dysylumn - Cosmogonie (2020) [MP3|320 Kbps] <Progressive Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:04:05]
-02. Apparition I [00:06:14]
-03. Apparition II [00:07:34]
-04. Apparition III [00:07:39](   Читать дальше...   )Жанр: Progressive Black Metal, Death MetalПродолжительность: 01:21:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7229B04E4AE265BC2C91098C3645DAD8120F56FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414173   (387886) от 07.10.2020
-
-Ward XVI - Metamorphosis (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Retrogression (feat. Chris Barton) [00:01:31]
-02. The Cradle Song (feat. Anabelle Iratni) [00:08:23]
-03. Mister Babadook [00:05:27]
-04. Daisy Chains [00:03:08](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17CAA1478EACCAF0FDA447A1597FB0A7337A8231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571888   (387885) от 07.11.2012
-
-Зал самоубийц/ Sala samobójców (2011) HDRip
+GLXY - Proposition / Mind Less (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387885.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Доминик — обыкновенный мальчишка. У него много знакомых, он дружит с самой красивой девочкой в школе, богатые родители, деньги на тряпки, гаджеты, развлечения, но однажды один поцелуй меняет всё. «Она» цепляет его в сети. Интригующая, опасная, хитрая. Вводит его в «Зал самоубийц», место, из которого невозможно убежать. Доминик, в ловушке собственных чувств, впутанный в смертельную интригу, потеряет то, что в жизни самое ценное…Жанр: Триллер, Драма, МелодрамаРежиссер: Ян КомасаАктеры: Якуб Гершал (Jakub Gierszal), Рома Гонщёровска (Roma Gasiorowska (в титрах: Roma Gasiorowska-Zurawska)), Агата Кулеша (Agata Kulesza), Кшиштоф Печиньский (Krzysztof Pieczynski), Bartosz Gelner, Данута Борсюк (Danuta Borsuk), Петр Новак (Piotr Nowak), Филип Бобек (Filip Bobek)Перевод: Любительский (одноголосый)Продолжительность: 01:56:04
+01. Proposition (feat. James Robb) (Radio Edit) (02:47)
+ 02. Mind Less (feat. Blake) (Radio Edit) (03:09)
+ 03. Proposition (feat. James Robb) (04:58)
+ 04. Mind Less (feat. Blake) (05:19)Жанр: Drum & BassПродолжительность: 00:16:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C539D9A768913E43CF0E1A5F3587642501F0C40B
+magnet:?xt=urn:btih:F55475692AB380D93B881D9016A75C13BAA51AFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +79,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414213   (387884) от 07.10.2020
+###  Публикация: 1173078   (391294) от 10.10.2017
 
-Peter Bernstein - Brain Dance (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+Sublime Text 3 (3148) Dev [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387884.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391294.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Brain Dance [7:41]
-02. Chant [6:41]
-03. Means and Ends [7:52]
-04. Dual Nature [7:09](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:57:50
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 октября 2017Разработчик: Jon SkinnerПоддерживаемая ОС: OS X 10.7+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95023D8A1F2CED13CFC4798F176FD96F68CEBCB5
+magnet:?xt=urn:btih:39E7309C9678C1762BC6545B5EC701DA98045D90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414136   (387882) от 07.10.2020
+###  Публикация: 1172982   (391293) от 10.10.2017
 
-Girls In Synthesis - Now Here's An Echo From Your Future (2020) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Post-Punk, Post-Hardcore>
+Где логика? (2017.10.08) WEB-DL [H.264/720p-LQ]  (сезон 5, выпуск 8)
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387882.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391293.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Arterial Movements [00:03:31]
-02. Pressure [00:01:54]
-03. The Images Agree [00:02:44]
-04. Scrapped [00:02:35](   Читать дальше...   )Жанр: Noise Rock, Post-Punk, Post-HardcoreПродолжительность: 00:31:10
+Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:48:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:077076646BA9A3E73D897D6C41BB036C93B2613D
+magnet:?xt=urn:btih:D163E33CF0E1EEC63ADAC8C456FACED89D6B6AE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,28 +132,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414115   (387880) от 07.10.2020
+###  Публикация: 1173039   (391292) от 10.10.2017
 
-OHM RUNE - Gargantua (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Metal>
+Blocs 2.4.2 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387880.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Temple [00:04:55]
-02. Adrift [00:04:10]
-03. The Great Dark [00:04:31]
-04. Event Horizon [00:03:53](   Читать дальше...   )Жанр: Doom Metal, Stoner MetalПродолжительность: 00:45:08
+Простой способ создания красивых сайтов.
+Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
+
+Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 сентября 2017Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83F49DC178B5A6BAFF1F547C2C623E3B5C6ACC13
+magnet:?xt=urn:btih:5BF36DC7010C5D49899DBA765474D1D20D9EC7DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,26 +161,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 571562   (387879) от 07.11.2012
+###  Публикация: 1173105   (391291) от 10.10.2017
 
-Журнал | Нахлыст №3 [осень 2012] [PDF]
+Елена Кароль | Святая. Игра по тёмным правилам (2017) [MP3]
 
->>Журналы
->>Хобби (журналы)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387879.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Нахлыст" - ежеквартальный специализированный журнал для любителей ловли рыбы на искусственную мушку.
-Журнал "Нахлыст" посвящен всем аспектам нахлыста и направлениям его развития - вязанию мушек, технике забросов, тактике ловли рыбы, обзору снаряжения и аммуниции, новостям.Формат: PDF
+Зачастую именно имя и место рождения творит судьбу ведьмы. Варваре из уральской глубинки на роду написано пойти в травницы и знахарки. Анжеле, потомственной московской дворянке, с рождения предначертано покорить столичный бомонд, а Нюрбине из Забайкалья суждено быть лишь шаманкой и никем иным. Но что предстоит той, кого нарекли Святославой? Стать светлой ведьмой, (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 11:10:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FD04B6523D20484CBD6A0AB4A9B8CEA558A2731
+magnet:?xt=urn:btih:1088241BD36A587DC4BFD0DB1D5C737527CBF52A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,27 +187,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414216   (387878) от 07.10.2020
+###  Публикация: 1173104   (391290) от 10.10.2017
 
-Ian Hawgood - Peace Fragments (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal>
+VA - Autumn 2017: Best Of Inception (2017) [MP3|320 Kbps] <Trance,Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metamorph feat. Shelley Sheree - Wash Your Pain Away (Bee Hunter Remix) 07:10
+02. Alex Bastian - Last Gaze (Original Mix) 07:40
+03. Infinity State - Shinjuku Nights (Original Mix) 06:19
+04. D05 - White Sunset (Poll Morris Remix) 06:50(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 02:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BC2C80F8FD51EF72ED83A7FA49CA20BF405A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173070   (391289) от 10.10.2017
+
+VA - Underground Trance (2017) [FLAC|Lossless|tracks] <Trance>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387878.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Fragment I 18:12
-2. Fragment II 40:06
-3. Fragment III 05:38Жанр: Ambient, Drone, MinimalПродолжительность: 01:03:57
+01. Farcoste – I Feel You In Thousand Kilometres (06:22)
+02. Skyrend – Magic Moon (05:02)
+03. Bekar-B – Birth To Sky (05:47)
+04. Owl Stone – Breath On Water (07:07)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7316D946771F1693DF40AA554F3125B3D049E65
+magnet:?xt=urn:btih:D5C4832E7B6AE3D6DAC871A56A10C9EA87B515CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,392 +245,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 571786   (387877) от 07.11.2012
+###  Публикация: 1173002   (391288) от 10.10.2017
 
-Виктория Брежнева | Кремлевская диета [2006] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кремлёвская диета помогла избавиться от лишнего веса многим известным людям - политикам, звёздам кино и шоу-бизнеса. Сегодня этой замечательной диетой может воспользоваться каждый, кто хочет обрести стройную фигуру в кратчайшие сроки!Жанр: Диета, кулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D61B4EA379F7D3AA559B5DA53F76671CE3274F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414241   (387876) от 07.10.2020
-
-Mathieu Karsenti - Downstream Blue (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electrocoustic, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387876.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pales 06:24
-2. Loosen 05:36
-3. Further 05:12
-4. Only Light 04:42Жанр: Ambient, Electrocoustic, MinimalПродолжительность: 00:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35879B58D8CAD3CAF473C2D8D20EEB5C59F7AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569195   (387874) от 07.11.2012
-
-Анна Старобинец | Живущий [2011] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387874.jpg" />
-</div>
-
-
-###  Подробнее
-
-После Великого Сокращения настала новая эра. Родился Живущий: человечество превратилось в единый, постоянно воспроизводящий себя организм. "Число Живущего неизменно", - так сказано в Книге Жизни.
-Живущий равен трем миллиардам - ни больше, ни меньше. Живущий счастлив. Живущий всеблаг. Живущий бессмертен... Ты тоже бессмертен. Живущий создал для тебя новый мир. В этом мире не важно, кто твой биологический предок - важно, кем ты был в прошлой жизни, до Паузы. В этом мире нет стран, городов и границ, религий и наций, войн и террора. Это дивный, стабильный мир, в котором у тебя всегда есть подключение к Социо.
-Глобальная сеть у тебя в мозгу - она делает тебя частью целого...
-Но вот однажды в этом мире появляется лишний. Младенец без прошлого, увеличивший численность на единицу. Кто он такой? Твой новый друг в Социо - или враг, который уничтожит Живущего?Жанр: Фантастика, фентезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7379B8F9498294A09C79F991CC04A2C94D33CBF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571422   (387873) от 07.11.2012
-
-Заговор послов (1965) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387873.jpg" />
-</div>
-
-
-###  Подробнее
-
-О раскрытии чекистами под руководством Феликса Дзержинского и Якова Петерса заговора, который в 1918 году организовали послы нескольких стран во главе с англичанином Локкартом.Жанр: Детектив, ВоенныйРежиссер: Николай РозанцевАктеры: Улдис Думпис, Вадим Медведев, Игорь Класс, Маргарита (Рита) Гладунко, Олег Басилашвили, Лариса Данилина, Эдуард Павулс, Владимир Сошальский, Александр Кутепов, Валдемар Зандберг, Петр Савин, Юрий Дедович, Станислав Михин, Имантс Кренберг, Арнис Лицитис, Волдемарс ЗенбергсПродолжительность: 01:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A13390BD3F0E8DD4A474B15ADAB6EDC70681CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414138   (387872) от 07.10.2020
-
-Molly Hatchet - Battleground (2019) 2xCD Live [MP3|320 Kbps] <Hard Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387872.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. Bounty Hunter (Live) (03:11)
- 02. Whiskey Man (Live) (03:46)
- 03. Why Woun't You Take Me Home (Live) (03:20)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 01:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC17A6EF1E99F41965DC34E3595D74A8E0EFEB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414145   (387870) от 07.10.2020
-
-William Shatner - The Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, AOTY>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Home Chicago [00:02:54]
-02. I Can't Quit You Baby (feat. Kirk Fletcher) [00:04:38]
-03. Sunshine of Your Love (feat. Sonny Landreth) [00:04:21]
-04. The Thrill Is Gone (feat. Ritchie Blackmore & Candice Night) [00:04:53](   Читать дальше...   )Жанр: Blues Rock, AOTYПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F641C4A400502E5635C1F90F3525E338ABEC21D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413539   (387868) от 07.10.2020
-
-Маленький гарибальдиец / Il piccolo garibaldino (1909) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик убегает из дома, чтобы присоединится к отцу, воющему на стороне Гарибальди.Производство: Италия, Società Italiana CinesЖанр: Драма, короткометражный, немое киноРежиссер: Нет сведенийАктеры: Mario Caserini, Gemma De FerrariСубтитры: итальянские интертитры, русские отдельным файломПродолжительность: 00:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13724572C305523DF4DBD349E439E5A6F003ABD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571817   (387867) от 07.11.2012
-
-VA - Time And Tide (1995) [MP3|320 кб/с]<Instrumental, Ethnic>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387867.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:36) 01. Time And Tide
-(3:27) 02. Dreams Do Not Have To Remember
-(3:10) 03. Wo Shi Chi Qing Wu Xian
-(3:02) 04. Aspirations Of Libertine
-(3:29) 05. Caporiccio
-(4:28) 06. What To Pursue In My Life
-(3:28) 07. Pian Pian Xi Huan Ni
-(3:54) 08. Don't Decorate Your Dream
-(3:59) 09. Silence Is Good Everywhere
-(2:56) 10. Wang Ri Qing(   Читать дальше...   )Жанр: Instrumental, EthnicПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C237E0C6B0777EB4D59EC771019335E25A265B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414279   (387866) от 07.10.2020
-
-Seagull Boys - Seagull Boys (2020) [MP3|320 Kbps] <Punk Rock, Garage Rock, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. werfucked [00:01:59]
-02. visions [00:01:54]
-03. seagull boys [00:02:22]
-04. noctrl [00:03:48](   Читать дальше...   )Жанр: Punk Rock, Garage Rock, Thrash MetalПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0248E2A1F61BA18736CB0D801DAD5005769BC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571525   (387865) от 07.11.2012
-
-Yakuro - Hymn Of Love (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Relax, Chill OutПродолжительность: 00:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497DD0C72E6C5304EBB80B2DB837311C4925EA43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413965   (387864) от 07.10.2020
-
-Мальчик-детектив / The Boy Detective (1908) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик-торговец газетами замечает двух подозрительных типов, неотступно следующих за привлекательной дамой. Убедившись в преступном замысле незнакомцев, мальчик предпринимает хитроумный план для разоблачения негодяев. Последний кадр ленты - реминисценция на "большое ограбление поезда". В фильме также отметились будущая звезда гриффитовских фильмов Хэррон (   Читать дальше...   )Производство: США, American Mutoscope, BiographЖанр: Короткометражка, комедия, немое киноРежиссер: Уоллес МакКатченАктеры: Роберт Хэррон, Эдвард ДиллонЯзык озвучки: НемойСубтитры: ОтсутствуютПродолжительность: 00:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D2391FF9E03E19C75CB92339EFF4876EC53B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571732   (387863) от 07.11.2012
-
-Ситуация под контролем. Платформа Тролль-А, Норвегия / Countdown to collision. Platform Troll A, Norway (2012) WEBRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тролль-А - одна из крупнейших в мире газовых платформ, гигант Северного моря. Внутри этой конструкции сокрыто множество инновационных разработок, предотвращающих катастрофы.
-В этом выпуске семь изобретений помогут рабочим выполнить семь сложнейших задач, что бы удвоить поставки газа в европейские города.
-Утечка нефти или газа может обернуться пожаром. Если ситуация выйдет из под контроля - последствия будут ужасными. Малейшая ошибка - и контроль потерян...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2935367BD00AB6251A4AB56F3258BF8DBA174184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413943   (387862) от 07.10.2020
-
-Erdling - Yggdrasil (2020) 2xCD [FLAC|Lossless|image + .cue] <Industrial Metal, Neue Deutsche Harte, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387862.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Hel (Intro)
-02. Blizzard
-03. Wir Sind Midgard(   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche Harte, Gothic RockПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8B0F554B0329B56827A3FF11C9DA98CE27F939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571615   (387861) от 07.11.2012
-
-Журнал | Всё для женщины. Спецвыпуск. На нашей кухне №6 [ноябрь-декабрь 2012] [PDF]
+Журнал | Приготовь. Спецвыпуск №10 (октябрь 2017) [PDF]
 
 >>Журналы
->>Домоводство (журналы)
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387861.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На нашей кухне - Отличный журнал кулинарных рецептов. В номере вас ждут салаты от Михаила Боярского и Льва Лещенко, мастер класс от Надежды Бабкиной: как сделать настоящий холодец; выпечка о Николая Баскова и торты от Таисии Повалий. А также множество рецептов блюд для новогоднего стола и советы по декору.Формат: PDF
+Выпуск «Приготовь! На любой вкус» представляет новую коллекцию разнообразных рецептов на любой вкус.
+«Приготовь» - специальное кулинарное приложение к известному журналу «Женские секреты». Каждый выпуск посвящен определенной теме. В каждом номере журнала - кулинарные рецепты с подробнейшим поэтапным описанием приготовления блюда. Каждый шаг на пути к кулинарному (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA02733CAB3312CEDA52527F464279BAE872BFBC
+magnet:?xt=urn:btih:AEFAC8E7B462810F8C05905BAB4E1C113BE2DF40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -704,34 +272,449 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 571704   (387860) от 07.11.2012
+###  Публикация: 1172998   (391287) от 10.10.2017
 
-VA - Who Are You: An All Star Tribute To The Who (2012) [MP3|320 кб/с]<Hard Rock, Classic Rock, Prog Rock, Rock>
+А.Г. Дугин | Ноомахия. Войны ума. Цивилизации границ. Россия, американская цивилизация, семиты и их цивилизация (2014) [PDF, DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387860.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. John Wetton (Asia) - K.K. Downing (Judas Priest) - Derek Sherinian (Dream Theater) - Eminence Front -  [05:31]
-02. Nektar - Jerry Goodman (Mahavishnu Orchestra) - Baba O Riley -  [05:22]
-03. Mark Lindsay (Paul Revere & The Raiders) - Wayne Kramer (MC5) - I Can See For Miles -  [04:06]
-04. Joe Elliott (Def Leppard) - Rick Wakeman (Yes) - Huw Lloyd-Langton (Hawkwind) - Carmine Appice (Vanilla Fudge)  - Love Reign O'er Me - [06:16]
-05. Knox (The Vibrators) - Dave Davies (The Kinks) - Rat Scabies (The Damned) - My Generation -  [03:28]
-06. The Raveonettes - The Kids Are Alright -  [02:32]
-07. Sweet - Won t Get Fooled Again -  [07:41]
-08. Todd Rundgren - Carmine Appice (Vanilla Fudge) [02:37]
-09. I Can t Explain - Iggy Pop - Anyway Anyhow Anywhere -  [02:07]
-10. Pat Travers - Behind Blue Eyes -  [03:42](   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Prog Rock, RockПродолжительность: 01:06:23
+В книге рассматриваются цивилизации, граничащие с европейским культурным пространством, сложившиеся под его прямым влиянием или самостоятельные, но находящиеся в активном контакте и постоянном диалоге с Европой. Автор реконструирует ноологические модели этих пограничных цивилизаций, показывает этапы их становления и динамику взаимодействия с европейским полюсом. (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C57C7A0D5E38B212FD86EB76E6424E6E045BF710
+magnet:?xt=urn:btih:E8DDD769EAF6DEAE4CE60B0C6CC911EABADF93EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173182   (391286) от 10.10.2017
+
+VA - Hesperia: Synthspace Electronic Party (2017) [MP3|192-320 Kbps] <Synthspace, Electronic>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_391286.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sunlight Project - Lights In The Sky
+002. Orax - Dreaming
+003. Zonasphere - Timelines
+004. Powernerd - Pat Habit's Theme(   Читать дальше...   )Жанр: Synthspace, ElectronicПродолжительность: 14:09:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172956   (391285) от 10.10.2017
+
+GLXY - Butterfly Effect (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Butterfly Effect (feat. Visionobi, Hugh Hardie) (05:01)
+ 02. Cylindrical (05:14)
+ 03. Bloo (05:03)
+ 04. Lonely (feat. Belle Humble) (FD's Roll Out Remix) (05:13)Жанр: Drum & BassПродолжительность: 00:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDDE1207995E37E8EC9A5D1DC2BB4E2A939CBC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172988   (391284) от 10.10.2017
+
+Stand Up (2017.10.08) HDTV [H.264/1080i-LQ] (сезон 7, выпуск 4)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТ HDЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4349F252A516D06BB1C59BB9B285FEB160B053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172986   (391283) от 10.10.2017
+
+Stand Up (2017.10.08) WEB-DLRip (сезон 7, выпуск 4)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C4D5000A7B425B9FCE60D3997A5EF45F2B09152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570015   (391280) от 04.11.2012
+
+Sexy Girls Pack Wallpapers (03.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5315x3543
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE3F419CCD88640172A064145B5425B1B578C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569984   (391278) от 04.11.2012
+
+[Wallpapers] Desktop Wallpapers Pack 8
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391278.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 8
+Название: Desktop Wallpapers Pack 8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013266BAE93F44CC84B2AFCDB0213F78FA440665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570016   (391277) от 04.11.2012
+
+Wallpapers Sexy Girls Pack (03.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 6000x4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BD222C7FBEAB0B5B9374581EAAE2996287E7B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570006   (391276) от 04.11.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1680х1050 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3135A7D5FEFC8F8A5DABDB5DB70AE3E3193D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570025   (391275) от 04.11.2012
+
+[Wallpapers] Desktop Wallpapers Pack 13
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391275.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 13
+Название: Desktop Wallpapers Pack 13
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFA5C7FC45ED201024408D67706067D2E62AC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570028   (391273) от 04.11.2012
+
+[Wallpapers] Desktop Wallpapers Pack 15
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391273.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 15
+Название: Desktop Wallpapers Pack 15
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1366х768
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC335111E2468D58B0BB52367905C76616D1BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570027   (391272) от 04.11.2012
+
+[Wallpapers] Nature Desktop Wallpapers Pack 5
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391272.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Desktop Wallpapers Pack 5
+Название: Nature Desktop Wallpapers Pack 5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 3200х2000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88FFEABEAAC16534BB66704CFB491B3B7C87E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570236   (391271) от 04.11.2012
+
+[Wallpapers] Desktop Wallpapers Pack 20
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391271.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 20
+Название: Desktop Wallpapers Pack 20
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A189546D5C86E1F0A76EB45BD9672DB5255B8613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570056   (391270) от 04.11.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19955D30B131EDFBC6FCEF9A1C43CED8AFE61C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570047   (391268) от 04.11.2012
+
+[Wallpapers] Avto Desktop Wallpapers Pack 3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391268.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Desktop Wallpapers Pack 3
+Название: Avto Desktop Wallpapers Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575AAD973785D151137F5E9456C6D144769177D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570044   (391267) от 04.11.2012
+
+[Wallpapers] Desktop Wallpapers Pack 17
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391267.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 17
+Название: Desktop Wallpapers Pack 17
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F1F63BB83FD428601CB1A678663CAC614A9691
 ```
 
 https://mybot314.ru/tekegram_catalog/

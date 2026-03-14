@@ -1,3 +1,32 @@
+###  Публикация: 1225041   (662767) от 13.05.2018
+
+VA - Andromed: Glamtronica Remix (2018) [MP3|320 Kbps] <Synthpop, Synthwave, Electronica>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Andromeda: Glamtronica Remix - это новаторский подход к синтипоп-музыке со своей неповторимой подачей, включающий в себя глубокий, порой академический вокал, виртуозную работу с различными музыкальными жанрами и превосходные мелодии, которые сразу врезаются в память.001. LEVEL 2.0 - Off The Radar
+002. Fake The Envy - These Are The Fools (2016 Edit)
+003. Slave Republic - Something Inside You
+004. Night Drive - Trapeze Artist Regrets(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicaПродолжительность: 10:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387AB853836E313974E36E6803AF92D05F91CCC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138912   (662326) от 31.05.2017
 
 VA - Pacific Progressive Trance Vol. 3 (2017) [MP3|320 Kbps] <Progressive Trance>
@@ -722,35 +751,6 @@ VA - Воодушевляющий Мелодичный Транс [Sound Clinic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B70628374DA759E33465BB0395780478F0C4E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539377   (656139) от 27.03.2022
-
-VA - Vocal Chillout Live Set (2022) [MP3|320 Kbps] <Chillout, Vocal, Ambient, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релаксация и ощущение Лазурного берега с легким бризом в сборнике под названием "Vocal Chillout Live Set". Лучшие хиты Чилаут музыки в легком сопровождении вокала на треках представляемого лонгплея.001. Greg Knight - Circle Of Clowns
-002. Marianne Faithfull - The Prelude Book One Introduction
-003. Emika - Angel Come
-004. The Wednesday Experiment - Everyday The Same(   Читать дальше...   )Жанр: Chillout, Vocal, Ambient, RelaxПродолжительность: 07:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5166DB12504AF1631352890771DAF81A9941CD4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

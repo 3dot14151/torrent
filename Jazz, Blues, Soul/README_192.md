@@ -1,3 +1,177 @@
+###  Публикация: 1138922   (662418) от 31.05.2017
+
+Gilberto Gil - Luar (1981) 2002, Warner Music Brasil [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luar (A Gente Precisa Ver O Luar) (4:22)
+02. Palco (4:26)
+03. Sonho Molhado (4:30)
+04. Lente Do Amor (3:40)(   Читать дальше...   )Жанр: Brazilian Jazz, World FusionПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89789F0EBC981BF199AA8CAD674AC2BA6514FEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138882   (662416) от 31.05.2017
+
+Howlin' Wolf - Who Will Be Next? (1992) Charly Blues Masterworks, Vol.30 [WavPack|Lossless|image + .cue] <Blues, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Will Be Next? (2:34)
+02. I Have A Little Girl (2:36)
+03. Come To Me Baby (2:25)
+04. Don't Mess With Me Baby (2:38)(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C144443BCF2EB457497EA7CCFBA0F02E2677689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139014   (662414) от 31.05.2017
+
+Ida Sand - Meet Me Around Midnight (2007) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr Pianoman  (03:37) 
+02. Bang Bang  (02:46) 
+03. Brutal Truth  (03:57) 
+04. Every Little Bit Hurts  (04:03) (   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA7F4278D0F9D9BD651A255184A00B6229FDD72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538557   (662408) от 21.03.2022
+
+Junior Mance Trio & Orchestra - The Soul of Hollywood & That Lovin' Feelin' (1962, 1972) 2002, Milestone [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never On Sunday [2:48]
+02. Maria [2:51]
+03. Tara's Theme [4:00]
+04. Fanny [4:01](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2F9E67AAE8837F33C54E8EA9F2671DB2475241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538509   (662406) от 21.03.2022
+
+Peter Veteska & Blues Train - So Far so Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Done with Bad Luck (4:28)
+02. I've Got the Blues This Morning (4:25)
+03. I Miss You So (5:16)
+04. My One and Only Muse (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E10E09EA13D2824331522AFE764D33F4C916D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538506   (662405) от 21.03.2022
+
+Open Investigation - Open Investigation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raidho (4:16)
+02. Poison Man (3:16)
+03. Left is the Blues (4:28)
+04. Scoundrel (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5FCEE181443F3943B4FB3E558BC4B267575E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538516   (662401) от 21.03.2022
 
 Rune Robert Friis - Built for Comfort, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -568,180 +742,6 @@ Chie Ayado & Junior Mance - Only You (1996) 2010, Ewe Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5229ACD1CDF703E68ACAEE6C397CCDEBCE8300D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139041   (661308) от 01.06.2017
-
-Oscar Wilson - One Room Blues (2017) [MP3|320 Kbps] <Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Was Young (02:53)
-02. Lost Mind (02:59)
-03. Found Love (02:25)
-04. Blackjack (03:42)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13702FD196FA9F6A23A1D59FCCC97D58F580F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139255   (661296) от 01.06.2017
-
-Sean Webster Band - Leave Your Heart At The Door (2017) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me The Truth (4:44)
-02. Wait Another Day (4:49)
-03. Broken Man (4:10)
-04. You Got To Know (4:14)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD82213F255AC3CB90F0C4BB3935F8BCCEF2581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139127   (661194) от 01.06.2017
-
-Tape Five - Soiree Deluxe (2017) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Step into My Time Machine
-02. Hush Hush Magazine
-03. Love Gun
-04. Get Down Luna Park(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E8BBC9473B4F2CA3DE71976468929C7255C675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138990   (661108) от 01.06.2017
-
-Justin Johnson - Smoke & Mirrors (2014) 2 CD [FLAC|Lossless|WEB-DL|tracks] <Guitar Blues, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satan Your Kingdom Must Come Down  (04:53) 
-02. Wade in the Water  (02:49) 
-03. Down by the Riverside  (04:28) 
-04. When the Saints Go Marching In  (04:10) (   Читать дальше...   )Жанр: Guitar Blues, InstrumentalПродолжительность: 01:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C7139C2D0587945870FAB4E2F33AEC26A9C121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538940   (661080) от 22.03.2022
-
-Hurricane Ruth - Live At 3rd & Lindsley (2022) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll Little Sister (4:21)
-02. Hard Rockin' Woman (4:07)
-03. What You Never Had (4:12)
-04. Dirty Blues (4:47)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C47E1B55A92714A69D1D009225B40CA1026B5D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902367   (660886) от 28.05.2015
-
-Melody Gardot - Currency Of Man [Deluxe Edition - The Artist's Cut] (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Misunderstand
-02. Don't Talk
-03. It Gonna Come
-04. Bad News(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17490CA737B6ADC5AEADD364669ABDAA3137ADE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

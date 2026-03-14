@@ -1,3 +1,29 @@
+###  Публикация: 1080895   (285707) от 08.12.2016
+
+Проекты - VideoHive - Christmas Magic Particles - 19050272 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Christmas Magic Particles - проект для Рождественского приветствия с магическими частицами. Идеально подходит для поздравительных видео-открыток или вступления в ваш фильм.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E39DC17843386CEBA1292C3C6312E1B01C8AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080985   (285705) от 08.12.2016
 
 Проекты - VideoHive - Christmas - 6192518 [AEP]
@@ -649,33 +675,6 @@ Simple Typer - Holiday Particles Handwritten Typeface имеет полност�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7EE2906AC26F2A687A82A547556FF49936ED0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263920   (284009) от 21.11.2018
-
-Проекты - VideoHive - Elegant Slideshow - 13138652 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elegant Slideshow - проект который поможет легко создать, красивое слайд-шоу, с оригинальными переходами.
-Автор проекта: StevepfxФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B61175752C5E33A2AB675CE44C87E9D53628263
 ```
 
 https://mybot314.ru/tekegram_catalog/

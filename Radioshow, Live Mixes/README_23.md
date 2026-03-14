@@ -1,3 +1,61 @@
+###  Публикация: 1719756   (110411) от 02.05.2024
+
+KAAZE - Live @ Illuzion Phuket, Thailand (2024-04-20) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KAAZE & ID - Give It To Me (Intro Version)
+02. KAAZE - The Way
+03. KAAZE - Underground (Don't You Want Me) w/Tove Lo - Habits (Stay High) (Acappella)
+04. KAAZE - ID w/Rui Da Silva ft. Cassandra Fox - Touch Me (Acappella)(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2161090CAF0BED18B02C46CE328B92DB6BCC702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719813   (110377) от 02.05.2024
+
+Pretty Pink - Live @ DxB Boat Party Dubai, United Arab Emirates (2024-03-23) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretty Pink - Happening (Pretty Pink Edit)
+02. Underworld - Born Slippy (Pretty Pink Remix)
+03. Julian Jordan - The Bass (Pretty Pink Remix)
+04. Sunbeam - Outside World (ID Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59AAAD656ED1B1071ABA7DE031489C0022B727B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719826   (110312) от 03.05.2024
 
 James Grant & Jody Wisternoff - Live @ Anjunadeep London, Roundhouse London, United Kingdom (2024-03-09) [MP3|320 Kbps] <Progressive House, Trance>
@@ -686,64 +744,6 @@ Markus Schulz - Global DJ Broadcast Sunrise Set (2024-06-27) [MP3|320 Kbps] <Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA58148A89576888A2E86B06C4675FA656E8BC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733600   (107264) от 30.06.2024
-
-Tiësto - Tomorrowland Friendship Mix (2024-06-27) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Port & Stryv ft. Malachii - Move
-02. RAFFA GUIDO - Famax
-03. Disclosure ft. Eliza Doolittle - You & Me (Rivo Remix)
-04. Tiësto & Prophecy - My City(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE92B80AF1C1D62282D8C9CF6A8EB664F336A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733848   (107205) от 01.07.2024
-
-VA - Live @ Pinkpop Festival Netherlands (2024) [MP3|320 Kbps] <Progressive House, Melodic House, Techno, Drum & Bass>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pendulum @ North Stage, Pinkpop, Netherlands 2024-06-22
-01. Pendulum - Napalm
-02. Pendulum - The Island, Pt. I (Dawn)
-03. Pendulum - The Island, Pt. II (Dusk)(   Читать дальше...   )Жанр: Progressive House, Melodic House, Techno, Drum & BassПродолжительность: 02:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F175951CB0B8EACF6669F11221A75B632A67977
 ```
 
 https://mybot314.ru/tekegram_catalog/

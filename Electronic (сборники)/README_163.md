@@ -1,3 +1,32 @@
+###  Публикация: 1179504   (349345) от 31.10.2017
+
+VA - Uplifting Elegance Trance (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349345.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Damian Wasse - Rise Of Nation (Intro Mix)
+002. Alex Leader - Still Alive (Original Mix)
+003. Oliver Fox - Assorted Colours (No Vocoder)
+004. Airwave - The Quest For Beauty (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 10:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381E0D38FDB9B55051BA9045CBA2E98D8CEC5558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178994   (349339) от 31.10.2017
 
 VA - Synthetic  vol.7 (2017) [MP3|243-320 Kbps] <Synthpop>
@@ -754,41 +783,6 @@ VA - White Night Affair (2020) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6351DAAD6F1B40E34ADE8E754957729D814DD05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580241   (344689) от 24.11.2012
-
-VA - Сборник дабстепа с женским вокалом (2010-2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344689.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	501 - Grindhouse
-2.	501 ft. Belle Humble - Headrush
-3.	Above & Beyond feat. Zoe Johnston - You Got To Go (Seven Lions Dubstep Remix)
-4.	Adele vs. Skrillex - Set Fire To Everybody (ca7's Mashup)
-5.	Adventure Club Ft Krewella - Rise & Fall
-6.	Amy Kuney - Kiss me Like You Mean it (Butch Clancy Remix)
-7.	Aelyn - In And Out Of Love (DJ Men Bootleg Mix)
-8.	Bat For Lashes - Daniel (Mt Eden Dubstep remix)
-9.	Big Gigantic - We Are The Sun by Savoy ft. Heather Bright
-10.	Booty Luv - Say It (Nero Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 11:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBADFF51AB22DB035A5DCD05011CF991BA0F71C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

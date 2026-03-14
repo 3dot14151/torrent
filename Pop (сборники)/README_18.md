@@ -1,3 +1,119 @@
+###  Публикация: 1102662   (889355) от 10.02.2017
+
+VA - На волне позитива. Русский сборник (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889355.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tiana - Телеграммы 3:33
+002. Герр Антон (Herr Anton) - Так Тому И Быть 3:33
+003. Натали Янковских - Ты Мой 3:34
+004. Sunsay Feat. Тося - Поезд 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79F89EE8C4E47B99BA828545A1F8999B3AA0267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994937   (888168) от 09.03.2016
+
+VA - 200 Hits America Latina (2015) [MP3|320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888168.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Extra Latino - 6 Am.mp3
+002. Extra Latino - Ay Vamos.mp3
+003. Extra Latino - Travesuras.mp3
+004. Extra Latino - La Nueva y la Ex.mp3(   Читать дальше...   )Жанр: DanceПродолжительность: 13:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C8AFCD0B0D034221E266159F308EA5CEEFF8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994988   (888120) от 09.03.2016
+
+Precious Wilson (ex. Eruption) - Collection (1979-1983) [OGG|438-537 кб/с] <Disco, Funk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are On The Race Track
+02. Cry To Me
+03. Video
+04. Kisuaheli(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB7BA001CB315742B194C66D8C115C357277194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371790   (888097) от 01.04.2020
+
+VA - Shazam Хит-парад Russia Top 100 Март (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888097.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Intelligency - August (3:27)
+2.El Capon - Shut Up Chicken (2:30)
+3.The Weeknd - Blinding Lights (3:21)
+4.Тайпан, Agunda - Луна не знает пути (2:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB24EF222842847D68C480CD631ED02E2C710A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995008   (887957) от 09.03.2016
 
 VA - Музыка хорошего настроения 3 (2016) [MP3|256 кб/с] <Pop>
@@ -604,144 +720,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 996143   (881057) от 13.03.2016
+###  Публикация: 298700   (881726) от 21.02.2011
 
-VA - Музыка хорошего настроения Vol 2 (2015) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheryl Cole - I Dont Care
-02. Александр Балыков - Лето (DJ Nejtrino & Kirill Clash Extended Remix)
-03. Olly Murs - Tomorrow
-04. Major Lazer Feat. Ariana Grande - All My Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091D40AF5E5F3FC11C8E71CE77CEE0224B5512C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996015   (880628) от 13.03.2016
-
-VA - Зайцев нет. Лучшие новинки марта (2016) [MP3|160-320 кб/с] <pop>
+VA - Зимний танцпол (2011) [MP3|256 kbps]<Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880628.jpg" />
+  <img src="http://mybot314.ru/public/picture/009/save_picture_881726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Nicky Romero & Nile Rodgers – Future Funk
-2. Леонид Агутин – Отец
-3. Brazzaville – The Oceans of Ganymede
-4. Потап и Настя – Умамы(   Читать дальше...   )Жанр: popПродолжительность: 03:08:13
+Жанр: PopПродолжительность: 06:06:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A6E55360538C5C2B6278B24BAC98BB3B8742B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495505   (880611) от 12.09.2021
-
-VA - Best Of 2021 - Herbst/Winter (2021) 2CD [MP3|320 Kbps] <Hip Hop, Latin, Dancehall, Post-Disco, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Take My Breath
-02. Felix Jaehn & Robin Schulz - I Got A Feeling (feat. Georgia Ku)
-03. Tinlicker & Helsloot - Because You Move Me
-04. Pascal Letoublon - Friendships (Lost My Love) (feat. Leony)(   Читать дальше...   )Жанр: Hip Hop, Latin, Dancehall, Post-Disco, SynthpopПродолжительность: 01:01:05 + 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C65071171754BAADD2965CC2ACAE608384FD04D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495332   (880610) от 12.09.2021
-
-VA - The Loveliness Disco (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Koulz & More - Feeling Blue
-002. Tina B - Jazzy Sensation
-003. Martello - All The Things
-004. Softmal & Llшlita - So Glad(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 11:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4D0DD51541DB8DF1D83D808DA9E323F97FAD31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104087   (880191) от 15.02.2017
-
-VA - Танцевальная зима. Снежная 100-ка выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880191.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Queens - Зачем 3:09
-002. Kevin Hart Feat. Trey Songz - Push It On Me 3:54
-003. Витольд Петровский - Память Из Прошлого 3:26
-004. Mona - Счастье 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245965A5EC4DBB58FB4763986DC3784037CC2B46
+magnet:?xt=urn:btih:11CE7512A42E0B8F113FC597B3F3768690C67C91
 ```
 
 https://mybot314.ru/tekegram_catalog/

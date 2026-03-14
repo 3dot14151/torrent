@@ -1,3 +1,120 @@
+###  Публикация: 1362487   (949433) от 23.02.2020
+
+Al Bano & Romina Power - Raccogli l'attimo (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raccogli l'attimo
+02. Per troppo amore
+03. La luce che hai
+04. Fuori pericolo(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F338B5D94AD10D5806543AF7C05632915955BC5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982022   (948136) от 03.02.2016
+
+VA - Ultimate Love • 4CDs Of Great Love Songs (2015) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <Pop, Soul, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greatest Love All Of All (Whitney Houston) [04:51]
+02. She's Always A Woman (Billy Joel) [03:21]
+03. Brown Eyed Girl (Van Morrison) [03:05]
+04. All Of Me (John Legend) [04:31](   Читать дальше...   )Жанр: Pop, Soul, R&B, BalladПродолжительность: 04:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDEE974BB612930E8486F829ACD0520D95C2FA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 750862   (947751) от 29.01.2014
+
+VA - Pure... Drive (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какая музыка должна сопровождать водителя в поездке? Чтоб не раздражала, не надоедала, не кончалась дольше, не... У каждого ещё целый набор своих не.
+Продолжая серию (ссылка на серию внизу) Pure... от Sony, представляю Вашему вниманию сборничек для водителя. Мне кажется, что каждый найдет для себя, что взять из него с собой в машину.CD1:
+01. Journey - Don't Stop Believin'(4:11)
+02. Kenny Loggins  - Danger Zone(3:32)
+03. Bonnie Tyler -  Holding Out For A Hero(4:23)(   Читать дальше...   )Жанр: Pop, Dance, Rock, OtherПродолжительность: 04:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA0F0A39D73CB6B405B03C9F2F52999F5773F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362866   (946539) от 25.02.2020
+
+VA - Women Of 80s Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Hand On Your Heart 3:38
+02. Bette Midler - Wind Beneath My Wings 4:54
+03. Pretenders - 2000 Miles 3:39
+04. Tina Turner - I Don't Wanna Lose You 4:13(   Читать дальше...   )Жанр: PopПродолжительность: 01:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8583585809BCE72134A4CCAE087E961A5DD57F13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983140   (945468) от 05.02.2016
 
 VA - It Had To Be You • The Ultimate Love Songs (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Ballad>
@@ -629,122 +746,6 @@ VA - Love Is All Around (2000) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5E32E6FD3A9C66A5A6E523DC46864C4683034E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985560   (934093) от 12.02.2016
-
-VA - Global Hits 2002 (2002) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. iiO - Rapture (Tastes So Sweet) (3:07)
-02. Roger Sanchez - Another Chance (3:19)
-03. The Supermen Lovers feat. Mani Hoffman - Starlight (3:29)
-04. Modjo - Lady (Hear Me Tonight) (4:57)(   Читать дальше...   )Жанр: Dance-popПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F020F7A7C13EA218612C3EFA397CF54C43EFFF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364797   (933710) от 05.03.2020
-
-Vanessa Daou - Welcome to My Blues: An Anthology (1994-2017) (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Soul, Acid Jazz, Trip-Hop, Lounge>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once in a While (5:24)
- 02. Trouble Comes (5:09)
- 03. Snow (A Deeper Drift) (3:56)
- 04. How Do You Feel (3:51)(   Читать дальше...   )Жанр: Electronic, Soul, Acid Jazz, Trip-Hop, LoungeПродолжительность: 02:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E258FD9CB1011852470F7CAAC3EEA732F43415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365065   (933555) от 05.03.2020
-
-VA - Retro 80s Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christopher Cross - Never Be the Same (4:10)
-02. Laura Branigan - Spanish Eddie (4:08)
-03. Peter Cetera - Best of Times (4:16)
-04. Matt Bianco - Nervous (4:31)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8610B16B9BFB8A0ED2761BCA94FA0F36F6204DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985641   (932531) от 13.02.2016
-
-VA - EGB: La musica de una generacion (2014) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Bowie - Let's Dance (3:58)
-02. Joe Cocker - You Can Leave Your Hat On (4:09)
-03. Gloria Gaynor - I Will Survive (3:43)
-04. Wham! - Wake Me Up Before You Go Go (3:47)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A11C62BD53BB7CF10E70D207627D7983F1ECFB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

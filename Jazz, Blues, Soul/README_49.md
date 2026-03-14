@@ -1,3 +1,60 @@
+###  Публикация: 1354649   (987075) от 23.01.2020
+
+Archie Shepp - Perfect Passions 1978 (1992) West Wind [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Rose [26:39]
+02. Lush Life [20:02]
+03. In a Sentimental Mood [8:49]Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6BB67CDBB8A94AE89E15EF3956903D3AF041E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354595   (987020) от 23.01.2020
+
+Sensual Chill Saxaphone Band - Sensual Jazz - Saxophone Music (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Sax Relax
+02. Night Time (Saxophone Instrumentals)
+03. In a Mellow Tone
+04. Intimate Moments(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609C9BC2420AA638755C704EAA076C5452FC7CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354647   (986983) от 23.01.2020
 
 Tommy Flanagan - Four Classic Albums 1957 - 1958 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -720,64 +777,6 @@ Umi Yushida - The Way We Were (2002) AGU Prodactions[FLAC|image+.cue] <Vocal Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5566C94A855FF504A3B10132A246692DB2BB216A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971773   (984769) от 04.01.2016
-
-Zoot Sims - Waiting Game (1966) Remaster, 2015, Universal[FLAC|tracks+.cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Old Folks [04:55]
- 02.I Wish I Knew [04:14]
- 03.Once We Loved [02:49]
- 04.It's A Blue World [03:50](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF013C472F95C1A4F3DE6BB846CD5A0E3AD14B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971579   (984695) от 04.01.2016
-
-Stefano Battaglia Trio - In The Morning: Music of Alec Wilder (2015) ECM[FLAC|tracks+.cue] <Post Bop, Modern Jazz, Modern Creative, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In The Morning [11:57]
- 02.River Run [13:18]
- 03.Moon And Sand [06:42]
- 04.When I Am Dead My Dearest [04:03](   Читать дальше...   )Жанр: Post Bop, Modern Jazz, Modern Creative, Piano JazzПродолжительность: 01:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B47AC05FE76CF8D1C6028D3F7E5C44AF5E9C88D
 ```
 
 https://mybot314.ru/tekegram_catalog/

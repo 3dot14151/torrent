@@ -1,29 +1,3 @@
-###  Публикация: 1808215   (10586) от 23.07.2025
-
-Промты - SevenUnited LLC - 402 Ai Art Prompts Environments - 5776902 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 402 промтов с изображением ИИ для локаций. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90C285F8FE95ECC4CC958CAB9DE787C83D54292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808744   (10300) от 26.07.2025
 
 Обои - Eternal Mix Wallpapers Part 66 [JPG]
@@ -672,6 +646,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9AB0A8AA8FF144F1E84BBA1FF582AB90875F9F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815378   (5226) от 30.08.2025
+
+Картинки - Wallpapers Mix №1959 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококачественные обои в новом сборнике на ваш рабочий стол.
+Количество 510.Формат: JPGРазрешение файлов: 1920x1080 - 7952x5304
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A400385A9A8CA8FE78495B96948959B1FC474AD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

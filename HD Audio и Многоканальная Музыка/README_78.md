@@ -1,3 +1,148 @@
+###  Публикация: 1680168   (134644) от 28.11.2023
+
+Opeth - Pale Communion (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134644.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Eternal Rains Will Come (06:43)
+A2. Cusp of Eternity (05:34)
+B1. Moon Above, Sun Below (10:53)
+B2. Elysian Woes (04:48)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F06BE16125C39D0796051A37FD0283724566321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680192   (134642) от 28.11.2023
+
+White Heat UK - White Heat Perfect Storm (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss From The Devil [00:05:47]
+02. Feel The Heat [00:06:24]
+03. Guess I'm Still In Love With You [00:06:37]
+04. Chile Rose [00:05:24](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624424595B7F92D71D002BDCCD9B486BD7A9A31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680082   (134611) от 28.11.2023
+
+The Hedrons - Tired of Taking (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Garage-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Me a Chance (3:15)
+02. Only When it Rains (3:26)
+03. The Waters Coming In (2:37)
+04. Turn the Video Off (2:44)(   Читать дальше...   )Жанр: Rock, Garage-RockПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02433A9DEB681810549AD4DF62CD7A5C319C9E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680475   (134299) от 29.11.2023
+
+Квант ∞ - Зов долга (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Modern Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Волчий Мир
+02. Орда
+03. Быть Воином - Жить Вечно
+04. Медаль За Отвагу(   Читать дальше...   )Жанр: Heavy-Metal, Modern-MetalПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F4B28AB2D669518FB859BE6F58D69BE535ED95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680302   (134295) от 29.11.2023
+
+Sorcerer - Studio Albums (5 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sorcerer — шведская эпическая дум-группа из Стокгольма, основанная в 1988 году, распавшаяся в 1992 году и реформированная в 2010 году.1995 (2015) - Sorcerer
+2015 - In the Shadow of the Inverted Cross
+2017 - The Crowning of the Fire King
+2020 - Lamenting of the InnocentЖанр: Epic Doom MetalПродолжительность: 05:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC3ED87E069E8D7549EFC266D31E2662FEEC012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680509   (134207) от 29.11.2023
 
 Poison Dollys - Invasion (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
@@ -599,156 +744,6 @@ The Alan Parsons Project - The Instrumental Works (1988) Reissue, 2023, Arista -
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96D876ACD90647D6F79B0C72691E9644C62C4438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681034   (132987) от 02.12.2023
-
-P!nk (Pink) - Trustfall (2023) Tour Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность:
-01 – When I Get There
-02 – TRUSTFALL
-03 – Turbulence(   Читать дальше...   )Жанр: Pop-Rock, ElectronicПродолжительность: 2 CD,
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9795CC4FD2E3B27B82F365398ED5E453B1A886C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595072   (132942) от 27.12.2012
-
-Deep Purple - Live On The BBC (1972) /2004, Audio Fidelity/ [DST 2.0 1bit/2822,4kHz |SACD-R]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (0:13)
-02. Highway Star (8:19)
-03. Strange Kind Of Woman (9:17)
-04. Maybe I'm A Leo (6:18)
-05. Never Before (4:35)
-06. Lazy (10:21)
-07. Space Truckin' (21:45)
-08. Smoke On The Water (7:08)
-09. Lucille (7:25)Жанр: Hard RockПродолжительность: 01:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E19C914E10C4B01270F124347F965EEADD705A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681651   (132742) от 03.12.2023
-
-Nuclear - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nuclear — чилийская трэш-метал-группа, основанная в Арике, Чили, в 1998 году.2006 - Heaven Denied
-2008 - Ten Broken Codes
-2010 - Jehovirus
-2015 - Formula for AnarchyЖанр: Thrash MetalПродолжительность: 03:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170A4189CFD363D30263F9CA1F3DB650A5F484D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681443   (132720) от 03.12.2023
-
-Modus - Friends (1987) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132720.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Show Must Go On
-A2 Friends
-A3 Stallion In The Dawn
-A4 Where Do You Go?(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE706B5823E98F878BF8B6C1534663476060308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681551   (132664) от 03.12.2023
-
-Игорь Растеряев - Круговорот (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132664.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дядька
-2. Снег
-3. Возвращение
-4. Памяти друга(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9E3E0BAD49696172B707ECF276081CB00BDD86
 ```
 
 https://mybot314.ru/tekegram_catalog/

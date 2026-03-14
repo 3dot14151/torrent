@@ -1,3 +1,119 @@
+###  Публикация: 1002714   (844917) от 02.04.2016
+
+Sam "The Man" Taylor & His Orchestra - Sam "The Man" Taylor In Japan (1961) LP, Stereo [FLAC|Lossless|tracks] <Jazz, Sax, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844917.jpg" />
+</div>
+
+
+###  Подробнее
+
+A:
+01. Broken Promises    03:39
+02. Lullabe of Itsuk    02:51
+03. Harlem Nocturne    04:00(   Читать дальше...   )Жанр: Jazz, Sax, InstrumentalПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091EBDB52BDEA52F0CF27F05F54412149BFD4D19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002767   (844826) от 02.04.2016
+
+Ernesto Cortazar - 3 альбома (2011 - 2012) [FLAC|Lossless|tracks] <New Age, World, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Moon    04:41
+02. Infatuation    02:47
+03. Finally Together    03:20
+04. Truly in Love    02:53(   Читать дальше...   )Жанр: New Age, World, Piano |Продолжительность: 01:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454CFB525DDACBA9F813DE70F712474570DAA1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 245727   (844668) от 02.04.2016
+
+Александр Колкер - Труффальдино из Бергамо (1976) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_844668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Начало
+02. Вступление
+03. Пролог
+04. Погоня(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500073   (844432) от 04.10.2021
+
+Raphael - Music for Love (2008) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Initiation
+02. The Healing Dance
+03. Liberation
+04. Laxshmi(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0684A855AF078D4BABA8A757C0FE600311CFE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112156   (843288) от 08.03.2017
 
 VA - No Stress Music Playlist 3: Pure New Age & Chillout Relax (2017) [MP3|320 Kbps] <New Age>
@@ -630,122 +746,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FB1D543CADF6D5AEB14F7B2477951276D2C592C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379339   (836391) от 01.05.2020
-
-Сергей Ильинов - Fantasy (1996) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Ильинов родился в апреле 1961 года в Оренбурге. Окончив музыкальную школу по классу классической гитары, подался в Москву, где играл на басу и пел в различных «ресторанных» коллективах. В 1988-м создал музыкальный театр-студию «Служба доверия», работал ди-джеем, звукорежиссером и композитором на радио (в том числе в Русской редакции BBC).01. Дождь (2:26)
-02. Воздух (3:57)
-03. Ветер (3:29)
-04. Ночь (2:58)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E71C7D49E4952E4575D617E06A682E69174121F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378973   (836377) от 01.05.2020
-
-Louis Landon - Southwest Solo Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Agave 04:18
-2. Antelope Canyon 04:14
-3. Tonto Natural Bridge 03:44
-4. Apache Trail 04:01(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F408C8BCB698BF53AEE15F290C12AF889E1E621C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113673   (836341) от 12.03.2017
-
-Chris Spheeris & Paul Voudouris - Greatest Hits & Unreleased Masters (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enchantment [00:04:31]
-02. Orlando [00:04:55]
-03. Pura Vida [00:03:50]
-04. Respect 2 [00:15:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD58189819CF8AB4D7BD938933F19C7B35164108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379509   (836103) от 01.05.2020
-
-2002 - Celtic Fairy Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836103.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Castle of Dromore 04:58
-2. The Green Fields of Autumn 05:43
-3. Lullaby 05:07
-4. South Wind 05:06(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24437C6C9D140F9247AE6C276DB62A794F7F8EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

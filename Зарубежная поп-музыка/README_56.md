@@ -1,3 +1,67 @@
+###  Публикация: 575180   (368276) от 15.11.2012
+
+Eros Ramazzotti - Somos (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahora Somos
+ 02. Un Angel Como El Sol Tu Eres
+ 03. Este Tiempo Tan Nuestro
+ 04. Yo Soy Tu
+ 05. Hasta El Extasis
+ 06. Abrazame
+ 07. Baila Solo Con Tu Music
+ 08. Amigo Mio
+ 09. Dos Minutos
+ 10. Bajo El Mismo Cielo(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5316ADC8FDB01C067A0B5638799C131F2BA8423B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576364   (366513) от 14.09.2022
+
+Ace Of Base - Hidden Gems (2015) [OGG Vorbis|484 Kbps] <Electronic, Pop, 	Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Would You Believe                   	2:50
+02. Go Go Go                                 	3:29
+03. Into The Night Of Blue          	4:13
+04. Don’t Stop                               	2:49(   Читать дальше...   )Жанр: Electronic, Pop, 	EurodanceПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55758E09996C0DF3196671BAF56893C49539DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070806   (364662) от 08.11.2016
 
 VA - Endless Wide - Acousitc Session Alaska (2016) [MP3|320 Kbps] <Acousitc, Pop>
@@ -711,64 +775,6 @@ Charles Aznavour - Greatest Hits (All Tracks Remastered) (2017) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66D58DB080BE877FC8FDC2A5F7FF1EC88F26D54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578167   (350301) от 21.09.2022
-
-Brian Briggs - 2 Albums (1980, 1982) LP [MP3|320 Kbps] <Electronic, Power Pop, Rock, Synth-pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звукорежиссер, продюсер и музыкант. Родился в Великобритании и много лет проработал в Bearsville Studios01. Lookin' Out (3:29)
-02. Nervous Breakdown (3:42)
-03. See You On The Other Side (3:37)
-04. Aeo (Part I And II) (5:53)(   Читать дальше...   )Жанр: Electronic, Power Pop, Rock, Synth-pop, New WaveПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9354231FDC5516D1AAD7805F7C0C5AD7273C8A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577851   (350290) от 21.09.2022
-
-Fun Boy - The Album (2022) [MP3|320 Kbps] <Italo-Disco, Euro Disco, Hi-NRG>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fun Boy Turbomix [00:10:24]
-02. D. A. N. C. I. N. G (feat. Budia) [00:05:42]
-03. Breaking My Heart (feat. Sascha) [00:05:57]
-04. Can't Stop Moving (feat. Sascha) [00:07:15](   Читать дальше...   )Жанр: Italo-Disco, Euro Disco, Hi-NRGПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764A501E10B12D7FDC6079AE2C0248FD5541C171
 ```
 
 https://mybot314.ru/tekegram_catalog/

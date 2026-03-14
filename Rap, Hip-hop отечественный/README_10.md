@@ -1,3 +1,32 @@
+###  Публикация: 1328044   (368005) от 28.09.2019
+
+Влади - Другое слово (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Увлечение повально
+2. У цветного фонтана
+3. Купидон
+4. Кардиохирург(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195756F6B10DC6EF1167A35463E568BDA669C93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176846   (367249) от 23.10.2017
 
 Мот - Добрая музыка клавиш (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -712,35 +741,6 @@ Jubilee - Меланхолия Drive 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DD8760B2648647EBECF7D3B38C81A05AA6E902E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423429   (300089) от 13.11.2020
-
-Bumble Beezy - Nosebleed (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Круче, чем ты запланировал (Interlude) [00:30]
-02. Perk [02:50]
-03. Остап Бендер [02:42]
-04. Switch [02:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4E13E4AAA9E9C8BA308B85526B5217B5AA423C
 ```
 
 https://mybot314.ru/tekegram_catalog/

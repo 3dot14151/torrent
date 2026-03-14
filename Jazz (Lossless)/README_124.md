@@ -1,3 +1,96 @@
+###  Публикация: 1228027   (639409) от 30.05.2018
+
+Pee Wee Russell - Portrait of Pee Wee (1958) 1991, DCC Jazz [APE|Lossless|image + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Old Feeling [4:19]
+02. World On A String [4:28]
+03. Exactly Like You [3:10]
+04. It All Depends On You [4:03](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08CA4408BC2E438261BC6CE6BE12E37632A43C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519084   (639375) от 05.07.2012
+
+Ron Carter and Helen Merrill - Duets (1989) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_639375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Fall in Love Too Easily (Cahn-Styne) [03:09]
+02. Child is Born (A.Wilder-T.Jones) [05:32]
+03. Come Home Again (Merrill-Zito) [02:27]
+04. Little Waltz (R.Carter) [04:18]
+05. You And The Night And The Music (Dietz-Schwartz) [02:18]
+06. Autumn Leaves (Mercer-Kosma) [02:45]
+07. Come Rain Or Come Shine (Arlen-Mercer) [02:31]
+08. In A Mellow Tone (Gabler-Ellington) [02:47]
+09. Summer Knows (Bergman-Bergman-Legrand) [03:24]
+10. There Is No Greater Love (Symes-Jones) [04:02](   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293214   (639204) от 02.04.2019
+
+Wayne Shorter Quartet - Beyond The Sound Barrier (2002 - 2004) 2005, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smilin' Through [11:52]
+02. As Far as the Eye Can See [6:27]
+03. On Wings of Song [4:35]
+04. Tinker Bell [1:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D001C20CB3C149CFE74E0101BD1AB396B4038E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518836   (639110) от 05.07.2012
 
 Al Di Meola & Leonid Agutin - Cosmopolitan Life (2005) [FLAC|Lossless]<Fusion, Latin Jazz>
@@ -660,93 +753,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F38745681B0EA3DF44E849527C6D38F4BBC0E829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293502   (635676) от 04.04.2019
-
-Seamus Blake - Guardians Of The Heart Machine (2019) [FLAC|Lossless|tracks + .cue] <Post Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guardians of the Heart Machine [8:17]
-02. Vaporbabe [7:10]
-03. Sneaky D [6:55]
-04. I'm Okay [7:41](   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE1B27787DE964B8B3DBED61EAF4A6C1B5B6589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143684   (635519) от 18.06.2017
-
-Jorge Pardo - Cafe Latino 25 Aniversario (2012) Nuta Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La del Pulpo [14:02]
-02. Intro Cafe Latino [02:42]
-03. Amor Ascensor [09:38]
-04. El Efecto Centolla [09:21](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 01:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D360290E9A8BC9E3369B479568926334716A0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034303   (634366) от 13.07.2016
-
-Lee Konitz - The Complete 1956 Quartets (1956, 1957) 2CD, 2010, American Jazz Classics[FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634366.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.The Nearness Of You [05:15]
-02.Like Someone In Love [05:32]
-03.Don't Explain [03:01](   Читать дальше...   )Жанр: CoolПродолжительность: 01:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649B7F1036EEF02195732B8EC62342DD7602A09C
 ```
 
 https://mybot314.ru/tekegram_catalog/

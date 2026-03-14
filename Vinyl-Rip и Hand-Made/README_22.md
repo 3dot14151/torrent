@@ -1,3 +1,115 @@
+###  Публикация: 991825   (611041) от 21.04.2022
+
+Валерий Леонтьев - По вашим письмам: Горькие яблоки (1985) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Горькие яблоки
+02. Конь мой, коньЖанр: PopПродолжительность: 00:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB50483059032583F15526D0D569B0FA73B15DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991818   (611029) от 21.04.2022
+
+Валерий Леонтьев - Ненаглядная сторона (1981) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ненаглядная сторона
+02. Бреду по жёлтым склонамЖанр: PopПродолжительность: 00:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9526CDDB5AE1ED421D577C2F4A9E89F099C4E775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146955   (610991) от 01.07.2017
+
+VA - Rock Remakes - Non Stop Part three (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Rock, Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Beatles Meets Michael - Way You Make Me Feel (Michael Jackson)
+02. Therion - Summer Night City (Abba)
+03. Roxette - Help! (The Beatles)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Heavy MetalПродолжительность: 01:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FA0F9987DB1FEAACD7F52CA0CC2246BB0B02E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912639   (610613) от 26.06.2015
+
+Roger Hodgson - In The Eye Of The Storm (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начинать сольную карьеру в 80-х годах минувшего столетия в прогрессивном роке было делом заведомо неблагодарным. Тем не менее, многих музыкантов это не останавливало, и они наперекор всем начинали выпускать сольные альбомы, нередко вызывая тем самым досаду поклонников и злорадство критиков. Роджер Ходжсон (Roger Hodgson) – один из основателей Supertramp – также не (   Читать дальше...   )A1. Had A Dream (Sleeping With The Enemy) (8:28)
+A2. In Jeopardy (5:58)
+A3. Lovers In The Wind (4:15)
+A4. Hooked On A Problem (4:59)(   Читать дальше...   )Производство: A&M RecordsЖанр: Soft RockПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9400E4EF1B1EA5782302141DB7AFC5D2F29301D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296653   (610045) от 18.04.2019
 
 Кино - Легенды Русского Рока (1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Rock, New Wave>
@@ -627,122 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C9FC68084896F933C1152CA4D25072D23287B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089383   (603217) от 27.04.2022
-
-VA - RETROспектива, часть II: Эстрадные оркестры II (1937-1961) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментальный секстет - Тополь (медленный вальс)
-02. Инструментальный секстет - Цветущий май (фокстрот)
-03. Венгерский джаз-секстет п.у. Т. Балаша - Чай вдвоем (румба)
-04. Венгерский джаз-секстет п.у. Т. Балаша - Серебряная гитара (танго)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CDE915717A0E4E70712072D67FB8BAD86BF598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297720   (603074) от 24.04.2019
-
-Michael Jackson - Blood On The Dance Floor. HIStory In The Mix (1997) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Electronic, Hip Hop, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Blood On The Dance Floor
-02. Morphine
-03. Superfly Sister(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055C536E63D35F4664ADD40727E1030D19E3D026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297746   (603066) от 24.04.2019
-
-Rainbow - Ballads (1995) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Cath The Rainbow
-02. Maybe Next Time
-03. Tearin' Out My Heart(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C363EDBC6FB7F794D9E001C20555E7E031C2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297726   (603054) от 24.04.2019
-
-Guns'N'Roses - The Ballads (1992) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Don't Cry
-02. Patience
-03. November Rain(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2EE2D772F394935C13F2D352C86BC1C0D8BB95
 ```
 
 https://mybot314.ru/tekegram_catalog/

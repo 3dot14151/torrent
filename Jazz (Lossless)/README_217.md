@@ -1,3 +1,90 @@
+###  Публикация: 1182593   (315094) от 11.11.2017
+
+Larry Carlton + SWR Big Band - Lights On (2017) 335 Records/SWR [FLAC|Lossless|image + .cue] <Jazz Fusion, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mellow Out [05:07]
+02. Milestones [05:24]
+03. Kid Charlemagne [08:03]
+04. Fnnn [08:01](   Читать дальше...   )Жанр: Jazz Fusion, Big BandПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4148BD53FA26B8FD21C5943829AB5146917320B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260242   (314685) от 06.11.2018
+
+Matt Bianco - Gran Via (1995) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Salsa, Disco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost in you (4:42)
+ 02. A day in your life (4:13)
+ 03. Friend of mine (4:25)
+ 04. Love just passed me by (4:23)(   Читать дальше...   )Жанр: Afro-Cuban Jazz, Salsa, Disco, Jazz-Funk, Latin JazzПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDC0437084CFC6949A3542B2F07500A77E5751E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260100   (314576) от 06.11.2018
+
+Keith Jarrett - La Fenice (2018) 2CD, ECM [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314576.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Part I [17:44]
+02. Part II [3:26]
+03. Part III [9:48](   Читать дальше...   )Жанр: Contemporary Jazz, Post Bop, Piano JazzПродолжительность: 01:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7630012F841C26F85AF178139077F2518246F8B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583106   (314526) от 13.10.2022
 
 John Handy & Lee Ritenour - Where Go the Boats (1978) 1986, In-Akustik [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
@@ -658,93 +745,6 @@ Wild Bill Davison & Eddie Condon's All Stars - Live! 1955 Miami Beach (2004) Sto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C4C29023517D83AA767A89D11D8DA7BEE469E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422329   (310908) от 08.11.2020
-
-Terence Blanchard - Simply Stated (1992) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil' Fawdy [5:24]
-02. Central Focus [4:39]
-03. Simply Stated [8:24]
-04. Dear Old Stockholm [10:03](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97ABF0A048EF479B84D0D411D380731DB02F3E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845354   (310905) от 28.11.2014
-
-Karen Souza - Essentials [Japan Edition] (2013) [FLAC|Lossless]<Bossa Nova, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Really Want To Hurt Me
-02. Creep
-03. Strawberry Fields Forever (feat. Los Panchos)
-04. Tainted Love(   Читать дальше...   )Жанр: Bossa Nova, Vocal JazzПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CCA9C70D7C11922976CCF96AC1CF86CD6701F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960138   (310422) от 27.11.2015
-
-Elvin Jones - Mr. Jones (1969/1972) 2013, EMI Music[FLAC|tracks+.cue]<Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.One's Native Place [06:19]
- 02.Gee Gee [05:47]
- 03.Mr. Jones [07:38]
- 04.What's Up - That's It [05:42](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059104766FC30E81ACE05C82659299FFCC81A0DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

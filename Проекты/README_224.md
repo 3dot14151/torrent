@@ -1,3 +1,29 @@
+###  Публикация: 1055846   (483774) от 24.09.2016
+
+Проекты - MotionMile - Stylish Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33778719CD0557468616B1621DB5C3CCA81DBB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159583   (483733) от 20.08.2017
 
 Проекты - Проект ProShow Producer - Essences [PSH]
@@ -657,32 +683,6 @@ Photo Gallery - проект, который идеально подойдет �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15A7AECE159E0E9BF61194FB92916C24ECFF067F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056632   (481389) от 25.09.2016
-
-Проекты - VideoHive - Insane Shapes - 4826790 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безумные Формы - шаблон для создания вступительного интро, титров, короткого слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF516B5C414B0CBEE09E830492C576F581B7F1F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1734683   (107080) от 04.07.2024
+
+Marsha Ambrosius - Casablanco (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke [00:03:39]
+02. Tunisian Nights [00:04:09]
+03. One Night Stand [00:04:16]
+04. Cloudy With A Chance Of ...Real [00:04:51](   Читать дальше...   )Жанр: R&BПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2B0F8477E8E5E8015E9CCC69A6D02829AD5B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734684   (107079) от 04.07.2024
+
+Shade Of Sorrow - Upon The Fields Of Grief (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Return [00:05:01]
+02. Blackheart [00:04:50]
+03. Sorrowforger [00:04:21]
+04. Gravedigger [00:05:08](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE79125177BCDD69E75912EF6A0494204B399864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734527   (107075) от 04.07.2024
+
+Velvet Cacoon - Genevieve (2004) Released, 2007, Southern Lord [FLAC|24/192|tracks|Vinyl-Rip] <Black Metal, Dark Ambient, Drone>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1
+02. P.S. Nautical
+03. Avalon Polo
+04. Laudanum(   Читать дальше...   )Жанр: Black Metal, Dark Ambient, DroneПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691436E439CC7E288A84F332F0AC60B99F8C69BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734816   (107072) от 05.07.2024
+
+Kasabian - Happenings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock, Neo-Psychedelia, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkest Lullaby (3:11)
+02. Call (2:30)
+03. How Far Will You Go (1:50)
+04. Coming Back To Me Good (2:50)(   Читать дальше...   )Жанр: Indie Rock, Neo-Psychedelia, ElectronicПродолжительность: 00:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D77CF1198B915EBD0B96937B04E82C12792BA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734813   (107057) от 05.07.2024
+
+Orden Ogan - The Order Of Fear (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power metal, Folk metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kings of the Underworld (3:58)
+02. The Order Of Fear (4:26)
+03. Moon Fire (4:14)
+04. Conquest (4:12)(   Читать дальше...   )Жанр: Power metal, Folk metalПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3718ADA8D3DF0B64221B4EAA13B618E14859CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735176   (107020) от 06.07.2024
 
 Tommy Vext - Antarctica (2024) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
@@ -598,151 +743,6 @@ Lag - Asleep Behind the Wheel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:270B248A386141629B5902215D483F6FEDDA49BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735745   (106882) от 09.07.2024
-
-Quinn Sullivan - Salvation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Love (3:41)
-02. Salvation (Make me Wanna Pray) (3:50)
-03. Rise up Children (3:25)
-04. Don't Wanna Die Today (3:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1159C6967D54BB4F9467AA5EE77EC12EF896EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735743   (106849) от 09.07.2024
-
-Paul Benjaman Band - My Bad Side Wants a Good Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undercover of Night (3:11)
-02. Hot Dice (3:24)
-03. My Bad Side Wants a Good Time (2:41)
-04. Old Rock House (4:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2EBB03F2C714B27E70A25DDCDD377A8307F0FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735740   (106848) от 09.07.2024
-
-Mike Cahen - Bottle Neck Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stuck Here Waiting (2:56)
-02. Cocaine Blues (3:42)
-03. Keep The Options Open (3:51)
-04. The Work Song Featuring Jane Henley (2:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14300EC4941EBCB6E11EDE74B181216AB6D37161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735747   (106844) от 09.07.2024
-
-Rawa Blues Band - Night and Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down Town Train (4:04)
-02. Zelezniok Blues (4:15)
-03. Moja Mila (5:31)
-04. Ich habe einen Plan (5:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510A53024F93E45898809391E155C687A641FA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735734   (106842) от 09.07.2024
-
-Bart&Baker - Electro Swing Classics - The Swing Phenomenon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Swing Phenomenon (LMZG Rework) (3:05)
-02. The Swing Phenomenon (Radio Edit) (3:50)
-03. The Swing Phenomenon (Instrumental Version) (3:51)
-04. The Swing Phenomenon (Dj Mibor Remix) (6:08)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E9E297B43592CF0D2DE5709EAD2A5422824F05
 ```
 
 https://mybot314.ru/tekegram_catalog/

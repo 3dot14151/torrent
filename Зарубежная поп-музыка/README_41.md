@@ -1,3 +1,67 @@
+###  Публикация: 1151533   (572441) от 19.07.2017
+
+VA - 80's Chillout. The Ultimate Collection of Chilled 80's Music (2017) [MP3|320 Kbps] <Pop, Chillout, Lounge>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Fashion - Mad World
+02. Chateau Pop - Time After Time
+03. Flavourine - Smooth Operator
+04. The Blue Rubatos - Eternal Flame(   Читать дальше...   )Жанр: Pop, Chillout, LoungeПродолжительность: 05:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992A5EF698F7E0D0F0E2D436E5BDFC94BFF430F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528517   (572398) от 28.07.2012
+
+Bad Boys Blue - Greatest Hits (2009) [MP3|320 кб/с]<Euro Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572398.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+Продолжительность: 01:19:03
+01. You're A Woman 03:58
+02. A World Without You 03:39
+03. Kiss You All Over Baby 04:25
+04. Bad Reputation 03:35
+05. Lady In Black 03:49
+06. Show Me The Way 03:57
+07. Pretty Young Girl 03:35
+08. Come Back And Stay 03:51(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 02:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059334D40746D855325739D8CA60DB4A6135AF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922088   (571691) от 27.07.2015
 
 Sophie Marceau - Certitude (1985) [MP3|192 кб/с]<French Pop, Chanson>
@@ -711,64 +775,6 @@ Donna Summer - Summer: The Original Hits (2018) [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03BC717A6E37D8D16F3F303D12F1A748EF38DF76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304912   (560063) от 28.05.2019
-
-VA - Fox Giganten (Die besten Discofox Schlager Hits 2019 fur deine Tanz Party) (2019) [MP3|320 Kbps] <Schlager, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kay Dorfel - Malinconia
-02. Tommy Fischer - Du machst mich kopflos
-03. Michael Fischer - Unser Moment
-04. Tom Mathis - Parlez vous francais(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 03:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80154D634B107F7F668121B7FCFA09A09CDAFDD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153709   (558189) от 27.07.2017
-
-Million Dollar Secret - Under The Surface (1989) LP [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558189.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Under The Surface
-A2. Get Down Be Cool
-A3. Cherry
-A4. Red Is The Colour Of My Love(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, FunkПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1710051B6E6B56AE5EA0E5620341ED4E52E652A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1624655   (245029) от 07.04.2023
+
+R.A.F. - Restless Spirit (1986) [MP3|320 Kbps] <AOR, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Boy (04:01)
+02. Only the Heart Can Tell (03:41)
+03. Steal Your Love (04:06)
+04. Restless Spirit (03:12)(   Читать дальше...   )Жанр: AOR, Pop RockПродолжительность: 00:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF0BB8AFD6D4B740988EF123A169248B1FC2BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067361   (244977) от 29.10.2016
+
+DizzRoxx - Personal Message (2016) [MP3|320 Kbps] <Blues Rock, Hard Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Racer   (05:15) 
+  02| Personal Message   (03:11) 
+  03| Rockґn Roll Machine   (03:01) 
+  04| No Matter What The Chairman Said   (03:51) (   Читать дальше...   )Жанр: Blues Rock, Hard Rock, Rock & RollПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A1E2B616189C964409AFC86228D40898AAED51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450976   (244878) от 28.02.2021
 
 IT - Live At ProgDreams VIII (2021) [MP3|320 Kbps] <Neo Prog>
@@ -684,64 +742,6 @@ Eddie B - I'm Holding On (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF0DDBBBFD3931B1DFD2EE2CCB746497214D0CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627541   (242981) от 19.04.2023
-
-Riverside - Riverside 20 The Shorts & The Longs (2021) 2xCD [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - Vol.1 - The Shorts:
-01. Story of My Dream (05:48)
- 02. In Two Minds (Remastered) (04:36)
- 03. Loose Heart (Remastered) (04:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 03:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCF0BE7B9388E594639A94CB6DC469B9A777F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615357   (242807) от 25.02.2023
-
-Toot Farangi - Stingchasers (2023) [MP3|320 Kbps] <Progressive Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psychedelic Jellyfish (4:15)
-02. The Sting (8:14)
-03. Kelp! (3:31)
-04. Call Of Cetacea (6:39)(   Читать дальше...   )Жанр: Progressive Rock, AORПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34424472CCBCA9B9D9F9F115E6574512E6E415C
 ```
 
 https://mybot314.ru/tekegram_catalog/

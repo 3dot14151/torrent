@@ -1,3 +1,61 @@
+###  Публикация: 904575   (654131) от 03.06.2015
+
+Toto Cutugno - Toto Cutugno - The Very Best Of (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'italiano (3:55)
+02. Donna, donna mia (2:58)
+03. L'ete indien (feat. Joe Dassin) (5:14)
+04. Insieme: 1992 (4:25)(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7290D7B4C554EFD933A833E4C144BE5B2D655587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226595   (653872) от 22.05.2018
+
+VA - Disco De Ouro Vol.20 (2018) [MP3|320 Kbps] <Pop, Ligeira, Sertanejo>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santamaria & Rui DC - Não Sejas Assim feat. Rui DC
+02. Adriana Lua - O Movimento
+03. Irmãos Verdades & Bárbara Rosa - Perdoa-Me feat. Bárbara Rosa
+04. Némanus - Gago Por Amor(   Читать дальше...   )Жанр: Pop, Ligeira, SertanejoПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89AF101608F92E39BDBF4FED8B4A828D654A8C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226741   (653776) от 22.05.2018
 
 VA - Die Hit Giganten - Best of NDW (2018) 3CD [MP3|320 Kbps] <Pop>
@@ -713,64 +771,6 @@ James Blunt - All The Lost Souls (2007) [MP3|320 кб/с]<Pop, Soft Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D60DC90ECC2EBD942B058CFB8C0E291B6341F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905803   (645527) от 08.06.2015
-
-Sister Crayon - Devoted (2015) [MP3|320 кб/с]<Trip-Hop, Dream Pop, Indie>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armor (2:29)
-02. Devoted (3:11)
-03. Ride / Die (3:27)
-04. Into Solemn Hymns (3:42)(   Читать дальше...   )Жанр: Trip-Hop, Dream Pop, IndieПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C747A00B2DD446D5EC82D8D3C803EF5F309570AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292618   (645286) от 30.03.2019
-
-Rick Van Der Linden - GX 1 (1977) LP [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GX 1 (4:28)
-02. Mystic Eyes (3:42)
-03. Double Flute X 2 (4:18)
-04. Clouds (3:28)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D24FA9D6A7859E9CD60498A56DD67FE23AA3F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

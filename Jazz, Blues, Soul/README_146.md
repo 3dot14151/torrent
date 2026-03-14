@@ -1,3 +1,173 @@
+###  Публикация: 1126206   (766391) от 17.04.2017
+
+Hurricane Ruth - 2 Album (2015 - 2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766391.jpg" />
+</div>
+
+
+###  Подробнее
+
+2015 - Winds of Change (EP)
+2017 - Ain't Ready for the GraveЖанр: Blues-RockПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6BF263D803AC53F7CAF33ECAAD2E9D00FE0BC75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126310   (766386) от 17.04.2017
+
+Memphis Slim - World's Foremost Blues Singer (1961) LP, Remastered, 2016 [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonesome  (02:31) 
+02. Cold Blooded Woman  (03:42) 
+03. One Man's Mad  (02:54) 
+04. Good TIme Roll Creole  (02:39) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85A6B66DC68146A2999EE287DA5B2439EE3EF59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126383   (766380) от 17.04.2017
+
+Jocelyn & Chris Arndt - Go (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Footprints On The Moon  (03:43) 
+02. Ready Steady Go  (03:08) 
+03. Home  (03:38) 
+04. Bad Business  (04:20) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3EB4B4683D8CC212CEEA4E762BE3A9E36A6B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126357   (766379) от 17.04.2017
+
+Freddy Cole - He Was The King (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy To Remember (6:01)
+02. Exactly Like You (4:30)
+03. Funny (Not Much) (6:05)
+04. That's My Girl (3:06)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFA70E6D7083EDC595C59162B95E4C15FF56714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126385   (766375) от 17.04.2017
+
+Lillian Boutte & Christian Willisohn - Lipstick Traces: A New Orlean RnB Session (1991) [FLAC|Lossless|tracks + .cue] <Piano Blues, New Orlean Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lipstick Traces (3:07)
+02. Why Don't You Do Right? (4:24)
+03. One for the Highway (3:24)
+04. Music is My Life (4:56)(   Читать дальше...   )Жанр: Piano Blues, New Orlean BluesПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8A6D1AECE529039892320AC4A1B0F8CE29BE50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126372   (766328) от 17.04.2017
+
+Goapele - 2 Album (2002, 2011) [FLAC|Lossless|tracks + .cue] <R'n'B, Neo Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766328.jpg" />
+</div>
+
+
+###  Подробнее
+
+2002 - Even Closer
+2011 - Break of DawnЖанр: R'n'B, Neo SoulПродолжительность: 01:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C768BB5793A9DBED94A463B50F55D8B54EDDEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126062   (766327) от 17.04.2017
 
 Freddie King - The Complete King Federal Singles (2012) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Modern Electric Blues>
@@ -571,180 +741,6 @@ Beegie Adair & Friends - Jazz For The Road (2012) Green Hill Productions [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F900B7255EDAE9069F92380083C153675836C93C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279566   (765453) от 30.01.2019
-
-Beegie Adair - Love Letters: The Beegie Adair Romance Collection (2011) 2CD, Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765453.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Love Letters [4:11]
-02. Strangers in the Night [3:34]
-03. So in Love [5:40](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 02:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F03FF4E7A2A32C9A094637948F181A5D523770D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521437   (765230) от 02.01.2022
-
-VA - The Art Of The Piano: Trio, Quartet, Quintet and Beyond (Milestones of Jazz Legends) (1947 - 1962) 10CD, 2020, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Hard B ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765230.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Bill Evans - My Foolish Heart [4:58]
-02. Bill Evans - Waltz for Debby [7:00]
-03. Bill Evans - Detour Ahead [7:37](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 12:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC9B70D9806AA55E3E45EBA06FC75F29E227448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521483   (765227) от 02.01.2022
-
-Harold Mabern Trio - Falling In Love With Love (2002) Venus Records [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Every Man, There's A Women [5:18]
-02. Falling In Love With Love [5:08]
-03. Get Back Jack, Do It Again [6:08]
-04. Why Did I Choose You [6:53](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB148B3B6EF1109F70C458D88E0B7FB5A76A416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521476   (765221) от 02.01.2022
-
-Harold Mabern Trio - Don't Know Why (2004) Venus Records [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edward Lee [6:24]
-02. Dance with Me [6:43]
-03. My Favorite Things [5:23]
-04. Don't Know Why [4:44](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A102406E783F47D0A13F8EE45737A0B5300800A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214339   (764980) от 21.03.2018
-
-Bud Freeman - 1928 - 1938 (1994) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craze-O-Logy [03:00]
-02. Can't Help Lovin' Dat Man [03:25]
-03. What Is There To Say? [03:32]
-04. The Buzzard [03:13](   Читать дальше...   )Жанр: Early Jazz, SwingПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1C84E219101D9453D5C4562A010F58E77C6DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214337   (764978) от 21.03.2018
-
-Ferdinand Povel - Beboppin' (1983) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deception [08:32]
-02. Ghost Of A Chance [05:01]
-03. Beboppin' [07:44]
-04. I Am Old Fashioned [06:10](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51EEC8737BD03B5D87AC96B8DCDDF1195F56E64E
 ```
 
 https://mybot314.ru/tekegram_catalog/

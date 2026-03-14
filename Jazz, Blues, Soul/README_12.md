@@ -1,3 +1,61 @@
+###  Публикация: 1607338   (1044071) от 26.01.2023
+
+VA - Piano: Jazz 'Round Midnight (1949 - 1970) 1991, Verve Records [APE|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nat King Cole - Mean to Me [4:14]
+02. Teddy Wilson - As Time Goes By [3:11]
+03. Bernard Peiffer - Willow Weep for Me [2:56]
+04. Oscar Peterson - Smoke Gets in Your Eyes [3:09](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Piano JazzПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B938A9F55A6770F7763F60BC758FA87A31F366D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607422   (1044037) от 26.01.2023
+
+Jewel Brown - Thanks for Good Ole’ music and Memories (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerry (3:54)
+02. Pain and Glory (1:30)
+03. Why Did You Do That (3:29)
+04. Which Way Is Up (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF9DE0811304D22E13CBCF81619782B88C90A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607424   (1044034) от 26.01.2023
 
 Kinjo & Young - Gone Too Long (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -687,64 +745,6 @@ Bryce Janey - Sweet Baby Jane - Sweet Baby Jane (2023) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1737400C25AABFB1A4CC3AC9A76836FE4F74A2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609142   (1043371) от 02.02.2023
-
-John Arpin - Ragtime Beatles (1987) Fanfare [FLAC|Lossless|tracks + .cue] <Ragtime, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I'm 64 [3:01]
-02. And I Love Her [3:39]
-03. Maxwell's Silver Hammer [4:16]
-04. Here, There and Everywhere [4:57](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4BCFF31AD12314BDA2FAA2F69101168BBE74B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609435   (1043274) от 03.02.2023
-
-Eric Alexander - Revival Of The Fittest (2009) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival [7:25]
-02. My Grown-Up Christmas List [7:35]
-03. The Island [8:46]
-04. Too Late Fall Back Baby [8:15](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6861144D342FE47B1B094088EA257B4529821407
 ```
 
 https://mybot314.ru/tekegram_catalog/

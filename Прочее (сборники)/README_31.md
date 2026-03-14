@@ -1,3 +1,32 @@
+###  Публикация: 997823   (871971) от 18.03.2016
+
+VA - Italo and Space Disco (2016) [MP3|320 кб/с] <Italo Disco, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hyboid - Space Age Gigolo
+002. Yuriy Sosnin - The Galaxy
+003. Dance with the Dead - Signals
+004. DJ Roland - Klarnet Mix(   Читать дальше...   )Жанр: Italo Disco, SynthpopПродолжительность: 06:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FB9C8557B55ABC447BEA9CF0FB400AF63C0DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997738   (871879) от 18.03.2016
 
 VA - KISS FM - TOP 40 Март (2016) [MP3|320 кб/с] <Dance, House, Trance>
@@ -714,35 +743,6 @@ VA - Евро Хиты Топ 40 (Февраль 2017)[MP3|261-320 Kbps] <Club, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4570F62FFF946D2626C011890EA3A15BA0117A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375377   (865617) от 14.04.2020
-
-VA - Easy Listening: Soul Heaven (2020) [MP3|320 Kbps] <Easy Listening, Jazz>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brice Davoli - Big Balloons
-02. Martin Liege - Stream Of Love
-03. Brice Davoli - I'm Not In My Plate
-04. Chillson - Easy Does It(   Читать дальше...   )Жанр: Easy Listening, JazzПродолжительность: 03:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECBC3B504AFC2628F0BC3FF587A679651ADB5BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

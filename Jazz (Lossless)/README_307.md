@@ -1,3 +1,90 @@
+###  Публикация: 1697654   (118749) от 07.02.2024
+
+Chet Baker - Late Night Chet Baker (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Is No Greater Love (2:33)
+02. Oh, You Crazy Moon (3:36)
+03. My Funny Valentine (2:20)
+04. Time After Time (Vocal Version) (2:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 04:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8AB3F3EE3383FBA6F53F966E47FF039CE4CF81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697673   (118734) от 07.02.2024
+
+Eric Dolphy - Muses (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone Together (Schwartz) - 12:07
+02. Muses (Dolphy) - 8:49
+03. Iron Man (Dolphy) - 8:27
+04. Love Me (Young) - 3:40(   Читать дальше...   )Жанр: Free JazzПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E986F4FE9EED5177617B4C940BEDCBB252734B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697572   (118733) от 07.02.2024
+
+Grant Geissman - Bop! Bang! Boom! (2012) Futurism Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boom! [4:46]
+02. The Singularity [5:38]
+03. Q Tip (For Quincy Jones) (with Tom Scott) [5:30]
+04. Un poco espanol (with Russell Ferrante) [6:02](   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D13B7FC983DA578968B98A8D8421818D627C4845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697652   (118728) от 07.02.2024
 
 Alternative Jazz Lounge, Everyday Jazz Academy - Aperitif Jazz Delights Smooth Sounds for Cocktail Hour (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -658,93 +745,6 @@ Alf Kjellman - Feather, But No Wings (1999) 2008, Reflect [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5DB9EB2B051D327FCF4D7CA3AA9E2865A2D5832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699628   (117566) от 14.02.2024
-
-Barry Harris Trio - Chasin' The Bird (1962) 1996, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasin' the Bird [5:35]
-02. The Breeze and I [4:17]
-03. Around the Corner [3:03]
-04. Just as Though You Were Here [3:42](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20398EE864D30A5D7CA331D38AC642E122F2E50A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699552   (117557) от 14.02.2024
-
-Barry Harris Trio - Preminado (1960, 1961) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Stood Still [6:34]
-02. Preminado [5:30]
-03. I Should Care [3:38]
-04. There's No One But You [4:08](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FC7E1889ED2F3D3D4ECDEC503DED591EED5893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699549   (117555) от 14.02.2024
-
-Barry Harris - At The Jazz Workshop (1960) 2006, Riverside [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is You Is or Is You Ain't My Baby (take 2) [5:39]
-02. Curtain Call [3:49]
-03. Star Eyes [4:45]
-04. Moose the Mooche [6:11](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08867DE1CC186167DECA0B7F11BD60E7F73B5275
 ```
 
 https://mybot314.ru/tekegram_catalog/

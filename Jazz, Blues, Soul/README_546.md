@@ -1,3 +1,175 @@
+###  Публикация: 1778968   (70774) от 10.02.2025
+
+VA - Jazz House Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Belladonna - Midnight Piano (7:38)
+02.  Mellowtones - Tushita (5:34)
+03.  Zone - London Dance (5:45)
+04.  Viani Dj & Aaron T - Funker (Original Mix) (7:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101B88AE5C28BC55533EDA61C05C33E5DF6F8A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778957   (70773) от 10.02.2025
+
+VA - Afro Funky House 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jestofunk - Colour (Remix) (5:47)
+02.  Dj Ebreo - Boliban (5:19)
+03.  Belladonna - Tangent (4:05)
+04.  Bantukemistry - Zoma (3:49)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C402DE95F964CA677AB9BD678A436449BE9E5CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778975   (70771) от 10.02.2025
+
+VA - Slow and Smooth Jazzy Beats and Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Papik, The Soultrend Orchestra & Anna Fondi - Summer Madness (5:01)
+02.  Montefroid - The Way You DoЖанр: Smooth JazzПродолжительность: 01:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CD1D4157AAEEE742A3A3EDDBD68E657815FE1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778981   (70770) от 10.02.2025
+
+VA - Soul R&B and Funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, R&B, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Curtis Mayfield - Move On Up (2:46)
+02.  The Spinners - Working My Way Back to You (4:03)
+03.  CHIC - Good Times (8:15)
+04.  George Benson - Give Me the Night (3:43)(   Читать дальше...   )Жанр: Jazz, Soul, R&B, FunkПродолжительность: 03:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD56B8992588AAB21EF9E0538863D918F8193C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778960   (70767) от 10.02.2025
+
+VA - fun and funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul/Funk/R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  CHIC - Good Times (8:15)
+02.  George Benson - Give Me the Night (3:43)
+03.  Sister Sledge - He’s the Greatest Dancer (6:15)
+04.  Chicago - Street Player (9:11)(   Читать дальше...   )Жанр: Soul/Funk/R&BПродолжительность: 02:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4529C3D00D25B58C40D6C68B82B966F57555FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778876   (70765) от 10.02.2025
+
+Dave Stryker - Eight Track (2014) Strikezone Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be Around [4:55]
+02. Pusherman/Superfly [7:16]
+03. Wichita Lineman [6:04]
+04. Aquarius [7:18](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A294BEC18DB953DB7FFCFF812EA2C7E2A261A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778881   (70764) от 10.02.2025
 
 Hal Galper And The Youngbloods - Live At The COTA Jazz Festival (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -571,180 +743,6 @@ Derrick Dove & the Peacekeepers - Burn It Down (2025) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85D03F5C5139F781CF545A4E2A0674EE58A3B1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780133   (70514) от 16.02.2025
-
-Foster Willis and the Slides - Long Hard Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  She Done up and Gone (3:40)
-02.  Broken Down Ramblin' (2:54)
-03.  Drowning My Sorrows (3:57)
-04.  Nothing Left to Lose (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C38E64C179C0BD300999AB959D4FFC5CCA2BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780124   (70511) от 16.02.2025
-
-Balduin - Electro Swing Instrumentals 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Swing Ninjas - King of The Swingers (Balduin Remix Instrumental) (2:38)
-02.  78plus - Sie Will (Instrumental) (2:53)
-03.  ProleteR - Hep Cat Boogie (ProleteR Remix Instrumental) (2:55)
-04.  Riff Kitten - Oops Sorry (Riff Kitten Remix Instrumental) (2:40)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6B809A13CDE2E62A739F4F0B5E19BF44C0B4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780129   (70509) от 16.02.2025
-
-Downhome Kin - Soul in the South (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Burning Green (2:49)
-02.  Veins of Amber (3:41)
-03.  Coping with Grief (3:21)
-04.  Unchained Melody (2:12)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BBEBA5FBE041EA473F3A4815057554B15BADD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780029   (70508) от 16.02.2025
-
-The Phil Woods Quintet - Mile High Jazz: Live In Denver (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for K.B. [10:40]
-02. Song for Sass [12:30]
-03. Harlem Nocturne [10:27]
-04. Godchild [7:12](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 01:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CF40EBE14BB05835F31E84331F1AE5C563B3EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780204   (70506) от 17.02.2025
-
-El Leyton & los Cerrucos - Aires de Lornillo (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Macacos (5:03)
-02.  Micro Pa'l Parque Inglés (6:50)
-03.  Lornillo Blues (7:15)
-04.  Chuleta`s Swing (4:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57B795EC333959A16BAC28D6BD9F11992C89BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780207   (70504) от 17.02.2025
-
-Kulhu & the Vigilantes - Solace In The Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Catch the Devil (4:48)
-02.  Solace in the Blues (5:54)
-03.  Nobody's Alone (5:25)
-04.  Air / Despair (4:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AADAD9E543D4768830051F6B24060FAD4165C78
 ```
 
 https://mybot314.ru/tekegram_catalog/

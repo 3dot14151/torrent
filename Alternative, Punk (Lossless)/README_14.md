@@ -1,3 +1,90 @@
+###  Публикация: 1274712   (792273) от 08.01.2019
+
+Emma Ruth Rundle - On Dark Horses (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Folk Rock, Post Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fever Dreams (04:49)
+02. Control (04:10)
+03. Darkhorse (06:12)
+04. Races (05:34)(   Читать дальше...   )Жанр: Folk Rock, Post Rock, ExperimentalПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF328AA30D11B3FC6C0237A67487CC5A46D16DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509873   (791961) от 15.11.2021
+
+Nirvana - Nevermind (1991) Limited Edition, 30th Anniversary, 2021, Remastered, 5 CD [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Negative Creep (02:53)
+ 02. Been A Son (02:20)
+ 03. On A Plain (03:13)
+ 04. Blew (03:19)(   Читать дальше...   )Жанр: Alternative Rock, GrungeПродолжительность: 04:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98830CC0CB63775C7E1B6AA0C397D4C7D77A606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275033   (791721) от 09.01.2019
+
+Lonewolves - A True Discourse (2010) EP [FLAC|Lossless|tracks + .cue] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollow (1:57)
+ 02. Shadows & Dust (2:53)
+ 03. Death March (2:22)
+ 04. Deity (6:22)Жанр: HardcoreПродолжительность: 00:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E3CC33CA5B21D9178624EEBD9D7CDE37ECD60D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274818   (791684) от 09.01.2019
 
 Poets of the Fall - Ultraviolet (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -658,93 +745,6 @@ Marmozets - Knowing What You Know Now (2018) [FLAC|Lossless|tracks] <Allternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49BEB076F7010B9D5B5670F6B2B3D2763D9A3537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203492   (788058) от 02.02.2018
-
-Anti-Flag - American Fall (2017) [FLAC|Lossless|tracks] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Attraction 2:56
-02. The Criminals 2:44
-03. When The Wall Falls 2:46
-04. Trouble Follows Me 3:09(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AFC62AD99FBF5857C776CB4FC64ACE8D6AF796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276646   (787630) от 17.01.2019
-
-Tropical Fuck Storm - A Laughing Death In Meatspace (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Let My Tyres Down
-02. Antimatter Animals
-03. Chameleon Paint
-04. The Future Of History(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:428CC9342E34D8E7D6D53D9E9E4FA9CA6C5589B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276601   (787627) от 17.01.2019
-
-Cloves - One Big Nothing (2018) [FLAC|Lossless|tracks + .cue] <Indie, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bringing The House Down (03:37)
-02. Wasted Time (04:04)
-03. Better Now (03:54)
-04. California Numb (03:21)(   Читать дальше...   )Жанр: Indie, Pop RockПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC3E71028E1CE1632E329B0E4B37B88213B6854
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1230253   (617283) от 11.06.2018
+
+VA - Evangelion: Metall Collection (2018) [MP3|320 Kbps] <Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617283.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fates Warning - Still Remains
+002. Shadowlynx - Attila
+003. Integral - Blank Claustrophobia
+004. Malet Grace - Commotion of Frailty(   Читать дальше...   )Жанр: MetallПродолжительность: 10:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED6667A45C26F00B0D99E59A9C45B72716F6B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910985   (615654) от 23.06.2015
 
 VA - Мир русского рока 100 песен (2015) [MP3|320 кб/с]<Rock>
@@ -722,35 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18A0B33071DC7C1B5BBE71E38B1FCD0A99543FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857875   (589443) от 11.07.2015
-
-VA - Metal Duets Vol. 01 - 11(2015) [MP3|320 кб/с]<Metal>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raintime - Another Transition (Feat. Lars F. Jensen) [00:04:25]
-02. Heavenwood - Luna (Feat. Kai Hansen) [00:07:29]
-03. Fairyland - Assault On The Shore (Feat. Georg Neuhauser) [00:05:09]
-04. Damageplan - Fuck You (Feat. Corey Taylor) [00:03:08](   Читать дальше...   )Жанр: MetalПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D024FD162EFE26F5553D3973781292EAE9011B
 ```
 
 https://mybot314.ru/tekegram_catalog/

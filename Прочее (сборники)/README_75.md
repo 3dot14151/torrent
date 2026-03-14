@@ -1,3 +1,32 @@
+###  Публикация: 905065   (651347) от 05.06.2015
+
+VA - Car Audio. Первый летний (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Dubstep, Trance, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651347.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adamwah - Departure (Original Mix)
+2. Adultnapper, Black Light Smoke - Idiot Fair (H.O.S.H., The Deer Dub)
+3. Afrobeat, 6Souther, Tenisara - Never Look Back (Original Mix)
+4. Alfonso Muchacho - You Changed Me (Original Mix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Dubstep, Trance, TechnoПродолжительность: 14:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F453DB9BF54295B1638BC8BB5BE7CFEAEAA3E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516474   (651312) от 29.06.2012
 
 VA - Парад хитов русского рока (2012) [MP3|256 кб/с]<Rock>
@@ -750,35 +779,6 @@ VA - Legendary Songs 80s (2019) [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE0D7BF988200E7A58684454033C48B262B8CF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292019   (646547) от 29.03.2019
-
-VA - Горячие хиты радиостанций (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zivert - Life (Lavrushkin & Mephisto Remix) 3:16
-002. Robin Schulz feat. Erika Sirola - Speechless 3:35
-003. Lil Peep & XXXTentacion - Falling Down 3:16
-004. Platon feat. Joolay - Missing 5:44(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 05:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B043703C61E961D2C4148E96FCA09DE21475A405
 ```
 
 https://mybot314.ru/tekegram_catalog/

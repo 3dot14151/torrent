@@ -1,3 +1,119 @@
+###  Публикация: 1454848   (1025987) от 17.03.2021
+
+Roosevelt - Polydans (2021) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Way Out (04:35)
+02. Strangers (03:41)
+03. Feels Right (04:35)
+04. Closer To My Heart (04:44)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED89B0D759C0C2715244FBAF5129BE4F10E5F2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455123   (1025814) от 18.03.2021
+
+Doves - The Universal Want (2020) Japan / Bonus Tracks [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carousels (04:51)
+02. I Will Not Hide (04:15)
+03. Broken Eyes (04:15)
+04. For Tomorrow (05:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7660710B4E67EE6548F5777F3380579E0BB3A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455580   (1025622) от 19.03.2021
+
+Roosevelt - Collection 6 Releases (2013-2021) [FLAC|Lossless|tracks + .cue, tracks] <EDM, Indie Pop, Nu Disco, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Way Out (4:35)
+02. Strangers (3:41)
+03. Feels Right (4:35)
+04. Closer to My Heart (4:44)(   Читать дальше...   )Жанр: EDM, Indie Pop, Nu Disco, Synthpop |Продолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A6BD97B7D3CD3E2DD7C6DF4D662839E9C7B085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455737   (1025491) от 20.03.2021
+
+Воnniе Туlеr - Тhе Веst Is Yеt То Соmе (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Is Yet To Come
+02. Dreams Are Not Enough
+03. Hungry Hearts
+04. Stuck To My Guns(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBDE3C5BC53B2D0C3CD48194341039DFA914CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455813   (1025484) от 20.03.2021
 
 Umberto Tozzi – Seine Grossten Erfolge (1990) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -629,122 +745,6 @@ Tom Jones - Surrounded By Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20A9D121180D3F9B027934E4BDF3A17A47517606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466244   (1018604) от 29.04.2021
-
-Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreign Affair (4:06)
-02. To France (4:48)
-03. Family Man (3:46)
-04. Everytime We Touch (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6D82BD1F41308EE6F81C0E15003EC736F5A8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466482   (1018435) от 30.04.2021
-
-Amy Shark - Cry Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wolves (02:53)
-02. Everybody Rise (03:11)
-03. Worst Day of My Life (03:01)
-04. C'MON (feat. Travis Barker) (03:40)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152A724D542523A60571BFB6E342638BDB71789A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466652   (1018261) от 01.05.2021
-
-Dalida - Dans la ville endormie (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson française>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dans la ville endormie (3:08)
-02. Eux (2:21)
-03. Et la vie continuera (3:28)
-04. L'amour qui venait du froid (3:55)(   Читать дальше...   )Жанр: Pop, Chanson françaiseПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F43BABE99AD07E916DD76BD4C703E094A76F9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467290   (1017915) от 03.05.2021
-
-VA - Ultimate Chillout (2017) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Chillout>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник не претендует на какую то супер-пупер новизну. Но Соня подобрала исключительно треки для хорошего отдыха по принципу - "поставил и слушаешь всё подряд". А что ещё нужно в такие длинные майские выходные? Серия Ultimate довольно скромно представлена на нашем трекере (ссылка внизу), но все релизы - это must have. ИМХО.CD1:
-01. George Ezra - Budapest  (3:24)
-02. First Aid Kit - My Silver Lining  (3:35)
-03. Lucy Rose - Like an Arrow  (3:28)(   Читать дальше...   )Тип издания: Box Set, 4 CDРелиз состоялся: 10 марта 2017 годаЖанр: Pop, Dance, ChilloutПродолжительность: 04:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4116C691AD122172619C7FE5F431318747DADFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

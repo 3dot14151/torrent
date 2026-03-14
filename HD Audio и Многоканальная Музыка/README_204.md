@@ -1,3 +1,148 @@
+###  Публикация: 1797823   (66654) от 19.05.2025
+
+Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dystopia (04:24)
+02. Ascent Of The Blessed (04:10)
+03. Virus (03:55)
+04. Phantom Pain (04:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00: 43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6F9FFCD0578F4C13EDEFB94F6C52F5F74B5EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797918   (66651) от 19.05.2025
+
+DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66651.jpg" />
+</div>
+
+
+###  Подробнее
+
+DevilDriver - американская грув-метал-группа, образованная в 2002 году в городе Санта-Барбара, Калифорния.2003 - DevilDriver
+2005 - The Fury Of Our Maker's Hand
+2007 - The Last Kind Words
+2009 - Pray For VillainsЖанр: Groove Metal/MetalcoreПродолжительность: 08:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347A2B3C6F8438A65436CE8E46E5E3C2FE99DEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798264   (66647) от 21.05.2025
+
+Azure Riff - Thunder in My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gone Too Soon (4:26)
+02.  You Cannot Break a Broken Heart (3:37)
+03.  Blues Got You (3:43)
+04.  Now She's Saying She's Pregnant (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A575A373CE268AC03070DF40D0CDE0CB4EA8C784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798267   (66646) от 21.05.2025
+
+Ben Joseph & The Lay-Lows - The Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fix it or Listen (3:57)
+02.  I'm a rolling stone (3:06)
+03.  Damn Kudzu (2:41)
+04.  I'm a dog (2:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7988272FBE3E9576C7F8CB970FEDA3F932C5D32E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798278   (66645) от 21.05.2025
+
+Earnest 'Guitar' Roy - This Is Earnest 'Guitar' Roy (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  OL - Big Ol Smile (3:44)
+02.  Shop - Body Shop (2:48)
+03.  Hustlin - Dirty Hustlin' (3:13)
+04.  Master - Earnestly (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5071C77580FD673A96F8C18171353DFA237F52C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798271   (66644) от 21.05.2025
 
 Brandon Santini - Which Way Do We Go? (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -598,151 +743,6 @@ Seventh Day Slumber - Fractured Paradise: Garden of Shadows (2024) Deluxe Editio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1CA3EB78E555CAC578470C78146C1CF59ECF83F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799025   (66543) от 25.05.2025
-
-House of Protection - Outrun You All (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore, Electronic Rock, Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 524?§?€€|° (0:32)
-02. Afterlife (3:18)
-03. Godspeed (3:14)
-04. I Need More Than This (4:24)(   Читать дальше...   )Жанр: Rapcore, Electronic Rock, Punk RockПродолжительность: 00:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F8C268836FE2E7B99885385665963AAFF4B3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799046   (66531) от 25.05.2025
-
-Thus Spoke Zarathustra - I'm Done With Self Care, It's Time For Others' Harm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G.G.O.
-02. I Can't Save You (feat. Boundaries)
-03. Gage Lanza 2: Return Of The Red Hammer
-04. I Didn't Believe In Magic Till' My Dog Turned Into A Snake(   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75468B8525E029F86EE226EA90157538AD03C4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798971   (66530) от 25.05.2025
-
-Brace - Self Titled (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undo [00:03:59]
-02. Surge [00:04:05]
-03. Meek [00:04:13]
-04. Safe [00:05:21](   Читать дальше...   )Жанр: Alternative Metal, Nu MetalcoreПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2C0F4C671839A95933AC18ACEDE635D4BF971B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798916   (66526) от 25.05.2025
-
-The Devil Wears Nada - Postalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock / AOR>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adecence
-02. Patient Zero
-03. Late Night Talking
-04. Make Me Feel(   Читать дальше...   )Жанр: Melodic Rock / AORПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F84B3F99A60CCC0B92AF15E2B8C8C963AC4812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799053   (66525) от 25.05.2025
-
-Hinder - Back To Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Rock, Hard Rock, Post-Grunge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live Without It [00:03:28]
-02. Rearview [00:03:23]
-03. Everything Is A Cult [00:03:23]
-04. Bring Me Back To Life [00:03:56](   Читать дальше...   )Жанр: Alt. Rock, Hard Rock, Post-GrungeПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41342DCC4CDFF0DCDDB78E956B9DEEF8A0893746
 ```
 
 https://mybot314.ru/tekegram_catalog/

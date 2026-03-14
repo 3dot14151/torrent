@@ -1,3 +1,87 @@
+###  Публикация: 1058852   (466437) от 02.10.2016
+
+VA - Oh my God,... It's Electro House volume 2 (mixed by Sebastian Gnewkow) (2008) [FLAC|Lossless|image + .cue] <Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brush & Wagner - Call The Preacher (Marino Da Ragnio Calls Back Remix) (6:08)
+02. Dario Nunez & David Vio Feat. Stella - Feel The Fire (Shik Stylko Remix) (4:41)
+03. Sheldon Romero Feat. Betty Brooklyn - Dirty Things (Gnewkow & Norm Remix) (6:30)
+04. DJ Chus & Peter Gelderblom - Join Ur Handz (Roman Salzger Remix) (5:00)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A0A960F985F6BCE8886746208C04703EA849A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568086   (466015) от 06.08.2022
+
+VA - Summer Sampler (2022) [FLAC|Lossless|WEB-DL|tracks] <Pure Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Pure Progressive HouseПродолжительность: 01:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E501580385FCF328F4C427B19E74623EA6722423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246203   (465676) от 09.09.2018
+
+VA - Body Language, Vol. 20 (Mixed & Compiled by Emanuel Satie) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Egg - Cold (5:08)
+02. Pezzner - Heartline (Club Version) (4:03)
+03. STL - Silent State (11:45)
+04. Kiani, His Legion - Eindelozer (18:03)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 03:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76AF1EFFEAA93FE3565A6F6413D6E3048E61D433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246109   (465671) от 09.09.2018
 
 Shinichi Atobe - Discography 7 Releases (2001-2018) DDS, Jadac Recordings [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, House, Minimal, Dub Techno>
@@ -673,99 +757,6 @@ Orbital - Monsters Exist (3xCD Deluxe) (2018) ACP Recordings [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5A519B7959644FB052F1F6B6285ED2E26EDBAA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551881   (449864) от 25.09.2012
-
-The Prodigy - The Dirtchamber Sessions, Volume One (1999) [FLAC|Lossless]<Alternative Rock, Breaks, Punk, Big Beat, Hip Hop, Breakbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_449864.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Dirtchamber Sessions Volume One - альбом, состоящий из диджейских ремиксов различных исполнителей от лидера электронного коллектива The Prodigy Лиама Хоулетта.01. Section 1: Intro Beats / Punk Shock / Untitled / Chemical Beats / Kool Keith ... :: 07:18
-02. Section 2: Bug Powder Dust / Pump Me Up / How High / Poison / Been Caught Ste... :: 06:44
-03. Section 3: The Mexican / Rock the House / The Best Part of Breaking Up / King... :: 06:03
-04. Section 4: Hey Can You Relate / What Time Is Love / Funky Acid Makossa / Shaf... :: 07:52
-05. Section 5: New York / Punk to Funk / I'm Sick :: 04:57
-06. Section 6: The Home of Hip-Hop / Strong Island / Kowalski / Time to Get Ill /... :: 05:48
-07. Section 7: Get Down / Humpty Dance / Dope On Plastic / Beats and Pieces :: 03:59
-08. Section 8: Sure Shot / Breakdance Electric Boogie / Doomsday of Rap / Ozone B... :: 08:40
-Section 1 - 7:18
- 1. Intro Beats - taken from Run-D.M.C.’s «Here We GoЖанр: Alternative Rock, Breaks, Punk, Big Beat, Hip Hop, BreakbeatФормат: CD, Compilation, MixedПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390623   (449248) от 21.09.2011
-
-Miguel Migs - Outside the Skyline (2011) [FLAC|Lossless]<Deep House, Soulful House, Lounge>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_449248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Life (feat. Half Pint)
-02. Tonight (feat. Meshell Ndegeocello)
-03. Breakdown (feat. Lisa Shaw)
-04. Everybody (feat. Evelyn Champagne King)(   Читать дальше...   )Жанр: Deep House, Soulful House, LoungeПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163817   (445952) от 07.09.2017
-
-Scooter - 24 Carat Gold (2002) Compilation [FLAC|Lossless|image + .cue] <Techno, Hardstyle, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nessaja
-02. The Logical Song
-03. Aiii Shot The DJ
-04. Posse (I Need You On The Floor)(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7EA57F0A910C6A1A1D7B0F84392CC753F6B26A
 ```
 
 https://mybot314.ru/tekegram_catalog/

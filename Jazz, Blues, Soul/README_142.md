@@ -1,3 +1,177 @@
+###  Публикация: 1212618   (775124) от 13.03.2018
+
+Blue Haze - Hard Times (2018) FLAC|Lossless|WEB-DL|tracks <Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Times (2:55)
+02. I'm Ready To Ride On (4:54)
+03. Long Autumn Blues (5:36)
+04. Out On The Road (3:49)(   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF90DB6543D07357F2CA3ED015543615C7F3A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212698   (775114) от 13.03.2018
+
+Stevie Wonder - Live In London (2017) [MP3|320 Kbps] <Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master Blaster (3:37)
+02. Higher Ground (3:58)
+03. Sensuous Whisper (5:27)
+04. My Cheri Amor (2:57)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB76C1464AD0357F8C947E1B93C3491FA38217D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277938   (775087) от 22.01.2019
+
+Bo Ramsey - Stranger Blues (2007) [FLAC|Lossless|tracks + .cue] <Delta Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger Blues (5:08)
+ 02. Hate To See You Go (3:01)
+ 03. Sitting On Top Of The World (3:58)
+ 04. Jump, Baby, Jump (4:25)(   Читать дальше...   )Жанр: Delta BluesПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C07487D4A3E5278FE96A03518D37BD48E5FA8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277935   (775005) от 22.01.2019
+
+Bo Ramsey - Fragile (2008) [FLAC|Lossless|tracks + .cue] <Delta Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Sleep (5:04)
+ 02. Tell Me Now (3:47)
+ 03. Away (1:19)
+ 04. Dreamland (4:14)(   Читать дальше...   )Жанр: Delta BluesПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C2D2FE4F9ED0FA3FA424F134C3518BA81E6730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015416   (774995) от 10.05.2016
+
+Curtis Fuller - Four On The Outside (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Four On The Outside [04:55]
+ 02.Suite Kathy [13:05]
+ 03.Hello Young Lovers [05:12]
+ 04.Little Dreams [07:50](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9F25541F2A336606429D5259A67324E3847188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278052   (774409) от 23.01.2019
+
+Ari Brown - Ultimate Frontier (1996) Delmark [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big V [5:15]
+02. Lester Bowie's Gumbo Stew [10:37]
+03. One for Luba [10:30]
+04. Meeting Time [6:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D767C89CC862763FAE20F1B3D2D5DC34C57BBC20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015703   (774362) от 11.05.2016
 
 Booker Ervin, Pony Poindexter, Larry Young - Gumbo! (1963) 1999, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -570,180 +744,6 @@ VA - The Complete Brusnwick & Vocalion Recordings Of Louis Prima And Wingy Manon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:455CF776CDB50CB201251DC7FE154DEC8AD2FFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125358   (772104) от 14.04.2017
-
-"Sir" Oliver Mally's Blues Distillery - Fleeting Moments (2011) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here I am  (04:19) 
-02. Fleeting Moments  (06:45) 
-03. Heading for a Fall  (05:34) 
-04. Sleepwalking  (05:20) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DED6F774AC25DEC07D25538438D6A2A46ACAE70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125398   (772100) от 14.04.2017
-
-Dave Brubeck - One Alone: Solo Piano (1998) 2000, Telarc [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.That Old Feeling [06:52]
- 02.I'll Never Smile Again [04:24]
- 03.One Alone [06:40]
- 04.You've Got Me Crying Again [04:00](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F69ACFA2817FDCBE839C459ABAFFE6E12795C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125131   (772097) от 14.04.2017
-
-Nguyen Le & Ngo Hong Quang - Ha Noi Duo (2017) [FLAC|Lossless|tracks + .cue] <World Jazz, Guitar Jazz, World Music>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cloud Chamber  (05:40) 
-02. Five Senses  (04:55) 
-03. Like Mountain Birds  (06:23) 
-04. A Night with You, Gone  (07:02) (   Читать дальше...   )Жанр: World Jazz, Guitar Jazz, World MusicПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82C2643F599E27BCE5B3D836211B695AECBB504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213420   (772008) от 16.03.2018
-
-The BBC Big Band - Harlem Nocturne (2004) Galaxy Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Getting Sentimental Over You [03:35]
-02. Harlem Nocturne [02:50]
-03. Leave Us Leap [03:30]
-04. You Made Me Love You [03:19](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2153D6FF0D87F316DF4524ADC96AB99F0D88C7DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213177   (772002) от 16.03.2018
-
-Swingle Singers - Best Of The Classic Years (1963 - 1968) 2003, Helicon [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Classical Crossover>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinfonia [03:36]
-02. Choral No. 1 [02:40]
-03. Waltz [03:15]
-04. Choral [03:22](   Читать дальше...   )Жанр: Vocal Jazz, Classical CrossoverПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0826A2BE089BFFA6D2417FAEF8123C68C35886AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278433   (771993) от 25.01.2019
-
-Kazutoki Umezu - Diva (1988) NEC Avenue [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diva [3:56]
-02. Nishibi no Ataru Heya [8:12]
-03. Hinobashi no Tamoto [3:23]
-04. Poi [7:25](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03AE2DD05074E78F513CA5DF77A3DE0945C9B4D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

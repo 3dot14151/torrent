@@ -1,3 +1,235 @@
+###  Публикация: 1462683   (1020970) от 15.04.2021
+
+VA - ZYX Italo Disco New Generation Vol. 17 (2020) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Italodisco (Flemming Dalum Remix) (6:28)
+02. Italove - The Mirror (Extended Version) (7:08)
+03. Synergic Silence feat. Fred Ventura - You're So Fine (Italoconnection Remix) (6:08)
+04. KNIGHT$ - Gelato (Flemming Dalum Remix) (5:41)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06AA604FFE9BDB92D263B3085297358B7A83481B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462933   (1020807) от 16.04.2021
+
+Madonna - What It Feels Like For A Girl (2000) Reissue, 2021,  Rhino Records, Warner Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What It Feels Like for a Girl (Radio Edit)
+02. What It Feels Like for a Girl (Paul Oakenfold Perfecto Mix)
+03. What It Feels Like for a Girl (Richard Vission Velvet Masta Mix)
+04. What It Feels Like for a Girl (Calderone & Quayle Dark Side Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523981509925CB032313036776EA08AE26CCD8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463125   (1020668) от 17.04.2021
+
+VA - Подарок любимой маме (2004) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. И. Аллегрова - Мама ( дуэт с Л. Аллегровой )
+02. Ф. Киркоров - Мне мама тихо говорила
+03. Премьер-Министр - Мама ( Как много я хотел сказать...)
+04. Фристайл - С днем рождения, мама(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F3B9BE23CD1EE49330F377387E379C6E23CB6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463093   (1020624) от 17.04.2021
+
+Наташа Морозова - Russian Enigma (2013) [FLAC|Lossless|tracks + .cue] <Pop, New Age, Classical>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Улетай на крыльях ветра (4:30)
+02. Ах ты, степь широкая (4:17)
+03. Seachange (8:09)
+04. You haunt me (4:27)(   Читать дальше...   )Жанр: Pop, New Age, ClassicalПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45273504876D68080C11CBC91501FDB2D9848837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463122   (1020614) от 17.04.2021
+
+Fun Factory - Nonstop! The Album (1994) [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Jam
+02. Groove Me
+03. Take Your Chance
+04. Love Of My Life(   Читать дальше...   )Жанр: Eurodance, Reggae-PopПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD3CA2E8A4DEBEDD05D6D5C4440B270E7ECE746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463305   (1020467) от 18.04.2021
+
+Александр Малинин - Лунная соната (1994) [FLAC|Lossless|tracks + .cue] <Ballad, Pop, Chanson>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020467.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тост (3:37)
+2. Белая гвардия (4:24)
+3. Свадьба со смертью (4:40)
+4. Когда я уйду (3:47)(   Читать дальше...   )Жанр: Ballad, Pop, ChansonПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C158FD53D5C6D89FDC9EBB22230483CE65A9347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463600   (1020311) от 19.04.2021
+
+Ankie Bagger - Where Were You Last Night (1990) [FLAC|Lossless|image + .cue] <Italo-Disco, Europop, Italodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Were You Last Night (4:12)
+02. I Was Made For Loving You (4:02)
+03. There's No Reason (3:39)
+04. Dance The Night Away (3:43)(   Читать дальше...   )Жанр: Italo-Disco, Europop, ItalodanceПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911B80C953E957F9CF747AC9F58BC1CB7174BE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463741   (1020306) от 19.04.2021
+
+VA - MMA Workout 2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meduza - Piece Of Your Heart (02:32)
+02. Bree Runway - ATM (03:07)
+03. Hedegaard - Don't Fuck With Me (02:37)
+04. Meduza - Lose Control (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC07920C00A8E74920CA36CDA14587FD712F5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463732   (1020303) от 19.04.2021
 
 Soulya ID - Only One We're Need Is Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
@@ -510,238 +742,6 @@ Tom Jones - Surrounded By Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20A9D121180D3F9B027934E4BDF3A17A47517606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465479   (1019123) от 26.04.2021
-
-VA - Top Music Hits for Working Out At Home (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyle Morris - In My Mind (02:59)
-02. Dries Baert - I'm Upset (03:18)
-03. Harold Olson - Done for Me (02:58)
-04. Quentin Guyot - Can't Feel My Face (03:30)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C76AA9F29CEE0EEA655CFD10C118375FD361B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464680   (1018795) от 28.04.2021
-
-Николай Трубач - Белым... (2002) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белым...
-02. Я с тобой
-03. Издалека
-04. Я живу в раю(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFFCC97F03D2DBCA91039217A4D9F5F4E0188DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466083   (1018783) от 28.04.2021
-
-Caprice - Russia (1980) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Russia (6:23)
-02. Stay Tonight (4:30)
-03. De Musique En Musique (5:23)
-04. Shame And The Scandal In The Family (7:29)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A281C972ABA7423C0976A7E678EBF9F22EC573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466244   (1018604) от 29.04.2021
-
-Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreign Affair (4:06)
-02. To France (4:48)
-03. Family Man (3:46)
-04. Everytime We Touch (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6D82BD1F41308EE6F81C0E15003EC736F5A8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466350   (1018568) от 29.04.2021
-
-VA - Disco 80's Fresh Hits & Remixes (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K-Barre - Right by the Moon (Special Dance Remix) (3:24)
-02. Sweet Connection - Heart to Heart (Special Italo Dance Remix) (3:59)
-03. T. Ark - Count on Me (Power Disco Remix) (4:42)
-04. Silent Circle - Touch in the Night (Special Remix Version) (5:10)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75356CF79EF1EC6705CCFB2D4C46F4C37A5DF53E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466344   (1018558) от 29.04.2021
-
-VA - Disco 80's Maxi Club Hits, Vol.2 (Remixes & Rarities) (2012) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabrina - Boys Boys Boys (Special Long Club Mix) (8:44)
-02. Digital Emotion - Go Go Yellow Screen (Maxi Remix Version) (8:34)
-03. Baltimora - Key Karimba (Remix Maxi Version) (5:59)
-04. Den Harrow - Big Love (Maxi Remix) (6:06)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5409777243F9CEB44467F94AAFD0A42377C0023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466342   (1018554) от 29.04.2021
-
-VA - Disco 80's Maxi Club Hits, Vol.1 (Remixes & Rarities) (2011) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albert One - Heart On Fire (Special Maxi Mix) (5:34)
-02. Baltimora - Living in the Background (Maxi Mix) (6:06)
-03. David Lyme - You Are My Desire (Maxi Mix) (5:57)
-04. Den Harrow - You Have a Way (Maxi Mix) (5:52)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CE55083CD51F4F613F2C772A0A07A955F44EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466482   (1018435) от 30.04.2021
-
-Amy Shark - Cry Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wolves (02:53)
-02. Everybody Rise (03:11)
-03. Worst Day of My Life (03:01)
-04. C'MON (feat. Travis Barker) (03:40)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152A724D542523A60571BFB6E342638BDB71789A
 ```
 
 https://mybot314.ru/tekegram_catalog/

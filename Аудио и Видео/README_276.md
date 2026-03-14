@@ -1,3 +1,32 @@
+###  Публикация: 1525415   (129512) от 20.01.2022
+
+VA - Reggaeton Nocturno, Vol. 2 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Omar - Dile (3:27)
+02. Lalo Ebratt, J Balvin, Trapical - Mocca (Remix) (3:23)
+03. Daddy Yankee, Nicky Jam, Plan B - Shaky Shaky (Remix) (3:55)
+04. Cali Y El Dandee - Ay Corazón (3:10)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F3CE03BF61D8324182B5695467C728C2D21AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525362   (129508) от 20.01.2022
 
 VA - My Electronic Kitchen, Vol. 4 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
@@ -713,35 +742,6 @@ VA - Buddah's Chill 8 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01B4DDC0E3320646E3272E5A85DF783D67CA1164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525683   (129128) от 21.01.2022
-
-VA - Buddah's Chill 1 (2010) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airstream One - Southern Light (Original Mix) (4:50)
-02. Cinemascope - Chanson du Chine (Original Mix) (7:15)
-03. Simon Le Grec - Its Only Love (Radio Edit) (4:00)
-04. Beatkonexion - Wavin' HiFi (Original Mix) (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9C7F81CBC25826FB88BFC8665F5AF55400C07B
 ```
 
 https://mybot314.ru/tekegram_catalog/

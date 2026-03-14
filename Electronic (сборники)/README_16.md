@@ -1,3 +1,32 @@
+###  Публикация: 1354178   (989043) от 21.01.2020
+
+VA - Subtle Vibrations: Relax Compilation (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989043.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aiden Baker & Faith Coloccia & Jon Mueller - Harmony In Distance
+002. La Bors - Tanami (Original Mix)
+003. Inside The Second - Uptown Sounds
+004. Jimmy Freeplace - Last Parfume (Radio Version)(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, LoungeПродолжительность: 07:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D3379F57B0EA0FC9580FEB4533852F8E67BED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971174   (988657) от 01.01.2016
 
 VA - DJ's Choice: Best Electronic Lounge (2015) [MP3|320 кб/с] <Club, Progressive House, Power Electronics>
@@ -734,35 +763,6 @@ VA - After Workout Chillout Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD90D06B9EA5C977778E7B2C08F77CA9C3BB6A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972391   (982068) от 06.01.2016
-
-VA - Top 50 Progressive Trance (Paradise) (2015) [MP3|320 кб/с] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Driftmoon-Rise Of The Phoenix (Original Mix) [06:33]
-02. Omnia-Shanghai (Original Mix) [05:50]
-03. Timmus-Still Alive (Original Mix) [06:34]
-04. Craig Connelly-Rain (Original Mix) [07:01](   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 05:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741EE4A2C1D32D04A8AEEE4F2C3AE69B9B652F76
 ```
 
 https://mybot314.ru/tekegram_catalog/

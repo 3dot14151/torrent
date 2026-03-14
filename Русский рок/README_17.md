@@ -1,3 +1,61 @@
+###  Публикация: 989634   (913567) от 24.02.2016
+
+Гравитация - Открытые Пространства (2016) Авторская раздача [MP3|320 кб/с] <Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Берег
+2. Питер
+3. Гравитация
+4. Разводят мосты(   Читать дальше...   )Жанр: РокПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7644BE050CA5D69F22082E408CEDAB12AA60E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097778   (912608) от 28.01.2017
+
+Nox Doloris - 1 album, 2 EP, 1 single, 2 demos (2008-2016) [MP3|320 Kbps] <Sympho Black Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2008. Demo
+2010. Demo
+2011. Sacrifice Me (EP)(   Читать дальше...   )Жанр: Sympho Black Death MetalПродолжительность: 02:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9283C5962EB09FD5B68BA96460A51660537045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097772   (912484) от 28.01.2017
 
 Laufderzeit - Zeitapokalypse (2016) [MP3|320 Kbps] <Industrial Metal, Gothic Metal>
@@ -707,64 +765,6 @@ Ai Mori - 57 Covers track (2019-2021) [MP3|192-320 Kbps] <Alternative, Rock, Pun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA80841B04CD01D1B78413F6066362D5A3A614DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992694   (900598) от 02.03.2016
-
-Зоя Ященко и группа Белая Гвардия - Зазеркалье (2015) [MP3|320 кб/с] <Сентиментальный рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Велосипед
-02. Зазеркалье
-03. Далеко от Парижа
-04. Концерт для флейты и виолончели(   Читать дальше...   )Жанр: Сентиментальный рокПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B2CABC5645745A3DC79A5870E6AECF9C95131A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369470   (900423) от 25.03.2020
-
-Рось - Русалка и Купала (Compilation) (2006) [MP3|320 Kbps] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом Русалка
-01	Кольцо	3:44
-02	Купальнка	2:33
-03	Кленовая	2:13(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4298E17FDB770AB6809DAD0299262D0CDAAA8C25
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1730739   (107836) от 17.06.2024
+
+Iiro Rantala - Tough Stuff (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tough Stuff (4:44)
+02. Tae Kwon Don't (3:11)
+03. Second Date Waltz (3:21)
+04. Will You Be My Bop? (4:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBFDB4C17780076C5C3F69448544A7336BF7F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730750   (107835) от 17.06.2024
+
+Stanton Moore - Groove Alchemy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Squash Blossom (4:32)
+02. Pie-Eyed Manc (4:49)
+03. Pot Licker (4:35)
+04. Root Cellar (4:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7FDBB4237251C84969851FD1DBBECADE5DB195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730744   (107834) от 17.06.2024
+
+Jose (José) Privat - Clin d'Œil (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coin Carbet (5:32)
+02. Connivence (4:37)
+03. Domnik (5:37)
+04. Hello Louiss (4:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C460F586C8E0E68937C4115B6DEDFB8679BD84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730749   (107833) от 17.06.2024
+
+Sacrum - SACRUM (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INTRO (2:50)
+02. SUBITE A LA SACRUNETA (6:26)
+03. INTERLUDIO (0:11)
+04. EN BOLAS (6:45)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C54AFC6AF72E05A4C62BD7B41087E97F3A4099D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730741   (107832) от 17.06.2024
+
+John Pena - Life, Legacy & Music, Pt. 2 (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just in Time (5:46)
+02. Rojo (5:15)
+03. Zuul (5:28)
+04. Lo Que Soñé (5:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC901A7653DC0FD38ACDB8E114B1A331A94ACFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730689   (107831) от 17.06.2024
 
 Birdstone - The Great Anticipation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -600,151 +745,6 @@ Emiliano Lasansky - The Optimist (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Con
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D61E806CFE6A19AA02941679D62FF350AF10490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731906   (107539) от 23.06.2024
-
-William Foley - Seven Spaces (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Spaces (5:04)
-02. The Brink of Uncertainty (5:49)
-03. Endaxi (5:19)
-04. Minor Variation (6:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA42AE765DFBF5D8205424681BAE87A4C490F205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731901   (107538) от 23.06.2024
-
-Thomas Greenberg - Quirky Retro & Vintage (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speaking Easy (1:34)
-02. Summertime Swing (1:25)
-03. Handbag Chic (1:32)
-04. Gift Of The Gab (1:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CBFCD31CC0238F5BA3EE4802986F0B65573722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731849   (107537) от 23.06.2024
-
-Hoot & Annie - Inspector Penny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undead Love (2:43)
-02. It's You (2:56)
-03. He's My Baby (4:52)
-04. Bossa Penny (3:11)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9345BBCBEBA7A74675A536A8EE0C41DF424B4B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731913   (107535) от 23.06.2024
-
-Cafe Rex Paris - Summer in Paris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulful Blues (4:51)
-02. Nightfall in New Orleans (2:04)
-03. Street Jam (2:51)
-04. Sultry Serenade (3:11)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C06D31C7D0EA52EE52DB27AAB0EE96C9EEB13EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731889   (107534) от 23.06.2024
-
-Omolewa Osain - Belcugazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome (5:18)
-02. Dougla (8:24)
-03. Four (6:44)
-04. Armando's (4:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717A60B0FAD292E13334C9DB44DBA9B1FAE5E259
 ```
 
 https://mybot314.ru/tekegram_catalog/

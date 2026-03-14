@@ -1,3 +1,61 @@
+###  Публикация: 1578167   (350301) от 21.09.2022
+
+Brian Briggs - 2 Albums (1980, 1982) LP [MP3|320 Kbps] <Electronic, Power Pop, Rock, Synth-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звукорежиссер, продюсер и музыкант. Родился в Великобритании и много лет проработал в Bearsville Studios01. Lookin' Out (3:29)
+02. Nervous Breakdown (3:42)
+03. See You On The Other Side (3:37)
+04. Aeo (Part I And II) (5:53)(   Читать дальше...   )Жанр: Electronic, Power Pop, Rock, Synth-pop, New WaveПродолжительность: 01:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9354231FDC5516D1AAD7805F7C0C5AD7273C8A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577851   (350290) от 21.09.2022
+
+Fun Boy - The Album (2022) [MP3|320 Kbps] <Italo-Disco, Euro Disco, Hi-NRG>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fun Boy Turbomix [00:10:24]
+02. D. A. N. C. I. N. G (feat. Budia) [00:05:42]
+03. Breaking My Heart (feat. Sascha) [00:05:57]
+04. Can't Stop Moving (feat. Sascha) [00:07:15](   Читать дальше...   )Жанр: Italo-Disco, Euro Disco, Hi-NRGПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764A501E10B12D7FDC6079AE2C0248FD5541C171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 578375   (347983) от 23.11.2012
 
 Loreen - Heal (2012) [AAC|256 кб/с]<Pop, Electronic, Dance>
@@ -693,64 +751,6 @@ VA - 90s Megamix Vol.2: Die Grossten Hits Der 90er (2020) [MP3|320 Kbps] <Euroda
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95210DC675E08B7E82FA02108998E0AEE1A01AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954613   (339478) от 08.11.2015
-
-Lara Fabian - Ma vie dans la tienne (2015) [MP3|320 кб/с]<Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quand je ne chante pas
- 02. Ma vie dans la tienne
- 03. Le desamour
- 04. S'il ne reste qu'un ami(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8518A595AC4389EBB115EAE2F69B85EAB2D377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 101190   (339217) от 28.10.2020
-
-Джо Дассен (Joe Dassin) - Gold (1995) 2CD [MP3|320 kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339217.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01-Bip-Bip
-02-L'Amerique
-03-L'ete Indien(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F0E31BBEDCD7616A31D7523AC5ECF8F4B24DAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

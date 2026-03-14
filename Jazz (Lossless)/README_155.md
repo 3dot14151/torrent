@@ -1,3 +1,90 @@
+###  Публикация: 1312027   (536594) от 02.07.2019
+
+Horace Silver - Jazz Profile (1952 - 1976) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Safari [5:11]
+02. Enchantment [6:23]
+03. Pyramid [6:39]
+04. Finger Poppin' [4:48](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FA43B2D5675C5A3AA1526EAA2EB3FE7A33B84B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926041   (535648) от 09.08.2015
+
+Donald Byrd - Electric Byrd (1970) /2015, Universal/ [FLAC|tracks+.cue]<Jazz, Jazz Funk, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estavanico [11:36]
+02. Essence [10:43]
+03. Xibaba [13:42]
+04. The Dude [07:49]Жанр: Jazz, Jazz Funk, Jazz FusionПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35558B98FFEC169953926707C310D34CA3423A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926245   (535594) от 09.08.2015
+
+Bobby Caldwell - August Moon (1983) /Sin-Drome Records/ [FLAC|tracks+.cue]<Jazz, Smooth, Pop-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sherry [03:38]
+02. She Loves My Car [03:28]
+03. Fraulein [03:29]
+04. She Does It Better [03:02](   Читать дальше...   )Жанр: Jazz, Smooth, Pop-JazzПродолжительность: 00:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29FDC455E5D5A7C3F70E5C890426C53FF2AFC993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926338   (535590) от 09.08.2015
 
 Ambient Jazz Ensemble - Suite Shop (2014) [FLAC|tracks|WEB-DL]<Jazz, Nu Jazz, Broken Beat>
@@ -658,93 +745,6 @@ Joyce Cooling - Global Cooling (2009) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A4D5AFC4117487124FB1A30DBF634ECEB7C933E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155409   (533528) от 03.08.2017
-
-Benny Goodman And His Orchestra - Sing, Sing, Sing (1935, 1936) 1987, Bluebird Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Porter Stomp [03:10]
-02. Sometimes I'm Happy [03:41]
-03. Basin Street Blues [02:56]
-04. If I Could Be With You [02:17](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97184ED20BBC216EA6EA35B4C975B21B7823DDA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051397   (532798) от 11.09.2016
-
-Ray Brown & Laurindo Almeida - Moonlight Serenade (1981) 1984, Bell Records[WavPack|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mondscheinsonate & Round About Midnight [06:07]
- 02.Samba De Angry [03:45]
- 03.Beautiful Love [06:34]
- 04.Air On A 'G'-String [02:33](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD999C63B7133A5E4FC30F23232886BE0363E6DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312451   (532791) от 04.07.2019
-
-Carlos Vega - Bird's Up (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On a Mission [9:56]
-02. Bird's Up [5:37]
-03. Untitled Waltz for the Wednesday Morning Prayer Meeting [5:51]
-04. Los Osos Grandiosos [6:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D7D3EE05C06B498700F047173544E52443210D
 ```
 
 https://mybot314.ru/tekegram_catalog/

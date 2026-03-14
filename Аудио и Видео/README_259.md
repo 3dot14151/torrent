@@ -1,3 +1,32 @@
+###  Публикация: 1515910   (167874) от 09.12.2021
+
+VA - Buddha Luxury, Vol. 4 (Esoteric World Music) (2020) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirage Of Deep - Road of Life (Frontiers of Asia) (Original Mix) (5:37)
+02. Stuce The Sketch, Vini Hush, Derek Mwensi - Enchanted Mara (4:44)
+03. La Estación Del Mar - East of Bengal (Original Mix) (3:24)
+04. Mirage Of Deep, Julia Vañó - Sun Sahdu (Original Mix) (7:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C39D6E722656EF367505D1BACCF89753BE28E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515890   (167844) от 09.12.2021
 
 Балаган Лимитед - Чё те надо? (1997) [AAC|~364 Kbps] <Pop>
@@ -699,32 +728,6 @@ VA - Chill Out Perfection, Vol. 2 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D677AAE8DE5A3D7A677D38F754956FB8E231A11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345667   (165609) от 16.12.2019
-
-Злодеи / Villains (2019) WEB-DL [1080p] ATV (AVO)
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая пара грабителей Микки и Джули проникает в уединенный загородный дом. Его владельцы оказываются тайными садистами, которые держат в подвале маленькую пленницу, и они пойдут на всё, лишь бы их секрет оставался сокрытым за стенами дома. Грабителям не повезло.Производство: США / BRON Studios, Star Thrower Entertainment, Creative Wealth Media FinanceЖанр: Ужасы, триллер, драма, комедияРежиссер: Дэн Берк, Роберт ОльсенАктеры: Билл Скарсгард, Майка Монро, Джеффри Донован, Кира Седжвик, Блейк Баумгартнер, Ной Роббинс, Дэнни ДжонсонПеревод: Авторский одноголосый (BadBajo)Субтитры: Английские (SDH)Продолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EE57EA0812FE1B6AD2D3E56BE78762DA8E7A58
 ```
 
 https://mybot314.ru/tekegram_catalog/

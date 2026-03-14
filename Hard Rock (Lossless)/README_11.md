@@ -1,3 +1,119 @@
+###  Публикация: 1474529   (1012910) от 03.06.2021
+
+Rod Marenna & Alex Meister - Out of Reach (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of Touch
+02. The Price of Love
+03. Gimme All You've Got
+04. I Don't Wanna Lose You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926D1EF778B2BADBE2DEA28FC73B97D6391DAEBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474838   (1012737) от 04.06.2021
+
+Caging Elliott - Under The Blackened Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Enough
+02. Never Gonna
+03. Whiskey Down
+04. Don't Tread On Me Pt 1(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E628521AB1E2A5CB62BA600DF1A12FB590FAB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475328   (1012452) от 06.06.2021
+
+Fear Not - Fear Not (1993) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It Up
+02. We Have A God
+03. Mr. Compromise
+04. Till The End Of My Days(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D953E80825351F5C8F8CCB5692C4C3621DA11F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475331   (1012423) от 06.06.2021
+
+Love Life - Goodbye Lady Jane (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Love
+02. Do You Love Me
+03. Hearts On Fire
+04. When Loneliness Comes Knockin'(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C7158A49524233BB5C131ED49F64CF0E8796E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475795   (1012024) от 09.06.2021
 
 Wyatt Olney & The Wreckage - Silver Bullet (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -627,122 +743,6 @@ Steel Rangers - Scarred for Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00F283ECD96C039AFE7BDA012B9AD0D593B300AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481388   (1008332) от 03.07.2021
-
-Kenny Mcgee - Heartless Daze Two (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Hates You
-02. London Bridges
-03. Queen Of Whores
-04. Until The Morning Comes(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F39DA29E8DA04F7E2F1D048A5266AB34F835C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481829   (1008037) от 05.07.2021
-
-Midnite City - Itch You Can't Scratch (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crawlin' In The Dirt
-02. Atomic
-03. Fire Inside
-04. Darkest Before The Dawn(   Читать дальше...   )Жанр: Melodic Hard Rock, Glam RockПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5D85551461E427037E1F1C845EE1085A3E5457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481827   (1008035) от 05.07.2021
-
-Jakob Samuel - CoExist (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Minute Every Hour
-02. Stand By You
-03. One Last Time
-04. Hey Brother(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0550913C5780E57EAC22AC0EDD30C690D5BAD0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481770   (1008027) от 05.07.2021
-
-Band Of Brothers - Band Of Brothers (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eastern Front
-02. Pull The Trigger On PTSD
-03. War Is Strictly Business
-04. Sands Of Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B745F02D74438AE3BF97B5FFE7AE1948FE81225
 ```
 
 https://mybot314.ru/tekegram_catalog/

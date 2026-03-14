@@ -1,3 +1,177 @@
+###  Публикация: 1837750   (257692) от 18.11.2025
+
+Electro Swing Celebration, Bar Coffee Music Saloon, Electronic Music - Electro Swing in the Background (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Disco Shuffle (2:52)
+02.  Bourbon & Brass (2:36)
+03.  Radio Electroswing (2:26)
+04.  Electro Swing Party (2:57)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF0FD5EAA3072FD28DC5F64EE5F307385472B29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837754   (257690) от 18.11.2025
+
+Electro Swing Radio - Coffin Candy Charleston (House Electro Swing) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Black Cat Prance (Electro Swing Jazz) (1:43)
+02.  Tricks & Treats (House Electro Swing) (1:58)
+03.  The Cat's Go Meow (House Electro Swing) (2:15)
+04.  Vampire Boogie (Halloween Jazz Anthem) (1:53)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD87C6B9F06D96B3127A0C909F8C20DE6AA8555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837755   (257688) от 18.11.2025
+
+Soundify Background Music, Pub Music, Electronic Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Swing Machine (2:46)
+02.  Time Travel Affair (2:52)
+03.  Electro Swing (3:22)
+04.  Syncopation Nation (3:15)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84556F9DA4D3B0D0B83CF4B16012A21B7B76AE0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837756   (257687) от 18.11.2025
+
+Rebekka Bakken - Nord (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Møt Meg
+02. Tusen blå
+03. Mitt hjerte alltid vanker
+04. Gjendines bådnlåt(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63F1BE0E8ED4DFD21E5AEA5A877536ABEED64C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837757   (257686) от 18.11.2025
+
+VA - Electro Swing & More (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Salade Tomate - Cocktail (4:57)
+02.  Hey Alan! - Electro Swing 3 (6:04)
+03.  Adln - Hey Listen (Deja-Move Mix) (4:11)
+04.  Hey Alan! - Jackin Swing (Swing House Mix) (6:40)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D565326608C3035B26072982983EB2BEC2152166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837760   (257684) от 18.11.2025
+
+VA - Electro Swing Ragtime House: Harlem Prohibition Jazz Inspired Music, Spooky Halloween Groove (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elowen Starling - Harlem Moonlight (5:08)
+02.  Lenar Dupree - Glow in Motion (3:46)
+03.  Juliette H. Sinclair - The Phantom Piano (3:28)
+04.  Elowen Starling - Roaring Electronic Twenties (3:47)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645DD339B5FD7F927A7B349DEC6720A3A44DB736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837782   (257672) от 18.11.2025
 
 VA - The Roaring Remix, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
@@ -633,197 +807,6 @@ Louis Armstrong - Gold collections [Lossless]<Jazz> 4CD
 08. I Wonder
 09. When It's Sleepy Time Down South
 10. I'm Confessin' (That I Love You)(   Читать дальше...   )2006Жанр: Jazz, BluesПродолжительность: 01:07:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499690   (256454) от 21.05.2012
-
-Jazzamor - Lucent Touch (2011) [FLAC (tracks+cue)|Lossless]<Acid Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acid Jazz, LoungeПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499424   (256377) от 21.05.2012
-
-Marcus Miller - Renaissance (2012) [MP3|320 кб/с]<Jazz-Funk, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Detroit
-02. Redemption
-03. February
-04. Slippin' Into Darkness(   Читать дальше...   )Жанр: Jazz-Funk, FusionПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFA2A964B39DA1942EB64C49116F69DB5FB6761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499046   (256296) от 21.05.2012
-
-Danny Cowan Group - Drivin' Back To Texas (2005) [FLAC|Lossless]<Blues, Texas Style>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backwards Shuffle  (04:13)
-02. When The Blues Follow You Home  (06:57)
-03. Drivin' Back To Texas  (05:06)
-04. The Whip  (04:17)
-05. Runnin' From The Devil  (05:38)
-06. I Been Mean  (04:26)
-07. Lonesome Heart Blues  (04:58)
-08. He's The Man  (03:11)
-09. You Got The Soul  (03:43)
-10. Blue Is The Color Of My Heart  (04:59)(   Читать дальше...   )2005Жанр: Blues, Texas StyleПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498486   (256283) от 21.05.2012
-
-Berget Lewis - Finally (2007) [FLAC|Lossless]<Funk, Soul, Pop>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finally (Intro)
-02. Feel This Way Again
-03. I'll Do Anything
-04. Where I Belong (Wanna Fly)
-05. Sooner Or Later
-06. Let Me See Ya Move
-07. Boogie Night
-08. All About Me
-10. I've Tried
-11. Back In My Life (Interlude)(   Читать дальше...   )2007Жанр: Funk, Soul, PopПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498503   (256271) от 21.05.2012
-
-Bernhard Lackner - Stories From Home (2011) [FLAC|Lossless]<Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood
-02. The Tribute
-03. Turnaround
-04. That Time Of The Year
-05. Home
-06. You Will Be Missed
-07. European Summer
-08. Two Flies With One Hit
-09. Reprise2011Жанр: Fusion, Jazz-RockПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498501   (256260) от 21.05.2012
-
-Bernd Reiter Quartet feat. Roman Schwaller - Live At The Jazzland-Vienna (2007) [FLAC|Lossless]<Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strike Up The Band
-02. Theme For Ernie
-03. Ruby, My Dear
-04. Bitter Suite
-05. Cheese Cake
-06. Body And Soul
-07. Dear John2007Жанр: Hard Bop, Post-BopПродолжительность: 01:19:30
 
 ## Скачать торент
 ```bash

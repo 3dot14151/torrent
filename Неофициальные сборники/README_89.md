@@ -1,3 +1,108 @@
+###  Публикация: 631690   (913110) от 24.03.2013
+
+VA - Super Dance Party-11 (2013) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Juan Martinez - Questa Notte You Are For Me
+02. Manian & Floorfilla - Just Another Night
+03. Will.i.am feat. Britney Spears - Scream & Shout (Miami Blue Vs Alex Berti Bootleg Remix)
+04. Mario Bischin - Macarena (Punish Bootleg 2k13)
+05. DJ Project feat. Adela - Vraja Ta (Radio Edit)
+06. David Guetta feat. Che'Nelle - Titanium
+07. DJ Sergey Fisun vs. Pavel Esenin - Call Me Misha 2013 (Room Original Mix)
+08. Magic Deejays feat. Alex Stavi - Things (Extended Version)
+09. Skrillex - The Reason
+10. Faydee - Catch Me(   Читать дальше...   )Жанр: DanceПродолжительность: 04:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AE0959C0962AF153B15CD000B38D721CEF3166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 633501   (912958) от 24.03.2013
+
+VA - NRJ Hit Music Only 2013 (2CD) (2013) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912958.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1; 01:09:18
+
+01. Macklemore & Ryan Lewis Feat. Wanz - Thrift Shop
+02. Baauer - Harlem Shake
+03. Bruno Mars - When I Was Your Man
+04. Sexion D'assau Feat Dry - Assez
+05. Muse - Follow Me
+06. Pitbull Feat. Christina Aguilera - Feel This Moment
+07. Maroon 5 - Daylight
+08. Shaka Ponk - I'm Picky(   Читать дальше...   )Жанр: DanceПродолжительность: 02:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B9645ADE4A40C8B897B14712FCA6A28B7FB97D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632671   (912867) от 24.03.2013
+
+VA - Весенняя волна хитов (2013) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Vertigo feat. Ай-Q - Я Свет Искал
+02. K-Rim - Ты Для Меня (Rash Mix)
+03. Daniel Robu - Nomansland (Radio Edit)
+04. СтаЯ feat. D.I.P Project - Зачем Я И Ты (Radio Version)
+05. Spencer & Hill feat. Toni Nielson - Dead Or Alive (Radio Edit)
+06. DJ Richi feat. НашеVrемя - Статьи О Любви
+07. T-Killah feat. Лена Катина (ex. t.A.T.u) - Я Буду Рядом
+08. Play & Win - 5 AM (Radio Edit)
+09. NikitA - Синие Платье
+10. Влад Соколовский - Вслед За Ветрами(   Читать дальше...   )Жанр: DanceПродолжительность: 04:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7FA96B52EE3460A20EC9CD3C6483486A3A2297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990094   (912816) от 24.02.2016
 
 VA - Дискотека Казанова Старые Песни По Новому vol.6 (2016) [MP3|320 кб/с] <Hands Up, Dance, Club, Eurodance>
@@ -658,94 +763,6 @@ The Rolling Stones - 100% The Rolling Stones in Blues (2020) [MP3|320 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC9215312551FE1FFE25EA6F930BF26EBE92C1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097642   (911779) от 28.01.2017
-
-VA - Enigmatic Songs (2017) 3CD [MP3|256 Kbps] <Enigmatic, New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregorians -  So Sad
-02. Pandana -  Imagination
-03. B-tribe -  Ahoy
-04. Soul Ballet -  Exotique(   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 11:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC712F362B4644C80E861FD545BD72ED959C26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990357   (911721) от 25.02.2016
-
-Дуэт - Вадим Медин и Сергей Холодов - Третий концерт (1976) [MP3|194-216 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление
-02. От злой тоски, не матерись...
-03. На кладбище
-04. Дураки(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14A647F11FEDD98A8164FE59B59EEE2786426F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866219   (911546) от 03.02.2015
-
-VA - Billboard 2014 Year End Hot 100 Songs (2014) [MP3|~245 кб/с (V0)]<Pop, Dance, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Billboard подвел итог своих хит-парадов за 2014 год. Опубликована лучшая сотня песен за год во всех жанрах. Именно её мы и представляем сегодня.
-Вспомните о всем лучшем что было в 2014 году!001. Pharrell Williams - Happy (Gru's Theme from Despicable Me 2)  (3:53)
-002. Katy Perry - Dark Horse (feat. Juicy J)  (3:36)
-003. John Legend - All of Me  (4:30)
-004. Iggy Azalea - Fancy  (3:20)(   Читать дальше...   )Жанр: Pop, Dance, Rock, OtherПродолжительность: 06:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8861ECC488D3B8AE99678151A9F511DF5D428E
 ```
 
 https://mybot314.ru/tekegram_catalog/

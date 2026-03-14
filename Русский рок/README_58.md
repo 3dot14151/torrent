@@ -1,3 +1,87 @@
+###  Публикация: 1409924   (440726) от 19.09.2020
+
+ЧайФ - Не теряй надежду (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не теряй надеждуЖанр: RockПродолжительность: 00:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74EBF70E411883F71C3B60D950C84FCC90BB0337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409917   (440582) от 19.09.2020
+
+Фёдор Чистяков - Последний из могикан (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Russky Rock'n'roll (04:16)
+ 02.Trains Rolled Down The Street (04:44)
+ 03. Little Corey (03:29)
+ 04. Lenin Street (04:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FA79A35AFB2895A4A4C4F38AD7BE1F6B2B3876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944588   (440081) от 07.10.2015
+
+Stigmata - Legion EP (2015) [MP3|~245 кб/с (V0)]<Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440081.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Legion (2:59)
+2. Радио "Смерть" (4:58)
+3. На повтор (3:14)
+4. Голод (Scang cover) (4:14)Жанр: Melodic MetalcoreПродолжительность: 00:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10742E3BD60868724B4CC39179CEA23AD88CE7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570415   (438464) от 19.08.2022
 
 Rasp - Питомник имени И.В. Мичурина (2022) [MP3|320 Kbps] <Rock>
@@ -663,93 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:456E72A7397FC5775579F1182C059EBBBEC86A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411325   (427463) от 25.09.2020
-
-Мегаполис - НОЯБРЬ (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427463.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я вздрагиваю от холода
-2. На волшебной ракете
-3. Летящая
-4. Снег и лёд(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6687ACA0B0D854E5C2B5C74C50A3B4AF11C515AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411323   (427348) от 25.09.2020
-
-Линда - ДНК Мира (2020) [MP3|320 Kbps] <Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427348.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Антахкарана
-2. Хватит!
-3. Трещины
-4. Недолюбили(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED91382C4718AFC828CCC31C3D73C93BF0D3CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250155   (427100) от 27.09.2018
-
-НЭП - Мама (2018) [MP3|320 Kbps] <Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427100.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Зима
-2. Знай
-3. Один
-4. Вой стен(   Читать дальше...   )Жанр: РокПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042FE9B33D99E0F85B9771C3A90E2CE16A3EF767
 ```
 
 https://mybot314.ru/tekegram_catalog/

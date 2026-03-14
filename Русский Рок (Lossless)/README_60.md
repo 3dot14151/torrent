@@ -1,3 +1,148 @@
+###  Публикация: 1680305   (134343) от 29.11.2023
+
+Meija - Grim (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, progressive metal, trip-hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grim [00:04:10]
+02. Aporia [00:04:02]
+03. Limbo [00:05:47]
+04. Penelope [00:04:26](   Читать дальше...   )Жанр: Alternative, progressive metal, trip-hopПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21C2806B3F4C70AE7ADA5443E7AD9F3A8D0D300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593927   (134020) от 25.12.2012
+
+VA - Мешанина или неГолубой огонёк (2CD) (2004) [APE|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 2004-200401. Звери & Татьяна Буланова - Дожди-пистолеты (03:19)
+02. Михаил Башаков & Александр Жигалкин - Не парься (03:27)
+03. Би-2 & ЧайФ - Достучаться до небес (04:34)
+04. СерьГа & Гуарана - Как прекрасен этот мир (03:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680739   (133539) от 01.12.2023
+
+DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Industrial, Melodic Death Metal >
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transistor (Intro) [00:02:46]
+02. Aurora [00:04:14]
+03. Path [00:02:17]
+04. Moon [00:04:21](   Читать дальше...   )Жанр: Power Metal / Instrumental / Electro-Industrial / Melodic Death Metal / Sid Metal / Folk MetalПродолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63900F0EBC0D757853018D0D1B0344D6106E629F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680817   (133520) от 01.12.2023
+
+LikArt - Мессия в MP3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Своё шоу [00:02:37]
+02. Плак-плак [00:02:36]
+03. Целуй! [00:02:36]
+04. Научи меня летать [00:02:55](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0ACCBAC7E974D26D88ADEEAD02ADA4AEA11C8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594767   (133204) от 27.12.2012
+
+Валькирия - Святым огнём (2012) [FLAC|Lossless]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Путь домой
+02. Таинственный зверь
+03. Странник
+04. Храм заблудших душ(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681127   (133165) от 02.12.2023
 
 S-VOX feat. Давид Тодуа, Вадим Самойлов - Моя звезда (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -600,151 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3D9D7278E1FCA296DB4DFB98B63CA6F51A897A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682611   (131197) от 08.12.2023
-
-Lunatii - Insomniashes (2023) [FLAC|Lossless|image + .cue] <Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		Insomniashes
-02		Empty Source
-03		Brutal Doom
-04		Lifeless(   Читать дальше...   )Жанр: Depressive Black MetalПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D445A1446BF863FB69AFEECD8D30E45A419D22DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682622   (131151) от 08.12.2023
-
-Мещера - Жатва (2023) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Black Fog 4:22
-02 Harvest 5:33
-03 Eternity of White Januarys 4:44
-04 Winter Cold 4:18(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk MetalПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714BADA0E7C0D539C3D62F644B7DC0E8FA279658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682712   (131036) от 08.12.2023
-
-КняZz - Платим за Шута! Волшебная книга, Том 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. СТАЛКЕР [00:03:37]
-02. РУКИ К НЕБУ [00:04:28]
-03. ТЁМНАЯ ЛИЧНОСТЬ [00:04:46]
-04. ФОТОГРАФ [00:02:41](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976092BC3464381C045B31FA2A34777ACD9096BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524997   (130362) от 18.01.2022
-
-Диктатура Сердца - Записки Над Бездной (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Punk Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог
-02. Поэт
-03. Западло
-04. Память(   Читать дальше...   )Жанр: Hard Rock, Punk Rock, Heavy MetalПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8D5C6102AF2C3B3E015B7A41019EDB3CA68A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525712   (129311) от 21.01.2022
-
-Кино - 45 (1982) 3xCD, Remastered, 2021, AnTrop [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129311.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Оригинальная Версия:
-01. Время есть, а денег нет
-02. Алюминиевые огурцы
-03. Бездельник №1(   Читать дальше...   )Жанр: RockПродолжительность: 03:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD45834B175A63EC37EC5612892E149F2A83A1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

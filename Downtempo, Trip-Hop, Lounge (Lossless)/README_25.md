@@ -1,3 +1,61 @@
+###  Публикация: 1344680   (169774) от 11.12.2019
+
+VA - Good Morning Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Silver Drops (Original Mix)
+02. Michael e - It's Your Time (Original Mix)
+03. Charlie North - Early Morning Call (Original Mix)
+04. Finland & Aaskoven - Melzi (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB51E857973064489587521950903A747EA5B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515723   (168477) от 08.12.2021
+
+VA - Gate to Eternity: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Sour – Calm Before The Storm (04:51)
+02. Free Spirit Muse – Cry For Freedom 432Hz (original mix) (06:41)
+03. Elmara – Entre Nubes (03:59)
+04. Michael E – Noble Savage (original mix) (05:57)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E864E607472A2970AB64BF232042A85CB996F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345456   (167532) от 14.12.2019
 
 VA - Sensual Winter Chill Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -687,64 +745,6 @@ VA - Sweet Soulful: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D987330D4C108A857F8F6B621FEBEF8EDD08DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599526   (159829) от 23.12.2022
-
-VA - Uplifting Serenity: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Heaven (Sky Spirit Dreamy Mix) (5:16)
-02. Red Chameleon - Sound (Original Mix) (4:46)
-03. Chillson - Don't Look Back in Anger (5:13)
-04. Beamy - Summers Smile (4:31)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E329465A5B0BC4D38FCB5CEFB2B85F099E3F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599563   (159622) от 24.12.2022
-
-VA - Relaxing Echoes: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - It's Time (Original Mix) (6:05)
-02. Kevin Paczesny - Winter Lights (5:33)
-03. Hölderlin - Lullaby (4:54)
-04. Fantômas - Dull&slow (4:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A84859E20466B3EE2BA99ADF7E00169104F633
 ```
 
 https://mybot314.ru/tekegram_catalog/

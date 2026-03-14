@@ -1,3 +1,47 @@
+###  Публикация: 573937   (378108) от 11.11.2012
+
+VA - Лучшие клубные хиты Hot Club Hits (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ChinKong и Девушки Эйнштейна - #ДискотекаHomeParty16+
+002. Fidel Wicked - Rock The Disco (Radio Edit)
+003. Серебро - Мальчик (DJ Squeeze Radio Edit)
+004. Alexey Romeo & Smoky Mo - На своей волне (Radio Mix)
+005. DJ Kerim Muravey - Танцуй Россия (Original Mix)
+006. DJ Smash feat. Вера Брежнева - Любовь на расстоянии
+007. Инфинити - Я так скучаю (DJ Sergey Fisun remix)
+008. Dan Balan - Люби (DJ Sebastien Remix)
+009. Елка - Цепи-ленты (DJ Noiz & DJ Maxtal Radio Remix)
+010. MMDance - Друзья (DJ Ozeroff DJFM Radio Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:03:47
+
+001. Matreshka Gilrs - Медведица (DJ AFFecta & DJ Natasha Baccardi Radio Edit)
+002. Slam DJ's feat Zeni - Touch (Evan Yelnikov Club Edit)
+003. Alexey Romeo & Smoky Mo - На своей волне (Radio Mix)
+004. DJ Rich-Art & DJ Stylezz feat. MC Shayon - Odessa (Moscow Club Bangaz Remix)
+005. OKSI - Любить за двоих (Tom Reason Remix)
+006. Bodybangers feat. Victoria Kern - Gimme More (Radio Edit)
+007. DJ Favorite feat. Вероника Данилова - Бессонница (DJ Nejtrino & DJ Baur Remix)
+008. Yolanda Be Cool feat. Nola Darling - Change(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1796993CE018B92A90B9552040D7777825D9663A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573474   (378027) от 11.11.2012
 
 VA - Новинки Русского Рока (2012) [MP3|256 кб/с]<Rock>
@@ -758,35 +802,6 @@ VA - По волне моей памяти: Том 3 (Compiled by Виктор31
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA41FC622B2F014D22FCD19D146BECB2D1EADB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415609   (371750) от 14.10.2020
-
-VA - Zumba 2020: Rumba Fitness [MP3|320 Kbps] <Latin, Bachata, Rumba>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371750.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - J Tian HD - Carrapicho (2:40)
-002 - Lele Pons, Guaynaa - Se Te Nota (with Guaynaa) (2:35)
-003 - Bad Bunny - Yo Perreo Sola (2:52)
-004 - Jeison el Brother - Baila Mi Cumbia (3:28)(   Читать дальше...   )Жанр: Latin, Bachata, RumbaПродолжительность: 22:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD5F5B455B5783F781A2D0554C296747AC286A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

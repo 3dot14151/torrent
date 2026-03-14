@@ -1,3 +1,38 @@
+###  Публикация: 555731   (431696) от 03.10.2012
+
+Billy Idol - Idolize Yourself ( the very best of ) (2008) DVDRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный альбом лучших клипов Билли Айдола! 24 июня 2008 года в продаже появился новый сборник «Idolize Yourself», в который вошли две новые песни: «John Wayne» и «New Future Weapon» (песня о самолёте-невидимке F22 Raptor).01. Dancing With Myself
+02. Hot In The City
+03. White Wedding, Part 1
+04. Rebel Yell
+05. Eyes Without A Face
+06. Flesh For Fantasy
+07. Catch My Fall
+08. To Be A Lover
+09. Don't Need A Gun
+10. Sweet Sixteen(   Читать дальше...   )Жанр: Музыка,Punk-RockПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9863C16A1C3228F79FF7085B4ED80C8DED516015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 557346   (422344) от 07.10.2012
 
 Gain. Bloom (2012) [H.264/1080р] HDTVRip
@@ -742,42 +777,6 @@ Europe - Live at Sweden Rock: 30th Anniversary Show (2013) BDRip [1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:971DC941E424CABE46E102753053C79BB0B1ED19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576153   (363403) от 17.11.2012
-
-The Kelly Family (clips)[H.264] Mp4 (1998-2011)
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363403.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Kelly Family — европейская фолк/рок/поп-группа, состоящая из членов одной семьи. 9 братьев и сестёр Kelly — продюсеры своих альбомов, организаторы концертов, авторы и исполнители своих песен. Много лет семья Келли вела странствующий образ жизни — ездила по Европе на двухэтажном автобусе и на своей лодке. В это время стиль Келли был — длинные волосы — как у сестер, так и у братьев, и этнические, необычные костюмы. Всего в семье 12 детей, и 9 из них составляют «The Kelly Family»: Кэтти, Джон, Патриция, Джимми, Джой, Барби, Пэдди, Мейт, Анджело.
-Здесь предоставлены наилучшие на мой взгляд клипы...(извините за качество)01. An Angel
-02. First Time
-03. Imagine
-04. Key to my heart
-05. Mama
-06. Roses of Red
-07. Slow Down
-08. Why Why Why
-09. An Alien
-10. An Angel (2)(   Читать дальше...   )Жанр: Музыка, Pop, FolkПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57EA07298CB2B7ED599D6D4A1EB08C864CF6B59
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1336818   (277600) от 08.11.2019
+
+Antonio Hart - For Cannonball And Woody (1993) Novus [FLAC|Lossless|image + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sticks [3:25]
+02. Sacks O' Woe (A Bag O' Trouble) [5:23]
+03. Organ Grinder [5:50]
+04. Theme for Ernie [7:03](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4EE38171507A18C01052CCB52FC3F3F6CC5E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336892   (277599) от 08.11.2019
+
+Jelly Roll Morton - The Best Of Jelly Roll Morton 1926-1939 (1993) Jazz Archives [FLAC|Lossless|tracks + .cue] <Ragtime, Early Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Porter Stomp [2:51]
+02. Black Bottom Stomp [3:11]
+03. The Chant [3:07]
+04. Sidewalk Blues [3:28](   Читать дальше...   )Жанр: Ragtime, Early JazzПродолжительность: 01:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B20194B8D28B0C5B20301EEDBC2764728BF796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336890   (277598) от 08.11.2019
+
+Ben Webster - Story 1934-1944 (1996) Jazz Archives [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rug Cutter's Swing [3:04]
+02. Dream Lullaby [3:11]
+03. Tea For Two [3:11]
+04. Early Session Hop [2:44](   Читать дальше...   )Жанр: SwingПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211DEF4EE6306590B1AC43082536FA79A3584B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336853   (277597) от 08.11.2019
 
 Greg Marvin - I'll Get By (1991) [FLAC|Lossless|image + .cue] <Hard Bop, Neo-Bop, Post-Bop>
@@ -658,93 +745,6 @@ Clarence Penn - Play-Penn 2001 (2009) Criss Cross Jazz [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CCB41B352B4696AC7A59F0FA7A615A11C5F352B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337301   (275032) от 10.11.2019
-
-A NYC Tribute feat. Jimmy Cobb & Randy Brecker - Monk (2012) Jazz'n'Arts Records [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teo [10:25]
-02. Evidence [6:19]
-03. Green Chimneys [9:36]
-04. Scooter [7:19](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BFB046B6AA03555D89BDA10F58A8B22C940173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337306   (275031) от 10.11.2019
-
-Jeff Ray - The Walkup (2003) HiPNOTIC Records [FLAC|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Streams [7:32]
-02. D.R.A. [6:55]
-03. Hot Music [9:35]
-04. Everybody Loves the Sunshine [6:21](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D398A43FA1B9DB920FA49CED4B54C594042FE093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337305   (275029) от 10.11.2019
-
-Yoshiro Okazaki & Jay Thomas Quintet - Soul Summit!: Live at Mr.Kenny's (2014) CUG Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz, Trumpet Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KD's Cab Ride [7:55]
-02. Night Watch [6:14]
-03. Escapade [8:36]
-04. My Ideal [4:35](   Читать дальше...   )Жанр: Post-Bop, Piano Jazz, Trumpet JazzПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274CFC2CF30B131E5A68728DC0398ACED980ADA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1233505   (593026) от 30.06.2018
+
+Mose Allison - Greatest Hits (1957 - 1959) 1988, Original Jazz Classics [APE|Lossless|image + .cue] <Hard Bop, Vocal, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Seventh Son [2:41]
+02. Eyesight to the Blind [1:44]
+03. Do Nothin' Till You Hear from Me [3:14]
+04. Lost Mind [3:34](   Читать дальше...   )Жанр: Hard Bop, Vocal, Piano JazzПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D45A8AB3BC7AEB8229FCEB1E916171701F99FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300713   (592812) от 07.05.2019
+
+Billy Strayhorn - Piano Passion (1945 - 1961) 2005, Storyville [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lush Life [3:29]
+02. Just A Sttin' and A Rockin' [2:53]
+03. Passion Flower [3:43]
+04. Take the A Train [3:17](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543B6109AF0A59E7B3679FDAA19EC9A525467A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300683   (592810) от 07.05.2019
+
+Adrien Varachaud Unity 5tet - Strange Horns (2010) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Horns [14:40]
+02. Impulse [10:37]
+03. Soul Eyes [13:32]
+04. 4 AM [12:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2A88C345813A0EA5A78D5DAFA0D84DBDF10A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549987   (592529) от 10.05.2022
 
 Stan Kenton And His Orchestras - The Kenton Era (1941 - 1953) 2CD, 2007, Sounds of Yester Year [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -658,93 +745,6 @@ Charnett Moffett - For The Love Of Peace (2004) Piadrum Records [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A1701A9F175B8104CE1E57367093221E3889790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551752   (589398) от 17.05.2022
-
-Charnett Moffett - Beauty Within (1989) Blue Note Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Never Fails [5:46]
-02. Dancing with Love [3:59]
-03. Angela [6:17]
-04. My Little One [4:46](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2AEC84480690C14714D08F1DF5D658B26EBAB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551891   (589001) от 18.05.2022
-
-Buddy De Franco (DeFranco) - The Complete Verve Recordings Of The Buddy De Franco Quartet & Quintet With Sonny Clark (1954 - 1955) 4CD, 1990, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bo ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589001.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jack The Fieldstalker [3:08]
-02. Cable Car [4:05]
-03. I Wish I Knew [4:55](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 03:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF406619901B066374D15890F9242306864851B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552099   (588524) от 19.05.2022
-
-Oscar Peterson - The Classic Verve Albums Collection (1957 - 1962) 4CD, 2018, Enlightenment [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588524.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Stan Getz And The Oscar Peterson & Ben Webster Meets Oscar Peterson:
-01. I Want To Be Happy [7:38]
-02. Pennies From Heaven [5:19]
-03. Bewitched, Bothered, And Bewildered/Don't Know Why (I Just Do)/How Long Has This Been Going On/I Can't Get Started/Polka Dots And Moonbeams [10:13](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 05:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5524A0F7A861226983E5214A0466D3A76FEC1A53
 ```
 
 https://mybot314.ru/tekegram_catalog/

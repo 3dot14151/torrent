@@ -1,3 +1,177 @@
+###  Публикация: 1519182   (149940) от 23.12.2021
+
+Erroll Garner - 1953-1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterdays [4:06]
+02. Frenesi [3:38]
+03. Oh, What A Beautiful Mornin' [3:00]
+04. Groovy Day [3:43](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8570891D28E8EFD6191EBEC532E9CD03164A7A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434633   (149929) от 25.12.2020
+
+Damon Smith's - A Boogie Woogie and Blues Christmas Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everyday Is Christmas (2:08)
+02. Party At The North Pole (1:44)
+03. Silly Season Rag (2:26)
+04. Blues For Mrs Christmas (2:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E6971ABEABB7BE3041A7303499CECFC39F4843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434592   (149906) от 25.12.2020
+
+Courtney Pine - Black Notes From The Deep (2017) Freestyle Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rules (feat. Omar) [3:15]
+02. You Know Who You Are [4:54]
+03. Darker Than the Blue (feat. Omar) [3:22]
+04. Rivers of Blood [5:39](   Читать дальше...   )Жанр: Post-Bop, Soul Jazz, Contemporary JazzПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722E2130B70C3BF2B2AFD0207F73F4DEBD5F9370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271192   (149896) от 23.12.2018
+
+Ana Gazzola - Brazilian Blues (2018) [MP3|320 Kbps] <Vocal Jazz, Soul, Blues, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Love 03:40
+02. Tigresa 03:10
+03. Tola 02:42
+04. Indigo Blue 03:47(   Читать дальше...   )Жанр: Vocal Jazz, Soul, Blues, Bossa NovaПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E2EAAC2648165A3E8C3FEFDA10E793A654264B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434439   (149864) от 25.12.2020
+
+Jeff Liberman - Celebrate the Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's Why I'm Here (3:40)
+02. Hot Blooded Woman (3:23)
+03. By Her Side (3:32)
+04. Tree (3:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C8CB826DE657C5264675FC66E271B57A382888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519139   (149844) от 23.12.2021
+
+The United Jazz+Rock Ensemble - Highlights (1985) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ausgeschlafen 6:45
+2. Story Board 4:30
+3. Die Wiederkehr 8:17
+4. Circus Gambet 6:01(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99404706BBFD3D31F460419550A184772DAEE3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519186   (149777) от 23.12.2021
 
 Stanley Turrentine With Milt Jackson - Cherry (1972) 1988, CBS [APE|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
@@ -576,186 +750,6 @@ John Verity Band - 11 albums (2006-2019) [FLAC|Lossless|image + .cue] <Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B91BC7E960FDA0E34E1C7312D9DA4ACDA59108A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434902   (148485) от 26.12.2020
-
-Chet Baker - 3 Essential Albums (1958 - 1988) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148485.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Stan Meets Chet:
-01. I'll Remember April [12:24]
-02. Ballad Medley: Autumn In New York - Embraceable You - What's New [14:34]
-03. Jordu [8:31](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 02:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDE585AEE1CD9F3D8313AF8F6BF3812F39E668C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434864   (148435) от 26.12.2020
-
-Doug Westberg - I Get the Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaking off Signs (3:22)
-02. Honest Buck (4:12)
-03. Doug Westberg, LaRhonda Steele -- Wondering When You'll Call (4:00)
-04. Doin' the Wackadoodle (3:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AE13BDB72C5B9FA2F5EECF4CF549A67ADBDCCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434912   (148367) от 26.12.2020
-
-Doug Westberg - I Get The Blues (2020) [MP3|320 Kbps] <Blues Rock , Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaking Off Signs (03:22)
- 02. Honest Buck (04:12)
- 03. Wondering When You'll Call (04:00)
- 04. Doin' The Wackadoodle (03:07)(   Читать дальше...   )Жанр: Blues Rock , BluesПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2234D4EBBF27DF0542A7EA134278417C618011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589570   (148038) от 15.12.2012
-
-Stevie Ray Vaughan & Double Trouble - 5 х CD Collection (1983-1991) /Re-mastered, Re-issue 1999-2011/ [WavPack|Lossless]<Rock, Blues Rock, Blues.>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boot Hill [02:16]
-02. The Sky Is Crying [04:38]
-03. Empty Arms [03:30]
-04. Little Wing [06:50]
-05. Wham [02:28]
-06. May I Have A Talk With You [05:50]
-07. Close To You [03:13]
-08. Chitlins Con Carne [03:59]
-09. So Excited [03:32]
-10. Life By The Drop [02:28]Жанр: Rock, Blues Rock, Blues.Продолжительность: 00:38:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678056   (147933) от 20.11.2023
-
-Terence Blanchard & Donald Harrison - New York Second Line (1985) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New York Second Line [4:23]
-02. Oliver's Twist [5:24]
-03. I Can't Get Started [3:28]
-04. Duck Steps [3:43](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94865D61ADC980CD1AC86F6534C3E7CBE0F01309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678053   (147914) от 20.11.2023
-
-Lee Morgan - Tom Cat (1964) 1990, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Cat [9:45]
-02. Exotique [9:33]
-03. Twice Around [7:35]
-04. Twilight Mist [6:57](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C62CEE7154C19F8C609D971829BE3029C98159
 ```
 
 https://mybot314.ru/tekegram_catalog/

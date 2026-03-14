@@ -1,3 +1,177 @@
+###  Публикация: 1139041   (661308) от 01.06.2017
+
+Oscar Wilson - One Room Blues (2017) [MP3|320 Kbps] <Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Was Young (02:53)
+02. Lost Mind (02:59)
+03. Found Love (02:25)
+04. Blackjack (03:42)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13702FD196FA9F6A23A1D59FCCC97D58F580F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139255   (661296) от 01.06.2017
+
+Sean Webster Band - Leave Your Heart At The Door (2017) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Me The Truth (4:44)
+02. Wait Another Day (4:49)
+03. Broken Man (4:10)
+04. You Got To Know (4:14)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD82213F255AC3CB90F0C4BB3935F8BCCEF2581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139127   (661194) от 01.06.2017
+
+Tape Five - Soiree Deluxe (2017) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Step into My Time Machine
+02. Hush Hush Magazine
+03. Love Gun
+04. Get Down Luna Park(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E8BBC9473B4F2CA3DE71976468929C7255C675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138990   (661108) от 01.06.2017
+
+Justin Johnson - Smoke & Mirrors (2014) 2 CD [FLAC|Lossless|WEB-DL|tracks] <Guitar Blues, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satan Your Kingdom Must Come Down  (04:53) 
+02. Wade in the Water  (02:49) 
+03. Down by the Riverside  (04:28) 
+04. When the Saints Go Marching In  (04:10) (   Читать дальше...   )Жанр: Guitar Blues, InstrumentalПродолжительность: 01:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C7139C2D0587945870FAB4E2F33AEC26A9C121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538940   (661080) от 22.03.2022
+
+Hurricane Ruth - Live At 3rd & Lindsley (2022) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roll Little Sister (4:21)
+02. Hard Rockin' Woman (4:07)
+03. What You Never Had (4:12)
+04. Dirty Blues (4:47)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C47E1B55A92714A69D1D009225B40CA1026B5D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902367   (660886) от 28.05.2015
+
+Melody Gardot - Currency Of Man [Deluxe Edition - The Artist's Cut] (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Misunderstand
+02. Don't Talk
+03. It Gonna Come
+04. Bad News(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17490CA737B6ADC5AEADD364669ABDAA3137ADE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225380   (660819) от 15.05.2018
 
 Eric Seva - Body And Blues (2017) Les Z'arts de garonne [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Crossover Jazz>
@@ -577,186 +751,6 @@ Gina Sicilia - Tug Of War (2017) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD3B11C4A4528BFCFAAD9DE999A0F2D80B234FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139645   (659285) от 03.06.2017
-
-Adi Barar Band - Hold On! (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Your Hoochie Coochie Man (04:13)
-02. Rock Me Baby (04:06)
-03. Cold Black Night (04:48)
-04. La Grange (02:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63DF00498B19103C47CB966048A4F6495AFE27D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514059   (659277) от 23.06.2012
-
-Bill Tole And His Orchestra - On The Move (1990) [FLAC|Lossless]<Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_659277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tole Road
-02. It Had To Be You
-03. I'm Walkin'
-04. Them There Eyes
-05. What's New
-06. Exactly Like You
-07. Don't Worry About Me
-08. Front Page Rag
-09. I'm So In Love With You
-10. How Little We Know(   Читать дальше...   )1990Жанр: Big BandПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539186   (659251) от 24.03.2022
-
-The Junior Mance Quintet - Here 'Tis: Play The Music Of Dizzy Gillespie (1992) Sackville [WavPack|Lossless|image + .cue] <Bop, Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here 'Tis [8:02]
-02. Woody 'n You [6:16]
-03. Ow [9:52]
-04. Con Alma [4:52](   Читать дальше...   )Жанр: Bop, Hard Bop, Post-BopПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D436560AC3120CEC77BA54783C93C67BF1760A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903175   (659225) от 30.05.2015
-
-Weather Report - I Sing The Body Electric (2014) [FLAC|Lossless]<Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unknown Soldier [08:01]
-02. The Moors [04:46]
-03. Crystal [07:27]
-04. Second Sunday In August [04:14](   Читать дальше...   )Жанр: Jazz, Jazz FusionПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66902D4946D7E38F3C1A6DD3BA694D7BEA234CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903310   (659222) от 30.05.2015
-
-David Sanborn - Time and The River (2015) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A La Verticale
-02. Ordinary People
-03. Drift
-04. Cant Get Next To You (feat. Larry Braggs)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72753864F3D2645321FEF2D71E8CFCAEF1F0A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903186   (659217) от 30.05.2015
-
-John Petters Swing Band - Sing Sing Sing (2013) [MP3|320 кб/с]<Jazz, Retro Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sing Sing Sing (03:53)
-02. Special Delivery Stomp (03:21)
-03. Blues At The Honky Tonk (04:43)
-04. Seven Come Eleven (05:26)(   Читать дальше...   )Жанр: Jazz, Retro Swing, Big BandПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8CD1DEC99AE33A54288551C73F60C06B654B2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

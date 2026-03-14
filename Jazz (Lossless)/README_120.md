@@ -1,3 +1,90 @@
+###  Публикация: 1141225   (652562) от 09.06.2017
+
+Billy Strayhorn with Duke Ellington - Rare Strayhorn (1941 - 1965) 2015, La Maison du Duke [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clementine [02:54]
+02. Raincheck [03:19]
+03. Entrance Of Youth [05:26]
+04. Pianistically Allied (aka Tonk) [03:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D78B9F4F64B5C11AE4055CC64D8400A7F94149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141213   (652561) от 09.06.2017
+
+Clementine - Cle (2003) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Une Fille Comme Ci (6:01)
+02. Un Homme et une Femme (Grandis Mix) (5:11)
+03. Sur le Queen Mary (3:48)
+04. Akujyo (4:24)(   Читать дальше...   )Жанр: Latin Jazz, Bossa Nova, Vocal JazzПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0A5DD7C992E28AD6FAF695FBE2A4072BA7241C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141210   (652559) от 09.06.2017
+
+The Harry Allen Quartet - Someone to Light Up My Life (2005) Master Mix Music [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Shining Hour [5:28]
+02. Day In Day Out [6:04]
+03. Here's To That Rainy Day [5:44]
+04. Someone To Light Up My Life [6:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44C3E66A347CFC32BAF6FE89EEF078A746844F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141220   (652556) от 09.06.2017
 
 Wynton Kelly Trio & Wes Montgomery - Smokin' In Seattle: Live At The Penthouse (1966) 2017, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -658,93 +745,6 @@ VA - 25 Legendary vocal jazz ballads (2015) [FLAC|Lossless]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC74B1D2CE41205883A12D4F452168240229637E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292159   (648851) от 28.03.2019
-
-Mike Melvoin, Charlie Haden, Bill Henderson - The Capitol Sessions (2000) Naim [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bud's Open [3:50]
-02. I Think You Know [5:55]
-03. You Won't Hear Me Say Goodbye [4:42]
-04. Here's Looking at You [5:14](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9426B1776C7F5367389A53B830F9908EB5E5AC8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141694   (648815) от 11.06.2017
-
-Lars Gullin - with Chet Baker: 1955 - 56, Vol.1 (1992) Dragon Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny's Dream [04:21]
-02. Igloo [05:26]
-03. Lars Meets Jeff [05:34]
-04. Cool Blues [03:21](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE1B1F9410825679C1677A5DA8F9580AF62C741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141811   (648814) от 11.06.2017
-
-Bob Belden Ensemble - Treasure Island (1990) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Treasure Island - 7:40
-02. Deja Vu - 9:17
-03. The Treasure - 4:51
-04. Rites of Passage - 5:15(   Читать дальше...   )Жанр: Contemporary Jazz, Post-Bop, FusionПродолжительность: 01:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADF0A40C091B9B7656245E519813CF70F9041A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1703976   (114617) от 02.03.2024
+
+Firewind - Stand United (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salvation Day (4:23)
+02. Stand United (4:30)
+03. Destiny Is Calling (3:55)
+04. The Power Lies Within (4:20)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C86B1B355933F6FFC462F4F818D46549C02EA2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703925   (114612) от 02.03.2024
+
+REO Speedwagon - Hi Infidelity (1980) Remaster, 2024, Epic - Legacy [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let Him Go (3:45)
+02. Keep on Loving You (3:21)
+03. Follow My Heart (3:48)
+04. In Your Letter (3:16)(   Читать дальше...   )Жанр: Hard rock, AORПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6748444E67E5A63A94EAD9E67656BF0D427D6003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703937   (114610) от 02.03.2024
+
+Ансамбль «ИТС» - Это любовь (1987) [FLAC 24/192|Lossless|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Наша любовь вечна. Our Love Is Here To Stay. (G.Gershwin - I.Gershwin)
+02 - Тайная любовь. Secret Love. (S.Fain - P.F.Webster)
+03 - Письма о любви. Love Letters. (V.Young - E.Heyman)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF7A3A60A00F78AAFC079B7E8E90FA26C126491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541548   (114406) от 04.03.2024
+
+R.E.M. - Studio Albums (9 releases) (1991-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114406.jpg" />
+</div>
+
+
+###  Подробнее
+
+R.E.M. — американская рок-группа, сформированная в городе Атенс (штат Джорджия) в 1980 году музыкантами Майклом Стайпом (вокал), Питером Баком (гитара), Майком Миллзом (бас-гитара) и Биллом Берри (ударные и перкуссия). Один из наиболее важных и авторитетных коллективов, оказавших влияние на альтернативный рок.1991 - Out Of Time
+1992 - Automatic for the People
+1994 - Monster
+1996 - New Adventures in Hi-FiЖанр: Alternative RockПродолжительность: 08:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA66652C14E55A7E318BA0D609D708D561D7AEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704246   (114375) от 04.03.2024
+
+Madis - 4 Альбома, 1 Сингл (2022-2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2022 - Sail (Edits)
+2022 - Sail
+2023 - Conquest of Paradise(   Читать дальше...   )Жанр: Electronic TechnoПродолжительность: 5 CD, 04:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621F058D576ABB38C045EFE6EC2A692346E3961A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704416   (114372) от 04.03.2024
 
 Dire Straits (Даэр Стрэйтс) - Love Over Gold (Любовь дороже золота) (1982) 1987 [FLAC 24/192|Lossless|tracks] <Classic Rock>
@@ -600,151 +745,6 @@ Side A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BBA5551A2B8AC030160016A0D5A8C5D91AD9066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704137   (114296) от 04.03.2024
-
-Calming Jazz Relax Academy - Instrumental Meditation: Calm Mindfulness Session with Piano, Violin and Harp (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soft Peace (4:10)
-02. Inner Happiness (3:52)
-03. True Emotions (4:10)
-04. Heavenly Piano (3:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570001576E29DE793FB5DC5625C02540BFD9CF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704448   (114295) от 04.03.2024
-
-Mortifer - Euthanasia (1993) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro
-02 - Euthanasia
-03 - Illusions of life
-04 - Hangman's confession(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5D1A82E8F3555CAD98E54477CD7F95461A6B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704140   (114293) от 04.03.2024
-
-Hunter Francis - Daggermouth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daggermouth (4:15)
-02. Never Forget (2:37)
-03. Mud Water (4:21)
-04. Let You Down (3:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4583F129F0E2270F4BD479BB40041594C62E8A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704148   (114283) от 04.03.2024
-
-Max Magro and the Wolfgang - Commit a Crime (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smokestack Lightning (3:05)
-02. Commit a Crime (3:30)
-03. Wang Dang Doodle (4:28)
-04. Rolling Stone (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5495F94F7397A6C316DDE589F3715DBC3419D1D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704591   (114235) от 05.03.2024
-
-AC/DC - Flick of the Switch (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Rising Power"
-02. "This House Is on Fire"
-03. "Flick of the Switch"
-04. "Nervous Shakedown"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948933FC27F32699A1A98FAC5D46B3BFFEF95CBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

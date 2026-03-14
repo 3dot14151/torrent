@@ -1,3 +1,61 @@
+###  Публикация: 1374759   (871357) от 11.04.2020
+
+Harry Allen - I Won't Dance (1999) BMG Japan [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O Pato [5:23]
+02. Corcovado (Quiet Nights) [3:56]
+03. Desafinado [7:02]
+04. Once I Loved [4:00](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72FC1DC75167C1585C29CBE55F9DCBD11F71E4E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114309   (871237) от 18.09.2021
+
+Vladimir Danilin, Alexei Kuznetsov, Alex Rostotsky (Владимир Данилин, Алексей Кузнецов, Александр Ростоцкий) - Once I Loved (1998) Boheme Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Sw ...
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.But Beautiful [05:03]
+ 02.Три Года Ты Мне Снилась [06:41]
+ 03.Bernie's Tune [05:29]
+ 04.Waltz For Ksenia [06:06](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7348B3E42F2FD2C54DB50CBD4E8E942AD3F57F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 887067   (871234) от 18.09.2021
 
 Юрий Кузнецов (Yuri Kuznetsov) - Венера (Venus) (2002) Dialog Music[FLAC|Lossless]<Jazz, Mainstream Jazz, Modern Creative>
@@ -687,64 +745,6 @@ Dr. Lonnie Smith - The Healer (2012) Pilgrimage Productions[FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DCE767F4407BCE748C1ECB22880BB2D0275BCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998714   (868599) от 20.03.2016
-
-Kenny Barron Trio - Book Of Intuition (2016) Universal[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Magic Dance [07:54]
- 02.Bud Like [05:31]
- 03.Cook's Bay [06:03]
- 04.In The Slow Lane [06:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85484E5547AA3A3430D8BF90A034C0BA42635AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998627   (868598) от 20.03.2016
-
-Caustic Roll Dave - Approaching Noise (2014) [FLAC|Lossless|tracks + .cue] <Industrial Blues, Blues Rock, Lo-Fi>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What We Understand (02:42)
-02. You've Got Your Silver, You've Got Your Gold (02:56)
-03. Thoughts Send Him Down (03:21)
-04. Restart (02:42)(   Читать дальше...   )Жанр: Industrial Blues, Blues Rock, Lo-FiПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87024816FA2F843D30A3BBD5357F3A32115DCC41
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1585923   (219633) от 24.10.2022
+
+Bon Jovi - Bon Jovi (1984) Remastered, 1998, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway
+02. Roulette
+03. She Don't Know Me
+04. Shot Through The Heart(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B4B73B23BDB93634B7ADD377A99AC02B8B80C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585930   (219571) от 24.10.2022
+
+Who Killed Janis - 2 Albums (2022) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil Walks with Me [00:02:20]
+02. Anymore [00:03:56]Жанр: Hard RockПродолжительность: 2 CD, 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D734DF799ADAB3B33E39D238D105B0611ACC6FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585956   (219507) от 24.10.2022
 
 Bon Jovi - 7800° Fahrenheit (1985) Reissue, Remastered, 1998, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
@@ -694,64 +750,6 @@ Hobbit - Two Feet Tall (1999) [MP3|320 Kbps] <Classic Rock, Prog Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E89D1DD7693FE0859CBD195A161914FB96A2F9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586832   (214539) от 28.10.2022
-
-dArtagnan - Felsenfest (2022) 3CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214539.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dreht sich der Wind
-2. Tanz in den Mai
-3. Westwind
-4. Felsenfest(   Читать дальше...   )Жанр: Musketier-Rock, Folk RockПродолжительность: 01:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9140B95078230AC3C0F4FA4BF152DA6532EC5CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587005   (214419) от 28.10.2022
-
-Nazareth - The Ballads Album (2022) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heart's Grown Cold (2010 - Remaster) (04:14)
- 02 - Love Hurts (Single Edit) (03:51)
- 03 - Loved and Lost (2010 - Remaster) (05:13)
- 04 - Dream On (03:25)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88AD21BAAB66898098AE37EA315E91E2EA4B58C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,179 @@
+###  Публикация: 593020   (135374) от 23.12.2012
+
+Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+2000 - Learned My Lesson
+2005 - Tore Up from the Floor Up
+2009 - The French Connection
+2009 - SunnylandЖанр: Blues |Продолжительность: 04:22:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679688   (135357) от 26.11.2023
+
+Pat Martino - Consciousness (1974) 1999, Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impressions [4:38]
+02. Consciousness [11:56]
+03. Passata on Guitar [2:52]
+04. Along Came Betty [5:24](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369AE7301F921E6A0A277A5E764B68003B48B713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679525   (135333) от 26.11.2023
+
+Jorg (Jörg) Danielsen - Foolin’ Around (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Wants to Dance (4:48)
+02. Jd Boogie (4:26)
+03. I’ll Be Your Doctor (3:55)
+04. What a Time (6:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69FDE73416C8C77040A96F08E2DAF4CB3131EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679557   (135327) от 26.11.2023
+
+Tyrone Cotton - Man Like Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Across the Water (3:35)
+02. Slow Drag (3:12)
+03. Standing Rag (4:01)
+04. Go Back (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67094D6A55EC9F6635AB86F4099FBA678F417762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679539   (135307) от 26.11.2023
+
+The Thief River Band - Two Lane Solution (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Too Often (4:52)
+02. St. Christopher (3:36)
+03. What Remains (3:21)
+04. American Thorn (4:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB209EC076B17B3F6B2CEA63364B4C63401A8508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679519   (135305) от 26.11.2023
+
+Brianna Harness - This Too Shall Pass (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Kept it Movin (1:30)
+02. Change (2:29)
+03. Damned Not Condemned (3:26)
+04. Deepest Wealth (2:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA1C52005A37195D9D710CF7BA7543A68B272C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679530   (135293) от 26.11.2023
 
 Shanna Waterstown - Be with You (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -598,188 +774,6 @@ Herb Ellis / Ray Brown Sextet - Hot Tracks (1976) 1990, Concord Jazz [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D108E0A1C5FA67B766CF5A02C3818C8B5D727A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680404   (134275) от 29.11.2023
-
-Shakatak - Eyes of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Disco, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Gonna Getcha [00:04:37]
-02. Eyes of the World [00:05:13]
-03. Sunflowers [00:05:28]
-04. Love Will Take You There [00:05:12](   Читать дальше...   )Жанр: Smooth-Jazz, Disco, FunkПродолжительность: 01:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D646E331769DBF7DBBEF273B34BC817F9FBD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594260   (134227) от 25.12.2012
-
-Dan Berglund's - Tonbruket (2010) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Sad
- 02. Stethoscope
- 03. Sailor Waltz
- 04. Gi Hop
- 05. The Wind And The Leaves
- 06. Wolverine Hoods
- 07. Monstrous Colossos
- 08. Song For E
- 09. Cold Blooded Music
- 10. Waltz For MatildaЖанр: JazzПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594199   (134218) от 25.12.2012
-
-New Blues Underground - Whiskey Straight (2012) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop These Blues
-02. What I Say
-03. Whiskey Straight
-04. Slo-Burn
-05. No Matter
-06. Outta SoulЖанр: Blues-RockПродолжительность: 00:24:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680354   (134209) от 29.11.2023
-
-Cal Tjader - Several Shades Of Jade & Breeze From The East (1963) 1997, Verve [FLAC|Lossless|tracks + .cue] <Latin Jazz, Cool, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fakir [3:19]
-02. Cherry Blossoms [5:02]
-03. Borneo [4:14]
-04. Tokyo Blues [4:14](   Читать дальше...   )Жанр: Latin Jazz, Cool, World FusionПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F653F495FDAA75AB887055357DD2F88438C83609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680637   (133979) от 30.11.2023
-
-The Jack Wilson Trio - Live at the Pied Piper + 2 (1967) 2011, Interplay [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulin' (Introduction) [0:36]
-02. Impressions [5:16]
-03. Mercy, Mercy, Mercy [4:55]
-04. I'll Drown in My Own Tears [4:31](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505C2676BD7513721A5091BBF021A5F6D6A18D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680634   (133974) от 30.11.2023
-
-Dorothy Ashby - The Jazz Harpist (1956) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thou Swell [4:02]
-02. Stella by Starlight [3:10]
-03. Dancing on the Ceiling [7:31]
-04. Aeolian Groove [4:16](   Читать дальше...   )Жанр: Cool, Hard Bop, Mainstream JazzПродолжительность: 00:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E24E42F28CD6E678506524E32EBB428231B318B
 ```
 
 https://mybot314.ru/tekegram_catalog/

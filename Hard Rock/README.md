@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1858217   (1060124) от 09.03.2026
+
+Philip Shouse - Side 1 (2026) EP [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитарист ACCEPT Филип Шус (Philip Shouse), также много лет игравший в аккомпанементе у звезд рока, метала и кантри, выходит в свет прожекторов с дебютным сольным EP “Side 1”, который увидел свет 6 марта на лейбле Wild Kingdom. На этом релизе из пяти треков Шус записал весь ведущий вокал, большинство партий бэк-вокала, а также все гитары и бас, доказав, что он представляет (   Читать дальше...   )01. Run Away From You (03:07)
+02. The Naked Empress (02:36)
+03. It Gets Better (03:30)
+04. Won’t Let Go (Again) (04:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F596BBBD530336B0BFCC93A7FF6AECCA9F04174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857093   (1059383) от 04.03.2026
 
 Lash! - Crank It Up (1989) 2026 [MP3|320 Kbps] <Hard Rock>
@@ -719,35 +748,6 @@ Leaving Eden - Fable (2021) [MP3|320 Kbps] <Hard Rock, Male & Female Vocals>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9BBAE53306BC54FF660199690633CCF9D9054E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439835   (1039559) от 14.01.2021
-
-Voodoo Circle - Locked & Loaded (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flesh & Bone (04:01)
- 02. Wasting Time (05:47)
- 03. Magic Woman Chile (06:17)
- 04. Locked & Loaded (03:35)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F1E1769417E1A2FFC34A70B6FE7107670BA334
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 913667   (600426) от 01.07.2015
+
+CellRot - Interstellar Telepathy (2015) [MP3|320 кб/с]<Avant-garde Black Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600426.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Whoreable
+2. Failed Mutation
+3. Kinbaku Bound
+4. Disincarnate Goddess(   Читать дальше...   )Жанр: Avant-garde Black Metal, Industrial MetalПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999FB7DCDF52C77A70C4F04E4A6CEFA92C9D2DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914064   (600183) от 01.07.2015
 
 Thy Art Is Murder - 3 Albums, 2 EP (2007-2015) [MP3|167-175, 320 кб/с]<Technical Deathcore, Death Metal>
@@ -713,35 +742,6 @@ Hellshot - Sickening Society (2015) [MP3|320 кб/с]<Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC6D01989100CB3FDB37E5BA99AB9A711FB1ED39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550779   (591191) от 13.05.2022
-
-Visions Of Atlantis - Pirates (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pirates Will Return (6:08)
-02. Melancholy Angel (3:56)
-03. Master the Hurricane (7:18)
-04. Clocks (3:56)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB9D82D926549BAB595E1A33AD4706121AE92EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

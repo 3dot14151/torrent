@@ -1,3 +1,154 @@
+###  Публикация: 1765913   (101301) от 15.12.2024
+
+The LA Cowboys - Endless Summer (1993) Reissue, Remastered, 2024, Pride & Joy Music [FLAC|Lossless|image + .cue] <Pop Rock, AOR, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tokyo Woman (5:20)
+02. Endless Summer (4:59)
+03. Aubree's Melody (4:38)
+04. Say You Love Me (4:35)(   Читать дальше...   )Жанр: Pop Rock, AOR, Soft RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDD6CA8A8A46636CC02E4B118B6C4EA3B3BCF62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769695   (100617) от 29.12.2024
+
+Teach In - See The Sun (1977) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See The Sun (Remastered 2024)
+02. (Do You Wanna Play) My Rock And Roll Song (Remastered 2024)
+03. Our Story (Remastered 2024)
+04. Keep On Dancing (Remastered 2024)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0457A4A718E26296299CAA54EC9B3E6BB2BEC316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821879   (91219) от 04.10.2025
+
+Mireille Mathieu - Mon credo (Best Of) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mon crédo (2:51)
+02. Une histoire d'amour (Love Story) (3:00)
+03. Pardonne-moi ce caprice d'enfant (3:22)
+04. Pourquoi le monde est sans amour (2:53)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 03:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C532A8DF5505679ED3E74C05FED6E3C4FE05191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487577   (90517) от 24.04.2012
+
+Eros Ramazzotti - Eros Best Love Songs (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90517.jpg" />
+</div>
+
+
+###  Подробнее
+
+C 1984 года Eros Ramazzotti выпустил 11 студийных альбомов, один миньон, три сборника, три концертных альбома, а также 35 синглов, каждый из которых имели высокие места в чартах многих европейских стран, а также в Южной и Центральной Америке. Eros Ramazzotti продал больше 40 миллионов записей за свою 25-летнюю карьеру.01 - Stella Gemella
+02 - Più Bella Cosa
+03 - Quasi Amore
+04 - Il Mio Amore Per Te(   Читать дальше...   )Жанр: PopПродолжительность: 02:17:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478196   (86568) от 05.04.2012
+
+Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_86568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Is Your Paradise [3:29]
+02. Forever More [4:19]
+03. The Lady In Red [4:17]
+04. Missing You [4:07]
+05. Much More Than This [2:59]
+06. Fatal Hesitation [4:14]
+07. In Love Forever [4:03]
+08. So Beautiful [3:49]
+09. Almays On My Mind [3:24]
+10. Seperate Tables [3:39](   Читать дальше...   )Жанр: PopПродолжительность: 02:37:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477811   (86326) от 04.04.2012
 
 VA - Love Songs Top 100 Box Set 5CD (1995) [FLAC|Lossless]<Pop, Rock>
@@ -623,151 +774,6 @@ The Dark Tenor - 2 Albums (2014, 2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F94303AE8A8FA80E265F790E53AE16FC8004538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788342   (68537) от 30.03.2025
-
-Meghan Trainor - Title (2015) 10th Anniversary Edition, 2025, Epic Records [FLAC|Lossless|WEB-DL|tracks] <Europop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Part (Interlude) [00:00:24]
-02. All About That Bass [00:03:07]
-03. Dear Future Husband [00:03:04]
-04. Close Your Eyes [00:03:40](   Читать дальше...   )Жанр: Europop, Funk, SoulПродолжительность: 01:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009685962FE5CA7BBF572F24BF32E7323C83910E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791278   (67832) от 13.04.2025
-
-Mark Ambor - Rockwood (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rockwood [1:01]
-02 - Good To Be [2:28]
-03 - Academy Street [2:51]
-04 - Belong Together [2:29](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497E802897E487A5C3603D85544A8FAA3D92FBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793318   (67509) от 24.04.2025
-
-The Fleetwoods - Mr. Blue (1959) Expanded Edition, 2025, CAPITOL CATALOG MKT (C92)[FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confidential [00:02:21]
-02. The Three Caballeros [00:02:23]
-03. Raindrops, Teardrops [00:02:32]
-04. You Mean Everything To Me [00:02:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57308115841D5E6395C71269A4F7ACB1E861938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794173   (67330) от 28.04.2025
-
-VA - Dance Classics - Pop Edition Vol. 1-3 (2009-2010) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston - My Name Is Not Susan (Extended) (6:20)
-02. Terence Trent D'Arby - Dance Little Sister (Shep Pettibone Mix) (8:40)
-03. Robert Palmer - You Are In My System (Extended) (6:02)
-04. Dan Hartman - We Are The Young (Extended) (6:56)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, DanceПродолжительность: ~06:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC9B585811CD55D223B38E01C3DA75278692DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794427   (67256) от 29.04.2025
-
-Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry Me a River    [0:04:14.56]
-02. All of Me    [0:03:07.64]
-03. Georgia on My Mind    [0:03:08.17]
-04. Crazy Love    [0:03:31.22](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA379758BA7C64DB79BA58FF0A2584CE1954BA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

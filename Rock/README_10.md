@@ -1,3 +1,32 @@
+###  Публикация: 1361104   (957069) от 18.02.2020
+
+VA - Rock Love (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biffy Clyro - Many of Horror
+02. Bad Company - Feel like Makin' Love (2015 Remaster)
+03. Starship - Nothing's Gonna Stop Us Now
+04. Faith No More - Easy(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E343CC578AC4134E2DF1B2617DEE5611CCB71BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980580   (956165) от 29.01.2016
 
 Vinnie Moore - Aerial Visions (2015) Japanese Edition [OGG|463-511 кб/с] <Instrumental Hard'n'Heavy Rock, Guitar Virtuoso, Shred>
@@ -718,35 +747,6 @@ Breed 77 - Acoustic Rarities (2015) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1489A828F32313E5D5B22F8305CF6A7EE5A4DF28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364908   (933252) от 05.03.2020
-
-Robert Plant - Digging Deep (2020) Singles Collection [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Down One Side
-02. Like I’ve Never Been Gone
-03. Big Log
-04. In The Mood(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419B26D469790CEACC019D69B2DF4C99126D285D
 ```
 
 https://mybot314.ru/tekegram_catalog/

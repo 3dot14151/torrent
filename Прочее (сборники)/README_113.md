@@ -1,3 +1,32 @@
+###  Публикация: 1409890   (440873) от 19.09.2020
+
+VA - The Official UK Top 40 Singles Chart 18.09.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cardi B, Megan Thee Stallion - WAP
+02. 24kgoldn, Iann Dior - Mood
+03. Headie One, AJ Tracey, Stormzy - Ain't It Different
+04. Nathan Dawe - Lighter (feat. KSI)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5FE175A4E7C06A6643DF08D170187D4EE7915E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570673   (440657) от 18.08.2022
 
 VA - Whore House The House, Funk Disco Summer Jam (2022) [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Tech House>
@@ -776,35 +805,6 @@ VA - Funky Collector Nostalgie (2022) [MP3|320 Kbps] <Dance, Rhythm & Blues, Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5932E0CBB98673215B53D9F7613FC1715B5A026A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571381   (433947) от 21.08.2022
-
-VA - Disco Chance Real Time: Mashup (2022) [MP3|192-320 Kbps] <Dance, Club, R&B, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Rihanna Vs Joel Corry, Raye & David Guetta - We Found Love In Bed (Discosid String) (Clean)
-02. Bleu Clair vs. Village People - Ymca Vs. Disco Tool (Dion Dobbe Mashup)
-03. Dave Earl Vs Stonebridge & Therese - Put Eivissa High (Discosid Mashup)
-04. 22 Lockdown Vs Pickle - Never Gonna Catch You (Discosid String) (Clean)(   Читать дальше...   )Жанр: Dance, Club, R&B, Indie DanceПродолжительность: 02:09:59 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854181FB37E22D57A88EA94790F0CA0FC3092F76
 ```
 
 https://mybot314.ru/tekegram_catalog/

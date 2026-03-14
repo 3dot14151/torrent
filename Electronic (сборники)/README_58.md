@@ -1,3 +1,32 @@
+###  Публикация: 1511100   (789312) от 20.11.2021
+
+VA - Liquid Blue: Relax Space Mix (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789312.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bobryuko - Magic Fly
+002. Lenny Mac Dowell - Te Quero
+003. Daniela Beck - Georgia On My Mind
+004. Stargazer - Because(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5C60D33B1436CD455F342A85AFEECDD9CE2137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511090   (789307) от 20.11.2021
 
 VA - Synthwave Dream Collection (Vol.02) (2021) [MP3|320 Kbps] <Synthwave, Electronic>
@@ -713,35 +742,6 @@ VA - Techno Frozen (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87E17AF71B01BC9F66F24B1D282BE8B732831DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512284   (787465) от 24.11.2021
-
-VA - Beatport Deep House: Sound Pack #371 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787465.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Divas Of Color - One More Time
-002. Quantum Divas - All Be Free
-003. Allovers & Masaki Morii - Addicted
-004. Nto X Monolink - Beyond Control(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28BDBDF477348CB571D715709FFBB187E046D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

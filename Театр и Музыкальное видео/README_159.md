@@ -1,3 +1,214 @@
+###  Публикация: 1732216   (7796) от 15.08.2025
+
+Кино и Виктор Цой. Концерт в СКК Олимпийский (1990) DVBRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет запись одного из последних концертов Виктора Цоя и группы "Кино", состоявшегося 5 мая 1990 года в московском спорткомплексе "Олимпийский". Пройдёт три с половиной месяца, и 15 августа 1990 года, легендарный советский рок-музыкант погибнет на 35-м километре автодороги Р-126 "Слока-Талси" в Тукумском районе Латвии.01. Группа крови
+02. Песня без слов
+03. Звезда по имени Солнце
+04. Закрой за мной дверь(   Читать дальше...   )Жанр: рок, музыкальный, концерт, документальныйПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D5388F9860B07F22DABB7D65E963F5F0067FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812549   (7759) от 15.08.2025
+
+Роджер Уотерс - Это не учения - Концерт в Праге / Roger Waters: This Is Not a Drill - Live from Prague (2025) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первоначально записанный и снятый во время концерта Уотерса на арене O2 в Чехии 25 мая 2023 года, этот Blu-ray диск запечатлел широко известное живое выступление Уотерса, включающее такие культовые треки, как «Us & Them», «Comfortably Numb», «Wish You Were Here» и «Is This The Life We Really Want?». Кроме того, Уотерс исполняет свою новую песню «The Bar», получившую (   Читать дальше...   )Производство: Sony musicЖанр: RockРежиссер: Sean Evans, Roger WatersУчастники: Roger Waters, Amanda Belair, Shanay Barnes Johnson, Jon Carin, Gus Seyffert, Seamus Blake, Dave Kilminster, Robert Walter, Jonathan Wilson, Joey WaronkerПродолжительность: 02:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E420B45A5AC41AEDBA0D384C1F5AC9AF5E8306B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812728   (7516) от 16.08.2025
+
+Roger Waters: This Is Not a Drill - Live from Prague (2025) Blu-ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первоначально записанный и снятый во время концерта Уотерса на арене O2 в Чехии 25 мая 2023 года, этот Blu-ray диск запечатлел широко известное живое выступление Уотерса, включающее такие культовые треки, как «Us & Them», «Comfortably Numb», «Wish You Were Here» и «Is This The Life We Really Want?». Кроме того, Уотерс исполняет свою новую песню «The Bar», получившую (   Читать дальше...   )Производство: Sony musicЖанр: RockРежиссер: Sean Evans, Roger WatersУчастники: Roger Waters, Amanda Belair, Shanay Barnes Johnson, Jon Carin, Gus Seyffert, Seamus Blake, Dave Kilminster, Robert Walter, Jonathan Wilson, Joey WaronkerПродолжительность: 02:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD7CA2FCE7E0ED21717FD76554E1C6EB2A304B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812836   (7509) от 16.08.2025
+
+KiiiKiii - Dancing Alone (2025) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: KpopПродолжительность: 00:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A10C75BCA635315E48078E3A2BF24B2B40A44CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812882   (7480) от 16.08.2025
+
+Billie - Domino - Butterfly effect (2024) WEBRip [H.265/2160p] [60fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: JpopПродолжительность: 00:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE06BC7899447E1E60F0EBFD63B4E2275534711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812810   (7453) от 16.08.2025
+
+NewJeans - Attention (Performance) (2022) WEBRip [H.265/2160p] [60fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: KpopПродолжительность: 00:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:851E22A593097DD0B077146B49FCC53CE2391AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812826   (7434) от 16.08.2025
+
+HeeJin (ARTMS) - Algorithm (2023) WEBRip [H.265/2160p] [60fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: KpopПродолжительность: 00:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0CC34264F01B59116051E426F3CBB47CFBE05FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812798   (7433) от 16.08.2025
+
+STAYC - I Want It (On the Spot) (2025) WEBRip [H.265/2160p] [60fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: KpopПродолжительность: 00:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2FDBC0E3CC77839345F53E927EBBBE813FCEF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971524   (7401) от 17.08.2025
 
 Номер 13 (Номер 13 или женитьба Пигдена) / Out of order (2001) DVDRip (2 действия) (МХТ им. А.П.Чехова)

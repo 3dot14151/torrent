@@ -1,3 +1,90 @@
+###  Публикация: 1598027   (164329) от 17.12.2022
+
+Kenny Drew - The Classic Albums (1953 - 1961) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164329.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Yesterdays [5:20]
+02. Stella by Starlight [2:28]
+03. Gloria [3:22](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 05:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8837B140D209F6A21F024C247FA0DAC28289E768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432516   (164287) от 17.12.2020
+
+Jamie Cullum - The Pianoman At Christmas (2020) Island Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Jazz-Pop, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Christmas [3:15]
+02. Beautiful, Altogether [3:31]
+03. Hang Your Lights [4:57]
+04. The Jolly Fat Man [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Jazz-Pop, ChristmasПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423F01D478FDF5FF7A8BA5C59DE89D1D7CCB4503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346451   (163928) от 19.12.2019
+
+Ray Bryant - Four Classic Albums 1956 - 1962 (2016) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163928.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cubano Chant [3:07]
+02. Off Shore [3:56]
+03. Well You Needn't [3:19](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21232CA3201CA58ADC9370141A32E426983571CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517158   (163559) от 14.12.2021
 
 Louis Armstrong - The Complete Louis Armstrong Decca Sessions (1935 - 1946) 7CD, 2009, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
@@ -659,93 +746,6 @@ Some supergroups arise out of pure calculation - others out of sheer coincidence
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4B7E5DDA065A5E861F5757BE1B255D4FC0D7FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433433   (161425) от 20.12.2020
-
-Matt Belsante - White Christmas (2008) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bell Rock (3:24)
-02. Sleigh Ride (3:15)
-03. White Christmas (4:11)
-04. Santa Claus Is Coming to Town (3:28)(   Читать дальше...   )Жанр: Vocal Jazz, ChristmasПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EAA9FCC77D60F08424B1A2398BCDA823ACC0A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433252   (161417) от 20.12.2020
-
-Dinah Washington - 3 Essential Albums (1954 - 1956) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161417.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - For Those In Love:
-01. I Get A Kick Out Of You [6:20]
-02. Blue Gardenia [5:20]
-03. Easy Living [5:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D43849AAD13E248A155BAFDE1860002702898FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598893   (161404) от 21.12.2022
-
-Peter Weiss - Conversation With Six-String People (2022) JazzSick Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boplicity [5:43]
-02. La Strada dei Colori [5:04]
-03. Mala Suerte [4:08]
-04. Happy or Sad [5:13](   Читать дальше...   )Жанр: Post-Bop, Jazz Fusion, Guitar JazzПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BED57F6E43005847D97144863AA7DA84CC1EA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

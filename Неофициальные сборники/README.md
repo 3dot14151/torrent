@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1858433   (1060485) от 10.03.2026
+
+Dave Stewart - Compilation (1990-2025) [MP3|320 Kbps] <Pop rock, Soft rock, New wave, Miscellaneous>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Single Night (& Martina McBride) ❂ Lucky Numbers 2013
+02. Tragedy Street ❂ Greetings From The Gutter 1994
+03. All Messed Up (& Martina Mcbride) ❂ The Blackbird Diaries 2011
+04. Happy To Be Here ❂ SlyFi 1998(   Читать дальше...   )Жанр: Pop rock, Soft rock, New wave, MiscellaneousПродолжительность: 06:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9A6C073B520BF52E393A5258DFB06C84ADBAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858524   (1060421) от 11.03.2026
+
+VA - Deep Night Deep House 8 (2026) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GeoM, Dimitris Athanasiou - Holding on - Dimitris Athanasiou Remix (6:00)
+02. Dimitris Athanasiou - Around You (5:32)
+03. Cj Borika - Lost in Dream (4:58)
+04. HazyHero - Better You Than Me (5:00)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A860011E2FD190C90610DB83DA3BC6CF488D8D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858061   (1060202) от 08.03.2026
+
+VA - Russian Hits 2024 (2024) [MP3|320 Kbps] <Pop, hip-hop, electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060202.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:16]. 001-Ислам Итляшев - Танцы
+[2:28]. 002-H1gh - Ю Май Харт, Ю Май Соул
+[3:15]. 003-Enrasta - Ахуехала
+[2:23]. 004-Isupov & Asafy - По газам(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 09:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C190E47711A0DA3FB3C249B1024857773C19C8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857909   (1060048) от 07.03.2026
 
 VA - No Name Compilation Part 70 Remixes (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Electronic, Remix>
@@ -36,7 +123,7 @@ VA - Узоры (mixed by Dj V) (2026) [MP3|320 Kbps] <Organic House, Melodic Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060043.jpg" />
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060043.jpg" />
 </div>
 
 
@@ -86,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857568   (1059995) от 
+###  Публикация: 1857568   (1059995) от 08.03.2026
 
 Ai - No name compilation part 68 S. Yesenin covers (2026) [MP3|320 Kbps] <Other>
 
@@ -659,93 +746,6 @@ VA - Russian Hits 2025 (2025) [MP3|320 Kbps] <Pop, hip-hop, electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:800D8EBC6EAD310B0839F9CD989592EAEC15FA82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855557   (1058263) от 23.02.2026
-
-VA - No name compilation part 59 Assorted (2026) [MP3|320 Kbps] <Electronic, Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ai - Fading Echos
-02 - Saidjan - Stay With Me
-03 - Riltim - Dusk Till Dawn
-04 - Delih - Ocean Pulse(   Читать дальше...   )Жанр: Electronic, Pop, Dance, OtherПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54744983DF63F0EABFA8D40EE85D57872688D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855611   (1058219) от 24.02.2026
-
-VA - Lounge And Jazz Background Music (2024) [MP3|320 Kbps] <Lounge, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058219.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mandy Mars - Rewind
-002. Chillaxing Jazz Kollektion - Memories Of Us
-003. Kool&Klean - Amazing
-004. Landayn - Bright And Breezy(   Читать дальше...   )Жанр: Lounge, JazzПродолжительность: 08:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6E7D269B2A5532FB1443191D141FB6540F7235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855226   (1058129) от 23.02.2026
-
-Romantic Dreams - Favorites Collection Part 11 (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bright Future Calling
-02 - Invisible Eye
-03 - Broken Pieces, Mended Heart
-04 - Who Believe in Your Dreams(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0DED066F99960399E15F648A4C9977D1B6B5AC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

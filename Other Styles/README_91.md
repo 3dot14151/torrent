@@ -1,3 +1,154 @@
+###  Публикация: 1044051   (565362) от 20.08.2016
+
+Thomas Lemmer - Pure (2016) [MP3|320 Kbps] <Ambient, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Beginning (4:25)
+02. The Infinite (5:43)
+03. Ah! (4:38)
+04. Thomas Lemmer, Tina Sona - Lost (3:40)(   Читать дальше...   )Жанр: Ambient, ElectronicПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5021C5648F5B1ACBC16869C95E9906902488BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044338   (565341) от 20.08.2016
+
+Rachel Laven - Love & Luccheses (2016) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finish Line (3:39)
+02. Each Other's Shoes (4:12)
+03. Do You Dare (4:11)
+04. Love & Luccheses (3:36)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365EF09242FCC3DCA2EB80629C2051F13C437F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044333   (565319) от 20.08.2016
+
+Katee Kross - Beautiful Dreamer (2016) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here & Now (2:29)
+02. Beautiful Dreamer (3:58)
+03. Game of Life (3:20)
+04. Quiet Down (3:29)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BE07D9A2DA62C8B2561ABB4B34EC2F786535C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044088   (564895) от 20.08.2016
+
+FAUN - Midgard (2016) Deluxe Edition [MP3|320 Kbps] <Folk, Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midgard Prolog
+02. Federkleid
+03. Sonnenreigen (Lughnasad)
+04. Alba II Intro(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 01:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8237C27FA9D84FA5188450C287AE16BADAE9064D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529934   (564594) от 01.08.2012
+
+Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [MP3|320 кб/с]<OST Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564594.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lolita (2:22)
+ 2. Love in the Morning (3:38)
+ 3. I'm in the Mood for Love (2:57)
+ 4. Amor (2:58)
+ 5. Take Me to Bed (2:53)
+ 6. Lolita on Humbert's Lap (3:36)
+ 7. Tain't What You Do (It's the Way That You Do It) (2:57)
+ 8. Lolita in My Arms (1:38)
+ 9. Requiescant (2:13)
+ 10. Civilization (Bongo, Bongo, Bongo) (3:20)(   Читать дальше...   )Жанр: OST ScoreПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0A0C41614EA60C659374A3B6B25F6371E262BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923497   (564488) от 31.07.2015
 
 VA - Simply Chillout (2005) 4CD[FLAC|image+.cue]<Electronic, Ambient, Pop, Rock, Classica>
@@ -616,151 +767,6 @@ VA - Latino 2017 - Essential Summer Hits  [MP3|320 Kbps] <Latin Music, Salsa, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20D7D74C78C0712C405FDB620D5CAFB38FB38081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153073   (559710) от 26.07.2017
-
-VA - 40 Latin Hits 2017 (Reggaeton, Electro Latino & Mambo) [MP3|320 Kbps] <Latin Music>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yero Company - A Tu Manera (Original Mix) (feat. Leo G)
-02. Latin Workout - Despacito (Workout Mix)
-03. Compota Y Su Ricura - Timbakutiri (Original Mix)
-04. Dj Gago - Amante O Marido (Original Mix)(   Читать дальше...   )Жанр: Latin MusicПродолжительность: 02:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1353088FC29F205F1680D0DDFC2FB58ABDF4564F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304124   (559644) от 28.05.2019
-
-VA - Country Car Music (2019) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559644.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Travis Tritt – Start the Car (04:29)
-2. Cowboy Troy – Hook ‘Em Horns (Single Version) (02:49)
-3. Tamra Rosanes – On the Road Again (03:12)
-4. Michael Ray – Drivin’ All Night (03:44)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93C522E7E16A43DBAC102B6D1C1C476ADF8F58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235548   (558676) от 12.07.2018
-
-John Galanakis - Doom Vanguard (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Cinematic, Epic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558676.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Destroyers of the Worlds  5:22
-2. War of Blood and Fire  4:50
-3. Beneath the Deepest Core  7:30
-4. The Forging  7:54(   Читать дальше...   )Жанр: Soundtrack, Cinematic, EpicПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C230F6157C353EEE5B156EC68C7FA5B2FAD4124E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045262   (558036) от 24.08.2016
-
-Casey Weston - Find the Moon (2013) [MP3|320 Kbps] <Country Pop, Vocal>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy
-02. Close to Breaking
-03. Heart Don't Fail Me Now
-04. Back to the Start(   Читать дальше...   )Жанр: Country Pop, VocalПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC9BCF3F7045CD4028F6A2A76BCEA51212D70F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045539   (557945) от 24.08.2016
-
-Laura Sullivan - The Modern Romantic: New Relaxing Classical Piano Music (2016) [FLAC|Lossless|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds of Magic [00:04:13]
-02. Moonlight Romance [00:04:21]
-03. Timeless [00:03:47]
-04. Come Home [00:06:26](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2D77EC91C690C8E6A9231CEB6AFFC700F1775B
 ```
 
 https://mybot314.ru/tekegram_catalog/

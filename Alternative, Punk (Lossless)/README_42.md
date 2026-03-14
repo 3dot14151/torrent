@@ -1,3 +1,90 @@
+###  Публикация: 950896   (365983) от 28.10.2015
+
+Born Of Osiris - Soul Sphere (2015) [FLAC|Lossless]<Progressive Metalcore,Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Other Half of Me
+02. Throw Me in the Jungle
+03. Free Fall
+04. Illuminate(   Читать дальше...   )Тип издания: АльбомЖанр: Progressive Metalcore,ElectronicПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB900BD1D3588E9BD706E48B0F8D395075F0C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950908   (365855) от 28.10.2015
+
+Coldrain - Vena (2015) [FLAC|tracks+.cue]<Alternative Rock,Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vena
+02. Wrong
+03. Divine
+04. Gone(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock,Post-HardcoreПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716C44625BEE9ACF0110B95DA9AF384132CA275E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416536   (365388) от 17.10.2020
+
+TIRDUS - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disconnection [00:03:58]
+02. Sinner [00:04:21]
+03. Tom Cruise [00:03:07]
+04. Autumn Spirit [00:03:17](   Читать дальше...   )Жанр: Alternative, Progressive MetalПродолжительность: 2 CD, 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88373A8BB88E7033ADE2F14C9CD12684DA539525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255629   (364367) от 18.10.2018
 
 La Dispute - Somewhere At The Bottom Of The River Between Vega And Altair (2009) [FLAC|Lossless|tracks + .cue] <Rock, Hardcore, Punk>
@@ -658,93 +745,6 @@ The Black Angels - Wilderness of Mirrors (2022) [FLAC|Lossless|tracks + .cue] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:909EC80C639AFE2D9BC86C93C16E7E20B0F3B775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071563   (356834) от 11.11.2016
-
-Billy Idol - Essential (2011) Compilation [FLAC|Lossless|tracks + .cue] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebel Yell [04:45]
-02. Hot in the City [03:34]
-03. White Wedding (Part 1) [04:11]
-04. Eyes Without a Face [04:57](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31BDE1BF53035ED4C4FF05CF18801A40C9762A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952341   (356203) от 01.11.2015
-
-The Stranglers - All Live And All Of The Night (1987) [FLAC|image+.cue]<Punk, Post-punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-No More Heroes 3:48
-02-Was It You? 3:41
-03-Down In The Sewer 6:26
-04-Always The Sun 4:29(   Читать дальше...   )Жанр: Punk, Post-punkПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D182F1D92D8705F74B54841BF242C2F85AF84E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952317   (356196) от 01.11.2015
-
-The Stranglers - Dreamtime (1986) [FLAC|image+.cue]<Punk, Post-punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Always The Sun 4:52
- 02-Dreamtime 3:45
-03-Was It You? 3:39
-04-You'll Always Reap What You Sow 5:14(   Читать дальше...   )Жанр: Punk, Post-punkПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A177C158AC64EA6A528A29B8A71262939CC571A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

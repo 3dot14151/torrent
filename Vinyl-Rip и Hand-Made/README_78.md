@@ -1,3 +1,119 @@
+###  Публикация: 1748136   (104573) от 08.09.2024
+
+Leprous - Studio Albums (10 releases) (2004-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Leprous — норвежская группа, играющая в стиле прогрессивный метал. Основана в городе Нутодден, Норвегия, в 2001 году.2004 - Silent Waters (demo)
+2006 - Aeolia (demo)
+2009 - Tall Poppy Syndrome
+2011 - Bilateral(   Читать дальше...   )Жанр: Progressive Rock/MetalПродолжительность: 09:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF4F9BB3042A0A3FB0992FEEB4C1C35CABC92A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822934   (104439) от 09.10.2025
+
+Cult Of Luna - Studio Albums (9 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Atmospheric Sludge/Post-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cult of Luna — шведская пост-метал-группа из Умео, основана в 1998 году.2001 - Cult of Luna
+2003 - The Beyond
+2004 - Salvation
+2006 - Somewhere Along the Highway(   Читать дальше...   )Жанр: Atmospheric Sludge/Post-MetalПродолжительность: 12:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5164CF6CE2F3EAC46A61DA2AE6BA526A0E3BE482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749118   (104340) от 14.09.2024
+
+Ektomorf - Studio Albums (16 releases) (1996-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu-Metal, Groove Metal/Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ektomorf — венгерская грув-метал группа, была основана в 1994 году братьями Золтаном (вокал, гитара) и Чабой Фаркашами (бас-гитара).1996 - Hangok
+1998 - Ektomorf
+2000 - Kalyi Jag
+2002 - I Scream Up To The Sky(   Читать дальше...   )Жанр: Nu-Metal, Groove Metal, HardcoreПродолжительность: 12:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9399131CA75F4822A1B9D3560095426391D536E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750135   (104251) от 18.09.2024
+
+Miseration - Studio Albums (4 releases) (2006-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Technical Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miseration — шведская дэт-метал-группа, организованная в 2006-м году. Коллектив является одним из многих проектов Яни Стефановича и бывшего вокалиста Scar Symmetry Кристиана Альвестама.2006 - Your Demons - Their Angels
+2009 - The Mirroring Shadow
+2012 - Tragedy Has Spoken
+2022 - Black Miracles And Dark WondersЖанр: Melodic/Technical Death MetalПродолжительность: 02:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D98CA2F86CF4B4186141BB5BE9EA92C99D17C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750309   (104209) от 20.09.2024
 
 It Dies Today - Studio Albums (3 releases) (2004-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
@@ -620,122 +736,6 @@ Mors Subita - мелодик-дэт-метал группа из Оулу, Фи�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE70EF7545436266A0D654A92DB5B4F033CB2F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763411   (102808) от 01.12.2024
-
-Elvis Costello - Spike (1989) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Alternative Rock, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 ...This Town...
-A2 Let Him Dangle
-A3 Deep Dark Truthful Mirror(   Читать дальше...   )Жанр: Alternative Rock, Rock & RollПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9669553188DE403F62B7E93EDADA183970C98ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764142   (102774) от 05.12.2024
-
-Intronaut - Studio Albums (7 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Post-Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Intronaut — американская прогрессив-метал-группа из города Лос-Анджелес, штат Калифорния.
-Их стиль можно охарактеризовать как прогрессив-метал с элементами психоделии, дэт-метала, джаза, индийских, африканских и афро-латинских ритмов.2006 - Null (EP)
-2006 - Void
-2008 - Prehistoricisms
-2010 - Valley Of Smoke(   Читать дальше...   )Жанр: Progressive/Post-MetalПродолжительность: 05:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24516BABB9C0A37BD1719C80AFEAA642EC8848D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764304   (102721) от 06.12.2024
-
-My Silent Wake - Studio Albums (13 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal; Dark Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102721.jpg" />
-</div>
-
-
-###  Подробнее
-
-My Silent Wake - группа из Северного Сомерсета, Великобритания. Образована в 2005 году.2006 - Shadow Of Sorrow
-2007 - The Anatomy Of Melancholy
-2008 - A Garland Of TearsЖанр: Gothic/Death/Doom Metal; Dark AmbientПродолжительность: 13:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF6D4F5C3B0363AE2BAAC6A8813793B441936A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764859   (101472) от 09.12.2024
-
-Eldritch - Studio Albums (13 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eldritch - итальянская пауэр-прог-метал группа из Ливорно, образованная в 1991 году и характеризующаяся слегка «современным» звучанием, включающим некоторые элементы ню-метала и электронные влияния.1995 - Seeds Of Rage
-1997 - Headquake
-1998 - El Nino
-2001 - ReverseЖанр: Progressive/Power MetalПродолжительность: 13:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88204BB6E6E8EB862906DE4A2B7DD19544CB3739
 ```
 
 https://mybot314.ru/tekegram_catalog/

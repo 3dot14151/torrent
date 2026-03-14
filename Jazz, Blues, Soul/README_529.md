@@ -1,3 +1,177 @@
+###  Публикация: 1756052   (103557) от 19.10.2024
+
+VA - Roaring Halloween (Electro Swing 3) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolfgang Löhr - Everybody (Electro Swing Mix) (3:40)
+02. The Soulmate Project - The Addams Family (Electro Swing Mix) (2:54)
+03. Glenn Gatsby - Somebodys Watching Me (Electro Swing Mix) (2:41)
+04. Ashley Slater - Ghostbusters (Spooky Swing Mix) (3:19)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB036290BC0AFBB7C6E343BE3D5B8EC34C59911E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755675   (103554) от 19.10.2024
+
+Sarah Vaughan - Great Women of Song (2023) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misty [3:02]
+02. Lullaby of Birdland [4:03]
+03. They Can't Take That Away from Me [2:44]
+04. Embraceable You [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C6BB4BD4C1F08DB7CD8459039141A0E626648D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755680   (103534) от 19.10.2024
+
+Jef Neve - That Old Feeling (2023) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Old Feeling (feat. Madeleine Peyroux) [6:38]
+02. Something So Right (feat. Sam Merrick) [5:29]
+03. Here's to Life (feat. Trijntje Oosterhuis) [7:48]
+04. Here Comes the Rain Again (feat. Sam Sparro) [4:49](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream Jazz, Contemporary JazzПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3418DD262FDB6F1644E96A250F0E7649094C6FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755575   (103529) от 19.10.2024
+
+Milt Jackson & Ray Charles - Soul Brothers (1958) 2012, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Brothers [9:35]
+02. How Long Blues [9:16]
+03. Cosmic Ray [5:25]
+04. Blue Funk [8:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15616A215DD18959A72B6F7EE055B8C94228D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756053   (103527) от 19.10.2024
+
+Big Creek Slim - Going to Germany (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Feed the Devil on My Shoulder (5:13)
+02. I'm Leaving You Baby (8:13)
+03. Milk Man Blues (6:32)
+04. She's Nineteen Years Old (8:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD1E37779C1BF144B6919B07F13210B14A60CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756056   (103525) от 19.10.2024
+
+Rosie's Smokehouse Deluxe - Welcome To The Smokehouse (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Smokehouse (3:53)
+02. Please, Please Me (4:15)
+03. Walkin' (3:14)
+04. Run Like the Wind (5:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DC0B7C642BBEC65E6859098727E84D54A216A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755678   (103513) от 19.10.2024
 
 Eddie Henderson - Collective Portrait (2015) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -571,180 +745,6 @@ VA - Jazz Guitar Ultimate Collection, , Vol.1 (1947 - 1960) 10CD, 2024, Fermata 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A104260354D1AD1417258B020828CDD1463B4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759794   (103236) от 10.11.2024
-
-Spyro Gyra - Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Dance
-02. Heartbeat
-03. Shaker Song
-04. Song for Lorraine(   Читать дальше...   )Жанр: Fusion, Smooth JazzПродолжительность: 01:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732F9AADD5EB5CF74E98B2CD20BC8A2124AA6DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760095   (103196) от 12.11.2024
-
-Art Blakey & The Jazz Messengers - The Complete 3 Blind Mice (1961, 1962) 2CD, 2022, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mosaic [12:31]
-02. Ping Pong [12:25]
-03. The Promised Land [13:14]
-04. Arabia [11:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204C255DD582E7E691B3A5380152547026F1E29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759948   (103193) от 12.11.2024
-
-Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrysalis Records [MP3|320 Kbps] <Soul, Soulful House, Deep House>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thinking About Your Love (Touchdown 2 Mix) [00:04:53]
-02. Outstanding (Macattack Mix) [00:08:04]
-03. Best Of You (12" Mix) [00:04:54]
-04. Piece By Piece (Absolute Mix) [00:06:20](   Читать дальше...   )Жанр: Soul, Soulful House, Deep HouseПродолжительность: 2 CD, 02:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E7935B9053894CAE4CD72FCFE7E5A325198BF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760261   (103185) от 13.11.2024
-
-Ken Colyer - Boston Church Service (1972) 1998, GHB Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Streets of the City [6:28]
-02. Just a Little While to Stay Here [7:38]
-03. Old Rugged Cross [8:54]
-04. Precious Lord, Lead Me On [6:54](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AEF5EDF550A8AA3E50968E3DDFD7F8449011DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760372   (103184) от 13.11.2024
-
-Matt Charles - Highland Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicken Shack (3:25)
-02. Shake Your Hips (3:15)
-03. Who Do You Think You Are? (3:42)
-04. What's Shakin' (2:07)(   Читать дальше...   )Жанр: Blues HarmonicaПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE13E878D971DDC79FFBC61D27A58C520084010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760260   (103183) от 13.11.2024
-
-Kenny Barron - 1+1+1 (1986) BlackHawk Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man I Love [5:15]
-02. United Blues [3:38]
-03. Prelude to a Kiss [5:15]
-04. C Jam Blues [4:25](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12AE4BD29F6D8E934714DA7B3504865D4FDEB42
 ```
 
 https://mybot314.ru/tekegram_catalog/

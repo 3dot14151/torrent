@@ -1,3 +1,90 @@
+###  Публикация: 1277455   (785413) от 20.01.2019
+
+Frank Sinatra, Dean Martin, Sammy Davis Jr. - Eee-O 11: The Best Of The Rat Pack (2001) [FLAC|Lossless|image + .cue] <Jazz, Pop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Sinatra - I'm Gonna Live Till I Die
+02. Dean Martin - Ain't That A Kick In The Head
+03. Sammy Davis Jr. - Too Close For Comfort
+04. Frank Sinatra & Sammy Davis Jr. - Me And My Shadow(   Читать дальше...   )Жанр: Jazz, Pop, SwingПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BAB6F7073510A5C2265E28C3CC0822B8FA2EC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388884   (785170) от 08.06.2020
+
+Josh Berman & His Gang - There Now (2012) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Just Around the Corner [7:09]
+02. Sugar [5:06]
+03. One Train May Hide Another [6:42]
+04. Cloudy [6:10](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D58EA54C34B7825A8AAC8B8F3939DF3D64E6F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388857   (785169) от 08.06.2020
+
+Nat Adderley Quintet - Mercy, Mercy, Mercy (1997) Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spontaneous Combustion [5:56]
+02. Hummin' [7:52]
+03. On the Sunny Side of the Street [3:25]
+04. What Is This Thing Called Love? [6:03](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332F2D82DB7E88DEA29BE4A5364B656858A953F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388847   (785168) от 08.06.2020
 
 Alan Pasqua - My New Old Friend (2005) Cryptogramophone [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -658,93 +745,6 @@ Eddie Jefferson - Letters From Home (1962) 1987, Original Jazz Classics [APE|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8B94CD9452E14FAD71A05A3CC2D9DFB5DB16AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205499   (783548) от 10.02.2018
-
-The Three Sounds - Moods (1960) 1987, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love for Sale [06:38]
-02. Things Ain't What They Used To Be [08:55]
-03. On Green Dolphin Street [05:37]
-04. Loose Walk [04:56](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AA43B50F40DA44EB9EEEDAC86A9504DEE1BE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390191   (783419) от 14.06.2020
-
-Dave Brubeck - Three Classic Albums Plus: Third Set 1956 - 1960 (2010) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783419.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Alice in Wonderland [9:31]
-02. Give a Little Whistle [7:37]
-03. Heigh-Ho [3:58](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 02:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466DE3A94476855FC1FFC08505D6BAC9141AE229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205757   (783256) от 11.02.2018
-
-Marcus Roberts - Prayer For Peace (1991) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer for Peace [09:51]
-02. Let It Snow, Let It Snow, Let It Snow [03:43]
-03. Silver Bells [04:01]
-04. The Christmas Song [03:13](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760B44AA0DB9B142CC22E413A89219C1A3C3D48F
 ```
 
 https://mybot314.ru/tekegram_catalog/

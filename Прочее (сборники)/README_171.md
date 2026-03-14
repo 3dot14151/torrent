@@ -1,3 +1,32 @@
+###  Публикация: 1691334   (123199) от 13.01.2024
+
+VA - Mega Dance Hits Collection (1990-2001) [MP3|320 кб/с] <Eurodance, Euro-House, Pop, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123199.jpg" />
+</div>
+
+
+###  Подробнее
+
+0001. Mr. John - It's Not Too Late (Extended Club Version)
+0002. King Of Paradise - Give Me Your Love (My Desire Mix)
+0003. Space Master - World Of Confusion (Extended Mix)
+0004. DJ Bobo - Respect Yourself (B+B Remix)(   Читать дальше...   )Жанр: Eurodance, euro-house, pop, technoПродолжительность: 465:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14329F610744D7CFA4E296740B526D00046D2B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692391   (122578) от 16.01.2024
 
 VA - Music News vol.331 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Music News vol.344 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C969B93724DF90B3D5A98D61B227D04FE0596496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702277   (115925) от 24.02.2024
-
-VA - Ukrainian Songs (2024) [MP3|320 Kbps] <Pop, Folk Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Квітка Цісик - Я піду в далекі гори (6:18)
-02. Іван Ганзера - Bella ciao. (2:03)
-03. Степан Гіга - Друзі мої (4:55)
-04. Гурт Made In Ukraine - Смуглянка (4:21)(   Читать дальше...   )Жанр: Pop, Folk RockПродолжительность: 02:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E837A22835E5691D1DBD9BEAC8D686604ABF75
 ```
 
 https://mybot314.ru/tekegram_catalog/

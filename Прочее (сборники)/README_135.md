@@ -1,3 +1,32 @@
+###  Публикация: 1079112   (295143) от 03.12.2016
+
+VA - Дискотека Казанова: Старые Песни По Новому Vol.8 (2016) [MP3|320 Kbps] <Eurodance, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsedriver & DJ Fait - A Neverending Dream (DJ Fait R 5:24
+02. Ma.Bra. - Rhythm Is a Dancer (Club Mix) 5:05
+03. Indochine - L'aventurier (Basslouder Booty 6:00
+04. Klubbingman vs Beatrix Delgado - Love Message 2k16 (DJ Gollum f 5:01(   Читать дальше...   )Жанр: Eurodance, Club, DanceПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688A94DEC3B91F38A14089A28EBBEBEFCC4E5FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185398   (293596) от 21.11.2017
 
 VA - Italo Disco Tropical (2017) [MP3|320 Kbps] <Disco, Pop, Remix>
@@ -712,35 +741,6 @@ DJ Snake ft Selena Gomez, Ozuna & Cardi B - Taki Taki (2018) Remix [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C02D35555CCD4E45E102F532DAA848BD8BB8857C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263387   (287099) от 19.11.2018
-
-VA - Дискотека 2018 Synthwave Dance Music от NNNB [MP3|320 Kbps] <Synthwave  Synth Pop  Retrosynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AM 1984 - Mansion Ghost (4:04)
-02. Digital Emotion - Full Control (6:05)
-03. Scandroid - Thriller (5:52)
-04. Powernerd - Flame (feat Dana Jean Phoenix) (4:00)(   Читать дальше...   )Жанр: Synthwave  Synth Pop  RetrosynthПродолжительность: 11:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF0BDAD96AE6FD2D65D9B38C1903DB0E406E14A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1021254   (741556) от 28.05.2016
+
+Проекты - VideoHive - Corporate Promo & Slideshow [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corporate Promo & Slideshow - симпатичная корпоративная видео-презентация в стиле слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C948240C6287AC58F1C92B3245ED6E7BA81101C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020656   (741551) от 28.05.2016
 
 Проекты - VideoHive - Agency - Real Estate Promo [AEP]
@@ -655,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32AB71F492706582D2976925012A4364A58DC7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283313   (740028) от 16.02.2019
-
-Проекты - VideoHive - Inside Dollar Photo Titles - 20176849 [AEP]
-
->>Проекты
->>Разное (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добавьте немного наличных денег в свое видео или презентацию.
-Шаблон легко использовать. В комплекте есть готовый проект с изображением Джорджа Вашингтона. Или используйте проект, где можно добавить любое фото или видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C653E0307B72DC5D2715218DE6DDA7AE22791B
 ```
 
 https://mybot314.ru/tekegram_catalog/

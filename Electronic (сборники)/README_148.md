@@ -1,3 +1,32 @@
+###  Публикация: 948075   (416135) от 18.10.2015
+
+VA - The Nights of Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baghira - Garden Lullaby
+02. Angelina Astle - Love Inversion
+03. The Best Of Chill Out Lounge - Underwater - Blue Paradise Mix
+04. The Entelechia Society - Living Canvas(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9288791D4084BB51354E59398D7650EC50FD0301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947894   (416134) от 18.10.2015
 
 VA - Top 20 October Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -722,35 +751,6 @@ VA - Vocal Deep House Vol.9 (Compiled by Zebyte) (2015) [MP3|320 кб/с]<House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87C3B5356AC6676D1B2F580D99C07F718CE45940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252161   (411164) от 04.10.2018
-
-VA - Sound Of A Feeling (2018) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411164.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ciland - Red Eyes
-002. Nebula - Inner Voice
-003. Nick The Lot - Sound Of A Feeling
-004. Dankle - Big Sound (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 10:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5CA2EFB7A70127E8F28E9A8DCEC96712BF03024
 ```
 
 https://mybot314.ru/tekegram_catalog/

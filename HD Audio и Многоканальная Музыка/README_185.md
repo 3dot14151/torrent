@@ -1,3 +1,148 @@
+###  Публикация: 1784803   (69500) от 13.03.2025
+
+T.G. Copperfield - All In Your Head (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mule (3:34)
+02.  I'm On My Way (3:01)
+03.  Not Your Game (3:30)
+04.  Have Mercy On Me (2:58)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719F9030C949C4ABCEC9F6E0C1FA6C5D1D005ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784765   (69495) от 13.03.2025
+
+Visions Of Atlantis - Armada LIVE Over Europe (2025) (Live) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To Those Who Choose to Fight (LIVE at Lyon) [2:20]
+02 - The Land of the Free (LIVE at Lyon) [4:42]
+03 - Monsters (LIVE at Nuremberg) [3:49]
+04 - Heroes of the Dawn (LIVE at Paris) [4:42](   Читать дальше...   )Жанр: Symphonic Metal, Gothic Metal, Power MetalПродолжительность: 01:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A9BA338EE08FDD7643A1E1AF943BAD58F757A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784796   (69491) от 13.03.2025
+
+David Rose - A Good Catch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A Good Catch (2:42)
+02.  You Might Be the One (2:24)
+03.  As a Parrot Might (3:48)
+04.  Back Pocket (2:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1487E3BE68544C3898D7E6A709177B1AD68A292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784932   (69490) от 13.03.2025
+
+The Night Flight Orchestra - Give Us The Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Final Call (Intro) (0:33)
+02.  Stratus (5:06)
+03.  Shooting Velvet (3:58)
+04.  Like The Beating Of A Heart (4:45)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE60080D3C72D36DD5DBFEDF528367F40A072D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784917   (69488) от 13.03.2025
+
+Heldmaschine - Eiszeit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neue Deutsche Härte, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meine Welt (4:15)
+02. Schlag mich (3:57)
+03. Raus (3:53)
+04. Schachmatt (4:28)(   Читать дальше...   )Жанр: Neue Deutsche Härte, Industrial MetalПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612B4012937718F884855EA995C966893D034E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784793   (69486) от 13.03.2025
 
 Belleville Birds - Merle alors (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -601,151 +746,6 @@ A4 Capture Of Fire(   Читать дальше...   )Жанр: Death, Doom Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7C4217F949E17F13F253737210D4124E05CB6FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785202   (69354) от 15.03.2025
-
-Jon Anderson - Perpetual Change (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yours Is No Disgrace (Live) [00:09:56]
-02. Perpetual Change (Live) [00:09:31]
-03. Close To The Edge (Live) [00:18:23]
-04. Heart Of The Sunrise (Live) [00:11:43](   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AAAC46320638E53AF00E081617FB95B6CEE730E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785328   (69342) от 15.03.2025
-
-Karen Cheryl - Etonnamment Romantique  Best Of (2025) Remastered [FLAC 24/96|Lossless|WEB-DL|tracks] <Disco, Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La marche des machos (04:17)
-02. Chante pour nous Mama (03:17)
-03. Les nouveaux romantiques (03:23)
-04. Oh ! Cheri Cheri... (03:31)(   Читать дальше...   )Жанр: Disco, Electronic, PopПродолжительность: 03:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF41D47F9DD122827C62176FDA7D4D592D7EEC95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785206   (69341) от 15.03.2025
-
-Manntra - Titans (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks] <Industrial Metal, Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ceremony [0:57]
-02 - Titans [2:53]
-03 - Teuta [3:33]
-04 - The Heart Of The Storm [4:24](   Читать дальше...   )Жанр: Industrial Metal, Folk MetalПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C1991D820A8A03B4BE8F621CAAE3F58D65095E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784963   (69338) от 15.03.2025
-
-The Hot Rod Gang - Can U Dig It? (40th Anniversary) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Rock & Roll, Rockabilly, Rhythm & Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can U Dig It? [00:04:00]
-02. Two Hearts [00:04:04]
-03. The Man He Used To be [00:03:42]
-04. Boogie Woogie Country Girl [00:03:10](   Читать дальше...   )Жанр: Rock, Rock & Roll, Rockabilly, Rhythm & BluesПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF00FC673F8F1E8C17A6FD61F1C046333C733EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785412   (69334) от 15.03.2025
-
-Streetlight - Night Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Long-Distance Runner (3:57)
-02.  Captured In The Night (3:40)
-03.  Sleep Walk (3:50)
-04.  Learn To Love Again (5:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688CB34508C75185FB54705BE54BE744A1C52671
 ```
 
 https://mybot314.ru/tekegram_catalog/

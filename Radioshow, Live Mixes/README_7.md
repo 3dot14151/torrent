@@ -1,3 +1,61 @@
+###  Публикация: 1527961   (735392) от 31.01.2022
+
+KAAZE - Best Of 2021 Mashups (2021-12-27) [MP3|320 Kbps] <Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.KAAZE vs. Miley Cyrus – Midnight Runners (KAAZE Mashup)
+02.KAAZE – Eye Of The Legends (KAAZE Mashup)
+03.KAAZE vs. Robert Miles & Ariana Grande – Humming Last Childer (KAAZE Mashup)
+04.KAAZE vs Meduza & Shouse – Dark Loose Tonight (KAAZE Mashup)(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF60379D0D03601E4B1E090A86C2F305558C1D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528196   (735391) от 31.01.2022
+
+Marc Benjamin - Nicky Romero & Friends Presents NYE (2021-12-31) [MP3|320 Kbps] <Electro Pop, Big Room, Future House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Eilish - Your Power (Marc Benjamin Remix)
+02. Tiësto, KAROL G - Don’t Be Shy
+03. Dua Lipa vs. SAINt JHN & Imanbek vs. Marc Benjamin & Malarkey - Hallucinate vs. Roses vs. I Got 5 On It (Marc Benjamin Mashup)
+04. Marc Benjamin feat. NEVRMIND - Waiting For You (Future Disco Remix)(   Читать дальше...   )Жанр: Electro Pop, Big Room, Future HouseПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85EC1EC6B28F9823B92152135526609A040434F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511539   (734003) от 03.02.2022
 
 Goa Gil - Mahashivaratri (2002) Mixed Live In Goa [MP3|~245 Kbps (V0)] <Psy-Trance>
@@ -687,64 +745,6 @@ VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2019) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34DA8DF159AA40483C247EE56D357C92E3BD1451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287748   (697769) от 10.03.2019
-
-VA - ASOT 900 Pre Party @ Poema RAW, Utrecht (2019-02-23) [MP3|256-320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697769.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. JD Love B2B Will Renville @ Elevation Audio Pres. ASOT 900 Pre-Party, Club Poema Utrecht, Netherlands 2019-02-23 (00:47:30):
-
-01. Sasha - Xpander (Intro)
-02. Terk Dawn - Barent Blue (Mongoto Remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5F9BBB340D84B09A5015CA2D83FCD046FBB811A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287811   (697762) от 10.03.2019
-
-VA - ASOT 900 After-Party @ Poema RAW, Utrecht (2019-02-24) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697762.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Sixth Sense Live @ ASOT900 After Party, Poema RAW 24/02/19:
-01. Ace Da Brain - Time
-02. Chakra - Home (Above & Beyond Remix)
-03. Blank & Jones - Nightclubbing (Wippenberg remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 04:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040D8136EE01A8D864DF91AEA09EDE46375FB31C
 ```
 
 https://mybot314.ru/tekegram_catalog/

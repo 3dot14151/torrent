@@ -1,3 +1,61 @@
+###  Публикация: 1753473   (41391) от 05.10.2024
+
+VA - Суперхиты Дискотеки 90-х Vol.3 (2011) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Unlimited - No Limit
+02. U96 - Love Religion
+03. E-Type - This Is The Way
+04. Dr. Alban - It's My Life(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F559C3F02796829EF6970DA88B03494C6488008A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753663   (41250) от 06.10.2024
+
+VA - Суперхиты Дискотеки 90-х Vol.4 (2012) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace of Base - Happy Nation
+02. Corona - The Rhythm Of The Night
+03. Mr. President - Up'n Away
+04. Cappella - U Got 2 let the Music(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB1FFEF7B38E800C7EDA59C9C1FAA67C868E115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753822   (41194) от 07.10.2024
 
 VA - Суперхиты Дискотеки 90-х Vol.5 (2013) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
@@ -684,64 +742,6 @@ VA - 10s Hits - Best 10s Music (2024) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47AB2DCDA4FF638C225D0450B04BA8BE24C3A6B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766333   (33807) от 18.12.2024
-
-VA - 10s - 100 Best (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33807.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Linkin Park - The Emptiness Machine - (03:10)
- 002. Teddy Swims - Lose Control - (03:31)
- 003. Benson Boone - Beautiful Things (Acoustic) - (03:21)
- 004. Rose - APT. - (02:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5530720ABD636DDACE8215DC46C27DAE3BE6CAA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771250   (31876) от 05.01.2025
-
-Ірина Білик (Ирина Билык) - 13 Альбомов (1990-2017) 14CD [ MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. А мне бы в небо
-03. Греческая
-04. Разреши(   Читать дальше...   )Жанр: PopПродолжительность: 12:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21794CDE56BC6283DBAD06784E4DCEA8A4574B3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

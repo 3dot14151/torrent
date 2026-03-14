@@ -1,3 +1,177 @@
+###  Публикация: 1706176   (113711) от 11.03.2024
+
+El Jadida Milano - Symphony Flavours Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Auralis (5:48)
+02. Harem's Veils (5:16)
+03. Lonely Lullaby (4:42)
+04. Boreal Sands (4:40)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1206EC32EE35E566DA176A05DA9022DF4B871DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706004   (113707) от 11.03.2024
+
+VA - Supreme Chill Lounge Instrumentals to Relax (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Together We Fly (4:08)
+02. Chillaxing Jazz Kollektion - Evening Sun (5:25)
+03. Kool&Klean - Dream (3:58)
+04. Chillaxonic - So Far, But so Near (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16FB71FD206456A86A00B7AA0BF362E36717378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706005   (113705) от 11.03.2024
+
+VA - Supreme Jazz Chill Lounge Smooth Relaxing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Blue Water (4:00)
+02. Love Suggestions - Life Is Love (4:44)
+03. Chillaxonic - Violet Twilight (4:34)
+04. Kool&Klean - Dream (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C308A4028D9B0EBE351898951D10ABF6BFFA802F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706013   (113690) от 11.03.2024
+
+George Shearing Trio & Stephane Grappelli - The Reunion (1976) 1987, MPS Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Coming Virginia [3:06]
+02. Time After Time [4:48]
+03. La chanson de rue [3:59]
+04. Too Marvelous for Words [4:08](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780FBE1B23B51C6785F5372161BC0FC620F504D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706198   (113667) от 12.03.2024
+
+Steve Baxter - Crusade Blvd (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crusade Blvd (4:17)
+02. Scam Call (4:22)
+03. Hands Together (4:42)
+04. Old School Jam (feat. Ellis Hall) (3:34)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83126295DF31F39058FB2F9C693C0EDB5C9DF154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706352   (113659) от 12.03.2024
+
+Sonny Stitt - Constellation (1971) 1992, Muse Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Constellation [5:03]
+02. (I Don't Stand) A Ghost of a Chance with You [4:50]
+03. Webb City [3:33]
+04. By Accident [6:41](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129D2E74DED8D247CB419C4380D2140F14B942EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706192   (113653) от 12.03.2024
 
 Peela - Notbad (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
@@ -571,180 +745,6 @@ Ben Hemming - Darkness Before Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90FB3741AD7829475D65C42B169A316D4EB374CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706485   (113535) от 13.03.2024
-
-Sonny Stitt - Plays Jimmy Giuffre Arrangements (1959) 2010, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New York Blues [3:58]
-02. Giuff [2:59]
-03. Laura [4:51]
-04. Sonny Boy [3:59](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7562228F1C3B455ABC22C4DCE7A13C4FAEAA36C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706560   (113534) от 13.03.2024
-
-The Red Holloway / Clark Terry Sextet - Locksmith Blues (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Top [4:32]
-02. Happiness Is a Thing Called Joe [4:49]
-03. Hitting the Road Again [7:24]
-04. Come Sunday [4:30](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC83AC408E078B60ABFFB6C7E2EC495C34E7940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706479   (113532) от 13.03.2024
-
-Sonny Stitt - No Greater Love (1981) 2001, TKO Magnum Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonny's Blues [4:54]
-02. Old Folks [4:06]
-03. Lax [6:28]
-04. Yesterdays [4:35](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8792120C77A41B998AF36070C120F0BAA562B8B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706482   (113531) от 13.03.2024
-
-Gene Harris Quartet - Another Night In London (1996) 2010, Resonance Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Georgia Brown [9:29]
-02. Meditation [8:39]
-03. That's All [8:01]
-04. Lady Be Good [10:06](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Piano JazzПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C515C50A50851CFF122EC0EC85C116340947D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706585   (113527) от 13.03.2024
-
-Andy Lindquist - Unravel the Gravel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carbon Heart (3:06)
-02. Unravel the Gravel (3:52)
-03. Sunny Soul Power (3:09)
-04. Its Been a Brick (3:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3B7F541A3C76808E1741D89C3E5EB2C38E5083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706764   (113517) от 14.03.2024
-
-Sexy Lovers Music Collection, Smooth Jazz Sax Instrumentals - Saxophone Intimate Moments: Sexy Jazz for Erotic Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saxual Healing (Sex Saxophone & Piano) (3:49)
-02. Saxual Jazz Lounge (Sexy Sax & Piano) (3:36)
-03. Now Again (Sensual Instrumental Background) (2:37)
-04. Feel Like Making Love (3:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4460256A49F7C3AFB6AA660160795FB9F0AB825A
 ```
 
 https://mybot314.ru/tekegram_catalog/

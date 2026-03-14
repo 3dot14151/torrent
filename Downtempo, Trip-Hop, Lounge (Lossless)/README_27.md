@@ -1,3 +1,61 @@
+###  Публикация: 1436240   (139530) от 30.12.2020
+
+VA - Relax Culture, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kick Bong - Tranquility Vibes (5:08)
+02. Earth Connect - Blues Out (5:38)
+03. Potlatch - Wonder (5:28)
+04. Eguana - Cozy Courtyard (4:34)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 01:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F057D3993BD8457CDA78B524002E083190778E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272949   (139359) от 30.12.2018
+
+VA - Ibiza Chillout Series (1999-2007) Ayia Napa [FLAC|Lossless|tracks+.cue] <Downtempo, Dub, Chillout, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139359.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Jens Buchert - Event Horizon (04:31)
+ 02. Esteban Garcia Junior - Deep Blue (04:08)
+ 03. Buro - Verano Suave (05:58)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Downtempo/Dub/AmbientПродолжительность: 01:06:00+01:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EF21F8B45BA8B0E23809BDD5A75FED2C05AF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680452   (134266) от 29.11.2023
 
 Skysurfer - Chill to the Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
@@ -684,63 +742,6 @@ V.A. - Chill Out Cafe 60 Essentials Classics (25 Years Celebration) (2024) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA65035E8432CC5F0C5559A83ADDBA3FBDDD41B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691422   (123281) от 12.01.2024
-
-Blank & Jones - #WhatWeDoAtNight 4 EP 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Night
-02. The Beach
-03. Fall in LoveЖанр: Electronic, Downtempo, Chill outПродолжительность: 00:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828ED11740B7AC6A47748CC8AA4E3CF7046A10F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691427   (123276) от 12.01.2024
-
-Schwarz & Funk - Diamonds of Lounge, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Nu Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mondays
-02. Nebu
-03. Intake (Bossa Mix)
-04. Jewels(   Читать дальше...   )Жанр: Electronic, Lounge, Nu JazzПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C2AEF8474C2F76B160EF207CCDB918906AFFE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

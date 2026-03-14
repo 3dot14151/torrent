@@ -1,3 +1,117 @@
+###  Публикация: 1548438   (598017) от 03.05.2022
+
+Witch Cake - Not If I See You First (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Garotte (00:02:37)
+02 - Magma (00:04:06)
+03 - We'll Have Much More Fun as Ghosts (00:03:30)
+04 - Apatheia (00:02:12)(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81636F389088E31A17CF52317135B4BF350DE7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039097   (597807) от 31.07.2016
+
+Gary Hoey - Utopia (2010) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utopia    03:31
+02. Walk Away    03:05
+03. Reminds Me of You    03:42
+04. Inevitable    03:13(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9532F38CA88C811F4F631848ED0E7C45CC777D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038823   (597804) от 31.07.2016
+
+Vinnie Moore - Defying Gravity (2001) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Defying Gravity    05:05
+02. Out And Beyond    06:44
+03. Last Road Home    04:26
+04. Alexander The Great    05:04(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D991D3231740CEF5404DECBC62FE9CDE34C6E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039105   (597632) от 31.07.2016
+
+Vixen - Rev It Up (1990) [WavPack|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rev It Up . . . . . . . .5:00
+ 02.Жанр: Hard'n'HeavyПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3C1011E6CFF88AFD02770E2D754EE2FF6026B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039260   (597624) от 31.07.2016
 
 Train - Does Led Zeppelin II (2016) [FLAC|Lossless|tracks] <Hard Rock, Blues Rock>
@@ -635,122 +749,6 @@ Romulox - The Three Kings (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E8753153D47D706C875B3284FCF9BB335FA57B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917406   (589517) от 11.07.2015
-
-Deep Purple - Deep Purple (1969) K2HD, Limited Edition /2014, Victor/ [FLAC|image + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing Shadows [5:35]
-02. Blind [5:26]
-03. Lalena [5:06]
-04. Fault Line [1:46](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE2780FFFB7A2848BE5C201BB8CE176FE251638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917290   (589493) от 11.07.2015
-
-Cinderella - The Best Of: The Millennium Collection (2000) [FLAC|image + .cue]<Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody's Fool [4:49]
-02. Shake Me [3:44]
-03. Somebody Save Me [3:15]
-04. Gypsy Road [3:55](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F4F3341CBB455D77328B5ECA225A9B8CBE014A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551744   (589429) от 17.05.2022
-
-Sidewinder - Vines (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sirens (00:03:11)
-02 - Mississippi Fire (00:03:56)
-03 - Badlands (00:03:09)
-04 - 99mph (00:04:24)(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFE0A467E0CBBD320B809B5DF1B39060E792E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552313   (587708) от 20.05.2022
-
-CoreLeoni - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Life Begin Tonight (4:35)
-02. Purple Dynamite (3:33)
-03. Guilty Under Pressure (3:42)
-04. Sometimes (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF169A075857817CC0999801C557A57B3AF896B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

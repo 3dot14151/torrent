@@ -1,3 +1,32 @@
+###  Публикация: 993578   (895914) от 05.03.2016
+
+Opus 5 - Progression (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snow Child (Donald Edwards)
+02. Fear Of Rooming (Seamus Blake)
+03. Climbing (Alex Sipiagin)
+04. Walk A Waltz (Boris Kozlov)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38CB8AE254060A408DCAD7DEBD40C388DC25626B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993613   (895911) от 05.03.2016
 
 Sam Morrison - Dune (1976) Remaster, 2015, Universal[FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
@@ -716,35 +745,6 @@ Charlie Shavers - The Most Intimate (1955) Remaster, 2014, Solid Records[FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDA24586614BF297231F959FE620EF080928652D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994142   (891662) от 07.03.2016
-
-Freddie Hubbard - Keystone Bop: Sunday Night (1981) 1994, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Birdlike [15:23]
- 02.The Littlest One Of All [10:26]
- 03.The Intrepid Fox [16:03]
- 04.Sky Dive [17:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786BF435CFBC6938FB903397A09ED95736889F4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

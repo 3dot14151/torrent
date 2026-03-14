@@ -1,3 +1,32 @@
+###  Публикация: 1028700   (688862) от 23.06.2016
+
+VA - Vocal Trance Charts (2016) [MP3|232~277 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren feat. Sarah Вecourcy -  Face Of Summer 6:39
+02. Aly & Fila feat. Ever Burn -  It Love  (James Dymond Remix) 8:01
+03. John Oallaghan & Sarah Howells -  Find Yourself (Standerwick Remix) 5:40
+04. Talla 2XLC & Binary Finary feat. Sylvia Tosun -  Believe In Everything (Original Mix) 6:53(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973C504FB6467F397B39BFDAD7EA83F620912663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028714   (688855) от 23.06.2016
 
 VA - Dream Music for Deep Sleep (2016) [MP3|320 кб/с] <Downtempo, Chillout, Ambient>
@@ -714,35 +743,6 @@ Kobra Force - The Future Is Love (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:836A8D92242519663649DF42C7293C17D67DA723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535193   (686429) от 06.03.2022
-
-VA - Essential Synthwave (2022) [MP3|320 Kbps] <Electronic, Syntwave, Synthspace>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка современной футуристической электроники предлагается вашему вниманию и ждет своей оценки. Идеи представленных треков имеют под собой социально-футурологическую и научно-фантастическую направленность и способны вызывать в воображении слушателя сюрреалистические образы.001. Stockholm Youth - Fallin'
-002. Anchorsong - Plum Rain
-003. The Boomtown Rats - Man Like Me
-004. Benfika - Reflejo(   Читать дальше...   )Жанр: Electronic, Syntwave, SynthspaceПродолжительность: 09:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D119B9B1E1A54A03CBEC1CE35CCE0E5012B240A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

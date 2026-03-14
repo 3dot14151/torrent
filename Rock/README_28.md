@@ -1,3 +1,61 @@
+###  Публикация: 640329   (741496) от 28.05.2016
+
+The Alan Parsons Project - Discography (1976-2016) 69 Albums [MP3|192-320 кб/с]<Art rock, Progressive rock, Pop rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741496.jpg" />
+</div>
+
+
+###  Подробнее
+
+1976 - Tales Of Mystery And Imagination
+1977 - I Robot
+1978 - Pyramid
+1979 - Eve(   Читать дальше...   )Жанр: Art rock, Progressive rock, Pop rockПродолжительность: 01:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7908F27E37068E8260724486268900C507BD158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282969   (741158) от 15.02.2019
+
+Eberhard Schoener - 2 Albums (1978) (Bass Guitar, Vocals - Sting) [MP3|320 Kbps] <Electronic, Modern Classical, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий композитор, дирижер, аранжировщик и клавишник. Его деятельность объединяет множество стилей и форматов. Предлагаемые альбомы выпущены совместно с известными исполнителями и музыкантами Sting и Andy Summers.01. Trans-AM (3:27)
+02. Why Don't You Answer (4:35)
+03. Only The Wind (4:10)
+04. Powerslide (1:38)(   Читать дальше...   )Жанр: Electronic, Modern Classical, Prog RockПродолжительность: 01:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F26059BF54767A1DD0C7238E4CB168D09E72025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283120   (741153) от 15.02.2019
 
 Noel & The Red Wedge - Peer Pressure (1982) LP [MP3|320 Kbps] <Electronic, Pop Rock, New Wave>
@@ -691,64 +749,6 @@ Green Seagull - Cloud Cover (2020) [MP3|320 Kbps] <Rock, Psychedelic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD0B29DD77CDB1F2FA0EC14FE2135B25E4670261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218288   (724890) от 08.04.2018
-
-VA - Rock Legends: The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Rock, Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc: 1
-01. Rainbow - I Surrender
-02. Thin Lizzy - The Boys Are Back In Town
-03. Kiss - Rock And Roll All Nite(   Читать дальше...   )Жанр: Rock, Classic Rock, Hard RockПродолжительность: 06:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F46917F7A8F874C586350A168B8D08C960E855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023636   (724655) от 05.06.2016
-
-Billy Satellite - Billy Satellite 1 (1984) Re-release, 2000, ATM Records [MP3|320 кб/с] <Rock, Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satisfy Me    03:41
-02. Last Call    03:30
-03. Do Ya?    03:48
-04. I Wanna Go Back    03:52(   Читать дальше...   )Жанр: Rock, Melodic Rock, AORПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E819E05F5F1EA70B274C12754F058AED0B47A8E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

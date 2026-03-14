@@ -1,3 +1,32 @@
+###  Публикация: 1614436   (1038605) от 22.02.2023
+
+Jeremy Pelt - Men Of Honor (2010) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backroad [6:47]
+02. Milo Hayward [4:52]
+03. Brooklyn Bound [5:40]
+04. Danny Mack [6:57](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035639A5F3CD7F71A97FA5E9811765978A7DDEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440706   (1038528) от 18.01.2021
 
 Maria Pia De Vito & Burnoguala Large Vocal Ensemble - Moresche e altre invenzioni (2018) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz, Renaissance>
@@ -713,35 +742,6 @@ John Medeski - A Different Time (2013) Okeh [FLAC|Lossless|tracks + .cue] <Avant
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2F835777B528FFA24187660F586DC150418F04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616129   (1036741) от 01.03.2023
-
-Dinah Washington - The Fats Waller Songbook (1957) 1992, EmArcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christopher Columbus [2:51]
-02. T'Ain't Nobody's Biz-ness If I Do [3:29]
-03. Jitterbug Waltz [1:50]
-04. Someone's Rocking My Dreamboat [2:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E9C4513B465058E65CD1CEF65996420320DB79
 ```
 
 https://mybot314.ru/tekegram_catalog/

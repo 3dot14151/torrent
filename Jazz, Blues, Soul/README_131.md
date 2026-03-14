@@ -1,3 +1,177 @@
+###  Публикация: 1277071   (787033) от 19.01.2019
+
+Goldmeister-Alles Gold (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sie ist weg
+02.Hamma!
+03.Mit Dir
+04.Dickes B(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F0127DAD07D82B0CD3F20315582AE13CD9E493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277092   (786981) от 19.01.2019
+
+King King ‎ - Standing In The Shadows (2013) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than I Can Take (3:56)
+02. Taken What's Mine (5:20)
+03. A Long History Of Love (7:18)
+04. Jealousy (4:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B3F5894AE16E91117A427F9D3499C126380E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388247   (786896) от 05.06.2020
+
+Dizzy Gillespie - A Night in Tunisia 1989 (1991) First Choice [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manteca [6:33]
+02. Con Alma [5:42]
+03. Lorraine [6:53]
+04. Brother 'K' [7:11](   Читать дальше...   )Жанр: BopПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B43B486FE034A51AA2DC7255DD0C28F7562FFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388249   (786893) от 05.06.2020
+
+Dizzy Gillespie - Dee Gee Days: The Savoy Sessions 1951 - 1952 (1985) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tin Tin Deo [2:41]
+02. Birk's Works [3:07]
+03. We Love to Boogie [2:54]
+04. Lady Be Good [2:43](   Читать дальше...   )Жанр: BopПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438C22A3E1BC0AB427CCE7FEBF2B7BD28F08BD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388238   (786888) от 05.06.2020
+
+Wynton Kelly - Kelly At Midnite (1960) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kelly At Midnite - альбом джазового пианиста Уинтона Келли записанный в 1960 году и выпущенный под лейблом Vee Jay Records.01. Temperance (7:32)
+02. Weird Lullaby (7:14)
+03. On Stage (5:16)
+04. Skatin' (5:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34182399106EE5423FE4576505DEBAC7C052B0D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388459   (786766) от 06.06.2020
+
+21st Century Swing Band - Millennium Swing (1999) MCG Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bennie's from Heaven [4:16]
+02. It Don't Mean a Thing If It Ain't Got That Swing [4:03]
+03. Steppin' Out with My Baby [2:33]
+04. I'm Gonna Move [3:26](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3A601C3F3268E62CC61CF2E26A62B3CA999EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388454   (786765) от 06.06.2020
 
 Joe Henderson - Milestone Profiles 1967 - 1975 (2006) 2CD, Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -571,180 +745,6 @@ Valery Ponomarev - Profile (1991) Reservoir [FLAC|Lossless|image + .cue] <Hard B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0DCC720FF029BD171648B507E808B8FF93300CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123722   (786212) от 09.04.2017
-
-Devon Allman's Honeytribe - Space Age Blues (2010) [FLAC|Lossless|image + .cue] <Blues Rock, Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Could Get Dangerous  (04:14) 
-02. Space Age Blues  (05:16) 
-03. Salvation  (04:41) 
-04. Sir Duke  (03:47) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A90D9A04195C8503B8C7578B32F6C8565C0A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123993   (786209) от 09.04.2017
-
-Devon Allman - Turquoise (2013) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Left Home  (04:05) 
-02. Don't Set Me Free  (03:40) 
-03. Time Machine  (03:39) 
-04. Stop Draggin My Heart Around  (04:46) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAEBF3B87F48F5C428A4D0007144D232AB6445F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124047   (786207) от 09.04.2017
-
-Jonathan Butler - Do You Love Me? (1997) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Song for Elizabeth (04:10)
-02 Do You Love Me? (04:34)
-03 The Other Side of the World (04:33)
-04 Life After You (04:43)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181B7B5FB2962E8E117B0DF59893C2227ADBB624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123870   (786202) от 09.04.2017
-
-Blind 'n' Dangerous - In Flames (1995) 2014, Bnd Music Co. [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gangster (5:26)
-02. Skippin' On The Edge (3:37)
-03. Splinter (4:53)
-04. I Can't Help It (5:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC9640FB906DB8632345CDB8D47068E5EF0F41B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123816   (786197) от 09.04.2017
-
-Wes Jeans - Hands On (2000) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me  (03:22) 
-02. Ridin' In The Moonlight  (03:42) 
-03. Now You Look At Me  (02:24) 
-04. Use What You Got  (06:18) (   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787B6F2251D06CA48DD2B887671AEDB9DC6A7D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123947   (786193) от 09.04.2017
-
-Karolina Smietana - Illusion (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something
-02. Skylark
-03. Within
-04. É Preciso Perdoar(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375E34BF88EFE21659EB7F38BDF6DD8427DD29CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

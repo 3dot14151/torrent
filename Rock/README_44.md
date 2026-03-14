@@ -1,3 +1,61 @@
+###  Публикация: 922584   (568347) от 29.07.2015
+
+The Nice - Les Genies Du Rock - Rondo (1993) [MP3|320 кб/с]<Prog Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rondo (7:54)
+02.  she belongs to me (11:52)
+03.  Azrael revisited (5:55)
+04.  The thoughts of emerlist Davjack (4:14)(   Читать дальше...   )Жанр: Prog Rock, Psychedelic RockПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7935ABBB4C7623939128FE97051545BDCB2FCD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922205   (568225) от 29.07.2015
+
+Iggy Pop - Les Genies Du Rock - Live (1993) [MP3|320 кб/с]<Punk, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Got A Right (3:10)
+02.  Some Weird Sin (3:36)
+03.  Real Wild Child (3:13)
+04.  Five Foot One (4:07)(   Читать дальше...   )Жанр: Punk, Garage RockПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B529712547938B7FB5291F03033EB7D39C7B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922559   (568208) от 29.07.2015
 
 VA - Best Of Rock - Les Genies du Rock (1995) [MP3|320 кб/с]<Rock,Pop>
@@ -693,64 +751,6 @@ Chrome - Addictions (2019) [MP3|320 kbps] <Progressive Rock, Female Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C69CE0F70EC882FF3D0FEC72A0190948D71168F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306322   (555831) от 03.06.2019
-
-The Dead Deads - The Dead Shall Dance: Live (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (Live)
-02. Space (Live)
-03. Murder Ballad (Live)
-04. Ghosts (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395E7385024425A06800CCB915D431522937AC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306341   (555673) от 04.06.2019
-
-Mono Inc. - Symphonic: Live (2019) 2CD [MP3|320 kbps] <Gothic Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555673.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 | Welcome to Hell | 04:04
-02 | Kein Weg zu Weit | 04:42
-03 | Long Live Death | 04:23(   Читать дальше...   )Жанр: Gothic Rock, Alternative RockПродолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0227E944461578E0999241DE9AD84929559CDB3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

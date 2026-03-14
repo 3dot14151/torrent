@@ -1,3 +1,32 @@
+###  Публикация: 1451525   (1028241) от 03.03.2021
+
+VA - Melodic Synthpop Release (2021) [MP3|320 Kbps] <Synthpop, Electropop, Pop Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это музыкальное направление, ежегодно дарящее миру новых звезд, без которых невозможно представить себе современную эстраду. Особенность этой музыки это эксперимент и отсутствие строгих рамок и шаблонов. Порой это чувственные и трепетные композиции, порой ритмичные и танцевальные.001. Golin - Play Odds
+002. Elektrotechnika - Olivia
+003. Mondtraeume - Free
+004. Stephen Paul Taylor - Gdmf(   Читать дальше...   )Жанр: Synthpop, Electropop, Pop DanceПродолжительность: 11:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6CD5BE6D5C182A23BF96BAB04FE4E9D0C675B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451524   (1028239) от 03.03.2021
 
 VA - House Garden Music: Deep Session (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -716,35 +745,6 @@ VA - The Bliss Sound (2021) [MP3|320 Kbps] <Synthpop, Electro Disco, Electropop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B116CCF3C3D04076E78D65D68B388129C929CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455701   (1025492) от 20.03.2021
-
-VA - Neverending Sunrise (2021) [MP3|320 Kbps] <Progressive, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите поднять себе настроение? Это легко сделать с помощью любимой музыки! Мега-сборник, состоящий из 100 хитов зарубежных исполнителей, подарит Вам более десяти часов самой популярной музыки ушедшего зимнего сезона. Наслаждайтесь музыкой и окунитесь в тёплые воспоминания приятных моментов зимних каникул!001. Miss Monique - City Nights, City Lights
-002. Patrick Medina - Don't Try To Be A Copy
-003. Mino Safy - Vegvisir
-004. Fabio Massano - Vamous(   Читать дальше...   )Жанр: Progressive, Vocal HouseПродолжительность: 12:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8723578DC36643851515DDA971414D88C1BF1F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

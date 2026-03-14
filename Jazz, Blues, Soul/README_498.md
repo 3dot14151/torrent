@@ -1,3 +1,177 @@
+###  Публикация: 1710798   (112567) от 28.03.2024
+
+Anita O'Day - Big Band At Carnegie Hall (1985) 2009, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus One [3:45]
+02. Honeysuckle Rose [3:49]
+03. Sweet Georgia Brown [5:11]
+04. Four Brothers/P Town [4:10](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A28FF6B0466BE1FE38F6DA54EBD5CC6A51FC48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710801   (112566) от 28.03.2024
+
+Jimmy Rosenberg - The One And Only (1998) Hot Club Records [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes [3:25]
+02. Coquette [3:33]
+03. I'm in the Mood for Love [7:13]
+04. It Don't Mean a Thing [3:08](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DFD54935687B3977F39A37FF958EFB7F8961B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710905   (112554) от 28.03.2024
+
+Jeff Beck Group - Jeff Beck Group (1972) Reissue, 1989, Epic [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112554.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ice Cream Cakes - 5:40
+2. Glad All Over (A. Schroeder, R. Bennett, S. Tepper) - 2:59
+3. Tonight I'll Be Staying Here With You (B. Dylan) - 4:57
+4. Sugar Cane (S. Cropper) - 4:06(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B621083E084801C6B61ECBFA901132C1B2E99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711272   (112531) от 29.03.2024
+
+Wynton Marsalis - Sweet Release & Ghost Story (1999) Columbia [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream, Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Release: Home: Beyond This Rage [7:51]
+02. Sweet Release: Church: Renewing Vows [7:19]
+03. Sweet Release: Church Basement: Party [5:28]
+04. Sweet Release: Street: Make Room for Me [4:24](   Читать дальше...   )Жанр: Modern Creative, Third Stream, Modern Big BandПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922B882014D8E69E9A8F531A7DFDD78931A5AAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711345   (112530) от 29.03.2024
+
+Norman Brown - It Hits Different (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anything
+02. Too Forever
+03. Chicken Shack
+04. It Hits Different(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FE9604A33B6055D3FAB881B51F5A7619F08E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711376   (112451) от 30.03.2024
+
+Anita O'Day - Essential O'Day: Basin Street West (1964) 2007, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Out Of Town [2:58]
+02. S'Wonderful/They Can't Take That Away From Me [4:07]
+03. Just The Way You Look Tonight [5:41]
+04. Honeysuckle Rose [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCD3B83A262E0F63D4F13A2697835C2B96CDA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371280   (112436) от 31.03.2024
 
 Mop Mop - Lunar Love (2016) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz>
@@ -571,180 +745,6 @@ Richie Kamuca & Bill Holman - West Coast Jazz In Hi Fi (1959) 1990, Original Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8775A5EE8070D237F8540F61CAA65FA524A4253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713897   (111778) от 07.04.2024
-
-Tal Farlow - The Guitar Artistry of Tal Farlow (1959) 2021, Universal [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Foggy Day [3:23]
-02. The Man in My Life [4:48]
-03. Sweet Lorraine [5:28]
-04. Wess Side [4:39](   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81134C621F7366629F259E2F5F099482CFC9A3BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714304   (111775) от 08.04.2024
-
-Melody Gardot - Sayonara Meu Amor (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Chanson de vieux amants
-02. Once I Was Loved
-03. Get Out Of Town (Acoustic Version)
-04. Se Voce Me Ama(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C537867C09735C3668F6DD3D8AC25C2C8BE0EC79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714073   (111761) от 08.04.2024
-
-Makoto Ozone - Spring Is Here (1987) Sony [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Love [6:26]
-02. Spring Is Here [5:30]
-03. Someday My Prince Will Come [6:12]
-04. On the Street Where You Live [7:42](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC05A7BB1668BDDCBA9FE988E844387005A8627C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714071   (111759) от 08.04.2024
-
-Dick Noel - A Time for Love (1978) 2007, SSJ [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Time for Love [4:24]
-02. The Girl Next Door [5:33]
-03. Emily [4:17]
-04. My One and Only Love [4:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6ABC329504B29B921CD9B65590EC47C3246F0CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714379   (111730) от 09.04.2024
-
-Pat Martino - We'll Be Together Again (1976) 1990, Breaktime [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Road (Olee, Variations and Song, Open Road) [16:00]
-02. Lament [5:04]
-03. We'll Be Together Again [5:05]
-04. You Don't Know What Love Is [4:46](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3638C1C4B0D8A7EB18BF3B7F933471C4B813F1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714377   (111728) от 09.04.2024
-
-Kenny Burrell - Moon And Sand (1979) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon and Sand [6:30]
-02. My Ship [6:37]
-03. For Once in My Life [4:23]
-04. U.M.M.G. [3:01](   Читать дальше...   )Жанр: Latin Jazz, Mainstream Jazz, Guitar JazzПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C552D6D5FDA144C253CB795453A49C35C3C65E56
 ```
 
 https://mybot314.ru/tekegram_catalog/

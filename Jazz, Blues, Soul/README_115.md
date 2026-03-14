@@ -1,3 +1,177 @@
+###  Публикация: 1009374   (810294) от 21.04.2016
+
+Art Farmer - Early Art (1954) Remaster, 2006, Victor Entertainment[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Autumn Nocturne [04:10]
+ 02.Soft Shoe [05:03]
+ 03.Confab In Tempo [03:59]
+ 04.I'll Take Romance [05:01](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBFBD0CB41A4EBF47E2C4592AFDB0B9288481201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009461   (810293) от 21.04.2016
+
+Joe Zawinul - The Rise & Fall Of The Third Stream (1967) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Baptismal [07:39]
+ 02.The Soul Of A Village - Part I [02:14]
+ 03.The Soul Of A Village - Part II [04:16]
+ 04.The Fifth Canto [07:01](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Third StreamПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D593108439A315369E81BAD610CA31476E809182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009368   (810292) от 21.04.2016
+
+Art Farmer - Art (1960) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.So Beats My Heart For You [04:46]
+ 02.Goodbye, Old Girl [04:35]
+ 03.Who Cares [05:31]
+ 04.Out Of the Past [05:22](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926957EA8B316A68B5B4086C1A8A4830BAAB9BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009453   (810291) от 21.04.2016
+
+Kenny Burrell - Blue Lights, Volume 1 (1958) Remaster, 2000, Toshiba[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Yes Baby [11:09]
+ 02.Scotch Blues [08:01]
+ 03.Autumn In New York [05:48]
+ 04.Caravan [09:58]Жанр: Mainstream Jazz, Bop, Guitar JazzПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01580FC681F7BAE9F44F2148FE9F7A540C026CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197951   (810268) от 10.01.2018
+
+Sonny Stitt - Eight Classic Albums, Vol.2 (1959 - 1962) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810268.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. When The Red, Red Robin (Comes Bob, Bob, Bobbin. Along) [02:47]
+02. For All We Know [03:07]
+03. I.m Confessin. [03:20](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 04:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39AB63BCF59C18DFA2E8CF7DE7C4B671E440115A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198203   (810264) от 10.01.2018
+
+Yusef Lateef & Adam Rudolph - Beyond The Sky (2000) META [WavPack|Lossless|image + .cue] <Avant-Garde Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Sky [03:11]
+02. Origin of a Mother Tongue [04:34]
+03. Evanescent Symmetries [08:46]
+04. Handful of Gifts [07:00](   Читать дальше...   )Жанр: Avant-Garde Jazz, World FusionПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E6FDECEAD78E0CB3516CBD052709356034A50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198014   (810249) от 10.01.2018
 
 Bill Wyman's Rhythm Kings - Groovin' (2000) [FLAC|Lossless|image + .cue] <Blues>
@@ -565,181 +739,6 @@ Mop Mop - итальянская джазовая группа под руков
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C43396DE7300C1D71FBD050068D89D206DEDAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119220   (809131) от 27.03.2017
-
-Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riviera Life
-02. Dr. Wanna Do
-03. A Night Like This
-04. Just One Dance(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BA50CB1B076E9CAEE1555D7E92F7443E8697E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119235   (809127) от 27.03.2017
-
-Caro Emerald - Emerald Island (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Neo-swing, Vocal Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tahitian Skies
-02. The Ghost Of You
-03. Never Ever
-04. Exotic Flu(   Читать дальше...   )Жанр: Neo-swing, Vocal Jazz, Pop JazzПродолжительность: 00:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A90B60AF0A72CC23D536D5EB88E20C886D239E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884114   (809013) от 02.04.2015
-
-Joe Bonamassa - Muddy Wolf At Red Rocks (2015) 2CD [FLAC|Lossless]<Blues rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809013.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Muddy (00:50:50)
-CD2 - Wolf & Joe (01:16:35)Треклист CD1:
-01. We Went Down To The Mississippi Delta
-02. Muddy Waters Talking
-03. Tiger In Your Tank(   Читать дальше...   )Жанр: Blues rock |Продолжительность: 02:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF1549EBD21AB1983E478A46ED618FB0A396671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778234   (808620) от 17.04.2014
-
-Sarah Vaughan - Duke Ellington Songbook , Vol. 1,2 (1980) /2000 - Галактис/ [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Ain't Got Nothin' But The Blues [04:36]
-02. Black Butterfly [03:01]
-03. Chelsea Bridge [03:25]
-04. What Am I Here For [03:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50D65AFB14ACE3BDB5C87C560DE9D4EF3D44F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504930   (808434) от 25.10.2021
-
-Buddy Tate Meets Abdullah Ibrahim - The Legendary 1977 Encounters (1996) Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goduka Mfundi (Going Home) [7:18]
-02. Heyt Mazurki [6:56]
-03. Poor Butterfly [8:32]
-04. In a Sentimental Mood [7:32](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F535832130452F7C61F49313C21A968240811A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009717   (808363) от 22.04.2016
-
-Art Farmer - Listen to Art Farmer and the Orchestra (1962) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Street of Dreams [04:22]
- 02.Rain Check [03:44]
- 03.Rue Prevail [04:12]
- 04.The Sweetest Sounds (From 'No Strings') [04:39](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B0A7407314521F94B79FB0F40B0A44E1E5BF5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

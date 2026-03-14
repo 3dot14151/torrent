@@ -1,3 +1,176 @@
+###  Публикация: 1287679   (697638) от 10.03.2019
+
+James Morrison - You’re Stronger Than You Know (2019) [MP3|320 Kbps] <Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Love Goes On (Feat. Joss Stone) (03:36)
+02. Brighter Kind of Love (03:24)
+03. So Beautiful (04:03)
+04. Feels Like The First Time (04:13)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B179B271335DB4A8AA7DA11A5E2ADF39CCC67424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288276   (697365) от 10.03.2019
+
+Youn Sun Nah - Immersion (2019) [FLAC|24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Heart
+02. The Wonder
+03. Isn't It a Pity
+04. Here Today(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB0A20951AF921B2DDC3C558754CEDCC2862608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133131   (697232) от 11.05.2017
+
+Shelly Manne & His Men - West Coast Jazz In England (1960) 2011, Solar Records [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Delight [06:54]
+02. Bag's Groove [11:26]
+03. Nightingale [06:25]
+04. The Vamp's Blues [10:40](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF603B4B3D6E7491F7AC3D369302BB912A9D6DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133135   (697230) от 11.05.2017
+
+The Claude Williamson Trio - Complete 1956 Studio Sessions (2002) Fresh Sound Records [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. June Bug [03:43]
+02. Jersey Bounce [06:11]
+03. Moonlight In Vermont [03:42]
+04. I'll Remember April [04:59](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA87F8C420E771BCCC7FAE7D694EF3629ABD4F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132860   (697226) от 11.05.2017
+
+Guy Lafitte & Wild Bill Davis - Lotus Blossom (1983) 2003, Black And Blue [FLAC|Lossless|tracks + .cue] <Black And Blue>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lotus Blossom [05:55]
+02. Here's That Rainy Day [05:09]
+03. Colline [03:49]
+04. Ain't Misbehavin' [04:08](   Читать дальше...   )Жанр: Black And BlueПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064CFEF2417E54C38CAC94EC4362E09B940C5D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132404   (697111) от 11.05.2017
+
+Dirty Bourbon River Show - 2 Albums (2015, 2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Orleans Jazz, Big Band, Gypsy Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - Important Things Humans Should Know
+2017 - The Flying Musical CircusЖанр: New Orleans Jazz, Big Band, Gypsy JazzПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975E2AF7A9EB50DC2A716E8FD469FD808EA26575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221198   (696888) от 23.04.2018
 
 Fats Waller and His Rhythm - Ain't Misbehavin (1929 - 1941) 2016, Sony Music [FLAC|Lossless|image + .cue] <Swing, Stride, Piano Jazz>
@@ -571,178 +744,6 @@ John Bunch - An English Songbook (2003) Chiaroscuro Records [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2623C62ACF238D42F3C62281655A6CF6214042F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288696   (694311) от 12.03.2019
-
-Fire! Orchestra - Exit (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exit! Part One (19:29)
- 02. Exit! Part Two (24:54)Жанр: Free Jazz, Free ImprovisationПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558A63BDF9409848DE6F04D2F6FB77A411D9BE17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288688   (694309) от 12.03.2019
-
-The Bobs - Sing The Songs Of... (1991) Reissue [FLAC|Lossless|tracks + .cue] <Vocal, Parody>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Haze (3:16)
- 02. Ring of Fire (3:18)
- 03. Temptation (3:56)
- 04. Whole Lotta Love (3:26)(   Читать дальше...   )Жанр: Vocal, ParodyПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865911D56EBB35FB80EF547648A0E1AD971F37A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288671   (694306) от 12.03.2019
-
-Miriam Aida - Come On Home (2008) Connective Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come on Home [3:20]
-02. A Handful of Soul [3:57]
-03. Two Steps from the Blues [4:29]
-04. Now That You're Gone [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E18CE305E25C91A37C009A51B43838E979CAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403152   (694279) от 18.08.2020
-
-Machito & His Orchestra - Mambo Y Cha Cha Cha: Tea For Two (1950-e) 1993, Saludos Amigos [FLAC|Lossless|tracks + .cue] <Mambo, Cha-Cha, Afro-Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Mambo [3:16]
-02. Chattanooga Cha Cha Cha [2:52]
-03. Sentimental Mambo [3:02]
-04. Christopher Columbus [2:55](   Читать дальше...   )Жанр: Mambo, Cha-Cha, Afro-Cuban JazzПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55009D3616581D7746AB7D55565945EDCAB59B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288683   (694199) от 12.03.2019
-
-Jan Garbarek Group - It's OK to Listen to the Gray Voice (1985) Reissue [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Noise of Forgetfulness (8:26)
- 02. The Crossing Place (9:16)
- 03. One Day in March I Go Down to the Sea and Listen (5:41)
- 04. Mission:To Be Where I Am (8:12)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EDBF83260FF289774053A31B12ED8FADA151B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288779   (694198) от 12.03.2019
-
-Macelleria Mobile di Mezzanotte - Funeral Jazz (2015) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Ambient, Noir Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1000 Sigarette e un Omicidio (4:17)
-02. Slow (3:44)
-03. Funeral Jazz (4:32)
-04. Boogie Woogie Traditore (4:05)(   Читать дальше...   )Производство: Subsound Records - SR36Жанр: Doom Jazz, Dark Ambient, Noir Jazz, DroneПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FFC3BDE5CA612CA18A7879FCAFB7B8F27F359F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1126780   (740798) от 20.04.2017
+
+Rainbow - Live in Japan (1984) 2015, Digital remaster [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный концер Rainbow состоявшийся в 1984 в Nippon Budokan. Настало время выпустить CD)))01. Intro (1:49)
+02. Spotlight Kid (4:47)
+03. Miss Mistreated (4:32)
+04. I Surrender (6:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A88EE7417C1621AD37E0CD4FD8349F5C9F657E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397662   (739362) от 22.07.2020
+
+Rata Blanca - The Forgotten Kingdom (2009) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The voices of the sea (01:52)
+02. The forgotten kingdom (05:34)
+03. Endorphins (04:09)
+04. Talisman (05:14)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C5F15A88874AD67BA943C66E5F5BAA53127D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526019   (739122) от 22.01.2022
+
+Tony Mitchell - Hot Endless Summer Nights (2021) [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Endless Summer Nights (04:24)
+02. Can't Fight It (04:42)
+03. Blame It On The Rock'n'Roll (05:38)
+04. Strong Enough (04:26)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7393F9AC4DAD8ADFD3207609BC09AC0CA2FD95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526005   (738824) от 23.01.2022
+
+Cats in Boots - Kicked & Klawed (1990) [APE|Lossless|image + .cue] <Sleaze Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shot Gun Sally
+02. Nine Lives (Save Me)
+03. Her Monkey
+04. Whip It Out(   Читать дальше...   )Жанр: Sleaze RockПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105DABAA60620E953AA4B48FD260E32D692E0D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526888   (737820) от 26.01.2022
 
 Nightfox - White Cobra (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -637,122 +753,6 @@ Fastway - 8 альбомов (1983 - 2011) [FLAC|APE|Lossless]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:112CEAAF08B2D76CCF7E9A2913465DC84B0CDE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326030   (725751) от 21.04.2011
-
-Firehouse - 7 Студийных альбомов (1990 - 2003) [FLAC|Lossless]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_725751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firehouse - легендарная группа, исполняющая мелодичный коммерческий Хард Рок. Стартовый состав C.J. Snare, Perry Richardson, Bill Leverty и Michael Foster именовался "White Heat", но оказалось что в Канаде уже существует группа под таким названием - так появился "Firehouse".Альбомы:
-1990 - Firehouse
-1992 - Hold Your Fire (Japan)
-1995 - 3(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 05:40:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128967   (724841) от 27.04.2017
-
-Johnny Crash - Unfinished Business (2008) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724841.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Damnation Alley
-2 Monkey See Monkey Do
-3 Mama Don't Care (What She Don't See)
-4 Renegade(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D92F1D5CC5B6E972BCEFF9C3E5DB3654270DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023496   (724554) от 05.06.2016
-
-Graham Bonnet - Back Row In The Stalls (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes the Rain
-02. What's This 'Ere Then
-03. Private Eye
-04. Ghost Writer in My Eye(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873461C367BA46A29CB108C91ABE3B22806E57C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023492   (723820) от 05.06.2016
-
-Led Zeppelin - BBC Sessions (1997) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-
-01. You Shook Me (5:15)
-02. I Can't Quit You Baby (4:24)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 02:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA61BEDC5FF8E809835AC2A9798D08E04315879
 ```
 
 https://mybot314.ru/tekegram_catalog/

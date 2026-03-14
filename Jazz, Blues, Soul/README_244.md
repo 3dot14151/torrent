@@ -1,3 +1,189 @@
+###  Публикация: 1152548   (563742) от 24.07.2017
+
+Miramode Orchestra - Tumbler (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Future Jazz, Leftfield>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tumbler (feat. Mara von Ferne) (4:35)
+02. Break Loose (feat. Mara von Ferne) (3:59)
+03. The Sphere (5:02)
+04. Mice in Kindergarten (5:41)(   Читать дальше...   )Жанр: Electronic, Future Jazz, LeftfieldПродолжительность: 00: 41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E0BCFEF4378DD27C2C7FAB78DB9B6569B58462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152679   (563635) от 24.07.2017
+
+Fred Hersch - Songs Without Words (2001) 3CD, Nonesuch Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563635.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Songs Without Words:
+01. Songs Without Words: I. Aria [07:04]
+02. Songs Without Words: II. Ballad [06:00]
+03. Songs Without Words: III. Tango [05:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 03:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2AD587E4DCFA8BF7C1A7AF98C112E2AA62F1E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152858   (563620) от 24.07.2017
+
+Judy Garland - Chasing Rainbows (1936 - 1939) 1989, Remember [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Always Chasing Rainbows [02:59]
+02. A Pretty Girl (Is Like a Melody) [02:56]
+03. I Can't Give You Anything but Love [05:14]
+04. A Foggy Day in London Town [02:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB3C9D8B885172D28383BB23D57A43365E08FBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556087   (563370) от 07.06.2022
+
+VA - This Is Vocal Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lo Greco Bros, Annalisa Parisi - I Can't Give You Anything But Love, Baby (5:40)
+02. Walter Ricci, Fabrizio Bosso - I Believe In You (3:54)
+03. Paolo Di Sabatino - Into the Night (featuring Gino Vannelli) (4:49)
+04. Papik, Marvin Parks - It Feel Like Paradise (3:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD4511CFCD399C3E867CE2AC70AB34D7F61BC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530178   (563303) от 02.08.2012
+
+Awek - It's Rollin' (2010) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Rock
+02. I Cry All Day Long
+03. Play With Me
+04. You Think
+05. Hush Your Mouth
+06. Magic Night
+07. Walter's Mood
+08. Telephone Blues
+09. My Sleepy Girl
+10. Be A Good Man(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530195   (563209) от 02.08.2012
+
+Barrence Whitfield - Raw,Raw,Rough! (2009) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geronimo Stomp
+02. I Want Love and Affection Not the House of Correction
+03. Wear Your Red Dress
+04. I Can't Get No Ride
+05. One More Time
+06. Strychnine
+07. Kissing Tree
+08. Early Times
+09. Goin' to Jump and Shout
+10. Long Green(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530202   (563072) от 02.08.2012
 
 Barbara Blue - Sell My Jewelry (2001) [APE|Lossless]<Blues-Rock>
@@ -589,180 +775,6 @@ CD1- Lee Konitz With Warne Marsh & Inside Hi-Fi:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4BEA28134E376F2BF96B4612C03012447A08772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045231   (561676) от 22.08.2016
-
-Pat Metheny - Secret Story (1992) [FLAC|Lossless|image + .cue] <Post Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above The Treetops
-02. Facing West
-03. Cathedral In A Suitcase
-04. Finding And Believing(   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 01:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5673DC987854A3E2CE504C482EDDC9A000919487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045202   (561535) от 22.08.2016
-
-Aretha Franklin - What You See Is What You Sweat (1991) [FLAC|Lossless|image + .cue] <Funk, Soul, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everyday People
-02. Ever Changing Times
-03. What You See Is What You Sweat
-04. Mary Goes Round(   Читать дальше...   )Жанр: Funk, Soul, BluesПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC766CF29D0AD3868A08F6C97BAD3E354766529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044983   (561527) от 22.08.2016
-
-Susie Webb - Bossa Loves Abba (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova, Latin>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (4:01)
-02. Knowing Me, Knowing You (4:00)
-03. Chiquitita (4:39)
-04. Take A Chance (3:37)(   Читать дальше...   )Производство: Rockchicks LtdЖанр: Jazz, Bossa Nova, LatinПродолжительность: 00:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A1F7DC321F6A0F7A290248704675C7B26BBD1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153167   (561315) от 25.07.2017
-
-Earth, Wind & Fire - The Real... Earth, Wind & Fire (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Funk, Soul, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Open Our Eyes
-02. Evil
-03. Keep Your Head To The Sky(   Читать дальше...   )Жанр: Funk, Soul, R&BПродолжительность: 03:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E05ECE9E8F4CE3A8F336FCF5978C0B6225EFF786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923772   (561045) от 02.08.2015
-
-OU - Scrambled! (2015) [FLAC|tracks+.cue]<Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Non C'e Niente Da Lavare
-02. S'Ou Abbattadu
-03. Nochdenada
-04. Destiny Sneezed(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:180B107583BC26D069E9B6133E90107A01A5D7D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924052   (561044) от 02.08.2015
-
-Sam Most - The Amazing Mr. Sam Most (1957) /2014, Solid Records/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Might As Well Be Spring [05:47]
-02. You Stepped Out Of A Dream [06:10]
-03. Softly As In A Morning Sunrise [03:11]
-04. Lover Man [04:20](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, CoolПродолжительность: 00:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC284870256F1A523E1098C7546A7996715CDC9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

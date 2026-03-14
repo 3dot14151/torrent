@@ -1,3 +1,90 @@
+###  Публикация: 1737439   (106516) от 17.07.2024
+
+VA - Idyllic Vacation Chilly Lounge Vacation Getaway Instrumentals for Leisure and Pleasure (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Vanilla Twilight (5:51)
+02. Chillaxonic - Ineffable (5:22)
+03. Chillaxing Jazz Kollektion - Just Ones (4:20)
+04. Kool&Klean - Everything (4:04)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA738DDE4795FA6F9B1ACB78D3D3EC08CE2D3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737524   (106499) от 18.07.2024
+
+T.S. Monk - Take One (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monaco [6:34]
+02. Skippy [3:40]
+03. Infra-Rae [6:07]
+04. Waiting [5:43](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E813A3AE7F957AF32A160E3A8792BAFF1D584C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737523   (106498) от 18.07.2024
+
+John Patton - Soul Connection (1983) 2008, Just A Memory [FLAC|Lossless|tracks + .cue] <Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Connection [9:49]
+02. Pinto [5:20]
+03. Extensions [6:51]
+04. Space Station [5:40](   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78933B5E0BEDE9FF551DA60B6FA123757E2E50B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737701   (106494) от 19.07.2024
 
 Junior Mance - Holy Mama (1976) 2008, Test Of Time Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
@@ -658,93 +745,6 @@ VA - Ultimate Jazz Piano Collection, Vol.1 (1950 - 1960) 10CD, 2014, Fermata [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D1C06B7A5688FE7C1078EFC70CB4B2F4F7C7FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739885   (105967) от 30.07.2024
-
-Elvin Jones - Elvin! (1961, 1962) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Luck [6:23]
-02. Buzz-At [6:35]
-03. Shadowland [4:09]
-04. Pretty Brown [3:34](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1581D26E8374C7AC07FF4BA0B84CF5D4DEBEF92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740036   (105928) от 31.07.2024
-
-Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.1 (1953) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Others [6:01]
-02. All The Things You Are [5:16]
-03. Creme De Menthe [4:31]
-04. Viva Zapata [8:15](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8462FC3841FA1B96EBCF71F6601367CEADC88E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740432   (105816) от 02.08.2024
-
-Frank Sinatra - Ol' Blue Eyes (1990) Starlite [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Some To Watch Over Me [3:24]
-02. Laura [3:15]
-03. One For My Baby [3:06]
-04. These Foolish Things [3:12](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6CF439D819CBCA782DA1FF87A80806AF45524F
 ```
 
 https://mybot314.ru/tekegram_catalog/

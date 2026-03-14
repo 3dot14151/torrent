@@ -1,3 +1,29 @@
+###  Публикация: 125768   (682644) от 26.06.2010
+
+Danzig - 12Albums+2Live+EP (1988-2010) [MP3|320 kbps]<Heavy Metal/Hard Rock/Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_682644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Danzig — американская хэви-метал группа, смешивающая мрачную лирику и образы с блюз-роковыми веяниями. Группа является третьей стадией музыкальной карьеры Гленна Данзига, который до этого играл в хоррор-панк группах The Misfits и Samhain. В 1987 подписав контракт, группа эволюционировала в прочный рок-метал коллектив. Чтобы отразить изменение музыкального направления (   Читать дальше...   )Жанр: Heavy Metal/Hard Rock/IndustrialПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508417   (679700) от 10.06.2012
 
 69 Chambers - Torque (2012) [MP3|320 кб/с]<Heavy Metal, Groove Metal, Female Vocal>
@@ -728,41 +754,6 @@ Children of Bodom - Holiday at Lake Bodom: 15 Years of Wasted Youth (2012) Compi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC2C35D1B719DF98CF28B95E9FA0E90B35EA3FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482787   (670202) от 14.06.2012
-
-Paradise Lost - 1 Album + 1 Compilation (2012) [MP3|320 кб/с]<Gothic/Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_670202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была основана в 1988 в городе Галифакс в Великобритании. Названием для группы послужила одноименная поэма Джона Милтона. Группе потребовалось записать всего две демо-ленты, чтобы получить контракт на полноценный альбом. В конце 1989 года группа заперлась в ныне легендарной Academy Studios, результатом чего стал дебютный альбом "Lost Paradise" 1990 года, он отличался тяжелым звучанием, медленным темпом композиций, мрачной атмосферой и гроулингом вокалиста Ника Холмса. Он мгновенно стал стал самым продаваемым релизом Peaceville Records, и группа отправилось в европейское турне на разогреве у дэт-метал-группы Autopsy.01. Our Saviour
-02. Eternal
-03. As I Die
-04. True Belief
-05. Hallowed Land
-06. Say Just Words
-07. Nothing Sacred
-08. Mouth
-09. Erased
-10. Forever After(   Читать дальше...   )Жанр: Gothic/Doom/Death MetalПродолжительность: 00:53:29
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

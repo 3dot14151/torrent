@@ -1,3 +1,61 @@
+###  Публикация: 1495998   (874481) от 16.09.2021
+
+Cottonmouth - Illusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravel Road (4:14)
+02. Wars (3:43)
+03. Wish I Didn't Know (5:15)
+04. The Past (2:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71D6D156BB8E91E73016F1140FBCE1EA96205BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495996   (874477) от 16.09.2021
+
+Cobalt County Vandals - Two Ain't But Twice (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Groove (4:16)
+02. Yellow Bricks (4:48)
+03. Krell (3:28)
+04. Cinderella (4:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9ADF9374C4CAC92AE9C44FE26E3177E703027D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495994   (874473) от 16.09.2021
 
 Clay Melton - Back to Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -693,64 +751,6 @@ Mungo Jerry - Touch The Sky (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A52B34E8DA6C1D8150EEBA429D3535BAD4811C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374252   (872696) от 10.04.2020
-
-Shakura S'Aida - Brown Sugar (2010) [APE|Lossless|image + .cue] <Jazz, Funk / Soul, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mr. Right
-02.  Walk Out That Door
-03.  Gonna Tell My Baby
-04.  Break Your Heart(   Читать дальше...   )Жанр: Jazz, Funk / Soul, BluesПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A8FDAA067EB77054518297A65750A592BE1E94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997828   (872126) от 18.03.2016
-
-Clark Terry - The Happy Horns of Clark Terry & It's What's Happenin' (1965/1967) 2011, Verve[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Rockin' In Rhythm [04:39]
- 02.In A Mist [04:09]
- 03.Return To Swahili [03:05]
- 04.Ellington Rides Again (Medley) [02:58](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 01:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4E2471853918D770412A1BBDD57DDBE2C2751D
 ```
 
 https://mybot314.ru/tekegram_catalog/

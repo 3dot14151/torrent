@@ -1,3 +1,148 @@
+###  Публикация: 1692882   (122178) от 18.01.2024
+
+Saxon - Hell, Fire And Damnation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prophecy (1:24)
+02. Hell, Fire And Damnation (5:33)
+03. Madame Guillotine (5:25)
+04. Fire And Steel (3:37)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5836CB1BA884D3D8891CEE4F01C0369D8B1037E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692931   (122175) от 18.01.2024
+
+Metalite - Expedition One (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expedition One (4:02)
+02. Aurora (4:12)
+03. CtrIAltDel (4:55)
+04. Cyberdome (4:45)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCFE35D5F0466BE7AB813277C1F7754CB69E032F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692878   (122157) от 18.01.2024
+
+Project 86 - OMNI, Pt. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Never Let a Crisis Go to Waste (00:03:39)
+02 - UltravioleNt (00:03:49)
+03 - Complete the Circle (00:03:20)
+04 - The Ex and the Why (00:03:29)(   Читать дальше...   )Жанр: Alternative Metal, Industrial MetalПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227CA8C1C81464DE78F701421558F79B79842DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692901   (122155) от 18.01.2024
+
+Gotus - Gotus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me To The Mountain (3:49)
+02. Beware Of The Fire (3:57)
+03. Love Will Find Its Way (5:51)
+04. Undercover (3:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608E35E20A93DBC59EF5E1312230ABCA238B6235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692948   (122140) от 18.01.2024
+
+Darzamat - Studio Albums (7 releases) (1996-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darzamat — польский музыкальный коллектив из города Катовице. По мнению критиков, творчество группы сочетает различные стили экстремальной музыки и в основном характеризуется как симфонический блэк-метал, дарк-метал и дэт-метал, кроме того присутствуют элементы пэган-метала и готик-метала. Участники также используют комбинацию мужского и женского вокала: традиционный (   Читать дальше...   )1996 - In The Flames Of Black Art
+1999 - In The Opium Of Black Veil (EP)
+2003 - Oniriad
+2004 - SemiDevilishЖанр: Symphonic Black/Gothic MetalПродолжительность: 04:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F1B9555315F8792152DEF43C8CEAD49471B070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692893   (122137) от 18.01.2024
 
 Trapsix - Scenery (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
@@ -598,151 +743,6 @@ Background Music Masters, Instrumental Jazz Music Guys - Evening Revelry Harmoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C58D6735C16FC4882B3B987D7BF2FD4B97B1E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693838   (121479) от 22.01.2024
-
-L.A. Guns - The Dark Horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam-Hard-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overdrive (3:56)
-02. Rewind (4:46)
-03. The Dark Horse (4:07)
-04. Somebody Save Me (5:57)(   Читать дальше...   )Жанр: Glam-Hard-RockПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93A9DCF848F7D4CFE9522502F8F2C6E6DCF7AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693790   (121470) от 22.01.2024
-
-Stateside Red - Far From The Delta (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crossroads OG (5:08)
-02. Far From The Delta (4:22)
-03. Runnin' (4:47)
-04. Gone In The Morning (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B031B0C105477046758EDE6621DD7BA0DF13982A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693784   (121464) от 22.01.2024
-
-KJ Dale - Plays songs from Pioneers - End of time album (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be a pioneer (5:01)
-02. Walk in the moonlight (4:36)
-03. Annie (3:56)
-04. This is high (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9EA658EF06DE0987DC9A267266918A5ABB1F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693791   (121457) от 22.01.2024
-
-Suncity Blues - Blues on my mind (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doghouse daddy (3:34)
-02. Blues on my mind (3:13)
-03. She left me this morning (3:03)
-04. Long and winding road (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D484C7CE0FF4AB036C315608FD0F9EAFB895EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693851   (121450) от 22.01.2024
-
-Polarnik - Протокол (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Black, Doom, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Волчок (00:04:38)
-02 - Змей (00:04:47)
-03 - Ледокол (00:04:10)
-04 - Серп (00:04:21)(   Читать дальше...   )Жанр: Post-Black, Doom, Death MetalПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2FA9704429E7A04CA91E5A83C326EFE6814AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

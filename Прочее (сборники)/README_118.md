@@ -1,3 +1,47 @@
+###  Публикация: 558977   (408483) от 13.10.2012
+
+VA - Клубный Авто Хит (2CD) (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408483.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Afrojack And Apster - ID (Cat Skillz Remix)
+02. MaxiGroove, Bhp feat. Lexter - Wonderfull World (Club Mix)
+03. Alvaro & Lil Jon Feat. Wll. I. Am - With My Hands Up (Original Mix)
+04. Omnia feat. Ana Criado - No One Home (Radio Edit)
+05. Arkasia feat. Hayley Gene - Don't Speak
+06. The Hotheads - What We Want
+07. Aylius feat. Katie Joy - Lucid
+08. The White Panda - Wallphones (Maroon 5 Vs. Sultan & Ned Shepard Remix)
+09. DJ Dark & Shidance feat. Violet - Turn It Up (Club Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 02:25:05
+01. Anil Chawla - Thats More House (Original Mix)
+02. Alycia Stefano - Loca Loca (Latino Extended Mix)
+03. Avicii - Last Dance (Original Club Instrumental)
+04. BuLaLa - STREETRACING
+05. Balthazar & Jackrock – The Way We Rock (Original Mix)
+06. Cloud 7 - Silence (Original Vocal Edit)
+07. Chris Reece, EDX & Stan Kolev - Miami Device (Original Mix)
+08. Diplo feat. Lil Jon - U Don't Like Me (Datsik Remix)
+09. D. Ramirez - Boom Boom (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA3655697E3FF95FE71820D2EB1071BB18635AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168661   (408445) от 24.09.2017
 
 VA - Auto RU Collection (2017) [MP3|320 Kbps] <Русский Рок, Авторская песня, Поп>
@@ -770,41 +814,6 @@ VA - Клубный хит (2020) [MP3|320 Kbps] <Dance, Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDCB193D734F4A9D129AE6B046BEA9B1F223D5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560544   (406708) от 15.10.2012
-
-VA - Best 10 Radio Tracks 2012 vol. 1-3 (3CD) (2012) [MP3|196-320 кб/с]<Dance, House, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Best 10 Radio Tracks 2012 vol. 1Жанр: Dance, House, ClubПродолжительность: 00:58:46
-01. Monochrome - Pearl (Gabriel & Dresden Remix)
-02. G & G Vs. D-Jastic - In My Mind (Original Mix)
-03. Missy Elliott feat. Timbaland - 9th Inning
-04. David Guetta feat. Sia - She Wolf (Falling To Pieces) (Extended Mix)
-05. Bootik & Silvertongue - When The Music Stops (Inphinity & Kalendr Remix)
-06. Crookers - Trillex (Original Mix)
-07. Daniele Sorrenti - Shake That Body (Original Mix)
-08. Dario Trapani - Soul (Tanzamomo Remix)
-09. G&G, Baby Brown, Gary Wright - My My My (Coming Apart) 2K12 feat. Gary Wright, Baby Brown (Club Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF41753F609485D3DBA734FDD1697C31A2E2D15
 ```
 
 https://mybot314.ru/tekegram_catalog/

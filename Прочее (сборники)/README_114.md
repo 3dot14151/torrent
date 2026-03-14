@@ -1,3 +1,32 @@
+###  Публикация: 1571381   (433947) от 21.08.2022
+
+VA - Disco Chance Real Time: Mashup (2022) [MP3|192-320 Kbps] <Dance, Club, R&B, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Rihanna Vs Joel Corry, Raye & David Guetta - We Found Love In Bed (Discosid String) (Clean)
+02. Bleu Clair vs. Village People - Ymca Vs. Disco Tool (Dion Dobbe Mashup)
+03. Dave Earl Vs Stonebridge & Therese - Put Eivissa High (Discosid Mashup)
+04. 22 Lockdown Vs Pickle - Never Gonna Catch You (Discosid String) (Clean)(   Читать дальше...   )Жанр: Dance, Club, R&B, Indie DanceПродолжительность: 02:09:59 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:854181FB37E22D57A88EA94790F0CA0FC3092F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571403   (433944) от 21.08.2022
 
 VA - Mojito Mix (2022) [MP3|320 Kbps] <Reggaeton, Mambo & Electro Latino, Dancehall, Reggae Fusion>
@@ -748,41 +777,6 @@ VA - XXXL Клубничка DFM №40 (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05628BEB32CCC160D5C6E0F14B311FF3304AE27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555901   (426580) от 05.10.2012
-
-VA - Радио DFM - D Чарт - Top-30 (03.10.2012) [MP3|320 кб/с]<Pop ,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Ferrari - Bara Bara Bere Bere (Cj Dmitriy Sova remix)
- 02. Tonic Feat. Tarantula Ma - Big Fat (DFM MIX)
- 03. Yves V & Basto - Cloud Breaker (Basto Radio Mix)
- 04. Flo Rida - Whistle
- 05. PLAYMEN ft. Demy - Fallin (Radio Edit)
- 06. Far East Movement Feat. Cover Drive - Turn Up The Love (DFM MIX)
- 07. Romano & Sapienza feat. Rodriguez aka Tacabro - Tacata (Extended Mix)
- 08. Нюша - Воспоминание
- 09. Martin Solveig - The Night Out (Madeon Remix)
- 10. JOAO LUCAS E MARCELO - EU QUERO TSHU EU QUERO TCHA (DJ FAVORITE & DJ KHARITONOV)(   Читать дальше...   )Жанр: Pop ,DanceПродолжительность: 03:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD7B685AB9D924480E71426A864D96EFD5E91A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

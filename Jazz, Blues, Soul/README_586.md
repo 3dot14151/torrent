@@ -1,3 +1,177 @@
+###  Публикация: 1813021   (7239) от 17.08.2025
+
+Blues Cousins - Call Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  She Was Loughting (3:45)
+02.  Never Know (3:11)
+03.  Freezing In The Dark (7:26)
+04.  To Feel Your Love (4:01)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083CF49AD4256464531C9E887BBCCB4A1ED8A672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813112   (7227) от 17.08.2025
+
+Long Tall Deb & Colin John - Light It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Light It Up (3:55)
+02.  My Love (2:57)
+03.  Lessons In The Ground (3:35)
+04.  Sweet Dreams (3:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D178E127D54917E9CAFEE2537685AE80A2BAB256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813020   (7217) от 17.08.2025
+
+Bart&Baker - International (Electro Swing) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eva Des Lys - Possession Obsession (Burlesque Electro Swing Version) (4:25)
+02.  Juste Bart - Bossa Lova (2:52)
+03.  Ashley Slater - Love Me, Love Me Now (Radio Version) (4:13)
+04.  Minnie Valentine - Last Night a DJ Saved My Life (3:54)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEA10E785B2C2F9429A7EC3C06D2AD093C2DCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813006   (7205) от 17.08.2025
+
+8 Ball Aitken, Taya Chani - Nightbird (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Changed Your Mind (3:00)
+02.  Waiting On Better Days (3:32)
+03.  Nightbird (4:31)
+04.  Keep Believing (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A410DE58911D60905E33BD3FAED79ED6875904C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813012   (7204) от 17.08.2025
+
+Al Jones - Still in Charge (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Move Across the River (3:54)
+02.  Lonely Man (5:37)
+03.  All Your Love (5:24)
+04.  No Fool No More (4:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041D2AAADC95EB9474569F742693FA058C1FE2ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813094   (7202) от 17.08.2025
+
+Jelly Ellington - Glow (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Glow (4:07)
+02.  Sail On (3:45)
+03.  Somebody To Love (4:38)
+04.  Nick Perri - The Night (feat. Nick Perri) (4:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5E8A17A90CDB982ABB37736FB2D9489514D69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813085   (7199) от 17.08.2025
 
 DB Cohen - On Target (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -570,180 +744,6 @@ Leroy Vinnegar Quintet - Leroy Walks Again!! (1962, 1963) 1990, Original Jazz Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5578893A1A506EF18F51F8FC0A0F69A2281D11D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816004   (4647) от 02.09.2025
-
-Hans Koller - Minor Meetings (1958) 2014, Sonorama Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Blues [2:28]
-02. Hi-Fi [4:14]
-03. Blues Around Joe [3:29]
-04. Saba [4:03](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD47D61BA080AD686E066D8180BBE8E15AA7321A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816204   (4381) от 04.09.2025
-
-Zoot Sims - On The Korner (1983) 1994, Pablo [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hear a Rhapsody [8:20]
-02. Tonight I Shall Sleep [6:40]
-03. Pennies from Heaven [8:20]
-04. If You Could See Me Now [5:40](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F2DA6745BC114B7932DA369F3C8DDE854150FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816593   (4274) от 05.09.2025
-
-Zoot Sims - I Wish I Were Twins (1981) 1998, Pablo [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish I Were Twins [5:13]
-02. Georgia on My Mind [5:41]
-03. Changes [5:17]
-04. The Touch of Your Lips [5:34](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2AAE4ECF2AFBC321A5E0CAC9F0D7EF959E0CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816697   (4080) от 06.09.2025
-
-Walter Trout - Sign of the Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Artificial (4:23)
-02.  Blood on my Pillow (5:17)
-03.  Sign of the Times (5:11)
-04.  Mona Lisa Smile (4:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C62BE02D59D49437FD138B6CCF415EBC619C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817177   (3729) от 08.09.2025
-
-VA - Greatest Hits from The Roaring Twenties: The Sound of the Jazz Age (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Skip Martin & His Prohibitionists - Charleston (3:03)
-02.  Lonnie Donegan - Ice Cream (2:43)
-03.  Slim Pickins & His Twenty-Niners - Yes Sir, That's My Baby (2:25)
-04.  Kenny Ball and His Jazzmen - Puttin' On the Ritz (3:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:166C2697808680FCBC931606B556980E6A0BFAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817154   (3712) от 08.09.2025
-
-Jimi 'Prime Time' Smith - It's My Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don't Let the Devil Ride (5:15)
-02.  Back on the Road (3:13)
-03.  Breaking My Heart (3:47)
-04.  My Time (4:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A76E909A4D829D56D4B2A81B6CEE569180BF4AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

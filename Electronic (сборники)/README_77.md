@@ -1,3 +1,32 @@
+###  Публикация: 1022790   (727685) от 03.06.2016
+
+VA - Drum and Bass, Dubstep (2016) [MP3|256-320 кб/с] <Drum and Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kubiks & Bcee - Ten Years On
+02. Formal One - Milky Way
+03. Nero - The Thrill (Fawks Flip)
+04. Kaz James - Show Me All Your Love (Smooth Remix)(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 05:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A484801E35B9040E132AAC080D168FAC591D5FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128523   (727661) от 25.04.2017
 
 VA - Brain Plugged: Big Room House Music (2017) [MP3|320 Kbps] <Electro House, Club House>
@@ -727,35 +756,6 @@ VA - LUXEmusic - Dance Super Chart Vol.115 (2017) [MP3|320 Kbps] <Club House, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6CD8D05BB49376F810F55A9D24F1DBFAE3620F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284939   (724785) от 24.02.2019
-
-VA - Mystica Depth (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724785.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Makia Blue - Voyage To Farland
-002. G.B. Beckers - Klangschwaden
-003. Earth Connect - My Kind Of Disco
-004. Flower Bath - Index Plan (Feat. Aka Carpenter)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6F51F7B2BB7DBC516EF627E7E6574D40EA7F6F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

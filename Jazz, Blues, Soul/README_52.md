@@ -1,3 +1,58 @@
+###  Публикация: 973418   (980199) от 08.01.2016
+
+Julie London - Calendar Girl (1956) [MP3|320 кб/с] <Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  June In January (2:10)
+02.  February Brings The Rain (2:22)
+03.  Melancholy March (2:19)
+04.  I'll Remember April (2:00)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4043779FEEC79007A79B08E909002CFE513B20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437170   (980146) от 15.01.2012
+
+Patti Labelle - The Universal Masters Collection: Classic Patti Labelle (2001) [FLAC|Lossless]<Soul / R&B / Pop>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Soul / R&B / PopПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973814   (979323) от 09.01.2016
 
 Jack Wilson - Something Personal (1966) Remaster, 2015, Universal[FLAC|tracks+.cue] <Hard Bop, Soul Jazz>
@@ -706,76 +761,6 @@ Robin Trower - Roots And Branches (2013) [MP3|320 кб/с]<Hard Rock, Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7191511EFFC84E77F9C49C32F843666376FD301B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613551   (977616) от 08.02.2013
-
-Various Artists - Dreamboats and Petticoats - Dream Lovers (2013) [MP3|320 кб/с]<Rock'n'Roll>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-Продолжительность : 01:00:29
-
-1. Dream Lover - Bobby Darin
- 2. It's Now Or Never - Elvis Presley
- 3. It's Over - Roy Orbison
- 4. Raining in My Heart (Single Version) - Buddy Holly
- 5. Forget Him - Bobby Rydell
- 6. Someone Else's Baby - Adam Faith
- 7. Take Good Care Of My Baby - Bobby Vee(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009AEC8FC29D114ECEC8660ED9451848FB990219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615330   (977598) от 08.02.2013
-
-VA - The Golden Age Of Swing "Big Band Legends" (1995-1997) 3CD[FLAC|Lossless]<Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Russell - Doctor Blues [03:16]
-02. Fletcher Henderson - New King Porter Stomp [03:12]
-03. Horace Henderson - I'm Rhythm Crazy Now [03:20]
-04. Chick Webb - That Naughty Waltz [02:59]
-05. Count Basie - Miss Thing [05:43]
-06. Earl Hines - G.T. Stomp [02:47]
-07. Andy Kirk - Big Jim Blues [03:00]
-08. Harlan Leonard - Hairy Joe Jump [03:14]
-09. Duke Ellington - Jack The Bear [03:22]
-10. Louis Armstrong - Harlem Stomp [03:05](   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:05:54
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

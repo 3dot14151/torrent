@@ -1,3 +1,32 @@
+###  Публикация: 1775331   (71451) от 26.01.2025
+
+VA - Musical kaleidoscope part 23 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Polkovnik - Мелодия Души
+02. Neuron - The Fall
+03. Сергей Грищук - Волшебство Мгновения
+04. Dj Polkovnik - Размышление(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA906D3B2C5ED822B369248A31106A17BA4E1FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775346   (71449) от 26.01.2025
 
 VA - Compilation part 140 Electronic (2025) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - Energy Of Calm Sound Currents (2025) [MP3|320 Kbps] <Chillout, Ambient, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:867B077CAD7A404D7ADAB3CF04112CDF555DBC15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789780   (68160) от 07.04.2025
-
-VA - Trance In Motion Vol.387 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Ellis & Dettech & Kate Louise Smith - We Gather (Extended Mix)
-02. Eric de la Vega & Alaera - Cuando El Amor Acaba (Extended Mix)
-03. Georgio Safo - Ancestors (Extended Mix)
-04. Darren Porter - Daylight (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF9F181E922F9438A6B2D68B8A61AF3114082435
 ```
 
 https://mybot314.ru/tekegram_catalog/

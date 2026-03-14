@@ -1,3 +1,61 @@
+###  Публикация: 1389441   (784283) от 11.06.2020
+
+Revolving Door - City of Darkness (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sick Of It All (03:36)
+ 02. City Of Darkness (03:30)
+ 03. Baby Goodbye (03:26)
+ 04. Calling For Advice (03:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B0A97347013C014F85FBB2A96127A3406415B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389499   (784200) от 11.06.2020
+
+Deep Purple - Under The Gun (1999) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway Star (Live) [0:06:11.06]
+02. Strange Kind Of Woman (Live) [0:07:18.16]
+03. Under The Gun [0:04:35.69]
+04. Knocking At Your Back Door [0:04:00.66](   Читать дальше...   )Жанр: RockПродолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E2699377B0FBD3B55E3C24ABDF2CB3E2795E59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205115   (784048) от 08.02.2018
 
 David Duchovny - Every Third Thought (2018) [MP3|320 Kbps] <Rock, Singer-Songwriter>
@@ -705,64 +763,6 @@ Shocking Blue - Venus (3 Albums) (1990) [MP3|320 kbps]<Classic Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207173   (780891) от 17.02.2018
-
-Steven R. Smith (Стивен Р. Смит) - Log The Man Dead (1995) Autopia, MC-Rip [MP3|320 Kbps] <Noise, Indie Rock, Psychedelic Rock, Folk, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стивен Р. Смит делает фолк, извлекая совершенно потрясающие звуки из предметов, мимо которых мы в повседневной жизни можем пройти мимо, совершенно не обращая на них никакого внимания. Благодаря Hala Strana Стивен Р. Смит представляется слушателю как музыкант-одиночка, затворник, сидящий в студии и экспериментирующий с инструментами и звуками. Конечно, можно предполагать (   Читать дальше...   )01. Piner 2:26
-02. March of the Sandpiker 3:26
-03. Fillert's Mercheent Tie-off 2:49
-04. Again Import the Ex 3:25(   Читать дальше...   )Жанр: Noise, Indie Rock, Psychedelic Rock, Folk, ExperimentalПродолжительность: 00:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3A80E133C33652142DA8D934254AB04D54B9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207288   (780846) от 17.02.2018
-
-Toto - Super Hits (2004) [MP3|320 Kbps] <Soft Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780846.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hold The Line
-2. Rosanna
-3. Africa
-4. Georgy Porgy(   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E53150D71F68E118B02F3D65E1F67AD74F8D08
 ```
 
 https://mybot314.ru/tekegram_catalog/

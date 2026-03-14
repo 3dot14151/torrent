@@ -1,3 +1,148 @@
+###  Публикация: 1747673   (104736) от 06.09.2024
+
+Michael Bolton - 'Til the End of Forever (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m Alive
+02. Til The End Of Forever
+03. Still The Love Of My Life
+04. Next Lifetime(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CF35CF96BA474A635871BEFD9E9687B2033970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747610   (104735) от 06.09.2024
+
+The Cardigans - The Rest Of The Best (2024) Vol. 1 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pooh Song (3:14)
+02. I Figured Out (Demo '93) (2:04)
+03. After All... (Demo '93) (2:37)
+04. Plain Parade (3:38)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7295E1637953238AA60FB60E8437F0C3FF37B44C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747592   (104708) от 06.09.2024
+
+VA - Autumn Chill 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benson Boone - Beautiful Things (Acoustic) (3:21)
+02. Zach Bryan - Pink Skies (3:14)
+03. Teddy Swims - Lose Control (Strings Version) (3:28)
+04. Dasha - Austin (Boots Stop Workin') (Stripped) (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF75D28994A3F665F9EBE6647BF452C6B5E8D9A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747624   (104703) от 06.09.2024
+
+The Cardigans - The Rest Of The Best (2024) Vol. 2 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War (3:56)
+02. Deuce (3:33)
+03. Das Model ('00) (2:55)
+04. For What It's Worth (Polar Session '01) (4:15)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CACDC46138E38ACF60384D4ECFFF9FBB2A6C714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747671   (104660) от 07.09.2024
+
+Niall Horan - The Show: Live On Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice To Meet Ya (Live From Łódź, Poland) [00:04:39]
+02. Save My Life (Live From Tampa) [00:03:14]
+03. Heartbreak Weather (Live From Dublin) [00:03:34]
+04. You Could Start A Cult (Live From Tokyo) [00:03:01](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37BB554110EDC1C83AE5DA1AB7B395D44C71EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747663   (104646) от 07.09.2024
 
 Camila Cabello - C,XOXO (2024) Magic City Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -601,157 +746,6 @@ Luther Vandross - Never Too Much: Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D4918FF6F9B65214CCD10A03ECE705F6AC0EA52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765913   (101301) от 15.12.2024
-
-The LA Cowboys - Endless Summer (1993) Reissue, Remastered, 2024, Pride & Joy Music [FLAC|Lossless|image + .cue] <Pop Rock, AOR, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokyo Woman (5:20)
-02. Endless Summer (4:59)
-03. Aubree's Melody (4:38)
-04. Say You Love Me (4:35)(   Читать дальше...   )Жанр: Pop Rock, AOR, Soft RockПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EDD6CA8A8A46636CC02E4B118B6C4EA3B3BCF62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769695   (100617) от 29.12.2024
-
-Teach In - See The Sun (1977) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. See The Sun (Remastered 2024)
-02. (Do You Wanna Play) My Rock And Roll Song (Remastered 2024)
-03. Our Story (Remastered 2024)
-04. Keep On Dancing (Remastered 2024)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0457A4A718E26296299CAA54EC9B3E6BB2BEC316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821879   (91219) от 04.10.2025
-
-Mireille Mathieu - Mon credo (Best Of) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mon crédo (2:51)
-02. Une histoire d'amour (Love Story) (3:00)
-03. Pardonne-moi ce caprice d'enfant (3:22)
-04. Pourquoi le monde est sans amour (2:53)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 03:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C532A8DF5505679ED3E74C05FED6E3C4FE05191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487577   (90517) от 24.04.2012
-
-Eros Ramazzotti - Eros Best Love Songs (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90517.jpg" />
-</div>
-
-
-###  Подробнее
-
-C 1984 года Eros Ramazzotti выпустил 11 студийных альбомов, один миньон, три сборника, три концертных альбома, а также 35 синглов, каждый из которых имели высокие места в чартах многих европейских стран, а также в Южной и Центральной Америке. Eros Ramazzotti продал больше 40 миллионов записей за свою 25-летнюю карьеру.01 - Stella Gemella
-02 - Più Bella Cosa
-03 - Quasi Amore
-04 - Il Mio Amore Per Te(   Читать дальше...   )Жанр: PopПродолжительность: 02:17:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478196   (86568) от 05.04.2012
-
-Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Is Your Paradise [3:29]
-02. Forever More [4:19]
-03. The Lady In Red [4:17]
-04. Missing You [4:07]
-05. Much More Than This [2:59]
-06. Fatal Hesitation [4:14]
-07. In Love Forever [4:03]
-08. So Beautiful [3:49]
-09. Almays On My Mind [3:24]
-10. Seperate Tables [3:39](   Читать дальше...   )Жанр: PopПродолжительность: 02:37:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

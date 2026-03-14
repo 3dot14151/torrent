@@ -1,3 +1,148 @@
+###  Публикация: 1669476   (172644) от 17.10.2023
+
+Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipped] <Indie Rock, Dream Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172644.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Takedown (00:03:33)
+✧ 02 - Summer Slaughter (00:04:04)
+✧ 03 - Bianca (00:04:12)
+✧ 04 - Bone Dry Dunes (00:03:23)(   Читать дальше...   )Жанр: Indie Rock, Dream PopФормат: PCM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0EF62DE8E88FA13753CA465DF20F32333DA12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598626   (172602) от 17.10.2023
+
+Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ронни Аткинс (имя при рождении - Пол Кристенсен, 16 ноября 1964 года) - датский певец, наиболее известный как соучредитель, ведущий вокалист и основной автор песен хэви-метал группы Pretty Maids2021 - One Shot
+2021 - 4 More Shots (The Acoustics) (EP)
+2022 - Make It Count
+2023 - TrinityЖанр: Hard Rock, Heavy MetalПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D67D9705AEE695FE8DEBAE596892AD2401AAE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669555   (172592) от 17.10.2023
+
+Guns N' Roses - Studio Albums (4 releases) (1991-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Guns N’ Roses — американская хард-рок-группа, сформировавшаяся в 1985 году в Лос-Анджелесе, штат Калифорния.1991 - Use Your Illusion I
+1991 - Use Your Illusion II
+1993 - The Spaghetti Incident
+2008 - Chinese DemocracyЖанр: Hard Rock, Heavy MetalПродолжительность: 00:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B782358CD196C28E1086295ACB91B7C98B18E967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670192   (172337) от 19.10.2023
+
+Ice Nine Kills - Welcome To Horrorwood: Under Fire (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Post-hardcore, Alternative-metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Night… (0:43)
+02. Welcome To Horrorwood (3:55)
+03. A Rash Decision (3:31)
+04. Assault & Batteries (3:28)(   Читать дальше...   )Жанр: Metalcore, Post-hardcore, Alternative-metalПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9695C2B35A8B9D12E9FAC332AA04EAB001F39A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669873   (172323) от 19.10.2023
+
+Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <House, Dance-Pop, Indie-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romy - Loveher (03:49)
+02. Romy - Weightless (04:29)
+03. Romy - The Sea (03:11)
+04. Romy - One Last Try (02:42)(   Читать дальше...   )Жанр: House, Dance-Pop, Indie-PopПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A29B53BACA6D81B5E0D1A6CAA16759F87F2DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670127   (172252) от 19.10.2023
 
 The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock>
@@ -597,151 +742,6 @@ Beartooth - The Surface (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D95C5B1121569FBF03E8CE36B88A281CF50A72AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670938   (171514) от 23.10.2023
-
-Lynch Mob - Babylon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erase [00:05:26]
-02. Time After Time [00:04:58]
-03. Caught Up [00:04:37]
-04. I'm Ready [00:04:07](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2484D9E46EB91C265AF2CA97AA32F905F8DEFEEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671068   (171506) от 23.10.2023
-
-Черный Кофе - Два альбома: Переступи Порог и Вольному — Воля (1987, 1990) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171506.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Брожу По Городу Один • Roaming The City Alone
-(Д. Варшавский – А. Шаганов)
-A2 Вольному — Воля... • Life Never Waits
-(Д. Варшавский – А. Шаганов)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719BAB39F16E7BDF1F772CB3C05818C9E3E5BB87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671419   (171420) от 24.10.2023
-
-Martin Solveig - Back To Life (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Wanna Work [00:02:35]
-02. Coffee At Tiffany's [00:03:25]
-03. Lost [00:02:48]
-04. Bite Size [00:04:25](   Читать дальше...   )Жанр: DanceПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E807CC356A4C7424612DF48C4205E484151F2B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671626   (171235) от 25.10.2023
-
-Death - Human (1991) Reissue 2021, Relapse Records [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171235.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Flattening Of Emotions
-A2 Suicide Machine
-A3 Together As One
-A4 Secret Face(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE311C7FF8BB2A7F2ED42C507E7132C9BCFEB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671693   (171225) от 25.10.2023
-
-Gorefest (& The 11th Hour) - Studio Albums (9 releases) (1991-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal; Death 'n' Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gorefest — нидерландская дэт-метал группа, образованная в сентябре 1989 года, в провинции Зеландия.1991 - Mindloss
-1992 - False
-1994 - Erase
-1996 - Soul SurvivorЖанр: Death Metal; Death 'n' RollПродолжительность: 08:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BCB5A49FB354AE7678DC39DF60E2076FCB756D
 ```
 
 https://mybot314.ru/tekegram_catalog/

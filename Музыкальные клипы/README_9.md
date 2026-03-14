@@ -1,3 +1,189 @@
+###  Публикация: 637496   (898347) от 01.04.2013
+
+Marios Brasil - Sem Para (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE87D607FFD3B9C412BD033B45B6D34F5CA8CDCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637679   (897988) от 01.04.2013
+
+Depeche Mode - Soothe My Soul (Uncensored) (2013) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SynthpopПродолжительность: 00:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF157448A30B02318E3265AFBFEE0D81FE01D4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370467   (896861) от 27.03.2020
+
+Welicoruss - Siberian Heathen Horde (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Welicoruss - Siberian Heathen HordeЖанр: Symphonic Black MetalПродолжительность: 00:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA077C0DA401DE771FFA7DB0074270AD8EF1BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370383   (896789) от 27.03.2020
+
+Kreator - 666 - World Divided (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kreator - 666 - World DividedПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC16AC00C258849B28DD85D03CAEB3A7A2FE55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370470   (896755) от 27.03.2020
+
+Lamb of God - Checkmate, Memento Mori (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lamb of God - Checkmate
+02 Lamb of God - Memento MoriЖанр: Groove, Thrash MetalПродолжительность: 00:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D66975C97CA63888DA65F9F302826F4CC64D765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370055   (896555) от 27.03.2020
+
+Die Antwoord - 23 Music Videos (2009-2020) WEBRip [VP9/H.264/2160p/1080p/720p/480p/360p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2009 Die Antwoord - Zef Side [1080p]
+002 2010 Die Antwoord - $copie (Live) [720p]
+003 2010 Die Antwoord - $o$ (Gorillaz' Stylo ) [720p]
+004 2010 Die Antwoord - Enter The Ninja (Explicit Version) [480](   Читать дальше...   )Производство: Left Post ProductionЖанр: Alternative Hip-Hop, Electronic, Experimental, TrapПродолжительность: 01:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF5A025C17C6050E41A285369C290DAF8A3F28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370150   (896543) от 27.03.2020
+
+Эдуард Суровый - Love Of Russian Man (1974) remastered 2020 WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдуард Суровый - Love Of Russian Man (1974) Remastered 2020Производство: Россия, ТНТЖанр: PopРежиссер: SMM & DigitalАктеры: Эдуард СуровыйПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00827CC7DA01D48D0352E494E8D17A4099D690E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637492   (894922) от 03.04.2013
 
 Anna Cyzon - Into The Sun (2013) WEBRip [H.264/720p]
@@ -513,194 +699,6 @@ NikitA - Avocado (2012) WEBRip [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF17BF7C87935FAC6980F64D364838104E2FBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 296892   (885256) от 19.02.2011
-
-Агата Кристи - Сборник видеоклипов (1993-2003)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75130B978045A3B8804181DAA973A7C0127A4A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995213   (884290) от 11.03.2016
-
-History of Rock (2016) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884290.jpg" />
-</div>
-
-
-###  Подробнее
-
-A History of Rock за 15 минут. 348 рок звёзд, 84 гитариста, 64 песни, 44 ударника, в одном клипе!Производство: 00:49:25Жанр: RockРежиссер: Ithaca AudioПродолжительность: 00:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43FC0F1B877CAC8CB25B3951883AFCF24DB5708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372669   (883628) от 04.04.2020
-
-Testament - Children Of The Next Level (2020) WEBRip [VP9/2160p-LQ] <Thrash, Heavy Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Testament - Children Of The Next Level (2160) PCMПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8265FC9DCCB4E9CA444D1A61FDABD9EC1CFF02CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372777   (883626) от 04.04.2020
-
-Hocico - 6 Music Videos (2008-2019) WEBRip [VP9/H.264/2160p/1080p/480p-LQ] <EBM, Dark Electro>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883626.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2008 Hocico - Drowning - Banned (480)
-002 2009 Hocico - Born To Be (Hated) (Metetelo Por El Culo) (480)
-003 2011 Hocico - Bite Me! (1080)
-004 2015 Hocico - Bienvenido A La Maldad (1080)(   Читать дальше...   )Производство: Out Of LineЖанр: Aggrotech, EBM, Dark Electro, Electro-IndustrialПродолжительность: 00:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE9B8DF6AE67E058A3E5362ADD4324810DB1B6FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 118791   (883304) от 24.03.2010
-
-Drum'n'Bass Clips. Коллекция музыкальных драм'н'бэйс клипов. (Обновлён 24.03.2010) DVDRip, SATRip (158 клипов)
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Drum'n'Bass / JungleФормат: AVI, MPG, MKV, WMV, MOV
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641931   (881012) от 10.04.2013
-
-Sarah Brightman - Angel (2012) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D296AD8290D0C9A1D53B022FD5594F30D4465D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642092   (880802) от 10.04.2013
-
-Сборник клипов - VA - Various Music part. 41 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alyona Lanskaya - Solayoh (Belarus) 2013 Eurovision Song Contest 1080p (3:07)
-2. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like 1080p (4:09)
-3. BAZUKA - Good For Me 720p (2:53)
-4. BAZUKA - Suck My Ass 720p (2:46)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8738D5E68BF365811D3D237D7A24D143533DE37C
 ```
 
 https://mybot314.ru/tekegram_catalog/

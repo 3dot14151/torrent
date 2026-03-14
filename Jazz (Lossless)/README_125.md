@@ -1,3 +1,90 @@
+###  Публикация: 1293502   (635676) от 04.04.2019
+
+Seamus Blake - Guardians Of The Heart Machine (2019) [FLAC|Lossless|tracks + .cue] <Post Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guardians of the Heart Machine [8:17]
+02. Vaporbabe [7:10]
+03. Sneaky D [6:55]
+04. I'm Okay [7:41](   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE1B27787DE964B8B3DBED61EAF4A6C1B5B6589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143684   (635519) от 18.06.2017
+
+Jorge Pardo - Cafe Latino 25 Aniversario (2012) Nuta Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La del Pulpo [14:02]
+02. Intro Cafe Latino [02:42]
+03. Amor Ascensor [09:38]
+04. El Efecto Centolla [09:21](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 01:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D360290E9A8BC9E3369B479568926334716A0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034303   (634366) от 13.07.2016
+
+Lee Konitz - The Complete 1956 Quartets (1956, 1957) 2CD, 2010, American Jazz Classics[FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634366.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.The Nearness Of You [05:15]
+02.Like Someone In Love [05:32]
+03.Don't Explain [03:01](   Читать дальше...   )Жанр: CoolПродолжительность: 01:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:649B7F1036EEF02195732B8EC62342DD7602A09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908441   (634254) от 14.06.2015
 
 Yves Rousseau 4tet - Akasha (2015) [FLAC|Lossless|WEB-DL]<Contemporary Jazz, Modern Creative>
@@ -658,93 +745,6 @@ Joey DeFrancesco - In The Key Of The Universe (2019) Mack Avenue [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A898D11B6046138441D7D24636CEF85DFEA06331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294132   (630102) от 07.04.2019
-
-Tal Farlow - Three Classic Albums Plus (1954 - 1959) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630102.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I Like To Recognise The Tune [3:14]
-02. Strike Up The Band [3:30]
-03. Autumn In New York [5:07](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 02:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D59940C25A62ED812D3D29680C8D678DE6D0FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294096   (630100) от 07.04.2019
-
-Matthew Shipp Trio and Nicole Mitchell - All Things Are (2019) [FLAC|Lossless|tracks + .cue] <Free Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630100.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Elements (07:25)
-2. Well Spring (05:12)
-3. It (06:12)
-4. Hidden Essence (05:19)(   Читать дальше...   )Жанр: Free Jazz, Contemporary JazzПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26FDC452369842929E0740EDBBEC688DA7654559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294273   (630098) от 07.04.2019
-
-Peggy Lee - A Portrait of Peggy Lee 1941-1942 (1986) Sony [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elmer's Tune [2:54]
-02. That's the Way It Goes [3:14]
-03. I Got It Bad and That Ain't Good [3:18]
-04. My Old Flame [3:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FD3F75067B00AF78C358FFAE34CF6EE04842C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

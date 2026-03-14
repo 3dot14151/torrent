@@ -1,3 +1,90 @@
+###  Публикация: 1684126   (127939) от 14.12.2023
+
+Toshiko Akiyoshi-Lew Tabackin Big Band - Sumi-e (1979) 1986, Insights [FLAC|Lossless|tracks + .cue] <Modern Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sumi-e [7:59]
+02. A-10-205932 [10:07]
+03. A-10-205932 (alternate take) [9:57]
+04. Hangin' Loose [8:50](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF0712874D5921EA3F21790F962743D695DE88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684410   (127777) от 15.12.2023
+
+Monty Alexander - Facets (1979) 1991, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Johnny Comes Marching Home [6:10]
+02. Lost April [5:53]
+03. I'm Walkin' [4:09]
+04. Hard Times [5:22](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B926EACD7EF13790E7A1E9EACBF47D0613D5451B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684411   (127774) от 15.12.2023
+
+The Howard Alden Trio - Plus Special Guests Ken Peplowski & Warren Vache (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Showed Me the Way [4:35]
+02. Purple Gazelle [4:20]
+03. Where Are You? [6:50]
+04. Douce Ambiance [4:27](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD647050AB553EB2AD08A7E186B7E1E7D97ED58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684404   (127773) от 15.12.2023
 
 Phil Woods, Vincent Herring, Antonio Hart - Alto Summit (1996) Milestone [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
@@ -658,93 +745,6 @@ Toshiko Akiyoshi Jazz Orchestra featuring Lew Tabackin - Last Live In Blue Note 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:019219B990C503EF7F321B87EF5D9EBBD6880E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685323   (126919) от 20.12.2023
-
-VA - Un poquito de Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seal - Anyone Who Knows What Love Is (4:31)
-02. Seth MacFarlane - If I Had A Talking Picture Of You (3:06)
-03. Al Jarreau - Someday (4:10)
-04. Tony Bennett - I Got Rhythm (1:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15CDC9168BC406B363C5D544680F8E1C2D24AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685833   (126887) от 20.12.2023
-
-Christian Sands - Christmas Stories (2023) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bells [5:52]
-02. Let It Snow! Let It Snow! Let It Snow! (feat. Jimmy Greene) [4:38]
-03. Have Yourself a Merry Little Christmas [4:49]
-04. God Rest Ye Merry Gentlemen (feat. Keita Ogawa) [5:45](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C70F55D5EAFCE786996212F0CF38C4C3BFA95BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685841   (126883) от 20.12.2023
-
-George Gee Swing Orchestra - Winter Wonderland (2023) Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Wonderland Mambo [3:25]
-02. What Child Is This? [5:16]
-03. Have Yourself a Merry Little Christmas [3:36]
-04. God Rest Ye Merry, Gentlemen [5:54](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5188D509535CEE5AA4A1D82D56CAF192E7A7DDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

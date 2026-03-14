@@ -1,3 +1,32 @@
+###  Публикация: 1076323   (314042) от 25.11.2016
+
+VA - Радио Рекорд - Record Club за 23.11.2016 [MP3|320 Kbps] <Electronic, House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Angello, Still Young - Follow Me
+02. Abel Ramos, Albert Neve - Party
+03. Amersy - Rise
+04. Merk & Kremont - CIAO(   Читать дальше...   )Жанр: Electronic, House, TechnoПродолжительность: 05:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D98247780CD6FC2226CE718020C11696101862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260015   (314025) от 06.11.2018
 
 VA - Soulful House & Chillout from 2000 to 2017 [Re-compiled by Firstlast] (2018) [MP3|192-320 Kbps] <Chillout, Deep House, Funky House>
@@ -738,35 +767,6 @@ VA - EDM Heartbeat Extended Mix (2019) [MP3|320 Kbps] <Club, Dance, Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70804D57B9C545D0BA31FD1BB7FB62C6D3495D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332880   (309722) от 22.10.2019
-
-VA - Mushrooms Of Psychedelic, Vol.02 (2019) [MP3|320 Kbps] <Psy Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Tone - Physical Sounds (Original Mix)
-02. Wave Funktion - Alien Conduit
-03. Norma Project - Heart Of Stone
-04. E-Beiz - Enigma(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 09:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3716D50CE39A4029C35C5363D44574AB46EAAC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

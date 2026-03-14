@@ -1,3 +1,148 @@
+###  Публикация: 1802547   (66008) от 18.06.2025
+
+Darkness - Conclusion & Revival (2025) Remaster [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conclusion and Revival (Remastered) [00:02:56]
+02. Soldiers (Remastered) [00:04:29]
+03. The Omniscient (Remastered) [00:03:52]
+04. Under Control (Remastered) [00:04:26](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11620FD46B870DC363453B87C80871FD56B56292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802580   (66006) от 18.06.2025
+
+AJ Tracey - Don't Die Before You're Dead (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Outta Sight [2:01]
+02 - Second Nature [2:46]
+03 - 3rd Time Lucky [2:40]
+04 - Crush [3:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CF67A4A4BCD5FD9391F34B456D20A38DCE1947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802832   (65984) от 19.06.2025
+
+VA - Cutterpillow: Tribute Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Amateurish - Superproxy (6:27)
+02.  Diego's Scenes - Back2Me (3:36)
+03.  Mi Mì - Waiting for the Bus (4:50)
+04.  Sansette - Fine Time (4:23)(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264BC5C72A2B2535587E5F182FD57A9C17DDB326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802795   (65982) от 19.06.2025
+
+Around The World in 80 Days - Euphoria (2014) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Rock, Ambient, Space-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Last War [5:40]
+02 - Shock [3:15]
+03 - Gravity [5:40]
+04 - Racing The Light [3:35](   Читать дальше...   )Жанр: Post-Rock, Ambient, Space-RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483A4250A786C69787934AC01BC166BA2F6CB072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802829   (65981) от 19.06.2025
+
+Electric Church - Used and Abused (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Superstar (5:30)
+02.  On the Run (3:29)
+03.  Devil's Creek (4:52)
+04.  Lovin' Man (3:59)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9371E5D9F85E2406F2DB16C13C7A6767006F57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802707   (65980) от 19.06.2025
 
 Marturos - Messages to the Future (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -597,151 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8C63344E27B7670B817FF8D1ADDB9C08E18E0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803510   (65825) от 24.06.2025
-
-Yungblud - Idols (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. YUNGBLUD - Hello Heaven, Hello (9:06)
-02. YUNGBLUD - Idols Pt. I (3:35)
-03. YUNGBLUD - Lovesick Lullaby (2:55)
-04. YUNGBLUD - Zombie (4:07)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90938923AA0284C8043EA6692473ABD820614456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803689   (65824) от 24.06.2025
-
-Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Miracle [00:05:38]
-02. Stormy [00:04:26]
-03. Chandelier [00:04:58]
-04. Don't Fool Me [00:04:39](   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562177693562F70CA2D90ED7006D3AC8ABA83D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803622   (65814) от 24.06.2025
-
-Soulfly - Savages (2013)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Groove, Thrash, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65814.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Bloodshed
-A2 Cannibal Holocaust
-A3 Fallen
-B1 Ayatollah Of Rock ‘N’ Rolla(   Читать дальше...   )Жанр: Groove, Thrash, Death MetalПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B089E19E407AC3C4D84B16E0B1D285AAEFE379D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803620   (65813) от 24.06.2025
-
-Veil Of Conspiracy (ex-Astral Domine) - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal with Doom influences>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Veil Of Conspiracy - итальянская метал-группа из Рима, основана в 2011 году как Astral Domine и сменившая имя на Veil Of Conspiracy в 2016 году.2014 - Arcanum Gloriae (as Astral Domine)
-2019 - Me, Us And Them
-2021 - Echoes of Winter
-2025 - Shape of GriefЖанр: Progressive Metal with Doom influencesПродолжительность: 03:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B1D04C4450CF5E167EDCF642FEFDF4D38795B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803974   (65747) от 26.06.2025
-
-Sodom - The Arsonist (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Arsonist (1:03)
-02. Battle Of Harvest Moon (4:12)
-03. Trigger Discipline (3:52)
-04. The Spirits That I Called (2:58)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6F24C5FD1A4DA5E88D33EE29711C49C6FEE4B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

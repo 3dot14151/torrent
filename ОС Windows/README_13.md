@@ -1,3 +1,136 @@
+###  Публикация: 1403457   (690016) от 20.08.2020
+
+Microsoft Windows 10.0.19041.450 Version 2004 (Updated Aug 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.450.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8530C2E09A9943F9EEEC25DDF54E0277546AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403452   (690006) от 20.08.2020
+
+Windows Server 2019 LTSC Version 1809 Build 17763.1397 (Updated Aug 2020) Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операционные системы в канале LTSС ориентированы на традиционные рабочие нагрузки (файловые сервера, сервера приложений, инфраструктурные роли и т.п.). Текущей редакцией для канала LTSC является Windows Server 2019. Выпуски LTSC доступны всем пользователям, независимо от применяемой модели лицензирования. Установка системы возможна в режиме ядра (Server Core) и в (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6DCFE122259D3139E9FAC422A078F33016906C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289027   (689681) от 14.03.2019
+
+Microsoft Windows 10.0.17763.316 Enterprise LTSC Version 1809 (Updated March 2019) - Оригинальные образы от Microsoft MSDN=VLSC [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы - Windows 10 Enterprise LTSC Version 1809 Build 17763.316
+Windows 10 «Корпоративная с долгосрочным обслуживанием» (англ. Enterprise LTSC, ранее — Enterprise LTSB) — специальный вариант «Корпоративной», отличается от остальных редакций долгосрочной поддержкой одной версии и отсутствием Магазина и UWP приложений (кроме приложения «Параметры»).Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527ED958E7B901B78BC260DD0BB7364C71D7D403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403459   (687894) от 21.08.2020
+
+Windows Server, Version 2004 (10.0.19041.450) (Updated Aug 2020) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27511EEA3A2C6D7F849CE61372C83CC9DFA7E85B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403458   (687883) от 21.08.2020
+
+Microsoft Windows 10.0.19041.450 Version 2004 (Updated Aug 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.450.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970AD7C20A4E0BE1510D79CC2AE1F8FB14D50A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289010   (687717) от 15.03.2019
 
 Microsoft Windows 10.0.17763.316 Enterprise LTSC Version 1809 (Updated March 2019) - Оригинальные образы от Microsoft MSDN=VLSC [Ru]
@@ -567,144 +700,6 @@ Redstone_5 ex-RTM Build: 17763.1.rs5_release.180914-1434 + March 12, 2019 Cumula
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4018C62ECC454BC862D0D0168A337FD533F9B8EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906902   (640940) от 10.06.2015
-
-Microsoft Windows 7 Enterprise with SP1 x86 Updated (12.05.2011) - Оригинальные образы от Microsoft MSDN [Multi/Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 7 с интегрированным пакетом обновления SP1. Пакет обновления 1 (SP1) для Windows 7* и содержит ранее выпущенные обновления, распространявшиеся через Центр обновления Windows, а также добавочные обновления для указанных платформ. Что такое "U" в названиях образов? Почему появились новые образы? Это обновленные образы. Отличие: "This media refresh (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8BA9F86F05FD8D74D7AEABB89377BD0EF7D1798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908747   (629134) от 16.06.2015
-
-Recovery Partition for Samsung NP300V5A / NP300E5A / NP300E5Z Win7 HB x64 Windows 7 Home Basic [Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образ скрытого раздела SAMSUNG_REC в формате .GHO (Norton Ghost) для восстановления предустановленной системы после различных сбоев.
-Образ снят с ноутбука Samsung NP300V5A-S1BRU (мат плата Scala3-15/Petronas-15) программой Ghost 11.5
-В скрытом разделе используется система Samsung Recovery Solution 5Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47DED94DBB985D24039F2353D9555E13D8D70593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037263   (614997) от 23.07.2016
-
-Recovery USB-Flash for Lenovo B5010 / Windows 10 Home (х64) [Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614997.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Lenovo_B5010_W10.tib,
-записанный на ноутбуке Lenovo B5010 (80qr004krk) с помощью программы Windows Media Creator.
-Образ флешки создан программой Acronis True Image Home 2013.
-Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF0A10022C84BC417E7DCF85B4B0194EB4B52AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545500   (614689) от 19.04.2022
-
-Microsoft Windows 10.0.19042.1645, Version 20H2 (Updated April 2022) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 October 2020 Update (под кодовым названием "20H2") является десятым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за май 2020 года и имеет номер сборки 10.0.19042.
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1645.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1FD8908637C10A024DEAA56098A290021144B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545502   (614575) от 19.04.2022
-
-Windows Server, Version 20H2 (10.0.19042.1645) (Updated April 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17DBF6D29ED7F1B285ED8F980233EC0511E0832
 ```
 
 https://mybot314.ru/tekegram_catalog/

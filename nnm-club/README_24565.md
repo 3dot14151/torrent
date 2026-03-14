@@ -1,22 +1,22 @@
-###  Публикация: 1793919   (67401) от 27.04.2025
+###  Публикация: 1787353   (68798) от 25.03.2025
 
-Растровый клипарт - Artnoy - Creative Fabrica - Blur Gradient Digital Paper Background [JPG]
+Журнал | Трудовые споры №3 (243) (март 2025) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67401.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Размытые градиентные фоны.Формат: JPGРазрешение файлов: 3600 x 3600 - 3601 x 3601
+Трудовые споры — это журнал о разрешении трудовых конфликтов. В каждом номере — десятки разобранных до мелочей трудовых споров, секреты оформления документов, пошаговые алгоритмы проведения кадровых процедур, оценка рисков работодателя, аргументы для того, чтобы выиграть спор в суде.Жанр: Популярный журналИздательство: ООО "Актион Цифровое издательство"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85AD223F67C93C89A235C54D1B3E82C1C8EBF734
+magnet:?xt=urn:btih:AA24AF1E4F6AF54F737F5F6940C01D0608321A50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793911   (67400) от 27.04.2025
+###  Публикация: 1787416   (68797) от 25.03.2025
 
-Паттерны - Free PSD Templates - Butterfly Patterns [JPG, PNG, AI, PSD, EPS]
+Журнал | Профиль №11-12 (250) (март 2025) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67400.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные узоры с бабочками в векторе и растре.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 500 x 500 - 2084 x 2084
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3804A320AE9193185A3D8685BDC073BFE2FE98BA
+magnet:?xt=urn:btih:5A655EDAF26CD7C5B48B9362272A6DBB41015265
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,239 +51,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793949   (67399) от 27.04.2025
+###  Публикация: 1787452   (68796) от 25.03.2025
 
-Хороший человек, хороший день / Kojin kojitsu / A Good Man, A Good Day (1961) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессора Одзэки все считают чудаком, жена привыкла к его странностям. Они вырастили красавицу-дочку, которую удочерили много лет назад. Теперь ей пора выходить замуж, но знатную семью жениха не устраивает родство с таким сомнительным человеком. Действие происходит в древнем городе Нара.Производство: Япония / Shochiku OfunaЖанр: драмаРежиссер: Минору СибуяАктеры: Тисю Рю, Сима Ивасита, Тикагэ Авасима, Юсукэ Кавадзу, Таниэ Китабаяси, Нобуко Отова, Норихэй МикиПеревод: Двуголосый любительский (Сергей Гост & LaVanda)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C1EC67B726F3C6EDAE84F5CCCD472712A2A962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793979   (67398) от 27.04.2025
-
-Хороший человек, хороший день / Kojin kojitsu / A Good Man, A Good Day (1961) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессора Одзэки все считают чудаком, жена привыкла к его странностям. Они вырастили красавицу-дочку, которую удочерили много лет назад. Теперь ей пора выходить замуж, но знатную семью жениха не устраивает родство с таким сомнительным человеком. Действие происходит в древнем городе Нара.Производство: Япония / Shochiku OfunaЖанр: драмаРежиссер: Минору СибуяАктеры: Тисю Рю, Сима Ивасита, Тикагэ Авасима, Юсукэ Кавадзу, Таниэ Китабаяси, Нобуко Отова, Норихэй МикиПеревод: Двуголосый любительский (Сергей Гост & LaVand)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77CDE0E959C6D55A32CC7204329EC76EF1D1363F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793924   (67397) от 27.04.2025
-
-Паттерны - Free PSD Templates - Christmas Sweater Patterns [PNG, AI, PSD, EPS, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные Рождественские узоры.Формат: PNG, AI, PSD, EPS, SVGРазрешение файлов: 1043 x 1043
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809039E652D7BE727ECCCE17B26E6B40C62C2266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794180   (67396) от 27.04.2025
-
-Паттерны -  Free PSD Templates - Wedding Patterns Set [JPG, PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный набор свадебных узоров.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2084
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA318803E5FA939BE70085539D8E746D095F9CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793992   (67395) от 27.04.2025
-
-Джейсон Дель Рей | Победитель продает всё (2024) [MP3, Илья Дементьев]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67395.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение многих лет компании Walmart и Amazon работали в разных сферах: одна была крупнейшим физическим ретейлером, другая – онлайн-гигантом. Но в 2016 году Walmart агрессивно вторглась в мир электронной коммерции, а Amazon сделала ставку на физическую розничную торговлю. Это противостояние вылилось в беспощадную схватку за власть, в которой каждый титан пытается (   Читать дальше...   )Жанр: БизнесИздательство: Азбука-АттикусПродолжительность: 11:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6EEA5D775AAE6E6F873AF04895A27BBCA890FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794165   (67394) от 27.04.2025
-
-Epica - Aspiral (2025) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cross The Divide (04:18)
- 02. Arcana (05:02)
- 03. Darkness Dies In Light - A New Age Dawns Part VII - (07:59)
- 04. Obsidian Heart (05:05)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F249DAFB20CF5AA46379EC02389F386D917EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793901   (67393) от 27.04.2025
-
-Паттерны - Free PSD Templates - Animal Skin Patterns Set [PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор узоров в виде шкур животных.Формат: PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E578E87C4544F5C821D1A8E71A7B2E46D1C622A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793914   (67392) от 27.04.2025
-
-Паттерны - Free PSD Templates - Autumn Patterns Set [PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные осенние узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2085
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0446321DADB4BB8CFC12D069227E465B72230CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793954   (67391) от 27.04.2025
-
-VA - Earthbound Collection 2025 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo, Progressive House>
+VA - Ibiza Spring 2025 (Chill out Cookies from the Heart) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67391.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pavlov, Tibetania - Velvet Mirage (Original Mix) (5:58)
-02. Tibetania, Jennifer Dons - Eleggua (Original Mix) (5:55)
-03. Tibetania, 4Moon Music - Yio Yio (Original Mix) (6:39)
-04. Tibetania, DJ Samuel Akram - Spirit of Hato (Original Mix) (5:25)(   Читать дальше...   )Жанр: Organic House, Downtempo, Progressive HouseПродолжительность: 01:28:04
+01.  Francesco Diaz; Karl Frierson - Say a Little Prayer (A Secret Prayer's Concert Mix) (02:04)
+ 02.  CaPa - I've Chosen You (Reprise) (02:20)
+ 03.  San Dakla - Rainy Day (Smooth Mix) (03:23)
+ 04.  Luis Hermandez - Chill Coast (03:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20FD8DB5A325F5EB2DEFA0C0155EBCD5693A4DC1
+magnet:?xt=urn:btih:0E21D1F004BF1598DF7E1A44D4B5EE5E2A84BA7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,25 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793892   (67390) от 27.04.2025
+###  Публикация: 1787457   (68795) от 25.03.2025
 
-Паттерны - Free-PSD-Templates - Marine Seamless Pattern Vector Collection [PNG, AI, PSD]
+Marina Kapuro (Марина Капуро) - Happy New Year (2024) [MP3|320 Kbps] <Pop>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67390.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные бесшовные узоры на морскую тему.Формат: PNG, AI, PSDРазрешение файлов: 4167 x 4167
+01. Waterloo (2:55)
+02. Mamma Mia (3:36)
+03. Knowing Me, Knowing You (3:40)
+04. I Have a Dream (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22A85B9D53F3E46BF304F0FDDC0BDF2AF356414C
+magnet:?xt=urn:btih:AA872A5E9AB9928BE4304A74364E62BB96391900
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,25 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793909   (67389) от 27.04.2025
+###  Публикация: 1787500   (68794) от 25.03.2025
 
-Паттерны - Free PSD Templates - Seamless Vintage Patterns [PNG, AI, PSD]
+VA - I Love ZYX Italo Disco Collection 4 (2006) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67389.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные бесшовные винтажные узоры.Формат: PNG, AI, PSDРазрешение файлов: 2668 x 2669 - 2683 x 2683
+01. Silent Circle - Danger Danger
+02. Scotch - Pictures
+03. Brian Ice - Over Again
+04. K.B. Caps - Do You Realy Need Me(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:24:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB160C68EEFCCDB80705A864AAAE236CE0708270
+magnet:?xt=urn:btih:7B98F31C9C842B2EC68B6FFBFBA3400C0B0A1FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,334 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793837   (67388) от 27.04.2025
+###  Публикация: 1787373   (68793) от 25.03.2025
 
-Super Lovers II | Больше, чем возлюбленные 2 [2017, TV, 10 из 10 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Покинув Канаду, чтобы переехать к Хару, Рэн наконец-то привык к жизни младшего из четырех братьев, и новое кафе Хару начало процветать... когда появилась их мать, Харука, и сказала, что берет Рэна с собой в Швейцарию! Шок от ее внезапного заявления как раз тогда, когда Хару и Рэн начали сближаться, привел к увеличению разногласий между ними. Неужели на горизонте (   Читать дальше...   )Производство: Studio DeenЖанр: комедия, романтика, повседневность, сёнэн-айРежиссер: Исихира СиндзиПеревод: SovetRomanticaОзвучка: OriginalЯзык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 10 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA90F853C3E837FE9565A01D44FE8D2E0E29471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793895   (67387) от 27.04.2025
-
-Паттерны - Free PSD Templates - African Patterns [PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные Африканские узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 776 x 776
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD9DC507F0D714DA41689CC129AF91A60C042795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793916   (67386) от 27.04.2025
-
-Паттерны - Free PSD Templates - Botanical Pattern Set [JPG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный набор ботанических паттернов в векторе и растре.Формат: JPG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2085
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19585A72F32D3A4E19CC68DF40E68EE0D87EBAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794082   (67385) от 27.04.2025
-
-Steve Howell & The Mighty Men - Yeah Man (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Long Lonesome Blues (3:55)
-02.  Yeah Man (4:09)
-03.  20% Alcohol (4:33)
-04.  One Mint Julep (2:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEF6A65D36D2F3AF74B492D33BC01E3C367BA63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794129   (67384) от 27.04.2025
-
-The Damn Truth - The Damn Truth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Be Somebody (3:46)
-02.  I Just Gotta Let You KnowЖанр: Classic Rock, Hard RockПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44EC128ADC52D41093665DA07EADB8B3612A510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794049   (67383) от 27.04.2025
-
-Skyla Owen - In My Dreams (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Endless Skies (3:31)
-02.  Every Touch Sparks A Fire Inside (3:31)
-03.  In My Dreams (2:40)
-04.  Love's Melody (2:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8A17397185D73F20D2A1724E00E8CDDDC3356B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794005   (67382) от 27.04.2025
-
-Brainstorm - Wall of Skulls (2021) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Walls....
-A1 Chamber Thirteen
-A2 Where Ravens Fly
-A3 Solitude(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AFE8A4F6945AFD155594B02F3F8C310A88B5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793702   (67381) от 27.04.2025
-
-Game Over - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Game Over - итальянская треш-метал-группа, основана в 2008 году.2012 - For Humanity
-2014 - Burst into the Quiet
-2016 - Crimes Against Reality
-2017 - Claiming SupremacyЖанр: Thrash MetalПродолжительность: 03:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A6567E962642C3F866FBED60522F4FEC33894C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794130   (67380) от 27.04.2025
-
-Travellin' Blue - Take The Edge Off (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Better Left Unsaid (3:45)
-02.  No Gooder (4:00)
-03.  The Closer is King (4:42)
-04.  Down The Rabbit Hole (1:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA55A904EBF305F37E0697A54543BD1F97B58FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794036   (67379) от 27.04.2025
-
-AkiaveL - InVictus (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Oozing Concrete
-02 - Membrane
-03 - Daddy Defiled Me
-04 - Captured Alive(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B3DD83975464FB0EAE220FD2559EAADBA9A071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793853   (67378) от 27.04.2025
-
-Через Великий Разлом / Across the Great Divide (1915) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драматическая история Дикого запада. Бандиты задумали ограбить поезд, везущий ценный груз. А для этого вынудить местного телеграфиста спровоцировать железнодорожную катастрофу. А если телеграфист больше не ценит свою жизнь и не боится смерти?...
-на первом скрине какая милашка...Производство: США / Edison CompanyЖанр: короткометражный, вестерн, немое киноРежиссер: Эдвард С. ТейлорАктеры: Джордж А. Райт, Bessie Learn, Фрэнк МакГлинн ст.Перевод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38CC767E028CB50C0BC941E37950C40D43E9AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794007   (67377) от 27.04.2025
-
-Michel Legrand - Happy Radio Days (2004) Erato [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Stage & Screen>
+VA - Pop International Hits Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Lounge, Bossa Nova>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67377.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tico Tico [3:42]
-02. Charmaine [2:56]
-03. The Typewriter [1:45]
-04. Where Or When [4:10](   Читать дальше...   )Жанр: Mainstream Jazz, Stage & ScreenПродолжительность: 01:01:00
+01.  Ely Bruna - I Will Always Love You (4:24)
+02.  Danny Bianchi - Eye In The Sky (Francesco Cofano Remix) (4:37)
+03.  Lorenza Gambini - I Say A Little Prayer (3:13)
+04.  Frankie Lovecchio - Body To Body (5:17)(   Читать дальше...   )Жанр: Jazz, Lounge, Bossa NovaПродолжительность: 01:22:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA73CA8385BBD9443710488420943F6BE82066C7
+magnet:?xt=urn:btih:0B5BF93D6C643EDC872622423B05E89962311C63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,28 +167,558 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794045   (67376) от 27.04.2025
+###  Публикация: 1787350   (68792) от 25.03.2025
 
-Sister Suzie - Honestly? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Журнал | Трудовые споры №2 (242) (февраль 2025) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67376.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Another Waste of My Time (3:42)
-02.  Whoopsy Daisy (2:52)
-03.  Time (4:57)
-04.  Whiskey (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:50
+Трудовые споры — это журнал о разрешении трудовых конфликтов. В каждом номере — десятки разобранных до мелочей трудовых споров, секреты оформления документов, пошаговые алгоритмы проведения кадровых процедур, оценка рисков работодателя, аргументы для того, чтобы выиграть спор в суде.Жанр: Популярный журналИздательство: ООО "Актион Цифровое издательство"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AC1E5C44B43D806C6DB3375F42691DCE964F13F
+magnet:?xt=urn:btih:15B3B09E90656680A547BF001A8F4764E07333D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787412   (68791) от 25.03.2025
+
+Ayreon - Into The Electric Castle (A Space Opera) (1998) Released, 2018, Music Theories Recordings [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68791.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Welcome To The New Dimension
+Lyrics By - Peter Daltrey
+A2 - Isis And Osiris
+Lyrics By - Fish(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D2467D9E45962D8740CB9B7320B70B98BD7516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787263   (68790) от 25.03.2025
+
+Моя Родина, моя любовь / Mit Faedreland, min Kaerlighed (1915) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война бушует в Европе. Бравому лейтенанту Тальбургу дают отпуск, чтобы посетить дом своего отца, расположенный на приграничной территории, временно захваченной врагом. Переодевшись, лейтенант тайком пробирается к родительскому дому. По дороге он умудряется спасти жизнь вражескому генералу. Это не только благородно, но и, как оказалось впоследствии, очень практично. (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: военный, короткометражный, драма, немое киноРежиссер: Роберт ДинесенАктеры: Алф Блютехер, Axel Boesen, Эрик Холберг, Фредерик Якобсен, Питер Йоргенсен, Thorleif Lund, Эксел Маттсон, Эбба Томсен, Birger von Cotta-SchonbergПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:284483FF7E00B293C32E32127230671C2E8396AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787510   (68789) от 25.03.2025
+
+Riot V - Armor Of Light (2018) 2xCD, Japanese Edition, Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68789.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Victory
+02. End of the World
+03. Messiah(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2074C7D325B6C253BACC0A211A90263A611CAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787326   (68788) от 25.03.2025
+
+UMC - CHAPTER 4 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Never Be Like You [4:10]
+02 - MONEY ON THE DASH [2:24]
+03 - GIMME LOVE [3:15]
+04 - GREEDY [2:13](   Читать дальше...   )Жанр: Metal, Rock, Metal CoversПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A54C5A279879BFC346100C69679CB134DA57F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787486   (68787) от 25.03.2025
+
+The Sun Or The Moon - Into The Light (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mutant Discotheque (Part 1 - Fear Porn) [00:06:14]
+02. Mutant Discotheque (Part 2 - Alienation Hop) [00:05:17]
+03. Mutant Discotheque (Part 3 - The Circle) [00:04:29]
+04. Into The Light [00:06:23](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB073E499DF3FFE4D860B52058204933167E6B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787333   (68786) от 25.03.2025
+
+Arion - The Light That Burns The Sky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Darkest Day [1:54]
+02 - The Light That Burns The Sky [3:43]
+03 - Like The Phoenix I Will Rise [4:17]
+04 - Wings Of Twilight (feat. Melissa Bonny) [4:31](   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, MetalПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816A23B460AE5890BEC1D8F4CF915D2D87AA209C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787502   (68785) от 25.03.2025
+
+Шрифты - Creative Market - Fluffy Blitz - 2 Graffiti Bubble - 290891824 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с Fluffy Blitz, смелым и игривым шрифтом-пузырем граффити, который привнесет яркую энергию в ваши проекты!
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1403DB962FC484E694CE958B863B6FD522B43EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787378   (68784) от 25.03.2025
+
+VA - Miami Music Week 2025 Sampler (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alfredo Magrini - AYO (03:00)
+02. DJ Miss Smile - Miami Life (04:55)
+03. Kris van Nuffel feat. Jordan Grace - Elly (Extended Mix) (04:03)
+04. DJ Mauritius - Alive (02:37)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3B27E6638EA8DEBF03A453A30D41867B624C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787357   (68783) от 25.03.2025
+
+Шрифты - Silverdav Studio - Heaven Of Love – Hybrid Font [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем шрифт Heaven Of Love , многогранный шрифт с прекрасным и вдохновляющим сочетанием классической каллиграфии и современных засечек, с 3 различными стилями: минималистичный элегантный шрифт с засечками Regular, Italic и гибридный микс каллиграфии и засечек.
+
+Кириллица не поддерживается.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B7AD925FB3AD7CBD36B2C3455F7B7162684C76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787429   (68782) от 25.03.2025
+
+Журнал | Народный доктор №5 (675) (март 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9C7D5CB9BCFC9C15B4DD2D1A3FA10633EA2534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787371   (68781) от 25.03.2025
+
+VA - Nu Urban Jazz Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tallulah Rose - Friends (4:16)
+02.  imprevisti - Boomhut Intro (1:02)
+03.  Gaetano Partipilo - NYC (4:25)
+04.  Luigi Di Nunzio - Space Rain (4:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CAF97EBA74F004C39BEF45A9496B8796F7226F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787504   (68780) от 25.03.2025
+
+Шрифты - Creative Market - Palfian | Brush Solid Script - 290891299 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элегантный, красивый шрифт для ваших творческих задач.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02C479AC558185E0232D5B753AC0A65396374BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787480   (68779) от 25.03.2025
+
+Nachtblut - Todschick (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Von Hass Getrieben [00:04:50]
+02. Todschick [00:03:58]
+03. Nachtgeweiht [00:04:18]
+04. Das Leben Der Anderen [00:03:52](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0868A892B7F2E19CCB37F879EA218B040E493AB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787422   (68778) от 25.03.2025
+
+Шрифты - Font Brothers - Bugleboy [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bugleboy начинался как оцифровка киношного шрифта LetterGraphics в начале 70-х годов, известного как «Wood Grotesk».
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E747D20903401A14C64FFE15C71DCA0FAB2BF42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787334   (68777) от 25.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Secret Code - Free 3D Alphabet - 96764 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в нескольких вариациях.Формат: PNGРазрешение файлов: 3000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9732889B199D849DEA0C08CBB83BAA4284F52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787331   (68776) от 25.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Wooden Deco Wall - Free 3D Alphabet - 96825 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в нескольких вариациях.Формат: PNGРазрешение файлов: 3000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BF8FA8692BB81D7265D3E3CA5C5147E6CA1401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787364   (68775) от 25.03.2025
+
+Nightwish - Oceanborn (1998) Released, 2010, Drakkar Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stargazers
+02. Gethsemane
+03. Devil & the Deep Dark Ocean
+04. Sacrament of Wilderness(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BAB3962A9DA59BA73103FD688889EDE186F52F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787424   (68774) от 25.03.2025
+
+Шрифты - Font Brothers - Fondamento Pro [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fondamento и Fondamento Italic — это каллиграфические стили письма, основанные на традиционном Foundational Hand, базовом стиле обучения, созданном Эдвардом Джонстоном в начале 20-го века.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396A2EC6CA6DDBE18DFD5227FFDB364DC193678A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787362   (68773) от 25.03.2025
+
+Шрифты - MyFonts - PODIUM Sharp [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68773.jpg" />
+</div>
+
+
+###  Подробнее
+
+PODIUM Sharp — это расширенная версия шрифта DUDU, разработанная в 2012 году. После многих лет я решил перестроить и развить этот шрифт, добавив новые основные и насыщенные начертания. Наконец, PODIUM Sharp состоит из 234 стилей: от ультрасжатого волосяного до экстрарасширенного тяжелого.
+
+Кириллица не поддерживается.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3003B601789B9A3236BA11352E2565389843D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

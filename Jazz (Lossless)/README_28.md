@@ -1,3 +1,32 @@
+###  Публикация: 1361170   (955725) от 19.02.2020
+
+Thelonious Monk - The Complete Albums Collection 1957-61 (2015) 5CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955725.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ruby, My Dear [6:23]
+02. Trinkle, Tinkle [6:41]
+03. Off Minor [5:17](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 06:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2453A8450F2EA2DD47893E3670E9F251D8A8ECC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088864   (955173) от 01.01.2017
 
 Barney Kessel - Contemporary Latin Rhythms! (1961) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Cool, West Coast Jazz>
@@ -716,35 +745,6 @@ Shorty Rogers - Courts The Count (1954) Remaster, 2014, Sony Music[FLAC|tracks+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71F91672919FB313140CCBC299EE0D84B56C9698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981952   (950143) от 02.02.2016
-
-Gary Bartz - Shadows (1991) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Marion's Theme [09:50]
- 02.Shadows [12:31]
- 03.Songs Of The Underground Railroad [10:26]
- 04.Peresina [14:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D74434D1E9BC6EF98C4B1BBC4DD93B39C54338
 ```
 
 https://mybot314.ru/tekegram_catalog/

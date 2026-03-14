@@ -1,3 +1,177 @@
+###  Публикация: 1505700   (799945) от 31.10.2021
+
+Marcus Lazarus - How Low Can You Go? (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Keep on Moving (00:04:15)
+02 - Step Away (00:05:04)
+03 - Blind Luck (00:03:42)
+04 - Gonna Need Some Water (00:05:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628E0767AFF3E73DE69028E5B1A5ECF63011680A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273560   (799904) от 02.01.2019
+
+Herman Chittison - 1944 - 1945 (1998) Classics [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How High The Moon [1:56]
+02. The Song Is Ended [3:19]
+03. Just One Of Those Things [2:21]
+04. Schubert's Serenade [2:05](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DA57329FC66C8F3356816D4448D6624F666532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273557   (799895) от 02.01.2019
+
+VA - Thinking of You: Soul Love Grooves (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Sledge - Thinking of You
+02. Womack & Womack - Baby I'm Scared of You
+03. George Benson - Love X Love
+04. Chaka Khan - We Got the Love (Lew Hahn Remix)(   Читать дальше...   )Жанр: Jazz, Soul, R&BПродолжительность: 02:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23941E04093302F45C4BCC76EAF08A0F8CBF6541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273579   (799775) от 02.01.2019
+
+Joe Bonamassa - Rockin' Christmas Blues (2019) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merry Christmas, Blues
+02. Bring Back My Cadillac
+03. Christmas Boogie ( One Little Kiss)
+04. Christmas Date Blues(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E97912BADDFE60F2614F2928355FDC2388C3E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121869   (799692) от 03.04.2017
+
+Stephane Grappelli - Le Toit de Paris (1969) 2002, RCA Victor [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rain Check [02:39]
+ 02.Camelia [03:42]
+ 03.I Got It Bad (And That Ain't Good) [03:10]
+ 04.Andree [03:14](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0223119657B00EFD9CD5238F6A6E2117BA3072D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121871   (799691) от 03.04.2017
+
+The Buddy DeFranco (De Franco) Quartet - Jazz Tones (1954) Remaster, 2012, Universal [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When Your Lover Has Gone [06:33]
+ 02.The Things We Did Last Summer [08:04]
+ 03.Jack The Field Stalker [03:08]
+ 04.If I Should Lose You [04:25](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C30F5F598118DAA203F53BC01BFDE6818211AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121843   (799689) от 03.04.2017
 
 Art Pepper & Ted Brown - The Complete Free Wheeling Sessions (1956) 2006, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
@@ -571,180 +745,6 @@ Ruthie Foster - Joy Comes Back (2017) [MP3|320 Kbps] <Electric Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7A262E0072FE26EFF181FA2D0B597953B9DFF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122196   (799219) от 04.04.2017
-
-Nina Van Horn - Nina Van Horn Sings Nina Simone (2017) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolution (04:58)
-02. Old Jim Crow (03:52)
-03. Mississpi Goddam (04:17)
-04. House Of The Rising Sun (06:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD23001C6D5BE71C1A456656151C265C91883CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121957   (799217) от 04.04.2017
-
-Toots Thielemans - The Real... Toots Thielemans (2017) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Bluesette
-2. Night Game
-3. Turks Fruit(   Читать дальше...   )Жанр: JazzПродолжительность: 03:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B06F7F61EC058712DB97012607820050DD8CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506870   (799126) от 02.11.2021
-
-Konrad Paszkudzki Trio - Serenade In Blue: Harry Warren Song Book (2018) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. About A Quarter To Nine [5:12]
-02. Forty-Second Street [3:25]
-03. I Only Have Eyes For You [4:15]
-04. I Wish I Knew [3:47](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B3A524726A9536AC246B58AACC0BB067350B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122543   (798883) от 05.04.2017
-
-Mokhtar Samba & WDR Big Band Cologne - Musique d'Afrique (2016) [FLAC|Lossless|tracks + .cue] <World Fusion, Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valse des Pharaons (8:05)
-02. Senegal (9:05)
-03. Emattéo (9:12)
-04. Suite for Africa (10:33)(   Читать дальше...   )Жанр: World Fusion, Modern Big BandПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548C583697B59382DF18A33A03ACDD64AF80A66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122404   (798880) от 05.04.2017
-
-Miles Davis - In Person, Saturday Night at The Blackhawk, San Francisco, Vol.II (1961) 1999, CBS [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Well You Needn't [08:18]
- 02.Fran-Dance [07:41]
- 03.So What [12:43]
- 04.Oleo [05:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6C91738F734A117AD69F97CB2E6D93094BE86A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122207   (798872) от 05.04.2017
-
-Peter Karp - Alabama Town (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alabama Town (04:37)
-02. 'Til You Get Home (03:10)
-03. That's How I Like It (04:01)
-04. Blues In Mind (03:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1811148F8D8886C155E39FECC63DF41D55ACC72F
 ```
 
 https://mybot314.ru/tekegram_catalog/

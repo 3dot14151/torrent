@@ -1,3 +1,90 @@
+###  Публикация: 1464830   (1019465) от 24.04.2021
+
+VA - The Sun Sound Therapy (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специально для таких моментов и таких путешествий, когда не хочется никуда спешить, и подготовлен этот сборник. Самые лучшие композиции вв стиле регги от никогда не стареющей классики до удивляющей современности, от некогда популярных хитов, до треков, известных лишь в узком кругу ценителей этого жанра.001. Judah Eskender Tafari - Afrikan Blood
+002. Mortimer - Lightning
+003. Mystikal Man - Positive
+004. Chris Martin - Have Patience(   Читать дальше...   )Жанр: Reggae, Riddim, DubПродолжительность: 06:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568F8C631F4018959870A3E534CE77E6E2A2CFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465100   (1019307) от 25.04.2021
+
+VA - Record Super Chart 24.04.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eneli, Monoir - 3 to 1 (3:39)
+02. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
+03. Tiesto - The Business (2:44)
+04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:31:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCEDE0A22783156985E8FA9F0EC20D448C527B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465342   (1019291) от 25.04.2021
+
+VA - Music News vol.94 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019291.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Diana Brescan feat. Frijo - Felina (Chopin Beats Remix) (02:46)
+ 002. Ahzee & TWINNS feat. Nissa Seych & Odreii - Ou te Baba (02:43)
+ 003. Akord - Где Ты, Где Ты (03:36)
+ 004. Alcatrash - Eisai Oti Eho (03:51)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A55B325F542F5D99191CB0AB88F0C8D37E9DDED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465172   (1019290) от 25.04.2021
 
 VA - The Official UK Top 100 Singles Chart 23.04.2021 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -655,93 +742,6 @@ VA - Beast Mode Latin (2021) [MP3|320 Kbps] <Pop, Latin, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F138D24F88C6FD9D425E651287F4D328D9F39C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466863   (1018090) от 02.05.2021
-
-VA - Deep House: Luxe Mood Electro Sound (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятно мелодичная музыка в сочетании с элементами красивого вокала заставит погрузиться Вас в состояние эйфории, отбросив все условности окружающей реальности. Новые треки апрельского выпуска сборника "Deep House: Luxe Mood Electro Sound" уже ждут Вас и готовы пополнить Вашу музыкальную коллекцию!001. Metro DJ - New Age Funk
-002. Laurence Guy - Love Theme
-003. Dwayne Pinnock - Obsession
-004. Thulane Da Producer - Deep Incarnate(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C90129892EFD740306F2B2898C6E94F74D2885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466941   (1018078) от 02.05.2021
-
-VA - Record Super Chart 01.05.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eneli, Monoir - 3 to 1 (3:39)
-02. Tiesto - The Business (2:44)
-03. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)
-04. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3785AA5CFAAF6961B8250D0A0A59B971BDA0C3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466997   (1018065) от 02.05.2021
-
-VA - just hits (2021) [MP3|256 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018065.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sam Smith - Diamonds (3:33)
-002. MEDUZA, Dermot Kennedy - Paradise (2:47)
-003. Miley Cyrus, Dua Lipa - Prisoner (2:49)
-004. VINAI, VAMERO - Rise Up (3:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FE38FCDDE91ADDF072819EB5635F838D761CCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

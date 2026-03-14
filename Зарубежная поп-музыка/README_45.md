@@ -1,3 +1,59 @@
+###  Публикация: 1313121   (528232) от 07.07.2019
+
+Saint Etienne - Saturday Boy (2019) Single [MP3|320 Kbps] <Alternative Dance Pop, Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крайний сингл группы - нет на трекере совсем!01. Saturday Boy
+02. You Don't Own MeЖанр: Alternative Dance Pop, Synthpop, Indie PopПродолжительность: 00:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A95FFC9EFA6EEBC4E963D178A8CB9D5A39DFE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052391   (528121) от 14.09.2016
+
+VA - Le Son Dancefloor Summer (2016) [MP3|256~320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528121.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Imany - Don'T Be So Shy (Filatov & Karas Remix)
+02. Sia Feat. Sean Paul - Cheap Thrills
+03. Kungs & Cookin On 3 Burners - This Girl(   Читать дальше...   )Жанр: PopПродолжительность: 03:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669A6CFE98D4FB4C62E9DD2E5E8BA51652E7B454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156379   (527665) от 07.08.2017
 
 Patrick Cowley - 3 Studio Albums (1981-1982) LP [MP3|320 Kbps] <Electro, Hi NRG, Synth-pop, Disco>
@@ -687,64 +743,6 @@ Jess Glynne - I Cry When I Laugh (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C062CACF3C955274BE3BFE11B7540DCC041F235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241883   (516118) от 21.08.2018
-
-VA - Classic Pop - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516118.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. ABC - The Look Of Love
-02. Madness - Baggy Trousers
-03. Culture Club - Karma Chameleon(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A0B396E18FF3421E7280E199FE53D83B84524C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561342   (515523) от 04.07.2022
-
-VA - 80's Hits (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Turner - What's Love Got to Do with It (3:50)
-02. Limahl - Never Ending Story (3:30)
-03. a-ha - Take On Me (3:48)
-04. Narada Michael Walden - Gimme Gimme Gimme (feat. Patti Austin) (4:41)(   Читать дальше...   )Жанр: PopПродолжительность: 03:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6386887EE340DAA7EA906A9802034F17B488DBF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

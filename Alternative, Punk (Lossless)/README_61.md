@@ -1,3 +1,90 @@
+###  Публикация: 1595743   (174549) от 07.12.2022
+
+Puscifer - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Industrial, Experimental rock, Electronic rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiny Monsters (Violator Mix) [00:04:47]
+02. Green Valley (Violator Mix) [00:03:55]
+03. Telling Ghosts (Violator Mix) [00:04:19]
+04. Toma (Violator Mix) [00:03:38](   Читать дальше...   )Жанр: Post Industrial, Experimental rock, Electronic rockПродолжительность: 01:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40C3B2B354D0D34754BA500D2381D3D270679BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668521   (173975) от 12.10.2023
+
+††† (Crosses) - Goodnight, God Bless, I Love U, Delete. (2023) [FLAC|Lossless|WEB-DL|tracks] <Dreampop, Darkwave, Industrial Rock, Synthpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pleasure [00:04:16]
+02 - Invisible Hand [00:03:54]
+03 - Found [00:03:25]
+04 - Light as a Feather [00:03:09](   Читать дальше...   )Жанр: Dreampop, Darkwave, Industrial Rock, SynthpopПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FAB6E76E374F715B0B41EAB4DD11AE3DDC3D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668632   (173466) от 13.10.2023
+
+Blue October - Spinning The Truth Around (Part II) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sideways [00:04:41]
+02. All I See Is You [00:04:33]
+03. Sobriety [00:05:32]
+04. Magic Isn't Real [00:03:37](   Читать дальше...   )Жанр: Alternative Rock, Pop-RockПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E9697C1D58D2C0B161989888121A4D2CBF77B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671443   (171221) от 25.10.2023
 
 Florence + The Machine - Under Heaven Over Hell (2023) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop>
@@ -654,93 +741,6 @@ Fused by Defiance - Manifest (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap Metal, Nu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C47C4C8D1C5AA79D6620F84A4891E6703097CECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431714   (166232) от 15.12.2020
-
-Blacklite District - You're Welcome (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hardcore, Rapcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over This (2:53)
- 02. Falling (2:40)
- 03. Go Home (3:06)
- 04. Wishing Dead (3:33)(   Читать дальше...   )Жанр: Alternative Rock, Hardcore, Rapcore, ElectronicПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C732014F497D37F97BF4D042B2D1D842D7A966B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673255   (165406) от 01.11.2023
-
-Divine Horsemen - Bitter End Of A Sweet Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Roots Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memory Fails [00:03:38]
-02. Talking In Your Sleep Again [00:03:57]
-03. You Knew No Other Way [00:04:38]
-04. Vanina Vanini [00:04:08](   Читать дальше...   )Жанр: Post-Punk, Roots RockПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECAFAF648159352AD5129E6ED30A8E8C72F7187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673245   (165121) от 01.11.2023
-
-Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) Orchestral Version, 2023, Fearless Records [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-hardcore, Alternative-metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Horrorwood (Orchestral Version) [00:03:55]
-02. A Rash Decision (Orchestral Version) [00:03:37]
-03. Assault & Batteries (Orchestral Version) [00:02:59]
-04. The Shower Scene (Orchestral Version) [00:03:08](   Читать дальше...   )Жанр: Metalcore, Post-hardcore, Alternative-metalПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B3132B01F181B3FA59E88A80044E89DB8D3F74
 ```
 
 https://mybot314.ru/tekegram_catalog/

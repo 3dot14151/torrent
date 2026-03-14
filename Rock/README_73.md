@@ -1,3 +1,73 @@
+###  Публикация: 504479   (260243) от 01.06.2012
+
+VA - NOW That's What I Call Classic Rock Hits (2012) [MP3|256 кб/с]<2012>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thin Lizzy - The Boys Are Back In Town
+02. Foreigner - Feels Like The First Time
+03. Toto - Hold The Line
+04. Eddie Money - Baby Hold On
+05. Journey - Any Way You Want It
+06. Styx - Come Sail Away
+07. Jethro Tull - Locomotive Breath
+08. Heart - Crazy On You
+09. Bad Company - Feel Like Makin Love
+10. The Kinks - Lola(   Читать дальше...   )2012Жанр: 2012Продолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7981573C41848F4581823C2D003C7ED6E8978548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502831   (260162) от 01.06.2012
+
+Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colder
+ 02. Learn To Love The Dark
+ 03. Wasted Heart
+ 04. Vultures
+ 05. Not Coming Back
+ 06. No Love Song
+ 07. I Got Nothing
+ 08. Standing Still
+ 09. St Jude
+ 10. Our Lost History(   Читать дальше...   )2012Жанр: Indie RockПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E081DF319FDFA31C7C926CF1B7A30DCAEA2857B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503626   (259797) от 31.05.2012
 
 Maribel - Reveries (2012) [MP3|256 кб/с]<Shoegaze Indie-Rock>
@@ -754,64 +824,6 @@ Marco Bernard (The Samurai Of Prog) - The Boy Who Wouldn’t Grow Up (2023) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD5C8C6646763937C83DB60776395589FBF8BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624655   (245029) от 07.04.2023
-
-R.A.F. - Restless Spirit (1986) [MP3|320 Kbps] <AOR, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Boy (04:01)
-02. Only the Heart Can Tell (03:41)
-03. Steal Your Love (04:06)
-04. Restless Spirit (03:12)(   Читать дальше...   )Жанр: AOR, Pop RockПродолжительность: 00:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF0BB8AFD6D4B740988EF123A169248B1FC2BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067361   (244977) от 29.10.2016
-
-DizzRoxx - Personal Message (2016) [MP3|320 Kbps] <Blues Rock, Hard Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Racer   (05:15) 
-  02| Personal Message   (03:11) 
-  03| Rockґn Roll Machine   (03:01) 
-  04| No Matter What The Chairman Said   (03:51) (   Читать дальше...   )Жанр: Blues Rock, Hard Rock, Rock & RollПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A1E2B616189C964409AFC86228D40898AAED51
 ```
 
 https://mybot314.ru/tekegram_catalog/

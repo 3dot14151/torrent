@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1858061   (1060202) от 08.03.2026
+
+VA - Russian Hits 2024 (2024) [MP3|320 Kbps] <Pop, hip-hop, electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060202.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:16]. 001-Ислам Итляшев - Танцы
+[2:28]. 002-H1gh - Ю Май Харт, Ю Май Соул
+[3:15]. 003-Enrasta - Ахуехала
+[2:23]. 004-Isupov & Asafy - По газам(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 09:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C190E47711A0DA3FB3C249B1024857773C19C8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857906   (1060022) от 07.03.2026
 
 Adriano Celentano best (1960-2021) [MP3|320 Kbps] <pop,electronic,rock>
@@ -717,35 +746,6 @@ VA - Hit music (2025. Зима) (2025) [MP3|320 Kbps] <POP>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DFEB98ADF2A3AB2273706B5ACCE955487146815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842211   (1048587) от 15.12.2025
-
-Reyvi - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Plus Jamias Toi
-02 - Entre Toi Et Moi
-03 - Danse Danse
-04 - Cheri Cheri Lady(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB7C3905A0F8E062AAA90217EC375C4CB76A9C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

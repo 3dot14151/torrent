@@ -1,3 +1,32 @@
+###  Публикация: 1150500   (593858) от 15.07.2017
+
+VA - Зайцев.Нет - Лучшие Новинки Июля (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  SMASH & Полина Гагарина, Егор Крид - Команда  3:39
+02.  Светлана Лобода Feat. Макс Барских - Твои Глаза Туманы  4:53
+03.  Альбина - Не со мной  3:09
+04.  Наргиз - Верните память  3:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFE6B681F02C5F3B361F2059532C582DFDDDBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233070   (593843) от 28.06.2018
 
 VA - World Of Latin Music (2018) [MP3|320 Kbps] <Latino, Pop, Hip Hop, Reggaeton>
@@ -716,35 +745,6 @@ VA - Дискотека 80-90 х По-Новому Зарубежный выпу
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0B04C2AF16E42376E41EF3A399C125FADC00DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552643   (586690) от 21.05.2022
-
-VA - Music News vol.189 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586690.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christina Aguilera feat. Lil' Kim & Mya & Pink - Lady Marmalade (Thunderpuss Radio Mix) (04:12)
- 002. Adamnim - Больно (02:40)
- 003. Adamnim - Мультивселенная (Больно 2) (02:40)
- 004. Aila - Ищу Тебя (03:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6D2481AF1C030667AD5E85B9B0A4A217278AAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

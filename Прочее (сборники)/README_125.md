@@ -1,3 +1,29 @@
+###  Публикация: 1167454   (362566) от 25.10.2017
+
+VA - Romantic Collection From Ovvod7 vol.1-3 (2017) [MP3|320 Kbps]<Pop, Rock> Обновляемая
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, RockПродолжительность: ~03:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B526B8858C48F26E27D8C67E5CA850799D2334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071090   (361939) от 09.11.2016
 
 VA - Latin Hot Party Maria Bonita (2016) [MP3|146-320 Kbps] <Latin Dance, Pop Folk Lyric>
@@ -735,35 +761,6 @@ VA - В машине с музыкой Vol.304 (2022) [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2988831756F00D2FD62F11660F9A697066BEEA31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071553   (356818) от 11.11.2016
-
-VA - Зайцев нет. Лучшие Hовинки Ноября (2016) [MP3|160~320 Kbps] <Pop, Rap, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rita Dakota - Полчеловека 4:08
-02. Руки Вверх - Когда мы были молодыми 4:33
-03. Stereopulse - Пара-па-парам 3:23
-04. Мумий тролль - Ноябрь 6:01(   Читать дальше...   )Жанр: Pop, Rap, RockПродолжительность: 03:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B400619897378BF6E152B5F69E0151DACCC8062
 ```
 
 https://mybot314.ru/tekegram_catalog/

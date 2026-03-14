@@ -1,3 +1,90 @@
+###  Публикация: 1580034   (232148) от 30.09.2022
+
+Darko US - Darko (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_232148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Splinter Cell [00:03:50]
+02. Fiend Dream [00:03:27]
+03. Donna [00:04:41]
+04. Pretenders (feat. Ben Duerr) [00:03:00](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E99EF4D76E03AFAB488C783302B3C450B6753A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621899   (232117) от 27.03.2023
+
+SayWeCanFly - Beneath The Roses (2023) [FLAC|Lossless|WEB-DL|tracks] <Emo, Pop Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_232117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knuckles [00:03:02]
+02. Bleeding Teeth [00:03:16]
+03. October [00:03:08]
+04. Marigold [00:02:16](   Читать дальше...   )Жанр: Emo, Pop Rock, AcousticПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87038C9F30000E0CC5D3AA2205310E1AFA697709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642051   (232090) от 25.06.2023
+
+Tropical Fuck Storm - Goody Goody Gumdrops (2023) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Psychedelic, Art Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Romeo Agent (GGG) [00:05:42]
+02. Aspirin (GGG) [00:05:00]
+03. Maria 63 (GGG) [00:06:54]
+04. Braindrops (GGG) [00:07:29](   Читать дальше...   )Жанр: Noise Rock, Psychedelic, Art PunkПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B41F9430F32C091B75CBDFB67590C61B2F6C838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647067   (231717) от 17.07.2023
 
 Sam Austins - Boy Toy (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alt Rock>
@@ -658,93 +745,6 @@ White Reaper - You Deserve Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Garage, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D9B38145F839BC01E1A3DD5F7095FFA5F2A5030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341949   (227526) от 30.11.2019
-
-Heartless Bastards - Arrow (2012) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marathon (06:10)
-02. Parted Ways (04:57)
-03. Got To Have Rock And Roll (03:55)
-04. Only For You (05:08)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D7510495B63DEE283A9AA080E0F6E0DA345961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341955   (227502) от 30.11.2019
-
-Balthazar - Thin Walls (2015) 2 CD Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oldest of Sisters (03:34)
-02. Leipzig (02:54)
-03. Boatman (04:54)
-04. Sinking Ship (04:34)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123CD0D7A01CE7DEDA7BCD9D7E5B9A1C58896DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649765   (227483) от 30.07.2023
-
-Billy Idol - Billy Idol (1982) 2CD, Expanded Edition, 2023, Capitol Catalog MKT (C92) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Talk (Live From The Roxy, West Hollywood, August 12, 1982) [00:03:12]
-02. Untouchables (Live From The Roxy, West Hollywood, August 12, 1982) [00:04:01]
-03. Come On, Come On (Live From The Roxy, West Hollywood, August 12, 1982) [00:04:50]
-04. Hot In The City (Live From The Roxy, West Hollywood, August 12, 1982) [00:04:05](   Читать дальше...   )Жанр: Punk Rock, RockПродолжительность: 01:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533D7A6039BD547C692499C72D896E1A367FB8CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

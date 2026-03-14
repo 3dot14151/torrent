@@ -1,3 +1,177 @@
+###  Публикация: 1264566   (279575) от 24.11.2018
+
+Minoru Muraoka - Harlem Nocturne: Bamboo Flute Miracle Sounds (1967) 2012, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harlem Nocturne [3:09]
+02. Taboo [3:27]
+03. Yesterday [3:16]
+04. Baby Elephant Walk [3:06](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9E9799D7A88226F7C82D37893B782DFC7BC180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336673   (279256) от 07.11.2019
+
+Allegra Levy - Looking At The Moon (2018) SteepleChase [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon River [5:16]
+02. I Got the Sun in the Morning [4:10]
+03. Harvest Moon [7:34]
+04. Blue Moon [3:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929C362441374C21D165B6AAB18012DB69FCD6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336553   (279255) от 07.11.2019
+
+Gary Burton - Artist's Choice (1963 - 1967) 1987, Bluebird [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Careful [4:13]
+02. Chega de Saudade (No More Blues) [4:43]
+03. Norwegian Wood [3:26]
+04. I Want You [3:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1CC96724F81498505158B374711886C2BEBC60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336633   (279168) от 07.11.2019
+
+Caecilie Norby - Sisters in Jazz (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Money (Jones) - 4:20
+02. Willow Weep for Me (Ronell) - 4:49
+03. Droppin' Things (Carter) - 4:34
+04. Man from Mars (Mitchell) - 6:24(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5D43541E712DF831947BD39DA2DE22599C0B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187574   (278967) от 29.11.2017
+
+Bodil Niska - Blue (2004) Bare Jazz Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Wee Small Hours of the Morning [05:51]
+02. How About You [04:59]
+03. Et gammelt stykke Oslo [04:32]
+04. Taking a Chance on Love [06:09](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF41A934E8AA9928CED78742DCE386DACCBD2CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187573   (278966) от 29.11.2017
+
+Bodil Niska - First Song (2000) Hot Club Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Boy [03:53]
+02. Rosetta [06:58]
+03. Merlin [03:45]
+04. Only Trust Your Heart [06:16](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64F27FBF422B28E94FEBE168D6DFA54148A27CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082397   (278898) от 12.12.2016
 
 Dakh Daughters - IF (2016) [MP3|320 Kbps] <Cabaret>
@@ -574,180 +748,6 @@ Darrell Mansfield - I Am Not Alone (2014) [FLAC|Lossless|tracks + .cue] <Christi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45327921DC32053C081C53C854B2022B95366E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187950   (277394) от 30.11.2017
-
-Marcus Printup - Song For The Beautiful Woman (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Inquiry [06:42]
-02. I Remember April [07:15]
-03. Song For The Beautiful Woman [06:38]
-04. Trauma [06:24](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABB1808A52A6C9D2A8C322ED8E4656A9758B642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187947   (277391) от 30.11.2017
-
-Art Pepper & Blue Mitchell - The Dolo Coker Sessions (1976) 2008, Synergy Records [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumping Jacks [04:07]
-02. Gone With The Wind [04:28]
-03. Roots 4FB [14:59]
-04. Mr. Yohe [06:25](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081F54F1B1BFFBF02DBDF5E6BA71DEAD74FC7277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082806   (277125) от 13.12.2016
-
-Bart&Baker - Electro Swing Tribute (2016) [MP3|320 Kbps] <Swing, Electro Swing, Electronic>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Via Con Me (feat. Pierre Santini & Lada Redstar) (Bruce Leers Vintage Remix) (3:32)
-02. Fever - 39 de fievre (feat. Clementine & Mathieu Bore) (3:49)
-03. Get Lucky (feat. Matt Le Rouge & Landser) (3:45)
-04. Istanbul (Kalleti Klub Remix) (4:43)(   Читать дальше...   )Производство: Wagram MusicЖанр: Swing, Electro Swing, ElectronicПродолжительность: 01:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A2F5CAF84AF320EDD7DD9EEABC6CF775C3F078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265147   (276600) от 26.11.2018
-
-John Scofield - Combo 66 (2018) Universal [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Dance [7:32]
-02. Combo Theme [7:22]
-03. Icons At The Fair [5:33]
-04. WIlla Jean [7:59](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7366CF4EB77006FD107C254EC0503AA61C81BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337035   (276383) от 09.11.2019
-
-Tad Shull Quartet - In the Land of the Tenor (1993) [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here's the Kicker (Shull) - 7:40
-02. Night Horse (Shull) - 5:16
-03. I Keep Going Back to Joe's (Fisher-Segal) - 8:04
-04. A Portrait of Bojangles (Ellington) - 7:42(   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF56F78BE429F45CB0223A12612196337FF5378E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337054   (276381) от 09.11.2019
-
-Terell Stafford - This Side Of Strayhorn (2011) MaxJazz [FLAC|Lossless|image + .cue] <Post-Bop, Trumpet Jazz, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raincheck [7:56]
-02. Smada [8:58]
-03. My Little Brown Book [7:20]
-04. Lush Life [7:44](   Читать дальше...   )Жанр: Post-Bop, Trumpet Jazz, Straight-Ahead JazzПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8984366A9CB081B3296385C3760CD95FD39976
 ```
 
 https://mybot314.ru/tekegram_catalog/

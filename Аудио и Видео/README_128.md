@@ -1,3 +1,32 @@
+###  Публикация: 1537130   (669416) от 15.03.2022
+
+VA - Ibiza Feeling (2022) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basics On Lounge - Hovering (6:08)
+02. Gries - On the Move (5:42)
+03. Asservat - Intriguing Additions (6:08)
+04. Gamma Orionis - Spring Trees (5:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D26D86B498C1201B7D6A2704A2733471A21812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537172   (669324) от 15.03.2022
 
 Caravan Palace - Panic (2013) [AAC|~333 Kbps] <Jazz, Neo Swing, Electro Swing, Gypsy>
@@ -668,35 +697,6 @@ VA - Chill-Out Music Market (Take-It-Easy Tunes) (2017) [AAC|~313 Kbps] <Lounge,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B70E8296F4A7F3DF57226E32C0EED475ED51E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537551   (666821) от 17.03.2022
-
-VA - This Is Chillout Jazz, Vol. 2 (Cool Jazzy Sounds in a Lounge Mood) (2014) [AAC|~343 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Italian Secret Service - Vox Media (5:04)
-02. Papik, Sarah Jane Morris, Fabrizio Bosso - Let The Music Play (4:03)
-03. Ithamara Koorax, Jose Roberto Betrami, Jeorge Pescara, Arnaldo De Souteiro, Haroldo Jobim - Goin' Out of My Head (3:13)
-04. Bossa Nostra, Bruna Loppez - Maiden Voyage (6:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4ACA46C88E1BCA406033909E4E7D19E6A07AFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

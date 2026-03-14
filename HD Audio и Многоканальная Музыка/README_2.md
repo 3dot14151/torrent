@@ -1,3 +1,119 @@
+###  Публикация: 1843047   (1048973) от 18.12.2025
+
+Vhaldemar (Vhäldemar) - Studio Albums (7 releases) (2002-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vhäldemar - испанская пауэр-метал группа, образованная в 1999 году.2002 - Fight To The End
+2003 - I Made My Own Hell
+2011 - Metal Of The World
+2013 - Shadows Of CombatЖанр: Power MetalПродолжительность: 05:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBB60D2E8EE486F2A1A58ACEAAB54B245947BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842323   (1048714) от 15.12.2025
+
+The Shadows - The Shadows' Greatest Hits (1963) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Rock, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048714.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Apache
+A2 Man Of Mystery
+A3 The Stranger
+A4 F.B.I.(   Читать дальше...   )Жанр: Rock, InstrumentalПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97944095D9A79D553658B394934C60ABF17DF83D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842297   (1048636) от 15.12.2025
+
+At Vance - Studio Albums (9 releases) (1999-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neoclassical/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048636.jpg" />
+</div>
+
+
+###  Подробнее
+
+At Vance — немецкая метал-группа, созданная в 1998 году вокалистом Оливером Хартманном и гитаристом Олафом Ленком.1999 - No Escape
+2000 - Heart of Steel
+2001 - Dragonchaser
+2002 - Only HumanЖанр: Neoclassical/Power MetalПродолжительность: 08:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8AF25AD78217D5C9BD99141B8F7DE3ADD22B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841130   (1047754) от 09.12.2025
+
+VA - The Most Collection. Volume 2 (1971) Compilation, Dutch Pressing [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country Rock, Folk Rock, Pop Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047754.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 New World - Tom Tom Turnaround
+A2 Peter Noone - Oh You Pretty Things
+A3 Lulu - The Boat That I Row
+A4 Hot Chocolate - Love Is Life(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Pop Rock, Soft RockПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4FC91550A2A1F1BCD9C62F9D9182EF3A45201E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840951   (1047681) от 08.12.2025
 
 Senpais - Studio Albums (4 releases) (2020-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
@@ -624,121 +740,6 @@ A4 She's Gone(   Читать дальше...   )Жанр: Hard RockПродол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C149B190D6B9D54DA288DE1BD2C35A3F3722E8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610271   (1042343) от 07.02.2023
-
-Work Of Art - Studio Albums (4 releases) (2008 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, AOR>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Work Of Art — хард-рок-группа из Стокгольма, Швеция, основанная в 1992 году.2008 - Artwork
-2011 - In Progress
-2014 - Framework
-2019 - ExhibitsЖанр: Hard Rock, AORПродолжительность: 03:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FDDE8E1ABAE802FB00B59FD15911CDBD4C9597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610733   (1041888) от 09.02.2023
-
-Talisman - Studio Albums (10 releases) (1990 - 2015) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Talisman — шведская рок-группа, основанная в 1989 году басистом-автором песен Марселем Джейкобом и возглавляемая американским певцом Джеффом Скоттом Сото1990 - Talisman
-1993 - Genesis
-1994 - Humanimal. Part 1
-1994 - Humanimal. Part 2Жанр: Hard RockПродолжительность: 10:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C7FCCA94A92725AD1E704033B4EA645B579BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437921   (1041705) от 06.01.2021
-
-Оркестр "Современник" п/у А. Кролла - Музыка из к/ф "Мы из джаза" (1983) Сувенирное издание [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041705.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Рэгтайм
-A2 Улыбка Старой Москвы
-A3 Рэг-Дикси
-A4 Эрмитаж, Фокстрот(   Читать дальше...   )Жанр: Soundtrack, JazzПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FFFE39BCBF096BC3601C6ADB312888E6909F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438000   (1041352) от 07.01.2021
-
-Paul Mauriat - Emmanuelle & Fantastic 4 Channel (2020) 1976 1973 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emmanuelle (1976)
-
-01. Emmanuelle (Soloist, GuitarЖанр: Easy ListeningПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26D469545BC210F9F1A51E40372F367AEDA6796
 ```
 
 https://mybot314.ru/tekegram_catalog/

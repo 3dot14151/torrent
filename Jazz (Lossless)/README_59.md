@@ -1,3 +1,90 @@
+###  Публикация: 1502542   (826819) от 15.10.2021
+
+Les McCann - Relationships: The Les McCann Anthology (1960 - 1972) 2CD, 1993, Rhino Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826819.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Vacushna [3:12]
+02. The Truth [5:52]
+03. Gone On and Get That Church [6:12](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Piano JazzПродолжительность: 02:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03DA0134F8012C5BE21A4F11FCEE8E17388870D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115290   (826779) от 18.03.2017
+
+Martial Solal - Big Band (1984) 1991, Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Modern Big Band, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Et si c'était vrai - Part One [10:30]
+ 02.Et si c'était vrai - Part Two [02:35]
+ 03.Et si c'était vrai - Part Three [07:57]
+ 04.Hommages [14:46](   Читать дальше...   )Жанр: Modern Big Band, Modern CreativeПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72054D2AEB2ED77B8F5E558BB0B49C0CEBE7AD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115389   (826775) от 18.03.2017
+
+Woody Shaw - Field Recordings Of A Jazz Master (1975, 1980,1981) 2012, International Trumpet Guild [FLAC|Lossless|tracks + .cue] <Post Bop, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.To Kill a Brick [11:13]
+ 02.Joshua C [18:24]
+ 03.We'll Be Together Again [10:40]
+ 04.OPEC [21:27](   Читать дальше...   )Жанр: Post Bop, Free ImprovisationПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41544152DEE3D5F683EBEE2691A2A1097FAEFDE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115280   (826774) от 18.03.2017
 
 Houston Person - Broken Windows, Empty Hallways (1972) 2004, Prestige [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
@@ -658,93 +745,6 @@ Mildred Bailey - In Love: 1930-e - 1940-e (1998) Simitar [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87E91A0EB78E14B2A8D7B749D26CD2D2E721EC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381762   (824816) от 08.05.2020
-
-Michel Pastre Quartet - Free Swing (2006) Djaz Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midriff [3:55]
-02. Tulip or Turnip [5:01]
-03. Free Swing [5:17]
-04. Webstering [6:08](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8A711BDA993AFF805A5FBE6BC408BBB31167E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381739   (824815) от 08.05.2020
-
-Dakota Staton - Dynamic! 1958 (2006) Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Off Uptown [2:31]
-02. Night Mist [2:51]
-03. Anything Goes [2:29]
-04. When Sunny Gets Blue [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F947CF7467A50D1AE0784C1865353E48254C94E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381727   (824813) от 08.05.2020
-
-Nathalie Soles - Deeper (2007) Milan [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dodo Bebe [3:37]
-02. I Will Wait for You [3:29]
-03. A Day in the Life of a Fool [3:44]
-04. Tenderly [3:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C6657C64101301BC0343E249EBAC25D956064B
 ```
 
 https://mybot314.ru/tekegram_catalog/

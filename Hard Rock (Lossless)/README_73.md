@@ -1,3 +1,119 @@
+###  Публикация: 1512791   (229374) от 26.11.2021
+
+Sainted Sinners - Taste It (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Against The Odds
+02. One Today
+03. The Essence Of R'N'R
+04. Out Of Control(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B084113166A29CB8BF3E55766FD366B7630499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512719   (229277) от 26.11.2021
+
+Khymera - Master Of Illusions (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Away (4:03)
+02. The First Time (4:22)
+03. Master Of Illusions (4:28)
+04. The Sun Goes Down (4:34)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DF242AECDCE7C7460A52FD7E41C934AEB06858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512859   (229260) от 26.11.2021
+
+Black Veil Brides - The Phantom Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Phantom Tomorrow (Introduction) (01:33)
+02. Scarlet Cross (03:37)
+03. Born Again (03:39)
+04. Blackbird (3:21)(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E15471805B3B8FC242EA27EB8A6E465AAED1DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583477   (229070) от 15.10.2022
+
+Jaded Heart - Heart Attack (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood Red Skies [00:03:39]
+02. Sweet Sensation [00:03:49]
+03. Heart Attack [00:03:27]
+04. Harvester Unknown [00:04:58](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E530FE38B64F69FA7A166E5970380868BCF9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268026   (229039) от 09.12.2018
 
 Scorpions - Blackout (1982) 2018, Remastered, Reissue [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ The Royal Beggars - Falling To New Heights (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFD87635B56F25C96582C07EDB7AC7F725CD3104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650726   (224668) от 03.08.2023
-
-Rainbow - Denver 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes Of The World
-02. Love’s No Friend
-03. Since You Been Gone
-04. All Night Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A67B510644A176A915785DA185CE75E1076C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650741   (224565) от 03.08.2023
-
-Rainbow - Long Island 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes Of The World
-02. Love’s No Friend
-03. Since You’ve Been Gone
-04. All Night Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4E9F4A9C9643D0E0BEFD4EBEE7B12E353B4636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965776   (224537) от 15.12.2015
-
-Love - Reel to Real (1974) 2015, High Moon Records [FLAC|lossless|image + .cue] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Is Like a River (03:08)
-02. Stop the Music (03:02)
-03. Who Are You? (03:07)
-04. Good Old Fashion Dream (02:53)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5126C6A43E16E6FB375917BC3AC099F31A5736D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651014   (224161) от 04.08.2023
-
-Mammoth WVH - Mammoth WVH II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alt.Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right? [00:04:30]
-02. Like a Pastime [00:03:45]
-03. Another Celebration at the End of the World [00:04:35]
-04. Miles Above Me [00:04:02](   Читать дальше...   )Жанр: Hard Rock, Alt.Rock, Post-GrungeПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992E18A98DD2BAB46DC47840B237A7BA10BB524D
 ```
 
 https://mybot314.ru/tekegram_catalog/

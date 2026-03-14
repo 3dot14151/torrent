@@ -1,3 +1,162 @@
+###  Публикация: 608797   (992790) от 26.01.2013
+
+Becky G feat Will.I.Am - Problem [The Monster Remix] (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: pop, r.n.bПродолжительность: 00:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CF207DBC789D7B76F98070D3BBE5402269B045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609255   (991733) от 27.01.2013
+
+Сборник клипов - VA - Various Music part. 39 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2CELLOS - Supermassive Black Hole ft. Naya Rivera 1080p (3:46)
+2. 50 Cent - Major Distribution (Explicit) 1080p (4:23)
+3. AMOUAGE - Солнце 1080p (3:49)
+4. Armin van Buuren & Markus Schulz - The Expedition (ASOT600 Anthem) 720p (5:24)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A891A1D93077FC7BF2D65D4A7C446566FE36A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609890   (991231) от 28.01.2013
+
+David Guetta Feat. Taio Cruz & Ludacris - Little Bad Girl (2011) BDRip [h.264,1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D87314B768A9D0EC7D959D87126E711C362ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609529   (991229) от 28.01.2013
+
+Inna - Endless (2011) HDRemux [h.264,1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95170BDD77332826199E674DEA90797EDB77641A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609943   (991157) от 28.01.2013
+
+Ke$ha / Kesha - C'Mon (2013) HDRemux [h.264,1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD685A787F2C1243F161044B6D0269735B2658A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609819   (991153) от 28.01.2013
+
+Gotye ft. Kimbra - Somebody That I Used To Know (2011) BDRip [h.264,1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Indie PopПродолжительность: 00:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5E617044293C55779683CA3F0B21F2EF2B6E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609624   (991112) от 28.01.2013
 
 Linkin Park - Burn It Down (2012) BDRip [h.264,1080p]
@@ -531,164 +690,6 @@ Pet Shop Boys - 3 Music Videos (2012-2020) WEB-DL [H.264/720p/1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF33B513B67039B76F766F99CC9E630CC97647DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436013   (982331) от 13.01.2012
-
-VA - Millenium Sexy vol.2 - Сборник видеоклипов (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: VariousПродолжительность: ~02:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7004CA39EA0C21AF61E3F0BCFD23D70F3DBD74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355568   (982201) от 27.01.2020
-
-Billie Eilish feat. Khalid - Lovely (2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982201.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Lovely» — песня в исполнении Billie Eilish и Khalid вышла 19 апреля 2018 года для официального саундтрека второго сезона драматического телесериала от Netflix «13 причин почему». Песня была включена в расширенное издание мини-альбома Billie Eilish: Don't Smile at Me (2017).Производство: Sony, ATV Music Publishing LLC, Kobalt Music Publishing Ltd., Universal Music Publishing GroupЖанр: Indie, Pop, Alternative RockПродолжительность: 00:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FB1CCE3992F04820547F78282B3FE1E9DCAFBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436010   (982166) от 13.01.2012
-
-VA - Millenium Sexy - Сборник популярных видеоклипов (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: VariousПродолжительность: ~02:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F824C856ED3BD3B1532A7D6DE6429E78D2DA3ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435841   (982158) от 13.01.2012
-
-VA - 50 Самых сексуальных музыкальных видео всех времен - 1 Часть (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Madonna - Justify my Love
-«Justify My Love» — первый сингл американской певицы Мадонны со сборника лучших песен 1990 года «The Immaculate Collection», вышедший 6 ноября 1990 года. После выход, сингл занял высшую позицию в рейтинге Billboard Hot 100 и многих других мировых чартов, а также достиг первого места в чарте Billboard Hot Dance Music/Club Play.
-02 George (   Читать дальше...   )Жанр: VariousПродолжительность: ~01:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5812635B529BEB61577F370DBCA95AD64ECC80D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435845   (982061) от 13.01.2012
-
-VA - 50 Самых сексуальных музыкальных видео всех времен - 2 Часть (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: VariousПродолжительность: ~01:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366AE2F7306707E3437B9757383E9625C2DDEC54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613445   (981342) от 05.02.2013
-
-Pitbull ft. Shakira - Get It Started (2012) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192E56324315FEA2F6D16F20646295D40BFC079B
 ```
 
 https://mybot314.ru/tekegram_catalog/

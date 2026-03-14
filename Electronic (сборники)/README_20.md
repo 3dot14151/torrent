@@ -1,3 +1,32 @@
+###  Публикация: 1358956   (966206) от 10.02.2020
+
+VA - Record Super Chart 624 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966206.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Carla Morrison - Disfruto (3:57)
+2.SAINt JHN - Roses (Imanbek Remix) (3:58)
+3.Tones and I - Dance Monkey (DJ Noiz Remix) (4:00)
+4.FILV & Edmofo feat. Emma Peters - Clandestina (2:28)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C9847597A895A52742F6BBE01C0DC9E972C7D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358908   (965826) от 10.02.2020
 
 VA - Deep Blue: Vocal House Season (2020) [MP3|320 Kbps] <Deep House, Electro>
@@ -713,35 +742,6 @@ VA - Colibri Trance Pack (2016) [MP3|320 кб/с] <Progressive, Uplifting, Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E63193418FA958C1AD09C9B2935351C4105511C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980133   (957411) от 28.01.2016
-
-VA - Sexy Deep House Session (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jon Cage - On Top of the World
-02. Jon Craig - Out of the Blue 2015 - Radio Edit
-03. Just Matte - Rusty Boat
-04. Jonathan Morning - Matter of Time(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB6D06F6E8E08B5CF344F5EC1D51E76AB68F42D
 ```
 
 https://mybot314.ru/tekegram_catalog/

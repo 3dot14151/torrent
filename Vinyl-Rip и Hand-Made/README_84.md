@@ -1,3 +1,118 @@
+###  Публикация: 1727558   (68420) от 01.04.2025
+
+Aeonian Sorrow - Studio Albums (4 releases) (2018-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aeonian Sorrow - международная мелодик-дум-метал/фунерал-дум группа, сформирована певицей и автором песен Гого Мелоне в сентябре 2015 года.2018 - Into The Eternity A Moment We Are
+2020 - A Life Without (EP)
+2023 - KataraЖанр: Gothic/Doom/Death MetalПродолжительность: 02:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC99651D76B408754434EA309F642C11CC108EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788894   (68419) от 01.04.2025
+
+Occult - The Enemy Within (1996) Reissue, 2016, Cosmic Key Creations [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68419.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Souls
+A2 Inquistion Of The Holy
+A3 Crossing The Boundaries (Of Life And Death)
+A4 Selfbetrayel(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A798D0A79E7DFD2E82C5AB7B8BFE9F680A6644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788839   (68418) от 01.04.2025
+
+Katatonia - For Funerals to Come... (1995) EP, Reissue, 2011, Peaceville [FLAC|24/96|image + .cue|Vinyl-Rip] <Doom, Death Metal, Gothic, Alternative, Progressive Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68418.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Funeral Wedding
+A2 Shades Of Emerald Fields
+A3 For Funerals To Come...
+A4 Epistel(   Читать дальше...   )Жанр: Doom, Death Metal, Gothic, Alternative, Progressive Rock, MetalПродолжительность: 00:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A551BE8AFBFD6489BCCC7F1B25AE91BEFB1532FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789091   (68389) от 02.04.2025
+
+Тяжелый День - Два Альбома (1988, 1989) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68389.jpg" />
+</div>
+
+
+###  Подробнее
+
+00:36:20
+
+A1 Дай Мне Знать • Let Me Know
+(В. Бажин)(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 01:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FA5B246CBB4422FED57DF59995F39D298C3D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789239   (68330) от 03.04.2025
 
 Korgull the Exterminator - War of the Voivodes (2010) Reissue, 2014, Doomentia Records [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash, Black Metal>
@@ -625,122 +740,6 @@ Fear Factory - Digimortal (2001) Reissue, 2007, Roadrunner Records [FLAC|24/192|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C61AD82AB41787CCC189D858E1922E8D80FBBB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790668   (67998) от 10.04.2025
-
-Elusive (Norway) - Studio Albums (3 releases) (2001-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Goth Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elusive — норвежская музыкальная группа, исполнявшая готик-рок вплоть до своего распада в 2009 году.2001 - Destination Zero
-2005 - The Great Silence
-2007 - Locked doors, drinks and funerals (songs from the desert)Жанр: Goth RockПродолжительность: 03:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C14E7AED4F1296D9B4BE30BAB502C9000340BD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790932   (67975) от 11.04.2025
-
-Nightwish - Human. :||: Nature. (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music
-02. Noise
-03. Shoemaker
-04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F40D7463340ACB4CC674DB740EFF55E5027CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790902   (67970) от 11.04.2025
-
-Manowar - Hail to England (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Of My Enemy
-02. Each Dawn I Die
-03. Kill With Power
-04. Hail To England(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD689E523DCE48849A86356F3737C82E714E1BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790901   (67955) от 11.04.2025
-
-Macbeth (Germany) - Studio Albums (5 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macbeth - рок-группа из Эрфурта, Германия. Группа была создана в 1985 году, в ГДР, в 1987 году сменила название на Caiman, а в 1989 году распалась.
-С 2003 года группа снова активна.2006 - Macbeth
-2009 - Gotteskrieger
-2012 - Wiederganger
-2015 - ImperiumЖанр: Heavy/Thrash MetalПродолжительность: 04:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D4715DC2D8BE51DCCBBF794319E0E75F57F1CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

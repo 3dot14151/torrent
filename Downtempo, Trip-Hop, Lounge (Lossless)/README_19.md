@@ -1,3 +1,61 @@
+###  Публикация: 1330123   (345743) от 08.10.2019
+
+Hill & Wiltschinsky Guitar Duo - Lover's Guitar (1995) Compilation [FLAC|Lossless|tracks + .cue] <Easy Listening, Instrumental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Fall In Love (3:01)
+02. Three Times A Lady (3:02)
+03. Lady In Red (3:21)
+04. If (2:11)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4884818F266F405D93C1CA3591B56BA3FD1B567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578519   (345687) от 23.09.2022
+
+Blank & Jones - Relax Edition 14 (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill out, Downtempo, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning In the Fields
+02. This Is the Day (feat. Zoe Durrant)
+03. Set the Mood
+04. Sitting In My Sofa (feat. Laid Back)(   Читать дальше...   )Жанр: Electronic, Chill out, Downtempo, LoungeПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072E7C74E3D38AC2DDEA50236977818CD187754B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257562   (345647) от 26.10.2018
 
 Koan - Insidious (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Ambient>
@@ -684,64 +742,6 @@ Jim Brickman - Underground (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFCD1F7CE2519E449A6B2E3ABCA26540D4CBFFA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963586   (286984) от 08.12.2015
-
-Conjure One - Holoscenic (2015) [FLAC|Lossless|WEB-DL]<Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conjure One feat. Hannah Ray - Kill The Fear (6:11)
-02. Conjure One - Miscreant (5:58)
-03. Conjure One feat. Leigh Nash - Under The Gun (5:34)
-04. Conjure One - All That You Leave Behind (8:17)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82BDDB18B4D582A4F27682B727FC4FCB61BF6BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264229   (282893) от 22.11.2018
-
-Baby Sleep Music - Christmas Baby (2018) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Children's Music, Lullabies>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy To The World
-02. First Noel
-03. O Holy Night
-04. Silent Night(   Читать дальше...   )Жанр: Easy Listening, Children's Music, LullabiesПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE17A3536253B9EF248E654521282005A287709D
 ```
 
 https://mybot314.ru/tekegram_catalog/

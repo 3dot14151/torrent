@@ -1,3 +1,32 @@
+###  Публикация: 1498456   (857807) от 26.09.2021
+
+VA - Try The Better World (2021) [MP3|320 Kbps] <Ambient, Meditation, Relax, New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857807.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Federico Durand - Laurel
+002. Chris Decato - A Promise
+003. Jas Shaw - Snacks Of Carelessness
+004. Humans By Billions - Le Livre(   Читать дальше...   )Жанр: Ambient, Meditation, Relax, New AgeПродолжительность: 09:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F780EA8300CD6985253B7F7A40931D6455D51979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000628   (857562) от 26.03.2016
 
 VA - Trance Desire Volume 64 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
@@ -710,35 +739,6 @@ VA - Vocal Energy Stages (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5286D2000E0066FE73208F57B9AE8EF8560843D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001708   (850560) от 30.03.2016
-
-VA - Spring Break (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dirty Disco Feat. Debby Holiday-Was That All It Was (Wayne G & Porl Young Remix) 07:48
-02 R3hab & Headhunterz-Won't Stop Rocking (Extended Mix) 04:08
-03 Housecrusherzzz-Beast (Radio Edit) 02:56
-04 Env Feat. Teresa Furtado-I'll Be Ok (Original Mix) 03:07(   Читать дальше...   )Жанр: HouseПродолжительность: 08:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:328EA08D47047DB81CA9278370E244F7AB13D849
 ```
 
 https://mybot314.ru/tekegram_catalog/

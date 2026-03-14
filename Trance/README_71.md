@@ -1,3 +1,148 @@
+###  Публикация: 1815073   (5501) от 28.08.2025
+
+VA - 25 Years Of Anjuna Mixed by SØNIN (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joonas Hahmo - Together (Original Mix) [7:58]
+02. Carrie Skipper - Time Goes By (David West Vocal Mix) [7:50]
+03. Supermodels From Paris - Keep On (Komytea Remix) [6:48]
+04. Super8 & Tab feat. Anton Sonin - Black Is The New Yellow (Original Mix) [8:13](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAADE22B8DF0594B8AC3D904ACBAEC1DE8183906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815379   (5174) от 30.08.2025
+
+VA - The Best Trance Tunes Of 2025 Vol. 1 - Mixed by Roan Gosling (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Protoculture - Lightforms (Original Mix) [6:24]
+02. Ahmed Helmy - North Coast (Original Mix) [5:01]
+03. Yoel Lewis & David D'Or - Falcon (Original Mix) [5:25]
+04. Shogun - Dreamland (Original Mix) [5:19](   Читать дальше...   )Жанр: TranceПродолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7054DCC86E804F8F89FA953A1C8A3A6E781D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816007   (4645) от 02.09.2025
+
+VA - Redux Selection, Vol. 9 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy Alexander & Shadow Theory - Nothing Lasts Forever (Artena Extended Remix) [7:41]
+02. Jay Del Mar - Inertia (Extended Mix) [7:11]
+03. André Wildenhues & Helena Kristiansson & Stacey Jay - Lighthouse (State72 Extended Remix) [7:11]
+04. Sander Bastiaans & DEEMA - Miami Bay (Extended Mix) [8:30](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F65F2127FEACC2D626CEC04619EEAEF929442B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816335   (4410) от 04.09.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 7 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Binary Finary - 1998 (Matt Darey Extended Remix) [7:18]
+02. Signum - Solar Level (Extended Mix) [9:30]
+03. Olmec Heads - Lift Off (Extended Mix) [7:49]
+04. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (12" Vocal Mix) [8:32](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2FC9CE77326309D6E21DBCB0ECB03FCBA0EA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816677   (4076) от 06.09.2025
+
+VA - D.Trance 111 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Re:Locate - Just a Dream [03:14]
+02. Afterus - Dreamwalking (Extended Mix) [05:29]
+03. Eximinds - Rising from the Depths (Extended Mix) [04:42]
+04. F.G. Noise - Revive (Extended Mix) [07:04](   Читать дальше...   )Жанр: TranceПродолжительность: 04:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89D248EF275D1B6F6A0118DABB85F9361E2D876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817709   (3137) от 12.09.2025
 
 VA - Black Hole Trance Music 09-25 (2025) [MP3|320 Kbps] <Trance>

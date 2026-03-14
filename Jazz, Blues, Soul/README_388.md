@@ -1,3 +1,176 @@
+###  Публикация: 1105941   (242398) от 18.02.2017
+
+Lalo Schifrin - There's A Whole Lalo Schifrin Goin' On (1968) 2013, Universal [FLAC|Lossless|tracks + .cue] <World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Secret Code Synthesizer [02:32]
+ 02.Dissolving [02:33]
+ 03.Machinations [02:46]
+ 04.Bride Of The Wind [02:39](   Читать дальше...   )Жанр: World FusionПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB2CA65D7C773C91E4B1997FA8C1792FB2FC5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105714   (242341) от 18.02.2017
+
+Blacktop Deluxe - 2 Album (2014 -2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа образована в марте 2013 года. Дебютный альбом "Turn Up, Be Nice, Play Hard" вышел в мае 2014 года и добрался до 4-го места в чарте Blues Independent Broadcasters Association. Ну а в 2015 вышел второй и последний, на сегодняшний день британской команды. И скажу вам - они стоят, того, чтобы на них обратили внимание))) ИМХО!Список альбомов:
+2014 - Turn Up, Be Nice, Play Hard
+2015 - Presence & GainЖанр: Blues-RockПродолжительность: 01:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF78BEFEAC508B83F06AC7573C1D5EE00BBEE9AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634874   (242337) от 23.05.2023
+
+The Smokin' Elmores - UNLEASHED (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Hearts (3:51)
+02. Miners Blues (4:34)
+03. Wild 'N' Free (3:10)
+04. Get Outta My Life (5:56)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8DAFA30EEC4C1E3655EFBFABE3FA079308246B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634927   (242324) от 23.05.2023
+
+Clare Teal - A Tribute To Ella Fitzgerald (2016) Chasing The Dragon [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got You Under My Skin [2:57]
+02. Begin the Beguine [3:57]
+03. I Get A Kick Out Of You [3:55]
+04. Ding Dong The Witch Is Dead [3:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01725A50E7816ADE1C6699953EE8A1CC4F9526A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105826   (242317) от 18.02.2017
+
+Ray Charles - Live At The Montreux Jazz Festival (2002) Geneon [FLAC|Lossless|tracks + .cue] <Soul Jazz, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ray Charles Opener [01:04]
+ 02.I'll Be Home [03:25]
+ 03.Busted [02:25]
+ 04.Georgia On My Mind [05:50](   Читать дальше...   )Жанр: Soul Jazz, R&BПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BEB012A420843FEDABD65B6F73313EB586500D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628275   (242311) от 22.04.2023
+
+VA - Blues Tunes Vol 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bo Diddley -- Run Diddley Daddy (Alternate Take) (2:47)
+02. J.B. Hutto & the New Hawks -- Bluebird (2:46)
+03. Etta James -- Gonna Have Some Fun Tonight (3:07)
+04. Koko Taylor -- I Don't Care Who Knows (Single Version) (2:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBC793D479D79D36700FA2D3E30903CD4BEB4B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458150   (242307) от 28.03.2021
 
 James Brown - James Brown's Singles Anthology, Vol. 2 (2021) All Tracks Remastered [MP3|320 Kbps] <R'B, Soul, Rock>
@@ -571,180 +744,6 @@ Patti Page - Golden Hits (K2HD Mastering) (2010) [FLAC|Lossless|tracks] <Vocal J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:924D7409E8B294D20B2CCDF6A1A32CEA119A93A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628728   (241827) от 24.04.2023
-
-Phil Woods - Greek Cooking (1967) 1995, Impulse! [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zorba the Greek [3:12]
-02. A Taste of Honey [5:45]
-03. Theme from Antony & Cleopatra [4:54]
-04. Got a Feelin' [4:33](   Читать дальше...   )Жанр: Bop, Hard Bop, World FusionПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE89DC0FAD9F290AE426F58B7A237D14CF11025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628727   (241815) от 24.04.2023
-
-Phil Woods & Bill Mays - Woods & Mays (2011) Palmetto [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All This and Heaven Too [5:57]
-02. Blues for Lopes [5:59]
-03. Danielle [6:35]
-04. Do I Love You? [4:27](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64016AD8B790CCB821EE025DBB877CA8462A68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625213   (241813) от 09.04.2023
-
-Brandee Younger - Brand New Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Harp>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Girl For One Man Only
-02. Brand New Life
-03. Come Live With Me (Interlude)
-04. Livin' And Lovin' In My Own Way(   Читать дальше...   )Жанр: Contemporary Jazz, HarpПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FDD4562350F728AA4721143FDD363D3FFFB508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376509   (241810) от 18.04.2020
-
-Harry Allen - I Can See Forever (2002) BMG [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [4:13]
-02. So Many Stars [5:40]
-03. The Telephone Song [4:54]
-04. O Grande Amor [4:57](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12CD6C56278F5FF957798170BFE9C737CA7AFF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618162   (241783) от 10.03.2023
-
-McCoy Tyner - Sahara (1972) 1987, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ebony Queen [8:59]
-02. A Prayer for My Family [4:48]
-03. Valley of Life [5:19]
-04. Rebirth [5:20](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9ED5BA4952FFD53ACA08EB95E7E8FA6541BFE38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628964   (241755) от 25.04.2023
-
-Billy Taylor - Dr. T (1993) GRP Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Remember April [6:11]
-02. 'Round Midnight [10:34]
-03. Line for Lyons [6:04]
-04. Cubano Chant [3:51](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9320DD0428CD3D8D93010160BC98E45137D9414B
 ```
 
 https://mybot314.ru/tekegram_catalog/

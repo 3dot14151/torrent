@@ -1,3 +1,85 @@
+###  Публикация: 1332808   (308935) от 22.10.2019
+
+CentOS 7.7 (1908) [x86-64] 5xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступен выпуск дистрибутива CentOS 7.7 (1908), вобравший в себя изменения из Red Hat Enterprise Linux 7.7. Дистрибутивы полностью бинарно совместимы с RHEL 7.7, внесенные в пакеты изменения, как правило, сводятся к ребрендингу и замене художественного оформления.
+
+Сборки CentOS 7.7 пока доступны для архитектур x86_64, Aarch64 (ARM64), i386, ppc64le, Power9 и ARMv7 (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A10CAABCC60283880BF2CC795FC55DC286A22D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077361   (306321) от 28.11.2016
+
+Fedora 25 [i386] 11xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официально представлен релиз Linux-дистрибутива Fedora 25. Для загрузки доступны 32- и 64-разрядные сборки продуктов Fedora Workstation, Fedora Server, а также набор "спинов" c Live-сборками десктоп-окружений KDE, Xfce, LXDE, MATE-Compiz, Cinnamon. Дополнительно поставляется образ для Docker и сборки для различных устройств с процессорами ARM.
+
+Одновременно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38CD168AEECEB1FEF1E2A717D1F70734DB383FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422726   (305904) от 10.11.2020
+
+Red Hat Enterprise Linux (Server, Workstation, Client) 6.10 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя пятнадцать месяцев с момента прошлого выпуска компания Red Hat представила релиз дистрибутива Red Hat Enterprise Linux 6.10. Установочные образы RHEL 6.10 доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal. Ветка RHEL 6.x сопровождается параллельно с веткой RHEL 7.x и будет поддерживаться до 30 ноября 2020 года (цикл поддержки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:025CEF17BC712B0758EE4B92681E038BE978522D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422729   (305888) от 10.11.2020
 
 Red Hat Enterprise Linux 7.9
@@ -628,88 +710,6 @@ Linux Mint — дистрибутив операционной системы Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AD0450CB227F9954CA0690A729D4C5C130FE073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850272   (278879) от 14.12.2014
-
-Linux Mint 17.1 oem Rebecca (Mate, Cinnamon) [64bit] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Mint — дистрибутив операционной системы Linux, основанный на Ubuntu 14.04 LTS. Цель дистрибутива заключается в предоставлении конечному пользователю максимально простой системы, которая будет готова к работе сразу после установки и не потребует загружать наиболее популярное программное обеспечение, в том числе и дополнительные кодеки для воспроизведения популярных мультимедийных форматов. В сборке используются популярные графические среды Cinnamon 2.4, Mate 1.8.
-
-От Ubuntu дистрибутив Linux Mint отличается (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EEA79BA37DB327913013D20CD3F9382EDAD375F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336508   (276854) от 08.11.2019
-
-Red Hat Enterprise Linux 8.1
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Red Hat выпустила дистрибутив Red Hat Enterprise Linux 8.1. Установочные сборки подготовлены для архитектур x86_64, s390x (IBM System z), ppc64le и Aarch64, но доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal. Исходные тексты rpm-пакетов Red Hat Enterprise Linux 8 распространяются через Git-репозиторий CentOS. Ветка RHEL (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF000F77DD712C9EC8995CF0BED0202809307F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336507   (275776) от 09.11.2019
-
-Red Hat Enterprise Linux 7.7
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Red Hat выпустила дистрибутив Red Hat Enterprise Linux 7.7. Установочные образы RHEL 7.7 доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal и подготовлены для архитектур x86_64, IBM POWER7+, POWER8 (big endian и little endian) и IBM System z. Исходные тексты пакетов можно загрузить из Git-репозитория проекта CentOS.
-
-Ветка (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425F4F78DA953919F6A07C4FEF4A837FC2EDE870
 ```
 
 https://mybot314.ru/tekegram_catalog/

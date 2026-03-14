@@ -1,3 +1,118 @@
+###  Публикация: 1695256   (120417) от 28.01.2024
+
+Rage Of Light - Studio Albums (4 releases) (2016-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic/Melodic Death/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rage Of Light - Melodic Death/Trance метал-группа из Швейцарии.2016 - Chasing A Reflection (EP)
+2019 - Imploder
+2021 - Redemption
+2023 - Opaque (EP)Жанр: Electronic/Melodic Death/Groove MetalПродолжительность: 02:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446E0DEBBC6D8173825DAB3B75670C59F6803B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695558   (120256) от 29.01.2024
+
+Still Remains - The Serpent (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Serpent
+02. The Wax Walls of an Empty Room
+03. Stay Captive
+04. Anemia in Your Sheets(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:418ACE6BF65EEF9BB925C1254AAFAB010D346F2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695859   (120133) от 30.01.2024
+
+Reign of Fury - Studio Albums (4 releases) (2011-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reign of Fury - мелодик-трэш-метал группа из Великобритании.2011 - Psycho Intentions
+2012 - World Detonation
+2015 - Death Be Thy Shepherd
+2019 - Exorcise RealityЖанр: Thrash MetalПродолжительность: 02:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8934EE90D1F6E22BD222517F5E5D8FF3AE53A89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550415   (119842) от 01.02.2024
+
+Avenged Sevenfold - Дискография (10 albums) (2001-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <NWOAHM, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avenged Sevenfold — американская метал-группа из Хантингтон-Бич, образованная в 1999 году.2001 - Sounding the Seventh Trumpet
+2003 - Waking the Fallen
+2005 - City of EvilЖанр: NWOAHM, Progressive MetalПродолжительность: 12:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F436D16D58B42632B7C4B0722617C550EE1214D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696277   (119764) от 01.02.2024
 
 Guns N' Roses - G N' R Lies (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
@@ -624,121 +739,6 @@ Lacuna Coil - Broken Crown Halo (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Got
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C3527333B9B6EFC6800DAB15D6A6ACC2278019F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698704   (118295) от 10.02.2024
-
-VA - Песни И Романсы. Поют В. Трошин, З. Невская, И. Кобзон, Э. Хиль, Е. Беляев, Н. Исакова и др. (1972) [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Romances>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песни
-A1 В. Трошин – Снегириная Заря
-(Б.Терентьев – А.Поперечный)
-A2 З. Невская – Дни Проходят(   Читать дальше...   )Жанр: Pop, RomancesПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA01373695CCE41022568A170CF85B733F267CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698857   (118252) от 10.02.2024
-
-Enemy of Reality - Studio Albums (3 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enemy of Reality - симфоник-метал группа из Афин, Греция. Образована в 2013 году.2014 - Rejected Gods
-2016 - Arakhne
-2023 - Where Truth May LieЖанр: Symphonic MetalПродолжительность: 02:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C2D68CFBBF7A88BB661F9E0A0AB01F5028DDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698754   (118250) от 10.02.2024
-
-Lacuna Coil - Black Anima (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118250.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Anima Nera (Prologue)
-A2 Sword Of Anger
-A3 Reckless
-A4 Layers Of Time(   Читать дальше...   )Жанр: Gothic, Alternative MetalПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30FCC6D7F71AF0BD0B76DD5147B676EC15FD6B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698749   (118231) от 10.02.2024
-
-Lacuna Coil - Delirium (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Rock, Alternative Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118231.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The House Of Shame
-A2 Broken Things
-A3 Delirium
-A4 Blood, Tears, Dust(   Читать дальше...   )Жанр: Gothic Metal, Rock, Alternative Rock, MetalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7F1808F5780DA0A7AB7392D1EEB6B5E331B164
 ```
 
 https://mybot314.ru/tekegram_catalog/

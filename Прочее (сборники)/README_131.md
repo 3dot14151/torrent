@@ -1,3 +1,32 @@
+###  Публикация: 1582512   (323008) от 09.10.2022
+
+VA - The Official UK Top 100 Singles Chart 07.10.2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith, Kim Petras - Unholy
+02. David Guetta, Bebe Rexha - I'm Good (Blue)
+03. Lewis Capaldi - Forget Me
+04. Eliza Rose, Interplanetary Criminal - B.O.T.A.(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CA2D21A775E8416347906A8F3206657217E4A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582454   (323005) от 09.10.2022
 
 VA - Soft 80er (2022) CD, Compilation [MP3|320 Kbps] <Synthpop, Disco, Soft Rock, Jazz-Funk>
@@ -722,35 +751,6 @@ VA - Music News vol.46 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F032E06EAC948DAF0B8289C9018ABEE059D3DBF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421966   (315424) от 06.11.2020
-
-VA - Fun Disco Roller: October Set (2020) [MP3|320 Kbps] <Disco, Dance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315424.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cayden Shall - Yula (Original Mix)
-002. Tokyo Social Club - Over
-003. Serial Thrilla - Soul Man (Original Mix)
-004. Uj Pa Gaz - End Of M(   Читать дальше...   )Жанр: Disco, Dance, RemixПродолжительность: 13:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4833725DA22D7B6E1DAB99E013E841324D3738A
 ```
 
 https://mybot314.ru/tekegram_catalog/

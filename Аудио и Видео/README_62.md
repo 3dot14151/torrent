@@ -1,3 +1,32 @@
+###  Публикация: 1507002   (799137) от 02.11.2021
+
+VA - Future Chill (2021) [AAC|~327 Kbps] <Lo-Fi, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misc.Inc - Revelations (2:41)
+02. Alex Cortiz - Lonesome Rider (5:25)
+03. Worldtraveller - The Rory Glory Smokadelic Bloomdub (3:50)
+04. Pearldiver - Hypnotizing (Worldtraveller's Slow Motion Edit) (2:42)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD1B8D2047A6EFE53EC219DDB69A740394BD461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506863   (799136) от 02.11.2021
 
 VA - Moscow Orange: Urban Chillout Music (2020) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
@@ -713,35 +742,6 @@ Diana Ross - Thank You (2021) [AAC|~310 Kbps] <Pop, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EA112BE8E8B69D57B2B023CAAFBE2C93D1137CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507534   (798403) от 04.11.2021
-
-ABBA - Voyage (2021) [AAC|~325 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Have Faith in You (5:09)
-02. When You Danced With Me (2:50)
-03. Little Things (3:08)
-04. Don’t Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B81F04DABC653CF6DFEDE8C3113617187FF387
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,99 @@
+###  Публикация: 561849   (405917) от 18.10.2012
+
+Julie London - Sophisticated Lady & For The Night People (1998) [FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_405917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sophisticated LadyЖанр: Jazz, VocalПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561902   (405861) от 18.10.2012
+
+Emilie-Claire Barlow - 2 альбома (2005, 2009) [FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_405861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Do Is Dream Of You [03:59]
+02. C'est merveilleux [03:49]
+03. You're Driving Me Crazy [03:04]
+04. Comin' Home Baby [04:24]
+05. Haven't We Met [03:03]
+06. I'm Glad There Is You [05:01]
+07. Chez moi [02:53]
+08. Is You Is Or Is You Ain't My Baby [05:03]
+09. Jardin d'hiver [04:01]
+10. La Vem A Baiana [02:49](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561709   (405835) от 18.10.2012
+
+VA - The Famous Sound of three blind mice (1987-1989) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_405835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masaru Imada Trio - Softly as in a Morning Sunrise [06:17]
+02. Isao Suzuki Sextett - Ako's Dream [09:38]
+03. H. Sleepy Matsumoto Quartet - You Don't Know what Love is [07:28]
+04. Sunao Wada Quartet - Blues in the Closet [06:17]
+05. Hideo Kanai Quintet - Tensions [06:08]
+06. Shoji Yokouchi Quartet - Message [06:15]
+07. Toshiyuki Miyama & The New Herd - Sweet Heart Blues [07:36]
+08. Ayako Hokosawa with The New Herd - Let's Go Get Stoned [05:21]
+09. Y. Otomo-Hidefumi T. Alto Madness - Scrapple from the Apple [11:04]
+10. Tsuyoshi Yamamoto Trio - Almost Like Being in Love [06:22]Жанр: JazzПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562137   (405551) от 19.10.2012
 
 VA - Bar Classics Vocal - Greatest Late Hour Blue Songs (2010) [FLAC|Lossless]<Jazz, Classical>
@@ -706,105 +802,6 @@ CD1
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564131   (402852) от 23.10.2012
-
-Lee Ritenour - Rhythm Sessions (2012) [FLAC|Lossless]<Fusion, Smooth Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Village [05:06]
-02. River Man [04:35]
-03. Fat Albert Rotunda [04:43]
-04. 800 Streets By Feet [03:26]
-05. Children's Songs #1 [05:16]
-06. L.A. By Bike [05:45]
-07. Maybe Tomorrow [03:42]
-08. Spam Boo Limbo [04:02]
-09. July [04:54]
-10. Rose Pedals [03:53](   Читать дальше...   )Жанр: Fusion, Smooth Jazz, Guitar JazzПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564503   (402749) от 23.10.2012
-
-VA - Audiophile Female Voices (2005) [FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Susan Wong - Cavatina [04:00]
-02. Michelle - Don't It Make My Brown Eyes Blue [03:42]
-03. Rosanne Lui - Tennessee Waltz [03:43]
-04. Vince Mai - I Cover the Waterfront (feat. Tania Hancheroff) [04:54]
-05. Susan Wong - Stay Awhile [03:35]
-06. Michelle - As Time Goes By [02:58]
-07. Rosanne Lui - Fly Me to the Moon [04:39]
-08. Susan Wong - Rainy Days and Mondays [03:46]
-09. Vince Mai - Triste (feat. Tania Hancheroff) [05:45]
-10. Rosanne Lui - Smoke Gets in Your Eyes [04:21](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169602   (401624) от 29.09.2017
-
-XXIth Century Infinity Jazz Ensemble - Digging In Archives (2009) JAZZO Sophia [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [00:17]
-02. Bells [16:59]
-03. Alabama [12:48]
-04. Living Space [18:05](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AE2E4852FD303C1E3F56EDEAF524BF633E06E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,182 @@
+###  Публикация: 1040598   (585536) от 06.08.2016
+
+Oli Brown - Songs From The Road (2013) Live [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speechless    04:51
+02. Thinking About Her    04:03
+03. Manic Bloom    09:36
+04. Next Girl    03:57(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF72547E0C55740250CC6E3544A78A0FBB376AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358234   (585314) от 03.07.2011
+
+Vdelli - Ainґt bringing me down (2009) [APE|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manhole
+02. Something new
+03. Loose endz
+04. Boogie sea
+05. Going to hard
+06. Could be good
+07. Boogie a
+08. Suck iit up
+09. Condescending lies
+10. Boogie bee(   Читать дальше...)Жанр: Blues-RockПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301460   (585261) от 11.05.2019
+
+Rick Vito - Soulshaker (2019) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Just Too Fine (2:52)
+02. I've Got a Secret (3:50)
+03. I Do Believe (3:50)
+04. World on Fire (4:44)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5AE5921891C202E63C244E1F3386499C18A476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358213   (584973) от 03.07.2011
+
+VA - Masters of Blues: Best Of The Best Collection (2009) 2CD [FLAC|tracks+.cue]<Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muddy Waters – Mannish Boy (Mc Daniels/Morgenfield)     (02:55)
+02. John Lee Hooker –
+    One Bourbon, One Scotch, One Beer (Hooker John Lee)     (02:59)
+03. Willie Dixon – Walkin\’ the Blues (MC Rae/Dupree) 	    (03:04)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:50:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919021   (584942) от 17.07.2015
+
+Weather Report - Live In Tokyo (1972) 2CD /2014, Sony Music/[FLAC|tracks+.cue]<Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584942.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Medley: Vertical Invader - Seventh Arrow - T.H. - Doctor Honoris Causa [26:22]
+02. Medley: Surucucu - - Early Minor - Directions [19:25]Жанр: Jazz, Jazz FusionПродолжительность: 01:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257A6999820CB79D22A7019F35C79CEF28036674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918920   (584935) от 17.07.2015
+
+Isaac Farr Trio - Blue Highway (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Highway (02:34)
+02. Circles (03:40)
+03. The Music (03:53)
+04. Sweet Lucy (03:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D195940088A1064FE8EC437035AB2452E29BBF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918867   (584886) от 17.07.2015
 
 Big James And The Chicago Playboys - The Big Payback (2012) [MP3|320 кб/с]<Blues>
@@ -574,180 +753,6 @@ Sarah Vaughan - The Roulette Years, Vols. 1-2 (1960 - 1964) 1991, Blue Note [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ED244966432DB782DA215B79CDB2BC386A57C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553242   (583761) от 24.05.2022
-
-David Linx - Be My Guest: The Duos Project (2021) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Letter to Trevor (with Trevor Baldwin) (3:51)
-02. Hunter (with Or Solomon) (4:02)
-03. Pagina de Dor (with Hamilton De Holanda) (4:29)
-04. Close to You (with Magic Malik) (4:03)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDBCEE732B6F3E9B7C2BD4B9DD05C02A11E6EB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553193   (583754) от 24.05.2022
-
-Glenn Miller - Moonlight Serenade (1939 - 1944) 2000, Past Perfect [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Mood [3:35]
-02. Sunrise Serenade [3:25]
-03. The Jumpin' Jive [2:33]
-04. Moonlight Serenade [3:25](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7E72EC03A521BE40CFC11E8651E60973CE37E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553194   (583753) от 24.05.2022
-
-Rhoda Scott - Anthology (1972, 1973) 2011, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz, Organ Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moanin' [3:09]
-02. Fire and Brimstone [3:27]
-03. Shiny Stockings [5:05]
-04. My Funny Valentine [4:13](   Читать дальше...   )Жанр: Post-Bop, Soul-Jazz, Organ JazzПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205BA1D67BF550A68F271087E48CD4758BB7CAE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552986   (583751) от 24.05.2022
-
-Jz & Dirty Pool - Late Bloomer (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues Rock, Hard Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bonecrusher (00:04:46)
-02 - Breakdown (00:04:35)
-03 - Cross The Line (00:03:27)
-04 - Dangerous Frequency (00:05:26)(   Читать дальше...   )Жанр: Heavy Blues Rock, Hard RockПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3F82A0F8290D10AD3D13A596CC024032E7F67A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810422   (583481) от 05.08.2014
-
-Ella Fitzgerald, Count Basie, Joe Williams - One O'clock Jump (1999) [FLAC|Lossless]<Jazz, Vocal Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Close for Comfort [03:05]
-02. Smack Dab in the Middle [03:38]
-03. Amazing Love [03:31]
-04. Only Forever [03:37](   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Swing, Big BandПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE533845A1D9C2255F8AE602A150B0AA4DE2E0CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041293   (583463) от 08.08.2016
-
-Don Wilkerson - The Texas Twister (1960) 2001, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Twister [06:33]
- 02.Morning Coffee [07:53]
- 03.Idiom [05:22]
- 04.Jelly Roll [07:45](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA409AFD3392752B697D78FEA3F1B0D7CF0F31DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 945718   (431850) от 11.10.2015
+
+Omara Portuondo - Magia Negra The Beginning (2014) [FLAC|tracks|WEB-DL]<Vocal, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magia Negra
+02. No Puedo Ser Feliz
+03. Besame Mucho
+04. Noche Cubana(   Читать дальше...   )Жанр: Vocal, Latin JazzПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACD2F87AEC8B0C48E205E3769FA8C21F028AA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945715   (431848) от 11.10.2015
+
+Omar Sosa - Eggun (2013) [FLAC|Lossless]<World Fusion, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alejet
+02. El Alba
+03. Interludio I
+04. Alternativo Sketches(   Читать дальше...   )Жанр: World Fusion, Contemporary Jazz, Piano JazzПродолжительность: 01:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAED556C64AEC199CC65350DDA9B04F015C33E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571523   (431844) от 22.08.2022
+
+Angelo Debarre, Serge Camps, Frank Anastasio - Gypsy Guitars (1989) Hot Club Records [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues en Mineur [3:24]
+02. Chansons Hongroises [5:17]
+03. Cherokee [3:49]
+04. La Gitane [3:39](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297455738FCFAB689ECED733DB19337A3294EDB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553684   (431795) от 03.10.2012
 
 VA - Explorations Into Dancefloor Jazz Vol. 1-3 (1994-95) [FLAC|Lossless]<Acid Jazz, Jazzdance>
@@ -683,93 +770,6 @@ The Four Freshmen - Voices in Love & Love Lost (1958, 1959) 1998, Collectors' Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A044D9378E849F96EB5D80BD2068AEA58E8BC1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166016   (428657) от 15.09.2017
-
-Miles Davis Quintet - Winter in Europe 1967 (2006) Gambit Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [00:32]
-02. Agitation [06:58]
-03. Footprints [09:07]
-04. Around Midnight [08:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD420B56841F73F688E4AC1B6649283A4CC3C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166017   (428509) от 15.09.2017
-
-Eva Cortes - El Mar De Mi Vida (2010) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Mar De Mi Vida [04:26]
-02. Casi [03:35]
-03. C'est Si Bon - Que es Mejor? [03:20]
-04. Desterrado [05:42](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E4F4DE9729AF2868998892F2956DC1A5DC01EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064246   (428388) от 19.10.2016
-
-Peggy Lee - Rendezvous With Peggy Lee (1946-1949) 2000, Vocalion[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Can't Give You Anything But Love [02:36]
- 02.Why Don't You Do Right? [02:28]
- 03.Stormy Weather [03:10]
- 04.Them There Eyes [03:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F6FEE9815AB6243B93C76FB28632CB933C4F90B
 ```
 
 https://mybot314.ru/tekegram_catalog/

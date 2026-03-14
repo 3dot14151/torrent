@@ -1,3 +1,99 @@
+###  Публикация: 534944   (516975) от 16.08.2012
+
+Abe Rabade - A Modo (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9 Contra 4 [11:06]
+02. Transito no. 3: Jamal's Mood [09:44]
+03. Arabesco Da Iria [05:57]
+04. A Modo [10:13]
+05. Perdas [06:52]
+06. Comico, Tonico, Sonico [06:42]
+07. Carmencita [12:26]Жанр: JazzПродолжительность: 01:03:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534989   (516572) от 16.08.2012
+
+Shirley Bassey -  Goldfinger ( 1993 ) & Best Of ( 2012 )[FLAC|Lossless]<Jazz, Vocal, Ballad>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This is my life [03:16]
+02. Goldfinger [02:51]
+03. You are the sunshine of my life [03:04]
+04.  Fly me to the moon [02:40]
+05. I get a kick out of you [02:48]
+06. Love is a many splendored thing [02:53]
+07. The liquidator [02:20]
+08. Moon river [03:00]
+09. Natali [03:11]
+10. If you go away [02:42](   Читать дальше...   )Жанр: Jazz, Vocal, BalladПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242193   (516293) от 21.08.2018
+
+Louis Hayes And The Cannonball Legacy Band - Maximum Firepower (2006) Savant [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jessica's Birthday [4:02]
+02. This Here [5:23]
+03. Lisa [4:03]
+04. Little Boy With The Sad Eyes [6:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECDF462B2BD8C4E1A2E7F3F39534DA7FD7B753AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 374646   (515660) от 12.08.2011
 
 Shakatak - Street Level (1993) [APE|Lossless]<Jazz, Soul-Jazz, Jazz-Funk, Soul-Funk>
@@ -662,93 +758,6 @@ Charles Davis All Stars - A Tribute To Kenny Dorham (2010) TCB Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72E0FBF0C00BA33F278A78B276D1C587AF30F27F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242621   (514034) от 23.08.2018
-
-Freddie Hubbard - The Hub of Hubbard (1969) 1972, MPS Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without a Song [12:55]
-02. Just One of Those Things [7:17]
-03. Blues for Duane [7:37]
-04. The Things We Did Last Summer [7:20]Жанр: Hard Bop, Post-BopПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8752FEFBC129F3B8E5E53D3DB42368720DDD1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315339   (513967) от 19.07.2019
-
-Thomas Marriott - Romance Language (2018) Origin Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dexter's Tune [3:17]
-02. Forgiveness [4:51]
-03. I Remember Sky [4:35]
-04. Piggyback [4:30](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914B1F0BEDDEB06A61F99743D98C796969235928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561694   (513621) от 06.07.2022
-
-Paul Desmond & Jim Hall - The Complete Recordings Of The Paul Desmond Quartet With Jim Hall (1959) 4CD, 1989, Mosaic Records [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513621.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. East of the Sun [5:45]
-02. For All We Know [5:34]
-03. I Get a Kick Out of You [8:39](   Читать дальше...   )Жанр: CoolПродолжительность: 04:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64131EAC69DFF839DE240EF2AA13120474671E99
 ```
 
 https://mybot314.ru/tekegram_catalog/

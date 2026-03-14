@@ -1,3 +1,32 @@
+###  Публикация: 958679   (321745) от 22.11.2015
+
+VA - Drum And Bass Evolution (2015) [MP3|320 кб/с]<Drum And Bass, DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Raxus - Warlock
+002. Baro - Disciple
+003. Rusty Mustard - Wavefunction (Kozone Remix)
+004. We Are Human - Destruct(   Читать дальше...   )Жанр: Drum And Bass, DubStepПродолжительность: 08:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DEA1C8C54D27178DA7AF865FB73D1E6F2C5AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181684   (321711) от 08.11.2017
 
 VA - Romantic Chill (2017) [MP3|320 Kbps] <Chillout , Lounge , Ambient>
@@ -721,35 +750,6 @@ VA - Dubstep Classic Hits Top 100 (2015) [MP3|320 кб/с]<Drumstep, Dubstyle>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E3DAF31C123E90B983C54ADAC75A2689CDDEE39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959359   (317196) от 24.11.2015
-
-VA - Charming Bourgeois Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Walden - Mirando El Mar - Original Mix
-02. Jazzoman - Gente - Original Mix
-03. Keerg - Lonely Hughes - Original Mix
-04. Fith Groove - Calibrato - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F7DC8F0873C18925893B04E3D468D404CF0B81
 ```
 
 https://mybot314.ru/tekegram_catalog/

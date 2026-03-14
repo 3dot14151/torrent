@@ -1,3 +1,32 @@
+###  Публикация: 946813   (422674) от 15.10.2015
+
+iLL - Gotten Gains (2012) [MP3|320 кб/с]<Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422674.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One Time (3:27)
+2. A (5:06)
+3. There Are Worse Things Than Being Alone (3:49)
+4. Christine (7:49)(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF6371A2C65B2395443714F9E4476EF3F80706F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065157   (421631) от 22.10.2016
 
 Tyketto - Reach (2016) [MP3|320 Kbps] <Hard Rock>
@@ -722,35 +751,6 @@ Autograph - Buzz (2003) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08D2153DA64CB942839BC1AA4B0860E4C0F94C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169491   (403154) от 27.09.2017
-
-Loosely Tight - Fightin' Society (1981) Reissue, Not On Label [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403154.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fightin' Society
-2. Loud N' Restless
-3. Renegade
-4. Off In The Distance(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99917E9306BCAD1569FAFFA910E910210CC9F63
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1818329   (2469) от 16.09.2025
+
+Katya Filipova - Катя Филипова (1977) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2469.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Чай За Двама • Tea For Two • Чай Для Двоих
+A2 Начало • Beginning • Casanova Brown
+A3 Дълъг Ден, Кратка Нощ • A Long Day, A Short Night • Длинный День, Короткая Ночь
+A4 Танц За Теб • A Dance For You • Танец Для Тебя(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38686F333013CC66C9DF98679E3721D24DBBB50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818348   (2451) от 16.09.2025
+
+Dagoba - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dagoba — французская метал-группа, основанная в 1997 году в Марселе.2001 - Release the Fury (EP)
+2003 - Dagoba
+2006 - What Hell Is About
+2008 - Face the Colossus(   Читать дальше...   )Жанр: Groove/Industrial MetalПродолжительность: 07:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23FB35512F71E2FAE57E257994D48E9B14E21C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818659   (2144) от 18.09.2025
+
+Fear My Thoughts - Studio Albums (6 releases) (2001-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fear My Thoughts - немецкая метал-группа из Райнфельдена, существовавшая с 1998 по 2010 год.2001 - 23
+2002 - Vitriol
+2004 - The Great Collapse
+2005 - Hell Sweet HellЖанр: Hardcore/Metalcore, Melodic Death MetalПродолжительность: 04:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3E9CC1880AC71F90764DDD82B41E5AA17CD40F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818670   (2141) от 18.09.2025
+
+Karel Vacek - Zustan Tu S Nami Muziko Ceska - Pisnicky Karla Vacka (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country, Polka>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2141.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Stesti Na Rozcesti
+A2 Hej, Panimamo
+A3 Skrivanek Zpival
+A4 Proc Nezustane Slunce Stat(   Читать дальше...   )Жанр: Folk, Country, PolkaПродолжительность: 00:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DBB8EB0789391BF6C6C8D91224077E3791C127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578274   (2110) от 19.09.2025
 
 Paradise Lost - Studio Albums (18 releases) (1990-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Gothic Metal>
@@ -625,33 +741,6 @@ Arabs In Aspic - норвежская группа, играющая прогр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBB0F5AC165EDEF8B7EB33C4C4FEFBCE893FF3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820868   (4) от 29.09.2025
-
-Siege Of Power - Studio Albums (2 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4.jpg" />
-</div>
-
-
-###  Подробнее
-
-Siege Of Power - метал-группа с участниками из США и Нидерландов, основана в 2017 году.2018 - Warning Blast
-2023 - This Is TomorrowЖанр: Death/Thrash MetalПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142BFC7C3E74D99E5CE00DC454C30DCB25ABD378
 ```
 
 https://mybot314.ru/tekegram_catalog/

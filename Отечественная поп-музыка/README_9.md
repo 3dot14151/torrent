@@ -1,3 +1,61 @@
+###  Публикация: 1212152   (776468) от 10.03.2018
+
+Гоша Куценко - Ду это! (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Капли (feat. Ёлка)
+02. Солнце (feat. Анжелика Варум)
+03. Люди летят (feat. Полина Гагарина)
+04. ONE/TWO (feat. IOWA)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBAF7ECC60019E4C863747E46A7355FCFF4A9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016074   (771064) от 13.05.2016
+
+VA - Первый дачный, Vol.2 (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MONATIK - Выходной
+02. IOWA - Бьёт бит
+03. Нюша - Целуй
+04. Доминик Джокер - Такая одна(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5466773B66A2C86ED02BD3DB130FD4261DF5002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016388   (770230) от 14.05.2016
 
 Ирина Салтыкова - Ранее не изданное (2016) [MP3|320 кб/с] <Pop>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76CD6688C3E3D153F13888BCBFDB0E55951862D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129842   (720547) от 29.04.2017
-
-Siberian Heat & Elen Cora - Brilliants: Best Of US (2015) LP, Compilation [OGG|312-322 Kbps] <Disco, Italo-Disco, Synth-pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720547.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Siberian Heat - Pick Up The Phone (ZYX Summer Mix) 7:20
-A2. Siberian Heat - Don't Stop The Music (Special Zyx Maxi Version) 7:53
-A3. Siberian Heat - Shadows (ZYX Long Mix) 6:34
-B4. Siberian Heat - Magic Blue Eyes (Maxi Version) 8:56(   Читать дальше...   )Жанр: Disco, Italo-Disco, Synth-popПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A377995A8259DB3EACCBEE30E11C890C7E7160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129517   (720333) от 29.04.2017
-
-Филипп Киркоров - 4 альбома (1990-1993) Vinil-Rip [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночной бал (К. Кравчик — Л. Рубальская)
-02. Кармен (3. Попова — О. Серебренников)
-03. Бегущая по волнам (В. Казасян — И. Резник)
-04. Не смотри ты на часы (А. Иосифов — Л. Дербенёв)(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1790380B961E31C85569892E884A5C41E8DDA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

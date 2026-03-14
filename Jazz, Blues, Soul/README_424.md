@@ -1,3 +1,177 @@
+###  Публикация: 1656887   (202832) от 01.09.2023
+
+Coco Montoya - Writing On The Wall (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was Wrong
+02. Save It For The Next Fool
+03. You Got Me (Where You Want Me)
+04. (I'd Rather Feel) Bad About Doin' It(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4075CBDB03786BAEBA0BA319B4E834BE562806B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656809   (202823) от 01.09.2023
+
+Tommy Flanagan - Something Borrowed, Something Blue (1978) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Song [4:48]
+02. Good Bait [4:07]
+03. Peace [6:14]
+04. Friday the 13th [3:52](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336D5CC1A83FA3E2F4402599B8AEBA007E32A247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612752   (202660) от 16.02.2023
+
+Joe Louis Walker - Weight of the World (2023) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weight of the World (04:25)
+ 02. Is it a Matter of Time- (03:11)
+ 03. Hello, it's the Blues (06:46)
+ 04. Waking Up the Dead (04:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D524CA2732E88EDDBB916D10F476AC0B463B6D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830451   (202480) от 26.10.2025
+
+Electro Swing - New York City of Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  New York City of Swing (3:13)
+02.  Neon Night Voyage (3:12)
+03.  Party Nights (3:05)
+04.  Ocean Sky (3:16)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D29ED0168D3792E657B0012AD4BCC9FB2A1316C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830459   (202477) от 26.10.2025
+
+Electro Swing Groove - Vocal Nights, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Me and My Piano (3:08)
+02.  Feel Good (3:05)
+03.  Dance To My Own Beat (2:40)
+04.  Runaway Love (2:49)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6488E3B0EBACD83E58B13C56705CE723A2D5825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830475   (202475) от 26.10.2025
+
+The Electro-Swing Band - A Fading Gleam (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A Fading Gleam (4:22)
+02.  The Love Of My Life (2:52)
+03.  Love That Never Began (1:57)
+04.  On This Lonely Road (2:36)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B11E3202F70A226F4EF3948650AA7C30453E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830481   (202474) от 26.10.2025
 
 Jay Hooks - Tequila & Bullets (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -569,180 +743,6 @@ Satin Groove - More Saxxy (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B53F0F79760827EA168A2C627FB5F7DC3752E9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827740   (193358) от 23.10.2025
-
-Timmy Stax - Bay Area Jazz and Soul Lake Merritt Jazz and Soul Revue (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  West Oakland Sunset (4:29)
-02.  Walk Around The Lake (4:47)
-03.  The Quiet Storm (3:53)
-04.  Inner Circle Jazz (3:49)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F78D6093E06B1D5A84ECA68B29A50E65D9C158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827748   (193353) от 23.10.2025
-
-VA - Acid Jazz Funk (Vol.4) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Smoke Orchestra - Lenticular Galaxy (2:49)
-02.  Fusion Funk Foundation, Lo Greco Bros & Soulstance - In The Morning (3:40)
-03.  Yuts and Culture - Back To Ma Funk (5:48)
-04.  Lainz & Black & Brown - Sfrombolus (6:20)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF91334B0F0E4E27F57AEAACC47D6474F402C372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827760   (193345) от 23.10.2025
-
-Big Chief Monk Boudreaux & Spyboy Jwan Boudreaux - Slip Don't Fall (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mardi Gras Morning! (7:07)
-02.  Can't Be Late (3:16)
-03.  Jock-a-Mo (5:15)
-04.  Travelin Man (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADA369F2E4E85A96E02FC34C67EDE684B6C6E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827764   (193343) от 23.10.2025
-
-Corey Congilio - A Good Place To Start (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Me (3:31)
-02.  Who's Been Talkin' (4:32)
-03.  I Wouldn't Treat A Dog (The Way You Treated Me) (4:59)
-04.  Heebie Jeebies (2:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCCDB2251CFB8DB374A692660CBC875A4B3CAA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657085   (193147) от 02.09.2023
-
-Phil Woods, Gene Quill, Sahib Shihab, Hal Stein - Four Altos (1957) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pedal Eyes [7:37]
-02. Kokochee [6:30]
-03. No More Nights [5:09]
-04. Kinda Kanonic [6:10](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F491C467C6373EC5CFF3C4FDA6E40E8461632F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657089   (193132) от 02.09.2023
-
-Azula Queen Quartet - Blues Sem Fronteiras (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bh - Blues (7:19)
-02. Baby Please (5:48)
-03. Holliday Blues (4:55)
-04. Te Encontrar (6:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B683B6241B56F55FD97020E275B49C08DD9D977
 ```
 
 https://mybot314.ru/tekegram_catalog/

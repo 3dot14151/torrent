@@ -1,3 +1,90 @@
+###  Публикация: 1669387   (172874) от 16.10.2023
+
+Grant Green - Alive! (1970) 2000, Blue Note [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let the Music Take Your Mind [8:29]
+02. Time to Remember [11:36]
+03. Band Introduction by Buddy Green [0:33]
+04. Sookie, Sookie [10:58](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Guitar JazzПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C136AFE7AC7BC0C441852D2073604301CB5B1083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669654   (172681) от 17.10.2023
+
+David Hazeltine - The New Classic Trio (2012) Sharp Nine Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Stood Still [5:18]
+02. I Wish I Knew [6:14]
+03. Hob Nob with Brother Bob [5:56]
+04. I'll Let You Know [6:49](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C54041773C2AA9448345975B2BF55336BA4E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669658   (172677) от 17.10.2023
+
+Roland Hanna & George Mraz - Romanesque (2023) Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humoresque [8:23]
+02. Serenade [5:45]
+03. My Reverie [6:14]
+04. Chant Sans Paroles, Op.2, No.3 [4:32](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E10C75C3F9C77CB7B1D8B6D00B1C0C2C5FDEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669656   (172676) от 17.10.2023
 
 Roland Hanna Trio - Dream (2001) Venus Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
@@ -655,93 +742,6 @@ Julius Hemphill - Big Band (1988) Elektra Musician [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A959ABBBFA1EE5B4B267F96CFE679B6B004504D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670832   (171781) от 22.10.2023
-
-George Van Eps & Howard Alden - Keepin' Time (1994) 1996, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Skies [4:31]
-02. Satin Doll [6:33]
-03. It Had to Be You [6:49]
-04. Body and Soul [5:06](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A75C0065F3C98974C412B76A488C5C8EC6845D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670816   (171780) от 22.10.2023
-
-Anita O'Day - In a Mellow Tone (1989) DRG Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Mellow Tone [4:42]
-02. On the Trail [4:03]
-03. The Man With a Horn [3:41]
-04. Once in a While [4:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E828C973E5FB5BA861DB25C73E826D35F0E82157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670820   (171779) от 22.10.2023
-
-Anita O'Day - My Ship (1975) 2003, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll [2:19]
-02. Mean To Me [3:35]
-03. Why Shouldn't I [2:13]
-04. Body And Soul [4:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8BA11D3F2737125E1B7F642C11EBB7CE203450A
 ```
 
 https://mybot314.ru/tekegram_catalog/

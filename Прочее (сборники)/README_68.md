@@ -1,3 +1,32 @@
+###  Публикация: 1222397   (684440) от 29.04.2018
+
+VA - Лучший Клубный Хит Vol.2 (2018) [MP3|320 Kbps] <Club, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fedde Le Grand - You Got Me Runnin
+02. Grivina - I Love Deep House (Ramirez & Rakurs Remix)
+03. Filatov & Karas Vs. Виктор Цой - Остаться С Тобой (Vox Mix)
+04. An.Du - She's A Bitch (X-Tropic Remix)(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 03:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03903BB95093018FA7A9234DBD4C806AA4FC0ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222531   (684439) от 29.04.2018
 
 VA - Лучший Клубный Хит (2018) [MP3|320 Kbps] <Club, House, Dance>
@@ -715,41 +744,6 @@ VA - Sexy Music Compilation *Selected by Carlo Cavalli* (2012) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508468   (679605) от 10.06.2012
-
-VA - World Of Relax (2012) [MP3|320 кб/с]<Relax>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fred Buccini - Love
-02. Sao Vicente - My Perfect Day
-03. Mayra Andrade - Poc Li Dente e Tcheu
-04. Masan & Miyabi - The Sensual View
-05. Parov Stelar - A Night In Torino
-06. Lenny Macdowell & Krell - The Awakening
-07. Alexander Dancaless - Irreversibility
-08. Sphere - Enchanted World
-09. Matthew Compton - Wings Of Moonlight
-10. Lemongrass - On the Edge of Time Feat Karen2012Жанр: RelaxПродолжительность: 03:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F205921FE8E032D99174A9B1F67A8B431621E97
 ```
 
 https://mybot314.ru/tekegram_catalog/

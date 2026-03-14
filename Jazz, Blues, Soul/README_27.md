@@ -1,3 +1,61 @@
+###  Публикация: 1447929   (1031127) от 16.02.2021
+
+VA - Ladies Sing & Play The Blues Vol. 5 (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Daines - That's What The Blues Is All About - [6:06]
+ 02. Chantel McGregor - Help Me - [6:55]
+ 03. Shaun Murphy - Did You Call - [4:58]
+ 04. Thornetta Davis - That Don't Appease Me - [4:27](   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874180CD3EC659FB085493EBF59FF18A7E171BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448265   (1030971) от 17.02.2021
+
+Jazz Q - Zneni a Sneni (Znění a Snění) (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swinguj co to dá radí jana koubková (04:55)
+02. Jinokraj (06:27)
+03. Chce se mi spát (05:23)
+04. Co říkáš joe? (07:19)(   Читать дальше...   )Жанр: Jazz-PopПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF497181A3A7653516A2AA845DE879AF44B9AE34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621541   (1030969) от 25.03.2023
 
 Dean Martin - BD Voices: L'Histoire de Dean Martin (1944 - 1958) 2CD, 2008, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
@@ -687,64 +745,6 @@ Tom Raley - Tangled Up And Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D404E6A4F5661824BB51B85DAD54FB57737D9C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622043   (1030506) от 27.03.2023
-
-Savoy Brown - Blues All Around (2023) [FLAC|Lossless|image + .cue] <Blues Rock, R & B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling Through
-02. Black Heart
-03. Going Down South
-04. Gypsy Healer(   Читать дальше...   )Жанр: Blues Rock, R & BПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7726390D1DC3DE48DC5D614C03AD7556DA209B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622315   (1030262) от 28.03.2023
-
-Ledfoot & Ronni Le Tekro - Limited Edition Lava Lamp (2023) [FLAC|Lossless|WEB-DL|tracks] <gothic blues, psychedelic rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Rosie [00:03:55]
-02. Crying [00:03:18]
-03. The Ego in the Coffin [00:03:50]
-04. You Should Know How Hard It Is [00:05:21](   Читать дальше...   )Жанр: gothic blues, psychedelic rockПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDFD595746A0BC45201ED1DD90D938B1DE87CD71
 ```
 
 https://mybot314.ru/tekegram_catalog/

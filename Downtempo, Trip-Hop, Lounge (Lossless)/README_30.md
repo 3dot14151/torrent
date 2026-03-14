@@ -1,3 +1,61 @@
+###  Публикация: 1722976   (109656) от 13.05.2024
+
+VA - Peaceful Resort Experice: Urban Chillout Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Support the Love (2:41)
+02. Castlebed - Recents Steps (3:57)
+03. Gary B - Breakout (2:52)
+04. thE fluiD musics lab. & Ritmo - The Future (4:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8759FFAF7A0E6794B1ACA34FB76007849EB5FB80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724270   (109273) от 19.05.2024
+
+VA - Travel In The Universe, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entilty - Recall (Unlimited Instrumental Mix) (5:20)
+02. Capa - Bird Of Passage, Pt. 1 (6:52)
+03. Ve-Room - Deep Nature (Bajon "No Beat" Version) (4:34)
+04. Faro - A Gentle Plea (5:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AEC3BFEA326B394CF74237E9305345ACDDFEB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724569   (109209) от 20.05.2024
 
 VA - Good Morning Best Chillout Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -687,64 +745,6 @@ V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 24 (2024) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E0CEEF9C583D8BC31431EAB108ED0FA44455D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734872   (107068) от 05.07.2024
-
-VA - Playa D'en Bossa: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - Chill Coast (3:41)
-02. Autonne - Under the Sea (3:53)
-03. Lounge Groove Avenue - Lime Lights (2:52)
-04. Marga Sol - My Core (Chill Mix) (4:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952F277E5B14B78ED0164E2FA9FCFF95D0F70E3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735282   (106955) от 07.07.2024
-
-VA - Afrobeat Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Soul>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythmic Control - Burghalle (2:08)
-02. Space Afro, Monsoon - I Told You (2:19)
-03. D G - Don't Stop Tonight (2:04)
-04. Special Cutlab - Happy (2:17)(   Читать дальше...   )Жанр: Lounge, Downtempo, SoulПродолжительность: 00:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3E2E0FD18684504CD140747CF9868C134942C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

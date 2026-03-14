@@ -1,3 +1,148 @@
+###  Публикация: 1188472   (273588) от 03.12.2017
+
+Lucio Dalla - Dalla (1980) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Balla balla ballerino
+02 - Il parco della luna
+03 - La sera dei miracoli
+04 - Mambo(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5441BB835BCA247D9A61DF7C1D6238C1F211C2A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265854   (273025) от 29.11.2018
+
+VA - Pure Gold-25 Priceless Tracks (1999) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Surf>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273025.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Billy Fury - Wonderous Place [02:26]
+2. The Animals - The House Of The Rising Sun [04:28]
+3. Kenny Rogers - Ruby, Don't Take Your Love To Town [02:55]
+4. The Supremes - Stop In The Name Of Love [04:17](   Читать дальше...   )Жанр: Pop, Rock, SurfПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF73DD102CDB744862DD1970574573BFB838B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265871   (272976) от 29.11.2018
+
+Clean Bandit - What Is Love? (2018) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony (feat. Zara Larsson)
+02. Baby (feat. Marina and The Diamonds & Luis Fonsi)
+03. Solo (feat. Demi Lovato)
+04. Rockabye (feat. Sean Paul & Anne-Marie)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53893A6C95B35A891BEE5FA08CD9B442AC7D0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265753   (272970) от 29.11.2018
+
+Blow - Vertigo (2018) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Synthwave, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertiges (3:11)
+ 02. New Moon Walker (3:18)
+ 03. Green Unicorn (3:07)
+ 04. Fall in Deep (3:40)(   Читать дальше...   )Жанр: Electronic, Pop, Synthwave, DowntempoПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DD4860FDD69EDC1504B8BFB0F7E91A2BD06C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189128   (272147) от 04.12.2017
+
+Kygo - Kids In Love (2017) [FLAC|Lossless|tracks + .cue] <Electro House, Deep House, Dance-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kids In Love (Feat. The Night Game) (04:22)
+02. Never Let You Go (Feat. John Newman) (03:54)
+03. Sunrise (Feat. Jason Walker) (03:55)
+04. Riding Shotgun (With Oliver Nelson) (Feat. Bonnie McKee) (03:18)(   Читать дальше...   )Жанр: Electro House, Deep House, Dance-PopПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795BA27B36B3ABCFF974EEC8749A2AE593FE212A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189200   (271049) от 05.12.2017
 
 Joe Dassin - La Selection (Best Of) 3CD (2016) [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
@@ -602,151 +747,6 @@ St. Vincent - Masseduction (2017) Japanese Edition [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E8920CC4363A7AB1F408F68E4C954FB61439B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191256   (264472) от 13.12.2017
-
-VA - BBC Radio 2: The Piano Room (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Piano>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264472.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Ed Sheeran  -  This Year's Love (Recorded for BBC Radio 2)  2:36
-02.  Sam Smith  -  Stay With Me (Recorded for BBC Radio 2)  3:26
-03.  George Michael  -  Let Her Down Easy (Live From Prague Opera House, 2011)  3:41(   Читать дальше...   )Жанр: Pop, Easy Listening, PianoПродолжительность: 02:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D755AC0E12041C376EA38E90112BD80127E83D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191180   (264449) от 13.12.2017
-
-Robbie Williams - Under The Radar Vol. 2 (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satellites (4:07)
-02. 9 To 5 (3:40)
-03. Ms Pepper (4:02)
-04. Bambi (3:21)(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft Rock, Brit Pop, Jazz, Singer/SongwriterПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5362EC7E4AD2CBCD7993E854BE67FD590D10BA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969194   (264377) от 27.12.2015
-
-Bananarama - Megarama: The Mixes (2015) 3CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want You Back (Extended European Mix) (07:56)
-02. Love, Truth & Honesty (Dance Hall Version) (07:26)
-03. Nathan Jones (Extended Version) (05:14)
-04. Preacher Man (Shep's Club Mix) (07:22)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E893A243DF3556EADD4B3974EFD4AFAE686679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340163   (264264) от 22.11.2019
-
-Celine Dion - Courage (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Flying On My Own (00:03:32)
-02 - Lovers Never Die (00:02:51)
-03 - Falling In Love Again (00:03:51)
-04 - Lying Down (00:03:59)(   Читать дальше...   )Жанр: Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06A17EACE2BD77652E31D866586AC54A6C5BD59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340097   (264242) от 22.11.2019
-
-VA - 100 Greatest 2019 Songs (Best Songs of the Year) (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264242.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lizzo - Truth Hurts
-002. Cardi B & Bruno Mars - Please Me
-003. Tones and I - Dance Monkey
-004. Lil Uzi Vert - Sanguine Paradise(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84573F9B3BCC00C0EBB8CBE4E6EBF87669FA85C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

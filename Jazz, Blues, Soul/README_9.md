@@ -1,3 +1,61 @@
+###  Публикация: 1603102   (1045822) от 08.01.2023
+
+The Memphis Blues Cream - 706 Union Avenue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bear Cat (2:43)
+02. Tiger Man (3:57)
+03. Red Hot (2:41)
+04. Runnin' around (2:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727FE932A3A51A486F045BF4A2D815EB224C98AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603097   (1045821) от 08.01.2023
+
+Steve Hophead - Steve Hophead (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep Well Silence (4:04)
+02. Let Me Feed Your Soul (4:07)
+03. One Man Show (4:49)
+04. Blue Bird (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BD96E20A82A7604206B6D1DEDC258ED52CBCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603090   (1045819) от 08.01.2023
 
 Rick Berthod - Tribute to Peter Green (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -687,64 +745,6 @@ TNYFBB - Rocking Horse (2023) [FLAC 2.0|48/24|tracks|WEB-DL] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1214CB81DF302BA8771915AA8EF32CF55F4771A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604056   (1045522) от 12.01.2023
-
-Tri-Fi - Postcards (2007) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pumpkin [6:00]
-02. Postcards from Abroad [7:12]
-03. Wisdom... 1st Things 1st [7:20]
-04. Creative Force [4:54](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860E08B32D97A2AA6696AA49E982031C7BA2E33E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604058   (1045521) от 12.01.2023
-
-The Charles Mingus Group - Debuts Rarities, Vol. 3 (1957) 1993, Universal [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled Original Blues - Take 1 [3:59]
-02. Stella by Starling - Take 4 [4:01]
-03. Stella by Starling - Take 5 [3:57]
-04. Untitled Original Composition - Take 3 [5:22](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA42BA68A52CDEA98C469AAB37C394E808E82A0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

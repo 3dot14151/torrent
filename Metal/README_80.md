@@ -1,3 +1,32 @@
+###  Публикация: 1421728   (315519) от 06.11.2020
+
+Lucid Dreaming - The Chronicles, Pt. III (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (03:48)
+ 02. Open Wide the Gate (09:43)
+ 03. Born from the River (06:58)
+ 04. The Free Commots (03:53)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97104C56F1847E13F8409D7CFD422ED47B4E10A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582987   (315245) от 01.12.2012
 
 Royal Hunt - 20th Anniversary: Special Edition (2012) [MP3|320 кб/с]<Progressive Metal>
@@ -723,35 +752,6 @@ Opera IX - The Black Opera, Simphoniae Misteriorum In Laudem Tenebrarum (2000) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9D98AC0E3A926EC9142E1C4A684054D312D3574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184225   (303536) от 16.11.2017
-
-Arrayan Path - Dawn Of Aquarius (2017) [MP3|320 Kbps] <Epic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equilibrium
-02. The Flower Born Of Itself
-03. Dark Daughter Of The Snake
-04. The Hundred Names Of Kali Ma(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88007C3F068B9E72A568D1DB8F38B296D53994BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

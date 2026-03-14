@@ -1,3 +1,29 @@
+###  Публикация: 1483808   (1006574) от 15.07.2021
+
+Going Medieval (2021) [Ru/Multi] (0.5.29.3) License GOG
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Going Medieval — это симулятор средневекового поселения. Восстаньте из пепла в это непростое время, постройте крепость и сделайте все для защиты и процветания жителей в мире, где каждое событие отражается на настроениях в обществе.Тип издания: License (Ранний доступ)Разработчик: Foxy VoxelЖанр: Simulator, Stategy, IndieЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3948F165E8D1E51BE30FEEBCFDCFDC8D1331A45F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483965   (1006520) от 16.07.2021
 
 Telegram Desktop 2.8.9 + Portable [Multi/Ru]
@@ -645,35 +671,6 @@ Flotsam (2019) [Ru/Multi] (0.4.1p2) License GOG [Early Access]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E40421CAECCB69CF940F5B3E239CB430B7C873F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484145   (1006210) от 18.07.2021
-
-Windows 10 (v21h1) x64 HSL/PRO by KulHunter v2.2 (esd) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MDSN: ru_windows_10_consumer_editions_version_21h1_
-updated_jun_2021_x64_dvd_1c1da2e9.iso.
-Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
-Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E2E7077569AD9FE6CEFA2C00CF2F783FB19674
 ```
 
 https://mybot314.ru/tekegram_catalog/

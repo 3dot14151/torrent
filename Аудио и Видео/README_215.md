@@ -1,3 +1,29 @@
+###  Публикация: 1261594   (303123) от 11.11.2018
+
+Кристофер Робин / Christopher Robin (2018) BDRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303123.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни повзрослевшего Кристофера Робина царит повседневная рутина. Однажды он встречает друга детства — медвежонка Винни. Вместе им предстоит вернуться в Стоакровый лес, чтобы не только отыскать потерявшихся друзей, но и вновь обрести счастье.Производство: СШАЖанр: Мультфильм, фэнтези, драма, комедия, приключения, семейныйРежиссер: Марк ФорстерАктеры: Юэн МакГрегор, Хейли Этвелл, Бронте Кармайкл, Марк Гейтисс, Оливер Форд Дейвис, Ронки Адеколуэхо, Эдриан Скарборо, Роджер Эштон-Гриффитс, Кен Нвосу, Джон ДаглишПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBDBB8379962DAA0FDF7442106FF64EAED5B88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261586   (303100) от 11.11.2018
 
 Кристофер Робин / Christopher Robin (2018) BDRip [576p] iPad
@@ -674,35 +700,6 @@ VA - Hotel Lobby Instrumental Greatest Hits (2020) [AAC|~353 Kbps] <Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A06A23CB79093786213F63438405D525398D95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423605   (300242) от 13.11.2020
-
-VA - Coffee & Jazz Lounge: Chillout Your Mind (2020) [AAC|~335 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eivissarts - De La Tierra (Original Mix) (5:39)
-02. Michael e, Lindsey Williams - Andiamo (Original Mix) (4:42)
-03. Brazilian Jumble - O Sol Que Beija Voce (Instrumental) (4:35)
-04. Francesca Gramegna - All to Lose (3:54)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE53F18C1D36B28A62E6BC7DC0C59ADC7BCFE844
 ```
 
 https://mybot314.ru/tekegram_catalog/

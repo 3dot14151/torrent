@@ -1,3 +1,235 @@
+###  Публикация: 284435   (936803) от 19.01.2011
+
+Профессор Лебединский - 4 Альбома (1997 - 2007) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Лебединский (Алексей Игоревич Лебединский) - певец, композитор, фотохудожник и артист. Говорят, что вызывая такси (не будучи ещё столь известным) он представлялся как Профессор Лебединский - отсюда и псевдоним.
+Сочинять начал, ещё учясь в средней школе. В 1996 году, после выхода собственной песни «Я убью тебя, лодочник» и совместного с группой «Русский (   Читать дальше...   )Альбомы:
+1997 - Хеллоу-Гудбай
+1998 - Смеяться Или Плакать
+2000 - Танцы-Шманцы, Кныш И Смородина(   Читать дальше...   )Жанр: PopПродолжительность: 03:25:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364500   (936301) от 03.03.2020
+
+Владимир Маркин - Мои лучшие сбережения. Выпуски 3 и 4 (2008-2009) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тополя
+02. Авиатор
+03. Колыбельная
+04. От зари до зари(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06CBDDB9A4B779A2433C34AFC5F915B23B2C513E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 88540   (935639) от 03.03.2020
+
+F.R. David - 5 Альбомов (1982-2007) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+Ф. Р. Дэвид (фр. F. R. David, по-французски произносится «Эф Эр Дави́д»; настоящее имя — Эли́ Робе́р Фитусси́ (фр. Elli Robert Fitoussi), род. 1 января 1947 года в Тунисе) — французский певец тунисского происхождения, исполняющий песни на английском языке.
+Музыкальную карьеру в конце 1960-х он начинал как аккомпаниатор (бас) различных (   Читать дальше...   )Жанр: Pop, Pop rock, Euro disco, SynthpopПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD88E16CC0125EB8DA6B63D8BBDBBAA2140F63AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985494   (935548) от 11.02.2016
+
+Monica Naranjo - 4.0 (2014) [MP3|~245 кб/с (V0)] <Latin, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935548.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Desatame / Intro 6:29
+2.Solo Se Vive Una Vez 4:14
+3. Todo Mentira 4:01
+4. Entender El Amor 6:16(   Читать дальше...   )Жанр: Latin, Rock, PopПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5244A812FB686EFDF0F4A1BF267EA57C8A34524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985502   (935543) от 11.02.2016
+
+Ronan Keating - Time of My Life (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Love You
+ 02. As Long As We're In Love
+ 03. Breathe
+ 04. She Knows Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE562544056DC69DAAD585BE3AC358F057FE55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985257   (935528) от 11.02.2016
+
+VA - Kuschelrock 17 (2003) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakira - The One (3:46)
+02. Jennifer Lopez - Again (5:50)
+03. Justin Timberlake - Cry me a river (4:52)
+04. Kelly Rowland - Stole (4:13)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C26BA0EED7C9DF129F8C504C85410FDF7143EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985042   (935394) от 11.02.2016
+
+Виктор Салтыков - Star Collection (2001) Compilation [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Кони В Яблоках 	04:42
+02. 	Островок 	03:18
+03. 	Улетели Листья 	04:08
+04. 	Белая Ночь 	04:37(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC43953FA86A3CC61F1A721A545C93AE40069AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093286   (935321) от 14.01.2017
+
+Corona X - And Me U (2000) [MP3|256 Kbps] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volcano
+02. Everything You Need
+03. Good Love
+04. And Me U(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF70C085FF08C0EC378DD6ACF3E535F45A39658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984434   (935118) от 11.02.2016
 
 Земляне - Grand Collection (1992) Compilation [FLAC|Lossless|image + .cue] <Rock,Soviet Rock>
@@ -511,235 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB3CEE83B1963325EC6742045A3C635C2D6B5E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093836   (932366) от 16.01.2017
-
-VA - The Disco Sessions (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - Disco Power (Original Mix) 04:49
-02. Audio Jacker - You Say (Original Mix) 06:17
-03. Boogie Freaks - The Mean Green (Original Mix) 07:02
-04. Discotron - I Got This (Original Mix) 06:13(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD95F75A2DE4F71C38F1899CC5E4E520E76A6F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093880   (932272) от 16.01.2017
-
-Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <Alternative Pop, New Wave, World Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932272.jpg" />
-</div>
-
-
-###  Подробнее
-
-На мой взгляд (и не только) шедевр 80-ых во многом опередивший своё время и, возможно поэтому, недостаточно оцененный современниками.01. For America
-02. Heart Of The Sun
-03. Billy's Line
-04. Bantu(   Читать дальше...   )Жанр: Alternative Pop, New Wave, Choral, Orchestral, Art Rock, World MusicПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365190   (932238) от 06.03.2020
-
-Наталья Подольская - Плачь (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Феникс
-2. Сильная слабая
-3. Плачь
-4. Ни много, ни мало(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F7A000073D6A3C1ACC5C4DC71EB7D7D42821D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365189   (932115) от 06.03.2020
-
-Филипп Киркоров - Романы, Часть 1 (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932115.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Романы
-2. Это была любовь
-3. Любимые люди
-4. Улети(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D609EB6848F9619BB688D0FDD9719E1F7032108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629864   (931274) от 13.03.2013
-
-Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+cue)|Lossless]<Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, R&BПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986352   (930872) от 14.02.2016
-
-Whitney - The Greatest Hits (2000) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Disco, RnB/Swing>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston & George Michael - If I Told You That (4:32)
-02. Fine (3:34)
-03. My Love Is Your Love (4:18)
-04. It's Not Right but It's Okay (4:49)(   Читать дальше...   )Жанр: Soul, Disco, RnB/Swing, Downtempo, Synth-pop, BalladПродолжительность: 02:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D97A02BA4BFEC2F6500DA81C3E3A170BF0CE3B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986127   (930711) от 14.02.2016
-
-Vengaboys - The Platinum Album (2000) [MP3|320 кб/с] <Europop, Euro House, Ballad>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shalala Lala 03:33
-02. 24-7 In My 911 03:10
-03. Kiss (When The Sun Don't Shine) 03:30
-04. Uncle John From Jamaica 03:06(   Читать дальше...   )Жанр: Europop, Euro House, BalladПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F7F115B4EEE1B87CD53E9F174FA48E6A40BCF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986677   (930626) от 14.02.2016
-
-VA - The Best Of The 80's Volume II (1998) [FLAC|Lossless|tracks + .cue] <Pop Rock, Disco, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adamski - Killer (4:10)
-02. Haircut One Hundred - Love Plus One (3:36)
-03. Fairground Attraction - Perfect (3:36)
-04. Hall & Oates - Maneater (4:28)(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, House, Disco, New Wave, Soft Rock, Synth-popПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3782C86B0E5E7ABFB4398F90C1F3E34D0A65303E
 ```
 
 https://mybot314.ru/tekegram_catalog/

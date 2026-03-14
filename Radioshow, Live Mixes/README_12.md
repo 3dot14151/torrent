@@ -1,3 +1,61 @@
+###  Публикация: 1159005   (488128) от 18.08.2017
+
+VA - Ori Uplift & Bryan Summerville - Uplifting Only 236 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Blueman - Time To Rest
+02. EverLight Feat. Emma Chatt - Stronger (A.R.D.I. Remix)
+03. Zoë Song feat. Sophia Omarji - Frozen In Time
+04. Aurosonic & Sue McLaren - Captured By Gravity (Omar Sherif Extended Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF69E405AAA05838ED524EB7BF3482AF657CF66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244170   (484207) от 31.08.2018
+
+VA - Markus Schulz & Jordan Suckley - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. Calvin Harris & Sam Smith - Promises (Pink Panda Remix / Coldharbour Retouch)
+02. Markus Schulz featuring Sebu (Capital Cities) - Upon My Shoulders (Markus Schulz Festival Mix)
+03. Addictive Glance - Pay No Mind (Harry Square Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7159D27A53589B67288EC198BDBF358A54BFA331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244173   (484204) от 31.08.2018
 
 VA - Ori Uplift &  Lockstone – Uplifting Only 290 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -682,64 +740,6 @@ VA - Aly & Fila - Future Sound Of Egypt 513 (Beyond The Lights Album Special) (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72A8D22B5409B290B18E26158EF3735F1F0633DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411459   (427461) от 25.09.2020
-
-VA - Armin van Buuren & Rodg - A State of Trance ASOT 983 (2020) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Armin van Buuren & AVIRA ft. Sam Martin - Mask
-02 Ørjan Nilsen - Sankthansaften
-03 Gareth Emery - Little Celebrity (Sound Quelle  Remix)
-04 ALPHA 9 & Spencer Brown - Afterlife(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF426073F34F5FE52A0E3181EA44006FB716A231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250507   (424763) от 28.09.2018
-
-VA - Markus Schulz & Omnia - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. B.B.E. - Seven Days and One Week (Yotto Remix)
-02. Daniel Wanrooy - Euphoria
-03. Vigel vs. Cosmo & Skoro - Drums(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF2E7D555859C33804C3FE16D7D8F22402889E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

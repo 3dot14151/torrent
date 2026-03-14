@@ -1,3 +1,90 @@
+###  Публикация: 1343374   (218819) от 06.12.2019
+
+Jim Stahlhut - Exit 228 (2013) Self-Released [FLAC|Lossless|image + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eiderdown [9:19]
+02. Bossa de Troia's [9:29]
+03. How Deep Is the Ocean [7:31]
+04. Exit 228 [5:26](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1656F6B65CC142B148583333599AACF1F984E105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083658   (218674) от 19.12.2016
+
+VA - Christmas Favorites (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Folk, Pop, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vince Guaraldi - Linus And Lucy [00:03:05]
+02. Andy Williams - The Most Wonderful Time Of The Year [00:02:37]
+03. Barenaked Ladies - God Rest Ye Merry Gentlemen/We Three Kings [00:03:26]
+04. Erich Kunzel - Sleigh Ride [00:02:52](   Читать дальше...   )Жанр: Ambience, New AgeПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14087AD85D8FC88561BF6189811061D540C99425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269786   (218364) от 16.12.2018
+
+The Power Quintet - High Art (2016) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look At Here [6:50]
+02. Heard's Word [5:57]
+03. Sage [4:03]
+04. Mr. Wiggleworm [7:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1993CA63539ED7CFA90B4FE7A372A422F33CA340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269799   (218356) от 16.12.2018
 
 Gil Evans - The Individualism of Gil Evans (1963, 1964) 2003, Universal [APE|Lossless|image + .cue] <Cool, Bop, Big Band>
@@ -658,93 +745,6 @@ Claude Hopkins - 1932 - 1934 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F3BA7629C4688B7F338C3226EBE9E4AC764EE51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270036   (216403) от 17.12.2018
-
-Frank Wright Quartet - Blues For Albert Ayler (1974) 2012, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part 1 [12:50]
-02. Part 2 [5:10]
-03. Part 3 [14:38]
-04. Part 4 [12:13](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6531EEB35C8C4191C69628200D03E5C8D71B5D8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270059   (216326) от 17.12.2018
-
-Brzzvll - Waiho (2018) Sdban Records [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Vlijtige Kip (6:23)
-02. Waiho (3:22)
-03. Andromeda (6:20)
-04. Wizzly Whop (4:47)(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF5F68ADE05F8690D3390E6C99977070344BD3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270056   (216279) от 17.12.2018
-
-Bruno Angelini - Open Land (2018) La Buissonne [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tree song [05:39]
-02. Perfumes of quietness [09:18]
-03. Indian imaginary song [06:21]
-04. Jardin perdu [09:04](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3C3D44BA94AF36EEF332ECDFF2F1F808D12A5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

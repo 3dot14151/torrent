@@ -1,3 +1,29 @@
+###  Публикация: 1614643   (1038578) от 22.02.2023
+
+Spectrasonics Omnisphere Software 2.8.5d (x64) Update [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновление для флагманского синтезатора Spectrasonics Omnisphere - инструмент необычайной мощности и универсальности. Лучшие исполнители во всем мире полагаются на Omnisphere как на основной источник звукового вдохновения. Это отмеченное наградами программное обеспечение объединяет множество различных типов синтеза в один удивительно звучащий инструмент, который (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A917A62E5FA931E17BEBF4A5CF6260A68BBF8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614446   (1038577) от 22.02.2023
 
 Cableguys - ShaperBox 3 3.2.2 VST, VST 3, AAX (x64) RePack by TCD [En]
@@ -666,35 +692,6 @@ VA - Yeiskomp Leisurely Trance - Jan 2020 (2021) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A55EB5E28914787065C38CAD0B01F6B69BC10567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440609   (1038508) от 18.01.2021
-
-Miss Lava - Doom Machine (2021) [FLAC 2.0|44.1/24|tracks + .cue|WEB-DL] <Stoner Rock, Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fourth Dimension [00:03:43]
-02 - In the Mire [00:03:51]
-03 - Magma [00:01:10]
-04 - Brotherhood of Eternal Love [00:05:45](   Читать дальше...   )Жанр: Stoner Rock, Hard RockПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B22DCCD5BCBDC547526B0244B9C18EF18B6F08
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1059407   (461831) от 04.10.2016
+
+Sass Jordan - Rats (1994) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Damaged 03:18
+02.Slave 03:36
+03.Pissin' Down 05:20
+04.High Road Easy 04:01(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDAFC87001EFDD59C1DDDB89BF0D168EF6AB5D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568467   (461808) от 08.08.2022
+
+Orianthi - Live from Hollywood (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орианти, гениальная гитаристка, которая выступала на разогреве у Стива Вая в возрасте 15 лет, а позже была выбрана в группу поддержки Майкла Джексона, выпустила живое видео. Обязательно для всех поклонников рока и всех гитаристов!01. Contagious (4:02)
+02. Sinners Hymn (3:58)
+03. Heaven In This Hell (4:00)
+04. Think Like A Man (4:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8899E7472EE80BA8D2E65B5934AA3DFA62C12DE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246697   (461558) от 11.09.2018
+
+Andrew W.K. - Close Calls With Brick Walls (2006) South Korea, Bonus Tracks [FLAC|Lossless|tracks + .cue] <Hard Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Came for You (02:16)
+02. Close Calls With Bal Harbour (01:22)
+03. Not Going to Bed (02:57)
+04. You Will Remember Tonight (04:06)(   Читать дальше...   )Жанр: Hard Rock, ExperimentalПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D099002876845A0B5C5DDB7CEBA7618EEC57B4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568616   (459930) от 09.08.2022
+
+Debauchery vs. Blood God - Demons Of Rock 'n' Roll (2022) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Death 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459930.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Blood God:
+01. Demons Of Rock 'n' Roll
+02. Going To Hell
+03. Nude Nuns(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Death 'n' RollПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA05AB7B7330653F9A57123C0B5674C77147D7E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246694   (459236) от 12.09.2018
 
 Andrew W.K. - Close Calls With Brick Walls (2006) Japan [FLAC|Lossless|tracks + .cue] <Hard Rock, Experimental>
@@ -636,128 +752,6 @@ Mini-LP SHM-CD лимитированные издания 2010 года. Рем
 1972 Lonesome Crow
 1993 Face the Heat
 1995 Live BitesЖанр: RockПродолжительность: 02:41:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570057   (447297) от 15.08.2022
-
-The Brave - Gravedigger (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravedigger
-02. Bad Day
-03. BraveNation
-04. Eternal(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD37D823C11E676287B1D208B49287A8820FE7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569860   (447102) от 15.08.2022
-
-Atlantis - 5 albums (1972-2019) [FLAC|Lossless|image + .cue | tracks + .cue] <Prog Rock, Krautrock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «Atlantis» появилась на обломках группы «Frumpy» и была создана его экс-участниками: вокалисткой Ингой Румпф (Inga Rumpf), клавишником Жан-Жаком Краветцем (Jean-Jacques Kravetz) и Карлом-Хайнцем Шоттом (Karl-Heinz Schott) летом 1972 года. Коллектив дополнили гитарист Франк Дитц (Frank Dietz) и бывший барабанщик «Emergency» Курт Кресс (Kurt Cress). Последователи (   Читать дальше...   )--------------------------
-
-01. He's Got A Gun In His Hand (4:16)
-02. Hot Rocks (2:56)(   Читать дальше...   )Жанр: Prog Rock, Krautrock, Blues Rock |Продолжительность: 03:37:16 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27751677765BFD14071EDCAC4CAC9E281E48A566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569861   (447097) от 15.08.2022
-
-Frumpy (8 Days In April / Inga Rumpf) - 10 albums, 14 CD (1970-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Krautrock, Prog Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frumpy — немецкая группа в стиле прогрессив/краут-рок, базировавшаяся в Гамбурге и активная с 1970—1972 и с 1990—1995 годы. Основанная после распада фолк-рок-группы The City Preachers, Frumpy выпустили четыре альбома в 1970—1973 годах и добились значительного коммерческого успеха. Немецкая пресса провозгласила их лучшей немецкой рок-группой своего времени, а их вокалистку (   Читать дальше...   )--------------------------
-
-01. In The Beginnig (4:41)
-02. Pure Religion (3:37)(   Читать дальше...   )Жанр: Krautrock, Heavy Prog, Blues Rock, Rock |Продолжительность: 11:49:56 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D47AF9C7F478BF7B4B9807AF96937A6DD72FF2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552548   (446230) от 27.09.2012
-
-Steve Stevens - Atomic Playboys (1989) [WavPack|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atomic Playboys
-02. Power Of Suggestion
-03. Action
-04. Desperate Heart
-05. Soul On Ice
-06. Crackdown
-07. Pet The Hot Kitty
-08. Evening Eye
-09. Woman Of 1,000 Years
-10. Run Across Desert Sands (Instrumental)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:37
 
 ## Скачать торент
 ```bash

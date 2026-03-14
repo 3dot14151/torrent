@@ -1,3 +1,177 @@
+###  Публикация: 1418272   (351229) от 23.10.2020
+
+Melody Gardot - Sunset In The Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Love Me
+02. C’est Magnifique (ft. Antonio Zambujo)
+03. There Where He Lives In Me
+04. Love Song(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EC0B2081479A40A09095559DBB6B532F696557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 37377   (351037) от 03.11.2015
+
+(Jazz, Rock) Алексей Козлов и ансамбль АРСЕНАЛ - Избранное - 2001, APE (image + .cue)
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_351037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ностальгия (Nostalgie)
+02. Башня из Слоновой Кости (Ivory Tower)
+03. Тайна (Mystery)
+04. Сюита в Фа Миноре (Suite in Fm)(   Читать дальше...   )Жанр: Jazz, RockФормат: ape + cueПродолжительность: 1:13:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578022   (350395) от 21.09.2022
+
+Red Holloway - Legends Of Acid Jazz (1963, 1965) 1998, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monkey Sho' Can Talk [3:41]
+02. Brethren [5:10]
+03. Crib Theme [10:16]
+04. The Burner [10:39](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104163C5DA359B2F6D321FF4390DDC24D2F630ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577947   (350298) от 21.09.2022
+
+Chris Antonik - Morningstar (2022) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waves of Stone (feat. Jarekus Singleton) 05:12
+02. Pilgrim 04:12
+03. Back to the Good 04:13
+04. Trust In Me 05:10(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA0B83D38FC9426027E9DF0C3BCA5EA1D8ABA92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329650   (350285) от 06.10.2019
+
+Wes Montgomery - Back On Indiana Avenue: The Carroll DeCamp Recordings (1950-e) 2CD, 2019, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350285.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Four on Six [4:48]
+02. Mr. Walker [3:47]
+03. 'Round Midnight [7:14](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 02:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAE84CD36D856042F98D4CB928D4B6FBF2B28E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072910   (350135) от 14.11.2016
+
+Sonny Rollins - Global Warming (1998) Milestone Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Island Lady [09:12]
+ 02.Echo-Side Blue [07:17]
+ 03.Global Warming [06:32]
+ 04.Mother Nature's Blues [11:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE8CA1AE96CF0A5980126DE36344636A0AF9EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072837   (350124) от 14.11.2016
 
 Perrine Mansuy - Rainbow Shell (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -576,179 +750,6 @@ Eric Reed - A Light In Darkness (2017) WJ3 Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A459CD986A87EE3A3E4C94E75089BD7847AFF2A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329950   (347859) от 07.10.2019
-
-Portico Quartet - Memory Streams (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347859.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. With, Beside, Against [04:11]
-2. Signals in the Dusk [05:31]
-3. Gradient [04:34]
-4. Ways of Seeing [06:10](   Читать дальше...   )Жанр: Ambient, Crossover JazzПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83E6763667FA29663D1B118B36DD70263B7F916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073217   (347795) от 15.11.2016
-
-Barb Jungr - Shelter From The Storm (2016) Linn Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bali Hai [05:36]
- 02.Stars Lazy But Shining [06:12]
- 03.Shelter from the Storm [05:24]
- 04.Sisters of Mercy [05:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECD7864F059FF4174A751C9BDE9B96F1BE13C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257213   (347781) от 25.10.2018
-
-Jeff Hamilton Trio - Live From San Pedro (2018) Capri Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sybille's Day [4:37]
-02. Poinciana [6:11]
-03. Hammer's Tones [3:23]
-04. I Have Dreamed [5:34](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A62D19FC5F26F8EBED2346A52B1AC6464596B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257231   (347776) от 25.10.2018
-
-Beegie Adair & Monica Ramey - Some Enchanted Christmas (2018) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Holiday
-02. The Christmas Song
-03. The Christmas Waltz
-04. Jingle Bells(   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B568BF2BB916B0231B3C574AEDB671257C66B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329908   (347705) от 07.10.2019
-
-Jody Williams - Return Of A Legend (2001), You Left Me In The Dark (2004) [FLAC|Lossless|tracks + .cue] <Electric Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Joseph Leon Williams (February 3, 1935 – December 1, 2018), более известный как Jody Williams. В пятидесятые годы Jody Williams был довольно известным сессионным музыкантом на Chess Records, работал с Billy Boy Arnold, Bo Diddley, выпустил ряд отменных синглов, но потом по некоторым причинам самоустранился от музыки. (Частота, с которой Williamsс обнаруживал, что (   Читать дальше...   )Список альбомов:
-2001 - Return Of A Legend
-2004 - You Left Me In The DarkЖанр: Electric Chicago BluesПродолжительность: 01:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B962E39D6DA5E2001A9F6151AF1E70872569908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073294   (347654) от 15.11.2016
-
-VA - Jazz Manouche by Romane (2015) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Django Reinhardt - Anniversary Song  (03:29) 
-  02|  Jo Privat - Reve bohemien  (02:28) 
-  03|  Rodolphe Raffalli - Je m'voyais deja  (04:37) 
-  04|  Angelo Debarre - Feerie  (03:47) (   Читать дальше...   )Жанр: JazzПродолжительность: 02:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B62EDC09581A8C4676E2A523AF2E810C1058B7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1336836   (276371) от 09.11.2019
+
+VA - Rhythm Of Life: Electro House Session (2019) [MP3|320 Kbps] <Electro House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tiger Stripes - Voyage
+002. Following Light - Zing (Original Mix)
+003. James Godfrey - Heart & Soul (Original Mix)
+004. Kerri Chandler - Ye Yo Ma(   Читать дальше...   )Жанр: Electro House, DanceПродолжительность: 11:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2093E67552A2F59CDE92002BCCA74F4AC55577D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265114   (276364) от 26.11.2018
 
 VA - Top50: Tracks Deep House Ver.6 (2018) [MP3|320 Kbps] <House, Deep House, Club Hose>
@@ -713,35 +742,6 @@ Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82CCEFC982CE874198BD7BE752AA2D860E7939BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337480   (273688) от 11.11.2019
-
-VA - Chill Space Electronic (2019) [MP3|320 Kbps] <Chillout, Ambient, Lo-Fi, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273688.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Conjoint - Four Nine
-002. Breex - Mild Smoke (Original Mix)
-003. Suduaya - Mirage On The Desert Of Fire
-004. Korus - Random Lights (Original Mix)(   Читать дальше...   )Жанр: Chillout, Ambient, Lo-Fi, ElectronicПродолжительность: 10:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68166C82C92CF7AB1007ABD01630FDAAB7C6E53C
 ```
 
 https://mybot314.ru/tekegram_catalog/

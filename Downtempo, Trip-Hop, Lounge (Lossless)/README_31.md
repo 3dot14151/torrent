@@ -1,3 +1,61 @@
+###  Публикация: 1734872   (107068) от 05.07.2024
+
+VA - Playa D'en Bossa: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - Chill Coast (3:41)
+02. Autonne - Under the Sea (3:53)
+03. Lounge Groove Avenue - Lime Lights (2:52)
+04. Marga Sol - My Core (Chill Mix) (4:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952F277E5B14B78ED0164E2FA9FCFF95D0F70E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735282   (106955) от 07.07.2024
+
+VA - Afrobeat Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Soul>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythmic Control - Burghalle (2:08)
+02. Space Afro, Monsoon - I Told You (2:19)
+03. D G - Don't Stop Tonight (2:04)
+04. Special Cutlab - Happy (2:17)(   Читать дальше...   )Жанр: Lounge, Downtempo, SoulПродолжительность: 00:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3E2E0FD18684504CD140747CF9868C134942C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735713   (106861) от 09.07.2024
 
 VA - Chillout & Lounge Music Summer Vibes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -696,76 +754,6 @@ VA - The Ultimate Chilled Album (2008) [FLAC|Lossless]<Chillout, Lounge, Ambient
 08. Yellow Stars - Roll The Dice
 09. Mister Rose And The Electric Birdcage - Running Lights
 10. The Glug Glug Cartel - Weightless (Heaven Mix)(   Читать дальше...   )2008Жанр: Chillout, AmbientПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471895   (83704) от 22.03.2012
-
-VA - Best Of Chillout Ibiza - Sunset Lounge (2012) [FLAC|Lossless]<Lounge, Chillout, Chillhouse>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Lounge, Chillout, ChillhouseПродолжительность: 01:18:59
-
-1. Sol Y Mar feat. Maxine Clark - It's Too Late (K&D Ambient Dub) (4:06)
-2. Mezzanine - How Can I Explain (Signfield Remix) (4:27)
-3. En'deavour - Space Night Bubbles (Eno Motive Remix) (3:58)
-4. The Spirit Of Nature - The Spirit Of Nature (Cafe Lounge Mix) (3:32)
-5. Sirius & Nyla - Yo Le Le (Wave Dub) (3:41)
-6. Dreamdancer - Love Parade Lovers (Edit) (4:22)
-7. Timecode feat. Zak - Enigma Machine (Part 2) (3:32)
-8. Sonar - Moments In Love (Part 3) (4:30)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468415   (82224) от 15.03.2012
-
-The Internet - Purple Naked Ladies (2012) [FLAC|Lossless]<Electronic, Funk, Trip-Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82224.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Violet Nude Women (3:27)
-2. They Say / Shangrila (Feat. Tay Walker) (4:48)
-3. She DGAF (3:28)
-4. Cunt (2:19)
-5. Cocaine / Tevie (Feat. Left Brain) (4:32)
-6. Ode To A Dream (Feat. Kilo Kish & Coco O.) (4:09)
-7. Gurl (Feat. Pyramid Vritra) (2:51)
-8. Love Song – 1 (1:29)
-9. Lincoln (Feat. Mike G & Left Brain) (2:08)
-10. Web Of Me (2:48)(   Читать дальше...   )2012Жанр: Electronic, Funk, Trip-HopПродолжительность: 00:41:40
 
 ## Скачать торент
 ```bash

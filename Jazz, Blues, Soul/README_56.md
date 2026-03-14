@@ -1,3 +1,61 @@
+###  Публикация: 977977   (964795) от 22.01.2016
+
+Michel Camilo - Solo (2005) Telarc[FLAC|tracks+.cue] <Post-Bop, Latin Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Dream [04:02]
+ 02.Minha (All Mine) [03:31]
+ 03.Our Love Is Here To Stay [03:37]
+ 04.Reflections [09:28](   Читать дальше...   )Жанр: Post-Bop, Latin Jazz, Piano JazzПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D59FAFBA16C07D913461B5EEFCEF2DD8E6964D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977967   (964728) от 22.01.2016
+
+Chet Baker - The Early Years (1952-1954) 4CD, 2005, Proper Records[FLAC|tracks+.cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964728.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - My Funny Valentine:
+01.Out of Nowhere [16:21]
+02.The Squirrel [14:45]
+03.They Didn't Believe Me [06:18](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 05:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B2FBF9DB348EF55A0ED76D417EAC019FFA4E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359479   (964355) от 12.02.2020
 
 Oscar Peterson - History Of An Artist 1972 - 1974 (1993) 2CD, Pablo [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -687,64 +745,6 @@ One For All - What's Going On? (2007) Venus Records[FLAC|image+.cue] <Post-Bop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B697A8186A00E49261525BD8DCCC0D546A91FF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979075   (960951) от 25.01.2016
-
-Earl Bostic - The Earl Bostic Story (1950-e) 4CD, 2006, Proper Records[FLAC|tracks+.cue] <Swing, Jump Blues, R&B, Standards>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960951.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Major And The Minor:
-01.The Man I Love [03:18]
-02.Hurricane Blues [03:12]
-03.The Major and the Minor [02:56](   Читать дальше...   )Жанр: Swing, Jump Blues, R&B, StandardsПродолжительность: 04:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78876E1D26B7B6BB4D5939C0FDEF680A7BBA7277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360522   (960931) от 15.02.2020
-
-Tino Gonzales - Nuke The World (2003) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Full Of Sorrow
-02. You're Not The One
-03. Nuke The World
-04. How Do You Play The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0F2F97B3C378E4904C02320A004FA1F2A175FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

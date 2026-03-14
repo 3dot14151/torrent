@@ -1,3 +1,197 @@
+###  Публикация: 756997   (919358) от 15.02.2014
+
+The Beatles - Video Collection. Vol. 2 (2003) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_919358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am The Walrus
+02. Hello, Goodbye
+03. Across The Universe
+04. Lady Madonna(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E95DC2E835EBBCE6C180A9B67EB804B8CECF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756987   (919301) от 15.02.2014
+
+The Beatles - Video Collection. Vol. 1 (2003) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please, Please Me
+02. Twist And Shout
+03. From Me To You
+04. I Wont Belong(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 02:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590BAF711AB77AD4F637A3583953534F67B44013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988840   (918119) от 21.02.2016
+
+VA - Дискохит 90-х (большая коллекция клипов) (1970 - 1990) VHSRip
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцевальные сборник 90-х, клипы в сборке в неплохом качестве, кто-то что-то из сборки для себя выберет, если не хотите качать весь сборник, выбор делается при добавлении торента - снятием отметки с ненужного клипа.Диск1:
+01. Anticappella ft. MC Fixx It- Move your body.avi
+02. Centory- Point of no return.avi
+03. MC S.A.R. & The Real McCoy- Automatic lover.avi(   Читать дальше...   )Производство: Europa, USAЖанр: Музыкальные клипыПродолжительность: 27:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80822F70CCE7DA870FECA70E656C713AF2BF1B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632981   (917960) от 21.03.2013
+
+Ed Sheeran - Give Me Love (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58C76C7B9EF6A701932338B600313CE5D4B197A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 633196   (917829) от 21.03.2013
+
+Alizee - A Cause De L'automne (2012) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C56DFD4BB0E7EA2FCA635E041F1C50FF78AE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367146   (917326) от 15.03.2020
+
+Flyingdick - Китайский квартал (2020) WEB-DL [V9/2160p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 2020 - FLYINGDICK - Китайский кварталЖанр: RapCoreПродолжительность: 00:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCDDB046CFF314058802FD4BB6B65BD605C58A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367571   (915656) от 16.03.2020
+
+Pyogenesis - 8 Music Videos (2015-2020) WEB-DL [VP9/H.264/2160p/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915656.jpg" />
+</div>
+
+
+###  Подробнее
+
+001  2015 Pyogenesis - Lifeless
+002  2015 Pyogenesis - Steam Paves Its Way (The Machine)
+003  2017 Pyogenesis - Every Man For Himself... And God Against All
+004  2017 Pyogenesis - I Have Seen My Soul(   Читать дальше...   )Производство: PixelFilm, AFM RecordsЖанр: Gothic Metal, Alternative RockПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF36A663A954373350E47F563AD51FCA6F4EF29D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367648   (915255) от 16.03.2020
 
 Sabaton - 54 Music Videos (2006-2020) WEB-DL [h.264/V9/360p/480p/720p/1080p/2160p-LQ]
@@ -498,192 +692,6 @@ Justin Timberlake Suit & Tie (Official video) ft JAY Z (2013) [H.264/1080p WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8224B7D5D11788926A0F46C398C70A6218080BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990276   (907446) от 27.02.2016
-
-VA - Коллекция клипов в авто (ZAP_part4) (2DIN) (2015 - 2016 + бонус) DVDRip,HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение коллекции клипов в авто.Часть 4.
-Клипы на весь экран для автомагнитол, так же планшетов и тд.Keida - Ganja Tea.avi
-Kelis - Acapella.avi
-Kelly Clarkson - Heartbeat Song.avi
-Kelly Clarkson - Stronger.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 40:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FE3F34B5682060791BA0AE90945CCE3BDFB066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635733   (907129) от 27.03.2013
-
-Lindsey Stirling - Crystallize (2012) [1080i] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dubstep ViolinПродолжительность: 00:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0561C7FACDFF0519EBE8495BA038857A6F98545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635849   (906004) от 28.03.2013
-
-The Saturdays - What About Us (2013) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9DAE6ECD687346EC8EFE11CBECA30B3BA8BF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635842   (905916) от 28.03.2013
-
-DJ Smash  DJ Miller feat. Anya - Angels (2013) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 00:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB725D84D2729B7AA892D18E227920759980AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635839   (905871) от 28.03.2013
-
-Nicole Scherzinger - Boomerang (2013) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 00:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFDA03AF3FDFC78C45294489E911783A44F62A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635863   (905867) от 28.03.2013
-
-Aida Arami - Diamond (2013) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 00:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C6493D8B60D7D3FD60A49F22804B600A7AE6DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635748   (905758) от 28.03.2013
-
-Depeche Mode - Heaven (2013) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ROCKПродолжительность: 00:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB92CF7C91EB101F7A7E11C6FFC288E69E6B969
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1242192   (516294) от 21.08.2018
+
+VA - Progressive Trance Vol. 4 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FEEL & Diana Leah - One Last Time (Extended Mix)
+02. Christina Novelli & Adip Kiyoi - Carousel (Extended Mix)
+03. Elite Electronic - Digital Age (Extended Mix)
+04. Attila Syah & Xpectra & J.Puchler & Joanna Angelina - Forever (Extended Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5191AA98ED911A1B2DB03F8B6E4FA18491CD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242180   (516252) от 21.08.2018
+
+VA - Redux Ibiza Selection 2017 (Mixed by Maratone) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominic Manns - Friday Lovers (Radio Edit)
+02. BvIBEs - Night Drive (Radio Edit)
+03. Claus Backslash - Daybreak (Radio Edit)
+04. Eva Kade & DJ T.H. & Stephane Badey - Checkmate (Alexander One & Vauden Alen Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99F7EBE009318ADFC6CB7FB541121F9D3CB33C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561382   (515639) от 04.07.2022
+
+VA - Trance Progressive: Music We Love (2022) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Above & Beyond - Group Therapy
+002. Ferry Corsten - Twice In A Blue Moon
+003. Masked Wolf - Astronaut In The Ocean
+004. Le Shuuk & Papi Pepe - Macarena(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 07:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7A60B6481E5F8FC873B957F7A3CB1466EBE124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242431   (515137) от 22.08.2018
+
+VA - Ultimate Uplifting Trance Anthems (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enfortro - We Came To Conquer (Original Mix)
+02. Air Project & Arsen Gold - Quantum (Original Mix)
+03. Mariomos - Golden Age (Original Mix)
+04. Precious Affliction - Use The Force (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 04:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EDC463C736EE620E889CF3E093B3BD453C21DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242405   (515136) от 22.08.2018
+
+VA - Workout Uplifting Trance Anthems (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enfortro - We Came To Conquer (Original Mix)
+02. Air Project & Arsen Gold - Quantum (Original Mix)
+03. Mariomos - Golden Age (Original Mix)
+04. Precious Affliction - Use The Force (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 06:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FC837A5159048B57AB597F9C31B5063CF0E20D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242408   (515134) от 22.08.2018
 
 VA - Dub Hits Vol.8 (2018) [MP3|320 Kbps] <Trance>
@@ -598,151 +743,6 @@ VA - Suanda Spring Vol.5 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6E7CAD4AA3A34A000858BF61EC6579D77328FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243608   (490226) от 28.08.2018
-
-VA - Trance Revolution 8 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcania - This Means War (Radio Edit)
-02. Brent Rix - Hyper Drive (Radio Edit)
-03. Sven E - Horizons (Radio Edit)
-04. Skysound - Project X (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0657F88E77FE13FD30BED8412BEB00124DAA1A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243609   (490225) от 28.08.2018
-
-VA - Trance Anthems 7 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Delta - Back In My Life (DJ Osip Radio Edit)
-02. Brent Rix - Solar Flare (Radio Edit)
-03. Martin Soundriver & Skysound - Project X (Radio Edit)
-04. Arcania - This Means War (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D1073AB98FE2B513451F4F263B0B469AEAA640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159015   (488018) от 18.08.2017
-
-VA - Black Hole Trance Music 08-17 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz presents Dakota - Running Up That Hill (feat Bev Wild - extended mix) (07:38)
-02. DIM3NSION - The Energy (extended mix) (06:46)
-03. Giuseppe Ottaviani & Kyler England - Firefly (Omnia extended remix) (05:26)
-04. Planet Perfecto - Bullet In The Gun (Timelapse By Marco V remix) (05:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A838538365558916640214F3CC8D01123CAFD435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158993   (488014) от 18.08.2017
-
-VA - Vocal Trance Vol.1 (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aly & Fila feat. Roger Shah & Susana - Unbreakable  3:20
-02.  The Thrillseekers & KATHERINE AMY - I Gotta Let You Know  4:21
-03.  ReOrder - Together We Are  3:25
-04.  RAM & Cari - Soulfood (feat. Cari)  4:05(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A8DF01F5059782AA4F686852BFBB7569F64F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405086   (487134) от 28.08.2020
-
-Paul van Dyk - Guiding Light (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Within (feat. Vincent Corver)
-02. Guiding Light (feat. Sue Mclaren)
-03. You Found Me (feat. Saad Ayub)
-04. Exhale (feat. Shedona)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA16439DA92645665820126DBDF57BA327A91613
 ```
 
 https://mybot314.ru/tekegram_catalog/

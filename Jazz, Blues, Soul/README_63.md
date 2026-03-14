@@ -1,3 +1,61 @@
+###  Публикация: 283537   (938281) от 18.01.2011
+
+VA - Серия "Антология джаза" (2000) [MP3|128 - 320kbps] <Retro, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "Антология джаза", выпущенная компанией "Квадро-Диск" в 2000 году включает в себя сборники лучших композиций легендарных джазовых исполнителей. В этом сборнике вы найдёте композиции как отечественных,так и иностранных,исполнителей.Список исполнителей:
+01. О.Лундстрем
+02. Я.Скоморовский
+03. Джаз-оркестр Э.Рознера(   Читать дальше...   )Жанр: Retro, JazzПродолжительность: 16:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6962FD022BC5AD8F7C3DEB621CC63840D5A078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364317   (938017) от 02.03.2020
+
+Ella Fitzgerald - 1951 (2002) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonesome Gal [3:04]
+02. The Bean Bag Song [3:09]
+03. The Cheasapeake and Ohio [2:42]
+04. Two Little Men in a Flying Saucer [3:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCDDACB7F6D0C97612532422536F7EB0081644E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364314   (938016) от 02.03.2020
 
 Gato Barbieri - New York Meeting (2010) Melopea Discos [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
@@ -690,64 +748,6 @@ Hal Galper - Ivory Forest 1979 (2013) P-Vine Records [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11AA60217124F28F5946AE38FD2A9D759C326CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364667   (935037) от 04.03.2020
-
-Tom Harrell - The Art Of Rhythm (1998) RCA Victor [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petals Danse [7:42]
-02. Madrid [7:44]
-03. Oasis [6:19]
-04. Caribe [5:48](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBF92FA23FE8687E3A45C51FE34C788F5954090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364650   (935036) от 04.03.2020
-
-Lena Horne - Stormy Weather (1993) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling in Love with You (2:00)
-02. From This Moment On (1:51)
-03. Night and Day (2:37)
-04. Old Devil Moon (2:35)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1B25C72E3FB9CF3A492DC6236DA6DD20996169
 ```
 
 https://mybot314.ru/tekegram_catalog/

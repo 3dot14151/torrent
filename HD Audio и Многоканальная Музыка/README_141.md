@@ -1,3 +1,148 @@
+###  Публикация: 1735745   (106882) от 09.07.2024
+
+Quinn Sullivan - Salvation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Love (3:41)
+02. Salvation (Make me Wanna Pray) (3:50)
+03. Rise up Children (3:25)
+04. Don't Wanna Die Today (3:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1159C6967D54BB4F9467AA5EE77EC12EF896EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735743   (106849) от 09.07.2024
+
+Paul Benjaman Band - My Bad Side Wants a Good Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undercover of Night (3:11)
+02. Hot Dice (3:24)
+03. My Bad Side Wants a Good Time (2:41)
+04. Old Rock House (4:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2EBB03F2C714B27E70A25DDCDD377A8307F0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735740   (106848) от 09.07.2024
+
+Mike Cahen - Bottle Neck Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stuck Here Waiting (2:56)
+02. Cocaine Blues (3:42)
+03. Keep The Options Open (3:51)
+04. The Work Song Featuring Jane Henley (2:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14300EC4941EBCB6E11EDE74B181216AB6D37161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735747   (106844) от 09.07.2024
+
+Rawa Blues Band - Night and Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down Town Train (4:04)
+02. Zelezniok Blues (4:15)
+03. Moja Mila (5:31)
+04. Ich habe einen Plan (5:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510A53024F93E45898809391E155C687A641FA5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735734   (106842) от 09.07.2024
+
+Bart&Baker - Electro Swing Classics - The Swing Phenomenon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Swing Phenomenon (LMZG Rework) (3:05)
+02. The Swing Phenomenon (Radio Edit) (3:50)
+03. The Swing Phenomenon (Instrumental Version) (3:51)
+04. The Swing Phenomenon (Dj Mibor Remix) (6:08)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E9E297B43592CF0D2DE5709EAD2A5422824F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735790   (106841) от 09.07.2024
 
 Anna Prior - Almost Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
@@ -600,151 +745,6 @@ JoosTVD - 196tree (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0E5E83C4241435A3307B45D6E389793151AA5C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736272   (106718) от 11.07.2024
-
-Tuk - CONFRONTATIONS (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Safest Place (1:17)
-02. Confronted (4:46)
-03. All the Same to You (3:29)
-04. I Only Smoke When I Drink (4:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B3C20BD2106CBAFAC216CEF0CA0EE96BDF9EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736412   (106714) от 12.07.2024
-
-Vengaboys - The Greatest Hits Collection (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, Dance, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Parada de Tettas [4:06]
-02 - To Brazil! [3:07]
-03 - Up & Down [3:45]
-04 - We Like To Party! (The Vengabus) [3:43](   Читать дальше...   )Жанр: Electronic, Dance, PopПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E473DF187B37D0B4B571D1653F6EB161E73A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736446   (106707) от 12.07.2024
-
-Axxis - Coming Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackest Vision (cv) (3:27)
-02. Coming Home (cv) (3:13)
-03. Atlantica (cv) (3:42)
-04. Moonlight Bay (cv) (4:02)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0362968D5D2861BB676F33F0DE7886BA454E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736424   (106705) от 12.07.2024
-
-Amorphis - Tales From The Thousand Lakes (Live At Tavastia) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thousand Lakes (Live at Tavastia) [1:55]
-02 - Into Hiding (Live at Tavastia) [4:12]
-03 - The Castaway (Live at Tavastia) [5:35]
-04 - First Doom (Live at Tavastia) [3:50](   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388D16C089406BB265C8939762BB84B2B9CCEE97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736516   (106701) от 12.07.2024
-
-John Hiatt - Stolen Moments (1990) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side One:
-A1 Real Fine Love
-A2 Seven Little Indians
-A3 Child Of The Wild Blue Yonder(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590B37716A3D6A4F0CAC70B6A1B75434EAD2979D
 ```
 
 https://mybot314.ru/tekegram_catalog/

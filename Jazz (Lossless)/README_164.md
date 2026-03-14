@@ -1,3 +1,90 @@
+###  Публикация: 1316477   (505966) от 26.07.2019
+
+Eddie Higgins Quartet featuring Scott Hamilton - My Funny Valentine (2005) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'd Be So Nice To Come Home To [7:02]
+02. I'm A Fool To Want You [3:56]
+03. When Sunny Gets Blue [4:55]
+04. Alone Together [7:08](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B66A11A0AA6EFC56C1682ACC52491C663945E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 181571   (505860) от 01.09.2015
+
+Shakti with John McLaughlin - 6 альбомов (1976 - 2001) [FLAC, APE, Lossless]<Jazz, Carnatic music, World fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_505860.jpg" />
+</div>
+
+
+###  Подробнее
+
+John McLaughlin - один из самых разносторонних и влиятельных гитаристов нашего времени, добившихся признания во всем мире. Джон Маклафлин - инновационный фьюжн-гитарист, получивший известность с начала 70-х, возглавлял незабвенный Mahavishnu Orchestra и на протяжении всех лет своей творческой карьеры сохранил репутацию феноменального и последовательно любознательного (   Читать дальше...   )1976 - Shakti with John McLaughlin
+1977 - A Handful of Beauty
+1977 - Natural Elements
+1999-John McLaughlin, Zakir Hussain, T.H.”Vikku”Vinayakram – Remember Shakti(2cd)(   Читать дальше...   )Жанр: Jazz,Carnatic music, World fusionПродолжительность: 06:51:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933592   (505503) от 02.09.2015
+
+Teddy Edwards Quartet - Good Gravy (1981) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Be Good [14:50]
+02. Oleo [05:54]
+03. Georgia [10:48]
+04. Good Gravy [09:04]Жанр: Hard Bop, West Coast JazzПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E21EA8AA312389277E7C383FB2516E02F5DE53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933358   (505502) от 02.09.2015
 
 Thomas Chapin Trio - Third Force (1991) /Knitting Factory/ [FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
@@ -682,93 +769,6 @@ Bheki Mseleku - Celebration (1992) /World Circuit/[FLAC|image+.cue]<Post-Bop, Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9DCB397A82E5D3A300F63198E2CBD4425BD3ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317201   (502622) от 30.07.2019
-
-Jean-Loup Longnon & His New York Orchestra (1988) Atlantic Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moment's Notice/Vous Allez Jouer Du Bop (Now You're Going To Play Bop) (6:32)
-02. Nathalie…Un Matin (Nathalie…One Morning) (7:02)
-03. Torride (9:09)
-04. Body And Soul (6:43)(   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Big BandПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A4CEF1CCBBE20E820AA8E08F4B66C3B2B3FA92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563908   (502614) от 16.07.2022
-
-Lee Konitz - Chicago'N All That Jazz (1975) 1989, Lester Recording [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Own Best Friend [3:58]
-02. Razzle Dazzle [4:13]
-03. Loopin' de Loop [4:02]
-04. Funny Honey [5:06](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1747A0F7137CF2E2AC9F5C7DA6A6A675FFBAB272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934555   (502534) от 05.09.2015
-
-Jessi Teich - Twisted Soul (2015) [FLAC|Lossless]<Vocal Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Haunting
-02. Think You Do
-03. Clap Hands
-04. Carnival(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1EA2035EA1C6C82BE3E7A304B4AE971436884C
 ```
 
 https://mybot314.ru/tekegram_catalog/

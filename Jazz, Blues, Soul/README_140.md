@@ -1,3 +1,177 @@
+###  Публикация: 1211638   (777281) от 08.03.2018
+
+Jazz Orchestra Of The Concertgebouw (2000) RN Discs [FLAC|Lossless|image + .cue] <Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upper Manhattan Medical Group (B. Strayhorn) [07:09]
+02. Rumbone (M. Mengelberg) [06:52]
+03. All The Things You Are (J. Kern) [06:43]
+04. Reach For The Rose (Toon Roos) [08:30](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D69972B98BF94598B549474041BDDF7B7C80B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211648   (777240) от 08.03.2018
+
+Reloaded - My Longest Mile (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bigger balls (02:53)
+02. Saturday night diva (03:51)
+03. My longest mile (05:58)
+04. Devil's kiss (03:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB3E2325BAC9DA4D6D17196ED9E644B201B5EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013991   (776970) от 06.05.2016
+
+Fred Hersch - Solo (2015) Palmetto Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Olha Maria - O Grande Amor [12:40]
+ 02.Caravan [07:43]
+ 03.Pastorale [08:51]
+ 04.Whirl [07:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA2651C64C823CE4E0F04C60DD3C2EFD9451AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013980   (776967) от 06.05.2016
+
+Moacir Santos - Maestro (1972) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Monologue [01:04]
+ 02.Nana [04:28]
+ 03.Bluishmen [04:53]
+ 04.Luanne [03:01](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15325739E5AC39C6AF9AFC9AA84BF31EE6AD971F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014111   (776964) от 06.05.2016
+
+Shirley Scott - Something (1970) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Games People Play [03:53]
+ 02.Because [03:47]
+ 03.Can I Change My Mind [02:58]
+ 04.Someday We'll Be Together [03:05](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FB7CC29470B1C5B7629B5616754AE645879D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014244   (776961) от 06.05.2016
+
+Teddy Wilson - & His All-Stars Vol. 1 (1935-1939) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I'll See You In My Dreams [02:40]
+ 02.Tea For Two [03:12]
+ 03.Fine And Dandy [02:37]
+ 04.Sweet Lorraine [03:04](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17317C77B8E8BEAABF0BC209AAA3F861BE291E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013132   (776958) от 06.05.2016
 
 Davina and The Vagabonds - Nicollet and Tenth (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Blues, Folk, New Orleans>
@@ -571,180 +745,6 @@ Robert Burton Hubele & Brad Steckel - She Won't Talk To Me (2016) [MP3|320 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDC9D5F13C9B7E21410EF4E8D61A4D46DDE1C424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014343   (776526) от 07.05.2016
-
-Dan Patlansky - Introvertigo (2016) [MP3|320 кб/с] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776526.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Run
-2. Poor Old John
-3. Sonova Faith
-4. Loosen Up The Grip(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A8539145646BB119C9ACE2839D0559C1AD031B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212169   (776516) от 10.03.2018
-
-Mick Abrahams (Мик Абрахамс) - Mick's Back (1996) Indigo Delux Records [MP3|320 Kbps] <Blues Rock, Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мик Абрахамс (англ. Michael Timothy 'Mick' Abrahams; 7 апреля 1943, Лутон, Бедфордшир, Англия) — британский гитарист, участник оригинального состава группы Jethro Tull. В 1968 году Абрахамс вместе с группой Jethro Tull записал альбом This Was. Вскоре после выхода этого альбома Мик был вынужден покинуть группу, ввиду конфликтов, возникших у него с Йеном Андерсоном (   Читать дальше...   )01. The Rivers Invitation 3:32
-02. Bad Feeling 3:46
-03. Cold Women With Warm Hearts 3:26
-04. Time To Love 5:01(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6305F4E0EE3B173B7DC5CA1ABC53445F8F98E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212124   (776513) от 10.03.2018
-
-Mick Abrahams (Мик Абрахамс) - Mick Abrahams (1971) A&M Records [MP3|320 Kbps] <Blues Rock, Classic Rock, Prog Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мик Абрахамс (англ. Michael Timothy 'Mick' Abrahams; 7 апреля 1943, Лутон, Бедфордшир, Англия) — британский гитарист, участник оригинального состава группы Jethro Tull. В 1968 году Абрахамс вместе с группой Jethro Tull записал альбом This Was. Вскоре после выхода этого альбома Мик был вынужден покинуть группу, ввиду конфликтов, возникших у него с Йеном Андерсоном (   Читать дальше...   )01. Greyhound Bus 4:48
-02. Awake 8:46
-03. Wind Of Change 4:46
-04. Why Do You Do Me This Way 3:26(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Prog RockПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B6E76FA7F8B03AA5A119234EF3FC24D28E6A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014419   (776487) от 07.05.2016
-
-VA - Blind Pig Presents: Night Time Blues (2016) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tommy Castro - The Crossanova (2:38)
-02. Arthur Adams - Backup Man (3:45)
-03. Billy Branch & The Sons Of Blues - Song For My Mother (5:21)
-04. Albert Cummings - Blues Makes Me Feel So Good (3:18)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50CAF531EB29910CF07576D872988594E49F65F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212082   (776476) от 10.03.2018
-
-Astrud Gilberto & Walter Wanderley - A Certain Smile A Certain Sadness (1966) 2008, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Certain Smile [01:29]
-02. A Certain Sadness [03:11]
-03. Nega Do Cabelo Duro [02:21]
-04. So Nice (Summer Samba) [02:42](   Читать дальше...   )Жанр: Vocal Jazz, Latin Jazz, Bossa NovaПродолжительность: 00:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E98F8278DA007642054ACA9139D8408A1E0E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014459   (776179) от 08.05.2016
-
-Donald Harrison & Ron Carter, Billy Cobham - Heroes (2004) [APE|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heroes
-02. Blues for the new millennium
-03. My Funny Valentine
-04. One Of A Kind(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32571FF27524BDA12DF72CDDC1041A8D30B3E14F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1272624   (142464) от 28.12.2018
+
+VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. ''Руки Вверх'' - Ай-яй-яй
+02. ''Вирус'' - Кап-кап
+03. ''Ночной Патруль'' - Первая любовь(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1830285191AF037FD3DBCB88D0639DF252DB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348452   (142401) от 28.12.2019
+
+Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Woman Blues (3:36)
+ 02. War in My Mind (4:22)
+ 03. Without Words in the Way (4:34)
+ 04. Let It Grow (4:52)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: Кодек: FLAC 2.0 24/192
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD51D2CA58B2F54286599D7B06E741C242536019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520157   (141809) от 28.12.2021
+
+The Pretty Reckless - Death by Rock and Roll (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death By Rock And Roll (3:54)
+ 02. Only Love Can Save Me Now (5:12)
+ 03. And So It Went (4:29)
+ 04. 25 (5:26)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6F89D9D1EC8FF53102CF4DB3172D3EF4E8480B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435802   (141802) от 29.12.2020
+
+Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141802.jpg" />
+</div>
+
+
+###  Подробнее
+
+A So Weit So Gut (Maxi-Version)
+Written-By – Jurgen Attig, Michael Reincke
+B Hinein Ins Wilde Pralle Leben
+Written-By – Michael Reincke(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF67F2776AE8044D64831086BCA1C0D993A2DC05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679006   (141592) от 23.11.2023
+
+Soulfly (Max Cavalera; Sepultura) - Studio Albums (12 releases) (1998-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soulfly — американская грув-метал группа, образованная в Финиксе, штат Аризона, в 1997 году бывшим фронтменом Sepultura Максом Кавалера.1998 - Soulfly
+2000 - Primitive
+2002 - 3
+2004 - ProphecyЖанр: Nu-Metal with Folk influences; Groove/Thrash/Death MetalПродолжительность: 12:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2515F30CBE67551D119DD35535893E666E979D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520087   (141385) от 28.12.2021
 
 Electric Light Orchestra - Discovery (1979) Japanese Edition [DSD128 2.0|5,645 MHz/1|tracks|SACD] <Rock, Pop Rock, Symphonic Rock>
@@ -605,150 +750,6 @@ Atack - Nine Lives (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern rock wit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFD9955AE5B62AFE0D03D8A72461770459808331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679363   (138112) от 25.11.2023
-
-Foster & Allen - Reflections. 20 Best Loved Favorites (1987) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138112.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 True Love
-A2 Ramblin' Rose
-A3 I Love You Because
-A4 Goodnight Irene(   Читать дальше...   )Жанр: Celtic, Folk, Easy ListeningПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A7AA0F1D98679ACFBF1ACB9AD27491F0398F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679419   (138108) от 25.11.2023
-
-Old Gods of Asgard feat. Alan Wake & Mr. Door - Herald of Darkness (2023) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Herald of Darkness [13:35]
-02 - Herald of Darkness (Video Edit) [8:38]
-03 - Herald of Darkness (Radio Edit) [3:40]Жанр: Metal, Heavy MetalПродолжительность: 00:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D98D321DFE4B900D86604718F346467064EBAEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088514   (138074) от 31.12.2016
-
-John Lennon & Yoko Ono - Double Fantasy (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138074.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. (Just Like) Starting Over (3:57)
-A2. Kiss Kiss Kiss (2:43)
-A3. Clean Up Time (2:59)
-A4. Give Me Something (1:35)(   Читать дальше...   )Производство: Geffen Records - GHS 2001Жанр: RockПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB95406EDB5EC49270208A11177AFDD1E23A082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349159   (137949) от 31.12.2019
-
-Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jitterbug Waltz (5:21)
- 02. Nuages (2:26)
- 03. A Night in Tunisia (5:55)
- 04. Blue and Sentimental (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9664897486EBDB6E8D5CA8CF1AADEF4ABB3A8D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679306   (137815) от 25.11.2023
-
-Tarja Turunen - From Spirits and Ghosts (2017) Score for a Dark Christmas, Special Edition, earMUSIC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sublime Gracia [00:04:44]
-02. Ô Viens, Ô Viens Emmanuel [00:04:59]
-03. O Christmas Tree [00:03:39]
-04. Feliz Navidad (Barbuda Relief and Recovery Charity Version) [00:06:36]Жанр: Symphonic Metal, Gothic MetalПродолжительность: 2 CD, 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD6024FE6D2BAD25ACB8CBE870C03CE90B1A9CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

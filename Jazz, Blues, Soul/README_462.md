@@ -1,3 +1,177 @@
+###  Публикация: 1348326   (145330) от 27.12.2019
+
+Joe Negri - Guitars For Christmas (2003) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Claus Is Coming to Town [3:43]
+02. Christmas Time Is Here [2:27]
+03. We Three Kings of Orient Are [2:33]
+04. We Wish You a Merry Christmas/Happy Holidays [2:01](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar Jazz, ChristmasПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D346FA8E095693FDBBE151A7B1FCCF795C60BC9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348325   (145328) от 27.12.2019
+
+Joe Negri - Uptown Elegance (2004) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet and Lovely [4:56]
+02. How My Heart Sings [4:59]
+03. It's a Beautiful Day in the Neighborhood [3:04]
+04. The Best Thing for You [3:51](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, Guitar JazzПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3E13999A302CF3AAB1F969BF6117B05F33D4C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087661   (145263) от 28.12.2016
+
+Sonny Rollins - 5 Original Albums (1951-1956) 5CD, 2016, Concord Music Group[FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145263.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Worktime:
+01.There's No Business Like Show Business [06:21]
+02.Paradox [05:01]
+03.Raincheck [06:01](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 02:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241D689B10D309689BAD40F77A1019690A4D161B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087673   (145146) от 28.12.2016
+
+Michael Osborn and the Drivers - The Glamorous Life (2010) [MP3|320 Kbps] <West Coast Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Get Up (04:19)
+02. Here She Comes (04:27)
+03. The Glamorous Life (03:48)
+04. Needles and Pins (05:14)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F147832183834DD73BF11244883150D421A1C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272381   (144838) от 27.12.2018
+
+Lionel Hampton And His All-Stars - Complete Jazztone Recordings (1956) 2CD, 2007, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144838.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Romeo's Gone Now [6:30]
+02. Over the Rainbow [11:09]
+03. Dark Eyes [5:00](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAD522BC0F4B50F0773F060F692D889F8F39EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272384   (144790) от 27.12.2018
+
+Harry James - The In Person And Hi-Fi Sound Of Harry James (1952 - 1955) 2CD, 2007, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144790.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ultra [4:38]
+02. Blues from 'An American in Paris' [4:10]
+03. Mam Bongo [3:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1344711316EA48EB0D81DCECFBC0318566583CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435471   (144737) от 28.12.2020
 
 Enrico Rava - Rava l'opera va (1993) Label Bleu [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
@@ -571,178 +745,6 @@ The Lenny Hambro Quintet - The Nature Of Things (1956) Remaster, 2015, Sony Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C81467E5FD31C3B965A72E648FED1218B5E08E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970265   (143865) от 29.12.2015
-
-Arnett Cobb - Live (1982) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cobb's Idea [11:01]
- 02.Sweet Georgia Brown [10:57]
- 03.Just A Closer Walk With Thee [07:54]
- 04.Body And Soul [06:35](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7304E7FC40B5FF062367D0CBDF3B36482E33EB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348538   (143784) от 28.12.2019
-
-Urbie Green - Five Classic Albums 1953 - 1956 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143784.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cherokee [2:42]
-02. I Ain´t Got Nobody [3:31]
-03. Stella By Starlight [3:06](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E85C78B27DC673597F4A0170ACEE761DC48166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969265   (143778) от 29.12.2015
-
-The Frank Wright Quartet - Church Number Nine (1970) 2002, Black Keys[FLAC|tracks+.cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Church Number Nine, Part I [25:45]
- 02.Church Number Nine, Part II [19:18]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E234D503DD2F2C69E46F46B822FBD800800FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969530   (143731) от 29.12.2015
-
-Jef Gilson - Malagasy (1972) Reissue, 2014, Jazzman [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Tana (5:21)
-02. Avaradoha (6:22)
-03. Chant Inca (4:12)
-04. Sodina (6:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF8C83FA6F649A014937519D0B8F678A292CBD9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739639   (143684) от 29.12.2013
-
-Acoustic Alchemy - The Best of Acoustic Alchemy (2013) [FLAC|Lossless]<Instrumental Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr.Chow  [03:08]
-02. Catalina Kiss  [04:36]
-03. Ariane  [04:55]
-04. Jamaican Heartbeat  [05:35](   Читать дальше...   )Жанр: Instrumental Jazz, Smooth JazzПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FEF9DAAAB55D458F5140B1C3E2A490E996AE89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970272   (143538) от 29.12.2015
-
-Sly & The Family Stone - There's A Riot Goin' On (1971) 24k Gold Disc, 2013, Epic [FLAC|image +.cue] <Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была сформирована в начале 1967 г. в Сан-Франциско музыкантом Слаем Стоуном, который дал ей своё имя.Kоллектив Слая Стоуна, игравший электронную музыку с преобладанием жесткого фанка, подчас с налётом психоделики. Это была первая группа в истории американской сцены, в которой на равных участвовали белые и чёрные, мужчины и женщины01. Luv N' Haight 4:02
-02. Just Like A Baby 5:10
-03. Poet 2:56
-04. Family Affair 3:05(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A90AD8805A238A07F739DAAED49E0E3D71740F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

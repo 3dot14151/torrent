@@ -1,3 +1,90 @@
+###  Публикация: 1446571   (1032645) от 09.02.2021
+
+VA - Tik Tok Треки выстрелили зимой 2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Justin Timberlake - Mirrors (8:04)
+002. Kendrick Lamar, Jay Rock - Money Trees (6:26)
+003. 1096Gang, Guddhist, youngwise, Polo Pi, Ghetto Gecko, Luci J - Pajama Party (5:23)
+004. Nirvana - Smells Like Teen Spirit (5:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C430763F1F8193BFE1CD2AFCDEF62C9D7520302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446794   (1032546) от 10.02.2021
+
+VA - Sounds Of Life: Tech House Club Session (Vol.43) (2021) [MP3|320 Kbps] <Tech House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032546.jpg" />
+</div>
+
+
+###  Подробнее
+
+У вас депрессия или постоянно отсутствует хорошее настроение? Исправить ситуацию можно очень быстро и кардинально с помощью музыки 43-го сборника из серии "Sounds Of Life". Музыка представлена в ремиксах, расширенных миксах, радио версиях и в порядке беспрерывного проигрывания и займёт почти 9 часов. Этого достаточно, чтобы провести громкую вечеринку и (   Читать дальше...   )001. Henrick Brown - This Is My House
+002. Tony Mafia - Tonight
+003. Steve Montana - Blaze Up
+004. Malaga Djs - All About The Bass(   Читать дальше...   )Жанр: Tech House, Club, DanceПродолжительность: 08:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1460ED419BA1D495E9328919F61572C0D7D686A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446795   (1032541) от 10.02.2021
+
+VA - Modern Rap Premiere (2021) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для Вас звучат самые горячие хиты и актуальные новинки в исполнении вновь "нарисовавшихся" звезд музыки в стиле Rap на сборнике под названием "Modern Rap Premiere".001. Ksi - Undefeated
+002. Mr. Criminal - No Love In The Streets
+003. Asian Doll - Talk To Em
+004. Blocboy Jb - Sixteen(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 07:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B51FB79CE63EA5A6A4FD3A0F940E1FF6855AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446796   (1032511) от 10.02.2021
 
 VA - Melodic Vocal Trance (2021) [MP3|320 Kbps] <Vocal Trance, Uplifting>
@@ -658,93 +745,6 @@ VA - Weightless Rain (2021) [MP3|320 Kbps] <Chillout, Chill House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73160A44ABA2F96913A93307CF4026C0CAEB334F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448114   (1031151) от 16.02.2021
-
-VA - The Black Lavender (2021) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сильный и монументальный вокал, гармонирующий с традиционными музыкальными инструментами и электронной музыкой – изрядная редкость. Оригинальные, атмосферные, трогательные и в то же время напористые композиции были специально отобраны и включены в релизе «The Black Lawender», в котором представлены музыкальные жанры рока и рок альтернативы.001. Coast To Coast - Be Kind (Alternative)
-002. Cymatica - Hours
-003. American Hi-Fi - Oliver's Army
-004. Good Tiger - Animal Mother(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 10:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C02FF9920E2C0A5750F17F5039D621741E386E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448112   (1031137) от 16.02.2021
-
-VA - National Pop Dance Vol.12 (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасное сочетание жанров танцевальной и поп музыки в одном музыкальном сборнике – «National Pop Dance» 12-го выпуска. Музыка идеально подойдет для ежедневного прослушивания представителям разной возрастной категории, социального статуса и предпочтениям. Это яркий пример, когда скептическое отношение к определенному жанру может измениться – стоит лишь прослушать (   Читать дальше...   )001. In-Grid - Really Really Wanna
-002. Gabrielle Aplin - Nothing Really Matters
-003. Jackson R.A. - Real Life
-004. Barclay James Harvest - Ursula(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9FD442158033B49AC8A8FE7C71A3C9E3D99074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448110   (1031136) от 16.02.2021
-
-VA - Classic Italian Songs (2021) [MP3|320 Kbps] <Classic, Vocal, Retro, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка и песни этого сборника переносят в теплую, гостеприимную Италию, заряжают вкусом к жизни и помогают ощутить её в самых тончайших оттенках. Послушайте сочные итальянские голоса, смакуйте яркие итальянские мелодии, насладитесь живыми мотивами итальянской музыки! Почувствуйте Италию душой!01. Edoardo Vianello - Guarda Come Dondolo
-02. Giuni Russo - L'addio
-03. Mina - Il Cielo In Una Stanza
-04. Sandro Giacobbe - Signora Mia(   Читать дальше...   )Жанр: Classic, Vocal, Retro, PopПродолжительность: 04:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C9CC762A4E5D3BDC2D24ED715CE07EB31FB768
 ```
 
 https://mybot314.ru/tekegram_catalog/

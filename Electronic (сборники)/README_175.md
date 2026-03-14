@@ -1,3 +1,32 @@
+###  Публикация: 1261965   (298596) от 13.11.2018
+
+VA - Progressive House Project (2018) [MP3|320 Kbps] <Progressive House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298596.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tigran Oganezov - Sexciter
+002. Deljoi - Take It Back Jack
+003. Douglas Greed - Down Here
+004.  Klangdeko - Haubutze(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 09:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F74E3F0F446C4B5E1B85EBCD966323D93B1E280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078811   (298313) от 02.12.2016
 
 VA - Wonders Essential Trance (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal, Emotional, Uplifting>
@@ -719,35 +748,6 @@ VA - Beatport Top 100 EDM Songs & DJ Tracks November (2016) [MP3|320 Kbps] <Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15789CC6C226E06408602AF74FDAB72F4E609A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185412   (293742) от 21.11.2017
-
-VA - Full Moon Trance Party (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293742.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dave Marxon - Neuroscience (Madwave Radio Mix)
-002. Simon Ice - Skiner (Original Mix)
-003. The Thrillseekers with Katherine Amy - I Gotta Let You Know
-004. Susana - Unbreakable (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 07:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C40A5238B73337A7D0D829B4C6266B9B408F100
 ```
 
 https://mybot314.ru/tekegram_catalog/

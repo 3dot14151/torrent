@@ -1,3 +1,177 @@
+###  Публикация: 1600222   (159031) от 26.12.2022
+
+Vern Daysel - Call of the Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feed Me (4:02)
+02. Wild Girl (3:50)
+03. Bandit’s Road (3:46)
+04. Call of the Wild (4:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9D83AA6BFDC25587AE330A29E0020CEF46E13C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676181   (159029) от 12.11.2023
+
+Leroy Vinnegar, Doug Watkins, Paul Chambers, Ron Carter - Jazz Bassists: Four Classic Albums (1957 - 1961) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Chambers - Melody [4:12]
+02. Paul Chambers - Bass Region [10:38]
+03. Paul Chambers - Retrogress [3:33]
+04. Paul Chambers - Mopp Shoe Blues [6:08](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 02:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E48DDBD1CAE80F031017F8B7C30BD571D4A2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676191   (158959) от 12.11.2023
+
+VA - Piano Jazz Christmas by JazzEcho (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norah Jones - Run Rudolph Run (3:11)
+02. Bill Evans - Santa Claus Is Coming To Town (4:24)
+03. Ramsey Lewis - Here Comes Santa Claus (2:39)
+04. Duke Pearson - Sleigh Ride (6:24)(   Читать дальше...   )Жанр: Jazz, ChristmasПродолжительность: 02:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B7E31350870E98BECB2748D534BC6D659328A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967329   (158716) от 20.12.2015
+
+Anna Rudolph - Alter Ego (2015) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Glimpse of Joy (02:56)
+02. Why Did I Do It (03:47)
+03. Angel of Dreams (03:16)
+04. Going Down That Road (04:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9BCEE6D37D7D83F2EF390C1408A89277C7BA049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967275   (158712) от 20.12.2015
+
+VA - Blue Note Live At The Roxy Vol.2 (Carmen McRae, Earl Klugh, Gerry Brown, Gene Harris) (1976) 2012, EMI Music[FLAC|tracks+.cue] <Vocal Jazz, Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Carmen McRae - Music [03:56]
+ 02.Carmen McRae - Paint Your Pretty Picture [04:53]
+ 03.Carmen McRae - Them There Eyes [01:53]
+ 04.Carmen McRae - T'ain't Nobody's Bizness If I Do [05:01](   Читать дальше...   )Жанр: Vocal Jazz, Hard Bop, Soul JazzПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2E325463D801860B9D1CBF827FDBB0C78F2B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967075   (158705) от 20.12.2015
+
+Paulo Moura - Quarteto (1969) 2002, Atra[FLAC|tracks+.cue] <Post-Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lamento Do Morro [03:34]
+ 02.Eu E A Brisa [04:07]
+ 03.Meu Lugar [03:16]
+ 04.Aos Pes Da Cruz [03:37](   Читать дальше...   )Жанр: Post-Bop, World FusionПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DE36959D29B40786ECDD527B736929C19051DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967090   (158704) от 20.12.2015
 
 Adam Ben Ezra - Can't Stop Running (2015) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion, World>
@@ -570,180 +744,6 @@ Kenny Dorham - Quiet Kenny (1959) 2001, Prestige[FLAC|tracks+.cue] <Hard Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F86CB899A4DF19ECC62A8C58A2B02E9E3E5FC2EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968054   (157295) от 23.12.2015
-
-The Dutch Swing College Band - The Best Of Dixie (1999) MasterTone Multimedia Ltd.[FLAC|tracks+.cue] <Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You Made Me Love You [05:30]
- 02.On The Banks Of The Wabash [03:43]
- 03.Hindustan [03:51]
- 04.Just A Closer Walk With Thee [04:46](   Читать дальше...   )Жанр: DixielandПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB62814A91D5E805131D44FB5C8C1A60A67C50A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968283   (157228) от 23.12.2015
-
-Archie Shepp Quartet - I Didn't Know About You (1990) 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Go Down Moses (Let My People Go) [11:06]
- 02.I Didn't Know About You [10:15]
- 03.Billie's Bossa [05:54]
- 04.Hot House [07:37](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB04D94C3732F9A42192055ABE3258C2FBA0A2FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600440   (157197) от 27.12.2022
-
-Stacey Kent feat. Art Hirahara - Songs From Other Places (2022) Special Edition [FLAC|192/24|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish I Could Go Travelling Again
-02. Bonita
-03. Craigie Burn
-04. Les Voyages(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BC7720CA8A8BA3813F89A006AFB7677BF06529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085496   (157040) от 22.12.2016
-
-Doc Cheatham - The Eighty-Seven Years Of Doc Cheatham (1993) Columbia[APE|Lossless|tracks + .cue] <Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.That's My Home [06:08]
- 02.Okay, Baby [03:14]
- 03.Love You Madly [03:18]
- 04.Blues In My Heart [04:25](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F613FE6C233006DB83B231FE5C59DE6A9CD316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085503   (157026) от 22.12.2016
-
-The J.J. Johnson Quintet - J Is For Jazz (1956) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Naptown USA [05:05]
- 02.It Might As Well Be Spring [04:51]
- 03.Tumbling Tumbleweeds [04:18]
- 04.Angel Eyes [03:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C870F23EF87AA9622F9CAFA07D8D065ECF6C8154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085506   (156998) от 22.12.2016
-
-The Chico Hamilton Quintet - With Strings Attached (1959) 2007, Collectables[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Something To Live For [03:57]
- 02.Andante [02:31]
- 03.Speak Low [02:29]
- 04.Pottsville, U.S.A. [05:44](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062CCAA9DBA07ACA77313717D50CA70854275EB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

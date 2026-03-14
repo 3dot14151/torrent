@@ -1,3 +1,90 @@
+###  Публикация: 984954   (937256) от 10.02.2016
+
+VA - Miami Dance - Lights Impression (2016) [MP3|212-320 кб/с] <Acid House, Hard NRG, Electroclash, UK Funky, Bigroom, New Rave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937256.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sandro Silva X Dirtcaps - Someone Like U (Radio Edit) 03:22
+002. Hardwell And Dannic Feat. Haris - Survivors (Original Mix) 04:36
+003. Nervo Ft. Kreayshawn, Dev & Alisa - Hey Ricky (Extended Mix) 04:07
+004. Steve Angello & Laidback Luke - Show Me Love (Feat Robin S) (Anevo Remix) 05:15(   Читать дальше...   )Жанр: Acid House, Hard NRG, Electroclash, UK Funky, Bigroom, New RaveПродолжительность: 10:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1518F3825215807B5D7F1FA792A55100E1C6FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984768   (937253) от 10.02.2016
+
+VA - After Ultimate Club Anthems (2016) [MP3|320 кб/с] <Club, House, Progressive, Funky>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silverleaf - Like No Other (Original Mix) 05:24
+02. Mekki Martin & Damae - Shine (Original Mix) 05:17
+03. Luca Debonaire Feat. Tavo - Warehouse (Feat. Tavo) 05:42
+04. Discover. - Vogue (Original Mix) 06:32(   Читать дальше...   )Жанр: Club, House, Progressive, FunkyПродолжительность: 04:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB91FEF0562073AC5330EF1F054DAA67577B3C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984946   (937244) от 10.02.2016
+
+VA - Wicked Bass: Psychill Dubstep (2016) [MP3|320 кб/с] <Dubstep, Electro, DnB>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937244.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. SBCR & TWNTYMLS - Back To The Top (TWNTYMLS VIP) 03:24
+002. Sadhu, Code:Pandorum & Samplifire - Tequilariddim 04:09
+003. Rickyxsan x Dirty Audio - Gettin' That 02:50
+004. Pegboard Nerds - End Is Near (Bear Grillz Remix) 03:05(   Читать дальше...   )Жанр: Dubstep, Electro, DnBПродолжительность: 10:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C011E2B6FE87049659E71DCEAA540E91D98B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984810   (937157) от 10.02.2016
 
 VA - Этапом к северу. Академия хитов шансона (2016) [MP3|256-320 kbps] <Шансон>
@@ -658,92 +745,6 @@ VA - Любимая музыка. Тебе, в День Святого Вале�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A1FC4D08133EF224ECBEAE44FE66573599CC526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093252   (935338) от 14.01.2017
-
-VA - German Top 100 Single Charts 13.01.2017  [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935338.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Shape of You
-002. Ed Sheeran - Castle on the Hill
-003. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie)
-004. Alan Walker - Alone(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F5C531B6455FA8574852F6BE88C324B02602E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093243   (935122) от 14.01.2017
-
-VA - Unknown 80's (part II) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Vega - On The Run - 1985
-02. KTP (Kissing The Pink) - Identity Card - 1986
-03. Voice Farm - Reconstruction - 1987
-04. Models - These Blues - 1985(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB40C1324B386C95EFE266E691B2A57EF5B32A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628854   (935104) от 11.03.2013
-
-VA - The Official UK Top 40 Singles Chart (10-03-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую очередной UK Singles Chart — официальный хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
-Составляется с 1952 года как аналог американского Billboard.
-Обратите внимание на песню под № 30 (она новая в этом топе) -  Stereophonics - Indian Summer (по нашему - Бабье лето). Вещица очень не затейливая, да и слова простенькие, (   Читать дальше...   )Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 02:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E2F86FD2A4C72CC4F6932D3D513C33957DA13C
 ```
 
 https://mybot314.ru/tekegram_catalog/

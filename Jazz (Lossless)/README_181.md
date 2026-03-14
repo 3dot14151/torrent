@@ -1,3 +1,90 @@
+###  Публикация: 1061803   (444778) от 12.10.2016
+
+Count Basie & His Orchestra - Do You Wanna Jump...? (1938) 1989, Hep[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Georgianna [02:38]
+ 02.Blues in the Dark [03:07]
+ 03.Sent for You Yesterday [02:57]
+ 04.Every Tub [03:19](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533F8F34EE2D321C76C026B28B4ABA6D01DF86CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061820   (444775) от 12.10.2016
+
+James Moody - Young At Heart (1996) Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Young at Heart [04:15]
+ 02.Love and Marriage [05:28]
+ 03.Nancy (With the Laughing Face) [04:27]
+ 04.That Old Black Magic [06:30](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E910CD0DB10EF7A3FF51D762C9DFBBEF5EE219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062032   (444771) от 12.10.2016
+
+Peggy Lee - Black Coffee with Peggy Lee (1953, 1956) Remaster, 1999, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Black Coffee [03:11]
+ 02.I've Got You Under My Skin [02:33]
+ 03.Easy Living [02:48]
+ 04.My Heart Belongs to Daddy [02:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05F121F91762CA7FA7866C8B6C02A0795D57792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062046   (444767) от 12.10.2016
 
 Nancy Wilson - Like In Love & Something Wonderful (1959, 1960) 2003, EMI Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -655,93 +742,6 @@ Peggy Lee - I'm A Woman & Norma Deloris Egstrom From Jamestown, North Dakota (19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91A2FB00C7A08FDD6F60045E1F88C7734781D6AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062365   (442309) от 13.10.2016
-
-Miles Davis - Free Trade Hall: Vol. 1-2 (1960) 2CD, 2004, Magnetic Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442309.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Four [10:55]
-02.All Of You [14:15]
-03.Walkin' (incomplete) [04:24](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCDE28E3744BE749617C55A329ACBC95328B888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164497   (442027) от 09.09.2017
-
-Hal Galper - Live at Maybeck Recital Hall, Vol.6 (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spoken Introduction [00:17]
-02. Whisper Not [07:08]
-03. It Never Was You [07:08]
-04. All God's Chillun Got Rhythm [03:43](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E66002DC77752568D6BBC5BEB1A75F15D81479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164119   (442026) от 09.09.2017
-
-Rob Brown Ensemble - Crown Trunk Root Funk (2008) AumFidelity [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocking Horse [10:58]
-02. Clearly Speaking [06:57]
-03. Sonic Ecosystem [11:18]
-04. Ghost Dog [07:34](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A0CED292B7C6FAD0639C47EA14540F2E312F5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

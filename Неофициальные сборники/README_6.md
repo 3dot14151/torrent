@@ -1,3 +1,90 @@
+###  Публикация: 1841729   (1048234) от 12.12.2025
+
+VA - No name compilation part 20 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dova Music - Winter Lonely Love
+02 - Mr Salama - Neon Heart
+03 - Azimov - Stay Tonight
+04 - Delih - Still Loving You(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3CADB5C69C416114CB612F244E8353317CC118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841731   (1048232) от 12.12.2025
+
+VA - No name compilation part 22 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Azimov - Midnight Shadow
+02 - Kasimoff - Cheri Cheri Lady (Instrumental Guitar)
+03 - Umideep - Forgive My Move
+04 - Adex - Inbox(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3704A3BD44FE07249FDDB5EFFB1CC3B4A44AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841726   (1048231) от 12.12.2025
+
+Sardø - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Minha Alegria
+02 - La Bella Luna
+03 - Midnight
+04 - Oh Love(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806076589E1CF502B7E3CA252B868E3E3A60169A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841724   (1048230) от 12.12.2025
 
 Sardø - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Electronic, Vocal>
@@ -658,93 +745,6 @@ Elise - Favorites Collection (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D69C3BD190D3E928334E2A0AB8ADD72E6AA72E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839721   (1046819) от 30.11.2025
-
-VA - Erotic Lounge Collection Part 3 (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Aria Black - Still Here in the Quiet
-02 - L’amour Fané - Sous Ma Peau
-03 - Aria Black - Two Fires, One Heart
-04 - L’amour Fané - Si Tu Vis Mieux Sans Moi(   Читать дальше...   )Жанр: Vocal, Easy listening, AIПродолжительность: 00:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3D2FDFBF9E80EB32EF0CFE5D6F03EAE4129AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839740   (1046814) от 30.11.2025
-
-Мария Варгас - Favorites Collection Part 2 (2025) [MP3|192 Kbps] <Blues, Blues Rock, AI>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ты Боль Моя
- 02 - Плачь, Плачь, Мэри
- 03 - Я Тебе Не Верю Ритмичный Блюз
- 04 - Тебя Придумала Сама(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874DED9B1122CD3A1635C16FEBF583F82BE3A542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839736   (1046813) от 30.11.2025
-
-LIYNA - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Vocal Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lovely Chaos
- 02 - Touch Me Not
- 03 - Novela
- 04 - Falling(   Читать дальше...   )Жанр: Vocal Deep HouseПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9FCF1AAD1D33001D1D45960325EB4BBB0871CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

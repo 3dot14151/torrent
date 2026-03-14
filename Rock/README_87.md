@@ -1,3 +1,61 @@
+###  Публикация: 1428404   (180205) от 02.12.2020
+
+Alfio Costa - Frammenti (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_180205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ...La Notte (01:52)
+ 02. Ombre nel Sole (09:35)
+ 03. Frammenti (06:05)
+ 04. Luci in un notte d'ambra (08:24)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F6F6C4C30527AD58F9607FDF349D3773B61891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428398   (180194) от 02.12.2020
+
+Sly Roosevelt - Kirlian (2020) [MP3|320 Kbps] <Progressive Rock, Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_180194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kirlian, Pt. 2 (05:31)
+ 02. Cocaine(keep moving) (04:46)
+ 03. Tiger swing (07:07)
+ 04. Neon Confetti (08:11)(   Читать дальше...   )Жанр: Progressive Rock, Post-RockПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158C561972BA4CC51D22E28107A29A0A7A5534A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428317   (180079) от 02.12.2020
 
 Big Big Train - Empire (2020) Live [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
@@ -687,64 +745,6 @@ U.F.O. - Lights Out In Babenhausen - Live 1993 (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D52CD2E23D1C5C82BF39E978D67B6D0CF457575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668961   (173204) от 14.10.2023
-
-The Dear Hunter - Migrant Returned (2013) Remaster, 2023, Equal Vision Records [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - An Escape [00:03:08]
-02 - Girl [00:03:03]
-03 - Let Go [00:03:38]
-04 - The Kiss of Life [00:04:22](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A11EB5130BE52FFEB40FCE60E8F000314F936D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670444   (171920) от 21.10.2023
-
-Smoke The Light - The Great Never Ending (2023) [MP3|320 Kbps] <Heavy Psychedelic, Fuzz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Uphill [00:08:04]
-02 - The Great Never Ending [00:07:34]
-03 - Steed [00:05:48]
-04 - Speaking of Witch [00:06:10](   Читать дальше...   )Жанр: Heavy Psychedelic, Fuzz RockПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3221E793AF51302836A405476BD4E788E8A1FAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

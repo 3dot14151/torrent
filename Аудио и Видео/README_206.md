@@ -1,3 +1,32 @@
+###  Публикация: 1419656   (337818) от 29.10.2020
+
+VA - Peephole In My Brain: The British Progressive Pop Sound Of 1971 (2020) [AAC|~329 Kbps] <Pop, Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337818.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Dana Gillespie - Andy Warhol (1971 Promo Version) (2:45)
+1.02. Corn & Seed Merchants - Mr Middleton's Lament (2:31)
+1.03. Curved Air - Back Street Luv (3:37)
+1.04. Procol Harum - Memorial Drive (3:46)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3287D6797A8ED380725BBF90FA4BE0955A857B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074167   (337478) от 19.11.2016
 
 Тайная жизнь домашних животных / The Secret Life of Pets (2016) BDRip [576p] iPad
@@ -662,35 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CE7661CCE36649E57CD884BCA279835CA75BA21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420401   (333950) от 31.10.2020
-
-Анжелика Варум - Грустная bossa (2020) [AAC|~341 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Грустная bossa (5:23)
-02. Кто там, кроме (3:46)
-03. Жемчуг и молоко (4:38)
-04. Я тебя теряю (5:11)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA03038096E8C9D9F4962B6977691BB5824CB7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

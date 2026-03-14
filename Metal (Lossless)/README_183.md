@@ -1,3 +1,363 @@
+###  Публикация: 1259224   (323096) от 02.11.2018
+
+Metallica - Kill 'em All (1983) 1988, Reissue [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hit The Lights (4:17)
+ 02. The Four Horsemen (7:13)
+ 03. Motorbreath (3:08)
+ 04. Jump In The Fire (4:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218FCC220ABDB3CBE7994A10B0801BD7C856A5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259226   (323086) от 02.11.2018
+
+Metallica - ... And Justice For All (1988) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackened (6:42)
+ 02. …and Justice for All (9:46)
+ 03. Eye of the Beholder (6:26)
+ 04. One (7:27)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B71CC0DE7EA23052032F695870F320312FFF00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581850   (322764) от 28.11.2012
+
+Rise To Fall - Defying The Gods (Japanese Edition) (2012) [FLAC|Lossless]<Melodic Death / Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_322764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascend The Throne (3:35)
+02. The Compass (3:39)
+03. Whispers Of Hope (3:56)
+04. Reject The Mould (4:05)
+05. Inflexible Kingdom (3:22)
+06. Instruction Cycle (3:21)
+07. Lost in Oblivion (3:31)
+08. Decoding Reality (4:02)
+09. Dare to Cross (3:50)
+10. Fall To Drama (5:00)(   Читать дальше...   )Жанр: Melodic Death / Modern MetalПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420949   (322347) от 03.11.2020
+
+Wyzards - The Final Catastrophe (1997) [APE|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armageddon
+02. Generation X
+03. Phantoms ~ Lizards
+04. One Wizard(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7BC71907A2F670F1C1579771264713FA95DCF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421120   (322337) от 03.11.2020
+
+Centinex - Subconcious Lobotomy (1992) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322337.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blood On My Skin (05:33)
+2. Shadows Are Astray (03:28)
+3. Dreams Of Death (02:47)
+4. Orgy In Flesh (05:13)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DA0E3289F2369EFA65B2E36DB11C03D3292565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420990   (322219) от 03.11.2020
+
+Carcass - Despicable (2020) EP [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Living Dead at the Manchester Morgue (05:59)
+02. The Long and Winding Bier Road (04:22)
+03. Under the Scalpel Blade (03:56)
+04. Slaughtered in Soho (04:38)Жанр: Death MetalПродолжительность: 00:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C941B0F922FBFAB46E79A8F71B4F19129B431807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259262   (321526) от 03.11.2018
+
+Powermad - Absolute Power (1989) [APE|Lossless|image + .cue] <Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slaughterhouse
+02. Absolute Power
+03. Nice Dreams
+04. Returning From Fear(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B27A98F5E0AA23197560359718982940817B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259255   (321525) от 03.11.2018
+
+Walter Giardino - Temple (1998) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corte Porteño 04:36
+02. Sobre La Raya 03:45
+03. Los Amigos Del Campeón 05:23
+04. Astróloga 05:00(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D7239E7C7FCE700DCAE8A507D5E9E4B2E8AEB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075116   (321299) от 22.11.2016
+
+Loudness - Columbia Years (2012) Japanese Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loudness 05:08
+02. To Be Demon 06:05
+03. Lonely Player 04:49
+04. Angel Dust 04:45(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1308A9FE989558AEA280EE0709C77C919B48F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075120   (321295) от 22.11.2016
+
+Loudness - Warner Years (2012) Japanese Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Go 04:13
+02. Ashes In The Sky 06:03
+03. Risky Woman 04:45
+04. S.D.I. 04:15(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB633B0371B2C8E1997D11EF30FA4A2698DA128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075367   (321286) от 22.11.2016
+
+SYU - You Play Hard (2016) [FLAC|Lossless|image + .cue] <Instrumental Power Metal, Shred>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spearhead 05:42
+02. Hold Your Tongue 04:11
+03. Civamallosso 03:50
+04. Blind Obedience 04:00(   Читать дальше...   )Жанр: Instrumental Power Metal, ShredПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58D68E20C2E25C7DEB844411DFB30A20BD7E6E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582320   (321137) от 29.11.2012
+
+Tombthroat - Eden Apocalypse (2012) [FLAC|Lossless]<Brutal Death Metal / Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_321137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manifestation 00:51
+02. Eden Apocalypse 03:18
+03. I, Supremacy 03:36
+04. Condemned At Procreation 02:52
+05. Breed Of Depravity 03:49
+06. Psychological Disharmonism 03:51
+07. A-Dominion 03:52
+08. Of The Goat And The Lamb 04:06
+09. Bleed For Me 04:29
+10. On The Gallows 03:52(   Читать дальше...   )Жанр: Brutal Death Metal / GrindcoreПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331695   (320878) от 17.10.2019
 
 In Mourning - Garden of Storms (2019) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Progressive Metal>
@@ -395,366 +755,6 @@ Vended - 1 EP, 1 Single (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Nu-Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2E78BFF7971B1288CC617100C051F1B8F9F2416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075117   (318824) от 23.11.2016
-
-Loudness - Tokuma Years (2012) Japanese Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hellrider 05:26
-02. Cyber Soul 05:30
-03. Crazy Samurai (Single Version) 05:18
-04. Live For The Moment 04:36(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685AF11923A54C1DA56CDC695FDDE543DDFC5863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075114   (318820) от 23.11.2016
-
-Loudness - Masters Of Loudness (1996) Japanese Edition 2CD Compilation [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Dust 04:45
-02. Dream Fantasy 04:34
-03. Speed (Live) 07:59
-04. Let It Go 04:13(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90698FD8BB77317E00945ED50E33253D16B1F967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075122   (318812) от 23.11.2016
-
-Loudness - King Of Pain (2010) Japanese Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Requiem 02:59
-02. The King Of Pain 05:30
-03. Power Of Death 04:21
-04. Death Machine 05:42(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BE3F9036603477B4B26E027D3A8F85C449503F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182062   (318792) от 09.11.2017
-
-Metallica - Master of Puppets (1986) Remastered, 2017 [FLAC|Lossless|tracks + .cue] <Heavy Metal,Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Battery
-02 - Master of Puppets
-03 - The Thing That Should Not Be
-04 - Welcome Home (Sanitarium)(   Читать дальше...   )Жанр: Heavy Metal,Speed MetalПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC19EF6B3F6C275591C03482E51BBE3DA44EA2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582581   (318771) от 11.10.2022
-
-Mad Max - Wings Of Time (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Hot To Handle
-02. Days Of Passion
-03. A Woman Like That
-04. Best Part Of Me(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A75F1AE384ADB3F16030034678BCDE79CFCCD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582670   (318619) от 11.10.2022
-
-Iron Maiden - Live …Santiago, Chile 1996 (2022) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318619.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Man on the Edge
-02. Wrathchild
-03. Heaven Can Wait(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40770C88D59E0F663126539660E1D23CB79B51EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632940   (318520) от 23.11.2016
-
-W.H.I.T.E (White) - Бий першим! (2007) [FLAC|lossless|image + .cue] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:11)
-02. Бий перший (03:29)
-03. Місто снів (Original) (03:27)
-04. Oz (04:26)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A76DC6435B22DAFDE4FB8683FB6B0F2D10F816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582178   (317815) от 30.11.2012
-
-Armored Saint -3 альбома (1985 - 1991) [WavPack|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_317815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reign Of Fire - (2003 Remaster) [03:57]
-02. Dropping Like Flies - (2003 Remaster) [04:39]
-03. Last Train Home - (2003 Remaster) [05:19]
-04. Tribal Dance - (2003 Remaster) [04:07]
-05. The Truth Always Hurts - (2003 Remaster) [04:20]
-06. Half Drawn Bridge - (2003 Remaster) [01:26]
-07. Another Day - (2003 Remaster) [05:32]
-08. Symbol Of Salvation - (2003 Remaster) [04:36]
-09. Hanging Judge - (2003 Remaster) [03:45]
-10. Warzone - (2003 Remaster) [03:38](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421581   (317764) от 05.11.2020
-
-On Thorns I Lay - Threnos (2020) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Song Of Sirens
-02. Uranio Deos
-03. A Cosmic Silence
-04. Erynies(   Читать дальше...   )Жанр: Death Metal, Doom Metal, Gothic MetalПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7774D25FE98FE227AC44D2ECF35258C834884429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421723   (317760) от 05.11.2020
-
-Trivium - In Waves (2011) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capsizing The Sea (1:30)
-02. In Waves (5:02)
-03. Inception Of The End (3:48)
-04. Dusk Dismantled (3:47)(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, MetalcoreПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF90B29A4DB8C55AF4B6CB18A38A0CE08CA79A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421495   (317750) от 05.11.2020
-
-Steel Prophet - The God Machine (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The God Machine
-02. Crucify
-03. Thrashed Relentlessly
-04. Dark Mask / Between Love and Hate(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93F87DAD765A628809E2D761414C4AAD1DF2C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582853   (317726) от 30.11.2012
-
-Nuclear Assault - Atomic Waste! Demos & Rehearsals (2012) [FLAC|Lossless]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_317726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live, Suffer, Die 1:12
-02. Betrayal 3:13
-03. Hang The Pope 0:44
-04. Radiation Sickness 2:46
-05. Demolition 4:05
-06. Lesbians 0:58
-07. Stranded In Hell 3:53
-08. Nightmares 4:27
-09. Cold Steel 3:14
-10. The Plague 5:17(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:11:37
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1335594   (284728) от 04.11.2019
+
+DREDDD - Pain Deluxe (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone Else (3:23)
+02. 1989 (3:04)
+03. Frog (5:34)
+04. Dark City (3:57)(   Читать дальше...   )Жанр: Electro, MinimalПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F432A6705E5459EE81C846F0C59690238E38F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335787   (284727) от 04.11.2019
+
+Sebastian Mullaert - A place called • Inkonst (2019) Kontra Musik [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderphalt (05:59)
+ 02. Attio (07:00)
+ 03. Sonder at Mountain Street (06:59)
+ 04. Embrace Space (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F6A3685A8B3E6A86544BB6D8E9BA90157BC211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335792   (284550) от 04.11.2019
+
+UHF - Flight To Anywhere EP (2019) Gladio Operations [FLAC|Lossless|Vinyl|tracks] <Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight To Anywhere (Scape One's Flight To Mars Mix) (07:12)
+ 02. Flight To Anywhere (05:45)
+ 03. Reality (06:21)
+ 04. Inner Fight (05:54)Жанр: ElectroПродолжительность: 00:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E828A55738FC508DA0DA65DCD88B68C3C214723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263848   (282891) от 22.11.2018
 
 VA - In The Mix 007 (Airwave Progressive Sessions) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -655,91 +742,6 @@ VA - Kitties Wanna Dance! Vol. 3 (2012) Suara [FLAC|Lossless|WEB-DL|tracks] <Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B373A8C9FC19FADDBE7C2429F99001470065160F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337613   (273265) от 11.11.2019
-
-VA - Soviett 1 Year (Compiled & Mixed by Ivan Starzev) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ksky - Paradizio (5:06)
-02. Various/Ivan Starzev - Magic (6:07)
-03. Anton Romezz - Nonpop (Ivan Starzev Remix) (7:44)
-04. DPKY - Hold On (4:28)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 02:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB91AFF0BD07B571E7933273257707F563548A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337617   (273264) от 11.11.2019
-
-VA - Get To Know: Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Face & Mark Brown - Needin' U (Dimitri From Paris) (6:25)
-02. Nile Rodgers - Do What You Wanna Do (The Reflex Greatest Dancer Mix) (5:07)
-03. Kindred Soul, Get To Know & Kayleigh Gibson - Hold On (Dr Packer Remix) (6:09)
-04. Sneaky Sound System - Can't Help The Way That I Feel (Casual Connection Remix) (5:19)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 05:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60450F6F466C9BBD5AB8B95B4B8C5D2C9622AC08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265714   (273105) от 29.11.2018
-
-Alfred Heinrichs - YOUR TEARS (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alfred Heinrichs - Your Tears In My Eyes (8:25)
-02. Alfred Heinrichs - Brise (8:25)Жанр: HouseПродолжительность: 00:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B57EF3C003271A873BCD26FD4187A1063602A97
 ```
 
 https://mybot314.ru/tekegram_catalog/

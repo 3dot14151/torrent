@@ -1,3 +1,32 @@
+###  Публикация: 1213930   (766580) от 19.03.2018
+
+VA - Latín Natural En La Disco (2018) [MP3|192-320 Kbps] <Trap Latino, Reggaeton, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pitbull Feat. Lil Jon - Locas (Lmpool Short Edit Intro Clean Leo Edit) 2:49
+02. Walshy Fire, Silva & Beatwalker Feat. Dj Blass - Dangerous 3:55
+03. Wisin Feat. Zion & Lennox - Prohibida (Lmpool Long Edit Intro Clean Leo Edit) 4:33
+04. Post Malone Feat. Nicky Jam & Ozuna - Rockstar (Lmpool Short Edit Latin Exclusive Remix Intro Dirty) 3:01(   Читать дальше...   )Жанр: Trap Latino, Reggaeton, OtherПродолжительность: 02:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AAA5D0BD8800204BD178EDFC2294D7154D3CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214037   (766548) от 19.03.2018
 
 VA - Kiss FM: Top 40 / Mарт (2018) [MP3|320 Kbps] <Pop, House, Dance>
@@ -713,35 +742,6 @@ VA - Громкие новинки Июля (2020) [MP3|320 Kbps] <Pop, Dance, O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83A343B4A57A0B8709A2852D81DC74F8C9A2A68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394580   (763627) от 05.07.2020
-
-VA - Rock & Chill (2020) [MP3|320 Kbps] <Rock, Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linkin Park - Leave Out All The Rest 3:29
-02. Stone Temple Pilots - Sunburst 6:29
-03. Red Hot Chili Peppers - Scar Tissue 3:36
-04. Nirvana - Dumb 2:32(   Читать дальше...   )Жанр: Rock, Pop, OtherПродолжительность: 04:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11A480B9E9DBBEF2309D13BA0159CDBA5AD7111
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 923899   (561043) от 02.08.2015
+
+Cedar Walton - Eastern Rebellion (1975) /2015, Solid Records/[FLAC|tracks+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bolivia [10:11]
+02. Naima [08:39]
+03. 5/4 Thing [07:55]
+04. Bittersweet [06:55](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2DDD0A92FBEE665E71FD598BA2779CA3542E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364932   (560958) от 18.07.2011
+
+Ketil Bjornstad - 21 albums (1990-2011) [FLAC/APE|Lossless] <Contemporary Jazz, Neoclassical, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кетил Бьорнстад (Ketil Bjørnstad) уже в течении 30 лет работает в импровизационной музыке. Получив классическое музыкальное образование (в Осло, Лондоне и Париже), Бьорнстад в 1969 году стал солистом Филармонического оркестра Осло. Однако, познакомившись с альбомом Майлса Дэвиса (Miles Davis) In A Silent Way, пианист обратил свои музыкальные устремления в сторону (   Читать дальше...   )Список альбомов:
+1990 - The Shadow
+1993 - Water Stories
+1995 - The Sea (with David Darling, Terje Rypdal, Jon Christensen)(   Читать дальше...   )Жанр: Contemporary Jazz, Neoclassical, PianoПродолжительность: 22:26:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235415   (560517) от 11.07.2018
+
+Hadley Caliman - Hadley Caliman (1971) 2014, Boplicity Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cigar Eddie [6:23]
+02. Comencio [7:17]
+03. Little One [4:46]
+04. Watercress [3:49](   Читать дальше...   )Жанр: Post-Bop, Soul JazzПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247A8472E687266C605FDD9C30BD23A8E614F6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235408   (560456) от 11.07.2018
 
 Keith Jarrett, Gary Peacock, Jack DeJohnette - After The Fall (1998) 2CD, 2018, ECM Records [FLAC|Lossless|image + .cue] <Contemporary Jazz, Post Bop>
@@ -658,92 +745,6 @@ Kenny G - Breathless (1992) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F47A2AC0BFF59A9558428257F935AD3BE9177F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045639   (558165) от 24.08.2016
-
-Franco Cerri - Chitarra (1964) 2008, DIW Records[FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chit-Car [02:57]
- 02.Blues For Jo [03:36]
- 03.Polka Dots And Moonbeams [02:55]
- 04.Bassezza [04:57](   Читать дальше...   )Жанр: BopПродолжительность: 00:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13FB9B3B56C6D61CD60BC1031737FD28A1D6468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045684   (558163) от 24.08.2016
-
-Peter Horvath - Absolute Reality (2016) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolute Reality [05:15]
-02. Carla [06:57]
-03. Escape from Oakland [06:06]
-04. Nassau Nights [05:18](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BAEC81633DCBA71CD91A86267943BB759067B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045636   (558162) от 24.08.2016
-
-Kohsuke Mine - Out Of Chaos (1974) Remaster, 2015, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Recollection [12:09]
- 02.Little Abi [09:39]
- 03.Cross Wind [17:54]Жанр: Post-BopПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A37AE4DE920377613EC35C7B7A6AC18EA9F951
 ```
 
 https://mybot314.ru/tekegram_catalog/

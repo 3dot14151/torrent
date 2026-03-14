@@ -1,3 +1,32 @@
+###  Публикация: 1397979   (736956) от 23.07.2020
+
+VA - Дискотека 2020 Dance Club Vol.202 от NNNB (2020) [MP3|320 Kbps] <Dance, House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka)
+01. Techno Project, Geny Tur - Love to See (4:00)
+02. Edward Maya & Violet Light - The Show Must Go On (3:43)
+03. DJ Goja - I Never Let You Go (3:01)(   Читать дальше...   )Жанр: Dance, House, Trance, Pop, ChillПродолжительность: 16:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85EF43DA40C42042C145C4697F98C529FB228C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527640   (736409) от 29.01.2022
 
 VA - Music News vol.162 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -722,35 +751,6 @@ VA - New Music Releases Week 7 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:829D80187E5438D694855A5601A06777AFC60A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127801   (730948) от 22.04.2017
-
-VA - Folk Collection (2017) [MP3|320 Kbps] <Folk Rock, Country, World>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vince Gill - Take Me Down (feat. Little Big Town)  (05:02) 
-02. Alexandra Keller - Drawin' the Line  (03:05) 
-03. Blackmore's Night - The Moon is Shining  (06:19) 
-04. Blackmore's Night - The Spinner's Tale  (03:30) (   Читать дальше...   )Жанр: Folk Rock, Country, WorldПродолжительность: 02:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2229BA7753BA71B8194FF79ACB2B92AAB5C3BD60
 ```
 
 https://mybot314.ru/tekegram_catalog/

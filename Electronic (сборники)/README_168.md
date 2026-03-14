@@ -1,3 +1,32 @@
+###  Публикация: 956815   (327626) от 17.11.2015
+
+VA - Club Dance Ambience vol.45 (2015) [MP3|320 кб/с]<House, Progressive House, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5sta Family - Aptly (DJ Favorite & DJ Lykov Remix)
+02. 99 Souls feat. Destiny\'s Child & Brandy - The Girl Is Mine (Original Mix)
+03. ARIZONA - Where I Wanna Be
+04. Adele - Hello (eSQUIRE Remix)(   Читать дальше...   )Жанр: House, Progressive House, TranceПродолжительность: 08:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7DBCE3463B29AE154A8DF9B0DD87DDEA9A1243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957495   (327621) от 17.11.2015
 
 VA - Weird & Naked (Essential Classics) (2015) [MP3|320 кб/с]<Chillout, Lounge>
@@ -722,35 +751,6 @@ VA - Lounge & Vocal Jazz (2015) [MP3|320 кб/с]<Lounge, Chillout, Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AAAFCAAEAD2F40B3CDFD13B555AA57C12EA5C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958679   (321745) от 22.11.2015
-
-VA - Drum And Bass Evolution (2015) [MP3|320 кб/с]<Drum And Bass, DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321745.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Raxus - Warlock
-002. Baro - Disciple
-003. Rusty Mustard - Wavefunction (Kozone Remix)
-004. We Are Human - Destruct(   Читать дальше...   )Жанр: Drum And Bass, DubStepПродолжительность: 08:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DEA1C8C54D27178DA7AF865FB73D1E6F2C5AFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

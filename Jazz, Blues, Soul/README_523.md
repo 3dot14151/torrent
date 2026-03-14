@@ -1,3 +1,177 @@
+###  Публикация: 1743131   (105435) от 15.08.2024
+
+Elephant Gerald UK - Outcasts And Castaways (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painkiller (4:11)
+02. Sweet Wine (5:42)
+03. On A Quiet Afternoon (7:35)
+04. Manana Man (3:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13B0563100871E1FDCBE191D646F8CF4C19CA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743129   (105434) от 15.08.2024
+
+Early Fox - Free Bird (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Mistery Girl (4:36)
+02. I'm Walking (2:44)
+03. A Change Has Gonna Come (3:53)
+04. Prisoner (4:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C312BDF43D576E57023DD959F6549744837EBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743142   (105432) от 15.08.2024
+
+Mark Atkinson - Three Stations East (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Little Girl (3:10)
+02. Crazy Me (3:54)
+03. It's Only A Girl (4:26)
+04. Three Stations East (3:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3159F199EE8C32F36FF9D60B53AB40699DC76DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743124   (105431) от 15.08.2024
+
+Chris Gibbons - Blues On The Road (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dustbowl (4:37)
+02. Blues On The Road (4:03)
+03. Close Your Eyes (4:28)
+04. Steamy Angels (5:20)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3D2AD3679D2131B2EFA62AE1C68ABFF10880A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743128   (105430) от 15.08.2024
+
+Doug Duffey and Badd - Ain't Goin' Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whirlpool (5:29)
+02. You Got What It Takes (5:06)
+03. The Wishing Game (6:09)
+04. Rock It All Night (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546DF65A4C587F80F1CE44A27CBAF9DFCC0563DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743145   (105427) от 15.08.2024
+
+Sarah Wright - Drive Outta Here (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heading Downhill (2:53)
+02. Devil in the Bottle (3:30)
+03. Oh Bobby Gene (3:31)
+04. Coffee Drinking Blues (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B36273EF202E6BA7D48FD4E18C181B7E81AD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743137   (105426) от 15.08.2024
 
 Kaliopi & The Blues Messengers - The Devil's Voodoo Curse (Festival Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Conte Candoli - Powerhouse Trumpet (1955) 1999, Bethlehem [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67A85C5D52E0EDA062E2BDE90C554E91639C58B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746051   (104970) от 29.08.2024
-
-Kenny Drew & Hank Jones Great Jazz Trio - New York Stories (1990) Alfa Jazz [WavPack|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby Of Birdland [6:37]
-02. Moon River [6:41]
-03. New York Bossa [5:38]
-04. Washington Square [8:03](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C8FA135FDF7C2B5E82BD314AD52B1431C14EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746317   (104964) от 30.08.2024
-
-V.A. - Italian Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zerosospiro - Conversazione
-02. Papik, Frankie Lovecchio, Stefy Gamboni - Questione Di Feeling
-03. Papik, Danny Losito - Pregherò
-04. Soulstance, Melania - Je Sto Vicino A te(   Читать дальше...   )Жанр: Nu Jazz, Pop JazzПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93A03BC697B82C349172321BE6A16C78CFA4F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746242   (104959) от 30.08.2024
-
-The Deadbeat Cousins - Get By (With Me) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get By (Good Enough) (3:23)
-02. Slow Down (No Need to Worry) (4:02)
-03. Deal With the Devil (You'll Get Yours) (2:51)
-04. Don't Mind No Distance (Closer to Me) (3:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE51D5DD962554CF17FC81A8200482E6CDFD3C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746233   (104955) от 30.08.2024
-
-Duke Robillard - Roll With Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Coat Man (3:40)
-02. Just Kiss Me (4:48)
-03. Are You Going My Way (4:07)
-04. I Know You Love Me (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9E66FBC598933974051B01867988CF2AE54C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746229   (104948) от 30.08.2024
-
-Antonio Vergara - The Fury (2024) [APE|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Lucky Mojo (3:32)
-02. Delta Shine (4:26)
-03. Seven Coins (2:41)
-04. The Fury's Blues (3:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4345196349AFEF8C3EBE300F226EEA1B29E789A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746234   (104946) от 30.08.2024
-
-Overwound - Attitudes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Road (3:27)
-02. Come over Here (3:11)
-03. Every Lie (3:39)
-04. Soul Rhonda (4:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DF426B6CE5A2327F0F426FBB2B3BE2529CFE87
 ```
 
 https://mybot314.ru/tekegram_catalog/

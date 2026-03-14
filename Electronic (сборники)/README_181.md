@@ -1,3 +1,32 @@
+###  Публикация: 1337480   (273688) от 11.11.2019
+
+VA - Chill Space Electronic (2019) [MP3|320 Kbps] <Chillout, Ambient, Lo-Fi, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273688.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Conjoint - Four Nine
+002. Breex - Mild Smoke (Original Mix)
+003. Suduaya - Mirage On The Desert Of Fire
+004. Korus - Random Lights (Original Mix)(   Читать дальше...   )Жанр: Chillout, Ambient, Lo-Fi, ElectronicПродолжительность: 10:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68166C82C92CF7AB1007ABD01630FDAAB7C6E53C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188779   (273678) от 03.12.2017
 
 VA - Flows Techno Minimal (2017) [MP3|320 Kbps] <Minimal, Techno, Club>
@@ -713,35 +742,6 @@ VA - Heavenly Tracks: Greatest Electro House (2019) [MP3|320 Kbps] <Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C6AC82F78358867C532629490B6F958BEA5299E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338776   (268200) от 17.11.2019
-
-VA - Record Super Chart 613 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiosoulz - Dancefloor 3:13
-02. Tones And I - Dance Monkey (RMX) 4:34
-03. SAINt JHN - Roses (Imanbek Remix) 3:58
-04. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7153884A120016EADA557148C383B7AC84CE43
 ```
 
 https://mybot314.ru/tekegram_catalog/

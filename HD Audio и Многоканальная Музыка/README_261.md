@@ -1,3 +1,145 @@
+###  Публикация: 1817770   (3113) от 12.09.2025
+
+Crematory - Act Seven (1999) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shining(1:59)
+02. I Never Die(5:53)
+03. Moonlight(5:06)
+04. Fly(5:51)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FEAE3961FA1D19E6ACD08129A7984472D36E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817606   (3106) от 12.09.2025
+
+Devolver - Non Compos Mentis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deathtouch [00:03:55]
+02. New Blood [00:03:14]
+03. Jewels of the Maw [00:03:30]
+04. Wraiths [00:03:20](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9FA648F002599EDAC9D69BE4635E9136544C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817873   (2964) от 13.09.2025
+
+Gorillaz - The Happy Dictator (feat. Sparks) (2025) Single [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie, Trip-Hop, Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Happy Dictator (feat. Sparks) [00:04:44]Жанр: Indie, Trip-Hop, SynthpopПродолжительность: 00:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89564048FF5DD8A4BC49582C9B592FA432097EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817884   (2931) от 13.09.2025
+
+Papik - Cocktail Sanremo, Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come si cambia (feat. Savio Vurchio)
+02. Cara (feat. Matteo Brancaleoni)
+03. Io che non vivo (feat. David Florio)
+04. Più Sole (feat. Laura Lanzillo, Alan Scaffardi)(   Читать дальше...   )Жанр: Pop Jazz, PopПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D7555BFE971EED2065C1713691DC184540050F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817886   (2918) от 13.09.2025
+
+Stormbreaker - Enlightning (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unleash the Power [00:03:30]
+02. Femme Fatale [00:03:35]
+03. Sandman [00:03:13]
+04. The Story Never Told [00:03:53](   Читать дальше...   )Жанр: Modern Metal, Power MetalПродолжительность: 00:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0A16894A52BE3D1C48D2760A866672B7BD596B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817871   (2913) от 13.09.2025
 
 Demon Hunter - There Was A Light Here (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore, Alternative Metal>
@@ -599,151 +741,6 @@ Circus of Rock - Hellfire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7795EF56CCDDD1FD85BD329FB2C831B0CED1400F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818393   (2460) от 16.09.2025
-
-Лабов'sky Jam - Увидел солнце (Часть 1). Трибьют ГрОб (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кого-то ещё [00:02:00]
-02. И снова темно [00:02:00]
-03. Он увидел солнце [00:02:41]
-04. Вселенская большая любовь [00:04:04](   Читать дальше...   )Жанр: Punk, RockПродолжительность: 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56227A46DE4800BBD93C0882596E110076A2EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818427   (2455) от 16.09.2025
-
-Joe Bonamassa - B.B.King's Blues Summit 100, Vol. I (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Why I Sing The Blues (6:44)
-02.  To Know You Is To Love You (5:31)
-03.  There Must Be A Better World Somewhere (5:44)
-04.  Let The Good Times Roll (4:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E98CB5C86A5208EC625A5F1F5D090ADE924D23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818348   (2451) от 16.09.2025
-
-Dagoba - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dagoba — французская метал-группа, основанная в 1997 году в Марселе.2001 - Release the Fury (EP)
-2003 - Dagoba
-2006 - What Hell Is About
-2008 - Face the Colossus(   Читать дальше...   )Жанр: Groove/Industrial MetalПродолжительность: 07:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23FB35512F71E2FAE57E257994D48E9B14E21C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818611   (2322) от 17.09.2025
-
-Igorrr - Amen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Avantgarde Metal, Breakcore, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daemoni (4:09)
-02. Headbutt (3:44)
-03. Limbo (4:41)
-04. Blastbeat Falafel (3:15)(   Читать дальше...   )Жанр: Avantgarde Metal, Breakcore, Electronic, Experimental, IDMПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01144DC2CD0445F9FF9D64285486C3DDDF060BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818602   (2303) от 17.09.2025
-
-Year Of The Goat - Trivia Goddess (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard-Rock, Psychedelic-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Power of Eve [00:06:48]
-02. Trivia Goddess [00:04:28]
-03. Kiss of a Serpent [00:05:39]
-04. Mét Agwe [00:08:00](   Читать дальше...   )Жанр: Hard-Rock, Psychedelic-RockПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE94C3CBE0B0368283F24E8F908FC83EDC42E752
 ```
 
 https://mybot314.ru/tekegram_catalog/

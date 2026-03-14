@@ -1,3 +1,91 @@
+###  Публикация: 1191855   (263914) от 15.12.2017
+
+George Shearing & Brian Torff - Lullaby of Birdland (1979, 1980) 2CD, 2000, Concord Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263914.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Blues Alley Jazz:
+01. One for the Woofer [08:32]
+02. Autumn in New York [05:03]
+03. The Masquerade Is Over [06:28](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 01:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70DB6A5CC5591DF44473A1004CB0114D60E88E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191856   (263901) от 15.12.2017
+
+Dave Brubeck Quartet - At Wilshire Ebell (1953) 2006, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Never Smile Again [07:55]
+02. Let's Fall in Love [04:37]
+03. Stardust [06:33]
+04. All the Things You Are [06:54](   Читать дальше...   )Жанр: CoolПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AC46FD91BF829099380C47D4F2BAA0F32709E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603566   (263789) от 23.11.2019
+
+Brian Culbertson - 15 Альбомов (1995-2018) [FLAC|Lossless|image+ .cue, tracks+ .cue]<Contemporary Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brian Culbertson — американский джазовый пианист, мультиинструменталист, композитор, продюсер и аранжировщик.
+В 8-летнем возрасте начал обучаться игре на фортепиано, годом позже освоил ударные инструменты, еще через год — тромбон, бас-гитару и в юношеском возрасте уже начал сочинять свои первые произведения.1995 - Modern Life
+1996 - After Hours
+1997 - Secrets
+1999 - Somethin' Bout LoveЖанр: Contemporary Jazz, Smooth JazzПродолжительность: 13:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCC91114C66BC1B5D8589A25EDE0B8D60E74677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340562   (263629) от 24.11.2019
 
 Bud Powell Trio - Bouncing With Bud 1962 (1997) Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
@@ -658,93 +746,6 @@ Charlie Haden & Antonio Forcione - Heartplay (2006) Naim Label [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87F058C93981AF01F0FA9C9DA40BF9F9B8CE5E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192658   (262755) от 18.12.2017
-
-Konstantin Klashtorni - Kool & Klean (Volume VII) (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Horizon (4:58)
-02. A Water's Cascade (5:11)
-03. Jazz Sunset (4:41)
-04. Echoes of You (3:58)(   Читать дальше...   )Жанр: Smooth Jazz, ChilloutПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F3A8EC3A880B978C44BC605B4B45DFA04C9FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341233   (262636) от 27.11.2019
-
-Milt Jackson - Four Classic Albums Plus 1954 - 1957 (2009) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262636.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lover [7:52]
-02. Can't Help Lovin' Dat Man [4:41]
-03. The Lady Is A Tramp [7:23](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, CoolПродолжительность: 02:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C86C4AFDA645FC5DCA6E114921C0C2EBDD7FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192998   (262536) от 19.12.2017
-
-Ralph Moore - Furthermore (1990) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hopscotch [08:00]
-02. Monk's Dream [08:01]
-03. 310 Blues [08:09]
-04. Phoebe's Samba [05:57](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDA0F6D156620AE893444A051D16D549A0D4746
 ```
 
 https://mybot314.ru/tekegram_catalog/

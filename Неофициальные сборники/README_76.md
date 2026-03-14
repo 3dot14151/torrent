@@ -1,3 +1,89 @@
+###  Публикация: 1093252   (935338) от 14.01.2017
+
+VA - German Top 100 Single Charts 13.01.2017  [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935338.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You
+002. Ed Sheeran - Castle on the Hill
+003. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie)
+004. Alan Walker - Alone(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F5C531B6455FA8574852F6BE88C324B02602E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093243   (935122) от 14.01.2017
+
+VA - Unknown 80's (part II) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Vega - On The Run - 1985
+02. KTP (Kissing The Pink) - Identity Card - 1986
+03. Voice Farm - Reconstruction - 1987
+04. Models - These Blues - 1985(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB40C1324B386C95EFE266E691B2A57EF5B32A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628854   (935104) от 11.03.2013
+
+VA - The Official UK Top 40 Singles Chart (10-03-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую очередной UK Singles Chart — официальный хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Составляется с 1952 года как аналог американского Billboard.
+Обратите внимание на песню под № 30 (она новая в этом топе) -  Stereophonics - Indian Summer (по нашему - Бабье лето). Вещица очень не затейливая, да и слова простенькие, (   Читать дальше...   )Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 02:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E2F86FD2A4C72CC4F6932D3D513C33957DA13C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364582   (934473) от 04.03.2020
 
 VA - Rock Archive (2020) [MP3|320 Kbps] <Rock>
@@ -658,93 +744,6 @@ VA - Музыкальный плен. Выпуск № 7 (2017) [MP3|256 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FEF8456E667123D24C955940AC2FBFC25E19B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093962   (932497) от 16.01.2017
-
-VA - Музыкальное потрясение зимы от Русского радио Выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932497.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evidelle - Ну Почему 3:40
-002. Андрей Ковалев - Ты Моя Любовь Сумасшедшая 3:02
-003. Макс Барских - Пьяная Луна 3:20
-004. Talulla & Erkin Smile - Мраморная Драма 2:46(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAD4413DA4A41C2BFFCB06615CB71D3198E3978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093988   (932496) от 16.01.2017
-
-VA - Зимняя зажигательная дискотека. Русский выпуск (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932496.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тимир Ибрагимов - Бархатный Вечер 4:17
-002. Арина Войт - Мама Я В Раю 3:12
-003. Mainstream One - Сойти От Тебя С Ума 3:19
-004. Alex 67 - Сумасшедшая 3:18(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:045D57D1E563EB2DB2ADA597EB85BA4CE71F2317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093974   (932495) от 16.01.2017
-
-VA - Снежный хит-парад. Русские хиты Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932495.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vlad Bostan Feat. Taya - Оригами 3:42
-002. Анастасия Ковалева - Белый Песок 3:25
-003. Наргиз - Я Буду Всегда С Тобой 4:24
-004. Харламыч - Гололед 4:04(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90AB9733BB3EAF9CA2DEA248A36D13F8C5EC613
 ```
 
 https://mybot314.ru/tekegram_catalog/

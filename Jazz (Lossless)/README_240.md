@@ -1,3 +1,90 @@
+###  Публикация: 1289528   (244639) от 16.03.2019
+
+SFJAZZ Collective - Live 2005 2nd Annual Concert Tour (2005) 2CD, SFJazz Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244639.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Moment's Notice [5:53]
+02. Naima [5:47]
+03. Africa [14:04](   Читать дальше...   )Жанр: Post-BopПродолжительность: 02:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27EEDF6C6CD006305201E729033106BE7C0D070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609893   (244638) от 05.02.2023
+
+Donald Byrd - Live: Cookin' With Blue Note At Montreux (1973) 2022, Blue Note [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Byrd [8:11]
+02. You've Got It Bad Girl [7:43]
+03. The East [9:19]
+04. Introductions [2:58](   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C18D703ACB94752ECDDBE8A42DFE59C6E62A932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289301   (244621) от 16.03.2019
+
+Peter Erskine - Dr. Um (2016) Fuzzy Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Next [0:28]
+02. Lost Page [4:47]
+03. Hawaii Bathing Suit [5:46]
+04. Bourges Buenos Aires [6:33](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9602C1B1C3BC1101A96B79C1B4C41138B455C239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069826   (244618) от 05.11.2016
 
 Mal Waldron - Up Popped the Devil (1973) 2003, Enja Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -658,93 +745,6 @@ Louie Bellson And His Big Band - Live From New York (1994) Telarc [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A6EED7920B1806231042B0C4BDF340E612C566F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072099   (244300) от 12.11.2016
-
-Nancy Wilson - Hollywood-My Way (1963) 2006, Capitol Jazz[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.My Shining Hour [01:59]
- 02.The Days Of Wine And Roses [03:27]
- 03.Moon River [02:08]
- 04.Secret Love [03:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721B60357C3968AA87968E5671AF20758C25DE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072655   (244287) от 13.11.2016
-
-Dj Para - Fallen On Def Ears (2009) [FLAC|Lossless|tracks + .cue] <Funk, Nu Jazz, Hip Hop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Recue Me (3:48)
-02. It's The Hornet (3:34)
-03. D Blues In C (0:59)
-04. Save Your Breath (3:56)(   Читать дальше...   )Жанр: Funk, Nu Jazz, Hip HopПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E469BA9BC5F4FFD2A383DC780190ADE16F7552B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072646   (244279) от 13.11.2016
-
-Francisco "Paquito" Hechavarria - Frankly (2009) [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Cuban Traditions>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change Partners (Irving Berlin)
-02. Sweet Lorraine (Cliff Burwell-Mitchell Parish)
-03. Oh You Crazy Moon (Johnny Burke-Jimmy Van Heusen)
-04. I've Got The World On A String (Harold Arlen-Ted Koehler)(   Читать дальше...   )Жанр: World Fusion, Latin Jazz, Cuban TraditionsПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00844B20564BC6D940F770F69909D7556DF14B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

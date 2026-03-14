@@ -1,3 +1,177 @@
+###  Публикация: 1692907   (122004) от 19.01.2024
+
+Wonderful Bluffer - Torn By Reflection (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive / Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battle of Blair Mountain (4:16)
+02. Pink Dollar Bills (5:20)
+03. Miscommunication (5:27)
+04. Love Bomb (4:15)(   Читать дальше...   )Жанр: Progressive / Blues RockПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C21018B8650A6514FC15DB6CA6C61BCD4045286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692900   (122002) от 19.01.2024
+
+Richard Santos - Playing the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boom Boom (2:53)
+02. Born Under a Bad Sign (3:49)
+03. Good Morning Little School Girl (5:17)
+04. Hoochie Coochie Man (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09547E3D26C317848FC6D71D33FB5786736E846D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692883   (122000) от 19.01.2024
+
+Ruth Price - Sings With Johnny Smith (1956) 2002, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Nobody's Baby [1:59]
+02. It Never Entered My Mind [3:56]
+03. Wonderful Guy [2:13]
+04. Until the Real Thing Comes Along [3:40](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF1FC663C12192A474611A63A76F74E25F0F671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692902   (121999) от 19.01.2024
+
+The Crowsroads - Spaceship (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If It Wasn't (4:46)
+02. Diy Reality (4:06)
+03. Theseus & The Moon (3:33)
+04. Spaceship (4:57)(   Читать дальше...   )Жанр: Folk, Blues, RockПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C770EEE4299D455D960C9CB5AFEDA2FEB663A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693045   (121993) от 19.01.2024
+
+Sonny Stitt - My Mother's Eyes (1963) 2011, EMI Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Special [3:41]
+02. My Mother's Eye [5:27]
+03. Stitt in Time [4:14]
+04. Blue Skies [4:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26361D6AB4F9D3B82B35C5FC920CE1C9272D7A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693048   (121990) от 19.01.2024
+
+Ruby Braff - And His New England Songhounds, Vol. 2 (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indian Summer [5:51]
+02. Thousand Islands [5:13]
+03. What's New [7:28]
+04. Heartaches [2:25](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D85528FCA7C53C248D88A3E94AC04C1EA9EDD8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692899   (121985) от 19.01.2024
 
 Michael Nadolny - Heart Beast (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Toshiyuki Miyama & New Herd - Misty (1982) 1985, SMS Records [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F652819C53A351126E29153559DAA225E6776A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694335   (121087) от 24.01.2024
-
-Kenny Hughes - Born & Raised (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Over Me (5:06)
-02. She Knows (3:34)
-03. 19:20 (3:33)
-04. Destiny (3:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4738ACDA4DA67CFA5EA82A6061416B32A5707E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694204   (121086) от 24.01.2024
-
-Cyrus Chestnut - My Father's Hands (2022) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nippon Soul Connection [7:29]
-02. Thinking About You [5:22]
-03. Cubano Chant [4:09]
-04. Baubles, Bangles and Beads [4:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234FFCAD5E7F744929BF8651075D60079E3FCA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694331   (120977) от 25.01.2024
-
-Eva Carboni - In the Name of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Wind Blows (3:33)
-02. Stony Ground (3:10)
-03. In the Name of the Blues (3:47)
-04. That Devil Man (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7936D98FB10E5BF7D9DB8386A694D0D89B265639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694431   (120962) от 25.01.2024
-
-Madcat's Roughriders - Madcat's Roughriders (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roughrider's Boogie (3:08)
-02. Moonshine (3:35)
-03. Dingelingdong (3:57)
-04. My Time Has Come (6:05)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7246400520CB4BFB6CB578E6ECDC4D4ACEC6FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694341   (120959) от 25.01.2024
-
-The liberators - A Ride Out of Town (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Ride Out of Town (2:48)
-02. Can't Run, Can't Stay (3:39)
-03. Come On (3:53)
-04. 90 Minutes (Ain't That a Shame) (5:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0395D8A469951C382610E89B8CEDF1F13879AA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694337   (120958) от 25.01.2024
-
-Lone Star Mojo - A Shot of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Blues Travels Fast (4:58)
-02. Desolation Blues (7:16)
-03. Hey Hey (4:01)
-04. Thoughts of You (7:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFEAAF507EB33755AE0DB7C2E111B1C1201DB3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1096148   (919382) от 24.01.2017
+
+Lou Gazzara - Musical Love Affair (2017) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Live Till I Die [01:54]
+02. Birth Of The Blues [03:17]
+03. If I Can Dream [02:48]
+04. At Last [03:05](   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A363385AFC5FA867E558BBF1E1DA6C0844B5CE0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096519   (919365) от 24.01.2017
+
+VA - Christmas Swing (2014) [FLAC|Lossless|tracks + .cue] <Jazz, Retro>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bing Crosby - 01 It’s Beginning to Look a Lot Like Christmas (2:48)
+02. Nat King Cole - 02 Mrs. Santa Claus (2:14)
+03. Frank Sinatra - 03 The Christmas Song (3:30)
+04. Marlene Dietrich - 04 Candles Glowing (2:34)(   Читать дальше...   )Жанр: Jazz, RetroПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8229CA5428624E0BCFF2CB8E528C5CD9242E9096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096373   (919356) от 24.01.2017
 
 City Streets - Temptation (2010) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock>
@@ -694,64 +752,6 @@ VA - Jazzy Cool & Sexy, Vol. 1 (Smooth Jazz & Lounge Grooves) (2017) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DADD93E1774918C6BC68EB3F165D8D2160C5F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490599   (917488) от 21.08.2021
-
-V.A. - Smooth Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundscape UK - Freeway
-02. Sambada - Kabanos
-03. Yada Yada - Mystic Vibe
-04. Chris Bangs - Driving Home(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A262E9F8FDB51B328A5B36AE2D20DCDB5402BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367310   (917423) от 15.03.2020
-
-Arturo Sandoval, Chick Corea, Poncho Sanchez, Pete Escovedo - Jam Miami: A Celebration Of Latin Jazz (2000) Concord Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guachi Guaro (Soul Sauce) [6:37]
-02. A Night In Tunisia [7:08]
-03. Medley Para Tito [8:29]
-04. Ican [7:07](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban Jazz, Post-BopПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5882B4C6D55C5EA14334ECF750FAA20A663075C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

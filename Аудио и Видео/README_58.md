@@ -1,3 +1,32 @@
+###  Публикация: 1505388   (804630) от 27.10.2021
+
+VA - Soulvibes: Urban Chillout Music (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beamy - Twisted Soul (M-Sol Project Laidback Mix) (4:51)
+02. Patiotic - Acoustic Brain (1:59)
+03. Digby Jones - Hello (1:46)
+04. Living Room - Surfing on a Karma Wave (Worldtraveller's Karma Retreat) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D78605FAE56D10D14C00F698ECDE5F4254180A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505399   (804625) от 27.10.2021
 
 VA - Nizza Lounge, Vol. 1 (2017) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
@@ -680,32 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B73443ABC722BF7C012F0F35D3B9AEAFC895F16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198987   (802821) от 14.01.2018
-
-Борг/Макинрой / Borg McEnroe (2017) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две звезды, один судьбоносный матч и миллионы зрителей. Невозмутимый Борг против вспыльчивого Макинроя. Упорство против упрямства. Борьба двух противоположных характеров, движимых, однако, одной целью — быть лучшим!Производство: Швеция, Дания, ФинляндияЖанр: Драма, биография, спортРежиссер: Янус МецАктеры: Сверрир Гуднасон, Шайа ЛаБаф, Стеллан Скарсгард, Тува Новотны, Лео Борг, Маркус Моссберг, Джексон Гэнн, Скотт Артур, Йен Блэкман, Роберт ЭммсПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069FF1A0D054E8E7FF9B952A950188CB94BB943D
 ```
 
 https://mybot314.ru/tekegram_catalog/

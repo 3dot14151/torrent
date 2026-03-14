@@ -1,3 +1,348 @@
+###  Публикация: 1431963   (165108) от 16.12.2020
+
+Cristiano Filippini's FLAMES OF HEAVEN - The Force Within (2020) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Force Within (1:44)
+02. We Fight For Eternity (6:50)
+03. Far Away (5:44)
+04. Against The Hellfire (6:08)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BBEB1B28A53B9CC09EBDC366B8DDDEE95F1FC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100960   (165083) от 12.12.2021
+
+Coronatus - 10 Albums (2007-2021) [FLAC, WavPack|Lossless|image + .cue, tracks] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coronatus - немецкая симфо-готик-метал-группа, сформированная в 1999 году. Группа является одним из последователей стиля симфонического готик-металла, ориентируясь в своем творчестве на таких исполнителей, как Nightwish и Epica. Тексты песен в основном на английском и немецком языках. Темы песен строго следуют выбранному стилю - это природа, любовь, судьба, жизнь, (   Читать дальше...   )2007 - Lux Noctis
+2008 - Porta Obscura (Limited Edition)
+2009 - Fabula Magna (Limited Edition)
+2011 - Terra Incognita (Limited Edition)Жанр: Symphonic Gothic MetalПродолжительность: 10:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4951358D7E77FAD18C7DAD4C0E66810B721577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597650   (165071) от 16.12.2022
+
+Dimmu Borgir - Alive In Torment (2001) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Tormentor Of Christian Souls	5:25
+02		The Blazing Monoliths Of Defiance	4:32
+03		The Insight And The Catharsis	7:10
+04		Puritania	3:07(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F6BB991053D8BB927944C9782BA850AA240019B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516507   (165038) от 12.12.2021
+
+Volbeat - Servant Of The Mind (2021) 2xCD, Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165038.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Servant Of The Mind:
+01. Temple Of Ekur
+02. Wait A Minute My Girl
+03. The Sacred Stones(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2881F1CD14FEE51FC4EB5F91A449A7767E5F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673605   (164650) от 02.11.2023
+
+Aeonian Sorrow - Forever Misery (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Misery. (08:51)Жанр: Gothic, Doom, Death MetalПродолжительность: 00:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8835EC5B4590CF7D745A9623C7831CB24239E874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673593   (164646) от 02.11.2023
+
+Edenbridge - Aphelion (2003) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Undiscovered Land
+02. Skyward
+03. The Final Curtain
+04. Perennial Dreams(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D24EA03C190F42C1EC62FFC8B52A49C6BCBCEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673592   (164627) от 02.11.2023
+
+Edenbridge - Arcana (2001) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascending
+02. Starlight Reverie
+03. The Palace
+04. A Moment Of Time(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A7B122ED00C9821F4EE2A51521CFAE97221322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673591   (164622) от 02.11.2023
+
+Edenbridge - ...Sunrise In Eden... (2000) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheyenne Spirit
+02. Sunrise In Eden
+03. Forever Shine On
+04. Holy Fire(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCF9C50442BE4782661ADE193B49BF0ED279BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346085   (164606) от 18.12.2019
+
+Netra - Sørbyen (2011) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, Post Rock, Doom Jazz, Trip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dance With The Asphalt (5:32)
+02. Crawling (4:24)
+03. Sørbyen (4:28)
+04. A Kill For A Hug (5:58)(   Читать дальше...   )Производство: Hypnotic Dirge Records – HDR-025Жанр: Depressive Black Metal, Post Rock, Doom Jazz, Trip HopПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292C495F11F604748D4D9986D03C5966A0CF5B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673595   (164602) от 02.11.2023
+
+Edenbridge - Shine (2004) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine
+02. Move Along Home
+03. Centennial Legend
+04. Wild Chase(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B8635DE8872F05001BCBBE831BA890F4BE84D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346075   (164601) от 18.12.2019
+
+Netra - Mélancolie Urbaine (2010) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, Post Rock, Doom Jazz, Trip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Lights (7:48)
+02. La Page (5:08)
+03. Outside...Alone (9:20)
+04. Through The Fear (7:57)(   Читать дальше...   )Производство: Hypnotic Dirge Records – HDR - 017Жанр: Depressive Black Metal, Post Rock, Doom Jazz, Trip HopПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781AFC7D233C7CDBBFA8B7CB256C8061E3851145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346079   (164597) от 18.12.2019
+
+Netra - Ingrats (2017) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, Post Rock, Doom Jazz, Trip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme A Break (1:20)
+02. Everything's Fine (5:23)
+03. Underneath My Words, The Ruins Of Yours (3:38)
+04. Live With It (4:32)(   Читать дальше...   )Производство: Hypnotic Dirge Records – HDR-050Жанр: Depressive Black Metal, Post Rock, Doom Jazz, Trip HopПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2012BF5C2199B34EF8A097FC046A775393E0C8D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673598   (164592) от 02.11.2023
 
 Edenbridge - MyEarthDream (2008) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
@@ -397,354 +742,6 @@ Iron Savior - Skycrest (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:870FC69A5A9226A0FCE269F7B6DC15F41B296CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597954   (164295) от 17.12.2022
-
-Damiano's Elysium - The Land Beyond Dreams Part 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Fading Starlight
-02. Sea Of Memories
-03. A Glimmer Of Hope
-04. Losing His Humanity(   Читать дальше...   )Жанр: Symphonic, Power MetalПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C17EA888A800989B3AB9528CA15D1BDF1DA46A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597898   (163991) от 17.12.2022
-
-Halestorm - Back From the Dead (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back From The Dead [00:03:30]
-02. Wicked Ways [00:03:26]
-03. Strange Girl [00:03:42]
-04. Brightside [00:03:27](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED54B51F4433A40EEE32AABC7F5D7A29EBEDDCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346364   (163940) от 19.12.2019
-
-Rorcal - Muladona (2019) [FLAC|Lossless|Web-DL|tracks] <Post Black Metal, Doom Metal, Sludge Metal, Drone>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This is how I came to associate drowning with tenderness (5:43)
-02. She drained you of your innocence and you poisoned her with it (6:53)
-03. I'd done my duty to my mother and father. And more than that I'd found love (5:05)
-04. A sea of false smiles hiding murder jealousy and revenge (3:48)(   Читать дальше...   )Производство: Hummus RecordsЖанр: Post Black Metal, Doom Metal, Sludge Metal, DroneПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F42A97E05E3355B80E50E6D5A3D8FED3FE9F254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346521   (163765) от 19.12.2019
-
-Timo Tolkki's Avalon - 3 Albums (2013-2019) 5CD [FLAC|WavPack|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Timo Tolkki's Avalon - Тимо Толкки (фин. Timo Tolkki; 3 марта 1966, Клауккала, Нурмиярви, Финляндия) — гитарист, композитор и продюсер, бывший участник финской пауэр-метал-группы Stratovarius, после ухода из которой лидер групп Revolution Renaissance и Symfonia, а затем Avalon.Список альбомов:
-2013 - The Land Of New Hope
-2014 - Angels Of The Apocalypse
-2019 - Return To EdenЖанр: Symphonic Power MetalПродолжительность: 04:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D7B3631F73737B3EB0763E1D89EBFC0B4F6706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517072   (163749) от 14.12.2021
-
-The Kennedy Veil - Trinity of Falsehood (2014) [FLAC|Lossless|tracks + .cue] <Technical Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ad Noctum 02:43
-02. Eulogy of the Divine 02:12
-03. Enslave.Defile.Erase 03:11
-04. Trinity of Falsehood 02:53(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F57474654B1E1E6296C4C14B02F99913CCF99C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517079   (163735) от 14.12.2021
-
-The Kennedy Veil - Imperium (2017) [FLAC|Lossless|tracks + .cue] <Technical Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godslaughter 05:09
-02. Legacy Left 04:21
-03. Hunted to Extinction 07:02
-04. Draconian 04:18(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCA3F8229310BB3AE1F3E32450F1CEB95AE108F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673656   (163607) от 03.11.2023
-
-Aeonian Sorrow - A Life Without (2020) EP [FLAC|Lossless|image + .cue] <Gothic, Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Endless Fall Of Grief (09:25)
-02. One Love (10:05)
-03. My Solitude (07:07)
-04. Hopeless Suicide (09:07)Жанр: Gothic, Doom, Death MetalПродолжительность: 00:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8429A56B8394BF912DC7FE9D19FAEE87A52BB3E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673661   (163587) от 03.11.2023
-
-Aeonian Sorrow - Katara (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anemos (08:35)
-02. Elumia (07:07)
-03. Ashes and Death (06:55)
-04. Her Torment (07:40)(   Читать дальше...   )Жанр: Gothic, Doom, Death MetalПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A860FE96536ADEA5B9168EB53E98695FBD72554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517280   (163552) от 14.12.2021
-
-Black Label Society - Doom Crew Inc. (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set You Free
-02. Destroy & Conquer
-03. You Made Me Want To Live
-04. Forever And A Day(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F046B508DEADC418B102627F427590EB95760955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598170   (163543) от 18.12.2022
-
-Project Creation - Floating World (2005) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Floating World (7:14)
-02. Living Under A Blue Sky (4:21)
-03. The Desert Planet (2:22)
-04. The Civilization (7:24)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694E7AFE8D2DCF323865B7274D91E3574B61B08A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598168   (163540) от 18.12.2022
-
-Temple Of Baal - Mysterium (2015) [FLAC|Lossless|image + .cue] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lord Of Knowledge And Death 09:07
-02. Magna Gloria Tua 09:16
-03. Divine Scythe 07:17
-04. Hosanna 08:00(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F98D183A93DBA74BCEE2E4B347FD2F92411CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598188   (163535) от 18.12.2022
-
-Balrog - Miserable Frame (2013) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Feud 05:32
-02. Bewitched 03:54
-03. Miserable Frame 03:58
-04. Dark City 06:20(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF86BBFB9FC0D3C5723F84CA739895BDDA389D82
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 988987   (918959) от 21.02.2016
+
+Arabesque - The Magic of Arabesque (2016) [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Mr. Monkey 3:28
+02. Someone Is Waiting For You 4:04
+03. Six Times A Day 3:12
+04. Buggy Boy 2:56(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A4DECB2A38CB748FEA2C0FAB98D834921EEFB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366758   (917231) от 15.03.2020
 
 VA - 80's Gold (2020) [MP3|320 Kbps] <Pop>
@@ -720,35 +749,6 @@ Wax - American English (1987) [OGG|453-489 кб/с] <New Wave, Pop Rock, Synth P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93AEF5C30E13EB81C82949CD29690F989764C5DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371818   (888699) от 01.04.2020
-
-Kristina Bazan - EPHV1 (2018) [MP3|320 Kbps] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VR
-02. Iron Veins
-03. Old Soul
-04. Killer(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DBB753149B8542DF2BC6F51A0657219A9C567C
 ```
 
 https://mybot314.ru/tekegram_catalog/

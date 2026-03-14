@@ -1,25 +1,54 @@
-###  Публикация: 1799431   (66490) от 27.05.2025
+###  Публикация: 1791279   (67887) от 12.04.2025
 
-VA - Jazz Kissa (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Ryoji Shinomoto - Children of Bushido (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lake Bodom (00:04:05)
+02 - Living Dead Beat (00:04:57)
+03 - Mask of Sanity (00:04:03)
+04 - Hate Me! (00:04:45)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004B62CF7168889E9FD39556C680C41E91CE3A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791183   (67886) от 12.04.2025
+
+Wolfgang Lohr - The Lohring 20s (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66490.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Nina Simone - If I Should Lose You (3:59)
-02.  Ahmad Jamal - Perugia (3:56)
-03.  The Eddie Higgins Trio - Shelley's World (3:55)
-04.  Bud Powell Trio - Lullaby of Birdland (1:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:39:00
+01. Disco Swing (2:54)
+02. Don't Drink & Jive (2:31)
+03. Ashley Slater - Boring 20s (2:51)
+04. Think Twice (2:52)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:59:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBD24FA4759EEBA35F37E5D4AA8A9322D7720984
+magnet:?xt=urn:btih:93A2F00A3E286123DF60A4A34E5E9245BC520E39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799459   (66489) от 27.05.2025
+###  Публикация: 1791148   (67885) от 12.04.2025
 
-Chantal - Rainbow Warrior (2025) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+Sunwalter - Rebuilding The Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic, Electronic, Sci-Fi Metal>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66489.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67885.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Silver Linings (06:35)
-02. Rainbow Warrior (05:51)
-03. Run (09:34)
-04. Canyon (06:01)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:08:43
+01 - Overture (00:01:17)
+02 - Ultimatum (00:03:57)
+03 - Betrayed Alliance (00:04:29)
+04 - Dividing Lines (00:04:51)(   Читать дальше...   )Жанр: Melodic, Electronic, Sci-Fi MetalПродолжительность: 00:47:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D993EFF8C8419D2E11D43A735D7DCF7C932C6095
+magnet:?xt=urn:btih:DA2ADB9B5B5D9B2597B0756FAE87D1D0C790091C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,133 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799294   (66488) от 27.05.2025
+###  Публикация: 1791144   (67884) от 12.04.2025
 
-Растровый клипарт - Venture Studio - Creative Fabrica - Purple Butterfly Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с фиолетовыми бабочками.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0FF4258AF973214B9B148645478CB6647922D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799344   (66487) от 27.05.2025
-
-МузЛофт-Дети / МузLoft. Кирилл Усов (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кирилл Усов. Из хоккеиста в вокалисты. Мечты о дуэте с Ларой Фабиан и Биланом.
-От репертуара этого парня можно просто сойти с ума. А ещё он участник шоу «Голос. Дети», заменил барабанщика в Музлофте и… А что ещё он сделал в этом выпуске, ты узнаешь, если посмотришь его до конца!Производство: Россия | Y-GenerationУчастники: Кирилл УсовПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44A7E86F57D86C1C89CE2ACB378D453004EFEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799295   (66486) от 27.05.2025
-
-Растровый клипарт - Venture Studio - Creative Fabrica - Space Elements Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт на космическую тему.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D97F5E7ADAAB1C8512A24099E54DC6F582290EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799348   (66485) от 27.05.2025
-
-VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. V-Sta - Highend Fashion (Original Mix) [5:20]
-02. Filizola - Get Me (Original Mix) [5:47]
-03. Goodman & T-Mark - Fading Lights (Original Mix) [4:31]
-04. Mike D' Jais - We Touch The Sky (Original Mix) [3:09](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731986B96C9D924B930AA865E7DFBD07BF505EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799422   (66484) от 27.05.2025
-
-Улыбнись! (2023) WEBRip [H.264/1080p]
+Армения: сытный обед в пещере, древнейшая в мире винодельня и суши по-армянски | «Поедем, поедим!» (12.04.2024) WEBRip [H.264/720p]
 
 >>Документалистика и Телепередачи
->>Посвящение искусству
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66484.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История того, как и почему в результате встречи с советским кинорежиссером Фридрихом Эрмлером Чарлз Спенсер Чаплин изменил первоначальный вариант финала своего знаменитого фильма «Новые времена».Производство: Россия / Fest-FilmЖанр: документальный, биографияРежиссер: Марианна КирееваПродолжительность: 01:09:07
+Федерико Арнальди в Армении научился ткать ковры, посетил древнейшую в мире винодельню, пообедал в пещере, попал на застолье, попробовал суши по-армянски, а еще приготовил фаршированную курицу и шашлык в тандыре.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93BC710CA101C5930CB53BED8823FDFA48F82577
+magnet:?xt=urn:btih:ED11B369827DE4856DFBB4AB9B3679CA4A0D08F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,25 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799296   (66483) от 27.05.2025
+###  Публикация: 1791142   (67883) от 12.04.2025
 
-Растровый клипарт - Venture Studio - Creative Fabrica - Fish Watercolor Clipart [PNG]
+Тест-драйв Avior G10 — Минтранс (12.04.2025) WEBRip [H.264/720p]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66483.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт с рыбами.Формат: PNGРазрешение файлов: 4096 x 4096
+🔸 Юридические нюансы. Что делать, если пострадавший в аварии водитель взял деньги на месте, а потом обратился с заявлением на виновника в ГАИ?
+🔸 Avior G10: китайский фургон из Белоруссии. Все «плюсы» и «минусы»
+🔸 Законное переоформление. Как поставить на учет дедушкино наследство?
+🔸 Лайфхак: как обработать шины, чтобы продлить ресурс?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2615D3C2DF9B8888B98EBFD07BBF8121E439F3FF
+magnet:?xt=urn:btih:A3285798890E0F5D685194D8AC9C6A8090166D80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,28 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799426   (66482) от 27.05.2025
+###  Публикация: 1791260   (67882) от 12.04.2025
 
-VA - GIMME THE FUNK_ 90's Funky Tracks (Funk Grooves & Funky House Tunes from the Nineties) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
+Alex Okami - Strange As Angels (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Darkwave, Post-Punk, Gothic Rock>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66482.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Jestofunk - I'm Gonna Love You (Mc Turbo Sax) (4:22)
-02.  LTj - Gimme The Funk (4:21)
-03.  James Thompson - Don't Stop the Sax (7:14)
-04.  Black & Brown - Jurassik Funk (5:46)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 01:47:36
+01. In the Dark [00:03:13]
+02. Telarañas [00:03:48]
+03. Under My Skin [00:03:22]
+04. Monster [00:03:36](   Читать дальше...   )Жанр: Darkwave, Post-Punk, Gothic RockПродолжительность: 00:29:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60B94FA30ADDFF46563CE15DF51E7F044E949CA5
+magnet:?xt=urn:btih:7306BA225FCA50E532DDA060BC7AA76629AA8044
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,25 +169,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799202   (66481) от 27.05.2025
+###  Публикация: 1791074   (67881) от 12.04.2025
 
-Матч легенд: «Зенит» Ленинград — «Зенит» Санкт-Петербург (25.05.2025) WEB-DL [H.264/1080p]
+Вероника Хлебова | PRO-ЖИВИ. Чувства. Отношения. Любовь (2018) [MP3, Ирина Зубкова]
 
->>Спорт и активный отдых
->>Футбол
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66481.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Запись прямой трансляции Матча легенд при поддержке Winline на «Газпром Арене» 25 мая 2025 годаЖанр: спорт, футболЯзык озвучки: русскийПродолжительность: 02:06:00
+Вас мучает чувство, что жизнь проходит, а самое важное еще не сделано? И кажется, что у других жизнь интереснее и ярче? Вы чувствуете себя виноватым по пустякам?
+А еще хотите разобраться в себе? Научиться понимать других людей? Видеть глубинные мотивы поведения?
+Узнайте, как общаться с людьми, переживать тяжелые моменты в жизни. Не винить себя по пустякам. И в трудные (   Читать дальше...   )Жанр: ПсихологияИздательство: ЛитРес: чтецПродолжительность: 06:08:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:338A6B1DED580E98EBFE674A3A360995465FA404
+magnet:?xt=urn:btih:F63F49D6987D81F4E65081C18BAA8A4EAE1BF236
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -271,306 +197,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799302   (66480) от 27.05.2025
+###  Публикация: 1791189   (67880) от 12.04.2025
 
-Фоны - sagorarts - Creative Fabrica - Rainbow Glitter Agate Background [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радужные блестящие фоны под агат.Формат: JPGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC59B33C2C8496EF2736FE1FFB198EF3E6A1BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799424   (66479) от 27.05.2025
-
-VA - Best Sound of Chill & Lounge 2025 – Summer Edition (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jean Mare - Time Again (Chill Lounge Mix) (3:50)
-02.  Soundset City - Lounge Groove Corner (2:55)
-03.  Audiozoom - Electric Emotion (4:15)
-04.  Jean Mare - Miles Away (4:18)(   Читать дальше...   )Жанр: Lounge, Smooth Jazz, Contemporary JazzПродолжительность: 01:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F5FA7252BBE1F557455F63E01E16C28B9EAB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799298   (66478) от 27.05.2025
-
-Sarah Connor - Freigeistin (2025) [MP3|320 Kbps] <Pop, Rhythm and Blues, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heut’ ist alles gut [3:10]
-02 - Wilde Nächte [2:29]
-03 - Souvenir [2:33]
-04 - FICKA [2:25](   Читать дальше...   )Жанр: Pop, Rhythm and Blues, SoulПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7541C0F8AA0216966561AC55081DC52EF126248B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799366   (66477) от 27.05.2025
-
-Возможно, они великаны / They Might Be Giants (1971) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноимённой пьесе Джеймса Голдмана (1961)... Джастин Плейфейр, бывший судья, после смерти жены погружается в иллюзорный мир, воображая себя Шерлоком Холмсом. Его брат Блевинс пытается отправить его в психиатрическую клинику, чтобы получить контроль над наследством. Однако психиатр Милдред Уотсон вместо лечения постепенно втягивается в абсурдные расследования, (   Читать дальше...   )Производство: США / Universal Pictures, Newman-Foreman CompanyЖанр: комедия, мелодрама, детективРежиссер: Энтони ХарвиАктеры: Джордж К. Скотт, Джоэнн Вудворд, Джек Гилфорд, Лестер Роулинз, Аль Льюис, Ру МакКлэнахан, Рон Уэйанд, Оливер Кларк, Тереза Меррит, Дженни ИганПеревод: любительский одноголосый (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: русские (Мика Бондарик), английскиеПродолжительность: 01:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302102524558B2539FB37603F46ED9ED7EFBEE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799301   (66476) от 27.05.2025
-
-Текстуры - TijanaARTStudio88 - Creative Fabrica - Pastel Grainy Surface Paper Texture [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зернистые текстуры под бумагу в пастельных тонах.Формат: JPGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A5AB92FFD7268F6141FC6D823A5A2E48AC9BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799118   (66475) от 27.05.2025
-
-Sal Salvador - Frivolous Sal (1956) 1991, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frivolous Sal [3:17]
-02. Tangerine [3:10]
-03. I Cover the Waterfront [3:43]
-04. You Stepped Out of a Dream [3:29](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5112A0DA0F9099C3C02269EBAB54F5F4285BC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799435   (66474) от 27.05.2025
-
-Ophthalamia - II Elishia II (2019) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Cry from the Halls of Blood/Empire of Lost Dreams (A Long Journey Demo, 1991)
-02. A Lonely Ceremony/The Eternal Walk (Very First Recording With the Band, 1990)
-03. Journey in Darkness/Entering the Forest (An Old Rehearsal Recording, 1991)
-04. Castle of No Repair/Lies from a Blackened Heart (A Long Journey Demo, 1991)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCD5DD3E979E06E8740EB13406D610E1E6A70AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799189   (66473) от 27.05.2025
-
-Barbara Dennerlein - Hot Stuff (1990) Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Stuff [10:04]
-02. Wow! [6:58]
-03. Top Secret [6:00]
-04. Birthday Blues [3:28](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1ACD82DEBE8B9E35DB3CDDD12394E09618B11B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799119   (66472) от 27.05.2025
-
-Roger Kellaway - The Roger Kellaway Trio (1965) 1997, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Organ Morgan [2:45]
-02. One Night Stand [3:12]
-03. I'll Follow the Sun [6:06]
-04. Brats [5:44](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92242FAB58832C693838B332945E3335D4B8459D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799193   (66471) от 27.05.2025
-
-Anita O'Day - Mello'day (1978) 1992, GNP Crescendo Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Devil Moon [2:58]
-02. Lost in the Stars [3:38]
-03. Meditation [4:33]
-04. You're My Everything [3:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D159C3AFB584C48C209FB42E2B57B0527343FD1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799420   (66470) от 27.05.2025
-
-Выстрел в ночи / Un coup de feu dans la nuit (1916) WEBRip  [H.264/720p]
+Полночный джаз / Вокруг полуночи / 'Round Midnight (1986) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66470.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кинопоиск странным образом определяет жанр этой фильмы как комедию. А сюжет, между тем, весьма даже драматический. Филипп отправляется к своему дяде, генералу де Придьеру, и влюбляется в его молодую жену Ирен. Через месяц Филипп говорит, что возвращается в Париж, но пытается устроить тайное свидание с Ирен через дочь лесничего. Когда Филипп прибывает в условленное (   Читать дальше...   )Производство: Франция / Société Française des Films ÉclairЖанр: короткометражный, комедия, немое киноРежиссер: Жерар БуржуаАктеры: Renée Sylvaire, Nadette Darson, Жильбер Дайё, Арман ТальеПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:35:01
+Дейл Тернер, пожилой гениальный саксофонист, композитор, импровизатор, посвящает все свои силы музыке, которая спасает его от жестокости жизни. Из-за того, что Дейл афроамериканец, ему приходится постоянно защищать своё достоинство в мире шоу-бизнеса и в обществе. В погоне за ускользающей популярностью Дейл оказывается в Париже, где у него происходит случайная встреча (   Читать дальше...   )Производство: США, Франция / Little Bear, PECFЖанр: драма, музыкаРежиссер: Бертран ТаверньеВ ролях: Декстер Гордон, Франсуа Клюзе, Габриэлль Хакер, Сандра Ривз-Филлипс, Лонетт МакКи, Кристин Паскаль, Херби Хэнкок, Бобби Хатчерсон, Пьер Трабо, Фредерика Мейнинже, Лилиан Ровер, Жед Марлон, Бенуа Режан, Виктория Габриэлль Платт, Артур ФренчПеревод: профессиональный многоголосый (HTB; Варус Видео), авторский (Сергей Кузнецов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:11:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C139456796DFC534C36FE86B05552B0DAF357538
+magnet:?xt=urn:btih:5B84D3AEBC46D810943BB5D19E553871A8F5157B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +223,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799195   (66469) от 27.05.2025
+###  Публикация: 1791156   (67879) от 12.04.2025
 
-Sal Salvador - Shades Of Sal Salvador (1956, 1957) 1999, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+Kid Ramos - Strange Things Happening (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66469.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Delighted [4:13]
-02. Two Sleepy People [2:40]
-03. Joe and Me [3:31]
-04. Flamingo [3:21](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:43:59
+01. Strange Things Happening (4:39)
+02. How I Got Over (5:40)
+03. I'm Working On A Building (3:50)
+04. Oh What A Meeting (7:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB6565F10B3632DFFAA39BC5A9AF81325BDF0142
+magnet:?xt=urn:btih:4F1B4069B87B195DF53DF9B392F1383D1B815DA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +252,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798722   (66468) от 27.05.2025
+###  Публикация: 1791147   (67878) от 12.04.2025
 
-Jelly Roll Morton - Last Sessions: The Complete General Recordings (1939, 1940) 1997, Commodore [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Piano Jazz>
+Живая еда с Сергеем Малозёмовым (12.04.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовая еда из магазинов, сервисов доставки и автоматов: правда ли, что она несет лишние килограммы, как обстоят дела у такой еды с качеством и всегда ли готовить еду самому дешевле?
+ Еда для космонавтов: каково это — месяцами питаться из тюбиков, почему хлеб на МКС называют «кукольным», может ли одна таблетка заменить весь рацион, почему в невесомости пьют чай из (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602F7E66845340FA90980526DA46FE052C4F6729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791174   (67877) от 12.04.2025
+
+Tobacco Road Blues band - Lis & Skull (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66468.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67877.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sporting House Rag (Perfect Rag) [2:21]
-02. Original Rags [2:51]
-03. The Crave [3:07]
-04. The Naked Dance #2 [2:52](   Читать дальше...   )Жанр: New Orleans Jazz, Piano JazzПродолжительность: 01:11:18
+01. Emely Myles - Move It (feat. Emely Myles) (3:31)
+02. I Knocked Three Times (3:36)
+03. God Made a Perfect Job (3:54)
+04. I’m Your Boogeyman (4:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67E18EFF97A3421A14C8F2045A7D3D38EA40059A
+magnet:?xt=urn:btih:6FC935923E83C941D353FA38652BD17F9BC8D04A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,26 +308,165 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799385   (66467) от 27.05.2025
+###  Публикация: 1791168   (67876) от 12.04.2025
 
-НХЛ. Кубок Стэнли 2025. Восток - Финал. 4-й матч. Каролина Харрикейнз - Флорида Пантерз (26.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+Metal Bots - Soulful Strains (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Morning (3:11)
+02. Dusty Road Blues (4:00)
+03. Love My Old Guitar (3:46)
+04. Sweet Spirit (3:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69281D926F2BA40C4F82CA27E75CCEF97B2804F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791208   (67875) от 12.04.2025
+
+Manowar - Sign of the Hammer (1984) Japan [WavPack|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One :
+01. All Men Play On 10
+02. Animals
+03. Thor (The Powerhead)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3377F5E3AADEEB80833FAF0FF89130877AAD1B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791118   (67874) от 12.04.2025
+
+Fractal Age - Energy & Entropy (2025) [FLAC|Lossless|WEB-DL|tracks] <Futurepop, Synthpop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the way down (3:59)
+02. The silence of a fading age (4:56)
+03. Pushed away (4:38)
+04. Her door won´t open (3:53)(   Читать дальше...   )Жанр: Futurepop, Synthpop, EBMПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6AE2A7872B5AD10054E3D8B06C4D735C119530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791178   (67873) от 12.04.2025
+
+Полночный джаз (Около полуночи / Вокруг полуночи) / 'Round Midnight (1986) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дейл Тернер, пожилой гениальный саксофонист, композитор, импровизатор, посвящает все свои силы музыке, которая спасает его от жестокости жизни. Из-за того, что Дейл афроамериканец, ему приходится постоянно защищать своё достоинство в мире шоу-бизнеса и в обществе. В погоне за ускользающей популярностью Дейл оказывается в Париже, где у него происходит случайная встреча (   Читать дальше...   )Производство: США, Франция / Little Bear, PECFЖанр: драма, музыкаРежиссер: Бертран ТаверньеВ ролях: Декстер Гордон, Франсуа Клюзе, Габриэлль Хакер, Сандра Ривз-Филлипс, Лонетт МакКи, Кристин Паскаль, Херби Хэнкок, Бобби Хатчерсон, Пьер Трабо, Фредерика Мейнинже, Лилиан Ровер, Жед Марлон, Бенуа Режан, Виктория Габриэлль Платт, Артур ФренчПеревод: профессиональный многоголосый (HTB; Варус Видео), авторский (Сергей Кузнецов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2029847D4C12394996B9AB32E91FA1825AE55E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791234   (67872) от 12.04.2025
+
+Роберт Силверберг | Одного поля ягоды (2021) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67872.jpg" />
+</div>
+
+
+###  Подробнее
+
+С недавнего времени Земля оказалась закрытой для инопланетных существ зоной. И когда ворота захлопнулись, инопланетянам осталась только одна возможность попасть на Солнце-3 — в качестве образца научной коллекции. А если точнее, экспоната зоопарка. Но зоопарку нужен директор. Так после долгих лет прозябания в качестве хозяина балагана в системе, мистер Корриган превратился (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730D03DB5FEDDA5811ABF5AA2DFBE9358591742F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791154   (67871) от 12.04.2025
+
+НХЛ 2024-2025. Питтсбург Пингвинз - Нью-Джерси Дэвилз (11.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66467.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-27 мая 2025, вторник. 03:00 МСК, 1/2 финала. 4-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 897 зрителей (102% при вместимости 19 434)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Девин Берг (Китченер, Канада); Линейный: Биван Миллс (Суррэй, Канада)Телекомпания: Setanta Storts 2Жанр: Спорт, хоккейЯзык озвучки: Русский, английскийПродолжительность: 02:53:53
+12 апреля 2025, суббота. 02:00 МСК. Стадион: Пруденшиал-центр (Ньюарк, США), 16 514 зрителей (94% при вместимости 17 625)
+Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Брэндон Бландина (Сентенниал, США); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Брэндон Грилло (США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:36:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE21688E8636BFD2C9F31F47F2FBA7407F60CBE5
+magnet:?xt=urn:btih:CD3486B0C6B70189612D8EFD29F034675E2E81A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,25 +474,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799365   (66466) от 27.05.2025
+###  Публикация: 1791185   (67870) от 12.04.2025
 
-Футбол. Чемпионат Нидерландов 2024/25. Эрдивизия 32-й тур.  Фейеноорд (Роттердам) - ПСВ (Эйндховен) (11.05.2025) WEBRip [H.264]
+Fear Factory - Mechanize (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
 
->>Спорт и активный отдых
->>Футбол
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66466.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Матч тура Нидерландской Эредивизии. "Фейеноорд" против ПСВ. Ван Перси против Боша. Знаете, да, Фейе играет дома и Фейе в отличной форме и прекрасном расположении духа. Матч в Роттердаме обещает очень интригующее противостояние двух команд, сохранивших серьёзные амбиции на концовку сезона. "Фейеноорд", выигравший семь матчей подряд и не проигрывающий (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:54:23
+01. Mechanize
+02. Industrial Discipline
+03. Fear Campaign
+04. Powershifter(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04142AB9D0E98F935CFD67E5E9126706D4BF1028
+magnet:?xt=urn:btih:D5C8B00C61D0D2D06DFC19C06398EE8B4230F979
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,28 +503,220 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798973   (66465) от 27.05.2025
+###  Публикация: 1791116   (67869) от 12.04.2025
 
-Phantom Elite - MANTIS (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Progressive Metalcore, Electronic>
+Within Destruction - Animetal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, Metalcore, Electronic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Animetal (00:03:53)
+02 - Demon Child (00:02:55)
+03 - Kanashibari (00:03:30)
+04 - Bitter Embrace (00:03:34)(   Читать дальше...   )Жанр: Nu Metal, Metalcore, Electronic RockПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F9F30CE99E0F9945AE9D55B60A9B1AB26F2AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791375   (67868) от 13.04.2025
+
+Jeff Rymes - Zodiac Shuffle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Down Luziana (3:36)
+02. Freddy Lee (3:01)
+03. Lowdown Blues (3:49)
+04. The Tale of the Runaway Train (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A128713242738054A256C77C6283CD5172E70E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791303   (67867) от 13.04.2025
+
+Smith/Kotzen - Black Light / White Noise (2025) SHM-CD, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66465.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Slow Burn [00:03:41]
-02. Nectar [00:03:31]
-03. Intermission [00:00:59]
-04. Sangre Mala [00:03:36](   Читать дальше...   )Жанр: Alternative Metal, Progressive Metalcore, ElectronicПродолжительность: 00:18:01
+01. Muddy Water
+02. White Noise
+03. Black Light
+04. Darkside(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0758C06A0BB368B790BE65E8A2400DAC7BD3F5D
+magnet:?xt=urn:btih:C111FF40D1C55EDF7E5FA10A8A7719C398546A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791393   (67866) от 13.04.2025
+
+LANDR - Synth X 1.0.38 VSTi 3 (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя мир творческой свободы и выразительных звуков с помощью современного таблично-волнового синтезатора для музыкальных продюсеров и звукорежиссёров.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF37B25982517FDA07DE2F58DC73317837949B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791275   (67865) от 13.04.2025
+
+Scott Bradlee's Postmodern Jukebox - Puttin' On The Rizz (2024) [FLAC|Lossless|WEB-DL|tracks] <Swing, Jazz, Blue-Eyed Soul, Blues, Dance-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pour Some Sugar on Me [4:21]
+02 - 50 Ways to Leave Your Lover [3:35]
+03 - Say You'll Be There [3:22]
+04 - One Week [2:41](   Читать дальше...   )Жанр: Swing, Jazz, Blue-Eyed Soul, Blues, Dance-PopПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE53329A5F37BAD0110773CF1A91AC84E8F9C549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791322   (67864) от 13.04.2025
+
+Алексей Зорин | Выжить любой ценой. Психологический триллер, Поиск Анны (2025) [MP3, Екатерина Трофимова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дождливой ночью в лес вошла девушка с грудным ребенком на руках – и исчезла. На ее поиски отправляется волонтер поисковой организации Анна Смолина – женщина с тяжелым прошлым, в одиночку воспитывающая приемную дочь.
+Анна не подозревает, что, сделав шаг в мрачный лес, она запустит череду страшных событий, которые поставят под угрозу жизнь ее дочери, а также жизни (   Читать дальше...   )Жанр: Детективное расследованиеИздательство: ЭксмоПродолжительность: 16:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E976AA65243CFDEB54EA9A31913C384FC6F6237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791436   (67863) от 13.04.2025
+
+Офис / The Office (2011-2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] (сезон 8, серии 1-24 из 24) kubik&ko [hand made Upscale AI]
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67863.jpg" />
+</div>
+
+
+###  Подробнее
+
+В восьмом сезоне в центре внимания Энди Бернард - его восхождение на пост регионального менеджера, а также выходки Роберта Калифорния, нового генерального директора Sabre, типографской компании, которой принадлежит Dunder Mifflin.Производство: США / Reveille Productions, NBC Universal Television, 3 Arts EntertainmentЖанр: комедияРежиссер: Пол Фиг, Рэндолл Айнхорн, Кен КуописАктеры: Стив Карелл, Рэйн Уилсон, Джон Красински, Дженна Фишер, Эд Хелмс, Анджела Кинси, Минди Кейлинг, Б.Дж. Новак, Крэйг Робинсон, Элли КемперПеревод: Многоголосый профессиональный (kubik&ko)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42939B4AD6D62985FBDE50012478274EF1DFBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791252   (67862) от 13.04.2025
+
+Человек без прошлого / Man with No Past (2025) WEBRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Влиятельный застройщик намеревается снести старые кварталы родного города, чтобы воплотить в жизнь свой грандиозный проект. Его терзают сомнения морального плана — ведь жители обречённых кварталов рискуют стать бомжами. Однако ближайшие помощники миллиардера не только убеждают его в правильности такого развития событий, но и подталкивают к совершению тяжёлого преступления, (   Читать дальше...   )Производство: Болгария, США / SP Media GroupЖанр: боевик, драмаРежиссер: Джеймс БэмфордАктеры: Джон Войт, Adam Woodward, Мартон Чокаш, Шарлотта Вега, Филип Уинчестер, Шарлотта Уэстон, Джефф Александр, Небли Басани, Todor Todorov, Judith Chandler и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:47:37Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800A3BA5857D4141E76C0F8A49D6205E6953C86E
 ```
 
 https://mybot314.ru/tekegram_catalog/

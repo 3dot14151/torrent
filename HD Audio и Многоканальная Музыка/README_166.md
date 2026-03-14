@@ -1,3 +1,147 @@
+###  Публикация: 1761833   (103040) от 22.11.2024
+
+Raptore - Renaissance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103040.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Ecclesia (1:07)
+• 02. Satana (4:39)
+• 03. Abaddon (3:54)
+• 04. Darklight (3:54)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E958F5A24DD56C5875A09DAD155E4A4D6A9C508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761864   (103038) от 22.11.2024
+
+Sunjay - I'm Just Like You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Link of Chain (3:56)
+02. No Love Today (4:56)
+03. Love You Like a Man (3:08)
+04. Mail Order Mystics (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E515D01FB854F5B9C4B2EF00A365BD140F20AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761828   (103037) от 22.11.2024
+
+Joan Armatrading - How Did This Happen And What Does It Now Mean (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop, Blues, Singer-Songwriter>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103037.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. 25 Kisses (3:05)
+• 02. Someone Else (3:15)
+• 03. Irresistible (3:18)
+• 04. I'm Not Moving (3:37)(   Читать дальше...   )Жанр: Rock, Pop, Blues, Singer-SongwriterПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C65F129D7F36BD526E115F6CEF5A9587FFAEBD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761834   (103035) от 22.11.2024
+
+Kingcrown - Nova Atlantis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Magic Stone (3:29)
+02. Nova Atlantis (5:21)
+03. Real Or Fantasy (4:17)
+04. Guardian Angels (4:06)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CF2A616A5C460DDA90C6F65374C2F55B9A1B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761869   (103034) от 22.11.2024
+
+Power Trip - Studio Albums (3 releases) (2013-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Power Trip — американская трэш-метал-группа из Далласа, основанная в 2008 году.2013 - Manifest Decimation
+2017 - Nightmare Logic
+2018 - Opening Fire - 2008-2014Жанр: Thrash Metal/CrossoverПродолжительность: 01:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3FD0D0A40BF95866EAA684491E2190A4677C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761866   (103033) от 22.11.2024
 
 The Pineapple Thief - Last To Run (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -600,151 +744,6 @@ Visioneers - DEF RADIO (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C91DC47BEB3F7744BE11DF727892384A6416588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763229   (102850) от 30.11.2024
-
-Supernatural Blondes - Religion Of The Heart (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Some Love (3:56)
-02. Judas (4:10)
-03. Mercy (3:41)
-04. Young Hearts Run Free (3:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492A2AD7A48231BC6CDDCEC29FA7BE97050491F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763226   (102847) от 30.11.2024
-
-Confidence Man - 3AM (La La La) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance, Electropop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WHO KNOWS WHAT YOU’LL FIND? [00:03:35]
-02. I CAN’T LOSE YOU [00:02:35]
-03. CONTROL [00:03:44]
-04. SO WHAT [00:03:15](   Читать дальше...   )Жанр: Dance, ElectropopПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EB57C4416D1796AE1DF7543A6136D30C1FAC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763307   (102846) от 30.11.2024
-
-Mors Subita - Studio Albums (5 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mors Subita - мелодик-дэт-метал группа из Оулу, Финляндия, основанная в 1999 году.2011 - Human Waste Compression
-2015 - Degeneration
-2019 - Into the Pitch Black
-2020 - Extinction EraЖанр: Melodic Death/Thrash MetalПродолжительность: 03:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE70EF7545436266A0D654A92DB5B4F033CB2F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763218   (102844) от 30.11.2024
-
-ProCaillass - Electro Swing: Cat Songs, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purrs of Yesterday (3:33)
-02. Whisker Waltz (1:30)
-03. Moonlit Cat Serenade (2:16)
-04. Tail of Time (3:30)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3E9F52365410376695FF64A92E2B9061C7C225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763235   (102841) от 30.11.2024
-
-Leo Sayer - 1992 (1992) Remastered, 2024, Crimson [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Was I Blue? [00:03:41]
-02. Wonderworld [00:06:27]
-03. Take a Walk with Me [00:04:15]
-04. Heaven [00:05:54](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF78EFCE0004BED62F5B6A13AA21663E70BEA04
 ```
 
 https://mybot314.ru/tekegram_catalog/

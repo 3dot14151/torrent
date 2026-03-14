@@ -1,3 +1,32 @@
+###  Публикация: 1011608   (796440) от 28.04.2016
+
+VA - Club Music Junior Union (2016) [MP3|320 кб/с] <House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, Soulful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabtrap - Your Love 03:35
+02. Bali Bandits - Mr. Meow (Extended Mix) 03:51
+03. Bobby Puma Feat. Katt Rockell - Deeper Than Love (Extended Mix) 04:29
+04. Felix Leiter - Just Can't Dance No More (Original Mix) 04:58(   Читать дальше...   )Жанр: House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, SoulfulПродолжительность: 07:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4556B1F12D2E942077C36BE3CA50E7640C16CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011741   (796434) от 28.04.2016
 
 VA - Sexy Deep House Tracks (2016) [MP3|320 кб/с] <Deep House>
@@ -716,35 +745,6 @@ VA - Beatport Tech House: Electro Sound Pack #94 (2020) [MP3|320 Kbps] <Tech Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69CC1DAFBF6EF7EC311C9BBDD8DA6607A044FC03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012285   (794874) от 30.04.2016
-
-VA - Finding Around Happiness (Energy Tech Trance) 004 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Dow -  Wave After Wave (Kheiro & Medi Remix)  6:42
-02. Tranzlift Ft. Imperfect Hope -  Para Siempre (BTSR100 Anthem) (Original Mix)  8:14
-03. Simon Lee And Alvin -  Xcelerate (Extended Mix)  5:24
-04. Liuck And Neev Kennedy -  Let This Go (Extended Mix)  6:13(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655FC764998AA74AB83C417FAB8D51676180D2EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

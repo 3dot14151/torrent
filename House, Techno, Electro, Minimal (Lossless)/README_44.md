@@ -1,3 +1,88 @@
+###  Публикация: 945922   (431575) от 11.10.2015
+
+Maribou State - Portraits (2015) [FLAC|Lossless|WEB-DL]<Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home
+02. The Clown (feat. Pedestrian)
+03. Rituals
+04. Steal (feat. Holly Walker)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C6EB1A3F62113CE84EA4529188659547FA6477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249713   (431204) от 25.09.2018
+
+VA - Techno Ballads Collection (1996-1999) Millennium Records [FLAC|Lossless|tracks+.cue] <Techno, Ambient, Electro, Downtempo, House, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon - Peaks (03:44)
+ 02. Sounds From The Ground - Triangle (07:08)
+ 03. Solar Quest - Save The Whale (08:04)
+ 04. Time Modem - Promise Of Shadows (05:34)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo/Techno/AmbientПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C1D49B301B7149075E9C5A05AA31B21289CF62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249733   (431191) от 25.09.2018
+
+Mirae Arts - Label 2 Releases (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Glitch>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled A (18:19)
+ 02. Untitled B (19:56)Жанр: Ambient/GlitchПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C8D122604B265B7BEDD1B237110824A56D79BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324085   (429795) от 07.09.2019
 
 VA - Nine Years Of Techno: Selected by Diarmaid O Meara (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -660,93 +745,6 @@ Quivver - Response (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1703A9F8F846CAB0E8A3CFE0514EA57670A2C094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710508   (415933) от 14.10.2013
-
-Avicii - True (2013) [FLAC|Lossless|tracks + .cue]<House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wake Me Up   (4:07)
-02.  You Make Me   (3:53)
-03.  Hey Brother   (4:15)
-04.  Addicted To You   (2:28)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A9868FF8A214EA264F02A195993747E4D583E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066179   (414784) от 25.10.2016
-
-IsoQuant - Risen From Ashes (2016) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rising Dust (Prologue) (03:13)
-02. Wall of Sand (07:20)
-03. Burning Soil (09:17)
-04. Dirt Storm (07:18)(   Читать дальше...   )Жанр: Dark Ambient, Techno, MinimalПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5249AA2B6842E4B8BAC53BC41255BE8387BA6ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066249   (414619) от 25.10.2016
-
-VA - Schneeweiss V (Presented by Oliver Koletzki) (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Jeremy Olander - Lunar
-02-Hvob - Tender Skin (DJ Tennis Remix)
-03-Julian Wassermann & H.B.C. - 1000 Times
-04-Benotmane & Darlyn Vlys feat. Haptic - Quarantine(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FA40B85C218EE67C049EFDA0E7619653377960
 ```
 
 https://mybot314.ru/tekegram_catalog/

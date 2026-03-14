@@ -1,3 +1,119 @@
+###  Публикация: 1839450   (1046553) от 28.11.2025
+
+Thomas Anders - … Sings Modern Talking: Magic the Long Versions (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (Thomas' - Long) (6:00)
+02. You Can Win If You Want (Thomas' - Long) (5:39)
+03. Don't Fly Too High (Long) (5:14)
+04. Cheri Cheri Lady (Thomas' - Long) (6:16)(   Читать дальше...   )Жанр: PopПродолжительность: 03:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0906F69CCA1129B01F43C1CDEA06BC6EBC45F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839360   (1046500) от 28.11.2025
+
+Jessie J - Don't Tease Me With A Good Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel It On Me
+02. I Don’t Care
+03. No Secrets
+04. If I Save You(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085F284A40CF3B60770F94F12ECDE0782569D6E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601834   (1046346) от 02.01.2023
+
+Solar Fake - Enjoy Dystopia (2021) 2CD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, EBM>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Join Me in Death [00:03:28]
+02. Where Is My Mind [00:03:35]
+03. Es Geht Dich Nichts An (Faelder Remix) [00:04:02]
+04. Implode (Blutengel Remix) [00:04:34](   Читать дальше...   )Жанр: Synthpop, EBMПродолжительность: 2 CD, 01:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF276FCE99737A74CB36BA05031F408DF25521F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601870   (1046332) от 02.01.2023
+
+The Les Humphries Singers - Greatest Hits (1989) Compilation, WEA [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, Gospel>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Loo (3:46)
+02. Mexico (3:45)
+03. Kansas City (4:11)
+04. (We'll fly you to the) Promised Land (2:56)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, GospelПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B86CC1BAFC293E10D4C013D10417E0A559B945A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601892   (1046252) от 03.01.2023
 
 Les Humphries Singers - The Best Of (2020) Rerecorded, OVC Media [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock, Gospel>
@@ -632,122 +748,6 @@ Barry Gibb & Friends - Greenfields: The Gibb Brothers' Songbook (Vol. 1) (2021) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D585CC806C484F475089EB926DB3DAF848558529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438369   (1041069) от 08.01.2021
-
-VA - 80s Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spandau Ballet - True (Single Edit) (05:29)
-02. Chicago - Hard to Say I'm Sorry (2007 Remaster) (03:41)
-03. Foreigner - Waiting for a Girl like You (04:49)
-04. Debbie Gibson - Lost in Your Eyes (03:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27EDFF57D74DD1856B62F907E2B7C1EA1FECC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438581   (1040890) от 09.01.2021
-
-VA - Italian Classics (1998) 2CD [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice - Per Elisa
-02. Alan Sorrenti - Tu Sei L'unica Donna Per Me
-03. Antonello Venditti - Buona Domenica
-04. Toto Cutugno - Soli(   Читать дальше...   )Жанр: PoрПродолжительность: 02:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E93EB4C1DC8DA26360474A5EC88B0BBE7717CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611457   (1040865) от 13.02.2023
-
-Tennis - Pollen (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forbidden Doors (3:54)
-02. Glorietta (4:01)
-03. Let's Make a Mistake Tonight (4:14)
-04. One Night with the Valet (1:53)(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B063F424B76B088B8F826BE42D8BCC298BE1AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438889   (1040613) от 10.01.2021
-
-Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreign Affair (2021)
-02. To France (2021)
-03. Family Man (2021)
-04. Everytime We Touch (2021)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45ECA7C353924415844AEA7303854EC579FFECA
 ```
 
 https://mybot314.ru/tekegram_catalog/

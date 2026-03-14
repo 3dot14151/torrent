@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1858553   (1060387) от 11.03.2026
+
+Jimi Barbiani Band - Still In Love (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Miss The Rock'n Roll (3:24)
+02.  We Must Dream (4:28)
+03.  Spend Me Your Light (5:59)
+04.  Going Lazy (6:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C680CAB75C1AD3821C01D8AB47D1943A7BCDAB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858483   (1060341) от 11.03.2026
+
+VA - Jazz Bar Nights - Classic & Modern Lounge Jazz (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silvia Donati - The Lamp is Low (feat. MAX TURONE, Roberto Rossi & Maurizio Piancastelli) - (04:47)
+ 02. Antonio Farao - Now Is The Time - (02:43)
+ 03. ANNA CIMENTI - Bewitched, Bothered and Bewildered - (06:06)
+ 04. Silvia Donati - Mood Indigo (feat. Roberto Rossi, MAX TURONE & Maurizio Piancastelli) - (05:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A593D3B7F15CA74ED14DDF094BC81FC52C029FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857641   (1059909) от 06.03.2026
 
 VA - Women of Jazz '26 (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
@@ -688,64 +746,6 @@ B.B. & The Blues Shacks - Blues Is A Stew (2026) [FLAC 24/48|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C557251ACE9212F11558C6D78F58F034F77FB6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856056   (1058561) от 26.02.2026
-
-Duke Robillard feat. his All Star Band - Blast Off! (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  When I Get Lucky (2:51)
-02.  I'll Be Glad When You're Dead (You Rascal You) (5:49)
-03.  Feel My Cares (4:44)
-04.  Lowdown (4:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A388076112CC35A53BBF026C03CED44E74A3AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856057   (1058560) от 26.02.2026
-
-Ed Alstrom - This Idea of Humanity (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Put You First (3:28)
-02.  All I'm Gonna Do (3:43)
-03.  Humans (3:39)
-04.  Nothing Good to Say (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12131B8A3C63910D4AC6483247A77068A8D6B1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

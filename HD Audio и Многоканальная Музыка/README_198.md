@@ -1,3 +1,148 @@
+###  Публикация: 1792642   (67577) от 20.04.2025
+
+Black Stone Cherry - This is Black Stone Cherry's RSD album. The band really likes it. (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Horse (feat. John Cooper of Skillet and Ayron Jones) [00:03:43]
+02. Out Of Pocket (feat. Jesse Leach) [00:03:09]
+03. What's Love Got To Do With It [00:03:19]
+04. Give Me One Reason (The Plug) (Acoustic) [00:03:34](   Читать дальше...   )Жанр: Southern Rock, Hard Rock, Post-GrungeПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E895DE44F1A3DA816F25101E9632AC86135ED267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792497   (67576) от 20.04.2025
+
+George Grigoriu - Odata Cu Cintecul (1977) Melodii De George Grigoriu [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67576.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Angela Ciochina - Odata Cu Cintecul
+A2 Mi-a Batut - Primavara-n Geam
+A3 Mihaela Runceanu - Sperante-vis, Sperante-flori
+A4 George Sava - Se Scalda Ceru-n Ochii Tai(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB15464D342D3BC85CEEECD10D9948E7F95A4557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792533   (67571) от 20.04.2025
+
+Brainstorm - Metus Mortis (2001) Reissue, 2023, Metal Blade Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67571.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Metus Mortis
+A2 - Blind Suffering
+A3 - Shadowland
+A4 - Checkmate In Red(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A615CE996BCC238839902418F1E4125016772C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792932   (67570) от 22.04.2025
+
+Dhune - Agony Tool (2025) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Dirt [00:03:47]
+02. Bite Me [00:05:02]
+03. We'll Disappear [00:04:09]
+04. Agony Tool [00:04:57](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDB066C486C17708E06FDC7707FEDD1BA9ACB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792939   (67565) от 22.04.2025
+
+Party Pupils - Virtual Clarity (2025) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Believe In Love
+02 – Tokyo Blur
+03 – Hiya
+04 – White Light(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FA3AB12AF904046D395EE5B0813984414171ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793117   (67556) от 22.04.2025
 
 Robin Trower - Come And Find Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -595,151 +740,6 @@ Hilastherion - метал-группа из Ваасы, Финляндия, ос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F29F081AB93076B68DF849FC02E47D19B6AEA357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793385   (67494) от 24.04.2025
-
-Darkness By Oath - Studio Albums (4 releases) (2005-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkness By Oath - испанская метал-группа. Основана в 2002 году в г. Аррасате.2005 - Confidential World Of Lies
-2009 - Fear Yourself
-2012 - Near Death Experience
-2014 - Seeds Of DesolationЖанр: Melodic Death MetalПродолжительность: 02:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9CC669AC4F7ED6ACA7CC188939FC64EB106332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792906   (67493) от 24.04.2025
-
-Fractal Gates - Studio Albums (4 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fractal Gates - французская метал-группа, образована в Париже в 2007 году.2009 - Altered State Of Consciousness
-2013 - Beyond The Self
-2018 - The Light That Shines
-2024 - One With DawnЖанр: Progressive Melodic Death MetalПродолжительность: 03:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB10FA859A3C6C71F719489FD8DD642742800F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793640   (67485) от 25.04.2025
-
-DS2 - Electro Swing Dance (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  dancing swing (3:27)
-02.  Party Party Party (2:41)
-03.  Dance Party Swing Electro (3:09)
-04.  Jazz Swing Electro (1:46)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9535C0B9D0A2A665405C1001C7472030F12759A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793705   (67484) от 25.04.2025
-
-Russ Ballard - Songs From The Warehouse - The Hits Rewired (2025) 2 x CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67484.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
- 01 - Resurrection (03:17)
- 02 - Courageous (03:15)
- 03 - Journey Man (03:24)(   Читать дальше...   )Жанр: RockПродолжительность: 01:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01566844DD2CF3A3B9B0B534F20A19E2096DA2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793663   (67467) от 25.04.2025
-
-Dream Theater - Images And Words (1992) Reissue, 2025, ATCO Records [DSD256|tracks|Vinyl-Rip] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67467.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Pull Me Under
-A2 Another Day
-A3 Take The Time
-A4 Surrounded(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F0899C816A414499DC90BEAE3635FFEA00D1B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

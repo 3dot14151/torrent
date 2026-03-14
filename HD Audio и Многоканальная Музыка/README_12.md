@@ -1,3 +1,149 @@
+###  Публикация: 1000790   (857180) от 26.03.2016
+
+Electric Light Orchestra - Time (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (1:15)
+02. Twilight (3:37)
+03. Yours Truly, 2095 (3:17)
+04. Ticket to the Moon (4:07)(   Читать дальше...   )Производство: Jet Records - 25AP 2111(JT)Жанр: Progressive RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9F84897677346A07E5D1305DA4DE691DA79362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109802   (855326) от 01.03.2017
+
+VA - RETROспектива, часть XIII. Мелодии и песни из кинофильмов II (1947-1963) [[FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гуальтиеро Мизиано - Кумаре-кумарелла (песня из к.ф. ''Утраченные грёзы'')
+02. Михаил Новохижин - Родной мой завода (песня из к.ф. ''Неподдающиеся'')
+03. Майя Кристалинская - Два берега (песня из к.ф. ''Жажда'')
+04. Инстр квартет п.у. В. Дмитриева - Мелодия из к.ф. ''Там где кончается асфальт''(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9A096CFC57AE241C8735C91A2EB5DAA27A2000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110192   (853604) от 02.03.2017
+
+Ken Hensley - Proud Words On A Dusty Shelf (1973) [WavPack|192/32|image+.cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Кена Хенсли (Ken Hensley) навсегда войдет в историю рок-музыки XX века как первого настоящего хитмейкера классической британской хард-роковой сцены 70-х. Безусловно, миллионы рок-поклонников видят в Кене прежде всего фактического музыкального лидера и харизматического клавишника и гитариста рок-монстров Uriah Heep периода 1970 — 1980 гг.
+Десять последующих лет (   Читать дальше...   )01. When Evening Comes (4:40)
+02. From Time To Time (3:45)
+03. King Without A Throne (3:58)
+04. Rain (3:18)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FD3C6E85140FE239F14BF4C99B443B5DD2EAE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001585   (852186) от 29.03.2016
+
+VA - The Great Singers Of The Jazz/Големите Вокалисти На Джаза (1977) [FLAC 2.0|96/24|tracks+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ella Fitzgerald - A Tisket, A Tasket
+02. Ella Fitzgerald - Undecided
+03. Ella Fitzgerald - Flying Home
+04. Ella Fitzgerald - Smooth Sailing(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E98D6DAB0D5FE1BA5F019FD1F8D46D7635B033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110767   (851754) от 03.03.2017
+
+Sam Brown - Stop! (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851754.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Walking Back To Me (3:43)
+A2. Your Love Is All (4:10)
+A3. Stop (4:56)
+A4. It Makes Me Wonder (4:36)(   Читать дальше...   )Производство: A&M Records - 395 195-1Жанр: RockПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D7B74C9687207F5BCF687A193EC843CBB9B74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498981   (851019) от 30.09.2021
 
 Кино - Ночь (1986) 2LP Reissue 2021 [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <New Wave, Alternative Rock, Post-Punk>
@@ -594,157 +740,6 @@ Gordon Jenkins - Johny Mercer(   Читать дальше...   )Жанр: Jazz�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F460D95A1A04D01DC062104C8D7FDD41FE675D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 772304   (834257) от 03.04.2014
-
-Queen - News Of The World (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. We Will Rock You  2:03
-2. We Are The Champions  3:00
-3. Sheer Heart Attack 3:27
-4. All Dead, All Dead  3:10
-5. Spread Your Wings  4:35
-6. Fight From The Inside  3:05
-Сторона 2
-1. Get Down, Make Love  3:53
-2. Sleeping On The Sidewalk  3:08(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97472E7B1ABF53E64E1FC11981E5C04A9A743F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005102   (834167) от 08.04.2016
-
-Puhdys / Пудис (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834167.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Когда Умирают Мечты · Wenn Träume Sterben
-A2	Ловцы Жемчуга · Perlenfischer
-A3	Буревестник · Sturmvogel
- A4	Время Жизни · Lebenszeit(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2D5BE717D6373C7BB06333885474E005AA24AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501854   (833536) от 11.10.2021
-
-Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Space Rock, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atomic (Remixed Extended Version) [00:05:09]
-02. Radiate (Remix) [00:04:22]
-03. Radio Station (Extended Version) [00:05:02]
-04. Ideomatic (Remix) [00:04:16](   Читать дальше...   )Жанр: Space Rock, ElectronicФормат: Vinyl-RipПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C2BEE7F702FC9B9A276E71CF3A260976E24919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380462   (832949) от 03.05.2020
-
-Frank Sinatra - My Way (1969/1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832949.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Watch What Happens (from ''The Umbrellds of Cherbourg'')
-Norman Gimbel, Michel Legrand, Jaques Demy
-A2. Didn't We
-Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380624   (832820) от 03.05.2020
-
-The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss You (4:49)
- 02. When the Whip Comes Down (4:21)
- 03. Imagination (4:39)
- 04. Some Girls (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

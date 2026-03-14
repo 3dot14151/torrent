@@ -1,3 +1,206 @@
+###  Публикация: 995240   (884700) от 11.03.2016
+
+VA - Relaxez-vous (2016) [MP3|320 кб/с] <Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicolas Dri - Pleine Lune
+02. Michael Goldberg - Calme apres la tempete
+03. Nicolas Dri - Unite naturelle
+04. Michael Goldberg - eclaircie(   Читать дальше...   )Жанр: LoungeПродолжительность: 05:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57E34F750EF5DF123B361AE72B76E734EB11FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995587   (884623) от 11.03.2016
+
+VA - Блатная жизнь с радио Шансон (2016) [MP3|256-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884623.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анатолий Полотно & Федя Карманов - Живите-Здравствуйте
+002. Сергей Сорокин - Цепи
+003. Александр Куданов - Знаю
+004. Андрей Дубов - Начинается Путь(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E2F919D2F307A8EB1F960CF62B2852FC7C9C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995421   (884492) от 11.03.2016
+
+VA - Jazz Juice: Vocal Compilation (2016) [MP3|320 кб/с] <Jazz, Modern jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884492.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Queen Latifah - Dont Cry Baby
+002. Ledisi - Blues In the Night
+003. Etta James - Stormy Weather
+004. Cassandra Wilson - I've Grown Accustomed to His Face(   Читать дальше...   )Жанр: Jazz, Modern jazz, BluesПродолжительность: 07:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B5AA8B72CB3F86EA54DC4C0ED6BEBD146EF26E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995598   (884219) от 11.03.2016
+
+VA - Guitar Collection 3 (2016) [MP3|320 кб/с] <Instrumental, Blues-Rock, Acoustic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Granfelt Band - The Dream  04:50
+02. Ben Granfelt Band - Instrumental Madness  04:07
+03. Snowy White & The White Flames - Whiteflames Blues  04:35
+04. C. Williams & J. Franklin - Rome  05:59(   Читать дальше...   )Жанр: Instrumental, Blues-Rock, AcousticПродолжительность: 05:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA3592C79408E7C3A05B9290F1335152FFC861C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994856   (883809) от 11.03.2016
+
+VA - Powerful 100 Hits Delight (2016) [MP3|256-320 кб/с] <Indie Dance, Club, Progressive, Nu Disco, Bigroom, Hands Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883809.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wildones Feat. David Julien - You Dancing (Inpetto Remix).mp3
+002. Krankbrother - When You Are Watching Me.mp3
+003. Solid Stone - Signs Of The Future.mp3
+004. Tinarm - We Love The Sky (Edm Radio Mix).mp3(   Читать дальше...   )Жанр: Indie Dance, Club, Progressive, Nu Disco, Bigroom, Hands UpПродолжительность: 07:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C19A111E47E322653BD09A7F3A1B4C8EA0A2D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994747   (883807) от 11.03.2016
+
+VA - Absolute Dance Spring (2016) [MP3|320 кб/с] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M - Work It (Club Mix)
+02. Aqualoop Allstars - You Take Me Away (DJ Fait Remix)
+03. Benny Benassi & Vassy - Even If (Radio Edit)
+04. Calvin Harris & Disciples - How Deep Is Your Love (Oguzhan Guzelderen Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B0DA2F6CDF615385FD199080617643C1496671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995436   (883805) от 11.03.2016
+
+VA - Вспоминая СССР. По-новому о главном [6CD] от DON Music (2016) [MP3|320 кб/с] <Folk Rock, Punk Rock, Rock, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бряц-Band - СССР (04:26)
+02. Король и Шут - Коробейники (01:51)
+03. Пикник - Полюшко-поле (04:32)
+04. После 11 - Порушка-параня (02:36)(   Читать дальше...   )Жанр: Folk Rock, Punk Rock, Rock, PopПродолжительность: 07:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C1F1AE2368894674141863579390A345CBF9BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103792   (883647) от 13.02.2017
 
 VA - Dance 2017  [MP3|320 Kbps] <Electronic, Deep House>
@@ -539,209 +742,6 @@ VA - The Top Hits Insider (2016) [MP3|257-320 кб/с] <Progressive, Nu-Disco, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEA2842DA02B38D68DC8B3F77FBB4F1D0644B4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995983   (882846) от 12.03.2016
-
-VA - German Top 100 Single Charts (14.03.2016) [MP3|256-320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882846.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker - Faded
-002. Stereoact - Die immer lacht (Radio 2016 Mix) (feat. Kerstin Ott)
-003. Twenty One Pilots - Stressed Out
-004. Jonas Blue feat. Dakota - Fast Car(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B671A9CA0D07DA620187A4917DEC0C9C1B533F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995642   (882845) от 12.03.2016
-
-VA - Давай, наливай. Выпуск 2 (2016) [MP3|256 кб/с] <Pop, Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882845.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Кирсс - Знал Бы
-002. Игорь Крылов - Кабацкий Роман
-003. Александр Куданов - Моя Светлана
-004. Татьяна Маргай - Загадай Меня(   Читать дальше...   )Жанр: Pop, ШансонПродолжительность: 06:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C0D9ABC8046C958F7F7162CDCD26C7BD7D6926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995673   (882843) от 12.03.2016
-
-VA - Весенняя сотка любимой музыки. Часть 6 (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882843.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rasmus Skott - Acted Show
-002. Сергей Сумачаков - Похожи
-003. Рената Штифель - Конец Фильма
-004. Lenachka - Breaking Down(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C518013456D160C29ABEBB3B2F6C5037F64025D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995859   (882699) от 12.03.2016
-
-VA - Amnezia Super Hits 01 (2016) [MP3|320 кб/с] <EuroDance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob & Chris - Zeitmaschine (90s Mix) 02:23
-02. Dr.Alban ft. Haddaway, FrancaMorgano & Katja Bredahl - Volcano 03:44
-03. Twenty 4 Seven ft. Stay-C & Li-Ann - Slave To The Music (Housemaxx Edit) 03:46
-04. E-Rotic - Video Starlet 03:28(   Читать дальше...   )Жанр: EuroDanceПродолжительность: 03:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EEEEB4839F67FCBF6BC63058F1424401F1A45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995725   (882690) от 12.03.2016
-
-VA - Billboard Hot 100 (2016-03-05) (2016) [MP3|320 кб/с] <Pop, Euro, Indie, Folk, Hip-Hop, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882690.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rihanna - Work (Feat. Drake) .mp3
-002. Justin Bieber - Love Yourself  .mp3
-003. Twenty One Pilots - Stressed Out .mp3
-004. Justin Bieber - Sorry .mp3(   Читать дальше...   )Жанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7C82FC1708F5D92CBC83EEA8433290337047D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995959   (882468) от 12.03.2016
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 25 ) (2016) [MP3|196-320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon Ray - Comanchero (Fuzzdead Reboot) (02:59)
-02. Ace Of Base - Beautiful Life (Alchemist Project Mix ) (04:30)
-03. Fancy - Sail Away (Standing Alone Mix) (06:05)
-04. Kate Ryan - Voyage Voyage (Dj.Svn Version) (05:04)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27580BF1B6AADF123815C94B05F8DF50FE94D408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995855   (882400) от 12.03.2016
-
-Screamin' Jay Hawkins - I Put A Spell On You: Screamin' Years(2016) 2CD [MP3|319-320 кб/с] <Blues, Rhythn'n'Blues, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гений, опередивший время... да и живший, собственно, вне этого времени...В числе тех, кого можно считать его учениками и последователями - Том Уэйтс, Ник Кэйв, Артур Браун, Элис Купер, Оззи Осборн... может, кого-то еще я и упустил... Его "I Put A Spell On You" перепета в самых разнообразных версиях сотни... тысячи раз... кто ее только не пел - от Нины Симон (   Читать дальше...   )01. I Put A Spell On You
-02. She Put The Whamee On Me
-03. What That Is
-04. This Is All(   Читать дальше...   )Жанр: Blues, Rhythn'n'Blues, SoulПродолжительность: 06:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0977A5F44AE1429477C1796833940A419DDC0A5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

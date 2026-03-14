@@ -1,3 +1,32 @@
+###  Публикация: 1371211   (891744) от 30.03.2020
+
+The Rolling Stones - 100% The Rolling Stones (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme Shelter
+02. Paint It, Black
+03. It's All Over Now
+04. Brown Sugar(   Читать дальше...   )Жанр: RockПродолжительность: 03:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D4DEC2557F4AB614917B40F40738046D6E9E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370821   (891661) от 30.03.2020
 
 Rammstein - Remixes (2020) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Harte>
@@ -719,35 +748,6 @@ VA - Acoustic Rock vol.1 (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:291E6E5540B3997130829D391DEF216BB747F269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374272   (874120) от 09.04.2020
-
-VA - Русский Рок ревью 2020 [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874120.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Estradarada - Чемпион (3:16)
-2.Port Avenue - Прятки (3:50)
-3.Rooftops - Джоинт (3:06)
-4.Total & CHERKUNOVA - Бойцы (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33DF4EDEBCBA5494A7B0060FA412E7E7B2769A05
 ```
 
 https://mybot314.ru/tekegram_catalog/

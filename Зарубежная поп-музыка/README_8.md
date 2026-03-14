@@ -1,3 +1,32 @@
+###  Публикация: 1361896   (952253) от 21.02.2020
+
+Таисия Повалий - Ейфорія (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952253.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дай мені любов
+2. Ейфорія
+3. Алло
+4. Я його вдихаю(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E80C23181341C33BA43DFDB4EDFE02E6D708377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362071   (950820) от 22.02.2020
 
 VA - 100 Greatest Covers (2020) [MP3|320 Kbps] <Pop>
@@ -714,35 +743,6 @@ Demi Lovato - 5 альбомов (1998-2015) [MP3|192-320 кб/с] <Pop, Pop-Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA83BECCF195798AE7F735737CD7BFA3E91550CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988987   (918959) от 21.02.2016
-
-Arabesque - The Magic of Arabesque (2016) [MP3|320 kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Mr. Monkey 3:28
-02. Someone Is Waiting For You 4:04
-03. Six Times A Day 3:12
-04. Buggy Boy 2:56(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A4DECB2A38CB748FEA2C0FAB98D834921EEFB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

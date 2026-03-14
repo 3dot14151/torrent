@@ -1,3 +1,90 @@
+###  Публикация: 1599874   (159386) от 25.12.2022
+
+Donald Byrd & Pepper Adams - The Complete Blue Note Donald Byrd/Pepper Adams Studio Sessions (1958 - 1967) 4CD, 2000, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159386.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lover Come Back To Me [6:52]
+02. When Your Love Has Gone [5:04]
+03. Sudwest Funk [6:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 04:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C1EA5860425684AD4D4CB67EB9C959F653766E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675974   (159373) от 11.11.2023
+
+Michel Sardaby - In New York (1972) 1997, Sound Hills Records [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Panther of Antigny [8:24]
+02. Waltz for My Father [4:39]
+03. Love Love and Dream [10:10]
+04. Martinica [5:49](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6B514CE56FE9AEAAA9E4284B9EBBBBB23C1D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675991   (159350) от 11.11.2023
+
+Stacey Kent - Summer Me, Winter Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Me, Winter Me
+02. La valse des lilas
+03. Thinking About the Rain
+04. Under Paris Skies(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB103D92EE7C2315FE5BC9917347F877D93702FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675997   (159337) от 11.11.2023
 
 Dave Stewart & Hannah Koppenburg - Cloud Walking (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -657,93 +744,6 @@ Archie Shepp Quartet - I Didn't Know About You (1990) 2015, Timeless Records[FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB04D94C3732F9A42192055ABE3258C2FBA0A2FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600440   (157197) от 27.12.2022
-
-Stacey Kent feat. Art Hirahara - Songs From Other Places (2022) Special Edition [FLAC|192/24|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish I Could Go Travelling Again
-02. Bonita
-03. Craigie Burn
-04. Les Voyages(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BC7720CA8A8BA3813F89A006AFB7677BF06529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085496   (157040) от 22.12.2016
-
-Doc Cheatham - The Eighty-Seven Years Of Doc Cheatham (1993) Columbia[APE|Lossless|tracks + .cue] <Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.That's My Home [06:08]
- 02.Okay, Baby [03:14]
- 03.Love You Madly [03:18]
- 04.Blues In My Heart [04:25](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F613FE6C233006DB83B231FE5C59DE6A9CD316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085503   (157026) от 22.12.2016
-
-The J.J. Johnson Quintet - J Is For Jazz (1956) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Naptown USA [05:05]
- 02.It Might As Well Be Spring [04:51]
- 03.Tumbling Tumbleweeds [04:18]
- 04.Angel Eyes [03:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C870F23EF87AA9622F9CAFA07D8D065ECF6C8154
 ```
 
 https://mybot314.ru/tekegram_catalog/

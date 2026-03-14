@@ -1,3 +1,235 @@
+###  Публикация: 1375657   (865609) от 14.04.2020
+
+VA - From Fitness To Dance (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ronnie Joy - Bring The Noise (Deep House Melody Edit)
+02. House Beats - Crazy Funky Dunky! (Party House Edit)
+03. Pete Lover - Miami Miami (Piano House Edit)
+04. Bokka Project - Up And Down (Club Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3D48AD1DBE0A6BF22C2184CD84C6690C583701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108029   (864748) от 24.02.2017
+
+VA - Deep House Stewardess Vol.2 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864748.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Justicia - Aurora 5:36
+002. Hector Cooper - Sun Is Shining 5:31
+003. Lou Der - The Party - Max Volkholz Remix 5:38
+004. Andrea Ferri - Last Minute Fly 5:57(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C287534BE4EA2466C624B0DAC44C8761E76D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108274   (864745) от 24.02.2017
+
+VA - Cold and Deep #13 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Echodust - Storm - Jonse & Bengt Van Steegen Remix 6:25
+002. HUGEL - Coming Home - Pingpong Remix 5:29
+003. Toru S. - Sing Another Song Baby 8:28
+004. LeSale - Phantom Vibes 6:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505906D9E8004CD3C20A574624ED3DBCE82FA72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108243   (864744) от 24.02.2017
+
+VA - Morning Conversation Vol.8 Black Deep (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864744.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Escadia - Make It Hot 5:50
+002. Alex Mytton - Letters - Aevion Remix 3:58
+003. Mario Chris - FeelGood 5:06
+004. Block! - Ride Like The Wind - Sweet Side Lake Remix 5:24(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B09D347C238115D3F5E0AF8F5BD0C708DABD41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108230   (864742) от 24.02.2017
+
+VA - Finest Groovy House Music Vol.26 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wlady - Fuente  5:22
+02.  Charlie Roennez - House Healed Me  7:17
+03.  Ron Carroll - Fantasy (Dan Van & Adam Fierce Remix)  6:10
+04.  Benny Camaro & Roberto Ferro - Please  5:07(   Читать дальше...   )Жанр: HouseПродолжительность: 01:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E57E3B1FC6FAABF6FA412698003057E48F5ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108028   (864732) от 24.02.2017
+
+VA - This Is My Church Vol.2: The Deep-House Edition (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864732.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lisa Reinhard - Take My Heart - Original Mix 3:11
+002. Mackenzie Burns - Never Be Bad - Original Mix 4:10
+003. Juicy Lotta - Get Down - Original Mix 6:49
+004. Evie Moore - Savana Life - Original Mix 3:23(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2E7839EC58E81BBBE6896BE433A92604E23380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108348   (864632) от 24.02.2017
+
+VA - Deep House Edition  № 009 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864632.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Felix & Gianx - Hot Blooded 4:43
+002. Jaques Le Noir - Be Together 5:17
+003. Damon Grey - Don't Stop 4:50
+004. Morgan Dora - Highway To Sunshine 5:20(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E08CF1BFAB44F70C86ECBC9282C26A6B0E06F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108886   (861083) от 26.02.2017
+
+VA - House Ladies Vol.1 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861083.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amorhouse - Habla! - Amorhouse & Fennel Club Vocal 5:48
+002. Discorescuers - Pasticcino - Discorescuers Dub Vocal 7:19
+003. Antony Fennel - Je T'aime - Club Mix 6:38
+004. Fabietto Cataneo - Saxy Fashion - Instrumental Mix 4:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3C9ED270A1A030FEA044DEDD606F877726F1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108743   (861077) от 26.02.2017
 
 VA - Deep House Connection Vol.2 Night Selection (2017) [MP3|320 Kbps] <Deep House>
@@ -513,238 +745,6 @@ VA - Balearic Daylight Bar Vol.1 (Balearic Hang Out Tunes) (2017) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55B77896AE03E98367E22A2D9050D21C7FF98C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109513   (857286) от 28.02.2017
-
-VA - IBIZA Deep: The Deep House Opening Party 2017 (60 Hot Summer Tunes) (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857286.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. House of Coco - Give Me Your Hand 3:45
-002. Stefan Pascho - Erase the Fear 3:26
-003. KayJay - Everyone's A Winner 2:58
-004. Soul Express - World Master 3:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509805C00A0956543B0D6D218FDE5F1AC11E52AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109510   (857229) от 28.02.2017
-
-VA - Deep House Relax (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857229.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brooke Stonebridge - I Want to Know What Love Is - Seashell Dub Mix 3:39
-002. Sarah Carlsson - Thank You - Deep & Chic Remix 3:45
-003. Michael Ribeira - La Luna - Gypsetter Mix 3:07
-004. Kandi & Fitch - White Send Beach - Sunset Edit 4:02(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A394CBC0B2F08D6CD78512000520EBE59ED608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376830   (856902) от 19.04.2020
-
-VA - Ibiza House Sexy (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856902.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Third Deed - Mechanical Suicide (4:17)
-2.Branzei - Feel Real Funky (4:34)
-3.Younus Sakoor - Karamate (Original Mix) (6:26)
-4.Tekkaman - Pilltrill (Space Mix) (6:22)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44ABC64821891B5D15DB1B6757A7F4CA8F8E4417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376851   (856774) от 19.04.2020
-
-VA - Erotic Chill (2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856774.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.THP - The Time Is Coming (4:57)
-2.Lost Dreams - Supreme Gil (3:48)
-3.L D V Project - Gonna Fly Now (6:29)
-4.Connor Evans - Antidax (5:21)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BD671B73C22F74A2942C29C93DF82DECD277D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109944   (855680) от 01.03.2017
-
-VA - Ibiza Beach House Club Royale (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mojety - First Nations [00:06:22]
-02. Tony Mirianda - Mbira [00:04:57]
-03. Punch and Glue - Scoop [00:04:32]
-04. Belize - Caribbean Cocktail [00:05:22](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560E4E26A8612585591B2A3FF3321AECCA4029BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110081   (855669) от 01.03.2017
-
-VA - Deep House Republic Vol.2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855669.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andres Newman - Children - Deeper Mix 3:50
-002. ArtSpace - Far Away - Paradise Mix 4:11
-003. KTB - Another Day in Paradise - Highpass Remix 4:53
-004. Rico Van Basten - Take on Me 3:10(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816B983AD47C31D04E6B2891808D42A5701D71C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109945   (855612) от 01.03.2017
-
-VA - Welcome EDM Vol.9 (2017) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Simon Delf - Down (Original Mix)  5:08
-02.  Twinkle Sound - Future Strings (Original Mix)  4:21
-03.  Twinkle Sound - Fly (Original Mix)  3:15
-04.  Essiuah - Tik Tok (Original Mix)  5:21(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F194D83FD3436A1D9ABF495AB8268E7FF220BB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110398   (853809) от 02.03.2017
-
-VA - Mout: Deep Spirit Vol.8 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853809.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Philip Bader - Rootsa - Lee Jones Remix 7:41
-002. Ltzenkirchen - Out of My Head - Ill-Boy Phil & Sebastian Fleischer Remix 6:12
-003. Steve Rachmad - Secret Life of the Machines - Klartraum Remix 7:49
-004. Dirty Doering - I Would - Marcus Meinhardt Remix 7:43(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EC9B2C08C96D8E737A43F3FA1310A37AB92ED3
 ```
 
 https://mybot314.ru/tekegram_catalog/

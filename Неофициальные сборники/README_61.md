@@ -1,3 +1,87 @@
+###  Публикация: 979225   (961057) от 25.01.2016
+
+VA - Bass House Grooves Sense (2016) [MP3|230-320 кб/с] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961057.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dimitri Vegas & Like Mike Feat. Ne-Yo - Higher Place (Afrojack Instrumental Remix) [05:58]
+002. Toby Green - Move [02:32]
+003. Twenty Feet Down Feat. Krista Richards - Love Right Here (Omr & Adry Remix) [05:33]
+004. Gabriele Giudici - Revolve [04:22](   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 10:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCD1C35E9F86F09CC919000B713118A84524D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 253400   (960986) от 20.01.2014
+
+VA - Музыка любви - 5CD (2008) [MP3|320 kbps] <Other, Romantic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Other, RomanticПродолжительность: 05:49:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 855345   (960974) от 02.01.2015
+
+Accept - Heavy Ballads (2015) 2CD [MP3|320 кб/с]<Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Seawinds
+02 - Drifting apart
+03 - Pomp and circumstance
+04 - Just by my own(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DFAC8E80D7E9B23E03C80590BECFA2DE7A5CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978694   (960941) от 25.01.2016
 
 VA - Зимний Муз-драйв 100-ка популярной музыки (2016) [MP3|256-320 кб/с] <Pop>
@@ -666,93 +750,6 @@ VA - Sexy Deep House Session (2016) [MP3|320 кб/с] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FB6D06F6E8E08B5CF344F5EC1D51E76AB68F42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979941   (957409) от 28.01.2016
-
-VA - Atmosphere Bliss: Vocal And Uplifting Trance (2016) [MP3|320 кб/с] <Vocal, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957409.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beat Service - Reach The Sun (Chris SX Edit)
-002. Denise Rivera - The Day (Radio Edit)
-003. Dan Chase - Life Won't Let Us Fall (Radio Edit)
-004. Katty Heath - Love Again (Radio Edit)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 09:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6943F56C88933278292C7A6FC9D5E7734B8CED82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748527   (957306) от 23.01.2014
-
-Joy - 25 Best Songs (2012) [MP3|~245 кб/с]<Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello 1986
-02. Touch By Touch 1986
-03. Cheek To Cheek 1986
-04. Fire In The Night 1986(   Читать дальше...   )Жанр: EurodanceПродолжительность: 01:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F60504DAB09BB21822101AAF338805C608E0BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980014   (957218) от 28.01.2016
-
-VA - Space And Time (2016) [MP3|320 кб/с] <Disco, Electonic, Space rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geraldine Cordeau - Space And Time `84 (5:29)
-02. Logic System - Orient Express `82 (4:14)
-03. Kraftwerk - Spacelab `78 (5:55)
-04. Supersempfft - Roboterwerke `79 (4:31)(   Читать дальше...   )Жанр: Disco, Electonic, Space rockПродолжительность: 05:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41394E2B7E762DC3403BFC5FF633E5194E2E3F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

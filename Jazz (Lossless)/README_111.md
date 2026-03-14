@@ -1,3 +1,90 @@
+###  Публикация: 1290456   (678614) от 20.03.2019
+
+Masahiko Sato - All-In, All-Out (1979) 1991, Sony Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sapajou Walk [6:19]
+02. Grama Grass [7:36]
+03. Salamander [6:28]
+04. Moth Ball [4:26](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A37E62DD7437882E283573FAA69E23CC2CF6FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536120   (678532) от 10.03.2022
+
+Buddy Rich - The Absolutely Essential 3 CD Collection (1930-е - 1960-е) 3CD, 2016, Big3 [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678532.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jim Jam Stomp [2:49]
+02. The Carioca [4:04]
+03. One O'Clock Jump [3:24](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703A2982E591C598DCF29D98EF7664CC0DBDFDD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290389   (678494) от 20.03.2019
+
+Phronesis - We Are All (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678494.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One for Us (09:02)
+2. Matrix for D.A. (07:05)
+3. The Edge (05:57)
+4. Emerald Horseshoe (05:30)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2958B3CEB5CFB1BED0D410CDD18915FBFB8232D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290288   (678493) от 20.03.2019
 
 Susie Arioli - Christmas Dreaming (2010) Spectra Musique [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
@@ -670,93 +757,6 @@ Bo Kaspers Orkester - Hittills (1999) [FLAC|Lossless|tracks + .cue] <Smooth Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A47A6A1306CDA4EBD9C6B6A0CEA64CB3549BE636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029975   (676408) от 29.06.2016
-
-Tim Bowman - Smile (2000) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart & Soul [04:34]
-02. Smile [04:13]
-03. Happiness Is [05:06]
-04. Wanda Patrice [03:50](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C6DBC66B4186AF7A23DED349D1B35755F0AEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290690   (676326) от 21.03.2019
-
-VA - Bossa Nova for a Summer Day (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rien que je changerais - Papik, Francesca Gramegna 04:06
-02 Dawn Pye - Hammond Express 05:48
-03 How High the Moon - Ida Landsberg, Marco guidolotti, Domenico Sanna, Simone Salvatore, Dario Rosciglione, Andrea Nunzi 03:40
-04 I Guess I'll Have to Change My Plan - Christian Lisi, Swingin' Cats Jazz Quartet 03:42(   Читать дальше...   )Жанр: Jazz, Latin, LoungeПродолжительность: 01:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7DA7F8D1094F400F64C2B550F568CA92D72A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797739   (675541) от 19.06.2014
-
-Tony Bennett & Dave Brubeck - The White House Sessions, Live 1962 (2013) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [00:52]
-02. Take Five [05:27]
-03. Band Introduction [01:19]
-04. Nomad [11:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4F75E80A54978B6A1372B05276E1DE8CD50268
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1011935   (795502) от 29.04.2016
+
+VA - club.bit! (mixed by DJ Suhov) (2003) Promotional CD [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795502.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dino Lenny vs. The Housemartins - Change the World |06:46|
+2. Ceballos & DJ Chus - Afrika |07:15|
+3. DJ Chus & David Penn feat. Caterina - Baila |05:03|
+4. Niquid - Saxaphobia E.P. |04:44|(   Читать дальше...   )Жанр: HouseПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCDE48CFADB2FB5F61CB34FDDBD8AAC6BCA4BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011839   (795500) от 29.04.2016
+
+Matthias Meyer - Watergate 20 (2016) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kettenkarussell - Ten Friends (03:01)
+02. YokoO & Retza - Satori (04:27)
+03. Leafar Legov - Tribal Girls (04:29)
+04. Gorje Hewek & Izhevski - Torgoyakk (03:47)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC25229C14A2D7CC30608426BDA4FD70180982E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880429   (795232) от 28.05.2020
+
+Advanced Dreams - Collection 4 Releases (2013-2015) [FLAC|Lossless|WEB-DL]<Dub Techno, Ambient, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absent Presence (11:12)
+ 02. Adorable Reality (07:02)
+ 03. Blurred Trip (10:07)
+ 04. Waiting Of Landing (15:58)Тип издания: WebЖанр: Dub TechnoПродолжительность: 04:15:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AB40A1DBA69EC1DC282CBFF7B654F410986A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031490   (795108) от 28.05.2020
 
 Speedy J (Jochem Paap, Electric Deluxe, Public Energy, Tune, Problem House, Collabs, Zeitgeber) - Discography (1990-2020) Warp Records, NovaMute [FLAC|Lossless|tracks+.cue] Techno, IDM, Ambient
@@ -651,93 +738,6 @@ St. Concrete - Listen Past Me (2019) Modern Cathedrals [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F475CA595DFE1F0772BA876AB31428ACE333FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387359   (791851) от 01.06.2020
-
-Exos - Indigo (2020) Figure [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reincarnation (03:22)
-02. Í skjóli nætur (04:16)
-03. Sælu-reitur (06:13)
-04. Quod Arcanum Leticia (05:49)(   Читать дальше...   )Жанр: Dub Techno, Techno, AmbientПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F6451062C28B5F78B741AE2BF2657323E859A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387273   (791850) от 01.06.2020
-
-Ferrein - Valentine (2016) Echotourist [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterglow (08:05)
-02. Field (05:22)
-03. Grow (05:28)
-04. Noone (05:39)(   Читать дальше...   )Жанр: Dub Techno, Ambient, ExperimentalПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAAC08827470B1E5163E7462C24A2613A67B75DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387468   (791848) от 01.06.2020
-
-Aura Minimum - Mysterious Segments (2020) Modern Nature [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Segment I (11:56)
- 02. Segment II (13:52)
- 03. Segment III (12:00)
- 04. Segment IV (13:40)Жанр: Dub Techno, AmbientПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DA3C7B9A94E0B654D806C96B7398835D22F937
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1765798   (34063) от 15.12.2024
+
+VA - Compilation part 134 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumanov - Blind
+02. Dndm - Four Keys
+03. A-Sultan - Shock
+04. Davit Barqaia - The Fog is Coming(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83EABBE8D0D924D1A034980FFEE61B6AD50EBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769430   (32783) от 28.12.2024
 
 VA - Remixes 2025 (2024) [MP3|320 Kbps] <Club, Dance, Other>
@@ -712,35 +741,6 @@ VA - Compilation part 146 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0D9571A8ED4895A469B783F59AA31117ED275BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784382   (25015) от 11.03.2025
-
-VA - Compilation Part 147 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muvi - Species
-02. Jumanov - Be Careful
-03. Davit Barqaia - Listen to Me
-04. Jambeats - Drift Away(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E14B7605F72850DD962E83830C5361608CC4B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

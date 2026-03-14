@@ -1,3 +1,119 @@
+###  Публикация: 1709650   (60368) от 08.04.2024
+
+Guano Apes (& Sandra Nasic) - Studio Albums (9 releases) (1997-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock, Nu Metal, Funk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Guano Apes — альтернативный рок-квартет из Гёттингена, Германия, образованный в 1994 году.1997 - Proud Like A God
+2001 - Don't Give Me Names
+2003 - Walking On A Thin Line
+2004 - Planet Of The ApesЖанр: Alternative Rock, Nu Metal, Funk MetalПродолжительность: 08:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4460A371B31DC2FF4D462F7C943A889DEDF07AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519346   (60091) от 11.04.2024
+
+Five Finger Death Punch (5FDP; FFDP) - Studio Albums (11 releases) (2007-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Five Finger Death Punch  (с англ. — «Смертельный удар пятью пальцами», сокращённо 5FDP и FFDP) — американская грув-метал-группа, образованная в 2005 году в Лос-Анджелесе, Калифорния, Золтаном Батори, гитаристом венгерского происхождения, в прошлом — басиста U.P.O. Кроме Батори в состав группы входят бывший вокалист2007 - The Way Of The Fist
+2009 - War Is The Answer
+2011 - American Capitalist
+2013 - The Wrong Side of Heaven and The Righteous Side of Hell(   Читать дальше...   )Жанр: Groove metalПродолжительность: 10:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FA8ECD7604578E00BFA8BA1886F0A447926B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716321   (59611) от 15.04.2024
+
+Nolan Sisters - The Nolan Sisters (1979) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59611.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I'm In The Mood For Dancing
+A2 Spirit, Body And Soul
+A3 Out Of Love With Love
+A4 Bright Eyes(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07EC8D2C89127596138BE1695609EE8CF166CB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647037   (59085) от 20.04.2024
+
+My Dying Bride - Studio Albums (21 releases) (1991-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59085.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Dying Bride — дэт-дум-метал-группа из Англии, основанная в 1990 году.1991 - Symphonaire Infernus Et Spera Empyrium (EP)
+1992 - As The Flower Withers
+1992 - The Thrash Of Naked Limbs (EP)
+1993 - Turn Loose The SwansЖанр: Doom/Death MetalПродолжительность: 20:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847D0567323FD06FB4B96585F1D0A986E59A12B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595443   (58683) от 24.04.2024
 
 Art Of Anarchy - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-Grunge, Heavy Metal>
@@ -632,122 +748,6 @@ VA - Золотые хиты ХХ века 1 (2003) Unofficial Release [FLAC 2.0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13C2317F97E53DA0E87C14AF53A851A6A6D6D4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845272   (52732) от 20.06.2024
-
-Hot Hits (Cover versions of chart songs from 1971) - Round 8 (1971) [FLAC 2.0|24/192|image+.cue|Vinyl Rip]<Pop, Sound-Alike>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52732.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Surrender
-A2	Johnny Reggae
-A3	Look Around (And You'll Find Me There)
-A4	Jeepster(   Читать дальше...   )Жанр: Pop/Pop-RockПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E52343C307AF1F76EAF557F0D0A7B729BA2A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582250   (52614) от 21.06.2024
-
-Anthrax - Studio Albums (12 releases) (1983-2016) hand made [restored, declipped] <Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anthrax — американская метал-группа, играющая трэш-метал, спид-метал, а также грув-метал (позднее творчество). Основана в 1981 году в Нью-Йорке. Вместе с такими группами, как Slayer, Metallica и Megadeth, Anthrax входит в «большую четвёрку трэш-метала».1983 - Fistful Of Metal
-1985 - Spreading The Disease
-1987 - Among The Living
-1988 - State Of EuphoriaЖанр: Thrash/Groove MetalПродолжительность: 13:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C8D96A2A4136E21CFCA3EB687AF621513C0360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673285   (52084) от 02.10.2025
-
-Havok - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Havok — американская трэш-метал группа из Денвера, штат Колорадо. Основана в 2004 году.2009 - Burn
-2011 - Time Is Up
-2013 - Unnatural Selection
-2017 - ConformicideЖанр: Thrash MetalПродолжительность: 04:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC5911D7DEC647FFBAABEF25AFC6494DF00F3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568153   (52083) от 02.10.2025
-
-Within Temptation - Studio Albums (10 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Within Temptation — нидерландская симфоник-метал-группа. Группа была основана в 1996 году гитаристом Робертом Вестерхольтом и вокалисткой Шарон ден Адель. Музыкальный стиль Within Temptation определяют как симфоник-метал, а на ранних записях — готик-метал. Сама Шарон ден Адель считает, что Within Temptation работают в жанре симфоник-рок с разными влияниями и не являются (   Читать дальше...   )1997 - Enter
-1998 - The Dance (EP)
-2001 - Mother Earth
-2004 - The Silent ForceЖанр: Symphonic MetalПродолжительность: 10:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA239E1F5863B411FA77A4621A3C3498E95F03DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

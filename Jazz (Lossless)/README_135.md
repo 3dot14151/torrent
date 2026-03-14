@@ -1,3 +1,90 @@
+###  Публикация: 1232169   (602780) от 22.06.2018
+
+Tony Bennett - My Best To You (1982) Reissue 1995 [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Second Time Around
+02. I Wanna Be Around
+03. I Left My Heart In San Francisco
+04. For Once In My Life(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:121B9C18A0160D5435A59FA7A950FA41EBEDC3CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297983   (602679) от 25.04.2019
+
+Louis Hayes And The Cannonball Legacy Band - Dreamin' Of Cannonball (2002) TCB Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is This Thing Called Love [7:10]
+02. The Chant [5:51]
+03. Dat Dere [5:18]
+04. I Can't Get Started [7:32](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C9A2D977358B603545C3319EAC88F54DB0A244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149207   (602585) от 09.07.2017
+
+Carol Welsman - I Like Men: Reflections Of Miss Peggy Lee (2009) Welcar Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Like Men [02:38]
+02. Do I Love You [03:48]
+03. Lover [03:43]
+04. I Love Being Here With You [03:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C150BBC3ADE3F5D0C361CA4E56D0A1ECCA95895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547694   (602053) от 30.04.2022
 
 Red Mitchell & Jimmy Rowles - Red'N Me (1978) 1991, Dreyfus [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -658,93 +745,6 @@ The Gene Harris Quartet - It's The Real Soul (1996) Concord Jazz [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:708F1706B2A61863DD5F1ECEE8E2BC9FB1063A11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038970   (599804) от 30.07.2016
-
-The Bad Plus - Give (2004) Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.1979 Semi-Finalist [05:19]
- 02.Cheney Pinata [04:50]
- 03.Street Woman [03:59]
- 04.And Here We Test Our Powers Of Observation [04:23](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84EB2B39282AA00C302AC5703C432A751A1B88C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038967   (599695) от 30.07.2016
-
-Chet Baker & Philip Catherine - There'll Never Be Another You (1985) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Beatrice [14:59]
- 02.There'll Never Be Another You [10:20]
- 03.Leaving [17:27]
- 04.My Foolish Heart [16:11]Жанр: Cool, West Coast JazzПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E583444AEC8FEDDB885CDC774D3C53BFC236ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149804   (598637) от 12.07.2017
-
-Donald Byrd & Doug Watkins - The Transition Sessions (1955, 1956) 2CD, 2002, Capitol Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598637.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Doug's Blues [12:10]
-02. El Sino [10:06]
-03. Crazy Rhythm [07:38](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E173B96D0747E80766BA822BE19B118524181F6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

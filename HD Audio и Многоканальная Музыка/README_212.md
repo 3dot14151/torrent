@@ -1,3 +1,148 @@
+###  Публикация: 1807402   (65147) от 19.07.2025
+
+Forth Wanderers - The Longer This Goes On (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Know Me/To Love Me [00:02:34]
+02. Call You Back [00:02:06]
+03. Honey [00:03:03]
+04. 7 Months [00:02:32](   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2417D952511AE3A4DF597DD8AC5F7C9C1BA5A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807712   (65126) от 20.07.2025
+
+The Doobie Brothers - Walk This Road (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walk This Road (feat. Mavis Staples) (3:37)
+02.  Angels & Mercy (3:49)
+03.  Call Me (3:38)
+04.  Learn to Let Go (4:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8A1FE88728E8ABB9DF43E0D5B8E016E01963DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807735   (65107) от 20.07.2025
+
+Nefarious - Addicted to Power (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirror Death [00:06:18]
+02. Addicted to Power [00:05:43]
+03. Master Plan [00:04:22]
+04. Together We Rise [00:04:38](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A0E747351D2CBC5D0D3764BA5378908549645D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807700   (65106) от 20.07.2025
+
+Reed Turchi - World On Fire (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walk With Me (3:57)
+02.  When You've Got A Good Friend (3:52)
+03.  Get Back Train (2:36)
+04.  Lay My Burden Down (3:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6B395E6B956057CF7D1487AE6F8CFB74890EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807704   (65105) от 20.07.2025
+
+Robert Rice Jr - Breathe (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Ride (Intro) (2:15)
+02.  Sunjammer (5:00)
+03.  Robert Rice Jr - 84 Eastbound (6:21)
+04.  7 Day Weekend (4:29)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22533657275E6BA4C041828E728E72D8241E6CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807736   (65104) от 20.07.2025
 
 ТапОК, Женя Сычев - Навсегда 17 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Punk>
@@ -598,151 +743,6 @@ Huckleberry - Lets Get Drunk And Huck (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:609734BE838F2619710FA7B825A61FAD4BE7CBAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808129   (65021) от 22.07.2025
-
-Evan Arview - Deeper Still (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Movin' (3:13)
-02.  Learning How To Say Goodbye (Album Version) (5:03)
-03.  Nothing To Fear (4:39)
-04.  True (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8161FCB23BB0EABF199B00A0E82C4FFB6F7BC51A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808134   (65017) от 22.07.2025
-
-Fred and the Healers - No Escape (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The pulse (2:49)
-02.  Wise man (3:41)
-03.  Big bang (2:36)
-04.  Another fall (5:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F900B7019B79C5667CC98352D606D9CEBCA603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808128   (65016) от 22.07.2025
-
-Eric Essix - My Heartbeat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Heartbeat (3:51)
-02.  Gumbo (4:12)
-03.  Together Is Better (4:31)
-04.  Close To You (They Long To Be) Close To You (5:42)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177E1B34B22B945A70EAACCC923D8C3EF26716AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808147   (65015) от 22.07.2025
-
-Alex G - Headlights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. June Guitar [00:03:52]
-02. Real Thing [00:03:18]
-03. Afterlife [00:03:30]
-04. Beam Me Up [00:03:28](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3563468049A68D1706C657210EFA86CAE0AAF2F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808139   (65014) от 22.07.2025
-
-Iain Hornal - Return To The Magic Kingdom (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Bit More [00:03:32]
-02. Positive People [00:04:35]
-03. Already Dead [00:03:50]
-04. If It Were You [00:03:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20418A14F21A425D164261BE95F5F49610FC0184
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,156 @@
+###  Публикация: 1548105   (240902) от 02.05.2022
+
+Heterogeneous Andead - Chaotic Fragments (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Symphonic Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Void Sacrifice (00:04:48)
+02 - Fragments of Memories (00:08:25)
+03 - Last Reverie (00:05:23)
+04 - Beautiful Nightmare (00:06:53)(   Читать дальше...   )Жанр: Melodic Death, Symphonic MetalПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5AD0B1360D65298971E16B3A7336742020BD21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628127   (239404) от 21.04.2023
+
+Anthem - Crimson & Jet Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snake Eyes
+02. Wheels Of Fire
+03. Howling Days
+04. Roaring Vortex(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DA656208DB98AA2B1B4E082E429815D1E1B3FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634058   (233817) от 18.05.2023
+
+Anthem - Crimson & Jet Black (2023) Japanese Edition, 3xCD [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crimson and Jet Black (GQCS-91280):
+01. Snake Eyes
+02. Wheels of Fire
+03. Howling Days(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0C93B8ED9DA200B9CB3C0969576F9E6D2FD92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 735041   (229999) от 18.12.2013
+
+Swing Of the Dead - 1 альбом (2013) [FLAC|Lossless] <Touhou, Vocal, Doujin Ongaku, J-Pop, Jazz>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_229999.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:07] 01. ランコ - SA・TO・RI
+[05:04] 02. みぃ - Key-word
+[03:42] 03. IZNA - montage
+[03:48] 04. 桂琳 - 茜空
+[04:05] 05. みぃ - triangle
+[04:14] 06. IZNA - an Apple
+[03:07] 07. めらみぽっぷ - 涙目のうさぎちゃんЖанр: Touhou, Vocal, Doujin Ongaku, J-Pop, JazzПродолжительность: 00:00:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE4037753F52EAC3520367C641017994C82A0B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 735047   (229944) от 18.12.2013
+
+Analyze - — Endless Winter (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <J-Rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_229944.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:37] 01. 鉞丑 - Intermisson
+[03:22] 02. 鉞丑 - Deep and More
+[02:50] 03. 鉞丑 - Missing Border
+[03:17] 04. 鉞丑 - Withered Tales
+[03:07] 05. 鉞丑 - Truth
+[04:10] 06. 鉞丑 - Phantom Fantasy
+[03:03] 07. 鉞丑 - Bakko'n'Roll
+[01:00] 08. 鉞丑 - Snow Petal
+[03:09] 09. 鉞丑 - Endless WinterТип издания: DoujinЖанр: J-RockФормат: Touhou InstrumentalПродолжительность: 00:00:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70822457F52AD5791492DD7AEC9D71F40CBC2412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 735049   (229918) от 18.12.2013
 
 Mayhem and Melancholy - 1 альбом (2010) [FLAC|Lossless] <Touhou, Vocal, Doujin Ongaku, J-Pop>
@@ -648,154 +801,6 @@ Bloody Sword - 3 альбома (2011-2013) Touhou Vocal /Doujin/ [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB207A07180EBBDE83CF0805AD1801463FFAE7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342828   (221152) от 04.12.2019
-
-LiSA - Lover"S"Mile (2012) [MP3|320 Kbps] <J-Pop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yasashisa ni Tadoritsuku Made [4:23]
-02. oath sign [4:11]
-03. now and future [4:21]
-04. EGOiSTiC SHOOTER [3:04](   Читать дальше...   )Жанр: J-PopПродолжительность: 1:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C65BB74A6F9C72535C667241205BB34356A0AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342947   (219422) от 05.12.2019
-
-LiSA - Little Devil Parade (2017) [MP3|320 Kbps] <J-Pop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219422.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. LiTTLE DEViL PARADE [4:41]
- 2. Catch the Moment [4:43]
- 3. LOSER ~Kibou to Mirai ni Muen no Catharsis~ [3:34]
- 4. the end of my world [3:28](   Читать дальше...   )Жанр: J-PopПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6566373D9130975943E4FCA14F0DCCD6B402DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966495   (217749) от 18.12.2015
-
-petit milady - 3 сингла (2014-2015) [FLAC|Lossless|tracks] <J-Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-(140205) azurite (To Aru Hikushi e no Koi Uta OP Single)
-(140813) Koi wa Milk Tea (Rokujouma no Shinryakusha ED)
-(150107) Hi no Ito Rinne no GEMINI (Seiken Tsukai no World Break OP)Жанр: J-PopПродолжительность: 00:00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B85623FF5E9A5F3527DE06026C76EB2A687B91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588459   (217081) от 12.12.2012
-
-Gong Yue - Buddhist Music (2011) [MP3|320 кб/с]<Folk, Mantras>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217081.jpg" />
-</div>
-
-
-###  Подробнее
-
-(24:58) 1. Greatly Sad Heart Buddhist Charms
-(11:59) 2. Heart Sutra
-(04:52) 3. Six Words Damengzhou
-(08:03) 4. Amitabha Between Heart
-(14:54) 5. Six Words Heart Sutra
-(08:01) 6. The Goddess Of Mercy Is Brave
-(06:35) 7. Guru Padmasambhava MantraЖанр: Folk, MantrasПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D96E6F135B6A5C61C56C9CA9C33ED55D865D4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586382   (215670) от 27.10.2022
-
-Fear, and Loathing in Las Vegas - Cocoon for the Golden Future (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Electronic>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Back the Hope [00:03:08]
-02. Evolve Forward in Hazard [00:03:26]
-03. Shape of Trust [00:03:43]
-04. Ain't That So Awesome [00:03:39](   Читать дальше...   )Жанр: Post-Hardcore, ElectronicПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF44946069015CB4E1CBC347297F49EB2294F89
 ```
 
 https://mybot314.ru/tekegram_catalog/

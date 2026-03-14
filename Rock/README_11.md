@@ -1,3 +1,32 @@
+###  Публикация: 1364908   (933252) от 05.03.2020
+
+Robert Plant - Digging Deep (2020) Singles Collection [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Down One Side
+02. Like I’ve Never Been Gone
+03. Big Log
+04. In The Mood(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419B26D469790CEACC019D69B2DF4C99126D285D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094013   (932422) от 16.01.2017
 
 Utopia - Oops! Wrong Planet (1977) Remastered, 1995, Mobile Fidelity Sound Lab [MP3|320 Kbps] <Synth Pop, Prog Rock, Art Rock>
@@ -735,35 +764,6 @@ Elvis Presley - 24 Karat Hits! (2010) [MP3|256 kbps]<Rock and Roll>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79793408DAF977762D5BB792497B943375F72690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096830   (917726) от 25.01.2017
-
-Crow - Crow By Crow (1970) Reissue, 2011,  Austria Record Finder [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Stand To Blame
-2. Colors
-3. Smokey Joe
-4. Medley:(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C214C4A26FCC75032E6AA1FBF84FB67DC202795A
 ```
 
 https://mybot314.ru/tekegram_catalog/

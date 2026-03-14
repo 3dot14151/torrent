@@ -1,3 +1,32 @@
+###  Публикация: 1053021   (526734) от 16.09.2016
+
+VA - Beatport Trance Pack (13.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denis Kenzo & Cari - Save Me (Dub Mix) 5:53
+02. Katylyst - Remembrance (AriLab7 & George Crossfield Remix) 6:44
+03. Courage - Shadow Dance (Darryn M Remix) 4:52
+04. DYK - Sagittarius (Original Mix) 6:54(   Читать дальше...   )Жанр: Trance, Melodic, Energy, ProgressiveПродолжительность: 02:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0047E331D5DF54C12023128097590829AAF3C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053398   (526128) от 17.09.2016
 
 VA - 200th Release Anniversary (2016) [MP3|320 Kbps] <Minimal, Deep, Funky, Tech House>
@@ -716,35 +745,6 @@ VA - Multimix Electro Sound (2019) [MP3|320 Kbps] <House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5F9904F665D12D30E35C9541BF3513578D43E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241065   (522192) от 15.08.2018
-
-VA - Amazing Vocal Sound - Endless Summer 10 (2018) [MP3|320 Kbps] <House, Progressive House, Trance, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack x Jewelz & Sparks - One More Day (Nicky Romero Extended Remix)
-02. Alan Walker & K-391 feat. Julie Bergan & SEUNGRI - Ignite
-03. Andrew Rayel & HALIENE - In The Dark (Extended Mix)
-04. Anki & October Child feat. NEAVV - All Or Nothing (Extended Mix)(   Читать дальше...   )Жанр: House, Progressive House, Trance, Future HouseПродолжительность: 03:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34917505CBB74E0B05EA0E00A29492ED74BD06C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

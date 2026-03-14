@@ -1,3 +1,177 @@
+###  Публикация: 964457   (282226) от 11.12.2015
+
+Toni Braxton - Secrets (1997) [FLAC|tracks+.cue]<RnB/Swing, Soul-Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come on Over Here (3:37)
+02. You're Makin' Me High (4:27)
+03. There's No Me Without You (4:19)
+04. Un-Break My Heart (4:30)(   Читать дальше...   )Жанр: RnB/Swing, Soul-Jazz, SoulПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AD94AE9098D656DAD908BFB6C52FCEC0FF0F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336028   (282196) от 05.11.2019
+
+Tape Five - The Roaring 2020s (2019) [MP3|320 Kbps] <Nu-Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Party Like Its 1929
+02. Ballroom Troopers
+03. The Cats Pyjamas
+04. Boheme Supreme(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A48C0C0757D485EF7B0DDBA3926912442A259AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264382   (281247) от 23.11.2018
+
+Connee Boswell - Connee Boswell And The Original Memphis Five in Hi-Fi (1956) 2007, BMG [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When My Sugar Walks Down the Street [2:44]
+02. Say It Isn't So [3:24]
+03. At the Jazz Band Ball [2:43]
+04. Japanese Sandman [2:28](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E38E9F28386B6580AB8DF18F4BD302FA2D6B981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082030   (281124) от 11.12.2016
+
+George Cables - Cables Vision (1979) 1992, Original Jazz Classics[FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Morning Song [06:51]
+ 02.I Told You So [08:58]
+ 03.Byrdlike [08:51]
+ 04.Voodoo Lady [06:05](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC43A988885532F920F1C68206AC1D519E5B0374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264380   (281093) от 23.11.2018
+
+Acoustic Alchemy - Thirty Three and a Third (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East of Babylon
+02. Carmen's Man
+03. The Swallow's Tale
+04. Thirty Three and a Third(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0438AA1BD56033A5888EE15EEDC68B5D0CABEBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964890   (281065) от 12.12.2015
+
+Jerome Cooper - In Concert. From There To Hear (2001) Mutable Music[APE|tracks+.cue]<Modern Creative, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bantul [06:27]
+ 02.Monk Funk [15:10]
+ 03.My Funny Valentine [15:00]
+ 04.My Life [16:20](   Читать дальше...   )Жанр: Modern Creative, World FusionПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C90DDCFE461A7FA2352A4C26A2A6FE7E3BE0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081576   (281054) от 11.12.2016
 
 VA - The Art Of Jazz: The Traditional & The Modern Sound (1991) 2CD, Jazz Life[FLAC|Lossless|image + .cue] <Dixieland, Swing, Bop, Hard Bop, Big Bang>
@@ -571,180 +745,6 @@ Norio Maeda & Jiro Inagaki - This Is Jazz-Rock (1968) 2008, Nippon Columbia [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB603F5A6CEACBD49C9A3EDA86EA217939178747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264566   (279575) от 24.11.2018
-
-Minoru Muraoka - Harlem Nocturne: Bamboo Flute Miracle Sounds (1967) 2012, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harlem Nocturne [3:09]
-02. Taboo [3:27]
-03. Yesterday [3:16]
-04. Baby Elephant Walk [3:06](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9E9799D7A88226F7C82D37893B782DFC7BC180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336673   (279256) от 07.11.2019
-
-Allegra Levy - Looking At The Moon (2018) SteepleChase [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon River [5:16]
-02. I Got the Sun in the Morning [4:10]
-03. Harvest Moon [7:34]
-04. Blue Moon [3:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929C362441374C21D165B6AAB18012DB69FCD6F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336553   (279255) от 07.11.2019
-
-Gary Burton - Artist's Choice (1963 - 1967) 1987, Bluebird [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Careful [4:13]
-02. Chega de Saudade (No More Blues) [4:43]
-03. Norwegian Wood [3:26]
-04. I Want You [3:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1CC96724F81498505158B374711886C2BEBC60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336633   (279168) от 07.11.2019
-
-Caecilie Norby - Sisters in Jazz (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Money (Jones) - 4:20
-02. Willow Weep for Me (Ronell) - 4:49
-03. Droppin' Things (Carter) - 4:34
-04. Man from Mars (Mitchell) - 6:24(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5D43541E712DF831947BD39DA2DE22599C0B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187574   (278967) от 29.11.2017
-
-Bodil Niska - Blue (2004) Bare Jazz Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Wee Small Hours of the Morning [05:51]
-02. How About You [04:59]
-03. Et gammelt stykke Oslo [04:32]
-04. Taking a Chance on Love [06:09](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF41A934E8AA9928CED78742DCE386DACCBD2CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187573   (278966) от 29.11.2017
-
-Bodil Niska - First Song (2000) Hot Club Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Boy [03:53]
-02. Rosetta [06:58]
-03. Merlin [03:45]
-04. Only Trust Your Heart [06:16](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64F27FBF422B28E94FEBE168D6DFA54148A27CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,115 @@
+###  Публикация: 1797144   (66858) от 14.05.2025
+
+Believer - Dimensions (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Technical Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone
+02. Future Mind
+03. Dimentia
+04. What Is But Cannot Be(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF922E0F9CE2E6E78A19DED3B2BF38842C1C1DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797255   (66834) от 15.05.2025
+
+Blood Incantation - Timewave Zero (2022) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66834.jpg" />
+</div>
+
+
+###  Подробнее
+
+A. Io (20:55)
+B. Ea (19:37)Жанр: Death MetalПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569861649132B22C712BA97C771CBDFE30872D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797199   (66826) от 15.05.2025
+
+Novembre - Studio Albums (8 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Gothic/Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Novembre — итальянская метал-группа, образованная в Риме в 1990 году.1994 - Wish I Could Dream It Again
+1996 - Arte Novecento
+2000 - Classica
+2001 - Novembrine WaltzЖанр: Progressive Gothic/Doom/Death MetalПродолжительность: 09:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DAD989B45B7FDA08C4C8623FB5255A31B3681A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797590   (66762) от 17.05.2025
+
+Blood Incantation - Absolute Elsewhere (2024) [WavPack|32/192|image + .cue|Vinyl-Rip] <Death Metal, Ambient, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66762.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - The Stargate
+B1 - The MessageЖанр: Death Metal, Ambient, Progressive MetalПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAEF53C8D9392704DEDE2EC2EDD598E3C36B976D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797667   (66703) от 18.05.2025
 
 Rapture (Finland) - Studio Albums (3 releases) (1999-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
@@ -622,120 +734,6 @@ A4-Оберег(   Читать дальше...   )Жанр: Pagan, Folk MetalП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C20A9B4E4E7092AB3BEE62DFCF87C588D62167BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805935   (65427) от 09.07.2025
-
-DGM - Endless (2024) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65427.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Promises
-A2. The Great Unknown
-B3. The Wake
-B4. Solitude(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB3673CE45CC421835DAB2973AE5A594119B0EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805972   (65426) от 09.07.2025
-
-DGM - Life (2023) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65426.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Unravel The Sorrow
-A2. To The Core
-B1. The Calling
-B2. Second Chance(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D7F0E29F9D40AFEFE5D0A059600288E8D94BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806873   (65320) от 15.07.2025
-
-Steel Rhino - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steel Rhino - рок-группа из Швеции, основана в 2021 году2021 - Steel Rhino
-2023 - In Rhino We TrustЖанр: Heavy MetalПродолжительность: 01:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9E275C5729BECC5355594EF5EC8B69B5E845F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807134   (65302) от 17.07.2025
-
-Super Grup Electrecord - Slagare, Slagare, Slagare (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65302.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Bad Blood (Prost Obicei)
-A2 Harmour Love (Dragoste Fericita)
-A3 Arms Of Mary (Bratele Lui Mary)
-A4 Walk Away From Love (Voi Fugi De Dragoste)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57460D1C2CDFC5F091DE31390E5A4F8FE44129C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

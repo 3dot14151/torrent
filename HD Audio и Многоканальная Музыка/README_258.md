@@ -1,3 +1,148 @@
+###  Публикация: 1815923   (4768) от 01.09.2025
+
+Maria Muldaur - One Hour Mama: The Blues of Victoria Spivey (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My Handy Man (2025 Remaster) (3:59)
+02.  What Makes You Act Like That? (3:23)
+03.  Don't Love No Married Man (3:52)
+04.  Dreaming of You (2:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CF1BF962B4B2A1C8E015FE7C1D772E7A611EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742701   (4658) от 02.09.2025
+
+Insania (a.k.a. Insania Stockholm) - Studio Albums (6 releases) (1999-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Insania - шведская метал-группа из Ярфеллы, основанная в 1992 году Микко Корсбеком и Хенриком Юхано.1999 - World Of Ice
+2001 - Sunrise In Riverland
+2002 - Fantasy: A New Dimension
+2007 - Agony - Gift Of LifeЖанр: Power MetalПродолжительность: 06:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF6314E9FBF56CA51565DADA0AD66551004F5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816138   (4538) от 03.09.2025
+
+Sabrina Carpenter - Man’s Best Friend (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4538.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Manchild (3:34)
+• 02. Tears (2:40)
+• 03. My Man on Willpower (3:18)
+• 04. Sugar Talking (3:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48F14EE41DC92DE25F6EE2294663C731B55800F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816340   (4439) от 04.09.2025
+
+Lady Gaga - Mayhem (2025) Deluxe Edition, Interscope Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disease [00:03:49]
+02. Abracadabra [00:03:43]
+03. Garden Of Eden [00:03:59]
+04. Perfect Celebrity [00:03:49](   Читать дальше...   )Жанр: PopПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C25DDF6778F59818D40888FDE841D4D86E02AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816169   (4419) от 04.09.2025
+
+De Profundis, Eamonn Dougan - Morales: Requiem a 5 & Officium defunctorum (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circumdederunt me [00:02:23]
+02. Regem, cui omnia vivunt – Venite, exsultemus [00:08:45]
+03. Parce mihi, Domine [00:03:39]
+04. Credo quod redemptor meus vivit [00:03:03](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB6104A756604486508CD5D6ABA655276E7D715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816342   (4417) от 04.09.2025
 
 Joris Voorn - Serotonin (2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic House & Techno>
@@ -600,152 +745,6 @@ Molly Tuttle - So Long Little Miss Sunshine (2025) [FLAC 24/48|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02B1DDE4EDD6CFE1293A9CFAC3A141ABF8FE866D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816279   (4380) от 04.09.2025
-
-Problematic Jam - It's So Confusing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nothing I Want (2:15)
-02.  It's Alright (2:40)
-03.  Come Here Forever (2:47)
-04.  Get Outta My Funky Car (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04CCF91D65056AC20DE37BD039A75B87ED7D7FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816278   (4379) от 04.09.2025
-
-Mitch Laddie - Faith and Other Bad Habits (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  50 Shades of Blue (2:53)
-02.  She Keeps Me Down (2:59)
-03.  Angels & Demons (5:26)
-04.  The Way It Goes With Love (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1EB778BFC0B80FD2261FB14912B3F9806D5DDBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816285   (4378) от 04.09.2025
-
-Sketch Plot - Rock Lives On (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rock Legend (3:14)
-02.  Fortune's Favor (4:41)
-03.  Sweet Lady (3:23)
-04.  Dark Moon Rising (4:07)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B445CAB926C62EF878D3B65E038EE3E2A7A67342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681415   (4317) от 05.09.2025
-
-Violator - Studio Albums (6 releases) (2004-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Violator — бразильская трэш-метал-группа. Является флагманом NWOTM (новой\третьей волны трэш-метала) и отличается ярко выраженной «олд-скульной» стилистикой, подражая андерграундным трэш-бэндам середины 80-х.2004 - Violent Mosh (EP)
-2006 - Chemical Assault
-2010 - Annihilation Process (EP)
-2013 - Scenarios Of BrutalityЖанр: Thrash MetalПродолжительность: 03:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5DEE40132A4069B4CB4787058DD0857BA2FCDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690720   (4300) от 05.09.2025
-
-Primal Fear (& Ralf Scheepers) - Studio Albums (19 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Speed/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Primal Fear — немецкая пауэр-метал группа, основанная в 1997 году Ральфом Шиперсом (вокал, ex-Gamma Ray) и Мэтом Синнером (бас и вокал, Sinner).
-Синнер и Шиперс сформировали группу после того, как Шиперс не был нанят на замену Робу Хэлфорду в Judas Priest.1998 - Primal Fear
-1999 - Jaws of Death
-2000 - Nuclear Fire
-2001 - Horrorscope (EP)Жанр: Speed/Power MetalПродолжительность: 17:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85FA408BA947121BF9C3BE5025A93E9015FA43F
 ```
 
 https://mybot314.ru/tekegram_catalog/

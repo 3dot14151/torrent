@@ -1,3 +1,147 @@
+###  Публикация: 1306733   (31101) от 13.01.2025
+
+Paper Lace - First Edition (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31101.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 In The Morning
+A2 Stoney End
+A3 Lady
+A4 I've Got You, That's Enough For Me(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D08FB8E2A8620390BEB7EEFFBBF9EAADC9A8F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773028   (31078) от 13.01.2025
+
+Vivaldi Metal Project - Studio Albums (3 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vivaldi Metal Project - симфоник-метал-проект, переосмысливающий музыку Антонио Вивальди.2016 - The Four Seasons
+2018 - The Extended Sessions
+2022 - EpiClassicaЖанр: Symphonic MetalПродолжительность: 03:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1519AECA61FA985A8D8BD1E64613BB16B452716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773134   (31060) от 13.01.2025
+
+ДДТ (DDT) - Бокс. 6 Альбомов (2024) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31060.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках проекта на Planeta.ru группа ДДТ готовит новый релиз для слушателей – на виниле будут изданы лимитированными тиражами альбомы ДДТ 90-хх годов: «Актриса Весна», «Чёрный пёс Петербург» , «Это всё», «Любовь» (впервые на LP) и «Мир номер ноль». Также впервые на виниле будет выпущен сольный «французский» альбом Юрия Шевчука и Константина Казански «L’echoppe». (   Читать дальше...   )1992 - Актриса весна
+1993 - Чёрный пёс Петербург
+1995 - Это всё...
+1996 - ЛюбовьЖанр: RockПродолжительность: 05:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18A16EBB41C941B0821C7D628BCF780E80E19E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773040   (31057) от 13.01.2025
+
+Soulstance and Lo Greco Bros - The Cinematic Sound Of Soulstance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, Acid Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lanterns (4:52)
+02.  Gonna Be Alright (3:54)
+03.  Out Of The Window (4:35)
+04.  Latin Melody (5:42)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, Acid JazzПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02FAC45C3571A14284552DC3001DD7BE40684538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773050   (31056) от 13.01.2025
+
+Wlodek Gulgowski - Soundcheck (1976) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Fusion, Jazz-Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soundcheck (4:31)
+02.  Truth-Seeker (5:50)
+03.  Manhattan Vibes (5:24)
+04.  Love Is Back (3:26)(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A3AEEC0F16F652E0C86DB35D460820FE544ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773046   (31053) от 13.01.2025
 
 The Essence - Caverns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -600,151 +744,6 @@ David Rodgers - Home (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9588131F62262D36A72D771D524E40F2542AD532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774710   (30110) от 22.01.2025
-
-Andrea Longato - Thinking Heart (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daisies (5:01)
-02.  Sure Thing (6:34)
-03.  Mona Lisa Kite (4:41)
-04.  Wishlist (5:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B0B50A4C6BC5DC623BF67A145F1418072A712D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774736   (30109) от 22.01.2025
-
-Evan Oberla - Canal Street Revolution (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  While We Were Sleeping... (2:03)
-02.  Canal Street Revolution (3:45)
-03.  Electrophysiology (5:32)
-04.  Black Diamond (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB34907D38D54FFABFD18AFBA1C988A7533F725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774733   (30108) от 22.01.2025
-
-Davy Mooney & Ko Omura - The Word (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sheep Wash (6:42)
-02.  Wormcast (5:57)
-03.  The Word (5:18)
-04.  Purusha (4:52)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFFB4D43AD8BB25409BD3AE7252ACA0C4D122C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774676   (30107) от 22.01.2025
-
-Alex McLaughlin - A Brand New State (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Desert Chapel (6:58)
-02.  Trailhead (6:24)
-03.  Signals (6:19)
-04.  The Solar Punks (7:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02DA0FBABAAAB6C6E502A82F75B62A8876FFA653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774731   (30106) от 22.01.2025
-
-D. Heywood - Winelight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Heavenly Sweet Angel (Live) (5:20)
-02.  A Glass of Wine (5:32)
-03.  Lovin' You Endlessly (4:50)
-04.  Sylky Smooth (4:55)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C37FF57C1B8D4F2AD1484E958B3F71769FD6E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

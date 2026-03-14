@@ -1,3 +1,32 @@
+###  Публикация: 1340626   (263593) от 24.11.2019
+
+VA - не Громкие новинки недели 44 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263593.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.IOWA - Маяки (4:44)
+2.Николай Носков - Живой (4:19)
+3.Мот - Сталактит (4:00)
+4.Валерий Меладзе feat. Альбина Джанабаева - Мегаполисы (3:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E748F5E0C9C63AD4DFA3C938C80970E22479E99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509494   (263569) от 24.11.2019
 
 VA - Маме - для души и сердца (2012) [MP3|320 кб/с]<POP>
@@ -713,35 +742,6 @@ VA - Music News For Forum vol.150 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A30F59C487546420F4E8AE69813E6477D3EA8EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838742   (261310) от 24.11.2025
-
-VA - Music News For Forum vol.149 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261310.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cynthia Erivo & Jonathan Bailey - As Long As You’re Mine   (04:07)
- 002. 5 Seconds of Summer - I'll Find You (03:33)
- 003. 5 Seconds of Summer - Start Over (03:11)
- 004. 5 Seconds of Summer - Wishful Dreaming (03:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC53FFBD9DA5D2F45D10221C0B5931C1C5AF8EC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

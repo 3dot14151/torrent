@@ -1,3 +1,90 @@
+###  Публикация: 1207178   (780905) от 17.02.2018
+
+Eddie Bert - Encore (1955) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bert Tram [03:09]
+02. One for Tubby [05:28]
+03. It's Only Sunshine [03:16]
+04. Opicana [03:25](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5B77965278432B9C3633DE631201484FA92C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207088   (780904) от 17.02.2018
+
+Bud Powell - Live in Lausanne 1962 (2002) Stretch Records [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthropology [04:17]
+02. Billie's Bounce [06:42]
+03. Lover Come Back to Me [05:27]
+04. 'Round Midnight [06:02](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135365FAD36E9A8B17D323433BADEB5F07F99E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207212   (780903) от 17.02.2018
+
+California Swing Cats - Stealin' Apples (1997) Jazzology Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bugle Call Rag [04:12]
+02. A Kiss to build a Dream On [04:34]
+03. Piano Man [02:46]
+04. When My Dreamboat Comes Home [04:36](   Читать дальше...   )Жанр: SwingПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55ABDC41DA3565E5860AD4784D09E91474781240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207176   (780902) от 17.02.2018
 
 Benoit Viellefon & His Orchestra - Mon Amour (2014) JohnJohn Records [FLAC|Lossless|image + .cue] <Swing, Big Band, Vocal Jazz>
@@ -657,93 +744,6 @@ Harold Vick - Steppin' Out! (1963) 1996, Blue Note [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FC02A82CE2D5145BE005BFB8DEC7934CCBEB22E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208437   (779998) от 22.02.2018
-
-Bob Brookmeyer And Friends (1964) 2017, Sony Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jive Hoot [04:44]
-02. Misty [05:19]
-03. The Wrinkle [05:22]
-04. Bracket [05:00](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262DA02C7667093CCBABCBD9EE64485E4AED14C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208690   (779822) от 23.02.2018
-
-Enrico Pieranunzi Latin Jazz Quintet - Live At Birdland (2008) 2010, CAM Jazz [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk [00:12]
-02. Danza 2 [14:42]
-03. Choro del Infinito Hombre [09:08]
-04. Rosa del Mare [06:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB15DB64E020D05705AD4D48390C1DFA9F9B710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208693   (779820) от 23.02.2018
-
-Helen Forrest & Benny Goodman - The Complete Helen Forrest With Benny Goodman (1939 - 1941) 3CD, 2001, Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779820.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Busy As A Bee (I'm Buzz, Buzz, Buzzin') [03:15]
-02. What's The Matter With Me? [03:06]
-03. What'll They Think Of Next? [03:18](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 02:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9820CDEF6787709BA17B59DAB568AA13CF276D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

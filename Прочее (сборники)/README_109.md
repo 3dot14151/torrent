@@ -1,3 +1,32 @@
+###  Публикация: 1568162   (465902) от 06.08.2022
+
+VA - В машине с музыкой Vol.294 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nalyro Feat. & Giorgio Gee & Levis Della - Apologies (02:23) 2022
+02. Lady Gaga - Alejandro (Ayur Tsyrenov & DFM Remix) (02:54) 2022
+03. Portnov - К Пацанам (03:21) 2022
+04. Twan Ray Feat. & Moonshine & Solar State - Leave A Smile (02:28) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C366B220FB7EE4740E44DB0316A4B28AE18C612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058747   (465652) от 02.10.2016
 
 VA - Дискотека 2016 Dance Club Vol. 156 от NNNB (2016) [MP3|64-320 Kbps] <Club Deep House Dance и другие>
@@ -760,35 +789,6 @@ VA - Hardstyle Dance Generation (2017) [MP3|320 Kbps] <Hardstyle, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4FCCC6941CB26B983C9EE037B3BBF9DADD78B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246421   (459178) от 12.09.2018
-
-VA - 130 The Abundance of Styles Loaded (2018) [MP3|320 Kbps] <Pop, Country, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459178.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Qveen Herby - Love Myself (Wild Culture Remix) (Dirty)
-002. DVBBS and Blackbear - Idwk (Dj Rukus Intro Edit) (Clean)
-003. Ying Yang Twins Ft. Mike Jones - Badd (MAKJ and Max Styler Remix) (Dj Rukus Intro Edit) (Dirty)
-004. J Balvin Ft. G-Eazy Mc Fioti Anitta Sfera Ebbasta Duki and Jeon - Machika (Remix) (Clean)(   Читать дальше...   )Жанр: Pop, Country, HouseПродолжительность: 07:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC8E503C408CC789FC6D78DB754AFC7F287895E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1120701   (801268) от 01.04.2017
+
+Don Cherry - Home Boy (1985) Barclay [FLAC|Lossless|tracks + .cue] <World Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Butterfly Friend [03:45]
+ 02.I Walk [03:12]
+ 03.Rappin Recipe [06:49]
+ 04.Reggae To The High Tower [04:12](   Читать дальше...   )Жанр: World Fusion, Jazz-FunkПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532E83CA169E331350B8E32769D4EF6D8F3008C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120895   (801259) от 01.04.2017
+
+Big Jack Johnson & Kim Wilson - The Memphis Barbecue Sessions (2002) [FLAC|Lossless|tracks + .cue] <Blues, Delta Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Baby (4:09)
+02. Humming Blues (4:01)
+03. Don't Care Nothing (3:34)
+04. Smokestack Lightning (4:10)(   Читать дальше...   )Жанр: Blues, Delta BluesПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDF08C2A9D48B6DEE8BA257495111E9B7924B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120946   (801249) от 01.04.2017
+
+Off The Grid - A Lonely Soul (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Lonely Soul A Restless Heart (04:31)
+02. Maybe There's Someone (04:07)
+03. This Ring (06:12)
+04. Someday I Know (04:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB65A28AE0B6B67E2EC43F468F8B9A86E4FF876B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120799   (801246) от 01.04.2017
+
+Doris Day - The Real... Doris Day (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. The Very Thought of You
+2. Que Sera Sera (Whatever Will Be, Will Be)
+3. Silver Bells(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 03:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFCC3D104FDB89AB9B873EF3D594DC16D7BCFEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199515   (801145) от 16.01.2018
+
+Cliff Jackson - 1930-1945 (1997) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hose Feathers [02:48]
+02. Torrid Rhythm [02:31]
+03. Ring Around The Moon [02:36]
+04. We'll Be Married In June [02:54](   Читать дальше...   )Жанр: Early Jazz, Swing, Piano JazzПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F074C97848099FC5209C9BDB2E6135D32B852A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199496   (801134) от 16.01.2018
+
+Coleman Hawkins & Pee Wee Russell - Jam Session In Swingville (1961) 1994, Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jammin In Swingville [09:35]
+02. Cool Sunrise [10:43]
+03. Spring's Swing [07:58]
+04. Love Me Or Leave Me [07:19](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB1C5AAE84A2B374256A0CF8DC4FCAA8CA2FBC9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199474   (801127) от 16.01.2018
 
 Jean Paul Rena - A Thief Known For Stealing Hearts (2017) [MP3|320 Kbps] <Blues Rock>
@@ -571,180 +745,6 @@ Kandace Springs - The Women Who Raised Me (2020) [FLAC|24/96|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D0485A477AE5CB46622E73E5CF489CC5C1751AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505700   (799945) от 31.10.2021
-
-Marcus Lazarus - How Low Can You Go? (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Keep on Moving (00:04:15)
-02 - Step Away (00:05:04)
-03 - Blind Luck (00:03:42)
-04 - Gonna Need Some Water (00:05:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628E0767AFF3E73DE69028E5B1A5ECF63011680A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273560   (799904) от 02.01.2019
-
-Herman Chittison - 1944 - 1945 (1998) Classics [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How High The Moon [1:56]
-02. The Song Is Ended [3:19]
-03. Just One Of Those Things [2:21]
-04. Schubert's Serenade [2:05](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DA57329FC66C8F3356816D4448D6624F666532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273557   (799895) от 02.01.2019
-
-VA - Thinking of You: Soul Love Grooves (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Sledge - Thinking of You
-02. Womack & Womack - Baby I'm Scared of You
-03. George Benson - Love X Love
-04. Chaka Khan - We Got the Love (Lew Hahn Remix)(   Читать дальше...   )Жанр: Jazz, Soul, R&BПродолжительность: 02:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23941E04093302F45C4BCC76EAF08A0F8CBF6541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273579   (799775) от 02.01.2019
-
-Joe Bonamassa - Rockin' Christmas Blues (2019) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merry Christmas, Blues
-02. Bring Back My Cadillac
-03. Christmas Boogie ( One Little Kiss)
-04. Christmas Date Blues(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E97912BADDFE60F2614F2928355FDC2388C3E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121869   (799692) от 03.04.2017
-
-Stephane Grappelli - Le Toit de Paris (1969) 2002, RCA Victor [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Rain Check [02:39]
- 02.Camelia [03:42]
- 03.I Got It Bad (And That Ain't Good) [03:10]
- 04.Andree [03:14](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0223119657B00EFD9CD5238F6A6E2117BA3072D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121871   (799691) от 03.04.2017
-
-The Buddy DeFranco (De Franco) Quartet - Jazz Tones (1954) Remaster, 2012, Universal [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When Your Lover Has Gone [06:33]
- 02.The Things We Did Last Summer [08:04]
- 03.Jack The Field Stalker [03:08]
- 04.If I Should Lose You [04:25](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C30F5F598118DAA203F53BC01BFDE6818211AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

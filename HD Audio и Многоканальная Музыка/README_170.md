@@ -1,3 +1,148 @@
+###  Публикация: 1765961   (101286) от 15.12.2024
+
+BJ Ryan - Down the Rabbit Hole (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride Away (4:11)
+02. Here We Go Again (3:58)
+03. Withstand It All (4:11)
+04. New Front Door (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943E9B9600E78A3FEAE3A7254EFC3E6A1E51E70C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765963   (101285) от 15.12.2024
+
+Effie Zilch - Multitudes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prayin' amos (3:37)
+02. Taking Me Over (3:54)
+03. Up and Down Blues (4:15)
+04. Carousel (2:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC89B905FF65AC1E0BFE49E0E74FD860E90988E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765995   (101284) от 15.12.2024
+
+Jason Craig Wilkins - Find Me Now (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake ‘Em on Down (2:36)
+02. Other Side of Loneliness (4:55)
+03. Wrapped up in Love Again (2:37)
+04. Know to Say No (2:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0941960710EBF0FDBADD4A9C0724F2586B0405E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765998   (101283) от 15.12.2024
+
+Johnson's Bridge - Line of Sight (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Progressive Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Secret of Fire (5:37)
+02. The Lonely Leader (4:31)
+03. Glad You Came Along (3:42)
+04. Amber Meadow (4:11)(   Читать дальше...   )Жанр: Progressive Rock, Classic RockПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41EF25413AB2EC71C63D533B65ED7EEB98D95D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765958   (101282) от 15.12.2024
+
+Beware Of Darkness - Lose Your Mind, Gain Your Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss The Void (4:01)
+02. Into The Currents (3:46)
+03. Depression Take The Wheel (3:45)
+04. Hero Of My Own Story (4:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA845B18746A06B8607AF1315D8C26DA9646B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765954   (101280) от 15.12.2024
 
 Bayou Boogie House - Blues on Bourbon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -591,151 +736,6 @@ Murat Osman, Seif Allah Kaak and Curly Cuts Collective - Eastbound Jazz (2024) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BA512226871830C4E29CB649098A14DCE81B89D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768663   (101107) от 25.12.2024
-
-Samara Joy - Portrait (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Stepped Out Of A Dream (4:35)
-02. Reincarnation Of A Lovebird (6:28)
-03. Autumn Nocturne (3:47)
-04. Peace Of Mind / Dreams Come True (7:06)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F874666BAAC23614D94AF75E387AD0ADB229F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768646   (101106) от 25.12.2024
-
-Jaxon Turner Trio - All That Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Coffe Cup Romance (3:59)
-02. A Desk by the Window (3:22)
-03. All That Jazz (3:37)
-04. Blissful Reverie (3:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C0666BEEC8F42FD7BCEA29B82260C723F63A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768674   (101103) от 25.12.2024
-
-Zavala Sol - Bad Habits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Ride (3:03)
-02. Get Got (3:25)
-03. 25 To Life (3:43)
-04. Bad Habits (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99B788BD6B75C65A8F8848E2E71D9A16C4DA6E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768641   (101102) от 25.12.2024
-
-Glitz Machine - Next Generation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Next Generation (5:12)
-02. Crazy Time (5:00)
-03. Heart Rock (4:17)
-04. The Power of Protein (4:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F047CFC74F9D4A1A6352094E178DD0D9A78F788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822350   (101023) от 06.10.2025
-
-The Midnight - Syndicate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syndicate (Intro) [00:02:27]
-02. Shadowverse [00:04:56]
-03. Runaways (feat. Bonnie McKee) [00:05:07]
-04. Friction [00:03:56](   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C1D76E4F98FB1191EE21001C6C9AFECB347907
 ```
 
 https://mybot314.ru/tekegram_catalog/

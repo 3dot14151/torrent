@@ -1,3 +1,177 @@
+###  Публикация: 1277604   (785061) от 21.01.2019
+
+Ari Brown - Groove Awakening (2013) Delmark [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One For Ken [5:20]
+02. Groove Awakening [5:03]
+03. Enka [11:06]
+04. Veda's Dance [8:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8C97F966F49FEA0621F40753A15DCEFB15272A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204303   (784987) от 05.02.2018
+
+The Modern Jazz Quartet - Concert In Japan, Vol.1 (1966) 2014, Warner [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Really True Blues [05:22]
+02. The Cylinder [05:08]
+03. Midsommer [04:58]
+04. Summertime [06:37](   Читать дальше...   )Жанр: CoolПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F006D607F6A4645D5E62CFEFAFACF72F145F540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204265   (784984) от 05.02.2018
+
+Blindstone - Manifesto (2003) 2008, Grooveyard Records [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Wasted Days 4:24
+02. Temple Trippin' 3:33
+03. Somewhere 4:43
+04. Say It Ain't So 4:57(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547F41845EB3D4CE5C0B6041C815551E7FF4C6A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204260   (784982) от 05.02.2018
+
+Blindstone - Freedom's Calling (2008) Grooveyard Records, GYR043 [MP3|320 Kbps] <Blues Rock, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Freedom's Calling 3:16
+02. Can't Be With You 3:49
+03. Fear 3:55
+04. Good Time 4:56(   Читать дальше...   )Жанр: Blues Rock, FunkПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6221A16647A409B18A3027FA1A9EE98825C1B101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204355   (784980) от 05.02.2018
+
+Blindstone - Rise Above (2010) Grooveyard Records [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Rise Above 5:12
+02. Power Man 3:11
+03. Keep The Rock Alive 3:37
+04. Climbing The Ladder 6:16(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB00B3C27EF64FDE93D8EF4538842A55C17B335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204435   (784960) от 05.02.2018
+
+Peter Karp & Mick Taylor - The Turning Point (2004) BackBender Records [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. Train O'Mine 2:58
+02. Rolling on a Log 4:21
+03. The Turning Point 4:14
+04. The Nietzsche Lounge 3:45(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53E8E8B78B852DC4A25E825F6BCC7922CF30A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204441   (784936) от 05.02.2018
 
 Peter Karp & Sue Foley - He Said She Said (2010) Blind Pig Records [MP3|320 Kbps] <Blues Rock>
@@ -571,181 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A9452B38C181361E773E2492F0E8667459DC636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389553   (784280) от 11.06.2020
-
-Richard Smith - First Kiss (1997) Heads Up [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Kiss [4:18]
-02. Rhythm Method [4:41]
-03. Midnight Run [4:30]
-04. A Minor Love Affair [5:53](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86260AA4F607F4F48973C77AF8135DAD2E21B9DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389615   (784251) от 11.06.2020
-
-Kevin Rowland & Dexys Midnight Runners - Too-Rye-Ay (1982) 2CD Deluxe Edition, Mercury, 2007 [FLAC|Lossless|tracks + .cue] <Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784251.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Too-Rye-Ay" - является вторым студийным альбомом группы, выпущен он был в 1982 году. Этот альбом прославил группу и в Америке, он так же не раз переиздавался. В сборник вошли такие популярные хиты, как: "Come On Eileen", "The Celtic Soul Brothers" и "Jackie Wilson Said".
-Dexys Midnight Runners - британская поп-группа, которая (   Читать дальше...   )The Original 1982 Album Remastered
-
-01. The Celtic Soul Brothers (More, Please, Thank You) (3:09)
-02. Let's Make This Precious (4:04)(   Читать дальше...   )Жанр: Funk / SoulПродолжительность: 02:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FAD58FF4A7F699530D4A0E063D1B61EBA7EE43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389516   (784212) от 11.06.2020
-
-Norah Jones - Pick Me Up Off The Floor (2020) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How I Weep
-02. Flame Twin
-03. Hurts To Be Alone
-04. Heartbroken, Day After(   Читать дальше...   )Жанр: Contemporary Jazz, PopПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F652931C3B32FFFFBB1FE077E0862CAD112AA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205072   (784109) от 08.02.2018
-
-Joe Morello - Joe Morello (1961, 1962) 1989, Bluebird [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shortnin' Bread [02:10]
-02. When Johnny Comes Marching Home [06:08]
-03. Brother Jack [02:58]
-04. Every Time We Say Goodbye [03:06](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 01:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6093C90E42A7796CA2B8B5F5D4F2EB071749491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205077   (784098) от 08.02.2018
-
-The George Shearing Trio with Ray Brown and Marvin "Smitty" Smith - Breakin' Out (1987) Concord [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Squeeze Me (But Don't Tease Me) [05:58]
-02. Day Dream [04:25]
-03. Hallucinations [03:55]
-04. In the Wee Small Hours of the Morning [06:00](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 00:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03E96FBCF38F725EB4A4EAB3BC71BD3FF43589D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389744   (783948) от 12.06.2020
-
-Benny Golson - Four Classic Albums 1957 - 1958 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783948.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Out Of The Past [6:27]
-02. Reunion [7:20]
-03. Venetian Breeze [5:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F91E39135AC69275DC5E7C75170DC3F5C9B126
 ```
 
 https://mybot314.ru/tekegram_catalog/

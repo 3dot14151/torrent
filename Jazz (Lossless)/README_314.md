@@ -1,3 +1,90 @@
+###  Публикация: 1706345   (113633) от 12.03.2024
+
+Sonny Stitt - Night Letter (1963, 1969) 1996, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunday [7:58]
+02. Soul Shack [7:15]
+03. Love Nest [6:18]
+04. Hairy [5:57](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA91C1586051AA1619C5E9593E8E4CF275310D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706362   (113631) от 12.03.2024
+
+Terumasa Hino - Bluestruck (1990) [FLAC|Lossless|tracks + .cue] <Fusion, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romancero Gitano (Hino) - 8:05
+02. Sweet Love of Mine (Shaw) - 7:38
+03. Bluestruck (Hino) - 5:01
+04. Rain Again (Hino) - 7:17(   Читать дальше...   )Жанр: Fusion, BopПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D82906405C899741F9C7605B80E7289A3D62E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706354   (113622) от 12.03.2024
+
+Kenny Barron - The Source (2023) Artwork Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What If [8:02]
+02. Isfahan [6:14]
+03. Teo [6:05]
+04. Daydream [9:42](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A253AB56CC345EB8E27CDB72C7BFD07E7F7CCF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706349   (113619) от 12.03.2024
 
 Oscar Peterson - Con Alma: Live in Lugano (1964) 2023, Mack Avenue [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -658,93 +745,6 @@ VA - Supreme Lounge Chill Selection Jazzy Vibe Tunes (2024) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB6D71354118ECD04A52F8BFDD1A50E6C7111307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707288   (113315) от 16.03.2024
-
-Howard Alden Trio - Misterioso (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We See [4:53]
-02. Song of the Dove [4:02]
-03. Flying Down to Rio [4:22]
-04. Ghost of Yesterday [6:07](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA35187BD4901126E5906FC77EA2600AF52EF7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707289   (113314) от 16.03.2024
-
-The Howard Alden Trio - A Good Likeness (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Else But Me [6:41]
-02. The Peacocks [5:23]
-03. Something to Live For [6:31]
-04. Single Petal of a Rose [2:39](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE19591626E75B697816FAC0AAE1969D577991C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707296   (113313) от 16.03.2024
-
-Wes Montgomery & Wynton Kelly Trio - Maximum Swing: The Unissued Half Note Recordings (1965) 2CD, 2023, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Things You Are [6:41]
-02. I Remember You [7:11]
-03. No Blues [2:44]
-04. Cherokee [10:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1818C494D41B5DD30C069C24852B8A87B896EF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

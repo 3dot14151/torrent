@@ -1,3 +1,119 @@
+###  Публикация: 1727989   (54257) от 05.06.2024
+
+Paralandra - The Body Electric (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look At Me Now (4:29)
+02. Dirty Love (3:25)
+03. Better Days (3:13)
+04. Give Me A Reason (3:59)(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA83B355A54490835129DD959B51C0137BD865D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728103   (54186) от 06.06.2024
+
+Black Sabbath - Anno Domini (1989-1995) Reissue, Remastered, 2024, BMG [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый бокс-сет Black Sabbath эпохи Тони Мартина, Anno Domini 1989-1995, выпущен 31 мая. Джо Зиглер из Black Sabbath Online опубликовал свой обзор сета.CD1 - Headless Cross:
+01. The Gates of Hell
+02. Headless Cross
+03. Devil & Daughter(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E0812D63A0110C29E9B5D786386F414920F2AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729272   (53616) от 11.06.2024
+
+Magic Hat - Get Off My Lawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gave It All [00:04:23]
+02. 10 Diamond Ribbons [00:04:17]
+03. Dodgeball [00:04:10]
+04. Without Warning [00:04:05](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E56DF7D39EE2BE8A02CBCA2AB82B085DC38539D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729432   (53608) от 11.06.2024
+
+Cactus - Temple Of Blues - Influences & Friends (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барабанщик Carmine Appice анонсировал выпуск нового альбома иконы 70-х группы Cactus. Temple of Blues - Influences & Friends является продолжением альбома Tightrope 2021 года, в котором представлены множество звездных имен, включая Joe Bonamassa, Dee Snider, Pat Travers, Warren Haynes, Vernon Reid, Steve Stevens, Ted Nugent, Johnny A ( The Yardbirds), Ty Tabor (   Читать дальше...   )01. Cactus feat. Joe Bonamassa & Billy Sheehan (Mr. Big / David Lee Roth) - Parchman Farm (3:06)
+02. Cactus feat. Randy Jackson (Zebra), Randy Pratt (Cactus) & Bob Daisley (Ozzy Osbourne) - Brother Bill (4:50)
+03. Cactus feat. Ron "Bumblefoot" Thal (Guns N' Roses) & Phil Soussan (Ozzy Osbourne) - Guiltless Glider (6:12)
+04. Cactus feat. Dee (   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97091365CB30229437CF36FA922D5FE15BFA7567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729699   (53538) от 12.06.2024
 
 Deep Purple - Pictures of You (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -630,122 +746,6 @@ Scarlet Rebels - Let Me In (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEE2E5513505409DA818A13B517BD7EF95528494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744507   (46013) от 22.08.2024
-
-Deep Purple - =1 (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me
-02. A Bit On The Side
-03. Sharp Shooter
-04. Portable Door(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5271B432AEBB831B1BB7106DA3A666C1418F299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071930   (45625) от 26.08.2024
-
-Deep Purple - 106 Albums (1968 - 2024) 280 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Purple - британская рок-группа, образованная в феврале 1968 года в Хартфорде, Англия и считающаяся одной из самых заметных и влиятельных в "тяжёлой музыке" 1970-х годов. Музыкальные критики называют Deep Purple в числе основателей хард-рока и высоко оценивают их вклад в развитие прогрессивного рока и хэви метал. Музыканты «классического» состава Deep (   Читать дальше...   )Список альбомов:
-1968 - Shades Of Deep Purple
-1968 - The Book Of Taliesyn
-1969 - Deep PurpleЖанр: Hard RockПродолжительность: 268:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE07B0903958796CC8450F1E6EF85ABF80BC806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746165   (45241) от 29.08.2024
-
-Demon - Invincible (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. In My Blood
-03. Face The Master
-04. Ghost From The Past(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F669A39EFF12F516FA5B53C54A1F7DCF1B89BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746082   (45233) от 29.08.2024
-
-Sister Switchblade - Don't Try This at Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gloves Are Off [00:02:52]
-02. Get Down Stay Down [00:03:30]
-03. I Smell a Rat (Remix) [00:03:12]
-04. Dead to Me (Remix) [00:02:33](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B64261331010FA8E9FD16562EBB3B72C4739826
 ```
 
 https://mybot314.ru/tekegram_catalog/

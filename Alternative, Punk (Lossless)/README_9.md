@@ -1,3 +1,90 @@
+###  Публикация: 1369867   (900427) от 25.03.2020
+
+The The - Dusk (1993) Remastered, 2002, Epic [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. True Happiness This Way Lies (03:10)
+02. Love is Stronger than Death (04:39)
+03. Dogs of Lust (03:09)
+04. This is the Night (03:50)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B9EB907A9B1E26839E03866726EDB5E697523C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370166   (898560) от 26.03.2020
+
+Linde - Cold Sore (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bookshelves                                                           [03:31]
+02. Evaporate                                                             [03:40]
+03. With Love                                                             [04:21]
+04. Eggs                                                                  [04:06](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9820398463E88A7DE52A0D69E4EA300254B387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370080   (898401) от 26.03.2020
+
+Pearl Jam - Gigaton (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Ever Said (05:10)
+02. Superblood Wolfmoon (03:49)
+03. Dance Of The Clairvoyants (04:25)
+04. Quick Escape (04:46)(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A43AD913AC5BCA1AB21BB335858D0EB300E7A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100835   (898021) от 05.02.2017
 
 HorrorPops - Hell Yeah! (2004) [APE|Lossless|image + .cue] <Rockabilly, Punk Rock, Psychobilly>
@@ -653,93 +740,6 @@ The Calling - Camino Palmero (2002) [FLAC|Lossless|tracks + .cue] <Alternative R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7367FF7A97AF09D6D0741A8BEF518727EBC8498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495480   (880815) от 12.09.2021
-
-The Used - Heartwork (2021) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Emo-Screamo, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradise Lost, a poem by John Milton [00:02:47]
-02. Blow Me (feat. Jason Aalon Butler) [00:03:20]
-03. BIG, WANNA BE [00:03:30]
-04. Bloody Nose [00:03:04](   Читать дальше...   )Жанр: Emo-Screamo, Post-HardcoreПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0933F7BEA041EDFA7DBF6DA1E91F70047F32CEB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996471   (879174) от 14.03.2016
-
-The Calling - Two (2004) [FLAC|Lossless|image + .cue] <Alternative Rock, Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One By One
-02. Our Lives
-03. Things Will Go My Way
-04. Chasing The Sun(   Читать дальше...   )Жанр: Alternative Rock, Soft Rock, Pop RockПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0759BF2C9BCBB767B53A18B183AB1E8505C1B513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996505   (879169) от 14.03.2016
-
-Hoobastank - The Greatest Hits: Don't Touch My Moustache (2012) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Crawling In The Dark (02:58)
-02. My Turn (03:11)
-03. Out Of Control (02:45)
-04. The Reason (03:55)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABFED10CD7C1FD95038409ED5BA8C17ECF70EDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1203132   (788564) от 01.02.2018
+
+VA - Return To The 80's and 90's (2018) [MP3|320 Kbps] <Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788564.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Manowar  -  Kings Of Metal  3:45
+002.  Accept  -  Breaker  3:34
+003.  Dio  -  Holy Diver  5:50
+004.  Annihilator  -  The Fun Palace  5:51(   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 08:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CCED365971C0B7A778C8CF2DEFFF285F3EFBA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511859   (788373) от 22.11.2021
 
 Rolling Stones - Atlantic City '89 (feat. E. Clapton, J. Lee Hooker, Axl & Izzy)(1990) Bootleg 3cd-box [MP3|320 Kbps] <Rock>
@@ -722,35 +751,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10FE61AC018977C8B1CEFF041900774BC5E354BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211911   (776857) от 09.03.2018
-
-VA - Good Times Roll (2018) [MP3|320 Kbps] <Rock and Roll, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776857.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hornbuckle - Knife In Your Hand
-002. Fatboy - Down At The Room
-003. The Boo Devils - Tonight
-004. Gaspard Royant - 7' Club(   Читать дальше...   )Жанр: Rock and Roll, RockПродолжительность: 05:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6130F6DBD23BEBA053FBF1C0DB8D2CFECCAED0B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

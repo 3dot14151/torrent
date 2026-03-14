@@ -1,3 +1,32 @@
+###  Публикация: 1092722   (938394) от 12.01.2017
+
+Accept - Restless ­And Live (2017) 2CD [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938394.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Stampede
+02. Stalingrad
+03. Hellfire(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6769424DD57FAB7A4738FCC8EC4C81BE34777D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092590   (937329) от 13.01.2017
 
 Tyrant of Death - Ion Legacy (2015) [OGG|~600kbps] <Industrial Metal, Math Metal>
@@ -715,35 +744,6 @@ Do Or Die - Crows (2015) [MP3|320 кб/с]<Groove Metal, Hardcore, Thrash Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36BF503BE31B58DFD7E18759DC4CFF576E421C7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365548   (929152) от 08.03.2020
-
-Vetur - Nætur, Vist (2018-2020) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haugfé [00:01:44]
-02. Gandreið [00:04:51]
-03. Dalalæða [00:05:30]
-04. Þrá [00:04:07](   Читать дальше...   )Жанр: Black MetalПродолжительность: 2 CD, 01:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBDCAAA3546B452F74BD61878250BA19F0FD8B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

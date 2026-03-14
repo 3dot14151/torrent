@@ -1,3 +1,38 @@
+###  Публикация: 482288   (99693) от 15.04.2012
+
+VA - Points of Interest (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frost Raven - Points of Interest (Nimerix's Fullon mix) 08:20
+ 02. Hanzo - My World 06:08
+ 03. Shyisma - Slot 06:58
+ 04. Virtual Attack - Can't Stop 06:57
+ 05. Solar Spectrum - Space Travellers 07:26
+ 06. Day.Din - The Radio Star (original mix) 07:17
+ 07. Project Sketch - With A Herring 08:02
+ 08. Vice - With In (Phaxe Remix) 08:00
+ 09. DNA - Signal 5 (original mix) 07:08
+ 10. Potter And Neelix - On The Run (Fusi And Johnson remix) 08:13(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCC7948F018442598E864A8FFACEA907D13CCEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481321   (99328) от 12.04.2012
 
 VA - Out Of Body (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
@@ -862,41 +897,6 @@ VA - Dub Step vol.7 from AGR (2012) [MP3|256 kbps]<Dub Step>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3231220E6F4DB728207741F4B7849A6D930A17C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473798   (97795) от 27.03.2012
-
-VA - Dub Step vol.6 from AGR (2012) [MP3|256 kbps]<Dub Step>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geiom - Reminissin (feat. Marita)(Shackleton Refix)
-02. Alert - Any Less Dead
-03. Schaut! - Spacey Dub Chill
-04. Anstam - Aeto 2
-05. Boxcutter - Glyphic
-06. Mala - Changes
-07. Scorn - Super Mantis
-08. Silkie - Techno 22
-09. Vexd - Thunder
-10. George Lenton - Troll(   Читать дальше...   )2012Жанр: Dub StepПродолжительность: 08:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6785C069099DA21E9C529BEE66F557A30C8D6037
 ```
 
 https://mybot314.ru/tekegram_catalog/

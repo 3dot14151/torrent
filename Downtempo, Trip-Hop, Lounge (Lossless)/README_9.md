@@ -1,3 +1,61 @@
+###  Публикация: 1123678   (786106) от 09.04.2017
+
+Blank & Jones - Milchbar: Seaside Season 9 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - My Island
+02. Blank & Jones with Zoe Dee - Adios Ayer
+03. Cantoma - Sea of Blue
+04. Zee Erf feat. Francesca Mondi - Southern Freeez (Mudd's Mix for Emma)(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAACE20C30B8C80AB108A2993CAB80A801D3613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124610   (785790) от 11.04.2017
+
+Faro - Shape Of Sense (2009) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shape Of Sense (6:02)
+ 02. Love Without The Self (5:35)
+ 03. Cold Days (6:05)
+ 04. Bridge Of Sighs (5:04)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36397E0683DB54BCE8162CA879BCCC93E36F275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124544   (785786) от 11.04.2017
 
 Faro - Dreaming In Orange (2010) Reissue, 2017 [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
@@ -687,64 +745,6 @@ Michael E - Cotton Blossom (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:818BC4A186CE1CEA69464EF662AFCC53EDDC857D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522803   (756641) от 08.01.2022
-
-VA - Invisible Smile: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Hiska – Next Time Soon (06:03)
-02. Dellasollounge – Come With Me (original mix) (03:18)
-03. Marga Sol – Butterflies (original mix) (06:50)
-04. Steen Thottrup – Balearic Bliss (original mix) (05:57)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B113582A55EB69714452668E94F7EB8CCACB2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215644   (756478) от 27.03.2018
-
-DJ Krush - Cosmic Yard (2018) Es.U.Es Corporation [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Breakbeat, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regulus (03:49)
-02. Stellar Wind (03:21)
-03. Divine Protection (feat. 渥美幸裕) (04:18)
-04. Asterism (Interlude) (01:37)(   Читать дальше...   )Жанр: Downtempo, Breakbeat, Trip HopПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CAB3F06285BA56ED1E64A19C310835E79B5DD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

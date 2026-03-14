@@ -1,3 +1,61 @@
+###  Публикация: 737621   (959383) от 26.01.2016
+
+Tiesto - Club Life 351 - 460 (Обновляемая) (2013-2016) [MP3|128-320 кб/с]<Progressive House, Electro House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tube & Berger feat. Juliet Sikora - Set It Off
+02. Tim Berg feat. Amanda Wilson - Seek Bromance (Dear David & Posse Version)
+03. C-Block - So Strung Out (Christian Cardwell & Nigel Stately Remix)
+04. Lexer feat. Chantal - Dream & Love (Pingpong Tanzt Mix / SonneMondSterne Version)(   Читать дальше...   )Жанр: Progressive House, Electro House, Deep HouseПродолжительность: 195:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657EB75E46E4D0B0D3F057721F7B2240007F1636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363650   (942610) от 28.02.2020
+
+Cold Blue - Live @ Crystal Forest Medellin, Colombia 2020-02-22 [MP3|256 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Blue - Golden Leaves
+02. Cold Blue - Once In Time
+03. Cold Blue - Dreamland
+04. Cold Blue - Simplicity(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1F9D2D8D6340B49DF6C2DCB1A85138CE1FF94E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587128   (942495) от 09.01.2017
 
 Aurosonic - Etyology Sessions 001-193(Обновляемая) (2007-2016) [MP3|320 кб/с]<Trance,Progressive Trance>
@@ -687,64 +745,6 @@ Third Party - Release Radio 001:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFBC161CDAD54D03A061C92E2AEE354680FD5D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500988   (839693) от 07.10.2021
-
-VA - Live @ Behind The Mask, Transmission Prague, O2 Arena Prague, Czech Republic (2021-09-11) [MP3|192-320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839693.jpg" />
-</div>
-
-
-###  Подробнее
-
-WHITENO1SE @ Behind The Mask, Transmission Prague, O2 Arena Prague, Czech Republic 2021-09-11
-
-01. WHITENO1SE - ID w/Dash Berlin & Cerf, Mitiska & Jaren - Man On The Run (Acappella)
-02. Nina Nesbitt - The Moments I'm Missing (Ranji & WHITENO1SE Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 09:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34550F92FABC06CB2F7DF3669A0B731CBEFB8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 805462   (839435) от 05.04.2016
-
-Vitaly Otto - City of Trance 001-042 (Обновляемая) (2014-2016) [MP3|320 кб/с]<Uplifting Trance,Trance>
-
->>След.
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sied van Riel ft. Chloe - Hear You Calling (Original mix)
-02.Tiesto - Suburban Train (Jordan Suckley Remix)
-03.ReOrder & Lee Osborne - Escape To Freedom (Original mix)
-04.Saad Ayub - Forgive & Forget (Original mix)(   Читать дальше...   )Жанр: Uplifting Trance,TranceПродолжительность: 43:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D31BC190015C0BF16B72999DFB42DC352590131
 ```
 
 https://mybot314.ru/tekegram_catalog/

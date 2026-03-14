@@ -1,3 +1,32 @@
+###  Публикация: 1532229   (716760) от 18.02.2022
+
+VA - Lounge Jazz in Rio De Janeiro (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zeb - Brazilenco (5:40)
+02. Gazzara - Rhodes to Bahia (5:49)
+03. LTJ XPerience - Sombre Guitar (2Gether Project Trumpet Take) (6:12)
+04. DJ Rodriguez - Peter Pan's Syndrome (5:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C21B71CECAB36A8D946C3A196F970D027C6583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532083   (716754) от 18.02.2022
 
 VA - Summer Vibes (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
@@ -665,32 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C24311AE89A5BD6681F3DAEC9BCE79702348621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400941   (715019) от 07.08.2020
-
-На обочине / Sideways (2004) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель-неудачник, потихоньку спивающийся школьный учитель литературы Майлз Рэймонд берет своего лучшего друга, вышедшего в тираж актера Джека, в поездку по винодельням Калифорнии. Джеку нужно расслабиться перед свадьбой, запланированной через неделю. Два приятеля не догадываются, что ждет их впереди и насколько эта неделя изменит их жизнь.Производство: США, Венгрия / Fox Searchlight Pictures,Michael London Productions,Sideways Productions Inc.Жанр: Драма, мелодрама, комедияРежиссер: Александр ПэйнАктеры: Пол Джаматти, Томас Хейден Чёрч, Вирджиния Мэдсен, Сандра О, Мэрилуиз Бёрк, Патрик Галлахер, Мисси Доти, М. К. Гейни, Джессика Хехт, Алисия РайнерПеревод: Дублированный, профессиональный многоголосый, авторский одноголосыйСубтитры: Русские, английские (вшитые, отключаемые)Продолжительность: 02:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D34FE1505053722D7414F558FE7594786981771
 ```
 
 https://mybot314.ru/tekegram_catalog/

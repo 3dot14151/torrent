@@ -1,3 +1,32 @@
+###  Публикация: 1216756   (747927) от 01.04.2018
+
+Realms Of Vision - Through All Unknown (2018) [MP3|320 кб/с]<Stoner Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747927.jpg" />
+</div>
+
+
+###  Подробнее
+
+[00:19] 01. Invoke
+[07:00] 02. State Of Silence
+[04:30] 03. Deception Mask
+[03:11] 04. Two Wolves(   Читать дальше...   )Жанр: Stoner Metal, Progressive MetalПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B5A355068900838926E7B14692EBE99EB63A25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216780   (747926) от 01.04.2018
 
 Derketa - In Death We Meet (2012) Not On Label [MP3|320 Kbps] <Metal, Doom Metal, Death Metal>
@@ -707,35 +736,6 @@ Kroda - Selbstwelt (2018) [MP3|320 Kbps] <Black Metal, Folk Metal, Pagan Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:826191C3EC6CBF4BDAD8AABE27075E5FBAE032A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397342   (739886) от 21.07.2020
-
-Datum X - Burn The Soul (2020) [MP3|320 Kbps] <Melodic Death Metal, Gothic Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Images ( Memories, Pt. 1) (03:29)
- 02. Burn The Soul (04:56)
- 03. By My Side (04:29)
- 04. Into Resurrection (01:45)(   Читать дальше...   )Жанр: Melodic Death Metal, Gothic Metal, Symphonic MetalПродолжительность: 01:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4555C1F24B76DA97B036D9865DF21E182DF8BBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

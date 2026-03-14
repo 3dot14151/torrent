@@ -1,3 +1,60 @@
+###  Публикация: 1158998   (488133) от 18.08.2017
+
+Cravinkel - Garden Of Loneliness (1971) Reissue, 2003, Walhalla [MP3|320 Kbps] <Prog Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488133.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sitting In The Forest
+2. Garden Of Loneliness
+3. StonedЖанр: Prog Rock, KrautrockПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B39ECF3093BF0BEC6E953D359B61D24E1CCCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158942   (488007) от 18.08.2017
+
+Cravinkel - Cravinkel (1970) Reissue, 1998, Repertoire Records [MP3|320 Kbps] <Prog Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get A Feeling Going Round
+02. Two Circles
+03. Lucy
+04. Heaven(   Читать дальше...   )Жанр: Prog Rock, KrautrockПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3044FE50D43140526BEDDB067A6B8913EB46B996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159230   (486250) от 19.08.2017
 
 Guru Guru - Guru Guru (1973) Reissue, 1997, Repertoire Records [MP3|320 Kbps] <Prog Rock, Krautrock>
@@ -715,64 +772,6 @@ Van Der Graaf Generator - Do Not Disturb (2016) [MP3|320 Kbps] <Progressive Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5C145995CD58C4EAAE1AFF6FB36E086C6EBD6FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406363   (472938) от 04.09.2020
-
-Simon Collins - Becoming Human (2020) [MP3|320 Kbps] <Progressive Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Fray (01:18)
- 02. Becoming Human (04:17)
- 03. The Universe Inside of Me (06:56)
- 04. Man Made Man (04:32)(   Читать дальше...   )Жанр: Progressive Rock, Melodic RockПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91EFE5B65A99742A94D8C6FF24C17D4487753BA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406604   (472937) от 04.09.2020
-
-Pianoбой - The Best Of (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472937.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Все що тебе не вбиває
-2. Полуничне небо
-3. Шампанські очі
-4. Кохання(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3C9D7EEF8B9F8EC82DC3EAD46F448ACBD57113
 ```
 
 https://mybot314.ru/tekegram_catalog/

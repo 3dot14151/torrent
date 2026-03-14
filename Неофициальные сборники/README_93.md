@@ -1,3 +1,119 @@
+###  Публикация: 991049   (907298) от 27.02.2016
+
+VA - Дискотека 2016 Club Dance Vol. №149 от NNNB (2016) [MP3|128-320 кб/с] <Club, Dance, Deep House, Trance, Electro House, Progressive House, Drum’n’Bass, Trap, Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Analise feat. Alexis - I Love You
+02. Scooter - Don't Break The Silence
+03. Yandel feat. Pitbull & El Chacal - Ay Mi Dios
+04. The Chainsmokers feat. Daya - Don't Let Me Down(   Читать дальше...   )Жанр: Club, Dance, Deep House, Trance, Electro House, Progressive House, Drum’n’Bass, Trap, BassПродолжительность: 10:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F080B731A903756A773EF5BA193CD4E18F9B2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099008   (907215) от 31.01.2017
+
+VA - Beatport Trance Pack (31.01.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bluskay - Breakthrough (Original Mix)  7:22
+02.  Ronski Speed - Horoscope (Ronski Speed Remix)  6:37
+03.  Alex M.O.R.P.H. & Song ft. The Moon - Dont Talk Away The Magic (Heatbeat Remix Extended)  6:42
+04.  Gary McPhail - Scott (Ula Remix)  7:10(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, VocalПродолжительность: 08:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32002A2D41DB7291896F44F7035612985055681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368318   (907077) от 21.03.2020
+
+Linkin Park - Essentials (2020) [MP3|320 Kbps] <Rock, Alt.Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - In The End 3:37
+02. Linkin Park - Numb 3:06
+03. Linkin Park - One More Light 4:15
+04. Linkin Park - Somewhere I Belong 3:34(   Читать дальше...   )Жанр: Rock, Alt.RockПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF848BB730E17D8D20F278F312BD3C6E6F11485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368314   (907073) от 21.03.2020
+
+System Of A Down - Essentials (2020) [MP3|320 Kbps] <Rock, Alternative, Nu-Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chop Suey! 3:31
+02. Sugar 2:34
+03. Toxicity 3:39
+04. B.Y.O.B. 4:16(   Читать дальше...   )Жанр: Rock, Alternative, Nu-MetalПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE47B061AB711929BAE74F9ABF7D7000D886F2FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491904   (906906) от 27.08.2021
 
 VA - Новички в попсе Vol 10 (2021) [MP3|320 Kbps] <Pop>
@@ -635,122 +751,6 @@ VA - Лучшие хиты весны на Радио Шансон (2013) [MP3|2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A318C05CA56B5ABBFDD7628A924AEC44CDD04453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368995   (905697) от 22.03.2020
-
-VA - Rhythmic Funk (2020) [MP3|320 Kbps] <Funk, Easy Listening, Funky Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905697.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Heidi B - Mr. Fly (Cristian Poow Instrumental)
-002. Inusa Dawuda - Love Criminal (Mota Remix)
-003. U.K. - Roadrunner
-004. James Reese - Let's Go(   Читать дальше...   )Жанр: Funk, Easy Listening, Funky DiscoПродолжительность: 08:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5F946CE7B98E55C213C868F808556629D24606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368781   (905655) от 22.03.2020
-
-VA - German Top 100 Single Charts 20.03.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Samra & Capital Bra - Berlin
-03. Loredana - Angst (feat. Rymez)
-04. UFO361 - Bad Girls, Good Vibes(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49473A52F1FDF0B48FC8A8771965EE5896E85053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368876   (905653) от 22.03.2020
-
-VA - The Official UK Top 40 Singles Chart 20.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SAINt JHN - Roses (Imanbek Remix)
-02. The Weeknd - Blinding Lights
-03. Aitch & AJ Tracey - Rain (feat. Tay Keith)
-04. Roddy Ricch - The Box(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DEB5B063F2CE825F09004F55B8565973DEE773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368954   (905648) от 22.03.2020
-
-VA - Record Super Chart 630 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARIA - Bleu Chanel (NA-NO Remix) 2:43
-02. Anthony Keyrouz - Love Yourself 2:56
-03. SAINt JHN - Roses (Imanbek Remix) 3:58
-04. Carla Morrison - Disfruto 3:57(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D27132AB59FCA54D307BF2262671018C9CA7564
 ```
 
 https://mybot314.ru/tekegram_catalog/

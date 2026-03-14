@@ -1,3 +1,149 @@
+###  Публикация: 1525905   (739070) от 22.01.2022
+
+Сергей Воронов - Делай своё дело (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739070.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сергей Воронов/Алексей Романов/Би-2/Константин Кинчев/Александр Ф. Скляр/СерьГа - Делай своё дело
+2. Сергей Воронов/Сергей «Чиж» Чиграков - Дополнительный 38-ой
+3. Сергей Воронов/Евгений Маргулис - Мой друг лучше всех играет блюз
+4. Сергей Воронов/Гарик Сукачёв/Сергей Мазаев - Скорый поезд придет в шесть часов(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7EC4FCB9D8344541306F0328B95C543BF506606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525918   (739039) от 22.01.2022
+
+Ольга Кормухина - Лучшие песни (2016) 2xCD [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ольга Кормухина. Азартная и драйвовая, поющая о любви хриплым голосом - она вне возраста, вне моды. Великолепная рок-вокалистка. Обладательница национальной музыкальной премии "Овация" и титула "Лучший голос России". Открытая, искренняя, не знающая компромиссов, в том числе и с самой собой. Ей на роду было написано стать певицей.
+Знаменитость (   Читать дальше...   )CD - 1:
+01. Путь (4:59)
+02. Кукушка (3:50)
+03. Падаю в небо (3:17)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 02:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7996A32BA62E6700D2B1D0933ECFECA0D45C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527335   (736901) от 28.01.2022
+
+СЛОТ - Два разных XX. The Best (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736901.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Одни
+2. 2 войны
+3. Мёртвые звёзды
+4. Они убили Кенни(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E205AD8920906C0FACCEF10C94F7C06D2C4682F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398300   (736190) от 25.07.2020
+
+Коррозия металла - Языческие Боги (2002) [FLAC|Lossless|image + .cue] <Thrash, Punk, Oi>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Человек-Динамит-Камикадзе (Music By – Макс С Болтом) 2:20
+02	Веселящий Газ	3:06
+03	Языческие Боги (Music By – Макс С Болтом) 4:28
+04	Хайль Фюрер	3:57(   Читать дальше...   )Жанр: Thrash, Punk, OiПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1734A0F4FD1377AF9D384EF4FEBD426E13CEB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398314   (736153) от 25.07.2020
+
+Коррозия металла - Богиня Морга (4-е Издание) (2019) [FLAC|Lossless|image + .cue] <Thrash, Punk, Oi>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Атлична,Атлична (2:21)
+02. Тотен Копф (3:55)
+03. Богиня Морга (5:19)
+04. Антихрист (4:17)(   Читать дальше...   )Жанр: Thrash, Punk, OiПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03759B54108F75F7FBB8EB7A6743FB13BEF85A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528419   (734422) от 02.02.2022
 
 Чайки, Ша! - XXX (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -600,151 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10195A93A85CC5967872F056C99B8CE08E9768DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533643   (703085) от 25.02.2022
-
-Кипелов - Легенды русского рока (2022) LRR edition [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703085.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Реки Времён (LRR edition)
-2. Белый ад (LRR edition)
-3. Не сейчас (LRR edition)
-4. Я свободен (LRR edition)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8DEC7CFC904BDBEE11FFFD9725C5284E78F14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533869   (701286) от 26.02.2022
-
-Красная плесень - Пробивные хиты (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701286.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Самогон (New Version)
-2. У ресторана в Ленинграде (New Version)
-3. Нравится, не нравится - спи, моя красавица (New Version)
-4. Мы еб**ись первый раз (Hard Version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD441EE6A83E7B254ACC4D0223B517C933E99ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402590   (700060) от 15.08.2020
-
-Руртов и Подвороты - Руины (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смерть с похмелья [00:02:51]
-02. Александр Петров [00:05:00]
-03. Не спасти [00:03:35]
-04. Снова и опять [00:03:26](   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED3E8F21AB3F7DF9672AC1DD67C0EF55A21BF05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402599   (699936) от 15.08.2020
-
-Megakill Paranoise - Total Fucking Shame (2019) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bubonic Metal [00:02:54]
-02. Pesonal Damien Thorn [00:03:47]
-03. Total Fucking Shame [00:03:59]
-04. Croatoan for Anybody [00:04:57](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419080B2B4D2213A423555D92984030874FE07EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402616   (699928) от 15.08.2020
-
-Coated With Filth - Like Sacrificial Lambs (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolution/Renaissance [00:03:23]
-02. Aroma of Gloom [00:02:55]
-03. Pureblood [00:03:51]
-04. Wither [00:04:17](   Читать дальше...   )Жанр: Black Death MetalПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD6A72A7DE97ADC8103DB82A8E02E38E724363F
 ```
 
 https://mybot314.ru/tekegram_catalog/

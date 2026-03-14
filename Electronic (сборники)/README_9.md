@@ -1,3 +1,32 @@
+###  Публикация: 1468895   (1016768) от 10.05.2021
+
+VA - Record Super Chart 08.05.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inna - Flashbacks (2:57)
+02. Tiesto - The Business (2:44)
+03. Eneli, Monoir - 3 to 1 (3:39)
+04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227AA6F29E6E9EB9251A6544DFA1EA607F66190F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469104   (1016749) от 10.05.2021
 
 VA - Top 100 Euphoric Trance (2021) [MP3|320 Kbps] <Trance, Electro>
@@ -716,35 +745,6 @@ VA - Synergetic Nightclub (Vol.02) (2021) [MP3|320 Kbps] <Club, Dance, House, ED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A17BAB545B00EF38364140831CF9BD00CA9571B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473949   (1013402) от 31.05.2021
-
-VA - Ibiza Chillout #15 (2021) [MP3|320 Kbps] <Chillout, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryan Kick - All That We Do  (Original Mix)
-02. Damian Force - Where Is Your Love  (Louis Feen Remix)
-03. The Bestseller - Fly Away  (Original Mix)
-04. DJ Skywalk - Love 2 Love  (Squib Extended Mix)(   Читать дальше...   )Жанр: Chillout, ElectronicПродолжительность: 01:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC46AF43903304BC3067B8C15292EC3B7AB896FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1215779   (756743) от 27.03.2018
+
+Paul Jeffrey - Watershed (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minor Scene [05:20]
+02. Brand New Day [06:02]
+03. Love Letters [05:46]
+04. Moon Madness [05:57](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A975549D4551F4EEBB3D25A5CC3507B25BA084FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522794   (756637) от 08.01.2022
+
+Brett Littlefair - Footstompin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Little Town (2:49)
+02. Girl Can Groove (3:28)
+03. Stop Your Talkin' (2:46)
+04. Makin' My Name (3:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CC00E0AFBBD6326E54CD79249A5EBFB5B8CE6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522797   (756636) от 08.01.2022
+
+The Dave Paul Band - Loving the Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Shiver (3:58)
+02. Further on up the Road (2:36)
+03. Hey Joe (5:38)
+04. Rolling Stone (5:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B0D368F54E6DA0BA46A58FE677576C4AE40DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215541   (756353) от 27.03.2018
+
+Original Chicago Blues All Stars - Gold (2018) 2CD [FLAC|Lossless|WEB-DL|tracks]
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756353.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01.  Original Chicago Blues All Stars Theme  4:04
+02.  Eyesight To The Blind  4:40
+03.  How Long Blues  4:25(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 01:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC00F7E87DA4DDB47D71EDB8653555218849A293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215833   (756339) от 27.03.2018
+
+Mario Biondi - Brasil (2018) [MP3|320 Kbps] <Jazz, Soul, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felicidade
+02. Devotion
+03. Upside Down (Flor De Lis)
+04. Rivederti (Italian Version)(   Читать дальше...   )Жанр: Jazz, Soul, PopПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFA80F9E7258A5CD7EAC3F443E7F20EB64ED5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018447   (756035) от 20.05.2016
+
+Bobbi Humphrey - Dig This! (1972) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lonely Town, Lonely Street [04:37]
+ 02.Is This All? [03:44]
+ 03.Smiling Faces Sometimes [06:22]
+ 04.Virtue [04:28](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-FunkПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736254EF1770D669F5ABB459F7BF51F0F648D067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018464   (756034) от 20.05.2016
 
 Jean-Luc Ponty - Aurora (1976) [APE|Lossless|image + .cue] <Jazz, Jazz-Rock, Fusion>
@@ -569,180 +743,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FF48B293E81B4FEC9540C8D0E1F27E8593D40FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216178   (753065) от 29.03.2018
-
-Art Pepper - Live At The Village Vanguard (1977) 4CD, 1987, Victor [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753065.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. But Beautiful [11:43]
-02. My Friend John [10:02]
-03. Valse Triste [12:23](   Читать дальше...   )Жанр: Post-BopПродолжительность: 03:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2763F23E1993BE01A9FCBBDEA8E1238C29FD624D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216166   (752940) от 29.03.2018
-
-Zoe Schwarz Blue Commotion - The Blues And I Should Have A Party (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Don't Cheat On Me  (04:05) 
-02. The Blues And I Should Have A Party  (06:27) 
-03. You've Changed  (05:31) 
-04. Way Down In The Caves  (04:54) (   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D270BD452D2605E70EBC7825CB5ED3DCA7AE0766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019350   (752338) от 22.05.2016
-
-Arlen Roth - Toolin' Around (1993) [FLAC|Lossless|tracks] <Blues-Rock, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tequila    04:58
-02. Let it Slide    05:07
-03. Goin' Back    03:48
-04. A Whiter Shade of Pale    05:23(   Читать дальше...   )Жанр: Blues-Rock, InstrumentalПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C372D9E3CD0507442A62A1A9B6034F2AA017F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019338   (752266) от 22.05.2016
-
-Nick Moss Band - From The Root To The Fruit (2016) 2CD Set [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before the Night Is Through (03:11)
-02. Make Way For Me (03:25)
-03. Dead Man's Hand (04:19)
-04. From the Root to the Fruit (03:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDBFD4FEBD6FD9219515A3A556313886C644BCEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019168   (752107) от 22.05.2016
-
-Supersonic Blues Machine - West Of Flushing, South Of Frisco (2016) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752107.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Miracle Man (4:24)
- 2. I Ain't Fallin' Again (3:28)
- 3. Running Whiskey (Feat. Billy F. Gibbons) (2:39)
- 4. Remedy (Feat. Warren Haynes) (5:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC40142007BCC42C36ABB80D212ADB29FE94BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281525   (752089) от 08.02.2019
-
-Della Reese - All Of Me (1999) 2001, Hallmark Music & Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Fall In Love [3:27]
-02. That's All [3:37]
-03. Come Rain Or Shine [3:02]
-04. Love Me Tender [3:01](   Читать дальше...   )Жанр: Vocal Jazz, Soul JazzПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DAD857B585A1F088FCD4C389117CB3F672313A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

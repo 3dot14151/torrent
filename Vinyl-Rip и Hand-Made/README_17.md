@@ -1,3 +1,119 @@
+###  Публикация: 1530226   (728683) от 11.02.2022
+
+ДДТ - Я Получил Эту Роль (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728683.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Поэт (1985)
+A2 Мальчики-мажоры (1985)
+A3 Конвейер (1987)
+A4 Не Стреляй! (1982)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A38E00B185EEA503AC903D3D22F951017B5460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128403   (728545) от 24.04.2017
+
+Jeff Lynne - Armchair Theatre (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728545.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Every Little Thing (3:45)
+A2. Don't Let Go (2:59)
+A3. Lift Me Up (3:38)
+A4. Nobody Home (3:54)(   Читать дальше...   )Производство: Reprise Records - 7599-26184-1Жанр: RockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66386E6A8D4786D67AF6FC32B3C01129F9B5963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955597   (727525) от 12.02.2022
+
+VA - Мельница: Песни И. Николаева (1988) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игорь Николаев	Незнакомка · A Stranger	4:15
+02. Александр Кальянов	Старый Друг · Old Friend	6:54
+03. Алла Пугачева	Любимчик Пашка · Pashka Pet	3:17
+04. Игорь Скляр	Понедельник · Monday	2:51(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06220FFA057ABCADE08BD23862E9BB4D72D0C3FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 883954   (726267) от 13.02.2022
+
+VA - Антология советского киношлягера - Любимые песни из кинофильмов (Человек с бульвара Капуцинов и др.) (1996) [FLAC 2.0|16/44,1 (image+.cue)]<Soundtrack/Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Синема - А. Миронов (из к/ф ''Человек с бульвара Капуцинов'')
+02. Волшебный луч - Л. Долина (из к/ф ''Человек с бульвара Капуцинов'')
+03. Всё прекрасно - Л. Долина (из к/ф ''Человек с бульвара Капуцинов'')
+04. Далека дорога твоя - М. Боярский (из к/ф ''Человек с бульвара Капуцинов'')(   Читать дальше...   )Жанр: Soundtrack/PopПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A80D841D90B62676494D323C24E9D01F0E180ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 866856   (726101) от 13.02.2022
 
 Various Artists - Любимые песни из фильмов  /Movie Songs (1998) [FLAC 2.0 (image+.cue)|16/44,1 (MC-Rip)]<Soundtrack/Sound-Alike>
@@ -631,122 +747,6 @@ A4 Time(   Читать дальше...   )Жанр: Hard Rock, Pop RockПрод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8309D8D21EC3FADFB102F752FB0DD3C6C2DDD7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151830   (694127) от 02.03.2022
-
-Shy - Excess All Areas (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694127.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Emergency
-A2 Can't Fight The Nights
-A3 Young Heart
-A4 Just Love Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFEBED8B5EB0AAA6D219FDB7F9D961E29262A747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150975   (694000) от 02.03.2022
-
-George Harrison - Somewhere In England (1981) [FLAC 2.0|192/24|image+.cue|Vinyl-Ri] <Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694000.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Blood From A Clone
-A2 Unconsciousness Rules
-A3 Life Itself
-A4 All Those Years Ago(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B1F8F64BFB391086913FC53E92A74495250133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221228   (692986) от 25.04.2018
-
-группа ЛЕДИ - Горькая ложь (1991) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692986.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:17] 01. На Дискотеке
-[4:16] 02. Какой же ты суровый
-[3:35] 03. Южный(Нежный) город
-[3:49] 04. Я как птица на свет(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E910DCF892C1980FB42D6F25C243D9797420D8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534675   (690520) от 04.03.2022
-
-The Beatles - The Beatles (White Album) (1968) 1977 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock, Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690520.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Back In The U.S.S.R.
-A2 Dear Prudence
-A3 Glass Onion
-A4 Ob-La-Di, Ob-La-Da(   Читать дальше...   )Жанр: Pop Rock, Psychedelic RockПродолжительность: 01:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2AAA4FD7082BA267DE6AA85CF1AFA0C6F3B14B
 ```
 
 https://mybot314.ru/tekegram_catalog/

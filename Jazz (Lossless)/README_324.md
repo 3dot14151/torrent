@@ -1,3 +1,90 @@
+###  Публикация: 1725166   (109043) от 23.05.2024
+
+Superblue - Superblue 2 (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight to Jordan [4:56]
+02. Nica's Dream [5:51]
+03. 'Round Midnight [5:57]
+04. Take Your Pick [4:14](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E741A2D1DDA8D70A775CE0736194DA36B906494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725439   (108983) от 24.05.2024
+
+Howard Alden, Frank Vignola, Jimmy Bruno - Concord Jazz Guitar Collective (1995) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bittersweet [5:57]
+02. Strictly Confidential [4:29]
+03. String Thing [4:39]
+04. Mating Call [6:38](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4F9D9CCE7F916E5AB8144DD058AA3BF03F7E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725442   (108982) от 24.05.2024
+
+Kenny Burrell & The Jazz Heritage All-Stars - Live At The Blue Note (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones for Joan's Bones [9:00]
+02. The Entertainer [6:14]
+03. Medley: Embraceable You/Quasi Modo [7:11]
+04. Dear Ella [7:11](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816F45E896914E2B6820B2B55F4EFB308DC00CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725433   (108981) от 24.05.2024
 
 Kenny Burrell - When Lights Are Low (1978) 1997, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Guitar Jazz>
@@ -658,93 +745,6 @@ VA - Jazz Tempoe Doeloe (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85BD14D8F6A47496DE3DF08571EC3E97A34BA50E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726691   (108684) от 29.05.2024
-
-Jeff Shirley - Modes of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rule of Thumb (6:33)
-02. Transients (4:21)
-03. Zentangle (5:14)
-04. Organ Trail (6:33)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317BB5B17378404A89A5934590F16CB2F5F0912E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726410   (108683) от 29.05.2024
-
-VA - Sweet Enjoyable Intimate Soft Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Aurora (5:13)
-02. Kool&Klean - Islands in Tranquility (5:06)
-03. eJazz Artistry - Story of My Life (5:06)
-04. Chillaxing Jazz Kollektion - Wherever I Go (4:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA1E5B64B742C1705D20B7FD52E4C41CC8FA73A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726412   (108682) от 29.05.2024
-
-VA - The Groove Funk Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stato Brado - Black Hole (4:54)
-02. Ltj Xperience - Don't Let The System  Get You Down (Regrooved Mix) (7:33)
-03. Blade & Masquenada Family - Sex Cat (4:56)
-04. Lainz - P-Lainz (6:23)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07466E4139D17EFA613BEE50D607FE1C1D9C5A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,25 @@
-###  Публикация: 1704403   (114338) от 04.03.2024
+###  Публикация: 1702299   (115806) от 24.02.2024
 
-USB Device Tree Viewer 4.0.5.0 Portable [En]
+Mike Zito - Life Is Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114338.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-UsbTreeView - маленькая портативная утилита, реализующая большую, по сравнению со стандартным средством, наглядность представления USB портов, хабов и устройств, посредством древовидного списка и поля информации, с возможностью копирования текста простым выделением. UsbTreeView основан на образце USBView из комплекта драйверов Windows Server 2003, но дополнен: лучшими (   Читать дальше...   )Язык интерфейса: Английский
+01. Lonely Man (3:51)
+02. Life Is Hard (4:34)
+03. Have A Talk With God (4:34)
+04. Forever My Love (6:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F42A1B5046703CD2B866EBF1E3689A089CE4F75D
+magnet:?xt=urn:btih:D14AC44D3A556E9861ACDBB71D3A6FC4ECBF09FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704470   (114337) от 04.03.2024
+###  Публикация: 1702266   (115805) от 24.02.2024
 
-djay - DJ App & AI Mixer 5.1.3 [En]
+Газета | Моя Семья №7 (1206) (февраль 2024) [PDF]
 
->>Программы для macOS
->>Аудио и видео редакторы для macOS
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114337.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.04.2024Разработчик: © 2024 algoriddim GmbHПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+«Моя Семья» задумана как газета о человеческих отношениях. Редакция делает упор на историях из жизни, поэтому многие наши публикации читаются как романы. Главной основой публикаций являются письма читателей, что делает «Мою Семью» уникальной — все наши истории подлинные.Жанр: Семья, дом, бытИздательство: ООО "Издательство "Моя Семья"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F01E11ADC81229E1627DC373C425EFBD764E51B
+magnet:?xt=urn:btih:169477F104FEA90F0DF457DD43776253BF63D13E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704414   (114336) от 04.03.2024
+###  Публикация: 1702113   (115804) от 24.02.2024
 
-K-Lite Codec Pack Update 18.1.6 [En]
+Suede - Bloodsports (2013) Deluxe Edition, 2024, Edsel [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Indie Pop>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114336.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+01. Barriers [00:03:42]
+02. Snowblind [00:04:03]
+03. It Starts and Ends with You [00:03:51]
+04. Sabotage [00:03:45](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Indie PopПродолжительность: 01:12:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C17BC9DC6D2B60A13EA6CFBD30DA8730C26CFE7E
+magnet:?xt=urn:btih:4F5B5506082505408D4F2774192EB955F6C11DBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704406   (114335) от 04.03.2024
+###  Публикация: 1702336   (115802) от 24.02.2024
 
-Diana Ross (Дайана Росс) - Поет Дайана Росс (1979) [FLAC 24/192|Lossless|tracks] <Pop, Soul>
+Dark Fortress - Studio Albums (8 releases) (2001-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114335.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01 - Будь готов встретить любовь. Gettin' Ready For Love. (T.Show-F.Golde)
-02 - Ты получил это. You Got It. (J.Ragovoy-L.Laurie)
-03 - Бэби, это я. Baby It's Me. (D.Dann-C.Smith)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:35:03
+Dark Fortress — немецкая блэк-метал группа из Ландсхута, образованная в 1994 году. Распались после финального тура в мае 2023 года.2001 - Tales from Eternal Dusk
+2003 - Profane Genocidal Creations
+2004 - Stab Wounds
+2006 - SeanceЖанр: Progressive/Melodic Black MetalПродолжительность: 09:21:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E4EBB4911A66D40EF8F0AEB5334F6439C66E785
+magnet:?xt=urn:btih:9DC6FED9E0C0017D71079E72D05B507781E0DE4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,393 +111,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704217   (114334) от 04.03.2024
+###  Публикация: 1702262   (115801) от 24.02.2024
 
-Blues Joke - Better Old Than Dead (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Blues Rock, Progressive Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At the End [00:03:39]
-02. Hater [00:03:03]
-03. Find Your Place [00:00:51]
-04. Know Your Place [00:05:11](   Читать дальше...   )Жанр: Classic Hard Blues Rock, Progressive RockПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193704E6B41F4DDF469C25254595934B71697042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704490   (114333) от 04.03.2024
-
-VA - Smooth'N'Soulful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grover Washington Jr. - Watching You Watching Me (5:28)
-02. Chic - A Warm Summer Night (6:05)
-03. Joe Sample - Put It Where You Want It (5:10)
-04. Willie Bradley - In the Meantime (feat. Gerald Alston) (4:55)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 02:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA0A8448F7868DFEDBD44195A83B8AE188CAAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704494   (114332) от 04.03.2024
-
-VA - Soothing Chill Lounge Relaxing Ultimate Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - My World (5:25)
-02. eJazz Artistry - You're Makin' Me High (4:48)
-03. Chillaxing Jazz Kollektion - It Dews (5:02)
-04. Kool&Klean - Learn to Live (3:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB821FCA0A57A65554E0AC0ED6CCED91C76E2002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704365   (114331) от 04.03.2024
-
-Reader for Mac 5.8 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reader — это быстрая и минималистичная программа просмотра PDF с мощными элементами управления.
-Это полная версия Reader, которая включает в себя базовые аннотации, включая выделение и написание желтых заметок.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2024Разработчик: © 2024 The Augmented Text Company LTDПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B9A6C313E8B0CC8D0740E702FB645F9B8F5433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704514   (114330) от 04.03.2024
-
-Data Extractor 1.9.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Data Extractor позволяет извлекать данные, содержащиеся в текстовых документах, и собирать их во внутренней организованной таблице с полями и записями.
-Он может анализировать все указанные вами текстовые файлы. Проанализировав их, понять по текстовым тегам, что извлечь и куда это поместить. Data Extractor преобразует хаотические данные в один организованный элемент (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.03.2024Разработчик: © 2024 Roberto PanettaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CC152ACD137465788AB3AFA87B4A27E2D01474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704139   (114329) от 04.03.2024
-
-Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime: Timeless Instrumental Collection of Dixieland Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birth Of The Dixieland Music (3:34)
-02. Happy Serenity (3:12)
-03. Break with Jazz (3:29)
-04. Timeless Vintage Coffee (3:35)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FB11EFCA4798DCB97043CD4DBF2572C8D921C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704498   (114328) от 04.03.2024
-
-VA - 2020s Rock Attitude (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linkin Park - Fighting Myself (3:21)
-02. Paramore - Running Out of Time (3:12)
-03. Green Day - Bobby Sox (3:44)
-04. THE GOO GOO DOLLS - Who's Gonna Hear Their Wish? (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7875111D67BCDDDA8EE3CD1C47993D822A313A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704502   (114327) от 04.03.2024
-
-VA - Rock Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall Out Boy - We Didn’t Start the Fire (3:36)
-02. Against The Current - jump (2:40)
-03. Disturbed - Who (4:47)
-04. illenium - Eyes Wide Shut (2:32)(   Читать дальше...   )Жанр: RockПродолжительность: 02:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CC014BAFCADEE8AE2F68767EA34118DED8190E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704200   (114326) от 04.03.2024
-
-Absolon - The Blood Seed (2024) [MP3|320kbps] <Power Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destroyer [00:05:09]
-02. Darkness Calls [00:04:27]
-03. My Shadow [00:04:27]
-04. Anger Unconfined [00:04:13](   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81B8BB55F5371F06505E97F2F99F489DF018C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704358   (114325) от 04.03.2024
-
-TunesKit AceMovi Video Editor 4.9.23 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114325.jpg" />
-</div>
-
-
-###  Подробнее
-
-TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2024Разработчик: © 2024 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE3931C68FCE7224C7D40727A02E3AB5C07A368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704495   (114324) от 04.03.2024
-
-VA - Ultimate Chill Lounge Relaxing Soothing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Happiness (4:18)
-02. Chillaxonic - Iridescent (5:10)
-03. Kool&Klean - My World (5:25)
-04. Chillaxing Jazz Kollektion - Summer Wind (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C347856CC2F91D62409C626BF1BB853CC5528140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704346   (114323) от 04.03.2024
-
-Чингиз Абдуллаев | Альтернатива (Книга 1). Альтернатива для грешников (2024) [MP3, Pogorelov FM]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ночная операция по задержанию банды преступников. Опасно, но не опаснее любой операции группы особого назначения. Уж такова работа многоопытного полковника и его людей. Однако одна-единственная случайная находка внезапно наводит полковника на след запутанного, необычного преступления. Преступления, раскрыть тайну которого практически невозможно…Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 09:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8F623D6D68EB0DDD17057E93AFB3E4ADC6041C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704154   (114322) от 04.03.2024
-
-Smokin Dame - Revelations From A Gun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dope 'n Roll (4:21)
-02. Day Of The Living Dead (4:07)
-03. Electric Fire (2:48)
-04. Brain Dead (5:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE39BFEC5906347A05429D79ED854A81E21AA71D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704405   (114321) от 04.03.2024
-
-Screen Studio for Mac ARM/iNTEL 2.20.4 [En]
+Video Converter X2 for Mac 1.3.0 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114321.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красивые записи экрана за считанные минуты. Промо-видео вашего цифрового продукта так же просто, как сделать снимок экрана. Видео высокого качества — навыки редактирования не требуются.
-Все, что вам нужно было делать в программном обеспечении для видео, Screen Studio делает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 23.02.2024Разработчик: © 2024 Adam PietrasiakПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+Video Converter X2 — это полнофункциональное программное обеспечение для преобразования форматов, которое поддерживает конвертацию практически всех форматов мультимедийных файлов, включая видео MP4, AVI, 3GP, WMV, MKV, VOB, MOV, FLV; аудио MP3, AC3, FLAC, AAC, M4A, AIFF, WAV и т. д.
+Video Converter X2 имеет встроенные шаблоны форматов, оптимизированные для различных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.02.2024Разработчик: © 2024 Omi Software Studio IncПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, упрощенный Китайский и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59DB1D2FB387C2B3F146EE43C94CC739920C9C30
+magnet:?xt=urn:btih:5CBF71BA9F17DD18BE0CBA8F5231782EA878B1F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,28 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704168   (114320) от 04.03.2024
+###  Публикация: 1702288   (115800) от 24.02.2024
 
-Caravan Palace - Gangbusters Melody Club (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <swing>
+MGMT - Loss of Life (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie, Psychedelic Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114320.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115800.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. MAD (2:47)
-2. Mirrors (3:41)
-3. 81 Specials (3:56)
-4. Raccoons (3:27)(   Читать дальше...   )Жанр: swingПродолжительность: 00:43:29
+01 – Loss Of Life (part 2)
+02 – Mother Nature
+03 – Dancing In Babylon
+04 – People In The Streets(   Читать дальше...   )Жанр: Indie, Psychedelic PopПродолжительность: 00:45:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF885EBB7B33FC835D384B3D321703A979D5E5AB
+magnet:?xt=urn:btih:E3D5CC2910B70AFAC7868A8925DB63EB73196A0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,80 +167,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704488   (114319) от 04.03.2024
+###  Публикация: 1702286   (115799) от 24.02.2024
 
-Редьярд Киплинг | Сновидец (2022) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114319.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Джорджи с малых лет привык, что временами он оказывается в одной и той же Стране Сновидений. Его неизменной спутницей стала девочка, которую он видел однажды в театре, не зная ее имени он назвал ее Аннилуизой. Шли годы, Джорджи получил высшую воинскую награду за службу в Индии. Все эти годы он знал, что если сон начинается со стопки хвороста у морского берега, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 01:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6604F00D20EDDD8149A2A1F00C260324F1B419C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704425   (114317) от 04.03.2024
-
-Эмма Райц | Фенрир (Книга 1). Нарушитель границ (2024) [MP3, Владимир Суменков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты всегда в пяти минутах от смерти. Каждый твой следующий вдох обнуляет этот таймер. Хотя я бы поспорил насчёт количества минут, если приходится всплывать со дна реки в середине октября.Ладно. Меня зовут Андрей Давыдов. И теперь я – главный герой. Если, блин, не сдохну, так и не добравшись к вожделенному воздуху. Пять минут, говорите?Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 10:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901A31E462661FE357329D0B1C3F6099B72BD981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704212   (114316) от 04.03.2024
-
-Black Sabbath - Sabbath Bloody Sabbath (1973) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
+Cynic - Uroboric Forms - The Complete Demo Recordings (2017) Compilation [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114316.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side 1
-01. Sabbath Bloody Sabbath
-02. A National Acrobat
-03. Fluff(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:48
+А1 - Uroboric Forms (Demo 1991)
+A2 - The Eagle Nature (Demo 1991)
+A3 - Pleading For Preservation (Demo 1991)
+A4 - Lifeless Irony (Demo 1990)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:56:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1ECF220750FF2BE1B10594E48D10660F18EDFDD7
+magnet:?xt=urn:btih:30F0149CFF692D5C6EBBAE46EE101C42F615E2BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,28 +196,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704195   (114315) от 04.03.2024
+###  Публикация: 1702331   (115798) от 24.02.2024
 
-Observers - The Age of the Machine Entities (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <melodic metal, dark ambient, undertone, Instrumental>
+Marian McPartland - At The Hickory House (1955) 1992, Jasmine Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114315.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Into The Eye
-02 – Frank Poole’s Dream
-03 – Frozen Lattices of Light
-04 – Strange and Beautiful(   Читать дальше...   )Жанр: melodic metal, dark ambient, undertone, InstrumentalПродолжительность: 00:35:35
+01. I Hear Music [3:35]
+02. Tickle-Toe [2:58]
+03. Street of Dreams [2:11]
+04. How Long Has This Been Going On [4:07](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:37:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D705E8433DC15E98844865C5BA8BF20DDDE53833
+magnet:?xt=urn:btih:07034EC6619652410D9079CFC30AB4C2C9A7F8EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,25 +225,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704500   (114314) от 04.03.2024
+###  Публикация: 1702297   (115797) от 24.02.2024
 
-Syncovery for Mac 10.12.4 ARM/iNTEL [En]
+Dissolving of Prodigy - Lamentations of Innocents (1995) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114314.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение Syncovery автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно к компьютеру, так и через локальную сеть и «Интернет».Тип издания: macOS SoftwareРелиз состоялся: 29.02.2024Разработчик: © 2024 Super Flexible Software GmbH & Co.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+01. Lovely (05:17)
+02. Affliction (07:39)
+03. The Torment in Blind Eyes (08:19)
+04. Damocles Gladius (07:04)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:57:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17590B59BF432048AA2E513663073C4CB89CE00B
+magnet:?xt=urn:btih:87E19648363DBE3E11CFBB609BFB1BFDE9332AFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,25 +254,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704473   (114313) от 04.03.2024
+###  Публикация: 301758   (115796) от 25.02.2024
 
-MetaRename for Mac 1.0.10 [Multi/Ru]
+Владимир Анищенков | Александр Суворов (2009) [MP3, Владимир Анищенков]
 
->>Программы для macOS
->>Графика для macOS
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114313.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MetaRename — это удобный инструмент для фотографов и видеооператоров, которым необходимо регулярно управлять обширными коллекциями файлов. Используя MetaRename, вы можете легко переименовывать и упорядочивать свои фотографии и видео на основе метаданных, таких как модель камеры, дата съемки и местоположение, что упрощает поиск нужных файлов, когда они вам нужны.Тип издания: macOS SoftwareРелиз состоялся: 03.03.2024Разработчик: © 2012-2024 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
+Серия/Цикл: Русские воины.
+Предлагаем вашему вниманию аудиокнигу о великом русском полководце Александре Суворове. Взятие Измаила и Турина, победа у Нови и переход через Альпы, Семилетняя война и Первая Турецкая война – обо всех этих важных этапах военной карьеры А.В. Суворова вы узнаете, прослушав данную аудиокнигу.Жанр: Русская литература, историческая повесть, жизнеописаниеИздательство: БлагословениеПродолжительность: 05:5:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9B8B37DC4B23C43A159630B9074A56786E72E16
+magnet:?xt=urn:btih:3C4E7E0A47D5B404440C8C38EC847583941A615D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,28 +281,416 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704144   (114312) от 04.03.2024
+###  Публикация: 1702469   (115795) от 25.02.2024
 
-Malted Milk - 1975 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Мир в огне / World on Fire (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-6 из 6) TVShows
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114312.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 1975 (3:11)
-02. A little bit of soul (3:28)
-03. Love for yourself (4:35)
-04. Better now (3:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:55
+Во 2-м сезоне сериала «Мир в огне» события разворачиваются в октябре 1940 года. Британия впервые в полной мере осознает новую реальность наступившей войны. Пилотов-одиночек посылают уничтожать немецкие бомбардировщики, рыщущие в небе над Манчестером. В это время фашистская Германия запускает план Северного блицкрига. Британских солдат – вчерашних мальчишек – отправляют (   Читать дальше...   )Производство: Великобритания / BBC One, Mammoth ScreenЖанр: Драма, военныйРежиссер: Чания Баттон, Адам Смит, Энди УилсонАктеры: Хелен Хант, Джона Хауэр-Кинг, Лесли Мэнвилл, Зофиа Вихлач, Джулия Браун, Ирса Дэйли-Уорд, Южени Деруан, Матеуш Вецлавек, Паркер СойерсПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E13DA2350351E6480D9743376A922A2D224DB08
+magnet:?xt=urn:btih:E2E553CAE25EE6D6E23E1C58169EF42DFF33E382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702462   (115794) от 25.02.2024
+
+Дурные деньги / Dumb Money (2023) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, что миром правят деньги. А деньгами распоряжается Уолл-Стрит. И если на самом верху решили, что небольшая сеть магазинов видеоигр должна обанкротиться, то под это можно брать кредит в банке. Но однажды обычные люди сказали «нет» и дали бой мировым биржам. Геймеры, тик-токеры, домохозяйки и мелкие инвесторы принялись скупать акции и «сломали» Уолл-Стрит, (   Читать дальше...   )Производство: США / Columbia Pictures, Black Bear Pictures, Stage 6 Films, Sony Pictures Entertainment (SPE)Жанр: Биография, комедия, драмаРежиссер: Крэйг ГиллеспиАктеры: Сет Роген, Пол Дано, Себастиан Стэн, Пит Дэвидсон, Шейлин Вудли, Ник Офферман, Винсент Д’Онофрио, Клэнси Браун, Дэйн ДеХаан, Америка ФеррераПеревод: Дублированный (Велес)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) отдельноПродолжительность: 01:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AA4BA762DB80D0CDC53CE91227C4D665D233A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702553   (115793) от 25.02.2024
+
+Призрак в доспехах / Koukaku Kidoutai / Ghost in the Shell (1995) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115793.jpg" />
+</div>
+
+
+###  Подробнее
+
+2029 год. Благодаря значительным достижениям в кибернетике люди могут заменять свои конечности роботизированными частями. Майор Мотоко Кусанаги из 9-го отдела службы безопасности ведёт расследование, связанное с таинственным хакером, который называет себя Кукловод.Производство: Япония / Production I.G.Жанр: аниме, мультфильм, фантастика, боевик, детектив, криминалРежиссер: Мамору ОсииПеревод: Дублированный (AB Video)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 01:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED81D520667FF427ED92F233DE0706E24AC902C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702461   (115792) от 25.02.2024
+
+Дурные деньги / Dumb Money (2023) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, что миром правят деньги. А деньгами распоряжается Уолл-Стрит. И если на самом верху решили, что небольшая сеть магазинов видеоигр должна обанкротиться, то под это можно брать кредит в банке. Но однажды обычные люди сказали «нет» и дали бой мировым биржам. Геймеры, тик-токеры, домохозяйки и мелкие инвесторы принялись скупать акции и «сломали» Уолл-Стрит, (   Читать дальше...   )Производство: США / Columbia Pictures, Black Bear Pictures, Stage 6 Films, Sony Pictures Entertainment (SPE)Жанр: Биография, комедия, драмаРежиссер: Крэйг ГиллеспиАктеры: Сет Роген, Пол Дано, Себастиан Стэн, Пит Дэвидсон, Шейлин Вудли, Ник Офферман, Винсент Д’Онофрио, Клэнси Браун, Дэйн ДеХаан, Америка ФеррераПеревод: Дублированный (Велес), Многоголосый профессиональный (TVShows), Авторский (Яроцкий)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full 18+), aнглийские (Forced, Full, SDH)Продолжительность: 01:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923BBA42EF77465D8CBE1AF09204C2E45717D1DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573506   (115791) от 25.02.2024
+
+Пранария－Дыхательные практики v1.2.5 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мало кто знает, насколько это важно дышать правильно и как сильно это влияет на нашу жизнь.
+Наблюдая за детьми, вы можете обратить внимание, что у них вдох выдох происходит через живот. С возрастом человек теряет эту привычку и вдох у него происходит грудью. Объем легких рассчитан на 3–6 литров воздуха. Во втором случае воздух не полностью заполняет легкие, всего (   Читать дальше...   )Тип издания: ProРелиз состоялся: 13.01.2023Разработчик: mEL StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E3674D9BE50EE5ADAC91E2194679AE245BDA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702547   (115790) от 25.02.2024
+
+Пила. Джокер / Темная игра / DarkGame  (2024) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маньяк запускает в прямом эфире реалити-шоу, в котором собраны все самые жестокие игры на выживание. Похищенные им жертвы выполняют сложные задания, а цена проигрыша — смерть. Пока миллионы людей по всему миру наблюдают за этой смертельной игрой, талантливый и не терпящий поражений детектив Бен разгадывает головоломку, чтобы выйти на след преступника.Производство: Великобритания / Happy Hour Films, Happy Hour Productions, JCG Bits ProductionsЖанр: ужасы, триллерРежиссер: Ховард Дж. ФордАктеры: Эд Вествик, Эндрю П. Стивен, Наталья Цветкова, Лола Огуньеми, Рори Александр, Эндрю, Мицли Роуз, Энтони Офоэгбу, Наташа Скутка, Джо Урхарт и др.Перевод: Профессиональный двухголосый (ViruseProject | 18+)Язык озвучки: Русский, английскийСубтитры: английскиеПродолжительность: 01:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B0110FCF5C42D8C5633E78B137319A946B5BD88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653605   (115789) от 25.02.2024
+
+Солнечные противоположности / Solar Opposites (2023) WEB-DLRip [H.264/1080p-LQ] (сезон 4, серии 1-12 из 12) NewStation [AD]
+
+>>След.
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришельцы, спасаясь со своей умирающей планеты, потерпели крушение на Земле и теперь вынуждены прикидываться обычными людьми. Человеческая цивилизация вызывает у гостей из другого мира немало вопросов, и они никак не могут до конца решить, хорошая она или нет. Точно известно только одно: они должны защищать Пупу — живой суперкомпьютер, который однажды эволюционирует, (   Читать дальше...   )Производство: США, 20th Century Fox Television, Fox Television Animation, Justin Roiland's Solo Vanity Card Productions, Walt Disney Pictures and TelevisionЖанр: Для взрослых, комедия, фантастикаРежиссер: Майк МакМахан, Джастин РойландПеревод: Многоголосый профессиональный (NewStation) - присутствует ненормативная лексика.Субтитры: английские, испанскиеПродолжительность: ~00:23:00 серияРеклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE009482672AAC862D3960F9BF4F6E4EA2210A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701649   (115788) от 25.02.2024
+
+NCA: каждый пятый ребёнок в Британии – латентный киберпреступник
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115788.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недавнем отчёте Национального агентства по борьбе с преступностью Великобритании (NCA) раскрыта тревожная тенденция: каждый пятый ребёнок в возрасте от 10 до 16 лет участвует в онлайн-деятельности, нарушающей местный закон о злоупотреблении компьютерами.Отчёт выделяет несколько видов опасного онлайн-поведения. К ним относятся несанкционированный доступ к чужим (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700379   (115787) от 25.02.2024
+
+Ходячий замок / Ходячий замок Хаула / Hauru no Ugoku Shiro / Howl's Moving Castle (2004) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злая ведьма заточила 18-летнюю Софи в тело старухи. Девушка-бабушка бежит из города куда глаза глядят и встречает удивительный дом на ножках, где знакомится с могущественным волшебником Хаулом и демоном Кальцифером. Кальцифер должен служить Хаулу по договору, условия которого он не может разглашать. Девушка и демон решают помочь друг другу избавиться от злых чар.Производство: Япония / Studio Ghibli, Tokuma ShotenЖанр: аниме, мультфильм, фэнтези, мелодрама, приключенияРежиссер: Хаяо МиядзакиПеревод: Дублированный (Reanimedia)Субтитры: русскиеПродолжительность: 01:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C690D4BA2FEA5D8EA7C6788418DFE02BABAA9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692876   (115786) от 25.02.2024
+
+Heretic's Fork (2023) [Ru/Multi] (1.0.71/dlc) Scene Tenoke
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heretic's Fork представляет собой не вполне стандартный рогалик с двухмерной пиксельной графикой и видом сверху. Инди-проект скрещивает коллекционную карточную игру с башенной защитой. Действие происходит в преисподней. Там начали появляться дыры в пространстве, позволяющие перемещаться на Землю. Этим захотели воспользоваться еретики, чтобы сбежать в мир живых. Однако (   Читать дальше...   )Тип издания: SceneРазработчик: 9FingerGamesЖанр: Экшены, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49267F0FE52E7BE39B8BE24A6395B193C772488E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702570   (115785) от 25.02.2024
+
+Затерянные в Рио Браво / Taken from Rio Bravo (2024) WEBRip [H.265]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115785.jpg" />
+</div>
+
+
+###  Подробнее
+
+1874 год, Восточный Техас. Двое друзей преследуют группу садистов-торговцев людьми, которые похитили пять женщин. Вместе с индейским разведчиком они должны как можно быстрее найти и освободить женщин, пока торговцы не продали их в качестве секс-рабынь на мексиканской границе.Производство: США / Hollywood StormЖанр: боевик, вестернРежиссер: Джо КорнетАктеры: Александр Невский, Джо Корнет, Синтия Ротрок, Маттиас Хьюз, Дон Уилсон, Ирина Антоненко, Джон Мак, Джеймс Чок, Мария ПэрисПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A8D9B5A4D086BBA4B51FD704AE73AC2CF91E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701885   (115784) от 25.02.2024
+
+10 сказочных персонажей в разных экранизациях. Кто же лучше?
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115784.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последнее время на экраны вышло много новых версий знакомых нам с детства сказок. Вот только их герои выглядят уже совершенно по-другому. Некоторые из них и вовсе превратились в персонажей мрачного городского фэнтези. Взять хотя бы Бабу-ягу, которая устраивается работать няней и ворует детей, или Царевну-Лебедь, живущую в мире антиутопии.Василиса© Василиса Прекрасная (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702203   (115783) от 25.02.2024
+
+Солтберн / Saltburn (2023) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision, 10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115783.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 год. Невзрачный очкарик Оливер поступает в Оксфорд, где, не имея ни обаяния, ни денег, вынужден общаться только с таким же ботаном, как и он сам. Однажды Оливер случайно помогает, затем и заводит дружбу с однокурсником Феликсом — популярным красавцем из аристократической семьи. Растроганный рассказами о трудном детстве нового друга Феликс приглашает его на летние (   Читать дальше...   )Производство: Великобритания, США / LuckyChap Entertainment, Media Rights Capital, Metro-Goldwyn-Mayer (MGM)Жанр: ДрамаРежиссер: Эмиральд ФеннелАктеры: Барри Кеоган, Джейкоб Элорди, Арчи Мадекве, Розамунд Пайк, Элисон Оливер, Ричард Э. Грант, Кэри Маллиган, Сэди Совералл, Richie Cotterell, Милли КентПеревод: Многоголосый профессиональный (NewStudio - 18+)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английские (full, SDH)Продолжительность: 02:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFFE714F8F03F378E73759164CF12D0C65EE2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702287   (115782) от 25.02.2024
+
+Карающая длань / Red Right Hand (2024) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэш живет скромной и мирной жизнью, помогает мужу покойной сестры воспитывать племянницу Саванну и управляться с фермой в небольшом городишке в Аппалачах. Но когда Кошка, глава местной банды и садистка, начинает угрожать его семье, Кэш понимает, что готов на все ради их защиты. И чем дольше длится противостояние, затягивая Кэша в водоворот насилия, тем сильнее стирается (   Читать дальше...   )Производство: США / Asbury Park Productions, Studio 507, Sweet Tomato FilmsЖанр: Боевик, триллерРежиссер: Эшом Нелмс, Иэн НелмсАктеры: Орландо Блум, Энди Макдауэлл, Гаррет Диллахант, Брайан Джерати, Джеймс Лэфферти, Скотт Хейз, Джереми Рэчфорд, Александра Парк, Николас Логан, МоПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) отдельноПродолжительность: 01:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1843BDF10AA695EC200DE182FB3F25872B7D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702575   (115781) от 25.02.2024
+
+Вонка / Wonka (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтая открыть магазин в городе, известном своим шоколадом, молодой и бедный Вилли Вонка обнаруживает, что индустрией управляет картель жадных шоколатье.Производство: США, Великобритания, Канада / Heyday Films, Warner Bros.Жанр: Мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Пол КингАктеры: Тимоти Шаламе, Колин О’Брайэн, Кала Лэйн, Кигэн-Майкл Ки, Пэтерсон Джозеф, Мэтт Лукас, Мэтью Бэйнтон, Салли Хокинс, Роуэн Эткинсон, Оливия КолманПеревод: Дублированный (Bravo Records Georgia), Профессиональный многоголосый (LostFilm)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (2x Forced, Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: 01:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED4A8F5910C295A08586B231F5D7412E17AAFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529984   (115780) от 25.02.2024
+
+Besiege (2020) [Ru/Multi] (1.26-20573) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Besiege - это основанная на физике игра, в которой вы строите средневековые осадные орудия и разрушаете с их помощью огромные крепости и мирные деревушки. Создайте машину, способную сокрушать мельницы, стирать с лица земли батальоны доблестных солдат, а также перевозить ценные ресурсы. Защищайте свое изобретение от пушек, лучников и всего, что найдется в арсенале (   Читать дальше...   )Тип издания: LicenseРазработчик: Spiderling StudioЖанр: Симулятор, Стратегия, SandboxЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD857C408F1CE143DEE409F27341E35ACC2BCEF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

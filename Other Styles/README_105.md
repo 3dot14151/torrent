@@ -1,3 +1,151 @@
+###  Публикация: 545349   (482236) от 11.09.2012
+
+Иван Купала - Родина (2012) [MP3|320 кб/с]<folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482236.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Жито (4:19)
+2. Старый (4:39)
+3. Искорка (3:51)
+4. Стол (3:50)
+5. Коток (5:49)
+6. Балабай (3:37)
+7. Лося (5:04)
+8. Молодец (5:34)
+9. Гамелан (1:47)
+10. Родина (4:50)Жанр: folkПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C243FAFF0CDE4F093B14D36436D2CEAE0EB0738E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545834   (482234) от 11.09.2012
+
+VA - Mortal Kombat Soundtrack Compilation (1993-1999) [MP3|320 кб/с]<Techno, Eurodance, Industrial, Metal, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Techno, Eurodance, Industrial, Metal, InstrumentalПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7BC69F1D6AA05F42E0F73F1923108D268CDBC63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159804   (482115) от 21.08.2017
+
+The Sound Of Love - Closer to me (2017) [MP3|320 Kbps] <New age, Enigmatic, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Kiss 04:04
+02. Feel The Sun 04:05
+03. Mateja's Dream 04:11
+04. Better With You 04:02(   Читать дальше...   )Жанр: New age, Enigmatic, VocalПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B5732F794D2A72486785E1B56B044A975D7548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159747   (482107) от 21.08.2017
+
+Devakant - Earth And Sky (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night In The Mountains
+02. Standing Rock
+03. Nature Spirits
+04. Homage To The Whales(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9A6FAB74557F8BE962D39B8D76E02179AD05D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159749   (481864) от 21.08.2017
+
+Paul Mauriat - Penelope & Holidays (1972, 1973) Remastered 2017, Vocalion [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Penelope
+01. Penelope (L'eternel Retour)
+02. Melancholy Man
+03. La Bikina(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE66B9E5503B93FAE798E8315D9CEEE57630CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159842   (481859) от 21.08.2017
 
 Terry Oldfield - Temple Moon (2017) [MP3|320 Kbps] <New Age>
@@ -614,151 +762,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E43A409063FDB94126A254962D4897A432CB0761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320006   (477341) от 15.08.2019
-
-SPA & Wellness Massage Masters, Beauty Spa Music Collection, Zen Spa Music Experts - Massage Therapy Zen Spa Music 2019 [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477341.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Spa Music (3:56)
-2.Healing Water (3:36)
-3.Zen (3:27)
-4.Soothing Music (3:22)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA7F37318804B87AE30EF0B70EEECD89CEAA298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319928   (477192) от 15.08.2019
-
-The Soundtrack Studio Stars - Sounds of Tarantino (2014) [MP3|320 Kbps] <Soundtrack, OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bang Bang / My Baby Shot Me Down (from Kill Bill Vol. 1)
-02. Misirlou (from Pulp Fiction)
-03. Stuck In the Middle With You (from Reservoir Dogs)
-04. Who Did That to You (from Django Unchained)(   Читать дальше...   )Жанр: Soundtrack, OSTПродолжительность: 01:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6444A5F843F54ADF8AA7CEDAE9F2FFED16320618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567160   (476306) от 01.08.2022
-
-Art Of Noise - The Best Of The Art Of Noise - The Art Of Love (1992) [FLAC|Lossless|image + .cue] <Ambient, Experimental, Electronic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Art Of Love
-02. Opus Four 4
-03. Crusoe
-04. Island(   Читать дальше...   )Жанр: Ambient, Experimental, ElectronicПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A299B01B2345E24D15B4CE47DD771CAAD973D2E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 319910   (475882) от 01.08.2022
-
-Запрещенный прием (расширенный) - Sucker Punch (2011) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Official soundtrack:
-
-01. Emily Browning - Sweet Dreams (are made of this) (05:19)
-02. Björk feat. Skunk Anansie - Army Of Me (Sucker Punch Remix) (06:51)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FE9868030C705BFDDEAA2CC2AEFEF2263DB58E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245066   (475788) от 04.09.2018
-
-VA - Diamond Best Mood Tenor Sax Best (2CD)(2006) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening,Sax>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaoru Akimoto - Harlem Nocturne
-02. Kaoru Akimoto - Ronriwan
-03. Kaoru Akimoto - Mona Lisa
-04. Kaoru Akimoto - Stardust(   Читать дальше...   )Жанр: Instrumental, Easy listening,SaxПродолжительность: 01:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79C63406474FFE62FDFB41E6D3369C9387778BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

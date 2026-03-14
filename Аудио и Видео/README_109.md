@@ -1,3 +1,32 @@
+###  Публикация: 1531820   (718876) от 17.02.2022
+
+VA - Deep-House Fashion Grooves Milano (2022) [AAC|~319 Kbps] <House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mojito Groove - Gone (Original Mix) (3:54)
+02. Dee Drop - Screen (Triangle Soul Mix) (3:11)
+03. NJ Producer - First Avenue and First Street (Original Mix) (7:40)
+04. Sander Goldmann - Last Night (Original Mix) (3:18)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21899169AD304CD5275CAB14E424243310ED5C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531957   (718873) от 17.02.2022
 
 VA - Chill & Flowers: Chillout Your Mind (2022) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
@@ -668,35 +697,6 @@ VA - Iconic Lounge (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:608F87C340DD8FEE95BAF41C7670EEEA1884A9CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532229   (716760) от 18.02.2022
-
-VA - Lounge Jazz in Rio De Janeiro (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zeb - Brazilenco (5:40)
-02. Gazzara - Rhodes to Bahia (5:49)
-03. LTJ XPerience - Sombre Guitar (2Gether Project Trumpet Take) (6:12)
-04. DJ Rodriguez - Peter Pan's Syndrome (5:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C21B71CECAB36A8D946C3A196F970D027C6583
 ```
 
 https://mybot314.ru/tekegram_catalog/

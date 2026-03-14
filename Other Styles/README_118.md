@@ -1,3 +1,154 @@
+###  Публикация: 1173031   (391239) от 10.10.2017
+
+Medwyn Goodall - Medicine Woman 6: Synchronicity (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391239.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Synchronicity (8:08)
+2.  Second Chances (9:02)
+3.  Making Magic (7:58)
+4.  The Beginning of All Beginnings (6:52)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A215E550E28A8705BA61CC04B4FAD4B590C91F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172627   (391230) от 10.10.2017
+
+Meldis - Грани Миров (2013) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cad e sin don te sin (3:00)
+02. Amazing Blues (2:32)
+03. Coming Around (4:13)
+04. Trotto (1:26)(   Читать дальше...   )Жанр: Folk, Celtic HarpПродолжительность: 00:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E758BC1859767CBA097215E4D2ACC8C9A63107A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172482   (391153) от 10.10.2017
+
+VA - Latino Hits Power (2017) [MP3|320 Kbps] <Latin Music, Reggaeton>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alvaro (Los Principales) – Pa Fiesta 00:04:22
+02. Pi Lawton – SMS Salvaje 00:04:14
+03. Los 3 Gatos – Vamos a Jamarnos 00:03:30
+04. Dany – No Te Enganches 00:03:38(   Читать дальше...   )Жанр: Latin Music, ReggaetonПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836B667543288A1A2C2D0A96D90BACB1504B2AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173066   (391149) от 10.10.2017
+
+Medwyn Goodall - Medicine Woman (The Lost Tracks) (2017) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calling Down the Rain 07.59
+02. Temples in the Sun 16.00
+03. Mayan Kingdom 16.03
+04. By The Water Hole 10.00(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3327C6CB81C3B91F1A0518B84719A601DEEC5910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569372   (390696) от 04.11.2012
+
+Lorne Balfe - Assassin's Creed 3 (2012) [MP3|320 кб/с]<Game OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Assassin's Creed III Main Theme
+02 An Uncertain Present
+03 Escape in Style
+04 Welcome to Boston
+05 Freedom Fighter
+06 A Bitter Truth
+07 Through the Frontier
+08 Connor's Life
+09 Trouble in Town
+10 Farewell(   Читать дальше...   )Жанр: Game OSTПродолжительность: 01:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A539947364D110B65BE86B7CAB7566FA830B2B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569559   (390602) от 04.11.2012
 
 Need for Speed Most Wanted  (2012) [MP3|320 кб/с]<Score>
@@ -604,157 +755,6 @@ Paul Mauriat - The Ultimate Paul Mauriat (2013), (3CD) [OGG Vorbis|485 Kbps] <Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F426B14B04B9476B79D4B9CE68FB7B09F967306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414579   (383305) от 09.10.2020
-
-Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Darkwave, Synthwave, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383305.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:36] 01. Intro
-[03:21] 02. Blood Machines Theme
-[03:19] 03. Attack Of The Amazons
-[02:24] 04. The Ceremony(   Читать дальше...   )Жанр: Darkwave, Synthwave, SoundtrackПродолжительность: 00:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61F5EE09EE4177150AA268BCC8021DE937BD98C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175007   (383003) от 16.10.2017
-
-Немного Нервно - Сны о Земле. Глава 4 (2017) [MP3|320 Kbps] <Folk, Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383003.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Микеланджело
-2. Ритуал
-3. Витражи
-4. Santa Maria(   Читать дальше...   )Жанр: Folk, Folk RockПродолжительность: 00:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576BD06B45BEB90F2B4B51DC707D6644616483FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068093   (382955) от 31.10.2016
-
-Dominique German - God's Peace (2016) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Dance [00:04:57]
-02. Quiet Time [00:07:05]
-03. Peaceful Place [00:06:00]
-04. Peace Within [00:05:34](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B95F51CE9FBEBA8346DE95873F39B97A1567FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 250572   (382578) от 27.10.2010
-
-VA - The Worlds Most Beautiful Flute Music. Instrumental Dreams (2004) [MP3|320 кб/с]<New age, Instrumental, Flute>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382578.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:26) 01. East Wind Associates - Wooden Ship
-(2:27) 02. Djivan Gasparyan - Ask Me No Questions
-(2:05) 03. J. Loman, N. Schulman - Gymnopedie #2
-(3:49) 04. Spotted Eagle - In Sunrise I Walk
-(4:13) 05. Richard Warner - Tao
-(4:12) 06. Joanie Madden - Women of Ireland
-(2:45) 07. Kay Gardner - Lydian Dreams
-(1:55) 08. Ensemble Villa Musica - Adagio from Flute Quartet in D
-(4:10) 09. Omar Faruk Tekbilek - Moment of Doubt
-(3:20) 10. Riley Lee - Melting Snow(   Читать дальше...   )Жанр: New age, Instrumental, FluteПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421FBFDB7B6E009E4CAAA0C47D2E605C7C23696E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253593   (381765) от 10.10.2018
-
-Constance Demby - Sonic Immersion (1996) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chakra #1 (07:35)
-02. Chakra #2 (06:30)
-03. Chakra #3 (05:28)
-04. Chakra #4 (05:27)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E2B4D0B6847C10BBCD3367004B2981A2C63447
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,88 @@
+###  Публикация: 507008   (686136) от 07.06.2012
+
+Butterfly Temple - 3 альбома-1 сингл (2009-2011) [MP3|320 кб/с]<Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 2009-20111. Смерть дана одна на всех (5:48)
+ 2. Солнцестояние (4:41)Жанр: Pagan MetalПродолжительность: 00:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC2C3DDA878702D751733D1DC324DA9D45A9E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134993   (684979) от 17.05.2017
+
+Jack Action - Atmosphera (2016) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Соверши побег
+02. Х-радио
+03. Во что ты играешь?
+04. Метеорит(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03F0EBDE875E0311A0CEAF63AB6A9A8E35AFA87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134912   (684589) от 17.05.2017
+
+КРОУ - Наверх (2017) [MP3|320 Kbps] <Alternative Metal, Industrial, Rap Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наверх
+02. Живой
+03. Немножко влюблённая
+04. Догма(   Читать дальше...   )Жанр: Alternative Metal, Industrial, Rap MetalПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE2C27EB4A1C14498C8C194AB1CC3FF193DD19E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404116   (684002) от 23.08.2020
 
 КняZz - Домашний альбом (2020) [MP3|320 Kbps] <Rock, Punk Rock, Horror Punk>
@@ -676,93 +761,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:603DC15AC8B0054021FC6746AE0B40AD4678A9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537602   (666471) от 17.03.2022
-
-Radio Tapok - Наследие (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666471.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Цусима
-2. Высота 776
-3. Жизнь за царя
-4. Операция "союзная сила"(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0727AD0C1244FDA2AB2C50246D04C45CD2DB8BB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900448   (666356) от 23.05.2015
-
-СерьГа - Чистота (2015) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время готовить костёр
-02. Хоровод
-03. Ромео и Джульетта
-04. Чистота(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BEC56D469D0D98E216AA23A644123432D575642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224544   (665999) от 10.05.2018
-
-Аффинаж - Комната с личными вещами (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не обижайся, пожалуйста
-02. Напрасная обида
-03. Комната с личными вещами
-04. Ветер, верни!(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99794B619EEE760D4648ABC6549FEA2D371D9770
 ```
 
 https://mybot314.ru/tekegram_catalog/

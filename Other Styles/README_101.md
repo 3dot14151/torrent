@@ -1,3 +1,154 @@
+###  Публикация: 932772   (508242) от 30.08.2015
+
+Phildel - Qi (2015) [MP3|320 кб/с]<Piano, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice-Float
+02. Icarus
+03. Dragonfly Keeper
+04. Winter Valley(   Читать дальше...   )Жанр: Piano, New AgeПродолжительность: 00:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D594D4419E9FB05B193C5D1A6692B5D3746BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932471   (508231) от 30.08.2015
+
+Shooglenifty - The Untied Knot (2015) [OGG| 462-531 кб/с]<World, Folk Rock, Celtic Fusion>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Untied Knot | The Fall | Mile Marbhaisg Air A' Ghaol
+02. The Scorpian | The Devil's Breath Hornpipe
+03. Samhla Reel | Scolpaig
+04. Somebody's Welcome To Somewhere(   Читать дальше...   )Жанр: World, Folk Rock, Celtic FusionПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD935525C7E75128C7BC60AF541AD5CB1AA44F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932461   (508047) от 30.08.2015
+
+Francisco Canaro - Tango Collection (2010) [MP3|192 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Poema
+02 - Golondrinas
+03 - Cambalache
+04 - No Hay Que Hacerse Mala Sangre(   Читать дальше...   )Жанр: TangoПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F21341C1039622A539146BB1CA4A7FB7923EE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 231813   (507943) от 01.09.2010
+
+Paco De Lucia - 38 albums (1965 - 2005) [MP3|160-320 kbps]<Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507943.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:14) 01. Zyryab Melodia del Puente de J.A. Amargos
+(3:20) 02. Guajiras de Lucia
+(3:09) 03. Cobre Sevillanas
+(4:51) 04. Monasterio de Sal Coluombianas
+(4:17) 05. Cana de Azucar
+(3:24) 06. Barrio la Vina Alegrias
+(5:02) 07. Tio Sabas Homenaje A Sabicas
+(4:35) 08. La Barrosa Alegrias
+(5:42) 09. La Cueva del Gato Rondena
+(4:41) 10. Chiquito(   Читать дальше...   )Жанр: FlamencoПродолжительность: 01:57:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932731   (507889) от 30.08.2015
+
+Jean-Michel Jarre - Essential Recollection (2015) [FLAC|Lossless|WEB-DL]<Ambient, New-age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene, Pt. 2
+02. Arpegiateur (Live)
+03. Oxygene, Pt. 4
+04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9822F81DFA15733D0D63BA11511E8A87E5EDFDC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538488   (507582) от 25.08.2012
 
 VA - Cafe del Mar Recommends Music For Dreams (2010) [MP3|320 кб/с]<Lounge, Chillout>
@@ -665,148 +816,6 @@ Valefim Planet - India (2015) [MP3|192 Kbps] <New age, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1460CDE8A281209113D1AA3353F5C13019D687DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317163   (502503) от 30.07.2019
-
-David Osborne - What the World Needs Now (2019) [MP3|320 Kbps] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Look of Love
-02 What the World Needs Now
-03 (They Long to Be) Close to You
-04 Arthur's Theme (Best That You Can Do)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62381C0CD012CC88C0D4926E942AC7ED63B8414D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379841   (502072) от 25.08.2011
-
-Gheorghe Zamfir - 2 альбома (1986, 1991) [MP3|320 kbps] <Instrumental, Pan Flute>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гео́рге Замфи́р (рум. Gheorghe Zamfir,01. Only Love 			(05:04)
-02. Elvira Madigan 		(05:15)
-03. Themanuel 			(04:31)
-04. Cent Mille Chansons 	(04:50)(   Читать дальше...   )Жанр: Instrumental, Pan FluteПродолжительность: 02:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DB00697B861CC9C72BCB9C2F7C6220FE7E91DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379933   (501945) от 25.08.2011
-
-Pakarina - Melodies of the heart (2011) [FLAC|Lossless]<Instrumental | Pan Flute>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental | Pan FluteПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317259   (501384) от 31.07.2019
-
-David Osborne - What the World Needs Now: A Piano Tribute to Burt Bacharach (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Look of Love (3:34)
- 02. What the World Needs Now (2:48)
- 03. (They Long to Be) Close to You (2:50)
- 04. Arthur's Theme (Best That You Can Do) (4:32)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97903AD36F42BA05A302650FFB401E5AE1CAA81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317235   (501367) от 31.07.2019
-
-Christopher Phillips - Piano Chill: Songs of the Beatles (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Loving (2:54)
- 02. Here Comes the Sun (3:01)
- 03. Yesterday (2:31)
- 04. Here, There and Everywhere (2:27)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D50353DFAE0B2AE86EE18D210ECC8BEE87D46F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

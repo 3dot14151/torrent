@@ -1,3 +1,32 @@
+###  Публикация: 989819   (915827) от 23.02.2016
+
+VA - House Nation Volume 5 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foamo feat. Lotti - Release Me (05:52)
+02. Kastra - Placebo (04:06)
+03. Reece Low - Rompa Stomp (06:08)
+04. Showtek feat. MC Ambush - 90's By Nature (04:02)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F5FFB379357DFE160EB4807D1F7DEFBCBEEDD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989615   (915689) от 23.02.2016
 
 VA - TOP Non-Stop 2010-2015 - Lounge & Chillout [vol.4] (2010-2015) [MP3|320 кб/с] <Ambient, Lounge, House>
@@ -716,35 +745,6 @@ VA - The January Club and Dance Music (2017) [MP3|320 Kbps] <House, Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BCAC4DBB9401D6D59050850AF666A71AD98D95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990769   (909937) от 26.02.2016
-
-VA - Winter Fragment: Relax Party (2016) [MP3|320 кб/с] <Chillout, Lounge, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909937.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelika - My Surreal Dream (Ambient Mix) 02:41
-002. Ferry Corsten Feat. Temperheart - Not Alone (Chill Version) 04:51
-003. Moonnight Feat. Natune - I Need A New Love 03:44
-004. Dreamman Feat. York - Moonrise On The Beach 07:45(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 10:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AFECB473D536BFF686A1338B2063DF07593FAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

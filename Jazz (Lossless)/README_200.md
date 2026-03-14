@@ -1,3 +1,89 @@
+###  Публикация: 949558   (377705) от 23.10.2015
+
+Virgil Gonsalves Sextet & Steve White Quartet / Quintet - Jazz In Hollywood Series (1954) /1997, Nocturne Records/[FLAC|tracks+.cue]<Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bounce [03:18]
+ 02.Out Of Nowhere [02:31]
+ 03.Too Marvelous For Words [04:07]
+ 04.It Might As Well Be Spring [03:57](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229F4C819C4671D729F37E327FDF0ACC06B1E29E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949409   (377695) от 23.10.2015
+
+The John Coltrane Quartet - Africa/Brass (1961) /2007, Verve/[FLAC|tracks+.cue]<Hard Bop, Post-Bop, Modal Music>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Africa [16:29]
+ 02.Greensleeves [10:01]
+ 03.Blues Minor [07:23]Жанр: Hard Bop, Post-Bop, Modal MusicПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72478B9FAE4720D99BB6CE943C88A7443DAF7369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254095   (377630) от 12.10.2018
+
+The Four Freshmen - Day By Day (1962) 1994, Hindsight Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day by Day [1:57]
+02. Lulu's Back in Town [2:12]
+03. Polka Dots and Moonbeams [2:41]
+04. Teach Me Tonight [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB89211B1EB43B575D9C63A3A9D609EB2DE258CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254164   (377629) от 12.10.2018
 
 Sainkho / Ned Rothenberg - Amulet (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Free Improvisation>
@@ -666,93 +752,6 @@ Ernestine Anderson - Now And Then (1993) Qwest Records [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:813A9853CDD55018C7BE66583E9B426AE7913CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415697   (374406) от 13.10.2020
-
-Mingus Amungus - Live in Cuba (1997) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Landing (0:08)
-02. Slop (7:12)
-03. Voodoo Duty (7:33)
-04. Ogun (1:04)(   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Latin JazzПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFCDA03F7B7239647B0EAFD331117A22A91EBA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415678   (374298) от 13.10.2020
-
-Arthur Verocai - Saudade Demais (2002) [FLAC|Lossless|tracks + .cue] <MPB, Bossa Nova, Samba>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verao a Toa (5:00)
-02. Isabel Tchau (4:24)
-03. Madrugada (2:53)
-04. Sem Thereza (4:05)(   Читать дальше...   )Жанр: MPB, Bossa Nova, SambaПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AACD7DF487915B7A735AFA1C02CA8EC1B52AFA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069450   (374166) от 04.11.2016
-
-Michael Blake - Tiddy Boom (2014) Sunnyside Communications[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Skinny Dip [05:00]
- 02.Tiddy Boom [05:34]
- 03.Hawk's Last Rumba [06:20]
- 04.Boogaloop [03:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:367970508B651EA8F1962BC896FDDDBB3F2DB646
 ```
 
 https://mybot314.ru/tekegram_catalog/

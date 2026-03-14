@@ -1,3 +1,119 @@
+###  Публикация: 1319188   (177798) от 06.10.2023
+
+Игорь Тальков - Навсегда (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солнце уходит на Запад
+02. Война
+03. Стоп! Думаю себе
+04. Россия(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA055BF15DF1DD31930B4F60AD90124BCF337410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667196   (177613) от 07.10.2023
+
+Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177613.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Nth
+A2 - Esp Ion Age
+A3 - Husk
+A4 - Phreqs(   Читать дальше...   )Жанр: Experimental Death MetalПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415153   (177080) от 02.12.2022
+
+Strawbs - Ghosts (1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177080.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1a Sweet Dreams (Ghosts)
+A1b Night Light (Ghosts)
+A1c Guardian Angel (Ghosts)
+A2 Lemon Pie(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E3B0F168FE5E6E8835206CDAC244C27EA38642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667431   (177006) от 08.10.2023
+
+Kate Smith - Today (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_177006.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Somewhere, My Love
+A2 Yesterday
+A3 My Best Beau (My Best Girl)
+A4 Daydream(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2A6BDD35F966321D66D3B0DC8487AD783665D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667428   (176509) от 08.10.2023
 
 Мираж - Снова Вместе (Черновик) (1988-1989) hand made, remastered [FLAC|44/16|tracks|MB-Rip] <Pop, Dance, Disco>
@@ -622,122 +738,6 @@ A3 Ut I Vannets Dyp Hvor Morket Hviler(   Читать дальше...   )Жан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEB7A67230D97F07FF5E23B6F1CAC4671B51BD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669644   (172673) от 17.10.2023
-
-Sieges Even - Life Cycle (1988) Reissue, 2022, Golden Core [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172673.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Repression And Resistance
-A2 Life Cycle
-A3 Apocalyptic Disposition
-A4 The Roads To Iliad (Instrumental)(   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9ECF181107B420F04BB08026294B065A36FCAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669476   (172644) от 17.10.2023
-
-Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipped] <Indie Rock, Dream Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172644.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Takedown (00:03:33)
-✧ 02 - Summer Slaughter (00:04:04)
-✧ 03 - Bianca (00:04:12)
-✧ 04 - Bone Dry Dunes (00:03:23)(   Читать дальше...   )Жанр: Indie Rock, Dream PopФормат: PCM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0EF62DE8E88FA13753CA465DF20F32333DA12F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598626   (172602) от 17.10.2023
-
-Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ронни Аткинс (имя при рождении - Пол Кристенсен, 16 ноября 1964 года) - датский певец, наиболее известный как соучредитель, ведущий вокалист и основной автор песен хэви-метал группы Pretty Maids2021 - One Shot
-2021 - 4 More Shots (The Acoustics) (EP)
-2022 - Make It Count
-2023 - TrinityЖанр: Hard Rock, Heavy MetalПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D67D9705AEE695FE8DEBAE596892AD2401AAE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669555   (172592) от 17.10.2023
-
-Guns N' Roses - Studio Albums (4 releases) (1991-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Guns N’ Roses — американская хард-рок-группа, сформировавшаяся в 1985 году в Лос-Анджелесе, штат Калифорния.1991 - Use Your Illusion I
-1991 - Use Your Illusion II
-1993 - The Spaghetti Incident
-2008 - Chinese DemocracyЖанр: Hard Rock, Heavy MetalПродолжительность: 00:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B782358CD196C28E1086295ACB91B7C98B18E967
 ```
 
 https://mybot314.ru/tekegram_catalog/

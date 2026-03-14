@@ -1,3 +1,31 @@
+###  Публикация: 957550   (326724) от 18.11.2015
+
+Megadeth - Fatal Illusion (2015) Single [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fatal Illusion
+02. Symphony Of Destruction (Live)
+03. Peace Sells (Live)Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FE7FD15F1E20E6174FC986636B7294143CEB46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581759   (326407) от 06.10.2022
 
 Borealis - Illusions (2022) [MP3|320 Kbps] <Melodic Power Metal>
@@ -716,35 +744,6 @@ White Magician - Dealers of Divinity (2020) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A78FCBD0AD712465D1E68749DFB043DDA7141389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421728   (315519) от 06.11.2020
-
-Lucid Dreaming - The Chronicles, Pt. III (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (03:48)
- 02. Open Wide the Gate (09:43)
- 03. Born from the River (06:58)
- 04. The Free Commots (03:53)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97104C56F1847E13F8409D7CFD422ED47B4E10A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

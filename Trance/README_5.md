@@ -1,3 +1,154 @@
+###  Публикация: 1351820   (1001885) от 11.01.2020
+
+VA - Dream Dance Vol.88 (2020) [MP3|320 Kbps] <Trance, Progressive House, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001885.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dream Dance Alliance - Save Me From Myself (Edit) 3:06
+02. Armin van Buuren feat. Ne-Yo - Unlove You (Club Mix) 2:43
+03. ATB feat. KARRA - The Only One (Short Edit) 3:55(   Читать дальше...   )Жанр: Trance, Progressive House, Vocal TranceПродолжительность: 03:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C093434B1C295BCC84AECB62E88B7A86133993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610746   (990578) от 29.01.2013
+
+VA - Wave of Trance Vol.1 (2013) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Romashkin - The Neighbors - Vadim Miner Intro Remix
+02. Vasiliy GooDKov - Feel - Original Mix
+03. 3rd Planet - UFO Here - Original Mix
+04. S.Y.N.E.R.G.Y. - Invisible Flight - Original Mix
+05. Mixail - Mysterious Window - Original Mix
+06. John Dubs - Why We Hurry - 1Touch Remix
+07. Eugene Diveev - Sometimes Music Stops - Original Mix
+08. Fashion Beat - Time So Slow - JMV Club Mix
+09. Teana and Tiida - Coral Reef - Original Mix
+10. Eximinds featuring Aelyn - Fairy Tale - Chance Jumpers pres. nu Okkerville Remix(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E52BF0AAB996B902B979920D22697D156131D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355163   (984915) от 25.01.2020
+
+VA - Black Hole Trance Music 01-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Nickson - Blue Encounter (Extended Mix) 8:01
+02. Obie Fernandez - So Far Away (Extended Mix) 6:28
+03. Markus Schulz - Sunrise Over The Bay (Extended Mix) 6:39
+04. Somna - Never Feel Lost (Extended Mix) 6:31(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveTranceПродолжительность: 02:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F12C4CF76234DC89601C34FD1670253E6952113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359427   (963270) от 13.02.2020
+
+VA - Defragmentation (Mixed by DJ Бинокль) (2008) [MP3|320 Kbps] <Trance, Progressive, Deep House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pavliga - Reptile (Original Mix) (6:25)
+02. Neshproject - MTR (Gallen & Prozac 303 Remix) (5:19)
+03. Sergio Fernandez - Space Salt (Ismael Rivas Remix) (6:23)
+04. Pablo Briales & Ruben Cano - Monfrague (Original Mix) (4:37)(   Читать дальше...   )Жанр: Trance, Progressive, Deep HouseПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33385B07745114DB4DC35087B7D5FDE106595E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359431   (963222) от 13.02.2020
+
+DJ Иван Ионов - Soundcheck - Summer Non Stop (2005) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (6:39)
+02. Untitled (5:54)
+03. Untitled (4:43)
+04. Untitled (7:23)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606AC6F4FBBDB264309850F31EAD9B285E2BEC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359432   (963213) от 13.02.2020
 
 VA - Dreaming - Mixed by Dj Anna Lee (2007) [MP3|320 Kbps] <Trance>
@@ -603,149 +754,6 @@ VA - Total Trance Selections  Vol.02 (2017) [MP3|320 Kbps] <Trance, Uplifting Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A78616AF925020FA5F72252BCCB887D7249168C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365125   (932240) от 06.03.2020
-
-VA - Trance Inside, Vol. 4 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Groove feat. Sam Vince - The Knot (Omniks Edit) [03:44]
-02. Fischer and Miethig - We Only Live Once (Mindsoundscapes Radio Edit) [03:18]
-03. Manida - Always Alone (Radio Cut) [03:33]
-04. Philip Mayer - Okobogee (Radio Edit) [03:12](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB771BE2032C602B4037EBD2297D4E4DE8045AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755839   (926944) от 11.02.2014
-
-Jonas Stenberg - Overworld (2014) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926944.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Overworld (Original Mix) 07:48
-2. Overworld (Alexander Popov Mix) 06:16Жанр: Trance, Progressive TranceПродолжительность: 00:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC215CABDFD58D8A03638EFE5C89E7A81FC28846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095591   (922879) от 22.01.2017
-
-VA - Redux Presents: The Uplifting Selection Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  UDM - Omega (Extended Mix)  6:10
-02.  TrancEye - Yearning (Original Mix)  7:10
-03.  Symon & Jay - Aerify (Extended Mix)  6:57
-04.  Asteroid - Gravitation (Extended Mix)  6:44(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3E0C93CF32B1FFB82ABC2F136541127ECC630F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988060   (922878) от 19.02.2016
-
-VA - Recoverworld Radio 005 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rich Smith & Kimberly Hale - When the Sun Comes Up (6:53)
-02. Para X - Love Train (Janina T Remix) (7:06)
-03. Almar & Danny Stubbs - Midnight Sun (7:13)
-04. Para X - Love Train (6:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6618C2B2F1D421D1F6C473F70C9CA1E44C392A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095784   (922764) от 22.01.2017
-
-VA - Aria Selections Class Of 2016 (Mixed by David Forbes) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Maig Shaw - Odyssey (Original Mix)  6:21
-02.  Richard Lowe - Lakeside (Original Mix)  6:26
-03.  Denzo - Acid Burn (Original Mix)  8:02
-04.  Liam Melly - Dropzone (Original Mix)  7:20(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F086BFC0848F567FECD3BD4C1CA71C68EA6B7A90
 ```
 
 https://mybot314.ru/tekegram_catalog/

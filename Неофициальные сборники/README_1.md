@@ -1,3 +1,90 @@
+###  Публикация: 1854000   (1056960) от 15.02.2026
+
+VA - No name compilation part 50 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Vocal, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dndm - I Love Strong
+02 - Rodle - Love in the Dark
+03 - Umideep - Don’t Slow
+04 - Dova Music - In Your Shadow(   Читать дальше...   )Жанр: Electronic, Vocal, EurodanceПродолжительность: 02:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DEB99D9663006518DCE1218581548ECD388544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853658   (1056629) от 14.02.2026
+
+VA - ЕвроХит Топ 40 Europa Plus 13.02.2026 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - The Fate Of Ophelia (2:55)
+02. David Guetta & Teddy Swims & Tones & I - Gone Gone Gone (3:18)
+03. Haven. - I Run (2:09)
+04. Katseye - Gabriela (3:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7058C76F3FD86FBB0AE66ED46BEFBBA7B2A942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852658   (1056305) от 10.02.2026
+
+ABBA best (1973-1981) [MP3|320 Kbps] <Еlectronic, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056305.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:20] . 01-He Is Your Brother
+[2:46] . 02-She's My Kind Of Girl
+[2:47] . 03-Waterloo
+[3:16] . 04-My Mama Said(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 02:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CF57ECBD57C0ECB0E02746FE2B3A1C3D57211B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852965   (1056283) от 10.02.2026
 
 Агата Кристи & Братья Самойловы - Compilation (1988-2025) [MP3|320 Kbps] <Alternative, Gothic rock, Art rock>
@@ -658,93 +745,6 @@ VA - Sensual Dark Blues (2026) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D2766511E51D1CF64B931F1A66E7AF92A79EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851072   (1054771) от 31.01.2026
-
-Booker T. & the M.G.'s - Super Collection (2026) [MP3|320 Kbps] <R'B, Soul, Jazz Funk>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Onions [02:54]
-02. My Sweet Potato [02:47]
-03. Hip Hug-Her [02:25]
-04. Jericho [02:38](   Читать дальше...   )Жанр: R''B, Soul, Jazz FunkПродолжительность: 04:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443D1451824B244EC1BC409883F1AE4E0DF7F0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850772   (1054622) от 30.01.2026
-
-VA - Yello & Dieter Meier & Boris Blank best (1980-2024) [MP3|320 Kbps] <electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054622.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:53] . 001-Night Flanger
-[4:17] . 002-Eternal Legs
-[2:12] . 003-Bostich
-[5:25] . 004-Blue Green(   Читать дальше...   )Жанр: electronicПродолжительность: 07:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EB4C14D706289674F648F28EC92C09C223F0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850791   (1054605) от 30.01.2026
-
-VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054605.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:44]. 001-7Б - По дорогам ветра
-[3:29]. 002-Сурганова и Оркестр - Коктейль
-[4:01]. 003-Вис Виталис - Рыбы в холодной воде
-[3:11]. 004-Инкогнито - Крутим диски(   Читать дальше...   )Жанр: rockПродолжительность: 11:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089EC6BD2CE8097B5DAAFCD29B09374067741A2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,142 @@
+###  Публикация: 932237   (509851) от 28.08.2015
+
+Recovery USB-flash for Acer Aspire E5-521 / Windows 8.1 (х64) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509851.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Acer_E5_521_W81.tib
+записанной на ноутбуке Acer Aspire E5-521-43J1  (NX.MLFER.026) с помощью программы Acer Recovery Management.
+Образ флешки создан программой Acronis True Image Home 2013.
+Служит для восстановления ноутбука к заводским настройкамЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF5D8E82418151343A2DBCD7EF9DB3016A8EB1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932480   (508803) от 29.08.2015
+
+Recovery USB-flash for Asus T100TAM / Windows 8.1 with Bing (х86) 6.3 (сборка 9600) [Ru/En]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ раздела восстановления для ноутбуков-трансформеров ASUS T100TAM.
+
+Снят с модели T100TAM-DK013B (32 gb + 500 gb; OS 8.1 with bing), но без проблем разворачивается на T100TAM-DK016B (64Гб).
+Позволяет восстановить заводское состояние ноутбука данной модели, после утраты встроенного раздела восстановления, либо по иным причинам.(   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947608F251A560F94C5AFC7C6A28EB88C0C640D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932549   (508762) от 29.08.2015
+
+Recovery USB-flash for Acer One 10 S1002 / Windows 8.1 (х86) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508762.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Acer_One_S1002_W81.tib
+записаннoй на планшете (трансформере) Acer One 10 S1002-17R4 (NT.G53ER.002), программой Recovery Manegment.
+Образ флешки создан программой Acronis True Image Home 2013
+Служит для восстановления планшета к заводским настройкамЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E5B6987D0B6E2A61C1F98A420C0A20A0B790DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540578   (502968) от 29.08.2012
+
+Microsoft Windows Server 2012 (Volume) + Языковые пакеты (x64) [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2012 (кодовое имя «Windows Server 8») - версия серверной операционной системы от Microsoft, разработка которой в настоящее время завершена. Она принадлежит семейству ОС Microsoft Windows. Эта серверная операционная система должна заменить выпускаемую в настоящее время Windows Server 2008 R2. Windows Server 2012 будет первой версией Windows Server начиная (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564426   (500262) от 18.07.2022
+
+Windows 7 Professional VL SP1 x86 (build 6.1.7601.26022) by ivandubskoj 14.07.2022 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 7
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская сборка Windows 7 Профессиональная VL SP1 (x86), с интегрированными обновлениями, отключенной телеметрией и минимальным набором необходимых драйверов и ПО.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA098504A43F1DD147ED83CEAA07ACC711CA4E2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564658   (499588) от 19.07.2022
 
 Microsoft Windows 10.0.19043.1826, Version 21H1 (Updated July 2022) - Оригинальные образы от Microsoft MSDN [En]
@@ -561,143 +700,6 @@ Windows 11 - это серия операционных систем, разра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ED7947A771475ED69E13D4CD3825426FB1D16AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570326   (442092) от 17.08.2022
-
-Microsoft Windows 10.0.19044.1889, Version 21H2 (Updated August 2022)  - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
-
-Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1889.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F22AD56C8E9051BAB6A2705CE995FDC6716763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322747   (439171) от 02.09.2019
-
-Microsoft Windows 10.0.18362.295 Version 1903 (August 2019 Update) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.295 (Updated August 2019).
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780E59D8EA62F569EE3381CD24E65EB99F358F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250210   (426127) от 27.09.2018
-
-Microsoft Windows 10 10.0.17763.1 Version 1809 (October 2018 Update) - Оригинальные ESD образы от Microsoft [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 (версия 1809) - следующее крупное обновление функций, которое выйдет в в начале октября 2018 года под официальным названием Windows 10 October 2018 Update, это его подписанная RTM версия которая скорее всего и станет финальной ориентировочно 2 октябряЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAEF79F82FB2C848DC34F484C7819D21116AE7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 146475   (420496) от 16.10.2009
-
-Windows Vista Ultimate SP2 by IDimm v.05 [русский]
-
->>ОС Windows
->>Сборки Windows Vista
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_420496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из сборки удалено:Драйверы для видеоадаптеров - всё равно свои ставить.
-Драйверы для принтеров - Удалены все дрова, кроме дров для Canon, Epson, HP, Samsung, Xerox и общих
-Windows Media Center - Мне он не нужен, а вам?
-ДВД-студия Windows - Есть более “крутые” программы для работы с видео.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709908   (420423) от 12.10.2013
-
-Microsoft Windows Server 2012 R2 RTM by W.Z.T [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server 2012 R2 - это проверенная масштабируемая платформа корпоративного класса для облачных сред и центров обработки данных, на которой можно разместить самые ресурсоемкие рабочие нагрузки и использовать широкие возможности восстановления для защиты от перебоев в обслуживании. Это позволяет ускорить процесс получения прибыли за счет упрощения основной инфраструктуры, (   Читать дальше...   )Язык интерфейса: Eng
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350FD967DFD26BEC5849B53919EB8D9B73A69CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

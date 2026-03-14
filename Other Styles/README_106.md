@@ -1,3 +1,148 @@
+###  Публикация: 1320006   (477341) от 15.08.2019
+
+SPA & Wellness Massage Masters, Beauty Spa Music Collection, Zen Spa Music Experts - Massage Therapy Zen Spa Music 2019 [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477341.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Spa Music (3:56)
+2.Healing Water (3:36)
+3.Zen (3:27)
+4.Soothing Music (3:22)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA7F37318804B87AE30EF0B70EEECD89CEAA298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319928   (477192) от 15.08.2019
+
+The Soundtrack Studio Stars - Sounds of Tarantino (2014) [MP3|320 Kbps] <Soundtrack, OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bang Bang / My Baby Shot Me Down (from Kill Bill Vol. 1)
+02. Misirlou (from Pulp Fiction)
+03. Stuck In the Middle With You (from Reservoir Dogs)
+04. Who Did That to You (from Django Unchained)(   Читать дальше...   )Жанр: Soundtrack, OSTПродолжительность: 01:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6444A5F843F54ADF8AA7CEDAE9F2FFED16320618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567160   (476306) от 01.08.2022
+
+Art Of Noise - The Best Of The Art Of Noise - The Art Of Love (1992) [FLAC|Lossless|image + .cue] <Ambient, Experimental, Electronic>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Art Of Love
+02. Opus Four 4
+03. Crusoe
+04. Island(   Читать дальше...   )Жанр: Ambient, Experimental, ElectronicПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A299B01B2345E24D15B4CE47DD771CAAD973D2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319910   (475882) от 01.08.2022
+
+Запрещенный прием (расширенный) - Sucker Punch (2011) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Official soundtrack:
+
+01. Emily Browning - Sweet Dreams (are made of this) (05:19)
+02. Björk feat. Skunk Anansie - Army Of Me (Sucker Punch Remix) (06:51)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FE9868030C705BFDDEAA2CC2AEFEF2263DB58E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245066   (475788) от 04.09.2018
+
+VA - Diamond Best Mood Tenor Sax Best (2CD)(2006) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening,Sax>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaoru Akimoto - Harlem Nocturne
+02. Kaoru Akimoto - Ronriwan
+03. Kaoru Akimoto - Mona Lisa
+04. Kaoru Akimoto - Stardust(   Читать дальше...   )Жанр: Instrumental, Easy listening,SaxПродолжительность: 01:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79C63406474FFE62FDFB41E6D3369C9387778BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320106   (475071) от 16.08.2019
 
 Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
@@ -597,169 +742,6 @@ Neil Tatar - After the Rain (2018) [MP3|320 Kbps] <New Age, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:542C84A40A0FD29150AC94A030A187217DB8EF0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245739   (469888) от 07.09.2018
-
-VA - Brazil 70: After Tropicalia: New Directions in Brazilian Music in the 1970s (2007) [FLAC|Lossless|tracks + .cue] <Folk Rock, Bossanova, MPB, Latin Jazz>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secos & Molhados - Amor (02:18)
-02. Alceu Valença - Punhal de Prata (03:12)
-03. Novos Baianos - Tinindo Trincando (03:25)
-04. Jaime Alem & Nair de Cândia - Passará (04:12)(   Читать дальше...   )Жанр: Folk Rock, Bossanova, MPB, Latin JazzПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134B1E073A8B77B6E260BE3FD2E33347A8E26B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547144   (469547) от 17.09.2012
-
-Gregorian - Epic Chants (2012) [MP3|~245 кб/с (V0)]<NewAge & Meditative,Ambientpop,Gregorian chants>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Without End (4:17)
-02. Against All Odds (4:28)
-03. Conquest of Paradise (5:56)
-04. Both Sides Now (6:12)
-05. Bright Eyes (4:54)
-06. My Heart Will Go on (5:22)
-07. Live and Let Die (5:05)
-08. Into the West (5:21)
-09. Kiss From A Rose (5:56)
-10. Last Unicorn (4:35)(   Читать дальше...   )Жанр: NewAge & Meditative,Ambientpop,Gregorian chantsПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3310EB8E084A90CB8BAD8F92AF62DE29AD59B1D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386804   (469389) от 12.09.2011
-
-Paco De Lucia - Flamenco Virtuoso (2008) [FLAC|Lossless]<Flamenco>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zorongo Gitano (2:59)
-02. Malaguena (3:32)
-03. Punta Umbria (3:24)
-04. Gitanos Trianeros (3:43)
-05. Llanto A Cadiz (3:29)
-06. Tomo Y Obligo (2:11)
-07. Guajiras De Lucia (3:22)
-08. Panaderos Flamencos (2:38)
-09. El Tempul (3:29)
-10. Taconeo Gitano (3:03)(   Читать дальше...   )2008Жанр: FlamencoПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547992   (468859) от 17.09.2012
-
-Обитель зла: Возмездие / Resident Evil: Retribution (by Tomandandy) (2012) (tracks+.cue), [FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hexes (ft. Chino Moreno) [03:00]
-02. Flying Through the Air [03:48]
-03. First Blood [01:12]
-04. Tokyo Revisited [02:05]
-05. Corridor [02:52]
-06. Planting [04:05]
-07. Axemen [02:47]
-08. Fall Back [01:51]
-09. Imprinted [00:57]
-10. Suburbia [02:50](   Читать дальше...   )Жанр: ScoreПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058563   (468832) от 01.10.2016
-
-Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks] <Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Meditation [00:12:15]
-02. Believe the Mental Power [00:13:20]
-03. On the Wings of Time [00:13:17]
-04. Reincarnation [00:08:22](   Читать дальше...   )Жанр: MeditationПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA244E70745E24651D5FA118BC5C81A8DC8AC3E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

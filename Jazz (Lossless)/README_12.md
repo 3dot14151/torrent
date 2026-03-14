@@ -1,3 +1,32 @@
+###  Публикация: 1455223   (1025852) от 18.03.2021
+
+Abus Dangereux - Bis (1982) 2015, Musiclip [FLAC|Lossless|WEB-DL|tracks] <azz-Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025852.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Radio Pékin - 04:05
+2. Phaedra - 08:34
+3. Nostalgy Square - 08:39
+4. Bulletin météo - 08:14(   Читать дальше...   )Жанр: azz-Rock, FusionПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A4B5161F5417819B4C576981BDC0AC578BF3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455319   (1025813) от 18.03.2021
 
 Peggy Lee - Black Coffee & Dream Street: The Complete Sessions (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ CD1 - Strike Up The Band:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:545EAA4AF0704D26C9DAE143B6D12270BA008541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461809   (1021640) от 11.04.2021
-
-Yaniv Taubenhouse - Perpetuation: Moments In Trio, Vol.II (2019) Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perpetuation [7:23]
-02. On The Street Where You Live [7:27]
-03. Fairytale [8:25]
-04. Paris [7:16](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36BAD88D6F63EE57B0B20375DFCBB7582C8E7963
 ```
 
 https://mybot314.ru/tekegram_catalog/

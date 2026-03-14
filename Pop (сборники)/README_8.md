@@ -1,3 +1,32 @@
+###  Публикация: 623372   (955709) от 26.02.2013
+
+VA - The Official UK Top 40 Singles Chart (24-02-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую очередной UK Singles Chart — официальный хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Составляется с 1952 года как аналог американского Billboard.
+По ссылке в дополнительной информации Вы найдете и USA Billboard Hot 40 (23-02-2013)
+Во все треки вшиты обложки альбомов.Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 02:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11BAEF8A13B0113B8E65C7924BA20CD7065DEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361397   (955510) от 19.02.2020
 
 VA - Popular European Mix (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Взрывной хит-парад. Сборник № 6 (2017) [MP3|256 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D63681432646226650C5B53A6E5C7AC1819A0A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088782   (950556) от 04.01.2017
-
-VA - Хитовый бум на Europa Plus. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950556.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stevie Wonder Feat. Ariana Grande - Faith 2:41
-002. Sia - Never Give Up 3:42
-003. John Legend - Surefire 4:03
-004. Tommy Trash - Lover 3:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B62B8F65ACE4BF6BA8762877CFEE22A09F2C64E
 ```
 
 https://mybot314.ru/tekegram_catalog/

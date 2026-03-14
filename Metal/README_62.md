@@ -1,3 +1,32 @@
+###  Публикация: 1563842   (502698) от 16.07.2022
+
+Disciples of the Apocalypse - Disciples of the Apocalypse 2: Hell on Earth (2022) [MP3|320 Kbps] <Psych, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 As the Last Grave Empties
+02 Curse of Kandar
+03 When There Is No More Room Left in Hell
+04 Miasma(   Читать дальше...   )Жанр: Psych, Stoner, DoomПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CFE0D87A587A6254EDFCD06515597BE9755D39F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934345   (502406) от 05.09.2015
 
 Black Majesty - Cross Of Thorns (2015) [MP3|320 кб/с]<Heavy Metal, Power Metal>
@@ -716,35 +745,6 @@ Wolf Counsel - 5 Albums (2015-2022) [MP3|320 Kbps] <Doom Metal, Stoner Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA15FE87A97915183C68CF7AFFC197BDCC02817B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565601   (492674) от 24.07.2022
-
-Sedimentum - Suppuration Morphogénésiaque (2022) [MP3|284-296 kbps VBR] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Krypto Chronique II [00:04:44]
-02. Excrétions Basaltiques [00:04:39]
-03. Suppuration Morphogénésiaque [00:06:26]
-04. Funestes Manifestations [00:04:55](   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73D80917E4A6DD96B32FBCED5ECE9964A84B899
 ```
 
 https://mybot314.ru/tekegram_catalog/

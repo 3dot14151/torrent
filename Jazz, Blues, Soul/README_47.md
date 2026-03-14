@@ -1,3 +1,66 @@
+###  Публикация: 605624   (995642) от 20.01.2013
+
+Endless Boogie - Full House Head (2010) [FLAC|Lossless]<Blues-Rock, Psychedelic>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empty Eye
+ 02. Slow Creep
+ 03. Top Dollar Speaks His Mind
+ 04. Mighty Fine Pie
+ 05. Tarmac City
+ 06. Pack Your Bags
+ 07. New Pair Of Shoes
+ 08. A Life Worth LeavingЖанр: Blues-Rock, PsychedelicПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605735   (995632) от 20.01.2013
+
+Wynton Kelly Trio & Wes Montgomery - Smokin' at the Half Note (1989) [FLAC|Lossless]<Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Blues  [12:59]
+02. If You Could See Me Now  [08:23]
+03. Unit 7  [06:46]
+04. Four on Six  [06:45]
+05. What's New  [06:11]Жанр: Jazz, Hard BopПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605633   (995597) от 20.01.2013
 
 Solomon Burke - If You Need Me & Rock 'N Soul (1998) [FLAC|Lossless]<Blues, Funk, Soul>
@@ -813,76 +876,6 @@ Various Artists - Basstorius - Music Inspired by the Genius of Jaco Pastorius (1
 08. Tribute (Stefan Rademacher) (6:12)
 09. If Only (Alan Thomson & Dave Lewis) (3:06)
 10. The Man From The Everglades (Mo Foster) (4:02)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608980   (992187) от 27.01.2013
-
-VA - S2S  Extravaganza "The Best Of" (2010) [MP3|320 кб/с]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiza Seguerra - Time After Time  [05:09]
-02. Olivia Ong - First Of May  [03:37]
-03. Bevlyn Khoo - Talk To Me  [03:17]
-04. Sofia - I Believe  [04:33]
-05. MYMP - Especially For You  [03:42]
-06. Tay Kewei - Baby Now That I Found You  [04:08]
-07. Angela - Stay (I Miss You)  [03:06]
-08. Reymond Sajor - I Don’t Want To Miss A Thing  [04:02]
-09. Ariea De Rio - I’m Yours  [04:16]
-10. Princess - You Are Not Alone  [05:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC5EA008F1E96614C6E97D2D8C17EB26C3101B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609637   (992178) от 27.01.2013
-
-Pasadena Roof Orchestra - Licensed To Swing (2011) [FLAC|Lossless]<Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992178.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. You're the Top (3:41)
- 2. At the Jazz Band Ball (3:12)
- 3. Bel Ami (3:16)
- 4. No Strings (3:10)
- 5. Futuristic Rhythm (2:59)
- 6. Polka Dot Rag (2:54)
- 7. About a Quarter to Nine (3:26)
- 8. I Heard (2:25)
- 9. Without That Certain Thing (3:22)
- 10. Am Sonntag Will Meine Süsse Mit Mir Segeln Gehn (2:36)(   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:28
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,38 @@
+###  Публикация: 522815   (606978) от 21.07.2012
+
+VA - Electro House ремиксы на современные русские хиты (2012) [MP3|320 кб/с]<Electro, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agent Smith - Завалю Снегом 2012 (DJ Karas Remix) [05:07]
+ 02. Aksioma Project - Ломай Меня Полностью (Club Version) [03:24]
+ 03. AlexPtitSa & Dj Vitalik Vitamin & Milena - Жестокие Игры (Extended Mix) [05:56]
+ 04. Ana Baston - Скандал (Avionics project extended rmx) [04:39]
+ 05. Ana Baston - Скандал (galas remix) [04:01]
+ 06. AnTon PavLovsky ft.Basilio Baio - Крылатые качели [04:51]
+ 07. ARUBA ICE - Lyubov(DeSaxe Remix) [03:18]
+ 08. Aruba Ice & Denis Kenzo - В небеса (DJ XM Electro Remix) [04:37]
+ 09. ARUBA ICE & Velchev Pavel - Меня не найдешь (Ural Djs Remix) [05:02]
+ 10. Aslan Gusejnov feat. Misty - Znayu znayu (Radio Edit) [03:27](   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 08:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9075FC407FAE40CF4BFC4A0514E077A02414CDB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038368   (606834) от 28.07.2016
 
 VA - Hot Dancing On The Beach (2016) [MP3|320 Kbps] <Pop, Club, House, Electronic>
@@ -719,35 +754,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A758F46F3EA158178A95AA75CEB208BE7B5AABA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275955   (602602) от 25.04.2019
-
-Сборник миксов от DJ Jack Ben (Евгений Баленко) (2013-2019)  [MP3|320 Kbps] <Eurodance, Club House, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602602.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jack Ben - Disco Paradise Vol.41 (OCTOBER 2014 MEGAMIX)
-002. Jack Ben - Disco Paradise Vol.43 (NOVEMBER 2014 MEGAMIX)
-003. Jack Ben - Disco Paradise Vol.44 (DECEMBER 2014 MEGAMIX)
-004. Jack Ben - Disco Paradise Vol.45 (HAPPY NEW YEAR 2015 MEGAMIX)(   Читать дальше...   )Жанр: Eurodance, Club House, Deep House, Future House, OLDSCHOOL,Продолжительность: 122:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D7BE4DC4E43A0E47B3D82AACB34C4AEEA8488F
 ```
 
 https://mybot314.ru/tekegram_catalog/

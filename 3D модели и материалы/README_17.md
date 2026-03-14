@@ -1,3 +1,29 @@
+###  Публикация: 1302819   (579323) от 17.05.2019
+
+3D модели - CGTrader - Dosch 3D - Heavy Machines [LXO]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: LXO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FCB53ACA9A523ACE2D4DF7EFB51F5E65C99F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302807   (579321) от 17.05.2019
 
 3D модели - CGTrader - Dosch 3D - Heavy Machines [ATL]
@@ -647,33 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C651EC4E448F5E95FEA73053E371CFBC64CC16AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048558   (546204) от 02.09.2016
-
-3D модели - modelplusmodel vol.10 - Kitchen appliances [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный сборник включает в себя 24 модели, с высочайшей детализацией, кухонных приборов: варочных плит, духовок, вытяжек и прочее...
-Модели предоставлены в двух вариантах: для гаммы 1.0 и 2.2.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49022672F7507265F545C7721DF93A3F72B5A9E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

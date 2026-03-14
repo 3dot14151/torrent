@@ -1,3 +1,148 @@
+###  Публикация: 915680   (589960) от 10.07.2015
+
+TYA - Echoes (2015) [MP3|320 кб/с]<New Age, Chillout, World, Tribal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Open Road (07:45)
+02. Whispering Wind (05:57)
+03. The Love We Share (05:24)
+04. Blossom of Bliss (05:47)(   Читать дальше...   )Жанр: New Age, Chillout, World, TribalПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204AB4D6C2B1A9F5BBA9D0B6D8DE18E7CA229246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915526   (589947) от 10.07.2015
+
+Indios de America - Indios de America (2004) [MP3|160 кб/с]<Native american, Ethnic, Folk, New Age>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing moon
+02. Ananas
+03. Indios de America
+04. Yeha - noha(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E1862D0924C48D0D40C7A2D151202AE96613DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917180   (589532) от 11.07.2015
+
+Valentina Babor - Piano Princess (2015) [MP3|320 кб/с]<Instrumental, Classical, Pop, Piano Solo>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children (04:21)
+02. Nobody Does It Better (03:27)
+03. I Believe I Can Fly (04:16)
+04. When The Rain Begins To Fall (03:49)(   Читать дальше...   )Жанр: Instrumental, Classical, Pop, Piano SoloПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2A43700A4B46CB02A06A1B7BFA1E30DDA65097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552209   (588516) от 19.05.2022
+
+Evgeny Grinko - Orange Marmalade (2021) [MP3|320 Kbps] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things From The Past (2:23)
+02. It's Foggy Today (3:06)
+03. On The Waves (3:36)
+04. Velvet Elephant (1:51)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF9F6C2B454113F08AFC9E79C854769B402D06C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552210   (588512) от 19.05.2022
+
+Valeriy Dolgin - Erektogitara (2013) [MP3|320 Kbps] <Guitar, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venera (2:58)
+02. Seksvakuum (5:24)
+03. Akt Perviy (4:06)
+04. Sluchaynaia Sviaz' (5:46)(   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9493216742E4567BF948BC3A35548724A13133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552258   (588494) от 19.05.2022
 
 Giovanni Marradi - The Best of Giovanni, Vol. 2 (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
@@ -615,142 +760,6 @@ Era - The Live Experience (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F79ADB53EEF1DCFE1FF2851EB347048CFC5A32C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040452   (585090) от 06.08.2016
-
-Suicide Squad: The Album - Отряд самоубийц (2016) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
-02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker for Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:04)
-03. Twenty One Pilots - Heathens (03:16)
-04. Action Bronson, Mark Ronson & Dan Auerbach (of The Black Keys) - Standing in the Rain (03:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1B195BD7657A554D5381B0DF13B3B44C78577E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358087   (584933) от 03.07.2011
-
-OST - Vangelis - Blade Runner (Esper Edition) [2 CD] (2003) [OGG|192-320 kbps]<Electronic, Jazz, Stage & Screen>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electronic, Jazz, Stage & ScreenПродолжительность: 01:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09165685B6C6B9804974A3E3806686755B4C0C04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918951   (584880) от 17.07.2015
-
-Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maple Love
-02. Mythos
-03. The Unforgettable Love Affair
-04. Prayer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838FADBACC1869545B4F00341217D74C1BF0445F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358281   (584798) от 03.07.2011
-
-Гарри Поттер и Дары смерти: Часть 2 / Harry Potter And The Deathly Hallows Part 2 (2011) [MP3|320 kbp/s]<Score,Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584798.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011Жанр: SoundtrackПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1459E7E68C2DCDA5DB2C805B2925D62793BBF1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358304   (584742) от 03.07.2011
-
-OST Daft Punk - Tron Legacy (2010) [MP3|320 kbp/s]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CEC3F53A69A134C28B52A3210DE66E19FAC15E
 ```
 
 https://mybot314.ru/tekegram_catalog/

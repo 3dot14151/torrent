@@ -1,3 +1,177 @@
+###  Публикация: 1688125   (125292) от 28.12.2023
+
+The Kenny Clarke-Francy Boland Big Band - Latin Kaleidoscope, Cuban Fever (1968) 2011, MPS Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un Graso de Areia [4:55]
+02. Duas Rosas [2:28]
+03. A Rosa Negra [1:59]
+04. Uma Fita de Tres Cores [4:02](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694338F5AC18071A3B5F74BA26DC2C83B34228ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688168   (125290) от 28.12.2023
+
+The Mike Eldred Trio - First Recordi (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiger Man (4:24)
+02. Hello Baby (3:42)
+03. I Could Be That Man For You (5:02)
+04. Thin Line (5:45)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1623CBFED844A1D1108056634E2841DB135900CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688165   (125285) от 28.12.2023
+
+The Lazy Tones - Laundry Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lend Me A Train Fare (4:30)
+02. My Blame (3:52)
+03. Look-a-Here (2:42)
+04. Natural Born Lover (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA76A0CAF856B52258BBD54011734E05A7E0E0D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688171   (125281) от 28.12.2023
+
+The Paul Cook Blues Band, Katie Bradley - I Spy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mean Mistreater (4:30)
+02. Forget About Me (5:33)
+03. I Spy (4:48)
+04. Walking Back To Me (6:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871F2795D52029DF17E745EA9ACB7A2330786929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688172   (125280) от 28.12.2023
+
+The Professor Underfunk - Just Build It (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On (4:26)
+02. Just Build It (4:54)
+03. Night Life (5:08)
+04. Just Coastin' (5:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB2389B3C205AF9496CF7DA455538B17183953D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688327   (125158) от 29.12.2023
+
+Tadd Dameron - Four Classic Albums (1948 - 1962) 2CD, 2015, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mating Call [5:37]
+02. Gnid [5:10]
+03. Soultrane [5:26]
+04. On A Misty Night [6:25](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF3AE6D80869A39131AB3798A9CCB4C9CB19357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688335   (125157) от 29.12.2023
 
 Nobuo Hara & His Sharps & Flats - Big Band Congress (1970) 2013, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
@@ -571,180 +745,6 @@ MasterPeace - The Dylan Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F51C4A4A0160053FA62386409EF24DD45733C55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690433   (123919) от 07.01.2024
-
-Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeepers Creepers [2:49]
-02. Heatwave [3:02]
-03. Harlem on My Mind [3:29]
-04. Y' Had It Comin' to You [2:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B29F6E8D2952094EF33B11EE29195910DE14478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690529   (123910) от 07.01.2024
-
-The Jazz Kings - Blue Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Cross The Mersey
-02. Rockin' Gold
-03. Still Got The Blues
-04. Popsicle Toes(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237165C1E5F8C45A991D323505BFB4843FD35116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690624   (123792) от 08.01.2024
-
-Kay Starr - Cocktail Hour (1940-e - 1950-e) 2CD, 2000, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them There Eyes [2:03]
-02. Don't Worry About Me [3:39]
-03. It's Whatcha Do with Whatcha Got [2:07]
-04. All of Me [2:27](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8213F8C1B00E8EEC4DC6B6586C5906E5D127ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690810   (123690) от 09.01.2024
-
-Bessie Smith - BD Jazz (1923 - 1933) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Early Jazz, Classic Female Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzbo Brown from Memphis Town [3:26]
-02. The Gin House Blues [3:18]
-03. Baby Doll [3:04]
-04. Back Water Blues [3:20](   Читать дальше...   )Жанр: Early Jazz, Classic Female BluesПродолжительность: 02:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46DFFC23C1BB56F45F345EF4911BB969F32E736D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690747   (123661) от 09.01.2024
-
-Chris Rea - Dancing With Strangers (1987) Reissue, 1991, EastWest [OGG Vorbis|480 Kbps] <Pop, Rock, Pop Rock, Country Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Joys Of Christmas
-02.  I Can't Dance To That
-03.  Windy Town
-04.  Gonna Buy A Hat(   Читать дальше...   )Жанр: Pop, Rock, Pop Rock, Country RockПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241C965C0733BB49B8206AFBBC13D3DD4B1831A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690683   (123659) от 09.01.2024
-
-Chris Rea - On The Beach (1986) Reissue, 2006, EastWest [OGG Vorbis|480 Kbps] <Pop, Soft Rock, Pop Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  On The Beach
-02.  Little Blonde Plaits
-03.  Giverny
-04.  Lucky Day(   Читать дальше...   )Жанр: Pop, Soft Rock, Pop RockПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93997413B9B451A1845CFAD6EEECFAB7D0AD6564
 ```
 
 https://mybot314.ru/tekegram_catalog/

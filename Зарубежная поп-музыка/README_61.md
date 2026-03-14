@@ -1,3 +1,67 @@
+###  Публикация: 583746   (311955) от 02.12.2012
+
+Mylène Farmer - Monkey Me (2012) [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elle a dit (03:52)
+02. À l'ombre (04:51)
+03. Monkey Me (04:13)
+04. Tu ne le dis pas (04:22)
+05. Love Dance (04:06)
+06. Quand (04:07)
+07. J'ai essayé de vivre... (04:40)
+08. Ici-bas (04:33)
+09. A-t-on jamais (03:47)
+10. Nuit d'hiver (05:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D90B6361795CEBCA7BF32CC291296BE6E74E7A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076520   (311892) от 26.11.2016
+
+The Millionaires - The Millionaires (1980) LP [MP3|320 Kbps] <Electronic, Disco, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Italian Dream  (3:53)
+02. You Only You  (3:20)
+03. Oh Mama, Oh Papa  (3:35)
+04. Tango Motion  (4:26)(   Читать дальше...   )Жанр: Electronic, Disco, EuropopПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9316EAD580FFA2955EA99F44C196EDF5623B7D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182818   (311648) от 12.11.2017
 
 The Hardkiss - 2 альбома, 1ЕР, 21 сингл (2011-2017) [MP3|320 Kbps] <Pop, Rock, Electronic, Alternative>
@@ -704,64 +768,6 @@ VA - Dance Party 2018 (2018) [MP3|320 Kbps] <Dance, Club, Tropical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96D466547CBA4D8E45F92D10AD364189F5B4F9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423393   (300083) от 13.11.2020
-
-Harold Faltermeyer - Harold F (1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prophecy  (4:33)
-02. Appassionata  (3:18)
-03. Them Changes  (4:12)
-04. Must Be Paradise  (4:30)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA1B6388CD59806C2691DDD3898AA19F3947BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184802   (299003) от 18.11.2017
-
-Eros Ramazzotti - Eros Duets (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cose Della Vita (Can't Stop Thinking Of You) (feat. Tina Turner)
-02. Fino All'Estasi (feat. Nicole Scherzinger)
-03. Inevitabile (feat. Giorgia)
-04. I Belong To You (Il Ritmo Della Passione) (feat. Anastacia)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FE326474B5319B02C98B343902710FF592D8E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

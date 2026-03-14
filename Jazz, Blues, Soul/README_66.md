@@ -1,3 +1,61 @@
+###  Публикация: 1094078   (930924) от 17.01.2017
+
+Eliana Cargnelutti - Electric Woman (2015) [FLAC|Lossless|image + .cue] <Modern Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Why Do I Sing The Blues  (03:47) 
+02|  Just For Me  (04:14) 
+03|  Street Corner Talking  (03:48) 
+04|  Soulshine  (05:09) (   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22D45D9AF5BBDBC2227ADFE29A0DC43AE390C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986489   (930843) от 14.02.2016
+
+Hiromi Uehara - Spark (2016) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Progressive Jazz, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spark
+02. In a Trance
+03. Take Me Away
+04. Wonderland(   Читать дальше...   )Жанр: Fusion, Progressive Jazz, PianoПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFBEEFC83CA983A79E25C16E80C8B9176E747AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986479   (930737) от 14.02.2016
 
 Karen Souza - Essentials II (2014) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -687,64 +745,6 @@ Mark Cook - Take Me Back Home (Styles 2 Collection) (2014) [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E542D7BA271248154E927446A8CBF030AA164921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094996   (927873) от 19.01.2017
-
-Rossington - Take It On Faith (2016) [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Highway of Love  (04:07) 
-02|  I Should've Known  (03:23) 
-03|  Take It On Faith  (04:51) 
-04|  Light A Candle  (03:04) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2E63F3946C8692F51E8A2D0584AC0C8C849F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987134   (927865) от 16.02.2016
-
-VA - Antologia polskiego bluesa cz.2: Nasi (z)zagranica (2009) [MP3|256 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Chalimon & Friends - Cold, Cold Feeling
-02. Schau Pau Acoustic Blues - Too Much Trouble, Everyday Blues
-03. Nocna Zmiana Bluesa - Lato 1993
-04. Street Blues - You Have No Mercy(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB46CAA67F481704A1DC5EC590CF2F502927E6D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1367601   (915811) от 16.03.2020
+
+Marcus Shelby Orchestra - Transitions (2019) Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember Rockefeller at Attica [3:29]
+02. On a Turquoise Cloud [3:06]
+03. Begin the Beguine [3:25]
+04. Lullaby of Birdland [4:12](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E332CA2C4436983409561B841B26A49B2782E71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989672   (915798) от 23.02.2016
 
 Robert Drasnin - Voodoo II (2007) Dionysus Records[FLAC|Lossless|tracks + .cue] <Easy Listening, Lounge>
@@ -715,35 +744,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4766F486F2DB9D1B34ED91A60BBFF4196E6E0145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368499   (909222) от 20.03.2020
-
-Jelly Roll Morton - Classic Jazz Archive 1923 - 1939 (2004) 2CD, Membran Music [FLAC|Lossless|tracks + .cue] <Ragtime, New Orleans Jazz, Stride>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909222.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Perfect Rag:
-01. New Orleans Blues Joys [2:44]
-02. Grandpa's Spells (A Stomp) [2:35]
-03. Thirty-Fifth Street Blues [2:30](   Читать дальше...   )Жанр: Ragtime, New Orleans Jazz, StrideПродолжительность: 02:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C89924D3A47B1B47D5863F11A482B29B7872B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

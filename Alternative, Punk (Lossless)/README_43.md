@@ -1,3 +1,90 @@
+###  Публикация: 1071563   (356834) от 11.11.2016
+
+Billy Idol - Essential (2011) Compilation [FLAC|Lossless|tracks + .cue] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebel Yell [04:45]
+02. Hot in the City [03:34]
+03. White Wedding (Part 1) [04:11]
+04. Eyes Without a Face [04:57](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31BDE1BF53035ED4C4FF05CF18801A40C9762A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952341   (356203) от 01.11.2015
+
+The Stranglers - All Live And All Of The Night (1987) [FLAC|image+.cue]<Punk, Post-punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-No More Heroes 3:48
+02-Was It You? 3:41
+03-Down In The Sewer 6:26
+04-Always The Sun 4:29(   Читать дальше...   )Жанр: Punk, Post-punkПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D182F1D92D8705F74B54841BF242C2F85AF84E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952317   (356196) от 01.11.2015
+
+The Stranglers - Dreamtime (1986) [FLAC|image+.cue]<Punk, Post-punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Always The Sun 4:52
+ 02-Dreamtime 3:45
+03-Was It You? 3:39
+04-You'll Always Reap What You Sow 5:14(   Читать дальше...   )Жанр: Punk, Post-punkПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A177C158AC64EA6A528A29B8A71262939CC571A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952316   (356056) от 01.11.2015
 
 The Enemy - It's Automatic (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock, Indie Rock, Britpop, Pop Rock>
@@ -656,93 +743,6 @@ Yurcash (Юркеш) - 2 альбома (2006-2007) Дискография [APE|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ADA81EC87A977C2470D905B21E879C014CF5A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257542   (342912) от 27.10.2018
-
-Twenty One Pilots - Trench (2018) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumpsuit (03:58)
-02. Levitate (02:26)
-03. Morph (04:18)
-04. My Blood (03:49)(   Читать дальше...   )Жанр: Hip Hop, Rock, PopПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E763F0F3424232CCA6AF99609FC3CBA9E699423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073791   (342671) от 17.11.2016
-
-Bad Suns - Disappear Here (2016) [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disappear Here
-02. Heartbreaker
-03. Off She Goes
-04. Love Like Revenge(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFE04722D3790A4BE8E7AF8EA2F1503531F297D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258081   (341442) от 28.10.2018
-
-Less Than Jake - Pezcore (1995) 2008, Reissue [FLAC|Lossless|tracks + .cue] <Rock, Ska, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquor Store (02:44)
-02. My Very Own Flag (02:47)
-03. Johnny Quest Thinks We're Sellouts (02:55)
-04. Big (03:04)(   Читать дальше...   )Жанр: Rock, Ska, PunkПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32C4C8721A69C03816A66E131A0240CDD046907
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1137412   (667942) от 26.05.2017
+
+Erin Boheme - What Love Is (2006) Сoncord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone To Love [04:08]
+02. One Night With Frank [04:17]
+03. Let's Make The Most Of A Beautiful Thing [04:42]
+04. What Love Is [05:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFD3932EFD4E6220C635B3EB3F393267DB612F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137451   (667884) от 26.05.2017
+
+Quincy Jones - Q's Jook Joint (1995) [FLAC|Lossless|image + .cue] <RnB, Swing, Disco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jook Joint Intro (1:32)
+02. Let The Good Times Roll (2:56)
+03. Cool Joe, Mean Joe (Killer Joe) (7:32)
+04. You Put A Move On My Heart (6:14)(   Читать дальше...   )Жанр: RnB, Swing, DiscoПродолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6824B7B286E593B991A05E9FA2714EBD047B9240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137434   (667828) от 26.05.2017
+
+Quincy Jones ‎– The Dude - The Dude (1981) Remaster, 1984, A&M Records [FLAC|Lossless|image + .cue] <Soul-Jazz, Disco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ai No Corrida (06:18)
+02. The Dude (05:35)
+03. Just Once (04:32)
+04. Betcha' Wouldn't Hurt Me (03:33)(   Читать дальше...   )Жанр: Soul-Jazz, DiscoПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73DF9E151AC53B99B3A6B99626438C5197A22BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 339201   (667289) от 20.05.2011
 
 Чайф - Акустические версии (1997) [FLAC(image + .cue)|Lossless]<Rock>
@@ -664,93 +751,6 @@ Al Cohn & Zoot Sims - Al And Zoot / You 'N' Me (1957, 1960) 2002, Азбука �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FA29AD42BEC864E99CF4D6ED4E206C0943462F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138718   (663247) от 30.05.2017
-
-Jeff Kashiwa - Let It Ride (2012) Native Language Music [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Ride [04:16]
-02. Stomp [04:41]
-03. The Name Game [05:08]
-04. Up [03:36](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1E6D8C4730A7DA11F0841E87AF3A93E0793832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225007   (662922) от 13.05.2018
-
-Bobby Jaspar - Bobby Jaspar's New Jazz (1954) 2017, Sony Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Foggy Day in London Town [02:57]
-02. Coraline [02:40]
-03. Blossom [03:49]
-04. Paradoxe [02:33](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926C1F3418A587AEB05B129E2953405B10B4F3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225010   (662879) от 13.05.2018
-
-Dr. Lonnie Smith - All In My Mind (2018) Blue Note [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juju [08:19]
-02. Devika [06:56]
-03. 50 Ways To Leave Your Lover [09:28]
-04. On A Misty Night [07:45](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-Funk, Hammond OrganПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865ACCD644E250A415D3B038DE6AE74DC054114E
 ```
 
 https://mybot314.ru/tekegram_catalog/

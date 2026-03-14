@@ -1,3 +1,90 @@
+###  Публикация: 1444157   (1034958) от 31.01.2021
+
+VA - Beatport Deep House: Electro Sound Pack #234 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите послушать чего-нибудь исконно европейского, легкого и достаточно качественного, то новый 234-й релиз посвящённый музыке стиля Deep House от Beatport должен прийтись Вам по вкусу. Каждый трек по-своему уникален и завораживает с первых секунд прослушивания.001. L.A.B - Our Generation
+002. Kathy Cornell - Like You (Original Mix)
+003. Marcelo Wallace - I Don't Care
+004. Tomi H - Inlightening(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA731950A8A2615EB3A3AB35B65E417CA69CA2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443661   (1034951) от 31.01.2021
+
+VA - Beatport Techno Electronic: Sound Pack #232 (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034951.jpg" />
+</div>
+
+
+###  Подробнее
+
+232-й релиз электроники от Beatport это смелая заявка на то, чтобы оказаться в плейлистах многочисленных любителей техно-саунда, от чудаковатых фанатов экспериментов до нетребовательных завсегдатаев клубных танцполов. Приятные мелодии и заводные ритмы будут сопровождать Вас на протяжении всего релиза.001. Alejandro Bargueno - More Aggrassive
+002. Kuster Beaton - Kuster Theme
+003. Patrick P. - Time
+004. Flamel - Altair (Extended Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287801BF5D17CF0149F225F271950074A6D438E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444149   (1034948) от 31.01.2021
+
+VA - Gravity Dance (2021) [MP3|320 Kbps] <Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник "Gravity Dance" в полной мере можно отнести к музыке экспериментального направления, где в построении музыкального ряда используются отстранённые голоса и звуки, синтезированный саунд и аномально растянутые ритмы. Экстремальные эмоциональные и психические состояния, галлюцинации, существование на грани запредельного – всё это вы найдёте здесь в (   Читать дальше...   )001. Richard Filtter - Sofocante
+002. Acrobotik - Nestle In
+003. Wxlter - Astral Divinity
+004. Das Butterschnitzel - Full On Love(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 09:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1327677199AA320C50D06AA977940C71FC27BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444159   (1034942) от 31.01.2021
 
 VA - A Sense Of Serenity: Lounge Mix (2021) [MP3|320 Kbps] <Lounge, Relax, Chillout, Downtempo>
@@ -658,93 +745,6 @@ VA - Понемногу отовсюду by Yuridar #R (1962-2023) Compilation A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:697BB58DA2E1152FC8F458B82397E62FB3D02F95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618633   (1033934) от 12.03.2023
-
-VA - The Magic Jada (2023) [MP3|320 Kbps] <Psy, Goa, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033934.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Redoma - Caveman
-002. Svetlana - Novel Wings Of Perception
-003. Ryanosaurus Feat. Arketech & Tanto - Natural Rejection
-004. Symbolic - Untold(   Читать дальше...   )Жанр: Psy, Goa, TranceПродолжительность: 12:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C776B21E46DF3442A43BAB587A59867A5A1B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445220   (1033772) от 05.02.2021
-
-VA - Unexpected Paradox: Deep House Electro Compilation (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ночь это особая атмосфера, исчезает негатив и лишняя суета,  дышать становится как- то легче. Причем ночной город одинаково прекрасен со всех сторон, неважно, гуляешь по нему или наблюдаешь за ним с балкона. И особый антураж этой атмосфере придаёт соответствующая музыка.001. 5th Avenue - Alright
-002. Fd Project - Timing
-003. Raspberry Area - Storm On The Asia
-004. Tony Bentley - Euphosonic(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 07:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC57419D0346820F59816693BAF08E8A443B0410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445225   (1033753) от 05.02.2021
-
-VA - Energy House Party (Vol.04) (2021) [MP3|320 Kbps] <Electro House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник "Energy House Party" имеет право предъявить претензию на статус самого выдающегося и богатого релиза на электронной сцене уходящей недели.  Лонгплей получился в целом экспериментальным и чрезвычайно разнообразным. В каждой композиции имеется возможность обнаружить влияние многих жанров, они словно по синусоиде сменяют друг друга, при том меняя настроение (   Читать дальше...   )001. World Groove - Private Eyes
-002. Plastic Soul - Body
-003. Fashion Motel - You Who For The Eyes
-004. Star Hub - A Matter(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 07:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C3822A01D83AF149FC4D2041B5810789EF0525
 ```
 
 https://mybot314.ru/tekegram_catalog/

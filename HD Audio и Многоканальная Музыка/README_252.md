@@ -1,3 +1,148 @@
+###  Публикация: 1626818   (8517) от 30.09.2025
+
+Livin' Blues - Blue Breeze (1976) 1978 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8517.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Shylina
+A2 Back Stage
+A3 Midnight Blues
+A4 Pisces(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C00C372180E6E3E917A5629FBEF4DFACD0D3B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811675   (8441) от 11.08.2025
+
+Leah - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Leah - (Leah McHenry) Лиа МакГенри, известная под псевдонимом Лиа — канадская исполнительница хэви-метала. Её иногда называют "Enya of heavy metal", поскольку она исполняет музыку, сочетающую симфонический и кельтский метал с фолком и этнической музыкой.2012 - Of Earth & Angels
+2013 - Otherworld (EP)
+2015 - Kings & Queens
+2018 - The Quest(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 06:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB48463A61754806ED3BA12E4EA291E05A389F95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811666   (8411) от 11.08.2025
+
+Pawlo-X Sax - Smooth Jazz Summer 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Smooth jazz to relax (6:18)
+02.  Contemporary Smooth jazz love (5:52)
+03.  Smooth Jazzy Sax For Lovers (4:55)
+04.  Smooth Jazz Passion (5:10)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D8E70AD7B157A4D3A8C75ACC177DD404A5558B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811664   (8401) от 11.08.2025
+
+Mr. Saxxy and the Funkaholix - The Dusty Tape Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My Old Guitar (4:23)
+02.  Night’s Got a Rhythm (4:32)
+03.  Thankful for the Rain (5:04)
+04.  Groove in the Grays (3:25)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz Rock, Vocal JazzПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E507B1B0EC4660E3CD396DB267BE1D553CF004DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811592   (8383) от 11.08.2025
+
+My Dying Bride - A Map Of All Our Failures (2012)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Doom, Death Metal, Gothic, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8383.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Kneel Till Doomsday
+A2 - The Poorest Waltz
+B1 - A Tapestry Scorned
+B2 - Like A Perpetual Funeral(   Читать дальше...   )Жанр: Doom, Death Metal, Gothic, Doom MetalПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F593CED2C587AC2E79F1DA820378594F985D6CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811704   (8377) от 11.08.2025
 
 Liv Sin - Close Your Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
@@ -597,151 +742,6 @@ Daylight Ghostfist - Fleeing Fast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62935AFF4E03813E96B3C30CEE3F94D448EDDCF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812096   (7987) от 13.08.2025
-
-Bob Forte - Nureci Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ballad Of A Sheperd (3:57)
-02.  So Long (3:45)
-03.  Bob Forte Trio Shuffle (2:22)
-04.  On My Way To Berlin (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0354E9F46DC9DA4462A436DD7824B0FEBE077673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812111   (7985) от 13.08.2025
-
-Ember Tavistock - Grindin' Hustle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Island Groove (2:08)
-02.  Mystic Rod (3:10)
-03.  District Shuffle (3:30)
-04.  Cash Flow Unit (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C4347823185395ACA44EFD44D8EE2BBEB40A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812128   (7983) от 13.08.2025
-
-Greg James Ortbach - Somewhere Slow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Running (4:14)
-02.  What If? (3:29)
-03.  Somewhere Slow (3:49)
-04.  Touch The Sky (4:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF407F5CC1B726F7F6E86ED8D81EB3F10359064A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812099   (7978) от 13.08.2025
-
-Brice Harwin - Melancholy Meeting (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You Lift Me Up (2:56)
-02.  Love Hurts Deep (4:52)
-03.  Starlight Drive (4:05)
-04.  Cruelest Girl (3:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99271C1271230A9001EBBBE322CF871F00873578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812113   (7977) от 13.08.2025
-
-Eminent Steed - The Joy of June (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hair on fire (4:23)
-02.  Gaslight (4:29)
-03.  Dependence Day (3:30)
-04.  Hellboy (6:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E476AE47E58480732E604CF0A20C31D08B89C439
 ```
 
 https://mybot314.ru/tekegram_catalog/

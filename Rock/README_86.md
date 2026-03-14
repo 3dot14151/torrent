@@ -1,3 +1,61 @@
+###  Публикация: 1590419   (189119) от 13.11.2022
+
+Fleesh - Home Again (A Tribute to Pink Floyd) (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe [02:56]
+02. Time [07:04]
+03. Hey You [04:42]
+04. In the Flesh [04:16](   Читать дальше...   )Жанр: RockПродолжительность: 01:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E5B85ABEFDE921918C49E98AB67861DCF0C98E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662697   (187407) от 19.09.2023
+
+The Who - Who’s Next : Life House (Super Deluxe) (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187407.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+01. Baba O'Riley (Remastered 2022) [5:04]
+02. Bargain (Remastered 2022) [5:35]
+03. Love Ain't For Keeping (Remastered 2022) [2:12](   Читать дальше...   )Жанр: RockПродолжительность: 09:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B212840FB2888810B2453F437C916BBEF1C8F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662767   (187089) от 20.09.2023
 
 Slade - The No.1's (2023) [MP3|320 Kbps] <Glam Rock, Hard Rock>
@@ -687,64 +745,6 @@ Slade - 70's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89538C0F989B3F2EFD04BE67E0902E0A20C0519B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428404   (180205) от 02.12.2020
-
-Alfio Costa - Frammenti (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...La Notte (01:52)
- 02. Ombre nel Sole (09:35)
- 03. Frammenti (06:05)
- 04. Luci in un notte d'ambra (08:24)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F6F6C4C30527AD58F9607FDF349D3773B61891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428398   (180194) от 02.12.2020
-
-Sly Roosevelt - Kirlian (2020) [MP3|320 Kbps] <Progressive Rock, Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kirlian, Pt. 2 (05:31)
- 02. Cocaine(keep moving) (04:46)
- 03. Tiger swing (07:07)
- 04. Neon Confetti (08:11)(   Читать дальше...   )Жанр: Progressive Rock, Post-RockПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158C561972BA4CC51D22E28107A29A0A7A5534A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

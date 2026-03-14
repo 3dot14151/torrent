@@ -1,3 +1,148 @@
+###  Публикация: 1137033   (669215) от 25.05.2017
+
+Dionne Warwick - The Real... Dionne Warwick (2015) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Easy Love
+2. Love Power
+3. Heartbreaker(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 03:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F70D395A0D2B3C3120B16F57E6D694B26A885E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030988   (668650) от 03.07.2016
+
+Delta Goodrem - Wings Of The Wild (2016) Sony Music Entertainment [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feline [00:04:15]
+ 02. Wings [00:03:25]
+ 03. Dear Life [00:03:09]
+ 04. Just Call [00:04:01](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0864259794C98AC40F51B9012135D0C4D831510C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031265   (668599) от 03.07.2016
+
+The Pointer Sisters - Best Of The Pointer Sisters (1998) [APE|Lossless|image + .cue] <Pop, R'n'B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm So Excited
+02. Jump (For My Love)
+03. Automatic
+04. Neutron Dance(   Читать дальше...   )Жанр: Pop, R'n'B, SoulПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5778584DE032F97E2C7F563DE7420AF2480EA7B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031253   (668590) от 03.07.2016
+
+Book Of Love - MMXVI-The 30th Anniversary Collection (Remastered) (2016) [FLAC|Lossless|tracks] <Synth-Pop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boy (2016 Remastered)
+02. Book Of Love (2016 Remastered)
+03. I Touch Roses (2016 Remastered)
+04. You Make Me Feel So Good (2016 Remastered)(   Читать дальше...   )Жанр: Synth-Pop, PopПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61239B44B885642A356364F89719EDF6B11EFFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031378   (668499) от 03.07.2016
+
+VA - Radio Italia - Summer Hits (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zucchero - Partigiano reggiano (3:00)
+02. Alessandra Amoroso - Vivere a colori (4:20)
+03. Vasco Rossi - Il blues della chitarra sola (3:07)
+04. Tiromancino - Piccoli miracoli (3:31)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BA1D1A178A5486C039544D84BDA73AE9587705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224128   (668106) от 08.05.2018
 
 West End Players and Singers - Highlights from Grease (2000) [FLAC|Lossless|image + .cue] <Musical, Pop>
@@ -602,148 +747,6 @@ VA - Greatest Feelgood Hits... Ever. Volume 1 (2004) [APE|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:307694960D3624573442467EA8D107872DDD3818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540430   (653802) от 29.03.2022
-
-Falco - The Sound Of Musik (The Greatest Hits) (2022) Compilation [FLAC|Lossless|image + .cue] <Pop Rock, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Johann "Hans" Hölzel (19.02.1957 - 6.02.1998), более известный под своим сценическим псевдонимом Falco, был австрийским музыкантом, певцом и композитором. У Falco было несколько международных хитов, включая Rock Me Amadeus, Der Kommissar, Vienna Calling, Jeanny, The Sound of Musik, Coming Home (Jeanny Part II, One Year Later) и Out of the Dark из последнего, (   Читать дальше...   )01. Ganz Wien (5:08)
-02. Der Kommissar (3:52)
-03. Maschine brennt (3:38)
-04. Auf der Flucht (4:14)(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5469B165F5C996310C97E6889A897FA67ECA8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514269   (653419) от 28.06.2012
-
-VA - Absolute Dance Summer (2012) [FLAC|Lossless]<Pop, Rok, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_653419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 20121. Panetoz - Dansa pausa 2:58
-2. Michel Telу - Ai se eu te pego (Nousa nousa) (A class floor mix) 3:38
-3. Tacabro - Tacata' 3:30
-4. David Lindgren - Shout it out (WeSmile & Alexie Divello radio edit) 3:47(   Читать дальше...   )Жанр: Pop, Rok, R&BПродолжительность: 02:35:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141194   (652128) от 09.06.2017
-
-Katy Perry - Witness (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/15. Witness (4:11)
- 02/15. Hey Hey Hey (3:35)
- 03/15. Roulette (3:19)
- 04/15. Swish Swish (feat. Nicki Minaj) (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D644671AEA8EAEB4B545731ED6863B103BDDB2E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 678580   (651750) от 12.07.2013
-
-Dido - 3 альбома (2001-2005) [FLAC|Lossless]<Pop, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_651750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Vocal, BalladФормат: track + cueПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031616   (651492) от 04.07.2016
-
-Gianni Morandi - Questa E' La Storia Da "Canzoni Stonate" A "Banane E Lampone" (1994) [FLAC|Lossless|tracks + .cue] <Italo-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canzoni Stonate (4:21)
-02. Solo All'Ultimo Piano (3:46)
-03. Come Posso Ancora Amarti (3:51)
-04. Grazie Perche (3:48)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7B85B3F1AA5445D09148C0A53BDB141510B41C
 ```
 
 https://mybot314.ru/tekegram_catalog/

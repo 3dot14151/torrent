@@ -1,3 +1,148 @@
+###  Публикация: 1795416   (19356) от 04.05.2025
+
+Thomas Anders - … Sings Modern Talking: Let's Talk About Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 00:36:42
+01. Cheri Cheri Lady (Thomas' Version - In the Mix) (3:04)
+02. With a Little Love (Thomas' Version - In the Mix) (2:54)
+03. Wild Wild Water (Thomas' Version - In the Mix) (2:55)(   Читать дальше...   )Жанр: PopПродолжительность: 2CD, 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC16886594F90E67ED9EC7BAF5B41E9F1BDDDAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795979   (19040) от 07.05.2025
+
+Caliban - The Undying Darkness (2006) [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro
+02 - I Rape Myself
+03 - Song About Killing
+04 - It's Our Burden To Bleed(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4149C489DF7C8DE0398E594666B43F3E53BE6E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795892   (19039) от 07.05.2025
+
+Believer - Extraction from Mortality (1989) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Technical Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19039.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Unite
+A2 Vile Hypocrisy
+A3 D.O.S. (Desolation Of Sodom)
+A4 Tormented(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F493BAABCC128DFF80E1F6AE8D47D80A016635B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795818   (19035) от 07.05.2025
+
+Bekor Qilish - Throes of Death From the Dreamed Nihilism (2022) Released, 2023, I, Voidhanger Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Avant-Garde Black, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19035.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Cryptic Hatred (04:34)
+A2. Self-Destructed Destruction (03:41)
+A3. Verminous Barrier (02:20)
+B1. Ocean of Malice (04:42)(   Читать дальше...   )Жанр: Avant-Garde Black, Death MetalПродолжительность: 00:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520683272C3DF6F488C4F90A273D58022D645F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796167   (18934) от 08.05.2025
+
+Behemoth - The Shit Ov God (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadow Elite (4:39)
+02. Sowing Salt (3:07)
+03. The Shit Ov God (5:37)
+04. Lvciferaeon (4:16)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D94D04400422EA2E7D8729B840A9D98C59C19EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796169   (18932) от 08.05.2025
 
 Roxxcalibur - NWOBHM From The Vaults (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <NWOBHM>
@@ -599,151 +744,6 @@ Carolyn Wonderland - Truth Is (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:068A7ADF73F39D28963436FA52B2B0A36D7285FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798193   (17533) от 21.05.2025
-
-Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain
-02. Shining Kingdom
-03. Angel's Decay
-04. My Saviour(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2468F6BBB35BE34D3D4BE5A749CDE8902495FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798066   (17532) от 21.05.2025
-
-Djrum - Under Tangled Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Broken Beat, IDM, Jungle, Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – A Tune for Us
-02 – Waxcap
-03 – Unweaving
-04 – L’Ancienne(   Читать дальше...   )Жанр: Modern Classical, Ambient, Broken Beat, IDM, Jungle, TechnoПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE2FAF75C81E688CA200EE4044EEB4A686C7407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798287   (17531) от 21.05.2025
-
-Resurrection Blues Band - GENESIS (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Broke Down In Clarksville (3:52)
-02.  Blame Game (4:05)
-03.  Sugar Daddy (4:05)
-04.  Good, Bad, & the Blues (4:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:26:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077FD9B2B97CAD934407F1E6D1A986D644E028FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798288   (17530) от 21.05.2025
-
-Ruzz Guitar's Blues Revue - Between Two Worlds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  10-31 (3:44)
-02.  Casting My Spell (2:38)
-03.  Sweet Lovin (4:00)
-04.  Cry Baby (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BE48C0469C275E15B92AFDA2563E2F1F422F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798289   (17514) от 21.05.2025
-
-The British Bluescasting Corporation - Saints & Sinners (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Saints & Sinners (3:38)
-02.  Ain't No Love (In the Heart of the City) (4:38)
-03.  Wear Your Scars With Pride (4:10)
-04.  Ain't Got the Blues, Blues (2:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6554640F770F11AD073E1C889B832AA99B5E02
 ```
 
 https://mybot314.ru/tekegram_catalog/

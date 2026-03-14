@@ -1,3 +1,32 @@
+###  Публикация: 1597372   (166619) от 14.12.2022
+
+VA - Music News vol.231 (2022) [MP3|320 Kbps] <Pop, Dance, Soul>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. SZA - Love Language (03:04)
+ 002. 4K - Эй Молодой (03:08)
+ 003. 3333 feat. Леонид Агутин - Последний Трек (03:10)
+ 004. Adam Lambert - Ordinary World (03:20)(   Читать дальше...   )Жанр: Pop, Dance, SoulПродолжительность: 05:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5395C060C75A4B175088001C010798A5DC183B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345529   (166424) от 15.12.2019
 
 VA - не Громкие новинки недели 47 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Music News vol.312 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:575C20ACD34BFD7B26F1E2391DCD7BFCA5A9C54A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674138   (162000) от 04.11.2023
-
-VA - ЕвроХит Топ 40 Europa Plus 03.11.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dezko - Ascend (3:20)
-02. Robert Cristian feat. Alis Shuka - The Day Before (2:25)
-03. Doja Cat - Paint The Town Red (3:51)
-04. The Kolors - Italodisco (3:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A373BEE0B601E7F8950EDFFD93A851B68D557C
 ```
 
 https://mybot314.ru/tekegram_catalog/

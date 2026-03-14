@@ -1,3 +1,61 @@
+###  Публикация: 1304912   (560063) от 28.05.2019
+
+VA - Fox Giganten (Die besten Discofox Schlager Hits 2019 fur deine Tanz Party) (2019) [MP3|320 Kbps] <Schlager, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kay Dorfel - Malinconia
+02. Tommy Fischer - Du machst mich kopflos
+03. Michael Fischer - Unser Moment
+04. Tom Mathis - Parlez vous francais(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 03:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80154D634B107F7F668121B7FCFA09A09CDAFDD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153709   (558189) от 27.07.2017
+
+Million Dollar Secret - Under The Surface (1989) LP [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558189.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Under The Surface
+A2. Get Down Be Cool
+A3. Cherry
+A4. Red Is The Colour Of My Love(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, FunkПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1710051B6E6B56AE5EA0E5620341ED4E52E652A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235659   (557338) от 13.07.2018
 
 VA - Acoustic Pop (2018) [MP3|320 Kbps] <Pop>
@@ -687,64 +745,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4D48E09D4A22131472B528E0059941D129AD62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308841   (553518) от 16.06.2019
-
-VA - Radio Italia Summer Hits 2019 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553518.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Charlie Charles - Calipso 3:11
-02. Takagi & Ketra - Jambo 2:37
-03. Ultimo - Rondini Al Guinzaglio 4:01(   Читать дальше...   )Жанр: PopПродолжительность: 02:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043913C0760D83B942E24AF267433074A7193B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236950   (553313) от 22.07.2018
-
-VA - 100X Zomer (2018) 5CD [MP3|320 Kbps] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553313.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01
-01. Luis Fonsi & Demi Lovato - Echame La Culpa
-02. Zedd ft. Maren Morris & Grey - The Middle
-03. Axwell - Dreamer(   Читать дальше...   )Жанр: DanceПродолжительность: 05:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7165745B81CD849278C44DA1B237B6E9A002D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

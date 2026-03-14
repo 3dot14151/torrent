@@ -1,3 +1,61 @@
+###  Публикация: 1286704   (708967) от 04.03.2019
+
+ABBA - Classic ABBA (2005) Compilation, Remastered [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterloo (2:47)
+02. Gimme! Gimme! Gimme! (A Man After Midnight) (4:49)
+03. One Man, One Woman (4:36)
+04. Love Isn't Easy (But It Sure Is Hard Enough) (2:54)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21274E10D8AD3CD02A885B87AD15C8EF6EB7D8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220349   (706190) от 18.04.2018
+
+Nick Straker Band - The Very Best Of (1997) CD [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Walk In The Park (3:51)
+02. Don't Come Back (3:40)
+03. A Little Bit Of Jazz (5:28)
+04. Straight Ahead (6:44)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E404E858C6E667B916D0A4028ECA3EE9C20348C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220332   (706186) от 18.04.2018
 
 Lucky Star - Who's Foolin' Who (1978) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
@@ -687,61 +745,6 @@ VA - Summer Acoustic (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5680869726E2932A27881340B8BFF172C231254E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288681   (694055) от 12.03.2019
-
-VA - Latino - 30 Summer Hits (2019) [MP3|320 Kbps] <Salsa, Pop, Latin Dance, Reggaeton>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Reggaetronics - Taki Taki
-02. Miami Beatz - Secreto
-03. Boricua Boys - Dame Tu Cosita
-04. Boricua Boys - El Bano(   Читать дальше...   )Жанр: Salsa, Pop, Latin Dance, ReggaetonПродолжительность: 01:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C16129B40012C8D09521D9EBF462F9210F09673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333712   (693296) от 07.05.2011
-
-Sade - The Ultimate Collection (2CD) (2011) [MP3|320 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 02:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFA6B6F342C6C8966DAC57A423E7AAA164EAB43
 ```
 
 https://mybot314.ru/tekegram_catalog/

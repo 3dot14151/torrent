@@ -1,3 +1,32 @@
+###  Публикация: 1113204   (840016) от 10.03.2017
+
+VA - Hits Collection [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dance, House, Trapical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840016.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carly Rae Jepsen - Run Away With Me 4:09
+002. Major Lazer & Showtek - Believer 3:43
+003. Robin Schulz Feat. Jasmine Thompson - Sun Goes Down 2:56
+004. The Chainsmokers Feat. Xylo - Setting Fires 4:07(   Читать дальше...   )Жанр: Dance, House, TrapicalПродолжительность: 04:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C7EF03D40C539A47FCBA485FAA6631D052A1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004002   (839989) от 05.04.2016
 
 Марк Бернес - Актер и Песня (2001) [MP3|192 кб/с] <Retro>
@@ -716,35 +745,6 @@ VA - The Place Dance (2017) [MP3|320 Kbps] <Dance, Club, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91B4AD9C2CD4B859BF19158B17E46786DF970F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114281   (833503) от 14.03.2017
-
-VA - Club Music Get On Up (2017) [MP3|320 Kbps] <Dance, Club, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833503.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Austin Mahone ft. Pitbull - Lady (Modjo Cover / Richard Vission Remix) 5:21
-002. The Weeknd vs. Don Diablo - Might Not Switch (Mighty Mi Hype Bootleg / Dirty / Acapella Out) 4:15
-003. Bruno Mars - That's What I Like (Dirty / Short Edit) 3:23
-004. Claptone - Party Girl (Format B Remix) 7:06(   Читать дальше...   )Жанр: Dance, Club, FunkyПродолжительность: 08:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B77E503A7F5445A3DE1874F1372E6593F1A541F
 ```
 
 https://mybot314.ru/tekegram_catalog/

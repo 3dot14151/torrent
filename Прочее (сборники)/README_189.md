@@ -1,3 +1,32 @@
+###  Публикация: 1787257   (23615) от 24.03.2025
+
+VA - Music News For Forum vol.067 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23615.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brianna Mei - Без правил (02:46)
+ 002. Ad Voca & Maunavi - Faded (02:13)
+ 003. Afrojack - Never Forget You (03:04)
+ 004. Ago - Два сердца (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C858EC6DC344387507A29B513855FFFE8EDF2130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787111   (23549) от 25.03.2025
 
 VA - Just assorted (2025) [MP3|320 Kbps] <Synthpop,EuroDisco, New Italo Disco, Dance>
@@ -716,35 +745,6 @@ VA - Music News For Forum vol.082 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FF8C098A21136A0A69534C3789DB10CA513BED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795996   (19016) от 07.05.2025
-
-VA - Music News For Forum vol.083 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aleksia - Игнор (01:52)
- 002. Agatino Romero & Hypaton - Lungs (Extended Mix) (02:53)
- 003. AHSHEVA & ТОТ САМЫЙ ВАДОС - Чёрный 2.0 (02:36)
- 004. Akila - Она одна (01:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55D22EBF74896A235C75A5234487D9413E3ABB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

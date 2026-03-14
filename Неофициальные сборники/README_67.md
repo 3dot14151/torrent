@@ -1,3 +1,90 @@
+###  Публикация: 1089919   (948941) от 05.01.2017
+
+VA - Remember Disco 80' (2016) [MP3|320 Kbps] <Italo Disco, Eurodance,>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Avenida - La Fuerza Del Destino 6:29
+02.  Italove - Higher 3:28
+03.  Blue System - Sorry Little Sarah (Maxi Version) 5:16
+04.  Bad Boys Blue - You're A Woman (Split Mirrors Remix) 6:26(   Читать дальше...   )Жанр: Italo Disco, Eurodance,Продолжительность: 07:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28994FEC5D5CA821C5550644B6DEC5A412D7DA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089878   (948826) от 05.01.2017
+
+I love 90`s the party (2008) [MP3|112 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948826.jpg" />
+</div>
+
+
+###  Подробнее
+
+I love 90`s the party (200 / 837:38)
+200 / 00:13:59:13 / 673,80 MB
+----------------------------------------
+[06:48] 01. Dr. Alban Vs Haddaway - I Love The 90's (Recharged 90's Mix)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 13:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E503032A4D2E9271C900EEF0E9982B9414530B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982471   (948427) от 03.02.2016
+
+VA - Because I Love You (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Berk & The Virtual Band feat. Cristina Camacho - Tainted Love
+02. Tony Martinez - Your Loving Arms (feat. Estela Martin) - Acoustic Mix
+03. WME - Losing My Religion
+04. Marc De Siau - Forever Young - Tranqui Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB1A8084AB31FB38AA00ACB6ABC9DD2FC5ABC92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982153   (948280) от 03.02.2016
 
 VA - Top 250 Tracks in the CAR Vol.2 (2015) [MP3|320 кб/с] <Club, Deep House, Electro House>
@@ -658,93 +745,6 @@ VA - Dream Dance Vol.82 (2017) [MP3|320 Kbps] <Trance, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:484931662B7F8B7A82D81A73E7125DDC1A7E65AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982606   (947124) от 04.02.2016
-
-VA - Cozy Winter Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Warm Tones
-02. Enrico Donner - Baia de Guanabara
-03. Cane Garden Quartet - Bom Dia
-04. Blue Wave - Eu Sou Carioca(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73684758174BDF47A5F4FE7F379944A7067FD8CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089956   (947117) от 06.01.2017
-
-VA - Winter Hits (2017) [MP3|320 Kbps] <Club , Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947117.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3LOGY - The Banjo (Dj Desving Refresh)
-002. Will Fast - You & I (Original Mix)
-003. Morandi - Keep You Safe (Dj Andy Light & Dj O'Neill Sax Remix)
-004. Ste Essence feat. Vicky Jackson - Don't Play With My Love (Original Mix)(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 05:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A17E92BFEA8948AF155D75F021B2F3807BEABDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982490   (947075) от 04.02.2016
-
-VA - Deep and Sexy: 20 Deep House and Funky House Music Tunes Vol.6 (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Factor - This Room - Original Mix
-02. Island Beats - Intercontinental - Original Mix
-03. Progression Alpha - Dark - Original Mix
-04. James Palmer - Go - Original Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF7346C9CDF34C80BD3D6BEC69513A524AA3631
 ```
 
 https://mybot314.ru/tekegram_catalog/

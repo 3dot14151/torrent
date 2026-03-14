@@ -1,3 +1,32 @@
+###  Публикация: 1455601   (1025583) от 19.03.2021
+
+The Blue Stones - Hidden Gems (2021) [MP3|320 Kbps] <Blues Rock, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lights On [00:03:09]
+02 Shakin' Off The Rust [00:03:42]
+03 One By One [00:04:11]
+04 Careless [00:03:35](   Читать дальше...   )Жанр: Blues Rock, SoulПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFDFA4643B392B0F720C5B2F69DAD02BA553C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455808   (1025498) от 20.03.2021
 
 Those Who Ride With Giants - Forlorn (2021) [MP3|320 Kbps] <Post-Rock, Electronic, Instrumental>
@@ -716,35 +745,6 @@ Blacksmith Tales - The Dark Presence (2021) [MP3|320 Kbps] <Progressive Rock, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05CC7BA744DB43B74012BC7119FC077573E85BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466422   (1018450) от 30.04.2021
-
-Renaissance - 50th Anniversary: Ashes Are Burning: An Anthology Live In Concert (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Out (Live, Keswick Theatre, Glenside, PA, 12 October 2019) [00:04:13]
-02. Day Of The Dreamer (Live, Keswick Theatre, Glenside, PA, 12 October 2019) [00:09:40]
-03. Mystic And The Muse (Live, Keswick Theatre, Glenside, PA, 12 October 2019) [00:07:55]
-04. A Song For All Seasons (Live, Keswick Theatre, Glenside, PA, 12 October 2019) [00:11:08](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 2CD, 01:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A358205ADE86C762399F1E0B6D9A3C7F87C468
 ```
 
 https://mybot314.ru/tekegram_catalog/

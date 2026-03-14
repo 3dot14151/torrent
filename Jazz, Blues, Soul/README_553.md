@@ -1,3 +1,177 @@
+###  Публикация: 1786369   (69013) от 20.03.2025
+
+Project G-7 - Tribute to Wes Montgomery, Vol.2 (1993) Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Blues for Wes [4:28]
+02. Bock to Bock [6:35]
+03. For Heaven's Sake [6:27]
+04. Montgomery Blue [6:09](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F32767B59B0B07D2C912FFDBFF8C0C89EED537E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786362   (69012) от 20.03.2025
+
+Herbie Hancock - My Point Of View (1963) 2024,Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Man, Blind Man [8:19]
+02. A Tribute to Someone [8:46]
+03. King Cobra [6:55]
+04. The Pleasure Is Mine [4:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A018DF0FC5615C9F7D8219DA0C1042966657C2A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786606   (68963) от 21.03.2025
+
+Buck Hill - I'm Beginning To See The Light (1991) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Hill [3:55]
+02. Lullaby of Loosdrecht [7:59]
+03. Mitzi [4:41]
+04. Bossa for Sax [9:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:728189B35F69A06594CA73AFD2BB0DCA89A57A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786603   (68959) от 21.03.2025
+
+Warren Vache - Talk To Me Baby (1996) Muse Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Y Va (Off We Go) [4:16]
+02. The Arrival [6:39]
+03. You'll Never Know [4:48]
+04. The Eels Nephew [4:19](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B848B8DA174DEF385CE0780FF1336A4F93B973E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786818   (68932) от 22.03.2025
+
+Kenny Wayne Shepherd & Bobby Rush - Young Fashioned Ways (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Was That
+02. 40 Acres (How Long)
+03. Hey Baby (What Are We Gonna Do)
+04. Uncle Esau(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB72BD27459A5DD2B995460544200857D4545980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786779   (68918) от 22.03.2025
+
+Jay Hoggard - The Fountain (1992) Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Potato [9:11]
+02. Stompin' at the Savoy [7:29]
+03. Prelude to a Kiss [7:30]
+04. Starting Over [4:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6D69D927F9C9A4AE597A30AF0C89A09960F7EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786781   (68914) от 22.03.2025
 
 Randy Johnston - Jubilation (1994) Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
@@ -571,180 +745,6 @@ Mojo Diggers - The First on the Line (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B25602F651916A1A6BAB6174383F2951C5C45B57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788645   (68460) от 31.03.2025
-
-Ms. Jody - Cougar on the Prowl (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cougar on the Prowl (3:42)
-02.  I'll Be Your Lollipop (3:50)
-03.  I'm in That Mood Again (4:06)
-04.  Our Love Ain't Going Nowhere (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E849670374BC6F0364B2B8B3A5E499B6656C29EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788658   (68458) от 31.03.2025
-
-Willie Clayton - Double Play Soul & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul & Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jelly (4:03)
-02.  Your Love Is Like Cognac (4:05)
-03.  (Party) Cut up and Get Loose (3:24)
-04.  Kiss It Where It Hurts (3:53)(   Читать дальше...   )Жанр: Soul & BluesПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45A582B81D44E82AC696200ED0CB4428B4DB7DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788641   (68457) от 31.03.2025
-
-Mitch Ryder - With Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lilli May (3:05)
-02.  Pass It to the Right (4:10)
-03.  Sanguine (3:39)
-04.  One Monkey (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4113134D0B2BED212A44A7CE98A1A703D63F8539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788640   (68456) от 31.03.2025
-
-Mike Eric Blues Band - Cupcakes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  First Impression (2:57)
-02.  Big City Life (4:08)
-03.  Star Wars (4:55)
-04.  Sittin' on the Dock of the Bay (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9ACC00EBC23CD32CA4C9277C75EC0EC541EC0DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788651   (68455) от 31.03.2025
-
-The John Ford Blues Society - Rollin' On (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Baby Don’t Need No Ride (3:57)
-02.  The Ramblin’ Life (5:42)
-03.  Goin’ to Louisiana (3:03)
-04.  Ready to Roll (6:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C6AD908E7FA20D75C1B2715CEE8D651F2EC9DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788954   (68438) от 01.04.2025
-
-Highway Heavy - Pinky Ring Music Volume 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dave Mack - Just Got Paid (3:19)
-02.  Porter 1 - Life (2:48)
-03.  Leroy Green - Got Me (3:16)
-04.  Leroy Green - Not Mine (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F81F48D93A827FE43EE4EA6898B79C78A78B64
 ```
 
 https://mybot314.ru/tekegram_catalog/

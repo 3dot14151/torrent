@@ -1,3 +1,121 @@
+###  Публикация: 1414640   (383410) от 09.10.2020
+
+Рыночные Отношения - 2020 (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Область ч.2 [02:35]
+02. Бездарь (feat. Loc-Dog) [03:48]
+03. Классика [03:33]
+04. Соковыжималка (feat. Pra(Killa'Gramm)) [03:33](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39ADE4F93A826C58ADD3B106D2A2E2B00032011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572353   (382439) от 09.11.2012
+
+Bob Marley & the Wailers - Legend (2012 (1984)) [FLAC 2.0 192/24 |WEB-DL]<Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_382439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is This Love (3:50)
+02. No Woman No Cry (Live) (7:08)
+03. Could You Be Loved (3:57)
+04. Three Little Birds (3:00)
+05. Buffalo Soldier (4:17)
+06. Get Up Stand Up (3:17)Жанр: ReggaeПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574981   (381316) от 07.09.2022
+
+Биг Берия Тейп, Dessar, ZombieFido - Red Alert (2022) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Биг Берия Тейп feat. ZombieFido - Буревестник
+02. Биг Берия Тейп feat. Горькие усы, Мутный, Dessar - Далёкое далёко
+03. Биг Берия Тейп - No pasaran
+04. ZombieFido feat. Биг Берия Тейп - 420(   Читать дальше...   )Жанр: RapПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D53E5BC8C96BDBC29C0A204BE97273435641AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574897   (379242) от 08.09.2022
+
+Billy Milligan - 6 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альфа-Омега [00:03:33]
+02. Бил(л)ирубин [00:03:01]
+03. Золото рейха [00:03:10]
+04. Алькатрас [00:02:42](   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 6 CD, 04:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0B09080816D704028C948FF7FEBB012C076935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327137   (378490) от 23.09.2019
 
 ГРОТ - Акустика (2019) [MP3|320 Kbps] <Acoustic, Rap>
@@ -631,120 +749,6 @@ Rihanna - Loud (2010) [FLAC|Lossless]<R&B>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257401   (345193) от 26.10.2018
-
-Нигатив (Триада) - Жамевю (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345193.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вниз
-2. На руках
-3. Лавина
-4. Не пройди(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C4190C2BF14B59E2028AC582D5E7A227BFE05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418865   (344105) от 26.10.2020
-
-25/17 - Байки из склепа. Часть 1-2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344105.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020-Байки из склепа. Часть 1
-2020-Байки из склепа. Часть 2Жанр: Rap, Hip-HopПродолжительность: 2 CD, 00:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99BD51293D8074278E199B70A93AB2316143516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419290   (341916) от 27.10.2020
-
-Jelly Roll - Self Medicated (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-Hop, Country Rap, Blues Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House of Cards (3:02)
- 02. Save Me (4:01)
- 03. Promise (3:27)
- 04. Overdose (2:35)(   Читать дальше...   )Жанр: Hardcore Hip-Hop, Country Rap, Blues RockПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:232E0925B1E25426F1C8748F66E0F96D0B197376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180791   (337365) от 05.11.2017
-
-VA - Reggae Gold 2017 [MP3|320 Kbps] <Reggae, Ska, Dub>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tory Lanez - Luv 03:45
-02. Jah Cure - Telephone Love 04:32
-03. Vybz Kartel/Shenseea - Loodi 03:12
-04. Charly Black - Gyal You A Party Animal 03:34(   Читать дальше...   )Жанр: Reggae, Ska, DubПродолжительность: 01:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C0887D3C53D7E894B69AD16D98C78E9B68FA3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

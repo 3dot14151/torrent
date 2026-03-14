@@ -1,3 +1,32 @@
+###  Публикация: 1425483   (220546) от 21.11.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 20.11.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foushee - Deep End (2:21)
+02. Jason Derulo - Take You Dancing (3:10)
+03. Sam Smith - Diamonds (3:33)
+04. Hurts - Redemption (4:18)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FE648EB06841AD89182451F5515FE699D28E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425583   (220538) от 21.11.2020
 
 VA - Music News vol.50 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Empire Records - Mushrooms 2 (2018) [MP3|247-320 Kbps] <Big Room, Dance, Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADF4D3F0DEAB8E1E821C9E1DD3F48CD49E7CAA6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344064   (214369) от 08.12.2019
-
-VA - не Громкие новинки недели 46 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214369.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.5sta Family - Первый Снег (2:46)
-2.Andery Toronto - Euphoria (3:34)
-3.ANIKV - Женщина Плачет (2:59)
-4.Anna Petrash - Не Ну А Чё? (3:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7495EE11B7E4FB0B98B2C35D15F7C9FC8E097ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

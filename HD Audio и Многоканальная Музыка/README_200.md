@@ -1,3 +1,146 @@
+###  Публикация: 1794082   (67385) от 27.04.2025
+
+Steve Howell & The Mighty Men - Yeah Man (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Long Lonesome Blues (3:55)
+02.  Yeah Man (4:09)
+03.  20% Alcohol (4:33)
+04.  One Mint Julep (2:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DEF6A65D36D2F3AF74B492D33BC01E3C367BA63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794129   (67384) от 27.04.2025
+
+The Damn Truth - The Damn Truth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Be Somebody (3:46)
+02.  I Just Gotta Let You KnowЖанр: Classic Rock, Hard RockПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44EC128ADC52D41093665DA07EADB8B3612A510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794049   (67383) от 27.04.2025
+
+Skyla Owen - In My Dreams (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Endless Skies (3:31)
+02.  Every Touch Sparks A Fire Inside (3:31)
+03.  In My Dreams (2:40)
+04.  Love's Melody (2:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8A17397185D73F20D2A1724E00E8CDDDC3356B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794005   (67382) от 27.04.2025
+
+Brainstorm - Wall of Skulls (2021) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Walls....
+A1 Chamber Thirteen
+A2 Where Ravens Fly
+A3 Solitude(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AFE8A4F6945AFD155594B02F3F8C310A88B5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793702   (67381) от 27.04.2025
+
+Game Over - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Game Over - итальянская треш-метал-группа, основана в 2008 году.2012 - For Humanity
+2014 - Burst into the Quiet
+2016 - Crimes Against Reality
+2017 - Claiming SupremacyЖанр: Thrash MetalПродолжительность: 03:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A6567E962642C3F866FBED60522F4FEC33894C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794130   (67380) от 27.04.2025
 
 Travellin' Blue - Take The Edge Off (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -599,151 +742,6 @@ Wednesday 13 - Mid Death Crisis (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72A3223370DD5411BF2713C3486CAB502FBD2010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794855   (67205) от 01.05.2025
-
-VA - He, Kleine Linda (1977) Compilation, Russian Labels [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67205.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Kreis - Wirst Du Da Sein
-A2 Thomas Luck - Madchen Fur Einen Sommer
-A3 Zsuzsa Koncz, Gruppe ''Fonograf'' - Du Bist Noch Nicht Mein Mann
-A4 Michael Hansen - Solang Die Liebe Bleibt(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E667406AF65D2342DB6A3470205476ED154F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794836   (67199) от 01.05.2025
-
-Ladislav Staidl Orchestra - Music Therapy (1979) Compilation, Repress 1981 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67199.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Avalanche
-A2 Piccola E Fragile
-A3 Piano Concerto In A Minor
-A4 Le Concerto De La Mer(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2683ABF20574B4E61266642B80A626E0F88017E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794891   (67195) от 01.05.2025
-
-Soulfly - Dark Ages (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67195.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. The Dark Ages
-A2. Babylon
-A3. I And I
-A4. Carved Inside(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E556FBE75FCDB812ADC7FEA45478886B6ECD8D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794865   (67194) от 01.05.2025
-
-The Defaced - Studio Albums (4 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67194.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Defaced - метал-группа из Хельсингборга, Швеция, основана в 1999 году.2001 - Domination Commence
-2002 - Karma in Black
-2008 - Anomaly
-2022 - CharlatansЖанр: Groove/Thrash MetalПродолжительность: 02:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D66C0C3F4ADE8DFA452D837D734F196AED980B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795138   (67172) от 03.05.2025
-
-Ghost Brigade - Studio Albums (4 releases) (2007-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal, Post-Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghost Brigade - метал-группа из Ювяскюля, Финляндия, основана в 2005 году.2007 - Guided by Fire
-2009 - Isolation Songs
-2011 - Until Fear No Longer Defines Us
-2014 - IV - One With the StormЖанр: Melodic Death/Doom Metal, Post-MetalПродолжительность: 03:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632E934776AC7C54D18B00736CE482D66E4EC978
 ```
 
 https://mybot314.ru/tekegram_catalog/

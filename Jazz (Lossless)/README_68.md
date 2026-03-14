@@ -1,3 +1,90 @@
+###  Публикация: 1122118   (799261) от 04.04.2017
+
+Chano Dominguez - Chano (1993) Nuba Records [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Flamenco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Refrito [05:09]
+ 02.Naima [07:39]
+ 03.Choricli Jul. [03:51]
+ 04.Pa mi Nino ( Parte 1 ) [01:48](   Читать дальше...   )Жанр: World Fusion, Latin Jazz, FlamencoПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B16044A53D74382E732A804B29C8CF3C6D92B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122078   (799254) от 04.04.2017
+
+Ike Quebec - It Might As Well Be Spring (1961) 1998, Ars Nova [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It Might As Well Be Spring [06:19]
+ 02.A Light Reprieve [05:25]
+ 03.Easy Don't Hurt [06:09]
+ 04.Lover Man [05:58](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D98F74EBD8D5F55C04A78087F247933FC7624280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121985   (799230) от 04.04.2017
+
+Konstantin Klashtorni & Love Suggestions - Sax Night (2017) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thick Of It (5:43)
+ 02. There Goes My Baby (4:17)
+ 03. Shape Of You (5:06)
+ 04. Don't Wanna Know (4:50)(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC5577893AAABA0896BF1CE37DFB09004FBC4C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121904   (799229) от 04.04.2017
 
 Zoot Sims - New Beat Bossa Nova, Vol. 1 & 2 (1962) 2004,  Colpix Records/Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Bossa Nova>
@@ -658,93 +745,6 @@ Shirley Scott - & The Soul Saxes (1969) Remaster, 2013, Warner[FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DCA647F072C78ADEB7873E721616E2D85D4514B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011140   (797664) от 26.04.2016
-
-Sonny Rollins - The Bridge (1962) 1999,Ars Nova [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without A Song 07:26
-02. Where Are You 05:10
-03. John S. 07:39
-04. The Bridge 05:57(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9621ADE17847FE494BA454BE2DB3F5A24AAAC8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010945   (797662) от 26.04.2016
-
-Dave Weckl Band - Transition (2000) [APE|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Up
-02. Braziluba
-03. Like That
-04. Mild Hysteria(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636F1A7F759B025BCA12F255639DABD0676915C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010618   (797656) от 26.04.2016
-
-Billy Cobham's Culturemix - Colours (2004) [APE|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuba on the Horizon
-02. Dessicated Coconuts
-03. Volcano
-04. Where do we go from here(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B847B7623B0A9D73AF32B17E38929E5C501B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1278701   (767619) от 27.01.2019
+
+Chris Rea - World Ballad Collection (1999) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock,Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And You My Love
+02. Winter Song
+03. Heaven
+04. Shine, Shine, Shine(   Читать дальше...   )Жанр: Soft Rock, Pop Rock,Blues RockПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCEA0ADCE4E078491FEFA527BADD06751FA977DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200868   (767545) от 27.01.2019
+
+Michel Legrand/Stephane Grappelli - Legrand/Grappelli (1992) [FLAC|Lossless]<Continental Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_767545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parlez-moi d'amour (Speak To Me Of Love) (4:59)
+02. C'est si bon (4:06)
+03. Les feuilles mortes (Autumn Leaves) (3:43)
+04. Theme From Summer of '42 (The Summer Knows-un ete 42) (5:22)(   Читать дальше...   )Жанр: Continental JazzПродолжительность: 01:10:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213745   (767414) от 18.03.2018
+
+Howard McGhee - Maggie: The Savoy Sessions (1948-1952) 1995, Savoy [APE|Lossless|image + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merry Lee [02:07]
+02. Short Life [01:58]
+03. The Talk of the Town [02:52]
+04. Bass C Jam [02:58](   Читать дальше...   )Жанр: BopПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4C5C61EFEB6BE87C7177635CEFC481926EC2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213727   (767349) от 18.03.2018
+
+Jules - Greenbird (2018) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay
+02. Greenbird
+03. Counting Sheep
+04. Take My Hand(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4749375C0D15BE5599F4A875902BF6C5725B512D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125908   (767203) от 16.04.2017
+
+Esther Marrow - Sister Woman (1972) Remaster 2010 [FLAC|Lossless|tracks + .cue] <Gospel, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman In The Window (3:20)
+02. Ghetto (4:21)
+03. Trade Winds (4:45)
+04. Turn On To Jesus (6:12)(   Читать дальше...   )Жанр: Gospel, Soul, FunkПродолжительность: 00:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3F976C07C1A31FF3A19BEB475AC174B4088E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125898   (767196) от 16.04.2017
+
+Fleurine - Meant To Be! (1995) 2000, Emarcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lazy And Satisfied [04:41]
+ 02.My Souldance With You [06:14]
+ 03.Favorite Love Affair [06:14]
+ 04.Velejar [05:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ACAF9B67D96295A96E17106CCA28532A9CE56E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125886   (767195) от 16.04.2017
 
 Chet Baker - Live At New Morning (1983) 1992, Century Records [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
@@ -571,176 +745,6 @@ Toots Thielemans & Thierry Lang Trio - Swiss Radio Days Jazz Series, Vol.44: Cul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D64C9872FF19F25113201C3084D8C12BD3891405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126206   (766391) от 17.04.2017
-
-Hurricane Ruth - 2 Album (2015 - 2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766391.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 - Winds of Change (EP)
-2017 - Ain't Ready for the GraveЖанр: Blues-RockПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BF263D803AC53F7CAF33ECAAD2E9D00FE0BC75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126310   (766386) от 17.04.2017
-
-Memphis Slim - World's Foremost Blues Singer (1961) LP, Remastered, 2016 [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonesome  (02:31) 
-02. Cold Blooded Woman  (03:42) 
-03. One Man's Mad  (02:54) 
-04. Good TIme Roll Creole  (02:39) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85A6B66DC68146A2999EE287DA5B2439EE3EF59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126383   (766380) от 17.04.2017
-
-Jocelyn & Chris Arndt - Go (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Footprints On The Moon  (03:43) 
-02. Ready Steady Go  (03:08) 
-03. Home  (03:38) 
-04. Bad Business  (04:20) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3EB4B4683D8CC212CEEA4E762BE3A9E36A6B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126357   (766379) от 17.04.2017
-
-Freddy Cole - He Was The King (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy To Remember (6:01)
-02. Exactly Like You (4:30)
-03. Funny (Not Much) (6:05)
-04. That's My Girl (3:06)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFA70E6D7083EDC595C59162B95E4C15FF56714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126385   (766375) от 17.04.2017
-
-Lillian Boutte & Christian Willisohn - Lipstick Traces: A New Orlean RnB Session (1991) [FLAC|Lossless|tracks + .cue] <Piano Blues, New Orlean Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lipstick Traces (3:07)
-02. Why Don't You Do Right? (4:24)
-03. One for the Highway (3:24)
-04. Music is My Life (4:56)(   Читать дальше...   )Жанр: Piano Blues, New Orlean BluesПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8A6D1AECE529039892320AC4A1B0F8CE29BE50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126372   (766328) от 17.04.2017
-
-Goapele - 2 Album (2002, 2011) [FLAC|Lossless|tracks + .cue] <R'n'B, Neo Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766328.jpg" />
-</div>
-
-
-###  Подробнее
-
-2002 - Even Closer
-2011 - Break of DawnЖанр: R'n'B, Neo SoulПродолжительность: 01:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C768BB5793A9DBED94A463B50F55D8B54EDDEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

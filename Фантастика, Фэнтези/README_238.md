@@ -1,3 +1,30 @@
+###  Публикация: 1727507   (54583) от 02.06.2024
+
+J.K. Rowling | Harry Potter (2015) [EPUB] [EN]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54583.jpg" />
+</div>
+
+
+###  Подробнее
+
+This Collection includes the seven phenomenal Harry Potter books by best selling author J. K. Rowling.
+Having become classics of our time, the Harry Potter eBooks never fail to bring comfort and escapism. With their message of hope, belonging and the enduring power of truth and love, the story of the Boy Who Lived continues to delight generations of new readers. (   Читать дальше...   )Жанр: фэнтези-литератураЯзык: английскийИздательство: Pottermore PublishingФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477E07B7545B7416D0F0E177EF31C4525AA0E327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731697   (52531) от 22.06.2024
 
 Сергей Лукьяненко, Леонид Каганов, Олег Дивов и др. | METRONOMICON (2022) [PDF]
@@ -652,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABDC310012C3251B9E24CE8D8254A12B3C414A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797477   (18075) от 16.05.2025
-
-Наталья Игнатова | Эльрик Тресса де Фокс [4 книги] (2001 - 2006) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все достигнуто, все свершено. И отчего бы не поиграть? Отчего бы не подвигать вычурные фигурки по расчерченной тобою доске Бытия? Ставка настолько высока, что недолго и голову потерять от азарта. Новая война нависает над уставшим от сражений миром. Пророки предвещают конец света. Поднимаются из могил мертвецы. Погибают драконы, а их повелитель сходит с ума, оставшись (   Читать дальше...   )Жанр: ФэнтезиИздательство: АРМАДА: «Издательство Альфа-книга»; Уральский следопыт. 2001. №1-2;Формат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE68B07E82268454BC914072F08FAEDD07A94F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1127714   (731122) от 22.04.2017
+
+VA - Beatport Top 100 Drum & Base (March) (2017) [MP3|320 Kbps] <Drum & Base>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731122.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Black Sun Empire, Prolix - No Advance (Original mix).mp3 04:36
+002. Dimension (UK) - Generator (Original mix).mp3 05:06
+003. Turno & North Base feat. Harry Shotta - Third Eye (Original mix).mp3 05:18
+004. Metrik - We Got It feat. Rothwell (S.P.Y Remix).mp3 04:57(   Читать дальше...   )Жанр: Drum & BaseПродолжительность: 08:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EAA136324D5AC8D8BEA73B7B687E386CDF60480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021968   (731111) от 31.05.2016
 
 VA - Ibiza Sundowner Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -722,35 +751,6 @@ VA - Romantic Vocal Trance (2016) [MP3|256-320 кб/с] <Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55AFB224997736F27D697B69E75AA63DA61A3A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022790   (727685) от 03.06.2016
-
-VA - Drum and Bass, Dubstep (2016) [MP3|256-320 кб/с] <Drum and Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kubiks & Bcee - Ten Years On
-02. Formal One - Milky Way
-03. Nero - The Thrill (Fawks Flip)
-04. Kaz James - Show Me All Your Love (Smooth Remix)(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 05:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A484801E35B9040E132AAC080D168FAC591D5FC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

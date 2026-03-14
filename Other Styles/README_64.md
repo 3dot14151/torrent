@@ -1,3 +1,148 @@
+###  Публикация: 1131455   (706949) от 06.05.2017
+
+Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gifted (Pimped Mix) (02:59)
+02. Pandora (01:49)
+03. Hunger (01:00)
+04. My Special Girl (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293B7149ACBB9E998A4B29B3D6E5B13C371A31B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131469   (706945) от 06.05.2017
+
+Bear McCreary - Colossal / Моя девушка – монстр (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colossal Prologue (02:21)
+02. A Monster Hypothesis (05:20)
+03. A Walk in the Park (02:19)
+04. Jealousy (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43CC723A831BC75C95FE94FF675C1DE23D2139F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131467   (706938) от 06.05.2017
+
+Bear McCreary - Colossal / Моя девушка – монстр (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colossal Prologue (02:21)
+02. A Monster Hypothesis (05:20)
+03. A Walk in the Park (02:19)
+04. Jealousy (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0065172329DF0BECD7D7631E439632CADB3D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131456   (706610) от 06.05.2017
+
+Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gifted (Pimped Mix) (02:59)
+02. Pandora (01:49)
+03. Hunger (01:00)
+04. My Special Girl (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB5355700F40F79E758F546926F3CC83E3056EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131404   (706591) от 06.05.2017
+
+Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture Score) (2017) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fate of the Furious (03:35)
+02. Cipher (02:09)
+03. Zombie Time (06:00)
+04. Reunited (02:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00441794190AA492295EF805F23210862E3D5F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131403   (706478) от 06.05.2017
 
 Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture Score) (2017) [MP3|320 кб/с]<Score, Soundtrack>
@@ -599,151 +744,6 @@ D-Emotion Project - Hybrid (1994) [FLAC|Lossless|image + .cue] <New Age, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A645B0E24C51365D53ED5F8240258C7A967D138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132580   (700846) от 09.05.2017
-
-Timothy Wenzel - What We Hold Dear (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murmuration (feat. Josie Quick & Jordan Schug)
-02. What We Hold Dear (feat. Josie Quick & Jordan Schug)
-03. Appalachian Waters
-04. Ascension (feat. Jordan Schug)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E075870D3B3AD147FD163D592ED18FF086932BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132424   (700781) от 09.05.2017
-
-Samuel Laflamme - Outlast II (Original Game Soundtrack) (2017) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Origins of Murder Victim Jane Doe (01:33)
-02. Hide You in Ezekiel’s Blood (01:18)
-03. I Am the Chorus of Screams! (02:03)
-04. You Don’t Have to Hide (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77CC1CA3C9C9E0DA84A40418CC5994455D00E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132600   (700772) от 09.05.2017
-
-Parijat - Blessings (2017) [MP3|320 Kbps] <New age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise
-02. All Is Well
-03. I Hold You When You Fall
-04. The Heart Is a Resting Place(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 01:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77CCA0495AE756AB5BF43160D4676ED51D9B2554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132626   (700637) от 09.05.2017
-
-Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter in the Mountains
-02. The Book of Dragons
-03. When It Snows in the Forest
-04. The Quest(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40934631A43CC806B4A93C5409A1198B6269B6CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132355   (700619) от 09.05.2017
-
-Баян MIX Сергея Войтенко - 4 альбома (2014-2016) [MP3|192 Kbps] <Bayan, Instrumental, Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карнавал 3:32
-02. Рэд танго 3:03
-03. Катя 2:53
-04. Ты так далеко 4:50(   Читать дальше...   )Жанр: Bayan, Instrumental, PopПродолжительность: 02:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE27D2BA5AFBBF8C1EB4AC0459DC3EDC9A09529B
 ```
 
 https://mybot314.ru/tekegram_catalog/

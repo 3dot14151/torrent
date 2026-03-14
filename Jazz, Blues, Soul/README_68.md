@@ -1,3 +1,60 @@
+###  Публикация: 1366117   (925849) от 10.03.2020
+
+Ella Fitzgerald - Hallelujah! 1938 - 1941 (1995) Milan Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Tisket a Tasket [2:39]
+02. My Man (Mon Homme) [3:04]
+03. Darktown Strutters Ball [3:07]
+04. Wake Up and Live [2:40](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BF6FF7351C0627BDFDF6B4704F87FE909A55A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366241   (925848) от 10.03.2020
+
+The Necks - Three (2020) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloom (21:18)
+02. Lovelock (22:48)
+03. Further (21:01)Жанр: JazzПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D46D969EECC7B86CC122B496173BB03690E9F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365979   (925752) от 10.03.2020
 
 Big Bad Voodoo Daddy - Big Bad Voodoo Daddy (1994) [FLAC|Lossless|tracks + .cue] <Jazz, Swing Revival>
@@ -687,76 +744,6 @@ Gin Soaked Boy - Blues in Your Bones (2020) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A0235D1E058735C32C60FCB7CA0104143D3AA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288131   (923796) от 28.01.2011
-
-Swing Couture - Good Morning! (2009) [FLAC|Lossless]<Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Morning! (2:43)
-02. I've got rythm (3:49)
-03. Вальс на прощание (2:45)
-04. Блюзовое путешествие (4:41)
-05. Ленинградское Танго (3:36)
-06. Tickle Toe (2:54)
-07. Dindi (3:50)
-08. Gershwin-Duke (4:50)
-09. Someone to Watch Over Me (4:51)
-10. Я милого узнаю по походке (3:48)(   Читать дальше...)Жанр: SwingПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288129   (923715) от 28.01.2011
-
-Roomful of Blues - Hook, Line and Sinker (2011) [FLAC|Lossless]<Blues, Swing revival, Jump Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's A Pretty Good Love (2:56)
-02. She Walks Right In (3:33)
-03. Hook, Line and Sinker (2:50)
-04. Kill Me (3:55)
-05. Gate Walks To Board (4:02)
-06. Juice, Juice, Juice (2:42)
-07. Ain't Nothin' Happenin' (3:10)
-08. Win With Me, Baby (3:50)
-09. It (4:01)
-10. Come On Home (2:36)(   Читать дальше...   )Жанр: Blues, Swing revival, Jump BluesПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

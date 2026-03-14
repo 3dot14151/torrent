@@ -1,3 +1,177 @@
+###  Публикация: 1283105   (741236) от 15.02.2019
+
+Beegie Adair - Into Somethin' (2011) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Walked Bud [4:43]
+02. All in Love Is Fair [4:45]
+03. Lovesick Blues [3:28]
+04. Try Again [4:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF3207FC35ED1729CCC985C790DACCA9644D00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283104   (741235) от 15.02.2019
+
+Carmen McRae - Ms. Magic (1978) 1986, Dunhill Compact Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Coming Home [4:21]
+02. Burst in with the Dawn [4:37]
+03. Come in from the Rain [4:17]
+04. I Won't Last a Day Without You [7:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FFC001B63295E86070BC89895FB2AF0906E78E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283107   (741234) от 15.02.2019
+
+Jackie McLean Quartet - Dr. Jackle (1966) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Jackle [12:25]
+02. Melody for Melonae [10:52]
+03. Jossa Bossa [9:20]
+04. Little Melonae [14:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7867BFE4A501FB163FF89AAD045EE90DE7052C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282876   (741233) от 15.02.2019
+
+Count Basie - Portrait (1930-e) 2002, Rainbowcd.com [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basie Blues [3:08]
+02. Mutton Leg [3:22]
+03. It's Sand, Man [3:08]
+04. Wild Bill's Boogie [2:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE6D57A8C553DB95B93BEEEF0122DF65624A8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283170   (741231) от 15.02.2019
+
+Splashgirl - Sixth Sense (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Nu Jazz, Dark Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carrier (6:17)
+02. Broken (7:20)
+03. Sixth Sense (6:59)
+04. Monsoon (4:18)(   Читать дальше...   )Производство: Hubro – HUBROCD2587Жанр: Jazz, Nu Jazz, Dark JazzПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FEB45C6FB0DA9030E34A5F6C0438CCBABEF0EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283099   (741229) от 15.02.2019
+
+Tony Bennett - As Time Goes By: Great American Songbook Classics (1950-e) 2013, Concord Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Moon [2:14]
+02. Reflections [3:35]
+03. As Time Goes By [3:15]
+04. Maybe September [3:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE999F8484D4D58113215D6680483F74B9FDC95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127125   (741204) от 20.04.2017
 
 Nels Cline & Vinny Golia - The Entire Time (2004) Nine Winds [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -571,180 +745,6 @@ Frank Sinatra & Tommy Dorsey - Falling In Love With Frank Sinatra & Tommy Dorsey
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCAAB02A472C10389C43C40EE357D1A4DCC76843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021039   (740688) от 29.05.2016
-
-Rhythm Zoo - Sold For Love (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sold For Love (06:23)
-02. River Of Tears (02:47)
-03. Coco Blue (04:55)
-04. 12 Bar Blues (04:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332975BDC02D78187AE5FABA20CF210F480CA947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397391   (740465) от 20.07.2020
-
-Nat King Cole - The Quintessence, Vol.1: Los Angeles - Chicago - Hollywood - New York (1936 - 1944) 1995, 2CD, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Piano Jaz ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740465.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Sweet Lorraine [2:59]
-02. Honey Hush [2:53]
-03. Jack the Bellboy [2:51](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Piano JazzПродолжительность: 01:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B646E03ED5ADC78149F8C15541D466AF6A47434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397372   (740464) от 20.07.2020
-
-Bill Evans - The Complete Interplay Sessions (1957 - 1962) 2014, 2CD, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740464.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. You and the Night and the Music [7:07]
-02. When You Wish Upon a Star [5:47]
-03. I'll Never Smile Again [6:35](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 02:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9BB21BE3991DED011ECEE8EA548CEF7D40BE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397469   (740417) от 20.07.2020
-
-Papik & Alfredo Bochicchio - Cocktail Guitar (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il Cielo In Una Stanza
-02. The Look Of Love
-03. Europa
-04. Never Knew Love Like This Before(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED35D0D39E5CEE867C3DC4245B635FE3F999BBE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283296   (740390) от 16.02.2019
-
-Trombone Shorty - Trombone Shorty Meets Lionel Ferbos (2002) 2005, Wise and Barking [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight in Moscow [3:02]
-02. Rock of Ages [2:39]
-03. Mahogany Hall Stomp [3:27]
-04. Embraceable You [2:17](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA898C98318AF1755268A6539BC8A5D0F27B2E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283217   (740389) от 16.02.2019
-
-Mina Agossi - Carrousel (2004) Cristal Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vesoncio [4:45]
-02. 3rd Stone from the Sun [5:46]
-03. The End of a Love Affair [3:51]
-04. Identity [4:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547EAAC6320801227E7F4E477856467F3B9118EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

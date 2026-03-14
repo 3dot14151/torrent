@@ -1,3 +1,152 @@
+###  Публикация: 517590   (641160) от 04.07.2012
+
+VA - Песни бушменов (2012) [MP3|192 кб/с]<Этно>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kolota
+02 Mambo
+03 Птичка щебечет в кустах
+04 Девичья зрелость
+05 Кустарниковая свинья
+06 Песня следопытов
+07 Песня о дожде
+08 Детская песняЖанр: ЭтноПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B91C48FFFF372FC75F99F99C26B6ED6333E7F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033073   (640113) от 10.07.2016
+
+Mike Howe - Lichens (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Acoustic Guitar>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Night [00:03:56]
+02. Remember [00:04:09]
+03. Joni [00:03:48]
+04. Plains [00:03:19](   Читать дальше...   )Жанр: New Age, Acoustic GuitarПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D956668F00BB0AE9E701240E309319F8B8FA3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033236   (640005) от 10.07.2016
+
+Mythos - The Best of Mythos Instrumentals (2014) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introspection
+02. Prelude
+03. Duet
+04. La Cathedral(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1FAA59E722EDF8911584243FFEBAF7F9943C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033222   (639996) от 10.07.2016
+
+Ashaneen - Waves of Life (2015) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Wave [00:06:14]
+02. Second Wave [00:03:45]
+03. Third Wave [00:08:24]
+04. Fourth Wave [00:04:41](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71EA43AD3553B0639D5B13CF25836D465D30168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033228   (639872) от 10.07.2016
+
+VA - The Woman In Red (1984) [FLAC|Lossless|image + .cue] <Soundtrack, Funk & Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stevie Wonder - The Woman In Red [04:39]
+02. Stevie Wonder & Dionne Warwick - It's You [04:55]
+03. Ben Bridges - It's More Than You  (Instrumental) [03:15]
+04. Stevie Wonder - I Just Called To Say I Love You [06:16](   Читать дальше...   )Жанр: Soundtrack, Funk & SoulПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369D75B48324B8FEE9D1CA9F277F33ECAFFD0520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032824   (639698) от 10.07.2016
 
 Levon Minassian & Armand Amar - Songs from a World Apart (2005) [FLAC|Lossless|image + .cue] <Folk, World, Armenian Duduk>
@@ -641,148 +790,6 @@ Yanni - Live at El Morro, Puerto Rico (2012) [FLAC|Lossless]<New Age>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033760   (636142) от 12.07.2016
-
-Phil Thornton - Rejuvenation - Beyond the Edge of Dreams (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Edge of Dreams [00:58:01]Жанр: New AgeПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A82821B3965100C56A63C810B907416148953A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033687   (636039) от 12.07.2016
-
-George Winston - Night Divides The Day - The Music Of The Doors (2002) [FLAC|Lossless|tracks] <Contemporary, Instrumental, Solo Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Spanish Caravan    05:29
-02.  The Crystal Ship    05:13
-03.  People Are Strange    03:27
-04.  Love Street    04:22(   Читать дальше...   )Жанр: Contemporary, Instrumental, Solo PianoПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E160D04830EA9E0CF4357946CB77176500145D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033843   (635930) от 12.07.2016
-
-Ennio Morricone - Film Music By Ennio Morricone (1993) [FLAC|Lossless|tracks + .cue] <Contemporary, Easy Listening, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Good, The Bad and The Ugly (2:39)
-02. The Sicilian Clan (3:59)
-03. Chi mai (5:08)
-04. The Man With The Harmonica (3:31)(   Читать дальше...   )Жанр: Theme, Contemporary, Easy Listening, SoundtrackПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B525AF37065DEFF8ECB3AA8DAEFE2A2F97F801DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033553   (635816) от 12.07.2016
-
-Deep Forest - Hit Collection (2000) [FLAC|Lossless|image + .cue] <Electronic, House, Tribal,>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sweet Lullaby 03:53
-02.Pacifique 03:47
-03.Marta' s Song 04:12
-04.Forest Hymn 04:40(   Читать дальше...   )Жанр: Electronic, House, Tribal,Продолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF90EE83CDB1723120DAEB1996EF99EEA56A7D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904680   (635730) от 13.06.2015
-
-Neu! - Neu! Box (1972-1986) 2010 / Gronland Rec (1972-1986) [MP3|320 кб/с]<Krautrock>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallogallo 10:07
-02. Sonderangebot 4:50
-03. Weissensee 6:42
-04. Jahresbersicht (Part 1): Im Glck 6:52(   Читать дальше...   )Жанр: KrautrockПродолжительность: 10:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B037A0E60FE242FD575375A554611483D79A88F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1125585   (768096) от 15.04.2017
+
+VA - Visual Image: Extended Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768096.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Above & Beyond - A.I. (Original Mix) 06:29
+002. Manuel Rocca - Against The Wind (Braulio Stefield Remix) 07:36
+003. Lignum - Our Destination (Radio Edit) 03:12
+004. Above & Beyond, Justine Suissa - Little Something (Super8 & Tab Remix) 06:11(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 09:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FEA5762FE3BFA061E561D00BB9B67A5797B50C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278815   (767775) от 27.01.2019
 
 VA - Record Super Chart 571 (2019) [MP3|320 Kbps] <House, Club, Dance>
@@ -716,35 +745,6 @@ VA - Beatport Psychedelic Trance: Sound Pack #388 (2021) [MP3|320 Kbps] <Psyched
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A45A6AF5E9D9A48DA1D424877744AFF755EA80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214326   (764968) от 21.03.2018
-
-VA - Deep Delicate House (2018) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764968.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alpha Carpet - Megabytes (Red Zone Mix)
-002. Zhu - Nightcrawler (Rawanara Remix)
-003. Jin Tonique - Not Easy (Mark Kay's Deep Mix)
-004. Alexander Price - Waiting (Paramour Dub Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6D1A412BFFC680A73D0F745618730042A8644A
 ```
 
 https://mybot314.ru/tekegram_catalog/

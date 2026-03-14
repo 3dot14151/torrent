@@ -1,3 +1,90 @@
+###  Публикация: 1574400   (385784) от 05.09.2022
+
+In Gloom - Self Titled (2020) Remaster, 2022 [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scorched Earth [00:01:36]
+02. II [00:01:53]
+03. Sycophant (feat. Bodysnatcher) [00:03:12]
+04. Vapid Existence [00:04:48](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C293A47472B101BA280142A75662038D603485FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574373   (385783) от 05.09.2022
+
+The Last Kind Words - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ascent [00:01:38]
+02. Nihil Est [00:04:14]
+03. In Vain [00:03:30]
+04. A Sirens Call [00:04:29](   Читать дальше...   )Жанр: Post-MetalcoreПродолжительность: 2 CD, 01:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2783462F41DCC9FA8CB624EE15EFF71188AD9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414560   (385623) от 08.10.2020
+
+Bloodbather - Silence (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God [00:02:47]
+02. Silence [00:02:33]
+03. Erase [00:02:53]
+04. Disappear [00:02:42](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F3D8B82BCF2F6BF766EFEC72CDEBB003C5EDDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252982   (385446) от 08.10.2018
 
 Starsailor - Love is Here (2001) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -661,93 +748,6 @@ Bootblacks - Thin Skies (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3BF1DF9599DAACC48BF0831EFE19D9632D256BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415130   (379106) от 11.10.2020
-
-DeadRise - DeadRise (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Doctor Will See You Now [00:01:27]
-02. Slipping Away [00:04:25]
-03. Close Your Eyes [00:03:34]
-04. Stubborn Heart [00:04:52](   Читать дальше...   )Жанр: Alternative Metal, Post-HardcoreПродолжительность: 00:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175CD4D4B5FABF4D2884D7ABA0E3A7049CFBFCBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415296   (379103) от 11.10.2020
-
-Zao - Preface: Early Recordings (1995-1996), Compilation, Remastered, 2020, Steadfast Records [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conflict [00:02:02]
-02. Rest [00:02:56]
-03. Sickness [00:03:55]
-04. Increased [00:02:18](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC2E5037C6FC542F0B0C3E640A64E1F30C9D213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415107   (378960) от 11.10.2020
-
-A Vicious End - The Hills Will Burn (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Beginning [00:02:28]
-02. At Dawn We Ride [00:04:09]
-03. Fields of Gray [00:04:18]
-04. Smoke and Mirrors [00:03:01](   Читать дальше...   )Жанр: Metalcore, Modern MetalПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4DA768881609031D0606325C4499B77F9A17AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

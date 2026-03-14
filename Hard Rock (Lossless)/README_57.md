@@ -1,3 +1,119 @@
+###  Публикация: 1582180   (323477) от 09.10.2022
+
+Purpendicular, Ian Paice - Human Mechanic (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Nothing Box (04:59)
+02. Ghost (05:58)
+03. No One's Getting Out Alive (03:41)
+04. Something Magical (03:57)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D13BF0F5B89489BBA4257530AC63AC38D4BEED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582194   (323167) от 09.10.2022
+
+Statement - Dreams From The Darkest Side (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't You Hide It (4:22)
+02. The Reaper (4:21)
+03. Dreams From The Darkest Side (5:00)
+04. Sacrifice (5:10)(   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD6F8C6A3C47D02B50D3CBC15D012CA89D44ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958290   (321492) от 22.11.2015
+
+Whitesnake - The Purple Album (2015) Japanese Edition [FLAC|image + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn
+02. You Fool No One
+03. Love Child
+04. Sail Away(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FC179532E8E4798CB4A8E0DD32B260AC1B1388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181930   (321200) от 08.11.2017
+
+Deep Purple - A Fire in the Sky (2017) 3CD [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321200.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Hell to Pay
+02. Vincent Price
+03. Wrong Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A56ED9967B365653984C15801365AEBF87122F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421245   (319893) от 04.11.2020
 
 Platinum Overdose - Back For The Thrill (2020) [FLAC|Lossless|image + .cue] <Glam, Hard Rock>
@@ -635,122 +751,6 @@ AC/DC - Power Up (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:116355C390BBACDCBEEA4349FCB1932226AA401D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152382   (310372) от 08.11.2020
-
-Ken Hensley (pre Uriah Heep) - The Gods: 2 альбома, 3CD, Toe Fat: 2 альбома, Weed: 1 альбом, Нead Machine: 1 альбом, 2CD (1968-1971) [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock, Classic R ...
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя Кена Хенсли (Ken Hensley) навсегда войдет в историю рок-музыки, как первого настоящего хитмейкера классической британской хард-роковой сцены 70-х. Безусловно, миллионы рок-поклонников видят в Ken Hensley прежде всего фактического музыкального лидера, харизматического клавишника и гитариста рок-монстров Uriah Heep периода 1970 - 1980 гг.--------------------------
-
-01. Stick Heat (6:21)
-02. Indian Summer (2:15)(   Читать дальше...   )Жанр: Hard Rock, Prog Rock, Psychedelic Rock, Classic Rock |Продолжительность: 05:36:35  |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6460EB6E4FF5A67C15FD97C74C9F9158DF4F9346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960047   (310318) от 27.11.2015
-
-Tony Carey - Wilder Westen Inclusive (Original-Soundtrack Zur TV-Serie) (1988) [FLAC|image+.cue]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James BrownRooms And Views 0:53
-02. Room With A View 4:58
-03. Here Comes The Sun 4:24
-04. She's Got A Secret 4:34(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA2DBFCB22A30325998B1ED846D62AE89090F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960144   (310087) от 27.11.2015
-
-Billy Gibbons And The BFG's - Perfectamundo (2015) [FLAC|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый бородач и основатель культовой группы ZZ Top, Billy Gibbons, выпустил свой первый сольный альбом.01. Got Love If You Want It
-02. Treat Her Right
-03. You're What's Happenin', Baby
-04. Sal Y Pimiento(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474A1CE1E4C4858B0278114C1DDBBBC34350D598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332860   (309727) от 22.10.2019
-
-Last Temptation - Last Temptation (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Win I Lose (6:01)
-02. Bring Your Light Out (5:07)
-03. Blow A Fuse (3:55)
-04. Never Say Goodbye (4:33)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' HeavyПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42159C0C653C748F9FFB3AF96B0594C7645A84E
 ```
 
 https://mybot314.ru/tekegram_catalog/

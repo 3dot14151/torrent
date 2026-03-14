@@ -1,3 +1,61 @@
+###  Публикация: 1437011   (1042506) от 03.01.2021
+
+David Clayton-Thomas - Say Somethin' (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock, Jazzy>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burwash
+02. The System
+03. Dear Mr. Obama
+04. King Midas(   Читать дальше...   )Жанр: Blues, Rock, JazzyПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1670AEE78E0C4949506C89C0E059CA13E0658F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610391   (1042442) от 07.02.2023
+
+Anita O'Day - BD Jazz (1941 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042442.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Big Band Canari:
+01. Opus One [3:02]
+02. Harlem on Parade [2:48]
+03. Georgia on My Mind [2:58](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E765B8456C8E06EF2256E6C68536AA9A76A55B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610475   (1042435) от 07.02.2023
 
 Nils - Cool Shades (2022) [FLAC|Lossless|image + .cue] <Smooth Jazz>
@@ -687,64 +745,6 @@ The Fusion Syndicate - The Fusion Syndicate (2012) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAA61B35389FED9C595AA283917A544EDB224096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611081   (1041650) от 10.02.2023
-
-VA - Ladies In Love (1929 - 1953) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041650.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Ladies in Love:
-01. June Christy - Make Love to Me (4:01)
-02. Sarah Vaughan - Corner to Corner (2:59)
-03. Mildred Bailey - Tears in My Heart (3:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3DBEE66A27C071F80C0FD66A0235ED4F576D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611121   (1041624) от 10.02.2023
-
-Joe Cicero - Footprints in the Snow (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On (2:23)
-02. I Walk the Streets Alone (2:41)
-03. Life’s Ride (3:36)
-04. Dream of You (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BB899FBB57D35512C2DB7251E151D7ECA5264A
 ```
 
 https://mybot314.ru/tekegram_catalog/

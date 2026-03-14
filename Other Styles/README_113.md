@@ -1,3 +1,148 @@
+###  Публикация: 1410924   (429360) от 24.09.2020
+
+Enigmatic Hits - Reloaded (2020) [MP3|320 Kbps] <Enigmatic, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying Eagles in Manhattan
+02. Meditation on Mount Fuji
+03. Rain in Tibet
+04. Potter Makes a Jug(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72194804D4A027ED7781AF054E7F115592748122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946071   (429332) от 12.10.2015
+
+Francisco Canaro - Todo Milonga Serie Baile, Vol. 1 (2015) [MP3|192 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milonga sentimental
+02. Milonga del 900
+03. Negrito
+04. Larga las penas(   Читать дальше...   )Жанр: TangoПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528A25BE1063A0AF1270FE4D16C296633CC9CE5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946288   (429316) от 12.10.2015
+
+VA - Клинч (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Пускепалис - Intro
+02. Би-2 feat. Диана Арбенина - Тише и тише
+03. D. Brown feat. Elizaveta feat. Би-2 - Я ищу
+04. Би-2 feat. Варя Демидова - Книга(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C57777787B48C8DD31B7B994834679215180B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250067   (429132) от 26.09.2018
+
+Thierry David - Zen World (2006) 2008, Real Music [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close to Heaven (5:18)
+ 02. Asian Rhapsody (4:27)
+ 03. I Miss You So (4:31)
+ 04. Walking on Skies (3:16)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E22DE6C09E0EDEA3461EAFC416A978BC786D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249917   (429128) от 26.09.2018
+
+Mauricio Nader - Our Soul Revealed (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope Within
+02. Wish to Be with You
+03. The Own Reflection
+04. Hidden Loneliness(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D2EC25F9506E858C902900931F78F721EC2322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945435   (428644) от 12.10.2015
 
 Мельница - Алхимия (2015) [MP3|320 кб/с]<Folk, Rock>
@@ -604,151 +749,6 @@ Amer-Inkas - 3 albums (2010-2012) [MP3|320 кб/с]<Instrumental, Native america
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F81AFE4022F69EB46D836BA0C6EACCF1FC89416F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166700   (421437) от 18.09.2017
-
-VA - Classic Film Music For The Millennium (2000) [MP3|320 Kbps] <Instrumental, Easy Listening, Soundtrack>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421437.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Philharmonic Symphony of London - Theme From 2001: A Space Odyssey (1:58)
-2. RCA Symphony Orchestra - Laura (2:43)
-3. Wally Stott & His Orchestra - As Time Goes By (2:39)
-4. RCA Symphony Orchestra - Love Theme From The Glenn Miller Story (3:18)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, SoundtrackПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4B4C7C8DFCCB3B888A8C4B4C4D5CE10EC82F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064921   (420820) от 22.10.2016
-
-Leonard Cohen - You Want It Darker (2016) [FLAC|Lossless|image + .cue] <Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Want It Darker [4:44]
-02. Treaty [4:02]
-03. On The Level [3:28]
-04. Leaving The Table [3:47](   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33840A26661750E9F575B4A9B1CD63A672BD26E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947257   (420108) от 16.10.2015
-
-Fleur (Flёur) - Штормовое предупреждение (2014) [FLAC|tracks|WEB-DL]<Cardiowave, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предельно насыщенные образами, полные удивительной отрешенности от реального мира тексты. Живая и очень чувственная музыка. "Flëur", и в этом, и в предыдущем альбомах, подобны жизни в забытьи. Там где сложно определить - спишь ты или бодрствуешь. Там где внутренний мир исполнительниц рисует хаотичные картины разрушений, и коллапс окружающего пространства; (   Читать дальше...   )01. Интро
-02. Железо поёт
-03. Мы летали
-04. Кислород(   Читать дальше...   )Жанр: Cardiowave, FolkПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBDDD1CFE636B65577FDC38785FAE01ED68FC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251111   (420043) от 30.09.2018
-
-The Romantic Strings Orchestra - Night And Day: The Great Songs Of Cole Porter (1993) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begin the Beguine (3:33)
-02. Easy to Love (2:52)
-03. Let's Do It Let's Fall in Love (2:44)
-04. Night and Day (2:28)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3354E572FE7764ADE25FBA7D33A80D6A90B78C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166809   (419723) от 19.09.2017
-
-Trevor Rabin & Harry Gregson-Williams - Enemy of the State (1998) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Main Titles
-02 - Enemy Of The State Main Theme
-03 - Brill's Theme
-04 - The Ferry(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661AE7CF4250A577D87F9FC3ED328A19611140C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

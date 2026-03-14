@@ -1,3 +1,32 @@
+###  Публикация: 1152639   (565400) от 23.07.2017
+
+VA - Hits Cocktail Vol.10 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liu - Don't Be Scared
+02. Sick Individuals - Never Say Never
+03. KREAM feat. Clara Mae - Drowning
+04. PSY - Love (feat. Taeyang)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 05:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F917B29195B3BAF07721A07CAE3BB466319B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555310   (565366) от 06.06.2022
 
 VA - The Golden Soul (2022) [MP3|320 Kbps] <Pop, Jazz, RnB, Soul>
@@ -777,35 +806,6 @@ VA - Music News vol.193 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5682EEA506399F0A27233623DEBBA857C5FF91B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153108   (561321) от 25.07.2017
-
-VA - Need for Speed Vol. 7 (2017) [MP3|320 Kbps] <Dance, Hands Up>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 89Ers - Funky Beats (Radio Edit)
-02. DJ Fait - Because the Night (Short Mix)
-03. Giorno - Closer (Jump & Run Mix Edit)
-04. Shogga - My Heart Is Beating (Danny R. Remix)(   Читать дальше...   )Жанр: Dance, Hands UpПродолжительность: 08:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7144F19635C057E4897BF881EB5A984FF56197F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

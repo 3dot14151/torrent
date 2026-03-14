@@ -1,3 +1,32 @@
+###  Публикация: 1521056   (137601) от 31.12.2021
+
+Blues Cousins - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadow
+02. Back to Texas
+03. Sleepless Night
+04. Nobody  Knows(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086360311628F4C36EBBE7904A688B24563815B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596432   (131265) от 30.12.2012
 
 VA - Rockовое Нашествие-Русская версия (2012) [MP3|128 кб/с]<Rock>
@@ -719,35 +748,6 @@ Haylen - Compilation (2024) [MP3|320 Kbps] <Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD9B4D96DCD6B3858B1A437BACE00DF51E08F005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751939   (103991) от 28.09.2024
-
-David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Compilation Album [MP3|320 Kbps] <Alternative Rock, Folk Rock, Country Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 16 Horsepower - American Wheeze
-02. 16 Horsepower - Black Bush
-03. 16 Horsepower - Black Soul Choir
-04. 16 Horsepower - Dead Run(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Country RockПродолжительность: 01:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3B6EBCAB312FF85C62C2CF499792E4C90D9A13
 ```
 
 https://mybot314.ru/tekegram_catalog/

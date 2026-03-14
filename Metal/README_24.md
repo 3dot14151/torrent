@@ -1,3 +1,32 @@
+###  Публикация: 1110509   (851919) от 03.03.2017
+
+Sinister - Syncretism (2017) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851919.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Neurophobic
+2. Convulsion of Christ
+3. Blood Soaked Domain
+4. Dominance by Acquisition(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B5335E3BEB961002E27E0E204CCE71462AC444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377504   (851889) от 22.04.2020
 
 Andromida - 3 альбома + 3 EP (2016-2020) [MP3|320 Kbps] <Progressive Metal, Instrumental>
@@ -710,35 +739,6 @@ Papa Serpiente - Rock Evolution (2016) [MP3|320 кб/с] <Melodic Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04AC00FD10A47E43819A00D93AF77066A2D6883B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003884   (841791) от 04.04.2016
-
-Final Chapter - Legions Of The Sun (2016) [MP3|320 кб/с] <Symphonic Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trace Of Fate
-02. Sail Away
-03. Garden Of Fear
-04. Legions Of The Sun(   Читать дальше...   )Жанр: Symphonic Power Metal, Speed MetalПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D7C64F6D1EFEC375BD342904733ACF8DBF3138
 ```
 
 https://mybot314.ru/tekegram_catalog/

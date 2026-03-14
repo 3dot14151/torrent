@@ -244,32 +244,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 489146   (101771) от 28.04.2012
-
-[Wallpapers] Обои для Рабочего стола - Оружие [1740 шт.] (2012)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола:Разрешение файлов: 450x600 - 2128x4256
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57EEB7C5E3B9C1E60C7E12DD2917857D1EB2E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822680   (101692) от 07.10.2025
 
 Иконки - UI8 - Saas 3D Illustration [PNG, FBX, OBJ, GLB, BLEND]
@@ -709,6 +683,36 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D1730E5BB778DB799F6F895D0B56C7DB188AE09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471498   (97369) от 21.03.2012
+
+[Wallpapers] HD Wallpapers Pack 11
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97369.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers Pack 11
+Название: HD Wallpapers Pack 11
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115FE6B2DE37F107702A10CC21AD52CAD20207C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

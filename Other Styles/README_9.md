@@ -1,3 +1,137 @@
+###  Публикация: 604293   (995224) от 21.01.2013
+
+Morning Stars - Only Instrumental (2011) [MP3|320 кб/с]<New age, Native american>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995224.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:00) 01. Qapaknan
+(5:30) 02. Love Montain
+(6:18) 03. Miracle
+(5:06) 04. Akuchimuy
+(5:55) 05. Sun Priste Dance
+(4:16) 06. The Last Mohican
+(4:49) 07. Brave Hearts
+(5:33) 08. Harmonia
+(4:34) 09. Morning Stars
+(6:06) 10. Sunquyman(   Читать дальше...   )Жанр: New age, Native americanПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29102383BDC07169D98827ECB391EFF1DFCB1962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606504   (995040) от 21.01.2013
+
+Дмитрий Маликов - Panacea (2012) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Задумавшись
+02. О суете
+03. О прошлом
+04. О невыполнимом
+05. С дыханьем музыки
+06. Счастливым
+07. Я становлюсь
+08. Уходит тень
+09. Душа наполнена
+10. Свежо(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607094   (994701) от 22.01.2013
+
+VA - Союз нерушимый... - Песни и танцы народов СCCP (5 CD) (2007) [FLAC|Lossless] <Retro/Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Retro/Folk |Продолжительность: 00:50:14
+
+01. Государственный гимн Советского Союза Оркестр Государственного Академического Большого Театра СССР, Юрий Симонов
+02. Государственный гимн Украинской ССР Хор и оркестр Государственного академического театра оперы и балета имени Т.Шевченко, Стефан Турчак(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608553   (993423) от 25.01.2013
+
+V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Dub - Insensatez (How Insensitive)
+02. Celso Mendes ft. Lua - Fotografia (Diva Mix)
+03. Karen Souza - Corcovado (Quiet Nights Of Quiet Stars)
+04. Lila ft. Rhythmic Control - Aquarela (Brazilian Tradition Mix)
+05. Aural ft. Ituana - Amanha Talvez
+06. Urban Love ft. Moana - Samba De Uma Nota So
+07. Lalann - Seguir No Caminho
+08. Sound Behaviour - Fixacao (Outro Lado Remix)
+09. Karen Souza - Do You Really Want To Hurt Me
+10. Os Alquimistas - Aguas De Marco (Unconscious Edit)(   Читать дальше...   )Жанр: Bossa, Chillout, LoungeПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352824   (992632) от 17.01.2020
 
 Evgeny Grinko - Naive Album (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
@@ -672,125 +806,6 @@ Erich Kunzel / Cincinnati Pops Orchestra Featuring King'singers - Perform Music 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC71CCC78A31DEADAA15D9E0A280E025D0AA82DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600345   (986533) от 01.02.2013
-
-VA - В ритме танца (24CD) (2010 - 2011) [MP3|320 кб/с]<Instrumental, Pop, Retro, Vocal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986533.jpg" />
-</div>
-
-
-###  Подробнее
-
-49. Dancing On A Saturday Night - Barry Blue
-50. Dance The Body Music - Osibisa
-51. Nice 'n' Slow - Jesse Green
-52. He's The Greatest Dancer - Sister Sledge
-53. Kung Fu Fighting - Doug Carlson
-54. Upside Down - Hazel Fernandes
-55. Dance Little Lady - Tina Charles
-56. Blame It On The Boogie - Brotherhood of Man
-57. Y.M.C.A. - The Thymes
-58. It's Raining Men - Alison Jiear(   Читать дальше...   )Жанр: Instrumental, Pop, Retro, Vocal...Продолжительность: 01:18:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354974   (986039) от 24.01.2020
-
-Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Check Point (01:21)
-02. Nurse Droid (01:08)
-03. The Ewebb (04:07)
-04. A Thousand Tears (04:07)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 03:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B61320E00E324B39A46EE046D719D8A98271105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354975   (985958) от 24.01.2020
-
-Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Check Point (01:21)
-02. Nurse Droid (01:08)
-03. The Ewebb (04:07)
-04. A Thousand Tears (04:07)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 03:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA7EA6D47CDD2E73305D002E92412C3C639A319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434927   (985265) от 11.01.2012
-
-Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005) [FLAC|Lossless]<Indian Classical, Bansuri Flute, Meditation, Relax>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Indian Classical, Meditation, RelaxПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

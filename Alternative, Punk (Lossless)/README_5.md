@@ -1,3 +1,90 @@
+###  Публикация: 1357747   (970741) от 06.02.2020
+
+Bombay Bicycle Club - Everything Else Has Gone Wrong (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up (02:33)
+02. Is It Real (03:05)
+03. Everything Else Has Gone Wrong (04:09)
+04. I Can Hardly Speak (03:59)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4A66DD764AF3059FF07DC7C71F30DF4C869AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 428789   (968435) от 08.02.2020
+
+Mando Diao - 11 альбомов (2002 - 2019) [FLAC|Lossless|tracks + .cue]<Indie Rock, Garage>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mando Diao - шведская рок-группа, история котрой начинается в 1999 году в Бурленге. Название группы, по словам самих музыкантов, не имеет определённого смысла, однажды лидеру банды Бьорну Диксгорду приснился странный человек, который бежал ему навстречу и кричал "Мандо Диао". Дебютный альбом Bring 'Em In, вышедший в сентябре 2002 года получил хорошую критику, (   Читать дальше...   )Список альбомов:
+2002 - Bring 'Em In
+2004 - Hurricane Bar
+2006 - Ode To OchrasyЖанр: Indie Rock, GarageПродолжительность: Кодек: FLAC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F31EB36219E440B478BA1EFAD7FE555CC4F0F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358581   (967498) от 09.02.2020
+
+Asgeir (Ásgeir) - Afterglow (2017) 2CD [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterglow (Alternative Version) (Bonus Track) (04:49)
+02. Unbound (Alternative Version) (Bonus Track) (03:52)
+03. Where Is My Mind? (Bonus Track) (04:06)
+04. Trust (Bonus Track) (03:11)Жанр: Indie PopПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CF2F275B1E8C7478954F0617DAE5C3E138F920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358751   (967425) от 09.02.2020
 
 Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -664,93 +751,6 @@ Little Scream - Speed Queen (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8702F3BDA83A3994004FD55AE2255649292FCBBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090281   (947322) от 06.01.2017
-
-Dropkick Murphys - Going Out In Style (2011) [FLAC|Lossless|tracks+.cue]<Celtic Punk, Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947322.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:59] 01. Hang 'Em High
-[04:08] 02. Going Out In Style (feat. Fat Mike, Chris Cheney and Lenny Clarke)
-[03:26] 03. The Hardest Mile
-[04:21] 04. Cruel(   Читать дальше...   )Жанр: Celtic Punk, Punk-RockПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A15968972D16B08E4D1042AA2B971527FEEEF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982724   (946905) от 04.02.2016
-
-Bury Tomorrow - Earthbound (2016) [FLAC|Lossless|tracks+.cue] <Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Eternal
-02. Last Light
-03. Earthbound
-04. The Burden(   Читать дальше...   )Тип издания: АльбомЖанр: Melodic MetalcoreПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C505E36D88A3F12D8CBEC8762F25982104D655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362988   (946586) от 25.02.2020
-
-Soccer Mommy - Color Theory (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodstream (05:38)
-02. Circle the Drain (04:41)
-03. Royal Screw Up (04:08)
-04. Night Swimming (04:18)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7B47D647489B1AE501860C63F65F9A24600AE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

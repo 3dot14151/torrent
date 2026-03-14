@@ -1,3 +1,90 @@
+###  Публикация: 1326840   (381150) от 22.09.2019
+
+Lee Morgan - 3 Essential Albums (1957, 1963, 1966) 3CD, 2018, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381150.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Sidewinder:
+01. The Sidewinder [10:25]
+02. Totem Pole [10:15]
+03. Gary's Notebook [6:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC451939BB7F9D06EE4F6BFA43496D0AF625C077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068346   (381005) от 01.11.2016
+
+Lars Gullin - Swings (1956) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jeepers Creepers [04:59]
+ 02.Like Someone In Love [05:36]
+ 03.Half Nelson [05:42]
+ 04.Ma [05:53](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F913FFBC4ABA8B47173FAB2B1CBC9AED20A28EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068653   (380883) от 01.11.2016
+
+Austin Cromer - Sings for Her (1964) Remaster, 2014, Warner[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.As Long as She Needs Me [02:42]
+ 02.This Love of Mine [05:18]
+ 03.A Tree in the Meadow [02:56]
+ 04.Laura [04:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E63E188BA87AE77DD34DEC3BAE626C4D926AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068371   (380882) от 01.11.2016
 
 John Hicks - Friends Old and New (1992) BMG[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -664,92 +751,6 @@ Bob James & Company - Casino Lights '99 (2000) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949558   (377705) от 23.10.2015
-
-Virgil Gonsalves Sextet & Steve White Quartet / Quintet - Jazz In Hollywood Series (1954) /1997, Nocturne Records/[FLAC|tracks+.cue]<Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bounce [03:18]
- 02.Out Of Nowhere [02:31]
- 03.Too Marvelous For Words [04:07]
- 04.It Might As Well Be Spring [03:57](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229F4C819C4671D729F37E327FDF0ACC06B1E29E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949409   (377695) от 23.10.2015
-
-The John Coltrane Quartet - Africa/Brass (1961) /2007, Verve/[FLAC|tracks+.cue]<Hard Bop, Post-Bop, Modal Music>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Africa [16:29]
- 02.Greensleeves [10:01]
- 03.Blues Minor [07:23]Жанр: Hard Bop, Post-Bop, Modal MusicПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72478B9FAE4720D99BB6CE943C88A7443DAF7369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254095   (377630) от 12.10.2018
-
-The Four Freshmen - Day By Day (1962) 1994, Hindsight Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day by Day [1:57]
-02. Lulu's Back in Town [2:12]
-03. Polka Dots and Moonbeams [2:41]
-04. Teach Me Tonight [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB89211B1EB43B575D9C63A3A9D609EB2DE258CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,143 @@
+###  Публикация: 461979   (95309) от 03.03.2012
+
+Yngwie Malmsteen - Marching Out (1984) /1994, Polydor/ [FLAC|Lossless]<Heavy/Power-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude
+02. I'll See the Light, Tonight
+03. Don't Let It End
+04. Disciples of Hell
+05. I Am a Viking
+06. Overture 1383
+07. Anguish and Fear
+08. On the Run Again
+09. Soldier Without Faith
+10. Caught in the Middle(   Читать дальше...   )Жанр: Heavy/Power-metalПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461453   (95254) от 03.03.2012
+
+Crane - Refuge (2011) [FLAC|Lossless]<Hard Rock/Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Able To Be Yourself - 2:59
+02. Goodbye - 4:29
+03. Fantasies - 4:07
+04. Wake Up - 3:53
+05. Paradise - 3:26
+06. King Of Trash - 2:53
+07. If You Open Up Your Eyes - 3:42
+08. Soul II Soul - 4:51
+09. Riddle - 2:52
+10. Capital Fascism - 3:18(   Читать дальше...   )Жанр: Hard Rock/Classic RockПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477545   (86105) от 03.04.2012
+
+Foreigner - Extended Versions (2011) [FLAC|Lossless]<Rock, Hard rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_86105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Vision (3:45)
+02. Head Games (5:40)
+03. Cold As Ice (5:44)
+04. In Pieces (4:15)
+05. Dirty White Boy (4:01)
+06. Starrider (6:21)
+07. Feels Like The First Time (5:09)
+08. Urgent (7:42)
+09. Juke Box Hero (12:44)
+10. Can't Slow Down (5:46)(   Читать дальше...   )Жанр: Rock, Hard rockПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476976   (85870) от 02.04.2012
+
+Fox - 2012 (2012) [FLAC|Lossless]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Problem Child (4:12)
+02. Beds Are Burning (4:49)
+03. Raise Your Hands (5:06)
+04. Nothing Without You (4:53)
+05. Black Sunday (5:48)
+06. Flashed (5:15)
+07. Anytime (3:43)
+08. Home Again (3:18)
+09. We Are All (3:16)
+10. Sell It To Me (4:11)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 335018   (84765) от 27.03.2012
 
 Uriah Heep - 10 Albums (1970-1977) /Teichiku, Japan/ [FLAC|Lossless]<Progressive Rock/Hard Rock>
@@ -670,122 +810,6 @@ Stud - Under Silver Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92142BD284D84B7C0176D6DF2A92F390FE35678D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780209   (70503) от 17.02.2025
-
-Glass Hearts Harmony Club - Misfit Love Letter (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dizzy Parade (5:58)
-02.  Bit By A Black Cat (4:48)
-03.  When The Daylight Ends (4:09)
-04.  Misfit Blues (5:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6443B54EB9F31BA9F499E8177C1F01A2B953CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780228   (70480) от 17.02.2025
-
-R.J. Archer & The Painful Memories - The Cost of Loving Crisis (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Get It Together (2:39)
-02.  Barbara (4:01)
-03.  A Heart in Winter (3:33)
-04.  Out of Line (2:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12B5D819231878E35BDB2935023981705DA4CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780618   (70396) от 19.02.2025
-
-Crazy Lixx - Thrill of the Bite (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal, Hair Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crazy Lixx — шведская хэви-метал/хэйр-метал/хард-рок-группа из Malmö, Sweden, образованная в 2002 году. Благодаря их энергичным выступлениям, запоминающиемся припевам и непримиримым стремлением к возрождению звучания глэм-метала конца 80-х, Crazy Lixx стала флагманом новой волны шведского хард-рок-метала. Группа черпает вдохновение в таких группах, как Def Leppard, (   Читать дальше...   )01. Highway Hurricane (3:35)
-02. Who Said Rock N' Roll Is Dead (3:01)
-03. Little Miss Dangerous (6:09)
-04. Call of the Wild (4:13)(   Читать дальше...   )Жанр: Hard Rock, Glam Metal, Hair MetalПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE72BBCCDF28E070241D72D3D4993E9DB444843E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781808   (70153) от 25.02.2025
-
-Francesco Marras - Out Of The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carnival of Darkness (04:02)
- 02. Out of the Fire (05:06)
- 03. Lost Souls (04:08)
- 04. Through my Veins (04:30)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8861DE5DD04595555EEC16ECD73D6087CA1D41E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,26 @@
-###  Публикация: 465600   (96264) от 10.03.2012
+###  Публикация: 479685   (98832) от 07.04.2012
 
-[Картинки] Фото знаменитости/Эвелина Блёданс
+[Wallpapers] Desktop Wallpapers №8
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96264.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98832.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эвели́на Висвальдовна Блёданс (5 апреля, 1969, Ялта, СССР) — советская и российская актриса театра и кино, певица, телеведущая.
+[Wallpapers] Desktop Wallpapers №8
+Название: Desktop Wallpapers №8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5559948116A14BFC9D12DDF76EA845EE9D1A8CF2
+magnet:?xt=urn:btih:C3E5DB306863462EBBF8D43CE148E4D3346C0498
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,21 +28,423 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465175   (96262) от 10.03.2012
+###  Публикация: 479699   (98831) от 07.04.2012
 
-The Flower Kings Live in Concert Tilburg (2006) DVD5
+[Wallpapers] Desktop wallpapers (08.04.12)
 
->>
->>
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96262.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98831.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Progressive rockАктеры: Roine Stolt- Guitars & Voice, Tomas Bodin - Keyboards & Voice, Jonas Reingold - Bass, Guitar & Voice, Hans Froberg - Guitars, Voice & Percussion, Marcus Litieguist - Drums, Percussion & VoiceПеревод: ОтсутствуетПродолжительность: 01:24:27 +01:20:04
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2269D937A0EDC00B3E0465381B7D6B6D7126005F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479681   (98830) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98830.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №6
+Название: Desktop Wallpapers №6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2880х1800
+Расширение (тип) файлов: jpg, pngВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A71505547CA9F44585098DC852E4C1AFDC3539C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479489   (98829) от 07.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2BB1F872C6BCB797EC4D43D2D75379367178B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478832   (98828) от 07.04.2012
+
+[Wallpapers] Mixed Wallpapers 0.2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Качественный микс из обоев на разные темы(природа,кошки,юмор,креатив и др.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160C8E2D0E952347924C117A201DDD4276D62AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479433   (98827) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98827.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №4
+Название: Desktop Wallpapers №4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87B086DB8B52037A0C9A96C4BE913EAA4B9DE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479459   (98826) от 07.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785824954076D2B64F5101F049765558BF11A591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479432   (98825) от 07.04.2012
+
+[Wallpapers] HD Wallpapers №7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98825.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №7
+Название: HD Wallpapers №7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C50C6C589C26B526D2F36B1F66904B0ED4BE0EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479752   (98823) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №13
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98823.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №13
+Название: Desktop Wallpapers №13
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9909F1F839812D790DD84E5C174CB3C78A832968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479700   (98822) от 07.04.2012
+
+[Wallpapers] Anime Wallpaper (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D16F16A6A4501B465E48D27681373BF7B345D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478461   (98820) от 07.04.2012
+
+Various Artists - Tranceffect 18 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tomas Heredia- Hurricane (Radio Edit)
+ 02. Max Graham feat. Susana-Down To Nothing ({am} Extended Mix)
+ 03. Solarstone & Haris C-Ultraviolet (Haris C Mix)
+ 04. Meridian vs. Arctic Moon vs. ReOrder-Smile In Biscay Bay (LarSson & Lucas Comes Mashup)
+ 05. Running Man & Ahmed Romel-Azure (Running Man Edit)
+ 06. John OCallaghan-Psychic Sensor (Indecent Noise Remix)
+ 07. Talla 2XLC-Salvation (Club Mix)
+ 08. Keelin Temple vs Heatbeat-Iridescent (Reach & Height Rosary Mashup)
+ 09. Skylight-Autumn Wonderland (Aero 21 Remix)
+ 10.  7 Baltic-Hidden Life (Original Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B83DE5352DEAD7699A1ED299127BA658B8211D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479466   (98819) от 07.04.2012
+
+[Wallpapers] Best Wallpapers (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C871BB0F09C4A26B020C6354F348C7AC498522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479679   (98816) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98816.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №5
+Название: Desktop Wallpapers №5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0467081298E42C9E6F930623C1E5B3E49DFAE429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479683   (98815) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98815.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №7
+Название: Desktop Wallpapers №7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED07577EAA4D376DBA2B972775530E3EA48DC967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479732   (98814) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98814.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №11
+Название: Desktop Wallpapers №11
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB3FC1EB44CFE4186286C62B0A11114176969DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479579   (98812) от 07.04.2012
+
+Совершеннолетие Рунета: 7 апреля 2012 года доменной зоне .Ru исполнилось 18 лет
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98812.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+7 апреля домен .Ru празднует 18-летие. Именно в этот день в 1994 году состоялось официальное открытие национальной доменной зоны. Первый зарегистрированный ресурс 1-9-9-4.ru. До этого все отечественные сетевые ресурсы размещались на международных доменах и в зоне Советского союза .SU. В свое совершеннолетие домен продолжает удерживать позицию самого популярного в России, уверенно перешагнув отметку в 3,5 миллиона регистраций. В честь дня рождения Рунета ведущий аккредитованный регистратор доменных имен REG.Ru напомнил об основных этапах становления доменной зоны.Активная регистрация доменных имен коммерческого назначения началась еще в 1996 году, но сегодня старожилов почти не осталось – основную часть регистраций (почти 40%) составляют домены, зарегистрированные в зоне .RU менее года назад. Старейшим действующим доменом в национальной зоне .Ru признан сайт nostalgie.ru.С 2006 по 2008 год зона .Ru динамично развивалась: если в 2006 году число зарегистрированных доменов составляло чуть более 718 тысяч, то уже (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -50,25 +456,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465681   (96260) от 10.03.2012
+###  Публикация: 478466   (98811) от 07.04.2012
 
-Антология | 999. Число зверя [2000] [TXT, PDF, RTF]
+Various Artists - Tranceffect 13 (2012) [MP3|320 кб/с]<Trance>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96260.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На дворе 1999 год. Тот год, который должен был стать годом Апокалипсиса — однако не стал. Или может все-таки стал, но мы пока не увидели этого — и не увидим, пока не станет слишком поздно? 1999 год с такой стороны, с какой его увидели величайшие мастера "литературы ужасов" современности. Писатели, которые хорошо знают: Апокалипсис начинается не с вселенского гласа, поднимающего мертвых, а со страха, который живет в душе каждого из нас. 999 жестоким взглядом феерического Эда Гормана. И даже Любовь превращается в Смерть... 999 по расчету Стивена Спрюлла. И льется кровь еще живых в вены еще Неумерших... 999 через призму Майка Маршалла Смита. Человек задыхается в пучине убийств и безумия... 999 год в представлении Кима Ньюмана, Джина Вулфа и Томаса Лиготти. И еще некоторых из тех, кто неподражаем в умении повергать читателя в иррациональный Ужас...Формат: TXT, PDF, RTF
+01.Se.Ra.Phi (2007)- After The Last Breath (Se.Ra.Phics Epic Version)
+ 02. Stuart Trainer-Surrender (Original Mix)
+ 03. Rene Ablaze & Tonerush-Sulaco ({am} Extended Mix)
+ 04. Endre (2004)-Kallocain (Robert Nickson Remix)
+ 05. Dorius-One Day In Tuva (Original Mix)
+ 06.  Aly & Fila-200 (Fsoe 200 Anthem) (Original Mix)
+ 07. Max Braiman-Origins (Amir Farhoodi Remix)
+ 08. Lisko-End Of Summer (Peter Plaznik & Tech Trek Remix)
+ 09.  Subimpact-End Of An Age (Vahab Bandari Remix)
+ 10.  Subimpact-Rockin (Original Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:20:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:098E9027382CC0A86D055CCFD9A559044DC7710E
+magnet:?xt=urn:btih:278C968CC144B35FC3880994D48753F76201A5A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,34 +491,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465615   (96251) от 10.03.2012
+###  Публикация: 478648   (98806) от 06.04.2012
 
-Nedry - In A Dim Light (2012) [MP3|320 Kbps]<Dubstep, Electronic, IDM, Trip-Hop>
+VA - High Heels Feeling Vol 3: Finest Lounge Music For Intimate Relaxation & Pleasure (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96251.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - I Would Rather Explode (5:04)
-02 - Post Six (5:10)
-03 - Violaceae (4:53)
-04 - Havana Nights (5:42)
-05 - Dusk Till Dawn (3:10)
-06 - Float (6:52)
-07 - Land Leviathan(1:53)
-08 - TMA (3:08)
-09 - here.now.here (5:25)
-10 - Home (6:19)Жанр: Dubstep, Electronic, IDM, Trip-HopПродолжительность: 00:47:37
+01. Solanos - Palabras y Sentimientos
+02. Blue Wave - Falling Skies
+03. The Sura Quintet - Walking On the Sand
+04. Don Gorda Project - Take a Rest
+05. Enrico Donner - Temptalizing Me (Feat. Judy Georges)
+06. Christian Hornbostel - Schakunta - Bossamba Mix
+07. Cane Garden Quartet - Love Goddess
+08. Diario - What I Would Miss About You
+09. Arrojas - The Last Day of Summer
+10. Aquarius - Dissonant Looks(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8045D41A56C2B05204AADC1E2289C9A978E8B68E
+magnet:?xt=urn:btih:E136F225F69DC810C214186EE3B7EE0382DEDCC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,190 +526,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465766   (96250) от 10.03.2012
+###  Публикация: 479244   (98805) от 06.04.2012
 
-Колин Харрисон | Форсаж [2007] [FB2, RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чарли Равич – преуспевающий бизнесмен. Бывший боевой летчик, прошедший через ад вьетнамской войны, он чувствует себя как рыба в воде в жестоком мире современной коммерции. Но в личной жизни ему не везет: жена страдает болезнью Альцгеймера, сын умер от лейкемии, а дочь Джулия не способна родить. Чарли одержим мыслью о ребенке – продолжателе его рода и наследнике его миллионов. Однажды в баре он знакомится с симпатичной молодой женщиной, умело скрывающей свое темное прошлое, и оказывается в плену чужого кошмара.2007Формат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D6A20D2CEB72D8059747545B67C9583EB6B31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465695   (96246) от 10.03.2012
-
-Биатлон. Чемпионат мира 2012. Рупольдинг (Германия). Мужчины. Эстафета 4x7,5 км (2012) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужская эстафета на ЧМ по биатлону в Рупольдинге (Германия)Жанр: Спорт / БиатлонПеревод: Одноголосый закадровый, профессиональный (Дмитрий Губерниев)Продолжительность: 01:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018818FA203CD5B4123309D87BCC164A1F942BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465245   (96245) от 10.03.2012
-
-Suntree - Inside (2009) [FLAC (image+.cue)|Lossless]<Psy-Progressive>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96245.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Lonesome Dream (8:40)
- 2 Freedom (8:25)
- 3 X.T.C. (9:25)
- 4 Inside (8:12)
- 5 Comparable Worlds (9:21)
- 6 Persistence (8:41)
- 7 Back To The Source (8:48)
- 8 Unseen (9:28)
- 9 Private Guide (Album Edit) (8:38)Жанр: Psy-ProgressiveПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465979   (96244) от 10.03.2012
-
-Soulfly - Enslaved (2012) [MP3|320 кб/с (CD Rip)]<Thrash Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Resistance (1:53)
-02. World Scum (5:19)
-03. Intervention (3:55)
-04. Gladiator (4:58)
-05. Legions (4:18)
-06. American Steel (4:14)
-07. Redemption Of Man By God (5:15)
-08. Treachery (5:49)
-09. Plata O Plomo (4:52)
-10. Chains (7:18)(   Читать дальше...   )2012Жанр: Thrash Metal, Groove MetalПродолжительность: 01:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63D29336D02447BF848C3B1D6ABFC879ADCB30B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465636   (96242) от 10.03.2012
-
-VA - Masterland.com - 10 Лет В Сети (2012) [FLAC|Lossless]<Heavy / Power  / Death  / Black  / Thrash  / Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алексей Страйк и группа Страйкъ  - "Твой Грех"
-02. Melancholy - "Tomorrow's Dream"
-03. Чёрный Обелиск - "1000 Лиц"
-04. Margenta (Династия Посвященных) - "Я Искала Тебя"
-05. Everlost - "Шагни За Край"
-06. Aillion - "Зверь"
-07. Hell:On  - "Bottom Line"
-08. Icon in Me feat. Tara Teresa – "Tired & Broken"
-09. Форсаж - "Mastersland Of Freedom"
-10. Unrgace - "Drill A Hole In My Skull"(   Читать дальше...   )Жанр: Heavy  / Power  / Death  / Black  / Thrash  / Gothic MetalПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465806   (96236) от 10.03.2012
-
-VA - Ideal Chill II-IV (WEB) (2010-2012) [MP3|~225 кб/с (V1), 320 кб/с (CBR)]<Chillout, Downtempo>
+VA - Dash Berlin Top 20 April (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96236.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eigenart – Gozada Para El Oido (6:03)
-02. Climatic – Circulation 	(6:41)
-03. Softwaver – How Soon Can You Be Here? 	(4:30)
-04. Euphonic Traveller – Pacific Grove 	(6:51)
-05. Gary B – Life Is Beautiful 	(6:07)
-06. Gold Lounge – In The Deep 	(5:54)
-07. Xelomen – Breathe 	(5:37)
-08. Houie D – Mission Galactica 	(4:54)
-09. Spinne – In My Place 	(6:33)
-10. Guardner – Majo 	(8:29)(   Читать дальше...   )2010-2012Жанр: Chillout, DowntempoПродолжительность: 01:58:23
+VA - Dash Berlin Top 20 April (2012)Год: 2012
+Жанр:Trance
+Продолжительность: 02:35:16Кодек: MP3
+Битрейт:320 кб/с
+Тип битрейта: CBRТрек лист:
+1. James Dymond - Sunset Bench (Original Mix) (8:28)
+2. Cerf, Mitiska & Jaren with Rank 1 - Witness (Tomas Heredia Remix) (7:37)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A153E41F41FFF819F2C91B394FD093A2C57CBA37
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,28 +558,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465625   (96235) от 10.03.2012
+###  Публикация: 478787   (98804) от 06.04.2012
 
-Украина чудес / Україна чудес, Выпуск 7-9 (2012) SATRip
+Природа зверя / The Nature of the Beast (1995) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бизнесмен Джек подбирает в окрестностях Невады «бродягу» Эдриана. Эдриен оказывается слишком назойливым попутчиком, и Джек хочет избавиться от него. Но Эдриена не так-то просто потерять из виду, потому что он знает один страшный секрет Джека и грозится сообщить об этом в полицию.
+
+В это время по радио в машине передают криминальные новости: в районе орудует серийный убийца по прозвищу Рубщик. Возможно, или Эдриен или Джек, и есть убийца, но природа зверя раскроется лишь к концу фильма…Жанр: Ужасы, Триллер, ДетективРежиссер: Виктор СэлваАктеры: Эрик Робертс, Лэнс Хенриксен, Саша Дженсон, Ана Гэбриэл, Илой Касадос, Брайон Джеймс, Лайла Гэрретт, Фрэнк Новак, Элиза Робертс, Эрл Теро, Уильям Э. Темпл, Холлэс Колберн, Лин Шэй, Сэра Янг, Боб МэйПеревод: Одноголосый закадровый (Михаил Иванов)Язык субтитров: английский, испанскийПродолжительность: 01:30:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478657   (98798) от 06.04.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №24 (2012.04.05) SATRip
 
 >>Документалистика и Телепередачи
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96235.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Съемки проекта "Украина чудес" - это 52 человека съемочной группы, 5 камер, один кран, более 420 часов съемок, более 5 километров электрического кабеля и целая тонна "волшебного" реквизита.
-Главный продюсер Нового канала Дмитрий Царенко:
-- Эти ребята перевернут наше с вами представление о законах природы, роздвинуть границы реального мира и мира магии. Они оставят зрителей в состоянии полного недоумения: "Как, разве такое возможно?" Этот проект уникален. К нам еще никто не делал ничего подобного. Это симбиоз программ о путешествиях и грандиозных магических шоу лучших иллюзионистов мира. Через призму своего магического дара брать Сафронова расскажут легенды девяти городов Украины.
-Съемки шоу "Украина чудес" пройдут в девяти городах страны: Черновцы, Каменец-Подольский, Львов, Одесса, Ялта, Севастополь, Харьков, Донецк и Киев. Гуляя по городам, иллюзионисты буквально на всех углах будут делать маленькие чудеса, поражая прохожих. Жители городов станут не только свидетелями, (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: 02:08:19
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:11:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:835B0B611A49E6A84B9452B94F2DDFF049917DF5
+magnet:?xt=urn:btih:13854D1DF1633D6D63537FC6F5C9363A40F7AF81
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,244 +612,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465571   (96232) от 10.03.2012
+###  Публикация: 478597   (98797) от 06.04.2012
 
-VA - Dash Berlin Top 20 - March (2012) [MP3|320 кб/с]<Uplifting Trance>
+LibreOffice 3.5.2 Final [Мульти, Русский]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96232.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chris Schweizer - Ultra (Original Mix)
-02. Timur Adagio - Broken (Rave CHannel Remix)
-03. Lence & Pluton - Virtual Mirror (Original Mix)
-04. Deep Haze - Ariana (Matt Skyer Remix)
-05. David Broaders - The Best Is Yet To Come (Solid Stone Remix)
-06. Eco - We Watched The Sunrise Till Our Eyes Burned Out (Original Mix)
-07. Moonbeam feat. Leusin - Daydream (Original Mix)
-08. Matt Eray - Beside You (Original Mix)
-09. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix)
-10. Harry Lemon - Rise - Classic Bonus Track (Original Mix)(   Читать дальше...   )2012Жанр: Uplifting TranceПродолжительность: 02:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909ADFEDBAF623BBACEE785C7C3A2D6E780DF685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465595   (96231) от 10.03.2012
-
-VA - Count Down Rock Ballads (5CD Boxset) (1993) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96231.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD11993Жанр: RockПродолжительность: 01:17:43
-01. Deep Purple - Child In Time
- 02. K's Choice - Not An Addict
- 03. Oasis - Wonderwall
- 04. Gary Moore - Still Got The Bl
- 05. Scorpions - Still Loving You
- 06. Heart - Alone
- 07. Foreigner - That Was Yesterda
- 08. Santana - She's Not There
- 09. Vandenberg - Different Worlds(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DAE3B72FC59D78D9D6BF363AFDB3C4FD94DA7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465757   (96228) от 10.03.2012
-
-Лекарства. История всероссийского обмана (2010) DVDRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект Алексея Егорова стал самым заметным не развлекательным телевизионным событием завершившегося года.
-
-"Мясо" и "Цены" не только привлекли к экранам рекордную по количеству аудиторию, но и открыли новый жанр - "Историю всероссийских обманов". В этот раз коллектив Алексея Егорова раскроет очередной обман - лекарства.
-
-Еще недавно героином лечили кашель, опиум выписывали как болеутоляющее, а ртуть считалась лучшим средством от венерических заболеваний. Всего сто лет спустя мы почему-то уверены, что теперь на прилавках аптек и в больницах - исключительно целебные препараты. И лишь немногие знают, что привычный анальгин запрещен почти в ста странах мира, а за хранение валокордина или корвалола кое-где в Европе могут дать срок как за наркотики. И, наконец, антибиотики: мы привычно лечим ими чуть ли не половину прочих привычных хворей.
-
-А между тем многие врачи уверены: антибиотики порождают новые инфекции. В России данные о вирусах, которые приспосабливаются и мутируют под действием (   Читать дальше...   )Жанр: Документальный, ТелепередачаПродолжительность: 01:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A127BD845B84DD469A55D4F67551B6540EDD4DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465414   (96225) от 10.03.2012
-
-Николай Гербель | Изюмскiй слободской казачiй полкъ. 1651-1765 [1852] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изюмский слободской (черкасский) казачий полк - слободской казачий полк, административно-территориальная и военная единица на Слобожанщине. Полковой центр - город Изюм. Полк появился в 1688 году, стараниями Григория Ерофеевича Донца (Донец-Захаржевского), полковника Харьковского слободского (черкасского) казачьего полка. Вашему вниманию предлагается книга Николая Васильевича Гербеля (1827-1883), русского поэта-переводчика, литературоведа, издателя-редактора, библиографа, которая содержит документальное описание боевых действий полка и знаменательных исторических событий, связанных с ним, за период 1651 – 1765 годов. Также в книге приведен список командиров и полковников.Жанр: Раритеты / Научно-популярная литература / Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F2F8847E46C6EF397C71049FBDAF4722EBCDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465745   (96223) от 10.03.2012
-
-Олег Курылев | Знамена Германии. Иллюстрированная энциклопедия [2010] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вашему вниманию книга посвящена флагам и знаменам германских государств, которые в разное время располагались на территории будущей Германской империи в границах 1871 года и Австрии. Исследование охватывает исторический промежуток от XIII века до наших дней.2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439B956AD0EB708A0CFC95A674B9A091DDC14204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465500   (96213) от 10.03.2012
-
-VA - Armada Presents The Miami Soundtrack 2012 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96213.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Armada Presents The Miami Soundtrack 2012 (2012)
-Год: 2012
-Жанр: Trance
-Продолжительность: 03:57:22Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Antillas ft Fiora - Damaged (Main Mix)
-02. W&W - Invasion (ASOT 550 Anthem) (Club Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BFAAD81596514B9F0E030D44ACD95F0DE3B5D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465298   (96211) от 10.03.2012
-
-VA - Весенний хит-парад Record 6 50/50 (2012) [MP3|256 кб/с]<Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 MM Dance - Отдыхаем (Dj Alfred extended mix)
-02 DJ Robert.T - Disco Crazy (Radio Edit)
-03 DJ HaLF & Tom Stem - Ready 2 Go (Radio Mix)
-04 Kay - M.A.J.O.R. (Tiesto Remix)
-05 DJ Half & Tom Stem - Любовь По Венам (MainstreamOne feat. DJ
-06 DJ Feel feat. Loona - I ll Find Myself (original mix)
-07 ViRUS! - ЧЗF
-08 Aly & Fila - Rising Sun (Bjorn Akesson remix)
-09 Mc Zali & Don Omar - Девочки мэйд ин раша (Dima Molotov Russian bootleg)
-10 Nicky Romero - Toulouse (original mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 08:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF6F0268A36985B545864967EFEE0CDA300A96D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465555   (96209) от 10.03.2012
-
-Бутерброд (1989) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96209.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам пьесы Станислава Лема.
-В Литературно-драматической редакции давно жила мечта создать чисто развлекательную программу. И вот режиссер Театра им. Ленинского комсомола П. Штейн поставил пьесу С. Лема "Бутерброд", где комедия причудливо уживается с фантастикой. Кажется, трудно себе представить более абсурдную цепь событий. К адвокату (артист В. Белоусов) (   Читать дальше...   )Производство: Главная редакция литературно-драматических программЖанр: Комедия, ФантастикаРежиссер: Петр ШтейнАктеры: Виктор Раков, Владимир Белоусов, Татьяна Рылеева, Марина Трошина, Вера Ивлева, Марина Игнатова, Татьяна Рудина, Сергей Степанченко, Ольга Зайцева, Надежда Скорнякова, Марина ЗотоваПродолжительность: 00:46:16
+LibreOffice - новое имя пакета офисных приложений OpenOffice.org. Разработчики пакета программ OpenOffice объявили о создании независимой организации The Document Foundation, в рамках которой они продолжат разрабатывать свои приложения, но уже под названием LibreOffice. Программы OpenOffice.org - это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; Calc – электронные таблицы; Impress - создание и просмотр мультимедийных презентаций; Draw - редактор векторной графики; Math – редактор математических формул. Одно из крайне положительных качеств - возможность работы всех этих приложений с соответствующими документами форматов MS Office.Название программы: LibreOfficeЯзык интерфейса: Мульти, Русский
 
 ## Скачать торент
 ```bash
@@ -580,30 +638,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465224   (96208) от 10.03.2012
+###  Публикация: 478936   (98795) от 06.04.2012
 
-VA - Chanson d'amour (2011) [FLAC|Lossless]<Chanson>
+Wise Registry Cleaner 7.14 build 451 Final + Portable [Multi(Rus)]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96208.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Jacques Brel - Ne me quitte pas (3:53)
-02.Serge Gainsbourg - L'eau a la bouche (2:31)
-03.Edith Piaf - Mon manege a moi  (3:01)
-04.Francois Deguelt - Je te tendrai les bras (3:10)
-05.Henry Savador - Amour de Saint-Tropez (2:37)
-06.Petula Clark - Je t'aiime (3:14)
-07.Sacha Distel - Parlez-moi d'amor (2:33)
-08.Dalida - Come prima (2:42)
-09.Richard Anthony - Tu m'etaisdestinee (2:09)
-10.Gloria Lasso - Toi, je t'aimerai (2:59)(   Читать дальше...   )2011Жанр: ChansonПродолжительность: 01:10:16
+Название программы: Wise Registry CleanerЯзык интерфейса: Multi(Rus)
 
 ## Скачать торент
 ```bash
@@ -615,99 +664,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465663   (96204) от 10.03.2012
+###  Публикация: 478450   (98793) от 06.04.2012
 
-Narco - La Rave Del Infierno: Alita De Mosca Remixes (2012) [MP3|320 кб/с]<Electronic, Drum & Bass, Rapcore, Dubstep>
+Nothgard - Warhorns Of Midgard (2011) [FLAC|Lossless]<Viking Folk Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96204.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mi Negocio (Alexander Head)  (03:38)
-02. Son ellos (Pheex & Impak)  (05:06)
-03. Estrellas en el pecho (Dub Elements)  (04:12)
-04. La hermandad de los Muertos (BSN pose)  (05:19)
-05. Mi Negocio (Maromo Diyeah)  (03:33)
-06. Dame Veneno (Have A Cow)  (04:07)
-07. La Ultima Cena (Psychobitches)  (04:35)
-08. Pa los restos y un dia (Prozac)  (06:48)
-09. Estrellas en el pecho (eRRe)  (06:13)
-10. Gusano Tabernero (St0rmtr00perz)  (04:57)(   Читать дальше...   )2012Жанр: Electronic, Drum & Bass, Rapcore, DubstepПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6DB280A2752DF3EA675F18EFB751F282F8121B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465747   (96203) от 10.03.2012
-
-Мясо. История всероссийского обмана (2009) DVDRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если верить статистике, каждый житель России за год съедает 37 килограммов мясных продуктов.
-
-Яичница с докторской колбасой - на завтрак, бутерброд с ветчиной в полдник, мясной борщ и котлеты на обед, аппетитный бифштекс или куриная грудка - на ужин.
-
-На почетном месте в центре праздничного стола всегда стоит тарелочка с "нарезочкой": копченая колбаса, грудинка, карбонат, салями. И конечно, какой пикник без шашлыка?
-
-Мясо - часть нашего национального характера, и даже схема разделки коровьей туши чем-то напоминает карту родной страны.
-
-Специально для НТВ научные лаборатории в двух столицах провели масштабное исследование. Под микроскоп разом попали несколько десятков сортов колбасы и пельменей, почти сотня видов тушенки. Истина оказалась весьма любопытной...Жанр: Документальный, ТелепередачаПродолжительность: 01:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0542847A03D490D5B54592E8058DF274590FB46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465672   (96202) от 10.03.2012
-
-VA - A State Of Trance 2012 (Mixed by Armin van Buuren) (01.03.2012) [FLAC|Lossless]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96202.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: On The Beach (01:13:46)
-
- 01. Omnia & IRA – The Fusion (Armin van Buuren’s Intro Edit)
- 02. VillaNaranjos – Granadella
- 03. Sunlounger feat. Zara Taylor – Try To Be Love (Roger Shah Naughty Love Mix)
- 04. The Blizzard – Piercing The Fog
- 05. Audien – Keep This Memory
- 06. Alexander Popov – When The Sun (Eximinds Remix)
- 07. Nash & Pepper – Ushuaia Memories
- 08. Mike Foyle & ReFeel – Universal Language(   Читать дальше...   )01.03.2012Жанр: TranceПродолжительность: 03:31:21
+01. Lex Talionis (4:38)
+02. Arminius (5:14)
+03. Under The Serpent Sign (4:08)
+04. Einherjer (5:33)
+05. Shadows Arise (2:09)
+06. Blackened Sky (6:02)
+07. Victory (3:57)
+08. Warhorns of Midgard (5:29)
+09. Spirit (3:38)
+10. Ancient Heritage / Modern Warriors (5:08)(   Читать дальше...   )Жанр: Viking Folk MetalПродолжительность: 00:55:51
 
 ## Скачать торент
 ```bash
@@ -719,84 +699,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465119   (96201) от 10.03.2012
+###  Публикация: 478922   (98790) от 06.04.2012
 
-Ashley Wallbridge - The Inner Me (2012) [MP3|320 кб/с]<Trance>
+Журнал | Звёзды и совет № 9 [март 2012] [JPEG]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женский журнал, в котором можно почитать о жизни звезд, а так же их советы на различные темы.март 2012Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9216A87DAFB3079FF65B43B7D3CF4526072CE8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478972   (98787) от 06.04.2012
+
+Forodwaith - Nirnaeth Arnediad (2010) [MP3|320 кб/с]<Fantasy/Folk/Melodic Death Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96201.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ashley Wallbridge - The Inner Me (2012)
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:09:06Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-1.Ashley Wallbridge - Emotions
- 2.Ashley Wallbridge feat Elleah - These Walls(   Читать дальше...   )
+01. - Intro (03:10)
+02. - Nirnaeth Arnediad (07:41)
+03. - Morgoth (04:45)
+04. - Stone Guardian (04:39)
+05. - Saga (06:52)
+06. - Death And Beer (04:22)
+07. - The White Tower (04:01)
+08. - Horn Of Gondor (05:11)
+09. - Revenge Of Mjolnir (04:51)
+10. - Valhalla Feast (05:41)2010Жанр: Fantasy/Folk/Melodic Death MetalПродолжительность: 00:51:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FFD516CEC172CC1FAFDF5EABF4E7C96CF282DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465572   (96200) от 10.03.2012
-
-Вестникъ Моды. Журналъ моды, хозяйства и литературы [1906] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ред.-изд. Николай Павлович Аловерт (1847—1927) — русский журналист, литератор писал: Выпуская въ свѣтъ первый номеръ «Вѣстника моды», я нахожу необходимымъ сказать нѣсколько словъ по поводу причинъ, вызвавшихъ появленіе этого новаго моднаго журнала. Вслѣдствіе историческихъ причинъ, о которыхъ здѣсь не мѣсто говорить, Франція во главѣ съ Парижемъ сделалась законодательницей моды не только для Европы, но и для всего міра. куда проникала европейская цивилизація. Мы, русскіе, конечно, не избѣгли общей участи, и было бы естественнымъ, чтобы мы знакомились съ французской модой непосредственно, т. е. получали бы ее, такъ сказать, прямо изъ Парижа. Случилось, однако, это не такъ. Всѣ существовавшіе и существующiе русскiе модные журналы, эти «вѣстники моды», есть не больше, какъ нѣмецкіе модные журналы (Modenwelt, Bazar) съ русскимъ, текстомъ, а такъ какъ нѣмцы заимствуютъ моду изъ того же Парижа, видоизмѣняя ее по своему національному вкусу (   Читать дальше...   )1906Жанр: Раритеты, журнал, модаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA33C794A7D2C999D04F8A112D169EF4C16DDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465480   (96198) от 10.03.2012
-
-Журнал | Школа кулинара №5 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рецепты, присланные в редакцию читателями, готовятся профессиональными шеф-поварами. Подробные фотоиллюстрации всех этапов приготовления. Рецепты сопровождают практические советы, экскурс в историю продуктов и другая полезная информация.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D560C0E2C0014C9660F81420EE93B69132D36CF0
+magnet:?xt=urn:btih:2D5742F82D34552230855A9D9153D23CCEB32467
 ```
 
 https://mybot314.ru/tekegram_catalog/

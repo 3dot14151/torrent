@@ -1,3 +1,61 @@
+###  Публикация: 1207173   (780891) от 17.02.2018
+
+Steven R. Smith (Стивен Р. Смит) - Log The Man Dead (1995) Autopia, MC-Rip [MP3|320 Kbps] <Noise, Indie Rock, Psychedelic Rock, Folk, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стивен Р. Смит делает фолк, извлекая совершенно потрясающие звуки из предметов, мимо которых мы в повседневной жизни можем пройти мимо, совершенно не обращая на них никакого внимания. Благодаря Hala Strana Стивен Р. Смит представляется слушателю как музыкант-одиночка, затворник, сидящий в студии и экспериментирующий с инструментами и звуками. Конечно, можно предполагать (   Читать дальше...   )01. Piner 2:26
+02. March of the Sandpiker 3:26
+03. Fillert's Mercheent Tie-off 2:49
+04. Again Import the Ex 3:25(   Читать дальше...   )Жанр: Noise, Indie Rock, Psychedelic Rock, Folk, ExperimentalПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3A80E133C33652142DA8D934254AB04D54B9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207288   (780846) от 17.02.2018
+
+Toto - Super Hits (2004) [MP3|320 Kbps] <Soft Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780846.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hold The Line
+2. Rosanna
+3. Africa
+4. Georgy Porgy(   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E53150D71F68E118B02F3D65E1F67AD74F8D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207605   (780601) от 18.02.2018
 
 Steven R. Smith (Стивен Р. Смит) - Gehenna Belvedere (1996) Autopia [MP3|320 Kbps] <Psychedelic Rock, Experimental>
@@ -683,64 +741,6 @@ Chain - Toward The Blues (1971) Reissue, 2007, Picar ‎[MP3|320 кб/с] <Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7383E3F0742CA51DCCC1A29FEC5B5B578FD21008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014649   (776192) от 08.05.2016
-
-The Artwoods - Art Gallery (1966) Remastered, 2014, RPM Records [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can You Hear Me
-02. Down In The Valley
-03. Things Get Better
-04. Walk On The Wild Side(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7C832DC83EADC7DAC7E0FDFE2F9D98A3A87E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014485   (776180) от 08.05.2016
-
-Wet Willie - Wet Willie (1971) Remastered, 2015, Capricorn Records [MP3|320 кб/с] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have A Good Time
-02. Dirty Leg
-03. Faded Love
-04. Spinning Round(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F799C2B0554C649A36AB5CAAEDF86ACBCCAFE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

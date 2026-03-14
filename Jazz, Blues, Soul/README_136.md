@@ -1,3 +1,177 @@
+###  Публикация: 1206111   (782980) от 12.02.2018
+
+Sherri Roberts - Anybody's Spring (2017) Pacific Coast Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Anybody's Spring [05:34]
+02. Spring Sprang Sprung [06:15]
+03. They Say It's Spring [05:25]
+04. It Might as Well Be Spring [05:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817A538AFD3BDD52221CB3C039B736A143C2241E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205931   (782927) от 12.02.2018
+
+Free - Tons Of Sobs (1968) Island Records [MP3|320 Kbps] <Blues Rock, Electric Blues, Classic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Free - одна из наиболее влиятельных команд своего времени. Их стиль соединил в себе классический блюз и интонации еще только зарождавшегося хард-рока. Мелодическая структура композиций послужила основой для многих поп-роковых и АОР исполнителей середины 70-х, вроде "Bad Compsny" и "Foreigner".01. Over The Green Hills (Part I) 0:52
+02. Worry 3:26
+03. Walk In My Shadow 3:30
+04. Wild Indian Woman 3:40(   Читать дальше...   )Жанр: Blues Rock, Electric Blues, Classic RockПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D2CD058F704CA717726EB4BDEDACA43A49E3DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206078   (782891) от 12.02.2018
+
+Blues Beatles - Blues Beatles (2017) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hard Days Night (4:40)
+02. Eleanor Rigby (4:02)
+03. You Can't Do That (4:07)
+04. Yesterday (7:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30794DBF4DD2C6B49DC4C63B7DE43ED49890A0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390556   (782732) от 16.06.2020
+
+Bud Shank - Four Classic Albums 1956 - 1958 (2012) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782732.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bag Of Blues [6:51]
+02. Nature Boy [4:30]
+03. All This And Heaven Too [4:56](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 02:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3C37A2305255DBA4C1A2A020BB9D0D838283DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206302   (782571) от 13.02.2018
+
+Manuel Valera Trio - The Seasons (2017) Mavo Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening [05:11]
+02. In the Eye of the Beholder [06:39]
+03. Tres Palabras [05:59]
+04. Hopeful [06:26](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5EE1DC42419FFEBB16BEE4E5760E231DE6E788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206218   (782565) от 13.02.2018
+
+Kathy Kosins - Uncovered Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Get Me Started 04:28
+02. Voodoo 04:23
+03. Uncovered Soul 03:54
+04. Ms. Martha 04:41(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A592A13E399F036CB7E71836E2CE3613C17F9FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390796   (782302) от 17.06.2020
 
 Marty Paich - Four Classic Albums 1955 - 1960 (2015) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Big Band>
@@ -568,180 +742,6 @@ California Swing Cats - Stealin' Apples (1997) Jazzology Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55ABDC41DA3565E5860AD4784D09E91474781240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207176   (780902) от 17.02.2018
-
-Benoit Viellefon & His Orchestra - Mon Amour (2014) JohnJohn Records [FLAC|Lossless|image + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Must Be Jelly [02:45]
-02. Ca S'fait Pas [03:11]
-03. You Run Your Mouth [02:41]
-04. Mon Amour [02:52](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB02F96F21D218D2C3ABA3C1834E62E518B2AFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207025   (780814) от 17.02.2018
-
-Rick Springfield - The Snake King (2018) [FLAC|Lossless|tracks + .cue] <Blues Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Land Of The Blind (4:51)
-02. The Devil That You Know (3:03)
-03. Little Demon (5:22)
-04. Judas Tree (3:21)(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2582BF31D7709850BC5E5FC5378495D81F5232DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207138   (780775) от 17.02.2018
-
-Brian Culbertson - Colors Of Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, R&B, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colors Of Love (5:23)
-02. I Want You (3:54)
-03. Love Transcended (4:56)
-04. Don't Go (5:28)(   Читать дальше...   )Жанр: Smooth Jazz, R&B, FunkПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C9E0F005A48041495906848CC1B2330B75CE82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207474   (780615) от 18.02.2018
-
-Leonard   Feather - 1937 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'ye Ken John Peel? [03:01]
-02. There's A Tavern In The Town [02:34]
-03. For He's A Jolly Good Fellow [02:29]
-04. Jammin' The Waltz [02:57](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D021CAE2FE2BEF785008A62F4703F7101F866366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207478   (780614) от 18.02.2018
-
-Enrico Pieranunzi & Art Farmer - Isis (1981) Soul Note [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isis [05:13]
-02. Ah-Leu-Cha [05:28]
-03. Love Walked In [06:56]
-04. Blue 'N' Boogie [03:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307805113B0A41D1AC39A3CEDC2764E5176AA738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207473   (780613) от 18.02.2018
-
-George Masso, Randy Sandke & Ed Polcer - Jazz Live At The Musikhalle: One, Two, Three (1994) Nagel Heyer Records [FLAC|Lossless|image + .cue] <Dixieland, New Orleans Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fascinating Rhythm [08:18]
-02. Liza [03:48]
-03. The Half Of It Deary Blues [05:37]
-04. Who Cares (So Long As You Care For Me) [07:26](   Читать дальше...   )Жанр: Dixieland, New Orleans Jazz, SwingПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42A72CE16471A1E1FB2FEFBB94DC999C45AEAA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

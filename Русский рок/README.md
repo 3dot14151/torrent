@@ -1,4 +1,61 @@
 https://t.me/izofen
+###  Публикация: 1857901   (1060100) от 09.03.2026
+
+Злая Рыба - 2 Albums (2026) [MP3|320 Kbps] <Alternative Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Случай на Диком Западе (single version) [00:02:42]
+02. Человек из пуль и пороха [00:00:19]
+03. Случай на Диком Западе (album version) [00:02:44]Жанр: Alternative-Rock, PunkПродолжительность: 2 CD, 00:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E772C9F3F0887D68B7546D27FFD0E42B30BD6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857530   (1059710) от 06.03.2026
+
+Костя Кулясов & АнимациЯ - STAR'Ё (2026) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1059710.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. А он всё стоит
+2. Про_Бали
+3. Островки безопасности
+4. Иван(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F758F938B2A9562EBC562E158A3628D34C9AEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857226   (1059585) от 04.03.2026
 
 Константин Кинчев - Я (2026) [MP3|320 Kbps] <Blues-Rock>
@@ -686,64 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A020CC52E5CC844ADCB66E3B487D95F025514E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845534   (1050730) от 
-
-VA - Полигон Records. Лучшее 2025 [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иво - Фрактал (2:57)
-02. TAMATAFRESH - Тишина (3:25)
-03. Полина Баранкова и группа «Андрей Рублёв» - Мне совсем не больно (3:31)
-04. АЭРОПЧЕЛА - ЭТАЖИ (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A615B614DA57819FAA314333E59628C166E8CF83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845359   (1050718) от 31.12.2025
-
-Коррозия Металла - Власть Зла (1985) Remastered, 2025, Рэм Санчис [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050718.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Люцифер
-2. Дьявол здесь
-3. Дети дракона
-4. Власть зла(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B595108F2057C7A41CCA79CF4962C4EC03E08F3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

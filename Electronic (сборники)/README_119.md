@@ -1,3 +1,32 @@
+###  Публикация: 924717   (557671) от 04.08.2015
+
+VA - Sunset Beats - Ibiza Edition (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Sunset Beats - Ibiza Edition 2015 Mix, Pt. 1 [77:47]
+02. DJ Mix - Sunset Beats - Ibiza Edition 2015 Mix, Pt. 2 [76:28]
+03. Ella Fitzgerald - Wait Till You See Him (De Phazz Remix) [03:52]
+04. Casanovy - I Need Your Lovin' (Sin Plomo's Superlounger Mix) [05:42](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889F3754D44011C41BDE1E6AA54F72C814BBA1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924485   (557668) от 04.08.2015
 
 VA - The Sounds Of The Underground 03 (DJ Mix By Deeper82) (2015) [MP3|320 кб/с]<Deep House, Progressive House>
@@ -716,35 +745,6 @@ VA - Cyber World: Electronic Space Party (2019) [MP3|320 Kbps] <Electro, Dance H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04FB8EB296D67B900F48189786FA419C3CD032ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236646   (554061) от 19.07.2018
-
-VA - Good Vibes (2018) [MP3|320 Kbps] <Deep, Techno House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554061.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Way Out West - Lullaby Horizon
-002. Volksfreude - I Want You There
-003. Sandra Kanivets - Moonlight (Original Mix)
-004. Rough Cut & NoShame - My Love (Original Mix)(   Читать дальше...   )Жанр: Deep, Techno House, ElectroПродолжительность: 09:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4574D7A66F7C228D6EBBE465980B241015D4AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

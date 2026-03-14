@@ -1,3 +1,61 @@
+###  Публикация: 1529977   (729914) от 10.02.2022
+
+VA - Blue Sailing: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beamy - Elmwood (4:37)
+02. Marga Sol - What I Long For (Chill Mix) (5:24)
+03. Gary B - Bring Me Hope (Original Mix) (3:24)
+04. Michael E - Infinite Beauty (Original Mix) (4:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906F61A970A9029FEFBC34565A9A74E59523A365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530592   (728985) от 11.02.2022
+
+VA - Maretimo Chill Radio - Best of Vol. 1 - Positive Summer Vibes (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Credo – Siesta Del Sol (Laid Back Summer remastered Cut) (04:57)
+02. Cafe Americaine – Solitude Charmante (Level One remastered mix) (04:21)
+03. Miss Lopez – Jeso Creadu (Paraiso Verda mix) (05:32)
+04. Vladi Strecker – Over The Sea (Island Sounds Deluxe remastered mix) (07:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FD5DA4A46F885A1547FCE9C387FC30DEEA2B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530573   (728980) от 11.02.2022
 
 VA - Distant Places Lounge Vol.1: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -687,64 +745,6 @@ Lemongrass - Earth (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breaks, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3730C5CF840A2D5152ED706B6D1F8072D4A63F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030058   (675643) от 29.06.2016
-
-Schiller - Greatest Hits (2010) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Try (feat. Nadia Ali) (04:45)
-02. Let Me Love You (feat. Kim Sanders) (06:40)
-03. Time For Dream (feat. Lang Lang) (03:08)
-04. I Feel You (feat. Heppner) (05:30)(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072DA284967976EDDFB386AC92F5A37DC20E9E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136732   (672648) от 23.05.2017
-
-Hugo Kant - OUT OF TIME (2017) [FLAC|Lossless|tracks] <Downtempo, Trip-Hop, Instrumental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entering the Black Hole
-02. The Earth Dance
-03. Clouds (feat. Astrid Engberg)
-04. The Meeting(   Читать дальше...   )Жанр: Downtempo, Trip-Hop, InstrumentalПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB51AEF40576B31D52CE2D42F5A77988304CD34
 ```
 
 https://mybot314.ru/tekegram_catalog/

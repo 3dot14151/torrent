@@ -1,3 +1,148 @@
+###  Публикация: 1804598   (12961) от 30.06.2025
+
+Louis Armstrong - What A Wonderful World (1968) Japan Edition, Limited Edition, Reissue, 2014, Verve Reissues [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - What A Wonderful World [2:20]
+02 - Cabaret (Single Version) [2:47]
+03 - The Home Fire [3:18]
+04 - Dream A Little Dream Of Me [3:18](   Читать дальше...   )Жанр: JazzПродолжительность: 00:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FEB494311E3532F13D2A3BEA2246D7A6DB5899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804505   (12950) от 30.06.2025
+
+Killing of a Sacred Deer - A Visage of a Mangled Body (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Lenz ist da! [00:04:50]
+02. Europa [00:05:31]
+03. Rosen auf den Weg gestreut [00:04:53]
+04. Die Mäuler auf! [00:04:58](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D780D85244B011764A4FF4F7D87361D0E923C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804587   (12946) от 30.06.2025
+
+Spoon - They Want My Soul (2014) Reissue, Deluxe More Soul Edition, 2024, Matador [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rent I Pay [3:10]
+02 - Inside Out [5:02]
+03 - Rainy Taxi [3:59]
+04 - Do You [3:33](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CDE0CBF725D968676C16F4D1B6994445B2A4D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804508   (12943) от 30.06.2025
+
+Culture Kultur - Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop, Futurepop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dna Slaves_Redux [00:03:23]
+02. Forever_Redux [00:05:10]
+03. Promised Land Blues_Redux [00:05:39]
+04. War is Over_Redux [00:04:44](   Читать дальше...   )Жанр: Synthpop, FuturepopПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E955DB453B7A2A03CA53D0C8A8CE96331540D339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804572   (12941) от 30.06.2025
+
+Muse - The 2nd Law (2012) Reissue, 2015, Warner Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Supremacy [4:56]
+02 - Madness [4:40]
+03 - Panic Station [3:05]
+04 - Prelude [0:58](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E431B92B01F7AB790A16008880194F76FEA89F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805242   (12568) от 04.07.2025
 
 Cerrone & Christine and the Queens - Catching feelings (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Disco>
@@ -598,151 +743,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9CE9B0E3115D0E4B228FF81412DB90DE678F2C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806191   (11817) от 11.07.2025
-
-Mariah Carey - The Best (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Funk, Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11817.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A:
-01. Dreamlover
-02. Without You
-03. Now That I Know(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CC2DD9E772D029757D2EEB44ADF787C87D04EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806357   (11715) от 12.07.2025
-
-Chris Rea - The Best Of (1992) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11715.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A:
-01. Touche D'Amour
-02. All Summer Long
-03. Wired To The Moon(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58541A7E2D4D0F2D85853BEEE52620ADED271CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806281   (11713) от 12.07.2025
-
-Bronski Beat - Forbidden Fruit - The Age of Consent Remixed (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why? (feat. Neil Tennant) (Superchumbo Superextended Mix)
-02. Smalltown Boy (Extended) (feat. Perfume Genius)
-03. Junk (An ElectroGenetic Extended Remix By Gareth Jones)
-04. Love And Money (RSF Metropol Italo Extended Remix)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD3ED369D26F67FE8C3B8581DBAFCB9B7BCB08C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806383   (11695) от 12.07.2025
-
-VA - Балкантон Приглашает В Дискотеку (1986) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11695.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Васил Найденов - Полный порядок
-A2 Роксана Белева - Песенка Сверчков
-A3 ВГ ''Стил'' - Третий Лишний
-A4 Венета Рангелова - Районное Кино(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B745228240B1FD15CBA02AA1F6E5892C892A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807005   (11313) от 16.07.2025
-
-Justin Bieber - Swag (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Can Take [00:04:07]
-02. Daisies [00:02:56]
-03. Yukon [00:02:43]
-04. Go Baby [00:03:14](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC59917669C803551BAF671BD9EB2C7631C241D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

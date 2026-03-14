@@ -1,3 +1,29 @@
+###  Публикация: 933975   (504160) от 03.09.2015
+
+Проекты - VideoHive - Fashion Promo - 9801178 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82015DF866A6C728F2D10273ED48CF0D40EAFD6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933939   (504159) от 03.09.2015
 
 Проекты - VideoHive - Story of Your Life [AEP]
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D6B6AE4A25BAA74AA8F400258A653A8BDC6200B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935577   (497206) от 10.09.2015
-
-Проекты - VideoHive - Quick Flip Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BDA1AEA27E433AF033CDB6F2C30CA229E77D75
 ```
 
 https://mybot314.ru/tekegram_catalog/

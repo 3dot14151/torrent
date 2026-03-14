@@ -1,3 +1,119 @@
+###  Публикация: 1615012   (1038110) от 24.02.2023
+
+Godsmack - Lighting Up The Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You And I [00:05:17]
+02. Red White & Blue [00:04:04]
+03. Surrender [00:03:40]
+04. What About Me [00:03:55](   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D443CDA205AD08FE3C93F671594B27F423DBC186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441120   (1038028) от 20.01.2021
+
+Billionaires Boys Club - Something Wicked Comes (1993) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Won't See You Again (5:13)
+02. Voyeur Romance (3:35)
+03. Eternal Flame (4:28)
+04. Something Wicked Comes (4:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D67012D6320FE7543D222E3A936A1356F0C05F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615064   (1037853) от 25.02.2023
+
+Motorhead - Bad Magic: Seriously Bad Magic (2015) Remastered, 2023, Silver Lining Music Ltd[FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victory Or Die [00:03:08]
+02. Thunder & Lightning [00:03:06]
+03. Fire Storm Hotel [00:03:35]
+04. Shoot Out All of Your Lights [00:03:14](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A9CEF03123ED9B45600B088898460BA2216C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441335   (1037677) от 21.01.2021
+
+Blackout - Hindsight 2020 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Of Cool (04:12)
+02. Dreadlock Mama (05:28)
+03. Head Of A Pin (04:26)
+04. What Does It Mean (04:00)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues RockПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24BB72033F24DD7F72F274A3A454B629A8E3EA59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615498   (1037591) от 26.02.2023
 
 Decoy - Without Warning (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ Seventh Crystal - Wonderland (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:666109D663B1F688022A32E188550E2A359576AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618501   (1034169) от 11.03.2023
-
-Demons Down - I Stand (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Stand
-02. Disappear
-03. Down In A Hole
-04. On My Way To You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A6FB1D2DBA109D311DA19EC9E0F0A969D4B065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445028   (1034005) от 04.02.2021
-
-Wig Wam - Never Say Die (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Second Crusade (Intro, Instrumental)
-02. Never Say Die
-03. Hypnotized
-04. Shadowx Of Eternity(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55632C852E97885DBCCFE87AE5351CDCC2CC359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618625   (1033672) от 13.03.2023
-
-Wig Wam - Out Of The Dark (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of The Dark (4:28)
-02. High And Dry (3:34)
-03. Forevermore (4:56)
-04. Bad Luck Chuck (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2CB3446E23FE3ACC978F44A4DFB4A2C287EE6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445250   (1033494) от 06.02.2021
-
-Iron Butterfly - 9 Albums, 1 Box-set, 26 CD (1967-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Psychedelic Rock, Proto-Prog, Acid Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iron Butterfly — американская рок-группа, образовавшаяся в 1966 году в Сан-Диего, Калифорния и исполняющая тяжёлый эйсид-рок с элементами прогрессивного рока. Международную известность Iron Butterfly принёс сингл «In-A-Gadda-Da-Vida» (#30 US, 1968), первая «тяжёлая» композиция, зазвучавшая в американском радиоэфире и, как отмечают некоторые источники, — одно из первых (   Читать дальше...   )--------------------------
-
-Heavy (Stereo Album Mix) 
-01. Possession (2:46)(   Читать дальше...   )Жанр: Psychedelic Rock, Proto-Prog, Acid Rock |Продолжительность: 21:08:25 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C814D19435FF914EE1044AD2DF41D5E13E832487
 ```
 
 https://mybot314.ru/tekegram_catalog/

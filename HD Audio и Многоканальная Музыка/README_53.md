@@ -1,3 +1,148 @@
+###  Публикация: 1649382   (224838) от 03.08.2023
+
+Aldo Nova - Blood On The Bricks (1991) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Arena Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_224838.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Blood On The Bricks {04:53}
+A2. Medicine Man {04:47}
+A3. Bang Bang {04:27}
+A4. Someday {05:06}(   Читать дальше...   )Жанр: Arena RockПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8ED3083FF09ED5E427AB8813ABDAAFC9DFE03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649563   (224804) от 03.08.2023
+
+The Sylvers - Forever Yours (1978) [FLAC|96/24|image + .cue|Vinyl-Rip] <Soul, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_224804.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Don't Stop, Get Off
+A2 Love Changes
+A3 Forever Yours
+A4 Swept For You Baby(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8BAD264AC7CAC6C7A680FF47AFCD1B71C20118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648998   (224575) от 03.08.2023
+
+Aerosmith (Steven Tyler; Joe Perry) - Studio Albums (10 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_224575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aerosmith — музыкальная группа, вероятно, самый важный представитель американского хард-рока. Группа черпала своё вдохновение в британском блюз-роке, доминировавшем на рок-сцене в конце 1960-х и начале 1970-х, как, например, Cream, Led Zeppelin, Jeff Beck Group, а также the Rolling Stones.1993 - Get A Grip
+1997 - Nine Lives
+2001 - Just Push Play
+2006 - Honkin On Bobo(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 10:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893FBC5828368B3AAB3FC78EDEC256B17752735D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268574   (223122) от 13.12.2018
+
+Jamiroquai - A Funk Odyssey (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <House, Acid Jazz, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223122.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Feels So Good
+A2 Little L
+A3 You Give Me Something
+A4 Corner Of The Earth(   Читать дальше...   )Жанр: House, Acid Jazz, DiscoПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C017953E84009F13E93D17A092D979D4F157CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268854   (223061) от 13.12.2018
+
+VA - ''Не люблю прощания'' - Песни на музыку Игоря Якушенко (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223061.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Т. Анциферова - Портрет
+A2 ВИА ''Пламя'' - Вчера, еще вчера
+A3 А. Герман - Сумерки
+A4 Ж. Рождественская - Запомни(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4D8798B61275A39832BD010DF7D9D0A66C59E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268583   (222893) от 13.12.2018
 
 Макс Фадеев - Ножницы (1997) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic, Trip Hop>
@@ -595,151 +740,6 @@ A4 Good Rockin' Tonight(   Читать дальше...   )Жанр: Rock & Roll
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06D96FA5D25F62C8B3C9AEC976E2B649BE935301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652456   (216793) от 12.08.2023
-
-VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216793.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Маут И Мак Нийл - Скажи Мне Что-Нибудь • Кажи Ми Нещо
-А2 Лефт Сайд - Добро Пожаловать Домой • Добре Дошла У Дома
-А3 Кристоф - Рука За Руку • Ръка За Ръка
-А4 Ню Сийкърс - Никогда Не Кончится Песня Любви • Никога Няма Да Свърши Песента На Любовта(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, DiscoПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649764   (216114) от 13.08.2023
-
-Orphaned Land (& Amaseffer) - Studio Albums (10 releases) (1993-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death/Middle Eastern Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orphaned Land — израильская рок-группа, объединяющая в своем творчестве элементы европейского метала и народной музыки Ближнего Востока.1993 - The Beloved's Cry
-1994 - Sahara
-1996 - El Norra Alila
-2004 - MaboolЖанр: Doom/Death/Middle Eastern Folk MetalПродолжительность: 11:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFCC2A565AE0D72AEAF067B350E52991FB88680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586355   (214753) от 28.10.2022
-
-Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Never Know
-02. If Only
-03. This Time Around
-04. Runaway Run(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987664214E6F11079542D287358ED422A18C20BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586124   (214672) от 28.10.2022
-
-Frankie Goes To Hollywood - Liverpool (1986/1988) Reissue [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Rock, Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214672.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Warriors Of The Wasteland
-A2 Rage Hard
-A3 Kill The Pain
-A4 Maximum Joy(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-popПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438AFE97694D907AB666D22E3B16F6A61A682133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586013   (214597) от 28.10.2022
-
-Bullet For My Valentine - Studio Albums (7 releases) (2006 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Metalcore, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bullet For My Valentine — британская металкор-группа. Была сформирована в 1998 году в городе Бридженд под названием Jeff Killed John и состояла из Мэттью Така (вокал, ритм-гитара), Майкла Пэджета (соло-гитара), Ника Крэндли (бас-гитара) и Майкла Томаса (ударные). Первоначально её участники исполняли каверы на песни Metallica и Nirvana, параллельно занимаясь написанием (   Читать дальше...   )2006 - The Poison
-2008 - Scream Aim Fire
-2010 - Fever
-2013 - Temper TemperЖанр: Metalcore, Heavy MetalПродолжительность: 08:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466E7FA09FB358B7CB319DDB9C206D2F8F126F5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

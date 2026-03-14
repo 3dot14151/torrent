@@ -1,3 +1,183 @@
+###  Публикация: 1167225   (419708) от 19.09.2017
+
+Jake Green Band - Plugging In (2015) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Got to Get You out of My Head   (04:45) 
+02.  Still Hung up on You   (03:56) 
+03.  When the Morning Comes   (04:37) 
+04.  Broken Love   (05:02) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE6D21E36E3E66E583EF8E462C7F9EDC0478724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247824   (419689) от 20.10.2010
+
+Larry Coryell, Badi Assad, John Abercrombie - Three Guitars (2003) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_419689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seu Jorge e Dona Ica(6:00)
+02. New lute prelude (1:34)
+03. New lute interlute (3:14)
+04. Soundtrack (4:17)
+05. After the Rain (4:56)
+06. Descending grace (5:28)
+07. Metramorphosis (4:03)
+08. No flight tonight(4:24)
+09. Ralph’s piano waltz(5:09)
+10. Suspended cirles(5:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065465   (419640) от 23.10.2016
+
+Os 3 Morais - Os 3 Morais -1971 (2015 Japan Edition), [FLAC|Lossless|tracks + .cue] <Bossa Nova, MPB>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Se Quiser Valer (2:21)
+02. Odeon (3:07)
+03. Tao Preso Pelo Teu Olhar (2:55)
+04. Sambachiana (2:10)(   Читать дальше...   )Жанр: Bossa Nova, MPBПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640B2A00332C3DAEE3DB8EFDEB66FBD11D7F808C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065509   (419638) от 23.10.2016
+
+Nat King Cole - Every Time I Feel The Spirit (1958) 2007, Collectors' Choice Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Every Time I Feel The Spirit [01:50]
+ 02.I Want To Be Ready [01:48]
+ 03.Sweet Hour Of Prayer [01:51]
+ 04.Ain't Gonna Study War No More [02:40](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79400E33EF427E29802A897691DFA3AE75527710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167199   (419559) от 19.09.2017
+
+Tommy Chase - Groove Merchant (1987) Stiff Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Message [05:15]
+02. Double Secret [06:17]
+03. Killer Joe [04:38]
+04. Night In Tunisia [03:08](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB51CA972BD0ABFE280791293CF0A53E34C9AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065580   (419550) от 23.10.2016
+
+Timo Gross - It's All About Love (2014) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bound To The Shadows   (03:45) 
+  02. Bitch   (03:18) 
+  03. Radiate   (04:30) 
+  04. King Of Nothing    (04:26) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BF9DF74125F970675CBA338DB03F6831DCFD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065388   (419548) от 23.10.2016
 
 Timo Gross - Fallen From Grace (2011) [APE|Lossless|image + .cue] <Blues Rock>
@@ -583,182 +763,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37DE35AAA9623464C6356FB2B80474C067EFD278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947697   (418266) от 17.10.2015
-
-Miles Davis and Milt Jackson - Quintet / Sextet (1955) /2013, Universal/[FLAC|tracks+.cue]<Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dr. Jackle [08:56]
- 02.Bitty Ditty [06:38]
- 03.Minor March [08:18]
- 04.Changes [07:12]Жанр: Hard Bop, CoolПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68B4A7DCC5286AD041ED2B6B2FD308F1DFC3344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251456   (418037) от 01.10.2018
-
-The Rivington Project - Trip (2006) Counterpart Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Navl Gazr [8:17]
-02. There's No Then in Zen [7:45]
-03. Giant Blues [6:47]
-04. New, as of Yet Unnamed Ballad [6:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32889E7C52FAD3A77DB1C10BE42F42D7B9824588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947300   (417876) от 17.10.2015
-
-The Phil Collins Big Band - A Hot Night in Paris (1999) [FLAC|Lossless]<Jazz, Jazz Fusion, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sussudio [6:52]
-02. That's All [5:34]
-03. Invisible Touch [5:42)]
-04. Hold on My Heart [6:36](   Читать дальше...   )Жанр: Jazz, Jazz Fusion, SwingПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADFEA04D7FB04E73B468AB1E8283F50BA9FC5F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395978   (417794) от 04.10.2011
-
-Junior Wells & Buddy Guy - 33 Albums (1965-2010) [MP3|320 kbps]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_417794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть вещи, о которых бесполезно говорить - BLUES - одна из таких вещей.
-Есть люди, заставляющие нас слушать вещи, о которых бесполезно говорить - дуэт Junior Wells & Buddy Guy - как раз такие люди.Список альбомов:
-1965 - Hoodoo Man Blues
-1966 - It's My Life, Baby!
-1968 - Coming At You
-1968 - You're Tuff Enough(   Читать дальше...   )Жанр: BluesПродолжительность: 31:25:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167503   (417579) от 20.09.2017
-
-Freddie Hubbard - High Energy, Liquid Love, Windjammer (1974 - 1976) 2CD, 2012, BGO Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417579.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dastagh [04:20]
-02. Ordem e Progresso [04:25]
-03. Rosenthalia [03:57](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 02:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A41AF063227CFF762CC5A7B3BD173B9587058C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167570   (417573) от 20.09.2017
-
-Art Van Damme - A Perfect Match & Martini Time (1953, 1963) 2014, Cheesecake Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Accordion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bye Bye Blackbird [03:07]
-02. In the Wee Small Hours of the Morning [03:07]
-03. Tickle-Toe [02:29]
-04. Gone with the Wind [03:48](   Читать дальше...   )Жанр: Mainstream Jazz, AccordionПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB8F2AABC186BB3456AD87CF643F37D57A715AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1047408   (549261) от 30.08.2016
+
+VA - LUXEmusic - Dance Super Chart Vol.83 (2016) [MP3|320 Kbps] <Club House, Deep House, Electro House, Future House, House Music, Mash Up>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549261.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alekseev - Снов осколки (Astero Club Remix)
+2. Andrey Keyton & Sharapov feat. Tinaya - I Want You Soul (Original Mix)
+3. Artik & Asti - Я твоя (Alex Clod & Gilevich Remix)
+4. Artik Pres. Asti - Больше Чем Любовь (Viento Remix)(   Читать дальше...   )Жанр: Club House, Deep House, Electro House, Future House, House Music, Mash UpПродолжительность: 03:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D36F86909C1B2F52BDC5DA49AFC728DFFDE0EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047559   (549256) от 30.08.2016
 
 VA - Groove Moonshine Lightings (2016) [MP3|251-320 Kbps] <Club, Funky, Tech, Soulful, UK Garage>
@@ -719,35 +748,6 @@ VA - Professional DJ More Ultraversion (2016) [MP3|320 Kbps] <House, Club, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E0CA7358C40522A3FCD70EC825E3902D881FC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048797   (545749) от 03.09.2016
-
-VA - Beatport Top 100 Tech House August (2016) [MP3|320 Kbps] <Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Chapman - Body Jack (Get My Swerve On)
-02. Darius Syrossian, Doorly - Gravity Check (Original Mix)
-03. Moonwalk - Meteora
-04. Mat.Joe - Nonstop Nonsense (Original Mix)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 11:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610B948FC814F11B2222E90BBA94D24A37C7316A
 ```
 
 https://mybot314.ru/tekegram_catalog/

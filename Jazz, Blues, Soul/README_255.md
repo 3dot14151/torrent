@@ -1,3 +1,183 @@
+###  Публикация: 1557686   (537461) от 17.06.2022
+
+Big Gilson - Peace in Our Time - Peace in Our Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peace in Our Time (4:32)
+02. Gemma Is a Writer (4:13)
+03. Winner (5:17)
+04. Arizona (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6CA3C64284D854444525B59010DFF5F6E1C8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557682   (537453) от 17.06.2022
+
+Ben Hemming - Marked Man (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Faith (3:40)
+02. Losing My Way (3:35)
+03. Marked Man (3:11)
+04. Cruel World (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D20435686150C89A8193D567B4DEC022284D949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 83053   (537413) от 05.09.2014
+
+Ralph Towner - ANA (1997) [MP3|320kBit/s]<Guitar-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Reluctant Bride
+02 Tale of Saverio
+03 Joyful Departure
+04 Green And Golden
+05 I Knew It Was You
+06 Les Douzilles
+07 Veldt
+Seven Pieces for Twelve Strings
+08 Between The Clouds
+09 Child On The Porch(   Читать дальше...   )Жанр: Guitar-JazzПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78EF935DB41B97128615BDC51F6DDA4B2A1DA261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557731   (537385) от 17.06.2022
+
+Black Banjo - The Beauty And The Burst (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ophelia (4:15)
+02. Full Moon Rising (4:18)
+03. When Will I Be Free (4:13)
+04. When The Smoke Clears (4:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B40A6C8E2CC890E7DE5D7A682C14077E4D75A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925949   (537281) от 08.08.2015
+
+Plas Johnson - Positively (1976) /Concord Records/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Positively [03:34]
+02. Lover Man (Oh, Where Can You Be) [04:45]
+03. Let's Get It All Together [07:10]
+04. Easy For You To Say [04:39](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48A7B01FF2A616D114E4B05980862E81CD9B50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925943   (537276) от 08.08.2015
+
+The Pentones - Don't Leave Nothin' Behind (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delta Blues (03:24)
+02. Jodie (05:34)
+03. Sunday Funny (04:57)
+04. End Of The World (05:28)(   Читать дальше...   )Жанр: Blues Rock,  Louisiana BluesПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D707F046EA8D02C2F840369831D8222D00DF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925854   (537275) от 08.08.2015
 
 Bob Baldwin - MelloWonder, Songs In The Key Of Stevie (2015) [FLAC|image+.cue]<Smooth Jazz>
@@ -583,180 +763,6 @@ Bobby Caldwell - August Moon (1983) /Sin-Drome Records/ [FLAC|tracks+.cue]<Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29FDC455E5D5A7C3F70E5C890426C53FF2AFC993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926338   (535590) от 09.08.2015
-
-Ambient Jazz Ensemble - Suite Shop (2014) [FLAC|tracks|WEB-DL]<Jazz, Nu Jazz, Broken Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes Wide Open (04:40)
-02. Jazz Face (04:14)
-03. Cinematize (04:03)
-04. The Journey (05:02)(   Читать дальше...   )Производство: Here & Now RecordingsЖанр: Jazz, Nu Jazz, Broken BeatПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9008304E25338B6E87CD372CC4EA0890E0F953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926297   (535588) от 09.08.2015
-
-The Braxton Brothers - Steppin' Out (1998) [FLAC|image+.cue]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset Bay 04:58
-02. Steppin' Out 05:01
-03. Eventide 04:48
-04. Someday 05:08(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61398219E3E943085F2EAF58478763A029FCA2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926398   (535586) от 09.08.2015
-
-Rebecca Kilgore and Nicki Parrott - Two Songbirds Of A Feather (2015) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Songbirds Of A Feather (03:48)
-02. A Woman's Perogitive (03:56)
-03. BlueMoon MoonGlow (04:15)
-04. El Cajon (03:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA863BCFA651C056B139F28CF0E0E8ADAC929E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926108   (535581) от 09.08.2015
-
-Bugge Wesseltoft - Moving (2001) [FLAC|tracks +.cue]<Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change (10:25)
-02. Gare du Nord (12:40)
-03. Yellow is the Colour (10:40)
-04. Lone (10:05)(   Читать дальше...   )Жанр: Future JazzПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E3E4CCA370A70A407BB2D9246C3A8CDB69DC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557974   (535539) от 18.06.2022
-
-Grover Washington Jr. - The Best Is Yet To Come (1982) Elektra [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can You Dig It [5:21]
-02. The Best Is Yet To Come [6:01]
-03. More Than Meets The Eye [4:30]
-04. Things Are Getting Better [4:19](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3A9DAC4A36BF72D9BEB72FA83D32D9061240C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154907   (535490) от 02.08.2017
-
-Matthew Shipp - 4D (2010) Thirsty Ear [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4D [04:19]
-02. The The Crack In the Piano's Egg [05:06]
-03. Equilibrium [03:08]
-04. Teleportation [04:17](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22901F61449FADC975FA663EB633AF334EFBE3AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

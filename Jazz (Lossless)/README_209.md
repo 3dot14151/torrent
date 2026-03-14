@@ -1,3 +1,90 @@
+###  Публикация: 1257219   (347613) от 25.10.2018
+
+Sandro Roy - Souvenir De Paris (2018) Skip Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Face the Music and Dance [5:09]
+02. Souvenir de Paris [3:07]
+03. Waltz for Nicky [6:16]
+04. September Second [5:53](   Читать дальше...   )Жанр: SwingПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21CF568678D144DC63E90853E8F0895A3F1739E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179390   (347114) от 01.11.2017
+
+VA - The Liberty of Jazz (1958, 1963) 2005, SoLyd Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You May Believe - Or Not [05:00]
+02. Madrigal #1 [06:11]
+03. Madrigal New York [05:49]
+04. You Will Say No [03:20](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D767497B7F5A0B9958F6514D4B32EC63597F5CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953399   (347098) от 05.11.2015
+
+Bril Brothers (Братья Бриль) - Immersion (2000) /Landy Star/[FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Before the Sunset [12:17]
+ 02.Immersion I [09:31]
+ 03.Immersion II [03:34]
+ 04.Semblence - Intro -Time Remembered -Dance of the Seagulls [23:14](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D046F491B92EF7945DFE39326EF8F851A3657F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953403   (347095) от 05.11.2015
 
 Sadao Watanabe - Pamoja (1975) /2015, Universal/[FLAC|tracks+.cue]<Post-Bop, Jazz Fusion>
@@ -664,105 +751,6 @@ Enrico Pieranunzi - Jazz Roads (1980) 2002, CAMJazz [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E22663AF9370C1D92299C3C77BC1CBF9D5AC4AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580663   (343637) от 25.11.2012
-
-Italian Secret Service - Not The Same (2009) [FLAC|Lossless]<Acid Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_343637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ceccarellis Ice Cream
-02. Control Yourself
-03. 24-7
-04. Smell Like Ten Spirit
-05. Italian Melody
-06. No Se
-07. Cartoons
-08. Call Me Linda
-09. Haupe
-10. Lazy Man(   Читать дальше...   )Жанр: Acid Jazz, LoungeПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257663   (343582) от 27.10.2018
-
-Niels Henning Orsted Pedersen (NHOP) & Mulgrew Miller - The Duo-Live! (2000) 2CD, 2016, Storyville Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343582.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Whisper Not [10:22]
-02. Sophisticated Lady [7:46]
-03. Mood Indigo [10:32](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8112F8CF655BE656407B0E584C35790F343785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 256830   (343502) от 13.11.2010
-
-Gary Burton - Libertango (The Music of Astor Piazzolla) (1999) [APE|Lossless]<Jazz ,Tango>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_343502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Libertango
-02. Invierno Porteno
-03. Escualo
-04. Buenos Aries Hora Cero
-05. Fuga Y Misterio
-06. Milonga Del Angel
-07. Michelangelo 70
-08. Contrabajissimo
-09. Fugata
-10. Mumuki(   Читать дальше...   )Жанр: Jazz ,TangoПродолжительность: 1:11:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

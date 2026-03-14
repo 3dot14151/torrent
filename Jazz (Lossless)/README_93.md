@@ -1,3 +1,90 @@
+###  Публикация: 1021356   (741084) от 29.05.2016
+
+John Patton - Boogaloo (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Boogaloo Boogie [05:29]
+ 02.Milk & Honey [08:21]
+ 03.Barefootin' [07:11]
+ 04.Shoutin' But No Poutin' [07:47](   Читать дальше...   )Жанр: Jazz-Funk, Soul-JazzПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263CBD45E752A647A5533A84628BA5DE65A7D64C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021536   (741081) от 29.05.2016
+
+Dinah Washington - The Definitive Dinah Washington (2002) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evil Gal Blues (02:55)
+02. Embraceable You (02:56)
+03. New Blowtop Blues (02:38)
+04. Our Love Is Here to Stay (02:33)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B986A68C63B3557541516C4CF1CDAF25E1846D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021434   (741080) от 29.05.2016
+
+Charlie Rouse - Yeah! (1960) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You Don't Know What Love Is [06:32]
+ 02.Lil Rousin' [05:06]
+ 03.Stella By Starlight [06:22]
+ 04.Billy's Blues [08:47](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBD04764F18450D072039DD9BFBDB15D6B6BE30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021430   (741079) от 29.05.2016
 
 New Cool Collective & Mark Reilly - The Things You Love (2016) [FLAC|Lossless|image + .cue] <Jazz>
@@ -658,93 +745,6 @@ Charlie Ventura - Runnin' Wild (1956) 1998, Simitar [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDA6DDC6C7B922C67EE334363A13D3BC0DA3B866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526114   (738819) от 23.01.2022
-
-Charlie Ventura Quartet & Quintet - Complete Verve Studio Sessions (1951 - 1952) 2001, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalon [2:53]
-02. I'm Confessin' [3:07]
-03. Bugle Call Rag [2:50]
-04. Rose Room [2:49](   Читать дальше...   )Жанр: SwingПродолжительность: 01:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5270650604EDD65C4C34A060B741B6F412014D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526175   (738795) от 23.01.2022
-
-D'Sound - 25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flashback
-02. Good Nature (feat. Pher, Cory Henry)
-03. Save Some (feat. Macy Gray)
-04. Right Now (feat. Autumn Rowe)(   Читать дальше...   )Жанр: Acid Jazz, Soul, FunkПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD27E51E7C485F463312268D9DF0435790D6494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526385   (738491) от 24.01.2022
-
-Stanley Cowell Trio - Dancers In Love (2000) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Whole New World [7:53]
-02. Ole Texas [5:24]
-03. Charleston Rag [4:30]
-04. I Never Dreamed [6:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F670BF910D2EF81DA6775425F7E5BED988F34D78
 ```
 
 https://mybot314.ru/tekegram_catalog/

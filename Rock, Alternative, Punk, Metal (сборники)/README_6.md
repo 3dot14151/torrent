@@ -1,3 +1,32 @@
+###  Публикация: 990917   (902590) от 01.03.2016
+
+VA - Alternative Winter by Evaluator (2016) [MP3|128 - 320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chloe Wildman - Six Feet Down
+02. Night Argent - Widowmaker
+03. Forever Still - Miss Madness
+04. Opia - Eon(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5984BBCDE60453A8232B80E769652DE109587A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 867174   (902196) от 08.02.2015
 
 ДДТ - Коллекция легендарных песен (2014) [MP3|320 kbps] <Rock>
@@ -716,35 +745,6 @@ Jimi Hendrix - 100% Jimi Hendrix (2020) [MP3|320 Kbps] <Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8B8910AF7BC18E39E687852FAAA0B388A336B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371211   (891744) от 30.03.2020
-
-The Rolling Stones - 100% The Rolling Stones (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gimme Shelter
-02. Paint It, Black
-03. It's All Over Now
-04. Brown Sugar(   Читать дальше...   )Жанр: RockПродолжительность: 03:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D4DEC2557F4AB614917B40F40738046D6E9E16
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1302114   (582201) от 14.05.2019
+
+Dan Bubien & The Delta Struts - Thieves & Yesterdays (2019) [FLAC|Lossless|tracks + .cue] <Blues Rock, Americana, Roots>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling to the Ground (4:18)
+02. Gotta Hold On Me (4:51)
+03. Thieves & Yesterdays (3:48)
+04. Shake That Thing (5:34)(   Читать дальше...   )Жанр: Blues Rock, Americana, Roots RockПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0421BA78F6CC15F93BAF83CB821282424E1DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506156   (582162) от 09.08.2016
+
+Gary Moore - 73 Альбома (1971-2014) Studio 23, Live 12, Compilation 23, Collaboration 12, Singles 1, Tributes 2 [FLAC, APE|Lossless]<Blues, rock, hard rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murder In The Sky (Live) (5:34)
+02. Military Man (Live) (6:25)
+03. White Knuckles (Live) (3:51)
+04. Empty Rooms (Live) (8:27)(   Читать дальше...   )Жанр: Blues, rock, hard rockФормат: FLAC, APE (image,tracks+cue+scans)Продолжительность: 01:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5DFDF6650C31014D99D93278238A71099F8714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919900   (581994) от 20.07.2015
+
+Zoot Sims Plays Johnny Mandel - Quietly There (1984) [FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinnamon and Cloves [05:49]
+02. A Time for Love [07:55]
+03. Zoot [06:51]
+04. Quietly There [06:14](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAE38662BF92DFE3AB9C9F30CB0A54E0F18CB3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553515   (581875) от 26.05.2022
+
+Blue Mitchell - The Complete Blue Note Blue Mitchell Sessions (1963 - 1967) 4CD, 1998, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581875.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Mamacita [5:49]
+02. Sweet And Lovely [7:47]
+03. Andrea [5:17](   Читать дальше...   )Жанр: Hard BopПродолжительность: 04:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8A04ED718FDC3554DABE8865FE90BA68B9C4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919857   (581861) от 20.07.2015
+
+Paul Hardcastle - The Chill Lounge Volume 3 (2015) [FLAC|Lossless]<Nu Jazz, Lounge, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire
+02. Unlimited Love
+03. Don't You Know
+04. Exploring the Deep(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChilloutПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B4899A0C91F2C0E1E95B888AF201297DB8D336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810964   (581614) от 07.08.2014
+
+Count Basie and his orchestra - Breakfast Dance And Barbecue (2001) [FLAC|Lossless]<Jazz, Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Deacon [05:52]
+02. Cute [04:09]
+03. In a Mellow Tone [06:53]
+04. No Moon at All [02:57](   Читать дальше...   )Жанр: Jazz, Swing, Big Band, Vocal JazzПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B6FA6D147B037A124A5E34C2E7EA2B9E33EBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041809   (581569) от 10.08.2016
 
 Art Blakey - Dig That Beat (1959,1960,1961) 3CD, 2012, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
@@ -581,180 +755,6 @@ Players (Jeff Berlin, Steve Smith, Scott Henderson, T Lavitz) - Players (1987) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF3EAB7D6C74256380796A0746333E3917063290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042237   (579540) от 12.08.2016
-
-Jeff Berlin & Vox Humana - Champion (1985) [WavPack|Lossless|image + .cue] <Jazz-rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579540.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Motherlode (5:33)
-2. 20,000 Prayers (6:11)
-3. Marabi (5:37)
-4. Subway Music (3:55)(   Читать дальше...   )Жанр: Jazz-rock, FusionПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17A88536298C085E4FEA4421076FACAB9FBE1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042348   (579531) от 12.08.2016
-
-Eliza Lumley - She Talks In Maths: Interpretations Of Radiohead (2007) [FLAC|Lossless|tracks + .cue] <Cool Jazz, Vocal Jazz, Covers>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джазовая интерпретация хитов Radiohead.01. High and Dry
-02. Black Star
-03. Street Spirit
-04. Let Down(   Читать дальше...   )Жанр: Cool Jazz, Vocal Jazz, CoversПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B76CD3C817A6196E4E647D62B3BCF7F17B5297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302792   (579381) от 17.05.2019
-
-Franco Ambrosetti - Jazz at Prague Castle (2005) Multisonic [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Thought About You [9:10]
-02. Autumn Leaves [8:12]
-03. My Funny Valentine [9:15]
-04. Bye Bye Blackbird [7:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB32B7C8DD334D99CA63FAF9BCF30661DEB3EE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042083   (579369) от 12.08.2016
-
-Joscho Stephan - Guitar Heroes feat. Tommy Emmanuel, Biréli Lagrène, Stochelo Rosenberg (2015) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues For Tommy (3:16)
-02. Love's Melody (3:24)
-03. Hungaria (4:04)
-04. Swing 42 (4:58)(   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 01:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7028A715C339708DD992C2EDBC41480288AF3C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302758   (579273) от 17.05.2019
-
-Hazmat Modine - Box of Breath (2019) [MP3|320 Kbps] <Blues, Jazz, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crust of Bread
-02. Box of Breath
-03. Be There
-04. Hoarder(   Читать дальше...   )Жанр: Blues, Jazz, Folk, World MusicПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCBDA843C2F264DF5C7FBCB20B00CC77535A541C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554171   (579098) от 29.05.2022
-
-Rufus Reid & Akira Tana - Looking Forward (1995) Evidence [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy [5:21]
-02. Gold Minor [6:42]
-03. The Duke [5:32]
-04. Skyline [8:33](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE9D433AD69B81928542E6E57D52A6815D2EBE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

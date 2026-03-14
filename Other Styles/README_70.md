@@ -1,3 +1,148 @@
+###  Публикация: 1222516   (682596) от 30.04.2018
+
+Alan Silvestri - Мстители: Война бесконечности / Avengers: Infinity War (Deluxe Edition) (2018) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Avengers (0:26)
+02. Travel Delays (Extended) (4:45)
+03. Undying Fidelity (5:05)
+04. No More Surprises (4:04)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2F72D00766AF4D1FD1BAA96DBAD25BB253CAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029300   (682464) от 26.06.2016
+
+Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора шпиона (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Central Intelligence (02:08)
+02. Robbie (00:38)
+03. Golden Jet (01:02)
+04. I Don't Like Bullies (01:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:472187B36352B07299A70CCC75D8BC32F32D1A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029324   (682461) от 26.06.2016
+
+Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opar (by Zoe Mthiyane) (03:29)
+02. Diamonds (04:51)
+03. Togetherness (01:45)
+04. Steamer and Butterfly (02:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D0963D2485CF651B7591FBA8F347692AE85917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029321   (682343) от 26.06.2016
+
+Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opar (by Zoe Mthiyane) (03:29)
+02. Diamonds (04:51)
+03. Togetherness (01:45)
+04. Steamer and Butterfly (02:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA83C134922C7BCB08D00599FBEC72AC2C640DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028929   (682204) от 26.06.2016
+
+Johnny Cash - Les Genies du Rock -  I Walk The Line (1993) [MP3|320 кб/с] <Country Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cry ! Cry ! Cry ! (2:26)
+ 02.  Hey Porter (2:12)
+ 03.  Blue Train (2:01)
+ 04.  Hey Good Lookin' (1:41)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3565099C48119BD8ECDCCCAC0DA9473931568CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029120   (682194) от 26.06.2016
 
 Alex Vanderberg (Van Der Berg)  Orquestra - Music To Make Love (1991) [MP3|160 кб/с] <Classical, Romantic, Instrumental>
@@ -625,152 +770,6 @@ The Allegorist - Botanical Utopia (2016) [MP3|320 Kbps] <Electronic, Nu Disco, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E6F7153C7BBD69F0CF53133EAE92C63FD9CF267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290663   (676583) от 21.03.2019
-
-Victor Reyes - Down A Dark Hall (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Way (2:05)
-02. Kit & Jules (1:06)
-03. Welcome to Blackwood / This is Where You’ll be Sleeping (1:52)
-04. In Your Old Lives (1:18)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF94431591EC27233F6DFBDCD55FB5C2D3AED0F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290671   (676324) от 21.03.2019
-
-Jeff Beal - House Of Cards - Season 6: Music From The Netflix Original Series (2019) 2CD [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bittersweet (06:00)
-02. How to Walk Away (02:18)
-03. Not One of Us (01:48)
-04. Attack on Progress (01:26)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A0D8CD617742F3B0746282B92DAE909F51FE0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508108   (676057) от 11.06.2012
-
-VA - Вечерняя Коллекция (Звуки природы) (2010) [FLAC|Lossless]<Музыка для медитации и релаксации>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_676057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peaceful Widerness
-02. Mountain Moods
-03. Mysterious Rainforest
-04. Symphony Of Whales
-05. Fantastic Sailboat Voyage
-06. Dolphins Delight
-07. Loonscape
-08. Subarctic SoundЖанр: Музыка для медитации и релаксацииПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509231   (676055) от 11.06.2012
-
-Жизнь и приключения Мишки Япончика / Однажды в Одессе (2011) [MP3|320 кб/с] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FC98668590DAD06370E38E9409490767CEA812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136439   (674901) от 22.05.2017
-
-NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Take A Minute (3:43)
-02 - Sunshine Good Times (3:26)
-03 - Make Each Moment Last (3:47)
-04 - Here Now Forever (2:55)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E187B2A3264D710D67A07F671942012693201ADD
 ```
 
 https://mybot314.ru/tekegram_catalog/

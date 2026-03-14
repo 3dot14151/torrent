@@ -1,3 +1,148 @@
+###  Публикация: 939490   (475357) от 21.09.2015
+
+VA - 80s Love (2015) [FLAC|tracks|WEB-DL]<Rock, Ballad, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Roxette - Listen To Your Heart [5:27]
+02.Foreigner - Waiting For a Girl Like You [4:47]
+03.Duran Duran - Save a Prayer (Single Version) [3:44]
+04.Ultravox - Vienna (Single Version) [2009 Remastered Version] [4:39](   Читать дальше...   )Жанр: Rock, Ballad, PopПродолжительность: 02:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86228D1D650159A89D7FCED74B422E465B8878CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 823507   (475236) от 20.09.2014
+
+VA - Pure... 90s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Именно в начале 90-х из каждого утюга раздавалась Макарена, но не только она определила тот стиль музыки, которому (страшно подумать) уже более 20-ти лет. И хотя нынешнее поколение оценивает её между "ацтоем" и "сливом" - для многих эта музыка их молодости и сегодня задевает за живые струны в душе, а уж под Mambo No.5 до сих пор ноги танцуют сами (   Читать дальше...   )CD1:
+01. Los Del Rio - Macarena (Bayside Boys Remix)  (3:54)
+02. Run-DMC vs. Jason Nevins - It's Like That  (4:12)
+03. DJ Jazzy Jeff & The Fresh Prince - Boom! Shake the Room  (3:48)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock,Продолжительность: 04:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71055A6E1DE749E3C6585F3C300448AA5998DDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057101   (475137) от 28.09.2016
+
+Falco - So80s (Soeighties) Presents Falco (Curated By Blank & Jones) (2012) 2CD [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body Next To Body (Dance Mix) with Brigitte Nielsen
+02. Wiener Blut (12" Remix)
+03. Satellite To Satellite (Extended Remix Version)
+04. Helden von heute (Extended Version)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744C37D2B509AB645BA7BEBC1AA36E57A762051B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554685   (474323) от 02.08.2022
+
+The Chainsmokers - So Far So Good (+ Time Bomb) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fall
+02. Why Can't You Wait
+03. Time Bomb
+04. Riptide(   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5780F36D02B3B806899A78095459D95F62373B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245251   (473992) от 05.09.2018
+
+Ani Lorak (Ани Лорак) - Smile (2005) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Away
+02. Smile
+03. A Little Shot Of Love
+04. Car Song(   Читать дальше...   )Жанр: РорПродолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A57D1F2A6524500D942D370344DDE876052969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546423   (473853) от 15.09.2012
 
 VA - 101 Voices (2012) 5CD [FLAC|Lossless]<Pop>
@@ -626,146 +771,6 @@ Bad Boys Blue - Super 20 (1989) [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:961B2E0184CB203A679DB70735910718986548D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940891   (460060) от 28.09.2015
-
-VA - Hotel Voyeur (2005) [APE|image+.cue]<Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460060.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1Жанр: Pop/ElectronicФормат: 2 × CD, Compilation, MixedПродолжительность: 01:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0203476E2C6528754DD0466C67477A8D07D34B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059875   (459702) от 05.10.2016
-
-Pure Orchestra  - Singin' Dog (2002) [FLAC|Lossless|tracks + .cue] <Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459702.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. U And I (4:05)
-2. Nation (4:13)
-3. Why She Was There (3:45)
-4.  Say It (3:40)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2FA30F69A6E8AF0112EEC428B9551FF2DB7AB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059804   (459447) от 05.10.2016
-
-Joe Dassin - Chante l'amour (1992) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459447.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Salut les amoureux
-2. Sometime Lovin'
-3. L'Ombre d'un amour
-4. La mal aimee du courrier du coeur(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43266923F292FD065A7B34DDB8649760206FD838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246812   (459166) от 12.09.2018
-
-Mylene Farmer (Mylène Farmer) - N'Oublie Pas (2018) Single [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N'oublie Pas (feat. LP)
-02. N'oublie Pas (Version Instrumentale)Жанр: PopПродолжительность: 00:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43330FB1994F601EBDD20B3DFCA5A53552551066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942048   (457461) от 29.09.2015
-
-VA - Romantic Collection. France (1996) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Joe Dassin - L'ete Indien  [4:32]
- 02.  Patricia Kaas - Mon Mac A Moi  [4:15]
- 03.  Charles Aznavour - Il Te Suffisait Que Je T'ame  [3:08]
- 04.  Ennio Morricone - Le Vent, Le Cri  [5:18](   Читать дальше...   )Жанр: PopПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7959105474AE345E5F47DCA3BEC380011C9BB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

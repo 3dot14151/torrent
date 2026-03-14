@@ -1,3 +1,148 @@
+###  Публикация: 1768663   (101107) от 25.12.2024
+
+Samara Joy - Portrait (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Stepped Out Of A Dream (4:35)
+02. Reincarnation Of A Lovebird (6:28)
+03. Autumn Nocturne (3:47)
+04. Peace Of Mind / Dreams Come True (7:06)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F874666BAAC23614D94AF75E387AD0ADB229F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768646   (101106) от 25.12.2024
+
+Jaxon Turner Trio - All That Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Coffe Cup Romance (3:59)
+02. A Desk by the Window (3:22)
+03. All That Jazz (3:37)
+04. Blissful Reverie (3:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C0666BEEC8F42FD7BCEA29B82260C723F63A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768674   (101103) от 25.12.2024
+
+Zavala Sol - Bad Habits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Ride (3:03)
+02. Get Got (3:25)
+03. 25 To Life (3:43)
+04. Bad Habits (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99B788BD6B75C65A8F8848E2E71D9A16C4DA6E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768641   (101102) от 25.12.2024
+
+Glitz Machine - Next Generation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Next Generation (5:12)
+02. Crazy Time (5:00)
+03. Heart Rock (4:17)
+04. The Power of Protein (4:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F047CFC74F9D4A1A6352094E178DD0D9A78F788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822350   (101023) от 06.10.2025
+
+The Midnight - Syndicate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syndicate (Intro) [00:02:27]
+02. Shadowverse [00:04:56]
+03. Runaways (feat. Bonnie McKee) [00:05:07]
+04. Friction [00:03:56](   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C1D76E4F98FB1191EE21001C6C9AFECB347907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822485   (100946) от 07.10.2025
 
 Perpetual Rage - The Beginning (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -600,151 +745,6 @@ Soul City Collective - Soul City Collective (2025) [FLAC 24/44.1|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B77F81635E1B112F2C6D6E1B8139BCDDC3207DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822422   (100743) от 06.10.2025
-
-Stella Anning - Yellow Brick Veneer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Yellow Brick Veneer (6:10)
-02.  Don't Want to Follow You (4:48)
-03.  Watching You as You Fall (4:55)
-04.  Travels (6:19)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78CD0D84D1792CEA0D71AE665D84BFE769FF0D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822425   (100741) от 06.10.2025
-
-The Scott Rednor Band - Where You Wanna Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  It's Your Life (4:03)
-02.  Where You Wanna Go (4:17)
-03.  Turn Back Time (4:01)
-04.  Come Home (3:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A97783A3A735CA706D5A990D88EC310B7DE453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822435   (100739) от 06.10.2025
-
-Venna - Malik (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Yoshi’ Intro (0:40)
-02.  Numero Uno (4:13)
-03.  Myself (feat. Jorja Smith) (2:59)
-04.  Prophet (4:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A82C3E13681320C47998BBF2A067A1E39023D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822219   (100738) от 06.10.2025
-
-The Red Jumpsuit Apparatus - X’s For Eyes (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alt. Rock, Mall Emo>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Always The King (feat. Kellin Quinn) (3:15)
-02. - Purple Halo (3:38)
-03. - Perfection (3:19)
-04. - X’s For Eyes (2:56)(   Читать дальше...   )Жанр: Alt. Rock, Mall EmoПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E41E1E5726D02E5139A356545E1A913C9B039A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822445   (100737) от 06.10.2025
-
-Vera Norea - Daughter of Eve (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Second Ark (4:17)
-02.  Heartsick (3:13)
-03.  Stumble Into Town (4:25)
-04.  Just Keep Playing (4:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763E5BC0634603B3F0E24EF674C8F0F1B1EF2609
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1107705   (866580) от 23.02.2017
+
+Modern Jazz Septet - The Days Of Default (1998) 2002, Dialog Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Eternal Triangle [08:10]
+ 02.Uranius [04:57]
+ 03.Messenger [12:15]
+ 04.Open, Sesame! [09:53](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654BF81CF9753B77294FB7DDB46AA3AD2F7C46EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107769   (866568) от 23.02.2017
+
+Duke Ellington - The 1962 MOMA Recital (2010) La Maison du Duke [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.New York City Blues [05:13]
+ 02.Blue Belles Of Harlem [04:46]
+ 03.The Clothed Woman [04:12]
+ 04.Melancholia [02:16](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E1D399EE260B8AB71591105416331012CC1C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998901   (866499) от 21.03.2016
 
 Slim Chance & The Gamblers - Slim Chance & The Gamblers (2012) [FLAC|Lossless|image + .cue] <Blues Rock, Rock>
@@ -684,64 +742,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BBEEBBECCCAAE3846F49A0CB487BA6EC1123E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108315   (864640) от 24.02.2017
-
-Angel Forrest - Angel's 11 (2016) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hangman (5:28)
-02. All the way (4:27)
-03. Spoil me up (5:17)
-04. Hold on tight... (Mr.I'm Alright) (4:18)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438467464C393CC45BACE61219704168BA882CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874306   (864607) от 02.03.2015
-
-V.A. - Best Of Audiophile Sax 2 (2008) [FLAC|Lossless]<Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Of The Rising Sun
-02. Tears In Heaven
-03. When Will You Come Again
-04. Fly Me To The Moon(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1466B8201CA6E6B8701AC749B4148DCCFE9F86
 ```
 
 https://mybot314.ru/tekegram_catalog/

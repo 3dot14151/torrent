@@ -1,3 +1,177 @@
+###  Публикация: 1190349   (268100) от 09.12.2017
+
+The Larry Goldings Trio - Moonbird (1999) Palmetto Records [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawdaddy [05:34]
+02. Moonbird [06:52]
+03. Woodstock [10:22]
+04. Christine [05:16](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E892DE8BE50D086B15F27DCF8248DAE8723973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190387   (268029) от 09.12.2017
+
+Duke Robillard - Duke Robillard And His Dames Of Rhythm (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Monday On (Feat. Sunny Crownover)
+02. Got The South In My Soul (Feat. Maria Muldaur)
+03. Please Don't Talk About Me When I'm Gone (Feat. Kelly Hunt)
+04. Squeeze Me (Feat. Madeleine Peyroux)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0750044650164BA79B0E260C8E8282B14941305C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267192   (267905) от 05.12.2018
+
+Jeff Baker - Phrases (2018) OA2 Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neruda [6:04]
+02. And So It Goes [8:56]
+03. People Of Paper [5:40]
+04. Ballad Of The Sad Young Men [7:37](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B652135F63356FD76C29664DF83F4966F3232B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190489   (267855) от 09.12.2017
+
+VA - Jazz For A Winter Day (Jazz Lounge Vintage Cafe) (2017) [MP3|320 Kbps] <Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lo Greco Bros Quartet  -  Visions (Original Mix)  5:50
+02.  Cordara Orchestra  -  Search (Original Mix)  2:56
+03.  Marea  -  Semplice (feat. Mietta) (Original Mix)  4:17
+04.  We Do Beatz  -  I Had Not Ever Seen (Original Mix)  2:49(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0BE7F8AFE649B544674FB45704B2B2100F9FA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190654   (267142) от 10.12.2017
+
+Aldo Romano - Melodies En Noir & Blanc (2017) Le Triton [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lontano [04:27]
+02. Rosario [03:20]
+03. L.A. 58 [04:07]
+04. Song for Ellis [04:26](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB8D8817BF41EBDC1C24D5D51A2BB76DB75F09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190660   (267139) от 10.12.2017
+
+Count Basie And His Orchestra - 88 Basie Street (1983) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bluesville [06:52]
+02. 88 Basie Street [04:49]
+03. Contractor's Blues [07:52]
+04. The Blues Machine [06:33](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4054B82813C5E8628C5110577851C4126678E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190679   (267132) от 10.12.2017
 
 Sinne Eeg - Waiting For Dawn (2007) [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -571,180 +745,6 @@ Clifton Anderson - Decade (2008) Doxy Records [FLAC|Lossless|tracks + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D28B3796EF159CF6E750E8BEEDEFFDB8BCEEA0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267788   (265139) от 08.12.2018
-
-Ahmad Jamal - At The Pershing: But Not for Me (1958) 1997, MCA Records [FLAC|Lossless|image + .cue] <Cool, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But Not For Me [3:32]
-02. Surrey With The Fringe On Top [2:35]
-03. Moonlight In Vermont [3:10]
-04. (Put Another Nickel in) Music Music Music [2:57](   Читать дальше...   )Жанр: Cool, Hard Bop, Piano JazzПродолжительность: 00:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236B8998A0BAEDDB6F5012C8DF255B3AC9ABD771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267792   (265138) от 08.12.2018
-
-Kazumi Watanabe - Mobo (1983) 2CD, 1996, Polydor [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265138.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Shang-Hi (Mobo No.1) [6:21]
-02. Yatokesa (Mobo No.3) [15:34]
-03. Alicia [5:44](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE118D6D58999FB712917F8B4157103DB5C5B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267672   (265136) от 08.12.2018
-
-Jimmy Smith - Dot Com Blues (2000) Verve [FLAC|Lossless|image + .cue] <Organ Jazz, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only In It For The Money [4:35]
-02. 8 Counts For Rita [3:40]
-03. Strut [5:04]
-04. C.C. Rider [7:09](   Читать дальше...   )Жанр: Organ Jazz, Soul JazzПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF388C5DE7CB2FCA11844DCE1B29434EBAE2C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267674   (265132) от 08.12.2018
-
-Josh Roseman Unit - Cherry (2000) Enja Records [FLAC|Lossless|tracks + .cue] <Big Band, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be Cruel [2:33]
-02. If I Fell [5:10]
-03. Kashmir [6:09]
-04. Land of Make Believe [5:19](   Читать дальше...   )Жанр: Big Band, Jazz FusionПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAAAA593D8F4A1ADFEEB62F5648DB803321843E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267552   (265078) от 08.12.2018
-
-George Benson - The Best Of  George Benson (1989) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265078.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. California Dreamin'
-2. The Gentle Rain
-3. Theme From Good King Bad
-4. Take Five(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641510C2263BF143EE68D4B389118AED5D9D168E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267563   (265076) от 08.12.2018
-
-Otis Taylor - Fantasizing About Being Black (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Twelve String Mile
-02-Walk On Water
-03-Banjo Bam Bam
-04-Hands On Your Stomach(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C7A38DC89E9D19DA5A1832DAC8C3C5E0EC2640
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,35 @@
+###  Публикация: 575081   (368779) от 15.11.2012
+
+VA - A State Of Vocal Trance Volume 10 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368779.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - A State Of Vocal Trance Volume 10 (2012)
+Год: 2012
+Жанр: Vocal Trance
+Продолжительность: 03:04:13Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Allure feat. Emma Hewitt — Stay Forever (Extended)
+002. Ana Criado & Ronski Speed — Afterglow (Ronski Speed Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D772AE8B4AD2B5170EA85F7D53FE801D391F6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575073   (368778) от 15.11.2012
 
 VA - Trance Maniacs Party: Radio Shivers 2012.4 (Special Edition) (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
@@ -739,35 +771,6 @@ VA - Extra Trance: Bonus [01] (2015) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6507A22E28726B590481C544348C5289C5963A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328488   (363595) от 30.09.2019
-
-VA - Fow Above: Electro House Edm Mix (2019) [MP3|320 Kbps] <Electro House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Land Mammal - Vibrations (Original Mix)
-002. Tommy Largo - Party Down
-003. Elaven - Shaman
-004. Kei How - Matsuri (Original Mix)(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 11:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0A5E61063C14A35DFCE80E7B173E67A0FDA5ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

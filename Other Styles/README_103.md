@@ -1,3 +1,160 @@
+###  Публикация: 1242911   (493966) от 26.08.2018
+
+VA - Ska Anthems - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Jamaican Mento, Calypso, Reggae>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493966.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Madness - The Prince
+02. The Maytals - Monkey Man(   Читать дальше...   )Жанр: Jamaican Mento, Calypso, ReggaeПродолжительность: 00:54:35
+
+01. Bob & Marcia - (To Be) Young, Gifted & Black
+02. Nicky Thomas - Love Of The Common People(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D90D5A55B7FB94F55590B60CC11D367B6445EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543785   (493898) от 06.09.2012
+
+Karin Nobbs & Philip N'bess - Avel & Roc'h (2006) [MP3|320 кб/с]<New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493898.jpg" />
+</div>
+
+
+###  Подробнее
+
+(7:22) 1. L'ordre Du Depart
+(9:02) 2. Les Heritiers Du Courage
+(7:44) 3. La Mer Et L'amant
+(7:27) 4. La Tempete Du Diable
+(4:31) 5. Le Pacte
+(7:30) 7. Les Bienfaits De La Terre
+(8:09) 8. Les Sanglots De Roc'hЖанр: New age, RelaxПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0306A8AF78300E8348A2AA2589316C296E64F501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157696   (493694) от 15.08.2017
+
+VA - New Age Sensation (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnific Senses – Spirit 02:11
+02. Xavier Boscher – A New Child Is Coming 05:11
+03. Mlle Julie – Petite chanson pour un ange 03:19
+04. Deborah Hofer – Pour l’eternite 03:14(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219F903BFDA40974EFFC906AE11A699A2512D860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543864   (493411) от 06.09.2012
+
+VA - Best Of Chill Out 2012 (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stj Ft Liba - She Believes (Lazy Hammock Sunset Chill Mix) (05:25)
+002. Shympulz - Garten Der Erinnerung (Chillout Version) (04:56)
+003. Off Land - View Point (Recon) (10:15)
+004. Finist - Boat Trip (05:29)
+005. V I F & Lola Palmer - Hot Game (Olej Remix) (07:11)
+006. Marco Merelli & Massimo Salustri - Mental Reverse (07:20)
+007. Abendrot - Sonnenaufgang (04:41)
+008. Dj Inva - I Miss You (Radio Edit) (04:42)
+009. Bantunani - Decomposition (01:28)
+010. Aldo Brizzi - Holodrum (04:06)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE515BCE39A2800996CE3F78329533928F72AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318716   (492711) от 07.08.2019
+
+The Gino Marinello Orchestra - Digital Melodies: 16 Synthesizer Melodies (1988) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Electro>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene (2:38)
+02. Chariots of Fire (3:21)
+03. Tubular Bells (2:35)
+04. Aurora (2:15)(   Читать дальше...   )Жанр: Instrumental, Pop, ElectroПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02985FD0F2A0CC18B1C043B61CB97FA8FB7D8905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054906   (492485) от 20.09.2016
 
 Bernward Koch - Touched by Love (2016) [MP3|320 Kbps] <New Age, Piano>
@@ -606,151 +763,6 @@ Atom Music Audio - Legion (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17FA50C4D820A7E6B1655E07F21D121D536BEAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 383479   (486725) от 04.09.2011
-
-Billy Vaughn - 3 альбома (1987-2005) [FLAC|Lossless]<Instrumental | Orchestra | Sax>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486725.jpg" />
-</div>
-
-
-###  Подробнее
-
-1987 - The Best Of01. Spanish Eyes 		(02:28)
-02. Bridge over Troubled Water 	(04:03)
-03. Amazing Grace 		(02:27)
-04. Green, Green Grass Of Home 	(02:15)(   Читать дальше...   )Жанр: Instrumental | Orchestra | SaxПродолжительность: 02:46:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319262   (486692) от 10.08.2019
-
-Atom Music Audio - Singularity (2019) [MP3|320 Kbps] <Soundtrack, Synthwave, Cyberpunk>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyber Attack [02:13]
-02. Code Breaker [02:05]
-03. Undarkened [02:08]
-04. Into the Night [02:44](   Читать дальше...   )Жанр: Soundtrack, Synthwave, CyberpunkПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98330CCDA20BAAD47E478C569CC8976368E3455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319242   (486322) от 10.08.2019
-
-Various Artists - Sucker Punch (2011) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .cue] <Soundtrack, Electronic, Rock, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emily Browning – Sweet Dreams (Are Made Of This) (05:19)
-02. Björk – Army Of Me (Sucker Punch Remix) (feat. Skunk Anansie) (06:51)
-03. Emiliana Torrini – White Rabbit (05:09)
-04. Queen & Armageddon AKA Geddy – I Want It All / We Will Rock You (Mash-Up) (05:09)(   Читать дальше...   )Жанр: Soundtrack, Electronic, Rock, Stage & ScreenПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF51F01CA0081DB47248FFFC06026A0131BE2D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159199   (486247) от 19.08.2017
-
-Club di relax mentale - Esperienza rilassante (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Esperienza rilassante (03:31)
-02. Una spiaggia da sogno (03:31)
-03. Un mare di emozioni (03:33)
-04. Fuga romantica (03:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CB18AD8C261B2CEFDC979C0A0E2DFEF1501F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159330   (486129) от 19.08.2017
-
-VA - New Age Dimension (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silvio Piersanti - Mountains
-02. World Music Scene - Black Desert Dub
-03. Gilberto Medda - Flying High in the Sky
-04. Iffar, Klezan - Hybrid(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B21ECB421FE0B518E9503F200A34A503950D8B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

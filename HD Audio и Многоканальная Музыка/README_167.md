@@ -1,3 +1,148 @@
+###  Публикация: 1763229   (102850) от 30.11.2024
+
+Supernatural Blondes - Religion Of The Heart (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Some Love (3:56)
+02. Judas (4:10)
+03. Mercy (3:41)
+04. Young Hearts Run Free (3:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492A2AD7A48231BC6CDDCEC29FA7BE97050491F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763226   (102847) от 30.11.2024
+
+Confidence Man - 3AM (La La La) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance, Electropop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WHO KNOWS WHAT YOU’LL FIND? [00:03:35]
+02. I CAN’T LOSE YOU [00:02:35]
+03. CONTROL [00:03:44]
+04. SO WHAT [00:03:15](   Читать дальше...   )Жанр: Dance, ElectropopПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EB57C4416D1796AE1DF7543A6136D30C1FAC1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763307   (102846) от 30.11.2024
+
+Mors Subita - Studio Albums (5 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mors Subita - мелодик-дэт-метал группа из Оулу, Финляндия, основанная в 1999 году.2011 - Human Waste Compression
+2015 - Degeneration
+2019 - Into the Pitch Black
+2020 - Extinction EraЖанр: Melodic Death/Thrash MetalПродолжительность: 03:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE70EF7545436266A0D654A92DB5B4F033CB2F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763218   (102844) от 30.11.2024
+
+ProCaillass - Electro Swing: Cat Songs, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purrs of Yesterday (3:33)
+02. Whisker Waltz (1:30)
+03. Moonlit Cat Serenade (2:16)
+04. Tail of Time (3:30)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3E9F52365410376695FF64A92E2B9061C7C225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763235   (102841) от 30.11.2024
+
+Leo Sayer - 1992 (1992) Remastered, 2024, Crimson [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Was I Blue? [00:03:41]
+02. Wonderworld [00:06:27]
+03. Take a Walk with Me [00:04:15]
+04. Heaven [00:05:54](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF78EFCE0004BED62F5B6A13AA21663E70BEA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763221   (102835) от 30.11.2024
 
 Road JC - Rosa Escarlate (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -600,151 +745,6 @@ Babbba - Witty affair (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F83DA58451A1E7BD36B3B4882680097EB91EB5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764367   (101536) от 07.12.2024
-
-Jethro Tull - The Jethro Tull Christmas Album (Fresh Snow At Christmas) (2024 Remix) (2003) 2024, InsideOutMusic [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock, Folk Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Birthday Card at Christmas (2024 Remix) [3:41]
-02 - Holly Herald (2024 Remix) [4:18]
-03 - A Christmas Song (2024 Remix) [2:48]
-04 - Another Christmas Song (2024 Remix) [3:33](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAC9FBC4147EA644F0D35E48603A302ECB81B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764453   (101531) от 07.12.2024
-
-Tori Amos - Diving Deep Live (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God (Live 2024) [00:05:07]
-02. Ocean to Ocean (Live 2024) [00:09:28]
-03. Amber Waves (Live 2024) [00:05:07]
-04. Daisy Dead Petals (Live 2024) [00:03:50](   Читать дальше...   )Жанр: PopПродолжительность: 02:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F46984BC6DF2F699E67C7D006E2B8A761A0CBB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764473   (101526) от 07.12.2024
-
-Brazen Abbot - Bad Religion (1997) Remastered, 2024, Frontiers Records s.r.l. [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Whole World Is Crazy [00:05:00]
-02. Nightmares [00:04:52]
-03. Two Of Kind [00:05:36]
-04. I Will Rise Again [00:05:02](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962A7069B255BE2DDE5A79D97F71F3F6CE05D0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764462   (101525) от 07.12.2024
-
-The Old Dead Tree - Second Thoughts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unpredictable (3:33)
-02. Don't Waste Your Time (3:41)
-03. The Lightest Straw (4:32)
-04. Better Off Dead (1:54)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F241890893E970F2CEFAF77AEC45BA85F5338F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764678   (101521) от 08.12.2024
-
-King King Kings - Can't Keep from Crying (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tail Dragger (4:38)
-02. I Want to Be Loved (2:21)
-03. Just Your Fool (2:51)
-04. No Fightin' (4:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F3988026711A645EAFAE5E61FF76DA41C2B54B
 ```
 
 https://mybot314.ru/tekegram_catalog/

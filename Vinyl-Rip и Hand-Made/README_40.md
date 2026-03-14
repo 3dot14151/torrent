@@ -1,3 +1,119 @@
+###  Публикация: 1621149   (245044) от 23.03.2023
+
+VA («Червоны гитары», М. Родович, Д. Фардон, Саймон и Гарфанкель) - Не Задирай Носа (1972) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245044.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 «Червоны гитары» - Не Задирай Носа
+(С. Краевский – М. Гашинский)
+A2 Марыля Родович - Баллада О Поезде
+(А. Зелинский - А. Осецка)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550AF49E2C3A2B0C7F8826325B155A975903E1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624768   (244997) от 07.04.2023
+
+Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244997.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Human Beings 4:35
+A2 State Of Grace 4:59
+A3 Latest Craze 4:27
+A4 Just Like You Said 4:14(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621BB3724FC425A93AFF2836B39F31F87ADDA40B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624816   (244978) от 07.04.2023
+
+LondonBeat - Speak (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244978.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 There's A Beat Going On
+A2 Beat Patrol
+A3 Failing In Love Again
+A4 9AM (The Comfort Zone)(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06507D2E611CFFDD83FB9666FF9139CA25810404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631497   (244756) от 06.05.2023
+
+ВИА Экспресс - Экспресс 2 (Венгрия) (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244756.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Всегда мало времени
+A2 Наш вечер
+A3 Мы были друзьями
+A4 Ты ушла из моей жизни(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6922EF5C5E57799B1CF2C132CE43015CD11E02AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451637   (244688) от 05.03.2021
 
 ORM, Kamelie - Tropic (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
@@ -623,122 +739,6 @@ A4  Наваждение 3:32(   Читать дальше...   )Жанр: Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A9514D5598BBA53B05794638FFB68692CA58A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627568   (242870) от 19.04.2023
-
-Rockets - Plasteroid (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-
-01. Electric Delight 5:10
-02. Astral World 4:26(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381353635F50F0CE9630D9E2A81AA95AC0C0A7B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634170   (242866) от 19.05.2023
-
-Омский Симфонический Оркестр и Хор ОПИ - Моцарт – Реквием Ре Минор KV 626 (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242866.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I. Introitus, Requiem
-A2 II. Kyrie
-A3 III. Sequentia, No. 1 Dies Irae
-A4 III. Sequentia, No. 2 Tuba Mirum(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC52F838604E4303442A8DED893AE0B420EDC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634213   (242846) от 19.05.2023
-
-Оркестр БТ СССР, дир. М. Шостакович - Д. Шостакович - Балетные сюиты (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Д. Шостакович (1906-1975)
-Балетная сюита № 1
-A1 1. Лирический вальс, 2. Танец (Пиццикато), 3. Романс, 4. Полька, 5. Вальс-шутка, 6. Галоп
-Балетная сюита № 2(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA781E64704F4679FE3E8297E08D77DE7F7E729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627798   (242809) от 20.04.2023
-
-Васил Найденов & ФСБ - Адаптация (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Pop, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242809.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 А Дали Е Така • Так ли это
-A2 Малка Балада За Пловдив • Маленькаая баллада о Пловдиве
-A3 Пясъчен Часовник • Песочные часы
-A4 И Утре Е Ден • И завтра будет день(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A0EF948F1A68E406BCA6542E1D05245B67CB82
 ```
 
 https://mybot314.ru/tekegram_catalog/

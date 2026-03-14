@@ -1,3 +1,151 @@
+###  Публикация: 366000   (532734) от 25.07.2011
+
+Терминатор - The Terminator (1984-2009) [MP3|320 kbps]<Score, Soundtracks>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Score, SoundtracksПродолжительность: 07:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B1B34CB34EAB5C25BE155B78E9E89E250F1511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051554   (532694) от 11.09.2016
+
+VA - Now! - Country 11 (2016) [MP3|320 Kbps] <Country, Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blake Shelton - Sangria (3:54)
+02. Sam Hunt - Break Up In A Small Town (3:52)
+03. Chris Stapleton - Tennessee Whiskey (5:03)
+04. Zac Brown Band - Beautiful Drug (3:12)(   Читать дальше...   )Жанр: Country, PopПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706E7E51CCB8CE3CFF056DDA91FAA369FD30315F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051567   (532558) от 11.09.2016
+
+Kevin Kern - When I Remember (2016) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Should Waltz
+02. Once Upon a Time
+03. Say You Love Me
+04. Chance Encounter(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE61A1A1D4EB314D098D873E245C7EBE4F5CFA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051132   (532546) от 11.09.2016
+
+Dario Marianelli & Regina Spektor - Kubo and the Two Strings / Кубо. Легенда о самурае (2016) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Impossible Waves
+02. Kubo Goes to Town
+03. Story Time
+04. Ancestors(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069ACE10DD726C5265120A7C2839F026F6A6791F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533245   (532403) от 10.08.2012
+
+Blackmore’s Night - A Knight In York (2012) [WavPack|Lossless]<Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Locked Within The Crystal Ball (8:36)
+02. Glided Cage (4:18)
+03. The Circle (7:18)
+04. Journeyman (6:58)
+05. World of Stone (6:14)
+06. The Peasant's Promise (5:11)
+07. Toast to Tomorrow (4:49)
+08. Fires at Midnight (9:44)
+09. Barbara Allen (5:27)
+10. Darkness (3:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 819641   (531903) от 08.09.2014
 
 Jason Graves - Dead Space 2 (2011) Collector's Edition [FLAC|Lossless]<Score>
@@ -608,151 +756,6 @@ Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C85BE61C6878FF8102EBB8F67C76C6382DFAC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052282   (529249) от 13.09.2016
-
-Jim Brickman - Soothe, Vol. 1. Music To Quiet Your Mind and Soothe Your World (2015) [FLAC|Lossless|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly [00:05:41]
-02. Mist In The Moonlight [00:05:40]
-03. Seaside [00:04:25]
-04. Celestial Horizon [00:04:40](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D705898CCE388453F5F43C0AE9B6F5280E052BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052315   (529208) от 13.09.2016
-
-Jim Brickman - Soothe, Vol. 2: Sleep (2016) [FLAC|Lossless|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Setting Sun [00:05:55]
-02. Tranquility [00:05:17]
-03. Exhale [00:04:38]
-04. Slumber Deep [00:05:19](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E207D2606C9D7A8FCDF9B75C41E2CD8A99D83E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052361   (529132) от 13.09.2016
-
-Karunesh - Sun Within (2016) [MP3|320 Kbps] <New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeon (6:44)
-02. Lyria (4:56)
-03. Moola Mantra (8:59)
-04. Desert Traveller (6:24)(   Читать дальше...   )Производство: Oreade MusicЖанр: New Age, WorldПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629F8E8F7AD9E77F1D691623A6655109B4B5DDA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820080   (528814) от 10.09.2014
-
-Stefan Grossman - Those Pleasant Days (2004) 2 CD, Compilation [FLAC|Lossless|image+.cue] <Acoustic Guitar, Blues & Jazz Singer, Country Blues>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528814.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1
-01. So They Say [04:35]
-02. The Birthday Song [04:45]
-03. Odyssey [10:22](   Читать дальше...   )Жанр: Acoustic Guitar, Blues & Jazz Singer, Country BluesПродолжительность: 02:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9809F164FB4D93A848AE145ED99FB306E9F48E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240359   (528679) от 11.08.2018
-
-William Ogmundson - Simple Gifts (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Belladonna
-02 – Simple Gifts
-03 – Forever Drifting
-04 – Pharaoh’s Horses(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54EA76FAD372CDAE093C176EDC0DB74BCD661C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1368687   (909060) от 20.03.2020
+
+VA - Party Megamix Vol. 2 (1994) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Pop, Cover, MedleyПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8911E85A523940A23913F31C2FC4A01EA4E409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098762   (908940) от 30.01.2017
+
+Marquess - Frenetica (2007) [FLAC|Lossless|tracks] <Latin Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manana
+02. Vayamos Companeros
+03. En Espana
+04. You and not Tokio (feat. S.A.M.)(   Читать дальше...   )Жанр: Latin PopПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904BEDFEB74C29F5A6BA73B985790E838AFECB84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098284   (908876) от 30.01.2017
+
+Unspoken - Follow Through (2016) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Christian, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Higher  (03:28) 
+02|  The Cure  (03:29) 
+03|  Open the Clouds  (03:10) 
+04|  Miracle  (03:12) (   Читать дальше...   )Жанр: Christian, Pop, RockПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F37CE9119F0DC7C595007D164570515795D7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098845   (908872) от 30.01.2017
+
+Tomita Lab - Shipahead (2010) [FLAC|Lossless|tracks + .cue] <JPop, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy Taint (3:01)
+02. Pedro, Shouboushi to Sensuifu (feat. Motoharu Sano) (4:52)
+03. Shipahead (0:45)
+04. Yasoukyoku (feat. Hitomitoi) (5:46)(   Читать дальше...   )Жанр: JPop, JazzПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4819E755A27C0F182C0211C74FD7F856DB25E1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099093   (906782) от 31.01.2017
 
 Marian Hill - Act One (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic, Minimalist>
@@ -627,122 +740,6 @@ Johnny Hates Jazz - Tall Stories (1991) [FLAC|Lossless|image + .cue] <Pop Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBB5BE704569E9C4D24A2EF2A69578EF09D964DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994336   (891565) от 07.03.2016
-
-Gen X (Generation X) - Kiss Me Deadly (1981) Reissue, 2005, EMI [FLAC|Lossless|image + .cue] <Dance Punk, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий и последний альбом легендарной команды, после чего  Billy Idol активно занялся сольной деятельностью!01. Dancing With Myself
-02. Untouchables
-03. Happy People
-04. Heavens Inside(   Читать дальше...   )Жанр: Dance Punk, Pop RockПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58A6936617EDA7A51BEC9D89224D74947CA1D64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994277   (891546) от 07.03.2016
-
-VA - Die Hit-Giganten - Partyklassiker (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, House, Pop Rap>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvis vs. JXL - A Little Less Conversation (JXL radio edit remix) (3:33)
-02.Madness - Our House (3:22)
-03.The Clash - Should I Stay or Should I Go (3:09)
-04.Cyndi Lauper - Girls Just Want to Have Fun (3:47)(   Читать дальше...   )Жанр: Pop Rock, House, Pop Rap, Schlager, Disco, Synth-pop, Classic RockПродолжительность: 02:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8523C05AC6F6481588921C2CFB58874EF9CDC953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994372   (891442) от 07.03.2016
-
-Eighth Wonder - Fearless (1988) Reissue, 2010, Cherry Pop [FLAC|Lossless|image + .cue] <Pop, Dance Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cross My Heart
-02. When The Phone Stops Ringing
-03. Baby Baby
-04. Will You Remember?(   Читать дальше...   )Жанр: Pop, Dance PopПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2EE78715831661BDBF62BE14F1DFB114FD9B633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994417   (891322) от 07.03.2016
-
-VA - Die Hit-Giganten: Best of Disco (2013) Box Set, 3CD [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как видите стараниями коллег по клубу серия немецкого подразделения Sony Music продолжает жить на нашем трекере (ссылка на все релизы серии внизу поста). Пожалуй, именно у нас на трекере самое полное собрание этой серии. В данном боксете представлены хиты мира диско. Вспомним как это было!CD1:
-01. Boney M. - Daddy Cool  (3:28)
-02. Baccara - Yes Sir, I Can Boogie  (4:29)
-03. Patrick Hernandez - Born to Be Alive  (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 03:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89879A135FB66087933FA1A38E3CA8D84E5FFA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

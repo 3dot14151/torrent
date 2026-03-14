@@ -1,3 +1,32 @@
+###  Публикация: 1200790   (794507) от 22.01.2018
+
+VA - Top 50: Зайцев FM (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dimitri Vegas & Like Mike  -  Complicated (feat. Kiiara)  3:04
+02.  Serebro  -  В космосе  3:23
+03.  Post Malone feat. 21 Savage  -  Rockstar  3:38
+04.  Flying Decibels  -  The Road (Effective Radio Remix)  3:17(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B953D837199A31B8C86FF24D47AFB8D466FC1DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200788   (794506) от 22.01.2018
 
 VA - Дискотека 2018 Deep House - The Best Vol.4 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
@@ -717,35 +746,6 @@ VA - Music News vol.12 (2020) [MP3|320 Kbps] <Pop, Hard Rock, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BCF2EFC57134876216DB9BFF2907F0D1116CC41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123222   (792369) от 07.04.2017
-
-VA - The Best World Ballads - 32 (2017) [MP3|192-320 Kbps] <Pop, Rock, Blues, Rap, R'n'B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792369.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 The Cat Empire-The Lost Song 3:20
-002 Emeli Sande-Every Single Little Piece 4:03
-003 The Rideouts-Put The Blame On Me 4:08
-004 Lorde-Tennis Court 3:18(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 16:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7BE2C6EBF4B9ECDDC024B9D8C075B70E33C89CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

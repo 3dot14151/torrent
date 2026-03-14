@@ -1,3 +1,119 @@
+###  Публикация: 1063421   (432253) от 17.10.2016
+
+Tommy James & The Shondells - I Think We're Alone Now (1967) [FLAC|Lossless|image + .cue] <Beat, Garage Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Think We're Alone Now
+02. Trust Each Other in Love
+03. What I'd Give to See Your Face Again
+04. Baby Let Me Down(   Читать дальше...   )Жанр: Beat, Garage Rock, Rock & RollПродолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B527113C20C643B9327619706146591AAB5BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 399187   (432221) от 13.09.2017
+
+The Parlor Mob - 2 альбома, 1 EP (2008-2015) [FLAC|Lossless|tracks + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432221.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Parlor Mob - рок группа из Нью-Джерси, созданная в 2004 году.
+Объективный комментарий одного из поклонников "The Parlor Mob": "Неделю не вынимаю альбом из CD-чейнджера в машине (Dogs настоятельно требует приличного аппарата, но мой Марк Левинсон справляется), причем слушаю только его. Подряд. Честно, не думал, что ребята сделают что-то лучше замечательного (   Читать дальше...   )Список альбомов:
+2008 And You Were a Crow
+2011 DogsЖанр: Hard RockПродолжительность: 02:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD00D225127A7EE8DB27D0CF65FB136C9B3692B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571474   (431773) от 22.08.2022
+
+Carousel - Round & Round (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Surrender (3:38)
+02. 19 And Nervous (4:18)
+03. Remember (4:53)
+04. The Feeling Is Right (4:19)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F422A3ABD38BD83F2A9E0DB29F74636EFFD75C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571622   (431769) от 22.08.2022
+
+Shiloblaengare - Golden Book of Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (Shilos Vision)
+02 - Heal me
+03 - Crazy
+04 - High the Mugs(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD8B5DB70D295378C66FE5A7898BBB017985336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 708470   (430274) от 08.10.2013
 
 Nazareth - Close Enough For Rock'n'Roll (1976) remastered /2002, Eagle Records/ [FLAC|Lossless]<Hard Rock>
@@ -626,122 +742,6 @@ Acacia Avenue - Cold (2014) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:261E490D8A86EAB3E202A66617A4EEFAB74EADBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251078   (419963) от 30.09.2018
-
-Nazareth - Loud & Proud! Anthology (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dear John (2009 - Remaster) (3:47)
- 02. Spinning Top (3:07)
- 03. Hard Living (3:02)
- 04. Called Her Name (2009 - Remaster) (4:30)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 03:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B67BDDABA9E12075F19F6EB7BDD96152E29B383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167075   (419577) от 19.09.2017
-
-Josh Todd (of Buckcherry) & The Conflict - Year Of The Tiger (2017) [FLAC|Lossless|tracks] <Hard 'n' Heavy Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Year Of The Tiger 02:33
-02. Inside 03:04
-03. Fucked Up 03:41
-04. Rain 03:46(   Читать дальше...   )Жанр: Hard 'n' Heavy RockПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DA699672ECCDABA4E25AFAFBA2D593641AA3BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572460   (419481) от 28.08.2022
-
-Revival Black - Under The Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Believe
-02. Take You Out
-03. See You Again
-04. Broken Home(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE61507F21005109FED844CF31D137ECCC781C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572535   (419475) от 28.08.2022
-
-Sic Vikki - The Early Years (1985-1992) Compilation, Reissue, 2022, FnA Records [FLAC|Lossless|image + .cue] <Hard Rock, AOR, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blow Me Away (3:41)
-02. Love Only Happens Once (3:27)
-03. Never Too Late (3:26)
-04. Want You (3:03)(   Читать дальше...   )Жанр: Hard Rock, AOR, GlamПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C61AC68A5AF69EDE02CF74C5A6FFFD18C24AC339
 ```
 
 https://mybot314.ru/tekegram_catalog/

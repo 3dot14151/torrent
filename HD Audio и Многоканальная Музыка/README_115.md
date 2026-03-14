@@ -1,3 +1,146 @@
+###  Публикация: 1715369   (111574) от 12.04.2024
+
+Blue Oyster Cult - Ghost Stories (2024) [FLAC 16/24|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Late Night Street Fight (3:26)
+02. Cherry (2:39)
+03. So Supernatural (5:56)
+04. We Gotta Get Out Of This Place (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC94A5DCB3CD9CB216F792C7AF656ABEF6C256E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715607   (111537) от 12.04.2024
+
+Jay Heye - Smooth & Easy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Lounge Resort (4:59)
+02. European Cruise (4:47)
+03. Cool Catwalk (4:23)
+04. Loungesession (4:19)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC639E0420902F9A36968BCCBD0FCF963996DD88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715806   (111511) от 13.04.2024
+
+Linkin Park - Papercuts (2024) Singles Collection 2000-2023 [FLAC 24/44.1, 48.0, 96.0 kHz|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawling (3:29)
+02. Faint (2:42)
+03. Numb / Encore (3:26)
+04. Papercut (3:04)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, RapcoreПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2457AF5146E7828220272A26B645F3C71BDE0213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715823   (111472) от 13.04.2024
+
+Armin van Buuren - Breathe In (2024) Extended Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Techno, Progressive Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Forever (Stay Like This) (Extended Mix) [4:12]
+02 - God Is in the Soundwaves (Extended Mix) [3:36]
+03 - Love Is a Drug (Extended Mix) [5:23]
+04 - Lose This Feeling (Extended Mix) [4:10](   Читать дальше...   )Жанр: Electronic, Techno, Progressive TranceПродолжительность: 01:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9EFA173BCFA654C13228FA51E406D156C6AD4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715848   (111466) от 13.04.2024
+
+S-Tool (Severing Tool) - Studio Albums (2 releases) (2017-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111466.jpg" />
+</div>
+
+
+###  Подробнее
+
+S-Tool (или Severing Tool) — финская хэви-метал группа, базирующаяся в Оулу/Лахти/Хельсинки. Основана в 2015 году бывшим фронтменом2017 - Tolerance 0
+2020 - ExitusЖанр: Groove MetalПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8980719678D04F84F44C138422433D0A65FC56F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716016   (111450) от 13.04.2024
 
 Black Country Communion - Red Sun; Stay Free (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -592,151 +735,6 @@ Kevin & JD - Island Of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76392E76F3AE7556626A74610CCAF4BC15D2FAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716779   (111305) от 17.04.2024
-
-Citron - Tropic Of Cancer/Full Of Energy (1983/1986) 2xLP [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Heavy Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1:
-01. Heart Of Steel
-02. Garden Party
-03. Let My Of Myself(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95CB92998D1079A31829EBE1339C27B851B056E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716810   (111301) от 17.04.2024
-
-Void Chapter - humAnIty (2023) Deluxe, 2024, FiXT[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic Rock, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. humAnIty is the new A.I. (Instrumental) [00:00:35]
-02. Diabolic (Extended) (Instrumental) [00:04:31]
-03. Resist (Extended) (Instrumental) [00:05:04]
-04. Reclaimer (Extended) (Instrumental) [00:05:16](   Читать дальше...   )Жанр: Electronic Rock, Industrial MetalПродолжительность: 2 CD, 02:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54360154BC4C291E766C629350D43EC27537FCD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717046   (111290) от 18.04.2024
-
-Crimson Train - Crimson Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long roads (3:49)
-02. Morning star (4:15)
-03. The price of gold (4:30)
-04. Crimson train (3:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07309698E518485D60843C940C0DFBCFF48C2F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717080   (111287) от 18.04.2024
-
-Bless Her Evil - We Are Mystery... (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Brother The Crow (03:32)
-02 - The Moon Upside Down (04:16)
-03 - Dark Cluster (03:58)
-04 - Life (04:52)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1301FD59D98EEAC7EE75690FA753A332798BB8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717167   (111279) от 18.04.2024
-
-Vella la Vella - Revolution (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.M.F (3:40)
-02. Crush On You (3:05)
-03. Revolution (3:37)
-04. Blonde, Bad and Beautiful (3:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991350FF2B92A5513DC94FE0001D527AB0295A65
 ```
 
 https://mybot314.ru/tekegram_catalog/

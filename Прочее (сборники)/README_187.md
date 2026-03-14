@@ -1,3 +1,32 @@
+###  Публикация: 1764470   (34900) от 07.12.2024
+
+VA - Music News For Forum vol.050 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34900.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Зара feat. Александр Панайотов - На краю весны (03:43)
+ 002. AetoOn - Табун (02:53)
+ 003. ALI.Y - Грехи (02:34)
+ 004. ANDZORik - Моя звезда (02:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EAB22052E5FFEA3FFEB2C74CB197678DE9EC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764572   (34893) от 07.12.2024
 
 VA - Musical kaleidoscope part 15 Electronic, Instrumental, Easy listening (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
@@ -716,35 +745,6 @@ VA - Top Of Favorite Tracks (2025) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:108A90F7B3B0F1720C6C27E19FB797136B8A53E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776414   (28985) от 01.02.2025
-
-VA - Music News For Forum vol.058 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28985.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Katusha Svoboda - Ой (02:50)
- 002. AFBEAVERS - Стоит ли (04:06)
- 003. Akha - Моя (02:09)
- 004. Akris & Teddy - Черные глаза (02:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8207B850324833A3B2F39ECCC418BD558324E333
 ```
 
 https://mybot314.ru/tekegram_catalog/

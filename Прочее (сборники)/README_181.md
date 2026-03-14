@@ -1,3 +1,32 @@
+###  Публикация: 1709073   (62037) от 23.03.2024
+
+VA - ЕвроХит Топ 40 Europa Plus 22.03.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - Yes, And (3:35)
+02. Моя Мишель - Ветер Меняет Направление (2:46)
+03. Alan Walker feat. Daya - Heart Over Mind (3:09)
+04. Justin Timberlake - Selfish (3:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DC26CC3B00EB22C86B1EC079C32A51E8E21095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709178   (62024) от 23.03.2024
 
 VA - Music News vol.355 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Music News vol.375 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D71872327EEF0588CAD743ED291668B5AD3CACB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722623   (56584) от 14.05.2024
-
-VA - РАДИО БАТЯ - 004 (2024) [MP3|320 Kbps] <Different genres>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56584.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:16] 01. Modern Heroes - Moment Of Love
-[4:04] 02. Комиссар - Эти глаза
-[3:57] 03. Евгений Осин - Не верю
-[3:45] 04. Bad Boys Blue - Sooner or Later(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80A7494C33CA2604B4DDC826E37ED615F4ECFE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

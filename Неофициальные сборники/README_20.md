@@ -1,3 +1,90 @@
+###  Публикация: 1623426   (1029394) от 01.04.2023
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver. 124 (2023) [MP3|320 Kbps] <Club, Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+01. Benny Benassi, Chris Nasty & Constantin - Make Some Noise
+02. Dubdogz & Zuffo & Rhoden - Mission Impossible (Extended Mix)
+03. Dj Kuba & Neitan x Bounce Inc - Work My Body (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 06:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3D52F4768325905D2BA2217C8ED7E698BEBE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623454   (1029364) от 01.04.2023
+
+VA - Дискотека 2023 Dance Club Vol. 218 [NNNB] (2023) [MP3|320 Kbps] <Dance, House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+[3:07] 001. Morgan Page feat. TELYKast - Dancing All Alone
+[2:15] 002. Tiesto - All Nighter
+[2:24] 003. Lolita Jolie feat. Rob x Chris x Rocco - Ella Elle La(   Читать дальше...   )Жанр: Dance, House, Trance, Pop, ChillПродолжительность: 12:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC1A36FAA9C5AC75AAF26E4FDCC5FBD03EC5136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623444   (1029363) от 01.04.2023
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver. 126 (2023) [MP3|320 Kbps] <Club, Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+01. Aazar - That Thing (Original Mix)
+02. AC-DC x EwellicK, Dimax White   - Thunderstruck 23 (Dj Baur VIP Edit)
+03. Akcent - Kylie (Jenia Smile & Ser Twister Remix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 05:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00CFE7AEA600227119136C24296FEF6B0642ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449486   (1029304) от 24.02.2021
 
 VA - Music Collection. From West To East (1991-2016) [MP3|320 Kbps] <New Age, Enigmatic, Electronic>
@@ -658,93 +745,6 @@ VA - Organic EDM Dance Party (2021) [MP3|320 Kbps] <House, Dance, Club, Techno, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:500A5A57B9ED3D2B3F6CD7C62F6D484D1AF1A85F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451525   (1028241) от 03.03.2021
-
-VA - Melodic Synthpop Release (2021) [MP3|320 Kbps] <Synthpop, Electropop, Pop Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это музыкальное направление, ежегодно дарящее миру новых звезд, без которых невозможно представить себе современную эстраду. Особенность этой музыки это эксперимент и отсутствие строгих рамок и шаблонов. Порой это чувственные и трепетные композиции, порой ритмичные и танцевальные.001. Golin - Play Odds
-002. Elektrotechnika - Olivia
-003. Mondtraeume - Free
-004. Stephen Paul Taylor - Gdmf(   Читать дальше...   )Жанр: Synthpop, Electropop, Pop DanceПродолжительность: 11:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6CD5BE6D5C182A23BF96BAB04FE4E9D0C675B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451524   (1028239) от 03.03.2021
-
-VA - House Garden Music: Deep Session (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшее средство от депрессии и подавленного настроения - музыка сборника от House Garden Music! Композиции могут похвастаться великолепной атмосферой позитива и тонким чувством стиля. Альбом буквально полностью пропитан легкими нотками романтики и танцевального духа. Хорошая работа во всех смыслах. Приятного прослушивания!01. Jt Donaldson - Untied
-02. Sharam - Do Ya
-03. Gerah - Iris (Original Mix)
-04. Wolf Story - Peak(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F228C322313BDE296D87988BDE16AF951A07754B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451523   (1028238) от 03.03.2021
-
-VA - EDM Neon Hypnotic (2021) [MP3|320 Kbps] <EDM, House, Techno, Electro, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неоновые люди, неоновые предметы, неоновые танцы. Флуоресцирующие лица, летающие неоны всех цветов радуги, полумрак и манящий клубный саунд! А главное, стойкое ощущение чего-то совершенно инопланетного, загадочного и фантастического.001. Alex Dolby - White River
-002. Al Mar - Eleven Seconds
-003. Space Afrika - Untitled
-004. Ed Bronx - Dark Matter(   Читать дальше...   )Жанр: EDM, House, Techno, Electro, ClubПродолжительность: 11:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356B5799DC88079996B71484EBCD56E9847D5C6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

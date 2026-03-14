@@ -1,3 +1,148 @@
+###  Публикация: 1579216   (336482) от 27.09.2022
+
+Монгол Шуудан - Чересчур. (1995) Реконструкция, 2022, Navigator Records [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не моя забота [00:03:07]
+02. Пение ветра [00:03:48]
+03. Птица фортуна [00:03:26]
+04. Олух царя [00:04:26](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71AA6BCF1421B28130796F29BC7518B3A4586CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330830   (336463) от 12.10.2019
+
+Воскресение - Grand Collection (2005) Compilation [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кто Виноват? (4:18)
+02. По Дороге Разочарований (5:23)
+03. Лето (3:07)
+04. Так Бывает (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E089AB8DCD19EE7FC7507E1099B7B9B4970247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258353   (336427) от 30.10.2018
+
+Пикник - Родом Ниоткуда (1988) Reissue, 2010, Вектор [FLAC|Lossless|image + .cue] <Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я невидим (6:03)
+ 02. Интересно (5:36)
+ 03. Нет берегов (5:08)
+ 04. Романс (2:25)(   Читать дальше...   )Жанр: Art-RockПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2629DCE5B900C4156CBDD3B3F94033AB771E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579284   (336414) от 27.09.2022
+
+ACEtone - Я всё равно останусь здесь (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acid One [00:03:09]
+02. Зиплок [00:03:33]
+03. По краю [00:03:22]
+04. Моя ойран [00:04:20](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9805470C34FD9D41F76703155F7C60108EB4DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953309   (336178) от 30.10.2018
+
+Братья Торч (группа "Сексуальные меньшинства") - Некрофилия (Холодная десятка) (1996) [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. НЕКРОДУКЦИЯ (Пролог на крышке гроба)
+02. Position number five ("Живая ты не в кайф...")
+03. Трупья коробка:
+а)" В каком неведомом гробу?"(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B0F0A983CFA2CC46360214E9688680A3D3E3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579131   (334574) от 28.09.2022
 
 Zmey Gorynich - Vжица (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Deathcore>
@@ -602,151 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1878379E574FB6B21F0C5422C79F3D74468F7A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181356   (323632) от 07.11.2017
-
-Хозяин Ключа - Вирус ''R-n-R'' (1995) [APE|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Религия
-02 - АвтоПилот
-03 - Я улетел
-04 - Про тебя(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D13AF3F01EAC592C6DBB60023FC248524229EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582266   (323575) от 09.10.2022
-
-След Пепла - Шёпот темноты (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шёпот темноты [00:01:47]
-02. Женщина в чёрном [00:05:33]
-03. Дом в овраге [00:04:48]
-04. Инстинкт зверя [00:04:33](   Читать дальше...   )Жанр: Modern Metal, Groove MetalПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EAA6ED20E08442D5716CAFF7D234FE90904DA0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582262   (323486) от 09.10.2022
-
-Электрозомби - Жизнь после смерти (2022) [FLAC|Lossless|WEB-DL|tracks] <Horror punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ААА! [00:00:34]
-02. Побег из психушки [00:02:47]
-03. Русская история ужасов [00:03:34]
-04. Чупакабра [00:01:20](   Читать дальше...   )Жанр: Horror punkПродолжительность: 00:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561E38DA78894196D214BCB6AFAF89CEC130F05D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582346   (323472) от 09.10.2022
-
-Павел Пиковский - одна дорога - свет (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323472.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. одна дорога — свет
-2. яблоня
-3. фифти-фифти
-4. лазарь(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4115BB0BF5503063E1BF5FDA1987FA8E628141ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582306   (323351) от 09.10.2022
-
-Электропартизаны - 12 Albums (2005-2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дискотека на карантине [00:04:58]
-02. Шум Земли [00:03:33]
-03. Прощай, оружие! [00:04:18]
-04. Через вселенную [00:03:25](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780FF86D2A02EA261A1E1C5E88C84C13CC8ABFE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

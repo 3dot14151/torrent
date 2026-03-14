@@ -1,3 +1,90 @@
+###  Публикация: 1091838   (941746) от 10.01.2017
+
+VA - Resident Advisor Top 50 Charted Tracks December 2016 (2017) [MP3|204-320 Kbps] <Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Butch, C.Vogt - Bliss (Original Mix) 07:21
+02. Full Intention - Keep Pushing (Original Mix) 06:28
+03. DJ Koze - Driven (Original Mix) 06:39
+04. Pig&Dan - Chemistry (Original Mix) 08:16(   Читать дальше...   )Жанр: Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech HouseПродолжительность: 06:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2DEC81D39E9B98184661B4188DFAA5D85A90529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983821   (941704) от 07.02.2016
+
+VA - Радио ENERGY (NRJ) часть 2 (2009-2016) [MP3|320 кб/с] <Dance, Pop, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 99 Souls & Destiny's Child & Brandy - The Girl Is Mine (03:02)
+02. Above & Beyond & Gareth Emery Pres. OceanLab - On A Good Day (Metropolis) (07:53)
+03. Adam Lambert - Ghost Town (03:21)
+04. Akcent - Faina (DJ Nejtrino & DJ Baur Radio Mix) (03:09)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 05:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8229FDA20B096A569A2E58A49C0D1A336771977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091753   (941687) от 10.01.2017
+
+VA - Melody Across The World Dreams (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Harmonic, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941687.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Sound Apparel - Making End Of Heart Tale (2016 Remaster)  12:13
+002.  Allen & Envy With Cari - Promises (Original Mix)  6:35
+003.  ReOrder - Across The World (Original Mix)  5:41
+004.  Alternate High - Hero (Etasonic Remix)  8:57(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Harmonic, EnergyПродолжительность: 13:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A26A69193A493B5862321C6B6FB252A92AC4DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091851   (941686) от 10.01.2017
 
 VA - Empire Records - Dancenudisco 3 (2017) [MP3|256-320 Kbps] <Disco, Dance, Nu-Disco>
@@ -658,93 +745,6 @@ VA - Убойные хиты от радио Шансон Выпуск № 8 (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:027261DE9324E52B3B348966E99B7BEB1C146BF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092070   (940269) от 11.01.2017
-
-VA - Best Of Electronic And Progressive Sound (2017) [MP3|320 Kbps] <Big Room, Drum & Bass, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940269.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.&ME, Rampa, Nomi Ruiz, NR& - Taste Like (Original Mix)
-002.&ME - Cape Coast (Original Mix)
-003.808 State - In Yer Face (Bicep Remix)
-004.Above & Beyond, Justine Suissa - Little Something (Super8 & Tab Remix)(   Читать дальше...   )Жанр: Big Room, Drum & Bass, Future HouseПродолжительность: 23:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAEFD5BA49E8D6A6C3641C3D68A96022AA2ED802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092146   (940268) от 11.01.2017
-
-VA - Official House Around Hits (2017) [MP3|320 Kbps] <House, Future House, Tropical, Funky, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Maddix & Jayden Jaxx - Voltage  3:05
-02.  Naxwell - The Game (Radio Mix)  3:21
-03.  DLC - Found (Original Mix)  6:35
-04.  Dave Winnel - Old School (Extended Mix)  4:18(   Читать дальше...   )Жанр: House, Future House, Tropical, Funky, ElectroПродолжительность: 04:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC993B8B8A11238C206BC76C98E3997925335836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984280   (940170) от 08.02.2016
-
-VA - Top Club Music World Hits 10216 (2016) [MP3|320 кб/с] <Club, Progressive, House, Tropical, Bigroom>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatum & Judah - Ardan (Original Mix) 06:02
-02. Vander & Thomas - Not Gonna Take This 06:12
-03. Courage - Delusion (Original Mix) 05:30
-04. Bastian Salbart - Hold (Original Mix) 06:05(   Читать дальше...   )Жанр: Club, Progressive, House, Tropical, BigroomПродолжительность: 03:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DA26E0999C8BB8A70467D07FB072FCB77EA63B
 ```
 
 https://mybot314.ru/tekegram_catalog/

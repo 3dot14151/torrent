@@ -1,3 +1,119 @@
+###  Публикация: 1228179   (639015) от 30.05.2018
+
+Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Vision (5:11)
+02. A Kind Of Magic (4:24)
+03. One Year Of Love (4:29)
+04. Pain Is So Close To Pleasure (4:23)(   Читать дальше...   )Производство: EMI Records - EU 3509Жанр: RockПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964A0913C93D40DAAAE7739E56ED680BF285240E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 801018   (638409) от 30.06.2014
+
+Quiet Riot - QR III (1986)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638409.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Main Attraction (4:44)
+A2. The Wild And The Young (3:40)
+A3. Twilight Hotel (4:37)
+A4. Down And Dirty (3:17)(   Читать дальше...   )Жанр: Glam MetalПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8619B09483285023A9B4DDFAA0EB8077D2D7E125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795044   (634547) от 02.07.2014
+
+The Who - It's Hard (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634547.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Athena (3:49)
+A2. It's Your Turn (3:41)
+A3. Cooks County (3:50)
+A4. It's Hard (3:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AC978D6E1368640A97A44485C38DC0D957C652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543215   (631375) от 10.04.2022
+
+Аида Ведищева и Ансамбль п/у В. Людвиковского - Александр Зацепин – Музыка Из Кинофильма «Кавказская Пленница» (1967) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Soundtrack, Theme, Score>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631375.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Аида Ведищева – Песенка О Медведях
+А2 Ансамбль под упр. В. Людвиковского – Дорога
+В1 Ансамбль под упр. В. Людвиковского – Встреча
+В2 Ансамбль под упр. В. Людвиковского – На Танцевальной Площадке(   Читать дальше...   )Жанр: Soundtrack, Theme, ScoreПродолжительность: 00:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CF10AA50B300402F89823344E282237B761DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543465   (629373) от 11.04.2022
 
 Муслим Магомаев - Сумерки Зеленые/Прощай, Любовь Моя (1983) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
@@ -626,118 +742,6 @@ Queen - Hot Space (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD7841371A88F4E0F2E1E81CD4B2F373FF0B96D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072817   (620203) от 16.04.2022
-
-Джаз-квинтет п/у Я. Валясека - Импровизированный джаз (1955) Shellac-78rpm [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чай Вдвоём, фокстрот
-02. Знаю одно средство, фокстротЖанр: JazzПродолжительность: 00:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D336984AC1CB96C0F77ACC92BDF252DE8FDFFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071518   (620201) от 16.04.2022
-
-Концертный Ансамбль п/у Фердинанда Криша - Записи 1941 года (1951) Repress [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Latin, Tango, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Танго соловья, солист Таиса Савва (художественный свист)
-02. Романтическое тангоЖанр: Latin, Tango, RetroПродолжительность: 00:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F9E024105677E772DF14B445D007991E7D08F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059522   (620053) от 16.04.2022
-
-Roxy Music - Flesh + Blood (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]  <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620053.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 In The Midnight Hour
-A2 Oh Yeah
-A3 Same Old Scene
-A4 Flesh And Blood(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B83BAB6E66B9436BADA4446EFB99F23D9659D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846687   (620042) от 16.04.2022
-
-Николай Басков - Посвящение... (2000) [FLAC|Lossless]<Pop, Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620042.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Памяти Карузо
-A2	Гранада
-A3	О, Натали...
-A4	История Любви(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E65B9B856742027C7E9D86F3727932BD599739
 ```
 
 https://mybot314.ru/tekegram_catalog/

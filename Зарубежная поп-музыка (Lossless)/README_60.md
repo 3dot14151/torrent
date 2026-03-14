@@ -1,3 +1,148 @@
+###  Публикация: 949202   (379467) от 22.10.2015
+
+Al Bano & Romina Power - Felicita (1985) Gold Serie [FLAC|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felicita (1983) [3:14]
+02. Prima notte d'amore (Enlaces sur le sable) (1983) [2:54]
+03. Sharazan (1983) [4:25]
+04. L' amore e (1983) [3:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3101CE00F90F20267A4635DC7D0399DA4DC072AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575090   (379221) от 08.09.2022
+
+VA - Now Yearbook '80 Extra (2022) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul ...>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379221.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Queen – Flash
+02. Blondie – Call Me
+03. Kate Bush –	Army Dreamers(   Читать дальше...   )Жанр: Pop, Funk, Soul ...Продолжительность: 03:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11C73C703E62B56DE86E3C28029BA5623B6E590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949286   (377585) от 23.10.2015
+
+The Beloved - The Sun Rising (2005) [FLAC|image+.cue]<House, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sun Rising
+ 02. Your Love Takes Me Higher
+ 03. Wake Up Soon
+ 04. Up, Up and Away(   Читать дальше...   )Жанр: House, PopПродолжительность: 1:03'00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E24D3F0A46DB1BDB50CE84F125482904FF9176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949509   (377575) от 23.10.2015
+
+The Beloved - Conscience (1993) [FLAC|image+.cue]<House,Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit (4:46)
+02. Sweet Harmony (5:04)
+03. Outerspace Girl (4:49)
+04. Lose Yourself In Me (4:33)(   Читать дальше...   )Жанр: House,PopПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E5877CE01DEFD888CC9E514F3DDF072FB64771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254146   (377520) от 12.10.2018
+
+General Lafayette - Jester (1993) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377520.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Oh My Beloved Father
+2.	The Power Of Music
+3.	Love In The Eyes Of A Child
+4.	Blow The Trumpet At The New Moon(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7F5807719B1A47C4AD26CD25B25B9DC036607D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254165   (377519) от 12.10.2018
 
 General Lafayette - King Of The Broken Hearts (1999) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
@@ -605,151 +750,6 @@ Luv' - Dance medley (1993) [FLAC|Lossless|image + .cue] <Pop, Europop, Medley>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67040BF1831377C6C4DDBA89E57BF6FA2B375245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952202   (358089) от 31.10.2015
-
-Eros Ramazzotti - Eros 30 (2014) 2CD [FLAC|tracks + .cue]<Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nada Sin Ti (5:04)
-02. Si Bastasen Un Par De Canciones (5:08)
-03. Cosas De La Vida (4:49)
-04. La Cosa Mas Bella (4:26)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 02:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FA5904CDFC64C50378D7E6FB4ED9E90129C090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577404   (356771) от 18.09.2022
-
-VA - Decades Back To The 2010s (2021) Box Set, 3 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну что ж, переместимся на десяток лет назад. Такую машину времени нам предоставила Sony Music своим релизом из трех дисков. Казалось бы не так уж времени много прошло с начала 10-х годов, а многие треки уже и подзабылись, хотя ещё не так давно мы их крутили по несколько раз в день. Вот теперь появилась возможность вспомнить их все в "одном флаконе". Наслаждайтесь (   Читать дальше...   )CD1:
-01. Lewis Capaldi - Someone You Loved  (3:03)
-02. George Ezra - Paradise  (3:42)
-03. Billie Eilish - bad guy  (3:14)(   Читать дальше...   )Тип издания: Box Set, 3 CDРелиз состоялся: 30 июля 2021 годаЖанр: Pop, Rock, DanceПродолжительность: 03:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0DE5BF903914B5A7001B682BF7C151C0152FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178636   (356264) от 28.10.2017
-
-Fernando Express - Die Konige der Tanzpalaste (1998) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356264.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In Rio de Janeiro
-2. Serenata d'Amore
-3. Es war einmal in San Juan
-4. Sommertraume(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127425DC192D9453BC3857182807093474375B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952538   (355718) от 01.11.2015
-
-Belinda Carlisle - The Very Best Of (2015) 2CD [FLAC|image + .cue]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Is A Place On Earth [03:54]
-02. Circle In The Sand [03:42]
-03. (We Want) The Same Thing [03:58]
-04. Runaway Horses [04:13](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE60993D9EED0F837D97773F79BAE1709A6A1731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329234   (354594) от 04.10.2019
-
-City and Colour - A Pill for Loneliness (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living in Lightning (03:19)
-02. Astronaut (06:01)
-03. Imagination (05:47)
-04. Difficult Love (04:04)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC83A737FBAF4FC474B69DEE20A6979D34435187
 ```
 
 https://mybot314.ru/tekegram_catalog/

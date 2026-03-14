@@ -1,3 +1,148 @@
+###  Публикация: 1084110   (219597) от 18.12.2016
+
+Nautilus Pompilius (Наутилус Помпилиус) - Архив. Цифровая реставрация оригинальных записей (1983-2001) 23CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219597.jpg" />
+</div>
+
+
+###  Подробнее
+
+1983 - Переезд (1997)
+1985 - Невидимка (1997)
+1986 - Разлука (1998)
+1987 - Подъем (Таллинн 87) (1997)Жанр: RockПродолжительность: 18:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF75C7BB770F5D4F7DFC8CF44FEA363A7D43B20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586149   (218400) от 25.10.2022
+
+Demons of Guillotine - 4 Albums (2004-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вега (Intro) [00:01:10]
+02. Ангелы гекатомб [00:03:34]
+03. Закрытая акватория [00:03:24]
+04. Ад пополам [00:03:48](   Читать дальше...   )Жанр: Heavy Metal, Black MetalПродолжительность: 4 CD, 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E78D81FE43DCF2488E2A8DA391A872EA795A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585960   (218373) от 25.10.2022
+
+Morpheus - Духи Чумы (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одержимый Смертью
+02. Гниющий Алтарь Бездушных Владык
+03. Путь Проклятых
+04. Месса Хаоса(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA398527868F4648612B3A891424F99F80D3D381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585945   (218201) от 25.10.2022
+
+The PlayStations - X (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore, Post-Hardcore, Trancecore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бесконечная ночь
+02. X
+03. Феникс
+04. Пусто(   Читать дальше...   )Жанр: Alternative, Metalcore, Post-Hardcore, TrancecoreПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E6813A5960BAABC0A5E4C48ACD253D1647F213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 383640   (217761) от 22.11.2020
+
+Мара - 220V (2005) Никитин ТФН-CD 307/05[FLAC|image + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Schlesser (4:10)
+02. Не Увиделись Больше (4:09)
+03. Невзаимная Любовь (4:21)
+04. Трубочный Табак (2:42)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6C60C4ED8E39A8705485E47DFEF7DE9FB610ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586269   (217045) от 26.10.2022
 
 Kiara - Archangel (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
@@ -601,149 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BA9F2605875F4FCD648A8C7D3D51C6F144D5C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645718   (209066) от 13.07.2023
-
-Моральный кодекс - Ты же знаешь (2023) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ты же знаешьЖанр: RockПродолжительность: 00:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCEDE9D5D179D260DFD6502AC84CDFAF3E8CD50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646003   (209065) от 12.07.2023
-
-Юрий Шевчук, Дмитрий Емельянов - Волки в тире (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Родина, вернись домой [00:04:34]
-02. Волки в тире [00:03:54]
-03. Танцы [00:04:59]
-04. Надежда [00:02:26](   Читать дальше...   )Жанр: RockПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C08207CAA6CF64CD23872D0ADAD148C3B28C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608183   (208642) от 30.01.2023
-
-Воскресение - Юбилей с симфоническим оркестром (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основой для релиза послужил концерт состоявшийся в ГЦКЗ «Россия» в 2009 году.
-Это выступление было приурочено к 30-летию коллектива. Музыканты играли под аккомпанемент симфонического Оркестра имени Маймонида.01. Радуюсь
-02. Не торопясь
-03. Марсианская
-04. Атлантида(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AAAAEC3D30ACAF2F809F158C3205C0620451893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608911   (208496) от 01.02.2023
-
-Юрий Шевчук и группа ДДТ - Сборник песен (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Агидель (Белая Река)
-02. В Последнюю Осень
-03. Просвистела
-04. Что Такое Осень(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C232BCF6DEB690EA7FA0BF8A4A9AD7FBCF63208F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648051   (208303) от 21.07.2023
-
-Пётр Мамонов, Звуки Му - Незнайка (2022) 3 x CD [FLAC|Lossless|image + .cue] <Rock, Avantgarde, Post-punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208303.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - (Незнайка. Студия, 2013-2020):
-01. Интро
-02. Пилюлькин
-03. Тюбик(   Читать дальше...   )Жанр: Rock, Avantgarde, Post-punkПродолжительность: 02:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E95697D32F7399DFE0E0F27F6C7A355B850D8D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

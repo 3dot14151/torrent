@@ -1,3 +1,61 @@
+###  Публикация: 1194606   (153419) от 26.12.2017
+
+VA - 100 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect
+02. Portugal. The Man - Feel It Still
+03. Sam Smith - Too Good At Goodbyes
+04. Naaz - Up To Something(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1840C65B54FBC39CD7E4F7371B8088313580A129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194607   (153256) от 26.12.2017
+
+Ivan Dorn (Иван Дорн) - 4 альбома (2012-2017) [MP3|320 Kbps] <Pop, Soulful, Funk, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153256.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 - Co'n'Dorn (2 CD)
+2014 - Randorn (Deluxe)
+2017 - Jazzy Funky Dorn  (Live)
+2017 - OTDЖанр: Pop, Soulful, Funk, DanceПродолжительность: 05:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1222EAEA7024408B41CB4BAADD352B51AFEFD848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086486   (152657) от 24.12.2016
 
 Jeanette - 3 Albums (1976-1984) LP [MP3|320 Kbps] <Latin, Pop>
@@ -684,64 +742,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9D0CA91E2BE52B92AE94ECB58F22316462E50B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968631   (147610) от 27.12.2015
-
-Артем Пивоваров - Океан (2015) [MP3|192-320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нирвана
-02. Мы Молоды
-03. Океан
-04. Зависимы(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25166EC85B08CCB3A1BFB6757EF7CB78420D668F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677991   (147468) от 20.11.2023
-
-VA - Hit News Vol. 1'96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fun Factory - Doh Wah Diddy
-02.  Sonic Dream Collective - Oh, Baby All
-03.  Solid Base - Mirror, Mirror
-04.  Fontana - Memories(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C054BFC941A6EC19DEB3D9C8E559E610A50D9A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 949577   (372876) от 25.10.2015
+
+Clutch - Psychic Warfare (2015) [FLAC|tracks+.cue]<Southern Rock /Hard Rock /Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Affidavit (0:25)
+02. X-Ray Visions (3:42)
+03. Firebirds! (3:00)
+04. A Quick Death In Texas (3:57)(   Читать дальше...   )Жанр: Southern Rock /Hard Rock /StonerПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7DA7EEE3EBF210333D2520F75B57FC16066723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254537   (372819) от 14.10.2018
+
+Nazareth - Tattooed On My Brain (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Dance With The Devil
+02. Tattooed On My Brain
+03. State Of Emergency
+04. Rubik's Romance(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB09F03FF65C6C657C7474DBBA0DF888AD065A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949863   (372583) от 25.10.2015
+
+Gary Moore - Out In The Fields - The Very Best Of (1998) 2CD Japanese Edition [FLAC|image + .cue]<Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out In The Fields (04:17)
+ 02. Over The Hills And Far Away (05:21)
+ 03. Run For Cover (04:12)
+ 04. Parisienne Walkways (Edit) (Live) (05:49)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 02:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D3E1551344F38F69D04B3A0551E493591A2FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175980   (372023) от 21.10.2017
+
+Europe - Walk The Earth (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372023.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Walk The Earth (4:16)
+ 2. The Siege (4:01)
+ 3. Kingdom United (2:52)
+ 4. Pictures (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583E202B2BB6E9C9DE04D4739DB3E17E42311E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069932   (371540) от 05.11.2016
 
 The London Quireboys - This Is Rock'N'Roll (2002) [FLAC|Lossless|image + .cue] <Hard rock, Glam>
@@ -635,122 +751,6 @@ Stage Dolls - Stage Dolls (1988) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDCB2A6007F122A38D232D4C899F1E53823A15E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177793   (360898) от 26.10.2017
-
-Alice Cooper - Welcome To My Nightmare (1975) Remastered, 2002, Atlantic/Rhino [FLAC|Lossless|image + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To My Nightmare
-02. Devil's Food
-03. The Black Widow
-04. Some Folks(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE34882885F25EE6C9C49796D985F5F1B3BD8A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417173   (360573) от 19.10.2020
-
-Lazarus - Down N' Dirty (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Dancer
-02. Bedroom Eyes
-03. Love At First Bite
-04. Let The Sparks Fly(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A4F32C17779556BB324C016B4990E3A6F70642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071291   (359436) от 10.11.2016
-
-Overland - Diamond Dealer (2009) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Train Train 05:08
-02. You Lift Me Up 04:35
-03. Where Is The Love 03:24
-04. Brave New World 05:33(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEACC76D964D132FA3CA5A196B093B4AB539F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071373   (359427) от 10.11.2016
-
-The Quireboys - Halfpenny Dancer (2009) [FLAC|Lossless|image + .cue] <Hard rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There She Goes Again
-02. Devil Of A Man
-03. Love To Love
-04. Mona Lisa Smiled(   Читать дальше...   )Жанр: Hard rock, GlamПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4940C7E015588EFEC2971EB5331043C2944DA53A
 ```
 
 https://mybot314.ru/tekegram_catalog/

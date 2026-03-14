@@ -1,3 +1,32 @@
+###  Публикация: 1746075   (104839) от 02.09.2024
+
+Вишнёвый сад - Из деревни в город. Из города в деревню (2024) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Варенье вишнёвое [00:03:18]
+02 - Родня моя, родня [00:03:43]
+03 - Не гляди ты, берёзка, игриво в окно [00:03:42]
+04 - А мы из Рощи, мы попроще [00:03:12](   Читать дальше...   )Жанр: FolkПродолжительность: 00:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C458B78F841D847019834360D7A2055BB8C7BBFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758630   (103380) от 03.11.2024
 
 Белое злато - БеЗешкино (2024) [MP3|320 Kbps] <Фолк, Эстрада>
@@ -49,75 +78,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E34D247E32A357E2F57335B85F0C52F57252CAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488660   (101773) от 28.04.2012
-
-The Soil Bleeds Black - 8 albums (1996-2009) [mp3|192-320 kbps] <Medieval, Neofolk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Saith The Song Of Sigurd (02:50)
-02. Pastime With Good Company (02:56)
-03. Canto Alla Vita (04:11)
-04. A Hymn For Thy Lady, Fair And Chaste (02:43)
-05. Dum Pater Familias (05:40)
-06. Earthe (05:45)
-07. Lament For The Young English King (03:59)
-08. Letum Exequor (04:23)
-09. Oh Ye Of Noble Heart (02:49)
-10. Shout (04:44)(   Читать дальше...   )1996-2009Жанр: Medieval, NeofolkПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43E5B2EA1B225C506B9C33E8C89CE7AB6D665ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487654   (100480) от 25.04.2012
-
-Vergissmeinnicht - 2 albums (2008-2011) [mp3|320 kbps] <Neofolk, Ambient>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acouasm (03:35)
-02. Salvation (03:31)
-03. Evening Moon (06:30)
-04. Mist (03:15)
-05. Cosmos (06:23)
-06. Existence (05:47)
-07. Imaginary Friends (03:40)
-08. His Own Strange Song (03:55)
-09. Outro (On The Hills Of Manchuria) (03:00)2008-2011Жанр: Neofolk, AmbientПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA5BB37DDF3DAE69C203F1369E14D6C8E968144
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -223,39 +183,6 @@ Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A66B199848D1339B4B472134E2F224F0B41A098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488452   (90794) от 26.04.2012
-
-Kiss The Anus Of A Black Cat - 6 albums (2005-2012) [mp3|320 kbps] <Neofolk, Apocalyptic Folk, Experimental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Word As Gospel (05:48)
-02. Define π (04:36)
-03. The Shadows Are You (03:29)
-04. Ruins (05:04)
-05. Triple Fall (03:10)
-06. Shake Off Your Dreams (05:42)
-07. Let Things Drift (04:54)
-08. Weltuntergangsstimmung (04:08)2005-2012Жанр: Neofolk, Apocalyptic Folk, ExperimentalПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61EA4D30E8E291E9C01490A2FCC2F04D822107DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

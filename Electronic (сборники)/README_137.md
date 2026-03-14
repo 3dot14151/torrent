@@ -1,3 +1,32 @@
+###  Публикация: 1161163   (469903) от 27.08.2017
+
+VA - Music For Everyone - Dubstep & Drumstep Vol.5 (2017) [MP3|320 Kbps] <Dubstep, Drumstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469903.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shut Eye - Divinity (Original Mix)
+2. Just A Gent, Kiele & Michael Herrera - Stars Beyond Stars (Noah Moore Remix)
+3. Zedd feat. Matthew Koma - Spectrum (Muffoxx Remix)
+4. Equalize - Adventure (Original Mix)(   Читать дальше...   )Жанр: Dubstep, DrumstepПродолжительность: 01:21:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0405C305E88962D88BDF53E97F95AA57D8EC84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547507   (469874) от 17.09.2012
 
 Vlad Cheis - Special Pre-Party a mix for Little Sweet Jamaica 28.01.12 (St. Petersburg) (2012) [MP3|320 кб/с]<Ragga-jungle>
@@ -733,35 +762,6 @@ VA - Repeat Of Bliss (2015) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD11FCC93F8639916C93FB1BD0D9D02232679B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940738   (464889) от 26.09.2015
-
-VA - До утра (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Disco House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Groove Phenomenon, David Jones vs Flatdisk - September (DJ Max Maikon Mash-Up)
-02-Adriano Celentano - Amore (DJ Nil remix)
-03-Tom Jones - Sex Bomb (DJ Haipa & Rafaelle Remix)
-04-Tim Deluxe feat. Sam Obernik - It Just Won t Do (Badboys Brothers Bootleq)(   Читать дальше...   )Жанр: Club House, Disco House, DanceПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D320F9971A2B8D992520988219F72D30246D48
 ```
 
 https://mybot314.ru/tekegram_catalog/

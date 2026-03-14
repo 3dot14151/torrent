@@ -1,3 +1,177 @@
+###  Публикация: 1769352   (100675) от 28.12.2024
+
+The Wind Blowers - Blues for Rainy Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Got No Money (1:56)
+02. Back Door Blues (3:24)
+03. Bad Luck (2:47)
+04. Bad Time Blues (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1739C4EDC5F896F18236377706E6CA446806692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769702   (100664) от 29.12.2024
+
+Mal Waldron & Marion Brown - Much More! (1989) Free Lance [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Mates [9:43]
+02. Someone to Watch over Me [4:58]
+03. All God's Chillun Got Rhythm [3:35]
+04. My Funny Valentine [6:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAC5058D69E5CA9251721CB7ADC93B1082CB26E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770039   (100609) от 30.12.2024
+
+Art Blakey - In This Korner (1978) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Art Blakey Intro [1:25]
+02. Pamela [9:41]
+03. Unlimited [6:39]
+04. In This Korner [7:56](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40DBF9C821435F27C5BE584DEF5C7801DABFB9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770243   (100554) от 31.12.2024
+
+John Di Martino - Passion Flower: The Music Of Billy Strayhorn (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Come Lately [5:17]
+02. Lush Life [4:20]
+03. Rain Check [4:19]
+04. Star-Crossed Lovers (Pretty Girl) [4:38](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B243C797D5D8582D9059798EBDE17E453154A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770316   (100547) от 31.12.2024
+
+Judy Garland - Judy At The Palace Closing Night 1952 (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chorus Intro (Live) [00:01:46]
+02. Call The Press/On The Town (Live) [00:02:36]
+03. Unless You've Played The Palace / Shine On, Harvest Moon / Some Of These Days / My Man / I Don't Care (Live) [00:07:33]
+04. Rockabye Your Baby (Live) [00:03:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC977DA44381D44CBAA73A3B62103B42FD7ABBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770286   (100544) от 31.12.2024
+
+The Soulmate Project - Vinyl Flavour (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vero Nouk - Laisse-Toi Tomber (2:58)
+02.  Penny Maddox - Keep My Boots On (3:18)
+03.  Be Yourself (3:06)
+04.  Stormy Night (2:29)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F048E052B48F3976B2C757F9469CE55284BCEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770303   (100543) от 31.12.2024
 
 Breeze - Just Another Day (Breeze) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Jazz Fusion>
@@ -660,212 +834,6 @@ Mike Reinhardt Trio - Road Song (2012) [MP3|320 кб/с]<Jazz, Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC18D94B2A850B576348BA7C89424A1429D94D74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476284   (98436) от 02.04.2012
-
-The Blues Band - Be My Guest (2003) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cat
-02.Big Fine Girl
-03. Hey Hey Little Girl
-04. 00 00-EE
-05. Don't Lie To Me
-06. Big Boss Man
-07. Bad Penny Blues
-08. When I Itches I Scratch
-09. Bad Boy
-10. Can't Get My Ass In Gear(   Читать дальше...   )2003Жанр: BluesПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476264   (98430) от 02.04.2012
-
-Carl Martin - Crow Jane Blues (1997) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crow Jane Blues
-02. Corrina, Corrina
-03. Trouble on Your Hand, No. 2
-04. State Street Pimp, No. 2
-05. Grave Digger Blues
-06. Worried All the Time
-07. Liza Jane
-08. Good Morning Judge
-09. John Henry
-10. West Virginia Blues(   Читать дальше...   )1997Жанр: BluesПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475500   (98284) от 31.03.2012
-
-Аloe Blacc - Good Things (2010) [MP3|320 кб/с]<Soul>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need A Dollar
-02. Green Lights
-03. Hey Brother
-04. Miss Fortune
-05. Life So Hard
-06. Take Me Back
-07. Femme Fatale
-08. Loving You Is Killing Me
-09. Good Things
-10. You Make Me Smile(   Читать дальше...   )Жанр: SoulПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475980   (98264) от 31.03.2012
-
-Susie Arioli - All The Way (2012) [MP3|192 кб/с]<Vocal Jazz, Swing, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Funny Valentine
-02. Time On My Hands
-03. Here's to the Losers
-04. All the Way
-05. Here's That Rainy Day
-06. It's Always You
-07. Forgetful
-08. There's a Lull In My Life
-09. Come Rain or Come Shine
-10. When Your Lover Has Gone(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Easy ListeningПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F155E1F16DF8F2176CC6075FFBC829108C77254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475575   (98153) от 31.03.2012
-
-Excess Luggage - Hand Luggage Only (2011) [FLAC|Lossless]<Bop, Post-bop, Soul-jazz, Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annoying You (6:55)
-02. Jimmy's Thai Kitchen (6:11)
-03. Corrupted Mirror (5:27)
-04. After All (6:43)
-05. Fast Swing (5:47)
-06. Kun-ming (5:10)
-07. If I Should Lose You (8:32)
-08. Laat (4:54)2011Жанр: Bop, Post-bop, Soul-jazz, OrganПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475031   (98081) от 30.03.2012
-
-Hurricane Ruth - The Power Of The Blues...Feel Like Hurricane (2011) [FLAC|Lossless]<Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll Little Sister (3:34)
-02. I'm Gonna Get Evil (5:36)
-03. The Power of the Blues...Feels Like a Hurricane (4:04)
-04. Let Me Change Your Mind (6:15)
-05. Mississippi Queen (3:22)
-06. No Worries (4:04)
-07. I Want to Take You Higher (4:47)
-08. The Lesson (5:06)2011Жанр: Rockin' BluesПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 957192   (328416) от 16.11.2015
+
+Anne Harris - Come Hither (2015) [MP3|320 кб/с]<Alternative Pop, Contemporary Blues, Americana>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken
+02. Waves (With Otis Taylor)
+03. Giddy Up (With Chuck Campbell)
+04. Fallen (With Nikki Lynette)(   Читать дальше...   )Жанр: Alternative Pop, Contemporary Blues, AmericanaПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6376269EFE5DF88F99455F1B1F51726C69BA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957193   (328359) от 16.11.2015
+
+One Direction - Made In The A.M. (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Angel
+02. Drag Me Down
+03. Perfect
+04. Infinity(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A3959C0A5FE9F39347CC46C0F25F34372FDCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581089   (328065) от 04.10.2022
 
 Robbie Williams - Intensive Care (2005) [OGG Vorbis|484 Kbps] <Electronic, Pop Rock, Synth-pop>
@@ -687,64 +745,6 @@ Adele - 25 (2015) Target Exclusive Deluxe Edition [MP3|320 кб/с]<Indie Pop, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0329109142EE215CF9CD39CF72488C2D2EAD588A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582498   (323340) от 09.10.2022
-
-VA - Now Yearbook 85 (2022) 4CD, Compilation, Special Edition [MP3|320 Kbps] <Pop, Synth-Pop, Reggae, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323340.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Queen - One Vision
-02. Philip Bailey & Phil Collins - Easy Lover (LP version)
-03. Eurythmics, Annie Lennox, Dave Stewart - There Must Be An Angel (Playing With My Heart)(   Читать дальше...   )Жанр: Pop, Synth-Pop, Reggae, RockПродолжительность: 01:19:12 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65040901EFC82B99D67FD082E9C7D9B4D3D06012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331634   (322938) от 16.10.2019
-
-Frankie Valli - 6 Albums (1975-1980) LP [MP3|320 Kbps] <Funk Soul, Pop Rock, Vocal, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнки Валли - наст. имя Francesco Stephen Castelluccio. Американский певец, наиболее известный как фронтмен вокальной поп-группы The Four Seasons и обладатель мощного фальцета. Диапазон голоса Валли - три с половиной октавы. На фальцет со своего «природного» баритона он может переходить без обычного для певцов фальцетом разрыва. В середине 1960-х, оставаясь участником (   Читать дальше...   )Список альбомов:
-1975 - Closeup
-1975 - Our Day Will Come
-1976 - Valli(   Читать дальше...   )Жанр: Funk Soul, Pop Rock, Vocal, DiscoПродолжительность: 03:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02CB54DCE09E04A9F04E68906746AE2814B9EFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

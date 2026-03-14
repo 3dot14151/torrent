@@ -1,3 +1,90 @@
+###  Публикация: 1415697   (374406) от 13.10.2020
+
+Mingus Amungus - Live in Cuba (1997) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Landing (0:08)
+02. Slop (7:12)
+03. Voodoo Duty (7:33)
+04. Ogun (1:04)(   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Latin JazzПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FFCDA03F7B7239647B0EAFD331117A22A91EBA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415678   (374298) от 13.10.2020
+
+Arthur Verocai - Saudade Demais (2002) [FLAC|Lossless|tracks + .cue] <MPB, Bossa Nova, Samba>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Verao a Toa (5:00)
+02. Isabel Tchau (4:24)
+03. Madrugada (2:53)
+04. Sem Thereza (4:05)(   Читать дальше...   )Жанр: MPB, Bossa Nova, SambaПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AACD7DF487915B7A735AFA1C02CA8EC1B52AFA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069450   (374166) от 04.11.2016
+
+Michael Blake - Tiddy Boom (2014) Sunnyside Communications[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Skinny Dip [05:00]
+ 02.Tiddy Boom [05:34]
+ 03.Hawk's Last Rumba [06:20]
+ 04.Boogaloop [03:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:367970508B651EA8F1962BC896FDDDBB3F2DB646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069449   (374165) от 04.11.2016
 
 Curtis Fuller - Soul Trombone & Cabin In The Sky (1961, 1962) 2011, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -657,93 +744,6 @@ Tito Puente - Live at Birdland: Dancemania '99 (1998) RMM Records [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFCED114F625D2CCAFDD28DFD940AD3B2DE26C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415940   (372006) от 14.10.2020
-
-Poncho Sanchez - Soul Sauce: Memories Of Cal Tjader (1995) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Sauce (Guachi Guara) [4:30]
-02. Tropicville [4:03]
-03. I Showed Them [8:27]
-04. Somewhere in the Night [3:37](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF83FF5E54F284568C075638C382F675854A7A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069817   (371534) от 05.11.2016
-
-Simone Kopmajer, Paul Urbanek, Reinhardt Winkler - Soulmates (2016) Lucky Mojo Records[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.All Along the Watchtower [05:35]
- 02.Brazil [03:20]
- 03.The in Crowd [03:57]
- 04.All You Need Is Love [03:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0ED91FD7AEB55E7496F7D54268CFFE9C54CD89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576011   (370945) от 12.09.2022
-
-Nicholas Payton - Smoke Sessions (2021) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hangin' In and Jivin' [7:43]
-02. Big George [7:03]
-03. Levin's Lope [6:48]
-04. No Lonely Nights [6:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A3B6B7BF55D59FF4BDA005E960EC6FEAABA568
 ```
 
 https://mybot314.ru/tekegram_catalog/

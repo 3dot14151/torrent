@@ -1,3 +1,177 @@
+###  Публикация: 1628728   (241827) от 24.04.2023
+
+Phil Woods - Greek Cooking (1967) 1995, Impulse! [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zorba the Greek [3:12]
+02. A Taste of Honey [5:45]
+03. Theme from Antony & Cleopatra [4:54]
+04. Got a Feelin' [4:33](   Читать дальше...   )Жанр: Bop, Hard Bop, World FusionПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE89DC0FAD9F290AE426F58B7A237D14CF11025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628727   (241815) от 24.04.2023
+
+Phil Woods & Bill Mays - Woods & Mays (2011) Palmetto [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All This and Heaven Too [5:57]
+02. Blues for Lopes [5:59]
+03. Danielle [6:35]
+04. Do I Love You? [4:27](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64016AD8B790CCB821EE025DBB877CA8462A68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625213   (241813) от 09.04.2023
+
+Brandee Younger - Brand New Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Harp>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Girl For One Man Only
+02. Brand New Life
+03. Come Live With Me (Interlude)
+04. Livin' And Lovin' In My Own Way(   Читать дальше...   )Жанр: Contemporary Jazz, HarpПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FDD4562350F728AA4721143FDD363D3FFFB508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376509   (241810) от 18.04.2020
+
+Harry Allen - I Can See Forever (2002) BMG [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave [4:13]
+02. So Many Stars [5:40]
+03. The Telephone Song [4:54]
+04. O Grande Amor [4:57](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CD6C56278F5FF957798170BFE9C737CA7AFF1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618162   (241783) от 10.03.2023
+
+McCoy Tyner - Sahara (1972) 1987, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ebony Queen [8:59]
+02. A Prayer for My Family [4:48]
+03. Valley of Life [5:19]
+04. Rebirth [5:20](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9ED5BA4952FFD53ACA08EB95E7E8FA6541BFE38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628964   (241755) от 25.04.2023
+
+Billy Taylor - Dr. T (1993) GRP Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Remember April [6:11]
+02. 'Round Midnight [10:34]
+03. Line for Lyons [6:04]
+04. Cubano Chant [3:51](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9320DD0428CD3D8D93010160BC98E45137D9414B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618163   (241754) от 10.03.2023
 
 Dinah Washington - In The Land Of Hi-Fi (1956) 1988, EmArcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -571,180 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7B072C523F8B2328B48F6A836F04EB72C9F5D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546811   (241386) от 25.04.2022
-
-Graham Collier - British Conversations (2021) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz-Rock, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Sky in the Morning (10:30)
-02. Clear Moon (6:35)
-03. Halo Round the Sun (11:29)
-04. Red Sky at Night (7:44)(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz-Rock, Big BandПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D8565DA6AFCAC7686987CC47C3948B86FD3852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629830   (241383) от 28.04.2023
-
-Dudley Taft - Guitar Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black And Blues (4:55)
-02. Old School Rocking (4:58)
-03. Oil And Water (4:42)
-04. Still Burning (4:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1B518A8EAE3ADBC0337A023087B44F10D8B3E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119691   (241333) от 29.03.2017
-
-Dave Brubeck - Les Incontournables (1996) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241333.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Take Five
-2. Invention
-3. Like Someone in Love
-4. The Way You Look Tonight(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA024EA969517FDEE3C5027659AC8F22A266A646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629908   (241332) от 28.04.2023
-
-Bireli Lagrene - Routes To Django (1980) 1987, Antilles [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiso Place [3:44]
-02. Bireli Swing 1979 [5:50]
-03. All of Me [3:55]
-04. Tschirglo Waltz [1:57](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D928C5E866A1CD5A925F162029E9EAB7EC00CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119808   (241323) от 29.03.2017
-
-Mississippi Fever - 300 Miles to Memphis (2015) [FLAC|Lossless|image + .cue] <Blues Rock, Rockin Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Like Superman (03:40)
-02. Traveling Riverside Blues (03:33)
-03. Steal Away Your Love (04:34)
-04. Downtown Train (04:16)(   Читать дальше...   )Жанр: Blues Rock, Rockin BluesПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9995872A0FB492EE6AB0C1B85FF1382423956F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119640   (241305) от 29.03.2017
-
-Dave Brubeck Quartet - Complete 1958 Berlin Concert (2008) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241305.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Duke
-2. Take the "A" Train
-3. Two Part Contention
-4. One Moment Worth Years(   Читать дальше...   )Жанр: JazzПродолжительность: 01:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69EE919D8451165A0D0F829A0D58A4C53DE6DB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

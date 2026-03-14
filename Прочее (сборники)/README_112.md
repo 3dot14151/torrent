@@ -1,3 +1,32 @@
+###  Публикация: 943415   (449583) от 03.10.2015
+
+VA - Summer Nights (Emotional Lounge & Smooth Jazz Collection) (2015) [MP3|320 кб/с]<Lounge, Jazz, Easy Listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Per Elisa - Riccardo Arrighini
+02. El Aguacate - Angel 'Pocho' Gatti Y Su Orquesta
+03. Evanescent - Riccardo Arrighini
+04. Crepes suzette - The Addy Flor Orchestra(   Читать дальше...   )Жанр: Lounge, Jazz, Easy ListeningПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70EBAFFDA1DC2E77375337EAFCAFF6B8075EE61E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552637   (449205) от 26.09.2012
 
 VA - Hot Dance Autumn Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
@@ -761,35 +790,6 @@ Cборник собранный из оригинального Flac01. Drownin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AB93F76D31F2CD03A6A43FA1190D7151462C6C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409890   (440873) от 19.09.2020
-
-VA - The Official UK Top 40 Singles Chart 18.09.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cardi B, Megan Thee Stallion - WAP
-02. 24kgoldn, Iann Dior - Mood
-03. Headie One, AJ Tracey, Stormzy - Ain't It Different
-04. Nathan Dawe - Lighter (feat. KSI)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5FE175A4E7C06A6643DF08D170187D4EE7915E
 ```
 
 https://mybot314.ru/tekegram_catalog/

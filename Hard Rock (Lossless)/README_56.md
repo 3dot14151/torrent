@@ -1,3 +1,119 @@
+###  Публикация: 1074427   (336033) от 20.11.2016
+
+Graham Bonnet Band - The Book (2016) Russian Edition [FLAC|Lossless|image + .cue] <Hard rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Night
+02. Welcome To My Home
+03. Earth's Child (I Am Your Son)
+04. Rider(   Читать дальше...   )Жанр: Hard rockПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707E1F71BDE16C556B92A3E00C5E82A5E623925D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181246   (334927) от 06.11.2017
+
+Boston - 6 Studio Albums, 2 Live, 1 Compilation (1976 - 2014) [FLAC|Lossless|image + .cue|tracks + .cue] <Melodic Rock / Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со своим дебютным альбомом "Boston" устроили настоящий переполох в рок-истории. Создатель команды Tom Scholz (Том Шольц р. 10 марта 1947) начал сочинять музыку еще в конце 60-х, когда являлся студентом массачусетского технологического института. По окончании учебы он устроился инженером на "Polaroid", однако свое увлечение не забросил, а наоборот (   Читать дальше...   )Список альбомов:
+1976 Boston
+1978 Don't Look Back
+1986 Third StageЖанр: Melodic Rock / Hard RockПродолжительность: 14:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDBB26F17BF899DD859FA1D2692F3BE3665D1838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579672   (334706) от 28.09.2022
+
+Wolf On Fire - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sårede Blør i Hjerter [00:03:57]
+02. Movers & Shakers of the shit machine [00:04:11]
+03. Possibilities [00:03:48]
+04. Norwegian Psycho [00:04:59](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2 CD, 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF59D82A9520620E6FAE14CACA3AB2A846C7F8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579451   (334573) от 28.09.2022
+
+Streetlight Circus - Super Fine Sugar (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard rock and roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super Fine Sugar [00:02:47]
+02. Drive It Like I Stole It [00:04:25]
+03. Cherry Cola [00:03:50]
+04. Ex Machina [00:03:40](   Читать дальше...   )Жанр: Hard rock and rollПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B96C2FA039F1662D1259F11D4CB538A07E4296C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155789   (334296) от 28.09.2022
 
 Alliance - Discography: 6 albums, 7CD (1996-2019) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
@@ -632,122 +748,6 @@ Octane - Back in the Game (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BD02ADF92474DD64AD5CE28162F5C5FEFB9C7B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582180   (323477) от 09.10.2022
-
-Purpendicular, Ian Paice - Human Mechanic (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Nothing Box (04:59)
-02. Ghost (05:58)
-03. No One's Getting Out Alive (03:41)
-04. Something Magical (03:57)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D13BF0F5B89489BBA4257530AC63AC38D4BEED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582194   (323167) от 09.10.2022
-
-Statement - Dreams From The Darkest Side (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't You Hide It (4:22)
-02. The Reaper (4:21)
-03. Dreams From The Darkest Side (5:00)
-04. Sacrifice (5:10)(   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD6F8C6A3C47D02B50D3CBC15D012CA89D44ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958290   (321492) от 22.11.2015
-
-Whitesnake - The Purple Album (2015) Japanese Edition [FLAC|image + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn
-02. You Fool No One
-03. Love Child
-04. Sail Away(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FC179532E8E4798CB4A8E0DD32B260AC1B1388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181930   (321200) от 08.11.2017
-
-Deep Purple - A Fire in the Sky (2017) 3CD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321200.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Hell to Pay
-02. Vincent Price
-03. Wrong Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A56ED9967B365653984C15801365AEBF87122F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

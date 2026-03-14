@@ -1,3 +1,38 @@
+###  Публикация: 517153   (647931) от 01.07.2012
+
+The Forsaken - Beyond Redemption (2012) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647931.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beyond Redemption (3:22)
+2. Only Hell Remains (4:27)
+3. Foul Messianic Grace (4:17)
+4. No Dawn Awaits (3:50)
+5. There Is No God (3:29)
+6. As We Burn (4:24)
+7. Reap As We Have Sown (4:08)
+8. The Light Divine (4:42)
+9. Force Fed Repentance (3:52)
+10. Blessed With Wrath (4:12)Жанр: Melodic Death MetalПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34B2EC83DB2F19E5E03EB31730A17327B7F6CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905817   (647831) от 07.06.2015
 
 Reanimator - Horns Up (2015) [MP3|320 кб/с]<Thrash Metal>
@@ -719,35 +754,6 @@ Tremonti - Cauterize (2015) Deluxe Edition [MP3|320 кб/с]<Alternative Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3446A73FFEAC0A8A1EEC5ED7AD7E90B19A4EB791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292962   (641280) от 01.04.2019
-
-Periphery - Periphery IV: Hail Stan (2019) [MP3|320 Kbps] <Progressive Metal, Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reptile (feat. Mikee Goodman of SikTh)
-02. Blood Eagle
-03. CHVRCH BVRNER
-04. Garden in the Bones(   Читать дальше...   )Жанр: Progressive Metal, Math MetalПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3BE8E5776C2E6FBCE42B7BB7D395D7B2B53456
 ```
 
 https://mybot314.ru/tekegram_catalog/

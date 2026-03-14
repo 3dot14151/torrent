@@ -1,3 +1,90 @@
+###  Публикация: 943252   (435250) от 09.10.2015
+
+Blue Stahli - The Devil (2015) Deluxe Edition [FLAC|tracks|WEB-DL]<Industrial Rock, Electronic >
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning
+02. Not Over Til We Say So
+03. Armageddon
+04. Down In Flames(   Читать дальше...   )Тип издания: АльбомЖанр: Industrial Rock, ElectronicПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38875BD9521AF00E27D188250E6AA849B3D98332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362141   (434228) от 12.09.2017
+
+The Verve - 8 альбомов, 20 CD (1993 - 2017) [FLAC|Lossless|image + .cue|tracks+.cue] <Psychedelic Rock, Indie, Shoegaze, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434228.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Verve - британская рок-группа, образованная в 1989 году в Уигане, Большой Манчестер, Англия и распадавшаяся трижды, последний раз в 2009 году. После распада большинство участников группы занялись своими сольными проектами. Создать собственную группу Ричард Эшкрофт (Richard Ashcroft) решил, уже будучи студентом колледжа. Чуть позже к банде присоединился профи (   Читать дальше...   )Список альбомов:
+1992 The Verve
+1993 A Storm In Heaven
+1994 No Come Down(   Читать дальше...   )Жанр: Psychedelic Rock, Indie, Shoegaze, AlternativeПродолжительность: 20:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECDBE5CAFE01CAFD5671B5DD27E612B4E7CD50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249626   (433602) от 24.09.2018
+
+Sparta - Wiretap Scars (2002) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock, Post-Hardcore, Emo>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cut Your Ribbon (3:06)
+ 02. Air (3:57)
+ 03. Mye (3:39)
+ 04. Collapse (4:17)(   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, Post-Hardcore, EmoПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35B8460340E192C3DB4D7A292E30B9E7C1FAB25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249342   (431046) от 25.09.2018
 
 Rea Garvey - Neon (2018) Island Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
@@ -658,93 +745,6 @@ The Joy Formidable - AAARTH (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B91A8CD37C0A772D34C716742743087E2E0E71D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251797   (413364) от 03.10.2018
-
-Metric - Art of Doubt (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Saturday
-02. Love You Back
-03. Die Happy
-04. Now Or Never Now(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5BBD8123900126F84D2B780D6D2E439CF261D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412966   (411740) от 02.10.2020
-
-Nickelback ‎ - All The Right Reasons (2005) 15th Anniversary Expanded Edition, 2020 [FLAC|Lossless|WEB-DL|tracks] <Post-Grunge, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow You Home (2020 Remaster) [00:04:20]
-02. Fight For All The Wrong Reasons (2020 Remaster) [00:03:44]
-03. Photograph (2020 Remaster) [00:04:18]
-04. Animals (2020 Remaster) [00:03:06](   Читать дальше...   )Жанр: Post-Grunge, Hard RockПродолжительность: 01:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CD63C50635A2D0FE37CD55992178E1046459A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573517   (410539) от 01.09.2022
-
-Oceans Ate Alaska - Disparity (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradigm [00:02:44]
-02. Nova [00:03:32]
-03. Metamorph [00:02:43]
-04. Shallow Graves [00:03:19](   Читать дальше...   )Жанр: Progressive Metalcore, ElectronicПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BDE59F6BB3387A1A070B56ABDEE27D6EE9B6B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

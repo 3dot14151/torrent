@@ -1,49 +1,25 @@
-###  Публикация: 1507686   (798199) от 05.11.2021
+###  Публикация: 1121685   (799694) от 03.04.2017
 
-Финч / Finch (2021) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постапокалипсис. Инженер-робототехник Финч переживает, что никто не сможет позаботиться о его собаке после смерти. Он строит робота и отправляется в путешествие, обучая своего нового компаньона жизни, любви, дружбе и дает ему понять, что значит быть человеком.Производство: Великобритания, США / Amblin Partners, Dutch Angle, ImageMovers, Misher Films, Walden MediaЖанр: Фантастика, драмаРежиссер: Мигель СапочникАктеры: Том Хэнкс, Калеб Лэндри Джонс, Лора Каннингэм, Мари Уэйдженман, Оскар АвилаПеревод: Дублированный (Невафильм)Субтитры: Русские, украинские, английскиеПродолжительность: 01:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3723DDB52A481F08383D29E53E801596C4FB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507771   (798198) от 05.11.2021
-
-Total Commander 10.00 Extended 21.11 Full / Lite RePack (& Portable) by BurSoft [Ru/En]
+Баскетбол. Кубок Европы 2016-2017. Финал. 1-й матч. Валенсия (Испания) – Уникаха (Испания) (28.03.2017) IPTV [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798198.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Самый известный файловый менеджер под Windows - Total Commander в Extended версии - это новый взгляд на функциональность и стабильность! Lite - версия отличается от старшего брата отсутствием встроенных программ.
-Total Commander Extended - это x86 и x64 версии Total Commander в одном инсталляторе. Оптимальный набор программ и плагинов. Поддерживает интеграцию дополнительных (   Читать дальше...   )Язык интерфейса: Русский, Английский
+28 марта 2017, вторник. 21:30 МСК
+Кубок Европы 2016-2017. Финал. 1-й матч
+Валенсия (Валенсия, Испания) – Уникаха (Малага, Испания)
+Стадион: Фуэнте де Сан-Луис (Валенсия, Испания), 8500 зрителей (94 % при вместимости 9000)(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:31:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD6DA18C2E59E78D17AA5B5C90A0144294C45264
+magnet:?xt=urn:btih:8A017E6EEFB4DBE0F3D58BF992EB916486F33A2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489046   (798197) от 05.11.2021
+###  Публикация: 1121455   (799693) от 03.04.2017
 
-Старгерл / Stargirl (2021) WEBRip [H.264/720p] (сезон 2, серии 1-13 из 13) Lostfilm
+Сноуборд. Чемпионат мира 2017. Сьерра-Невада (Испания). Биг-эйр. Финал (17.03.2016) IPTV [H.264/720p-LQ]
 
->>Зарубежные сериалы
->>Сериалы DC Comics
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798197.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Молодая американка Кортни Уитмор случайно узнаёт, что её отчим был помощником супергероя. Сама же она по неизвестным пока причинам может пользоваться сверхоружием одного из таких супергероев, ушедшего из жизни. И теперь спасение мира на ней - Старгёрл. Героиня загорается идеей создания собственной команды, «Общества справедливости Америки».Производство: США | Berlanti Productions, DC Entertainment, Warner Bros. TelevisionЖанр: Фантастика, фэнтези, боевик, драма, криминал, приключенияРежиссер: Энди Армаганян, Грег Биман, Тамра ДэвисАктеры: Брэк Бэссинджер, Ивет Монреаль, Анжелика Вашингтон, Трэй Романо, Эми Смарт, Люк Уилсон, Мэг ДеЛэйси, Кэмерон Джеллман, Нил Джексон, Кристофер Джеймс БэйкерПеревод: Профессиональный многоголосый (Lostfilm)Язык озвучки: РусскийСубтитры: Русские (forced) hardsubПродолжительность: ~00:45:00 серия
+17 февраля 2017 года
+Чемпионат мира 2017 года по фристайлу на лыжах и сноуборду. Сьерра-Невада (Испания)
+Сноуборд. Женщины, Мужчины. Биг-эйр. ФиналТелекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:54:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF42E25C27137734A3A23D9BBBBDADCB9F6F70BC
+magnet:?xt=urn:btih:FFA2F4CFCC433A2906A90373822D3E0BBB38EA8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,25 +55,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507642   (798196) от 05.11.2021
+###  Публикация: 1121869   (799692) от 03.04.2017
 
-Бендер: Последняя афера (2021) WEBRip
+Stephane Grappelli - Le Toit de Paris (1969) 2002, RCA Victor [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798196.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ибрагим Бендер и Ося Задунайский стали слишком известны — их разыскивает полиция двух стран: России и Турции. В погоне за золотым жезлом графа Румянцева им придётся переодеться цирковыми артистами, террористами и даже двумя путешествующими на корабле дамами, матерью и дочерью. Так Ося и Бендер оказываются в Турции. Тем временем мать Оси оказывается в лапах мрачного (   Читать дальше...   )Производство: Россия / Продюсерская компания «Среда»Жанр: Комедия, драма, приключенияРежиссер: Игорь ЗайцевАктеры: Арам Вардеванян, Сергей Безруков, Таисия Вилкова, Вера Брежнева, Александр Цекало, Юлия Рутберг, Ольга Сутулова, Юрий Колокольников, Павел Деревянко, Юлия Макарова, Никита Кологривый, Артём ТкаченкоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:37:03
+01.Rain Check [02:39]
+ 02.Camelia [03:42]
+ 03.I Got It Bad (And That Ain't Good) [03:10]
+ 04.Andree [03:14](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:35:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91D75AF3DC0F447E1CCAFAB4E9B52A634E9D333A
+magnet:?xt=urn:btih:D0223119657B00EFD9CD5238F6A6E2117BA3072D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,25 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507712   (798195) от 05.11.2021
+###  Публикация: 1121871   (799691) от 03.04.2017
 
-Яра / Yara (2021) WEB-DL [H.264/1080p]
+The Buddy DeFranco (De Franco) Quartet - Jazz Tones (1954) Remaster, 2012, Universal [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798195.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Юная гимнастка живет в городке Брембате-ди-Сопра неподалеку от Бергамо, мечтает о спортивной карьере, много тренируется и проводит все свободное время в спортзале, чтобы улучшить свои показатели. Нам показывают ее, идущую домой поздно вечером, затем в новостях сообщают о ее пропаже. За расследование берется прокурор Летисия Руджери, ребенка активно ищут, в деле даже (   Читать дальше...   )Производство: ИталияЖанр: Триллер, драма, криминалРежиссер: Марко Туллио ДжорданаАктеры: Лоренцо Аквавива, Донателла Бартоли, Алессио Бони, Chiara Bono, Андреа Бруски, Гульельмо Фавилла, Nicole Fornaro, Miro Landoni, Айман Машхур, Mario PirrelloПеревод: Дублированный (Netflix)Язык озвучки: Русский, итальянский, английскийСубтитры: Русские (Forced, Full), украинские (Full), итальянские (SDH), английские (Forced, Full, SDH)Продолжительность: 01:36:36
+01.When Your Lover Has Gone [06:33]
+ 02.The Things We Did Last Summer [08:04]
+ 03.Jack The Field Stalker [03:08]
+ 04.If I Should Lose You [04:25](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:39:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F17F872DC54CC4AD1190F892ACB770541F3B41BA
+magnet:?xt=urn:btih:97C30F5F598118DAA203F53BC01BFDE6818211AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,25 +113,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463430   (798194) от 05.11.2021
+###  Публикация: 1121843   (799689) от 03.04.2017
 
-Caramba Switcher + Corporate + Lab 2021.04.16 [Ru]
+Art Pepper & Ted Brown - The Complete Free Wheeling Sessions (1956) 2006, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
 
->>След.
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798194.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Caramba Switcher - это новый, понятный автоматический переключатель раскладки клавиатуры, предназначенный для работы с русским, английским и немецким языками.Язык интерфейса: Русский
+01.Aretha [05:03]
+ 02.Long Gone [04:54]
+ 03.Once We Were Young [03:52]
+ 04.Foolin Myself [04:37](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:17:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC91EBCFBFF919EBA64E81D2DF3A5641C5B6CA32
+magnet:?xt=urn:btih:2C9175CADB4718623E4D60CE8691D7DFF3DDA5E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,25 +142,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507749   (798192) от 05.11.2021
+###  Публикация: 1121660   (799688) от 03.04.2017
 
-Alan Wake Remastered (2021) [Ru/Multi] (1.033793/dlc) Repack West4it
+Sutratma - Sutratma (2012) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
 
->>Win Игры
->>Action (TPS)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798192.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Alan Wake Remastered — в этом отмеченном наградами кинематографическом боевике писатель Алан Уэйк отправляется на отчаянные поиски своей пропавшей жены Элис. После её таинственного исчезновения из городка Брайт-Фоллс на северо-западе тихоокеанского побережья он обнаруживает страницы с ужасающей историей, якобы написанной им, но о чём он сам не помнит.Тип издания: RepackРазработчик: Remedy EntertainmenЖанр: Adventure, Action (Horror), 3D, 3rd PersonЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+01. Face of Stone (08:12)
+02. Whither I Am Compelled (09:18)
+03. From the Well (08:16)
+04. Whence I Emerged (10:03)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:44:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C89EB99B63D223CA936224FB3E9FB354C38CCFE
+magnet:?xt=urn:btih:C8B14979E35E7BE6305FFC5D492804A909E19FB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,25 +171,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507795   (798191) от 05.11.2021
+###  Публикация: 1121558   (799687) от 03.04.2017
 
-Опасный / Dangerous (2021) WEB-DLRip [DVO]
+VA - The Gulf Of Pleasure (2017) [MP3|320 Kbps] <Deep House, Electro>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798191.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Риду Форрестеру выпала непростая судьба. В юности он пошёл в армию и был направлен в горячие точки. Он уцелел на войне, но из-за ужасов, открывшихся его глазам, получил серьёзное повреждение психики. Ветеран стал настоящим социопатом, который терпеть не может окружающих и зациклен лишь на своей персоне.Производство: США / Minds Eye Entertainment, Benaroya Pictures, Falconer PicturesЖанр: Боевик, триллерРежиссер: Дэвид ХэклАктеры: Скотт Иствуд, Кевин Дюран, Фамке Янссен, Мэл Гибсон, Брок Морган, Райан Роббинс, Чад Рук, Джейс Баррейро, Эммануэль Аддо, Брендан ФлетчерПеревод: Любительский двухголосый (Pazl Voice)Субтитры: ОтсутствуютПродолжительность: 01:39:00
+001. Anatoliy Kurakin - Invasion
+002. Levent Lodos - Circle of Fifths
+003. Guido Boyes - Something (Original Mix)
+004. Michael Paul - Call Me On the Weekend(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:23:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B2BCE56A4552044B1E137F651D679301AAC628E
+magnet:?xt=urn:btih:C495E38F34E5478199A355C4C6C6329788D20223
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,25 +200,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507661   (798189) от 05.11.2021
+###  Публикация: 1121862   (799686) от 03.04.2017
 
-Финч / Finch (2021) WEB-DL [H.265/1080p] [HDR, 10-bit]
+DirtyHands - Dirtyhands (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798189.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Постапокалипсис. Инженер-робототехник Финч переживает, что никто не сможет позаботиться о его собаке после смерти. Он строит робота и отправляется в путешествие, обучая своего нового компаньона жизни, любви, дружбе и дает ему понять, что значит быть человеком.Производство: Великобритания, США / Amblin Partners, Dutch Angle, ImageMovers, Misher Films, Walden MediaЖанр: Фантастика, драмаРежиссер: Мигель СапочникАктеры: Том Хэнкс, Калеб Лэндри Джонс, Лора Каннингэм, Мари Уэйдженман, Оскар АвилаПеревод: Дублированный (Невафильм)Субтитры: Русские, украинские, английскиеПродолжительность: 01:55:39
+01. Waiting Out The Door (04:04)
+02. Rollin' On The Street (02:26)
+03. Outside Woman Blues (04:14)
+04. Dirties Like The Blonde (02:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBD29116B80F99F640967F12115D02974D842114
+magnet:?xt=urn:btih:5F9F7DA0A3611E9257E9755B42A08F34D595BE44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,25 +229,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507740   (798188) от 05.11.2021
+###  Публикация: 1121758   (799685) от 03.04.2017
 
-Финч / Finch (2021) WEB-DL [H.264/720p]
+Mary Lou Williams - Plays In London (1953, 1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop, Piano Jazz>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798188.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Постапокалипсис. Инженер-робототехник Финч переживает, что никто не сможет позаботиться о его собаке после смерти. Он строит робота и отправляется в путешествие, обучая своего нового компаньона жизни, любви, дружбе и дает ему понять, что значит быть человеком.Производство: Великобритания, США / Amblin Partners, Dutch Angle, ImageMoversЖанр: Фантастика, драмаРежиссер: Мигель СапочникАктеры: Том Хэнкс, Калеб Лэндри Джонс, Лора Каннингэм, Мари Уэйдженман, Оскар АвилаПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full, SDH), английские (Full, SDH), иврит, украинскиеПродолжительность: 01:55:39
+01.Titoros [03:04]
+ 02.They Can't Take That Away from Me [03:01]
+ 03.Round About Midnight [04:36]
+ 04.Perdido [02:54](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:10:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:718C961E2840C87F8D6B302EA9BC67E76677BD92
+magnet:?xt=urn:btih:9572D3492DD13F623449ED68336C96F26563C6B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,25 +258,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507582   (798187) от 05.11.2021
+###  Публикация: 1121761   (799684) от 03.04.2017
 
-Injustice 2 (2017) [Ru/Multi] (1.1.21.0/dlc) License FAIRLIGHT [Legendary Edition]
+Fred Astaire - Fred Astaire's Finest Hour (1940-e - 1950-e) 2003, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Mainstream Jazz>
 
->>Win Игры
->>Arcade
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798187.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Injustice 2 - снарядите легендарных героев и злодеев вселенной DC и и придайте им новый облик. Ваша легенда. Ваша битва. Ваш Injustice. Сюжет Injustice 2 продолжает события Injustice: Gods Among Us – Бэтмен и его союзники пытаются собрать воедино рассыпающееся сообщество, одновременно сражаясь с теми, кто пытается восстановить режим Супермена. Во всем этом хаосе (   Читать дальше...   )Тип издания: LicenseРазработчик: NetherRealm Studios, QLOCЖанр: Action (Fighting), ArcadeЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+01.Steppin' Out with My Baby [02:26]
+ 02.Let's Call the Whole Thing Off [04:41]
+ 03.They Can't Take That Away from Me [02:34]
+ 04.Cheek to Cheek [05:44](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, Mainstream JazzПродолжительность: 01:00:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A3F7EB883AFAC59989257C8A05D440D51400A9D
+magnet:?xt=urn:btih:ABD25651B64B2C5AEB1E69B42FF867AF81377E96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,25 +287,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506515   (798186) от 05.11.2021
+###  Публикация: 1121617   (799683) от 03.04.2017
 
-Д.М. Кольцов, Е.В. Дубовик | Справочник PYTHON. Кратко, быстро, под рукой (2021) [PDF]
+Second To Sun - Gal Agnostiske Drommer (2011) [FLAC|Lossless|WEB-DL|tracks] <Post Black Metal, Groove Metal>
 
->>Компьютерная литература
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798186.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот справочник содержит всю ключевую информацию о Python в удобной и наглядной форме. Структура справочника позволяет быстро и удобно находить нужную информацию, получать примеры использования тех или иных элементов и конструкций Python. Отдельное внимание уделено внимание таким темам, как регулярные выражения, кортежи, итераторы и генераторы, объектно-ориентированное (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+01. Introduksjon av fremmede sæd i Demonhertuginnen (04:32)
+02. Sote Utenomjordiske Roll (02:37)
+03. Legenden om Den Onde Jesu Kristus (04:04)
+04. 11.03.11 (00:34)(   Читать дальше...   )Жанр: Post Black Metal, Groove MetalПродолжительность: 00:40:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:160D6129189B9AC15400F9DF23836E0CDC7B7CB5
+magnet:?xt=urn:btih:156B7B480DA865FF54D85E718F1064D8DE70BC0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,26 +316,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507747   (798184) от 05.11.2021
+###  Публикация: 1121874   (799682) от 03.04.2017
 
-Бендер: Последняя афера (2021) WEBRip [H.264]
+VA - Through The Clouds: April Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798184.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ибрагим Бендер и Ося Задунайский стали слишком известны — их разыскивает полиция двух стран: России и Турции. В погоне за золотым жезлом графа Румянцева им придётся переодеться цирковыми артистами, террористами и даже двумя путешествующими на корабле дамами, матерью и дочерью. Так Ося и Бендер оказываются в Турции.
-Тем временем мать Оси оказывается в лапах мрачного (   Читать дальше...   )Производство: Россия / Продюсерская компания «Среда»Жанр: приключения, комедияРежиссер: Игорь ЗайцевАктеры: Сергей Безруков, Арам Вардеванян, Александр Цекало, Юлия Рутберг, Юлия Макарова, Павел Деревянко, Юрий Колокольников, Вера Брежнева, Ольга Сутулова, Никита КологривыйПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:37:03
+001. Markus Schulz - The Lost Oracle (Transmission 2016 Theme) (Extended Mix) 07:45
+002. Purenrg - Secret Of The Sahara (Radio Edit) 03:54
+003. Mellari - Sputnik (Original Mix) 08:59
+004. Solomon08 - Lavatella (Original Mix) 07:07(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 12:25:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E3F358082099E8469FFE4F2B135CE2363837177
+magnet:?xt=urn:btih:E01377A2A124CB87C6A053DE05B6369AF3A28BF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,25 +345,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507656   (798183) от 05.11.2021
+###  Публикация: 1121570   (799681) от 03.04.2017
 
-Миньоны / Minions (2015) BDRip [H.264/1080p-LQ]
+VA - Beatport Trance  Pack (03.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798183.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Миньоны живут на планете на пару миллионов лет дольше нас. У них одна навязчивая идея — служить самой Гадкой личности из имеющихся в наличии. Динозавры, фараоны, Дракула, Наполеон — все они оказались недолговечны. И тогда миньоны рванули в Нью-Йорк. Их ждут деньги, власть, роковая суперзлодейка Скарлет Оверкилл и, конечно же, вкуснейшая «банана»! Во всяком случае, (   Читать дальше...   )Производство: США, Япония, Франция / Illumination Entertainment, Universal PicturesЖанр: Мультфильм, фантастика, комедия, приключенияРежиссер: Кайл Балда, Пьер КоффанАктеры: Сандра Баллок, Джон Хэмм, Майкл Китон, Эллисон Джэнни, Стив Кугэн, Дженнифер Сондерс, Джеффри Раш, Стив Карелл, Пьер Соффин, Кэти МиксонПеревод: ДублированныйСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 01:30:58
+01.  Sam Laxton - Local Anaesthetic (Extended Mix)  6:13
+02.  Type 41 - Aquis (Plutian pres. Astrion Remix)  8:38
+03.  Ozo Effy - Deep Reality (Ultimate Extended Remix)  6:55
+04.  Alexander Dyomin - Sunset On Green Street (Original Mix)  7:41(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 04:57:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C43A5F0C4032A7DF7B93B9C87A867FE633E1F6AB
+magnet:?xt=urn:btih:76AC48583812CC2E6D8439FF27E128144B6B01DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,25 +374,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507670   (798182) от 05.11.2021
+###  Публикация: 1121717   (799680) от 03.04.2017
 
-Финч / Finch (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
+VA - Vinyl Lounge Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798182.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Постапокалипсис. Инженер-робототехник Финч переживает, что никто не сможет позаботиться о его собаке после смерти. Он строит робота и отправляется в путешествие, обучая своего нового компаньона жизни, любви, дружбе и дает ему понять, что значит быть человеком.Производство: Великобритания, США / Amblin Partners, Dutch Angle, ImageMovers, Misher Films, Walden MediaЖанр: Фантастика, драмаРежиссер: Мигель СапочникАктеры: Том Хэнкс, Калеб Лэндри Джонс, Лора Каннингэм, Мари Уэйдженман, Оскар АвилаПеревод: Дублированный (Невафильм)Субтитры: Русские, украинские, английскиеПродолжительность: 01:55:39
+01. Spirotures — Displace (Jazzing Cut)
+02. Shangly Joe — Elements Stunt (Main Mix)
+03. Rawback — Stand Alone (Deep Version)
+04. Monowork — Seem (Chillmix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:602A59A13E1B860DFB9C02B4A6BDFF681A9D8B6D
+magnet:?xt=urn:btih:DECDDAC778C19A1B7639473C6AB74BF49E95D236
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,25 +403,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507683   (798181) от 05.11.2021
+###  Публикация: 1121749   (799679) от 03.04.2017
 
-Финч / Finch (2021) WEB-DL [H.264/1080p]
+Vince Vallicelli Band (feat. James Thompson) - Toot Loh Doon Faruye (2016) [MP3|320 Kbps] <Blues>
 
->>3
->>След.
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798181.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Постапокалипсис. Инженер-робототехник Финч переживает, что никто не сможет позаботиться о его собаке после смерти. Он строит робота и отправляется в путешествие, обучая своего нового компаньона жизни, любви, дружбе и дает ему понять, что значит быть человеком.Производство: Великобритания, США / Amblin Partners, Dutch Angle, ImageMoversЖанр: Фантастика, драмаРежиссер: Мигель СапочникАктеры: Том Хэнкс, Калеб Лэндри Джонс, Лора Каннингэм, Мари Уэйдженман, Оскар АвилаПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full, SDH), украинские, английские (Forced, Full, SDH)Продолжительность: 01:55:39
+01. Toot Loh Doon Faruye (04:20)
+02. Whysky (06:35)
+03. Last Train To Aalter (07:22)
+04. Night Train (04:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A19399A59B832C1991151EB020F1B6F555FC7A3
+magnet:?xt=urn:btih:E2BB7DCB0024553F290E1AF386E10EFB573ED607
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,25 +432,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222200   (798180) от 05.11.2021
+###  Публикация: 1121503   (799678) от 03.04.2017
 
-Call to Arms (2018) [Ru/Multi] (1.228.0/dlc) License CODEX [Ultimate Edition]
+Second To Sun - Blackbound (2016) [FLAC|Lossless|WEB-DL|tracks] <Post Black Metal, Groove Metal>
 
->>След.
->>Strategy Tactical (RTS/TBS)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798180.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Call to Arms – тактическая стратегия в реальном времени с элементами экшена, события которой разворачиваются в современном мире. Здесь вам будет доступно две основные играбельные фракции, около 20 реалистичных моделей транспортных средств, более 60 видов вооруженияТип издания: LicenseРазработчик: DigitalmindsoftЖанр: Strategy (RTS), Action, Simulator, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+1. Vasilisa (04:09)
+2. Chokk Kapper (03:33)
+3. Region 13 (04:03)
+4. The Yoke (04:48)(   Читать дальше...   )Жанр: Post Black Metal, Groove MetalПродолжительность: 00:43:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E90EC74A56C0090F8B10E3667AD2D13EE49C27FB
+magnet:?xt=urn:btih:13A074407EEED433259A9CC1F0352401E5244EE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,25 +461,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507664   (798179) от 05.11.2021
+###  Публикация: 1121710   (799677) от 03.04.2017
 
-Герда (2021) WEBRip [H.264/1080p-LQ]
+VA - Soft Chill House Beach Lounge Vol.2 (2017) [MP3|320 Kbps] <Chillhouse, Lounge>
 
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798179.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лера днем изучает человечество и его потребности с помощью соцопросов, которые являются учебной практикой в институте, ночью — танцует в клубе, чтобы заработать деньги и прокормить себя и маму. Люди, которых она встречает, так же несчастны, как и ее семья. Ее отец недавно ушел к другой женщине, но постоянно приходит обратно, не в силах осознать собственный выбор. (   Читать дальше...   )Производство: Россия / Фонд «Кинопрайм», Централ Партнершип, Red Media, Русское возрождениеЖанр: ДрамаРежиссер: Наталья КудряшоваАктеры: Анастасия Красовская, Юра Борисов, Дарюс Гумаускас, Юлия Марченко, Мария Леонова, Мария Иванова (V), Татьяна Оквамо, Серафима Красникова, Мария Песоцкая, Софья АлександроваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:01:11
+01.  Clemens Rumpf - Feel So Good (Disco Blend Mix)  6:45
+02.  Bastixs - Muzik  5:17
+03.  Discey - Ashram (Vocal Edit)  7:04
+04.  Ritmo Fatalismo - Sangria After Midnight  6:00(   Читать дальше...   )Жанр: Chillhouse, LoungeПродолжительность: 02:28:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82278AEC20DD1E8B2089B74806E20779C0FAA9E9
+magnet:?xt=urn:btih:CDED694E11B1269093C3EDDF9D580084F186AFD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,25 +490,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507799   (798178) от 05.11.2021
+###  Публикация: 1121693   (799676) от 03.04.2017
 
-Alan Wake Remastered (2021) [Ru/En] (1.0.33793/dlc) Repack Decepticon
+What The Blood Revealed - EP 1 (2007) [MP3|320 Kbps] <post-rock, post-metal, instrumental>
 
->>След.
->>Action (TPS)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798178.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Alan Wake Remastered — в этом отмеченном наградами кинематографическом боевике писатель Алан Уэйк отправляется на отчаянные поиски своей пропавшей жены Элис. После её таинственного исчезновения из городка Брайт-Фоллс на северо-западе тихоокеанского побережья он обнаруживает страницы с ужасающей историей, якобы написанной им, но о чём он сам не помнит.Тип издания: RepackРазработчик: Remedy EntertainmenЖанр: Adventure, Action (Horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+01. Evolution is Not a Theory
+02. Blood on the Turing Machine
+03. Modern/Latter Improvements to the Ptolemaic System
+04. They Will Sow Guns, We Will Reap BulletsЖанр: post-rock, post-metal, instrumentalПродолжительность: 00:27:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E95F33FB1404DB9BD2BF14BC3929C22FA259B7D
+magnet:?xt=urn:btih:118CDDA976B18572E141660A34BAFA96D18F6B6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,25 +519,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503354   (798177) от 05.11.2021
+###  Публикация: 1121735   (799675) от 03.04.2017
 
-W10 Digital Activation 1.4.3 by Ratiborus [Ru/En]
+Sid Rumpo - First Offense (1974) Remastered, 1993, Mushroom [FLAC|Lossless|tracks + .cue] <Blues Rock>
 
->>3
->>След.
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798177.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-W10 Digital License Activation - инструмент от Ratiborus для активации Windows 10 с помощью цифровой лицензии.Язык интерфейса: Русский, Английский
+01. Spotlight (05:56)
+02. Breakin' My Back (04:14)
+03. Spider Curry (01:43)
+04. Sailing (08:31)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA52EA7B1E0BF31170C0B4BFEEC8409C65BE0BCA
+magnet:?xt=urn:btih:5AAA69BC7FDF03E933BA9777E1C50A321DD5DDAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +548,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507710   (798176) от 05.11.2021
+###  Публикация: 1121837   (799674) от 03.04.2017
 
-Финч / Finch (2021) WEB-DLRip
+DJ Feel - TranceMission (27-03-2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 
->>След.
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798176.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Постапокалипсис. Инженер-робототехник Финч переживает, что никто не сможет позаботиться о его собаке после смерти. Он строит робота и отправляется в путешествие, обучая своего нового компаньона жизни, любви, дружбе и дает ему понять, что значит быть человеком.Производство: Великобритания, США / Amblin Partners, Dutch Angle, ImageMovers, Misher Films, Walden MediaЖанр: Фантастика, драмаРежиссер: Мигель СапочникАктеры: Том Хэнкс, Калеб Лэндри Джонс, Лора Каннингэм, Мари Уэйдженман, Оскар АвилаПеревод: Дублированный (Невафильм)Субтитры: Русские, украинские, английские (отдельно)Продолжительность: 01:55:39
+01. Sander van Doorn - Need To Feel Loved (Lvndscape Remix)
+02. Frainbreeze & Lucid Blue - World Of Nothing (Original Mix)
+03. Adara - Oasis (Estiva Remix)
+04. Nic Toms - Dream Big (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:59:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7096C21BF9A72C67811EA56D987B2C295E7A28A
+magnet:?xt=urn:btih:0C01CE8F6EAE7811E84C87AC0FE1DAC1A120FA37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,25 +577,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507703   (798175) от 05.11.2021
+###  Публикация: 1121697   (799673) от 03.04.2017
 
-Герда (2021) WEBRip
+What The Blood Revealed - EP 2 (2009) [MP3|320 Kbps] <post-rock, post-metal, instrumental>
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798175.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лера днем изучает человечество и его потребности с помощью соцопросов, которые являются учебной практикой в институте, ночью — танцует в клубе, чтобы заработать деньги и прокормить себя и маму. Люди, которых она встречает, так же несчастны, как и ее семья. Ее отец недавно ушел к другой женщине, но постоянно приходит обратно, не в силах осознать собственный выбор. (   Читать дальше...   )Производство: Россия / Фонд «Кинопрайм», Централ Партнершип, Red Media, Русское возрождениеЖанр: ДрамаРежиссер: Наталья КудряшоваАктеры: Анастасия Красовская, Юра Борисов, Дарюс Гумаускас, Юлия Марченко, Мария Леонова, Мария Иванова (V), Татьяна Оквамо, Серафима Красникова, Мария Песоцкая, Софья АлександроваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:01:11
+01. Politics, Here Is Death
+02. The Corporation as We Know it is Dead, Dead, Dead
+03. A Million Explosions Live Inside EveryoneЖанр: post-rock, post-metal, instrumentalПродолжительность: 00:21:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90F57F249148C411187D9AE60761FBA51E00072A
+magnet:?xt=urn:btih:8376C62097F9FB9C023D04CA3B9AA76736BC4C40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,25 +605,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507813   (798174) от 05.11.2021
+###  Публикация: 1121756   (799672) от 03.04.2017
 
-Финч / Finch (2021) WEB-DLRip [H.264]
+VA - Paul Oakenfold: DJ Box March (2017) [MP3|320 Kbps] <Trance>
 
->>След.
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798174.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Постапокалипсис. Инженер-робототехник Финч переживает, что никто не сможет позаботиться о его собаке после смерти. Он строит робота и отправляется в путешествие, обучая своего нового компаньона жизни, любви, дружбе и дает ему понять, что значит быть человеком.Производство: Великобритания, США / Amblin Partners, Dutch Angle, ImageMovers, Misher Films, Walden MediaЖанр: фантастика, драмаРежиссер: Мигель СапочникАктеры: Том Хэнкс, Калеб Лэндри Джонс, Лора Каннингэм, Мари Уэйдженман, Оскар АвилаПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: русские (форсированные, полные, SDH), английские (полные, SDH)Продолжительность: 01:55:39
+01. Layout - We Found Love (Rich James Remix) (04:41)
+02. Ben Gold - Atomic (Tempo Giusto extended Remix) (06:24)
+03. Solid Stone & Jennifer Rene - Heart Call (Jerome Isma-Ae Remix) (06:45)
+04. Magnus - Cyanosure (06:14)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BED25F03BAA10722C54EFC5235922A4573C3A006
+magnet:?xt=urn:btih:19197F375EB22F9C75D2E61B4B2D48F6D7CCC8B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,28 +634,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507708   (798173) от 05.11.2021
+###  Публикация: 1121347   (799671) от 03.04.2017
 
-Воспоминания / Reminiscence (2021) UHD BDRip [H.265/2160p] [4K, HDR10, 10-bit]
+VA - Dark Room Erotica Jazz Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798173.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Недалёкое будущее, Майами почти полностью ушёл под воду из-за глобального потепления. Частный детектив Ник Баннистер с помощью специальной технологии выискивает в человеческой памяти нужные моменты, чтобы заказчик мог заново пережить прошлое и вспомнить что-то важное. Однажды на пороге его офиса появляется клиентка с простой просьбой: она забыла, где оставила ключи. (   Читать дальше...   )Производство: США / FilmNation Entertainment, Kilter Films, Michael De Luca ProductionsЖанр: Фантастика, триллер, мелодрама, детективРежиссер: Лиза ДжойАктеры: Хью Джекман, Ребекка Фергюсон, Тандиве Ньютон, Клифф Кёртис, Дэниэл Ву, Моджиан Ариа, Марина Де Тавира, Бретт Каллен, Натали Мартинес, Анджела СарафянПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские
-
-Диск на Blu-ray.com
-Просмотр 4K HDR-контента на ПКПродолжительность: 01:55:59
+01. Seneca Reynolds – Deep Shield – Groovy Obsession Mix
+02. Dave Nimerfro – Get You into My Life – Saxuality Chill Lounge Mix
+03. Perelandra – Dancing with the Sun – Travelling Silvertones Mix
+04. Smooth Rebel – Turn out the Light – Secret Love Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0C0A3677A357FA6ADB57BFFC4827C6BF0E2309D
+magnet:?xt=urn:btih:B38802A479822154FF2D9E6AC5D6969017AB0F2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,25 +663,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507622   (798172) от 05.11.2021
+###  Публикация: 1121141   (799670) от 03.04.2017
 
-Кошачьи миры Луиса Уэйна / The Electrical Life of Louis Wain (2021) WEB-DL [H.264/1080p]
+Alaska - The Bronze Years (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
 
->>След.
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798172.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Картины эксцентричного аристократа Луиса Уэйна обладают одной общей чертой — он пишет исключительно антропоморфных котов. Благодаря любви своей жены Эмили, Луис навсегда меняет взгляд людей на жизнь и на кошек. Но с каждой новой картиной причудливые миры Луиса начинают всё сильнее заменять ему реальность.Производство: Великобритания / Amazon Studios, Film 4, Shoebox FilmsЖанр: Биография, история, драмаРежиссер: Уилл ШарпАктеры: Бенедикт Камбербэтч, Клэр Фой, Джэми Деметриу, Норбери Экланд, Дороти Эткинсон, Ричард Айоади, Эмбер Виктория Брэй, Азим Чодри, Кристал Кларк, Софи Ди МартиноПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Full)Продолжительность: 01:46:42
+1.Run With the Pack (Badhams, Hawthorn, Marsden) 3:49
+2.Woman Like You (Badhams) 3:37
+3.Where Did They Go (Bonneville Blues) (Badhams, Hawthorn, Marsden) 4:41
+4.School Girl (Hawthorn, Marsden, Sinfield) 5:07(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0A16D8C55BCE6740C0A692A3DD4553686E6AFE6
+magnet:?xt=urn:btih:4B746A36254B5598E3491FC0F4D84539AF456504
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,28 +692,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507842   (798171) от 06.11.2021
+###  Публикация: 1121836   (799669) от 03.04.2017
 
-VA - Luxury Lounge Sunset, Vol. 4 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+Газета | 1000 секретов [Украина] №6 (март 2017) [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798171.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dreamhunter - Hurricane Bay (3:35)
-02. Lazy Hammock, Ivan M-sax - Clean Slate (5:06)
-03. Schwarz, Funk - Keep On (Remastered Version) (5:49)
-04. Corrado Saija - Sommeil Noir (Extended Version) (14:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:52
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AA9514DA41F682F8B5871CFA48B22192958B58E
+magnet:?xt=urn:btih:3636289AC53E1820F4FB997872494B57F18C168E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121816   (799668) от 03.04.2017
+
+Apple Jam - Beatlemagic (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересные диско-вариации тем Битлов в стиле Arabesque, ABBA и т.п.01. She Loves You (3:22)
+02. Lady Madonna (3:36)
+03. Eleanor Rigby (3:50)
+04. A Hard Days Night (3:44)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Pop, DiscoПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D75F93A6B20492ACE62DE87753E7E577A08F845
 ```
 
 https://mybot314.ru/tekegram_catalog/

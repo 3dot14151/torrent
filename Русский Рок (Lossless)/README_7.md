@@ -1,3 +1,119 @@
+###  Публикация: 1481749   (1008174) от 04.07.2021
+
+Сивый Яр (Sivyj Yar) - Из тьмы вымерших деревень (From The Dead Villages' Darkness) (2014) [FLAC|Lossless|tracks + .cue] <Black Metal, Pagan Metal, Post Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Плачут вдали почерневшие нивы/Blackened Fields Cry In The Distance (0:54)
+02. Только бездна внемлет нам теперь/Now Only Abyss Hears Us (8:06)
+03. Из тьмы вымерших деревень/From The Dead Villages' Darkness (9:39)
+04. Поднимались туманные дали/Distant Haze Was Arising (8:51)(   Читать дальше...   )Производство: Avantgarde Music – AV241Жанр: Black Metal, Pagan Metal, Post Black MetalПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589BA1E682A66A11F10A972DA1ED2F79E1D05B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482249   (1007603) от 08.07.2021
+
+Операция Пластилин - Грустные песни для уставших людей (2021) [FLAC|Lossless|image + .cue] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чёрный факел
+02. Ашан (письмо Саше Г.)
+03. Моя провинция
+04. Все взрослые(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB77F20888A6E01B9C9A0FAF256E294752665867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482851   (1007321) от 10.07.2021
+
+Hardballs - Белый шум (2021) [FLAC|lossless|tracks] <Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белый шум (02:50)
+02. Время здесь остановилось (03:36)
+03. Где-то там (03:30)
+04. Знаю (04:28)(   Читать дальше...   )Жанр: Rock, Alternative MetalПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBB14FCBDD0BA1EB1A05394B48D2F80FCD0CE80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095363   (1006825) от 13.07.2021
+
+Найк Борзов - 12 Albums + 12 Single's + 2 Compilation (1992-2021) [FLAC|Lossless|image + .cue, tracks] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Найк Владимирович Борзов (род. 23 мая 1972, Видное) — советский и российский рок-музыкант, поэт, певец и автор песен. Является основателем и лидером панк-группы «Инфекция», однако в широких кругах больше известен своим сольным творчеством.1992 - Погружение (переиздание 1997)
+1994 - Закрыто (переиздание 1997)
+1997 - Головоломка
+2000 - СупермendЖанр: Psychedelic RockПродолжительность: 20:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DFDD3C971DE063C532F0D7088FA72DD26C39FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546802   (1005747) от 22.07.2021
 
 Машина Времени - 32 Альбома (1980-2010) [FLAC|Lossless|image + .cue] <Rock>
@@ -655,124 +771,6 @@ Sarah Where Is My Tea - Love & Honor (2013) [FLAC|Lossless|WEB-DL|tracks] <Melod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D15F9C21EB63E5D12AF21910DD9AABE91C0360FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 220857   (976027) от 09.02.2013
-
-ГDР (ГДР) - 4 альбома+Bonus (2006-2011) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слушай, как поют сердца (03:26)
-02. Имбирь (03:52)
-03. Что-то менять (03:56)
-04. Песенка Негра из к\ф Криминальное Чтиво (03:21)
-05. Верить (из к_ф Путевой Обходчик) (02:41)
-06. Песня о Далекой Родине (03:10)Жанр: Rock |Продолжительность: 00:20:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939826   (975042) от 02.02.2020
-
-Красная плесень - Дискография 60 альбомов (1993-2019) [FLAC|Image + .cue]<Punk>
-
->>След.
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975042.jpg" />
-</div>
-
-
-###  Подробнее
-
-(1993) 01-Альбом №1
-(1993) 02-Сопля в левом ухе
-(1993) 03-Удар по яйцам
-(1993) 04-Металлист БаллалайкинЖанр: PunkПродолжительность: 47:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00100D983704EEA6EA582504E2B805995CC4861D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357398   (974275) от 03.02.2020
-
-Маша и медведи - Пиф-Паф (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974275.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мира Война
-2. Воскресенье
-3. Пиф-Паф
-4. Спокойной Ночи(   Читать дальше...   )Жанр: RockПродолжительность: 00:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26430A9E3C8248F716E92277EB9B3C0AEEA86A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439375   (972344) от 21.01.2012
-
-Мураками - Верь... (2011) [FLAC|Lossless|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нимфетка
-02. 8 марта
-03. Парагвай
-04. Сказка(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

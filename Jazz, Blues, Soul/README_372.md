@@ -1,3 +1,177 @@
+###  Публикация: 1193515   (261993) от 22.12.2017
+
+Benny Goodman - Benny In Brussels (1958) 1989, CBS [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Dance [01:05]
+02. Don't Be That Way [03:13]
+03. Hallelujah [04:15]
+04. Obsession [03:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684332BE3E6D7CCFBC6D332D93A474233CE1A66D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193720   (261992) от 22.12.2017
+
+Eric Alexander - Summit Meeting (2002) Milestone Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summit Meeting [08:05]
+02. The Sweetest Sounds [07:45]
+03. There But For The Grace Of... [08:52]
+04. I Haven't Got Anything Better To Do [07:14](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FF4E5682B818EE2B8D8C33DB31DBA7BE1DF543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193725   (261987) от 22.12.2017
+
+Enrico Pieranunzi Quartet - Alone Together (2001) Challenge Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak Low [05:18]
+02. My Foolish Heart [06:04]
+03. What Is This Thing Called Love [04:35]
+04. Sweet And Lovely [03:37](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C8FD4FE04867CCBD7CC81E53BDE27A9EA71CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193719   (261984) от 22.12.2017
+
+Charles McPherson - Siku Ya Bibi (1971, 1972) 1991, Mainstream Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Explain [04:26]
+02. Lover Man (Oh Where Can You Be) [04:58]
+03. God Bless the Child [04:28]
+04. Miss Brown to You [04:42](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91A64F9C8CACDE6393A2A748E828AE94E376BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193972   (261835) от 23.12.2017
+
+Antonio Ciacca Quintet - Rush Life (2008) Motema Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Squazin [05:51]
+02. Chipewha [07:25]
+03. I Remember Clifford [05:34]
+04. Flat 5 Flat 9 [06:49](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6379997529140ADCC717727250C07B160454D514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193831   (261834) от 23.12.2017
+
+Horace Tapscott - Little Afrika (1983) 2010, Absord Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing On A Limb [10:15]
+02. Little Afrika [09:01]
+03. Niger's Theme [17:13]
+04. Tapscott's Thoughts [02:17]Жанр: Post-Bop, Piano JazzПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D813DED296797EAF12C570F0EDFC207B133D434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193968   (261833) от 23.12.2017
 
 Steve Kuhn - Oceans In The Sky (1989) 2001, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -577,180 +751,6 @@ Kim Wilson - Slow Burn (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94A9C12C1610DEF095FE4368836506DCD2F17495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838623   (260685) от 23.11.2025
-
-Los Skeletone Blues - Its a Great Album!!! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Can You Take It (2:35)
-02.  Battery Tongue Baby (3:29)
-03.  Got No Head (2:26)
-04.  Jazz Bomb (1:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB88C6B932F459CA507E7E8BD696366345F6672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838628   (260677) от 23.11.2025
-
-Luke - The Truth Remains The Same (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro (1:03)
-02.  Love, Peace & War (4:46)
-03.  I Don't Really Know What Love Is (4:41)
-04.  The Truth Remains The Same (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5E6AB8E7D2B3FD26617594A5655006A82B72C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838632   (260676) от 23.11.2025
-
-Matthew Patrick - Authentico (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  40 Below (4:04)
-02.  Bikes, Bullets, and Beer (4:05)
-03.  Dark Train (3:38)
-04.  Long Cold Walk (3:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CDB1010494B089D7BBECFFA53C38567DAA21C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838633   (260675) от 23.11.2025
-
-Rich Wendel's Fat Fish Logic - The Last Comeback (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fish in the Sea (9:37)
-02.  Things Ain't What They Was (5:09)
-03.  Take a Minute for Yourself (5:08)
-04.  Wairunga Blues (5:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A987BA3072CC45C39765C286FB54F21DB49D16E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838634   (260674) от 23.11.2025
-
-Southbound Snake Charmers - 1000 Cuts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  1000 Cuts (3:25)
-02.  Take it or Leave it (3:16)
-03.  Bonnie vs Clyde (3:31)
-04.  Flying High (3:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720E839344A822A1AC3D663E977CACFB34BC2E29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838635   (260673) от 23.11.2025
-
-Steve Hooker - Smokin' Guitar (remastered) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wolf Farm (Grange Aux Loops) (4:08)
-02.  Devil I Know (3:02)
-03.  Mocking Bird (2:50)
-04.  Gospel Ground (4:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612BCE548B749B6B272B7291A8F4F366EEC99DD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

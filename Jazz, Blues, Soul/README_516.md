@@ -1,3 +1,177 @@
+###  Публикация: 1733675   (107242) от 30.06.2024
+
+VA - Chillhop Summer Vibes (Chillhop Music for Relaxing Days) (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pyma - Landscape (2:10)
+02. Soulstance - Highlines (6:14)
+03. P. A. Jeron - Mood For Love (2:17)
+04. Paolo Sessa - Toja (Instrumental) (3:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C072588FE6BF769513A90D3337A94D43E7B2C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733693   (107240) от 30.06.2024
+
+VA - Relaxing Escape to Paradise Vacation Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Summer Wind (5:08)
+02. eJazz Artistry - Angel (4:41)
+03. Kool&Klean - Beautiful Surprise (4:25)
+04. Chillaxonic - Reflections of Passion (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54AB60425725E19C56FAAD0BD40AF3480715014E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733676   (107236) от 30.06.2024
+
+VA - Ibiza Meets Beauty Chill, Vol. 10 (Balearic Lounge & Chill House Grooves) (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernon - Runaways (4:15)
+02. Jean Mare - Melodic House (4:31)
+03. Bernon - A Midnight Love (In This Life Dance Vocal Mix) (4:06)
+04. Sergio - Sunrise (3:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E60993F3CEB7747FF889B7418C65C06BBB749F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733700   (107234) от 30.06.2024
+
+VA - Serene Blissful Relaxation Luxury Travel Tunes for Relaxation and Enjoyment (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Konstantin Klashtorni - 7 X 7 (4:13)
+02. Love Suggestions - It’s Our Time (5:46)
+03. Kool&Klean - The Way You Look Tonight (5:06)
+04. Chillaxing Jazz Kollektion - Evening Sun (5:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA85229C06D5899B9E38F5E870BCD7120216076C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733722   (107233) от 30.06.2024
+
+Rory Block - Positively 4th Street (A Tribute To Bob Dylan) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aurora "Rory" Block - американская блюзовая певица и гитаристка, представительница акустического кантри-блюза. Обладательница пяти наград Blues Music Awards.01. Everything Is Broken
+02. Ring Them Bells
+03. Like A Rolling Stone
+04. Not Dark Yet(   Читать дальше...   )Жанр: Blues, Country BluesПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFA0C1883D307D7C24496E715191795FA15A3B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733672   (107231) от 30.06.2024
+
+VA - Acid Jazz & Funky Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz & Funky, Dance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lainz - Sfrombolus (6:20)
+02. Vito Lalinga (Vi Mode Inc. Project) - Afrolume (3:57)
+03. Jestofunk - For Your Precious Love (5:38)
+04. Man Sueto - Argentina (4:31)(   Читать дальше...   )Жанр: Jazz & Funky, DanceПродолжительность: 02:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF6A5682F8758728B61003B4D1FAEB1FD57E8EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733642   (107227) от 30.06.2024
 
 Lennie Tristano - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
@@ -571,180 +745,6 @@ Louis Prima - The Very Best Of Louis Prima (1956 - 1962) 2CD, 2016, Not Now Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:740989F8D55A49145A2D38DE5CEFF6E2B07E9E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734287   (107114) от 03.07.2024
-
-John Albert - Down the Rabbit Hole (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't That I Don't Love You (3:52)
-02. What Do You Do When You Love Somebody (5:10)
-03. Ain't No Big Deal On You (3:28)
-04. Love Her With A Feeling (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9C01CCD55EAF068B7AC2CB04EC67F3646FE780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734285   (107112) от 03.07.2024
-
-Joe Clark - Hillbilly Voodoo (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enemy (3:02)
-02. Castaway (5:40)
-03. Get outta here (3:26)
-04. It is what it is (6:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77BB730EB862E32AAE5EA1554450D68DFBB1F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734289   (107108) от 03.07.2024
-
-Josie Field - Blue Planet (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reminds Me of Me (3:08)
-02. Blue Planet (3:11)
-03. Where to Begin (3:14)
-04. Miami (Blues Remix) (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB9ADFCF28F912BC63BE072AA51B9BF67162E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734282   (107107) от 03.07.2024
-
-Jason Lane Band - Full Steam Ahead (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light My Way (4:12)
-02. Born on the Bayou (4:59)
-03. Say It's True (4:41)
-04. Change (4:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1F8A6F2BF12D44B67003A0DF2F8323A4E7CF77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734852   (107059) от 05.07.2024
-
-Howard McGhee & Illinois Jacquet - Here Comes Freddy (1976) 1990, Sonet Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes Freddy [6:25]
-02. Suite For Dru [3:25]
-03. Deep In The Hat [5:22]
-04. All Soul [5:44](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8071A2EB39FA891DC6E06844657F018EC620A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734838   (107044) от 05.07.2024
-
-Sarah Menescal - Bossa Lounge E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank You (Bossa Nova Version)
-02. I Love You Always Forever (Leo Portela Rework)
-03. Hunting High and Low (Summer Remix)
-04. Alive And Kicking (Leo Portela Rework)Жанр: Bossa Nova, LoungeПродолжительность: 00:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5FB218DD1E52F53831B214E4A62E18C511A4497
 ```
 
 https://mybot314.ru/tekegram_catalog/

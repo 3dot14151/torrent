@@ -1,3 +1,32 @@
+###  Публикация: 1611707   (1040559) от 14.02.2023
+
+VA - Intrigue - Steven Wilson presents Progressive Sounds in UK Alternative Music 1979-89 (2023) 4CD, Super Deluxe Edition, Demon Records [MP3|320 Kbps] <Progressive Rock,  Psychodelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD-01 - Steven Wilson Presents Intrigue - Progressive Sounds In UK Alternative Music 1979–89
+CD-02 - Steven Wilson Presents Intrigue - Progressive Sounds In UK Alternative Music 1979–89
+CD-03 - Steven Wilson Presents Intrigue - Progressive Sounds In UK Alternative Music 1979–89(   Читать дальше...   )Жанр: Progressive Rock,  PsychodelicПродолжительность: 4 CD, 05:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A8B73C3236383247ED984E78A98AF043DD0C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612732   (1040172) от 16.02.2023
 
 Solence - Hope is a Cult (2023) [MP3|320 Kbps] <Alt.Rock, Modern Rock>
@@ -719,35 +748,6 @@ Be Cause - New Knights (2021) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B02B376364FBAD38F0DACC5E83D02B9DFA74AD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443044   (1036040) от 27.01.2021
-
-Canary - Cage Company (1981) LP [MP3|320 Kbps] <Krautrock, Prog Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loser (5:00)
-02. Climb The Hill (3:59)
-03. Where Ever You Go (5:37)
-04. Monstershow (4:59)(   Читать дальше...   )Жанр: Krautrock, Prog Rock, Hard RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03641D89B5EA6D4FE729564F4AAA368270B123B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1381534   (825823) от 07.05.2020
+
+VA - Super Hits 100 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825823.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Dua Lipa - Don't Start Now (3:03)
+2.The Weeknd - Blinding Lights (3:21)
+3.Topic - Breaking Me (2:46)
+4.Tones and I - Dance Monkey (3:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD1ECC123918B2A4728713056B3928122FD2C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115611   (825669) от 18.03.2017
 
 VA - Клубные Суперхиты (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -716,35 +745,6 @@ VA - New Wave Of Disco (2020) [MP3|320 Kbps] <Disco, New Generation>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F636F142C577BAD1C6FAF6E03FA1F20879B0F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196797   (820638) от 04.01.2018
-
-VA - German Top 100 Single Charts 05.01.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820638.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Perfect
-002. Bausa - Was du Liebe nennst
-003. Mariah Carey - All I Want for Christmas Is You
-004. Wham! - Last Christmas(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841B79A93071BCCA9CBEBBF90FE73D581A074076
 ```
 
 https://mybot314.ru/tekegram_catalog/

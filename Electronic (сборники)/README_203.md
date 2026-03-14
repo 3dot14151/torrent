@@ -1,3 +1,32 @@
+###  Публикация: 1519456   (148688) от 24.12.2021
+
+VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лёгкая танцевальная музыка с богатыми традициями от Disсо 80-х - и есть то, что ожидаешь услышать в данном сборнике. Своеобразный выразительный вокал и неповторимый мелодизм. Каждая песня сборника насыщена всем тем необходимым, что требуется для приятного времяпровождения, пассивного или активного отдыха. Несмотря на то, что этот стиль, как и многие другие предшественники, (   Читать дальше...   )001. Danros - Can't Get Enough
+002. The Sunburst Band - Rough Times
+003. French La Touche - Hard Life
+004. Holy Aliens & Dawn Tallman - Dance With You(   Читать дальше...   )Жанр: Jackin, Funky, Disco HouseПродолжительность: Jackin, Funky, Disco House
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBF1DE9B9DBFDAD0D53B201B5CFB654CA850180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519430   (148684) от 24.12.2021
 
 VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
@@ -722,35 +751,6 @@ VA - Beatport Techno: Electro Sound Pack #213 (2020) [MP3|320 Kbps] <Techno, Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63C5FDFD43D004ED7CC8B00521007974B0CC31D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435380   (144405) от 28.12.2020
-
-VA - Beatport Drum And Bass: Electro Sound Pack #214 (2020) [MP3|320 Kbps] <Drum & Bass, Bassline>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144405.jpg" />
-</div>
-
-
-###  Подробнее
-
-С музыкой 214-го саунд пака от Beatport в голове постоянно всплывают слова вроде "Сильно" с контекстом "То, что искал!". Как всегда Вашему вниманию очень проработанный, эклектичный, изобретательный и экзотичный винегрет из самых разных стилей Bassline, звуков и путанных, сбивающихся драм-ритмов.001. Anma - Witchdrum
-002. Murdock - Double Dutch
-003. Maxim R Ft Mokina - Several Seven
-004. Delta Heavy - Take The Stairs(   Читать дальше...   )Жанр: Drum & Bass, BasslineПродолжительность: 09:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F31CB7F576B376F7C9F7483D31F6B862C4AF5E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

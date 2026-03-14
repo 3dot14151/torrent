@@ -1,3 +1,119 @@
+###  Публикация: 1461023   (1021783) от 10.04.2021
+
+Mariza - Mariza Canta Amalia (2020) [FLAC|Lossless|image + .cue] <Fado, Bossanova>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Com Que Voz
+02. Barco Negro
+03. Lagrima
+04. Formiga Bossa Nova(   Читать дальше...   )Жанр: Fado, BossanovaПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034118732F10F3C347899346F9CE0DB802FFDD2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461086   (1021759) от 10.04.2021
+
+VA - Best Of Green Hill Music: The Piano Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stan Whitmire - Bella's Lullaby - Solo Piano Theme From Twilight (3:50)
+02. Jim Brickman - Valentine (3:33)
+03. David Hamilton - 'S Wonderful (4:04)
+04. Beegie Adair - I Get Along Without You Very Well (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E083FCBA33CF6D901F5960ED7A0AFA2591742F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461444   (1021609) от 11.04.2021
+
+Robbie Robertson - Collection (1994-1998) 2 альбома [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coyote Dance
+02. Mahk Jchi (Heartbeat Drum Song)
+03. Ghost Dance
+04. The Vanishing Breed(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CA63657DC91890BB748F824EACF02B8AEE1123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457216   (1020925) от 15.04.2021
+
+Erotic Sex Audio XXX - Hot and Sexy Ringtones (2010) 2CD [MP3|320 Kbps] <Ringtones, Pop, Sexy>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot & Sexy Ringtone #1
+02. Hot & Sexy Ringtone #2
+03. Hot & Sexy Ringtone #3
+04. Hot & Sexy Ringtone #4(   Читать дальше...   )Жанр: Ringtones, Pop, SexyПродолжительность: 00:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A71A29777F620914EF9836D7BCCBCC032DB134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463275   (1020612) от 17.04.2021
 
 Benjamin Wallfisch - Mortal Kombat (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
@@ -631,122 +747,6 @@ VA - We Love Yoga - 2021 Morning Blessings [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC050CAB0E9FDF44D01F55705DA54ED92A654351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470761   (1015292) от 19.05.2021
-
-Shamanic Channel - Collection (2021) 4альбома [MP3|320 Kbps] <Native American, New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yellow Shamanism
-02. Sacred Ritual
-03. Into the Woods, Rain Sounds
-04. Native Relaxation(   Читать дальше...   )Жанр: Native American, New age, MeditativeПродолжительность: 03:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3E11EB79B32BC1F4972E852F88A4AD1F7578C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 320176   (1014887) от 21.05.2021
-
-Mirage - Classic Guitar Mood (1995) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Theme from Romeo & Juliet 	(03:23)
-02. Your Song 				(04:07)
-03. Bamboleo 				(03:34)
-04. Rodrigo's Guitar Concerto 		(03:10)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50338FF96845D3F5A638B2715F559766F08973A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583407   (1014260) от 25.05.2021
-
-Nightwish - Imaginaerum (The Score) (2012) Unofficial Release [APE|Lossless|image + .cue] <Neo - Classic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Find Your Story (2:31)
-02. Orphanage Airlines (4:34)
-03. Undertow (5:18)
-04. Spying In The Doorway (3:04)(   Читать дальше...   )Жанр: Neo - ClassicПродолжительность: 00:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A263F51950024A4BA3CB42083A1F2F562AECB39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472983   (1014026) от 27.05.2021
-
-Elbosco - Angelis (1995) [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014026.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Nirvana 4:51
-2 A Kind Of Birds 4:18
-3 Nebo 4:43
-4 Spend A Happy Day 4:39(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26D2CDB7DDB8FD0C4B359DD1F1B4A3D8FB827B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

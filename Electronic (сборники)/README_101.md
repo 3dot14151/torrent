@@ -1,3 +1,32 @@
+###  Публикация: 1034469   (634368) от 13.07.2016
+
+VA - Endless Motion - Only Trance (episode1) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634368.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Andrew Rayel Extended Remix) 6:56
+002. Denis Kenzo & Alexandra Badoi -  More Time (Original Mix) 5:49
+003. Alex M.O.R.P.H. & Den Rize feat. Natalie Gioia -  Angelic (Original mix) 7:56
+004. NoMosk & Ansia Orchestra -  Adventure  (UDM Remix) 6:58(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 11:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8655F82C8F458CEAE86834FDC1AF7F517ADA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034737   (634362) от 13.07.2016
 
 VA - Endless Motion - Only Trance (episode2) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -740,41 +769,6 @@ VA - Drumsound and Bassline Sampler (2017) [MP3|320 Kbps] <Drum&Bass, Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13B2F42E26A1DFDFCA23C5AF950D826D4DB9A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520777   (631615) от 09.07.2012
-
-VA - A State Of Vocal Trance Volume 1 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631615.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
-002. Mike Shiver feat. Bo Bruce - Still Here
-003. Neev Kennedy - The Unknown (DNS Project Extended)
-004. Omnia & IRA - The Fusion (Original Mix)
-005. Pulser feat. Molly Bancroft - In Deep (Pulser's Main Floor Remix)
-006. Rave Channel - Illusion (Original Mix)
-007. Remy Le Duc, The EC Twins & Zen Freeman feat. Shakeh - In Motion (Original Mix)
-008. Ronski Speed feat. Sir Adrian - Seen It All (Alexander Popov Mix)
-009. Ruben de Ronde & Aelyn - She's Already Gone Vocal Mix
-010. Sebastian Ingrosso, Alesso & Ryan Tedder - Calling (Lose My Mind) (Extended Club Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F2BFBD1682F2B33C159DF28561ADACA1E83E54
 ```
 
 https://mybot314.ru/tekegram_catalog/

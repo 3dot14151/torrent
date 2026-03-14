@@ -1,3 +1,90 @@
+###  Публикация: 1390012   (783649) от 13.06.2020
+
+Boris Brejcha - Chameleon (Live Stream Part 1) (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783649.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chameleon (7:50)
+2. Face Slap (8:58)
+3. Panic Room (7:43)
+4. The Final (6:49)Жанр: Tech House, MinimalПродолжительность: 00:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90645F64B5E5A434F60B4619D265430B7DA009E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205056   (783551) от 10.02.2018
+
+VA - Le Son Dancefloor (2009) [FLAC|Lossless|tracks] <House, Electro, Europop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.David Guetta Feat. Kelly Rowland - When Love Takes Over (3:08)
+02.Antoine Clamaran Feat. Annie C - Reach For The Stars (3:14)
+03.Helmut Fritz - Ça M'énerve (3:38)
+04.Bob Sinclar Feat. The Sugar Hill Gang - Lala Song (3:17)(   Читать дальше...   )Жанр: House, Electro, EuropopПродолжительность: 01:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25BAC30AEAF6B8A4D61068053E7D8871C935D141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205204   (783543) от 10.02.2018
+
+VA - House Goes 80's Vol. 3 (2009) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rilod - Thriller (6:20)
+02.Prime Time - Right Round (Ippytraxx Radio Edit) (3:03)
+03.Jay Jay - Let The Music Play (Belmond & Parker Radio Mix) (3:49)
+04.Alan Master T. - People Hold On (Radio Edit) (3:14)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D30C09DD3CD223F038760F3663380C35AB27F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205191   (783524) от 10.02.2018
 
 David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Progressive House, House, Electro>
@@ -655,93 +742,6 @@ VA - True People: The Detroit Techno Album (1996) React [FLAC|Lossless|tracks+.c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12557AE82B0B714A70BCA091AA511E8114685B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208516   (779821) от 23.02.2018
-
-FUCT TAPE - FUCT TAPE (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Berlin Nights 05:43
-02. Cave Drawings 04:56
-03. Jessy Lanza 05:29
-04. Don Caballero 04:38(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55DC6BA21CEBD9AC5E53B6F4D8619A7B98216786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208674   (779817) от 23.02.2018
-
-Von Grall - Infinitum (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinitum (06:38)
- 02. Hyper Density (06:02)
- 03. Anthropology (06:06)
- 04. Emerald City (06:00)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245B2BD3C188A5BAF155C0A56DB5791BAC18ABFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208666   (779791) от 23.02.2018
-
-GusGus - Lies Are More Flexible (2018) Oroom [FLAC|Lossless|WEB-DL|tracks] <House, Leftfield, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Featherlight (05:17)
- 02. Don't Know How to Love (05:12)
- 03. Fireworks (04:56)
- 04. Lifetime (05:49)(   Читать дальше...   )Жанр: House, Leftfield, Progressive HouseПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F8548D86EB39E3DE4C10EECC2BD4421AC2671FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1333456   (303541) от 25.10.2019
+
+VA - Your Bass List (2019) [MP3|257-320 Kbps] <DnB, Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303541.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Panix - Socery
+002. Untrue - Sacrifice
+003. Nacho Sotomayor - Wonderful
+004. Hugh Hardie - Endless(   Читать дальше...   )Жанр: DnB, BassПродолжительность: 09:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E55BA224272EB7B8AE6F701BB2E8DECCE1F987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184193   (303534) от 16.11.2017
 
 VA - Best of Deep House. Volume 8. The Unofficial Chords of Planet Ee [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep House>
@@ -722,35 +751,6 @@ VA - Reverence: Deep House Exrta Mixes (2018) [MP3|320 Kbps] <Deep House, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAE51F4FC4EACB605A595F0B6FF422E1B6817E86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261965   (298596) от 13.11.2018
-
-VA - Progressive House Project (2018) [MP3|320 Kbps] <Progressive House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298596.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tigran Oganezov - Sexciter
-002. Deljoi - Take It Back Jack
-003. Douglas Greed - Down Here
-004.  Klangdeko - Haubutze(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 09:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F74E3F0F446C4B5E1B85EBCD966323D93B1E280
 ```
 
 https://mybot314.ru/tekegram_catalog/

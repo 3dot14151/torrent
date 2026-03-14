@@ -1,3 +1,148 @@
+###  Публикация: 1740230   (105893) от 01.08.2024
+
+Big Steel Train - #BST24 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up, Get Out, Get Down (3:23)
+02. Blame It On Love (3:48)
+03. Freedom (3:06)
+04. A Hundred Ways (3:10)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3FA5165FC3FB10036D8E57D40575A522BDCCB9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740289   (105892) от 01.08.2024
+
+Twilight Force - Studio Albums (4 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Twilight Force — шведская симфо-пауэр-метал группа, известная своими фантастическими текстами и костюмами в стиле LARP, в которых группа выступает на сцене.2014 - Tales Of Ancient Prophecies
+2016 - Heroes of Mighty Magic
+2019 - Dawn of the Dragonstar
+2023 - At The Heart Of WintervaleЖанр: Symphonic Power MetalПродолжительность: 03:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD589F083EA91A4EDC8B7244B1533D2143A25F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740584   (105830) от 02.08.2024
+
+Los Lonely Boys - Resurrection (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wish You Would (3:34)
+02. I Let You Think That You Do (3:31)
+03. Dance With Me (3:53)
+04. Send More Love (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC1DCDDB612BAFFAFF5D180FF413C324F3D4C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740513   (105828) от 02.08.2024
+
+aurorawave - aurorawave (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <World, Reggae, Reggae Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. aurorawave - Meant To Be [3:28]
+02. Atreyu;aurorawave - Inferno [3:33]
+03. aurorawave - Stratosphere [2:51]
+04. Layton Meacham;aurorawave - Rise & Shine [3:37](   Читать дальше...   )Жанр: World, Reggae, Reggae RockПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F08588075D7E66DF25A580D570AF50FD9FB9AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740482   (105823) от 02.08.2024
+
+Lord Of The Lost - LIVE at W:O:A (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Gothic, Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lighting The Way (Intro) (LIVE at W:O:A) [3:00]
+02 - The Curtain Falls (LIVE at W:O:A) [3:05]
+03 - Morgana (LIVE at W:O:A) [3:46]
+04 - Kill It With Fire (LIVE at W:O:A) [3:45](   Читать дальше...   )Жанр: Rock, Gothic, Glam RockПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3D8DCE30287045162A1CC7C4FD4AB8987C4E25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740596   (105822) от 02.08.2024
 
 The Smashing Pumpkins - Aghori Mhori Mei (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Rock>
@@ -597,151 +742,6 @@ The Sofia Goodman Group - Receptive (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCB0677E2CD4C987C04D48037AA4E4EE58090BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741269   (105673) от 05.08.2024
-
-Tony Grey - Infinity Glitch (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreaming At A Train Station (2:54)
-02. Infinity Glitch (5:27)
-03. Elastic Man (6:27)
-04. Life As A Child (6:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BFB9082A460CF914C00D76C5E0AD3B91023713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741340   (105666) от 06.08.2024
-
-Derdian - Studio Albums (8 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Derdian - пауэр-метал группа из Италии, Милан, образованная в 1998 году.2005 - New Era Pt. 1
-2007 - New Era Pt. 2: War Of The Gods
-2010 - New Era Pt. 3: The Apocalypse
-2013 - Limbo(   Читать дальше...   )Жанр: Power MetalПродолжительность: 08:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A7345F8E979EFC41132885DE591AC37B3645FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741551   (105661) от 07.08.2024
-
-Cher - Living Proof (2001) Deluxe Edition, Reissue, 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Song for the Lonely (2024 Remaster) [3:22]
-02 - A Different Kind of Love Song (2024 Remaster) [3:53]
-03 - Alive Again (2024 Remaster) [4:20]
-04 - The Music's No Good Without You (2024 Remaster) [4:43](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DFC99645B916593F6243974865B6D7AA90034A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741538   (105633) от 07.08.2024
-
-Cher - Closer to the Truth (2013) Super Deluxe Edition, Reissue, 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Woman's World [3:42]
-02 - Take It Like a Man [4:11]
-03 - My Love [3:32]
-04 - Dressed to Kill [2:52](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAFE33B8C76140C8EFB8A5B465C1E2A7892CDD2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741765   (105619) от 08.08.2024
-
-Jay Lang - Blues, Vol. 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Honey (2:47)
-02. No Name (4:08)
-03. Hopalong Tracy (3:21)
-04. Short Skirt (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59238553C09EA3B9BA1D543125B450954B4DD5C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 656547   (815733) от 15.05.2013
+
+Halestorm - The Strange Case Of... (2012) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard Rock, Alternative MetalПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A6D85ADF18C078F87C9048D9EE202F12BA895B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503985   (815567) от 21.10.2021
+
+Юрий Шевчук и группа ДДТ - Сборник песен (2021) Vinyl-Rip [FLAC|44/24|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Белая река
+2. В последнюю осень
+3. Просвистела
+4. Что такое осень(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D60A49D14B3B04D4138F4963BE4BE5D5927FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008559   (815263) от 18.04.2016
+
+Inside the Music: Women on Top (2001) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <Pop, Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Of Glass - Blondie
+02. Walking On Sunshine - Katrina And The Waves
+03. We Belong - Pat Benatar
+04. Bette Davis Eyes - Kim Carnes(   Читать дальше...   )Жанр: pop, pop/rockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99858DF9575FB203A2B4017B769953F07DC2A857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008532   (815255) от 18.04.2016
+
+Checkfield - Surrounded (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <smooth-jazz, new age>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815255.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Through The Lens
+2. Grasslands
+3. Flowers
+4. Clockwork(   Читать дальше...   )Жанр: smooth-jazz, new ageПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A3C004ED197BFD75B3C70845F87362723AE935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117989   (814903) от 24.03.2017
+
+Cinderella - Long Cold Winter (1988) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Hard Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallin' Apart at the Seams (5:19)
+02. Gypsy Road (3:55)
+03. Don't know What You Got (Till It's Gone) (5:54)
+04. The Last Mile (3:52)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BE62B8CB643F25DE30384381B75B2F154AD46C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008740   (813553) от 19.04.2016
 
 Smokie - The Montreux Album, The Other Side Of The Road (1978, 1979) [PCM 2.0|96/24|Audio-DVD|Vinyl-Rip] <Rock>
@@ -611,151 +753,6 @@ A4 (You Never Can Tell) C'est La Vie(   Читать дальше...   )Жанр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C912588F76AD77B972B28D6AC0495A4E262DE1A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273436   (799731) от 02.01.2019
-
-Tina Turner - Twenty Four Seven (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799731.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Whatever You Need
-A2 All The Woman
-A3 When The Heartache Is Over
-A4 Absolutely Nothing's Changed(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038B0E144940142EC43CE5A263CC3D512A3093BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121789   (799603) от 03.04.2017
-
-VA - RETROспектива, часть XVI. Мелодии и песни из кинофильмов V (1939-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лолита Торрес - Ай, девчонка (из к.ф. ''Жених для Лауры'')
-02. Лолита Торрес - Ясная дорога (из к.ф. ''Жених для Лауры'')
-03. Андраш Варга - Вальс свечей (из к.ф. ''Мост Ватерлоо'')
-04. Виктория Иванова и  Иван Шмелёв - Дуэт Лены и Фёдора (из к.ф. ''Укротительница тигров'')(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E160C5FD11760312B9D7BAE929ED5F724B63B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121901   (799579) от 03.04.2017
-
-KOTO - Plays Synthesizer World Hits (1990)  [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799579.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Trans Europe Express
-A2. Tender Force
-A3. James Bond Theme
-A4. The Force(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72D1100049543FDE2A1DA4F56221D5C8D4243F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273829   (799329) от 03.01.2019
-
-Roger Shah - Music For Meditation, Yoga & Any Other Wellbeing Moments (2016) [DTS 5.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio]] <Relax, Ambient, Chillout>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799329.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Close Your Eyes [07:23]
-2. Inner Peace [07:07]
-3. Island Of Calm [08:09]
-4. Quiet Your Mind [07:01](   Читать дальше...   )Жанр: RelaxПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374E0B229F62FB2EA88E0CFA8EA07315D88D87C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011018   (797359) от 26.04.2016
-
-Inside The Music: Classic Rock (2001) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797359.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bad To The Bone - George Thorogood & The Destroyers
-2. Rebel Yell - Billy Idol
-3. Green Eyed Lady - Sugarloaf
-4. When The Night Comes - Joe Cocker(   Читать дальше...   )Жанр: new waveПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEF7D230B8CAD933A76473113D32317132CB7FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

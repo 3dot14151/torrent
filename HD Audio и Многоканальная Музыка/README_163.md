@@ -1,3 +1,148 @@
+###  Публикация: 1758392   (103399) от 02.11.2024
+
+Brothers of Metal - Fimbulvinter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sowilo (4:08)
+02. Flight of the Ravens (4:58)
+03. Giantslayer (3:21)
+04. Heart of Stone (5:03)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A268EBF0AC0663FCCC364EA1C1823FBA3C0AF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758376   (103392) от 02.11.2024
+
+Grant Richards - Menagerie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julia Easterlin - By the Water (3:37)
+02. Julia Easterlin - Moving (4:05)
+03. One (3:18)
+04. Blaze of Glory (3:24)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAEA42223AA6693F8460E71AEB3C2EE69A38BCFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758373   (103391) от 02.11.2024
+
+Francesco Venerucci - INDIAN SUMMER (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Funamboli (6:15)
+02. Il Tempo Stinge (3:46)
+03. El Chiquirino (4:29)
+04. Just A Ballad (6:09)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF87B8D888EF18E4948D681583C4D7D332F8533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758381   (103390) от 02.11.2024
+
+Kevin A Knowles - Vagabond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crack In The Sidewalk (2:56)
+02. Send Me (3:13)
+03. Left Or The Right (Unafraid) (3:43)
+04. Carried Away (3:10)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2410908ED93B037E96D43E2EAFD9C12E1D0F2F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758378   (103389) от 02.11.2024
+
+Gregory Kunde - Then and Now (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Make Me Feel So Young (2:55)
+02. Our Love Is Here To Stay (3:17)
+03. For Once In My Life (3:24)
+04. My Kind Of Town (2:47)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFDEDFBCC14786E3854A8706D71C4AD839BEC3B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758380   (103388) от 02.11.2024
 
 Jason Jackson - Looking Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
@@ -599,147 +744,6 @@ Orbital - A Beginner's Guide (Best Of) (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2973F5DBD412C13FB61CEB01DED5409072357DF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759652   (103231) от 10.11.2024
-
-Ghosts Of Atlantis - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Symphonic Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghosts Of Atlantis - symphonic / groove / melodic death metal группа из г. Ипсвич, Англия.2021 - 3.6.2.4
-2023 - Riddles of the SycophantsЖанр: Extreme Symphonic Metal/MetalcoreПродолжительность: 01:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8200375B0A531425238C298EC4A5F1B0B32B0CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759799   (103228) от 10.11.2024
-
-Whitney Houston - The Concert for a New South Africa (Durban) (1994) 2024, Arista - Legacy[FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love's In Need Of Love Today (Live in Kings Park Stadium, Durban, South Africa - November 8, 1994) [00:03:37]
-02. So Emotional (Live in Kings Park Stadium, Durban, South Africa - November 8, 1994) [00:04:01]
-03. Love Will Save the Day (Live in Kings Park Stadium, Durban, South Africa - November 8, 1994) [00:06:16]
-04. Saving All My Love for You (Live in Kings (   Читать дальше...   )Жанр: PopПродолжительность: 02:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6038F199259F52F4C1D6797B09C3659CE5B723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759723   (103225) от 10.11.2024
-
-Klone - The Unseen (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-Groove-Metal, Progressive-Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interlaced (5:39)
-02. The Unseen (5:45)
-03. Magnetic (3:19)
-04. After the Sun (4:04)(   Читать дальше...   )Жанр: Progressive-Groove-Metal, Progressive-MetalПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5971D130F3A8EAE865C83E5ECDCF03C6EDFB6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759879   (103223) от 10.11.2024
-
-Phil Vermont - Time Has Come (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Man Alive (5:03)
-02. Sexy, sexy, sexy ! (3:41)
-03. Your time has come (3:28)
-04. I'll be there (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DD28F49496539DF149BA54D4204F26DD1E47A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759784   (103222) от 10.11.2024
-
-Mezzrow - Studio Albums (2 releases) (1990; 2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mezzrow - трэш-метал группа из Нючёпинга, Швеция1990 - Then came the killing
-2023 - Summon Thy DemonsЖанр: Thrash MetalПродолжительность: 01:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67D073C407B71598286A1F7516C25B4DAF8EFB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

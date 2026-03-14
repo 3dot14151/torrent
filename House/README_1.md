@@ -1,3 +1,148 @@
+###  Публикация: 1611153   (1041652) от 10.02.2023
+
+VA - Hit Factory Vol. 1 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Tech House, Deep Groove>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beatz Maneuva - Glory
+02. D.D.Project - Get Funky Reloaded
+03. Mark Lahsen - Hello, Sorry
+04. Fabs# - Savanna (Dice Remix)(   Читать дальше...   )Жанр: Soulful, Tech House, Deep GrooveПродолжительность: 01:58:40 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88F53AFDD06BD090391EE9E15882A466FA5689D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611150   (1041420) от 11.02.2023
+
+VA - Milk & Sugar Winter Sessions 2023 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Penn - Yeah Yeah (Original Mix) (6:22)
+02. Federico Scavo & Moya - Set Me On Fire (Extended Mix) (5:55)
+03. Claptone feat. George Kranz - The Drums (Din Daa Daa) (Dennis Cruz Extended Remix) (6:52)
+04. Milk & Sugar - Riding High (CASSIMM Extended Remix) (5:52)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82545D48258EECD1EB3A7533CD6C1BEF0792CE7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439227   (1040111) от 12.01.2021
+
+VA - Ultra Jogging Platinum Hits 2021 Fitness Session [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morgana - Aftertaste (Fitness Version 128 Bpm) (04:35)
+02. Lawrence - Cool Again (Fitness Version 128 Bpm) (04:33)
+03. Gloriana - Whoppa (Fitness Version 128 Bpm) (04:35)
+04. D'Mixmasters - Secrets (Fitness Version 128 Bpm) (04:37)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E5464832EA71CCA9C8117792B9D159BB435257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439828   (1039286) от 15.01.2021
+
+VA - Balearic Headspace Volume 1-5 (2016-2020) [MP3|320 Kbps] <House, Nu-Disco, Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BestInSpace - Emmanuelle Kant (4:16)
+02. Hong Kong Syndikat - Too Much (7:12)
+03. Massimo Vanoni - For Your Love (8:24)
+04. Tripman & Sandrobianchi - Woman (6:24)(   Читать дальше...   )Жанр: House, Nu-Disco, DiscoПродолжительность: 09:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCE20E95297953FF675A45F4983FF1C93D54C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614852   (1038374) от 23.02.2023
+
+VA - Black Hole House Music 02-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BT - Mercury & Solace (Helsloot Remix) [03:39]
+02. Siskin - Always You [02:45]
+03. Ton TB - Electronic Malfunction (Yurie Remix) [03:52]
+04. JES - Awaken (Elypsis Remix) [03:37](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912D2E6461BE4759C24DB7BA0F653991AB115053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615619   (1037579) от 26.02.2023
 
 VA - DanceClub Beats Compilation (2023) CD, Compilation [MP3|320 Kbps] <Groove, Future House, Progressive, Club Mix>
@@ -600,151 +745,6 @@ VA - Pure Aerobic Hits 2021 [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE674F6FFE426D8EAAE51C3DCFDB9F2589A2B2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456359   (1025095) от 22.03.2021
-
-VA - Electro Workout 2021: Motivation Training Music [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Rodrigezz - Tom's Diner (Original Mix) (02:25)
-02. Stephan F - New Spirit (Original Mix) (02:59)
-03. Turbotronic - Love Me (Original Mix) (03:13)
-04. MaxRiven - Kernkraft 400 (Original Mix) (02:45)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811476F279EC0D19996D332232A8174DC85CA218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469200   (1016430) от 12.05.2021
-
-VA - Hardstyle XXL Megamix 2021 [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headhunterz & Jdx - Transcendence
-02. Ran-D & Leprince - Fight Fire With Fire (Radio Edit)
-03. Killshot - Horrorshow (Radio Edit)
-04. Adaro & Kronos & Nikki Milou - The Life (Radio Edit)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 03:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4986899E54F8533D378130D050AD7B0BEF0F5DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469204   (1016417) от 12.05.2021
-
-VA - Kontor Festival Sounds 2021.01 - The Awakening (2021) [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN feat. Lanie Gardner - Dreams
-02. Dimitri Vegas & Like Mike & Scooter - We Love Hardcore (Extended Mix)
-03. Mike Candys - Sky (Original Club Mix)
-04. Steve Aoki & Ben Nicky feat. Spyro & Maikki - Like It Like That (Extended Mix)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 06:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868F21F316820F6075C44715181F10F30B558C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470168   (1015629) от 17.05.2021
-
-VA - EDM 2021 Ibiza Opening Party (2021) [MP3|320 Kbps] <House, Deep House, Progressive House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MaxRiven - Time To Shine
-02. Geo Da Silva, Dani Corbalan - You Gotta Love Me
-03. Stephan F, YA-YA - New Spirit
-04. Rene Rodrigezz, Moodygee - Tom's Diner(   Читать дальше...   )Жанр: House, Deep House, Progressive House, Big RoomПродолжительность: 01:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E49D02E15711CD97FFF6C679DECD823439DDE1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472627   (1014166) от 26.05.2021
-
-VA - Armada Record Box - REMIXED I (2021) [MP3|320 Kbps] <Deep House, Progressive House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kidnap feat. Leo Stannard - Moments (Ben Bohmer & Nils Hoffmann Extended Remix)
-02. Lifelike & Kris Menace - Discopolis 2.0 (MEDUZA Extended Remix)
-03. Sian Evans - Hide U (Tinlicker Extended Remix)
-04. Morgan Page feat. Lissie - The Longest Road (deadmau5 Extended Remix)(   Читать дальше...   )Жанр: Deep House, Progressive House, ElectronicПродолжительность: 04:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9E5DEE33CF067115863943EB521C3A2F3027C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

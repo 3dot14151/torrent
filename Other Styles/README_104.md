@@ -1,3 +1,148 @@
+###  Публикация: 383479   (486725) от 04.09.2011
+
+Billy Vaughn - 3 альбома (1987-2005) [FLAC|Lossless]<Instrumental | Orchestra | Sax>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486725.jpg" />
+</div>
+
+
+###  Подробнее
+
+1987 - The Best Of01. Spanish Eyes 		(02:28)
+02. Bridge over Troubled Water 	(04:03)
+03. Amazing Grace 		(02:27)
+04. Green, Green Grass Of Home 	(02:15)(   Читать дальше...   )Жанр: Instrumental | Orchestra | SaxПродолжительность: 02:46:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319262   (486692) от 10.08.2019
+
+Atom Music Audio - Singularity (2019) [MP3|320 Kbps] <Soundtrack, Synthwave, Cyberpunk>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyber Attack [02:13]
+02. Code Breaker [02:05]
+03. Undarkened [02:08]
+04. Into the Night [02:44](   Читать дальше...   )Жанр: Soundtrack, Synthwave, CyberpunkПродолжительность: 00:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98330CCDA20BAAD47E478C569CC8976368E3455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319242   (486322) от 10.08.2019
+
+Various Artists - Sucker Punch (2011) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .cue] <Soundtrack, Electronic, Rock, Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emily Browning – Sweet Dreams (Are Made Of This) (05:19)
+02. Björk – Army Of Me (Sucker Punch Remix) (feat. Skunk Anansie) (06:51)
+03. Emiliana Torrini – White Rabbit (05:09)
+04. Queen & Armageddon AKA Geddy – I Want It All / We Will Rock You (Mash-Up) (05:09)(   Читать дальше...   )Жанр: Soundtrack, Electronic, Rock, Stage & ScreenПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF51F01CA0081DB47248FFFC06026A0131BE2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159199   (486247) от 19.08.2017
+
+Club di relax mentale - Esperienza rilassante (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Esperienza rilassante (03:31)
+02. Una spiaggia da sogno (03:31)
+03. Un mare di emozioni (03:33)
+04. Fuga romantica (03:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CB18AD8C261B2CEFDC979C0A0E2DFEF1501F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159330   (486129) от 19.08.2017
+
+VA - New Age Dimension (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silvio Piersanti - Mountains
+02. World Music Scene - Black Desert Dub
+03. Gilberto Medda - Flying High in the Sky
+04. Iffar, Klezan - Hybrid(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B21ECB421FE0B518E9503F200A34A503950D8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055659   (486109) от 23.09.2016
 
 Didier Merah - Eden (2016) [MP3|320 Kbps] <New Age, Piano>
@@ -631,154 +776,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37CA0DADCB7D6FB3BE5E08F5B90930938D13FC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545349   (482236) от 11.09.2012
-
-Иван Купала - Родина (2012) [MP3|320 кб/с]<folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482236.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Жито (4:19)
-2. Старый (4:39)
-3. Искорка (3:51)
-4. Стол (3:50)
-5. Коток (5:49)
-6. Балабай (3:37)
-7. Лося (5:04)
-8. Молодец (5:34)
-9. Гамелан (1:47)
-10. Родина (4:50)Жанр: folkПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C243FAFF0CDE4F093B14D36436D2CEAE0EB0738E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545834   (482234) от 11.09.2012
-
-VA - Mortal Kombat Soundtrack Compilation (1993-1999) [MP3|320 кб/с]<Techno, Eurodance, Industrial, Metal, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Techno, Eurodance, Industrial, Metal, InstrumentalПродолжительность: 01:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7BC69F1D6AA05F42E0F73F1923108D268CDBC63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159804   (482115) от 21.08.2017
-
-The Sound Of Love - Closer to me (2017) [MP3|320 Kbps] <New age, Enigmatic, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Kiss 04:04
-02. Feel The Sun 04:05
-03. Mateja's Dream 04:11
-04. Better With You 04:02(   Читать дальше...   )Жанр: New age, Enigmatic, VocalПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B5732F794D2A72486785E1B56B044A975D7548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159747   (482107) от 21.08.2017
-
-Devakant - Earth And Sky (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night In The Mountains
-02. Standing Rock
-03. Nature Spirits
-04. Homage To The Whales(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9A6FAB74557F8BE962D39B8D76E02179AD05D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159749   (481864) от 21.08.2017
-
-Paul Mauriat - Penelope & Holidays (1972, 1973) Remastered 2017, Vocalion [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Penelope
-01. Penelope (L'eternel Retour)
-02. Melancholy Man
-03. La Bikina(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE66B9E5503B93FAE798E8315D9CEEE57630CED
 ```
 
 https://mybot314.ru/tekegram_catalog/

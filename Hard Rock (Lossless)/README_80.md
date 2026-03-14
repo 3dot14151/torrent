@@ -1,3 +1,119 @@
+###  Публикация: 1590379   (189157) от 13.11.2022
+
+Rook Road - Rook Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk Too Much (03:52)
+02. Sick To The Bone (04:35)
+03. Sometimes (05:31)
+04. Romeo (05:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2D177243B257004E7583DA62ABF2CFB08EE604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590474   (188884) от 14.11.2022
+
+Deseret - Woodlands (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Sludge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desert Sorcerer
+02. Legend Of The Sasquach
+03. Arcane Journey
+04. Serpentine Path(   Читать дальше...   )Жанр: Heavy Rock, Stoner, SludgeПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D694B5865832AF6CAEF8A67C0377A963FD9AA2C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590249   (188830) от 14.11.2022
+
+Dred Buffalo - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hermit's Headroom [00:02:33]
+02. Shaman's Discipline [00:03:34]
+03. Heat [00:04:46]
+04. The Morrigan [00:03:26](   Читать дальше...   )Жанр: 70's Hard Rock, Blues Rock, Female VocalПродолжительность: 2 CD, 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29CD69937B0F48ED53C158C527540194C5266011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590720   (188559) от 15.11.2022
+
+Deadeye Navigator - Retronoid (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Psych, Bluesy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Fat Cat
+02 Red Hot Red
+03 Cloud Dweller
+04 Funky Respite(   Читать дальше...   )Жанр: Heavy Rock, Stoner, Psych, BluesyПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6710225195F978925BE5685BECCDBCFB29EA4AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590141   (188558) от 15.11.2022
 
 Void Cruiser - 3 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner Rock>
@@ -629,122 +745,6 @@ Guns N’ Roses - Anarchy In The Uk (2020) 2023, SMOKIN'[FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B298067ED0845BD5CDDFA28A41C840DC01C82FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663663   (186415) от 23.09.2023
-
-Bonfire - 3 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-2023/1986 - Don't Touch the Light (MMXXIII Version)
-2023/1989 - Point Blank (MMXXIII Version)
-2023/1987 - Fireworks (MMXXIII Version)Жанр: Hard Rock |Продолжительность: 02:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902552DC39E814EC430B7C6868BA5864719881F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663874   (186412) от 23.09.2023
-
-The Who - Tommy (1969) Super Deluxe, 2014, Geffen [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186412.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Original Album 2013 Remastered:
-01. Overture [00:05:20]
-02. It's A Boy [00:00:38]
-03. 1921 [00:02:49](   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797F229632AD15276A85906D1C69EEA7AD292807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664011   (186290) от 24.09.2023
-
-Yawning Man - Pot Head (2016) Reissue, Remastered, 2023, Ripple Music [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manolete [00:06:46]
-02. Digital Smoke Signals [00:07:09]
-03. Encounters With An Angry God [00:05:01]
-04. Samba Di Primavera [00:05:03]Жанр: Stoner Rock, Psychedelic RockПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0693422BCABA7D543B016CD76FA8ABA3835AE25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664150   (186053) от 25.09.2023
-
-Bang Camaro - Bang Camaro I-III (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_186053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2007 - Bang Camaro I
-2009 - Bang Camaro II
-2023 - Bang Camaro IIIЖанр: Hard RockПродолжительность: 02:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21107725F17C413B62B9742629382486A6A4449
 ```
 
 https://mybot314.ru/tekegram_catalog/

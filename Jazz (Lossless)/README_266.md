@@ -1,3 +1,90 @@
+###  Публикация: 1270036   (216403) от 17.12.2018
+
+Frank Wright Quartet - Blues For Albert Ayler (1974) 2012, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part 1 [12:50]
+02. Part 2 [5:10]
+03. Part 3 [14:38]
+04. Part 4 [12:13](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6531EEB35C8C4191C69628200D03E5C8D71B5D8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270059   (216326) от 17.12.2018
+
+Brzzvll - Waiho (2018) Sdban Records [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Vlijtige Kip (6:23)
+02. Waiho (3:22)
+03. Andromeda (6:20)
+04. Wizzly Whop (4:47)(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF5F68ADE05F8690D3390E6C99977070344BD3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270056   (216279) от 17.12.2018
+
+Bruno Angelini - Open Land (2018) La Buissonne [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tree song [05:39]
+02. Perfumes of quietness [09:18]
+03. Indian imaginary song [06:21]
+04. Jardin perdu [09:04](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3C3D44BA94AF36EEF332ECDFF2F1F808D12A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652795   (216252) от 13.08.2023
 
 Kenny Dorham - Sings And Plays: This Is the Moment! (1958) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -664,92 +751,6 @@ Flavio Boltro BBB Trio - Spinning (2018) Anteprima [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33909C2DC997AE274DD655397BD7F3EAC8F456C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270353   (214389) от 18.12.2018
-
-Camille Thurman - Waiting For The Sunrise (2018) Chesky Records [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Found Out About Love
-02. Some of These Days
-03. Tarde
-04. After You've Gone(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27000D9E1BB8FB2CB6D788DBF611C240E235E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514886   (214129) от 05.12.2021
-
-Erroll Garner - 1944 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Clock Stood Still [8:35]
-02. Floating On A Cloud [10:13]
-03. Cloudburst [9:00]
-04. Autumn Mood [7:26](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A6C7CA13E23053DFEB724ADCB614ABBB19EFB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586887   (214127) от 29.10.2022
-
-Wilbur Harden - Jazz Way Out (1958) 1991, Savoy Jazz [APE|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dial Africa [8:43]
-02. Oomba [5:31]
-03. Gold Coast [14:33]Жанр: Hard BopПродолжительность: 00:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6422AC235FEE9075AE22652A50AA5D5F85B1C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

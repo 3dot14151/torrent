@@ -1,3 +1,177 @@
+###  Публикация: 1294962   (623975) от 10.04.2019
+
+Dexter Gordon - Four Classic Albums: Second Set (1961, 1962) 2CD, 2019, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623975.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I Was Doing All Right [9:26]
+02. You've Changed [7:35]
+03. For Regulars Only [5:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E5240988FA5B89D03D6FA09B5A8F92F5C2941A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909594   (623936) от 19.06.2015
+
+The Pasadena Roof Orchestra - A Talking Picture, Night Out (1978, 1979 ) 2CD in 1/2015, Herzog Records/ [MP3|320 кб/с]<Jazz, Big Band, Swing, Vocals>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Had A Talking Picture Of You (03:06)
+02. 42nd Street (02:35)
+03. Pennies From Heaven (03:11)
+04. Panama Rag (03:35)(   Читать дальше...   )Жанр: Jazz, Big Band, Swing, VocalsПродолжительность: 01:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DCC3BB471E920CF86A31B85D8508930478B9B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544079   (623924) от 14.04.2022
+
+Christian McBride & Inside Straight - Live At The Village Vanguard (2014) 2021, Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Bread [12:02]
+02. Fair Hope Theme [13:42]
+03. Ms. Angelou [10:03]
+04. The Shade of the Cedar Tree [8:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF74574346318CD678A6DCCB5A8FE06B2D9EF859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145092   (623795) от 24.06.2017
+
+Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Mission
+02. Soulsalicious
+03. Senorita Bonita
+04. Cancun (A Tribute To Henry Mancini)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Bossa NovaПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F02443C9D1A3DC9E1A9855EAC0E08CCCD0C3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144958   (623794) от 24.06.2017
+
+Thornetta Davis - Honest Woman (2016) [MP3|320 Kbps] <Detroit Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When My Sister Sings the Blues (01:24)
+02. I Gotta Sang the Blues (feat. Kim Wilson) (05:09)
+03. That Don't Appease Me (04:26)
+04. Set Me Free (feat. The Larry McCray Band) (03:35)(   Читать дальше...   )Жанр: Detroit BluesПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79A54D533A8C25E3FB5F911EC4BBBE38CAF5D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544194   (623580) от 14.04.2022
+
+Edgar Winter - Brother Johnny (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mean Town Blues (5:05)
+02. Still Alive and Well (3:43)
+03. Lone Star Blues (3:57)
+04. I’m Yours and I’m Hers (4:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40960B4FCD3D3B15458FEBF9EBD6528EAC61410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145072   (623525) от 24.06.2017
 
 Welshly Arms - Welshly Arms (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -582,180 +756,6 @@ The Stumble - The World Is Tough (2006) [FLAC|Lossless|image + .cue] <Blues, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E82C72BCBED2DCF95B461CAEAF7405AD0BBECE4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229928   (620971) от 09.06.2018
-
-Blue Mitchel - Blue Mitchel (1971) 2014, Boplicity Records [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Village [6:15]
-02. Blues For Thelma [7:05]
-03. Queen Bey [4:50]
-04. Are You Real [7:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281F9F46C7370FAA927E1A8A2D74557B328EFF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229933   (620970) от 09.06.2018
-
-Andre Hodeir - Essais Par Le Jazz Groupe De Paris (1949 - 1954) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cross Criss [4:01]
-02. Paraphrase Sur Saint-Tropez [4:22]
-03. On A Standard [3:44]
-04. Esquisse I [2:39](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1341D26AC1BCC851E27501CC184F9A23BA937C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910769   (620794) от 21.06.2015
-
-Giant Jack - Giant Jack (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Town (04:09)
-02. Money Farm (05:00)
-03. Chained Up World (04:10)
-04. Sometimes (05:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FCF173C464BF5EE5AC0A6CEF47453E52E7E2FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295392   (620772) от 12.04.2019
-
-Anthony Wilson - Campo Belo (2010) Goat Hill Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Campo Belo [7:35]
-02. March to March [7:12]
-03. Edu [4:24]
-04. After the Flood [5:34](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A98E68542DA37E0DC7EB05014AAF87FED851E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295452   (620771) от 12.04.2019
-
-Bridges with Seamus Blake - Continuum (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620771.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Introduction (1:33)
-2. The Clues (5:28)
-3. Andromeda (8:22)
-4. Slightly Behind (6:19)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B66EA69A986024A009D1E8AEAF01D67CBF5EF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295390   (620770) от 12.04.2019
-
-Tim Weisberg - Naked Eyes (1994) Fahrenheit Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Talkin' to You [4:32]
-02. After the Rain [5:03]
-03. Brazilian Dance [4:12]
-04. Naked Eyes [5:33](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBECA4C376B69BB7193059BA7866749C8E34BA4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 528495   (573474) от 28.07.2012
+
+Steve Brian - La Playa (2012) [H.264/720р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A333607D7300FB6109B261458FF3D9D46A0B783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528497   (572148) от 28.07.2012
 
 Катя Самбука - Энергия (2012) [1080р] WEBRip
@@ -668,32 +694,6 @@ Wisin & Yandel ft. Chris Brown ft. T-Pain - Algo Me Gusta De Ti (2012) [H.264/10
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CF9B55488C159AC32C7FC09FB6C29CDF0E865B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536839   (509744) от 23.08.2012
-
-ATB - Authentic Reaction (2012) [H.264/720р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34281D21D9B9CB7406206FD1B6216FD362F3997
 ```
 
 https://mybot314.ru/tekegram_catalog/

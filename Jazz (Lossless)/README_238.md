@@ -1,3 +1,108 @@
+###  Публикация: 493988   (249133) от 09.05.2012
+
+Jacky Terrasson & Cassandra Wilson - Rendezvous (1997) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249133.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Old devil moon  -  05:47
+2 - Chan's song  -  05:46
+3 - Tennessee waltz  -  04:48
+4 - Little boy lost  -  05:07
+5 - Autumn leaves  -  02:39
+6 - It might as well be spring  -  04:59
+7 - My ship  -  03:25
+8 - I remember you  -  03:03
+9 - Tea for two  -  04:48
+10 - If ever I would leave you  -  05:30(   Читать дальше...   )1997Жанр: Jazz, Vocal.Продолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDDF6AF5D5D785E190EE6131D0294651786F34C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492914   (248874) от 08.05.2012
+
+Oscar Peterson - Exclusively For My Friends 6CD +1CD (1993 & 1996) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_248874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravy Waltz (Steve Allen, Ray Brown) – 3:19
+ 02. Three O'Clock in the Morning (Julian Robledo, Dorothy Terriss) – 8:45
+ 03. Squeaky's Blues (Oscar Peterson) – 7:28
+ 04. Tenderly (Walter Gross, Jack Lawrence) – 11:06
+ 05. I Will Wait for You (Jacques Demy, Norman Gimbel, Michel Legrand) – 6:53
+ 06. Let's Fall in Love (Harold Arlen, Ted Koehler) – 4:28
+ 07. Put on a Happy Face (Lee Adams, Charles Strouse) – 6:34
+ 08. Stella by Starlight (Ned Washington, Victor Young) – 5:15
+ 09. Moanin'' (Bobby Timmons) – 5:38
+ 10. Never Say Yes (Doc Pomus, Mort Shuman) – 5:22(   Читать дальше...   )1993 & 1996Жанр: JazzПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493587   (248766) от 08.05.2012
+
+Erroll Garner - The Original Misty (1954) (1988) [FLAC|Lossless]<Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_248766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misty (2:49)
+02. Rosalie (2:38)
+03. I've Got The World On A String (4:02)
+04. 7-11 Jump (7:19)
+05. Don't Worry 'Bout Me (5:05)
+06. You Are My Sunshine (3:29)
+07. Part Time Blues (4:35)
+08. All Of A Sudden (3:22)
+09. In A Mellow Tone (4:20)
+10. There's A Small Hotel (3:12)(   Читать дальше...   )1988Жанр: BopПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493813   (248758) от 08.05.2012
 
 The Frank Wess Orchestra - Entre Nous (1990) (1991) [FLAC|Lossless]<Big Band>
@@ -678,93 +783,6 @@ Jimmy Raney - Wisteria (1985) 1991, Criss Cross Jazz [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:596809C5B3AF02BFB98A5AD5A783AB50FAB67059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624000   (245437) от 04.04.2023
-
-Dick Oatts - Standard Issue (1998) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245437.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. You and the Night and the Music - 10:54
-2. Like Someone in Love - 10:54
-3. All the Things You Are - 06:55
-4. Memories of You - 09:37(   Читать дальше...   )Жанр: JazzПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10501A65649B141FF41AE75726CC6A81FAD29491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060517   (245346) от 08.10.2016
-
-Tania Maria - It's Only Love (2007) 2010, BHM[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Confusion [03:43]
- 02.It's Only love [06:40]
- 03.Chuleta [05:23]
- 04.It's All In My Hands [05:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE74AE8BC061705372A459901670B6B783CE2BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512592   (245327) от 25.11.2021
-
-Archie Shepp - Essential Best (2009) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shadow of Your Smile [9:56]
-02. Here's That Rainy Day [10:05]
-03. Blue Train [10:31]
-04. I Want to Talk About You [9:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1EF0CA3B82BCC7425634A85DBA8D242C3E5AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

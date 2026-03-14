@@ -1,25 +1,82 @@
-###  Публикация: 1734795   (107051) от 05.07.2024
+###  Публикация: 1727544   (108485) от 02.06.2024
 
-Visions Of Atlantis - Pirates II - Armada (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+Silver Convention - Get Up & Boogie: The Worldwide Singles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Disco, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Me ((Single Edit)) [00:03:04]
+02. Fly, Robin, Fly ((Stereo Single Long Version Edit)) [00:03:51]
+03. Tiger Baby ((Single Radio Edit)) [00:04:19]
+04. San Francisco Hustle ((Single Version)) [00:03:04](   Читать дальше...   )Жанр: Disco, SoulПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:784D0E7B7C7E1B14DDDC089301F4132632AFF400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727524   (108484) от 02.06.2024
+
+Благовест | О просфоре, антидоре и артосе (2017) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108484.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании рассказывается об освященных Церковью для употребления верующими в разных случаях дарах, которыми являются просфора, антидор и артос.
+
+Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0AD5D2EC7B821F1BF1317B5FC897A4E411D204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727501   (108483) от 02.06.2024
+
+Barock Project - Time Voyager (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107051.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. To Those Who Choose To Fight
-02. The Land Of The Free
-03. Monsters
-04. Tonight I'm Alive(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:53:08
+01. Carry On (6:37)
+02. Summer Set You Free (4:44)
+03. An Ordinary Day's Odyssey (6:04)
+04. The Lost Ship Tavern (4:40)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 01:11:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96AC0251B2C514FB8C9A8916B114E36085BC27DE
+magnet:?xt=urn:btih:C62EDA05DD754151E58B6A1E933F134108E585BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +84,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734860   (107050) от 05.07.2024
+###  Публикация: 1727511   (108482) от 02.06.2024
 
-Сатисъ | Загробная жизнь по учению святых отцов (2001) [PDF, FB2, EPUB, MOBI, TXT]
+MotoGP. Этап 07 из 20. Гран-при Италии. Гонка (02.06.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107050.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге рассматриваются вопросы, которые встают перед каждым человеком: о бессмертии души, о загробной участи праведников и грешников, о кончине мира и Страшном суде Божием.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+2 июня 2024, воскресенье. 15:00 МСК. Этап 7, Тоскана. Гран-при Италии. Гонка (23 круга)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:29:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:611AFCAD53CD7B05EDEB80579EA865D9DAB8CAAA
+magnet:?xt=urn:btih:1843CC1713481ED09837E07B91B2ED13F9D6E8BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,136 +110,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734858   (107049) от 05.07.2024
+###  Публикация: 1557158   (108481) от 02.06.2024
 
-Протоиерей Николай Александров | Пособие к изучению Священного Писания Нового Завета. Для семьи и школы (2007) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Священным Писанием Нового Завета называется собрание тех священных книг, входящих в состав Библии, которые явились в свет после Рождества Христова. Написаны эти книги, по вдохновению от Духа Святого, учениками Господа Иисуса Христа или святыми Апостолами.
-
-Священные книги Нового Завета написаны св. Апостолами с целью изобразить спасение людей, совершенное воплотившимся (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E948DAE30B8CC7867BD8E69A1BFFF04ACC22B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734784   (107048) от 05.07.2024
-
-VA - Armin van Buuren - A State Of Trance 1180 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hel:sløwed & Amber Revival - If You Only Knew (Mitch De Klein Remix)Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5ACF380FA97ABC73515A06593F3A023A052145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734878   (107047) от 05.07.2024
-
-Преподобный Стефан Филейский | Жизнь Преблагословенной Владычицы нашей Богородицы, Приснодевы Марии (2003) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107047.jpg" />
-</div>
-
-
-###  Подробнее
-
-«…не одно небесное зрение видит в Ней Благодать, которой Она сподобилась от Бога: но в Церкви великой, во всей вселенной возглашается о Ней радость, и вместе с ангельским собором и человеческий род ублажает Ее», – пишет в своей книге иеросхимонах Стефан (Куртеев), впоследствии преподобный Стефан Филейский, рассказывая о земной жизни Пресвятой Богородицы и ее значении (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D998824728D22A584722EAD6495A96268202FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734873   (107046) от 05.07.2024
-
-Сатисъ | Молитва – учение и делание. Избранные наставления святых отцов, беседы митрополита Сурожского Антония, архимандрита Рафаила (Карелина), протоиерея Иоанна Миронова (2003) [PDF, FB2, EPUB, M ...
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое главное дело православного христианина – молитва. Но именно в этом деле встречается больше всего преткновений и трудностей.
-
-Мы предлагаем вашему благочестивому вниманию эту книгу, надеясь, что она окажет реальную помощь в изучении истории молитвенного делания, в преодолении искушений и недоумений, в отношении к молитве, как непосредственному общению с Богом. (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B768E7F717C82857336460121BEB0847E7DEAA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734794   (107045) от 05.07.2024
-
-Orden Ogan - The Order Of Fear (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+Bludgeoned - Live at the end (2018) [MP3|320 Kbps|tracks] <Crust Punk, Doom, Sludge, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107045.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kings Of The Underworld
-02. The Order Of Fear
-03. Moon Fire
-04. Conquest(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:10
+01. suicide bomber [00:03:08]
+02. global bio death [00:03:55]
+03. midlife crisis 2 [00:03:40]
+04. war on the poor [00:03:29](   Читать дальше...   )Жанр: Crust Punk, Doom, Sludge, Thrash MetalПродолжительность: 00:38:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF2CA4BC70C5C220D8B9C65BE69583BC3D4BD8FF
+magnet:?xt=urn:btih:A5B6A0F838430C246BD443C5C16A481677E60B96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,28 +139,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734838   (107044) от 05.07.2024
+###  Публикация: 1727375   (108480) от 02.06.2024
 
-Sarah Menescal - Bossa Lounge E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Lounge>
+Mary Lou Williams, Jutta Hipp, Beryl Booker - First Ladies Of Jazz (1940 - 1954) 1989, Savoy Jazz [FLAC|Lossless|image + .cue] <Bop, Swing>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107044.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thank You (Bossa Nova Version)
-02. I Love You Always Forever (Leo Portela Rework)
-03. Hunting High and Low (Summer Remix)
-04. Alive And Kicking (Leo Portela Rework)Жанр: Bossa Nova, LoungeПродолжительность: 00:09:30
+01. Mary Lou Williams - Mary Lou Williams' Blues (aka Mary Lou Blues) (Williams) - 3:21
+02. Mary Lou Williams - Tea for Two (Youmans-Caesar) - 2:52
+03. Mary Lou Williams - Scratchin' the Gravel (Williams) - 3:15
+04. Mary Lou Williams - Zonky (Waller-Razaf) - 2:57(   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 00:44:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5FB218DD1E52F53831B214E4A62E18C511A4497
+magnet:?xt=urn:btih:A71C2072DAE5AFBAE2C3402A8D0F09DA06CEA441
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,25 +168,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734853   (107043) от 05.07.2024
+###  Публикация: 1727493   (108479) от 02.06.2024
 
-VA - Armada Electronic Elements - Ibiza 2024 - Extended Versions (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
+Deliverance - What a Joke (1991) [FLAC|Lossless|image + .cue] <Speed, Thrash Metal, Industrial>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107043.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ede – Do My ThingЖанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 03:54:54
+01 Intro
+02 Prophet Of Idiocy
+03 Pseudo Intellectual
+04 Cheeseburger Maker Du(   Читать дальше...   )Жанр: Speed, Thrash Metal, IndustrialПродолжительность: 00:46:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A961A803B869567E0AF52A9911C899322B4109BD
+magnet:?xt=urn:btih:2C6FACB068952E48232035639DAA1F8EBEEC5827
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,25 +197,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734943   (107042) от 05.07.2024
+###  Публикация: 1727456   (108478) от 02.06.2024
 
-XYplorer 26.20.0100 + Portable [Multi/Ru]
+2in2out - Living Stories (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107042.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Something Given (5:30)
+02. Maniny (5:04)
+03. Amorfa (1:24)
+04. Over the Abyss of Betrayal (5:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8F30FBE4027BCCB333FCB4E6666E781A126E858
+magnet:?xt=urn:btih:55279FCA26D76751748C1014ABB7E8F592DC782F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -271,25 +226,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734951   (107041) от 05.07.2024
+###  Публикация: 1727463   (108477) от 02.06.2024
 
-High-Logic FontCreator Professional Edition 15.0.0.2992 [En]
+Asena Akan - Asık (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107041.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FontCreator - Редактор шрифтов FontCreator может создавать свои собственные шрифты, переводить в файл шрифта любой шрифт с бумаги через сканирование, редактировать уже установленные шрифты. Для создания собственного рукописного шрифта можно просто написать на бумаге от руки (если нет планшета) все русские и английские буквы, цифры, специальные знаки, знаки препинания (   Читать дальше...   )Язык интерфейса: Английский
+01. Güzelliğin On Par Etmez (6:45)
+02. Yetmez Mi (4:04)
+03. Çayeli'nden Öteye (7:11)
+04. Doğuda Sabah (3:54)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79128EB597C44ED99D2B5A8A1129A8E9C1FB93FE
+magnet:?xt=urn:btih:34488097EE9D0522E31F65803100A33C5B3BEE58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -297,26 +255,170 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734866   (107040) от 05.07.2024
+###  Публикация: 1727455   (108476) от 02.06.2024
 
-Детские товары (2020) WEBRip [H.264/1080p]
+Priest - Dark Pulse (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <EBM>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Love [00:04:16]
+02. Black Venom [00:04:06]
+03. Demon's Call [00:03:27]
+04. Dungeon Dance [00:03:19](   Читать дальше...   )Жанр: EBMПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A834A0533305A91B61290CE513DF293D63B5947E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727382   (108475) от 02.06.2024
+
+Wilbur Ware - Super Bass (1968) 2012, Wilbur Ware Institute [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mod House [5:46]
+02. Symphony for Jr. [10:11]
+03. Wilbur's Red Cross [8:18]
+04. A Real Nice Lady [7:32](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00CF9FA171E585793EC895E9C3BF84881281E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727519   (108474) от 02.06.2024
+
+Potatohead People - Eat Your Heart Out (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Jazz, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Formula [00:02:56]
+02. Keepin' It Kool [00:05:25]
+03. Last Nite [00:03:41]
+04. Angelwings [00:03:42](   Читать дальше...   )Жанр: Hip-Hop, Jazz, FunkПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8413F11BBBB67A1A28C1B2ACA4A2A8FD3B43B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727396   (108473) от 02.06.2024
+
+Through These Gates - The Majestic Rights To Passage (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summoning Of Flame
+02. Abaddons Revenge
+03. My Greatest Fear
+04. The Blessings Of Vengeance(   Читать дальше...   )Жанр: Symphonic Black, Melodic Death MetalПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C409464128111B4D8D2A4A5AA5C41AB6E0C8D002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727485   (108472) от 02.06.2024
+
+Мария Кашинская и др. | Илья Муромец и Соловей-разбойник (2007) [MP3, Олег Табаков, Сергей Маковецкий и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиоверсия героического блокбастера, «Илья Муромец и Соловей-Разбойник» продолжает свое шествие по стране.  Увлекательные и смешные истории по одноименным мультфильмам для юных и не очень юных слушателей.  Детское издательство «Два Жирафа» выпустило в свет аудиоверсию этого хита с участием замечательных актеров – Олега Табакова и Сергея Маковецкого. Мы вновь станем (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Два жирафаПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59068585D219D3CA75C453A9A84CA6C31E219655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727454   (108471) от 02.06.2024
+
+Сто к одному (02.06.2024) WEBRip [H.264/1080p]
 
 >>Документалистика и Телепередачи
->>Тележурналистика
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107040.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Детские товары» — фильм-расследование корреспондента телеканала Михаила Чебоненко о шокирующем виде теневого бизнеса — торговле новорожденными детьми.
-Торговля несовершеннолетними наказывается лишением свободы на срок от трех до десяти лет. Дел в судах о торговле людьми — около тридцати в год. Из них о продаже детей — единицы. Но не потому, что статья грозит суровым (   Читать дальше...   )Телекомпания: Россия | «НТВ»Жанр: Документальный, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:28:15
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" – невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Дом на колесах" против команды "Фудтрак"Язык озвучки: РусскийПродолжительность: 00:39:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9028E68E0107E3E647D41316F81C8C251393E2AF
+magnet:?xt=urn:btih:27C23C2842BCEC0B1D59ECA789FA43E205549976
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -324,25 +426,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734764   (107039) от 05.07.2024
+###  Публикация: 1727450   (108470) от 02.06.2024
 
-Объясни мне, любовь / Ingeborg Bachmann - Reise in die Wuste (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
+Сто к одному (01.06.2024) WEBRip [H.264/1080p]
 
->>
->>
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107039.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ингеборг Бахман и Макс Фриш, настоящие рок-звезды литературы, впервые встречаются в Париже летом 1958 года. Они страстно влюбляются друг в друга, но профессиональные и личные амбиции начинают разрушать гармонию.Производство: Австрия, Швейцария, Германия, Люксембург / Amour Fou Luxembourg, Amour Fou Vienna, HeimatfilmЖанр: драма, биография, историяРежиссер: Маргарете фон ТроттаАктеры: Вики Крипс, Рональд Церфельд, Тобиас Самуэль Реш, Бэзил Айденбенц, Луна Ведлер, Марк Лимпах, Ренато Карпентьери, Катарина Шмаленберг, Никкель Бёзенберг, Филип Леонард КельцПеревод: Дублированный (SDI Films) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:29Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" – невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Глория" из Карачева против команды "Родничок" из СевероморскаЯзык озвучки: РусскийПродолжительность: 00:39:21
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B81F3FC80D2768BEDE08399282F0BA9832950E98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,54 +455,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734765   (107038) от 05.07.2024
+###  Публикация: 1727379   (108469) от 02.06.2024
 
-Объясни мне, любовь / Ingeborg Bachmann - Reise in die Wuste (2023) WEB-DLRip [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ингеборг Бахман и Макс Фриш, настоящие рок-звезды литературы, впервые встречаются в Париже летом 1958 года. Они страстно влюбляются друг в друга, но профессиональные и личные амбиции начинают разрушать гармонию.Производство: Австрия, Швейцария, Германия, Люксембург / Amour Fou Luxembourg, Amour Fou Vienna, HeimatfilmЖанр: драма, биография, историяРежиссер: Маргарете фон ТроттаАктеры: Вики Крипс, Рональд Церфельд, Тобиас Самуэль Реш, Бэзил Айденбенц, Луна Ведлер, Марк Лимпах, Ренато Карпентьери, Катарина Шмаленберг, Никкель Бёзенберг, Филип Леонард КельцПеревод: Дублированный (SDI Films) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:29Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734681   (107037) от 05.07.2024
-
-Charles Persip - And The Jazz Statesmen (1960) 1994, Bethlehem [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Lee Ritenour - Rio & On the Line (1979, 1983) 2003, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107037.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sevens [6:42]
-02. The Song Is You [6:44]
-03. Old Devil Moon [5:23]
-04. Soul March [7:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:36:18
+01. Rio Funk [5:11]
+02. San Juan Sunset [5:38]
+03. Rainbow [5:48]
+04. A Little Bit of This and a Little Bit of That [5:09](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:16:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F26CAC98C01EDD5EA9B1A004FD2DA1E7FF6CA61A
+magnet:?xt=urn:btih:D46EBB5CABE2330A20F76D4871E8E6797917156A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,26 +484,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735061   (107036) от 06.07.2024
+###  Публикация: 1727089   (108468) от 02.06.2024
 
-Американский друг / Der amerikanische Freund / The American Friend (1977) BDRip [H.264/720p] [MVO]
+VA - Metal Massacre 14 (2016)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal, Death Metal, Doom Metal, Thrash>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108468.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Metalian - The Traveller
+A2 - Noctum - Until The Until The End
+A3 - Gatekeeper - Bell Of Tarantia
+A4 - Assassin's Blade - The Demented Force(   Читать дальше...   )Жанр: Heavy Metal, Death Metal, Doom Metal, ThrashПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54EAA49E2DEC69DC522740842889ACEFE8A3DC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727085   (108467) от 02.06.2024
+
+VA - Metal Massacre 10 (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Death Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108467.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Betrayal - Sick Or Sane?
+A2 - Solitude - Typhoid Mary
+A3 - Murdercar - Mirage Of Blood
+A4 - Confessor - The Secret(   Читать дальше...   )Жанр: Thrash, Death Metal, Heavy MetalПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2ADBDBDC9F1DCF71A974BD381AB5116B6D18BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727435   (108466) от 02.06.2024
+
+Коридор зеркал / Corridor of Mirrors (1948) BDRip [H.264/720p] [VO]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107036.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Адаптация романа "Игра Рипли" Патрисии Хайсмит (1974)
-Йонатан Циммерман, неизлечимо больной владелец небольшой багетной мастерской в Гамбурге, еле сводит концы с концами. На аукционе его пути пересекаются с аферистом Томом Рипли, зарабатывающим на жизнь сбытом поддельных произведений искусства. Пути двух уставших от жизни мужчин странным образом пересекаются, (   Читать дальше...   )Производство: Германия (ФРГ), Франция / Filmverlag der Autoren, Les Films du Losange, Moli Films, Road Movies FilmproduktionЖанр: драма, криминал, триллерРежиссер: Вим ВендерсАктеры: Дэннис Хоппер, Бруно Ганц, Лиза Кройцер, Жерар Блен, Николас Рэй, Андреас Дедеке, Сэмюэл Фуллер, Петер Лилиенталь, Даниель Шмид, Жан Эсташ, Лу Кастель, Рудольф Шюндлер, Сэнди Уайтлоу, Энцо РобуттиПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:07:41
+Основан на одноименном романе Криса Мэсси... Странный и короткий роман между молодой англичанкой и бывшим художником, которому кажется, будто в них вселились души страстно влюблённых жителей Венеции XVI века...Производство: Великобритания / ApolloЖанр: драма, детективРежиссер: Теренс ЯнгАктеры: Эрик Портман, Эдана Ромни, Барбара Маллен, Хью Синклэйр, Брюс Белфрадж, Алан Уитли, Джоан Мод, Лесли Уэстон, Хью Латимер, Джон Пенроуз, Кристофер Ли, Лоис Максвелл, Мевис Виллерс, Тора ХёрдПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:36:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB6348C7ECFE1753D5AA25BD97E7E6532248E725
+magnet:?xt=urn:btih:97EAFCAA278CDE845712E67CFE62FA78F2B4BFD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,25 +568,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735009   (107035) от 06.07.2024
+###  Публикация: 1727491   (108465) от 02.06.2024
 
-R-Studio Network / Technician 9.4 Build 191332 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Deliverance - Weapons of Our Warfare (1990) Rerelease, 2008, Retroactive Records [APE|Lossless|image + .cue] <Speed, Thrash Metal, Industrial>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107035.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-R-Studio - основанная на новейшей уникальной технологии анализа информации на носителе и обработки данных, R-STUDIO является наиболее исчерпывающим программным решением из доступных на рынке утилит восстановления для файловых систем NTFS, NTFS5, ReFS, FAT12/16/32, exFAT, HFS/HFS+ (Macintosh), Little and Big Endian variants of UFS1/UFS2 (FreeBSD/OpenBSD/NetBSD/Solaris) (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Supplication
+02. This Present Darkness
+03. Weapons of Our Warfare
+04. Solitude(   Читать дальше...   )Жанр: Speed, Thrash Metal, IndustrialПродолжительность: 00:47:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69860AEE2AFAC341DA0F711D29C8545749109F79
+magnet:?xt=urn:btih:D5CD014264F471795E1FFAC354A581FA0A1942AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,25 +597,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735008   (107034) от 06.07.2024
+###  Публикация: 1727466   (108464) от 02.06.2024
 
-П. Джурс, Т. Айзенауэр | Распознавание образов в химии (1977) [PDF]
+Deliverance - Weapons of Our Warfare (1990) Remastered, 2021, Retroactive Records [FLAC|Lossless|image + .cue] <Speed, Thrash Metal, Industrial>
 
->>Научная и техническая литература
->>Точные и естественные науки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107034.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга посвящена применению кибернетических методов классификации объектов при помощи ЭВМ для анализа данных химического эксперимента. Эта монография - первая по автоматизации обработки данных научных исследований в области химического анализа как отечественной, так и в переводной литературе. Используются данные распространенных аналитических методов: масс-спектрометрии (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+01. Supplication
+02. This Present Darkness
+03. Weapons Of Our Warfare
+04. Solitude(   Читать дальше...   )Жанр: Speed, Thrash Metal, IndustrialПродолжительность: 01:12:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CB91F389A0B7C1D52FCA2002EB2476CF252CDCB
+magnet:?xt=urn:btih:11FC6F0A7A3C5242549563CFB33D2E2AE6CB67F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,25 +626,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735037   (107033) от 06.07.2024
+###  Публикация: 1727526   (108463) от 02.06.2024
 
-YT Downloader 9.9.3 RePack (& Portable) by elchupacabra [Ru/En]
+Emika - Haze (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Garage, Future Garage, UK Garage>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107033.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. ((star key)) [00:04:56]
+02. Harmony [00:05:05]
+03. HaZe [00:03:17]
+04. Skip [00:01:00](   Читать дальше...   )Жанр: Ambient, Garage, Future Garage, UK GarageПродолжительность: 00:39:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFA73D01E0C092F030611251AFF28272A7BC971B
+magnet:?xt=urn:btih:A1F2CF3AC285D3F872DBA8AAC490F4085E9A2669
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,25 +655,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735019   (107032) от 06.07.2024
+###  Публикация: 1727428   (108462) от 02.06.2024
 
-Э. Стьюпер, У. Брюггер, П. Джурс | Машинный анализ связи химической структуры и биологической активности (1982) [PDF]
+Коридор зеркал / Corridor of Mirrors (1948) BDRip [H.264] [VO]
 
->>Научная и техническая литература
->>Точные и естественные науки
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107032.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книгу, написанную авторами из США, отличает актуальность темы (связь между химической структурой и биологической активностью), а также перспективность излагаемого метода (распознование образов) и средств его реализации (ЭВМ). В ней изложены принципы распознавания образов. На примере психтропных и снотворных агентов, одорантов и раздражителей носовой полости убедительно (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+Основан на одноименном романе Криса Мэсси... Странный и короткий роман между молодой англичанкой и бывшим художником, которому кажется, будто в них вселились души страстно влюблённых жителей Венеции XVI века...Производство: Великобритания / ApolloЖанр: драма, детективРежиссер: Теренс ЯнгАктеры: Эрик Портман, Эдана Ромни, Барбара Маллен, Хью Синклэйр, Брюс Белфрадж, Алан Уитли, Джоан Мод, Лесли Уэстон, Хью Латимер, Джон Пенроуз, Кристофер Ли, Лоис Максвелл, Мевис Виллерс, Тора ХёрдПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:36:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0B29710ABE55813C48480835E5D8119CB642365
+magnet:?xt=urn:btih:A6E537E1EF3E059A5009FAA0C8A71C5A14EECF5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,25 +681,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735157   (107031) от 06.07.2024
+###  Публикация: 1727404   (108461) от 02.06.2024
 
-24 часа / 24 (2006-2007) WEB-DL [H.264/1080p] (сезон 6, серии 1-24 из 24) 1001 cinema
+Dark Sarah - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
 
->>Зарубежные сериалы
->>
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107031.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь Джека Бауэра, агента контртеррористического подразделения Лос-Анджелеса, настолько насыщена событиями, что от его решений не просто каждый день, а буквально каждый час зависит жизнь многих людей. Международные террористы, бывшие агенты и профессиональные военные, иностранные спецслужбы - у всех них есть масса причин совершать действия, направленные на получение (   Читать дальше...   )Производство: США / 20th Century Fox Television, Imagine EntertainmentЖанр: боевик, триллер, драма, криминалРежиссер: Джон Кассар, Брэд Тернер, Милан ЧейловАктеры: Кифер Сазерленд, Мэри Линн Райскаб, Карлос Бернард, Деннис Хейсберт, Элиша Катберт, Джеймс Моррисон, Рейко Эйлсворт, Джуд Чикколелла, Ким Рэйвер, Гленн МоршауэрПеревод: Двухголосый любительский (1001 cinema)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: ~00:45:00 серия
+Dark Sarah — финская симфо-метал группа, созданная Хайди Парвиайнен после ее ухода из Amberian Dawn в 2012 году.2015 - Behind The Black Veil
+2016 - The Puzzle
+2018 - The Golden Moth
+2020 - GrimЖанр: Symphonic MetalПродолжительность: 04:28:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B2BC4EE3FFBCF63A5AD54DCE2B4446CC1A74077
+magnet:?xt=urn:btih:C204351EE67680F5559F4D08EAF1CAA0F4B32D7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,130 +710,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735183   (107030) от 06.07.2024
+###  Публикация: 1727462   (108460) от 02.06.2024
 
-Ицхак Калдерон Адизес | Новые размышления о личном развитии (2017) [MP3, Михаил Мурзаков]
+Deliverance - Deliverance (1989) Remastered, 2008, Retroactive Records [APE|Lossless|image + .cue] <Speed, Thrash Metal, Industrial>
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107030.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение «размышлений» мирового бизнес-гуру Ицхака Адизеса о жизни, духовности и любви. Эта книга — продолжение «Размышлений о личном развитии» — книги, в которой гуру бизнеса Ицхак Адизес обсуждает с читателем «личные» темы, не связанные с бизнесом. Эти заметки и эссе не результаты исследований или изложения теорий, а очерки и впечатления, возникшие благодаря (   Читать дальше...   )Жанр: психология отношений, саморазвитие / личностный ростПеревод: Александра ДворянчиковаИздательство: Манн, Иванов и Фербер (МИФ)Продолжительность: 05:12:29
+01. Victory
+02. No Time
+03. Deliverance
+04. If You Will(   Читать дальше...   )Жанр: Speed, Thrash Metal, IndustrialПродолжительность: 00:51:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:869256DCC617216DB0A11D3400E9145453EDEADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735118   (107029) от 06.07.2024
-
-Симбиоз в дикой природе / Connection (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-2 из 2) CLS Media
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107029.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Закон джунглей» — самое распространенное и знакомое выражение, используемое при описании жестокого мира дикой природы. Однако это выражение частично верно, а частично неверно. Что позволило жизни процветать вместе с силой и конкуренцией, так это история связей. Наше тело рассматривается как единое целое, и даже самая маленькая единица клеток не рассматривается как (   Читать дальше...   )Производство: Корея Южная / Educational Broadcasting System (EBS)Жанр: документальный, природаРежиссер: Сон Сын-уПеревод: Одноголосый профессиональный (CLS Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74CE0C579E2BFE696ED2174F27E568D346EADC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735053   (107028) от 06.07.2024
-
-Расплата / Цена / The Cost (2022) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107028.jpg" />
-</div>
-
-
-###  Подробнее
-
-События происходят на протяжении 48 часов и рассказывают историю двух обычных мужчин, Дэвида и Аарона, которые похищают Троя, недавно вышедшего из тюрьмы преступника, совершившего ужасное преступление много лет назад. Намереваясь восстановить жестокое правосудие, Дэвид и Аарон сталкиваются лицом к лицу с человеком, разрушившим их жизни. Но добьются ли они успеха (   Читать дальше...   )Производство: Австралия / RLC Motion Picture Entertainment, Two Tone Pictures, Bronte Pictures, La Rosa ProductionsЖанр: триллер, драмаРежиссер: Мэттью ХолмсАктеры: Джордан Фрайзер-Трамбл, Дэймон Хантер, Кевин Ди, Клэйтон Уотсон, Ники Пастор, Надя Франьито, Марк Редпаф, Кайт Спайкер, Сотирис Целиос, Адам УиллсонПеревод: Дублированный (Pride Production)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D11697B6B6EA424D2FEB5319162AFF6FB6060F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735051   (107027) от 06.07.2024
-
-Расплата / Цена / The Cost (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107027.jpg" />
-</div>
-
-
-###  Подробнее
-
-События происходят на протяжении 48 часов и рассказывают историю двух обычных мужчин, Дэвида и Аарона, которые похищают Троя, недавно вышедшего из тюрьмы преступника, совершившего ужасное преступление много лет назад. Намереваясь восстановить жестокое правосудие, Дэвид и Аарон сталкиваются лицом к лицу с человеком, разрушившим их жизни. Но добьются ли они успеха (   Читать дальше...   )Производство: Австралия / RLC Motion Picture Entertainment, Two Tone Pictures, Bronte Pictures, La Rosa ProductionsЖанр: триллер, драмаРежиссер: Мэттью ХолмсАктеры: Джордан Фрайзер-Трамбл, Дэймон Хантер, Кевин Ди, Клэйтон Уотсон, Ники Пастор, Надя Франьито, Марк Редпаф, Кайт Спайкер, Сотирис Целиос, Адам УиллсонПеревод: Дублированный (Pride Production)Язык озвучки: русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A358E1781E54840BECF1C4E8D4B9522FC762DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734990   (107026) от 06.07.2024
-
-Ким Оксим | Токсичные слова (2024) [MP3, Наталья Гребенкина]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корейский бестселлер в жанре self-help от востребованного коуча, который поможет противостоять токсичному общению, не причиняя при этом вреда себе.
-«Я не имел в виду ничего плохого», — говорит собеседник, а вы чувствуете боль и переживаете, что не смогли защититься от обидных фраз. Однако от кого бы ни исходили токсичные слова — незнакомцев, коллег или близких людей, (   Читать дальше...   )Жанр: ПсихологияИздательство: МИФПродолжительность: 04:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C514562456FEB50E0701C49D8A6DB953E90C8D
+magnet:?xt=urn:btih:757701DA7586557AA902C7C74CBF5B410E2A600C
 ```
 
 https://mybot314.ru/tekegram_catalog/

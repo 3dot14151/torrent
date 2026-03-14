@@ -1,3 +1,32 @@
+###  Публикация: 1353170   (992627) от 17.01.2020
+
+VA - Christmas Carol: Lounge Interior Sound (2020) [MP3|320 Kbps] <Lounge, Chillout, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992627.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pindaric Spleen - Millennia
+002. Beautiful Morning - Marga Sol
+003. Señora - Ritmo Casablanca
+004. Dany Cohiba - Carnival Madness(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 09:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916649CD5EF6F4DD585946054EC64E5473D92BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608313   (991306) от 28.01.2013
 
 VA - Club Dubstep №25 - Dubstep №25 (2012) [MP3|320 кб/с]<Dubstep>
@@ -775,35 +804,6 @@ VA - Sublime Electro House: Progressive Mix (2020) [MP3|320 Kbps] <Progressive H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35E5BE938CEC7453348B55202F8EB83E535F8738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354178   (989043) от 21.01.2020
-
-VA - Subtle Vibrations: Relax Compilation (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989043.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aiden Baker & Faith Coloccia & Jon Mueller - Harmony In Distance
-002. La Bors - Tanami (Original Mix)
-003. Inside The Second - Uptown Sounds
-004. Jimmy Freeplace - Last Parfume (Radio Version)(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, LoungeПродолжительность: 07:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D3379F57B0EA0FC9580FEB4533852F8E67BED7
 ```
 
 https://mybot314.ru/tekegram_catalog/

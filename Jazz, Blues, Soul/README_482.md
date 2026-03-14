@@ -1,3 +1,177 @@
+###  Публикация: 1694335   (121087) от 24.01.2024
+
+Kenny Hughes - Born & Raised (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Over Me (5:06)
+02. She Knows (3:34)
+03. 19:20 (3:33)
+04. Destiny (3:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4738ACDA4DA67CFA5EA82A6061416B32A5707E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694204   (121086) от 24.01.2024
+
+Cyrus Chestnut - My Father's Hands (2022) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nippon Soul Connection [7:29]
+02. Thinking About You [5:22]
+03. Cubano Chant [4:09]
+04. Baubles, Bangles and Beads [4:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234FFCAD5E7F744929BF8651075D60079E3FCA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694331   (120977) от 25.01.2024
+
+Eva Carboni - In the Name of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South Wind Blows (3:33)
+02. Stony Ground (3:10)
+03. In the Name of the Blues (3:47)
+04. That Devil Man (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7936D98FB10E5BF7D9DB8386A694D0D89B265639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694431   (120962) от 25.01.2024
+
+Madcat's Roughriders - Madcat's Roughriders (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roughrider's Boogie (3:08)
+02. Moonshine (3:35)
+03. Dingelingdong (3:57)
+04. My Time Has Come (6:05)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7246400520CB4BFB6CB578E6ECDC4D4ACEC6FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694341   (120959) от 25.01.2024
+
+The liberators - A Ride Out of Town (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Ride Out of Town (2:48)
+02. Can't Run, Can't Stay (3:39)
+03. Come On (3:53)
+04. 90 Minutes (Ain't That a Shame) (5:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0395D8A469951C382610E89B8CEDF1F13879AA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694337   (120958) от 25.01.2024
+
+Lone Star Mojo - A Shot of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Blues Travels Fast (4:58)
+02. Desolation Blues (7:16)
+03. Hey Hey (4:01)
+04. Thoughts of You (7:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFEAAF507EB33755AE0DB7C2E111B1C1201DB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694343   (120928) от 25.01.2024
 
 Robby Krieger - Robby Krieger & The Soul Savages (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -571,180 +745,6 @@ Streetwize - Lift Me Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3EAE9F023DB22BFF75FA70804173303174B080A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695132   (120442) от 28.01.2024
-
-Caro Emerald & The Grandmono Orchestra - Live In Concert (At The Heineken Music Hall) (2011) [FLAC|Lossless|WEB-DL|tracks] <Soul-Jazz, Big Band, Bossa Nova, Swing, Ballad>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Greg Shapiro (Live) [00:01:31]
-02. Zoot Suite Theme (Live) [00:01:58]
-03. Absolutely Me (Live) [00:01:40]
-04. Just One Dance (Live) [00:04:22](   Читать дальше...   )Жанр: Soul-Jazz, Big Band, Bossa Nova, Swing, BalladПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1191274533FA9C40357D756DC3E33EBA2D76CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695335   (120433) от 28.01.2024
-
-Brad "Guitar" Wilson - Buckle Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucille (3:23)
-02. Can't Always Get What You Want (4:50)
-03. Hoodoo Party (2:40)
-04. Hound Dog (4:16)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B603FBEAE70DF097D12FDC19F858A496A71BAC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695347   (120432) от 28.01.2024
-
-Richard Lindgren - Grand Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Fat Nothing (6:08)
-02. Empire In Ruins (5:22)
-03. Argentinian Shoes (4:03)
-04. Lament From A Reservoir (4:51)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152DB4E5C7ADEA78315986429E8B34235B9A8EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695344   (120419) от 28.01.2024
-
-Rene Huard Project - Blues Calling (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Times (2:58)
-02. Child's Play (4:15)
-03. Blues Calling (4:15)
-04. Demolition Man (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A58436A237F9D3A4DF4494EFE184C6226172B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695361   (120416) от 28.01.2024
-
-Hanne Boel - Norwegian Recordings (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Pop>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standing on the Edge of Love [00:04:08]
-02. Between Dark and Daylight [00:04:21]
-03. Killing Me Softly With His Song [00:06:06]
-04. Don't Look Down [00:06:06](   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE589686E149A9CC97FAE06C4FF9EA4BFBA933B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695195   (120412) от 28.01.2024
-
-JD Allen - Toys / Die Dreaming (2020) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Thrill [9:33]
-02. The G Thing [6:41]
-03. Die Dreaming [5:58]
-04. Red Label [6:30](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D5AFD95C59CA64D80C6735B8E0409404AE4374
 ```
 
 https://mybot314.ru/tekegram_catalog/

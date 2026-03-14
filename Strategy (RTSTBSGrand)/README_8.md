@@ -1,3 +1,29 @@
+###  Публикация: 1044837   (562622) от 21.08.2016
+
+Stellaris (2016) [Ru/Multi] (1.2.5.24012/dlc) Repack от Let'sPlay [Galaxy Edition]
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Strategy (Real-time, Grand strategy), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A521809C185E46289DEDF2F67966664F2314E5B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 714801   (560308) от 02.08.2015
 
 Aggression: Reign over Europe / Агрессия (2007) [Ru] (1.23) Repack R.G. ReCoding
@@ -642,32 +668,6 @@ Imperator: Rome (2019) [Ru/Multi] (1.1.1/dlc) Repack R.G. Catalyst [Deluxe Editi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D89ED6C2AA6E5D01D3F084A3F5668F6B8F0B3550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046304   (515703) от 17.07.2019
-
-The Hive (2016) [En] (1.108) License CODEX
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515703.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Hive - новая стратегия в реальном времени с увлекательным сюжетом, развивающимся в потрясающе-фантастическом мире планеты Эдем. Возглавьте расу Энсектоидов, борясь с угрозами и невзгодами, приведите её к процветанию.Тип издания: LicenseРазработчик: Skydome EntertainmentЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E23421623C93E2DAA0581FEF626EF3F11961843
 ```
 
 https://mybot314.ru/tekegram_catalog/

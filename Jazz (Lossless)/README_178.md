@@ -1,3 +1,90 @@
+###  Публикация: 1408637   (454028) от 13.09.2020
+
+Stanley Cowell - Juneteenth (2014) 2015, Vision Fugitive [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Shall 2 [3:29]
+02. Juneteenth Suite: Introduction [1:20]
+03. Juneteenth Suite: Proclamation [2:04]
+04. Juneteenth Suite: Reality Dreams Echoes [2:42](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D734DD87BBFBE14B56333A9B430D83BA6330A3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408633   (454026) от 13.09.2020
+
+Stanley Cowell Trio - Bright Passion (1993) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brilliant Circles [8:17]
+02. Bright Passion [6:18]
+03. Dave's Chant #2 [6:10]
+04. Round About Midnight [7:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9927D8ADF0171D215A23B010DCB891EC0E378461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408643   (454025) от 13.09.2020
+
+Stanley Cowell - Are You Real? (2014) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Photon in a Paper World [11:34]
+02. You Taught My Heart to Sing [9:54]
+03. Mrs. Parker of KC [6:08]
+04. I Remember Diz [8:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846B8776EDD86E73466A26355804A497EC20866E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408617   (454023) от 13.09.2020
 
 Stanley Cowell Trio - Close To You Alone (1990) DIW [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -659,93 +746,6 @@ Cecil L. Recchia - The Gumbo (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9DC1BD835ACB5AC978832A9B9231FDB740DDB43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061002   (451295) от 09.10.2016
-
-Frank Strozier - Long Night (1961, 1962) 2002, Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Long Night [04:35]
- 02.How Little We Know [05:58]
- 03.The Need For Love [04:41]
- 04.The Man That Got Away [04:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFEA8DFC37A88337405C1D6E5DEBD93FF19ECE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061274   (451293) от 09.10.2016
-
-Frank Rosolino - Thinking About You (1976) 2CD, 2001, Sackville Recordings[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451293.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Sweet And Lovely [14:03]
-02.Who Can I Turn To [09:21]
-03.Round Midnight [11:16](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFA97C8DCE43905ECA105FC43A3E6C5A5EBA124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943398   (449692) от 03.10.2015
-
-Archie Shepp - Four for Trane (1964) /1997, MCA Records/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Syeeda's Song Flute [08:30]
-02.Mr. Syms [07:42]
-03.Cousin Mary [07:14]
-04.Naima [07:10](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A1514B9EB9D092DC377830DE8CE492B803133A
 ```
 
 https://mybot314.ru/tekegram_catalog/

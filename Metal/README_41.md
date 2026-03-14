@@ -1,3 +1,32 @@
+###  Публикация: 1028355   (690662) от 22.06.2016
+
+Whitechapel - Mark of the Blade (2016) Deluxe Edition [MP3|320 кб/с] <Hardcore, Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690662.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Void (4:08)
+02. Mark Of The Blade (2:54)
+03. Elitist Ones (4:37)(   Читать дальше...   )Жанр: Hardcore, Metalcore, DeathcoreПродолжительность: 01:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B414FA45749AF0336F0DC1D10D2BDB19869DFD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403592   (690491) от 20.08.2020
 
 Napalm Death - Throes Of Joy In The Jaws Of Defeatism (2020) [MP3|320 Kbps] <Death Metal, Grindcore>
@@ -730,32 +759,6 @@ Limbonic Art - Spectre Abysm (2017) [MP3|320 Kbps] <Symphonic Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3343B6100181E07A9D617C6EEBB22F588AC57297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 125768   (682644) от 26.06.2010
-
-Danzig - 12Albums+2Live+EP (1988-2010) [MP3|320 kbps]<Heavy Metal/Hard Rock/Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Danzig — американская хэви-метал группа, смешивающая мрачную лирику и образы с блюз-роковыми веяниями. Группа является третьей стадией музыкальной карьеры Гленна Данзига, который до этого играл в хоррор-панк группах The Misfits и Samhain. В 1987 подписав контракт, группа эволюционировала в прочный рок-метал коллектив. Чтобы отразить изменение музыкального направления (   Читать дальше...   )Жанр: Heavy Metal/Hard Rock/IndustrialПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

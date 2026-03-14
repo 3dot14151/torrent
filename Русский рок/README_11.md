@@ -1,3 +1,61 @@
+###  Публикация: 1481996   (1007901) от 06.07.2021
+
+Путь Солнца - 15... Что дальше? (2021) [MP3|320 Kbps] <Heavy Metal, Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007901.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Знак Победы (feat. Мастер)
+2. Северная Страна (feat. Rossomahaar)
+3. Победа или Смерть (feat. Пурген)
+4. Endless Night (feat. Amalgama)(   Читать дальше...   )Жанр: Heavy Metal, Pagan MetalПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514A29E0ABCB611F38A9D389E5F503AB3AF81CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481877   (1007898) от 06.07.2021
+
+Heavy Raid - Железный марш (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:08)
+ 02. На небесах или на дне (03:39)
+ 03. Последний отряд (04:07)
+ 04. Инквизитор (04:39)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42C3E010C45D94131D90E23C00C828E640F9F07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482276   (1007740) от 07.07.2021
 
 Молот Родины - Не Мир, но Меч (2021) [MP3|320 Kbps] <Русский боевой рок, Hardcore, Acoustic>
@@ -704,76 +762,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602173   (997031) от 15.01.2013
-
-Arcanorum Astrum - Прозрение (2012) [MP3|320 кб/с]<Progressive Sympho Black-Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воин Тьмы
-02. Битва за Будущее
-03. Прозрение
-04. Война Хаоса
-05. Смертный Грех
-06. Путь к Себе
-07. Иллюзия Истины
-08. Под Светом Тайной Звезды
-09. Люцифер
-10. Without Judgement (Death cover)Жанр: Progressive Sympho Black-Death MetalПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58E6FDC22EE58FAF5FC4239EBA7B3F0DA3663A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604176   (996508) от 17.01.2013
-
-Zilly Monk - Together Forever (2011) [MP3|320 кб/с]<Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo (2)- 01:56
-  02. Let's go!- 01:52
-  03. Guitar Hero-03:18
-  04. Воздушный змей- 02:31
-  05. Lego-02:43
-  06. Улетаю - 02:55
-  07. Полотенце - 00:49
-  08. Погром  - 03:06
-  09. Дураки- 01:56
-  10. Война (против себя)- 02:15(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 28:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDD7FCF43348DD9AA2B5AA6FD1298E984AB8C18
 ```
 
 https://mybot314.ru/tekegram_catalog/

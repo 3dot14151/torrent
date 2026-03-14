@@ -1,3 +1,177 @@
+###  Публикация: 1609637   (244737) от 04.02.2023
+
+Lester Young - Four Classic Albums: Second Set (1943 - 1957) 2CD, 2020, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244737.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lester Leaps Again (take 1) [4:27]
+02. After Theatre Jump (take 2) [4:45]
+03. Destination K.C. (take 1) [3:53](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606FABE549C035978849ED1ED95171FAE76E3F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622113   (244710) от 27.03.2023
+
+Ally Venable - Real Gone (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Gone (3:15)
+02. Going Home (3:30)
+03. Justifyin’ (3:41)
+04. Broken And Blue (4:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49ACAC0B97DAEF7ECED5749ACE09A13FC05CE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069821   (244670) от 05.11.2016
+
+Hank Jones - Urbanity (1947-1953) 1997, Verve[FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Thad's Pad (master tk) [03:00]
+ 02.Things Are So Pretty In The Spring (master tk) [03:42]
+ 03.Little Girl Blue [02:50]
+ 04.Odd Number [03:35](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C4BC9673FDC3C48B306CB5CAE317889FC738D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069575   (244665) от 05.11.2016
+
+Lars Gullin - Baritone Sax (1956) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Summertime [05:33]
+ 02.Fedja [05:03]
+ 03.A Foggy Day [04:45]
+ 04.Perntz [05:16](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31B2C0DA336BB35BC429156149544CBF6A31490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069476   (244655) от 05.11.2016
+
+Pierre de Bethmann - Sisyphe (2014) 2CD, Plus Loin Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244655.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Sisyphe [09:31]
+02.Volseau [11:04]
+03.Patience [09:58](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D947742866B2BDF05240F977FBBEACAFE59D3CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069931   (244644) от 05.11.2016
+
+Clint Houston - Inside The Plain Of The Elliptic (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Geri [06:41]
+ 02.You Are Like The Sunlight [06:01]
+ 03.Goodbye Mr. P [07:18]
+ 04.Letitia [06:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A4D1F56B424769A49AB9AD982FF345F6E6C8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289528   (244639) от 16.03.2019
 
 SFJAZZ Collective - Live 2005 2nd Annual Concert Tour (2005) 2CD, SFJazz Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -571,180 +745,6 @@ The Jimmy Giuffre 3 - Trav'lin' Light (1958) Remaster, 2012, Warner[FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98A3340462DE75D9CEB78A5A15ED4BBC0291E2F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625705   (244381) от 11.04.2023
-
-McCoy Tyner - Sama Layuca (1974) 2002, Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sama Layuca [8:38]
-02. Above the Rainbow [3:03]
-03. La Cubana [10:27]
-04. Desert Cry [4:57](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17ED47254D1211043B80D7D1AC5D332AD9B81B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072290   (244361) от 12.11.2016
-
-Peter Fernandes - The New Me (2011) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Minute To Midnight (Intro) [1:07]
-02. The New Wave [6:15]
-03. Twitch [6:35]
-04. Casionometry [7:10](   Читать дальше...   )Жанр: FusionПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFDA8DFA187C13FF98BCACC0E423D980A6DC836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072170   (244337) от 12.11.2016
-
-Laurent Coq Trio - Spinnin' (2005) Cristal Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Claude Sait [01:40]
- 02.C.H.W [08:16]
- 03.South Ferry [06:22]
- 04.Toulouse [05:54](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1479FDF9D676D65400BC9BF455AB2BA3B232ABA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294560   (244336) от 08.04.2019
-
-Thelonious Monk - The Best of Thelonious Monk (1955 - 1960) 2004, Riverside Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Round Midnight [6:43]
-02. Off Minor (take 5) [5:10]
-03. Jackie-ing [6:09]
-04. Well, You Needn't [11:26](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF87B471D89333E8DDFE569CFD9E594E06E8EF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072089   (244330) от 12.11.2016
-
-The Tony Kofi Quartet - The Silent Truth (2008) Specific Jazz[FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Giants [05:28]
- 02.Dante [04:12]
- 03.Cicada [04:54]
- 04.First Breath [05:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9E435184E980AA453C90E2F3205E8CBD3E9335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072123   (244313) от 12.11.2016
-
-Guido Manusardi Trio - No More No Less (2006) SoundHills Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Softy As In A Morning Sunrise [05:49]
- 02.Like Sonny [05:22]
- 03.You Stepeed Out Of A Dream [06:30]
- 04.Ice Drops [05:16](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EA4C671A3590E42F713C4F54AD63A0D3577340
 ```
 
 https://mybot314.ru/tekegram_catalog/

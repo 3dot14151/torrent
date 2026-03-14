@@ -1,3 +1,159 @@
+###  Публикация: 477850   (86337) от 04.04.2012
+
+Coldrain - The Enemy Inside (2011) [MP3|320 кб/с]<Alt. Rock / Post-Hardcore>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_86337.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To Be Alive
+2. New Fate
+3. Rescue Me
+4. Adrenaline
+5. You
+6. The Maze
+7. Rise And Fall
+8. Confession
+9. A Tragic Instinct
+10. Hollow2011Жанр: Alt. Rock / Post-HardcoreПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B5CC4C34471D0795DB7ED0DB69777C587C36DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451057   (84373) от 25.03.2012
+
+AKB48 - 6 альбомов + 20 синглов (2006-2011) [MP3|320 kbps]<j-pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84373.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011Жанр: j-popПродолжительность: 01:19:56
+01. 桜の木になろう (Sakura no ki ni narou)
+02. 偶然の十字路 (歌:アンダーガールズ) (Guuzen no juujiro (Song by: Under Girls))
+03. 黄金センター (Ougon Center)
+03a. キスまで100マイル (歌:MINT) (Kiss made no 100 Mile (Song by: MINT))
+03b. エリアK (歌:DIVA) (Area K (Song by: DIVA))
+04. 桜の木になろう (off-vocal)
+05. 偶然の十字路 (off-vocal)
+06. 黄金センター (off-vocal)
+06a. キスまで100マイル (off-vocal)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C0041D2C2599DFBE23CF69CCDF2ED39824EBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454238   (78006) от 23.02.2012
+
+Kou Shibasaki - Love & Ballad Selection (2010) [MP3|320 kbps]<JPop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_78006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: JPopПродолжительность: 1:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4879B6CDD638467EE32EF1DBC530D2E5B51FD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454246   (77901) от 23.02.2012
+
+Galneryus - Kizuna (2012) EP [FLAC|Lossless]<Neo-Classical Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77901.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kizuna
+2. Owari naki, Kono Uta (New Version)
+3. Across The Rainbow
+4. Time After Time
+5. Winning The Honor
+6. Departure! (English version)2012Жанр: Neo-Classical Power MetalПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 140676   (75204) от 09.02.2012
+
+Namie Amuro - 13 альбомов + 40 синглов (1995-2011) Дискография [FLAC|lossless]<JPop,JUrban,R&B,Soul,Electropop,Eurodance,Techno,House>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_75204.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.'Uh Uh.....'feat.AI-03:59
+2.baby be mine-03:38
+3.'Uh Uh.....'(Instrumental)-04:01
+4.baby be mine(Instrumental)-03:38(   Читать дальше...   )Жанр: JPop,JUrban,R&B,Soul,Electropop,Eurodance,Techno,HouseПродолжительность: 00:20:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 317526   (74516) от 06.02.2012
 
 PLASTICZOOMS -  6 альбомов (2009-2012) Дискография [MP3|192, 320]<J-Rock, Post-Punk, Electronic, Indie>

@@ -1,3 +1,32 @@
+###  Публикация: 930940   (512931) от 25.08.2015
+
+VA - Tantric Sex and Lovemaking Music Background Music for a Night of Tenderness Love and Passion (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romantic Love - Tantric Sex
+02. Romantic Dinner - Emotional Songs
+03. Tantra Chill - Sensual Relaxation
+04. Erotic Massage - Erotic Music Lounge(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DC968392E5DBE43BF25CBD6167F3E86CB6EF7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931574   (511944) от 26.08.2015
 
 VA - Club Hits 2k15 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
@@ -738,35 +767,6 @@ VA - TOP 20 Energy Trance - Melody Center (2015) [MP3|320 кб/с]<Harmonic, Emo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:739981F217B5D432754294615640C51AEEA49C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932463   (509472) от 29.08.2015
-
-VA - Extra House (episode 5) (2015) [MP3|320 кб/с]<Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicolas Hannig - Blaze Love (DBMM Remix) (06:06)
-02. Above & Beyond - Counting Down the Days (Yotto Remix) (feat. Gemma Hayes) (07:05)
-03. Trivecta Feat. Charlotte Haining - Drift Away (Original Mix) (04:50)
-04. Pablo Sanchez - Easy Out (Original Mix) (05:31)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 01:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009B955DD803B1437E29314C1CBA229EA0BB3B5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1135555   (680527) от 19.05.2017
+
+Проекты - VideoHive - Clean Photo Gallery - Image Slide Opener - 19494099 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clean Photo Gallery - Image Slide Opener это современный шаблон After Effects. Он поможет Вам быстро создать красивое слайд-шоу. Добавьте музыку и порадуйтесь полученному результату.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C4E2BE7804C0F9F1AB4B6B0F49249B57ADAACB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029597   (679999) от 27.06.2016
 
 Проекты - VideoHive - Summer Opener - 15310250 [AEP]
@@ -645,32 +671,6 @@ Fast Dynamic Slideshow - энергичный вариант для вашего
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3022826FF0404E56C8A7A9C5C20A805E8CE84A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 676989   (677711) от 07.07.2013
-
-Проекты - Sexy Girls - Slide Show [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания красочного и модного слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082A952606C0060F4748EB137AFD8CCE9BFBAA1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

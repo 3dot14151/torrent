@@ -1,3 +1,293 @@
+###  Публикация: 1450176   (1029025) от 26.02.2021
+
+Sirenia - 11 Studio Albums (2002-2021) 12xCD [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норвежские симфо-готик-металлисты SIRENIA выпустили 10-й студийный альбом "Riddles, Ruins & Revelations" 12 февраля 2021 года на лейбле Napalm. В этой работе квартет соединил тяжелый симфонический саунд с современными влияниями. На диске, который последовал за "Arcane Astral Aeons" (2018), SIRENIA предлагают слушателям новый взгляд на песни, (   Читать дальше...   )2002 - At Sixes And Sevens
+2004 - An Elixir For Existence
+2004 - Sirenian Shores EP
+2007 - Nine Destinies And A Downfall(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 11:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E63F4C1491E09CC97D0CABC8AE9EBE429484B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450612   (1028867) от 27.02.2021
+
+Epica - Omega (2021) 4xCD [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028867.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Alpha - Anteludium (1:38)
+02. Abyss of Time - Countdown to Singularity (5:20)
+03. The Skeleton Key (5:06)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 03:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C08C1CB2B42A6A9C1D6E20DB34429E7693D9B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450972   (1028733) от 28.02.2021
+
+Zavod - Epok Vol. 1 (2020) EP [FLAC|Lossless|tracks] <Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Марш
+02. Taiga
+03. Байконур
+04. Eremite(   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78D8F955009BC5F8B3FDFA6BF5CA4E035464792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451269   (1028547) от 01.03.2021
+
+Macbeth - Gedankenwachter (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friedenstaube (05:08)
+02. Krieger (04:18)
+03. In seinem Namen (05:24)
+04. Wolfkinder (06:22)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B8A89C0993990CC6526C1FE26F6ACE2BC10B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451180   (1028546) от 01.03.2021
+
+Derdian - 7 Studio Albums (2005-2018) 7xCD [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Derdian образовалась в 1998 в итальянском городе Милане. Основатели команды - Генри Энрико Пистолез и Марко Ковелли, хотели играть в жанре Thrash Metal, для этого они позвали еще 2-х человек, вокалиста/гитариста Луиджи Трапани и басиста Самюэля Каррари. Первый репертуар новой команды состоял в основном из каверов на песни Metallica и Megadeth. Со временем (   Читать дальше...   )2005-2010 - New Era
+2013 - Limbo
+2014 - Human Reset
+2016 - Revolution Era(   Читать дальше...   )Жанр: Power MetalПродолжительность: 07:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBFE89A393D6489CBB2C9536CB6AEB0DEA5B47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451432   (1028391) от 02.03.2021
+
+Ruadh - The Rock of the Clyde (2020) [FLAC|Lossless|image + .cue] <Folk Metal, Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embers (10:01)
+02. The Rock of the Clyde (10:20)
+03. Winters Light (09:02)
+04. Fields of Heather (10:57)(   Читать дальше...   )Жанр: Folk Metal, Atmospheric Black MetalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C7A9BE965B085CD03EF71D5A653191652336D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451451   (1028387) от 02.03.2021
+
+Necrot - Mortal (2020) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Hell (5:01)
+02. Dying Life (4:36)
+03. Stench of Decay (3:41)
+04. Asleep Forever (5:30)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7F95322D0F90FF3A43FB0C1BA0FE363728C216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451447   (1028386) от 02.03.2021
+
+Alpha Tiger - Alpha Tiger (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road To Vega
+02. Comatose
+03. Feather In The Wind
+04. Singularity(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E43618F12E8B9A5DAD7C0D78EE7A29D6CB568A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451402   (1028381) от 02.03.2021
+
+Jon Oliva's Pain - Festival (2010) Limited Edition Digipak [FLAC|Lossless|image + .cue] <Progressive Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lies (06:19)
+02. Death Rides a Black Horse (06:15)
+03. Festival (05:00)
+04. Afterglow (06:50)(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0851F024C5475861DB532689EF7C2236A8E1329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451221   (1028378) от 02.03.2021
+
+Saints & Sinners - Saints & Sinners (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake
+02. Rip It Up
+03. Walk That Walk
+04. Takin' My Chances(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CB233B8691DBDC0BECBFD4A7EF7133B203EBA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451473   (1028373) от 02.03.2021
 
 Alpha Tiger - 4 Studio Albums (2011-2017) 4xCD [FLAC|Lossless|image + .cue] <Power Metal>
@@ -455,296 +745,6 @@ Moonspell - Hermitage (2021) [FLAC|Lossless|image + .cue] <Symphonic Metal, Goth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A40DBB825C60A16757184073C2B362B19AFF0D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453025   (1027204) от 09.03.2021
-
-Immortal - 9 Studio Albums (1992-2018) 9xCD [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027204.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Immortal уходит корнями в 1988 год, когда основатели группы Ольве Эйкему (норв. Olve Eikemo) и Харальд Невдал (норв. Harald Nævdal), ещё не зная о существовании друг друга, начали свой творческий путь. В 1990 году Ольве и Харальд решают покинуть свои группы и основать новую. Первоначально группа представляла собой квартет. Помимо басиста/вокалиста Ольве (   Читать дальше...   )1992 - Diabolical Fullmoon Mysticism
-1993 - Pure Holocaust
-1995 - Battles In The North
-1997 - Blizzard Beasts(   Читать дальше...   )Жанр: Black MetalПродолжительность: 06:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29B15428E40B9775739ED812C35EDF34B5A7D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453264   (1027116) от 10.03.2021
-
-Thorium - Thorium (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March Of The Eastern Tribe
-02. Ostrogoth
-03. Court Of Blood
-04. Godspeed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845FEB014D48E22D75FC7417B8A0BBBA912FEA70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453366   (1027109) от 10.03.2021
-
-Beyond The Border - Voyces (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal (Female Vocal)>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freeze [00:04:04]
-02. Temptation [00:05:47]
-03. Reveal The Truth [00:04:56]
-04. I Am [00:03:44](   Читать дальше...   )Жанр: Progressive Metal (Female Vocal)Продолжительность: 01:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C046F866E85660039126114DFC56C0F494513B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453298   (1027099) от 10.03.2021
-
-Circus Maximus - 4 Studio Albums (2005-2017) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Circus Maximus — норвежская прогрессив-метал-группа. Основана в городе Осло в 2000 году. Звучание и стиль коллектива часто напоминает музыку американской группы Dream Theater. Группа была основана в 2000 году, когда клавишник Эспен Сторё и бас-гитарист Глен Мёллен пригласили музыкантов для создания проекта в стиле прогрессивного метала, который позже получил название (   Читать дальше...   )2005 - The 1st Chapter
-2007 - Isolate
-2012 - Nine
-2016 - HavocЖанр: Progressive MetalПродолжительность: 06:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887820A724C3DE8E96DAA2150C946DEB28520A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453423   (1026972) от 11.03.2021
-
-Vns Vinicius the Guitar Ripping - A Sound Adventure (2021) [FLAC|Lossless|WEB-DL|tracks]  <Instrumental Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transcendence in Endless Life ( 00:04:10 )
-02. Rain Moment ( 00:03:51 )
-03. Possible Adjacent ( 00:04:50 )
-04. Sadness ( 00:04:05 )(   Читать дальше...   )Жанр: Instrumental Heavy MetalПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E97B776728ED95DAA562E5DBE7F19317CC9AA35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453664   (1026804) от 12.03.2021
-
-Bleeding Gods - Dodekathlon (2018) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodguilt
-02. Multiple Decapitation
-03. Beloved By Artemis
-04. From Feast To Beast(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03A608156D30FC5FEEE543A871345D45C349C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453791   (1026796) от 12.03.2021
-
-Secret Sphere - Lifeblood (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaping Reality
-02. Lifeblood
-03. The End Of An Ego
-04. Life Survivors(   Читать дальше...   )Жанр: Melodic Power Metal, Progressive MetalПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C401F275D708D1383494018BFCDF33F7F634FAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453915   (1026794) от 12.03.2021
-
-Carlos Boza - A Night In Alger (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,  Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Night In Alger (00:03:38)
-02. Imazighen (00:01:15)
-03. Hidden Love (00:03:30)
-04. Imaginary Moons (00:04:46)(   Читать дальше...   )Жанр: Progressive Metal,  InstrumentalПродолжительность: 00:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2001DE8B89ADB280E0DDCD15B04BB1D9CA5D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453626   (1026783) от 12.03.2021
-
-Orden Ogan - Final Days (2021) [FLAC|Lossless|tracks + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Of The Android 00:04:31
-02. In The Dawn Of The A 00:06:06
-03. Inferno 00:04:36
-04. Let The Fire Rain  00:04:35(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95361E628B5285EE30CBD8DFB2CB6B36005AA765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453813   (1026778) от 12.03.2021
-
-Slayer - World Painted Blood (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Painted Blood
-02. Unit 731
-03. Snuff
-04. Beauty Through Order(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583CFDFBE6327C4C7E8543732F0C279083388B31
 ```
 
 https://mybot314.ru/tekegram_catalog/

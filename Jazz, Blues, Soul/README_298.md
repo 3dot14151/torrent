@@ -1,3 +1,177 @@
+###  Публикация: 1062992   (437841) от 15.10.2016
+
+Peggy Lee - These Foolish Things & Other Great Standards (1945) 1995, Hallmark Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I'm Confessin' [02:41]
+ 02.September In The Rain [03:11]
+ 03.That Old Gang Of Mine [02:39]
+ 04.If I Could Be With You [01:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00439B543A017CF7435BD1A25474648793EFB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063003   (437840) от 15.10.2016
+
+Coleman Hawkins - April In Paris Featuring Body And Soul (1939-1956) 1992, BMG[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Body And Soul [03:07]
+ 02.When Day Is Done [03:22]
+ 03.Bouncing With Bean [03:08]
+ 04.April In Paris [03:11](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1056044F51DA7D1735F5B8A8A8DA7058C1429A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062968   (437839) от 15.10.2016
+
+Peggy Lee - In Love Again! & In The Name Of Love (1964) 1999, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Lot Of Livin' To Do [02:37]
+ 02.I've Got Your Number [02:00]
+ 03.Little By Little [02:05]
+ 04.Got That Magic [01:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AA8D71B7E404F7879DE04C30C61FD40825B987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062995   (437836) от 15.10.2016
+
+Peggy Lee - Sings For You (1952-1955) 1992, Avid Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You Do Something To Me [01:40]
+ 02.Almost Like Being In Love [01:59]
+ 03.Just One Of Those Things [02:18]
+ 04.That Old Black Magic [02:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C457C273BB3769877FB1B02F9FD2C4B81AC52A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063000   (437835) от 15.10.2016
+
+Stan Getz Quartet 1960 - Live In Amsterdam, Dusseldorf & Zurich (1960) Remaster, 2016, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Out Of Nowhere [09:10]
+ 02.The Thrill Is Gone [04:20]
+ 03.Lover Come Back To Me [08:33]
+ 04.Pammie's Tune [08:38](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A36308B60F7693C17715AE5A6F64FA593D69D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062987   (437834) от 15.10.2016
+
+Peggy Lee - Things Are Swingin' & Jump For Joy (1959) 1996, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's A Wonderful World [02:14]
+ 02.Things Are Swingin' [02:11]
+ 03.Alright, Okay, You Win [02:53]
+ 04.Ridin' High [02:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25BD9A53D0529E080CC6F5EE4A6C3FB3EC7C848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062763   (437833) от 15.10.2016
 
 Artie Shaw - What Is This Thing Called Love (1945, 1946) 1997, President Records[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -571,180 +745,6 @@ JF Girard - Jazz Waves (2017) Productions Bros [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DB38D11350A12B2DBD36CE183C54FA3B15CABFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249243   (436006) от 23.09.2018
-
-Jan Lundgren - Potsdamer Platz (2017) ACT Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Potsdamer Platz [5:19]
-02. No. 9 [4:43]
-03. Lycklig Resa [6:03]
-04. Bullet Train [5:23](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E192321B5E825CE1597CB1B123BD28BD8C806D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249442   (436004) от 23.09.2018
-
-John Stevens - Red (2005) [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Fly With Me (3:24)
- 02. My Blue Heaven (2:40)
- 03. Someone to Watch Over Me (4:44)
- 04. Here, There and Everywhere (3:02)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6DE890140894B357503A86AC0D583575CDE824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249093   (435842) от 23.09.2018
-
-Liz McComb - Soul, Peace & Love (2006) [FLAC|Lossless|image + .cue] <Blues, soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Peacemakers
-02.Oh When The Saints
-03.Come Back Lover
-04.God Made A Miracle(   Читать дальше...   )Жанр: Blues, soulПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AAD29DAC946F385C6848224634A617B7039002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063338   (435565) от 16.10.2016
-
-Mel Torme & Margaret Whiting - Broadway, Right Now! (1961) 2010, Flare Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fireworks [00:00]
- 02.Make Someone Happy [02:12]
- 03.Tall Hope [03:33]
- 04.I Loved You Once In Silence [03:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16A867557361209EBA379C242E30999194226D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063379   (435563) от 16.10.2016
-
-Grover Washington Jr. - Paradise (1979) 1983, Elektra[FLAC|Lossless|tracks + .cue] <Crossover Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Paradise [08:02]
- 02.Icey [03:54]
- 03.The Answer In Your Eyes [08:31]
- 04.Asia's Theme [05:11](   Читать дальше...   )Жанр: Crossover Jazz, Smooth JazzПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3636F23E8AF1A149F1C2515062D2AEAF9E694F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063382   (435556) от 16.10.2016
-
-Denny Zeitlin - Both / And:Solo Electro-Acoustic Adventures (2013) Sunnyside Communications[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Meteorology [10:43]
- 02.Dawn [06:05]
- 03.Tiger, Tiger [07:13]
- 04.Kathryn's Song [08:01](   Читать дальше...   )Жанр: Jazz Fusion, Avant-Garde JazzПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BCD70FB7C23EBF266D4E26F26727F48AE6FEC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

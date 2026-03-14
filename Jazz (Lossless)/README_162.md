@@ -1,3 +1,90 @@
+###  Публикация: 1242621   (514034) от 23.08.2018
+
+Freddie Hubbard - The Hub of Hubbard (1969) 1972, MPS Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without a Song [12:55]
+02. Just One of Those Things [7:17]
+03. Blues for Duane [7:37]
+04. The Things We Did Last Summer [7:20]Жанр: Hard Bop, Post-BopПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8752FEFBC129F3B8E5E53D3DB42368720DDD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315339   (513967) от 19.07.2019
+
+Thomas Marriott - Romance Language (2018) Origin Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dexter's Tune [3:17]
+02. Forgiveness [4:51]
+03. I Remember Sky [4:35]
+04. Piggyback [4:30](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914B1F0BEDDEB06A61F99743D98C796969235928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561694   (513621) от 06.07.2022
+
+Paul Desmond & Jim Hall - The Complete Recordings Of The Paul Desmond Quartet With Jim Hall (1959) 4CD, 1989, Mosaic Records [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513621.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. East of the Sun [5:45]
+02. For All We Know [5:34]
+03. I Get a Kick Out of You [8:39](   Читать дальше...   )Жанр: CoolПродолжительность: 04:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64131EAC69DFF839DE240EF2AA13120474671E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561707   (513602) от 06.07.2022
 
 Tape Five - Both Sides of the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Electro Swing>
@@ -664,93 +751,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C73CD4892EE54E7729C26D3326A0EE4718007684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315780   (508908) от 23.07.2019
-
-Mound City Blue Blowers - 1935 - 1936 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's The Reason (I'm Not Pleasin' You) [3:10]
-02. She's A Latin From Manhattan [3:04]
-03. You've Been Takin' Lessons [3:07]
-04. Indiana [2:49](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BD393D8EFF4654DFABDFB9BC4847328E1069EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932902   (508398) от 30.08.2015
-
-Blue Mitchell - Out Of The Blue (1958) /1991, Riverside/[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues On My Mind [09:10]
-02. It Could Happen To You [05:57]
-03. Boomerang [05:06]
-04. Sweet-Cakes [06:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F0288E2412E4853BA4C844B829AF926D1475B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932571   (508397) от 30.08.2015
-
-John Patton - That Certain Feeling (1968) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. String Bean [05:45]
-02. I Want To Go Home [08:39]
-03. Early A.M. [07:20]
-04. Dirty Fingers [06:20](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1067C0172D405DCEFFEE04A69663FC1566DC29
 ```
 
 https://mybot314.ru/tekegram_catalog/

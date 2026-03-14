@@ -1,3 +1,148 @@
+###  Публикация: 1684054   (127947) от 14.12.2023
+
+Anubis Gate - Studio Albums (10 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anubis Gate - датская пауэр/прог-метал группа, образованная в 2001 году в Ольборге.2004 - Purification
+2005 - A Perfect Forever
+2007 - Andromeda Unchained
+2009 - The DetachedЖанр: Progressive/Power MetalПродолжительность: 09:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D186EB2DC9A10893E8AE7E60C77204867E4890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684124   (127946) от 14.12.2023
+
+System Of A Down - Hypnotize (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Alternative Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127946.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Attack
+A2 Dreaming
+A3 Kill Rock 'N Roll
+A4 Hypnotize(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEE197496430259FD16FE6ACF11D960F15C7B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684413   (127816) от 15.12.2023
+
+System Of A Down - Mezmerize (2005)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Alternative Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127816.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Soldier Side - Intro
+A2 B.Y.O.B.
+A3 Revenga
+A4 Cigaro(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C12326CA3DB194DC515C45E014467BC981000A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684433   (127807) от 15.12.2023
+
+VA - Best Sound of Chill & Lounge 2023 – Winter Edition (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Mare - Everlasting Love (3:16)
+02. Soundset City - Skyline (3:30)
+03. Artenovum - Ministry of Sound (3:57)
+04. Jean Mare - Deepside Session (5:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B312EB0ED525786C4D7A0002E9EFC21562DA1457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684425   (127798) от 15.12.2023
+
+The String Breakers - Get on Your Feet (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Act Right (3:35)
+02. Don't Give up on Me (3:58)
+03. Eleanor Rigby (3:31)
+04. Good Rockin Daddy (3:55)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58082EEB1EF8CCD20AC16E5DC74C3DF98CFEDC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684524   (127797) от 15.12.2023
 
 Silent Force - Studio Albums (5 releases) (2000-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
@@ -600,151 +745,6 @@ Dusk - My Infinite Nature Alone (1999) Remaster, 2021, rearts records [FLAC 24/4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BBE72797DD4FFC7107DB3472018333D13F24C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685868   (126857) от 20.12.2023
-
-Stoned Statues - Guardian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, Progressive-Rock, Female-Vocals>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me With You [00:04:48]
-02. Too Late [00:03:25]
-03. Until Falling [00:04:55]
-04. Oblivious [00:05:14](   Читать дальше...   )Жанр: Punk, Progressive-Rock, Female-VocalsПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22F6F4BB388A12D4C7800C96566C17BAAAA9FC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685884   (126853) от 20.12.2023
-
-Warpath - Uprising Of The Oppressed (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sympho Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse's Daughter (Symphonic Version) [00:04:09]
-02. Indigo [00:04:42]
-03. Hero (Symphonic Version) [00:05:19]
-04. Hool, 1855 (Remastered) [00:06:55](   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 00:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40247F09233EBDC238F0F2DA68D78B7A03FD1AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686072   (126770) от 21.12.2023
-
-Телевизор - Шествие Рыб (1988) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126770.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Люди В Ожидании
-A2 Муха На Стекле
-A3 Город
-A4 Я Не Виноват(   Читать дальше...   )Жанр: New WaveПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8E83BFE7B47D0F7423EEA7FDC2BA3EDC1D1724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685934   (126751) от 21.12.2023
-
-Atomkraft - Queen of Death (1986) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126751.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Queen Of Death
-A2 - Protector
-B1 - Demolition
-B2 - Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686210   (126734) от 21.12.2023
-
-Kalmah - Studio Albums (9 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kalmah — финская англоязычная метал-группа. «Kalmah» в переводе с карельского значит «до смерти». Kalmah специализируется на быстром и неоклассическом направлении метала.2000 - Swamplord
-2002 - They Will Return
-2003 - Swampsong
-2006 - The Black WaltzЖанр: Melodic Death/Power MetalПродолжительность: 07:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0700D7D042554E94A1496492D70E8226F651223
 ```
 
 https://mybot314.ru/tekegram_catalog/

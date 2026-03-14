@@ -1,3 +1,61 @@
+###  Публикация: 1565136   (239800) от 23.07.2022
+
+Trillion Ton Beryllium Ships - Consensus Trance (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Beg Your Pardon
+02 Mystical Consumer
+03 Consensus Trance
+04 Distalgia For Infinity(   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner DoomПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F16E19A091BCC2898E4C56A87843B140D88B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467334   (239782) от 03.05.2021
+
+Gods of Space - 4 Albums (2018-2021) [MP3|320 Kbps] <Sci-Fi Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Against All Odds [00:04:39]
+02. Suborbital Hymn [00:05:00]
+03. Exit Point [00:03:31]
+04. Falling Sky [00:05:04](   Читать дальше...   )Жанр: Sci-Fi Stoner RockПродолжительность: 4CD, 01:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6442FFD2DC48321B606E75A37759EC64A3FF0A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422159   (239769) от 07.11.2020
 
 Great Wide Nothing - Hymns for Hungry Spirits, Vol. I (2020) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
@@ -683,64 +741,6 @@ Gino Vannelli - In the Name of Money (1987) US 12" Single [MP3|320 Kbps] <Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17882DE66A3A34EC191E732D4A16B12B3E32BBC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639290   (237179) от 12.06.2023
-
-Karnataka - Requiem For A Dream (2023) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Around The World [00:11:29]
-02. Sacrifice [00:06:30]
-03. Look To The East [00:06:44]
-04. Forgiven [00:11:49](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35B35E1EA9CC8A1D2FB54CA84608AF24877DA7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607737   (237059) от 28.01.2023
-
-VA - The Best of Luminol Records 2022 - Cantata (2022) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Spiritraiser - Stream [00:04:04]
-02 - Joint Depression - Homecoming [00:03:22]
-03 - Davide Ronfetto - Night City Lights [00:05:07]
-04 - Post Generation - This Cannot Work [00:05:38](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B0D73D82046ED4C294BEAB5BEB7F67976340E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

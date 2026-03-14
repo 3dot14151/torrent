@@ -1,3 +1,32 @@
+###  Публикация: 937108   (492388) от 13.09.2015
+
+VA - Moscow Underground (2015) [MP3|320 кб/с]<Electronica, Deep House, Techno, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikitin - Powermind-X (Original Mix) 05:22
+ 02. S.K.A.M. - The Doors (Original Mix) 07:43
+ 03. Andrey Loud - Solid (Original Mix) 07:24
+ 04. Afrobeat Feat. Tenisara - White Space (Nikitin Remix) 06:00(   Читать дальше...   )Жанр: Electronica, Deep House, Techno, MinimalПродолжительность: 10:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DF4803F43E5427FF28185FB0FF553751CC584A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158653   (492003) от 16.08.2017
 
 VA - Chill Ambient: 150 Advanced Relax Mix (2017) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
@@ -734,41 +763,6 @@ VA - Desert Speaks: Progressive Themes (2017) [MP3|320 Kbps] <Progressive Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28FC419E8575ADA01D7334DF852B0951EED7C3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545619   (485265) от 10.09.2012
-
-VA - Trance Tattoe #22 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lange & Audrey Gallagher - Our Way Home (Original Mix)
-02. Marc Simz feat. Naomi Striemer - This Is Love (Original Mix)
-03. Mike Shiver feat. Bo Bruce - Still Here
-04. Moonbeam feat. Blackfeel Wite - In Your Eyes (Original Mix)
-05. Omnia & IRA - The Fusion (Original Mix)
-06. Progressiver - Searching For The Truth (Original Mix)
-07. Ralphie B - Icarus
-08. Rave Channel - Illusion (Original Mix)
-09. Reminder - On The Beach (Stoneface & Terminal Remix)
-10. Rex Mundi - Opaque (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CBD18024E176B2BAE4F49C8DB7476FC0C066B8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

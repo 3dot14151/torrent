@@ -1,3 +1,90 @@
+###  Публикация: 1033087   (642175) от 09.07.2016
+
+Steve Smith - Viewpoint (2015) [FLAC|Lossless|WEB-DL|tracks] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bemsha Swing [07:26]
+02. Time Check [05:29]
+03. The Brush Off [07:11]
+04. Willowcrest [04:57](   Читать дальше...   )Жанр: FusionПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F03F077D7E68DAAB9C7196528F7B32089422B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033077   (642173) от 09.07.2016
+
+Michele Hendricks - A Little Bit of Ella (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Georgia Brown
+02. How High the Moon
+03. Love for Sale
+04. It Don't Mean a Thing(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA2BC62FAC748C0A5B9A704E919D90D36256917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032965   (641897) от 09.07.2016
+
+VA - Jazz: Sexy Saxophones (2015) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Garzone - My One and Only Love (7:58)
+02. Christina Von Bulow, Soren Kristiansen, Jesper Lundgaard & Eliot Zigmund - Tenderly (6:47)
+03. Hugo Rasmussen - Stardust (5:42)
+04. Jakob Dinesen - That's All (7:09)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEBFBCC52804F87EC8A081B052AC53C039A46C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906933   (641855) от 10.06.2015
 
 Elvin Jones - Going Home (2005) [FLAC|Lossless]<Jazz, Post-Bop>
@@ -662,99 +749,6 @@ James P. Johnson - 1928 - 1938 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A82EBC67EDEED3A42BB9CC45976780C3F4EA7998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228027   (639409) от 30.05.2018
-
-Pee Wee Russell - Portrait of Pee Wee (1958) 1991, DCC Jazz [APE|Lossless|image + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Old Feeling [4:19]
-02. World On A String [4:28]
-03. Exactly Like You [3:10]
-04. It All Depends On You [4:03](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08CA4408BC2E438261BC6CE6BE12E37632A43C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519084   (639375) от 05.07.2012
-
-Ron Carter and Helen Merrill - Duets (1989) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_639375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Fall in Love Too Easily (Cahn-Styne) [03:09]
-02. Child is Born (A.Wilder-T.Jones) [05:32]
-03. Come Home Again (Merrill-Zito) [02:27]
-04. Little Waltz (R.Carter) [04:18]
-05. You And The Night And The Music (Dietz-Schwartz) [02:18]
-06. Autumn Leaves (Mercer-Kosma) [02:45]
-07. Come Rain Or Come Shine (Arlen-Mercer) [02:31]
-08. In A Mellow Tone (Gabler-Ellington) [02:47]
-09. Summer Knows (Bergman-Bergman-Legrand) [03:24]
-10. There Is No Greater Love (Symes-Jones) [04:02](   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293214   (639204) от 02.04.2019
-
-Wayne Shorter Quartet - Beyond The Sound Barrier (2002 - 2004) 2005, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smilin' Through [11:52]
-02. As Far as the Eye Can See [6:27]
-03. On Wings of Song [4:35]
-04. Tinker Bell [1:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D001C20CB3C149CFE74E0101BD1AB396B4038E06
 ```
 
 https://mybot314.ru/tekegram_catalog/

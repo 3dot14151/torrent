@@ -1,3 +1,177 @@
+###  Публикация: 1773840   (71623) от 18.01.2025
+
+VA - Good Whiskey Blues vol.4 (2002) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenny Lee - Blues Party [04:36]
+02. Bird Dogs - Bye Bye Baby [05:41]
+03. Rocky Shelton - Twist Of Fate [04:34]
+04. Mary-Ann Brandon - It's A Dirty Job [03:27](   Читать дальше...   )Жанр: BluesПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58A93176582C235D3E9989E80BCED6495ECEEAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773906   (71615) от 18.01.2025
+
+VA - More Blue Notes, Vol.2: Milestones of Jazz Legends (1948 - 1962) 10CD, 2018, The Intense Media [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swingin' at Sugar Ray's [6:35]
+02. Goin' Down [7:25]
+03. Whatever Lola Wants [7:22]
+04. Face to Face [6:17](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 10:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2F6D2A691A4BDFAF057940B51B0EEDA7476CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773839   (71596) от 18.01.2025
+
+Kenny Neal - What You Got (2000) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		I Smell Smoke	4:39
+02		Two Wrongs Don't Make A Right	4:00
+03		Neal And Pray	3:29
+04		Little Brother (Make A Way)	4:28(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F15CCBD0ECC927DACFC5560B56AAE140954CBEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774122   (71563) от 19.01.2025
+
+VA - Classic Vanguard Small Group Swing Sessions (1953 - 1957) 7CD, 2024, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Rushing - My Friend Mr. Blues [5:50]
+02. Jimmy Rushing - If This Ain't the Blues [8:10]
+03. Jimmy Rushing - I Can't Understand [4:38]
+04. Jimmy Rushing - Take Me with You, Baby [5:01](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Vocal JazzПродолжительность: 08:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7F558E81F3C1EDB03E82F3FEB49E5C1AECFF41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774165   (71558) от 19.01.2025
+
+Dave Stryker - Stryker With Strings Goes to the Movies (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Your Eyes (feat. Sara Caswell)
+02. Cinema Paradiso Main Theme
+03. You Only Live Twice
+04. Taxi Driver (feat. Greg Ward)(   Читать дальше...   )Жанр: Jazz, Jazz-FunkПродолжительность: 01:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F85294523E98564136ADAB5450A806CC0F4606A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774807   (71531) от 23.01.2025
+
+VA - Blue Notes, Vol.1: The Essence Of Modern Jazz (1953 - 1962) 10CD, 1999, The Intense Media [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sheila Jordan - Falling in Love With Love [2:32]
+02. Sheila Jordan - If You Could See Me Now [4:33]
+03. Sheila Jordan - Am I Blue [4:12]
+04. Sheila Jordan - Dat Dere [2:44](   Читать дальше...   )Жанр: Bop, Hard Bop, Vocal JazzПродолжительность: 12:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA498EE64200F088AEB0A0015B2C6DF81C717FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774972   (71515) от 24.01.2025
 
 Oscar Peterson - Get Happy (1949 - 1950) 2019, Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -571,180 +745,6 @@ VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. II (2023) Signora Ward Reco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E7B8FC0C882034D12DD0AE9171AF61983871E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776838   (71199) от 02.02.2025
-
-Thorbjorn Risager & The Black Tornado - House Of Sticks (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Of Sticks
-02. Already Gone
-03. Light of Your Love
-04. Long Time Ago(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47039AE326A4A6821FC9F4A9FC130A8BC1F08536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776846   (71197) от 02.02.2025
-
-VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. I (2023) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flooded Fields Quartet feat Manet- Step Down to the Water (4:14)
-02. Six Fingered People - Jamaica (7:05)
-03. Apostrophe - Black Rain (5:37)
-04. Satvrne - Absinthe (6:39)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Jazz NoirПродолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35BA7105BDEA28D4AB86287AE4F54988F0B9A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776853   (71165) от 02.02.2025
-
-VA - The Midnighters Vol. II (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nigel Sanders - Midnight Shades of Black (3:55)
-02. Hard Shadow - Coffin Wood Park (4:37)
-03. Ghostwoods - Brighter Now (gartr0n Remix) (6:00)
-04. Pleasure Of Decay - Vendetta (7:00)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Jazz NoirПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F166BAAB2C99810306BCEA519FBB0F6C94C9F1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776843   (71163) от 02.02.2025
-
-VA - The Midnighters Vol. I (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Ambient Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstraction - Restless Nights (3:56)
-02. Bānhūs - Ectoplasmic Countenance (3:54)
-03. Charcoal Fields - Houston (6:53)
-04. Comegente - El discurso del sapo (13:57)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Ambient Jazz, Jazz NoirПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11A67CFC91A20089FB1CBD6C02F87D7639FFB92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776903   (71143) от 03.02.2025
-
-Don Patterson - Steady Comin' At 'Ya (1972 - 1977) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Are Soulful Days [8:21]
-02. Whistle While You Work [7:34]
-03. Skylark [9:15]
-04. Blue 'n Boogie [4:12](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03547BCDB24DBA9814F8F58C88A1DEED5AFE3281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776905   (71142) от 03.02.2025
-
-Red Mitchell & George Cables - Live At Port Townsend (1992) 2005, Challenge Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Leaves [8:20]
-02. Don't Blame Me [12:14]
-03. Tangerine [7:06]
-04. Body and Soul [9:10](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C5787F9D2243A52B0121A36508AC5DA713A5AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

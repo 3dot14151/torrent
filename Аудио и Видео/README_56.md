@@ -528,6 +528,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504958   (808333) от 25.10.2021
+
+Kfir Ochaion - VII (2020) [AAC|~340 Kbps] <Instrumental Guitar Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_808333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Final Countdown (5:41)
+02. Crazy Frog (2:46)
+03. Pirates of the Caribbean (3:13)
+04. Smooth Criminal (3:31)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5884B6CDF69460AB2D0C0F1DD678A64A4FAAA3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504882   (808332) от 25.10.2021
 
 Pink Floyd - The Piper at the Gates of Dawn (2016) [AAC|~370 Kbps] <Rock>
@@ -686,35 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D20C398818A00555778B5A5D663541B44BA369A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504877   (808075) от 25.10.2021
-
-Pink Floyd - The Dark Side of the Moon (2016) [AAC|~342 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak to Me (1:04)
-02. Breathe (in the Air) (2:50)
-03. On the Run (3:36)
-04. Time (7:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F53CAA14CC07AE155FD29CAE3CB2AED953EF39
 ```
 
 https://mybot314.ru/tekegram_catalog/

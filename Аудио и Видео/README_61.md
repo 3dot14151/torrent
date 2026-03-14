@@ -1,3 +1,32 @@
+###  Публикация: 1506636   (799565) от 01.11.2021
+
+VA - Mykonos Chillout Café, Vol. 4 (Feelings Del Mar) (2009) [AAC|~338 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noise Boyz - Blue Cabbage (Sax 2 Jazz Mix) (6:21)
+02. Green Lemon - Visiting Suntown in June (A Deep Breath Mix) (6:00)
+03. Bay Area - Echoes of Aquantis (Red Horizon Mix) (5:19)
+04. Noise Boyz, Io Vita - Make It Right - Joyful (Missing U Mix) (5:49)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E9BD56F2B96280C9993D81BF29FC47ADDBAC4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506733   (799563) от 01.11.2021
 
 Marco Bedini - Bufalo Essentials, vol. 3 (2021) [AAC|~308 Kbps] <House, Techno>
@@ -704,35 +733,6 @@ VA - Relaxing Therapy Session with José Sierra (Pt 1) (2020) [AAC|~321 Kbps] <L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5F1FA0A89FC7E475AC3ED58826AB29AB679A35C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507002   (799137) от 02.11.2021
-
-VA - Future Chill (2021) [AAC|~327 Kbps] <Lo-Fi, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misc.Inc - Revelations (2:41)
-02. Alex Cortiz - Lonesome Rider (5:25)
-03. Worldtraveller - The Rory Glory Smokadelic Bloomdub (3:50)
-04. Pearldiver - Hypnotizing (Worldtraveller's Slow Motion Edit) (2:42)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD1B8D2047A6EFE53EC219DDB69A740394BD461
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1630340   (237198) от 30.04.2023
+
+Орк. Большого театра СССР, дир. А. Жюрайтис - Р. Щедрин - Сюита № 2 из балета «Конек-горбунок» (1963) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Р. ЩЕДРИН (р. 1932)
+2-я сюита из балета "Конек-Горбунок"
+01. Танец с балалайками
+02. Братья в ночном дозоре(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45283206E50DD258C2C51C4AD0FF3D051359274C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208569   (237196) от 05.05.2022
+
+VA - Superstars (1974) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Jones - Little Lonely One
+02. Gerry Dorsey - The Sentimental Joker
+03. Gilbert O'Sullivan - I Wish I Could Cry
+04. ''The Nocturnes'' - Why (Am I Treated So Bad)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630226   (237159) от 30.04.2023
+
+Gorillaz - Cracker Island (2023) [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip Hop, Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cracker Island (3:33)
+ 02. Oil (3:50)
+ 03. The Tired Influencer (3:31)
+ 04. Tarantula (3:32)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC458EC151F24CA9F2FCC5F22DBF416BD57AF0BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630326   (237126) от 30.04.2023
+
+Т. Николаева/Л. Брук и М. Тайманов - И. Стравинский/Ф. Пуленк - Каприччио/Концерт для двух ф-но с оркестром (1964) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каприччио Для Ф-но С Оркестром
+A1 Presto
+A2 Andante Rapsodico
+A3 Allegro Capriccioso Ma Non Giusto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2E61958C216378831928B25235310246FEA534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628032   (236992) от 21.04.2023
+
+Rupert Hine - Immunity (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236992.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Hang On To My Vertigo 4:40
+A2 Misplaced Love 4:14
+A3 Samsara 5:15
+A4 Surface Tension 4:19(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C82911D4C441BCDED9C1FAAD2743E07BB5F002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630590   (236921) от 01.05.2023
 
 Manfred Mann's Earth Band - Ансамбль Мэнфреда Мэнна (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Classic Rock>
@@ -599,151 +744,6 @@ Moonspell — португальская метал-группа, основан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD4FD653BE858657F16EAF3CEBBB7C16D282A735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642992   (232991) от 30.06.2023
-
-Emperor - Studio Albums (7 releases) (1993-2001) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emperor — норвежская блэк-метал-группа, основанная в 1991 году и оказавшая значительное влияние на развитие жанра.1993 - Emperor (EP)
-1994 - As The Shadows Rise (EP)
-1994 - In the Nightside Eclipse
-1998 - Anthems To The Welkin At DuskЖанр: Symphonic Black MetalПродолжительность: 04:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC8EDBE9CC8A2E1A81A8C3BDD8F5C6ADA895EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634983   (232952) от 23.05.2023
-
-Давид Ойстрах - К. Дебюсси, С. Прокофьев, М. Равель, Э. Изаи – Сонаты для ф-но и скрипки (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соната Для Скрипки И Ф-но Соль Минор, Соч. 1917 г. = Violin Sonata In G Minor (1917)
-А1 Allegro Vivo
-А2 Intermede. Fantasteque Et Leger
-А3 Finale. Tres Anime(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5768FFFB9DE22D4CA26F74B2BC23B6FE0046FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634583   (232878) от 23.05.2023
-
-Е. Могилевский, ф-но и симф. орк Мосгосфилармонии, дир. К. Кондрашин - С. Рахманинов – Концерт №3 для ф-но с оркестром, соч. 30 (1964) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Classical, Neo-Roman ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт №3 Для Фортепиано С Оркестром Ре Минор, Соч. 30
-A  1. Allegro ma non tanto
-B1 2. Intermezzo. Adagio
-B2 3. Finale. Alla breve(   Читать дальше...   )Жанр: Classical, Neo-RomanticПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F76111173180AF70D7042F6EC9C570DDDD5996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643848   (232419) от 03.07.2023
-
-Olivia Dean - Messy (2023) [FLAC 24/96|WEB-DL|tracks] <R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UFO (2:34)
-02. Dive (3:21)
-03. Ladies Room (3:40)
-04. No Man (2:59)(   Читать дальше...   )Жанр: R&BПродолжительность: 00:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6B9C7140176FD5DB5B52ECD943588690BF58B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580206   (232099) от 30.09.2022
-
-Moby – Reprise (Box Set, Special Edition) (2021) [DTS-ES Discrete 6.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio] <Funk / Soul, Pop, Classical>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом Reprise композитора Ричарда Мелвилла Холла, больше известного как Moby, с оркестровыми аранжировками 14-ти наиболее известных его произведений, созданных за 30-летнюю карьеру. Идея проекта родилась после симфонического концерта Moby с Лос-Анджелесским оркестром под управлением знаменитого дирижера Густаво Дудамеля (Gustavo Dudamel) в 2018 году в зале Walt (   Читать дальше...   )01. Everloving
-02. Natural Blues
-03. Go
-04. Porcelain(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437005EDDED4F3FDA4BDC26B43F0FAA9335653E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

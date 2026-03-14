@@ -1,3 +1,177 @@
+###  Публикация: 1684139   (127998) от 14.12.2023
+
+Joe Bonamassa - Merry Christmas, Baby (2023) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merry Christmas, Baby (Alternate Take) (05:14)
+ 02. Christmas Boogie (One Little Kiss) (06:54)
+ 03. God Rest Ye Merry, Gentlemen (Irish Rendition) (02:16)
+ 04. Lonesome Christmas (03:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D021C3A8AC338818031F0B89326352E800B448F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684214   (127995) от 14.12.2023
+
+The Electro Swingers - Collection (2012-2013) 2CD [MP3|320 Kbps] <Electro, Swing, Cabare Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Claus Is Comin' to Town [03:59]
+02. Zat You, Santa Claus? [03:34]
+03. Winter Wonderland [04:01]
+04. Let It Snow! [03:36](   Читать дальше...   )Жанр: Electro, Swing, Cabare JazzПродолжительность: 01:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FDB2A7BF3256B82CD2B25BA84A30ADEA4FB55E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684050   (127968) от 14.12.2023
+
+Joe Bonamassa - Merry Christmas, Baby (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Christmas Music>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merry Christmas, Baby (Alternate Take) (5:14)
+02. Christmas Boogie (One Little Kiss) (6:54)
+03. God Rest Ye Merry, Gentlemen (Irish Rendition) (2:16)
+04. Lonesome Christmas (3:29)(   Читать дальше...   )Жанр: Blues Rock, Christmas MusicПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445DD6C55317A9F798448969F953A005EB1D5E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684125   (127958) от 14.12.2023
+
+Phil Woods - This Is How I Feel About Quincy (2004) Jazzed Media [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stockholm Sweetnin' [7:18]
+02. The Quintessence [5:03]
+03. Meet Benny Bailey [5:20]
+04. For Lena and Lennie [6:28](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3083B868803031F1A3C8A5F8432FA7B0F31C892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684121   (127956) от 14.12.2023
+
+Louis van Dijk With The London Chamber Orchestra - Merry Melodies (1997) PolyGram Classics & Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Third Stream, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Wish You a Merry Christmas [2:26]
+02. God Rest Ye Merry Gentlemen [2:40]
+03. Ding, Dong Merrily on High [3:21]
+04. Have Yourself a Merry Little Christmas/Christmas Song [6:54](   Читать дальше...   )Жанр: Mainstream Jazz, Third Stream, Piano JazzПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D3824FC1B4B292FD74643B52239A3B84E15D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684126   (127939) от 14.12.2023
+
+Toshiko Akiyoshi-Lew Tabackin Big Band - Sumi-e (1979) 1986, Insights [FLAC|Lossless|tracks + .cue] <Modern Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sumi-e [7:59]
+02. A-10-205932 [10:07]
+03. A-10-205932 (alternate take) [9:57]
+04. Hangin' Loose [8:50](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF0712874D5921EA3F21790F962743D695DE88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684410   (127777) от 15.12.2023
 
 Monty Alexander - Facets (1979) 1991, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
@@ -571,180 +745,6 @@ Blackwater - Blues Chemistry (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00EEA1BBFC2DD2864DE4735656907764D8CFAFFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685289   (127224) от 18.12.2023
-
-Ella Fitzgerald - Ella Wishes You A Swinging Christmas (1960) 1988, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bells [2:25]
-02. Santa Claus Is Coming to Town [2:21]
-03. Have Yourself a Merry Little Christmas [2:58]
-04. What Are You Doing New Year's Eve? [3:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBE6042A32E4D6A2A676FA5DBAC4F172393F17D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685292   (127223) от 18.12.2023
-
-Terri Lyne Carrington - TLC & Friends (1981) 2023, Candid [FLAC|Lossless|tracks + .cue] <CCD32122>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is This Thing Called Love? [6:22]
-02. La Bonita [5:32]
-03. Seven Steps to Heaven [5:50]
-04. St. Thomas [7:17](   Читать дальше...   )Жанр: CCD32122Продолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956EB4F517AE0E1012DC3CD89520074BCC6C5E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685330   (127222) от 18.12.2023
-
-Blue Deal - Can't Kill Me Twice (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Short Time Runner (2:31)
-02. Can't Kill Me Twice (3:52)
-03. Hard Times (3:27)
-04. Gilded Cage (2:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8663678A9A9B7D908D130FB02426988211260DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685322   (127221) от 18.12.2023
-
-VA - Urban Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk, Electronic>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ltj X-perience - Best Life (7:39)
-02. DOUT.D - Strolling (2:23)
-03. The Last Minister - Tribute To J.B. Family (6:20)
-04. Ice One - Dal Terrazzo (1:42)(   Читать дальше...   )Жанр: Smooth Jazz, Funk, ElectronicПродолжительность: 02:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A87A16FDA41063F44360119D21A41B6A69945F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685331   (127220) от 18.12.2023
-
-Checkerboard Lounge - Roller Coaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rollercoaster (3:23)
-02. Double Standard (3:36)
-03. King of Nothin' (6:13)
-04. Killing Time (3:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94FE77D0D4CAE384F0D9F850163DE96844A7748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685324   (127213) от 18.12.2023
-
-Back Road Bourbon - The Other Side of Midnight (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Other Side (4:03)
-02. Midnight (3:06)
-03. Hail Mary (feat. John Bialy & Mike Anklewicz) (3:28)
-04. Bird Shit Tree (2:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354C4E771F7F8592D563E68D79D4CECACA71B23E
 ```
 
 https://mybot314.ru/tekegram_catalog/

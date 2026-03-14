@@ -1,3 +1,32 @@
+###  Публикация: 1590258   (189041) от 13.11.2022
+
+VA - В машине с музыкой Vol.318 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altair Feat. & Abbi - Как Ты Там (02:43) 2022
+02. Nola  - Милая (03:21) 2022
+03. Kolunov Feat. & Фактор 2 - Красавица (02:51) 2022
+04. Lehov  - Веду За Руку (02:52) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA29E80026A0FE642E7D56DC55D2B80931FEE7EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590638   (188644) от 14.11.2022
 
 VA - Dance Hits of the outgoing year (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -715,35 +744,6 @@ VA - Громкие новинки Декабря (2020) [MP3|320 Kbps] <Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29153A9843C8D51C1199CE272506EC70840674BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666770   (178771) от 05.10.2023
-
-VA - Music News vol.303 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178771.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. LVLV - Sexy (02:13)
- 002. Alkonost - Оберег (04:59)
- 003. Alli Neumann - Berlin Nightlife (03:03)
- 004. Angelini - Душа (Mix) (03:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F9FFCAA5B2C599EEF355A4D0D55F85DCB15F3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

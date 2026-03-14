@@ -1,3 +1,177 @@
+###  Публикация: 1706485   (113535) от 13.03.2024
+
+Sonny Stitt - Plays Jimmy Giuffre Arrangements (1959) 2010, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New York Blues [3:58]
+02. Giuff [2:59]
+03. Laura [4:51]
+04. Sonny Boy [3:59](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7562228F1C3B455ABC22C4DCE7A13C4FAEAA36C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706560   (113534) от 13.03.2024
+
+The Red Holloway / Clark Terry Sextet - Locksmith Blues (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Top [4:32]
+02. Happiness Is a Thing Called Joe [4:49]
+03. Hitting the Road Again [7:24]
+04. Come Sunday [4:30](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC83AC408E078B60ABFFB6C7E2EC495C34E7940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706479   (113532) от 13.03.2024
+
+Sonny Stitt - No Greater Love (1981) 2001, TKO Magnum Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonny's Blues [4:54]
+02. Old Folks [4:06]
+03. Lax [6:28]
+04. Yesterdays [4:35](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8792120C77A41B998AF36070C120F0BAA562B8B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706482   (113531) от 13.03.2024
+
+Gene Harris Quartet - Another Night In London (1996) 2010, Resonance Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Georgia Brown [9:29]
+02. Meditation [8:39]
+03. That's All [8:01]
+04. Lady Be Good [10:06](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Piano JazzПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C515C50A50851CFF122EC0EC85C116340947D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706585   (113527) от 13.03.2024
+
+Andy Lindquist - Unravel the Gravel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carbon Heart (3:06)
+02. Unravel the Gravel (3:52)
+03. Sunny Soul Power (3:09)
+04. Its Been a Brick (3:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3B7F541A3C76808E1741D89C3E5EB2C38E5083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706764   (113517) от 14.03.2024
+
+Sexy Lovers Music Collection, Smooth Jazz Sax Instrumentals - Saxophone Intimate Moments: Sexy Jazz for Erotic Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saxual Healing (Sex Saxophone & Piano) (3:49)
+02. Saxual Jazz Lounge (Sexy Sax & Piano) (3:36)
+03. Now Again (Sensual Instrumental Background) (2:37)
+04. Feel Like Making Love (3:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4460256A49F7C3AFB6AA660160795FB9F0AB825A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706773   (113469) от 14.03.2024
 
 Gene Krupa - Drum Crazy (1936 - 1950) 2001, ASV [FLAC|Lossless|image + .cue] <Swing, Big Band>
@@ -571,180 +745,6 @@ Gene Austin - Collection (1920s-1950s) (2011-2014) 2CD [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B21A1D38FE3A7439873A3E68C65B4F5E91AF451E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707600   (113252) от 17.03.2024
-
-Donald Byrd - Attitude (1987 - 1991) 2CD, 1999, Camden Deluxe [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Arthur [8:27]
-02. I'll Always Remember [9:39]
-03. Back Down in Lu Easy Anna [6:49]
-04. Byrd Song [6:02](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:856577CE539F3F93348BC051D696BF173213740D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707604   (113247) от 17.03.2024
-
-Danny Barrett - It's About Time (1993) DBD Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everytime We Say Goodbye [4:02]
-02. Two for the Road [4:36]
-03. Night Song [4:20]
-04. For All We Know [4:00](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E0D4EB6CEDDE922DA64ABDB9C6676D454846B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707806   (113239) от 18.03.2024
-
-Triplicity - Onibaba (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Onibaba (5:01)
-02. Which way home (5:35)
-03. Our own ghosts (8:50)
-04. Lovesong (intro) (3:24)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EEE890E100DBBC46C91CA9F4999DC5B56570C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707799   (113237) от 18.03.2024
-
-Bernhard Ludescher & Loktor - Almost (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost  (8:03)
-02. Bi Harm (8:38)
-03. Carousel Bliss  (9:24)
-04. Abschied  (5:44)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF795B033FDE94726B8ADCEDEE9F55A97F013044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707803   (113235) от 18.03.2024
-
-Sacha Perry, Ben Street & Kresten Osgood - Low Tide (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How High the Moon (5:53)
-02. Locomotive (5:25)
-03. Just One of Those Things (5:33)
-04. Low Tide (5:01)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC900BD1839A3EE7FFED2227136E13825519F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707797   (113234) от 18.03.2024
-
-2Run More - Vuca World (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fusion, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curhatku (4:11)
-02. Sejuta Asa (3:56)
-03. Kau (3:17)
-04. Soulmate (4:40)(   Читать дальше...   )Жанр: Jazz, Fusion, Smooth JazzПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E83341905A4F32D73EB43F39AB984F0DADE3B09D
 ```
 
 https://mybot314.ru/tekegram_catalog/

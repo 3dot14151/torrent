@@ -1,3 +1,29 @@
+###  Публикация: 1384854   (800926) от 22.05.2020
+
+Кир Булычёв | Царицын ключ (2020) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фольклорная экспедиция, отправившаяся за песнями и сказками в далёкую уральскую деревушку Полуехтовы Ручьи, никак не ожидала обнаружить здесь настоящее волшебное царство. В этом глухом уголке растёт малина величиной с кулак, живёт говорящий ворон Григорий, бродит сама собой мельница и, следуя старинной традиции, каждое утро стреляет из пушки медведь!.. А всё потому, (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 05:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01CD9136D3AA062F367F956CF28F287BD0F5D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384957   (800793) от 22.05.2020
 
 Тёмное наследие / Inheritance (2020) WEB-DL [720p] ATV
@@ -672,35 +698,6 @@ Marco Bedini - Bufalo Essentials, vol. 2 (2021) [AAC|~339 Kbps] <House, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C665048D5A750612D2714598349BFC8D6AD8EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506636   (799565) от 01.11.2021
-
-VA - Mykonos Chillout Café, Vol. 4 (Feelings Del Mar) (2009) [AAC|~338 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noise Boyz - Blue Cabbage (Sax 2 Jazz Mix) (6:21)
-02. Green Lemon - Visiting Suntown in June (A Deep Breath Mix) (6:00)
-03. Bay Area - Echoes of Aquantis (Red Horizon Mix) (5:19)
-04. Noise Boyz, Io Vita - Make It Right - Joyful (Missing U Mix) (5:49)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E9BD56F2B96280C9993D81BF29FC47ADDBAC4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

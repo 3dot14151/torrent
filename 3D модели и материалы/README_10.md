@@ -1,3 +1,29 @@
+###  Публикация: 1510082   (791873) от 15.11.2021
+
+3D print - Gambody - Vulcan Tank 3D Printing Model | Assembly [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Модель 3D-печати Vulcan Tank поставляется в 5 версиях для каждого типа 3D-принтера (FFF / FDM, DLP / SLA и SLS).Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5E14B3E761A99712EB277D4F3113B720A506C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510280   (791316) от 16.11.2021
 
 3D модели - Chyuuties [Fanart]: Sailor Moon [STL]
@@ -658,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07322826FAEBF52081BDD2CD9094D6BE9BF61137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205778   (783195) от 11.02.2018
-
-3D модели - Daz 3D - Lee 7 Pro Bundle - 24367 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Lee 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F69D5BFBF2233D31F3DFE95C32D52FBC0395D51
 ```
 
 https://mybot314.ru/tekegram_catalog/

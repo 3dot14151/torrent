@@ -1,3 +1,61 @@
+###  Публикация: 1029847   (678456) от 28.06.2016
+
+Aura - Observations (2016) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Day Of My Life
+02. Pirates Of Caribbean
+03. Observations
+04. Ticking Bomb(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D598694A4949F6AB0BA0A04928BEF4A40D29E6C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536199   (678388) от 10.03.2022
+
+Bryan Adams - So Happy It Hurts (2022) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Happy It Hurts
+02. Never Gonna Rain
+03. You Lift Me Up
+04. I've Been Looking For You(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EDC4231D12336703823C5526EAA3871365D060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508302   (677184) от 11.06.2012
 
 VA - Absolute Rock (2012) [MP3|320 кб/с]<Rock>
@@ -706,64 +764,6 @@ Voltaire - The Very Best of Aurelio Voltaire, Vol. 2 (2017) 2CD [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:207BB3FF9866ADCCD59F3F93BD360E9059C0267F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538324   (663275) от 20.03.2022
-
-VA - Soft Rock Love (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Big Love (2018 Remaster) (3:42)
-02. Chris Rea - Your Warm and Tender Love (4:33)
-03. Coldplay - Everglow (4:42)
-04. Pretenders - I'll Stand By You (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4D4836396B12B27F4FAA5C19930E5C0E2BCBE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138278   (663169) от 30.05.2017
-
-Georgia Satellites - Georgia Satellites (1986) [MP3|320 Kbps] <Southern Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663169.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Keep Your Hands To Yourself
-2. Railroad Steel
-3. Battleship Chains
-4. Red Light(   Читать дальше...   )Жанр: Southern Rock, Rock & RollПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9B21A1B534C379FB78C1F97C402F31CFAF29A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

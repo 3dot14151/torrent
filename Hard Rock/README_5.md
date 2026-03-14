@@ -1,3 +1,32 @@
+###  Публикация: 1102811   (887723) от 11.02.2017
+
+Goddo - In Goddo We Trust (1991) [MP3|320 Kbps] <Hard Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Was It Somethin' I Said?
+02. Please Baby Please
+03. Drop Dead (That's Who)
+04. Sweet Thing(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49B2A7DB77ED7B3D66D3887B18E9EE0F51BF7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103137   (887626) от 11.02.2017
 
 Budgie - The Best of Budgie (1997) [MP3|320 Kbps] <Hard Rock>
@@ -725,36 +754,6 @@ Axxis - Retrolution (2017) [MP3|320 Kbps] <Hard Rock, Melodic Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67C2313C8C617D17FCF78DDA0E5AB36E9DDF0E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500929   (839821) от 07.10.2021
-
-Gus G. - Quantum Leap (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Guitar Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Греческий гитарист-виртуоз Гас Джи (Gus G.), хорошо известный в рок- и метал-кругах по работе с Оззи Осборном (Ozzy Osbourne) и собственной группой FIREWIND, выпустит новый сольный альбом "Quantum Leap" 8 октября на лейбле AFM.
-Он заявил: "Это мой первый полностью инструментальный сольный альбом. Это означает, что там вообще нет вокала, нет гостевых (   Читать дальше...   )01 - Into the Unknown (05:22)
- 02 - Exosphere (03:40)
- 03 - Quantum Leap (04:49)
- 04 - Chronesthesia (05:02)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Guitar InstrumentalПродолжительность: 01:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403B67FB32EDD31B212EDAA4A6FF527427D60C1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

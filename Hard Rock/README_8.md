@@ -1,3 +1,32 @@
+###  Публикация: 1014194   (776918) от 06.05.2016
+
+Rich Robinson - Paper (2016) [MP3|320 кб/с] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Know Me
+02. Enemy
+03. Stand Up
+04. Leave It Alone(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DBA33498DC336537B77C7D220F4BE7DC01F3F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014566   (776187) от 08.05.2016
 
 Bliss - Bliss (1969) Reissue, 2007, Tone Arm [MP3|320 кб/с] <Psych Hard Rock>
@@ -715,35 +744,6 @@ Jaded Heart - Devil's Gift (2018) [MP3|320 Kbps] <Hard Rock, Hard 'n' Heavy>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D055583BC457112237DB02BBFF7ECD3FC70F5FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021146   (742494) от 28.05.2016
-
-The Alex Parche Project - Prohibido El Paso (1994) [MP3|320 кб/с] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prohibido El Paso    02:48
-02. Medicine Show    03:47
-03. Salvation City    04:21
-04. Heat Of The Night    04:21(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FDD98A0336A0EBAAD0F01C6C8899E3689F4D208
 ```
 
 https://mybot314.ru/tekegram_catalog/

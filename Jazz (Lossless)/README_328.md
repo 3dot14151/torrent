@@ -1,3 +1,90 @@
+###  Публикация: 1731535   (107655) от 21.06.2024
+
+Sonny Rollins - Silver City: A Celebration Of 25 Years On Milestone (1972 - 1995) 2CD, 1996, Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. McGhee [4:19]
+02. Someone to Watch over Me [9:40]
+03. I'm Old Fashioned [6:27]
+04. Just Once [3:26](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC51767804287B7789617416E352124CA0B92BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731585   (107654) от 21.06.2024
+
+Jimmy Haslip, Kevin Crockett & Richard D. Ruttenberg - Cold Fusion (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swan (3:25)
+02. Charisma (3:57)
+03. Castles (0:51)
+04. Cold Fusion (4:40)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF555014011872515119A29DC7E1857B394E4DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731582   (107653) от 21.06.2024
+
+Christian Galvez - LEVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LEVE (8:46)
+02. PURE (8:53)
+03. MODAL CHANGES (7:39)
+04. FOR MINGUS (10:56)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633440A5B4BD56B273D33A1252E3B4A418B2EE6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731580   (107652) от 21.06.2024
 
 Bill Banfield - Hybridity (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -658,93 +745,6 @@ Michel Morissette - Quatre (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:818A15700EDFF7A5C63BBF68843E2C26751B1337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733231   (107310) от 28.06.2024
-
-Victor Lob - Day Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andes Wind (5:00)
-02. Coco Souffle (5:39)
-03. Dang Thang (3:16)
-04. Funky Fox (5:00)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532B7C157EC4744FD546B27810E563FA637992BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733134   (107308) от 28.06.2024
-
-Laurindo Almeida & Charlie Byrd - Brazilian Soul (1980) 2002, Victor [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carioca [3:49]
-02. Naquele Tempo [3:42]
-03. Cochichando [2:41]
-04. Luperce [2:53](   Читать дальше...   )Жанр: Brazilian Jazz, Guitar JazzПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF0CE5F0C7C64C5CC7CE8F4F9597CBC0337482D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733226   (107307) от 28.06.2024
-
-Nathan Mitchell - Gentle and Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gentle and Smooth (4:15)
-02. Just Coolin' (4:35)
-03. Smack Dat! (4:26)
-04. Queen (4:04)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3560B4409A7537C1237E8E97057E693F42B57E
 ```
 
 https://mybot314.ru/tekegram_catalog/

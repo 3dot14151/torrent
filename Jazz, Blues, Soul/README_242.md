@@ -1,3 +1,177 @@
+###  Публикация: 1152264   (567505) от 22.07.2017
+
+Yusef Lateef - The Golden Flute (1966) 2004, Universal [APE|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road runner [04:48]
+02. Straighten up and fly right [03:29]
+03. Oasis [04:27]
+04. (I don't stand) A ghost of a chance with you [04:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994DE713EF61FE5B1DAA2FB2D1C21D210B699F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152247   (567503) от 22.07.2017
+
+Shirley Scott - Blue Seven (1961) 2000, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Seven [06:51]
+02. How Sweet [07:40]
+03. Don't Worry 'Bout it Baby, Here I Am [06:46]
+04. Nancy (With The Laughing Face) [05:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4014693C96AA2D84C6F8F9971778FA12A1CF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555661   (567491) от 05.06.2022
+
+Maynard Ferguson - The Complete Roulette Recordings Of The Maynard Ferguson Orchestra (1958 - 1961) 10CD, 1994, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567491.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. And We Listened [5:45]
+02. The Fugue [3:28]
+03. Humbug [3:31](   Читать дальше...   )Жанр: Bop, Hard Bop, Big BandПродолжительность: 09:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE9B9D6F96AE0B91E31E0FC4DD3C9E1BCFEDD75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044390   (567464) от 19.08.2016
+
+Jimmy Burns - Back To The Delta (2003) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To The Delta    04:13
+02. Stop The Train    04:56
+03. Red Hot Mama   03:54
+04. Stranded In Clarksdale    04:04(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:20.61
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452BCFE4E3D4174B1798CB97DA27756A32012CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044394   (567462) от 19.08.2016
+
+Jimmy Burns - It Ain't Right (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Money Problem (3:30)
+02. Will I Ever Find Somebody (4:01)
+03. Snaggletooth Mule (3:59)
+04. Long As You're Mine (3:51)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C226D3DE8BFED70B843F5D7D99B1A31EF8919F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304051   (567452) от 24.05.2019
+
+Rymden - Reflections & Odysseys (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Trio>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflections (1:10)
+02. The Odyssey (6:03)
+03. The Peacemaker (0:38)
+04. Pitter-Patter (5:15)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano TrioПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E87693D2DA3431104C3471841EDC35A33ED50D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304107   (567446) от 24.05.2019
 
 Jimmy Smith - 5 Original Albums (1959 - 1965) 5CD, Universal, 2018 [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Organ Jazz>
@@ -597,180 +771,6 @@ Teddy Wilson - Stomping At The Savoy (1969 - 1971) 1991, Black Lion [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE82E0A4FB66B756C5AA01E9FB257D45692A4D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152664   (565795) от 23.07.2017
-
-Lisa Casalino - Introducing Lisa Casalino (2011) Lisa Casalino Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'S Wonderful [03:11]
-02. The Good Stuff [04:48]
-03. Break a Leg [04:21]
-04. Easy Street [04:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DB89E21BAA8F4A0F7AF1F0A2AAEE31B08A36DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044508   (565656) от 20.08.2016
-
-Phil Woods And His European Rhythm Machine - At The Frankfurt Jazz Festival (1970) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Freedom Jazz Dance [11:53]
- 02.Ode A Jean-Louis [14:45]
- 03.Josua [13:51]
- 04.The Meeting [11:13]Жанр: Post-BopПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8458A880163B00311A0DF5993952E0F5968C0F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044497   (565652) от 20.08.2016
-
-Charles Lloyd - Manhattan Stories (1965) 2CD, 2014, Resonance Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565652.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Sweet Georgia Bright [17:50]
-02.How Can I Tell You [11:56]
-03.Lady Gabor [12:52]Жанр: Hard Bop, Post-BopПродолжительность: 01:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A68C577CEC18FBAAC7F7F985246776AD4DB11E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304304   (565562) от 25.05.2019
-
-Christian McBride - Christian McBride's New Jawn (2018) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkin’ Funny [2:49]
-02. Ke-Kelli Sketch [9:55]
-03. Ballad of Ernie Washington [5:34]
-04. The Middle Man [5:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA42B2E9D6544AEAD595AF2BE2C79D29204CCA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555910   (565520) от 06.06.2022
-
-Buddy DeFranco (De Franco) - Charlie Cat 2 (2007) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie Cat II [7:53]
-02. All My Life [4:57]
-03. By Myself [5:39]
-04. Walk This Way [5:17](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAEFFE0DD0AB7F8133A55A7BB1CFB352D82B14F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044521   (565503) от 20.08.2016
-
-Studebaker John And The Hawks - Eternity's Descent (2016) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Same As Mine (04:49)
-02. Up And Down The Line Again (05:37)
-03. Not To Be Like You (04:26)
-04. Hold Me Down (05:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795D4A3BC398B41DA80842D4FE92E3564FE8A114
 ```
 
 https://mybot314.ru/tekegram_catalog/

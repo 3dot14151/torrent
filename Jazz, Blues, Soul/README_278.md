@@ -1,3 +1,182 @@
+###  Публикация: 1055814   (485989) от 23.09.2016
+
+Marc Antoine - Laguna Beach (2016) [MP3|320 Kbps] <Smooth Jazz, Acoustic, Guitar>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Antoine Feat. Philippe Saisse - Why Not 03:25
+02. Marc Antoine Feat. Paul Brown - This And That 03:27
+03. Marc Antoine - Laguna Beach 03:45
+04. Marc Antoine Feat. Tim Welvaars - Deixa 03:55(   Читать дальше...   )Жанр: Smooth Jazz, Acoustic, GuitarПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7584270A29EE61AD6154DFFBCA6500E16C848F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405220   (485839) от 29.08.2020
+
+Bunny Berigan - A Melody from the Sky (1932 - 1940) 2003, Jazz Legends [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Loves My Baby [2:22]
+02. Santa Claus Came in the Spring [3:07]
+03. You Took Advantage of Me [3:27]
+04. I'm Coming Virginia [2:46](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DACAE57B1215961117DD5C1DF4127B790B0469A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405217   (485838) от 29.08.2020
+
+George Cables - Why Not (1975) 2009, Candid [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ebony Moonbeams [10:38]
+02. Rita I and II - Her Spirit/Her Soul [11:58]
+03. Dark Side-Light Side (Yuh's Blues) [9:03]
+04. Quiet Fire [9:52](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844A1B08F3B54820C5F6A235D852C84F2FAD4F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405215   (485835) от 29.08.2020
+
+Quincy Jones - Stockholm Sweetnin' (1953) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stockholm Sweetnin' [5:31]
+02. 'Seuse These Blues [4:29]
+03. Falling In Love With Love [5:25]
+04. Lover Come Back To Me [5:24](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, CoolПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D50660F55AB19B6DDBC3C88ACA17A81384025C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055600   (485784) от 23.09.2016
+
+VA - The Excello Blues Story (2015) 2CD [MP3|320 Kbps] <Funk , Soul, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485784.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lightnin' Slim - I'm A Rollin' Stone (2:28)
+02. Slim Harpo - Buzz Me Babe (2:16)
+03. Roscoe Shelton - Let Me Believe In You (2:19)Жанр: Funk , Soul, BluesПродолжительность: 01:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CA8CEBFE03F66FD0A36F58EB68989A0DBB3FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544157   (485264) от 10.09.2012
+
+Blues Trio - This Train (1994) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Train/My Babe
+02. Big Mama Boogie
+03. Belgrade Blues
+04. Mama Keep Your Big Mouth Shut
+05. Walk On
+06. Custard Pie
+07. 900 Miles From My Home
+08. Joe's Run
+09. Room To MoveЖанр: BluesПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 700138   (484920) от 14.09.2013
 
 Katie Melua - Ketevan (2013) [FLAC|Lossless]<Pop-Jazz, Vocal Jazz>
@@ -577,209 +756,6 @@ Bobby Rush - Rawer Than Raw (2020) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C0D5E01C775B9DCFC96A0FB82730F60E04BF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405653   (483373) от 30.08.2020
-
-Walter Trout - Ordinary Madness (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ordinary Madness (06:46)
- 02. Wanna Dance (04:30)
- 03. My Foolish Pride (05:55)
- 04. Heartland (04:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A323CA59109967DE4DD317B9868A6B61422CC32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545731   (483342) от 11.09.2012
-
-Bo Wilson Band - Magic Man (1996) [APE|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Man
-02. Chevrolet
-03. I’m Tore Down
-04. Trick Bag
-05. Boogie Man
-06. Stormy Monday
-07. Don’t Take Advantage Of Me
-08. Statesboro Blues
-09. Shake The Room
-10. If You Have To Know(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545681   (483338) от 11.09.2012
-
-BlueShot - Crack the Seal (2006) [APE|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land of the Tall (Intro)
-02. It's so easy
-03. Train gone blues
-04. Hey baby (naked love)
-05. Crossroads (acustic)
-06. Crossroads
-07. Break down
-08. Indian blues
-09. Save me
-10. Home(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545442   (483125) от 11.09.2012
-
-Bobby Hutcherson - Wise One (2009) [FLAC|Lossless]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бобби Хатчерсон (Bobby Hutcherson, род. 27.01.1941, Лос-Анджелес) - американский джазовый вибрафонист. Рос в Пасадене (Калифорния), с 8 лет играл на фортеапино. Перешел на вибрафон, услышав записи Милта Джексона. Учился у Дэйва Пайка, подрабатывая в местных клубах. Стал известным после записи с Эриком Долфи (Out To Lunch, 1964).01. Wise One :: 07:52
-02. Like Sonny :: 05:50
-03. Aisha :: 05:10
-04. Equinox :: 05:30
-05. All Or Nothing At All :: 06:58
-06. Nancy (With The Laughing Face) :: 04:36
-07. Spiritual :: 06:42
-08. Out Of This World :: 06:17
-09. Dear Lord :: 04:59Жанр: Jazz, Post-BopФормат: CD, AlbumПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545719   (483123) от 11.09.2012
-
-Bo Weavil - Split-Up Blues (2009) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mighty Long Time
-02. Home Sweet Home
-03. Keep On Puffin'
-04. Harmonica Stomp
-05. Goodbye Baby
-06. The End Of A Story
-07. You Gotta Move Away
-08. Zydeco Slide
-09. The Key To Yo' Door
-10. Can't Find No Way(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545759   (483122) от 11.09.2012
-
-Bob Brozman and His Thieves of Sleep - Blues 'Round the Bend (1995) [FLAC|Lossless]<Blues, World Music>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green River Blues
-02. Dream About My Gal
-03. Obvious Blues
-04. Black Stone Blues
-05. Devil Got My Woman
-06. Poor But Ambitious
-07. Music For Slow Surfers
-08. Bird Nest Bound
-09. Oua, Oua--A Hawaiian Chant
-10. Pony Blues(   Читать дальше...   )Жанр: Blues, World MusicПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

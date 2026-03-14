@@ -1,3 +1,29 @@
+###  Публикация: 1031700   (651123) от 04.07.2016
+
+Проекты - VideoHive - Clean Logo Reveal v2 - 16270076 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clean Logo Reveal v2 - простая, чистая графика движения, дающая наибольшее воздействие на внимание вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB44FC8B3B6DA1F72121D261DA829606ACA2A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031654   (651119) от 04.07.2016
 
 Проекты - VideoHive - Parallax Slideshow - 16500895 [AEP]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E068FF19619F95B95EE43F8718940D75BA73CB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903811   (650713) от 05.06.2015
-
-Проекты - VideoHive - Easter Greetings - 10872636 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект пасхальные яйца. Проект предназначен для редактирования в АЕ.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26386E1169FCDBD362D200FEBF03E11860360FFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

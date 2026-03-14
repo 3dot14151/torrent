@@ -1,3 +1,32 @@
+###  Публикация: 1375991   (861618) от 16.04.2020
+
+Dire Straits - 100% Dire Straits (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sultans Of Swing (Live At The Royal Albert Hall)
+02. Brothers in Arms
+03. Walk of life
+04. Calling Elvis(   Читать дальше...   )Жанр: RockПродолжительность: 02:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3B044E7DF38B6861E990054AD2E78B41AC4D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874850   (861196) от 04.03.2015
 
 VA - Alterportal HITS 15 Vol. 78 - February (2015)  [MP3|128-320 кб/с]<Alternative, Metal, Rock>
@@ -713,35 +742,6 @@ John Lennon - 100% John Lennon (2020) 2CD [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DDB631C3F77EA49018F6E9C49B480D17B44277E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377653   (851499) от 22.04.2020
-
-Megadeth - 100% Megadeth (2020) [MP3|320 Kbps] <Rock, Trash Metal, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Wars...The Punishment Due (Remastered 2004)
-02. Hangar 18 (Remastered 2004)
-03. A Tout Le Monde (Remastered 2004)
-04. Dystopia(   Читать дальше...   )Жанр: Rock, Trash Metal, MetalПродолжительность: 02:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE74251BDFD02FC785F015A742BE6D8F1DA2818A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1578330   (345836) от 23.09.2022
+
+Аборт Мозга (Brain Abortion) - 2 Albums (2022) [MP3|320 Kbps] <Hardcore Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Да, Звезда! [00:02:51]
+02. Бог со знаком минус [00:02:52]
+03. Брат и Сестра [00:01:47]
+04. Попугайчик [00:02:58](   Читать дальше...   )Жанр: Hardcore Punk RockПродолжительность: 2 CD, 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937D84FECB9AE847B94BB346D5C81E4D901CEFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578551   (345695) от 23.09.2022
+
+Магелланово Облако - Духовный Бедуин (2022) Deluxe Version [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345695.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Духовный Бедуин (Intro)
+2. Аксиома (Комментарий)
+3. Аксиома
+4. Дом Огня (Комментарий)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB28F6E2C7DBEAF5CDDA4E0FCCC3CBF4622C2F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330056   (345615) от 08.10.2019
+
+Ботаника - Эй (2019) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345615.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Эхрусьмать
+2. Мистер рейв
+3. Боевик
+4. Мы тонем(   Читать дальше...   )Жанр: RockПродолжительность: 00:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB6CF98093C6D352500B8484ECC02635F263BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257393   (345485) от 26.10.2018
 
 Звери - 10 (2018) EP [MP3|320 Kbps] <Pop Rock>
@@ -663,92 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1698A7DA0C500F2417B5C3A396D03FD10CABC8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579502   (336406) от 27.09.2022
-
-Павел Пиковский - одна дорога - свет (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336406.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. одна дорога — свет
-2. яблоня
-3. фифти-фифти
-4. лазарь(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A913AD69A45D953286D7F23271E4BDB0960D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074994   (335832) от 20.11.2016
-
-Слот - Круги на воде (2016) Single [MP3|320 Kbps] <Alternative Rock, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335832.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Круги на воде
-2. Круги на воде (с квартетом 'Глобалис')
-3. Круги на воде (Instrumental)Жанр: Alternative Rock, Nu MetalПродолжительность: 00:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65ECE1750E5401F11888F244F5FA9F786CF4AFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419893   (335744) от 30.10.2020
-
-СтимфониЯ - Весёлые истории смутного времени (2020) [MP3|320 Kbps] <NeoDecadence, Steampunk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335744.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Колыбельная
-2. Белая кровь инквизиции
-3. Тайна
-4. Ванильная хрень(   Читать дальше...   )Жанр: NeoDecadence, Steampunk, RockПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702D9A7C833D858E2BB994D2FF6812CA0716FAE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,188 @@
+###  Публикация: 390809   (446661) от 22.09.2011
+
+Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес (2011) HDTVRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D6EF8360E953AF7C9E6C62AF3BC0820146EB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552688   (446413) от 27.09.2012
+
+Barillo - Dust (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3284B7ACEFBFD2B12301C91AE02C3208F78FE8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553018   (446222) от 27.09.2012
+
+KooFee feat. Manu Blanco - El Culito (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F031211E2AB7E8D94BEAE1982DB6A21B7FDF1456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553019   (446087) от 27.09.2012
+
+Sandra Afrika - Neko ce mi nocas napraviti sina (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA4FA48620A6AC17FBBB2049B8BD9D893094716E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552689   (445770) от 27.09.2012
+
+Lindsey Stirling - Elements  (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F40B0B5C6BE4DA9C8C6DA52BFB1225C4087A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552894   (445677) от 27.09.2012
+
+Свит / The Sweet-Video Collection 1971-1980 (2CD) (2008) VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445677.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом видео наиболее полная видео коллекция The Sweet -кумиров 70х (видео и звук разный по качеству (разных лет съемки) но в основном все достойно.)Жанр: Музыка, Glam RockПеревод: ОтсутствуетПродолжительность: 01:08:02+01:14:42.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC4C4FCD8354363394909911BAA79E1775CB5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943852   (444752) от 05.10.2015
+
+VA - Осенний марафон № 195 / Видеоклипы (Зарубежный Хит Парад) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (04.10.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A. Rose Jackson - Lover's Collide (Official Video) (00:02:50)
+2. Ailee - Mind Your Own Business (Official Video) (00:04:20)
+3. Alex Adair - Heaven (Official Video) (00:03:07)
+4. Amfree - The Sweetest Symphony (Official Video) (00:03:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, Indie, RockПродолжительность: 01:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC266122BC11B7D4446EBB9AA962E28AF45D6D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 706263   (444038) от 02.10.2013
 
 Сборник клипов - VA - Various Music part. 46 (2013) WEBRip 720p, 1080p
@@ -530,198 +715,6 @@ VA - Осенний марафон № 196 / Видеоклипы (Коктей�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D323B48B623151F2B06F78E0E2536FD818847A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556781   (424788) от 06.10.2012
-
-Zaira - Mi vida (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7552A77EAA2BE442B4200C853FFE0F1FA99E9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557220   (418823) от 08.10.2012
-
-Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD) (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418823.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента выхода одного из самых успешных соло синглов солиста легендарной группы Queen, Фредди Меркьюри (Freddie Mercury), прошло более 25 лет, но тем не менее альбом «Barcelona» не теряет своей популярности, и вот уже совсем скоро выходит новая специальная орекстровая версия этого легендарного альбома.
-
-Напомним, что сингл Barcelona записан совместно с легендарой (   Читать дальше...   )1. Barcelona - Ku Club Ibiza performance
-2. Barcelona - La Nit performance
-3. How Can I Go On - La Nit performance
-4. The Golden Boy - La Nit performance(   Читать дальше...   )Жанр: Classic Rock / OperaПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEF2A8F5011DE222C3C6B163DF069CA3F5D0B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064618   (418459) от 23.10.2016
-
-The Weeknd - False Alarm (2016) WEB-DL [MPEG-4/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Режиссер российско-американского фильма «Хардкор» Илья Найшуллер снял клип для канадского певца The Weeknd.
-Россиянин Илья Найшуллер прославился вирусными музыкальными видео своей группы Biting Elbows, а в 2016 году под опекой Тимура Бекмамбетова дебютировал в Голливуде фильмом «Хардкор» — боевиком, снятым целиком от первого лица. В «False Alarm» использован ровно (   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB40BEE5A24996B93492349ED4DDCFD9C653D73A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456061   (416154) от 09.10.2012
-
-Любэ, Корни, In2Natiоn - Просто Любовь (2012) HDTVRip [720p] [hand made 60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный соундтрек к фильму "Август. Восьмого"Жанр: Фолк-рокРежиссер: Д.Киселев   (С) 2012 ООО Продюсерский центр И.МатвиенкоАктеры: Любэ, Корни, In2Natiоn (Интонация) и актёры фильма "Август. Восьмого"Перевод: ОтсутствуетПродолжительность: 03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8936C61D714FECAF1738F6D44820B6EF5BBA65B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412526   (413464) от 01.10.2020
-
-Nuclear Power Trio - A Clear and Present Rager (2020) WEB-DL[H.264/1080p-LQ] <Instrumental Moden Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьерный 29.09.2020 релиз видеоклипа от виртуозов Instrumental Moden Metal "Nuclear Power Trio"
-В ролик инсталлирован аудиотрек данного релиза 24-Bit / 48.0 kHzПроизводство: Metal Blade Records / The Orchard MusicЖанр: Instrumental Moden MetalАктеры: Nuclear Power TrioПродолжительность: 00:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3981A5FA6156711A3FC93FA838895643BB82A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947680   (411098) от 20.10.2015
-
-VA - Осенний марафон № 198 / Видеоклипы (Лучшая Дискотека  Россыпью) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (17.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. AOA - Oh Boy (Official Video) (00:04:25)
-02. Bielfield - Frequency (Official Video) (00:03:21)
-03. Corina Smith - La Difícil (Official Video) (00:03:16)
-04. Danielle Bradbery - Friend Zone (Official Video) (00:02:59)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Soul, DubstepПродолжительность: 01:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4903100F533A3FF55E533127203DAF552F612A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559270   (409693) от 12.10.2012
-
-Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: AlternativeПродолжительность: 00:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C6AF648336ADEE814BD995A2F102492D6D906C
 ```
 
 https://mybot314.ru/tekegram_catalog/

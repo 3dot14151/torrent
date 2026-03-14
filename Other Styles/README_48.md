@@ -1,3 +1,148 @@
+###  Публикация: 1390677   (782694) от 16.06.2020
+
+The Byrds - Sweetheart Of The Rodeo (1968) Remastered 1997 [FLAC|Lossless|tracks + .cue] <Folk Rock, Country Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Ain't Going Nowhere (2:36)
+02. I Am A Pilgrim (3:41)
+03. The Christian Life (2:32)
+04. You Don't Miss Your Water (3:50)(   Читать дальше...   )Жанр: Folk Rock, Country RockПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5081507E256D1E395FDAF010760C23A627AD664F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390331   (782686) от 16.06.2020
+
+John Martyn - One World (1977) CD album, Reissue 1990 [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dealer (4:59)
+02. One World (4:10)
+03. Smiling Stranger (3:30)
+04. Big Muff (6:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C401800900FA31FDAE4E9733BED257631DD7DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390696   (782673) от 16.06.2020
+
+Johnny Cash - Johnny Cash At San Quentin (1969) [FLAC|Lossless|tracks + .cue] <Rock,  Country Rock, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big River (1:56)
+02. I Still Miss Someone (1:52)
+03. Wreck Of The Old 97 (2:05)
+04. I Walk The Line (3:29)(   Читать дальше...   )Жанр: Rock,  Country Rock, FolkПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9815A224C485AC5C83D7A49C5EC20D032BFE561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390760   (782253) от 17.06.2020
+
+Robert Wyatt - EPs (1974-1978) 1999 Box Set 5 CD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Уайатт (англ. Robert Wyatt; 28 января 1945, Бристоль) — британский музыкант, один из создателей влиятельной в прогрессивном роке группы Soft Machine. Женат на английской художнице и авторе песен Альфреде Бенж.01. Was a Friend (5:48)
+02. Maryan (6:46)
+03. A Sunday In Madrid (6:58)
+04. Free Will and Testament (4:33)Жанр: Jazz, Folk, World, & CountryПродолжительность: 00:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43DE6C0F10792791C640F8A64A7A8C0D4998697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205303   (782053) от 14.02.2018
+
+Justin Johnson - Turquoise Trail: Soundtrack for a Western (2017) 2CD [MP3|320 Kbps] <Western, Bluegrass, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782053.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Turquoise Trail
+02. Black Heart of Gold
+03. Pistolero(   Читать дальше...   )Жанр: Western, Bluegrass, FolkПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC78F44E49625760960178C7CAB8559E7F3B3BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390882   (781881) от 18.06.2020
 
 Tim Buckley - Discography (1966-2001) [FLAC|Lossless|tracks + .cue] <Folk>
@@ -597,151 +742,6 @@ Ludwig Goransson - Black Panther / Чёрная пантера (Original Motion 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B386E49946407D2CAC2A9FD5CE600852152D165B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210044   (778987) от 01.03.2018
-
-David Arkenstone - Parisian Lounge (2018) [MP3|320 Kbps] <New Age, Chillout, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Garden Of Eve (4:27)
-02. Last Tango In Paris (4:09)
-03. Fashion Week (4:33)
-04. Gnossiennes No. 1 (4:31)(   Читать дальше...   )Жанр: New Age, Chillout, LoungeПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1026EB0D724F4182BD38441EB71626DC1071FC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209860   (778944) от 01.03.2018
-
-Ludwig Goransson - Чёрная пантера / Black Panther (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wakanda Origins (01:44)
-02. Royal Talon Fighter (04:01)
-03. Wakanda (02:20)
-04. Warrior Falls (04:07)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E00662D5BDE3C9EA40A26C213C7EA797B3C911F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210093   (778855) от 02.03.2018
-
-Lyn Avenue - Never Been to Nashville (2018) EP [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Never Been To Nashville (4:13)
-02 - Kentucky Bourbon (2:49)
-03 - Everyday Guardian Angel (4:32)
-04 - Whatever It Takes (To Bring Me Back To You) (3:38)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:23:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5D8C544E6E498959E91F4AC4B14DB1D0BE879A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210501   (778728) от 03.03.2018
-
-Hennie Bekker - Temba (1995) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. The Heart Of Africa 6:00
-02. Mystical Mother 5:11
-03. Kango Echoes 6:15
-04. Earthchild 5:35(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B198E03C633F1CBF250FE4A0E8A8E69DCF41D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210505   (778721) от 03.03.2018
-
-Hennie Bekker - Kusasa (1999) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Kikuyu Love Song 5:37
-02. Shumbahle 5:20
-03. Dance of Love 5:19
-04. Hills of Halali 5:54(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE68841081424E8F06C3AD782D9051FA389BDD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

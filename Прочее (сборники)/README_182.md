@@ -1,3 +1,32 @@
+###  Публикация: 1722623   (56584) от 14.05.2024
+
+VA - РАДИО БАТЯ - 004 (2024) [MP3|320 Kbps] <Different genres>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56584.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:16] 01. Modern Heroes - Moment Of Love
+[4:04] 02. Комиссар - Эти глаза
+[3:57] 03. Евгений Осин - Не верю
+[3:45] 04. Bad Boys Blue - Sooner or Later(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80A7494C33CA2604B4DDC826E37ED615F4ECFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723937   (56234) от 17.05.2024
 
 VA - Music News vol.377 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - То, что доктор прописал Remix NNM (2024) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A884571B8D16D9A81B09693F33704EB459B9D19E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730960   (52897) от 18.06.2024
-
-VA - Music News vol.390 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Воровайки - Новое Поколение (03:18)
- 002. Alex Mica - Be A Trice (03:27)
- 003. Aneya - А Ты Все Тот Же Странник (04:36)
- 004. ANFiLL feat. SOUZNIY & The Mate - Секрет (02:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37EA572FB89ECB4801367030C4813DC5F2722981
 ```
 
 https://mybot314.ru/tekegram_catalog/

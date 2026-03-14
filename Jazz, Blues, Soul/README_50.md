@@ -1,3 +1,61 @@
+###  Публикация: 971773   (984769) от 04.01.2016
+
+Zoot Sims - Waiting Game (1966) Remaster, 2015, Universal[FLAC|tracks+.cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Old Folks [04:55]
+ 02.I Wish I Knew [04:14]
+ 03.Once We Loved [02:49]
+ 04.It's A Blue World [03:50](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF013C472F95C1A4F3DE6BB846CD5A0E3AD14B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971579   (984695) от 04.01.2016
+
+Stefano Battaglia Trio - In The Morning: Music of Alec Wilder (2015) ECM[FLAC|tracks+.cue] <Post Bop, Modern Jazz, Modern Creative, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In The Morning [11:57]
+ 02.River Run [13:18]
+ 03.Moon And Sand [06:42]
+ 04.When I Am Dead My Dearest [04:03](   Читать дальше...   )Жанр: Post Bop, Modern Jazz, Modern Creative, Piano JazzПродолжительность: 01:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B47AC05FE76CF8D1C6028D3F7E5C44AF5E9C88D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971668   (984692) от 04.01.2016
 
 Harry Allen - For George, Cole and Duke (2014) Blue Heron Records[FLAC|tracks+.cue] <Mainstream Jazz>
@@ -721,68 +779,6 @@ Love Food - Sensual Soft Jazz (2011) [MP3|320 кб/с]<Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84685AE576C1D4D2AE21767F685290E2BCF4E576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614496   (981513) от 05.02.2013
-
-Jimmy Smith - Jazz Inspiration (2012) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981513.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Sermon [20:10]
-2. Fungii Mama [4:53]
-3. When Johnny Comes Marching Home [7:56]
-4. Jumpin' The Blues [5:26]
-5. Back At The Chicken Shack [7:59]
-6. The Champ [8:36]
-7. All Day Long [10:29]
-8. See See Rider [6:33]Жанр: JazzПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52507D2E27002AB22052100242D6CD017524E212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355840   (981213) от 28.01.2020
-
-Bruce Ackley Trio - The Hearing (1998) Avant [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of the Box [3:15]
-02. 1, 2, Radical 3 [6:25]
-03. Juggernaut [5:15]
-04. Mr. Mood [6:58](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD0E258944CA892994D55367660D93CDD00BD80
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1288140   (697766) от 10.03.2019
+
+Pam Tillis - Homeward Looking Angel (1992) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697766.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	How Gone Is Goodbye 	3:15
+2 	Shake The Sugar Tree 	3:09
+3 	Do You Know Where Your Man Is 	3:46
+4 	Cleopatra, Queen Of Denial 	3:12(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8920FEFA2BD2335C89DB4242852CAE6E62DDEACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287946   (697761) от 10.03.2019
+
+Cris Velasco - Clive Barker's Jericho (2007) Soundtrack [MP3|~245 Kbps (V0)] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Веласко хорошо известен по его совместными саундтреками с Сашей Дикисияном, например Dark Messiah, John Woo's Stranglehold, Hellgate: London и многими другими. Но когда у Криса подворачивается возможность написать что-либо без своего лучшего друга, он пытается воспользоваться ею сполна (правда, всё равно приходится просить его о помощи). Самостоятельно он написал (   Читать дальше...   )1. Legend of the Firstborn (1:57)
+2. The Coloseum (2:55)
+3. Lichthammer (1:50)
+4. Path of the Righteous (2:19)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75E737FFDDFD727EB7564C784B0F89F819C364D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025747   (697694) от 18.06.2016
+
+OST - Mick Gordon - DOOM (2016) [MP3|320 кб/с] <Electronic / Progressive Metal>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697694.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Main Menu (05:05)
+02. You Will Be Worse (05:15)
+03. The Beginning (07:40)(   Читать дальше...   )Жанр: Electronic / Progressive MetalПродолжительность: 05:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E87C6BE7954A4749352712D37FE98C41E888F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132887   (696991) от 11.05.2017
+
+Peru - Constellations (1989) [FLAC|Lossless|tracks + .cue] <New Age, Synth-pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of Time  (09:05) 
+02. Utopie  (12:58) 
+03. Deja Vu  (07:21) 
+04. Constellations  (04:49) (   Читать дальше...   )Жанр: New Age, Synth-popПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF285F95A3C80E5E43C03D919501AB9CD51A0AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133097   (696942) от 11.05.2017
+
+Parijat - Blessings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise
+02. All Is Well
+03. I Hold You When You Fall
+04. The Heart Is a Resting Place(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3B98262CF4D2E8651C9D81210569BFE474F962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133169   (696931) от 11.05.2017
 
 Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -603,151 +748,6 @@ Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4154764632BE58EDD4AF5ABACB35180B625C5C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028206   (692960) от 21.06.2016
-
-Jupiter Panic - Distant Tomorrow (2016) [MP3|320 кб/с] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distant Tomorrow Part 1
-02. Distant Tomorrow Part 2
-03. Descension
-04. Anti-Gravity(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19563F5FF36B82E55A07B5C646BEE6619C3E2906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027967   (692757) от 21.06.2016
-
-Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vietnam War IV (01:41)
-02. Trials of the Blood Dragon (03:37)
-03. Bullet Proof (01:51)
-04. Punch! (02:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5778E878E013AE1F84588F108EF4562F755BDEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851794   (692081) от 19.08.2020
-
-Inkuyo - Window to the Andes (1998) [FLAC|Lossless|image + .cue] <New Age, Folk, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692081.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Cumbres Andinas (Andean Peaks)	4:19
-2.	En Solidaridad (In Solidarity)	5:32
-3.	Brisca Tropical (Tropical Breeze)	3:56
-4.	Huari Vicuna (Wild Vicuna)	3:08(   Читать дальше...   )Жанр: New Age, Folk, WorldПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB0741F796A07CE54BD08F589B7F7044BE998BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215845   (691919) от 19.08.2020
-
-VA - Beautiful Moments (1991, 1994) 2 CD [APE|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1991 -  Beautiful Moment
-01. Leif Strand - Taurus    		(04:37)
-02. Kit Watkins - Moon Watching Me    	(03:30)
-03. Quiet Force - Listen To The Music   (04:15)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063693CCBA35BCAB211422F4B5892F946ADB6900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332190   (691821) от 08.05.2011
-
-OST Лара Крофт: Расхитительница гробниц 2 - Колыбель жизни / Lara Croft Tomb Raider: The Cradle of Life  [MP3|320 Кбит/сек]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davey Brothers - Heart Go Faster (3:31)
-02. Filter - The Only Way (Is The Wrong Way) (5:15)
-03. Alexandra Slate - Bad Girl (3:35)
-04. P.O.D. - Satellite (Oakenfold Mix) (4:52)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79523775D98041DAF050792D56C4EB18C6A353A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1806037   (11958) от 10.07.2025
-
-Промты - SevenUnited LLC - 412 Midjourney Prompts for Portrait Photography - 4832212 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет из 412 настраиваемых промтов Midjourney для портретной фотосъемки.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BABC5AEFFA011A0F87847E998402C680CB0439A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806148   (11946) от 10.07.2025
 
 Обои - Eternal Mix Wallpapers Part 63 [JPG]
@@ -677,6 +651,32 @@ GlowUp — лучший премиум-пакет 3D-иконок LED-Dark Techn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5897025119FE73F513C655A45A554A907CEDB07D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808215   (10586) от 23.07.2025
+
+Промты - SevenUnited LLC - 402 Ai Art Prompts Environments - 5776902 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 402 промтов с изображением ИИ для локаций. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90C285F8FE95ECC4CC958CAB9DE787C83D54292
 ```
 
 https://mybot314.ru/tekegram_catalog/

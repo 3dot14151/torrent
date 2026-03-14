@@ -1,3 +1,61 @@
+###  Публикация: 1616275   (1036411) от 02.03.2023
+
+Erotica - Nymphomania (2022) [FLAC|Lossless|tracks] <Jazz, Instrumental, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexual Piano (2:44)
+02. Eden of Love (2:41)
+03. Perfect Ceremony (2:26)
+04. Day to Remember (2:32)(   Читать дальше...   )Жанр: Jazz, Instrumental, Easy ListeningПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94391D127D79186AE469A5357A601CFEC893999B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442703   (1036362) от 26.01.2021
+
+Buddy De Franco (DeFranco) - Four Classic Albums Plus (1952 - 1954) 2014, 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036362.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Gone with the Wind [2:53]
+02. Sweet Georgia Brown [2:50]
+03. Street of Dreams [2:42](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE1E740AE716B4B3D5DF1B813983A5AE04F8179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442757   (1036357) от 26.01.2021
 
 Jimmie Lunceford And His Harlem Express - Wham (2005) [FLAC|Lossless|image + .cue] <Swing, Big Band>
@@ -687,64 +745,6 @@ Kenny Barron - Other Places (1993) Gitanes Jazz [FLAC|Lossless|image + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C07154FBB803C87D398E43589DE34C5B3E4DE829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617352   (1035332) от 06.03.2023
-
-Dinah Washington - The Great Dinah Washington (1993) Goldies [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mad About the Boy [2:50]
-02. Baby (You've Got What It Takes) (with Brook Benton) [2:46]
-03. It Could Happen to You [2:21]
-04. A Rockin' Good Way (To Mess Around and Fall in Love) (with Brook Benton) [2:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1E111991EFD0079CB90BD9FBD42407F2A15550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617423   (1035320) от 06.03.2023
-
-Marchio Bossa - I asked for you (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Asked For You (feat. RYU ZEE SU)
-02. Just A Dream With You (feat. RYU ZEE SU)
-03. Secret Love Affair (feat. RYU ZEE SU)
-04. Dernier Métro (feat. RYU ZEE SU)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205545901E1783E7C7BA0631BDE5B9D570EEA4E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

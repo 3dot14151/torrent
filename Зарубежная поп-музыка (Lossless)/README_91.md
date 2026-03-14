@@ -1,3 +1,148 @@
+###  Публикация: 1788342   (68537) от 30.03.2025
+
+Meghan Trainor - Title (2015) 10th Anniversary Edition, 2025, Epic Records [FLAC|Lossless|WEB-DL|tracks] <Europop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Part (Interlude) [00:00:24]
+02. All About That Bass [00:03:07]
+03. Dear Future Husband [00:03:04]
+04. Close Your Eyes [00:03:40](   Читать дальше...   )Жанр: Europop, Funk, SoulПродолжительность: 01:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009685962FE5CA7BBF572F24BF32E7323C83910E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791278   (67832) от 13.04.2025
+
+Mark Ambor - Rockwood (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rockwood [1:01]
+02 - Good To Be [2:28]
+03 - Academy Street [2:51]
+04 - Belong Together [2:29](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497E802897E487A5C3603D85544A8FAA3D92FBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793318   (67509) от 24.04.2025
+
+The Fleetwoods - Mr. Blue (1959) Expanded Edition, 2025, CAPITOL CATALOG MKT (C92)[FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confidential [00:02:21]
+02. The Three Caballeros [00:02:23]
+03. Raindrops, Teardrops [00:02:32]
+04. You Mean Everything To Me [00:02:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57308115841D5E6395C71269A4F7ACB1E861938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794173   (67330) от 28.04.2025
+
+VA - Dance Classics - Pop Edition Vol. 1-3 (2009-2010) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - My Name Is Not Susan (Extended) (6:20)
+02. Terence Trent D'Arby - Dance Little Sister (Shep Pettibone Mix) (8:40)
+03. Robert Palmer - You Are In My System (Extended) (6:02)
+04. Dan Hartman - We Are The Young (Extended) (6:56)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, DanceПродолжительность: ~06:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC9B585811CD55D223B38E01C3DA75278692DD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794427   (67256) от 29.04.2025
+
+Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry Me a River    [0:04:14.56]
+02. All of Me    [0:03:07.64]
+03. Georgia on My Mind    [0:03:08.17]
+04. Crazy Love    [0:03:31.22](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA379758BA7C64DB79BA58FF0A2584CE1954BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794428   (67234) от 29.04.2025
 
 KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
@@ -600,151 +745,6 @@ Sirena (ex-Sister Siren) - Innocent Killah (2011) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E02074956A329893BC99A4216BB0068846797877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807981   (65073) от 22.07.2025
-
-Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch In The Night (5:20)
-02. Sib Dab Dua (3:07)
-03. Dreams (4:02)
-04. Hide Away - Man Is Comin'! (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142F90C48E32112F64262B840725AF366E0DDAE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807991   (65072) от 22.07.2025
-
-Madonna - Madonna (1983) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky Star (5:38)
-02. Borderline (5:22)
-03. Burning Up (3:46)
-04. I Know It (3:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9958801FD918C28A16F0611AB65713AB4FE3A042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807988   (65060) от 22.07.2025
-
-Black - Wonderful Life (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful Life (04:48)
-02. Everything's Coming Up Roses (04:06)
-03. Sometimes For The Asking (04:09)
-04. Finder (04:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC67BE73C321F822597C2BB720252FD735A8511D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807989   (65045) от 22.07.2025
-
-Bryan Ferry - Boys And Girls (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensation (5:05)
-02. Slave To Love (4:27)
-03. Don't Stop The Dance (4:19)
-04. A Waste Land (1:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E35676629DEB9CF7D590DC8B295CF08FF5063E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807983   (65034) от 22.07.2025
-
-Double - Blue (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman of the World (3:55)
-02. I Know a Place (3:40)
-03. The Captain of Her Heart (4:35)
-04. Your Prayer Takes Me Off (6:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F447531D3AA88EC9D48779DB45423A37FE1278
 ```
 
 https://mybot314.ru/tekegram_catalog/

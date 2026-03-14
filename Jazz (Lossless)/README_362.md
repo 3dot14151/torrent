@@ -1,3 +1,90 @@
+###  Публикация: 1344437   (39467) от 23.10.2024
+
+Sarah Vaughan - The Essential Sarah Vaughan 1958 - 1964 (1992) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misty [3:02]
+02. It Shouldn't Happen to a Dream [3:21]
+03. Make Yourself Comfortable [2:42]
+04. All of Me [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06936928FBCC7A77C73FF96EFFC19AC80F0CFA3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756611   (39461) от 23.10.2024
+
+Gene Ludwig - Pat Martino Trio - Young Guns (1968, 1969) 2014, HighNote [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Can I Turn To? [13:41]
+02. Mr. PC [8:19]
+03. Sam Sack [12:58]
+04. Watch What Happens [9:27](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27EC513152CF9DEF119F679F3232CF0359F0497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756814   (39453) от 23.10.2024
+
+Boney James - Slow Burn (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcadia (feat. Marcus Miller)
+02. Butterfly (feat. Cory Henry & Marcus Miller)
+03. Slow Burn
+04. All I Want Is You (feat. October London)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8424142853356C969D9608574BFE13496EFB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555046   (39391) от 24.10.2024
 
 Sarah Vaughan - The Divine One (1961) 2017, Hallmark [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -658,93 +745,6 @@ Charles Tolliver - The Ringer (1969) 1992, Black Lion Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B002BBD16D8144BD432802814E1B57BF5E9FFF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758757   (38283) от 04.11.2024
-
-Ray Anthony - Capitol Collectors Series (1949 - 1962) 1991, Capitol Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dreamer’s Holiday [3:11]
-02. Sentimental Me [2:51]
-03. Count Every Star [3:03]
-04. The Man With the Horn [2:31](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE107036238ECB6638B7D97C44068C0EF682B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758759   (38280) от 04.11.2024
-
-Eric Dolphy - Out To Lunch! (1964) 1985, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hat and Beard [8:28]
-02. Something Sweet, Something Tender [6:06]
-03. Gazzelloni [7:25]
-04. Out to Lunch [12:10](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Avant-Garde JazzПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964FF8348AC1839AB1F60E6CCFA5047C2B4F1C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758988   (38190) от 05.11.2024
-
-VA - Funk Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venus Ship - Tupac Amaru (4:32)
-02. Lo Greco Bros - Love and Emotion (Instrumental Funk) (6:09)
-03. The Smoke Orchestra - Funky Generation (3:17)
-04. Kaigo - Ain't Gonna (Instrumental Funk) (3:29)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1EF830C4182B512E2D9820D2AA915BB18EB6B7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

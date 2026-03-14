@@ -1,3 +1,29 @@
+###  Публикация: 1385595   (797157) от 25.05.2020
+
+Баошу | Возрождение времени (2020) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797157.jpg" />
+</div>
+
+
+###  Подробнее
+
+В самый разгар межзвездной войны Юнь Тяньмин оказывается на передовой. Больной раком и решивший свести счеты с жизнью, он был заморожен и отправлен в космос. Там его подбирает флот Трисоляриса. После десятилетий жестоких пыток Юн сдается и начинает сотрудничать с инопланетянами. Он помогает поработить человечество. Получив здоровое клонированное тело, Юнь ведет жизнь (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 10:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9FBF1E791ECDFDA34F52A5E64E244E297A6D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385460   (797145) от 25.05.2020
 
 Подозрительные лица / The Usual Suspects (1995) WEB-DL [1080p] ATV [MVO]
@@ -692,35 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA11209412E399E0AA5C932E22EF75C3B9CEAA6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508822   (796345) от 10.11.2021
-
-VA - Follow the Light (Beautiful Chill out Tunes), Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VAN - Excursion (Original Mix) (2:35)
-02. Alexandra Hampton, Ahbee - Mirage (Original Mix) (5:54)
-03. Weathertunes - Flower Fields (Original Mix) (5:01)
-04. Peter Pearson - Unconditional (Original Mix) (5:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C3113B268A851525296DDE06FB0ED467895094
 ```
 
 https://mybot314.ru/tekegram_catalog/

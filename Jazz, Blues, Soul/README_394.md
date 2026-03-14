@@ -1,3 +1,177 @@
+###  Публикация: 1467487   (239695) от 04.05.2021
+
+Full Faith & Credit Big Band - FF&C III (1988) TBA Records [FLAC|Lossless|tracks + .cue] <Modern Big Band, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Timeouts Left [5:25]
+02. Angel Eyes [4:22]
+03. Perdido [6:02]
+04. We'll Share the Dawn [3:40](   Читать дальше...   )Жанр: Modern Big Band, Contemporary JazzПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED739E2996497E4F3C4A826240EDB850987253A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153030   (239686) от 23.04.2022
+
+Sonny Landreth - 15 albums, 18CD (1981-2020) [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric Blues, Contemporary Blues, Louisiana Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonny Landreth (Сонни Ландрет) родился 1 февраля 1951 года в Кантоне, штат Миссисипи, но вскоре его семья переехала в Джексоне, штат Миссисипи, прежде чем поселиться в Лафайетт, штат Луизиана. Когда он не гастролирует он постоянно проживает в Бро Бридж, штат Луизиана. Гитарист, певец и композитор, обладающий уникальной техникой игры на слайд-гитаре: параллельно с (   Читать дальше...   )--------------------------
+
+01. Blacktop Run (3:38)
+02. Lover Dance With Me (2:49)(   Читать дальше...   )Жанр: Modern Electric Blues, Contemporary Blues, Louisiana Blues |Продолжительность: 14:21:05 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92682DD8D456B415563CAE8C087CC61C31F5CBA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467497   (239665) от 04.05.2021
+
+Don Patterson & Booker Ervin - Legends Of Acid Jazz (1964) 1996, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S'bout Time [10:12]
+02. Up in Betty's Room [5:15]
+03. Oleo [3:52]
+04. When Johnny Comes Marching Home [10:58](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB762DDD5EBA86555F2CEDFF6A8A341241AA3378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637883   (239634) от 06.06.2023
+
+JW-Jones - Everything Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stanton Moore -- Everything Now (4:04)
+02. Keeping Me Up (2:46)
+03. Aaron Sterling -- Papa's in the Pen (3:40)
+04. Jimmie Vaughan -- Take Your Time (4:02)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C26155FCF747902873D1B28E6512D2B0FB0ED79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467342   (239630) от 04.05.2021
+
+Martial Solal Trio - Triangle (1995) JMS [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Round About Twelve [7:04]
+02. Isocele [7:15]
+03. Soliloc [6:26]
+04. Anatheme (Theme pour Anna) [6:34](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62DBEC2F91CF3759B551CF440C0F7B3F7234A291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637868   (239624) от 06.06.2023
+
+Calvin Duncan Jr - Come Along (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Along (3:31)
+02. Your Love Struck Me (3:05)
+03. Carnival Ride (2:34)
+04. Highway 65 (3:51)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8269A1768E14EFBFD15C5B9D3B9D524BD0794D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637888   (239618) от 06.06.2023
 
 Robert Hokum - Personal Experience and Downright Lies (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Cal Tjader - Mambo Sangria (1968, 1969) 2007, Fabulous [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7CB215BC16E2CBC713D60D9B49BE846538F2303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636614   (238976) от 31.05.2023
-
-Pasquale Grasso - Solo Masterpieces (2021) Sony Music [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Things You Are [5:06]
-02. Over the Rainbow [4:23]
-03. Just One of Those Things [5:33]
-04. 'Round Midnight [5:08](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780E4B355E6BA0AE1EA3B6250BA3D7C062B14D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636724   (238913) от 31.05.2023
-
-Sarah Lancman - Le pouvoir des mots (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, French chanson>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia In Paris
-02. Boléro nocturne No.3
-03. Que feras-tu de ta vie?
-04. Le pouvoir des mots(   Читать дальше...   )Жанр: Vocal Jazz, French chansonПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EDCFCF931B34794F9D4092095A673667C363D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577302   (238910) от 18.09.2022
-
-The Charlie Rouse Band - Cinnamon Flower (1977) 1987, Rykodisc [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backwoods Echo [5:14]
-02. Disenchantment [3:53]
-03. A New Dawn [5:49]
-04. Quiet Pictures [3:41](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2400B9F21A2A5A9840647CD125F697C67028C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440119   (238831) от 16.01.2021
-
-Oscar Peterson - Great Connection (1971) 2005, Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Younger Than Springtime [5:25]
-02. Where Do We Go From Here [5:54]
-03. Smile [3:59]
-04. Soft Winds [6:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB649ED6B4916C0AB53A605B89FF3341E64C9ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480385   (238769) от 28.06.2021
-
-Jacky Terrasson - 53 (2019) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Call [4:03]
-02. Alma [4:21]
-03. Mirror [1:49]
-04. Jump! [3:03](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B7093635E2467A8CC67C2412A69946747C5751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636883   (238721) от 01.06.2023
-
-V.A. - Relaxing Soothing Melodic Tunes for Body, Mind and Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Peace Of Mind
-02. Love Suggestions - Clarity
-03. Chillaxing Jazz Kollektion - Just Ones
-04. Kool&klean - Still(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 02:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6942A6997AB913D512BCEF4198AABEE4E12924
 ```
 
 https://mybot314.ru/tekegram_catalog/

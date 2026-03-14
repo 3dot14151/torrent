@@ -1,3 +1,148 @@
+###  Публикация: 1278940   (767490) от 27.01.2019
+
+Slade - Легенды Зарубежного Рока (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767490.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Let's Call It Quits
+A2 Look At Last Night
+A3 Don't Blame Me
+A4 Gudbue Gudbue(   Читать дальше...   )Жанр: Glam RockПродолжительность: 01:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25FFBD682E9A89D16461FC92806138C4DF1C1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521233   (766019) от 01.01.2022
+
+Mr. Big - Lean Into It (1991) remastered 2021, Evoxs, 30th Anniversary Edition [DST64 2.0, 5.1|1bit/2822,4kHz |SACD-R] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy, Brother, Lover, Little Boy (The Electric Drill Song)
+02. Alive and Kickin’
+03. Green-Tinted Sixties Mind
+04. CDFF - Lucky This Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5152486EDE676445F9114E1D7570282AC7202F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521721   (764174) от 03.01.2022
+
+VA - The Absolute Sound (2018) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Toselli: Serenata (03:45) - Arve Tellefsen
+02. You Brought Me Up (04:29) - Méav Ní Mhaolchatha
+03. God Morgen, Min Kjære (03:59) - Benny Borg
+04. When All Is Said And Done (03:49) - Inger Marie Gundersen(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7AC211001E63569A95EE26B6397A0634D14427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394588   (763680) от 05.07.2020
+
+Gary Moore - White Knuckles (1985) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763680.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Nuclear Attack
+A2 White Knuckles/Rockin' & Rollin
+A3 Run To Your Mama (Live)
+A4 You(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1529B5A8CAACC68161392192D59F1F0D85678103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394384   (763679) от 05.07.2020
+
+Boney M. - Hooray! Hooray! It's A Holi-Holiday (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763679.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Hooray! Hooray! It's A Holi-Holiday
+(Frank Farian, Fred Jay)
+B Ribbons Of Blue
+(Forsey)Жанр: DiscoПродолжительность: 00:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17032F2F3921B09E6FE8487BD89DEF10377ABBDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017139   (763133) от 16.05.2016
 
 Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
@@ -609,154 +754,6 @@ A4 God Bless The Child(   Читать дальше...   )Жанр: Jazz, Blues�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:313CBB8C30B09244837A7887109597C4D942DA18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396520   (746920) от 15.07.2020
-
-Lift - Lift (1977) Russian text on labels [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Art Rock, Krautrock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746920.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Wasser Und Wein
-A2 ...Fallt Der Erste Reif
-A3 Und Es Schuf Der Mensch Die Erde
-A4 Jeden Abend(   Читать дальше...   )Жанр: Art Rock, KrautrockПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D3BCDADD3CAACA5CA9B3EB783667458A8E77B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524023   (746507) от 14.01.2022
-
-The Beatles - 1962-1966 (1973) Red Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Beat, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746507.jpg" />
-</div>
-
-
-###  Подробнее
-
-LP1
-A1 Love Me Do
-A2 Please Please Me
-A3 From Me To You(   Читать дальше...   )Жанр: Beat, Pop RockПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43605E3D08B535E30D60EEEFB531B46D092426FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524025   (746374) от 14.01.2022
-
-The Beatles - 1967-1970 (1973) Blue Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Beat, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746374.jpg" />
-</div>
-
-
-###  Подробнее
-
-LP1
-A1 Strawberry Fields Forever
-A2 Penny Lane
-A3 Sgt. Pepper's Lonely Hearts Club Band(   Читать дальше...   )Жанр: Beat, Pop RockПродолжительность: 01:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED79CAA200AAA39DE6A04C1F3E3CB96C0EB7126A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665050   (745721) от 05.06.2013
-
-Muse - 4 Альбома (2001-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Alternative rock, Progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative rock, Progressive rock |Продолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B96F35161B6272AF4CDBE00057B47C5CDCCEF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783781   (743906) от 05.05.2014
-
-Тухманов - По волне моей памяти (1976) [FLAC 2.0 24/192|traks(Vinil-Rip)]<ArtRock, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743906.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сторона
-1. Я мысленно вхожу в Ваш кабинет (М. Волошин) М. Бади ("Арсенал")  5:04
-2. Из сафо (VII век до н.э.) , перевод В. Вересаева) Наталья Капустина (Вокальная группа "Современник")  5:17
-3. Из вагантов (XI - XIII вв.) , перевод Л. Гинзбурга) Игорь Иванов ("Надежда")  3:02
-4. Приглашение к путешествию (Ш. Бодлер , перевод И. Озеровой) А. Барыкин ("Самоцветы")  4:05
-5. Доброй ночи (П. Б. Шелли) М. Бади ("Арсенал")  3:45
-2 сторона
-1. По волне моей памяти (Н. Гильен , перевод И. Тыняновой) В. Андрианов ("Лейся , песня")  3:45
-2. Сентиментальная прогулка (П. Верлен , перевод А. Эфрон) С. Беликов ("Аракс")  3:57
-3. Сердце моё , сердце (И. В. Гёте , перевод В. Левика) А. Лерман (Вокальная группа "Добры молодцы")  3:58(   Читать дальше...   )Жанр: ArtRock, SchlagerПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1ED3739AAD88257D9482A2DC2525664EF9AF68
 ```
 
 https://mybot314.ru/tekegram_catalog/

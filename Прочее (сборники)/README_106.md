@@ -1,3 +1,38 @@
+###  Публикация: 545533   (484871) от 10.09.2012
+
+VA - Музыка Для Избранных: Убойная Вечеринка Хит FM 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Потап и Настя Каменских - Прилелето (Moscow Club Bangaz feat. Demid Rezin Radio Edit)
+02 Sunset - Fiesta (Radio edit)
+03 Анжелика Варум - Нарисуй Любовь
+04 Milk & Sugar feat. Neri Per Caso - Via Con Me (It's Wonderful)
+05 A-Dessa - Fire (Mix)
+06 2B Project feat. Aisha & Don Cash - Mojito (I Love Mojito Radio Edit)
+07 Винтаж feat. Bobina - На-На-На
+08 Keen'V - Les Mots
+09 Стас Пьеха - Старая история
+10 WTF! - Da Bop (Video Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACBE133BC7C89566ACF00306F66B395D07C5B6EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319409   (484724) от 11.08.2019
 
 VA - Anoter Love Song (2019) [MP3|320 Kbps] <Pop, Rock, Lyric>
@@ -737,41 +772,6 @@ Dance:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AF01AAFFEC401B36FBB25C3A2623DB56E0851A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546430   (478971) от 13.09.2012
-
-VA - Жажда Скорости - Best of the Best (2012) [MP3|192 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Global Dj Izek feat. Dj Salamandra - You Cut Me Open (Original Vocal Mix)
-02. Dr. Kucho! - Doing Better Without You (Original Mix)
-03. Heatbeat - Chow Mein (Radio Edit)
-04. Afrojack Vs. Adventure Club - Wait! They Dont Rock The House (PeaceTreaty Bootleg)
-05. Holly Drummond - Out Of My Mind (System Remix)
-06. Aly & Fila meet Roger Shah feat. Adrina Thorpe - Perfect Love (Original Mix)
-07. Igor Garnier feat. Syntheticsax - Forever & Ever (Extended Mix)
-08. Balthazar & JackRock - Come (Svetlio Remix)
-09. Igor Voevodin & DJ Emil & Syntheticsax - Sax Sex (Original Mix)
-10. Christian Burns & Stefan Dabruck - Bullet (Club Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 08:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EA7783D6AF091635F8C0C9169DEAAD14B17748
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 962478   (539618) от 30.06.2019
+
+Unknown-Dimension — 15 альбомов (2009-2019) /Doujin/ [FLAC|Lossless|tracks] <Instrumental, Orchestral Arrange>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2018.04.29 (UDOR-017) U.I. -2nd (M3-41)
+2018.10.28 (UDOR-018) Wandering in my life (M3-42)
+2019.04.28 (UDOR-019) 欠落世界 (M3-43)Тип издания: DoujinЖанр: Instrumental, Orchestral ArrangeПродолжительность: 00:09:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C697D32CE7C69904466083A36525645A358AD5DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798230   (539494) от 30.06.2019
+
+R-note — 37 альбомов (2012-2019) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Pop, J-Rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2018.12.30 (RNCD-0023) 東方空翔響 (C95)
+2018.12.30 (RNCD-0024) LOVERATORY ～幻想郷恋謡～ (C95)
+2019.05.05 (RNCD-0025) 東方TRUE LOVE (Reitaisai 16)Тип издания: DoujinЖанр: J-Pop, J-RockФормат: Touhou VocalПродолжительность: 00:23:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D4CB55F725956B46548B90E9BCC4F2384993BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749797   (539485) от 30.06.2019
+
+ShibayanRecords — 23 альбома (2008-2019) Touhou Vocal, Instrumental /Doujin/ [FLAC|Lossless|tracks] <J-Pop, J-Rock, Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2017.12.29 (STAL-1702) Solar (C93)
+2018.05.08 (STAL-1801) TOHO BOSSA NOVA 7 (Reitaisai 15)
+2019.04.28 (STAL-1901) TOHO BOSSA NOVA 8 (M3-43)Тип издания: DoujinЖанр: J-Pop, J-Rock, ElectronicФормат: Touhou Vocal, InstrumentalПродолжительность: 00:15:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA616ED8C0719DBC86F9C3977F57C85BFD9CF10F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557467   (539183) от 16.06.2022
+
+Dir En Grey - Phalaris (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Avantgarde, Jrock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Schadenfreude (00:09:58)
+✧ 02 - 朧 (Oboro) (00:03:59)
+✧ 03 - The Perfume of Sins (00:04:18)
+✧ 04 - 13 (00:03:42)(   Читать дальше...   )Жанр: Progressive Metal, Avantgarde, JrockПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14F9B6951DF569D52C9EEDAF8AF0969DC05BA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557096   (539178) от 16.06.2022
+
+Godzilla Snacks - There Be Monsters (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Desert, Stoner Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Horns and Tails (00:04:09)
+02 - The Greys (00:05:09)
+03 - Beefcake (00:06:01)
+04 - Sink or Swim (00:02:20)(   Читать дальше...   )Жанр: Heavy Psychedelic, Desert, Stoner RockПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:239A121FF7ECEBE1628266836B178DD1D18C5B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 819124   (536062) от 06.09.2014
 
 fromadistance - 4 альбома (2009-2013) [FLAC|Lossless] <Touhou, Instrumental, Doujin Ongaku, Electronic, Experimental>
@@ -610,156 +755,6 @@ DAY6 - The day (2015) [MP3|320 кб/с]<k-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99643170C04CE6701812668919221400CBBC5647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542428   (498085) от 03.09.2012
-
-VA - LIVIN'G Presents: Lovely Guitar & Natural Spa (Vol. 1-3) (2010) [MP3|320 кб/с]<Instrumental, Guitar, Natural sounds>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498085.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4.17) 01. Tung-Roo-Gaw-Ruk
-(4.11) 02. Song-Sarn-Gun-Noy
-(3.56) 03. Yahk-Ja-Leum
-(3.55) 04. Hmog-Reu-Kwun
-(4.11) 05. Yahk-Hai-Roo-Wah-Ngow
-(4.27) 06. Long-Uie
-(2.38) 07. Tur-Roo-Reu-Plow
-(5.22) 08. Jeb-Pai-Jeb-Mah
-(4.52) 09. Ton-Mai-Kaung-Pau
-(3.49) 10. Yahk-Dai-Yin-Wah-Ruk-Gun(   Читать дальше...   )Жанр: Instrumental, Guitar, Natural soundsПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8B47746C9E89013643186F9A20AFCA4967AAED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936168   (496486) от 11.09.2015
-
-KARASHIC RECORDS - 2 альбома (2010-2011) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2010.11.28 (KRSC-0001) Mystic Potential
-2011.05.08 (KRSC-0002) Secret Force (Reitaisai 8)Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:01:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1822578935CD5D7E393565631B69BEBE88E33C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936164   (496483) от 11.09.2015
-
-JunKY-jaM - 5 альбомов (2009-2011) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2010.05.05 Gensou i Hibiki Utage (M3-25)
-2010.10.31 Gensou Sokukyousai Taikenhan (M3-26)
-2011.05.01 Little Drunker (M3-27)Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3778EDA8C31A418FB3C471F1196ECC2B8E74A4E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936170   (496400) от 11.09.2015
-
-Karkan - 5 альбомов (2008-2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2009.12.30 (KRKN-0003) Yoino Hoshishirube (C77)
-2010.08.14 (KRKN-0004) Akeno Hoshishirube (C78)
-2011.08.13 (KRKN-0005) Arkham Edge (C80)Тип издания: DoujinЖанр: ElectronicФормат: Touhou Vocal, InstrumentalПродолжительность: 00:03:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4D5B5F5BE8BA7E5E0A780DE436502E08CE7CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936174   (496399) от 11.09.2015
-
-Klang-Gear - 3 альбома (2008-2010) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2008.11.02 Digi-Ana Girls (Kouroumu 4)
-2009.09.06 Kochi Fukaba
-2010.10.11 Kochi Fukaba+ (Kouroumu 6)Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:02:16:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C425A9D46FBC182F9FE8520FB8A050AB3E3A95
 ```
 
 https://mybot314.ru/tekegram_catalog/

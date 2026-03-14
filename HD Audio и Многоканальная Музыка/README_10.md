@@ -1,3 +1,119 @@
+###  Публикация: 1098253   (909929) от 29.01.2017
+
+Jean-Michel Jarre - Oxygene Trilogy - The 40th Anniversary Edition (2016) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Electronic, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oxygene 1-6 (1976)
+A1. Oxygene (Part 1) (7:39)
+A2. Oxygene (Part 2) (7:47)
+A4. Oxygene (Part 3) (3:15)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33814FDB42EB12E482E61B5C65DA86829BF1A968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098599   (908581) от 30.01.2017
+
+Tiёsto - Parade Of The Athletes (Limited Vinyl Edition) (2004) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908581.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Tiesto - Heroes (9:24)
+B1. Tiesto - Breda 8pm (DJ Montana Edit) (8:44)
+C1. Tiesto - Ancient History (8:39)
+D1. Tiesto - Euphoria (7:34)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7650CE41A392D200F5473D6C4B3FA4DE024B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098306   (908523) от 30.01.2017
+
+DJ Tiёsto - In My Memory (Limited Vinyl Edition) (2001) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908523.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. DJ Tiesto - Magik Journey (Album) 11:07
+B1. DJ Tiesto - Magik Journey (Alternative) 10:01
+C1. DJ Tiesto - Dallas 4 PM 6:46
+D1. DJ Tiesto feat. Nicola Hitchcock - In My Memory 6:08(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D32980DC3D80BA9F5016FFA2555CDAF3B34A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098617   (908510) от 30.01.2017
+
+VA - Tiёsto - Nyana (Limited Edition Sampler) (2003) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908510.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Reinhard Voigt - Supertiel (7:30)
+A2. Conjure One feat. Sinead O'Connor - Tears From The Moon (Tiesto In Search Of Sunrise Remix) (8:10)
+B1. Solar Factor - Urban Shakedown (6:54)
+B2. GTR - Mistral (9:18)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569774D38921D7A97C634AC843F9755CAD48D961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098601   (908447) от 30.01.2017
 
 Tiёsto - Elements Of Life (Limited Vinyl Edition) (2007) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
@@ -633,122 +749,6 @@ Mike Oldfield - Discovery And The Lake (2016) 1984 [DTS 5.1 CD-Extra|44.1/16|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:182DD2962B50A7A6D762BDCDF84B5FDB158978D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871055   (882829) от 20.02.2015
-
-Звуки Му - Транснадежность (1991) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Psychedelic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882829.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Транснадежность (3:18)
-A2. Турист (2:22)
-A3. Забытый секс (6:19)
-A4. Пробковый пояс (5:15)(   Читать дальше...   )Жанр: PsychedelicПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27959F65A685D2657CBF9D7608BA013D309EF820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996399   (880732) от 13.03.2016
-
-Владимир Кузьмин - Ромео и Джульетта (1987) 1989, Мелодия ТЗГ [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880732.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Ромео и Джульетта (4:13)
-A2. Долгая ночь (4:19)
-A3. Блеск в ее глазах (3:51)
-A4. Когда меня ты позовёшь (5:30)(   Читать дальше...   )Производство: Мелодия ТЗГ - С60 27991 004Жанр: RockПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507A90084A700B8FEDED72B5489EE7AAC14E1B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495449   (880530) от 12.09.2021
-
-VA - Love Power vol.1 (1997) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880530.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A
-01. Bee Gees - Rings Around The Moon
-02. Celine Dion - To Love You More
-03. Pet Shop Boys - Hit And Miss(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F048316E84851E0911A895F81E34F182614F52FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104307   (879940) от 15.02.2017
-
-VA - RETROспектива, часть XI: Эстрадные оркестры XI (1934-1958) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментальный септет п.у. П. Моруа - Чику-Чику Но Фуба (румба-фокстрот)
-02. Симф. оркестр ВР п.у. А. И. Орлова - Полонез (танец)
-03. Оркестр БДТ п.у. К. П. Кондрашина - Мазурка (танец из оперы С. Монюшко ''Галька'')
-04. Инстр. квартет п.у. Б. Тихонова - Русский перепляс (танец)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A86471AA2E43AAD43C0436559FE39120740400
 ```
 
 https://mybot314.ru/tekegram_catalog/

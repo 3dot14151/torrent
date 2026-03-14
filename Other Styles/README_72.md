@@ -1,3 +1,154 @@
+###  Публикация: 510072   (670316) от 14.06.2012
+
+Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Black Grass - Yesterday's gone (4:42)
+2. Free The Robots - Yoga Fire (2:56)
+3. Clark - Vengeance Drools (3:41)
+4. Dj Shadow - This Time (3:07)
+5. Kno (of Cunninlynguists) - My First Song (3:10)
+6. Amon Tobin - Get Your Snack On (4:22)
+7. CunninLynguists - Hellfire (2:29)
+8. Ministry - Jesus Built My Hotrod (4:52)
+9. Damian Marley - Something For You(One Loaf of Bread) (3:17)
+10. DJ Krush - Song for John Walker (feat. Anticon) (Sticky mix) (5:33)2008Жанр: SoundtrackПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030661   (670047) от 02.07.2016
+
+The Witcher 2: Assassins of Kings (Original Soundtrack) (2012) Enhanced Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Skorupa & Krzysztof Wierzynkiewicz - In Temeria (Intro) (01:31)
+02. Adam Skorupa & Krzysztof Wierzynkiewicz - Assassins of Kings (02:07)
+03. Krzysztof Wierzynkiewicz - A Nearly Peaceful Place (04:06)
+04. Adam Skorupa & Krzysztof Wierzynkiewicz - Arena of Rage (01:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB4FFF063209C3D2610F6DFC8D1C7EA518376EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136963   (669132) от 25.05.2017
+
+The Romantic Strings and Orchestra - Great Broadway Favorites (1993) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oklahoma - Oh, What a Beautiful Mornin' (3:10)
+02. My Fair Lady - I Could Have Danced All Night (2:39)
+03. South Pacific - This Nearly Was Mine (2:50)
+04. Annie Get Your Gun - The Girl That I Marry (2:34)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3297D3068045655BD050DAE90619B0BFB159129A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291669   (668804) от 25.03.2019
+
+Cole Swindell - All of It (2018) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love You Too Late
+02. All Of It
+03. Somebody's Been Drinkin'
+04. Sounded Good Last Night(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75253406316A1EDB5CF5723E467D8E803B75BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291586   (668668) от 25.03.2019
+
+Baba Yaga's Stew - Baba Yaga's Stew (2019) [FLAC|Lossless|tracks + .cue] <Folk, Contra Dance>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lörincreve, Amari Szi (3:20)
+02. Tirontanita, Anaconda (3:51)
+03. La Bruja (3:38)
+04. Koga Ke Odish Mome Za Voda, Üsküdar (4:54)(   Читать дальше...   )Жанр: Folk, Contra DanceПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13DCA18FF7268318EBE5CACDCA1CFB12ED931091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031229   (668647) от 03.07.2016
 
 Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -616,155 +767,6 @@ Hangedup - 3 albums (2001-2005) [FLAC|Lossless] <Experimental, Instrurumental, P
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511723   (666103) от 17.06.2012
-
-Hrsta - 3 albums (2001-2007) [FLAC|Lossless] <Post-Rock, Experimental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_666103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entre La Mer Et L'eau Douce (03:50)
-02. Beau Village (05:01)
-03. The Orchard (04:34)
-04. Tomorrow Winter Comes (04:11)
-05. Haunted Pluckley (02:51)
-06. Hechicero Del Bosque (08:41)
-07. Saturn Of Chagrin (05:10)
-08. Kotori (04:30)
-09. Holiday (03:09)2001-2007Жанр: Post-Rock, ExperimentalПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224547   (666012) от 10.05.2018
-
-Kevin Wood - Eternal (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Search of Meaning (6:14)
-02. Light Shines Through (5:15)
-03. Father’s Love (2:59)
-04. Love’s Embrace (6:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748B28F22ED59492E99B7A48632233644056CA4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224481   (666008) от 10.05.2018
-
-Jupiter Panic - Days of Sorrow (2018) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Days of Sorrow (3:26)
-02. The Return (5:06)
-03. Retired By a Mistake (3:18)
-04. Futura (4:50)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D040F7C50BCB1A70075FE0A9AF3993D39FDC15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137659   (665421) от 28.05.2017
-
-David Garcia Diaz - RiME (2017) Deluxe Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Song of the Sea (feat. Mirella Díez Morán)
-02. Departure
-03. Elder Silence
-04. Promenade(   Читать дальше...   )Жанр: ScoreПродолжительность: 1:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8527A324B9D7DA4A35A130990E1A181CE0033F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511564   (664684) от 18.06.2012
-
-VA - Союз нерушимый... - Песни и танцы народов СCCP (2007) 5 CD [MP3|320 kbps] <Retro, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Государственный гимн Советского Союза Оркестр Государственного Академического Большого Театра СССР, Юрий Симонов
-02. Государственный гимн Украинской ССР Хор и оркестр Государственного академического театра оперы и балета имени Т.Шевченко, Стефан Турчак
-03. Государственный гимн Белорусской ССР Хор и эстрадно-симфонический оркестр Белорусского Гостелерадио, Б. (   Читать дальше...   )Жанр: Retro/FolkПродолжительность: 05:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D5F1A8D7C0417003BEA067A2677AB85F93BAC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

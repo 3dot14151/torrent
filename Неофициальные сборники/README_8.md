@@ -1,3 +1,90 @@
+###  Публикация: 1604780   (1044945) от 17.01.2023
+
+Julia Westlin - Compilation (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyone
+02. Hello
+03. Crazy
+04. All Your Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EAF9826F8860D92B67319673FB798ACC5F6B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599678   (1044941) от 17.01.2023
+
+VA - В машине с музыкой Vol.325 (2022) MP3 (320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ислам Итляшев - Ресторан (03:40) 2022
+02. Rasa Feat. & Dashi - Не Хочу Домой (03:08) 2022
+03. Nifiant - Never Let Me Go (03:23) 2022
+04. Александр Чурей - Застольно-Хулиганское (04:10) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2F3B42BA6A0CD3A31CB2A58653632B3E864E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604480   (1044937) от 17.01.2023
+
+VA - Старый Новый год Vol.01 (2022-2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044937.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kylie Minogue - Only You
+002. Никита Хазановский - Новый Год
+003. Paul Potts - Ave Maria
+004. Сергей Одинцов - Новый Год(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDA36032C4F5143C266F465970F512851930232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602922   (1044933) от 17.01.2023
 
 VA - Музыка для машины Vol.1 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -658,93 +745,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F414D40D62672BCCF68C7BA2ADD03D9A5403D294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608014   (1043496) от 31.01.2023
-
-VA - Музыка для машины Vol.3 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel  - Не Пиши Мне (03:08)
-02. T1one  - Увела (03:13)
-03. Anouk Feat. & Emma Heesters - Met Jou Kan Ik Het Aan (04:03)
-04. Dimitri Vegas & Like Mike Feat. & Ne-Yo - Higher Place (Ayur Tsyrenov Dfm Remix) (03:25)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812E4EBCC0D58AB6301E2AFF3A0FC6BE8BEF927B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608576   (1043488) от 31.01.2023
-
-VA - Дискотека 2023 Dance Club Vol. 215 (2023) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043488.jpg" />
-</div>
-
-
-###  Подробнее
-
-part 1:
-001. Edine - Do You Have A Problem (2:23)
-002. Avec Toi - Parade of planets (2:44)
-003. Beneath My Shade - Back To You (2:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20CCCCCCB2CD9BD32554983FD58728DE37045DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609226   (1043336) от 02.02.2023
-
-VA - Music News vol.242 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043336.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eva feat. Samar - Habibi (02:47)
- 002. Alex M feat. Richard Reynolds - Cyprus (02:52)
- 003. Alyun - Callie (Cry About It) (04:08)
- 004. Anait - Сны (03:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10A95FA578451A86C2E50DC5497E9B39B6846B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1287040   (707131) от 05.03.2019
+
+VA - Punk Collection (unknown year) Unofficial Release [FLAC|Lossless|image + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sex Pistols - Anarchy in U.K.
+02. The Stranglers - No More Heroes
+03. The Knack - My Sharona
+04. Iggy and the Stooges - I Got a Right(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F3A33A8C7C2814755138DA561B8E9DD6804E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131691   (706953) от 06.05.2017
+
+Say Sue Me - Say Sue Me (2017) [FLAC|Lossless|tracks] <Indie Pop, Surf>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706953.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To Be Wise (03:43)
+2. My Problem (04:12)
+3. One Week (03:19)
+4. I Know I'm Kind Of Boring (02:50)(   Читать дальше...   )Жанр: Indie Pop, SurfПродолжительность: 01:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942FF8AC544681F294164FA5ECD21625298FD0ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286613   (706895) от 05.03.2019
+
+Balthazar - Fever (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fever (06:05)
+02. Changes (03:46)
+03. Wrong Faces (03:57)
+04. Whatchu Doin’ (03:44)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F0492B09327BDAA8A98E9E1B54637104E0C2380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026025   (705954) от 14.06.2016
 
 Everlast - Songs Of The Ungrateful Living (2011) [FLAC|Lossless|tracks + .cue] <Alternative, Blues, Hip-Hop>
@@ -658,93 +745,6 @@ Hoops - Routines (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Dream Pop, Lo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20DF9B5C0F3C4F0815F4804CF123973433BCB736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220891   (696728) от 23.04.2018
-
-A Perfect Circle - Eat The Elephant (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eat The Elephant
-02. Disillusioned
-03. The Contrarian
-04. The Doomed(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D58CB6A56BBC3FDC48FCA16033BE2CCDB9CD18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288424   (695657) от 11.03.2019
-
-Foals - Everything Not Saved Will Be Lost Part 1 (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight (02:39)
-02. Exits (05:57)
-03. White Onions (03:05)
-04. In Degrees (04:57)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FAC58AC48792506D1861F74743BB437B4D197F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133362   (694960) от 12.05.2017
-
-Paramore - After Laughter (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694960.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hard Times (03:02)
-2. Rose-Colored Boy (03:32)
-3. Told You So (03:08)
-4. Forgiveness (03:39)(   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25A015366BE0E4584C4F0A3A0567B09A370F5EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

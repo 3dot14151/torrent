@@ -1,3 +1,177 @@
+###  Публикация: 1242416   (515131) от 22.08.2018
+
+The Gary Burton Quartet With Eberhard Weber - Passengers (1977) 1988, ECM [FLAC|Lossless|tracks + .cue] <Post Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea Journey [9:19]
+02. Nacada [4:15]
+03. The Whopper [5:33]
+04. B & G (Midwestern Nights Dream) [8:27](   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BF5906C6E708FFF852AC9ABEA649CFB61F4BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314974   (515098) от 18.07.2019
+
+Mason Razavi - Quartet Plus, Volume 2 (2017) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riverbed [6:35]
+02. Blues in New Hues [6:28]
+03. Looking Forward, Looking Back [5:31]
+04. Blue and Grey Waltz [5:57](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E06EBD69F7F50A8E88DFF14849CD6F0367FF303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315148   (515097) от 18.07.2019
+
+Bengan Janson, Jan Lundgren, Ulf Wakenius (2011) Ladybird [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Land [6:20]
+02. Chorinho pra Sivuca [4:19]
+03. Lat till Far [4:57]
+04. Paris Tango [4:46](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141CBA3FE03C278F14823552E03CB43EA5AF4279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315146   (515095) от 18.07.2019
+
+Ahmad Jamal - Marseille (2017) Jazz Village [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marseille (instrumental) [8:34]
+02. Sometimes I Feel [5:48]
+03. Pots En Verre [8:30]
+04. Marseille (with Abd Al Malik) [7:23](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC47522DDBABB5190EABA738B1358F0A4106573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314971   (515089) от 18.07.2019
+
+Sophie Milman - Make Someone Happy (2007) Linus [APE|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People Will Say We're In Love [3:09]
+02. Something In The Air Between Us [4:13]
+03. Rocket Love [4:34]
+04. So Long, You Fool [3:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D26153E3BAAD20391A9BF360C6A7100F9324C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314844   (515079) от 18.07.2019
+
+Grant Green - 5 Original Albums (1961 - 1965) 5CD, 2018, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515079.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- Idle Moments:
+01. Idle Moments [14:56]
+02. Jean De Fleur [6:50]
+03. Django [8:44](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Guitar JazzПродолжительность: 03:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575DE15C7393963DD4AD895BB82AC823532CBD47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315131   (514907) от 18.07.2019
 
 VA - Blues! - The Best Of The Best Part I - Part V (2003) Unofficial Release [MP3|320 Kbps] <Blues, Blues Rock>
@@ -569,180 +743,6 @@ VA - Sensual Jazz Lounge, Vol. 1 (2015) [MP3|320 кб/с]<Jazzy, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4747A33EB611951F483C6C8A5E0FC973D8663E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242618   (514036) от 23.08.2018
-
-Hampton Hawes - Jam Session (1968) 2014, Columbia [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction By Max E. Lush [1:07]
-02. All The Things You Are [13:31]
-03. Buzzy [10:38]
-04. Uma-San's Blues [13:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD86929745B94DB4426E4DBBAFB4F9CD504BFBC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242613   (514035) от 23.08.2018
-
-Charles Davis All Stars - A Tribute To Kenny Dorham (2010) TCB Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Oscar For Oscar [7:38]
-02. Sao Paolo [8:01]
-03. This Love Of Mine [10:21]
-04. Tonica [4:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E0FBF0C00BA33F278A78B276D1C587AF30F27F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242621   (514034) от 23.08.2018
-
-Freddie Hubbard - The Hub of Hubbard (1969) 1972, MPS Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without a Song [12:55]
-02. Just One of Those Things [7:17]
-03. Blues for Duane [7:37]
-04. The Things We Did Last Summer [7:20]Жанр: Hard Bop, Post-BopПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8752FEFBC129F3B8E5E53D3DB42368720DDD1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242703   (513993) от 23.08.2018
-
-Big Willy - All In (2018) [MP3|320 Kbps] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somethin' New (05:29)
-02. All In (04:44)
-03. Spend My Days With You (05:19)
-04. So Bad At Being Good (04:20)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D257E7FFA642669471A5334059648084E936C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315339   (513967) от 19.07.2019
-
-Thomas Marriott - Romance Language (2018) Origin Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dexter's Tune [3:17]
-02. Forgiveness [4:51]
-03. I Remember Sky [4:35]
-04. Piggyback [4:30](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914B1F0BEDDEB06A61F99743D98C796969235928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561694   (513621) от 06.07.2022
-
-Paul Desmond & Jim Hall - The Complete Recordings Of The Paul Desmond Quartet With Jim Hall (1959) 4CD, 1989, Mosaic Records [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513621.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. East of the Sun [5:45]
-02. For All We Know [5:34]
-03. I Get a Kick Out of You [8:39](   Читать дальше...   )Жанр: CoolПродолжительность: 04:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64131EAC69DFF839DE240EF2AA13120474671E99
 ```
 
 https://mybot314.ru/tekegram_catalog/

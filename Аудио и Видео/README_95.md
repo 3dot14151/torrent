@@ -1,3 +1,29 @@
+###  Публикация: 890847   (741518) от 22.04.2015
+
+Фальсификатор / The Forger (2014 ) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма — Рэй Каттер — художник от бога и мошенник во втором поколении. Он договаривается о досрочном освобождении из тюремного заключения, чтобы «уйти на покой» и наладить отношения с семьей. В обмен за помощь с выходом из тюрьмы он должен выполнить еще одну работу, сделать подделку, которой до него еще никто никогда не делал.Производство: США / Saban Films, Code Entertainment, Freedom MediaЖанр: триллер, драма, криминалРежиссер: Филип МартинАктеры: Джон Траволта, Эбигейл Спенсер, Дженнифер Или, Кристофер Пламмер, Энсон Маунт, Тай Шеридан, Трэвис Аарон, Линдон Смит, Скайлер Райт, Кэти СаловскиПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: (ColdFilm)Продолжительность: 01:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59172308D87559D6CF60F61EBDB5053460FE3EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 784068   (741138) от 07.05.2014
 
 Starперцы / Last Vegas (2013) BDRip [576p] iPad
@@ -674,35 +700,6 @@ VA - Beautiful Vocal Trance, Progressive (2020) [AAC|~336 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1C8DCB84376F83233FA5A2AC65202F42E2AAF2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526065   (738817) от 23.01.2022
-
-VA - Beautiful Vocal Trance, ch. 2 (2018) [AAC|~340 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Service, Ana Criado - An Autumn Tale (Radio Edit) (4:10)
-02. Nicholas Gunn, Alina Renae - Older (Costa Remix) (3:32)
-03. Witness45, Cynthia Hall, Fashion Police - I'm Still Here (Radio Edit) (2:48)
-04. Tenishia, Sue Mclaren - Strong (Radio Edit) (3:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB12342767B81CAFA1A3665836FD206F366F1228
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1382212   (821033) от 10.05.2020
+
+Mark Murphy - Memories of You: Remembering Joe Williams (2003) HighNote [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Comeback [5:22]
+02. In the Evenin' [6:38]
+03. Everyday [5:03]
+04. Memories of You [5:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6375E88A69DFE9D9DF8FBBEF07BA3BB7BE88C099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530844   (820812) от 18.10.2021
+
+Нино Катамадзе & Insight - Дискография (2003-2011) 7 Альбомов [MP3|320 кб/с]<World Music, Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нино Катамадзе - одна из значимых фигур в жанре, определяемом как world-music. Как известно, к этому направлению принято относить исполнителей, чье творчество не укладывается в рамки стилевой сетки, но несет в себе национальные элементы страны, родом из которой музыканты. Нино оттуда, где песни не просто поют, ими живут.01. I Came :: 04:44
+02. I Will Come as a Snow :: 05:19
+03. Uto :: 04:27
+04. Lip :: 04:35(   Читать дальше...   )Жанр: World Music, Jazz, LoungeПродолжительность: 05:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9468120CB344F5B8C1B509FA9CC00377FCC4C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196739   (820748) от 04.01.2018
+
+Yusef Lateef - The Doctor Is In ...and Out (1976) 2002, Collectables [WavPack|Lossless|image + .cue] <Post-Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Improvisers [07:56]
+02. Hellbound [06:39]
+03. Mystique [07:43]
+04. Mississippi Mud [02:54](   Читать дальше...   )Жанр: Post-Bop, World FusionПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90AF56F687967E1598EE7E3F7478ED5B73039EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196793   (820744) от 04.01.2018
+
+Darryl Williams - Here To Stay (2017) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here To Stay (4:33)
+ 02. Now Or Never (4:41)
+ 03. Do You Remember (4:17)
+ 04. Reflections (5:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE34E49A14E1B362B2486F308AC33ED2A08D905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007851   (819905) от 16.04.2016
+
+Earl ''Fatha'' Hines - Here Comes (1966) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Save It Pretty Mama [03:25]
+ 02.Bye Bye Baby [03:47]
+ 03.Smoke Rings [02:55]
+ 04.Shoe Shine Boy [04:09](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 00:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2EC824379AED02EF25C5B3713F7AE282F38760E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007993   (819897) от 16.04.2016
+
+Dorothy Donegan - Live At The Widder Bar (1986) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lover [05:10]
+ 02.Tea For Two - Honeysuckle Rose [07:43]
+ 03.Autumn In New York - I Can't Get Started - On Green Dolphin Street [10:19]
+ 04.Makin' Whoope - Warsaw Concerto - Darn That Dream - All Blue - Sweet Lorraine [12:43](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Piano JazzПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31049ED0E877AC2D7B9CE8F0C6204223C2B5AC5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007857   (819894) от 16.04.2016
 
 Chet Baker - Live In Rosenheim: Chet Baker's Last Recording As Quartet (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Post-Bop>
@@ -570,180 +744,6 @@ Gonzalo Rubalcaba - XXI Century (2011) SPassion[FLAC|Lossless|tracks + .cue] <Af
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:675E2E2A5BB4687D576AA28E4E17597C7C3DBC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008087   (818099) от 17.04.2016
-
-Joe Henderson - Page One (1963) 2009, Analogue Productions[FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blue Bossa [08:03]
- 02.La Mesha [09:09]
- 03.Homestretch [04:15]
- 04.Recorda Me [06:03](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3D937FBF464DBDFE573EF37D0C0F6783960418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008310   (818095) от 17.04.2016
-
-Brother Jack McDuff - Do It Now! (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Snap Back Jack [04:53]
- 02.Mush Melon [04:46]
- 03.Summer Samba [05:13]
- 04.Do It Now [05:31](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-Funk, Hammond OrganПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026DE1CA6BA0090712A06729E6959DA16466A40C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008048   (818091) от 17.04.2016
-
-Martin Lechner - Somethin' Old & Somethin' New, Somethin' Else! (2016) [MP3|320 кб/с] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby Of Birdland (03:56)
-02. Valerie (02:59)
-03. The Masquerade Is Over (06:22)
-04. Ready Or Not (03:49)(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6731FEE98A6A8A78D6B3089B394664900D19F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008229   (817934) от 17.04.2016
-
-Konstantin Klashtorni - Smooth Jazz III (2016) [MP3|320 кб/с] <Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irresistible (04:13)
-02. Walking on Dream (03:54)
-03. Humble and Kind (04:07)
-04. Good to Be Alive (04:12)(   Читать дальше...   )Производство: Kvk MusicЖанр: Jazz, LoungeПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089CA8CF57967B2EB38378390D274D8E4E217A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503695   (817891) от 20.10.2021
-
-Sadao Watanabe - I'm With You (2016) Red River [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokyo Dating [7:30]
-02. Hip Walk [4:18]
-03. Tree Tops [6:17]
-04. Episode [6:12](   Читать дальше...   )Жанр: Crossover Jazz, Big BandПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20FBB5A47E819EA2EA548EE65641E940C64F631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503783   (817795) от 20.10.2021
-
-Vincent Ingala - Fire & Desire (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Dancer
-02. Could This Be Real
-03. On The Move
-04. This Or That(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:4013
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB73A05F1AA634D8C7BA358BBC93CD12B0FAAFDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

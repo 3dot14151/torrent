@@ -1,3 +1,148 @@
+###  Публикация: 1723201   (109581) от 14.05.2024
+
+Instrumental Music Ensemble - Smoldering Erotic Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Club (3:48)
+02. The Velvet Lounge (4:14)
+03. Jazz & Whiskey (3:39)
+04. A Smoky Bar Lounge (4:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EB7220C07B016B11940725464E030AAF1D8758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723196   (109578) от 14.05.2024
+
+Cal Harris JR - Bridges (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ordinary Days (3:42)
+02. Lean In (4:22)
+03. Bridges (4:07)
+04. Lemon Salt (3:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B44856CAC98548AC793344D9CDC8D116229605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723486   (109455) от 16.05.2024
+
+Starship - No Protection (1987) Specialty Records Pressing [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109455.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Beat Patrol
+A2 Nothing's Gonna Stop Us Now
+A3 It's Not Over ('Til It's Over)
+A4 Girls Like You)(   Читать дальше...   )Жанр: Rock, AORПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B9F7FC7F5E4D94440627A31CC3B7FD38F2CAC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723679   (109440) от 16.05.2024
+
+Demon - Invincible (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:27)
+02. In My Blood (4:40)
+03. Face The Master (4:26)
+04. Ghost From The Past (5:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763A47989109B044945457FC24669BB32799624F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723204   (109439) от 16.05.2024
+
+Jazz Guitar Club, Background Instrumental Music Collective, Romantic Love Songs Academy - Passion And Pomegranate: Best Romantic Guitar Music of All Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]  ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passion And Pomegranate (3:35)
+02. Romantic Love Songs Academy - Absolute Satisfaction (3:02)
+03. Background Instrumental Music Collective - Morning Kiss (3:39)
+04. Savage Feeling (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2876508710FE5315CC8D63275B04E4333CC836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723587   (109425) от 16.05.2024
 
 VA - Metal Massacre 02 (1982) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Glam, Heavy Metal>
@@ -600,151 +745,6 @@ A4 Persephone(   Читать дальше...   )Жанр: Ethereal, Post-PunkП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F88E39BD6C7A5C708763044BE006C15D8662A670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724197   (109342) от 18.05.2024
-
-Soul Button - Master Minds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Lumina
-02 – Tartribe
-03 – Mystique Veil
-04 – Tartribe (Nick Devon Remix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E83799E020FCC3A29FB85F723C27E18D1BB45A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724186   (109340) от 18.05.2024
-
-A. G. Cook - Britpop (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Electronic, Powerpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Silver Thread Golden Needle (00:09:56)
-02 - Britpop (00:03:22)
-03 - You Know Me (00:04:07)
-04 - Prismatic (00:03:49)(   Читать дальше...   )Жанр: Synthpop, Electronic, PowerpopПродолжительность: 01:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA1581F7075D4524771A6E56E7B549C76B4559E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724146   (109338) от 18.05.2024
-
-VA - Everyone's Getting Involved (2024) A tribute to Talking Heads’ Stop Making Sense [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Psycho Killer - Miley Cyrus [00:03:44]
-02 - Heaven - The National [00:04:17]
-03 - Thank You for Sending Me an Angel - Blondshell [00:03:08]
-04 - Found a Job - The Linda Lindas [00:04:12](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4334C50C20AFF2221A22FE1A0CD983D863EF459A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724074   (109336) от 18.05.2024
-
-Orchestre Mario Cavallero - Hit Parade Chante - Pop Hits - Vol. 6 (1973) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Pop, Sound-alike>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109336.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fais Comme L'oiseau
-A2 Le Lundi Au Soleil
-A3 La Complainte De L'heure De Pointe ''A Velo Dans Paris''
-A4 Si On Chantait(   Читать дальше...   )Жанр: Pop, Sound-alikeПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C668C239C5237EF2C9AC043A292F1035680A2DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724204   (109331) от 18.05.2024
-
-Kobra And The Lotus - Studio Albums (7 releases) (2009-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kobra and the Lotus (KATL) — канадская хэви-метал группа, образованная в 2009 году вокалисткой и автором песен Коброй Пейдж.2009 - Out Of The Pit
-2012 - Kobra And The Lotus
-2014 - High Priestess
-2015 - Words Of The Prophets (EP)Жанр: Heavy MetalПродолжительность: 05:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27B09F64047BFF22507B494009DECF1D777AD80
 ```
 
 https://mybot314.ru/tekegram_catalog/

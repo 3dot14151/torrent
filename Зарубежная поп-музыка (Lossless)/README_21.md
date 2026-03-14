@@ -1,3 +1,148 @@
+###  Публикация: 1005092   (834161) от 08.04.2016
+
+M83 - Junk (2016) [FLAC|Lossless|tracks + .cue] <Indie-Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It, Try It (03:38)
+02. Go! (03:56)
+03. Walkway Blues (04:50)
+04. Bibi The Dog (03:54)(   Читать дальше...   )Жанр: Indie-Pop, ElectronicПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD427C35ED402B2F7AF884A16CBEFD34D96B1699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501756   (833546) от 11.10.2021
+
+VA - 538 Hitzone 98 (2021) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как то давно на трекере не было выпусков от известной нидерландской радиостанции 538. Последний был 91-й аж почти два года назад. Между тем Sony Music с завидной периодичностью выпускает сборники хитов по итогам ротации на радиостанции. А Universal Music сборники лучших треков по итогам года (следите за анонсами трекера, скоро появиться лучшее за 2020).01. Coldplay - Higher Power  (3:30)
+02. Chef'Special - Afraid of the Dark  (3:08)
+03. Majestic X Boney M. - Rasputin  (3:06)
+04. Tom Grennan - Little Bit of Love  (3:45)(   Читать дальше...   )Тип издания: CD, CompilationРелиз состоялся: 2 июля 2021Жанр: Pop, Rock, DanceПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EEE929A68319B5B04213D4CD22877B0BA20CF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501761   (833543) от 11.10.2021
+
+VA - 538 Hitzone: Best Of 2020 (2020) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Hip-hop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восполняю пробел по ежегодным сборникам нидерландской радиостанции 538. Все релизы этой серии вы как всегда сможете найти по ссылке внизу. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию. Так что наслаждайтесь...CD1:
+01. The Weeknd - Blinding Lights  (3:23)
+02. Sheppard - Die Young  (3:24)
+03. Davina Michelle & Snelle - 17 Miljoen Mensen (Live@538 In Ahoy)  (1:48)(   Читать дальше...   )Тип издания: Box Set, 2CD, CompilationРелиз состоялся: 13 ноября 2020 годаЖанр: Pop, Dance, Hip-hop, ElectronicПродолжительность: 02:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04DF26EFC6173072BE0520CBEE92CAAF819C5A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114344   (832156) от 15.03.2017
+
+Teeth & Tongue - Give Up On Your Health (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Up On Your Health
+02. Do Harm
+03. Small Towns
+04. When We Met(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E9509366F0A3428CEE055DCA253A35362939BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114657   (831980) от 15.03.2017
+
+VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ike & Tina Turner - Please, Please, Please [06:57]
+02. Jerry Thomas - Feel So Good [03:22]
+03. Vanetta Fields - The Love Of My Man [04:01]
+04. Bobby John - Think [02:32](   Читать дальше...   )Жанр: Pop, Funk, Soul, BluesПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0035ED37B91C3416FF1B0D564A8509D155D41B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380697   (831666) от 04.05.2020
 
 Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electronic, Pop>
@@ -596,151 +741,6 @@ VA - Hit Connection 2011.3 (2011) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D7FC47DFEB532C3FC296181331B483EF6D24A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503297   (821241) от 18.10.2021
-
-VA - Calming Acoustic Covers: 14 Chilled and Relaxing Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shannon & Keast - Fireflies (Acoustic) (03:42)
-02. John Burnsby - What a Wonderful World (Acoustic) (02:20)
-03. Karizma Duo - Islands in the Stream (03:30)
-04. Django Wallace - My Future (Acoustic) (03:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144843692198F49B0A93F871D03C4AC0F3FE115C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116810   (821052) от 21.03.2017
-
-Coeur de Pirate - Roses (2015) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carry On [03:35]
-02. Crier Tout Bas [04:20]
-03. I Don't Want To Break Your Heart [04:05]
-04. Drapeau Blanc [03:24](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39237056906CBCE009BC955CFDA39965C5D8CD59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503563   (819693) от 19.10.2021
-
-Kylie Minogue - DISCO (2020) [FLAC|Lossless|tracks + .cue] <Dance-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (4:11)
-02. Miss A Thing (3:57)
-03. Real Groove (3:15)
-04. Monday Blues (3:10)(   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C0F516BAD455C14B7A9053E3A09C13C7F67F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503572   (819495) от 19.10.2021
-
-VA - Gentle and Calm Instrumental Covers: 14 Beautifully Relaxing Instrumental Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yann Nyman - I Will Survive (Arr. for Piano) (03:06)
-02. Jonah Paris - Both Sides, Now (Arr. for Saxophone and Piano) (04:19)
-03. Max Arnald - Suburbia (Arr. for Piano) (03:55)
-04. Chris Mercer - Rocket Man (Arr. for Guitar) (02:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6EC818846CF1F3B96C8062EDAB1FA5EF8DCE8F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503564   (819487) от 19.10.2021
-
-Kylie Minogue - DISCO (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Dance-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (4:11)
-02. Miss a Thing (3:57)
-03. Real Groove (3:15)
-04. Monday Blues (3:10)(   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7BAEA3A1F28F4B5F5817E86CA29DC5849B44B89
 ```
 
 https://mybot314.ru/tekegram_catalog/

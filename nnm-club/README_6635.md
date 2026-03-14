@@ -1,223 +1,25 @@
-###  Публикация: 1123859   (785967) от 10.04.2017
+###  Публикация: 1512352   (787406) от 24.11.2021
 
-VA - New York Night Tales: The Best Of Urban Chillout Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dragonfly - Downtime In Battery Park  3:29
-02.  The Great Calm - Scraping The Sky  4:50
-03.  Skye Dream - Above Strawberry Fields  4:38
-04.  Henry Kent - Lost On Broadway  6:14(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC16CAB1DFBE42B37F8246EA6531DCE99070385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124232   (785966) от 10.04.2017
-
-1Blocker - Block ads, tracking scripts, anything 1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785966.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Blocker - блокировка рекламы
-Не поиск и отсеивание рекламы является целью деятельности данной системы, но мониторинг веб-активности конкретной рабочей станции в целом. В составе 1Blocker более 7000 предактивированных отдельных механизмов и блокираторов, нацеленных на персональных противников. В роли таковых выступают скрипты, всплывающие объявления, роботы аналитических (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23.03.2017Разработчик: Salavat KhanovПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9671D5067FAC3DF970EA6ACF29EE0C9A984119E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124284   (785965) от 10.04.2017
-
-Газета | Наша Дача №3 (632) (2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785965.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Наша Дача» - газета является официальным печатным Союза садоводов России. Газета затрагивает все области, так или иначе связанные с садоводством, огородничеством, ландшафтным дизайном и здоровьем человека. Постоянные рубрики издания: Дачные советы, Огород без хлопот, Цветы у дома, Наш сад, Домашнему мастеру, Домашние питомцы, Здоровье дачника, Кулинарные шедевры, (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89510FDBB86EF68B7F07331EF8B43D3B5342C39D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124324   (785964) от 10.04.2017
-
-VA - Ultimate Chill Out: 01 The Best Downtempo Tracks and Mixes (2017) [MP3|320 Kbps] <Chill Out, Downtempo, Balearic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keyzero 1 - Blue
-02. The "K" - Break Pants
-03. Cyclopedia - Heaven
-04. Sandstorm - In The Waiting Line(   Читать дальше...   )Жанр: Chill Out, Downtempo, BalearicПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9283B26F87FE61427374D3FA8581480FDA5EEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124133   (785963) от 10.04.2017
-
-Pee Wee Crayton - Things I Used To Do (1971) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Night  (02:50) 
-02. But On The Other Hand  (04:06) 
-03. Peace Of Mind  (02:54) 
-04. Let The Good Times Roll  (02:50) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA4DC15530231ADD486FF78EF3C43E0B3DE663C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123745   (785962) от 10.04.2017
-
-VA - Ibiza's Finest - Lounge Vol.4 (Finest Lounge From The Island Of Love) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chris Le Blanc - Flor De Vida  5:05
-02.  Roberto Sol - Miles Beyond  4:37
-03.  Florito - Loungery  4:35
-04.  Chin Chiller - Moussique Au Chocolat  4:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC160F5923237F7B758B5E9A9881C824E2EC03DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124346   (785961) от 10.04.2017
-
-Showaddywaddy - Showaddywaddy (1974) [MP3|320 Kbps] <Rock & Roll, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Rock And Roll
-02. Bony Maronie
-03. Johnny Remember Me
-04. Temptation(   Читать дальше...   )Жанр: Rock & Roll, GlamПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4573D98C97E1FB98CB7C5BA034521CA5F9749B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124203   (785960) от 10.04.2017
-
-VA - Music For Peaceful Sleep (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Synthspace Electronic Music (2021) [MP3|320 Kbps] <Synthspace, Synthwave, Electronic>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785960.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001.  351 Lake Shore Drive - Black Coffee  5:23
-002.  Lazy Hammock - Naked Being  4:42
-003.  Javier Orlando - Deep In My Corazon (Martin Trevis Remix)  5:16
-004.  Velvet Dreamer - Night Raindrops  5:01(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:14:01
+001. Vindata - Already Home
+002. Dany Dz - Retrospective
+003. Boom Bip - Aplomb
+004. Diego Alvarado - Running Against Time(   Читать дальше...   )Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 09:02:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9807ED91E1723E8A1086424D3C8B6FDB589D1E02
+magnet:?xt=urn:btih:67E69AEF0BA3B8776F6AFA9687577F9C6598C8F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,25 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123866   (785959) от 10.04.2017
+###  Публикация: 1512210   (787405) от 24.11.2021
 
-Использование специальных полимеров позволит создавать более плотные схемы на кристаллах полупроводниковых чипов
+Такэси Сиота | Голос греха (2021) [MP3, Александр Аравушкин]
 
->>Поговорим
->>DailyTechInfo
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_785959.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Исследователи из Массачусетского технологического института разработали новую технологию, позволяющую создавать меньшие и более плотные электронные схемы на поверхности кристаллов полупроводниковых чипов, что, в свою очередь, позволит "сломать препятствия", стоящие на пути сохранения закона Гордона Мура. В этой технологии используется слой самособирающегося (   Читать дальше...   )
+…Вы нашли среди вещей своего отца старую аудиокассету и потрепанный дневник. И застыли от ужаса. Потому что, читая пожелтевшие страницы, поняли: ваш отец был причастен к самому громкому преступлению последних 30 лет. А с магнитной пленки доносится инструкция преступников, диктующая, куда им должны привезти деньги. И читает ее… ваш детский голос!
+Для Сонэ Тосии, преуспевающего (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 15:37:20
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:5B3999F10748A9FCA97B2E88F5CF18E9D69F5B62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,28 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124270   (785958) от 10.04.2017
+###  Публикация: 1512442   (787404) от 24.11.2021
 
-VA - Melodic Deep House Essentials Vol.2 (2017) [MP3|320 Kbps] <Deep House>
+Bros - Gold (2020) 3xCD, Box Set [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
 
->>Electronic
->>House
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785958.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Mario Chris - Beach  4:06
-02.  Deist - Go For More  4:49
-03.  Endless Heaven - Girls Just Want To Have Fun (Extended Version)  3:58
-04.  Marcus Brodowski - Like This (David Boenick Remix)  5:07(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:04:05
+Bros - британская музыкальная группа, активная во второй половине 1980-х и начале 1990-х годов. Основу группы составляли братья-близнецы Matt и Luke Goss (Bros - сокращенное от Brothers) и их школьный товарищ Craig Logan. Дебютный альбом группы Push (1988 ) покорил музыкальные чарты многих стран Европы, а у себя на родине стал четырежды платиновый. В следующем, 1989, (   Читать дальше...   )CD - 1:
+01. When Will I Be Famous (3:59)
+02. I Owe You Nothing (3:36)
+03. Drop The Boy (3:50)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 03:16:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDEC0E95C9800D6A96CC7D8B27A8012EC50B0109
+magnet:?xt=urn:btih:5AAE6AC9DA76BDE20A4D89D3E7484B0F3EBDA660
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,28 +83,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124197   (785957) от 10.04.2017
+###  Публикация: 1512181   (787403) от 24.11.2021
 
-VA - Chillout Hits Vol.6 (2017) [MP3|320 Kbps] <Chillout, Chillstep >
+Северная Эльба. Гамбург / Norderelbe. Hamburg (2021) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько впечатлений от Гамбурга начала 2021 года.Производство: Германия, second leftЖанр: документальный, видовойПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99ECA6C5758BEF8C67C3640E5F4D6CA4BA47AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512325   (787402) от 24.11.2021
+
+VA - Breath Of The Pacific Ocean: Progressive Trance Set (2021) [MP3|320 Kbps] <Progressive, Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785957.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Eva Elekktra - Brain Cells Cycle (West Coast Beach Mix)  5:28
-02.  Don Gorda Project - Dedicado  5:21
-03.  Tony Donner - And You Know It's True  5:46
-04.  Eric Norman & Mighty Real - Hot Gambles  6:25(   Читать дальше...   )Жанр: Chillout, ChillstepПродолжительность: 05:56:05
+001. 4joann - Ilannaq
+002. Bt - Never Odd Or Even
+003. Green Court - Shining
+004. Magnetic Preachers Collective - Drift Away(   Читать дальше...   )Жанр: Progressive, TranceПродолжительность: 11:14:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07B614E018B3041A6DC6F429C15FC63BD22DB696
+magnet:?xt=urn:btih:59ED422324B250A45A28BE0878646363C4BE6377
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,28 +138,235 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124248   (785956) от 10.04.2017
+###  Публикация: 1512171   (787401) от 24.11.2021
 
-Network Speed Monitor 2.0.12 [En]
+Каппадокия / Cappadocia (2021) WEBRip [VP9/2160p]
 
->>Архив торрентов
->>Архив 4Apple
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785956.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Network Speed Monitor - скорость сети в строке меню
-Network Speed Monitor - очень простая утилита для отображения текущей скорости сети в строке состояния, в том числе загруки/выгрузки (download/upload).
+Каппадокия – полупустынный регион в центральной части Турции. Он известен своими волшебными дымоходами – высокими конусообразными скальными образованиями.Производство: ТурцияЖанр: документальный, видовойРежиссер: Фатих КурутПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A4EA39DACF98E4E9F21449889C96088B669D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512172   (787400) от 24.11.2021
+
+Мавик 3 - В пространстве / Mavic 3 - In The Field (2021) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787400.jpg" />
+</div>
+
+
+###  Подробнее
+
+За последние 2 месяца я пилотировал новый DJI Mavic 3 во множестве невероятных мест.Производство: СШАЖанр: документальный, видовойРежиссер: Эммет СпарлингПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79624AF9DCE8404CFD979FF91E246F0AB9F4DC28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512179   (787399) от 24.11.2021
+
+Национальный лес Фишлейк / Fishlake National Forest (2021) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Национальный лес Фишлейк больше, чем все национальные парки штата Юта вместе взятые, с нетронутыми озёрами, огромными зарослями осин, красиво вырезанными каньонами, высокими горными вершинами и бесчисленными возможностями для отдыха.Производство: СШАЖанр: документальный, видовойРежиссер: Братья ПаттисПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F585C6A364619ECD473ED1C813ABE06654FA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512174   (787398) от 24.11.2021
+
+Мавик 3 - Путешествие ввысь / Mavic 3 - A Journey Above (2021) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие творца - это настойчивость. Это неустанная погоня за мимолётными моментами, безупречным моментом и запечатлением незабываемого. Отправьтесь в путешествие с DJI Mavic 3.Производство: СШАЖанр: документальный, видовойРежиссер: Натан МакБрайдПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2453AB83120072E66E39DB657C2E07A1F5A10A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512177   (787397) от 24.11.2021
+
+Глядя вверх / Looking Up (2021) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впечатления от моментов и мест из летних путешествий последних лет.Производство: СШАЖанр: документальный, видовойРежиссер: Стивен НанжерониПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0308E41902C0C7B7E531C4B15A3D0224FBD52EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512440   (787396) от 24.11.2021
+
+Adobe Substance 3D Designer 11.3.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя силу процедурного творчества. С помощью Substance 3D Designer создавайте бесшовные материалы и узоры, фильтры изображений, источники света или даже 3D-модели. Каждый актив может выводить бесконечное количество вариантов.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2021Разработчик: © 2021 Adobe SystemsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA387A6A2FC4F18EC35A7D1930C78BF5FA386EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512359   (787395) от 24.11.2021
+
+Завещание доктора Мабузе / Das Testament des Dr. Mabuse (1933) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главврач психиатрической больницы профессор Баум находит конспекты гипнотизёра и криминального гения доктора Мабузе, который сошёл с ума. Изучив записи, Баум решает воплотить криминальные планы Мабузе...Производство: Германия, Nero-Film AGЖанр: ужасы, криминал, детектив, триллерРежиссер: Фриц ЛангВ ролях: Рудольф Кляйн-Рогге, Томи Бурдель, Густав Диссль, Рудольф Шюндлер, Оскар Хёкер, Тео Линген, Моника Роллан, Морис Мэйллот, Камилла Спира, Жинетт ГоберПеревод: профессиональный многоголосый (Film Prestige)Субтитры: русские, английскиеПродолжительность: 02:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7D2F1881C95F740F910A03C9E653A478F77AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512258   (787394) от 24.11.2021
+
+Ложные улики / Gui ma zhi duo xing / All the Wrong Clues (1981) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив Йохо узнаёт, что из тюрьмы вышел мафиози А Капоне, которого он в своё время отправил за решетку. Разумеется, теперь Капоне мечтает поквитаться с обидчиком, но, в то же время, у него много и других дел – например, выкинуть из бизнеса морально устаревшие «четыре семьи», ранее руководившие криминальными делишками в городе, а также кинуть на большие (   Читать дальше...   )Производство: Гонконг, Cinema City & Films Co.Жанр: комедия, криминалРежиссер: Харк ЦуйАктеры: Джордж Лам, Тедди Робин, Карл Мака, Kee-chan Tang, Вэй Йиу, Jo-see Wong, Кики Чен, Чи Уинг Чан, Ким Ван Чан, Ying-Hao ChengПеревод: авторский (Андрей Дольский)Субтитры: английскиеПродолжительность: 01:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A1CD5E6E56643299FD6DAA3047E5BB045F4815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512256   (787393) от 24.11.2021
+
+Эд Данилюк | Сыщик Вийт и его невероятные расследования (2021) [MP3, Семён Ващенко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его мужественное лицо покрывают царапины. Но взгляд уверенный и беспардонный. Сделав комплимент очаровательной даме, он спешит распутать очередное громкое дело. Это легендарный сыщик Вийт.
 
-Когда ваш компьютер подключается к сети, вы можете увидеть текущую скорость сети с помощью Network Speed Monitor. Network Speed Monitor удобное приложением для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.04.2017Разработчик: CokeSoftПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
+Действие происходит в 2025 году, но мир все еще застрял в XIX веке. Мужчины носят цилиндры, дамы ходят в длинных платьях, повсюду пыхтят паромобили, на улицах и в домах горят (   Читать дальше...   )Жанр: Детективная фантастика, СтимпанкПродолжительность: 17:03:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32AF23CC3515CF406622A81221D51C6DD99DD10D
+magnet:?xt=urn:btih:A5559DB0E84133AAF09D247BDD24717D15772ABC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,28 +374,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124126   (785955) от 10.04.2017
+###  Публикация: 1512180   (787392) от 24.11.2021
 
-Wire - Silver/Lead (2017) [FLAC|Lossless|tracks + .cue] <Post-Punk>
+Назад к корням. Посетите Армению / Back to the Roots. Visit Armenia (2021) WEBRip [H.264/2160p]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785955.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Playing Harp For The Fishes
-02. Short Elevated Period
-03. Diamonds in Cups
-04. Forever & A Day(   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:36:03
+Сделайте вдох и погрузитесь в захватывающую дух красоту армянского пейзажа. Где бы я ни был, моё сердце всегда будет в горах.Производство: АрменияЖанр: документальный, видовойРежиссер: Нарек АрзуманянПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D94D41D16E415510F5131EBE4DEA39E1B765F3BE
+magnet:?xt=urn:btih:98F9DDB946D2F685439F9C0BBB84BA320E218AB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,28 +400,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123887   (785954) от 10.04.2017
+###  Публикация: 1512158   (787391) от 24.11.2021
 
-VA - All Night Grooves Tokyo Vol.4 (Lounge Music At Its Finest) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Soundbar Deluxe Chill Lounge, Vol. 3 (2017) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Electronic
->>Easy listening
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785954.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Florito - Miss Saigon  4:30
-02.  Project Weekend Sound - Some Kind Of Way  4:57
-03.  Roberto Sol - Burn  4:11
-04.  Mood Pitcher - The Peacock Song  3:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:17:17
+01. Aqualuna - Fall in Love (Vocal Chill Mix) (6:00)
+02. Richard Bonnee - My Tears of Elements (Artenovum Mystic Chillout Mix) (3:53)
+03. Dream Project - Anywhere in the World (Sphere Chillout Cut) (5:06)
+04. Jean Mare - Desert Moon (Chillout Deluxe Mix) (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:31:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B7CA6C3D5A0017B43140DC4B0D784730A5E8A76
+magnet:?xt=urn:btih:671367273D50C7EAAD13430E90557080974155C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,26 +429,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124273   (785953) от 10.04.2017
+###  Публикация: 1512164   (787390) от 24.11.2021
 
-Журнал | Профиль №13 (994) (апрель 2017) [PDF]
+VA - Soundbar Deluxe Chill Lounge, Vol. 6 (2020) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Журналы
->>Другие журналы
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785953.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой-аналитическийФормат: PDF
+01. Jean Mare - Discover a Nu World (In the Light Mix) (5:11)
+02. Artenovum - Innocence (Mystic Voices World Mix) (4:43)
+03. Book of Dreams - Trancephonia (Psytrance Chillout Mix) (8:02)
+04. Dave Neville - Focus (Deep Electronic Groove Mix) (6:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0675B18C486C073A2CB3D2895BE8242373A0AFBF
+magnet:?xt=urn:btih:D385ADA5DE3A477E327502E54060CF8AB3C9279A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,28 +458,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123821   (785952) от 10.04.2017
+###  Публикация: 1512163   (787389) от 24.11.2021
 
-VA - Best Of Chillout 100 Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Balearic>
+VA - Soundbar Deluxe Chill Lounge, Vol. 5 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Electronic
->>Easy listening
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785952.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001.  Matthias Reis - Dark Places (Outro)  0:51
-002.  Roben Bucks - Wilderness  2:13
-003.  Heso - Peaceful  5:45
-004.  Emanuela Visentin - Hotelplan (Chillout Mix)  3:53(   Читать дальше...   )Жанр: Downtempo, Chillout, BalearicПродолжительность: 08:14:45
+01. Artenovum - Colours of My Mind (Deep East Cut) (4:51)
+02. Jean Mare, Svetlana - Everything (5:58)
+03. For Found Future - A Place in the Sun (Sunset Chillout Mix) (4:56)
+04. Be Free - Belletic (Chillout Mix) (3:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E02A13BC6E649509364D980384BEAF8821FA165
+magnet:?xt=urn:btih:93BDE7EA0622D6C6AB76740F4B7159E712C5CA70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,28 +487,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123970   (785951) от 10.04.2017
+###  Публикация: 1512182   (787388) от 24.11.2021
 
-Brian Setzer - Rockabilly Riot! All Original (2014) [FLAC|Lossless|image + .cue] <Rockabilly, Rock & Roll>
+Аляска - Внутренний проход / Alaska - Sailing the Inner Passage (2021) WEBRip [H.264/2160p]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785951.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Let's Shake  (03:29) 
-02. Rockabilly Blues  (03:43) 
-03. Vinyl Records  (03:22) 
-04. Lemme Slide  (02:04) (   Читать дальше...   )Жанр: Rockabilly, Rock & RollПродолжительность: 00:39:57
+4 друга отправляются в эпическое путешествие на парусной лодке, чтобы получить незабываемые впечатления.Производство: СШАЖанр: документальный, видовойРежиссер: Джо СаймонПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DD1D91810C67F0B7212987030A079A8010725ED
+magnet:?xt=urn:btih:2BF18BB4E4128568DFC66532445CB9A1B70E700D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,28 +513,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123685   (785950) от 10.04.2017
+###  Публикация: 1512183   (787387) от 24.11.2021
 
-VA - Melodic Vocal Lounge Vol.1: Chill Out Summer Session (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Лето / Sumarid (2021) WEBRip [H.264/2160p]
 
->>Electronic
->>Easy listening
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785950.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Chilhouette - All I Wanna Be  4:12
-02.  Debora Vilchez - The Words You Said (Smooth Vocal Flair Mix)  5:23
-03.  Major Pete - Just Three Words (Vocal Mix)  4:35
-04.  Dimentia - You Don't Know (Vision Of Love Mix)  4:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:34:16
+Коллаж из моментов путешествия по Исландии весной и летом 2021 годаПроизводство: ИсландияЖанр: документальный, видовойРежиссер: Олафур Мар БьорнссонПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0DC9B98EB6EC8D5F2B327B7CA1C54A7065BF2F9
+magnet:?xt=urn:btih:79D16653A20FD93869C3F3A13A9CCECDEE8F0D00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,28 +539,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123935   (785949) от 10.04.2017
+###  Публикация: 1512213   (787386) от 24.11.2021
 
-VA - Aerobic Dance Hits 2017 (30 Best Songs For Workout) (2017) [MP3|320 Kbps] <House, Electro House, Progressive>
+Oбработка Александра Афанасьева | Русские народные сказки (2013) [MP3, Ирина Мохова]
 
->>Electronic
->>House
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785949.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Maury J & Dave Baron - Not Around Me (Extended Mix)  4:29
-02.  Lil' Lee - Rumba Samba (Enea Marchesini Power Remix Extended)  4:52
-03.  David Pole & Martika ft. The Romy - Join The Party (Extended Mix)  4:12
-04.  Clubhunter - Tell Me (Turbotronic Mix)  4:11(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 03:12:23
+Александр Николаевич Афанасьев является одним из самых известных исследователей русского фольклора – преданий, обычаев и верований. Собранные и пересказанные им русские народные сказки являются источником настоящего, живого русского языка, воскрешают основы русских традиций и мышления. Кроме того, представленные на сайте сказки помогут взрослым и детям через необычайные (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 02:02:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C920C3441B3B980BA189C90B65696B2E9F0C89E1
+magnet:?xt=urn:btih:7E07B45A5DE11AE878ADC4C25AE160EE77B5FBC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -539,28 +565,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123797   (785948) от 10.04.2017
+###  Публикация: 1512344   (787385) от 24.11.2021
 
-VA - Deep House Hits 2017 - Armada Music  [MP3|320 Kbps] <Progressive House>
+Завещание доктора Мабузе / Das Testament des Dr. Mabuse (1933) BDRip [H.264]
 
->>Electronic
->>House
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785948.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lost Frequencies – All Or Nothing (feat Axel Ehnstrom)
-02. Syn Cole – The Daze (feat Madame Buttons)
-03. Niko The Kid X Bee’s Knees – Give It To You (feat Cade)
-04. Alok & Liu – All I Want (feat Stonefox)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:32:09
+Главврач психиатрической больницы профессор Баум находит конспекты гипнотизёра и криминального гения доктора Мабузе, который сошёл с ума. Изучив записи, Баум решает воплотить криминальные планы Мабузе...Производство: Германия, Nero-Film AGЖанр: ужасы, криминал, детектив, триллерРежиссер: Фриц ЛангВ ролях: Рудольф Кляйн-Рогге, Томи Бурдель, Густав Диссль, Рудольф Шюндлер, Оскар Хёкер, Тео Линген, Моника Роллан, Морис Мэйллот, Камилла Спира, Жинетт ГоберПеревод: профессиональный многоголосый (Film Prestige)Субтитры: русские, английскиеПродолжительность: 02:01:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0E4105A62F8AABBEAE1673E4131E15D3B4D0696
+magnet:?xt=urn:btih:21D7F330C45EDDED87E21D530BB0885657F7A0DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,25 +591,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124271   (785947) от 10.04.2017
+###  Публикация: 1512340   (787384) от 24.11.2021
 
-Ashampoo Snap 10.0.1 Portable punsh [Multi/Ru]
+K-Lite Codec Pack Update 16.5.7 [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785947.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нет способа проще для создания скриншотов и видео, чем использовать Ashampoo Snap 10. Захватывайте и редактируйте всё, что видите на Вашем экране. Новая Ashampoo Snap 10 содержит множество улучшений и умных усовершенствований. Во-первых, Snap теперь может захватывать полноэкранные 3D игры. Новый редактор видео сжимает записи до определённого размера без потери качества, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B9177EC133F44E68A3D17688BB88776C653D81C
+magnet:?xt=urn:btih:96D48DF1381AFA4EE996034C1837F609D58DC542
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -594,28 +617,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123747   (785946) от 10.04.2017
+###  Публикация: 1512165   (787383) от 24.11.2021
 
-Антон Чехов | 7 страниц Чехова (2010) [FLAC]
+VA - Soundbar Deluxe Chill Lounge, Vol. 7 (2021) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785946.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы перестали читать друг другу. Рассказы А.П. Чехова в исполнении Андрея Бурлуцкого немного восполняют эту утрату.
-В героях Чехова вы можете увидеть страдающих, несчастных и комичных людей ("Исповедь", "Сапоги").
-Многие рассказы А.П. Чехова представляют собой практически готовые сценки. Слушая их представляешь все живьем.
-Вот, посланный с печальной (   Читать дальше...   )Жанр: ПрозаПродолжительность: 01:03:20
+01. Jean Mare - Beautiful Sunset (4:15)
+02. Guardians of Secret - Pigments (Voices World Cut) (4:07)
+03. Richard Bonnee - Sequence (6:29)
+04. Artenovum - Beyond The Sky (4:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A48CC7D7C29A583CAA35B1F57B789F1FAA05D84
+magnet:?xt=urn:btih:D529236769B70DC12421D5AFAE93A490BFFE5896
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,28 +646,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123243   (785945) от 10.04.2017
+###  Публикация: 1512161   (787382) от 24.11.2021
 
-VA - Reworks (2017) LP [MP3|320 Kbps] <Drum & Bass>
+VA - Soundbar Deluxe Chill Lounge, Vol. 4 (2018) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Архив торрентов
->>Архив Музыки
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785945.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Not Your Idol (Current Value Remix)
- 02. It Gets Rough Sometimes (Gydra Remix)
- 03. Be Yourself (Klute Remix)
- 04. Megahertz (Gridlok M.F. Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:36:04
+01. Artenovum - Wide Country (Relax Sphere Cut) (6:42)
+02. Richard Bonnee - Morning Sitar (Atmosphere Mix) (4:43)
+03. Jean Mare - Space Moments (Ambient Lounge Sphere Mix) (5:48)
+04. Mare et Monti - Way of Life (Sunny Island Mix) (5:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4D16E46189CF3F34ECEEFD02166BFCF288901C2
+magnet:?xt=urn:btih:37D4D53F38E6884EE86EF14806C3C18B08D71DC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -652,80 +675,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124355   (785944) от 10.04.2017
+###  Публикация: 1512155   (787381) от 24.11.2021
 
-Специальный корреспондент. Удар по Сирии (2017.04.10) SATRip
+VA - Soundbar Deluxe Chill Lounge, Vol. 2 (2016) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785944.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Специальный корреспондент" - это популярная публицистическая программа, которая выходит на телеканале "Россия" с сентября 2002 года. Каждую неделю один из ведущих рассказывает в своем фильме-репортаже о какой-либо актуальной проблеме, существующей в современном обществе, посвящает зрительскую аудиторию в подробности наиболее значимых для страны (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 02:12:15
+01. Artenovum - X Dreams (5:43)
+02. Jean Mare - Skydrops (Nu Chill Groove Mix) (5:08)
+03. For Found Future - The Forest Dreams (Artenovum Piano Mix) (5:02)
+04. Guardians of Secret - Gregorian Temple (Nu Artenovum Mix) (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0030B9884E1BE34A8C243E43795727C59E972922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124222   (785943) от 10.04.2017
-
-Однажды в России (2017.04.09) HDTV [H.264/1080i] (сезон 5, выпуск 4)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272D77B81AE508AD9E0E7CAA5239428CC58000DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124103   (785942) от 10.04.2017
-
-VA - Music For Everyone - Breaks & Breakbeat Vol.5 (2017) [MP3|320 Kbps] <Breaks, Breakbeat>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785942.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. GRiZ feat. Mike Avery - The Anthem (Original Mix)
-2. Hannah Williams & The Tastemakers - Get It (CMC & Silenta Remix)
-3. Jayl Funk - Keep On Dancing (Original Mix)
-4. Marky Mark & The Funky Bunch - Good Vibrations (Original Mix)(   Читать дальше...   )Жанр: Breaks, BreakbeatПродолжительность: 01:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE2C44C2A94FECD3CE7E971DA64860EDFD76C7D
+magnet:?xt=urn:btih:41C30252093AA1582C680AA9992A90673D4A904C
 ```
 
 https://mybot314.ru/tekegram_catalog/

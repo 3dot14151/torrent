@@ -1,3 +1,61 @@
+###  Публикация: 1509350   (794890) от 12.11.2021
+
+Ани Лорак - Я Жива (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794890.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Страдаем и любим
+2. Наполовину
+3. Не отпускай меня
+4. Раздетая(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126C22B8B9AD4359D3BD73EC2898DF108AC56E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200926   (794830) от 22.01.2018
+
+VA - Legends: Ministry Of Sound (2017) [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794830.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Queen  -  A Kind Of Magic  4:23
+02.  George Michael  -  Faith  3:04
+03.  Elton John  -  Rocket Man  4:39(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 03:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E2F2A98FBF06EA151C6C680EF0DB554DD72986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012210   (794496) от 30.04.2016
 
 Zucchero - Black Cat (2016) [MP3|320 кб/с] <Pop, Rock, Folk, Blues>
@@ -685,64 +743,6 @@ Justin Timberlake - Man of the Woods (2018) [MP3|320 Kbps] <Pop, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AA7FC00E3DFB260A0A246C57D62BCB91959F8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276035   (789010) от 14.01.2019
-
-VA - 50 Chart Hits of 2019-The Winter Workout Album (2019) [MP3|320 Kbps] <Nu Disco, Pop, Club>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chrizz Morisson & Jair - Baby (Don't Let Me Be Alone) (Dolls House Remix) 3:55
-02. B.G. The Prince Of Rap Feat. Timi Kullai & Nathan Reynolds Iii - Once You Have Me (Remundo Remix) 5:00
-03. Chrizz Morisson & Latisha Van Simon - From Here On Up (Dolls Uk Edit) 3:12
-04. Real System - There Is No More Love (Randy Norton Edit) 3:43(   Читать дальше...   )Жанр: Nu Disco, Pop, ClubПродолжительность: 03:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB64D06B84FA6FE9C0768F37FAB03065620703B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511396   (788848) от 21.11.2021
-
-VA - The Best New Year's Party Album In The World...Ever! (2021) Explicit [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. THE ANXIETY - Meet Me At Our Spot [00:02:42]
-02. Billie Eilish - bad guy [00:03:14]
-03. Surf Mesa - ily (i love you baby) [00:03:01]
-04. Maroon 5 - What Lovers Do [00:03:19](   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 08:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AD26D0C02CADBE318E1FCCB40E51F5671D2ADA
 ```
 
 https://mybot314.ru/tekegram_catalog/

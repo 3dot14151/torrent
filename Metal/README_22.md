@@ -1,3 +1,32 @@
+###  Публикация: 1375023   (869098) от 12.04.2020
+
+Dawn Of Winter - Pray For Doom (2018) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 A Dream Within A Dream
+02 The Thirteenth Of November
+03 Woodstock Child
+04 The Sweet Taste Of Ruin(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84780FB7A279F933F7A811FFDB12CCB600CF7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374929   (869095) от 12.04.2020
 
 Graveyard Disciples - Devil's Night (2020) [MP3|320 Kbps] <Heavy Metal>
@@ -716,35 +745,6 @@ Vermicide Violence - The Praxis of Prophylaxis (2020) [MP3|320 Kbps] <Deathcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E2C62E2EF54AE8BEF7B88069AD52608011AB187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376340   (860693) от 17.04.2020
-
-Jarrod Alonge - Beating a Dead Horse (2015) Deluxe Edition [MP3|320 Kbps] <Metalcore, Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Swimmer [00:03:51]
-02 - Love Me Back (feat. Cody Carson) [00:03:28]
-03 - Unbreakable [00:04:26]
-04 - Save My Life [00:04:07](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD4F55006FD077F99A302DEDAB31BCC0CF6C463
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1695920   (119929) от 31.01.2024
+
+VA - Jazz Lounge Relaxation Intimate Moments Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - My World (5:25)
+02. Konstantin Klashtorni - Together Again (4:07)
+03. Chillaxing Jazz Kollektion - Home (5:42)
+04. Chillaxonic - Ethereal (5:09)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E0F50BCAD7C70C23982AB22537C510A1C272AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695918   (119923) от 31.01.2024
+
+VA - Fusion Jazz Funk Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black & Brown - P-Lainz (6:23)
+02. Elegant People - Stand Up And Dance (5:03)
+03. The Soultrend Orchestra - 3 Of a Kind (3:27)
+04. Bright Magus - Jungle Corner (5:24)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz Rock, FunkПродолжительность: 01:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0558BA2FE67F9E018C39AA06B2D2039980FC70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271422   (119841) от 01.02.2024
+
+Kenny Neal - 16 Albums (1988 - 2016) [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Louisiana Blues, Swamp Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kenny Neal - блюзмен второго поколения c южной Луизианы, старший сын знаменитого блюзмена из Батон Руж (Луизиана) Raful Neal. Он родился в музыкальной семье, а знаменитый Slim Harpo дал свою гармонику трехлетнему Kenny, чтобы упокоить его. С тех пор Kenny освоил не только гармонику, но и гитару, хотя начинал он еще подростком в качестве бас-гитариста в группе отца. (   Читать дальше...   )Список альбомов:
+1988 - Big News From Baton Rouge! (Alligator Records)
+1989 - Devil Child (Alligator Records)
+1991 - Walking On Fire (Alligator Records)Жанр: Modern Electric, Louisiana Blues, Swamp BluesПродолжительность: 13:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C70A9748D773B3BADB4AA68C04C81E4103644FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696130   (119782) от 01.02.2024
+
+Club Des Belugas - Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ai Mi Morena (feat. Mo' Horizons)
+02. Peanut Vendor (feat. Anita O'Day)
+03. Hazy (feat. Queen Mab)
+04. The Secret (feat. Mister T, Jean Honeymoon)(   Читать дальше...   )Жанр: Nu Jazz, Broken BeatПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6144BB8B22C9F3A57AD04121DF40BBB4AD67A245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696125   (119752) от 01.02.2024
+
+Ron Blake - Sonic Tonic (2005) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invocation [8:26]
+02. Chasing the Sun [5:21]
+03. Your Warm Embrace [1:52]
+04. Dance of Passion [5:33](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 01:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0D79A987270F815729DE3C9F59BD6F8B1F9D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696335   (119605) от 02.02.2024
+
+Dave Pell - Four Classic Albums (1956 - 1957) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Had The Craziest Dream [2:54]
+02. The Way You Look Tonight [2:23]
+03. Nap’s Dream [5:14]
+04. Time After Time [3:14](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 02:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AA0388BFDAD08573ED161CE1AE2CBE8A7AFDFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696340   (119604) от 02.02.2024
 
 Anita O'Day - Indestructible! (2006) Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -572,180 +746,6 @@ Funky Bluester - Expensive & Dirty (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:659602C2DA91384FA64C7C8B48A4147CEB01B998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697246   (118934) от 06.02.2024
-
-VA - Cafe Deluxe Chill Out - Nu Jazz  Lounge, Vol. 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundset City - Late Night (3:34)
-02. Nightview - Nightdrive (3:15)
-03. Jean Mare - Only Lounge (3:17)
-04. Audiozoom - 5th Pleasure (3:14)(   Читать дальше...   )Жанр: Chill Out, Nu JazzПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFE973626ABEFE1532E24D829AA73894E56FDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697423   (118928) от 06.02.2024
-
-Vintage Lounge Orchestra - Ultimate Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lo-Fi, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (feat. Laura Serra)
-02. I've Been Waiting for a Girl Like You (feat. Alessandro Pitoni)
-03. I Can See Clearly Now (feat. Daniele Vit)
-04. Georgy Porgy (feat. Wendy Lewis)(   Читать дальше...   )Жанр: Nu Jazz, Lo-Fi, Easy ListeningПродолжительность: 01:20:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30309CB7061886FBCCFEEC0E9EB3DD6025EAA52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697321   (118925) от 06.02.2024
-
-Bourbon Street Revival - Bourbon Street Revival (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolution (4:44)
-02. No More (5:06)
-03. Nine Minutes of Bliss (3:23)
-04. Ain't No Use (5:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD8C26BEEEF6E73D570993CE7A2A9CD93B3FEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697322   (118924) от 06.02.2024
-
-Bubba Henry - It Is What It Is (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let the Blues Be the Blues (4:14)
-02. I'm a Bluesman (3:18)
-03. Me and Memphis (3:41)
-04. Losing the Blues (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51711CB938DBF8D8A7762E9E5EDA7D0023AEA64F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697335   (118918) от 06.02.2024
-
-The CrossRoadBand - Reload (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reload (4:52)
-02. Fallin in Love (2:53)
-03. U Never Love Me (3:48)
-04. Don't Leave Me (3:17)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890437C371B375AB93C6A348F6DB2E0A33BB84B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697332   (118917) от 06.02.2024
-
-Sean Riley & The Water - Stone Cold Hands (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Me One More Time (2:51)
-02. Go Easy On Me (2:59)
-03. Stone Cold Hands (4:03)
-04. Truck Route Blues (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70EEC347444EFD0EE44443D5DA5F5D437149C575
 ```
 
 https://mybot314.ru/tekegram_catalog/

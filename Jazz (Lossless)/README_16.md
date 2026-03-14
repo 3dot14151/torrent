@@ -1,3 +1,32 @@
+###  Публикация: 1473594   (1013518) от 30.05.2021
+
+VA - Smooth Jazz 2021 [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Restuccia - Arrival (4:23)
+02. Lin Rountree - Fluid (4:25)
+03. Kayla Waters - Signs and Wonders (3:14)
+04. Nick Colionne - Romantic Nites (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9836D6625D382433A5A260F66F0950F27E268B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473943   (1013404) от 31.05.2021
 
 Ethan Iverson & Umbria Jazz Orchestra - Bud Powell In The 21st Century (2021) Sunnyside Communications, Inc. [FLAC|Lossless|tracks + .cue] <Modern Big Band, Post-Bop>
@@ -716,35 +745,6 @@ Stan Getz - Communications '72 (2007) Gitanes Jazz [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EDBC6F9F19DAAFF112F5CB090E5126C8664C0FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479961   (1009344) от 26.06.2021
-
-Amos Hoffman, Edwin G. Hamilton - Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz Funk, Groove, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009344.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Let's Have Fun - 03:30
-2. American Dream - 04:12
-3. Southern Hospitality(Feat. Mark Rapp) - 04:01
-4. Genuine Love - 04:17(   Читать дальше...   )Жанр: Fusion, Jazz Funk, Groove, SoulПродолжительность: 00:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB1A03D930F659F92167610407DFE56AAF298DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

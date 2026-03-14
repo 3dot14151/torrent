@@ -1,3 +1,177 @@
+###  Публикация: 1638416   (237703) от 09.06.2023
+
+Texas Scratch - TEXAS SCRATCH (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Texas Trio (2:51)
+02. I'd Rather be Lucky Then Good (4:32)
+03. What The Devil Loves (3:35)
+04. Trip Hammer (4:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0EFDEA2F1001A6FEC329B2A9600B5926235A17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449300   (237691) от 21.02.2021
+
+Eric Dolphy - 12 Classic Albums (1959 - 1962) 6CD, 2014, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237691.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Caribe [10:06]
+02. Blues in 6:8 [5:45]
+03. First Bass Line [4:09](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Free JazzПродолжительность: 07:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46EECFEF55DEC07F1C49BB387C485009697697B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449391   (237674) от 21.02.2021
+
+Robert Heft - The Days That Used to Be (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Wrongs Are Turning out Right (3:08)
+02. Another Bend in the Road (4:29)
+03. Fruit Salad (6:11)
+04. If I Go (4:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:360ED43429C2554246113250F94FB6EF33E84602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449396   (237667) от 21.02.2021
+
+Steve Keenan - In My Hands (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Buzz (3:25)
+02. Lucky One (3:39)
+03. Drowning Sorrows (4:05)
+04. Gamblers Hand (4:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F734516132AEAD6BBE08F19A24F4EB9518990F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638421   (237665) от 09.06.2023
+
+VA - Blues BBQ - No Better Cure for Sadness Than Blues And Barbecue (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down Home Percolators -- Mississippi Moan (Live 2004) (3:27)
+02. James "Sparky" Rucker -- A Beautiful Life (3:24)
+03. Willie Mabon -- Little Red Rooster (4:18)
+04. J.B. Lenoir -- I Feel so Good (1:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4704B9F11E6D5BAE4D919E49EBAE1AA88E916B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638406   (237644) от 09.06.2023
+
+Kaz Hawkins - Until We Meet Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pray To (4:57)
+02. Get Up And Go (4:24)
+03. The River That Sings (3:44)
+04. Hold On For Home (4:34)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0CEB1FEF1E242069B84ECDF3AB7BC460D61A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638423   (237628) от 09.06.2023
 
 VA - Brothers of Blues - Old Recordings of Guitar and Harmonica Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Paul Boddy & The Slidewinder Blues Band - Nosy Neighbors (2023) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5EF7545D6349ED05F05F245AF53FF1023319B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627312   (237293) от 19.04.2023
-
-The FuZz Blues - Seven (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come to Road (2:41)
-02. Dad (2:20)
-03. Don't You Call My Name (3:30)
-04. Lord (3:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4064FFCA4FA17550CD97DD462B02CE9E54B61BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627317   (237277) от 19.04.2023
-
-Zed Mitchell - Live @ Croatia Records Studio (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm River  (1:33)
-02. Money For My Blues  (4:59)
-03. One Night In Berlin  (5:49)
-04. River Minus Water  (7:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CFB0A8995CF15DC61DBE681CD10517180F992BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627746   (237212) от 20.04.2023
-
-Buck Clayton - Goin' To Kansas City (1960) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello, Babe [3:04]
-02. An Old Manuscript [3:31]
-03. Kansas City Ballad [3:10]
-04. The Jumping Blues [4:12](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE51EA8366B561DF29FBBEDBCBE6C79C7B181741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627750   (237205) от 20.04.2023
-
-Phil Woods - Rights Of Swing (1961) 2001, King Record [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude and Part I [6:46]
-02. Part II (Ballad) [7:52]
-03. Part III (Waltz) [5:56]
-04. Part IV (Scherzo) [11:34](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDBDE12D7ED0450D413D7A18F43E8128082D10B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452164   (237204) от 05.03.2021
-
-Willie ''The Lion'' Smith - 1937 - 1938 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Achin' Hearted Blues [3:04]
-02. Honeymoonin' on a Dime [2:45]
-03. The Dipsy Doodle [2:51]
-04. That's a Plenty [2:32](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3464346FB44E1766A5F042076DD9EDC8D7995A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638604   (237194) от 12.06.2023
-
-Relaxing Piano Crew - Jazz Ballad Piano Played in a Hideaway Restaurant (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keeping a Great Secret (2:30)
-02. Induvidual Eating Moods (2:08)
-03. Listening to Some Ballads (2:10)
-04. Rampant Restaurant Ragtime (2:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67FD5081D56F77078B2CAE5D7F24EEFFAF3AE838
 ```
 
 https://mybot314.ru/tekegram_catalog/

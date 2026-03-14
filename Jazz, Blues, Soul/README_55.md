@@ -1,3 +1,61 @@
+###  Публикация: 1358543   (968825) от 08.02.2020
+
+Ivan Paduart - Alone (2005) Alone Blue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So [4:20]
+02. Renaissance [2:34]
+03. Arythmie [1:49]
+04. Spring in Your Mind [1:26](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EDF17AA0241D189D633EFDD74C9E5F507AA921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976673   (968814) от 18.01.2016
+
+Даниил Крамер (Daniel Kramer) - Вальс для прелестной жены (Waltz For A Lovely Wife) (2000) Ermatell Records[FLAC|tracks+.cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Waltz for A Lovely Wife (Phil Woods) [08:05]
+ 02.A Child Is Born (Ted Jones) [08:49]
+ 03.Memories of Tomorrow (K.Jarrett) [07:26]
+ 04.Sea Journey (C.Corea) [09:23](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2270FFABA3CA631DC510F5AF9BDECDB7AE79FFA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358588   (968800) от 08.02.2020
 
 Blossom Dearie - My New Celebrity Is You (2020) 1976 [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -687,64 +745,6 @@ Ellis Marsalis - The Classic (1963) 1991, AFO Records[FLAC|tracks+.cue] <Post-Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48F6C58C2D33024BEF7140ED6BF6F1CB9B3C26AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977977   (964795) от 22.01.2016
-
-Michel Camilo - Solo (2005) Telarc[FLAC|tracks+.cue] <Post-Bop, Latin Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Dream [04:02]
- 02.Minha (All Mine) [03:31]
- 03.Our Love Is Here To Stay [03:37]
- 04.Reflections [09:28](   Читать дальше...   )Жанр: Post-Bop, Latin Jazz, Piano JazzПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D59FAFBA16C07D913461B5EEFCEF2DD8E6964D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977967   (964728) от 22.01.2016
-
-Chet Baker - The Early Years (1952-1954) 4CD, 2005, Proper Records[FLAC|tracks+.cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964728.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - My Funny Valentine:
-01.Out of Nowhere [16:21]
-02.The Squirrel [14:45]
-03.They Didn't Believe Me [06:18](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 05:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B2FBF9DB348EF55A0ED76D417EAC019FFA4E0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

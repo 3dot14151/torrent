@@ -1,3 +1,32 @@
+###  Публикация: 1828745   (193402) от 24.10.2025
+
+VA - Anything and everything assorted part 8 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, AI, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dova Music - Hold Me Tonight
+02 - Jumanov - October
+03 - Mr Salama - Feel Your Love
+04 - Stive Morgan - Chicago Plus(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, AI, OtherПродолжительность: 01:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCE753A8EDDAED00CAA0BE74BBF1E6FDFF14859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827776   (193287) от 23.10.2025
 
 VA - Anything and everything assorted part 7 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
@@ -713,35 +742,6 @@ VA - Music News vol.227 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE910FEABF1D67473826E0438DC5A444BE2D0628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590258   (189041) от 13.11.2022
-
-VA - В машине с музыкой Vol.318 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altair Feat. & Abbi - Как Ты Там (02:43) 2022
-02. Nola  - Милая (03:21) 2022
-03. Kolunov Feat. & Фактор 2 - Красавица (02:51) 2022
-04. Lehov  - Веду За Руку (02:52) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA29E80026A0FE642E7D56DC55D2B80931FEE7EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

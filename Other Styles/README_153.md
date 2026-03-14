@@ -1,3 +1,148 @@
+###  Публикация: 1830280   (202378) от 26.10.2025
+
+Paul Mauriat - Le grand orchestre de Paul Mauriat - Volume 5 (1967) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un tout petit pantin
+02. This Is My Song
+03. Penny Lane (Instrumental)
+04. Love Is Blue(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688D9021DD3B4048384F59AD8A57A585009307B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614455   (202330) от 23.02.2023
+
+VA - Atomic Heart - Vol.1 (2023) [FLAC|Lossless|tracks] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песняры - Косил Ясь’ Конюшину (Mujuice Acid Remix)
+02. Земляне - Трава у Дома (Geoffrey Day Remix)
+03. Алла Пугачёва - Арлекино (Geoffrey Day Remix)
+04. Владимир Кузьмин - Я Не Казанова (Geoffrey Day Remix)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552DE5E3059BCCB6967A79E39E1C696B2074A45B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654838   (202249) от 23.08.2023
+
+Ah Nee Mah - Sacred Nation (2017) [FLAC|Lossless|tracks + .cue] <New Age, Native American, Tribal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning on the Mesa
+02. Ghosts of the Canyons
+03. Trail of the Ancients
+04. The White Wolf(   Читать дальше...   )Жанр: New Age, Native American, TribalПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC77C7C647A5C15F4F5C395D314217BF7EEA6191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615787   (202169) от 27.02.2023
+
+Otyken - Дискография (2018-2023) 7 релизов  [MP3|320 Kbps] <Ethnic, World Music, Dance House, Горловое пение>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phenomenon [05:50]
+02. Pulse [07:15]
+03. Storm (2023) [04:20]
+04. White Mountain (2023) [07:41](   Читать дальше...   )Жанр: Ethnic, World Music, Dance House, Горловое пениеПродолжительность: 04:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FF610879D7B34F2CAF95B2B84AD0C56913D3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829591   (202031) от 25.10.2025
+
+Francis Goya & Norman Candler Magic Strings - More Than Ever (Remastered) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme for a Lady (Remastered)
+02. Theme of a Young Love (Remastered)
+03. Brokenhearted Me (Remastered)
+04. My Sweet Lady (Remastered)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8314741228500E214732DC9A4A34D9A26948DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829604   (201991) от 25.10.2025
 
 Paul Mauriat - The Russian Album (1993) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
@@ -600,151 +745,6 @@ VA - Мурка•Блатные и уличные песни (2000) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6ECF87EBB191F662F31922CFFDCA38A00E92C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655059   (193920) от 24.08.2023
-
-VA - The Orient Collective: Mystical Sounds of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mystic - Soul of the Universe (5:26)
-02. Mikhail Catan - Solace (6:24)
-03. Gumale - Scenery (7:11)
-04. Ali Termos - Road to Mombasa (Evan Mars Remix) (7:26)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F8506D7B2AD693180ADB2778A61988272525B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654919   (193913) от 24.08.2023
-
-VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atman (US) - Namekia (6:49)
-02. Mikhail Catan - Away (7:23)
-03. Tamer ElDerini - Fagr (5:42)
-04. Michael Simon - Canzul (6:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B3D37036B4F383BC22BC0214D61F8C8744C0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828014   (193752) от 23.10.2025
-
-Armik - Romantic Spanish Guitar, Vol. 2 (2015) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds of Passion
-02. Breathless
-03. Guitanova
-04. Isla Mujeres(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E96796425674DC2F3C4A0F85FEC97C91E9914EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828051   (193639) от 23.10.2025
-
-Francis Goya - Douce France, Vol.1-2 (2022) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol.1:
-01. Ballade Pour Adeline
-02. Belle
-03. Comme Ils Disent(   Читать дальше...   )Жанр: Instumental |Продолжительность: 01:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0952DE778488A53381527D4573E0FE64CB0183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828010   (193262) от 23.10.2025
-
-Armik - Romantic Spanish Guitar, Vol. 1 (2014) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing In The Clouds
-02. Guitarra Poeta
-03. Romance De La Luna
-04. Lagrimas(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4524BBBAF1D010F92F762D8AF533DE88F31D22A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

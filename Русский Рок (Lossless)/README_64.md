@@ -1,3 +1,145 @@
+###  Публикация: 1690698   (123793) от 08.01.2024
+
+KATCH Me Please - Дом (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. К облакам [00:04:50]
+02. Полетать [00:03:55]
+03. Жертвы [00:03:31]
+04. 29 [00:04:48](   Читать дальше...   )Жанр: Alternative Metal, Metalcore, ElectronicПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84D8852C52B752447D188341BADCA9829154777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690756   (123664) от 09.01.2024
+
+МорроЗ - Гады и ублюдки (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кощей [00:05:44]
+02. Варяги [00:05:04]
+03. Корчма [00:05:40]
+04. Кровопускатель [00:04:57](   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D074F2350D6349324509478169CE1ABAE2902F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690758   (123631) от 09.01.2024
+
+Proteos - Эпитафия (2023) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [00:02:12]
+02. Ад внутри [00:03:32]
+03. 16:10 (album mix) [00:03:40]
+04. Атом в нас [00:04:04](   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B7FD7F8324E3516296CE833A710352294ED98D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690757   (123622) от 09.01.2024
+
+Вилы - Время вопросов (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [00:01:12]
+02. Самый плохой человек [00:02:28]
+03. Званый ужин [00:02:48]
+04. Антигламур [00:02:39](   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E938067DB3BB5F0A6230A33CB64B4997A6403CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691345   (123286) от 12.01.2024
+
+Крематорий - Увезу тебя я в тундру (2024) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Увезу тебя я в тундруЖанр: RockПродолжительность: 00:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2404C19754B80CCB5D56753C53409FA8432B504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691207   (123236) от 12.01.2024
 
 Clarity Vision - Clarity Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom metal>
@@ -598,151 +740,6 @@ June Ryah - Inspired Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1954AD4B01C73B21E58249F1E07477EEE3A59C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696921   (119319) от 04.02.2024
-
-The Dead State - Здесь (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здесь [00:02:12]
-02. Ты дерьмо [00:02:20]
-03. Культ хардкора [00:02:17]
-04. Враг [00:03:17](   Читать дальше...   )Жанр: Hardcore Punk, Hard RockПродолжительность: 00:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94E600B16FA1A245ABCC5A54085AF057BE8B279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696737   (119313) от 04.02.2024
-
-SAXAR - Инсулин (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В своей голове [00:03:36]
-02. НАТЕ [00:04:03]
-03. По губам [00:03:44]
-04. Интерстеллар [00:03:29](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717E525E74577843A8B206BBAB8B32F473C084D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697043   (119234) от 05.02.2024
-
-Король и Шут - Лучшее (2023) 2CD [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119234.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ром
-02. Ели мясо мужики
-03. Лесник(   Читать дальше...   )Жанр: Punk Rock |Продолжительность: 01:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587E1A0B6D614B3022D6F2C6D7AEED4597F5CE61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696731   (119109) от 05.02.2024
-
-Якорь - Русская готика (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Середина ночи [00:04:46]
-02. Скорбный лист [00:05:20]
-03. Русская готика [00:04:59]
-04. Сукины дети [00:05:13](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286411809A1FBC98123649ED17EA8DFDA240FAF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697867   (118287) от 10.02.2024
-
-Ундервуд - За горизонтом (2022) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Когда-нибудь (3:04)
-02. Ради контента (3:02)
-03. Лавацца (3:39)
-04. Шуры-муры (3:15)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C2B5A9380E322B474E33D1B2D192430CD9D7AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

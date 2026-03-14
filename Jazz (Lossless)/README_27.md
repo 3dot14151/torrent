@@ -1,3 +1,32 @@
+###  Публикация: 978674   (962626) от 24.01.2016
+
+Actis Dato Quartet - World Tour (2009) Actisdato[FLAC|tracks+.cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Raga [05:05]
+ 02.Tangeri [04:55]
+ 03.Michoacan [06:56]
+ 04.Belle Epoque [05:34](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2FC03D34F8145185E263AC3002A890DE30F0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978831   (962614) от 24.01.2016
 
 Eumir Deodato - First Cuckoo (1975) 2006, Universal[FLAC|tracks+.cue] <Jazz Fusion>
@@ -712,35 +741,6 @@ Kenny G - The Very Best Of (1994) limited Edition [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68136AE8AF79386F318D79B3144359CE1117562D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361170   (955725) от 19.02.2020
-
-Thelonious Monk - The Complete Albums Collection 1957-61 (2015) 5CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955725.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ruby, My Dear [6:23]
-02. Trinkle, Tinkle [6:41]
-03. Off Minor [5:17](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 06:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2453A8450F2EA2DD47893E3670E9F251D8A8ECC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

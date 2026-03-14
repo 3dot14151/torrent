@@ -1,3 +1,119 @@
+###  Публикация: 1804077   (13244) от 27.06.2025
+
+Motorhead - The Manticore Tapes (1977) Reissue, Remastered, 2025, Sanctuary Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (The Manticore Tapes) (Instrumental) (03:46)
+ 02. Leavin' Here (The Manticore Tapes) (03:23)
+ 03. Vibrator (The Manticore Tapes) (03:26)
+ 04. Help Keep Us on the Road (The Manticore Tapes) (04:59)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1DB949A8359CE4825FB17F1932F1A0F7ADF83F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804814   (12730) от 02.07.2025
+
+UFO(Unidentified Flying Objects) - Champions Of Rock (1996) Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Roll (4:51)
+02. Shoot Shoot (4:05)
+03. Let It Rain (4:01)
+04. When It's Time To Rock (5:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7BC74C435130EC5B65AE0AB7330E6DEBF12FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805417   (12325) от 06.07.2025
+
+Kiss - Love Gun (1977) Deluxe Edition, 2014, UMe Direct 2 [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Stole Your Love [00:03:04]
+02. Christine Sixteen [00:03:12]
+03. Got Love For Sale [00:03:28]
+04. Shock Me [00:03:46](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7652F3A79C3A71CB91AAB48371C04CAE765512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790084   (12061) от 09.07.2025
+
+AC/DC - Problem Child The Best Of The Bon Scott Years (2018) Box Set, 8 x CD, Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 - A Long Way To The Top - Festival Hall, Melbourne. 31st December 1974
+Disc 2 - Problem Child - The Hippodrome, Golders Green. 17th October 1977
+Disc 3 - Whole Lotta Rock - Agora Ballroom, Cleveland. 22th July 1977
+Disc 4 - Maximum Voltage - The Old Waldorf, San Fransisco. 3rd September 1977(   Читать дальше...   )Жанр: Hard RockПродолжительность: 08:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBD3852614068DDCDF7A6516F41BFE654966069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806669   (11502) от 14.07.2025
 
 Helix - No Rest For The Wicked (1983) Reissue, Remastered, 2005, RockCandy Records [FLAC|Lossless|image + .cue] <Hard Rock, Glam, Heavy Metal>
@@ -627,122 +743,6 @@ Sean David Leland - Hear Me Roar (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F2397F6107B03AF9EF438C250908A6D114F637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818112   (2772) от 14.09.2025
-
-Various - Bat Head Soup - Tribute To Ozzy (2000) Japanese Edition, 2023, TOCP, Compilation [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim "Ripper" Owens, Yngwie Malmsteen, Tim Bogert, Tommy Aldridge, Derek Sherinian - Mr. Crowley
-02. Mark Slaughter, Brad Gillis, Gary Moon, Eric Singer, Paul Taylor - Over the Mountain
-03. Lemmy, Richie Kotzen, Tony Franklin, Vinnie Colaiuta - Desire
-04. Dee Snider, Doug Aldrich, Tony Levin, Jason Bonham - Crazy Train(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9BFC44A18767C697C2729A0163254722DAF8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818267   (2664) от 15.09.2025
-
-Deep Purple - Made In Japan (1972) 5 x CD, Reissue, 2025, Warner Records LLC [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2664.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Made in Japan (Steven Wilson Stereo Remix):
-01. Highway Star (Osaka, August 16, 1972)
-02. Child in Time (Osaka, August 16, 1972)
-03. Smoke on the Water (Osaka, August 15, 1972)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9001FF93F99C1F07ACFE5EB00FD9F22C9A0B0E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818832   (1969) от 19.09.2025
-
-Ward XVI - Identity (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Avant-Garde>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regeneration (06:28)
- 02. Into the Wilderness (05:06)
- 03. What's in the Box (05:36)
- 04. Macabaret (05:04)(   Читать дальше...   )Жанр: Hard Rock, Avant-GardeПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4044975EC07F012E93A0E8200817D3E514956D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819759   (1164) от 24.09.2025
-
-38 Special - Milestone (2025) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа 38 Special вступает в шестое десятилетие своего существования вместе с альбомом Milestone. Это первый студийный альбом группы за более чем 20 лет, который демонстрирует, что группа - это настоящие дорожные воины с огромным запасом хода. Заряженные рычащими гитарами, гимновыми мелодиями и стремлением к новым горизонтам, они обновляют своё звучание к 2020-м, (   Читать дальше...   )1. So Much So Right (4:35)
-2. Slightly Controversial (4:26)
-3. All I Haven't Said (3:50)
-4. The Main Thing (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C2ABB3EE2599077B2FDEB67B4873AFE31C645D
 ```
 
 https://mybot314.ru/tekegram_catalog/

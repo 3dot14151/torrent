@@ -1,3 +1,32 @@
+###  Публикация: 1129242   (722624) от 28.04.2017
+
+VA - Beatport Trance  Pack (28.04.) (2017) [MP3|320 Kbps] <Trance, Energy, Tech Trance, Uplifting, Emotional, Blissful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aurora Night & Ensen - Seren (Extended Mix)  5:48
+02.  Robert Nickson & M.I.K.E. Push - Tachyon (Extended Mix)  7:26
+03.  Andy Elliass & Ozzy XPM - La Sagrada (Extended Mix)  7:15
+04.  Kyau & Albert - Trace (Original Mix)  5:24(   Читать дальше...   )Жанр: Trance, Energy, Tech Trance, Uplifting, Emotional, BlissfulПродолжительность: 04:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292427FE6ED8C5B44541FCE504375E39EBEFF78C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129473   (722619) от 28.04.2017
 
 VA - Chill House Original Electro Mix 2017  [MP3|320 Kbps] <Downtempo, Chillout, Deep House>
@@ -725,35 +754,6 @@ VA - Beatport Trance  Pack (01.05.) (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAD25223EE49317CFDB81429C627C958483A3455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130065   (716802) от 01.05.2017
-
-VA - Endless Melodies Lights (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Emotional, Blissful, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aurora Night & Ensen - Seren (Extended Mix)  5:48
-02.  Alan Morris & Elles De Graaf - Calm The Night (Ferrin & Morris Remix)  6:54
-03.  Kaimo K & Jo Cartwright - Don't Let The Pain Get In The Way (Original Mix)  6:45
-04.  Ahmed Romel - Dust & Echoes (Extended Mix)  6:14(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Emotional, Blissful, HarmonicПродолжительность: 02:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B28F3DA1AE71C30216B0F6BFC17824C3A32C10
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1597936   (163021) от 18.12.2022
+
+Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163021.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nothing Is Lost (You Give Me Strength) – The Weeknd
+2. Hometree – Simon Franglen
+3. Happiness Is Simple – Simon Franglen
+4. A New Star – Simon Franglen(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104BFB51007CA1B9946ED1846256EBA1950DC93C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598414   (162541) от 19.12.2022
+
+Bee Celtic - Star Of The County Down (2022) [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Es Gibt Nur Wasser (Santiano cover)
+02. Star Of The County Down
+03. Scots Wha Hae
+04. Scarborough Fair(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB8CC9330A17FBA36FBBCABA21D033A60027953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598039   (162279) от 19.12.2022
+
+Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Is Lost (You Give Me Strength) – The Weeknd
+02. Hometree – Simon Franglen
+03. Happiness Is Simple – Simon Franglen
+04. A New Star – Simon Franglen(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C935D1D845064098381BDE0FB5FB809BE44A855E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432410   (161940) от 19.12.2020
+
+VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Ballad>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vérone (3:40)
+02. La Haine (3:52)
+03. J'ai Peur (3:40)
+04. Les Rois Du Monde (3:27)(   Читать дальше...   )Жанр: Electronic, Pop, BalladПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DAD106A6D128F05307B060E79DBD0C8D329BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432553   (161883) от 19.12.2020
+
+VA - Иисус Христос - Суперзвезда (Театр им. Моссовета) (1995) 2 СD [FLAC|Lossless|image + .cue] <Рок-опера>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайная вечеря (5:44)
+02. Гефсиманский сад (6:21)
+03. Арест (4:18)
+04. Пилат и Кайафа (1:43)(   Читать дальше...   )Жанр: Рок-операПродолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2C1A25EF93045BDD5A94A7E11DC1E4121DA6E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674875   (160639) от 07.11.2023
 
 Pasărea Colibri - Ciripituri (1996) [APE|Lossless|image + .cue] <Folk>
@@ -604,151 +749,6 @@ Clint Mansell Performed By Kronos Quartet And Mogwai ‎– Фонтан / The F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA4295BEA937911FD06E147A2232475D40253419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193726   (155477) от 25.12.2017
-
-Ukrainia - Shadow Era (2017) [MP3|320 Kbps] <Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragile Youth (03:37)
-02. Shadow Era (02:39)
-03. Horses (03:34)
-04. Welcome to My Show (03:35)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A1B3F641586C376D13AE3B827BC1F57C8DB8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193618   (155299) от 25.12.2017
-
-Francis Goya - The Best World Instrumental Hits (2009) 2CD [APE|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Francis Goya - Careless Whisper (5:44)
-02 Francis Goya - La Playa (4:01)
-03 Francis Goya - Chanson Anonyme (3:57)
-04 Francis Goya - El Condor Pasa (3:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04FF2A82397BD428C422F5449D3ACFE88C4A26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085945   (154854) от 23.12.2016
-
-Jeffrey Hilton - Velvet Skies (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever
-02. Learning to Fly
-03. The Unbreakable Spirit
-04. The Gift(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10BB479AB22C2717E830C2B8AEF466568EB27A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085828   (154753) от 23.12.2016
-
-Anousheh & Tom - Silence (Secrets of Persian Ney) 2016 [MP3|320 Kbps] <Newage, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Secret One  (19:57) 
-02|  Secret Two  (12:31) 
-03|  Secret Three  (22:48) 
-04|  Secret Four  (19:20) (   Читать дальше...   )Жанр: Newage, MeditativeПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC41DC1832C90DF015E2628758B0BCF7FD3FC41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518158   (154696) от 19.12.2021
-
-Maitreya Bland - Tranquility (1999) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tranquility
-02. The Divine
-03. Back to Eternity
-04. Tenderness(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27F73B418F362E9DAAB22EC8EE7BE1D71BDD294
 ```
 
 https://mybot314.ru/tekegram_catalog/

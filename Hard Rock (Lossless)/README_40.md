@@ -1,3 +1,119 @@
+###  Публикация: 1554031   (579023) от 29.05.2022
+
+Sarayasign - Throne of Gold (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Book of Wisdom (00:04:42)
+02 - When Worlds Collide (00:04:22)
+03 - Distant Memories (00:06:13)
+04 - If Only for a Moment (00:04:50)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36B7ACF08E499205D8F1A1D34F1DDEBA4415C47F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920745   (578683) от 23.07.2015
+
+Guns N' Roses - Greatest Hits (2004) [FLAC|tracks + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Jungle (4:31)
+ 02. Sweet Child O' Mine (5:55)
+ 03. Patience (5:56)
+ 04. Paradise City (6:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C175729D8D7D313D119A73826013E8317BEF03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042608   (578470) от 13.08.2016
+
+Terry Brock - Back To Eden (2001) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audio Life Dream [01:07]
+02. I Wanna Love Someone [04:27]
+03. Up All Night [05:05]
+04. Native Sons [04:11](   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788E0D76785E3CAAF880E5F70E2D53FA2BE167F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233281   (578061) от 01.07.2018
+
+May Blitz | Bakerloo - 3 albums, 4 CD (1969-1971) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эту группу можно сравнить с Led Zeppelin, ранними Black Sabbath или ранними Uriah Heep. К сожалению, у May Blitz не было своего прорыва, и их история закончилась после выхода двух пластинок.Список альбомов:
+May Blitz
+1970 | May Blitz
+1971 | The 2nd Of May(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Progressive Rock |Продолжительность: 03:02:57 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE952C75ABB0CA0C2FEE5B65EDD55F1F8725C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554458   (577903) от 30.05.2022
 
 The Palth - Palth Fiction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -641,128 +757,6 @@ Now Or Never - II (2016) Jpanase Edition [FLAC|Lossless|image + .cue] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDBC3987300124978CCAB2EE0705D20380B1CBB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044531   (565519) от 20.08.2016
-
-Robin George and Dangerous Music - Painful Kiss (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Painful Kiss 04:33
-02. Lonesome Daze 04:11
-03. Catarina 04:04
-04. The Rubicon 04:26(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA4516ACC9C4D7610B4DCA80E864409F424EC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304269   (565419) от 25.05.2019
-
-Sammy Hagar & The Circle - Space Between (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil Came To Philly (2:35)
-02. Full Circle Jam (Chump Change) (3:38)
-03. Can't Hang (3:56)
-04. Wide Open Space (3:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E818468DDFEEC083D8ADEDC509CA72BD8DEEBF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555793   (565324) от 06.06.2022
-
-Don Dokken - Solitary (2008) (Reissued-2020) [WavPack|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 In The Meadow
-02 I'll Never Forget
-03 Where The Grass Is Green
-04 Jealous(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83ADBF7868FCA97D503D9D23D9D36503BBAEEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529601   (565086) от 01.08.2012
-
-Armageddon - Heavy Metal Saga (2002) [FLAC|Lossless]<Heavy Metal / Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound Of Thunder
-02. Children Of Savage Kind Of Seed
-03. No Advice
-04. Black Swan Rider
-05. Magic Star
-06. Sarabanda
-07. Memories
-08. Clouds In The Sky
-09. Go Down With R'N'R
-10. Link Of The Time(   Читать дальше...   )Жанр: Heavy Metal / Hard Rock
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

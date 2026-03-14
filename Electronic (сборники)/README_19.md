@@ -1,3 +1,32 @@
+###  Публикация: 1357894   (971900) от 05.02.2020
+
+VA - Trap Sound: Experimental Electronic (2020) [MP3|320 Kbps] <Electronic, Synth, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971900.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marcus Meinhardt - House Of Beats
+002. Innershades - Escape
+003. Naum Gabo - Raze
+004. Dark Moon Rising - Nameless Fear(   Читать дальше...   )Жанр: Electronic, Synth, TechnoПродолжительность: 12:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A405FF3FC5FF5E6E9BBFF834BBBD239D2D435685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975759   (970996) от 16.01.2016
 
 VA - From Sunset to Sunrise, Vol. 3 (20 Midnight Lounge Tunes) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -738,35 +767,6 @@ VA - Beatport Tech House: Pack Electro Sound #09 (2020) [MP3|320 Kbps] <Deep, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCC4732D38D05B6C015E318FD632BDF627EF437B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358956   (966206) от 10.02.2020
-
-VA - Record Super Chart 624 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966206.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Carla Morrison - Disfruto (3:57)
-2.SAINt JHN - Roses (Imanbek Remix) (3:58)
-3.Tones and I - Dance Monkey (DJ Noiz Remix) (4:00)
-4.FILV & Edmofo feat. Emma Peters - Clandestina (2:28)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C9847597A895A52742F6BBE01C0DC9E972C7D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

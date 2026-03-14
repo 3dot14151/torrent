@@ -1,25 +1,22 @@
-###  Публикация: 1202369   (790533) от 28.01.2018
+###  Публикация: 1510124   (792033) от 15.11.2021
 
-VA - Club House Hits Euro EDM (2018) [MP3|320 Kbps] <Club, Dance, House>
+Волчица / Матушка Гусыня / Gasmamman (2016) HDRip (сезон 2, серии 1-10 из 10) ViruseProject [AD]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790533.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Felguk feat. Sporty-O - 2nite (FENK & PRINSH Remix)
-002. Anton Ishutin feat. Note U - Be My Lover (Nu Gianni Remix)
-003. Pump Gorilla, Voltech - By Your Side (Original Mix)
-004. Years & Years - Desire (Murat Ozturk Remix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:03:18
+Соня живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится вступить в совершенно неизвестный ей преступный мир и "брататься" с гангстерами местного и международного масштаба. Из доброй и беззаботной мамаши она превращается в сильную и порой жестокую волчицу, готовую (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE91EA31185B527240658A6F622496A8CBD066DC
+magnet:?xt=urn:btih:4A4F54F6760B824DB95E52268A7DD0EDA1BD49D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202154   (790532) от 28.01.2018
+###  Публикация: 1509950   (792032) от 15.11.2021
 
-Kazumi Watanabe - Guitar Renaissance V (2012) [FLAC|Lossless|image + .cue] <Jazz, New Age, Guitar>
+Герт Нюгордсхауг | Фредрик Дрюм (Книга 3). Кодекс смерти (2021) [MP3, Кирилл Радциг]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790532.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hey Jude (6:19)
-02. Fly Me To The Moon (5:34)
-03. Going Home (6:10)
-04. Menuetii (3:51)(   Читать дальше...   )Жанр: Jazz, New Age, GuitarПродолжительность: 01:00:48
+На этот раз бессменный герой Нюгордсхауга Фредрик Дрюм, любитель вина, хорошей кухни и древностей, отправляется в Италию по приглашению университета Рима, чтобы расшифровать один загадочный древнегреческий текст. Однако вместо этого его ждет настоящая драма, в которой участвуют античная философия, мрачное Средневековье и неуловимый убийца, который не оставляет следов. (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:05:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E19BB2222E71DE937AF8008F4FE6B3D631B0720B
+magnet:?xt=urn:btih:6314B9D247B9FB677A364FEAEE9E1A8A90ABCD44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202423   (790531) от 28.01.2018
+###  Публикация: 1510142   (792031) от 15.11.2021
 
-Azure Striker Gunvolt | Armed Blue: Gunvolt | Лазурный воин Ганвольт [2017, ONA, 1 ep.] BDrip 1080p raw
+Волчица / Матушка Гусыня / Gasmamman (2021) WEB-DLRip (сезон 5, серии 1-6 из 6) ViruseProject [AD]
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790531.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В ближайшем будущем появились люди со спецспособностями, называемые Семёрки. Япония благополучно живёт под контролем корпорации Сумераги, которая втайне занимается поиском и отловом Семёрок, для проведения над ними различных экспериментов. Злобной корпорации противостоит небольшая группа, называющаяся Перья. К этой группе и примыкает главный герой овашки Ганвольт.Производство: студия LandQ Studios / ランドック・スタジオЖанр: приключенияРежиссер: Одака ЁсинориПеревод: extvolЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 25 мин.
+"Волчица" - это захватывающая шведская криминальная драма-триллер, завоевавший любовь зрителя в Швеции и за ее пределами. До сих пор вышло три сезона, в 2019 обещают четвертый сезон.
+Соня (Александра Рапапорт) живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E300F67D7362295A65C24313E8A0B6D184AB841A
+magnet:?xt=urn:btih:9A723208475FCBA78C5E71E37E2327EBFC36FD63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +77,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202114   (790530) от 28.01.2018
+###  Публикация: 1510234   (792030) от 15.11.2021
 
-Dio - Master Of The Moon (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+VA - Big Workout Hits 2022 - Remixed for Fitness! (2021) [MP3|320 Kbps] <House, Dance>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790530.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792030.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One More For The Road (3:18)
-02. Master Of The Moon (4:19)
-03. The End Of The World (4:39)
-04. Shivers (4:16)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:50:09
+01. Stephan Baker - Bad Habits (Workout Mix 130 bpm) (04:16)
+02. Stephan Baker - Take My Breath (Workout Mix 130 bpm) (04:06)
+03. Chandler FX - Higher Power (Workout Mix 178 bpm) (03:34)
+04. Chandler FX - Peaches (Workout Mix 178 bpm) (03:40)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:06:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E199CBD0B88AF63D00AC60D01021801F41BB96C
+magnet:?xt=urn:btih:3C289DDA8689DEA74D8689190D0CC6B196560130
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,27 +106,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202181   (790529) от 28.01.2018
+###  Публикация: 1510045   (792029) от 15.11.2021
 
-Векторный клипарт - Donuts Set 4 [AI]
+Бизнес-Мастер | Дистрибьюция. Диск-1 (2006) DVD5
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790529.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792029.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Набор пончиков
-3 AI +TIFF PreviewФормат: AI
+Корпорация «Бизнес-Мастер» образовалась в 1996 году под нарастающую потребность рынка в ускоренной подготовке персонала квалифицированному ведению бизнеса.
+Фактически, организация привлекла на тех или иных условиях бывших корпоративных тренеров и менеджеров по обучения крупнейших мультинациональных компаний в Украине, таких как Wrigley, Coca-Cola, Henkel, Uniliver, (   Читать дальше...   )Жанр: Бизнес семинарПродолжительность: 01:59:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BFBEC60C7159CA0B47D136B259E1979B2B4BE1A
+magnet:?xt=urn:btih:DF5ACFB080FC804639448E83C616A742740BDCBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,28 +133,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202342   (790528) от 28.01.2018
+###  Публикация: 1510072   (792028) от 15.11.2021
 
-VA - Private Lounge Vol.4 (2018) [MP3|320 Kbps] <Lounge,Deep House>
+Картинки - NNM-Club - Календари на 2022 от Warrior 123 №28 - 1510072 [JPG]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Графика, Арт, Разное
+>>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790528.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mark Eliyahu - Journey (Hakan Akkus & V-Dat Remix)
-02. Mykel Mars - L.A. Nights (Eddy Chrome Hollywood Remix Edit)
-03. Christos Fourkis, Joahn Dashi - Come in My Life (Bes and Meret Remix)
-04. Secret Ibiza - Eye Contact (Edit)(   Читать дальше...   )Жанр: Lounge,Deep HouseПродолжительность: 04:08:44
+Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 1920x1038
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C64D9D8635EE8DDF3087381DBE50BA678EC9CECB
+magnet:?xt=urn:btih:F0381C37017E0555D9FCF04F99E3D1FA2B4AF447
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,28 +159,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202163   (790527) от 28.01.2018
+###  Публикация: 1510141   (792027) от 15.11.2021
 
-Charlotte Gainsbourg - Stage Whisper (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
+Волчица / Матушка Гусыня / Gasmamman (2021) WEB-DL [H.264/1080p-LQ] (сезон 5, серии 1-6 из 6) ViruseProject [AD]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790527.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01/11. IRM (2:41)
-02/11. Set Yourself On Fire (3:53)
-03/11. Jamais (4:02)
-04/11. Heaven Can Wait (2:22)(   Читать дальше...   )Жанр: Indie Pop, French Pop-Rock |Продолжительность: 00:37:57
+Соня живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится вступить в совершенно неизвестный ей преступный мир и "брататься" с гангстерами местного и международного масштаба. Из доброй и беззаботной мамаши она превращается в сильную и порой жестокую волчицу, готовую (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские, шведские, датские, норвежскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90B5A822818A4F46654EE576325C96BDB21A889E
+magnet:?xt=urn:btih:8C1089064DD15D56A26BB5FA0220618A5FB20F3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,54 +185,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202304   (790526) от 28.01.2018
+###  Публикация: 1510240   (792026) от 15.11.2021
 
-Beth Hart / Бет Харт - Screamin' For My Supper (1999) Atlantic, Lava, 143 Records, 83192-2, US [MP3|320 Kbps] <Blues Rock, Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just a Little Hole 5:16
-02. Delicious Surprise 3:48
-03. L.A. Song 3:56
-04. Is That Too Much To Ask 3:33(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D88D622DE28AF934017944298BB8D8B90D98397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202221   (790525) от 28.01.2018
-
-Mozilla Thunderbird 52.6.0 Portable by PortableApps [Ru]
+K-Lite Codec Pack Update 16.5.5 [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790525.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3B57E737369C41DAD9B7388C67CC471EC46E441
+magnet:?xt=urn:btih:EAB8D71B8D05DBF6DBA2C98DB86729F15A97C04B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,317 +211,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275452   (790524) от 11.01.2019
+###  Публикация: 1510228   (792025) от 15.11.2021
 
-Jimmie Noone - 1930 - 1934 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You're Smiling [2:49]
-02. I Lost My Gal From Memphis [2:27]
-03. On Revival Day [2:34]
-04. I'm Drifting Back To Dreamland [2:45](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4793E3A5CCF7B4DE4DAAEDE171FC7E7C6AF02A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275349   (790523) от 11.01.2019
-
-Sjodogg - Landscapes Of Disease And Decadence (2007) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Song Of Plague
-02 - Inglorious Fever Of Antonius
-03 - Mahapaatra
-04 - Brethren Of The Weeping Corpses(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAC34B5A233F411B4396EDA5D12C3F08EAA7EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275479   (790522) от 11.01.2019
-
-David Tixier Trio - Universal Citizen (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far From the World
-02. Tokyo
-03. Lost Among Ghosts
-04. Tribute to an Old Man(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B083EAFAED5EBCBAEAA6CF333F7050D123D796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275280   (790521) от 11.01.2019
-
-Chris Whitehouse's Connected - Grounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Down
-02. Head Honcho
-03. Yes, And?
-04. Two Four One(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D4D637B13C485C93B586C4A256BF0DA740D090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275222   (790520) от 11.01.2019
-
-VA - EDM RG: End Of The Year Mix (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Rayel and David Gravell - Trance Reborn (FYH100 Anthem) (Mark Sixma Extended Remix) 04:20
-02. Darude, Ashley Wallbridge feat. Foux - Surrender (Extended Mix) 05:29
-03. Kyau & Albert feat. Ronski Speed - Zoom (Original Mix) 05:21
-04. Marcus Santoro - Polaroid (Extended Mix) 05:40(   Читать дальше...   )Жанр: TranceПродолжительность: 07:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F919661226E78BE2C8C8D134D26BFC09DB1E6174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275330   (790519) от 11.01.2019
-
-Sinbreed - IV (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Under the Sun
-02. Falling Down
-03. Wasted Trust
-04. Into the Arena(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93779E8119F8B2FBE21133B63842FC3DF0F1DEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275284   (790518) от 11.01.2019
-
-David Linx - 7000 Miles (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poses
-02. From One Family To Another
-03. 7000 Miles
-04. America(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE12ACC6E5A39A378338B109933EEB58EF46CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275432   (790517) от 11.01.2019
-
-Charlie Haden & Kenny Barron - Night And The City (1996) 1998, Verve [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twilight Song [12:48]
-02. For Heaven's Sake [10:45]
-03. Spring Is Here [10:21]
-04. Body And Soul [10:25](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742DF311561938F67CA82CD302C338267F4FED94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275329   (790516) от 11.01.2019
-
-Radiant - Radiant (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes I Am
-02. I’m Alive
-03. Silver Linings
-04. You Rock(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39667AE96632CF0D53F648DD420028C511F77BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275294   (790515) от 11.01.2019
-
-Tunng - Songs You Make At Night (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream In (04:40)
-02. Abop (04:33)
-03. Sleepwalking (03:45)
-04. Crow (03:46)(   Читать дальше...   )Жанр: Indie Rock, Folk RockПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1B868E4642850A7FD2562376CA2E152D26162C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275358   (790514) от 11.01.2019
-
-Renamer 5.2.6 [En]
+OpenMPT 1.29.14.00 + Portable [En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790514.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Renamer – инструмент, который позволяет легко переименовывать огромное количество файлов. Операции проводятся согласно определенному шаблону. Режим превью позволяет во время установки параметров сразу видеть результат будущей замены.
-
-Переименовывать тысячи файлов мгновенно! Переименование фотографий с цифровых камер Добавить / удалить символы из имен файлов. Преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.01.2019Разработчик: Incredible Bee Ltd.Поддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский, Немецкий, Испанский и др.
+Эта программа создана для ценителей создания собственной музыки.
+OpenMPT абсолютно бесплатен и позволяет вам создавать и воспроизводить отличную музыку на вашем компьютере. Основанный на оригинальном ModPlug Tracker, написанном Оливье Лапиком, OpenMPT является свободным программным обеспечением и поддерживает широкий спектр форматов модулей и предлагает интуитивно (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15D04F63491CE3465E0C7781AB4B7F6E35B755C7
+magnet:?xt=urn:btih:E337496B9FF0DFA00990FFBD5E520B21D44D7EEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,28 +238,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275485   (790513) от 11.01.2019
+###  Публикация: 1510102   (792024) от 15.11.2021
 
-Debbie Kirkland - Coming From Blue (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+Ultimaker Cura 4.12.0 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790513.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kissing You
-02. Xuxu Bird
-03. I Want To Be Romanced
-04. A Wish(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:54
+Ultimaker Cura - популярный слайсер для 3d-печати. Отлично подходит как для начинающих домашних пользователей, так и для небольших офисных работ. Имеет готовые шаблоны для печати и дружелюбный интерфейс.Язык интерфейса: Русский, Английский и пр.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F3FB13C17A860C4AB896C501918B4C60D0A900B
+magnet:?xt=urn:btih:4A26180F97F924628AB538BD49D7AD049025F153
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,28 +264,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275380   (790512) от 11.01.2019
+###  Публикация: 1510178   (792023) от 15.11.2021
 
-VA - Contact The Spirit (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+BurnAware Professional 14.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790512.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Agent K - General Zod's
-002. Dreamvibes! - Breakdown (Original Mix)
-003. Ace Ventura - The World That You Know
-004. Argon Sphere - Traveller(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:24:12
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53F4EA464FCC90F489F9F8D2E168C45B4A456E19
+magnet:?xt=urn:btih:4666F9AC3857F71E9A2EAEF7DA6D20B6B7CBD143
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,28 +290,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275314   (790511) от 11.01.2019
+###  Публикация: 1510208   (792022) от 15.11.2021
 
-Dead Combo - Odeon Hotel (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Blues, Folk,>
+GPU Caps Viewer 1.54.0.0 + Portable [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790511.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deus Me Dê Grana (03:41)
-02. Mr. & Mrs. Eleven (For AJ) (03:21)
-03. In A Mellotron (04:27)
-04. I Know, I Alone (05:01)(   Читать дальше...   )Жанр: Jazz, Blues, Folk,Продолжительность: 00:47:55
+GPU Caps Viewer - информационная утилита, позволяющая получить информацию о графической карте, провести несколько OpenGL и OpenCL тестов и вести мониторинг различных параметров GPU карт в реальном времени. Программа отображает OpenGL, OpenCL и CUDA информацию для всех графических карт имеющихся в системе, а также предлагает GPU мониторинг карт NVIDIA GeForce и AMD (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21FC7942BF2F166C7D0016FBEC0F7986660D4DDA
+magnet:?xt=urn:btih:8D89C105B23B9675345706AFB530A84E8845384D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,28 +316,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275227   (790510) от 11.01.2019
+###  Публикация: 1510123   (792021) от 15.11.2021
 
-Питер Грю | Письма на чердак (2018) [FB2]
+Волчица / Матушка Гусыня / Gasmamman (2016) BDRip [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) ViruseProject [AD]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790510.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чердак – это место забытых вещей и пыльных историй.
-
-Когда тебе грустно, напиши письмо на чердак, и призраки обязательно его прочитают. По дороге, усыпанной лунной пылью, они уведут тебя в Тёмный Уголок – мир-убежище, где ты забудешь о печали, где замки появляются из ниоткуда и где каждый может стать волшебником.
-(   Читать дальше...   )Жанр: Детская фантастика, Детские приключенияФормат: FB2
+"Волчица" - это захватывающая шведская криминальная драма-триллер, завоевавший любовь зрителя в Швеции и за ее пределами. До сих пор вышло три сезона, в 2019 обещают четвертый сезон.
+Соня (Александра Рапапорт) живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские, шведские, датские, норвежские, финскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB67F50278934BD4E827F7DE91641EBAAF27EE41
+magnet:?xt=urn:btih:CF8FC491D28DD6F3E8AF38AEAEC7DB504BBD992E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,28 +343,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275488   (790509) от 11.01.2019
+###  Публикация: 1510221   (792020) от 15.11.2021
 
-Delvon Lamarr Organ Trio - Close But No Cigar (2018) [FLAC|Lossless|tracks + .cue] <Funk Groove, Jazz, Soul>
+Хвосты (1966) WEBRip [H.264/1080p-LQ] [Remastered AI]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790509.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Concussion
-02. Little Booker T
-03. Ain't It Funky Now
-04. Close but No Cigar(   Читать дальше...   )Жанр: Funk Groove, Jazz, SoulПродолжительность: 00:40:55
+Сказка о том, как звери надумали поменяться хвостами, но скоро поняли, как необходим каждому его собственный хвост.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Владимир ПолковниковПеревод: Не требуетсяСубтитры: отсутсвуютПродолжительность: 00:15:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09163C9ECE924E9CAAD3E722425CB9930558F0F4
+magnet:?xt=urn:btih:934BC2FB45A53522753C85F8D0958012A6822D19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,27 +369,313 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202180   (790508) от 28.01.2018
+###  Публикация: 1510244   (792019) от 15.11.2021
 
-Векторный клипарт - Different Snakes Set [AI]
+Privacy Eraser Free 5.17.2 Build 4078 + Portable [Multi/Ru]
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790508.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Различные змеи
-3 AI +TIFF PreviewФормат: AI
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB1090855C6B44A07B5077B6CFEA2010FD3EA5BD
+magnet:?xt=urn:btih:CA13090E7BC575E39A45C5232B431CC30075D6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510212   (792018) от 15.11.2021
+
+Honeyview 5.42 Build 5943 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Honeyview - быстрый и удобный просмотрщик графических изображений с поддержкой множества различных форматов. Программа работает как с самыми популярными типами файлов, так и достаточно редкими: BMP, JPG, GIF, PNG, PSD, DDS, JXR, WebP, J2K, JP2, TGA, TIFF, PCX, PNM, PPM и многие другие.
+Кроме того, это приложение способно показать картинки, находящиеся в сжатом виде (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245521C48ABABDB6F846DDB093C724941FB42BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510138   (792017) от 15.11.2021
+
+Волчица / Матушка Гусыня / Gasmamman (2019) WEB-DLRip (сезон 4, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соня живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится вступить в совершенно неизвестный ей преступный мир и "брататься" с гангстерами местного и международного масштаба. Из доброй и беззаботной мамаши она превращается в сильную и порой жестокую волчицу, готовую (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF27F9D6A81D51640150944D162931E43BA882E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510219   (792016) от 15.11.2021
+
+Расцвет древних цивилизаций / The Ascent of Civilization (2014-2016) HDTVRip [H.264] (сезоны 1-2, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какими на самом деле были викинги? Чего достигли римляне и как повлияли достижения греков на современный мир? Карфаген, Германия, Арабы... Программа развенчивает мифы и стереотипы о древних цивилизациях и поможет по-новому взглянуть на эти выдающиеся культуры а, возможно, изменит наше представление о них.Производство: Германия, Gruppe 5 Filmproduktion for ZDF EnterprisesЖанр: Документально-постановочный, историяРежиссер: Кристина Требби, Сахар ЕслаПеревод: Одноголосый профессиональный (Велес)Субтитры: Русские, английские, немецкиеПродолжительность: серии x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C67DE0D892BCE46E1A811587DCB54D8647AA18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510231   (792015) от 15.11.2021
+
+GPU Shark 0.25.0.0 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792015.jpg" />
+</div>
+
+
+###  Подробнее
+
+GPU Shark - небольшая бесплатная и очень простая в использовании утилита, предназначенная для мониторинга состояния работы GPU. Основана на ZoomGPU и работает на базе чипсетов NVIDIA GeForce и ATI Radeon. GPU Shark может отображать для каждого GPU тактовые частоты (ядра, памяти и шейдерных процессоров), состояния производительности (или PStates), скорость вентилятора, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C80CE91CCE370D3C3CF13956FCA9F819699F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274542   (792014) от 08.01.2019
+
+Ужастики 2: Беспокойный Хэллоуин / Goosebumps 2: Haunted Halloween (2018) BDRip [H.264/1080p] [hand made 16:9]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792014.jpg" />
+</div>
+
+
+###  Подробнее
+
+В заброшенном доме парочка ребят находит странную книгу «Беспокойный Хэллоуин» Р. Л. Стайна. Друзья быстро понимают, почему книгу спрятали подальше от всех, когда небольшой городок заполняют монстры разной степени ужасности.Производство: США, Великобритания, Columbia Pictures Corporation, Sony Pictures AnimationЖанр: Ужасы, Фэнтези, Комедия, ПриключенияРежиссер: Эри СанделАктеры: Мэдисон Айсмен, Джереми Рэй Тейлор, Калил Харрис, Мик Вингерт, Кен Жонг, Венди МакЛендон-Кови, Крис Парнелл, Брайс Касс, Пейтон Уич, Шэри ХидлиПеревод: Дублированный (iTunes)Субтитры: Русские (форс., полные),  английские (полные)Продолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1319B822EB03BA305494683163405707DCC1AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274551   (792013) от 08.01.2019
+
+Тор: Рагнарёк / Thor: Ragnarok (2017) BDRip [H.265/1080p-LQ] [10-bit] [IMAX]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события — Рагнарёка. По легенде это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие (   Читать дальше...   )Производство: США / Marvel StudiosЖанр: Фантастика, Боевик, Приключения, КомедияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Кейт Бланшетт, Идрис Эльба, Джефф Голдблюм, Тесса Томпсон, Карл Урбан, Марк Руффало, Энтони Хопкинс, Бенедикт КамбербэтчПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные)Продолжительность: 02:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A623B9C70A8278ACA2DF7C287419F262D93C3C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273803   (792012) от 08.01.2019
+
+Список Шиндлера / Schindler's List (1993) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [25th Anniversary Edition]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента рассказывает реальную историю загадочного Оскара Шиндлера, члена нацистской партии, преуспевающего фабриканта, спасшего во время Второй мировой войны более тысячи ста евреев. Это триумф одного человека, не похожего на других, и драма тех, кто, благодаря ему, выжил в ужасный период человеческой истории.Производство: США / Universal Pictures, Amblin EntertainmentЖанр: Драма, Военный, Биография, ИсторияРежиссер: Стивен СпилбергАктеры: Лиам Нисон, Бен Кингсли, Рэйф Файнс, Кэролайн Гудолл, Эмбет Дэвидц, Джонатан Сагалл, Малгоша Гебель, Марк Иванир, Беатриче МаколаПеревод: Дублированный; Многоголосый закадровый; ОдноголосыйСубтитры: русские (forced, full, BD CEE, R5, Киномания), английскиe (full)Продолжительность: 03:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8548C24DADC19F02D22E89F482A33CA3D6D7727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274446   (792010) от 08.01.2019
+
+Взрыватель / Knock Off (1998) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792010.jpg" />
+</div>
+
+
+###  Подробнее
+
+1997 год. Гонконг — центр подделок. Русские террористы из спецслужб задумали операцию по глобальному шантажу США. Войдя в сговор с мафией, «гастролеры» из России напичкали миниатюрными дистанционными взрывателями поддельные товары — игрушки и джинсы, которые должны были попасть в Штаты. Маркус Рей и его компаньон Томми Хендрик занимались поставкой товаров в США и (   Читать дальше...   )Производство: Гонконг, США, Knock Films A.V.V., MDP Worldwide, Film WorkshopЖанр: Боевик, Триллер, Комедия, КриминалРежиссер: Тсуи ХаркАктеры: Жан-Клод Ван Дамм, Роб Шнайдер, Лила Рошон, Пол Сорвино, Карман Ли, Уаймэн Вонг, Глен Чин, Майкл Вонг, Моусес Чан, Линн ЛэнгдонПеревод: Многоголосый закадровый, двухголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83893996B6D765DC9C77B25CFCE32A38449903A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274746   (792009) от 08.01.2019
+
+Аксель / A-X-L (2018) BDRip [H.265/1080p] [10-bit] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный мотоциклист Майлз случайно находит новую военную разработку — гигантскую собаку-робота по имени Аксель. Обладая искусственным интеллектом следующего поколения, но с огромным сердцем верного пса, Аксель быстро становится лучшим другом парня. Но военные не намерены просто так отказаться от металлического зверя, который превзошел в развитии их самые смелые ожидания. (   Читать дальше...   )Производство: США / Global Road Entertainment, Lakeshore Entertainment, Phantom Four FilmsЖанр: Фантастика, Боевик, Приключения, СемейныйРежиссер: Оливер ДэйлиАктеры: Алекс Нюстадтер, Бекки Джи, Алекс МакНиколл, Амин Наземзадех, Томас Джейн, Лу Тэйлор Пуччи, Патрисия де Леон, Нико Гуардадо, Мари-Франсуа Теодор, Тед МакГинлиПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9404CC6AC83949AF5A8D8AFF4B0EC3D4E1BD76B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271654   (792008) от 08.01.2019
+
+Я жив / Estoy vivo (2018) HDTVRip (сезон 2, серии 1-13 из 13) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный персонаж сериала Андрес Баргас служил в полицейском отряде. На работе у него все отлично, да и личная жизнь не обделила частичкой счастья: супруга и две любимые дочки всегда ждут дома. Правда, вскоре отважный полицейский погибает во время очередной стычки с жестоким маньяком.Душа Андреса попадает в место между раем и адом, где персонажу предлагают завершить (   Читать дальше...   )Производство: ИспанияЖанр: фэнтези, триллерРежиссер: Ориоль Феррер, Хесус Родриго, Давид Молина ЭнсинасАктеры: Хавьер Гутьеррес, Анна Кастильо, Алехо Саурас, Кристина Пласас, Феле Мартинес, Альфонсо Бассаве, Хесус Кастехьон, Сорион Эгилеор, Лусия Карабальо, Гойсальде Нуньес и др.Перевод: Двуголосый закадровый, профессиональный-ViruseProjectПродолжительность: ~01:10:00 серияРеклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D201B7E707B224086448519FF0B3B2AE43B859FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274537   (792007) от 08.01.2019
+
+Человек-муравей и Оса / Ant-Man and the Wasp (2018) BDRip [H.265/1080p-LQ] [10-bit] [IMAX]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скотт Лэнг, известный также, как Человек-Муравей уже заслужил право оказаться в команде Мстителей, но желание быть ближе к собственной дочке удерживает его в родном Сан-Франциско - до тех пор, пока доктор Хэнк Пим, создавший когда-то изменяющий размеры своего владельца чудо-костюм, не призывает Скотта присоединиться к новой, опасной миссии. А помогать в противостоянии (   Читать дальше...   )Производство: США / Marvel StudiosЖанр: Фантастика, Боевик, ПриключенияРежиссер: Пейтон РидАктеры: Пол Радд, Эванджелин Лилли, Майкл Пенья, Уолтон Гоггинс, Бобби Каннавейл, Джуди Грир, Ти Ай, Давид Дастмалчян, Ханна Джон-Кэймен, Эбби Райдер ФортсонПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные)Продолжительность: 01:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC00E392305C149EF9C507DF23B59B8E010A690
 ```
 
 https://mybot314.ru/tekegram_catalog/

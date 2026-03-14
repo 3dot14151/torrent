@@ -1,3 +1,32 @@
+###  Публикация: 1428114   (180832) от 01.12.2020
+
+VA - Pop Vocal Lounge: Chillout Your Mind (2020) [AAC|~305 Kbps] <Chillout; Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_180832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - A Tu Lado (Original Mix) (4:06)
+02. Florzinho, Ma'deevah - Take Me Higher (Original Mix) (3:32)
+03. Man In A Room, Sanura - Thief of Time (Original Mix) (4:36)
+04. Mission Brown - Same Old Temptations (Original Mix) (4:34)(   Читать дальше...   )Жанр: Chillout; LoungeПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5122005915D52B0DE0C30BF02346DB725A058D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428410   (180195) от 02.12.2020
 
 Mirko Hirsch - Missing Pieces: Return to Neon (Special Edition) (2020) [AAC|~347 Kbps] <Pop, Disco>
@@ -716,35 +745,6 @@ Buddha Bar - Buddha-Bar Elements (2020) [AAC|~324 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2671CDFB6D6FE39CC28BC638C2368BA9704591F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429381   (176760) от 06.12.2020
-
-Ани Лорак - Неизданное (2020) [AAC|~254 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бегущая по волнам (2:08)
-02. Бывшая (1:28)
-03. Дождь для нас (3:18)
-04. Мышка (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1EE542C70A6ECAF62C4DF2E8095DCED6EFFEE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

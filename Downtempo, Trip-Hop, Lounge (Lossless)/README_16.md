@@ -1,3 +1,61 @@
+###  Публикация: 1319249   (484728) от 11.08.2019
+
+Emiliana Torrini - Tookah (2013) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Downtempo, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tookah (03:01)
+02. Caterpillar (03:54)
+03. Autumn sun (04:11)
+04. Home (03:35)(   Читать дальше...   )Жанр: Downtempo, Trip HopПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630077A4E365F91FDF7B1BE0B042A5E5B44D3C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404386   (483558) от 30.08.2020
+
+Podval Capella - Classic (2018) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pepel
+02. Nero
+03. Sacramentum
+04. Feelthesame(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACED7AFC4D8912BDF29D89B2BC38DDA7D7459C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404382   (483545) от 30.08.2020
 
 Podval Capella - Resonance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
@@ -685,66 +743,6 @@ VA - Deep Blue Sea Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCAF16B91DEB0793C931CECED06E33BDD373741A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944861   (437902) от 08.10.2015
-
-VA - Buddha-Bar XVII (By Ravin) (2015) 2CD [FLAC (tracks+.cue)|Lossless]<Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437902.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Guembri - 01:17:19
-CD2 - Bendir - 01:18:45Треклист CD1:
-01. Mihai Toma Feat. Irene - Ena
-02. Soapkills - Marra Fi Ghnina
-03. Fuad Almuqtadir & Armeen Musa - Bhromor Koio Giya(   Читать дальше...   )Жанр: Lounge, Chillout |Продолжительность: 02:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF38A32AB57604BFF9E8C803EC32398A016DF94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571257   (436056) от 20.08.2022
-
-Kim & Buran - Orbita (2016) Limited Edition, 2022 Reissue, Maschina Records [FLAC|Lossless|tracks + .cue] <Synthpop, Space disco, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kim & Buran - петербургский музыкальный коллектив, назван в честь главных героев советского мультфильма «Тайна третьей планеты» и играющий в жанре Space disco, Cosmic easy-listening, Downtempo, sci-fi.
-Коллектив использует в своём творчестве аналоговые синтезаторы такие как Фаэми-1М, Opus, Электроника ЭМ-25, Алиса, Yamaha CS-5, Roland Juno 106 и сэмплы из фильмов (   Читать дальше...   )01. Delayed Flight
-02. Breeze
-03. Jet Disco
-04. Voyager(   Читать дальше...   )Жанр: Synthpop, Space disco, DowntempoПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A657E8F762A802707EEE810814CCE01D263CF994
 ```
 
 https://mybot314.ru/tekegram_catalog/

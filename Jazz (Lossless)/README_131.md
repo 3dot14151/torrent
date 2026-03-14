@@ -1,3 +1,102 @@
+###  Публикация: 1296475   (611756) от 17.04.2019
+
+Dakh Daughters - Air (2019) [FLAC|Lossless|WEB-DL|tracks] <Cabaret, Jazz, Folk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inshe Misto (05:53)
+ 02. Yaponske Kino (05:54)
+ 03. O, Panno Inno! (04:48)
+ 04. Pisnia Pro Te, Yak Vona Vykhodyt Na Krutuiu Horu (13:46)(   Читать дальше...   )Жанр: Cabaret, Jazz, FolkПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DAAA3462E6F83C46F4FC6374063A2D0D73F16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524666   (611582) от 19.07.2012
+
+Bob Moses - When Elephants Dream of Music (1993) [FLAC|Lossless]<Post-Bop, Progressive Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_611582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trevor
+02. Picolo And Lulu
+03. Everybody Knows When You're Up And In
+04. Lava Flow
+05. Happy To Be Here Today
+06. For Miles
+07. Embraceable Jew
+08. Bugs Bunny
+09. Black Orchid
+10. Disappearing Blues(   Читать дальше...   )Жанр: Post-Bop, Progressive JazzПродолжительность: 01:06:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524677   (611457) от 19.07.2012
+
+Bobby Caldwell - Perfect Island Nights (2005) [FLAC|Lossless]<Smooth Jazz, R&B, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_611457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby Caldwell - In The Afterlife
+02. Crazy For You
+03. Donna
+04. Where Is The Love w/Denise Williams
+05. Perfect Island Nights
+06. Our Day Will come
+07. I Need Your Love
+08. Can't Get Over You
+09. Call Me Up
+10. Extra Mile(   Читать дальше...   )Жанр: Smooth Jazz, R&B, VocalПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147043   (611329) от 01.07.2017
 
 Ted Rosenthal Trio - Rhapsody in Gershwin (2014) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -655,93 +754,6 @@ Miles Davis - Bags' Groove (1954) /2008, Concord/[FLAC|tracks+.cue]<Jazz, Hard B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5696FB4680F291C8B312E2784A8183DB462D911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912995   (609440) от 27.06.2015
-
-Illinois Jacquet - The Soul Explosion (1969) /2000, Prestige/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Soul Explosion [09:20]
-02. After Hours [07:36]
-03. St. Louis Blues [03:10]
-04. I'm A Fool To Want You [08:54](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272BAC588885BDC406F8BD0320CD822D4B63203E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912767   (609324) от 27.06.2015
-
-Narada Michael Walden - Divine Emotion (1988) [FLAC|tracks+.cue]<Funk, Soul, Disco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divine Emotions
-02. Can't Get You Outta My Head
-03. That's The Way That I Feel About Cha
-04. Wild Thing(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20AE50042478532623C513A0AEE890A1AFC833F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231093   (608935) от 16.06.2018
-
-VA - Мой любимый старый джаз (My Loved Old Jazz) (1930-e - 1960-e) 2005, Би Смарт [FLAC|Lossless|image + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Armstrong - St.Louis Blues [8:53]
-02. Louis Armstrong - Twelfth Street Rag [3:10]
-03. Louis Armstrong - West End Blues [3:19]
-04. Louis Armstrong - Loveless Love [4:30](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:605C2BFD1F1C3A997DF6E08E758AB92C683EC5AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

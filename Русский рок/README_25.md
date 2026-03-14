@@ -1,3 +1,58 @@
+###  Публикация: 1500974   (837860) от 08.10.2021
+
+Кипелов - Часы Судного Дня (2021) EP [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Огненная дуга (06:50)
+ 02. Часы Судного дня (05:31)
+ 03. Лунный ковчег (05:15)
+ 04. Крик тишины (05:23)Жанр: Heavy MetalПродолжительность: 00:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49F0E153CA286858D2F994A4734BB6F222109FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310077   (837322) от 18.03.2011
+
+Ляпис Трубецкой - Agitpop Live (2011) [MP3|192 kbps]<Ska Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -Жанр: Ska Punk, RockПродолжительность: 01:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2AAD9C199943CE3A7631486DDF98BAAFD5F07C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309985   (837157) от 18.03.2011
 
 Сектор Газа - Лучшее. Золотая Коллекция 2CD (2006) [MP3|320 kbps]<Punk-rock>
@@ -165,6 +220,35 @@ Dругой Ветер & Элизиум - Чёрный флаг (2020) Single [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8F76D07296161852B67F3FA5C0132069FE4E12C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114171   (835084) от 13.03.2017
+
+Catharsis - Symphoniae Ignis (2017) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_835084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Увертюра
+02. Кто ты?
+03. Сердце мира
+04. Имаго(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1782895B14F38FA09F41DB3FFB5143783893ECCF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,93 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A0F084F63625FC39EF7A1409BA505A303DDA3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196455   (824140) от 02.01.2018
-
-Завтраккусто - Верните ненависть в романс! (2017) [MP3|320 Kbps] <Acoustic Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В лесу далёком
-02. Синий барон
-03. Русалки
-04. Ягодная Джейн (feat. Эрика Джейнс)(   Читать дальше...   )Жанр: Acoustic Rock, Indie RockПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19232F6031B570F0CF9B345D3AF31A803CFEB547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006852   (823482) от 14.04.2016
-
-Гравитация - Свет (2016) EP [MP3|320 кб/с] <Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823482.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Электрический свет
-2. Дождь
-3. Веруешь
-4. Ты не при чёмЖанр: РокПродолжительность: 00:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0579460B3956B5E42CA21492DA484FC7AAE246B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503085   (822924) от 17.10.2021
-
-Stay Away - Можно спрятаться, сбежать нельзя (2021) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822924.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Капитан
-2. Можно спрятаться, сбежать нельзя
-3. Ребята нашего двора
-4. Лёха вставай(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3458462489CBCE2933E10ECB35C1431DA3D4564
 ```
 
 https://mybot314.ru/tekegram_catalog/

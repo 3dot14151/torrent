@@ -1,3 +1,61 @@
+###  Публикация: 1658296   (190640) от 10.09.2023
+
+King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms And Lava (2022) [MP3|320 Kbps] <Psychedelic, Garage Rock, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mycelium [00:07:35]
+02 - Ice V [00:10:15]
+03 - Magma [00:09:06]
+04 - Lava [00:06:41](   Читать дальше...   )Жанр: Psychedelic, Garage Rock, DoomПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC8AC77B9F7E9779F7773CD98BF5562151932AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658026   (190626) от 10.09.2023
+
+The Staehely Brothers - Sta-Hay-Lee (1973) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Future Shock [00:04:00]
+02 - Concrete and Steel [00:04:27]
+03 - Woman in Love [00:02:51]
+04 - Woe Is Me [00:04:59](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E72142F26243D1521F63B4CFC9C7E7C4A799F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658162   (190624) от 10.09.2023
 
 King Gizzard & The Lizard Wizard - Live in Chicago '23 (2023) [MP3|320 Kbps] <Psychedelic, Garage Rock, Doom>
@@ -684,64 +742,6 @@ Stratovarius - Unbreakable (2013) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09C991C3BB1F872622E29805215F26106D0C5005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590419   (189119) от 13.11.2022
-
-Fleesh - Home Again (A Tribute to Pink Floyd) (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe [02:56]
-02. Time [07:04]
-03. Hey You [04:42]
-04. In the Flesh [04:16](   Читать дальше...   )Жанр: RockПродолжительность: 01:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E5B85ABEFDE921918C49E98AB67861DCF0C98E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662697   (187407) от 19.09.2023
-
-The Who - Who’s Next : Life House (Super Deluxe) (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187407.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-01. Baba O'Riley (Remastered 2022) [5:04]
-02. Bargain (Remastered 2022) [5:35]
-03. Love Ain't For Keeping (Remastered 2022) [2:12](   Читать дальше...   )Жанр: RockПродолжительность: 09:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B212840FB2888810B2453F437C916BBEF1C8F63
 ```
 
 https://mybot314.ru/tekegram_catalog/

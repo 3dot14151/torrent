@@ -1,3 +1,29 @@
+###  Публикация: 605822   (995588) от 20.01.2013
+
+[Wallpapers] Wallpapers Fantasy №19(Pavel)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола 50 шт
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C27539798870A0BE2989E26F9F63AF64F6FAD16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605886   (995584) от 20.01.2013
 
 Гринго / El Gringo (2012) BDRip [H.264] [EN]
@@ -685,32 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6775047A3E6A05FDFB4039E925FC85444E3B5681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605649   (995482) от 20.01.2013
-
-Рестлинг / WWE Friday Night Smackdown 18.01.2013 (Русская версия от 545TV) (2013) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995482.jpg" />
-</div>
-
-
-###  Подробнее
-
-700-й выпуск Friday Night SmackDown!Жанр: СпортПеревод: Двуголосый закадровый, любительскийПродолжительность: 01:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EEA330D43C086D713F6809093F473A69706B42
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1641536   (24595) от 15.03.2025
+
+Septicflesh (Septic Flesh) - Studio Albums (12 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Atmospheric/Symphonic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_24595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Septic Flesh — метал-группа из Греции. Коллектив сочетает в своём звучании такие жанры как дэт-метал, симфоник-метал и дум-метал.1994 - Mystic Places of Dawn
+1995 - Esoptron
+1997 - Ophidian Wheel
+1998 - A Fallen TempleЖанр: Atmospheric/Symphonic Death MetalПродолжительность: 11:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D2F2FB70D24FFE987691F13935D0B58511A7D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785351   (24573) от 15.03.2025
+
+AC/DC - Star Colletion (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Stiff Upper Lip
+02. Big Gun
+03. The Jack(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DF406D0C1FC71E7A6689D5B781563CC3557D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785268   (24508) от 16.03.2025
+
+Борис Гребенщиков, Аквариум - Коллекция (1982-2024) 2025 [FLAC|24/44.1-96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борис Борисович Гребенщиков (род. 27 ноября 1953, Ленинград, СССР) — советский и российский поэт, музыкант, композитор, певец, гитарист. Основатель рок-группы «Аквариум». Один из родоначальников рок-музыки на русском языке. С 2005 по 2022 год — ведущий программы «Аэростат», которая транслировалась на «Радио России». Ныне программа выходит в интернете.01. Портал (Вход) (0:43)
+02. Ворожба (3:07)
+03. Вино Из Песка (3:55)
+04. Не Выходи За Дверь (3:03)(   Читать дальше...   )Жанр: Folk, rock, miscellaneousПродолжительность: 10:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD06D81FC9D1885040C79C959FA411A012ED2098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262394   (24398) от 17.03.2025
+
+VA - Jazz Collection Non Stop Part II (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_24398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Michael Lington & Wendy Moten - Don't Go
+02. Orchestra - Chattanooga Choo Choo
+03. The Robert Cray Band - I'm Afraid(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C680CED789F6E17F98B1447DEF9CB3520032C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577374   (24319) от 18.03.2025
+
+Lacrimosa - Studio Albums (11 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Goth Rock, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_24319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lacrimosa — группа из Швейцарии, лидеры которой — основатель, композитор и вокалист Тило Вольфф и клавишница и вокалистка Анне Нурми. Музыка Lacrimosa довольно разнообразна и выходит за рамки одного жанра, группа работала в разных стилях, но чаще всего в жанре готик-метал.1997 - Stille
+1999 - Elodia
+2001 - Fassade
+2003 - EchosЖанр: Gothic/Symphonic MetalПродолжительность: 11:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C3FA59AF44B0522EA9AD986A4169BAA68781EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785896   (24247) от 18.03.2025
 
 VA - Музыкальный калейдоскоп (10   выпусков) (1964 - 1969) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz>
@@ -594,151 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B201BEE47CFBF262CE21B05E2FF9C713887A9C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551047   (21792) от 11.04.2025
-
-Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epica — нидерландская группа, образована в 2003 году ритм-гитаристом и вокалистом Марком Янсеном после его ухода из After Forever. Визитной карточкой Epica являются женский вокал в сочетании с мужским гроулингом и скримингом. Также в группе используется струнный оркестр и хор.2003 - The Phantom Agony
-2005 - Consign To Oblivion
-2007 - The Divine Conspiracy
-2009 - Design Your Universe(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 16:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE55D1D117A0951BA575A8AB0A4F50CAD457BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791615   (21239) от 16.04.2025
-
-The Darkness - Dreams on Toast (2025) Members' Edition, 2025, Cooking Vinyl Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Rock and Roll Party Cowboy
-02 – I Hate Myself
-03 – Hot on My Tail
-04 – Mortal Dread(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F09CFA5E8BE4152C6A6B6C82EF17D679BEF9CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792017   (21216) от 16.04.2025
-
-OK Go - And the Adjacent Possible (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock, Power Pop, Electronic, Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impulse Purchase [00:02:39]
-01. A Stone Only Rolls Downhill [00:03:20]
-03. Love [00:03:50]
-04. A Good, Good Day at Last [00:02:59](   Читать дальше...   )Жанр: Indie Rock, Power Pop, Electronic, DiscoПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E658DEA835D70416FFC3FD251507B47B1BB1FC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791353   (21212) от 16.04.2025
-
-Nightsteel - Nightsteel (2024) Remastered, 2025, Cosmic Fire Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nightsteel [4:39]
-02 - Darkness Reigns [5:17]
-03 - Screams of Agony [3:48]
-04 - Warlord's Betrayal [4:07](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160DDDF9A371BE4D58C7AA7B1CC5DEB38A3C645E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791518   (21109) от 17.04.2025
-
-Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The Song Of Songs (1986) Repress, Quadraphonic [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Renaissance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21109.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Osculetur Me	2:55
-A2 Trahe Me	2:50
-A3 Nigra Sum, Sed Formosa	4:25
-A4 Vineam Meam Non Custodivi	2:50(   Читать дальше...   )Жанр: Classical, RenaissanceПродолжительность: 01:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE0C8427675FD79E66C2AB4E67F0EBB79FA3CCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

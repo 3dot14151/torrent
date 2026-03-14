@@ -1,3 +1,32 @@
+###  Публикация: 1368499   (909222) от 20.03.2020
+
+Jelly Roll Morton - Classic Jazz Archive 1923 - 1939 (2004) 2CD, Membran Music [FLAC|Lossless|tracks + .cue] <Ragtime, New Orleans Jazz, Stride>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909222.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- Perfect Rag:
+01. New Orleans Blues Joys [2:44]
+02. Grandpa's Spells (A Stomp) [2:35]
+03. Thirty-Fifth Street Blues [2:30](   Читать дальше...   )Жанр: Ragtime, New Orleans Jazz, StrideПродолжительность: 02:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C89924D3A47B1B47D5863F11A482B29B7872B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 635271   (909083) от 26.03.2013
 
 Parov Stelar Trio - The Invisible Girl (2013) [FLAC (tracks+cue)|Lossless]<Nu Jazz, Acid Jazz, Downtempo>
@@ -713,35 +742,6 @@ Camera Soul - Connections (2017) [FLAC|Lossless|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D99102CC0CB36FEFE389B714A265F5A654A42F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099507   (905098) от 01.02.2017
-
-Jackie Gleason - The Romantic Moods Of Jackie Gleason (1996) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905098.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01|  Melancholy Serenade  (03:15)
-02|  The Best Is Yet To Come  (03:18)
-03|  I Can't Get Started  (03:26)Жанр: Jazz, Easy ListeningПродолжительность: 02:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE796DD78452E4550774B8B05191DE2BDC6449B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

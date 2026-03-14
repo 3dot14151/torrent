@@ -1,3 +1,87 @@
+###  Публикация: 1675880   (158987) от 12.11.2023
+
+Beate Zurwehme ft LDX#40 - Fck Sigrid Kárzer (2022) [FLAC|Lossless|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fck Sigrid Kárzer (8:31)Жанр: TechnoПродолжительность: 00:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F132CC4B3C619E29AFE139ACDE2ED1F6A9E1B799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600230   (158942) от 26.12.2022
+
+VA - BEST OF 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House. Dub Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Microlot -  Sensory Cortex  (6:29)
+02.  Dexter Curtin, Marcus Jahn -  Own Breeding (Alexander Bogdanov Remix)  (6:47)
+03.  Dott. Santafeo -  Basileo Regolo  (6:20)
+04.  Mick Whitehouse -  Dotti  (5:08)(   Читать дальше...   )Жанр: Deep House, Tech House. Dub Techno, MinimalПродолжительность: 03:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49318A8B39D8F40CDBF75FED3103DEEE3D246DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390616   (157284) от 18.12.2021
+
+Wolfgang Gartner - Weekend in America (2011) [FLAC|Lossless]<Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Em (feat. Eve)
+02. Space Junk
+03. Menage A Trois
+04. Circus Freaks (feat. Jim Jones & Cam'ron)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672B1B7538F546E23EB7A188F81729AF7D860122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194638   (155974) от 25.12.2017
 
 VA - Nick Warren - The Soundgarden - Volume One (2014) Hope Recordings [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Techno, Leftfield, House>
@@ -657,91 +741,6 @@ Kobarey - The Four Sides of Orithyia (2018) Lowless [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74AF5C46C2805C32070500B7DA7676A284ECB5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195318   (144443) от 28.12.2017
-
-My_Initials - Twelve (2017) ScanDark Recordings [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Club Hades (06:00)
-02. Natural Occurance (07:10)Жанр: TechnoПродолжительность: 00:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17377505D1ED89875334A5870604CBEA43AF5E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195299   (144431) от 28.12.2017
-
-Ohrwert - Fidelis / Blavus (2017) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blavus (05:55)
- 02. Blavus (XDB Reshape) (06:53)
- 03. Fidelis (06:14)
- 04. Blavus (Grad_U Remix) (09:54)Жанр: Dub Techno, TechnoПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76935643F8FA819781CEEBA9A47E2EA6CD5B984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087535   (144334) от 28.12.2016
-
-Sofi Tukker - Soft Animals (2016) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-Disco, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drinkee  (04:59)
-02. Awoo (03:17)
-03. Matadora (04:02)
-04. Hey Lion (03:29)(   Читать дальше...   )Жанр: Nu-Disco, ElectronicПродолжительность: 00:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892466BE7EC711DF16E62C74A77E52B6765407A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1703241   (115157) от 28.02.2024
+
+Marian McPartland - Contrasts (1992, 1994) 2CD, 2003, The Jazz Alliance [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Royal Garden Blues [4:45]
+02. Sentimental Journey [7:39]
+03. Blue Prelude [5:59]
+04. Dinah [3:46](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27ADB171DED1E70FE60C06072C6767770747A935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703247   (115156) от 28.02.2024
+
+Sahib Shihab - And The Danish Radio Jazz Group (1965) 2008, Oktav [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Di-Da [5:10]
+02. Dance of the Fakowees [4:13]
+03. Not Yet [3:25]
+04. Tenth Lament [6:20](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682320C7D41ECAC5D5228966A5F497BC1591AF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703515   (114818) от 01.03.2024
+
+Sahib Shihab - Jazz Joint 2: Companionship (1971) 2007, Anti-Magnetic [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Mani Padme Hum [5:43]
+02. Bohemia After Dark [3:41]
+03. Companionship [4:17]
+04. Stoned Ghosts [5:04](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Hard BopПродолжительность: 01:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E30036D030046FC74544338CB178C626A56DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703741   (114807) от 01.03.2024
 
 Marian McPartland - Windows (1979, 1980) 2CD, 2004, Concord Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Piano Jazz>
@@ -658,93 +745,6 @@ VA - Greatest Jazz Lounge Smooth Instrumentals to Chill (2024) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8871E183FA740C2DFB889C8EAB384A087CA8B6F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704353   (114290) от 04.03.2024
-
-Wynton Marsalis - Wynton Marsalis (1982) CBS [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Father Time [8:13]
-02. I'll Be There When the Time Is Right [2:35]
-03. RJ [3:51]
-04. Hesitation [5:45](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C99F713A54D5DCB76ED6F52AEB28DBEB2CF785B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704350   (114288) от 04.03.2024
-
-Charles Williams - Trees And Grass And Things (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trees and Grass and Things [4:37]
-02. Chop! Chop! [4:41]
-03. Cracklin' Bread [7:35]
-04. Exactly Like You [4:43](   Читать дальше...   )Жанр: Jazz-Funk, Soul-JazzПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5E5C7752F98DDE3AEA777710A1D549E53834DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704349   (114286) от 04.03.2024
-
-Cedar Walton - Composer (1996) Astor Place [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martha's Prize [6:15]
-02. The Vision [7:25]
-03. Happiness [5:51]
-04. Minor Controversy [7:14](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90757FED6897F0565F350C219D2373C42AF5A418
 ```
 
 https://mybot314.ru/tekegram_catalog/

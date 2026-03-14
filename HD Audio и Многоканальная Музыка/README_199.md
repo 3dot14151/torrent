@@ -1,3 +1,148 @@
+###  Публикация: 1793385   (67494) от 24.04.2025
+
+Darkness By Oath - Studio Albums (4 releases) (2005-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darkness By Oath - испанская метал-группа. Основана в 2002 году в г. Аррасате.2005 - Confidential World Of Lies
+2009 - Fear Yourself
+2012 - Near Death Experience
+2014 - Seeds Of DesolationЖанр: Melodic Death MetalПродолжительность: 02:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9CC669AC4F7ED6ACA7CC188939FC64EB106332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792906   (67493) от 24.04.2025
+
+Fractal Gates - Studio Albums (4 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fractal Gates - французская метал-группа, образована в Париже в 2007 году.2009 - Altered State Of Consciousness
+2013 - Beyond The Self
+2018 - The Light That Shines
+2024 - One With DawnЖанр: Progressive Melodic Death MetalПродолжительность: 03:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB10FA859A3C6C71F719489FD8DD642742800F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793640   (67485) от 25.04.2025
+
+DS2 - Electro Swing Dance (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  dancing swing (3:27)
+02.  Party Party Party (2:41)
+03.  Dance Party Swing Electro (3:09)
+04.  Jazz Swing Electro (1:46)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9535C0B9D0A2A665405C1001C7472030F12759A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793705   (67484) от 25.04.2025
+
+Russ Ballard - Songs From The Warehouse - The Hits Rewired (2025) 2 x CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67484.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+ 01 - Resurrection (03:17)
+ 02 - Courageous (03:15)
+ 03 - Journey Man (03:24)(   Читать дальше...   )Жанр: RockПродолжительность: 01:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01566844DD2CF3A3B9B0B534F20A19E2096DA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793663   (67467) от 25.04.2025
+
+Dream Theater - Images And Words (1992) Reissue, 2025, ATCO Records [DSD256|tracks|Vinyl-Rip] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67467.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Pull Me Under
+A2 Another Day
+A3 Take The Time
+A4 Surrounded(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F0899C816A414499DC90BEAE3635FFEA00D1B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793647   (67462) от 25.04.2025
 
 Ghost Hounds - Almost Home (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -600,149 +745,6 @@ A4 Love Me(   Читать дальше...   )Жанр: Soul, DiscoПродол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17A751D134EF10216D0672E86A9CF0ABB92AE83C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794082   (67385) от 27.04.2025
-
-Steve Howell & The Mighty Men - Yeah Man (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Long Lonesome Blues (3:55)
-02.  Yeah Man (4:09)
-03.  20% Alcohol (4:33)
-04.  One Mint Julep (2:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEF6A65D36D2F3AF74B492D33BC01E3C367BA63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794129   (67384) от 27.04.2025
-
-The Damn Truth - The Damn Truth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Be Somebody (3:46)
-02.  I Just Gotta Let You KnowЖанр: Classic Rock, Hard RockПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44EC128ADC52D41093665DA07EADB8B3612A510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794049   (67383) от 27.04.2025
-
-Skyla Owen - In My Dreams (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Endless Skies (3:31)
-02.  Every Touch Sparks A Fire Inside (3:31)
-03.  In My Dreams (2:40)
-04.  Love's Melody (2:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8A17397185D73F20D2A1724E00E8CDDDC3356B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794005   (67382) от 27.04.2025
-
-Brainstorm - Wall of Skulls (2021) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Walls....
-A1 Chamber Thirteen
-A2 Where Ravens Fly
-A3 Solitude(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AFE8A4F6945AFD155594B02F3F8C310A88B5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793702   (67381) от 27.04.2025
-
-Game Over - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Game Over - итальянская треш-метал-группа, основана в 2008 году.2012 - For Humanity
-2014 - Burst into the Quiet
-2016 - Crimes Against Reality
-2017 - Claiming SupremacyЖанр: Thrash MetalПродолжительность: 03:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A6567E962642C3F866FBED60522F4FEC33894C
 ```
 
 https://mybot314.ru/tekegram_catalog/

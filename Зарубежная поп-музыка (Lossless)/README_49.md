@@ -1,3 +1,148 @@
+###  Публикация: 1050160   (540368) от 07.09.2016
+
+Bee Gees - Best Of Bee Gees Vol.1 (1969) Reissue, 1987, Polydor [FLAC|Lossless|image + .cue]<Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holiday 02:56
+02. I've Gotta Get A Message To You 03:00
+03. I Can't See Nobody 03:48
+04. Words 03:19(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACCDD100260A423E1BFB8060686D775C6237BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239430   (538983) от 05.08.2018
+
+Tracey Thorn - SOLO : Songs And Collaborations 1982 - 2015 (2015) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Trip Hop, House, Acoustic, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Protection (7" Edit) (4:55)
+02. Easy (3:58)
+03. Better Things (4:17)
+04. Night Time (3:44)(   Читать дальше...   )Жанр: Pop, Trip Hop, House, Acoustic, Ballad |Продолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1198D2A7D6E02DFA378256EFE0DD0663352CD9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239491   (538446) от 05.08.2018
+
+KAZKA - КАРМА (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. КАРМА (04:05)
+02. СВЯТА (03:09)
+03. САМА (03:57)
+04. ЗАПАЛА (03:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0BAB4D900FC2D208AE709C2CE666985B63D08B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050525   (538279) от 08.09.2016
+
+Carrie Underwood - Greatest Hits - Decade #1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Pop, Country Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Something in the Water (3:58)
+ 02.Little Toy Guns (3:31)
+ 03.Inside Your Heaven (4:03)
+ 04.Jesus, Take the Wheel (3:46)(   Читать дальше...   )Жанр: Pop, Country PopПродолжительность: 01:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C23192B5D0F4735169E42B7E5916E113E27813F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926010   (537201) от 08.08.2015
+
+Hanne Sorvaag - Cover Me (2010) [FLAC|image + .cue]<Pop / Soft Rock / Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring Me Down [02:59]
+02. Brief And Beautiful [03:43]
+03. My Heart Is Yours [02:29]
+04. November, December [04:22](   Читать дальше...   )Жанр: Pop / Soft Rock / CountryПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5EBCADDBA0F81C673D3C42E6FD1FF26B8C6C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532562   (536430) от 08.08.2012
 
 VA - The Late '50s - The Top 10 Collection (1998) 4CD [FLAC|Lossless]<Pop, Rock>
@@ -612,151 +757,6 @@ Giusy Ferreri - Girotondo (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BF8C4747DA1BC68783917476B6930B90501B52C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927536   (528703) от 13.08.2015
-
-Hanne Sorvaag - All Is Forgiven (2012) [FLAC|image + .cue]<Pop / Soft Rock / Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Days That End With Y [03:46]
-02. One Of Everything [03:32]
-03. Always On The Run [03:50]
-04. Should Have Been Easy [02:45](   Читать дальше...   )Жанр: Pop / Soft Rock / CountryПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C655F4A55320013D2E2EA67FB648D311373F9836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927530   (528700) от 13.08.2015
-
-Hanne Sorvaag - Christmas Lights (2013) [FLAC|image + .cue]<Pop / Soft Rock / Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something With An A [04:00]
-02. Hot Chocolate & Marshmallows [03:58]
-03. Oh, December [03:51]
-04. Christmas Lights [03:31](   Читать дальше...   )Жанр: Pop / Soft Rock / CountryПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACFB447AC76A1D13F7E89D5A99022C193D8C194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927403   (528508) от 13.08.2015
-
-C.C. Catch - Catch The Catch (2000) [FLAC|image+.cue]<EuroDisco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cause You Are Young (Maxi-Version)
-02. I Can Lose My Heart Tonight (Maxi-Version)
-03. You Shot A Hole In My Soul (Maxi-Version)
-04. One Night's Not Enough(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891F2B45CA0BD6F4A0A1DA25D82F84AEBF6D1F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313147   (528281) от 07.07.2019
-
-The Soft Cavalry - The Soft Cavalry (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dive (04:15)
-02. Bulletproof (04:27)
-03. Passerby (04:14)
-04. The Velvet Fog (04:11)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823683918D1C9355A76CDC5C1F18C6CBEDF6EB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052554   (528183) от 14.09.2016
-
-VA - Together As One (A Tribute To Damilola Taylor) (2003) [FLAC|Lossless|image + .cue] <Pop, Electronic, Hip Hop, RnB, Swing>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Together As One - Wake Up The Morning
-02 – Craig David - Hidden Agenda (Plasma Remix, Featuring – Messiah Bolical)
-03 – Mis-Teeq - One Night Stand (Blacksmith Rerub, Featuring – Know ?uestion)
-04 – Gorillaz - Clint Eastwood (Ed Case Refix) (Edit)(   Читать дальше...   )Жанр: Pop, Electronic, Hip Hop, RnB  SwingПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A1A1D0A099DBFE1DBC43285D1803C232181745
 ```
 
 https://mybot314.ru/tekegram_catalog/

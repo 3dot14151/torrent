@@ -1,3 +1,61 @@
+###  Публикация: 1092877   (1028402) от 01.03.2021
+
+Bonobo - Discography 48 Releases (2000-2021) Ninja Tune [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Future Jazz, Ambient, Trip Hop, Leftfield, Soul>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonobo - Fabric Presents Bonobo (Continuous DJ Mix) (01:13:49)
+ 02. Bonobo - Flicker (05:45)
+ 03. Bonobo - Boston Common (04:48)
+ 04. Pote - Jacquot (Waters Of Praslin) (06:19)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Downtempo, Future Jazz, Ambient, Trip Hop, Leftfield, Soul •Продолжительность: 31:33:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A115C1B70C713327ACC8BCB7525073F1215CBDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451322   (1028363) от 02.03.2021
+
+VA - Feeling Warm & Cozy: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Roberto Sol & Nera - Sensuality (Ballad mix)
+02 Mission Brown - Your Smile (Original Mix)
+03 Michael E - Conversations (Chill Mix)
+04 Klangstein - Deep Dive (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81834B82985423446A18070CB3DE1D1DCE97C780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451131   (1028354) от 02.03.2021
 
 VA - My Cat Loves to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -687,64 +745,6 @@ VA - Relaxing Afternoon: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76E2A01EE14AE9D4D1E5F927E8413D90269BC44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469668   (1016267) от 13.05.2021
-
-Morcheeba - Blackest Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cut My Heart Out
-02. Killed Our Love
-03. Sounds Of Blue
-04. Say It's Over(   Читать дальше...   )Жанр: Electronic, Trip-Hop, DowntempoПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DEAE8EE177F0FB78E40317366EA57C278DC9441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470655   (1015635) от 17.05.2021
-
-Vladi Strecker - Sax the Night Away - Saxophone Lounge Music & Chillout Grooves (2021) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Midnight Hour (Zero O Clock Remastered Mix)
-02. Sleep on the Beach (The Bossa Cut)
-03. I Am Calling You (Dial My Number Mix)
-04. Just Be Here (Early Morning Mix)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B65DA81AA6819BCB3E7E4588A118E6B7023AF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

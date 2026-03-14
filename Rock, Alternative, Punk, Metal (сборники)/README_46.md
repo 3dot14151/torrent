@@ -1,3 +1,32 @@
+###  Публикация: 1763753   (35328) от 03.12.2024
+
+VA - Rock Stream Mix (2024) [MP3|320 Kbps] <Soft rock, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35328.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 4Db - 45 Degrés - (06:17)
+ 002. Endless Dive - Archimboldi - (06:53)
+ 003. Cold Years - Die Tonight - (03:22)
+ 004. Sunchild, Karfagen & Hoggwash - Grail And Time - (05:54)(   Читать дальше...   )Жанр: Soft rock, RockПродолжительность: 11:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66868B3C851B6B03A162B929365A16E1E7383D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763842   (35325) от 03.12.2024
 
 VA - Workout, Beast Mode, Aggressive 2 (2024) [MP3|320 Kbps] <Rock, Hard Rock, Other>
@@ -716,35 +745,6 @@ Bloodhound Gang - Compilation (1995-2015) [MP3|320 Kbps] <Alternative, Comedy ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86B11E20FFC9C485BAE652090A8AA82A669730A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780295   (27325) от 17.02.2025
-
-VA - Music For You vol.29 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buckethead - Soothsayer (Dedicated To Aunt Suzie) (09:05)
- 02. At Vance - Solfeggietto (01:03)
- 03. Tony MacAlpine - Tears Of Sahara (03:47)
- 04. Animals as Leaders - Woven Web (04:08)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 03:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0063E560117F43BE025674A86B303EF7DA4A0F0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

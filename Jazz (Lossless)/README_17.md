@@ -1,3 +1,32 @@
+###  Публикация: 1479961   (1009344) от 26.06.2021
+
+Amos Hoffman, Edwin G. Hamilton - Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz Funk, Groove, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009344.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Let's Have Fun - 03:30
+2. American Dream - 04:12
+3. Southern Hospitality(Feat. Mark Rapp) - 04:01
+4. Genuine Love - 04:17(   Читать дальше...   )Жанр: Fusion, Jazz Funk, Groove, SoulПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB1A03D930F659F92167610407DFE56AAF298DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480607   (1008861) от 29.06.2021
 
 Johnny Hartman - There Goes My Heart (1947 - 1952) 2004, Proper Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Johnny Holiday - Sings (1954) 2004, Contemporary Records [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BEC93AFCC54C16FEB4B759CCF5296FA31AB0FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483842   (1006534) от 16.07.2021
-
-Lena Horne - Love Songs (50-e - 60-e) 2005, Legacy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me or Leave Me [3:12]
-02. The Man I Love (Live) [4:29]
-03. What Is This Thing Called Love? [2:42]
-04. At Long Last Love [2:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99D4E6330D8F7073A6871ED0D4A80BB714D50A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

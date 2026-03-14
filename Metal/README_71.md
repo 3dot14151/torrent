@@ -1,3 +1,38 @@
+###  Публикация: 569707   (392222) от 03.11.2012
+
+Chaosweaver - 2 Albums (2008-2012) [MP3|320]<Industrial/Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392222.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Red Dawn Rises
+2. Wings Of Chaos
+3. Maelstrom Of Black Light
+4. The Great Cosmic Serpent
+5. Infected
+6. A Requiem For A Lost Universe
+7. Crystal Blue
+8. Repulsion
+9. Ragnarok Sunset
+10. Enter The Realm Of The Doppelganger(   Читать дальше...   )Жанр: Industrial/Symphonic Black MetalПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C891B757C406A97374309538E20F877C4AF3B896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570723   (390337) от 05.11.2012
 
 Raventale - 6 Albums (2006-2012) [MP3|320]<Atmospheric Black/Doom Metal>
@@ -721,35 +756,6 @@ Blackning - Alienation (2016) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07F1DAFC5D91C2A80B80164F5B0D80EDEBEE3988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068003   (383358) от 31.10.2016
-
-Straightout - Phobia (2016) [MP3|320 Kbps] <Melodic Death, Black Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383358.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Zionis Anti Trinitas
-2. Segitiga Pemusnah
-3. Berhala Paganis
-4. Anjing Neraka(   Читать дальше...   )Жанр: Melodic Death, Black Metal, MetalcoreПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FD83B10EEBA5D62465FF6522783D5074490338
 ```
 
 https://mybot314.ru/tekegram_catalog/

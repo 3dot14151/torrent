@@ -1,3 +1,32 @@
+###  Публикация: 976798   (967833) от 19.01.2016
+
+Maria Schneider Orchestra - Concert In The Garden (2004) ArtistShare[FLAC|tracks+.cue] <Modern Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Concert In The Garden [11:58]
+ 02.Three Romances: Part 1 Choro Dancado [09:46]
+ 03.Three Romances: Part 2 Pas de Deux [09:03]
+ 04.Three Romances: Part 3 Danca Ilusoria [09:06](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6FD64D70273A4E1A37046E7870951D5AC91292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358804   (967234) от 09.02.2020
 
 Vintage Gramola - Welcome to the Vintage Sound (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Blues>
@@ -716,35 +745,6 @@ Trio Transition (1998) DIW [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9685AF54396A7FAFAD4AD3D0D898BE81BC2DF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978674   (962626) от 24.01.2016
-
-Actis Dato Quartet - World Tour (2009) Actisdato[FLAC|tracks+.cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Raga [05:05]
- 02.Tangeri [04:55]
- 03.Michoacan [06:56]
- 04.Belle Epoque [05:34](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2FC03D34F8145185E263AC3002A890DE30F0B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1422867   (304290) от 11.11.2020
+
+Music From Turtle Island - Contemporary Native American Music (2006) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddy Red Bow - Standing Alone
+02. Chante Pierce - Way Of The World
+03. Chester Night and The Wind - Victory Song
+04. Peggy Vermette - Lies(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10E89F476C035D4C2083AA1B04310D9BFE90170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422378   (304168) от 11.11.2020
+
+Tantric Music - Tantric Art of Love - New Age Music 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting for the Night (3:53)
+02. Sex Evolution (3:32)
+03. Erotic Rituals (3:16)
+04. Empire of Two (3:32)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EBD3892037E53204C6FE29BED540EC3BEF2C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422626   (304167) от 11.11.2020
+
+Pachuly & Friends - Collection (3 альбома) (2003-2013) [MP3|320 CBR ~245 Kbps (V0)] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle Ceremony
+02. Circle Of Inspirations
+03. Your Voice In The Wind
+04. Over The Mountains(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 02:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A9E0BB6AA0BCDCA8017FE0D6273F7B0427B84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423003   (304166) от 11.11.2020
+
+Wychazel - Tao: A Path of Peace (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304166.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Path of Peace (8:04)
+2. Sunlight Through Trees (7:40)
+3. Raindrops on Leaves (6:56)
+4. Temples in the Mist (10:00)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B09BC2961379726796C7F3C25903647375705F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422593   (304160) от 11.11.2020
+
+Theodor Bastard - Pathologic 2 OST (2019) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Darkness [3:49]
+ 2. Children Are Burying The Doll [2:07]
+ 3. Drops In The Endless [4:23]
+ 4. Mourning Of The Gone [2:24](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9BC3AFF8F525B5D468A22EEC10839E46DA988E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422800   (304158) от 11.11.2020
 
 VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
@@ -606,149 +751,6 @@ Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-пау
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFE4643A84B154C62C01743321387A736BC807C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333863   (301256) от 26.10.2019
-
-David Ison - Ison sleep system (2009) [MP3|320 Kbps] <relax, meditative>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ison sleep system        (01.10.00)
-02. Ison sleep system 2.0   (01.10.00)Жанр: relax, meditativeПродолжительность: 02:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4F214DD7389B1DD80125B30D0F9DA84085CC95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261863   (301199) от 12.11.2018
-
-Michael Logozar - Passage (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timelapse
-02. Passage
-03. Midnight in the Garden
-04. Through the Storm(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DA613E63B2F0A42DE289705686364A6561A052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333404   (301154) от 26.10.2019
-
-Various artists - Chip & Crack - best of (1995-2019) [OGG|128-350 Kbps] <Demoscene, others>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chip & Crack  (3:53)
-02. Chip & Crack  (2:52)
-03. Chip & Crack  (2:35)
-04. Chip & Crack  (1:59)(   Читать дальше...   )Жанр: Demoscene, othersПродолжительность: 2:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C23EDF98234F67E72D55DD1841965BC1B72E3E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261790   (301079) от 12.11.2018
-
-Mark Dwane - Astrology (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301079.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Astrology - 5:47
-2. Planetary Rulers - 6:15
-3. Midheaven - 4:54
-4. Fire Signs - 5:20(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C080C606251794F007C8B69CAE904055BA95E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261681   (300995) от 12.11.2018
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 3 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300995.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Swan Lake/ Pathetique/Peer Gynt - Tchaikowsky/Beethoven/Grieg - Symphonic Rock Orchestra
-   2. Reverie/ Ave Maria – Schumann/ Schubert - Wave's Computer Orchestra
-   3. New World – Dvorak - Philharmonics of London
-   4. Bach goes to the beach – Bach -Wave's Computer Orchestra(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91084522EF2E652119060F6A231ED7C4BFE2A42
 ```
 
 https://mybot314.ru/tekegram_catalog/

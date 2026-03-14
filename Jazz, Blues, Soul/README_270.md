@@ -1,3 +1,168 @@
+###  Публикация: 1563249   (504571) от 14.07.2022
+
+VA - Electric Blues Bands (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Electric BluesПродолжительность: 01:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC28A8EA298F4D9C10DE9C7C71DC3E819C047163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563252   (504567) от 14.07.2022
+
+VA - The Electric Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Universal Production Music - Advertising Theme No. 17 - Side A [00:35]
+ 02. Howlin' Wolf - Killing Floor [02:50]
+ 03. Buddy Guy - First Time I Met The Blues (Single Version) [02:21]
+ 04. T-bone Walker - Every Day I Have The Blues (Album Version) [02:49](   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF125A9990823B3CB21BC9E7D9F5DF82ADD17298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563248   (504563) от 14.07.2022
+
+VA - Bloody Mary Blues (Blues music selectuon) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: BluesПродолжительность: 01:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BFA7B523DEFC2DAD2BA650756AE934B3D67741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538337   (504493) от 28.08.2012
+
+VA - 100 Hits - Northern Soul (2009) Box Set 5xCD [FLAC|Lossless]<Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoulФормат: BoxSet 5xCDПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316640   (504235) от 28.07.2019
+
+Gene Ammons - Groove Blues & The Big Sound (1958) 2СD, 2003, Азбука Звука [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504235.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- Groove Blues:
+01. Ammon Joy [13:20]
+02. Groove Blues [9:35]
+03. Jug Handle [10:12](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1E8A3F2EAC4BB14A5FB34AC3F1E73654CF0D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934218   (503768) от 04.09.2015
+
+Taylor Cook - The Cook Book (2015) [FLAC|tracks+.cue]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Replacement [05:31]
+02. Splainin' [05:29]
+03. Backstroke Boogie [07:13]
+04. Biker's Dozen [05:42](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E23193B1A5BCE892FD5F389C072E2680A11EC58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934316   (503762) от 04.09.2015
 
 Dominique Magloire - Travelin' Light With Billie (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz, Swing>
@@ -574,181 +739,6 @@ Paul Brown - The Funky Joint (2012) Woodward Avenue Records [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D0DF94C8B4FE98D6BB3046F00144D9C04BE6BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317370   (501483) от 31.07.2019
-
-Anouar Brahem - Blue Maqams (2017) ECM Records [FLAC|Lossless|image + .cue] <World Fusion, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Day [7:01]
-02. La Nuit [10:29]
-03. Blue Maqams [8:42]
-04. Bahia [8:46](   Читать дальше...   )Жанр: World Fusion, Modern CreativeПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20061B5CCEF1348DF3F1FE4049CD0DA95803AD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934567   (501329) от 06.09.2015
-
-Pink Turtle - Back Again (2010) [FLAC|tracks]<Jazz Mainstream, Tribute, Parody>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maniac (Dennis Matkowsky - Michal Sambello)
-02. Everybody's Got to Learn Sometimes (James Warren)
-03. Money Money Money (Bernard Ulvaes - Benny Anderson)
-04. I Can't Get No Satisfaction (Mick Jagger - Keith Richards)(   Читать дальше...   )Жанр: Jazz Mainstream, Tribute, ParodyПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28DDC55254C7C9D7A7F948D6BA18DAC61CD81380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317279   (501208) от 31.07.2019
-
-Piano Dreamers, Relaxing Instrumenta  Music - Sex Music 69 (2019) [MP3|320 Kbps] <Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501208.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Sexy Bossa Jazz (3:40)
-2.Sensual and Smooth (3:40)
-3.Hit Lounge Ambient (3:57)
-4.Mysterious Love (3:59)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61BAE680534D37E244F3481E9BF04FDB9EA819E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541131   (501058) от 31.08.2012
-
-Mark Knopfler - Privateering (2012) 2CD Promo [MP3|~245 кб/с ]<Folk / Blues / Country Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экс-лидер Dire Straits Марк Нопфлер (Mark Knopfler), удостоившийся ранее в этом году премии Lifetime Achievement Award на церемонии Ivor Novello, анонсирует выпуск нового сольного альбома.1.  Redbud Tree (3:19)
-2.  Haul Away (4:01)
-3.  Dont Forget Your Hat (5:14)
-4.  Privateering (6:18)
-5.  Miss You Blues (4:17)(   Читать дальше...   )Жанр: Folk / Blues / Country RockПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988DC0C670D90E94447C0CBA04DA0F9FFC6E468C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380177   (500788) от 26.08.2011
-
-Brian Setzer (Brian Setzer Orchestra) & Stray Cats - 54 albums (1981-2011) [mp3|320 kbps] <Rockabilly, Swing, Rock'n'Roll, Psychobilly>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stray Cat Strut (05:56)
-02. Lust'n'Love (04:23)
-03. Mystery Train (03:09)
-04. Summertime Blues (03:00)(   Читать дальше...   )Жанр: Rockabilly, Swing, Rock'n'Roll, PsychobillyПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564294   (500657) от 18.07.2022
-
-Bireli Lagrene - Inferno (1987) Blue Note [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inferno [6:07]
-02. Rue de Pierre, Part Two [3:57]
-03. Action [4:03]
-04. Rock It [5:11](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF2B149F2CE7C05370021AB2C3742C0F30CF2BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

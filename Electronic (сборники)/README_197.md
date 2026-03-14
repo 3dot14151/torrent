@@ -1,3 +1,32 @@
+###  Публикация: 1667157   (177256) от 07.10.2023
+
+VA - Car Music Mix 4 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTBAT - Flame - Edit (5:27)
+02. Zven, Ghetto - S.W.A.T (2:13)
+03. Yves V & Fafaq - Bring It Back (2:51)
+04. Tony Igy x Pakito, K.Funk, M.Gold - Video Astronomia (Dj Baur Mixshow) (3:58)(   Читать дальше...   )Жанр: G-House, Bass Progressive, OtherПродолжительность: 08:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0D9A54C4FB73F159EB85575C830482C744BC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429297   (176876) от 06.12.2020
 
 VA - Beatport Electro House: Sound Pack #204 (2020) [MP3|320 Kbps] <Electro House>
@@ -716,35 +745,6 @@ MENDA - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E043F7A3966505D2E6B5B189900B39E03091E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671518   (171173) от 25.10.2023
-
-VA - Lo-Fi Harmony vol.2 (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo Fi>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171173.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aoiii & Afrikasia - W Love, Afrika [04:12]
-002. Relaxing Lo Fi - Mood For Study Sessions [02:13]
-003. Cloudchord & Big Gigantic - Keep On Movin' [03:07]
-004. Alecs Delarge - Jazz Biscuits [02:51](   Читать дальше...   )Жанр: Lounge, Downtempo, Lo FiПродолжительность: 05:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A59FF72D3A6D357EAC9F91E08E918FACC8B0F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

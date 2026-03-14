@@ -1,3 +1,90 @@
+###  Публикация: 1181792   (322116) от 08.11.2017
+
+Rene Thomas & Bobby Jaspar - Thomas & Jaspar Quintet (1961) 2006, BMG [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oleo  [05:05]
+02. Theme For Freddie [04:17]
+03. Half Nelson [07:10]
+04. But Not For Me [06:06](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E767E2117243072B5C3878AAF3EE0E65D88C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420963   (322110) от 03.11.2020
+
+VA - Late Night Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julie London - Sway (Remastered) (02:35)
+02. Louis Armstrong - Moon River (02:56)
+03. Diana Krall - The Look Of Love (04:42)
+04. Carla Bruni - Stand By Your Man (02:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B6F8416159BB885CC5304CEE1EAD5AA98C28E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181790   (322033) от 08.11.2017
+
+Eddie Heywood - 1950 - 1951 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bebe [02:09]
+02. Trees [03:24]
+03. Summertime [02:40]
+04. The Piccolino [02:50](   Читать дальше...   )Жанр: Swing, Big Band, Piano JazzПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FC941B8078C2CEE702C1E3E0019F93D05E56D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958818   (321974) от 22.11.2015
 
 Urbie Green - The Fox (1976) 2013, King Records[FLAC|tracks+.cue]<Jazz Funk, Soul Jazz>
@@ -657,93 +744,6 @@ Toots Thielemans - Two Generations (1974) Remaster, 2015, Solid Records[FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A321E7D55923D5ACE68FAF889860D09930186C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075697   (318684) от 23.11.2016
-
-Matt Wilson's Big Happy Family - Beginning Of A Memory (2016) Palmetto Records[FLAC|Lossless|tracks + .cue] <Modern Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Score [00:38]
- 02.Lester [05:50]
- 03.Searchlight [04:30]
- 04.Beginning Of A Memory [03:29](   Читать дальше...   )Жанр: Modern Jazz, Jazz FusionПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFD0CCDD64641BE4642259D4E34B5D58E771013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331918   (318667) от 18.10.2019
-
-Louis Bellson - Four Classic Albums Plus 1952 - 1958 (2012) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318667.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Eyes [2:45]
-02. Rainbow [2:46]
-03. Sticks [3:22](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 02:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828DFB1593FAC56393B7B6C1198DB0C9D659CB3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421605   (317874) от 05.11.2020
-
-Sonny Clark - Oakland (1955) 1995, Uptown Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's New [7:15]
-02. Willow Weep for Me [6:30]
-03. There Will Never Be Another You [6:50]
-04. D & E [5:24](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:849F523BC79F4E929F93A7C39DFAD470241FDBC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

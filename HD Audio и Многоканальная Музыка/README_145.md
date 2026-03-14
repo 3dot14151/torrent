@@ -1,3 +1,146 @@
+###  Публикация: 1739346   (106128) от 27.07.2024
+
+CAGMO - Симфония Король и Шут (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лесник [00:03:22]
+02. Смельчак и ветер [00:02:57]
+03. Два друга и разбойники [00:02:16]
+04. Сапоги мертвеца [00:02:23](   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C884C7B906CA6774F78EFD699C596D49DBD437FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739354   (106106) от 27.07.2024
+
+Dmitry Spirin (ex-Тараканы) - Чем кончается Родина (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чем кончается родина [00:02:52]
+02. Если в этот раз пронесет [00:03:40]
+03. Страшнее смерти [00:03:02]
+04. Чем кончается родина (Acoustic) [00:03:03](   Читать дальше...   )Жанр: RockПродолжительность: 00:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB23AF27CC12B45A9056866BE1967DD9A0FD74CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739365   (106081) от 27.07.2024
+
+Blur - Live at Wembley Stadium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St Charles Square (Live at Wembley Stadium) [00:04:17]
+02. There’s No Other Way (Live at Wembley Stadium) [00:04:21]
+03. Popscene (Live at Wembley Stadium) [00:03:33]
+04. Tracy Jacks (Live at Wembley Stadium) [00:04:33](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 02:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F2E10677C3DD44F5040896AE6BDED5A8BD8BE14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739369   (106077) от 27.07.2024
+
+KK's Priest - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106077.jpg" />
+</div>
+
+
+###  Подробнее
+
+KK's Priest — британская метал-группа бывшего гитариста Judas Priest Кеннета Даунинга.2021 - Sermons Of The Sinner
+2023 - The Sinner Rides Again (Napalm Records – NPR1264DP)Жанр: Heavy MetalПродолжительность: 01:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:958EDE81E0977B59B69594970F0A19673FD7AAB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739464   (106046) от 28.07.2024
+
+VA - Остров Сокровищ или В стиле Шансон часть 2 от Arhangel Music (2024) [FLAC 2.0|44.1/16|Lossless|tracks] <Pop, Rock, Disco, Techno, Electronic, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106046.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:12] 01. Дрянь (Standart Vers)
+[3:58] 02. Вступление (1 часть)
+[3:30] 03. Буратино!
+[2:25] 04. 22 притопа(   Читать дальше...   )Жанр: Pop, Rock, Disco, Techno, Electronic, ChansonПродолжительность: 01:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9873571A3E50381456E70C77DF99649360238EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739529   (106028) от 28.07.2024
 
 VA - Дискотека Казанова. Dream House vol. 4 - Спецвыпуск Лето 2003 (2003) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Euro House>
@@ -595,151 +738,6 @@ Jan Wouter Oostenrijk - Maghreb Jazz Guitar (2024) [FLAC 24/44.1|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BACF7956D4820DE59CB9E5615610EB90F8719588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740230   (105893) от 01.08.2024
-
-Big Steel Train - #BST24 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up, Get Out, Get Down (3:23)
-02. Blame It On Love (3:48)
-03. Freedom (3:06)
-04. A Hundred Ways (3:10)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3FA5165FC3FB10036D8E57D40575A522BDCCB9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740289   (105892) от 01.08.2024
-
-Twilight Force - Studio Albums (4 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Twilight Force — шведская симфо-пауэр-метал группа, известная своими фантастическими текстами и костюмами в стиле LARP, в которых группа выступает на сцене.2014 - Tales Of Ancient Prophecies
-2016 - Heroes of Mighty Magic
-2019 - Dawn of the Dragonstar
-2023 - At The Heart Of WintervaleЖанр: Symphonic Power MetalПродолжительность: 03:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD589F083EA91A4EDC8B7244B1533D2143A25F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740584   (105830) от 02.08.2024
-
-Los Lonely Boys - Resurrection (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wish You Would (3:34)
-02. I Let You Think That You Do (3:31)
-03. Dance With Me (3:53)
-04. Send More Love (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC1DCDDB612BAFFAFF5D180FF413C324F3D4C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740513   (105828) от 02.08.2024
-
-aurorawave - aurorawave (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <World, Reggae, Reggae Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. aurorawave - Meant To Be [3:28]
-02. Atreyu;aurorawave - Inferno [3:33]
-03. aurorawave - Stratosphere [2:51]
-04. Layton Meacham;aurorawave - Rise & Shine [3:37](   Читать дальше...   )Жанр: World, Reggae, Reggae RockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F08588075D7E66DF25A580D570AF50FD9FB9AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740482   (105823) от 02.08.2024
-
-Lord Of The Lost - LIVE at W:O:A (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Gothic, Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lighting The Way (Intro) (LIVE at W:O:A) [3:00]
-02 - The Curtain Falls (LIVE at W:O:A) [3:05]
-03 - Morgana (LIVE at W:O:A) [3:46]
-04 - Kill It With Fire (LIVE at W:O:A) [3:45](   Читать дальше...   )Жанр: Rock, Gothic, Glam RockПродолжительность: 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3D8DCE30287045162A1CC7C4FD4AB8987C4E25
 ```
 
 https://mybot314.ru/tekegram_catalog/

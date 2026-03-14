@@ -1,3 +1,119 @@
+###  Публикация: 1363531   (942318) от 28.02.2020
+
+Группа Терёха - По следу солнца (2020) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942318.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. По следу солнца
+3. Порушка – Параня
+4. Колечко(   Читать дальше...   )Жанр: FolkПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550CED02A67C54DC93C7B20ADD8994A52548DD97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983662   (941771) от 07.02.2016
+
+Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juice Newton - Angel of the Morning (04:13)
+02. Junkie XL - Maximum Effort (02:08)
+03. Junkie XL - Small Disruption (01:13)
+04. Salt-N-Pepa - Shoop (04:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA873D8DFB92F99667F6B461A0694E56BDE26FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983667   (941596) от 07.02.2016
+
+Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juice Newton - Angel of the Morning (04:13)
+02. Junkie XL - Maximum Effort (02:08)
+03. Junkie XL - Small Disruption (01:13)
+04. Salt-N-Pepa - Shoop (04:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCBE5587CEEB0E72B0CA9DF3286AE8CC00A1C172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091709   (941516) от 10.01.2017
+
+R. Carlos Nakai & Will Clipman - Awakening The Fire (2013) [FLAC|Lossless|tracks + .cue] <New Age, Flute>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oasis
+02. Kindling the Essence
+03. Endless Journey
+04. First Morning(   Читать дальше...   )Жанр: New Age, FluteПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9595991F6F46694EDDCFFE4B5A1A4EF0D96215E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091423   (941438) от 10.01.2017
 
 George Streicher - Howard Lovecraft and the Frozen Kingdom / Говард и Замерзшее королевство  (2016) [MP3|320 Kbps] <Score>
@@ -627,122 +743,6 @@ Celtic Woman - Celebration (2020) [MP3|320 Kbps] <Celtic, New age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5946B06C6FB016DD528D1E1EE47F7AA5EAEFD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984495   (935463) от 11.02.2016
-
-NuSound - Erotic Moods - The Collection: Volumes 1-3 (1998-2001) 2006 Neurodisc Records, Inc. [FLAC|Lossless|tracks + .cue] <Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dream (5:18)
-02. On Wings of Angels (4:05)
-03. Breathe with Me (4:27)
-04. I Feel You in My Soul (4:36)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69599966D0E2F08171DB846368DD167BA33D84AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984611   (935455) от 11.02.2016
-
-Blowing Free - Sax Moods (1995) 2004 Правительство звука [FLAC|Lossless|tracks + .cue] <Easy Listening, Soft Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unchained Melody (3:29)
-02. I Will Always Love You (4:08)
-03. Songbird (3:25)
-04. Careless Whisper (4:14)(   Читать дальше...   )Жанр: Easy Listening, Soft JazzПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28CE7586DD41D82E3259EE661B618EB0050CE4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985166   (935449) от 11.02.2016
-
-Richard Clayderman - The Classics (1997) [FLAC|Lossless|tracks + .cue] <Easy listening, Semi-classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barcarolle (3:01)
-02. Feelings (3:17)
-03. Elisabethan Serenade (1:57)
-04. My Way (3:50)(   Читать дальше...   )Жанр: Easy listening, Semi-classicalПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F86760728B10299FF17D90755F3EA9BB33669F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985145   (935448) от 11.02.2016
-
-Richard Clayderman - When A Man Loves A Woman (1995) 2002  Universal Music Russia [FLAC|Lossless|tracks + .cue] <Modern, Romantic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Always Love You (4:12)
-02. When a Man Loves a Woman (2:58)
-03. Goodnight Girl (3:35)
-04. The Streets of Philadelphia (3:37)(   Читать дальше...   )Жанр: Modern, RomanticПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C30C23D63A68C40F20FFDE8D2876DBC50D1BCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

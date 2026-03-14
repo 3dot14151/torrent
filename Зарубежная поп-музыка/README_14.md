@@ -1,3 +1,61 @@
+###  Публикация: 1839122   (824150) от 27.11.2025
+
+VA - Echoes of the 1980s (2025) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arthur's Theme (Best That You Can Do) - Christopher Cross  - (03:54)
+ 02. Take On Me - A-Ha  - (03:49)
+ 03. St. Elmo's Fire (Man in Motion) - John Parr  - (04:12)
+ 04. Into the Groove - Madonna  - (04:45)(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 04:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F5024FB44561948BC63400611541C858B53CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196777   (820743) от 04.01.2018
+
+Bebu Silvetti - 40 Exitos (2008) 2CD [MP3|320 Kbps] <Pop, Disco, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хуан Фернандо Сильветти Адорно (27 марта 1944 года — 5 июля 2003 года), более известный как Бебу Сильветти — аргентинский композитор, пианист, дирижёр, аранжировщик и музыкальный продюсер. Пик популярности Бебу Сильветти как композитора пришёлся на конец 70-х — начало 80-х годов. Как продюсер стал обладателем премии Billboard Music Awards в 2002 году и обладателем (   Читать дальше...   )01. Lluvia de primavera (5:55)
+02. Atmosfera (4:44)
+03. Fin de semana (2:30)
+04. Lluvia de cocos (3:26)(   Читать дальше...   )Жанр: Pop, Disco, Easy ListeningПродолжительность: 02:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5195FEA473F6223A80A99CCDD5261FC75A00C81A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007810   (819818) от 16.04.2016
 
 Femme - Debutante (2016) [MP3|320 кб/с] <Synth-pop>
@@ -685,64 +743,6 @@ VA - Electro Pop 2020 [MP3|320 Kbps] <Electro Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E686D75D5FA110699E1D752CC49CB9B446084AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383782   (808133) от 17.05.2020
-
-VA - Covers (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faith No More - Easy
-02. Dua Lipa - I'd Rather Go Blind (Live)
-03. Ramones - Have You Ever Seen the Rain?
-04. Logan Henderson - Rocket Man(   Читать дальше...   )Жанр: PopПродолжительность: 03:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A10E159D4D5E05B660FC6CBAB54181549053A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383678   (808126) от 17.05.2020
-
-Clara Luciani - Sainte-Victoire (2019) Super-edition [MP3|320 Kbps] <French Pop, Post Disco, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Grenade
-02. La Baie
-03. On ne meurt pas d'amour
-04. Eddy(   Читать дальше...   )Жанр: French Pop, Post Disco, Synth PopПродолжительность: 01:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762FD4500A20774AE5FEA69F2EFC629743313C76
 ```
 
 https://mybot314.ru/tekegram_catalog/

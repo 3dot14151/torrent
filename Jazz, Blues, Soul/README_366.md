@@ -1,3 +1,177 @@
+###  Публикация: 1084414   (271464) от 18.12.2016
+
+Guy Lafitte - Blue And Sentimental (1954) 2011, Universal[FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blue And Sentimental [06:39]
+ 02.She's Funny That Way [03:14]
+ 03.If I Had You [02:51]
+ 04.Get Happy [02:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781AE9D2F9B4DC55972CD51B88074816FF29649C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084422   (271462) от 18.12.2016
+
+Betty Carter & Trio - I Didn't Know What Time It Was (1993) Jazz Door[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Intro [07:49]
+ 02.What's New [03:55]
+ 03.Tight [01:50]
+ 04.Medley [09:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6EA73ABF35D6EF6CE5E87BF5F564BCDD3E5D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084194   (271461) от 18.12.2016
+
+Jay Gordon Band - White Heaven Powdered Black (2000) [FLAC|Lossless|image + .cue] <Blues Rock, Heavy Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Let It Ring  (03:55) 
+02|  Freight Train  (04:28) 
+03|  Propaganda  (03:49) 
+04|  Karma  (03:52) (   Читать дальше...   )Жанр: Blues Rock, Heavy Blues RockПродолжительность: 00:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D716AB02B6809717531273192075AB526DB9F260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084097   (271384) от 18.12.2016
+
+Kim Simmonds And Savoy Brown - Goin' To The Delta (2014) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|   Laura Lee  (04:23) 
+02|   Sad News  (06:13) 
+03|   Nuthin' Like The Blues  (04:56) 
+04|   When You've Got a Good Thing  (05:17) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D37FB912D98CCA09181E0AD40D464067AF664F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084055   (271381) от 18.12.2016
+
+Jay Gordon's Blues Venom - Woodchoppers Ball (2015) [FLAC|Lossless|image + .cue] <Blues Rock, Heavy Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  The Stinger  (03:21) 
+02|  Hobo Hilton  (05:22) 
+03|  Chainsaw Boogie  (04:44) 
+04|  Stranger Blues  (03:57) (   Читать дальше...   )Жанр: Blues Rock, Heavy Blues RockПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D176AF62179FAC2F87727739991437E218B8075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084168   (271350) от 18.12.2016
+
+Billy Paul - Ebony Woman (1970) 2012, Neptune Records/Sony Music/Big Break Records/Cherry Red Record [FLAC|Lossless|tracks + .cue] <Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ebony Woman (3:54)
+02. Mrs Robinson (4:32)
+03. The Windmills Of Your Mind (8:00)
+04. Everyday People (3:55)(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 00: 36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D063A4B391EFD5B53796FAA04B6D4E9D4E64D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189196   (271210) от 05.12.2017
 
 Heather Newman - Burn Me Alive (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Female Vocal>
@@ -571,180 +745,6 @@ Lee Morgan - Taru (1968) 2000, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2ECAACC65ED67C58094967786250A15C81437BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266487   (270083) от 02.12.2018
-
-Dorothy Ashby - Dorothy's Harp (1969) 2014, Universal [FLAC|Lossless|tracks + .cue] <Cool, Third Stream, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By the Time I Get to Phoenix [3:32]
-02. Canto de Ossanha [3:37]
-03. Love Is Blue [2:53]
-04. Reza [3:02](   Читать дальше...   )Жанр: Cool, Third Stream, Soul-JazzПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF60DACD0BC495957C83C3E2C843904E3770820B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266483   (270078) от 02.12.2018
-
-Barry Harris Plays Tadd Dameron (1975) 1998, Prevue [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot House [4:34]
-02. Soultrane [5:43]
-03. The Chase [5:10]
-04. Ladybird [5:06](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FE83FA0C60A9F688FAFC7F4F6D2C9FA91104EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266473   (269911) от 02.12.2018
-
-John Coltrane - Giant Steps (1959) 1987, Atlantic [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giant Steps [4:47]
-02. Cousin Mary [5:50]
-03. Countdown [2:26]
-04. Spiral [6:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44648591DB87F203288CAA7B91E26A51C44E00D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338502   (269898) от 15.11.2019
-
-Jay Thomas & Michael Van Bebber Quintet - The Promise (2019) CUG Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Promise [9:12]
-02. Commencement [6:51]
-03. Aspiration [5:47]
-04. 317 East 32nd Street [6:06](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9851E5BEDFFF25824B27B9B6B214EC4A8C15B8D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338438   (269897) от 15.11.2019
-
-Wallace Roney - Munchin' (1995) Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solar [8:58]
-02. Ah-Leu-Cha [6:13]
-03. Bemsha Swing [7:40]
-04. Lost [6:11](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E1A536E5F22A804515F4F70314F942F2224C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338430   (269812) от 15.11.2019
-
-De-Phazz & STUBAphilharmonie - De Capo (2019) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabbatical (De Capo Edit)
-02. Roses (De Capo Edit)
-03. The Mambo Craze (De Capo Edit)
-04. Death by Chocolate (De Capo Edit)(   Читать дальше...   )Жанр: Nu JazzПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514FC5516985951689C351CB12F906336B4236F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

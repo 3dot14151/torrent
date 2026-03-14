@@ -1,3 +1,153 @@
+###  Публикация: 1681034   (132987) от 02.12.2023
+
+P!nk (Pink) - Trustfall (2023) Tour Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность:
+01 – When I Get There
+02 – TRUSTFALL
+03 – Turbulence(   Читать дальше...   )Жанр: Pop-Rock, ElectronicПродолжительность: 2 CD,
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9795CC4FD2E3B27B82F365398ED5E453B1A886C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595072   (132942) от 27.12.2012
+
+Deep Purple - Live On The BBC (1972) /2004, Audio Fidelity/ [DST 2.0 1bit/2822,4kHz |SACD-R]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (0:13)
+02. Highway Star (8:19)
+03. Strange Kind Of Woman (9:17)
+04. Maybe I'm A Leo (6:18)
+05. Never Before (4:35)
+06. Lazy (10:21)
+07. Space Truckin' (21:45)
+08. Smoke On The Water (7:08)
+09. Lucille (7:25)Жанр: Hard RockПродолжительность: 01:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E19C914E10C4B01270F124347F965EEADD705A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681651   (132742) от 03.12.2023
+
+Nuclear - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nuclear — чилийская трэш-метал-группа, основанная в Арике, Чили, в 1998 году.2006 - Heaven Denied
+2008 - Ten Broken Codes
+2010 - Jehovirus
+2015 - Formula for AnarchyЖанр: Thrash MetalПродолжительность: 03:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170A4189CFD363D30263F9CA1F3DB650A5F484D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681443   (132720) от 03.12.2023
+
+Modus - Friends (1987) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132720.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Show Must Go On
+A2 Friends
+A3 Stallion In The Dawn
+A4 Where Do You Go?(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE706B5823E98F878BF8B6C1534663476060308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681551   (132664) от 03.12.2023
+
+Игорь Растеряев - Круговорот (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дядька
+2. Снег
+3. Возвращение
+4. Памяти друга(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9E3E0BAD49696172B707ECF276081CB00BDD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592967   (132568) от 28.12.2012
 
 Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip)] <Heavy Metal>
@@ -604,152 +754,6 @@ Chamelion - Legends & Lores (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:092FD6724D656422FBA035D61BD0614C9D652ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525536   (129209) от 21.01.2022
-
-Suburban Tribe - Дискография (10 Albums) (1994 - 2011) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Alternative Rock, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Suburban Tribe — рок-группа из Финляндии. Группа примечательна тем, что в ее состав входят участники двух самых известных финских трэш-метал-групп Stone и Airdash. Басист Янне Йоутсенниеми играл в группе Stone, а гитарист Руп Сирен играл в Airdash.
-В марте 2011 года было объявлено о  роспуске группы.1994 - Primitive
-1995 - Purity
-1997 - Panorama
-1998 - Elektro 57Жанр: Alternative Rock, Alternative Metal, Nu MetalПродолжительность: 09:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5176F3BFD3765BAFF54447851939BF157DE39BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526002   (129013) от 22.01.2022
-
-Creedence Clearwater Revival - Gold (1972) 1975 [DTS 4.1 CD-Audio|44.1/16|image+.cue|Q8-DTSWAV] <Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно хотел взяться за Криденсов... :mrgreen:
-Несомненная часть эпохи 70-х - Уби Дуби, Видели дождь, Молина - ну какой советский школьник тех лет не млел от этих волшебных звуков!
-Знал, что единственным официальным многоканальным релизом группы был сборник GOLD, от 1972 года. Нашел в Сети уже довольно давний, 13-ти летний давности)), материал от уважаемого01. Proud Mary
-02. Down On The Corner
-03. Bad Moon Rising
-04. I Heard It Through The Grape Vine(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7608CDAD3A6216436CCAAF79AF151291455CBD2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824499   (128872) от 15.10.2025
-
-VA - Балкантон – Танцова Музика (1965) [FLAC|Lossless|image + .cue] <Jazz, Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128872.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 В Ритме «Леткисс»
-А2 Суоми-Леткисс
-А3 Один Поцелуй
-А4 Бутылка Шампанского(   Читать дальше...   )Жанр: Jazz, Rock, PopПродолжительность: 00:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EBB19F725636BF292EB77C7F3EBC60A978D875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824494   (128871) от 15.10.2025
-
-Ihsahn - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Experimental/Extreme Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ihsahn - Вегард Сверре Твейтан — норвежский композитор, гитарист, бас-гитарист, клавишник и вокалист. Более известен как вокалист, гитарист и клавишник группы Emperor2006 - The Adversary
-2008 - Angl
-2010 - After
-2012 - EremitaЖанр: Experimental/Extreme Progressive MetalПродолжительность: 08:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8972B0F12D968E481C81A6523DDE6C68A08DE19A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824485   (128870) от 15.10.2025
-
-Bloodywood - Studio Albums (2 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloodywood - индийская метал-группа из Нью-Дели, образованная в 2016 году. Они начинали как пародийный коллектив, выкладывающий каверы на поп-песни на YouTube, но позже стали писать собственный оригинальный материал. Среди музыкальных источников вдохновения для группы значатся Linkin Park, Rage Against the Machine, System of a Down, Alter Bridge и Limp Bizkit.2022 - Rakshak
-2025 - Nu DelhiЖанр: Folk Metal, Nu MetalПродолжительность: 01:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51661B315415AA1F34CB8BA655550AFAE553FAFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1002663   (846930) от 01.04.2016
+
+Elisa (Elisa Toffoli) - On (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Habits
+02. Rain Over My Head
+03. Love Me Forever
+04. Love As A Kinda War(   Читать дальше...   )Жанр: Pop, Dance Pop, ElectronicПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7211854CC6F2960F7482CE807C994A1C6A0E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002655   (846928) от 01.04.2016
+
+Amelia Brightman - Amelia Brightman (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop Rock, Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confide In Me [04:14]
+02. Fly [03:56]
+03. Your House [03:58]
+04. Rain [03:37](   Читать дальше...   )Жанр: Pop Rock, Pop, VocalПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB362477ADC2617A39F9ED150E61D1D532E84B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002972   (845197) от 02.04.2016
+
+SPC ECO - All We Have Is Now (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Dream Pop, Shoegaze Electronic, Trip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troubles Deep
+02. All Gone
+03. All You Need
+04. Slow Down(   Читать дальше...   )Жанр: Indie Dream Pop, Shoegaze Electronic, Trip HopПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D441ADE136020F293A1B59ADEA356D98A17EE060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378582   (844802) от 26.04.2020
+
+Charles Aznavour - After love (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson francaise>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Tu te laisses aller
+02 Les deux guitares
+03 J’ai perdu la tete
+04 Après l’amour(   Читать дальше...   )Жанр: Pop, Chanson francaiseПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D447F9C107A7E4DFCE122E43C86E8BDFA9BD2DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112190   (844226) от 07.03.2017
 
 Demis Roussos - Complete 28 Original Albums (2016) [FLAC|Lossless|image + .cue]<Pop>
@@ -547,6 +663,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380318   (835053) от 02.05.2020
+
+VA - The Party Dance Mix Vol.3 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies/Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_835053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Dance/New Orleans/Splish Splash - Happy Sound Singers (6:10)
+02. Running Bear/Mr. Bass Man/Sea Cruise - United People (8:14)
+03. C'mon Everybody/Do You Wanna Dance?/Twist and Shout/Do You Love Me - Happy Sound Singers (4:56)
+04. Shake, Rattle and Roll/See You Later, Alligator - Rock-Masters (5:04)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, Oldies/MedleyПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A840E4AE7AEDA6503E2C7743D30EA9DD380B279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501377   (835038) от 10.10.2021
 
 VA - BRAVO Hits 115 (2021) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Electronic>
@@ -598,151 +743,6 @@ Sabrina Carpenter - Eyes Wide Open (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2A6CFA40982484828D3DEDBFF9C4F1B01DB63D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005092   (834161) от 08.04.2016
-
-M83 - Junk (2016) [FLAC|Lossless|tracks + .cue] <Indie-Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It, Try It (03:38)
-02. Go! (03:56)
-03. Walkway Blues (04:50)
-04. Bibi The Dog (03:54)(   Читать дальше...   )Жанр: Indie-Pop, ElectronicПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD427C35ED402B2F7AF884A16CBEFD34D96B1699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501756   (833546) от 11.10.2021
-
-VA - 538 Hitzone 98 (2021) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как то давно на трекере не было выпусков от известной нидерландской радиостанции 538. Последний был 91-й аж почти два года назад. Между тем Sony Music с завидной периодичностью выпускает сборники хитов по итогам ротации на радиостанции. А Universal Music сборники лучших треков по итогам года (следите за анонсами трекера, скоро появиться лучшее за 2020).01. Coldplay - Higher Power  (3:30)
-02. Chef'Special - Afraid of the Dark  (3:08)
-03. Majestic X Boney M. - Rasputin  (3:06)
-04. Tom Grennan - Little Bit of Love  (3:45)(   Читать дальше...   )Тип издания: CD, CompilationРелиз состоялся: 2 июля 2021Жанр: Pop, Rock, DanceПродолжительность: 01:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEE929A68319B5B04213D4CD22877B0BA20CF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501761   (833543) от 11.10.2021
-
-VA - 538 Hitzone: Best Of 2020 (2020) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Hip-hop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восполняю пробел по ежегодным сборникам нидерландской радиостанции 538. Все релизы этой серии вы как всегда сможете найти по ссылке внизу. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию. Так что наслаждайтесь...CD1:
-01. The Weeknd - Blinding Lights  (3:23)
-02. Sheppard - Die Young  (3:24)
-03. Davina Michelle & Snelle - 17 Miljoen Mensen (Live@538 In Ahoy)  (1:48)(   Читать дальше...   )Тип издания: Box Set, 2CD, CompilationРелиз состоялся: 13 ноября 2020 годаЖанр: Pop, Dance, Hip-hop, ElectronicПродолжительность: 02:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04DF26EFC6173072BE0520CBEE92CAAF819C5A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114344   (832156) от 15.03.2017
-
-Teeth & Tongue - Give Up On Your Health (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Up On Your Health
-02. Do Harm
-03. Small Towns
-04. When We Met(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E9509366F0A3428CEE055DCA253A35362939BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114657   (831980) от 15.03.2017
-
-VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ike & Tina Turner - Please, Please, Please [06:57]
-02. Jerry Thomas - Feel So Good [03:22]
-03. Vanetta Fields - The Love Of My Man [04:01]
-04. Bobby John - Think [02:32](   Читать дальше...   )Жанр: Pop, Funk, Soul, BluesПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0035ED37B91C3416FF1B0D564A8509D155D41B17
 ```
 
 https://mybot314.ru/tekegram_catalog/

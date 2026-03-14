@@ -1,3 +1,31 @@
+###  Публикация: 1022794   (726855) от 03.06.2016
+
+3D модели - Evermotion - Archmodels for Corona Vol. 1 [Corona|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник 3d моделей от Evermotion, адаптированных под Corona Renderer!
+
+В данный сборник вошли 100 моделей деревьев.Формат: Corona|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7A75C56F20688355FF3597BA5B87F27EC117F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218239   (724901) от 08.04.2018
 
 3D модели - Daz 3D - Сборник 3D моделей #4 [DUF]
@@ -654,34 +682,6 @@ Flexi's are really fun to play with because they flop around and move in any whi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F1B48266FB8F72DC653DA24966F750ADE43AF97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535403   (685879) от 06.03.2022
-
-3D print - Bestiarum Miniatures - Модели для настольных игр [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Each month we deliver sets of presupported STL's and RPG game supplements that can be used in: DnD5e, Rangers of the Shadow Deep and Forbidden Psalm game systems.
-
-Ежемесячные наборы моделей для настольных систем (DnD/FP/RsD). В наборы включены интегративные схемы, лор, правила, и, конечно, сами модели. Модели подходят как для FDM-принтеров в нарезке, так и для SLA-принтеров (   Читать дальше...   )Формат: .STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83AED023A99A803F2EABA8B1A3E98521C012CCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

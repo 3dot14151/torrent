@@ -1,3 +1,32 @@
+###  Публикация: 1526330   (738472) от 24.01.2022
+
+Сергей Бобунец - Песни под гитару, Часть 1 (2021) [AAC|~279 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пока танцуют ангелы (3:29)
+02. Некуда бежать (2:06)
+03. Спасаю мир (2:58)
+04. Напоминай (1:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0EF7010B0537D74E53537C050D7122C1D495BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526328   (738470) от 24.01.2022
 
 Смысловые галлюцинации - Трудных времён песни (2016) [AAC|~339 Kbps] <Rock>
@@ -692,35 +721,6 @@ VA - Urban Streets, No. 1: Urban Chillout Music (2022) [AAC|~329 Kbps] <Lounge, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:376B4565443D6D929388127661E4856273E9F5E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526794   (737835) от 26.01.2022
-
-VA - Harmonic Lounge Music (2022) [AAC|~292 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovers in Motion - A Matter of When (6:01)
-02. Wermuth - Intertwining Lives (5:46)
-03. Fascinating Case - Immersive Experiences (5:40)
-04. Élan Vital - Extravagance (5:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC694BC08302F3D0289B0E2A689A42EB343B927
 ```
 
 https://mybot314.ru/tekegram_catalog/

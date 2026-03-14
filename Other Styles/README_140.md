@@ -1,3 +1,148 @@
+###  Публикация: 1337219   (274805) от 10.11.2019
+
+Jim Brickman - The Magic Of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels We Have Heard On High
+02. My Favorite Things
+03. We Three Kings
+04. Christmas Time Is Here/O Christmas Tree (Medley)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA27CDB31B44A33BD74DD6B3A71EDF920C7CADF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336947   (274760) от 10.11.2019
+
+Musica Relajante - Bikram Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ceriam 02:44
+2. Breath In Yoga Sounds 03:00
+3. Inhalar Exhalar 03:04
+4. Amrita 02:54(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 04:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514A64ECD66D29204E9D2FE132B98B30AAE5B2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083134   (274735) от 15.12.2016
+
+Guido Negraszus - The Very Best of Guido Negraszus (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blue Planet [00:06:42]
+02. Secret Dreamtime [00:04:38]
+03. Snowboard [00:04:00]
+04. Great Ocean Dream [00:05:52](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7281C41C3773A1FC841CDDCFAE35F4F91EB88F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337347   (274641) от 10.11.2019
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 8 (1994) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carmen Disco (from Carmen) - Ron Barden's Computer Symphonics (7:15)
+02. Poem - New Rock Philharmonics (2:37)
+03. A Hard Day's Night / All My Loving - Symphonic Rock Orchestra (6:26)
+04. Menuett - Jacques Winter Orchestra & Singers (2:58)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D9774B1D733C0EE9D41BC77A13BD4C8E8F859E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337354   (274582) от 10.11.2019
+
+VA - Greatest Hits of Classical Rock Vol. 4 (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air / Philharmonic Orchestra London - Johann Sebastian Bach (8:13)
+02. Hornkonzert Nr. 4 / Fatra String Sound Orchestra - Wolfgang Amadeus Mozart (3:47)
+03. Can't Buy Me Love / Philharmonics of London - Lennon, McCartney (2:27)
+04. Concerto / Ziliniana String Sound Orchestra - Antonio Vivaldi (3:07)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BE2640995D9B99C7191C0287974481E7794388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336706   (274580) от 10.11.2019
 
 Back to Earth - Peace of Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
@@ -598,151 +743,6 @@ Alexander Taylor - Animal Among Us / Животное среди нас (Origina
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5458AFF2A2B52EBA8D35B73D313111F5085708B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337874   (271505) от 13.11.2019
-
-Music for Quiet Moments - # Classical Love (2019) [MP3|320 Kbps] <Instrumental, Piano, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pebble Beach 03:54
-2. Shine On 03:45
-3. Elixir of Life 03:33
-4. Forever Tonight 03:29(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 02:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B1BBD11C1B601489632C05CF8F7E77BFD804DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084470   (271459) от 18.12.2016
-
-Alwan - Sidewalk (2016) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Lonely Sidewalk [00:02:28]
-02 -  The Boundary [00:03:58]
-03 -  Sedimentary [00:03:16]
-04 -  Meetup [00:04:21](   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB65FA8D5ABFE338D5516A709D9DF6FB1118C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084484   (271371) от 18.12.2016
-
-Daniel Roeder & Jacob Yates - Music for Meditation (2016) [MP3|320 Kbps] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Breathing in Moonlight [00:03:04]
-02 -  Emancipation [00:05:01]
-03 -  Brittle Earth [00:04:19]
-04 -  Fear Not [00:05:12](   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0C6D2965083D4574C7E6382D3459C75130D7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189394   (271274) от 05.12.2017
-
-Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erda 05:08
-02. The Ruin 05:24
-03. Runatal 05:40
-04. Boudicca 04:54(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF677BD76ED160C61B9F3315FFB63A8D0E253FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189337   (271062) от 05.12.2017
-
-Emmanuele Landini - Zodiac: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acquarius
-02. Aries
-03. Cancer
-04. Capricorn(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CCE051CE6BDD57F633531A7997A2CCAADF34059
 ```
 
 https://mybot314.ru/tekegram_catalog/

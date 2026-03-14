@@ -1,3 +1,90 @@
+###  Публикация: 1620508   (240548) от 21.03.2023
+
+Franck Amsallem - Summer Times (2003) Nocturne [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got Rhythm [5:46]
+02. Summertime [5:47]
+03. Young and Foolish [7:50]
+04. Tom's Tune [6:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A9D6074CEEDAAF6531621FB587FF3670F5AAD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620510   (240530) от 21.03.2023
+
+Sonny Rollins - Soneymoon (1963 - 1965) 2007, Get Back [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without a Song [2:38]
+02. On Green Dolphin Street [13:31]
+03. Solitude [8:58]
+04. Soneymoon [23:09](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A5399C1067A0708C2830C66D27226091801E37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410143   (240503) от 20.09.2020
+
+Chris Biesterfeldt - Phineas (2014) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harlem Blues [3:55]
+02. Sugar Ray [5:45]
+03. Cookin' at the Continental [4:21]
+04. The Midnight Sun Will Never Set [5:44](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A86E7C8A50E5DB7A613FFB982B9F04FEC467B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410136   (240496) от 20.09.2020
 
 Sidney Bechet & Martial Solal - When a Soprano Meets a Piano (1957) 2009, Inner City Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -658,93 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D473D768423485F24B78F798300D90AD8A5D2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637455   (239929) от 04.06.2023
-
-Christian McBride's New Jawn - Prime (2023) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Head Bedlam [5:47]
-02. Prime [7:30]
-03. Moonchild [4:45]
-04. Obsequious [8:06](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Avant-Garde JazzПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9039D04EC7BC12BFAD1EC87C7E619C0D22E2E784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621537   (239900) от 25.03.2023
-
-John Coltrane - Coltrane Time (1958) 1986, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shifting Down [10:42]
-02. Just Friends [6:17]
-03. Like Someone in Love [8:11]
-04. Double Clutching [8:20]Жанр: Hard Bop, Post-BopПродолжительность: 00:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F7BD0E5B71DF35552292AD0AA6C98A442CD8C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635384   (239868) от 25.05.2023
-
-Jason Marsalis - Live (2017) 2020, Basin Street Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ratio Man Strikes Again [6:23]
-02. Passionate Dancer [6:30]
-03. Bourbon Street Ain't Mardi Gras [9:18]
-04. Ballet Class [5:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51394BA44D2FAE50ADE249BD4118A825ACA241E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

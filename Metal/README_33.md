@@ -1,3 +1,32 @@
+###  Публикация: 1394676   (760606) от 07.07.2020
+
+Operus - Score Of Nightmares (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture of Madness (01:25)
+ 02. Phantasia (05:33)
+ 03. Lost (05:04)
+ 04. Dance with Fire (05:38)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5D11F7EF5061E408247BA3B4D12AB017CF9AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394670   (760605) от 07.07.2020
 
 Ergus - Insomnium (2020) [MP3|320 Kbps] <Symphonic Metal>
@@ -716,35 +745,6 @@ Hammerhedd - Grand Currents (2020) [MP3|320 Kbps] <Progressive Metal, Thrash Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08A8005368F4DDC1D9061439955767F6DC50FCB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395337   (755658) от 10.07.2020
-
-Myridian - Light in the Abyss (2020) [MP3|320 Kbps] <Melodic Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Is Lost (10:54)
- 02. Nidellavir (12:58)
- 03. Babylon (07:50)
- 04. The Poet (09:19)(   Читать дальше...   )Жанр: Melodic Death Metal, Doom MetalПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FA5E86934151B9B9FF3D31FB700B8C7FD617EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

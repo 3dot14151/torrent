@@ -1,3 +1,177 @@
+###  Публикация: 1768150   (101140) от 24.12.2024
+
+Bluesblocket - Potatismos & Skandinavisk Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. POTATISMOS OCH SKANDINAVISK BLUES (4:09)
+02. BLUES ÄR INTE GRATIS (5:24)
+03. DJÄVULEN I FLASKAN (4:20)
+04. EN MAN SOM HETER LASSGÅRD (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C57D743835A6D0D509D3E9EE79F06E275032771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768155   (101139) от 24.12.2024
+
+Brad Gillies - Juxtapose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting & Hoping (3:41)
+02. Waltz & Sway (3:54)
+03. Mark Jeffrey (3:00)
+04. La Groove (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C456CAFCC35039B157757C600CC56171C4CE3C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768157   (101138) от 24.12.2024
+
+Dave Williams - Disciple (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Messiah (3:32)
+02. His Blood Can Make You Whole (3:48)
+03. No Pain No Gain (3:24)
+04. Put Your Trust in Him (7:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D18E47EF05CA36AF2E0AB37EA90F7F3F61B97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768149   (101137) от 24.12.2024
+
+Blues For Comfort - Good Blues Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Blues Tonight (3:42)
+02. Back at the Chicken Shack (3:20)
+03. Do What You Want (3:13)
+04. It's Love Baby (24 Hours a Day) (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF007C9581643B37FEB19D59AAD96F9EDAE10D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768154   (101136) от 24.12.2024
+
+Blurred Edge - Volume: 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Too Early to Be Too Late (5:21)
+02. China Town (4:08)
+03. Ain't I Been Good to You? (3:54)
+04. Cold Inside (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7543E25DB61CADA7EEB8850508514D6E43224C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768163   (101135) от 24.12.2024
+
+John G Willis - Misfortune Cookie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Sarah Says (3:57)
+02. Hope (4:15)
+03. You Can't Get It Wrong (3:35)
+04. 20 Days (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C37F37DC367BCD704C74C5155921682F06137DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768166   (101134) от 24.12.2024
 
 John McDonald & Mark Maxwell - Feeling Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Rosemary Clooney - Irving Berlin's White Christmas (1954) 2014, Real Gone Music 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD18A689A255A660DB4099113824E61B094B2221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769352   (100675) от 28.12.2024
-
-The Wind Blowers - Blues for Rainy Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Got No Money (1:56)
-02. Back Door Blues (3:24)
-03. Bad Luck (2:47)
-04. Bad Time Blues (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1739C4EDC5F896F18236377706E6CA446806692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769702   (100664) от 29.12.2024
-
-Mal Waldron & Marion Brown - Much More! (1989) Free Lance [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Mates [9:43]
-02. Someone to Watch over Me [4:58]
-03. All God's Chillun Got Rhythm [3:35]
-04. My Funny Valentine [6:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAC5058D69E5CA9251721CB7ADC93B1082CB26E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770039   (100609) от 30.12.2024
-
-Art Blakey - In This Korner (1978) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Art Blakey Intro [1:25]
-02. Pamela [9:41]
-03. Unlimited [6:39]
-04. In This Korner [7:56](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40DBF9C821435F27C5BE584DEF5C7801DABFB9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770243   (100554) от 31.12.2024
-
-John Di Martino - Passion Flower: The Music Of Billy Strayhorn (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Come Lately [5:17]
-02. Lush Life [4:20]
-03. Rain Check [4:19]
-04. Star-Crossed Lovers (Pretty Girl) [4:38](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B243C797D5D8582D9059798EBDE17E453154A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770316   (100547) от 31.12.2024
-
-Judy Garland - Judy At The Palace Closing Night 1952 (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chorus Intro (Live) [00:01:46]
-02. Call The Press/On The Town (Live) [00:02:36]
-03. Unless You've Played The Palace / Shine On, Harvest Moon / Some Of These Days / My Man / I Don't Care (Live) [00:07:33]
-04. Rockabye Your Baby (Live) [00:03:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC977DA44381D44CBAA73A3B62103B42FD7ABBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770286   (100544) от 31.12.2024
-
-The Soulmate Project - Vinyl Flavour (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vero Nouk - Laisse-Toi Tomber (2:58)
-02.  Penny Maddox - Keep My Boots On (3:18)
-03.  Be Yourself (3:06)
-04.  Stormy Night (2:29)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F048E052B48F3976B2C757F9469CE55284BCEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

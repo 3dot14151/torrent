@@ -1,22 +1,25 @@
-###  Публикация: 1745206   (105112) от 25.08.2024
+###  Публикация: 1737052   (106552) от 16.07.2024
 
-Суперсемейка 2 / Incredibles 2 (2018) WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
+Cary St Onge - Been Livin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Мультфильмы
->>Мультфильмы (3D)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105112.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Брэд БёрдВ ролях: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: дублированныйЯзык озвучки: русский, казахский, английскийСубтитры: русские, английскиеПродолжительность: 01:52:58
+01. Red Moon Talkin (3:33)
+02. Lose Those Blues (5:04)
+03. Been Livin (3:02)
+04. This Train (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:161A1DBCEA006CD0BD7CC8346F9082AA055DAB35
+magnet:?xt=urn:btih:3B0F15B96F337356FB7D28369701FE19456B8117
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745286   (105111) от 25.08.2024
+###  Публикация: 1737027   (106551) от 16.07.2024
 
-Extreme Picture Finder 3.66.8.0 RePack (& Portable) by TryRooM [Multi/Ru]
+Eddie Reed Big Band - Hollywood Jump (1997) Royal Big Mac Records [FLAC|Lossless|tracks + .cue] <Swing, Jump, Vocal Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105111.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для автоматического поиска, скачивания и сохранения любых файлов (картинки, видео, музыка, архивы, флэш и т.д.) с Интернет сайтов, а также для поиска картинок в Интернет по ключевым словам. Extreme Picture Finder позволит Вам автоматически скачать только нужные Вам файлы, избавив от просмотра назойливой рекламы, всплывающих окон и т.д. Просто укажите начальный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Natch [3:07]
+02. Yes My Darling Daughter [2:22]
+03. Boogie Blues [3:17]
+04. Jazznocracy [2:54](   Читать дальше...   )Жанр: Swing, Jump, Vocal JazzПродолжительность: 00:38:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:856CEA154CC48F480AD72E11A49D850CF860EB5C
+magnet:?xt=urn:btih:C738BFE1700B5924C75FC077D32605BC2F73FCC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745175   (105110) от 25.08.2024
+###  Публикация: 1737055   (106550) от 16.07.2024
 
-Александр Галич - Когда Я Вернусь... (1989) [FLAC 2.0|88,2/24|image +.cue|Vinyl-Rip] <Ballad>
+Craig Pilo & Jeff Pescetto - Comfort in the Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105110.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-А1 Фестиваль Песни В Сопоте В Августе 1969
-А2 Петербургский Романс
-А3 Баллада О Вечном Огне
-А4 Засыпая И Просыпаясь(   Читать дальше...   )Жанр: BalladПродолжительность: 00:44:11
+01. Give Me Some Answers (3:00)
+02. I Can't Wait Til the Sun Comes Out (2:36)
+03. Kaddia (3:42)
+04. I Got Something to Say (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DA60F876CEC8B9EDF83D81E7C8008E8BDC6149A
+magnet:?xt=urn:btih:44747C71085F04B2D0CF967E7B9E07C8888578B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745197   (105109) от 25.08.2024
+###  Публикация: 1737046   (106549) от 16.07.2024
 
-Nomad Factory - British Bundle 2.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
+Blues Corner - Lonely Mile (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105109.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106549.jpg" />
 </div>
 
 
 ###  Подробнее
 
-British Bundle от Nomad Factory предлагает набор плагинов, вдохновленных легендарными модулями компрессора и эквалайзера из культовых британских консолей.Язык интерфейса: Английский
+01. My Job Aint Worth My Life (3:48)
+02. Moving Forward (4:04)
+03. In a Corner of My Heart (3:49)
+04. Blues Band (4:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:043AF9391E26364406C1A84DAF1043EE6C26EAA4
+magnet:?xt=urn:btih:BBB44AA0823544CF31E2D76DAC4BDBC428AF888E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745287   (105108) от 25.08.2024
+###  Публикация: 1737059   (106548) от 16.07.2024
 
-Extreme Picture Finder 3.66.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+Denise La Grassa - Sundown Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105108.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Extreme Picture Finder - средство для автоматического поиска, загрузки и сохранения любых файлов (картинки, видео, музыка, архивы, флэш и т.д.) с Интернет сайтов, а также для поиска картинок в Интернет по ключевым словам. Extreme Picture Finder позволит Вам автоматически загрузить только нужные Вам файлы, избавив от просмотра назойливой рекламы, всплывающих окон (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Sundown Rising (2:42)
+02. None of Your Business (3:35)
+03. Hope in Love (3:49)
+04. Key to the Highway (3:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E7A5EA39CCA47B59BBA3E8F4002CC82A12E7DFA
+magnet:?xt=urn:btih:50CF07F0E9A8A0C08D6497BAB63E5635CDC981E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745349   (105107) от 25.08.2024
+###  Публикация: 1737057   (106547) от 16.07.2024
 
-PDF Shaper Ultimate 14.4 RePack (& Portable) by elchupacabra [Multi/Ru]
+Dave Alvin & Jimmie Dale Gilmore feat. The Guilty Ones - TexiCali (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 
->>Утилиты, Офис, Интернет
->>Офисное ПО
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105107.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для работы с PDF-документами, которая предоставляет коллекцию инструментов и утилит для модификации и оптимизации PDF-файлов и их содержимого. Благодаря этой программе вы сможете легко разделять и объединять PDF-документы, извлекать тексты и графику из PDF-файлов, шифровать/расшифровывать документ при помощи пароля, изменять права пользователя, конвертировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Borderland (5:03)
+02. Southwest Chief (5:35)
+03. Broke Down Engine (4:38)
+04. Trying To Be Free (3:49)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:51:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A7467A34ACCAF087CBCADB5A68B8C524ABD9FE1
+magnet:?xt=urn:btih:C35503A554DA94C7E41EE5781918010E4B389C99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745334   (105106) от 25.08.2024
+###  Публикация: 1737067   (106546) от 16.07.2024
 
-StartAllBack 3.8.6 build 5143 (DC-22-08-2024) [Multi/Ru]
+Dwayne Dopsie, Zydeco Hillraisers - Now Is The Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Funk, Zydeco>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105106.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+01. Short and Sweet Do You Remember (2:55)
+02. Do You Rember (3:45)
+03. I'm Happy (Suis Heureux) (4:02)
+04. Bring It On Home (4:26)(   Читать дальше...   )Жанр: Blues, Funk, ZydecoПродолжительность: 00:40:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B30460EB5D54969D9A7E309D91E8BE470E726F2
+magnet:?xt=urn:btih:65CE18AB9C32211AD6D643F5E6D4CABF9D7164A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,25 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745352   (105105) от 25.08.2024
+###  Публикация: 1737048   (106545) от 16.07.2024
 
-PDF Shaper Premium / Ultimate 14.4 RePack (& Portable) by TryRooM [Multi/Ru]
+Bluesnake - New Chapter (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105105.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для работы с PDF-документами, которая предоставляет коллекцию инструментов и утилит для модификации и оптимизации PDF-файлов и их содержимого. Благодаря этой программе вы сможете легко разделять и объединять PDF-документы, извлекать тексты и графику из PDF-файлов, шифровать/расшифровывать документ при помощи пароля, изменять права пользователя, конвертировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Food for the Soul (3:31)
+02. Silence is Calling (3:30)
+03. Nighttime (4:48)
+04. Was it You? (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F268B8A7D48DCD5D72728B72BB7BCD34157897D
+magnet:?xt=urn:btih:E11CC1696F1B6D9E9D68970C597BE617CE8A9A98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,25 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745270   (105104) от 25.08.2024
+###  Публикация: 1737044   (106544) от 16.07.2024
 
-Aiseesoft Video Converter Ultimate 10.8.68 Portable by 7997 [Multi/Ru]
+Anthony Q - Rebirth of Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105104.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Full of Dat Oil (2:58)
+02. Get in (2:36)
+03. Sound (3:09)
+04. Hard on these hoes (3:14)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:35:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:020D37FA076DE8FDA920BBA7C4C79DF76EBE8CEB
+magnet:?xt=urn:btih:E008E0D4EC2F8836D13D10A202E073DADB274915
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -235,25 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745224   (105103) от 25.08.2024
+###  Публикация: 1737060   (106543) от 16.07.2024
 
-Н.С. Ахметов | Общая и неорганическая химия (1981) [PDF]
+Dennis Jones - About Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Научная и техническая литература
->>Учебники
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105103.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На современном уровне рассмотрены основные понятия и законы химии: строение вещества, химическая связь (метод молекулярных орбиталей, метод валентных связей, зонная теория кристаллов), важнейшие положения химической термодинамики и химической кинетики, методы исследования структуры веществ. Химия элементов изложена на основе периодического закона Д.И.Менделеева с (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+01. Condition Blue (4:07)
+02. Don't Stop (3:45)
+03. You're Killin' Me (3:48)
+04. Mother Earth (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D95934E9CD5465F7AF63DF46BF661D2FC730E653
+magnet:?xt=urn:btih:10655E877CA5F70E4990ECF3CDBDFFE526AA6A6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -261,109 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745339   (105102) от 25.08.2024
+###  Публикация: 1737239   (106542) от 16.07.2024
 
-Process Lasso Pro 14.3.0.58 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD081E9601F4F75240122EA45E17F8EE68C3479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745068   (105101) от 25.08.2024
-
-Jeris Johnson - Dragonborn (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dragonborn (3:34)
-02. The Story Of Our Lives (3:17)
-03. When The Darkness Comes (3:13)
-04. Welcome To Valhalla (4:58)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735E6729BC86BA18DFF4FC4B0AC939A5126F5FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745355   (105100) от 25.08.2024
-
-Вопрос секунд / A Question of Seconds (1912) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор неоригинальный. Строящаяся железная дорога проходит мимо богатого ранчо. За молодой дочкой ранчеро ухаживают двое, инженер-железнодорожник (хороший парень) и красавчик-мексиканец (мутный тип). И этот самый мексиканец нечестно играет!Производство: США / Edison CompanyЖанр: короткометражный, триллер, вестерн, немое киноРежиссер: нет сведенийАктеры: Чарльз Огл, Мэри Фуллер, Харольд М. Шоу, Ричард НиллПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DC1B1DB34743C8BBA616473D23B5FEB5DDCC37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745326   (105099) от 25.08.2024
-
-Kendji Girac - Kendji (2014) Limited Edition, 2024, Universal Music Division [FLAC|Lossless|WEB-DL|tracks] <Latin, Pop>
+Charles Fauna - L I M B O (2024) [MP3|320 Kbps] <Pop>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105099.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro [00:01:19]
-02. Problem [00:03:13]
-03. One Last Time [00:03:17]
-04. Why Try [00:03:31](   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:57:26
+01 - Enjoy Your Stay (01:57)
+ 02 - Shadow I (04:01)
+ 03 - Midnight Magic (03:11)
+ 04 - Sweet Dreams (03:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06FD8B9C3A34288C11DE491AFECE2049528F1E78
+magnet:?xt=urn:btih:DB60AE7AC7631E6982FB853B7F2CAD6A63F8FA40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745210   (105098) от 25.08.2024
+###  Публикация: 1737061   (106541) от 16.07.2024
 
-Equus - Equus (1985) Reissue, 2024, Pride & Joy Music [FLAC|Lossless|image + .cue] <Melodic Rock, Arena Rock, AOR>
+Diana Braithwaite & Chris Whiteley - Forever Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105098.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Metal Man (4:22)
-02. I'll Be Waiting (3:36)
-03. When You Gonna Find The Time (3:25)
-04. Powerlife (3:44)(   Читать дальше...   )Жанр: Melodic Rock, Arena Rock, AORПродолжительность: 00:39:07
+01. Hoodoo Man Blues (3:30)
+02. You're the Boss (2:48)
+03. Mean Old Frisco (5:21)
+04. The Moon Is Rising (5:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74962198C07D02643F836EB59C789843C5F69FE8
+magnet:?xt=urn:btih:22EA112D54F251B078B1D6CDF1E22EEB7DB01D60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,28 +346,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745256   (105097) от 25.08.2024
+###  Публикация: 1737274   (106540) от 16.07.2024
 
-Colin James - Chasing The Sun (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Сумасшедший пансион / Det gale pensionat (1911) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105097.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Protection (feat. Lucinda Williams)
-02. I’m Still Alive
-03. Devilment (feat. Charlie Musselwhite)
-04. Crystal Ball(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:12
+Озорная и искренняя комедия. Мне понравилась. Они напоминают о том, что наши пра-пра-прадедушки были такие же люди как и мы. Или, точнее, это мы такие как они. История проста. Пансион, это раньше были такие съемные комнаты, и хозяйка жила там же и строго следила за порядком. Во всяком случае, неуклюжую горничную она уволила не раздумывая. И вот она уезжает в гости (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: нет сведенийАктеры: Карл Альструп, Фредерик Бух, Эрик Кроун, Дагмар Краруп, Ютта Ланд, Элит Пио, Оскар СтриболтПеревод: немой с интертитрамиСубтитры: испанские (интертитры), русскиеПродолжительность: 00:14:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:723E6BBC74FE61A4165C04C4D467F1D20A529116
+magnet:?xt=urn:btih:3AF7E5DC9DA1821ADA890208023B4F3169A17BD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,28 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745321   (105096) от 25.08.2024
+###  Публикация: 1737053   (106539) от 16.07.2024
 
-Jeris Johnson - Dragonborn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+Catfish John Tisdell - Ain't That the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105096.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dragonborn (3:34)
-02. The Story Of Our Lives (3:17)
-03. When The Darkness Comes (3:13)
-04. Welcome To Valhalla (4:58)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:49:21
+01. Stop Draggin' My Heart Around (4:09)
+02. I Loved Another Woman (3:53)
+03. Sharp Dressed Man (3:50)
+04. Texas Flood (7:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:139E2EF5EFD1D101427269827B9DC5C2C4C19DB3
+magnet:?xt=urn:btih:888A1DC9004B3B56183F7E142C36C1115C7DD827
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,26 +401,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745325   (105095) от 25.08.2024
+###  Публикация: 1737422   (106538) от 17.07.2024
 
-XYplorer 26.30.0300 RePack (& Portable) by elchupacabra [Multi/Ru]
+Епископ Гермоген (Добронравин) | Утешение в смерти близких сердцу (2006) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Архив торрентов
->>Архив Программ
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105095.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XYplorer - продвинутый файловый менеджер, который внешне напоминает стандартный Проводник Windows, но имеет множество дополнительных функций и инструментов для удобной работы с файлами. Особенностью этого менеджера является поддержка мультивкладок - откройте столько окошек, сколько Вам нужно, и быстро переключайтесь между ними.
-Приложение имеет гибкие настройки и (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Потеря близкого человека тяжелое испытание для любого из нас. Умный, добрый и умудренный жизненным опытом архипастырь, обращаясь к нашим душе, сердцу и разуму, помогает нам правильно осознать потерю и примириться с ней.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A521ACB551079EB3E0B67FD658D969481210820
+magnet:?xt=urn:btih:75BEAF4B5F2C9E24049A21785868F324D86D2366
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,28 +427,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745251   (105094) от 25.08.2024
+###  Публикация: 1737423   (106537) от 17.07.2024
 
-Paul Carrack - How Long (Has This Been Going On?) [Greatest Hits 50th Anniversary Collection, 1974-2024] (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul, Pop Rock>
+Сатисъ | Жемчуг духовный. Молитва. По учению святых отцов (2004) [PDF, FB2, EPUB, MOBI, TXT]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105094.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. How Long (2024 Version)
-02. Groovin’ (2014 Remaster)
-03. Eyes of Blue (2014 Remaster)
-04. Satisfy My Soul (2014 Remaster)(   Читать дальше...   )Жанр: Blues, Soul, Pop RockПродолжительность: 01:12:57
+Богообщение должно быть всегдашним, непрерывным состоянием человека, так что, коль скоро нет общения с Богом, коль скоро оно не ощущается, человек должен сознаться, что стоит вне своей цели и своего назначения.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AFE63CB5D9F3F1DCEFD6F0B4D48D56D79A83CE0
+magnet:?xt=urn:btih:3DBEF8F4795A2FC4EAFA9E480B8AC230E593D10F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,28 +453,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745242   (105093) от 25.08.2024
+###  Публикация: 1737390   (106536) от 17.07.2024
 
-Last Autumn's Dream - Studio Albums (15 releases) (2003-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Hard Rock/AOR>
+Vanden Plas - Studio Albums (12 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105093.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Last Autumn's Dream — хард-рок-группа, образованная в 2002 году вокалистом и клавишником Микаэлем Эрландссоном из Швеции и гитаристом Энди Малечеком из немецкой хард-рок-группы Fair Warning.2003 - Last Autumn's Dream
-2004 - Last Autumn's Dream II
-2005 - Winter In Paradise
-2006 - Saturn SkylineЖанр: Melodic Hard Rock, AORПродолжительность: 13:51:11
+Vanden Plas — немецкая рок-группа, играющая в стиле прогрессивный метал.
+Была образована в середине 80-х годов в немецком городе Кайзерслаутерн.1994 - Colour Temple
+1996 - Accult
+1997 - The God Thing
+1999 - Far Off GraceЖанр: Progressive MetalПродолжительность: 12:17:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:206CD2C7FA19EF1F151EE71AB12A643235820B8F
+magnet:?xt=urn:btih:8B4A4B0072D46E2BED9E476265E27A2702861E33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,25 +483,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745338   (105092) от 25.08.2024
+###  Публикация: 1737472   (106535) от 17.07.2024
 
-Process Lasso Pro 14.3.0.58 RePack (& Portable) by Dodakaedr [Ru/En]
+Alex Morning.Vibes - Acoustic Blues To Ease Your Soul (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Habits (3:36)
+02. Blues To Ease Your Soul (5:40)
+03. Celebrate the Night (3:14)
+04. Depart Ere Affection Fades (3:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C2CED3AA08CB5978C4C34916EF3DCBE363E7CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737477   (106534) от 17.07.2024
+
+Sandboxie 5.69.4 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105092.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106534.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0419120F1FCDCEB9712657FE95106C5FD2AEEA0
+magnet:?xt=urn:btih:7F2BE9012C8879CBDC85BCABB2F59504364DD338
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,28 +538,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745201   (105091) от 25.08.2024
+###  Публикация: 1737195   (106533) от 17.07.2024
 
-Lionheart - The Grace Of A Dragonfly (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+Remi Wolf - Big Ideas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinderella [00:04:03]
+02. Soup [00:03:33]
+03. Motorcycle [00:02:46]
+04. Toro [00:02:55](   Читать дальше...   )Жанр: PopПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7C25EDC397E998C3CDE82247B1ED59B2AD408E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737188   (106532) от 17.07.2024
+
+Nouvelle Vague - 3 Albums (2004-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, New Wave, Bossa Nova>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2004 - Nouvelle Vague (Remastered Edition 2024)
+2006 - Bande a Part (Remastered Edition 2024)
+2024 - Should I Stay or Should I Go?Жанр: Lounge, New Wave, Bossa NovaПродолжительность: 3 CD, 03:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3248FFBE0A4091C9CE172A4C85F77CB29A9F452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737451   (106531) от 17.07.2024
+
+Табор возвращается - Берега (2023) [MP3|320 Kbps] <Цыганская песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Дэвэс и Рат (Цыганская песня) [00:02:33]
+02 - Пантелее Пантелей (Цыганская песня) [00:06:08]
+03 - Кай енэ (Цыганская песня) [00:03:03]
+04 - Сумерки [00:05:14](   Читать дальше...   )Жанр: Цыганская песняПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB21A800B0B790B8242E20CDF2FCBA01DA946D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737330   (106530) от 17.07.2024
+
+Астрал. Ночной кошмар / Malam Pencabut Nyawa / Respati (2024) TS [H.264]
+
+>>Горячие новинки
+>>Экранки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106530.jpg" />
+</div>
+
+
+###  Подробнее
+
+После гибели родителей студента Респати мучают кошмары, а сам он обнаруживает, что может проникать в чужие сны. Когда зло из сновидений начинает воздействовать на реальную жизнь и угрожать жизни девушки Респати, парню нужно научиться действовать в этих снах, чтобы ее спасти. Но попасть в сон - не самое сложное. Куда сложнее выбраться обратно.Производство: Индонезия, Корея Южная / Base Entertainment, Samara, Barunson E&AЖанр: ужасыРежиссер: Сидхарта ТатаАктеры: Девано Данендра, Кеисья Левронка, Миха Эрнан, Буди Рос, Фаджар Нугра, Рату Фелиша, Кики Нарендра, Шри Исворовати, Майчелина Анис, Эко Буди АнтараПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: Русские (Forced hardsub)Продолжительность: 01:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2111C508790DF5EFD8127D81A7D3573C25F3D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737428   (106529) от 17.07.2024
+
+Bad Boys - Turn On The Radio (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105091.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Declaration (5:04)
-02. Flight 19 (4:42)
-03. V Is For Victory (4:35)
-04. This Is A Woman's War (4:43)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:51:28
+01. Bad Boy
+02. More Than She Can Handle
+03. Love Me Tonight
+04. Turn On The Radio(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F26B1868826C0E9F4121449D309745482B47E807
+magnet:?xt=urn:btih:6EB7A76B65DA2BD52CADD17E7263B2BB80ED5F78
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,28 +680,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745121   (105090) от 25.08.2024
+###  Публикация: 1737461   (106528) от 17.07.2024
 
-VA - Perfecto Black: The Sound of the Underground (2024) [MP3|320 Kbps] <Progressive House>
+Виктория Алешко - Настоящее золото (2024) [MP3|320 Kbps] <Pop>
 
->>Electronic
->>House
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105090.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aldor & Jetason - In The Dark (03:12)
-02. Stub & Foxtrot - Cloudwalker (03:40)
-03. Aradya - The Abyss Beckons (03:41)
-04. Nytefix & Sim - Soulbind (05:07)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:04:07
+01 - Настоящее золото [00:03:44]
+02 - Обалденная [00:02:53]
+03 - Чужая [00:03:15]
+04 - Ты будешь мой [00:02:31](   Читать дальше...   )Жанр: PopПродолжительность: 00:55:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE6ED59FACCD099EC63590C60C3D5B6055D6CEB6
+magnet:?xt=urn:btih:CA6E1B12197130BBF86B2B85BE5EFCB8FE19C346
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,81 +709,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745158   (105089) от 25.08.2024
+###  Публикация: 1737413   (106527) от 17.07.2024
 
-Zhandou Wang: Jufeng Zhan Hun 2 | Infinity Nado 2 | Инфинити Надо 2 [2013, TV, 40 эп.] WEBRip 1080p rus
+Евгений Поселянин | Сказание о святых вождях Земли Русской (2019) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105089.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Второй сезон Аниме Инфинити Надо.
-История о приключениях суперкоманды из четырех мастеров фантастической игры Надо. С помощью волшебных волчков игроки получают необыкновенную силу, которую используют для борьбы со злом. Надо – это больше, чем игра. Это самое популярное соревнование в мире, во время которого бойцы устанавливают связь с магическими волчками, таящими (   Читать дальше...   )Производство: Alpha Animation (Китай)Жанр: ПриключенияЯзык озвучки: Русский (Дубляж)Субтитры: ОтсутствуютПродолжительность: 40 серий по 23 мин.
+В людях, правивших Русью, в противоположность правителям Западной Европы, мы видим одну замечательную черту – преданность своему долгу, убеждение, что дело правления ниспослано им от Бога, как жизненная задача, за которую Бог спросит у них ответа, – и всеми силами души служили они своему народу. Была только одна грустная эпоха, перед игом, когда князья из-за личных (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:529C6DCAE1AEFF52654BDDF0DA9CBD49D474DE18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745327   (105088) от 25.08.2024
-
-Сообщение от мамы / Nachricht von Mama (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восьмисерийная драма «Сообщение от мамы» рассказывает историю молодого вдовца, потерявшего жену из-за рака. Перед смертью жена оставила ему и их детям сотни видеообращений. «Я смирилась с тем, что умираю. Но не с тем, что оставляю вас одних. Благодаря этим видео я все ещё немного с вами, если хотите», — это одно из многих видеопосланий, которые Элли записала для (   Читать дальше...   )Производство: Германия / Pyjama PicturesЖанр: драмаРежиссер: Феликс Биндер, Sabrina RösselАктеры: Джессика Гинкель, Голо Ойлер, Матильда Смидт, Клаудиа Решель, Юлия Голдберг, Marlene Morreis, Тим Оливер Шульц, Карла Ньине, Люк Мэтт Рёнтген, Matteo Hilterscheid и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE1E7BE33B491630B1406AA32A549A63B11AE7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745205   (105087) от 25.08.2024
-
-Honeymoon Suite - Alive (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive (2:42)
-02. Find What You’re Looking For (3:15)
-03. Done Doin Me (2:53)
-04. Afraid To Fall (2:54)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A71A6137A7146C521815CEF2C474D57DF9FBAC
+magnet:?xt=urn:btih:FB87D68A4B561D4B0BEA1EA9E4736C5CD8746A43
 ```
 
 https://mybot314.ru/tekegram_catalog/

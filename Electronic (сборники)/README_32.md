@@ -1,3 +1,32 @@
+###  Публикация: 1492127   (902368) от 30.08.2021
+
+VA - Soft Chaos: Electronic Set (2021) [MP3|320 Kbps] <Synthetic, Electronic, Experimental, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902368.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blood Wine Or Honey - Mystery Operator
+002. Ihf - It Wasn't Enough
+003. Tal Fussman - Tell Me All About It
+004. Squarepusher - Squarepusher Theme(   Читать дальше...   )Жанр: Synthetic, Electronic, Experimental, SynthwaveПродолжительность: 12:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8E1A9E193C7DAF02E216A5768811B9EE23B4E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492091   (902352) от 30.08.2021
 
 VA - Ambient Budda Groove Party (2021) [MP3|320 Kbps] <Ambient, New Age, Meditation>
@@ -719,35 +748,6 @@ VA - Record Super Chart #473 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD85253C77CA33CA7845E9D1583F9EDE290B75E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993156   (897769) от 04.03.2016
-
-VA - Tropical Beach: Ibiza Progressive Trance (2016) [MP3|320 кб/с] <Progressive Trance, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897769.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Myde - Castle In The Sand (Radio Edit) 03:27
-002. 4 Strings - Illumina (Original Mix) 05:17
-003. Aeden - Traveler (Radio Cut) 03:45
-004. Addliss - Care For You (DJ Ives M & DJ T.H. Radio Cut) 03:26(   Читать дальше...   )Жанр: Progressive Trance, Club, ElectroПродолжительность: 07:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F8EC7B98B1F467A21C782F8011B2566B82E53B
 ```
 
 https://mybot314.ru/tekegram_catalog/

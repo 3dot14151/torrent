@@ -1,3 +1,119 @@
+###  Публикация: 1366610   (922133) от 12.03.2020
+
+Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922133.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:42| 01. Cobolt
+|04:28| 02. Escape
+|03:37| 03. He's Gone
+|02:19| 04. This Is What He Does(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B74524DAC46F84CCE7EB749F7743784A5AF1C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366442   (922127) от 12.03.2020
+
+Klayton - The Dunes (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922127.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:59| 01. Gerald
+|01:55| 02. A Pretty Bright Light
+|01:07| 03. Detroit
+|01:42| 04. Blood(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8AF7B93E0B3068DEE213359954180C07288B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366443   (922107) от 12.03.2020
+
+Klayton - The Dunes (Original Motion Picture Score) (2020) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922107.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:59| 01. Gerald
+|01:55| 02. A Pretty Bright Light
+|01:07| 03. Detroit
+|01:42| 04. Blood(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56B34299D8931881686E8E7B7CF398673608C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988282   (920939) от 20.02.2016
+
+VA - Isaloc grammh (2008) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alkinoos Loannidis - Achrwmh siwph (3:05)
+02. Christos Thivaios - Marmarygh (3:16)
+03. Fwteinn Belesiwtoy - Melissec (4:21)
+04. Melίna Kanata & Michalhc Papaznshc - Isaloc grammh (3:31)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFABDE9B308E607EA2DBE752E9B7F3B465EC8D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988489   (920899) от 20.02.2016
 
 VA - Electronic Medicine - Binaural Meditation, Relaxing Deep Yoga Flow and Healing Tones (2016) [MP3|320 кб/с] <Chill Out, Lounge, New Age, Ambient>
@@ -627,122 +743,6 @@ Michael Afanasyev - Балканский рубеж (Оригинальный с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E64E1585F33A1CB8C9CD00A6C918881569EF3423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367340   (915522) от 16.03.2020
-
-The Hollywood Symphony Orchestra - Native Spirit (2012) 3CD [MP3|192 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hollywood Symphony Orchestra, Krys Mach - Buffalo Dance
-02. The Hollywood Symphony Orchestra, Krys Mach - Coyote Warrior
-03. The Hollywood Symphony Orchestra, Krys Mach - Prairie Daughter
-04. The Hollywood Symphony Orchestra, Krys Mach - Song of the Wild Cat(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 04:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A7536B92D2E6FF9D3FA871EBE26C325992E0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989349   (915389) от 23.02.2016
-
-OST - Verliefd op Ibiza / Любовь и секс на Ибице (2013) [MP3|230-270 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Fiora - Waiting For The Night (Radio Edit)
-02. James Blunt - Same Mistake
-03. Rebecca Ferguson - Nothing's Real But Love
-04. Alderliefste - Une Belle Histoire(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0928717081A610FB3DB6AB89E89290AC250CACEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989514   (915384) от 23.02.2016
-
-VA - Star Wars Headspace (2016) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaskade - C-3P0's Plight (03:13)
-02. GTA - Help Me! (03:56)
-03. TroyBoi - Force (02:52)
-04. Baauer - Cantina Boys (02:49)(   Читать дальше...   )Жанр: Electronic, SoundtrackПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9497FEE9CAECD09879AAC91F9C7232F08A7A7A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 33385   (915090) от 16.03.2020
-
-Space - Magic Fly (1977) Remastered, 1998, Bastien Music [FLAC|Lossless|tracks] <Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fasten Seat Belt (5:59)
-02. Ballad for Space Lovers (2:18)
-03. Tango in Space (4:28)
-04. Flying Nightmare (3:23)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4CB6706315BE7475A57A94EBB3D37E594AEB3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

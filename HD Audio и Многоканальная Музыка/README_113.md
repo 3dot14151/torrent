@@ -1,3 +1,148 @@
+###  Публикация: 1711940   (112273) от 01.04.2024
+
+Unleash The Tapir - Unleash The Tapir (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Miss Take (00:09:15)
+02 - Traffic Jam (00:03:52)
+03 - Still (00:09:34)
+04 - Hope (00:05:52)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4A06A64840A01C7F6A4132BF151E4DDE08756D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711915   (112271) от 01.04.2024
+
+Emilie Simon - Polaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-hop, Electro-pop, Downtempo, Indie Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Soleil (00:03:46)
+02 - Forteresse (00:02:53)
+03 - Secrecy (00:03:41)
+04 - Mon tigre aile (00:04:02)(   Читать дальше...   )Жанр: Trip-hop, Electro-pop, Downtempo, Indie-ElectronicПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7B5BFDD6AF4068E78D8CE4987AAB2C96BB49C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711984   (112254) от 01.04.2024
+
+Shadow Limb - Reclaim (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, Sludge, Stoner Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To Reclaim (00:04:28)
+02 - Snake Mountain (00:06:54)
+03 - Destitute (00:08:29)
+04 - The Maneuver (00:05:19)(   Читать дальше...   )Жанр: Progressive, Sludge, Stoner MetalПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AEBA4DA79AECC2F964CC4AA667F580AD98ED57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579798   (112223) от 02.04.2024
+
+Adelitas Way - Studio Albums (9 releases) (2009-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adelitas Way — рок-группа из Лас Вегаса, штат Невада.2009 - Adelitas Way
+2011 - Home School Valedictorian
+2014 - Stuck
+2016 - GetawayЖанр: Hard Rock, Post-grungeПродолжительность: 05:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5040298C5C13147CDA78E6223D0ED795EAFCC872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712474   (112171) от 02.04.2024
+
+Fort Romeau - Romantic Gestures Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold Up [00:04:03]
+02. Blue [00:05:18]
+03. The Man from Another Place [00:07:34]
+04. The Zone [00:04:22](   Читать дальше...   )Жанр: HouseПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3853D8AAEB91AE078A3B6037772A954139FDFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712480   (112166) от 02.04.2024
 
 HJirok - HJirok (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Pop>
@@ -595,151 +740,6 @@ Axel Rudi Pell - Guardian Angel (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:402AFE9B4B87CD0494FD2A7F3EC6EFC272E97D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714072   (111773) от 08.04.2024
-
-Bobby Lee Springfield - All Fired Up (1987) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Country, Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111773.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Hank Drank
-A2 Teenage Darling
-A3 Chain Gang
-A4 I Need A Girlfriend(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B167C450BBC6E684F1A75FDE03105DF41B7A2740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714397   (111745) от 09.04.2024
-
-VA - Садко 3000 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Дурак [00:02:52]
-02 - Омут [00:03:53]
-03 - Кролик [00:05:19]
-04 - А в лугах [00:03:24](   Читать дальше...   )Жанр: Rap, Folk RockПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC6E6D6DADBC59CA0E8976E2D8C561CBB0BD579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714143   (111727) от 09.04.2024
-
-Modest Mouse - Good News For People Who Love Bad News: (2004) 20th Anniversary Expanded Edition, 2024, Epic - Legacy [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horn Intro [00:00:09]
-02. The World At Large [00:04:32]
-03. Float On [00:03:28]
-04. Ocean Breathes Salty [00:03:44](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 01:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0FC0D495339C63F838CF7FD78E2E1A88D870EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714513   (111725) от 09.04.2024
-
-The Drums - Jonny (2023) Deluxe, 2024, Anti - Epitaph [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want It All [00:04:55]
-02. Isolette [00:02:34]
-03. I'm Still Scared [00:02:13]
-04. Better [00:03:48](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9391EFD84344954720079A0F7F95DED4C4EED2D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714384   (111724) от 09.04.2024
-
-The Meteors - 40 Days a Rotting (2024) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psychobilly>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blood Red Sea [00:04:00]
-02. Road Burn [00:04:00]
-03. Psychocybernation [00:03:44]
-04. Blood Moon [00:03:45](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B05CFD516AA75E11345649447E1F2AC3D96154
 ```
 
 https://mybot314.ru/tekegram_catalog/

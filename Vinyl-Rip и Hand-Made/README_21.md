@@ -1,3 +1,115 @@
+###  Публикация: 1072817   (620203) от 16.04.2022
+
+Джаз-квинтет п/у Я. Валясека - Импровизированный джаз (1955) Shellac-78rpm [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чай Вдвоём, фокстрот
+02. Знаю одно средство, фокстротЖанр: JazzПродолжительность: 00:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D336984AC1CB96C0F77ACC92BDF252DE8FDFFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071518   (620201) от 16.04.2022
+
+Концертный Ансамбль п/у Фердинанда Криша - Записи 1941 года (1951) Repress [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Latin, Tango, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танго соловья, солист Таиса Савва (художественный свист)
+02. Романтическое тангоЖанр: Latin, Tango, RetroПродолжительность: 00:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9E024105677E772DF14B445D007991E7D08F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059522   (620053) от 16.04.2022
+
+Roxy Music - Flesh + Blood (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]  <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620053.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 In The Midnight Hour
+A2 Oh Yeah
+A3 Same Old Scene
+A4 Flesh And Blood(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B83BAB6E66B9436BADA4446EFB99F23D9659D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846687   (620042) от 16.04.2022
+
+Николай Басков - Посвящение... (2000) [FLAC|Lossless]<Pop, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620042.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Памяти Карузо
+A2	Гранада
+A3	О, Натали...
+A4	История Любви(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E65B9B856742027C7E9D86F3727932BD599739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070326   (619907) от 16.04.2022
 
 VA - Golden Hits Of Turkish / Золотые Хиты Турецкой Эстрады (2003) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop>
@@ -630,118 +742,6 @@ A4	All Right	4:01(   Читать дальше...   )Жанр: Synth-pop, Disco�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E6B9B50A0982929C243746FBAD88DA3B5FA5C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991825   (611041) от 21.04.2022
-
-Валерий Леонтьев - По вашим письмам: Горькие яблоки (1985) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Горькие яблоки
-02. Конь мой, коньЖанр: PopПродолжительность: 00:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB50483059032583F15526D0D569B0FA73B15DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991818   (611029) от 21.04.2022
-
-Валерий Леонтьев - Ненаглядная сторона (1981) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ненаглядная сторона
-02. Бреду по жёлтым склонамЖанр: PopПродолжительность: 00:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9526CDDB5AE1ED421D577C2F4A9E89F099C4E775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146955   (610991) от 01.07.2017
-
-VA - Rock Remakes - Non Stop Part three (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Rock, Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Beatles Meets Michael - Way You Make Me Feel (Michael Jackson)
-02. Therion - Summer Night City (Abba)
-03. Roxette - Help! (The Beatles)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Heavy MetalПродолжительность: 01:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2FA0F9987DB1FEAACD7F52CA0CC2246BB0B02E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912639   (610613) от 26.06.2015
-
-Roger Hodgson - In The Eye Of The Storm (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начинать сольную карьеру в 80-х годах минувшего столетия в прогрессивном роке было делом заведомо неблагодарным. Тем не менее, многих музыкантов это не останавливало, и они наперекор всем начинали выпускать сольные альбомы, нередко вызывая тем самым досаду поклонников и злорадство критиков. Роджер Ходжсон (Roger Hodgson) – один из основателей Supertramp – также не (   Читать дальше...   )A1. Had A Dream (Sleeping With The Enemy) (8:28)
-A2. In Jeopardy (5:58)
-A3. Lovers In The Wind (4:15)
-A4. Hooked On A Problem (4:59)(   Читать дальше...   )Производство: A&M RecordsЖанр: Soft RockПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9400E4EF1B1EA5782302141DB7AFC5D2F29301D
 ```
 
 https://mybot314.ru/tekegram_catalog/

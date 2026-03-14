@@ -1,3 +1,29 @@
+###  Публикация: 1602627   (1046028) от 06.01.2023
+
+YT Downloader 7.19.2 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046028.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D89775FFBB8C30CBDA0A8EFA55A05F842DD60E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602653   (1046019) от 06.01.2023
 
 Aiseesoft Screen Recorder 2.6.18 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -646,35 +672,6 @@ Windows 10 22H2 (19045.2364) x64 (4in1) by Brux [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:021B8A1BE96B0EDFFB58326A5471DA7A75C1BE65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603117   (1045708) от 09.01.2023
-
-Windows 11 (v22h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MDSN: ru-ru_windows_11_consumer_editions_version_22h2_updated_
-dec_2022_x64_dvd_ff093f2e.iso.
-Использован установщик от Windows 10 22H2 (SecureBoot и TPM 2.0 не требуется).
-Отключено несколько компонентов, задействован протокол SMB.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80C06AF565AA0E2C456100842526A73D1DA0D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

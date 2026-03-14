@@ -1,3 +1,38 @@
+###  Публикация: 534932   (518897) от 14.08.2012
+
+VA - Best Of MTV Hits (2012) [MP3|128 кб/с]<Dance, Pop, RnB, Hip Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Inna - Ai Se Eu Te Pego
+002 Andreea Banica Feat. Play & Win - Sexy (Radio Edit)
+003 Akon - Love Handles
+004 Nicole Scherzinger - Funky Town
+005 Nelly - Just A Dream
+006 David Guetta Feat. Sia - Titanium
+007 Snoop Dogg & Wiz Khalifa Feat. Bruno Mars - Young, Wild & Free
+008 Jennifer Lopez Feat. Pitbull - On The Floor (Radio Edit)
+009 Massari - Live It Up
+010 Alex Gaudino Feat. Kelly Rowland - What A Feeling (Radio Edit)Жанр: Dance, Pop, RnB, Hip HopПродолжительность: 12:22 :09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A543F39B1D90F667362CC7C63011916E9E450ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560829   (518735) от 01.07.2022
 
 VA - Music News vol.199 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -719,35 +754,6 @@ VA - ЕвроХит Топ 40 Europa Plus 19.07.2019 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E1E57F2857670C3B69AB73641D7ECEF63B50C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931227   (512667) от 25.08.2015
-
-VA - Зайцев нет. Лучшие новинки августа (2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512667.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Varien feat. Veela - Supercell (03:35)
-002. Chris Lake & Anna Lunoe - Stomper (03:34)
-003. Tchami feat. AC Slater & Kaleem Taylo - Missing You (05:14)
-004. Koven - From The Start (04:30)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 04:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1088B4FCD4F641522D6543E9BC2556DD7191BEC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

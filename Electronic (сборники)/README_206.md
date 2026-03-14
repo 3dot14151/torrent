@@ -1,3 +1,32 @@
+###  Публикация: 970758   (137651) от 31.12.2015
+
+VA - Black and White (Compiled by Lazyra) (2015) [MP3|320 кб/с] <Trance , Uplifting Trance , TechLifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Bowdidge - Final Rising (Original Mix) (6:58)
+02. James Kelly - 400 (Extrema 400 Official Anthem) (5:49)
+03. John O'Callaghan - Meridian Bay (Original Mix) (6:52)
+04. WeAreAliens - Star Driver (Original Mix) (6:49)(   Читать дальше...   )Жанр: Trance , Uplifting Trance , Techlifting TranceПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19F49AEA338D3396A83EEAE9F39DAA019BEE75C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088563   (137283) от 31.12.2016
 
 VA - District of Trance Vol. 2 (Compiled & Mixed by Lazyra, Pilligrim & Deeper) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Atmospheric Breaks, Progressive Breaks>
@@ -830,41 +859,6 @@ VA - Chillout For Peace Of Mind (2023) [MP3|320 Kbps] <Chillout, Lounge, Relaxin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73F6394CC7FF207C28A7BF0DAC7981F3350B2C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594727   (133287) от 27.12.2012
-
-VA - Sunset High Dreaming (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alien Bug - Gates To Oblivion (Original Mix) 07:55
- 02. Ethan - Unforgiven 07:57
- 03. Protonica - Orion (Ovnimoon Remix) 07:47
- 04. M.D.K - Mustang (Original Mix) 07:41
- 05. Squarz Kamel - Together (Ezil & Slider Remix) 07:38
- 06. Stuart Mc Niven - Surrender (Feat Sharon Fehlberg-Ian Solano Remix) 07:43
- 07. Poshout - Melorum (Maksim Palmaxs Bootleg) 07:34
- 08. Anna Lee & Alex Teeb - Driving Juke (Original Mix) 07:28
- 09. Dmitriy Bulakov - Crux (Sens Remix) 07:27
- 10. Fortuna And Casus - Sometimes (Rework) 07:23(   Читать дальше...   )Жанр: TranceПродолжительность: 03:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C225F557304B3311EFF3AAACF5D87CFCCF67BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

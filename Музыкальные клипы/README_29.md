@@ -1,3 +1,185 @@
+###  Публикация: 582041   (321142) от 29.11.2012
+
+Chris Thrace feat. Glorya. Angel & Devil (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD3F54C8F5368010E907D81C695820FF3F54006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582080   (320966) от 29.11.2012
+
+Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7FED1E461A19167FA026B379E996836EE95CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582075   (320949) от 29.11.2012
+
+Green Day. Nuclear Family (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ROCK
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F1476174D2BDDAD5DB5716E9E8C63ED5EDC4E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582084   (320760) от 29.11.2012
+
+Papajam. Every Day Every Night (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A3D105C6AA69C363A8B4918CF9D95BDCCFC2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582054   (320737) от 29.11.2012
+
+Ellie Goulding. Figure 8 (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159E69C1F90089C959CF41549FBDADF2EB55D9C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582072   (320526) от 29.11.2012
+
+The Rasmus. Somewhere (2012)  [H.264/1080p]WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ROCK
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DB0D33991B8D8A719C5E5EDBBB790B252F1F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582089   (320380) от 29.11.2012
+
+Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8454E0ADBEEBEECF468C13AF3DFBE095AFF7B48A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958330   (319004) от 23.11.2015
 
 Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
@@ -512,203 +694,6 @@ VA - Official UK Top 40 Video Chart (27-11-2015) WEB-DL [1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AED724C2BCD02ABD5B2496C60A778465B4FB2D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 731409   (295119) от 08.12.2013
-
-Сборник клипов - VA - Various Music part. 48 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295119.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 140 Ударов в минуту - А я скучаю очень 1080p (4:20)
-2. 5sta Family - Буду с тобой 1080p (3:36)
-3. Akcent - Lacrimi curg 1080p (3:59)
-4. Alex Kunnari & Heikki L ft. Joel Madden - City of Sin 1080p (3:41)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7558DF5F71471AF6396E7BA59B025E190A446418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962343   (294715) от 04.12.2015
-
-Flo Rida - Collection Video Clip ( 2010 - 2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагаем лучшую подборку видео клипов Тремера Дилларда или Фло Рида.1. A-Roma feat. Flo Rida and Shawn Lewis - A Prayer (Official Video) (00:03:29)
-2. Austin Mahone ft. Flo Rida - Say You're Just A Friend (Official Video) (00:03:15)
-3. Charmani ft. Flo Rida - Paint This Town (00:03:33)
-4. Erika Jayne ft. Flo Rida - Get It Tonight (00:03:44)(   Читать дальше...   )Жанр: House, Trance, Rap, Hip-HopПродолжительность: 01:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B397EFDDA41AAFDEB2381AF553A33F70C88B8B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962117   (294585) от 04.12.2015
-
-VA - Зимний марафон № 209: Дискотека с доставкой на дом (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (03.12.2015) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. A-Dessa (Стас Костюшкин) - Караочен (Премьера!) (00:04:20)
-02. Azary ft. Kleo and Alldavay - Ах, какой казах (Official Video) (00:03:36)
-03. Carrie Underwood - Heartbeat (Official Video) (00:04:02)
-04. Chus and Ceballos ft. Astrid Suryanto - All I Want (Official Video) (00:04:03)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, Electronic, SynthpopПродолжительность: 01:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97298AE6830C980A1887D2EC376437EFC247CB89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962452   (294480) от 04.12.2015
-
-4G (4 Girls) - Улыбайся (2015) WEBRip [4K] [H.264/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Максима Фадеева - 4G (состав группы: Дарина Иванова, Ирина Морозова, Аня Егорова и Софья Голубева), выпустила новый клип на песню "Улыбайся".Жанр: PopПродолжительность: 00:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2BC6CE9C9D1B915EB889A84E0B7307C68E26BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185103   (293122) от 21.11.2017
-
-Rihanna feat. Jay-Z - Umbrella (2007) 540p HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный видеоклип Rihanna feat. Jay-Z - Umbrella.Жанр: Музыкальный видеоклип.Субтитры: отсутствуютПродолжительность: 00:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450F02330C31D98DD6D12CFD8287EF4505F2014C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185321   (292872) от 21.11.2017
-
-Сборник клипов - Best of Hits 90s от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292872.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые и фишкастые клипы лихих 90х. В нём я постарался отразить все обояние того десятилетия, пускай неопределенного и иногда даже дикого, но все же думаю многим приятно будет вспомнить то время. Время поднятия с колен нашей великой и большой страны, имею в виду весь бывший союз. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все (   Читать дальше...   )000 Intro
-059 La Bouche - Sweet Dreams
-060 Mr.Credo - Мама азия
-061 Modern Talking - China In Her Eyes (feat. Eric Singleton(   Читать дальше...   )Жанр: PopПродолжительность: 03:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1894C37BC9BD1DD40D623C98928BF90DC27B67C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962533   (292758) от 05.12.2015
-
-Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагаем лучшую подборку видео клипов Armando Christian Perez III или сценическое имя Pitbull.01. Pitbull and Empire Cast ft. Jussie Smollettl - No Doubt About I (00:04:14)
-02. Pitbull - Back In Time (featured in 'Men In Black III') (00:03:32)
-03. Pitbull - Celebrate (from the Original Motion Picture Penguins of Madagascar) (00:03:11)
-04. Pitbull ft. TJR - Don't Stop The Party (00:03:33)(   Читать дальше...   )Жанр: Latino, Reggaeton, Hip House, Rap, Hip-Hop, Latin UrbanПродолжительность: 01:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338CD52DD68AD3BE60D14C7772E6F58B5C581040
 ```
 
 https://mybot314.ru/tekegram_catalog/

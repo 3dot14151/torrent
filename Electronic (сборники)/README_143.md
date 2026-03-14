@@ -1,3 +1,38 @@
+###  Публикация: 553561   (443738) от 28.09.2012
+
+VA - L.O.V.E. Vol.11: Chillout Music Collection (2012) [MP3|320 кб/с]<Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andain - You Once Told Me
+02. Dinka - Innocence (Original Mix)
+03. George Holliday - Never Gonna Grow (Original Mix)
+04. Matt Tilli - A Drug (Original Mix)
+05. Natalie Marchenko - Lily Was Here
+06. Bryan Milton - Astronomy (Original Mix)
+07. Store N Forward - Listen To Life (Masoud Remix)
+08. Electrico - Liberation (Shigeki Str1ng Orchestra Remix)
+09. New Believers feat. Ike Sofunky - Read My Mind (Drexmeister Rework)
+10. Thomas Lemmer - Traveller (Setsuna Remix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 04:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942D637501FFE5284970928F5AE2607C3CB63760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409589   (443271) от 18.09.2020
 
 VA - Tight Drum And Bass: Bassline Positive Session (2020) [MP3|320 Kbps] <Drum And Bass>
@@ -734,41 +769,6 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #99 (2012) [MP3|320 кб/с]<Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0163266CA6D14E284A3AAF212ACAA11BC40FC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553268   (438827) от 30.09.2012
-
-VA - Simply Dubstep September 2012 (2012) [MP3|320 кб/с]<Dubstep, Bass, Grime, Electronic, Glitch Hop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438827.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Al3Xtaylor - She Wants Candy (3:22)
-2. Alex Mind And James Edgbert - Ghost Machine (Original Mix) (4:45)
-3. Ali.I.A.N - Fluctuate (Original Mix) (3:36)
-4. Assault Terror & Meatmans Project - Alone In The Dark (Original Mix) (5:32)
-5. Assault Terror & Meatmans Project - Electric Scream (Original Mix) (4:48)
-6. Aylius - Voicemail (Original Mix) (5:06)
-7. Aylius Feat Katie Joy - Lucid (Original Mix) (4:15)
-8. Aylius Feat Mass - Perfecting Technique (Original (4:17)
-9. Captain Panic! - Death March (Rekoil Remix) (3:38)
-10. Dirt Monkey Fet Anna Yvette - Hurt So Good (Metaphase Remix) (4:02)(   Читать дальше...   )Жанр: Dubstep, Bass, Grime, Electronic, Glitch HopПродолжительность: 08:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD010A5D9272C80BF761F30D74E41A47E75CA67
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1096271   (921112) от 23.01.2017
+
+Abe Rabade Trio - Once (2016) Karonte[FLAC|Lossless|tracks + .cue] <Modern Creative, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Bruxa [07:34]
+ 02.Tule [05:50]
+ 03.Transito 5, Meditacion E Danza [07:55]
+ 04.Once In A While [04:07](   Читать дальше...   )Жанр: Modern Creative, Piano JazzПродолжительность: 01:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11A2766B83370B556A94C0F1FF6DFD1D8DEC0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095873   (921099) от 23.01.2017
 
 Paul Barbarin, Punch Miller, George Lewis - Jazz At Preservation Hall III (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
@@ -729,35 +758,6 @@ Danilo Rea Trio - Romantica (2004) [FLAC|Lossless]<Modern Jazz, Piano>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096851   (917799) от 25.01.2017
-
-Dave Brubeck - This Is Jazz (1953 - 1964) 1996, Legacy[FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Take Five [05:27]
- 02.Gone With The Wind [06:25]
- 03.Someday My Prince Will Come [08:19]
- 04.Blue Rondo A La Turk [06:47](   Читать дальше...   )Жанр: CoolПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99C6F1F58BB203D3D478FD4DA77A046727D8AB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

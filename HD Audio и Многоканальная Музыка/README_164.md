@@ -1,3 +1,144 @@
+###  Публикация: 1759652   (103231) от 10.11.2024
+
+Ghosts Of Atlantis - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Symphonic Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghosts Of Atlantis - symphonic / groove / melodic death metal группа из г. Ипсвич, Англия.2021 - 3.6.2.4
+2023 - Riddles of the SycophantsЖанр: Extreme Symphonic Metal/MetalcoreПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8200375B0A531425238C298EC4A5F1B0B32B0CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759799   (103228) от 10.11.2024
+
+Whitney Houston - The Concert for a New South Africa (Durban) (1994) 2024, Arista - Legacy[FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love's In Need Of Love Today (Live in Kings Park Stadium, Durban, South Africa - November 8, 1994) [00:03:37]
+02. So Emotional (Live in Kings Park Stadium, Durban, South Africa - November 8, 1994) [00:04:01]
+03. Love Will Save the Day (Live in Kings Park Stadium, Durban, South Africa - November 8, 1994) [00:06:16]
+04. Saving All My Love for You (Live in Kings (   Читать дальше...   )Жанр: PopПродолжительность: 02:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6038F199259F52F4C1D6797B09C3659CE5B723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759723   (103225) от 10.11.2024
+
+Klone - The Unseen (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-Groove-Metal, Progressive-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interlaced (5:39)
+02. The Unseen (5:45)
+03. Magnetic (3:19)
+04. After the Sun (4:04)(   Читать дальше...   )Жанр: Progressive-Groove-Metal, Progressive-MetalПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5971D130F3A8EAE865C83E5ECDCF03C6EDFB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759879   (103223) от 10.11.2024
+
+Phil Vermont - Time Has Come (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Man Alive (5:03)
+02. Sexy, sexy, sexy ! (3:41)
+03. Your time has come (3:28)
+04. I'll be there (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72DD28F49496539DF149BA54D4204F26DD1E47A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759784   (103222) от 10.11.2024
+
+Mezzrow - Studio Albums (2 releases) (1990; 2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mezzrow - трэш-метал группа из Нючёпинга, Швеция1990 - Then came the killing
+2023 - Summon Thy DemonsЖанр: Thrash MetalПродолжительность: 01:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67D073C407B71598286A1F7516C25B4DAF8EFB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759886   (103218) от 10.11.2024
 
 Seventh Crystal - Entity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -598,151 +739,6 @@ VA - Steel Bars - A Rock Tribute To Michael Bolton (2024) [FLAC 24/44.1|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E132ED6A0B625CC959BD79C10E881EF07895C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760766   (103118) от 17.11.2024
-
-Underworld - Strawberry Hotel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive, Techno, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Black Poppies
-02 denver luna
-03 Techno Shinkansen
-04 and the colour red(   Читать дальше...   )Жанр: Tech House, Deep House, Progressive, Techno, ElectronicПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF5A5B646148EBE584730029470E08C056F0B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761003   (103108) от 17.11.2024
-
-Eden On Fire - Unresolved (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Brigade (05:49)
- 02 - Love Bomb (Remastered) (04:10)
- 03 - Parasite (05:58)
- 04 - Set Me Free (04:19)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FB16AEFF138357064418AAB14C9A72477D45A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761213   (103081) от 18.11.2024
-
-Desert Song - Desert Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (1:08)
-02. Desert Flames (4:23)
-03. One for all, all for one (3:25)
-04. Rain in Paradise (4:12)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF27B746683BF78AE5852FB376C75F07DCA559F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761214   (103080) от 18.11.2024
-
-Distant Past - Solaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of Life (Intro) (0:58)
-02. No Way Out (3:29)
-03. Warriors Of The Wasteland (4:14)
-04. Sacrifice (4:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA17133FFDCEC116AF63809FE11DFCFF63524C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761219   (103079) от 18.11.2024
-
-Lonerider - Down in the Dust (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shiver (4:22)
-02. Three Steps Back (4:34)
-03. Getting Closer (4:35)
-04. Help Me Brother (3:59)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05440208EEC208FC2C15E684181B8ED45E70484A
 ```
 
 https://mybot314.ru/tekegram_catalog/

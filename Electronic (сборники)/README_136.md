@@ -1,3 +1,32 @@
+###  Публикация: 939355   (475795) от 21.09.2015
+
+VA - Music compilation September (2015) [MP3|320 кб/с]<House, Electro, Progressive, DubStep, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Adam Lambert – Ghost Town ( Viduta Remix )
+02.Audien feat. Lady Antebellum - Something Better (Vanze Bootleg)
+03.Bassnecta – You & Me
+04.Brandon Flowers – I Can Change (Michael Brun Remix)(   Читать дальше...   )Жанр: House, Electro, Progressive, DubStep, ClubПродолжительность: 02:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF992F4D81DD89CE5BCC1616B2CFCFFFB2055D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057453   (475347) от 28.09.2016
 
 VA - Infectious Sounds: Bass Line (2016) [MP3|188-320 Kbps] <Drum and Bass, Dubstep>
@@ -734,35 +763,6 @@ VA - Ambience Forest (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F612553755A8E5C8A91C194C7E36282A977A35C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161163   (469903) от 27.08.2017
-
-VA - Music For Everyone - Dubstep & Drumstep Vol.5 (2017) [MP3|320 Kbps] <Dubstep, Drumstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469903.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shut Eye - Divinity (Original Mix)
-2. Just A Gent, Kiele & Michael Herrera - Stars Beyond Stars (Noah Moore Remix)
-3. Zedd feat. Matthew Koma - Spectrum (Muffoxx Remix)
-4. Equalize - Adventure (Original Mix)(   Читать дальше...   )Жанр: Dubstep, DrumstepПродолжительность: 01:21:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0405C305E88962D88BDF53E97F95AA57D8EC84F
 ```
 
 https://mybot314.ru/tekegram_catalog/

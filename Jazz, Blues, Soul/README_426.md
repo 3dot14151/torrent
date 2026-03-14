@@ -1,3 +1,177 @@
+###  Публикация: 1587984   (192150) от 02.11.2022
+
+Carlos Segarra - Segarra Inn Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Talking About You (2:31)
+02. Dimpless (2:36)
+03. Eso Es Blues (Y No Lo Que Cantas Tú) (3:40)
+04. Six Days on the Road (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A624E7099CC23873822D2AA304CA009A5E82EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587989   (192143) от 02.11.2022
+
+Jed Potts & the Hillman Hunters - Swashbucklin' (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swashbucklin' (3:00)
+02. It Won't Be Long (5:03)
+03. The Fastest Outlaw (4:24)
+04. Splash-Down! (2:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0F353F929A29B1EF5796AE453016250B790792B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587992   (192138) от 02.11.2022
+
+Kunio Kishida - 10 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down in the South  (4:18)
+02. Jimmy Crazy Drivin'  (3:45)
+03. Hey Jamie  (2:32)
+04. Just Call Me  (4:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61B4316B9D42618832C735ACA0D12D376E0039D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587979   (192133) от 02.11.2022
+
+Annika Andersson & the Boiling Blues - Playing in a Rock'n Roll Band (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pg Blues (2:19)
+02. Going out with a Bang (4:01)
+03. Playing in a Rock'n Roll Band (4:06)
+04. Old Faithful (3:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5CC7B1CDF0FE0AE1D7AEB6653F693D714B0B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587995   (192123) от 02.11.2022
+
+Shakura S'Aida - Hold on to Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold on to Love (4:23)
+02. Takin' it to the Streets (4:32)
+03. Clap Yo Hands and Moan (4:19)
+04. Glad for Today (3:58)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57C0C09D18AD76FE5471DD8B96E73BF821BCA9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587920   (192122) от 02.11.2022
+
+Nelson Riddle - Eight Classic Albums (1955 - 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Easy Listening, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192122.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Oh, What a Beautiful Mornin' [6:18]
+02. The Surrey With The Fringe On Top [2:52]
+03. Kansas City [2:58](   Читать дальше...   )Жанр: Easy Listening, Big Band, SwingПродолжительность: 04:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214BED981C3B7C5623024A6C571C7B1F0EF8D23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588013   (192112) от 02.11.2022
 
 Steve Lucas and the Rising Tide - How Can I Sing the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ McCoy Tyner - The Montreux Years (1981 - 2009) 2023, BMG [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F03824B801DBFF87A921A89B007AD2D761F748D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658935   (190644) от 10.09.2023
-
-Louis Hayes - Exactly Right! (2023) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exactly Right! [4:40]
-02. Is That So? [6:38]
-03. Hand in Glove [6:45]
-04. So Many Stars [5:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4100B021AB5060AB7875EA11668DA1E45C1307B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589188   (190427) от 09.11.2022
-
-Ned Ashton & Chas Rigby - Electric Dust (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wind Cries Mary (3:24)
-02. Castles Made of Sand (2:52)
-03. Electric Dust Blues (3:34)
-04. Sittin' on the Dock of the Bay (2:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A296B265E025D71C4B1BFE43817D5A0FF222B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589176   (190415) от 09.11.2022
-
-LaBronn Conner Jr - The Early Singles (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom on My Mind (4:44)
-02. Peace (5:07)
-03. Time (To Get Myself Back Together) (3:35)
-04. Mushy Wall Blues (6:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3A0972544060B39C4CB47795671F912527856C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589312   (190406) от 09.11.2022
-
-Bunny Berigan - The Complete Brunswick, Parlophone And Vocalion Bunny Berigan Sessions (1931 - 1935) 7CD, 2003, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190406.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. When I Take My Sugar to Tea [3:11]
-02. Rockin' Chair [3:06]
-03. Building a Home for You [3:01](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 07:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975C35F78890A6B4240A5915E07A1FEDCD32FF88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589159   (190395) от 09.11.2022
-
-Blues Fighters - Pretty Baby (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Little Justine (3:48)
-02. Make Love in Town (4:17)
-03. I Wanna Marry You (4:39)
-04. Believe Me (3:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4599FF94A60A61002E09BFA60C5A2F1955429F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589175   (190393) от 09.11.2022
-
-Kris Lager - Presence (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly With The Stars (4:59)
-02. Feel It In The Air (3:34)
-03. Let's Dance Nice & Slow (4:13)
-04. I Really Love You (3:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A60E1EC300EE8B3B399597C25B9D981B99510BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

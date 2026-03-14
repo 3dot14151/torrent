@@ -1,3 +1,32 @@
+###  Публикация: 1007703   (819655) от 16.04.2016
+
+VA - Extra Trance (episode 10) (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kyau & Albert - About The Sun (Original Mix) (05:50)
+02. Ferry Corsten - Beautiful (Aly & Fila Remix) (07:47)
+03. Gerome feat. Cassandra Grey - Black Bird (Vocal Mix) (06:40)
+04. Ernesto vs Bastian feat. Susana - Dark Side of The Moon (Alex M.O.R.P.H Remix) (06:16)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938C63A748521078224D81A3ECD4908602D487D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503364   (819390) от 19.10.2021
 
 VA - Record Super Chart 16.10.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Chillout Hits Vol.3 (2017) [MP3|320 Kbps] <Chillout, Chilltrap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6990C6B097B509C6304918E8383B21B4918C0DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008880   (813945) от 19.04.2016
-
-VA - Lounge Royale: Exclusive Music Selection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francesco Demegni – A New Love
- 02. Luna Lounge – Luna Serenade
- 03. Andrea Cardillo Project – Buona vita
- 04. Vincenzo Ricca – Chill Thrill(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E18C1571FFC16014557428FCB8BB9BFED146D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

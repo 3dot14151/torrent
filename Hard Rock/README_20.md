@@ -1,3 +1,32 @@
+###  Публикация: 1059454   (461819) от 04.10.2016
+
+VA - Gods of Thunder - A Norwegian Tribute to Kiss (2005) [MP3|256 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Ronni Le Tekro & Tony Harnell - Detroit Rock City
+03. Wig Wam & Bruce Kulick - I Was Made for Lovin You
+04. Espen Lind - Sure Know Something(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8395784855DDB7B8D5E39152F99DD2B8DBD37750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407783   (460101) от 10.09.2020
 
 Jim Kirkpatrick - Ballad Of A Prodigal Son (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
@@ -717,35 +746,6 @@ The Wildhearts ‎– 30 Year Itch - Bonus Tracks (2020) [MP3|320 Kbps] <Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F99F3FCF843A5BDB249CFD43072A556D559A1BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946813   (422674) от 15.10.2015
-
-iLL - Gotten Gains (2012) [MP3|320 кб/с]<Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422674.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One Time (3:27)
-2. A (5:06)
-3. There Are Worse Things Than Being Alone (3:49)
-4. Christine (7:49)(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF6371A2C65B2395443714F9E4476EF3F80706F
 ```
 
 https://mybot314.ru/tekegram_catalog/

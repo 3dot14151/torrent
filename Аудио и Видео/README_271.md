@@ -1,3 +1,29 @@
+###  Публикация: 1435424   (143857) от 28.12.2020
+
+Ведьмы / The Witches (2020) BDRip [1080p] ATV3
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143857.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце 1967 года после гибели родителей мальчик переезжает жить к бабушке. Та вскоре замечает, что в их городке отираются ведьмы, которые не прочь превратить её внука в какое-нибудь животное, поэтому решает спрятаться в самом шикарном отеле Алабамы, где работает её кузен. Бабуля думала, что там они встретят только скучающих богатых постояльцев, но именно в этом (   Читать дальше...   )Производство: США, Мексика, Великобритания / Warner Bros., ImageMovers, Canadian Film or Video Production Tax Credit (CPTC)Жанр: Фэнтези, комедия, семейныйРежиссер: Роберт ЗемекисАктеры: Джазир Бруно, Октавия Спенсер, Энн Хэтэуэй, Стэнли Туччи, Коди-Лей Истик, Крис Рок, Брайан Бовелл, Джозеф Зиньемба, Джозетт Саймон, Джонатан ЛивингстоунПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: 01:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45911BB8B4C128C7D822CC4BE9689BA92C45EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272467   (143670) от 27.12.2018
 
 Дом, который построил Джек / The House That Jack Built (2018) WEB-DL [1080p] ATV [AVO]
@@ -706,35 +732,6 @@ VA - Best of Ballroom Purple (2021) [AAC|~324 Kbps] <Deep House, Downtempo, Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC9EE7F61054F1C19A3D7431CFD9946F233DAABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520349   (142278) от 28.12.2021
-
-VA - Pulse (Compiled by Serge Kraplya) (2021) [AAC|~319 Kbps] <Chill Out, Downtempo, Organic House, Ethnic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J. R. Haim, Cafe De Anatolia - Mirage (3:52)
-02. Rodrigo Gallardo, Cafe De Anatolia - Kameyama (6:49)
-03. Laroz, Cafe De Anatolia - Maiella (5:43)
-04. Khaikhan, Cafe De Anatolia - Our Family (6:49)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic House, EthnicПродолжительность: 02:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1F9AF6C23B9B34DA1FAB9185901DA22FF2EB42
 ```
 
 https://mybot314.ru/tekegram_catalog/

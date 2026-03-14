@@ -1,3 +1,29 @@
+###  Публикация: 1385828   (796593) от 26.05.2020
+
+Чувствительный и влюбленный / Sensitive and In Love (2020) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796593.jpg" />
+</div>
+
+
+###  Подробнее
+
+A millennial writer from San Francisco travels to the Philippines where she and her brother, a music producer, must come face to face with their traumatic childhood and embrace their seemingly unbearable trait.Производство: Филиппины / The Global Touch GroupЖанр: драмаРежиссер: Will HarperАктеры: Alecks Ambayec, Cai Cortez, Billy Ray Gallion, Cherie Gil, Madeleine Humphries, Craig Lines, Alex Vincent Medina, Bianca Rogoff, Jose Rosete, Raymund TolentinoПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: отсутствуютПродолжительность: 02:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768BD0322B69C4F6114AFFBF40271A6809BC590A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385805   (796580) от 26.05.2020
 
 Несчастье Рона Хоппера / Ron Hopper's Misfortune (2020) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D8EA026319028EEFFDDA28BACC7831CC6EE070B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122822   (793302) от 06.04.2017
-
-Лев / Lion  (2016) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сару, мальчик из трущоб, потерялся в возрасте 5-ти лет. История об удивительных поворотах его судьбы и поисках семьи.Производство: США, Австралия, ВеликобританияЖанр: драма, биографияРежиссер: Гарт ДэвисАктеры: Дев Патель, Николь Кидман, Руни Мара, Дэвид Уэнэм, Санни Павар, Абхишек Бхарате, Приянка Бозе, Кхуши Соланки, Шанкар Нисоде, Танништа Чаттерджи, Навазуддин Сиддикуи, Риддхи СенПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8684FDB8E91B31472DD6C2B244A07F90FDE2BC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

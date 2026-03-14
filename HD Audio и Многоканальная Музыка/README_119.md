@@ -1,3 +1,148 @@
+###  Публикация: 1719316   (110618) от 28.04.2024
+
+Marina Kaye - Heavenbound (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <World, Europe French Music>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavenbound [00:03:13]
+02. What if [00:03:21]
+03. Dark Magic [00:03:15]
+04. Ghost [00:03:23](   Читать дальше...   )Жанр: World, Europe French MusicПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C06BC1945B7E3E5BFB56958CEFF6CF6CF22A2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719156   (110611) от 28.04.2024
+
+Juan Pablo Balcazar - Otro Quatuor Pour La Fin Du Temps (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preludio al Quartet (9:26)
+02. I El Despertar (5:55)
+03. II El Anuncio (6:23)
+04. III El Abismo (3:36)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812307333CE9004D1C08208515E4DCEA6F03EE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719157   (110610) от 28.04.2024
+
+Nigel Price Organ Trio - That's It. Right There (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Shirley (6:57)
+02. Morning Star (7:55)
+03. Night Flight (6:37)
+04. You Don't Know Me (8:18)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3316954DE75FFDB381CF7DEE3953EE8A1A3401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719134   (110609) от 28.04.2024
+
+Bruno Montrone - Unaware Beauty (Studio) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edward Lee (Studio) (8:50)
+02. Riflessiva (Studio) (6:39)
+03. Unaware Beauty (Studio) (6:42)
+04. The Hodgepodge (Studio) (4:54)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E819F2AB9C49093E5A8CAA6C677DF60FB38B578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719158   (110607) от 28.04.2024
+
+Stefano Paolini - Modern Jazz Drumming, Vol. 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three and Four (4:30)
+02. Three and Four (No Drums) (4:30)
+03. Relaxin at Home (5:44)
+04. Relaxin at Home (No Drums) (5:44)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F7726497D40C38164F234356856F3D57BC79AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719153   (110606) от 28.04.2024
 
 JC Smith - The Cool & the Smooth (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -596,151 +741,6 @@ Sexual Music Collection - Erotic Bath with Jazz (2024) [FLAC 24/44.1|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BC410D5E4CB1DC96CF4455239276600E6A4DD81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720160   (110407) от 02.05.2024
-
-Sensual Lounge Music Universe - Sexiest Ballads: Smooth Instrumental Erotic Jazz Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Fall Walk (4:05)
-02. November Wind (3:17)
-03. Warm Whispers (3:26)
-04. Only Love Wins (3:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C4CDAF1E85E6D4DF507FE5F0AF1D69BE538B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720262   (110406) от 02.05.2024
-
-Ghost on Mars - Out of Time and Space (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Mist (7:21)
-02. Quarantine (6:03)
-03. They (5:45)
-04. Carbon Skin (5:13)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA441A5B222090DAB101478326CFC065084D78B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720249   (110392) от 02.05.2024
-
-Pagan's Mind - Studio Albums (6 releases) (2000-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pagan's Mind — прогрессив-пауэр-метал-группа из Шиена, Норвегия, образованная в 2000 году Нильсом К. Рю, Стианом Кристофферсеном и Торстейном Ааби.2000 - Infinity Divine
-2002 - Celestial Entrance
-2004 - Infinity Divine (Re-recorded, Remastered)
-2005 - Enigmatic Calling(   Читать дальше...   )Жанр: Progressive/Power MetalПродолжительность: 06:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60BA97EEAC7248769C2AFCB66CE30B6588387DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720231   (110390) от 02.05.2024
-
-FM - Old Habits Die Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of The Blue (4:22)
-02. Don't Need Another Heartache (4:36)
-03. No Easy Way Out (3:55)
-04. Lost (5:21)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6C6056BCA2D590F40F850009334BD14CD43C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720081   (110386) от 02.05.2024
-
-Shakatak - Time Of My Life (1988) (Extended Mix) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110386.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Time Of My Life (Extended Mix)
-B1 Slow Dancing
-B2 Mr.Manic And Sister Cool (Coolest Cuts)
-(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBE8080503F300D1318982414D7D84E6B63567B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,54 +1,25 @@
-###  Публикация: 1206545   (782168) от 14.02.2018
+###  Публикация: 1205011   (783802) от 09.02.2018
 
-VA - House Life Vol.19 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daviddance  -  Lose Control (Extended Mix)  7:22
-02.  Andy Pitch  -  Good Time (Original Mix)  6:31
-03.  Sato Fujima  -  Sin Da (Original Mix)  6:30
-04.  Daviddance  -  Groove It (Original Mix)  7:51(   Читать дальше...   )Жанр: HouseПродолжительность: 01:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ACDEBB6AF3EBC388EBCE2B93D0E08A37013303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206277   (782167) от 14.02.2018
-
-VA - Delicihouse (The Sound Of Deep House) (2018) [MP3|320 Kbps] <Deep House>
+VA - Chilhouse Room (Deep Selection) (2018) [MP3|320 Kbps] <Chillhouse, Deep House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782167.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Daniel Mayk  -  Best Jump (Quiteland Piano Mix)  4:18
-02.  Tony Ramblin  -  Ferries (Ron Morrison's Deephouse Mix)  4:10
-03.  Sam Whittaker  -  Empathy Groove (Elisir 2000 Mix)  4:16
-04.  Deep Contamination  -  Deep Solution (Deeplife Mix)  4:08(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:47:23
+01.  Alpha Carpet  -  Megabytes (Red Zone Mix)  2:33
+02.  Jin Tonique  -  Not Easy (Mark Kay's Deep Mix)  2:45
+03.  Diamond Marquees  -  Nightshadows (Frank Tee's Night Beats Mix)  2:47
+04.  Johnny Divine  -  Noises (Dean Franklin's Royce Mix)  3:21(   Читать дальше...   )Жанр: Chillhouse, Deep HouseПродолжительность: 00:57:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58B49E88BA4B306A8D67861AFB411D60E942F8A3
+magnet:?xt=urn:btih:257EC21F6E82A477380419815F846488CCCAB8F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,347 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206296   (782166) от 14.02.2018
+###  Публикация: 1204909   (783801) от 09.02.2018
 
-Art Blakey And The Jazz Messengers - Live at Kimball's (1986) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Thoughts [08:44]
-02. I Love You [05:59]
-03. Jody [09:11]
-04. Old Folks [04:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7137591DFA1CF79CDEE31CE2D2A9487AC35F38B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206513   (782165) от 14.02.2018
-
-Lester Young - Blue Lester: The Immortal Lester Young (1944 - 1949) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost of a Chance [03:30]
-02. Crazy over Jazz [02:48]
-03. Ding Dong [02:29]
-04. Back Home in Indiana [02:56](   Читать дальше...   )Жанр: SwingПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BDBBA1F26AC4B84B6C0896781D67638B048344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206530   (782164) от 14.02.2018
-
-The Buster Williams Trio LIVE - 65 Roses (2009) BluePort [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We See [09:32]
-02. Concierto de Aranjuez [09:38]
-03. Song for Abdullah [07:42]
-04. Related to One [07:42](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2023C510E589238690BF6D5B2F46DB7AE83F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206580   (782163) от 14.02.2018
-
-VA - Music Lovers 2018 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Friendz By Chance - Memories (feat Cristina Clea)
-02.  Robbie Mirello & House Anatomy - Treasure
-03. Miami Shakers - Sunrise
-04. House Legion - Best of You(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83377B49FE08887186AD0BECF5E7B783AA907B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206303   (782162) от 14.02.2018
-
-Jean-Louis Rassinfosse, Chet Baker, Philip Catherine (1983) 1985, Igloo [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystal Bells [06:20]
-02. Strollin [07:27]
-03. Lament [07:40]
-04. Leaving [09:45](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA2966200E809F0E0A87042F3411EF3B5D8560B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206516   (782161) от 14.02.2018
-
-Dinah Washington - Ballads (1962, 1963) 2002, Roulette Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover Man [03:01]
-02. I Wanna Be Around [03:41]
-03. I Didn't Know About You [03:07]
-04. Funny Thing [02:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2EB95DE7413E6991806622BCEE1FFC2335B562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206537   (782160) от 14.02.2018
-
-Ron Carter And The WDR Big Band - My Personal Songbook (2015) In+Out Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eight [07:03]
-02. Receipt, Please [06:00]
-03. Ah, Rio [06:09]
-04. Doom Mood [07:49](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Big BandПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D8B82148656DE819E55009EB7F32C99E1A8A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206144   (782159) от 14.02.2018
-
-Общество памяти игумении Таисии (изд.) | Краткое изложение Литургии Святого Иоанна Златоуста для мирян (2010) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Краткое изложение Литургии Святого Иоанна Златоуста для мирян с присовокуплением молитв, изданных с благословения Святейшего Правительствующего Синода, для чтения их при Божественной Литургии.
-
-Отъ С. Петербургскаго Комитета Духовной Цензуры печатать позволяется. Апреля 3 дня 1863 года.
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C8AB069C0DE2B9C5DAEC27AC70FFF72DCF03DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206465   (782158) от 14.02.2018
-
-VA - Progressive Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer & Roxanne Emery  -  Lullaby (Original Mix)  3:56
-02.  WeareD  -  Through The Universe (Original Mix)  3:04
-03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
-04.  Huem  -  Ryzen (Original Mix)  3:34(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A7382E7CD40CF685449156091D32C1089E48C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206535   (782157) от 14.02.2018
-
-VA - Club Masters Vol.15 (2018) [MP3|320 Kbps] <Future House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  BAZZFLOW  -  Lost In You (Bragaa Remix)  4:21
-02.  Menshee  -  All Night (Original Mix)  4:06
-03.  Jean Beatz  -  Future (Original Mix)  5:54
-04.  Terri B! & Slippy Beats  -  Deep In The Night (Original Mix)  5:56(   Читать дальше...   )Жанр: Future House, ProgressiveПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127C4E26F6B74D4C60A54BFF8414F87E1FC1982C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206245   (782156) от 14.02.2018
-
-Христианская жизнь (изд.) | Акафист преподобному Сергию Радонежскому (2012) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист Преподобному Сергию Радонежскому, Игумену Земли Русской.
-
-Кондак преподобного Сергия. Глас 8
-Христовою любовию уязвився, преподобне,/ и Tому невозвратным желанием последовав,/ всякое наслаждение плотское возненавидел еси/ и, яко солнце, Отечеству твоему возсиял еси;/ тем и Христос даром чудес обогати тя./ Поминай нас, чтущих пресветлую память твою, да зовем (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A1396B5378868BAB5451118465C85B79FAA8A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206501   (782155) от 14.02.2018
-
-Facechain - Accensor (2018) Dream Catalogue [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Ambient>
+James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782155.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Accensor (11:07)
-02. Trauma II (feat. Blank Body) (06:36)
-03. Visage I (12:27)
-04. Visage II (03:43)(   Читать дальше...   )Жанр: Techno, IDM, AmbientПродолжительность: 00:37:58
+01. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 1) (01:08:21)
+02. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 2) (01:07:36)
+03. Cristoph - Slowly Burning (feat Jem Cooke) (07:05)
+04. Dario D'Attis & Sven Tasnadi - I Need (07:21)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:04:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE3730CC5E3FF7496FBD599934C0ED2C3EBB5506
+magnet:?xt=urn:btih:3C359F5010B7AEB2296F0402D0C3B445CC6BF30B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206327   (782154) от 14.02.2018
+###  Публикация: 1205339   (783800) от 09.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Санный спорт. Мужчины. 3-я и 4-я попытка (11.02.2018) WEB-DL [H.264/720p-LQ]
+VA - World In Lounge: Ethnic Nu Lounge Vibes Selection (2018) [MP3|320 Kbps] <Downtempo, Lounge>
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782154.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783800.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 февраля 2018 года, воскресенье. 14:00 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Санный спорт. Мужчины.
-Одноместные сани. 3-я и 4-я попытка(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:28:06
+01.  Caner Soyberk  -  Coffee Shop (Original Mix)  3:49
+02.  Oxala  -  Trance Jungle Percussion (Original Mix)  3:41
+03.  Nicola Semprini  -  Biriani (Original Mix)  2:57
+04.  Percussioney  -  Batuqueiro (Instrumental)  3:51(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 02:34:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA7F92A2B91DA99B92A29B112670379C5006202B
+magnet:?xt=urn:btih:865CF34AC64234721162882ABB2B931B85386CD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206357   (782153) от 14.02.2018
+###  Публикация: 1204873   (783799) от 09.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Санный спорт. Мужчины. 1-я и 2-я попытка (11.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, House, Electro House>
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782153.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 февраля 2018 года, суббота. 13:10 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Санный спорт. Мужчины.
-Одноместные сани. 1-я и 2-я попытка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:48
+01.Dizzee Rascal - Dirtee Disco (4:46)
+02.Example - Kickstarts (Wideboys Stadium Mix) (4:52)
+03.J2K; Jodie Connor; Wiley - Electric Boogaloo (Find a Way) (2:59)
+04.Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 02:33:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05F54F9CA94A6272C3403A88590D923D2F9B5673
+magnet:?xt=urn:btih:95546844651EA3949C219DA8E6263F484C4327C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206472   (782152) от 14.02.2018
+###  Публикация: 1204927   (783798) от 09.02.2018
 
-Отчий дом (изд.) | За всё благодарите. История семьи репрессированного священника (2017) [PDF, DJVU]
+Nurullah CaCan - Chill Out One (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782152.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нет книги интереснее, чем человеческая жизнь. О судьбе целой семьи — малой церкви, которая хранила Православие в огненных испытаниях XX столетия, расскажет Вам эта документальная повесть. Немного осталось живых свидетельств о том страшном времени, и каждое из них — безценно. Ведь они удостоверяют, что вера в Бога и доверие Божественному Промыслу даже в самых страшных (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+01.	Loneliness	4:41
+02.	Relax	6:30
+03.	Green Eyes	4:37
+04.	Night	4:44(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:47:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B112A4A9D8B42F556D1981CCD352F46C6828335E
+magnet:?xt=urn:btih:DFDA4F2A7687FEB8F3EA20B875483B0AD3731329
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,57 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206526   (782151) от 14.02.2018
+###  Публикация: 1205075   (783797) от 09.02.2018
 
-Mike Garson - Mike Garson's Jazz Hat (2008) Reference Recordings [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rumble [05:08]
-02. All Blues [09:49]
-03. It's You or No One [05:22]
-04. A Song For You [10:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28EC1362FCD2C99508A41CDB335B36C3136C2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206425   (782150) от 14.02.2018
-
-VA - Deep Progressive House Set (2018) [MP3|320 Kbps] <Progressive House>
+VA - Soft House Wintertime Edition (2018) [MP3|320 Kbps] <Deep House, Chillhouse>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782150.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Johnny M – Deep Progressive House Set (Dj Continuous Mix) (02:01:35)
-02. Nahuel Carrizo – Blind in the Mist (08:44)
-03. Robert R. Hardy – Sensus (GMJ Rmx) (09:14)
-04. Robert R. Hardy – Chasing PleasureЖанр: Progressive HouseПродолжительность: 04:22:30
+01.  Enrico Donner  -  Quote Of The Day (Original Mix)  5:45
+02.  Beatgridded  -  Deep Emotions And Back (Original Mix)  7:21
+03.  Cane Garden Quartet  -  Close To You (Original Mix)  5:30
+04.  Dusty Deckk  -  Acid Lounge (Original Mix)  5:54(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 01:27:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E959819F38B75DCE489D4E7D79E366A25D16BA51
+magnet:?xt=urn:btih:F10B2F87C26111D978C7814D217E13E5B33B2F91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +172,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206542   (782149) от 14.02.2018
+###  Публикация: 1204895   (783796) от 09.02.2018
 
-VA - Dinner In Love (Romantic Lounge Music Playlist) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cicada - The Things You Say (Dirty South Remix) (3:47)
+02.Kortezman Feat. Rozalla - Everybody's Free (3:15)
+03.Mason - Exeeder (Original Mix) (2:56)
+04.Sebastien Leger - Git Girl (3:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFE167DA20E216B716F5E8055CB653C7F668F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205114   (783795) от 09.02.2018
+
+VA - Music For Dreams Copenhagen Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782149.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gabrielle Chiararo - Father Mother
-02. Jon Bax - Candy Apple
-03. Giacomo Bondi - Soft Bossa
-04. Bronkelstein Hiram - Tiki Lounge(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:50:48
+01.  Oscar Bandersen  -  Running (feat. Bruce) (Original Mix)  3:35
+02.  Aussteiger  -  Zusammenkunft (Original Mix)  5:52
+03.  Willie Graff  -  Second Sun (Original Mix)  7:05
+04.  Troels Hammer  -  The Human Tree (feat. Mariana Sadovska) (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:54:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EF83E8EEE34A8CD1FAA5F5BFB404B28D8D73A95
+magnet:?xt=urn:btih:8F7154C00E607E2FA89ACB387F7C838FF546C809
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,27 +230,143 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206481   (782148) от 14.02.2018
+###  Публикация: 1205353   (783794) от 09.02.2018
 
-П. П. Маслов | Критический анализ буржуазных статистических публикаций (1955) [DJVU]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 1-й тур. Китай — Швейцария (08.02.2018) WEB-DL [EN]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783794.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 03:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 1-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF637A7A04ED33D22FC22525D28535B3BDBDDE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205016   (783793) от 09.02.2018
+
+VA - Dance Party (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tritonal  -  Call Me (SJ Remix Remix)  4:04
+02.  Jaki Nelson & Arcando  -  Don't Say That (Original Mix)  2:58
+03.  Corderoy  -  Touch Your Face (Original Mix)  3:31
+04.  Lash  -  I'm Gonna Be There (Andy Bianchini Remix)  2:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBD4FEEB66CC757E8F2F736C4C7E27137D73A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205359   (783792) от 09.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Южная Корея — Китай (08.02.2018) WEB-DL [EN]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783792.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB67F9999003C27E30383B72B9FABE3D58ECFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205265   (783791) от 09.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Финляндия — Швейцария (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783791.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 14:05 МСК
+Обзорная трансляция
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0569D61E9E135EAA517CC273B265F4AB6790FA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204992   (783790) от 09.02.2018
+
+Г.Я. Нейман | Внутренняя торговля СССР (1935) [PDF]
 
 >>Научная и техническая литература
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782148.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783790.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В настоящей работе внимание сосредоточено главным образом на сводных статистических величинах, методах их получения, приемах их анализа применительно к уже готовым, опубликованным и систематизированным материалам буржуазной статистики. С такими именно данными приходится иметь дело экономисту, изучающему капиталистическую действительность.
+Работа тов. Неймана излагает историю торговли в СССР. Вначале работы дается теоретический очерк, характеризующий природу торговли в СССР, после чего рассматривается ее развитие на различных этапах. Большое внимание уделено характеристике советской торговли на современном этапе и задачам ее развертывания во втором пятилетии.
 
-Вместе с тем здесь показаны (   Читать дальше...   )Жанр: История, политология, экономика, статистикаФормат: DJVU
+Автор основательно знакомит читателя с (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:153E7286C8FCBC21593C9CFFD8917AC4C4A0E7C4
+magnet:?xt=urn:btih:123B35D0AF20545977A4D74C7A44BE0396571537
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -603,28 +374,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206523   (782147) от 14.02.2018
+###  Публикация: 1205273   (783789) от 09.02.2018
 
-VA - Chillout Empire Costa Del Sol Selection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. США — Канада (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783789.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB644D297975526DD3B3BE6209580757322C8A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205228   (783788) от 09.02.2018
+
+VA - Valentines Day Love Lounge (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782147.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Zero Feedback  -  Rien Ne Va Plus (Don Gorda Project Remix)  7:00
-02.  Enrico Donner  -  Time Stands Still (feat. Theresa Thomason)  4:43
-03.  Don Gorda Project  -  Rise To The Surface (Original Mix)  5:36
-04.  Zero Feedback  -  Deep In The Rain Forest (Original Mix)  6:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:47
+01. Thomas Sopper & Herr Schmidt – Wolken Im Wind 6:44
+02. Aida Moniz – Les Etoiles Au Dessus De La Tour Eiffel 3:47
+03. Lorenzo Casanova – Vila Mimosa (Make Love Not War Boogie Version) 4:47
+04. Ku You – Sandhand 5:04(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9BA3CF2B220C0EEB95F3BEE64B37D9C716C8A09
+magnet:?xt=urn:btih:0746571AA677A8F2D9064241937EE3E8686314F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,28 +432,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206503   (782146) от 14.02.2018
+###  Публикация: 1205242   (783787) от 09.02.2018
 
-VA - 2000 Hands (2000) Hands Productions [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, Industrial, Experimental, Ambient>
+VA - Rooftop Beats, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Fax – Landside (Original Mix) (6:07)
+02. Arty – Twilight Tonight (Steve Brian Remix) (2:57)
+03. Johan Vilborg – Bside Me (Original Mix) (3:21)
+04. Clameres – Mocsa (Original Mix) (3:38)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE641DDDAD3F0EE9776F968EFB9D60ACD0A60085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205284   (783786) от 09.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Прыжки с трамплина. Мужчины. Трамплин HS-109. Квалификация (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783786.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 15:30 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Прыжки с трамплина.
+Мужчины. Трамплин HS-109. Квалификация(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4703B5370D9415B4992B3027D3A6BB628173FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205288   (783785) от 09.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Прыжки с трамплина. Мужчины. Трамплин HS-109. Пробный прыжок + Квалификация (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783785.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 14:15 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Прыжки с трамплина.
+Мужчины. Трамплин HS-109. Пробный прыжок + Квалификация(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:21:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567B6681DD7D18E0FA89888A8EBA68A263679726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205365   (783784) от 09.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Финляндия — Швейцария (08.02.2018) WEB-DL [EN]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783784.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAFEAB4A4AD4C9C4255CA6CEDA0C2999F039367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205209   (783783) от 09.02.2018
+
+VA - Drum Jungle: Indigo Visions (2018) [MP3|320 Kbps] <Drum and Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783783.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3D Stas - Aftermath (Original Mix)
+002. GLXY, QZB - Yes Jah
+003. Edifex - Staring into Space
+004. Move Mode - Over You (Original Mix)(   Читать дальше...   )Жанр: Drum and Bass, JungleПродолжительность: 08:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4B211208E2188FBCC7BA0C662750DD24F3DED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205413   (783782) от 09.02.2018
+
+VA - The Future Of Dreaming (2016) Crunch Pod [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Experimental, Dark Ambient, Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782146.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. NKVD - ∑ (07:02)
- 02. NKVD - Ø (04:43)
- 03. NKVD - π (07:06)
- 04. Typhoid - Man-Hour (Against) (04:10)(   Читать дальше...   )Тип издания: CDЖанр: Rhythmic Noise, Industrial, Experimental, Ambient •Продолжительность: 01:14:18
+01. Databomb - I Fell In Love With Her 2nd Face v6 (06:02)
+ 02. Zeller - Orbital (04:43)
+ 03. Her Blood In My Veins - They Said We Once Were, But We Are No Longer (04:29)
+ 04. Marred - By The Moonlight (06:04)(   Читать дальше...   )Жанр: IDM, Industrial, Experimental, Dark Ambient, AmbientПродолжительность: 02:50:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABE78F1BBA47BD43BA4E37294A498A9D76CFBA5B
+magnet:?xt=urn:btih:2DE6AACEFC62DF0BF447384C597A92FB9B3666D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,25 +606,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206239   (782145) от 14.02.2018
+###  Публикация: 1204921   (783781) от 09.02.2018
 
-Георгий Нарбут (илл.) | Деревянный орёл (1910) [PDF]
+VA - Defected Presents Classics In The House (2009) [FLAC|Lossless|tracks] <House, Disco, Hip-House>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782145.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сказка для младшего и среднего школьного возраста.Жанр: Детская проза, СказкиФормат: PDF
+01.Blaze; Ultra Nate  - Free (Mood II Swing Extended Vocal Mix) (4:43)
+02.Barbara Tucker - Most Precious Love (DF Future 3000 Mix) (5:50)
+03.Palmer Brown; Patrice Rushen - Haven't You Heard (4:04)
+04.Jon Cutler - It's Yours (Original Distant Music Mix) (3:25)(   Читать дальше...   )Жанр: House, Disco, Hip-HouseПродолжительность: 03:45:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6EF06B3F5EFA1ACEE28EC6EACF636679C52A1A3
+magnet:?xt=urn:btih:DE1167E73609D457E9F5AF14DD965484636050A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,28 +635,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206522   (782144) от 14.02.2018
+###  Публикация: 1205262   (783780) от 09.02.2018
 
-Robert Moore - Outta My Soul (2012) 2014, Reference Recordings [FLAC|Lossless|image + .cue] <Vocal Jazz>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Россия (ОАР) — Норвегия (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782144.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. This Time [03:42]
-02. Waltz for Debby [04:59]
-03. If You're Still in Love with Me [02:41]
-04. The April Fools [03:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:29
+08 февраля 2018 года, четверг. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12332AF7C8272784A0AF0218FCB20B47F3536124
+magnet:?xt=urn:btih:268D6095C4D8F76744BF5FDFF37DFFFED22AAEC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -716,28 +664,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206598   (782143) от 14.02.2018
+###  Публикация: 1205354   (783779) от 09.02.2018
 
-Hudson-Ford - Nickelodeon (1973) Reissue, 2015, Big Pink [MP3|320 Kbps] <Soft Rock, Classic Rock>
+PDF Expert 2.3.0 [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782143.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crying Blues
-02. Angels
-03. I Wanted You
-04. Hello, I Thought You Were Dead(   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:36:31
+PDF Expert - лучший редактор файлов PDF
+PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
+
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7EC4E4B682329DC9C374597229570B9EC415638
+magnet:?xt=urn:btih:6D6AA6217F9CE63C8D9AED05B8EC626A50455845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205058   (783778) от 09.02.2018
+
+HyperSnap 8.16.04 RePack by вовава [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783778.jpg" />
+</div>
+
+
+###  Подробнее
+
+HyperSnap — инструмент для захвата изображения, позволяющий скопировать не только окна стандартных программ, но и игры, скринсейверы и видеофильмы. С помощью HyperSnap вы можете сделать скриншот всего экрана монитора, его части, окна определённой программы (вместе с курсором или без), игр и скринсейверов (работающих в режимах DirectX и 3Dfx Glide), видео- и DVD-фильмов, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0312960E1234AA58512B084696240A97FDD2B18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205117   (783777) от 09.02.2018
+
+XMedia Recode 3.4.2.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783777.jpg" />
+</div>
+
+
+###  Подробнее
+
+XMedia Recode - отличная утилита, цель которой - помочь Вам преобразовать видео почти любого формата в видео, совместимое с мобильными телефонами, плеерами, портативными носителями, игровыми приставками. Дружественный интерфейс позволит Вам сориентироваться в функционале и возможностях программы. XMedia Recode способна производить изменение размеров кадра видео, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A86059BA11F7F4026A45EA94363507B7F7D8878
 ```
 
 https://mybot314.ru/tekegram_catalog/

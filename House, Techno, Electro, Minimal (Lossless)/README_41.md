@@ -1,3 +1,90 @@
+###  Публикация: 1243855   (488070) от 29.08.2018
+
+VA - Deep & Melodic Techno #01 - Best of 5 Years (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viktor Gerk – Dilated Pupils (10:32)
+02. Sasha P – My Lovely Noise Horse (05:52)
+03. Konstantin Samoylyuk – Azure (08:44)
+04. S-Jay Soprano – Uncover (05:21)(   Читать дальше...   )Жанр: Deep Techno, Tech House, MinimalПродолжительность: 05:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16223269E1573DAB441D17A4763BB8715720E97D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404995   (487246) от 28.08.2020
+
+Lane 8 - Cross Pollination (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And We Knew It Was Our Time (feat. Massane) (09:23)
+02. Shatter (feat. OTR) (02:54)
+03. Buggy (feat. yotto) (05:00)
+04. Run (feat. Kasablanca) (03:50)(   Читать дальше...   )Жанр: Deep House, ProgressiveПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B06D2CC80D24E0602957C6955A08DE72949729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319181   (486822) от 10.08.2019
+
+Jude Frankum - Yther (2019) BLCR Laboratories [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Drum n Bass, Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifting Me Up (05:24)
+ 02. You Have My Heart (03:49)
+ 03. Movement (05:28)
+ 04. Hop Break (06:39)Жанр: Leftfield, Drum n Bass, Techno, AmbientПродолжительность: 00:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22A8C995A63BE21DD105F5D1443130EF1F7376C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566155   (486403) от 27.07.2022
 
 VA - Uncles Music "Bestseller 003" (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House, Indie Dance>
@@ -656,90 +743,6 @@ Robin Schulz - SUGAR (2015) [FLAC|Lossless|WEB-DL]<Dance, House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13033D7963F61F78964A042F683979D2EC2A5611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058852   (466437) от 02.10.2016
-
-VA - Oh my God,... It's Electro House volume 2 (mixed by Sebastian Gnewkow) (2008) [FLAC|Lossless|image + .cue] <Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brush & Wagner - Call The Preacher (Marino Da Ragnio Calls Back Remix) (6:08)
-02. Dario Nunez & David Vio Feat. Stella - Feel The Fire (Shik Stylko Remix) (4:41)
-03. Sheldon Romero Feat. Betty Brooklyn - Dirty Things (Gnewkow & Norm Remix) (6:30)
-04. DJ Chus & Peter Gelderblom - Join Ur Handz (Roman Salzger Remix) (5:00)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0A960F985F6BCE8886746208C04703EA849A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568086   (466015) от 06.08.2022
-
-VA - Summer Sampler (2022) [FLAC|Lossless|WEB-DL|tracks] <Pure Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Pure Progressive HouseПродолжительность: 01:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E501580385FCF328F4C427B19E74623EA6722423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246203   (465676) от 09.09.2018
-
-VA - Body Language, Vol. 20 (Mixed & Compiled by Emanuel Satie) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Egg - Cold (5:08)
-02. Pezzner - Heartline (Club Version) (4:03)
-03. STL - Silent State (11:45)
-04. Kiani, His Legion - Eindelozer (18:03)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 03:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AF1EFFEAA93FE3565A6F6413D6E3048E61D433
 ```
 
 https://mybot314.ru/tekegram_catalog/

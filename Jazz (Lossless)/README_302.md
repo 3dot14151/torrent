@@ -1,3 +1,90 @@
+###  Публикация: 1687774   (125457) от 27.12.2023
+
+Frank Sinatra & Bing Crosby - Christmas Sing With Frank And Bing (1945 -1971) 1996, LaserLight [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [1:20]
+02. Mistletoe & Holly [1:50]
+03. Round & Round the Christmas Tree [2:12]
+04. Medley [6:57](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E4FDF7CA3151ECF0FA68C055E60472B7C08D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687385   (125438) от 27.12.2023
+
+Ramsey Lewis - Classic Encounter (1988) CBS [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Smooth Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With a Gentle Touch [5:29]
+02. A Time for Love [6:20]
+03. J'aime la nuit (I Love the Night) [6:12]
+04. I Let a Song Go Out of My Heart/It Could Happen to You [5:54](   Читать дальше...   )Жанр: Crossover Jazz, Smooth Jazz, Piano JazzПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A698E141FB6E37763374B61DB1192DE0CDF68110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687387   (125436) от 27.12.2023
+
+Boston Brass & The Brass All-Stars Big Band - The Stan Kenton Christmas Carols (2006) Summit Records [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good King Wenceslas [1:49]
+02. God Rest Ye Merry Gentlemen [1:39]
+03. We Three Kings of Orient Are [2:13]
+04. Once in Royal David's City [2:14](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA0D6128701B181153C184D51675F660AABDF29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687380   (125428) от 27.12.2023
 
 VA - Smooth Easy Going Relax Lounge Luxury Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -658,93 +745,6 @@ Tom Reaves Jr - Soulful Strut (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9FA44AAAA71FFB04554A750B3BDF4A4F53F94FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689992   (124218) от 05.01.2024
-
-Romantic Moods Academy, Night's Music Zone - Bed Erotica: Sexy Background Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Check It Out (4:29)
-02. Kinda Sexy (4:19)
-03. Sexy Lounge Suit (3:40)
-04. Seductive Sexcapade (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E364C747B986661ED0D45C2EEA493B2CF90BD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689980   (124173) от 05.01.2024
-
-Wild Bill Davison - The Commodore Master Takes (1943 - 1946) 1997, Commodore [APE|Lossless|image + .cue] <Dixieland, New Orleans Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's A-Plenty [4:19]
-02. Panama [4:26]
-03. Riverboat Shuffle [2:54]
-04. Muskrat Ramble [3:15](   Читать дальше...   )Жанр: Dixieland, New Orleans Jazz, SwingПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230F31EEA653B6C7E057635B89412BB6317D51C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690255   (124050) от 06.01.2024
-
-Isoo Fukui Quartet Featuring Kazuhiro Matsuishi - Sunrise / Sunset (1976) 2013, Think! Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7th Avenue Sunrise [8:51]
-02. Happy Walk [6:42]
-03. Lady T [5:55]
-04. Don't Explain [7:15](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B379B7C48E5B266BF2E4B22DA0352ACDF861FD79
 ```
 
 https://mybot314.ru/tekegram_catalog/

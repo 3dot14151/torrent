@@ -1,3 +1,32 @@
+###  Публикация: 1574757   (383156) от 06.09.2022
+
+VA - Summer Melodies Vol. 8 (2022) [MP3|320 Kbps] <Electronic, House, Progressive House, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Pascascio - A New Beginning
+02. AXIS-Y & Atmospherika - Laguna Salada
+03. Dmitry Kostyuchenko - Mintaka
+04. Hedowiec - Sea Breeze(   Читать дальше...   )Жанр: Electronic, House, Progressive House, TranceПродолжительность: 01:19:19 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5FB9C8CA608E2A80193B6753EE6AA9E948C9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068407   (383082) от 31.10.2016
 
 VA - Extra Trance: Bonus [10] (2016) [MP3|320 Kbps] <Trance>
@@ -775,35 +804,6 @@ VA - Epic Landscapes: Relax Line Music (2019) [MP3|320 Kbps] <Chillout, Lounge, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB3574D5AD328FE18A92A06A34F54CD60C998072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068390   (380865) от 01.11.2016
-
-VA - Trance Traveling 82 (Mixed By VNP) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Vocal, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana Criado - Vulnerable (Denis Kenzo Remix)  6:15
-02. Reskide - Drawbridge (Extended Mix)  3:45
-03. Moonlight Tunes - You Will Find The Way (Original Mix)  4:45
-04. Mardven - Aim (Extended Mix)  3:08(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Vocal, Energy, ProgressiveПродолжительность: 04:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18954690368FF110B788E44119789DB13C74C19E
 ```
 
 https://mybot314.ru/tekegram_catalog/

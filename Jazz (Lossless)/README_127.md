@@ -1,3 +1,102 @@
+###  Публикация: 1144840   (625936) от 23.06.2017
+
+Jimmy Smith - Peter & The Wolf (1966) Remaster, 1999, Verve Records [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625936.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Bird/The Duck/The Cat/The Grandfather/The Wolf/The Hunter/Peter (4:09)
+     1a. The Bird
+     1b. The Duck
+     1c. The Cat(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:647A91BCD3D8D9990C5448E528EDBEA9DE2BD36D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522080   (625233) от 12.07.2012
+
+Billy Taylor - It's A Matter Of Pride (1994) [FLAC|Lossless]<Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At La Caroussel (5:56)
+02. Picture This (4:51)
+03. It's A Matter Of Pride (5:13)
+04. His Name Was Martin (6:07)
+05. Titoro (5:04)
+06. Back Home (8:45)
+07. Lookin' Up (6:06)
+08. Paraphrase (7:30)
+09. I'm A Lover (4:48)
+10. If You Really Are Concerned (5:54)(   Читать дальше...   )Жанр: BopПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522071   (625224) от 12.07.2012
+
+Billy Pierce - One For Chuck (1991) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chuck's Groove (B. Pierce) (6:31)
+02. Strictly Taboo (J. King) (6:19)
+03. Second Thoughts (M. Miller) (7:35)
+04. Woodworks (W. Shaw) (6:02)
+05. All the Way (J. Van Heusen - S. Cahn) (6:58)
+06. There's a Small Hotel (R. Rodgers - L. Hart) (6:54)
+07. Wayne's World (B. Mobley) (8:03)
+08. From This Moment On (C. Porter) (6:34)
+09. Thelma's Heart (B. Pierce) (6:23)
+10. Tryst (J. King) (4:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522131   (625044) от 12.07.2012
 
 Blake Aaron - Desire (2007) [FLAC|Lossless]<Smooth, Pop-Jazz>
@@ -670,93 +769,6 @@ Anthony Wilson - Goat Hill Junket (1998) Mama Foundation [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6A440897DA6B1B6767E95B1FE39F02FFB4A538D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910438   (622022) от 20.06.2015
-
-Mario Biondi - Beyond (2015) /[FLAC|tracks|WEB-DL]<Funk, Soul, Disco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Up Your Eyes
-02. All Of My Life
-03. Love Is A Temple
-04. All I Want Is You(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1929CAACE58DF20C492DB0097D24E92A8EF142D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036335   (621172) от 20.07.2016
-
-Stephane Grappelli - Jazz Collection (1973, 1974, 1989) 1989, Object Enterprises[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.More than you Know [04:15]
- 02.Et Maintenant [03:46]
- 03.I Found a New Baby [06:01]
- 04.It's Only Paper Moon [03:44](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDFF7F518B3A04A291E79FC15968179AD41A215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229928   (620971) от 09.06.2018
-
-Blue Mitchel - Blue Mitchel (1971) 2014, Boplicity Records [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Village [6:15]
-02. Blues For Thelma [7:05]
-03. Queen Bey [4:50]
-04. Are You Real [7:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281F9F46C7370FAA927E1A8A2D74557B328EFF54
 ```
 
 https://mybot314.ru/tekegram_catalog/

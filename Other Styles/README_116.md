@@ -1,3 +1,154 @@
+###  Публикация: 1067156   (408025) от 28.10.2016
+
+Johan Soderqvist & Patrik Andren - Battlefield 1 (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battlefield One (03:21)
+02. The War to End All Wars (03:23)
+03. Mud and Blood (03:05)
+04. Hunted (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D51C0E074BE2C870DF03CAE905405E40FD69BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067358   (408021) от 28.10.2016
+
+Stephen Barton - Titanfall 2 (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408021.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. BT-7274 (05:40)
+02. Rifleman Cooper (02:42)
+03. Apex Predators (05:49)
+04. Link to Pilot (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52E3FAB1F2BD29327AFF44C740E6A3E67A23340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252840   (407908) от 06.10.2018
+
+Guido Negraszus - Secret Paradise (Cafe Chillout & Dream Lounge) [FLAC|Lossless|WEB-DL|tracks] <New Age, Chillout, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunset Lounge
+02. Secret Paradise
+03. Let's Dance
+04. Stardust(   Читать дальше...   )Жанр: New Age, Chillout, LoungeПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7745146E14387B6B85F1824A99B37B890824D92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067157   (407865) от 28.10.2016
+
+Johan Soderqvist & Patrik Andren - Battlefield 1 (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battlefield One (03:21)
+02. The War to End All Wars (03:23)
+03. Mud and Blood (03:05)
+04. Hunted (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59145CF947D3AF1A9A6FC56D5F02C637551BF707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558844   (407769) от 13.10.2012
+
+Reservoir Dogs / Бешеные псы - OST (1992) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407769.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. And Now Little Green Bag
+2. Little Green Bag - The George Baker Selection
+3. Rock Flock Of Five
+4. Hooked On A Feeling - Blue Swede
+5. Bohemiath
+6. I Gotcha - Joe Tex
+7. Magic Carpet Ride - Bedlam
+8. Madonna Speech
+9. Fool for Love - Sandy Rogers
+10. Super Sounds(   Читать дальше...   )Жанр: OSTПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845783EDBD4A0F79CD595893064A438E17790658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573182   (407453) от 03.09.2022
 
 Enigma - The Screen Behind The Mirror (2000) [OGG Vorbis|485 Kbps] <New Age, Ambient>
@@ -629,157 +780,6 @@ Brian Crain - Sienna (2003) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CC7A0C2AB82F8EE713A236C386EB1BF916FF0F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170590   (399481) от 01.10.2017
-
-Johannes Linstead - Azul (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Azul
-02 - Cha Cha Chu
-03 - Be My Girl
-04 - Lazy Sunday(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F52CFC4CDD10CBFE06F669D30FFDD1EF8F479F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170586   (399290) от 01.10.2017
-
-VA - Pulp Fiction (Collector's Edition) (2002) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tim Roth - Pumpkin and Hunny Bunny-Misirlou
-02 - Samuel L. Jackson - Royale With Cheese
-03 - Kool & the Gang - Jungle Boogie
-04 - Al Green - Let's Stay Together(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9959A39861F54476716C15316D79A9E967A289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566310   (399015) от 27.10.2012
-
-Oystein Sevag - 2 albums (2010, 2012) [MP3|320 кб/с]<New age, Jazz>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399015.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:48) 01. Landing
-(4:11) 02. Urban Nocturne
-(3:51) 03. Gentle
-(3:27) 04. Song from another Place
-(6:00) 05. A Butterfly's Dream
-(2:37) 06. Time Shadows
-(5:13) 07. A Sparkling Point of View
-(3:06) 08. Lights After Dark
-(1:32) 09. Call
-(7:31) 10. Contact(   Читать дальше...   )Жанр: New age, JazzПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66CED23C0DA85C9D9304A21602F4ABE183548EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170584   (398628) от 02.10.2017
-
-VA - Men in Black (1997) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Will Smith - Men In Black
-02 - Snoop Doggy Dogg Featuring JD - We Just Wanna Party With You
-03 - Ginuwine - I'm Feelin' You
-04 - Alicia Keys - Dah Dee Dah (Sexy Things)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFEA95293F2F0FB08D14ADA17308F8FA490BF65A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170582   (397697) от 03.10.2017
-
-Danny Elfman - Men In Black (1997) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - M.I.B. Main Theme
-02 - D's Memories - Chase
-03 - Edgar's Truck - A New Man
-04 - Imports - Quiet Moment(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78778920ADD9A550C0BE8FE03DB342F082FE4B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

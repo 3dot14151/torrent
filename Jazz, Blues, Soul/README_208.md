@@ -1,3 +1,174 @@
+###  Публикация: 908446   (634181) от 14.06.2015
+
+Elina Duni - Muza E Zeze (2015) [FLAC|Lossless|WEB-DL]<Contemporary Jazz, Vocal Jazz, Balkan Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muza E Zeze (2:57)
+02. Ne Tirane (3:09)
+03. Mos Ki Frike (3:48)
+04. Miq (3:17)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal Jazz, Balkan JazzПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89C96C7CF61A34A0D15C75CFA2B2A595CCD7652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908109   (634172) от 14.06.2015
+
+John Lee Hooker - Alternative Boogie: Early Studio Recordings (1948-1952) 3CD /1995/[MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Come Back Baby (2:56)
+02.  Forgive Me (3:13)
+03.  Streets Is Filled With Women (3:13)
+04.  Moon Is Rising (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 02:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E376F4D1BC058EFB1B575333DD5504A2AB7A3884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908370   (634166) от 14.06.2015
+
+Crow Black Chicken - 3 альбома (2012-2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Blues RockПродолжительность: 03:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912CF8E873F03D298F92A17B782706CEFBBC8B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908009   (634160) от 14.06.2015
+
+Anna Sise - Detour Ahead (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detour Ahead (6:30)
+02. I Think It's Gonna Rain Today (3:34)
+03. A Certain Sadness (5:24)
+04. St. James Infirmary (4:19)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75A89B359CA604A6C7771A8DFB394AC6684C9F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908042   (634081) от 14.06.2015
+
+Charlie Musselwhite - I Ain't Lying (2015) [FLAC|image+.cue]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Blues Tonight [4:06]
+02. Done Somebody Wrong [4:19]
+03. Long Lean Lanky Mama [4:54]
+04. Always Be My Friend [3:32](   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:415C239798DA94ABCD9AD0714E5DD1B701F50067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543003   (633826) от 09.04.2022
+
+Dinah Shore - Dinah's Showtime '44-'47 (1994) Hep Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're a Builder Upper [1:50]
+02. Can't You Read Between the Lines [3:05]
+03. Sometimes I'm Happy [2:44]
+04. Linger in My Arms a Little Longer, Baby [2:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B714A7D9A46A1BA3192F93FE6091943726602577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542776   (633821) от 09.04.2022
 
 Kenny Drew Trio - Complete Recordings (1953 - 1954) Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -571,188 +742,6 @@ Tony Bennett - The Beat Of My Heart (1957) 2017, Sony Music [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE3179161FF8BEC0132CBAC18BFCC69C100B73F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228941   (631658) от 03.06.2018
-
-Marcus Miller - Laid Black (2018) [FLAC|24/48|Lossless|WEB-DL|tracks] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trip Trap
-02. Que Sera Sera
-03. 7-T's
-04. Sublimity "Bunny's Dream"(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7EC206AE526CF76DDE7F75D47D78B7A1FDCF76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144038   (631644) от 20.06.2017
-
-Rufus Harley - The Pied Piper of Jazz (1966, 1967) 2000, Label M [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feeling Good [07:34]
-02. Kerry Dancers [06:07]
-03. Scotch & Soul [05:07]
-04. Pipin' the Blues [05:54](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C195C28CC6AB0CAD2717038225DB9C61FE7BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543123   (631521) от 10.04.2022
-
-Matt Andersen - House to House (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Other Side of Goodbye (2:34)
-02. Lookin' Back at You (3:06)
-03. Let Me Hold You (3:55)
-04. Time for the Wicked to Rest (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F48437D6C2F8E2AA1A2678E496293E7AD303F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543131   (631370) от 10.04.2022
-
-Phil Buckle - Custom Made (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazzy Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Against Your Name (4:00)
-02. Custom Made (4:16)
-03. Somebody to Rely On (4:04)
-04. Slippers (3:38)(   Читать дальше...   )Жанр: Jazzy BluesПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A428C1B6C8DB9C1A761E73B5DACBC06F297DAF75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520401   (631314) от 09.07.2012
-
-VA - Smithsonian Collection of Classic Jazz (1997) [MP3|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonny Rollins Quartet - Blue 7 [11:15]
-02. Wes Montgomery Quartet - West Coast BluesЖанр: JazzФормат: BoxSet 5 x CD, Remastered, CompilationПродолжительность: 01:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AFB785DF78651760196E7ABDEE68486883117CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520807   (631105) от 09.07.2012
-
-Al Green - The Legendary Hi Albums (2006) [FLAC|Lossless]<Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_631105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Al Green Explores Your Mind
-01. Sha-La-La (Make Me Happy) [03:01]
-02. Take Me To The River [03:45]
-03. God Blessed Our Love [03:56]
-04. The City [03:24]
-05. One Nite Stand [02:25]
-06. I'm Hooked On You [03:21]
-07. Stay With Me Forever [03:14]
-08. Hangin' On [04:20]
-09. School Days [03:15](   Читать дальше...   )Жанр: Funk / Soul
-
-Издатель: Edsel Records
-Страна изготовитель: UK
-Формат: 2 * 2 CDПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,37 @@
+###  Публикация: 709041   (419042) от 13.10.2013
+
+Летописи Междуречья - Странник (2012) [MP3|256-320 кб/с]<Folk-Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419042.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Странник (03:40)
+2. Художник и Богач (02:55)
+3. Летописи Междуречья (04:25)
+4. Шаман (02:51)
+5. Леший Овраг (03:49)
+6. Идущим (03:17)
+7. Воспоминания (04:40)
+8. На Лесном Озере (03:00)
+9. Летописи Междуречья - Война (03:40)Жанр: Folk-RockПродолжительность: 00:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3A7A2DBD3A63D77173AAB6E4E00CFAB28234CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251921   (410963) от 04.10.2018
 
 VA - Country Covers (2018) [MP3|320 Kbps] <Country, Pop, Folk>
@@ -721,35 +755,6 @@ The Irish Rovers (The Rovers) - 18 релизов (1995 – 2016) [MP3|192 kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F8988E6FE1C924724948CF816B9F0BDB0A59B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184838   (297157) от 19.11.2017
-
-Kris Kristofferson - The Austin Sessions (Expanded Edition) (2017) [MP3|320 Kbps] <Country, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me And Bobby McGee (Remastered) (4:29)
- 02. Sunday Morning Coming Down (Remastered) (5:18)
- 03. For The Good Times (Remastered) (3:57)
-04. The Silver Tongued Devil And I (Remastered) (3:34)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8ED73B9EA8A6781BB8D15B4618B390996489E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

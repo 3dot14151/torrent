@@ -1,3 +1,32 @@
+###  Публикация: 1385474   (797779) от 24.05.2020
+
+Jeff Beck - 100% Jeff Beck (2020) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Wing (Live)
+02. The Revolution Will Be Televised
+03. Angel (Footsteps)
+04. Never Alone(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 05:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78443305B1A1453D54BCE645D99D035B9064DB5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011376   (796603) от 27.04.2016
 
 Scorpions - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Hard Rock>
@@ -716,35 +745,6 @@ VA - За Полшага До Зимы (2018) [MP3|320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6297466B124669DFCC54FC9FED23310192DD04ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203132   (788564) от 01.02.2018
-
-VA - Return To The 80's and 90's (2018) [MP3|320 Kbps] <Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788564.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Manowar  -  Kings Of Metal  3:45
-002.  Accept  -  Breaker  3:34
-003.  Dio  -  Holy Diver  5:50
-004.  Annihilator  -  The Fun Palace  5:51(   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 08:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0CCED365971C0B7A778C8CF2DEFFF285F3EFBA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

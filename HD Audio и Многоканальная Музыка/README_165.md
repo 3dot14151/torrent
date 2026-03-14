@@ -1,3 +1,148 @@
+###  Публикация: 1760766   (103118) от 17.11.2024
+
+Underworld - Strawberry Hotel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive, Techno, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Black Poppies
+02 denver luna
+03 Techno Shinkansen
+04 and the colour red(   Читать дальше...   )Жанр: Tech House, Deep House, Progressive, Techno, ElectronicПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF5A5B646148EBE584730029470E08C056F0B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761003   (103108) от 17.11.2024
+
+Eden On Fire - Unresolved (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Brigade (05:49)
+ 02 - Love Bomb (Remastered) (04:10)
+ 03 - Parasite (05:58)
+ 04 - Set Me Free (04:19)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FB16AEFF138357064418AAB14C9A72477D45A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761213   (103081) от 18.11.2024
+
+Desert Song - Desert Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (1:08)
+02. Desert Flames (4:23)
+03. One for all, all for one (3:25)
+04. Rain in Paradise (4:12)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF27B746683BF78AE5852FB376C75F07DCA559F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761214   (103080) от 18.11.2024
+
+Distant Past - Solaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of Life (Intro) (0:58)
+02. No Way Out (3:29)
+03. Warriors Of The Wasteland (4:14)
+04. Sacrifice (4:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA17133FFDCEC116AF63809FE11DFCFF63524C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761219   (103079) от 18.11.2024
+
+Lonerider - Down in the Dust (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shiver (4:22)
+02. Three Steps Back (4:34)
+03. Getting Closer (4:35)
+04. Help Me Brother (3:59)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05440208EEC208FC2C15E684181B8ED45E70484A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761246   (103078) от 18.11.2024
 
 Wabi King - Turn over the Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -600,150 +745,6 @@ Silent Winter - Utopia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3C8C3F56B28E5ED17EC40596D9E3D82C7CCB799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761833   (103040) от 22.11.2024
-
-Raptore - Renaissance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103040.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Ecclesia (1:07)
-• 02. Satana (4:39)
-• 03. Abaddon (3:54)
-• 04. Darklight (3:54)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E958F5A24DD56C5875A09DAD155E4A4D6A9C508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761864   (103038) от 22.11.2024
-
-Sunjay - I'm Just Like You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Link of Chain (3:56)
-02. No Love Today (4:56)
-03. Love You Like a Man (3:08)
-04. Mail Order Mystics (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E515D01FB854F5B9C4B2EF00A365BD140F20AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761828   (103037) от 22.11.2024
-
-Joan Armatrading - How Did This Happen And What Does It Now Mean (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop, Blues, Singer-Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103037.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. 25 Kisses (3:05)
-• 02. Someone Else (3:15)
-• 03. Irresistible (3:18)
-• 04. I'm Not Moving (3:37)(   Читать дальше...   )Жанр: Rock, Pop, Blues, Singer-SongwriterПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C65F129D7F36BD526E115F6CEF5A9587FFAEBD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761834   (103035) от 22.11.2024
-
-Kingcrown - Nova Atlantis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Magic Stone (3:29)
-02. Nova Atlantis (5:21)
-03. Real Or Fantasy (4:17)
-04. Guardian Angels (4:06)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66CF2A616A5C460DDA90C6F65374C2F55B9A1B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761869   (103034) от 22.11.2024
-
-Power Trip - Studio Albums (3 releases) (2013-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Power Trip — американская трэш-метал-группа из Далласа, основанная в 2008 году.2013 - Manifest Decimation
-2017 - Nightmare Logic
-2018 - Opening Fire - 2008-2014Жанр: Thrash Metal/CrossoverПродолжительность: 01:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3FD0D0A40BF95866EAA684491E2190A4677C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

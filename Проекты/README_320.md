@@ -1,3 +1,30 @@
+###  Публикация: 966624   (217457) от 18.12.2015
+
+Проекты - VideoHive - Cinematic Dark Sky Logo Opener - 5639428 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B9E58E054623072EF1C71EFD819B831C649B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269841   (216977) от 16.12.2018
 
 Проекты - VideoHive - A way to the Dream - 3317893 [AEP]
@@ -657,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85C5B76CEB6B044D44D351392975E02851FD8868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566537   (211342) от 02.08.2022
-
-Проекты - VideoHive - Millennium Photo Slideshow - 8516515 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211342.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Millennium Photo Slideshow» - стильный элегантный проект для создания креативного слайд шоу.
-Многие оценят по достоинству.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38326E4E4E408F82486714B724702BCA4819080B
 ```
 
 https://mybot314.ru/tekegram_catalog/

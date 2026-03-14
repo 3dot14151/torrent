@@ -1,3 +1,178 @@
+###  Публикация: 1084982   (217172) от 20.12.2016
+
+Art Farmer-Benny Golson Jazztet - Here and Now (1962) 1998 [WavPack|Lossless|image + .cue] <Hard bop, Post bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217172.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tonk (6:49)
+2. Rue Prevail (4:26)
+3. Richie's Dilemma (5:11)
+4. Whisper Not (5:21)(   Читать дальше...   )Жанр: Hard bop, Post bopПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED744BAE779DF2F9A7A3516D78E6931732D19DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652465   (217148) от 12.08.2023
+
+Russell Ballantine - Harpo's Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_217148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogie Man (3:07)
+02. Walking Blues (4:12)
+03. Dust My Broom (3:38)
+04. Harpo's Jazz (8:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1B19EEE196CF96ADCDD2A22ACF0E43C6795A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586332   (217137) от 26.10.2022
+
+TT Slim - Guess Who Dropped in? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Gone (4:43)
+02. Cry to Me (4:02)
+03. I Got a Feelin' (4:52)
+04. Come as You Are (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D28FF165567D46ECC5585E2F9596D8B877D1A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652469   (217120) от 12.08.2023
+
+Sam Cole - Thoughts and Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_217120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Lights (4:14)
+02. Destiny (3:09)
+03. Wasted Time (3:10)
+04. Downtown Blues (5:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAB76AE65A94B07DF94D07CBBDB9449B105BD3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719202   (217099) от 03.12.2021
+
+B.B. King - Blues Summit (1993) [FLAC|Lossless|image + .cue]<Blues, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blues Summit альбом Би Би Кинга, выпущенный в 1993 году на лейбле MCA. Альбом достиг пика позиции №182 на Billboard 200, и №64 на Billboard's R&B Albums chart. Альбом получил премию Грэмми в 1994 году за лучший традиционный блюзовый альбом.
+В записи альбома принимали участие бывшие одноклассники Би Би Кинга -  Robert Cray, Louis Walker, Lee Hooker. Blues Summit (   Читать дальше...   )01.The Robert Cray Band  - Playin' with my friends (with Robert Cray) (5:19)
+02.B.B. King Orchestra - Since I met you baby (with Katie Webster) (4:45)
+03.B.B. King Orchestra - I pity the fool (with Buddy Guy) (4:36)
+04.John Lee Hooker - You shook me (with John Lee Hooker) (4:59)(   Читать дальше...   )Жанр: Blues (Style: Modern Electric Blues)Продолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3E1D18F1395445E1D0F6DE56CD199BC261756D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652474   (217069) от 12.08.2023
+
+Tony Wessels and the Revolvers - Reloaded (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_217069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gonna Move Across the River (4:32)
+02. Key to the Highway (2:14)
+03. Sweet Home Blues (4:24)
+04. Walking with Jody (2:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E721C7BAF9E2E600FCD6DA93CC411EA0D827B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586337   (217058) от 26.10.2022
 
 Sergio Mendes & Brasil '66 - Greatest Hits (1970) 1987, A&M Records [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin Jazz>
@@ -577,186 +752,6 @@ Club des Belugas - немецкая Nujazz и Lounge группа. Ядро Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B7E2C2591B209928C698B4CE7CAA39D0DC79261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653033   (215579) от 14.08.2023
-
-J.J. Johnson & Kai Winding - Jay & Kai (1947 - 1954) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernie's Tune [3:58]
-02. Lament [4:07]
-03. Blue's For Trombones [5:07]
-04. The Major [3:15](   Читать дальше...   )Жанр: BopПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E01EAD55D191C800FE47ED5D74DCCE6BEE3B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652859   (215376) от 14.08.2023
-
-Duane Allen - Yin-Yang (2004) [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight Ahead, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night And Day (5:45)
-02. Dark Time (4:37)
-03. Crystal Ship (3:54)
-04. Yin-Yang (5:22)(   Читать дальше...   )Жанр: Post-Bop, Straight Ahead, Guitar JazzПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79827C38B269868F494F19411C299D0893A64E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588901   (215269) от 13.12.2012
-
-Chris Thomas King - Why My Guitar Screams & Moans (2004) [WavPack|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starr [04:07]
-02. Action (Interlude) [00:07]
-03. Kiss [04:36]
-04. Legend [03:56]
-05. Song For Mama [04:05]
-06. King Snake [03:29]
-07. Juke Joint Lover [04:04]
-08. Louisiana Party [03:40]
-09. Come Home Tonight [04:12]
-10. Down [03:33](   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426313   (215195) от 24.11.2020
-
-Dakota Staton - Live at Milestones (1986) 2007, Caffe Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chestnut Street [2:50]
-02. Girl Talk [2:22]
-03. Ain't No Use [3:12]
-04. Broadway [2:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0BE822C16A3F82DC4F21D386E870BD49FBED47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343909   (215131) от 08.12.2019
-
-Sonny Stitt - Four Classic Albums 1954 - 1959 (2011) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215131.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I Cover The Waterfront [3:18]
-02. Lazy Bones [7:44]
-03. Sunday [3:58](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 02:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490A78CD3F938A9FE9241E2A5D04B1ED36FE8E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426413   (215052) от 24.11.2020
-
-Billie Holiday - Birth Of A Legend (30-e - 40-e) 2019, Rough Guides [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Morning Heartache [3:09]
-02. Body and Soul [2:57]
-03. I Loves You Porgy [2:56]
-04. Now They Call It Swing [2:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05FF1D06A8C6FC9D4EB52A4486E19E084C9C32A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,25 @@
-###  Публикация: 1822629   (100929) от 07.10.2025
+###  Публикация: 1762059   (102935) от 24.11.2024
 
-Шрифты - Behance - Pixel Surplus - Beware - 129784763 [TTF]
+Teddy Wilson - 1947 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100929.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Beware - это роскошный шрифт с засечками от создателя Sasha Mouse. Он содержит полный набор символов, а также многоязычные символы и поддержку кириллицы. Благодаря преувеличенным засечкам он отлично подходит для роскошного дизайна и использования на больших дисплеях.Формат: TTFПоддержка кириллицы: Есть
+01. The Sheik Of Araby [2:39]
+02. Limehouse Blues [2:54]
+03. After You've Gone [2:41]
+04. Georgia On My Mind [3:09](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:00:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD102C550DB115B5350387F9E3E459FF92117D23
+magnet:?xt=urn:btih:61F1A160DD29FB9D0E21ECBF7ABCF2F8A47F3D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822615   (100928) от 07.10.2025
+###  Публикация: 1762169   (102934) от 24.11.2024
 
-VA - Music News For Forum vol.138 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+Stu Williamson - Stu Williamson Plays (1956) 1989, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Cool>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100928.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ellinoora - Ahdistuksen Aika (04:53)
- 002. Adekunle Gold - Don Corleone (02:27)
- 003. Akmalov - В зоне прочитанного (03:13)
- 004. Alberto Guta & Ministerul Manelelor - Pupa-Ma Pe Obraz (01:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:20:28
+01. The Lady Is a Tramp [4:16]
+02. Stu's Due Blues [5:42]
+03. The Things We Did Last Summer [2:52]
+04. Yardbird Suite [3:52](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, CoolПродолжительность: 00:59:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C4E783EE71C50E46E619A9A148FE268AF619CE4
+magnet:?xt=urn:btih:105F1E39D0D4A3FFFF0438419D8DE780577A973D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,26 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822616   (100927) от 07.10.2025
+###  Публикация: 1761942   (102933) от 24.11.2024
 
-Chip Huyen | AI Engineering: Building Applications with Foundation Models (2025) [PDF, MOBI, AZW3] [EN]
+Supergrass - Life on Other Planets 2003 (2003) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternative Rock>
 
->>Компьютерная литература
->>Программирование
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100927.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-In this book, author Chip Huyen discusses AI engineering: the process of building applications with readily available foundation models.
-The book starts with an overview of AI engineering, explaining how it differs from traditional ML engineering and discussing the new AI stack. The more AI is used, the more opportunities there are for catastrophic failures, and (   Читать дальше...   )Жанр: Компьютерная литература, искусственный интеллектЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, MOBI, AZW3Качество: Изначально электронное (ebook)
+01. Za (3:05)
+02. Rush Hour Soul (2:55)
+03. Seen the Light (2:26)
+04. Brecon Beacons (2:56)(   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:40:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC119190AE9946E8957D5F6C7807A91844CE8A50
+magnet:?xt=urn:btih:E9718C2F5986ED8A330F3E11208C29B0FD29EF8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822574   (100926) от 07.10.2025
+###  Публикация: 1762322   (102932) от 24.11.2024
 
-Kobezzza, Дмитрий Холстинин | Сборка во Frontend (2025) WEB-DL [RU]
+Castle - Castle (1994) [FLAC|Lossless|image + .cue] <Doom Death Metal>
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100926.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Курс нацелен на глубокое освоение принципов работы системы сборки во Frontend. Полученные на курсе знания помогут улучшить DevEx команды за счет ускорения процесса сборки и повысить вашу ценность как разработчика благодаря уникальным знаниям в инфраструктуре.
-
-После курса вы сможете:
-Анализировать сборку в любом проекте и находить точки для улучшения(   Читать дальше...   )Производство: KobezzzaЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 34:21:03
+01. The 7th Empire (4:50)
+02. The Emperor's Children (4:01)
+03. Alter Reality (7:07)
+04. Exposed (9:41)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:48:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69C524F5E907151B8EC12AFF06D4A7E15088FD12
+magnet:?xt=urn:btih:338E7D3EC93FAA5D9DF0FD2FC14437BF7F21DB02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822560   (100925) от 07.10.2025
+###  Публикация: 1762021   (102931) от 24.11.2024
 
-DIAZZA - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
+Famishgod - Roots Of Darkness (2016) [FLAC|Lossless|image + .cue] <Doom Death Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100925.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Distance
- 02 - D’octobre
- 03 - Myn Leafde
- 04 - My Beautiful One(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:05:30
+01. Abyss of the Underworld (7:40)
+02. Bad Omen (9:18)
+03. Molested, Defiled, Disrupted (9:47)
+04. Chamber of Chaos (8:12)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 01:05:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD5FEF0DD5BE78EB5B0E6F76B1398A16ADE9E15B
+magnet:?xt=urn:btih:1294B14A5A48AEE134D37EC49F2B5A8D84EAD1AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,25 +143,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822636   (100924) от 07.10.2025
+###  Публикация: 1762193   (102930) от 24.11.2024
 
-Чумовая пятница 2 / Freakier Friday (2025) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit]
+НХЛ 2024-2025. Нью-Джерси Дэвилз - Вашингтон Кэпиталз (23.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100924.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прошли годы с той пятницы, когда Анна и Тесс, её мать, наладили отношения после удивительного обмена телами. Теперь у самой Анны есть родная дочь и будущая падчерица, которым не удаётся найти общий язык. Анна и Тесс узнают, что чудо может повториться.Производство: США / Walt Disney Pictures, Gunn Films, Burr! ProductionsЖанр: фэнтези, комедия, семейныйРежиссер: Ниша ГанатраАктеры: Джейми Ли Кёртис, Линдси Лохан, Марк Хэрмон, Чад Майкл Мюррэй, Стивен Тоболовски, Розалинд Чао, Джулия Баттерз, София Хаммонс, Мэнни ХасинтоПеревод: Дублированный (MovieDalen, укр. LeDoyen)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, Full), английские (Full, SDH), украинские (Forced, Full)Продолжительность: 01:50:34
+24 ноября 2024, воскресенье. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Фурман Саут (Сьюикли, США); Линейный: Дэн Келли (США); Линейный: Дерек Нансен (Оттава, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:59:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:068A376B44B38F4F06FBE043BCEAF89C4C70D2B7
+magnet:?xt=urn:btih:67731E1EC733D4136427609EE92646B8FCBEEB22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,25 +170,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822634   (100923) от 07.10.2025
+###  Публикация: 1761992   (102929) от 24.11.2024
 
-Газета | Тайны СССР №19 (196) (сентябрь 2025) [PDF]
+Veins - Innocence (2017) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal, Groove Metal>
 
->>Журналы
->>Другие журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100923.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+01. Animula Vagula Blandula 00:33
+02. Pt. 1 03:19
+03. Until Dawn 04:42
+04. Reflections 03:57(   Читать дальше...   )Жанр: Death Metal, Thrash Metal, Groove MetalПродолжительность: 00:37:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA46BCD38241607D9E6261BB15B9D87A44E18FF9
+magnet:?xt=urn:btih:6243E1618688D04213A3A949B6CCCB998893ACA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,28 +199,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822559   (100922) от 07.10.2025
+###  Публикация: 1761995   (102928) от 24.11.2024
 
-Blues & Gentlemen's - Compilation (2025) [MP3|320 Kbps] <Blues, Slow Blues, Instrumental>
+Malediction - Reductio ad Absurdum (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100922.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Black Tie Blues [03:18]
-002. Bourbon Rich Rhythms for Modern Gents [03:58]
-003. Cigar Lounge [03:13]
-004. Guitar Rag [03:14](   Читать дальше...   )Жанр: Blues, Slow Blues, InstrumentalПродолжительность: 05:55:20
+01. Reductio ad AbsurdumЖанр: Death MetalПродолжительность: 00:39:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0D3D520680FB43353D64D8BB08649F120F412AF
+magnet:?xt=urn:btih:6050514A8EC1E5E6AAC5D6FA2B96384F07FF9C15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,26 +225,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822621   (100921) от 07.10.2025
+###  Публикация: 1761975   (102927) от 24.11.2024
 
-Журнал | Профиль №35-36 (262) (сентябрь 2025) [PDF]
+Trinakrius - Massacro (2010) [FLAC|Lossless|image + .cue] <Power Doom Metal>
 
->>Журналы
->>Другие журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100921.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Изначально электронное (ebook)
+01. Massacro 03:18
+02. La morte del mondo 05:40
+03. ...e vivere sarà 04:45
+04. Come stai 05:03(   Читать дальше...   )Жанр: Power Doom MetalПродолжительность: 01:07:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6D73E307889B5D49E2FED1DEBE4BEC46F07C798
+magnet:?xt=urn:btih:B58537228EADAE0AE8740514825D7CCF483FB8E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,26 +254,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822558   (100920) от 07.10.2025
+###  Публикация: 1762060   (102926) от 24.11.2024
 
-Ренди Гейдж | Почему вы глупы, бедны и больны и как стать умным, богатым и здоровым (2010) [MP3, Владимир Скромуль]
+Pero Defformero - Undergrand (2009) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100920.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Вирусы разума» и манипуляция: борьба за власть над вашим сознанием. Силы, призванные сделать вас глупым, больным и бедным.
-Книга затрагивает вопросы, касающиеся взрослой жизни, и содержит соответствующую лексику, что может быть неприятно определенному кругу читателей. Рекомендуется к прочтению только с разрешения родителей. Автор открывает глаза на некоторые аспекты (   Читать дальше...   )Жанр: БизнесИздательство: КропоткинБизнес-стильПродолжительность: 06:47:23
+01. Došli smo do kraja puta (3:21)
+02. Silvana (4:35)
+03. Gotičarka (4:44)
+04. Ferrari (3:47)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:13:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AC0D8D12A33B108D2423E6E0F15DB4AE393E14D
+magnet:?xt=urn:btih:37219FA72C6712C09C53E2C2731E7DBB5CCB66FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,28 +283,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822624   (100919) от 07.10.2025
+###  Публикация: 1762057   (102925) от 24.11.2024
 
-VA - 60 minutes. Old School Dance Music vol.27 (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Piano House, Latin House, Electro House>
+Ocean Chief & Runemagick - The Northern Lights (2007) Split [FLAC|Lossless|image + .cue] <Doom Death Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100919.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01-Bob Sinclar Feat. Gary "Nesta" Pine - Love Generation
-02-Dave Kurtis feat. Daniel Gonzales - Latinos del Mundo (Horny United Rockin' Mix)
-03-Guru Da Beat feat. Jay Smith - Saxuality (Jim Tonique's Rockin' Mix)
-04-Laurent Wolf - Saxo Revenge(   Читать дальше...   )Жанр: Club House, Piano House, Latin House, Electro HouseПродолжительность: 01:00:01
+01. Ocean Chief - Gathering Souls (28:10)
+02. Runemagick - Bound in Magick Haze (9:39)
+03. Runemagick - Chthonic Temple Smoke (10:13)Жанр: Doom Death MetalПродолжительность: 00:48:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9876A2EE13304568B62CD23E8D44D5CC6026E9DE
+magnet:?xt=urn:btih:65A5B794DE227696D4DFF88F6AC7DAFC53E3E822
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,28 +311,311 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822351   (100918) от 07.10.2025
+###  Публикация: 1762070   (102924) от 24.11.2024
 
-A Killer's Confession - Victim 1-2 (2024, 2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Industrial Metal>
+Sacramental Sachem - Recrucifiction (1995) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pure & Simple (9:53)
+02. Feed My Hate (7:50)
+03. Bloody Cages (8:18)
+04. Recrucifiction (7:16)(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A65F88ED4EFA00B89BBA556147FA9FC082D0F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761972   (102923) от 24.11.2024
+
+R.O.D. - Death For All (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (instrumental) 01:03
+02. Choice 01:32
+03. Сука блядь 02:48
+04. Fatal Mistake 03:10(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:25:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50607846548183DDBFE25D4F8BD52DA5E96B329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762328   (102922) от 24.11.2024
+
+Thargos - Killfukk (2003) [FLAC|Lossless|image + .cue] <Thrash Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funeral in GreenЖанр: Thrash Metal, Black MetalПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CA626D620975E41510E1823CB4274AB8084F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762199   (102921) от 24.11.2024
+
+НХЛ 2024-2025. Юта - Питтсбург Пингвинз (23.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102921.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 ноября 2024, воскресенье. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 16 324 зрителя (87% при вместимости 18 673)
+Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Кори Сиврет (Милгров, Канада); Линейный: Килиан МакНамара (Лейк Уорт, США); Линейный: Девин Берг (Китченер, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E6ACEA3457F1F6326D1464CB186D180E33BC4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762067   (102920) от 24.11.2024
+
+Mellowtoy - Lies (2015) [FLAC|Lossless|image + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nitro Dk 00:58
+02. Lies 03:48
+03. Visions 04:15
+04. Destroy Yourself 03:33(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC5EA37985F534427E2ADE4439072597233842A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762164   (102919) от 24.11.2024
+
+НХЛ 2024-2025. Виннипег Джетс - Питтсбург Пингвинз (22.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102919.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 ноября 2024, суббота. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 232 зрителя (82% при вместимости 18 673)
+Главный судья: Кори Сиврет (Милгров, Канада); Главный судья: Брэндон Бландина (Сентенниал, США); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Дэвид Брисбуа (Садбери, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D0A924F557320CEE2F4EC68AE8F83CAE47576F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762437   (102918) от 25.11.2024
+
+Teddy Wilson - Gentleman Of Keyboard (1934 - 1957) 1990, Giants Of Jazz [FLAC|Lossless|image + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody Loves Me [2:54]
+02. I'm Painting The Town Red [2:57]
+03. All My Life [3:11]
+04. Why Do I Lie To Myself About You? [3:03](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF819BB43D3047C22D58F0360DE7333C0903762F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762345   (102917) от 25.11.2024
+
+The Minus 5 - Down With Wilco: A Tragedy In Three Halfs (2003) [FLAC|Lossless|tracks + .cue] <Rock. Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Days of Wine and Booze (3:42)
+02. Retrieval of You (3:51)
+03. That's Not the Way That It's Done (3:29)
+04. The Town That Lost Its Groove Supply (2:35)(   Читать дальше...   )Жанр: Rock. Indie Rock, Alternative RockПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0D8C0B4D9B792B4539920CECFD6FB6E7C83E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762486   (102916) от 25.11.2024
+
+Counting Hours - The Wishing Tomb (2024) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unsung, Forlorn (2:08)
+02. Timeless Ones (4:30)
+03. Away I Flow (5:57)
+04. All That Blooms (Needs To Die) (6:24)(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19AF50E3E6528F77453E1D6D73CF6E97D55507E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762365   (102915) от 25.11.2024
+
+Bathsheba - Servus (2017) SVART066CD [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conjuration Of Fire (7:35)
+02. Ain Soph (5:42)
+03. Manifest (10:33)
+04. Demon 13 (5:45)(   Читать дальше...   )Тип издания: DigisleeveЖанр: Doom MetalПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4023C2219EDD4177C2EA7B9954CEE60C7ACEC532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762402   (102914) от 25.11.2024
+
+Gorgone - Barminam (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Zeuhl>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100918.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hopeless Gray [00:03:33]
-02. In Case Of Emergency [00:03:34]
-03. Hollow [00:03:16]
-04. Facts [00:03:21](   Читать дальше...   )Жанр: Nu-Metal, Industrial MetalПродолжительность: 2 CD, 01:14:11
+1. Van Gis (04:39)
+2. Bidi Zonker (03:58)
+3. Dorbazonn (08:09)
+4. Barminam (04:28)(   Читать дальше...   )Жанр: Progressive Rock, ZeuhlПродолжительность: 00:36:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02511CC2EA84379B3F99CA9FA27E4316E202A52D
+magnet:?xt=urn:btih:C887E5FF56E7FF35C5A84844DC3A9B06D233EA6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,25 +623,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822413   (100917) от 07.10.2025
+###  Публикация: 1762427   (102913) от 25.11.2024
 
-Юрий Коренев | Загадка старого дома. Приключения частных детективов (2024) [MP3, Артем Быков]
+Rising Sunset - Vade Draconem Maledicte (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power, Gothic  Metal>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100917.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы были на Байкале? Слышали что-то о Шамбале? Нравятся приключения и детективы – или, может быть, вам по душе исторические повествования и легенды? Все это вы найдёте на страницах книги, которую держите в руках. Захватывающие сюжеты, реалистичное повествование, неожиданные находки и открытия главных героев проведут читателя по неизведанным, загадочным, диковинным (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 12:51:31
+01. A State Of Darkness [00:05:41]
+02. Deadmass [00:06:05]
+03. Demonic Possession [00:06:52]
+04. Midnight Child [00:05:10](   Читать дальше...   )Жанр: Symphonic Power, Gothic  MetalПродолжительность: 00:53:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6A65049EDE8091389AA2660881B7DCEF66205B5
+magnet:?xt=urn:btih:D5F2FE9BB5B6857CC30C8863740398D020E8D2C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,25 +652,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822643   (100916) от 07.10.2025
+###  Публикация: 1762400   (102912) от 25.11.2024
 
-Проекты - VideoHive - Lines Logo - 59673542 [AEP]
+Memory Garden - Studio Albums (7 releases) (1995-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Doom Metal>
 
->>Проекты
->>Логотипы (проекты)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100916.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем наш новый проект. Логотип Lines — интересный и уникальный проект, основанный на вертикальных линиях. Он немного ретро.Формат: AEP
+Memory Garden - шведская дум-метал/хэви-метал группа из Кумлы, образованная в 1992 году.1995 - Forever
+1996 - Tides
+1998 - Verdict of Posterity
+2000 - MirageЖанр: Power/Doom MetalПродолжительность: 05:30:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B9E1630CD3A5FF8C41FA7A3002C8FDFD990A06D
+magnet:?xt=urn:btih:DD749C6A2DD8692986396B077129DDE95689D1FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,25 +681,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822614   (100915) от 07.10.2025
+###  Публикация: 1762676   (102911) от 26.11.2024
 
-День свадьбы придется уточнить (1979) WEBRip [H.264/1080p]
+Furor Gallico - Future To Come (2024) [FLAC|Lossless|image + .cue] <Folk Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100915.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Герой вырос в потомственной семье металлургов: высокий белокурый красавец, не без чувства своеобразного юмора, передовик труда, спортсмен. Познакомившись при весьма неординарных обстоятельствах со вздорной девчонкой, влюбился. Очень скоро привел ее домой к своим родителям и пояснил - «навсегда». А она еще не разведена. И по многим «показателям» не устраивает отца...Производство: СССР / Киностудия им. М.ГорькогоЖанр: ДрамаРежиссер: Степан ПучинянАктеры: Евгения Симонова, Борис Щербаков, Николай Пастухов, Николай Денисов, Максим Плотников, Дальвин Щербаков, Татьяна Божок, Любовь Полехина, Владимир Вихров, Ованес ВанянПродолжительность: 01:28:40
+01. Call of the Wind 05:30
+02. Among the Ashes 04:38
+03. Birth of the Sun 04:04
+04. Black Skies 06:39(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:40:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0A5A4A88C1288C83248CF1CD374F26D9A9D4BDC
+magnet:?xt=urn:btih:6B9596306F612B4D29F5E3C18B95CC22E10CE491
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -409,286 +710,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822640   (100914) от 07.10.2025
+###  Публикация: 1762550   (102910) от 26.11.2024
 
-Чумовая пятница 2 / Freakier Friday (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+Sky Wolves - Forgotten Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100914.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прошли годы с той пятницы, когда Анна и Тесс, её мать, наладили отношения после удивительного обмена телами. Теперь у самой Анны есть родная дочь и будущая падчерица, которым не удаётся найти общий язык. Анна и Тесс узнают, что чудо может повториться.Производство: США / Walt Disney Pictures, Gunn Films, Burr! ProductionsЖанр: фэнтези, комедия, семейныйРежиссер: Ниша ГанатраАктеры: Джейми Ли Кёртис, Линдси Лохан, Марк Хэрмон, Чад Майкл Мюррэй, Стивен Тоболовски, Розалинд Чао, Джулия Баттерз, София Хаммонс, Мэнни ХасинтоПеревод: Дублированный (MovieDalen, укр. LeDoyen)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:50:34
+01. Forgotten Tales 01:04
+02. Flying Dragons 06:15
+03. Dystopia 04:59
+04. Break The Chains 05:30(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C362952F680C84FD2CDA2889696211C72D8F99AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822645   (100913) от 07.10.2025
-
-Никто 2 / Nobody 2 (2025) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 7.6, 10-bit]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разобравшись с русской мафией и уничтожив денежный склад, Хатч расстроил влиятельных людей, деньги которых сгорели в огне. Теперь, чтобы компенсировать потери, он снова работает киллером. После очередного сложного заказа Хатч просит босса о передышке. Он хочет взять отпуск и побыть с семьёй, от которой снова отдалился. Приехав с роднёй в небольшой курортный городок, (   Читать дальше...   )Производство: США, Канада / 87North, Dentsu, Eighty Two Films, Universal PicturesЖанр: Боевик, триллер, комедия, криминалРежиссер: Тимо ТьяджантоАктеры: Боб Оденкёрк, Конни Нильсен, Кристофер Ллойд, Гейдж Манро, Шэрон Стоун, Джон Ортис, Колин Хэнкс, Пэйсли Кэдорат, , Дэниэл БернхардПеревод: Дублированный, многоголосый, двуголосый, АвторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:29:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AB2CD1A57A91237B4EE4F49DC55B17854C988A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822646   (100912) от 07.10.2025
-
-Чумовая пятница 2 / Freakier Friday (2025) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошли годы с той пятницы, когда Анна и Тесс, её мать, наладили отношения после удивительного обмена телами. Теперь у самой Анны есть родная дочь и будущая падчерица, которым не удаётся найти общий язык. Анна и Тесс узнают, что чудо может повториться.Производство: США / Walt Disney Pictures, Gunn Films, Burr! ProductionsЖанр: фэнтези, комедия, семейныйРежиссер: Ниша ГанатраАктеры: Джейми Ли Кёртис, Линдси Лохан, Марк Хэрмон, Чад Майкл Мюррэй, Стивен Тоболовски, Розалинд Чао, Джулия Баттерз, София Хаммонс, Мэнни ХасинтоПеревод: Дублированный (MovieDalen, укр. LeDoyen)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16E1CBF924CB72C61053E2BAD3AC71E4167BFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822647   (100911) от 07.10.2025
-
-Школьный автобус / The Lost Bus (2025) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрушительный лесной пожар в Кэмп-Файр, Калифорния стал самым смертоносным за последние сто лет. В центре сюжета — истории водителя автобуса и школьной учительницы, которые активно участвовали в ликвидации пожара.Производство: США / Apple Original Films, Blumhouse Productions, Comet PicturesЖанр: триллер, драмаРежиссер: Пол ГринграссАктеры: Мэттью МакКонахи, Америка Феррера, Юл Васкес, Эшли Аткинсон, Дэнни МакКарти, Питер Дисет, Гэри Краус, Спенсер Уотсон, Кристофер ХэйгенПеревод: Профессиональный (многоголосый, двуголосый)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF392B50D35C402D2E2E9F20405DC1DD0B4CDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822642   (100910) от 07.10.2025
-
-Ночь воспоминаний / Gi-eok-ui bam / Forgotten / Gieokui bam (2017) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с родителями и обожаемым старшим братом Юсоком 21-летний Чинсок переезжает в новый дом. Прежний хозяин оставил свои вещи в одной комнате, и отец говорит сыновьям в неё не заходить, но Чинсок постоянно слышит оттуда странные звуки. Парень готовится к экзаменам и принимает таблетки, поэтому семья считает, что это ему слышится. Однажды на глазах младшего брата (   Читать дальше...   )Производство: Корея Южная / B.A. Entertainment, Baram Pictures, Megabox Plus MЖанр: детектив, триллер, криминалРежиссер: Чан Хан-джунАктеры: Кан Ха-ныль, Ким Му-ёль, Мун Сон-гын, На Ён-хи, Нам Мён-нёль, Ли На-ра, Ан Мин-ён, Ён Джэ-хён, Пак Чхэ-ик, Квон Хён-джунПеревод: Многоголосый профессиональный (AsiaOne)Язык озвучки: Русский, корейскийСубтитры: русские (AsiaOne), английские (2xFull: Netflix + Blu-ray), корейские (Full - Blu-ray; Forced, SDH - Netflix)Продолжительность: 01:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BCE14973667C84B908F1D4D3F6ABDC4605DD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822637   (100909) от 07.10.2025
-
-Культ Чаки / Cult of Chucky (2017) BDRip [H.264/1080p] [МVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ника Пирс 4 года провела в лечебнице. Ее убеждают в том, что она виновна в гибели семьи, а не кукла Чаки. Когда лечащий врач предлагает новый вариант терапии с куклой с добрым лицом, в лечебнице начинают погибать люди, и Ника начинает думать, что ее кошмары реальны. Энди Барклай повзрослел и спешит на помощь, но ему хочет помешать Тиффани — невеста Чаки, готовая (   Читать дальше...   )Производство: Канада, США / David Kirschner Productions, Universal 1440 EntertainmentЖанр: ужасы, триллерРежиссер: Дон МанчиниАктеры: Фиона Дуриф, Майкл Терриоль, Адам Хертиг, Алекс Винсент, Элизабет Розен, Грэйс Линн Кунг, Марина Стивенсон Керр, Зак Сантьяго, Али Татарин, Дженнифер Тилли и др.Перевод: Профессиональный многоголосый (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C5F0C373291CF503144A6B15DDBB11D72D34E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822605   (100908) от 07.10.2025
-
-Червяк Джим / Earthworm Jim (1995-1996) DVDRip (сезон 1-2, серии 1-23 из 23) Селена Интернэшнл
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джим изначально был обычным дождевым червем, занимавшимся тем, что обычно делают дождевые черви: поедал гумус и прятался от воронов. Однажды, в космическом пространстве над Землёй злой Пси-Ворон нагнал космический корабль, пилотируемый бунтовщиком, который украл «Ультравысокотехнологичный-неуничтожимый-супер-космо-кибер-скафандр», сконструированный Профессором Обезьяноголовым. (   Читать дальше...   )Производство: США / Flextech Television Limited, 	Universal Cartoon StudiosЖанр: мультфильм, короткометражка, фантастика, боевик, комедия, приключения, семейныйРежиссер: Дэвид Перри, Дуглас ТенНэйп, Кэти Кастилло, Рой Аллен СмитАктеры: Дэн Кастелланета Джефф Беннетт Джим Каммингс Кэт Суси Чарльз Адлер Эдвард Хибберт Андреа Мартин Джон Кассир Бен Стайн Дэнни Манн и другиеПеревод: Дублированный (Селена Интернэшнл, SDI Media / IYUNO SDI Group)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~ 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADE4531A31E22F302C471E9AD8F409F49870AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822625   (100907) от 07.10.2025
-
-А.Г. Воробьева | Учебник церковнославянского языка (2008) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник предназначается для студентов православных высших и средних духовных учебных заведений, в том числе для заочников, а также может служить удобным пособием всем желающим изучать церковнославянский язык самостоятельно.
-Среди учебных текстов — утренние и вечерние молитвы, псалмы, входящие в состав церковных служб, полностью Евангелие от Матфея, канон и акафист (   Читать дальше...   )Жанр: Учебное пособие, лингвистика, самоучитель, изучение церковнославянского языкаИздательство: Православный Свято-Тихоновский гуманитарный университетФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62488F1A637FC971E9E7D463E772D1E68C0B275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822526   (100906) от 07.10.2025
-
-Роберт Маккаммон | Я путешествую по ночам (2025) [MP3, Олег Булдаков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Кингсли, убитый горем из-за похищения своей дочери, приезжает в Новый Орлеан на встречу с человеком по имени Тревор Лоусон. Похитители выдвинули крайне необычные требования и указали, что исполнить их должен непременно упомянутый человек. Дэвид понимает, что выбора у него нет, поэтому обращается к человеку, в визитной карточке которого содержится странное сообщение: (   Читать дальше...   )Жанр: Мистика, ВестернИздательство: Аудиокнига своими рукамиПродолжительность: 04:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E7799F3695599C782E218C06D2400551A335939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822648   (100905) от 07.10.2025
-
-Звуковые библиотеки - Amazon - Fire & Fireworks Sound Effects [FLAC]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обширная звукотека эффектов на тему огня: здесь вы встретите звуки пожаров, огненных взрывов, услышите потрескивающий огонь, доносящийся из камина, интенсивное вспыхивание и шипящее горение бензина, разжигание огня взятой из коробки спичкой с интенсивным пламенем, большой фейерверк с финальной овацией, взрывы петард, звук воспламеняющегося пороха, многократные взрывы, (   Читать дальше...   )Формат: FLAC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292CE449A42EA8FE46C8AB9F811A3C083F1DD04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822651   (100904) от 07.10.2025
-
-Чумовая пятница 2 / Freakier Friday (2025) WEB-DLRip [H.264]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошли годы с той пятницы, когда Анна и Тесс, её мать, наладили отношения после удивительного обмена телами. Теперь у самой Анны есть родная дочь и будущая падчерица, которым не удаётся найти общий язык. Анна и Тесс узнают, что чудо может повториться.Производство: США / Walt Disney Pictures, Gunn Films, Burr! ProductionsЖанр: фэнтези, комедия, семейныйРежиссер: Ниша ГанатраАктеры: Джейми Ли Кёртис, Линдси Лохан, Марк Хэрмон, Чад Майкл Мюррэй, Стивен Тоболовски, Розалинд Чао, Джулия Баттерз, София Хаммонс, Мэнни ХасинтоПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE4C47C5EF584DCF37ACCD28AB872E0815583682
+magnet:?xt=urn:btih:5DE91A766AC85682C2DF18C4CF02DBAD9E1A0D35
 ```
 
 https://mybot314.ru/tekegram_catalog/

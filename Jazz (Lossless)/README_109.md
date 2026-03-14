@@ -1,3 +1,93 @@
+###  Публикация: 1289765   (684456) от 17.03.2019
+
+Pepper Adams - The Master (1980) 1994, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enchilada Baby [5:46]
+02. Chelsea Bridge [8:57]
+03. Bossallegro [6:04]
+04. Rue Serpente [8:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD6C943E89AB31C9F0D6FA628307FE6435A2E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029047   (684417) от 25.06.2016
+
+Raging Dildos - Blue EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandolins (03:14)
+02. Strawberry Fields Forever (03:59)
+03. Macarron (03:48)
+04. Aurora (03:02)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:30:24
+
+Nadia Schilling - Vocals, Guitar, Double Bass, Glockenspiel
+Joao Branco - Guitars, Drums, Electric Bass(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76AA7A808A253A5B55789133878619DECAD956AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535540   (684216) от 07.03.2022
+
+Dave McKenna - Dancing In The Dark And Other Music Of Arthur Schwartz (1986) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By Myself [4:00]
+02. A Shine On Your Shoes [2:47]
+03. I See Your Face Before Me [4:07]
+04. Alone Together [4:51](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94942BC5DB2203741E57D909239252109F982680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135219   (683141) от 18.05.2017
 
 Duke Ellington - Le Jazz de A a Z (1940 - 1945) 1994, BMG [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -658,93 +748,6 @@ Janet Seidel - The Art of Lounge 3 (2005) Musictronic Lounge [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C2D53273D3E2E77C749ED0386F0C8E15755E508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029195   (682135) от 26.06.2016
-
-Grant Green & Baby Face Willette - Trio/Quartet: Complete Recordings (1961) 2CD, 2014, American Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682135.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Miss Ann's Tempo [05:43]
-02.Lullaby Of The Leaves [07:45]
-03.Blues For Willarene [07:11](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 02:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF951CCD6E25E67A98C9C43742836D62145C267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290243   (680544) от 19.03.2019
-
-Dan Barrett Trio And Quartet - Jubilesta! (1992) Arbors Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love You [6:21]
-02. Why Can't You Behave? [5:07]
-03. Jubilesta [3:19]
-04. Then I'll Be Happy [3:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78C5C98398674F23829FDCA3A9D048DB98315BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290246   (680543) от 19.03.2019
-
-Dan Barrett & Blue Swing - Blue Swing (2000) Arbors Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victory Stride [5:16]
-02. Saturday Night Function [5:24]
-03. Christopher Columbus [4:01]
-04. Can This Be Love? [4:28](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F13D4410A8D5CA39432040FCD6EC41AB2DA601
 ```
 
 https://mybot314.ru/tekegram_catalog/

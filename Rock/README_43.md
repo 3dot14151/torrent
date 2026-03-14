@@ -1,3 +1,67 @@
+###  Публикация: 223415   (578228) от 01.08.2010
+
+Y & T - Facemelter (2010) [MP3|320 kbps]<Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude, on with the Show (1:38)
+02. On with the Show (4:09)
+03. How Long (4:25)
+04. Shine On (5:00)
+05. I Want your Money (4:42)
+06. Wild Child (4:08)
+07. I'm Coming Home (5:13)
+08. If you Want me (4:32)
+09. Hot Shot (5:04)
+10. Blind Patriot (4:08)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554476   (577629) от 30.05.2022
+
+Omega - Time Robber & Skyrover (2022) 2CD, Compilation [MP3|320 Kbps] <Progressive Rock, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Overture (00:02:43)
+02 - Skyrover (00:03:55)
+03 - Russian Winter (00:05:05)
+04 - The Lost Prophet (00:05:52)(   Читать дальше...   )Жанр: Progressive Rock, Space RockПродолжительность: 01:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B74A0294ECAF1F32B5407E186E5564C3B6FD0FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921103   (577618) от 24.07.2015
 
 Bobby Fuller Four - Les Genies Du Rock - I Fought The Law (1994) [MP3|320 кб/с]<Garage Rock>
@@ -704,64 +768,6 @@ Magma  - Art Zoyd - Les Génies Du Rock - Mekanik Destruktiv Kommandoh (1993) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C51F45880708F939A2BED85EC927231141A0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922584   (568347) от 29.07.2015
-
-The Nice - Les Genies Du Rock - Rondo (1993) [MP3|320 кб/с]<Prog Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rondo (7:54)
-02.  she belongs to me (11:52)
-03.  Azrael revisited (5:55)
-04.  The thoughts of emerlist Davjack (4:14)(   Читать дальше...   )Жанр: Prog Rock, Psychedelic RockПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7935ABBB4C7623939128FE97051545BDCB2FCD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922205   (568225) от 29.07.2015
-
-Iggy Pop - Les Genies Du Rock - Live (1993) [MP3|320 кб/с]<Punk, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Got A Right (3:10)
-02.  Some Weird Sin (3:36)
-03.  Real Wild Child (3:13)
-04.  Five Foot One (4:07)(   Читать дальше...   )Жанр: Punk, Garage RockПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B529712547938B7FB5291F03033EB7D39C7B51
 ```
 
 https://mybot314.ru/tekegram_catalog/

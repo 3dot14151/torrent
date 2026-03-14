@@ -1,3 +1,148 @@
+###  Публикация: 1328303   (366374) от 29.09.2019
+
+VA - Subculture (Mixed by Craig Connelly & Factor B) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Connelly - One Equals Atmosphere Squared (Intro Mix) (1:47)
+02. Craig Connelly - Solstice (3:37)
+03. Craig Connelly & Alex Holmes - Waterfall (Extended Mix) (8:09)
+04. Cold Blue - Simplicity (3:34)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05825CA5628441A25F98B7735E4E93A2CED4BB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328309   (366228) от 29.09.2019
+
+Giuseppe Ottaviani - Evolver (The Extended Mixes) (2019) [MP3|320 Kbps] <Trance, Tech Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Shift (Extended Mix) (06:39)
+02. Belasco (Extended Mix) (06:39)
+03. Another Day in L.A. (Extended Mix) (06:49)
+04. Empty World (Extended Mix) (06:57)(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380A6127C358FD6579C477AB0AF99681D332E907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255270   (366045) от 17.10.2018
+
+VA - Amsterdam 2018 (Mixed by Ultimate & Abstract Vision ) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstract Vision pres. Subbota - Noonday Shadows (Extended Mix)
+02. Aams - Terra Incognita (Original Mix)
+03. Oleg Farrier & Michael Grovetsky - Only You (Original Mix)
+04. ATHOM & Tony Hammer - Slavic Anthem (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20AEA92676E37C5D6F8FF8717B3174DD3780D09E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328308   (365084) от 29.09.2019
+
+VA - Discover Dark 200 (Compiled & Mixed By Zach Zlov) (2019) [MP3|320 Kbps] <Trance, Tech Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zach Zlov - Jokes On You (Intro Mix) (5:12)
+02. Reload - The One (Original Mix) (7:56)
+03. Peter Plaznik - Psychotria Viridis (Oberon Remix) (7:39)
+04. Indigo - The Aftermath (Original Mix) (7:00)(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 03:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379FB6C4986F6CEA7CD61E35B371054B59A2B3CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641447   (364936) от 28.10.2015
+
+VA - Trance Pioneers  001 - 009 (2010 - 2015) [MP3|320 кб/с]<Trance , Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Tyas - Lift (Sean Tyas Live Rework) (8:29)
+ 02. Sean Tyas - Melbourne (Original Mix) (8:23)
+ 03. Sean Tyas - Drop (Original Mix) (8:50)
+ 04. Sean Tyas - Rulebook (Original Mix) (7:30)(   Читать дальше...   )Жанр: Trance , Uplifting TranceПродолжительность: 03:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A639F5FF98C8DFD2857DDCE88510395812ECE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417091   (362856) от 18.10.2020
 
 VA - Black Hole Trance Music 10-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
@@ -597,151 +742,6 @@ VA - Black Hole Recordings - Miami (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8D2CEC5893EF1F555E2FCA238C010E25F4BC91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329533   (351974) от 05.10.2019
-
-VA - Pure Trance Frequencies (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk & Alex M.O.R.P.H. - Shine Ibiza Anthem 2019 (Original Version)
-02. Aly & Fila with Kyau & Albert - Come Home (Original Mix)
-03. Talla 2XLC - The Oasis (Extended Mix)
-04. Standerwick - Never Gonna Step Down (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C5DFDB47042DC93EC1084D9864F69473C1CBB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329515   (351647) от 05.10.2019
-
-VA - Black Hole Recordings Amsterdam Dance Event (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JES - We Belong To The Night (Original Mix)
-02. Giuseppe Ottaviani - Time Shift (Original Mix)
-03. Richard Durand feat. Christina Novelli - Save You (Original Mix)
-04. Cosmic Gate - The Wave 2.0 (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D392FCDC37E81119E0E48117C9C3E198C22D9293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178750   (351410) от 30.10.2017
-
-VA - Solarstone Presents Pure Trance Vol.6 (Mixed by Robert Nickson, Solarstone & Factor B) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  David Forbes & Hal Stucker - Monolith (Original Mix) 4:30
-02.  Slam Duck - Mercury II (Original Mix) 4:45
-03.  Matter - The Bends (Original Mix) 4:18
-04.  Forerunners - Just For A While (Original Mix) 3:55(   Читать дальше...   )Жанр: TranceПродолжительность: 06:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D2E28F204E204DC9E3C8F2741164323759E573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257088   (350137) от 24.10.2018
-
-VA - Levitated Amsterdam (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Rocca - Resilience (Original Mix)
-02. Lupo (cn) - The Overarching Sky (Original Mix)
-03. NrgMind - Nebula (Original Mix)
-04. Christopher Corrigan - Different Thoughts (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:008F90543AE78F6341565CF38A1A819DB66F25BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072952   (350133) от 14.11.2016
-
-VA - Unique Sense In Amsterdam (Mixed by Abstract Vision) (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Witness45 & Eleven Fly - Laserlight (Radio Edit) 3:39
-02. Holbrook & SkyKeeper - Memories (Poshout pres. Crystal Design Radio Edit) 2:37
-03. X - Sapphire (Radio Edit) 2:42
-04. DRYM & Abstract Vision - Shark (Radio Edit) 2:17(   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D100629E3CCFF3D04224430A9F7560246EDEDD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

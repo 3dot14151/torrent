@@ -1,3 +1,87 @@
+###  Публикация: 1262619   (293604) от 16.11.2018
+
+Aqualung - Aqualung (2002) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange and Beautiful (I'll Put a Spell on You) [03:52]
+02. Falling Out of Love [04:01]
+03. Good Times Gonna Come [04:28]
+04. If I Fall [04:55](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A0BC0142E04DDCA960D4F84BBABF85A43B9A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 421491   (293581) от 11.12.2011
+
+Sunrise Avenue - 2 альбома (2006, 2011) [FLAC|Lossless]<Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop-RockПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334598   (293362) от 30.10.2019
+
+Chelsea Wolfe - Birth of Violence (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mother Road (04:20)
+02. American Darkness (04:48)
+03. Birth Of Violence (04:20)
+04. Deranged For Rock & Roll (03:31)(   Читать дальше...   )Жанр: Alternative Rock, AcousticПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8A3AD43676D92E7E8FDFB18ACC3F9DA9E67FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334573   (293360) от 30.10.2019
 
 INXS - X (1990) 2011, Petrol Electric, RM. RE. [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave>
@@ -655,93 +739,6 @@ VA - Alternative Nation (1985-1994) [FLAC|Lossless|image + .cue] <Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A22D45C3D4B204725557DECC36D3EF001C1B8597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337119   (276368) от 09.11.2019
-
-Snow Patrol - Reworked (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Back the City (Reworked) (05:00)
-02. Open Your Eyes (Reworked) (04:16)
-03. Time Won't Go Slowly (03:43)
-04. Chocolate (Reworked) (03:47)(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A49F38DF272385B683435015BBEEB9580818485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337276   (274910) от 10.11.2019
-
-Alex Lahey - The Best of Luck Club (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Get Invited to Parties Anymore (04:08)
-02. Am I Doing It Right? (04:07)
-03. Interior Demeanour (03:48)
-04. Don’t Be so Hard on Yourself (04:18)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D1358648F62D9E870D5EEBF2EECAADD05D894B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082999   (274491) от 15.12.2016
-
-LP - Lost On You (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative/Indie Rock, Pop Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muddy Waters (3:47)
-02. No Witness (3:28)
-03. Lost On You (4:28)
-04. Up Against Me (3:02)(   Читать дальше...   )Жанр: Rock, Alternative/Indie Rock, Pop Rock, Folk Rock, Singer/SongwriterПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA8D534C8D1AAF2BA5EA22B4A40319ADF025A9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

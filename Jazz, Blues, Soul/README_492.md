@@ -1,3 +1,177 @@
+###  Публикация: 1704489   (114354) от 04.03.2024
+
+VA - Greatest Smooth Lounge Chill Selection Relaxing Body and Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Still (3:49)
+02. Chillaxonic - Mesmerized (4:31)
+03. Chillaxing Jazz Kollektion - Blue Pacific (4:39)
+04. Kool&Klean - Vanilla Twilight (5:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB828FDB64ED39D3C15B15C0F1E76FCF373D3C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704217   (114334) от 04.03.2024
+
+Blues Joke - Better Old Than Dead (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Blues Rock, Progressive Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At the End [00:03:39]
+02. Hater [00:03:03]
+03. Find Your Place [00:00:51]
+04. Know Your Place [00:05:11](   Читать дальше...   )Жанр: Classic Hard Blues Rock, Progressive RockПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193704E6B41F4DDF469C25254595934B71697042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704490   (114333) от 04.03.2024
+
+VA - Smooth'N'Soulful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grover Washington Jr. - Watching You Watching Me (5:28)
+02. Chic - A Warm Summer Night (6:05)
+03. Joe Sample - Put It Where You Want It (5:10)
+04. Willie Bradley - In the Meantime (feat. Gerald Alston) (4:55)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 02:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA0A8448F7868DFEDBD44195A83B8AE188CAAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704494   (114332) от 04.03.2024
+
+VA - Soothing Chill Lounge Relaxing Ultimate Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - My World (5:25)
+02. eJazz Artistry - You're Makin' Me High (4:48)
+03. Chillaxing Jazz Kollektion - It Dews (5:02)
+04. Kool&Klean - Learn to Live (3:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB821FCA0A57A65554E0AC0ED6CCED91C76E2002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704495   (114324) от 04.03.2024
+
+VA - Ultimate Chill Lounge Relaxing Soothing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Happiness (4:18)
+02. Chillaxonic - Iridescent (5:10)
+03. Kool&Klean - My World (5:25)
+04. Chillaxing Jazz Kollektion - Summer Wind (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C347856CC2F91D62409C626BF1BB853CC5528140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704485   (114308) от 04.03.2024
+
+VA - Fusion Funky Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lo Greco Bros - Temptation (6:10)
+02. AdrianoMaria - Shake It All (5:33)
+03. Faze Liquide - Diabolique (4:41)
+04. Super Bad - Holy Shit Party (4:55)(   Читать дальше...   )Жанр: Funky JazzПродолжительность: 02:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E229A58DAFA69CFFCDF30409BE9A99961E15C592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704486   (114300) от 04.03.2024
 
 VA - Greatest Jazz Lounge Smooth Instrumentals to Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -571,180 +745,6 @@ Lionel Hampton - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2EDA2BFA2E9D5F33237CC62ECBB9ACA91DE2EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705073   (113946) от 07.03.2024
-
-Barry Harris - Live at Maybeck Recital Hall, Vol. 12 (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Could Happen to You [8:37]
-02. All God's Chillun Got Rhythm [4:38]
-03. I'll Keep Loving You [6:36]
-04. She [4:07](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73AE882CA8D710FD277DBA786F99517FC025A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705075   (113945) от 07.03.2024
-
-Branford Marsalis Quartet - Crazy People Music (1990) CBS [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spartacus [8:37]
-02. The Dark Knight [12:50]
-03. Wolverine [10:40]
-04. Mr. Steepee [6:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B263C7E1BA30ED371238296693502A25D588F4F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705081   (113943) от 07.03.2024
-
-Tim Hegarty - Tribute (2014) Miles High Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Blue [7:37]
-02. Amsterdam After Dark [6:58]
-03. Simone [10:09]
-04. Ineffable [8:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB05D1F1C6762DD25410B7BAFDF8C65A7782816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705066   (113941) от 07.03.2024
-
-Scott Hamilton - Plays Ballads (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Only Miss Her When I Think of Her [4:18]
-02. Dream Dancing [6:17]
-03. 'Round Midnight [6:01]
-04. Two Eighteen [4:51](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642248437C20E463B2C806A0DE93D453CF1D9790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705069   (113940) от 07.03.2024
-
-Stephane Grappelli - Parisian Thoroughfare (1973) 1989, Black Lion [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love for Sale [5:38]
-02. Perugia [4:35]
-03. Two Cute [3:45]
-04. Fascinating Rhythm [5:04](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C2BC87F1BA25536B99BC52FA648915FF28225C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705058   (113939) от 07.03.2024
-
-Eddie "Lockjaw" Davis - On Prestige (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have Horn, Will Blow (5:17)
-02. Eddie "Lockjaw" Davis Big Band - Trane Whistle (Album Version) (6:19)
-03. Very Saxy (Remastered 2007/Rudy Van Gelder Edition) (8:16)
-04. Stardust (6:45)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE05D3C0774C54A91F8398FD70A713C513627871
 ```
 
 https://mybot314.ru/tekegram_catalog/

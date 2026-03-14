@@ -1,3 +1,177 @@
+###  Публикация: 1074949   (323707) от 21.11.2016
+
+Philip Sayce - Innerevolution (2010) [FLAC|Lossless|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Changes  (05:13) 
+02|  Scars  (03:07) 
+03|  Bitter Monday  (04:35) 
+04|  Anymore  (03:49) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEC21053810016D553C3096E71325DB97178025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181621   (323639) от 07.11.2017
+
+VA - Tender Jazz with Sexappeal (2014) [MP3|320 Kbps] <Vocal Jazz, Lounge, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabln, Mia Cooper – If You Want Me (02:52)
+02. Club des Belugas – Sweet Lovln’ (03:40)
+03. Tower Of Power – Me & Mrs. Jones (05:37)
+04. Karen Souza – My Foolish Heart (03:59)(   Читать дальше...   )Жанр: Vocal Jazz, Lounge, Smooth JazzПродолжительность: 01:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B7372B7891FA2B527C4FE52EC815954D7879F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074630   (323599) от 21.11.2016
+
+Paul Taylor - Prime Time (2011) [APE|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Push To Start (3:50)
+02. Moment Of Truth (4:32)
+03. Don't Wanna Let You Go (4:23)
+04. Cant Nobody (3:53)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E97CBD1148B57831E8658189E4A29618BAB36B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582350   (323590) от 09.10.2022
+
+Sonny Stitt - 12! (1972) 1999, 32 Jazz [WavPack|Lossless|image + .cue] <Hard Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 12! [5:03]
+02. I Got It Bad [4:18]
+03. I Never Knew [6:43]
+04. Our Delight [5:31](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D0321A87A05E7E1BC3EC456B6C21DD6F65A6FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259188   (323405) от 02.11.2018
+
+Patti Austin - For Ella (2002) Playboy Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Close for Comfort [3:59]
+02. Honeysuckle Rose [4:14]
+03. You'll Have to Swing It (Mr. Paganini) [4:23]
+04. Our Love Is Here to Stay [5:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADA9263BC773079169F551133C9B30F395D62F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331583   (322947) от 16.10.2019
+
+Elmo Hope - Five Classic Albums 1953 - 1961  (2017) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322947.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Mo Is On [2:51]
+02. Sweet And Lovely [2:59]
+03. Happy Hour [2:53](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:070529EC510525BD9D0EB2F1D0B4EA60920B1671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421052   (322333) от 03.11.2020
 
 Bob Brookmeyer - One More: Music Of Thad Jones (2004) 2005, IPO Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
@@ -571,180 +745,6 @@ God's Property - From Kirk Franklin's Nu Nation (1997) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3C796FAEC247C25FC667EE4EE40DC409332AFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075277   (321282) от 22.11.2016
-
-Eddy "The Chief" Clearwater - Reservation Blues (2000) [FLAC|Lossless|image + .cue] <Blues, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Winds Of Change  (04:54) 
-02|  I Wouldn't Lay My Guitar Down  (04:26) 
-03|  Find Yourself  (05:34) 
-04|  Reservation Blues  (06:14) (   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA7EC319DFCD717C980E763F6EFF8F5833961E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075435   (321168) от 22.11.2016
-
-Tsuyoshi Yamamoto Trio - Summertime (1976) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Like Someone In Love [08:39]
- 02.If You Could See Me Now [06:34]
- 03.Misty [07:51]
- 04.Summertime [07:59](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F960A4B36D8603F8411E0B86A8306E173D8EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075329   (321003) от 22.11.2016
-
-Beegie Adair - The Ultimate Christmas Playlist (2016) [MP3|320 Kbps] <Jazz, Xmas>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321003.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I’ve Got My Love To Keep Me Warm (3:15)
- 2. It’s The Most Wonderful Time Of The Year (4:25)
- 3. White Christmas (2:23)
- 4. God Rest Ye Merry Gentlemen (3:39)(   Читать дальше...   )Жанр: Jazz, XmasПродолжительность: 01:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DECD56C59E9AB1ADD1E9F2534525FCB72FF19AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582655   (320980) от 10.10.2022
-
-John McLaughlin And Mahavishnu - Adventures In Radioland (1993) [FLAC|Lossless|tracks + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wait - 5:35
-02. Just Ideas - 2:00
-03. Jozy - 5:25
-04. Half Man - Half Cookie - 2:56(   Читать дальше...   )Жанр: FusionПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD473659AF5E303B6EADAA1A198A562B521767B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582566   (320738) от 10.10.2022
-
-VA - Sexy Slow Jamz (2022) [MP3|320 Kbps] <R&B, Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jhene Aiko, Swae Lee - Sativa [04:37]
-02. Mint Condition - Breakin' My Heart (Pretty Brown Eyes) [05:56]
-03. Marco Mckinnis - Learn [03:34]
-04. Adrian Marcel - I'm Still [02:55](   Читать дальше...   )Жанр: R&B, Jazz, SoulПродолжительность: 01:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163FF2946B6491DE1C0E45F07C42822819DA7CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 263508   (320327) от 29.11.2010
-
-Joe Bonamassa - Black Rock (2010) [MP3|320 kbps]<Blues / Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steal Your Heart Away
-02. I Know a Place
-03. When the Fire Hits the Sea
-04. Quarryman's Lament(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED1A47B12CEFCDD8252565661AAD6B7CF731DF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

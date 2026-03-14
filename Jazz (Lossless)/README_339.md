@@ -1,3 +1,90 @@
+###  Публикация: 1767467   (101150) от 22.12.2024
+
+Mamiko Watanabe - Being Guided By The Light (2024) Jojo Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Being Guided by the Light [6:31]
+02. Pas de Trois [6:29]
+03. The Peacocks [7:19]
+04. The Scene Is Clean [4:42](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B8C919C0CE688D8C455230CB54BC237ACE1A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767561   (101148) от 22.12.2024
+
+VA - Funky For A Sunny Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sonny King - Live For Funk (3:38)
+02.  The Smoke Orchestra - Henrietta Leavitt and the cepheids variables (3:23)
+03.  Pomante - Bua (4:09)
+04.  Raffaele "Lello" Becchimanzi - One Guitar Night (Afro Club Mix) (7:41)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:367B20C699587F89273737E1BD1AACC2B8AE1315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767574   (101146) от 22.12.2024
+
+Pomante - Frames (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Back To Milano (3:12)
+02.  Sharkisha (3:11)
+03.  Horns Island (3:12)
+04.  Sarah (3:02)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B70BB97675E4A3AE8EE4435DF75B32816919903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768172   (101131) от 24.12.2024
 
 Mal Waldron - One Entrance, Many Exits (1982) 2003, Quicksilver [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -712,111 +799,6 @@ VA - Electro Swing IV mixed by Bart & Baker (2011) [FLAC|Lossless]<Nu Jazz, Swin
 08.Lazy Flow - Mambo Fever (2:10)
 09.Biboulakis feat. Nina Zitlin - Is That Too Much To Ask ? (3:03)
 10.Enzo Siffredi feat. The Alls.. - Jungle Dancing (2:40)(   Читать дальше...   )2011Жанр: Nu Jazz, Swing, Modern JazzПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467246   (96569) от 13.03.2012
-
-Carol Welsman - Memories Of You: Carol Welsman sings Benny Goodman and Peggy Lee (2009) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be That Way (3:49)
-02. Why Don't You Do Right (2:45)
-03. Moonglow (3:29)
-04. Stompin' At The Savoy (3:10)
-05. As Time Goes By (5:47)
-06. When You're Smiling (4:50)
-07. Johnny Guitar (4:11)
-08. Fever (4:02)
-09. Goody Goody (2:54)
-10. The Very Thought Of You (3:09)(   Читать дальше...   )2009Жанр: Vocal JazzПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467414   (96543) от 13.03.2012
-
-Alex Skolnick Trio - Veritas (2011) [FLAC|Lossless]<Modern Jazz, Fusion, Guitar Virtuoso>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panna
-02. Bollywood Jam
-03. Song Of The Open Road
-04. Veritas
-05. Fade To Black
-06. Alone In Brooklyn
-07. 99/09
-08. Path Of Least Resistance
-09. Flections
-10. The River Lethe(   Читать дальше...   )2011Жанр: Modern Jazz, Fusion, Guitar VirtuosoПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467206   (96531) от 13.03.2012
-
-Thelonious Monk - The Essential (2003) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thelonious (3:02)
-02. Ruby My Dear (3:08)
-03. Well You Needn't (2:59)
-04. April in Paris (3:21)
-05. Monk's Mood (3:08)
-06. In Walked Bud (2:57)
-07. Round Midnight (3:12)
-08. Evidence (2:35)
-09. Misterioso (3:23)
-10. Epistrophy (3:08)(   Читать дальше...   )2003Жанр: JazzПродолжительность: 00:49:20
 
 ## Скачать торент
 ```bash

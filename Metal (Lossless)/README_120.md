@@ -1,3 +1,361 @@
+###  Публикация: 1040566   (585348) от 06.08.2016
+
+Joe Stump's Reign of Terror - Light In The Sky (1995) Japanese Edition [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Look Back    03:52
+02. Broken Heart    05:03
+03. Highway Star (Deep Purple cover)    06:15
+04. I Need Your Love    05:25(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C2126F59ED0529465F52669C8C42E5E08833DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552842   (584828) от 23.05.2022
+
+Stonehaven - #Hardlife (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Not Guilty (00:00:30)
+02 - Pull The Trigger (00:03:27)
+03 - Traitor (00:03:45)
+04 - Mother (Respect&Love) (00:04:39)(   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7377CB157DC5850102C21AF6A8F53B001486B12E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552895   (584768) от 23.05.2022
+
+Bodom After Midnight - Paint The Sky With Blood (2021) EP, Japanese Edition [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bodom After Midnight - финская мелодик-дэт-метал супергруппа, основанная Алекси Лайхо в 2020 году после распада Children of Bodom.
+Лайхо умер в конце 2020 года в возрасте 41 года. До этого коллектив успел отыграть несколько концертов, исполнив песни Children of Bodom, и записать дебютный мини-альбом Paint the Sky with Blood, выход которого состоялся 23 апреля 2021 (   Читать дальше...   )1. Paint The Sky With Blood
+2. Payback’s A Bitch
+3. Where Dead Angels LieЖанр: Death MetalПродолжительность: 00:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0DA13D9ABDF323FAB2AE8A72FB63730559C062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301601   (584351) от 12.05.2019
+
+Akrotheism - Behold the Son of Plagues (2014) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sepsis Ex Nihilo 01:43
+02. Antimatter as I 05:45
+03. Hanged in the Shaft of the Abyss 06:42
+04. Behold the Son of Plagues 07:31(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDADD19D676CE05C131AEE4D75328CD35D94C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301600   (584350) от 12.05.2019
+
+Beatrik - Requiem of December (2005) [APE|Lossless|image + .cue] <Black Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Funeral to Come [10:30]
+02. Requiem of December [07:21]
+03. Eternal Rest [05:24]
+04. The Last Wandering [08:07](   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4685962F8B9AD651F3BC8AC3492495FFACFFBE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301572   (584348) от 12.05.2019
+
+Psycroptic - As the Kingdom Drowns (2018) [WavPack|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - We Were the Keepers (3:49)
+02 - Frozen Gaze (4:07)
+03 - Directive (3:29)
+04 - Deadlands (3:25)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0DEE24A302C286CE9D1244033E23CF6C6244DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301578   (584347) от 12.05.2019
+
+Julie Laughs Nomore - From The Mist Of The Ruins (2001) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mistress of Death 04:30
+02. Children of the Empty Cross 04:51
+03. From the Mist of the Ruins 05:39
+04. Bringer of Misery 04:30(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF33F9D3DDAE92773464AC649EE156FD8221CFFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301575   (584345) от 12.05.2019
+
+Northlane - Discoveries (2011) [FLAC|Lossless|image + .cue] <Metalcore, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dispossession (3:43)
+02. Abrasumente (4:04)
+03. Comatose (4:13)
+04. Transcending Dimensions (3:43)(   Читать дальше...   )Жанр: Metalcore, Progressive MetalПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09962CB96FF539986ED76A32E78A1C961A645EEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301567   (584344) от 12.05.2019
+
+Astronoid - Astronoid (2019) [FLAC|Lossless|image + .cue] <Melodic Progressive Post Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Color (5:21)
+02. I Dream in Lines (4:50)
+03. Lost (6:20)
+04. Fault (5:34)(   Читать дальше...   )Жанр: Melodic Progressive Post MetalПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2078CAF1430FF1E5F57D9A70AD056C269F3BD08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301582   (584172) от 12.05.2019
+
+Tyrant's Reign - Tyrant's Reign (2004) [APE|Lossless|image + .cue] <Speed Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thrashing Metal Maniacs [00:05:22]
+02. Star Chamber [00:02:25]
+03. S.O.S. [00:04:45]
+04. Kill Or Be Killed [00:03:52](   Читать дальше...   )Жанр: Speed Metal, Thrash MetalПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F51BF7CEAAC7FE1E9306CC358B278389E7BAFD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358402   (584040) от 04.07.2011
+
+Born of Osiris - The Discovery (2011) [WavPack|Lossless]<Deathcore, Progressive Metal, Technical Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584040.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Follow The Signs 3:50
+2. Singularity 3:33
+3. Ascension 2:27
+4. Devastate 4:35
+5. Recreate 4:00
+6. Two Worlds Of Design 3:13
+7. A Solution 2:07
+8. Shaping The Masterpiece 4:39
+9. Dissimulation 2:47
+10. Automatic Motion 2:42(   Читать дальше...)Жанр: Deathcore, Progressive Metal, Technical DeathПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357609   (583934) от 04.07.2011
+
+Be'Lakor - 2 альбома (2007/2009) [APE/FLAC|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venator
+02. From Scythe to Sceptre
+03. Outlive the Hand
+04. Sun's Delusion
+05. Held in Hollows
+06. Husks
+07. Aspect
+08. Countless SkiesЖанр: Dark Metal, Melodic DeathПродолжительность: 0059:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553060   (583810) от 24.05.2022
 
 Crucify The Faith - As The World Ends (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
@@ -397,358 +755,6 @@ Unleash the Archers - Time Stands Still (2015) [FLAC|image+.cue]<Power/Melodic D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF148C4A662414B39BD4D22A9AAD91CAC4073F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359876   (580890) от 07.07.2011
-
-Battle Beast - Steel (2011) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter The Metal World [04:38]
-02. Armageddon Clan [05:01]
-03. The Band Of The Hawk [04:39]
-04. Justice And Metal [02:33]
-05. Steel [04:20]
-06. Die-Hard Warrior [02:55]
-07. Cyberspace [03:58]
-08. Show Me How To Die [04:19]
-09. Savage And Saint [05:39]
-10. Iron Hand [04:04](   Читать дальше...)Жанр: Heavy MetalПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041862   (580653) от 11.08.2016
-
-Black Peaks - Statues (2016) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Math Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Built Castles (4:18)
-02. Crooks (3:02)
-03. Say You Will (5:07)
-04. Hang 'Em High (7:07)(   Читать дальше...   )Жанр: Post-Hardcore, Math RockПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927BBB2D9E1D86429CDCF429BEC4A34D2D5B6CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041929   (580539) от 11.08.2016
-
-VA - Give Us Moore: Gary Moore Tribute (2004) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dogpound & Peter Tagtgren – Led Clones
-02. ArabesqueЖанр: Hard Rock, Heavy Metal, InstrumentalПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0626C1340D90F97E1F2295E798F0A72491AFA021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920202   (580195) от 22.07.2015
-
-Viрer Solfа - Carving an Icon (2015) [FLAC|image+.cue]<Melodic Black/Gothic/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deranged
-02. Funeral of Kings
-03. Carving an Icon
-04. The Toxic Thousands(   Читать дальше...   )Жанр: Melodic Black/Gothic/Power MetalПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDAB53CDB16867FE00656DE3F635B09CD136C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920203   (580187) от 22.07.2015
-
-StormНammer - Echoes of a Lost Paradise (2015) [FLAC|image+.cue]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rememberance
-02. Glory Halls of Valhalla
-03. Fast Life
-04. Echoes of a Lost Paradise(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAF9F1A2CDBA436D9C5491E71A16F6D003AA8BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553902   (580091) от 28.05.2022
-
-Dewok - Armonía Gris (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Armonia Gris (00:06:22)
-02 - No Esperes Mas (00:04:30)
-03 - La Llegada (00:02:15)
-04 - Por Perderme (00:04:32)(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52E1CAE324D582A526E89A8E1378BA08E61C893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553754   (580089) от 28.05.2022
-
-DVL - Hush (2022) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Among Us (00:05:29)
-02 - Dead Man's Switch (00:05:02)
-03 - Eternity (00:04:25)
-04 - Dread (00:04:44)(   Читать дальше...   )Жанр: NWOBHM, Progressive MetalПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A91F6298BBB805E1A8C61AEE9829323868A8BAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553762   (580083) от 28.05.2022
-
-Diskordia - Requiem For The Ones Who Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Merridean (00:05:32)
-02 - Extintion (00:04:48)
-03 - Cosmic Storm (00:04:40)
-04 - Dimensional Collapse (00:04:51)(   Читать дальше...   )Жанр: Symphonic Doom MetalПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4021524EF6D990C4F8A2846A5436CBC65C79859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553683   (580082) от 28.05.2022
-
-Circle Of Silence - Walk Through Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down To Hell (0:48)
-02. Prisoner Of Time (4:36)
-03. Walk Through Hell (4:56)
-04. United (6:23)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E08A3AA8C13D37AB1AAB5211CA75CA23BFA6C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553766   (580079) от 28.05.2022
-
-The Heretic Order - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Children Of The Sun
-03. King Of The Damned
-04. Dark Shadows(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C6A5ED3EFA95B14A9E02537D8B614DC8BFFBFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554039   (579107) от 29.05.2022
-
-Horehound - Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hiraeth (00:06:27)
-02 - Godful (00:05:17)
-03 - Sword on Fire (00:05:23)
-04 - The Agent (00:05:53)(   Читать дальше...   )Жанр: Stoner Doom MetalПродолжительность: 00:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B780162C5A9562600EB54F5126A85D7AE6EA76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554076   (579101) от 29.05.2022
-
-Secret Alliance - Solar Warden (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're All In
-02. The Countdown
-03. Walking Man
-04. Last Day(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF211124461AB597E354A64815D22E05941079F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

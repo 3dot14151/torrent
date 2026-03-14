@@ -1,3 +1,32 @@
+###  Публикация: 1073484   (345545) от 16.11.2016
+
+VA - Новинки С Разных Популярных MP3 Сайтов (16.11.) (2016) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Френды & Саша Спилберг - Всегда Буду С Тобой 3:56
+02. Bahh Tee - Никотин (DJ Karp Remix) 4:16
+03. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye 4:11
+04. Shami & Марина Алиева - Ты Улыбайся 3:57(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 02:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A2876297350C2237F0BC4085E4A8943F3FF122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257556   (344726) от 26.10.2018
 
 The Prodigy - No Good (2016) Remix [MP3|320 Kbps] <Deep House>
@@ -736,35 +765,6 @@ VA - Dance Hits Romanian Style 2016 (Extended Versions) (2015) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A93E757530DA0B39B822987C7F1C23425AFB24B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074683   (338600) от 19.11.2016
-
-VA - O3 Greatest Christmas Hits (2016) [MP3|320 Kbps] <Glam Rock, Synthpop, Christmas Pop, New Wave, Holiday>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Thank God It's Christmas (2011 Remaster) 04:21
-02. Pentatonix - Little Drummer Boy 04:15
-03. Wham! - Last Christmas 04:23
-04. Justin Bieber - Santa Claus Is Coming To Town 03:36(   Читать дальше...   )Жанр: Glam Rock, Synthpop, Christmas Pop, New Wave, HolidayПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00A73D7C2321C124E22FA0B3C87D4FA5E2F2FA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

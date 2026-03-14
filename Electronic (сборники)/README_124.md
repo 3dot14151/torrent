@@ -1,3 +1,32 @@
+###  Публикация: 1050938   (535129) от 10.09.2016
+
+VA - Global Music 155 DJ Vector Beauty (2016) [MP3|320 Kbps] <House, Electro House, Stadium Trance, Melodic Tech, Bounce, Dutch, Bigroom>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. R3HAB  -  Hakuna Matata (Hardwell Edit)  3:30
+002. Paul Oakenfold  -  Toca Me (Club Mix)  5:42
+003. Blasterjaxx & DBSTF  -  Parnassia (Extended Mix)  5:19
+004. Fedde Le Grand  -  The Noise  3:42(   Читать дальше...   )Жанр: House, Electro House, Stadium Trance, Melodic Tech, Bounce, Dutch, BigroomПродолжительность: 13:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7AFCE86E6AA3906FA653DBBC0D1C1EE2D9312E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051029   (535126) от 10.09.2016
 
 VA - DJ Bass Master (2016) [MP3|320 Kbps] <Dubstep, Drumm And Bass>
@@ -716,35 +745,6 @@ VA - Comfortable Chillout & Lounge (2015) [MP3|320 кб/с]<Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99ACA32FF6E6083E53CF5F5D07A0F14B53B6B700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155656   (531684) от 04.08.2017
-
-VA - Trance Traveling 91 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Denis Kenzo & Claire Willis - U & I  5:00
-02.  Orjan Nilsen - Swoosh  2:37
-03.  Alpha 9 - Skin  4:28
-04.  Linkin Park - In The End (Markus Schulz Tribute Remix)  5:00(   Читать дальше...   )Жанр: TranceПродолжительность: 03:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612F60A9124A088EA53FA4D79FB673059624FAD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

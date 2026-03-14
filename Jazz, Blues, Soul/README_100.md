@@ -1,3 +1,61 @@
+###  Публикация: 1111997   (845236) от 07.03.2017
+
+Jason Moran - All Rise (2014) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Put Your Hands On It [00:21]
+ 02.Ain't Misbehavin' [03:43]
+ 03.Yacht Club Swing [04:03]
+ 04.Lulu's Back In Town [02:39](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D765AB26298B0055A3227CB0DF0442919318D334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112020   (845235) от 07.03.2017
+
+George Cables Trio - Dark Side, Light Side (1997) SteepleChase [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dolphin Dance [09:41]
+ 02.Dark Side, Light Side [09:16]
+ 03.Ruby, My Dear [07:38]
+ 04.Alone Together [07:26](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE148EA47C2C7EC1A7F64F93FB527EAEA9D9D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111993   (845234) от 07.03.2017
 
 Joe Lovano - Landmarks (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -682,64 +740,6 @@ VA - Voices in Lounge, Vol. 2 (20 Top Songs with Best Vocal Performances) (2016)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF6C443DCA228ADA27C933B40D7B23A9BF4D29B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378999   (843051) от 27.04.2020
-
-Kishi Mitsuaki Trio And Harry Allen (2017) Swing Bros. Records Inc. [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Won't Dance [5:52]
-02. Come Dance with Me [5:25]
-03. Let's Face the Music and Dance [4:57]
-04. By the Time I Get to Phoenix [5:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2698891220555567BAACC3ECEF31118DBC21AC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500193   (842721) от 05.10.2021
-
-Anita O'Day - The Jazz Stylings Of Anita O'Day (1955 - 1962) Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeysuckle Rose [3:18]
-02. Four [2:54]
-03. Trav'lin' Light [3:38]
-04. Four Brothers [2:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B6F405246FF948CCAD0DA12D824D968B0C028B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 546430   (478971) от 13.09.2012
+
+VA - Жажда Скорости - Best of the Best (2012) [MP3|192 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Global Dj Izek feat. Dj Salamandra - You Cut Me Open (Original Vocal Mix)
+02. Dr. Kucho! - Doing Better Without You (Original Mix)
+03. Heatbeat - Chow Mein (Radio Edit)
+04. Afrojack Vs. Adventure Club - Wait! They Dont Rock The House (PeaceTreaty Bootleg)
+05. Holly Drummond - Out Of My Mind (System Remix)
+06. Aly & Fila meet Roger Shah feat. Adrina Thorpe - Perfect Love (Original Mix)
+07. Igor Garnier feat. Syntheticsax - Forever & Ever (Extended Mix)
+08. Balthazar & JackRock - Come (Svetlio Remix)
+09. Igor Voevodin & DJ Emil & Syntheticsax - Sax Sex (Original Mix)
+10. Christian Burns & Stefan Dabruck - Bullet (Club Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 08:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39EA7783D6AF091635F8C0C9169DEAAD14B17748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546422   (478842) от 13.09.2012
 
 VA - Клубняк в Тачку Vol. 3 (2012) [MP3|320 кб/с]<Dance, Club>
@@ -737,35 +772,6 @@ VA - Music News vol.33 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76BA1D8D5C15B1C326D17AC643B35D5411D109F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320180   (473039) от 17.08.2019
-
-VA - Зайцев.нет Лучшие новинки Августа 2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473039.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Swanky Tunes feat. Jantine - I'll Live On (3:05)
-2.Maruv - Между нами (2:59)
-3.Ольга Бузова - Лайкер (3:44)
-4.Rick Ross - Turnpike Ike (4:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B141C6086BA9F99F7F4AEF4D549A13923ED80C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1171052   (597590) от 03.05.2022
+
+VA - XXXL Европейский 3 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modjo - Lady (Hear Me Tonight)
+02. Spiller - Groovejet (If This Ain't Love) (Radio Edit)
+03. Billie Piper - Day & Night
+04. Camilla Brinck - Bye Bye forever(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B0C49B3A92AD36814265E7525C38ED20D46478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162073   (597588) от 03.05.2022
+
+Argo/ Арго - Discophonia/Дискофония (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597588.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A1
+A2 A2
+A3 A3
+A4 A4(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5137EDBBB84445E7956DAAAABB28F35A3E8041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172599   (597582) от 03.05.2022
+
+VA - Heavenly Bodies: Original Motion Picture Soundtrack (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock, Soft Rock, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597582.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bonnie Pointer - The Best In Me
+A2 Sparks - Breaking Out Of Prison
+A3 The Tubes - Out Of Control
+A4 Cheryl Lynn - At Last You`re Mine(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, SoundtrackПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB6F2B7D781BB17B0604F73581BFFBFE9C0B110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314976   (597581) от 03.05.2022
+
+Middle Of The Road - It's the Middle Of The Road (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Yellow Boomerang
+02. Universal Man
+03. See The Sky(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CAF7AAD55B9C0712280BAD210322E49762FAB7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039325   (597369) от 31.07.2016
 
 Uriah Heep - Innocent Victim (1977) Reissue, 1978, Bronze [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
@@ -629,128 +745,6 @@ C4. Mr. Blue Sky (5:05)(   Читать дальше...   )Жанр: Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93C2844022BD79A6C25A115CF23B4C1369958FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358192   (585889) от 02.07.2011
-
-Sandra - Everlasting Love (1988) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Everlasting Love (PWL Remix) [03:58]
- 02.  (I'll Never Be) Maria Magdalena [03:58]
- 03.  Secret Land [04:42]
- 04.  Heaven Can Wait [04:03]
- 05.  Hi! Hi! Hi! [04:10]
- 06.  We'll Be Together [04:09]
- 07.  In the Heat of the Night [05:19]
- 08.  Around My Heart [03:18]
- 09.  Little Girl [03:14]
- 10.  Loreen [04:11]1988Жанр: SynthpopПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552995   (584759) от 23.05.2022
-
-Boston - Don't Look Back (1978) Santa Maria Press [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Prog Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584759.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Don't Look Back
-A2 The Journey
-A3 It's Easy
-A4 A Man I'll Never Be(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A87CEE71C750B5A7E2BE0A764DDE2466524F633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041013   (584456) от 07.08.2016
-
-Ray Charles - Selected Songs (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Funk, Soul,  Rhythm & Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584456.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Can't Stop Loving You
-A2 Georgia On My Mind
-A3 Hit The Road Jack
-A4 Take These Chains From My Heart(   Читать дальше...   )Жанр: Funk, Soul,  Rhythm & BluesПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72222CA9D886E21DFC7CEDA0568C75FE740FF782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041019   (584429) от 07.08.2016
-
-Группа Стаса Намина - Сюрприз Для Мсье Леграна (1983) Repress 1984 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584429.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Подводный Замок
-А2 Лето Пикассо
-А3 Друг Покинул Этот Мир
-А4 Парафраз На Темы Песен(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04180D0FFEEB4A4F830CFF26E91B74A9F63BA69A
 ```
 
 https://mybot314.ru/tekegram_catalog/

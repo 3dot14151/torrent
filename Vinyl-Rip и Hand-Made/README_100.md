@@ -1,3 +1,117 @@
+###  Публикация: 1800331   (15841) от 02.06.2025
+
+The Haunted - Studio Albums (10 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15841.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Haunted — шведская метал-группа, образованная в 1996 году басистом Йонасом Бьорлером, барабанщиком Адрианом Эрландссоном и гитаристом Андерсом Бьорлером, после распада At the Gates.1998 - The Haunted
+2000 - Made Me Do It
+2002 - One Kill Wonder
+2004 - rEVOLVErЖанр: Melodic Death/Thrash/Groove MetalПродолжительность: 08:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6A41A02A90592DB453FBFC9A7DC3223DD67D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800620   (15642) от 04.06.2025
+
+Manowar - Kings Of Metal (1988)[APE|24/96|image + .cue|Vinyl-Rip]  <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wheels Of Fire
+02. Kings Of Metal
+03. Heart Of Steel
+04. Sting Of The Bumblebee(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A17CBD52C4C5C51BA168FD8D3B5FC49D49E1450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951021   (15620) от 05.06.2025
+
+The Mamas & The Papas - Best Of The Mamas & The Papas: California Dreamin' (1977) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Folk Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15620.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	California Dreamin'
+A2	Creeque Alley
+A3	Glad To Be Unhappy
+A4	Safe In My Garden(   Читать дальше...   )Жанр: Folk Rock, Pop RockПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC979B6F720A3C9B6DC25962AB31B6B97BD77F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800686   (15539) от 05.06.2025
+
+Umpfel - Studio Albums (2 releases) (2015-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Umpfel — прогрессивный рок/метал-проект из Норвегии. В его состав входят Анунд Викингстад ​​(гитара и бас) и Андреас Скорпе Шён (ударные, клавиши и вокал).2015 - Cactus
+2019 - As the Waters Cover the SeaЖанр: Prog Rock, Progressive MetalПродолжительность: 2:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805FE40EBBF06B349778B2C36566026E039EA26D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761053   (15506) от 06.06.2025
 
 Linkin Park - Studio Albums (10 releases) (2000-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Electronic Rock, Rap Rock>
@@ -624,122 +738,6 @@ A4 Believer(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F0F2142130DC3800D13C567AC2C80EC241EAF30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806191   (11817) от 11.07.2025
-
-Mariah Carey - The Best (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Funk, Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11817.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A:
-01. Dreamlover
-02. Without You
-03. Now That I Know(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CC2DD9E772D029757D2EEB44ADF787C87D04EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806357   (11715) от 12.07.2025
-
-Chris Rea - The Best Of (1992) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11715.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A:
-01. Touche D'Amour
-02. All Summer Long
-03. Wired To The Moon(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58541A7E2D4D0F2D85853BEEE52620ADED271CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806383   (11695) от 12.07.2025
-
-VA - Балкантон Приглашает В Дискотеку (1986) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11695.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Васил Найденов - Полный порядок
-A2 Роксана Белева - Песенка Сверчков
-A3 ВГ ''Стил'' - Третий Лишний
-A4 Венета Рангелова - Районное Кино(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B745228240B1FD15CBA02AA1F6E5892C892A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806987   (11294) от 16.07.2025
-
-Demolition Hammer - Tortured Existence (1990) Released, 2023, Century Media [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11294.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 .44 Caliber Brain Surgery
-A2 Neanderthal
-A3 Gelid Remains
-A4 Crippling Velocity(   Читать дальше...   )Жанр: Thrash Metal, Groove MetalПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E097900CB91043353303081A85BAE03A83BE440E
 ```
 
 https://mybot314.ru/tekegram_catalog/

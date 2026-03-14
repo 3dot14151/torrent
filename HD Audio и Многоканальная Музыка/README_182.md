@@ -1,3 +1,148 @@
+###  Публикация: 1781566   (70190) от 23.02.2025
+
+Bury Your Dead - Studio Albums (7 releases) (2003-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hardcore, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bury Your Dead - американская группа из Бостона, штат Массачусетс, сформированная в 2001 году.2003 - You Had Me At Hello
+2004 - Cover Your Tracks
+2006 - Beauty and the Breakdown
+2008 - Bury Your DeadЖанр: Hardcore, MetalcoreПродолжительность: 03:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1927BCD5C264DD0F320F733431C923E1FC6E168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782072   (70115) от 26.02.2025
+
+No Money Kids - Fireworks (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  BIG (2:15)
+02.  Story of the Man (2:38)
+03.  Motel Way of Life (2:52)
+04.  Broken Bones (3:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28FAFB31C243C2C4C41CD3C408B7E5BAA4AAD66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782066   (70102) от 26.02.2025
+
+Mary Ann Hawkins - Helsinki Surf City (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Surf Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Is Back! (2:28)
+02.  Stepa - Beatlesin viisaat sanat (feat. Stepa) (2:10)
+03.  Haunted House Chemnitz (2:02)
+04.  Hi, This is Roberto (3:20)(   Читать дальше...   )Жанр: Surf RockПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1869045E837187A09C2D8AF438687AC567C237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782062   (70100) от 26.02.2025
+
+Gyasi - Here Comes The Good Part (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sweet Thing (2:58)
+02.  Lightning (2:46)
+03.  Snake City (2:46)
+04.  She Says (2:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDC794B4E061B4E10215C64CF62A15171FAE783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782067   (70098) от 26.02.2025
+
+Mellow Blues - Mellow Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tropical Blues Jam (2:05)
+02.  Mr Postman (4:02)
+03.  Aye Aye (4:03)
+04.  Coffeeshop Blues (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B923F0D3B03FEC94C743E94D9ACC20921573FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782070   (70097) от 26.02.2025
 
 Nemoy and the NPCs - Warzone Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -599,151 +744,6 @@ Blutengel - Damonen : Sturm (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F22691F46A89877E81807D94E9213EBC7E625AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782602   (69968) от 01.03.2025
-
-(hed) Planet Earth - Best of Unauthorized (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore, Nu Metal, Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Raise Hell
-02 – Wake Up
-03 – Bartender
-04 – Killing Time(   Читать дальше...   )Жанр: Rapcore, Nu Metal, HardcoreПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E299ED8E983FE0A16EEF7D9E69700673F60239E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782447   (69967) от 01.03.2025
-
-Untimely Demise - Studio Albums (6 releases) (2009-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Untimely Demise - канадская метал-группа из Саскатуна, Саскачеван.2009 - Full Speed Metal (EP)
-2010 - City Of Steel
-2013 - Systematic Eradication
-2016 - Black WidowЖанр: Thrash MetalПродолжительность: 03:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEF3EEEC755143695A0687DFE87B2F8B96A4D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782682   (69965) от 01.03.2025
-
-Addicted CH - Time Is Endless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Time Is Endless (01:22)
- 02 - Karma (05:19)
- 03 - Unlighten Sky (05:18)
- 04 - The Sin (04:38)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B670CBF85E18032C45B5C54F1308ECF04061114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782591   (69963) от 01.03.2025
-
-Elderbrook - Another Touch (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Part Of You
-02 – Shallow Water
-03 – Afters
-04 – Sunshine(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2255D5DB8066F9CAED9D53978DD4E10B53374A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782606   (69960) от 01.03.2025
-
-Rick Springfield - Big Hits: Rick Springfield's Greatest Hits, Vol. 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock, Pop Rock, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – I’ll Make You Happy
-02 – What’s Victoria’s Secret
-03 – The Man T
-04 – Wide Awake(   Читать дальше...   )Жанр: Melodic Rock, Pop Rock, RockПродолжительность: 01:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC9E8B3260D03127C4C56DA1A51916108980D03
 ```
 
 https://mybot314.ru/tekegram_catalog/

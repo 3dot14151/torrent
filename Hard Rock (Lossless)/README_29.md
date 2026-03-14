@@ -1,3 +1,119 @@
+###  Публикация: 326030   (725751) от 21.04.2011
+
+Firehouse - 7 Студийных альбомов (1990 - 2003) [FLAC|Lossless]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_725751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firehouse - легендарная группа, исполняющая мелодичный коммерческий Хард Рок. Стартовый состав C.J. Snare, Perry Richardson, Bill Leverty и Michael Foster именовался "White Heat", но оказалось что в Канаде уже существует группа под таким названием - так появился "Firehouse".Альбомы:
+1990 - Firehouse
+1992 - Hold Your Fire (Japan)
+1995 - 3(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 05:40:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128967   (724841) от 27.04.2017
+
+Johnny Crash - Unfinished Business (2008) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724841.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Damnation Alley
+2 Monkey See Monkey Do
+3 Mama Don't Care (What She Don't See)
+4 Renegade(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D92F1D5CC5B6E972BCEFF9C3E5DB3654270DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023496   (724554) от 05.06.2016
+
+Graham Bonnet - Back Row In The Stalls (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes the Rain
+02. What's This 'Ere Then
+03. Private Eye
+04. Ghost Writer in My Eye(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873461C367BA46A29CB108C91ABE3B22806E57C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023492   (723820) от 05.06.2016
+
+Led Zeppelin - BBC Sessions (1997) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+
+01. You Shook Me (5:15)
+02. I Can't Quit You Baby (4:24)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 02:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA61BEDC5FF8E809835AC2A9798D08E04315879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129162   (722265) от 28.04.2017
 
 Uriah Heep - Demons And Wizards (1972) 2CD, Remastered, 2017, Sanctuary Records [FLAC|Lossless|image + .cue]<Hard Rock>
@@ -629,122 +745,6 @@ John West - Earth Maker (2002) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3EA7B7A7E221E41BF7E79DC5B26D23B008694F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532158   (714840) от 19.02.2022
-
-Sleepwulf - Sunbeams Curl (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satan Is King
-02. Green Man Dead
-03. Sex Magic Manifestation
-04. Stoned Ape(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF700E11B5ECFC025ACF8D95DBF8EDDDBD966BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532286   (714832) от 19.02.2022
-
-Mystery - Live Life Loud (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Revolution
-02. To My Knees
-03. Lust Control
-04. All We Need Tonight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314AAAA1137CDC8089F448C22407C4C86934F932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532160   (714829) от 19.02.2022
-
-Manic Sinners - King Of The Badlands (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drifters Union
-02. King Of The Badlands
-03. Anastasia
-04. Ball And Chain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305B3F9AF95634E150072D864EA7B52DC32F1841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130489   (714431) от 02.05.2017
-
-AZ.U.R. - Rock Like Pigz (1990) [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son Of Rock ‘N Roll
-02. Love And Temptation
-03. Talkin’ Dirty
-04. I Don’t Need No Doctor(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A1E3D9DF0756821BC487623A9AFA8C83EF6BE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

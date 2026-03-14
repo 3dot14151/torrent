@@ -1,25 +1,22 @@
-###  Публикация: 1801110   (66230) от 08.06.2025
+###  Публикация: 1792676   (67626) от 20.04.2025
 
-Lacrimosa - Lament (2025) [FLAC|Lossless|image + .cue] <Gothic Metal, Dark Wave, Modern Classical>
+Растровый клипарт - Pattern Universe - Creative Fabrica - Mother's Day Floral Butterfly Patterns [JPG]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66230.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67626.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lament
-02. Ein Sturm zieht auf
-03. Ein langer Weg
-04. Du bist alles was ich will(   Читать дальше...   )Жанр: Gothic Metal, Dark Wave, Modern ClassicalПродолжительность: 01:16:07
+Узоры в виде цветов и бабочек. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E10883FBA5D45C9F56219C7BE054168C84EC704
+magnet:?xt=urn:btih:697C2826316737732C867AF5D2AD3425FF04D0DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,80 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801165   (66229) от 08.06.2025
+###  Публикация: 1792148   (67625) от 20.04.2025
 
-И.М. Пёрышкин, А.И. Иванов | Физика. Учебник для 8 класса (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание учебника полностью соответствует примерной рабочей программе. Специально созданный авторами аппарат усвоения знаний нацелен не только на достижение предметных и метапредметных результатов, но и на формирование естественно-научной грамотности. Особое внимание уделено использованию физических текстов для развития навыков смыслового чтения.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7FAC6D2322382517E249D46B9BFF208EE90EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801163   (66228) от 08.06.2025
-
-И.М. Пёрышкин, А.И. Иванов | Физика. Учебник для 7 класса (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание учебника полностью соответствует примерной рабочей программе. Специально созданный авторами аппарат усвоения знаний нацелен не только на достижение предметных и метапредметных результатов, но и на формирование естественно-научной грамотности. Особое внимание уделено использованию физических текстов для развития навыков смыслового чтения.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7114EB0229CBF2C25F659598017CEA4CE1292A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801187   (66227) от 08.06.2025
-
-Belier Bleu - Top Yourself (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|image + .cue|Vinyl-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66227.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67625.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Pluto (3:13)
-02.  Gasoline (3:34)
-03.  Life's A Beach (3:13)
-04.  Kill Me (2:51)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:30
+A1. Fighting The World
+A2. Blow Your Speakers
+A3. Carry On
+A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B75147339DC95FD26EB737D110A1D81811EFA565
+magnet:?xt=urn:btih:2C6A2FE8D7E39FFAD3B67F397330CDF2A633EEC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801084   (66226) от 08.06.2025
+###  Публикация: 1792678   (67624) от 20.04.2025
 
-Nikki Iles & NDR Bigband - Face To Face (2023) Edition Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Big Band>
+Растровый клипарт - Pattern Universe - Creative Fabrica - Needle Plush Felt Flowers Patterns [JPG]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66226.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67624.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Misfits [8:18]
-02. Red Ellen [7:15]
-03. Face to Face [6:28]
-04. Wild Oak [8:38](   Читать дальше...   )Жанр: Contemporary Jazz, Big BandПродолжительность: 00:59:52
+Цветочные бесшовные узоры. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8ABAABD99E4E49CFD1B14DB6D8B10581D29774A
+magnet:?xt=urn:btih:BB92DB96E6C80301DA7766518BA56773895B89B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +79,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801100   (66225) от 08.06.2025
+###  Публикация: 1792631   (67623) от 20.04.2025
 
-Пятеро на одного (07.06.2025) WEBRip [H.264/720p]
+Лев Биноклев | Солнечные зайчики и таинственное ограбление. (2025) [MP3, Данил Сидорин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67623.jpg" />
+</div>
+
+
+###  Подробнее
+
+В квартире старого дома, прямо в чудесной хрустальной вазе, живут Солнечные зайчики. Целое семейство радует хозяев: родители-зайчики мерцают в бокалах, а малыши носятся вокруг новогодней ёлки. Но всё меняется с приходом грабителей: из квартиры исчезает хрустальная ваза, а вместе с ней и солнечные малыши. Героям придется постараться, чтобы спасти семейную реликвию. (   Читать дальше...   )Жанр: детская литература, детектив, приключения.Язык озвучки: РусскийИздательство: Издательские решенияПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C025C8DB746B88721C5CD264829266DC24ADA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792764   (67622) от 20.04.2025
+
+Чудо техники с Сергеем Малозёмовым (20.04.2025) WEBRip [H.264/720p]
 
 >>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66225.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67622.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+Смотреть больно! Виноват ли компьютер в сухости глаз и как бороться с этой проблемой? Работают ли очки с дырочками или стоит покупать особые линзы, чтобы защитить глаза?
+ Честная битва кухонной техники: какие устройства — напрасная трата денег, а какие могут неожиданно удивить?
+ Британские инноваторы создали самоохлаждающуюся банку для напитков .
+ Шапочка для мыться (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33B02A4D6CAD8BF5F5C8E95E77B31381AFA41D9F
+magnet:?xt=urn:btih:720DC49E682622FBCAA5288A5AE74CCD5BC6D7A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,28 +134,190 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801183   (66224) от 08.06.2025
+###  Публикация: 1792775   (67621) от 20.04.2025
 
-Beaten by Hippies - Sidetracked in El Paso (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|image|Vinyl-Rip] <Nu metal, Alternative metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67621.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1-742617000027
+A2-(Sic)
+A3-Eyeless
+A4-Wait And Bleed(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3140B3F7A4037C94DF41D59CCA3C56E4A69F95EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792779   (67620) от 20.04.2025
+
+Ally Venable - Money & Power (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Brown Liquor (3:48)
+02.  Maybe Some Day (3:19)
+03.  Money & Power (3:28)
+04.  Do You Cry (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDA058783434EC3B6E92AAA479CE5AA44151FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792756   (67619) от 20.04.2025
+
+Журнал | Лечащий Врач (том 28) №4 (2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: Медицинский научно-практический журналИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8E957BD18A06C8BB2E1A4EC66B1C50C9CA3BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792429   (67618) от 20.04.2025
+
+Mashle | Mashle: Magic and Muscles | Магия и мускулы (2020) [16 томов, 162 главы + 4 экстра] [Манга] [Русский] [PNG, JPG] [Complete]
+
+>>Манга и Арт
+>>Манга, Манхва, Маньхуа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это мир магии, где магия используется для всего. Но в глубине леса живёт молодой человек, который проводит время, тренируя мышцы и набираясь сил. Он не может использовать магию, но он наслаждается мирной жизнью со своим отцом. Но однажды его жизнь подверглась опасности! Сможет ли его мускулистое тело защищать его от магов, которые хотят его захватить? Так и начинается (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, сёнэнПеревод: KomgerФормат: PNG, JPGПродолжительность: 27 января 2020 - 3 июля 2023
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5202F28C38A0917E167279C626D770DDA6AAB479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792544   (67617) от 20.04.2025
+
+Enen no Shouboutai | Пламенная бригада пожарных (2015) [34 тома, 304 главы + Экстра] [Манга] [Русский] [PNG, JPG] [Complete]
+
+>>Манга и Арт
+>>Манга, Манхва, Маньхуа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как вы бы хотели умереть? Состарится или умереть от болезни, укуса, яда или просто задохнутся? Но в этом мире самый ужасный способ умереть это - сгореть заживо. Люди начали воспламенятся то тут, то там, в пламени превращаясь в демонов и забирая жизни всех кто рядом. Так их начали называть огненными людьми. Никто не знает как они появляются, никто не может противостоять (   Читать дальше...   )Жанр: приключения, комедия, мистика, сёнэнФормат: PNG, JPGПродолжительность: 23 сентября 15 - 22 февраля 2022
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F05EC0752A1A84449A90EEF949BBF025B13DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792686   (67616) от 20.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Black Inky Flowers Seamless Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесшовные цветочные узоры. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0073EB3494B0B2A4D44CB6E43FC163B96625823F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792753   (67615) от 20.04.2025
+
+Photosphere, Unusual Cosmic Process - Mental Detachment (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Electronic>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66224.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67615.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Know For Sure (2:41)
-02.  Sidetracked in El Paso (4:20)
-03.  In Better Days (3:53)
-04.  Roar (2:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:46
+01. A storm is coming (3:33)
+02. Mind reconstruction (3:32)
+03. Steps in to the future (3:47)
+04. Tempest of my soul (3:34)(   Читать дальше...   )Жанр: Ambient, ElectronicПродолжительность: 00:45:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DD9A8620F159F0934E8E1CCA8287727EACAB8AE
+magnet:?xt=urn:btih:CD000803331D56291D7F60995DD8773EAF4AA47E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,25 +325,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801105   (66223) от 08.06.2025
+###  Публикация: 1792688   (67614) от 20.04.2025
 
-MotoGP. Этап 08 из 22. Гран-при Арагона. Квалификация (07.06.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+Растровый клипарт - STCrafts - Creative Fabrica - Neon Skulls Halloween Pattern [PNG]
 
->>Спорт и активный отдых
->>Авто, Мото
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66223.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67614.jpg" />
 </div>
 
 
 ###  Подробнее
 
-7 июня 2025, суббота. 11:50 МСК этап 8, Альканьис. Гран-при Арагона. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:56:02
+Бесшовные узоры - неоновые черепа.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC7B5F2EEC99F1DFDD25A16B75863C902ED70F01
+magnet:?xt=urn:btih:EDCB8774E4C220F9671FB99BD70F50E28F298D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -218,25 +351,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801118   (66222) от 08.06.2025
+###  Публикация: 1792781   (67613) от 20.04.2025
 
-MotoGP. Этап 08 из 22. Гран-при Арагона. Спринт (07.06.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+Паттерны - Creative Fabrica - Autumn Pattern PNG Design Bundle [PNG, EPS]
 
->>Спорт и активный отдых
->>Авто, Мото
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66222.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67613.jpg" />
 </div>
 
 
 ###  Подробнее
 
-7 июня 2025, суббота. 16:00 МСК этап 8, Альканьис. Гран-при Арагона. Спринт (11 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:48:48
+Осенние узоры в векторе и растре.Формат: PNG, EPSРазрешение файлов: 4167 x 4167
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8459174439FEE239B71F75FC535897661D9A692
+magnet:?xt=urn:btih:7CA4FDA656CFF4110973E42CBDA8BB704121FB7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,54 +377,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801158   (66221) от 08.06.2025
+###  Публикация: 1792807   (67612) от 20.04.2025
 
-Своя игра (08.06.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Евгений Брезановский, Виолетта Худякова, Сергей МакаровЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832277EE68FDEAD7D2F4B5CEAB82234EFA8CE7C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801185   (66220) от 08.06.2025
-
-Beebe Gallini - Begged, Borrowed and Stealed! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Joachim Witt - Ich (2015) Remastered, 2025, Ventil [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Industrial>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66220.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67612.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Run, Run, Run (2:10)
-02.  Hold Tight (2:44)
-03.  Something You Got (2:21)
-04.  Why (4:10)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:49
+01. Uber das Meer (Remastered) [00:04:23]
+02. Was soll ich dir sagen (Remastered) [00:04:23]
+03. Warten auf Wunder (Remastered) [00:04:15]
+04. Bitte geh mir aus dem Weg (Remastered) [00:04:05](   Читать дальше...   )Жанр: Pop Rock, IndustrialПродолжительность: 00:58:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C5845737DD0565E5DF50EEC366BD8E34AB9AD13
+magnet:?xt=urn:btih:B314756C624C6E78BDA27C0A938D8AA0E51CCCFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,28 +406,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801192   (66219) от 08.06.2025
+###  Публикация: 1792679   (67611) от 20.04.2025
 
-Boot Juice - Covered in Juice, Volume I (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Blue Plaid Seamless Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клетчатые узоры.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063F74A39107C8145575B591DEB83314AD83B9AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792670   (67610) от 20.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Retro Fall Leaves Seamless Pattern Pack [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор бесшовных узоров на тему опавших листьев.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226DAB80C940AF7FCA6CFB45390EE42466CB594F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792673   (67609) от 20.04.2025
+
+Растровый клипарт - Creative Fabrica - Pattern Universe - Pink Blue Cute Flower Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочные бесшовные узоры на цифровой бумаге. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF47E05FA7D3BCCB7F3F56F5E4EDF9727A901D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792636   (67608) от 20.04.2025
+
+Fontaines D.C. - Romance (2024) Deluxe Edition, 2025, XL Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66219.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Blackberry Brandy (4:26)
-02.  Don't Do It (5:06)
-03.  High Flying Bird (3:20)
-04.  Highway Star (5:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:21
+01. Romance [00:02:33]
+02. Starburster [00:03:41]
+03. Here's The Thing [00:02:43]
+04. Desire [00:03:39](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:48:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F76C5335E5643A85768E3F08DA7DE3C122904629
+magnet:?xt=urn:btih:91DB2D597AF6E54FE6207A38872AC17411266833
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,112 +513,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801181   (66218) от 08.06.2025
+###  Публикация: 1792375   (67607) от 20.04.2025
 
-MotoGP. Этап 08 из 22. Гран-при Арагона. Гонка (08.06.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66218.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 июня 2025, воскресенье. 15:00 МСК этап 8, Альканьис. Гран-при Арагона. Гонка (23 круга)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD6B9DE3F8EBA54AE833B05B0DEB73AD90A477B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801037   (66217) от 08.06.2025
-
-Tim Hardin Trio - Light Intelligence Series 2 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mozart: 'Alla turca' from Piano Sonata in A major [4:11]
-02. Mozart: 'Allegro molto' from Symphony No.40 in G minor [4:13]
-03. Beethoven: Fur Elise [3:49]
-04. Beethoven: 'Allegro' from Violin Sonata No.5 in F major [3:34](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F693E9D6891FB6415125955B61D5287EDA6629D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801040   (66216) от 08.06.2025
-
-Tim Hardin Trio - Light Intelligence Series 3 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martini: Plaisir d'amour [4:45]
-02. Gounod: Ave Maria [4:17]
-03. Saint-Saens: The Swan [3:48]
-04. Bizet: Menuett from 'L'arlesienne' [3:28](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD972E0F1FE383EAAB0A8304C1BA1A57053610EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801189   (66215) от 08.06.2025
-
-Blues Rock Generations - Blues Rock Generations No.7 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Laurenne / Louhimo - Falling Through Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66215.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  I’m Tore Down (3:04)
-02.  All Your Love (3:29)
-03.  Let the Good Times Roll (3:33)
-04.  Lonely Boy (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:02
+01. Falling Through Stars [00:05:14]
+02. Damned [00:03:59]
+03. To the Dark [00:03:54]
+04. All for Sale [00:03:31](   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:43:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D15B01EE22FC8B2D6E88EC53314E55E3B5374C56
+magnet:?xt=urn:btih:00B3EFD5844707F9464E1E391E37DA69259004C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,28 +542,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801034   (66214) от 08.06.2025
+###  Публикация: 1792666   (67606) от 20.04.2025
 
-Tim Hardin Trio - Light Intelligence Series 4 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
+Растровый клипарт - Pattern Universe - Creative Fabrica - Watercolor Summer Palm Beach Patterns [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узоры на тему пляжа с пальмами. Сгенерировано ИИ.Формат: JPEGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFD0CD7896B0897A129F4159D79BA5F438E831E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792712   (67605) от 20.04.2025
+
+Saori Yano - Answer (2012) Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66214.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chopin: Fantaisie Impromptu in C sharp minor Op.66 [4:11]
-02. Chopin: Nocturne No.2 in E flat major Op.9-2 [4:13]
-03. Chopin: Etude 'Chanson de l'adieu' in E major Op.10-3 [4:56]
-04. Chopin: Prelude 'Raindrop' in D flat major Op.28-15 [4:28](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:42:35
+01. The Days of Wine and Roses [3:29]
+02. All of Me [2:47]
+03. Moon River [3:44]
+04. Suna to Skirt [4:03](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:58:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07CF508F9A9D8BFCAFFBEDE9FE14E6CA7765AC02
+magnet:?xt=urn:btih:501B5B54DC8ABD8896BBDF962D2F937FF5CE7525
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,25 +597,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801128   (66213) от 08.06.2025
+###  Публикация: 1792669   (67604) от 20.04.2025
 
-Военная тайна с Игорем Прокопенко (07.06.2025) WEBRip [H.264]
+Растровый клипарт - Pattern Universe - Creative Fabrica - Summer Ombre Glitter Digital Papers [JPEG]
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66213.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:08
+Цифровая бумага с блёстками. Сгенерировано ИИ.Формат: JPEGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48A6E627F43C1340202F1A2046A05518F4049970
+magnet:?xt=urn:btih:B15F033BEBBA7F20B4D1CB68E1BE3151732D0C0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -496,28 +623,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801093   (66212) от 08.06.2025
+###  Публикация: 1792690   (67603) от 20.04.2025
 
-Bladewolf - Enter the Nightmare (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Растровый клипарт - STCrafts - Creative Fabrica - Teal Plaid Fabric Mug Wrap Sublimation Design [PNG]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66212.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67603.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Insomnia (01:54)
- 02. Enter the Nightmare (05:06)
- 03. Crimson River (05:05)
- 04. Eye of the Storm (04:27)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:26
+Сублимационный дизайн в виде обёрточной бумаги для кружек с рисунком бирюзовой клетчатой ткани.Формат: PNGРазрешение файлов: 2925 x 1425
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AE71B2F1A4CC2994A2B81F60EA8BF9BDB24834D
+magnet:?xt=urn:btih:18B5CDA6248F425691999DAA1FBD806CA597672A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -525,25 +649,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801094   (66211) от 08.06.2025
+###  Публикация: 1792660   (67602) от 20.04.2025
 
-МакЛинток! / McLintock! (1963) BDRip [H.264/720p] [DVO]
+Растровый клипарт - Pattern Universe - Creative Fabrica - Green Olives & Cherries Digital Papers [JPG]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66211.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67602.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джордж Вашингтон МакЛинток — крупнейший в округе скотовод; ему принадлежат многочисленные стада и пастбища; и его имя носит находящийся здесь городок. Как человеку, обладающему властью, ему приходится решать возникающие проблемы: то на равнинах появятся переселенцы, не осознающие всех трудностей фермерства на этой засушливой земле, то правительство своими неразумными (   Читать дальше...   )Производство: США / Batjac ProductionsЖанр: комедия, вестернРежиссер: Эндрю В. МакЛагленАктеры: Джон Уэйн, Морин О`Хара, Патрик Уэйн, Стефани Пауэрс, Джек Крушен, Чилл Уиллс, Ивонн Де Карло, Джерри Ван Дайк, Эдгар Бьюкенен, Брюс Кэбот, Перри Лопес, Стразер Мартин, Гордон Джонс, Роберт Лоури, Хэнк УорденПеревод: профессиональный двухголосый (СВ Дубль), авторский (Сергей Кузнецов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:07:18
+12 бесшовных узоров из зелёных оливок и вишни сгенерированных искусственным интеллектом.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D228DDC252D9810A8BD9D3BBA387924CECB7CFE9
+magnet:?xt=urn:btih:2E8BE4765F9A356B784D6EDCEFDEB5A55BA9F5BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,171 +675,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800979   (66210) от 08.06.2025
+###  Публикация: 1792680   (67601) от 20.04.2025
 
-НХЛ. Кубок Стэнли 2025. Финал. 2-й матч. Флорида Пантерз - Эдмонтон Ойлерз (06.06.2025) HDTVRip [H.264/720p] [hand made 50fps]
+Растровый клипарт - Designworld - Creative Fabrica - Pastel Mermaid Tail Digital Paper [PNG]
 
->>Спорт и активный отдых
->>Хоккей
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66210.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-7 июня 2025, суббота. 03:00 МСК, Финал. 2-й матч. Стадион: Роджерс Плэйс (Эдмонтон, Канада), 18 347 зрителей (98% при вместимости 18 641)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Крис Руни (Бостон, США); Линейный: Девин Берг (Китченер, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: Setanta Storts 2Жанр: Спорт, хоккейЯзык озвучки: Русский, английскийПродолжительность: 04:33:57
+Цифровая бумага в пастельных тонах.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9019B78C82FDCCC8B9AC4DECF65564BEA6FEA53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801169   (66209) от 08.06.2025
-
-Phyrxian Sun - Overlord (2025) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overlord
-02. Technological Manifestation
-03. Sickening Realization
-04. Shackled(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0A30EFFD5809678E9C4DA4ABED6BC50E1593F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801427   (66208) от 11.06.2025
-
-Hank Williams Sr. - Lonesome Blues (1992) [FLAC|Lossless|tracks + .cue] <Folk, World & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Ain’t Got Nothin’ but Times    [0:02:43.55]
-02. Cold, Cold Heart    [0:02:45.10]
-03. Jambalaya (on the Bayou)    [0:02:54.58]
-04. I’m So Lonesome I Could Cry    [0:02:48.20](   Читать дальше...   )Жанр: Folk, World & CountryПродолжительность: 00:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6F717A16A18A56A1A775687511389A14D208C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801489   (66207) от 11.06.2025
-
-Kenny Wheeler - Song For Someone (1973) 2004, Psi [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toot-Toot [4:15]
-02. Ballad Two [8:27]
-03. Song for Someone [2:40]
-04. Causes Are Events [8:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43A7FF1F0AC6823B2B1923BC51CFD6335253D97E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801589   (66206) от 11.06.2025
-
-Redemption - The Hard Way (2025) [MP3|320 Kbps] <Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kick Away
-02. The Flame
-03. Thunder & Pain
-04. The Hard Way(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13BAD8E460F120FFD96A444D1A11484816DCC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801430   (66205) от 11.06.2025
-
-Jennifer Lopez - The Reel Me (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Latin, Dance, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby I Love U!    [0:04:29.22]
-02. Jenny From the Block (Seismic Crew's Latin Disco Trip)    [0:06:41.40]
-03. Jennifer Lopez feat. LL Cool J / All I Have (Ignorants mix)    [0:04:03.60]
-04. I’m Glad (Paul Oakenfold Perfecto mix)    [0:05:47.73](   Читать дальше...   )Жанр: Electronic, Latin, Dance, PopПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2C491F3BAC62FF308EB67FBBEA66FB5C5CCD13
+magnet:?xt=urn:btih:6DB592979286274AEBE3E19B95C4A1228E1F98DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

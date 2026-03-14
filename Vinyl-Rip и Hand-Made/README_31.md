@@ -1,3 +1,118 @@
+###  Публикация: 946192   (429327) от 12.10.2015
+
+Cutting Crew - Broadcast (1986) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429327.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Any Colour (4:42)
+A2. One For The Mockingbird (4:27)
+A3. I've Been In Love Before (5:12)
+A4. Life In A Dangerous Time (4:33)(   Читать дальше...   )Производство: Siren Records (Virgin) / Toshiba EMIЖанр: Pop RockПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F2DF981A73F72A2F0EC219A70B65D12AE6CB1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571801   (427511) от 24.08.2022
+
+The Post Scriptum group - Post Scriptum (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427511.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A Song For You
+A2 Fall Is At Your Door
+A3 A Song That's Always New
+A4 Shadow On My Wall(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD1BE2956AA503135084D0027CAC3006092CDE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571844   (427510) от 24.08.2022
+
+Tempest - Дискография (2018 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tempest - немецкая трэш-метал группа из Аахена, основана в 2013 году Филом Пирисом и Марко Шефером.
+Tempest поставили перед собой задачу донести свою современную и зрелую интерпретацию трэш-метала до поклонников и тех, кто хочет им стать. С одной стороны, влияние великих трэшевых икон вообще невозможно скрыть, поэтому велосипед вообще не стоит изобретать, а с другой (   Читать дальше...   )2018 - When Hate Has Dominion
+2022 - Point of No ReturnЖанр: Thrash MetalПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E947E88F3B70B38407E60B17E797932E3A969BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 709191   (426034) от 10.10.2013
+
+Аквариум - История Аквариума: Архив Том III (1991) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_426034.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Диплом (4:01)
+A2. 15 голых баб (Увы) (2:20)
+A3. Среди миров (1:23)
+A4. Трудовая пчела (6:12)(   Читать дальше...   )Жанр: РокПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411720   (425061) от 26.09.2020
 
 Кино - Любовь - Это Не Шутка (2020) [DSD 128 1bit/5,64 MHz |Vinyl-Rip] <Rock>
@@ -626,118 +741,6 @@ Breaking Benjamin — американская альтернативная ро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19D080D0B3674103960C95AD979E7057B0A61E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326075   (407367) от 18.09.2019
-
-VA - Best Hit Of Japan (Shungo Sawada/Akira Fukuhara Quintet) (19??) [FLAC 2.0|44,1/16|image +.cue|Vinyl-Rip] <Pop, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shungo Sawada - Koi No Kisetsu
-02. Shungo Sawada - Tenshi No Yuwaku
-03. Shungo Sawada - Koi No Hallelujah
-04. Shungo Sawada - Mona Lisa No Hohoemi(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A907E39A90C84424D2D2F3DF477F72BC0FF9228E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169413   (403027) от 27.09.2017
-
-Alice Cooper - Paranormal (2017) 2LP, 45RPM [WavPack 2.0|192/32|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403027.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Paranormal (4:10)
-A2. Dead Flies (2:24)
-A3. Fireball (4:49)
-B1. Paranoiac Personality (3:10)(   Читать дальше...   )Производство: Ear Music - 0212198EMUЖанр: RockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A58D410D05CBE2CF1B8A0E4EF6494B9482A7CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169724   (401420) от 29.09.2017
-
-Рома Жуков - Пыль Мечты (1988) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пыль мечты (07:22) -Жанр: Pop, DiscoПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39D7C3E023985F76D2240913DBAECCF95754B19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169430   (401416) от 29.09.2017
-
-ВИА Пламя - 200 лет (1982) [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вячеслав Малежик - Двести лет
-02. ПЛАМЯ - Гороскоп
-03. ПЛАМЯ - Синяя птицаЖанр: PopПродолжительность: 00:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
 ```
 
 https://mybot314.ru/tekegram_catalog/

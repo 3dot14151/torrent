@@ -1,3 +1,118 @@
+###  Публикация: 1657793   (191832) от 06.09.2023
+
+Sabotage - See the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t Die [00:03:35]
+02. See The World [00:03:30]
+03. After You Were Gone [00:06:19]
+04. Degradation [00:03:50](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC012E7AB996573D14F245C7C1D8638CEF55D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588471   (191642) от 04.11.2022
+
+The Cult - Under The Midnight Sun (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirror (03:48)
+02. A Cut Inside (03:59)
+03. Vendetta X (03:23)Жанр: Hard RockПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AAA5D80D47FEEC53340FE1BC2ECEA7222C998A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588270   (191628) от 04.11.2022
+
+Kane Roberts - Kane Roberts (1987) ex-guitar Alice Cooper [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Doll (3:56)
+02. Women On The Edge Of Love (3:08)
+03. Triple X (4:41)
+04. Gorilla (1:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A25F9CCB94F635A5373DAE947825D82C5B76468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473381   (191502) от 04.11.2022
+
+Tony Martin (Forcefield, Giuntini Project, Empire, Rondinelli, Silver Horses) - 15 albums, 17 CD (1988-2022) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тони Мартин - британский хард-рок вокалист и мультиинструменталист, приверженец старой школы хард-рока. Несмотря на то, что этот музыкант мог играть на множестве инструментов от скрипки до клавишных и от волынки до барабанов и был задействован в куче проектов, большинство любителей рока знает его как вокалиста "Black Sabbath", посвятившего этой знаменитой (   Читать дальше...   )--------------------------
+
+01. Rub It on Me (3:54)
+02. Run (3:25)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'Heavy |Продолжительность: 14:37:03 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C4EB10855AB604941F7904C2CCB422EA4D22C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588618   (191362) от 05.11.2022
 
 Ugly Kid Joe - Rad Wings Of Destiny (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +744,6 @@ Munroe's Thunder - The Black Watch (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B4A3171499991C4E8036C7CFC06EACB64A7D2F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590379   (189157) от 13.11.2022
-
-Rook Road - Rook Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk Too Much (03:52)
-02. Sick To The Bone (04:35)
-03. Sometimes (05:31)
-04. Romeo (05:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2D177243B257004E7583DA62ABF2CFB08EE604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590474   (188884) от 14.11.2022
-
-Deseret - Woodlands (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Sorcerer
-02. Legend Of The Sasquach
-03. Arcane Journey
-04. Serpentine Path(   Читать дальше...   )Жанр: Heavy Rock, Stoner, SludgeПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D694B5865832AF6CAEF8A67C0377A963FD9AA2C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590249   (188830) от 14.11.2022
-
-Dred Buffalo - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hermit's Headroom [00:02:33]
-02. Shaman's Discipline [00:03:34]
-03. Heat [00:04:46]
-04. The Morrigan [00:03:26](   Читать дальше...   )Жанр: 70's Hard Rock, Blues Rock, Female VocalПродолжительность: 2 CD, 01:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CD69937B0F48ED53C158C527540194C5266011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590720   (188559) от 15.11.2022
-
-Deadeye Navigator - Retronoid (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Psych, Bluesy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Fat Cat
-02 Red Hot Red
-03 Cloud Dweller
-04 Funky Respite(   Читать дальше...   )Жанр: Heavy Rock, Stoner, Psych, BluesyПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6710225195F978925BE5685BECCDBCFB29EA4AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

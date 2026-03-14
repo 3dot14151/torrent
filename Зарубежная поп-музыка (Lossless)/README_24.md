@@ -1,3 +1,150 @@
+###  Публикация: 1199544   (800307) от 17.01.2018
+
+Dalida - Ciao ciao mon amour (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Grenade a Seville (Cover Fertig)
+02. Les enfants du Piree (Cover Fertig)
+03. Bras dessus bras dessous (Cover Fertig)
+04. Garde-moi la dernieere danse (Cover Fertig)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AE67DCC3B0FFD46D7F21D16B9E6A1BC797F0D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506502   (800004) от 31.10.2021
+
+VA - Best Clean Pop Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - Baby (3:36)
+02. Gwen Stefani - The Sweet Escape (4:06)
+03. Lmfao - Party Rock Anthem (4:24)
+04. Bag Raiders - Shooting Stars (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 03:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33A3C4FE8A8E2D436E9D0084C3BCECE6D840E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273725   (799410) от 03.01.2019
+
+Sonic - Seasons (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight
+02. Missing
+03. Airplane Mode
+04. Cabin Fever(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E702E44567141C1C54460F03F05F14824F38C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507013   (799034) от 02.11.2021
+
+Duran Duran - Future Past (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799034.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Когда мы впервые пришли в студию в конце 2018 года, я пытался убедить ребят, что все, что нам нужно сделать, это написать два или три трека для EP", - сказал вокалист Duran Duran Simon Le Bon. "Четыре дня спустя, когда у меня было ядро ​​из более чем 25 сильных песен, которые все заслуживали внимания, я понял, что мы засядем в студии надолго, (   Читать дальше...   )01. Invisible
+02. All Of You
+03. Give It All Up (feat. Tove Lo)
+04. Anniversary(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C6E65FC1FF79C4B8CBE5A44486D7F94C386F2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 121678   (798896) от 02.11.2021
+
+Патрисия Каас (Patricia Kaas) - 15 альбомов (1988-2008) [FLAC|Lossless]<Pop, Jazz, Rock>
+
+>>След.
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798896.jpg" />
+</div>
+
+
+###  Подробнее
+
+1988 - Mademoiselle Chante
+1990 - Scene de Vie
+1991 - Carnet De Scene (Live))
+1993 - Je Te Dis Vous(   Читать дальше...   )Жанр: Pop, Jazz, RockФормат: FLAC + .cueПродолжительность: 16:14:20
+
+Голос… такой пленительный и мелодичный. Голос, неуловимые интонации которого выражает порой страдание и боль, а порой надежду и любовь. Кажется, он вырывается из глубины души и захватывает нас целиком, без остатка. Голос Патрисии Каас, ставший для нас таким родным и знакомым, уникален и неповторим.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666794ED9A4BD964208AE03322AF5029F025A541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507650   (798269) от 05.11.2021
 
 Fancy - Hit Party (1998)(Compilation)[FLAC|Lossless|image + .cue] <Euro-disco, Synthpop>
@@ -600,151 +747,6 @@ Demis Roussos - Forever & Ever (the Best Of) (2013) [APE|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9446A1566CE2AF073884513C8301C9F1A138202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386723   (793409) от 30.05.2020
-
-Michael Bolton - Michael Bolton: Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Love So Beautiful 4:06
-02. How Am I Supposed To Live Without You 4:14
-03. Said I Loved You...But I Lied 5:00
-04. To Love Somebody 4:08(   Читать дальше...   )Жанр: Pop-Rock, Pop, SoulПродолжительность: 01:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F7DE99757F45A9E373592C2262BF5115B3A200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386627   (793352) от 30.05.2020
-
-Thomas Anders - Alles Anders Collection (2020) 3CD, Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Europop, Schlager, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You're My Heart, You're My Soul (Extended Version) (5:34)
-02. Modern Talking - Just We Two (Mona Lisa) (3:57)
-03. Modern Talking - With a Little Love (3:31)
-04. Modern Talking - One in a Million (3:40)(   Читать дальше...   )Жанр: Europop, Schlager, BalladПродолжительность: 03:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74AF444A5628AD6F07AB6ADF42FE30AA824C68F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274561   (793047) от 07.01.2019
-
-Jess Glynne - Always In Between (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Dance, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. No One
-03. I'll Be There
-04. Thursday(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE4F0222793AEC9BDF53325AFE354A9B5E1EF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509842   (792830) от 14.11.2021
-
-VA - The Best Christmas Album In The World...Ever! 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Thank God It's Christmas (4:19)
-02. Band Aid 30 - Do They Know It's Christmas? (3:48)
-03. Sam Smith - Have Yourself A Merry Little Christmas (2:50)
-04. Justin Bieber - Mistletoe (3:03)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3308F2CFC643DF98D4D2E688889D8EE3C977B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509939   (792755) от 14.11.2021
-
-Al Bano & Romina Power - Original Album Classics (2019) 5xCD, Compilation [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792755.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Romantica:
-01. Sharazan (4:26)
-02. Tu Soltanto Tu (Mi Hai Fatto Innamorare) (3:41)
-03. It's Forever (2:57)(   Читать дальше...   )Жанр: PopПродолжительность: 04:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEF02CDCEC95F548E248A01D9B53608FBFE0632
 ```
 
 https://mybot314.ru/tekegram_catalog/

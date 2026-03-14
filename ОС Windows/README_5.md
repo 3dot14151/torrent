@@ -1,3 +1,138 @@
+###  Публикация: 1479018   (1009603) от 23.06.2021
+
+Microsoft Windows 10.0.19043.1052, Version 21H1 (Updated June 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1052.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13061C96EE841C7BB3339787AC1D545445DB545F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484010   (1006315) от 17.07.2021
+
+Windows 8.1 6.3 (Build 9600.20069) (24in2) x86/x64 by Sergei Strelec [Ru]
+
+>>ОС Windows
+>>Сборки Windows 8
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образы Windows 8.1 с интегрированными обновлениями по 16.07.2021
+Интегрированы только обновления исключительно средствами DISM.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B2C15C54270D991FD7A985A4942857226F0F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484015   (1006180) от 18.07.2021
+
+Windows 10 21H1 (Build 19043.1110) (60in2) x86/x64 by Sergei Strelec [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ Windows 10 с интегрированными обновлениями по 15.07.2021
+Интегрированы обновления исключительно средствами DISM.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E79E74B7C07FB34BA349379E4329684D2D029CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484919   (1005813) от 22.07.2021
+
+Microsoft Windows 10.0.19041.1110, Version 2004 (Updated July 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.1110.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F011063C7607DF212013DC37DE6FC58CD832FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484921   (1005805) от 22.07.2021
+
+Microsoft Windows 10.0.19042.1110, Version 20H2 (Updated July 2021) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1110.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890C5B214E3F278519D422B41688166D39BD0B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484923   (1005780) от 22.07.2021
 
 Windows Server, Version 20H2 (10.0.19042.1110) (Updated July 2021) - Оригинальные образы от Microsoft MSDN [Ru/En]
@@ -551,140 +686,6 @@ Windows 8.1 — это еще большие возможности персон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:768A21E9E24ECD87F333191D95E2FAD5A83FC851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364636   (934425) от 04.03.2020
-
-Microsoft Windows 10.0.17763.1039 Version 1809 (February 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1039.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1361F064F7A9DC0D426E7F6E64EDC7521AE30D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364637   (934422) от 04.03.2020
-
-Microsoft Windows 10.0.18362.657 Version 1903 (February 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.657.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5518A705274C6131EC96648FCF9AEC54772F927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364639   (934398) от 04.03.2020
-
-Microsoft Windows 10.0.18363.657 Version 1909 (February 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.657.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD94F969B700F101163C5B86431A4FE127F50DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364835   (933095) от 05.03.2020
-
-Microsoft Windows 10.0.17763.1039 Version 1809 (February 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1039.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD362A4B516DD1A32B8999616BE9E1CCEF574BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093339   (932993) от 15.01.2017
-
-Microsoft Windows Server 2016 RTM Version 1607 Build 10.0.14393.447 (Updated Jan 2017) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server - это проверенная масштабируемая платформа корпоративного класса для облачных сред и центров обработки данных, на которой можно разместить самые ресурсоемкие рабочие нагрузки и использовать широкие возможности восстановления для защиты от перебоев в обслуживании. Это позволяет ускорить процесс получения прибыли за счет упрощения основной инфраструктуры, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBACA81809CA9575F41A01D88E7E5AB2A46782F
 ```
 
 https://mybot314.ru/tekegram_catalog/

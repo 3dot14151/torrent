@@ -1,3 +1,32 @@
+###  Публикация: 1745250   (105129) от 25.08.2024
+
+VA - TOP Non-Stop 2010-2019 - Deep House. Volume 6 (2024) [MP3|192-320 Kbps] <Deep House, Progressive House, Techno House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankman - Sunrise (2015) (6:03)
+02. Jose Padilla - Day One (2015) (6:07)
+03. Alex Niggemann - Boujuma (Matthias Meyer remix, 2012) (7:20)
+04. Groove Cartell - Waiting in Vain (Boddhi Satva Afriki soul remix, 2014) (6:01)(   Читать дальше...   )Жанр: Deep House, Progressive House, Techno HouseПродолжительность: 09:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80F5C45EF1297AF4D22CF237C3E791327041C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822924   (104395) от 09.10.2025
 
 VA - Compilation Part 197 Electronic (2025) [MP3|320 Kbps] <Electronic>
@@ -776,41 +805,6 @@ VA - Return To Eternya (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C9F5D6C933181244B2ABE354C631CA09F610D34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482288   (99693) от 15.04.2012
-
-VA - Points of Interest (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frost Raven - Points of Interest (Nimerix's Fullon mix) 08:20
- 02. Hanzo - My World 06:08
- 03. Shyisma - Slot 06:58
- 04. Virtual Attack - Can't Stop 06:57
- 05. Solar Spectrum - Space Travellers 07:26
- 06. Day.Din - The Radio Star (original mix) 07:17
- 07. Project Sketch - With A Herring 08:02
- 08. Vice - With In (Phaxe Remix) 08:00
- 09. DNA - Signal 5 (original mix) 07:08
- 10. Potter And Neelix - On The Run (Fusi And Johnson remix) 08:13(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCC7948F018442598E864A8FFACEA907D13CCEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

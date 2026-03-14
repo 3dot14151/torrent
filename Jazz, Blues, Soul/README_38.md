@@ -1,3 +1,61 @@
+###  Публикация: 1470091   (1015888) от 15.05.2021
+
+The Black Keys - Delta Kream (2021) [FLAC|Lossless|image + .cue] <Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawling Kingsnake (6:09)
+02. Louise (4:24)
+03. Poor Boy a Long Way From Home (4:09)
+04. Stay All Night (5:44)(   Читать дальше...   )Продолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD9E06688514A0C73F53029CFCB16770A919FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470130   (1015816) от 16.05.2021
+
+Kelly Broadway - In Concert (1996) Pillar Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honeysuckle Rose [4:03]
+02. Body and Soul [7:01]
+03. I Want to Talk About You [6:55]
+04. Almost Like Being in Love [5:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F039E105C2B9CD294551B223A74236F0191319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470098   (1015803) от 16.05.2021
 
 Karima - No Filter (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
@@ -687,64 +745,6 @@ Marc Antoine - Something About Her (2021) [FLAC|Lossless|WEB-DL|tracks] <Guitar 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6638F5BC235F05286E44C03DAF504ADDAA66C49E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473594   (1013518) от 30.05.2021
-
-VA - Smooth Jazz 2021 [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Restuccia - Arrival (4:23)
-02. Lin Rountree - Fluid (4:25)
-03. Kayla Waters - Signs and Wonders (3:14)
-04. Nick Colionne - Romantic Nites (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9836D6625D382433A5A260F66F0950F27E268B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473570   (1013507) от 30.05.2021
-
-Eddie 9V - Little Black Flies (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Black Flies (3:14)
-02. 3AM in Chicago (3:37)
-03. Dog Me Around (2:56)
-04. She Got Some Money (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C084C9B1A441D044788422BB9586CC7DF4B8C9FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

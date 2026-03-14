@@ -1,3 +1,148 @@
+###  Публикация: 1788411   (68522) от 30.03.2025
+
+Defacement - Defacement (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68522.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Limbo I
+A2. Shattered
+A3. Limbo II
+A4. Disavowed(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E6FC0E459AA1AB3B3D3C9B79FCDF21A8923D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788536   (68521) от 30.03.2025
+
+Jerry T. and the Black Alligators - Bourbon Cask Finish (10 Years Edition) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  3 Girlz on the Fryin' pan (4:27)
+02.  Grown Man Wants to Play with Dolls (5:55)
+03.  Time to Write a Song (3:50)
+04.  Bugs and Roaches in the Studio (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5423FE68C3C6CA3ABB97CFE458CC3E06D1539B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788541   (68520) от 30.03.2025
+
+LaKnarra - Laknarra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Frozen Margarita (3:52)
+02.  Tripper (3:30)
+03.  So Lady (8:46)
+04.  Five Billion Years (6:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB09A1B7B2D0F24EA7F6095FB59DCF98A9D319F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788437   (68519) от 30.03.2025
+
+Anouar Brahem - After the Last Sky (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz, Modern Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remembering Hind [00:01:52]
+02. After the Last Sky [00:05:42]
+03. Endless Wandering [00:08:11]
+04. The Eternal Olive Tree [00:04:00](   Читать дальше...   )Жанр: Contemporary Jazz, Modern JazzПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5470B61070B28043C2BC1E19A8403CC88CA0C3EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788353   (68518) от 30.03.2025
+
+Unknown Mortal Orchestra - IC-02 Bogotá (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie, Garage, Psychedelic, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth 1 [00:11:10]
+02. Earth 2 [00:06:32]
+03. Earth 3 [00:08:44]
+04. Earth 5 [00:03:47](   Читать дальше...   )Жанр: Indie, Garage, Psychedelic, RockПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7025427119925D50C7FFFA0BEF964E3A21E482B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788553   (68516) от 30.03.2025
 
 Octave Lissner - Learning to Live (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -599,151 +744,6 @@ Jessie Frye - Otherworld (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:628879AE56C60B249985B919FD1B4DB3542008F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788985   (68351) от 02.04.2025
-
-Skrillex - F*CK U SKRILLEX YOU THINK UR ANDY WARHOL BUT UR NOT!! <3 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dance, Dubstep, Trap>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - SKRILLEX IS DEAD [0:52]
-02 - SPITFIRE [1:30]
-03 - WHILE YOU WERE SLEEPING VIP [0:58]
-04 - SLICKMAN [0:45](   Читать дальше...   )Жанр: Dance, Dubstep, TrapПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DEB03C2A8329CE99182C193B0FEF074D65C0800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789066   (68347) от 02.04.2025
-
-Memphis May Fire - Shapeshifter (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaotic [00:02:51]
-02. Infection [00:02:47]
-03. Overdose (feat. Blindside) [00:03:07]
-04. Paralyzed [00:03:15](   Читать дальше...   )Жанр: Post-Hardcore, Alternative MetalПродолжительность: 00:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2496BE663D2F714EB48B15A9EB2C85EC4C95F885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789336   (68341) от 03.04.2025
-
-Allegaeon - The Ossuary Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Technical Death Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Refraction (0:59)
-02. Chaos Theory (4:32)
-03. Driftwood (4:28)
-04. Dies Irae (3:47)(   Читать дальше...   )Жанр: Technical Death Metal, Melodic Death MetalПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487666979A8223D10AB0793493A0E7B8089FABFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789229   (68338) от 03.04.2025
-
-Aretha Franklin - The Electrifying (1962) Remastered, 2025, ZOROTY [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68338.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. I Surrender, Dear (Remastered) (2:47)
-• 02. Rock-A-Bye Your Baby with a Dixie Melody (Remastered) (2:26)
-• 03. Operation Heartbreak (Remastered) (2:59)
-• 04. I Told You So (Remastered) (2:45)(   Читать дальше...   )Жанр: Soul, BluesПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348B2E322D63F76DCDAFD2DA0E0DA2929CAB2D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789252   (68336) от 03.04.2025
-
-Butcher Brown - Letters From The Atlantic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Garage punk, jazz funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Seagulls (00:01:43)
-02 - Unwind (00:03:58)
-03 - Backline (00:03:09)
-04 - Right Here (00:01:31)(   Читать дальше...   )Жанр: Garage punk, jazz funkПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258F01FE8CD4AB40070A81ECB21E455B0B2A083F
 ```
 
 https://mybot314.ru/tekegram_catalog/

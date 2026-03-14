@@ -1,3 +1,177 @@
+###  Публикация: 936030   (497273) от 10.09.2015
+
+Scott Bradlee’s Postmodern Jukebox - Selfies on Kodachrome (2015) [MP3|320 кб/с]<Jazz, Swing, Vintage>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steal My Girl (feat. Jeffrey James) (03:27)
+02. Straight Up (feat. Ashley Stroud) (02:44)
+03. I'm Not the Only One (feat. Casey Abrams) (03:22)
+04. Habits (feat. Haley Reinhart) (03:36)(   Читать дальше...   )Жанр: Jazz, Swing, VintageПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37FBD35B7A8EBAD11065C139804F764F3F28522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565057   (496757) от 22.07.2022
+
+Stefano Cocco Cantini - Niccolina Al Mare (2001) Materiali Sonori [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brazilian Like [5:59]
+02. Averti tra le braccia [6:17]
+03. Love Letter [7:31]
+04. Brazilian Suite [4:16](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE8A132C339A5E5EAD401DBAC963426D7D6931E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318233   (496676) от 05.08.2019
+
+Oliver Jones - A Class Act (1991) Justin Time [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark My Time [4:21]
+02. Everybody's Song But My Own [6:29]
+03. Scrambled [4:26]
+04. Very Early [5:52](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4158E5531740A73728C30F0BA85B25E2F947F5AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318240   (496675) от 05.08.2019
+
+Hampton Hawes Quartet - All Night Session!, Vols. 1-3 (1956) 2CD, 2001, Victor [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496675.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jordu [7:07]
+02. Groovin' High [5:48]
+03. Takin' Care [8:09](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A3FE6679484CACEDF68B70A0F18192677F7A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318235   (496672) от 05.08.2019
+
+Coleman Hawkins - Bean And The Boys (1950-e) HighNote [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disorder at the Border [6:40]
+02. Yesterdays [4:36]
+03. Bean and the Boys [5:35]
+04. Disorder at the Border [3:23](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB63E06BD253B0A9330A9F21B1ED242F202CB22B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318244   (496671) от 05.08.2019
+
+Matt Mauser And The Pete Jacobs Big Band - Perfectly Frank (2013) Whitestone Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Fly with Me [3:10]
+02. Luck Be a Lady [4:55]
+03. The Best Is Yet to Come [2:59]
+04. The Way You Look Tonight [3:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC96CE74630CB70197048D3FB89203C21B036D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936393   (496497) от 11.09.2015
 
 Charles Lloyd - Discovery! (1964) /2014, Sony Music/[FLAC|tracks+.cue]<Post-Bop>
@@ -595,180 +769,6 @@ Lennie Tristano & Buddy DeFranco - Cool & Quiet (1949) /2015, Universal/ [FLAC|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2DF354798646080E441E8AF9F1AE369D5E5EEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936721   (494462) от 12.09.2015
-
-John Coltrane - Jupiter Variation (1967) /2015, Universal/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Number One [11:59]
-02. Peace On Earth [07:13]
-03. Jupiter (Variation) [06:47]
-04. Leo [10:54]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E48305A907B2F47FB0E8F5176CD93B57770CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936713   (494458) от 12.09.2015
-
-Bill Evans - Montreux II (1970) /2013, King Records/[FLAC|tracks+.cue]<Post-Bop, Modal Music, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction - Very Early [06:40]
-02. Alfie [05:30]
-03. 34 Skidoo [06:39]
-04. How My Heart Sings [04:16](   Читать дальше...   )Жанр: Post-Bop, Modal Music, CoolПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8ED400A36ED9054743BF0558AAF6EE41B25B3BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936682   (494457) от 12.09.2015
-
-Art Blakey And The Jazz Messengers Big Band - Live At Montreux And Northsea (1980) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minor Thesis [13:19]
-02. A Wheel Within A Wheel [07:03]
-03. Bit A Bittadose [06:42]
-04. Stairway To The Stars [08:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D618525871567EBA9EE86BBC2BACE74444269650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936692   (494455) от 12.09.2015
-
-Big John Patton - Oh Baby! (1965) /2015, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fat Judy [07:44]
-02. Oh Baby [06:20]
-03. Each Time [05:42]
-04. One To Twelve [07:55](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0502F8B3169CCD593CB17A060145E5E1AF99A324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936796   (494452) от 12.09.2015
-
-Jay Willie Blues Band - Johnny's Juke Joint (2015) [MP3|320 кб/с]<Electric Blues, Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wooly Bully (02:26)
-02. You Got Me Dizzy (03:02)
-03. One More Mile (03:10)
-04. Upside Of The Ground (03:29)(   Читать дальше...   )Жанр: Electric Blues, Rockin' BluesПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2DF7F1316A1C94AE7E43936E3B5FF5D2AAE97B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053974   (494418) от 19.09.2016
-
-Etta Scollo - Blu: (1999) [MP3|320 Kbps] <Folk, Pop, Jazz >
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I tuoi fiori   [05:11]
-02. Animanimale   [04:08]
-03. Amico Pierre   [04:18]
-04. Come La Pioggia   [02:56](   Читать дальше...   )Жанр: Folk, Pop, JazzПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00574DB8B4A9267081A7947959C53EFEE9D0AD21
 ```
 
 https://mybot314.ru/tekegram_catalog/

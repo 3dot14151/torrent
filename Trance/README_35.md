@@ -1,3 +1,148 @@
+###  Публикация: 957357   (327667) от 17.11.2015
+
+VA - Recoverworld Radio 002 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icone - Outer Limits (Original Mix) (8:35)
+02. The Cracken - Pegaz (Original Mix) (6:20)
+03. Lostly - Take This Acid (Original Mix) (7:34)
+04. Rich Smith - Nightfall (Original Mix) (7:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC620BB9D169309BA9E1214715216AB3D16548AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581347   (327287) от 05.10.2022
+
+VA - Daybreakerz (Trance & Souls) Vol.3 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Dust & DJ Eternity - World In Your Hands (Instrumental Radio Mix)
+02. Thomas Lloyd & Dave Joy - Captain Future (Extended Mix)
+03. DJ Simple - Mainstation Theme (Wavetraxx Remix)
+04. Eclipse - Future Sequence (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC5167B11EA6385441141A96280B4B4559810E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581341   (327225) от 05.10.2022
+
+VA - FSOE - October (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila x Billy Gillies - Kings (FSOE750 Anthem) (Extended Mix)
+02. Sean Tyas & Victoriya - Perfect World (Amos & Riot Night Extended Remix)
+03. Omar Sherif & Susie Ledge - Here With Me (Extended Mix)
+04. Stoneface & Terminal - Moonraver (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4CAEAA87238B38F71051F2E7D5DBD273D80F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581343   (327224) от 05.10.2022
+
+VA - New Trance 2021 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iberian - Preludio (George Crossfield Emotional Remix) (8:41)
+02. Dreamlife & SounEmot - Aun Recuerdo Ese Dia (Extended Mix) (9:40)
+03. Sothzanne String - Matter Of Time (Original Mix) (7:33)
+04. SounEmot - Juntos (Emotional Mix) (10:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9B88911481BD652B290BE9DA3421278A8AB06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958046   (325789) от 19.11.2015
+
+VA - Armin Van Buuren Presents: A State Of Trance Best Of (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren - Together (In A State Of Trance) (Radio Edit) (02:40)
+02. Jorn Van Deynhoven - 101010 (The Perfect Ten) (Radio Edit) (02:59)
+03. MaRLo - The Dreamers (Radio Edit) (feat. Jano) (03:36)
+04. Arisen Flame - Fireball (Radio Edit) (03:35)(   Читать дальше...   )Производство: Armada Music B.V.Жанр: TranceПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8430137D59C5034A848F05132ECB6AC6AE70555F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958143   (324999) от 20.11.2015
 
 Dominik Von Francois - Last Resort (2015) [MP3|320 кб/с]<Trance>
@@ -600,150 +745,6 @@ VA - Black Hole Trance Music 10-19 (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D549D6DE46869BADB66BBD670350B0A0976B8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182534   (315106) от 11.11.2017
-
-VA - Global DJ Broadcast: Top 20 November (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Markus Schulz Presents Dakota - In Search Of Something Better (Extended Mix)  6:39
-02.  Nifra - Never Forget (Extended Mix)  6:15
-03.  Cosmic Gate & JES - Materia (Extended Mix)  7:11
-04.  Gai Barone - Bus-Hill (Extended Mix)  8:56(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B2E3B60BBD507EE795605AAF32611BEA32A927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183381   (310312) от 13.11.2017
-
-VA - Dark Rest Vol. 3 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yuri Yavorovskiy - Dark Test (Original Mix)
-02. Bekar-B - After The Rain (Original Mix)
-03. Owl Stone - Eternity (Original Mix)
-04. UlAN - You Have To Say (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC9EB50C3489351A2F31C8A3A2D49E1B2214E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183335   (310311) от 13.11.2017
-
-KGproject - Cold Eyes (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Eyes (Original Mix) (7:28)
- 02. Cold Eyes (Alternate High Remix) (8:28)
- 03. Cold Eyes (Dave Cold Tech Remix) (6:39)
- 04. Cold Eyes (Dave Cold Uplifting Remix) (6:53)Жанр: TranceПродолжительность: 00:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A13FCEEB59EA16C820854AD5F5F6DE8C38E616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183338   (310215) от 13.11.2017
-
-Aeden - Once Upon A Time EP (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be Leave (Original Mix) (6:20)
- 02. Focus (Original Mix) (4:56)
- 03. Once Upon A Time (Original Mix) (6:39)Жанр: TranceПродолжительность: 00:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1808ADEBC0B75144E104ED31DB1A840366F7E742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183454   (310199) от 13.11.2017
-
-VA - Grotesque Reworked & Remixed (Mixed By RAM) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JES - People Will Go (M.I.K.E. Push Remix) (7:10)
-02. DJ Ton TB - Dream Machine (Factor B's Back To The Future Remix) (8:00)
-03. Salt Tank - Eugina (Ciaran Mcauley Remix) (4:12)
-04. Mr. Sam - Lyteo (Stoneface & Terminal Remix) (7:03)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B72633E2A373B3699F601F0A16699C4D7CAD44C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1447214   (1031812) от 13.02.2021
+
+Marty Straub - Let's Try Some Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Try Some Blues (4:11)
+02. Bailey's Blue (3:07)
+03. Everybody Knows Your Name (5:06)
+04. Backroads (4:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4626C0B743430CE7E3A8A72A00AD9915FC85BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447218   (1031811) от 13.02.2021
+
+Michele Biondi - Down by the River (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down by the River (4:02)
+02. Lonely and Lost (3:57)
+03. The Jail (3:27)
+04. Brotherhood (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6543C39A30208A213368453D767C567E89A1DC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447215   (1031810) от 13.02.2021
 
 Mesquite Cafe - Take Off That Mask (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -688,64 +746,6 @@ Malina Moye - Dirty - Dirty (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AB51167808D365E8A2FDC8A52A8C77C5583F322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447929   (1031127) от 16.02.2021
-
-VA - Ladies Sing & Play The Blues Vol. 5 (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Daines - That's What The Blues Is All About - [6:06]
- 02. Chantel McGregor - Help Me - [6:55]
- 03. Shaun Murphy - Did You Call - [4:58]
- 04. Thornetta Davis - That Don't Appease Me - [4:27](   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874180CD3EC659FB085493EBF59FF18A7E171BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448265   (1030971) от 17.02.2021
-
-Jazz Q - Zneni a Sneni (Znění a Snění) (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swinguj co to dá radí jana koubková (04:55)
-02. Jinokraj (06:27)
-03. Chce se mi spát (05:23)
-04. Co říkáš joe? (07:19)(   Читать дальше...   )Жанр: Jazz-PopПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF497181A3A7653516A2AA845DE879AF44B9AE34
 ```
 
 https://mybot314.ru/tekegram_catalog/

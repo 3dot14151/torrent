@@ -1,3 +1,32 @@
+###  Публикация: 1260858   (306527) от 09.11.2018
+
+VA - Дискотека 2018 Dance Club Vol. 185 от NNNB [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+01. Rave Channel - He's Like A Wind (A-Mase House Radio Mix) (4:22)
+02. Dua Lipa & BlackPink - Kiss And Make Up (3:09)
+03. Vanessa Da Mata - Boa Sorte (Kellow, Kordy & LELO Remix) (4:42)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 18:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BA2CDF4C5188CD1250DAE591BB8178184A0261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422720   (306035) от 10.11.2020
 
 VA - не Громкие новинки недели 87 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -722,35 +751,6 @@ VA - Discover Music House Flight (2016) [MP3|255-320 Kbps] <Bigroom, Future Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B31D434827B5D51B8D7303CF93C9DFF3BBCD2CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078194   (300706) от 01.12.2016
-
-VA - Best of Hits Touch Sound (2016) [MP3|262-320 Kbps] <Tropical, Synthpop, Nu Disco, Vocal, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starmain - Gravity (Cosmicspace Radio Edit) 04:24
-02. Fais And Afrojack - Used To Have It All 03:18
-03. Lady Bee Ft Grace Tither - Homeless Heart (Tank And Cheetah Remix) 04:24
-04. Francesco Rossi Feat. Ozark Henry - Godspeed You (Charming Horses Edit) 03:18(   Читать дальше...   )Жанр: Tropical, Synthpop, Nu Disco, Vocal, Indie DanceПродолжительность: 02:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC3BB41425D6BA568E52D2CAFBA26896C332E00
 ```
 
 https://mybot314.ru/tekegram_catalog/

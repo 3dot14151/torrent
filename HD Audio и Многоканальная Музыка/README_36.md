@@ -1,3 +1,148 @@
+###  Публикация: 1411975   (422712) от 27.09.2020
+
+Valeria/Валерия - The Taiga Symphony (1991) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Blues Rock, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422712.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Sky Belongs To Me	4:44
+A2 I Will Travel On	4:52
+A3 Song Of The City (Happening To Me)
+A4 Stay With Me(   Читать дальше...   )Жанр: Blues Rock, BalladПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393696120A072AC574012AEE0372B80B8E3A6414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411920   (422703) от 27.09.2020
+
+Omega - Elo Omega Kisstadion '79 (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422703.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sze-Vosztok
+A2 Gammapolis 1
+A3 Nem Tudom A Neved
+B1 Lena(   Читать дальше...   )Жанр: Prog Rock, Space RockПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A434B27EE213E93933408911C18ED97D696D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324758   (421323) от 11.09.2019
+
+Timothy Farrell & Christopher Green - Organ and Cello Music from Westminster Abbey (1973) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Cello & Organ>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One:
+A1 Fanfare, Op. 85
+A2 Pfingsten, Op. 145, No. 6
+A3 Improvisation on "Schonster Herr Jesu", Op. 55 for cello and organ(   Читать дальше...   )Жанр: Classical, Cello & Organ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607B33E9CF1A42CA95129DA5027E0C7FB9D76B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065340   (420957) от 22.10.2016
+
+Черный кофе - Переступи порог (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Переступи порог  4:22
+2. Владимирская Русь  5:18
+3. Жизни рассвет  3:30(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C23CB8332257A2FD67739CD2514978D4E684B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251087   (420039) от 30.09.2018
+
+VA - All The Best From Scotland (1997) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, World, & Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A
+A1 The Pipes & Drums & Military Of The King's Own Scottish Borderers - Amazing Grace
+A2 The Alex Sutherland Band And Singers - Flower Of Scotland
+A3 The John Ellis Highland Country Band - Caledonian Corn(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05D72EB7B75A711A35A8914CE25D852B6CC0286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 867374   (419985) от 16.10.2015
 
 Scorpions - Blackout (1982) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Hard Rock>
@@ -593,163 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713828   (401294) от 21.10.2013
-
-Nirvana - Nevermind (1991) [LPCM2.0 96/24, DTS HD MA 2.0 96/24, Dolby TrueHD 2.0 96/24 |Blu-Ray]<Grunge, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smells Like Teen Spirit
-02. In Bloom
-03. Come as You Are
-04. Breed(   Читать дальше...   )Жанр: Grunge, Alternative RockПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65B42EB7BF03A5B6ABEEFC67C6D2010FED8A0B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717382   (392005) от 31.10.2013
-
-Аленький цветочек - Пьеса по сказке С. Аксакова (1991) [FLAC 1.0 24/48|traks(Vinil-Rip)]<Children's, Story>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часть 1  (27:10)
-Часть 2  (26:20)
-
-Действующие лица и исполнители:
-Купец - С.Бобров
-Алёнушка - К. Осколкова
-Сёстры - Т. Тихомирова, М. Фонина
-Антон - Ю. Фомичев
-Няня - Е. Руднева
-Баба-Яга - Н. Новлянский(   Читать дальше...   )Жанр: Children's, StoryПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3EBEB566ACF8D405EDC9AB8F7D625BB4B35E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717240   (391665) от 31.10.2013
-
-Браво - Bravo (1987) Finland [FLAC 2.0 24/192|Image (Vinyl-Rip)] <Rock'n'Roll, Beat, Rockabilly>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была основана в 1983 году гитаристом Евгением Хавтаном и ударником Павлом Кузиным, покинувшими группу «Постскриптум» из-за стилевых разногласий. Вокалисткой нового коллектива стала Жанна Агузарова, известная под псевдонимом Иванна Андерс. К группе присоединились саксофонист Александр Степаненко и басист Андрей Конусов. Дебютный концерт «Браво» 18 марта 1984 (   Читать дальше...   )A1.  Кошки (Koshki)  :: 02:50
-A2.  Медицинский Институт (Meditsinskij Institut)  :: 02:36
-A3.  Верю Я (Verju Ja)  :: 03:03
-A4.  Ленинградский Рок-Н-Ролл (Leningradskij RockNroll)  :: 02:26(   Читать дальше...   )Жанр: Rock'n'Roll, Beat, RockabillyФормат: Vinyl, LP, AlbumПродолжительность: 00:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A015A8DC2FDC08ED779210622225416EDA39B69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569449   (388996) от 06.11.2012
-
-Oasis - (What’s the Story) Morning Glory? (1995) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Alternative Rock, Brit Pop>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello 3:21
-02. Roll With It 3:59
-03. Wonderwall 4:18
-04. Don’t Look Back In Anger 4:47
-05. Hey Now! 5:41
-06. Swamp Song #1 0:44
-07. Some Might Say 5:28
-08. Cast No Shadow 4:51
-09. She’s Electric 3:39
-10. Morning Glory 5:03(   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6187815C96657727BA20A817577F38B471779E80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 718427   (387809) от 04.11.2013
-
-Genesis - ...Calling All Stations... (1997) Europe/2007 Reissue [FLAC 5.1 24/88,2|Image+cue (SACD-R)]<Progressive Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Calling All Stations - пятнадцатый и последний студийный альбом британской прогрок-группы Genesis, выпущенный 2 сентября 1997 года. Группа лишилась в конце концов и второго в своей истории вокалиста Фила Коллинза, так что на этот раз их осталось двое - Майк Ратерфорд и Энтони Бэнкс. Коллинз был не только прекрасным вокалистом и барабанщиком, но он еще и песни писал (   Читать дальше...   )01.  Calling All Stations  :: 05:45
-02.  Congo  :: 04:52
-03.  Shipwrecked  :: 04:24
-04.  Alien Afternoon  :: 07:53(   Читать дальше...   )Жанр: Progressive Rock, Pop RockФормат: SACD, Album, Hybrid, ReissueПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A377301DE424163F43ACE17D91F90E45F1E903E
 ```
 
 https://mybot314.ru/tekegram_catalog/

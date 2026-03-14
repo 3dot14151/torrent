@@ -1,3 +1,147 @@
+###  Публикация: 1757012   (103480) от 24.10.2024
+
+Zooloo / The Seaweeds - Black Pearls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:04)
+02. Zooloo / The Seaweeds feat. Francis Têtu - Sailed Away (4:19)
+03. I Smell a RatЖанр: BluesПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE871485CBBEBDA740FCF4AABB6B31F5FBBCA0A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756963   (103475) от 24.10.2024
+
+Roy Waade - Playground (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GT (4:30)
+02. Playground (4:59)
+03. World of "likes" (4:58)
+04. Quite Sufficient (4:16)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98088CD1F337EB77F5071CBAC196E2196852DA19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756974   (103474) от 24.10.2024
+
+The C.Zek Band - Agarthi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel Like in Mississippi (5:36)
+02. Peacemaker (4:35)
+03. Agarthi (6:38)
+04. Baby Blue (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF44C80C527F7F387B68C4D3A09D971AEA5E888D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757008   (103473) от 24.10.2024
+
+Nitrogods - Valley Of The Gods (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left Lane To Memphis (3:02)
+02. Shinbone Kicker (3:16)
+03. Valley Of The Gods (3:54)
+04. Last Beer Blues (4:52)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39253B58D228E6480FB6F729BCDC5D8C6418EC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756960   (103472) от 24.10.2024
+
+Mariama Ndure - Rituals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My body I (1:57)
+02. Beginning again (5:03)
+03. Orange skies (4:23)
+04. Amo Soumah - Amo Soumah djembekan (1:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47F9244D37BCB1B6E8790502CD507A11A78FABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756928   (103470) от 24.10.2024
 
 Aaron Parks - Little Big III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
@@ -597,151 +741,6 @@ Kristin Korb - Sweet Dreams (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A211D51003F1DC2993777EBF255C804E10529C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758392   (103399) от 02.11.2024
-
-Brothers of Metal - Fimbulvinter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sowilo (4:08)
-02. Flight of the Ravens (4:58)
-03. Giantslayer (3:21)
-04. Heart of Stone (5:03)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A268EBF0AC0663FCCC364EA1C1823FBA3C0AF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758376   (103392) от 02.11.2024
-
-Grant Richards - Menagerie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julia Easterlin - By the Water (3:37)
-02. Julia Easterlin - Moving (4:05)
-03. One (3:18)
-04. Blaze of Glory (3:24)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAEA42223AA6693F8460E71AEB3C2EE69A38BCFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758373   (103391) от 02.11.2024
-
-Francesco Venerucci - INDIAN SUMMER (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Funamboli (6:15)
-02. Il Tempo Stinge (3:46)
-03. El Chiquirino (4:29)
-04. Just A Ballad (6:09)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF87B8D888EF18E4948D681583C4D7D332F8533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758381   (103390) от 02.11.2024
-
-Kevin A Knowles - Vagabond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crack In The Sidewalk (2:56)
-02. Send Me (3:13)
-03. Left Or The Right (Unafraid) (3:43)
-04. Carried Away (3:10)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2410908ED93B037E96D43E2EAFD9C12E1D0F2F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758378   (103389) от 02.11.2024
-
-Gregory Kunde - Then and Now (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Make Me Feel So Young (2:55)
-02. Our Love Is Here To Stay (3:17)
-03. For Once In My Life (3:24)
-04. My Kind Of Town (2:47)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDEDFBCC14786E3854A8706D71C4AD839BEC3B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

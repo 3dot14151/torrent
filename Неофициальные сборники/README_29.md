@@ -1,3 +1,90 @@
+###  Публикация: 1462486   (1020890) от 15.04.2021
+
+VA - Новинки Русских Ремиксов (2021) [MP3|256-320 Kbps] <Remix, Dance, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Султан Лагучев - Горький Вкус (Mikis Remix)
+02.Скаттл - Твои Слезы (Denis Bravo Remix)
+03.Пропаганда - Богиня (Leo Burn Remix)
+04.Пицца - Улыбка (Denis Bravo Radio Edit)(   Читать дальше...   )Жанр: Dance, Electro, Remixes, DanceПродолжительность: 02:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392D4F2B58D10862A24380E49E455041EC588422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462855   (1020832) от 16.04.2021
+
+VA - Vocal Synthwave Retrowave 2 (2021) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wandering Now - This is the Way (4:33)
+02. Penfriend - Exotic Monsters (3:41)
+03. Talkbox, Talie Rose - Reach Out (3:24)
+04. Lesse - Alive (3:33)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 04:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21AFF1D96A6A3FF90F16C47304A6E463F38D5F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463003   (1020769) от 16.04.2021
+
+VA - Best 80s Disco Hits 2 (2021) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Amore - Don't Let Me Go (Vocal Amore Extended Mix) (8:00)
+02. Boney M - Silly Confusion (1) (7:18)
+03. CHIC - I Want Your Love (6:55)
+04. Donna Summer - Hot Stuff (6:40)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1700589FDE30074759CE5D3E5E84131762DC6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462982   (1020759) от 16.04.2021
 
 VA - ЕвроХит Топ 40 Europa Plus 16.04.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -658,93 +745,6 @@ VA - Workout Motivation  1 (2021) [MP3|320 Kbps] <Dance, House, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44A2A651413FB0D9FE150603B586A3BBB8ECDFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464830   (1019465) от 24.04.2021
-
-VA - The Sun Sound Therapy (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специально для таких моментов и таких путешествий, когда не хочется никуда спешить, и подготовлен этот сборник. Самые лучшие композиции вв стиле регги от никогда не стареющей классики до удивляющей современности, от некогда популярных хитов, до треков, известных лишь в узком кругу ценителей этого жанра.001. Judah Eskender Tafari - Afrikan Blood
-002. Mortimer - Lightning
-003. Mystikal Man - Positive
-004. Chris Martin - Have Patience(   Читать дальше...   )Жанр: Reggae, Riddim, DubПродолжительность: 06:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568F8C631F4018959870A3E534CE77E6E2A2CFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465100   (1019307) от 25.04.2021
-
-VA - Record Super Chart 24.04.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eneli, Monoir - 3 to 1 (3:39)
-02. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
-03. Tiesto - The Business (2:44)
-04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBCEDE0A22783156985E8FA9F0EC20D448C527B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465342   (1019291) от 25.04.2021
-
-VA - Music News vol.94 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019291.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Diana Brescan feat. Frijo - Felina (Chopin Beats Remix) (02:46)
- 002. Ahzee & TWINNS feat. Nissa Seych & Odreii - Ou te Baba (02:43)
- 003. Akord - Где Ты, Где Ты (03:36)
- 004. Alcatrash - Eisai Oti Eho (03:51)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A55B325F542F5D99191CB0AB88F0C8D37E9DDED
 ```
 
 https://mybot314.ru/tekegram_catalog/

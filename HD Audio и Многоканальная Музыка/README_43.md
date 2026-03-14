@@ -1,3 +1,148 @@
+###  Публикация: 1262393   (293150) от 16.11.2018
+
+VA - Jazz Collection Non Stop Part I (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Bernard Allison - So Devine
+02. George Benson - Off Broadway
+03. Eartha Kitt - Nobody Taught Me(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A97B61574C39C7435504081EB30868D33264BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185421   (293131) от 21.11.2017
+
+Gazebo - Telephone Mama (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+
+A1 Telephone Mama
+ A2 First!(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DB1CC47D89527F6FC9E55DA8369313AB908B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185401   (293124) от 21.11.2017
+
+Den Harrow - Overpower (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+
+1. Bad Boy 4:18
+ 2. Overpower 4:18(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F8F90DECF1492457B62EC2EE220B38D3593419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185474   (292955) от 21.11.2017
+
+VA - Italo Maxi-Hits (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]  <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292955.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-1 –Scotch Delirio Mind 5:24
+1-2 –Paul J. Qualley Please Please 4:30
+1-3 –Rewind Rosalie (Pop & Go!) 6:05
+1-4 –Orlando Johnson With Just A Kiss 6:10(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B36E88A2E913F1E7AE0DE3617645967B22D7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185459   (292941) от 21.11.2017
+
+Mylene Farmer - Interstellaires (2015) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292941.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Interstellaires
+A2 Stolen Car
+A3 À Rebours
+B1 C'est Pas Moi(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3DCBB1AB97828E87A35B508BE264AA4FB5BD46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184950   (292863) от 21.11.2017
 
 Russ Ballard - Russ Ballard (1984)  [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Rock>
@@ -600,154 +745,6 @@ Modern Talking - Ready For Romance (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72ABC07BE618FA632E5E68B9C35A4B681867409E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082282   (278409) от 12.12.2016
-
-Didier Marouani - Space Opera (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part 1 (4:41)
-02. Part 2 (2:53)
-03. Part 3 (3:51)
-04. Part 4 (Save Our Soul) (4:44)(   Читать дальше...   )Производство: Мелодия АЗГ - A60 00381 006Жанр: ElectronicПродолжительность: 00:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8E74D059D9D1D194B982BBB5F1DBBC622D4D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265026   (277512) от 25.11.2018
-
-The Beatles - The Beatles (The White Album) (1968) 2018 [DTS 5.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio] <Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-
-01. Back In the U.S.S.R. (2018 Mix) (02:43)
-02. Dear Prudence (2018 Mix) (03:54)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:46:22+00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F94FFA013B5FB469E7AE227056FD8FCEDC8C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083119   (274502) от 15.12.2016
-
-Братья Жемчужные - Я решил жениться (1994) Запись 1974 г. [FLAC 2.0|44,1/16|tracks|MC-Rip] <Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я решил жениться
-02. Поезд ехал на Восток
-03. Госпожа Разлука
-04. Школа бальных танцев(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:51
-Страна-производитель: Russia
-Номер по каталогу: none
-Кодек: FLAC (tracks)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D41A13F515B30E2E89B5773073B480A36480D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083755   (273474) от 16.12.2016
-
-Yello - You Gotta Say Yes To Another Excess (1983) 1984, Stiff Records [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273474.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. I Love You (3:25)
-A2. Lost Again  (4:19)
-A3. No More Words  (3:58)
-A4. Crash Dance  (2:09)(   Читать дальше...   )Производство: Stiff Records - STLP/1017Жанр: ElectronicПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3650B4A4BD311C3AC47AA26CDBBBC25CB4387D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188812   (273346) от 03.12.2017
-
-VA - На теплоходе музыка играет. Песни В. Добрынина (1989) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. О. Зарубина - На Теплоходе Музыка Играет
-02. А. Серов - Пустыня
-03. ЧП - Жила-Была Речка
-04. Н. Гнатюк - Папа И Мама(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:324FB79EF7A443BA48C008F1CACFD22DC62CDA93
 ```
 
 https://mybot314.ru/tekegram_catalog/

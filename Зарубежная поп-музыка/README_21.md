@@ -1,3 +1,61 @@
+###  Публикация: 1210962   (778239) от 05.03.2018
+
+Armenian Navy Band - Sounds Of Our Life - Part One: Natural Seeds (2004) Heaven And Earth [MP3|192 Kbps] <Folk, Avantgarde>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. Water 1:28
+02. River 5:46
+03. Ocean 3:29
+04. Sun 1:04(   Читать дальше...   )Жанр: Folk, AvantgardeПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69686806CBD3A501036ECD1B0AE25FF9BEF5F591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211063   (778200) от 05.03.2018
+
+VA - NRJ Extravadance (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778200.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Maitre Super Sako - Mi Gna
+02. Jahyanai & Bamby - Who Mad Again
+03. Camila Cabello - Havana(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B4F1783459D3FFDB8A377E94876FDC67EE10FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013205   (777969) от 03.05.2016
 
 VA - Disco Candy Pop Sensation Vol.6 (2016) [MP3|320 кб/с] <House, Pop>
@@ -691,64 +749,6 @@ VA - Robot Is Systematic (2009) EP (Franco Rago & Gigi Farina feat. 'Lectric Wor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFA4A390BABB8C9DB002C7521595377F6F925928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015731   (773143) от 12.05.2016
-
-Francesca Michielin - Riflessi Di Me (2012) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sola (04:01)
-02. Arcobaleni (03:38)
-03. Quello Che Vorrei (04:03)
-04. Mai Pi (03:21)(   Читать дальше...   )Жанр: Italy PopПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC89D1AB81B1F67CB7E0DFA71D07BE11B9F5992C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391683   (773112) от 21.06.2020
-
-R Plus & Dido - The Last Summer (2020) Deluxe Edition [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773112.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Landing
-2. Together
-3. My Boy
-4. Clouds Like Islands(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A20F6E266B40B7ECCFC92D780C1D34C5B01354
 ```
 
 https://mybot314.ru/tekegram_catalog/

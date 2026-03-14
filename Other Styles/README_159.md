@@ -1,3 +1,148 @@
+###  Публикация: 1193726   (155477) от 25.12.2017
+
+Ukrainia - Shadow Era (2017) [MP3|320 Kbps] <Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile Youth (03:37)
+02. Shadow Era (02:39)
+03. Horses (03:34)
+04. Welcome to My Show (03:35)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A1B3F641586C376D13AE3B827BC1F57C8DB8C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193618   (155299) от 25.12.2017
+
+Francis Goya - The Best World Instrumental Hits (2009) 2CD [APE|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Francis Goya - Careless Whisper (5:44)
+02 Francis Goya - La Playa (4:01)
+03 Francis Goya - Chanson Anonyme (3:57)
+04 Francis Goya - El Condor Pasa (3:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04FF2A82397BD428C422F5449D3ACFE88C4A26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085945   (154854) от 23.12.2016
+
+Jeffrey Hilton - Velvet Skies (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever
+02. Learning to Fly
+03. The Unbreakable Spirit
+04. The Gift(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10BB479AB22C2717E830C2B8AEF466568EB27A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085828   (154753) от 23.12.2016
+
+Anousheh & Tom - Silence (Secrets of Persian Ney) 2016 [MP3|320 Kbps] <Newage, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Secret One  (19:57) 
+02|  Secret Two  (12:31) 
+03|  Secret Three  (22:48) 
+04|  Secret Four  (19:20) (   Читать дальше...   )Жанр: Newage, MeditativeПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC41DC1832C90DF015E2628758B0BCF7FD3FC41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518158   (154696) от 19.12.2021
+
+Maitreya Bland - Tranquility (1999) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tranquility
+02. The Divine
+03. Back to Eternity
+04. Tenderness(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27F73B418F362E9DAAB22EC8EE7BE1D71BDD294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085913   (154584) от 23.12.2016
 
 Ветер всем - Колыбель (2010) [FLAC|Lossless|tracks] <Folk-Rock, World Music, Ethno>
@@ -606,151 +751,6 @@ Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8E2C6D9AC5808B42990C1B782BCDA01CF9DD094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737957   (150063) от 26.12.2013
-
-David Arkenstone - Ambient World (2011) 2CD [FLAC|Lossless]<New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tunnels - 5:42
-02. Water Birth - 7:40
-03. Off the Map - 7:02
-04. Star Fall - 8:32(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B6C19357E0AF89DB23037D13D23F8844DBEFC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271573   (150010) от 23.12.2018
-
-VA - True Romance: Motion Picture Soundtrack (1993) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop Rock, Romantic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - You're so Cool (03:40)
-02. Charlie Sexton - Graceland (03:25)
-03. John Waite - In Dreams (03:45)
-04. Charles & Eddie - Wounded Bird (05:10)(   Читать дальше...   )Жанр: Country Rock, Pop Rock, Romantic, Modern Classical, Soundtrack, Techno, Downtempo, Arena RockПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F396B8AE421B8B04A233C29CD11037D89E66712E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968796   (149998) от 25.12.2015
-
-Rammstein - Klavier (2015) Piano Version [FLAC|Lossless|tracks + .cue] <Acoustic, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein выпустили акустический альбом «Klavier». В него вошли 13 композиций из шести ранее вышедших альбомов группы. P.S. Голоса нет (только музыка).01. Fruhling in Paris
-02. Feuer und Wasser
-03. Nebel
-04. Sonne(   Читать дальше...   )Жанр: Acoustic, PianoПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801C9AB7C6FB7BFD10F330B3F8FF1B097DE64144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677895   (149097) от 19.11.2023
-
-Heilung - Drif (2022) [FLAC|Lossless|Web-DL|tracks] <Neofolk, Dark Folk, Experimental>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asja (5:17)
-02. Anoana (4:57)
-03. Tenet (13:05)
-04. Urbani (2:55)(   Читать дальше...   )Жанр: Neofolk, Dark Folk, ExperimentalПродолжительность: 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9366EA2B2625DEBFFE3B9B31257764B12F16D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969212   (148968) от 26.12.2015
-
-Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Dew (08:32)
-02. Transformation Part 1 (07:26)
-03. Cathedral of Trees (07:10)
-04. Wanderer (09:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0865C08EBF727F0518B7E6C110E9EF18EF06B65A
 ```
 
 https://mybot314.ru/tekegram_catalog/

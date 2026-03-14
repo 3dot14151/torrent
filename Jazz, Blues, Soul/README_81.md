@@ -1,3 +1,61 @@
+###  Публикация: 994001   (894086) от 06.03.2016
+
+Thisbe Vos - Sophistication (2011) [FLAC|Lossless|image + .cue] <Contemporary Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом - 6 оригинальных композиций и 6 - в традициях классических джазовых стандартов 1940-1950 гг. Рекомендуется поклонникам Ella Fiztgerald, Julie London и Diana Krall!01. House of Make Believe (Thisbe Vos) - 04:33
+02. The Frim Fram Sauce (Joe Ricardel/Redd Evans) - 02:48
+03. After You've Gone (Thisbe Vos) - 04:08
+04. They Can't Take That Away From Me (George Gershwin/Ira Gershwin) - 02:58(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C9EB1A3EEC8C87C37E2C6ECB86B5B036EF3E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993842   (894036) от 06.03.2016
+
+Drivetime - California Dreamin' (2016) [MP3|320 кб/с] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby the Rain Must Fall (04:02)
+02. Whispers (03:45)
+03. I Told You Once (04:17)
+04. Californiia Dreamin' (04:22)(   Читать дальше...   )Производство: New Vibe RecordsЖанр: JazzПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D292D680E1A61B49A0285BE4B99CDAFCD6D93AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370931   (893758) от 29.03.2020
 
 Buddy DeFranco (De Franco) Meets The Oscar Peterson Quartet - Hark 1985 (1995) Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -683,64 +741,6 @@ Freddie Hubbard - Sweet Return (1983) 2001, Collectables[FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8111960C1CDBC1811E35DCCEF9D6718F6CA8B96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994111   (891578) от 07.03.2016
-
-Nicki Parrott - Sentimental Journey (2015) [FLAC|Lossless|image + .cue] <Contemporary Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Magic
-02. Again
-03. Just One Of Those Things
-04. Fools Rush In(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AEDCDBC428E37C81813CBE9C9D8010F60CE666B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994119   (891571) от 07.03.2016
-
-Nicki Parrott - Angel Eyes (2014) [FLAC|Lossless|image + .cue] <Contemporary Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Be Around
-02. You Make Me Feel So Young
-03. The Nearness Of You
-04. I'll Never Be The Same(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795E8A9FF44C1DAEB8F1E024102A06FB8B2114A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

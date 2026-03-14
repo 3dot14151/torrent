@@ -1,3 +1,32 @@
+###  Публикация: 1237113   (552227) от 23.07.2018
+
+Metallica - Time For One...Or 3...Or 7 (EP) (2018) [MP3|320 Kbps] <Thrach Metal, Heavy>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Outlaw Torn (Unencumbered By Restrictions)
+02. Bass Solo
+03. Killing Time
+04. Guitar Solo(   Читать дальше...   )Жанр: Thrach Metal, HeavyПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35088B4B9F6728598A694EFAC00DDC37F59E7532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309453   (550347) от 20.06.2019
 
 VA - The Paradoxes: Alternative Rock Collection (2019) [MP3|320 Kbps] <Alternative, Hard Rock>
@@ -716,35 +745,6 @@ VA - Destroy Order: Hard Rock Symphony (2018) [MP3|320 Kbps] <Hard Rock, Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8042583AA2A2019CC1E873FFA0B43EE747C49A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928384   (521753) от 17.08.2015
-
-Family Of The Year - Collection (2010 - 2015) [MP3|320 кб/с]<Alternative, Indie Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Barn
-02. The Princess And The Pea (feat. Willy Mason)
-03. St. Croix
-04. In The End(   Читать дальше...   )Жанр: Alternative, Indie Pop RockПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D017F17F20075D4C07BCFE4C9568F7B8823F03
 ```
 
 https://mybot314.ru/tekegram_catalog/

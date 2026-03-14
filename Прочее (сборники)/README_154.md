@@ -1,3 +1,32 @@
+###  Публикация: 1650591   (207290) от 02.08.2023
+
+VA - Music News vol.286 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207290.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alpha Annette feat. Techno Bear - Просто Звёзды  (04:24)
+ 002. 3-ий Январь - Тёмная Ночь (03:06)
+ 003. 84 feat. Rekudo & LOOKBUFFALO - Мой Район (03:13)
+ 004. 89ers feat. Michael Rivera & Nikolai - Fever (Ready To Flow) (02:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECD7EF2E5F6DAB889570CADFC4469D5F8B4A15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580654   (206756) от 02.10.2022
 
 VA - Shazam Хит-парад World Top 200 Сентябрь (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ part 1 (Discoteka)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15EEF796F30B64716F35DDD5CBDD4AB048B03956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830388   (202486) от 26.10.2025
-
-VA - CarMusic 3 for lady (2025) [MP3|320 Kbps] <Pop, House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young Deenay - Wanna Be Your Lover - Extended Mix (5:19)
-02. ISEEDAWNTHERE, Enzo Calabria - Afraid of the dark (4:22)
-03. Nick Proof - Apart (4:13)
-04. Young Deenay - I Wannabe Your Man (4:11)(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 04:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE36418C6B3DC910CD2539AF184BE6B44F1FACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

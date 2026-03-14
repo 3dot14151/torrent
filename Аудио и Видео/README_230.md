@@ -1,3 +1,32 @@
+###  Публикация: 1535146   (244219) от 06.03.2022
+
+VA - Chilling in the Bar: Urban Chillout Music (2022) [AAC|~314 Kbps] <Chill Out, Chill Hop, Lo Fi>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Deeper Love (Original MIx) (5:50)
+02. Living Room - A Cup of Jazz (Original Mix) (3:42)
+03. Digby Jones - Heatwave (3:40)
+04. James Butler - Piano Suite De Luxe (Original Mix) (2:07)(   Читать дальше...   )Жанр: Chill Out, Chill Hop, Lo FiПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C350C8E7C809134ADFF4B0B42EACC981FE38521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536406   (244155) от 12.03.2022
 
 VA - Fresh Vibes: Urban Chillout Music (2022) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
@@ -716,35 +745,6 @@ VA - Dirty Weekend (25 Groovy House Tunes), Vol. 1 (2022) [AAC|~322 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93DF67186BB93F0A34BBC7D4735610724250A694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537888   (243700) от 19.03.2022
-
-VA - Dirty Weekend (25 Groovy House Tunes), Vol. 5 (2019) [AAC|~331 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slippy Beats - Daydream (Extended Mix) (4:39)
-02. Tim Nice - Lonely (6:35)
-03. Hoxtones, Amfree, Jenson - Stay The Night (Extended Mix) (4:06)
-04. Housetronix - Turn It Up (6:20)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A74689C9967B8AD93E2E6F3887483B7DF5F8504D
 ```
 
 https://mybot314.ru/tekegram_catalog/

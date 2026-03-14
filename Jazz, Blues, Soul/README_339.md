@@ -1,3 +1,186 @@
+###  Публикация: 1258270   (338832) от 29.10.2018
+
+Stephane Grappelli - 1935 - 1943 (1998) Giants Of Jazz [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alabamy Bound [2:52]
+02. I've Found A New Baby [2:38]
+03. You Took Advantage Of Me [2:57]
+04. Out Of Nowhere [3:18](   Читать дальше...   )Жанр: SwingПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3739DCD47411DDED81AC1A720787AA005AEE41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074308   (338758) от 19.11.2016
+
+The Bob Lanza Blues Band - Time to Let Go (2016) [MP3|320 Kbps] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Your Own Business (03:58)
+02. Time to Let Go (03:26)
+03. When the Sun Comes Up (05:39)
+04. Your Turn to Cry (04:25)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F28C7B1261B84D5B05BF848E7B3EAE9DD7DCA8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074241   (338752) от 19.11.2016
+
+Cliff Stevens - Grass Won't Grow (2016) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Don't You Say  (04:44) 
+02|  Price You Pay  (04:40) 
+03|  Grass Won't Grow  (03:45) 
+04|  Running  (04:53) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3A23EA3EFBA44488651419649FEA2F3E176FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581570   (338165) от 27.11.2012
+
+Curtis Counce - Sonority (1989) [FLAC|Lossless]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_338165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woody'n You
+02. How Long Has This Been Going On?
+03. Landslide (Alternate Take)
+04. Sonor (Alternate Take)
+05. So Nice
+06. Origin
+07. Bella Rosa
+08. A Night In Tunisia
+09. A Drum ConversationЖанр: Hard BopПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581579   (338159) от 27.11.2012
+
+Cristina Zavalloni Open Quartet - Danse a Rebours (1996) [FLAC|Lossless]<Vocal Jazz, Modern>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_338159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancra
+02. Dance a Rebours
+03. Bound
+04. I thought about you
+05. Morbillo Blues
+06. Huis-Clos
+07. 50 anni fa
+08. Round DanceЖанр: Vocal Jazz, ModernПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180842   (338020) от 05.11.2017
+
+Les McCann - In New York (1961) 1989, Capitol Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chip Monck [07:46]
+02. Fayth, You're... [06:11]
+03. Cha-Cha Twist [07:39]
+04. A Little 3/4 For God & Co. [09:25](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6353E1406FE6909F4118F648543A86573C93D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180856   (338019) от 05.11.2017
 
 Joe Williams & George Shearing - The Heart And Soul Of Joe Williams And George Shearing (1971) 2001, Sheba [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -571,179 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BA664311A556DE417897DD49D8FF79366F2FB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579410   (336419) от 27.09.2022
-
-Fantastic Cat - The Very Best of Fantastic Cat (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'mon Armageddon (3:17)
-02. New Year's Day (3:12)
-03. Nobody's Coming To Get You (4:03)
-04. Wild & Free (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89645FDF4FFC3EA1CC92C284FEE94C35617015D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579409   (336416) от 27.09.2022
-
-Fabulous Kings - It's Closing Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (4:49)
-02. It's Closing Time (5:43)
-03. The Undertaker (Part I) (5:15)
-04. Give Her To Me Lord (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF9BB8148978824B3DBCD6C0D10FAD474F04747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579399   (336415) от 27.09.2022
-
-Clint Pigg - Dead Man Walking (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Man Walking (3:44)
-02. Lonesome (4:26)
-03. All I Have (3:27)
-04. Papa (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E7B6BF49547FCE937B020271FF50B16C4496CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074783   (336352) от 20.11.2016
-
-Sonny Rollins - Our Man In Jazz (1962) 1995, Classic Compact Discs[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Oleo [25:28]
- 02.Dearly Beloved [08:22]
- 03.Doxy [15:23]Жанр: Hard BopПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49D78F9A74DC396F76EDC9FFEA54BAC48ACE1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074774   (336223) от 20.11.2016
-
-The Bob Lanza Blues Band - Time to Let Go (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Your Own Business 03:57
-02. Time to Let Go 03:25
-03. When the Sun Comes Up 05:38
-04. Your Turn to Cry 04:24(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2978A11115E9DC13B9EF00B223456932F913906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074836   (336141) от 20.11.2016
-
-Sonny Rollins - All The Things You Are (1963, 1964) 1990, Bluebird[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Yesterdays [05:15]
- 02.All The Things You Are [09:35]
- 03.Summertime [06:00]
- 04.Just Friends [04:42](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7172BF5CB75AD32796B8EC27983266318612F20C
 ```
 
 https://mybot314.ru/tekegram_catalog/

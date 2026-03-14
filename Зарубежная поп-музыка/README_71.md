@@ -1,3 +1,61 @@
+###  Публикация: 1341679   (228645) от 29.11.2019
+
+MARUV - Hellcat Story (2019) EP [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228645.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To Be Mine
+2. Don't Stop
+3. Don't U Waste My Time
+4. If You Want HerЖанр: Dance, Pop, ElectronicПродолжительность: 00:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AAF320435DB7E626D43B70B683B175F152C49A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583375   (228544) от 15.10.2022
+
+Various Artists - NOW #1s - 70 Years Of The Official Singles Chart (5 CD Box Set ) (2022) Box Set [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228544.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (01:20:29):
+1. Queen - Bohemian Rhapsody (5:54)
+2. Paul Mccartney & Wings - Mull Of Kintyre (4:43)
+3. Rod Stewart - Maggie May (5:15)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE20A13E479FBDBBBC5B079B37155A197FAF2CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341796   (228524) от 29.11.2019
 
 VA - 100 Greatest Christmas Songs Ever (Top Xmas Pop Hits) (2019) [MP3|320 Kbps] <Pop, Jazz, R&B>
@@ -698,64 +756,6 @@ Belinda Carlisle - Wilder Shores (2017) [OGG Vorbis|480 Kbps] <Pop, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E3B172DE94EE6A643F3681BCEBF68E953093FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585341   (222674) от 21.10.2022
-
-VA - Car Booster Vol. 1 (2022) CD, Compilation [MP3|320 Kbps] <Electro Pop, Dance, Club, Future House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive With BeatsBasslovers United - Black Bugatti
-02. YunaMartin Van LectroMonroe & MoralezzJetason - Love Like Fire
-03. Patrick MetzkerYuna - In or Out
-04. Drive With BeatsBeachbag - Speed of Light(   Читать дальше...   )Жанр: Electro Pop, Dance, Club, Future HouseПродолжительность: 00:57:22 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE33EA42E6D58B275BCF8C7A89424BE78B2D9D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585305   (222667) от 21.10.2022
-
-Laura Branigan - The Best Of Branigan (1995) [OGG Vorbis|480 Kbps] <Electronic, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solitaire
-02. Show Me Heaven
-03. Ti Amo
-04. Spanish Eddie(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE0DC300AA7C0334D194F2E4915140BF5E5BF39
 ```
 
 https://mybot314.ru/tekegram_catalog/

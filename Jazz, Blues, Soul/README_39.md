@@ -1,3 +1,61 @@
+###  Публикация: 1473594   (1013518) от 30.05.2021
+
+VA - Smooth Jazz 2021 [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Restuccia - Arrival (4:23)
+02. Lin Rountree - Fluid (4:25)
+03. Kayla Waters - Signs and Wonders (3:14)
+04. Nick Colionne - Romantic Nites (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9836D6625D382433A5A260F66F0950F27E268B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473570   (1013507) от 30.05.2021
+
+Eddie 9V - Little Black Flies (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Black Flies (3:14)
+02. 3AM in Chicago (3:37)
+03. Dog Me Around (2:56)
+04. She Got Some Money (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C084C9B1A441D044788422BB9586CC7DF4B8C9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473574   (1013506) от 30.05.2021
 
 Kyle Culkin - Pork Chops & Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -685,64 +743,6 @@ Joe Bonamassa - Now Serving: Royal Tea Live From The Ryman (2021) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F42B46D949F62972306B93EBCF853926B15900E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477211   (1011124) от 14.06.2021
-
-Ella Fitzgerald - Seven Classic Albums (1959 - 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011124.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Somebody Loves Me [2:36]
-02. Cheerful Little Earful [2:06]
-03. You Make Me Feel So Young [2:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 04:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D274E47CC7EF5B356191394EB30A4FFD5ABC8EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934839   (1010966) от 15.06.2021
-
-Abraham Burton - The Magician (1995) Enja[FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Get Started [08:26]
-02. Little Melonae [07:51]
-03. An Addition To The Family [10:26]
-04. It's To You [08:55](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFA9E1D6C62CA8307D05805C3D2DA86C729AA12D
 ```
 
 https://mybot314.ru/tekegram_catalog/

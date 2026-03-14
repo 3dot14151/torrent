@@ -1,3 +1,89 @@
+###  Публикация: 1573868   (408657) от 02.09.2022
+
+Калинов Мост - Холсты (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Четыре стороны
+2. Мёд
+3. Жив
+4. Камушек(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13373F5C28B76291C5DCBC5EE6CA2ECC3210091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469003   (408579) от 02.09.2022
+
+Бранимир (Александр Геннадиевич Паршиков) - 20 Albums, 3 Singles, 4 EP (2008-2022) [MP3|320 Kbps] <Acoustic, Dark Folk Rock, Dark Chanson>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не хочу никуда уезжать [00:03:49]
+02. Солнечный день [00:03:59]
+03. Великая жизнь [00:03:43]
+04. Фазан [00:04:43](   Читать дальше...   )Жанр: Acoustic, Dark Folk Rock, Dark ChansonПродолжительность: 17:31:25 (28CD)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EB704631DC92FB76DB01709B213D12B5634708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252795   (408065) от 06.10.2018
+
+The Travelling Orchestra - Early In The Mornin' (2016) EP [MP3|320 Kbps] <Blues Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catfish Blues
+02. Early In The Mornin'
+03. Hard Time Killin' Floor BluesЖанр: Blues Rock, BluesПродолжительность: 00:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520CBA7042F750CB18D2574014C712009E580D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252777   (408061) от 06.10.2018
 
 The Travelling Orchestra - 22 (2018) EP [MP3|320 Kbps] <Blues Rock, Blues>
@@ -686,93 +772,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D9DB18BB8710AFC8678B31ABB4AF2E7F75EADD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252617   (385453) от 08.10.2018
-
-Атом-76 - 5 Albums (2009-2018) [MP3|186 - 320 Kbps] <Heavy-metal, Power-metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atomic dimension (1:40)
-02. Антошка (2:45)
-03. Беспечный ангел (3:56)
-04. Вольная птица (5:23)(   Читать дальше...   )Жанр: Heavy-metal, Power-metalПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50AAF32C206432B383397D7A1A9D4A67108BCF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326422   (385127) от 20.09.2019
-
-Сергей Маврин - 20 лет (2019) Live [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385127.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Моё время
-2. Дорога в рай
-3. Поединок
-4. Рок(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43FB78AEECB0235AF2B801E3301D584297080BF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174734   (385068) от 15.10.2017
-
-Otto Dix - Левиафан (2017) [MP3|320 Kbps] <Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжая книгу всех предыдущих альбомов, данная глава - альбом «Левиафан» - раскрывает тему единения человека и космоса. Космоса как внешнего, так и внутреннего. Когда-то Океан создал живых существ, чтобы выйти на сушу, развить разум и познать самого себя. Так и человек стремится к самопознанию, порой сталкиваясь с мрачными глубинами своего подсознания, со своими (   Читать дальше...   )01. Дейтерий
-02. Левиафан
-03. Декомпрессия
-04. Ангел на скале(   Читать дальше...   )Жанр: DarkwaveПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CF255F9A4A8A4DEABE3DC8688B0AAF1911AD16
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 797513   (675045) от 19.06.2014
+
+VideoHive - Photo Album Slide Projector v.1 - 5149642 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675045.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора: Покажите свои фотографии в этом старом и простом стиле. Этот проект подходит для различных событий, галерей с отдыха, фотоальбомов, годовщины, дня рождения, и даже для памяти о близких.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924DA787A81AE7730C7E58BFA8510DA530902BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136480   (674478) от 22.05.2017
 
 Проекты - Проект ProShow Producer - Kids Zone [PSH]
@@ -651,32 +677,6 @@ Particles Backgrounds -  приятное вступление или откры
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A14F1C2E80FBD1400310F4669CFDF4FBAD00ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897829   (670822) от 20.05.2015
-
-Проекты - VideoHive - Modern Fashion Promo - 10550361 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Fashion Promo проект для создания слайд шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB9E0EF89BD10406B440CC1A591445B852B86953
 ```
 
 https://mybot314.ru/tekegram_catalog/

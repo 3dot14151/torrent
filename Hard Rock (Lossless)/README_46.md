@@ -1,3 +1,119 @@
+###  Публикация: 1565307   (494912) от 23.07.2022
+
+Ousey / Mann - Is Anybody Listening (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Flag (4:46)
+02. And So It Begins (4:53)
+03. Brave New World (4:38)
+04. I'll Tell You When To Stop (4:14)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2D283D6E704BDB08048238CA51D43F803EA4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565311   (494910) от 23.07.2022
+
+Lazarus Dream - Lifeline (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead End Symphony (6:29)
+02. Don't Look Down (4:48)
+03. Mind Like A Windmill (4:52)
+04. Freedom (5:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F138B7E01A0FD77DAC5FC4BB37F2E87524BECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565342   (494787) от 23.07.2022
+
+Rage N' Rox - Love On The Rox (1989) Reissue, 2022, FnA Records [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Wanted (4:45)
+02. How Can You Do It (4:29)
+03. Surrender (3:43)
+04. Long Walk (4:57)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DACCE20B720DB55935533543AA2547C53068A0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054039   (494424) от 19.09.2016
+
+Cold Truth - Cold Truth (2003) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break Of A New Day  4:26
+02. In Her Groove  4:06
+03. Fire And Water  3:26
+04. Slow Burn  3:29(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75BD3DEF58B6BCD5C900107D9632BAD2C503801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243339   (494105) от 26.08.2018
 
 Cry Of Love - 2 Albums (1992, 1997) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues-Rock>
@@ -641,122 +757,6 @@ Fаir Wаrning - Рimр Yоur Раst (2016) Jараnеsе Еditiоn [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:432A278FC88240E4DB152F61C923E0FC6BC55088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056810   (477614) от 27.09.2016
-
-Seven - 7 (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Shoot To Kill 4:07
- 02. - Inside Love 3:49
- 03. - Diana 3:33
- 04. - Still 3:32(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB0EC167ED1911AB3007BCAC3A3D00DA5390D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056783   (477518) от 27.09.2016
-
-Seven - Shattered (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Light Of 1000 Eyes 4:18
- 02. - A Better Life 4:12
- 03. - Fight 4:26
- 04. - Shattered 5:13(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90A9E3426F1F693EB7FC7F9E2827197F7465606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567107   (476490) от 01.08.2022
-
-All I Know - Vanity Kills (2008) Reissue, 2022, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long (3:03)
-02. Bad Boy (2:43)
-03. Asphyxia (4:18)
-04. Rain (2010 Beau Hill Remix) (3:56)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE26A8B1EC3CCCCE4F121086EAA07B5B6ED5FF23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567096   (476413) от 01.08.2022
-
-DeVicious - Black Heart (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterlife (4:49)
-02. Heroines (6:10)
-03. A Special Mind (5:40)
-04. Liar (3:46)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F91C463A1E735B977D2979D776D8DB45863B8F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1132017   (702743) от 08.05.2017
+
+VA - Весна От Зайцев Нет (2017) [MP3|192-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702743.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Грибы - Копы (Vincent  Diaz Remix) 4:10
+002. Интонация (In2nation) - Танцуй 4:26
+003. A-Dessa - Всё Ровно 3:22
+004. Lx24 - Кайф (Dj Jan Steen Official Remix)(Radio Edit ) 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00A608B863D2F64BD0559C1410491093DE04147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131945   (702594) от 08.05.2017
 
 VA - Радио Энерджи ТОП 30 Май (2017) [MP3|320 Kbps] <Pop, House, Dance>
@@ -712,35 +741,6 @@ VA - My Favourite Hits of 1983 (10CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F5304B882C48F6222346A99C5E93AA444C11567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402937   (697438) от 16.08.2020
-
-VA - Зайцев.нет Лучшие новинки Августа (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 044 ROSE - Виды (3:10)
-02. 2 Chainz feat. Lil Wayne - Money Maker (3:00)
-03. 6ix9ine - PUNANI (1:55)
-04. Alexandra Stan feat. LiToo - Tikari (2:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C3931A836D8632559AB4C2B8F8AAF7978BDD0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

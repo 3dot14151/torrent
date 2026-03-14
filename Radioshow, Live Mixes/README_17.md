@@ -1,3 +1,59 @@
+###  Публикация: 1542582   (242147) от 10.04.2022
+
+VA - TrackWolves Best Of 2021 DJ Mix (2021-2022) [MP3|320 Kbps] <Electro House, Big Room, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alexander Popov - TrackWolves Best Of 2021 DJ Mix 2022-02-15:
+
+01. Alexander Popov & Whiteout - Right Back
+02. Alexander Popov & Kitone - Breathe (Ahmed Helmy Remix)(   Читать дальше...   )Жанр: Electro House, Big Room, TranceПродолжительность: 18:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44103BA4C554F06F1D6662DA4733272BBE91F5C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624721   (242069) от 08.04.2023
+
+VA - Armin van Buuren - A State Of Trance 1115 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Eteson & Luke Bond ft. Bullysongs - Only Love
+02. KASIA - Universal NationЖанр: Trance, Progressive, ElectronicПродолжительность: 02:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B6043DCC4FBFB8F13E34B1A6C155A2AF4EFF4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529475   (241772) от 13.08.2022
 
 J-Kerz - WE ARE JK (I-XXIII) (2022) [MP3|320 Kbps] <House, Tech House>
@@ -687,64 +743,6 @@ VA - Ori Uplift & Tycoos - Uplifting Only 304 (2018) [MP3|320 Kbps] <Trance, Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:686B43C34812AA8078E28F50AC8B219DEA21C85A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425382   (222662) от 20.11.2020
-
-ARTBAT - Tomorrowland Friendship Mix (2020-11-19) [MP3|320 Kbps] <Techno, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Asher & James Massiah - Time & Space (Reprise Mix)
-02. Colyn - Khazad Dum
-03. Yotto - Nova
-04. Innellea - The World Returns(   Читать дальше...   )Жанр: Techno, Progressive HouseПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5677D259E5BB8101C03FD8EE42941255AECE699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343376   (218794) от 06.12.2019
-
-VA - Markus Schulz -Global DJ Broadcast  - World Tour Montreal (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.BBE - Seven Days And One Week (Yotto  Remix)
-02.Tiger Stripes - Ride
-03.Sam Paganini - Rave (Talla 2XLC  Prog Rework)
-04.ID - ID(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBCA1AE733CD3F994A42BF0B8D4DB5D71089052
 ```
 
 https://mybot314.ru/tekegram_catalog/

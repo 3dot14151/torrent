@@ -1,3 +1,235 @@
+###  Публикация: 1453035   (1027218) от 09.03.2021
+
+Amadeus Liszt - La Donna (Original Mike Mareen Master Tape Series) (2019) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Donna (Crazy Disco Version) (6:26)
+02. La Donna (4:46)
+03. Only Time (4:08)
+04. La Donna (Playback with Jingles) (4:46)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91BB36A08ADC84D391BCFE8C91936FD4BFE0850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453033   (1027212) от 09.03.2021
+
+Amadeus Liszt - Win the Race (1987) Singles Collection [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Win the Race (4:05)
+02. La Donna (4:49)
+03. The Devil Wins (3:06)
+04. Sprint (2:25)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987F4D2433E2ABE46109D5F41D1D0DB16D958C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453077   (1027209) от 09.03.2021
+
+Lida - Музло из гаражей (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Али Ули (feat. S3RL) [02:58]
+02 - Анапа (feat. DK) [03:45]
+03 - Герда [02:49]
+04 - Евробит (feat. GSPD) [02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A68C73B9E4DAD27ED4E6014E6B4A62F12CB1A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453163   (1027186) от 09.03.2021
+
+Lana Del Rey - Chemtrails Over the Country Club (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027186.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. White Dress
+2. Chemtrails Over The Country Club
+3. Tulsa Jesus Freak
+4. Let Me Love You Like A Woman(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3AE5674C7F4D29256A907C9D4713EDAC0AF0BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453167   (1027180) от 09.03.2021
+
+Lana Del Rey - Chemtrails Over The Country Club (2021) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Dress [00:05:33]
+02. Chemtrails Over The Country Club [00:04:31]
+03. Tulsa Jesus Freak [00:03:35]
+04. Let Me Love You Like A Woman [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AA95887E026D359C3FF6FC254F67AFAB884F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453209   (1027101) от 10.03.2021
+
+VA - soulmates (2021) Explicit [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niall Horan - Black And White (3:13)
+02. Julia Michaels - If You Need Me (3:36)
+03. BØRNS - Past Lives (4:34)
+04. Tove Lo - Habits (Stay High) (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB62E7FFFED87582F46E3BC52FC546285B347E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453323   (1027085) от 10.03.2021
+
+Joe Yellow - I'm Your Lover (1988) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Your Lover (5:06)
+02. Love At First (3:49)
+03. Lover To Lover (3:37)
+04. Take My Heart (4:58)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B37E8C42EFE2DB991672091325563CD8CE43C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453350   (1027071) от 10.03.2021
+
+Caravelli - Rainbow & Tenderly (2016) 2xCD, Compilation (1984, 1988) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caravelli (12.09.1930, Paris, France – 1.04.2019, Cannet, France) - руководитель оркестра, композитор и аранжировщик легкой оркестровой музыки. Сын отца-итальянца и матери-француженки получил при рождении имя Claude Vasori. В семь лет он впервые сел за рояль, а в тринадцать уже посещал Парижскую консераторию. В двадцать лет профессионально гастролировал, аккомпанируя (   Читать дальше...   )CD - 1 - Rainbow (1984):
+01. Laura (4:02)
+02. The Green Leaves Of Summer (3:42)
+03. Temptation (3:08)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC266457423E038F89A6D7AB0086A68D61B4C713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453391   (1027062) от 10.03.2021
 
 Selena Gomez - Revelacion (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -510,238 +742,6 @@ Joy - Joy (Все золото мира) (2000) Unofficial Compilation МЕКК�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FDDC91732BD69D6ABE5E6C7508E3AACF1555EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455123   (1025814) от 18.03.2021
-
-Doves - The Universal Want (2020) Japan / Bonus Tracks [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carousels (04:51)
-02. I Will Not Hide (04:15)
-03. Broken Eyes (04:15)
-04. For Tomorrow (05:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7660710B4E67EE6548F5777F3380579E0BB3A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455592   (1025664) от 19.03.2021
-
-Андрей Яшин - От А до Я (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментал #1 (3:52)
-02. Лето улетело (5:08)
-03. Снова ветер и дождь (4:52)
-04. Забудь (5:39)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF88692AC5E2E6DD520F2377FD9367E56651D874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455320   (1025627) от 19.03.2021
-
-Чё Те Надо? - Где найти мужчину? (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где найти мужчину? (3:10)
-02. Она работает на скорой врачом (3:31)
-03. Чайничек (2:56)
-04. Снег летит (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F4981B6ECEF39599F795BF0FA508111D9BBC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455580   (1025622) от 19.03.2021
-
-Roosevelt - Collection 6 Releases (2013-2021) [FLAC|Lossless|tracks + .cue, tracks] <EDM, Indie Pop, Nu Disco, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Way Out (4:35)
-02. Strangers (3:41)
-03. Feels Right (4:35)
-04. Closer to My Heart (4:44)(   Читать дальше...   )Жанр: EDM, Indie Pop, Nu Disco, Synthpop |Продолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A6BD97B7D3CD3E2DD7C6DF4D662839E9C7B085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455430   (1025608) от 19.03.2021
-
-Мари Краймбрери - Нас узнает весь мир (Part 1) (2021) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025608.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ты меня не забудешь (Intro)
-2. Ты меня не забудешь
-3. Иди танцуй (Intro)
-4. Иди танцуй(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38DD130159267AF558AA31AA3A5ECCA935CF436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455432   (1025606) от 19.03.2021
-
-Валерий Леонтьев - На крыльях любви (2021) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025606.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На крыльях любви
-2. Ангел
-3. Бродяга
-4. Не включайте свет(   Читать дальше...   )Жанр: PopПродолжительность: 00:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9E5BD3C188150C1E4AB99732D4393AF56C0EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455431   (1025581) от 19.03.2021
-
-VA - Best Radio Tracks, Vol. 21 (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025581.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Marshmello/Imanbek/Usher - Too Much
-2. Ya Rick/KDDK - La Grenade
-3. Edward Artemyev/Rompasso - Space Melody
-4. Lost Capital - Gangsta's Paradise(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBC107C125F428BA6DD1457257792AC77FD358E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455737   (1025491) от 20.03.2021
-
-Воnniе Туlеr - Тhе Веst Is Yеt То Соmе (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Is Yet To Come
-02. Dreams Are Not Enough
-03. Hungry Hearts
-04. Stuck To My Guns(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBDE3C5BC53B2D0C3CD48194341039DFA914CE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

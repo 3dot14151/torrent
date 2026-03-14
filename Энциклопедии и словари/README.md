@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1858262   (1060320) от 10.03.2026
+
+О.В. Михайлова (ред.) | Словарь синонимов русского языка. Словарь антонимов русского языка (2016) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словарь (издание 3-е) состоит из двух частей. Первая часть посвящена синонимам и содержит около 8000 статей, вторая – антонимам и содержит около 8000 пар антонимов.
+Основные характеристики словаря
+- Содержание: Объединяет словарь синонимов и словарь антонимов в одной книге.
+- Объем: Включает наиболее употребительне слова, живую разговорную речь, общеупотребительные (   Читать дальше...   )Жанр: лингвистическая, справочная литератураИздательство: Виктория плюсФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6727DDEC67F96C545520DC87ED9E2661F521C3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854582   (1057543) от 18.02.2026
 
 Ос Арутюнян | Домашние животные. Популярный иллюстрированный гид (2026) [PDF]
@@ -661,32 +690,6 @@ Dr Johnson wrote, ‘A man may turn over half a library to make one book’. In 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:756C5842B25BA20B1EF3F6ACDBC879D4BDAAF1DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849412   (1053775) от 23.01.2026
-
-William Schweiker, Maria Antonaccio, Elizabeth Bucar | Encyclopedia of Religious Ethics. 3 Volume Set (2022) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Encompassing three comprehensive volumes, the Encyclopedia of Religious Ethics introduces fundamental issues in moral inquiry, explores the world’s major moral traditions, and surveys specific moral issues across a wide range of human experiences. This landmark work defines the meaning, task, and various forms of religious ethics to guide readers through critical (   Читать дальше...   )Жанр: Энциклопедии, РелигияЯзык: АнглийскийИздательство: Wiley-BlackwellФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C88CE8B0D8C0193573551FFD23BF579AFD4DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1604484   (1045319) от 14.01.2023
+
+Depeche Mode - A Broken Frame (1982) Reissue, Remastered, 2006, Mute [OGG Vorbis|420 Kbps] <Electronic, Synth-pop, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave In Silence
+02. My Secret Garden
+03. Monument
+04. Nothing To Fear!(   Читать дальше...   )Жанр: Electronic, Synth-pop, PopПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35AF9E1A11DB5A4A928331EB9E0B55BF3FD09D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604551   (1045315) от 14.01.2023
 
 RAR Extractor  - unzi‪p‬ 10.4.0 [En]
@@ -650,32 +679,6 @@ FSNotes - это менеджер текстовых заметок для macOS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0591C1F4F49FE4D59B47F90F73476E9327209D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605081   (1045116) от 16.01.2023
-
-Smooze Pro 2.0.30 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 15.01.2023Разработчик: © 2017 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B4ED67705F96CAE36561663F2A4E87C04B762D
 ```
 
 https://mybot314.ru/tekegram_catalog/

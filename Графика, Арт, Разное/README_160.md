@@ -1,29 +1,3 @@
-###  Публикация: 1808229   (2080) от 19.09.2025
-
-Иконки - UI8 - Zappicon - Clean & Modern UI Icons [PNG, FIGMA, SVG, ICONJAR]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zappicon — это продуманная и современная библиотека иконок, созданная с заботой о дизайнерах, разработчиках и авторах.Формат: PNG, FIGMA, SVG, ICONJAR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1782B5F636F9039AAEEEFFD0ECF0D1B6F5D5838C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818948   (2006) от 19.09.2025
 
 Промты - SevenUnited LLC - 414 Midjourney Prompts for Floral Patterns - 8447023 [TXT, JPG]

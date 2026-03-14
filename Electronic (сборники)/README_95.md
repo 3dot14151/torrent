@@ -1,3 +1,32 @@
+###  Публикация: 1539377   (656139) от 27.03.2022
+
+VA - Vocal Chillout Live Set (2022) [MP3|320 Kbps] <Chillout, Vocal, Ambient, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релаксация и ощущение Лазурного берега с легким бризом в сборнике под названием "Vocal Chillout Live Set". Лучшие хиты Чилаут музыки в легком сопровождении вокала на треках представляемого лонгплея.001. Greg Knight - Circle Of Clowns
+002. Marianne Faithfull - The Prelude Book One Introduction
+003. Emika - Angel Come
+004. The Wednesday Experiment - Everyday The Same(   Читать дальше...   )Жанр: Chillout, Vocal, Ambient, RelaxПродолжительность: 07:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5166DB12504AF1631352890771DAF81A9941CD4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515510   (655936) от 26.06.2012
 
 VA - Club Session, Summer Edition (House Music Collection) (2012) [MP3|320 кб/с]<Funky, Club House>
@@ -734,35 +763,6 @@ VA - Finding Around Happiness 006 (2016) [MP3|320 Kbps] <Trance, Melodic, Stadiu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1078A90B71A23D379EBC275A09D930AAEC8BC81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031364   (652173) от 04.07.2016
-
-Timur Mingazov - MBS Mix #26 (Spring Song / Trance Mar`16) (2016) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652173.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Music Born In Silence Intro
-2.Husman, Kelly Sweet – Atmosphere
-3.Kyau & Albert – Bend Girl
-4.Jerome Isma-Ae, Alastor,London Thor – Smoke & Mirrors(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5446D5CAFFFE4E8A219CEACEE8A3620EA6D38627
 ```
 
 https://mybot314.ru/tekegram_catalog/

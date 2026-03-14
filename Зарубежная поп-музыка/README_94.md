@@ -1,3 +1,61 @@
+###  Публикация: 1766333   (33807) от 18.12.2024
+
+VA - 10s - 100 Best (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33807.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Linkin Park - The Emptiness Machine - (03:10)
+ 002. Teddy Swims - Lose Control - (03:31)
+ 003. Benson Boone - Beautiful Things (Acoustic) - (03:21)
+ 004. Rose - APT. - (02:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5530720ABD636DDACE8215DC46C27DAE3BE6CAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771250   (31876) от 05.01.2025
+
+Ірина Білик (Ирина Билык) - 13 Альбомов (1990-2017) 14CD [ MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. А мне бы в небо
+03. Греческая
+04. Разреши(   Читать дальше...   )Жанр: PopПродолжительность: 12:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21794CDE56BC6283DBAD06784E4DCEA8A4574B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771883   (31577) от 08.01.2025
 
 VA - The Best Disco In Town (2007) 3 CD [OGG Vorbis|480 Kbps] <Funk / Soul, Disco, Funk>
@@ -687,64 +745,6 @@ VA - 101 Dance Hits (2003) [MP3|320 Kbps] <Progressive House, Trance, House, Big
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E89B83FF43B7BFB33A251CE8E35EB4545ED65D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783302   (25631) от 05.03.2025
-
-VA - One Shot '80 Volume 11 (2001) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Micheal Cretu - Samurai (Did You Ever Dream)
-02. Yazoo - Situation
-03. The Twins - Ballet Dancer
-04. A Caus' Des Garcons - A Caus' Des Garcons(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-popПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC270D855478162B7152CEA82DE32D74F2A1D58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783257   (25625) от 05.03.2025
-
-VA - One Shot '80 Volume 9 (2000) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Idol - Eyes Without a Face
-02. Falco - Rock Me Amadeus
-03. Climie Fisher - Love Changes (Everything)
-04. Men Without Hats - The Safety Dance(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-pop, DiscoПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646DA795E651697FE60D560CDC04567CFC15C624
 ```
 
 https://mybot314.ru/tekegram_catalog/

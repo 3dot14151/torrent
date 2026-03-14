@@ -1,3 +1,177 @@
+###  Публикация: 1806699   (65338) от 14.07.2025
+
+Kerry Kearney - The Kerry Kearney Band (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All Your Love (3:42)
+02.  Harder to Breathe (6:16)
+03.  Walk Right Out the Door (2:28)
+04.  Rub Me Raw (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE118F104235ED3288B7FB92624A1B9DE0F6E2ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806693   (65331) от 14.07.2025
+
+D.K. Harrell - Talkin' Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A Little Taste (4:04)
+02.  Grown Now (3:52)
+03.  Talkin' Heavy (5:02)
+04.  PTLD (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154B3A099A4D3487DFB7F853FF8FEDE3442A7FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806696   (65329) от 14.07.2025
+
+E&B Haircut - Polaroid Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Polaroid Blues (2:46)
+02.  Booty Blues (2:31)
+03.  Still Rollin' Blues (3:02)
+04.  Scaredy Cat (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C31038A4185E15EBC4664E66442213067B4A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806766   (65328) от 14.07.2025
+
+James Day - Frequencies (2025) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More River To Cross (03:31)
+ 02. Work Song (04:01)
+ 03. Area Grey (03:40)
+ 04. Ghost Train (04:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5CB3BAE5845DC8ADC259CEC1764AE283CBF62B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806691   (65327) от 14.07.2025
+
+Carlos Camilo - Levitating (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Let's get started (4:01)
+02.  My heart is yours (4:06)
+03.  Soulmates (5:04)
+04.  Levitating (4:10)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6B4F18D0A68802803DCA3AC6C2895B7BCCE084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806700   (65325) от 14.07.2025
+
+Mauro Ferrarese - Echoes 'long The Path (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chasin' Time (4:33)
+02.  Busker's Thoughts (3:01)
+03.  Eviction Notice (5:20)
+04.  Echoes 'long The Path (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967755E728951F8F55A89737860B6AD404DD0AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806705   (65324) от 14.07.2025
 
 Shotgun Sam and his World Famous Blues Band - Shotgun Sam and his World Famous Blues Band (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Mercedes Nicole - Too High A Price to Pay (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D25F8659EFBFB81B094AE931631CD7785EEB631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808415   (64990) от 24.07.2025
-
-Blues Escape feat. Johanna Lillvik - Teaser Blueser (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Teaser Blueser (3:30)
-02.  Strange Things Happening Every Day (3:14)
-03.  Georgia Grind (3:22)
-04.  Information Blues (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364EFA1F3F0CDD79908CD6D4A4F04F54DB78417F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808422   (64988) от 24.07.2025
-
-Markus K - LIVE with LOOPER No.3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Crumbling of The Berlin Wall (Live) (3:36)
-02.  Clyde (Live) (3:14)
-03.  Tamas - Don't Wait (feat. Tamas) (Live) (2:34)
-04.  Consciousness is All there Is (Live) (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621624014B13CB905DC5840AC2F0E87338AAF47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808419   (64986) от 24.07.2025
-
-Jessie Lee & The Alchemists - Legacy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'm gonna play the Blues (5:30)
-02.  Show me your love (6:01)
-03.  What I feel (4:50)
-04.  The first man in my life (5:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:489EA155D9AFC044873A07648497DA1746406CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808427   (64985) от 24.07.2025
-
-Thats not a Human featuring Netanel Elbaz - Blackout Parade (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Copper Curls (4:16)
-02.  Its No Speakeasy (4:03)
-03.  Pass Round Behind 6 (4:33)
-04.  Saints Ain’t Saints (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E0E9B6278D88D769E07FA714782BE8409A822A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808429   (64984) от 24.07.2025
-
-The Matt Cahill Combo - The Midnight Show (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Midnight Show (2:37)
-02.  Deal is Done (2:59)
-03.  Sending All My Love (4:06)
-04.  Jumpin' At The Astor (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB461D7495780DB83763C4DC4F16F1B8431E71A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808430   (64982) от 24.07.2025
-
-The Mighty Redox - Love's A Demon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Love's A Demon (5:17)
-02.  What's My Name (2:59)
-03.  Why Wait (4:30)
-04.  Bad Light (3:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D806C1A63167052A80D6E85B995CC68ED81E0AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1677994   (146023) от 21.11.2023
+
+Скворцы Степанова (Stepanov's Starling) - Всё хорошо! (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Фрисби [00:03:23]
+02. Микеланджело [00:03:32]
+03. Саня [00:04:39]
+04. Петельман [00:03:04](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4941A4D42C48BB6751AB3876E619E3283960D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435091   (145943) от 27.12.2020
+
+Красная плесень - Союз параллельных проектов 60 (2020) [FLAC|Lossless|image + .cue] <Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я хочу девушек любить                          [2:06]
+02. Отсос                                          [2:28]
+    (Верка Смердючка – «Пылесос»)
+03. Харлей                                         [3:11](   Читать дальше...   )Жанр: Pop-PunkПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6C420E97155474CAF637594540A82B03899C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087599   (144805) от 28.12.2016
+
+Омела - Хрустальная Сторона (2016) [FLAC|lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1 Ночное вдохновение (05:45)
+02. 2 Память бересты (06:16)
+03. 3 Травник (05:43)
+04. 4 Премьера (04:17)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB70FCBD8A7B91F75E939987A1A490AB9357D8F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087596   (144781) от 28.12.2016
+
+Кот-Баюн - Сильнее зла (2016) [FLAC|lossless|image + .cue] <Folk-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Was A Time (04:05)
+02. Prayer Before The Battle (02:08)
+03. Memory (03:20)
+04. On the Kulikov Field (02:48)(   Читать дальше...   )Жанр: Folk-MetalПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A76582A31168575540B36390C79DFF43CD9C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087600   (144709) от 28.12.2016
+
+Тролль Гнет Ель - Карьялали (2016) [FLAC|lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1. Де-да (05:10)
+02. 2. Карьяллтролль (05:12)
+03. 3. Медведь Йонне (04:30)
+04. 4. Самогонка (03:45)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228E6FEBFB838257989CE895AD52D6B96C6701AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678659   (144043) от 22.11.2023
 
 Powder Burns - ... На Горячей Земле (2023) [FLAC|Lossless|WEB-DL|tracks] <Death-Metal, Oldschool>
@@ -606,151 +751,6 @@ Verdath - Полярная ночь навсегда (2023) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:954922C35F3EAB21BC86AB5666EAA35B208690A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680305   (134343) от 29.11.2023
-
-Meija - Grim (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, progressive metal, trip-hop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grim [00:04:10]
-02. Aporia [00:04:02]
-03. Limbo [00:05:47]
-04. Penelope [00:04:26](   Читать дальше...   )Жанр: Alternative, progressive metal, trip-hopПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21C2806B3F4C70AE7ADA5443E7AD9F3A8D0D300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593927   (134020) от 25.12.2012
-
-VA - Мешанина или неГолубой огонёк (2CD) (2004) [APE|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 2004-200401. Звери & Татьяна Буланова - Дожди-пистолеты (03:19)
-02. Михаил Башаков & Александр Жигалкин - Не парься (03:27)
-03. Би-2 & ЧайФ - Достучаться до небес (04:34)
-04. СерьГа & Гуарана - Как прекрасен этот мир (03:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680739   (133539) от 01.12.2023
-
-DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Industrial, Melodic Death Metal >
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transistor (Intro) [00:02:46]
-02. Aurora [00:04:14]
-03. Path [00:02:17]
-04. Moon [00:04:21](   Читать дальше...   )Жанр: Power Metal / Instrumental / Electro-Industrial / Melodic Death Metal / Sid Metal / Folk MetalПродолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63900F0EBC0D757853018D0D1B0344D6106E629F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680817   (133520) от 01.12.2023
-
-LikArt - Мессия в MP3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Своё шоу [00:02:37]
-02. Плак-плак [00:02:36]
-03. Целуй! [00:02:36]
-04. Научи меня летать [00:02:55](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0ACCBAC7E974D26D88ADEEAD02ADA4AEA11C8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594767   (133204) от 27.12.2012
-
-Валькирия - Святым огнём (2012) [FLAC|Lossless]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Путь домой
-02. Таинственный зверь
-03. Странник
-04. Храм заблудших душ(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

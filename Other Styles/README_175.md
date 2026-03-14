@@ -1,3 +1,32 @@
+###  Публикация: 1798807   (17251) от 23.05.2025
+
+VA - The Orient Collective: Ancient Beauty (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania, Jennifer Dons - Desert Groove (Original Mix) (5:24)
+02. Don Lockwood, Tibetania - Whirligig (Original Mix) (5:22)
+03. Gabriel Slick, Tibetania - Day & Night (Original Mix) (5:54)
+04. Tibetania, Willco - Cosmic Breath (Original Mix) (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45639DB9FE223B803FD5BE2E75E51BA6083FB285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810815   (16840) от 07.08.2025
 
 Alabama - In Pictures (1995) [FLAC|Lossless|tracks + .cue] <Folk, Country Rock, Rock>

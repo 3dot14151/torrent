@@ -1,3 +1,177 @@
+###  Публикация: 1699549   (117555) от 14.02.2024
+
+Barry Harris - At The Jazz Workshop (1960) 2006, Riverside [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is You Is or Is You Ain't My Baby (take 2) [5:39]
+02. Curtain Call [3:49]
+03. Star Eyes [4:45]
+04. Moose the Mooche [6:11](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08867DE1CC186167DECA0B7F11BD60E7F73B5275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699629   (117549) от 14.02.2024
+
+Donald Byrd Sextet With Yusef Lateef & Barry Harris - Complete Recordings (1955) 2006, Gambit Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues [6:13]
+02. Tortion Level [6:26]
+03. Woody 'n You [7:32]
+04. Dancing in the Dark [7:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8453562763BE536CAD4E9D9B5EA3A7F65E00D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699890   (117419) от 15.02.2024
+
+Steve Hunter - The Deacon Speaks (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Door Man (4:44)
+02. Tiresome Blues (5:07)
+03. Independent Soul (3:40)
+04. The Ballad Of John Henry Gates (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C2612AB34E32C0B3FA461C1F5B29C53FBE4BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699880   (117387) от 15.02.2024
+
+Jack J Hutchinson - Battles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Constellations (3:01)
+02. Days Are Gone (3:50)
+03. Bullets (3:02)
+04. Road To Hell (3:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D418081E5D63FF53A07CE8BCEEB83C38A37FF4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699889   (117386) от 15.02.2024
+
+Magic Slim & John Primer  - Slow Blues - Magic Slim & John Primer  - Slow Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Put It on Me (5:46)
+02. John Primer - 1839 Blues (3:18)
+03. So Easy to Love You (7:24)
+04. I Wonder Who (Who’s Gonna Be Your Sweet Man)Жанр: BluesПродолжительность: 01:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EA914F159EFB46F1BC3F02770737583448EF73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699887   (117381) от 15.02.2024
+
+Brandon Agnew - Aquarius Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James St Blues (3:12)
+02. Gasoline On A Flame (3:20)
+03. Hot Water (3:14)
+04. Desperate Blues (4:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E983BD111783303851C017D12616791FB3A134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699924   (117380) от 15.02.2024
 
 Donald Byrd - Four Classic Albums (1958 - 1961) 2CD, 2022, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -571,180 +745,6 @@ VA - Holiday Sweet Relaxing Jazz Chilly Tunes (2024) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:987CD0C8C6D2073A9E5BBFF7116E117AB10ACE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700549   (117004) от 17.02.2024
-
-Svend Asmussen - Evergreens (1998) EMI Svenska AB [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. June Night [2:34]
-02. Night and Day [2:48]
-03. Limehouse Blues [2:45]
-04. I Love You [3:05](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE2A1819B06CE6A093CAD6233AF8CAE0CEC0B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700550   (116994) от 17.02.2024
-
-Donald Byrd - A New Perspective (1963) 1999, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elijah [9:21]
-02. Beast of Burden [10:08]
-03. Cristo Redentor [5:43]
-04. The Black Disciple [8:12](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C4B3AD6FDD3D7170CBB0E681922A8B78713F543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700506   (116898) от 18.02.2024
-
-VA - Song Keepers: A Music Maker Foundation Anthology (2024) 4CD [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cary Morin - You Were There With Me (3:51)
-02. Spencer Branch - Blown Back with the Breeze (3:25)
-03. Big Ron Hunter - Going for Myself (3:24)
-04. Patrick Sky - Many A Mile (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 04:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1C243DB78A33C4C8DB79C100748DDFEB9B8D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700761   (116884) от 18.02.2024
-
-Elle & The Pocket Belles - What's a Girl to Do... (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. See You Later
-02. Get Down Tonight (Electro Swing Mix)
-03. What’s a Girl to Do…
-04. Golden Age(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCD354412FA691ED7BD016D86405D2A6991740E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700508   (116872) от 18.02.2024
-
-VA - Blind Raccoon & Nola Blue Collection, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mississippi MacDonald - Ballad of Pat Hare (feat. The Reverend Shawn Amos) (3:41)
-02. Anthony Geraci - Tidal Wave (4:32)
-03. kip london - My Baby Loves Me Like a Hurricane (2:25)
-04. Douglas Avery - Survival (feat. Franck L. Goldwasser) (5:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD16082B5287BCF20E9D097726D656804EAD500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700779   (116871) от 18.02.2024
-
-Sean Ono Lennon - Asterisms (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starwater [00:07:58]
-02. Thinking of M [00:04:45]
-03. Acidalia [00:07:02]
-04. Asterisms [00:11:06](   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFC5C437B3E540D81F686BD95398C1E8F70E830
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 978922   (961062) от 25.01.2016
+
+Philippe Chatel - Renaissance (2016) [FLAC|Lossless|tracks] <Chanson, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 heures du matin (2:49)
+02. L'absence (4:07)
+03. La fille dans la bouteille (3:03)
+04. Chanson du pere (2:26)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A294C66639F90FC291A969CC5DC782CF71B044B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360354   (960930) от 15.02.2020
+
+Аурика Ротару - Счастье-свободная птица (2006) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Счастье - свободная птица 3:20
+02. Двi голубки 3:25
+03. Сентименте 4:48
+04. Сопiлка 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1833FA687110A25F32C60DC4BCEAF4D2A85AC546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360453   (960726) от 15.02.2020
+
+Demis Roussos - Collected (2015) 3CD, Compilation [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rain And Tears [3:14]
+ 02 - End Of The World [3:16]
+ 03 - I Want To Live [3:53]
+ 04 - Marie Jolie [4:40](   Читать дальше...   )Жанр: PopПродолжительность: 03:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3CE06A031F090BE4C6FB5BD091E345672B34A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747962   (959667) от 21.01.2014
+
+VA - Pure Italia (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Chanson, Ballad, Vocal, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что мы знаем о современной эстраде Италии? Три-четыре раскрученных имени (типа Рамаzzотти, Челентано, Пупо и т.д.). Между тем как Рим отличается от Флоренции или Венеции, а тем более от маленьких итальянских городков -  и все вместе они составляют неповторимый аромат настоящей Италии, так и вся палитра современной итальянской эстрады это вовсе не 3-4 раскрученных (   Читать дальше...   )01. Domenico Modugno - Dio Come Ti Amo (2:09)
+02. Drupi - Sambario (4:17)
+03. Nicola Di Bari - I Giorni Dell'Arcobaleno (3:03)
+04. Gino Paoli - La Gatta (2:10)(   Читать дальше...   )Жанр: Pop, Chanson, Ballad, Vocal, EuropopПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4FA5E65C50BF8558393084ECB051F1A95052B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361162   (957077) от 18.02.2020
 
 Karizma Duo - Acoustic Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -626,123 +742,6 @@ Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9BFE07AC5A0483211A0EE6E378D72E0479736B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362487   (949433) от 23.02.2020
-
-Al Bano & Romina Power - Raccogli l'attimo (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raccogli l'attimo
-02. Per troppo amore
-03. La luce che hai
-04. Fuori pericolo(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F338B5D94AD10D5806543AF7C05632915955BC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982022   (948136) от 03.02.2016
-
-VA - Ultimate Love • 4CDs Of Great Love Songs (2015) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <Pop, Soul, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greatest Love All Of All (Whitney Houston) [04:51]
-02. She's Always A Woman (Billy Joel) [03:21]
-03. Brown Eyed Girl (Van Morrison) [03:05]
-04. All Of Me (John Legend) [04:31](   Читать дальше...   )Жанр: Pop, Soul, R&B, BalladПродолжительность: 04:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDEE974BB612930E8486F829ACD0520D95C2FA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 750862   (947751) от 29.01.2014
-
-VA - Pure... Drive (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какая музыка должна сопровождать водителя в поездке? Чтоб не раздражала, не надоедала, не кончалась дольше, не... У каждого ещё целый набор своих не.
-Продолжая серию (ссылка на серию внизу) Pure... от Sony, представляю Вашему вниманию сборничек для водителя. Мне кажется, что каждый найдет для себя, что взять из него с собой в машину.CD1:
-01. Journey - Don't Stop Believin'(4:11)
-02. Kenny Loggins  - Danger Zone(3:32)
-03. Bonnie Tyler -  Holding Out For A Hero(4:23)(   Читать дальше...   )Жанр: Pop, Dance, Rock, OtherПродолжительность: 04:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA0F0A39D73CB6B405B03C9F2F52999F5773F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362866   (946539) от 25.02.2020
-
-VA - Women Of 80s Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Hand On Your Heart 3:38
-02. Bette Midler - Wind Beneath My Wings 4:54
-03. Pretenders - 2000 Miles 3:39
-04. Tina Turner - I Don't Wanna Lose You 4:13(   Читать дальше...   )Жанр: PopПродолжительность: 01:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8583585809BCE72134A4CCAE087E961A5DD57F13
 ```
 
 https://mybot314.ru/tekegram_catalog/

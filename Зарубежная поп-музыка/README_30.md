@@ -1,3 +1,61 @@
+###  Публикация: 1222790   (681083) от 01.05.2018
+
+VA - Mallorca Megaparty 2018 - Die WM Party! (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stadionrocker - Los gehts
+02. Finn mit ohne Sinn - Party ohne Alkohol
+03. Kristina Martin - Regenbogen
+04. Feierwut - Kampftrinken auf Mallorca(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70AD6E3074EC34918F48CA9378E434F964231AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222862   (681081) от 01.05.2018
+
+VA - Ultimate... Party Anthems (2018) 4CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Ronson Feat. Bruno Mars - Uptown Funk
+02. R. Kelly - Ignition (Remix)
+03. Meghan Trainor - All About That Bass
+04. P!nk - Get The Party Started(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B9F532DCCF7E24D2363472E5E232B422074110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290103   (680127) от 19.03.2019
 
 VA - Car Hits The Ultimate Collection (2019) 5CD [MP3|320 Kbps] <Pop, Dance, Club>
@@ -684,64 +742,6 @@ VA - Mastermix Pro Disc 260 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:631730BCA8F465460E3B43A43D625A312D681D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137744   (665561) от 28.05.2017
-
-Alex Maxwell - Signs + Lie To Me (2016-2017) 2EP [MP3|320 Kbps] <Alternative Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665561.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Signs (EP):
-01. Signs
-02. People Are Strange
-03. Letting You Know(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C264184A7FB7237A651AECB334DDDCADD277175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224539   (664863) от 11.05.2018
-
-VA - Beautiful Mornings - Mesmerizing Soulful Pop Vocals (2018) [MP3|320 Kbps] <Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Godfrey - Life Is An Open Door
-02. Angela Predhomme - Extra Day
-03. Tony Sway - She's Right Here
-04. Chris Warne - The Wall(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 03:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946C0006724AF14AAC766AA221CF5D982519F376
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1350678   (1003020) от 07.01.2020
+
+VA - Neurochemistry: Psychedelic Trance (2020) [MP3|320 Kbps] <Psy Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Domi Re - The Locals (Original Mix)
+002. Astropilot - Breathe (Sirius Music Remix)
+003. Roger Rabbit - Breath (Original Mix)
+004. Liquid Ace - Neurochemistry (Indianix Remix)(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 12:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85AD826BEA78E4A264C231CC861EC1FB501D1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350764   (1003006) от 07.01.2020
 
 VA - Light Up With Us: Deluxe House (2020) [MP3|320 Kbps] <Club, Dance House, Electro>
@@ -716,35 +745,6 @@ VA - Vocal Chillout Music: Relax Session (2021) [MP3|320 Kbps] <Chillout, Relax 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661D38818C7B51D09D708D16F1152DBE88DEA339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352466   (1001087) от 14.01.2020
-
-VA - Sacred Space: Mushroom Psy Trance Mix (2020) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001087.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avalon - Universal
-002. Ajja - Bayaya
-003. Heisenberg - Theory Of Everything
-004. Id-S - Heaven Is Not On Earth(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318DB72BD8A94D4CF7E21593B17F01642A8B2F02
 ```
 
 https://mybot314.ru/tekegram_catalog/

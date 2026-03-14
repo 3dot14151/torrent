@@ -1,3 +1,61 @@
+###  Публикация: 1759177   (103297) от 07.11.2024
+
+Adam Beyer & Vintage Culture - Drumcode Radio 744(OCA Stage, Só Track Boa Festival Belo Horizonte, Brazil 2024-09-14) (2024-11-06) [MP3|320 Kbps] <Melodic House, Techno, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTBAT & Vintage Culture - ID w/Celeda - The Underground (Acappella)
+02. Adriatique & Argy - ID
+03. SCRIPT - Higher
+04. Max Styler & Gorgon City - Touch(   Читать дальше...   )Жанр: Melodic House, Techno, Tech HouseПродолжительность: 01:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B617D4F41753BDFFFD960AD52C570160D2B92E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759897   (103194) от 12.11.2024
+
+Steve Angello - Radio 1's Essential Mix (2024-11-09) [MP3|~245 Kbps (V0)] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Angello & Modern Tales - Darkness In Me
+02. Anti Up - Freaky Feed Me
+03. Magnificence & Corey James - Time Machine
+04. Marco Strous & Gabe - Snogo(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F818627ED3DB7AA65C6020F967B351EA978C77D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763144   (102872) от 29.11.2024
 
 Markus Schulz - Global DJ Broadcast Dream Sequence (Uplifting Trance Mix) (2024-11-28) [MP3|320 Kbps] <Trance>
@@ -684,64 +742,6 @@ VA - Ori Uplift - Uplifting Only Episode 624 (2025) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97E065D18BBB5F7C7BCE998E8710C33E38AF3CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775106   (71469) от 25.01.2025
-
-Eric Prydz - Live @ 20 Years Of Pryda, HISTORY Toronto, Canada (2025-01-18) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pryda - Annexet
-02. Pryda - Bergen
-03. Eric Prydz - Liberate (Eric Prydz 2017 Remix)
-04. Pryda - The Hoax(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC54E05C836B1D53A4C4E75377783CC02E156CA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775095   (71466) от 25.01.2025
-
-Vintage Culture - Live @ Affairs, Green Valley Camboriu, Brazil (2025-01-04) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture & Fancy Inc & Meca - Electricity
-02. CamelPhat x ARTBAT ft. Rhodes - For A Feeling (Adam Sellouk & Y do I Remix)
-03. Elderbrook & Vintage Culture - Run (DEPARTAMENTO Remix)
-04. Gabss & Vintage Culture - Creatures(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 03:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFA416A87CC9692E96BE4E5F5B258001B282DA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

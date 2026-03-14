@@ -1,3 +1,38 @@
+###  Публикация: 475275   (85289) от 30.03.2012
+
+VA - Сборник медленных хитов Vol.4 (2012) [MP3|320 kbps]<Pop | Rock | Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85289.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Bosson - Beautiful
+002 Svetlana Razina Feat.Julio Fernandez - Esta Noche
+003 Bryan Adams - Mysterious Ways
+004 Nana - Lost In My Life
+005 Mark Knopfler - I'm The Fool
+006 Switchfoot - Your Love Is A Song
+007 Charice - In Love So Deep
+008 Jessica Mauboy - Here For Me
+009 Eamon - On & On
+010 Zucchero - Dopo Di Noi(   Читать дальше...   )2012Жанр: Pop | Rock | BluesПродолжительность: 06:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596D0B181C4EB738C5175D0E426EEB5525999CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474991   (85231) от 29.03.2012
 
 VA - DJ Клуб (Vol. 1-7) (1997 - 1999) [MP3|320 кб/с]<Club/House/Trance/Progressive House/Club House>
@@ -853,41 +888,6 @@ VA - TOP 100 самые скачиваемые клубные треки by Dj N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8EB69B6CE5C522E7C945758745374800FE7B2EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469684   (82825) от 18.03.2012
-
-VA - Hot Break Dance 2CD (2012) [MP3|320 кб/с]<Break Dance, Hip-Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dazz Band - Joystick (Re-Recorded Remastered)-Pbs
-02. A Tribe Called Quest - Can I Kick It
-03. Dizzee Rascal Feat. Calvin Harris & Chrome - Dance Wiv Me (Agent X Remix)
-04. DJ Jox - Code Darkness
-05. Homeboy Hippie & A Funky Dread - Total Confusion
-06. Sl2 - DJ's Take Control 2012
-07. Lazy L - Raider Maider-Pbs
-08. Flash Back Project - Ease The Pressure
-09. H - What's It Gonna Be (Jamie Duggan Meets Da Booda Refix)
-10. No Break - Factory Of Sensations2012Жанр: Break Dance, Hip-HopПродолжительность: 04:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0456EA8A89CDD2EB05E8612549B4A4977FCA79A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1639853   (232436) от 15.06.2023
+
+Ryan Kisor - Power Source (2001) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Source [6:21]
+02. Salome's Dance [12:01]
+03. Duke Ellington's Sound of Love [8:32]
+04. New Picture [7:31](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB79A50C88E8C7BC6A7957480E6A7A0687BC00C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645946   (232421) от 12.07.2023
+
+Stephane Grappelli - Live At The Blue Note (1996) Telarc [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Jazz Violin>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All God's Chillun Got Rhythm [3:17]
+02. Night and Day [4:31]
+03. I Get a Kick Out of You [3:25]
+04. It's You or No One [4:00](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Jazz ViolinПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4070AA04B4E8ACEE8DF6E110F730EF4CC2132B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643766   (232383) от 03.07.2023
+
+Thomas Hardin Trio - Jazz de kiku Chopin (2006) Victor Entertainment [FLAC|Lossless|image + .cue] <Mainstream Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantaisie-Impromptu, Op.66 [4:11]
+02. Nocturne No.2, Op.9/2 [4:13]
+03. Waltz No.1 'Grande valse brillante', Op.18 [3:51]
+04. Etude No.3 'Chanson de l'adieu', Op.10 [4:56](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Piano JazzПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DD2872C5A44F1CECE37E47D5D1EE9BA1AB424A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640527   (232369) от 18.06.2023
 
 Horace Silver - And The Jazz Messengers (1955) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -654,93 +741,6 @@ Dave Brubeck - Ballads (1956 - 1991) 2015, Sony Music [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F28085EA9D7EE8C5B17EBEDDA6310B9633B9B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648935   (231239) от 26.07.2023
-
-Charlie Rouse / Paul Quinichette - The Chase Is On (1957) 2004, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chase Is On [3:18]
-02. When The Blues Come On [5:49]
-03. This Can't Be Love [5:25]
-04. Last Time For Love [4:30](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB61007639D822396D00BF57DFEF450625FF0F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637817   (230548) от 06.06.2023
-
-Steps Ahead - Steps Ahead (1983) [FLAC|Lossless|tracks + .cue] <Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pools (Don Grolnick) 11:15
-02. Islands (Mike Mainieri) 6:23
-03. Loxodrome (Eddie Gomez) 5:25
-04. Both Sides Of The Coin (Michael Brecker) 6:10(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520C4F76F794430D6468741BC3F33853FFEBEFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648645   (230022) от 27.07.2023
-
-Glenn Miller - The Very Best Of (1938 - 1942) 2CD, 2011, One Day Music [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tuxedo Junction [3:30]
-02. On A Little Street In Singapore (Vocal Ray Eberle) [2:44]
-03. Moonlight Serenade [3:27]
-04. Song Of The Volga Boatmen [3:26](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D816B1E3974F85B3948A8B376452823C55E481
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1469321   (1016531) от 11.05.2021
+
+VA - 100 Hits Remixed (2021) [MP3|~245 Kbps (V0)] <Disco, Dance, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016531.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam van Hammer - Self Control (Radio Edit) (3:10)
+002. Aurora feat. Lizzy Pattinson - Summer Son (Radio Edit) (3:28)
+003. Dirty Disco - I Feel Dirty (Space City Remix) (6:35)
+004. Eiffel 65 - Move Your Body (D.J.Gabry Ponte Original Radio Edit) (4:29)(   Читать дальше...   )Жанр: Disco, Dance, HouseПродолжительность: 08:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5686BD3663C4577A5FE1609EB8C20E79CD45C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469622   (1016307) от 13.05.2021
+
+VA - Beatport Techno Electronic: Sound Pack #281 (2021) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минималистический формат в техно музыке, вразрез всеобщему сужденью, один из самых сложных стилей. Ввиду того, что наименьшим составом нот получить эффектного звучания крайне трудно. Но авторам музыкальных треков этого компилата от Beatport похоже удалось это сделать!001. Cube Andy B - Triangle
+002. Sami Wentz - Monkeyz
+003. Emrah Celik - Blotic
+004. Bruce Zalcer - Requiem(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 09:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA92C4E812E347245B49F9145C1E4C745C1E4AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469672   (1016303) от 13.05.2021
+
+VA - Trance Music Collections 2021 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syncbat & Conciliator Project - To The Stars (Conciliator Project Remix)
+02. Damir TC - The Girl's Voice (Original Mix)
+03. Dmitriy Osipov - Sky (Original Mix)
+04. Dream Travel - 2 Chance (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive, ElectronicПродолжительность: 04:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0E2AEE9D18C0CA7B8F27300801B27C1910272D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469635   (1016291) от 13.05.2021
 
 VA - Deep Is The Breath: Chill House Music (2021) [MP3|320 Kbps] <Chill House, Deep House, Chillout>
@@ -658,93 +745,6 @@ Disco Fever - Tribute to.. (2020-2021) 3CD [MP3|320 Kbps] <Disco, Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0437958D67A0BE185A6363AFE21CA15A70BF33C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471874   (1014815) от 22.05.2021
-
-VA - Music News vol.102 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014815.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kamaliya - Танцую (03:59)
- 002. A.T feat. Rafal - Многоточия (02:50)
- 003. Aarne feat. The Limba & Markul - Noir (02:09)
- 004. Adelina - Не Улетай (03:08)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 10:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D5190DBF30827BA7D55944BD6DEC26526D71D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472065   (1014675) от 23.05.2021
-
-VA - Fresh Pop 2 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014675.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wulf - I'm Not Going Anywhere (2:59)
-002. Michael Schulte - Stay (2:52)
-003. Robert Grace - The Hurt You Gave Me (2:31)
-004. Bente - Ga Maar (2:54)(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3CB1513DED0F09DC024F6369EAD5ADA34C4A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471990   (1014672) от 23.05.2021
-
-VA - The Official UK Top 100 Singles Chart 21.05.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tion Wayne, Russ Millions - Body
-02. Olivia Rodrigo - good 4 u (New Entry)
-03. Doja Cat, SZA - Kiss Me More
-04. Lil Nas X - MONTERO (Call Me By Your Name)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9DF28F18C95A6DA7932AC5ECAD2D6A20DB042C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1614332   (206820) от 21.02.2023
+
+VA - Classic Rock Classic Hits (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Led Zeppelin - Whole Lotta Love (2012 Remaster)
+02. Fleetwood Mac - Go Your Own Way (2018 Remaster)
+03. Dire Straits - Sultans of Swing
+04. Jefferson Starship - Jane(   Читать дальше...   )Жанр: RockПродолжительность: 05:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808675188DBA48D3F9D399D3D309D56FFB2772D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652430   (206551) от 11.08.2023
+
+Suzi Quatro, KT Tunstall - Face To Face (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suzi Quatro, KT Tunstall - Shine A Light [03:24]
+02. Suzi Quatro, KT Tunstall - Face To Face [03:38]
+03. Suzi Quatro, KT Tunstall - Scars [03:27]
+04. Suzi Quatro, KT Tunstall - Good Kinda Hot [03:19](   Читать дальше...   )Жанр: RockПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5463B9124B1277909176DCF7B588A157A423EF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652302   (206521) от 11.08.2023
 
 Peter Gabriel - Come Talk to Me (Live) (2023) [MP3|320 Kbps] <Progressive Rock, Pop Rock>
@@ -681,64 +739,6 @@ Loggins & Messina - Long Island 1976 (live) (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB157D4B77F177D36F2E5D6026B2B619937C7B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658296   (190640) от 10.09.2023
-
-King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms And Lava (2022) [MP3|320 Kbps] <Psychedelic, Garage Rock, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mycelium [00:07:35]
-02 - Ice V [00:10:15]
-03 - Magma [00:09:06]
-04 - Lava [00:06:41](   Читать дальше...   )Жанр: Psychedelic, Garage Rock, DoomПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC8AC77B9F7E9779F7773CD98BF5562151932AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658026   (190626) от 10.09.2023
-
-The Staehely Brothers - Sta-Hay-Lee (1973) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Future Shock [00:04:00]
-02 - Concrete and Steel [00:04:27]
-03 - Woman in Love [00:02:51]
-04 - Woe Is Me [00:04:59](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E72142F26243D1521F63B4CFC9C7E7C4A799F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

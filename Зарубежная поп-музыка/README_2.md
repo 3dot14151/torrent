@@ -1,3 +1,32 @@
+###  Публикация: 1611532   (1040755) от 13.02.2023
+
+VA - Romantic Collection. Aria (2000) [OGG Vorbis|480 Kbps] <Electronic, Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebecca Lucker "Aria"–	Arianna
+02. Sarah Brightman–	Anytime, Anywhere
+03. Karen Cummigs–	Ave Maria
+04. Yuri Ogawa–	L'Amour Est Un Oiseau Rebelle "Carmen"(   Читать дальше...   )Жанр: Electronic, Pop, VocalПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A616A034807CC3C8FD293224A578267F6FBE120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611717   (1040751) от 13.02.2023
 
 VA - ФРАНЦУЗСКИЙ ПОДАРОК The Best Of France Nostalgique Part 1 (2004) [OGG Vorbis|480 Kbps] <Pop, Chanson>
@@ -716,35 +745,6 @@ VA - The Best 70's Music (2022) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:107EBE4C7F6BFD67A3F1AFE154C84686869D4103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620509   (1032143) от 20.03.2023
-
-VA - Should have held your hand (2023) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gracie Abrams - I miss you, I?m sorry
-02. Maroon 5 - Girls Like You
-03. Katy Perry - Part Of Me
-04. The Vamps - Somebody To You(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D1BD5B9C0B0D67023E410AA76D5FE5DC77C143
 ```
 
 https://mybot314.ru/tekegram_catalog/

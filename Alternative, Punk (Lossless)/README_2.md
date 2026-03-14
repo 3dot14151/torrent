@@ -1,3 +1,90 @@
+###  Публикация: 1456978   (1024779) от 24.03.2021
+
+Alter Bridge - AB III.5 (2010) Special Edition, Reissue, 2011, Roadrunner Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slip To The Void (4:53)
+02. Isolation (4:13)
+03. Ghost Of Days Gone By (4:25)
+04. All Hope Is Gone (4:49)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224A4C5022AC656660FFB4E6F0D903D98948884D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456901   (1024777) от 24.03.2021
+
+Alter Bridge - Blackbird (2007) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ties That Bind
+02. Come To Life
+03. Brand New Start
+04. Buried Alive(   Читать дальше...   )Жанр: Alternative Metal, Post-GrungeПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4259627EDD42AEFD98686327B62233E1665B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002940   (1024467) от 25.03.2021
+
+The Cranberries - 14 альбомов, 1 Box Set (1993 - 2019) 25 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Alternative, Pop-Rock>
+
+>>След.
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024467.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Cranberries - ирландская рок-группа, образованная в 1989 году и добившаяся мировой известности в 1990-х. Хотя официально группа не распущена, с 2003 года её активность приостановилась. Воссоединится в ноябре 2009 года. Яркий и сильный вокал Долорес О’Риордан, мелодичный рок с легкими национальными влияниями, «открытый» гитарный драйв, проникновенная лирика (песни (   Читать дальше...   )Список альбомов:
+1993 - Everybody Else Is Doing It So Why Can't We
+1994 - No Need To Argue (The Complete Sessions 1994-1995)
+1996 - To The Faithful Departed (The Complete Sessions 1996-1997)Жанр: Alternative, Pop-RockПродолжительность: 22:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA699A9081C4EB2DDF1942D9CBC79BE10715223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460459   (1022600) от 05.04.2021
 
 Guano Apes - Proud Like A God (1997) Reissue, 1998, Supersonic Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal>
@@ -654,93 +741,6 @@ Royal Blood - Typhoons (2021) Deluxe Edition [FLAC|Lossless|Web-DL|tracks] <Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3A4B765084FC61A2D56D6289C307D7CE96B48E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469349   (1016436) от 12.05.2021
-
-Diamante - American Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Dream (3:05)
-02. Ghost Myself (3:12)
-03. Serves You Right (3:34)
-04. Obvious (3:42)(   Читать дальше...   )Жанр: Alternative, Female VocalПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F589ACDEB3D4CDCDF0D350AAA3343174D3780CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471800   (1014519) от 24.05.2021
-
-August Burns Red - Leveler: 10th Anniversary Edition (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - X [00:02:20]
-02 - Empire [00:03:51]
-03 - Internal Cannon (feat. Matthew K Heafy) [00:03:47]
-04 - Divisions [00:03:23](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B06A0966DF56FCE1384B79846B68BAE7B8E35B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471897   (1014506) от 24.05.2021
-
-Dawn Of Dusk - Flight Trajectory (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Minority (00:05:08)
-02 - Witch (00:03:23)
-03 - One Sided (00:04:23)
-04 - Northern Lights (00:05:41)(   Читать дальше...   )Жанр: Alternative Rock, GrungeПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45361BCD80AA96FE46F4478D60EAA9139F75AACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

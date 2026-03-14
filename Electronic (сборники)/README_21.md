@@ -1,3 +1,32 @@
+###  Публикация: 980133   (957411) от 28.01.2016
+
+VA - Sexy Deep House Session (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jon Cage - On Top of the World
+02. Jon Craig - Out of the Blue 2015 - Radio Edit
+03. Just Matte - Rusty Boat
+04. Jonathan Morning - Matter of Time(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB6D06F6E8E08B5CF344F5EC1D51E76AB68F42D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979941   (957409) от 28.01.2016
 
 VA - Atmosphere Bliss: Vocal And Uplifting Trance (2016) [MP3|320 кб/с] <Vocal, Uplifting Trance>
@@ -728,35 +757,6 @@ VA - Exquisite Deephouse (2016) [MP3|320 кб/с] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BF1EF57BCF229672BF1CB4FCD44B1135A56F433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981776   (951690) от 01.02.2016
-
-VA - Private Lounge Cafe, Vol. 4 (25 Delicious Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lind Variante - Costante - Original Mix (05:01)
-02. Spa - Come to Love - Original Mix (04:55)
-03. Leo & Roby Ruini - La Suite - Original Mix (05:25)
-04. Backroom Barn - Sweet Dream - Original Mix (03:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B5CF6FA6BEACD691DE2A3C93053414503B3ED5
 ```
 
 https://mybot314.ru/tekegram_catalog/

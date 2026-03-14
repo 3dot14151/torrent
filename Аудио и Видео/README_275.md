@@ -1,3 +1,32 @@
+###  Публикация: 1524929   (130302) от 18.01.2022
+
+VA - Soul Food Chillout (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Mundi - Chuchaqui (5:47)
+02. Logophilia - Surfaces (6:03)
+03. Ace Of Duty - Prerogatives (6:13)
+04. Paco Borges Ensemble - Sonido de Madera (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A7A913535EB446D460FBA34480A98231B4195A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524736   (130298) от 18.01.2022
 
 Michael Simon - Salama (2022) [AAC|~311 Kbps] <Deep House, Organic House>
@@ -716,35 +745,6 @@ VA - Reggaeton World, Vol. 4 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D928D1F9D6E0E22215B82293F9762DDE2AAE91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525415   (129512) от 20.01.2022
-
-VA - Reggaeton Nocturno, Vol. 2 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Omar - Dile (3:27)
-02. Lalo Ebratt, J Balvin, Trapical - Mocca (Remix) (3:23)
-03. Daddy Yankee, Nicky Jam, Plan B - Shaky Shaky (Remix) (3:55)
-04. Cali Y El Dandee - Ay Corazón (3:10)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F3CE03BF61D8324182B5695467C728C2D21AFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

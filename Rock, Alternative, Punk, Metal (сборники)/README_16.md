@@ -1,3 +1,32 @@
+###  Публикация: 1126467   (765375) от 18.04.2017
+
+VA - I Love Music! - Gothic Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765375.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Batalion d'Amour - Bez Nas 5:56
+002. Bitterfeldt - Eines Tages 8:47
+003. Bitterfeldt - Nordlicht 9:35
+004. Bliss In The Abyss - The Book Of Silence 7:16(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Symphonic MetalПродолжительность: 08:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA455D1583DFC31737EB75AFA46392C33FF99116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126565   (765371) от 18.04.2017
 
 VA - I Love Music! - Heavy Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal, Progressive Metal>
@@ -716,35 +745,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6B71943DCAE6475A1692883D51C2828C7A33F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280759   (758626) от 04.02.2019
-
-VA - Heavy Metal Collections Vol. 10 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758626.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01. Dark Sky - Into The Arena (2018)(1:36)
-02. Mob Rules - Ghost Of A Chance (2018)(4:45)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D88FD183E0E0EDF034176CE6D3D6AD4E3125357
 ```
 
 https://mybot314.ru/tekegram_catalog/

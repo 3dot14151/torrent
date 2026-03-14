@@ -1,3 +1,148 @@
+###  Публикация: 954582   (339966) от 08.11.2015
+
+Anouk - Greatest Hits (2015) 2CD [FLAC|image+.cue]<Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern World
+02. If I Go
+03. Three Days In A Row
+04. Woman(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159C55B6DAB3990D8CF78F090E9E22FD664475C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954576   (339837) от 08.11.2015
+
+Bjork - Vulnicura Strings (2015) [FLAC|tracks+.cue]<Pop, Experimental, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mouth Mantra
+02. Lionsong
+03. Black Lake
+04. Atom Dance(   Читать дальше...   )Жанр: Pop, Experimental, AcousticПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773F67186A9FAA6BC8B39C391EAFBC7050B232DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 839403   (339683) от 10.11.2014
+
+VA - 1981 The Collection (Time Life) (1993) 2CD [FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следующий диск из серии Time Life Music. Решил поделиться. Может кто молодость вспомнит.01. REO Speedwagon - Keep On Loving You  (3:21)
+02. Foreigner - Waiting For A Girl Like You  (4:36)
+03. Robert Palmer - Looking For Clues  (4:19)
+04. Steve Winwood - While You See A Chance  (5:12)(   Читать дальше...   )Жанр: Pop, Rock, Jazz, Electronic
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF88C19502EE8BB082037544D27AF1D476590CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419611   (337695) от 29.10.2020
+
+VA - Christmas 2020 Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gwen Stefani - Jingle Bells
+ 02. The Vamps - We Wish You A Merry Christmas
+ 03. Justin Bieber - Mistletoe
+ 04. Brenda Lee - Rockin' Around The Christmas Tree (Single Version)(   Читать дальше...   )Жанр: Pop, Rock, ChristmasПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2113136AF159E42FE3AB51C1753E85568A161542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413145   (337684) от 29.10.2020
+
+Missio - Discography (2016-2020) 3 Albums, 2 EP's, 14 Singles [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Synth-Pop, Future Bass>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337684.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Animal 3:30
+2. I Do What I Want 3:37
+3. Middle Fingers 3:35
+4. I Don't Even Care About You 3:35(   Читать дальше...   )Жанр: Pop-Rock, Synth-Pop, Future BassПродолжительность: 04:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370F6C3127BCB777419624BC919C643BFC3C6180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 840092   (337524) от 11.11.2014
 
 VA - 1982 The Collection (Time Life) (1994) [FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
@@ -595,151 +740,6 @@ Ellie Goulding - Delirium (Deluxe Edition) (2015) [FLAC|Image+cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EEB9CB2422AB13B9C6008554F83F4AB93CFD392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580458   (330726) от 01.10.2022
-
-Richard Marx - Songwriter (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Same Heartbreak Different Day
-02. Only A Memory
-03. Anything
-04. Moscow Calling(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E25C2EFF2C713CFF5AFA5F9EDEFE0AB7230AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580525   (330714) от 01.10.2022
-
-Leo Rojas - Colours of Nature (2022) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лео Рохаса называют "поп-звездой панфлейты". Colors of Nature - уже шестой альбом Рохаса. Он был выпущен 6 мая 2022 года. Juan Leonardo Santilla Rojas родился 18 октября 1984 года в небольшом городке Otavalo, Ecuador. Он эмигрировал в Испанию в 2000 году, а сейчас живет в Берлине вместе со своей женой-полькой. Leo Rojas стал одним из самых узнаваемых лиц (   Читать дальше...   )01. Blinding Lights (3:29)
-02. Bad Habits (3:52)
-03. Wellerman (2:03)
-04. Cold Heart (3:24)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555A3144DF2EEB55F97FCC41BACFA763C10B65C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956469   (330175) от 14.11.2015
-
-Simply Red - Big Love: Greatest Hits Edition (30th Anniversary) (2015) [FLAC|tracks|WEB-DL]<Pop,Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On (3:11)
-02. Daydreaming (3:37)
-03. Big Love (4:09)
-04. The Ghost of Love (3:14)(   Читать дальше...   )Жанр: Pop,SoulПродолжительность: 01:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7343B1337972A3F43224EE0ED6E184CB032615A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580673   (329814) от 02.10.2022
-
-Didier Marouani & Paris • France • Transit - Concerts En URSS (1983) Reissue, 1996, PolyGram [FLAC|Lossless|image + .cue] <Pop Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый «живой» альбом Дидье Маруани и Paris-France-Transit с концертов, которые проходили в 1983 году в СССР — в Москве, Ленинграде и Киеве.01. Music From The Stars 3:58
-02. Paris France 5:35
-03. Running In The City 4:28
-04. Child 5:43(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, DiscoПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF0744E67F4BD0ED408178BEBD5AD530399F028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580955   (327944) от 04.10.2022
-
-Madonna - Finally Enough Love: 50 Number Ones (2022) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hung Up (SDP Extended Vocal Edit) (00:04:56)
-02 - Sorry (PSB Maxi Mix Edit) (00:04:32)
-03 - Get Together (Jacques Lu Cont Vocal Edit) (00:04:22)
-04 - Jump (Axwell Remix Edit) (00:04:44)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1749B60A5B8896EEA7AE7583BDE1A91193287D
 ```
 
 https://mybot314.ru/tekegram_catalog/

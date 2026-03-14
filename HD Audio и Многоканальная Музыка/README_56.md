@@ -1,3 +1,146 @@
+###  Публикация: 1611622   (207551) от 12.02.2023
+
+Sarah Brightman & The London Symphony Orchestra – Time To Say Goodbye (1997) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Electronic, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Timeless, известный как Time to Say Goodbye в США и Канаде, — пятый альбом Сары Брайтман и Лондонского симфонического оркестра. Альбом стал золотым или платиновым в 21 стране, было продано более 1,4 миллиона копий только в Соединенных Штатах и он возглавлял чарт Billboard Classical Crossover в Соединенных Штатах в течение 35 недель. Релиз альбома EMI в формате SACD (   Читать дальше...   )Жанр: Vocal, Pop/Rock, ClassicalПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B6ED963EADBFCCCC00C8BC2868E5E443A5B37B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578638   (207429) от 24.09.2022
+
+Pink Floyd - Animals (2018 Remix) (1977) Reissue, 2022, Analogue Productions  [DSD64(DST64) 2.0, 5.1|2822,4/1|SACD-R] <Psychedelic Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207429.jpg" />
+</div>
+
+
+###  Подробнее
+
+The time for the SACD release all Pink Floyd fans have coveted — Animals in 5.1 surround and stereo — is here. Another classic Pink Floyd title receives the multichannel reissue treatment and Acoustic Sounds and Analogue Productions is here to proudly handle exclusive distribution of this monumental disc. The SACD also of course includes a stunning stereo mix. And (   Читать дальше...   )01. Pigs On The Wing 1
+02. Dogs
+03. Pigs (Three Different Ones)
+04. Sheep(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:41:51 / 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE5A4B63836A7330C3941B589213734828811E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612256   (207268) от 15.02.2023
+
+Queen - Greatest Hits (1990) Мелодия, по лицензии EMI Records Ltd. [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207268.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bohemian Rhapsody
+A2 Another One Bites The Dust
+A3 Killer Queen
+A4 Fat Bottomed Girls(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7A6F02FA2D385BE5FCA924FA8301394EB6752E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616772   (207230) от 03.08.2023
+
+Immortal - Studio Albums (8 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Immortal — блэк-метал-группа из Норвегии. Коллектив образовался после распада дэт-метал-группы Amputation в 1991 году.
+Ранние полноформатные релизы Immortal были выполнены в традиционном для блэк-метала стиле, но альбом At the Heart of Winter показал, что группа начала экспериментировать на стыке блэк-метала и немецкой школы трэш-метала. Immortal оказали большое (   Читать дальше...   )1995 - Battles In The North
+1997 - Blizzard Beasts
+1999 - At the Heart of Winter
+2000 - Damned in BlackЖанр: Black MetalПродолжительность: 05:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504D540E874F75669070C2045EE6AB1C902C5D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612594   (207094) от 17.02.2023
+
+ВИА Синяя птица - Коллекция (1977-1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207094.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Мамина Пластинка
+A2 Первая Любовь
+A3 Не Обижайся
+A4 Жасмин(   Читать дальше...   )Жанр: Pop RockПродолжительность: 04:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54016146C4B7B40ACA8DA37774976200B0234EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183813   (206927) от 06.08.2023
 
 Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
@@ -596,152 +739,6 @@ Vanessa-Mae - The Violin Player (1995) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B917221CB8D3F53DB9C9F702F9CC7F39289A37D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655843   (203795) от 28.08.2023
-
-Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ Мелодия, лицензия от Polydor [FLAC|24/192|image + .cue|VinylRip] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203795.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Score • Счет
-A2 Learning To Fly • Учимся Летать
-A3 The Miracle • Чудо
-B1 Touch And Go • Рискованная Игра(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF43BC248540E603C906DEC9C075587250AC43B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655732   (203748) от 28.08.2023
-
-Norther - Studio Albums (7 releases) (2002-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Norther (сильный северный ветер) — мелодик дэт-метал группа из Финляндии.2002 - Dreams of Endless War
-2003 - Mirror of Madness
-2004 - Death Unlimited
-2006 - Till Death Unites UsЖанр: Melodic Death/Power MetalПродолжительность: 05:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908F32F299D493744B4B5C15CD5B743391BD093A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656086   (203631) от 29.08.2023
-
-Katz - Дуэт Katz. Швеция (1987) Лицензия от World Record Music [FLAC|24/192|image + .cue|Viny-lRip] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203631.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Необыкновенная Женщина • Female Of The Species
-A2 Все, Что Я Могу, - Любить Тебя • Loving You Is All I Know
-A3 О Чем Ты Думаешь • What Goes On In Your Mind
-A4 Танцующие Туфельки • Dancing Shoes(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6670368A67381097772F3523C9C683F473CF8AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152990   (203599) от 24.01.2023
-
-The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203599.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Venus
-A2 Shocking You
-A3 Send Me A Postcard
-A4 Long And Lonesome Road(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE01C253D456D1B59789DCB8FEA0F866E12B44B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567596   (203562) от 25.01.2023
-
-Muse - Studio Albums (10 releases) (1999 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks + .cue] <Alternative rock, progressive metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Muse — британская рок-группа, образованная в 1994 году в городе Тинмут (графство Девон).
-Группа состоит из трёх участников: Мэттью Беллами (вокал, гитара, клавиши), Криса Уолстенхолма (бас-гитара, бэк-вокал, вокал) и Доминика Ховарда (ударные).1999 - Showbiz
-2001 - Origin Of Symmetry
-2003 - Absolution
-2006 - Black Holes And Revelations(   Читать дальше...   )Жанр: Alternative rock, progressive metalПродолжительность: 10:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBA7EF7B7B54B620C338E049529D44B629B3255
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1750178   (43134) от 18.09.2024
+
+The Residents - Demons Dance Alone (2019) pREServed Edition, 2024, Cherry Red Records [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pickle [00:07:05]
+02. Betty's Body (Live, Demons Tour, Warsaw Ballroom, Brooklyn, NY, 15 November 2002) [00:03:46]
+03. Caring (Live, Demons Tour, Warsaw Ballroom, Brooklyn, NY, 15 November 2002) [00:04:06]
+04. My Brother Paul (Live, Demons Tour, Warsaw Ballroom, Brooklyn, NY, 15 November 2002) [00:03:22](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 3 CD, 03:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A66E27AC61215B25356054E8B280ACB36A52671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755712   (40092) от 17.10.2024
+
+Paul McCartney & Wings - Red Rose Speedway (1973) Archive Collection, 2018, Paul McCartney Catalog [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Big Barn Bed (2018 Remaster) [00:03:50]
+02 - My Love (2018 Remaster) [00:04:08]
+03 - Get On The Right Thing (2018 Remaster) [00:04:17]
+04 - One More Kiss (2018 Remaster) [00:02:29](   Читать дальше...   )Жанр: RockПродолжительность: 01:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2B4FA85BB6678616163AC3300624A38AA15D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755723   (40066) от 17.10.2024
 
 Widespread Panic - Warfield 2000 #4 (2024) [MP3|320 Kbps] <Southern Rock, Alternative Rock, Blues Rock, Country Rock>
@@ -687,64 +745,6 @@ Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFBB0871E67DBDEB3213813A991B4D588FA1F0BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804107   (13282) от 27.06.2025
-
-Bruce Springsteen - Tracks II: The Lost Albums (2025) [MP3|320 Kbps] <Rock, Folk Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I'm Not Sleeping [3:38]
-02 - Idiot's Delight [3:35]
-03 - Another Thin Line [4:47]
-04 - The Great Depression [3:48](   Читать дальше...   )Жанр: Rock, Folk Rock, Pop RockПродолжительность: 05:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD36A5AC60F664DDE5E7A8A187C176CFBCDCBAA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806572   (11590) от 13.07.2025
-
-Chris Rea - New Light Through Old Windows (1988) 2CD, Reissue, Remastered, 2025, Rhino [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Dance (Instrumental) [00:04:16]
-02. Working on It (Instrumental) [00:04:26]
-03. Ace of Hearts (Instrumental) [00:04:54]
-04. Josephine (Instrumental) [00:04:36](   Читать дальше...   )Жанр: Pop RockПродолжительность: 2 CD, 01:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:693D2C92F065DA188E9FF4B2C839325003716912
 ```
 
 https://mybot314.ru/tekegram_catalog/

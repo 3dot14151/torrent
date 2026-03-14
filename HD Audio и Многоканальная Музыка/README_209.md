@@ -1,3 +1,148 @@
+###  Публикация: 1804293   (65693) от 28.06.2025
+
+Sonic Mood - Sunny Guitars - Neo Jazz LoFi (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Breakfast (2:35)
+02.  Easy (2:54)
+03.  Flower (2:31)
+04.  Healing (2:48)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE3E068F1B084AC7ED409165584E387FE5D68B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804214   (65691) от 28.06.2025
+
+Adrian Quesada - Boleros Psicodelicos II (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin, Funk, Soul, Bolero, Psychedelic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ojos Secos [00:03:52]
+02. Bravo [00:03:28]
+03. No Juego [00:03:16]
+04. Cuatro Vidas [00:04:01](   Читать дальше...   )Жанр: Latin, Funk, Soul, Bolero, PsychedelicПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1B8FFC0F47CFE11A04E4C0AA03BFD154A64354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804282   (65685) от 28.06.2025
+
+Orianthi - Some Kind of Feeling (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Attention (3:48)
+02.  Some Kind of Feeling (4:44)
+03.  What I've Been Looking (5:15)
+04.  Sharp Dressed Man (2:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654929BAC7129FF19DB5FC110C8A3001945AFDFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804279   (65683) от 28.06.2025
+
+Mute Balloon - Out of the Red (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Always Be Enough (3:18)
+02.  A Little Bit (3:14)
+03.  Solar Man (3:22)
+05.  Brown Eyed Blues (3:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C93A83C85C70347575584DCAED859E89A359BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804289   (65682) от 28.06.2025
+
+Qbiq - Endless Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anno Domini 1600 (0:46)
+02.  The Light (4:14)
+03.  Whispers (4:26)
+04.  The Mask (3:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B110DCB90BD31F4A6CF85600B2F717C50447EB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804292   (65681) от 28.06.2025
 
 Shiver. - Topsfield Fair (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -600,151 +745,6 @@ Supernatural Blondes - Art Of Heartbreak (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3822A4CE8BA308E96F234F61F4511CC99897BC1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805156   (65500) от 04.07.2025
-
-Greet Death - Die In Love (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie, Shoegaze, Slowcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die In Love [00:02:38]
-02. Same But Different Now [00:05:22]
-03. Country Girl [00:05:54]
-04. Red Rocket [00:04:38](   Читать дальше...   )Жанр: Indie, Shoegaze, SlowcoreПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D34CB9963E61AD63A0434A9D344C5C6E54560DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805154   (65499) от 04.07.2025
-
-King Witch - III (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suffer In Life [00:04:14]
-02. Deal With The Devil [00:05:49]
-03. Swarming Flies [00:04:49]
-04. Sea Of Lies [00:06:48](   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45CDE10D07BDBEE7D462BEB4948AEFDE607555C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805148   (65497) от 04.07.2025
-
-Wavves - Spun (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, indie rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spun [00:03:29]
-02. Lucky Stars [00:03:35]
-03. New Creatures [00:03:28]
-04. Goner [00:02:45](   Читать дальше...   )Жанр: Alternative, indie rockПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E168C228BD6E84E45CA1561D3AC52C9ACAF03D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805153   (65495) от 04.07.2025
-
-Kommission Z80 - Hegemony (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <EBM, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empire (Album version) [00:04:19]
-02. Choose [00:04:12]
-03. Deny, defend, dispose! [00:04:01]
-04. Never cross a picket line [00:04:02](   Читать дальше...   )Жанр: EBM, DanceПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFDE2E5B3F02C7910CB9E8B901A356D38E9D6C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805228   (65493) от 04.07.2025
-
-Black Furies - Get Down Get With It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Prime Mover (2:59)
-02.  Suffragette City (2:58)
-03.  Teenage Kicks (2:33)
-04.  Loretta (2:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBEC218406B8A5CE8FEC230D7F391CB73FD4A8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1604056   (1045522) от 12.01.2023
+
+Tri-Fi - Postcards (2007) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pumpkin [6:00]
+02. Postcards from Abroad [7:12]
+03. Wisdom... 1st Things 1st [7:20]
+04. Creative Force [4:54](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860E08B32D97A2AA6696AA49E982031C7BA2E33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604058   (1045521) от 12.01.2023
+
+The Charles Mingus Group - Debuts Rarities, Vol. 3 (1957) 1993, Universal [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled Original Blues - Take 1 [3:59]
+02. Stella by Starling - Take 4 [4:01]
+03. Stella by Starling - Take 5 [3:57]
+04. Untitled Original Composition - Take 3 [5:22](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA42BA68A52CDEA98C469AAB37C394E808E82A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604280   (1045402) от 13.01.2023
 
 Karin Krog - Where You At? (2003) Enja Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
@@ -687,64 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9470ADCEC187ED985F9357B01D93430DA7664A8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605494   (1044871) от 18.01.2023
-
-Larry Coryell - Larry Coryell's Last Swing With Ireland (2016) 2021, Angel Air [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Sentimental Mood [10:33]
-02. Morning of the Carnival [6:45]
-03. Relaxin' at the Camarillo [6:34]
-04. Someday My Prince Will Come [6:45](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C35A5B835C6ED761AF80AD983D38F06EF47A639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605735   (1044744) от 19.01.2023
-
-Greg Abate & Phil Woods With The Tim Ray Trio - Kindred Spirits: Live At Chan's (2014) 2CD, 2016, Whaling City Sound [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044744.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Set 1:
-01. Steeplechase (Thriving on a Riff) [11:34]
-02. A Sleepin' Bee [11:37]
-03. The End of a Love Affair [9:43](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 02:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BD1CD7629D17DC019BF8F9CDED2CC907C7F149
 ```
 
 https://mybot314.ru/tekegram_catalog/

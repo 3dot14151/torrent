@@ -1,3 +1,61 @@
+###  Публикация: 1366147   (925728) от 10.03.2020
+
+V.A. - Coffee Bar Lounge, Vol. 17 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miper - Move On (Original Mix)
+02. Weathertunes - Grand View (Original Mix)
+03. Lazy Hammock - Naked Being (Original Mix)
+04. Twentyeight - Stars (Original Version)(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7D6EB1E022F1A33101B330121B869ED6BFB92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988235   (922773) от 19.02.2016
+
+Portico - Living Fields (2015) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Broken Beat, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Fields (feat. Jono McCleery) (03:12)
+02. 101 (feat. Joe Newman) (04:46)
+03. Where You Are (feat. Jono McCleery) (01:41)
+04. Atacama (feat. Joe Newman) (05:00)(   Читать дальше...   )Жанр: Downtempo, IDM, Broken Beat, AmbientПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27870513949B1202C6711044B0C4B0E428259D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987405   (922723) от 19.02.2016
 
 Trademarks & Copyrights - Marble Girls (2016) [FLAC|Lossless|WEB-DL|tracks] <Vaporwave, Chillout, Lounge>
@@ -687,64 +745,6 @@ VA - Isolation Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F64FCFE4A18086A585CEB6C541A423FA02CCAF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375483   (865485) от 14.04.2020
-
-Peter Pearson - A Piece of a Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Piece of a Dream
-02. Chilled to the Heart
-03. Affairs of the Heart
-04. Midnight Oil(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D01B432F6989B35D6BC8E49CF1650486E45468A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375351   (865395) от 14.04.2020
-
-VA - Satin Love (Luxury Jazz Music For Fine Dine & Lounge) (2018) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Easy Listening, Smooth Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865395.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Fabrice Mogini - Dinner In Style (Original Mix) (3:20)
-2.Riaan Nieuwenhuis - In The Light (Original Mix) (4:33)
-3.Vocalatti - Parisienne Chill (Original Mix) (3:14)
-4.Alexandre Molodkov - Awash Yacht (Original Mix) (3:27)(   Читать дальше...   )Жанр: Lounge, Easy Listening, Smooth JazzПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37EBBDAAE35D47679FB4F38DA1ADAB1B09349A7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

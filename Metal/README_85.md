@@ -1,3 +1,32 @@
+###  Публикация: 1834174   (248548) от 03.11.2025
+
+Moonspell - Opus Diabolicum - The Orchestral Live Show (Live) (2025) [MP3|320 Kbps] <Atmospheric-Gothic-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tungstennio (feat. Orquestra Sinfonietta de Lisboa) (Live)(6:52)
+02.Em Nome do Medo (feat. Orquestra Sinfonietta de Lisboa) (Live)(5:31)
+03.1755 (feat. Orquestra Sinfonietta de Lisboa) (Live)(5:34)
+04.In Tremor Dei (feat. Orquestra Sinfonietta de Lisboa) (Live)(4:18)(   Читать дальше...   )Жанр: Atmospheric-Gothic-MetalПродолжительность: 01:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2A121588ECC0B294B397A0224EA61EDD632861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493060   (248465) от 07.05.2012
 
 VA - The Best Metal Duets (2011) [MP3|320 кб/с]<Gothic Rock, Rock, Metal>
@@ -723,35 +752,6 @@ Center of the Earth - 4 Albums (2018-2023) [MP3|320 Kbps] <Psych, Stoner, Doom M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9772289BCB8FC2B4F9F74132C7D920F5657D602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452746   (244380) от 07.03.2021
-
-Drac Attack! - Drac Attack! (2021) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vampire Killer (02:15)
- 02. Magic (04:42)
- 03. Drac Attack! (06:46)
- 04. Into the Dungeon (06:02)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87921027BEEFC675C96C4B5416686D9E9C7FEAA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

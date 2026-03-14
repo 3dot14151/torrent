@@ -1,3 +1,90 @@
+###  Публикация: 1181163   (335689) от 06.11.2017
+
+Joe Williams - Live (1973) 1997, Original Jazz Classics [APE|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who She Do [04:29]
+02. On Green Dolphin Street [05:05]
+03. Heritage [03:22]
+04. Sad Song [04:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE25B0B023693DD489E2DEA98B6E75567DA3ED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181159   (335688) от 06.11.2017
+
+Peter O'Mara - Stairway (1993) Enja [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abertura [05:38]
+02. Stairway [08:02]
+03. Round & Round [06:16]
+04. Crescent [07:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65EA4E232248E9D8181CA389DCA2B96507FA1B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955366   (335416) от 10.11.2015
+
+Barney Wilen - Tilt (1957) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blue N' Boogie [04:25]
+ 02.Nature Boy [04:27]
+ 03.Melancholy Baby [05:11]
+ 04.Night In Tunisia [04:28](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55EC9741E1B3F8386F6A482D6878736DDCE4FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331000   (335116) от 13.10.2019
 
 Vic Dickenson - Five Classic Albums Plus (1953 - 1959) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -668,93 +755,6 @@ Masabumi Kikuchi - Re-confirmation (1970) 2015, Unversal[FLAC|tracks+.cue]<Jazz 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:254865B0435430AE7CA1A60552766004FCF5AB6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956159   (331293) от 13.11.2015
-
-Oliver Nelson - More Blues And The Abstract Truth (1964) 2015, Universal[FLAC|tracks+.cue]<Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues And The Abstract Truth [05:15]
- 02.Blues O'Mighty [06:48]
- 03.Theme From Mr. Broadway [05:50]
- 04.Midnight Blue [04:09](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEBFA1CCF5B9083F72873DEFCA1BAC0614C8907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955882   (331292) от 13.11.2015
-
-Sam Rivers - A New Conception (1966) 2014, Universal[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When I Fall In Love [05:52]
- 02.I'll Never Smile Again [05:59]
- 03.Detour Ahead [05:12]
- 04.That's All [05:41](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3C597923B3DD1DC02A4222715DDA4A197375D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956204   (331142) от 13.11.2015
-
-Tommy Flanagan - Jazz Poet (1989) 2015, Timeless Records[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Raincheck [05:01]
- 02.Lament [05:10]
- 03.Willow Weep For Me [06:05]
- 04.Caravan [06:25](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5200CEA8B2E34EBCAECCFB2B423AE2DFD6B9FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

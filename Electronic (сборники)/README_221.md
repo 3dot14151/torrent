@@ -1,3 +1,32 @@
+###  Публикация: 1759905   (37611) от 11.11.2024
+
+VA - Sick Disco Moves (2024) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37611.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelo Ferreri - That Riff 05:06
+ 002. Jeanne Mas - Johnny Johnny 04:46
+ 003. Donna Summer - Last Dance 07:47
+ 004. Gloria Gaynor - I Will Survive 08:02(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 10:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80B400213513AEBBE91C2A3225F4957E85A39E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760084   (37508) от 12.11.2024
 
 VA - Warm Time Electro House (2024) [MP3|320 Kbps] <Electro, House>
@@ -716,35 +745,6 @@ VA - Musical kaleidoscope part 17 Electronic, Instrumental, Easy listening (2024
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFD68077A1B3D604140B356AADE45DB3F66C0375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765798   (34063) от 15.12.2024
-
-VA - Compilation part 134 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumanov - Blind
-02. Dndm - Four Keys
-03. A-Sultan - Shock
-04. Davit Barqaia - The Fog is Coming(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83EABBE8D0D924D1A034980FFEE61B6AD50EBB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

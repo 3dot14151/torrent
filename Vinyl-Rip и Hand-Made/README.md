@@ -1,4 +1,119 @@
 https://t.me/izofen
+###  Публикация: 1858874   (1060778) от 
+
+Skeeter Davis and Bobby Bare - Tunes For Two (1965) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060778.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A Dear John Letter
+A2 Too Used To Being With You
+A3 In The Misty Moonlight
+A4 We'll Sing In The Sunshine(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244DBE2701206B955A6AD861CEABF1E56CF8098D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858576   (1060650) от 11.03.2026
+
+VA - Twenty-Five Years Of Royal Variety At The London Palladium 1930 - 1973 (1973) Compilation, Gatefold With Book [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Music Hall>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060650.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The London Palladium Orchestra - Another Opening, Another Show
+A2 The New Seekers - What Have They Done To My Song, Ma?
+A3 The London Palladium Orchestra - There's No Business Like Show Business
+A4 Andy Williams - Almost There(   Читать дальше...   )Жанр: Pop, Music HallПродолжительность: 01:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B255F5BE7707A560757FBCC5165C20F5D488AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858713   (1060567) от 12.03.2026
+
+Ebony Tears - Studio Albums (3 releases) (1997-2001) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ebony Tears - метал-группа из Стокгольма, Швеция, основана в 1996 году.1997 - Tortura Insomniae
+1999 - A Handful Of Nothing
+2001 - Evil as HellЖанр: Melodic Death/Thrash MetalПродолжительность: Melodic Death/Thrash Metal
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7828DAA925EBD8B3430B70EDF8D717B8C13D91D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858735   (1060539) от 12.03.2026
+
+Tammy Wynette - In Love (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060539.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 'Til I Can Make It On My Own
+A2 Just In Case
+A3 He's Just An Old Love Turned Memory
+A4 The World's Most Broken Heart(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1488AA33E33859AEC48B9B2F9F1C62AE5F8E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857774   (1059790) от 07.03.2026
 
 Boston Pops Orchestra • Arthur Fiedler - Classical Music For People Who Hate Classical Music (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical>
@@ -628,122 +743,6 @@ A4 Are You Sincere?(   Читать дальше...   )Жанр: Jazz, Pop, Easy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AD26A8E0BA563BAC5EB5E535C4A0068B0C83FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852741   (1056114) от 09.02.2026
-
-Obscurity - Studio Albums (10 releases) (2000-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Viking/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Obscurity - немецкая метал-группа из г. Фельберт, Северный Рейн-Вестфалия, основана в 1997 году.2000 - Bergisch Land
-2003 - Thurisaz
-2007 - Schlachten & Legenden
-2009 - VararЖанр: Melodic Black/Pagan/Death MetalПродолжительность: 07:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0670E14020DC5CCE03A2FBC85427CB54E93D95EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852037   (1055737) от 05.02.2026
-
-Cliff Richard - Silver (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055737.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Silver's Home Tonight
-A2 Hold On
-A3 Never Say Die (Give A Little Bit More)
-A4 Front Page(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB83BB4932B80DD0E3F23B07E3054304193FBBDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852182   (1055626) от 06.02.2026
-
-The Seatbelts - Cowboy Bebop (2020) Original Series Soundtrack [FLAC 2.0|44.1/24|image +.cue|MC-Rip] <Soundtrack, Jazz, Anison>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A
-01. Tank!
-02. Rush
-03. SPokey Dokey(   Читать дальше...   )Жанр: Soundtrack, Jazz, AnisonПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F725BF81796F2AE6CA4552E86CF520064ED805FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851998   (1055507) от 05.02.2026
-
-Ronnie Romero - Studio Albums (4 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ронни Ромеро (Ronald Romero Vasquez) — чилийский рок-вокалист и автор текстов песен, известен как участник групп Lords of Black, Sunstorm, Destinia, Elegant Weapons, Gotus, The Ferrymen, Walter Giardino Temple и Rainbow.2022 - Raised on Radio
-2023 - Raised On Heavy Radio
-2023 - Too Many Lies, Too Many Masters
-2025 - Backbone(   Читать дальше...   )Жанр: Heavy Metal/Hard RockПродолжительность: 03:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3C80538E4763A3B9730E440CE1CE5F0750493D
 ```
 
 https://mybot314.ru/tekegram_catalog/

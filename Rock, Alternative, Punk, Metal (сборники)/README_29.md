@@ -1,3 +1,32 @@
+###  Публикация: 1408312   (458156) от 11.09.2020
+
+VA - Seventh Seal (2020) [MP3|320 Kbps] <Hard Rock, Ballad, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fairyland - The Hidden Kingdom Of Eloran
+02. Dream Evil - The End
+03. Primal Fear - Seven Seals
+04. Wisdom - Unholy Ghost(   Читать дальше...   )Жанр: Hard Rock, Ballad, MetalПродолжительность: 05:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169715AEA04F12ABCE568AF3B271C544A5F961FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942097   (457636) от 29.09.2015
 
 Elvis Presley - Good Songs (2015) [MP3|192 кб/с]<Rock'n'roll>
@@ -716,38 +745,6 @@ VA - Alterportal HITS 14 Vol. 73 - September (2014)  [MP3|128-320 кб/с] <Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A4313155BE2FDF44602249721176DD723B9052D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064683   (425559) от 20.10.2016
-
-VA - Hits of My Soul Vol. 15 (2016) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Bon Jovi - You Give Love A Bad Name (03:43)
-02. The Ramones - Poison Heart (04:03)
-03. Dagoba - Livin' Dead (03:40)
-04. Judas Priest - You've Got Another Thing Comin' (05:07)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8340B03483D15F8877D801F5FDF88257013EB2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

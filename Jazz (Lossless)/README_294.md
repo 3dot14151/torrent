@@ -1,3 +1,90 @@
+###  Публикация: 1272803   (141499) от 29.12.2018
+
+Kenny Dorham - 'Round About Midnight At The Cafe Bohemia (1956) 2CD, 1995, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141499.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Monaco [6:44]
+02. 'Round About Midnight [7:46]
+03. Mexico City [6:02](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3196674ED44C8301B0AF1A3B3F726A6C91559A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088267   (141361) от 30.12.2016
+
+Eero Koivistoinen - Altered Things (1991) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Kabuki [05:30]
+ 02.Altered Things [06:47]
+ 03.Film Noir [07:54]
+ 04.Everblue [07:08](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Post-BopПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0BA2342D07415BBAAEBBA8FBCEAC72ACAF0706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088259   (141354) от 30.12.2016
+
+Digest - Digest (1994) Qvalitet[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tenderly [04:12]
+ 02.Ladies In Mersedes [03:22]
+ 03.Twelve Thousand Lights On My Way [04:50]
+ 04.Con Alma [02:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1659B140BF775EC40A36503B58431DB9A4A1BEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088260   (141344) от 30.12.2016
 
 Sam Most - From The Attic Of My Mind (1978) 2015, Xanadu[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -658,93 +745,6 @@ George Adams - Paradise Space Shuttle (1979) Remaster, 2015, Timeless Records[FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84C2A574EEE6C75AA2594E4817C7AC093282A8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970506   (139674) от 31.12.2015
-
-Joe Henderson - Big Band (1997) Verve Records[FLAC|tracks+.cue] <Post-Bop, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Without A Song [05:25]
- 02.Isotope [05:21]
- 03.Inner Urge [09:02]
- 04.Black Narcissus [06:54](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Big BandПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D70035BB7DE366F976D435B668746E4F9B2AD5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970916   (139601) от 31.12.2015
-
-Cannonball Adderley - Live! (1964) Remaster, 2011, EMI Music[FLAC|tracks+.cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Little Boy With The Sad Eyes [13:30]
- 02.Work Song [08:55]
- 03.Sweet Georgia Bright [06:47]
- 04.The Song My Lady Sings [15:25](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2F30D26BFA61E54D3B7DB3FFA57BA76C62EB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970715   (139546) от 31.12.2015
-
-Doctor Lonnie Smith - Too Damn Hot! (2004) Palmetto Records[FLAC|tracks+.cue] <Jazz Fusion, Post-Bop, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Norleans [04:54]
- 02.Too Damn Hot [06:23]
- 03.Back Track [07:10]
- 04.The Whip [05:40](   Читать дальше...   )Жанр: Jazz Fusion, Post-Bop, Hammond OrganПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C048341BE21A3E5AA725366BDA5ACA8472103A69
 ```
 
 https://mybot314.ru/tekegram_catalog/

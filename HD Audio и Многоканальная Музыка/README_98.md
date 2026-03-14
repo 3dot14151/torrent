@@ -1,3 +1,148 @@
+###  Публикация: 1702363   (115837) от 24.02.2024
+
+Rosie Frater-Taylor - Featherweight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alternatif, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give & Take (4:50)
+02. Falling Fast (4:33)
+03. No Scrubs (4:27)
+04. Stop Running (3:43)(   Читать дальше...   )Жанр: Rock, Alternatif, JazzПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627059973565E2F7DC4DB8058A6500075BD742FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702301   (115834) от 24.02.2024
+
+Katie Henry - Get Goin' (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Like Kerosene (3:30)
+02. Jump (3:58)
+03. A Doll's Heart (4:11)
+04. Clear Vision (3:39)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CA1D8FB5FC0B4088BA6BC2D868092D9E562255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702360   (115833) от 24.02.2024
+
+Artimus Pyle Band - Anthems Honoring The Music of Lynyrd Skynyrd (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know A Little (3:28)
+02. Sweet Home Alabama (4:59)
+03. Simple Man (7:29)
+04. The Needle And The Spoon (4:14)(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18399090D9E112820B6F4016A22AE11E29B9E70C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702374   (115828) от 24.02.2024
+
+The Buddy Blake Band - Seven Ways From Someday (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run With The Lions (6:22)
+02. All I Was Trying to Say (Old Chicago) (3:30)
+03. Reminder (5:43)
+04. Hourglass (4:22)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB556EB4B0CC5F6D71284A123405B020CA022C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702130   (115823) от 24.02.2024
+
+Samsas Traum - Pussy Supremacy – Trauma Tales Sampler, Vol. I (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Rock, Gothic Metal, Darkwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115823.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Die Katze hat mich dazu gezwungen - Teil 1 (M.)
+2. Die Katze hat mich dazu gezwungen - Teil 2 (G. G.)
+3. Die Katze hat mich dazu gezwungen - Teil 3 (C. M.)
+4. Die Katze hat mich dazu gezwungen - Teil 4 (J. I.)(   Читать дальше...   )Жанр: Gothic Rock, Gothic Metal, DarkwaveПродолжительность: 2CD, 02:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEB93B282CEA94CEFB9D58BFB9F65BDB1C7288E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702206   (115815) от 24.02.2024
 
 Cynic - The Portal Tapes (2012) Compilation)[FLAC|24/96|image + .cue|Vinyl-Rip]  <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
@@ -600,148 +745,6 @@ Rogue Johnsen Project - HOME (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6B17C7E594D0A1C3D4C1188812B0AE3C4DE310A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702940   (115329) от 27.02.2024
-
-Jazz Sax Lounge Collection, Smooth Jazz Sax Instrumentals - Summer Saxophone Relaxation 2023 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It’s a Break Time (3:19)
-02. Quiet Nights of Quiet Stars (3:27)
-03. Saxophone Chill (3:54)
-04. Afternoon Coffee (4:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3626FE25F970C01E516D588DF4734AFDFD256FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702948   (115328) от 27.02.2024
-
-Romantic Moods Academy, Jazz Music Collection Zone - Jazz Music for a Romantic Mood (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Date at a Sushi Restaurant (3:21)
-02. Background Jazz Music (3:52)
-03. Fusion Chill (3:27)
-04. Glass of Wine (5:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F929C4070DD9DAE7FC978A05E93116F7B73EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702939   (115326) от 27.02.2024
-
-Jazz Music Lovers Club - Music for Sexy Striptease (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth Rose (3:48)
-02. Spicy Little Dance (2:49)
-03. Pure Feelings (2:49)
-04. True Love Has Your Name (3:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FB9DE65C7FE703089FFC38199CCD142A449CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703065   (115322) от 27.02.2024
-
-Accept - Humanoid (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humanoid (4:35)Жанр: Heavy MetalПродолжительность: 00:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F280275C2205B0895F03FAD506EEB72DD0945D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702949   (115310) от 27.02.2024
-
-Twilight Tapirs - Great Lake Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Clipper Ships (0:58)
-02. Wolverine Train (3:34)
-03. Thy Fearful Symmetry (3:08)
-04. Koi Fish Shangri-La (3:39)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4105BAFB632C7C64A32955F009E4BA45F59934
 ```
 
 https://mybot314.ru/tekegram_catalog/

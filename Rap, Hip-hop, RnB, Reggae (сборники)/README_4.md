@@ -1,0 +1,748 @@
+###  Публикация: 1222820   (680787) от 01.05.2018
+
+VA - All Day Breack Fast: Respect Collection April (2018) [MP3|320 Kbps] <Rap, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем любителям правильной музыки представляем сборник современных лучших исполнителей в стиле репа, хип хопа и RnB под названием "All Day Breack Fast: Respect Collection April". Слушайте музыку сборника в машине или на природе и поднимайте настроение на весь трудовой дачный день себе и особенно соседям по даче.001. Kendrick Lamar - BLOOD.
+002. Aqualeo - Address
+003. Mike Posner - At Night, Alone.
+004. J Dilla - Fuck The Police(   Читать дальше...   )Жанр: Rap, Hip-Hop, RnBПродолжительность: 06:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301D29F3D3007F9F00180EA6E8A0DDF7DD8DB805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536979   (670737) от 14.03.2022
+
+VA - Blaze: Rap & Hip Review (2022) [MP3|320 Kbps] <Hip Hop, Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темы рэп-песен первоначально были довольно ограниченными - наркотики, криминал, путь к нехитрому бандитскому успеху. Однако после того, как этот жанр стал перебираться из нелегальных подвалов на официальную сцену, многие музыканты, не имеющие отношения к подобным вещам, стали использовать элементы рэпа в своих аранжировках.001. Pink Siifu - Spades'
+002. Ion Miles - Atzenmodus
+003. Junk33 - Deception
+004. Becko - Cyberfriend(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 10:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DA2D2E650F64BFDC7EB47D2C3CD11EC6383755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224124   (667128) от 09.05.2018
+
+VA - I'm Blessed: Gold Pack Rap Compilation (2018) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка для активных и позитивных, для ценителей качественной и красивой музыки, для настроения и заряда бодрости в течении всего дня. Мелодии настраивающие на позитивное мышление в сборнике "I'm Blessed: Gold Pack Rap Compilation".001. Onyx & Dope D.O.D. - Piro
+002. Royce Da 5'9" - Black History (Prod. By DJ Premier)
+003. Denzel Curry - ULT
+004. Bodega BAMZ - Hell Iz Real (Prod. By Streetrunner Rugah Rahj)(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 08:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59341BB6637E093E7D510F4967919365FABEEF2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537229   (665332) от 18.03.2022
+
+VA - The Lion Reggae (2022) [MP3|320 Kbps] <Reggae, Riddim, Reggaeton, Dub>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неспешный темп и размеренный ритм Регги создает особую атмосферу, способствующую умиротворению и благостному состоянию душевного настроения. Здесь четко прослеживается стремление к гармонии, духу мира, где основная идея это полное отсутствие негатива, стремление к примирению с собой и окружающими, полный релакс и успокоение.001. Chaka Demus - Build Bridges
+002. Gondwana - Volver A Sentir
+003. Press Kay - Live Your Lies
+004. Dreadlock Tales - Stop Meddling(   Читать дальше...   )Жанр: Reggae, Riddim, Reggaeton, DubПродолжительность: 08:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374D3D2BDCA8E9D88E3D8CCAC329CF5C4DFFDF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903000   (658431) от 30.05.2015
+
+VA - Top 100 Русский Рэп от Зайцев.Нет (2015) [MP3|256 кб/с]<Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658431.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Джиган - Твой Выбор (03:12)
+002. Триада - Новый Том (03:12)
+003. Джиган - Я И Ты (03:50)
+004. Триада - Спор (01:49)(   Читать дальше...   )Жанр: RapПродолжительность: 05:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970B6CEFE8692B05CFFAC319426B77872D625B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225891   (657824) от 18.05.2018
+
+VA - Lady And The Sun (2018) [MP3|320 Kbps] <Rap, Hip Hop, RnB>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657824.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gucci Mane - Off The Leash
+002. Nas - Eat These Bullets ft The Bravehearts (Unreleased)
+003. Fatt Father - Thank You
+004. M.I.A - Talk(   Читать дальше...   )Жанр: Rap, Hip Hop, RnBПродолжительность: 09:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF56BF0D23644452082810E9700F7B366D56C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539540   (654960) от 28.03.2022
+
+VA - Angel In Zion (2022) [MP3|320 Kbps] <Reggae, Dub, Riddim, Reggaeton>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь любовь, о которой поется в современном Reggae, это не просто романтическая любовь двух человек, а космическая, духовная любовь, любовь к ближнему и к Богу. И когда певцы регги не поют о любви, они поют о восстании и революции против сил, препятствующих этой любви, таких как насилие, нищета, расизм и угнетении правительствами, которые они наблюдали или испытывали (   Читать дальше...   )001. Gary Clail - Beef
+002. Hr With The Scotch Bonnets - H.R. Psalm
+003. Zion Head - This Time So Hard
+004. The Great Zeee - Big Joy Riddim(   Читать дальше...   )Жанр: Reggae, Dub, Riddim, ReggaetonПродолжительность: 08:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478B3B69041DC03FD24A48012A98C6FC19D61F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516125   (654346) от 27.06.2012
+
+VA - Новинки русского Рэпа. Музыкальный Каприз (2012) [MP3|192 кб/с]<Rap, Hip-hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rap, Hip-hopПродолжительность: 08:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4934CF6D8D181BB6AE1BF7937B5722EED27DF103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516914   (648981) от 30.06.2012
+
+VA - Только Рэп - Сборник русского рэпа.Выпуск 6 (2012) [MP3|256 кб/с]<Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RapПродолжительность: 06:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C70485738390D21700FE0B2E215A298FBF9702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292292   (646800) от 29.03.2019
+
+VA - Ragga Jungle (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Jungle>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646800.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stephan Warren - Drum Rass Riddim
+002. Funky Kingston Feat. Pispalan Rini - Vonkale
+003. Morgan Heritage - Revolution Is A Must In Dub
+004. Nature Makonnen - Rastafari Children(   Читать дальше...   )Жанр: Reggae, Dub Ska, JungleПродолжительность: 09:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F836469E5D26514CB296CA447225B188D547EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141944   (646505) от 12.06.2017
+
+VA - RnB Digest June Collection (2017) [MP3|320 Kbps] <Rhythm and Blues>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646505.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Musiq Soulchild - Wait A Minute  5:07
+002.  Destiny's Child - Cater 2 U  4:06
+003.  Mac Miller feat. Anderson Paak - Dang!  5:05
+004.  Usher & Alicia Keys - My Boo  3:44(   Читать дальше...   )Жанр: Rhythm and BluesПродолжительность: 08:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3802D569BAF925DC9F37CA93942605C838815D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227563   (646482) от 26.05.2018
+
+Bob Marley - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Reggae>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646482.jpg" />
+</div>
+
+
+###  Подробнее
+
+В коллекцию вошли лучшие песни легендарного музыканта. Ямайская солнечная музыка, пропитанная жарким климатом тропиков, сладким дымом и улыбкой Боба Марли. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK01 Natural Mystic
+02 Africa Unite
+03 Misty Morning
+04 Crazy Baldhead(   Читать дальше...   )Жанр: ReggaeПродолжительность: 02:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFBECE7D83BD188192554C6DDFB11D6625D275F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142174   (644266) от 13.06.2017
+
+VA - Rap And Trap Hip (2017) [MP3|320 Kbps] <Rap, Hip-Hop, Trap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644266.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Big G Nutt & D Gant vs. Dizza The Desert Dogg feat. Moet - Doin' Our Thang  4:07
+002.  Cee Taste Of Fear feat. The RZA & Common - Roo (Taste Of Fear)  4:11
+003.  Snoop Dogg - Swivel  4:17
+004.  Demi Portion - Magnifique (feat. Oxmo Puccino)  3:32(   Читать дальше...   )Жанр: Rap, Hip-Hop, TrapПродолжительность: 08:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6BE2385085004F2F20E19DA4C3202CA89F0BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906811   (641366) от 10.06.2015
+
+VA - Лирика по венам. Первая доза (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Денис RiDer - Будущая
+ 02. DJ HaLF & SERPO - Мономир
+ 03. Serpo - 24 часа
+ 04. Андрей Леницкий - Никогда(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 03:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAF0AAA443FEDEF1193EFE5AA6E1177490E9ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143529   (634858) от 18.06.2017
+
+VA - Reggae Sound System (2017) [MP3|320 Kbps] <Reggae, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634858.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Fugees - No Woman, No Cry  4:33
+002.  Shaggy - I Got You (feat. Jovi Rockwell)  3:17
+003.  UB40 - Red Red Wine  3:04
+004.  Ziggy Marley - I'm Not Made Of Stone  3:40(   Читать дальше...   )Жанр: Reggae, SoulПродолжительность: 08:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D296C6DEB51D40136A2A15F1397EC41A8CF867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229005   (631820) от 03.06.2018
+
+VA - Дискотека RnB (2018) [MP3|256-320 Kbps] <R&B, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All-4-One - Say What You Want To
+02. The Weeknd - Call Out My Name
+03. Kwabs - Walk
+04. Jungle - Candy Kisses(   Читать дальше...   )Жанр: R&B, Hip-HopПродолжительность: 06:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8084185D313739546B960F2FFCDADAB9CC7B02D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144100   (631337) от 20.06.2017
+
+VA - DJ Radio Show Latino RnB (2017) [MP3|192-320 Kbps] <RnB, Hip Radioshow>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alexis Ayaana Feat. Quavo - Bad Enough 04:06
+002. Dj Jay Rock - Intro 00:12
+003. Kent Jones - Counting Stars 03:43
+004. Kevin Ross - Long Song Away 04:33(   Читать дальше...   )Жанр: RnB, Hip RadioshowПродолжительность: 08:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF192EBCD6CE78B46BE61F2F171CC0761F74222C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229090   (629843) от 04.06.2018
+
+VA - Rap&Hip: Greatest Mix (2018) [MP3|192-320 Kbps] <Rap, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый альбом "Rap&Hip: Greatest Mix" как всегда порадует поклонников жанра хип хопа, репа и RnB. В данном альбоме есть все, чего только сможет пожелать самый отъявленный музыкальный гурман. Фирменный стиль их исполнителей, который не с чем не спутаешь, и мощный звук и оригинальные тексты всё это присутствует в представляемом лонгплее.001. Young Thug - Anybody
+002. Machine Gun Kelly - The Gunner
+003. Deadlinz - 94MPMG
+004. Fu-Schnickens - Whats Up Doc(   Читать дальше...   )Жанр: Rap, Hip-Hop, RnBПродолжительность: 08:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253D257CB762D4D0CFF1B67387E20CF362044AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294462   (628264) от 08.04.2019
+
+VA - Key To My Heart (2019) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628264.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arin Ray - Sometime Ass Nigga
+002. 6Ix9Ine Ft. Nicki Minaj - Fefe
+003. Ábi - Blurry Focus
+004. Aya Nakamura - Djadja(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEABE1C2620673720B489248C481115C3173408D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035672   (625922) от 17.07.2016
+
+VA - Car Audio. Музыка ночного города 2 [Sound Clinic - Boom Box Edition] (2016) [MP3|320 Kbps] <Rap, Hip-Hop, Underground Hip-Hop, Instrumental Hip-Hop, R'n'B>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1 Giant Leap - What I Need Is Something Different
+02. 2Pac - Hail Mary
+03. 12Vince - Back 2 Da Lab
+04. 50 Cent, E-40, Snoop Dogg - Choices (Remix)(   Читать дальше...   )Жанр: Rap, Hip-Hop, Underground Hip-Hop, Instrumental Hip-Hop, R'n'BПродолжительность: 32:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA43F04EB9C78CEFC472E0C6AC127A4BD871F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910876   (613820) от 24.06.2015
+
+VA - Русский Рэп Избранное (1998-2015) [MP3|96-320 кб/с]<Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01) Тони Бодрый, Jason, Hammy - Из подземелья.
+02) PRO-SPEKT - Нравы.
+03) Третий Путь - Лица.
+04) Da B.O.M.B. - 2 Мира.(   Читать дальше...   )Жанр: RapПродолжительность: 05:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1867D0B01CF741CE8417B4E2F018FDAB86220A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038046   (609908) от 26.07.2016
+
+VA - Chilled Sexy R&B 2016 - The Ultimate Sexy Rnb Chillout Slow Jams (R and B) (2016) [MP3|320 Kbps] <R&B>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - Hotline Bling
+02. The Weeknd - Can't Feel My Face
+03. Craig David - 7 Days
+04. Christina Milian - Dip It Low(   Читать дальше...   )Жанр: R&BПродолжительность: 03:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5003ABDEA37C71E6FC3E99ED6A1D9DBEEA5697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231489   (605158) от 18.06.2018
+
+VA - Flowers Of The Sun (2018) [MP3|320 Kbps] <RnB, Hip-Hop, Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sevdaliza - Hero
+002. Musiq Soulchild - Sobeautiful
+003. Levert - Goes My Mind
+004. The Trp - Dive(   Читать дальше...   )Жанр: RnB, Hip-Hop, RapПродолжительность: 12:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10DD14092E46B9BA0674F70C3BB1675A0C75FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549766   (592845) от 08.05.2022
+
+VA - Rap & Hip Beats (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкие подвижные ритмы и лирические мелодии в сборнике под названием "Rap & Hip Beats". Гармоничное сочетание мелодии и текста, которое слушать одно удовольствие.001. Yg - Swag
+002. Dimitry Killstorm - Jane
+003. Funky Dl - My Brother Taught Me
+004. Pacman Da Gunman - Zero Tolerance(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 09:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46DCAFF712AC2862B585879FBDA56CFC72AFD16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300624   (588033) от 08.05.2019
+
+VA - Ukrainian Hits - 33 Tracks (Volume 11) (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хас - Дикий Кач (3:13)
+02. Alyona Alyona - Відчиняй (2:37)
+03. Freel - Спалах (3:23)
+04. Артем Лоік - Суд Лінча (3:58)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB38825BBB277BA9EE51F547B0266870710D0278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302126   (582182) от 14.05.2019
+
+VA - R&B Universe: Soul Collection (2019) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582182.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Johnny C - Body Shook
+002. Cool Company - Be More Mad
+003. Curtis Roach - Spectacular
+004. Judis La Jiji - Je Ne Sais Pas(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 09:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25598E08FADCD5BFD3DCF8ED420F57935F00B5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------

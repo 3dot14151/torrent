@@ -1,3 +1,32 @@
+###  Публикация: 1206758   (781734) от 15.02.2018
+
+VA - Psychedelic Bass (Compiled by ZeByte) (2018) [MP3|256-320 Kbps] <Psydub, Psychill, Psyglitch>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_781734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Subaqueous  -  Invoco (feat. Marya Stark & Boaz Drum)  3:59
+02.  Deez & Smigonaut  -  Moonlit Excursions (Original Mix)  3:32
+03.  Liquid Bloom  -  Fire Gathering (Regen Atyya Remix)  7:16
+04.  Taotempo  -  Low Tide (Original Mix)  4:46(   Читать дальше...   )Жанр: Psydub, Psychill, PsyglitchПродолжительность: 04:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD64AA7EECD000734D124AE142D1C2B541B69A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391242   (781458) от 19.06.2020
 
 VA - Summer Bass: Jungle Essentials (2020) [MP3|320 Kbps] <D&B, Jungle>
@@ -716,35 +745,6 @@ VA - Record Super Chart #525 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34F521F89B167313EA0C9B3AD5E011916106E75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208729   (779655) от 24.02.2018
-
-VA - Vocal Trance Collection Vol.9 (2018) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bobina feat. Denise Rivera  -  Siente (Vigel Remix)  3:33
-02.  Maarten De Jong feat. Katty Heath  -  Free To Feel Again (Extended Mix)  5:47
-03.  Alexander Turok feat. Sarah Russe  -  Take Me Back (Tycoos Remix)  5:45
-04.  Zoe Song feat. Sabreena Singh  -  Right Beside Me (The Avains Remix)  7:27(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 03:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA22EF76536E1CEDB6D9F2A14371DE206CB5121
 ```
 
 https://mybot314.ru/tekegram_catalog/

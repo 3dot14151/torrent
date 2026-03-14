@@ -1,3 +1,29 @@
+###  Публикация: 1347008   (155456) от 21.12.2019
+
+Зверь / Biseuteu (2019) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двум детективам, которые терпеть друг друга не могут, приходится действовать сообща, чтобы расследовать шокирующее убийство.Производство: Корея Южная, Next Entertainment World, Studio & NewЖанр: Детектив, боевик, криминал, триллерРежиссер: Ли Джон-хоАктеры: Ли Сон-мин, Ю Джэ-мён, Чон Хе-джин, Чхве Даниель, Ким Хо-джон, Ким Бён-чхун, Ан Щи-ха, Ли Сан-хи, Ким Хон-пха, Ок Ча-ёнПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327BA7BC6E8EC87B0EFDE90665ABF233C34972CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270716   (155427) от 20.12.2018
 
 Хэллоуин / Halloween (2018) WEB-DL [1080p] ATV
@@ -689,35 +715,6 @@ SolarFlow - Infinity (2020) [AAC|~320 Kbps] <Electronic, Lounge, Chill Out, Enig
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D622F21959A02FC21B10DE5DCEDB01926645F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518539   (154185) от 20.12.2021
-
-SolarFlow - Collection of the Best Tracks From: Solarflow, Pt. 3 (2021) [AAC|~334 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virgo (Original Mix) (6:01)
-02. Leo (Original Mix) (4:37)
-03. MaxLoop, Joni Venchy - Blindside (SolarFlow Chillout Remix) (5:10)
-04. Aries (Original Mix) (4:49)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B767FF91245CA195BC4E165B6A239EEB6018FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

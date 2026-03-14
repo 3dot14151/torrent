@@ -1,3 +1,61 @@
+###  Публикация: 994111   (891578) от 07.03.2016
+
+Nicki Parrott - Sentimental Journey (2015) [FLAC|Lossless|image + .cue] <Contemporary Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Magic
+02. Again
+03. Just One Of Those Things
+04. Fools Rush In(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AEDCDBC428E37C81813CBE9C9D8010F60CE666B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994119   (891571) от 07.03.2016
+
+Nicki Parrott - Angel Eyes (2014) [FLAC|Lossless|image + .cue] <Contemporary Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Be Around
+02. You Make Me Feel So Young
+03. The Nearness Of You
+04. I'll Never Be The Same(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795E8A9FF44C1DAEB8F1E024102A06FB8B2114A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102148   (891424) от 09.02.2017
 
 Blurt - Live at Oto (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz Rock, Post Punk, Avantgarde>
@@ -687,64 +745,6 @@ Joe Venuti - Fiddlesticks (1931-1939) 1990, Conifer[FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD2BD58983AC3C4A5DDB5176987C6D1AF4D0DD2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994522   (889879) от 08.03.2016
-
-The Harold Land & Carmell Jones Quintets - Complete Studio Recordings (1961-1963) 2CD, 2007, Lone Hill Jazz[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889879.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Blues March [03:09]
-02.I'm Gonna Go Fishing [11:14]
-03.Come Rain Or Come Shine [04:31](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705535052A7F252FCF4502F6B3DFC8D5A6444C7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102409   (889690) от 10.02.2017
-
-The Rein De Graaff Trio with Ronnie Cuber and Nick Brignola - Baritone Explosion! Live At Nick's (1994) 2016, Solid Reco[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Softly As In A Morning Sunrise [13:15]
- 02.Caravan [13:55]
- 03.In A Sentimental Mood [02:20]
- 04.What's New [02:51](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F12FAA90159090C7EECA142B2B4341ED179227
 ```
 
 https://mybot314.ru/tekegram_catalog/

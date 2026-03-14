@@ -1,3 +1,32 @@
+###  Публикация: 1488400   (1002033) от 11.08.2021
+
+Deep Purple - Live in London 2002 (2021) Remastered [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman from Tokyo (Live in London 2002) (6:37)
+02. Ted the Mechanic (Live in London 2002) (5:41)
+03. Mary Long (Live in London 2002) (5:32)
+04. Lazy (Live in London 2002) (7:07)(   Читать дальше...   )Жанр: RockПродолжительность: 01:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7696739029878C0E13614E1A1D1874090DF963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352274   (1001277) от 13.01.2020
 
 Gila - Дискография (3 альбома) (1971-1973) [MP3|320 Kbps] <Progressive Rock, Krautrock>
@@ -789,35 +818,6 @@ Jack Green - The Party At The End Of The World (2020) [MP3|320 Kbps] <Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48A47C3443721BE8E1BFDFE987BAA45CCDFC6F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353534   (991743) от 18.01.2020
-
-VA - 70s Forever: The Ultimate Rock & Pop Classics (2019) 3CD [MP3|320 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rod Stewart - Maggie May (Single Version)
-02. Patti Smith Group - Because The Night
-03. Heart - Barracuda
-04. Daryl Hall & John Oates - Rich Girl(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D136731603686D178DF8413C8092B0741DA2978
 ```
 
 https://mybot314.ru/tekegram_catalog/

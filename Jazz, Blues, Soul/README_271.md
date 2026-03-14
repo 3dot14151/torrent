@@ -1,3 +1,178 @@
+###  Публикация: 1317370   (501483) от 31.07.2019
+
+Anouar Brahem - Blue Maqams (2017) ECM Records [FLAC|Lossless|image + .cue] <World Fusion, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Day [7:01]
+02. La Nuit [10:29]
+03. Blue Maqams [8:42]
+04. Bahia [8:46](   Читать дальше...   )Жанр: World Fusion, Modern CreativeПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20061B5CCEF1348DF3F1FE4049CD0DA95803AD95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934567   (501329) от 06.09.2015
+
+Pink Turtle - Back Again (2010) [FLAC|tracks]<Jazz Mainstream, Tribute, Parody>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maniac (Dennis Matkowsky - Michal Sambello)
+02. Everybody's Got to Learn Sometimes (James Warren)
+03. Money Money Money (Bernard Ulvaes - Benny Anderson)
+04. I Can't Get No Satisfaction (Mick Jagger - Keith Richards)(   Читать дальше...   )Жанр: Jazz Mainstream, Tribute, ParodyПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28DDC55254C7C9D7A7F948D6BA18DAC61CD81380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317279   (501208) от 31.07.2019
+
+Piano Dreamers, Relaxing Instrumenta  Music - Sex Music 69 (2019) [MP3|320 Kbps] <Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Sexy Bossa Jazz (3:40)
+2.Sensual and Smooth (3:40)
+3.Hit Lounge Ambient (3:57)
+4.Mysterious Love (3:59)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BAE680534D37E244F3481E9BF04FDB9EA819E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541131   (501058) от 31.08.2012
+
+Mark Knopfler - Privateering (2012) 2CD Promo [MP3|~245 кб/с ]<Folk / Blues / Country Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экс-лидер Dire Straits Марк Нопфлер (Mark Knopfler), удостоившийся ранее в этом году премии Lifetime Achievement Award на церемонии Ivor Novello, анонсирует выпуск нового сольного альбома.1.  Redbud Tree (3:19)
+2.  Haul Away (4:01)
+3.  Dont Forget Your Hat (5:14)
+4.  Privateering (6:18)
+5.  Miss You Blues (4:17)(   Читать дальше...   )Жанр: Folk / Blues / Country RockПродолжительность: 01:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988DC0C670D90E94447C0CBA04DA0F9FFC6E468C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380177   (500788) от 26.08.2011
+
+Brian Setzer (Brian Setzer Orchestra) & Stray Cats - 54 albums (1981-2011) [mp3|320 kbps] <Rockabilly, Swing, Rock'n'Roll, Psychobilly>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stray Cat Strut (05:56)
+02. Lust'n'Love (04:23)
+03. Mystery Train (03:09)
+04. Summertime Blues (03:00)(   Читать дальше...   )Жанр: Rockabilly, Swing, Rock'n'Roll, PsychobillyПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564294   (500657) от 18.07.2022
+
+Bireli Lagrene - Inferno (1987) Blue Note [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inferno [6:07]
+02. Rue de Pierre, Part Two [3:57]
+03. Action [4:03]
+04. Rock It [5:11](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF2B149F2CE7C05370021AB2C3742C0F30CF2BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935112   (500633) от 07.09.2015
 
 London, Meader, Pramuk & Ross - The Royal Bopsters Project (2015) [FLAC|tracks|WEB-DL]<Jazz>
@@ -578,183 +753,6 @@ VA - John Lennon In Jazz - A Jazz Tribute To John Lennon (2020) Compilation [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0D01941CA2505F66937ACF8C5ADD9B9091D50E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317698   (499632) от 02.08.2019
-
-Oliver Jones Trio - Live at Biddles (1983) Justin Time [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mean to Me [5:47]
-02. It Might as Well Be Spring [7:34]
-03. Tenderly [5:55]
-04. Hymn to Freedom [4:40](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718392AF918B2EB156340EFF35CB020971D8559F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317679   (499631) от 02.08.2019
-
-Count Basie - Four Classic Albums Plus (1957 - 1962) 2CD, 2015, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499631.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Pennies From Heaven [3:31]
-02. Please Be Kind [2:43]
-03. (Love Is) The Tender Trap [2:35](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 02:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD808768F2A4F84FC8CC42B57A43D36E9AF6D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317700   (499630) от 02.08.2019
-
-Oliver Jones Trio - Just Friends (1989) Justin Time [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for Helene [5:17]
-02. Just Friends [4:06]
-03. In My Solitude [4:49]
-04. Last Night in Rio [5:54](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B95C0B88032F8D9C69E1942D1BC4342304C72BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934788   (499558) от 08.09.2015
-
-The Righteous Brothers - Les Genies du Rock - Rock And Roll Heaven (1995) [MP3|320 кб/с]<Pop, Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Give It To The People (3:23)
-02.  Dr Rock'N'Roll (3:37)
-03.  High Blood Pressure (3:26)
-04.  Hey Girl (3:33)(   Читать дальше...   )Жанр: Pop, Blues, SoulПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640B3C5567B50F745A1F40496EEDE7A5F922F313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542040   (499276) от 02.09.2012
-
-Leela James - Loving You More... In The Spirit Of Etta James (2012) [FLAC|Lossless]<Rhythm & Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Will Never Die [01:31]
-02. Something's Got A Hold On Me [03:20]
-03. It Hurts Me So Much [03:21]
-04. I'm Loving You More Every Day  [03:46]
-05. I'd Rather Go Blind [04:11]
-06. I Want You To Ta-Ta You Baby [03:48]
-07. Damn Your Eyes [03:52]
-08. Nobody Loves You Like Me [03:00]
-09. Old School Kind Of Love [03:55]
-10. Sunday Kind Of Love [03:50](   Читать дальше...   )Жанр: Rhythm & BluesПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541942   (499109) от 02.09.2012
-
-Incognito - Surreal (2012) [FLAC|Lossless]<Acid Jazz, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acid Jazz, Soul, FunkПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

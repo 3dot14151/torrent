@@ -1,3 +1,119 @@
+###  Публикация: 1636881   (235391) от 01.06.2023
+
+Rebelstar - The Black Widow Anthems (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Time (3:47)
+02. All Messed Up (3:57)
+03. Somebody Save Our Souls (4:57)
+04. In Murder They Trust (4:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4179481583476F4561FBAC7273DF08C9E35980B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636887   (235358) от 01.06.2023
+
+Temple Of Riff - Rock Tone (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timeline (3:58)
+02. Black Fire (3:45)
+03. The Noise And The Silence (4:03)
+04. Slide Mother (4:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D268FC8A7E8CC1A257257E5E3B487F85E145AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459897   (235332) от 04.04.2021
+
+Dirty Rose - Rock & Roll Is My Religion (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn It Up 03:37
+02. Step Off 02:46
+03. Boyfriend 04:14
+04. Birthday 02:50(   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FFD81ACA1DB6D079AA93FCA9C0BBC1B9C9A3B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636905   (235323) от 01.06.2023
+
+Wyatt Earp - Gods & Bullets (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Strangers! (2:40)
+02. Before The Law (5:08)
+03. Spitfire (6:01)
+04. Chronos's Wish (Prelude) (3:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8601C3A44313B7705A07CE18E50378906EB7360E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618562   (235321) от 12.03.2023
 
 Fogg - Dancin' To The Music: The Singles And More (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Glam Rock, Classic Rock>
@@ -629,122 +745,6 @@ Suckerpunch - Redneck Gasoline (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC0E37E9BFBB2AEDED0CEC956C6A142AA8E053EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543160   (234470) от 10.04.2022
-
-New Rocket Union - Twin Cities Breakdown (2022) [FLAC|Lossless|WEB-DL|tracks] <Garage Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wait'n for You (00:02:06)
-02 - Upside Down (00:01:57)
-03 - Outta Sight (00:01:16)
-04 - Outta Mind (00:02:21)(   Читать дальше...   )Жанр: Garage Rock, Hard RockПродолжительность: 00:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471C41ED4DFD1D7FD072827F87A629B7B3DCAD53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642827   (234445) от 29.06.2023
-
-Rival Sons - Darkfighter (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirrors
-02. Nobody Wants to Die
-03. Bird in the Hand
-04. Bright Light(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6840B30A6BA96700E22DD085E99B99B243467B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640066   (234403) от 15.06.2023
-
-Royal Thunder - Rebuilding The Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Drag Me [00:05:40]
-02 The Knife [00:03:27]
-03 Now Here - No Where [00:03:38]
-04 Twice [00:03:51](   Читать дальше...   )Жанр: Heavy Rock, Psych, StonerПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9911276426384D52D305D8CEF37E033486D3C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544377   (234393) от 16.04.2022
-
-Saturna & Electric Monolith - Turned to Stone Chapter 4: Higher Selves (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Psychedelic Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturna - Keep Me Trying [00:03:53]
-02. Saturna - Following The Sun [00:05:45]
-03. Saturna - Drowning [00:04:17]
-04. Saturna - Don't Run [00:03:46](   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Stoner RockПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC6034F429084E4B43BBE251425E933806C2895
 ```
 
 https://mybot314.ru/tekegram_catalog/

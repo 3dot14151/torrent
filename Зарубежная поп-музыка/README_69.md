@@ -1,3 +1,61 @@
+###  Публикация: 1625783   (241430) от 11.04.2023
+
+VA - 50 Hits Spring (2023) [MP3|320 Kbps] <Latin Dance, Reggae, Dancehall, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pierre De Maere - Un Jour Je Marierai Un Ange
+02. Ade - Tout Savoir
+03. Alonzo/Ninho/Naps - Tout Va Bien
+04. M. Pokora - Qui On Est(   Читать дальше...   )Жанр: Latin Dance, Reggae, Dancehall, SynthpopПродолжительность: 02:33:22 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA27F1B539091EBAE6DD12C1F19045E1562BC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625841   (241150) от 12.04.2023
+
+VA - Pop Hits 2023 (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Unholy
+02. Taylor Swift - Anti-Hero
+03. OneRepublic - I Ain't Worried
+04. Imagine Dragons - Bones(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2877E8A57198EF222F060AEA7B56BD4EC940A87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547913   (241034) от 02.05.2022
 
 Sparks - Balls (2000) Deluxe Edition, Remastered, 2022, BMG [MP3|320 Kbps] <Pop, Rock, Synth-pop, New Wave>
@@ -686,64 +744,6 @@ VA - Bravo Hits 106 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFA173EB79ED47F73F3E34213F79D54979526BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623882   (238301) от 03.04.2023
-
-VA - Mega Hits 2013 (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - Wake Me Up (Radio Edit)
-02. Imagine Dragons - Radioactive
-03. OneRepublic - Counting Stars
-04. Katy Perry - Roar(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1812BBAC2DD0286A2B340EDC691AE5E80432F416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629299   (238293) от 26.04.2023
-
-VA - New Disco House Lights (2023) [MP3|320 Kbps] <Nu Disco, Soulful, Dance, Funky House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Von Paramus - Party Sweet  (Radio Edit)
-02. Middlestones - Talk to You
-03. Arisia - Cocaina
-04. Another Nelson - Mr. Undercover(   Читать дальше...   )Жанр: Nu Disco, Soulful, Dance, Funky HouseПродолжительность: 02:46:07 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6F2E6F00B753E622476DCAA54F52E0615DE62A
 ```
 
 https://mybot314.ru/tekegram_catalog/

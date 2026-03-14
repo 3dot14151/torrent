@@ -1,3 +1,90 @@
+###  Публикация: 1608014   (1043496) от 31.01.2023
+
+VA - Музыка для машины Vol.3 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel  - Не Пиши Мне (03:08)
+02. T1one  - Увела (03:13)
+03. Anouk Feat. & Emma Heesters - Met Jou Kan Ik Het Aan (04:03)
+04. Dimitri Vegas & Like Mike Feat. & Ne-Yo - Higher Place (Ayur Tsyrenov Dfm Remix) (03:25)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812E4EBCC0D58AB6301E2AFF3A0FC6BE8BEF927B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608576   (1043488) от 31.01.2023
+
+VA - Дискотека 2023 Dance Club Vol. 215 (2023) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043488.jpg" />
+</div>
+
+
+###  Подробнее
+
+part 1:
+001. Edine - Do You Have A Problem (2:23)
+002. Avec Toi - Parade of planets (2:44)
+003. Beneath My Shade - Back To You (2:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CCCCCCB2CD9BD32554983FD58728DE37045DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609226   (1043336) от 02.02.2023
+
+VA - Music News vol.242 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043336.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eva feat. Samar - Habibi (02:47)
+ 002. Alex M feat. Richard Reynolds - Cyprus (02:52)
+ 003. Alyun - Callie (Cry About It) (04:08)
+ 004. Anait - Сны (03:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10A95FA578451A86C2E50DC5497E9B39B6846B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609023   (1043331) от 02.02.2023
 
 Christos Stylianou - Compilation (2023) [MP3|320 Kbps] <Easy Listening>
@@ -658,93 +745,6 @@ VA - Music News vol.61 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0AA33FF5F90DB7099FE23A34029FBBE5A846E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436848   (1042761) от 02.01.2021
-
-VA - Ремиксы 2К21 (2021) [MP3|320 Kbps] <Pop, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artem Smile & Emmanuil - Я ворвусь на танцпол (Yuza Radio Remix) (2:44)
-02. Idris Leos - В последний раз (Dj Amor Radio Mix) (3:23)
-03. Kan - Хулиган (Yuza Radio Remix) (3:29)
-04. Денис Клявер - Тебя удача найдет (Vostokov Remix) (2:50)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 06:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618C6B4ED5950BE33305EFF93F9D6BB44B12DA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610036   (1042615) от 06.02.2023
-
-Soul Ballet - Compilation (2023) [MP3|320 Kbps] <Electronic, Smooth, Jazz-Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Choose Me
-02. City of Desire
-03. Glitters is Gold
-04. Love, Juliet(   Читать дальше...   )Жанр: Electronic, Smooth, Jazz-Pop, OtherПродолжительность: 01:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3082FC28317E26294481106765B9C76F7A4DC22F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610206   (1042593) от 06.02.2023
-
-Engelbert Humperdinck - Compilation (2023) [MP3|320 Kbps] <Pop, Vocal, Easy Listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Time
-02. The Way it Used to Be
-03. Only a Lonely Child
-04. Without You(   Читать дальше...   )Жанр: Pop, Vocal, Easy ListeningПродолжительность: 02:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F87511DA437833F2AAA7CF2331FD0F9695F274
 ```
 
 https://mybot314.ru/tekegram_catalog/

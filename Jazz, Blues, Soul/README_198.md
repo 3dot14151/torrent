@@ -1,3 +1,177 @@
+###  Публикация: 1141204   (652564) от 09.06.2017
+
+Maynard Ferguson - Birdland Dream Band, vol.1  (1956) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wailing Boat [03:10]
+02. Somebody Wants Me Down There  [04:06]
+03. Maynard the Fox [02:50]
+04. Blue Birdland  [04:13](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0CFB293A818A6A142B327D4005D42F382A84C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141294   (652563) от 09.06.2017
+
+Jackie McLean - One Step Beyond (1963) 1988, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturday And Sunday [10:31]
+02. Saturday And Sunday (alternate take) [09:26]
+03. Frankenstein [07:32]
+04. Blue Rondo [04:53](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D54CF8F2DF6A9F411140F3C92BA4D0014943F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141225   (652562) от 09.06.2017
+
+Billy Strayhorn with Duke Ellington - Rare Strayhorn (1941 - 1965) 2015, La Maison du Duke [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clementine [02:54]
+02. Raincheck [03:19]
+03. Entrance Of Youth [05:26]
+04. Pianistically Allied (aka Tonk) [03:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D78B9F4F64B5C11AE4055CC64D8400A7F94149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141213   (652561) от 09.06.2017
+
+Clementine - Cle (2003) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Une Fille Comme Ci (6:01)
+02. Un Homme et une Femme (Grandis Mix) (5:11)
+03. Sur le Queen Mary (3:48)
+04. Akujyo (4:24)(   Читать дальше...   )Жанр: Latin Jazz, Bossa Nova, Vocal JazzПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0A5DD7C992E28AD6FAF695FBE2A4072BA7241C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141210   (652559) от 09.06.2017
+
+The Harry Allen Quartet - Someone to Light Up My Life (2005) Master Mix Music [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Shining Hour [5:28]
+02. Day In Day Out [6:04]
+03. Here's To That Rainy Day [5:44]
+04. Someone To Light Up My Life [6:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44C3E66A347CFC32BAF6FE89EEF078A746844F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141220   (652556) от 09.06.2017
+
+Wynton Kelly Trio & Wes Montgomery - Smokin' In Seattle: Live At The Penthouse (1966) 2017, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Is No Greater Love [08:19]
+02. Not A Tear [06:33]
+03. Jingles [04:33]
+04. What's New? [04:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB61D7F38484D6FCBB485E5EF8624CFB2BAD0D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141223   (652551) от 09.06.2017
 
 Duke Ellington - Elvin chez Duke: European Tour - January 1966 (2015) La Maison du Duke [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -571,180 +745,6 @@ Dizzy Gillespie - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72DBC227B8B3A600C231B2E80E491137C71B60F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291916   (650694) от 27.03.2019
-
-David Murray - The London Concert (1999) 2CD, Cadillac Records [FLAC|Lossless|image + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650694.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. JasVan (for James VanDerzee) [20:24]
-02. Home [16:36]
-03. Secret Of The Circle [22:00](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 02:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE45AB9EEBF9CC041DF97FB75D91C7D12252E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292013   (650610) от 27.03.2019
-
-Harpdog Brown - For Love & Money (2019) [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Eyes for Me (03:39)
-02. Blue Light Boogie (05:21)
-03. The Comeback (04:49)
-04. Reefer Lovin’ Woman (04:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A80C7DF22E2CA2EEE33C96D912BCD0E0B8EC522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291880   (650604) от 27.03.2019
-
-Kenny Parker - Hellfire (2019) [FLAC|Lossless|tracks + .cue] <Blues, Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got My Eye on You (05:44)
-02. Baby Come Back to Me (05:24)
-03. Blind and Paralyzed (05:58)
-04. Bye Bye Baby (Live) (04:34)(   Читать дальше...   )Жанр: Blues, Modern Electric BluesПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26F80E3C566DB32864CCB09AB58B04FCFF2B13E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141447   (650561) от 10.06.2017
-
-Ryan Truesdell Presents - Centennial: Newly Discovered Works of Gil Evans (2012) Slowfoot [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Punjab [14:24]
-02. Smoking My Sad Cigarette [04:27]
-03. The Maids of Cadiz [06:25]
-04. How About You [03:12](   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6EAA96BADD009B0B8212C07F4B82DA97A80F244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141443   (650559) от 10.06.2017
-
-Paquito D'Rivera - La Habana-Rio Conexion (1992) 2005, Messidor [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Comparsa [03:33]
-02. Cancao De Noite [04:35]
-03. Danzas cubanas: A los tres golpes [01:22]
-04. Danzas cubanas: Invitacion [00:49](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB34369DDE87DB0D50110ABE136148B70EE2629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141448   (650558) от 10.06.2017
-
-Toufic Farroukh - Cinema Beyrouth (2012) Enja [FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No brain no pain [05:10]
-02. A wonderful afternoon with Zena-Laure [05:00]
-03. Fema ka [04:47]
-04. Summer run [04:37](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEB0D1BBB5BE29A03D98A2267980EF0F9FD15AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

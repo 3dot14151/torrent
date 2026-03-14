@@ -1,3 +1,90 @@
+###  Публикация: 1851072   (1054771) от 31.01.2026
+
+Booker T. & the M.G.'s - Super Collection (2026) [MP3|320 Kbps] <R'B, Soul, Jazz Funk>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Onions [02:54]
+02. My Sweet Potato [02:47]
+03. Hip Hug-Her [02:25]
+04. Jericho [02:38](   Читать дальше...   )Жанр: R''B, Soul, Jazz FunkПродолжительность: 04:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443D1451824B244EC1BC409883F1AE4E0DF7F0D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850772   (1054622) от 30.01.2026
+
+VA - Yello & Dieter Meier & Boris Blank best (1980-2024) [MP3|320 Kbps] <electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054622.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:53] . 001-Night Flanger
+[4:17] . 002-Eternal Legs
+[2:12] . 003-Bostich
+[5:25] . 004-Blue Green(   Читать дальше...   )Жанр: electronicПродолжительность: 07:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EB4C14D706289674F648F28EC92C09C223F0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850791   (1054605) от 30.01.2026
+
+VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054605.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:44]. 001-7Б - По дорогам ветра
+[3:29]. 002-Сурганова и Оркестр - Коктейль
+[4:01]. 003-Вис Виталис - Рыбы в холодной воде
+[3:11]. 004-Инкогнито - Крутим диски(   Читать дальше...   )Жанр: rockПродолжительность: 11:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089EC6BD2CE8097B5DAAFCD29B09374067741A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850548   (1054403) от 28.01.2026
 
 VA - Music News For Forum vol.159 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -658,93 +745,6 @@ Tom Media - Blues Every Night (Compilation) (2026) [MP3|320 Kbps] <Blues, Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89AEDB7708EB4BF826D8DA046988EDE2AA47A456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847645   (1052261) от 13.01.2026
-
-VA - No name compilation part 42 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Møxes - Because You Stayed
-02 - Wicked Wenches - Wild Over You
-03 - Møxes - No Pillow But Your Name
-04 - Wicked Wenches - Still Alone Tonight(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6E9834E148C796F881A095DD71CF1184F7ACB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847477   (1052229) от 12.01.2026
-
-VA - Music News For Forum vol.155 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052229.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Кристина КРИСТАЛИКА, Andy Shik - Пою про любовь я (02:22)
- 002. 220 KID - Hold On For Heaven (03:34)
- 003. A Cold Paradise - The Prettiest Girl On Earth (03:29)
- 004. Achev - Килограмм сыра (02:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 17:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882F8C311F516A31E790351BB3885D44717961D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847342   (1052204) от 12.01.2026
-
-VA - No name compilation part 41 Assorted (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai, Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Сергей Грищук - Голос Безмолвия
-02 - Aurora Night - Lonely
-03 - Saidjan - Into the Wave
-04 - Bruno Mars & D Beats - Late Night Smoke(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Sunoai, Pop, Dance, OtherПродолжительность: 01:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2861FA5A2F71E9D2AAEA699DC942C9610B241EB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

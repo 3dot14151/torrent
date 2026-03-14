@@ -1,3 +1,32 @@
+###  Публикация: 1223920   (669625) от 07.05.2018
+
+VA - Welcome To Remini Radio Romantic (2018) [MP3|320 Kbps] <Italo Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669625.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Italove ft. Ken Laszlo - Disco Queen
+002. Italove - Too Late to Cry (Matt Pop Club)
+003. Mimosa - In Love (Short Sunshine Mix)
+004. Annalisa - Il Mondo Prima Di Te(   Читать дальше...   )Жанр: Italo Disco, EurodanceПродолжительность: 11:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E5E7B3AF102B4B5A3997790D399000D390E046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137010   (668691) от 25.05.2017
 
 VA - Дискотека 2017 Dance Club Vol. 164 от NNNB (2017) [MP3|320 Kbps] <Pop, House, Trance, Club, Dance>
@@ -710,35 +739,6 @@ VA - EDM European Collection (2017) [MP3|232-320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C6F8D2191E255736A6F601F6BA7810F1F8D2DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538649   (662189) от 21.03.2022
-
-VA - Music News vol.174 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662189.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Inna - Up (Arem Ozguc & Arman Aydin Remix) (02:17)
- 002. Akmal' - За Твои Глаза (03:00)
- 003. Akmal' - Нарисуй Любовь (03:04)
- 004. Akmal' - Окна (02:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DDA2AA8054B0D2EAAF3BE6CBA96A3096C8F5D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

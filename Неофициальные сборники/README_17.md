@@ -1,3 +1,90 @@
+###  Публикация: 1618633   (1033934) от 12.03.2023
+
+VA - The Magic Jada (2023) [MP3|320 Kbps] <Psy, Goa, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033934.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Redoma - Caveman
+002. Svetlana - Novel Wings Of Perception
+003. Ryanosaurus Feat. Arketech & Tanto - Natural Rejection
+004. Symbolic - Untold(   Читать дальше...   )Жанр: Psy, Goa, TranceПродолжительность: 12:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C776B21E46DF3442A43BAB587A59867A5A1B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445220   (1033772) от 05.02.2021
+
+VA - Unexpected Paradox: Deep House Electro Compilation (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ночь это особая атмосфера, исчезает негатив и лишняя суета,  дышать становится как- то легче. Причем ночной город одинаково прекрасен со всех сторон, неважно, гуляешь по нему или наблюдаешь за ним с балкона. И особый антураж этой атмосфере придаёт соответствующая музыка.001. 5th Avenue - Alright
+002. Fd Project - Timing
+003. Raspberry Area - Storm On The Asia
+004. Tony Bentley - Euphosonic(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 07:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC57419D0346820F59816693BAF08E8A443B0410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445225   (1033753) от 05.02.2021
+
+VA - Energy House Party (Vol.04) (2021) [MP3|320 Kbps] <Electro House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник "Energy House Party" имеет право предъявить претензию на статус самого выдающегося и богатого релиза на электронной сцене уходящей недели.  Лонгплей получился в целом экспериментальным и чрезвычайно разнообразным. В каждой композиции имеется возможность обнаружить влияние многих жанров, они словно по синусоиде сменяют друг друга, при том меняя настроение (   Читать дальше...   )001. World Groove - Private Eyes
+002. Plastic Soul - Body
+003. Fashion Motel - You Who For The Eyes
+004. Star Hub - A Matter(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 07:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C3822A01D83AF149FC4D2041B5810789EF0525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445297   (1033726) от 05.02.2021
 
 VA - Music News vol.69 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -658,93 +745,6 @@ VA - My Heart's In Blues (2023) [MP3|320 Kbps] <Blues, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A654D4443FE06C1D9704C3EFAD2F46F963F2F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446571   (1032645) от 09.02.2021
-
-VA - Tik Tok Треки выстрелили зимой 2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032645.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Justin Timberlake - Mirrors (8:04)
-002. Kendrick Lamar, Jay Rock - Money Trees (6:26)
-003. 1096Gang, Guddhist, youngwise, Polo Pi, Ghetto Gecko, Luci J - Pajama Party (5:23)
-004. Nirvana - Smells Like Teen Spirit (5:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C430763F1F8193BFE1CD2AFCDEF62C9D7520302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446794   (1032546) от 10.02.2021
-
-VA - Sounds Of Life: Tech House Club Session (Vol.43) (2021) [MP3|320 Kbps] <Tech House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032546.jpg" />
-</div>
-
-
-###  Подробнее
-
-У вас депрессия или постоянно отсутствует хорошее настроение? Исправить ситуацию можно очень быстро и кардинально с помощью музыки 43-го сборника из серии "Sounds Of Life". Музыка представлена в ремиксах, расширенных миксах, радио версиях и в порядке беспрерывного проигрывания и займёт почти 9 часов. Этого достаточно, чтобы провести громкую вечеринку и (   Читать дальше...   )001. Henrick Brown - This Is My House
-002. Tony Mafia - Tonight
-003. Steve Montana - Blaze Up
-004. Malaga Djs - All About The Bass(   Читать дальше...   )Жанр: Tech House, Club, DanceПродолжительность: 08:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1460ED419BA1D495E9328919F61572C0D7D686A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446795   (1032541) от 10.02.2021
-
-VA - Modern Rap Premiere (2021) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для Вас звучат самые горячие хиты и актуальные новинки в исполнении вновь "нарисовавшихся" звезд музыки в стиле Rap на сборнике под названием "Modern Rap Premiere".001. Ksi - Undefeated
-002. Mr. Criminal - No Love In The Streets
-003. Asian Doll - Talk To Em
-004. Blocboy Jb - Sixteen(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 07:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B51FB79CE63EA5A6A4FD3A0F940E1FF6855AF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

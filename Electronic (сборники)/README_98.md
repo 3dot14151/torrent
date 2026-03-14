@@ -1,3 +1,32 @@
+###  Публикация: 1032405   (646176) от 07.07.2016
+
+VA - Harder Better Trance (2016) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.T.A. -  Analemma 7:32
+02. Faisi & Wacattak -  Dreaming 7:40
+03. Amen B & Ross Rayer -  Paradise (Bardalimov Remix) 5:46
+04. Nakhiya -  Paranagua 8:02(   Читать дальше...   )Жанр: TranceПродолжительность: 04:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884556C6637D553ECF0A96BC96EEAFB5BABA0A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032356   (646175) от 07.07.2016
 
 VA - For Brunettes: Selected Chillout Rhythms (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -728,35 +757,6 @@ VA - HarDD NRG OverDoZZe 4 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B398C33F6ABF90A3D0E4A4196B3B7732C7194A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541098   (642611) от 04.04.2022
-
-DJ PafTron - My Name Is DJ (2022) [MP3|320 Kbps] <G-House, Deep House, Trance, Techno, Dance, Rave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 My Name Is DJ (skit)
-02 DJ Battle Africa Club set
-03 Train Techno
-04 My House Party(   Читать дальше...   )Жанр: G-House, Deep House, Trance, Techno, Dance, RaveПродолжительность: 09:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55654FC59DDFF6EA9BDEF2D15CA74B7D268D1490
 ```
 
 https://mybot314.ru/tekegram_catalog/

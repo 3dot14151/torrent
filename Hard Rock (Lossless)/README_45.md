@@ -1,3 +1,128 @@
+###  Публикация: 1561264   (515642) от 04.07.2022
+
+Easy Action - That Makes One (1986) Reissue, Remastered, 2020, Aor Heaven [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk Of The Town (3:20)
+02. Teachers Do It With Class (5:42)
+03. Code To Your Heart (3:55)
+04. Only Love (4:49)(   Читать дальше...   )Жанр: Melodic Hard Rock
+Страна: SwedenПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CA6BD6DA70E2D010ABC523E07DA5B3A5B5828D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561186   (515640) от 04.07.2022
+
+Devil's Train - Ashes & Bones (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкие хард-рокеры DEVIL’S TRAIN, лидером которых является вокалист MYSTIC PROPHECY и STEEL PANTHER RD Liapakis выпустили на ROAR! Rock Of Angels третий студийный альбом “Ashes & Bones”.
+
+Имея на своем счету 10 лет карьеры и два тепло принятых альбома, европейский ответ на BLACK LABEL SOCIETY, THE DEAD DAISIES и BLACK STONE CHERRY представляет нашему вниманию (   Читать дальше...   )01. The Devil & The Blues
+02. Girl Of South Dakota
+03. Rising On Fire
+04. You Promised Me Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394EBA8468B367BBEAB3DBCB81D4559CF07945FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561419   (515636) от 04.07.2022
+
+Sweet Pain - Swallow This (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock´n´Roll Thunderball
+02. All the Things the Bite
+03. Hot Rod Ruby
+04. Hellfire Bbq(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754903A2604243E0D04449B747528C3358AFEC1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 49554   (515368) от 17.08.2012
+
+Judas Priest (1974 — 2005)
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515368.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. “Judas Rising” – 3:52
+2. “Deal with the Devil” (Halford, Downing, Tipton, Roy Z) – 3:54
+3. “Revolution” – 4:42
+4. “Worth Fighting for” – 4:17
+5. “Demonizer” – 4:35
+6. “Wheels of Fire” – 3:41
+7. “Angel” – 4:23
+8. “Hellrider” – 6:06
+9. “Eulogy” – 2:54
+10. “Lochness” – 13:28Жанр: Heavy MetalПродолжительность: 12:48:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930758   (513876) от 24.08.2015
 
 Bon Jovi - Burning Bridges (2015) [FLAC|image+.cue]<Melodic Rock, Hard Rock>
@@ -638,122 +763,6 @@ CD - 1 - Galleyboyz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23782874B5BAED83F5E4103ADC42AE9A638E4A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565307   (494912) от 23.07.2022
-
-Ousey / Mann - Is Anybody Listening (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Flag (4:46)
-02. And So It Begins (4:53)
-03. Brave New World (4:38)
-04. I'll Tell You When To Stop (4:14)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2D283D6E704BDB08048238CA51D43F803EA4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565311   (494910) от 23.07.2022
-
-Lazarus Dream - Lifeline (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead End Symphony (6:29)
-02. Don't Look Down (4:48)
-03. Mind Like A Windmill (4:52)
-04. Freedom (5:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F138B7E01A0FD77DAC5FC4BB37F2E87524BECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565342   (494787) от 23.07.2022
-
-Rage N' Rox - Love On The Rox (1989) Reissue, 2022, FnA Records [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Wanted (4:45)
-02. How Can You Do It (4:29)
-03. Surrender (3:43)
-04. Long Walk (4:57)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DACCE20B720DB55935533543AA2547C53068A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054039   (494424) от 19.09.2016
-
-Cold Truth - Cold Truth (2003) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break Of A New Day  4:26
-02. In Her Groove  4:06
-03. Fire And Water  3:26
-04. Slow Burn  3:29(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75BD3DEF58B6BCD5C900107D9632BAD2C503801
 ```
 
 https://mybot314.ru/tekegram_catalog/

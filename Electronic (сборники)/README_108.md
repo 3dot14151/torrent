@@ -1,3 +1,32 @@
+###  Публикация: 1297231   (604833) от 21.04.2019
+
+VA - Digital Dream: Techno Set (2019) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604833.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mike Nero - Messed Up My Mind (Original Mix)
+002. Boryana - Simulation
+003. Santiago Garcia - Apes On Mars (Original Mix)
+004. T78 - Stinkor (Original Mix)(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBCF7F0DAAE1C3350BD94943CA55AC63A361BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297296   (604825) от 21.04.2019
 
 VA - Special Electro House Mix For Ladies (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
@@ -722,35 +751,6 @@ VA - Hardstyle Dance Extra Mixes (2019) [MP3|320 Kbps] <Hard Dance, Hardstyle, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17A7564F02285FD604B4FBD29D9F134AB0A2703D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298100   (602068) от 26.04.2019
-
-VA - Deep House Republic Mix (2019) [MP3|320 Kbps] <Deep, Soft House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602068.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dreams Incorporation - Rama (Deep Republic Mix)
-002. Mandragora - King Of The Lounge
-003. Steven Draxler - Right Time
-004. The Blue Bar Ensemble - I'm Running(   Читать дальше...   )Жанр: Deep, Soft House, ElectroПродолжительность: 10:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2681437DE2735848FE6BDF426C8EC1E1346508B
 ```
 
 https://mybot314.ru/tekegram_catalog/

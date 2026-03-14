@@ -1,3 +1,32 @@
+###  Публикация: 1241065   (522192) от 15.08.2018
+
+VA - Amazing Vocal Sound - Endless Summer 10 (2018) [MP3|320 Kbps] <House, Progressive House, Trance, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack x Jewelz & Sparks - One More Day (Nicky Romero Extended Remix)
+02. Alan Walker & K-391 feat. Julie Bergan & SEUNGRI - Ignite
+03. Andrew Rayel & HALIENE - In The Dark (Extended Mix)
+04. Anki & October Child feat. NEAVV - All Or Nothing (Extended Mix)(   Читать дальше...   )Жанр: House, Progressive House, Trance, Future HouseПродолжительность: 03:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34917505CBB74E0B05EA0E00A29492ED74BD06C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560102   (521817) от 28.06.2022
 
 VA - Car Music Mix (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
@@ -734,35 +763,6 @@ VA - Enhanced Session Electro House (2019) [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2729BEF20B99A9CC6FA9F4FF84E0A4E845E5C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314611   (517225) от 16.07.2019
-
-VA - Feel The Love: Club House Electromix (2019) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517225.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roma Greer - Final Shot (Original Mix)
-002. Zulu Natives - Baghdad
-003. Junk That - Money (Original Mix)
-004. Dj Junior - Hold You (Extended Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 11:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D174BC78BB6647CA47A7A0AA309990DC75A0EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

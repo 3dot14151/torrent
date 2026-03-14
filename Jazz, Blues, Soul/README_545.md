@@ -1,3 +1,177 @@
+###  Публикация: 1777900   (70941) от 07.02.2025
+
+Beans & Fatback - Hold Fast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Black and Blue (02:50)
+02 - Tight Ripped Jeans (03:08)
+03 - Sweet Unknown (02:34)
+04 - Turn Around (02:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F96DC1C148017E9A1C742F2043BFACEA0448522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778329   (70921) от 08.02.2025
+
+Julee Cruise – Floating Into The Night (1989) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Downtempo, Ambient>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating
+02. Falling
+03. I Remember
+04. Rockin' Back Inside My Heart(   Читать дальше...   )Жанр: Smooth Jazz, Downtempo, AmbientПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1CD4FC39BB814154B20669210E605366B70731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778288   (70910) от 08.02.2025
+
+Louis Armstrong - Wonderful World: The Best Of Louis Armstrong (2024) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Kiss to Build a Dream On [3:05]
+02. Hello, Dolly! [2:27]
+03. Dream a Little Dream of Me (feat. Ella Fitzgerald) [3:08]
+04. La Vie en Rose [3:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E392E6B5ED79219EEB85239EA2DB23C9B7107785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778364   (70908) от 08.02.2025
+
+Tape Five - Fizzy Far Niente (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bandit Town
+02. Bad Boy Good Man (Rmx 2023)
+03. Crazy Little Thing Called Swing (Fizzy Far Niente Edit)
+04. The Hepcats Blues(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F267AE64045CFD2ECB2D88355438D5C62F3748D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778241   (70901) от 08.02.2025
+
+Richard Montag - Blues Bird (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aimlessly (3:12)
+02.  Back Against The Wall (3:20)
+03.  Broken Mess (2:41)
+04.  The Crossroads (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE63BF1EBEA482A5581B0E2695751BDBBF339D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778211   (70899) от 08.02.2025
+
+Nino Grandi - I've Been Waiting (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I've Been Waiting (4:06)
+02.  Sympathy (5:30)
+03.  Enjoy the Ride (4:45)
+04.  Swinging in the Blues (6:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBC62EE45CF11E89DCA314583FB4E3F64AE41D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778269   (70896) от 08.02.2025
 
 Slinky Vagabond - The Eternal Return (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
@@ -571,178 +745,6 @@ VA - Jazz Collection Tracks For Stress Relief (Volume 1) (2025) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5778B58AE0642BDD408BFB544D754384DBC4F0E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778968   (70774) от 10.02.2025
-
-VA - Jazz House Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Belladonna - Midnight Piano (7:38)
-02.  Mellowtones - Tushita (5:34)
-03.  Zone - London Dance (5:45)
-04.  Viani Dj & Aaron T - Funker (Original Mix) (7:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101B88AE5C28BC55533EDA61C05C33E5DF6F8A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778957   (70773) от 10.02.2025
-
-VA - Afro Funky House 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jestofunk - Colour (Remix) (5:47)
-02.  Dj Ebreo - Boliban (5:19)
-03.  Belladonna - Tangent (4:05)
-04.  Bantukemistry - Zoma (3:49)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C402DE95F964CA677AB9BD678A436449BE9E5CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778975   (70771) от 10.02.2025
-
-VA - Slow and Smooth Jazzy Beats and Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Papik, The Soultrend Orchestra & Anna Fondi - Summer Madness (5:01)
-02.  Montefroid - The Way You DoЖанр: Smooth JazzПродолжительность: 01:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86CD1D4157AAEEE742A3A3EDDBD68E657815FE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778981   (70770) от 10.02.2025
-
-VA - Soul R&B and Funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, R&B, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Curtis Mayfield - Move On Up (2:46)
-02.  The Spinners - Working My Way Back to You (4:03)
-03.  CHIC - Good Times (8:15)
-04.  George Benson - Give Me the Night (3:43)(   Читать дальше...   )Жанр: Jazz, Soul, R&B, FunkПродолжительность: 03:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD56B8992588AAB21EF9E0538863D918F8193C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778960   (70767) от 10.02.2025
-
-VA - fun and funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul/Funk/R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  CHIC - Good Times (8:15)
-02.  George Benson - Give Me the Night (3:43)
-03.  Sister Sledge - He’s the Greatest Dancer (6:15)
-04.  Chicago - Street Player (9:11)(   Читать дальше...   )Жанр: Soul/Funk/R&BПродолжительность: 02:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A4529C3D00D25B58C40D6C68B82B966F57555FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778876   (70765) от 10.02.2025
-
-Dave Stryker - Eight Track (2014) Strikezone Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be Around [4:55]
-02. Pusherman/Superfly [7:16]
-03. Wichita Lineman [6:04]
-04. Aquarius [7:18](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A294BEC18DB953DB7FFCFF812EA2C7E2A261A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

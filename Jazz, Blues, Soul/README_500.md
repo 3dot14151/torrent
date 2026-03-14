@@ -1,3 +1,177 @@
+###  Публикация: 1715408   (111523) от 12.04.2024
+
+James Carter - Layin' In The Cut (2000) Atlantic [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Layin' in the Cut [6:58]
+02. Motown Mash [7:23]
+03. Requiem for Hartford Ave. [5:58]
+04. Terminal B [6:44](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4865C89CDBD6CCB342BB65C9F1DA1D8031EF421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715406   (111520) от 12.04.2024
+
+Anita O'Day - 1950 - 1952 (2003) Classics [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tennessee Waltz [3:01]
+02. Yeah Boo [2:18]
+03. Something I Dreamed Last Night [3:11]
+04. If I Could Steal You From Somebody Else [2:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886F5F9580CF7217F863E6DE31E4092359413199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715405   (111519) от 12.04.2024
+
+Anita O'Day - 1945 - 1950 (2002) Classics [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes [2:41]
+02. Memories of You [3:01]
+03. How Come? [2:44]
+04. I Can't Believe That You're in Love With Me [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D376DE00CD343CC5C5F9789E2443A4471B113DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715616   (111518) от 12.04.2024
+
+Harry Orlove - Mildly Popular (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down South In New Orleans (4:19)
+02. Deep Ellum Blues (6:38)
+03. Looking for Trouble (6:16)
+04. Hello Walls (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A652BF6445428CB45FBC1861917F3B4AF990E3DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715611   (111516) от 12.04.2024
+
+Big Chico - 30 Anos De Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmonica>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just a Blew in to Your Town (3:08)
+02. Bad Feeling (6:22)
+03. Made My Gateaway (feat. Laretha Weathersby) (6:05)
+04. I Wonder Why (3:06)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B82A6D47FE72FBA5497117737117A7975F75F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715609   (111515) от 12.04.2024
+
+Jeff Gaeth - Pecking Order (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red-Handed (5:18)
+02. Aquamarine (4:38)
+03. Pecking Order (5:06)
+04. Almost Home Again (5:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD376787D1D06ABCDDF38D9C227CCCF029B389B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715618   (111514) от 12.04.2024
 
 Marvin Scondo - Road Trip Session Vol. I  (Deluxe Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Dempsey Crenshaw & Danny Banda - The Blues Brought Me Through (2024) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E12D6A433B217C6F4AAFB0A94EBAE4895A420A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716668   (111350) от 16.04.2024
-
-Kevin & JD - 10 From 5 - The Best Of Kevin & JD (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Up The Blues (3:32)
-02. Who's The Boss (3:12)
-03. Bad Apple (4:19)
-04. Puppet (6:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8027D045248B5C0910464B7AC3B2A70CE015640C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716619   (111336) от 16.04.2024
-
-Erroll Garner - Closeup in Swing & A New Kind of Love (1961, 1963) 1997, Telarc [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Do Something to Me [3:15]
-02. My Silent Love [4:05]
-03. All of Me [2:21]
-04. No More Shadows [4:07](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91061BEC676F3F42325A1233FE49C8EE04898266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716529   (111334) от 16.04.2024
-
-VA - Jazz Dinner Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Café Drechsler - And Now…Boogie! (2:48)
-02. Chet Baker - Let's Get Lost (3:44)
-03. Vienna Art Orchestra - Rem Blues (3:54)
-04. Wolfgang Puschnig - Microphone Veteran (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B278B5E0F5A82248AD5788EB5DEA27680AD24D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716532   (111333) от 16.04.2024
-
-VA - Jazzy Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Puschnig - Naima (3:46)
-02. Benny Carter - If Dreams Come True (5:49)
-03. Oscar Peterson - Come Dance With Me (2:19)
-04. Dinah Washington - Teach Me Tonight (2:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7F6999B40CA290FF3349F1EF66C15581D9B733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716539   (111332) от 16.04.2024
-
-VA - Urban Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Funk, Downtempo, Soulful House>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anduze - How To Love A Good Man (Those Guys From Athens Radio Remix) (3:23)
-02. Durty Geeks - Dolomyte (4:05)
-03. Funk Revenge - By Our Side (4:18)
-04. Vito Lalinga (Vi Mode Inc. Project) - Funk In A Min (4:44)(   Читать дальше...   )Жанр: Chill Out, Funk, Downtempo, Soulful HouseПродолжительность: 02:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64EF7ADEF76FC965F13707F710C580EF50E058E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716536   (111330) от 16.04.2024
-
-VA - Ultimate Relaxing Jazz Music for Weekends (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Konstantin Klashtorni - Humble and Kind (4:07)
-02. Kool&Klean - Sail (5:06)
-03. Kool&Klean - Twilight (4:34)
-04. Chillaxonic - Within Attraction (3:46)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 02:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A78EB421800874276540F8975FA6CD9B98049E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1365548   (929152) от 08.03.2020
+
+Vetur - Nætur, Vist (2018-2020) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haugfé [00:01:44]
+02. Gandreið [00:04:51]
+03. Dalalæða [00:05:30]
+04. Þrá [00:04:07](   Читать дальше...   )Жанр: Black MetalПродолжительность: 2 CD, 01:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBDCAAA3546B452F74BD61878250BA19F0FD8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365759   (929012) от 08.03.2020
 
 Almanac - Rush of Death (2020) [MP3|320 kbps] <Heavy Metal, Power Metal>
@@ -718,33 +747,6 @@ DED - 2 Releases (Mis-An-Thrope (CD) / Mannequin Eyes (EP)) (2017-2020) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A186B2111D9FDEFC7145112D795E9F2C5D18FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988510   (920707) от 20.02.2016
-
-Mastodon - White Walker (2016) [MP3|320 кб/с] <Heavy Metal, Progressive Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Walker (04:22)
-02. White Walker (A Capella) (03:12)Жанр: Heavy Metal, Progressive Metal, RockПродолжительность: 00:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F16B2A6EBDC7F141268AAE719A90824A23C7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

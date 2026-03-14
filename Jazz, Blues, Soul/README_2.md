@@ -1,3 +1,61 @@
+###  Публикация: 1850323   (1054199) от 27.01.2026
+
+The Imaginaries - Fever (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fever (2:56)
+02.  The Imaginaries feat. Ariel Posen - Wishing Well (4:05)
+03.  The Imaginaries feat. Joe Bonamassa - Crossroads (3:48)
+04.  The Imaginaries feat. Vince Gill - Whole Lotta Livin' (2:20)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C345D411BC7218A30AD5877B463494D66DAE9495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850123   (1053971) от 26.01.2026
+
+Solomon Hicks - How Did I Ever Get This Blue (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Further On Up The Road
+02. Dimples
+03. Driftin' And Driftin'
+04. All Your LoveЖанр: BluesПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48687C05D0BA0661CFC3D2B71E6991CC974F453A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849835   (1053857) от 24.01.2026
 
 Elise Frank - I Didn't Pay For It (2026) [MP3|320 Kbps] <Blues Rock>
@@ -688,64 +746,6 @@ The Neo Swingers - Electro Swing X-Mas 2025 (2025) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55B0746664D95222449F90AF06C69EC23F604484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847340   (1052115) от 11.01.2026
-
-Blues Nite Revue - Tap Your Foot (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Please Remember Me (5:22)
-02.  You gotta Move (4:34)
-03.  Cornbread, Peas and Black Molasses (2:42)
-04.  I Feel like Going Home (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8442A3A0E5B9058659DFA5A25F0BC97FC23D8AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847337   (1052114) от 11.01.2026
-
-Alexandra Wright - Bartering with the Mirror (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mary and the Frame (5:00)
-02.  Pretty Monster (3:31)
-03.  Walk Alone (3:30)
-04.  Arsenic Chianti (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C3B6358738DB70696E5FD480465FBA6397E489
 ```
 
 https://mybot314.ru/tekegram_catalog/

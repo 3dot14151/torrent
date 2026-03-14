@@ -1,3 +1,32 @@
+###  Публикация: 1094084   (930951) от 17.01.2017
+
+VA - Trance Kaleidoscope (2017) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930951.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aurosonic, Sue Mclaren - Captured By Gravity (Original Mix) 8:08
+002. Fabio Xb & Liuck Feat Roxanne Emery - Nowhere To Be Found (Craig Connelly Remix) 6:23
+003. Juventa - A Thousand Words (Original Mix) 7:41
+004. 4 Strings - Wondering (Original Mix) 6:02(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 11:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5103F4B1D78B8D16148FA5969B44799A78B5E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094080   (930858) от 17.01.2017
 
 VA - The Planetary Influence: Territory Of Dubstep (2017) [MP3|320 Kbps] <Dubstep, Drum And Bass>
@@ -714,35 +743,6 @@ VA - Elite NME Dance Club (2020) [MP3|320 Kbps] <Dance, Pop, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C5D326AB3BE3FC5B2CBD12E1D34AE70E50587A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987760   (924499) от 18.02.2016
-
-VA - Sports Music For A Better Life (2016) [MP3|320 kbps] <Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troy Mandalon - Prism 04:13
-02. Clickbank - Personal 03:36
-03. Zal Trigger - History 04:26
-04. Another - Getsing 03:58(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51CC1A275445843A1ED46FEA7B62E033851CFE41
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,23 @@
-###  Публикация: 479154   (98850) от 07.04.2012
+###  Публикация: 1767046   (101210) от 21.12.2024
 
-Каникулы в Мексике - 2. Выпуск №25 (2012.04.06) SATRip
+Киров: приключения итальянца в новогодней столице России 2024 года / «Поедем, поедим!» (21.12.2024) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98850.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101210.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:42
+Федерико Арнальди отправился в новогоднюю столицу России 2024 года — в Киров!
+Путешественник узнал, как отмечают Новый год на МКС, поучаствовал в самом большом праздничном хороводе, искупался в проруби, а еще вступил в отряд Вятского воеводы и отведал перловку из бычьей ноги. Также Федерико напечатал блюда на 3D-принтере и научился готовить осердницу и свинину по-орловски.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C47074E21C44AC9A7B9D1944CEA662A7E20A72B8
+magnet:?xt=urn:btih:998DFD305F6AE2881283D40DB200C693D5419107
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +25,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479465   (98849) от 07.04.2012
+###  Публикация: 1766805   (101209) от 21.12.2024
 
-[Wallpapers] Gilrs Wallpaper Collection (07.04.12)
+Markus Schulz - Global DJ Broadcast Year in Review Part 2 (2024-12-19) [MP3|320 Kbps] <Trance, Techno>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98849.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101209.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+41. Zyon - No Fate (Adam Beyer Remix)
+42. Markus Schulz & Emma Hewitt - Till We Fade (Club Mix)
+43. BLR & Matt Sassari - Close Encounters
+44. Elysian - Sparks in the Night(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:01:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34037B6326A7EC36F94E0CE650F39B2D34F6FFA5
+magnet:?xt=urn:btih:5C4AD6CAD4F5771EC9C6D0E6487AB031A95FEA3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479487   (98846) от 07.04.2012
+###  Публикация: 1766986   (101208) от 21.12.2024
 
-[Wallpapers] Wallpapers Sexy Girls Pack (08.04.12)
+Реми Майснер. Бертольд Брехт, «Классовый враг» (2022) WEBRip [H.264]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98846.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101208.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Реми Майснер читает стихотворение Бертольда Брехта и вместе с DHARMA1937 рассуждает об актуальности понятия «классовый враг» .Производство: Россия, Авторский блог Remi MeisnerЖанр: политикаЯзык озвучки: РусскийПродолжительность: 00:09:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99F877ECF353922C06D02E7FBB077D39D5ABBFCF
+magnet:?xt=urn:btih:0AC803214982A949501F500DAE7D44C0B33DC3C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +80,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479485   (98845) от 07.04.2012
+###  Публикация: 1766976   (101207) от 21.12.2024
 
-[Wallpapers] Wallpapers Sexy Girls (08.04.12)
+Beat Find / Распознавание музыки v1.6.51 Mod by NURIK kz [Ru/Multi]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98845.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101207.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Удобное и функциональное приложение для распознавания музыки с возможностью создания красивой визуализации спектра прослушиваемой композиции. Хранит историю запросов. В случае наличия распознанной композиции в базах сервисов потоковой музыки выдаются ссылки на Deezer / Spotify / YouTube.
+С приложением идентификатора песни Beatfind вы можете исследовать песни альбома, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.12.2024Разработчик: Beatfind Music RecognitionПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98F78BEEDCCD64E5EC9CEFB6221339D4C6AE37B7
+magnet:?xt=urn:btih:68BFA675A9BE8F733120B7CA3FE3850CF4534712
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,34 +107,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479351   (98844) от 07.04.2012
+###  Публикация: 1767048   (101206) от 21.12.2024
 
-VA - Soul of Ibiza Volume 28 (07.04.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+Живая еда с Сергеем Малозёмовым (21.12.2024) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98844.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101206.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix)
-002. Ingsha & Di - Binary Code (Transit Passengers Remix)
-003. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix)
-004. Justin Dobslaw - Cold Snap (Andrew Rayel Remix)
-005. Vincent De Jager feat. Emma Lock - Dive (Original Mix)
-006. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix)
-007. Cerf, Mitiska & Jaren - Down To You (Original Mix)
-008. Sander Van Doorn - Drink To Get Drunk (Extended Version)
-009. Luca De Maas - E-Motions 2011 (original mix)
-010. The Blizzard & Yuri Kane feat. Relyk - Everything About You07.04.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:46:46
+Форель: как ее растят на фермах, правда ли она заражена паразитами и как убрать запах тины? И что рассказали об этой рыбе… в консерватории?
+ В чем коварство хурмы, которая вяжет? Неожиданные способы избавиться от терпкого вкуса.
+ Новости недели: ген стройности, бобы как хлеб будущего и «добрые» нитраты.
+ Куриная закуска: прошел ли проверку рецепт блюда из Интернета?Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A73FEFFF1AEFFB57EEC0FAE023DAA4DA2660C2F9
+magnet:?xt=urn:btih:CBF084C3B49C9EC83C7903AC1825ECB3764B38C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,34 +136,449 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479332   (98842) от 07.04.2012
+###  Публикация: 1767082   (101205) от 21.12.2024
 
-Distance Call - Distance Call (2011) [FLAC|Lossless]<Melodic Metal, Heavy Metal>
+Lane 8 - Winter 2024 Mixtape (2024-12-18) [MP3|320 Kbps] <Progressive House, Melodic House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tourist & Gold Panda - +1
+02. Tiga & Hudson Mohawke ft. Jesse Boykins III - Silence Of Love (Reznik Remix)
+03. Pambouk - Hidden Faces
+04. Ashibah - Autumn(   Читать дальше...   )Жанр: Progressive House, Melodic House, Deep HouseПродолжительность: 02:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68494378F3AD18B738256B3793D25BC22836B38F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767038   (101204) от 21.12.2024
+
+Газета | Невыдуманные истории №50 (454) (декабрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101204.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DCC38FD6D24F660EFB8AE2B8F12F2F5E40E40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767086   (101203) от 21.12.2024
+
+игумен Аристарх Лоханов (ред.) | Жития святых избранные по советам Святых Отцов и духовников русских обителей (2004) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101203.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемой книге собраны жития, которые великие старцы и духовники русских обителей советовали читать «на потребу» — в трудных жизненных обстояниях: в гонении, обиде, клевете, в унынии, в изнемогающей борьбе с помыслами и грехами, в различных случаях для укрепления духа и веры.
+Этим данное издание принципиально отличается от других сборников житий святых, которые (   Читать дальше...   )Жанр: ПравославиеИздательство: КовчегФормат: DJVU, PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5062C381742251126FA424DB0EA288B47F6A3887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767003   (101202) от 21.12.2024
+
+VA - Weekend Dance Tunes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack York - New Day (02:59)
+02. Mirko Lovato - Cosmic Galaxy (02:59)
+03. MANESK - We Are Wild (03:33)
+04. Free Mads - Look Inside (Deep House Mix) (05:10)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8F85A16317B54449355ED6ED24580123D59CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767103   (101201) от 21.12.2024
+
+Arcade Alchemy - 1 hour Beast Mode On Hard-hitting Gym Beats for Strength (2024) [MP3|320 Kbps] <Hard House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Effort (3:13)
+02. Adrenaline Rush (3:33)
+03. Feel the beat (2:28)
+04. Barbell Anthem (2:33)(   Читать дальше...   )Жанр: Hard House, DanceПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD2C38F431CD4EA6A0EBD8539470FD813C14FE27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766800   (101200) от 21.12.2024
+
+VA - Synchronized Music: Best of 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Irrmani - Road to the Magic Island (05:29)
+02. TONE - In Your Name (04:24)
+03. Gennady Blinkov - Union (05:39)
+04. A.L.Y.S. - Distant Past (03:49)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9084C98F5E008C4521371008B23EA1AD66951019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767063   (101199) от 21.12.2024
+
+VA - Festive Season (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandeep Pai - Fade (Jerome Isma-Ae Remix) (04:15)
+02. Airbas - Believers (03:45)
+03. Celeste Siam - You Bring Me Joy (02:34)
+04. Two Minds - My Way to the Skies (03:52)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 01:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66FF8AA676E8F741B22F3FC9B671D7A63FFA40FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766997   (101198) от 21.12.2024
+
+НХЛ 2024-2025. Каролина Харрикейнз - Вашингтон Кэпиталз (20.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101198.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 декабря 2024, суббота. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Питер Макдугалл (Реджайна, Канада); Главный судья: Крис Ли (Сейнт Джон, Канада); Линейный: Дэвид Брисбуа (Садбери, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7720521232CC03143BF68CEAE3CC959BD593BCAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767079   (101197) от 21.12.2024
+
+VA - Broken Beat Nu Funk, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vito Lalinga (Vi Mode inc project) - Excellence (3:36)
+02.  Funky Destination - Bombshell (Extended) (5:14)
+03.  Funky Destination - God's Children (Extended) (5:12)
+04.  Funk Windows - Blues Fantasy (3:21)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FE1BEB8BA5C53697B514390F707063AEC7471E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767083   (101196) от 21.12.2024
+
+VA - Ibiza 2024 Broken Beat Nu Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mr. ThruouT - Spiral (5:44)
+02.  Mr. ThruouT - Giving You Four (5:20)
+03.  DJ Mister Funk - Audio Funk (3:42)
+04.  DJ Mister Funk - Dirty Groove (3:16)(   Читать дальше...   )Жанр: Jazz, Funk, R&BПродолжительность: 01:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B78E64CFDBDEDF65C41B45ED51D0D0E08AE8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767078   (101195) от 21.12.2024
+
+VA - Afro Funk, Vol. 9 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Afro Dub - Street Life (3:42)
+02.  Afro Dub - Free Nights (3:31)
+03.  Afro Dub - Speed Day (3:16)
+04.  Afro Dub - Tense Day (3:12)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C464BAD31965B2E22F6228B407E186EBCBE9F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766957   (101194) от 21.12.2024
+
+Пятеро на одного (21.12.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D89C849995F9592F46D3A210AC51D31ECFE5B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767114   (101193) от 21.12.2024
+
+Своя игра (21.12.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101193.jpg" />
+</div>
+
+
+###  Подробнее
+
+2024 год близится к завершению, как и турнир "Своей игры". 14 декабря начались финальные игры, в которых участников ждут три третьфинала и финал. В финальных играх принимают участие игроки, которые показали лучший результат за год.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5EDE044F4E49279279F8C8D64544280BAFAC13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766994   (101192) от 21.12.2024
+
+Sorceress of Sin - Ennea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101192.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Odyl (6:46)
+• 02. Reina (5:35)
+• 03. Poseidon (5:02)
+• 04. The Quest (7:30)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B43324E9E68DED6C5C424A20502BEEAADC4188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767037   (101191) от 21.12.2024
+
+Газета | Невыдуманные истории №49 (453) (декабрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101191.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D24385B6833AD16C381CA67B474D4EDAD4A1ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767532   (101190) от 22.12.2024
+
+VA - Guten Morgen Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98842.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro [0:12]
-02. Ray Of Light [3:55]
-03. Brick's [4:47]
-04. Gambling [3:14]
-05. Wing's Love [5:34]
-06. Set Me On Fire [3:24]
-07. Prisoner Of The Past [5:50]
-08. Paradise [5:40]
-09. First Kiss [6:11]
-10. Thunderstorm [4:28](   Читать дальше...   )Жанр: Melodic Metal, Heavy MetalПродолжительность: 00:51:56
+01.  Junkie XL - Come Together (3:14)
+02.  Black Stone Cherry - Rolling in the Deep (Live) (3:48)
+03.  Linkin Park - What I’ve Done (3:26)
+04.  Nickelback - How You Remind Me (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 01:57:12
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:14C99400F86DE89E72C857FB75DDA6D870809FFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,25 +586,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479488   (98841) от 07.04.2012
+###  Публикация: 1767538   (101189) от 22.12.2024
 
-[Wallpapers] Girls Wallpapers (08.04.12)
+VA - Rock Overdose (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98841.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101189.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01.  Blur - Song 2 (2012 Remaster) (2:01)
+02.  Green Day - American Idiot (2:54)
+03.  Linkin Park - The Emptiness Machine (3:10)
+04.  Nickelback - Never Again (4:21)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0DC315D6DC801383901E61C67E89F793BB5481A
+magnet:?xt=urn:btih:96FEA85750854D9E0A256CB4073D688096A5E797
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,26 +615,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478856   (98839) от 07.04.2012
+###  Публикация: 1766818   (101188) от 22.12.2024
 
-Omertah - Essence (Promo) (2012) [MP3|320 кб/с]<Atmospheric Math Metal / Post-Rock>
+Mystericon - Иди И Смотри (2024) [FLAC|Lossless|tracks] <Gothic Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98839.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101188.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Essence
- 2. OceansЖанр: Atmospheric Math Metal / Post-RockПродолжительность: 00:27:33
+✧ 01 - Эскапизм (00:05:00)
+✧ 02 - В Моих Руках (00:05:07)
+✧ 03 - Осенняя Печаль (00:05:03)
+✧ 04 - Неуловимое (00:05:26)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:49:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82266B60C85E0C5045BA7E0703780E440FE01A1D
+magnet:?xt=urn:btih:145553012E10FFD72BC5E8AFE7956B109EE308BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,29 +644,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479682   (98838) от 07.04.2012
+###  Публикация: 1767495   (101187) от 22.12.2024
 
-[Wallpapers] Nature Pictures №38
+Хайп хаус / Buzz House: The Movie (2024) WEBRip [DVO] [AD]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98838.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101187.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №38
-Название: Nature Pictures №38
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 1920х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Предстоящий сезон Хайп Хауса - самый амбициозный. Селли приготовила для участников множество сюрпризов: секретные участники, изолированная в лесу вилла, куда можно добраться только на лодке, и костюмированный сотрудник, которому поручено пугать их, сделают это шоу захватывающим. Все тщательно спланировано. Но вот что не предусмотрено, так это появление настоящего (   Читать дальше...   )Производство: Румыния / Viva la VidraЖанр: ужасы, комедияРежиссер: Florin BabeiАктеры: Maya Alessia, Scarlet Andreea, Cristescu Cezara, Dracea, Adrian Elicopter, David Ioan, Iorga, Erika Isac, Costi Max, Vlad Neamtu и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:52Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:701098495B4266070762D51641B7FAFFF7260719
+magnet:?xt=urn:btih:75CE3A987F02592CD24310865D3370892A68EF28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -255,25 +670,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479484   (98837) от 07.04.2012
+###  Публикация: 1767474   (101186) от 22.12.2024
 
-[Wallpapers] Best HD Wallpapers (08.04.12)
+Героический господин Бонифас / L'heroique Monsieur Boniface (1949) BDRip [H.264/720p] [VO]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98837.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Виктор Бонифас, добрый и рассеянный оформитель витрин, сильно простуженным зашёл в бистро выпить чего-нибудь горяче, и хозяин предложил ему грог. Непьющий Бонифас быстро перешёл в знакомое многим состояние и в весёлом расположении духа отправился в свою гостиницу. А тем временем несколько гангстеров из «Автомобильной банды» выясняли там отношения. Один из них, Джо (   Читать дальше...   )Производство: Франция / Société Française de Cinématographie (SFC), La Société des Films SiriusЖанр: комедияРежиссер: Морис ЛаброАктеры: Фернандель, Андрекс, Ив Деньо, Лилиан Берт, Мишель Ардан, Орбаль, Шарль Буйо, Франсуа Дешамп, МаффреПеревод: любительский одноголосый (Юрий Бибиков, VHS)Язык озвучки: русский, французскийСубтитры: французские SDHПродолжительность: 01:34:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA8A66FCA3E86454533A6F03D8D1A45027E18CF7
+magnet:?xt=urn:btih:B161AC02E8F58CA43DAE3931151D0AA39416A8AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,456 +696,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479754   (98834) от 07.04.2012
+###  Публикация: 1767505   (101185) от 22.12.2024
 
-[Wallpapers] Desktop Wallpapers №14
+Бонифаций-сомнамбула / Boniface somnambule (1951) BDRip [H.264/720p] [VO]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98834.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers №14
-Название: Desktop Wallpapers №14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Бонифаций стал детективом в универмаге, где ему поручено следить за ювелирным магазином, который привлекает алчные взгляды грабителей. Однако он имеет привычку ходить по ночам, страдая лунатизмом. И случилось так, что он стал приходить ночью в магазин и похищать дорогие украшения. Трое злоумышленников, узнавшие об этом, решают использовать его для своей выгоды...Производство: Франция / La Société des Films Sirius, La Société Française de CinematographieЖанр: комедияРежиссер: Морис ЛаброАктеры: Фернандель, Луи де Фюнес, Андрекс, Гэби Андре, Рауль Марко, Мишель Ардан, Андре Руан, Андре Жауберт, Жюльен Мафр, Андре Нюмес-мл., Каде Риверз, Матильда Касадесус, Ив Денед, Лейла Лампи, Лилиан БарриалПеревод: любительский одноголосый (Юрий Бибиков, VHS)Язык озвучки: русский, французскийСубтитры: французские SDHПродолжительность: 01:30:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20E744BE7DAE44D89A57CCD2F110990E811C6A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479483   (98833) от 07.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (08.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A9EF35FFBC820EF2C5B6BE04EF72708681FD7F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479685   (98832) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98832.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №8
-Название: Desktop Wallpapers №8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E5DB306863462EBBF8D43CE148E4D3346C0498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479699   (98831) от 07.04.2012
-
-[Wallpapers] Desktop wallpapers (08.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2269D937A0EDC00B3E0465381B7D6B6D7126005F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479681   (98830) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98830.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №6
-Название: Desktop Wallpapers №6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2880х1800
-Расширение (тип) файлов: jpg, pngВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A71505547CA9F44585098DC852E4C1AFDC3539C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479489   (98829) от 07.04.2012
-
-[Wallpapers] Best HD Wallpapers Pack (08.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2BB1F872C6BCB797EC4D43D2D75379367178B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478832   (98828) от 07.04.2012
-
-[Wallpapers] Mixed Wallpapers 0.2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Качественный микс из обоев на разные темы(природа,кошки,юмор,креатив и др.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160C8E2D0E952347924C117A201DDD4276D62AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479433   (98827) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98827.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №4
-Название: Desktop Wallpapers №4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87B086DB8B52037A0C9A96C4BE913EAA4B9DE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479459   (98826) от 07.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785824954076D2B64F5101F049765558BF11A591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479432   (98825) от 07.04.2012
-
-[Wallpapers] HD Wallpapers №7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98825.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №7
-Название: HD Wallpapers №7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C50C6C589C26B526D2F36B1F66904B0ED4BE0EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479752   (98823) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №13
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98823.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №13
-Название: Desktop Wallpapers №13
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9909F1F839812D790DD84E5C174CB3C78A832968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479700   (98822) от 07.04.2012
-
-[Wallpapers] Anime Wallpaper (08.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D16F16A6A4501B465E48D27681373BF7B345D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478461   (98820) от 07.04.2012
-
-Various Artists - Tranceffect 18 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tomas Heredia- Hurricane (Radio Edit)
- 02. Max Graham feat. Susana-Down To Nothing ({am} Extended Mix)
- 03. Solarstone & Haris C-Ultraviolet (Haris C Mix)
- 04. Meridian vs. Arctic Moon vs. ReOrder-Smile In Biscay Bay (LarSson & Lucas Comes Mashup)
- 05. Running Man & Ahmed Romel-Azure (Running Man Edit)
- 06. John OCallaghan-Psychic Sensor (Indecent Noise Remix)
- 07. Talla 2XLC-Salvation (Club Mix)
- 08. Keelin Temple vs Heatbeat-Iridescent (Reach & Height Rosary Mashup)
- 09. Skylight-Autumn Wonderland (Aero 21 Remix)
- 10.  7 Baltic-Hidden Life (Original Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B83DE5352DEAD7699A1ED299127BA658B8211D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479466   (98819) от 07.04.2012
-
-[Wallpapers] Best Wallpapers (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C871BB0F09C4A26B020C6354F348C7AC498522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479679   (98816) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98816.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №5
-Название: Desktop Wallpapers №5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0467081298E42C9E6F930623C1E5B3E49DFAE429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479683   (98815) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98815.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №7
-Название: Desktop Wallpapers №7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED07577EAA4D376DBA2B972775530E3EA48DC967
+magnet:?xt=urn:btih:78C9C384A6C039307277F05379AE7287AC71D622
 ```
 
 https://mybot314.ru/tekegram_catalog/

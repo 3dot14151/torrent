@@ -1,3 +1,90 @@
+###  Публикация: 1341949   (227526) от 30.11.2019
+
+Heartless Bastards - Arrow (2012) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marathon (06:10)
+02. Parted Ways (04:57)
+03. Got To Have Rock And Roll (03:55)
+04. Only For You (05:08)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D7510495B63DEE283A9AA080E0F6E0DA345961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341955   (227502) от 30.11.2019
+
+Balthazar - Thin Walls (2015) 2 CD Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oldest of Sisters (03:34)
+02. Leipzig (02:54)
+03. Boatman (04:54)
+04. Sinking Ship (04:34)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123CD0D7A01CE7DEDA7BCD9D7E5B9A1C58896DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649765   (227483) от 30.07.2023
+
+Billy Idol - Billy Idol (1982) 2CD, Expanded Edition, 2023, Capitol Catalog MKT (C92) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_227483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Talk (Live From The Roxy, West Hollywood, August 12, 1982) [00:03:12]
+02. Untouchables (Live From The Roxy, West Hollywood, August 12, 1982) [00:04:01]
+03. Come On, Come On (Live From The Roxy, West Hollywood, August 12, 1982) [00:04:50]
+04. Hot In The City (Live From The Roxy, West Hollywood, August 12, 1982) [00:04:05](   Читать дальше...   )Жанр: Punk Rock, RockПродолжительность: 01:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533D7A6039BD547C692499C72D896E1A367FB8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341971   (227457) от 30.11.2019
 
 Fun Lovin' Criminals - Another Mimosa (2019) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Indie>
@@ -656,93 +743,6 @@ Antivalent - Lifelong (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64406A10F387D61740F30CF74CD632F3EFD1CD6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652029   (219492) от 09.08.2023
-
-Meg Myers - Thank U 4 Taking Me 2 The Disco (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Any Way You Wanna Love 3:31
-02. Grizzly 3:27
-03. The Underground 3:32
-04. Breaks My Back 3:49(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Female VocalПродолжительность: 00:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DB8CE00FBC2EED64364B3BFCD1511428CA99CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652028   (219430) от 09.08.2023
-
-Meg Myers - I'd Like 2 Go Home Now (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True Liars 3:59
-02. End Of The World 3:30
-03. Hurt 4:00
-04. Sweet Liar 3:33(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Female VocalПродолжительность: 00:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9321984BE497E76B1831D1535D1226A753DD1171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084632   (219132) от 19.12.2016
-
-Nanaki - Dandelion Radio Session (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Alt-Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. January Overkill (04:16)
- 02. Disembryo (04:09)
- 03. Let Me Close My Eyes (05:18)
- 04. Luthiers (Of Heaven) (04:20)(   Читать дальше...   )Жанр: Post-Rock, Alt-Rock, Post-PunkПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40F5744A115EC49770A4367422508DCD15EDBAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

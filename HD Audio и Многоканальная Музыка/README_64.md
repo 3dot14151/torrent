@@ -1,3 +1,147 @@
+###  Публикация: 1665675   (181438) от 01.10.2023
+
+Orbital - Optical Delusion (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <IDM, Electro, House, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+DISC 01
+DISC 02Жанр: IDM, Electro, House, TechnoПродолжительность: 2CD, 01:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1BB07EB0915DB8BF4B6EB0C820358E3C1EE2085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665649   (181262) от 01.10.2023
+
+Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI Records Ltd. [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181262.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Вернись К Тому, Кого Любишь • Lay Back In The Arms Of Someone
+A2 Мне Грустно От Чего-то • Something's Been Making Me Blue
+A3 Если Ты Думаешь, Что Любишь Меня • If You Think You Know How To Love Me
+A4 Передай По Кругу • Pass It Around(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0718BE65DF1F601E27263ED05CC94FAF316A20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665746   (180956) от 02.10.2023
+
+October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric Black Metal, Neofolk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180956.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Marras I
+A2 Marras II
+A3 Marras III
+A4 Marras IV(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:866859237EE73B837E31A8575A50C5D43C9EC52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665727   (180860) от 02.10.2023
+
+Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Diablo — финская мелодик-дэт/грув-метал группа, основанная в 1995 году как «Diablo Brothers».2000 - Elegance in Black
+2002 - Renaissance
+2004 - Eternium
+2005 - Mimic47Жанр: Melodic Death/Groove MetalПродолжительность: 05:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100F36BE192373B50EC264E0DA07BE6F3FF8BBAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666041   (180753) от 02.10.2023
+
+Warwolf - The Apocalyptic Waltz (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Apocalyptic Waltz
+02 - Silver Bullets
+03 - Spawn of Hell
+04 - Flying Dutchman(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26082B17B761D64110F33158E827A63FBA1B5931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427597   (180664) от 01.12.2020
 
 Portishead - Dummy (1994) 2008, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Trip Hop>
@@ -599,152 +743,6 @@ A4. Let The Blood Run Red 5:06(   Читать дальше...   )Жанр: Heav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2ED574EB85A1560D48D08734A701FEA3560729B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666384   (179032) от 05.10.2023
-
-Nocturnal Abbey - The great blackened swan (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic, Doom Metal, Female Vocals>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The tears that never dry (feat. Rebekka) (07:31)
-02. Funerals empty chairs (feat. Ren Prior-White) (04:19)
-03. My throne in darkness (feat. Rebekka & JP Cathartic) (05:59)
-04. The great blackened swan (feat. Rebekka & JP Cathartic) (05:32)(   Читать дальше...   )Жанр: Gothic, Doom Metal, Female VocalsПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9CCD8929EA98D67C569DB5091DFD3A0277D8AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666746   (178953) от 05.10.2023
-
-Scar Symmetry - Studio Albums (7 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scar Symmetry — шведская мелодик дэт-метал группа из Авесты, сформирована в 2004 году.
-Своеобразной «визитной карточкой» группы является очень широкое использование клавишных и синтезаторов вкупе с тяжёлыми гитарами и мощной ритм-секцией.2005 - Symmetric in Design
-2006 - Pitch Black Progress
-2008 - Holographic Universe
-2009 - Dark Matter DimensionsЖанр: Melodic Death/Groove MetalПродолжительность: 06:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB566CF7549519A280FE23102EB2B5BF8698DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666729   (178949) от 05.10.2023
-
-Dogstar - Somewhere Between the Power Lines and Palm Trees (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blonde (3:19)
-02. How the Story Ends (3:15)
-03. Everything Turns Around (3:01)
-04. Overhang (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88924F057B3962335161189CF7F1997E653AC8FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666160   (178851) от 05.10.2023
-
-Prince & The New Power Generation - Diamonds and Pearls (1991) Remaster, 2023,  Warner Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary R&B, New Jack Swing, Funk, Minneapolis  ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder (2023 Remaster) [00:05:44]
-02. Daddy Pop (2023 Remaster) [00:05:16]
-03. Diamonds and Pearls (2023 Remaster) [00:04:42]
-04. Cream (2023 Remaster) [00:04:12](   Читать дальше...   )Жанр: Contemporary R&B, New Jack Swing, Funk, Minneapolis SoundПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FB828F3EFD453B7F826A32B400FC17D1412EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666705   (178702) от 05.10.2023
-
-Roger Waters - The Dark Side of the Moon Redux (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak to Me (1:54)
-02. Breathe (3:22)
-03. On the Run (3:47)
-04. Time (7:19)(   Читать дальше...   )Жанр: Art rockПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB374DA11B30FD4DFC551E66D20609C1CC6C6BA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

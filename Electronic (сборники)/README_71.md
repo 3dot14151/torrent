@@ -1,3 +1,32 @@
+###  Публикация: 1019187   (752252) от 22.05.2016
+
+VA - Trance Desire Volume 70 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arman Bahrami & Ailsa Villegas - Beat Of My Heart (Uplifting Mix) 7:53
+02. Ira, Paulina Dubaj - Better In Time (Original Mix) 6:47
+03. Mike Saint-Jules ft. Sandel - Broken Turn (Original Mix) 7:47
+04. Judie Tzuke, Seth Hutton - Don't Look Behind You (Solid Stone Remix) 7:57(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83B90630685517752CDB2969EB043EDA62D1F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281449   (752078) от 08.02.2019
 
 VA - Chilled Tunes For Relaxed (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
@@ -716,35 +745,6 @@ VA - Record Super Chart 573 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:497083C3C7C25B6448D812DD46EB1109866AF89A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523749   (748227) от 13.01.2022
-
-VA - NME: Best New Electro Hype (2022) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ритм дискотеки, свинговое звучание, заводные мелодии, общее настроение праздника и веселья. Одним словом - музыка для счастливых людей на треках представляемого Вашему вниманию сборника под названием "NME: Best New Electro Hype".001. Narciso & Gerundino - Woo You
-002. Digo - Minibook
-003. Max Freegrant - Stranger Things
-004. Q Lv - Ngi Chuzile(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 08:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF96472454849D299F53EFC6428BCC67B9546255
 ```
 
 https://mybot314.ru/tekegram_catalog/

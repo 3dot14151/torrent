@@ -1,3 +1,32 @@
+###  Публикация: 1061539   (449008) от 10.10.2016
+
+VA - BacauHouseMafia Vol.13 (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449008.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.2pac - Changes (Lowderz Remix) (05:15)
+002.4 Strings & Cathy Burton - Safe In The Storm (Original Mi (05:40)
+003.A.R.D.I & Linnea Schossow - Your Everything (Extended Mix) (06:17)
+004.Aaliyah - If Your Girl Only Knew (Scisso (03:09)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Progressive HouseПродолжительность: 18:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2590B390053C8D4B212AD9BAD88B822448831B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061513   (448854) от 10.10.2016
 
 VA - Deep House Collection Vol.92 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -740,41 +769,6 @@ VA - Best Of Dubstep 2012 (2012) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DC51ADB38BCD21C9C47D61FB0F856F831CB3001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553561   (443738) от 28.09.2012
-
-VA - L.O.V.E. Vol.11: Chillout Music Collection (2012) [MP3|320 кб/с]<Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andain - You Once Told Me
-02. Dinka - Innocence (Original Mix)
-03. George Holliday - Never Gonna Grow (Original Mix)
-04. Matt Tilli - A Drug (Original Mix)
-05. Natalie Marchenko - Lily Was Here
-06. Bryan Milton - Astronomy (Original Mix)
-07. Store N Forward - Listen To Life (Masoud Remix)
-08. Electrico - Liberation (Shigeki Str1ng Orchestra Remix)
-09. New Believers feat. Ike Sofunky - Read My Mind (Drexmeister Rework)
-10. Thomas Lemmer - Traveller (Setsuna Remix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 04:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942D637501FFE5284970928F5AE2607C3CB63760
 ```
 
 https://mybot314.ru/tekegram_catalog/

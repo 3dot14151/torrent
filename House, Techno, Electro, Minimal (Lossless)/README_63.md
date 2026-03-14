@@ -1,3 +1,90 @@
+###  Публикация: 1724230   (109267) от 19.05.2024
+
+Darren Tate - Metamorphosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5AM To Lima
+02. Flashing Lights
+03. A Long Way From Home (Straight From DAT Mix)
+04. Adrift(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D757F8ADE7C27421857507A9463A684F5EC600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724213   (109253) от 19.05.2024
+
+Soul Button - Phantom Existence (2020) Remix Edition [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Utopia (Armen Miran Remix) [00:08:30]
+02 - Silhouettes (Clawz SG Remix) [00:07:14]
+03 - Shapeshifter (Matan Caspi Remix) [00:07:09]
+04 - Deception (Whirl Remix) [00:07:51](   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7874996C24F941401ACF525F53D4600AC303CE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724383   (109177) от 21.05.2024
+
+VA - Best of Autumn, vol. 1 (2021) [FLAC|Lossless|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vision2 – No Enter (6:24)
+02. Vision2 – Transporter (6:24)
+03. Volodia Rizak – Shaker (6:02)
+04. Volodia Rizak – Shaker (Sopik remix) (5:47)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EECE7CEA2641591617730B75F87A0D9E9CC16F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724501   (109147) от 21.05.2024
 
 Volodia Rizak - DMS / 220V (2019) [FLAC|Lossless|tracks] <Techno>
@@ -643,91 +730,6 @@ Charlotte de Witte - Power Of Thought EP (2023) [FLAC|Lossless|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4AF6AC38147F5D7D2B9CE6427821A5523EE8901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734568   (107096) от 04.07.2024
-
-Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (2022) [FLAC|Lossless|tracks] <Techno, Tech Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix edit) (3:32)
-02. Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (8:09)Жанр: Techno, Tech TranceПродолжительность: 00:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6376AA6C0D30BD0B743265FA9381CB69FCA97119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735062   (107010) от 06.07.2024
-
-VA - Cardio - 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charli XCX - Talk talk (2:41)
-02. Fred again.. - places to be (3:46)
-03. Ella Henderson - Under The Sun (with Alok) (2:45)
-04. Jubel - Chocolate (2:25)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5507E0EDC96EADC3F96AFB4278A5E008C1B8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735218   (106985) от 07.07.2024
-
-Kiasmos - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grown
-02. Burst
-03. Sailed
-04. Laced(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B4E832C96FEFE04E19987859D079290A88ED7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

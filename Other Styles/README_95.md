@@ -1,3 +1,145 @@
+###  Публикация: 1049027   (544542) от 04.09.2016
+
+Zack Hemsey - (Discography) (2006-2014) [FLAC|Lossless|WEB-DL|tracks]<Instrumental, Hip Hop>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental, Hip Hop •Продолжительность: 10:12:29 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F001C7445840BA01DED9BFB9035CFBD1B8FD59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049323   (543810) от 05.09.2016
+
+As Ganhadeiras de Itapua - As Ganhadeiras de Itapua (2014) [MP3|196-213 Kbps] <Latin Music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canto Da Lavadeira [2:57]
+02. Bando Das Ganhadeiras [4:15]
+03. As Ganhadeiras [3:37]
+04. Conto De Areia [4:00](   Читать дальше...   )Жанр: Latin MusicПродолжительность: 01:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E010B87F961B75A93CA2667DC6AA2C4F437E487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049410   (543764) от 05.09.2016
+
+Hong Kong Virtuosi Folk Ensemble - Four Virtuosi Plays Chinese Traditional Music Vol.2 (1989) [WavPack|Lossless|image + .cue] <Ethno, Chinese Traditional Music>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543764.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Plum Blossom Melody (7:52)
+2. Sound Of The Nature (6:05)
+3. Song Of The Lotus (7:38)
+4. Phoenix Spreading His Tail (3:39)(   Читать дальше...   )Жанр: Ethno, Chinese Traditional MusicПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7850F5F526B73F14B6AF36341C9537C6E32E6C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925019   (543086) от 05.08.2015
+
+Ivonne Alexander - Benevolence (2015) [MP3|320 кб/с]<Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebirthing Earth
+02. Summoning the Power of Woman
+03. Awakening the Goddess Within
+04. AH Prayer Description(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB7FAA0D64E031E54E6FA027DE6507C56E81610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365365   (543031) от 20.07.2011
+
+Suren Asaduryan - Horovel (2005) [MP3|320 kbps]<Instrumental, Duduk>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horovel
+02. Duanmerez
+03. Oror
+04. Rast(   Читать дальше...   )Жанр: Instrumental, DudukПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B142419C160A5DF67C47F3474B56FE08D1E65E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153969   (542654) от 29.07.2017
 
 Brian Tyler - Мумия / The Mummy (2017) Dеluхе Еditiоn [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
@@ -631,156 +773,6 @@ Kaare Norge & Claus Raahauge - Made Of Dreams (1998) [MP3|256 kbps]<Relax, New A
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049600   (539674) от 07.09.2016
-
-Zack Hemsey - 13 Albums + 8 Singles (2006-2014) [MP3|320 кб/с]<Instrumental, Hip Hop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zack Hemsey - американский композитор и музыкальный продюсер, известный создатель музыкальных композиций к трейлерам фильмов. Примечательной была его работа "Mind Heist" - музыка из "Трейлер №3" к фильму "Начало". Hemsey также работал над музыкой к другим трейлерам и его треки не раз брали в фильмы.
-Родился Zack Hemsey в 1983 году. Начал (   Читать дальше...   )Жанр: Instrumental, Hip Hop •Продолжительность: 10:12:29 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0002F2966F4078D89C3E62AEC72FDE10160DD0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153152   (538839) от 31.07.2017
-
-Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 Kbps] <Soundtrack, Instrumental, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный саундтрек к игре Final Fantasy XV, разработанный студией Square Enix.
-Альбом поступил в продажу 21 декабря 2016 года.01. Broken Bonds [03:09]
-02. Dining Car [03:07]
-03. Cartanica [04:13]
-04. Relax and Reflect - Pensive [02:14](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Classical Crossover, ScoreПродолжительность: 05:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923826FDF6E68B30803457206E004C755B7AE59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925668   (538759) от 07.08.2015
-
-The Royal Guitar Ensemble & Claude Ciari - Golden Guitar (2004) [FLAC|Lossless]<Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haunted Guitar
-02. The Third Man Theme
-03. La Playa
-04. The Executioner Theme(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C06B916F3378C4F8E391D6DE3B89F7A34194B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154344   (538695) от 31.07.2017
-
-VA - Romantic Collection - Instrumental Vol. 2 (2000) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris-France-Transit - Souvenir From Rio [04:20]
-02. Santana - I Love You Much Too Much [04:41]
-03. Armik - Dancing Shadows [04:44]
-04. Richard Clayderman - La Cumparsita [03:13](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC4BA796A26E42CAFB9F39C965B130B99F5CF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532378   (538560) от 07.08.2012
-
-Nazca - Indians, Songs, Nature, Dreams (2002) [MP3|192 кб/с]<Native American,Panflute,Instrumental,>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buffalo Moon
-02. Brave Hearts
-03. Dream Catchers
-04. Geronimos Laughter
-05. Ly - O - Lay Ale Loya The Counterclockwide Circle Dance
-06. Come Faithful Ones
-07. Wishes Of Happiness & Prosperity
-08. Dawa The Cradlesong
-09. Montezuma
-10. May It Be(   Читать дальше...   )Жанр: Native American,New Age,Panflute,Instrumental,Продолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD5667E18CE2FF25A72BA47B829AFAB1ACCF8D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

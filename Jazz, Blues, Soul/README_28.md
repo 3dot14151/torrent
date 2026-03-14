@@ -1,3 +1,61 @@
+###  Публикация: 1622043   (1030506) от 27.03.2023
+
+Savoy Brown - Blues All Around (2023) [FLAC|Lossless|image + .cue] <Blues Rock, R & B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Through
+02. Black Heart
+03. Going Down South
+04. Gypsy Healer(   Читать дальше...   )Жанр: Blues Rock, R & BПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7726390D1DC3DE48DC5D614C03AD7556DA209B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622315   (1030262) от 28.03.2023
+
+Ledfoot & Ronni Le Tekro - Limited Edition Lava Lamp (2023) [FLAC|Lossless|WEB-DL|tracks] <gothic blues, psychedelic rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Rosie [00:03:55]
+02. Crying [00:03:18]
+03. The Ego in the Coffin [00:03:50]
+04. You Should Know How Hard It Is [00:05:21](   Читать дальше...   )Жанр: gothic blues, psychedelic rockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFD595746A0BC45201ED1DD90D938B1DE87CD71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449112   (1030251) от 20.02.2021
 
 Rita Reys And The Pim Jacobs Trio - At the Golden Circle Club, Stockholm (1963) 2001, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Vince Guaraldi - Alma-Ville (1969) 2005, Wounded Bird Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:627FE901BA6227FEC41B2A30D6F1482EBD33F94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623077   (1029606) от 31.03.2023
-
-Red Norvo - Improvisations (1944) 1987, Mercury [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subtle Sextology [3:49]
-02. Blues A La Red (alternate take) [4:16]
-03. Blues A La Red [4:04]
-04. The Man I Love [4:17](   Читать дальше...   )Жанр: SwingПродолжительность: 00:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495B9654E38F409380259E4C740D960EC70032C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449819   (1029591) от 23.02.2021
-
-Lucky Millinder - 1943 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Me [2:47]
-02. That's All [2:04]
-03. Trouble in Mind [2:41]
-04. Rock Daniel [2:40](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1665B458746E33FA22DE4449C5A47056719CA50
 ```
 
 https://mybot314.ru/tekegram_catalog/

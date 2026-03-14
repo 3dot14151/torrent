@@ -1,3 +1,32 @@
+###  Публикация: 1149782   (598429) от 12.07.2017
+
+VA - Empire Records - Deep Disco 2 (2017) [MP3|263-320 Kbps] <Dance, Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aine Aura – Uncover (Mountain of Youth Remix)
+02. Amade Landan – Inside (Original Mix)
+03. Lorin Rymbu & Denis Rynda – Set Me Free (Original Mix)
+04. Bleu Lanez – Jungle Poison(   Читать дальше...   )Жанр: Dance, Deep HouseПродолжительность: 01:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4744D264AF6C030B4643DC200E0427A12625577A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548306   (598198) от 03.05.2022
 
 VA - La Perla De Musica: New Latin (2022) [MP3|320 Kbps] <Latin, Dance, Reggaeton>
@@ -753,35 +782,6 @@ VA - The Official UK Top 40 Singles Chart 03.05.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B44421C6320ED95FB973096BFD3653A4DE389BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150500   (593858) от 15.07.2017
-
-VA - Зайцев.Нет - Лучшие Новинки Июля (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  SMASH & Полина Гагарина, Егор Крид - Команда  3:39
-02.  Светлана Лобода Feat. Макс Барских - Твои Глаза Туманы  4:53
-03.  Альбина - Не со мной  3:09
-04.  Наргиз - Верните память  3:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFE6B681F02C5F3B361F2059532C582DFDDDBE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

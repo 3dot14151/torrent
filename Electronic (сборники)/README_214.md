@@ -1,3 +1,38 @@
+###  Публикация: 462350   (95462) от 04.03.2012
+
+VA - Trance Eve Volume 23 (03.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95462.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
+002. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
+003. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix)
+004. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix)
+005. Snatt & Vix feat. Alexandra Badoi - Cold Shower (Original Club Mix)
+006. Billy Gillies - Digital Sundown (Paul Todd Remix)
+007. Cerf, Mitiska & Jaren - Down To You (Pulser Vocal Mix)
+008. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix)
+009. Headstrong feat. Shelley Harland - Helpless 2011 (Aurosonic Euphoric Remix)
+010. Marcos - Hypnotic (Activa Remix)03.03.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5282A4076641D7CCF417BB6363F09D8269536814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 460748   (94999) от 01.03.2012
 
 VA - Trance Maniacs Party: Melody Of Heartbeat 75 (01.03.2012) [MP3|320 кб/с]<Trance>
@@ -858,35 +893,6 @@ VA - KAZAL Records presents Volume1 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D827FBDE66E28F54DD357DE3D640B2C7A33CE1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775331   (71451) от 26.01.2025
-
-VA - Musical kaleidoscope part 23 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Polkovnik - Мелодия Души
-02. Neuron - The Fall
-03. Сергей Грищук - Волшебство Мгновения
-04. Dj Polkovnik - Размышление(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA906D3B2C5ED822B369248A31106A17BA4E1FCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

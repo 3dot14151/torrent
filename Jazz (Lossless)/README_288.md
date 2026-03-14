@@ -1,3 +1,90 @@
+###  Публикация: 1347316   (154014) от 22.12.2019
+
+V.A. - Radiohead In Jazz (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamie Cullum, Geoff Gascoyne, Sebastian de Krom - High and Dry
+02. Yaron Herman Trio - No Surprises
+03. Richard Cheese - Creep
+04. Flunk - Karma Police(   Читать дальше...   )Жанр: Fusion, Big BandПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7B643BEE9AE6007387DBF8013A9FD84F88120B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347311   (153925) от 22.12.2019
+
+Tape Five - The Roaring 2020s (2019) [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Party like its 1929
+02. Ballroom Troopers
+03. The Cats Pyjamas
+04. Boheme Supreme(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B560C9614A0533CC5BE4E7B60D24851F3417170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434100   (153602) от 23.12.2020
+
+Trijntje Oosterhuis & Jazz Orchestra Of The Concertgebouw - Wonderful Christmastime (2020) Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's the Most Wonderful Time of the Year [3:33]
+02. Wonderful Christmastime (feat. Candy Dulfer) [4:46]
+03. Someday at Christmas (duet with Jeangu Macrooy) [4:11]
+04. Santa Claus Is Coming to Town [4:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE948C56962DB896883A13F6FE78D724B12C6651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677065   (153591) от 16.11.2023
 
 Dizzy Reece - Blues In Trinity (1958) 2005, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -662,93 +749,6 @@ Stephane Grappelli - Live 1994 (1998) Justin Time Records [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBA57999E2A0566E3C4A4F917B35FB869DE52722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194976   (152195) от 27.12.2017
-
-Henry Mancini - Combo! (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moanin' [02:54]
-02. Sidewalks of Cuba [03:23]
-03. Dream of You [02:57]
-04. Swing Lightly [04:20](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E119F8641653A21090041FBB53C074A218CD376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434324   (152086) от 24.12.2020
-
-Jerry Bergonzi - Tenorist (2007) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gecko Plex [6:08]
-02. Pannonica [6:52]
-03. Simultaneous Looks [6:55]
-04. Table Steaks [8:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FC5CBEDF1A76A750B9FE140A4331998CA7D774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434279   (151963) от 24.12.2020
-
-Andreas Georgiou - Asate (2003) [FLAC|Lossless|tracks + .cue] <Fusion, Vocal Jazz, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nea Selini (Georgiou) - 3:54
-02. Dhoron Exagnismou (Georgiou) - 3:23
-03. Let the Spirit Flower (Georgiou) - 7:01
-04. Rainforest (Georgiou) - 10:55(   Читать дальше...   )Жанр: Fusion, Vocal Jazz, Ethnic JazzПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73806D3B70CFDC57623AC22C540504E041A19DF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1188840   (272935) от 03.12.2017
+
+VA - Дискотека 2017 Eurodance Club - Назад в 90-е (1990-2000) Reload! (от NNNB) (2017) [MP3|320 Kbps] <Eurodance, Pop, Dance и другие>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace Of Base - All That She Wants
+02. Mr. President - Coco Jamboo
+03. Yaki-Da - I Saw You Dancing
+04. Jessica Jay - Casablanca(   Читать дальше...   )Жанр: Eurodance, Pop, Dance и другиеПродолжительность: 71:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7803C9B216A208844C4854CABD4210591F1845E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083972   (272485) от 17.12.2016
 
 VA - Empire Records - Club Hit (2016) [MP3|268-320 Kbps] <Club, Dance>
@@ -715,35 +744,6 @@ VA - The Official UK Top 40 Singles Chart 15.11.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2862CC3D3395D03E11036AEF692F264D1F0EFB4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338955   (268195) от 17.11.2019
-
-VA - не Громкие новинки недели 43 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268195.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.T-Fest - Без Тебя (4:23)
-2.Drezden - Эдельвейс (4:07)
-3.Andrey Iva - Скажи Зачем (4:12)
-4.Arst One - Не Думаю О Ней (4:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEC7658A062136D23113E866356FF2806443E5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

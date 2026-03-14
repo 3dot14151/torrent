@@ -1,3 +1,177 @@
+###  Публикация: 1631134   (241149) от 04.05.2023
+
+McCoy Tyner - Supertrios (1977) 1989, Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave [7:29]
+02. Blues on the Corner [6:32]
+03. I Mean You [5:25]
+04. The Greeting [7:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8CA8B9B2D64748BD5D9A80FD519802090F4728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625968   (241139) от 12.04.2023
+
+VA - Best of Romantic Chilly Smooth Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean -- Dreamscape (5:16)
+02. Chillaxing Jazz Kollektion -- Serendipity (4:38)
+03. Chillaxonic -- Aurora (5:13)
+04. eJazz Artistry -- We Belong Together (4:15)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFC1A9E80D1EE8B3023496F54ABA6EF10FEC18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119682   (241137) от 29.03.2017
+
+Dave Brubeck - The Very Best (2000) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241137.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Unsquare Dance
+2. Take Five
+3. Bossa Nova U.S.A
+4. Mr. Broadway(   Читать дальше...   )Жанр: JazzПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8925C9F9120E49CBBE7103DAE0F0C65C6FFB9B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619757   (241110) от 17.03.2023
+
+Terry Donaghue - Shades of Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RosaLee (3:39)
+02. The Well (3:43)
+03. Unlucky in Love (3:46)
+04. Temptation (5:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88922F1424BA24D4B1D6CE25135A19D9ACA88E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121383   (241090) от 02.04.2017
+
+VA - Soft Jazzy Chill: Lounge Music Backdrop (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Morning Jazz Academy - Soft Jazzy Chill
+02. Coffee Lounge Collection - When Sunset Gets Blue
+03. Jazz Music Collection - Time After Time
+04. Wake Up Music Paradise - Misty(   Читать дальше...   )Жанр: JazzПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118273A046EA7B816BAA497B8E32D42C96EFEA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462519   (241076) от 14.04.2021
+
+Fugu Quintet - Interweavement (2021) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Experimental, Progressive Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firefly (5:07)
+02. No One Had Come (7:40)
+03. Worry (6:20)
+04. Duck of war (4:59)(   Читать дальше...   )Жанр: Doom Jazz, Dark Jazz, Experimental, Progressive RockПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC1CC3B1BAD8429AF7865ABF7F8A8C6B5CEA01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619917   (240983) от 18.03.2023
 
 Nat King Cole - BD Jazz (1940 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Piano Jazz>
@@ -571,180 +745,6 @@ Peter Bernstein With The Tilden Webb Trio - Live at Cory Weeds' Cellar Jazz Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE42BAF651C35FED5C631D2A6C21A5993F180285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549481   (240650) от 07.05.2022
-
-Thad Jones - The Complete Blue Note, UA, Roulette Recordings Of Thad Jones (1956 - 1960) 3CD, 1997, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240650.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tariff [5:32]
-02. Blue Room [6:48]
-03. Little Girl Blue [2:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 03:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A14387BA40C3F427DFD51E2E7F0E3EA73540FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632429   (240627) от 10.05.2023
-
-Wynton Kelly - Piano Interpretations (1951) 1991, Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Moon [3:11]
-02. Fine And Dandy [2:51]
-03. I Found A New Baby [2:55]
-04. Cherokee [3:10](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D66A31A032D1F47280DC2B99DD50D459AD8242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626198   (240588) от 13.04.2023
-
-Joe Bonamassa - Tales Of Time (Live) (2023) [FLAC 2.0|44/24|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notches (Live) (9:49)
-02. The Heart That Never Waits (Live) (8:32)
-03. Curtain Call (Live) (9:01)
-04. Mind’s Eye (Live) (6:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155AC39A8404AD9BE9BC7BE90D84CD96518FE09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620390   (240561) от 20.03.2023
-
-Dick Oatts - All Of Three album (1998) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240561.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Barnacle Bill - 6:11
-2. Gumbo G - 7:21
-3. Single Line - 4:34
-4. In Love & Memory - 7:02(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574622AD0841B7F7BC57B24B714F69656DF94A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620508   (240548) от 21.03.2023
-
-Franck Amsallem - Summer Times (2003) Nocturne [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got Rhythm [5:46]
-02. Summertime [5:47]
-03. Young and Foolish [7:50]
-04. Tom's Tune [6:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A9D6074CEEDAAF6531621FB587FF3670F5AAD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620510   (240530) от 21.03.2023
-
-Sonny Rollins - Soneymoon (1963 - 1965) 2007, Get Back [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without a Song [2:38]
-02. On Green Dolphin Street [13:31]
-03. Solitude [8:58]
-04. Soneymoon [23:09](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A5399C1067A0708C2830C66D27226091801E37
 ```
 
 https://mybot314.ru/tekegram_catalog/

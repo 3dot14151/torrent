@@ -1,3 +1,61 @@
+###  Публикация: 1093732   (932542) от 16.01.2017
+
+Glenn Kaiser Band - Carolina Moon (2001) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Torch  (03:52) 
+02|  Out Cold  (05:11) 
+03|  Mercy  (05:41) 
+04|  Carolina Moon  (04:41) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F78BA155A7E07C34D58EA824D537E0BB51740F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986291   (932536) от 13.02.2016
+
+Layla Zoe - Breaking Free (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backstage Queen (06:13)
+02. Why Do We Hurt The Ones We Love (05:22)
+03. Wild One (05:01)
+04. Highway Of Tears (11:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4108F1969C5B663F17A2DBB02971BA784AD5EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986245   (932532) от 13.02.2016
 
 Roberto Ciotti - Road 'N' Rail (1992) [MP3|320 кб/с] <Blues, Rock>
@@ -684,64 +742,6 @@ CD1 - Sketches Of Spain:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:604FE3607575D73BED3A32C7DA8B0ED536E93149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094078   (930924) от 17.01.2017
-
-Eliana Cargnelutti - Electric Woman (2015) [FLAC|Lossless|image + .cue] <Modern Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Why Do I Sing The Blues  (03:47) 
-02|  Just For Me  (04:14) 
-03|  Street Corner Talking  (03:48) 
-04|  Soulshine  (05:09) (   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22D45D9AF5BBDBC2227ADFE29A0DC43AE390C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986489   (930843) от 14.02.2016
-
-Hiromi Uehara - Spark (2016) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Progressive Jazz, Piano>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spark
-02. In a Trance
-03. Take Me Away
-04. Wonderland(   Читать дальше...   )Жанр: Fusion, Progressive Jazz, PianoПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFBEEFC83CA983A79E25C16E80C8B9176E747AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

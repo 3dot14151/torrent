@@ -1,3 +1,32 @@
+###  Публикация: 1500357   (234756) от 13.10.2021
+
+VA - Los Angeles Beach Lounge, Vol. 2 (2018) [AAC|~335 Kbps] <Chill Out, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Hammock - Deep Sunday Bliss (4:42)
+02. Marc Hartman - Like The Sunset (5:17)
+03. Maurid - Amazonia Sunrise (5:37)
+04. Matthew Daniel, Linda Muriel - Soul Personified (4:34)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E4D7A1BBAB450ADFEFCA1564B11657A09603E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541202   (234755) от 03.04.2022
 
 Caro Emerald - The Shocking Miss Emerald (Acoustic Sessions) (2013) [AAC|~301 Kbps] <Jazz, Pop>
@@ -716,35 +745,6 @@ VA - Lounge Remixes, Vol. 2 (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Deep Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3527D9AB49898497E7C04C7465AA1B91508A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495318   (234146) от 13.10.2021
-
-Ночные Снайперы - 1993, vol.1 (2021) [AAC|~316 Kbps] <Rock, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. иду одна (2:22)
-02. гости мои (2:32)
-03. лето (2:36)
-04. по твоей земле (3:25)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73D16AF6F8B534B2C5381239E7E1E5E2283CE34
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1365790   (927269) от 09.03.2020
+
+Scarlxrd - SCARHXURS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PERFECT. [02:20]
+02. YXU’VE BEEN CANCELLED. [02:24]
+03. GRAVESTXNE. [02:41]
+04. MAKING A KILLING. [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AD8022D3F6DDD1086D848F7521BB948FC67ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987227   (925900) от 17.02.2016
+
+VA - Hip To The Hop: 30th Anniversary Of Hip Hop (2009) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 50 Cent - In Da Club (3:15)
+02. Kanye West - Love Lockdown (4:31)
+03. Nelly - Hot In Herre (3:49)
+04. Black Eyed Peas - Pump It (3:34)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469E174661E4A3DF04CC06666D361859696BFB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366058   (925815) от 10.03.2020
+
+Twista - Lifetime (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still on Top [02:20]
+02. Danger [03:02]
+03. Wish List [02:42]
+04. Lifetime (feat. Mad Lion) [03:16](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6C2C442708AFCD588AD11649801AADDB0C28A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366056   (925744) от 10.03.2020
 
 $uicideBoy$ - STOP STARING AT THE SHADOWS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29907E441613CA0D0235917DC45FB9B76337FF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368030   (914245) от 17.03.2020
-
-Czarface - The Odd Czar Against Us (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizarro (2:49)
-02. Call Me (2:09)
-03. The Gift That Keeps On... (2:36)
-04. Me's Company (2:15)(   Читать дальше...   )Производство: Silver Age – SIL 011-CDЖанр: Hip-HopПродолжительность: 00:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7235EB08FB8ABC3CBA3EF9AEA7CDCD58C418FFD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367586   (913891) от 17.03.2020
-
-Die Antwoord - House Of Zef (2020) [MP3|320 Kbps] <Alternative Hip-Hop, Electronic>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open the Door (feat. Panther Modern)
-02. Zonke Bonke (feat. Bukhulubakhe & Gqwa!)
-03. Da Godz Mus B Krazy
-04. Naai Is 'N Lekker Ding (feat. Moonchild Sanelly, Gqwa! & JouMaSePoes)(   Читать дальше...   )Жанр: Alternative Hip-Hop, ElectronicПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEADEACAA59C4BAB7B72D36ABD09F50E73E2E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368624   (909245) от 20.03.2020
-
-Sagath - Вынос тела (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кладбище [03:47]
-02. Неведомая сила [02:33]
-03. Воин [02:39]
-04. Ван Хельсинг [02:31](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7011F2544193EFCD0071A92ED560EA0FA13E4782
 ```
 
 https://mybot314.ru/tekegram_catalog/

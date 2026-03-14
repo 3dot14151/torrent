@@ -1,3 +1,32 @@
+###  Публикация: 1670949   (171700) от 22.10.2023
+
+VA - The Official UK Top 100 Singles Chart 20.10.2023 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171700.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kenya Grace - Strangers (2:53)
+002. cassö - Prada (2:12)
+003. Tate McRae - greedy (2:11)
+004. Tyla - Water (3:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC13A19CC789F4172CFC84590C6C10A0D1484A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671324   (171343) от 24.10.2023
 
 VA - Music News vol.309 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Hot Dancehall Pool Party (2019) [MP3|320 Kbps] <Dancehall, Riddim, Reggaeto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FB768ABB1AD5C0CCE5A606A93DCE074152BABD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597372   (166619) от 14.12.2022
-
-VA - Music News vol.231 (2022) [MP3|320 Kbps] <Pop, Dance, Soul>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166619.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. SZA - Love Language (03:04)
- 002. 4K - Эй Молодой (03:08)
- 003. 3333 feat. Леонид Агутин - Последний Трек (03:10)
- 004. Adam Lambert - Ordinary World (03:20)(   Читать дальше...   )Жанр: Pop, Dance, SoulПродолжительность: 05:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5395C060C75A4B175088001C010798A5DC183B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

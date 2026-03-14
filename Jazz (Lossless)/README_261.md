@@ -1,3 +1,90 @@
+###  Публикация: 1341910   (227685) от 30.11.2019
+
+Mildred Bailey - Band Vocalist, Vol. 2 1931 - 1934 (1994) The Old Masters [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Standards, Traditional Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley [8:30]
+02. Stop The Sun, Stop The Moon [2:40]
+03. Strangers [2:44]
+04. I'll Nevet Be The Same [3:23](   Читать дальше...   )Жанр: Vocal Jazz, Standards, Traditional PopПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E86A4243BC7E526705327D2BB1E40C1AB5DBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341907   (227675) от 30.11.2019
+
+Mildred Bailey - A Forgotten Lady 1935 - 1942 (1996) Jazz Archives [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Day Is Done [3:29]
+02. Willow Tree [3:20]
+03. Honeysuckle Rose [2:57]
+04. Squeeze Me [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B76C36F0F71BBA4D44D607CB4D9A595E19E5AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341904   (227658) от 30.11.2019
+
+Bucky Pizzarelli - April Kisses (1999) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helena [2:42]
+02. April Kisses [3:18]
+03. Afterthoughts, Part 1 [1:55]
+04. Afterthoughts, Part 2 [1:03](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50244D14A1B9DD875E3E48FB108396E7FF9761B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424680   (227604) от 17.11.2020
 
 VA - Verve & Blue Note Today (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Mainstream Jazz, Vocal Jazz>
@@ -664,93 +751,6 @@ Aging - Suitable For Night (2017) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FCFCF1D0C9D91244F5AB198BFEE0466C671EC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649789   (225877) от 02.08.2023
-
-Frank Wess, Kenny Burrell, Joe Newman - Jazz For Playboys (1956, 1957) 2000, Savoy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Playboy [5:27]
-02. Miss Blues [9:41]
-03. Baubles, Bangles and Beads [4:17]
-04. Low Life [5:02](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7AB2F42713F35027D62A369DB53D7BF0B0080E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513239   (225832) от 28.11.2021
-
-Alexandra Shakina - All The Way (2020) Venus Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All The Way [6:06]
-02. Let Me Love You [5:24]
-03. Get Out Of Town [5:06]
-04. Dedicated To You [4:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3898403C0C1B5FCE87942BD7086C96E5401FB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964149   (225783) от 14.12.2015
-
-VA - The Rat Pack: 50 Original Recordings (2007) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dean Martin - That's Amore (03:09)
-02. Sammy Davis Jr - Too Close For Comfort (02:21)
-03. Frank Sinatra - I've Got You Under My Skin (03:47)
-04. Frank Sinatra - Someone To Watch Over Me (03:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80EC5B26B1BC4CF46F5AA63D7957482845E6083E
 ```
 
 https://mybot314.ru/tekegram_catalog/

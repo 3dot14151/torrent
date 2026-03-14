@@ -1,3 +1,30 @@
+###  Публикация: 1293270   (638815) от 02.04.2019
+
+Проекты - VideoHive - Opener - 13684861 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opener - оригинальный проект для создания вступительного видео.
+Автор проекта: StenLogoФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A003D58109B6A88C5F467F7D976056030435AC99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 800779   (638276) от 30.06.2014
 
 VideoHive - Meadow - 6702113 [AEP]
@@ -647,32 +674,6 @@ Whiteboard Animation Pack For Promotion Videos - интерактивная до
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0E4E473AD19AFC6357A703748015B27D2424F81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033770   (635700) от 12.07.2016
-
-Проекты - VideoHive - Awards Ceremony Package - 11779403 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Awards Ceremony Package - создайте свою церемонию награждения с этим блистательным пакетом.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3977EFBCCFF299426A1858FA1DDC3B9E155C558
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 1255146   (368298) от 16.10.2018
+
+VA - Mannerpension Die Musik Zum Film (1996) Soundtrack [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heike Makatsch - Stand By Your Man (02:53)
+02. Detlef Petersen - Cat Calls (02:35)
+03. Roy Orbison - In Dreams (02:51)
+04. Detlef Petersen - Curango (02:14)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C8FE08D145448FD41E24B0E21CC18B4B23F3F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255153   (368216) от 16.10.2018
+
+Rawlins Cross - Reel 'n' Roll (1993) [FLAC|Lossless|tracks + .cue] <Rock, Folk, World & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reel 'n' Roll (5:01)
+ 02. Don't You Be the One (3:51)
+ 03. It'll Have to Wait (3:27)
+ 04. Long Night (5:15)(   Читать дальше...   )Жанр: Rock, Folk, World & CountryПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F2B0DB75B3082EA3180C67657569CA733D9894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949793   (367890) от 27.10.2015
+
+VA - The Best Of Me - Original Motion Picture Soundtrack (2015) [FLAC|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Did With You (Lady Antebellum) [03:16]
+02. Dream Girl (Hunter Hayes) [03:39]
+03. Hold On (SHEL and Gareth Dunlop) [03:26]
+04. In Love Again (Colbie Caillat) [03:31](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BB6C25308F1D01C3417C646EECB44330441E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176678   (367474) от 23.10.2017
+
+Mariah Carey - The Star (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Soundtrack, Christmas>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Star (4:01)Жанр: Pop, Soul, Soundtrack, ChristmasПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E2DFB85231726E15DD733909C371C376452716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949731   (367406) от 27.10.2015
+
+VA - Ultimate Movies: 4CDs Of Great Hits From The Movies (2015) Box Set, 4CD [FLAC|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bill Medley & Jennifer Warnes - (I've had) The Time Of My Life [4:51]
+02. Celine Dion - My Heart Will Go On [4:41]
+03. Dolly Parton - 9 to 5 [2:46]
+04. The Four Tops - Loco In Acapulco [4:33](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 04:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC41FEBEC554D14B0C037D6582E2758EE0FC710C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950216   (367283) от 27.10.2015
 
 VA - Romantic Collection - Instrumental vol.3 (2000) [APE|image+.cue]<Instrumental>
@@ -612,159 +754,6 @@ Eloy Fritsch - Cyberspace (2000) [FLAC|image+.cue]<Electronic, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:908EEDA38DB649ECCC7813395CA88B40CCE7DEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951590   (363470) от 29.10.2015
-
-Sad Music Zone - Emotional Sad Music (2015) [MP3|320 кб/с]<Instrumental,Easy Listening,New Age,Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sad Music
-02. Music to Cry
-03. Melancholy
-04. Broken Heart(   Читать дальше...   )Жанр: Instrumental, Easy Listening, New Age, PianoПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BCE8D683030A59F484908676CE048B47DE3955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 324191   (363422) от 17.11.2012
-
-Steinar Lund - 3 albums (2001-2004) [MP3|320 kbps]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363422.jpg" />
-</div>
-
-
-###  Подробнее
-
-(02:03) 01. Namaste
-(07:15) 02. Tantra Trance
-(21:06) 03. Shakti Trance
-(21:05) 04. Shiva Trance
-(10:04) 05. Tranquil Trance
-(02:04) 06. Namaste (Reprise)Жанр: New age, MeditativeПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A924FA410FCFD9C79DDE25245792CB8C564117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951570   (363304) от 29.10.2015
-
-Celtic Woman - Destiny (2015) [MP3|320 кб/с]<Celtic, New Age, World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Land
-02. Siuil a Run
-03. Ride On
-04. The Whole Of The Moon(   Читать дальше...   )Жанр: Celtic, New Age, WorldПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:061B1B8E506F0F8B4F59C63F8F982B74141FBA2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951522   (363296) от 29.10.2015
-
-Ottmar Liebert - Waiting n Swan (2015) [OGG| 459-495 кб/с]<Instrumental, Acoustic Guitar, Reggae, Tangos Flamenco, Covers>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is This Love (Li Mo Mix)
-02. Heart Still / Beating (Reggae Version)
-03. Swan
-04. Could You Be Loved(   Читать дальше...   )Жанр: Instrumental, Acoustic Guitar, Reggae, Tangos Flamenco, CoversПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3260C5DDE5C95506F9D01FDC792E7C2BE9330C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575642   (363215) от 17.11.2012
-
-Ennio Morricone - So Sweet,So Sensual Erotica Morricone (2004) [MP3|320 кб/с]<Instrumental, Music for sex, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mariangela E La Seduzione
-02.Sauna
-03.Gocce Di Pioggia
-04.Terrazza
-05.Quella Donna
-06.L'assoulto Naturale
-07.Come Un Madrigale
-08.Sospesi Tra Le Nuvole
-09.Piume Di Cristallo
-10.Come Un Miracolo(   Читать дальше...   )Жанр: Instrumental, Music for sex, SoundtrackПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09F10E507120504C41B31066599BE56D3065BAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

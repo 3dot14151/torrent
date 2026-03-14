@@ -1,3 +1,87 @@
+###  Публикация: 1427973   (181449) от 30.11.2020
+
+Nick Cave & The Bad Seeds - Idiot Prayer (2020) Nick Cave Alone at Alexandra Palace [FLAC|Lossless|WEB-DL|tracks] <Alternative, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spinning Song (Live at Alexandra Palace, 2020) (1:48)
+02. Idiot Prayer (Live at Alexandra Palace, 2020) (3:09)
+03. Sad Waters (Live at Alexandra Palace, 2020) (3:44)
+04. Brompton Oratory (Live at Alexandra Palace, 2020) (3:22)(   Читать дальше...   )Жанр: Alternative, Singer-SongwriterПродолжительность: 01:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684E1D206005C695BD78FB0A2DAAD348C74481E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593186   (180931) от 26.11.2022
+
+Muse - Ghosts (How Can I Move On) [feat. Elisa] (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghosts (How Can I Move On)Жанр: AlternativeПродолжительность: 00:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D9F32734D79185EAB83AEBCAA96D1D95EE2876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665829   (180893) от 02.10.2023
+
+Soul Exchange - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chrysalis / 蛹 [00:08:04]
+02. The Great Divider [00:04:22]
+03. Totem / トーテム [00:04:46]
+04. Forged Through Fire / 火を通して鍛えられる [00:04:41](   Читать дальше...   )Жанр: Alternative, Progressive RockПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8088BF2D4347C76641C4751BA697013140AA6060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593573   (180539) от 27.11.2022
 
 The Crossed - The Producer Of Suffering (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore, Progressive Metalcore>
@@ -658,93 +742,6 @@ Velvet Two Stripes - No Spell for Moving Water (2023) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BCF68872BA19ADD4B49DDFC19CBC3504E8CFC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595743   (174549) от 07.12.2022
-
-Puscifer - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Industrial, Experimental rock, Electronic rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiny Monsters (Violator Mix) [00:04:47]
-02. Green Valley (Violator Mix) [00:03:55]
-03. Telling Ghosts (Violator Mix) [00:04:19]
-04. Toma (Violator Mix) [00:03:38](   Читать дальше...   )Жанр: Post Industrial, Experimental rock, Electronic rockПродолжительность: 01:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40C3B2B354D0D34754BA500D2381D3D270679BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668521   (173975) от 12.10.2023
-
-††† (Crosses) - Goodnight, God Bless, I Love U, Delete. (2023) [FLAC|Lossless|WEB-DL|tracks] <Dreampop, Darkwave, Industrial Rock, Synthpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pleasure [00:04:16]
-02 - Invisible Hand [00:03:54]
-03 - Found [00:03:25]
-04 - Light as a Feather [00:03:09](   Читать дальше...   )Жанр: Dreampop, Darkwave, Industrial Rock, SynthpopПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FAB6E76E374F715B0B41EAB4DD11AE3DDC3D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668632   (173466) от 13.10.2023
-
-Blue October - Spinning The Truth Around (Part II) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sideways [00:04:41]
-02. All I See Is You [00:04:33]
-03. Sobriety [00:05:32]
-04. Magic Isn't Real [00:03:37](   Читать дальше...   )Жанр: Alternative Rock, Pop-RockПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E9697C1D58D2C0B161989888121A4D2CBF77B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

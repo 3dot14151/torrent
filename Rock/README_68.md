@@ -1,3 +1,61 @@
+###  Публикация: 1332101   (318659) от 18.10.2019
+
+Keith Forsey - Dynamite (1981) LP [MP3|320 Kbps] <Electronic, Pop Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me To The Pilot (3:46)
+02. Give Me The Right (3:45)
+03. Don't Be Shy (4:02)
+04. Can't You See It (3:23)(   Читать дальше...   )Жанр: Electronic, Pop Rock, New WaveПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2A2ABAB944F829ED74255AB7A6C477151A899A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582820   (318636) от 11.10.2022
+
+Roxette - Pearls Of Passion (The First Album) (1986) Reissue, Remastered, 1997, EMI [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Deep
+02. Secrets That She Keeps
+03. Goodbye To You
+04. I Call Your Name(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380819C0776E1E088BD71B25AC1F5BF545A3FE67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331633   (318252) от 18.10.2019
 
 Ringo Starr - Whats My Name (2019) [MP3|320 Kbps] <Rock>
@@ -684,64 +742,6 @@ Suzi Quatro - Original Hits (1995) [MP3|320 Kbps] <Glam Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BB8A9493286CF0900345E4DB10A0130589AA31F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332937   (309367) от 22.10.2019
-
-Jeff Lynne's ELO - From Out Of Nowhere (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309367.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. From Out Of Nowhere
-2. Help Yourself
-3. All My Love
-4. Down Came The Rain(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4C12BF20CF263CFBB3E619D8B9D6B8F82554C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260683   (309138) от 08.11.2018
-
-Imagine Dragons - Origins (2018) Deluxe Edition [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural
-02. Boomerang
-03. Machine
-04. Cool Out(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE60C827886E3BFFAC5128943DAA3E18A10A541
 ```
 
 https://mybot314.ru/tekegram_catalog/

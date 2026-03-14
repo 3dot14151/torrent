@@ -1,3 +1,90 @@
+###  Публикация: 1469349   (1016436) от 12.05.2021
+
+Diamante - American Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Dream (3:05)
+02. Ghost Myself (3:12)
+03. Serves You Right (3:34)
+04. Obvious (3:42)(   Читать дальше...   )Жанр: Alternative, Female VocalПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F589ACDEB3D4CDCDF0D350AAA3343174D3780CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471800   (1014519) от 24.05.2021
+
+August Burns Red - Leveler: 10th Anniversary Edition (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - X [00:02:20]
+02 - Empire [00:03:51]
+03 - Internal Cannon (feat. Matthew K Heafy) [00:03:47]
+04 - Divisions [00:03:23](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B06A0966DF56FCE1384B79846B68BAE7B8E35B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471897   (1014506) от 24.05.2021
+
+Dawn Of Dusk - Flight Trajectory (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Minority (00:05:08)
+02 - Witch (00:03:23)
+03 - One Sided (00:04:23)
+04 - Northern Lights (00:05:41)(   Читать дальше...   )Жанр: Alternative Rock, GrungeПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45361BCD80AA96FE46F4478D60EAA9139F75AACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474940   (1012736) от 04.06.2021
 
 Rise Against - Nowhere Generation (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
@@ -669,96 +756,6 @@ Hollywood Undead - Notes From The Underground (Best Buy Deluxe Edition) (2013) [
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605422   (995438) от 20.01.2013
-
-Patti Smith - 14 альбомов (1975-2012) Дискография [WAVPack/FLAC|Lossless]<Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gloria 5:52
-02. Free Money 3:50
-03. Ain't It Strange 6:35
-04. Pissing In A River 4:50
-05. Because The Night 3:22
-06. Rock N Roll Nigger 4:52
-07. Dancing Barefoot 4:16
-08. Frederick 3:02
-09. So You Want To Be A Rock N Roll Star 4:18
-10. People Have The Power 5:06(   Читать дальше...   )Жанр: Post-PunkПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352913   (993317) от 16.01.2020
-
-Nada Surf - Never Not Together (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Much Love (04:02)
-02. Come Get Me (04:52)
-03. Live Learn and Forget (04:21)
-04. Just Wait (03:57)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF4682CB5E4D39BB6C4775B8A7B09DD8C5ADA05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608812   (992720) от 26.01.2013
-
-Nirvana - With The Lights Out (3 × CD, Compilation) (2004) [FLAC|Lossless]<Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: GrungeПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0897975EEBBDA2B7E3805921ECA219447B8C545B
 ```
 
 https://mybot314.ru/tekegram_catalog/

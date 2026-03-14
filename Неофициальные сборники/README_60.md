@@ -1,3 +1,90 @@
+###  Публикация: 978501   (963631) от 23.01.2016
+
+VA - LOVERS Dance Cocktail (2015) [MP3|320 кб/с] <Dance, Deep House, Vocal Trance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ItaloBrothers - Welcome to the Dancefloor (02:53)
+02. Imany - Don't Be So Shy (Filatov & Karas Remix) (03:11)
+03. Royksopp - Here She Comes Again (Dj Antonio Remix) (04:54)
+04. Maroon 5 & Alesso - This Summer (Radio Edit) (03:12)(   Читать дальше...   )Жанр: Dance, Deep House, Vocal Trance, Pop, Vocal House, Progressive HouseПродолжительность: 04:23:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7CC3539112E6228F33DD1EB2DF868255DCD911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978296   (963575) от 23.01.2016
+
+VA - Bass Killer 2 (2016) [MP3|320 кб/с] <Electro House, Dubstep, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963575.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Apashe & Zitaa - Tank Girls (Original Mix) (5:20)
+2. AudioKiller - Apocalipsis (Original Mix) (4:37)
+3. Black Tiger Sex Machine & LeKtriQue - Religion (Far Too Loud Remix) (3:48)
+4. Bloodtone - King Kong (Original Mix) (3:34)(   Читать дальше...   )Жанр: Electro House, Dubstep, ElectroПродолжительность: 01:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADCA51519B76CC3C2E27AC9EC4856DE527CB3B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978329   (963506) от 23.01.2016
+
+VA - Уголовочка от радио Шансон. Часть 7 (2015) [MP3|256-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963506.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. А.Малинин И Е.Ваенга - Две Души
+002. Артур - Лак Дождя Покрыл Асфальт
+003. Белое Золото - Часовые Пояса
+004. Яша Боярский - Осенний Сон(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9C5E62EDE5A8669C7EE8C0FCD01E952AF92F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978282   (963502) от 23.01.2016
 
 VA - Relaxing Acoustic Folk Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Blues, Folk>
@@ -659,90 +746,6 @@ VA - Indie Dance: Disco Elixir (2016) [MP3|320 кб/с] <Funky House, Nu Disco, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:308B318C26DF8031AD3930C44BA6B3BE3673D647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979225   (961057) от 25.01.2016
-
-VA - Bass House Grooves Sense (2016) [MP3|230-320 кб/с] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961057.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dimitri Vegas & Like Mike Feat. Ne-Yo - Higher Place (Afrojack Instrumental Remix) [05:58]
-002. Toby Green - Move [02:32]
-003. Twenty Feet Down Feat. Krista Richards - Love Right Here (Omr & Adry Remix) [05:33]
-004. Gabriele Giudici - Revolve [04:22](   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 10:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCD1C35E9F86F09CC919000B713118A84524D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 253400   (960986) от 20.01.2014
-
-VA - Музыка любви - 5CD (2008) [MP3|320 kbps] <Other, Romantic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Other, RomanticПродолжительность: 05:49:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855345   (960974) от 02.01.2015
-
-Accept - Heavy Ballads (2015) 2CD [MP3|320 кб/с]<Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Seawinds
-02 - Drifting apart
-03 - Pomp and circumstance
-04 - Just by my own(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76DFAC8E80D7E9B23E03C80590BECFA2DE7A5CD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

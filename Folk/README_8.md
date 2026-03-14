@@ -1,3 +1,32 @@
+###  Публикация: 1624964   (241449) от 11.04.2023
+
+Atahualpa - Atahualpa Rock (2020) [MP3|320 Kbps] <Native American, Rock, World>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En Altamar, Punales [04:47]
+02. Inerte [03:58]
+03. La Senda de Enfrente [02:44]
+04. No Sabe Perder [04:54](   Читать дальше...   )Жанр: Native American, Rock, WorldПродолжительность: 00:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D5B0AE4946DD078D2115D7AE8318B769F8E595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625923   (240728) от 12.04.2023
 
 ZVENTA SVENTANA - Звента Свентана (2023) [MP3|320 Kbps] <Folk, Electronic>
@@ -718,35 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB21A800B0B790B8242E20CDF2FCBA01DA946D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746075   (104839) от 02.09.2024
-
-Вишнёвый сад - Из деревни в город. Из города в деревню (2024) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Варенье вишнёвое [00:03:18]
-02 - Родня моя, родня [00:03:43]
-03 - Не гляди ты, берёзка, игриво в окно [00:03:42]
-04 - А мы из Рощи, мы попроще [00:03:12](   Читать дальше...   )Жанр: FolkПродолжительность: 00:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C458B78F841D847019834360D7A2055BB8C7BBFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

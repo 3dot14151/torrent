@@ -1,3 +1,90 @@
+###  Публикация: 1758405   (38482) от 02.11.2024
+
+Power Music Workout - Workout Top Songs 2024 - Fall Edition [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belong Together (Workout Version 125 BPM) (3:07)
+02. Maria (Workout Version 129 BPM) (3:21)
+03. Austin (Boots Stop Workin') (Workout Version 130 BPM) (3:58)
+04. Karaoke (Workout Version 130 BPM) (2:43)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21AD26079F09D765723291766728DFD60620DAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758578   (38388) от 03.11.2024
+
+Power Music Workout - 2024 Ultimate Fitness Tracks [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Had Some Help (Workout Remix 129 BPM) (4:01)
+02. Lose Control (Workout Remix 129 BPM) (2:45)
+03. Too Sweet (Workout Remix 132 BPM) (3:40)
+04. Feels (Workout Remix 136 BPM) (3:31)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6CDECB5EFA5BF5AB8EE648E76C7E8D983E9F61F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758837   (38260) от 04.11.2024
+
+Mikhail Catan, Tibetania - Secret Garden (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Garden (6:31)
+02. Traveller (6:05)
+03. About Love (6:14)
+04. Sacredness (6:25)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC62D130168F60435EBC62EF1A5498D80E18B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759158   (38081) от 06.11.2024
 
 VA - Autumn Car Music Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -658,93 +745,6 @@ Dionigi - Space Disco (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38E8EF4F9A012BF23FE1997BD58C6B097AC3E438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781611   (26570) от 24.02.2025
-
-VA - House Charts 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plastik Funk - In My Arms (2:33)
-02. The Disco Boys - Surface Surfer (3:32)
-03. MŸLØ - Shibari (2:41)
-04. Sarrdo Carocci - Lift Me Off (2:44)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA8DF436EDF31F68B793B81DA0A2722FE2DEDD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782596   (26033) от 01.03.2025
-
-VA - Club Charts Top 100 - Winter Edition 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26033.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Plastik Funk - Everybody Up (3:26)
-002. SvenDeeKay - Down (2:41)
-003. Brooklyn Bounce - Love & Bass (The Official Anthem of Loco Beach) (2:30)
-004. The Teachers - Calling for Me (3:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0291BAC0B143E417C7FBC31FFBA20F078DC85CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783528   (25518) от 06.03.2025
-
-VA - Mortal Kombat: More Kombat (1996) [FLAC|Lossless|image + .cue] <Techno, Indastrial, Heavy Meta>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psykosonik - It Has Begun (2:52)
-02. Alien Factory - Higher (6:27)
-03. Sepultura - Chaos B.C. (5:10)
-04. Killing Joke - Drug (4:32)(   Читать дальше...   )Жанр: Techno, Indastrial, Heavy MetaПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4728B26AFF4FE00B5FD4E48DCFED3F6266CEBC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1335209   (289881) от 01.11.2019
+
+VA - Dance Anthems 2019.03 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolls – It's A Loving Thing 2k19 (Remundo edit) (3:29)
+02. Chrizz Morisson vs Timi Kullai & AK-SWIFT – In The Middle Of The Night (Remundo Deep dub) (2:56)
+03. Dyana Dye Shkendije – Love Is The Key (Bmonde EDM remix) (4:37)
+04. Houzer & LeBons – It's My Show (extended mix) (4:02)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160C95047AEBA946C6632B3A73C2DC6B12E26306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335277   (289876) от 01.11.2019
+
+Jessica Mauboy - HILDA (2019) [MP3|320 Kbps] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blessing (3:09)
+02. Come Runnin' (3:19)
+03. Selfish (3:26)
+04. Jealous (3:28)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C797C3F8849BDAFD0BF55CE16D217BDE5E8E43EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186022   (289671) от 23.11.2017
 
 VA - The Pop Years 1976-1977 (2009) 2CD, Compilation [MP3|320 Kbps] <Disco, PopRock, R&B>
@@ -687,64 +745,6 @@ VA - The Pop Years 1980-1983 (2009) 4CD [MP3|320 Kbps] <Pop, Rock, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14CD7579F4F7B5B7531E499FAE9DE7C49165DBCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264713   (279571) от 24.11.2018
-
-VA - Hands up Party Dance Selection, Vol. 2 (2018) [MP3|320 Kbps] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Tht feat. Auzern - Open Up the Dancefloor (Dj Gollum Remix)
-02. Nigel Hard - Superstar (Jinpachi Futushimo Hands Up Remix)
-03. Tomtrax and Orca - Break It Up (Radio Mix)
-04. FluxStyle feat. Alex Twist - Die besten Partys (The Suspect Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 04:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD580E3DE92631BD179FB122604DC84F3584489E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264560   (279519) от 24.11.2018
-
-VA - Hot Party Winter 2019 (2018) [MP3|320 Kbps] <Dance, Lunapop, Indie, Neo Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes - Lost In Japan
-02. LSD - Thunderclouds
-03. Celestal feat. Rachel Pearl, Grynn - Old School Romance
-04. Silk City - Electricity(   Читать дальше...   )Жанр: Dance, Lunapop, Indie, Neo SoulПродолжительность: 02:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A50EEE2E620982FF0469A784C20DDC6EE8D84CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

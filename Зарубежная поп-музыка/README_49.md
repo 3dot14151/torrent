@@ -1,3 +1,73 @@
+###  Публикация: 547659   (467071) от 18.09.2012
+
+Tanita Tikaram - Can't Go Back (2012) [MP3|320 кб/с]<Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467071.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: (00:38:50)
+01. All Things To You
+02. Dust On My Shoes
+03. Make The Day
+04. Rock & Roll
+05. Science
+06. Keep It Real
+07. Can’t Go Back
+08. Heavy Pressure
+09. One Kiss(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFFBD20A46DA23230A9DB7B3172D410895629EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546290   (467060) от 18.09.2012
+
+Boney M - Ultimate Long Versions & Rarities 1976-1987 (2009) [MP3|320 кб/с]<Pop, Disco, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exodus (Noah's Ark 2001Maxi Version)
+02. Wild Planet (Maxi Version)
+03. Somewhere In The World (Long Version)
+04. Future World (Long Promo Version)
+05. 10.000 Lightyears (Promo Version)
+06. Kalimba De Luna (US Club Mix)
+07. Young, Free And Single (12' Version)
+08. Daddy Cool (Anniversary Recording '86Special Club Mix)
+09. Mother And Child Reunion (Frank Farian CorporationLong Version)
+10. I'm Alive (Frank Farian CorporationLong Version)(   Читать дальше...   )Жанр: Pop, Disco, Eurodance.Продолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FDA710CC9094BBCFD296E8D3C18ECFF6DB3319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546975   (466752) от 18.09.2012
 
 Nelly Furtado - The Spirit Indestructible (Deluxe Version) 2CD (2012) [MP3|320 кб/с]<Pop>
@@ -711,64 +781,6 @@ Soraya - Dolce Vita (2007) [MP3|320 Kbps] <Eurodance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C601D6FAE2C99A81C3AFB6F578A85B5CB7B3DC5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942741   (451640) от 02.10.2015
-
-Janet Jackson - Unbreakable (2015) Deluxe Edition [MP3|320 кб/с]<R&B, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbreakable
-02. BURNITUP! (feat. Missy Elliott)
-03. Dammn Baby
-04. The Great Forever(   Читать дальше...   )Жанр: R&B, PopПродолжительность: 01:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A06B3A8F4C02400C9DC5AFA99557104717DF4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247569   (451073) от 16.09.2018
-
-VA - Power of Love: 80s Love Songs (2018) [MP3|320 Kbps] <Pop  Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laura Branigan - Power of Love
-02. Atlantic Starr - Unconditional Love
-03. Randy Crawford - One Hello
-04. Dollar - Give Me Back My Heart(   Читать дальше...   )Жанр: Pop,  Funk, DiscoПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42831F4780D69705E515C4463D2AA8EAABCA0CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

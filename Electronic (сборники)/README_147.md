@@ -1,3 +1,32 @@
+###  Публикация: 1167089   (419713) от 19.09.2017
+
+VA - Empire Records - Sound Clinic (2017) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Velvet, Prok & Fitch - Sheeple (Original Mix)
+02. Andrea Oliva - Vermona (Original Mix)
+03. Federico Franchi - Cream (Raf Marchesini Remix)
+04. Eddie Cooney - Le Freak (Extended Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8222F032C726F8C883497A38FB8C125B1D86FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065682   (419668) от 23.10.2016
 
 VA - Empty House (Mixed by Deeper82) (2016) [MP3|320 Kbps] <Deep House, Tech House>
@@ -722,35 +751,6 @@ VA - Make A Party: Popular World Mix (2016) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F78B0C33DF3EFBF4E2A15232FAD54503A6BF5806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948075   (416135) от 18.10.2015
-
-VA - The Nights of Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baghira - Garden Lullaby
-02. Angelina Astle - Love Inversion
-03. The Best Of Chill Out Lounge - Underwater - Blue Paradise Mix
-04. The Entelechia Society - Living Canvas(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9288791D4084BB51354E59398D7650EC50FD0301
 ```
 
 https://mybot314.ru/tekegram_catalog/

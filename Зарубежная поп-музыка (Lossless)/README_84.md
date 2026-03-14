@@ -1,3 +1,142 @@
+###  Публикация: 1824726   (136758) от 17.10.2025
+
+Duffy - Rockferry (2008) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Neo Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockferry [00:04:12]
+02. Warwick Avenue [00:03:46]
+03. Serious [00:04:10]
+04. Stepping Stone [00:03:29](   Читать дальше...   )Жанр: Neo SoulПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411DE8F297D0E955C78DF819851F9168813DEEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681080   (133513) от 01.12.2023
+
+Daisy Jones & The Six - AURORA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora (3:25)
+02. Let Me Down Easy (3:24)
+03. Kill You To Try (5:12)
+04. Two Against Three (3:53)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCE8DF1BB36F62D15493A5F080BD80CDD4A3599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595200   (132493) от 28.12.2012
+
+VA - 100 Hits 70's pop ( 100 Classic Tracks of the Decade ) (2009) 5CD Box Set[FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:06:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681765   (132376) от 04.12.2023
+
+Sia - This Is Acting (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Set Free
+02. Alive
+03. One Million Bullets
+04. Move Your Body(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:121DC070CFCBCAF566638B8CD58F35BB44B6E989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681709   (132352) от 04.12.2023
+
+Baccara - Light My Fire (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Baby, Why Don't You Reach Out) Light My FireЖанр: PopПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B475FF3FFD7217781F0367DAAC692AEF20B4F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596233   (131383) от 30.12.2012
 
 Doris Day - 3 альбома (1995-2004) [FLAC|Lossless]<Pop, Oldes>
@@ -607,151 +746,6 @@ VA - Now That's What I Call A Most Wonderful Christmas (2023) [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14DDB6A4A551611DB8BD6FD18492FB987EB8ACD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686697   (126461) от 23.12.2023
-
-Maggie Lindemann - SUCKERPUNCH (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. intro - welcome in
-02. take me nowhere
-03. she knows it
-04. casualty of your dreams(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FFB01A2BCDE3185C0045EB6FFBC0FFB514A2A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686677   (126251) от 24.12.2023
-
-TV Girl - Death of a Party Girl (2018) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Hypnotic Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Pretty Boys (02:46)
-02.7 Days til Sunday (03:35)
-03.Blue Hair (03:37)
-04.Lonely Girls (02:55)(   Читать дальше...   )Жанр: Hypnotic PopПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459B281917CF3CAD7E101426CF739B7CC3980032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687165   (125604) от 26.12.2023
-
-VA - Pop Christmas Songs (2023) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pentatonix - We Need A Little Christmas (00:02:26)
-02. nsync - Merry Christmas, Happy Holidays (00:04:12)
-03. Elle King - Please Come Home for Christmas (00:02:57)
-04. Darlene Love - Christmas (Baby Please Come Home) (00:02:46)(   Читать дальше...   )Жанр: PopПродолжительность: 03:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC873B187D4E08F74B5A332EA06DC079A99893E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690198   (124043) от 06.01.2024
-
-Gesaffelstein - Hyperion (2019) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Pop/R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hyperion (2:53)
-02.Reset (3:25)
-03.Lost in the Fire (with The Weeknd) (3:22)
-04.Ever Now (1:38)(   Читать дальше...   )Жанр: Pop/R&BПродолжительность: 40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC1EA4620A79A9A606C6D32BF0EA921323D711E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690713   (123813) от 08.01.2024
-
-Dan Balan - Freedom, Pt. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allegro Ventigo (feat. Matteo) (3:42)
-02. Balzam (feat. Lusia Chebotina) (3:38)
-03. Домой (feat. Тина Кароль) (4:25)
-04. Numa Numa 2 (feat. Marley Waters) (3:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876C2C2D7BEC15B3ABD4733C68DA9EE53C1B9240
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1708012   (113125) от 19.03.2024
+
+Marco Castelletti - Sonic Sketches (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riflessioni Nella Sauna (2:03)
+02. Quivering Melodies (2:36)
+03. Curve (2:16)
+04. Serene Summertime (2:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBAC70FFA6A2909DA7782F2F959383D7339845F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707883   (113124) от 19.03.2024
+
+The Black Crowes - Happiness Bastards (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Hard Rock,>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bedside Manners (3:41)
+02. Rats and Clowns (3:34)
+03. Cross Your Fingers (3:50)
+04. Wanting and Waiting (4:16)(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Hard Rock,Продолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E646FCD3071F6AB0136C1443C54751CEFFC6C035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707767   (113122) от 19.03.2024
+
+Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113122.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Transilvanian Hunger
+A2 Over Fjell Og Gjennom Torner
+A3 Skald Av Satans Sol
+A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708016   (113118) от 19.03.2024
+
+Naima Farao - Dots (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Space (0:58)
+02. Heirloom (4:32)
+03. Vortex (2:49)
+04. Buoyancy Of Water (3:40)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A70D9E429059AD556BC80D01497B23807F0878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708011   (113117) от 19.03.2024
+
+Jutesets - Spring Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring Planet (2:52)
+02. Happy Earth (2:53)
+03. Yellow Bird (2:35)
+04. Balmy Night (2:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B3166E0EB7AD153662AE80ED59AD500D7DE58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707998   (113116) от 19.03.2024
 
 Al Thompson Jr - It's Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -600,151 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:341D7D592E06780E742B3249015DC95926FD8FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708719   (113004) от 21.03.2024
-
-Cruzh - The Jungle Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jungle Revolution (3:55)
-02. Angel Dust (4:14)
-03. FL89 (4:09)
-04. Killing In The Name of Love (4:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7636DDC3AAC9B0604B41C7FB9AD7F57D5CB07B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708582   (113000) от 21.03.2024
-
-Samson - Shock Tactics (1981) Reissue, 1989, Repertoire Records [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113000.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Riding With The Angels
-A2 Earth Mother
-A3 Nice Girl
-A4 Blood Lust(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F05F6041EB18C64CD76CD47F8D8CCAC34CBB837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708496   (112999) от 21.03.2024
-
-Samson - Head On (1980) Reissue, 2004, Earmark [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Times
-02. Take It Like A Man
-03. Vice Versa
-04. Manwatcher(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A064CE7859AD6D760B950A268A1699C2EA4C3DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708659   (112997) от 21.03.2024
-
-Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage of the Dead Marauder (feat. Patty Gurdy) (4:28)
-02. Uzbekistan (3:40)
-03. The Last Saskatchewan Pirate (4:08)
-04. Sea Shanty 2 (2:01)(   Читать дальше...   )Жанр: Folk Power MetalПродолжительность: 00:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4921416CE29AE38BDCC5D50BB41DAAC3D2AA9616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708663   (112995) от 21.03.2024
-
-Brodequin - Harbinger of Woe (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Brutal Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diabolical Edict (3:28)
-02. Fall Of The Leaf (2:34)
-03. Theresiana (3:03)
-04. Of Pillars And Trees (4:03)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2332204E394E3B46DD7257DD8016BDFB9FEDD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

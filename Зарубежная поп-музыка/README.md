@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1858127   (1060173) от 08.03.2026
+
+Salvatore Adamo - Mes Plus Grands Succes (1981) 1992, Compilation [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tombe La Neige 3:09
+02. Mes Mains Sur Tes Hanches 2:29
+03. L'Amour Te Ressemble 2:36
+04. En Blue Jeans Et Blouson D'Cuir 3:29(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A67E4A29DE5E0CFEC761E9F31CBDDD79975A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855746   (1058484) от 24.02.2026
 
 VA - Top 10's 100 Greatest (2024) [MP3|320 Kbps] <Pop, Dance>
@@ -717,35 +746,6 @@ VA - AM Gold 1968 (1990) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D68E55C8AD9B61CDE7A1D0323BDB56E6AB9617F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846185   (1051244) от 06.01.2026
-
-VA - AM Gold 1969 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Supremes And The Temptations - I'm Gonna Make You Love Me
-02. B.J. Thomas - Raindrops Keep Fallin' On My Head
-03. The Cowsills - Hair
-04. Jackie DeShannon - Put A Little Love In Your Heart(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soul, FunkПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A1999ADEB93183F61181948DCD1E33FF13577A
 ```
 
 https://mybot314.ru/tekegram_catalog/

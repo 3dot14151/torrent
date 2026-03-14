@@ -1,3 +1,32 @@
+###  Публикация: 1526794   (737835) от 26.01.2022
+
+VA - Harmonic Lounge Music (2022) [AAC|~292 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovers in Motion - A Matter of When (6:01)
+02. Wermuth - Intertwining Lives (5:46)
+03. Fascinating Case - Immersive Experiences (5:40)
+04. Élan Vital - Extravagance (5:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC694BC08302F3D0289B0E2A689A42EB343B927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526955   (737828) от 26.01.2022
 
 VA - Low Down Deep Best Of 2021 (2022) [AAC|~331 Kbps] <Jump Up, Drum & Bass>
@@ -694,35 +723,6 @@ VA - Lounge Tales, Vol. 3 (2015) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF53E8238694A2E7405DEC313C37EBEB0D9CFA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527382   (736947) от 28.01.2022
-
-VA - Lounge Tales, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EK - Sonho (6:00)
-02. Life Audience - Waves & Particles (7:22)
-03. Didascalis - 4 Chords (4:27)
-04. Taco-Town - Acerado (3:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBDE537A88FA417A8E3DB8EAD0C3E76D88DFC0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

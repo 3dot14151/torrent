@@ -1,3 +1,38 @@
+###  Публикация: 520777   (631615) от 09.07.2012
+
+VA - A State Of Vocal Trance Volume 1 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631615.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
+002. Mike Shiver feat. Bo Bruce - Still Here
+003. Neev Kennedy - The Unknown (DNS Project Extended)
+004. Omnia & IRA - The Fusion (Original Mix)
+005. Pulser feat. Molly Bancroft - In Deep (Pulser's Main Floor Remix)
+006. Rave Channel - Illusion (Original Mix)
+007. Remy Le Duc, The EC Twins & Zen Freeman feat. Shakeh - In Motion (Original Mix)
+008. Ronski Speed feat. Sir Adrian - Seen It All (Alexander Popov Mix)
+009. Ruben de Ronde & Aelyn - She's Already Gone Vocal Mix
+010. Sebastian Ingrosso, Alesso & Ryan Tedder - Calling (Lose My Mind) (Extended Club Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F2BFBD1682F2B33C159DF28561ADACA1E83E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143923   (631494) от 20.06.2017
 
 VA - Diamond Euphoria: Night House Party (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -743,35 +778,6 @@ VA - Club Dance Ambience vol.78 (2016) [MP3|320 Kbps] <House, Electro House, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E6684DBF6670B76119067CEAACC57C4D50D9F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035696   (626705) от 17.07.2016
-
-VA - 50 Best of Summer Workout Hits (2016) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Berlin Minimal - Schonefelder Weiden
-02. Lieblingsplattendreher - Wo Das Kitscht so Nice (Progressive Minimal Ska Mix)
-03. Del Do Ra - Beergarden Melody
-04. Crazy Krauts - Vorfreude(   Читать дальше...   )Жанр: HouseПродолжительность: 05:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B678F11951E3DFAE6B419A256623AB3A4007F06E
 ```
 
 https://mybot314.ru/tekegram_catalog/

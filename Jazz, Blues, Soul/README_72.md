@@ -1,3 +1,61 @@
+###  Публикация: 1490599   (917488) от 21.08.2021
+
+V.A. - Smooth Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soundscape UK - Freeway
+02. Sambada - Kabanos
+03. Yada Yada - Mystic Vibe
+04. Chris Bangs - Driving Home(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A262E9F8FDB51B328A5B36AE2D20DCDB5402BCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367310   (917423) от 15.03.2020
+
+Arturo Sandoval, Chick Corea, Poncho Sanchez, Pete Escovedo - Jam Miami: A Celebration Of Latin Jazz (2000) Concord Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guachi Guaro (Soul Sauce) [6:37]
+02. A Night In Tunisia [7:08]
+03. Medley Para Tito [8:29]
+04. Ican [7:07](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban Jazz, Post-BopПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5882B4C6D55C5EA14334ECF750FAA20A663075C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989017   (917391) от 22.02.2016
 
 Wolfgang Dauner Quintet - The Oimels (1969) 2007, MPS[FLAC|Lossless|tracks + .cue] <Modern Creative, World Fusion>
@@ -697,64 +755,6 @@ Irakere - Jazzcuba: volumen 5 (1970) 2007, Rhino[FLAC|Lossless|tracks + .cue] <L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2958AD7FE3CF1BA9569E4A166D294F8E1CD161C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989749   (915890) от 23.02.2016
-
-Matthieu Bore - Naked Song (2015) Bonsan Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lonely At The Top [02:58]
- 02.Allegreto [00:30]
- 03.I'm Putting All My Eggs In One Basket [03:08]
- 04.Police On My Back [02:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F26B8B8B17EF34E6BBC5CF30C14FB4632C1A9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989746   (915885) от 23.02.2016
-
-Jimmy Smith - Rockin' The Boat (1963) 1994, Blue Note[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When My Dreamboat Comes Home [07:32]
- 02.Pork Chop [07:41]
- 03.Matilda, Matilda! [03:03]
- 04.Can Heat [05:28](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4088D98BB4D84A3DA8D293F0C3EEB5FB9D8382A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

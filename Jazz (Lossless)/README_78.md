@@ -1,3 +1,90 @@
+###  Публикация: 1205499   (783548) от 10.02.2018
+
+The Three Sounds - Moods (1960) 1987, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love for Sale [06:38]
+02. Things Ain't What They Used To Be [08:55]
+03. On Green Dolphin Street [05:37]
+04. Loose Walk [04:56](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AA43B50F40DA44EB9EEEDAC86A9504DEE1BE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390191   (783419) от 14.06.2020
+
+Dave Brubeck - Three Classic Albums Plus: Third Set 1956 - 1960 (2010) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783419.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Alice in Wonderland [9:31]
+02. Give a Little Whistle [7:37]
+03. Heigh-Ho [3:58](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 02:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466DE3A94476855FC1FFC08505D6BAC9141AE229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205757   (783256) от 11.02.2018
+
+Marcus Roberts - Prayer For Peace (1991) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prayer for Peace [09:51]
+02. Let It Snow, Let It Snow, Let It Snow [03:43]
+03. Silver Bells [04:01]
+04. The Christmas Song [03:13](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760B44AA0DB9B142CC22E413A89219C1A3C3D48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205754   (783255) от 11.02.2018
 
 Mal Waldron - Mal: Live 4 To 1 (1971) 1989, Nippon Phonogram [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -658,93 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:285CACD0C0CA7FFECCB5FFEB958D23DFB7A91149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207178   (780905) от 17.02.2018
-
-Eddie Bert - Encore (1955) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bert Tram [03:09]
-02. One for Tubby [05:28]
-03. It's Only Sunshine [03:16]
-04. Opicana [03:25](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5B77965278432B9C3633DE631201484FA92C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207088   (780904) от 17.02.2018
-
-Bud Powell - Live in Lausanne 1962 (2002) Stretch Records [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthropology [04:17]
-02. Billie's Bounce [06:42]
-03. Lover Come Back to Me [05:27]
-04. 'Round Midnight [06:02](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135365FAD36E9A8B17D323433BADEB5F07F99E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207212   (780903) от 17.02.2018
-
-California Swing Cats - Stealin' Apples (1997) Jazzology Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bugle Call Rag [04:12]
-02. A Kiss to build a Dream On [04:34]
-03. Piano Man [02:46]
-04. When My Dreamboat Comes Home [04:36](   Читать дальше...   )Жанр: SwingПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55ABDC41DA3565E5860AD4784D09E91474781240
 ```
 
 https://mybot314.ru/tekegram_catalog/

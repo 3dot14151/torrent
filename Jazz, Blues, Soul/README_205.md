@@ -1,3 +1,189 @@
+###  Публикация: 1228182   (639394) от 30.05.2018
+
+Nicola Conte - Nicola Conte Presents - Viagem Vol. 3 (2011) [MP3|320 Kbps] <Jazz, Bosa Nova, Samba>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dalmo Castello - Fora De Hora (2:47)
+02 - O Triangulo - Voce Que Nao Vem (2:04)
+03 - Luiz Carlos Sa - Canto Do Quilombo (2:31)
+04 - Aizita - Faz De Conta (2:03)(   Читать дальше...   )Жанр: Jazz, Bosa Nova, SambaПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B2701C420524EA74F96BE95DF707AF54ABF3B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519084   (639375) от 05.07.2012
+
+Ron Carter and Helen Merrill - Duets (1989) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_639375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Fall in Love Too Easily (Cahn-Styne) [03:09]
+02. Child is Born (A.Wilder-T.Jones) [05:32]
+03. Come Home Again (Merrill-Zito) [02:27]
+04. Little Waltz (R.Carter) [04:18]
+05. You And The Night And The Music (Dietz-Schwartz) [02:18]
+06. Autumn Leaves (Mercer-Kosma) [02:45]
+07. Come Rain Or Come Shine (Arlen-Mercer) [02:31]
+08. In A Mellow Tone (Gabler-Ellington) [02:47]
+09. Summer Knows (Bergman-Bergman-Legrand) [03:24]
+10. There Is No Greater Love (Symes-Jones) [04:02](   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293214   (639204) от 02.04.2019
+
+Wayne Shorter Quartet - Beyond The Sound Barrier (2002 - 2004) 2005, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smilin' Through [11:52]
+02. As Far as the Eye Can See [6:27]
+03. On Wings of Song [4:35]
+04. Tinker Bell [1:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D001C20CB3C149CFE74E0101BD1AB396B4038E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518836   (639110) от 05.07.2012
+
+Al Di Meola & Leonid Agutin - Cosmopolitan Life (2005) [FLAC|Lossless]<Fusion, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_639110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuba Africa – [05:34]
+02. Cosmopolitan Life – [04:09]
+03. Nobody – [04:47]
+04. Price to Learn – [05:27]
+05. Tango – [03:54]
+06. Smile – [04:19]
+07. Portofino – [03:37]
+08. If I'll Get a Chance – [04:07]
+09. Blue River – [04:44]
+10. Shade of Your World – [06:16]Жанр: Fusion, Latin JazzПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293301   (639050) от 02.04.2019
+
+VA - Midnight Radio - NOIR JAZZ (2016) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Ambient Jazz, Dark Jazz, Doom Jazz, Experimental Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Orchestra Of Mirrored Reflections - ...This Too Shall Pass (live) (3:00)
+02. Trigg & Gusset - Cardium (6:19)
+03. Joel Fausto & Illusion Orchestra - Cheap Trance Romance (6:31)
+04. Macelleria Mobile di Mezzanotte - Love Affair (5:36)(   Читать дальше...   )Производство: Signora Ward RecordsЖанр: Ambient Jazz, Dark Jazz, Doom Jazz, Experimental JazzПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF03986DCC5BEFE55C2026CDCCDE2C9C92A7A103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542253   (638850) от 06.04.2022
+
+Gunn - Hand in the Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Wanna Know (4:29)
+02. Man with the Bucket (4:20)
+03. Hoppin” Blues (3:29)
+04. Wrong with My Heart (5:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56748FBAB63F58C12091A7432AFDC3CFF1AEED95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542257   (638848) от 06.04.2022
 
 James Quandt - Out of the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +757,6 @@ B.B.King – Live At San Quentin (1990) [WavPack|image+.cue]<Blues, Electric Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BB332F13878C3389666BC0CB0AA88270F6F23D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907847   (638073) от 12.06.2015
-
-D Man - Blues... Off The Neck (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Plated Lincoln (2:56)
-02. Rear View (Feat. Danny Hord) (2:52)
-03. I Hate To See You Go (5:08)
-04. Way To Lay You Down (Feat. Danny Hord) (5:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13EC916C6F129181606DB981A0E3985BC3BACD38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033531   (637944) от 11.07.2016
-
-Sade - Lovers Rock (2000) [FLAC|Lossless|image + .cue] <Electronic, Reggae, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	By Your Side 	04:35
-02. 	Flow 	04:34
-03. 	King Of Sorrow  04:53
-04. 	Somebody Already Broke My Heart 	05:01(   Читать дальше...   )Жанр: Electronic, Reggae, Funk / SoulПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4322B7B34174A629360CA81E49B0CD7EC554AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907463   (637820) от 12.06.2015
-
-Peter Green's Fleetwood Mac - The Original Fleetwood Mac (1971) /2004, Columbia/ [WavPack|image+.cue]<Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drifting (P.Green) 03:32
-02. Leaving Town Blues (P.Green) 03:11
-03. Watch Out (P.Green) 04:48
-04. A Fool No More (including takes 1-7) (P.Green) 08:01(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 01:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8D3EFA873F66697391C15DA77D80B752C69DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293344   (637784) от 03.04.2019
-
-Eric Le Lann & Paul Lay - Thanks a Million (2018) Gazebo [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz, Trumpet Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dinah [4:32]
-02. Mack The Knife [3:23]
-03. Jubilee [2:51]
-04. Tight Like This [5:17](   Читать дальше...   )Жанр: Mainstream Jazz, Piano Jazz, Trumpet JazzПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782D2D578F27CBDECAEB5569BE4A7EE5268524FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293346   (637783) от 03.04.2019
-
-Snorre Kirk - Beat (2018) Stunt Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exotica [4:38]
-02. 18th & Vine [2:39]
-03. Monaco [5:12]
-04. Blues Arabesque [5:02](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD539F658C591793203C88985738C8BCF91FB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293360   (637677) от 03.04.2019
-
-The Wrong Object - Into The Herd (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Herd. (04:10)
-02. A Mercy. (04:56)
-03. Rumble Buzz. (07:10)
-04. Another Thing. (06:58)(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E73E0D0F3A45E354F52E2BA908D161A69731639
 ```
 
 https://mybot314.ru/tekegram_catalog/

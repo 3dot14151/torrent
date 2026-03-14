@@ -1,3 +1,191 @@
+###  Публикация: 549831   (460330) от 21.09.2012
+
+INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED29E6022452B5E9E2A709F02ECA6EBB069C43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404757   (460097) от 10.09.2020
+
+Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/2160p] <Metalcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 CALLEJON - Gottficker
+02 CALLEJON - Metropolis
+
+Клипы к новому альбому Metropolis, выход которого намечен на 28.08.2020.Жанр: MetalcoreПродолжительность: 00:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4065A578C6BCB0AC61E7CD30E30FBB7650D06D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402874   (460086) от 10.09.2020
+
+Кис Кис - Мелочь (OST Водоворот) (2020) WEBRip [H.264/1080p] <Альтернативный Рок>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Кис Кис - Мелочь (OST Водоворот) Single (30-06-2020) LOSSLESSЖанр: Альтернативный РокАктеры: Кис Кис (Софья Сомусева)Продолжительность: 00:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439528D50AA930BA7B08CA6E6FD0610F56C085D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402584   (459951) от 10.09.2020
+
+Little Big - Tacos (2020) WEBRip [VP9/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Little Big - Tacos (Single)Производство: Warner Music RussiaЖанр: PopПродолжительность: 00:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC9977B6F3560BFE44B264205753F352A407AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550355   (459652) от 21.09.2012
+
+BIFFGUYZ feat Bovie & Rox - Я тебя Бум Бум Бум (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C941FE714E7AB83604473E5ED7132A5CCE0BD694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407441   (459477) от 10.09.2020
+
+Сборник клипов 01 (09.2020) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за сентябрь 202001_Pickle - Like That
+02_Sak Noel x Salvi - SAXY
+03_Jackson Wang & Galantis - Pretty Please
+04_Ytram & Elderbrook - Fire(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7D8AE18D2D0471F2B14105B223D4B84D299959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550358   (458367) от 22.09.2012
+
+Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651FB76560F7F7C05CBE8083745DE6961708A1D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550366   (458365) от 22.09.2012
 
 Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
@@ -510,191 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B490202F7D72A090FD608189B73250C686D5B66A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390809   (446661) от 22.09.2011
-
-Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес (2011) HDTVRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипПродолжительность: 00:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D6EF8360E953AF7C9E6C62AF3BC0820146EB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552688   (446413) от 27.09.2012
-
-Barillo - Dust (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3284B7ACEFBFD2B12301C91AE02C3208F78FE8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553018   (446222) от 27.09.2012
-
-KooFee feat. Manu Blanco - El Culito (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F031211E2AB7E8D94BEAE1982DB6A21B7FDF1456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553019   (446087) от 27.09.2012
-
-Sandra Afrika - Neko ce mi nocas napraviti sina (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4FA48620A6AC17FBBB2049B8BD9D893094716E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552689   (445770) от 27.09.2012
-
-Lindsey Stirling - Elements  (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F40B0B5C6BE4DA9C8C6DA52BFB1225C4087A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552894   (445677) от 27.09.2012
-
-Свит / The Sweet-Video Collection 1971-1980 (2CD) (2008) VHSRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445677.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом видео наиболее полная видео коллекция The Sweet -кумиров 70х (видео и звук разный по качеству (разных лет съемки) но в основном все достойно.)Жанр: Музыка, Glam RockПеревод: ОтсутствуетПродолжительность: 01:08:02+01:14:42.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC4C4FCD8354363394909911BAA79E1775CB5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943852   (444752) от 05.10.2015
-
-VA - Осенний марафон № 195 / Видеоклипы (Зарубежный Хит Парад) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (04.10.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A. Rose Jackson - Lover's Collide (Official Video) (00:02:50)
-2. Ailee - Mind Your Own Business (Official Video) (00:04:20)
-3. Alex Adair - Heaven (Official Video) (00:03:07)
-4. Amfree - The Sweetest Symphony (Official Video) (00:03:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, Indie, RockПродолжительность: 01:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC266122BC11B7D4446EBB9AA962E28AF45D6D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

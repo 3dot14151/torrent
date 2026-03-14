@@ -1,3 +1,32 @@
+###  Публикация: 1007371   (823228) от 14.04.2016
+
+Otep - Generation Doom (2016) Deluxe Edition [MP3|320 кб/с] <Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero
+02. Feeding Frenzy
+03. Lords Of War
+04. Royals(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639432B40CB133B16D271E5392EDBEEAFDB71A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382031   (822777) от 09.05.2020
 
 Reverber - Sect Of Faceless (2020) [MP3|320 Kbps] <Thrash Metal>
@@ -713,35 +742,6 @@ Elmsfire - Hour Of The Wolf (2016) [MP3|320 кб/с] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20ACD96DEB42CBE9558712CF1AB95AF09845D960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009740   (808239) от 22.04.2016
-
-August Redmoon - Drums Of War (2016) [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808239.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Bring Down The House
-2.The Only Man On Earth
-3.Fools Are Never Alone
-4.Drums Of War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29DD08878B285D98EE494ACE5400FCA34E2C9EEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

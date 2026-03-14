@@ -1,3 +1,177 @@
+###  Публикация: 1044013   (569257) от 18.08.2016
+
+Reuben Wilson - The Sweet Life (1974) 2006, Groove Merchant[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Inner City Blues [04:48]
+ 02.Creampuff [05:32]
+ 03.Sugar [06:11]
+ 04.I'll Take You There [06:27](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3CF2A7725691603DACAA28A559D89FAFA83258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234617   (569246) от 06.07.2018
+
+VA - Summer In Electro And Swing Jazz (2018) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ukulele Swing - Christian Lisi 02:49
+02. Non Dimenticare - JazzInCase 03:18
+03. Prince of Persia - Minor Swing Quintet 07:27
+04. Toccata - Parma Brass Quintet 02:07(   Читать дальше...   )Жанр: JazzПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F72FA8ACBF874BBF1C630453E0214F50DAED4B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043895   (569106) от 18.08.2016
+
+Robin McKelle - The Looking Glass (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Soul, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity
+02. Stand Up
+03. I’'m the One
+04. Forgive Me(   Читать дальше...   )Жанр: Vocal Jazz, Soul, PopПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E6BFE8DB11474D24C333E2B699D393CCD0D284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043892   (569102) от 18.08.2016
+
+Simona Parrinello - Con Alma (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beatrice
+02. Con Alma
+03. Melancholia
+04. Everybody's Song But My Own(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1938914094F45B8593F8725D48611C8AC1642E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555304   (569070) от 04.06.2022
+
+The Red Mitchell-Harold Land Quintet - Hear Ye! (1961) 1989, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triplin' Awhile [7:48]
+02. Rosie's Spirit [5:28]
+03. Hear Ye! [6:55]
+04. Somara [6:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E371EA6EA0CDB7BBBFD07EC6CDCF3B6009CEF5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555465   (569069) от 04.06.2022
+
+Phil Ranelin - Collected Works (2003 - 2019) 2CD, 2019, Wide Hive Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569069.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Freddie's Groove [8:58]
+02. Horace's Scope [5:27]
+03. This One's for Trane [8:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 02:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9241610CA624E6E6A3097959D2E3CA4282AA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152141   (569019) от 21.07.2017
 
 Philly Joe Jones - Six Classic Albums (1956 - 1960) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
@@ -623,180 +797,6 @@ Albert Castiglia - Burn (2002) [APE|Lossless]<Blues>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152264   (567505) от 22.07.2017
-
-Yusef Lateef - The Golden Flute (1966) 2004, Universal [APE|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road runner [04:48]
-02. Straighten up and fly right [03:29]
-03. Oasis [04:27]
-04. (I don't stand) A ghost of a chance with you [04:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994DE713EF61FE5B1DAA2FB2D1C21D210B699F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152247   (567503) от 22.07.2017
-
-Shirley Scott - Blue Seven (1961) 2000, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Seven [06:51]
-02. How Sweet [07:40]
-03. Don't Worry 'Bout it Baby, Here I Am [06:46]
-04. Nancy (With The Laughing Face) [05:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4014693C96AA2D84C6F8F9971778FA12A1CF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555661   (567491) от 05.06.2022
-
-Maynard Ferguson - The Complete Roulette Recordings Of The Maynard Ferguson Orchestra (1958 - 1961) 10CD, 1994, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567491.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. And We Listened [5:45]
-02. The Fugue [3:28]
-03. Humbug [3:31](   Читать дальше...   )Жанр: Bop, Hard Bop, Big BandПродолжительность: 09:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE9B9D6F96AE0B91E31E0FC4DD3C9E1BCFEDD75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044390   (567464) от 19.08.2016
-
-Jimmy Burns - Back To The Delta (2003) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To The Delta    04:13
-02. Stop The Train    04:56
-03. Red Hot Mama   03:54
-04. Stranded In Clarksdale    04:04(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:20.61
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452BCFE4E3D4174B1798CB97DA27756A32012CFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044394   (567462) от 19.08.2016
-
-Jimmy Burns - It Ain't Right (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Money Problem (3:30)
-02. Will I Ever Find Somebody (4:01)
-03. Snaggletooth Mule (3:59)
-04. Long As You're Mine (3:51)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C226D3DE8BFED70B843F5D7D99B1A31EF8919F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304051   (567452) от 24.05.2019
-
-Rymden - Reflections & Odysseys (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Trio>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflections (1:10)
-02. The Odyssey (6:03)
-03. The Peacemaker (0:38)
-04. Pitter-Patter (5:15)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano TrioПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E87693D2DA3431104C3471841EDC35A33ED50D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1009178   (811641) от 20.04.2016
+
+Леонид Фёдоров и Владимир Волков - Гроза (2016) [MP3|320 кб/с] <Rock, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Баллада
+02. Душа не ведает судьбы
+03. Кончина гуся
+04. Казак(   Читать дальше...   )Жанр: Rock, AvantgardeПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44781891D4CEC03146B9ED1F5E6EFA40FDC3B6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504596   (811542) от 23.10.2021
+
+ДДТ (DDT) - Творчество в пустоте (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811542.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Муха
+2. Борщевик
+3. Хор
+4. В магазине(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A99F6828CC3D5A7930CF55A0F0C663AF1E1C4D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118914   (811489) от 26.03.2017
+
+VA - Охота 72 (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Скворцы Степанова - Ж*па 2.0
+02. Свободный полёт/Павел Пиковский - Не ждал
+03. CL.EVER - Стены
+04. Fast-mo - Beat(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFB46F139D40BC426F0A3EA324A9DA9B41E98AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 883789   (811041) от 01.04.2015
 
 Jane Air - Чёрная гавань (2015) [MP3|320 кб/с]<Alternative Rock>
@@ -645,93 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB7DCF7E2F1AAE25A09371A1BDF3926E88E32AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199699   (800361) от 17.01.2018
-
-Полини - Время дождей (2017) [MP3|320 Kbps] <Acoustic Rock, Folk Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Так и стоял до рассвета
-02. Солнце на коне
-03. Золотое правило
-04. Время дождей(   Читать дальше...   )Жанр: Acoustic Rock, Folk Rock, Art RockПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3D09498E4ACBF30BCF72186D65DBE7E961A17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199817   (800352) от 17.01.2018
-
-Маша Кудрявцева и группа Кудри - Люди и тени (2017) [MP3|320 Kbps] <Art Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По линиям метро
-02. То снег, то дождь
-03. Там, где ты
-04. О личном(   Читать дальше...   )Жанр: Art Pop, RockПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E2DC84687DB09D5E663806C37AD289E0FA3B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385134   (800342) от 23.05.2020
-
-666 - Мясо с кровью (2020) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800342.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пули в тело - деньги в дело
-2. Летучие мыши
-3. Под прицелом
-4. Ад(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600D27C868143ECCB1CF5F78C7486D808F9BB513
 ```
 
 https://mybot314.ru/tekegram_catalog/

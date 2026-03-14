@@ -1,3 +1,146 @@
+###  Публикация: 1639850   (211303) от 17.06.2023
+
+Armik - Guitar Seduction (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Flamenco, Acoustic guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guitar Seduction (4:19)
+02. Restless (4:23)
+03. Last Night (4:23)
+04. Madly In Love (4:37)(   Читать дальше...   )Жанр: Instrumental, New Flamenco, Acoustic guitarПродолжительность: 00:22:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3189CF9F6F7A3D259429EE645C1E21F53A4716E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641449   (210886) от 22.06.2023
+
+Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams (7:20)
+ 02. Calmness (6:24)
+ 03. Transformation (8:13)
+ 04. Drifting (13:49)(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D091C13A1D1150C61BDED10D5B22895DAB5877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661040   (210447) от 14.08.2022
+
+VA - Mortal Kombat Annihilation: OST (1997) [FLAC|Lossless|tracks + .cue] <Soundtrack, Techno, Progressive Trance>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_210447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Immortals - Theme From Mortal Kombat (Encounter the Ultimate) (03:19)
+02. Scooter - Fire (03:14)
+03. KMFDM - Megalomaniac (04:19)
+04. Megadeth - Almost Honest (04:01)(   Читать дальше...   )Жанр: Soundtrack, Techno, Progressive TranceПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BFC0420E7E0DAC5B70D8988111DC27D6D9AB93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604927   (209877) от 16.01.2023
+
+ДиДюЛя - Live with String Quartet (2022) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legend (3:00)
+02. Waterfall (4:11)
+03. Arabica (6:00)
+04. Butterflies (4:24)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC47664D9202007386D264C87ED186C0B0410E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644407   (209763) от 05.07.2023
+
+ДиДюЛя - Складук (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamenco, World>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Складук
+02. ПляжЖанр: Instrumental, Flamenco, WorldПродолжительность: 00:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E81D03FA7AE9ACF158AF58A1322D1E769E52F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645059   (209317) от 09.07.2023
 
 VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <Instrumental, Relax, Classical>
@@ -600,151 +743,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23D8F8BAA5F3B828FD06B326D2EEEBC01DA4B4C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830280   (202378) от 26.10.2025
-
-Paul Mauriat - Le grand orchestre de Paul Mauriat - Volume 5 (1967) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un tout petit pantin
-02. This Is My Song
-03. Penny Lane (Instrumental)
-04. Love Is Blue(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688D9021DD3B4048384F59AD8A57A585009307B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614455   (202330) от 23.02.2023
-
-VA - Atomic Heart - Vol.1 (2023) [FLAC|Lossless|tracks] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песняры - Косил Ясь’ Конюшину (Mujuice Acid Remix)
-02. Земляне - Трава у Дома (Geoffrey Day Remix)
-03. Алла Пугачёва - Арлекино (Geoffrey Day Remix)
-04. Владимир Кузьмин - Я Не Казанова (Geoffrey Day Remix)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552DE5E3059BCCB6967A79E39E1C696B2074A45B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654838   (202249) от 23.08.2023
-
-Ah Nee Mah - Sacred Nation (2017) [FLAC|Lossless|tracks + .cue] <New Age, Native American, Tribal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning on the Mesa
-02. Ghosts of the Canyons
-03. Trail of the Ancients
-04. The White Wolf(   Читать дальше...   )Жанр: New Age, Native American, TribalПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC77C7C647A5C15F4F5C395D314217BF7EEA6191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615787   (202169) от 27.02.2023
-
-Otyken - Дискография (2018-2023) 7 релизов  [MP3|320 Kbps] <Ethnic, World Music, Dance House, Горловое пение>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phenomenon [05:50]
-02. Pulse [07:15]
-03. Storm (2023) [04:20]
-04. White Mountain (2023) [07:41](   Читать дальше...   )Жанр: Ethnic, World Music, Dance House, Горловое пениеПродолжительность: 04:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FF610879D7B34F2CAF95B2B84AD0C56913D3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829591   (202031) от 25.10.2025
-
-Francis Goya & Norman Candler Magic Strings - More Than Ever (Remastered) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme for a Lady (Remastered)
-02. Theme of a Young Love (Remastered)
-03. Brokenhearted Me (Remastered)
-04. My Sweet Lady (Remastered)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8314741228500E214732DC9A4A34D9A26948DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

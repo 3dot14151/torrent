@@ -1,3 +1,177 @@
+###  Публикация: 1216178   (753065) от 29.03.2018
+
+Art Pepper - Live At The Village Vanguard (1977) 4CD, 1987, Victor [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753065.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. But Beautiful [11:43]
+02. My Friend John [10:02]
+03. Valse Triste [12:23](   Читать дальше...   )Жанр: Post-BopПродолжительность: 03:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2763F23E1993BE01A9FCBBDEA8E1238C29FD624D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216166   (752940) от 29.03.2018
+
+Zoe Schwarz Blue Commotion - The Blues And I Should Have A Party (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Don't Cheat On Me  (04:05) 
+02. The Blues And I Should Have A Party  (06:27) 
+03. You've Changed  (05:31) 
+04. Way Down In The Caves  (04:54) (   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D270BD452D2605E70EBC7825CB5ED3DCA7AE0766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019350   (752338) от 22.05.2016
+
+Arlen Roth - Toolin' Around (1993) [FLAC|Lossless|tracks] <Blues-Rock, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tequila    04:58
+02. Let it Slide    05:07
+03. Goin' Back    03:48
+04. A Whiter Shade of Pale    05:23(   Читать дальше...   )Жанр: Blues-Rock, InstrumentalПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C372D9E3CD0507442A62A1A9B6034F2AA017F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019338   (752266) от 22.05.2016
+
+Nick Moss Band - From The Root To The Fruit (2016) 2CD Set [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before the Night Is Through (03:11)
+02. Make Way For Me (03:25)
+03. Dead Man's Hand (04:19)
+04. From the Root to the Fruit (03:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBFD4FEBD6FD9219515A3A556313886C644BCEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019168   (752107) от 22.05.2016
+
+Supersonic Blues Machine - West Of Flushing, South Of Frisco (2016) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752107.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Miracle Man (4:24)
+ 2. I Ain't Fallin' Again (3:28)
+ 3. Running Whiskey (Feat. Billy F. Gibbons) (2:39)
+ 4. Remedy (Feat. Warren Haynes) (5:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC40142007BCC42C36ABB80D212ADB29FE94BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281525   (752089) от 08.02.2019
+
+Della Reese - All Of Me (1999) 2001, Hallmark Music & Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Fall In Love [3:27]
+02. That's All [3:37]
+03. Come Rain Or Shine [3:02]
+04. Love Me Tender [3:01](   Читать дальше...   )Жанр: Vocal Jazz, Soul JazzПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAD857B585A1F088FCD4C389117CB3F672313A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019208   (751882) от 22.05.2016
 
 Eric Clapton - I Still Do (2016) [FLAC|Lossless|tracks + .cue] <Blues Rock>
@@ -569,180 +743,6 @@ Rez Abbasi Acoustic Quartet - Intents and Purposes (2015) [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C3860CF1D84DAA4264AF548376FF52CEAAB4A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019769   (748653) от 24.05.2016
-
-Phil Woods & Gene Quill Sextet - Phil And Quill (1956) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sax Fifth Avenue [03:15]
- 02.Ready Rudy [03:04]
- 03.Cabeza [03:17]
- 04.Twin Funkies [03:32](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03CC45F29EB7D64AA35351A811FA49856D50414D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019772   (748651) от 24.05.2016
-
-Ameen Saleem - The Groove Lab (2015) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Korinthis (Saleem) - 06:47
-02. Epiphany (Saleem) - 04:48
-03. Don't Walk Away (Saleem-Dunlap) - 05:01
-04. I.L.Y.T. (Saleem) - 07:16(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B118704F9BB1DABCDC4D977890A57782DE9A45C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019919   (748639) от 24.05.2016
-
-Bridget Kelly Band - Forever In Blues (2014) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be Missin' You (4:45)
-02. Blues In My Kitchen (3:50)
-03. Texas Toast (6:01)
-04. I'll Take The Blues (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F364A59E7B94E3AA3BA39584B1ADB3DC81D4E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019701   (748637) от 24.05.2016
-
-The Billy Cobham & George Duke Band - "Live" - On Tour In Europe (1976) Unofficial Release [APE|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hip Pockets
-02. Ivory Tattoo
-03. Space Lady
-04. Almustafa The Beloved(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBE8B77B3966700DD597630F77672A0A7261202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019922   (748573) от 24.05.2016
-
-Thomas David Gibson - The Way She Change (2016) [MP3|320 кб/с] <Blues-Rock, Soft Rock, Acoustic>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way She Change    04:33
-02. House of Cards    02:36
-03. Soul Shine    03:24
-04. Let Me Sleep    03:16(   Читать дальше...   )Жанр: Blues-Rock, Soft Rock, AcousticПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7202E4DA13E266DE9EFDA9F232B86493F532CE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019779   (748561) от 24.05.2016
-
-John Lee Hooker - The Big Soul of John Lee Hooker (Bonus Track Version) (2016) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Francisco
-02. Take a Look at Yourself
-03. Send Me Your Pillow
-04. She Shot Me Down(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1353691AC708A9D004B356A9AFA6B76F0F334D30
 ```
 
 https://mybot314.ru/tekegram_catalog/

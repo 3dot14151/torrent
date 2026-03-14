@@ -1,3 +1,32 @@
+###  Публикация: 1356531   (977533) от 31.01.2020
+
+VA - Рок 2019 Главные Хиты (2020) [MP3|320 Kbps] <Rock, Alternative, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977533.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Acres - Lonely World (4:48)
+2. Alter Bridge - Wouldn't You Rather (3:49)
+3. Animal ДжаZ - Чувства (3:40)
+4. Asking Alexandria - The Violence (3:28)(   Читать дальше...   )Жанр: Rock, Alternative, OtherПродолжительность: 03:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9A0A0D9841ACB1B139BE6C31B3D76C01716DEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356548   (976676) от 01.02.2020
 
 VA - Amphetanarchy: Hard Rock Cafe (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
@@ -716,35 +745,6 @@ VA - Live For Today: Classic Rock 9 (2016) [MP3|320 кб/с] <Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D584A4633384A00E1CFBE74D99A2C103E5CA075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093485   (930001) от 17.01.2017
-
-VA - Русский Рок. Лучшее 2016 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смысловые Галлюцинации - Зверь 2
-02. Крематорий - Супермаркет
-03. Би-2 - Лайки
-04. Lumen - Голоса мира(   Читать дальше...   )Жанр: RockПродолжительность: 01:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE65D55CCC5E7F6EB3B872C66F19A791A43657D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

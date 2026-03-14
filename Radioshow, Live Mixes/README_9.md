@@ -1,3 +1,61 @@
+###  Публикация: 1140663   (654878) от 07.06.2017
+
+Aly & Fila - Future Sound Of Egypt 499 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Thomas & White-Aker - Red Skies (Original Mix)
+02. Ferry Corsten - Blueprint (Original Mix)
+03. DIM3NSION - The Energy (Extended Mix)
+04. Stoneface & Terminal - North Cape (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C2F960FA287EE3578796BE98B770EB7F5AF420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141171   (652552) от 09.06.2017
+
+VA - Ori Uplift - Uplifting Only 226 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emanuele Congeddu & Allam - Redemeer's Sundown
+02. Braulio Stefield - Chain Of Memories
+03. Dj Danie - Summerdreams (Alternate High Remix)
+04. Damian Wasse - In The Sky (Classical Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB20C5196756DE927581F1733E5099BFA229D2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291156   (650688) от 27.03.2019
 
 Daniel Kandi - Live @ Cuckoo's 1st Birthday (26-01-2019)[MP3|320 Kbps] <Trance>
@@ -690,62 +748,6 @@ DJ Kocmoc - Эксклюзивные Хиты Дискотек (MEGAMIX 80-90х)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E788646090BBB51417F368D338E2AFCA3F51C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297280   (582203) от 14.05.2019
-
-VA - Live @ Synergy (Alte Kaserne Zurich, Switzerland) 2019-04-06 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Madwave - Live @ SYNERGY, Alte Kaserne Zurich, Switzerland 2019-04-06 (00:59:50):
-01. Dawnseekers - Gothic Dream (Rene Ablaze Madwave Mix Edit)
-02. F.G. Noise - Drive Out
-03. Manuel Le Saux & Unbeat - Evo(   Читать дальше...   )Жанр: TranceПродолжительность: 07:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3B6DDDB63CE90F59F6FD9B3F1264B4A21EEDCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554044   (579031) от 29.05.2022
-
-Two Friends - Big Bootie Mix Volume 021 (2022-05-23) [MP3|320 Kbps] <Dance, Electro Pop, Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galantis & David Guetta & Little Mix - Heartbreak Anthem w/Dan + Shay - I Should Probably Go To Bed w/The Anxiety & Willow & Tyler Cole - Meet Me At Our Spot w/M83 - Midnight City (Rave Republic Remix) w/The Killers - Somebody Told Me
-02. SM1LO & twoDB ft. Lena Leon - In My Head w/Kelly Clarkson - Because Of You w/Daft Punk - Harder Better (   Читать дальше...   )Жанр: Dance, Electro Pop, PopПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CBD87ECDCC7608026087594B9058769D2A34EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

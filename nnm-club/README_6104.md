@@ -1,22 +1,25 @@
-###  Публикация: 1385182   (800268) от 23.05.2020
+###  Публикация: 1198908   (801841) от 15.01.2018
 
-Волк-якудза: Я убиваю / Okami yakuza: Koroshi wa ore ga yaru / Yakuza Wolf (1972) WEB-DLRip [VO]
+VA - Cosy Winter Lounge Vol.3 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Зарубежное кино
->>Азиатское кино (SD)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800268.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Семейство Химуро контролировало доки в Йокогаме и не спешило становиться частью преступного синдиката «Канто-Сэйкай». Но босс синдиката Идзуми ждать не любил, поэтому и спустил на них людей Ясуо Онумы, пообещав головорезам отдать в будущем долю в порту. И вот семейство Химуро истреблено и утоплено в крови, тема закрыта, но кто-то всё равно начинает истреблять онумцев, (   Читать дальше...   )Производство: Япония / ToeiЖанр: Боевик, криминалРежиссер: Рюити ТакамориАктеры: Сонни Тиба, Хидэо Мурота, Кодзи Намбара, Макото Сато, Яёи ВатанабэПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:27:46
+01.  Euphonic Traveller  -  NYC Christmas Lights 2017 (Acoustic Version With Band)  5:28
+02.  Van  -  I Remember (Original Mix)  9:44
+03.  Marc Hartman  -  The Awakening (Original Mix)  4:25
+04.  Matthew Daniel  -  Lose Your Smile (Original Mix)  2:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B54A67C24B1D8E733420685E663582FBED954967
+magnet:?xt=urn:btih:AE217961DE2DC88F8C3D6A1CEDD1DE748DBCBA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506435   (800267) от 31.10.2021
+###  Публикация: 1199309   (801840) от 15.01.2018
 
-Chrizz Morisson - Magic Worlds: Summer Remix Edition (2018) [AAC|~325 Kbps] <Dance, House>
+Forever Free - Metal is Back (2016) EP [MP3|320 Kbps] <Heavy Metal, Thrash Metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800267.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801840.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chrizz Morisson, Timi Kullai - Here I Go 2018 (Dolls Edit) (3:09)
-02. B.G. The Prince Of Rap, Chrizz Morisson, Timi Kullai, Pamela O'Neal - So Special (Dolls House Remix) (3:27)
-03. Linda Rocco, Lane Mccray, Chrizz Morisson, Andy Stead - Take Me to the River (Dolls Radio Mix) (4:16)
-04. Chrizz Morisson, Timi Kullai, Lightwarrior - Let's Get Up (Randy Norton Edit) (   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:12:24
+01. Metal is Back (04:26)
+02. Two Worlds (03:42)
+03. Cursed Soul (04:31)
+04. Hellboy (03:35)Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:16:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:376433F7505D7521C681B07B5A2AB7B9114F892A
+magnet:?xt=urn:btih:FC81009EFCB37E6C7727180F4A9FF04C78EFB851
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506478   (800266) от 31.10.2021
+###  Публикация: 1199364   (801839) от 15.01.2018
 
-VA - Toxic Lounge Tunes, Vol. 5 (2013) [AAC|~331 Kbps] <Downtempo, Lounge, Chill Out>
+VA - Ori Uplift - Uplifting Only 257 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800266.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - Summer Daze (3:37)
-02. Guenter Haas - Cayo Coco (6:14)
-03. Placid Larry - Sprinkler (4:52)
-04. Barclay & Cream - Natural Thing (Alexander Metzger Mix) (5:16)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:00:30
+01. illitheas - Levity (Intro Mix)
+02. PRE-RELEASE PICK: Eric Senn - Kharon (EXCLUSIVE PREMIERE)
+03. Ross Rayer - Memories (EXCLUSIVE PREMIERE)
+04. Jericho Frequency feat. Emma Chatt - Do You See Me? (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F173C8919E8EFF7F3F8D758039549F0999583ED3
+magnet:?xt=urn:btih:3B04D9D274AA5142DD347E94B5428FFAEF310C66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506420   (800265) от 31.10.2021
+###  Публикация: 1199411   (801838) от 15.01.2018
 
-Chrizz Morisson - Magic Worlds (2021) [AAC|~326 Kbps] <Dance, House>
+ДМЦ (Дороги Меняют Цвет) - Что снится собаке? (2018) Single [MP3|320 Kbps] <Rock>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800265.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801838.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chrizz Morisson, Timi Kullai, Lightwarrior - Let's Get Up (Radio Mix) (4:47)
-02. Chrizz Morisson, Latisha Van Simon - Near Me (Cm Tropical Mix) (3:41)
-03. Chrizz Morisson, Timi Kullai - Here I Go (Radio Mix) (3:23)
-04. Chrizz Morisson, Latisha Van Simon - From Here on Up (Cm Tropical Mix) (3:20)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:10:09
+1. Что снится собаке?Жанр: RockПродолжительность: 00:05:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F99C10E3E4DFC5C6B5B729300C57A0C641AB7A45
+magnet:?xt=urn:btih:5678D38769868D944CA3F51A0832DBAB7488288A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506421   (800264) от 31.10.2021
+###  Публикация: 1199206   (801837) от 15.01.2018
 
-Chrizz Morisson - Universe (2021) [AAC|~330 Kbps] <Dance, House>
+Обійми Дощу - Сон (2017) [MP3|320 Kbps] <Rock>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800264.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801837.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chrizz Morisson, Rick De Hey, Timi Kullai - Blue (Da Ba Dee) (Radio Mix) (3:40)
-02. B.G. The Prince Of Rap, Chrizz Morisson, Timi Kullai - Sugar (House Radio Mix) (3:23)
-03. Chrizz Morisson, Fio - Feel Free (Radio Mix) (3:49)
-04. Chrizz Morisson, Marko Skye - Calling of My Heart (Airplay Radio Mix) (3:44)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:11:54
+01. Остання мить (08:37)
+02. Крила (10:10)
+03. Разом (07:33)
+04. Темна ріка (11:09)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A8380402504CB26E9EA68A536F3A08FB8CEEE7E
+magnet:?xt=urn:btih:62E59AB7EE22DEA63ACE8A843F063AF8CC33C4B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,26 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121172   (800263) от 02.04.2017
+###  Публикация: 1199386   (801836) от 15.01.2018
 
-Отсчет утопленников / Drowning by Numbers (1988) BDRip [H.264/720p]
+VA - Aly & Fila - Future Sound Of Egypt 530 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800263.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801836.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Три женщины с одинаковым именем Сисси Колпиттс решили утопить надоевших им мужей. Они отлично знают, что все сойдет им с рук. Влюбленный во всех троих судебно-медицинский эксперт охотно выпишет им свидетельства о смерти в результате несчастного случая.
-Но, связанный обещанием молчать, он оказывается в «глубокой луже», когда на поверхность начинают «всплывать» свидетели (   Читать дальше...   )Производство: Великобритания, Нидерланды, Film Four International, Elsevier-Vendex Film Beheer, Allarts ProductionЖанр: Драма, КомедияРежиссер: Питер ГринуэйАктеры: Джоан Плаурайт, Джульет Стивенсон, Джоэли Ричардсон, Бернард Хилл, Джейсон Эдвардс, Брайан Прингл, Тревор Купер, Дэвид Моррисси, Джон Роган, Пол МуниПеревод: Профессиональный (многоголосый закадровый)Субтитры: AнглийскиеПродолжительность: 01:58:29
+01. Jorgio Kioris - Linda (Ziger Remix)
+02. Chris Llopis - Platonic Shower (Dmitry Molosh Remix)
+03. Chris Bekker - Klangstunde
+04. POok - Lola(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD7EB5483FA857106F11719EC55B92C9511E1EA1
+magnet:?xt=urn:btih:5F2204A58F0CD0B742137B2AD5BCA669B28DC502
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,26 +169,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506601   (800262) от 31.10.2021
+###  Публикация: 1199213   (801835) от 15.01.2018
 
-Metadatics 1.6.6 fix [En]
+VA - Future Sounds. EDM (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Maureen Sky Jones & DJ Combo  -  I Had A Dream (Stephan F Remix)  4:44
+02.  Geo Da Silva & DJ Combo  -  To My Beat (Original Mix)  3:39
+03.  Turbotronic  -  Show Me The Money (Original Mix)  4:13
+04.  Mr. Pit & Sean Norvis feat. Justine Berg  -  Afraid To Feel (Original Mix)  5:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDACB54FC357EDFB94A76021935E40462056DE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198907   (801834) от 15.01.2018
+
+Hed Kandi - Beach House (2010) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801834.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01 South Street Player - (Who) Keeps changing your mind (Daniel Bovie & Roy Rox Remix)
+02 Choklate - The Tea (The Layabouts Main Vocal Mix)
+03 Christian Hoff & Lily McKenzie - Take You(   Читать дальше...   )Жанр: HouseПродолжительность: 03:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAE50D7BAD9C7BA860D849AFC8DD6FCE8035162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384641   (801830) от 21.05.2020
+
+The Horace Parlan Trio - No Blues 1975 (1992) SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Blues [6:14]
+02. My Foolish Heart [4:58]
+03. Have You Met Miss Jones? [5:08]
+04. A Theme for Ahmad [5:31](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8FC187EDE1E9D8995EE3CAF33C858DE57A5512B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384735   (801829) от 21.05.2020
+
+Трейси Батист | Джамби, духи леса (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коринн Ла Мер ничего не боится. Ни скорпионов, ни вредных мальчишек, ни джамби. Духи леса – это просто выдумка, чтобы пугать детей. Но однажды вечером Коринн забирается в чащу махагонового леса – самого древнего и дикого на острове. А на следующий день в деревне появляется подозрительная женщина: неземная красавица со странными глазами. Все поражены таинственной (   Читать дальше...   )Жанр: Фэнтези, Мистика, Приключения для детейПеревод: Марк ПолещукФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14ED926CD916F11C4E38178D03187CD5940E3FC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384701   (801828) от 21.05.2020
+
+Кирстен Бойе | Тайна на улице Чаек (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801828.jpg" />
+</div>
+
+
+###  Подробнее
+
+На День святого Валентина Тара получила много валентинок: от братьев Пети и Мышонка, от своих подруг Фритци и Юл и одну от… таинственного отправителя! Кто же её написал? Тара решает это выяснить, и для этого ей нужна помощь её лучшей подруги Тинеке. Вот только та заводит дружбу с другими девочками и не хочет помогать Таре! Что же теперь делать?! Получится ли у Тары (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейПеревод: Дарья ЦеловальниковаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E011B8384B790A6AE8E7594A2B099AC092E7C62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384782   (801827) от 21.05.2020
+
+QLab Pro 4 v4.6.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800262.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Metadatics является мощным и продвинутым редактором аудио метаданных. Поддерживает пакетное редактирование наиболее распространенных типов аудио файлов, включая MP3, M4A, AIFF, WAV, FLAC, APE, OGG, WMA, и многие другие.
-Metadatics предоставляет возможности поиска метаданных из интернет-источников, переименование файлов на основе метаданных, или манипулировать метаданными, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2020Разработчик: © 2022 Mark VerstraeteПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 21.05.2020Разработчик: Figure 53, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A952B0218B5BAF57CC25FA0502346E48669A312
+magnet:?xt=urn:btih:E2B1AF5316AF40331374A9D1691B22626650FC21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,51 +334,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121400   (800261) от 02.04.2017
+###  Публикация: 1384700   (801823) от 21.05.2020
 
-Саймон Вайн | Успех – не случайность: Законы карьерного роста (2017) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800261.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Если вы мечтаете о продвижении по службе, эта книга для вас. Если хотите понять, почему везет менее достойным, чем вы, эта книга для вас. Если вы встречаетесь с бесчестностью коллег и не знаете, как следует поступить в сложной ситуации, книга поможет и в этом.Карьера, как и жизнь в целом, – это игра, в которой выигрывает тот, кто наберет больше очков, (   Читать дальше...   )Жанр: Карьера. Поиск работыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4210802D4D144E202E94FDEE1718D6CB49F7DA2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506461   (800260) от 31.10.2021
-
-SyncTime 3.7 [En]
+iShowU Studio 2 v2.2.3 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800260.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SyncTime - самое простое решение для синхронизации ваших файлов. Вы когда-нибудь думали, чтобы вы могли легко обновлять все свои резервные копии, распределенные по многим устройствам? SyncTime просто сделает это. SyncTime способен на очень много вещей, но так прост в использовании. От ручной, плановой или полностью автоматической синхронизации до фоновой синхронизации, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2021Разработчик: © 2021 DESAIREMПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+Удобный редактор видео поможет вам записывать видео и аудио контент, а затем обработать результаты, сделать свои собственные аннотации, и многое другое.
+
+iShowU Studio предоставляет эффективные инструменты для редактирования видео в стильной, организованной среде, и направлена на оказание помощи для создания качественных проектов, не тратя слишком много времени. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.05.2020Разработчик: shinywhitebox ltdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F279B48122358D527A179BA9A260EB0E8171BAB
+magnet:?xt=urn:btih:06B0D3B0541B13667CA0731A2A6B433DC4BCC47F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,25 +362,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121402   (800259) от 02.04.2017
+###  Публикация: 1505892   (801822) от 29.10.2021
 
-Аисты / Storks (2016) BDRip [720p] ATV
+VA - Chillout Orange, Vol. 5: Relaxing Chillout Vibes (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800259.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Аисты приносят детей... или, во всяком случае, раньше приносили. Теперь же они занимаются доставкой посылок для огромного сайта интернет-продаж. Джуниор, лучший аист в курьерской компании, должен пойти на повышение, но он случайно активирует машину для создания детей и получает очаровательную, но совершенно незапланированную девочку.Пытаясь доставить эту «посылку» (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Николас СтоллерАктеры: Энди Сэмберг, Кэти Краун, Келси Грэммер, Дженнифер Энистон, Тай Бурелл, Антон Старкман, Кигэн-Майкл Ки, Джордан Пил, Дэнни Трехо, Стив Гликман, Кристофер Николас СмитПеревод: Дублированный (Blu-ray 3D NORDiC)Субтитры: Русские форсированные, Русские, АнглийскиеПродолжительность: 01:26:57
+01. Clelia Felix - Ocean Breeze (Original Mix) (2:58)
+02. Beamy - Colours (5:05)
+03. Living Room - Neo (3:41)
+04. Steen Thottrup - To You (Original Mix) (5:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E106D6953606BC782EE2681EFAD6A791E059C6C4
+magnet:?xt=urn:btih:874F0F45E4AA6D031C04A5C00BF9B6CFE7B6B757
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -272,25 +391,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121350   (800258) от 02.04.2017
+###  Публикация: 1505898   (801821) от 29.10.2021
 
-Вечерний квартал 95 (2017.04.01) WEB-DLRip (выпуск 97. 8 марта)
+VA - Free Floating: Chillout Your Mind (2021) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Архив торрентов
->>Архив Юмора
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800258.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ребята из "Вечернего квартала" продолжают устанавливать свои правила. И ни авторитет звезд шоу-бизнеса, ни статус влиятельных политиков, ни сам "президент Украины" не могут этому помешать. Здесь правила одни для всех, и "квартальщики" внимательно следят за тем, чтобы все "забавные законы" соблюдались. Злостных правонарушителей (   Читать дальше...   )Производство: "Студия 95 квартал", Телеканал "Интер"Телекомпания: 1+1Жанр: ЮморРежиссер: Владимир ЗеленскийАктеры: Владимир Зеленский, Юрий Крапов, Елена Кравец, Евгений Кошевой, Сергей Казанин, Александр Пикалов, Юрий КорявченковСубтитры: ОтсутствуютПродолжительность: 01:19:16
+01. Peter Pearson - To the Hills (Original Mix) (4:36)
+02. Faro - Subtle Land (5:27)
+03. Michael e - Let Me In (Original Mix) (6:17)
+04. Castlebed - Violet (3:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:04:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46B3B0075764E6AAE9A8EBF41BBCD53F99435353
+magnet:?xt=urn:btih:8389F5F946EB6A9A38327B21570FEE678497D97D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -298,26 +420,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506454   (800257) от 31.10.2021
+###  Публикация: 1505921   (801820) от 29.10.2021
 
-Find Any File (FAF) 2.3.2 b4 [Multi]
+Konrad Paszkudzki Trio - Isn't Romantic: Richard Rodgers Song Book (2017) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800257.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2021Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
+01. Everything I've Got [4:30]
+02. Glad To Be Unhappy [4:39]
+03. I Could Write A Book [7:08]
+04. Isn't It Romantic [3:39](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:53:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5757FD2FFC400BC0621F7BE544B1F7332F39BF7B
+magnet:?xt=urn:btih:BB580B655A6B44F60ED23DEFE98F860EA92E4904
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,25 +449,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506471   (800255) от 31.10.2021
+###  Публикация: 1505997   (801819) от 29.10.2021
 
-Coherence X 4.0.3 [En]
+Dami Im - My Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
->>Архив торрентов
->>Архив 4Apple
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800255.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Coherence X позволит превратить фактически любой веб сайт в приложение на вашем Mac. Каждая программа создается полностью независимой, изолированной и имеет опции настройки. Основываясь на Chrome, приложение отлично работает фактически со всеми веб сайтами и позволяет вам переносить свои расширения и профили. Выберите определенный тип приложения и создавайте бесчисленное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2021Разработчик: © 2021 BZG Inc. and Binyamin Goldman.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+01 - Pray (00:03:53)
+02 - Scared to Talk To You (00:03:09)
+03 - Lonely Cactus (00:03:11)
+04 - Marching On (00:03:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CEF5CBC497AF3339C312B307F9C8E3084381A19
+magnet:?xt=urn:btih:B6664DD5763864228703DCF004DBEB857A4D16E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,54 +478,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121196   (800254) от 02.04.2017
+###  Публикация: 1505974   (801818) от 29.10.2021
 
-Стрип-клуб / Peelers (2016) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владелица стрип-клуба маленького городка должна защитить свой бар, своих танцовщиц и свою жизнь, когда зараженные посетители заявляются на ночь закрытия клуба и устраивают ад на ЗемлеПроизводство: Канада, Pounds (LBS) PicturesЖанр: УжасыРежиссер: Севе ШелезАктеры: Каз Один Дарко, Мэдисон Дж. Лус, Камерон Дент, Эл Дэйлз, Момона Комагата, Кирсти Питерс, Никки Валлин, Виктория Гомес, Рафаэль МатеоПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:36:31Реклама: Присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2F66E45F17423CF64B57D14AC6083D5AE736B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506486   (800253) от 31.10.2021
-
-Painters of Ether - Painters of Ether (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Heavy Power Metal>
+Burial - Inner Gateways to the Slumbering Equilibrium at the Center of Cosmos (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom-Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800253.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801818.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Defenders of Lorenia (12:00)
-02. Euterpe (05:31)
-03. Silent Sinners (06:19)
-04. Demon Hunter (06:38)(   Читать дальше...   )Жанр: Symphonic, Heavy Power MetalПродолжительность: 01:05:23
+01 - The Curse of the Unbornlike God (00:08:04)
+02 - Halls of the Formless Unraveler (00:09:56)
+03 - Absent Visions Conceive Unspeakable Beings (00:05:38)
+04 - Dark Womb of Outern Creation (00:06:14)(   Читать дальше...   )Жанр: Death, Doom-MetalПродолжительность: 00:43:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F323D7A2E3B2E77A44E23DA35048BB67D1290FDC
+magnet:?xt=urn:btih:A94795ACE0BA668DC689713C0AB9573508174E5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,109 +507,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121209   (800252) от 02.04.2017
+###  Публикация: 1506037   (801817) от 29.10.2021
 
-Забытая женщина (2017) WEB-DL [H.264/1080p-LQ] (серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя неделю после трагической гибели Анатолия Ивановича его сын Сергей переживает новый шок. Он получает письмо от матери, которую все считали давно умершей. Мать рассказывает Сергею, что его отец бросил её, безнадежно больную туберкулёзом, почти тридцать лет назад. Однако она выжила, за долгие годы испытала много невзгод и вот теперь решила найти сына. Сергей (   Читать дальше...   )Производство: Россия, Украина / ЭнерджифилмЖанр: мелодрама, детективРежиссер: Денис ЕлеонскийАктеры: Ирина Розанова, Александр Игнатуша, Алексей Морозов, Анна Миклош, Артур Ваха, Максимиллиан Имас, Владимир Ямненко, Нина Набока, Наталья Кленина, Станислав Москвин и др.Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4FB602E6B4BB0AFC9B914BED953B818559AD89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506449   (800251) от 31.10.2021
-
-VA - Toxic Lounge Tunes, Vol. 4 (2013) [AAC|~326 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e - Can See the Light in Her Eyes (4:50)
-02. Johannes Huppertz - Morning Star (4:22)
-03. Cardinal Zen - Rain and Snow (4:19)
-04. Weathertunes - Smoke and Mirrors (3:48)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1137F7D590D9D1DA43EB2D622E792287B62E0D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120497   (800250) от 02.04.2017
-
-Martian Auctions | 6500 Woodworking Projects (2004) [PDF] [En]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800250.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге содержится более 1000 интересных проектов изделий из древесины с подробными описаниями, иллюстрациями и чертежами, описано производство поделок от игрушек для новорожденных до строительства дома.Жанр: Работы по деревуФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38B83B768498584608E0AC67B1B217D8DD3F2CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506622   (800249) от 31.10.2021
-
-Skyclad - Vintage Whine (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Rage - Full Moon In St. Petersburg (2007) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800249.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801817.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kiss My Sweet Brass 00:31
-02. Vintage Whine 04:26
-03. On with Their Heads! 04:51
-04. The Silver Cloud's Dark Lining 03:21(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:50
+01. Intro
+02. Speak of the Dead
+03. No Fear
+04. Sent By the Devil(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:13:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3505CD872104653DE306BD3B6717F21F42CE137
+magnet:?xt=urn:btih:CFE8E20993F81645B707EC7DB9621D94D215CBF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,78 +536,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 824473   (800248) от 02.04.2017
+###  Публикация: 1505910   (801816) от 29.10.2021
 
-Г.Г. Ястребов и др. | 50 религиозных идей, которые никогда не понравятся Богу (2009) [PDF, DJVU, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800248.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге увлекательно и доступно рассказано о самых распространенных мифах, связанных с православием, католичеством, протестантизмом, иудаизмом и язычеством. Впервые под одной обложкой собрано описание ключевых религиозных мифов. Есть мифы забавные, есть мифы, за которыми стоит трагическая история. Все эти ложные религиозные идеи ежедневно мешают нам жить в мире (   Читать дальше...   )Формат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D01E4C108B8B24566A5DFCEEF1935350E7CA81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506456   (800247) от 31.10.2021
-
-Duplicate Detective 2 v1.0.13 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Detective 2 - это наше новое интеллектуальное приложение для быстрого поиска и удаления ненужных дубликатов файлов, таких как фотографии, документы, видео, папки и многое другое, всего за несколько кликов.
-Благодаря нашим усовершенствованным алгоритмам сопоставления хешей и фильтрации вы можете быть уверены, что с ваших накопителей будут удалены только (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2021Разработчик: © Copyright 2021 FIPLAB LimitedПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88174DBFCA3AB71808601430009BA084575CBE69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506518   (800246) от 31.10.2021
-
-UltraCompare 21.00.0.40 fix [Multi]
+Exposure Software Blow Up 3 v3.1.4.391 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800246.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801816.jpg" />
 </div>
 
 
 ###  Подробнее
 
-UltraCompare — это текстовый редактор, оптимизированный для работы одновременно с несколькими файлами, с целью нахождения отличий в этих файлах. Поддерживает построчное сравнение (Binary Compare) отдельных файлов. В строке состояния отображается количество различных блоков, также предусмотрена возможность поиска различий в папках путём рекурсивного сравнения директории (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.08.2021Разработчик: IDM Computer SolutionsПоддерживаемая ОС: MacOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+Exposure Software Blow Up плагин для Adobe Photoshop, Elements и Lightroom. Blow Up производит увеличение до 3600% без появления ступенчатых артефактов и свечений. Высококачественное изменение размеров изображений, лучшее чем бикубическая интерполяция и при изменении размера изображения, сохраняет гладкие четкие края и линии.
+Blow Up работает с Photoshop, Elements, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28F5DD31728C21C9042E47192C3D8C6A32493142
+magnet:?xt=urn:btih:4D74477FB6340FA32EB947F81D3D0F0EF71D321E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,28 +563,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506441   (800244) от 31.10.2021
+###  Публикация: 1505891   (801815) от 29.10.2021
 
-VA - Toxic Lounge Tunes, Vol. 2 (2011) [AAC|~325 Kbps] <Downtempo, Lounge, Chill Out>
+VA - Chillout Orange, Vol. 4: Relaxing Chillout Vibes (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800244.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801815.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Guenter Haas - Aì Fú Lín (6:18)
-02. Velvet Lounge Project - Contigo (3:52)
-03. Redlounge Orchestra - Quiet Earth (5:40)
-04. Aimée Sol - Daylight (100 Days of Lightness) (4:10)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:18:24
+01. Lounge Groove Avenue - Soulstream (2:43)
+02. Chillson, Marc Hartman - The Rosegarden (5:10)
+03. The Soul Crusaders - One Last Try (5:42)
+04. Simply Chill - Wish You Were Here (3:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:07:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12CE3D39370B1B3879B3EB2B793042A3FB6B9092
+magnet:?xt=urn:btih:F7F194A010CC296D7C1219DA52C70E43800A5925
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,26 +592,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506600   (800243) от 31.10.2021
+###  Публикация: 1505900   (801814) от 29.10.2021
 
-Fresh 4 v4.0.4 fix [En]
+Hazell Dean - The Dean & Ware Collection, Vol. 1 (2021) [AAC|~311 Kbps] <Pop, Disco>
 
->>Программы для macOS
->>Утилиты для macOS
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800243.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Правильная организация файлов – залог комфортной работы. Это простая истина, которую стремится воплотить большинство пользователей. Но тех, кто по тем или иным причинам так и не смог выбрать для себя подходящую модель структурирования контента, может обратить свое внимание на приложение Fresh.
-Приложение состоит из двух панелей: верхняя отображает иконки недавно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.01.2021Разработчик: IronicsoftwareПоддерживаемая ОС: macOS 10.13.2 +Язык интерфейса: Английский
+01. Because the Night (4:24)
+02. This Is My Life (5:59)
+03. We Belong (6:23)
+04. Heavenly (6:15)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:09:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06144D2B29FC3274A953523C76AFB5CC49E7BAD4
+magnet:?xt=urn:btih:2A58C9BAEAD49F8A3FE701BD8FC15DDA3664268C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,52 +621,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121598   (800242) от 02.04.2017
+###  Публикация: 1505917   (801813) от 29.10.2021
 
-Кровные узы / Blood Ties (2013) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йорк, 1974 г. После многих лет, проведенных в тюрьме по обвинению в убийстве, 50-летний Крис освобожден за примерное поведение. У дверей тюрьмы его поджидает младший брат Фрэнк - многообещающий полицейский. Братьев разделяет не только выбор «карьеры», но и взгляды на жизнь, и детское соперничество... Фрэнк надеется, что Крис изменился, и хочет дать ему шанс: (   Читать дальше...   )Производство: Франция, СШАЖанр: Триллер, драма, криминал, экранизацияРежиссер: Гийом КанеАктеры: Мила Кунис, Ноа Эммерик, Маттиас Шонартс, Марион Котийяр, Лили Тейлор, Джеймс Каан, Доменик Ломбардоззи, Билли Крадап, Зои Салдана, Клайв ОуэнПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 02:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CDE24C53C90B868A2C5922FDCB9779C40FDF06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506623   (800241) от 31.10.2021
-
-Dropshare 5.16 [En]
+Exposure X7 v7.0.2.119 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800241.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+Редактор фотографий для творческих людей, который обрабатывает каждый шаг вашего процесса. От передачи  к организации и редактированию,  упрощает выполнение повседневных задач и предоставляет богатый набор инструментов для разработки красивых фотографий. Exposure  вписывается в любой рабочий процесс. Exposure легко интегрируется с Photoshop и Lightroom, а со своей новой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: Exposure Software, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84AC24DEF3B62FBAC4EEFD793A242EB7149EC0EE
+magnet:?xt=urn:btih:182343B90B7A794EA8DAE9F8FDDFCD0A8A37B507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505894   (801812) от 29.10.2021
+
+VA - Chillout Orange, Vol. 7: Relaxing Chillout Vibes (2021) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Kay, Samanta Liza - Summer Love / You Are Still Here (Ibiza Mix) (4:21)
+02. Martin Hiska - Intimate (4:28)
+03. The Soul Crusaders - Heroes (5:46)
+04. Ian Otta - Flowerfields (5:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B16611B2F2C490CA4EE31D8AADA001D7D56415C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505893   (801811) от 29.10.2021
+
+VA - Chillout Orange, Vol. 6: Relaxing Chillout Vibes (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - La Nuit (Original Mix) (5:46)
+02. The Soul Crusaders - In My Dreams (7:31)
+03. Eivissarts - Solaris (Original Mix) (5:05)
+04. Marga Sol, Digby Jones - What I Need (Instrumental Mix) (4:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DCE14889BF6D23E0673257437E87C6440ACBF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506055   (801810) от 29.10.2021
+
+Task Office 6.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подключите все свои календари к Task Office. Двусторонняя синхронизация работает с Apple iCal, Google Calendar, Exchange, Yahoo, Outlook и другими. После того как вы настроите соединение, все будет обновляться автоматически.Тип издания: macOS SoftwareРелиз состоялся: 29.10.2021Разработчик: DK ConsultingПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03D7644D7F025ACA9618E45DCEA577A23853C23
 ```
 
 https://mybot314.ru/tekegram_catalog/

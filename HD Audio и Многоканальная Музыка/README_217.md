@@ -1,3 +1,148 @@
+###  Публикация: 1720710   (57615) от 04.05.2024
+
+Michael Jackson - Thriller (1982) 2008 [FLAC 24/176.4|Lossless|WEB-DL|tracks] <Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57615.jpg" />
+</div>
+
+
+###  Подробнее
+
+[6:04] 1. Wanna Be Startin' Somethin' (Album Version)
+[4:21] 2. Baby Be Mine (Album Version)
+[3:43] 3. The Girl Is Mine (with Paul McCartney) (Album Version)
+[5:59] 4. Thriller (Album Version)(   Читать дальше...   )Жанр: Soul, PopПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D7F7EAE34CFDEBA52179C93E0675BFD3A6FA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720831   (57532) от 05.05.2024
+
+Michael Jackson - Bad (Remastered) (1987) 2012 [FLAC 24/96|Lossless|WEB-DL|tracks] <Soul, Funk, R&B, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57532.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:08] 01. Bad (2012 Remaster)
+[4:59] 02. The Way You Make Me Feel (2012 Remaster)
+[4:03] 03. Speed Demon (2012 Remaster)
+[3:53] 04. Liberian Girl (2012 Remaster)(   Читать дальше...   )Жанр: Soul, Funk, R&B, PopПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2779AAAA50329C9E2297874308AEB9CB1790FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721337   (57425) от 06.05.2024
+
+Scorpions - Virgin Killer (1976) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57425.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Pictured Life 00:03:22
+2 Catch Your Train 00:03:34
+3 In Your Park 00:03:43
+4 Backstage Queen 00:03:11(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44809E5CF877F2735F204F2D52117ADB7C9DAF5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721333   (57392) от 06.05.2024
+
+Scorpions - In Trance (1975) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57392.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Dark Lady 00:03:26
+2 In Trance 00:04:43
+3 Life's Like a River 00:03:49
+4 Top of the Bill 00:03:25(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79CBDED38B9429478A18AE58D87942B24C06064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721330   (57388) от 06.05.2024
+
+Scorpions - Fly To The Rainbow (1974) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57388.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Speedy's Coming 00:03:34
+2 They Need a Million 00:04:50
+3 Drifting Sun 00:07:40
+4 Fly People Fly 00:05:02(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB50A8CD2EA6E1B3FD333639814107B4F16A0865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721411   (57342) от 07.05.2024
 
 Creedence Clearwater Revival - The Complete Studio Albums (1968-1972) Compilation, Remastered, 7CD Box-set 2014 [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock, Rock>
@@ -598,152 +743,6 @@ Pet Shop Boys - A new bohemia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Éle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6E623A8AED5C899145283249C53B05EE2A91D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727750   (54153) от 06.06.2024
-
-Color for Shane - End (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Public [00:03:36]
-02. Why Did I Ever Say Yes? [00:02:24]
-03. Currency [00:02:57]
-04. Hours [00:03:21](   Читать дальше...   )Жанр: Alternative Rock, Garage RockПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F609EB4C02EC3030E7621CC8FAE59EC8FCCB9983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728219   (54145) от 06.06.2024
-
-Herb Alpert and The Tijuana Brass - Two Albums: !!Going Places!!/Early Alpert (1965, 1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Latin Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54145.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Great Manolete (La Virgen De La Macarena)
-(Calero, Montede)
-A2 Spanish Harlem
-(Leiber, Spector)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E59A8B7739AFA6FE44B74958BA9A31E33F60376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728152   (54141) от 06.06.2024
-
-The Arcane Order - Studio Albums (4 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54141.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Arcane Order - датская метал-группа из Колдинга. Первоначально сформирована в 2000 году под названием Scavenger.2006 - The Machinery Of Oblivion
-2008 - In The Wake Of Collisions
-2015 - Cult Of None
-2023 - Distortions From CosmogonyЖанр: Melodic Death/Thrash MetalПродолжительность: 03:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7404F672808400922D24EFE8BCFD5B94FD99B84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728374   (54140) от 06.06.2024
-
-elkka - Prism of Pleasure (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Deep House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break all my walls down (2:45)
-02. Right Here (3:50)
-03. Make Me (3:44)
-04. Crushhh (3:49)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 00:41:35
-https://elkka.bandcamp.com/album/prism-of-pleasure
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F248F5B357536258686480B2CB872FA999E6B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558264   (54117) от 07.06.2024
-
-Godsmack (& Sully Erna) - Studio Albums (11 releases) (1998 - 2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, hard rock, nu metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Godsmack — американская рок-группа, образованная в 1995 году в городе Лоуренс (Массачусетс). В состав группы входят вокалист и гитарист Салли Эрна, гитарист Тони Ромбола, бас-гитарист Робби Меррилл и барабанщик Шеннон Ларкин.1998 - Godsmack
-2000 - Awake
-2003 - Faceless
-2006 - IVЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 09:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530EACE44110B1C828F8491AE2D00E902917651B
 ```
 
 https://mybot314.ru/tekegram_catalog/

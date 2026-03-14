@@ -1,3 +1,90 @@
+###  Публикация: 1400846   (715273) от 07.08.2020
+
+Catherine Russell - Alone Together (2019) Dot Time Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone Together [4:10]
+02. You Turned the Tables on Me [3:41]
+03. When Did You Leave Heaven? [5:05]
+04. Early in the Morning [4:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9960D2ED96CEE56F6E6C2250439A6E5D432356D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893291   (715209) от 28.04.2015
+
+Paul Hardcastle - The Chill Lounge  Volume 1 (2012) [FLAC|Lossless]<Nu Jazz, Lounge, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return Of The Rainman
+02. Solar Sky (Ibiza Remix)
+03. Through The Looking Glass
+04. East To West(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChilloutПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B4D99B760C7ED892ABF9C4D6E222291E9EBFA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400845   (715193) от 07.08.2020
+
+Baptiste Herbin - Vista Chinesa (2020) Space Time Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vista Chinesa [7:06]
+02. Transfigura [6:30]
+03. Meu sonho [5:53]
+04. Gemeos [6:27](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5D8C8309D47AC6CABA581CF265DD9ACA4F1363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400849   (714995) от 07.08.2020
 
 Smooth Jazz Music Set - Love in a Hotel Room: Compilation of Sexy Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Instrumental, Easy Listening>
@@ -658,93 +745,6 @@ Jimmy Cobb's Mob - Cobb's Groove (2003) Universal [APE|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:670D1C714188806CBD21D66DD41937DBAF59FE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130574   (710822) от 04.05.2017
-
-Don Byas - Complete 1946-1951 European Small Group Master Takes (2001) 3CD, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710822.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Working Eyes [03:00]
-02. Gloria [03:08]
-03. Peanut Butter Blues [02:53](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 02:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26D8C423CCF9AD0E0BAA77D8020B50B607D2A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131089   (710818) от 04.05.2017
-
-Buster Williams Quartet - Live At The Montreux Jazz Festival 1999 (2008) TCB Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokudo [09:54]
-02. The More I See You [13:46]
-03. Announcement [01:15]
-04. You And The Night And The Music [12:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB066D850FFC50D71BEBB92D8E514529BC3D47D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130814   (710794) от 04.05.2017
-
-Angelo Debarre & Ludovic Beier - Swing Rencontre (2002) Marianne Melodie [FLAC|Lossless|tracks + .cue] <Gypsy, Swing, Jazz Manouche>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Will Never Be Another You [03:43]
-02. Swing 42 [03:32]
-03. Manoir de Mes Reves [05:59]
-04. Dinette [03:36](   Читать дальше...   )Жанр: Gypsy, Swing, Jazz ManoucheПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:016084A9ACB18B9066D43E04D4B41DD4C4DA050D
 ```
 
 https://mybot314.ru/tekegram_catalog/

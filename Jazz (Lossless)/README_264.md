@@ -1,3 +1,90 @@
+###  Публикация: 1425539   (220977) от 21.11.2020
+
+The Thad Jones / Mel Lewis Orchestra - The Complete Solid State Recordings of The Thad Jones / Mel Lewis Orchestra (1966 - 1970) 1994, 5CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop ...
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220977.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. ABC Blues [12:57]
+02. Kids Are Pretty People [5:47]
+03. Don't Ever Leave Me [4:35](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 04:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845357079A4F27B165B1312280AAA7D66368DB1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425540   (220922) от 21.11.2020
+
+Bill Evans - Trio 64 (1963) 1997, Verve Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Lulu [3:52]
+02. A Sleepin' Bee [5:30]
+03. Always [4:03]
+04. Santa Claus is Coming to Town [4:25](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 01:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717991350B802487AC86DE5CEFE808EB5765831B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585527   (220833) от 23.10.2022
+
+Marian McPartland - On 52nd Street (1953) 2002, Savoy Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Foggy Day [3:07]
+02. The Lady Is a Tramp [3:48]
+03. I've Got the World on a String [4:18]
+04. Manhattan [4:03](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB255E8969CE6FABAD511B3A24AF705C324512B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585627   (220698) от 23.10.2022
 
 Sergio Mendes & Bossa Rio - Voce Ainda Nao Ouviu Nada! (1964) 2002, Dubas Musica [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin Jazz>
@@ -658,93 +745,6 @@ The Ray Conniff Singers - Christmas With Conniff (1959) 1990, Columbia[FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E840FE9B94F5027FECE09C2D0597BF3BB290B7AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343374   (218819) от 06.12.2019
-
-Jim Stahlhut - Exit 228 (2013) Self-Released [FLAC|Lossless|image + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eiderdown [9:19]
-02. Bossa de Troia's [9:29]
-03. How Deep Is the Ocean [7:31]
-04. Exit 228 [5:26](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1656F6B65CC142B148583333599AACF1F984E105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083658   (218674) от 19.12.2016
-
-VA - Christmas Favorites (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Folk, Pop, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vince Guaraldi - Linus And Lucy [00:03:05]
-02. Andy Williams - The Most Wonderful Time Of The Year [00:02:37]
-03. Barenaked Ladies - God Rest Ye Merry Gentlemen/We Three Kings [00:03:26]
-04. Erich Kunzel - Sleigh Ride [00:02:52](   Читать дальше...   )Жанр: Ambience, New AgeПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14087AD85D8FC88561BF6189811061D540C99425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269786   (218364) от 16.12.2018
-
-The Power Quintet - High Art (2016) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look At Here [6:50]
-02. Heard's Word [5:57]
-03. Sage [4:03]
-04. Mr. Wiggleworm [7:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1993CA63539ED7CFA90B4FE7A372A422F33CA340
 ```
 
 https://mybot314.ru/tekegram_catalog/

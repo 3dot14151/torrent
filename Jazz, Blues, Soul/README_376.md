@@ -1,3 +1,179 @@
+###  Публикация: 1627311   (255023) от 19.04.2023
+
+The Curse of K.K. Hammond - Death Roll Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swamp Thing (0:17)
+02. Death Roll Blues (feat. David & the Devil) (5:16)
+03. What's the Weatherman Done? (4:11)
+04. Anhedonia (5:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBA2979C2E34C21FD245403415648E90575CFE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627803   (254991) от 20.04.2023
+
+Gary Moore - After Hours (1992) Japanese Edition, Reissue, 2023, Universal [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254991.jpg" />
+</div>
+
+
+###  Подробнее
+
+После напряжённого тура в 1990 году Мур записывает альбом «After Hours», который также как и его предшественник был выдержан в стилистике блюз-рока, но с большим влиянием соула и с добавлением духовой секции, игравшей в стилистике соул. Несмотря на то, что альбом получился очень похожим на «Still Got The Blues», его успех был скромнее.
+
+В After Hours вошли как оригинальные (   Читать дальше...   )01. Cold Day in Hell
+02. Don’t You Lie to Me (I Get Evil)
+03. Story of the Blues
+04. Gary Moore & B.B. King / Since I Met You Baby(   Читать дальше...   )Жанр: BluesПродолжительность: 01:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E048BE309C6CE5BC2EDE7ED5FCC34B8FCC28B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629277   (254778) от 26.04.2023
+
+The Phil Woods Quartet - 'More' Live (1979) 1995, Genes [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milestones [10:43]
+02. Eiderdown [13:11]
+03. Strollin' [11:04]
+04. See Hunt & Liddy [10:29]Жанр: Post-BopПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CB90D2C457F31C9CCBF52383BFBCD87C16CAF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629274   (254777) от 26.04.2023
+
+Woody Herman & His Bands - Their Finest Albums (1952 - 1963) 4CD, 2022, Enlightenment [FLAC|Lossless|tracks + .cue] <Swing, Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Brothers [3:35]
+02. Like Some Blues Man [10:04]
+03. Skoobeedoobee [4:35]
+04. Monterey Apple Tree [10:34](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 04:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E5A02499DE2AE3AAF80C290A8A15ABDE546179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629662   (254753) от 27.04.2023
+
+Melani L. Skybell - Through The Years (1998) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'd Be So Nice to Come Home To [3:41]
+02. These Foolish Things [4:40]
+03. Love Is Here to Stay [3:57]
+04. Close Your Eyes [4:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2070D0DF23D0B23903D32536D3ECE69425B0F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836712   (254181) от 12.11.2025
+
+Fernando Noronha & Black Soul - Ain't No Hiding From The Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When You Get Love (3:32)
+02.  Broken (4:18)
+03.  Hey Now (3:34)
+04.  Highway 61 (3:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1519ADB8B9EAC9A12AB61BE1F0403310C865C087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 658217   (254146) от 12.11.2025
 
 Big Jim Slade - This is Delicious (2008) [FLAC|Lossless]<Blues>
@@ -613,180 +789,6 @@ Mike Bourne Band - Kansas City O'clock (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6838548951DBE32E93A911B972374E4BFAED10D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835447   (250851) от 06.11.2025
-
-Sugar Ray & The Bluetones - Blues from Sibculo (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  No More Chances (3:01)
-02.  High and Lonesome (4:09)
-03.  Mean Old World (5:35)
-04.  Blind Date (5:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C36D12A016A165C9DF293FC282ABF69CACD3130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835456   (250825) от 06.11.2025
-
-The Vibeliners - Strings In Motion (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wind Between Strings (2:28)
-02.  Silver Threads (4:05)
-03.  Strings In Motion (3:39)
-04.  The Shape Of Quiet (3:14)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:526E460989A6CC495F1FC76DFD545930B576BF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835457   (250821) от 06.11.2025
-
-True Strays - Never Ending Sunset (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  LIKE TOM HARDY (5:18)
-02.  LIGHT AND SHADE (3:46)
-03.  SINNER (5:36)
-04.  YOUNG BLOOD (3:22)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719C072E82631BB86160A6AE9157DC5923840D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835458   (250819) от 06.11.2025
-
-Zoe Schwarz and Rob Koral - Colourful House (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Venus Ain’t So Far Away (6:00)
-02.  Your Love Hurts (5:17)
-03.  What Can I Do (3:45)
-04.  House of Colours (6:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2C984732DAB493527793E9EB38ADBF74ED6E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834725   (250493) от 04.11.2025
-
-Alma Micic & Eric Alexander - Lilac Wine 〜Tribute to Helen Merrill (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You'd Be So Nice To Come Home To (5:11)
-02.  Lilac Wine (4:36)
-03.  All Of Me (4:34)
-04.  Comes Love (4:22)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F786E2BF67098DCF7EFBF8AD049F9068CEC45F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834726   (250492) от 04.11.2025
-
-Keiko Lee - KEIKO LEE sings Super Standards 3 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blue Skies (4:49)
-02.  Light Of Love (5:57)
-03.  Love Me Tender (5:06)
-04.  Gone too Soon (3:33)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:114
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41C9DE4D6597FF3830F6AF6BF870DFD632A5434
 ```
 
 https://mybot314.ru/tekegram_catalog/

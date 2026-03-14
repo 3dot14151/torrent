@@ -1,3 +1,148 @@
+###  Публикация: 1694328   (121102) от 24.01.2024
+
+Akkerhaugen Raid - Red Filipino Viper (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friday Night (2:37)
+02. Get On Top (3:34)
+03. Happy Anyway (5:13)
+04. Don't Call Me Up (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E21C7804AB1CDB5FE52527E466F9C5D9FF16CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694351   (121101) от 24.01.2024
+
+Carnivore - Carnivore (1995)[FLAC|24/96|tracks|Vinyl-Rip]  <Speed, Thrash Metal, Crossover>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121101.jpg" />
+</div>
+
+
+###  Подробнее
+
+A01. Predator {04:31}
+A02. Carnivore {03:22}
+A03. Male Supremacy {07:31}
+A04. Armageddon {04:13}(   Читать дальше...   )Жанр: Speed, Thrash Metal, CrossoverПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA458C00D10AD82E5DC37E425FAC9FB0A0C4648B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694563   (120982) от 25.01.2024
+
+Dead by April - The Affliction (2024) [FLAC 16/44.1, 24/48|Lossless|WEB-DL|tracks] <Melodic Metalcore, Modern Metal, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swarm Mode
+02. My Light
+03. Outcome (feat. Smash Into Pieces & Samuel Ericsson)
+04. Hurricane (feat. The Day We Left Earth)(   Читать дальше...   )Жанр: Melodic Metalcore, Modern Metal, ElectronicПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD179C2E80A6B805A833DB3CBE6E0CEBA1F6AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694440   (120956) от 25.01.2024
+
+The New Day - Subtronic Symbiosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Post-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Never Know (5:00)
+02. I (4:07)
+03. Scars (3:20)
+04. Haunt Me (4:15)(   Читать дальше...   )Жанр: Rock, Post-PunkПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A33C45176C887009FF31971008517A7A97DA9D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694558   (120951) от 25.01.2024
+
+Dead Poet Society - Fission (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock, Indie Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5:29:45
+02. Running In Circles
+03. Hurt
+04. How Could I Love You?(   Читать дальше...   )Жанр: Alt.Rock / Indie Rock / Blues RockПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D6A1E4EF6F1641A546443EE70F2D65EBE3EC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694556   (120950) от 25.01.2024
 
 Caligula's Horse - Charcoal Grace (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
@@ -600,151 +745,6 @@ Cognizance - Phantazein (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Technical 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD9670441D28AE0F61C487B350FA9FDFC7DC4ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695252   (120449) от 28.01.2024
-
-Mitch Ryder - The Roof Is On Fire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Betty's Too Tight (00:05:41)
-02 - Tough Kid (00:06:42)
-03 - Subterranean Homesick Blues (00:05:14)
-04 - Bang Bang (00:04:07)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B285F7865134F5F0133897713502BD29878F933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695119   (120430) от 28.01.2024
-
-Bobby Darin - Born Walden Robert Cassotto (1968) [FLAC 24/192|Lossless|WEB-DL|tracks] <Folk-Rock, Country Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120430.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Questions
-2. Jingle Jangle Jungle
-3. The Proper Gander
-4. Bullfrog(   Читать дальше...   )Жанр: Folk-Rock, Country FunkПродолжительность: 00:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B329A64D5AF84BC1133524AAB09A6738F6C5351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695280   (120427) от 28.01.2024
-
-Hyloxalus - Make Me The Heart Of The Black Hole (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - He Dies In The Swamp (00:03:44)
-02 - Dream Chasm (00:06:18)
-03 - Beyond The Soil (00:05:46)
-04 - Undead In Ward 6 (00:06:31)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F875DDB3E2D1F60EC08600CAC9CF683B095BD452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695120   (120425) от 28.01.2024
-
-Bobby Darin - Commitment (1969) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk-Rock, Country Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me & Mr. Hohner
-02. Sugar Man
-03. Sausalito (The Governors Song)
-04. Song for a Dollar(   Читать дальше...   )Жанр: Folk-Rock, Country FunkПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF96CAFD8B701CFDFCB6647B03C033D1AE5DE14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695241   (120423) от 28.01.2024
-
-Mago De Oz - Alicia En El Metalverso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Celtic-Folk-Power Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alicia en el metalverso (12:01)
-02. El sombrerero loco (4:31)
-03. El metalverso (4:56)
-04. Seremos huracán (4:57)(   Читать дальше...   )Жанр: Celtic-Folk-Power Metal, Hard RockПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7246EDC2B6D41AB58C4E0DA18C6C53BE3F465D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1549481   (240650) от 07.05.2022
+
+Thad Jones - The Complete Blue Note, UA, Roulette Recordings Of Thad Jones (1956 - 1960) 3CD, 1997, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240650.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tariff [5:32]
+02. Blue Room [6:48]
+03. Little Girl Blue [2:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 03:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A14387BA40C3F427DFD51E2E7F0E3EA73540FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632429   (240627) от 10.05.2023
+
+Wynton Kelly - Piano Interpretations (1951) 1991, Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Moon [3:11]
+02. Fine And Dandy [2:51]
+03. I Found A New Baby [2:55]
+04. Cherokee [3:10](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D66A31A032D1F47280DC2B99DD50D459AD8242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626198   (240588) от 13.04.2023
+
+Joe Bonamassa - Tales Of Time (Live) (2023) [FLAC 2.0|44/24|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notches (Live) (9:49)
+02. The Heart That Never Waits (Live) (8:32)
+03. Curtain Call (Live) (9:01)
+04. Mind’s Eye (Live) (6:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155AC39A8404AD9BE9BC7BE90D84CD96518FE09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620390   (240561) от 20.03.2023
+
+Dick Oatts - All Of Three album (1998) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240561.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Barnacle Bill - 6:11
+2. Gumbo G - 7:21
+3. Single Line - 4:34
+4. In Love & Memory - 7:02(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574622AD0841B7F7BC57B24B714F69656DF94A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620508   (240548) от 21.03.2023
+
+Franck Amsallem - Summer Times (2003) Nocturne [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got Rhythm [5:46]
+02. Summertime [5:47]
+03. Young and Foolish [7:50]
+04. Tom's Tune [6:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A9D6074CEEDAAF6531621FB587FF3670F5AAD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620510   (240530) от 21.03.2023
+
+Sonny Rollins - Soneymoon (1963 - 1965) 2007, Get Back [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without a Song [2:38]
+02. On Green Dolphin Street [13:31]
+03. Solitude [8:58]
+04. Soneymoon [23:09](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A5399C1067A0708C2830C66D27226091801E37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410143   (240503) от 20.09.2020
 
 Chris Biesterfeldt - Phineas (2014) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
@@ -571,180 +745,6 @@ Hudspeth & Taylor - Ridin' the Blinds (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8214278D950BB903249D123048F90B7713C07B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466293   (240114) от 29.04.2021
-
-Dizzy Gillespie - The Symphony Sessions (1989) ProJazz [FLAC|Lossless|tracks + .cue] <Bop, Afro-Cuban Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manteca [6:33]
-02. Con Alma [5:42]
-03. Lorraine [6:53]
-04. Brother 'K' [7:10](   Читать дальше...   )Жанр: Bop, Afro-Cuban Jazz, Big BandПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546A158B059C4E32EA3FA34D57A216FC27265FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415461   (240112) от 12.10.2020
-
-Baby Face Willette - Mo' Rock (1964) 1998, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mo-Roc [4:52]
-02. Bantu Penda [5:19]
-03. Dad's Theme [5:30]
-04. But Not for Me [4:13](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90EDF384778C0138C567B7F737551BEFAFA4788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466295   (240106) от 29.04.2021
-
-Dizzy Gillespie Big Band - Complete 1956 South American Tour Recordings (2015) 2CD, Solar Records [FLAC|Lossless|tracks + .cue] <Bop, Afro-Cuban Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240106.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cool Breeze [8:41]
-02. Groovin' for Nat [3:23]
-03. I Can't Get Started [3:48](   Читать дальше...   )Жанр: Bop, Afro-Cuban Jazz, Big BandПродолжительность: 02:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E13AF626ABA917352F2C5CFF3218789865BBEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466202   (240080) от 29.04.2021
-
-Dizzy Gillespie - The Champ (1952) 2003,  Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Champ (Parts 1 and 2) (Gillespie) - 5:41
-02. Birk's Works (Gillespie) - 3:07
-03. Caravan (Ellington) - 2:53
-04. Time on My Hands (Youmans-Adamson-Gordon) - 2:23(   Читать дальше...   )Жанр: BopПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764C9968F95B7E5B40DE625200FB322D32310838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634876   (240071) от 23.05.2023
-
-VA - Para acompañar (acompanar) la calma (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina Simone -- Strange Fruit (3:30)
-02. B.B. King -- The Thrill Is Gone (5:01)
-03. Chuck Berry -- No Particular Place To Go (Single Version) (2:43)
-04. Etta James -- I'd Rather Go Blind (2:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DDD43B855CE7DE89C066C9A00901A4DCD35B610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466739   (240042) от 01.05.2021
-
-Stan Getz - 1946 - 1949 (2000) Classics [FLAC|Lossless|image + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus de Bop [2:32]
-02. And the Angels Swing [2:45]
-03. Running Water [2:46]
-04. Don't Worry 'Bout Me [2:39](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6BF802AB5208C0C1EFB0EAF6C959359509378B
 ```
 
 https://mybot314.ru/tekegram_catalog/

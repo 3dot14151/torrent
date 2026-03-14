@@ -1,3 +1,31 @@
+###  Публикация: 190046   (857937) от 08.04.2010
+
+Shu-xiong Zhou - Cha Tao The Way Of Tea (1995) [MP3|320 kbps]<New Age>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegance
+02. Purity
+03. RespectЖанр: New AgeПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875267   (857889) от 06.03.2015
 
 GYRO MiX - 3 альбома (2008-2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic>
@@ -488,6 +516,36 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 311589   (832102) от 21.03.2011
+
+Maki Goto - 4 albums + 3 Eps (2003-2011) [FLAC|Lossless]<JPop,dance,hello project,electro,R&B>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_832102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashiato (足跡; Footprints)
+02. Hanataba (花束; Bouquet)
+03. Koi Hitoyo (恋一夜; One Night Love) (Kudo Shizuka cover)
+04. Fake
+05. Age♂Kyoku (アゲ♂曲; On♂Music)Жанр: JPop,dance,hello project,electro,R&BПродолжительность: 00:21:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114422   (831602) от 15.03.2017
 
 Create Box vol. 1 (2013) Vocaloid /Doujin/ [FLAC|Lossless|image+.cue] <Pop-Rock, Soft rock>
@@ -509,6 +567,33 @@ Create Box vol. 1 (2013) Vocaloid /Doujin/ [FLAC|Lossless|image+.cue] <Pop-Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6FBCCF821694FE47FBA436F302154EF1F6D7001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314577   (821391) от 27.03.2011
+
+Cally Kwong - 4 albums[selected] (1986-1993) [FLAC|Lossless]<Chinese,Hongkong,disco-pop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_821391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 容易受伤的女人
+02. 现在的我最需要人安慰Жанр: Chinese,Hongkong,disco-popПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,29 +685,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 884464   (807323) от 03.04.2015
+###  Публикация: 315415   (811999) от 01.04.2011
 
-int.Records — Acid Travel (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic>
+Heartsdales - 2 альбома (2005-2006) [FLAC|Lossless]<J pop, Jurban, hip-hop>
 
 >>East Asian Music
->>Doujin Music (Lossless)
+>>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807323.jpg" />
+  <img src="http://mybot314.ru/public/picture/009/save_picture_811999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[01:57] 01. hrym - アシッドトラベル
-[05:04] 02. hrym - ミスティックフライヤ
-[04:41] 03. hrym - 極彩色エイジャ
-[06:28] 04. hrym - Closed Book
-[02:49] 05. hrym - トリップイン(   Читать дальше...   )Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:00:36:36
+1. The Legend Begins
+2. So Tell Me
+3. That's Why
+4. BODY ROCK
+5. Should Have What!? (feat. DOUBLE)
+6. Thru With You
+7. CANDY POP (feat. SOUL'd OUT)
+8. I See You
+9. LOVE & JOY
+10. fantasy(   Читать дальше...)Жанр: J pop, Jurban, hip-hopПродолжительность: 01:08:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1B3803698DBF10EDD01410FAEE1D249EC0C45E3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,116 +720,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 884466   (807317) от 03.04.2015
+###  Публикация: 317263   (811384) от 01.04.2011
 
-Independent Works — THE THING! (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic>
+Buddhist Monks Of Maitri Vihar Monastery - Sartori: Tibetan Mantras & Chants (1997) [MP3|192 kbps]<Tibetan mantras>
 
 >>East Asian Music
->>Doujin Music (Lossless)
+>>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807317.jpg" />
+  <img src="http://mybot314.ru/public/picture/009/save_picture_811384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[04:10] 01. 田中健一 - 死体旅行～T.S.P MIX!
-[05:56] 02. 田中健一 - 黒い秋
-[04:28] 03. 田中健一 - ENDLESS OPERA
-[08:23] 04. 田中健一 - ACID SUN
-[08:36] 05. 田中健一 - THE THINGТип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:00:31:32
+Album:  Sartori: Tibetan Mantras & Chants
+1.Three Monks with bowls and Cymbals - 00:02:14
+2.Three Mantra Chants - 00:03:06
+3.Buddhist Monks Choir - 00:13:46
+4.Chant with Cymbals and Gantra - 00:02:10
+5.Buddhist Monks Choir 2 - 00:15:10
+6.Three Deep singing Monks - 00:04:19
+7.Singing Bowls and Cymbals - 00:02:40
+8.Buddhist Monks Choir 3 - 00:17:13
+9.Triad Mantra Chant - 00:02:44(   Читать дальше...)Жанр: Tibetan mantrasПродолжительность: 01:04:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CBB31E3149D6117AACD891430E3F701B5188D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010148   (803217) от 24.04.2016
-
-Babymetal - Metal Resistance (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, J-Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road of Resistance
-02. KARATE
-03. Awadama Fever
-04. YAVA!(   Читать дальше...   )Жанр: Heavy Metal, J-MetalПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F36DBD3FB8BBA2AA072E5444ED7330D2B5B9C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274002   (798690) от 04.01.2019
-
-Yuki Murata - Piano Fantasia (2018) Ricco Label [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. clammbon (1:54)
- 02. forgotten carousel (2:48)
- 03. dear my cat (3:44)
- 04. utopia (3:14)(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96182E5F5B817CB0544059969F811E1FADD876D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508798   (796243) от 10.11.2021
-
-Galneryus - Union Gives Strength (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Howling Darkness 09:29
-02. Flames of Rage 09:00
-03. Hold On 06:19
-04. Bleeding Sanity 05:11(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C626240E346F4D7DCF144A0759907C7123A9EC6B
+magnet:?xt=urn:btih:984B9CA3D64CC40779F7C5EEBD6DA4C5EF50E983
 ```
 
 https://mybot314.ru/tekegram_catalog/

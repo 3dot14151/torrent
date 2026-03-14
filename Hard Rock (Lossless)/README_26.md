@@ -1,3 +1,119 @@
+###  Публикация: 1277456   (785003) от 21.01.2019
+
+R.E.O. Speedwagon - The Early Years 1971-1977 (2018) 8 CD Box Set [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785003.jpg" />
+</div>
+
+
+###  Подробнее
+
+REO Speedwagon — американская рок-группа, сформированная в 1967 году Нилом Даути и Аланом Грацером. Название группы происходит от одноимённого лёгкого грузовика, выпускавшегося в первой половине 20 века компанией REO Рэнса Э. Олдза. Наиболее успешным альбомом в творчестве коллектива считается Hi Infidelity. Кроме того, такие песни как: «Back on the Road Again», «Time (   Читать дальше...   )Список альбомов:
+1971 | R.E.O. Speedwagon
+1972 | R.E.O. T.W.O.
+1973 | Ridin' The Storm Out(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues Rock |Продолжительность: 05:52:49 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F10810BCEEC8A64F79B960920769B66BA190F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204326   (784861) от 05.02.2018
+
+Stone The Crows & Maggie Bell - 9 альбомов, 11 CD (1969-2009) [FLAC|Lossless|image + .cue | tracks + .cue] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stone the Crows - незаслуженно забытая сильнейшая блюз-роковая группа начала 70-х, была создана в конце 60-х в Глазго (Шотландия) гитаристом Лесом Харви (младшим братом Алекса Харви) и певицей Мэгги Белл, к которым присоединились поющий бассист Джимми Дьюар, клавишник Джон МакГиннис и ударник Колин Аллен (игравший до этого у Джона Мэйолла). Эта группа называлась (   Читать дальше...   )Список альбомов:
+1969 | Stone The Crows
+1970 | Ode To John Law
+1971 | Teenage Licks(   Читать дальше...   )Жанр: Rock, Classic Rock, Rhythm and Blues, Blues Rock |Продолжительность: 08:41:20 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A096050A6A7816D5200703BA220CBB00134C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389608   (784198) от 11.06.2020
+
+Deep Purple - Machine Head (1972) Warner-Pioneer 20P2-2605 [FLAC|Lossless|image + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784198.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Highway Star (6:09)
+2. Maybe I'm A Leo (4:52)
+3. Pictures Of Home (5:07)
+4. Never Before (4:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8CAD87DCA42F18CA7CA74BBA684BBFCBED91AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205041   (784084) от 08.02.2018
+
+Dynamite - Big Bang (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March On (To The Beat Of Your Drum) (4:19)
+02. Bring It On (3:23)
+03. Turn Up The Heat (2:58)
+04. Walk The Talk (2:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080C216BC9E266D536661E6F1BB1C7784FE3F44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204917   (784045) от 08.02.2018
 
 Greg Lake - 7 альбомов, 10 CD (1981-2015) [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
@@ -628,122 +744,6 @@ Sunstorm (Joe Lynn Turner) - Edge Of Tomorrow (2016) Japan [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC6B1A07A3259D901931CC9A85C7E528BCD36097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212986   (773078) от 15.03.2018
-
-The Sweet - The Polydor Albums (2017) 4CD Box set, Compilation, Reissue [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Identity Crisis (4:08)
- 02. New Shoes (3:25)
- 03. Two Into One (2:39)
- 04. Love Is The Cure (3:40)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Pop RockПродолжительность: 03:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1E025677A679D08F8B91040171D501439792FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213416   (771935) от 16.03.2018
-
-Miсhael Sсhenker - А Decade Оf The Mad Aхеmаn (2018) 2CD, Compilation, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный немецкий гитарист Михаэль Шенкер (Michael Schenker), немецкий хард-рок и хэви-метал гитарист, бывший участник групп Scorpions и UFO и основатель группы Michael Schenker Group выпустил сборник “A Decade Of The Mad Axeman”, куда вошло лучшее из его студийных и концертных записей 2007-2016 годов. Двойной CD охватывает период от корней MSG до проектов Temple (   Читать дальше...   )01. Welcome Howl (Tokyo' 2010)
-02. Let Sleeping Dogs Lie (Tokyo' 2010)
-03. Rock My Nights Away (Tokyo' 2010)
-04. Attack Of The Mad Axeman (Tokyo' 2010)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEE7F7C3347574EB90610399103715437A14374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016267   (770521) от 14.05.2016
-
-Platens - Out Of The World (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running (4:27)
-02. Time Will Tell (5:03)
-03. You Won't Bring Me Down (4:26)
-04. Ask Yourself (5:06)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68A873BDD951AA36EF6A1D8AEC79893C42B28D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016423   (770487) от 14.05.2016
-
-Moonland - Moonland (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Is To Be Close To You (4:07)
-02. Open Your Heart (4:09)
-03. Crime Of Love (3:52)
-04. Poison Angel (3:41)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93934A5AECC45E47D6D86237BC06E789BB27F02A
 ```
 
 https://mybot314.ru/tekegram_catalog/

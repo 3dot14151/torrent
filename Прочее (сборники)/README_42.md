@@ -1,3 +1,32 @@
+###  Публикация: 1120156   (802826) от 30.03.2017
+
+VA - Зажигательный Eurodance Vol.3 (2017) [MP3|256-320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fun Factory - Take Your Chance (Dennis Moskvin 2k16 M.Bounce Remix)  6:23
+02.  Barcode Brothers & Broken Heard - Dooh Dooh (DrBeat Perfect Mix)  4:16
+03.  Игорь Силевёрстов - Санта Лючия (Remix)  3:49
+04.  Maxx - Get-A-Way (Alexsey Style Remix)  3:29(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B434AFA5C4E0B07188690FF6CD3FE37CDF452381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505465   (802739) от 28.10.2021
 
 VA - Music News vol.144 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Отдохни от праздников (2019) [MP3|320 Kbps] <Soul, Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A63AC5AEA97CC18075F9A2B6EFC1015A2ED9A047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273322   (799370) от 03.01.2019
-
-VA - New Year's Eve Party Hits 2019 (2018) [MP3|320 Kbps] <Dance, Electronic, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chainsmokers - Young
-02. Pitbull, J Balvin, Camila Cabello - Hey Ma
-03. Diplo, Zhavia Ward, French Montana, Lil Pump - Welcome to the Party
-04. Drake - God's Plan(   Читать дальше...   )Жанр: Dance, Electronic, Pop, Hip-HopПродолжительность: 05:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DC3F07F727CDD0FECF6073A82130B27C6749D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

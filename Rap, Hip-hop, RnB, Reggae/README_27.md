@@ -1,3 +1,119 @@
+###  Публикация: 1626930   (240058) от 16.04.2023
+
+ХЛЕБ - Последний (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дэб
+2. Убили Кирилла
+3. Марина
+4. Дети(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C162ED1D69E3CEAF5DDB784764E7F09175DC3295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635137   (240052) от 24.05.2023
+
+KAYTRAMINE - KAYTRAMINE (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who He Iz (3:01)
+02. letstalkaboutit (2:47)
+03. 4EVA (3:10)
+04. Westside (2:24)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD87BC77922D1E6D93226323A5CC84DCB2F78B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636278   (239222) от 29.05.2023
+
+Lil Durk - Almost Healed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Therapy Session (1:28)
+02. Pelle Coat (4:14)
+03. All My Life (3:44)
+04. Never Again (2:20)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F169C22EEBECDE25E47A9E9E2900C31C23975B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636585   (238920) от 31.05.2023
+
+$uicideboy$ - YIN YANG TAPES: Winter Season (1989-1990) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Season Intro (0:39)
+02. Bossier City Kidnap Victims (2:44)
+03. Didn't They Give You Percoset? (2:10)
+04. I Deleted Facebook a Long Time Ago (2:57)Жанр: Hip-Hop, RapПродолжительность: 00:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B736CDC9588CE56E5321395A29C173B3E13AE39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629139   (238283) от 26.04.2023
 
 Lloyd Banks - The Course of the Inevitable 3: Pieces of My Pain (2023) [MP3|192 Kbps] <Hip-Hop>
@@ -635,122 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:018E9F2BB60F3B84FEBC116C68B8294E93839A37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425245   (221549) от 20.11.2020
-
-Баста - 40 (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [02:25]
-02. С самых низов [05:39]
-03. Верил всегда (feat. Odi) [05:44]
-04. Время догонит нас (feat. Moscow Gospel Team) [06:06](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C79B6FFBF1418FD755E2D10911F5E4BD3C3790C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342928   (221526) от 04.12.2019
-
-Chingy - Powerballin' (2004) [FLAC|Lossless|tracks + .cue] <Crunk/Midwest Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haters 101 (Intro)
-02. Give Em Some Mo
-03. Fall-N ft. G.I.B.
-04. Balla Baby(   Читать дальше...   )Жанр: Crunk/Midwest Hip-HopПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440B557E0905B0301AB3633F55387EE7677F4C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514012   (221110) от 01.12.2021
-
-VA - Chillhop Essentials - Winter (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moods – Snaring River (2:54)
-02. Otxhello – Happy In My Mind (2:03)
-03. Taro – The Little Place (2:08)
-04. Ian Ewing, Toonorth, Philanthrope – Mortal Wombat (2:50)(   Читать дальше...   )Производство: Chillhop MusicЖанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF444DE03AD8B68FE34AE420657200A3523DF061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513864   (221043) от 01.12.2021
-
-Нигатив - Либератта (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кто я [03:18]
-02. Крылья [03:11]
-03. Наоборот [04:00]
-04. Человек - винегрет [03:03](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813BB3BB4589F2A6BB254982495D5AA10630B22F
 ```
 
 https://mybot314.ru/tekegram_catalog/

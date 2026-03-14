@@ -1,3 +1,148 @@
+###  Публикация: 1747005   (44719) от 03.09.2024
+
+The Delta Blues Collective - Peace, Love, and Groove (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Only Joy (2:28)
+02. Love in Motion (3:38)
+03. Lost in Myself (2:37)
+04. Forever My Love (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF42B6E2B2EABF5E8ADFF97103AD18B9C8B56249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746556   (44714) от 03.09.2024
+
+Helloween - Pink Bubbles Go Ape (1991) Remaster, 2024, Noise Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Bubbles Go Ape (0:36)
+02. Kids of the Century (3:52)
+03. Back on the Streets (3:23)
+04. Number One (5:13)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96EA26382A8E37C7E483CCB27D161D583B1B486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746925   (44702) от 03.09.2024
+
+Stratovarius - Demand (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demand [00:04:03]
+02. Event Horizon [00:04:23]
+03. Voice of Thunder [00:11:10]
+04. Infernal Maze [00:05:34](   Читать дальше...   )Жанр: MetalПродолжительность: 00:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAF65361C680625367ED11DBDB3B9267BE6BAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747101   (44607) от 04.09.2024
+
+No Bull - Getting Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy to Look Rich (5:37)
+02. Give Me a Dime (3:59)
+03. Too Much (4:16)
+04. Getting Out (5:03)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A97B723284B63EB3BBCD71D1791294776B5C916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747607   (44419) от 06.09.2024
+
+VA - Romantic Collection Ретро (1999) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+A1 О. Анофриев – Песня о друге
+A2 А. Герман – Надежда
+A3 Л. Утесов – Московские Окна(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77AB372A6A44E0C752A935ADD592B244EA89D09B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747785   (44407) от 06.09.2024
 
 Linkin Park - The Emptiness Machine (2024) hand made [restored, declipped] [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -595,151 +740,6 @@ Jhene Aiko - Chilombo (2020) Deluxe, 2020, Def Jam Recordings [FLAC 24/96|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C596D2737400E4D47418DA35960586534325D082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750037   (43253) от 17.09.2024
-
-Julian Smith - Being with You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Back the Time (3:22)
-02. Shania's Song (4:05)
-03. Don't Look Away (3:40)
-04. California Dreaming (3:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F02A25EE707221DE2AB902042FD2F7F41F2250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749979   (43251) от 17.09.2024
-
-He Is Legend - Studio Albums (9 releases) (2004-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Southern Metal, Stoner Rock, Post-hardcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43251.jpg" />
-</div>
-
-
-###  Подробнее
-
-He Is Legend — американская альтернативная метал-группа из Уилмингтона, Северная Каролина, основана в 2003 году.2004 - 91025
-2004 - I Am Hollywood
-2006 - Black Unicorn
-2006 - Suck Out The PoisonЖанр: Southern Metal, Stoner Rock, Post-hardcoreПродолжительность: 06:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DA395E0D6D6A5344DD8805D0C2D8F2CB493215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750127   (43175) от 18.09.2024
-
-Земляне & Supermax - Sergey Skachkov & Kurt Hauenstein (2009) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Reggae, Funk / Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Machine
-02. World of today
-03. It aint easy
-04. Hotline(   Читать дальше...   )Жанр: Rock, Reggae, Funk / SoulПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67944DCB5EEC1A6CD49AC22F44753B1B082E995A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749898   (43149) от 18.09.2024
-
-Hannah Kerr - As I Am (2024) [FLAC 16,24/44.1.48,96|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As I Am [00:03:42]
-02. Jesus Is Why [00:02:42]
-03. If I Were You [00:03:20]
-04. Changed [00:03:37](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5EB30F7CCE23FCD092811D4C854980F516360E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750138   (43126) от 18.09.2024
-
-Michael Schenker Group - My Years with UFO (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural Thing (3:58)
-02. Only You Can Rock Me (4:03)
-03. Doctor Doctor (4:33)
-04. Mother Mary (4:00)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865CCC6F6CB1226498C6A3A7CEDE49863894CA38
 ```
 
 https://mybot314.ru/tekegram_catalog/

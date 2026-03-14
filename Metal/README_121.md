@@ -1,3 +1,32 @@
+###  Публикация: 1804840   (12748) от 02.07.2025
+
+Versatile - Les Litanies du Vide (2025) [MP3|320 Kbps] <Black, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Géhenne
+02. Enfant Zéro
+03. La Régente Blême
+04. Ieshara(   Читать дальше...   )Жанр: Black, Industrial MetalПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61356127ECF1EC9D628F70F12117412B43947D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804817   (12745) от 02.07.2025
 
 Ulvarg - Ulvarg (2025) [MP3|320 Kbps] <Symphonic Black Metal>

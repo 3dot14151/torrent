@@ -1,3 +1,61 @@
+###  Публикация: 1233080   (592997) от 30.06.2018
+
+VA - Bravo Hits Lato 2018 (2CD) (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alvaro Soler - La Cintura
+02. Sean Paul (feat. Becky G & David Guetta) - Mad Love
+03. Nico Santos - Safe
+04. Rudimental & Macklemore & Jess Glynne - These Days(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7519F042E4C76121284704E6D7D9C98A708ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300646   (592757) от 07.05.2019
+
+VA - Energy Hits 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592757.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Dermot Kennedy - Power Over Me
+02. Ava Max - Sweet but Psycho(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4FEB1D55D628CC666483A5060C81E53FFFE9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550331   (592519) от 10.05.2022
 
 VA - DMC - Million Sellers - The Divas (Classic Mixes) (Vol.1) (2022) [MP3|320 Kbps] <Dance-pop, Disco, Europop,  House>
@@ -687,62 +745,6 @@ Black Jack - 3 Albums (1979-1982) [MP3|320 Kbps] <Electronic, Disco, Synth-pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5F45669094D9D31CD6FAB933660DBC00CAD7050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040536   (586435) от 05.08.2016
-
-VA - Танцевальный рай: RIO (2016) [MP3|320 Kbps] <Pop, Eurodisco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiosonik X Jerome - Thong Song
-02. Willy William - Ego (Radio Edit)
-03. TWiiNS - One Night Stand (Radio Edit)
-04. Vengaboys - 2 Brazil! (Dance Radio Edit)(   Читать дальше...   )Жанр: Pop, EurodiscoПродолжительность: 01:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897D901AAE0190DBB6CE53548D8745C0477D881A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301330   (586178) от 10.05.2019
-
-Tight Fit - Back To The 60's (1981) LP [MP3|320 Kbps] <Pop, Disco, Rock & Roll>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mixed - Back To The 60s - Side One (18:32)
-02. Mixed - Back To The 60s - Side Two (18:03)Жанр: Pop, Disco, Rock & RollПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB8DDAD6367556C42E791D7EEE10570F6EB854A
 ```
 
 https://mybot314.ru/tekegram_catalog/

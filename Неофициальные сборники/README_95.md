@@ -1,3 +1,123 @@
+###  Публикация: 1369102   (904539) от 22.03.2020
+
+VA - Radio DFM: Top D-Chart [21.03] (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artik & Asti - Девочка танцуй (DJ Prezzplay & Kolya Dark Remix) 4:10
+02. Billie Eilish - Everything I Wanted (Kolya Dark & Alex Shik Radio Edit) 3:59
+03. The Weeknd - Blinding Lights 3:22
+04. Макс Барских - Лей не жалей (Lavrushkin & Max Roven Remix) 3:43(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0734CF4009A5D43430B883C2D9868666E35D496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 636288   (904472) от 29.03.2013
+
+VA - Exotik Lounge (2013) [MP3|320 кб/с]<Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ragi Ravin - Bali Sunset Chill Dreams (Buddha Beach Lounge Shortplay Mix) [11:18]
+02. Lotus Style Cult - Samota (Chop Suey Mix) [05:00]
+03. Stardust Alchemy - A Dream Under Your Star (After Dark Soleil Mix) [05:12]
+04. Skyfall - Particle of Soul [04:42]
+05. Aakarshan - Tantra Cafe (Sacred Spirit of Love Mix) [04:40]
+06. Ragi - Voyage to India (Buddha Sunset Del Mar Vocal Mix) [05:55]
+07. Sweet Velvet - La Plena Noche (feat. Debora Vilchez) [06:31]
+08. Pathetique - Au Clair De La Lune (feat. Rainfairy)Жанр: Lounge, ChilloutПродолжительность: 02:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E7C2BBC0279DBAA34DA985DDB93F597785EBC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991829   (904459) от 29.02.2016
+
+VA - Top Lounge Moments (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Donner - On the Lake
+02. Don Gorda Project - Feeling Free
+03. Cane Garden Quartet - Out With Friends
+04. Baghira - Put Your Arms(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03409A6E5E9ED59617132FE4503F16A16D8C8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992009   (904458) от 29.02.2016
+
+VA - Dancefloor Hits State Tribute (2016) [MP3|258-320 кб/с] <House, Tropical, Future House, Club, Tribal, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904458.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Coldbeat - Magic Portal Reboot (Patos Remix) 03:47
+002. CrazyDeejay - A Butterfly (Extended Mix) 04:43
+003. Dan Winter - I'm On Fire (Radio Edit) 03:15
+004. Nicy - Waiting For Love (Smithee Remix) 04:14(   Читать дальше...   )Жанр: House, Tropical, Future House, Club, Tribal, ProgressiveПродолжительность: 11:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F76924F3EB1BCAE01C29EAA1D0CDCFFD25BF9C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991737   (904455) от 29.02.2016
 
 VA - На Волне Шансона (2016) [MP3|256-320 кб/с] <Shanson>
@@ -635,128 +755,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B197A3796DE5776115923ED9CA26C3B84C2F8BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992103   (902748) от 01.03.2016
-
-VA - Best Driving EDM (2016) [MP3|320 кб/с] <Progressive, Bigroom, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Doomchit Doomchit (Radio Edit) 02:49
-02. Teknova - La Fiesta (Original Mix) 04:01
-03. David Peel - Go! (Original Mix) 03:46
-04. Flip Capella - Lose Myself (At Tomorrowland) (Original Mix) 03:24(   Читать дальше...   )Жанр: Progressive, Bigroom, ClubПродолжительность: 03:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1853EC0D991D86635D93A00447C7D76BBB2D0F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637085   (902699) от 30.03.2013
-
-VA - Гламурная весенняя дискотека (2013) [MP3|160-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902699.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Елена Березина - Правдою По Глазам (3:42)
-2. Belka - Не Бойся Высоты (3:07)
-3. NikitA - Синие Платье (3:18)
-4. Пропаганда - Подруга (3:36)
-5. Маша Собко - Останови Меня (3:13)
-6. Дима Билан - Дотянись (3:21)
-7. Эд Шульжевский - Наша Тайна (3:55)
-8. MC Zali feat. MC Trif - Отдыхаем Четко (3:48)
-9. 23.45 - Love Forever (3:47)
-10. Quest Pistols - Забудем Все (3:12)Жанр: PopПродолжительность: 05:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9466DB4772FEA6CAA8275E7E02CA08A49B299F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992064   (902601) от 01.03.2016
-
-VA - Радио Шансон. Энциклопедия шансона (2016) [MP3|256-320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902601.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Иван Кучин - Пой гитара
-002. Трофим - Я скучаю по тебе
-003. Ирина Круг - Я лучше промолчу
-004. Михаил Шуфутинский - Старое кафе(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530A8B79F4CED569F6CDF0D15FD9009502B55E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990917   (902590) от 01.03.2016
-
-VA - Alternative Winter by Evaluator (2016) [MP3|128 - 320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chloe Wildman - Six Feet Down
-02. Night Argent - Widowmaker
-03. Forever Still - Miss Madness
-04. Opia - Eon(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5984BBCDE60453A8232B80E769652DE109587A19
 ```
 
 https://mybot314.ru/tekegram_catalog/

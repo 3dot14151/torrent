@@ -1,3 +1,61 @@
+###  Публикация: 1218288   (724890) от 08.04.2018
+
+VA - Rock Legends: The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Rock, Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc: 1
+01. Rainbow - I Surrender
+02. Thin Lizzy - The Boys Are Back In Town
+03. Kiss - Rock And Roll All Nite(   Читать дальше...   )Жанр: Rock, Classic Rock, Hard RockПродолжительность: 06:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F46917F7A8F874C586350A168B8D08C960E855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023636   (724655) от 05.06.2016
+
+Billy Satellite - Billy Satellite 1 (1984) Re-release, 2000, ATM Records [MP3|320 кб/с] <Rock, Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satisfy Me    03:41
+02. Last Call    03:30
+03. Do Ya?    03:48
+04. I Wanna Go Back    03:52(   Читать дальше...   )Жанр: Rock, Melodic Rock, AORПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E819E05F5F1EA70B274C12754F058AED0B47A8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023477   (724548) от 05.06.2016
 
 Airbag - Disconnected (2016) [MP3|320 кб/с] <Progressive Rock, Neo-Progressive>
@@ -687,64 +745,6 @@ Roland Nipp - Better Days (2018) [MP3|320 Kbps] <Roots Rock, Instrumental Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F33CEFC20A41D131E33FA5E498E600017C65517A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220234   (706182) от 18.04.2018
-
-Joe's Garage - The Best Of (2018) [MP3|320 Kbps] <Electronic Pop Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mission Love
-02. Big Palais
-03. If You Hear
-04. The Sun(   Читать дальше...   )Жанр: Electronic Pop Rock, Female VocalПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D0C3127833F6B74733AE999D0950A45B32E5D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026150   (706133) от 14.06.2016
-
-Контрабанда.com.ua - Dreamer (2015) [MP3|320 кб/с] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Boy (03:17)
-02. Marie (03:08)
-03. Heaven Can Wait (02:22)
-04. Angel (03:53)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6AF6EF826EF7B58067470F926B3964A8338425
 ```
 
 https://mybot314.ru/tekegram_catalog/

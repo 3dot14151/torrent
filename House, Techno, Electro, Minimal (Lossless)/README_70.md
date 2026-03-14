@@ -1,3 +1,90 @@
+###  Публикация: 1781611   (26570) от 24.02.2025
+
+VA - House Charts 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plastik Funk - In My Arms (2:33)
+02. The Disco Boys - Surface Surfer (3:32)
+03. MŸLØ - Shibari (2:41)
+04. Sarrdo Carocci - Lift Me Off (2:44)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA8DF436EDF31F68B793B81DA0A2722FE2DEDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782596   (26033) от 01.03.2025
+
+VA - Club Charts Top 100 - Winter Edition 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26033.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Plastik Funk - Everybody Up (3:26)
+002. SvenDeeKay - Down (2:41)
+003. Brooklyn Bounce - Love & Bass (The Official Anthem of Loco Beach) (2:30)
+004. The Teachers - Calling for Me (3:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0291BAC0B143E417C7FBC31FFBA20F078DC85CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783528   (25518) от 06.03.2025
+
+VA - Mortal Kombat: More Kombat (1996) [FLAC|Lossless|image + .cue] <Techno, Indastrial, Heavy Meta>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psykosonik - It Has Begun (2:52)
+02. Alien Factory - Higher (6:27)
+03. Sepultura - Chaos B.C. (5:10)
+04. Killing Joke - Drug (4:32)(   Читать дальше...   )Жанр: Techno, Indastrial, Heavy MetaПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4728B26AFF4FE00B5FD4E48DCFED3F6266CEBC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786082   (24156) от 19.03.2025
 
 VA - Organic Yoga (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -654,93 +741,6 @@ Robin Schulz - Uncovered (2017) [FLAC|Lossless|image + .cue] <Electronic, Dance-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3F5C8B22DEC4AC4D43C464896AF14966D6DD37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801365   (15082) от 10.06.2025
-
-VA - Dancefloor Hits 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 90bangerz - Maybe We Are Young (2:47)
-02. Jluis - Universe (3:10)
-03. MaxRiven - Phantom (2:46)
-04. FLGTT - What I Need (2:52)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5B6D16AF97ECB5BBA1700C0340595C6C3C71F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804132   (13304) от 27.06.2025
-
-Armin van Buuren - Breathe (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Forever (Stay Like This) [2:33]
-02 - God Is In The Soundwaves [2:44]
-03 - Love Is A Drug [3:21]
-04 - Lose This Feeling [2:27](   Читать дальше...   )Жанр: Electronic, Techno, Progressive TranceПродолжительность: 02:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1DA7FC08E2F49486D712F24817A50E10C29232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804089   (13242) от 27.06.2025
-
-VA - Ibiza Dance Party 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Club, House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nonix - Feel Like (03:18)
-02. DJ Mauritius - Melodic (06:15)
-03. REViK - Don't Miss The Beat (02:47)
-04. Robert Roxx - Through The Storm (07:25)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F1FEB7D3248F321E8B0C974D2F26EF040CEE88
 ```
 
 https://mybot314.ru/tekegram_catalog/

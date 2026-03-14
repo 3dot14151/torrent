@@ -1,3 +1,29 @@
+###  Публикация: 1172677   (391707) от 09.10.2017
+
+Проекты - VideoHive - In Trend // Fashion Show Package - 20313544 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный, яркий, динамичный, профессионально выполненный пакет для создания любой презентации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24339DC501913870DF24B4C63C91C578E8AA1A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172657   (391705) от 09.10.2017
 
 Проекты - VideoHive - Fireborn Logo - 13857450 [AEP]
@@ -656,32 +682,6 @@ VideoHive - Enchantment - 5039931 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F8BF273CCC2D59BCE13927C79C22D6AAB32F0BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 718182   (389222) от 03.11.2013
-
-VideoHive - BlacKnight II - 492678 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный проект для промо ночного клуба, вечеринки, дискотеки и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B2F1DAC4F11F11EF49A0208D8BB46AC9A4E0EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

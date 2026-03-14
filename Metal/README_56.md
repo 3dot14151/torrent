@@ -1,3 +1,32 @@
+###  Публикация: 921251   (571868) от 27.07.2015
+
+I Spit Ashes - 99942 (2015) [MP3|320 кб/с]<Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571868.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Apophis King
+2. Of Venus And Mars
+3. Astronaut
+4. The Fourth Kind(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3DDA1F567A98480B7DB7EA806AB126860897AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528267   (570398) от 29.07.2012
 
 Korpiklaani - Manala (2012) Deluxe Edition [MP3|320 кб/с]<Folk Metal >
@@ -717,35 +746,6 @@ Paradise Lost - Medusa (2017) Limited Edition [MP3|320 Kbps] <Doom-Death Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A9AAB627A11F1819A99096CC7B9E74EBB50E970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924563   (557673) от 04.08.2015
-
-Hibria - Hibria (2015) Japanese Edition [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pain
-02. Abyss
-03. Tightrope
-04. Life(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E872E650276523E349F231770ED1971FB9E25F
 ```
 
 https://mybot314.ru/tekegram_catalog/

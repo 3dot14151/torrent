@@ -1,3 +1,61 @@
+###  Публикация: 1266159   (245027) от 01.12.2018
+
+VA - W9 Hits 2019 (2018) 4CD Multipack [MP3|320 Kbps] <Pop, Dance, Rap>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245027.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Jain - Alright
+02. Kendji Girac - Pour oublier
+03. Maroon 5 - Girls Like You(   Читать дальше...   )Жанр: Pop, Dance, RapПродолжительность: 03:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C96519738B7F800F570D768AC507BCD303EBF47B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452034   (244712) от 05.03.2021
+
+Таисия Повалий - Особенные слова. Исповедь (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244712.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. За спиной
+2. Водопадами
+3. Особенные слова
+4. Лучший друг(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7173ED69EC1E23842578CC4B961CF03C894F73E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622073   (244623) от 27.03.2023
 
 VA - Romantic Collection: Woman In Love (2000) [OGG Vorbis|480 Kbps] <Electronic, Jazz, Rock, Pop>
@@ -687,64 +745,6 @@ VA - 80s Gold (2023) [OGG Vorbis|480 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19710803C75B29A3B15F4B57381214A41427CB69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625783   (241430) от 11.04.2023
-
-VA - 50 Hits Spring (2023) [MP3|320 Kbps] <Latin Dance, Reggae, Dancehall, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pierre De Maere - Un Jour Je Marierai Un Ange
-02. Ade - Tout Savoir
-03. Alonzo/Ninho/Naps - Tout Va Bien
-04. M. Pokora - Qui On Est(   Читать дальше...   )Жанр: Latin Dance, Reggae, Dancehall, SynthpopПродолжительность: 02:33:22 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA27F1B539091EBAE6DD12C1F19045E1562BC2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625841   (241150) от 12.04.2023
-
-VA - Pop Hits 2023 (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Unholy
-02. Taylor Swift - Anti-Hero
-03. OneRepublic - I Ain't Worried
-04. Imagine Dragons - Bones(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2877E8A57198EF222F060AEA7B56BD4EC940A87F
 ```
 
 https://mybot314.ru/tekegram_catalog/

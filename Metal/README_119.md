@@ -1,3 +1,32 @@
+###  Публикация: 1750960   (42742) от 22.09.2024
+
+Nightwish - Yesterwynde (2024) Limited edition earbook, 2024, Napalm Eagles [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterwynde (Orchestral Version) (3:23)
+02. An Ocean Of Strange Islands (Orchestral Version) (9:25)
+03. The Antikythera Mechanism (Orchestral Version) (5:53)
+04. The Day Of... (Orchestral Version) (4:24)(   Читать дальше...   )Жанр: Symphonic-MetalПродолжительность: 3CD, 03:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7483D5C1F286D79D7C1EF3321B4016708C659266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751297   (42507) от 24.09.2024
 
 Serious Black - Rise of Akhenaton (2024) [MP3|320 Kbps] <Power Metal>
@@ -711,35 +740,6 @@ Nightwish — финская метал-группа, исполняющая п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2733881E08A193FF1B9FB70CBB7A254C8A726F20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809807   (17660) от 02.08.2025
-
-Brutalt - Reason with Death (2025) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gehenna
-02. Left to Decay
-03. Mortifera
-04. Dominus Odii(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5D2670DC831683D0A6A406A89A0A105B813D2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

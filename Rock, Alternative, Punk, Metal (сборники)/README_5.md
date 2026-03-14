@@ -1,3 +1,32 @@
+###  Публикация: 1093485   (930001) от 17.01.2017
+
+VA - Русский Рок. Лучшее 2016 (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Смысловые Галлюцинации - Зверь 2
+02. Крематорий - Супермаркет
+03. Би-2 - Лайки
+04. Lumen - Голоса мира(   Читать дальше...   )Жанр: RockПродолжительность: 01:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE65D55CCC5E7F6EB3B872C66F19A791A43657D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365749   (928903) от 08.03.2020
 
 VA - Rock Drive 9  (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
@@ -720,35 +749,6 @@ VA - Rock Drive 10 (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BFF5F65D1BA7BD49D3D25125328E2AA3A79F4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990917   (902590) от 01.03.2016
-
-VA - Alternative Winter by Evaluator (2016) [MP3|128 - 320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chloe Wildman - Six Feet Down
-02. Night Argent - Widowmaker
-03. Forever Still - Miss Madness
-04. Opia - Eon(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5984BBCDE60453A8232B80E769652DE109587A19
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1708118   (113063) от 20.03.2024
+
+New Old School - New Old School (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take My Hand (3:43)
+02. Ruin And Pain (4:19)
+03. I Miss You (5:24)
+04. Amelia (5:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51ED6D83EC2E9A577EE94DDC512BAEBA2183E25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708310   (113062) от 20.03.2024
+
+VA - Happy Easter Jazz (Spring Positive Music) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florian Reach - The Old Cinema (6:54)
+02. Ray Steward - Heaven (7:08)
+03. Don Ruiz - Route 5 (4:44)
+04. Don Ruiz - Good Old Days (5:12)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D87E234AD741EAA947988089246ED0AACC35F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708104   (113060) от 20.03.2024
+
+Rocky Athas - Livin' My Best Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin' My Best Life (4:49)
+02. Only in My Dreams (4:59)
+03. Black Cat Moan (3:48)
+04. Dark Days (5:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23654B4AF36B68926569338D3C84F0ECFB98A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708288   (113051) от 20.03.2024
+
+The Art Farmer-Benny Golson Jazztet - Real Time (1988) Contemporary Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whisper Not [11:30]
+02. Sad to Say [6:11]
+03. Are You Real [8:29]
+04. Autumn Leaves [14:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485B738F98255529604E254314DDE23219F09C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708290   (113050) от 20.03.2024
+
+The Art Farmer-Benny Golson Jazztet - Back To The City (1986) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to the City [7:55]
+02. From Dream to Dream [6:48]
+03. Write Soon [9:44]
+04. Vas Simeon [7:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8CD8557A420B6673B1704D0603AD9FDC1D4FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708100   (113049) от 20.03.2024
+
+Rated Blue - Cranked Remastered (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Months on Tuesday - 2024 Remaster (4:48)
+02. In Dogs We Trust - 2024 Remaster (3:55)
+03. Three Walls Down - 2024 Remaster (3:35)
+04. Understanding (Just a Little) - 2024 Remaster (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF051021833ED5DB207C01A161C311391B4A3FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708292   (113048) от 20.03.2024
 
 Art Farmer-Benny Golson Jazztet - Blues On Down (1960, 1961) 1994, Chess [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -569,180 +743,6 @@ Ramsey Lewis - Sky Islands (1993) GRP Records [FLAC|Lossless|tracks + .cue] <Smo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D5E703C8DB01416BAEAA70F30402DCCEA776FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710798   (112567) от 28.03.2024
-
-Anita O'Day - Big Band At Carnegie Hall (1985) 2009, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus One [3:45]
-02. Honeysuckle Rose [3:49]
-03. Sweet Georgia Brown [5:11]
-04. Four Brothers/P Town [4:10](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A28FF6B0466BE1FE38F6DA54EBD5CC6A51FC48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710801   (112566) от 28.03.2024
-
-Jimmy Rosenberg - The One And Only (1998) Hot Club Records [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them There Eyes [3:25]
-02. Coquette [3:33]
-03. I'm in the Mood for Love [7:13]
-04. It Don't Mean a Thing [3:08](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DFD54935687B3977F39A37FF958EFB7F8961B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710905   (112554) от 28.03.2024
-
-Jeff Beck Group - Jeff Beck Group (1972) Reissue, 1989, Epic [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112554.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ice Cream Cakes - 5:40
-2. Glad All Over (A. Schroeder, R. Bennett, S. Tepper) - 2:59
-3. Tonight I'll Be Staying Here With You (B. Dylan) - 4:57
-4. Sugar Cane (S. Cropper) - 4:06(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B621083E084801C6B61ECBFA901132C1B2E99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711272   (112531) от 29.03.2024
-
-Wynton Marsalis - Sweet Release & Ghost Story (1999) Columbia [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream, Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Release: Home: Beyond This Rage [7:51]
-02. Sweet Release: Church: Renewing Vows [7:19]
-03. Sweet Release: Church Basement: Party [5:28]
-04. Sweet Release: Street: Make Room for Me [4:24](   Читать дальше...   )Жанр: Modern Creative, Third Stream, Modern Big BandПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922B882014D8E69E9A8F531A7DFDD78931A5AAAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711345   (112530) от 29.03.2024
-
-Norman Brown - It Hits Different (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anything
-02. Too Forever
-03. Chicken Shack
-04. It Hits Different(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FE9604A33B6055D3FAB881B51F5A7619F08E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711376   (112451) от 30.03.2024
-
-Anita O'Day - Essential O'Day: Basin Street West (1964) 2007, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Out Of Town [2:58]
-02. S'Wonderful/They Can't Take That Away From Me [4:07]
-03. Just The Way You Look Tonight [5:41]
-04. Honeysuckle Rose [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBCD3B83A262E0F63D4F13A2697835C2B96CDA9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

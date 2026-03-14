@@ -1,3 +1,119 @@
+###  Публикация: 1368995   (905697) от 22.03.2020
+
+VA - Rhythmic Funk (2020) [MP3|320 Kbps] <Funk, Easy Listening, Funky Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905697.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Heidi B - Mr. Fly (Cristian Poow Instrumental)
+002. Inusa Dawuda - Love Criminal (Mota Remix)
+003. U.K. - Roadrunner
+004. James Reese - Let's Go(   Читать дальше...   )Жанр: Funk, Easy Listening, Funky DiscoПродолжительность: 08:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5F946CE7B98E55C213C868F808556629D24606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368781   (905655) от 22.03.2020
+
+VA - German Top 100 Single Charts 20.03.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Samra & Capital Bra - Berlin
+03. Loredana - Angst (feat. Rymez)
+04. UFO361 - Bad Girls, Good Vibes(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49473A52F1FDF0B48FC8A8771965EE5896E85053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368876   (905653) от 22.03.2020
+
+VA - The Official UK Top 40 Singles Chart 20.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix)
+02. The Weeknd - Blinding Lights
+03. Aitch & AJ Tracey - Rain (feat. Tay Keith)
+04. Roddy Ricch - The Box(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DEB5B063F2CE825F09004F55B8565973DEE773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368954   (905648) от 22.03.2020
+
+VA - Record Super Chart 630 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARIA - Bleu Chanel (NA-NO Remix) 2:43
+02. Anthony Keyrouz - Love Yourself 2:56
+03. SAINt JHN - Roses (Imanbek Remix) 3:58
+04. Carla Morrison - Disfruto 3:57(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D27132AB59FCA54D307BF2262671018C9CA7564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369083   (905580) от 22.03.2020
 
 VA - Beatport Tech House: Electro Sound Pack #35 (2020) [MP3|320 Kbps] <Techno, Tech House>
@@ -629,126 +745,6 @@ VA - Shake That House Vol. 5 (2016) [MP3|320 кб/с] <House, Electro House Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67E3B120056AF91BF7AB608E2ECB84A443B1D88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369102   (904539) от 22.03.2020
-
-VA - Radio DFM: Top D-Chart [21.03] (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artik & Asti - Девочка танцуй (DJ Prezzplay & Kolya Dark Remix) 4:10
-02. Billie Eilish - Everything I Wanted (Kolya Dark & Alex Shik Radio Edit) 3:59
-03. The Weeknd - Blinding Lights 3:22
-04. Макс Барских - Лей не жалей (Lavrushkin & Max Roven Remix) 3:43(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0734CF4009A5D43430B883C2D9868666E35D496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636288   (904472) от 29.03.2013
-
-VA - Exotik Lounge (2013) [MP3|320 кб/с]<Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ragi Ravin - Bali Sunset Chill Dreams (Buddha Beach Lounge Shortplay Mix) [11:18]
-02. Lotus Style Cult - Samota (Chop Suey Mix) [05:00]
-03. Stardust Alchemy - A Dream Under Your Star (After Dark Soleil Mix) [05:12]
-04. Skyfall - Particle of Soul [04:42]
-05. Aakarshan - Tantra Cafe (Sacred Spirit of Love Mix) [04:40]
-06. Ragi - Voyage to India (Buddha Sunset Del Mar Vocal Mix) [05:55]
-07. Sweet Velvet - La Plena Noche (feat. Debora Vilchez) [06:31]
-08. Pathetique - Au Clair De La Lune (feat. Rainfairy)Жанр: Lounge, ChilloutПродолжительность: 02:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E7C2BBC0279DBAA34DA985DDB93F597785EBC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991829   (904459) от 29.02.2016
-
-VA - Top Lounge Moments (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - On the Lake
-02. Don Gorda Project - Feeling Free
-03. Cane Garden Quartet - Out With Friends
-04. Baghira - Put Your Arms(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B03409A6E5E9ED59617132FE4503F16A16D8C8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992009   (904458) от 29.02.2016
-
-VA - Dancefloor Hits State Tribute (2016) [MP3|258-320 кб/с] <House, Tropical, Future House, Club, Tribal, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904458.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Coldbeat - Magic Portal Reboot (Patos Remix) 03:47
-002. CrazyDeejay - A Butterfly (Extended Mix) 04:43
-003. Dan Winter - I'm On Fire (Radio Edit) 03:15
-004. Nicy - Waiting For Love (Smithee Remix) 04:14(   Читать дальше...   )Жанр: House, Tropical, Future House, Club, Tribal, ProgressiveПродолжительность: 11:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F76924F3EB1BCAE01C29EAA1D0CDCFFD25BF9C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1801901   (66136) от 14.06.2025
+
+King Gizzard & The Lizard Wizard - Phantom Island (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psychedelic Rock, Garage Rock, Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Phantom Island [5:15]
+02 - Deadstick [3:34]
+03 - Lonely Cosmos [5:36]
+04 - Eternal Return [4:35](   Читать дальше...   )Жанр: Psychedelic Rock, Garage Rock, Jazz RockПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D44CE78F435CD5E06D68101D3F9EDC6B3326149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801994   (66133) от 14.06.2025
+
+Fairyland - The Story Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Downfall (1:52)
+02.  To Stars And Beyond (5:28)
+03.  Karma (4:14)
+04.  A New Dawn (4:50)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E924EF0D38458A663710497B75CB5BE22470CA68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801993   (66118) от 14.06.2025
+
+Crosson - Guilty Of Rock (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nobody Wins (4:10)
+02.  No Solution (4:54)
+03.  Bound For Glory (5:00)
+04.  Guilty Of Rock (5:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51C59A2D2215CE02C390C2E1AF9AD4D3944187C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802079   (66110) от 14.06.2025
+
+Evadne - The Fragile Light of Fireflies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Doom, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadows [00:05:18]
+02. Under Blessed Skies [00:05:23]
+03. Where Silence Dwells [00:04:56]
+04. The Pale Light of Fireflies [00:06:57](   Читать дальше...   )Жанр: Melodic-Doom, AcousticПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBE4DD1ADD4CB3DAE9D66B27AA16340172F67BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802146   (66105) от 15.06.2025
+
+Eva (Csepregi Eva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66105.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Midnight
+A2 Carribean Holiday
+A3 How Do You Know
+A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD6879355900328F545240D5BB62A58F03502B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802112   (66101) от 15.06.2025
 
 Metallica - Load (1996) Remastered Deluxe Box Set, 2025, UMC (Universal Music Catalogue) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal, Metal>
@@ -599,151 +744,6 @@ e-Dancer, Kevin Saunderson, Dantiez - e-Dancer (2025) [FLAC 24/44.1|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:714B4D3729B8A2AA42B701D07289A67AB930DDD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802547   (66008) от 18.06.2025
-
-Darkness - Conclusion & Revival (2025) Remaster [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conclusion and Revival (Remastered) [00:02:56]
-02. Soldiers (Remastered) [00:04:29]
-03. The Omniscient (Remastered) [00:03:52]
-04. Under Control (Remastered) [00:04:26](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11620FD46B870DC363453B87C80871FD56B56292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802580   (66006) от 18.06.2025
-
-AJ Tracey - Don't Die Before You're Dead (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Outta Sight [2:01]
-02 - Second Nature [2:46]
-03 - 3rd Time Lucky [2:40]
-04 - Crush [3:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07CF67A4A4BCD5FD9391F34B456D20A38DCE1947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802832   (65984) от 19.06.2025
-
-VA - Cutterpillow: Tribute Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Amateurish - Superproxy (6:27)
-02.  Diego's Scenes - Back2Me (3:36)
-03.  Mi Mì - Waiting for the Bus (4:50)
-04.  Sansette - Fine Time (4:23)(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264BC5C72A2B2535587E5F182FD57A9C17DDB326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802795   (65982) от 19.06.2025
-
-Around The World in 80 Days - Euphoria (2014) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Rock, Ambient, Space-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Last War [5:40]
-02 - Shock [3:15]
-03 - Gravity [5:40]
-04 - Racing The Light [3:35](   Читать дальше...   )Жанр: Post-Rock, Ambient, Space-RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483A4250A786C69787934AC01BC166BA2F6CB072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802829   (65981) от 19.06.2025
-
-Electric Church - Used and Abused (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Superstar (5:30)
-02.  On the Run (3:29)
-03.  Devil's Creek (4:52)
-04.  Lovin' Man (3:59)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9371E5D9F85E2406F2DB16C13C7A6767006F57D
 ```
 
 https://mybot314.ru/tekegram_catalog/

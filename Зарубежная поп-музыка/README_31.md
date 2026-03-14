@@ -1,3 +1,61 @@
+###  Публикация: 1137744   (665561) от 28.05.2017
+
+Alex Maxwell - Signs + Lie To Me (2016-2017) 2EP [MP3|320 Kbps] <Alternative Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665561.jpg" />
+</div>
+
+
+###  Подробнее
+
+2016 - Signs (EP):
+01. Signs
+02. People Are Strange
+03. Letting You Know(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C264184A7FB7237A651AECB334DDDCADD277175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224539   (664863) от 11.05.2018
+
+VA - Beautiful Mornings - Mesmerizing Soulful Pop Vocals (2018) [MP3|320 Kbps] <Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Godfrey - Life Is An Open Door
+02. Angela Predhomme - Extra Day
+03. Tony Sway - She's Right Here
+04. Chris Warne - The Wall(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 03:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946C0006724AF14AAC766AA221CF5D982519F376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 512105   (664812) от 18.06.2012
 
 Laura Branigan - The Platinum Collection (2006) [MP3|320 кб/с]<Pop>
@@ -687,64 +745,6 @@ Glenn Frey - After Hours (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, Piano, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFEC40D8FD878D2A112CAA02F9302519DA9FFF91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904575   (654131) от 03.06.2015
-
-Toto Cutugno - Toto Cutugno - The Very Best Of (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'italiano (3:55)
-02. Donna, donna mia (2:58)
-03. L'ete indien (feat. Joe Dassin) (5:14)
-04. Insieme: 1992 (4:25)(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7290D7B4C554EFD933A833E4C144BE5B2D655587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226595   (653872) от 22.05.2018
-
-VA - Disco De Ouro Vol.20 (2018) [MP3|320 Kbps] <Pop, Ligeira, Sertanejo>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santamaria & Rui DC - Não Sejas Assim feat. Rui DC
-02. Adriana Lua - O Movimento
-03. Irmãos Verdades & Bárbara Rosa - Perdoa-Me feat. Bárbara Rosa
-04. Némanus - Gago Por Amor(   Читать дальше...   )Жанр: Pop, Ligeira, SertanejoПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89AF101608F92E39BDBF4FED8B4A828D654A8C5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

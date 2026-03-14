@@ -1,3 +1,96 @@
+###  Публикация: 1837685   (257712) от 18.11.2025
+
+Various - Killed By Deaf - A Punk Tribute To Motörhead (2025) Compilation [FLAC|Lossless|image + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pennywise– Ace Of Spades
+02. Rancid – Sex & Death
+03. The Bronx – Over The Top
+04. Lagwagon– Rock'n'Roll(   Читать дальше...   )Жанр: PunkПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1109CB036ED854440DC4D47589C261938C1BB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498230   (256173) от 20.05.2012
+
+The Rasmus - The Rasmus (2012) [FLAC|Lossless]<Rock, Alternative Rock, Symphonic Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger  (03:58)
+02. I'm a Mess  (04:12)
+03. It's Your Night  (03:37)
+04. Save Me Once Again  (04:35)
+05. Someone's Gonna Light You Up  (03:43)
+06. End of the Story  (04:10)
+07. You Don't See Me  (03:12)
+08. Somewhere  (05:28)
+09. Friends Don't Do Like That  (04:26)
+10. Sky  (03:58)Жанр: Rock, Alternative Rock, Symphonic Rock, Soft RockПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623949   (255554) от 04.04.2023
+
+Убей меня, Эйс! - Шесть способов перепрыгнуть воронку (2023) [FLAC|Lossless|WEB-DL|tracks] <Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Самый ненавистный элемент [00:02:36]
+02. Утиные истории [00:02:24]
+03. Датура [00:02:58]
+04. Филипп Моррис [00:02:05](   Читать дальше...   )Жанр: Post PunkПродолжительность: 00:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997BD193549EE1D9404791198B4D98905359B2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539160   (251982) от 28.05.2023
 
 Stereophonics - 14 альбомов (1997 - 2022) 18 CD [FLAC|Lossless|tracks + .cue, image + .cue]<Alternative Rock>
@@ -659,93 +752,6 @@ Exit North - Book of Romance and Dust (2018) [FLAC|Lossless|WEB-DL|tracks] <Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52E84D24858D95AF764D79892C0EFE8AF90D0425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615267   (242851) от 25.02.2023
-
-Self Deception - You Are Only As Sick As Your Secrets (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock, Alternative Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Water [00:03:36]
-02. Fight Fire With Gasoline [00:03:48]
-03. State Of Elysium [00:03:10]
-04. 11 [00:01:51](   Читать дальше...   )Жанр: Alternative Rock, Modern Rock, Alternative Metal, Modern MetalПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99F9B27F5AB918BB632055B4E82F2CB9A045367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615173   (242821) от 25.02.2023
-
-(hed) Planet Earth - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Vacant [00:03:14]
-02. I Wanna Be Sedated [00:02:35]
-03. I Fought The Law [00:02:20]
-04. Heart of Gold [00:02:49](   Читать дальше...   )Жанр: RapcoreПродолжительность: 2 CD, 01:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E550EEA818DA31410F2541DCF596BB9B1FBC4DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362758   (242578) от 24.02.2020
-
-Klangstof - The Noise You Make Is Silent (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank Page
-02. Attack Attack
-03. Death09
-04. Phantoms(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083AFAB380A164A127BD4F1BE88DEDB6481B7553
 ```
 
 https://mybot314.ru/tekegram_catalog/

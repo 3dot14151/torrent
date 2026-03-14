@@ -1,3 +1,154 @@
+###  Публикация: 1035766   (624650) от 18.07.2016
+
+Сергей Скачков - Половина пути (2014) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мужчины
+02. Артист
+03. Хулиган
+04. Вороньё(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F18E4F43B38548DA2585A2019E320CA0972210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521622   (624290) от 12.07.2012
+
+Виктор Цой - К 50-летию артиста (2CD) (2012) [FLAC|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_624290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звезда по имени солнце (03:25)
+02. Они сказали: 'Надо пройти'... (01:06)
+03. Дождь (Ты есть...) (02:33)
+04. Песня для БГ (Осень) (02:14)
+05. Возле дороги (01:38)
+06. Легенда (03:56)
+07. Когда твоя девушка больна (02:07)
+08. Восьмикласница (02:16)
+09. Малыш (02:44)
+10. Ты обвела меня вокруг пальца (03:08)(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294733   (624112) от 10.04.2019
+
+Курара - Кафка (2019) [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ненастоящий мужчина (06:01)
+02. Человек (04:05)
+03. Барнаул (06:08)
+04. Кафка (04:09)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C643410EEEBE54E69F2EBB23C635F1ABAB956B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544008   (623812) от 14.04.2022
+
+Атлас (Земляне, XX Век) - Атлас & Концерт на Старой Земле (2011) Compilation [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атлас (2011)
+01 - Космос
+02 - Колесо
+03 - Охотник(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1B6DB7A880B91B09D967535466D655BE213ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544004   (623652) от 14.04.2022
+
+Аракс - Звёздная Серия (2002) Compilation [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Черные кони
+02 Один взгляд назад
+03 Колокол тревоги
+04 Солнцем освещенная дорога(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73362B0825409F380AF2B0AAED719B676AB3E646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035895   (622569) от 19.07.2016
 
 Мураками - Телеграмма  (2014) [FLAC|Lossless|image + .cue] <Рок, Панк, Альтернатива>
@@ -603,150 +754,6 @@ Akado - Oxymoron № 2 (2008) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C09BCB06AE091F644F9F6B915C10A9C8F4B4F375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296556   (610132) от 18.04.2019
-
-Альянс - Сделано в белом (1991) Made In White (Aljans-3) [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Только с тобой (03:46)
-02. Дальше, дальше (04:47)
-03. На Восток (05:56)
-04. Эпиталама (09:03)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07DD8D01D59310B67FB6EE884F57C21B9D0E5012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296913   (608647) от 19.04.2019
-
-Antreib - Назад дороги нет (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Назад дороги нет
-02. Панк-рок
-03. Кто, если не ты?
-04. Наши голоса(   Читать дальше...   )Жанр: Hardcore PunkПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281D62A497D5091D599A246F4BEC55EB47F253F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296928   (608636) от 19.04.2019
-
-Akado - A U R A (2018) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A U R A (3:23)
- 02. A U R A (Instrumental) (3:23)Жанр: Alternative Rock, Indie RockПродолжительность: 00:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CF5526DB278BD7D1DFAF10434F2DFEE7B31F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546208   (607997) от 23.04.2022
-
-Легион - Отблески будущего & Prima centuria (2022) 2CD, OldWise Records [FLAC|Lossless|image + .cue] <Melodic Power, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Of The Dragon (2019)
-02. Битва с темнотой (2020)
-03. Tears Of The Dragon (instrumental)
-04. Битва с темнотой (instrumental)Жанр: Melodic Power, Heavy MetalПродолжительность: 2 CD, 01:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F624C3B4A0CD60E96E61571FFD0AC3C2CE168AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525608   (607390) от 21.07.2012
-
-Чичерина - Опасно (EP) (2011) [FLAC|lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_607390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Опасно (03:22)
-02. Осколки (03:26)
-03. Над Уралом (03:27)
-04. Главная Тема (OST Выкрутасы) (03:15)
-05. Опасно (DJ Nejitrino Radio Mix) (03:58)Жанр: RockПродолжительность: 00:17:31
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

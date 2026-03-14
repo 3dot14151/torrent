@@ -1,3 +1,90 @@
+###  Публикация: 1692883   (122000) от 19.01.2024
+
+Ruth Price - Sings With Johnny Smith (1956) 2002, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Nobody's Baby [1:59]
+02. It Never Entered My Mind [3:56]
+03. Wonderful Guy [2:13]
+04. Until the Real Thing Comes Along [3:40](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF1FC663C12192A474611A63A76F74E25F0F671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693045   (121993) от 19.01.2024
+
+Sonny Stitt - My Mother's Eyes (1963) 2011, EMI Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Special [3:41]
+02. My Mother's Eye [5:27]
+03. Stitt in Time [4:14]
+04. Blue Skies [4:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26361D6AB4F9D3B82B35C5FC920CE1C9272D7A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693048   (121990) от 19.01.2024
+
+Ruby Braff - And His New England Songhounds, Vol. 2 (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indian Summer [5:51]
+02. Thousand Islands [5:13]
+03. What's New [7:28]
+04. Heartaches [2:25](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D85528FCA7C53C248D88A3E94AC04C1EA9EDD8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693273   (121860) от 20.01.2024
 
 Ella Fitzgerald - Three Classic Albums Plus (1960, 1961) 2CD, 2014, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -658,93 +745,6 @@ Soulstance - The Jazz Art Of Relax Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43469B7DFAF5017B02081F9277D2F63F4760B73B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694888   (120598) от 27.01.2024
-
-JD Allen - Barracoon (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barracoon [4:11]
-02. G Sus [7:01]
-03. The Goldilocks Zone [3:18]
-04. The Immortal (H. Lacks) [6:27](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C964C8E758096F8DDC9CEDC3851C6302D3F7AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694886   (120594) от 27.01.2024
-
-Sarah Vaughan - Four Classic Albums (1954 - 1957) 2CD, 2019, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September in the Rain [3:37]
-02. Willow Weep for Me [5:21]
-03. Just One of Those Things [3:16]
-04. Be Anything (But Darling Be Mine) [4:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CDF2F6796252CB63D44F6D9CE3FE930F90CBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695351   (120451) от 28.01.2024
-
-Kalle Reger - Smooth Groove 1 (Smooth Groove 1) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hometown (Smooth Groove 1)
-02. Smooth Groove Remember (Smooth Groove 1)
-03. Ishow You Love (Smooth Groove 1)
-04. Tears On Your Cheek (Smooth Groove 1)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E74EF663DC82B5DAC5FB7D80D430FCCEFCDC401
 ```
 
 https://mybot314.ru/tekegram_catalog/

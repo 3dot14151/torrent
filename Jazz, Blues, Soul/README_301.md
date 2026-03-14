@@ -1,3 +1,179 @@
+###  Публикация: 1410841   (431933) от 23.09.2020
+
+Nat King Cole - Spotlight on Nat King Cole (1944 - 1960) 1995, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Funny that Way [3:04]
+02. Sunday, Monday or Always [2:21]
+03. Crazy She Calls Me [2:36]
+04. Spring Is Here [2:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6744B37D9FCED6664CA5340861D7E044D19EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410842   (431931) от 23.09.2020
+
+Louis Armstrong - Highlights from His Decca Years (1924 - 1958) 1994, 2CD, GRP [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431931.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Wild Man Blues [3:06]
+02. Weary Blues [2:48]
+03. Georgia Bo Bo [3:06](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F558B3DE88F10B62FEF638571DE2C38D06A8480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410887   (431926) от 23.09.2020
+
+Wes Montgomery - The Remasters (All Tracks Remastered) (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monk's Shop (Remastered 2017) (03:52)
+02. 'Round Midnight (Remastered 2015) (04:53
+03. One for My Baby (And One More for the Road) (Remastered) (07:41)
+04. Falling in Love With Love (Remastered 2017) (06:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F58B2EC8C3E359C46719DAA476E748D9CD19E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945685   (431909) от 11.10.2015
+
+Oliver Lake Steel Quartet - Dat Love (2003) [FLAC|image+.cue]<Post-Bop, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stolen Moments
+02. Double Space
+03. Venus
+04. Dat Love(   Читать дальше...   )Жанр: Post-Bop, Free JazzПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246A1B1814A9D2A9ACEB7C1422C2E2DB17F76B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945683   (431908) от 11.10.2015
+
+Oliver Lake Quintet - Dedicated to Dolphy (1996) [FLAC|tracks+.cue]<Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Waltz Waldron
+02. Hat and Beard Dolphy
+03. Feather Smith
+04. 245 Dolphy(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1887DABEDA4A98383B3BCAD9AE14875AB69AFC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553497   (431869) от 03.10.2012
+
+Jaco Pastorius, Kenwood Dennard, Hiram Bullock - PDB (1989) Live / DIW Records / [APE|Lossless]<Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_431869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invitation (Kaper/Webster) (9:43)
+02. Three Views Of A Secret (Pastorius) (7:37)
+03. Son Of Creeper (Bullock) (6:01)
+04. Ode To Billy Joe (Gentry) (3:37)
+05. Continuum (Pastorius) (4:36)
+06. Dolphin Dance (Hancock) (10:21)Жанр: Jazz-RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945962   (431865) от 11.10.2015
 
 The Australian Jazz Quintet - At The Varsity Drag (1956) /2014, Solid Records/[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
@@ -596,180 +772,6 @@ Rick Derringer - Back To The Blues (1993) [FLAC|Lossless|tracks + .cue] <Blues R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1982352584144BFB5C9DC609296A50A1A720E0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063983   (430369) от 18.10.2016
-
-Janet Klein & Her Parlor Boys - Put A Flavor To Love (2002) Coeur De Jeanette Productions[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Put A Flavor To Love [04:26]
- 02.Troubled Waters [04:23]
- 03.If I Could Be With You One Hour Tonight [03:00]
- 04.My Bundle Of Love [02:44](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9771905342D03747FDF00B33BC58F10A91809440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064142   (430347) от 18.10.2016
-
-Burton, Corea, Metheny, Haynes, Holland - Like Minds (1998) [WavPack|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Question And Answer (6:23)
-02. Elucidation (5:21)
-03. Windows (6:17)
-04. Futures (10:41)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41471CD56C872B3B89BD3764EB5B351A10D5DFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063981   (430342) от 18.10.2016
-
-Nick Michael Taylor - Sweet Sour And Blue (2015) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crying Out To You   (04:01)
-02. Keep On Running   (03:39)
-03. Your Kind Of Love (Is Better Than No Love At All)   (03:17)
-04. Had To Cry Today   (06:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0C47CD938A71F4FA2FC2E01F1555B596366C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411134   (429994) от 24.09.2020
-
-Bob Brookmeyer - Mosaic Select 9 (1954 - 1958) 2004, 3CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429994.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Liberty Belle [2:49]
-02. Have You Met Miss Jones [3:34]
-03. Isn't It Romantic [2:38](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 03:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4F24572EBB07EA696282D332C3F6629ACF7CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411136   (429975) от 24.09.2020
-
-Wynton Marsalis & Arturo Sandoval - Los Elefantes (1999) in-akustik [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Giants Talking to Dizz [1:45]
-02. Tunisias Blues [7:16]
-03. Wheel Within a Wheel [6:35]
-04. Los Elefantes [6:53](   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94483B43E6ED08A1BA95136D8BCCD4ADC975DACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571709   (429859) от 23.08.2022
-
-Breezy Rodio - Underground Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half Way in the Devil's Gate (feat. Anson Funderburgh) (4:50)
-02. C.H.I.C.A.G.O. (3:55)
-03. Underground Blues (4:48)
-04. Playing My Game Too (feat. Anson Funderburgh) (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA6663AD8EF23E7CC475CC75CEC074A236098EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

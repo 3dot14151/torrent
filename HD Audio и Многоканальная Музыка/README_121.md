@@ -1,3 +1,148 @@
+###  Публикация: 1720542   (110218) от 04.05.2024
+
+U.D.O. - Game Over (2021) Limited Edition,2022, AFM Records[FLAC|24/192|tracks|Vinyl-Rip]  <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110218.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Fear Detector
+A2 Holy Invaders
+A3 Prophecy
+A4 Empty Eyes(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B65DBAAD63F95508154A788EC552207CBC2A91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720647   (110212) от 04.05.2024
+
+Nick Kamen - Nick Kamen (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110212.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Win Your Love
+A2 Open The Door To Your Heart
+A3 Nobody Else
+A4 Into The Night(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899AA2E0691E2EE87FCD1B0B268DC648237D016C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720624   (110210) от 04.05.2024
+
+Tim Garland - Moment Of Departure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds Of Hope (5:13)
+02. Trails (7:05)
+03. No Horizon (7:47)
+04. The Impossible Self (3:32)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87666A043E34DA2DBDFA19E7F57378C4493C7229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720628   (110209) от 04.05.2024
+
+Win Pongsakorn - Time Has Changed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man In The Mirror (5:52)
+02. Pensri (5:18)
+03. Hummingbirds At Balata Garden (5:58)
+04. Time Has Changed (6:16)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D490C23DD7A6054A6771A7C70A2C5DFAE62BD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720689   (110208) от 04.05.2024
+
+Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battle of the Underworlds (5:22)
+02. We Live Another Day (3:45)
+03. Creepy Shadows (3:31)
+04. One Dark Happy Nation (3:37)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DB86AA61FBF761BD1A4E7E6D0ADA13495E7BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720597   (110207) от 04.05.2024
 
 Fergus McCreadie - Stream (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -600,151 +745,6 @@ AWaJI Jazz Blues - Superstition (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:957CF877280955E82C02C89205B03CD3B8CDD45F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721747   (109952) от 08.05.2024
-
-Fux Jazz Band - Mi Lugar de Fantasía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mi Lugar de Fantasía (3:53)
-02. Los Colores del Blues (3:20)
-03. Vals Bajo La Luna (4:22)
-04. Down The Hill (3:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53B6448B2F7E64E795F8DC5E0634E9B7324A3C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721756   (109949) от 08.05.2024
-
-Novelty Five - Rosetta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Have Found a New Baby (4:21)
-02. Careless Love (Loveless Love) (3:11)
-03. Basin Street Blues (4:07)
-04. Jitterbug Waltz (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442047F4047E8318CFEA55956DFBC83817B4C264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721755   (109947) от 08.05.2024
-
-Monica Shriver - Unfolding (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lift (6:05)
-02. Brick By Brick (5:17)
-03. Blue Nile (8:38)
-04. It's Not All On You (5:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC09E530AF13FD66170223B5D66F739094FDBBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721764   (109946) от 08.05.2024
-
-WailingGita - Mafia's Masquerade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frolicking Marionette (5:48)
-02. Swoon Buffoon (5:34)
-03. Kumicho's Grand Entrance (4:51)
-04. Malice Palace (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD2467FA55D85D630BC2E0EAAA37C8859CAD5C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721753   (109943) от 08.05.2024
-
-Gugun Blues Shelter - Coming Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming Out (3:13)
-02. Don't Cry For Me (3:53)
-03. Heart Breaker (4:01)
-04. Bad Politician (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D4D0D449C1C8E64E288529C5DD4F50CD4AC788
 ```
 
 https://mybot314.ru/tekegram_catalog/

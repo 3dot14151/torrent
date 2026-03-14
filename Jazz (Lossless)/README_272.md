@@ -1,3 +1,90 @@
+###  Публикация: 1591644   (186923) от 19.11.2022
+
+Joe Pass - Unforgettable (1992) 1998, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Romance [3:58]
+02. The Very Thought of You [4:09]
+03. I Cover the Waterfront [4:16]
+04. Isn't It Romantic [3:13](   Читать дальше...   )Жанр: Bop, Guitar JazzПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62CBC6F3BB72D45D98FE275FC0298B419FAAB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591640   (186921) от 19.11.2022
+
+Joe Pass & J.J. Johnson - We'll Be Together Again (1983) 1996, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave [3:39]
+02. We'll Be Together Again [4:25]
+03. Naked as a Jaybird [5:04]
+04. Blue Bossa [4:10](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642A6066B8638459C4F29E0CB8AA98EE36AA1619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591649   (186901) от 19.11.2022
+
+Ahmad Jamal (Ahmad Jahal) & Wynton Marsalis - Modern Jazz (2005) KM International Consultants [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning of the Carnival [10:47]
+02. One [9:35]
+03. People [5:26]
+04. Waltz for Debby [6:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA53735D5B094AB10B70A4B8C58665249A427AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663309   (186893) от 21.09.2023
 
 Tubby Hayes - Three Classic Albums Plus (1955 - 1960) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Mainstream Jazz>
@@ -658,93 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76423E77E97CAA2B44D8085299CE73001CE50ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427112   (184567) от 27.11.2020
-
-Brother Jack McDuff - Down Home Style (1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vibrator [4:48]
-02. Down Home Style [5:06]
-03. Memphis in June [4:16]
-04. Theme from Electric Surfboard [3:34](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-FunkПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E80F8A4EDB2D4639CDE56DABCB7679CF9B4164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427137   (184395) от 27.11.2020
-
-VA - Swinging Classics (2006) [FLAC|Lossless|tracks + .cue] <Jazz, Classical>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё одно приобретение из новых. Хотя диску уже более 14 лет не мог пройти мимо, потому как джазовые аранжировки классических произведений всегда несут в себе заряд нового прочтения известных мелодий. И для любителей джаза, равно как и для любителей классической музыки джазовые обработки произведений композиторов – классиков всегда откроют новые краски в хорошо знакомых (   Читать дальше...   )01. Eugen Cicero - Sonata in C (after Domenico Scarlatti)  (3:58)
-02. Bill Evans Trio - Valse (Siciliano in G Minor) (after J.S. Bach)  (5:51)
-03. Stan Getz - Once (after Gabriel Faure)  (2:50)
-04. Hank Jones - Fugue Tune (after J.S. Bach)  (4:28)(   Читать дальше...   )Релиз состоялся: 26 июля 2006 годаЖанр: Jazz, ClassicalПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94AA56C41B3D15D91C393FF335E34D75E994307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664913   (184071) от 28.09.2023
-
-Ralph Burns - Bijou (1955) 1999, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring Sequence [6:13]
-02. It Might as Well Be Spring [4:54]
-03. Spring Is Here [3:37]
-04. Sprang [3:58](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74DFC781F398398446EED0963F86D216F9EFE95
 ```
 
 https://mybot314.ru/tekegram_catalog/

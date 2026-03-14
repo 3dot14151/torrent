@@ -1,3 +1,148 @@
+###  Публикация: 1722178   (109742) от 10.05.2024
+
+2 Wolves - Not Worth It (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Doom/Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Longer [00:06:45]
+02. Failed Attempts [00:06:10]
+03. Man of Thousand Faces [00:06:42]
+04. Garden of Ashes [00:06:52](   Читать дальше...   )Жанр: Gothic Doom/Melodic Death MetalПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190B379DE59F0787581DA237157CA90E495ED9F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722328   (109741) от 10.05.2024
+
+Falls Circus - Falls Circus (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring In The Clowns (4:49)
+02. Parts and Pieces (3:57)
+03. The Place Called Wonderful (4:09)
+04. Intangible (3:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404EB958E956F9A80789AF2B5EC310703B7A2C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722171   (109740) от 10.05.2024
+
+Unleash The Archers - Phantoma (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human Era (5:41)
+02. Ph4/NT0mA (6:30)
+03. Buried In Code (3:40)
+04. The Collective (5:54)(   Читать дальше...   )Жанр: Power Metal, Melodic Death MetalПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DF019B869ABCE1349F6041B709C5D5CE540ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722191   (109737) от 10.05.2024
+
+Uncle Acid & the Deadbeats - Nell' Ora Blu (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psychedelic Rock, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il Sole Sorge Sempre (5:16)
+02. Giustizia Di Strada - Lavora Fino Alla Morte (4:36)
+03. La Vipera (3:34)
+04. Vendetta (Tema) (3:11)(   Читать дальше...   )Жанр: Psychedelic Rock, Doom MetalПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71AAA2B9B7EA010CEAA880C3925A93E76E3F583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722333   (109735) от 10.05.2024
+
+Glen Ample - Living in Desire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back in Time (3:49)
+02. Rock'n'Roll Life (3:46)
+03. Living in Desire (4:17)
+04. Cheer Up (2:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D819CAD710E8E38C1AAD7A4CEDD4A60450B1706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722227   (109733) от 10.05.2024
 
 Anette Olzon - Rapture (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Modern Metal>
@@ -600,151 +745,6 @@ VA - Instrumental Jazz Music (Smooth Saxophone) (2024) [FLAC 24/44.1|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D6CB97C8A3D982F0075957B564E9A77AB1C7B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723201   (109581) от 14.05.2024
-
-Instrumental Music Ensemble - Smoldering Erotic Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Club (3:48)
-02. The Velvet Lounge (4:14)
-03. Jazz & Whiskey (3:39)
-04. A Smoky Bar Lounge (4:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3EB7220C07B016B11940725464E030AAF1D8758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723196   (109578) от 14.05.2024
-
-Cal Harris JR - Bridges (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ordinary Days (3:42)
-02. Lean In (4:22)
-03. Bridges (4:07)
-04. Lemon Salt (3:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B44856CAC98548AC793344D9CDC8D116229605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723486   (109455) от 16.05.2024
-
-Starship - No Protection (1987) Specialty Records Pressing [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, AOR>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109455.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Beat Patrol
-A2 Nothing's Gonna Stop Us Now
-A3 It's Not Over ('Til It's Over)
-A4 Girls Like You)(   Читать дальше...   )Жанр: Rock, AORПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B9F7FC7F5E4D94440627A31CC3B7FD38F2CAC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723679   (109440) от 16.05.2024
-
-Demon - Invincible (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:27)
-02. In My Blood (4:40)
-03. Face The Master (4:26)
-04. Ghost From The Past (5:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763A47989109B044945457FC24669BB32799624F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723204   (109439) от 16.05.2024
-
-Jazz Guitar Club, Background Instrumental Music Collective, Romantic Love Songs Academy - Passion And Pomegranate: Best Romantic Guitar Music of All Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]  ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passion And Pomegranate (3:35)
-02. Romantic Love Songs Academy - Absolute Satisfaction (3:02)
-03. Background Instrumental Music Collective - Morning Kiss (3:39)
-04. Savage Feeling (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2876508710FE5315CC8D63275B04E4333CC836
 ```
 
 https://mybot314.ru/tekegram_catalog/

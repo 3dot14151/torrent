@@ -1,3 +1,148 @@
+###  Публикация: 1036589   (619095) от 21.07.2016
+
+Savage Garden - Savage Garden (1997) 2CD, Mixed [APE|Lossless|image + .cue] <Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You (Xenomania Funky mix)
+02. Break Me Shake Me (Broken mix)
+03. Santa Monica (Bittersweet mix)
+04. Tears of Pearls (Tears on the Dancefloor mix)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 01:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215EA7CA71DC9F16EB2462780D8596EE2AA36C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036532   (618984) от 21.07.2016
+
+ABBA - The Album (1977) Reissue, Deluxe Edition, 2007, Polar [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle (5:53)
+02. Take A Chance On Me (4:07)
+03. One Man, One Woman (4:34)
+04. The Name Of The Game (4:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B4E81C9976FAF7A529FDCC6CEDA2D9DDDF362E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230156   (618977) от 10.06.2018
+
+VA - The Mojo Machine Turns You On 1 (1997) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомню, что MOJO - это британский музыкальный журнал, выходящий ежемесячно и издающийся с 1993 года. Иногда он выпускает вот такие сборники групп и солистов, представленных в журнале. Как правило выпуск сопровождается достаточно интересным буклетом, являющимся как бы продолжением журнала. Сборники в продажу не поступают, а распространяются по подписке, о чем на (   Читать дальше...   )01. Gary Moore - Afraid of Tomorrow  (5:00)
+02. Steve Winwood - Fill Me Up  (4:27)
+03. Prefab Sprout - Whoever You Are  (2:49)
+04. John Mayall - Stone Cold Deal  (4:19)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD550C67812BB5050B4099CE0420ED268C2E5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544983   (618298) от 17.04.2022
+
+VA - The British Pop Collection (60 Original Artists 60 Original Hits) (1983) Axis, Australia [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618298.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мнению австралийских продюсеров EMI (а первое издание на LP было от EMI (Australia) Limited) в 1983 году эти 60 исполнителей представляли цвет британской популярной музыки. Мне трудно почти через 40 лет давать оценку правильности этого выбора, но вот что точно можно сказать, что часть из представленных Artists действительно были в то время на слуху у продвинутой (   Читать дальше...   )CD1:
+01. Hermans Hermits - My Sentimental Friend  (3:17)
+02. Cilla Black - You're My World  (2:57)
+03. Brian Poole & The Tremeloes - Do You Love Me?  (2:21)(   Читать дальше...   )Тип издания: BoxSetЖанр: Pop, Rock, DanceПродолжительность: 02:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC807E9A69795F23EE08936A9563AEB01A8C4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145854   (618083) от 27.06.2017
+
+Lucho Gatica - Historia de un amor (2013) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Historia de un amor - duet with Laura Pausini
+02. No me platiques - duet with Beto Cuevas
+03. Bésame mucho - duet with Nelly Furtado
+04. Quizás quizás quizás - duet with Michael Bublé(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5638D3AF7201E905E8B432AF498FE13F03AC091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146051   (617978) от 27.06.2017
 
 Carole King - The Real... Carole King (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
@@ -602,151 +747,6 @@ HONNE - Warm On A Cold Night (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8DB29C4FD7E54681703FB61835129F924C91AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297294   (604736) от 21.04.2019
-
-Bee Gees - Odessa (1969) Deluxe Edition, 2017 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Odessa (City On The Black Sea) [07:31]
-02. You'll Never See My Face Again [04:24]
-03. Black Diamond [03:30]
-04. Marley Purt Drive [04:28](   Читать дальше...   )Жанр: PopПродолжительность: 02:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:603A73706D25E8FD503ACBBCF77AA3636F5176DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148217   (604471) от 05.07.2017
-
-Patrick Lindner - Die kleinen Dinge des Lebens (1990) [FLAC|Lossless|image + .cue] <Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604471.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Die kleinen Dinge des Lebens
-2. Und wenn i tanz mit dir (des is a Wahnsinn)
-3. A bisserl Abschied gibt's halt nicht
-4. Und wenn's Nacht wird, gibt's a Busserl(   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F84D7EA9E0011209AED6C4DACBAC1BFAB9A82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546632   (604419) от 25.04.2022
-
-Lucius - Second Nature (2022) [FLAC|Lossless|tracks + .cue] <Disco, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604419.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Second Nature (03:31)
-2. Next to Normal (03:10)
-3. 24 (04:14)
-4. Heartbursts (03:55)(   Читать дальше...   )Жанр: Disco, Indie PopПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFE677CA95F6368323E1B38A40E7A0BF9E3A149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148179   (604314) от 05.07.2017
-
-VA - Romantic Serenade (2001) [FLAC|Lossless|image + .cue] <Traditional Pop, Vocal, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Engelbert Humperdinck - You'll Never Know (2:51)
-02. Vic Damone - Love Letters (3:15)
-03. Kenny Rogers - It Had To Be You (2:42)
-04. Tony Bennett - My Heart Stood Still (3:09)(   Читать дальше...   )Жанр: Traditional Pop, Vocal, Easy ListeningПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2EB98D3D8C7BDCF08334BC56EE64736AF3B3EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064602   (604245) от 25.04.2022
-
-Enrique Iglesias - Latin Collection 2000 (2000) [APE|Lossless|image + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm Divine
-02. Bailamos
-03. Ruleta Rusa
-04. Al Despertar(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B56E4817A5BB4DE14BB170F12AEF33C18C08252
 ```
 
 https://mybot314.ru/tekegram_catalog/

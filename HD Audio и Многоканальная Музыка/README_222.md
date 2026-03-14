@@ -1,3 +1,148 @@
+###  Публикация: 1743887   (46283) от 19.08.2024
+
+Imperia - Dark Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Place (4:15)
+02. Reach My Tears (4:02)
+03. The Family Chain (4:56)
+04. The Tree Of Life (6:24)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C7085829E3649AC479A9B8146ED2E0179D1DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744118   (46282) от 19.08.2024
+
+Meg Washington\\Melbourne Symphony Orchestra - Live At Hamer Hall (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Female Vocals>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catherine Wheel (Live) [00:06:37]
+02. Sunday Best (Live) [00:04:46]
+03. Saint Lo (Live) [00:03:52]
+04. Achilles Heart (Live) [00:04:16](   Читать дальше...   )Жанр: Alternative, Female VocalsПродолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA54AC86107308CF46DBC6429CC7E16CC1F0CF33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743989   (46280) от 19.08.2024
+
+Richard Clapton - Prussian Blue (1973) Remaster, 2024, WM Australia [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soft Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardly Know Myself (2024 Remaster) [00:03:32]
+02. Southern Germany (2024 Remaster) [00:04:12]
+03. Poor Man’s Saviour (2024 Remaster) [00:03:20]
+04. Strange Days in Chippedale (2024 Remaster) [00:03:31](   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC28BE4012D9AC08F47919853EC43DD4AB469782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743864   (46279) от 19.08.2024
+
+Good Fortune - Stories Untold (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crown of Thorns (3:52)
+02. Adolescence (3:48)
+03. Diamonds Underneath (4:13)
+04. Pieces (3:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2248A9A68B93101B133A6A9002537642BD76C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743846   (46272) от 19.08.2024
+
+Beasto Blanco - Kinetica (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run For Your Life (2:58)
+02. Nobody Move (3:32)
+03. Heavy Is The Head (3:31)
+04. Unreal (feat. Chris Harms; Lord Of The Lost) (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4325FC80580E5ABCEB9A3783C60B221369FC140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655777   (46196) от 20.08.2024
 
 Dark The Suns - Studio Albums (6 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Gothic Metal>
@@ -593,151 +738,6 @@ Helloween - Chameleon (1993) Remaster, 2024, Sanctuary Records [FLAC 24/44.1|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7216878CF46671A68A9E5482F7336C9B7F6EAB61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747005   (44719) от 03.09.2024
-
-The Delta Blues Collective - Peace, Love, and Groove (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Only Joy (2:28)
-02. Love in Motion (3:38)
-03. Lost in Myself (2:37)
-04. Forever My Love (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF42B6E2B2EABF5E8ADFF97103AD18B9C8B56249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746556   (44714) от 03.09.2024
-
-Helloween - Pink Bubbles Go Ape (1991) Remaster, 2024, Noise Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink Bubbles Go Ape (0:36)
-02. Kids of the Century (3:52)
-03. Back on the Streets (3:23)
-04. Number One (5:13)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96EA26382A8E37C7E483CCB27D161D583B1B486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746925   (44702) от 03.09.2024
-
-Stratovarius - Demand (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demand [00:04:03]
-02. Event Horizon [00:04:23]
-03. Voice of Thunder [00:11:10]
-04. Infernal Maze [00:05:34](   Читать дальше...   )Жанр: MetalПродолжительность: 00:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAF65361C680625367ED11DBDB3B9267BE6BAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747101   (44607) от 04.09.2024
-
-No Bull - Getting Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy to Look Rich (5:37)
-02. Give Me a Dime (3:59)
-03. Too Much (4:16)
-04. Getting Out (5:03)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A97B723284B63EB3BBCD71D1791294776B5C916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747607   (44419) от 06.09.2024
-
-VA - Romantic Collection Ретро (1999) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-A1 О. Анофриев – Песня о друге
-A2 А. Герман – Надежда
-A3 Л. Утесов – Московские Окна(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77AB372A6A44E0C752A935ADD592B244EA89D09B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1751521   (42311) от 26.09.2024
+
+Crimson Veil - Hex (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Gothic Metal, Gothic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HEX [00:05:27]
+02. Ribbons [00:06:02]
+03. Flinch [00:04:02]
+04. Shift [00:06:19](   Читать дальше...   )Жанр: Alternative Metal, Gothic Metal, Gothic RockПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0125009483FAE56EC4AAC9082340A9D1366D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751581   (42310) от 26.09.2024
+
+Patti LuPone - A Life in Notes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Broadway [00:02:00]
+02. Don't Cry For Me Argentina [00:04:46]
+03. I Dreamed A Dream [00:04:08]
+04. The Ladies Who Lunch [00:04:01](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1010E56C7064FC58A636680B0E318A4047F98B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751630   (42309) от 26.09.2024
+
+Steve Louw - Between Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alibi (4:07)
+02. We Had it All (3:37)
+03. Beggar Tonight (4:40)
+04. Giants Walk the Land (4:46)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB5D9B85CEA446C7DFC54F4381BCC70D8D7B292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751637   (42307) от 26.09.2024
+
+The Delta Blues Collective - My Town Was Memphis in 1973 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Let Go (2:50)
+02. Shoes on the Line (2:54)
+03. Dreams in the Night (3:07)
+04. Dance Through The Night (1:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E5A48AE0D4A43133C744E38B624CA55CE49738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751671   (42305) от 26.09.2024
+
+Ivy Lab - Infinite Falling Ground Pt.2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Bass, Beats, Leftfield, Trap>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Perimeter [00:02:06]
+02. Left With You [00:03:31]
+03. Curves [00:03:17]
+04. Precious [00:03:45](   Читать дальше...   )Жанр: Electronic, Bass, Beats, Leftfield, TrapПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F28583635D31E063B89507A6BC9A6D012EA698A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751638   (42304) от 26.09.2024
 
 Ratt - Studio Albums (2 releases) (1999; 2010) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Glam Metal, Hard Rock>
@@ -598,151 +743,6 @@ Bryan Ferry (Roxy Music) - Retrospective (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1192A632A2900FE2DFB0FF6C4873CE45973B2FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752780   (41677) от 02.10.2024
-
-Darnell "Showcase" Taylor - Worth the Wait (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patches Stewart - Nights in Napa (4:27)
-02. Chelsey Green - Paradise (3:56)
-03. Marqueal Jordan - Lo-Fi Vibes (3:59)
-04. House of Love (3:39)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4695FD75E2FFBFB2147638DB83230CAA994FE055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752781   (41673) от 02.10.2024
-
-Marigold Bachman Blackout - Phoenix Rise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Institute (3:57)
-02. Monkey With a Gun (5:39)
-03. New Old State (4:13)
-04. Bounty Hunter (4:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3BD4CA1A366F6C993D274024DA2D1CC60ABF43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752779   (41663) от 02.10.2024
-
-Cigar Box Band - Time To Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Remember (3:43)
-02. Back To Where I Pray (5:20)
-03. Time To Go (4:22)
-04. Peace Within Myself (3:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127A0FD864AC0682DB5CD5E058DD52E36C833B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752612   (41662) от 02.10.2024
-
-Pavlov's Dog - Essential Recordings 1974-2018 Pavlov's Dog (1974-2018) Remastered, 2024, Ruf Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-rock, Blues-Rock, AOR>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris (4:44)
-02. Hard Times (4:25)
-03. Winterblue (4:05)
-04. Thrill of It All (5:56)(   Читать дальше...   )Жанр: Progressive-rock, Blues-Rock, AORПродолжительность: 5CD, 04:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C3E2ACC8B30BA2044A99BEAAFE1300D017BF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752994   (41578) от 03.10.2024
-
-Cyber Beats Nexus - ROCK 1.0 (1.0) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ironing Man (3:16)
-02. Lemonade Stall (3:51)
-03. TOOKETH (Taken Again) (2:41)
-04. Room For Two (2:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F34C2CB154F0ACA42C9495734FEEB191B9143B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

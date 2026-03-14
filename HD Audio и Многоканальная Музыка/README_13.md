@@ -1,3 +1,154 @@
+###  Публикация: 772304   (834257) от 03.04.2014
+
+Queen - News Of The World (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. We Will Rock You  2:03
+2. We Are The Champions  3:00
+3. Sheer Heart Attack 3:27
+4. All Dead, All Dead  3:10
+5. Spread Your Wings  4:35
+6. Fight From The Inside  3:05
+Сторона 2
+1. Get Down, Make Love  3:53
+2. Sleeping On The Sidewalk  3:08(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97472E7B1ABF53E64E1FC11981E5C04A9A743F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005102   (834167) от 08.04.2016
+
+Puhdys / Пудис (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834167.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Когда Умирают Мечты · Wenn Träume Sterben
+A2	Ловцы Жемчуга · Perlenfischer
+A3	Буревестник · Sturmvogel
+ A4	Время Жизни · Lebenszeit(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2D5BE717D6373C7BB06333885474E005AA24AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501854   (833536) от 11.10.2021
+
+Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Space Rock, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atomic (Remixed Extended Version) [00:05:09]
+02. Radiate (Remix) [00:04:22]
+03. Radio Station (Extended Version) [00:05:02]
+04. Ideomatic (Remix) [00:04:16](   Читать дальше...   )Жанр: Space Rock, ElectronicФормат: Vinyl-RipПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C2BEE7F702FC9B9A276E71CF3A260976E24919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380462   (832949) от 03.05.2020
+
+Frank Sinatra - My Way (1969/1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832949.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Watch What Happens (from ''The Umbrellds of Cherbourg'')
+Norman Gimbel, Michel Legrand, Jaques Demy
+A2. Didn't We
+Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380624   (832820) от 03.05.2020
+
+The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss You (4:49)
+ 02. When the Whip Comes Down (4:21)
+ 03. Imagination (4:39)
+ 04. Some Girls (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 773795   (832753) от 04.04.2014
 
 Electric Light Orchestra - On The Third Day (1973) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
@@ -596,148 +747,6 @@ A4. Fire Dance (4:31)(   Читать дальше...   )Производств�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ADBCE6D9ADDB527CE6AC29CE084009EFF6027DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656547   (815733) от 15.05.2013
-
-Halestorm - The Strange Case Of... (2012) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard Rock, Alternative MetalПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A6D85ADF18C078F87C9048D9EE202F12BA895B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503985   (815567) от 21.10.2021
-
-Юрий Шевчук и группа ДДТ - Сборник песен (2021) Vinyl-Rip [FLAC|44/24|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Белая река
-2. В последнюю осень
-3. Просвистела
-4. Что такое осень(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D60A49D14B3B04D4138F4963BE4BE5D5927FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008559   (815263) от 18.04.2016
-
-Inside the Music: Women on Top (2001) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <Pop, Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Of Glass - Blondie
-02. Walking On Sunshine - Katrina And The Waves
-03. We Belong - Pat Benatar
-04. Bette Davis Eyes - Kim Carnes(   Читать дальше...   )Жанр: pop, pop/rockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99858DF9575FB203A2B4017B769953F07DC2A857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008532   (815255) от 18.04.2016
-
-Checkfield - Surrounded (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <smooth-jazz, new age>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815255.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Through The Lens
-2. Grasslands
-3. Flowers
-4. Clockwork(   Читать дальше...   )Жанр: smooth-jazz, new ageПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A3C004ED197BFD75B3C70845F87362723AE935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117989   (814903) от 24.03.2017
-
-Cinderella - Long Cold Winter (1988) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Hard Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fallin' Apart at the Seams (5:19)
-02. Gypsy Road (3:55)
-03. Don't know What You Got (Till It's Gone) (5:54)
-04. The Last Mile (3:52)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BE62B8CB643F25DE30384381B75B2F154AD46C
 ```
 
 https://mybot314.ru/tekegram_catalog/

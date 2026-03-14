@@ -1,3 +1,61 @@
+###  Публикация: 1853325   (1056343) от 12.02.2026
+
+Matt Smith - ...this is not ok... (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  World Is a Wheel (4:48)
+02.  Cry for America (5:26)
+03.  Orphans (3:34)
+04.  Level Ground (4:12)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96873035300E142464B91F79E16FC87BE8B6F20D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852939   (1056335) от 10.02.2026
+
+Back pOrchEstra - Stories In The Heart (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ever Think About It (4:19)
+02.  What Does Your Heart Say? (4:11)
+03.  I'm Wild About My Lovin' (3:25)
+04.  Kathy Kennedy - Dusty Road I'm On (4:09)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5948FE2C6FD544A6CC80FB2E26B7502E94B83BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852942   (1056333) от 10.02.2026
 
 Dixi's - Psycho Killer (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
@@ -687,64 +745,6 @@ Smokey Rivers and The Midnight Circuit - Smokey Rivers and the Midnight Circuit 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB3C3EEE3795B8756752443D6FAA038A66D95632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850323   (1054199) от 27.01.2026
-
-The Imaginaries - Fever (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fever (2:56)
-02.  The Imaginaries feat. Ariel Posen - Wishing Well (4:05)
-03.  The Imaginaries feat. Joe Bonamassa - Crossroads (3:48)
-04.  The Imaginaries feat. Vince Gill - Whole Lotta Livin' (2:20)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C345D411BC7218A30AD5877B463494D66DAE9495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850123   (1053971) от 26.01.2026
-
-Solomon Hicks - How Did I Ever Get This Blue (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Further On Up The Road
-02. Dimples
-03. Driftin' And Driftin'
-04. All Your LoveЖанр: BluesПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48687C05D0BA0661CFC3D2B71E6991CC974F453A
 ```
 
 https://mybot314.ru/tekegram_catalog/

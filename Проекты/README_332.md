@@ -1,3 +1,29 @@
+###  Публикация: 1087107   (147756) от 26.12.2016
+
+Проекты - VideoHive - Dynamic Opener 2 - 18977792 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Opener 2 - проект для создания вступительного ролика в основное видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9637E4E36C141D54D84B16339719BE7181A78A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086895   (147725) от 26.12.2016
 
 Проекты - VideoHive - Unique Promo v8 - 18978632 [AEP]
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E93D969A5639509408EBA45C0F916C210E15D18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087330   (145872) от 27.12.2016
-
-Проекты - VideoHive - Multifunction Particles Toolkit - 19070461 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Multifunction Particles Toolkit - инструментарий многофункциональных анимированных частиц, который может помочь сделать ваше видеопроизведение визуально интересным и удивительным!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987361021B277086CB7AF1ED0D95689CD09CBB90
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1623882   (238301) от 03.04.2023
+
+VA - Mega Hits 2013 (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii - Wake Me Up (Radio Edit)
+02. Imagine Dragons - Radioactive
+03. OneRepublic - Counting Stars
+04. Katy Perry - Roar(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1812BBAC2DD0286A2B340EDC691AE5E80432F416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629299   (238293) от 26.04.2023
+
+VA - New Disco House Lights (2023) [MP3|320 Kbps] <Nu Disco, Soulful, Dance, Funky House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Von Paramus - Party Sweet  (Radio Edit)
+02. Middlestones - Talk to You
+03. Arisia - Cocaina
+04. Another Nelson - Mr. Undercover(   Читать дальше...   )Жанр: Nu Disco, Soulful, Dance, Funky HouseПродолжительность: 02:46:07 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6F2E6F00B753E622476DCAA54F52E0615DE62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626206   (237787) от 13.04.2023
 
 VA - soft pop 2023 (2023) [OGG Vorbis|480 Kbps] <Pop>
@@ -702,64 +760,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAF989FED423BE9C0E61E709FC7CCE78E2401BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341679   (228645) от 29.11.2019
-
-MARUV - Hellcat Story (2019) EP [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228645.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To Be Mine
-2. Don't Stop
-3. Don't U Waste My Time
-4. If You Want HerЖанр: Dance, Pop, ElectronicПродолжительность: 00:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8AAF320435DB7E626D43B70B683B175F152C49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583375   (228544) от 15.10.2022
-
-Various Artists - NOW #1s - 70 Years Of The Official Singles Chart (5 CD Box Set ) (2022) Box Set [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228544.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (01:20:29):
-1. Queen - Bohemian Rhapsody (5:54)
-2. Paul Mccartney & Wings - Mull Of Kintyre (4:43)
-3. Rod Stewart - Maggie May (5:15)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE20A13E479FBDBBBC5B079B37155A197FAF2CA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

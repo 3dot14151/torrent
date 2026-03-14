@@ -1,3 +1,148 @@
+###  Публикация: 1744840   (105164) от 24.08.2024
+
+311 - Grassroots (1994) 30th Anniversary Edition, 2024, Volcano [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Funk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homebrew [00:03:06]
+02. Lucky [00:02:50]
+03. Nutsymtom [00:03:01]
+04. 8:16 A.M. [00:03:45](   Читать дальше...   )Жанр: Alternative Rock, Funk MetalПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA09085993DAEE9C425AAE97C5385C19B286685B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745049   (105163) от 24.08.2024
+
+Nate Najar - Meet The Graingers (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scissors (3:57)
+02. Charm City (5:08)
+03. Every Flower, Every Raindrop (Album Mix) (3:37)
+04. Tight Rope (1:29)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628AC6D1BFC26A890CF2D8597A8391FF91365BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745046   (105161) от 24.08.2024
+
+Meital Waldmann - Between Worlds (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skylark (4:57)
+02. I Didn’t Know What Time It Was (4:40)
+03. How Deep Is the Ocean (3:31)
+04. Born to Be Blue (5:21)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB817370E368456CFAF82DAF1E413C503D81C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745055   (105160) от 24.08.2024
+
+Peoria Jazzband - In a Jam (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In a Jam (4:40)
+02. St Louis Blues (3:55)
+03. Whenever You're Lonesome (3:47)
+04. Southern Sunsets (4:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606D8C485AB6ACE172BB0386B3A8248CE2C0FED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744810   (105158) от 24.08.2024
+
+Jon Anderson Feat. The Band Geeks - True (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. True Messenger [00:05:49]
+02. Shine On [00:04:17]
+03. Counties And Countries [00:09:50]
+04. Build Me An Ocean [00:03:19](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A50D77A41D6B40A47F2C3E931935BF27449E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745175   (105110) от 25.08.2024
 
 Александр Галич - Когда Я Вернусь... (1989) [FLAC 2.0|88,2/24|image +.cue|Vinyl-Rip] <Ballad>
@@ -600,151 +745,6 @@ Carly Harvey - Kamama (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:987A898C000966FA071F77ACACD294E523B77A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745564   (105041) от 26.08.2024
-
-Anciients - In The Absence Of Wisdom (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Absence Of Wisdom [00:06:35]
-02. Cloak Of The Vast And Black [00:06:18]
-03. Melt The Crown [00:07:05]
-04. Raise The Sun (Re-recording) [00:06:41](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5D01BE1C8271108BF2715A4A0B5AB216AB14B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745457   (105040) от 26.08.2024
-
-Diane Durrett - Sweet Georgia Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Child Of The Blues (3:55)
-02. Good Goes With You (3:15)
-03. Sweet Georgia Blues (3:24)
-04. The Sweet Spot (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71318540C3F85270AF3182590D596D86C6F43063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745493   (105039) от 26.08.2024
-
-Thom Rotella - Side Hustle (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Bebop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Dat? (5:09)
-02. Love for Sale (5:32)
-03. Pick Pocket (4:47)
-04. Side Hustle (3:19)(   Читать дальше...   )Жанр: Jazz, BebopПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66777010CCD03D5C034C8212CDC0C99F3A40CBAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745487   (105037) от 26.08.2024
-
-Ruthie Foster - Mileage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mileage (4:11)
-02. Rainbow (3:30)
-03. Good For My Soul (3:31)
-04. Heartshine (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD654A9C239267B5C064C941737167554F6712E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745593   (105036) от 26.08.2024
-
-Memphis Royal Brothers - Memphis Royal Brothers (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good God I Got The Blues (4:22)
-02. Goin' South (5:35)
-03. Brand New Heart (3:41)
-04. Ready To Rise (4:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C20700F72907E744E069313C5A685F5C9E6C4214
 ```
 
 https://mybot314.ru/tekegram_catalog/

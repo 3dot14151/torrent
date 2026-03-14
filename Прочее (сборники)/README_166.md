@@ -1,3 +1,32 @@
+###  Публикация: 1087781   (144440) от 28.12.2016
+
+VA - Guitar Collection 10 (2016) [MP3|320 Kbps] <Blues, Acoustic, Metal >
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144440.jpg" />
+</div>
+
+
+###  Подробнее
+
+001|  Mark Cook - Song for Wendy  (01:43) 
+002|  Mike Howe - Lichens  (03:55) 
+003|  Tramline - Mazurka  (02:46) 
+004|  Toundra - Strelka  (07:47) (   Читать дальше...   )Жанр: Blues, Acoustic, MetalПродолжительность: 08:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537F7014002CAA3674D824BDFE37DCF44C7E77C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435513   (144314) от 28.12.2020
 
 VA - Rose Bialo: Italiano Classico Vocale (2020) [MP3|320 Kbps] <Vocal, Pop, Classic Soul>
@@ -718,35 +747,6 @@ VA - Top Hits (December - 2017) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE0C161B04206C17CD1866337F4E708D4858084C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195471   (142455) от 29.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 36) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Леонид Кострица  -  Вернулся на Родину  3:22
-02.  Владимир Бунчиков и Владимир Нечаев  -  Ты да я  2:48
-03.  Клавдия Шульженко  -  Всё проходит  2:52
-04.  Людмила Гурченко  -  Песенка о хорошем настроении  2:39(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A91C1ACA9EEF9036F9E811F7CC01055775B1D81
 ```
 
 https://mybot314.ru/tekegram_catalog/

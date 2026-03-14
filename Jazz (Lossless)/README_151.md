@@ -1,3 +1,90 @@
+###  Публикация: 1046702   (551853) от 27.08.2016
+
+VA - Koktebel Jazz Festival - Хиты Джаз Коктебель (2012) Live [FLAC|Lossless|image + .cue] <Jazz, Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parov Stelar - Chambermaid Swing (2011) (4:52)
+02. Нино Катамадзе & Insight - Dance Under Umbrella (2007) (8:31)
+03. De Phazz - Keep It Simple (2005) (3:55)
+04. Аукцыон - Фа-Фа-Фа (2010) (11:25)(   Читать дальше...   )Жанр: Jazz, RockПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50624DE4CD92CF1F033B3ED9A05D250002021B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237591   (551589) от 24.07.2018
+
+Gerry Gibbs and the Thrasher Band - Faces Unknown (2006) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post Bop, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551589.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Caribean Song (Gibbs) 6:08
+2. Chameleon (Hancock, Arr. Gibbs, Langham & Price) 6:46
+3. Maiden Voyage (Hancock, Arr. Gibbs) 8:50
+4. Blue Monk (Monk, Arr. Gibbs) 6:36(   Читать дальше...   )Жанр: Contemporary Jazz, Post Bop, FusionПродолжительность: 01:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8007D7ACFC0057850E49C6B01EF5C29C81812B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309535   (551211) от 19.06.2019
+
+Fission - Waves // And // Flow (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knowledge And Fear (5:16)
+02. When The Sky Would Fade Away (6:58)
+03. Intro (2:47)
+04. Shouts (7:58)(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B3DB477CA79B60286BF4F98A50167EC9B60459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237601   (550634) от 25.07.2018
 
 Ron Carter - The Puzzle (1986) SMS [FLAC|Lossless|image + .cue] <Post-Bop>
@@ -658,96 +745,6 @@ Les McCann - On The Soul Side (1995) Jazz Heritage[FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCE032D31AE6F5D60ED71655BAEEC120D74BD3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309755   (549360) от 21.06.2019
-
-Scott Bradlee's Postmodern Jukebox - Jazz Age Thirst Trap (2019) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Soul, Covers>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практически каждый релиз этой группы - это маленький спектакль с замечательными актерами. Я уже рассказывал про один из их альбомов. С тех пор вышло несколько релизов (почти все они есть в клубе благодаря стараниям коллеги01. Old Town Road  (feat. Miche Braden) (3:54)
-02. Young Dumb & Broke (feat. Scotty Grand) (3:28)
-03. Misery Business (feat. Scotty Grand)  (4:04)
-04. Сhandelier (feat. Scotty Grand)  (4:39)(   Читать дальше...   )Жанр: Jazz, Soul, CoversПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98740C9386218548955B633A6B4BF22ABEA40B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047490   (549258) от 30.08.2016
-
-Fats Waller - Ain't Misbehavin' (1990) [WavPack|Lossless|image + .cue] <Jazz, Stride>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступления Томаса Фэтса Уоллера всегда были непредсказуемы.
-Из-за своей репутации шута и клоуна он так и не смог добиться имиджа серьезного джазового музыканта.
-Виртуозный пианист и изобретатель целого музыкального жанра и приема в одном флаконе, он больше всего любил играть на органе.
-Говорят, что музыкальные магазины присылали ему в гостиничные номера переносные (   Читать дальше...   )01. Ain't Misbehavin' (2:58)
-02. Until The Real Thing Comes Along (3:25)
-03. Two Sleepy People (3:04)
-04. I'm Gonna Sit Right Down And Write Myself A Letter (3:34)(   Читать дальше...   )Жанр: Jazz, StrideПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68A8E6FBB5EFF52235D988BC7971F1DB8257AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047832   (548504) от 31.08.2016
-
-Charles Gayle Quartet - Blue Shadows (1993) 2008, Silkheart[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Inside the Sun [03:01]
- 02.Blue Shadows [11:31]
- 03.Eternity Promised 1 [17:14]
- 04.Eternity Promised 2 [02:09](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26D1BDC804ACB7F1DDF3816BFC9F02A102D7876
 ```
 
 https://mybot314.ru/tekegram_catalog/

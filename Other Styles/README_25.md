@@ -1,3 +1,119 @@
+###  Публикация: 1099710   (903264) от 02.02.2017
+
+Paul Sills - Electric Storm (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kinetic (08:34)
+02. Horizons (05:02)
+03. Static Rain (06:06)
+04. Solar (05:45)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F240EC9AEB11C50969CE06C7169F56C0441CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992168   (902692) от 01.03.2016
+
+VA - Impressions Of Native America (2001) [MP3|320 кб/с] <Native american, Ethnic, Folk, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ellis Island - Mother Earth Round Dance (5:45)
+02. Western Voices - The Calling (3:27)
+03. Cyberland - Circle Round The Sun (4:43)
+04. Cyberland - Explora (4:06)(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A0D7B76AF46319855F0B92CA8F6099032A9F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991929   (902336) от 01.03.2016
+
+VA - Romantic Collection - Aria & Mystique (2000) 2CD [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902336.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aria Arianna (05:04)
+2. Anitime Anywere (03:17)
+3. Ave Maria (03:51)
+4. L' Amour Est Un Oiseau Rebelle ''Carmen'' (02:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C45682BA02C4D3D020419C516CD5DE726D0EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369447   (901708) от 24.03.2020
+
+VA - Ethnic Music...indians, Dreams, Visions (2012) 2CD [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nazca - Mother Earth
+02. Nazca; Wayra Rodriguez - Vision
+03. Nazca; Wayra Rodriguez - Circle of Friendship
+04. Indians - Sunrise(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 03:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33643B10116402B9943898F98A22BDED8702A3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099985   (901581) от 03.02.2017
 
 Jamie McMenamy - Oceanlands (2017) [MP3|320 Kbps] <Ambient, Downtempo, Relaxation>
@@ -620,122 +736,6 @@ Trio Mandili - With Love (2015) [MP3|320 кб/с] <Ethnic / Georgian Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B71B917F084ED4B35C7D4F35D5F3300DA7C53CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100094   (894629) от 07.02.2017
-
-Pryapisme - Diabolicus Felinae Pandemonium (2017) [MP3|320 Kbps] <Instrumental Avant-garde Metal, Electronic, Experimental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894629.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Un Max De Croco
-2. La Boetie Stochastic Process
-3. 100 % Babines, Pur Molossoïde!
-4. A La Zheuleuleu(   Читать дальше...   )Жанр: Instrumental Avant-garde Metal, Electronic, ExperimentalПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71253919298C4B275E65A9DA846078567F8527DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101514   (894440) от 07.02.2017
-
-VA - Blade / Блэйд (1998) Unofficial [MP3|127-320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - Bad Moon Rising
-02. Polygon Window - UT1 - Dot
-03. Shonen Knife - Ah Singapore
-04. DJ Krush - Yeah(   Читать дальше...   )Жанр: Unofficial SoundtrackПродолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F4C100B5900CABAAE9C6280FDDAD3AF7EFC1C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993880   (893979) от 06.03.2016
-
-Marco Beltrami - Gods Of Egypt (Music From The Motion Picture) (2016) [FLAC|Lossless|tracks]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gods Of Egypt Prologue (02:39)
-02. Bek And Zaya (00:45)
-03. Market Chase (00:29)
-04. Coronation (02:25)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B662776492F8B395285C708CC8A9F9F1D3C283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993977   (893973) от 06.03.2016
-
-Stephen Rhodes - Indian Meditation (2016) [MP3|320 кб/с] <New age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Go. Loslassen
-02. Mindfulness. Achtsamkeit
-03. Serenity. Gelassenheit
-04. Inner Freedom. Innere Freiheit(   Читать дальше...   )Жанр: New age, MeditationПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4D5E8AF0017F80AA4402857067A30071363481
 ```
 
 https://mybot314.ru/tekegram_catalog/

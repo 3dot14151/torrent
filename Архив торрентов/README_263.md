@@ -1,3 +1,38 @@
+###  Публикация: 598000   (999128) от 07.01.2013
+
+VA - В ритме танца. Вальс (3CD) (2010) [MP3|320 кб/с]<Easy Listening, Waltzes>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999128.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1. Будь, что будетЖанр: Easy Listening, WaltzesПродолжительность: 01:04:35
+45. Edelweiss - Dauglas Gamley And His Orchestra
+46. A Place In Paris - Matt Monro & Michael Legrand And His Orchestra
+47. Valsinha - Dominique Chatelain,His Piano And Orchestra
+48. Where Is Your Heart - Mary Carewe
+49. The Canals Of Amsterdam - Ben Cramer
+50. Les Filles Du Bord De Mer - Christian Colombier And His Orchestra
+51. Paris Musette - Paul Mauriat And His Orchestra
+52. Frou-Frou - Ralph Benatar And His Orchestra
+53. L'amour Est Un Bouquest De Violettes - Lei Wang,Violin With The Fierland Fest.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09C6A71D76BD1C4C227B4AD9D36B4C4D8F79164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599676   (999117) от 07.01.2013
 
 Фотография - Photos from Paolo Candian
@@ -708,36 +743,6 @@ Star Monarchy - Volume 1 (2012) [MP3|~190 кб/с (V2)]<Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0004C256A8FE02193F8AF7504BC2B7809E3B322C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599484   (998973) от 08.01.2013
-
-Ultrageist - 2 (2012) [MP3|320 кб/с]<Experimental Mathcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998973.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Process (Fight Me Joe) 04:20
-2. Emotion Lotion 03:05
-3. Gin-Dependance Day 04:30
-4. What Are You Waiting For? 02:54
-5. Golden 03:58Жанр: Experimental MathcoreПродолжительность: 00:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5739F51DA26DDB73B903435675967A601C3EC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

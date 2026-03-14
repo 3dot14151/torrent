@@ -1,3 +1,32 @@
+###  Публикация: 924563   (557673) от 04.08.2015
+
+Hibria - Hibria (2015) Japanese Edition [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pain
+02. Abyss
+03. Tightrope
+04. Life(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E872E650276523E349F231770ED1971FB9E25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924830   (557538) от 04.08.2015
 
 Cattle Decapitation - The Anthropocene Extinction (2015) [MP3|~281 кб/с]<Progressive Death Metal, Grindcore>
@@ -716,35 +745,6 @@ Vicious Rumors - Concussion Protocol (2016) Japanese Edition [MP3|320 Kbps] <Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF5A17A164DEEF7F1220A92F01F7FE7126DD3D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048370   (547418) от 01.09.2016
-
-Kuolemanlaakso - M. Laakso - Vol. 1: The Gothic Tapes (2016) [MP3|320 Kbps] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547418.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Children Of The Night
-2. Roll The Dice With The Devil
-3. Where The River Runs Red
-4. The World’s Intolerable Pain(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2670BCE13CEF5F565F549564BABB1B73223C2B75
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1075697   (318684) от 23.11.2016
+
+Matt Wilson's Big Happy Family - Beginning Of A Memory (2016) Palmetto Records[FLAC|Lossless|tracks + .cue] <Modern Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Score [00:38]
+ 02.Lester [05:50]
+ 03.Searchlight [04:30]
+ 04.Beginning Of A Memory [03:29](   Читать дальше...   )Жанр: Modern Jazz, Jazz FusionПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFD0CCDD64641BE4642259D4E34B5D58E771013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331918   (318667) от 18.10.2019
+
+Louis Bellson - Four Classic Albums Plus 1952 - 1958 (2012) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318667.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Eyes [2:45]
+02. Rainbow [2:46]
+03. Sticks [3:22](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 02:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828DFB1593FAC56393B7B6C1198DB0C9D659CB3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421605   (317874) от 05.11.2020
+
+Sonny Clark - Oakland (1955) 1995, Uptown Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's New [7:15]
+02. Willow Weep for Me [6:30]
+03. There Will Never Be Another You [6:50]
+04. D & E [5:24](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849F523BC79F4E929F93A7C39DFAD470241FDBC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421600   (317759) от 05.11.2020
 
 Lee Morgan - Jazz Profile (1963 - 1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -658,93 +745,6 @@ Stan Getz - The Master (1975) 2017, Sony Music [FLAC|Lossless|image + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67163BD1AD550C2D4E58C50430A8BF752591E419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182593   (315094) от 11.11.2017
-
-Larry Carlton + SWR Big Band - Lights On (2017) 335 Records/SWR [FLAC|Lossless|image + .cue] <Jazz Fusion, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mellow Out [05:07]
-02. Milestones [05:24]
-03. Kid Charlemagne [08:03]
-04. Fnnn [08:01](   Читать дальше...   )Жанр: Jazz Fusion, Big BandПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4148BD53FA26B8FD21C5943829AB5146917320B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260242   (314685) от 06.11.2018
-
-Matt Bianco - Gran Via (1995) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Salsa, Disco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost in you (4:42)
- 02. A day in your life (4:13)
- 03. Friend of mine (4:25)
- 04. Love just passed me by (4:23)(   Читать дальше...   )Жанр: Afro-Cuban Jazz, Salsa, Disco, Jazz-Funk, Latin JazzПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDC0437084CFC6949A3542B2F07500A77E5751E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260100   (314576) от 06.11.2018
-
-Keith Jarrett - La Fenice (2018) 2CD, ECM [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314576.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Part I [17:44]
-02. Part II [3:26]
-03. Part III [9:48](   Читать дальше...   )Жанр: Contemporary Jazz, Post Bop, Piano JazzПродолжительность: 01:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7630012F841C26F85AF178139077F2518246F8B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

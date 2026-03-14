@@ -1,3 +1,90 @@
+###  Публикация: 1171627   (395821) от 05.10.2017
+
+John Handy - Mosaic Select 35 (1965 - 1968) 3CD, 2009, Mosaic Records [FLAC|Lossless|tracks + .cue] <Post-Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395821.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. If Only We Knew [26:54]
+02. Spanish Lady [19:32]
+03. Dancy Dancy [05:33](   Читать дальше...   )Жанр: Post-Bop, World FusionПродолжительность: 03:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDEA3767F0665D0B867F03EE8C0516B38815B3CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171624   (395815) от 05.10.2017
+
+Erik Soderlind - Twist For Jimmy Smith (2009) Prophone Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wiwes and Lovers [05:10]
+02. Close Your Eyes [06:43]
+03. Polka Dots and Moonbeams [06:15]
+04. Mr C. [05:26](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDCF439F3B2994A7E69AF6496067FA88B7C78CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171717   (395762) от 05.10.2017
+
+Bria Skonberg - With A Twist (2017) Sony Music/Okeh [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Baby Just Cares For Me [03:06]
+02. Sway [03:15]
+03. Alright, Okay, You Win [03:19]
+04. Cocktails For Two (Quintet Version) [03:21](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C31C36E6555604877FBD0C407DC374889EE08D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171882   (394929) от 06.10.2017
 
 Chris Barber's Jazz Band - he Original Copenhagen Concert, Odd Fellow Palæet, 1954 (1995) Storyville Records [FLAC|Lossless|tracks + .cue] <Dixieland, Revival>
@@ -675,98 +762,6 @@ New York Unit - Tribute To George Adams (1993) King Record [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71852B1A0092C2489C40021373874DEAA1950658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252964   (388034) от 07.10.2018
-
-Willie Lewis - 1941 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Will I Do? [2:43]
-02. Happy Feet [3:05]
-03. Baby Ain't You Satisfied [3:04]
-04. Ti-Pi-Tin [3:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC51EFE12F9C1B34F16C7D04991FBCA923472F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571718   (388019) от 07.11.2012
-
-Трио Сергея Жилина - Tchaikovsky In Jazz. Seasons 2009 (2009) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_388019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Декабрь. Святки (7:08)
-02. Январь. У камелька (4:03)
-03. Июнь. Баркарола (10:29)
-04. Март. Песня жаворонка (2:11)
-05. Октябрь. Осенняя песня (7:58)
-06. Апрель. Подснежник (4:04)
-07. Вальс цветов из балета 'Щелкунчик' (6:00)
-08. Февраль. Масленица (3:08)
-09. Ноябрь. На тройке (6:45)Жанр: JazzПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067494   (387928) от 29.10.2016
-
-Fred Hersch - Plays Rodgers & Hammerstein (1996) Nonesuch[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Cock-Eyed Optimist [05:23]
- 02.No Other Love [04:47]
- 03.Loneliness of Evening [05:42]
- 04.It Might as Well Be Spring [06:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE5BD9B5E2094016C08FF903F15937B0C12AB5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

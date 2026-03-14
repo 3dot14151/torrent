@@ -1,3 +1,32 @@
+###  Публикация: 1502841   (821333) от 18.10.2021
+
+VA - Household Names: Indie Pop-Rock Collection (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821333.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arvid Nero - Four O'clock Wasteland
+002. Tomemitsu - The River
+003. Julien Baker - Crying Wolf
+004. Chvrches - Never Say Die(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 08:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873E91BB7C2AE04DDF205082A1052E891452594A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382231   (821030) от 10.05.2020
 
 VA - Galaxia: Indie Rock Collection (2020) [MP3|320 Kbps] <Rock Indie, Alternative>
@@ -716,35 +745,6 @@ VA - My Little Planet: Pop Rock Indie (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:165C77ACC8FD92A7D83EBEC19097246CADA77384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385474   (797779) от 24.05.2020
-
-Jeff Beck - 100% Jeff Beck (2020) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Wing (Live)
-02. The Revolution Will Be Televised
-03. Angel (Footsteps)
-04. Never Alone(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 05:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78443305B1A1453D54BCE645D99D035B9064DB5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

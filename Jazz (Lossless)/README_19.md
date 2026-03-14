@@ -1,3 +1,32 @@
+###  Публикация: 1351967   (1001695) от 12.01.2020
+
+Eddie ''Lockjaw'' Davis - Four Classic Albums Plus 1952 - 1959 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001695.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Very Saxy [8:20]
+02. Lester Leaps In [6:16]
+03. Fourmost [5:23](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 02:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCFA4E082669E5BC6F571E599F31201588582AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351915   (1001686) от 12.01.2020
 
 Thought Gang (David Lynch and Angelo Badalamenti) - Thought Gang (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental Jazz, Dark Jazz, Free Jazz>
@@ -802,41 +831,6 @@ Panadda Reungwut - Feel By Panadda (2009) [FLAC|Lossless]<Vocal Jazz>
 08. A Time For Love  [04:05]
 09. I Could Have Danced All Night  [03:32]
 10. If Ever I Would Leave You  [02:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605421   (995901) от 19.01.2013
-
-VA - Live at What Hi-Fi? Cafe (2007) [FLAC|Lossless]<Jazz, Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jacintha - The Look of Love  [04:10]
-02. Jacintha - California Dreaming  [05:42]
-03. Lauren White - Blue Bayou  [05:46]
-04. Eden Atwood - Meditation  [05:48]
-05. Jacintha - So Danco Samba  [03:14]
-06. Jim Brock - O Vazio  [06:57]
-07. Jacintha - Manha De Carnival  [06:12]
-08. Bernstein - Gabriela Lena Frank : The Mestizo Waitz  [03:13]
-09. Lauren White - Superstar  [04:32]
-10. Jacintha - Que Sera Sera  [05:12](   Читать дальше...   )Жанр: Jazz, Jazz VocalПродолжительность: 01:12:09
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,32 @@
+###  Публикация: 1071132   (362027) от 09.11.2016
+
+Hteththemeth - Best Worst Case Scenario (2016) [MP3|320 Kbps] <Avant-Garde Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362027.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	The Prophecy
+2.	They Will Not Believe What I Will Say
+3.	Light Lies
+4.	Light Truths(   Читать дальше...   )Жанр: Avant-Garde MetalПродолжительность: 01:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0A671E5EB6ECB8F4AF8EC151DD631F6DF6B4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071413   (361862) от 09.11.2016
 
 My Dying Bride - Meisterwerk III (2016) [MP3|320 Kbps] <Doom Metal>
@@ -726,35 +755,6 @@ Exarsis - New War Order (2017) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0735A82B24D54DA207B744E4E8FAD8FA4CFE18E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179213   (351274) от 30.10.2017
-
-Impalers - The Celestial Dictator (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terrestrial Demise 04:49
-02. Terrorborn 03:34
-03. Color Me White 02:48
-04. Into Doom 05:45(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA09189B4AEDDD54987456837B4555600F87243C
 ```
 
 https://mybot314.ru/tekegram_catalog/

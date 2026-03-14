@@ -1,3 +1,90 @@
+###  Публикация: 1666606   (178983) от 05.10.2023
+
+J.C. Heard & Bill Perkins Quintet - Live At The Lighthouse (1964) 2018, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob's Blues [4:19]
+02. Passion Flower [6:21]
+03. Don't Stand Up [7:03]
+04. Blues in Hoss' Flat [4:12](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D4E5240020A41814761B6E6CC190893D641F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594195   (178811) от 30.11.2022
+
+VA - Kenton Presents Bob Cooper, Bill Holman & Frank Rosolino (1954 - 1961) 4CD, 1999, Mosaic Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178811.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Bob Cooper & Bill Holman:
+01. The Way You Look Tonight [3:15]
+02. Polka Dots and Moonbeams [3:05]
+03. Solo Flight [3:20](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, BopПродолжительность: 04:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB39257E34F6E54AA8A9C4B456E356EB4811246E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428868   (178465) от 04.12.2020
+
+Sonny Clark Trio - Complete Studio Recordings (1954 - 1960) 3CD, 2007, Gambit Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178465.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I Didn't Know What Time It Was (alternate take) [4:22]
+02. I Didn't Know What Time It Was [4:21]
+03. Two Bass Hit [3:47](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 03:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9178A7331345F1786ABC4122E472A4EE93976654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666835   (178436) от 06.10.2023
 
 George Shearing - Easy To Love (1953, 1954) 2014, Sounds Of Yester Year [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
@@ -658,93 +745,6 @@ George Coleman - The Quartet (2019) Smoke Sessions Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7DDD4202F23DE7BE852EAB8865EBFB790529ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668136   (174734) от 11.10.2023
-
-Django Reinhardt - BD Jazz (1933 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vito [2:31]
-02. I've Found a New Baby [2:46]
-03. The Object of My Affection [2:51]
-04. Cette chanson est pour vous [3:07](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224645EB04D0E6B0A2E54BBD6C26C2144F8BAE2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595798   (174579) от 07.12.2022
-
-Chico Hamilton - Seven Classic Albums (1955 - 1959) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174579.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. A Nice Day [2:54]
-02. My Funny Valentine [4:20]
-03. Blue Sands [6:32](   Читать дальше...   )Жанр: Hard Bop, West Coast JazzПродолжительность: 04:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8ACB7BE80BED5060253D0B7130BF796107C1FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596006   (174128) от 08.12.2022
-
-Randy Waldman - UnReel (2001) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jetsons [4:08]
-02. My Favorite Things [6:41]
-03. Leave It To Beaver [3:56]
-04. Bali Hai [5:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D043792DB71A9DE1707336E5A721D70684843A
 ```
 
 https://mybot314.ru/tekegram_catalog/

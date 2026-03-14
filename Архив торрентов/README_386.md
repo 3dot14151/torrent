@@ -1,3 +1,221 @@
+###  Публикация: 974543   (976935) от 11.01.2016
+
+VA - Nomad Ambient Vol.2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Ambient, Psybient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electronic Traffic Feat. Tikki Masala - Nomad (13:30)
+02. Zero Cult - Recoil (05:47)
+03. Mystic Crock - Acoustic Spirit (06:52)
+04. Side Liner - Screaming Tears (06:38)(   Читать дальше...   )Жанр: Psychill, Ambient, Psybient, DowntempoПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11AF29AF9ED53C8995D35987545348C4A8B563B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974386   (976934) от 11.01.2016
+
+PDF Expert 1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976934.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Expert - многофункциональная утилита для работы с PDF
+PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
+
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 января 2016Разработчик: Readdle Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942B2FBD071B6FBBF977D5AC1B496DE38ED2219B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613226   (976908) от 09.02.2013
+
+VA - Enhanced Progressive: The Collection Series Volume Two (2012) [MP3|320 кб/с]<Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D-Mad - She Gave Happiness (Arty remix)
+02. Maarten Hercules - Harmonics (Eluna Vs. Jon O'Bir remix)
+03. Jan Martin - Lost Tonight
+04. Sonic Element - Change (Tom Fall remix)
+05. Gery Rydell - Drift
+06. Audien & Griff O'Neill - Daybreak
+07. Bakke & Joni - Bali (Ljungqvist remix)
+08. Jan Martin - Save Me Now (feat Hysteria!)
+09. Dennis Sheperd - Cocoon (Steve Brian remix)
+10. Abdul Bayyari & Shota Mochizuki - 400 Years 'Till Dawn (feat Josh Money Cressida rmix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2329AE88A9C3A9461F17008BDB7A91CBA047A3FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613852   (976902) от 09.02.2013
+
+Roger Shah - Music for Balearic People 245 (2013-01-25) [MP3|256 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Island - Intro Hour 1 (01:06)
+02. Mark Pledger - A New World (Purple Stories Remix) (05:26)
+03. Mark Nails & First Effect - Amalfi (06:03)
+04. Andy Tau - Breakfast For The Soul (Mike Shiver Remix) (06:04)
+05. Araya & Mark Dreamer - Circle Of Peace (06:23)
+06. Andy Hope - Wanna Be (08:18)
+07. Mark Dreamer - False Street (07:11)
+08. Illitheas - Forgiven (Allen Watts Remix) (08:00)
+09. Moonsouls - Resolution (07:31)
+10. Andres Sanchez - Lacerate (07:23)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60A6C8E66BABCF925753C8B65D04D97367748FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616200   (976900) от 09.02.2013
+
+Журнал | Атмосфера №2 [февраль 2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женский журнал об искусстве жить, о моде, отдыхе, путешествиях, о знаменитых людях, которые щедро делятся с читателями своими сокровенными тайнами и секретами. В каждом номере - неожиданные перевоплощения, эксклюзивные съемки, свежие идеи дизайнеров, новинки косметики.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D4EE9BA2398B51BC51CA5347515D5A69006DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613585   (976898) от 09.02.2013
+
+СТЕРЕОЗАВР - Старый Новый God (2010) [MP3|256 кб/с]<Hip-hop/Punk/R'n'b>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976898.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Блюберри Хилл (feat. Mr.Putin)
+2. Маскарад (Нарушен)
+3. Параноик
+4. ВозрадуемсяЖанр: Hip-hop/Punk/R'n'bПродолжительность: 00:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A844F6D73B7DF5EE38E7A17C6194718096BDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616302   (976896) от 09.02.2013
+
+Hucky Eichelmann & Richard Harvey - Silk And Bamboo (2001) [MP3|320 кб/с]<Meditative, Instrumental, Guitar, Flute>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976896.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:18) 01. Arirang
+(3:49) 02. Juliette
+(5:09) 03. Llaki Shungulla
+(6:33) 04. Parting At Yang Guan
+(4:35) 05. The Lark In Clear Air
+(2:23) 06. Il Lamento Di Tristand/Rota
+(2:54) 07. Ductia
+(4:35) 08. Liebeslied
+(3:31) 09. The Coulin
+(4:32) 10. Distribuicad De Flores(   Читать дальше...   )Жанр: Meditative, Instrumental, Guitar, FluteПродолжительность: 01:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E857596BDCDF8DCA37052A505453BEC1F44917AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974392   (976890) от 11.01.2016
 
 Велор Сильвер | Убейте меня (2016) [FB2]
@@ -551,199 +769,6 @@ GetFoldersize - программа для анализа использован�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2E6246902FA9B9B4A286AF0DC7B23738782C02A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356911   (976776) от 01.02.2020
-
-Principle 5 v5.9 (5020) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть много вещей, которые вы, возможно, захотите спроектировать: короткая анимация, гладкое взаимодействие или обширное многоэкранное приложение. Principle идеально подойдёт для выполнения этих задач.
-
-Timeline упрощает процесс, чтобы проиллюстрировать идеальный отскок, наплыв и проявление.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Daniel HooperПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877EE65CBB80D163241E70E1818441403A42E6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356813   (976775) от 01.02.2020
-
-Ralph Myerz & The Jack Herren Band - Discography 14 Releases (2003-2018) Emperor Norton, Virgin [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Dub, Future Jazz, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Oh! (feat. Teddy Touch) (04:00)
- 02. Bacc 2 School (feat. Teddy Touch) (05:22)
- 03. Midnight Magic (feat. MRIA) (03:07)
- 04. Dark Matter (feat. Therese Lunde & MRIA) (03:55)Тип издания: CD, WebЖанр: Downtempo/Future Jazz/Europop/HouseПродолжительность: 07:11:57 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D4EC90B01C557D2A030F03DB00355BAFC231F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356949   (976768) от 01.02.2020
-
-PrivaZer 3.0.91 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976768.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A09C223A3F7B438311CD50144EEEF39CED7BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616217   (976735) от 09.02.2013
-
-Журнал | Диетика №3-4 [март-апрель 2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976735.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Диетика» — издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии. «Диетика» - ключик к твоей стройности.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1891D9981055D4E34F440F0CA18C4C0FB6FDC1A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616311   (976729) от 09.02.2013
-
-NG. Короли аквадизайна: Аврал аквариумистов / NG.Fishtank Kings (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэт бросает все силы на выполнение заказа легендарного гонщика Райана Хантер-Рэя, между тем Фрэнсис должен спасти осьминога в аквариуме Теннесси.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC01CDACAAD4FCAD6A9FA416EBC157EF1D5EBC09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615335   (976726) от 09.02.2013
-
-Капитан Абу Раед / Captain Abu Raed (2007) DVDRip [AR/RU Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой фильма пожилой вдовец по имени Абу Раед работает уборщиком в аэропорту города Амман. После смерти жены и сына у него в жизни не осталось ни цели, ни смысла. Однажды Абу Раед нашел в урне фуражку капитана авиалайнера - соседские ребятишки тут же окрестили его "Капитаном", а у самого героя, благодаря накопленному за долгие годы опыту и мудрости и природному дару рассказчика, появилась возможность привнести в убогую, скучную жизнь этих детей немного ярких красок и приключений.
-Некоторое время спустя новоявленный "капитан" переходит от слов к действиям...
-
-Все релизы фильмаЖанр: ДрамаРежиссер: Аммин МаталкАктеры: Надим Савалха, Рана СултанПеревод: ОтсутствуетЯзык субтитров: РусскиеПродолжительность: 01:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A08C46F50F2449573908058D3B3EA0BE8CE4E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974376   (976724) от 11.01.2016
-
-Tails 1.8.2 [анонимный доступ в сети] [i386] 1xDVD
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня вышел новый релиз Tails 1.8.2 - обновление, связанное с изменением версии Tor'а на 5.0.7. Дистрибутив предназначенного для обеспечения максимально возможной анонимности при работе в сети Интернет.  Включена поддержка UEFI boot, которая позволяет загружаться на новых компьютерах, а также на компьютерах Apple. "Камуфляж" приведен к Windows 8.
-
-Tails (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389DC6CED640E841A55643AD92BC3C19141C115D
 ```
 
 https://mybot314.ru/tekegram_catalog/

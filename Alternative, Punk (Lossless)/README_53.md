@@ -1,3 +1,90 @@
+###  Публикация: 1618553   (235455) от 12.03.2023
+
+For The Fallen Dreams - For The Fallen Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RE-Animate (3:19)
+02. What If (3:58)
+03. Last One Out (3:28)
+04. Without You (3:28)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A75B37D4A001D15B664D3E122A0F6128B5249C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636897   (235331) от 01.06.2023
+
+The Heavy - AMEN (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricane Coming (3:33)
+02. Ain’t A Love (3:30)
+03. Bad Muthafucker (3:49)
+04. I Feel The Love (3:00)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F1496EE794FBD282F2E667D0C5CD0360AA035A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620273   (235073) от 19.03.2023
+
+The Lords Of Altamont - To Hell With Tomorrow The Lords Are Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Garage, Retro Rock, Psychedelic Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To Hell With Tomorrow (00:00:17)
+02 - I Said Hey (00:03:03)
+03 - Going Downtown (00:03:03)
+04 - Going Nowhere Fast (00:03:29)(   Читать дальше...   )Жанр: Garage, Retro Rock, Psychedelic Rock, PunkПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9083F623DC860D95F6FEB93CDE9802862E374D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621128   (234956) от 23.03.2023
 
 Sleep Braids - Improvised Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <pop punk, post hardcore, alternative rock>
@@ -658,93 +745,6 @@ Cave In - Until Your Heart Stops (1999) Deluxe Edition, 2023, Relapse Records [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ECC3B1008C48117CB98097C7F5223C201E56E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580034   (232148) от 30.09.2022
-
-Darko US - Darko (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Splinter Cell [00:03:50]
-02. Fiend Dream [00:03:27]
-03. Donna [00:04:41]
-04. Pretenders (feat. Ben Duerr) [00:03:00](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E99EF4D76E03AFAB488C783302B3C450B6753A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621899   (232117) от 27.03.2023
-
-SayWeCanFly - Beneath The Roses (2023) [FLAC|Lossless|WEB-DL|tracks] <Emo, Pop Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knuckles [00:03:02]
-02. Bleeding Teeth [00:03:16]
-03. October [00:03:08]
-04. Marigold [00:02:16](   Читать дальше...   )Жанр: Emo, Pop Rock, AcousticПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87038C9F30000E0CC5D3AA2205310E1AFA697709
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642051   (232090) от 25.06.2023
-
-Tropical Fuck Storm - Goody Goody Gumdrops (2023) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Psychedelic, Art Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Romeo Agent (GGG) [00:05:42]
-02. Aspirin (GGG) [00:05:00]
-03. Maria 63 (GGG) [00:06:54]
-04. Braindrops (GGG) [00:07:29](   Читать дальше...   )Жанр: Noise Rock, Psychedelic, Art PunkПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B41F9430F32C091B75CBDFB67590C61B2F6C838
 ```
 
 https://mybot314.ru/tekegram_catalog/

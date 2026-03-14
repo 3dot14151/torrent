@@ -1,3 +1,148 @@
+###  Публикация: 1720160   (110407) от 02.05.2024
+
+Sensual Lounge Music Universe - Sexiest Ballads: Smooth Instrumental Erotic Jazz Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Fall Walk (4:05)
+02. November Wind (3:17)
+03. Warm Whispers (3:26)
+04. Only Love Wins (3:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C4CDAF1E85E6D4DF507FE5F0AF1D69BE538B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720262   (110406) от 02.05.2024
+
+Ghost on Mars - Out of Time and Space (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Mist (7:21)
+02. Quarantine (6:03)
+03. They (5:45)
+04. Carbon Skin (5:13)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA441A5B222090DAB101478326CFC065084D78B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720249   (110392) от 02.05.2024
+
+Pagan's Mind - Studio Albums (6 releases) (2000-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pagan's Mind — прогрессив-пауэр-метал-группа из Шиена, Норвегия, образованная в 2000 году Нильсом К. Рю, Стианом Кристофферсеном и Торстейном Ааби.2000 - Infinity Divine
+2002 - Celestial Entrance
+2004 - Infinity Divine (Re-recorded, Remastered)
+2005 - Enigmatic Calling(   Читать дальше...   )Жанр: Progressive/Power MetalПродолжительность: 06:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60BA97EEAC7248769C2AFCB66CE30B6588387DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720231   (110390) от 02.05.2024
+
+FM - Old Habits Die Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of The Blue (4:22)
+02. Don't Need Another Heartache (4:36)
+03. No Easy Way Out (3:55)
+04. Lost (5:21)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6C6056BCA2D590F40F850009334BD14CD43C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720081   (110386) от 02.05.2024
+
+Shakatak - Time Of My Life (1988) (Extended Mix) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110386.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Time Of My Life (Extended Mix)
+B1 Slow Dancing
+B2 Mr.Manic And Sister Cool (Coolest Cuts)
+(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBE8080503F300D1318982414D7D84E6B63567B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720134   (110372) от 02.05.2024
 
 Jerome Godboo - One Monkey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -598,151 +743,6 @@ Kevin Ito - 000 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0EC59C70542891E36018621B9EC8F1499E4B256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720542   (110218) от 04.05.2024
-
-U.D.O. - Game Over (2021) Limited Edition,2022, AFM Records[FLAC|24/192|tracks|Vinyl-Rip]  <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110218.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fear Detector
-A2 Holy Invaders
-A3 Prophecy
-A4 Empty Eyes(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B65DBAAD63F95508154A788EC552207CBC2A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720647   (110212) от 04.05.2024
-
-Nick Kamen - Nick Kamen (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110212.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Win Your Love
-A2 Open The Door To Your Heart
-A3 Nobody Else
-A4 Into The Night(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:899AA2E0691E2EE87FCD1B0B268DC648237D016C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720624   (110210) от 04.05.2024
-
-Tim Garland - Moment Of Departure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds Of Hope (5:13)
-02. Trails (7:05)
-03. No Horizon (7:47)
-04. The Impossible Self (3:32)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87666A043E34DA2DBDFA19E7F57378C4493C7229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720628   (110209) от 04.05.2024
-
-Win Pongsakorn - Time Has Changed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man In The Mirror (5:52)
-02. Pensri (5:18)
-03. Hummingbirds At Balata Garden (5:58)
-04. Time Has Changed (6:16)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D490C23DD7A6054A6771A7C70A2C5DFAE62BD62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720689   (110208) от 04.05.2024
-
-Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle of the Underworlds (5:22)
-02. We Live Another Day (3:45)
-03. Creepy Shadows (3:31)
-04. One Dark Happy Nation (3:37)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58DB86AA61FBF761BD1A4E7E6D0ADA13495E7BF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

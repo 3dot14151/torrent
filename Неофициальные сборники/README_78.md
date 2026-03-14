@@ -1,3 +1,90 @@
+###  Публикация: 1094046   (930583) от 17.01.2017
+
+VA - Душевная музыка на радио Шансон. Сборник № 7 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930583.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Орская Маргарита - Любимый Муж Мой 4:21
+002. Рома Рязанский - Письмо 4:01
+003. Дэн Ясюк - Гитара Дорога 3:50
+004. Андрей Андреев - Чужая Женщина 3:54(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AF395D8E3DB7A9D886A2C06C290647F7485E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986640   (930451) от 14.02.2016
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 23 ) (2016) [MP3|192-320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kate Rayan - Voyage ( George Airbullet Original Remix Master) (06:50)
+02. Lazarus - Wait (Remix) (06:39)
+03. Lipps Inc. Vs. Tom Jones - Funkytown Kiss (Rick Wain) (03:27)
+04. Modern Talking - Arabian Gold ( Ext.Dance Mix By Marc Eliow) (12:37)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3654B984BBE48881EC9F151A629993EBD20304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365195   (930408) от 07.03.2020
+
+Shakin' Stevens - From Christmas To Christmas (The Best) (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Little Christmas
+02. Love Me Tonight
+03. Hot Dog
+04. Tear It Up(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7497658D1DA396767972FA9C068C00CAE3C304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365501   (930260) от 07.03.2020
 
 VA - Indian Romance (2020) [MP3|192 Kbps] <Native American, New age, World music>
@@ -663,94 +750,6 @@ VA - Новый РусРок. То, что не купишь в магазине
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05B95EDEC84A8E7B693A233D77F2E77656A4CB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755553   (928287) от 10.02.2014
-
-VA - The Official UK Top 40 Singles Chart (09-02-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. Обращаю Ваше внимание, что композиция 02. Pharrell Williams - Happy уже 12 недель в чате! Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Clean Bandit Feat Jess Glynne - Rather Be (03:48)
-02. Pharrell Williams - Happy (03:54)
-03. DJ Fresh Vs Jay Fay Feat Ms Dynamite - Dibby Dibby Sound (03:16)
-04. Will.i.am Feat Miley Cyrus, French Montana & Wiz Khalifa - Feelin' Myself (Explicit Edit) (04:14)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, Other |Продолжительность: 02:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1FA7EBA0E2664F174D6464D82BCF3204BB4245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987116   (927989) от 16.02.2016
-
-VA - Tempting Lounge: Sensual Lounge Music Selection (2016) [MP3|320 kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luigi Seviroli - Aeoliah - Full Mix
-02. Francesco Demegni - Seduction
-03. Antonio Vernuccio - Flying Over the Sea
-04. Giacomo Bondi - Your Style - Full Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5703E0CBFE6FDAFD1982C4B9DEA51692A81D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987247   (927981) от 16.02.2016
-
-VA - Vintage Sounset Lounge (2016) [MP3|320 kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Source - Framed Profile - Curt Clever Version
-02. Chad - Making Love - Brief Mix
-03. Derail - Freedom - Deep Little
-04. Bee Side - Can Be - Tiny Original(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E04D4054E08F0B83BE0A4A7E5630C71F78D301E
 ```
 
 https://mybot314.ru/tekegram_catalog/

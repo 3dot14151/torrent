@@ -1,3 +1,148 @@
+###  Публикация: 1395054   (753170) от 11.07.2020
+
+Александр Жихарев (А.И.Жихарев) - Поющие с бронзой (2012) [FLAC|Lossless|tracks + .cue] <Bells, Folk, Ethnic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прогулка (4:46)
+02. Река (7:59)
+03. Соло (6:06)
+04. Фантазия (4:12)(   Читать дальше...   )Жанр: Bells, Folk, EthnicПродолжительность: 01:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FDB43FDC6C3D88173F01E02DC2423C071EE9A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018812   (752259) от 22.05.2016
+
+Kory Caudill - Tree of Life (2015) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginnings    06:26
+02. Around the World    05:32
+03. Walz of Life    04:37
+04. Time    05:28(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF79874C8CF5CD57F74DCED9F0E6F2E491F029F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018781   (752253) от 22.05.2016
+
+Rosanna Cash - King's Record Shop (1987) [MP3|320 кб/с] <Folk, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rosie Strike Back (3:33)
+02. The Way We Make a Broken Heart (3:55)
+03. If You Change Your Mind (3:21)
+04. The Real Me (4:26)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7149055528DB274757BB7F9B1B983FB21E786FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018707   (752174) от 22.05.2016
+
+Dixie Chicks - Wide Open Spaces (1998) [MP3|320 кб/с] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dixie Chicks — женское кантри-трио, которое было создано в Далласе, штат Техас, в 1989 году. Участницы группы: Эмили Робисон, Марти Магуайр и Натали Мэнс.01. I Can Love You Better (3:54)
+02. Wide Open Spaces (3:44)
+03. Loving Arms (3:38)
+04. There's Your Trouble (3:13)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4988722EE86214691DDDCF65FA0897D52212D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523038   (751547) от 11.01.2022
+
+Deuter - Eternity (2009) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind in the Trees
+02. Lovesong from the Mountains
+03. Uno
+04. Lotus(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD470C88C8166A03D09B46BC7C2C5B76C3FFC0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215718   (750935) от 30.03.2018
 
 Помни Имя Свое (Фандеева Ксения,Станислав Дорофеев,Фроленко Мария) - Птицы (2015) floe [MP3|320 Kbps] <Folk ,Neofolk ,Ethereal Wave>
@@ -600,149 +745,6 @@ VA - Яркость / Bright: The Album (2017) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C561AC05EF4E6D5A6F205778C79D04B0BD914544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217483   (742137) от 05.04.2018
-
-Sam Green - Just Stand Still (2017) [MP3|320 Kbps] <Acoustic Folk, Acoustic Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taken My Breath Away
-02. Change
-03. Worn out Shoes
-04. The Great Unknown(   Читать дальше...   )Жанр: Acoustic Folk, Acoustic RockПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17F33553587EDBC11F51F10365988ACA4C0ADFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217239   (742129) от 05.04.2018
-
-Shoji Meguro - Persona 5 Original Soundtrack (2017) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742129.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Wake Up, Get Up, Get Out There (4:38)
-02. Phantom (2:18)
-03. 脱出 (0:53)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B4F5470B734D09E05BAD959DE92459F67E2494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217371   (742128) от 05.04.2018
-
-Dr. Jeffrey Thompson - Journey of the Spirit (2016) [FLAC|Lossless] <New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey of the Spirit (Track 1) 31:39
-02. Journey of the Spirit (Track 2) 33:10Жанр: New Age, Meditative, RelaxПродолжительность: 01:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFE4488F84C68B1DBB3BCFC115165684DAAFE88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217496   (742040) от 05.04.2018
-
-Dr. Jeffrey Thompson - Theta Meditation System (2001) 2CD [FLAC|Lossless] <New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CD1 Renewal Track 01 30:01
-02. CD1 Renewal Track 02 30:01
-03. CD2 Insight Track 01 32:02
-04. CD2 Insight Track 02 31:58Жанр: New Age, Meditative, RelaxПродолжительность: 02:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD884D6206CFB1C5384D1E0916C1BF713CBDCAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217642   (741785) от 05.04.2018
-
-Jean-Michel Jarre - Original Album Classics Vol 2 (2018) 5CD Box Set [FLAC|Lossless|tracks + .cue] <Ambient, New-Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene (Part 1) (Remastered Version)
-02. Oxygene (Part 2) (Remastered Version)
-03. Oxygene (Part 3) (Remastered Version)
-04. Oxygene (Part 4) (Remastered Version)(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 03:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C30200A3D728C4861EB3D5F36DA4179E7A8148
 ```
 
 https://mybot314.ru/tekegram_catalog/

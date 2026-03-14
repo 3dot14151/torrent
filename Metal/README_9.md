@@ -654,6 +654,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247297   (989818) от 07.01.2012
+
+The Black Dahlia Murder - 5 альбомов + 2 EP (2001-2011) [MP3|192-320 kbps]<Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_989818.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Shrine to Madness (04:41)
+2. Moonlight Equilibrium (03:28)
+3. On Stirring Seas of Salted Blood (04:42)
+4. Conspiring With the Damned (03:44)
+5. The Window (03:39)
+6. Carbonized in Cruciform (04:46)
+7. Den of the Picquerist (01:30)
+8. Malenchanments of the Necrosphere (04:18)
+9. The Grave Robber's Work (03:37)
+10. The Raven (02:58)(   Читать дальше...   )2001-2009Жанр: Melodic Death Metal, Metalcore, DeathcoreПродолжительность: 02:56:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971312   (987486) от 02.01.2016
 
 Mechina - Progenitor (2016) [MP3|320 кб/с]<Industrial, Symphonic Death Metal>
@@ -785,35 +820,6 @@ Vicious Crusade - Freedom Comes (2009) [MP3|320 kbps]<Melodic Thrash>
 ###  Подробнее
 
 Жанр: Melodic ThrashПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163983   (986542) от 07.01.2010
-
-Melechesh - Emissaries (2006) [MP3|~256 kbps] <Mesopotamian metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986542.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rebirth of the Nemesis (6:37)
-2. Ladders to Sumeria (4:01)
-3. Deluge of Delusional Dreams (6:25)
-4. Touching the Spheres of Sephiroth (3:09)(   Читать дальше...   )Жанр: Mesopotamian metal (Black/Death/Middle-Eastern Folk Metal)Продолжительность: 00:55:27
 
 ## Скачать торент
 ```bash

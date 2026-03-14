@@ -1,3 +1,90 @@
+###  Публикация: 1457874   (1024197) от 27.03.2021
+
+Hector Loza - The Best (2021) [MP3|320 Kbps] <Native American, World music>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abrazame
+02. Amor Inca
+03. Despacito
+04. El Imigrante(   Читать дальше...   )Жанр: Native American, World musicПродолжительность: 01:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4442A934382779EEC90C6DBB45B0A086479989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457651   (1024190) от 27.03.2021
+
+VA - Club Music vol.1 (2021) [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024190.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ANIKV, SALUKI, Alex Shik - Меня не будет (Alex Shik Remix) (3:03)
+002. RASA, Lavrushkin - Dior (Lavrushkin Radio Mix) (2:47)
+003. Armin van Buuren - Blah Blah Blah (3:03)
+004. Laidback Luke, Mark Bale - Party Starter (2:11)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 06:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A532E89A1667F6D794A1B155B4AC51EB584D46E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458053   (1024153) от 27.03.2021
+
+VA - Blood And Soul (2021) [MP3|320 Kbps] <Soul, Blues, Lyric Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам грустно и хочется тосковать? Вас переполняют эмоции и вы ищете собеседника? Вы счастливы и душа просит поэзии? Тогда вам нужна эта музыка! Ведь за каждой песней стоит уникальная история человека, а в ней боль и радость, разочарование и надежда на лучшее.001. Step By Step - Now You're Gone
+002. Twiliters - Can't You Stay A Little Longer
+003. Yu Sakai - Barefoot Fairy
+004. The Esquires - Bamboo Isle(   Читать дальше...   )Жанр: Soul, Blues, Lyric JazzПродолжительность: 05:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007E2CF12A0672647F7DB0AB89C1301E4052770B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458057   (1024075) от 28.03.2021
 
 VA - Neon: Uplifting Trance Party (2021) [MP3|320 Kbps] <Uplifting, Vocal Trance>
@@ -658,93 +745,6 @@ VA - Disco Instrumental (2021) [MP3|320 Kbps] <Disco, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C99E68C6D57A77E1070CBDA5846CB13B111FC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459326   (1023248) от 01.04.2021
-
-VA - International Jazz Day: March Release (2021) [MP3|320 Kbps] <Jazz, Soul, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Вам замечательный сборник "International Jazz Day" из 130 чувственных произведений джаз музыки. Спокойная и очаровывающая музыка затронет струны души даже самого отъявленного скептика. Музыканты поют о любви, человеческих восприятиях и отношениях, а мелодии саксофона вызывают еще больше эмоций.001. Christian Howes - When Will The Blues Leave
-002. Fourplay - Max-O-Man
-003. Antti Lötjönen - Rowan
-004. Pilots On Dope - Eu E O Meu Amor(   Читать дальше...   )Жанр: Jazz, Soul, BluesПродолжительность: 10:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5300D630F4E47E8C22A5378B711DF527E8E9C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459458   (1023086) от 02.04.2021
-
-VA - Pop & Dance (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023086.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Travis Scott, HVME - Goosebumps (2:42)
-002. Joel Corry, MNEK - Head & Heart (2:46)
-003. Tony Junior, NIGHT MOVES, Lasse Meling - Unstoppable (3:21)
-004. The FifthGuys, Polina Grace - Seven Nation Army (2:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F80B88005305DD1D0325BE1333AB4EB3BF6698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459845   (1023003) от 03.04.2021
-
-VA - Landscape: Chill Ambient Music (2021) [MP3|320 Kbps] <Ambient, New Age, Chillout, Meditative>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ambient - это не просто музыка, это образ жизни, мышления и восприятия мира. Это самая многогранная музыка, самая непредсказуемая, самая зачаровывающая. Это музыка, которая настраивает человека на позитивный лад и несёт приятные эмоции.001. Weber & Weber - 4x Sample
-002. Ataxy - Air
-003. A Winged Victory - Nothing
-004. Fridrik Karlsson - Chillout Heaven(   Читать дальше...   )Жанр: Ambient, New Age, Chillout, MeditativeПродолжительность: 11:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593E70C6E8EB225586C6EB36B3B4B5DCA9DD044C
 ```
 
 https://mybot314.ru/tekegram_catalog/

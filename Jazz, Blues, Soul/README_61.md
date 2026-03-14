@@ -1,3 +1,61 @@
+###  Публикация: 1091046   (945049) от 08.01.2017
+
+Bobby Hutcherson - Oblique (1967) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.'Til Then [04:47]
+ 02.My Joy [07:14]
+ 03.Theme From Blow Up [08:16]
+ 04.Subtle Neptune [08:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D93C2000DE2B3E5E6A064085CD439A19067F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091066   (945047) от 08.01.2017
+
+New Generation (Новое поколение) - Two-Face Janus (Двуликий Янус) (1994) Ermatell Records[FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mister Jazz [08:25]
+ 02.Song For Son [05:51]
+ 03.Drank Blues [06:01]
+ 04.Bongo-Bip [04:04](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBC4D3B15A7F7AFF2F78D9C0B68FDEA893A273B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090924   (945038) от 08.01.2017
 
 Billie & De De Pierce and Jim Robinson's New Orleans Band - Jazz At Preservation Hall II (1962) Remaster, 2013[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2630C96B76B478B566CB3377015C8EF859625751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091813   (941766) от 10.01.2017
-
-Art Pepper with Duke Jordan - In Copenhagen 1981 (1996) 2CD, Galaxy[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941766.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Blues Montmartre [14:12]
-02.What Is This Thing Called Love? [09:46]
-03.Over the Rainbow [07:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 02:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD5EF706F1F4F1E69A23B0F781954203A90CB70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091587   (941756) от 10.01.2017
-
-The Sean Webster Band - Long Time Coming (2003) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Story Of My Life  (04:17) 
-02|  What Was His Name  (06:14) 
-03|  Just Walk Away  (05:07) 
-04|  I'll Be Gone  (03:55) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BD6A257BC39B9BA9CCEFFA8618ED0BCDB08FEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

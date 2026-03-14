@@ -1,3 +1,32 @@
+###  Публикация: 1445318   (1033799) от 05.02.2021
+
+Frank Butler - Wheelin' And Dealin' (1978) 1987, Break Time [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wheelin' and Dealin' [6:25]
+02. I Got It Bad/Tenderly [8:17]
+03. Four [7:34]
+04. Secret Love [5:43](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28994D1B1BB0A90FEF883DCB6BD276E83BFCAE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445278   (1033796) от 05.02.2021
 
 Eddie Condon - 1938 - 1940 (1994) Classics [FLAC|Lossless|image + .cue] <Dixieland, Swing>
@@ -716,35 +745,6 @@ Roseanna Vitro - Softly (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7F6BEA1462206204FB8C37AEC1425E058440A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446944   (1032343) от 11.02.2021
-
-Mezz Mezzrow - 1951 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mezzerola Blues [3:09]
-02. Drum Face [3:16]
-03. Blues des annees 20 [3:41]
-04. Really the Blues [4:51](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4816D3D5C52300A4439A3EF2A343705BBEA02D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

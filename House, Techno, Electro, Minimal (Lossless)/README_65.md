@@ -1,3 +1,90 @@
+###  Публикация: 1765011   (101377) от 14.12.2024
+
+VA - Beach Grooves Maretimo, Vol.5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinematic - Skydive (Beachbar Mix) (4:19)
+02. Vladi Strecker - Spanish Girl (Bossa Chill Cut) (4:52)
+03. Airstream - Particle (Pulse Mix) (4:52)
+04. Groove Gauchos - Tequila Sunrise (Blue Bossa Mix) (4:41)(   Читать дальше...   )Жанр: Beach House, LoungeПродолжительность: 01:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D02B2CBBD3E901795022D567F82366E872DE220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765724   (101375) от 14.12.2024
+
+VA - Best Gym & Fitness Music 2024 [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ALVSTOR - Lets Go (3:07)
+02. KAYNARD - Ethnica (2:35)
+03. NEAMARTI - Vibe Sound (3:06)
+04. El Ram - Petrunko 2024 (2:13)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA5155279D4E697917F128FBCBB884559530612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765900   (101322) от 15.12.2024
+
+VA - Feel The Burn Body Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'Mixmasters - Too Much (Fitness Version 128 Bpm 32 Count) (4:00)
+02. DJ Space'c - Both (Fitness Version 128 Bpm 32 Count) (3:45)
+03. D'Mixmasters - Rock My Body (Fitness Version 128 Bpm 32 Count) (4:00)
+04. Kangaroo - Red Flags (Fitness Version 128 Bpm 32 Count) (4:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0597CAC5E4B904AFCC458E2EA29D165A25DC7BA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766244   (101259) от 17.12.2024
 
 VA - Gym Mode 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -690,93 +777,6 @@ VA - Ethnicá 2025 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:541CA8115C16A62533C923BC47BA7DA2B6ECA7D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783223   (69817) от 05.03.2025
-
-LP Giobbi - Dotr (2024) Remixes, 2025, Counter Records [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel (Kink Remix) [00:04:38]
-02. So Nice To Be In Love (Deer Jade Remix) [00:05:14]
-03. So Nice To Be In Love (Busy P & Domenico Torti Remix) [00:04:49]
-04. So Nice To Be In Love (Sebra Cruz Remix) [00:05:00](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6691AD4B70D08A855775F1366D580927E387AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784149   (69658) от 09.03.2025
-
-VA - Sport Mixtape (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - I Follow Rivers (feat. Oaks) (3:18)
-02. Alle Farben - Call My Name (feat. Sofiloud) (2:24)
-03. David Guetta - Never Going Home Tonight (feat. Madison Love) (2:44)
-04. Robin Schulz - World Gone Wild (feat. Sam Martin) (2:26)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD8A14746BD8CF58F8943DCFDA380D74502A940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785044   (69417) от 14.03.2025
-
-djdtime - Minimal Tech House Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the Dive (4:46)
-02. Locked Groove (4:11)
-03. Bassline Addiction (6:57)
-04. Circuit Flow (4:42)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23EA204E26A8E4CEBF387492BBFC94498F6B333
 ```
 
 https://mybot314.ru/tekegram_catalog/

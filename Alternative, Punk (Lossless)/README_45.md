@@ -1,3 +1,90 @@
+###  Публикация: 1582225   (324685) от 08.10.2022
+
+Get The Shot - Merciless Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultimate Warfare (02:05)
+02. Seeds of Dissension (03:53)
+03. Survival Denied (04:15)
+04. Deathbound (feat. Rob Watson of Lionheart) (04:39)(   Читать дальше...   )Жанр: Hardcore, Thrash MetalПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B3CFA9985E0D87E2237F17BE866EDC38C9F80E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582209   (324592) от 08.10.2022
+
+I Drink My Coffee Alone - Nichts (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimental Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die drei Brüder [00:02:56]
+02. Alles [00:04:29]
+03. Adam's Alltag [00:05:14]
+04. Mivina [00:03:39](   Читать дальше...   )Жанр: Experimental DeathcoreПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CBA610DC7845D30B434E112901C852C1D6972D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582278   (323596) от 09.10.2022
+
+Resist The Ocean - 3 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening [00:01:23]
+02. In Death We Are Equal [00:03:56]
+03. Deadweight [00:03:08]
+04. Umbra [00:04:58](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2508970718243394AB5560CAFF99A16FFB745C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582277   (323592) от 09.10.2022
 
 A Sight in Veracity - Eternity Past (2022) Extended Edition [FLAC|Lossless|WEB-DL|tracks] <Nu Metalcore, Deathcore>
@@ -651,93 +738,6 @@ Dagger Threat - Weltschmerz (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD4889ABF1D19687E76C91E99549B3172F3CE048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583033   (314556) от 13.10.2022
-
-Once Was Never - The Great Dying (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just a Number [00:03:17]
-02. State of Mind [00:03:13]
-03. The Heartless [00:04:18]
-04. Slaves to the Pattern [00:03:21](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0173AF96E04367F64DBF8695C4AE0F7A3BDDBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583114   (314530) от 13.10.2022
-
-Suffer UK - Sorrow We Sow, the Hatred We Know (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infernal Monologue [00:05:31]
-02. Escapism [00:03:53]
-03. Falsehood [00:04:11]
-04. Unhallowed Justice [00:03:13](   Читать дальше...   )Жанр: Beatdown DeathcoreПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7039BA88128281ADFE47DDAD3513F65663CA3DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260215   (313990) от 06.11.2018
-
-VA - Chef Aid - The South Park Album (1998) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, Breakbeat, Gangsta, Grunge, House>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Primus - South Park Theme (00:40)
-02. Ozzy Osbourne; DMX; 'Ol Dirty Bastard; Crystal Method; Fuzzbubble - Nowhere To Run (04:40)
-03. Chef; Isaac Hayes - Chocolate Salty Balls (P.S. I Love You) (03:55)
-04. Rancid - Brad Logan (02:16)(   Читать дальше...   )Жанр: Alternative Rock, Breakbeat, Gangsta, Grunge, HouseПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364725F227533637585EBB6DA3A7791D7A34AA99
 ```
 
 https://mybot314.ru/tekegram_catalog/

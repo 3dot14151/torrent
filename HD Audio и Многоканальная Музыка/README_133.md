@@ -1,3 +1,148 @@
+###  Публикация: 1729183   (108101) от 10.06.2024
+
+Big Head Todd and The Monsters - Her Way Out (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Her Way Out (3:42)
+02. Thunderbird (3:52)
+03. Crush (4:27)
+04. Don't Kill Me Tonight (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2039AAF71B8BC96E297E1C98A465B2865B449412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729290   (108099) от 10.06.2024
+
+Remedy - Pleasure Beats the Pain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crying Heart (4:17)
+02. Moon Has the Night (4:10)
+03. Sin for Me (4:06)
+04. Angelina (3:45)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1E78DB6437947B67F16D6DAC887C63D816EFB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729289   (108098) от 10.06.2024
+
+Liar Thief Bandit - ICON (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ultimate Sign (3:26)
+02. Death Pioneer (3:41)
+03. Dying Efforts (3:14)
+04. It All Goes Away in the End (3:22)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D6C3DFA01E361D46B413ADED7E7C4FAAEC98F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729159   (108097) от 10.06.2024
+
+Tony Hadley - The Mood I'm In (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch Me (2:55)
+02. Walk of Shame (3:02)
+03. Feeling Good (4:01)
+04. That's Life (3:09)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5909F39D77C3A1E5A6FF4106AC6391196837E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729255   (108096) от 10.06.2024
+
+Barry Manilow - Barry Live In Britain (Live at The Royal Albert Hall) (1982) Remaster, 2024, Arista - Legacy [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley: It's A Miracle / London (Live at The Royal Albert Hall) [00:05:47]
+02. The Old Songs Medley: The Old Songs / I Don't Wanna Walk Without You / Let's Hang On (Live at The Royal Albert Hall) [00:10:08]
+03. Even Now (Live at The Royal Albert Hall) [00:03:47]
+04. Stay (Live at The Royal Albert Hall) [00:03:44](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14EB67E16B5F7D6D2F20EE91DE44ADACC932A409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729333   (108094) от 10.06.2024
 
 Lorelei K - Gucci Doom (2023) Deluxe Edition, 2024, Idol Records [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Indie Pop, Rock>
@@ -596,151 +741,6 @@ B1 - Последнее Лето Детства(   Читать дальше... 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92E7E2FE5A7C240A4962C3D616519224A4BE9F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729882   (107993) от 13.06.2024
-
-Velvet Meadow - Velvet Meadow (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedeleic, indie rock, Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cant Be Late (00:05:18)
-02 - Spring Song (00:04:55)
-03 - I Dont Like Money Anyways (00:03:48)
-04 - Colours (00:03:36)(   Читать дальше...   )Жанр: psychedeleic pop, indie rock, fadeaway, Space RockПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8A8F8CCE1D2628FF4F26370686CB51B70E23BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729920   (107992) от 13.06.2024
-
-Nestor (Néstor) - Teenage Rebel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Law Of Jante (feat. Freya Miller) (1:27)
-02. We Come Alive (3:29)
-03. Teenage Rebel (4:32)
-04. Last To Know (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241DABD4B532719039C99F6B964B114BB527C1A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729887   (107991) от 13.06.2024
-
-Velvet Meadow - Never Want To Leave My Head (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedeleic pop, indie rock, fadeaway, Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - If She Really Loved Me (00:04:40)
-02 - Slow Down (00:03:39)
-03 - My Reasons Why (00:05:03)
-04 - IVe Come To Realize (00:05:12)(   Читать дальше...   )Жанр: psychedeleic pop, indie rock, fadeaway, Space RockПродолжительность: 01:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2DC8C0247DB941D89C810DEB0CE838D4A9C036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729972   (107989) от 13.06.2024
-
-Ron Jameson Project - CrossRoad Blues: Rock'n'Roll for the King of Kings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got to Get in Touch (2:41)
-02. Prodigal Son (4:50)
-03. Don't Be Dismayed (MD) (5:37)
-04. Walkin' Shoes (2:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C8C24A65B34F1ED9A153905EE8F0BBC5A3EAA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729925   (107988) от 13.06.2024
-
-The Dead Daisies - Resurrected, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mine All Mine (3:33)
-02. How Does It Feel (3:09)
-03. Last Time I Saw The Sun (4:13)
-04. Mainline (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE1F0D13B221DE459919371132A539FFEA78ADE
 ```
 
 https://mybot314.ru/tekegram_catalog/

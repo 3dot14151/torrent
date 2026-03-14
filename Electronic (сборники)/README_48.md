@@ -1,3 +1,32 @@
+###  Публикация: 1008880   (813945) от 19.04.2016
+
+VA - Lounge Royale: Exclusive Music Selection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francesco Demegni – A New Love
+ 02. Luna Lounge – Luna Serenade
+ 03. Andrea Cardillo Project – Buona vita
+ 04. Vincenzo Ricca – Chill Thrill(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E18C1571FFC16014557428FCB8BB9BFED146D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008850   (813935) от 19.04.2016
 
 VA - Whatpeopleplay Top 100 Topseller March (2016) [MP3|320 кб/с] <House, Deep House, Tech House>
@@ -716,35 +745,6 @@ VA - Record Super Chart 636 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51F8CE8FB6149519ABD3FBE4871B3B0E08894C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009842   (808245) от 22.04.2016
-
-VA - Trance Maniacs Party -  Melody Of Heartbeat #162 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gal Abutbul & Sarah Russell - You Have Realised (Uplifting R 05:56
-02. Walsh & McAuley and Katty Heat - Wider Horizon (Azotti Remix) 06:18
-03. Matteo Marini & Ellie Lawson - Dreaming of a Better World (Ma 04:58
-04. Mike Saint-Jules Ft. Sandel - Broken Turn (Original Mix) 06:20(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C72F37D97F4A8EC08227246B9E7706F32BAB10
 ```
 
 https://mybot314.ru/tekegram_catalog/

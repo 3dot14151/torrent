@@ -1,3 +1,61 @@
+###  Публикация: 1804107   (13282) от 27.06.2025
+
+Bruce Springsteen - Tracks II: The Lost Albums (2025) [MP3|320 Kbps] <Rock, Folk Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I'm Not Sleeping [3:38]
+02 - Idiot's Delight [3:35]
+03 - Another Thin Line [4:47]
+04 - The Great Depression [3:48](   Читать дальше...   )Жанр: Rock, Folk Rock, Pop RockПродолжительность: 05:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD36A5AC60F664DDE5E7A8A187C176CFBCDCBAA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806572   (11590) от 13.07.2025
+
+Chris Rea - New Light Through Old Windows (1988) 2CD, Reissue, Remastered, 2025, Rhino [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Dance (Instrumental) [00:04:16]
+02. Working on It (Instrumental) [00:04:26]
+03. Ace of Hearts (Instrumental) [00:04:54]
+04. Josephine (Instrumental) [00:04:36](   Читать дальше...   )Жанр: Pop RockПродолжительность: 2 CD, 01:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693D2C92F065DA188E9FF4B2C839325003716912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812646   (7707) от 15.08.2025
 
 The Cranberries - No Need To Argue (1994) 30th Anniversary / Super Deluxe Edition, Remastered 2020, 2025, UMG Recordings, Inc. [MP3|320 Kbps] <Rock, Alternative Rock>

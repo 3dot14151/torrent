@@ -1,3 +1,154 @@
+###  Публикация: 1170590   (399481) от 01.10.2017
+
+Johannes Linstead - Azul (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Azul
+02 - Cha Cha Chu
+03 - Be My Girl
+04 - Lazy Sunday(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F52CFC4CDD10CBFE06F669D30FFDD1EF8F479F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170586   (399290) от 01.10.2017
+
+VA - Pulp Fiction (Collector's Edition) (2002) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tim Roth - Pumpkin and Hunny Bunny-Misirlou
+02 - Samuel L. Jackson - Royale With Cheese
+03 - Kool & the Gang - Jungle Boogie
+04 - Al Green - Let's Stay Together(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9959A39861F54476716C15316D79A9E967A289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566310   (399015) от 27.10.2012
+
+Oystein Sevag - 2 albums (2010, 2012) [MP3|320 кб/с]<New age, Jazz>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399015.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:48) 01. Landing
+(4:11) 02. Urban Nocturne
+(3:51) 03. Gentle
+(3:27) 04. Song from another Place
+(6:00) 05. A Butterfly's Dream
+(2:37) 06. Time Shadows
+(5:13) 07. A Sparkling Point of View
+(3:06) 08. Lights After Dark
+(1:32) 09. Call
+(7:31) 10. Contact(   Читать дальше...   )Жанр: New age, JazzПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66CED23C0DA85C9D9304A21602F4ABE183548EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170584   (398628) от 02.10.2017
+
+VA - Men in Black (1997) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Will Smith - Men In Black
+02 - Snoop Doggy Dogg Featuring JD - We Just Wanna Party With You
+03 - Ginuwine - I'm Feelin' You
+04 - Alicia Keys - Dah Dee Dah (Sexy Things)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFEA95293F2F0FB08D14ADA17308F8FA490BF65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170582   (397697) от 03.10.2017
+
+Danny Elfman - Men In Black (1997) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - M.I.B. Main Theme
+02 - D's Memories - Chase
+03 - Edgar's Truck - A New Man
+04 - Imports - Quiet Moment(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78778920ADD9A550C0BE8FE03DB342F082FE4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170806   (397682) от 03.10.2017
 
 VA - Music In Love, Movie Collection Vol. 1 (2017) [MP3|320 Kbps] <Soundtrack, Easy Listening, Pop>
@@ -629,157 +780,6 @@ Neil Davidge - Halo 4. Original Soundtrack (Special Digital Edition) (2012) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FC5F1F9FC0B9ECC98877D3C7FE8673749AB969C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173031   (391239) от 10.10.2017
-
-Medwyn Goodall - Medicine Woman 6: Synchronicity (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391239.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Synchronicity (8:08)
-2.  Second Chances (9:02)
-3.  Making Magic (7:58)
-4.  The Beginning of All Beginnings (6:52)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A215E550E28A8705BA61CC04B4FAD4B590C91F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172627   (391230) от 10.10.2017
-
-Meldis - Грани Миров (2013) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cad e sin don te sin (3:00)
-02. Amazing Blues (2:32)
-03. Coming Around (4:13)
-04. Trotto (1:26)(   Читать дальше...   )Жанр: Folk, Celtic HarpПродолжительность: 00:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E758BC1859767CBA097215E4D2ACC8C9A63107A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172482   (391153) от 10.10.2017
-
-VA - Latino Hits Power (2017) [MP3|320 Kbps] <Latin Music, Reggaeton>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alvaro (Los Principales) – Pa Fiesta 00:04:22
-02. Pi Lawton – SMS Salvaje 00:04:14
-03. Los 3 Gatos – Vamos a Jamarnos 00:03:30
-04. Dany – No Te Enganches 00:03:38(   Читать дальше...   )Жанр: Latin Music, ReggaetonПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836B667543288A1A2C2D0A96D90BACB1504B2AEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173066   (391149) от 10.10.2017
-
-Medwyn Goodall - Medicine Woman (The Lost Tracks) (2017) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calling Down the Rain 07.59
-02. Temples in the Sun 16.00
-03. Mayan Kingdom 16.03
-04. By The Water Hole 10.00(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3327C6CB81C3B91F1A0518B84719A601DEEC5910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569372   (390696) от 04.11.2012
-
-Lorne Balfe - Assassin's Creed 3 (2012) [MP3|320 кб/с]<Game OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Assassin's Creed III Main Theme
-02 An Uncertain Present
-03 Escape in Style
-04 Welcome to Boston
-05 Freedom Fighter
-06 A Bitter Truth
-07 Through the Frontier
-08 Connor's Life
-09 Trouble in Town
-10 Farewell(   Читать дальше...   )Жанр: Game OSTПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A539947364D110B65BE86B7CAB7566FA830B2B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

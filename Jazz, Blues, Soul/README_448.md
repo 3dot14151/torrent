@@ -1,3 +1,178 @@
+###  Публикация: 1346451   (163928) от 19.12.2019
+
+Ray Bryant - Four Classic Albums 1956 - 1962 (2016) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163928.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cubano Chant [3:07]
+02. Off Shore [3:56]
+03. Well You Needn't [3:19](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21232CA3201CA58ADC9370141A32E426983571CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517158   (163559) от 14.12.2021
+
+Louis Armstrong - The Complete Louis Armstrong Decca Sessions (1935 - 1946) 7CD, 2009, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163559.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I'm In The Mood For Love [3:11]
+02. You Are My Lucky Star [2:59]
+03. La Cucaracha [2:41](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 08:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39958665E232B0FD912ACEB9C6845632638357F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673920   (163487) от 03.11.2023
+
+Chet Baker - Blue Room (1979) 2CD, 2023, Jazz Detective [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Gilles [10:54]
+02. Nardis [8:40]
+03. Candy [5:41]
+04. Luscious Lou [6:58](   Читать дальше...   )Жанр: CoolПродолжительность: 01:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF9DBEC92A11B0986C6D850CFAA7ED9727D2C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669379   (163468) от 03.11.2023
+
+Pasquale Grasso - Pasquale Plays Duke (2021) Sony Music [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Don't Mean a Thing [3:45]
+02. Blue Rose [5:22]
+03. Prelude to a Kiss [4:19]
+04. Solitude (feat. Samara Joy) [4:53](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA05C0F50CDD173B0BC9742E6B3CE1ACFBC0CFF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598254   (163427) от 18.12.2022
+
+Django Reinhardt - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome (2e partie) [2:21]
+02. I Can't Give You Anything But Love [2:23]
+03. Artillerie lourde [4:18]
+04. How High the Moon [2:21](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769411F72C5AF0CDD620754E01FA59B164B1D03E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673987   (163398) от 03.11.2023
+
+Billy Merziotis ft Gary Moore Band & Irene Movia - All the things you are (2023) [FLAC|Lossless|image + .cue] <Blues, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий студийный альбом Билли Мерзиотиса .
+На этот раз виртуоз Les Paul объединяет усилия с бывшими участниками группы Гэри Мура : Виком Мартином (клавишные), Питом Рисом (бас) и Грэмом Уокером (ударные). Вместе с давней музыкальной партнершей, певицей и автором текстов Ирен Мовиа , Билли создает аутентичный альбом, состоящий из запоминающихся рок-риффов, зажигательных (   Читать дальше...   )01. I Wanna Breathe
+02. Same Kind Of Fool
+03. Lady Of The Sea
+04. You Shouldn’t Play With Fire(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D1E60FF6C7074BF00EFDFD23FFEE2FC262A762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598251   (163348) от 18.12.2022
 
 Paul Desmond & Jim Hall Quartet - Complete Recordings (1959 - 1965) 4CD, 2022, Essential Jazz Albums [FLAC|Lossless|tracks + .cue] <Cool>
@@ -571,180 +746,6 @@ B.B. & The Blues Shacks - Lonesome In The Moonlight (2023) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D019717F77A26FC002B64CE2D331182FD912BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673951   (162469) от 04.11.2023
-
-Bonny B & The Jukes - Peace (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born with the Blues (5:58)
-02. Hard Time (5:59)
-03. Macho Blues (4:51)
-04. Let's Talk (6:16)(   Читать дальше...   )Жанр: Blues HarmonicaПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EE7D745D1D256C871BF50C27AE5B9BCD098672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673927   (162448) от 04.11.2023
-
-20 Watt Tombstone - The Chosen Few (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Stoner, Trash Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prophet Man (3:14)
-02. Chosen Few (3:10)
-03. Bomb That Saved the Day (4:03)
-04. Black Top Sorrow (3:13)(   Читать дальше...   )Жанр: Blues Rock, Stoner, Trash BluesПродолжительность: 00:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9899ACECC307D3E5681363AAF92D3327A356F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673955   (162444) от 04.11.2023
-
-Candice Ivory - When The Levee Breaks: The Music of Memphis Minnie (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie Hunter - Me and My Chauffeur (3:33)
-02. When The Levee Breaks (3:35)
-03. Charlie Hunter - You Can't Rule Me (2:42)
-04. Charlie Hunter - When You Love Me (2:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4CB7B9385EDA21C14A9565876B1470EE42CACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674228   (162430) от 04.11.2023
-
-Blank & Jones feat. Julian & Roman Wasserfuhr - Jazzed EP (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Sunrise
-02. Face Á La Mer (Re-Jazzed)
-03. Lazy Life (Jazzed)
-04. Swept Away (Jazzed)Жанр: JazzПродолжительность: 00:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D68B6CE5C05A463E1FA8A7B0F5B27EAF751F79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517589   (162386) от 16.12.2021
-
-Erroll Garner - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body And Soul [3:01]
-02. All The Things You Are [2:59]
-03. I Don't Stand A Ghost Of A Chance With You [2:41]
-04. Yesterdays [3:07](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EC7DE205C6643074F0B1E8D48DD2D05AC3F141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517590   (162384) от 16.12.2021
-
-Johnny Hodges - Storyville Masters Of Jazz (1943 - 1964) 2006, Storyville Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Get Around Much Anymore [3:51]
-02. Passion Flower [4:14]
-03. Perdido [2:56]
-04. All Of Me [1:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885D46013642BCF729DB66BDCA86B074B7FD08E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

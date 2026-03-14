@@ -1,3 +1,147 @@
+###  Публикация: 1657087   (193139) от 02.09.2023
+
+Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image + .cue|Vinyl-Rip] <Rock, Latin, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193139.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A-me-ri-ca
+A2 If I Had A Hammer
+A3 Bye Bye Blackbird
+A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, FunkПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313506   (193138) от 29.10.2022
+
+Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_193138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Whole Lotta Shakin' Goin' On
+A2 Great Balls Of Fire
+A3 It'll Be Me(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBE27A6A2DED1915CCF33A93F067E2CA235F426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657298   (193101) от 02.09.2023
+
+Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ring of Fire — американская неоклассическая/прогрессивная/пауэр-метал группа из Чула-Виста, Калифорния, образованная в 2000 году.2001 - The Oracle
+2002 - Dreamtower
+2004 - Lapse Of Reality
+2014 - Battle Of LeningradЖанр: Progressive/Power MetalПродолжительность: 05:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524571   (193069) от 29.10.2022
+
+A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Synth-pop, Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_193069.jpg" />
+</div>
+
+
+###  Подробнее
+
+A-ha  -  норвежская музыкальная группа, созданная в 1982 году в Осло и работающая в стиле электро-поп, появившемся на излёте «новой волны». Музыке a-ha присущи графичный, холодноватый («скандинавский») стиль, синтезаторно-гитарное звучание, выразительная балладная мелодика.1985 - Hunting High And Low
+1986 - Scoundrel Days
+1988 - Stay On These RoadsЖанр: Synth-pop, Pop-RockПродолжительность: 15:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6E87A8C13DF60FD4F9A6F402FE1684CDF4C819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587390   (192877) от 30.10.2022
+
+Tankard - Studio Albums (19 releases) (1986 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tankard — немецкая трэш-метал-группа из Франкфурта, основанная в 1982 году. Начиная со своего первого альбома, группа не изменяла взятому в самом начале направлению — создавать быстрые метал-песни, прославляющие алкоголь. В связи с этим получило распространённое мнение, что они изобрели жанр «алкоголик-метал». Сами себя Tankard называют «королями пива». Наряду с (   Читать дальше...   )1986 - Zombie Attack
+1987 - Chemical Invasion
+1988 - The Morning After
+1990 - The Meaning Of LifeЖанр: Thrash MetalПродолжительность: 14:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9EFD565F40230DE56F8740557B5F0D513260820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657365   (192771) от 03.09.2023
 
 Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Love [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Easy Listening>
@@ -601,151 +745,6 @@ B1 Y.M.C.A.(   Читать дальше...   )Жанр: Funk, SoulПродол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DCC63DF0768043A9CFC2C9264393260FE0CED17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659500   (190207) от 11.09.2023
-
-Fixation - More Subtle Than Death (2023) [FLAC 24/48|WEB-DL|tracks] <Metalcore, Stadium Rock and Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impending Fallout [00:01:33]
-02. More Alive [00:03:44]
-03. Stay Awake [00:04:24]
-04. Flat Earth [00:04:47](   Читать дальше...   )Жанр: Metalcore, Stadium Rock and MetalПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251BC59DAA43756111174EDF28FE8AC785338322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659476   (190186) от 11.09.2023
-
-Allison Russell - The Returner (2023) [FLAC 24/48|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Springtime (00:04:11)
-02 - The Returner (00:03:50)
-03 - All Without Within (00:03:12)
-04 - Demons (00:04:29)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F4CE31E2A8D735DA04F6B6EAD5405E6C5B2F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659530   (190165) от 11.09.2023
-
-Super Furry Animals - Phantom Power (2003) (2023 Remaster) BMG Rights Management (UK) Limited [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternativ und Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190165.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Hello Sunshine (2023 Remaster) 03:34
-2 Liberty Belle (2023 Remaster) 02:57
-3 Golden Retriever (2023 Remaster) 02:27
-4 Sex, War & Robots (2023 Remaster) 03:49(   Читать дальше...   )Жанр: Alternativ und IndieПродолжительность: 03:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49074308C1ECEA2FD3F4790859E66D2C3837F4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659458   (190121) от 11.09.2023
-
-Jerry Lee Lewis - Killer In Stereo: Good Rockin' Tonight (1969) (Remastered 2023) Sun Label Group, LLC [FLAC 24/96|WEB-DL|tracks] <Classic Rock, Rock'N'Roll>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Golly Miss Molly (Remastered 2023) [00:02:18]
-02. High Powered Woman (Alternate / Remastered 2023) [00:02:01]
-03. Be Bop A Lula (Remastered 2023) [00:02:26]
-04. C.C. Rider (Remastered 2023) [00:02:23](   Читать дальше...   )Жанр: Classic Rock, Rock'N'RollПродолжительность: 00:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52E08BCC090B639AB488A8D543FF7D8D568FEFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659463   (190118) от 11.09.2023
-
-James Blake - Playing Robots Into Heaven (2023) [FLAC 24/96|WEB-DL|tracks] <Electronic, Pop, Leftfield, Soul, Experemental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asking To Break (2:53)
-03. Tell Me (5:00)
-04. Fall Back (4:01)
-05. He's Been Wonderful (3:21)(   Читать дальше...   )Жанр: Electronic, Pop, Leftfield, Soul, ExperementalПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7AAD44A90FB74D507FF8B913E221D2321D3453
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1001708   (850560) от 30.03.2016
+
+VA - Spring Break (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dirty Disco Feat. Debby Holiday-Was That All It Was (Wayne G & Porl Young Remix) 07:48
+02 R3hab & Headhunterz-Won't Stop Rocking (Extended Mix) 04:08
+03 Housecrusherzzz-Beast (Radio Edit) 02:56
+04 Env Feat. Teresa Furtado-I'll Be Ok (Original Mix) 03:07(   Читать дальше...   )Жанр: HouseПродолжительность: 08:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328EA08D47047DB81CA9278370E244F7AB13D849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 770598   (850541) от 25.03.2014
 
 VA - Exclusive DJ Pack (03.01.2014) [MP3|320 кб/с]<Dance, Nu Disco, House, Techno, Trance, Breaks, Minimal, Chill, Other>
@@ -713,35 +742,6 @@ VA - Девочки танцуют 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76145F8AC300F47010988DA02CBEFDB2D13D68FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378671   (844804) от 26.04.2020
-
-VA - Hard Fusion: Hardstyle Music For Sport (2020) [MP3|320 Kbps] <Hardstyle, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844804.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Actek - Carsten Stahl
-002. Access One - Equalize
-003. Sneith - Beg
-004. Alphatech - Don't Forget(   Читать дальше...   )Жанр: Hardstyle, Dance, ElectroПродолжительность: 07:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8A4EBD8A50D459D25641E766A48CE046220B21
 ```
 
 https://mybot314.ru/tekegram_catalog/

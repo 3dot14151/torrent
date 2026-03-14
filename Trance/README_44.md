@@ -1,3 +1,148 @@
+###  Публикация: 1629739   (241497) от 28.04.2023
+
+VA - Uplifting Only Top 15: April 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SounEmot - Nuestra Promesa De Amor (Intro Mix) [9:04]
+02. Alternate High & Lyd14 - You're A Star (Extended Mix) [6:57]
+03. Dmitriy Kuznetsov & Johannes Fischer - Watching The Waves (Extended Mix) [6:31]
+04. Sandro Mireno & Ria Joyse - Winter In Your Heart (Extended Dub) [6:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1FF54E0C4BB355C6327A678ABE959EC3BF7506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618187   (241367) от 12.03.2023
+
+VA - Black Hole Trance Music 03-23 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Connelly & Christina Novelli - Black Hole (Giuseppe Ottaviani Extended Remix) (06:12)
+02. Somna & NASH - Your Gravity (Extended Mix) (05:21)
+03. JES - You and Me Belong (ReOrder Extended Remix) (05:59)
+04. WHITEOUT, Norni & Malene - Cry (Extended Mix) (06:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEBDAEF7EA187EE6B68D9949CE4D100F37ED951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631338   (241015) от 05.05.2023
+
+VA - Keep It Trance Vol. 11 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. #LoopMonkeys - The Smell (Original Mix) [7:46]
+02. 06R - One Night Snow (Original Mix) [7:04]
+03. 10Stage - My Heart & Soul (Cold Rush Remix) [7:45]
+04. 13 Region - Second Impulse (Original Mix) [6:51](   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C826A716BC147B9878327695CD7A1C9D549138F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619944   (240961) от 18.03.2023
+
+VA - Trance On The Beach 2023 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vicente Panach - Strobe (Original Mix) [6:36]
+02. MUTNT - Only You (Extended Mix) [6:09]
+03. Alessandro Conti - Unearthed (Original Mix) [6:45]
+04. Alex Al Onions - Those In Need Of Help (Extended Mix) [8:40](   Читать дальше...   )Жанр: TranceПродолжительность: 03:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D42282830E46BD77BCE476A40A16C6E17C4D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620091   (240936) от 18.03.2023
+
+VA - Spirit of Trance, Vol. 1 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniele Filaretti - Gunwharf Quays (Original Mix) (06:31)
+02. Veizo - Bloom for You (Original Mix) (08:53)
+03. Sothzanne String - The Day You Left (Original Mix) (08:15)
+04. Ocoro - Jikimi (Original Mix) (08:44)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1553A3FFDEC81871B87241BC854DFE91ACF059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626353   (240789) от 14.04.2023
 
 VA - Black Hole Trance Music 04-23 (2023) [MP3|320 Kbps] <Trance>
@@ -600,151 +745,6 @@ VA - Trance Dance (2023) [MP3|320 Kbps] <Trance, Progressive, Breaks, Melodic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57BC81A89FB259DC1F83637C91A226D84BB43F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635809   (235912) от 27.05.2023
-
-VA - Infrasonic Spring Selection (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caleb Golston - The End Of Something (Extended Mix) (06:05)
-02. Ultimate - Stages (Extended Mix) (07:19)
-03. Pulse & Sphere - Heavy Rain (Original Mix) (05:21)
-04. Kiran M Sajeev - After Ibiza (Extended Mix) (06:48)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694939C2255942661A0C6F98CF7A2AB808FC7650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635928   (235860) от 27.05.2023
-
-VA - Trance Anthems Vol. 20 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Kearney & Karney - Compromise (Original Mix) [7:09]
-02. Gabriel Angio - Guitar Of The Universe (Original Mix) [7:25]
-03. Lost House Rhythms & Falcos Deejay - Runnin' (Trance Edit) [3:25]
-04. Drival - The Awakening (Extended Mix) [7:05](   Читать дальше...   )Жанр: TranceПродолжительность: 02:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFEDE17FC95AF8CA7C4298FBC97C8A6D6CA62776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632409   (235489) от 10.05.2023
-
-VA - Trance 2023 Vol. 4 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suncatcher & Exolight feat. Maria Nayler - Reunited In One Flame (Original Mix) (4:24)
-02. Alan Morris & Elixus - Come With Me (Original Mix) (3:28)
-03. Stowers & Cooper feat. That Girl - Us Against The World (Original Mix) (3:33)
-04. The Doppler Effect & Carol Lee - Beauty Hides In The Deep (James Dymond Remix) (4:15)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F3B292EFA80C023A5E0C8DFE64B013A1FC2273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642414   (235458) от 27.06.2023
-
-VA - Levitated - Emotional Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Seabra - Light (Extended Mix) [6:14]
-02. New World - True Nature (Club Mix) [6:02]
-03. Snowflakes - Spirits Of The Forest (Extended Mix) [9:00]
-04. David Surok - Join My Galaxy (Extended Mix) [6:45](   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530D8D60DADE67E3E66069D401AAB0FC5E572CE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633079   (234556) от 14.05.2023
-
-VA - Black Hole Trance Music 05-23 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emma Hewitt & LTN - WARRIOR (Extended Sunset Mix) [5:39]
-02. Solarstone - Vision (Extended Mix) [7:51]
-03. HALIENE - Reach Across The Sky (Ben Gold Extended Remix) [8:55]
-04. Markus Schulz & Paul Oakenfold - Pendulum (Extended Mix) [6:14](   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:001B598120ACAE1F376E8B7B99601B53C9CD4209
 ```
 
 https://mybot314.ru/tekegram_catalog/

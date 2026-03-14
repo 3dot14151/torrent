@@ -1,3 +1,29 @@
+###  Публикация: 1322939   (441818) от 01.09.2019
+
+Motion Array - Corporate Slidehow - 281744 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классически анимированный шаблон After Effects с простой текстовой анимацией и переходами... Дерзайте!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D18A3E3440F2BCABAF4F04BFC7FA8479C924C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062513   (441410) от 13.10.2016
 
 Проекты - Motion Array - Dynamic Media Opener - 17360 [AEP]
@@ -649,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CC94A50B09D4171F6F6C23072AC184598EFD1EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947306   (419909) от 16.10.2015
-
-Проекты - VideoHive - Platform - Corporate Video Package [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо-видео.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E85CCCB51879AD8B92EEE9B792A1445497F06A
 ```
 
 https://mybot314.ru/tekegram_catalog/

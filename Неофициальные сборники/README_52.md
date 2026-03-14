@@ -1,3 +1,102 @@
+###  Публикация: 614245   (981603) от 05.02.2013
+
+VA - Private Room- the Winter Lounge Session (2013) [MP3|320 кб/с]<Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People Watching - Michael E
+02. Free Ride - Peter Pearson
+03. The Observer - Northbound
+04. Pacifica - Euphonic Traveller
+05. The Big Greec - Leon Ard
+06. Betrayed (The Day After) - Simon Le Grec
+07. Black & White - Man In A Room
+08. Temple Air - Lemongrass
+09. Naked Soul - Syusi & Lilli
+10. Serve Chilled - Peter PearsonЖанр: Chillout, LoungeПродолжительность: 02:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24734D633F8CBB3E0007CC4B1ECF9F42E22CC6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613931   (981251) от 05.02.2013
+
+VA - Gold Instrumental Songs (2013) [MP3|256 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francis Moore - Ruby Tuesday
+02. Billy Mclaughlin & Dirk Freymuth - Tsavo
+03. Frank Pourcel - Angie
+04. Secret Service - Aux Deux Maqotos
+05. James Last - Rosita
+06. Jan Morks - You Don't Know How Much You Can Suffer
+07. Mads Haaber - Kissing A Fool
+08. Eddy Calvert - Lonelyness
+09. Peter Weekers - Wish You Were Here
+10. Mark Show - The X-Files (Main Title)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 06:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F80D6E7F3F1CFD5A4CFDA724A978D912A6C54AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355772   (981096) от 28.01.2020
+
+VA - не Громкие новинки недели 53 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981096.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.2VINA - Не Вариант (2:28)
+2.Aquaneon - Магия (3:11)
+3.Artem Smile & Emmanuil - Лайк Тебе (1:51)
+4.Chernika - Небо Не Предел (3:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF906B61475828AD2C64AF81D749446610541B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614591   (981013) от 05.02.2013
 
 Soft Jazz - Soft Jazz Sexy Music Instrumental Relaxation Saxophone Music (2013) [MP3|320 кб/с]<Jazz>
@@ -664,93 +763,6 @@ VA - Dance Empire 3 (2016) [MP3|320 кб/с] <Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AA19932D4C5BB53E583C406204488316CA80840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973491   (980246) от 08.01.2016
-
-VA - Extra Lounge (New year edition) (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LTJ Xperience - I'll Never Change Up on You (06:47)
-02. Nitin Sawhney - Fires (03:59)
-03. Gomer Edwin Evans - A Time to Chill (06:05)
-04. Luis Hermandez - Aura (04:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA749C8A922A7398AF31738D4CDEB4DA97E9C89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972819   (980174) от 08.01.2016
-
-VA - (OST) Люди в Черном / Men in Black (1997) [MP3|320 кб/с]
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M.I.B. Main Theme
-02. M.I.B. Closing Theme
-03. Edgar's Truck - A New Man
-04. D's Memories - Chase(   Читать дальше...   )Жанр: OST-ScoreПродолжительность: 01:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49DA9D24A34559B8BFE3FEE3AE34E3E95567A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973018   (980161) от 08.01.2016
-
-VA - Подарочный Шансон (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пятилетка - Далеко Далеко
-02. Сергей Кама - Копи Копеечку
-03. Сергей Гвоздика - Зима И Весна
-04. Эльдар Артист И Мемфис - Старая Мать(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF6FAE429DCAADEA330C616E7A8F21A40214C89
 ```
 
 https://mybot314.ru/tekegram_catalog/

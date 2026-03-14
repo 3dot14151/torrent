@@ -1,3 +1,32 @@
+###  Публикация: 1224781   (663765) от 12.05.2018
+
+Tiger B. Smith - We're The Tiger Bunch (1974) Reissue, 1993, Bellaphon [MP3|320 Kbps] <Hard Rock, Krautrock, Prog-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663765.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. She's All Right
+2. Old Man
+3. Rock My Soul
+4. Anna Sheffield(   Читать дальше...   )Жанр: Hard Rock, Krautrock, Prog-RockПродолжительность: 00:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24FA2ABEB9D252F80B0F884BD28623BE7A5EF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138168   (662994) от 30.05.2017
 
 AC/DC - Californication (Live) (2017) [MP3|320 Kbps] <Hard Rock>
@@ -714,35 +743,6 @@ House Of Lords - Indestructible (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:376AF05AEA90397543472D36A999C56143449A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905386   (651595) от 05.06.2015
-
-714 - American Tragic (2012) [MP3|320 кб/с]<Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Tragic
-02. Melt the Glue
-03. Kiss Me Now
-04. Beautiful Tonite(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0401DAA31DC5181D6F57E4D331BB9537F8A833E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1758757   (38283) от 04.11.2024
+
+Ray Anthony - Capitol Collectors Series (1949 - 1962) 1991, Capitol Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dreamer’s Holiday [3:11]
+02. Sentimental Me [2:51]
+03. Count Every Star [3:03]
+04. The Man With the Horn [2:31](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE107036238ECB6638B7D97C44068C0EF682B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758759   (38280) от 04.11.2024
+
+Eric Dolphy - Out To Lunch! (1964) 1985, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hat and Beard [8:28]
+02. Something Sweet, Something Tender [6:06]
+03. Gazzelloni [7:25]
+04. Out to Lunch [12:10](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Avant-Garde JazzПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964FF8348AC1839AB1F60E6CCFA5047C2B4F1C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758988   (38190) от 05.11.2024
+
+VA - Funk Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venus Ship - Tupac Amaru (4:32)
+02. Lo Greco Bros - Love and Emotion (Instrumental Funk) (6:09)
+03. The Smoke Orchestra - Funky Generation (3:17)
+04. Kaigo - Ain't Gonna (Instrumental Funk) (3:29)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EF830C4182B512E2D9820D2AA915BB18EB6B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758919   (38174) от 05.11.2024
 
 Lester Young - The Complete Aladdin Recordings (1942 - 1947) 2CD, 1995, Blue Note [APE|Lossless|image + .cue] <Swing, Mainstream Jazz>
@@ -658,93 +745,6 @@ Tal Farlow - This Is Tal Farlow (1958) 1997, Verve Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C93148FB287F06C535D988539FA90D4547F33D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765034   (34588) от 10.12.2024
-
-The Jimmy Bruno Group - Midnight Blue (2001) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Love [4:46]
-02. Funk 'n Benny [7:38]
-03. Hypertension [4:49]
-04. Shades of Grey [4:17](   Читать дальше...   )Жанр: Hard Bop, Jazz Fusion, Guitar JazzПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E187FF37FA3B3ED910DCD5764861F28B6B392EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765438   (34413) от 12.12.2024
-
-Sexual Music Collection, Jazz Music Lovers Club - Provocative Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel (3:55)
-02. Open The Heart (3:00)
-03. Lover and Soul Mate (2:50)
-04. Life del Mar (3:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CECF512F9673E4394681D15704AC985C06685F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766387   (33764) от 18.12.2024
-
-Dakota Staton - Five Classic Albums (1957 - 1959) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Beats Like A Hammer [2:14]
-02. The Crazy Things We Do [2:54]
-03. Some Days It's Monday [3:09]
-04. The Song Is Ended [2:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0B6F476CB3F6B48A2ABC50BCE77F3F27C3AD2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1773180   (71724) от 14.01.2025
+
+Lowell Hopper - Never Too Late (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Breath of Fresh Air (4:32)
+02.  Magic Lady (5:02)
+03.  Just As You Are (3:39)
+04.  Every Now and Then (4:26)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CB3CABABA5E7E8AFE8E6939926CBDE21C6FA15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773371   (71715) от 15.01.2025
+
+Enrico Pieranunzi Jazz Ensemble - Time's Passage (2020) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time's Passage [5:23]
+02. Valse pour Apollinaire [4:17]
+03. Biff [4:36]
+04. In the Wee Small Hours of the Morning (Quartet Version) [5:08](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8411225E6CF4B40839385ABCADDB2765943E33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773508   (71692) от 16.01.2025
+
+Teddy Wilson - Just A Mood (1934 - 1946) 2CD, 2001, History [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody Loves Me [2:53]
+02. I'm Painting The Town Red [2:58]
+03. All My Life [3:11]
+04. Why Do I Lie To Myself About You? [3:03](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A092BC2627741081FFD180D8D01D4ECF6DBC74A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773708   (71675) от 17.01.2025
 
 Enrico Pieranunzi, Enzo Pietropaoli, Roberto Gatto - Moon Pie (1988) Divox [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
@@ -658,93 +745,6 @@ Frank Morgan & George Cables - Montreal Memories (1989) 2018, HighNote Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3206EDE920C4E0E5D983B8B7D664F497493FA4FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776492   (71219) от 01.02.2025
-
-The George Gruntz Concert Jazz Band '83 - Theatre (1984) ECM Records [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Chancho [15:21]
-02. In The Tradition Of Switzerland [9:24]
-03. No One Can Explain It [6:30]
-04. The Holy Grail Of Jazz And Joy [25:21]Жанр: Big Band, Post-BopПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768648D4857C3D201579E3BC0AF82000C95AB338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776845   (71203) от 02.02.2025
-
-VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. II (2023) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Melodies - Enigma (6:12)
-02. Dark Jazz Cafe Assembly - Out of the Future (3:06)
-03. Dark Jazz Cafe Assembly - Do You Remember This Voice (4:21)
-04. NEONNOONE - Zen Noir (6:38)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Jazz NoirПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7B8FC0C882034D12DD0AE9171AF61983871E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776846   (71197) от 02.02.2025
-
-VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. I (2023) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flooded Fields Quartet feat Manet- Step Down to the Water (4:14)
-02. Six Fingered People - Jamaica (7:05)
-03. Apostrophe - Black Rain (5:37)
-04. Satvrne - Absinthe (6:39)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Jazz NoirПродолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35BA7105BDEA28D4AB86287AE4F54988F0B9A12
 ```
 
 https://mybot314.ru/tekegram_catalog/

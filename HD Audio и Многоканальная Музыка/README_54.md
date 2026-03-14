@@ -1,3 +1,148 @@
+###  Публикация: 1652456   (216793) от 12.08.2023
+
+VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216793.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Маут И Мак Нийл - Скажи Мне Что-Нибудь • Кажи Ми Нещо
+А2 Лефт Сайд - Добро Пожаловать Домой • Добре Дошла У Дома
+А3 Кристоф - Рука За Руку • Ръка За Ръка
+А4 Ню Сийкърс - Никогда Не Кончится Песня Любви • Никога Няма Да Свърши Песента На Любовта(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, DiscoПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649764   (216114) от 13.08.2023
+
+Orphaned Land (& Amaseffer) - Studio Albums (10 releases) (1993-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death/Middle Eastern Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orphaned Land — израильская рок-группа, объединяющая в своем творчестве элементы европейского метала и народной музыки Ближнего Востока.1993 - The Beloved's Cry
+1994 - Sahara
+1996 - El Norra Alila
+2004 - MaboolЖанр: Doom/Death/Middle Eastern Folk MetalПродолжительность: 11:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFCC2A565AE0D72AEAF067B350E52991FB88680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586355   (214753) от 28.10.2022
+
+Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Never Know
+02. If Only
+03. This Time Around
+04. Runaway Run(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987664214E6F11079542D287358ED422A18C20BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586124   (214672) от 28.10.2022
+
+Frankie Goes To Hollywood - Liverpool (1986/1988) Reissue [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Rock, Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214672.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Warriors Of The Wasteland
+A2 Rage Hard
+A3 Kill The Pain
+A4 Maximum Joy(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-popПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438AFE97694D907AB666D22E3B16F6A61A682133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586013   (214597) от 28.10.2022
+
+Bullet For My Valentine - Studio Albums (7 releases) (2006 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Metalcore, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bullet For My Valentine — британская металкор-группа. Была сформирована в 1998 году в городе Бридженд под названием Jeff Killed John и состояла из Мэттью Така (вокал, ритм-гитара), Майкла Пэджета (соло-гитара), Ника Крэндли (бас-гитара) и Майкла Томаса (ударные). Первоначально её участники исполняли каверы на песни Metallica и Nirvana, параллельно занимаясь написанием (   Читать дальше...   )2006 - The Poison
+2008 - Scream Aim Fire
+2010 - Fever
+2013 - Temper TemperЖанр: Metalcore, Heavy MetalПродолжительность: 08:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466E7FA09FB358B7CB319DDB9C206D2F8F126F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653322   (214374) от 17.08.2023
 
 Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphonic Rock>
@@ -598,148 +743,6 @@ Bathory — шведская группа, внёсшая значительны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:407B5A3C6067B04B9BFBA040B26DADB14FCF09C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585962   (211272) от 27.10.2022
-
-Lenny Kravitz - Greatest Hits (2000) Reissue, 2022, Virgin;Universal Music Hong Kong [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Gonna Go My Way 3:31
-02. Fly Away 3:42
-03. Rock And Roll Is Dead 3:24
-04. Again 3:49(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFCE7AC8A2DA71D31BB7019BF279EC650370079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301237   (211271) от 03.08.2022
-
-Григорий Лепс - Баллада о борьбе (2008) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Баллада о борьбе
-02. Падают листья
-03. Шелест(   Читать дальше...   )Жанр: Pop Rock, ChansonПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D080BC1187730DE3931B2E38C72E2E47942B736B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640518   (211108) от 18.06.2023
-
-Alice Cooper - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Poison
-02. Hey Stupid
-03. Feed My Frankenstein(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601748   (211014) от 02.01.2023
-
-Gloria Estefan - Greatest Hits (1992) 2002 remix [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Latin, Pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211014.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1984 году Глория Эстефан стала солисткой группы Miami Sound Machine. К 1987 году, после того, как их первый альбом в США стал хитовым, они стали называться Gloria Estefan и Miami Sound Machine, а к 1989 году, после еще большего успеха, все это стало просто Gloria Estefan. Сборник хитов охватывает период с 1985 по 1992 год и включает в себя большинство композиций, (   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703EAE6D0E8F69C68F70A2DAEB72042F532148DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641447   (210780) от 22.06.2023
-
-А. Журбин, Ю. Димитрин - Орфей и Эвридика. Зонг-опера в 2х частях (1980) Box Set, 2LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock-Opera, Modern>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210780.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Орфей полюбил Эвридику…
-A2 Первый дуэт Орфея и Эвридики и песня Орфея («Когда поет Орфей»)
-A3 Хор вестников («Близится, близится…»)
-A4 Сцена прощания(   Читать дальше...   )Жанр: Rock-Opera, ModernПродолжительность: 01:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFF4AC77BF50A3704E82B84B4F0FB9D6C5FCD82
 ```
 
 https://mybot314.ru/tekegram_catalog/

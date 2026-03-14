@@ -1,3 +1,32 @@
+###  Публикация: 1123222   (792369) от 07.04.2017
+
+VA - The Best World Ballads - 32 (2017) [MP3|192-320 Kbps] <Pop, Rock, Blues, Rap, R'n'B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 The Cat Empire-The Lost Song 3:20
+002 Emeli Sande-Every Single Little Piece 4:03
+003 The Rideouts-Put The Blame On Me 4:08
+004 Lorde-Tennis Court 3:18(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 16:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BE2C6EBF4B9ECDDC024B9D8C075B70E33C89CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123429   (792338) от 07.04.2017
 
 VA - Hits of My Soul Vol. 25 (2017) [MP3|320 кб/с]<Trailer Music>
@@ -716,35 +745,6 @@ VA - Club House Hits Euro EDM (2018) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE91EA31185B527240658A6F622496A8CBD066DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275287   (790469) от 11.01.2019
-
-VA - Radio DFM: D-Chart Итоговый 2018 Top 50 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Dua Lipa - One Kiss 3:35
-02. Dynoro & Gigi D'Agostino - In My Mind 3:05
-03. Sofi Tukker - Batshit 3:23
-04. Avicii feat. Rita Ora - Lonely Together 3:02(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 02:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C12B9B92BECF18EB563EA79A65D6819BEFA040C
 ```
 
 https://mybot314.ru/tekegram_catalog/

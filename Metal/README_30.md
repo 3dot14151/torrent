@@ -1,3 +1,32 @@
+###  Публикация: 1204919   (784370) от 07.02.2018
+
+Iahsari - Shrine Of The Ancient Gods (2018) [MP3|320 Kbps] <Symphonic Metal, Folk Metal, Ethnic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784370.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Daisi (Intro)
+2. Unbowed (Blood Of Colchis)
+3. Sirenum Scopuli
+4. Shatilis Asulo (Maiden Of Shatili)(   Читать дальше...   )Жанр: Symphonic Metal, Folk Metal, EthnicПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E44375A50EF7B884BCDAA4563C458B1356090D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389564   (784284) от 11.06.2020
 
 Caligula's Horse - Rise Radiant (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
@@ -722,35 +751,6 @@ Myra - Discography (2006-2018) [MP3|192-320 кб/с]<Metalcore, Hardcore, Thrash
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17043C3F8C69E4037B198C1DD30786203D80BC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212118   (776418) от 10.03.2018
-
-Drudkh - Їм часто сниться капіж (They Often See Dreams About the Spring) (2018) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Накрите небо бурим дахом (09:54)
-02. У дахів іржавім колоссю... (08:44)
-03. Вечірній сумерк окутує кімнату (09:29)
-04. За зорею, що стрілою сяє (06:46)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99F919E9ECD48EF71FBCCAAFC5F5FE42BA6A577
 ```
 
 https://mybot314.ru/tekegram_catalog/

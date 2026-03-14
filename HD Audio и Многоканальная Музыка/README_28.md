@@ -1,3 +1,148 @@
+###  Публикация: 1039541   (594676) от 02.08.2016
+
+VA - Famous Jazz Pianists/Знаменити Джаз Пианисти (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594676.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bill Evans - Време За Любов (Time For Love)
+A2 Art Tatum - Блус В Сърцето Ми (Blues In My Heart)
+A3 Bill Evans - Среднощно Настроение (Midnight Mood)
+A4 Art Tatum - Хумореска (Humoresque)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABD8BC7D5A01F33BC91F52D3EAD1DEA6C0C8E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210967   (594606) от 05.05.2022
+
+Bing Crosby (Бинг Кросби) - Play A Simple Melody (1985) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я напишу письмо
+02. Играйте простую мелодию
+03. Однажды летним днем
+(И. Берлин)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F86F31BAD4CA4FF98182D16A2AAECF9E6E33FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039533   (594577) от 02.08.2016
+
+VA - Famous Jazz Singers/Знаменитые Джазовые Вокалистки (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Soul-Jazz, Smooth Jazz, Jazz-Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594577.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dinah Washington - Willow, Weep For Me
+A2 Ella Fitzgerald - April In Paris
+A3 Nancy Wilson - The Boy From Ipanema
+A4 Carmen McRae - Exactly Like You(   Читать дальше...   )Жанр: Soul-Jazz, Smooth Jazz, Jazz-FunkПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC26ADCA15833D7CA36C185E8FAB32048C1FE669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039535   (594568) от 02.08.2016
+
+VA - Famous Jazz Singers/Знаменитые Джазовые Вокалисты (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Smooth Jazz, Jazz-Funk, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594568.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Louis Armstrong - I Get A Kick Out Of You
+A2 Nat King Cole - Stardust
+A3 Frank Sinatra - I've Got You Under My Skin
+A4 Tony Bennett - I've Grown Accustomed To Her Face(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, SwingПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9C3382778439949BC6EDAB0034DD6BE31F43BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039556   (594516) от 02.08.2016
+
+Московский Диксиленд "Капелла Дикси" (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Dixieland>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олимпийский Сувенир
+02. Негритянская Песня
+03. Две Забытые Мелодии
+04. В Раздумье(   Читать дальше...   )Жанр: Jazz, DixielandПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C29062D77F0B1F8A3577109D6BD00F8AF65079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039521   (594514) от 02.08.2016
 
 Арсенал - Своими Руками (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
@@ -605,151 +750,6 @@ Sandra - Everlasting Love (1988) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synthpop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552995   (584759) от 23.05.2022
-
-Boston - Don't Look Back (1978) Santa Maria Press [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Prog Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584759.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Don't Look Back
-A2 The Journey
-A3 It's Easy
-A4 A Man I'll Never Be(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A87CEE71C750B5A7E2BE0A764DDE2466524F633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041013   (584456) от 07.08.2016
-
-Ray Charles - Selected Songs (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Funk, Soul,  Rhythm & Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584456.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Can't Stop Loving You
-A2 Georgia On My Mind
-A3 Hit The Road Jack
-A4 Take These Chains From My Heart(   Читать дальше...   )Жанр: Funk, Soul,  Rhythm & BluesПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72222CA9D886E21DFC7CEDA0568C75FE740FF782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041019   (584429) от 07.08.2016
-
-Группа Стаса Намина - Сюрприз Для Мсье Леграна (1983) Repress 1984 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584429.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Подводный Замок
-А2 Лето Пикассо
-А3 Друг Покинул Этот Мир
-А4 Парафраз На Темы Песен(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04180D0FFEEB4A4F830CFF26E91B74A9F63BA69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040839   (584266) от 07.08.2016
-
-C.C. Catch - Diamonds: Her Greatest Hits (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Euro Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584266.jpg" />
-</div>
-
-
-###  Подробнее
-
-sideA
-A1 House Of Mystic Lights (Long Version - Dance Mix)
-A2 Are You Man Enough
-A3 'Cause You Are Young(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74EE639E50570487C1163D810A3F99B680BA2D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041132   (584154) от 07.08.2016
-
-Supertramp - Breakfast in America (1979) Reissue, 2013, A&M [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Art Rock, Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Breakfast in America — шестой студийный альбомы группы Supertramp, выпущенный в 1979 году. Альбом стал самым успешным у Supertramp - всего в мире было продано свыше 20 миллионов его копий и самым успешным английским альбомом во Франции.01. Gone hollywood
-02. The logical song
-03. Goodbye stranger
-04. Breakfast in america(   Читать дальше...   )Жанр: Art Rock, Pop Rock, Classic RockПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C92B31BF8648921209C5D98214A4F0336E0BA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

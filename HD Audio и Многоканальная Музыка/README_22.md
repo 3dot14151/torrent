@@ -1,3 +1,143 @@
+###  Публикация: 1137878   (665359) от 28.05.2017
+
+VA (Юрий Антонов, Сергей Беликов, Ольга Зарубина и Александр Серов) - На улице Каштановой (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665359.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Юрий Антонов - На Улице Каштановой
+A2 Сергей Беликов - Сон-Трава
+B Ольга Зарубина и Александр Серов - Круиз
+===============================(   Читать дальше...   )Жанр: PopПродолжительность: 00:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A85C44C9C7F51624EA6847ABD1F1DCAFD059628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137670   (665297) от 28.05.2017
+
+Иван Кучин - Судьба воровская (1997/2015) Remastered [WavPack 2.0|192/32|image +.cue|Vinyl-Rip] <Шансон>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665297.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. В таверне
+A2. Судьба воровская
+A3. Сентиментальный детектив - 2
+A4. Таволга(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B1FE29CED20381AFFEF8D247E299C071FB8D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138118   (664319) от 29.05.2017
+
+Orchestra ''Electrecord'' (Romania) - Muzica De Dans: Twist and Swing (1966) [FLAC 1.0|96/24|tracks+.cue|Vinyl-Rip] <Twist, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664319.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	What'd I Say (twist)
+Written-By – Ray Charles
+A2	Copley Square (swing)
+Written-By – Marshall Brown(   Читать дальше...   )Жанр: Twist, SwingПродолжительность: 00:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A9FA385311AE692CA9F1398CB1E47541B02E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512571   (663315) от 19.06.2012
+
+Mylene Farmer - Vinyl Discography 9LP (2009) [FLAC 2.0 24/96|image+cue (Vinyl rip)]<Pop, Electronic, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Electronic, RockФормат: Vinyl  12”Продолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3307AD7B7EC765685D70B1B8349F938A9D834552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138474   (663044) от 30.05.2017
+
+KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Hard Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663044.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Was Made For Lovin' You (7:54)
+2. Charisma (4:26)Жанр: Hard Rock, GlamПродолжительность: 00:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4262D28043174089C8BAF420107D31F23E73D08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 341585   (661155) от 25.05.2011
 
 ForSenses II - Timber Lounge... (2011) [DTS-ES  6.1 44.1/24|*.bin+*.cue (Blu-ray)] <Lounge, Relax>
@@ -609,151 +749,6 @@ The Rolling Stones - Metamorphosis (1975, 2002 Remaster) [DSD 2.0 1/2,8224 MHz |
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF778A404F00542887DBDF54E3751A79E5155D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517248   (642587) от 03.07.2012
-
-Uriah Heep - Look at Yourself (1971, 2011 Remaster) [DSD 2.0 1/2,8224 MHz | SACD-R]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642587.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.    Look At Yourself    05:10
-2.    I Wanna Be Free    04:00
-3.    July Morning    10:32
-4.    Tears In My Eyes    05:00
-5.    Shadows Of Grief    08:40
-6.    What Should Be Done    04:14
-7.    Love Machine    03:37Жанр: RockПродолжительность: 41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6806EC8E5822C93A05B4328C5FA8DEE2ABE8800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 680855   (639672) от 18.07.2013
-
-Thomas D. A. Tellefsen: Complete Works - 2L Audiophile Reference Recordings (2010-2011) [PCM 5.1, 2.0, 192/24, DTS HD MA 5.1, 96/24|BD-Audio]  (classical music)
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639672.jpg" />
-</div>
-
-
-###  Подробнее
-
-ДИСК ДЛЯ ИСТИННЫХ ГУРМАНОВ ВЫСОЧАЙШЕГО КАЧЕСТВА КЛАССИЧЕСКОЙ МУЗЫКИ!Производство: 2L Audiophile Reference RecordingsЖанр: classical musicПродолжительность: 03:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A59F9CDC9EA7D1FB0C569E3C6C47BF0E3E5EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228179   (639015) от 30.05.2018
-
-Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Vision (5:11)
-02. A Kind Of Magic (4:24)
-03. One Year Of Love (4:29)
-04. Pain Is So Close To Pleasure (4:23)(   Читать дальше...   )Производство: EMI Records - EU 3509Жанр: RockПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964A0913C93D40DAAAE7739E56ED680BF285240E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801018   (638409) от 30.06.2014
-
-Quiet Riot - QR III (1986)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638409.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Main Attraction (4:44)
-A2. The Wild And The Young (3:40)
-A3. Twilight Hotel (4:37)
-A4. Down And Dirty (3:17)(   Читать дальше...   )Жанр: Glam MetalПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8619B09483285023A9B4DDFAA0EB8077D2D7E125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 795044   (634547) от 02.07.2014
-
-The Who - It's Hard (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634547.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Athena (3:49)
-A2. It's Your Turn (3:41)
-A3. Cooks County (3:50)
-A4. It's Hard (3:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AC978D6E1368640A97A44485C38DC0D957C652
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1822134   (100859) от 05.10.2025
+
+Coheed And Cambria - The Father of Make Believe (2025) New Entities Edition, Virgin Music Group[FLAC|Lossless|WEB-DL|tracks] <Alternative, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterday’s Lost [00:03:24]
+02. Goodbye, Sunshine [00:04:16]
+03. Searching for Tomorrow [00:03:33]
+04. The Father of Make Believe [00:04:39](   Читать дальше...   )Жанр: Alternative, Prog RockПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6533136995172D27DF8223722EB88195F7E82F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769014   (100702) от 27.12.2024
+
+Adrian von Ziegler - Of the Old World (2024) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Albion [5:34]
+02 - The Wanderer [4:33]
+03 - Ethelborn [2:42]
+04 - Tale of the Gaels [6:42](   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE56AAFFBA20E239610FB8447A7CFEA1701E40A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479376   (87014) от 07.04.2012
+
+The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conduct (5:10)
+02. Tomorrow (3:55)
+03. Fire & Soul (4:32)
+04. Raining In My Heart (3:27)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473194   (84389) от 25.03.2012
 
 Shinedown - Amaryllis (2012) [FLAC|Lossless]<Alternative Rock, Post-Grunge>
@@ -677,93 +764,6 @@ Pretenders - The Singles (1987) [FLAC|Lossless|tracks + .cue] <Rock, New Wave, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65AAAF3480D38FC1C69AA84A2B962035848B11A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801764   (66174) от 12.06.2025
-
-The Exies - Head for the Door (2004) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Drain    [0:03:35.02]
-02. Splinter    [0:03:39.05]
-03. Ugly    [0:03:18.25]
-04. What You Deserve    [0:03:08.33](   Читать дальше...   )Жанр: Alternative Rock, GrungeПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5275267691C5FC739AF49D7311E33B7D90F114CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801762   (66170) от 12.06.2025
-
-The B-52's - Good Stuff (1992) CD, Album, Club Edition, Denon Pressing [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell It Like It T-I-Is    [0:05:13.13]
-02. Hot Pants Explosion    [0:04:55.17]
-03. Good Stuff    [0:05:58.40]
-04. Revolution Earth    [0:05:48.53](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF1EAC0F4B912D645C257D611A5E070213BE720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802578   (66031) от 18.06.2025
-
-Pretenders - The Pretenders (1979) CD, Album, Reissue 1980 [FLAC|Lossless|tracks + .cue] <Rock, New Wave, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Precious    [0:03:37.00]
-02. The Phone Call    [0:02:29.40]
-03. Up the Neck    [0:04:27.72]
-04. Tattooed Love Boys    [0:02:59.53](   Читать дальше...   )Жанр: Rock, New Wave, Pop RockПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DFD732BC970BE505F5A057B55872D2A946F4F7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

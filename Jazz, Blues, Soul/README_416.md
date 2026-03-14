@@ -1,3 +1,177 @@
+###  Публикация: 1269797   (218327) от 16.12.2018
+
+Stephane Grappelli & Barney Kessel - Limehouse Blues (1969) 1991, Black Lion [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Don't Mean A Thing (If It Ain't Got That Swing) [5:47]
+02. Out Of Nowhere [3:49]
+03. Tea For Two [5:07]
+04. Limehouse Blues [3:28](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D5C35F7A150BE3D085964C9AD4D171E50072AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269851   (218318) от 16.12.2018
+
+Bobo Stenson Trio - Contra La Indecision (2018) ECM [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cancion Contra La Indecisión (04:12)
+02. Doubt Thou The Stars (07:57)
+03. Wedding Song From Poniky (07:26)
+04. Three Shades Of A House (07:11)(   Читать дальше...   )Жанр: Contemporary Jazz, Modern CreativeПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD4AA51FE74DBA3282BBA9602C6EAFD51AB35077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269966   (218307) от 16.12.2018
+
+Eddie Daniels - Heart Of Brazil: A Tribute to Egberto Gismonti (2018) Resonance Records [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loro (Parrot) [5:08]
+02. Baiao Malandro (Badass Baiao) [5:51]
+03. Agua e Vinho (Water and Wine) [6:08]
+04. Ciranda (Folk Dance) [5:11](   Читать дальше...   )Жанр: Brazilian Jazz, Bossa NovaПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67D769A90C03C99C63C1A3A826D8110C6FB8307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269791   (218286) от 16.12.2018
+
+Cannonball Adderley - The Complete Albums Collection 1960-1962 (2016) 4CD, Enlightenment [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218286.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Chant [6:37]
+02. Lolita [7:30]
+03. Azule Serape [6:30](   Читать дальше...   )Жанр: Hard BopПродолжительность: 05:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E724544809C18DEFC00F8A1CFF535C52D666288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425926   (218230) от 22.11.2020
+
+VA - Funky Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonny Lang - Before You Hit The Ground (Album Version)
+02. Etta James - Welcome To The Jungle (Album Version)
+03. Robben Ford - Supernatural
+04. Jimmy Thackery And The Drivers - Blues for Sale(   Читать дальше...   )Жанр: BluesПродолжительность: 01:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA5B5F8425CF943946BAD7AD7B2BAFF61D39F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269840   (218207) от 16.12.2018
+
+Bob Reynolds - Quartet (2018) Bob Reynolds Music [FLAC|Lossless|WEB-DL|tracks] <Crossover Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crush
+02. Down South
+03. Hollywood Startup
+04. Sway(   Читать дальше...   )Жанр: Crossover Jazz, FusionПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D3DAC8115C69BF8EBA38302A8A275287F0D2D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586130   (218192) от 25.10.2022
 
 Michel Legrand - Six Classic Albums (1954 - 1958) 4CD, 2016, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Easy Listening, Mainstream Jazz, Instrumental Pop>
@@ -571,181 +745,6 @@ Terry Gibbs Quartet - Take It From Me (1964) Remaster, 2010, Universal[FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15AA0A4AB0B7AD090AB5AA57E92588CBFE6878CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084982   (217172) от 20.12.2016
-
-Art Farmer-Benny Golson Jazztet - Here and Now (1962) 1998 [WavPack|Lossless|image + .cue] <Hard bop, Post bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217172.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tonk (6:49)
-2. Rue Prevail (4:26)
-3. Richie's Dilemma (5:11)
-4. Whisper Not (5:21)(   Читать дальше...   )Жанр: Hard bop, Post bopПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED744BAE779DF2F9A7A3516D78E6931732D19DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652465   (217148) от 12.08.2023
-
-Russell Ballantine - Harpo's Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie Man (3:07)
-02. Walking Blues (4:12)
-03. Dust My Broom (3:38)
-04. Harpo's Jazz (8:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1B19EEE196CF96ADCDD2A22ACF0E43C6795A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586332   (217137) от 26.10.2022
-
-TT Slim - Guess Who Dropped in? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Gone (4:43)
-02. Cry to Me (4:02)
-03. I Got a Feelin' (4:52)
-04. Come as You Are (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D28FF165567D46ECC5585E2F9596D8B877D1A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652469   (217120) от 12.08.2023
-
-Sam Cole - Thoughts and Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Lights (4:14)
-02. Destiny (3:09)
-03. Wasted Time (3:10)
-04. Downtown Blues (5:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAB76AE65A94B07DF94D07CBBDB9449B105BD3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719202   (217099) от 03.12.2021
-
-B.B. King - Blues Summit (1993) [FLAC|Lossless|image + .cue]<Blues, Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blues Summit альбом Би Би Кинга, выпущенный в 1993 году на лейбле MCA. Альбом достиг пика позиции №182 на Billboard 200, и №64 на Billboard's R&B Albums chart. Альбом получил премию Грэмми в 1994 году за лучший традиционный блюзовый альбом.
-В записи альбома принимали участие бывшие одноклассники Би Би Кинга -  Robert Cray, Louis Walker, Lee Hooker. Blues Summit (   Читать дальше...   )01.The Robert Cray Band  - Playin' with my friends (with Robert Cray) (5:19)
-02.B.B. King Orchestra - Since I met you baby (with Katie Webster) (4:45)
-03.B.B. King Orchestra - I pity the fool (with Buddy Guy) (4:36)
-04.John Lee Hooker - You shook me (with John Lee Hooker) (4:59)(   Читать дальше...   )Жанр: Blues (Style: Modern Electric Blues)Продолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3E1D18F1395445E1D0F6DE56CD199BC261756D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652474   (217069) от 12.08.2023
-
-Tony Wessels and the Revolvers - Reloaded (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gonna Move Across the River (4:32)
-02. Key to the Highway (2:14)
-03. Sweet Home Blues (4:24)
-04. Walking with Jody (2:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E721C7BAF9E2E600FCD6DA93CC411EA0D827B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

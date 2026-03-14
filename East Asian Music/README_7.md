@@ -1,3 +1,162 @@
+###  Публикация: 1553385   (581885) от 26.05.2022
+
+Tears Of Tragedy - & (Acoustic) (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - クロノメトリー (00:03:56)
+02 - Spring Memory (00:05:00)
+03 - Anfillia (00:04:40)
+04 - VOICE (00:06:58)(   Читать дальше...   )Жанр: Symphonic, Melodic Power MetalПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E651A0FF3A363E3CA264A2EFB4515971420442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359956   (580802) от 07.07.2011
+
+VA - The Very Best Of Japanese Music (2004) [FLAC|Lossless]<Folk>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yamato Ensemble - Yamaji
+02. Wadaiko Matsuriza - Kabuki Gomen-Jyo!
+03. Clive Bell - Komoro Bushi
+04. Yamato Ensemble - Futatsu No Den-En-Shi I
+05. Wadaiko Matsuriza - Gaku
+06. Richard Stagg - Kumoi jishi
+07. Yamato Ensemble - Hoshun
+08. Ayako Hotta-Lister - Midare
+09. Nihon Daiko - DzaukuЖанр: FolcПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 334297   (578498) от 09.07.2011
+
+Kobukuro - 8 albums + 10 singles (2001-2011) [FLAC|Lossless]<JPop, Folk Rock>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578498.jpg" />
+</div>
+
+
+###  Подробнее
+
+albums:Жанр: JPop, Folk RockПродолжительность: 00:20:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526819   (576385) от 26.07.2012
+
+VA - The First Chemical Element (Vol. I - X) (2005-2008) [MP3|320 кб/с]<Instrumental, Ethnic>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576385.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:38) 01. Vong Xuan Phong
+(4:34) 02. Nga Hoa Xuan Thien Huu Ca Uoc Hoi
+(4:02) 03. Nguyet Luong Ha
+(3:45) 04. Linh Thoi Thap Phan
+(6:55) 05. Vo Tam Khoai Ngu
+(3:50) 06. Sometimes I Feel Like A Mother
+(4:02) 07. Luc Tu Tu
+(3:21) 08. Bot Lap Mo Tu Tieu Da Khuc
+(4:12) 09. Niem Co Huong
+(3:20) 10. On Nhu Ai Nga(   Читать дальше...   )Жанр: Instrumental, EthnicПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C034BECFB3B0A34BD4CA700EE193A38A06D2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361912   (573230) от 12.07.2011
+
+Whisper Records - 8 дисков (2001 - 2011) [FLAC|Lossless]<Neo Folk, New Age, Arrangement, Original Work>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_573230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Terra's Sigh - |from　Feadan Cridhe (2002)|
+02 枯れ葉谷のポルカ - |from　紅の天地　青の流都(Guests) (2007)|
+03 Run Through under the First Sky - |from　Skywards (2007)|
+04 Bloom Coronet - |from　Yggdrasil (2004)|
+05 夕暮れに笑顔 - |from　Wheel of Green (2006)|
+06 Yggdrasil - |from　Yggdrasil (2004)|
+07 この腕で、優しく包み込む - |from　Elements (2006)|
+08 森守の儀 - |from　Wheel of Green (2006)|
+09 Song for Tomorrow - |from　Skywards (2007)|
+10 On Board (with memories) - |from　Over S. (2010)|Жанр: Neo Folk, New Age, Arrangement, Original Work, TouhouПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529188   (564458) от 01.08.2012
 
 AAA - 15 альбомов, 35 сингла (2005-2012) [MP3|128-320 кб/с]<J-Pop, Dance>
@@ -603,151 +762,6 @@ kairo — 11 альбомов (2010-2013) Touhou Vocal /Doujin/ [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:158235C11CE01C79AD419B5A48712BD216D3B000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962478   (539618) от 30.06.2019
-
-Unknown-Dimension — 15 альбомов (2009-2019) /Doujin/ [FLAC|Lossless|tracks] <Instrumental, Orchestral Arrange>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2018.04.29 (UDOR-017) U.I. -2nd (M3-41)
-2018.10.28 (UDOR-018) Wandering in my life (M3-42)
-2019.04.28 (UDOR-019) 欠落世界 (M3-43)Тип издания: DoujinЖанр: Instrumental, Orchestral ArrangeПродолжительность: 00:09:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C697D32CE7C69904466083A36525645A358AD5DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798230   (539494) от 30.06.2019
-
-R-note — 37 альбомов (2012-2019) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Pop, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2018.12.30 (RNCD-0023) 東方空翔響 (C95)
-2018.12.30 (RNCD-0024) LOVERATORY ～幻想郷恋謡～ (C95)
-2019.05.05 (RNCD-0025) 東方TRUE LOVE (Reitaisai 16)Тип издания: DoujinЖанр: J-Pop, J-RockФормат: Touhou VocalПродолжительность: 00:23:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D4CB55F725956B46548B90E9BCC4F2384993BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749797   (539485) от 30.06.2019
-
-ShibayanRecords — 23 альбома (2008-2019) Touhou Vocal, Instrumental /Doujin/ [FLAC|Lossless|tracks] <J-Pop, J-Rock, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2017.12.29 (STAL-1702) Solar (C93)
-2018.05.08 (STAL-1801) TOHO BOSSA NOVA 7 (Reitaisai 15)
-2019.04.28 (STAL-1901) TOHO BOSSA NOVA 8 (M3-43)Тип издания: DoujinЖанр: J-Pop, J-Rock, ElectronicФормат: Touhou Vocal, InstrumentalПродолжительность: 00:15:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA616ED8C0719DBC86F9C3977F57C85BFD9CF10F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557467   (539183) от 16.06.2022
-
-Dir En Grey - Phalaris (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Avantgarde, Jrock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Schadenfreude (00:09:58)
-✧ 02 - 朧 (Oboro) (00:03:59)
-✧ 03 - The Perfume of Sins (00:04:18)
-✧ 04 - 13 (00:03:42)(   Читать дальше...   )Жанр: Progressive Metal, Avantgarde, JrockПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14F9B6951DF569D52C9EEDAF8AF0969DC05BA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557096   (539178) от 16.06.2022
-
-Godzilla Snacks - There Be Monsters (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Desert, Stoner Rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Horns and Tails (00:04:09)
-02 - The Greys (00:05:09)
-03 - Beefcake (00:06:01)
-04 - Sink or Swim (00:02:20)(   Читать дальше...   )Жанр: Heavy Psychedelic, Desert, Stoner RockПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:239A121FF7ECEBE1628266836B178DD1D18C5B0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1506946   (799049) от 02.11.2021
+
+Ummet Ozcan - Tomorrowland Friendship Mix (2021-10-28) [MP3|320 Kbps] <Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baas - Alter Ego
+02. Gaga & Mateo! - Galvanize
+04. Shouse - Love Tonight (ID Remix)
+04. Chapter & Verse - Lights Go Out (ID Remix)(   Читать дальше...   )Жанр: Big RoomПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83331A3A6B472C19FE2E6B379DCB161286A82F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507603   (798294) от 05.11.2021
+
+Josh Le Tissier - Ministry of Sound - HD Life presents Fresher Land (2021-10-07) [MP3|320 Kbps] <Electro House, Big Room, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - The Business (SWACQ Remix)
+02. FETISH - The Door
+03. Kriss Reeve & Repiet - Anybody
+04. Keanu Silva - King Of My Castle (Don Diablo Edit)(   Читать дальше...   )Жанр: Electro House, Big Room, Bass HouseПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7AFA582364609C7E41CE282E9CC88444FB7A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507500   (798293) от 05.11.2021
 
 VA - Live @ ABGT 450, (The Drumsheds London, United Kingdom) (2021-09-04) [MP3|320 Kbps] <Progressive House, Trance>
@@ -687,64 +745,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD97B86167953EDE9BDE45C16F8CE835CA5263EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213761   (767401) от 18.03.2018
-
-VA - Ori Uplift & Smirro - Uplifting Only 266 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ori Uplift:
-01. FAN FAVORITE: Eric Senn - Osiris (Extended Mix)
-02. Dreamlife & Blue Moon - Last Farewell (George Crossfield Emotional Remix)
-03. Syntouch - Lasting Light (VoIces Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504D60518138E7963CBA0E5B32A41F2E2AC1B3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213755   (767365) от 18.03.2018
-
-VA - Markus Schulz & Cosmic Gate - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Markus Schulz presents Dakota - The Spirit of the Warrior (Davey Asprey Remix)
-02. Marcus Santoro - Whispers
-03. Signum featuring Scott Mac - Coming on Strong (Gareth Emery & Ashley Wallbridge Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D85A5D2FA6BAB8DFD218961BC06B966A57ACED
 ```
 
 https://mybot314.ru/tekegram_catalog/

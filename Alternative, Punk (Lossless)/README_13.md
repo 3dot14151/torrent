@@ -1,3 +1,90 @@
+###  Публикация: 1384802   (801754) от 21.05.2020
+
+Annie Barbazza - Vive (2020) [FLAC|Lossless|tracks + .cue] <Rock, Experimental, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ys (4:09)
+02. June (3:35)
+03. From Too Much Love of Living (2:38)
+04. Time (1:04)(   Читать дальше...   )Жанр: Rock, Experimental, Avantgarde, Post Rock, Prog RockПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDE67DC1ADBC88987844CF3AB5D9699EC7D357B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199531   (801097) от 16.01.2018
+
+Kele Okereke - Fatherland (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Electro House>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (00:45)
+02. Streets Been Talkin' (03:25)
+03. You Keep On Whispering His Name (04:09)
+04. Capers (03:51)(   Читать дальше...   )Жанр: Indie Rock, Electro HouseПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602F86A63F3D7A1E300C84B0006044712B02992D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199541   (801095) от 16.01.2018
+
+James Vincent McMorrow - True Care (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. December 2914 (3:56)
+02. True Care (3:54)
+03. National (3:33)
+04. Thank You (4:39)(   Читать дальше...   )Жанр: Indie Rock, FolkПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41D6507E0AB95E63E826D288BB84670B4448890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506244   (801052) от 30.10.2021
 
 Tori Amos - Ocean To Ocean (2021) [FLAC|Lossless|tracks + .cue] <Alternative, Pop>
@@ -658,93 +745,6 @@ Gorillaz - Humanz (2017) Pre-Release Tracks [FLAC|Lossless|WEB-DL|tracks] <Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89F17E6CCD06121E9DFBCE3488E6087B5DB7B395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274712   (792273) от 08.01.2019
-
-Emma Ruth Rundle - On Dark Horses (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Folk Rock, Post Rock, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fever Dreams (04:49)
-02. Control (04:10)
-03. Darkhorse (06:12)
-04. Races (05:34)(   Читать дальше...   )Жанр: Folk Rock, Post Rock, ExperimentalПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF328AA30D11B3FC6C0237A67487CC5A46D16DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509873   (791961) от 15.11.2021
-
-Nirvana - Nevermind (1991) Limited Edition, 30th Anniversary, 2021, Remastered, 5 CD [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Negative Creep (02:53)
- 02. Been A Son (02:20)
- 03. On A Plain (03:13)
- 04. Blew (03:19)(   Читать дальше...   )Жанр: Alternative Rock, GrungeПродолжительность: 04:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98830CC0CB63775C7E1B6AA0C397D4C7D77A606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275033   (791721) от 09.01.2019
-
-Lonewolves - A True Discourse (2010) EP [FLAC|Lossless|tracks + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollow (1:57)
- 02. Shadows & Dust (2:53)
- 03. Death March (2:22)
- 04. Deity (6:22)Жанр: HardcoreПродолжительность: 00:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E3CC33CA5B21D9178624EEBD9D7CDE37ECD60D
 ```
 
 https://mybot314.ru/tekegram_catalog/

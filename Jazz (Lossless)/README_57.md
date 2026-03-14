@@ -1,3 +1,61 @@
+###  Публикация: 1113622   (836826) от 12.03.2017
+
+Chico Freeman - Tangents (1984) 2008, Wounded Bird [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tangents [07:53]
+ 02.Sir Tashi And The Yetti [05:41]
+ 03.Ballad For Hakima [03:24]
+ 04.Fifty Tenth Street [05:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8D7AEB74C7DD00D444DA3F27E0D901BFCDE889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113623   (836822) от 12.03.2017
+
+Benny Carter meet Marian McPartland (1990) 1999, Галактис [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When Lights Are Low [04:05]
+ 02.I'm in the Mood for Swing [05:16]
+ 03.A Kiss From You [04:53]
+ 04.Key Largo [03:45](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77BF2D7B9C19037A62D26142FC3113B4DAD37F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501306   (836686) от 09.10.2021
 
 David Sanchez - Carib (2019) Ropeadope [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop>
@@ -194,6 +252,35 @@ Pete Johnson - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Boogie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F08BFF8E3219A89FC6AB9D44BD03E2DFF35B73A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501527   (835309) от 10.10.2021
+
+The John Wright Trio - South Side Soul (1960) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_835309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South Side Soul [5:02]
+02. 47th and Calumet [3:57]
+03. La Salle St. After Hours [5:22]
+04. 63rd and Cottage Grove [4:07](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86C1E4ED5674C162DFDD71F8782C2C327CCB56C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,92 +744,6 @@ Paul Hardcastle - 19 Below Zero (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:537DC803B08ED4725843EBABFE89663C22791941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005846   (831201) от 10.04.2016
-
-Pharoah Sanders - Live At The East (1971) [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Healing Song [21:46]
- 02.Memories of J.W.Coltrane [12:52]
- 03.Lumkili [08:35]Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E107017524093A25AD47E0FF0B1CD21F9AD7266F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005840   (830905) от 10.04.2016
-
-Keith Jarrett - Creation (2015) ECM[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Part I Toronto [08:18]
- 02.Part II Tokyo [07:41]
- 03.Part III Paris [07:00]
- 04.Part IV Rome [07:34](   Читать дальше...   )Жанр: Avant-Garde Jazz, Piano JazzПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7D4A2B5710A17CC017305B97AFBF50C1A9EC0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005780   (830741) от 10.04.2016
-
-Bing Crosby - The Best of Bing Crosby (1987)  1996,  Promo Sound AG  [FLAC|Lossless|image + .cue] <Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  True Love  3:07
-02.  Dream A Little Dream Of Me  2:41
-03.  I'm Gonna Sit Right Down And Write Myself A Letter  3:02
-04.  Down Along The Sheltering Palms  3:16(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D6CB7D4E919E0889447A91447F88B843FA2CC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

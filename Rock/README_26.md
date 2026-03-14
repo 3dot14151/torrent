@@ -1,3 +1,61 @@
+###  Публикация: 1279024   (766811) от 28.01.2019
+
+Axe - Living On The Edge (1980) Unofficial Reissue, 1997, Axepertise Entertainment Ltd. [MP3|320 Kbps] <Arena Rock, AOR, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living On The Edge
+02. Fantasy Of Love
+03. First Time, Last Time
+04. Carry On(   Читать дальше...   )Жанр: Arena Rock, AOR, Melodic Hard RockПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD9C9FDD8FC58FE47F636010FBAB3DECCC3CC52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214028   (766589) от 19.03.2018
+
+Lost Gravity - How To Make A Giant (2018) Priston Records [MP3|320 Kbps] <Rock, Hard Rock, Grunge Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lost Gravity - это рок-группа, созданная в 2007 году Бреном Валом в Лондоне , Англия. Группа известна своими мощными гитарными риффами, отличными вокальными мелодиями и отличными барабанами. На творчество группы ощутимо повлияли такие коллективы как AC / DC , Alice in Chains и Metallica. В начале было выпущено несколько LP. И наконец в 2014 и в 2018 годах выходят (   Читать дальше...   )01. Under The Sun 4:12
+02. Shine 4:13
+03. Through Your Eyes 3:10
+04. The Last Satellite 4:21(   Читать дальше...   )Жанр: Rock, Hard Rock, Grunge RockПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4788BE8769181BA020B6D8BF3AA0C8AFB1F69F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393892   (766369) от 02.07.2020
 
 Trapt - Shadow Work (2020) [MP3|320 Kbps] <Alt.Rock, Modern Rock>
@@ -687,64 +745,6 @@ Ars Pro Vita - Peace (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog.>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34FDB235BE991D25CFA876C758D0FE4AC0959B9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215766   (756608) от 27.03.2018
-
-Resonance - The Time Machine (1976) LP [MP3|320 Kbps] <Electronic, Rock, Funk-Soul, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Machine (3:28)
-02. Boxing Joe (3:30)
-03. Time Machine (0:23)
-04. The Great Rodeo (3:09)(   Читать дальше...   )Жанр: Electronic, Rock, Funk-Soul, PopПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAA813B221166777520326F43C23A1D20F59942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281222   (755293) от 06.02.2019
-
-Shiver - Under Skin (2002) Remastered Deluxe Edition, 2019, Shiver [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addicted To You
-02. L.U.S.T.
-03. Under Skin
-04. Don't Cry For Me(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454DAC01021ADC1079E4AB2A8C485646F1811717
 ```
 
 https://mybot314.ru/tekegram_catalog/

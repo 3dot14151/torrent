@@ -1,3 +1,146 @@
+###  Публикация: 1667708   (176155) от 09.10.2023
+
+Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic rock, progressive rock, acid rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With My Mind (4:40)
+02. Used To Feel Before (4:06)
+03. I'm Not The One (3:47)
+04. Fire (3:06)(   Читать дальше...   )Жанр: Psychedelic rock, progressive rock, acid rockПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF158D4A9E163583DC8F821D3261D425F69062C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667709   (176145) от 09.10.2023
+
+Eradikated - Descendants (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unleash (3:16)
+02. Flood (2:39)
+03. Drought (3:24)
+04. Descendants (3:29)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7079EEE9BF6A350E91E924604FBEC4F3A49841E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667700   (176141) от 09.10.2023
+
+Kingston Wall - II (1993) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic rock, progressive rock, acid rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Cannot Move (4:45)
+02. Ištwan (3:59)
+03. Could It Be So? (5:55)
+04. And It's All Happening (6:20)(   Читать дальше...   )Жанр: Psychedelic rock, progressive rock, acid rockПродолжительность: 01:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E91D7024EE21A4CC2A2B4306784F6BB603CF8F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667818   (176139) от 09.10.2023
+
+Psygnosis - AAliens (2015) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176139.jpg" />
+</div>
+
+
+###  Подробнее
+
+A - FIIIX 3.0
+B - Man Ov SteelЖанр: Industrial, Progressive Death MetalПродолжительность: 00:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECD61F490627987AC99F4D9587F97C78D9D5D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595313   (176126) от 04.12.2022
+
+Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nuclear Assault — американская трэш-метал/кроссовер-трэш группа, основанная в 1984 году бас-гитаристом Anthrax Дэнни Лилкером.1986 - Game Over + The Plague (EP)
+1988 - Survive
+1989 - Handle With Care
+1991 - Out Of OrderЖанр: Thrash MetalПродолжительность: 04:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619312F4DD4A8BFE0F4CFA248B4EDE18D121009F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667845   (176103) от 09.10.2023
 
 Arabs In Aspic - Live at Avantgarden (2018) Remaster, 2023, Apollon Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock, Symphonic Rock>
@@ -600,151 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40F0F5D119F75403D0C08EFBB02654F6B2FBC17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668137   (173817) от 12.10.2023
-
-Чёрный Кофе - Пьяная Луна (1996) Unofficial Release [FLAC 2.0|24/48|image + .cue|MC-Rip] <Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-A1 Где-то В Слезах
-A2 Ветер
-A3 Белая Ночь(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194072   (173783) от 23.12.2017
-
-Creedence Clearwater Revival - 1968-1969 (1978) 2LP [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Creedence Clearwater Revival
-A1. I Put A Spell On You (4:35)
-A2. The Working Man (3:05)
-A3. Suzie Q (8:39)(   Читать дальше...   )Производство: Fantasy Records - BLS 5570Жанр: RockПродолжительность: 01:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFCC2E0C2D272E01C5CF01265553FCC60E3C261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827122   (173410) от 20.10.2025
-
-Seal - Studio Albums (10 releases) (1991-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pop, Soul, R&B>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Seal - (Henry Olusegun Adeola Samuel) - британский певец и автор песен, обладатель трёх музыкальных премий «Грэмми» и трёх наград Brit Awards.1991 - Seal
-1994 - Seal II
-1998 - Human Being
-2003 - IVЖанр: Pop, Soul, R&BПродолжительность: 10:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77414652581AC4BA03506BA37F740B9E191C9BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668636   (173254) от 14.10.2023
-
-Creeper - Sanguivore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Britpop, Glam Rock, Pop-Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Further Than Forever [00:09:12]
-02 - Cry To Heaven [00:04:27]
-03. Sacred Blasphemy [00:02:53]
-04. The Ballad Of Spook & Mercy [00:04:39](   Читать дальше...   )Жанр: Britpop, Glam Rock, Pop-PunkПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109DB72A78EA07353095D050C9A286819F0028A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668647   (173252) от 14.10.2023
-
-Heavy Load - Riders of the Ancient Storm (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride the Night (5:22)
-02. We Rock the World (4:15)
-03. Walhalla Warriors (5:49)
-04. Angel Dark (6:15)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A637EE4A81931B8EE695C7312B1120A87CF4ABE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1433491   (157338) от 21.12.2020
+
+All the Cold - To the Emerald Land (2020) [MP3|320 Kbps] <Instrumental Music, Atmospheric Black Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Island Of Snow (19:27)
+ 02. Tidewater (01:59)
+ 03. Into The Storm (12:59)
+ 04. Bracada (02:29)(   Читать дальше...   )Жанр: Instrumental Music, Atmospheric Black Metal, AmbientПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF4FA46482B1ADF33D455742B3B286956D39E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991922   (157291) от 21.12.2016
+
+Северный Флот - Мизантропия (2016) [MP3|320 кб/с] <Rock>
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157291.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мизантропия
+2. Презирать и ненавидеть
+3. Каждую ночь
+4. 210(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C822111A38D084FDC1B1AFA179BB2AAC2E8681A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433503   (157257) от 21.12.2020
+
+Ничто Не Вечно - Тонагвальбом (2020) [MP3|320 Kbps] <Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Однажды Мы Видели Мир [00:02:17]
+02 Инфополе [00:03:27]
+03 20- [00:03:07]
+04 Профайлер [00:03:12](   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A88F3D3B64A0627C83FE61DEF1E8106CFB09FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433698   (156683) от 21.12.2020
 
 Дора - Боже, храни кьют-рок (2020) [MP3|320 Kbps] <Pop Rock, Indie Rock>
@@ -654,93 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6D0A10FCAB87CD0695CEC22F314F0E662462718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434495   (149894) от 25.12.2020
-
-Last Trial - А Время Шло (2020) [MP3|320 Kbps] <Modern Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вступление 00:52 instrumental
-2. А Время Шло 03:52
-3. В Жизнь 03:45
-4. Право На Месть 04:23(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EF4513D6605EC74C84F5F99E7DF60206382719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434686   (149812) от 25.12.2020
-
-Distemper - На троих (2020) [MP3|320 Kbps] <Ska Punk, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149812.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Феназепам
-2. Математика
-3. Получить ответ
-4. Слёзы(   Читать дальше...   )Жанр: Ska Punk, AcousticПродолжительность: 00:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B08D934CF61B1E61567257EA74BB76EE004F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086747   (149797) от 25.12.2016
-
-Леонид Фёдоров - Псалмы (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Псалом 62
-02. Псалом 3
-03. Псалом 132
-04. Псалом 90(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDAABD16363277A6D3995D0894A3116311BA00D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

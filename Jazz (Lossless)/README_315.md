@@ -1,3 +1,90 @@
+###  Публикация: 1707288   (113315) от 16.03.2024
+
+Howard Alden Trio - Misterioso (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We See [4:53]
+02. Song of the Dove [4:02]
+03. Flying Down to Rio [4:22]
+04. Ghost of Yesterday [6:07](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA35187BD4901126E5906FC77EA2600AF52EF7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707289   (113314) от 16.03.2024
+
+The Howard Alden Trio - A Good Likeness (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody Else But Me [6:41]
+02. The Peacocks [5:23]
+03. Something to Live For [6:31]
+04. Single Petal of a Rose [2:39](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE19591626E75B697816FAC0AAE1969D577991C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707296   (113313) от 16.03.2024
+
+Wes Montgomery & Wynton Kelly Trio - Maximum Swing: The Unissued Half Note Recordings (1965) 2CD, 2023, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things You Are [6:41]
+02. I Remember You [7:11]
+03. No Blues [2:44]
+04. Cherokee [10:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1818C494D41B5DD30C069C24852B8A87B896EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707280   (113272) от 17.03.2024
 
 Gene Austin - Collection (1920s-1950s) (2011-2014) 2CD [FLAC|Lossless|WEB-DL|tracks] <Jazz, pop, vocal>
@@ -658,93 +745,6 @@ The Art Farmer-Benny Golson Jazztet - Real Time (1988) Contemporary Records [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:485B738F98255529604E254314DDE23219F09C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708290   (113050) от 20.03.2024
-
-The Art Farmer-Benny Golson Jazztet - Back To The City (1986) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to the City [7:55]
-02. From Dream to Dream [6:48]
-03. Write Soon [9:44]
-04. Vas Simeon [7:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8CD8557A420B6673B1704D0603AD9FDC1D4FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708292   (113048) от 20.03.2024
-
-Art Farmer-Benny Golson Jazztet - Blues On Down (1960, 1961) 1994, Chess [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi-Fly [5:55]
-02. Blues on Down [6:05]
-03. Five Spot After Dark [3:23]
-04. My Funny Valentine [4:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BF397850909A299A15ABE086BF27777808C7C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708554   (113009) от 21.03.2024
-
-Benny Golson - California Message (1980) 1995, Timeless [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Message [5:43]
-02. Soul Talk [6:33]
-03. Blues March [5:55]
-04. The Berliner [5:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711EB3C1AEC7D730F8A4C45E79846D3848BEC847
 ```
 
 https://mybot314.ru/tekegram_catalog/

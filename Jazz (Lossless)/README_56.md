@@ -1,3 +1,61 @@
+###  Публикация: 1113130   (840211) от 10.03.2017
+
+Andy Narell - Fire In The Engine Room (2000) Heads Up [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chakalaka [06:58]
+ 02.Unusual Bird [07:47]
+ 03.Coffee Street [08:13]
+ 04.Blue Mazooka [07:54](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA14C7D20E84CE7434090262C879AD45B98D31C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112898   (840207) от 10.03.2017
+
+Kaira - Kaira (2017) [FLAC|Lossless|WEB-DL|tracks] <Cool Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840207.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shining Star (4:11)
+ 2. Never Say Never (5:05)
+ 3. You Are Too Perfect (4:50)
+ 4. Playing With Your Life (5:10)(   Читать дальше...   )Жанр: Cool JazzПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D68C869AAA7ECD47318994B1BB919A27D342FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004258   (840204) от 05.04.2016
 
 Thelonious Monk - Blue Monk (1948-1963) 3CD, 2014, Le Chant Du Monde[FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
@@ -705,64 +763,6 @@ Peggy Lee with George Shearing - Beauty and the Beat! (1959) 2000, Capitol[FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F777BE6791C97E970D0477B4323598AC107C0A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113622   (836826) от 12.03.2017
-
-Chico Freeman - Tangents (1984) 2008, Wounded Bird [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tangents [07:53]
- 02.Sir Tashi And The Yetti [05:41]
- 03.Ballad For Hakima [03:24]
- 04.Fifty Tenth Street [05:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8D7AEB74C7DD00D444DA3F27E0D901BFCDE889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113623   (836822) от 12.03.2017
-
-Benny Carter meet Marian McPartland (1990) 1999, Галактис [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When Lights Are Low [04:05]
- 02.I'm in the Mood for Swing [05:16]
- 03.A Kiss From You [04:53]
- 04.Key Largo [03:45](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77BF2D7B9C19037A62D26142FC3113B4DAD37F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

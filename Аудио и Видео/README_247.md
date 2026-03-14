@@ -1,3 +1,32 @@
+###  Публикация: 1425879   (219096) от 22.11.2020
+
+Synth Replicants - Multi-Dimensional Transmission (2020) [AAC|~321 Kbps] <Electronic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cocoon (8:21)
+02. Distant Light (11:07)
+03. Lifestring (9:18)
+04. Among the Stars (7:33)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F342BC164B088118E8B4E1F44E66F7A4D5C371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425739   (218909) от 22.11.2020
 
 VA - Golden Hits (2020) [AAC|~338 Kbps] <Rock>
@@ -664,35 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF39CDD68E2A93C9C3DFDE23A5D829A0A1BFC40C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426032   (216906) от 23.11.2020
-
-Ансамбль Детские Песни - Оранжевая песня (2019) [AAC|~301 Kbps] <Детская музыка>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В каждом маленьком (1:37)
-02. Неприятность эту мы переживём (1:55)
-03. Рыжий, рыжий, конопатый (1:59)
-04. Топает малыш (2:40)(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181EFE0E14A06ABAB3AAF9AAE9AF23848BA815F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

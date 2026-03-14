@@ -1,3 +1,90 @@
+###  Публикация: 1061002   (451295) от 09.10.2016
+
+Frank Strozier - Long Night (1961, 1962) 2002, Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Long Night [04:35]
+ 02.How Little We Know [05:58]
+ 03.The Need For Love [04:41]
+ 04.The Man That Got Away [04:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFEA8DFC37A88337405C1D6E5DEBD93FF19ECE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061274   (451293) от 09.10.2016
+
+Frank Rosolino - Thinking About You (1976) 2CD, 2001, Sackville Recordings[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451293.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Sweet And Lovely [14:03]
+02.Who Can I Turn To [09:21]
+03.Round Midnight [11:16](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFA97C8DCE43905ECA105FC43A3E6C5A5EBA124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943398   (449692) от 03.10.2015
+
+Archie Shepp - Four for Trane (1964) /1997, MCA Records/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Syeeda's Song Flute [08:30]
+02.Mr. Syms [07:42]
+03.Cousin Mary [07:14]
+04.Naima [07:10](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A1514B9EB9D092DC377830DE8CE492B803133A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943413   (449691) от 03.10.2015
 
 Mildred Aubry - Caminho (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
@@ -663,93 +750,6 @@ Lillian Boutte - The Jazz Book (1994) Blues Beacon Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF1DCDE206A1EE3A5A700A914521C2C5CF2153B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569858   (447301) от 15.08.2022
-
-The Charlie Byrd Quintet - Du Hot Club De Concord (1995) Concord Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swing '59 [4:44]
-02. Golden Earrings [3:45]
-03. Lamentos [4:41]
-04. Carinhoso [4:58](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5CFC3CE2A966A6FBB027017093E96389A50E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248135   (446744) от 18.09.2018
-
-Harold Lopez-Nussa - Un Dia Cualquiera (2018) Mack Avenue [FLAC|Lossless|tracks + .cue] <Cuban Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cimarron [3:52]
-02. Danza de los nanigos [4:30]
-03. Una tarde cualquiera en Paris (To Bebo Valdes) [4:49]
-04. Preludio (To Jose Juan) [3:29](   Читать дальше...   )Жанр: Cuban Jazz, Piano JazzПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547C74CDE46A84D254CBB9CE4872360C127FE179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248131   (446739) от 18.09.2018
-
-Oscar Peterson, Stephane Grappelli - Skol (1979) 1990, Original Jazz Classics [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuages [8:17]
-02. How About You [5:05]
-03. Someone To Watch Over Me [6:59]
-04. Makin' Whoopee [5:23](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63EBF3638C65B808DD07E7F868E2D2A3D2CCB83
 ```
 
 https://mybot314.ru/tekegram_catalog/

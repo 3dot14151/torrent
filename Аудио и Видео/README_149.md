@@ -1,3 +1,32 @@
+###  Публикация: 797014   (606346) от 17.07.2014
+
+Hans Zimmer, Geoff Zanelli and Blake Neely - Тихий океан / The Pacific (2010) [AAC|WEB-DL|256 Kbps] <Score>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Honor (Main Title Theme from ''The Pacific'')
+ 02 - With the Old Breed (End Title Theme from ''The Pacific'')
+ 03 - You Have No Idea
+ 04 - Terrible Solomons(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9BC260950BC6AB8706EE0071069E138AD4A68B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545549   (606268) от 24.04.2022
 
 VA - Coffee Break: Chillout Your Mind (2022) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
@@ -667,32 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1F05218D8DD9C023599826E39CA715266711FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148231   (604313) от 05.07.2017
-
-Жмот / Radin ! (2016) BDRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франсуа Готье — виртуозный скрипач. Но за талант, как водится, надо платить. У музыканта серьезный недостаток: он невероятно скуп. Мания экономить превращает его в одержимого, а любой платеж ввергает в панический ужас. Но однажды его жизнь резко меняется.Производство: ФранцияЖанр: КомедияРежиссер: Фред КавайеАктеры: Дэни Бун, Лоранс Арне, Ноэми Шмидт, Патрик Ридремон, Кристоф Канар, Кристоф Фавр, Ивонн Граделе, Карина Маримон, Изабель Зьенталь, Одри Родс-ГрегПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BAF41982814D01A2484B8DB3B8A5FA009CA348
 ```
 
 https://mybot314.ru/tekegram_catalog/

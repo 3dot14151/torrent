@@ -1,3 +1,91 @@
+###  Публикация: 1097642   (911779) от 28.01.2017
+
+VA - Enigmatic Songs (2017) 3CD [MP3|256 Kbps] <Enigmatic, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gregorians -  So Sad
+02. Pandana -  Imagination
+03. B-tribe -  Ahoy
+04. Soul Ballet -  Exotique(   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 11:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC712F362B4644C80E861FD545BD72ED959C26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990357   (911721) от 25.02.2016
+
+Дуэт - Вадим Медин и Сергей Холодов - Третий концерт (1976) [MP3|194-216 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление
+02. От злой тоски, не матерись...
+03. На кладбище
+04. Дураки(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14A647F11FEDD98A8164FE59B59EEE2786426F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866219   (911546) от 03.02.2015
+
+VA - Billboard 2014 Year End Hot 100 Songs (2014) [MP3|~245 кб/с (V0)]<Pop, Dance, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Billboard подвел итог своих хит-парадов за 2014 год. Опубликована лучшая сотня песен за год во всех жанрах. Именно её мы и представляем сегодня.
+Вспомните о всем лучшем что было в 2014 году!001. Pharrell Williams - Happy (Gru's Theme from Despicable Me 2)  (3:53)
+002. Katy Perry - Dark Horse (feat. Juicy J)  (3:36)
+003. John Legend - All of Me  (4:30)
+004. Iggy Azalea - Fancy  (3:20)(   Читать дальше...   )Жанр: Pop, Dance, Rock, OtherПродолжительность: 06:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8861ECC488D3B8AE99678151A9F511DF5D428E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990459   (911527) от 25.02.2016
 
 VA - Музыка к 8 Марта (2010) [MP3|128-320 кб/с] <Pop>
@@ -655,93 +743,6 @@ VA - Sentimental Watercolor: Relax Party (2016) [MP3|320 кб/с] <Downtempo, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:023580228C9DB619D7CC2A4C0BCEF6F7A08EF03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990691   (909757) от 26.02.2016
-
-VA - Bass Killer 3 (2016) [MP3|320 кб/с] <Electro House, Dubstep, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909757.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 12th Planet & LUMBERJVCK - Name Bran (Original Mix) (4:38)
-2. Alby Loud - El Senor Dinosaurio (Original Mix) (3:37)
-3. Autoerotique - AUH (Original Mix) (3:11)
-4. Avicii - Pure Grinding (iSHi Remix) (3:26)(   Читать дальше...   )Жанр: Electro House, Dubstep, ElectroПродолжительность: 01:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119A8288E016FE2981B2B22F7F9AE2DE3DAE7231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990766   (909724) от 26.02.2016
-
-VA - Great 150: Euro Popular (2016) [MP3|192-320 кб/с] <EuroDance, Pop, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909724.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jess Glynne - Don't Be So Hard on Yourself 03:34
-002. Sia - Blinded By Love 03:47
-003. Coldplay - Adventure Of A Lifetime 04:19
-004. Dr. Dre Ft Snoop Dogg - The Next Episode (Dj Savin Remix) 04:24(   Читать дальше...   )Жанр: EuroDance, Pop, ClubПродолжительность: 09:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82547FF89456B564E1B82BF6AD06CD22302FE4C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990554   (909688) от 26.02.2016
-
-Boris Blank - Selected (2015) [MP3|320 кб/с] <Electronic, Jazz>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Time Tunnel (05:09)
-02. The Last Mile (04:59)
-03. I Feel It Like You (feat. Malia) (03:38)
-04. Random Tox (02:42)(   Читать дальше...   )Жанр: Electronic, JazzПродолжительность: 01:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2825F5D855CD85FF54EFB4ED9265AF486E767D8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

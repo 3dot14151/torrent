@@ -1,3 +1,90 @@
+###  Публикация: 1680358   (134379) от 29.11.2023
+
+Gigi Gryce & Donald Byrd - Jazz Lab (1957) 2010, Jubilee [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Lights [4:03]
+02. Onion Head [4:45]
+03. Isn't It Romantic [4:53]
+04. Bat Land [7:06](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F366DB09C6F5D3D65CFC0F4F3EC543E81B22C155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680351   (134371) от 29.11.2023
+
+Cal Tjader - Gozame! Pero Ya... (1980) 1987, Concord Picante [FLAC|Lossless|tracks + .cue] <Latin Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoshana [5:12]
+02. This Couldn't Be the Real Thing [6:35]
+03. Bye Bye Blues [6:55]
+04. Roger's Samba [4:32](   Читать дальше...   )Жанр: Latin Jazz, CoolПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3BF9C618575887A19EAC288266A0CE87B97E037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680359   (134365) от 29.11.2023
+
+Herb Ellis / Ray Brown Sextet - Hot Tracks (1976) 1990, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Onion Roll [4:26]
+02. Spherikhal [4:55]
+03. But Beautiful [5:25]
+04. Blues for Minnie [4:41](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D108E0A1C5FA67B766CF5A02C3818C8B5D727A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680404   (134275) от 29.11.2023
 
 Shakatak - Eyes of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Disco, Funk>
@@ -688,93 +775,6 @@ Dave Sereny - Talk to Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99912FC89DE22954D2BE1D6B4C68FC56F2AB4DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681893   (132081) от 05.12.2023
-
-VA - The Best Acid Jazz Covers (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Nu Jazz, Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lostinwhite - For Once in My Life (3:01)
-02. Andrew De la Foix - Misfit (Radio Edit) (3:21)
-03. Bossa Nostra - Home Is Where The Hatred Is (Ken@Work Mix) (5:10)
-04. Marina Santelli - You Can Leave Your Hat On (5:20)(   Читать дальше...   )Жанр: Acid Jazz, Nu Jazz, Future JazzПродолжительность: 01:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843732EE74E799F2A159E54FB09A456D4AA626EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682211   (131864) от 06.12.2023
-
-Andrew Hill - The Complete Blue Note Sessions (1963 - 1966) 7CD, 1995, Mosaic Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violence [11:08]
-02. Violence (alternate take) [7:05]
-03. Hope [7:19]
-04. Illusion [5:56](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 06:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2481B7AA83AE728D221F48DD32E193E225B5050E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682165   (131852) от 06.12.2023
-
-Smooth Jazz Music Ensemble - Warm Winter Wine (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Instrumental, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Jazz Cafe (3:21)
-02. Evening with Red Wine (3:37)
-03. Sunday Morning Jazz (3:21)
-04. Time for Black Coffee (3:16)(   Читать дальше...   )Жанр: Jazz, Instrumental, Easy ListeningПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9A07E6842C3FECB4EC78C03B3BA5CC42D0B674
 ```
 
 https://mybot314.ru/tekegram_catalog/

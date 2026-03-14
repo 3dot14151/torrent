@@ -1,3 +1,32 @@
+###  Публикация: 1666770   (178771) от 05.10.2023
+
+VA - Music News vol.303 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178771.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. LVLV - Sexy (02:13)
+ 002. Alkonost - Оберег (04:59)
+ 003. Alli Neumann - Berlin Nightlife (03:03)
+ 004. Angelini - Душа (Mix) (03:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F9FFCAA5B2C599EEF355A4D0D55F85DCB15F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428981   (178240) от 04.12.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 04.12.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Power Up! 2 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74684A3077E0692C5789FBA6483D8AB23D13D266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670949   (171700) от 22.10.2023
-
-VA - The Official UK Top 100 Singles Chart 20.10.2023 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171700.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kenya Grace - Strangers (2:53)
-002. cassö - Prada (2:12)
-003. Tate McRae - greedy (2:11)
-004. Tyla - Water (3:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC13A19CC789F4172CFC84590C6C10A0D1484A05
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1426032   (216906) от 23.11.2020
+
+Ансамбль Детские Песни - Оранжевая песня (2019) [AAC|~301 Kbps] <Детская музыка>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В каждом маленьком (1:37)
+02. Неприятность эту мы переживём (1:55)
+03. Рыжий, рыжий, конопатый (1:59)
+04. Топает малыш (2:40)(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181EFE0E14A06ABAB3AAF9AAE9AF23848BA815F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426036   (216881) от 23.11.2020
 
 Ансамбль Детские Песни - Приходи, сказка! (2020) [AAC|~302 Kbps] <Детская музыка>
@@ -679,35 +708,6 @@ Zodiac - Disco Alliance (2013) [AAC|~350 Kbps] <Electronic, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:220B51EDEDED08CEF12162D4C207CA1025EC019E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515097   (213946) от 05.12.2021
-
-Arkay Koo - Terra Server (2021) [AAC|~328 Kbps] <Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.I'm (Original Mix) (5:45)
-02. Dia Verde O Fuera Del Tiempo (Original Mix) (8:24)
-03. Cybee (Original Mix) (6:16)
-04. Quantum Flowers (Original Mix) (6:12)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B0DABAFE2B4BEBBB1553F4276E84B5185EC076
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1578633   (343656) от 24.09.2022
+
+Stratovarius - Stratovarius (2005) Reissue, 2012, Victor [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maniac Dance	4:34
+02. Fight!!!	4:03
+03. Just Carry On	5:28
+04. Back To Madness	7:43(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9543F81F7C8FCFB791E05B400B5E34A88132DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578559   (343654) от 24.09.2022
+
+Stratovarius - Polaris (2009) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Unknown	4:28
+02. Falling Star	4:33
+03. King Of Nothing	6:42
+04. Second Sight	4:25(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD73070AFF4EE046E6F4DDCD38E26E505D5E93B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578543   (343653) от 24.09.2022
 
 Stratovarius - Elysium (2011) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
@@ -687,64 +745,6 @@ VA - Keep Calm and Salute Queen (2015) [MP3|320 кб/с]<Rock, Hard Rock, Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A031BAD2C707DC1D17A81A87AD61D1A5600C2E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579431   (336497) от 27.09.2022
-
-Frozen Factory - 3 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murder in the Depths [00:03:01]
-02. Host With the Most [00:04:00]
-03. Solar Windfalls [00:04:34]
-04. Equalise Power [00:04:26](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 3 CD, 02:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146D7E248F2CF445C73950AB69E4D766700CBCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579358   (336488) от 27.09.2022
-
-Fleesh - 13 Albums (2017-2022) [MP3|320 Kbps] <Progressive Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manhã dos 33 (Sagrado Coração da Terra Version) [00:04:22]
-02. Nights in White Satin (Moody Blues Version) [00:04:56]
-03. Miracle Of Love (Eurythmics Version) [00:04:37]
-04. Sometimes You Can't Make It On Your Own (U2 Version) [00:05:08](   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 13 CD, 17:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9546BCF4E4C4D02300E9F9F67DE98F713714EF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

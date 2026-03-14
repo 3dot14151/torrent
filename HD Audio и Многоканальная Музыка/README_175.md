@@ -1,3 +1,148 @@
+###  Публикация: 1771903   (71814) от 08.01.2025
+
+Sound Dinosaur - BREWING HARMONY (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Morning Pour 朝の一杯 (1:37)
+02.  Velvet Steam ベルベットの蒸気 (2:00)
+03.  Cinnamon Clouds シナモンの雲 (2:24)
+04.  Gentle Roast 優しい焙煎 (2:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C613B51C050D0DA34409F9B3C8543C96DCF04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771905   (71812) от 08.01.2025
+
+Tamara Bodie - Just Have Something to Say (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Colors of Spring (3:59)
+02.  Tea (3:58)
+03.  Pure Delight (Quincy Jones Tribute) (4:32)
+04.  Just Have Something to Say (3:57)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FB1EDD4E365600B8F09912FABE0A94D0060A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771901   (71811) от 08.01.2025
+
+Lustre Jazz - Bangkok Twilight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A love that never ends (3:20)
+02.  A night remembering you (4:01)
+03.  A song that never fades (3:48)
+04.  Bangkok Twilight (2:51)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396C8368E0A23A05151D0110ED23C55BA0B04173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771899   (71806) от 08.01.2025
+
+John Skelley - Dusk 'Til Dawn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dusk 'Til Dawn Blues (3:29)
+02.  Midnight Confessions (4:41)
+03.  River's Edge Blues (3:58)
+04.  Ladies Man (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5708763E06A1A105D4D50D458953AA70364F1FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771911   (71804) от 08.01.2025
+
+Jamaican Jazz Orchestra - All For A Reason (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Brain Freeze (3:26)
+02.  Say Whut?! (4:03)
+03.  Black Rain (4:58)
+04.  Kelly Green (4:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ABEB48FA6D39921B7D180874623CC5F6DF5E361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771906   (71799) от 08.01.2025
 
 Tobin Mueller - Fragments (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -595,149 +740,6 @@ Jeff Krause & Brokedown Gramophone - Tears for My Friends (2025) [FLAC 24/96|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B9995397C0ED09CF89EF0564658252C0A1D7D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773412   (71712) от 15.01.2025
-
-Brian Grilli - Great Big Sky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Can You Feel It? (4:03)
-02.  Paul Jackson - Ain't Gonna Be Easy (3:54)
-03.  It's My Story (3:10)
-04.  Charlie Starr - Love Sweet Love (4:42)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222D91D38F45E16678AD3D9E74190ED5A06E3728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773424   (71711) от 15.01.2025
-
-Gareth Huggett - Modern Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Modern Life (3:38)
-02.  Lemon Yellow Dress (3:11)
-03.  Pocket Full of Nothing (3:25)
-04.  Tellin' Me Lies (2:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D624E2287A6786F24B0306DEB6ADC5656213CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773629   (71706) от 16.01.2025
-
-AARA - Eiger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Atmospheric Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Die das wilde Wetter fängt [9:26]
-02 - Senkrechte Welten [7:16]
-03 - Felsensang [6:17]
-04 - Todesbiwak [6:27](   Читать дальше...   )Жанр: Black Metal, Atmospheric Black MetalПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0536256B025BCAB6D795336B859480C850E3FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773546   (71691) от 16.01.2025
-
-Epysode - Studio Albums (2 releases) (2011-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epysode - прогрессив-метал группа из Бельгии, основанная в 2011 году.
-Сайд-проект Сэмюэля Аркана с участием приглашенных музыкантов2011 - Obsessions
-2013 - FantasmagoriaЖанр: Progressive MetalПродолжительность: 02:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32DD798D905B07A58154B82095B4DC73A4E8DC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773749   (71667) от 17.01.2025
-
-Myles Kennedy - Solo Studio Albums (3 releases) (2018-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Jazz-Fusion, Post-Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майлз Кеннеди — американский музыкант, играл в группах Citizen Swing, The Mayfield Four. Наиболее известен как вокалист и гитарист Alter Bridge, а также как вокалист и ритм-гитарист сольного проекта гитариста Guns N' Roses Слэша (Saul Hudson)2018 - Year Of The Tiger
-2021 - The Ides of March
-2024 - The Art Of Letting GoЖанр: Hard Rock, Jazz-Fusion, Post-GrungeПродолжительность: 02:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9699B02E6B0275518FF1DD8DC5B48FBA30F2C19A
 ```
 
 https://mybot314.ru/tekegram_catalog/

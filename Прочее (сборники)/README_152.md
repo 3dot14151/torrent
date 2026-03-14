@@ -1,3 +1,32 @@
+###  Публикация: 1344064   (214369) от 08.12.2019
+
+VA - не Громкие новинки недели 46 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214369.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.5sta Family - Первый Снег (2:46)
+2.Andery Toronto - Euphoria (3:34)
+3.ANIKV - Женщина Плачет (2:59)
+4.Anna Petrash - Не Ну А Чё? (3:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7495EE11B7E4FB0B98B2C35D15F7C9FC8E097ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270322   (214341) от 18.12.2018
 
 VA - Club 2019-Hottest New Tracks (2018) [MP3|320 Kbps] <House, Handsup, Dance>
@@ -716,35 +745,6 @@ VA - Music News vol.236 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:535BF09C78C897748A722A5633A304CABBB203F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642047   (210528) от 25.06.2023
-
-VA - Music News vol.275 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210528.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lena Archis - Обещания (02:38)
- 002. AKHTYAM - Koh Toh (02:15)
- 003. Alina Eremia & Banger Tunes - Cine-i Focul, Cine-i Apa (Victor Stan & Andaro Remix) (04:02)
- 004. Aloe Blacc feat. End Of The World - What Is Love (02:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:342DC035F714D482B79BD65315A194268919BF53
 ```
 
 https://mybot314.ru/tekegram_catalog/

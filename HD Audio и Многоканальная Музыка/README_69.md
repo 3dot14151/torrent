@@ -1,3 +1,148 @@
+###  Публикация: 1670938   (171514) от 23.10.2023
+
+Lynch Mob - Babylon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erase [00:05:26]
+02. Time After Time [00:04:58]
+03. Caught Up [00:04:37]
+04. I'm Ready [00:04:07](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2484D9E46EB91C265AF2CA97AA32F905F8DEFEEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671068   (171506) от 23.10.2023
+
+Черный Кофе - Два альбома: Переступи Порог и Вольному — Воля (1987, 1990) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171506.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Брожу По Городу Один • Roaming The City Alone
+(Д. Варшавский – А. Шаганов)
+A2 Вольному — Воля... • Life Never Waits
+(Д. Варшавский – А. Шаганов)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719BAB39F16E7BDF1F772CB3C05818C9E3E5BB87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671419   (171420) от 24.10.2023
+
+Martin Solveig - Back To Life (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Wanna Work [00:02:35]
+02. Coffee At Tiffany's [00:03:25]
+03. Lost [00:02:48]
+04. Bite Size [00:04:25](   Читать дальше...   )Жанр: DanceПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E807CC356A4C7424612DF48C4205E484151F2B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671626   (171235) от 25.10.2023
+
+Death - Human (1991) Reissue 2021, Relapse Records [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171235.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Flattening Of Emotions
+A2 Suicide Machine
+A3 Together As One
+A4 Secret Face(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE311C7FF8BB2A7F2ED42C507E7132C9BCFEB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671693   (171225) от 25.10.2023
+
+Gorefest (& The 11th Hour) - Studio Albums (9 releases) (1991-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal; Death 'n' Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gorefest — нидерландская дэт-метал группа, образованная в сентябре 1989 года, в провинции Зеландия.1991 - Mindloss
+1992 - False
+1994 - Erase
+1996 - Soul SurvivorЖанр: Death Metal; Death 'n' RollПродолжительность: 08:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BCB5A49FB354AE7678DC39DF60E2076FCB756D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671719   (171220) от 25.10.2023
 
 Rykarda Parasol - Tuesday Morning (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternativa & Indie>
@@ -600,151 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81EAC9A4E5C334D7E99248E2191AEFB7DAEB7241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672384   (169546) от 28.10.2023
-
-Prospective - Reasons To Leave (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Searching
-02. Haunt Me
-03. OCD
-04. Fake Routine(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4813BBD4055478643D187227B5157E1BADC1DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672267   (169504) от 28.10.2023
-
-Ragana - Desolation's Flower (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <blackened doom, blackened screamo>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desolation's Flower [00:08:29]
-02. Woe [00:06:35]
-03. Ruins [00:05:55]
-04. DTA [00:04:04](   Читать дальше...   )Жанр: blackened doom, blackened screamoПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E0F9B26A78EC48F57839694A15EB140D61157E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672551   (169459) от 28.10.2023
-
-Death - Leprosy (1988) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leprosy (06:20)
-02. Born Dead (03:28)
-03. Forgotten Past (04:37)
-04. Left To Die (04:37)(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035C1F723584BCE25B0AEDE0AD0EBBF6F7BF2749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672262   (169403) от 28.10.2023
-
-Mass Hysteria - Tenace, Pt. 2 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore / Frenchcore / Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'inversion des pôles [00:04:33]
-02. L'air bien [00:06:05]
-03. Washington décès [00:04:09]
-04. Un Assange passe [00:04:37](   Читать дальше...   )Жанр: Rapcore / Frenchcore / ElectronicПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C4EC3BF7B38789EDB3B896C12AD26ED706B45C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672377   (169370) от 28.10.2023
-
-King Gizzard & The Lizard Wizard - The Silver Cord (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169370.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Theia (03:24)
-2. The Silver Cord (04:20)
-3. Set (03:56)
-4. Chang'e (03:46)(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59BC2A608C06F6C03DAFB1AFE33F24930D5DC09D
 ```
 
 https://mybot314.ru/tekegram_catalog/

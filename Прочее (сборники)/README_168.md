@@ -1,3 +1,32 @@
+###  Публикация: 1349082   (138613) от 30.12.2019
+
+VA - Громкие новинки Декабря Vol 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Alan Walker, Ava Max - Alone, Pt. II (2:59)
+2.Alec Benjamin - Mind Is A Prison (2:42)
+3.Andro - Моя душа (2:35)
+4.Artik & Asti, Руки Вверх! - Полечу за тобою (4:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902EBC582FB8795179B1CF0003AFAD1CA1BEAB86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349068   (138609) от 30.12.2019
 
 VA - Новинки с разных популярных MP3 сайтов. Ver.91 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -761,41 +790,6 @@ VA - Another Rock'n'Roll Christmas (2002) [MP3|320 кб/с]<Pop, Swing, Rock'n'R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C368D8F92EA22A44D92660DCF32E74209244F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595783   (132227) от 29.12.2012
-
-VA - USA Hot Top 40 Singles Chart 30 December (2012) (2012) [MP3|256 кб/с]<Pop, Funky, Dance, Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - Locked Out Of Heaven 03:53
-02. Rihanna - Diamonds 03:45
-03. The Lumineers - Ho Hey 02:43
-04. Taylor Swift - I Knew You Were Trouble. 03:39
-05. Justin Bieber - Beauty And A Beat (Feat. Nicki Minaj) 03:48
-06. Ke$Ha - Die Young 03:33
-07. Maroon 5 - One More Night 03:39
-08. Flo Rida - I Cry 03:43
-09. Phillip Phillips - Home 03:30
-10. Macklemore & Ryan Lewis - Thrift Shop (Feat. Wanz) 03:55(   Читать дальше...   )Жанр: Pop, Funky, Dance, VocalПродолжительность: 02:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5EB6CCB1673756221B291B9EE99E0BBE6B2F78
 ```
 
 https://mybot314.ru/tekegram_catalog/

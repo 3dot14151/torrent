@@ -1,3 +1,32 @@
+###  Публикация: 857875   (589443) от 11.07.2015
+
+VA - Metal Duets Vol. 01 - 11(2015) [MP3|320 кб/с]<Metal>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raintime - Another Transition (Feat. Lars F. Jensen) [00:04:25]
+02. Heavenwood - Luna (Feat. Kai Hansen) [00:07:29]
+03. Fairyland - Assault On The Shore (Feat. Georg Neuhauser) [00:05:09]
+04. Damageplan - Fuck You (Feat. Corey Taylor) [00:03:08](   Читать дальше...   )Жанр: MetalПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D024FD162EFE26F5553D3973781292EAE9011B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551686   (588916) от 18.05.2022
 
 VA - New Rock 2022 [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ VA - Рок впрок (2015) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AB6A40313FEF1FC5193855CF21F93C27163CA50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869269   (572023) от 21.05.2019
-
-VA - Rock Party (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motorhead - Ace of Spades
-02. ACDC - Rock and Roll Train
-03. Guns and Roses - Paradise City
-04. Red Hot Chili Peppers - Otherside(   Читать дальше...   )Жанр: RockПродолжительность: 07:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9EE35621324370CF89333A1DAFB85D27D943F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

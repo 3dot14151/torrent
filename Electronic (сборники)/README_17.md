@@ -1,3 +1,32 @@
+###  Публикация: 972391   (982068) от 06.01.2016
+
+VA - Top 50 Progressive Trance (Paradise) (2015) [MP3|320 кб/с] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Driftmoon-Rise Of The Phoenix (Original Mix) [06:33]
+02. Omnia-Shanghai (Original Mix) [05:50]
+03. Timmus-Still Alive (Original Mix) [06:34]
+04. Craig Connelly-Rain (Original Mix) [07:01](   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 05:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741EE4A2C1D32D04A8AEEE4F2C3AE69B9B652F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972446   (982000) от 06.01.2016
 
 Calypso - We Move The Jumpin' Hype! (1996) Digitally Remastered [MP3|320 кб/с] <Rave, Hardcore, Hard Trance>
@@ -735,41 +764,6 @@ VA - Coming Home - Pop Lounge Music Deluxe (2015) [MP3|320 кб/с] <Lounge, Eas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7269B7B59D96CE4EF9E6BA189C54B602F31C65E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615362   (976899) от 09.02.2013
-
-VA - 20 Trance Hits (2005-2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amex & Bartlett Bros. feat Lizzie Curious - A New Dawn (Fabio XB Rework)
-02. Armin van Buuren feat Ana Criado - I'll Listen (Original Mix)
-03. Armin van Buuren pres. Gaia - Stellar (DNS Project Remix)
-04. ATB & Dash Berlin - Apollo Road
-05. ATB & Amurai feat Melissa Loretta - Heartbeat
-06. Cerf, Mitiska & Jaren - Beggin' You (Armin van Buuren Remix)
-07. DJ HaLF Ivan Flash - The Sound Of Disco (DJ PLSCH Remix)
-08. Fabio XB Feat. Micky Vi - Make This Your Day (Original Vocal Mix)
-09. Frank Lamboy - No Fear (extended mix)
-10. Gareth Emery feat. Christina Novelli - Concrete Angel (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0554A4AC41FE0D1E5A9F2D3F2B7868C94BD43EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

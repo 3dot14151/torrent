@@ -1,3 +1,29 @@
+###  Публикация: 1788003   (23193) от 28.03.2025
+
+Проекты - VideoHive - Thunder Storm Logo Reveal - 56749990 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый проект с логотипом молниями.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5D18BCE61AED1961BA49463A1119E01953F48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788278   (23099) от 29.03.2025
 
 Проекты - VideoHive - Fast Photo Intro Logo - 56812405 [AEP]
@@ -674,32 +700,6 @@ Falling Crystall Sphere Logo - разработан для придания от
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B5AFD7F042939D1EBB76DB2AC437DA4C3AD7436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810228   (17563) от 03.08.2025
-
-Проекты - VideoHive - 3D Music Visualizer - 18328303 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17563.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D Music Visualizer — идеальный шаблон для создания потрясающего музыкального клипа. Вы можете использовать его для продвижения своей музыки на YouTube, Vimeo или любом другом видеосервисе.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3852A058722F68C9D1D92AB1F56C35DD4AD502
 ```
 
 https://mybot314.ru/tekegram_catalog/

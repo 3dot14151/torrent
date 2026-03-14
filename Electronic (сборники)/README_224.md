@@ -1,3 +1,32 @@
+###  Публикация: 1795489   (19230) от 05.05.2025
+
+VA - Musical kaleidoscope part 39 Assorted (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Enigma French 52
+02. Dj Aurm - Just Say Yes
+03. Dj Lava - And Life Isn't That Long
+04. Danekoo1 - Girls on the Beach(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8E94512C8965ED2922CDE4D2F9B021F07A5AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796183   (18813) от 09.05.2025
 
 VA - Compilation Part 160 Electronic (2025) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - Contact 3: People & Machines (2025) [MP3|320 Kbps] <Minimal, Tech House, Ot
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF8DA86A04FB7EF84CF1A6E7F1A3151BA49AE483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804440   (13045) от 29.06.2025
-
-VA - Vocal Trance NNM 5 (2025) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darren Porter, That Girl - It Was Love - Radio Edit (4:36)
-02. Mainfield - Superstring (2:11)
-03. Allan Berndtz, U-G - Fantasy (2:11)
-04. Mashmex - Circle in the Sand (2:14)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7368F059A895A399DA08405126781A36F76C2FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

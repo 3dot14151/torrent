@@ -1,3 +1,177 @@
+###  Публикация: 1417429   (358419) от 20.10.2020
+
+Tito Puente - The Best of Tito Puente: The Millennium Collection (1991 - 1999) 2005, Hip-O Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El #100 [5:59]
+02. Hay Que Trabajar (with Oscar D'Leon) [4:56]
+03. Mambo Sentimental [3:27]
+04. Salsumba (with Domingo Quinones) [4:10](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban JazzПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0099317C1C9055C3B655AAB01A9DB6DCF19049CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328917   (358382) от 02.10.2019
+
+Debbie Davies - 13 Albums (1993 - 2015) [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из лучших представительниц явления, характерного для 90-х, "women with guitars". Гитаристка, певица, композитор Debbie Davies родилась 22 августа 1952 года в Лос-Анджелесе в семье известного голливудского аранжировщика и преподавательницы музыки. Первую гитару ей купили, когда Дебби исполнилось 12 лет. Пластинка Эрика Клэптона и группы "Блюзбрейкерс" (   Читать дальше...   )Список альбомов:
+1993 Picture This
+1994 Loose Tonight
+1997 I Got That Feeling (BPCD 5039)\Жанр: Modern Electric, Blues-RockПродолжительность: 10:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315F7E549385BC6E024829F8E9618543B0227BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071525   (357380) от 11.11.2016
+
+Bobby Jaspar - Modern Jazz Au Club Saint Germain (1955) 2011, Universal[FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bag's Groove [04:47]
+ 02.Memory of Dick [05:38]
+ 03.Milestones [05:55]
+ 04.Minor Drops [05:02](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C2145ADBA18F2D8EA5A6CF6002210B7DC8D6A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071574   (357378) от 11.11.2016
+
+Peggy Lee - Dream Street (1957) 1999, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Street Of Dreams [03:23]
+ 02.What's New [03:00]
+ 03.You're Blase [02:51]
+ 04.It's All Right With Me [02:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F579B922278EC9AC85A5D562CEDCE691D9246F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071885   (357377) от 11.11.2016
+
+Peggy Lee - Sea Shells (1958) 1999, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sea Fever [02:04]
+ 02.Nine Thorny Thickets [05:00]
+ 03.Little Old Car [01:12]
+ 04.Greensleeves [01:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76F287CD37758DF94F8EE6975B23CA36E2AA2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071534   (357338) от 11.11.2016
+
+Kurt Elling - The Beautiful Day: Kurt Elling Sings Christmas (2016) Sony Music Masterworks[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sing A Christmas Carol [04:35]
+ 02.Wenceslaus (Image I) [01:28]
+ 03.Star Of Wonder [02:04]
+ 04.We Three Kings [06:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0593A3349B162ACBDDAB88FC0067557FFE07AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071823   (357215) от 11.11.2016
 
 Tas Cru - Simmered & Stewed (2016) [MP3|320 Kbps] <Electric Blues>
@@ -571,180 +745,6 @@ Dave Liebman & Franco D'Andrea - Nine Again (1990) Red Record [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A6B2F7D77CE4454FA10BACC9FD75E43E1966D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577497   (354817) от 19.09.2022
-
-Too Slim And The Taildraggers - Brace Yourself (2022) Live [FLAC|Lossless|image + .cue] <Blues-Rock, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mississippi Moon (5:32)
-02. Fortune Teller (4:32)
-03. Cowboy Boot (7:37)
-04. Devil In A Doublewide (4:23)(   Читать дальше...   )Жанр: Blues-Rock, BluesПродолжительность: 01:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D18DB01D20CB239CD797BF7F4E02D485A8F762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577736   (354649) от 19.09.2022
-
-V.A. - Smooth Jazz n Chill Vol. 7 (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholas Cole - Feelings
-02. Michael Broening - Summer In Blue
-03. Cindy Bradley - Love Yourself
-04. Mark Jaimes - Evenin'(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A457A05FBD3CBB09ACCD99066443F32210282FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329281   (354599) от 04.10.2019
-
-Bud Shank & Bob Cooper - European Tour '57 (2006) Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vielaf [5:26]
-02. For Bud [4:25]
-03. Mademoiselle Butterfly [6:33]
-04. A Night in Tunisia [7:30](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E54782B591DFE8C0873803BEF82137CBF7647B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256571   (354413) от 22.10.2018
-
-Tiny Grimes - Five Classic Albums (1958, 1959) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354413.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Marchin' Along [17:40]
-02. A Smooth One [5:58]
-03. Blues Wail [6:47](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Guitar JazzПродолжительность: 04:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8147F987DD769183A918A5C8E6FC3633C4F090B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178766   (354095) от 29.10.2017
-
-Les & Larry Elgart - Best Of Big Bands (1940-e) 1990, CBS [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skyliner [02:15]
-02. Mood Indigo [02:43]
-03. Song Of India [02:38]
-04. So Rare [02:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E676D22875FCF7DECA4EDED36414157A120343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178768   (354093) от 29.10.2017
-
-Art Tatum - Trio Days (1944) 1999, Ars Nova [FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got Rhythm [02:20]
-02. Cocktails For Two [02:45]
-03. I Ain't Got Nobody [02:35]
-04. After You've Gone [02:31](   Читать дальше...   )Жанр: Stride, Piano JazzПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A29D667A6D7F5AF967557CFDFF592B54F9A03D
 ```
 
 https://mybot314.ru/tekegram_catalog/

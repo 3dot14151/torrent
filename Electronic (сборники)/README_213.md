@@ -1,3 +1,38 @@
+###  Публикация: 473798   (97795) от 27.03.2012
+
+VA - Dub Step vol.6 from AGR (2012) [MP3|256 kbps]<Dub Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geiom - Reminissin (feat. Marita)(Shackleton Refix)
+02. Alert - Any Less Dead
+03. Schaut! - Spacey Dub Chill
+04. Anstam - Aeto 2
+05. Boxcutter - Glyphic
+06. Mala - Changes
+07. Scorn - Super Mantis
+08. Silkie - Techno 22
+09. Vexd - Thunder
+10. George Lenton - Troll(   Читать дальше...   )2012Жанр: Dub StepПродолжительность: 08:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6785C069099DA21E9C529BEE66F557A30C8D6037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473210   (97758) от 27.03.2012
 
 VA - V2-GD [by Pack Master Ex.Mu.] (22.03.2012) [MP3|320 кб/с]<Dubstep>
@@ -843,41 +878,6 @@ VA - Seashore Desire #23 (2012) [MP3|320 kbps] <Uplifting Trance, Dream Trance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B2E0B25A7C1C6BA98DC3EA132AFDE5726A0CFB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462350   (95462) от 04.03.2012
-
-VA - Trance Eve Volume 23 (03.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95462.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
-002. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
-003. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix)
-004. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix)
-005. Snatt & Vix feat. Alexandra Badoi - Cold Shower (Original Club Mix)
-006. Billy Gillies - Digital Sundown (Paul Todd Remix)
-007. Cerf, Mitiska & Jaren - Down To You (Pulser Vocal Mix)
-008. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix)
-009. Headstrong feat. Shelley Harland - Helpless 2011 (Aurosonic Euphoric Remix)
-010. Marcos - Hypnotic (Activa Remix)03.03.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5282A4076641D7CCF417BB6363F09D8269536814
 ```
 
 https://mybot314.ru/tekegram_catalog/

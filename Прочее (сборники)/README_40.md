@@ -1,3 +1,32 @@
+###  Публикация: 1383070   (813737) от 14.05.2020
+
+VA - Classic Latin (2020) [MP3|320 Kbps] <Latin, Salsa, Rumba>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813737.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3ballmty - Quisiera Tenerte
+002. Morenito De Fuego - Amigos Con Derecho
+003. El Trono De Mйxico - Te Ves Fatal
+004. Gerardo Ortнz - El Omega(   Читать дальше...   )Жанр: Latin, Salsa, RumbaПродолжительность: 06:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CCE5D340061D9F9171AD9D99C42462B81E9B515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197548   (813666) от 08.01.2018
 
 VA - Навстречу Судьбе. 3 (8CD) от DON Music (2017) [MP3|320 Kbps] <Поп, Шансон, Русский Рок>
@@ -716,35 +745,6 @@ VA - The Best Russian Dance Hits Of 90's (2016) [MP3|256-320 кб/с] <Поп, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EDD99E3194F6BD750E5A37461026E7F672FD804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009249   (809546) от 21.04.2016
-
-VA - Need For Speed (2016) [MP3|256-320 кб/с] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Spencer & Brooklyn Bounce - Don't Stop (Raindropz! Remix)
-02. Nick Skitz & Raverockerz feat. Brooklyn Bounce - Rock The Party (Original Mix)
-03. Off Tap - Focus (Ryan N Remix)
-04. Xam Soto - Flatline (Original Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 05:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B2C36949175897F93EB82C7D78CA00684B8131
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 541549   (500429) от 01.09.2012
+
+VA - Радио Energy - NRJ HOT30 (31.08.2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Project - Musica
+02. Flo Rida - Whistle
+03. Loreen - Euphoria
+04. Oceana - Endless Summer
+05. Gotye feat. Kimbra - Somebody That I Used To Know (Bastian Van Shield rmx)
+06. Playmen - Fallin
+07. Tonic feat Erick Gold - Lead The Way
+08. Alex Ferrari - Bara Bar Bere Ber
+09. Far East Movement Feat. Junior Caldera & Natalia Kills - Lights Out
+10. Bel Suono & Dj Magic Finger - Te Quiero(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4D39EFC0EA0930C0196B699332F76B82EC1C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316712   (500283) от 01.08.2019
 
 VA - 100 Songs Part 2 (2019) [MP3|320 Kbps] <Pop, Rock>
@@ -791,35 +826,6 @@ VA - Клубные Новинки Vol.124 (2012) [MP3|320 кб/с]<Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7516202B3C96A48842410AD0234D0589C2096E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565041   (496578) от 22.07.2022
-
-VA - Euro-Shturm From Ovvod7 & tiv44 (001-055 CD) (2020-2022) [MP3|320 Kbps] <Eurodance, Euro House, Eurobeat>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496578.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 - Euro-Shturm From Ovvod7 & tiv44 - CD - 0001
-
-01. Shanana - Wigwam ( Radio Edit )
-02. Ororo - Ode To My Family ( Happy Time Mix )(   Читать дальше...   )Жанр: Eurodance, Euro House, EurobeatПродолжительность: 71:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F755A043DBA00FE3EE7FBB2BB29654936DD4B45C
 ```
 
 https://mybot314.ru/tekegram_catalog/

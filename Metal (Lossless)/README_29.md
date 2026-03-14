@@ -1,3 +1,293 @@
+###  Публикация: 1468953   (1016780) от 10.05.2021
+
+Marius Danielsen's Legend Of Valley Doom - The Legend Of Valley Doom (Part 3) (2021) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Ancient Artefacts
+02. Journey To The North
+03. The Ballad Of Arnoth The Wild
+04. Mines Of Eloroth(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3FA30FE56ED44180D29C37233982C9AD6A32DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469226   (1016617) от 11.05.2021
+
+Dammaj - Mutiny (1986)  Reissue, 2012, Skol Records [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smuggler
+02. Devils & Angels
+03. March Of The Gladiators
+04. Without You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294F8631306324D41CDD0AC73228F7AA9ABC6FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469407   (1016460) от 12.05.2021
+
+Arthemis - The Damned Ship (2001) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quest For Immortality
+02. Voice Of The God
+03. Sun's Temple
+04. Starchild(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Thrash MetalПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9E79836FDE16AAE48B4CC372B27E161B5EB7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469404   (1016454) от 12.05.2021
+
+Arthemis - We Fight (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocalyptic Nightmare
+02. Empire
+03. We Fight
+04. Blood Of Generations(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Thrash MetalПродолжительность: 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AA1A72117EF99C2F8C4EE0E593C160F869EC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469431   (1016448) от 12.05.2021
+
+Immortal Synn - Force of Habit (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anamnesis (04:31)
+02. Fight the Prince (04:28)
+03. F.U.D.C. (04:37)
+04. The Ballad of Marvin Heemeyer (04:21)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179838F57021A9DAAAECC9868E2EB03F48B2830F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469355   (1016446) от 12.05.2021
+
+Cult of Luna - The Raging River (2021) EP [FLAC|Lossless|image + .cue] <Progressive Metal, Post Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Bridges (8:45)
+02. What I Leave Behind (5:58)
+03. Inside Of A Dream (3:20)
+04. I Remember (8:09)(   Читать дальше...   )Жанр: Post-MetalПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023074C02B1E35904CE9A843B7436B181459FFEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469633   (1016169) от 14.05.2021
+
+Batushka - Raskol (2020) EP [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Irmos I (4:48)
+02. Irmos II (5:51)
+03. Irmos III (6:33)
+04. Irmos IV (7:36)(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55BB711AA432532CCB4939048FB0671D3701344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469626   (1016168) от 14.05.2021
+
+Batushka - Черная Литургия (2020) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Знаменный Распиев / Znamiennyj Raspiew (0:35)
+02. Ирмос / Irmos I (4:42)
+03. Ирмос / Irmos II (6:08)
+04. Ирмос / Irmos III (6:45)(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7FB4067B841976F47802167E79342A1E1D098C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470018   (1016000) от 15.05.2021
+
+Artas - Riotology (2011) [FLAC|Lossless|image + .cue] <Melodic Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Journey Begins...
+02. Fortress Of No Hope
+03. The Day The Books Will Burn Again
+04. The Suffering Of John Doe(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C6237F56FEF8CDA98BDD62231B57210BBA2EC34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469925   (1015998) от 15.05.2021
+
+Antioch - Antioch V (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hang The Eagle
+02. On A Ledge
+03. A Facade At The Third Castle
+04. Demon Wick(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA6859A3F5B978B332F02D38053A7843E5BD187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469920   (1015995) от 15.05.2021
 
 Fortunato - Insurgency (2021) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Heavy Metal>
@@ -455,296 +745,6 @@ Mustasch - Powerhouse (2005) [FLAC|Lossless|image + .cue] <Stoner Metal, Heavy M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A0572CDCEE13444534B70E1F4BAF9DA879AAFBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470805   (1015337) от 19.05.2021
-
-Mustasch - Killing It For Life (2020) [FLAC|Lossless|image + .cue] <Stoner Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Angels Fear To Tread (4:08)
-02. Ransacker (5:13)
-03. Before A Grave (5:06)
-04. Freddie Mercury (4:53)(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0552C35BDDDC088C3281B6276ED4195A7035E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471046   (1015333) от 19.05.2021
-
-Angel Witch - Angel Of Light (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Turn Your Back
-02. Death From Andromeda
-03. We Are Damned
-04. The Night Is Calling(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57088BB5DD1607E68875A18F39E10928B395E777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471080   (1015332) от 19.05.2021
-
-Angel Witch - As Above, So Below (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Sea Scrolls
-02. Into The Dark
-03. Geburah
-04. The Horla(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712F3674F7DCEB070EA109BE963C4754920FD020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471360   (1015174) от 20.05.2021
-
-Revolverz - Work Hard, Play Harder (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Work Hard, Play Harder
-03. Honey & Cream
-04. Razorsharp Racer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AEDF932C6EA4F84607CB0C57C882B40E0080990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471535   (1015017) от 21.05.2021
-
-Anvil - Pounding The Pavement (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bitch In The Box
-02. Ego
-03. Doing What I Want
-04. Smash Your Face(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8991FF3C5081B641A2E4B2D02335AA22858B2C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471706   (1015009) от 21.05.2021
-
-Artillery - X (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil's Symphony (4:33)
-02. In Thrash We Trust (4:09)
-03. Turn Up The Rage (4:10)
-04. Silver Cross (4:31)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12755F76CF4D7FF2DB563E2678D5E58213E3BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471602   (1015007) от 21.05.2021
-
-Liquid Steel - Mountains Of Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traveller In Time
-02. Victim Of The Night
-03. Heavy Metal Fire
-04. Mountains Of Madness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734FAA7759ECA26ADB13E839FA9909399A413E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471532   (1015006) от 21.05.2021
-
-Agent Steel - No Other Godz Before Me (2021) [FLAC|Lossless|image + .cue] <Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passage to Afron-V (2:15)
-02. Crypts of Galactic Damnation (4:11)
-03. No Other Godz Before Me (4:37)
-04. Trespassers (4:01)(   Читать дальше...   )Жанр: Speed MetalПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3517BCAF4C69E71F879572F1F4A64422B49112AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471619   (1015003) от 21.05.2021
-
-Herman Frank - Two For A Lie (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teutonic Order
-02. Venom
-03. Hate
-04. Eye Of The Storm(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D17A38792ED35A49FED91E42C156A6CF4C399E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471484   (1015001) от 21.05.2021
-
-Artem Illusio - Artem Illusio (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beast (04:16)
-02. The Temple of My Soul (03:49)
-03. Pharaoh (04:58)
-04. Forgiven by the Sun (05:29)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A96C0E1404056B99D69834746CF9DA582D255F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

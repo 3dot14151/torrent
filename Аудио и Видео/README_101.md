@@ -1,3 +1,32 @@
+###  Публикация: 1528049   (735414) от 31.01.2022
+
+VA - Chillaxing Time, Vol. 10 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tapelapse - Daydreaming (2:10)
+02. Weathertunes - Long Beach (Original Mix) (5:22)
+03. Minus Blue - Ocean Sky (Original Version) (5:23)
+04. Tapelapse - Benztown Lo-Fi (3:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44AC2E13F134ADBA53E585EF29B23436355C2108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528045   (735413) от 31.01.2022
 
 VA - Chillaxing Time, Vol. 07 (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
@@ -710,35 +739,6 @@ Darpan & Bhakta - Temple of Glowing Sound, Vol. 1 (2006) [AAC|~341 Kbps] <Tribal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E68889A0D6C793889DDCB33298CA10076E4C6C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528465   (734475) от 02.02.2022
-
-VA - Ibiza Live Radio 2 (2019) [AAC|~318 Kbps] <Chill Out, Downtempo, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Crystal Light (Original Mix) (5:48)
-02. Helly Larson, Miss Disk - Deep Dreams (Original Mix) (6:58)
-03. Darles Flow - Myth of Living (Original Mix) (6:18)
-04. Miss Luna, Q Derhino - Welcome to the Family (Original Mix) (6:33)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Deep HouseПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFCF09AFD17104F060B339B78828F6BA7FDF470
 ```
 
 https://mybot314.ru/tekegram_catalog/

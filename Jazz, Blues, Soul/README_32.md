@@ -1,3 +1,61 @@
+###  Публикация: 1455313   (1025856) от 18.03.2021
+
+Toots Thielemans & Kenny Werner (2001) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolphin Dance [7:08]
+02. The Dolphin [7:00]
+03. Sinatra Medley [5:58]
+04. Tender Is the Night [3:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2D217F1239FAD212215DB55FBA6E90F9FA04FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455223   (1025852) от 18.03.2021
+
+Abus Dangereux - Bis (1982) 2015, Musiclip [FLAC|Lossless|WEB-DL|tracks] <azz-Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025852.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Radio Pékin - 04:05
+2. Phaedra - 08:34
+3. Nostalgy Square - 08:39
+4. Bulletin météo - 08:14(   Читать дальше...   )Жанр: azz-Rock, FusionПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A4B5161F5417819B4C576981BDC0AC578BF3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455319   (1025813) от 18.03.2021
 
 Peggy Lee - Black Coffee & Dream Street: The Complete Sessions (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Brandon Miller - Virtue and Vice (2021) [FLAC|Lossless|image + .cue] <Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BB6BD07A5DDF34BAE2E38049B627D2C3AAA3823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456979   (1024784) от 24.03.2021
-
-Othman Wahabi - The Blues Whisperer (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babylon's Falling (4:24)
-02. Fattening Frogs for Snakes (4:43)
-03. Taking the Blues Back Home (5:16)
-04. The Blues Whisperer (4:14)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4F38AD3E19D8BC14A0DCE08794B86D5F0B4044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456974   (1024781) от 24.03.2021
-
-Oscar LaDell - Love & Revolution (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Those Who Are Lost) (1:31)
-02. Change the World (Pt. 1) (3:18)
-03. Change the World (Pt. 2) (1:25)
-04. Moonlight (3:32)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38CF54EC0D07019C61174F027ED93621884A80F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

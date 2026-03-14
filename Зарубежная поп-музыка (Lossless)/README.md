@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1858405   (1060547) от 12.03.2026
+
+VA - KuschelRock: Always & Forever (Wedding Edition) (2011) 3 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Philharmonic Orchestra - Hochzeitsmarsch Aus ''Ein Sommernachtstraum'' (5:43)
+02. David Garrett - Nothing Else Matters (3:31)
+03. Kate Royal & Academy of St Martin in the Fields - In Trutina (Carmina Burana) (2:31)
+04. Leonard Bernstein - Serenade in G Major, K. 525 ''Eine Kleine Nachtmusik'': II. Romance. Andante (6:33)(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 03:50:02.773 (608 702 304 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5EF19638FB09D75A0EC34103A1366753D01B884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858266   (1060273) от 10.03.2026
+
+Kim Wilde - Premium Gold Collection (1996) [FLAC|Lossless|tracks+.cue] <New Wave, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kids In America (03:27)
+02. Chequered Love (03:21)
+03. 2-6-5-8-0 (03:12)
+04. You´ll Never Be So Wrong (04:17)(   Читать дальше...   )Жанр: New Wave, Pop, RockПродолжительность: 01:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1811931E260DAFF4463D202297E60C010AB914CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858246   (1060246) от 10.03.2026
+
+VA - Kuschelrock Rock Hymnen (2010) 2 x CD, Compilation, Special Edition [FLAC|Lossless|image + .cue] <Pop Rock, Ballad, Classic Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faith No More - Easy (3:06)
+02. Simple Minds - Alive And Kicking (4:32)
+03. Michael Jackson - Dirty Diana (4:41)
+04. Alannah Myles - Black Velvet (4:46)(   Читать дальше...   )Жанр: Pop Rock, Ballad, Classic RockПродолжительность: 02:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA598C0209FC83902426F6DC2EF8A756E54E00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858257   (1060245) от 10.03.2026
+
+VA - KuschelRock Special Edition - Lovesongs Of The 80's (2009) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_1060245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Jackson - I Just Can't Stop Loving You (4:11)
+02. George Michael - Father Figure (5:37)
+03. Spandau Ballet - Through The Barricades (5:34)
+04. A-HA - Hunting High And Low (3:43)(   Читать дальше...   )Жанр: Electronic, Rock, Funk / Soul, PopПродолжительность: 02:36:03.880 (412 947 108 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE60C27025FCC81A9B781D6115FC493B63746407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857835   (1060039) от 07.03.2026
 
 Julio Iglesias - Starry Night (1990) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Stage & Screen>
@@ -628,122 +744,6 @@ One Direction - Up All Night (2012) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B268081388719C74CA7BD92F45F684AAF5D2B638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852239   (1055588) от 06.02.2026
-
-VA - 70s Acoustic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joni Mitchell - A Case of You - (04:23)
- 02. JAMES TAYLOR - Fire and Rain - (03:21)
- 03. Carly Simon - You're So Vain (2023 Remaster) - (04:18)
- 04. ROD STEWART - I Don't Want to Talk About It - (04:52)(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 03:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0C65125863C08DA52E58DC50797E06B02630EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851760   (1055570) от 04.02.2026
-
-VA - 70's Vibe (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Doors - Riders On the Storm - (07:15)
- 02. Talking Heads - Take Me to the River (Edit) - (03:37)
- 03. Chic - Le Freak - (03:30)
- 04. Alice Cooper - School's Out - (03:30)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 02:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2D91B75C142060B678BB19794C6BE89FCF4C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851758   (1055569) от 04.02.2026
-
-VA - 1976 - Best of (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - Dancing Queen
-02. Queen - Good Old-Fashioned Lover Boy (Remastered 2011)
-03. Stevie Wonder - Isn't She Lovely
-04. Bee Gees - You Should Be Dancing(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 04:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38CD5B8FE44F1AFE70BF8202F766D344B822ED25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851956   (1055537) от 04.02.2026
-
-VA - The 100 Greatest Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055537.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bruno Mars - Just the Way You Are - (03:41)
- 002. Rod Stewart - Have I Told You Lately - (03:58)
- 003. Roberta Flack - Killing Me Softly with His Song - (04:47)
- 004. Fleetwood Mac - Landslide (2018 Remaster) - (03:20)(   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 06:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95116DE2D5403868D88C105ED28C199CF7A655C
 ```
 
 https://mybot314.ru/tekegram_catalog/

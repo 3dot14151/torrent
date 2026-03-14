@@ -1,3 +1,32 @@
+###  Публикация: 1029780   (678595) от 28.06.2016
+
+VA - Turbo Dance. Mix Music (2016) [MP3|233-320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678595.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Degree - Hunny Bunny
+2. Bad Booty Brothers - Worth It (Radio Edit)
+3. Barby G - What’s Up (Radio Edit)
+4. Aura - Love Somebody(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64B280668E9D03BB26E777E7DD2456E32CA94DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290287   (678480) от 20.03.2019
 
 VA - YR Best Chillout vol.42 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -722,35 +751,6 @@ VA - Moon Faze (2016) [MP3|320 Kbps] <Downtempo, Deep House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4158589AC4B2225744282BB497E027EB3DF6EFFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029942   (675005) от 30.06.2016
-
-VA - The Sweet Lounge Vol.7: Lounge in Naples (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Cardillo - Shiraz
-02. Andrea Cardillo - Another Direction
-03. Andrea Cardillo - Asiatic Girl
-04. Brass - Alley Cat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3347E5FB9908E00A87FE7F3DE48BFBD72E14B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

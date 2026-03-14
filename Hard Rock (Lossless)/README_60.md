@@ -1,3 +1,119 @@
+###  Публикация: 1337875   (267124) от 18.11.2019
+
+Lover Under Cover - 2 альбома Collection (2012-2014) [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Under Cover - A Fight 04:37
+02. Lover Under Cover - Into The Shadows 04:01
+03. Lover Under Cover - Miracle 03:43
+04. Lover Under Cover - Toy Soldier 04:25(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766C6F5E3E0F6AF1768F8E0CE9BAD8DC3AA248D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337952   (267120) от 18.11.2019
+
+Mikael Erlandsson - 5 альбомов Collection (1995-2002) [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mikael Erlandsson - Out Of Champagne 03:18
+02. Mikael Erlandsson - Stop (Following Me) 04:07
+03. Mikael Erlandsson - I Love You 04:16
+04. Mikael Erlandsson - Soul Is My Neme 04:39(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 04:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611AEA84E81A9D7F20DF792C4833F66F02880C32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339599   (265337) от 20.11.2019
+
+Last Autumn's Dream - 18 Альбомов Collection (2003-2018) 19CD [FLAC|Lossless|image + .cue]<Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2003 – Last Autumn's Dream
+2004 – Last Autumn's Dream II
+2005 – Winter In Paradise(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 16:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8323FC75131FF6EE061DF0869FD84E89DC050D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339826   (264672) от 21.11.2019
+
+W.E.T. - 4 Альбома Collection (2009-2018) 5 CD [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2009 – W.E.T.
+2013 – Rise Up
+2014 – One Live(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 04:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70778CCD7C9F76CF4D66E768D5A8535F76F30D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486535   (264501) от 21.11.2019
 
 AC/DC - Greatest Hell's Hits (2009) [FLAC|Lossless]<Hard Rock>
@@ -640,128 +756,6 @@ Angels In Vein - Long Time Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:673F44839E99CFBE649FD5D6EEEE5616484F8B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459687   (254211) от 18.05.2012
-
-Def Leppard - 12 Альбомов, 8 изданий, 19 CD (1980-2008)  [FLAC|Lossless]<Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-1980 - On Through The Night (Japan UICY-93450)
-1981 - High 'N' Dry (818 836-2 Y-1)
-1983 - Pyromania
-1987 - Hysteria
-1992 - Adrenalize
-1993 - Retro Active
-1995 - Vault. Def Leppard Greatest Hits 1980-1995 (528 656-2)
-1996 - Slang (UK 532 493-2)
-1999 - Euphoria (Limited Edition UK 546 307-2)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 17:37:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836398   (252547) от 10.11.2025
-
-Deep Purple - Rapture Of The Deep (2005) 2XCD, Reissue, Remastered, 2025, Ear Music, Remixed, Digipak, 20th Anniversary [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252547.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1-1 Money Talks 5:35
-1-2 Things I Never Said 4:47
-1-3 Rapture Of The Deep 5:55(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D92E9575AFFDC487CA124231BB2915DAA5EBDB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836121   (252289) от 08.11.2025
-
-God's Gift - God's Gift (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Going Back 03:52
-02. Call Me Bad 04:19
-03. Dogs On The Run (Radio Edit) 04:19
-04. Put It Where You Want It 04:32(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264ACB6534DFEEE15B56CEE26A460A8F52FFDF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001060   (252039) от 25.05.2023
-
-Guns n' Roses - 9 альбомов, 1 EP, 2 Box Set (1987 - 2022) 33 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Glam>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наиболее дискуссионная американская хэви-рок группа конца 80-х годов "Guns N' Roses" известна среди людей, которые отнюдь не интересуются музыкой, благодаря вызывающе эпатажному поведению музыкантов. Хотя, надо отдать должное их творчеству, от отсутствия музыкальных фанов "Guns N' Roses" тоже не страдают. Несмотря на длительное затишье в их деятельности (   Читать дальше...   )Список альбомов:
-1987 - Appetite For Destruction
-1987 - EP
-1988 - G N' R LiesЖанр: Hard Rock, GlamПродолжительность: 34:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F8F2F3D23809BBCFDA00772347DC7CEFEFAFAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

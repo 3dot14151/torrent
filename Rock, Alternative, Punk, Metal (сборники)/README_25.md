@@ -1,3 +1,32 @@
+###  Публикация: 869269   (572023) от 21.05.2019
+
+VA - Rock Party (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motorhead - Ace of Spades
+02. ACDC - Rock and Roll Train
+03. Guns and Roses - Paradise City
+04. Red Hot Chili Peppers - Otherside(   Читать дальше...   )Жанр: RockПродолжительность: 07:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9EE35621324370CF89333A1DAFB85D27D943F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 822158   (572000) от 21.05.2019
 
 VA - Не Попса. Rock - Cocktail (2014) [MP3|320 кб/с]<Rock, Hard Rock>
@@ -716,35 +745,6 @@ VA - Я Проткну Себе Ж_пу Ножом (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E960D2F2E3CB3977F4523CCD9A2B2D3AFEAD165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237113   (552227) от 23.07.2018
-
-Metallica - Time For One...Or 3...Or 7 (EP) (2018) [MP3|320 Kbps] <Thrach Metal, Heavy>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Outlaw Torn (Unencumbered By Restrictions)
-02. Bass Solo
-03. Killing Time
-04. Guitar Solo(   Читать дальше...   )Жанр: Thrach Metal, HeavyПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35088B4B9F6728598A694EFAC00DDC37F59E7532
 ```
 
 https://mybot314.ru/tekegram_catalog/

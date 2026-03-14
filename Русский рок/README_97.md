@@ -1,3 +1,90 @@
+###  Публикация: 1434495   (149894) от 25.12.2020
+
+Last Trial - А Время Шло (2020) [MP3|320 Kbps] <Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149894.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вступление 00:52 instrumental
+2. А Время Шло 03:52
+3. В Жизнь 03:45
+4. Право На Месть 04:23(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:22:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EF4513D6605EC74C84F5F99E7DF60206382719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434686   (149812) от 25.12.2020
+
+Distemper - На троих (2020) [MP3|320 Kbps] <Ska Punk, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149812.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Феназепам
+2. Математика
+3. Получить ответ
+4. Слёзы(   Читать дальше...   )Жанр: Ska Punk, AcousticПродолжительность: 00:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B08D934CF61B1E61567257EA74BB76EE004F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086747   (149797) от 25.12.2016
+
+Леонид Фёдоров - Псалмы (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Псалом 62
+02. Псалом 3
+03. Псалом 132
+04. Псалом 90(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDAABD16363277A6D3995D0894A3116311BA00D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519299   (149759) от 23.12.2021
 
 ХИЛЛАРИ - Кассеты: Прости. Прощай (2021) [MP3|320 Kbps] <Alternative>
@@ -650,91 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D49B2BFE67C6FDA8C92A916FC6833E692FF4C58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347928   (146360) от 26.12.2019
-
-Ильин - Год (2019) [MP3|320 Kbps] <Rock, Neo-classic, metal, singer-songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146360.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ст. 45
-2. Колышки и крепости
-3. Сад
-4. Вера(   Читать дальше...   )Жанр: Rock, Neo-classic, metal, singer-congwriterПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6476CF25C0D08C7DC95BC5EDFA2982F007F42C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678412   (146217) от 21.11.2023
-
-Border Cross - 2 Albums (2006-2008) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2006 - По разным берегам
-2008 - Детям цветовЖанр: Alternative RockПродолжительность: 2 CD, 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2A372DE794FE695B3CCC907F2A2305F4D8AA42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272181   (145768) от 26.12.2018
-
-Catharsis - Время потерь (2018) EP [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145768.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Время потерь
-2. Xanandra (Оленька)
-3. Рассветный зверь (ver. 20.18)Жанр: Power MetalПродолжительность: 00:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DA5C436B14F74A7D98EE4CA73DFAA8377ECB41
 ```
 
 https://mybot314.ru/tekegram_catalog/

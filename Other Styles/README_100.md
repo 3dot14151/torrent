@@ -1,3 +1,154 @@
+###  Публикация: 1242108   (516112) от 21.08.2018
+
+Cyril Baranov - Rosa (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. April – 3:28
+02. Rosa – 4:07
+03. Ghost River – 5:47
+04. Sunflowers Red – 4:27(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F3E78917DCAEE43CAA83A77F4BD7C9F8C8E8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241960   (516030) от 21.08.2018
+
+VA - Street Hits 70s (2018) [MP3|320 Kbps] <Boogie, R&B, Soul-Jazz, Gospel Music, Dance, Disco, Country>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Sledge - He's the Greatest Dancer
+02. Chaka Khan - I'm Every Woman (Lew Hahn Remix)
+03. Slave - Just a Touch of Love
+04. Candi Staton - Young Hearts Run Free(   Читать дальше...   )Жанр: Boogie, R&B, Soul-Jazz, Gospel Music, Dance, Disco, CountryПродолжительность: 02:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9F1A462B5E9C1815DF0DAB36F768529E7AB8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561223   (515531) от 04.07.2022
+
+Bernward Koch - Tree Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Key (2:40)
+ 02. Inner Light (4:09)
+ 03. Lonely Pinwheel (2:49)
+ 04. Warm Fall Sun (3:01)(   Читать дальше...   )Жанр: New Age, Modern Classical, PianoПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52416231708C722DB98A66106F0FF173738ABD94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536187   (515361) от 17.08.2012
+
+Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515361.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:17:32
+
+01. Conquest Of Paradise
+02. Titles From Chariots Of Fire
+03. Blade Runner (End Titles)
+04. Pulstar
+05. Eternal Alexander
+06. Anthem - 2002 Fifa World Cup Official Anthem
+07. Line Open(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:35:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315205   (515015) от 18.07.2019
+
+Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Experimental, Indie, Post-Rock, Electronic, Noise>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DRUMS 1 (05:28)
+02. DRUMS 2 (05:08)
+03. DRUMS 3 (07:27)
+04. DRUMS 4 (12:52)Жанр: Experimental, Indie, Post-Rock, Electronic, NoiseПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2CAA724D576019D2DA60099E93942458619565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930498   (514763) от 23.08.2015
 
 VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
@@ -613,157 +764,6 @@ Alkualat - Space Journey (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10CD75EDF0D507DA466C7C28ACC46B072FE33C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932772   (508242) от 30.08.2015
-
-Phildel - Qi (2015) [MP3|320 кб/с]<Piano, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice-Float
-02. Icarus
-03. Dragonfly Keeper
-04. Winter Valley(   Читать дальше...   )Жанр: Piano, New AgeПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D594D4419E9FB05B193C5D1A6692B5D3746BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932471   (508231) от 30.08.2015
-
-Shooglenifty - The Untied Knot (2015) [OGG| 462-531 кб/с]<World, Folk Rock, Celtic Fusion>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Untied Knot | The Fall | Mile Marbhaisg Air A' Ghaol
-02. The Scorpian | The Devil's Breath Hornpipe
-03. Samhla Reel | Scolpaig
-04. Somebody's Welcome To Somewhere(   Читать дальше...   )Жанр: World, Folk Rock, Celtic FusionПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD935525C7E75128C7BC60AF541AD5CB1AA44F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932461   (508047) от 30.08.2015
-
-Francisco Canaro - Tango Collection (2010) [MP3|192 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Poema
-02 - Golondrinas
-03 - Cambalache
-04 - No Hay Que Hacerse Mala Sangre(   Читать дальше...   )Жанр: TangoПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F21341C1039622A539146BB1CA4A7FB7923EE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 231813   (507943) от 01.09.2010
-
-Paco De Lucia - 38 albums (1965 - 2005) [MP3|160-320 kbps]<Flamenco>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507943.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:14) 01. Zyryab Melodia del Puente de J.A. Amargos
-(3:20) 02. Guajiras de Lucia
-(3:09) 03. Cobre Sevillanas
-(4:51) 04. Monasterio de Sal Coluombianas
-(4:17) 05. Cana de Azucar
-(3:24) 06. Barrio la Vina Alegrias
-(5:02) 07. Tio Sabas Homenaje A Sabicas
-(4:35) 08. La Barrosa Alegrias
-(5:42) 09. La Cueva del Gato Rondena
-(4:41) 10. Chiquito(   Читать дальше...   )Жанр: FlamencoПродолжительность: 01:57:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932731   (507889) от 30.08.2015
-
-Jean-Michel Jarre - Essential Recollection (2015) [FLAC|Lossless|WEB-DL]<Ambient, New-age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene, Pt. 2
-02. Arpegiateur (Live)
-03. Oxygene, Pt. 4
-04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9822F81DFA15733D0D63BA11511E8A87E5EDFDC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

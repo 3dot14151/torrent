@@ -1,3 +1,149 @@
+###  Публикация: 1290663   (676583) от 21.03.2019
+
+Victor Reyes - Down A Dark Hall (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Way (2:05)
+02. Kit & Jules (1:06)
+03. Welcome to Blackwood / This is Where You’ll be Sleeping (1:52)
+04. In Your Old Lives (1:18)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF94431591EC27233F6DFBDCD55FB5C2D3AED0F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290671   (676324) от 21.03.2019
+
+Jeff Beal - House Of Cards - Season 6: Music From The Netflix Original Series (2019) 2CD [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bittersweet (06:00)
+02. How to Walk Away (02:18)
+03. Not One of Us (01:48)
+04. Attack on Progress (01:26)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A0D8CD617742F3B0746282B92DAE909F51FE0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508108   (676057) от 11.06.2012
+
+VA - Вечерняя Коллекция (Звуки природы) (2010) [FLAC|Lossless]<Музыка для медитации и релаксации>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_676057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peaceful Widerness
+02. Mountain Moods
+03. Mysterious Rainforest
+04. Symphony Of Whales
+05. Fantastic Sailboat Voyage
+06. Dolphins Delight
+07. Loonscape
+08. Subarctic SoundЖанр: Музыка для медитации и релаксацииПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509231   (676055) от 11.06.2012
+
+Жизнь и приключения Мишки Япончика / Однажды в Одессе (2011) [MP3|320 кб/с] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OSTПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FC98668590DAD06370E38E9409490767CEA812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136439   (674901) от 22.05.2017
+
+NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Take A Minute (3:43)
+02 - Sunshine Good Times (3:26)
+03 - Make Each Moment Last (3:47)
+04 - Here Now Forever (2:55)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E187B2A3264D710D67A07F671942012693201ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030318   (674414) от 30.06.2016
 
 J Stallworth - Unleashed (2016) [MP3|320 Kbps] <Instrumental>
@@ -612,157 +758,6 @@ Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5F75CE4318E47131379924528E2B5F3C3149B7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510072   (670316) от 14.06.2012
-
-Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_670316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Black Grass - Yesterday's gone (4:42)
-2. Free The Robots - Yoga Fire (2:56)
-3. Clark - Vengeance Drools (3:41)
-4. Dj Shadow - This Time (3:07)
-5. Kno (of Cunninlynguists) - My First Song (3:10)
-6. Amon Tobin - Get Your Snack On (4:22)
-7. CunninLynguists - Hellfire (2:29)
-8. Ministry - Jesus Built My Hotrod (4:52)
-9. Damian Marley - Something For You(One Loaf of Bread) (3:17)
-10. DJ Krush - Song for John Walker (feat. Anticon) (Sticky mix) (5:33)2008Жанр: SoundtrackПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030661   (670047) от 02.07.2016
-
-The Witcher 2: Assassins of Kings (Original Soundtrack) (2012) Enhanced Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Skorupa & Krzysztof Wierzynkiewicz - In Temeria (Intro) (01:31)
-02. Adam Skorupa & Krzysztof Wierzynkiewicz - Assassins of Kings (02:07)
-03. Krzysztof Wierzynkiewicz - A Nearly Peaceful Place (04:06)
-04. Adam Skorupa & Krzysztof Wierzynkiewicz - Arena of Rage (01:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB4FFF063209C3D2610F6DFC8D1C7EA518376EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136963   (669132) от 25.05.2017
-
-The Romantic Strings and Orchestra - Great Broadway Favorites (1993) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oklahoma - Oh, What a Beautiful Mornin' (3:10)
-02. My Fair Lady - I Could Have Danced All Night (2:39)
-03. South Pacific - This Nearly Was Mine (2:50)
-04. Annie Get Your Gun - The Girl That I Marry (2:34)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3297D3068045655BD050DAE90619B0BFB159129A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291669   (668804) от 25.03.2019
-
-Cole Swindell - All of It (2018) [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love You Too Late
-02. All Of It
-03. Somebody's Been Drinkin'
-04. Sounded Good Last Night(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75253406316A1EDB5CF5723E467D8E803B75BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291586   (668668) от 25.03.2019
-
-Baba Yaga's Stew - Baba Yaga's Stew (2019) [FLAC|Lossless|tracks + .cue] <Folk, Contra Dance>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lörincreve, Amari Szi (3:20)
-02. Tirontanita, Anaconda (3:51)
-03. La Bruja (3:38)
-04. Koga Ke Odish Mome Za Voda, Üsküdar (4:54)(   Читать дальше...   )Жанр: Folk, Contra DanceПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13DCA18FF7268318EBE5CACDCA1CFB12ED931091
 ```
 
 https://mybot314.ru/tekegram_catalog/

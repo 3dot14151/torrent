@@ -1,3 +1,94 @@
+###  Публикация: 1560397   (520881) от 29.06.2022
+
+Fame on Fire - Levels (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Post-hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cover Band (Intro) [00:01:02]
+02. Her Eyes [00:03:15]
+03. Not Dead Yet [00:03:22]
+04. I'm Fine [00:03:38](   Читать дальше...   )Жанр: Alternative rock, Post-hardcore, MetalcoreПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DFB1501E5FD6893310F389EB75F4AFF760A855F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533879   (520854) от 12.08.2012
+
+Dead Can Dance - Anastasis (2012) [FLAC|Lossless]<Ambient, Ethereal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520854.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Children Of The Sun [7:33]
+2. Anabasis [6:51]
+3. Agape [6:54]
+4. Amnesia [6:37]
+5. Kiko [8:02]
+6. Opium [5:45]
+7. Return Of The She-King [7:51]
+8. All In Good Time [6:38]Жанр: Ambient, Darkwave, Gothic, EtherealПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241754   (518350) от 19.08.2018
+
+Blue October - I Hope You’re Happy (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight
+02. Your Love Is Like A Car Crash
+03. I Want To Come Back Home
+04. I’ll Do Me, You Do You(   Читать дальше...   )Жанр: Alternative Rock, Art RockПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2319A5B1007AC6B7B4B86B102D938DA11689B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314653   (518258) от 15.07.2019
 
 311 - Voyager (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Reggae Rock, Rap Rock, Funk Metal>
@@ -657,93 +748,6 @@ Craig Finn - We All Want The Same Things (2017) [FLAC|Lossless|tracks + .cue] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A7B9F62228A305B69EE4BE1FE35EA9614AA8535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316000   (508837) от 23.07.2019
-
-Craig Finn - I Need a New War (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blankets (04:10)
-02. Magic Marker (03:49)
-03. A Bathtub in the Kitchen (04:39)
-04. Indications (04:52)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4990A94AA4E0BDCE0C169416924E8EE88CDA5EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315996   (508830) от 23.07.2019
-
-Biffy Clyro - MTV Unplugged (2018) Live at Roundhouse London [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Captain (04:35)
-02. Biblical (04:33)
-03. Re-arrange (04:10)
-04. Drop It (02:46)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA3E692553C9218508BCDC94880B534D84E29AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315991   (508828) от 23.07.2019
-
-Biffy Clyro - Ellipsis (2016) Japan [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolves of Winter (04:09)
-02. Friends and Enemies (04:13)
-03. Animal Style (03:31)
-04. Re-arrange (03:38)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B36374E337DE0402B7BE5FA6C2EE172B14AB21D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1595253   (176190) от 04.12.2022
+
+Korella - Начало (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Начало [00:05:01]
+02. Саламандра [00:05:46]
+03. Нефилимы [00:04:02]
+04. Ложная слепота [00:04:38](   Читать дальше...   )Жанр: Modern Metal, Melodic Death MetalПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2898B4516AB609E6A3729677A606FDD4E32BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595141   (176175) от 04.12.2022
+
+Helvegen - Следуй за мной (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 04042021 [00:00:53]
+02. Ритуал [00:03:13]
+03. Хель [00:02:44]
+04. Киберхейм [00:03:32](   Читать дальше...   )Жанр: Folk Rock, Hard RockПродолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81649365A68B7576BF20C6B140D20C69A47682A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595317   (176026) от 04.12.2022
+
+Владимир Кузьмин - Дух в моей гитаре (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176026.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я из Эдгаров По
+2. Мы открыты всю ночь
+3. Миклухо-Маклай
+4. Улица(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06B862ACCA1F7F7101A43CF31DC53DB83732058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595332   (175723) от 05.12.2022
+
+Symbol Of Obscurity - n.N.i.M.m. (2007) [WavPack|Lossless|image + .cue] <Melodic Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brutality 4:29
+02. Sentenced To Eternity 2:31
+03. Hear Your Hate 4:36
+04. Pain Within 3:15(   Читать дальше...   )Жанр: Melodic Death Metal, Thrash MetalПродолжительность: 00:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD298E9ACC49581A05C5694CC623B066AFFFD204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595399   (175715) от 05.12.2022
+
+Азон - Из пепла! (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Выживут панки! [00:02:14]
+02. Не спорь! [00:02:26]
+03. Из пепла! [00:03:32]
+04. Дорогой длинною... [00:03:16](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B135F9E82A4226791C197175D60B3D682F47B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595329   (175647) от 05.12.2022
 
 Мёртвая Сторона - Зов смерти (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Heavy Metal>
@@ -600,151 +745,6 @@ Durnev - В Мир Иной (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE4AC4559D47BE9F26432F0F162F57E30ACE79E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670185   (172125) от 20.10.2023
-
-Папин Олимпос - Девочка и Мальчик (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. СХИ [00:02:22]
-02. Бандерлог [00:02:39]
-03. На всю ночь [00:02:38]
-04. Переспим как друзья [00:02:24](   Читать дальше...   )Жанр: RockПродолжительность: 00:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19DE4023072BFDE07A1D1ED456F561DA3095C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671596   (171152) от 25.10.2023
-
-Крематорий - КТ-40 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Коктейль "Дракон"
-02. Бар "Под дулом револьвера"
-03. Грибы-мухоморы
-04. ЗПХ(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36856451798A9A0930BFBADB8025556EFAC3C344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671629   (171044) от 26.10.2023
-
-Alessiee - Дежавю (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не по пути [00:03:59]
-02. Лихо [00:03:32]
-03. Дежавю [00:03:16]
-04. Кто ты [00:03:24](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D893D2082F7517C46D1DACAA3DA045816C36916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430634   (170517) от 10.12.2020
-
-Сплин - Вира и майна (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Призрак [00:04:13]
-02. За семью печатями [00:03:21]
-03. Беги, моя жизнь [00:04:29]
-04. Джин [00:04:01](   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E40EBA01DE672160A4ABA077C771DB2D915B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515381   (170369) от 06.12.2021
-
-Максим Леонидов - Над (2018) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снегопад
-02. Губами из воздуха
-03. Ангел, змея и крест
-04. 7 утра(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE34113813152CC467A2B28EDDFC15ADFB16CEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

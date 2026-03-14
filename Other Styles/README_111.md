@@ -1,3 +1,154 @@
+###  Публикация: 2922   (440334) от 29.09.2012
+
+Пелагея(folk)
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_440334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любо, братцы любо! (05:50)
+02. Я ехала домой (02:24)
+03. Позарастали стежки-дорожки (03:16)
+04. Не вечерняя (04:07)
+05. Думы (Ю. Ким) (03:00)
+06. Вечериночная (00:49)
+07. Отжил я свой век. Духовный с.. (01:55)
+08. Не для тебя (03:14)
+09. Не уходи (Н. Зубов/сл. народ.. (02:24)
+10. Рождественская (04:47)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 249734   (439982) от 19.09.2020
+
+Андрей Петров - Осенний Марафон (1996) [MP3|320 kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вальс (`Берегись автомобиля`) (3:57)
+02. Увертюра (`Служебный роман`) (4:08)
+03. Утро (`Служебный роман`) (2:39)
+04. Дождь (`Служебный роман`) (2:52)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE5991AF1851EF8CCFE178D76C3044D45A7671E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322645   (439860) от 02.09.2019
+
+Jim Brickman - Pure Carpenters (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439860.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.We've Only Just Begun (3:42)
+2.Yesterday Once More (3:48)
+3.They Long To Be Close To You (3:17)
+4.A Song For You (3:50)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4780D741385CAEF80F9BF92A9D587BA0E2E4E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164516   (439487) от 10.09.2017
+
+VA - Ayurveda Lounge - Relaxation & Meditation, Vol. 4 (2014) [MP3|320 Kbps] <New age, Chillout, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Orient - The Big Ocean
+02. Five Seasons - Okinawa
+03. Yantra Mantra - Hawa Mahal
+04. Digital Rain - I Miss You(   Читать дальше...   )Жанр: New age, Chillout, RelaxПродолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969161975199A14D500F4B4A758B25D047658B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164503   (439051) от 10.09.2017
+
+Benjamin Wallfisch - It / Оно (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every 27 Years (02:37)
+02. Paper Boat (01:55)
+03. Georgie, Meet Pennywise (03:39)
+04. Derry (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190FDEE1ED9B9FF48B78CD119D29B3CD6F4F9171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552064   (438645) от 30.09.2012
 
 VA - The Best Of Native Indians (2CD) (1999) [MP3|320 кб/с]<Native American Ethno, Powwow, Round Dance, Tribal Voice, Drums>
@@ -603,151 +754,6 @@ Hilmar Orn Hilmarsson & Sigur Ros - Angels Of The Universe (2001) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D579C67798A89804987003705DD1CEC4B0B5A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249565   (433313) от 24.09.2018
-
-SolarFlow - Imagine (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Begining of Life (Intro)
-02 - Forest
-03 - Dream of Mermaid
-04 - Revival the Bird(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0F2A844717C5AE61FED3B6B3972B7E7502F6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945376   (433270) от 10.10.2015
-
-VA - Criminal Mind / Мыслить как преступник (2005-2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Criminal Minds - The Main Theme
-02. Extreme Agressor - Citizen Cope
-03. Nine Inch Nails - Every Day Is Exactly The
-04. Mantegna - As Heard on Mike and(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 17:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1BF70FC6CE9A3C50C2D30602FEED0632A8F3A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249611   (432988) от 24.09.2018
-
-Jóhann Jóhannsson (Johann Johannsson) - Mandy (Original Motion Picture Soundtrack) (2018) Lakeshore Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Ambient, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeker Of The Serpent's Eye (02:12)
- 02. Starling (02:15)
- 03. Mandy Love Theme (04:39)
- 04. Horns Of Abraxas (01:31)(   Читать дальше...   )Жанр: Ambient, Dark Ambient, SoundtrackПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C56471FF165EA3E9ECAB4C087F9EAD30D713FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063528   (432531) от 17.10.2016
-
-doseone - Enter the Gungeon (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter the Gun (04:07)
-02. Lead Lords Keep (02:42)
-03. Gungeon Up Gungeon Down (03:21)
-04. The Hollow Howl (02:27)(   Читать дальше...   )Жанр: Soundtrack, Electronic, Alternative, Hip Hop, SynthПродолжительность: 01:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8A267476A99633EE7B9D8C93641683E206D6AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063662   (432517) от 17.10.2016
-
-Anamanaguchi - Scott Pilgrim vs. the World: The Game (Original Videogame Soundtrack) (2010) [MP3|320 кб/с]<Soundtrack, 8-bit>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scott Pilgrim Anthem (01:38)
-02. Another Winter (02:33)
-03. Skate or Live (01:37)
-04. Sushi Box (01656)(   Читать дальше...   )Жанр: Soundtrack, 8-bit , Electronica, Electronica: ChiptuneПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6E67DE4F79EAFDB637FFD252C42BB9D60AF819
 ```
 
 https://mybot314.ru/tekegram_catalog/

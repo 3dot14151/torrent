@@ -1,3 +1,177 @@
+###  Публикация: 1220623   (702335) от 20.04.2018
+
+VA - Women Of Blues (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruth Brown – Takin’ Care Of Business (2:19)
+02. Betty Lavette – Here I Am (Single Version) (2:48)
+03. Louise Hoffsten – When It Rains It Really Pours (4:34)
+04. Aretha Franklin – Today I Sing The Blues (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29769AF04524CFAFDACE3B7B9CECEF56BA5F554B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287689   (701975) от 08.03.2019
+
+Renee Rosnes - Art & Soul (1999) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Connotation [6:25]
+02. With A Little Help From My Friends [6:19]
+03. Goodbye [5:37]
+04. Ancient Footprints [8:24](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC4DB942F2C86F307667E548BFA37AA10150005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287881   (701974) от 08.03.2019
+
+KAVver. - Antonio (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Jazz, Post Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petrograd (6:38)
+02. Em Steklo (3:26)
+03. Kot v Meshke (5:41)
+04. Osiniy Miod (5:05)Жанр: Dark Jazz, Post Jazz, Post Rock, Trip HopПродолжительность: 00:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FB477207DFEE72CF8C4CEF6291881E8CBD7965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287694   (701973) от 08.03.2019
+
+Renee Rosnes - Life On Earth (2001) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empress Afternoon [5:29]
+02. Senegal Son [6:04]
+03. Ballad Of The Sad Young Men [5:18]
+04. Icelight [7:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DEADC8BFA731356BCFB779F717A5358703C57E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287550   (701972) от 08.03.2019
+
+Renee Rosnes - Ancestors (1996) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upa Negiunho [6:18]
+02. The Sounds Around The House [6:34]
+03. Intuition [8:31]
+04. The Ache of the Absence [8:55](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D6EF59DAFE2CBE16B14DE40D83380A0A02D170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287692   (701971) от 08.03.2019
+
+Renee Rosnes - Without Words (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You And The Night And The Music [4:25]
+02. Little B's Poem [4:41]
+03. Estaté [5:42]
+04. I've Got You Under My Skin [3:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DC43667A2368C7A7B55ACBA2E600D5CC78A3B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402385   (701967) от 14.08.2020
 
 Ella Fitzgerald - The Harold Arlen Songbook (1961) 1988, 2CD, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -572,180 +746,6 @@ James Pepper - Songs of the far horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:460E462579F34A4B3FCE2D01CF2D5ED14040A944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533947   (699426) от 27.02.2022
-
-Dan Patlansky - Shelter Of Bones (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Parasite (3:31)
-02. Snake Oil City (4:26)
-03. Selfish Lover (3:14)
-04. Lost (4:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4BD9D1854BD1D2FD8EAAEFDA4D9D7527D38502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132813   (698982) от 10.05.2017
-
-Johnny Smith Trio - Designed For You (1959) Remaster, 2017, Warner [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fools Rush In [02:41]
-02. I'll Remember Clifford [04:09]
-03. The Lady Is A Tramp [02:50]
-04. There Will Never Be Another You [03:11](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12596D6D802815DE46D925D34DDD4D5E9F16A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132689   (698977) от 10.05.2017
-
-Jim Allchin - Q.E.D. (2013) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop And Go (03:07)
-02. Gettin Old (03:20)
-03. Chime Blues (03:21)
-04. Reap What You Sow (03:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55DA5000B385A0ACDD0532438234E906235ED0A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132669   (698859) от 10.05.2017
-
-VA - Speakeasy Electro Swing Compilation Vol. 1 - The Sounds of the Speakeasy (2013) [MP3|320 Kbps] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazlo - Honey Pie IV (Beatles Electro Swing remix) (05:31)
-02. Defunk - Scatman Crothers - Keep that Coffee Hot (Defunk Remix) (03:49)
-03. Harry Chestwig - 4get About The Blues 2night (04:20)
-04. Smokey Joe and the Kid - The Monkey Song (03:07)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: : 01:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2C5453A96AAC98A8C722E1DAEEE5EB8AFA854B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220828   (698810) от 22.04.2018
-
-Martial Solal - At Newport '63 (2016) Sony Music [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poinciana [04:34]
-02. Clouds [03:06]
-03. Suite Pour Une Frise [11:56]
-04. Stella By Starlight [04:21](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A961D30259745987C4732FE23D5A0FB181A5F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221056   (698809) от 22.04.2018
-
-Oscar Pettiford Sextet (1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burt's Pad [09:47]
-02. Marcel The Furrier [06:01]
-03. Ondine [03:10]
-04. Stardust [05:11](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F45EBC89606A5228F6D164D39876F77767F64A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

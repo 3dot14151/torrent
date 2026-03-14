@@ -1,3 +1,32 @@
+###  Публикация: 780358   (762016) от 25.04.2014
+
+VA - Deep Mood vol 2 (Smooth Deep House) (2014) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762016.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Route 94 - My Love (feat. Jess Glynne)
+002. Click Click, Upstroke - Barricade (Original Mix)
+003. David Keno - Crusade (Original Mix)
+004. Freakme - Exual Groove (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D218803CA5B509F6F3B7F4EC304A1125075FCDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214999   (761810) от 24.03.2018
 
 VA - The Official UK Top 40 Singles Chart 23.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -722,35 +751,6 @@ VA - The Magic Dream Of Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53230EFAB216FA6C4F01E3E5B683C48B8032DD79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018388   (756016) от 20.05.2016
-
-VA - Dirty Beats Funky Dancefloor (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Heatbeat - It's Killing Me (Radio Edit) 3:27
-002. Overtune - How Does It Feel (Hp Remix) 5:43
-003. Curbi - Circus (Extended Mix) 3:56
-004. Dj Asperant - I'm In Miami Beach (Original Mix) 3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 11:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC0AB19940F33848985E0071DA0ABE79D066E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

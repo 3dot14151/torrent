@@ -1,3 +1,61 @@
+###  Публикация: 1030058   (675643) от 29.06.2016
+
+Schiller - Greatest Hits (2010) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Try (feat. Nadia Ali) (04:45)
+02. Let Me Love You (feat. Kim Sanders) (06:40)
+03. Time For Dream (feat. Lang Lang) (03:08)
+04. I Feel You (feat. Heppner) (05:30)(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072DA284967976EDDFB386AC92F5A37DC20E9E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136732   (672648) от 23.05.2017
+
+Hugo Kant - OUT OF TIME (2017) [FLAC|Lossless|tracks] <Downtempo, Trip-Hop, Instrumental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entering the Black Hole
+02. The Earth Dance
+03. Clouds (feat. Astrid Engberg)
+04. The Meeting(   Читать дальше...   )Жанр: Downtempo, Trip-Hop, InstrumentalПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB51AEF40576B31D52CE2D42F5A77988304CD34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030627   (672290) от 01.07.2016
 
 Night Sky (aka Afternova) - Visions (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
@@ -678,64 +736,6 @@ VA - Vargo Lounge - Summer Celebration 3 (2015) [FLAC|Lossless|WEB-DL]<Lounge, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E4822076F28008E0D6144AF594394EFE707B756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295761   (617089) от 14.04.2019
-
-VA - The Beatless Collection Vol. 1 (2008) Elektrolux [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Electro>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subsonic Park - X-ident (06:18)
- 02. Joris Voorn - This Is Our Fiction (02:00)
- 03. Hiroshi Watanabe - Genesis (Beatless Version) (05:22)
- 04. Subsonic Park - After Dark (Video Edit) (08:15)(   Читать дальше...   )Жанр: Ambient, Downtempo, ElectroПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F46CD9F7BEEABC17C752E858034E55A5C50564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146274   (616341) от 28.06.2017
-
-Michael E - Behind Closed Doors (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chill Out, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Try  (6:26)
-02.  Over The Hills & Far Away  (6:25)
-03.  Balearic Soul  (6:01)
-04.  Behind Closed Doors  (7:13)(   Читать дальше...   )Жанр: Downtempo, Chill Out, LoungeПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CB3405EC0D36D339B6F5947E4B0EB8953D03DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

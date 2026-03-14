@@ -1,3 +1,32 @@
+###  Публикация: 1048370   (547418) от 01.09.2016
+
+Kuolemanlaakso - M. Laakso - Vol. 1: The Gothic Tapes (2016) [MP3|320 Kbps] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Children Of The Night
+2. Roll The Dice With The Devil
+3. Where The River Runs Red
+4. The World’s Intolerable Pain(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2670BCE13CEF5F565F549564BABB1B73223C2B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048352   (547348) от 01.09.2016
 
 Crystal Ball - Deja-Voodoo (2016) [MP3|320 Kbps] <Melodic Power Metal>
@@ -722,35 +751,6 @@ Breakdown Of Sanity - Coexistence (2016) [MP3|320 кб/с]<Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D75493797F5FBC9CB0A2FCA6CDE090D9FA6BC4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051336   (532552) от 11.09.2016
-
-Devin Townsend Project - Transcendence (2016) Limited Edition 2 CD [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Truth - 04:47
-02. Stormbending - 05:22
-03. Failure - 06:02
-04. Secret Sciences - 07:28(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468EB4EBB0F1666EA1A5038A0D246809FD6485EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

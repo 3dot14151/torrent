@@ -1,3 +1,146 @@
+###  Публикация: 1413746   (407167) от 05.10.2020
+
+Кипелов feat. Симфонический оркестр - Live в Crocus City Hall, Москва, 13/03/2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407167.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро (Инструментал) (Live в Москва; feat. Симфонический оркестр)
+2. Жить вопреки (Live в Москва; feat. Симфонический оркестр)
+3. Власть огня (Live в Москва; feat. Симфонический оркестр)
+4. Вавилон (Live в Москва; feat. Симфонический оркестр)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA5267B5768FC3D201F5749B957634C2AF16CFF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565272   (400908) от 25.10.2012
+
+П.Т.В.П. (Последние Танки В Париже, ПТВП, Лёха/Алексей Никонов) - Ультиматум (2012) [FLAC|Lossless]<Punk Rock, Rock, Punk Hardcore, Noise>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_400908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+___________________________
+01.Жанр: Punk Rock, Rock, Punk Hardcore, NoiseПродолжительность: 00:32:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170161   (399216) от 01.10.2017
+
+Кипелов - Звезды и Кресты (2017) [FLAC|Lossless|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Звезды и кресты
+03. Рожденный летать
+04. Дама Пик(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D6D5FBAB7BC73670AC2B0AF1A13A5FD4AABA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171358   (395694) от 05.10.2017
+
+Amatory - Огонь (2016) EP [FLAC|Lossless|tracks] <Alternative Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Монстр (feat. ATL) (3:15)
+02. Огонь (3:33)
+03. Молчание (3:40)Жанр: Alternative Metal, Nu-MetalПродолжительность: 00:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD5203BF1AA2C1A8473D857C7AFAD74A993AE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171357   (395634) от 05.10.2017
+
+Amatory - 6 (2015) [FLAC|Lossless|tracks] <Alternative Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Первый (3:18)
+02. Прощай (3:24)
+03. Имя война (3:14)
+04.  15/03 (3:50)(   Читать дальше...   )Жанр: Alternative Metal, Nu-MetalПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C5F37639DB4C32592617299B961E448905AB2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 249624   (388512) от 24.10.2010
 
 Земляне - Золотая коллекция (2007) [APE|Lossless]<Rock>
@@ -605,161 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA59B6B010461F707E252C82076D4583B97B98FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573863   (378430) от 11.11.2012
-
-Atoll Nerat - Путешествия в отдельные реальности (2012) [FLAC|Lossless]<Gothic Black Metal, Dark Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_378430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Жизнь (часть 1)
-02.	 Ведьма (часть 4)
-03.	 Путник
-04.	 Всадник
-05.	 Весна
-06.	 Жизнь (часть 2)
-07.	 Небо
-08. Булонский лес / Le bois de Boulogne (re-recorded demo 1996)Жанр: Gothic Black Metal, Dark MetalПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437601   (378278) от 11.11.2012
-
-Илья Небослов - 2 Альбома (2011-2012) [FLAC|Lossless] <Rock, Reggae, Punk-rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_378278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бабочки Вавилона (04:10)
-02. Конца света не б... (03:51)
-03. Умереть (03:31)
-04. Нет посадки (03:46)
-05. Астростоп (Гагарин знал) (04:32)
-06. Укладчица Заец (04:24)
-07. Парад планет (04:18)
-08. Тутовник, перо и комар (04:52)
-09. Поп для поп (03:56)
-10. Последняя (05:59)(   Читать дальше...   )Жанр: Rock, Reggae, Punk-rock |Продолжительность: 01:30:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069017   (377719) от 02.11.2016
-
-АлисА - Эксцесс (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эксцесс
-02. Новый мир
-03. Колобок
-04. За полдня до весны(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D955BCFC8D5D7360D13BFA5C470F3EE6EAA916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068868   (377713) от 02.11.2016
-
-Сплин - Ключ к шифру (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Медный грош
-02. Пирамиды
-03. Нам, мудрецам
-04. Храм(   Читать дальше...   )Жанр: RockПродолжительность: 01:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCA55617305BB085D1187FC990501379DBA6EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575015   (377191) от 09.09.2022
-
-Храм Заката - MMXXI (2021) [FLAC|Lossless|WEB-DL|tracks] <Simphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:02:24]
-02. Lost Dead Town [00:04:44]
-03. Simulation [00:05:59]
-04. В туманах дней [00:05:56](   Читать дальше...   )Жанр: Simphonic Metal, Female VocalПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5B1B4432AF7DC27CD62C896FA4BE2C709D0E42
 ```
 
 https://mybot314.ru/tekegram_catalog/

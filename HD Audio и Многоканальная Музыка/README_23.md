@@ -1,3 +1,148 @@
+###  Публикация: 517248   (642587) от 03.07.2012
+
+Uriah Heep - Look at Yourself (1971, 2011 Remaster) [DSD 2.0 1/2,8224 MHz | SACD-R]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642587.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.    Look At Yourself    05:10
+2.    I Wanna Be Free    04:00
+3.    July Morning    10:32
+4.    Tears In My Eyes    05:00
+5.    Shadows Of Grief    08:40
+6.    What Should Be Done    04:14
+7.    Love Machine    03:37Жанр: RockПродолжительность: 41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6806EC8E5822C93A05B4328C5FA8DEE2ABE8800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 680855   (639672) от 18.07.2013
+
+Thomas D. A. Tellefsen: Complete Works - 2L Audiophile Reference Recordings (2010-2011) [PCM 5.1, 2.0, 192/24, DTS HD MA 5.1, 96/24|BD-Audio]  (classical music)
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639672.jpg" />
+</div>
+
+
+###  Подробнее
+
+ДИСК ДЛЯ ИСТИННЫХ ГУРМАНОВ ВЫСОЧАЙШЕГО КАЧЕСТВА КЛАССИЧЕСКОЙ МУЗЫКИ!Производство: 2L Audiophile Reference RecordingsЖанр: classical musicПродолжительность: 03:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A59F9CDC9EA7D1FB0C569E3C6C47BF0E3E5EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228179   (639015) от 30.05.2018
+
+Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Vision (5:11)
+02. A Kind Of Magic (4:24)
+03. One Year Of Love (4:29)
+04. Pain Is So Close To Pleasure (4:23)(   Читать дальше...   )Производство: EMI Records - EU 3509Жанр: RockПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964A0913C93D40DAAAE7739E56ED680BF285240E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 801018   (638409) от 30.06.2014
+
+Quiet Riot - QR III (1986)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638409.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Main Attraction (4:44)
+A2. The Wild And The Young (3:40)
+A3. Twilight Hotel (4:37)
+A4. Down And Dirty (3:17)(   Читать дальше...   )Жанр: Glam MetalПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8619B09483285023A9B4DDFAA0EB8077D2D7E125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795044   (634547) от 02.07.2014
+
+The Who - It's Hard (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634547.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Athena (3:49)
+A2. It's Your Turn (3:41)
+A3. Cooks County (3:50)
+A4. It's Hard (3:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AC978D6E1368640A97A44485C38DC0D957C652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034402   (634132) от 13.07.2016
 
 Mickey Hart - The Best of Mickey Hart: Over the Edge and Back (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <Electronic, Worldbeat, Fusion>
@@ -597,151 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70C0DCC7F7A9903533C7F7305C8CBCBE848DC0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957066   (621878) от 15.04.2022
-
-Инструментальный Ансамбль Рококо (1971) [FLAC 2.0 24/96|tracks+.cue (Vinyl-Rip)]<Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Арабески
-02. Акварель
-03. Королевство гномов
-04. Старый антикварЖанр: Easy ListeningПродолжительность: 00:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA4C97DCE04F51CD4B6A92C9B4BEC965FAAF942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935363   (621739) от 15.04.2022
-
-John Denver - Rocky Mountain High (1972) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Country, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621739.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Rocky Mountain High
-Steel Guitar – Eric Weissberg
-A2	Mother Nature's Son
-A3	Paradise(   Читать дальше...   )Жанр: Country, Soft RockПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D293571A8D6F193CA1EF84D8D5B7FC09C7D2368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059770   (621736) от 15.04.2022
-
-Вилли Токарев - Над Гудзоном (1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. С Днем Рождения, Милая Мама
-02. Мама, Я Сын Твой
-03. Нью-Йоркский Таксист
-04. В Шумном Балагане(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347EE62C1E788F55075A5CF9E06FCFABE28D9ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229853   (620881) от 09.06.2018
-
-Студия Гран-При - Танцуй! (1990) [FLAC 2.0|48/24|tracks|Tape-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620881.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:13] 01. Студия Гран-При - Танцуй
-[4:28] 02. Студия Гран-При - Ты Мой Путь
-[3:27] 03. Студия Гран-При - Ледяное Поле
-[3:17] 04. Студия Гран-При - Достал(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F174903E667821E2D519CFA80A7FFC2F6F0747C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229855   (620783) от 09.06.2018
-
-Студия Гран-При - Танцуй! (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620783.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:13] 01. Студия Гран-При - Танцуй
-[4:28] 02. Студия Гран-При - Ты Мой Путь
-[3:27] 03. Студия Гран-При - Ледяное Поле
-[3:17] 04. Студия Гран-При - Достал(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CD32FFA936B8A847263D598351BB8C2FC54A7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

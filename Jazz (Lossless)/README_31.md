@@ -1,3 +1,32 @@
+###  Публикация: 1091841   (941685) от 10.01.2017
+
+Gregory Porter - Live In Berlin (2016) 2CD, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941685.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Holding On [07:19]
+02.On My Way To Harlem-What's Going On [08:38]
+03.Take Me To The Alley [10:05](   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 01:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A40B966C7029C956594202CC72E009F0095AA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091804   (941669) от 10.01.2017
 
 Sergey Mikhaylenko (Сергей Михайленко) & XYZ Quartet - Trump Card (2010) JAZZO Sophia[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
@@ -723,35 +752,6 @@ Phil Woods & Donald Byrd - The Young Bloods (1956) Remaster, 2014, Universal[FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3AE07F0C051DEA1CEE3DF53307EB20CA7D4DC80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984908   (937259) от 10.02.2016
-
-Charlie Rouse & Seldon Powell - We Paid Our Dues! (1961) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Two For One [07:53]
- 02.When Sunny Gets Blue [05:54]
- 03.For Lester [07:19]
- 04.Quarter Moon [05:49](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC40401021CC309412E25D0BE91A310BFF27A136
 ```
 
 https://mybot314.ru/tekegram_catalog/

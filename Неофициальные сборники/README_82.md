@@ -1,3 +1,90 @@
+###  Публикация: 1366295   (923953) от 11.03.2020
+
+VA - Beatport Electro House: Sound Pack #23 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923953.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Evgenii Grachev - Few (Original Mix)
+002. Jhon Bernal - Patience (Original Mix)
+003. Carda Feat. Sophia - For A Little
+004. Kevin Brand - Falling For You(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 11:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFD3AD4D307AB3DBEA08CC83A86E5BA3C627259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366293   (923948) от 11.03.2020
+
+VA - Beatport House: Electro Sound Pack #30 (2020) [MP3|320 Kbps] <House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923948.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ninetoes - Volar La Pluma (Extended Mix)
+002. Gene Farris - The Way To Go
+003. David Pietras And Sentinel - Light
+004. Glass Coffee - Aneela(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 12:21:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D63DF2DDA15DF756686440015ED678BFA9C22BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366377   (923893) от 11.03.2020
+
+VA - Alone With You: Deep House Extended Set (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923893.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abel A Beat - The Deep Eyes (Original Mix)
+002. Action Alexi - Beautiful Life
+003. Albin Lee Meldau - I Need Your Love (Just Kiddin Remix)
+004. Bautista Orol - Latinoamerica(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF4F207EE4FEEBC01A06229A10E47CC24043D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366235   (923883) от 11.03.2020
 
 VA - Славянский Меч 1-5 (2010-2015) [MP3|320 Kbps/V1-2] <Folk>
@@ -661,90 +748,6 @@ VA - Музыка Хорошего Настроения (2016) [MP3|256 kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:216264893EEAFA0192E14C4BF5F798759FF791EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366611   (922431) от 12.03.2020
-
-VA - Beats Mix Jungle (2020) [MP3|320 Kbps] <D&B, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922431.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bombo10 - Rapture
-002. Eleksoul - Get Ready (Original Mix)
-003. Monojoke - Surreal Thing
-004. Renart - Wizardos 2k219(   Читать дальше...   )Жанр: D&B, JungleПродолжительность: 08:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C58F44C26F5A13B171994D2D0864F50A2FDD7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288507   (922426) от 29.01.2011
-
-VA - Танцевальная тусовка (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388C598513294DBF493DE21CF9302E36E3F14FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366604   (922349) от 12.03.2020
-
-VA - Sweet Caramel: Pop Dance Eurobeat (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922349.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Leslie Parrish - Falling Free
-002. Fluxdaddy - When It's Over
-003. Akira - I Dream (Radio Mix)
-004. Keepin It Heale - Still Love You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91C89890ABE7EA7540CFB2E5B81F9F62C15BC64
 ```
 
 https://mybot314.ru/tekegram_catalog/

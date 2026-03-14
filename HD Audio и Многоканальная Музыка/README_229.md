@@ -1,3 +1,148 @@
+###  Публикация: 1756983   (39411) от 24.10.2024
+
+The Holitter - The Start (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wings Loves Rebellon (4:59)
+02. Warrior Over Moonlight (5:00)
+03. Warrior of Starlight (3:52)
+04. Millenium Platinum Shield (5:07)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF766550E665FB983516468C44D56293418AA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757016   (39397) от 24.10.2024
+
+Queen - Queen 1 (Collector's Edition) (1973) Reissue, Remastered, 2024, Hollywood Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 - Queen I (2024 Mix):
+01. Keep Yourself Alive (2024 Mix) (3:46)
+02. Doing All Right (2024 Mix) (4:11)
+03. Great King Rat (2024 Mix) (5:45)(   Читать дальше...   )Жанр: RockПродолжительность: 04:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243D0183F380DB4AE9BAB3162AF88242A1ABA67F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757001   (39367) от 24.10.2024
+
+Behemoth - XXX Years Ov Blasphemy (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chant of the Eastern Lands (Live) (6:31)
+02. Lasy Pomorza (Live) (6:46)
+03. Summoning (Of the Ancient Ones) (Live) (5:15)
+04. Blackvisions of the Almighty (Live) (4:19)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 01:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227F366EF0EE81C16C009CF7973B99B15835709F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756987   (39351) от 24.10.2024
+
+The Smoothies - Autumn Nights in Paris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn in Paris (4:00)
+02. An American in Paris (3:25)
+03. Autumn Lost in Paris (3:43)
+04. Autumn Wedding in Paris (4:33)(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 01:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9798FD96B6CE40A3EBA374EEDFDE447DB93FA0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757127   (39287) от 25.10.2024
+
+Ellen Andrea Wang - Closeness II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. August (5:12)
+02. Hummingsong (4:49)
+03. I Like London In The Rain (3:17)
+04. Lands Herlighet (5:02)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83DDDBAE426266AC5DB0140375331E3A3B0A066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757047   (39282) от 25.10.2024
 
 Cats In Space - Time Machine (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock, AOR, Melodic Rock>
@@ -602,151 +747,6 @@ The Vision Bleak — немецкая готик-метал-группа, сфо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ECC95B18EEA06BB98A3D29DB14020C9E5E45C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757907   (38791) от 30.10.2024
-
-Luiz Carlos Diaz - Giselle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brigas Nunca Mais (3:52)
-02. Corcovado (3:26)
-03. Giselle (3:22)
-04. Desafinado (3:08)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D06313024EA63380DE4DD308CDE92A7725833A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757909   (38789) от 30.10.2024
-
-Nipper Swing Band - Vintage Radio (Swing Golden Age) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is The Sweetest Thing (2:27)
-02. Falling In Love Again (2:13)
-03. Sweet Lorraine (3:22)
-04. All Alone (2:59)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667057BE489F57D09D0A6B1B4B21DB73B84B03FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758149   (38699) от 31.10.2024
-
-Dead Icarus - Zealot (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metalcore, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Unconquerable [00:03:16]
-02. Bearing Burdens and Saving Skin [00:03:30]
-03. Zealot [00:03:56]
-04. 1 Million Days [00:03:20](   Читать дальше...   )Жанр: Melodic Metalcore, Thrash MetalПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3278E7DCCCC53F46637FF7B241190F7B2777FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677427   (38683) от 31.10.2024
-
-Hatchet - Studio Albums (5 releases) (2008-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hatchet - американская трэш-метал группа из Сан-Франциско, Калифорния. Образована в 2006 году.2008 - Awaiting Evil
-2013 - Dawn Of The End
-2015 - Fear Beyond Lunacy
-2018 - Dying to ExistЖанр: Thrash MetalПродолжительность: 03:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04849D7AB5F2F88D04DA5A989A28919EFFD10AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758244   (38614) от 01.11.2024
-
-The Cure - Songs of a Lost World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Gothic rock, Post Punk, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone (6:49)
-02. And Nothing Is Forever (6:53)
-03. A Fragile Thing (4:43)
-04. Warsong (4:17)(   Читать дальше...   )Жанр: Gothic rock, Post Punk, New WaveПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF12939C30AE52A991E3080EC08F1677A61A7B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

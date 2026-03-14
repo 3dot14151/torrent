@@ -1,3 +1,32 @@
+###  Публикация: 997013   (877661) от 15.03.2016
+
+VA - Beautiful Now: Minimal Tech House NRJ (2016) [MP3|262-320 кб/с] <Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robbert Simmons - Give It to Me (Radio Mix) (feat. Anthony Brody)
+002. Loquai - Nightcrawler
+003. Make One - Jumper
+004. Fast Company - Take Me Away (Original Mix)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 08:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454770B33CE400696F118FBF061281D9C40A3C41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997055   (877557) от 15.03.2016
 
 VA - Music For Everyone - Chillstep & Dubstep Vol.4 (2016) [MP3|320 кб/с] <Chillstep, Dubstep, Future Bass>
@@ -722,35 +751,6 @@ VA - A New Harmony: Experimental Electronic (2021) [MP3|320 Kbps] <Electronic, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E440B3522D971474E1425AF8B4CF135DB7798E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496441   (873030) от 17.09.2021
-
-VA - Summer Escape: Deep House Mixtape (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873030.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Magitman - Knock About
-002. Joe Morris - Moments In The Snow
-003. Gmj - Rite Of Passage
-004. Xxxy - Eroma(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410A6149EDB3BBDD3989AA1E518EA8B459FF3731
 ```
 
 https://mybot314.ru/tekegram_catalog/

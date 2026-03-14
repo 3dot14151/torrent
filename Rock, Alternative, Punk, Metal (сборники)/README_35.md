@@ -1,3 +1,32 @@
+###  Публикация: 159116   (292502) от 20.12.2009
+
+Boney Nem - 40 лучших композиций (до 2008) [MP3|192]<Панк рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Daddy Cool
+02 - В мире животных
+03 - We are the world, we are the children
+04 - It's My Life(   Читать дальше...   )Жанр: Панк рокПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079848   (291984) от 05.12.2016
 
 Крематорий - Live in Sexton (21.01.1993) [MP3|320 Kbps] <Rock>
@@ -717,35 +746,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFB1AE430D8DFBFC82AEF71558EAE2B517B2FC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190978   (265849) от 11.12.2017
-
-VA - Hard Rock Division Vol.02 (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265849.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Torous - Sideline
-002. Accept - Pandemic
-003. Art Nation - Ghost Town
-004. Civilization One - Land In Flames(   Читать дальше...   )Жанр: Hard RockПродолжительность: 08:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87812E32A7B5163ACA42CE4AA1E39753171F116
 ```
 
 https://mybot314.ru/tekegram_catalog/

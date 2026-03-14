@@ -1,3 +1,32 @@
+###  Публикация: 1204556   (784661) от 06.02.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0017 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams Divide - Leaving ( 2011 )
+02. Surf Dancer - Everybody Dance Tonight ( 2017 )
+03. Galaxion - Adventure ( 2007 )
+04. Isabel - Feel The Heat ( 1988 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583BA5BFE615E372789E1EC34F717FD8E6155BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204527   (784660) от 06.02.2018
 
 VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0011 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
@@ -709,35 +738,6 @@ VA - The Official UK Top 40 Singles Chart 12.06.2020 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D137780941FB27FB61E24A0043682430F5F4689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390194   (783274) от 14.06.2020
-
-VA - Громкие новинки Июня (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783274.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Afrojack & Chico Rose feat. Jeremih - Cloud 9 (3:04)
-2. Agunda - Мелькает Свет (2:03)
-3. alyona alyona - Пам'ятаю (1:53)
-4. Animal ДжаZ - О Хлебе И Воде (Piano Version) (2:44)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B140FF8D7D226B4D9C02C5EF2692F549FA3EA139
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 974735   (975474) от 12.01.2016
+
+The Piano Girls - Hey Guys, Listen to My Piano (2014) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Were a Boy
+02. Comptine d'un autre ete, l'apres-midi
+03. Skyfall
+04. Paparazzi(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2523C8E2FE24CD5F15CC60C099E359BA6DB6F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613078   (975351) от 10.02.2013
+
+Luna - 3 альбома (1992-1998) [MP3|256-320 кб/с]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975351.jpg" />
+</div>
+
+
+###  Подробнее
+
+(10:37) 1. Like A Leaf In The Wind
+(12:09) 2. Gentle Flow
+(11:03) 3. Eternal Longing
+(12:51) 4. Lotus OpeningЖанр: New ageПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E07D283AA2F396537863E2241E0EC65D9509BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616575   (974801) от 10.02.2013
+
+VA - Ultimate Classical Guitar - The Essential Masterpieces (2008) 5CD, Box Set [FLAC|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical GuitarПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975162   (974358) от 13.01.2016
+
+Jean Michel Jarre - The Concerts In China (1982) 2CD, Remastered, 2014, Sony Music [FLAC|Lossless|image + .cue]<Electronic, Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orient Express 4:21
+02. Magnetic Fields Part 1 4:21
+03. Magnetic Fields Part 3 3:44
+04. Magnetic Fields Part 4 6:45(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B84852C41120785BCC4F0540F28254A04160C71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357436   (974339) от 03.02.2020
 
 VA - Mystic Spirits Vol. 2, 2CD  (2000) [FLAC|Lossless|image + .cue] <Ambient, Folk>
@@ -637,122 +750,6 @@ VA - Quentin Tarantino's The Hateful Eight / Омерзительная вось
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:714B0B750589E2691BD649F6609AAD757B92E413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358231   (969705) от 07.02.2020
-
-Bear McCreary - See / Видеть: Season 1 (Apple TV+ Original Series Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969705.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:08| 01. The Alkenny People
-|07:54| 02. Witch Finders
-|02:04| 03. Father Voss
-|03:24| 04. Rock Wall Battle(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C0307C71E69C4EC76E52B75765098B743424FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357382   (969689) от 07.02.2020
-
-VA - 100 Greatest Modern Country Songs (2020) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969689.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tim McGraw - Humble And Kind
-002. Chris Stapleton - Tennessee Whiskey
-003. Thomas Rhett - Die A Happy Man
-004. The Shires - The Hard Way(   Читать дальше...   )Жанр: CountryПродолжительность: 05:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4179D6A10AD2C5D64426BD3A7976C995C6A1E88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358226   (969641) от 07.02.2020
-
-VA - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (The Album) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969641.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:14| 01. Doja Cat - Boss Bitch
-|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
-|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
-|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11081F2F8024B90F4C36DC10BCA6AE62639DDDF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358382   (969632) от 07.02.2020
-
-VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969632.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:14| 01. Doja Cat - Boss Bitch
-|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
-|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
-|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74DAA493A30EB4F046789261BD6BF3130376FEDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

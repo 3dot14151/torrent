@@ -1,3 +1,32 @@
+###  Публикация: 1072165   (354693) от 12.11.2016
+
+VA - Regular Spectr Electronic Top 100 (2016) [MP3|320 Kbps] <House, Future House, Stadium Trance, Bigroom, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354693.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. MATTN & Futuristic Polar Bears - Cafe Del Mar 2016 (Dimitri Vegas & Like Mike Vocal Mix) 3:45
+002. Kaion & Daav One - Sirius (Extended Mix) 6:17
+003. Luca Testa & Kuka - Feel The Party (Original Mix) 4:41
+004. Jewelz & Sparks - Drip (Extended Mix) 3:30(   Читать дальше...   )Жанр: House, Future House, Stadium Trance, Bigroom, Club, DanceПродолжительность: 08:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898704F8F07D29B11928383DB8ABD34E1E75BF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256581   (354426) от 22.10.2018
 
 Roger Shah - Live I Love Qiev (2008) [MP3|192 Kbps] <Trance>
@@ -728,35 +757,6 @@ VA - Spaceman's Paradise (1996) [MP3|160 кб/с]<Electronic, Hard Trance, Euro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C1C5EE523DD0665262B138429A3DEFFB60AB38A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953122   (351792) от 03.11.2015
-
-VA - Green Sky Reflection (2015) [MP3|320 кб/с]<Minimal House, Techno House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351792.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Diroma, Frystal Dj - Minimal Self 05:22
-002. Ian Page - So Deep, So Mean (FAWX Remix) 03:53
-003. Technasia & Green Velvet - Suga (Original Mix) 06:42
-004. Leechy Alexej - Minimal Balkan (Paul Haro Remix) 07:18(   Читать дальше...   )Жанр: Minimal House, Techno HouseПродолжительность: 10:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C06EEB78F860CCEF49E48A0C007622C5A8BE8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

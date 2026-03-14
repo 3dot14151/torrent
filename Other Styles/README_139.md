@@ -1,3 +1,145 @@
+###  Публикация: 1081991   (279107) от 12.12.2016
+
+Neil H - Syllabus Of Magic - Merlins Quest (2010) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Merlins Quest
+02 - Time Beyond The Mist
+03 - Mystic Journey
+04 - Pathway To Wisdom(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8F5EBBE4AD889F85CC34459B816249E8998E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336002   (279062) от 07.11.2019
+
+Best Relaxation Music - Kundalini Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279062.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Manipura 03:54
+2. Amazonia 05:37
+3. Restless Spirits After Nightfall in the Mogollon Rim 08:35
+4. Rain of Flowers 05:22(   Читать дальше...   )Жанр: New age, Meditative, RelaxПродолжительность: 01:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A645D62AB37D002DAF6DAC9873E678C21268AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 143074   (279028) от 24.11.2018
+
+Various Artists - Наши песни - Песни Победы (2001) [APE|lossless]<Военные песни>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Военные песниПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9851A021B636A2C72DE7C8F2F7A1C572F908118E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336104   (278955) от 07.11.2019
+
+Мiръ Духа - Путь (2016) [MP3|320 Kbps] <New age, World music, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вдох Творения
+02. Искры Богов
+03. Сквозь Миры
+04. Новое начало(   Читать дальше...   )Жанр: New age, World music, AmbientПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB21ADDE019B4CEEED196533D7D466FB1CB25EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082124   (278762) от 12.12.2016
+
+VA - Office Christmas Party (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Calvis - Intro (00:11)
+02. DJ Calvis - Deck Da Club Intro (00:05)
+03. Ying Yang Twins - Deck Da Club (03:41)
+04. The Struts - Kiss This (02:57)(   Читать дальше...   )Жанр: Soundtrack,Продолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCD94613006A1DAEE4294EE25D6C9150EC62898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082373   (278755) от 12.12.2016
 
 VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Rock, R&B>
@@ -593,151 +735,6 @@ Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7307F1F9456EE3A2076745741C9D289402712DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337219   (274805) от 10.11.2019
-
-Jim Brickman - The Magic Of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels We Have Heard On High
-02. My Favorite Things
-03. We Three Kings
-04. Christmas Time Is Here/O Christmas Tree (Medley)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA27CDB31B44A33BD74DD6B3A71EDF920C7CADF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336947   (274760) от 10.11.2019
-
-Musica Relajante - Bikram Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ceriam 02:44
-2. Breath In Yoga Sounds 03:00
-3. Inhalar Exhalar 03:04
-4. Amrita 02:54(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 04:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514A64ECD66D29204E9D2FE132B98B30AAE5B2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083134   (274735) от 15.12.2016
-
-Guido Negraszus - The Very Best of Guido Negraszus (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blue Planet [00:06:42]
-02. Secret Dreamtime [00:04:38]
-03. Snowboard [00:04:00]
-04. Great Ocean Dream [00:05:52](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7281C41C3773A1FC841CDDCFAE35F4F91EB88F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337347   (274641) от 10.11.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 8 (1994) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carmen Disco (from Carmen) - Ron Barden's Computer Symphonics (7:15)
-02. Poem - New Rock Philharmonics (2:37)
-03. A Hard Day's Night / All My Loving - Symphonic Rock Orchestra (6:26)
-04. Menuett - Jacques Winter Orchestra & Singers (2:58)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D9774B1D733C0EE9D41BC77A13BD4C8E8F859E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337354   (274582) от 10.11.2019
-
-VA - Greatest Hits of Classical Rock Vol. 4 (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air / Philharmonic Orchestra London - Johann Sebastian Bach (8:13)
-02. Hornkonzert Nr. 4 / Fatra String Sound Orchestra - Wolfgang Amadeus Mozart (3:47)
-03. Can't Buy Me Love / Philharmonics of London - Lennon, McCartney (2:27)
-04. Concerto / Ziliniana String Sound Orchestra - Antonio Vivaldi (3:07)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BE2640995D9B99C7191C0287974481E7794388
 ```
 
 https://mybot314.ru/tekegram_catalog/

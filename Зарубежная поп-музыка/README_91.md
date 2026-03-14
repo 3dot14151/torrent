@@ -1,3 +1,61 @@
+###  Публикация: 1705587   (63491) от 09.03.2024
+
+Bananarama - Glorious - The Ultimate Collection (2024) [MP3|320 Kbps] <Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63491.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Robert De Niro's Waiting (The Reflex Revision) (6:46)
+2. Do Not Disturb (Krystal Klear New Wave Mix) (7:20)
+3. Venus (Boys Noize Rework) (4:20)
+4. Only Your Love (Initial Talk Remix) (6:07)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 03:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F35A9FF5B9A94A0B47098EE3A23CDEDC53F90C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711056   (61375) от 29.03.2024
+
+VA - Best Songs: The 70s (2023) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rod Stewart - Da Ya Think I’m Sexy - 05:31min
+ 02. Blue Swede - Hooked on a Feeling - 02:53min
+ 03. Kate Bush - Wuthering Heights - 03:26min
+ 04. Fleetwood Mac - Dreams (2018 Remaster) - 04:18min(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 03:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAF1A38C16E951FBDF973DFFC79EB1730810F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713007   (60655) от 05.04.2024
 
 VA - 100 Greatest Covers of All Time - Cover Versions (2024) [MP3|320 Kbps] <Pop, Rock, R&B>
@@ -686,64 +744,6 @@ VA - 80s Mixtape (The Ultimate Collection) (2017) Box Set: 5CD [OGG Vorbis|480 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3122CF91D32D5EA974ACF16CDF6CF5C927219EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737731   (49510) от 19.07.2024
-
-VA - DJ Hits 145 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strech & Vern - I'a Alive
-02. Alpha - Revolution In Paradise
-03. Junior Vasques - If Madonna Calls
-04. Imperio - Atlantis(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92962D049BB8628C9BFE9BA5ABC60583383AC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741418   (47536) от 07.08.2024
-
-VA - 90s Radio Hits (2024) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Hot Chili Peppers - Under the Bridge
-02. Seal - Kiss from a Rose
-03. Cher - Believe
-04. Marc Cohn - Walking in Memphis(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 04:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA4D20BED709D1742345AA9A0D8382512E3AF46
 ```
 
 https://mybot314.ru/tekegram_catalog/

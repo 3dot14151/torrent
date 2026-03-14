@@ -1,3 +1,146 @@
+###  Публикация: 1806075   (65413) от 10.07.2025
+
+In a Darkened Room - VOIX (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwave / Post-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Shadows Come [00:05:16]
+02. Sounds of Warning [00:03:44]
+03. Winter Storm [00:06:12]
+04. Hammer & Nail [00:05:04](   Читать дальше...   )Жанр: Darkwave / Post-PunkПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0CD4E07D3791F8C31B3D94C069D9ADF739B340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806138   (65406) от 11.07.2025
+
+Philosophobia - The Constant Void (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog Metal, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европейская прогрессивная группа Philosophobia возвращается спустя три года после своего одноименного дебюта, который получил широкую оценку как один из лучших среди прогрессивных групп. Эта голландско-греко-немецкая гибридная группа, состоящая из бывших участников таких групп, как Annihilator, Kamelot, Pain of Salvation и Architects of Chaoz, и вокалиста Wastefall (   Читать дальше...   )01 - Intro (00:59)
+ 02 - King of Fools (07:10)
+ 03 - The Forgotten, Part I (08:28)
+ 04 - Inside His Room (04:41)(   Читать дальше...   )Жанр: Prog Metal, Prog RockПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50303A71B7523F482A7E88B2213DF3153C64F6D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806732   (65330) от 14.07.2025
+
+The Crystal Tears - The Crystal Tears (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt. Rock, Gothic, Darkwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Dusk(Part 1) [00:03:14]
+02. Solo Yo [00:04:30]
+03. Vampiro [00:03:19]
+04. Es Halloween [00:04:08](   Читать дальше...   )Жанр: Alt. Rock / Gothic / DarkwaveПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10082DDE80690801E1EBF190FB923CE7B88DC5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806904   (65322) от 15.07.2025
+
+Cronos Compulsion - Lawgiver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obligate Condition (01:16)
+ 02. Maladapt (02:24)
+ 03. Gyre of Decaying Filth (02:04)
+ 04. Ancestral Remains (02:44)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B12ACF1D02D0E27BD1D2450E0E55FB5C7A175A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806873   (65320) от 15.07.2025
+
+Steel Rhino - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steel Rhino - рок-группа из Швеции, основана в 2021 году2021 - Steel Rhino
+2023 - In Rhino We TrustЖанр: Heavy MetalПродолжительность: 01:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9E275C5729BECC5355594EF5EC8B69B5E845F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806856   (65316) от 15.07.2025
 
 Wiener Philharmoniker & Tugan Sokhiev - Sommernachtskonzert 2025 / Summer Night Concert 2025 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
@@ -599,151 +742,6 @@ Charlie Hunter & Ella Feingold - Different Strokes for Different Folks (2025) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E076CF1CF3772157AC7D4A75658DD7BA49A6461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807402   (65147) от 19.07.2025
-
-Forth Wanderers - The Longer This Goes On (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Know Me/To Love Me [00:02:34]
-02. Call You Back [00:02:06]
-03. Honey [00:03:03]
-04. 7 Months [00:02:32](   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2417D952511AE3A4DF597DD8AC5F7C9C1BA5A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807712   (65126) от 20.07.2025
-
-The Doobie Brothers - Walk This Road (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Walk This Road (feat. Mavis Staples) (3:37)
-02.  Angels & Mercy (3:49)
-03.  Call Me (3:38)
-04.  Learn to Let Go (4:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8A1FE88728E8ABB9DF43E0D5B8E016E01963DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807735   (65107) от 20.07.2025
-
-Nefarious - Addicted to Power (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirror Death [00:06:18]
-02. Addicted to Power [00:05:43]
-03. Master Plan [00:04:22]
-04. Together We Rise [00:04:38](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A0E747351D2CBC5D0D3764BA5378908549645D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807700   (65106) от 20.07.2025
-
-Reed Turchi - World On Fire (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Walk With Me (3:57)
-02.  When You've Got A Good Friend (3:52)
-03.  Get Back Train (2:36)
-04.  Lay My Burden Down (3:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6B395E6B956057CF7D1487AE6F8CFB74890EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807704   (65105) от 20.07.2025
-
-Robert Rice Jr - Breathe (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Ride (Intro) (2:15)
-02.  Sunjammer (5:00)
-03.  Robert Rice Jr - 84 Eastbound (6:21)
-04.  7 Day Weekend (4:29)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22533657275E6BA4C041828E728E72D8241E6CB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

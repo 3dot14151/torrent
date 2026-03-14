@@ -1,3 +1,90 @@
+###  Публикация: 957598   (326782) от 18.11.2015
+
+Kenny Burrell - 12•15•78 (1978) 2CD, 1999, 32 Jazz[FLAC|tracks+.cue]<Hard Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326782.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Second Balcony Jump [06:11]
+02.Willow Weep For Me [06:45]
+03.Work Song [04:28](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F856B009F81F49A3DCA972DEC607FC86803D6964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957985   (325844) от 19.11.2015
+
+Marlena Shaw - Anthology (2000) Soulb[FLAC|image+.cue]<Vocal Jazz, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Woman Of The Ghetto [06:05]
+ 02.California Soul [03:01]
+ 03.Mercy Mercy Mercy [03:01]
+ 04.Wade In The Water [03:36](   Читать дальше...   )Жанр: Vocal Jazz, Soul JazzПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47844F7D524F0DEBCFE392863165E59F4C9DE619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581984   (325587) от 07.10.2022
+
+The Diego Rivera Quartet - Hercules (2004) 2006, Rivera Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morena [4:38]
+02. Boogaloo to You [3:54]
+03. The Unsaid [8:19]
+04. Hercules [7:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0865D1F4A33E446FDA4869B39FA817C81CFD531F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 860471   (325370) от 07.10.2022
 
 Yehudi Menuhin & Stephane Grappelli - Menuhin And Grappelli Play Gershwin (1973 - 1981) 2000, EMI[APE|Lossless]<Jazz, Swing, Chamber Music>
@@ -655,93 +742,6 @@ Bing Crosby & The London Symphony Orchestra - Bing at Christmas (2019) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A05DF00F099BD42365B200B898820C4AC0C49B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181792   (322116) от 08.11.2017
-
-Rene Thomas & Bobby Jaspar - Thomas & Jaspar Quintet (1961) 2006, BMG [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oleo  [05:05]
-02. Theme For Freddie [04:17]
-03. Half Nelson [07:10]
-04. But Not For Me [06:06](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E767E2117243072B5C3878AAF3EE0E65D88C04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420963   (322110) от 03.11.2020
-
-VA - Late Night Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julie London - Sway (Remastered) (02:35)
-02. Louis Armstrong - Moon River (02:56)
-03. Diana Krall - The Look Of Love (04:42)
-04. Carla Bruni - Stand By Your Man (02:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B6F8416159BB885CC5304CEE1EAD5AA98C28E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181790   (322033) от 08.11.2017
-
-Eddie Heywood - 1950 - 1951 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bebe [02:09]
-02. Trees [03:24]
-03. Summertime [02:40]
-04. The Piccolino [02:50](   Читать дальше...   )Жанр: Swing, Big Band, Piano JazzПродолжительность: 01:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26FC941B8078C2CEE702C1E3E0019F93D05E56D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

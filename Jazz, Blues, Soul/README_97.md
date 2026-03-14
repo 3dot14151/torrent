@@ -1,3 +1,61 @@
+###  Публикация: 1109946   (855563) от 01.03.2017
+
+Southern Avenue - Southern Avenue (2017) [MP3|320 Kbps] <Memphis Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Give Up (04:43)
+02. What Did I Do (03:54)
+03. It's Gonna Be Alright (03:16)
+04. Slipped Tripped and Fell In Love (03:26)(   Читать дальше...   )Жанр: Memphis BluesПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB8134DB72A1D9E817C7DD32381044D862B8F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377145   (855209) от 20.04.2020
+
+Harry Allen & Trio da Paz - Harry Allen Meets Trio da Paz (2007) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S'wonderful [4:49]
+02. I'm Always Chasing Rainbows [4:12]
+03. Taking a Chance on Love [3:58]
+04. The Nearness of You [5:26](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38574F86551343D144EB71AEF14592146A27D9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377030   (855208) от 20.04.2020
 
 Harry Allen Quintet - Down For The Count (2007) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -687,64 +745,6 @@ Courtney Pine - Within the Realms of Our Dreams (1990) Antilles[FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B560DBA7487A47827C820BAE31A97E9AAC6D9E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110956   (850529) от 04.03.2017
-
-Lee Konitz meets Don Friedman (1992) 1994, Camerata Tokyo [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alone Together [11:54]
- 02.In Your Own Sweet Way [10:12]
- 03.Huntington Street [07:46]
- 04.Opus d'Amour [09:41](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D3E0BC5BE86FF607EE3618392B9BFD2696334F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002019   (850463) от 30.03.2016
-
-Jeff Healey - Heal My Soul (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daze Of The Night (04:00)
-02. Moodswing (04:07)
-03. Baby Blue (04:04)
-04. I Misunderstood (04:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DDA671AA9818817219B2A1126742F21DD4A3EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

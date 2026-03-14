@@ -1,3 +1,32 @@
+###  Публикация: 1355126   (984987) от 25.01.2020
+
+Nat King Cole - Jazz Encounters 1945 - 1950 (1992) Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leap Here (alternate take) [3:22]
+02. Leap Here [3:25]
+03. Metronome Riff [2:45]
+04. You Can Depend on Me [3:00](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA217727B1AACE23BA5E8EAAEF449B9A7DB83F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355131   (984985) от 25.01.2020
 
 Gerry Mulligan & Thelonious Monk - Mulligan Meets Monk 1957 (2018) Poll Winners Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -720,35 +749,6 @@ Ike Quebec - Heavy Soul (1961) 1995, Planet[FLAC|tracks+.cue] <Mainstream Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:949E32EEA158D66F9208242EF7CD711BB9FB6971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741823   (981835) от 04.01.2014
-
-V.A. - Jazz And Floyd (2013) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella Starlight Trio - Another Brick In The Wall (Part 2)
-02. The Cooltrane Quartet - Breathe (In The Air)
-03. Michelle Simonal - Time
-04. George White Group - Money(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF0E660AF38BED936DD4D479DA09FBA0408D156
 ```
 
 https://mybot314.ru/tekegram_catalog/

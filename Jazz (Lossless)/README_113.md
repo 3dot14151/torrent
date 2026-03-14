@@ -1,3 +1,90 @@
+###  Публикация: 1136676   (673249) от 23.05.2017
+
+Duke Ellington - Mood Indigo (1927 - 1936) 1989, Pro-Arte Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cotton Club Stomp [02:56]
+02. Black and Tan Fantasy [03:10]
+03. Creole Love Call [03:15]
+04. Black Beauty [02:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1027D5D73E37587B07862574934EACDE2E5920DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136600   (673248) от 23.05.2017
+
+Duke Ellington - The Conny Plank Session (1970) 2015, Gronland Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alerado (take 1) [03:58]
+02. Alerado (take 2) [04:00]
+03. Alerado (take 3) [03:26]
+04. Afrique (take 1) [07:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EE5D5FE4D5F6D8CBBD2B506D8DE231135AD111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136612   (673247) от 23.05.2017
+
+Duke Ellington - Sophisticated Lady: Duke's Greatest Hits (1992) Classic Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sophisticated Lady [03:45]
+02. Harlem Speaks [03:11]
+03. In a Sentimental Mood [03:20]
+04. Merry-Go-Round [03:02](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B7DCB23B2EDAEA3A3429D94001885DB94D3F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136594   (673245) от 23.05.2017
 
 Dizzy Gillespie - The Greatest Of Dizzy Gillespie (1946 - 1949) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
@@ -658,93 +745,6 @@ Dave Brubeck - On Time (2001) Sony Music Special Products [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A19A4D404DD4D5CB933D9B8A9AAA6F6FFE8C0F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136900   (671150) от 24.05.2017
-
-Dave Brubeck - Lullaby in Rhythm (1949 - 1955) 4CD, 2006, Membran Music [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671150.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Blue Moon [02:58]
-02. Tea for Two [02:47]
-03. Indiana [02:35](   Читать дальше...   )Жанр: CoolПродолжительность: 04:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A09498DE0B18BF3330747A4A341C0BB2AC5D495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136858   (671019) от 24.05.2017
-
-Dexter Gordon - Dexter Calling (1961) 2004, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul sister [07:46]
-02. Modal mood [05:24]
-03. I want more [05:21]
-04. The end of a love affair [06:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B07DE6E14471AAF5C2773A9BA400E6B7E78E4BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536964   (670982) от 14.03.2022
-
-Duke Ellington - Peer Gynt Suites  Nos. 1 & 2, Suite Thursday (1960) 1990, Sony [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Mood [4:27]
-02. In The Hall Of The Mountain King [2:36]
-03. Solveig's Song [4:02]
-04. Ase's Death [3:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3925FBB7E8A9FAE591F2260046680B92E48B36
 ```
 
 https://mybot314.ru/tekegram_catalog/

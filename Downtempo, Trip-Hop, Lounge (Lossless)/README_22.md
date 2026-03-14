@@ -1,3 +1,61 @@
+###  Публикация: 1631610   (236333) от 06.05.2023
+
+VA - Climax Chill Out Session Pt.1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_236333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project Blue Sun - Art Of Love (3:44)
+02. Guenter Haas - Black Rose (3:17)
+03. 351 Lake Shore Drive,J'unique,The Replaceables - Eine Sekunde (Smooth Deluxe Ambient Mix) (6:20)
+04. Marco Moli - Black Bird (2:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6724C05C074FD7A1DF41C3AF76592924C9C0D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634907   (232456) от 26.05.2023
+
+Sola Rosa - Low and Behold, High and Beyond (2012) [WavPack|Lossless|WEB-DLRip|tracks] <Electronic, Funk/Soul, Dub, Trip Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_232456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promise Ft. Olivier Daysoul (04:30)
+02. I'm Not That Guy Ft. Spikey Tee (04:00)
+03. Spinning Top Ft. L.A. Mitchell (03:25)
+04. Lions Den (04:40)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, Dub, Trip Hop, DowntempoПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BC562E158B3A3429A2E9E4EFF2889EC8754E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648677   (230689) от 24.07.2023
 
 VA - Maretimo Chill Radio - Best of, Vol. 2 - Positive Summer Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -687,64 +745,6 @@ VA - Ibiza Summer 2025 (Chill out Cookies from the Heart) (2025) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C263F94AE03D3D411156FCB9325F5FCB8B33DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638566   (211918) от 09.06.2023
-
-VA - Chillout Spring Gems 2023: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beamy - Lazy Daze (4:34)
-02. Martin Hiska - Sun People (6:24)
-03. Fake and True - Seas of Passion (5:04)
-04. Five Seasons - Places That You Love (5:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87D2CA6115AD379323BFC109A64000E0716181B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641594   (210668) от 23.06.2023
-
-VA - Relaxing Melodies: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Close Encounters (Original Mix) (4:10)
-02. Michael E - Infinite Beauty (Original Mix) (4:54)
-03. Martin Hiska - Circles (5:35)
-04. Beamy - Gawain (4:00)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:217278204B7A5F14BA57E666A96C790E70670C07
 ```
 
 https://mybot314.ru/tekegram_catalog/

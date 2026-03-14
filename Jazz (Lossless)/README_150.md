@@ -1,3 +1,90 @@
+###  Публикация: 1307624   (554722) от 11.06.2019
+
+Red Nichols - 1928 - 1929 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poor Butterfly (vocal) [4:01]
+02. Poor Butterfly (instr.) [4:03]
+03. Can't Yo' Hear Me Calling, Caroline? (vocal) [4:08]
+04. Can't Yo' Hear Me Calling, Caroline? (instr.) [4:07](   Читать дальше...   )Жанр: Swing, New Orleans JazzПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179CECE3E8B2D2ECAE3787A78E0DAF29DA67893F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307610   (554698) от 11.06.2019
+
+Aaron Goldberg - At the Edge of the World (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poinciana (05:47)
+02. Luaty (04:50)
+03. Isn't This My Sound Around Me (05:20)
+04. When You Are Near (08:22)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C396C179D2BCE4545323032A59506201DB8E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307813   (554517) от 12.06.2019
+
+Horace Tapscott Quintet - The Giant Is Awakened (1969) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Giant Is Awakened [17:28]
+02. For Fats [2:24]
+03. The Dark Tree [7:04]
+04. Niger's Theme [11:58]Жанр: Avant-Garde JazzПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DC8A226F8EFD1DA6827BDA1AF13B72867A892C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236433   (554253) от 18.07.2018
 
 Tony Bennett - Life Is Beautiful (1975) Reissue, Remastered 2003 [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
@@ -656,93 +743,6 @@ Art Tatum - More Of The Greatest Piano Of Them All (1954, 1955) 2015, Poll Winne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D944486265C43A4C9E4FA855CBE129FE0926E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046702   (551853) от 27.08.2016
-
-VA - Koktebel Jazz Festival - Хиты Джаз Коктебель (2012) Live [FLAC|Lossless|image + .cue] <Jazz, Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parov Stelar - Chambermaid Swing (2011) (4:52)
-02. Нино Катамадзе & Insight - Dance Under Umbrella (2007) (8:31)
-03. De Phazz - Keep It Simple (2005) (3:55)
-04. Аукцыон - Фа-Фа-Фа (2010) (11:25)(   Читать дальше...   )Жанр: Jazz, RockПродолжительность: 01:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50624DE4CD92CF1F033B3ED9A05D250002021B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237591   (551589) от 24.07.2018
-
-Gerry Gibbs and the Thrasher Band - Faces Unknown (2006) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post Bop, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551589.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Caribean Song (Gibbs) 6:08
-2. Chameleon (Hancock, Arr. Gibbs, Langham & Price) 6:46
-3. Maiden Voyage (Hancock, Arr. Gibbs) 8:50
-4. Blue Monk (Monk, Arr. Gibbs) 6:36(   Читать дальше...   )Жанр: Contemporary Jazz, Post Bop, FusionПродолжительность: 01:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8007D7ACFC0057850E49C6B01EF5C29C81812B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309535   (551211) от 19.06.2019
-
-Fission - Waves // And // Flow (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knowledge And Fear (5:16)
-02. When The Sky Would Fade Away (6:58)
-03. Intro (2:47)
-04. Shouts (7:58)(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B3DB477CA79B60286BF4F98A50167EC9B60459
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,126 @@
+###  Публикация: 613851   (981828) от 05.02.2013
+
+Roger Shah - Music for Balearic People 244 (2013-01-18) [MP3|256 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Island - Intro (Hour 1) (02:00)
+02. Roger Shah feat. Lorilee - When The Worlds Asleep (Pedro Del Mar & Double V Remix) (04:33)
+03. Aki - 10 Years (Pizz@dox Remix) (05:34)
+04. Andy Hope - Palmira (05:48)
+05. Anna Lee vs. Alex Teeb - One Sumer Day (Ilya Soloviev Remix) (07:32)
+06. 2 Reezone - Polarity (Sound Players Remix) (06:05)
+07. Adam Firegate & Flashtech - Gambits (Olbaid Remix) (07:01)
+08. Tangle & Mateusz - Nemesis (05:05)
+09. Bjorn Akesson - Sol (05:47)
+10. Kamil Esten - Edem (Pulstate Remix) (06:09)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D347584AA52489CDC25420A43EE863C2E70D3B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610988   (981824) от 05.02.2013
+
+Butterfly & Stan Sanych - Trance Life Radio Podcast 007 (January 2013) (29.01.2013) [MP3|320 кб/с]<Progressive House, Progressive Trance, Melodic Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrique Echd -  Something About You (Elfsong & Aeron Aether & Something More Mix)
+02. Michael & Levan feat. Stiven Rivic -  Free Fall (Original Mix)
+03. Fehrplay -  Incognito (Original Mix)
+04. Thomas Hayes -  Waterfall (Original Mix)
+05. Moonsouls -  Resolution (Original Mix)
+06. Steve Brian & Cressida -  Systemic (Original Mix)
+07. Damian Wasse -  Into The Love (Club Mix)
+08. Reconceal -  Renascentia II (Original Mix)
+09. RAM & XB -  Symphonik (Original mix)
+10. Armin Van Buuren & Markus Schulz -  The Expedition (Original Mix)Жанр: Progressive House, Progressive Trance, Melodic TranceПродолжительность: 02:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F581DEA18B9AE8B42B513D73A48BAED9FC54F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972275   (981817) от 06.01.2016
+
+Камеди Клаб / Комеди Клаб / Comedy Club (25.12.2015) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981817.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморПродолжительность: ~ 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B910E0BDC68F08F3EAB10B5C7277F0073FFE1D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972491   (981811) от 06.01.2016
+
+K-Lite Codec Pack Update 11.8.3 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981811.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - в различных вариантах содержит все самые популярные кодеки для проигрывания и кодирования видео (кроме версии Basic). QuickTime Alternative и Real Alternative являются дополнительными пакетами для проигрывания соответственных форматов и содержат основные компоненты от официальных проигрывателей.
+Update это обновление применимо для всех пакетов (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB58B394AD8438A95CC540BAA138A4C94BF7B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614447   (981743) от 05.02.2013
 
 Café Del Chillia - After The Rain (2013) [MP3|320 кб/с]<Chillout, Lounge, Jazzy>
@@ -465,6 +588,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165711   (981594) от 11.01.2010
+
+Sothink SWF Decompiler 5.3.528 [Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_981594.jpg" />
+</div>
+
+
+###  Подробнее
+
+SWF Decompiler Magic - мощная программа для конвертации флэш-файлов между форматами SWF и EXE, редактирования SWF роликов (динамические тексты, изображения и многое другое). С помощью данной утилиты пользователи смогут экспортировать ресурсы из флэш-файла и сохранять звуки, изображения, формы, фреймы, шрифты, тексты, кнопки, спрайты и скрипты в другие форматы.
+Программа также содержит инструмент SWF Catcher, который позволяет захватывать Flash-анимацию, просматриваемую в браузерах Internet Explorer или Firefox. Программа совместима со всеми SWF элементами, такими как ActionScripts, звуки, изображения, видео, формы, рамки, точки, тексты, кнопки в различных форматах. Программа может скопировать отрывок из видео файла Flash и вставить его в любой *.flv формат. Интерфейс продукта логичен и прост в управлении.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614163   (981593) от 05.02.2013
 
 Родерик Грэм | Мария Стюарт (2010) [PDF]
@@ -558,145 +708,6 @@ HyperSnap 7.23.02 [Английский + Русский]
 ###  Подробнее
 
 HyperSnap - это мощное программное средство, которое является одним из лучших на сегодняшний день приложением для быстрого и точного захвата изображения, позволяет оперативно скопировать не только окна стандартных программ, но и игры, скринсейверы и видеофильмы. При помощи данной программы вы очень легко можете сделать скриншот всего экрана монитора, его части, окна определенной программы (вместе с курсором или без), игр и скринсейверов (работающих в режимах DirectX и 3Dfx Glide), видео- и DVD-фильмов, и сохранить его в одном из более, чем 20-и форматов, включая BMP, GIF и JPEG.Название программы: HyperSnapЯзык интерфейса: Английский + Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613914   (981580) от 05.02.2013
-
-Tiesto - Tiesto's Club Life 305 (03.02.2013) (2013) [MP3|192 кб/с]<House,Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981580.jpg" />
-</div>
-
-
-###  Подробнее
-
-The best of 1st hour is: 
-
-1.Miriam Bryant - Push Play (Filip Jenven & Mike Perry Remix)
-2. Avicii & Nicky Romero - I Could Be The One (*****im)
-3. Delerium - After All (Henrix Mashup)
-4. Lana Del Rey - Summertime Sadness (Cedric Gervais Remix)
-5. Sam Thomasson Feat. Colonel Red - Get More (Lush & Simon Remix)
-6. Swanky Tunes & Peking Duk Feat. James McNally - You Are 7.Like Nobody Else
-8. John Dahlback Feat. Agnes - Life (Diamonds In The Dark)
-9. Wolfpack Feat. Coco Star - Miracle (Dimitri Vegas & Like Mike Remix)(   Читать дальше...   )Жанр: House,Electro HouseПродолжительность: 01:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3071C5A4ADDA13ADD0DF7B9A8B53B475BE3740F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972517   (981572) от 06.01.2016
-
-Paint.NET 4.0.9 + Plugins Portable by Punsh [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paint.NET — бесплатный растровый графический редактор рисунков и фотографий для Windows, разработанный на платформе .NET Framework. Paint.NET является отличной заменой редактору графических изображений, входящему в состав стандартных программ операционных систем Windows. Обладая многими мощными функциями, которые присутствуют только в дорогих графических редакторах, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC89AF45F19EC1C34E9ACDDE4B796E824954553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969682   (981564) от 06.01.2016
-
-Качая железо / Pumping Iron (1977) Blu-ray [H.264/1080p] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981564.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Качая Железо» явил миру двадцативосьмилетнего Арнольда Шварценеггера — пятикратного обладателя титула «Мистер Олимпия», австрийского культуриста, которого книга рекордов Гинесса назовёт «самым идеально сложенным мужчиной за всю историю мира». В этой картине будущая суперзвезда Голливуда будет бороться за свой 6-ой титул «Мистер Олимпия»!Производство: Rollie Robinson, White Mountain FilmsЖанр: Документальный, спортРежиссер: Джордж Батлер/George Butler, Роберт Фиоре/Robert FioreАктеры: Арнольд Шварценеггер, Лу Ферриньо, Мэтти Ферриньо, Виктория Ферриньо, Майк Кац, Франко Колумбу, Эд Корни, Кен Уоллер, Серж Нюбре, Робби Робинсон и др.Перевод: ОтсутствуетЯзык субтитров: ОтсутствуетПродолжительность: 01:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819CCE7E66D4BE18AB20BE287B82CB1EA620E670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972441   (981550) от 06.01.2016
-
-OBS Multiplatform 0.12.3 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981550.jpg" />
-</div>
-
-
-###  Подробнее
-
-OBS Multiplatform - полностью изменённый проект оригинальной OBS ( Open Broadcaster Software ), первоначально предназначенной для записи в прямом зфире. OBS Multiplatform ( OBS-Studio ) - полностью бесплатное программное обеспечение, с открытым исходным кодом для записи скринкастов, видеотрансляций, захвата видео с компьютера и дополнительных устройств. В новом программном (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3192846F4EE95FFE7A568C2AA0932114A97E453E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165591   (981525) от 11.01.2010
-
-Сборник программ, для запуска, копирования лицензионных дисков / 2010 [русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Архив программ, для запуска, копирования лицензионных дисков.
 
 ## Скачать торент
 ```bash

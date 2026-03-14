@@ -1,3 +1,90 @@
+###  Публикация: 1621995   (234494) от 27.03.2023
+
+George Kawaguchi & The Super Band - Super Drums 1 + 2 (1985) King Record [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tappan Zee [3:17]
+02. Feels So Good [3:45]
+03. I Can't Get Started [5:10]
+04. Isn't She Lovely [3:37](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Big BandПродолжительность: 01:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E75C95FCEF0701510DF12FE84907BAC2576E006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642892   (234450) от 29.06.2023
+
+Amandus - Her Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Love (Feat. Uli Brodersen) (3:53)
+02. Her Love (Feat. Klyive) (3:30)
+03. Moving Up North (Feat. Uli Brodersen) (4:17)
+04. Things We Lost (4:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF0307E62A713B28A54EAFC8AFF49F2591A20EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642825   (234431) от 29.06.2023
+
+Luciana Souza - Storytellers (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Varanda [4:18]
+02. Matita Pere [8:34]
+03. Se Acontecer [5:12]
+04. Beatriz [5:42](   Читать дальше...   )Жанр: Vocal Jazz, Brazilian JazzПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BCE625490DAF5B27E59A0F638B132D8A6F8FA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642900   (234427) от 29.06.2023
 
 Lynn Cannon - Just Chillin'! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -658,93 +745,6 @@ Dinah Washington - Gold (1943 - 1961) 2CD, 2007, Verve Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48F57C13FFAFA4BCEE87877DEC2563D1AB89C421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640747   (233958) от 19.06.2023
-
-Earl Hines - Fine & Dandy (1949) 1992, Vogue [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snappy Rhythm [2:57]
-02. I Never Dreamt [3:03]
-03. Chicago [3:12]
-04. Night Life In Pompeii [3:09](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D942B7FFDB7C05A7B8E28229A9E42349EFD11F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643298   (233922) от 01.07.2023
-
-Dexter Gordon Quartet - Live in Chateauvallon (1978) 2CD, 2020, Elemental Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Than You Know [24:53]
-02. Gingerbread Boy [37:42]
-03. Long Tall Dexter (closing announcements) [4:58]
-(   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607F0D94D98825529A98459F1E92F94D4F73FFD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623306   (233902) от 01.04.2023
-
-Rachel Therrien - Mi Hogar (2023) Outside in Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capricho Arabe [9:20]
-02. Moment's Notice [5:29]
-03. The Wizard [5:39]
-04. Mojo [6:05](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Latin JazzПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17047A5A1CFD2F49DE7958260CDA0132C4362C4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

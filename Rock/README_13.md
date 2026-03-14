@@ -1,3 +1,32 @@
+###  Публикация: 866874   (904859) от 07.02.2015
+
+Jimi Hendrix - Rainbow Bridge (1971) Remastered 2014 [MP3|320 кб/с]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904859.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dolly Dagger
+2. Earth Blues
+3. Pali Gap
+4. Room Full of Mirrors(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C239EDE02D5542DDA05BF548634D9B266A01D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992012   (904445) от 29.02.2016
 
 Andy Logan & The O.C. 75s - Transistors of Mercy (2016) [MP3|320 кб/с] <Rock>
@@ -717,35 +746,6 @@ Chris de Burgh - The Legend of Robin Hood (2021) [MP3|320 Kbps] <Pop Rock, Folk 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74E00D464A9335C740528608ED695473AA18D4C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371614   (890082) от 31.03.2020
-
-Брати Гадюкіни - Сміх і гріх (2019) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сміх і гріх (03:44)
-02. Біжу по граблях (03:58)
-03. Сафарі (04:01)
-04. Сивина в бороду (04:15)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476408782BE9F66EDEDDD1C24193A9B94893704A
 ```
 
 https://mybot314.ru/tekegram_catalog/

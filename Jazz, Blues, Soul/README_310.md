@@ -1,3 +1,177 @@
+###  Публикация: 948334   (411788) от 20.10.2015
+
+Ray Bryant - Trio (1956) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cubano Chant [03:07]
+ 02.Off Shore [03:57]
+ 03.Well, You Needn't [03:19]
+ 04.Cry Me A River [03:52](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379BCA055470FBF14180D86181B5ABDBE69A7410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711485   (411720) от 16.10.2013
+
+Joe Cocker - Joe Cocker Gold (2006) 2CD [APE|Lossless]<Rock, Blues Rock, Soft Rock, Classic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01.Feelin' Alright
+02.With A Little Help From My Friends
+03.Delta Lady(   Читать дальше...   )Жанр: Rock, Blues Rock, Soft Rock, Classic RockПродолжительность: 02:24:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302E75DB38FFE028324A03D1E11E757DB7C64BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948604   (411612) от 20.10.2015
+
+Johnny "Hammond" Smith Trio plus Seldon Powell - Black Coffee (1962) /2012, Universal/[FLAC|tracks+.cue]<Soul-Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Black Coffee [04:20]
+ 02.Monterey Theme [03:08]
+ 03.I Remember Clifford [04:19]
+ 04.Far Away Places [07:17](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C5CEFDD0EFEBA4FDFE1ADBE66984B9120F656C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948255   (411605) от 20.10.2015
+
+Scott Hamilton - plays with The Dany Doriz Caveau De La Huchette Orchestra (2014) /Fremeaux & Associes/[FLAC|tracks+.cue]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Slipped Disc [04:25]
+ 02.Dropsy [05:14]
+ 03.Cotton Tail [04:35]
+ 04.Amen [07:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A76F9848C97FD274527123F5A15C76637F1D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948328   (411604) от 20.10.2015
+
+Johnny Hammond - Gambler's Life (1974) /2013, King Records/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Gambler's Life [06:03]
+ 02.Rhodesian Thoroughfare [06:21]
+ 03.This Year's Dream [06:25]
+ 04.Star Borne [08:21](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hammond OrganПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E33B4DF130B8E0235D949A59D25454B5D3552D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252246   (411313) от 04.10.2018
+
+Donny McCaslin - Fast Future (2015) Greenleaf Music [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Future [5:54]
+02. No Eyes [5:56]
+03. Love and Living [9:30]
+04. Midnight Light [6:39](   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8EDD6E7174351CE3D73A3E80C94E88E1F4DA333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252241   (411311) от 04.10.2018
 
 European Jazz Trio - An Afternoon In Amsterdam (2009) M&I [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -571,180 +745,6 @@ Freddie King - The Shelter Records Years (2000) [APE|Lossless|image + .cue] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ECF5B453A8741F88DC0273B290A97F115420694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413281   (410101) от 03.10.2020
-
-Scott Hamilton - Organic Duke (1994) 2000,  Concord Jazz [APE|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump for Joy [4:59]
-02. Blue Hodge [7:54]
-03. Moon Mist [3:59]
-04. Paris Blues [6:01](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D79C7E9CAB3C2BC8FFC25AB7151FBB04BDCAF1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066873   (410076) от 27.10.2016
-
-The DGB - More Is More (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Won't Let Love
-02. Leave This Town
-03. Been There Twice
-04. Hold On(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0318575D7173F7F2FAAD4DBADBC52F809874C012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413315   (409995) от 03.10.2020
-
-Ben Granfelt - True Colours (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victorious (04:52)
- 02. No Turning Back (05:28)
- 03. Hey Stranger (04:33)
- 04. Arms of an Angel (05:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C296F5BCDD2062255D5FF3E5ED92BB699BE91415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413323   (409864) от 03.10.2020
-
-Magnolia Bayou - Strange Place (2020) [MP3|320 Kbps] <Southern Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dig Deep (04:12)
- 02. Sleepin' in the Dog House (04:06)
- 03. Sugarspell (04:01)
- 04. Preachin' Blues (05:08)(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B03594C8DDA885176885569E48577BD5F9B293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413319   (409859) от 03.10.2020
-
-William Shatner - The Blues (2020) [MP3|320 Kbps] <Blues Rock, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Home Chicago (02:55)
- 02. I Can't Quit You Baby (04:39)
- 03. Sunshine of Your Love (04:21)
- 04. The Thrill Is Gone (04:54)(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2215B3968DEE12BC72F579E2B54594FEADDE192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948596   (409811) от 21.10.2015
-
-Elvin Jones - The Ultimate (1968) /2014, Universal/[FLAC|tracks+.cue]<Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In The Truth [05:07]
- 02.What Is This? [07:10]
- 03.Ascendant [05:16]
- 04.Yesterdays [05:41](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B61E8341E41AE85E139C0372846667C8847C944
 ```
 
 https://mybot314.ru/tekegram_catalog/

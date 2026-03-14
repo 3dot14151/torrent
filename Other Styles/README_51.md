@@ -1,3 +1,146 @@
+###  Публикация: 1212168   (776390) от 10.03.2018
+
+Sade - Flower of the Universe (From Disney's "A Wrinkle in Time") (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flower of the Universe (3:49)
+ 02. Flower of the Universe (No I.D. Remix) (4:07)Жанр: Pop, SoulПродолжительность: 00:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99653503949DD44394FC1810920B7C1BE5B13D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014434   (776376) от 07.05.2016
+
+Mariza - Mundo (2015) [FLAC|Lossless|tracks  + .cue] <Folk, World, Country, Fado>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rio De Mágoa [03:17]
+02. Melhor De Mim [04:08]
+03. Alma [03:12]
+04. Saudade Solta [03:32](   Читать дальше...   )Жанр: Folk, World, Country, FadoПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F256B1DA70FDCB3AF5503A0B8BFB98DE039BE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014397   (776366) от 07.05.2016
+
+VA - Creed (Original Motion Picture Soundtrack) (2015) [FLAC|Lossless|Web-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future - Last Breath (3:59)
+02. Meek Mill - Check (3:14)
+03. White Dave - Intolerant (3:34)
+04. The Roots - The Fire (feat. John Legend) (3:41)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD15D4A8A38AC427F2B973CF41C12EF8BD93E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014512   (776152) от 08.05.2016
+
+Deuter - Ocean Waves (2012) [FLAC|Lossless|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bali    16:58
+02. Cannes    15:33
+03. Lanzarote    12:57
+04. Nice    10:07(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5B0FC45B147FA010726A6675790768A261E4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212372   (776083) от 11.03.2018
+
+Brian Crain - Piano and Night (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamsong
+02. Starry Night
+03. Paper Lantern Sky
+04. Sleep Nocturne(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38DC252E66C4C8BCDCFA5C15C91D0DF6B663D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014691   (776071) от 08.05.2016
 
 Zhou Zifeng - Hotel California (1999) [MP3|320 кб/с] <Guitar, Instrumental>
@@ -600,151 +743,6 @@ Piano Ballade (1984)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:327ABDE9B798A4B27D93B2EF7FE9F61B6B1D9957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015741   (772555) от 12.05.2016
-
-Emir Kusturica & The No Smoking Orchestra - The Best Of... (2009) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Gypsy Punk, Balkan>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bubamara (Main Version)
-02. Kana O Del Barvarel
-03. Upside Down
-04. Unza Unza Time(   Читать дальше...   )Жанр: Folk-Rock, Gypsy Punk, BalkanПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA5781B3ED5233A4E56D1ABE0986D7E9C64B074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016015   (772552) от 12.05.2016
-
-Hang Massive - Beats For Your Feet (2012) [FLAC|Lossless|tracks] < Folk, World, New Age>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Again (live)     06:04
-02. Skanegatan (live)    04:05
-03. Increasing Obviousness (live)    04:36
-04. Omat Odat (live)    06:14(   Читать дальше...   )Жанр: Folk, World, New Age,Продолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6425163A5582C8A217C49E3CB34629259719FB29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213255   (771997) от 16.03.2018
-
-Graeme Keavney, Geoff McGarvey - Dawn (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771997.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. McGarvey - Pebble Beach
-2. McGarvey - Blue Mountain
-3. Keavney - Newport
-4. McGarvey - Salvation Creek(   Читать дальше...   )Жанр: Modern Classical, Ambient, New AgeПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A081BFFD14C28D7B5DE9F5BD1DA0BEA66A51B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213318   (771934) от 16.03.2018
-
-Geoff McGarvey, Graeme Keavney - Dusk (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771934.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  McGarvey - Culburra
-2.  Keavney - Cow Bay
-3.  McGarvey - Pobblebonk
-4.  McGarvey - Ku-ring-gai(   Читать дальше...   )Жанр: Modern Classical, Ambient, New AgeПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0A4DC83A98AE4BFE4B00E843D4EAA1393C0112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278533   (771835) от 25.01.2019
-
-Hilmar Orn Hilmarsson & Sigur Ros - Englar Alheimsins (2001) [FLAC|Lossless|tracks + .cue] <Modern Classical, Score, Post Rock, Minimal, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hilmar Örn Hilmarsson - Aðflug / Draumur (03:07)
-02. Hilmar Örn Hilmarsson - Minning (01:56)
-03. Hilmar Örn Hilmarsson - Svarti Hundurinn Og Skoska Leikritið (01:23)
-04. Hilmar Örn Hilmarsson - Niðurlæging (01:19)(   Читать дальше...   )Жанр: Modern Classical, Score, Post Rock, Minimal, AmbientПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C471921BE1BB1B87EE9C15E3B48AD55C88C9625
 ```
 
 https://mybot314.ru/tekegram_catalog/

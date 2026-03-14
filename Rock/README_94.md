@@ -1,3 +1,61 @@
+###  Публикация: 1704270   (114495) от 03.03.2024
+
+Nigel Olsson - Nigel Olsson's Drum Orchestra And Chorus (1971) LP [MP3|320 Kbps] <Blues Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский музыкант (родился 10 февраля 1949 года в Уолласи, графство Мерсисайд, Англия). Барабанщик и певец, участник Plastic Penny, позже играл на барабанах (в основном) с Элтоном Джоном, а также с Uriah Heep в 1970 году.01. Sunshine Looks Like Rain (2:33)
+02. I'm Coming Home (3:55)
+03. Nature's Way (3:12)
+04. Hummingbird (6:21)(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC85FB82367DDB1F3AF8739C4BCC206766B4BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712761   (112026) от 04.04.2024
+
+408 - Hot Mess (2024) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Remember Her Like That [00:03:07]
+02 - Girl Of My Dreams [00:02:38]
+03 - Break Up With Your Girlfriend [00:03:26]
+04 - Hot Mess [00:02:42](   Читать дальше...   )Жанр: Alternative, Pop-PunkПродолжительность: 00:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630D9CCA3A7F56DA817E108156432D23D98CDFE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717995   (111051) от 22.04.2024
 
 Thirsty Moon - Starchaser (1981) LP [MP3|320 Kbps] <Pop-rock, Krautrock>
@@ -687,64 +745,6 @@ Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27E30DF5D5F101802532187EA77A428C8F365116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735441   (106928) от 08.07.2024
-
-Hawkestrel - Presents Pre-Med - Old Habits Die Hard (2024) [MP3|320 Kbps] <Progressive Rock, Space Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Gone (04:13)
- 02. In Between The Black And White (04:19)
- 03. Courage Or Conviction (07:04)
- 04. Least Of All You (04:13)(   Читать дальше...   )Жанр: Progressive Rock, Space Rock, Psychedelic RockПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD056CADBA101FF9E4574EF2A218CB503336FBA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735660   (106787) от 10.07.2024
-
-DS Caw - Nothing To Fight For (2024) [MP3|320 Kbps] <Classic Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Rain (03:46)
- 02. Nothing To Fight For (03:11)
- 03. Static On The Radio (03:22)
- 04. Demon In My Pocket (03:28)(   Читать дальше...   )Жанр: Classic Rock, BluesПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C03E0E32B36EC4EFA163D984A59BE51E7A11D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

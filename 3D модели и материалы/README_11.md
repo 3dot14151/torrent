@@ -1,3 +1,30 @@
+###  Публикация: 1205778   (783195) от 11.02.2018
+
+3D модели - Daz 3D - Lee 7 Pro Bundle - 24367 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Lee 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F69D5BFBF2233D31F3DFE95C32D52FBC0395D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205790   (783192) от 11.02.2018
 
 3D модели - Daz 3D - The Guy 7 Pro Bundle - 23925 [DUF]
@@ -657,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E741334ED2A1012B81E5DB3EE6AFFC9E82B03078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210579   (778608) от 03.03.2018
-
-3D модели - 3ddd - Коллекция корзин [V-Ray|*.max, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778608.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модели плетеных корзин для белья.Формат: V-Ray|*.max, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6064C09EEFD2AE5ECE7AAE17FF823AFCD6418586
 ```
 
 https://mybot314.ru/tekegram_catalog/

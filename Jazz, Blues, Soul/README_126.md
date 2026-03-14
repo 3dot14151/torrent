@@ -1,3 +1,178 @@
+###  Публикация: 1123421   (792524) от 07.04.2017
+
+Jason Barnhouse - The Wounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run Your Fingers (feat. Aaron Scott, Johnny Compton & Aaron Fisher)  (03:21) 
+02. This Should Be (feat. Aaron Fisher, Johnny Compton & Aaron Scott)  (04:51) 
+03. Questions (feat. Aaron Fisher, Aaron Scott & Johnny Compton)  (03:10) 
+04. Liquid Emotion (feat. Johnny Compton, Aaron Fisher & Aaron Scott)  (04:11) (   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE88D427684BB41D13854293D729388A406F0C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123347   (792522) от 07.04.2017
+
+The Delta Saints - Bones (2015) [FLAC|Lossless|tracks + .cue] <Delta Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes I Worry  (03:47) 
+02. Bones  (03:34) 
+03. Heavy Hammer  (03:05) 
+04. Zydeco  (03:21) (   Читать дальше...   )Жанр: Delta BluesПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3637415AF6B585F638379FF44DE3EDFA0395FC10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123091   (792498) от 07.04.2017
+
+Vainoras and the altar of the drill - Self titled (2017) [FLAC|Lossless|Web-DL|tracks] <DoomJazz, Ambient>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worship the drill (5:05)
+02. Cremated in C minor (4:21)
+03. Grimm fandango (4:38)
+04. Numb de plume (5:14)(   Читать дальше...   )Жанр: DoomJazz, AmbientПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C3EBEB8EF2627E119E451A14AD6CEFF75FA28A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123402   (792489) от 07.04.2017
+
+The Yardbirds - Birdland (2003) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Not Talking  (02:44) 
+02. Crying Out For Love  (04:36) 
+03. The Nazz Are Blue  (03:15) 
+04. For Your Love  (03:20) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB7B46A2B425FE0CBF7914BCEFBF6A78570129D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123448   (792377) от 07.04.2017
+
+Scott Bradlee's Postmodern Jukebox - Fake Blues (2017) [FLAC|Lossless|Web-DL|tracks] <Jazz, Soul, Covers>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнал о них в YouTube как и многие другие (а у них 2,5 млн. подписчиков!). Попав 28 февраля этого года на их концерт в А2 Green Concert получил просто незабываемое удовольствие.
+Под чутким творческим руководством Скотта «джукбоксы» создают настоящую магию перевоплощения хитов современности в шлягеры прошлого: Rihanna и Radiohead, The White Stripes и Lady Gaga, Daft (   Читать дальше...   )01. What Is Love  (4:30)
+02. Sledgehammer  (3:27)
+03. Feel Good Inc.  (4:22)
+04. All The Small Things  (3:24)(   Читать дальше...   )Жанр: Jazz, Soul, CoversПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A99111CE6F72CB6A0E4FFC61C6083EADEE4AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274754   (792276) от 08.01.2019
+
+Art Pepper - Goin' Home (1984) Victor [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goin' Home [5:32]
+02. Samba Mom Mom [4:54]
+03. In A Mellow Tone [5:32]
+04. Don't Let The Sun Catch You Cryin' [4:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5240A8AE4EDA6122B6E3E14138E864365D8CA95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274616   (792275) от 08.01.2019
 
 Crusaders - Ghetto Blaster (1984) [FLAC|Lossless|image + .cue] <Funk-jazz>
@@ -571,180 +746,6 @@ Jihye Lee Orchestra - Daring Mind (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD1FE019D610A9905852FF446F907CD2F897FF7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510503   (791416) от 16.11.2021
-
-Gov't Mule - Heavy Load Blues (2021) 2xCD, Deluxe Edition [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc A:
-01. Blues Before Sunrise (3:44)
-02. Hole In My Soul (4:29)
-03. Wake Up Dead (5:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E88F9597CF595C5111661D0C754E2CD5A9E6CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510330   (791372) от 16.11.2021
-
-Gov't Mule - Heavy Load Blues (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Before Sunrise (3:44)
-02. Hole In My Soul (4:29)
-03. Wake Up Dead (5:55)
-04. Love Is A Mean Old World (4:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF25E774531A4C3C307CC61B840E46F9B46D2889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387529   (791342) от 02.06.2020
-
-Peters Drury Trio - When Old Met New (1999) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Me to the Moon [3:25]
-02. Not Meant to Fall [5:16]
-03. Summertime [5:14]
-04. All or Nothing at All [6:59](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 01:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0877C25FFCEA854D61E49FF3E1201800F56917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387552   (791337) от 02.06.2020
-
-Otis Redding - Stax Classics (2017) [FLAC|Lossless|tracks + .cue] <Rhythm & Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791337.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 (Sittin' On) The Dock Of The Bay
-2 These Arms Of Mine
-3 Try A Little Tenderness
-4 I've Been Loving You Too Long(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 00:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5AABF707C9883C1CE89111804BBCAF6F4DD7F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387663   (791219) от 02.06.2020
-
-VA - The Devil's Music Rock and Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Doors - Roadhouse Blues
-02. Big Mama Thornton - Rock Me Baby
-03. John Lee Hooker - You Lost a Good Man
-04. Carey Bell - Sleeping with the Devil(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70106EB8201718AA62546EE3F96A23FB0774D048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275274   (791163) от 10.01.2019
-
-Bruut! - V (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lopez
-02. Maestro
-03. Phteven
-04. Bud(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95DD30691D204455D76E0AE6C4C6CCCDEEED1FFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

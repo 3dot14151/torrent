@@ -1,3 +1,61 @@
+###  Публикация: 1276035   (789010) от 14.01.2019
+
+VA - 50 Chart Hits of 2019-The Winter Workout Album (2019) [MP3|320 Kbps] <Nu Disco, Pop, Club>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chrizz Morisson & Jair - Baby (Don't Let Me Be Alone) (Dolls House Remix) 3:55
+02. B.G. The Prince Of Rap Feat. Timi Kullai & Nathan Reynolds Iii - Once You Have Me (Remundo Remix) 5:00
+03. Chrizz Morisson & Latisha Van Simon - From Here On Up (Dolls Uk Edit) 3:12
+04. Real System - There Is No More Love (Randy Norton Edit) 3:43(   Читать дальше...   )Жанр: Nu Disco, Pop, ClubПродолжительность: 03:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB64D06B84FA6FE9C0768F37FAB03065620703B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511396   (788848) от 21.11.2021
+
+VA - The Best New Year's Party Album In The World...Ever! (2021) Explicit [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. THE ANXIETY - Meet Me At Our Spot [00:02:42]
+02. Billie Eilish - bad guy [00:03:14]
+03. Surf Mesa - ily (i love you baby) [00:03:01]
+04. Maroon 5 - What Lovers Do [00:03:19](   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 08:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AD26D0C02CADBE318E1FCCB40E51F5671D2ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203540   (788218) от 02.02.2018
 
 Dana Dawson (Дана Доусон) - Black Butterfly (1995) EMI, TOCP-8648, Japan [MP3|320 Kbps] <Contemporary R&B, Soul>
@@ -687,64 +745,6 @@ Laura Branigan (Лора Брэниган) - Touch (1987) Atlantic, 81747-1, US 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A9CC91549D2F9FAC604D01910111A9837D0A290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204010   (785396) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Hold Me (1985) Atlantic, 7 81265-2, Europe [MP3|320 Kbps] <Pop Rock, Synth-pop, AOR>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Hold Me 4:46
-02. Maybe Tonight 3:40
-03. Foolish Lullaby 4:18
-04. Spanish Eddie 4:08(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, AORПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7B37B16D78EB65F768BBE24309C247BBCC39AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204029   (785393) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Over My Heart (1993) Atlantic, 7567-82489-2, Europe [MP3|320 Kbps] <Pop Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. How Can I Help You To Say Goodbye 4:29
-02. The Sweet Hello, The Sad Goodbye 5:07
-03. Over My Heart 4:25
-04. It's Been Hard Enough Getting Over You 3:42(   Читать дальше...   )Жанр: Pop Rock, SoulПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3368D24B8120D5BEFA2C5E5F1CC6684FC27FD63D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 608980   (992187) от 27.01.2013
+
+VA - S2S  Extravaganza "The Best Of" (2010) [MP3|320 кб/с]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aiza Seguerra - Time After Time  [05:09]
+02. Olivia Ong - First Of May  [03:37]
+03. Bevlyn Khoo - Talk To Me  [03:17]
+04. Sofia - I Believe  [04:33]
+05. MYMP - Especially For You  [03:42]
+06. Tay Kewei - Baby Now That I Found You  [04:08]
+07. Angela - Stay (I Miss You)  [03:06]
+08. Reymond Sajor - I Don’t Want To Miss A Thing  [04:02]
+09. Ariea De Rio - I’m Yours  [04:16]
+10. Princess - You Are Not Alone  [05:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC5EA008F1E96614C6E97D2D8C17EB26C3101B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609637   (992178) от 27.01.2013
+
+Pasadena Roof Orchestra - Licensed To Swing (2011) [FLAC|Lossless]<Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992178.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You're the Top (3:41)
+ 2. At the Jazz Band Ball (3:12)
+ 3. Bel Ami (3:16)
+ 4. No Strings (3:10)
+ 5. Futuristic Rhythm (2:59)
+ 6. Polka Dot Rag (2:54)
+ 7. About a Quarter to Nine (3:26)
+ 8. I Heard (2:25)
+ 9. Without That Certain Thing (3:22)
+ 10. Am Sonntag Will Meine Süsse Mit Mir Segeln Gehn (2:36)(   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609593   (992096) от 27.01.2013
 
 Modern Gustin Trio - The Beatles Go Jazz (1995) [FLAC|Lossless]<Jazz>
@@ -724,63 +794,6 @@ Archie Shepp - Montreux One 1975 (1988) Freedom [FLAC|Lossless|tracks + .cue] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:852F28D198F6CC56D6DBEC2D41B709DBABBBB9D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354649   (987075) от 23.01.2020
-
-Archie Shepp - Perfect Passions 1978 (1992) West Wind [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama Rose [26:39]
-02. Lush Life [20:02]
-03. In a Sentimental Mood [8:49]Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6BB67CDBB8A94AE89E15EF3956903D3AF041E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354595   (987020) от 23.01.2020
-
-Sensual Chill Saxaphone Band - Sensual Jazz - Saxophone Music (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Sax Relax
-02. Night Time (Saxophone Instrumentals)
-03. In a Mellow Tone
-04. Intimate Moments(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609C9BC2420AA638755C704EAA076C5452FC7CE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

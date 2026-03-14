@@ -1,3 +1,29 @@
+###  Публикация: 1075747   (317794) от 23.11.2016
+
+Проекты - VideoHive - Cinematic Glitch Epic Trailer - 18531377 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания кинематографического и эпического глюк трейлера.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B289321F362225E1BDAE00DCDAC6B18897D42680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 844340   (317787) от 25.11.2014
 
 VideoHive - Experimental 3D Photo Slideshow - 8026338 [AEP]
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCE214783CDC00DEF105D7572F94121367D36CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076145   (313338) от 25.11.2016
-
-Проекты - VideoHive - Holographic Logo - 1386738 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа в голографическом стиле.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C110915A73ED0914FE25770AE45EA57A90933D
 ```
 
 https://mybot314.ru/tekegram_catalog/

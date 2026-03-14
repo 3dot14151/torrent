@@ -1,3 +1,87 @@
+###  Публикация: 1822155   (98575) от 05.10.2025
+
+Windows 11 (v25h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MDSN: 26200.6584.250915-1905.25h2_ge_release
+_svc_refresh_CLIENT_CONSUMER_x64FRE_ru-ru.iso.
+Использован переработанный установщик от Windows 11 25h2 (SecureBoot и TPM 2.0 не требуется).
+Отключено несколько компонентов, задействован протокол SMB.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FE78C3150F37F7D44E58E890E5260E2F203154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822170   (98573) от 05.10.2025
+
+Windows 11 (v25h2) x64 PRO by KulHunter v1 (esd) [En]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MDSN: 26200.6584.250915-1905.25h2_ge_release_
+svc_refresh_CLIENT_CONSUMER_x64FRE_en-us.iso.
+Использован переработанный установщик от Windows 11 25h2
+(SecureBoot и TPM 2.0 не требуется)..(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EC97E2D88111595985B1ACEB0FABD070AB0840F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821487   (63965) от 03.10.2025
+
+Microsoft® Windows® 11 x64 Ru 25H2 4in1 Upd 10.2025 by OVGorskiy [Ru]
+
+>>След.
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63965.jpg" />
+</div>
+
+
+###  Подробнее
+
+обновленные, максимально приближённые к оригинальным русские образы ОС “Windows® 11™” от Microsoft наиболее востребованных редакций, объединенных в 1 образ (x64) стандартными средствами от Microsoft ADK (DISM). Включает в себя обновлённые "чистые", почти не модифицированные образы редакций ОС Windows 11 Pro, Home и Enterprise x64. В системе присутствуют (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7418DD58A7B54E60AF8A42C9CE8D52C8C0BBB67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821554   (63884) от 03.10.2025
 
 Windows 11 Pro х64 Version 25H2 Build 26200.6584 by Igors_VL [RU]

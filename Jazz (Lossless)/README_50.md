@@ -1,3 +1,32 @@
+###  Публикация: 1108240   (864837) от 24.02.2017
+
+Omer Klein - Sleepwalkers (2017) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonder and Awe
+02. Sleepwalkers
+03. Blinky Palermo
+04. One Step at a Time(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92702B34338FBF6701319A6C956F4FF6519F6F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108108   (864835) от 24.02.2017
 
 Nils Petter Molvaer - Baboon Moon (2011) Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -716,35 +745,6 @@ Doug Webb - Bright Side (2016) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDC79CBFDCE132AAF1F6FA2270041F1EBE6F0092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108972   (861086) от 26.02.2017
-
-Juan Gonzalez, Julio Simon, Rey Delis, Oscar Ruiz - Cuarteto de Saxofones de Santiago (1998) Auvidis [FLAC|Lossless|image + .cue] <World Fusion, Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Afro sensual [03:26]
- 02.Zapateo Cubano [02:19]
- 03.Altura de quintero [05:54]
- 04.Longina [03:28](   Читать дальше...   )Жанр: World Fusion, Cuban JazzПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FF47FCB1669F55ABD336395B9EDE88698DF536
 ```
 
 https://mybot314.ru/tekegram_catalog/

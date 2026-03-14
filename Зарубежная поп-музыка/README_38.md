@@ -1,3 +1,61 @@
+###  Публикация: 1232224   (602333) от 23.06.2018
+
+TB Frank (ex. The Neon Judgement) & Baustein - Tock! (2018) [MP3|320 Kbps] <Alternative Pop, Electro Rock, IDM>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother of Earth
+02. Bombies
+03. Margarita
+04. Snow White(   Читать дальше...   )Жанр: Alternative Pop, Electro Rock, Electro Funk, EBM, IDM, Synthpop, ReggaeПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B41AF95B386578B3EF277C9DD30258524E5323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298056   (602149) от 26.04.2019
+
+Pink (P!nk) - Hurts 2B Human (2019) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hustle
+02. (Hey Why) Miss You Sometime
+03. Walk Me Home
+04. My Attic(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DBFE9EE6CA2E4942C2D9F9EC2FB9BF09E35100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298261   (601904) от 27.04.2019
 
 Chrysta Bell & David Lynch - Somewhere In The Nowhere (2016) [MP3|320 Kbps] <Nuar, Trip-Hop, Blue>
@@ -690,64 +748,6 @@ Johnny Wakelin - Reggae, Soul And Rock'N'Roll (1976) LP [MP3|320 Kbps] <Funk, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A905BDBB78180FB53579273F3F13F5FDC63B6075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233080   (592997) от 30.06.2018
-
-VA - Bravo Hits Lato 2018 (2CD) (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alvaro Soler - La Cintura
-02. Sean Paul (feat. Becky G & David Guetta) - Mad Love
-03. Nico Santos - Safe
-04. Rudimental & Macklemore & Jess Glynne - These Days(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7519F042E4C76121284704E6D7D9C98A708ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300646   (592757) от 07.05.2019
-
-VA - Energy Hits 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592757.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Dermot Kennedy - Power Over Me
-02. Ava Max - Sweet but Psycho(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4FEB1D55D628CC666483A5060C81E53FFFE9D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

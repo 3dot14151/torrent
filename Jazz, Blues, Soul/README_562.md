@@ -1,3 +1,177 @@
+###  Публикация: 1799757   (66393) от 29.05.2025
+
+John Elijah - Take and Give (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heart Goes Boom (3:42)
+02.  The Giver (4:56)
+03.  Ghost Of My Past (3:25)
+04.  I'm Old (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E471612375E2F7ADF5418F1160854DE8821CBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799765   (66388) от 29.05.2025
+
+Sam Ghezzi - Bad Boy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Drop Anchor (2:08)
+02.  I'm Lost Without You (2:30)
+03.  Bad Boy (3:52)
+04.  The Seventh Son (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F413B676B89B805210E1D28D10DED7CC88CB98D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799758   (66381) от 29.05.2025
+
+John Stewart Simpson and Old Brown Dog - Chasing the Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ride On (5:23)
+02.  Enjoy the Ride (6:21)
+03.  Mekong Girl (4:40)
+04.  Not a Bad Night to Die (6:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E08AA243DABEEE492FDA8047A26428F0BA5F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799763   (66379) от 29.05.2025
+
+VA - The Midnighters Vol. III (Last Chapter) (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental Jazz Noise>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TO DIE ON ICE - ANAL - Tutto quello che ci resta (3:30)
+02. Spectre Horsemen, Pale With Dust - Hair Tourniquet (4:11)
+03. Satvrne - Esprit de Nuit (4:42)
+04. Brainwave Caravan - Please Let Me Rest In Your Arms Mother Earth (7:53)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Experimental Jazz NoiseПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAFD45322D35381836616BB1B62A84CAAF923A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799760   (66375) от 29.05.2025
+
+Lowell Hopper - Opposite Direction (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Opposite Direction (4:33)
+02.  Midnight Breeze (4:37)
+03.  G. Vernon Burrell, Jr. - The Still Within (2:08)
+04.  Under the Moonlight (4:52)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13C33B746C72CDE48590347B09A1B709E5B6130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799937   (66374) от 30.05.2025
+
+Teskey - White Wolf (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Under the Sun (3:25)
+02.  Cast Aside Child (4:40)
+03.  Upside Down World (5:04)
+04.  Don't Take My Angel (5:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF60935F384E8955E7E32B8766A527031BB975E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799932   (66359) от 30.05.2025
 
 Catfish John Tisdell - Somethin' To Feel (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +745,6 @@ Sol Raven - Wanderer No More (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F88898E2232FC71C43FE70D1C131C8209860189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801050   (66245) от 07.06.2025
-
-Unna & Helge Tallqvist Band - Today I Sing the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Where Can I Go (2:44)
-02.  Voodoo Man (4:46)
-03.  Use What You Got (3:04)
-04.  Somebody's Always Trying (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3C6DAE216C4B2C03AB860FEDCABEFF6539A1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801084   (66226) от 08.06.2025
-
-Nikki Iles & NDR Bigband - Face To Face (2023) Edition Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misfits [8:18]
-02. Red Ellen [7:15]
-03. Face to Face [6:28]
-04. Wild Oak [8:38](   Читать дальше...   )Жанр: Contemporary Jazz, Big BandПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8ABAABD99E4E49CFD1B14DB6D8B10581D29774A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801037   (66217) от 08.06.2025
-
-Tim Hardin Trio - Light Intelligence Series 2 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mozart: 'Alla turca' from Piano Sonata in A major [4:11]
-02. Mozart: 'Allegro molto' from Symphony No.40 in G minor [4:13]
-03. Beethoven: Fur Elise [3:49]
-04. Beethoven: 'Allegro' from Violin Sonata No.5 in F major [3:34](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F693E9D6891FB6415125955B61D5287EDA6629D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801040   (66216) от 08.06.2025
-
-Tim Hardin Trio - Light Intelligence Series 3 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martini: Plaisir d'amour [4:45]
-02. Gounod: Ave Maria [4:17]
-03. Saint-Saens: The Swan [3:48]
-04. Bizet: Menuett from 'L'arlesienne' [3:28](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD972E0F1FE383EAAB0A8304C1BA1A57053610EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801034   (66214) от 08.06.2025
-
-Tim Hardin Trio - Light Intelligence Series 4 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chopin: Fantaisie Impromptu in C sharp minor Op.66 [4:11]
-02. Chopin: Nocturne No.2 in E flat major Op.9-2 [4:13]
-03. Chopin: Etude 'Chanson de l'adieu' in E major Op.10-3 [4:56]
-04. Chopin: Prelude 'Raindrop' in D flat major Op.28-15 [4:28](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07CF508F9A9D8BFCAFFBEDE9FE14E6CA7765AC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801489   (66207) от 11.06.2025
-
-Kenny Wheeler - Song For Someone (1973) 2004, Psi [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toot-Toot [4:15]
-02. Ballad Two [8:27]
-03. Song for Someone [2:40]
-04. Causes Are Events [8:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43A7FF1F0AC6823B2B1923BC51CFD6335253D97E
 ```
 
 https://mybot314.ru/tekegram_catalog/

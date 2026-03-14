@@ -1,3 +1,90 @@
+###  Публикация: 1279562   (765469) от 30.01.2019
+
+Dena DeRose - Another World (1999) Sharp Nine Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Don't Know What Love Is [5:38]
+02. In the Wee Small Hours [5:01]
+03. More Than You Know [5:04]
+04. Hi-Fly [6:51](   Читать дальше...   )Жанр: Vocal Jazz, Straight-Ahead JazzПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511A3CA598D96F3B97202728E4C69F3208695869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279564   (765460) от 30.01.2019
+
+Beegie Adair & Friends - Jazz For The Road (2012) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sentimental Journey [3:20]
+02. Don't Get Around Much Anymore [3:24]
+03. Route 66 [2:59]
+04. Georgia on My Mind [3:47](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F900B7255EDAE9069F92380083C153675836C93C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279566   (765453) от 30.01.2019
+
+Beegie Adair - Love Letters: The Beegie Adair Romance Collection (2011) 2CD, Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765453.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Love Letters [4:11]
+02. Strangers in the Night [3:34]
+03. So in Love [5:40](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 02:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F03FF4E7A2A32C9A094637948F181A5D523770D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521437   (765230) от 02.01.2022
 
 VA - The Art Of The Piano: Trio, Quartet, Quintet and Beyond (Milestones of Jazz Legends) (1947 - 1962) 10CD, 2020, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Hard B ...
@@ -658,93 +745,6 @@ Carl Saunders - Be Bop Big Band (2002) Sea Breeze Jazz [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6CA28CC5A9D3813C7B3B90EAD9193AF558A598E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394188   (763722) от 05.07.2020
-
-Yoko Kanno & Seatbelts - Space Bio Charge (2009) CD Collection [FLAC|Lossless|image + .cue] <Electronic, Jazz, Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763722.jpg" />
-</div>
-
-
-###  Подробнее
-
-1-1  Fly Up In The Air (Eco. Size)  2:54
-1-2  Tank! (T.V Stretch)  3:26
-1-3  荒野のヒース  6:34
-1-4  トルキア (Eco. Size)  5:35(   Читать дальше...   )Жанр: Electronic, Jazz, RockПродолжительность: 03:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB3C1901B36013854A425E490757A177DB15D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280056   (763705) от 01.02.2019
-
-Dick Haymes - My Heart Tells Me (1950-e - 1960-e) 1997, Memoir [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish I Knew [3:13]
-02. Easy to Love [3:08]
-03. The More I See You [3:06]
-04. The Night Is Young and You're So Beautiful [3:15](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6E309C8A4BE07C28F694B87DD6317C70C2B00E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280058   (763703) от 01.02.2019
-
-Carl Saunders - Out Of The Blue (1996) SNL Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella by Starlight [7:23]
-02. We'll Be Together Again [5:51]
-03. Prudence [5:07]
-04. Personas Gratus [7:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350CC353D6142D2AF70E111F937821405D6B3024
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1265153   (276418) от 26.11.2018
+
+Вася В. (Кирпичи) - Триумф (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Йоу, православные (feat. DJ-108)
+02. Один за всех (feat. Стас Сытник)
+03. Миру мир (feat. Дмитрий «Фео» Порубов, Маша Макарова и Децл aka Le Truk)
+04. Созерцатель (feat. Nos MC и MC DannyBoy)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7066B4F8CEAA42E76B24E2720BE0006D67F4614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187892   (275818) от 01.12.2017
+
+Честер Небро - Караван (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город убитых дорог
+02. По вертикали
+03. На подъём
+04. Туда(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BE024A40CAC43D8C440107B91B3E4E43FF78C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083720   (273178) от 16.12.2016
+
+Noize MC - Царь Горы (2016) [MP3|320 Kbps] <Rap, Rock, Electronic>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Some Noize [3:33]
+02. Стэнли запишет хит [2:52]
+03. Царь Горы [4:29]
+04. Эмпайр Стэйт [2:50](   Читать дальше...   )Жанр: RapПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DB2691FFF5FE481E11FB7E5342F4599C918CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189379   (270341) от 06.12.2017
+
+Cмоки Мо и Zloi Negr - Доспехи Бога 2 (2017) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Слава КПСС, Murovei, King Mozi, D.masta, Пика - Пыл
+02. Murovei - Ядовито
+03. D.masta, King Mozi, Yung Trappa - Сияние
+04. Нигатив - Там и я(   Читать дальше...   )Жанр: RapПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:164CB5CEE69BBCAD03076A39B01FC6962FDA2E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266702   (269181) от 03.12.2018
 
 VA - Chillhop Essentials - Spring (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Jazz Fusion>
@@ -626,122 +742,6 @@ VA - Chillhop Essentials Spring (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50C2F11E452EBA555C77E9176649F84BF7C772BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511191   (246001) от 20.11.2021
-
-Сидоджи Дубоshit - BIG FOOT (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GRIND [01:53]
-02. INDEPENDENT (KASKADER) [02:48]
-03. DEATHFLIP [03:01]
-04. BIGFOOT [03:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA43DDED9694F8C424613BEE505356BAFD185D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511414   (245817) от 21.11.2021
-
-bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 в 1 [01:48]
-02. Дождь (feat. Kasha) [02:28]
-03. Магия [01:50]
-04. Хочу быть как все (feat. Бакей) [01:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B46556536D604014EB5C803DD19173932F1B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631331   (244471) от 08.05.2023
-
-MC Eiht - Lessons 2 (2023) Blue Stamp Music [MP3|320 Kbps] <Rap, West Coast Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tha Paper feat. Domino
-02. Bodega Money feat. Dave East
-03. What U Wanna Do
-04. Client(   Читать дальше...   )Жанр: Rap, West Coast Hip-HopПродолжительность: 01:20:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6550905BA5A8CE01DB66BD8736D9282E217797DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568150   (243261) от 06.08.2022
-
-Eminem - Curtain Call 2 (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 A.M.
-02. Space Bound
-03. Beautiful
-04. The Monster (feat. Rihanna)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F202B414EDD76284E09D32970BE0AB899D4A33B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

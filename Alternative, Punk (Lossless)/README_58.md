@@ -1,3 +1,90 @@
+###  Публикация: 1587197   (192947) от 30.10.2022
+
+Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everlong (4:11)
+ 02. Making A Fire (4:15)
+ 03. Times Like These (4:27)
+ 04. Rope (4:20)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 01:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87E73F333EC68243683F7FCE5EA1E79CE2E5CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587391   (192923) от 30.10.2022
+
+Simple Minds - Direction Of The Heart (2022) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Synthpop, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vision Thing (4:40)
+ 02. First You Jump (4:24)
+ 03. Human Traffic (4:17)
+ 04. Who Killed Truth? (3:59)(   Читать дальше...   )Жанр: Alternative Rock, Synthpop, New WaveПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E54A1E7C4509F2613668751EAEF79DBCD04DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657321   (192772) от 03.09.2023
+
+Glacerate - Hyper (2023) [FLAC|Lossless|WEB-DL|tracks] <Hyper Metal, Hardcore Punk, Desert Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Used [00:03:09]
+02. Binge [00:03:49]
+03. Abyss [00:01:58]
+04. Ultra [00:02:42](   Читать дальше...   )Жанр: Hyper Metal, Hardcore Punk, Desert RockПродолжительность: 00:20:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09118BE8BD6ED0002E601CB813D311BE8B71D51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657343   (192763) от 03.09.2023
 
 Vydro - V[Y]Idro (2023) [FLAC|Lossless|WEB-DL|tracks] <rapcore, nu metalcore, alternative metal>
@@ -658,93 +745,6 @@ Filter - The Algorithm (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Alt. Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89C9D29E3A43A54527F0C37556551AAAD5A95280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663368   (186872) от 21.09.2023
-
-Sekta Core - Sinfonia del Caos (2023) [FLAC|Lossless|WEB-DL|tracks] <ska punk, gypsy punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphony Of Chaos [00:02:36]
-02. No Te Rindas [00:02:52]
-03. Zombies [00:02:25]
-04. Toro [00:03:40](   Читать дальше...   )Жанр: ska punk, gypsy punkПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00541D126A4633B4F1080D8D392D9EA2F798809C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663853   (186464) от 23.09.2023
-
-Samurai Pizza Cats - You're Hellcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wolf In Me [00:03:28]
-02. Outcast [00:03:32]
-03. Last Player [00:02:40]
-04. Pizza Homicide [00:03:00](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A051C934F4805982F9A774BB11D4C476DA81BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664028   (186280) от 24.09.2023
-
-Flat Worms - Witness Marks (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sigalert [00:02:29]
-02. SSRT [00:03:23]
-03. Time Warp in Exile [00:02:21]
-04. Suburban Swans [00:03:21](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15855EB694202DABDB57DC62D6534B2852639F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

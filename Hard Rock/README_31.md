@@ -1,3 +1,32 @@
+###  Публикация: 1086129   (154726) от 23.12.2016
+
+Madison - Best In Show (1986) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Rendez Vous
+02. Carry On
+03. Can't Take It
+04. Drama (instrumental)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADB020BEB94A79F1DBF60290C6DAE037C2769FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347281   (154215) от 22.12.2019
 
 Emerald Rain - альбомов Discography (1997-2005) [MP3|320 Kbps] <Melodic Hard Rock>
@@ -733,32 +762,6 @@ UFO - Lights Out (1977) 2CD, Remaster, 2024, Chrysalis Records [MP3|320 Kbps] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06EEC64CFEE4FED312E6CACF41EB3A037E829D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 174139   (116961) от 18.02.2024
-
-Various Artists - A Tribute To Smoke On The Water (extended) (2008) [MP3|320 kbps]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 3:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890BC5B3E31BFB38F017ED1004405BB253422104
 ```
 
 https://mybot314.ru/tekegram_catalog/

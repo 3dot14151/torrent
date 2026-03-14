@@ -1,3 +1,148 @@
+###  Публикация: 1212629   (775776) от 12.03.2018
+
+Judit Neddermann - Nua (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Em diras adeu
+02. Vai Vai Vai
+03. Els ocells
+04. 21(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C982859EA24B606F93BA3C67448769A48FC8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212614   (775183) от 13.03.2018
+
+VA - Indie Dance and Nu Disco Tales (2018) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Indie Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775183.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Feindrehstar – Dirty Stomping 04:29
+2. Jewmanji – Clearing Crews 06:35
+3. Marian – For You 04:08
+4. Omar Gharbi – Lost In Aegean (Stan Kolev remix) 06:51(   Читать дальше...   )Жанр: Nu Disco, Indie DanceПродолжительность: 02:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9DE1A41C25E160719AD89F7271670E36C1CD4E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277588   (775156) от 22.01.2019
+
+Dave Thomas Junior - Echo (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - If Things Had Gone Our Way
+02 - Double Down
+03 - Let Me Down Easy
+04 - When Does It Get Easier(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7FEB72B2B698B86934D09589D4174B26656304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277393   (774227) от 23.01.2019
+
+Julio Iglesias - Best Collection vol.3 (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathalie
+02. Momentos
+03. La Paloma
+04. Las Cosas Que Tiene La Vida(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E38D3F4988DE5F5AF4CA0A01EFB6F12F4165A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124373   (773320) от 13.04.2017
+
+Paul Anka - The Real... Paul Anka (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Diana
+2. Love Me Warm and Tender
+3. Put Your Head on My Shoulder(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A691CECEE7867CF61576B74E12954E0E13887D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125062   (773311) от 13.04.2017
 
 Jamiroquai - Automaton (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Acid-jazz, funk>
@@ -600,151 +745,6 @@ VA - Club Latino (2000) приложение к журналу Stereo & Video 03
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B80D33BA0CC1D8D9F9FD33EC6B3F90BDBBB921A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279522   (765334) от 30.01.2019
-
-TOPAZ - High Society (2019) [FLAC 2.0|96/24|tracks|WEB-DL] <Dream Pop, Alternative>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entratura (01:43)
-02. I Don't Mind (04:04)
-03. Eyes Back On Your Face (04:21)
-04. Sacred Throne (04:43)(   Читать дальше...   )Жанр: Dream Pop, AlternativeПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B08A7492E3C89510EFCFDE7B3EA2AAB4C15CC8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214444   (764921) от 21.03.2018
-
-Bosson - One In A Million (2001) Exclusive [FLAC|Lossless|tracks + .cue] <Pop, Europop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One In A Million (3:34)
-02. I Believe (3:51)
-03. We Live (3:46)
-04. Where Are You? (4:06)(   Читать дальше...   )Жанр: Pop, Europop, Synth-popПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C8423497F63AB0E9182A67C1BE2AA30657554F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521711   (764349) от 03.01.2022
-
-VA - Hooked On Number Ones-100 Non Stop Hits (1988) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Medley 1
-Medley 2
-Medley 3
-Medley 4Жанр: PopПродолжительность: 01:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1136CF9857B88453B0DD0CB5F67033395D3B9AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394477   (763750) от 05.07.2020
-
-The Lagoons - Midnight Afternoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FOMO (05:06)
-02. Angel Of My Life (04:00)
-03. So Did I (04:12)
-04. Something Good (03:42)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF44DBC44554D441E1D998DD10A9E08FA80F9B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279937   (763524) от 01.02.2019
-
-Clean Bandit - What Is Love (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Dance-pop, Electro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphony (feat. Zara Larsson) (03:32)
-02. Baby (feat. Marina & Luis Fonsi) (03:25)
-03. Solo (feat. Demi Lovato) (03:43)
-04. Rockabye (feat. Sean Paul & Anne‐Marie) (04:10)(   Читать дальше...   )Жанр: Indie Pop, Dance-pop, ElectroПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD2AD34D5C5FD57F5ABCE35AEBEBD35D98F52E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

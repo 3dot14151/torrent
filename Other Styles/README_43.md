@@ -1,3 +1,148 @@
+###  Публикация: 1507657   (798086) от 06.11.2021
+
+Александр Зацепин - Оригинальная Музыка К Кинофильмам (2020) [FLAC|Lossless|image + .cue] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Командир Счастливой "Щуки" 1972
+1-1		Вступление	2:36
+1-2		Встреча	2:05
+1-3		Давным-давно Была Война. 1-й Вариант	1:24(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 04:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D3304EA28538539524EBA2008FB99F15585A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385310   (797765) от 24.05.2020
+
+Shakti Loka - Deep Black (2020) [MP3|320 Kbps] <Ethnic, Trip-hop, Mantras>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adi Purusham (Intro)
+02. Ganga
+03. Bhajahu Re Mana
+04. Yamuna(   Читать дальше...   )Жанр: Ethnic, Trip-hop, Mantras, Psychedelic, Indie, SynthpopПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED61821B47E771064111CD186A14E584C316A43C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011083   (796981) от 27.04.2016
+
+Carlos Garo - Entrance To The Parallel Universe (2015) [FLAC|Lossless|tracks] <New Age, Ambient, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entering the Universe    01:32
+02. Infinite Space    04:14
+03. Desert    05:06
+04. The World Keeps on Spinning    05:01(   Читать дальше...   )Жанр: New Age, Ambient, EnigmaticПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51807E2FDA5F9D69B5FB69FDB5E477AA3A27E474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199997   (796941) от 19.01.2018
+
+VA - Intimate Piano - Body & Soul (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henry Mancini & Orchestra - As Time Goes By (2:25)
+02. Gordon Langford & Orchestra - Body & Soul (2:37)
+03. Bill Synder - Cocktails for Two (2:52)
+04. Roger Williams - Dream a Little Dream of Me (3:12)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383AD32493426188965237095B41157FA79499D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200001   (796911) от 19.01.2018
+
+VA - Intimate Piano: Canadian Sunset (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is A Many Splendored Thing (Gordon Langford, His Piano & Orchestra) (2:55)
+02. Moonglow (Douglas Gamley, His Piano & His Orchestra) (3:07)
+03. Rhapsody In Blue (Henry Mancini) (3:27)
+04. Moonlight In Vermont (Gordon Langford, His Piano & Orchestra) (2:57)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8FEDC6C2E584E08DAFAAEFAF99E497358A6B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200110   (796889) от 19.01.2018
 
 First Aid Kit - Ruins (2018) [FLAC|Lossless|tracks] <Indie Folk, Country Folk, Americana>
@@ -600,151 +745,6 @@ Simon Sigurdson - The Second Coming (2016) [MP3|320 кб/с] <New Age, Contempor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D00B1729E2B87E1451105AF3AC9436A242F6201B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012546   (793732) от 01.05.2016
-
-Ann Sweeten - Where Butterflies Dance (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Trace of You
-02. Broken Wing at North Light
-03. Elysian Fields
-04. Love Among the Ruins(   Читать дальше...   )Жанр: New Age, Neoclassical, Solo PianoПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE3281A6862E271301A1EE7B84CFDD9B2F54588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012483   (793648) от 01.05.2016
-
-Douglas Blue Feather - Cosmic Visions (2016) [MP3|320 кб/с] <New Age, Native American, Flute>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch the Stars
-02. Deep Space
-03. Caves of Mars
-04. Orion's Belt(   Читать дальше...   )Жанр: New Age, Native American, FluteПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC4FF74D853E8972B0DCEF06234FA10B1D82805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386598   (793628) от 30.05.2020
-
-Bert Jansch - Bert Jansch (1965) Remastered 2001 [FLAC|Lossless|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793628.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вовсе не обязательно тратить жизнь на то, чтобы убеждать мир в том, что ты - гений. Когда я захожу в паб, то не хочу, чтобы окружающие знали, что я – Берт Дженш».01. Strolling Down The Highway (3:07)
-02. Smokey River (2:56)
-03. Oh How Your Love Is Strong (3:40)
-04. I Have No Time (3:09)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80A3B7328D0D27DA0E1EFC1E853E91F563DC08D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386608   (793578) от 30.05.2020
-
-Fred Neil - Fred Neil (1967) Reissue 2006 [FLAC|Lossless|tracks] <Rock & Roll, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fred Neil является вторым альбомом от Фреда Нила. Альбом имеет более непринужденный звук чем его дебют, и содержит его самые известные песни: "Everybody's Talkin" и "The Dolphins". Он был переиздан в 1969 году под названием Everybody's Talkin в ответ на международный успех саундтрека к фильму "Полуночный ковбой" (Midnight Cowboy), который (   Читать дальше...   )01. The Dolphins (4:06)
-02. I've Got A Secret (Didn't We Shake Sugaree) (4:41)
-03. That's The Bag I'm In (3:37)
-04. Badi-da (3:40)Жанр: Rock & Roll, FolkПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A408C20A973602E3A95E32B2761E516ED16BF0AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012503   (793577) от 01.05.2016
-
-John Fluker - 11:11 (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awaken
-02. In the Beginning
-03. Artificial Time
-04. The 4th Dimension(   Читать дальше...   )Жанр: New Age, Neoclassical, Solo PianoПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C9906B8B007DF3B26D9020DBCFE0B411B060C42
 ```
 
 https://mybot314.ru/tekegram_catalog/

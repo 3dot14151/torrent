@@ -1,3 +1,101 @@
+###  Публикация: 556977   (419883) от 08.10.2012
+
+Bryan Lubeck - Acoustic Vineyard (2004) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_419883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harlequin
+02. Take Me
+03. My Desire
+04. Port Aventura
+05. Flamenco Island
+06. A New Romance
+07. Rhett Relents
+08. You've Got This Way
+09. A Mother's SmileЖанр: Smooth JazzПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167204   (419729) от 19.09.2017
+
+The Singers Unlimited - Feeling Free (1975) 2006, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are The Sunshine Of My Life [02:54]
+02. A Time For Love [04:10]
+03. Green Dolphin Street [04:04]
+04. So Many Stars [03:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34552E483C61390BFE5AAAC764558CB32086DF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247824   (419689) от 20.10.2010
+
+Larry Coryell, Badi Assad, John Abercrombie - Three Guitars (2003) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_419689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seu Jorge e Dona Ica(6:00)
+02. New lute prelude (1:34)
+03. New lute interlute (3:14)
+04. Soundtrack (4:17)
+05. After the Rain (4:56)
+06. Descending grace (5:28)
+07. Metramorphosis (4:03)
+08. No flight tonight(4:24)
+09. Ralph’s piano waltz(5:09)
+10. Suspended cirles(5:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065465   (419640) от 23.10.2016
 
 Os 3 Morais - Os 3 Morais -1971 (2015 Japan Edition), [FLAC|Lossless|tracks + .cue] <Bossa Nova, MPB>
@@ -664,93 +762,6 @@ Art Van Damme - A Perfect Match & Martini Time (1953, 1963) 2014, Cheesecake Rec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BB8F2AABC186BB3456AD87CF643F37D57A715AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167497   (417411) от 20.09.2017
-
-Bill Evans - Another Time: The Hilversum Concert (1968) 2017, Resonance Records [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Gonna Hear from Me [04:39]
-02. Very Early [05:25]
-03. Who Can I Turn To? [05:46]
-04. Alfie [05:42](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D812678304C6A36C885C5CD752CEE0AF31AB26B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325140   (416907) от 13.09.2019
-
-Earl Hines - Tour De Force (1972) 1989, Black Lion Records [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mack the Knife (take 2) [7:34]
-02. Indian Summer [5:34]
-03. I Gotta Right to Sing the Blues [6:46]
-04. I Never Knew (I Could Love Anybody Like I'm Loving You) (take 1) [4:50](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFA484AED8D9389186550C7CC37E8029ED9E6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325138   (416739) от 13.09.2019
-
-Betty Carter - The Music Never Stops (1992) 2019, Blue Engine Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ms. B.C. [3:11]
-02. Make It Last [5:45]
-03. 30 Years [4:35]
-04. Why Him?/Where or When/What's New? [15:47](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31750A61E5F87189C410314AD10ACA17CCBC94CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

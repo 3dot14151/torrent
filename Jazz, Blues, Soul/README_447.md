@@ -1,3 +1,177 @@
+###  Публикация: 1597780   (165303) от 16.12.2022
+
+Kenny Drew, Jr. - Kenny Drew, Jr. (1991) Antilles [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Walked Bud [4:12]
+02. Evening in the Park [7:31]
+03. Third Phase [6:59]
+04. Monk's Mood [6:18](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ADD4BB43A4C4C329A4B246364E84112847F8050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346033   (165252) от 17.12.2019
+
+Bill Evans - 25 Evans (2005) 2CD, Universal [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165252.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Danny Boy [3:45]
+02. Blue Monk [4:34]
+03. Spartacus Love Theme [5:11](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 02:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4EF6BF7598FCF63DF1A1E222BD9D922F894360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597786   (165225) от 16.12.2022
+
+Nat "King" Cole - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Will Make You Laugh [3:18]
+02. Stop! The Red Light's On [2:40]
+03. Hit the Ramp [3:24]
+04. I Like to Riff [2:49](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8489D539BBE63FD2E41DA4A0152D530507EE77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597783   (165214) от 16.12.2022
+
+Django Reinhardt - 1941 - 1942 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hungaria [2:29]
+02. De nulle part [3:02]
+03. Dinette [2:53]
+04. Crepuscule [3:03](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68EF0A06874FBFAADA45327FF96C606EBA6657C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516660   (165109) от 12.12.2021
+
+Bello Band - Who Cares...? (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are My Fantasy (3:54)
+02. Who Cares...? (3:19)
+03. Revolution (3:10)
+04. Love is Gone (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B566D3B006C7745242B1E8095C1549E986495A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516658   (165105) от 12.12.2021
+
+Richard Madden - Second Nature (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Load (4:17)
+02. Sweet Envy (4:36)
+03. Messin' with the Kid (2:25)
+04. Reefer Headed Woman (3:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66502C332EEA20691D3CAA20C198BAF236642793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516661   (165099) от 12.12.2021
 
 GProject Blues Band - We're Together (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -571,181 +745,6 @@ Hurricane Red - Smokin' (2020) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B92136FF513E4DC7B14B84E7F94BDA90476DB9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346451   (163928) от 19.12.2019
-
-Ray Bryant - Four Classic Albums 1956 - 1962 (2016) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163928.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cubano Chant [3:07]
-02. Off Shore [3:56]
-03. Well You Needn't [3:19](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21232CA3201CA58ADC9370141A32E426983571CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517158   (163559) от 14.12.2021
-
-Louis Armstrong - The Complete Louis Armstrong Decca Sessions (1935 - 1946) 7CD, 2009, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163559.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I'm In The Mood For Love [3:11]
-02. You Are My Lucky Star [2:59]
-03. La Cucaracha [2:41](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 08:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39958665E232B0FD912ACEB9C6845632638357F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673920   (163487) от 03.11.2023
-
-Chet Baker - Blue Room (1979) 2CD, 2023, Jazz Detective [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Gilles [10:54]
-02. Nardis [8:40]
-03. Candy [5:41]
-04. Luscious Lou [6:58](   Читать дальше...   )Жанр: CoolПродолжительность: 01:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF9DBEC92A11B0986C6D850CFAA7ED9727D2C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669379   (163468) от 03.11.2023
-
-Pasquale Grasso - Pasquale Plays Duke (2021) Sony Music [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Don't Mean a Thing [3:45]
-02. Blue Rose [5:22]
-03. Prelude to a Kiss [4:19]
-04. Solitude (feat. Samara Joy) [4:53](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA05C0F50CDD173B0BC9742E6B3CE1ACFBC0CFF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598254   (163427) от 18.12.2022
-
-Django Reinhardt - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome (2e partie) [2:21]
-02. I Can't Give You Anything But Love [2:23]
-03. Artillerie lourde [4:18]
-04. How High the Moon [2:21](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769411F72C5AF0CDD620754E01FA59B164B1D03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673987   (163398) от 03.11.2023
-
-Billy Merziotis ft Gary Moore Band & Irene Movia - All the things you are (2023) [FLAC|Lossless|image + .cue] <Blues, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий студийный альбом Билли Мерзиотиса .
-На этот раз виртуоз Les Paul объединяет усилия с бывшими участниками группы Гэри Мура : Виком Мартином (клавишные), Питом Рисом (бас) и Грэмом Уокером (ударные). Вместе с давней музыкальной партнершей, певицей и автором текстов Ирен Мовиа , Билли создает аутентичный альбом, состоящий из запоминающихся рок-риффов, зажигательных (   Читать дальше...   )01. I Wanna Breathe
-02. Same Kind Of Fool
-03. Lady Of The Sea
-04. You Shouldn’t Play With Fire(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D1E60FF6C7074BF00EFDFD23FFEE2FC262A762
 ```
 
 https://mybot314.ru/tekegram_catalog/

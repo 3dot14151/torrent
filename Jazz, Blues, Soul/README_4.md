@@ -1,3 +1,61 @@
+###  Публикация: 1844707   (1050277) от 27.12.2025
+
+Uncle Watson's Widow - Fool's Song (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hymn 43 (4:00)
+02.  Fool's Song (4:38)
+03.  Iron Fist (2:50)
+04.  Poker Face (3:16)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434211152DF69CCB879DA541AC89CA8D90DC088D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844708   (1050276) от 27.12.2025
+
+VA - Nocturne Blues (Slowed + Reverb) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Titus Turner - Lean Greens (Slowed + Reverb) (4:46)
+02.  Fenton Robinson - You Don't Know What Love Is (Slowed + Reverb) (4:55)
+03.  Titus Turner - I Need Your Love To Carry On (Slowed + Reverb) (3:07)
+04.  Andy Anderson - You Shake Me Up (Slowed + Reverb) (2:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83D16C901EFFA01DD767FB060935E309C1DE4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844712   (1050271) от 27.12.2025
 
 Wagner the Band - XTC (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -687,64 +745,6 @@ DaBeDa - Leavin' the Shell (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79BEE1162F4403A5A248575B276BA4778EDFE380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843763   (1049486) от 21.12.2025
-
-Danny Alexander Blues Band - Turn Me Loose (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Come to Me (3:17)
-02.  Bottom of the Boot (2:59)
-03.  Take a Break (3:50)
-04.  I Want To Be Loved (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC58083BE8F3FCF6A1AD170932B59AB18D76BD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843767   (1049481) от 21.12.2025
-
-John Haydock - Talking to the Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Girl with the Runaway Eyes (4:20)
-02.  Talking to the Night (5:00)
-03.  Trending Down (4:35)
-04.  Harlequin Nights (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37ECDE9F689ECA5591981915397BA0C3E3907DE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

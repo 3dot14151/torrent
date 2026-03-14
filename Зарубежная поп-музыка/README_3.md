@@ -1,3 +1,32 @@
+###  Публикация: 1620509   (1032143) от 20.03.2023
+
+VA - Should have held your hand (2023) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gracie Abrams - I miss you, I?m sorry
+02. Maroon 5 - Girls Like You
+03. Katy Perry - Part Of Me
+04. The Vamps - Somebody To You(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D1BD5B9C0B0D67023E410AA76D5FE5DC77C143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620520   (1032111) от 20.03.2023
 
 VA - Alone Again - Heartbreak Songs (2023) [MP3|320 Kbps] <Pop, Rock>
@@ -716,35 +745,6 @@ Lana Del Rey - Chemtrails Over the Country Club (2021) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3AE5674C7F4D29256A907C9D4713EDAC0AF0BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453209   (1027101) от 10.03.2021
-
-VA - soulmates (2021) Explicit [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niall Horan - Black And White (3:13)
-02. Julia Michaels - If You Need Me (3:36)
-03. BØRNS - Past Lives (4:34)
-04. Tove Lo - Habits (Stay High) (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB62E7FFFED87582F46E3BC52FC546285B347E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

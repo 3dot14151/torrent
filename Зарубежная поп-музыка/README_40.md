@@ -1,3 +1,59 @@
+###  Публикация: 1040536   (586435) от 05.08.2016
+
+VA - Танцевальный рай: RIO (2016) [MP3|320 Kbps] <Pop, Eurodisco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiosonik X Jerome - Thong Song
+02. Willy William - Ego (Radio Edit)
+03. TWiiNS - One Night Stand (Radio Edit)
+04. Vengaboys - 2 Brazil! (Dance Radio Edit)(   Читать дальше...   )Жанр: Pop, EurodiscoПродолжительность: 01:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897D901AAE0190DBB6CE53548D8745C0477D881A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301330   (586178) от 10.05.2019
+
+Tight Fit - Back To The 60's (1981) LP [MP3|320 Kbps] <Pop, Disco, Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mixed - Back To The 60s - Side One (18:32)
+02. Mixed - Back To The 60s - Side Two (18:03)Жанр: Pop, Disco, Rock & RollПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB8DDAD6367556C42E791D7EEE10570F6EB854A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552856   (585792) от 22.05.2022
 
 VA - DMC Halloween In The Mix (Classic Mixes) (Volume 1) (2019) [MP3|320 Kbps] <Electronic, Synth-pop, Dance-pop, Pop>
@@ -704,70 +760,6 @@ VA - We Love Summer (2019) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA71C2463BA22C9C87FFB9085BCB13D0C9242C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151533   (572441) от 19.07.2017
-
-VA - 80's Chillout. The Ultimate Collection of Chilled 80's Music (2017) [MP3|320 Kbps] <Pop, Chillout, Lounge>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Fashion - Mad World
-02. Chateau Pop - Time After Time
-03. Flavourine - Smooth Operator
-04. The Blue Rubatos - Eternal Flame(   Читать дальше...   )Жанр: Pop, Chillout, LoungeПродолжительность: 05:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992A5EF698F7E0D0F0E2D436E5BDFC94BFF430F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528517   (572398) от 28.07.2012
-
-Bad Boys Blue - Greatest Hits (2009) [MP3|320 кб/с]<Euro Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572398.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-Продолжительность: 01:19:03
-01. You're A Woman 03:58
-02. A World Without You 03:39
-03. Kiss You All Over Baby 04:25
-04. Bad Reputation 03:35
-05. Lady In Black 03:49
-06. Show Me The Way 03:57
-07. Pretty Young Girl 03:35
-08. Come Back And Stay 03:51(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 02:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059334D40746D855325739D8CA60DB4A6135AF4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

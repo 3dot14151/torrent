@@ -1,3 +1,177 @@
+###  Публикация: 1639987   (234382) от 15.06.2023
+
+Selwyn Birchwood - Exorcist (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Done Cryin' (4:39)
+02. Florida Man (3:39)
+03. Horns Below Her Halo (6:15)
+04. Underdog (4:31)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9AB32EC73CF6A4411E8D1208DE9E6D76026871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639857   (234359) от 15.06.2023
+
+Jeff Coffin - Between Dreaming And Joy (2022) Ear Up Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vinnie the Crow [4:20]
+02. Ruthie [4:04]
+03. Tip the Band [5:37]
+04. In the Belly of the Whale [5:19](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E9857DBD453E12B113EE28848EA30482B7E779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642934   (234343) от 29.06.2023
+
+Papik & Sea Breeze - West Coast Rendez Vous (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chains Of Our Love (feat. Filippo Perbellini)
+02. How Long (feat. Lo Van Gorp)
+03. A Blur In A Morning Dew (feat. Dario Daneluz)
+04. I Shouldn't Say (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Pop Jazz, SoulПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7492BB622AB90830C8DA5800D10CDB068AF28EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639980   (234305) от 15.06.2023
+
+Arielle - '73 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dulcet (Live) (0:49)
+02. Somewhere Slow (4:17)
+03. '73 (3:11)
+04. Goes Without Saying (4:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957679063C040A06B3F8668BD4212ACB3B66E50B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622295   (234284) от 28.03.2023
+
+Sun Ra Arkestra - Living Sky (2022) Omni Sound [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chopin [7:46]
+02. Somebody Else's Idea [6:22]
+03. Day of the Living Sky [6:03]
+04. Marshall's Groove [11:05](   Читать дальше...   )Жанр: Avant-Garde Jazz, Big BandПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7403ED2C8774C944F2BF4E205AFF7F079C97D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633651   (234280) от 16.05.2023
+
+The United States Army Field Band Jazz Ambassadors - The Legacy Of Stan Kenton (1997) Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Opener [3:02]
+02. Stan Kenton Medley [8:38]
+03. Opus in Pastels [3:10]
+04. Unison Riff [3:18](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE97E85859BB3C7559A26F60238D902F83DA5387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633648   (234274) от 16.05.2023
 
 Ron Kalina - Getting My Axes Together (2004) Kalinor Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Harmonica>
@@ -571,180 +745,6 @@ Rachel Therrien - Mi Hogar (2023) Outside in Music [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17047A5A1CFD2F49DE7958260CDA0132C4362C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640748   (233900) от 19.06.2023
-
-Carrol McLaughlin - Jazz Harp (1985) 1997, Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fool on the Hill [2:34]
-02. Take Five [5:05]
-03. Bluesette [2:34]
-04. Classical Gas [3:35](   Читать дальше...   )Жанр: Mainstream jazzПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44CE88410C651E8DB803E5931121891B66F9FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640749   (233870) от 19.06.2023
-
-Melissa Stylianou - Dream Dancing (2022) Anzic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet and Lovely [3:58]
-02. If You Never Come to Me [4:51]
-03. My Ideal [5:17]
-04. It Could Happen to You [3:20](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0552C871DB2C55EC10883B3A86808CFBD8B4E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640781   (233845) от 19.06.2023
-
-Stanley Turrentine - The Best of Stanley Turrentine (1990) Epic [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar [10:03]
-02. Gibraltar [11:22]
-03. Storm [9:06]
-04. Speed Ball [6:40](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B907A4EF16298504D1EF5ED12FEC2499DA7DEAD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623545   (233819) от 02.04.2023
-
-Dinah Washington - La Reine - The Queen (1943 - 1957) 2CD, 2008, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pillow Blues [2:58]
-02. I Cried for You [2:31]
-03. Feel Like I Wanna Cry [3:22]
-04. Am I Blue [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D3949CAE1A2D42D804E15E281C523DAF337B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640980   (233759) от 20.06.2023
-
-Jay Jay Johnson Sextet - With Clifford Brown, Vol.1 (1953, 1954) 1995, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turnpike [4:22]
-02. Lover Man [3:57]
-03. Get Happy [4:55]
-04. Sketch 1 [4:29](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E065EBE8226DC8D5E0D04122F0FA8EC2E9099592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640985   (233752) от 20.06.2023
-
-Tadd Dameron And His Orchestra - The Magic Touch (1962) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On A Misty Night [3:00]
-02. On A Misty Night (Alternate) [2:45]
-03. Fontainbleau [4:11]
-04. Just Plain Talkin' [4:54](   Читать дальше...   )Жанр: BopПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D5A7AC281712D0EF9F5F731F132F22E151BE60
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1507341   (798337) от 04.11.2021
+
+3D модели - Daz 3D - Сборник 3D моделей #26 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 50шт, категории Clothing, People, Animation, Hair.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2364FB42B6221C890264289074E5DC200A0024AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385216   (797674) от 24.05.2020
 
 3D модели - Библиотека для SketchUp Pro 2020 - 20.05.20 [SKP, SKM]
@@ -644,32 +670,6 @@ Modular Sci-Fi Interior разработан для создания атмос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6C3469F44826DB58A22AFFEB851F155BE690D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510082   (791873) от 15.11.2021
-
-3D print - Gambody - Vulcan Tank 3D Printing Model | Assembly [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модель 3D-печати Vulcan Tank поставляется в 5 версиях для каждого типа 3D-принтера (FFF / FDM, DLP / SLA и SLS).Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5E14B3E761A99712EB277D4F3113B720A506C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1605226   (1044987) от 17.01.2023
+
+Lee Morgan - Candy (1957) 2012, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candy [7:04]
+02. Since I Fell for You [5:38]
+03. C.T.A. [5:10]
+04. All the Way [7:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65575D00551D1D1A66B32450A374D10FE6949851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605488   (1044877) от 18.01.2023
 
 Paul Desmond - The Complete Albums Collection (1953 - 1963) 4CD, 2018, Enlightenment [FLAC|Lossless|tracks + .cue] <Cool>
@@ -716,35 +745,6 @@ John Arpin - Ragtime Beatles (1987) Fanfare [FLAC|Lossless|tracks + .cue] <Ragti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E4BCFF31AD12314BDA2FAA2F69101168BBE74B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609435   (1043274) от 03.02.2023
-
-Eric Alexander - Revival Of The Fittest (2009) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival [7:25]
-02. My Grown-Up Christmas List [7:35]
-03. The Island [8:46]
-04. Too Late Fall Back Baby [8:15](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6861144D342FE47B1B094088EA257B4529821407
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1480057   (1009331) от 26.06.2021
+
+Modest Mouse - The Golden Casket (2021) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fuck Your Acid Trip [00:03:11]
+02 - We Are Between [00:03:52]
+03 - We're Lucky [00:02:44]
+04 - Walking And Running [00:03:01](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3446CDAF7BBDCBEAF97FC6E17DB3CB3CFBD2CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479978   (1009302) от 26.06.2021
 
 Motley Crue - Theatre of Pain (2021) 40th Anniversary Remastered [MP3|320 Kbps] <Heavy Metal, Glam Metal>
@@ -716,35 +745,6 @@ Feuerschwanz - Die letzte Schlacht (2021) [MP3|320 Kbps] <Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7719C972FA3F40AA9ADC7BDF4A7BD292989958A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488400   (1002033) от 11.08.2021
-
-Deep Purple - Live in London 2002 (2021) Remastered [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman from Tokyo (Live in London 2002) (6:37)
-02. Ted the Mechanic (Live in London 2002) (5:41)
-03. Mary Long (Live in London 2002) (5:32)
-04. Lazy (Live in London 2002) (7:07)(   Читать дальше...   )Жанр: RockПродолжительность: 01:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7696739029878C0E13614E1A1D1874090DF963
 ```
 
 https://mybot314.ru/tekegram_catalog/

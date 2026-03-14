@@ -1,3 +1,38 @@
+###  Публикация: 595783   (132227) от 29.12.2012
+
+VA - USA Hot Top 40 Singles Chart 30 December (2012) (2012) [MP3|256 кб/с]<Pop, Funky, Dance, Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Locked Out Of Heaven 03:53
+02. Rihanna - Diamonds 03:45
+03. The Lumineers - Ho Hey 02:43
+04. Taylor Swift - I Knew You Were Trouble. 03:39
+05. Justin Bieber - Beauty And A Beat (Feat. Nicki Minaj) 03:48
+06. Ke$Ha - Die Young 03:33
+07. Maroon 5 - One More Night 03:39
+08. Flo Rida - I Cry 03:43
+09. Phillip Phillips - Home 03:30
+10. Macklemore & Ryan Lewis - Thrift Shop (Feat. Wanz) 03:55(   Читать дальше...   )Жанр: Pop, Funky, Dance, VocalПродолжительность: 02:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5EB6CCB1673756221B291B9EE99E0BBE6B2F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593162   (132150) от 29.12.2012
 
 VA-MNM 1000 Limited Edition 5CD (2012) [MP3|256 кб/с]<Pop>
@@ -830,41 +865,6 @@ VA - Дискотека: Весенний отрыв №100 (2012) [MP3|256 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A488965B875C381775B0D38558DAB166D495D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488324   (129280) от 28.04.2012
-
-VA - Клубные Новинки Vol.65 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Bayer feat. Molly Bancroft - Keep Your Secrets (Original Mix)
-02. Beyonce - Love On Top (DJ Escape & Tony Coluccio Remix)
-03. Amelle feat. DBX - God Won't Save U Now (7th Heaven Club Mix)
-04. Matt Bukovski - Alterations (Original Mix)
-05. Sultan & Ned Shepard feat. Quilla - Walls (Original Mix)
-06. Toni Braxton - I Heart You (Mark Picchiotti Re-Imagined Vocal Mix)
-07. Rita Ora feat. Tinie Tempah - R.I.P. (Seamus Haji Club Mix)
-08. ReOrder & Stine Grove - Seize The Day (Original Mix)
-09. Claes Rosen - Whats Up Tonight (2012 Rework)
-10. Avicii feat. Salem Al Fakir - Silhouettes (Vocal Mix)2012Жанр: Club, DanceПродолжительность: 04:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD8E45E5C3C818E1F36777961A99F4167E6C0A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1757477   (39088) от 27.10.2024
+
+VA - Musical kaleidoscope part 9 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Emotionel
+02. Sisco Le Voyageur - Bella N°3
+03. Цифеi - Tarsonis
+04. Jumanov - Rain(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C28DB53674291AF0DFA08BA2D7D4E3572646E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757620   (39011) от 28.10.2024
 
 Aleksey Boychenko - Compilation of enigmatics (2024) [MP3|320 Kbps] <Enigmatic, New Age, Ambient, New Age, Ambient, Meditative>
@@ -716,35 +745,6 @@ VA - Music News For Forum vol.049 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:177B69F8F477458180DE844A69EC548C3CB6A04F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764470   (34900) от 07.12.2024
-
-VA - Music News For Forum vol.050 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34900.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Зара feat. Александр Панайотов - На краю весны (03:43)
- 002. AetoOn - Табун (02:53)
- 003. ALI.Y - Грехи (02:34)
- 004. ANDZORik - Моя звезда (02:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EAB22052E5FFEA3FFEB2C74CB197678DE9EC67
 ```
 
 https://mybot314.ru/tekegram_catalog/

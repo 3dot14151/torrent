@@ -1,3 +1,149 @@
+###  Публикация: 1525536   (129209) от 21.01.2022
+
+Suburban Tribe - Дискография (10 Albums) (1994 - 2011) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Alternative Rock, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Suburban Tribe — рок-группа из Финляндии. Группа примечательна тем, что в ее состав входят участники двух самых известных финских трэш-метал-групп Stone и Airdash. Басист Янне Йоутсенниеми играл в группе Stone, а гитарист Руп Сирен играл в Airdash.
+В марте 2011 года было объявлено о  роспуске группы.1994 - Primitive
+1995 - Purity
+1997 - Panorama
+1998 - Elektro 57Жанр: Alternative Rock, Alternative Metal, Nu MetalПродолжительность: 09:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5176F3BFD3765BAFF54447851939BF157DE39BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526002   (129013) от 22.01.2022
+
+Creedence Clearwater Revival - Gold (1972) 1975 [DTS 4.1 CD-Audio|44.1/16|image+.cue|Q8-DTSWAV] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давно хотел взяться за Криденсов... :mrgreen:
+Несомненная часть эпохи 70-х - Уби Дуби, Видели дождь, Молина - ну какой советский школьник тех лет не млел от этих волшебных звуков!
+Знал, что единственным официальным многоканальным релизом группы был сборник GOLD, от 1972 года. Нашел в Сети уже довольно давний, 13-ти летний давности)), материал от уважаемого01. Proud Mary
+02. Down On The Corner
+03. Bad Moon Rising
+04. I Heard It Through The Grape Vine(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7608CDAD3A6216436CCAAF79AF151291455CBD2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824499   (128872) от 15.10.2025
+
+VA - Балкантон – Танцова Музика (1965) [FLAC|Lossless|image + .cue] <Jazz, Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128872.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 В Ритме «Леткисс»
+А2 Суоми-Леткисс
+А3 Один Поцелуй
+А4 Бутылка Шампанского(   Читать дальше...   )Жанр: Jazz, Rock, PopПродолжительность: 00:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EBB19F725636BF292EB77C7F3EBC60A978D875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824494   (128871) от 15.10.2025
+
+Ihsahn - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Experimental/Extreme Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ihsahn - Вегард Сверре Твейтан — норвежский композитор, гитарист, бас-гитарист, клавишник и вокалист. Более известен как вокалист, гитарист и клавишник группы Emperor2006 - The Adversary
+2008 - Angl
+2010 - After
+2012 - EremitaЖанр: Experimental/Extreme Progressive MetalПродолжительность: 08:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8972B0F12D968E481C81A6523DDE6C68A08DE19A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824485   (128870) от 15.10.2025
+
+Bloodywood - Studio Albums (2 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloodywood - индийская метал-группа из Нью-Дели, образованная в 2016 году. Они начинали как пародийный коллектив, выкладывающий каверы на поп-песни на YouTube, но позже стали писать собственный оригинальный материал. Среди музыкальных источников вдохновения для группы значатся Linkin Park, Rage Against the Machine, System of a Down, Alter Bridge и Limp Bizkit.2022 - Rakshak
+2025 - Nu DelhiЖанр: Folk Metal, Nu MetalПродолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51661B315415AA1F34CB8BA655550AFAE553FAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824589   (128807) от 15.10.2025
 
 The Hu - Studio Albums (2 releases) (2020-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal>
@@ -595,151 +741,6 @@ A-c - Patterns(   Читать дальше...   )Жанр: Progressive Metal, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:992D7A28717DCB9723207EC0D9AEBE42858DE70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684054   (127947) от 14.12.2023
-
-Anubis Gate - Studio Albums (10 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anubis Gate - датская пауэр/прог-метал группа, образованная в 2001 году в Ольборге.2004 - Purification
-2005 - A Perfect Forever
-2007 - Andromeda Unchained
-2009 - The DetachedЖанр: Progressive/Power MetalПродолжительность: 09:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D186EB2DC9A10893E8AE7E60C77204867E4890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684124   (127946) от 14.12.2023
-
-System Of A Down - Hypnotize (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Alternative Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127946.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Attack
-A2 Dreaming
-A3 Kill Rock 'N Roll
-A4 Hypnotize(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEE197496430259FD16FE6ACF11D960F15C7B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684413   (127816) от 15.12.2023
-
-System Of A Down - Mezmerize (2005)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Alternative Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127816.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Soldier Side - Intro
-A2 B.Y.O.B.
-A3 Revenga
-A4 Cigaro(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C12326CA3DB194DC515C45E014467BC981000A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684433   (127807) от 15.12.2023
-
-VA - Best Sound of Chill & Lounge 2023 – Winter Edition (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Mare - Everlasting Love (3:16)
-02. Soundset City - Skyline (3:30)
-03. Artenovum - Ministry of Sound (3:57)
-04. Jean Mare - Deepside Session (5:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B312EB0ED525786C4D7A0002E9EFC21562DA1457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684425   (127798) от 15.12.2023
-
-The String Breakers - Get on Your Feet (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Act Right (3:35)
-02. Don't Give up on Me (3:58)
-03. Eleanor Rigby (3:31)
-04. Good Rockin Daddy (3:55)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58082EEB1EF8CCD20AC16E5DC74C3DF98CFEDC44
 ```
 
 https://mybot314.ru/tekegram_catalog/

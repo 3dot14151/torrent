@@ -1,3 +1,32 @@
+###  Публикация: 977925   (964644) от 22.01.2016
+
+Hell In The Club - Shadow of the Monster (2016) [MP3|320 кб/с] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance!
+02. Enjoy the Ride
+03. Hell Sweet Hell
+04. Shadow of the Monster(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086591A97C222F9393D9909E885E235D692C4925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977927   (964555) от 22.01.2016
 
 Erdling - Aus Den Tiefen (2016) [MP3|320 кб/с] <Industrial, Neue Deutsche Härte>
@@ -722,32 +751,6 @@ Gone Is Gone (Mastodon, Queens Of The Stone Age, At The Drive-In) - Echolocation
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F38D71C629101666E477D2B4C8F433E873CA50E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 173067   (951476) от 06.02.2010
-
-Royal Hunt - X (2010) [MP3|320 kbps]<Progressive Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive Melodic MetalПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

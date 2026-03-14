@@ -1,3 +1,115 @@
+###  Публикация: 1326075   (407367) от 18.09.2019
+
+VA - Best Hit Of Japan (Shungo Sawada/Akira Fukuhara Quintet) (19??) [FLAC 2.0|44,1/16|image +.cue|Vinyl-Rip] <Pop, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shungo Sawada - Koi No Kisetsu
+02. Shungo Sawada - Tenshi No Yuwaku
+03. Shungo Sawada - Koi No Hallelujah
+04. Shungo Sawada - Mona Lisa No Hohoemi(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A907E39A90C84424D2D2F3DF477F72BC0FF9228E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169413   (403027) от 27.09.2017
+
+Alice Cooper - Paranormal (2017) 2LP, 45RPM [WavPack 2.0|192/32|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403027.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Paranormal (4:10)
+A2. Dead Flies (2:24)
+A3. Fireball (4:49)
+B1. Paranoiac Personality (3:10)(   Читать дальше...   )Производство: Ear Music - 0212198EMUЖанр: RockПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A58D410D05CBE2CF1B8A0E4EF6494B9482A7CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169724   (401420) от 29.09.2017
+
+Рома Жуков - Пыль Мечты (1988) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_401420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пыль мечты (07:22) -Жанр: Pop, DiscoПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D7C3E023985F76D2240913DBAECCF95754B19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169430   (401416) от 29.09.2017
+
+ВИА Пламя - 200 лет (1982) [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_401416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вячеслав Малежик - Двести лет
+02. ПЛАМЯ - Гороскоп
+03. ПЛАМЯ - Синяя птицаЖанр: PopПродолжительность: 00:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 717382   (392005) от 31.10.2013
 
 Аленький цветочек - Пьеса по сказке С. Аксакова (1991) [FLAC 1.0 24/48|traks(Vinil-Rip)]<Children's, Story>
@@ -633,122 +745,6 @@ Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DBD1AB79BEA880E157D518356111B05C2833737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327959   (367684) от 28.09.2019
-
-The Prodigy - No Tourists (2018) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Drum & Bass, Big Beat>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367684.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Need Some1 (2:43)
-A2. Light Up The Sky (3:20)
-A3. We Live Forever (3:43)
-B1. No Tourists (4:18)(   Читать дальше...   )Жанр: Drum & Bass, Big BeatПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328054   (367505) от 28.09.2019
-
-Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sekai Wa Futari No Tameni
-02. Kitaguni No Aoi Sora
-03. Koi
-04. Nagisa No Senorina(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255147   (365728) от 17.10.2018
-
-Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapid Fire (4:08)
-02. Metal Gods (4:00)
-03. Breaking The Law (2:36)
-04. Grinder (3:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03BE611D1BAD9E26B3E4A979616B4983A45386C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416428   (364973) от 17.10.2020
-
-Santana - Santana III (1971) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Psychedelic Rock, Latin>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364973.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Batuka
-A2 No One To Depend On
-A3 Taboo
-A4 Toussaint L'Overture(   Читать дальше...   )Жанр: Psychedelic Rock, LatinПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AE9BFE323CA7F40FB23B1DE856B28C914BD70E
 ```
 
 https://mybot314.ru/tekegram_catalog/

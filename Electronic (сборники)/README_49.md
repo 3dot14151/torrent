@@ -1,3 +1,32 @@
+###  Публикация: 1009842   (808245) от 22.04.2016
+
+VA - Trance Maniacs Party -  Melody Of Heartbeat #162 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gal Abutbul & Sarah Russell - You Have Realised (Uplifting R 05:56
+02. Walsh & McAuley and Katty Heat - Wider Horizon (Azotti Remix) 06:18
+03. Matteo Marini & Ellie Lawson - Dreaming of a Better World (Ma 04:58
+04. Mike Saint-Jules Ft. Sandel - Broken Turn (Original Mix) 06:20(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C72F37D97F4A8EC08227246B9E7706F32BAB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009706   (808238) от 22.04.2016
 
 VA - After Midnight (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ VA - Trance Collection vol.42 (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25415E76132B317EA0191DACA4835DD4B73E1002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010253   (804304) от 24.04.2016
-
-VA - Hands Up Freaks Vol. 5 (Deejay Edition) (2016) [MP3|256 кб/с] <Club, Dance, Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special D. & Scott Brown - Elysium (Ti-Mo Remix) 04:46
-02. Viper Tone - Fast Car (Raindropz! Remix) 04:44
-03. Basslovers United & DJ G4bby - Addicted (Extended Mix) 05:19
-04. Club Electric - Sweet Lovin' (Malu Project Remix) 04:46(   Читать дальше...   )Жанр: Club, Dance, HardstyleПродолжительность: 07:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61C6C6240D271E80790449B5ABE19DD1AE753EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

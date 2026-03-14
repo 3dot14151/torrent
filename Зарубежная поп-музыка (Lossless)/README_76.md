@@ -1,3 +1,148 @@
+###  Публикация: 1645138   (209409) от 08.07.2023
+
+Taylor Swift - Speak Now (Taylor's Version) (2023) 2xCD [FLAC|Lossless|tracks + .cue] <Country, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One:
+01. Mine (Taylor's Version) 3:51
+02. Spark Fly (Taylor's Version) 4:21
+03. Back To December (Taylor's Version) 4:54(   Читать дальше...   )Жанр: Country, Pop RockПродолжительность: 01:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0687790A2B9F1CBCBBB45E99667837033CDE648E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 676580   (208898) от 14.07.2023
+
+Brian McFadden - The Irish Connection (2013) [FLAC (tracks + .cue)]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Is The Colour (feat. sinead o'connor) [03:33]
+ 02. All I Want Is You (feat. ronan keating) [03:53]
+ 03. Crimes [02:51]
+ 04. Dreams [03:44](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790A7889DDBBA47AC42EB3EC3CF2B18CFFAB09ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646817   (208878) от 15.07.2023
+
+Michael Bolton - Spark of Light (2023) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Michael Bolton воспитывался на соул и блюзе таких музыкантов, как Ray Charles и Marvin Gaye. Свой первый сингл он записал на фирме Epic в 1968 году, но дебютный альбом появился только в 1975. Рецензии на эту пластинку были сдержанные, хотя критики и отмечали явное сходство голосов Bolton'а и Joe Cocker'а. В конце 70-х Michael Bolton принял приглашение хард-рок-группы (   Читать дальше...   )01. Spark of Light (3:18)
+02. Running Out of Ways (2:37)
+03. Eyes on You (3:38)
+04. Beautiful World (3:19)(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, BalladПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454CBEB0C8312EDA4FBCA9533C0DE0918A86A6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646655   (208861) от 15.07.2023
+
+Michael Bolton - Spark of Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spark of Light
+02. Running Out of Ways
+03. Eyes on You
+04. Beautiful World (feat. Justin Jesso)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB13B0ED6B9BF2029B3DDDB8F9D5C7F42099C6CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646658   (208811) от 15.07.2023
+
+Rita Ora - You & I (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Think Twice
+02. You Only Love Me
+03. Praising You (feat. Fatboy Slim)
+04. Unfeel It(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1264B638B33338964C15AC9FA2AE5B7E2E9B8273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607982   (208709) от 29.01.2023
 
 Stars On 45 - 40 Years Anthology (2022) 2CD, Remastered [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop, Retro-Schlager, Post-Rock, R&B>
@@ -600,151 +745,6 @@ Kim Wilde - Pop Don't Stop (Greatest Hits) [2CD] (2021) [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E758976084362D4B595D6F233D086C9211EC06C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625858   (200039) от 12.04.2023
-
-VA - 100 Hits - The 70s (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200039.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fleetwood Mac - Dreams (2018 Remaster)
-002. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!)
-003. Blue Swede - Hooked on a Feeling
-004. Rod Stewart - Da Ya Think I'm Sexy(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 06:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F9471CBF851DD7B2364FE4E6CE3834F3A09434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630320   (198979) от 02.05.2023
-
-Ace of Base - Beautiful Life - The Singles Box (2023) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wheel of Fortune (7" Mix) (3:43)
-02. My Mind (Mindless Mix) (4:13)
-03. Wheel of Fortune (12" Mix) (5:27)
-04. Wheel of Fortune (Clubmix) (4:39)(   Читать дальше...   )Жанр: Eurodance, Pop, DanceПродолжительность: 25:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AEF0AE9A3187557DCD7F64CE35703774F8CC2F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635603   (197979) от 26.05.2023
-
-Taylor Swift - Midnights (2023) The Til Dawn Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lavender Haze
-02. Maroon
-03. Anti-Hero
-04. Snow On The Beach(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18022E3DB96FF3674E505A533E8F542DA8E59A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219121   (197935) от 25.05.2023
-
-Tina Turner - The Best (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Rock, Soul, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best (Extended Mix) (6:37)
-02. Nutbush City Limits (The 90's Version) (3:44)
-03. Afterglow (12'' Dance Mix) (7:13)
-04. We Don't Need Another Hero (6:10)(   Читать дальше...   )Жанр: Pop, Rock, Soul, BluesПродолжительность: 02:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE915F497CCAE302451A3DB260423A78DC180F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638141   (197435) от 07.06.2023
-
-VA - 70s Pop Mega Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bee Gees - Stayin Alive                                 [04:45]
-   02. Jerry Williams - Cotton Jenny                           [03:30]
-   03. Rupert Holmes - Escape (The Pina Colada Song)           [04:37]
-   04. Rod Stewart - Maggie May                                [05:44](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E973D11D8E8CE257D6456E6725ED6FCDC731D47A
 ```
 
 https://mybot314.ru/tekegram_catalog/

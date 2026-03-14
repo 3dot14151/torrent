@@ -1,3 +1,38 @@
+###  Публикация: 484226   (99877) от 17.04.2012
+
+VA - Клубные новинки Vol. 66 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Oshean - A Day Will Come (Original Mix).mp3
+02. Andreea Banica - Electrified (Sagi Abitbul Official Remix).mp3
+03. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck With You (Extended Mix).mp3
+04. Cahill feat. Chrome - Can't You See (Club Edit).mp3
+05. Christos Fourkis - Set Free (Radio Mix).mp3
+06. Coffee and Honey feat. Alexandra - Smile (Club Mix).mp3
+07. CUT & RUN - Calm & Queasy.mp3
+08. DJ Adamus - Free The Night (Club Edit).mp3
+09. Faberlique - Sleep Blind (Taras Bazeev Remix).mp3
+10. Funkwhite - Plug & Play (Extended Mix).mp3(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBC52487425A7EBB966F1D671410483B22DA219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483372   (99691) от 15.04.2012
 
 VA - Зарубежные Новинки Vol.41 from AGR (2012) [MP3|320 кб/с]<Pop>
@@ -858,41 +893,6 @@ VA - Deep Line. Lounge Collection (2012) [MP3|320 kbps]<Chillout | Downtempo | L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A311ECC58BF77FAC9F17AAC2F10DF072743DDC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479535   (98893) от 07.04.2012
-
-VA - MAXI. Только Best Club (2012) [MP3|320 kbps]<Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project 46 & Gemellini feat. Corinne Lee - Crazy (Original Mix)
-02. Polina Griffith & Miami Kidz - Feeling This Way (Extended Mix)
-03. Pedro Henriques feat. Giuseppe Viola - Spread The Love (Original Mix)
-04. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia (Club Mix)
-05. Agulo feat. David Berkeley - Fire Sign (Suncatcher Remix)
-06. Northbrook - Move Your Body (Tommie Sunshine Remix)
-07. House Rockerz - Hemmungslos (Extended Mix)
-08. Betsie Larkin with Super8 & Ta - All We Have is Now (Original M
-09. Mohombi - In Your Head (High Level Club Mix)
-10. Glamrock Brothers - Drunken Sailor (Club Mix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 04:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26AB17FF19DBDBDA06ACC674F57ACB43F7BA2C9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1042645   (576736) от 14.08.2016
+
+Alexandre Tharaud - Le Boeuf sur le Toit: Swinging Paris (2012) Virgin Classics[FLAC|Lossless|image + .cue] <Ragtime, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chopinata [03:30]
+ 02.The man I love [02:04]
+ 03.Yes Sir, that's my baby [01:31]
+ 04.Do it again [01:37](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 01:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEFEC344BD7FD187FF59ADA3285B258A025DA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042457   (576730) от 14.08.2016
+
+Franco Cerri - Passavo Di Qui (2012) [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Italiano (2:18)
+02. Que Reste-T-Il De Nous Amours (3:46)
+03. That's My Desire (2:54)
+04. Mose's Ballad (2:45)(   Читать дальше...   )Жанр: BopПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06609E852F84642B7620E502F72A41DDEB504AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042489   (576727) от 14.08.2016
+
+Ronnie Cuber - Passion Fruit (1986) King Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Passion Fruit [07:05]
+ 02.You Promised To Be True [05:27]
+ 03.What It Is [07:10]
+ 04.Love Notes [07:21](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14847F7FA5C07FEC6B923D98E838B43E914FADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042579   (576717) от 14.08.2016
 
 La Machine Ronde - Music Makes The World Go Round (2015) [FLAC|Lossless|tracks + .cue] <Jazz, Vocal Jazz>
@@ -655,93 +742,6 @@ Chuck Hedges - Just For Fun (2001) Arbors Records [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B0B9F6EF71C4E3C598AD94FD210B69881E4AE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554830   (574023) от 01.06.2022
-
-Lou Donaldson - The Complete Blue Note Lou Donaldson Sessions (1957 - 1960) 6CD, 2002, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574023.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Sputnik [10:05]
-02. Dewey Square [7:18]
-03. Strollin' In [14:38](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 07:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEAEDF4D300A765C1D7FF6A20AFE41E8F446F6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921803   (573799) от 26.07.2015
-
-Lennie Tristano - Descent Into The Maelstrom (1952-1966) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Descent Into The Maelstrom [03:29]
-02. Dream: Paris [03:06]
-03. Image: Paris [03:23]
-04. Take 1 - Rehearsal From Recording Date [04:34](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, CoolПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26EF5D5E4DB069A998630D87FD15526E946E14CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921797   (573797) от 26.07.2015
-
-Jimmy Smith - Fourmost (1991) /2000, Milestone/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Special [06:58]
-02. Main Stem [06:43]
-03. Summertime [08:28]
-04. Things Ain't What They Used to Be [06:37](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C8E98F9978319791C1E528156B91D8C8D47781
 ```
 
 https://mybot314.ru/tekegram_catalog/

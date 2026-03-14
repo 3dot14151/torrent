@@ -1,3 +1,61 @@
+###  Публикация: 1445957   (1033256) от 07.02.2021
+
+Cozmic Jet - Whatcha Gonna Do (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Station (4:27)
+02. Turnin' On (3:09)
+03. Shadow of the Past (4:23)
+04. Whatcha Gonna Do (5:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7669A605FCC06FAAEB6085E3C79611981E5ECE6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445954   (1033253) от 07.02.2021
+
+A.J. Croce - By Request (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing From Nothing (3:35)
+02. Only Love Can Break Your Heart (3:33)
+03. Have You Seen My Baby (2:30)
+04. Nothing Can Change This Love (2:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC86C7042153A97F297AA02F8076E086458A28E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445959   (1033249) от 07.02.2021
 
 Don and the Mobsters - Fear of the Dark (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -687,64 +745,6 @@ Maria Daines - Little Bird (2023) [FLAC|Lossless|image + .cue] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B507BDD538E48DEE3F61E230CFF2F6FF5E6413C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619509   (1032905) от 16.03.2023
-
-VA - British Blues: From Skiffle to Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Status Quo -- Spinning Wheel Blues (3:19)
-02. Cyril Davies & His R&B All Stars -- Chicago Calling (2:25)
-03. Man -- Sudden Life (4:41)
-04. Atomic Rooster -- Save Me (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E5B9648F73AD2D42EBE3EADCAAF38203F73D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446268   (1032884) от 08.02.2021
-
-Mark Sutherland - The Good Fight (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock;Psychedelic>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Your Love (4:52)
-02. Black Swan (3:45)
-03. Next to Me (3:49)
-04. So Called Modern Times (4:30)(   Читать дальше...   )Жанр: Blues Rock;PsychedelicПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C72B1F52226791C9FC716EA487C40F42AE4D16B
 ```
 
 https://mybot314.ru/tekegram_catalog/

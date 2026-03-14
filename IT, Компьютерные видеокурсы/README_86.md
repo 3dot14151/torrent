@@ -1,3 +1,60 @@
+###  Публикация: 1643133   (196313) от 30.06.2023
+
+Foxford (Фоксфорд), Валерия Савина | Практический курс по созданию презентаций в PowerPoint (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навыки, которые Вы получите на курсе:
+Работа с базовыми функциями PowerPoint. Научитесь работать с текстом, графиками, таблицами и изображениями.
+Умение создавать гармоничный дизайн. Сможете подбирать шрифты, цвета, фон, размещать на слайдах текст и изображения.
+Работа с интерактивными инструментами. Освоите анимацию, эффекты, научитесь добавлять звук и гиперссылки.(   Читать дальше...   )Производство: Foxford (Фоксфорд)Жанр: офисные программы, PowerPoint, видеокурсЯзык озвучки: русскийПродолжительность: 04:28:36Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BC6EC425D43B2BFA22AA672BC27CE08BFDC034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643796   (196246) от 03.07.2023
+
+Udemy, David Makowski | Modern Unity UI with UI Toolkit (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196246.jpg" />
+</div>
+
+
+###  Подробнее
+
+This course is a deep dive into Unity's UI Toolkit. You will learn most of the components that make up UI Toolkit and be able to create complex UI Systems for your games or apps.
+
+This course uses a mix of theory and practice. We will create dozens of little UI-Components and examples. Furthermore, we will have a course project on which we will practice what we learned (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 22:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DDD296CD1D47747A3CFA37D6566B1527986DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644017   (196107) от 04.07.2023
 
 Федор Васильев | Elementor PRO от А до Я (2022) WEB-DL [RU]
@@ -667,63 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BF7707CA7EF1448B80D47EDAA680CBEE216C8DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552979   (193092) от 29.10.2022
-
-Adrian Cantrill | AWS Certified Advanced Networking - Specialty (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Become an AWS Network Specialist and pass the AWS Advanced Network Specialty Exam
-(🚨🚨🚨🚨🚨 READ THIS - JULY 2022 Update 🚨🚨🚨🚨🚨 )
-The Network Specialty Exam has been updated to ANS-C01
-🚨You can NO LONGER sit ANS-C00 🚨(   Читать дальше...   )Жанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 38:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDD63C232CF0B83BA17FD785DAB5A66BDB80DBF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587227   (193089) от 29.10.2022
-
-Academind Pro, Udemy, Maximilian Schwarzmüller | GitHub Actions - The Complete Guide (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193089.jpg" />
-</div>
-
-
-###  Подробнее
-
-GitHub Actions is an extremely popular and fast-growing CI / CD automation service offered by GitHub.
-This course teaches GitHub Actions from the ground up, without any prior GitHub Actions experience assumed or required.
-In order to handle growing development and code complexity and deploy application updates with high frequency, powerful automation platforms and (   Читать дальше...   )Производство: Academind Pro, UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 10:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFCD99CE0C43E77A5948D4870AF219B86CA2155
 ```
 
 https://mybot314.ru/tekegram_catalog/

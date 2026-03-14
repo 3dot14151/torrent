@@ -1,3 +1,148 @@
+###  Публикация: 1822422   (100743) от 06.10.2025
+
+Stella Anning - Yellow Brick Veneer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Yellow Brick Veneer (6:10)
+02.  Don't Want to Follow You (4:48)
+03.  Watching You as You Fall (4:55)
+04.  Travels (6:19)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78CD0D84D1792CEA0D71AE665D84BFE769FF0D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822425   (100741) от 06.10.2025
+
+The Scott Rednor Band - Where You Wanna Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  It's Your Life (4:03)
+02.  Where You Wanna Go (4:17)
+03.  Turn Back Time (4:01)
+04.  Come Home (3:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A97783A3A735CA706D5A990D88EC310B7DE453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822435   (100739) от 06.10.2025
+
+Venna - Malik (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Yoshi’ Intro (0:40)
+02.  Numero Uno (4:13)
+03.  Myself (feat. Jorja Smith) (2:59)
+04.  Prophet (4:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A82C3E13681320C47998BBF2A067A1E39023D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822219   (100738) от 06.10.2025
+
+The Red Jumpsuit Apparatus - X’s For Eyes (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alt. Rock, Mall Emo>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Always The King (feat. Kellin Quinn) (3:15)
+02. - Purple Halo (3:38)
+03. - Perfection (3:19)
+04. - X’s For Eyes (2:56)(   Читать дальше...   )Жанр: Alt. Rock, Mall EmoПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E41E1E5726D02E5139A356545E1A913C9B039A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822445   (100737) от 06.10.2025
+
+Vera Norea - Daughter of Eve (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Second Ark (4:17)
+02.  Heartsick (3:13)
+03.  Stumble Into Town (4:25)
+04.  Just Keep Playing (4:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763E5BC0634603B3F0E24EF674C8F0F1B1EF2609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822448   (100736) от 06.10.2025
 
 Yoav Eshed - Guitar Hearts (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
@@ -594,151 +739,6 @@ Forever Desire - Beings of Wonder (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E1F8C4162DD55BD9E3E4FB8C346265A73FDAF08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770367   (100548) от 31.12.2024
-
-Rosie & the Revival - Soundchecks and Tape Decks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Getting Started (3:53)
-02. Wait a Minute (3:21)
-03. Whole Lotta Rosie (5:04)
-04. Listen to Her Heart (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F37902159D47E93662FCE8B40AEF0C3ACA9AC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770341   (100545) от 31.12.2024
-
-Blues Rock Generations - Blues Rock Generations No.6 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  When You Got a Good Friend (3:43)
-02.  Blue Suede Shoes (3:44)
-03.  Riding with the King (4:21)
-04.  River of Tears (4:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40AA2AC650DC24306688D7EA36AE8334A5662A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770370   (100539) от 31.12.2024
-
-Tuff Luck - An Acoustic Afternoon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make You Mine (3:29)
-02. Tell Me (3:22)
-03. A50 Avenue (5:24)
-04. The Wool (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3F510B8456EE2E4FB16AFD2184A2A8FCFA1082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770365   (100537) от 31.12.2024
-
-Ronnie Baker Brooks - Blues In My DNA (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Feeling You (4:37)
-02. Lonnie Brooks' Blessing (0:14)
-03. Blues In My DNA (4:48)
-04. My Love Will Make You Do Right (4:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A477C2692F0E7AE579F8FC5A2031775251BC926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770362   (100536) от 31.12.2024
-
-River Arrow - R.A.W (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Damn It, Fred (4:13)
-02. In the Neighborhood (4:01)
-03. Queen of Hearts (4:56)
-04. Bayou & I (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BEE254595642CFA111FAECD75C20D271136DD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

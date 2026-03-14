@@ -1,3 +1,119 @@
+###  Публикация: 1606168   (1044535) от 21.01.2023
+
+Half Life - Like A Jungle (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Like A Jungle (00:03:58)
+02 - Dance Of Madness (00:03:48)
+03 - Virus (00:05:01)
+04 - The Last Time (00:05:28)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3765BC618DF7E63A53925EF9431B3FFBDCEB420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606445   (1044413) от 22.01.2023
+
+John B King - A Kings Tale (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rushed (4:13)
+02. Closer Distance (4:02)
+03. Did We Waste Our Song (3:52)
+04. The Valleys Shadow (4:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E772417FD4404335C45B1CF9E974303E23B76C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606727   (1044328) от 23.01.2023
+
+StreetLore - StreetLore (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brothers (Lead Vocals – Davide Barbieri) (5:24)
+02. Friends In Time (Lead Vocals – Satin) (3:34)
+03. Crossroad (Lead Vocals – Terry Brock) (4:40)
+04. The Storm (Lead Vocals – Davide Gilardino) (3:19)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00{46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4D6DD5F80DAFAE31B67538D72D993999F7468B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606724   (1044325) от 23.01.2023
+
+Black Paisley - Human Nature (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set Me On Fire (3:50)
+02. In The Night (3:21)
+03. Not Alone (3:32)
+04. Promises (3:10)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D372E9BAD321F39BA18A763C44C58EC088F3D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606718   (1044323) от 23.01.2023
 
 Autograph - Beyond (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -631,122 +747,6 @@ Hearts & Hand Grenades - Turning To Ashes (2021) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:427C66796F16697E5DEB9F17553337F9FEDC78A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612067   (1040633) от 14.02.2023
-
-Brannon - Heartbreak Is Misery (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are Powerful (3:17)
-02. Hard Habit to Break (3:14)
-03. Without You I'd Die (4:02)
-04. Bad Love (feat. R Reed) (3:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B98DA00B6312A64C4A7E671B75C47FBB4205BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612081   (1040606) от 14.02.2023
-
-Wig Wam - Out of the Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of the Dark (4:28)
-02. High n Dry (3:34)
-03. Forevermore (4:56)
-04. Bad Luck Chuck (3:48)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A9385916801658A0961BBC86B0B9FD617B9E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612071   (1040605) от 14.02.2023
-
-Glenn - Inner Sanctum (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fate (3:21)
-02. Magical (3:23)
-03. My Sweet Mary (3:11)
-04. Dreams (4:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E81593353737A62E3D9F700E663B9699C27B77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612066   (1040604) от 14.02.2023
-
-Black Cat Moan - Departure (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crash (2:51)
-02. Departure (3:49)
-03. Molotov Cocktail (3:46)
-04. Boogie Woogie Man (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12914C13834EE7F0F197BB6A7BE1BABC5A9FC66
 ```
 
 https://mybot314.ru/tekegram_catalog/

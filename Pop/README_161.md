@@ -1,3 +1,404 @@
+###  Публикация: 917897   (588672) от 13.07.2015
+
+R5 - Sometime Last Night (2015) [MP3|320 кб/с]<Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night
+02. Wild Hearts
+03. Dark Side
+04. Let's Not Be Alone Tonight(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D190D278A0407F0D75397BEDEC9812E0F88F84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552212   (588529) от 19.05.2022
+
+Elen Cora - House of Cards (2012) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me Why (3:35)
+02. Forgive Me (4:14)
+03. Astronomers in China (4:41)
+04. Wanna Be Real (4:20)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579D4027DDA0CDAEE3F4845F2EE185932523D6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552213   (588514) от 19.05.2022
+
+Elen Cora - House of Cards (2012) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me Why (3:35)
+02. Forgive Me (4:14)
+03. Astronomers in China (4:41)
+04. Wanna Be Real (4:20)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0CAEB2BF5405DE1515E8DDA13D5E138068E40B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809230   (588382) от 31.07.2014
+
+Wish Key - Uno (2010) [FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acumbacha
+02. Make It Up
+03. The Key Of Sunshine
+04. No Woman No Cry
+05. Last Summer
+06. The One You Love
+07. Life
+08. Orient Express
+09. Make It Up (Maxi Version)
+10. Orient Express (Vocal)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06AF0AD62EEF2E665CDB1B560DE50787013065B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809232   (588376) от 31.07.2014
+
+Wish Key - Uno (2010) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acumbacha
+02. Make It Up
+03. The Key Of Sunshine
+04. No Woman No Cry
+05. Last Summer
+06. The One You Love
+07. Life
+08. Orient Express
+09. Make It Up (Maxi Version)
+10. Orient Express (Vocal)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1E47BF295DEB1B861F7380B9F6F00792F6A372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809258   (588364) от 31.07.2014
+
+K.B. Caps - Catch Me Now I'm Falling (2005) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Really Need Me? (maxi mix)
+02. Catch Me Now I'm Falling
+03. Julia (maxi mix)
+04. Dancing In The Dark
+05. Angel Of The Dreamland (extended version)
+06. Wait, Baby, Wait
+07. Do You Really Need Me? (original version)
+08. Julia (funk b-mix)
+09. Catch Me Now I'm Falling (instrumental)
+10. Dancing In The Dark (crazy version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7543CA5C5C8BF87FB04006D5035A65AF574E7856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809257   (588339) от 31.07.2014
+
+K.B. Caps - Catch Me Now I'm Falling (2005) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Really Need Me? (maxi mix)
+02. Catch Me Now I'm Falling
+03. Julia (maxi mix)
+04. Dancing In The Dark
+05. Angel Of The Dreamland (extended version)
+06. Wait, Baby, Wait
+07. Do You Really Need Me? (original version)
+08. Julia (funk b-mix)
+09. Catch Me Now I'm Falling (instrumental)
+10. Dancing In The Dark (crazy version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA502B0D44C9C79436174333E9FDAFDAEEA09D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918180   (587993) от 14.07.2015
+
+Life In Film - Here It Comes (2015) Deluxe Version [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alleyway
+02. Set It Off
+03. Are You Sure?
+04. Lose Control(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0239846A9DF7968B5E4E56F766E70416306617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918184   (587987) от 14.07.2015
+
+VA - Super Vara 2015 (2015) [FLAC|image + .cue]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587987.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+
+01.Amna feat. Glance - Evacuat (4:16)
+02.Anda Adam feat. CRBL - Seri de mai (3:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F317E36127C418FC4C401BB5899FE67238918C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918249   (587938) от 14.07.2015
+
+VA - Women’s Stories (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sade – Smooth Operator
+02. Annie Lennox – Why
+03. Beverly Craven – Promise Me
+04. Celine Dion – My Heart Will Go On(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FC6EDC1B4229AC59193BD4DF0665BBF52257D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918307   (587869) от 14.07.2015
+
+Kim Wilde - Love Blonde - The Best Of (1993) Compilation [FLAC|image + .cue]<Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cambodia [3:58]
+02. Kids In America [3:27]
+03. Love Blonde [3:33]
+04. Chequered Love [3:22](   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B5433ECFC5158D24B17124013891B3F38111E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918005   (587759) от 14.07.2015
+
+VA - Radio 538: Hitzone 74 (2015) 2CD [FLAC|image +.cue]<Pop, Dance, Top40>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Mr. Probz - Another You
+02. Jess Glynne - Hold My Hand
+03. Avicii - Waiting For Love
+04. Magic! - No Way No(   Читать дальше...   )Жанр: Pop, Dance, Top40Продолжительность: 02:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36056075898FE9B29049169DEB7854480A538610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552417   (587665) от 20.05.2022
+
+Лера Массква - Разные (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587665.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Билет на самолёт
+2. Люди всё узнали
+3. Возле
+4. Лови(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1004D92D94169240BA2FC13E4381721DF4044F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 809498   (587470) от 01.08.2014
 
 T. Ark - H.A.P.P.Y. Radio (The 12" Maxi-Singles Collection) (2010) Limited Edition  [MP3|320 кб/с]<Italo-Disco>
@@ -402,381 +803,6 @@ Video Kids - The Invasion Of The Spacepeckers (2007) [FLAC|Lossless]<Italo-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CB847D2C5626594D0BBDF6754097FE849D0E93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301330   (586178) от 10.05.2019
-
-Tight Fit - Back To The 60's (1981) LP [MP3|320 Kbps] <Pop, Disco, Rock & Roll>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mixed - Back To The 60s - Side One (18:32)
-02. Mixed - Back To The 60s - Side Two (18:03)Жанр: Pop, Disco, Rock & RollПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB8DDAD6367556C42E791D7EEE10570F6EB854A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918848   (585941) от 16.07.2015
-
-VA - Romantic Worlds Vol.2 (2008) [FLAC|image + .cue]<Pop, New Age>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yello - Homage to the mountain [0:35]
-02. Natalie Cole - If i ever lose my faith in you [5:38]
-03. Eskobar - Someone new [3:30]
-04. Secret Servise - Destiny of love [4:11](   Читать дальше...   )Жанр: Pop, New AgeПродолжительность: 01:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F6FA1BB6E3B594D0AEC95DE199834E4E00A5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918687   (585860) от 16.07.2015
-
-Доминик Джокер - Дежавю (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнце взойдет
- 02. Буду я любить
- 03. Если ты со мной
- 04. Небо напрокат(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE0C9A448DFF16F2C1BA2AA47362A6B958D37C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552162   (585845) от 22.05.2022
-
-VA - The Original Masters, Vol. 7 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eli's Second Coming - Love Chant (5:57)
-02. Tony Silvester - Pazuzu (6:38)
-03. Dennis Coffey - Boogie Magic (5:46)
-04. Porn Music - Boogie Nights (2:38)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C2E14FFAF7D6F9C0791483727618C52E6B4260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552164   (585844) от 22.05.2022
-
-VA - The Original Masters, Vol. 8 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tee Cee's - Ecstasy (8:21)
-02. Calender - Hypertension (5:50)
-03. Pam Todd And The Love Exchange - Let's Get Together (5:23)
-04. Cory Daye - Green Light (9:00)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90A45FB399B01781CC7883ECAECEE8351F235C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552157   (585840) от 22.05.2022
-
-VA - The Original Masters, Vol. 4 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eruption - I Can't Stand the Rain (6:28)
-02. Chilly - For Your Love (11:48)
-03. Skatt Brothers - Walk the Night (5:23)
-04. Bay City Rollers - Don't Stop the Music (5:59)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70740C18D6B325B3769431FF445A5EE16987420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552160   (585835) от 22.05.2022
-
-VA - The Original Masters, Vol. 6 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muscle Shoals Horns - Break Down (3:41)
-02. Brooklyn Express - Hollywood Party (6:13)
-03. Cissy Houston - Think It Over (7:59)
-04. Glitter Band - Makes You Blind (5:04)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A35959F7AFFF15F87EAADA9713DC744AAB5FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917891   (585796) от 16.07.2015
-
-Фристайл - Юбилейный №10 (2014) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Московская любовь
-02. Давайте выпьем за мужчин
-03. Листок календаря
-04. Капелька(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A30CE135C32933671143CD719C4B8EE1C38658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552856   (585792) от 22.05.2022
-
-VA - DMC Halloween In The Mix (Classic Mixes) (Volume 1) (2019) [MP3|320 Kbps] <Electronic, Synth-pop, Dance-pop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Jackson - Thriller (Dmc 2019 Remix) (Remixed By Keith Mann)
-02. Various - Halloween Party Hits (2019) (Mixed By Dj Ivan Santana)
-03. Christina Aguilera Fe. Nile Rodgers Vs Ray Parker Jr. - Telepathy Vs Ghostbusters (Dj Ivan Santana)
-04. Various - Halloween (Michael Myers Theme Song) (Halloween 2018 40th Anniversary Mix) (Mixed By Kevin Sweeney)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Dance-pop, PopПродолжительность: 01:18:14 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0CC2B72321811D498529A9BFA28CC38330E91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552168   (585786) от 22.05.2022
-
-VA - The Original Masters, Vol. 12 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brock Landers - Angels Live in My Town (7:50)
-02. Afro Cuban Band - Something's Gotta Give (5:28)
-03. Disco Spectacular - Aquarius, Let the Sunshine In (9:11)
-04. Billy Frazier and Friends - Billy Who (6:42)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B69D50D44E5B4AAF1DFCFBAD541DAA8573A1845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552171   (585785) от 22.05.2022
-
-VA - The Original Masters, Vol. 14 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piero Umiliani & Giorgio Moroder - Mah-Na Mah-Na (2:14)
-02. Dennis Parker - Like An Eagle (8:35)
-03. Tony Rallo & The Midnite Band - Holdin' On (7:36)
-04. Paris Connection - Eloise (14:53)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452ACE93D6A4DAB81E96CE6D3223AD8305ECEFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552166   (585783) от 22.05.2022
-
-VA - The Original Masters, Vol. 11 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gandalf - Departure (4:58)
-02. Mark Shreeve - Legion (5:41)
-03. Beat the Drum - Try (6:03)
-04. Savage Progress - My Soul Unwraps Tonight (5:43)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036B65675196C8E3502409ADE684D3B749B478F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552155   (585726) от 22.05.2022
-
-VA - The Original Masters, Vol. 2 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stretch - Why Did You Do It (7:55)
-02. Ten CC - Dreadlock Holidays (4:59)
-03. Average White Band - Pick up the Pieces (3:58)
-04. Touch - Love Hangover (4:01)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB892A6BE89A1C942BC11DDA318B668641A3D2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1263387   (287099) от 19.11.2018
+
+VA - Дискотека 2018 Synthwave Dance Music от NNNB [MP3|320 Kbps] <Synthwave  Synth Pop  Retrosynth>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AM 1984 - Mansion Ghost (4:04)
+02. Digital Emotion - Full Control (6:05)
+03. Scandroid - Thriller (5:52)
+04. Powernerd - Flame (feat Dana Jean Phoenix) (4:00)(   Читать дальше...   )Жанр: Synthwave  Synth Pop  RetrosynthПродолжительность: 11:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF0BDAD96AE6FD2D65D9B38C1903DB0E406E14A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331759   (286909) от 02.11.2019
 
 VA - Самые лучшие треки интернета Осень 2019 [MP3|320 Kbps] <Pop, House, Dance>
@@ -709,35 +738,6 @@ Cher - Believe (2018) Remix [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C1EA4F77E887A64176FDDC2CD37913EB19E204F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264077   (282274) от 22.11.2018
-
-VA - Dance Generation: EDM Megamix (2018) [MP3|320 Kbps] <Dance, Club, Electro Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282274.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jonas Blue Back & Forth - Back & Forth
-002. Panic! At The Disco - King Of The Clouds
-003. Athena Manoukian - I Surrender
-004. Charlie Brennan And Miller Guth - When We Were Young(   Читать дальше...   )Жанр: Dance, Club, Electro DanceПродолжительность: 11:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C69BD62359061CE476FDA03896C1B0A4EC76664
 ```
 
 https://mybot314.ru/tekegram_catalog/

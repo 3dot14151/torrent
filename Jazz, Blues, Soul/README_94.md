@@ -1,3 +1,61 @@
+###  Публикация: 1108315   (864640) от 24.02.2017
+
+Angel Forrest - Angel's 11 (2016) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hangman (5:28)
+02. All the way (4:27)
+03. Spoil me up (5:17)
+04. Hold on tight... (Mr.I'm Alright) (4:18)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438467464C393CC45BACE61219704168BA882CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874306   (864607) от 02.03.2015
+
+V.A. - Best Of Audiophile Sax 2 (2008) [FLAC|Lossless]<Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of The Rising Sun
+02. Tears In Heaven
+03. When Will You Come Again
+04. Fly Me To The Moon(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1466B8201CA6E6B8701AC749B4148DCCFE9F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108089   (864418) от 24.02.2017
 
 Billy D & The Hoodoos - Overnight Success (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rockin' Blues>
@@ -687,64 +745,6 @@ Joe Bonamassa - Blues Of Desperation (2016) [FLAC|tracks+.cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60042D392A40EFA67421B789A08E9F153BE3CE6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375966   (861804) от 16.04.2020
-
-Ana Popovic - Live for Live (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro / Ana's Shuffle
-02. Can You Stand the Heat
-03. Object of Obsession
-04. Love You Tonight(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C39A762AB1651533FB2216CCE090FF43DED740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109186   (861098) от 26.02.2017
-
-Doug Webb - Bright Side (2016) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Society Al [06:02]
- 02.Silver Lining [05:50]
- 03.The Drive [03:27]
- 04.Bahia [05:15](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC79CBFDCE132AAF1F6FA2270041F1EBE6F0092
 ```
 
 https://mybot314.ru/tekegram_catalog/

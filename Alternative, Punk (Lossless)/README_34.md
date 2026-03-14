@@ -1,3 +1,90 @@
+###  Публикация: 1316000   (508837) от 23.07.2019
+
+Craig Finn - I Need a New War (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blankets (04:10)
+02. Magic Marker (03:49)
+03. A Bathtub in the Kitchen (04:39)
+04. Indications (04:52)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4990A94AA4E0BDCE0C169416924E8EE88CDA5EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315996   (508830) от 23.07.2019
+
+Biffy Clyro - MTV Unplugged (2018) Live at Roundhouse London [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Captain (04:35)
+02. Biblical (04:33)
+03. Re-arrange (04:10)
+04. Drop It (02:46)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA3E692553C9218508BCDC94880B534D84E29AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315991   (508828) от 23.07.2019
+
+Biffy Clyro - Ellipsis (2016) Japan [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolves of Winter (04:09)
+02. Friends and Enemies (04:13)
+03. Animal Style (03:31)
+04. Re-arrange (03:38)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B36374E337DE0402B7BE5FA6C2EE172B14AB21D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562605   (508075) от 10.07.2022
 
 Виагра Boys - Welfare Jazz (2021) [FLAC|Lossless|tracks + .cue] <Post-Punk, Art Punk>
@@ -664,93 +751,6 @@ The Birthday Massacre - Imagica (2016) Remastered [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2D55B6095EE505F09560EA9053B315E742E1C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243285   (492114) от 27.08.2018
-
-The Amity Affliction - Misery (2018) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivy (Doomsday)
-02. Feels Like I'm Dying
-03. Holier Than Heaven
-04. Burn Alive(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347624CDFBC82A9A7DBF81BBEF1D07E9B85F50E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936619   (491531) от 13.09.2015
-
-Bring Me The Horizon - That’s the Spirit (2015) [FLAC|tracks+.cue]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doomed
-02. Happy Song
-03. Throne
-04. True Friends(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF3221BB4FC45A535A7876DA84651DB9D6CF49F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404569   (491477) от 26.08.2020
-
-Spun Out - Touch the Sound (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another House [04:25]
-02. Such Are the Lonely [03:5]1
-03. Dark Room [04:07]
-04. Running It Backwards [04:21](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E092DE83D099B66D548F91D2D77FDD2CD0E2B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

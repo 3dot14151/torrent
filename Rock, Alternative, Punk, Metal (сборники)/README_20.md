@@ -1,3 +1,32 @@
+###  Публикация: 1403869   (686041) от 22.08.2020
+
+VA - Women in rock (Compilation) (2020) [MP3|320 Kbps] <Rock, Hard Rock, Hard 'N' Heavy>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blondie - Atomic
+02. Gossip - Heavy Cross
+03. Lita Ford - Kiss Me Deadly
+04. Hole - Celebrity Skin(   Читать дальше...   )Жанр: Rock, Hard Rock, Hard 'N' HeavyПродолжительность: 05:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B5910EE842C1118C9F5A107905CCF357E48FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 795882   (685726) от 14.06.2014
 
 VA - Alterportal HITS 14 Vol. 69 - May (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
@@ -715,35 +744,6 @@ Zakk Wylde - The Beginning... At Last (2017) Compilation 3CD [MP3|320 Kbps] <Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8823CF044E3F1E2134750CC821942FCD968C155B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901032   (665414) от 24.05.2015
-
-VA - Dr. Metal Presents: Vol.5 (2015) [MP3|224 кб/с]<Heavy, Speed, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665414.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Heavy Metal-Hymn
-002-Blasdead-Killer Of The Skies
-003-Adastra-Get Back To The Ring
-004-Edguy-Key To My Fate(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89AF722CBAA98E2E81E948FB2B3B81073B2B61C
 ```
 
 https://mybot314.ru/tekegram_catalog/

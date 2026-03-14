@@ -1,3 +1,32 @@
+###  Публикация: 1459328   (1023324) от 01.04.2021
+
+VA - Night Tropic Party: Clubbing Techno Mix (2021) [MP3|320 Kbps] <Club, Dance, Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техно охватывает большую аудиторию меломанов и какое-то время было довольно модным явлением. Но любое модное направление рано или поздно сменяется другим, и техно со временем все глубже уходит в андеграунд. Возможно, причина в том, что эту музыку затруднительно слушать дома — она предназначена для клубов, вечеринок и танцев.001. Jf Lee - Lago (Original Mix)
+002. Iva Dive - Bang Bang (Original Mix)
+003. Alonso Bierg - Natural Flow
+004. Human Robot - Cyberphysical Space(   Читать дальше...   )Жанр: Club, Dance, Techno, Tech HouseПродолжительность: 12:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C308AA1F70E17858BAE7D6865764FF21BD0781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459329   (1023310) от 01.04.2021
 
 VA - Oceanica (2021) [MP3|320 Kbps] <Ambient, Meditative, Relax, New Age>
@@ -716,35 +745,6 @@ VA - E-Dance: Clubbing Electro House (Vol.01) (2021) [MP3|266-320 Kbps] <Club, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8616916ECD17E52501DC733749C1A86C6DDA71C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462087   (1021309) от 13.04.2021
-
-VA - Vocal Trance Hits (2021) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021309.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Above & Beyond, Zoe Johnston, ALPHA 9 - Good For Me (ALPHA 9 Remix) (5:04)
-002. Alesso, Armin van Buuren - Leave A Little Love (Club Mix) (2:53)
-003. Jeremy Vancaulart, Danyka Nadeau, Millennial - Hurt (Millennial Remix) (3:42)
-004. ReOrder, Neil Hunter, Zach Alwin - You Should Know (3:32)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30320A819604D60D8D6812C337FEC0F3E2E101E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

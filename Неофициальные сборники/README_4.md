@@ -1,3 +1,90 @@
+###  Публикация: 1845195   (1050786) от 02.01.2026
+
+Ai - No name compilation part 37 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You're Drifting Away
+02 - Fallen
+03 - The Way You Move Me
+04 - Hidden Flame(   Читать дальше...   )Жанр: Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, AiПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78FA0F11E941BC90C7D63C65DC10C77DB94FCF3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845086   (1050785) от 02.01.2026
+
+Ai - No name compilation part 36 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - If I Knew How to Hold You
+02 - While I Was Still Yours
+03 - We Chose to Stay Burning
+04 - Don’t Say You’re Sorry Now(   Читать дальше...   )Жанр: Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, AiПродолжительность: 01:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55EBC9ED2E2734DE9BF0B357853706520B272F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845655   (1050761) от 02.01.2026
+
+Nina Blaze - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Where the Silence Sleeps
+02 - Burning for You
+03 - Poisoned Tongue
+04 - The Echo That Stayed(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C30E844AB61296CF2EEAF6689E6347475E84C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845263   (1050706) от 31.12.2025
 
 Ai - Inspired Blues & Soul Songs Part 2 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
@@ -658,93 +745,6 @@ VA - Муз. 2025 by Yuridar [MP3|320 Kbps] <Rock, Pop, Blues, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53AC5D30AAEE0ACE7FF2E90324A06A4812A8A342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843780   (1049778) от 23.12.2025
-
-The Black Keys - Compilation (2002-2025) [MP3|320 Kbps] <Garage rock, Blues rock, Indie rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Man Will Do Wrong (& The Arcs) ❂ Electrophonic Chronic 2023
-02. Ain't Nothing Like You (Hoochie Coo) (& Jim Jones & Mos Def) ❂ Blakroc 2009
-03. Behind The Eyes (& The Arcs) ❂ Electrophonic Chronic 2023
-04. Can't Find My Mind (& The Cramps) ❂ OST He Put The Bomp ! In The Bomp 2007(   Читать дальше...   )Жанр: Garage rock, Blues rock, Indie rockПродолжительность: 08:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C260EEFC530264BABFB276673CF0E5D9FD25E1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844089   (1049745) от 24.12.2025
-
-VA - Music News For Forum vol.152 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049745.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Simona Nae - De Craciun (02:53)
- 002. ADDA - Flori In Decembrie (02:49)
- 003. AGAV - Avis De Tempete (02:30)
- 004. AGAYAN - Механизм (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D871D95B6BB3F944CB844DAA22C6DCF66ADE3F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843696   (1049547) от 21.12.2025
-
-Dakota Lane - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Déjà Vu
-02 - Lucifer
-03 - I Am Safe Inside Your Heart
-04 - Lonely Satellite(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC503CB1DDEC65ED3066B6DC171B7794B30FA943
 ```
 
 https://mybot314.ru/tekegram_catalog/

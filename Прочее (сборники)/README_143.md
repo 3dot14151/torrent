@@ -1,3 +1,38 @@
+###  Публикация: 499911   (256942) от 22.05.2012
+
+VA - Radio DFM - Рашн Дэнс (21.05.2012) from AGR (2012) [MP3|320 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Каста - Наши Люди (Dj Miller  Hard Rock Sofa Bassline Remix)
+02. Виктор Павлик - Город Зеленого Цвета (DJ Stranger Mix)
+03. Максим - Наверно это мой рай
+04. Quest Pistols - Я Твой Наркотик (Dj Denis Rublev Vox Mix)
+05. DJ Vini feat. Stephenie Coker - Жестокая любовь
+06. MC 77 & MainstreaM One - Я Твой (Dj Gorelov Remix)
+07. DJ Piligrim - Ты меня забудь
+08. Градусы - Голая (GASpromo Sunshine Radio Remix)
+09. Михаил Боярский - Спасибо,Родная(Dj Kvant Radio Mix)
+10. Ирина Дубцова - Ешь, Молись, Люби(   Читать дальше...   )2012Жанр: Pop, Dance, ClubПродолжительность: 02:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8F4BD2634F1F3594D240A473053F98FF107F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499920   (256873) от 22.05.2012
 
 VA - Клубные Новинки Vol.82 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
@@ -794,41 +829,6 @@ VA - Avto Club Май Vol.5 (2012) [MP3|320 кб/с]<Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18FD07E25C7B05FFC9816B290367D272AB614D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497593   (253785) от 17.05.2012
-
-VA - Лирика. Зарубежные Медляки - 1 (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arash feat. Helena - Broken Angel
-02. DHT - Listen To Your Heart
-03. David Usher - Black Black Heart
-04. Groove Сoverage - God is a girl
-05. O-Zone - Oriunde Ai Fi
-06. Toni Braxton - Un Break My Heart
-07. Richard Marx - Right Here Waiting
-08. Sarah Connor - Just One Last Dance
-09. Limp Bizkit - Behind Blue Eyes
-10. DG - Dragosta(   Читать дальше...   )2012Жанр: PopПродолжительность: 01:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D197CF69D7C316E55C4E255D8C2F738923B052
 ```
 
 https://mybot314.ru/tekegram_catalog/

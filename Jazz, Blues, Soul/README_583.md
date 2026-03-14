@@ -1,3 +1,176 @@
+###  Публикация: 1800639   (15556) от 05.06.2025
+
+Mark Murphy - Love Is What Stays (2007) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stolen Moments [2:40]
+02. Angel Eyes [8:07]
+03. My Foolish Heart [5:14]
+04. So Doggone Lonesome [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5E8EECAC1761B25B134A1DA45E3FEE1050B266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800720   (15537) от 05.06.2025
+
+Mark Murphy - Mark Murphy Sings (1975) 1995, Muse Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Red Clay [4:40]
+02. Naima [4:55]
+03. Body and Soul [5:20]
+04. Young and Foolish [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A9C3D64F569049B1912D4A174B6DE467EC3473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238498   (15495) от 06.06.2025
+
+Fantastic Negrito - 6 Albums, 2 EP (2014 - 2024) [FLAC|Lossless|tracks + .cue] <Rhythm & Blues, Soul, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под брендом Fantastic Negrito скрывается калифорнийский певец и гитарист Xavier Dphrepaulezz, который, возможно, попадался вам на глаза в сериале "Рука Господа" с Ron Perlman. Убойная титульная тема шоу принадлежит перу Xavier, однако поворотным моментом в его биографии этот факт не обернулся, да и сам сериал не стал сенсацией. У Xavier каноническая блюзовая (   Читать дальше...   )2014 - Fantastic Negrito Ep
+2016 - The Last Days Of Oakland
+2018 - Please Don't Be DeadЖанр: Rhythm & Blues, Soul, Blues-RockПродолжительность: 05:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D89A56BF2B261A0CA479577800D39694223141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800847   (15452) от 06.06.2025
+
+Rolf Ericson & Lennart Aberg - Ellington & Strayhorn (1995) Sittel AB [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Intimacy of the Blues [5:33]
+02. Sentimental Lady [4:20]
+03. Prelude to a Kiss [6:05]
+04. Paris Blues [5:55](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE36367F090EAC139F41D780EDE4B9C28544E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800868   (15449) от 06.06.2025
+
+Jennifer Lyn & The Groove Revival - Retrograde (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Light the Fire (4:09)
+02.  Searching for Solid Ground (3:54)
+03.  Sucker for the Pain (3:06)
+04.  Refuge (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB698B85A8CA866DDB8834F82732B04A3A5D3B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800866   (15448) от 06.06.2025
+
+Hat Fitz & Cara - At The Couch Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  These Times (4:33)
+02.  Chikko's Song (3:18)
+03.  Marvin Say (4:39)
+04.  Go Back To Your Used To Be (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FFE9A6F1AE64DDB8A226E96C061549A9269C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800875   (15447) от 06.06.2025
 
 Noir & Gerber - Partout Partout (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -574,180 +747,6 @@ Electro Swing - Swing Beats 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB64B516E695C25B784AA23B60B29D5B818F43C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803690   (13580) от 24.06.2025
-
-Soundify Background Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Swing Machine (2:46)
-02.  Time Travel Affair (2:52)
-03.  Electro Swing (3:22)
-04.  Syncopation Nation (3:15)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38FEAB7251695B5E04D431C3F5601AD581055D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803698   (13566) от 24.06.2025
-
-The Lady & The Dappers - Electro Swing Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Only For You (3:41)
-02.  I Don’t Know Who I Am (3:04)
-03.  All I Want Is To Be With You (4:04)
-04.  Strong Feelings (3:00)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46DE7C417C5298220FEC4E8E26D95D4F7F1198D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803696   (13557) от 24.06.2025
-
-The Lady & The Dappers - Electro Swing Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Can’t Stand It When You Go (3:44)
-02.  I Don’t Want To Linger For You (4:10)
-03.  You're More Connected (3:38)
-04.  I Care For You (Reimagined) (3:40)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABD3C328D1752C5D7228E250CB998469D92C8D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804106   (13259) от 27.06.2025
-
-Michael Sagmeister & Pat Martino - Conversation (2000) Acoustic Music Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conversation [5:26]
-02. Catch [6:41]
-03. Rejoin [8:37]
-04. On the Stairs [8:29](   Читать дальше...   )Жанр: Jazz Fusion, Post-Bop, Guitar JazzПродолжительность: 01:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D840D2158D7F54C394A734B31826F88230BCBF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804584   (12947) от 30.06.2025
-
-George Shearing - Favorite Things (1997) Telarc [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Favorite Things [3:14]
-02. Angel Eyes [5:20]
-03. In a Calm [3:17]
-04. Not You Again [6:27](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB0E56D5243D8651991544CC8CCA2E4082FC8DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804815   (12747) от 02.07.2025
-
-Art Pepper - Four Classic Albums (1956, 1957) 2CD, 2008, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is This Thing Called Love [6:05]
-02. You'd Be So Nice to Come Home To [5:26]
-03. Red Pepper Blues [3:39]
-04. Imagination [5:54](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 02:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BCD5AE2E1CB070462D735856BC5CB72C9FE156
 ```
 
 https://mybot314.ru/tekegram_catalog/

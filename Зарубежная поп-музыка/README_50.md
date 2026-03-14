@@ -1,3 +1,61 @@
+###  Публикация: 942741   (451640) от 02.10.2015
+
+Janet Jackson - Unbreakable (2015) Deluxe Edition [MP3|320 кб/с]<R&B, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbreakable
+02. BURNITUP! (feat. Missy Elliott)
+03. Dammn Baby
+04. The Great Forever(   Читать дальше...   )Жанр: R&B, PopПродолжительность: 01:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A06B3A8F4C02400C9DC5AFA99557104717DF4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247569   (451073) от 16.09.2018
+
+VA - Power of Love: 80s Love Songs (2018) [MP3|320 Kbps] <Pop  Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laura Branigan - Power of Love
+02. Atlantic Starr - Unconditional Love
+03. Randy Crawford - One Hello
+04. Dollar - Give Me Back My Heart(   Читать дальше...   )Жанр: Pop,  Funk, DiscoПродолжительность: 01:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42831F4780D69705E515C4463D2AA8EAABCA0CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247846   (448661) от 17.09.2018
 
 Елена Войнаровская - Метеозависимость (2018) [MP3|320 Kbps] <Pop, Indie>
@@ -683,64 +741,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:622BDA112F5BBE3E44824C70BF5B10C56B71CA1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249354   (435870) от 23.09.2018
-
-Black Light Orchestra - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Downtempo, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morricone (8:17)
-02. Theme For Black Light (5:38)
-03. Fifty Eight (1:00)
-04. Tribute to Barry (5:37)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Downtempo, DiscoПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315F718C954CEEADAFE889CBA35E3D24EEF6CA70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249255   (435849) от 23.09.2018
-
-VA - Schlager Für Alle 3 (2018) 3CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435849.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Eloy de Jong - Egal was andere sagen
-02. Ella Endlich - Schwimmen und Fliegen
-03. Michael Wendler - Feuermelder(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D45C08CC811844826E2E317870B80C85CFEFE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

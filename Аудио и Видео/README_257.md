@@ -1,3 +1,32 @@
+###  Публикация: 1515584   (169510) от 07.12.2021
+
+VA - 50 Chart Hits of 2021.2: The Workout Motivation Album (2021) [AAC|~331 Kbps] <Eurodance, Euro-House, Techno Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rinaldo Montezz, Romy - If I Can't Have You (Radio Mix) (4:01)
+02. B.G. The Prince Of Rap, Chrizz Morisson, Timi Kullai - Sugar (House Radio Mix) (3:23)
+03. Rick De Hey, Chrizz Morisson, Timi Kullai - Blue (Da Ba Dee) (Radio Mix) (3:40)
+04. Giorgio, Randy Norton - Mad World (House Mix) (3:02)(   Читать дальше...   )Жанр: Eurodance, Euro-House, Techno PopПродолжительность: 03:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DB85CD2A88C607CF6273D24A9C8FC3F9EB732B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515506   (169502) от 07.12.2021
 
 VA - No Ballads: Hard Rock (2021) [AAC|~335 Kbps] <Rock, Hard Rock>
@@ -710,35 +739,6 @@ VA - The World Series of Chill Out, Vol. 4 (2021) [AAC|~309 Kbps] <Lounge, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC6F18CAF88BEE447DC8CF0FAAF2AA967556524C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515697   (168726) от 08.12.2021
-
-VA - The World Series of Chill Out, Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo, Trip Hop, New Age>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man In A Room, Sara Azrie - Brave This Moment (5:35)
-02. Twins In Mind - Floating Clouds (3:31)
-03. T2'n - Le Desert de Michat (3:58)
-04. Stuce The Sketch - Seventh Heaven (Acoustic) (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Trip Hop, New AgeПродолжительность: 01:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07ECEE6DADAAF567D2149996A2CD06055DC56BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

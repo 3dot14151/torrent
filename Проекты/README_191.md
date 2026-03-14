@@ -1,3 +1,29 @@
+###  Публикация: 812985   (568704) от 15.08.2014
+
+VideoHive - Broadcast Design News Package - 7132979 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это полный пакет дизайна новостного вещания.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242801791DDC2FD3B17B7B49DA3230B700671214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043978   (568624) от 18.08.2016
 
 Проекты - RocketStock - Interface [AEP]
@@ -661,32 +687,6 @@ VideoHive - Earth Zoom Pack [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:008D688E0A912DD1AE66C97030432573C7857BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044246   (566587) от 19.08.2016
-
-Проекты - VideoHive - Metal Fire Logo - 17324302 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный, динамичный проект с металлическим стилем,а также с эффектами огня и дыма для демонстрации вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6A6214652367392F169F0F224D8FC391AE7130
 ```
 
 https://mybot314.ru/tekegram_catalog/

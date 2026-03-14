@@ -1,3 +1,61 @@
+###  Публикация: 1809759   (64634) от 01.08.2025
+
+VA - Ori Uplift - Uplifting Only Episode 651 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Komarov – Fading Star (Simply Drew Remix)
+02. U-G – Shikisai
+03. DreamLife & Grande Piano with Agata Pasternak – Never Again
+04. Manuel Le Saux, Db Mokk – Inferno (Pre-Release Pick)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:259261D3E793A6FD321DAA82BE1A8B201E1C2854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821636   (63853) от 03.10.2025
+
+VA - Armin van Buuren - A State Of Trance 1245 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane – Wherever I Go
+02. DIM3NSION & Kadett – Turning (Progressive Pick)
+03. Kevin de Vries & Add-us – Nami
+04. Hausman – This Is Not A Drill(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9590CB2AE637AD736F0298B319DDFBE8E33A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713746   (59946) от 12.04.2024
 
 VA - Live @ Tomorrowland Winter, France (2024) [MP3|320 Kbps] <Trance, Techno, Melodic House>
@@ -681,64 +739,6 @@ VA - Armin van Buuren - A State Of Trance 1200 (Vinyl Special) (2024) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7B4D8199374CC7A2A4FCF4F95DDDC016B1258F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756373   (36086) от 26.11.2024
-
-VA - Tomorrowland Brasil (2024) [MP3|320 Kbps] <Techno, Melodic House, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia - Omen (Intro Edit)
-02. Axwell - Barricade w/Axwell Λ Ingrosso ft. Kristoffer Fogelmark - More Than You Know
-03. Michael Calfan - Resurrection (Axwell Re-Cut Club Version) w/Empire Of The Sun - Walking On A Dream (Acappella)
-04. Swedish House Mafia - Greyhound w/Sebastian Ingrosso - Flood(   Читать дальше...   )Жанр: Techno, Melodic House, TranceПродолжительность: 27:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E0A46A7563D59A0EE59ECFD1AC6E94A12B5EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368231   (36084) от 26.11.2024
-
-CERERA - CERERA pres Echo Of The Universe #022 Live @Zig Zag 25 Years 14 02 (2020) [MP3|320 Kbps|image + .cue] <House, Disco House, Soulful House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CERERA - (Intro Speech)
-02. Birdee - Dinamo
-03. Birdee - Song for Francesca
-04. T.Markakis - We Call It Music(   Читать дальше...   )Жанр: House, Deep House, Disco House, Future House, Garage HouseПродолжительность: 02:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922A4B1381A36B9FFE8B4BD24B9EE5022BD07A9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

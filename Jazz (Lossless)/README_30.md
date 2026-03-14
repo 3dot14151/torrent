@@ -1,3 +1,32 @@
+###  Публикация: 983010   (945634) от 05.02.2016
+
+Frances Wayne - The Warm Sound (1957) Remaster, 2012, Warner[FLAC|tracks+.cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Early Autumn [03:15]
+ 02.'Round Midnight [03:04]
+ 03.Prelude To A Kiss [04:01]
+ 04.My One And Only Love [03:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7879E0F4D04E697CB665E802B253FE578901523B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363051   (945323) от 26.02.2020
 
 Nat King Cole - Hittin' the Ramp: The Early Years 1936-1943 (2019) 7CD, Resonance Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Piano Jazz>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADD5EF706F1F4F1E69A23B0F781954203A90CB70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091841   (941685) от 10.01.2017
-
-Gregory Porter - Live In Berlin (2016) 2CD, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941685.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Holding On [07:19]
-02.On My Way To Harlem-What's Going On [08:38]
-03.Take Me To The Alley [10:05](   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 01:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A40B966C7029C956594202CC72E009F0095AA8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

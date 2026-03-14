@@ -1,3 +1,117 @@
+###  Публикация: 1735294   (106977) от 07.07.2024
+
+Carpathian Forest - Through Chasm, Caves And Titan Woods (1995) EP, Reissue, 2013, Peaceville [FLAC|24/192|tracks|Vinyl-Rip] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106977.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Carpathian Forest
+A2 - The Pale Mist Hovers Towards The Nightly Shores
+A3 - The Eclipse / The Raven
+B1 - When Thousand Moon Have Circled(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAEC1A599786F0C45FBF7F2C9F154790CDC5E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735366   (106952) от 07.07.2024
+
+Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropolis (2016) EP, Released, 2017, W.T.C. Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106952.jpg" />
+</div>
+
+
+###  Подробнее
+
+A - The Burning Voice
+B - HamartiaЖанр: Black MetalПродолжительность: 00:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C9D194A745C8DEC837854B8951547E5E852457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735364   (106951) от 07.07.2024
+
+Shrine of Insanabilis - Disciples of the Void (2015) Released, 2016, Fallen Empire [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106951.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - End All
+A2 - Ruina
+A3 - Acausal Paths
+A4 - (..............)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F9D088B770907E2FB7B1472FD02776E87CE433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735247   (106911) от 08.07.2024
+
+Гелена Великанова - Великие Исполнители России XX Века (2005) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Жаль, что время ушло
+(М. Табачников - А. Завальнюк)
+02. Ты запой мне эту песню(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FE62D32C366B6937D1CFE2C5C0E2877D902BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735823   (106821) от 10.07.2024
 
 Sting - Fields Of Gold: The Best Of Sting 1984 - 1994 (1994) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Pop Rock>
@@ -620,118 +734,6 @@ Textures - голландская прогрессив-метал-группа, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D1FC67FD175EE2A83B2ED2907AE2E8287620BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742196   (105577) от 10.08.2024
-
-Студия «Заман» - Приятного Вам Отдыха По-нашему (1998) На татарском языке [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Ветер с моря дул
-02. Позови меня с собой
-03. Чашка кофею(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A98C20DB095FA2A7277AFDC4D03D07D1C29F874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742436   (105572) от 11.08.2024
-
-VA - The Keepers Of Jericho - A Tribute To Helloween (2000-2002) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Various Artists - A Tribute To Helloween - The Keepers Of Jericho, Parts 1 & 2Жанр: Power/Speed MetalПродолжительность: 02:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27A16C6CC0FF66CC8B07FBB419466C82DECA389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742380   (105558) от 11.08.2024
-
-Celesty - Studio Albums (4 releases) (2002-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Celesty — пауэр-метал-группа, основанная в 1998 г. в городе Сейняйоки, Финляндия.2002 - Reign Of Elements
-2004 - Legacy of Hate
-2006 - Mortal Mind Creation
-2009 - VendettaЖанр: Epic Power MetalПродолжительность: 03:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B42D8032B468B4AB14C950CE8CD9E5766CFAD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742307   (105550) от 11.08.2024
-
-Sinergy - Studio Albums (3 releases) (2000-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sinergy — финская супергруппа, исполнявшая музыку в стиле пауэр-метал. Группа основана американской вокалисткой Кимберли Госс и гитаристом группы In Flames Еспером Стрёмбладом в 1998 году.2000 - To Hell and Back
-2002 - Suicide By My Side
-2006 - Beware The HeavensЖанр: Power MetalПродолжительность: 02:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9746D5ED176D51B297AA801ABC6F9A14BA47A0AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

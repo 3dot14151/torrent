@@ -1,3 +1,90 @@
+###  Публикация: 1220891   (696728) от 23.04.2018
+
+A Perfect Circle - Eat The Elephant (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eat The Elephant
+02. Disillusioned
+03. The Contrarian
+04. The Doomed(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D58CB6A56BBC3FDC48FCA16033BE2CCDB9CD18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288424   (695657) от 11.03.2019
+
+Foals - Everything Not Saved Will Be Lost Part 1 (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight (02:39)
+02. Exits (05:57)
+03. White Onions (03:05)
+04. In Degrees (04:57)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FAC58AC48792506D1861F74743BB437B4D197F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133362   (694960) от 12.05.2017
+
+Paramore - After Laughter (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694960.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hard Times (03:02)
+2. Rose-Colored Boy (03:32)
+3. Told You So (03:08)
+4. Forgiveness (03:39)(   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25A015366BE0E4584C4F0A3A0567B09A370F5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288485   (694316) от 12.03.2019
 
 Rokutoshichi - A Deep Well (2018) [FLAC|Lossless|tracks + .cue] <Rock, Post-Hardcore>
@@ -652,93 +739,6 @@ The Young Gods - Data Mirage Tangram (2019) [FLAC|Lossless|tracks + .cue] <Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:758D5299BDD7440BE22C6A8A2109614D3156F0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290144   (682074) от 18.03.2019
-
-Elysian Fields - The Afterlife (2009) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Dark Jazz, Noir Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How We Die (5:22)
-02. Where Can We Go But Nowhere (4:46)
-03. Drown Those Days (4:04)
-04. Turns Me On (3:57)(   Читать дальше...   )Производство: Vicious Circle – Reverb 103Жанр: Alternative Rock, Dark Jazz, Noir Rock, Dream PopПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99EC4C7728498DAB546D688C169E938B7C3A5B41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289922   (682071) от 18.03.2019
-
-Karen O & Danger Mouse - Lux Prima (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Art Rock, Trip Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682071.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lux Prima (09:02)
-2. Ministry (05:06)
-3. Turn the Light (03:19)
-4. Woman (02:54)(   Читать дальше...   )Жанр: Electronic, Art Rock, Trip HopПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF5A8814D8EA38B2921822BD3D1B067690AEF8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289825   (681981) от 18.03.2019
-
-Messer Chups - Mondo Harp (2019) [FLAC|Lossless|tracks + .cue] <Punk, Surf, Trash>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humanica [2:19]
-02. Green Flippers [2:40]
-03. Love is a Magical Things [3:09]
-04. The Cruse of Catzilla [3:11](   Читать дальше...   )Жанр: Punk, Surf, TrashПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995D812411752FF2C9FED7820298BD35D1EC9A92
 ```
 
 https://mybot314.ru/tekegram_catalog/

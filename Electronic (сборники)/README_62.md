@@ -1,3 +1,32 @@
+###  Публикация: 1208729   (779655) от 24.02.2018
+
+VA - Vocal Trance Collection Vol.9 (2018) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bobina feat. Denise Rivera  -  Siente (Vigel Remix)  3:33
+02.  Maarten De Jong feat. Katty Heath  -  Free To Feel Again (Extended Mix)  5:47
+03.  Alexander Turok feat. Sarah Russe  -  Take Me Back (Tycoos Remix)  5:45
+04.  Zoe Song feat. Sabreena Singh  -  Right Beside Me (The Avains Remix)  7:27(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 03:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA22EF76536E1CEDB6D9F2A14371DE206CB5121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209210   (779530) от 25.02.2018
 
 VA - Empire Records - Deep Blue (2018) [MP3|320 Kbps] <Deep House>
@@ -716,35 +745,6 @@ VA - Empire Records - Blue Line Trance 2 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E98C4EAAF5D2B20B71A31E66FD8045E0F38BF935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211239   (777874) от 06.03.2018
-
-VA - Empire Records - Magic House 3 (2018) [MP3|320 Kbps] <House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Physical Dreams  -  Back To You (Original Mix)  8:10
-02.  Chicane vs. Barberella  -  How Does Your House Work (Danny Dove Extended Remix)  5:12
-03.  Red Dreams  -  Fall in Love (Waveform & Filter Mix)  5:34
-04.  Giara  -  Gloomy Night (Original Mix)  3:52(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141F87AE33820099B5D33956792E77A6823AC081
 ```
 
 https://mybot314.ru/tekegram_catalog/

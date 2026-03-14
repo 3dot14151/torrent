@@ -1,3 +1,96 @@
+###  Публикация: 1358516   (968754) от 08.02.2020
+
+VA - The Official UK Top 40 Singles Chart 07.02.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Roddy Ricch - The Box
+03. Lewis Capaldi - Before You Go
+04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4300B3B6F912C93063BADCA227255AAC5A7EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358431   (968739) от 08.02.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 07.02.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix) 2:56
+02. Anthony Keyrouz - Love Yourself 2:56
+03. Zivert - Credo 3:04
+04. Billie Eilish - Everything I Wanted 4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580F420E568552164A2BB7D5A18CD2492F32DE5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618997   (968609) от 15.02.2013
+
+VA - Elegant Cafe Vol. 1-2 (2013) [MP3|320 кб/с]<Lounge, Jazz Blends, Easy Listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968609.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Sara K. — If I Could Sing Your Blues (3:49)
+02. Highnote — Good Morning Heartache (6:06)
+03. David Broza — Old Satan (3:52)
+04. True Audiophile. The Best Of Groove Note — Track05 (5:46)
+05. John Pizzarelli — My Blue Heaven (4:00)
+06. Sara K. — What You Don't Know (4:32)
+07. Diana Panton — Felicidade (4:41)
+08. Rosa Passos And Ron Carter — Garota De Ipanema (3:19)
+09. Shirma Rouse & Kim Hoorweg — I Say A Little Prayer (3:25)(   Читать дальше...   )Жанр: Lounge, Jazz Blends, Easy ListeningПродолжительность: 04:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F0D86335DBB8576C94F9F5F444AFA0AFA7F1EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616597   (968541) от 15.02.2013
 
 VA - D.J H i t s  777 ( 1990 - 2000 г ) (2010) [MP3|256 кб/с]<Eurodance, Pop, Rap.>
@@ -706,93 +799,6 @@ VA - На100ящие модные хиты. Русская версия (2013) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D14AD52FEF24A483D3CDA8345B8979F86FEC732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358996   (966286) от 10.02.2020
-
-VA - Flow Of Feeling: Electro House Party (2020) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966286.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luciano Scheffer - Baj (Monojoke Remix)
-002. Esee Free - Stronger (Original Mix)
-003. Club Shakerz - Lose Control
-004. Jaga - Back To Love(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89170A2750D2FF8EEC77CB94E26F5C3E8C51B0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359080   (966276) от 10.02.2020
-
-VA - Beatport Tech House: Pack Electro Sound #09 (2020) [MP3|320 Kbps] <Deep, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worldtraveller - Ocean Motion
-02. Christopher Lake - Rescue You (Original Mix)
-03. Schneider & Haze - Si Balla
-04. Sergio Wos - Filling Me Up(   Читать дальше...   )Жанр: Deep, Tech House, ElectroПродолжительность: 04:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC4732D38D05B6C015E318FD632BDF627EF437B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358956   (966206) от 10.02.2020
-
-VA - Record Super Chart 624 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966206.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Carla Morrison - Disfruto (3:57)
-2.SAINt JHN - Roses (Imanbek Remix) (3:58)
-3.Tones and I - Dance Monkey (DJ Noiz Remix) (4:00)
-4.FILV & Edmofo feat. Emma Peters - Clandestina (2:28)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C9847597A895A52742F6BBE01C0DC9E972C7D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

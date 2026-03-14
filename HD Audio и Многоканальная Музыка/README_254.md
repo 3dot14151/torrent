@@ -1,3 +1,148 @@
+###  Публикация: 1813323   (7054) от 18.08.2025
+
+Leander Thistle - Ending Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ending Blues (4:18)
+02.  Blues Formula (4:12)
+03.  Blues Vibe (2:46)
+04.  Unknown Cry (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F23ED70EE334C244F6A576029E377F8BF4B73AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813253   (7053) от 18.08.2025
+
+The Book Of Revelations - Studio Albums (4 releases) (2021-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7053.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Book Of Revelations - группа основана мультиинструменталистом и композитором Джерардом Фрименом летом 2017 года. Творчество группы сочетает в себе рок, оркестровую и фолк-музыку с остроумной лирикой и поэзией. Необычные размеры такта и сложные ритмы дополняют оркестровые и акустические слои, которые лежат в основе текстов, грациозно сочетающих классические мифологические (   Читать дальше...   )2021 - The Prologue (EP)
+2023 - Chapter One: The Plumes of Enceladus
+2024 - The Epigraph (EP)
+2025 - Chapter Two: Olympus Mons(   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F8823F87482023CA37FADE8B35E7841CAC0173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813322   (7047) от 18.08.2025
+
+Kellan Broadridge - Craves It All (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Craves It All (2:04)
+02.  Cigar (1:39)
+03.  Next Best Thing (2:26)
+04.  Spin Around (2:32)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCEC4FEA822B97451CFBB3857E8FD149CCFB827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813337   (7045) от 18.08.2025
+
+Zayden Larkell - Endless Problems (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Repair Guy (4:20)
+02.  Beloved Father (3:02)
+03.  No Way Out (5:06)
+04.  Vanished Away (2:26)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAEA0D485E19F5D416A845B16578983BA52EFE59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813307   (7044) от 18.08.2025
+
+Filter - The Algorithm (Ultra Edition) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Alt. Metal, Industrial Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All The Good (3:13)
+02.  A Sort of Homecoming (5:41)
+03.  The Drowning (Ultra Edition) (3:51)
+04.  Up Against the Wall (Ultra Edition) (4:55)(   Читать дальше...   )Жанр: Hard Rock, Alt. Metal, Industrial RockПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C041743DBED4C680ECA7D2328ED916FC2D27F4E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813333   (7043) от 18.08.2025
 
 VA - Soul and Funky Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Funk>
@@ -597,151 +742,6 @@ Dave Limina - Old Piano Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0614262628A64AD799CEA21361855A051C354FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813830   (6597) от 21.08.2025
-
-Lava Saint - Grim Avenues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blessed Trouble (4:32)
-02.  Proven Guilty (6:05)
-03.  Halfway to the End (4:33)
-04.  A Bright Afternoon (3:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC49242E2BEA49997DD3BB136E366D9077223F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813817   (6590) от 21.08.2025
-
-Jonathan Kasper - Turn Off the Machine (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Got Your Number (3:43)
-02.  Just You (3:18)
-03.  I Fall Apart (3:33)
-04.  Turn Off the Machine (4:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB4FCD6FAE7ECC2560C1A2C096EB97B5872B9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813827   (6589) от 21.08.2025
-
-Knox Morgan - Loudspeaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Trust Yourself (3:34)
-02.  Flutter (2:25)
-03.  Odd One (3:32)
-04.  Stay Away (3:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA72006925966E96A4B9384CE65801A9A59B892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813821   (6588) от 21.08.2025
-
-Junior Vic Band - Let the Good Times Roll (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Strange Love (2:21)
-02.  Natural Ball (2:50)
-03.  Funny (But I Still Love You) (4:33)
-04.  When You Got a Good Friend (3:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8495458D833CFFE9831C46D4F0800B47484E2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813813   (6587) от 21.08.2025
-
-Aisha Khan - Seven Shades of Blue Aisha Khan & the Rajahs (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cocaine Habit Blues (2:52)
-02.  Lucky Number 13 (5:09)
-03.  Up My Street (2:51)
-04.  El Bandarra (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A96CEF7123F819B49960227C04990E3D4A356B
 ```
 
 https://mybot314.ru/tekegram_catalog/

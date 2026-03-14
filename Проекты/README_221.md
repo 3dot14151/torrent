@@ -1,3 +1,30 @@
+###  Публикация: 820827   (492044) от 12.09.2014
+
+Pond5 - Hi-Tech Robot Dance - 876631 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересный , динамичный проект ,  :redface:  мне понравился, потому и выкладываю
+проект 2010 года, может у всех и есть уже, но я в видео ниче не соображаю   :eek7: , мне простительноФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B7C0C2C1D3599FBD1EC3852AA75A939D426293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 821023   (492032) от 12.09.2014
 
 RevoStock - Wedding Memories Popping Album - 290239 [AEP]
@@ -644,32 +671,6 @@ VideoHive - Picture Slideshow [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BD62FAD3489A7CE7CF390D6478561DA35EB7C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055182   (490087) от 21.09.2016
-
-Проекты - VideoHive - Exclusive Titles [4k] - 17811017 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания 30 эксклюзивных и элегантных титров (нижней трети).Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D11CBA42DE4D1E75CD8ED150745C1B822C1A9D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

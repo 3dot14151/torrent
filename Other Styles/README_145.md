@@ -1,3 +1,151 @@
+###  Публикация: 498602   (255791) от 19.05.2012
+
+Юрий Щербаков - Была весна - (2008) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk Казачья песняПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11EBBC4038093744405F8DA499C34916557B1AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498635   (255778) от 19.05.2012
+
+Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chillout>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Set Free (04:34)
+02. Yoo Doo Right (07:13)
+03. Where Did You Sleeep Last Night (03:44)
+04. Like Roling Stone (06:31)
+05. Love Lies (07:11)
+06. Oh My Love (03:27)
+07. Voodoo Chile (03:48)
+08. Heart And Soul (04:03)
+09. Persuasion (06:34)
+10. Ruler Of My Heart (03:12)2001-2007Жанр: World Music, Ethnic, ChilloutПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624627   (255378) от 09.04.2023
+
+VA - American Tribal Songs (2011) [MP3|320 Kbps] <Native American, New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Vasquez - Vientos del Sur [03:04]
+02. Atahualpa - The Lonely Shepherd [04:50]
+03. Atahualpa - Pan Flute [03:12]
+04. Mato Grosso - Buffalo Trail [06:08](   Читать дальше...   )Жанр: Native American, New Age, InstrumentalПродолжительность: 01:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D274D638DC396C0554067F0809FADC43443B0CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626330   (255076) от 17.04.2023
+
+David Arkenstone - Ambient Space Music (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breath Of the Universe (12:46)
+02. Parallel World (5:52)
+03. Island Of Stars (8:21)
+04. Red Sun (4:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3467A1789EE25D745276CDC89EA076EE9EFDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175676   (254762) от 26.04.2023
+
+VA - Инструментальная музыка - Лучшие мировые хиты. (7 томов) (1997) 14 CD [APE|Lossless|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R. Clayderman - The Phantom of the Opera (04:26)
+02. F. Goya - Romance De Amour (03:17)
+03. Ocarina - Moonlight Reaggae (04:34)
+04. E. Morricone - Chi Mai (05:05)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 17:18:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF85689DDE560C8E4AE06B25A0BD9E889C62D540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630872   (254613) от 03.05.2023
 
 R. Carlos Nakai & AmoChip Dabney - Edge Of The Century (2001) [FLAC|Lossless|tracks + .cue] <Native American>
@@ -615,175 +763,6 @@ Fausto Papetti - Somethin' Saxy (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55AD2B922D5C734D121982DF8ECC892047BA5B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834391   (249476) от 03.11.2025
-
-Fausto Papetti - I Remember (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Of Your Smile
-02. Born Free
-03. Harlem Nocturne
-04. Laura(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C627E411B4E9A16EDB09D0C72D8CF052DED921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494097   (249236) от 09.05.2012
-
-Francisco Garcia - Romantic Guitar Hits (3CD) (1993) [MP3|320 кб/с]<Instrumental / Blues>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249236.jpg" />
-</div>
-
-
-###  Подробнее
-
-1993Жанр: Instrumental / BluesПродолжительность: 00:46:09
-01. Again
- 02. Blue Moon
- 03. Mona Lisa
- 04. Symphony
- 05. The Things We Did Last Summer
- 06. It Might As Well Be Spring
- 07. Love In The Sand
- 08. Guility
- 09. Now Is The Hour(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CF1B7A34F678AFF61D597E38F40CF3FFE7B573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494113   (249210) от 09.05.2012
-
-Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, Neoclassical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_249210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hall Lagan Klar! (05:54)
-02. Den Bergtagna (06:15)
-03. Tichborne's Elegy (05:05)
-04. The Dying Christian to his Soul (04:26)
-05. Der Mensch ist bald vergessen (04:25)
-06. I am the Pillar (05:19)
-07. Min Sangmo (04:38)
-08. Epitaph on a Army of Mercenaries (05:11)
-09. God appears, and God is Light (04:56)
-10. Epigram CLXIII (05:16)(   Читать дальше...   )2005-2010Жанр: Neofolk, Martial Industrial, NeoclassicalПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492536   (248943) от 08.05.2012
-
-Various Artists - Музыка миров Fallout и BioShock (1920-1960) [MP3|128-320 кб/с]<Jazz / Vocal jazz / Blues>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Al Bowlly - Twentieth Century Blues [03:30]
-Andrews Sisters - Beat Me Daddy, Eight to the Bar [02:51]
-Annette Hanshaw - Daddy, Won't You Please Come Home [02:58]
-Artie Shaw & His New Music - Nightmare [02:49]
-Benny Goodman - The Devil And The Deep Blue Sea [02:49]
-Benny Goodman & His Orchestra & Martha Tilton - Bei mir bist du schön [02:31]
-Billie Holiday - God Bless The Child [03:01]
-Billie Holiday - Night and Day [02:58]
-Billie Holiday & Her Orchestra - Night and Day [02:58]
-Billy Grammer - Gotta Travel On [02:30](   Читать дальше...   )1920-1960Жанр: Jazz / Vocal jazz / BluesПродолжительность: 12:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC45185581300CC2E718DAF2D9FB6083087E5D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490996   (248289) от 06.05.2012
-
-Разделитель / The Divide - Jean Pierre Taieb (2011) [MP3|320 кб/с] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Divide - Jean Pierre Taieb (02:57)
-02 - Theme 2 (The Divide) - Jean Pierre Taieb (02:10)
-03 - Eva's Fear - Jean Pierre Taieb (00:30)
-04 - The Hidden Gun - Jean Pierre Taieb (01:25)
-05 - Sam & Bobby's Dance - Jean Pierre Taieb (02:28)
-06 - What's Left - Jean Pierre Taieb (00:47)
-07 - Some Love - Jean Pierre Taieb (02:11)
-08 - Eva Is In Danger - Jean Pierre Taieb (00:59)
-09 - Haircut - Jean Pierre Taieb (02:10)
-10 - Butcher's Party - Jean Pierre Taieb (02:37)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96316092AE5F4D9F2840E8F6CEBB7E4EF9FBDDC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

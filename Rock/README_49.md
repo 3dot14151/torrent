@@ -1,3 +1,61 @@
+###  Публикация: 932226   (509469) от 29.08.2015
+
+Edison's Children - Somewhere Between Here And There... (2015) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Years (John Mitchell Single Edit)
+02. Stranger In A Foreign Land
+03. Ever Be Friends
+04. Solstice(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA2FA4E53603DDDE192523C5E6D1977DF2D0994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932327   (509372) от 29.08.2015
+
+Julien-K - We’re Here With You (2012) Deluxe Edition [MP3|320 кб/с]<Industrial Rock, Synth Rock, Electro>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – We’re Here With You
+02 – Surrounded By Cowards
+03 – Cruel Daze Of Summer
+04 – Breakfast In Berlin(   Читать дальше...   )Жанр: Indie Rock, Electronic, RockПродолжительность: 01:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACC1B42464772C2FEC628FE299C2154D12CBD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562248   (509104) от 09.07.2022
 
 Hienas - Socavon (2022) [MP3|320 Kbps] <Sludge, Doom, Stoner, Grunge>
@@ -729,64 +787,6 @@ Josiah - We Lay On Cold Stone (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ED94A9C42ABD02918758CC5EDA2814DA8BB45F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563850   (502713) от 16.07.2022
-
-Supasonic Fuzz - Cobracadabra (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Cobracadabra
-02 Give Me Your Blood
-03 Pork Chop Express
-04 Echoestorm(   Читать дальше...   )Жанр: Heavy Rock, Psych, StonerПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1D170AD477C0AF539F168638BCAF9A8AFD1241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563915   (502616) от 16.07.2022
-
-Flying Colors & The Neal Morse Band - Morsefest 2019 (2021) 4xCD, Live [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502616.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Blue Ocean (07:38)
- 02. A Place in Your World (07:10)
- 03. More (06:52)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 04:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24135783B56D4BB055AD0555A1B18C73559897FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

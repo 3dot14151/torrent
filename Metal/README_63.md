@@ -1,3 +1,32 @@
+###  Публикация: 1565601   (492674) от 24.07.2022
+
+Sedimentum - Suppuration Morphogénésiaque (2022) [MP3|284-296 kbps VBR] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Krypto Chronique II [00:04:44]
+02. Excrétions Basaltiques [00:04:39]
+03. Suppuration Morphogénésiaque [00:06:26]
+04. Funestes Manifestations [00:04:55](   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73D80917E4A6DD96B32FBCED5ECE9964A84B899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937114   (492365) от 13.09.2015
 
 Gamma Ray - Heading For Tomorrow (1990) 25 Anniversary Edition 2CD /2015, earMUSIC/ [MP3|320 кб/с]<Heavy Metal, Power Metal>
@@ -733,35 +762,6 @@ Devon Murray - Dedicated, Resistant, Minute. (2020) [MP3|320 Kbps] <Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05C958740C62D332ED4FB914EC3FC1E7503F3D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405281   (483679) от 30.08.2020
-
-Manticora - To Live to Kill to Live (2020) [MP3|320 Kbps] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katana - the Moths and the Dragonflies/Katana - Mud (14:39)
-02. To Nanjing (1:57)
-03. The Farmer's Tale, Pt. 3 - Eaten by the Beasts (4:23)
-04. Slaughter in the Desert Room (6:11)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5031B9ABD6C481E7C062AFBE4174D5632F8FA039
 ```
 
 https://mybot314.ru/tekegram_catalog/

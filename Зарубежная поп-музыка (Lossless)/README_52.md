@@ -1,3 +1,154 @@
+###  Публикация: 541525   (500966) от 31.08.2012
+
+George Michael - White Light (CD Single) (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Light
+02. Song To The Siren
+03. White Light (Voodoo Sonics Remix)
+04. White Light (Kinky Roland Remix)Жанр: PopПродолжительность: 00:22:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541825   (500084) от 01.09.2012
+
+VA - Compact Disc Club - Dreams (1997) 4CD BoxSet[FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moody Blues - Nights In White Satin [04:27]
+02. Eric Carmen - All By My Self [04:54]
+03. Chris De Burgh - The Lady In Red [04:06]
+04. Joe Cocker & Jennifer Warnes - Up Where We Belong [03:48]
+05. Robin Beck - First Time [03:19]
+06. Eurythmics - Here Comes The Rain Again [05:00]
+07. Air Suply - Lost In Love [03:53]
+08. Rick Astley - Cry For Help [04:53]
+09. Barclay James Harvest - Hymn [05:07]
+10. Cyndi Lauper - Time After Time [04:03](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 04:50:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317969   (498501) от 03.08.2019
+
+Adriano Celentano - World Name (2003) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confessa
+02. Amore No
+03. Dimenticare E Recominciare
+04. I Passi Che Facciamo(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB71890D3499C2C7EC48DF60D4B684B686E6984A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935727   (498192) от 09.09.2015
+
+Adele - Greatest Hits (2012) [FLAC|image + .cue]<Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyfall  [4:45]
+ 02. Rolling In The Deep  [3:49]
+ 03. Ill Be Waiting  [4:02]
+ 04. Chasing Pavements  [3:31](   Читать дальше...   )Жанр: Soul, PopПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE45EF1EC71AF22C9D91BC68D6B46B6104D420A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318044   (497750) от 04.08.2019
+
+Евгения Власова - 2 Альбома (2003-2008) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На краю небес
+02. На двоих сердце одно
+03. Лавина любви
+04. Нет, я не боюсь!(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6833167D7F56F80B9C4BC64B915428B9201FC004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542993   (497302) от 04.09.2012
 
 Marie Claire D'Ubaldo - 2 Альбома (1990, 1994) [FLAC|Lossless]<Pop>
@@ -601,157 +752,6 @@ Stella Donnelly ‎ - Beware Of The Dogs (2019) [FLAC|Lossless|tracks + .cue] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8745631B30BF2DE7C97FD5B3E756F98F426E2030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545145   (486418) от 09.09.2012
-
-VA - Fantastic 80's The Complete Collection (2008) 5CD BoxSet [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survivor - Eye Of The Tiger [04:01]
-02. Meat Loaf - Dead Ringer For Love [04:22]
-03. Billy Idol - White Wedding [03:33]
-04. Pat Benatar - Love Is A Battlefield [04:08]
-05. Laura Branigan - Self Control [04:07]
-06. Kim Carnes - Bette Davies Eyes [03:44]
-07. The Pretenders - Back On The Chain Gang [03:52]
-08. Rick Springfield - Jessie's Girl [03:14]
-09. Daryl Hall & John Oates - Out Of Touch [04:09]
-10. Starship - Nothing's Gonna Stop Us Now [04:25](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroФормат: BoxSet 5CDПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937527   (486049) от 16.09.2015
-
-Aventura - Love & Hate (2004) [APE|image+.cue]<Pop/Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Intro
-02	La Película
-03	Hermanita
-04	Mi Nina Cambió(   Читать дальше...   )Жанр: Pop/LatinПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F38EB8374A8D5C618AC9FEE0EFC8344772B0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405163   (485819) от 29.08.2020
-
-Overcoats - The Fight (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be There (03:08)
-02. Fire & Fury (03:45)
-03. The Fool (03:09)
-04. YJSTS (03:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3DCECF894135E9D0D8B15893218B86A376F256B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405232   (485729) от 29.08.2020
-
-Charlotte Martin - On Your Shore (2004) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Your Shore (03:58)
-02. Limits Of Our Love (03:30)
-03. Your Armor (04:20)
-04. Every Time It Rains (03:43)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5950A9DDBBA60849C64D764E2EAC264EBC9EC85B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405115   (485621) от 29.08.2020
-
-VA - Espresso Mega-Mix: Italo Hits Nonstop (1998) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485621.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	 Vasco Rossi	-Cosa Succede In Cittá	4:02
-2.	 Vanadium	-Nel Cuore Del Caos	3:42
-3.	 I Soliti Ignoti	-Il Colore Viola	4:50
-4.	 Clió	-Non Siamo Angeli	3:56(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B088361800D32BFCF819357228C79AEF45F2780
 ```
 
 https://mybot314.ru/tekegram_catalog/

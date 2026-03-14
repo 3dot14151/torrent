@@ -1,3 +1,90 @@
+###  Публикация: 1611555   (243834) от 12.02.2023
+
+Chico Hamilton - The Complete Remastered Recordings On Black Saint & Soul Note (1989 - 1993) 5CD, 2014, CAMJazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Beginning [2:16]
+02. Conquistadore Rides Again [4:24]
+03. Tap Drums [4:23]
+04. Dance of the Tympanies [6:22](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 04:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF5D5485F6708BCFC85714E037B7AAFE717C5AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632906   (243797) от 12.05.2023
+
+Stan Getz - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_243797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardust [2:42]
+02. Goodnight My Love [2:41]
+03. There's a Small Hotel [2:55]
+04. Too Marvelous for Words [2:56](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16CFD9E41B33DB392DD307B32A7FBA50BA4C7D6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076494   (243702) от 26.11.2016
+
+Pasadena Roof Orchestra - Roots Of Swing (2008) [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change Partners (3:51)
+02. Nobody's Sweetheart (2:46)
+03. Time On My Hands (3:32)
+04. Casa Loma Stomp (3:00)(   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC68262FC629D70A30EAC47A91E83F562A05D239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076521   (243680) от 26.11.2016
 
 Patti Austin - Havana Candy (1977) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, R&B>
@@ -658,93 +745,6 @@ Zoot Sims & Bucky Pizzarelli - Send In The Clowns (1990) 1997, MCR [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF0D6D9C173585C095DF70304A0887813DB24933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077685   (243404) от 01.12.2016
-
-National Youth Jazz Orchestra - Hallmark (1993) [FLAC|Lossless|image + .cue] <Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallmark (5:26)
-02. I Have Been Here Before (5:10)
-03. Blood Orange (7:15)
-04. Adeus Tristeza (4:53)(   Читать дальше...   )Жанр: Big BandПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5F66C64D4EB2EC5329F251D42F3240F76DB0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077994   (243395) от 01.12.2016
-
-Mitch Watkins - Curves (1990) Enja Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ocho Rios [03:43]
- 02.Point to Point [05:48]
- 03.For a Friend [02:17]
- 04.Sublime in Time [05:18](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F1CFF654050FC29B0AD76EF2B4A58B28C4DB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078203   (243390) от 01.12.2016
-
-Mongo Santamaria - Mongo at the Village Gate (1963) 1990, Riverside[FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction by 'Symphony Sid' [00:43]
- 02.El Toro [06:35]
- 03.Fatback [06:00]
- 04.Mongo's Groove [03:20](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBAFF71FB31B6F1DD60461EE30D9736BDA38208
 ```
 
 https://mybot314.ru/tekegram_catalog/

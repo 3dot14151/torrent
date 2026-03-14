@@ -1,3 +1,90 @@
+###  Публикация: 1337119   (276368) от 09.11.2019
+
+Snow Patrol - Reworked (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Back the City (Reworked) (05:00)
+02. Open Your Eyes (Reworked) (04:16)
+03. Time Won't Go Slowly (03:43)
+04. Chocolate (Reworked) (03:47)(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A49F38DF272385B683435015BBEEB9580818485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337276   (274910) от 10.11.2019
+
+Alex Lahey - The Best of Luck Club (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Get Invited to Parties Anymore (04:08)
+02. Am I Doing It Right? (04:07)
+03. Interior Demeanour (03:48)
+04. Don’t Be so Hard on Yourself (04:18)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1358648F62D9E870D5EEBF2EECAADD05D894B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082999   (274491) от 15.12.2016
+
+LP - Lost On You (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative/Indie Rock, Pop Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muddy Waters (3:47)
+02. No Witness (3:28)
+03. Lost On You (4:28)
+04. Up Against Me (3:02)(   Читать дальше...   )Жанр: Rock, Alternative/Indie Rock, Pop Rock, Folk Rock, Singer/SongwriterПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA8D534C8D1AAF2BA5EA22B4A40319ADF025A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265588   (274141) от 28.11.2018
 
 Lo Moon - Lo Moon (2018) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Chillwave>
@@ -659,99 +746,6 @@ Papa Roach — американская рок-группа из города В
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFCB0EA693B91F02D89CBB24867D635730A2D732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837685   (257712) от 18.11.2025
-
-Various - Killed By Deaf - A Punk Tribute To Motörhead (2025) Compilation [FLAC|Lossless|image + .cue] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pennywise– Ace Of Spades
-02. Rancid – Sex & Death
-03. The Bronx – Over The Top
-04. Lagwagon– Rock'n'Roll(   Читать дальше...   )Жанр: PunkПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1109CB036ED854440DC4D47589C261938C1BB62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498230   (256173) от 20.05.2012
-
-The Rasmus - The Rasmus (2012) [FLAC|Lossless]<Rock, Alternative Rock, Symphonic Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger  (03:58)
-02. I'm a Mess  (04:12)
-03. It's Your Night  (03:37)
-04. Save Me Once Again  (04:35)
-05. Someone's Gonna Light You Up  (03:43)
-06. End of the Story  (04:10)
-07. You Don't See Me  (03:12)
-08. Somewhere  (05:28)
-09. Friends Don't Do Like That  (04:26)
-10. Sky  (03:58)Жанр: Rock, Alternative Rock, Symphonic Rock, Soft RockПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623949   (255554) от 04.04.2023
-
-Убей меня, Эйс! - Шесть способов перепрыгнуть воронку (2023) [FLAC|Lossless|WEB-DL|tracks] <Post Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Самый ненавистный элемент [00:02:36]
-02. Утиные истории [00:02:24]
-03. Датура [00:02:58]
-04. Филипп Моррис [00:02:05](   Читать дальше...   )Жанр: Post PunkПродолжительность: 00:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997BD193549EE1D9404791198B4D98905359B2E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

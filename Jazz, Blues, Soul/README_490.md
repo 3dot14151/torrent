@@ -1,3 +1,177 @@
+###  Публикация: 1702335   (115818) от 24.02.2024
+
+Sullivan Fortner - Aria (2015) Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aria [6:32]
+02. Ballade [6:08]
+03. Parade [5:16]
+04. I Mean You [4:57](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F3463E1CCDF5877DD017A81CE1B42A686AFFF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702328   (115817) от 24.02.2024
+
+Echoes of Swing With Rebecca Kilgore - Winter Days At Schloss Elmau (2018) ACT Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Moon [4:47]
+02. Stopping by Woods on a Snowy Evening [4:31]
+03. I've Got My Love to Keep Me Warm [3:36]
+04. The Bell That Couldn't Jingle [3:28](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D2897AD49C12ACC26E07BB9ED896A14B0B4343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702324   (115816) от 24.02.2024
+
+Anita O'Day - At Vine St. Live (1991) DRG Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'd Be So Nice To Come Home To [5:42]
+02. Old Devil Moon [4:23]
+03. Is You Is Or Is You Ain't [4:22]
+04. A Song For You [3:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F327557C6B2BA010FE3B6163442E94568AB21715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702327   (115814) от 24.02.2024
+
+Anita O'Day - The Breakfast Show (1964) 2007, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Foggy Day In London Town [4:18]
+02. Is You Is Or Is You Ain't My Baby [4:15]
+03. I've Got The World On A String [4:36]
+04. You Can Depend On Me (long version) [7:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D92D93C51ADD6812A7A377E0758F6CB25A5042D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702331   (115798) от 24.02.2024
+
+Marian McPartland - At The Hickory House (1955) 1992, Jasmine Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hear Music [3:35]
+02. Tickle-Toe [2:58]
+03. Street of Dreams [2:11]
+04. How Long Has This Been Going On [4:07](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07034EC6619652410D9079CFC30AB4C2C9A7F8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702484   (115676) от 25.02.2024
+
+Marian McPartland - Just Friends (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeepers Creepers (with Tommy Flanagan) [5:01]
+02. I've Got a Crush on You (with Tommy Flanagan) [6:06]
+03. Some Time Ago (with Renee Rosnes) [5:29]
+04. It's You or No One (with Renee Rosnes) [5:18](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFA722447CE40BE206E431A75AE02B3585A9A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702503   (115675) от 25.02.2024
 
 Blue Mitchell - Boss Horn (1966) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -571,180 +745,6 @@ Ivan Strunin - The First Day of December (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19CBA234FAB87D88B28A59E750B54AC4A255283A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703410   (114981) от 29.02.2024
-
-Kirk Nelson & Jambalaya West - Savor the Moment (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazzy_Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bounce Around (3:01)
-02. Only 12 Bars In A Day (3:48)
-03. Stay In Your Lane (3:14)
-04. Back On Up The River (4:12)(   Читать дальше...   )Жанр: Jazzy_BluesПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99F7A79B010B9A48DA2A1CDB0390D1B6355CBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703424   (114979) от 29.02.2024
-
-The Soul of John Black - J.B.'S Blues Party! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gut Bucket (4:40)
-02. Six Pack of Blues (4:38)
-03. Turn You On (3:27)
-04. Slow Dancing (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5931F536A6B4E0C04B99FF5C348B55B4531BE1C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703419   (114976) от 29.02.2024
-
-Medicine Head - Heartwork (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Makin' Up For Lost Love (3:46)
-02. Alibi (2:50)
-03. Everybody Has The Blues (Sometimes) (4:42)
-04. Get Your Hands In the Air (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE368F4B09B12D0358E42480FF891610CA6E5D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703406   (114975) от 29.02.2024
-
-John Clifton - Too Much to Pay (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Much To Pay (3:15)
-02. It Wouldn't Stop Raining (2:57)
-03. Long Gone Mama (3:35)
-04. Get Lost (2:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2BB891A0BC480DA2B707EE58CD5BD01362228C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703423   (114971) от 29.02.2024
-
-The Gus Glynn Band - Paint It Blue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paint It Blue (4:25)
-02. Rollin' (5:25)
-03. Saltwater (4:34)
-04. Walk The Walk (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F31E683250234FAACB3680E8C4F6103DA16FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703401   (114968) от 29.02.2024
-
-Eric Assmar, Jefferson Goncalves & Gustavo Andrade - Assmar, Gonçalves & Andrade (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Say No (4:16)
-02. So Strong (3:31)
-03. A Simple Man (4:43)
-04. Come Dance the Blues (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2968E5319A90D87055CE9964BAF0765C124D113C
 ```
 
 https://mybot314.ru/tekegram_catalog/

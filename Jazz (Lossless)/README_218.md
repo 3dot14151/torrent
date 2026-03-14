@@ -1,3 +1,90 @@
+###  Публикация: 1422329   (310908) от 08.11.2020
+
+Terence Blanchard - Simply Stated (1992) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil' Fawdy [5:24]
+02. Central Focus [4:39]
+03. Simply Stated [8:24]
+04. Dear Old Stockholm [10:03](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97ABF0A048EF479B84D0D411D380731DB02F3E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845354   (310905) от 28.11.2014
+
+Karen Souza - Essentials [Japan Edition] (2013) [FLAC|Lossless]<Bossa Nova, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Really Want To Hurt Me
+02. Creep
+03. Strawberry Fields Forever (feat. Los Panchos)
+04. Tainted Love(   Читать дальше...   )Жанр: Bossa Nova, Vocal JazzПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CCA9C70D7C11922976CCF96AC1CF86CD6701F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960138   (310422) от 27.11.2015
+
+Elvin Jones - Mr. Jones (1969/1972) 2013, EMI Music[FLAC|tracks+.cue]<Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.One's Native Place [06:19]
+ 02.Gee Gee [05:47]
+ 03.Mr. Jones [07:38]
+ 04.What's Up - That's It [05:42](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059104766FC30E81ACE05C82659299FFCC81A0DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260676   (310123) от 08.11.2018
 
 Tim Garland, Joe Locke, Geoffrey Keezer (Storms/Nocturnes Trio) - Rising Tide (2003) Sirocco [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -664,93 +751,6 @@ Buck Clayton - Jam Session: How Hi The Fi (1953, 1954) 2005, Membran Music [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69E271ADA1B017EE30F1A1BFE6BC15A0E214EB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260912   (307785) от 09.11.2018
-
-Elina Duni - Partir (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Balkan Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amara Terra Mia (4:18)
-02. Let Us Dive In (4:44)
-03. Meu Amor (4:28)
-04. Lamma Bada Yatathanna (4:16)(   Читать дальше...   )Жанр: Vocal Jazz, Balkan JazzПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C03F205B499FFC2CA0720FCBB7E1EB3D88442FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333049   (307710) от 23.10.2019
-
-Benny Carter - The Best of Benny Carter (1980) 1987, Pablo Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Little Words [5:47]
-02. In a Mellow Tone [8:33]
-03. Wave [6:16]
-04. Squatty Roo [13:00](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:462FD013C7923F3E3F50D1A82AFCF4176ED2C355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333051   (307659) от 23.10.2019
-
-Ruby Braff - Born To Play (1999) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalon [9:59]
-02. The Doodle King [9:07]
-03. Medley: Smile/La Violettera [3:56]
-04. Think [9:37](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF9C9290CD61528455228088EC52D71BB5B2AD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

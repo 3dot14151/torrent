@@ -1,3 +1,32 @@
+###  Публикация: 1233179   (576019) от 02.07.2018
+
+Andru Donalds - the voice of the Enigma - Snowin’ Under My Skin (1999) [MP3|320 Kbps] <Disco, Hip-Hop, Энигматик>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 — Simple Obsession
+02 — Waiting For The Hurricane
+03 — All Out Of Love
+04 — Just For One Day(   Читать дальше...   )Жанр: Disco, Hip-Hop, ЭнигматикПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42583C73DC62AE956B148AC99ED3CFEF375CE005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 757378   (575991) от 19.05.2019
 
 VA - Любителям цыганской песни (2014) [MP3|256 кб/с]<Folk, Pop>
@@ -734,35 +763,6 @@ VA - Best In The Heat - Summer 100 Percent (2016) [MP3|232-320 Kbps] <Future Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:538FBA2E0009CC52432782A87BCD5B86853524E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043873   (570924) от 17.08.2016
-
-VA - Ultimate Workout Music - House Hits (2016) [MP3|320 Kbps] <Fitness, Sports, Funky, Vocal, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grande Vue - Work Your Body 2.15 (Radio Mix) 03:15
-02. Marquee - Can You Feel It (Nrg Remix) 03:27
-03. Shilton - Make You Mine (Dj Moriarti Edit) 03:34
-04. Roaxx J - Drop The Bass (Radio Mix) 04:02(   Читать дальше...   )Жанр: Fitness, Sports, Funky, Vocal, ClubПродолжительность: 07:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEC73477E66B6661B3855728E737E715EA60E86
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 909455   (627036) от 17.06.2015
+
+VA - Record Russian Mix (2015) [MP3|320 кб/с]<Club House, Dance, Pop, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Егор Крид - Самая - Самая
+02. Иван Дорн - Мишка Виновен (Атом Remix)
+03. Квест Пистолс - Санта-Лючия (Соловей Remix)
+04. Натан, Тимати - Девочка-Бомба (А Лисс Remix)(   Читать дальше...   )Жанр: Club House, Dance, Pop, HouseПродолжительность: 06:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083425651BECE6792BBEB414CFC24B61B2432CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909369   (627035) от 17.06.2015
 
 VA - Дискотека Казанова Старые Песни По Новому vol.4 (2015) [MP3|320 кб/с]<Club, Dance, Hands Up, Eurodance>
@@ -751,35 +780,6 @@ VA - Зайцев.нет: Музыка в дорогу (2019) [MP3|320 Kbps] <Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39E9D6B6DD31EEAB87BB2095184E9DD3EAC1321F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544309   (621893) от 15.04.2022
-
-VA - Motivation Mix (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Tree, Alok - Life Goes On - Alok Remix (2:37)
-02. Strange Fruits Music, DMNDS, Steve Void - Calabria - Steve Void Edit (2:08)
-03. Twelve, Askar and the Ghosts - Talk (2:57)
-04. Imanbek, Cher Lloyd - Baddest (2:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6C9A2FE63D5571D1E00508409840CCEB6760D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

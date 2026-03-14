@@ -1,3 +1,148 @@
+###  Публикация: 1799025   (66543) от 25.05.2025
+
+House of Protection - Outrun You All (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore, Electronic Rock, Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 524?§?€€|° (0:32)
+02. Afterlife (3:18)
+03. Godspeed (3:14)
+04. I Need More Than This (4:24)(   Читать дальше...   )Жанр: Rapcore, Electronic Rock, Punk RockПродолжительность: 00:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F8C268836FE2E7B99885385665963AAFF4B3C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799046   (66531) от 25.05.2025
+
+Thus Spoke Zarathustra - I'm Done With Self Care, It's Time For Others' Harm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.G.O.
+02. I Can't Save You (feat. Boundaries)
+03. Gage Lanza 2: Return Of The Red Hammer
+04. I Didn't Believe In Magic Till' My Dog Turned Into A Snake(   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:30:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75468B8525E029F86EE226EA90157538AD03C4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798971   (66530) от 25.05.2025
+
+Brace - Self Titled (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undo [00:03:59]
+02. Surge [00:04:05]
+03. Meek [00:04:13]
+04. Safe [00:05:21](   Читать дальше...   )Жанр: Alternative Metal, Nu MetalcoreПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2C0F4C671839A95933AC18ACEDE635D4BF971B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798916   (66526) от 25.05.2025
+
+The Devil Wears Nada - Postalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock / AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adecence
+02. Patient Zero
+03. Late Night Talking
+04. Make Me Feel(   Читать дальше...   )Жанр: Melodic Rock / AORПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F84B3F99A60CCC0B92AF15E2B8C8C963AC4812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799053   (66525) от 25.05.2025
+
+Hinder - Back To Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Rock, Hard Rock, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live Without It [00:03:28]
+02. Rearview [00:03:23]
+03. Everything Is A Cult [00:03:23]
+04. Bring Me Back To Life [00:03:56](   Читать дальше...   )Жанр: Alt. Rock, Hard Rock, Post-GrungeПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41342DCC4CDFF0DCDDB78E956B9DEEF8A0893746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799191   (66503) от 26.05.2025
 
 Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Punk>
@@ -600,151 +745,6 @@ Malvada - Malvada (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACD59AB9FCE64C91DB58AE1F0A255F437912C57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801901   (66136) от 14.06.2025
-
-King Gizzard & The Lizard Wizard - Phantom Island (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psychedelic Rock, Garage Rock, Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Phantom Island [5:15]
-02 - Deadstick [3:34]
-03 - Lonely Cosmos [5:36]
-04 - Eternal Return [4:35](   Читать дальше...   )Жанр: Psychedelic Rock, Garage Rock, Jazz RockПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D44CE78F435CD5E06D68101D3F9EDC6B3326149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801994   (66133) от 14.06.2025
-
-Fairyland - The Story Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Downfall (1:52)
-02.  To Stars And Beyond (5:28)
-03.  Karma (4:14)
-04.  A New Dawn (4:50)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E924EF0D38458A663710497B75CB5BE22470CA68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801993   (66118) от 14.06.2025
-
-Crosson - Guilty Of Rock (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nobody Wins (4:10)
-02.  No Solution (4:54)
-03.  Bound For Glory (5:00)
-04.  Guilty Of Rock (5:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51C59A2D2215CE02C390C2E1AF9AD4D3944187C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802079   (66110) от 14.06.2025
-
-Evadne - The Fragile Light of Fireflies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Doom, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadows [00:05:18]
-02. Under Blessed Skies [00:05:23]
-03. Where Silence Dwells [00:04:56]
-04. The Pale Light of Fireflies [00:06:57](   Читать дальше...   )Жанр: Melodic-Doom, AcousticПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBE4DD1ADD4CB3DAE9D66B27AA16340172F67BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802146   (66105) от 15.06.2025
-
-Eva (Csepregi Eva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66105.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Midnight
-A2 Carribean Holiday
-A3 How Do You Know
-A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD6879355900328F545240D5BB62A58F03502B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

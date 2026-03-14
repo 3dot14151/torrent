@@ -1,3 +1,32 @@
+###  Публикация: 1029381   (682494) от 26.06.2016
+
+VA - Trance Euphoria Top DJ Dreams (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz With Fisherman & Hawkins -  Gotham Serenade (New York City)  (Original Mix) 6:56
+02. Giuseppe Ottaviani -  Liverpool (Standerwick Remix) 6:24
+03. Paul Van Dyk & Genix -  For You (Original Mix) 6:56
+04. Andrew Rayel -  Daylight (Club Mix) 5:09(   Читать дальше...   )Жанр: TranceПродолжительность: 09:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9AE38FD7A48D73949EF0B16A069C1F3D6982FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029205   (682193) от 26.06.2016
 
 VA - Tantric Lounge Massage: Sexy Erotic Chill Music To Improve Your Love Life Forever (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -725,35 +754,6 @@ Dj DAN62 - Унц Унц Микс Июнь Часть 1 (2016) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C071D77A89EDC7249A88C89C37F4D687110CB0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029780   (678595) от 28.06.2016
-
-VA - Turbo Dance. Mix Music (2016) [MP3|233-320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678595.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Degree - Hunny Bunny
-2. Bad Booty Brothers - Worth It (Radio Edit)
-3. Barby G - What’s Up (Radio Edit)
-4. Aura - Love Somebody(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64B280668E9D03BB26E777E7DD2456E32CA94DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

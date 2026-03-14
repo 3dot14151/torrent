@@ -1,3 +1,177 @@
+###  Публикация: 1227342   (648591) от 25.05.2018
+
+Jeri Brown & Jimmy Rowles - A Timeless Place (1995) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Star [6:48]
+02. After School [5:10]
+03. Baby, Don't Quit Now [6:44]
+04. A Timeless Place [7:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E35C40F3993ABC9421A5851D1E1450ED9DB9871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227204   (648586) от 25.05.2018
+
+Brad Mehldau Trio - Seymour Reads The Constitution! (2018) Nonesuch Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiral [8:34]
+02. Seymour Reads the Constitution [8:06]
+03. Almost Like Being in Love [5:41]
+04. De-Dah [8:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B005E384B13DED7E71B605D22AA8969C4D2886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227243   (648576) от 25.05.2018
+
+Lazy Eye - Black Hill (2018) Live [MP3|320 Kbps] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Tongue Blues (Live) (07:56)
+02. House Of Trouble (Live) (09:09)
+03. Black Hill (Live) (05:07)
+04. Do It Right (Live) (06:15)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB89F3820B35043831508B8DCB9353DAA9E64620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227336   (648570) от 25.05.2018
+
+Al Cohn & Jimmy Rowles - Heavy Love (1977) 2015, Elemental Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes [6:38]
+02. Sweet and Lovely [6:59]
+03. I Hadn't Anyone Till You [7:01]
+04. Taking a Chance on Love [7:15](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F0A5D14AF3FEFBBBEA116F39A5A1439633954D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227203   (648477) от 25.05.2018
+
+Dana Fuchs - Love Lives On (2018) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648477.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Backstreet Baby (4:00)
+ 2. Nobody's Fault But Mine (3:34)
+ 3. Callin' Angels (3:47)
+ 4. Sittin' On (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664E6F7241B7DD3D19C3383F5F2F21353C715873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032103   (648020) от 06.07.2016
+
+Brother Jack McDuff - Live! (1963) 1994, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rock Candy [06:41]
+ 02.It Ain't Necessarily So [06:38]
+ 03.Sanctified Samba [04:50]
+ 04.Whistle While You Work [05:12](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F422B46D53360C17D639675E82EBF628A40767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031840   (648017) от 06.07.2016
 
 Yusef Lateef - Yusef's Mood, Complete 1957 Sessions with Hugh Lawson (2008) 4CD, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -571,180 +745,6 @@ Alex Thomas - Grave Mark (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C3E17D56F6307F645E7306240201CA6D6B2C282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141822   (646608) от 12.06.2017
-
-Aretha Franklin - The Real... Aretha Franklin (2014) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulville
-02. Nobody Knows The Way I Feel This Morning
-03. Evil Gal Blues
-04. Make Someone Happy(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 03:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D0F03FA7BB1265CE48B04A686C7CBD67E7F6A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141905   (646507) от 12.06.2017
-
-VA - Romantic and Erotic Jazz: Slow Smooth Jazz (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovely Heart Zone - Romantic & Erotic Jazz
-02. Peaceful Piano Music Collection - Sexual Stimulation
-03. Romantic Candlelight Dinner Jazz Zone - Erotic Touch
-04. Relaxation Jazz Academy - Sexy Jazz for Sensual Love(   Читать дальше...   )Жанр: JazzПродолжительность: 01:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6382F3C66984A3608752616B32484B17EA9923D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032359   (646178) от 07.07.2016
-
-Nat Adderley - Live At Memory Lane (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.On My Journey Now [04:40]
- 02.Fun [06:43]
- 03.Good Old Summertime [09:50]
- 04.Lavender Woman [08:17](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2D49CF1E262FDED45E660EBCCF40690D531D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032357   (646177) от 07.07.2016
-
-Denny Zeitlin - Cathexis (1964) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Repeat [03:21]
- 02.I-Thou [05:58]
- 03.Stonehenge [05:18]
- 04.Soon [05:14](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93F67623F68F026D9664CED1F70E9FD8ABCF741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032364   (646171) от 07.07.2016
-
-Darji & Hank Jones - Darji Meets Hank Jones (1982) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Darji's Groove [03:54]
- 02.Sugmad's Lullaby [07:39]
- 03.Soul Speaks [10:08]
- 04.Happy Blue [04:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:372EBC68CD01F1770F539859BA5F9C43460F8AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032466   (646168) от 07.07.2016
-
-Kenny Dorham - Whistle Stop (1959, 1961) 2CD, 2012, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646168.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Whistle Stop:
-01.Philly Twist [05:40]
-02.Buffalo [07:40]
-03.Sunset [06:20](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C8632A0FB2970EA2F69F6BB1DC36D1939F3A04
 ```
 
 https://mybot314.ru/tekegram_catalog/

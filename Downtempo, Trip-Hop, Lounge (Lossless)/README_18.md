@@ -1,3 +1,61 @@
+###  Публикация: 1173483   (390618) от 11.10.2017
+
+VA - Autumn 2017 Lounge Collection (30 Beautiful Tunes) [FLAC|Lossless|WEB-DL|tracks] <Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bossasonic – Amazing Flight (00:46)
+02. Jazzamor – He's Not There (04:21)
+03. Lazy Hammock – Naked Being (04:42)
+04. Mazelo Nostra – Leave Me (03:31)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 02:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAACB3B04B1C24C1FFE01D0C204CD68479D7A5FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173815   (388978) от 13.10.2017
+
+VA - Lounge And The City (30 Beautiful Tunes) (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chill Out, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mirage Of Deep - Stone Words (Original Mix)  5:47
+02.  Van - Waiting For A Taxi (Original Mix)  5:48
+03.  Paul Eerhart - The Big Apple (Original Mix)  5:14
+04.  Northbound - Driftwood (Original Mix)  4:10(   Читать дальше...   )Жанр: Downtempo, Chill Out, LoungeПродолжительность: 02:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39EB79CC7444CC3D95534602D9509A12822A60B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326276   (387417) от 19.09.2019
 
 VA - Take a Trip, Pt. 5 (2019) [FLAC|Lossless|Web-DL|tracks] <Trip-Hop, Electronic, Hip-Hop, Abstract, Downtempo>
@@ -684,64 +742,6 @@ VA - Bioluminescence (2007) Native State Records [FLAC|Lossless|tracks+.cue] <Du
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48F9E72E7B5008451EB34F5F57C5BFB7239C98D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330123   (345743) от 08.10.2019
-
-Hill & Wiltschinsky Guitar Duo - Lover's Guitar (1995) Compilation [FLAC|Lossless|tracks + .cue] <Easy Listening, Instrumental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Fall In Love (3:01)
-02. Three Times A Lady (3:02)
-03. Lady In Red (3:21)
-04. If (2:11)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4884818F266F405D93C1CA3591B56BA3FD1B567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578519   (345687) от 23.09.2022
-
-Blank & Jones - Relax Edition 14 (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill out, Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning In the Fields
-02. This Is the Day (feat. Zoe Durrant)
-03. Set the Mood
-04. Sitting In My Sofa (feat. Laid Back)(   Читать дальше...   )Жанр: Electronic, Chill out, Downtempo, LoungeПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072E7C74E3D38AC2DDEA50236977818CD187754B
 ```
 
 https://mybot314.ru/tekegram_catalog/

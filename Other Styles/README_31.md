@@ -1,3 +1,119 @@
+###  Публикация: 1109183   (860759) от 26.02.2017
+
+The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) [MP3|320 Kbps] <Soundtracks, Classical, Epic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title ("from Game of Thrones")
+02. Goodbye Brother
+03. Season 1 Finale
+04. Warrior of Light(   Читать дальше...   )Жанр: Soundtracks, Classical, EpicПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A8C2670D20363F347BAAE3CA0C40BE4C39AB97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109184   (860664) от 26.02.2017
+
+The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks, Classical, Epic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title ("from Game of Thrones")
+02. Goodbye Brother
+03. Season 1 Finale
+04. Warrior of Light(   Читать дальше...   )Жанр: Soundtracks, Classical, EpicПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5B5163DC7975BDCA967B4DA751B2C3F44F1862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375776   (859982) от 17.04.2020
+
+David Arkenstone - The Delicate Balance (2020) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isolamento
+02. What We Do In Life... Echoes In Eternity
+03. You Can Only Come To the Morning Through The Shadows
+04. The Measure of Existence(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A1F07185DD074E8DD51B5987A9D1283A55D219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000081   (859324) от 25.03.2016
+
+Ken Yang - Meet the Sky (2001) [FLAC|Lossless|tracks] <International, New Age, Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet the Sky   02:37
+02. Hot Spring   04:10
+03. The Slop of Green Grass   04:59
+04. The Sea of Seven Stars   04:57(   Читать дальше...   )Жанр: International, New Age, Easy ListeningПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C094B6B60F2D1F14D2C11022DB21B5F19167B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999883   (859067) от 25.03.2016
 
 VA - Romantic Collection - Nordic (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
@@ -647,122 +763,6 @@ Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E32CF03B52B4EFEA4713790CEE06A7F8BD339EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001843   (852053) от 29.03.2016
-
-Немного Нервно - День Габриэля (2016) [MP3|320 кб/с] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852053.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник «День Габриэля» вошли восемь тех самых песен, которые «А на каком они альбоме? А пока ни на каком». Все, чего вы так долго ждали. И кое-что совершенно новое. Треки записаны в сотрудничестве с четырьмя разными студиями в Запорожье, Москве, Эдинбурге и Воронеже. В числе приглашенных музыкантов проявились Владимир Кристовский (Uma2Rman), Василий Уриевский, (   Читать дальше...   )01. Поцелуй меня, я - ирландец (feat. В. Кристовский)
-02. Габриэль
-03. Тяжко мені
-04. Восхождение (feat. А. Чикуров)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A515D6E4C984FC06D34CE19F66BB809BEF28D740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000518   (852051) от 29.03.2016
-
-Anuna - Cynara (2001) [FLAC|Lossless|tracks + .cue] <Celtic, Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Igitur Servus
-02. An Oiche
-03. Riu Riu
-04. Incantations(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020C12B2BFCF05243F621EA3947E76E1F78B9C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110726   (851961) от 03.03.2017
-
-Guy Sweens - Karmic Journey (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human Nature
-02. Varanasi
-03. Cause and Effect
-04. Inner Strength(   Читать дальше...   )Жанр: New Age, Ambient, WorldПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F648F535FA63C0C08847C06C45235AD23FE9057A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000766   (851799) от 29.03.2016
-
-VA - The Best World Instrumental Hits (2009) Vol.1,2,3 (6CD) [FLAC|Lossless|tracks] <Instrumental, Easy Listening, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francis Lai - Emmanuelle   03:22
-02. Paul Mauriat - Aloette   02:11
-03. James Last - Little Man   03:22
-04. Ricky King - La Corrida   03:12(   Читать дальше...   )Жанр: Instrumental, Easy Listening, New AgeПродолжительность: 07:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0218929DF42FC59E116FA2DA939B764A5BDA3DC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

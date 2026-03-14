@@ -1,3 +1,32 @@
+###  Публикация: 1031323   (668772) от 03.07.2016
+
+VA - Club Dance Ambience vol.76 (2016) [MP3|320 Kbps] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668772.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Dizzee Rascal -  Hype (Original Mix) 3:32
+002. Mark Sixma & Futuristic Polar Bears feat. Amba Shepherd -  Cupid's Casualty (Original Mix) 3:28
+003. Vicetone Ft. Cozi Zuehlsdorff -  Nevada (Original Mix) 3:29
+004. DJ Favorite feat. Will Fast -  Together (Original Mix) 4:41(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 08:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D28ABCC53A5CCE9DF503FE65DE4D6DC01B5BCBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031279   (668597) от 03.07.2016
 
 VA - TOP 100 Club (June) (2016) [MP3|320 Kbps] <House, Electro House, Club House>
@@ -716,35 +745,6 @@ VA - New Sounds & More Power Vol.12 (2017) [MP3|320 Kbps] <EBM, Futurepop, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C6EE2E2BB03C97DBD62E3C095AA187088C2ADFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225041   (662767) от 13.05.2018
-
-VA - Andromed: Glamtronica Remix (2018) [MP3|320 Kbps] <Synthpop, Synthwave, Electronica>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Andromeda: Glamtronica Remix - это новаторский подход к синтипоп-музыке со своей неповторимой подачей, включающий в себя глубокий, порой академический вокал, виртуозную работу с различными музыкальными жанрами и превосходные мелодии, которые сразу врезаются в память.001. LEVEL 2.0 - Off The Radar
-002. Fake The Envy - These Are The Fools (2016 Edit)
-003. Slave Republic - Something Inside You
-004. Night Drive - Trapeze Artist Regrets(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicaПродолжительность: 10:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387AB853836E313974E36E6803AF92D05F91CCC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

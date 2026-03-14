@@ -1,3 +1,119 @@
+###  Публикация: 783854   (874193) от 09.04.2020
+
+Troika (David Arkenstone) - Shaman (2000) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calling (7:14)
+02. Vision Quest (6:21)
+03. Crossing the Light (6:00)
+04. Other World (6:43)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C4F966F89DF960DAF2147DA5640FA9AA38ED3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 791724   (874132) от 09.04.2020
+
+David Arkenstone - Citizen of the World (1999) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_874132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forest Runners (5:55)
+02. Desert Crossing (5:22)
+03. Moonflower (5:10)
+04. The Gypsy Camp (4:21)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0143BDFD0624F1FEB95F033E8C66A1E7AF0F581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106282   (873736) от 19.02.2017
+
+Devaldi - Petrichor (2016) [MP3|320 Kbps] <Electronic, Relaxing>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Singur
+02. Bri
+03. Petrichor
+04. Ta Matia Sou(   Читать дальше...   )Жанр: Electronic, RelaxingПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63CA6E483D9F290E0B82677C179384B1F015CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997576   (873676) от 17.03.2016
+
+Mystica - Best Of Gregorian Voices (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hymn
+02. (Everything I do) I do it for you
+03. Yesterday
+04. Deep Prayer(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA4E4652D200F07245EE82CAFCB363319D6267B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106400   (873641) от 19.02.2017
 
 VA - The Da Vinci Mysteries (2006) [FLAC|Lossless|tracks + .cue] <Gregorian, New Age, Enigmatic>
@@ -627,122 +743,6 @@ Armik - Enamor (2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB182E83FF0F2E61487EA315342168E7806838A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374588   (868615) от 12.04.2020
-
-Gary Schmidt - A Classical Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adagio from Concerto in Dm	03:59
-2. Etude No. 2	04:59
-3. Claire de lune	05:20
-4. Pieces Froides: Danses de Travers No. 1	01:51(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F013CFEDC68C3E96B03478964F1665DB107971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998752   (868516) от 20.03.2016
-
-Corciolli - Lightwalk (2010) [FLAC|Lossless|tracks] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miragea  04:41
-02. Amethysios  05:48
-03. Star  03:55
-04. Pegasus  04:03(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC74E4FEC728E0281A2992A79681BF6874EBB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998577   (868512) от 20.03.2016
-
-Ancient Future - Asian Fusion (1993) [MP3|320 кб/с] <Folk, World, New Age>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude  01:03
-02. Bookenka (The Adventurer)  05:25
-03. The Trader  04:15
-04. Mezgoof  06:23(   Читать дальше...   )Жанр: Folk, World, New AgeПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B729215DA2C3474CF6CCB2E9A8494F7BF616968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998734   (868439) от 20.03.2016
-
-Celtic Woman - Solo (2015) [MP3|320 кб/с] <Celtic folk, World, New age>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chloe - To Where You Are
-02. Lisa Kelly - Home and the Heartland
-03. Lynn Hillary - Carolina Rua
-04. Meav - Marble Halls(   Читать дальше...   )Жанр: Celtic folk, World, New ageПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9659DA7613E1BEF7E7838CD733870D92487111
 ```
 
 https://mybot314.ru/tekegram_catalog/

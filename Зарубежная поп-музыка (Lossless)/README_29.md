@@ -1,3 +1,148 @@
+###  Публикация: 1279522   (765334) от 30.01.2019
+
+TOPAZ - High Society (2019) [FLAC 2.0|96/24|tracks|WEB-DL] <Dream Pop, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entratura (01:43)
+02. I Don't Mind (04:04)
+03. Eyes Back On Your Face (04:21)
+04. Sacred Throne (04:43)(   Читать дальше...   )Жанр: Dream Pop, AlternativeПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B08A7492E3C89510EFCFDE7B3EA2AAB4C15CC8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214444   (764921) от 21.03.2018
+
+Bosson - One In A Million (2001) Exclusive [FLAC|Lossless|tracks + .cue] <Pop, Europop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One In A Million (3:34)
+02. I Believe (3:51)
+03. We Live (3:46)
+04. Where Are You? (4:06)(   Читать дальше...   )Жанр: Pop, Europop, Synth-popПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C8423497F63AB0E9182A67C1BE2AA30657554F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521711   (764349) от 03.01.2022
+
+VA - Hooked On Number Ones-100 Non Stop Hits (1988) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Medley 1
+Medley 2
+Medley 3
+Medley 4Жанр: PopПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1136CF9857B88453B0DD0CB5F67033395D3B9AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394477   (763750) от 05.07.2020
+
+The Lagoons - Midnight Afternoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FOMO (05:06)
+02. Angel Of My Life (04:00)
+03. So Did I (04:12)
+04. Something Good (03:42)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF44DBC44554D441E1D998DD10A9E08FA80F9B30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279937   (763524) от 01.02.2019
+
+Clean Bandit - What Is Love (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Dance-pop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony (feat. Zara Larsson) (03:32)
+02. Baby (feat. Marina & Luis Fonsi) (03:25)
+03. Solo (feat. Demi Lovato) (03:43)
+04. Rockabye (feat. Sean Paul & Anne‐Marie) (04:10)(   Читать дальше...   )Жанр: Indie Pop, Dance-pop, ElectroПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD2AD34D5C5FD57F5ABCE35AEBEBD35D98F52E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280090   (763522) от 01.02.2019
 
 The Beloved - Sweet Harmony: The Very Best of The Beloved (2011) 2CD, RM. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, House, 80s, 90s>
@@ -598,151 +743,6 @@ CD2 - 00:30:17
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE65DF8EC5A93BFB63526783F9A93EE9743D7A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216572   (749431) от 31.03.2018
-
-Потап и Настя - Не пара-альбом №1 (2008) |Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро (яфшоке!)
-02. Икра
-03. Крепкие орешки
-04. Не пара(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F64A26420CEAB4EEF15DDBF1DFFA70753F81BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281931   (748513) от 10.02.2019
-
-The Dip - The Dip Delivers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sure Don't Miss You (02:54)
-02. Best Believe (03:56)
-03. Advertising (feat. Jimmy James & Delvon Lamarr) (03:00)
-04. Adeline (03:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0989A55AFA39B31B353513864933B9072A837BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281988   (748419) от 10.02.2019
-
-Meghan Trainor - The Love Train (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Blue-Eyed Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ALL THE WAYS (02:55)
-02. MARRY ME (03:35)
-03. I'M DOWN (03:16)
-04. AFTER YOU (03:26)(   Читать дальше...   )Жанр: Pop, Dance, Blue-Eyed SoulПродолжительность: 00:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C73163427E66BCBC0BF6ADFC34E1C07D913A9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282002   (746407) от 11.02.2019
-
-VA - Italian Golden Ballads (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Italo Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Bano & Romina Power - Liberta
-02. Collage - Donna Musica
-03. Pupo - La Notte
-04. Ricchi e Poveri - Comme Vorrel(   Читать дальше...   )Жанр: Italo PopПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17974C851813E39D7997D22ADA9301266FDB76F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396637   (745501) от 16.07.2020
-
-Тина Кароль - 4 Альбома (2006 - 2017)  [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дикая вода
-02. Мужчина моей мечты
-03. Тобi здається
-04. Космiчнi почуття(   Читать дальше...   )Жанр: РорПродолжительность: 02:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCDEB010579D4F22BAC7DE01A5E999EE7E4298C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1276292   (788190) от 16.01.2019
+
+Marianne Ligthart - Black Tea & Whiskey (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Tea & Whiskey 03:35
+02. Mr. Bartender 04:14
+03. In The Meantime 04:43
+04. Josephine 04:20(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973DBB0FEC1A639CB4A8625C34759AC2222E11E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203814   (787681) от 03.02.2018
+
+Justin Timberlake - Man of the Woods (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filthy
+02. Midnight Summer Jam
+03. Sauce
+04. Man of the Woods(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8999787E13F3FB88E9184A62DB60B341E4A57407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203585   (787671) от 03.02.2018
+
+Julio Iglesias - Dois Coracoes (2017) [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ela
+02. Amanheci Em Teus Bracos
+03. Dois Amigos
+04. Viver A Vida(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E29731A31EB9804F0DDC285D1B658809B560118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512442   (787404) от 24.11.2021
+
+Bros - Gold (2020) 3xCD, Box Set [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bros - британская музыкальная группа, активная во второй половине 1980-х и начале 1990-х годов. Основу группы составляли братья-близнецы Matt и Luke Goss (Bros - сокращенное от Brothers) и их школьный товарищ Craig Logan. Дебютный альбом группы Push (1988 ) покорил музыкальные чарты многих стран Европы, а у себя на родине стал четырежды платиновый. В следующем, 1989, (   Читать дальше...   )CD - 1:
+01. When Will I Be Famous (3:59)
+02. I Owe You Nothing (3:36)
+03. Drop The Boy (3:50)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 03:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAE6AC9DA76BDE20A4D89D3E7484B0F3EBDA660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276953   (787252) от 18.01.2019
+
+Eloy de Jong - Kopf aus - Herz an (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schritt fur Schritt
+02. Repeat
+03. Eloy de Jong, Marianne Rosenberg : Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
+04. Risiko(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE82385EF2B4F8A8C2E77546651D4DF05F0457E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276909   (787019) от 19.01.2019
 
 VA - Dreamlover vol.1 (1994) [FLAC|Lossless|image + .cue] <Pop, Rock>
@@ -600,151 +745,6 @@ Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206792   (781313) от 16.02.2018
-
-Nina Zilli - Modern Art (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senza Appartenere
-02. Domani Arrivera (Modern Art)
-03. Ti Amo Mi Uccidi
-04. 1xUnAttimo(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC0270397B50592FFFE42D57B2826FFEE08D7E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391182   (781010) от 20.06.2020
-
-Black Eyed Peas - Translation (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RITMO (Bad Boys For Life) (feat. J Balvin) (03:34)
-02. FEEL THE BEAT (feat. Maluma) (03:57)
-03. MAMACITA (feat. Ozuna & J. Rey Soul) (04:11)
-04. GIRL LIKE ME (feat. Shakira) (03:42)(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F27E2D8EC2CD2E25759DFB553C2DFDDFC055709
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391382   (780958) от 20.06.2020
-
-Sade - Collection 6 Albums (1984-2010) Originals & Remasters [FLAC|Lossless|tracks + .cue] <Pop, Smooth Jazz, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780958.jpg" />
-</div>
-
-
-###  Подробнее
-
-1984 - Diamond Life (2005, Epic– MHCP 603, JP)
-1985 - Promise (2005, Epic ‎– MHCP 604, JP)
-1988 - Stronger Than Pride (2005, Epic– MHCP 605, JP)
-1992 - Love Deluxe (2005, Epic ‎– MHCP 606, JP)(   Читать дальше...   )Жанр: Pop, Smooth Jazz, Soul, Funk, R&B, Trip-Hop |Продолжительность: 04:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A74C91F116A2095DCEB11B71A1DD6408BEFB3B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207264   (780852) от 17.02.2018
-
-DJ Piligrim - Ночером...вечером...кечером (1999) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Мне не жить без тебя
-03. Хайр, дустим, прощай
-04. Кур булсин(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2BFB142FD8B0B01F36C3E1B71FB2ED47325561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207400   (780571) от 18.02.2018
-
-Giorgia - Oronero Live (2018) Deluxe Edition [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come neve (3:31)
-02. Chiamami tu (2:25)
-03. Credo (Live) (3:42)
-04. È l'amore che conta (Live) (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099B3B77A4651CD5E7E86584C47954269A9B9756
 ```
 
 https://mybot314.ru/tekegram_catalog/

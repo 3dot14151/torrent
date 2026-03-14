@@ -1,3 +1,32 @@
+###  Публикация: 1462087   (1021309) от 13.04.2021
+
+VA - Vocal Trance Hits (2021) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021309.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Above & Beyond, Zoe Johnston, ALPHA 9 - Good For Me (ALPHA 9 Remix) (5:04)
+002. Alesso, Armin van Buuren - Leave A Little Love (Club Mix) (2:53)
+003. Jeremy Vancaulart, Danyka Nadeau, Millennial - Hurt (Millennial Remix) (3:42)
+004. ReOrder, Neil Hunter, Zach Alwin - You Should Know (3:32)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30320A819604D60D8D6812C337FEC0F3E2E101E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462442   (1021224) от 14.04.2021
 
 VA - Vocal Synthwave Retrowave 1 (2021) [MP3|320 Kbps] <Synthpop, Synthwave>
@@ -716,35 +745,6 @@ VA - Beatport Deep House: Sound Pack #280 (2021) [MP3|320 Kbps] <Deep House, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9999EF9FE9FFF955BE13AC41118C9DED6E87C70E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468895   (1016768) от 10.05.2021
-
-VA - Record Super Chart 08.05.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inna - Flashbacks (2:57)
-02. Tiesto - The Business (2:44)
-03. Eneli, Monoir - 3 to 1 (3:39)
-04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227AA6F29E6E9EB9251A6544DFA1EA607F66190F
 ```
 
 https://mybot314.ru/tekegram_catalog/

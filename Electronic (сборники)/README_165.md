@@ -1,3 +1,38 @@
+###  Публикация: 580737   (340624) от 26.11.2012
+
+VA - DubStep Pro V.6 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vinyl Scratch - Drowned In Love
+02. Peace Treaty - In Time (Gnitti Remix)
+03. Dead Audio feat. Jade Harris - Take Me Away (Extended Mix)
+04. Killafoe - Hatorade (J.Nitrous Remix)
+05. WiSkiM - Empty Rivers
+06. DJ Vibes - Sing It Loud (DJ Slim, Bedsit Producers Refix)
+07. Obscenity & Killabyte ft. Messinian - Blitz Crank (Original Mix)
+08. Foxes feat. Matt Wiggins & Ghostwriter - Echo (MONSTA Remix)
+09. Suoy - Final Symphony (Original Mix)
+10. Phaeleh Feat. Soundmouse - The Cold in You (Kahn Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 04:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069822792E9043CBE99FDF356499768206B60134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580743   (340621) от 26.11.2012
 
 VA - DubStep Pro V.5 (2012) [MP3|320 кб/с]<Dubstep>
@@ -740,35 +775,6 @@ VA - On Air Eurodance (2018) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5985AB88A1275531D716F48027E9EBA874FB7F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258490   (336319) от 30.10.2018
-
-VA - Heart Of The Island: Enhanced Progressive Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336319.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aly & Fila - Rebirth
-002. Karanda & Fischer - Gone
-003. Allan Dark - On Waves
-004. Alex Wright - Canopy Song(   Читать дальше...   )Жанр: TranceПродолжительность: 09:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99E77225308F95BF657BA1EEB49B2AE2E871244
 ```
 
 https://mybot314.ru/tekegram_catalog/

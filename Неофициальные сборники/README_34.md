@@ -1,3 +1,90 @@
+###  Публикация: 1473287   (1013874) от 28.05.2021
+
+VA - EDM Live Set (2021) [MP3|320 Kbps] <Club, Dance, Tech House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eye feat Alexia - Virtual Reality
+002. Autograf & Scorsi - Waiting
+003. Turbotronic - Zzinhage
+004. Steve Aoki - Like It Like That(   Читать дальше...   )Жанр: Club, Dance, Tech House, EDMПродолжительность: 09:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15C8CAE4EFD5B3DC261ABF42868B54AA43A03C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472927   (1013857) от 28.05.2021
+
+VA - 35 Spring Step Hits (2021) [MP3|320 Kbps] <Electropop, Dance, Hip Hop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axel Force - Alive (Fitness Version 132 Bpm)
+02. Mc Joe - Levitating (Fitness Version 132 Bpm)
+03. Axel Force - Run Runaway (Fitness Version 132 Bpm)
+04. Mc Ya - Tap In (Fitness Version 132 Bpm)(   Читать дальше...   )Жанр: Electropop, Dance, Hip Hop, EurodanceПродолжительность: 02:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA35636369F296E8CA5EB3D2BEFB35A4EC40AA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472960   (1013853) от 28.05.2021
+
+VA - 245 DJ Loaded - Knowledge Dancing (2021) [MP3|320 Kbps] <House, Bassline, Dancehall, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. YG & Mozzy - Bompton To Oak Park (Dirty)
+02. Trippie Redd & SOS LO feat. Chris King - Honorable Flex (Intro - Clean)
+03. Tujamo - You Know (Radio Edit)
+04. Trippie Redd & SOS LO feat. Chris King - Honorable Flex (Clean)(   Читать дальше...   )Жанр: House, Bassline, Dancehall, R&BПродолжительность: 14:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048C23E69A9A35E652C99768FD060787CECEDD3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472954   (1013836) от 28.05.2021
 
 VA - Happy Office Hits (2021) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
@@ -655,93 +742,6 @@ VA - Rasta Soul: International Reggae Day (2021) [MP3|320 Kbps] <Reggae, Dub, Ri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88010CC6959AD32B0A35C5A69EA6852744C4585D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474200   (1013208) от 01.06.2021
-
-VA - All Out 70s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013208.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Natalie Cole - This Will Be (An Everlasting Love) (2:52)
-002. Carpenters - Please Mr. Postman (2:49)
-003. Neil Sedaka - Laughter In The Rain (3:06)
-004. Bob Seger - Still The Same (3:22)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 09:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9AB96E765D0FF245A814672397D17B39076B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474476   (1012902) от 03.06.2021
-
-VA - The End: Apocalypse Sound (2021) [MP3|320 Kbps] <Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012902.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Quill - Keep On Moving
-002. Bloodmores - Too Close To The Sun
-003. Cro-Mags - Crofusion
-004. John Diva & The Rockets Of Love - Karmageddon(   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 11:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00873DFD934B8498842522835C33D6F77DA8B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474666   (1012873) от 03.06.2021
-
-VA - Music News vol.105 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012873.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elsa - Падали (03:02)
- 002. Agatino Romero & Van Herpen & Life of Kai - We Need Time (02:23)
- 003. Aleks Ataman & Finik.Finya - У Мамы Хулиганы (03:17)
- 004. Amelia Martin - Play Forever (03:09)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB46373D8090DCBF47994C08146409F5DAA3AD0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1153108   (561321) от 25.07.2017
+
+VA - Need for Speed Vol. 7 (2017) [MP3|320 Kbps] <Dance, Hands Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 89Ers - Funky Beats (Radio Edit)
+02. DJ Fait - Because the Night (Short Mix)
+03. Giorno - Closer (Jump & Run Mix Edit)
+04. Shogga - My Heart Is Beating (Danny R. Remix)(   Читать дальше...   )Жанр: Dance, Hands UpПродолжительность: 08:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7144F19635C057E4897BF881EB5A984FF56197F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530644   (561104) от 03.08.2012
 
 VA - Танцевальный Экстаз. Зарубежный Выпуск (2012) [MP3|256 кб/с]<Dance, Pop>
@@ -754,35 +783,6 @@ VA - Ultimate bass music Vol.3 (2016) [MP3|263-320 Kbps] <Deep House, Dubstep, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A61BD8E4D82002820D9A4F5AAB8186B4B75A48D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045902   (556917) от 25.08.2016
-
-VA - Soul and Love (2016) [MP3|320 Kbps] <Rock & Roll, Vocal, Rhythm & Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Platters - Only You 02:36
-02. Aretha Franklin - Right Now (Feat. Ray Bryant Combo) 02:23
-03. The Isley Brothers - Turn To Me (Feat. Orchestre Hugo Peretti) 02:45
-04. Sam Cooke - I Fall In Love Everyday 02:10(   Читать дальше...   )Жанр: Rock & Roll, Vocal, Rhythm & BluesПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069F311E5EB9D2CFB05DBAB446EC12B2118B5D12
 ```
 
 https://mybot314.ru/tekegram_catalog/

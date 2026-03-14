@@ -1,3 +1,145 @@
+###  Публикация: 1677824   (145763) от 21.11.2023
+
+Sarah Connor - Not So Silent Night (2022) The Cozy Edition, 2023, Polydor [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical, Vocal, Holiday>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jolly Time Of Year [00:02:02]
+02. Ring Out The Bells [00:03:59]
+03. Christmas Train (Destination Hope) [00:03:39]
+04. Not So Silent Night [00:02:45]Жанр: Pop, Classical, Vocal, HolidayПродолжительность: 2 CD, 02:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE11028372B27D176FED6D7BDB80643E71A3C9BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520015   (145332) от 26.12.2021
+
+Natasha St-Pier - Je n'ai que mon ame (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je n'ai que mon âme
+02. Vivre d’amour (feat. Anne Sila)
+03. Tu trouveras
+04. Jeter des fleurs(   Читать дальше...   )Жанр: Pop, French PopПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18DC71BC9F207F433F1875319B1E9B4C7C8DFC92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348178   (145276) от 27.12.2019
+
+Vision Mastermixers - Seventies Mixes (1995) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145276.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Seventies Mix Part One(28:37)
+1.1.	Countdown To The Hits
+1.2.	Boogie Nights/Funkytown
+1.3.	Video Killed The Radio Star(   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46EACA5618E362DF5308BB1B038B24A03E6B9E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348162   (145087) от 27.12.2019
+
+Vision Mastermixers - The Very Best 60s Megamix (1999) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Dance - Lee Chappell (1:23)/ I Get Around - Wilson (0:58)/ I Saw Her Standing There - Davies (1:36)/ You Really Got Me - Barry, Greenwich, Spector (1:02)/ Da Doo Ron Ron - E.Holland, L Dozier, B.Holland (1:08)/ Baby Love - Marriot, Lane (1:03)/ Lazy Sunday - Weiss, English (0:43)/ Hi Ho Silver Lining - Stewart (0:47)/ Daydream Believer - Various (0:56)/ (   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBFBF8FC6D90A592A994C9D2C85CEBFB09D5386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348424   (144898) от 27.12.2019
+
+VA - 100 Greatest Winter Songs (2019) [FLAC|Lossless|tracks] <Pop, Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтоб не замерзнуть в Новогоднюю ночь (хотя в некоторых местах нашей страны с морозами в этом году проблема, хотя другие области могут поделиться ими с теми, кому не хватает) в последние дни уходящего года Rhino выпустила такой вот сборничек больше чем на 6 часов звучания. Так что хватит до самого утра (если, конечно, сильно на шампанское не налегать). С наступающим (   Читать дальше...   )01. Fleet Foxes - White Winter Hymnal  (2:27)
+02. Damien Rice - The Blower's Daughter  (4:46)
+03. Luke Sital-Singh - New Slang  (3:19)
+04. Fay Wildhagen - promise, (From the Original Netflix Series "Home For Christmas")  (3:07)(   Читать дальше...   )Релиз состоялся: 20 декабря 2019 годаЖанр: Pop, Dance, ElectronicПродолжительность: 06:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68447EA1C614EBDEDF66BAAE94679C8CC7AB18C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435485   (144529) от 28.12.2020
 
 Alessi Brothers - Long Time Friends (1982) 2010, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Rock, Pop>
@@ -601,145 +743,6 @@ Gallina - 4 Альбома (2000 - 2010) [FLAC|Lossless|image + .cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A4E824B422D399AABF3A261A20E6EE3EC82B9E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824726   (136758) от 17.10.2025
-
-Duffy - Rockferry (2008) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Neo Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockferry [00:04:12]
-02. Warwick Avenue [00:03:46]
-03. Serious [00:04:10]
-04. Stepping Stone [00:03:29](   Читать дальше...   )Жанр: Neo SoulПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411DE8F297D0E955C78DF819851F9168813DEEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681080   (133513) от 01.12.2023
-
-Daisy Jones & The Six - AURORA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora (3:25)
-02. Let Me Down Easy (3:24)
-03. Kill You To Try (5:12)
-04. Two Against Three (3:53)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCE8DF1BB36F62D15493A5F080BD80CDD4A3599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595200   (132493) от 28.12.2012
-
-VA - 100 Hits 70's pop ( 100 Classic Tracks of the Decade ) (2009) 5CD Box Set[FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681765   (132376) от 04.12.2023
-
-Sia - This Is Acting (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bird Set Free
-02. Alive
-03. One Million Bullets
-04. Move Your Body(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121DC070CFCBCAF566638B8CD58F35BB44B6E989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681709   (132352) от 04.12.2023
-
-Baccara - Light My Fire (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Baby, Why Don't You Reach Out) Light My FireЖанр: PopПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B475FF3FFD7217781F0367DAAC692AEF20B4F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

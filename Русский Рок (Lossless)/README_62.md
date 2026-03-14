@@ -1,3 +1,148 @@
+###  Публикация: 1684967   (127398) от 17.12.2023
+
+Аэлита - Здесь и сейчас (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Засыпан город [00:02:37]
+02. Я смотрю в окно [00:02:49]
+03. Не весна [00:03:04]
+04. Грустно [00:03:40](   Читать дальше...   )Жанр: New Wave, Post PunkПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5BFCC3384077AA232166BADF74D0FC07C433BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684655   (127390) от 17.12.2023
+
+Стожар - Чёрным крылом (2023) [FLAC|Lossless|image + .cue] <Black Metal, Folk Metal, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Чёрным крылом	07:03
+02.	Лесная рать	04:56
+03.	Памяти талая вода	07:11
+04.	В оковах вековой зимы	06:47(   Читать дальше...   )Жанр: Black Metal, Folk Metal, Viking MetalПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD23DA7BEA95FA43AE95FEF640414FD4091E374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684989   (127386) от 17.12.2023
+
+Вайолет - Вавилон (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сонет 1. Четвёртое путешествие [00:00:54]
+02. Вечное предание [00:03:51]
+03. Вавилон [00:03:15]
+04. Замок изо льда [00:03:27](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBF7E7519CADCD05C40238E69A3BAEB48A61472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684802   (127378) от 17.12.2023
+
+Вывороть - Вывороть (2023) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Маска	07:49
+02.	Мясо	03:37
+03.	Ржа	05:22
+04.	Свора	05:47(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B29684DF14A9A0319CC9715C62BB35D217B484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684808   (127377) от 17.12.2023
+
+Impress - Враг не дремлет (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Crossover>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Эхо войны	03:38
+02.	Пленных не брать!	02:57
+03.	Ритуал	03:34
+04.	Дни штрафбата	03:12(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC61739ED3C3CDDBA4C21447446C7EF90790225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684993   (127368) от 17.12.2023
 
 Вайолет - Небесный господин (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
@@ -600,151 +745,6 @@ Zmey Gorynich - V​ж​и​ц​а (2022) [FLAC|Lossless|image + .cue] <Folk 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8137FE57834B95A8ED3A71C66018026D93351048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686642   (126245) от 24.12.2023
-
-Смута - Мара (2022) [FLAC|Lossless|image + .cue] <Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	К дому	02:18
-02.	Горечь полыни	05:35
-03.	Мой край	05:22
-04.	Белое солнце	04:05(   Читать дальше...   )Жанр: Pagan MetalПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0BD5F8A063984C3F553CAD96408D275D5B86A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686544   (126231) от 24.12.2023
-
-Шеду - На взводе (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Пожар (00:03:24)
-02 - Вместо перьев (00:03:48)
-03 - Тусклый свет (00:02:59)
-04 - Признание (00:03:33)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC55F56B4911A65622E2E678E28FB5B51EAD3DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686495   (126216) от 24.12.2023
-
-[Amatory] - ВПС 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Восковый дождь 2023 [00:02:18]
-02. Страница VI 2023 [00:03:56]
-03. Осколки 2023 [00:03:58]
-04. Вечно прячется судьба 2023 [00:03:16](   Читать дальше...   )Жанр: Metalcore, Nu Metal, Alternative RockПродолжительность: 00:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F2A035F8B271C794171AA7F72377818DD342C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686491   (126207) от 24.12.2023
-
-Ермен Анти - Чёрный карнавал (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здравствуй и прощай [00:04:03]
-02. Крутись веселей [00:03:12]
-03. Особый резон [00:05:53]
-04. Back in USSR [00:05:08](   Читать дальше...   )Жанр: RockПродолжительность: 00:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E56CA8CFFA5FBEA07451EA714AA069ED7ECD61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686614   (126190) от 24.12.2023
-
-Летальный Исход - Избыточная смертность (2022) [FLAC|Lossless|image + .cue] <Thrash Metal, Death Metal, Old School>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	На трон! (Intro)	00:52
-02.	Похороны бога	05:19
-03.	Самоистязание	04:54
-04.	Огонь	04:52(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Old SchoolПродолжительность: 00:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B885149864EF52A78717AE10400DFAE9EFFB20D
 ```
 
 https://mybot314.ru/tekegram_catalog/

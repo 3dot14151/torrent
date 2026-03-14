@@ -1,3 +1,119 @@
+###  Публикация: 209464   (954261) от 30.01.2016
+
+VA - Sax & Sex (2000) [APE|tracks+.cue]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954261.jpg" />
+</div>
+
+
+###  Подробнее
+
+О таком сочетании, наверное, мечтают многие. Sax & Sex - придыхание саксофона, контрабас терзающий низкую струну души, наплывающие волны оркестра - вам это ничего не напоминает? Нет? Тогда послушайте ещё раз этот диск и пусть в это время будет рядом любимый человек...01. Laura  (4:57)
+02. Feelings  (3:54)
+03.  Abrazame  (2:59)
+04. The Shadow Of Your Smile  (3:33)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089149   (953875) от 02.01.2017
+
+Joe Kool - Simple Meditation: The Art of Music, Vol. 1 (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Primary Sounds [00:04:23]
+02 -  Beauty [00:03:47]
+03 -  Generative Art [00:04:02]
+04 -  Gestural [00:04:05](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968750D667D123CBB05386865FA93CAE13E36219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088097   (953699) от 02.01.2017
+
+VA - Enigmatica vol. 1 (2001) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rapa Nui (Ethna) [06:38]
+02. Al Cairo's Night (L.C. Puma) [06:15]
+03. Enigmatica (Marah Cash) [05:51]
+04. Labirinth (Ost Kahly) [06:08](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A0A3267AE9832282F97FA1584E3E99246FA5BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088282   (953653) от 02.01.2017
+
+The Red Hot Chilli Pipers - Live At The Lake (2014) Live [MP3|320 Kbps] <Folk, World, Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Insomnia  (04:12) 
+02|  Gimme All Your Lovin'  (04:04) 
+03|  Silver Spear  (04:36) 
+04|  Thunderstruck  (02:04) (   Читать дальше...   )Жанр: Folk, World, RockПродолжительность: 02:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155B0A8C5C07B3B2D9C45A470606CD2EA64EDBE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088520   (953612) от 02.01.2017
 
 Abel Korzeniowski - Nocturnal Animals / Под покровом ночи (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -626,122 +742,6 @@ Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA332C058E3476838F74D99646FC7D6BD52C840F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362313   (949677) от 23.02.2020
-
-Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949677.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:32| 01. We Have a Fan Club?
-|04:19| 02. Entering Camp
-|03:03| 03. I Got Top Bunk
-|03:25| 04. Searching for Symbols(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C12E8C31AEC0D6E997ED7BE90FF735C89C8429E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362483   (949667) от 23.02.2020
-
-Gabriel Garrido Garcia - Etherborn (Original Game Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949667.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:15| 01. Main Title
-|01:38| 02. Birth
-|01:36| 03. The Endless Tree - First Vision
-|01:36| 04. The Endless Tree - Second Vision(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F88E061E39186459D8260160B397EF192FC959A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362293   (949611) от 23.02.2020
-
-Navid Hejazi - Mah (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949611.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:27| 01. Inicio
-|04:50| 02. Titulos / La Cueva
-|02:14| 03. Amenaza
-|02:45| 04. Guanarteme  / La Busqueda(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3360352637F04533FEF4BE1C7332ED1CE4EC6916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362287   (949607) от 23.02.2020
-
-Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949607.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:58| 01. Snow
-|01:11| 02. First Family Ski Run
-|01:19| 03. Morning Prep
-|00:34| 04. Second Ski Run(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518A2784B6F9997ABCE67ADE2C4AE1C0C745C134
 ```
 
 https://mybot314.ru/tekegram_catalog/

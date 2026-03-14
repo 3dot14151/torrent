@@ -1,3 +1,61 @@
+###  Публикация: 1563850   (502713) от 16.07.2022
+
+Supasonic Fuzz - Cobracadabra (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Cobracadabra
+02 Give Me Your Blood
+03 Pork Chop Express
+04 Echoestorm(   Читать дальше...   )Жанр: Heavy Rock, Psych, StonerПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1D170AD477C0AF539F168638BCAF9A8AFD1241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563915   (502616) от 16.07.2022
+
+Flying Colors & The Neal Morse Band - Morsefest 2019 (2021) 4xCD, Live [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502616.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Blue Ocean (07:38)
+ 02. A Place in Your World (07:10)
+ 03. More (06:52)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 04:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24135783B56D4BB055AD0555A1B18C73559897FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563845   (502610) от 16.07.2022
 
 Jeff Beck & Johnny Depp - 18 (2022) [MP3|320 Kbps] <Rock>
@@ -692,64 +750,6 @@ Regressor - Crescent Spoon (2022) [MP3|320 Kbps] <Progressive Rock, Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C38BB2AEE7FABC27BA61689E5D1E755BE43C18C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935683   (498506) от 09.09.2015
-
-VA - New Psychedelic Sound - Les Genies Du Rock - LSD (1993) [MP3|320 кб/с]<Garage Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Sickidz - LSD (2:38)
-02.  The Slickee Boys - Invisible People (3:33)
-03.  The Veceroys - 7 Come 11 (1:05)
-04.  The Shout - From Here (2:49)(   Читать дальше...   )Жанр: Garage Rock, Psychedelic RockПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC83E6AA7D88516943B9010296DBE58B3409542F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935679   (498459) от 09.09.2015
-
-VA - Rock in Australia - Les Genies du Rock - Rock In Australia (1993) [MP3|320 кб/с]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Surfin' in another direction (3:31)
-02.  Sleep and dream (3:42)
-03.  Too many girls (3:13)
-04.  St valentine's day (4:07)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267C4A1D68EDB08F95DBC1669DD3307C88BC98DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,170 @@
+###  Публикация: 1088834   (954919) от 01.01.2017
+
+Новогодняя Дискотека 80-х от Авторадио (2016-2017) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главное музыкальное событие года - Дискотека 80-х от Авторадио! С каждым годом фестиваль Авторадио становится все более масштабным. Сегодня Дискотека 80-х - не просто праздник поколения, возвращающий зрителей во времена их юности, а современное, неординарное и динамичное супершоу, привлекающее зрителей самых разных возрастов. В Новый Год мы имели возможность увидеть (   Читать дальше...   )Телекомпания: НТВ HDЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E433D2C7506C70BE123EE135D35509BE5CCDB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 623268   (954820) от 26.02.2013
+
+AC/DC - No Bull (2008) Blu-Ray [VC-1/1080p] [Directors Cut]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockФормат: BDMVПродолжительность: 02:03:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980936   (954667) от 30.01.2016
+
+VA - The Paris Concert For Amnesty International The Struggle Continues… (1999) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Artist - Opening Credits
+02. No Artist - Introduction Presenter – Anita Roddick
+03. Peter Gabriel, Tracy Chapman, Bruce Springsteen & Youssou N'Dour - Get Up, Stand Up
+04. No Artist - Animation Short - Keep The Light(   Читать дальше...   )Жанр: Alternative Rock, Classic Rock, AfricanПеревод: ОтсутствуетПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBDD3D3781DF536B9310A6F8CBA38C56F075D7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980587   (954445) от 30.01.2016
+
+Владимир Высоцкий - Кинохроника (2009-2010) DVDRip [H.264] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954445.jpg" />
+</div>
+
+
+###  Подробнее
+
+В "Кинохронику Владимир Высоцкий" вошли кадры, где Владимир Семенович поет, рассказывает о своей работе в театре, в кино, о музыке.
+Время не властно над памятью...
+Яркое тому подтверждение-неугасающий интерес к личности и творчеству Владимира Высоцкого. Три десятилетия, прошедших с момента его ухода из жизни, ничуть не отдалили во времени легендарный образ (   Читать дальше...   )Производство: Россия, "Ракурс" & "Квадро-Диск"Жанр: Документальный, Фильм-концертАктеры: Владимир ВысоцкийПродолжительность: 03:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677B1C9628CC5BA0C031BFDE3ABF8D745690DE2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980651   (954440) от 30.01.2016
+
+Cerrone - Culture (2004) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cerrone's Best Videos
+1	Hysteria
+2	Love In C Minor
+3	Cerrone's Paradise(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 173 min.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D13DC6C161B22105DC3D64C8FB13188D21E1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980628   (954431) от 30.01.2016
+
+VA - Зимний марафон № 222: Праздничный Зимний Хит (2015-2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (29.01.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Charli XCX - Boom Clap ( MTV Live) (Official Video) (00:02:55)
+02. Chris Young - Think of You (Duet with Cassadee Pope) (Official Video) (00:03:40)
+03. Di'Ja ft. BabyFresh - Take Kiss (Official Video) (00:04:13)
+04. DJ Sanny J Ft. Dangerous, Mike Kingz - Hot Shot (Official Video) (00:03:27)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, House, TranceПродолжительность: 01:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F2EDB357E283E5BDCF8D1FC9F6DF54FDE50C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088585   (953650) от 02.01.2017
 
 Volbeat & Amon Amarth - Rock am Ring (2016) HDTV [H.264/720p]
@@ -555,180 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B3798C0C12FC8975A95D07E7212AB46AD5D5E86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981782   (949881) от 02.02.2016
-
-VA – Fetenhits: The Real Classics (2002) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Janet Jackson - Rhythm Nation
-02. Cameo - Word Up
-03. Kool & The Gang - Celebration
-04. ABC - The Look Of Love(   Читать дальше...   )Жанр: Hi NRG, Pop Rock, DiscoПеревод: ОтсутствуетПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E6BCF894E8589E430A8D7CB7BA4F4808A35C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981645   (949811) от 02.02.2016
-
-Radiohead – 27 5 94 The Astoria London Live (1995, remastered 2005) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949811.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	You	3:48
-2	Bones	3:08
-3	Ripcord	3:17
-4	Blackstar	3:44(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8C91560ED61C57586AEC59B833C6E37B924FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981443   (949798) от 02.02.2016
-
-New Order - A Collection (2005) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949798.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Confusion
-2.The Perfect Kiss
-3.Shellshock
-4.State Of The Nation(   Читать дальше...   )Жанр: New Wave, Synth-pop, Indie RockПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CCFD2BC53A2B4E37C0AB14DED4EFEB96EF097B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982080   (949645) от 02.02.2016
-
-Joe Dassin - a Toi... Live a L'Olympia (1977) 2005 Sony&BMG, DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ouverture
-01. Le Musique
-02. Oh la la
-03. L'Ete Indien(   Читать дальше...   )Жанр: Pop RockПеревод: ОтсутствуетПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114E2369720A735033DC1335D4218B52718193DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981751   (949642) от 02.02.2016
-
-Radiohead - The Best Of (2008) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949642.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Creep	3:58
-2. Anyone Can Play Guitar	3:24
-3. Pop Is Dead	2:17
-4. Stop Whispering	4:09(   Читать дальше...   )Производство: Parlaphone  212 1079, 50999-212107-9-2, EuropeЖанр: Alternative Rock, Indie Rock, ExperimentalПродолжительность: 01:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F53F61AF5D074D1DD9763EAAFFD8B8CEEF22F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982050   (949634) от 02.02.2016
-
-Chris Rea – The Road To Hell & Back (2006) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzee Blue	(3:45)
-02. That's The Way It Goes (5:03)
-03. Where The Blues Come From (5:38)
-04. Josephine (5:08)(   Читать дальше...   )Жанр: Pop RockПеревод: ОтсутствуетПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B71EAA6521F3677308AF20CB5948D14BAD1E6C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

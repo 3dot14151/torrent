@@ -1,3 +1,90 @@
+###  Публикация: 1734674   (107055) от 05.07.2024
+
+Axty - Hannya (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore, Post-Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mugen [00:00:58]
+02. Take Me Down [00:03:41]
+03. Solitude [00:02:25]
+04. Relaxing Nature Sounds [00:02:43](   Читать дальше...   )Жанр: Nu-Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F479C34A6E9D99F6A08AE8E55A6B8E79EB64AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735153   (106957) от 07.07.2024
+
+Amongst Liars - By Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude
+02. Ready For This?
+03. You Are Not A Slave
+04. By Design (feat. Felin)(   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ACB391FD1D947BFFA012F33BEF8F35DFE948A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736022   (106729) от 11.07.2024
+
+James - 1999 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know What I'm Here For [00:03:57]
+02. All Good Boys [00:04:13]
+03. Imagine Ourselves [00:04:32]
+04. Stolen Horse [00:04:19](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82ECA89649E3319D4E325B0EDDAA31944E9091A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737965   (106424) от 20.07.2024
 
 OneRepublic - Artificial Paradise (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Pop Rock>
@@ -658,93 +745,6 @@ Bad Cop Bad Cop - Lighten Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:768E3AC806684AF34A7DE71FB8B4C80E13308FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822134   (100859) от 05.10.2025
-
-Coheed And Cambria - The Father of Make Believe (2025) New Entities Edition, Virgin Music Group[FLAC|Lossless|WEB-DL|tracks] <Alternative, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterday’s Lost [00:03:24]
-02. Goodbye, Sunshine [00:04:16]
-03. Searching for Tomorrow [00:03:33]
-04. The Father of Make Believe [00:04:39](   Читать дальше...   )Жанр: Alternative, Prog RockПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6533136995172D27DF8223722EB88195F7E82F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769014   (100702) от 27.12.2024
-
-Adrian von Ziegler - Of the Old World (2024) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Albion [5:34]
-02 - The Wanderer [4:33]
-03 - Ethelborn [2:42]
-04 - Tale of the Gaels [6:42](   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE56AAFFBA20E239610FB8447A7CFEA1701E40A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479376   (87014) от 07.04.2012
-
-The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conduct (5:10)
-02. Tomorrow (3:55)
-03. Fire & Soul (4:32)
-04. Raining In My Heart (3:27)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1417510   (353247) от 22.10.2020
+
+VA - Rock Classic Ballad: Special Performance (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Custard - Deliver Me
+002. Kaledon - Lilibeth
+003. Claymore - Crossroad Of Forever
+004. Winterstorm - Break The Ice(   Читать дальше...   )Жанр: RockПродолжительность: 07:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7024DF2F0AAE09E4774126EB59971849BD98EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179019   (350666) от 30.10.2017
 
 Сектор Газа - Незабываемые песни 3CD 1989-2000 (2017) DON Music [MP3|320 Kbps] <Punk Rock, Fusion>
@@ -718,35 +747,6 @@ VA - Жизнь и немного любви из русского рока-2 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15E8E8A329CB8DF961B0B231092D684E719C9A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844212   (318036) от 25.11.2014
-
-VA - 100 Hits Total Rock (2014) 5 CD (2014) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318036.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Disc:
-01 Meat Loaf - Bat Out of Hell (4:49)
-02 Alice Cooper - Poison (4:30)
-03 Boston - More Than a Feeling (3:29)(   Читать дальше...   )Жанр: RockПродолжительность: 06:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D1A24B592B67B6D2ABF8A2A5DAB53707B8A1B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

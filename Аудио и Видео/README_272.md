@@ -1,3 +1,32 @@
+###  Публикация: 1520349   (142278) от 28.12.2021
+
+VA - Pulse (Compiled by Serge Kraplya) (2021) [AAC|~319 Kbps] <Chill Out, Downtempo, Organic House, Ethnic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J. R. Haim, Cafe De Anatolia - Mirage (3:52)
+02. Rodrigo Gallardo, Cafe De Anatolia - Kameyama (6:49)
+03. Laroz, Cafe De Anatolia - Maiella (5:43)
+04. Khaikhan, Cafe De Anatolia - Our Family (6:49)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic House, EthnicПродолжительность: 02:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1F9AF6C23B9B34DA1FAB9185901DA22FF2EB42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520262   (142230) от 28.12.2021
 
 VA - Deep Blue Sea, Vol. 1: Deep Ambient Moods (2013) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
@@ -674,32 +703,6 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65818C06F297B38D0D83AAD07C246AD317F266D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348895   (140657) от 29.12.2019
-
-Zомбилэнд: Контрольный выстрел / Zombieland: Double Tap (2019) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беспощадная и бесстрашная четверка охотников на зомби продолжает свое путешествие в глубь страны. На этот раз им предстоит сразиться не только с новыми видами живых мертвецов, но и познакомиться с другими выжившими. Кроме того, в собственных рядах наших героев намечается серьезный разлад.Производство: США / Columbia Pictures, PariahЖанр: Ужасы, комедия, боевикРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Эмма Стоун, Эбигейл Бреслин, Зои Дойч, Эван Джогиа, Розарио Доусон, Люк Уилсон, Томас Миддлдитч, Виктория ХоллПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Full), английские (Forced, Full)Продолжительность: 01:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D392641950C15610135143120BAF734CA5631EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

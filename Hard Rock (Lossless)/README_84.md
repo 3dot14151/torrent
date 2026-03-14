@@ -1,3 +1,119 @@
+###  Публикация: 1671298   (171399) от 24.10.2023
+
+Sixty Nine Crash - Songs Of Love & Fury (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creatures Of The Night (3:31)
+02. I'd Die For You (4:33)
+03. Purple Rain (5:39)
+04. Rebel Yell (5:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:22:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9758D3ADD3B2AC8F0AD1F7CF30BC7BFEAEFF172A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671297   (171393) от 24.10.2023
+
+Alex Destruction - A Tribute To Guns N' Roses Greatest (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Cry (4:28)
+02. It's So Easy (3:19)
+03. Civil War (7:28)
+04. Knockin' On Heaven's Door (5:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4672853CD1DC30E925FD67DFDAE00112DB1485FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430486   (170747) от 10.12.2020
+
+Shakra - High Noon (2016) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170747.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hello [4:16]
+ 2. High Noon [5:06]
+ 3. Into Your Heart [3:56]
+ 4. Around the World [4:25](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9AD903E319BD260862A63E1D91C488EFD3BBB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596267   (170525) от 09.12.2022
+
+IT'sALIE - Emosphere (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breath Of Fire
+02. Unbroken
+03. Beyond Revenge
+04. Moonchild(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C802A1A5C34D146B4404EEAC5AC81AA9A84008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596313   (170500) от 09.12.2022
 
 Sabu - Banshee (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +745,6 @@ Land Of Gypsies - Land Of Gypsies (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22CE1C38D06C0E79BE122B99B1AD4DA83E0F5395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516288   (166975) от 10.12.2021
-
-Kaasin - Fired Up (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are One 05:01
-02. Hidden 04:01
-03. The Smoking Gun 04:30
-04. Carry On 04:52(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB1373F6B66BD35093C7195D679E111B89D5CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597177   (166920) от 14.12.2022
-
-Fuzzerati - Zwo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Psych, Stoner, Space>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude [00:03:31]
-02. Claus To Hedge [00:13:00]
-03. Transmission [00:07:00]
-04. Spacewalk [00:10:03](   Читать дальше...   )Жанр: Heavy, Psych, Stoner, SpaceПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4CCD10E6DF528F4836E101CFA6B96DFD74BDA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597310   (166916) от 14.12.2022
-
-Loud Solution - Throwback (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Times [00:04:30]
-02. Face to Face [00:04:46]
-03. Amid My Heart [00:04:37]
-04. Not Provided [00:03:47](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60EF5B02EF6484C33B93863DADE66487552BCED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345376   (166696) от 15.12.2019
-
-Glorious Bankrobbers - Glorious Bankrobbers (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166696.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Psycho Asshole
-2 Too Much
-3 More And More
-4 Young Alcoholic "Part 1"(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85DDD8FFF60AB196FBC796B2ED687AA5564EA1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

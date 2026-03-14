@@ -1,3 +1,61 @@
+###  Публикация: 954613   (339478) от 08.11.2015
+
+Lara Fabian - Ma vie dans la tienne (2015) [MP3|320 кб/с]<Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quand je ne chante pas
+ 02. Ma vie dans la tienne
+ 03. Le desamour
+ 04. S'il ne reste qu'un ami(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8518A595AC4389EBB115EAE2F69B85EAB2D377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 101190   (339217) от 28.10.2020
+
+Джо Дассен (Joe Dassin) - Gold (1995) 2CD [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339217.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01-Bip-Bip
+02-L'Amerique
+03-L'ete Indien(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F0E31BBEDCD7616A31D7523AC5ECF8F4B24DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330747   (339100) от 11.10.2019
 
 Dominique Guiot - L'Univers De La Mer (1978) LP [MP3|320 Kbps] <Electronic, Leftfield, Synthpop, Ambient>
@@ -688,64 +746,6 @@ Justin Bieber - Purpose (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59509478D5794A8C2D584581328267F6EBF10666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957192   (328416) от 16.11.2015
-
-Anne Harris - Come Hither (2015) [MP3|320 кб/с]<Alternative Pop, Contemporary Blues, Americana>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken
-02. Waves (With Otis Taylor)
-03. Giddy Up (With Chuck Campbell)
-04. Fallen (With Nikki Lynette)(   Читать дальше...   )Жанр: Alternative Pop, Contemporary Blues, AmericanaПродолжительность: 00:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6376269EFE5DF88F99455F1B1F51726C69BA0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957193   (328359) от 16.11.2015
-
-One Direction - Made In The A.M. (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Angel
-02. Drag Me Down
-03. Perfect
-04. Infinity(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A3959C0A5FE9F39347CC46C0F25F34372FDCB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

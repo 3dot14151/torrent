@@ -1,3 +1,125 @@
+###  Публикация: 181970   (904730) от 10.03.2010
+
+Океан Ельзи - Dolce Vita (2010) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Онлайн (3:52)
+02. Небо над Дніпром (4:17)
+03. Надя (3:56)
+04. Я так хочу... (4:42)
+05. На лінії вогню (3:01)
+06. Більше для нас (3:30)
+07. Ордени (3:49)
+08. З тобою (3:05)
+09. Ще один день (4:13)
+10. Королева (4:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369283   (903809) от 23.03.2020
+
+Frostnatt - Den Russiske Tomheten (2020) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal, Instrumental, Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overvintre (5:34)
+02. Innesnødd (3:39)
+03. Den Russiske Tomheten (2:57)
+04. Fjern og tom (4:12)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Instrumental, Post-Black MetalПродолжительность: 00:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDD42EA7C8D9CDBE16175D4A9D086AAC4631F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637191   (900399) от 31.03.2013
+
+Аркона - 10 лет во Славу (2013) 3CD, Live [FLAC|Lossless]<Pagan/Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Коляда
+02. Масленица
+03. По сырой земле
+04. Стенка на стенку(   Читать дальше...   )Жанр: Pagan / Folk Metal |Продолжительность: 00:54:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992940   (898809) от 03.03.2016
+
+Ноль - Лучшие песни (1998) Unofficial Release, Compilation [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Иду,курю" 03:38
+ 02. "Это русский Rock-n-Roll" 05:28
+ 03. "Человек и кошка" 03:57
+ 04. "Песня о настоящем индейце" 04:32(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574C7B645D1977284ABD386CA36B08BD0FA47AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203887   (898765) от 01.09.2021
 
 VA - Песни простого человека. Трибьют группе «Зоопарк» (2018) [FLAC|Lossless|image + .cue] <Rock>
@@ -626,122 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75E28A5A8A58DC348F140331C317C99B83916121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997344   (875465) от 16.03.2016
-
-Владимиров & Чиж & Co - На Грани Изумруда (2007) [FLAC|Lossless|tracks + .cue] <Blues Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белая звезда (5:25)
-02. Бронзовая птица (3:48)
-03. Фонарик (3:02)
-04. Кошки (5:00)(   Читать дальше...   )Жанр: Blues Rock, Soft RockПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8F059C52956562F7F76AFA0479719E6350F01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997326   (875339) от 16.03.2016
-
-VA - Радио 101: Живая акустика (1997) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Никольский Константин - Я сам из тех.. (2:28)
-02. Сюткин и Ко - Ночной связной (4:28)
-03. Кузьмин Владимир - Подогрей мне молока (5:16)
-04. Nautilus Pompilius - Прогулки по воде (4:45)(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631127BE55FFB32315C739F8D3738E44AF68829E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997580   (873904) от 17.03.2016
-
-GAiNA - С Кем Ты Играешь И Поёшь?! (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время (3:24)
-02. Это Твой День (4:03)
-03. С Кем Ты Играешь И Поёшь?! (3:58)
-04. Кануло В Лету (4:40)(   Читать дальше...   )Жанр: Alternative Rock, Heavy MetalПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FD6AFD4AF61327C97D0E3F6FA4ED11D5DD1AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997568   (873842) от 17.03.2016
-
-2ва Самолета - Подруга Подкинула Проблем (2000) [FLAC|Lossless|tracks + .cue] <Ska, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Небесное пиво (4:41)
-02. Жизнь запарка (2:55)
-03. Александр Македонский (3:40)
-04. Мамочка в крыжовнике (3:21)(   Читать дальше...   )Жанр: Ska, Pop RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CAE507B37E577FED8B176A1C5FC5FAA4F005C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,149 @@
+###  Публикация: 1666384   (179032) от 05.10.2023
+
+Nocturnal Abbey - The great blackened swan (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic, Doom Metal, Female Vocals>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The tears that never dry (feat. Rebekka) (07:31)
+02. Funerals empty chairs (feat. Ren Prior-White) (04:19)
+03. My throne in darkness (feat. Rebekka & JP Cathartic) (05:59)
+04. The great blackened swan (feat. Rebekka & JP Cathartic) (05:32)(   Читать дальше...   )Жанр: Gothic, Doom Metal, Female VocalsПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CCD8929EA98D67C569DB5091DFD3A0277D8AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666746   (178953) от 05.10.2023
+
+Scar Symmetry - Studio Albums (7 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scar Symmetry — шведская мелодик дэт-метал группа из Авесты, сформирована в 2004 году.
+Своеобразной «визитной карточкой» группы является очень широкое использование клавишных и синтезаторов вкупе с тяжёлыми гитарами и мощной ритм-секцией.2005 - Symmetric in Design
+2006 - Pitch Black Progress
+2008 - Holographic Universe
+2009 - Dark Matter DimensionsЖанр: Melodic Death/Groove MetalПродолжительность: 06:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB566CF7549519A280FE23102EB2B5BF8698DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666729   (178949) от 05.10.2023
+
+Dogstar - Somewhere Between the Power Lines and Palm Trees (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blonde (3:19)
+02. How the Story Ends (3:15)
+03. Everything Turns Around (3:01)
+04. Overhang (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88924F057B3962335161189CF7F1997E653AC8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666160   (178851) от 05.10.2023
+
+Prince & The New Power Generation - Diamonds and Pearls (1991) Remaster, 2023,  Warner Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary R&B, New Jack Swing, Funk, Minneapolis  ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunder (2023 Remaster) [00:05:44]
+02. Daddy Pop (2023 Remaster) [00:05:16]
+03. Diamonds and Pearls (2023 Remaster) [00:04:42]
+04. Cream (2023 Remaster) [00:04:12](   Читать дальше...   )Жанр: Contemporary R&B, New Jack Swing, Funk, Minneapolis SoundПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FB828F3EFD453B7F826A32B400FC17D1412EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666705   (178702) от 05.10.2023
+
+Roger Waters - The Dark Side of the Moon Redux (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak to Me (1:54)
+02. Breathe (3:22)
+03. On the Run (3:47)
+04. Time (7:19)(   Читать дальше...   )Жанр: Art rockПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB374DA11B30FD4DFC551E66D20609C1CC6C6BA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666723   (178421) от 06.10.2023
 
 Svalbard - The Weight Of The Mask (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-metal>
@@ -601,149 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D01822FF13DE433B4100F1E1E46B6215FB5735A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667708   (176155) от 09.10.2023
-
-Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic rock, progressive rock, acid rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. With My Mind (4:40)
-02. Used To Feel Before (4:06)
-03. I'm Not The One (3:47)
-04. Fire (3:06)(   Читать дальше...   )Жанр: Psychedelic rock, progressive rock, acid rockПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF158D4A9E163583DC8F821D3261D425F69062C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667709   (176145) от 09.10.2023
-
-Eradikated - Descendants (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unleash (3:16)
-02. Flood (2:39)
-03. Drought (3:24)
-04. Descendants (3:29)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7079EEE9BF6A350E91E924604FBEC4F3A49841E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667700   (176141) от 09.10.2023
-
-Kingston Wall - II (1993) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic rock, progressive rock, acid rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Cannot Move (4:45)
-02. Ištwan (3:59)
-03. Could It Be So? (5:55)
-04. And It's All Happening (6:20)(   Читать дальше...   )Жанр: Psychedelic rock, progressive rock, acid rockПродолжительность: 01:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E91D7024EE21A4CC2A2B4306784F6BB603CF8F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667818   (176139) от 09.10.2023
-
-Psygnosis - AAliens (2015) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176139.jpg" />
-</div>
-
-
-###  Подробнее
-
-A - FIIIX 3.0
-B - Man Ov SteelЖанр: Industrial, Progressive Death MetalПродолжительность: 00:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECD61F490627987AC99F4D9587F97C78D9D5D4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595313   (176126) от 04.12.2022
-
-Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nuclear Assault — американская трэш-метал/кроссовер-трэш группа, основанная в 1984 году бас-гитаристом Anthrax Дэнни Лилкером.1986 - Game Over + The Plague (EP)
-1988 - Survive
-1989 - Handle With Care
-1991 - Out Of OrderЖанр: Thrash MetalПродолжительность: 04:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619312F4DD4A8BFE0F4CFA248B4EDE18D121009F
 ```
 
 https://mybot314.ru/tekegram_catalog/

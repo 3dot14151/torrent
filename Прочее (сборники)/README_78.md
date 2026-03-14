@@ -1,3 +1,32 @@
+###  Публикация: 1143275   (637467) от 17.06.2017
+
+VA - Empire Records - Retromania 3 (2017) [MP3|320 Kbps] <Nu Disco, Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cristian Ferrer feat. Chelsea West - You're The One (Vicent Ballester Remix)  5:45
+02.  NekliFF & Mary S.K. - Parallel Life (Original Mix)  5:24
+03.  Mr. DJ Monj - Smoke Machine (Nikko Culture Remix)  4:38
+04.  Sandy Rivera feat. DaNii - You Work Hard For Your Enemy (Extended Mix)  5:51(   Читать дальше...   )Жанр: Nu Disco, Deep HouseПродолжительность: 02:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140374D3E4DB2B1069E3C54473006B8C1BBFD7BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519390   (637348) от 06.07.2012
 
 VA - Blues & Rock Ballads (2012) [MP3|320 кб/с]<Blues, Rock>
@@ -740,35 +769,6 @@ VA - Car Audio. Жаркий уикенд. Sound Clinic - Special Edition (2015)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE06FEFE1908BA505F2281A3DE483B0A679118DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294097   (631866) от 06.04.2019
-
-VA - The Official UK Top 40 Singles Chart 05.04.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved
-02. Billie Eilish - bad guy
-03. Calvin Harris, Rag'n'Bone Man - Giant
-04. Tom Walker - Just You and I(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FCCB2347031BEAC5DF76CAE9D7FDCF467C97C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

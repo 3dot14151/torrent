@@ -1,3 +1,151 @@
+###  Публикация: 1082282   (278409) от 12.12.2016
+
+Didier Marouani - Space Opera (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part 1 (4:41)
+02. Part 2 (2:53)
+03. Part 3 (3:51)
+04. Part 4 (Save Our Soul) (4:44)(   Читать дальше...   )Производство: Мелодия АЗГ - A60 00381 006Жанр: ElectronicПродолжительность: 00:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8E74D059D9D1D194B982BBB5F1DBBC622D4D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265026   (277512) от 25.11.2018
+
+The Beatles - The Beatles (The White Album) (1968) 2018 [DTS 5.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+
+01. Back In the U.S.S.R. (2018 Mix) (02:43)
+02. Dear Prudence (2018 Mix) (03:54)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:46:22+00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F94FFA013B5FB469E7AE227056FD8FCEDC8C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083119   (274502) от 15.12.2016
+
+Братья Жемчужные - Я решил жениться (1994) Запись 1974 г. [FLAC 2.0|44,1/16|tracks|MC-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я решил жениться
+02. Поезд ехал на Восток
+03. Госпожа Разлука
+04. Школа бальных танцев(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:51
+Страна-производитель: Russia
+Номер по каталогу: none
+Кодек: FLAC (tracks)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D41A13F515B30E2E89B5773073B480A36480D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083755   (273474) от 16.12.2016
+
+Yello - You Gotta Say Yes To Another Excess (1983) 1984, Stiff Records [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273474.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. I Love You (3:25)
+A2. Lost Again  (4:19)
+A3. No More Words  (3:58)
+A4. Crash Dance  (2:09)(   Читать дальше...   )Производство: Stiff Records - STLP/1017Жанр: ElectronicПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3650B4A4BD311C3AC47AA26CDBBBC25CB4387D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188812   (273346) от 03.12.2017
+
+VA - На теплоходе музыка играет. Песни В. Добрынина (1989) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. О. Зарубина - На Теплоходе Музыка Играет
+02. А. Серов - Пустыня
+03. ЧП - Жила-Была Речка
+04. Н. Гнатюк - Папа И Мама(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324FB79EF7A443BA48C008F1CACFD22DC62CDA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188830   (273235) от 03.12.2017
 
 VA - Синий Туман. Песни В. Добрынина (1989) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop>
@@ -599,151 +747,6 @@ A4 Walk Like An Egyptian(   Читать дальше...   )Жанр: Pop RockП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF45F2685B4E84CE299C188819A9317B1595CA24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625837   (255306) от 11.04.2023
-
-Bucks Fizz - Are You Ready? (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255306.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 My Camera Never Lies
-A2 Easy Love
-A3 Love Dies Hard
-A4 One Way Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9FB27FB7B766CE67C7225563D6F90135AB16C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625753   (255302) от 11.04.2023
-
-Bucks Fizz - I Hear Talk (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<BritPop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-
-1. I hear talk 4:34
-2. Indebted to you 4:29(   Читать дальше...   )Жанр: BritPopПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4674BBA0A4F84D34D90A498E5DA0BD4B4B02F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625760   (255300) от 11.04.2023
-
-Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255300.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Waiting On The Border Line (3:46)
-A2. How Do You Feel Now (4:51)
-A3. Back To The Wall (5:12)
-A4. Highway For Fools (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D11ACF87861C2638EE19720840D93F40467BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625644   (255296) от 11.04.2023
-
-Brutus (Belgian) - Studio Albums (5 releases) (2015-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Rock, Math Rock, Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brutus — бельгийская рок-группа из провинции Фламандский Брабант, образованная в 2013 году.2015 - Brutu Guru (EP)
-2015 - Major / Bye Julia (Triptych EP)
-2017 - Burst
-2019 - NestЖанр: Progressive Rock, Math Rock, Punk RockПродолжительность: 02:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68979C160500C384C777A225E50F5DEED984C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625981   (255266) от 12.04.2023
-
-Bucks Fizz - Hand Cut (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255266.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Run For Your Life 4:08
-A2 10, 9, 8, 7, 6, 5, 4  4:24
-A3 I Do It All For You 4:04
-A4 Where The Ending Starts 3:48(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720C605DE80BE1B08DFCEC547486DF8D45F147DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

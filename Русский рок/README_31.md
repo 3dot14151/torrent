@@ -1,3 +1,90 @@
+###  Публикация: 1389763   (783894) от 12.06.2020
+
+Мумий Тролль - Лето без интернета (2020) Maxi-Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783894.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мумий Тролль - Лето без интернета
+2. iX - Off the Grid
+3. SHEEP - Summer
+4. Carnaval Youth - Vasara bez internetiem(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FD33AEB90FB5ACD0949B9CC3249F9A465EB395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205777   (783242) от 11.02.2018
+
+EXE (ЭКЗЕ, ЭКЗЭ, ЭКЗЕРСИС) - Авантюра (1992) [MP3|320 Kbps] <Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пробуждение
+02. Серенада
+03. Свидание
+04. Ностальгия(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC393F9335F61968EF7B32EDDEA65AEE652991B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205955   (782933) от 12.02.2018
+
+ОБЕ-РЕК - Ламповый (2017) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты
+02. Поезда
+03. Лучший из миров
+04. Теряю веру(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B1E46ACE96EF19D648827A5F24F467995BE321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 199463   (782761) от 10.05.2010
 
 Карнавал - Легенды Русского Рока (1997) [MP3|320 kbps]<Rock>
@@ -663,90 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E745CECFA895ABB59A6FF533C50B67907B41938D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012863   (778260) от 02.05.2016
-
-Фёдор Чистяков - Без Дураков (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_778260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня одноглазого пирата
-02. Ордер на арест
-03. Джеймс Бонд
-04. Дефолт(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:102AB08AA8C3743FF863F1791237A6D79142CFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211114   (778102) от 05.03.2018
-
-АнимациЯ - Коррупция (2018) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778102.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. КоррупцияЖанр: RockПродолжительность: 00:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3014FEDE3CE608FB39F6EDE5E94F1E608E16211B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013303   (777982) от 03.05.2016
-
-Упалинаушиs - Прогресс (2016) [MP3|320 кб/с] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Непринуждённо
-02. Фотографии
-03. Подожди (Притормози)
-04. Радио бесконечность(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65004A34DDD7165F424AAE07D0E0F8AAC8F37D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

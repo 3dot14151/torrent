@@ -1,3 +1,154 @@
+###  Публикация: 1230747   (612335) от 14.06.2018
+
+Rhonda Mackert - Time Not Forgotten (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Dancing Through My Memories
+02 – Walking Among Giants
+03 – Time Not Forgotten
+04 – Molokini(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395C364B4833C72BFC690B01B0CB03BD9866CD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912092   (612290) от 25.06.2015
+
+Jean Michel Jarre - The Best Of (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Industrial Revolution-Ouverture
+02. Industrial Revolution part 1
+03. Industrial Revolution part 2
+04. Industrial Revolution part 3(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 02:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060B9B0D06C6BAD2E7A256097B7CD50C4E0F274E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037477   (612029) от 25.07.2016
+
+VA - Phenomena (1985/1997) 2CD [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phenomena
+02. Jennifer
+03. The Wind
+04. Sleepwalking(   Читать дальше...   )Жанр: OSTПродолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A5231D247AA17CED7DA0AF0AADDE53AA300637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037854   (611773) от 25.07.2016
+
+Claude Ciari - La Playa (Platinum Best)2CD (2013) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Playa
+02. Solenzara
+03. Recuerdos De La Alhanbra
+04. Marina Elena(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3490671A0FEFACC12BBF38EE5163032D447FD1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 221943   (611421) от 26.07.2010
+
+VA - Chillout Best Session (2008) [MP3|320 kbps]<Electronic, ChillOut, Ambient, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_611421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Tyrello - Infinity, Eternity, Extasy
+02. Code 14 - No Limits
+03. Jason Tyrello - Rain Sunday
+04. Hipnotic - Share Your Dreams
+05. Jason Tyrello - What The Memories Say
+06. Mahoroba - Le Monde
+07. Dreamscape - Khamsin
+08. Plasma - Under Control
+09. Hipnotic - Past Present Future
+10. Silent Voices - Turn The Light 2 Eternity(   Читать дальше...   )Жанр: Electronic, ChillOut, Ambient, EnigmaticПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545839   (611234) от 21.04.2022
 
 Faun - Pagan (2022) [MP3|320 Kbps] <Folk, Medieval>
@@ -630,157 +781,6 @@ VA - Romantic Moods Of The Great Instrumentalists (2000) [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFB35EACF82EEC982F34C586135CCC7204B6857C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525197   (607330) от 21.07.2012
-
-Прометей / Prometheus (2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 A Planet
-02 Going In
-03 Engineers
-04 Life
-05 Weyland
-06 Discovery
-07 Not Human
-08 Too Close
-09 Try Harder
-10 David(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B78F3D6352601A82290B9793F21336DDDABC233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913273   (607089) от 28.06.2015
-
-Navajo - Native American Dance Trance (2000) [MP3|320 кб/с]<Native American, World, Ethno, Trance>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Star Of Cherokee (5:05)
-02. Song Of The Red River (Creek) (5:12)
-03. Sun Of The Desert (Choctaw) (5:28)
-04. Rainbow Song (Chickasaw) (5:33)(   Читать дальше...   )Жанр: Native American, World, Ethno, TranceПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6882FEE6374A220698349E00395C46004131E5E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296564   (606793) от 20.04.2019
-
-T Bone Burnett - The Criminal Under My Own Hat (1992) Reissue 2003 [FLAC|Lossless|tracks + .cue] <Blues Rock, Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over You (02:20)
-02. Tear This Building Down (04:37)
-03. It's Not Too Late (04:27)
-04. Humans From Earth (02:49)(   Читать дальше...   )Жанр: Blues Rock, Folk RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD559FE3DFC91CDD9158B2C343A9C5E1A5205CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038010   (606601) от 28.07.2016
-
-Klaus Schulze's U.S.O. - Privée (2016) [MP3|320 Kbps] <Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Keyhole 4:02
-02. Privat 19:05
-03. Privée 16:43
-04. Private 25:01(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7DCD4D2A02B39FE49B9C7D3BC11196B48538E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546698   (604487) от 25.04.2022
-
-Ginger Wildheart - The Pessimist's Companion (2018) Remastered, 2022, Wicked Cool Records [FLAC 2.0|48/24|WEB-DL|tracks] <Country Rock>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Aye (Oh You) (3:36)
-02. I Love You so Much I'm Leaving (2:56)
-03. In Reverse (3:28)
-04. You Will Let Me Down Again (2:39)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7999677C9D0D5851B2912C895EE49B8397EA5B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 950915   (367286) от 27.10.2015
+
+Проекты - VideoHive - Cartoon Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления вашего логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A49CA98D26F729382AC953787EBECC332775C0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950723   (367278) от 27.10.2015
 
 Проекты - VideoHive - Simple Design Elements Logo Sting [AEP]
@@ -651,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2A483B199026B01CB19957415CCDE1D1BCB32CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328267   (365094) от 29.09.2019
-
-Скрипты - VideoHive - Explainer Video Toolkit 4.2 - 22594089 [FFX, JSX]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Explainer Video Toolkit 4.2 - самый большой шаблон для создания анимационных видео. В отличии от предыдущих версий, в этом шаблоне упрощена установка, теперь не надо возиться с файлом DUIK.Формат: FFX, JSX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF41B06BE788662412E03E4BDE3F98E8B44B785A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,199 @@
+###  Публикация: 818488   (539475) от 04.09.2014
+
+Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T.I. & Lil Wayne - Wit Me
+02. Ciara Feat. Nicki Minaj - I'm Out
+03. Tinie Tempah Feat. 2 Chainz - Trampoline
+04. Jay Sean Feat. Rick Ross - Mars(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FC65D9F6E97D52CE52949A38E90E600412E1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818371   (539467) от 04.09.2014
+
+Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicki Minaj - Pound The Alarm
+02. Timbaland Feat. Ne-Yo - Hands In The Air
+03. Tulisa - Young
+04. Alexandra Burke - Let It Go(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45ACA999CED0157B17C1D13A94344CACC2A4800E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924887   (536924) от 08.08.2015
+
+Сборник видеоклипов -  русские  Хиты (2015) HDTVRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов -  русские  ХитыЖанр: PopПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD118C680525476A2906409415B26F87EBFDC26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 695887   (535896) от 05.09.2013
+
+Сборник клипов - VA - Various Music part. 45 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535896.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Akcent feat. Dollarman - Spanish Lover 2K13 (Notrack edit) (VJ Tony Video Edit) 1080p (3:25)
+2. Alex Gaudino feat. Mario - Beautiful 1080p (3:44)
+3. Alex Hepburn - Under 1080p (4:07)
+4. Alexander Popov - Moscow Subway 1080p (3:45)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C85D6E9034D4CB586502D45F804C8DC8F6AAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365183   (534476) от 24.07.2011
+
+Queen - Greatest Flix I & II LDRip Edition [2011г.; Full Version with Bonus; Good Quality][Rock][LDRip][2xDVD9]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта двухдисковая версия Greatest Flix I & II - является качественным аппаратным LDRip'ом, сделанным при помощиЖанр: МузыкаПеревод: Не требуетсяФормат: 2xDVD9Продолжительность: DVD1 - 1:13:24 + 0:17:34; DVD2 - 1:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8629057C37CD770ACD1AE1B46FDAEF05FC44F1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926553   (533322) от 10.08.2015
+
+VA - Летний марафон № 181 / Видеоклипы (Коктейль Зарубежных Новинок) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (10.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alen Hit - My Heart Is Broken (Official Video) (00:04:19)
+2. Aly & Fila with SkyPatrol ft. Sue McLaren Running (Official Video) (00:05:39)
+3. Andrei Leonte - Hesitate To Love (Official Video) (00:03:07)
+4. Austin Mahone - Dirty Work (Official Video) (00:05:12)(   Читать дальше...   )Жанр: Pop, Dance, Latino, House, Indie, Chill OutПродолжительность: 01:35:25 + 00.03.56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9588241D8693541E689D7125CBA78D3362C619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926442   (533108) от 10.08.2015
+
+NikitA - Avocado (2012) MasterRip [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солистки группы «NikitA» вооружены красотой и сексуальностью, и очень опасны!
+Дария Астафьева – главная «playmate» журнала «Playboy». Титул «девушки Playboy» Даша завоевывыла дважды: первый раз – у себя на родине в Украине, второй – в США, став главной юбилейной «рlaymate» в честь 55-летия американского издания «Playboy».
+Анастасия – певица, танцовщица, мастер спорта (   Читать дальше...   )Жанр: PopПродолжительность: 00:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD01C1ADC09B18680F161E280E32F0C24A869F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533605   (532748) от 10.08.2012
 
 Sak Noel - Where? (I lost my underwear) (2012) [H.264/1080p] WEBRip
@@ -529,191 +725,6 @@ Maria Lapiedra - Tapame, Tapame (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A20664FA32F15F0ABE8D307119C2BB21827F38D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537924   (509693) от 23.08.2012
-
-Merlin Milles ft. Rene Rodrigezz ft. Sigi Di Collini - Time 2 Wake Up (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59117D2670C996059562B2FF76F66E815B953E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537920   (509642) от 23.08.2012
-
-Alex Ferarri - Bara Bara Bere Bere (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73BF4239372819909194FA784A0925981A78BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932528   (506906) от 31.08.2015
-
-VA - Летний марафон № 186 / Видеоклипы (Самые Танцевальные Хиты) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (29.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Anahí ft. Wisin - Rumba (Official Video) (00:03:35)
-2. Anca Pop - Sugar (originally by Maroon 5) (Official Video) (00:03:39)
-3. Carrie Underwood - Smoke Break (Official Video) (00:03:35)
-4. Charlie - Ghosts (Official Video) (00:03:41)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, SoulПродолжительность: 01:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B984E0843C3D9E0D084CF07EF193B5FFDE3681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539439   (506662) от 26.08.2012
-
-Diplo feat. Lazerdisk Party Sex - Set It Off (2012) [H.264] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: HouseПродолжительность: 00:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2744D304F2AB8D2312A87695ECE6251AD6C753B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378929   (504452) от 23.08.2011
-
-Lady Gaga - Yoü And I  (2011) HDTVRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипРежиссер: Леди ГаГа, Лори Энн Гибсон, Haus of GaGaПродолжительность: 00:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CFC11E3808E9FAE168BEFDFFF03B64695FF0D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540431   (503709) от 29.08.2012
-
-Dash Berlin feat. Emma Hewitt - Like Spinning Plates (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2CB029803C663DDB0DF808829F814DEEF305B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540427   (503400) от 29.08.2012
-
-Chris Parker - Symphony (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClubПродолжительность: 00:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897124E7B47BA8019445C233797FBF159BD84BFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

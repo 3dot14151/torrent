@@ -1,3 +1,119 @@
+###  Публикация: 1196121   (825797) от 01.01.2018
+
+VA - Песни Виктора Дорохина и Любови Воропаевой - Девочка Моя Синеглазая (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Vinyl-Rip] <Pop, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825797.jpg" />
+</div>
+
+
+###  Подробнее
+
+[6:18] 01. Евгений Белоусов - Девочка моя синеглазая
+[4:55] 02. Екатерина Семенова - Мужчина, который спешит
+[4:00] 03. Евгений Белоусов - Алушта
+[4:11] 04. Екатерина Семенова - На минутку(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA940BC928DDC3F906FF8072977DFBCCC6CAFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116120   (824358) от 19.03.2017
+
+Bonnie Tyler - Natural Force (1978) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Pop Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824358.jpg" />
+</div>
+
+
+###  Подробнее
+
+side A
+A1 It's A Heartache
+A2 Blame Me
+A3 Living For The City(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2906884ADBF37668CA2AD34CEE6069019342E8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116642   (822065) от 20.03.2017
+
+Depeche Mode - Spirit (2017) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Synth-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822065.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Going Backwards (5:43)
+ A2. Where's The Revolution (4:59)
+ A3. The Worst Crime (3:48)
+ A4. Scum (3:14)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CEC420DC3E5414FF59DA2B5823983FE25E3B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117793   (816626) от 23.03.2017
+
+Rainbow - Bent Out Of Shape (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816626.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Stranded (4:30)
+A2. Can't Let You Go (4:22)
+A3. Fool For The Night (4:04)
+A4. Fire Dance (4:31)(   Читать дальше...   )Производство: Polydor - 28MM 0300Жанр: Hard RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ADBCE6D9ADDB527CE6AC29CE084009EFF6027DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 656547   (815733) от 15.05.2013
 
 Halestorm - The Strange Case Of... (2012) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock, Alternative Metal>
@@ -635,122 +751,6 @@ A4 (You Never Can Tell) C'est La Vie(   Читать дальше...   )Жанр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C912588F76AD77B972B28D6AC0495A4E262DE1A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273436   (799731) от 02.01.2019
-
-Tina Turner - Twenty Four Seven (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799731.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Whatever You Need
-A2 All The Woman
-A3 When The Heartache Is Over
-A4 Absolutely Nothing's Changed(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038B0E144940142EC43CE5A263CC3D512A3093BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121789   (799603) от 03.04.2017
-
-VA - RETROспектива, часть XVI. Мелодии и песни из кинофильмов V (1939-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лолита Торрес - Ай, девчонка (из к.ф. ''Жених для Лауры'')
-02. Лолита Торрес - Ясная дорога (из к.ф. ''Жених для Лауры'')
-03. Андраш Варга - Вальс свечей (из к.ф. ''Мост Ватерлоо'')
-04. Виктория Иванова и  Иван Шмелёв - Дуэт Лены и Фёдора (из к.ф. ''Укротительница тигров'')(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E160C5FD11760312B9D7BAE929ED5F724B63B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121901   (799579) от 03.04.2017
-
-KOTO - Plays Synthesizer World Hits (1990)  [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799579.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Trans Europe Express
-A2. Tender Force
-A3. James Bond Theme
-A4. The Force(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72D1100049543FDE2A1DA4F56221D5C8D4243F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200363   (796143) от 20.01.2018
-
-Sade - Stronger Than Pride (1988) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <R&B, Downtempo>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796143.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Love Is Stronger Than Pride (4:17)
-A2. Paradise (4:02)
-A3. Nothing Can Come Between Us (4:24)
-A4. Clean Heart (4:01)(   Читать дальше...   )Производство: Not On Label - BL 1017Жанр: R&B, DowntempoПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3048926114DED2031AAFC5845A63E24A651E54E
 ```
 
 https://mybot314.ru/tekegram_catalog/

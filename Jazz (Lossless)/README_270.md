@@ -1,3 +1,90 @@
+###  Публикация: 1658279   (191636) от 07.09.2023
+
+Mal Waldron & Jackie McLean - Left Alone '86 (1987) Bellaphon [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left Alone (master take) [8:27]
+02. God Bless the Child [3:23]
+03. All of Me [6:49]
+04. Cat Walk [9:46](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443830DB512A985A5DA0C58606D67642F795B7B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588554   (191422) от 05.11.2022
+
+Jack Teagarden - The Complete Roulette Jack Teagarden Sessions (1959 - 1961) 4CD, 2003, Mosaic Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191422.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jack Teagarden Introduces the Band [1:37]
+02. That's a Plenty [5:30]
+03. Tin Roof Blues [4:46](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 04:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61228C8E1F153C03961E47B5A6914741BC41091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588557   (191419) от 05.11.2022
+
+The Airmen Of Note - The 2021 Jazz Heritage Series (2021) Department of the Air Force [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Means and Ends [6:10]
+02. Chant [7:13]
+03. Jive Coffee [8:54]
+04. With a Song in My Heart [6:26](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73082B2C79326D1B13EFD2F28C22CD4D5B96BA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588560   (191412) от 05.11.2022
 
 The Airmen of Note - Openers! (2014) Department of the Air Force [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -658,93 +745,6 @@ Brandi Disterheft Trio With George Coleman - Surfboard (2020) Justin Time [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B4EF2E993EEFBD48A49B9830CCE8A14EB87331A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660650   (189426) от 13.09.2023
-
-McCoy Tyner - What's New? (1987) 1998, West Wind [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senor Carlos [9:15]
-02. Lover Man [8:57]
-03. You Taught My Heart to Sing [6:12]
-04. Port Au Blues [7:49](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE153F57DC9B15FE3D3DEBBD784FB852856149B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660659   (189411) от 13.09.2023
-
-Marina Pacowski - Inner Urge (2023) Summit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Urge [6:11]
-02. Pensativa [6:01]
-03. Solar [4:43]
-04. My Foolish Heart [4:52](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E8B52B119168B0EE8A381DF4323C8D57C452CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660383   (189393) от 13.09.2023
-
-VA - Jazz & Soul Season 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benjamin Marcus - Take Me to Your Arms (Original Mix) (2:18)
-02. Jayson Brown - Vintage Vibe (Original Mix) (2:39)
-03. Nigel Saunders - Go High (Original Mix) (2:30)
-04. Liza Jones - Sleep Without You (Original Mix) (2:44)(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF6E1A2E00CC53B2F6DFDF62C6BB6A7C73136C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

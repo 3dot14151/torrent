@@ -1,3 +1,61 @@
+###  Публикация: 1091813   (941766) от 10.01.2017
+
+Art Pepper with Duke Jordan - In Copenhagen 1981 (1996) 2CD, Galaxy[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941766.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Blues Montmartre [14:12]
+02.What Is This Thing Called Love? [09:46]
+03.Over the Rainbow [07:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 02:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD5EF706F1F4F1E69A23B0F781954203A90CB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091587   (941756) от 10.01.2017
+
+The Sean Webster Band - Long Time Coming (2003) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Story Of My Life  (04:17) 
+02|  What Was His Name  (06:14) 
+03|  Just Walk Away  (05:07) 
+04|  I'll Be Gone  (03:55) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BD6A257BC39B9BA9CCEFFA8618ED0BCDB08FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091973   (941752) от 10.01.2017
 
 Amanda Fish Band - Down In The Dirt (2015) [FLAC|Lossless|tracks + .cue] <Blues Rock>
@@ -694,64 +752,6 @@ VA - Simply Late Night Jazz (2010) 2CD [FLAC|Lossless]<Jazz, Vocal Jazz, Lounge,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ECE3F3857FBCDDB09A412CF053E568578E5E403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283537   (938281) от 18.01.2011
-
-VA - Серия "Антология джаза" (2000) [MP3|128 - 320kbps] <Retro, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "Антология джаза", выпущенная компанией "Квадро-Диск" в 2000 году включает в себя сборники лучших композиций легендарных джазовых исполнителей. В этом сборнике вы найдёте композиции как отечественных,так и иностранных,исполнителей.Список исполнителей:
-01. О.Лундстрем
-02. Я.Скоморовский
-03. Джаз-оркестр Э.Рознера(   Читать дальше...   )Жанр: Retro, JazzПродолжительность: 16:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6962FD022BC5AD8F7C3DEB621CC63840D5A078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364317   (938017) от 02.03.2020
-
-Ella Fitzgerald - 1951 (2002) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonesome Gal [3:04]
-02. The Bean Bag Song [3:09]
-03. The Cheasapeake and Ohio [2:42]
-04. Two Little Men in a Flying Saucer [3:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DCDDACB7F6D0C97612532422536F7EB0081644E
 ```
 
 https://mybot314.ru/tekegram_catalog/

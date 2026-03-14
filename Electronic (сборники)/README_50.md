@@ -1,3 +1,32 @@
+###  Публикация: 1010253   (804304) от 24.04.2016
+
+VA - Hands Up Freaks Vol. 5 (Deejay Edition) (2016) [MP3|256 кб/с] <Club, Dance, Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special D. & Scott Brown - Elysium (Ti-Mo Remix) 04:46
+02. Viper Tone - Fast Car (Raindropz! Remix) 04:44
+03. Basslovers United & DJ G4bby - Addicted (Extended Mix) 05:19
+04. Club Electric - Sweet Lovin' (Malu Project Remix) 04:46(   Читать дальше...   )Жанр: Club, Dance, HardstyleПродолжительность: 07:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F61C6C6240D271E80790449B5ABE19DD1AE753EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384314   (804269) от 19.05.2020
 
 VA - Beatport Progressive House: Electro Sound Pack #86 (2020) [MP3|320 Kbps] <Progressive House>
@@ -716,35 +745,6 @@ VA - Автозвук. Злючий Басс (Sound Clinic - Bass Edition) (2018
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE11A9425C3D5AE84497C5B68C80379DB2B0C32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506086   (801651) от 29.10.2021
-
-VA - Electro Lemon: Fresh House Session (2021) [MP3|320 Kbps] <Electro, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801651.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Frankie Lluc - Recreation Ego
-002. Small Tok - Play Me
-003. Pretty Pink - Let You Go
-004. Chappier - Resurge(   Читать дальше...   )Жанр: Electro, Future HouseПродолжительность: 09:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D914FE84387E9F57F9BD7CD65F9787D3678FE5B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

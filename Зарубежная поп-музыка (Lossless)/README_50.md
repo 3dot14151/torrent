@@ -1,3 +1,148 @@
+###  Публикация: 927536   (528703) от 13.08.2015
+
+Hanne Sorvaag - All Is Forgiven (2012) [FLAC|image + .cue]<Pop / Soft Rock / Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Days That End With Y [03:46]
+02. One Of Everything [03:32]
+03. Always On The Run [03:50]
+04. Should Have Been Easy [02:45](   Читать дальше...   )Жанр: Pop / Soft Rock / CountryПродолжительность: 00:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C655F4A55320013D2E2EA67FB648D311373F9836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927530   (528700) от 13.08.2015
+
+Hanne Sorvaag - Christmas Lights (2013) [FLAC|image + .cue]<Pop / Soft Rock / Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something With An A [04:00]
+02. Hot Chocolate & Marshmallows [03:58]
+03. Oh, December [03:51]
+04. Christmas Lights [03:31](   Читать дальше...   )Жанр: Pop / Soft Rock / CountryПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ACFB447AC76A1D13F7E89D5A99022C193D8C194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927403   (528508) от 13.08.2015
+
+C.C. Catch - Catch The Catch (2000) [FLAC|image+.cue]<EuroDisco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cause You Are Young (Maxi-Version)
+02. I Can Lose My Heart Tonight (Maxi-Version)
+03. You Shot A Hole In My Soul (Maxi-Version)
+04. One Night's Not Enough(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891F2B45CA0BD6F4A0A1DA25D82F84AEBF6D1F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313147   (528281) от 07.07.2019
+
+The Soft Cavalry - The Soft Cavalry (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dive (04:15)
+02. Bulletproof (04:27)
+03. Passerby (04:14)
+04. The Velvet Fog (04:11)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823683918D1C9355A76CDC5C1F18C6CBEDF6EB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052554   (528183) от 14.09.2016
+
+VA - Together As One (A Tribute To Damilola Taylor) (2003) [FLAC|Lossless|image + .cue] <Pop, Electronic, Hip Hop, RnB, Swing>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Together As One - Wake Up The Morning
+02 – Craig David - Hidden Agenda (Plasma Remix, Featuring – Messiah Bolical)
+03 – Mis-Teeq - One Night Stand (Blacksmith Rerub, Featuring – Know ?uestion)
+04 – Gorillaz - Clint Eastwood (Ed Case Refix) (Edit)(   Читать дальше...   )Жанр: Pop, Electronic, Hip Hop, RnB  SwingПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A1A1D0A099DBFE1DBC43285D1803C232181745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313235   (528109) от 07.07.2019
 
 VA - Top Of The Pops '1984 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
@@ -605,157 +750,6 @@ VA - 100 Hits - 2000s Anthems (2014) 5CD Box Set [FLAC|track+.cue]<Pop, R&B and 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C97105667F7DF4D6F61316E54DEF3B515B42447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241420   (520122) от 17.08.2018
-
-Ariana Grande - Sweetener (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raindrops (An Angel Cried)
-02. Blazed (feat. Pharrell Williams)
-03. The Light Is Coming (feat. Nicki Minaj)
-04. R.E.M(   Читать дальше...   )Жанр: Pop, Hip-Hop, R&BПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5265E9B81CE76C356B2CBEE9587BD12224CA55C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534512   (518745) от 14.08.2012
-
-Maroon 5 - Overexposed (2012) [FLAC|Lossless]<Pop, Soft-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Night
-02. Payphone (Feat. Wiz Khalifa)
-03. Daylight
-04. Lucky Strike
-05. The Man Who Never Lied
-06. Love Some Body
-07. Lady Killer
-08. Fortune Teller
-09. Sad
-10. Tickets(   Читать дальше...   )Жанр: Pop/Soft-RockПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315021   (516073) от 17.07.2019
-
-Oliver Cheatham - Get Down Saturday Night (1983) 1990 [FLAC|Lossless|tracks + .cue] <House, Soul, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Get down Saturday Night (Remixed by Matiz - AC16) (06:46)
-02 Make your mind up (04:20)
-03 Something about you (04:37)
-04 Bless the ladies (04:15)(   Читать дальше...   )Жанр: House, Soul, Funk, DiscoПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D70E3FDFE602473924B6605B8EA76F73A59F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242343   (516040) от 21.08.2018
-
-Whitney Houston - I Wish You Love: More From The Bodyguard (2017) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Always Love You (Alternate Mix) (5:04)
- 02. I Have Nothing (Film Version) (4:56)
- 03. I'm Every Woman (Clivillés & Cole House Mix I Edit) (5:43)
- 04. Run to You (Film Version) (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5E740F26DF926A37744787F58CFFDBEF8B3FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242475   (515125) от 22.08.2018
-
-Chris de Burgh - Footsteps (2008) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Steps (1:09)
- 02. Turn, Turn, Turn (3:29)
- 03. The Long And Winding Road (3:35)
- 04. Africa (4:16)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A93C02950BF2765EE74E1C8362E839D667C528
 ```
 
 https://mybot314.ru/tekegram_catalog/

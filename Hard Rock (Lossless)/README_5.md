@@ -1,3 +1,119 @@
+###  Публикация: 1447802   (1031341) от 15.02.2021
+
+AOR - The Ghost Of L.A. (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Easiest Way
+02. Too Late For Tears
+03. Give Her The Moon
+04. The Edge Of The World(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83357F654CFF6BE2A7C70587E6A5AB222189DADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448116   (1031172) от 16.02.2021
+
+Atlas - Parallel Love (2020) [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fever (4:34)
+02. Without You (4:35)
+03. In Your Head (3:38)
+04. Weathered Heart (3:36)(   Читать дальше...   )Жанр: AOR, Hard RockПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC74E9EE00908545235002127EAA70668EB86B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448140   (1031161) от 16.02.2021
+
+Stone Fury - Burns Like A Star (1984) Limited Edition, Reissue, 2013, Geffen Records [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break Down The Walls
+02. I Hate To Sleep Alone
+03. Life Is Too Lonely
+04. Don't Tell Me Why(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EBEA361010B0D36E25346E2D44551B4220DEAF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621184   (1030996) от 25.03.2023
+
+Red Cloud - Red Cloud (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Hard, Bluesy, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Battlefield [00:03:52]
+02. Bad Reputation [00:03:14]
+03. Heavy Skies [00:03:46]
+04. Swallow Me [00:06:26](   Читать дальше...   )Жанр: Heavy Rock, Hard, Bluesy, 70'sПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10B3E75FE4027015908C38102826FE9B5DEFD8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621816   (1030765) от 26.03.2023
 
 Wishing Well - Sin And Shame (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
@@ -630,124 +746,6 @@ Ricky Warwick - When Life Was Hard & Fast (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F4EE9AC3068E327C00061BBACD0F79189FB06DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450315   (1029039) от 26.02.2021
-
-Thundermother - 4 albums (2014-2020) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thundermother - рок-группа, основанная гитаристкой Филиппой Нэссил в городе Вэкшё в 2009 году. В составе шведской группы Thundermother только девушки, имеющие музыкальное образование, что нетрудно понять послушав их музыку. В первые годы в группе было несколько разных членов, но с 2012 года состав группы стал стабильным. В марте 2017 года было объявлено, что группу (   Читать дальше...   )--------------------------
-
-01. Loud And Alive (3:58)
-02. Dog From Hell (3:40)(   Читать дальше...   )Жанр: Hard 'n' Heavy, Female Vocals |Продолжительность: 02:38:04 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F41EC6D0BE96B734B60009B1F576CDEEE74F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450304   (1029030) от 26.02.2021
-
-Mother Road - Two (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fools Gold 03:42
-02. Sticks And Stones 04:09
-03. Spread It All Around 04:46
-04. Matter Of Time 04:55(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10804E414241E85A3A14D3701E233E3F079A4FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450210   (1029028) от 26.02.2021
-
-Inglorious - 4 Studio Albums (2016-2021) 4xCD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inglorious - пять молодых парней, объединённых любовью и уважением к классике хард-рока, большим риффам и душевному вокалу. Источник их вдохновения - великие рок-альбомы 1970-х, выпущенные задолго до их рождения.
-
-Влияние этих альбомов, вдохновивших поколения музыкантов, заметно, когда вы слушаете дебютник Inglorious. Это музыка, которую они были рождены играть вместе, (   Читать дальше...   )2016 - Inglorious
-2017 - II
-2019 - Ride To Nowhere
-2021 - We Will RideЖанр: Hard RockПродолжительность: 03:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30C41C59C50D564830DDC75B3A3FF95D1F7C86F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450593   (1028916) от 27.02.2021
-
-Grand Design - 5 Studio Albums (2009-2020) 5xCD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grand Design- шведская мелодик-рок группа, ориентировавшаяся на забытое музыкальное под-жанровое движение 80-х, а именно AOR и Hair Metal. Пелле Сэтер, бывший вокалист Zeelion, Zello и Schizophrenic Circus, а также продюсер / звукоинженер таких групп, как Cryonic Temple, Axenstar, Steel Attack, готовился к созданию новой группы под названием GRAND DESIGN.2009 - Time Elevation
-2011 - Idolizer
-2014 - Thrill Of The Night
-2018 - Viva La Paradise(   Читать дальше...   )Жанр: Hard RockПродолжительность: 04:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABA0E50A8EA07FC19E5C7D14058BFBA0C79814E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1843047   (1048973) от 18.12.2025
+
+Vhaldemar (Vhäldemar) - Studio Albums (7 releases) (2002-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vhäldemar - испанская пауэр-метал группа, образованная в 1999 году.2002 - Fight To The End
+2003 - I Made My Own Hell
+2011 - Metal Of The World
+2013 - Shadows Of CombatЖанр: Power MetalПродолжительность: 05:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBB60D2E8EE486F2A1A58ACEAAB54B245947BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842323   (1048714) от 15.12.2025
+
+The Shadows - The Shadows' Greatest Hits (1963) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Rock, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048714.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Apache
+A2 Man Of Mystery
+A3 The Stranger
+A4 F.B.I.(   Читать дальше...   )Жанр: Rock, InstrumentalПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97944095D9A79D553658B394934C60ABF17DF83D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842297   (1048636) от 15.12.2025
+
+At Vance - Studio Albums (9 releases) (1999-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neoclassical/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048636.jpg" />
+</div>
+
+
+###  Подробнее
+
+At Vance — немецкая метал-группа, созданная в 1998 году вокалистом Оливером Хартманном и гитаристом Олафом Ленком.1999 - No Escape
+2000 - Heart of Steel
+2001 - Dragonchaser
+2002 - Only HumanЖанр: Neoclassical/Power MetalПродолжительность: 08:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8AF25AD78217D5C9BD99141B8F7DE3ADD22B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841130   (1047754) от 09.12.2025
+
+VA - The Most Collection. Volume 2 (1971) Compilation, Dutch Pressing [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country Rock, Folk Rock, Pop Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047754.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 New World - Tom Tom Turnaround
+A2 Peter Noone - Oh You Pretty Things
+A3 Lulu - The Boat That I Row
+A4 Hot Chocolate - Love Is Life(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Pop Rock, Soft RockПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4FC91550A2A1F1BCD9C62F9D9182EF3A45201E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840951   (1047681) от 08.12.2025
 
 Senpais - Studio Albums (4 releases) (2020-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
@@ -629,122 +745,6 @@ A4 Эрмитаж, Фокстрот(   Читать дальше...   )Жанр:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11FFFE39BCBF096BC3601C6ADB312888E6909F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611888   (1040558) от 14.02.2023
-
-Karel Gott/Карел Готт - Stori/Рассказы (1982) [FLAC 2.0|192/24|image+.cue] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040558.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Тарантелла • La Danza
-A2 Леди Карнавал • Lady Carneval
-A3 Конец Птичьих Арий • Konec Ptacich Arii (Z Filmu ''My, Ztraceny Holky'')
-A4 До Ре Ми Ля • Do Re Mi La(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A065670089BA3C270CD0C8D8545F0B707EC4AB60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611646   (1040512) от 14.02.2023
-
-Tom Jones - This Is Tom Jones (1969) [FLAC 2.0|192/24|image+.cue] <Lounge, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040512.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fly Me To The Moon (In Other Words)
-A2 Little Green Apples
-A3 Wichita Lineman
-A4 (Sitting On) The Dock Of The Bay(   Читать дальше...   )Жанр: Lounge, Pop RockПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940B4EA19BA495BA8D9C3CB20E6DB82AB6DA766C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611464   (1040510) от 14.02.2023
-
-3 Inches of Blood - Studio Albums (6 releases) (2001 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power/Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040510.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 Inches of Blood — рок-группа из Канады. Главной отличительной чертой группы является наличие двух вокалистов: Кэма Пайпса с его пронзительным фальцетом и Джеми Хупера с агрессивным скримингом.2001 - Sect of The White Worm (EP)
-2002 - Battlecry Under a Winter Sun
-2004 - Advance and Vanquish
-2007 - Fire Up The BladesЖанр: Power/Heavy Metal, Thrash MetalПродолжительность: 04:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3654D172170AF48F6FC9169C4425D801B3CBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439273   (1040039) от 12.01.2021
-
-VA - Лауреаты Фестиваля «Весенние Ритмы Тбилиси-80» (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040039.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Машина Времени - Хрустальный Город
-A2 Машина Времени - Снег
-A3 Автограф - Ирландия. Ольстер
-A4 Лабиринт - Из Композиции «Сакартвело»(   Читать дальше...   )Жанр: Jazz Rock, Pop RockПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106756CF4651A459CFE50AFD256ECA59293C0D68
 ```
 
 https://mybot314.ru/tekegram_catalog/

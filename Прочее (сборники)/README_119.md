@@ -1,3 +1,38 @@
+###  Публикация: 560544   (406708) от 15.10.2012
+
+VA - Best 10 Radio Tracks 2012 vol. 1-3 (3CD) (2012) [MP3|196-320 кб/с]<Dance, House, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Best 10 Radio Tracks 2012 vol. 1Жанр: Dance, House, ClubПродолжительность: 00:58:46
+01. Monochrome - Pearl (Gabriel & Dresden Remix)
+02. G & G Vs. D-Jastic - In My Mind (Original Mix)
+03. Missy Elliott feat. Timbaland - 9th Inning
+04. David Guetta feat. Sia - She Wolf (Falling To Pieces) (Extended Mix)
+05. Bootik & Silvertongue - When The Music Stops (Inphinity & Kalendr Remix)
+06. Crookers - Trillex (Original Mix)
+07. Daniele Sorrenti - Shake That Body (Original Mix)
+08. Dario Trapani - Soul (Tanzamomo Remix)
+09. G&G, Baby Brown, Gary Wright - My My My (Coming Apart) 2K12 feat. Gary Wright, Baby Brown (Club Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF41753F609485D3DBA734FDD1697C31A2E2D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534607   (406466) от 15.10.2012
 
 VA - Deep Line (2012) [MP3|320 кб/с]<Relax, Meditation, New Age, Lounge, Chill Out>
@@ -782,35 +817,6 @@ VA - The Official UK Top 40 Singles Chart (06 October) (2017) [MP3|320 Kbps] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5332A8C0CA0033D0ABBE395B4A7A9141C587A253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716883   (392578) от 30.10.2013
-
-Михаил Боярский - Лучшие хиты (2CD) (1977-1999) (2013) [MP3|320 кб/с]<Soundtrack, Retro, Pop, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392578.jpg" />
-</div>
-
-
-###  Подробнее
-
-20. Остров детства (1986)
-21. Дорога к дому (1986)
-22. День, который жду (1987)
-23. Ланфрен-Ланфра (1987)(   Читать дальше...   )Жанр: Soundtrack, Retro, Pop, ChansonПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC33BADA8AEBB7FFA4D0B629D5E1F31C23179EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 947306   (419909) от 16.10.2015
+
+Проекты - VideoHive - Platform - Corporate Video Package [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо-видео.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E85CCCB51879AD8B92EEE9B792A1445497F06A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065668   (418321) от 23.10.2016
 
 Проекты - VideoHive - Black Label | Club Event Promo - 6583820 [AEP]
@@ -653,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:353C3045D6A76FE47E4ADCA373AFBB89B43C331C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173776   (389516) от 12.10.2017
-
-Проекты - VideoHive - Simple Presentation - 16977755 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект АЕ для создания очень простой и визуально легкой видео-презентации. Применим для любой сферы, будь то бизнес, туризм, производство, коммерция, финансы, различные услуги.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8A3D580225DD138A1F096BDE49A76551FBA700
 ```
 
 https://mybot314.ru/tekegram_catalog/

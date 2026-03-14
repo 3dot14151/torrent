@@ -1,3 +1,61 @@
+###  Публикация: 1599526   (159829) от 23.12.2022
+
+VA - Uplifting Serenity: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Heaven (Sky Spirit Dreamy Mix) (5:16)
+02. Red Chameleon - Sound (Original Mix) (4:46)
+03. Chillson - Don't Look Back in Anger (5:13)
+04. Beamy - Summers Smile (4:31)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E329465A5B0BC4D38FCB5CEFB2B85F099E3F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599563   (159622) от 24.12.2022
+
+VA - Relaxing Echoes: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - It's Time (Original Mix) (6:05)
+02. Kevin Paczesny - Winter Lights (5:33)
+03. Hölderlin - Lullaby (4:54)
+04. Fantômas - Dull&slow (4:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A84859E20466B3EE2BA99ADF7E00169104F633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968163   (158260) от 22.12.2015
 
 Ornament - Bleu (2004) [FLAC|Lossless|tracks] <Downtempo, Ambient>
@@ -687,64 +745,6 @@ VA - FreeZone vol. 1-7 (1994-2001) SSR Records [FLAC|Lossless|tracks+.cue]<Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3962E389D47896D82A1111991EE2A97F858133D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436240   (139530) от 30.12.2020
-
-VA - Relax Culture, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kick Bong - Tranquility Vibes (5:08)
-02. Earth Connect - Blues Out (5:38)
-03. Potlatch - Wonder (5:28)
-04. Eguana - Cozy Courtyard (4:34)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F057D3993BD8457CDA78B524002E083190778E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272949   (139359) от 30.12.2018
-
-VA - Ibiza Chillout Series (1999-2007) Ayia Napa [FLAC|Lossless|tracks+.cue] <Downtempo, Dub, Chillout, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139359.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. Jens Buchert - Event Horizon (04:31)
- 02. Esteban Garcia Junior - Deep Blue (04:08)
- 03. Buro - Verano Suave (05:58)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Downtempo/Dub/AmbientПродолжительность: 01:06:00+01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EF21F8B45BA8B0E23809BDD5A75FED2C05AF19
 ```
 
 https://mybot314.ru/tekegram_catalog/

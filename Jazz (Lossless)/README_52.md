@@ -1,3 +1,32 @@
+###  Публикация: 1000955   (855936) от 27.03.2016
+
+Abbey Lincoln - That's Him! (1957) Remaster, 1999, Victor[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Strong Man [05:06]
+ 02.Happiness Is Just a Thing Called Joe [05:58]
+ 03.My Man [03:58]
+ 04.Tender as a Rose [03:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBE9FDABEEA2C1AB3AEC2350D7EAF73A09A0140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109998   (855754) от 01.03.2017
 
 James Moody - Quadromania: Just Moody (1948-1955) 4CD, 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -716,35 +745,6 @@ Lee Konitz meets Don Friedman (1992) 1994, Camerata Tokyo [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1D3E0BC5BE86FF607EE3618392B9BFD2696334F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110930   (850442) от 04.03.2017
-
-Guillermo Gregorio, Mats Gustafsson, Kjell Nordeson - Background Music (1998) HatOLOGY [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Vanderin' (to Ken Vandermark) [04:23]
- 02.A Tiny Bit More (to Tiny Kahn) [17:34]
- 03.Cannots [04:55]
- 04.Worn a First Variation [02:11](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6828294F9AA5E8432A297137E4DB4EF332BE48
 ```
 
 https://mybot314.ru/tekegram_catalog/

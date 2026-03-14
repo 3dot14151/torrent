@@ -1,3 +1,90 @@
+###  Публикация: 1007516   (821621) от 15.04.2016
+
+Art Blakey & The Jazz Messengers - 'S Make It (1964) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Faith [03:47]
+ 02.'S Make It [05:41]
+ 03.Waltz For Ruth [05:47]
+ 04.One For Gamal [03:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724408F09CAABA7CC73BF868DA8F675CDDC1B8E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503231   (821341) от 18.10.2021
+
+Sadao Watanabe - Naturally (2016) Red River [FLAC|Lossless|tracks + .cue] <Post-Bop, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naturally [4:50]
+02. Junto com Voce [5:51]
+03. After Years [5:47]
+04. Bem Agora [4:39](   Читать дальше...   )Жанр: Post-Bop, Crossover JazzПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9F8F2B88533ED563D100D2206DAC3485E2C6B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116991   (821284) от 21.03.2017
+
+McCoy Tyner Quartet - Live At Yoshi's (2007) Half Note Records [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Walk Spirit, Talk Spirit [09:32]
+ 02.Mellow Minor [09:52]
+ 03.Sama Layuca [12:23]
+ 04.Passion Dance [11:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A215700CE9A90B7652C062FD1B516520726D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116837   (821283) от 21.03.2017
 
 Antipop Consortium - Antipop Vs. Matthew Shipp (2003) [FLAC|Lossless|image + .cue] <Jazz, Free Jazz, Electronic>
@@ -657,93 +744,6 @@ Frank Wess & Harry Edison Orchestra - Dear Mr. Basie (1989) Concrod Jazz [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C6844A14FAFDDE4E18223D65BAE0A4D7E2620F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196920   (819197) от 05.01.2018
-
-Peggy Lee - Sings Leiber & Stoller (1952 - 1969) 2002, Hip-O Select [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kansas City [02:29]
-02. Some Cats Know [04:25]
-03. Don Juan [03:09]
-04. I Ain't Here [04:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E3CD19C9595A9C90417AF1A0E19E386EB11136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382525   (819140) от 11.05.2020
-
-VA - Jazz Covers 80s Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - Wake Me Up Before You Go-Go
-02. Talisha Karrer - Livin’ on a Prayer
-03. Alice Lamb - Never Too Much
-04. Meg Birch - Town Called Malice(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E150BC8C5B8D8AD597C6F4D98CD28769D8EA8D15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008083   (818103) от 17.04.2016
-
-David Reinhardt Trio - Colombe (2011) Cristal Records[APE|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lady [04:44]
- 02.Xv [05:42]
- 03.A Fool's Errand [05:11]
- 04.Aparecida [06:20](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Guitar JazzПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A17833550AD7FF2A6B831AC9F819A55C24D7273
 ```
 
 https://mybot314.ru/tekegram_catalog/

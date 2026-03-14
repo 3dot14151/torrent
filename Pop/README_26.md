@@ -1,3 +1,235 @@
+###  Публикация: 1477636   (1010831) от 16.06.2021
+
+Ryan Adams ‎ - Big Colors (2021) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Colors (3:08)
+02. Do Not Disturb (3:01)
+03. It's So Quiet, It's Loud (3:20)
+04. Fuck The Rain (3:34)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADDA8DB4CE4991A52E5BB75C12FC2A41490A54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477182   (1010807) от 16.06.2021
+
+Sophie Ellis‐Bextor - Trip the Light Fantastic (2007) [FLAC|Lossless|tracks + .cue] <Europop, Electro, Synth-pop >
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catch You (radio version)
+ 02. Me and My Imagination
+ 03. Today the Sun’s on Us
+ 04. New York City Lights(   Читать дальше...   )Жанр: Europop, Electro, Synth-popПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58457BDDB126A785DA8B748B38B313DF1F8F30E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477959   (1010663) от 17.06.2021
+
+VA - Vaccine of Sadness (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Rodrigo - drivers license (04:02)
+02. Lewis Capaldi - Someone You Loved (03:02)
+03. Maroon 5 - Sad (03:14)
+04. Lady Gaga - Dope (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2675A0334D5A744A1653DE73D56D29E81B9AF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478439   (1010347) от 19.06.2021
+
+VA - Главные Белоруские хиты-Весна 02 (2006) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Елена Гришанова - Быстро-быстро
+02. Topless - Падали звёзды
+03. Алексей Хлестов - Потому что люблю
+04. Черника - Лабирин(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A576C5FBCB869B4E71B731D3B968A78434D3559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478588   (1010195) от 20.06.2021
+
+VA - Goodbye My Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marshmello - Leave Before You Love Me (02:35)
+02. Katy Perry - The One That Got Away (03:47)
+03. Maroon 5 - Beautiful Goodbye (04:15)
+04. Lewis Capaldi - Before You Go (03:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D968EDED87421EF4C0015B1462CD4BADE890D66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478646   (1010192) от 20.06.2021
+
+VA - Acoustic Summer 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Wild World (Acoustic) (03:20)
+02. Shannon & Keast - Do I Wanna Know (Acoustic) (04:17)
+03. Logan York - Cheerleader (Acoustic) (03:36)
+04. Talisha Karrer - Everybody Hurts (Acoustic) (03:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D45AF5D5E0EA4EB4EF907D7CE452F61B75B9D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478642   (1010186) от 20.06.2021
+
+Patti Austin - 2 Albums (1980, 1983) Reissue CD [MP3|320 Kbps] <Electronic, Soul, Jazz-Funk, R&B, Downtempo, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская поп, R&B и джазовая исполнительница а так-же бэк-вокалистка, родилась 10 августа 1950 года в Нью-Йорке.01. Body Language (5:06)
+02. Another Nail For My Heart (3:14)
+03. S.O.S. (3:57)
+04. We've Got Tonight (4:18)(   Читать дальше...   )Жанр: Electronic, Soul, Jazz-Funk, R&B, Downtempo, DiscoПродолжительность: 01:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161A416C5E92D002BFE4A463DC9D7212C5981E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478647   (1010176) от 20.06.2021
+
+VA - Acoustic 10s and 20s Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Break My Heart (Acoustic) (03:34)
+02. Nora & Will - My Future (Acoustic) (03:19)
+03. Shannon & Keast - Falling (Acoustic) (03:59)
+04. Logan York - Señorita (Acoustic) (04:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050EF2820DF47712D0E735C0EF6FCAD7B16D2257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477127   (1009962) от 21.06.2021
 
 Зоя - Это жизнь (2021) [MP3|320 Kbps] <SKA, POP>
@@ -513,239 +745,6 @@ Modern Talking - немецкий англоязычный музыкальны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63D6ACCD42235592DC8174DB7E337305117915E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481855   (1008029) от 05.07.2021
-
-Estrak Lancios - Cosmopolitan Wave (1979) LP [MP3|320 Kbps] <Electronic, Leftfield, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmopolitan Wave (17:19)
--Red Wave
--Violet Wave
--Blue Wave(   Читать дальше...   )Жанр: Electronic, Leftfield, DiscoПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53557F84FBF239610B83B40DF21371E6D97C394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482019   (1007906) от 06.07.2021
-
-Tata Vega - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тата Вега (урожденная Кармен Роза Вега 7 октября 1951 года на Ямайке, Куинс, Лонг-Айленд,Нью-Йорк) - вокалистка, чья карьера охватывает театр, кино и различные музыкальные жанры.01. Come On And Try My Love (3:26)
-02. I Need You Now (3:35)
-03. Get It Up For Love (6:09)
-04. If Love Must Go (4:12)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20223ADFC432666EA4BB37BF3DB608A89DFEA2C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482267   (1007768) от 07.07.2021
-
-Brass Construction - Attitudes (1982) Remaster, 2010,  Think! Records [FLAC|Lossless|tracks + .cue] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007768.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Can You See The Light 5:18
-2 Funtimes 4:51
-3 Attitude 6:43
-4 Do That Thang 5:31(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5DB8C25A14088BA5EE0CBA440CC6B34FF84127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482401   (1007587) от 08.07.2021
-
-ABBA - International (1988) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007587.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ring Ring (German Version) (03:10)
-2. Intermezzo No. 1 (03:46)
-3. Waterloo (French Version) (02:44)
-4. Take A Chance On Me (04:24)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7CEE710F1A8BE86EF9138F481A904B137E9372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483360   (1006882) от 13.07.2021
-
-VA - Beautiful and Chilled Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006882.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Devon Seyward, Thom Cooper - Flume (Acoustic Version) (3:01)
-2. Joanie Loves Chachi - (Nice Dream) (3:23)
-3. Thom Cooper - Your Power (3:59)
-4. Charlie Blue Skies - Songbird (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8FAEFE9A616ABDBF3A4216C047C6E485F8374A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483395   (1006854) от 13.07.2021
-
-VA - Pure... Alternative 80s (2011) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не ошибусь, если скажу, что на нашем трекере собрана наиболее полная серия, которую в свое время издавала Sony Music (ссылка на всю серию внизу поста). И сегодня представляю Вам последний (из имеющихся у меня) боксет - Alternative 80s.
-Если честно вспомнить именно 80-е, то не то что альтернативные треки, едва доступны были и самые популярные композиции, которые гремели (   Читать дальше...   )CD1:
-01. Adam and the Ants - Stand and Deliver  (3:08)
-02. The Stranglers - No Mercy  (3:39)
-03. Big Audio Dynamite - E=MC²  (5:57)(   Читать дальше...   )Тип издания: Box Set, 4 CDРелиз состоялся: 10 окт. 2011 г.Жанр: Pop, Electronic, RockПродолжительность: 04:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BEDD6667E775E9EFEE10547DF31F5E6B46B92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483485   (1006771) от 14.07.2021
-
-Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sliding Doors (00:03:10)
-02 - 1961 (00:03:42)
-03. Aftermath (00:03:46)
-04. Wildflowers (00:03:04)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C5F89E8C1BEE6181DB953029B7D955A243AC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483602   (1006756) от 14.07.2021
-
-Fancy - Masquerade (Les Marionnettes) (2021) [MP3|320 Kbps] <Pop ,  Eurodisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Like Your Smile (3:14)
-02. Rockabye Me (3:53)
-03. I’m Still A Fool (3:32)
-04. Lovers (3:26)(   Читать дальше...   )Жанр: Pop ,  EurodiscoПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A46426BFD03470E943912FC0BF240812F29666E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1383782   (808133) от 17.05.2020
+
+VA - Covers (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faith No More - Easy
+02. Dua Lipa - I'd Rather Go Blind (Live)
+03. Ramones - Have You Ever Seen the Rain?
+04. Logan Henderson - Rocket Man(   Читать дальше...   )Жанр: PopПродолжительность: 03:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A10E159D4D5E05B660FC6CBAB54181549053A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383678   (808126) от 17.05.2020
+
+Clara Luciani - Sainte-Victoire (2019) Super-edition [MP3|320 Kbps] <French Pop, Post Disco, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Grenade
+02. La Baie
+03. On ne meurt pas d'amour
+04. Eddy(   Читать дальше...   )Жанр: French Pop, Post Disco, Synth PopПродолжительность: 01:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762FD4500A20774AE5FEA69F2EFC629743313C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009813   (808102) от 22.04.2016
 
 Benjamin Biolay - Palermo Hollywood (2016) [MP3|320 кб/с] <French Pop, Chanson>
@@ -684,64 +742,6 @@ VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7018D77EBA5BB74BDA1A4C9A9B4C4622EBBA3697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506586   (799482) от 01.11.2021
-
-VA - Retro Halloween 2021 (2021) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockwell - Somebody's Watching Me (3:55)
-02. Rick James - Super Freak (3:23)
-03. Aqua - Halloween (3:49)
-04. Oingo Boingo - Dead Man's Party (6:17)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 01:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3E9F3664C62DB37675B6551221EE9E02F8947B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506585   (799481) от 01.11.2021
-
-VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Demons (2:56)
-02. Jeremy Zucker - Ghosts (4:23)
-03. Ajsa Luna - Ocska Alkohol (4:20)
-04. BENEE - Evil Spider (2:32)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 02:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12B7720D3136EB19F7FCC92ACEEEFB4E5AD042B
 ```
 
 https://mybot314.ru/tekegram_catalog/

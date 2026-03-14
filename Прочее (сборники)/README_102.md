@@ -1,3 +1,38 @@
+###  Публикация: 540060   (504818) от 28.08.2012
+
+VA - Сборник медленных хитов Vol.11 (2012) [MP3|320 кб/с]<Pop, Rock, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Red Blooded Women
+02. Natasha St-Pier - Je Te Souhaite
+03. Chris De Burgh - Love Of The Heart Divine
+04. Tony Joe White - Cold Fingers
+05. Patricia Kaas - Je Te Dis Vous
+06. Alanis Morissette - Hands Clean
+07. Jai - I Love You(Human)
+08. Despina Vandi - Ime Ego
+09. Anggun - Je Partirai
+10. Eros Ramazzotti - L'Uomo Che Guardava Le Nuvole(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 06:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5314AED9A880E6D3B6300E2B8E0360082DC49A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933841   (504602) от 03.09.2015
 
 VA - Autumn Party (2015) [MP3|320 кб/с]<Trance, Dance, House, Synthpop, Club>
@@ -814,41 +849,6 @@ VA - Дрожь Танцпола. Клубные хиты (2012) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:141DCBBB92733318A2894B08A22F069DDB719360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541549   (500429) от 01.09.2012
-
-VA - Радио Energy - NRJ HOT30 (31.08.2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Project - Musica
-02. Flo Rida - Whistle
-03. Loreen - Euphoria
-04. Oceana - Endless Summer
-05. Gotye feat. Kimbra - Somebody That I Used To Know (Bastian Van Shield rmx)
-06. Playmen - Fallin
-07. Tonic feat Erick Gold - Lead The Way
-08. Alex Ferrari - Bara Bar Bere Ber
-09. Far East Movement Feat. Junior Caldera & Natalia Kills - Lights Out
-10. Bel Suono & Dj Magic Finger - Te Quiero(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4D39EFC0EA0930C0196B699332F76B82EC1C17
 ```
 
 https://mybot314.ru/tekegram_catalog/

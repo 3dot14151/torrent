@@ -1,3 +1,90 @@
+###  Публикация: 1460754   (1022226) от 07.04.2021
+
+VA - 50 Disco Hits (2021) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys Blue - You're a Woman (5:21)
+02. Amadeus Liszt - Win The Race (Radio Edit) (3:34)
+03. Eddy Huntington - U.S.S.R. (5:59)
+04. Paul McDouglas - Turbo-Geil (5:51)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6715D1B041DDEAB0BB10B60BD7030ED83BB22B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460057   (1022223) от 07.04.2021
+
+VA - Новинки с разных популярных MP3 сайтов, vol.106 (2021) [MP3|320 Kbps] <Club, Dance, Disco, Pop, Rap, RnB, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rus 
+001. 10AGE - Нету Интереса
+002. 104 feat. Miyagi, Скриптонит - Не Жаль
+003. Agunda, Тайпан - Мерцают Огни(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 06:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2624785F7D6FFD2BA71E9887D7344A75C3871640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460757   (1022206) от 07.04.2021
+
+VA - Наш Тик Ток (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary Grey - Сложно (2:52)
+02. Моше Эд - Молодой и пьяный (2:16)
+03. FELIX - Лали 17 (2:18)
+04. Юля Годунова - Смотри как надо (2:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6290CF6317A790D8057C038721D7B6F3782EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460609   (1022202) от 07.04.2021
 
 VA - Tender Loving Saxophone Blues (2021) 2CD [MP3|320 Kbps] <Blues, Jazz>
@@ -658,93 +745,6 @@ VA - 30(3) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B8D332CC31F4CEE779F2278AB429FDE1BFFB14F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461866   (1021568) от 11.04.2021
-
-VA - Harmonic Convergence (2021) [MP3|320 Kbps] <New Age, Meditative, Relax, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предлагается погрузиться в атмосферу, которую с чьей-то легкой руки стали именовать музыкой нового века. Это своеобразное музыкальное направление, которое выделяется на всём музыкальном фоне и стоит особняком. Это мелодия мироздания, которую может услышать любой, потому что эти звуки есть наша вселенская природа. Эта музыка принуждает задуматься нас о духовном (   Читать дальше...   )001. Weathertunes - The Golden Twilight
-002. Jaubi - Time- Donut Of The Heart
-003. Josiah Steinbrick - Nemi
-004. Enya - The Magic Of The Night(   Читать дальше...   )Жанр: New Age, Meditative, Relax, AmbientПродолжительность: 08:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E75163A44D8E02A3B28CD6889984DB329A69CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461875   (1021561) от 11.04.2021
-
-VA - The Very Best Improvisations: Vocal Jazz Music (2021) [MP3|320 Kbps] <Jazz, Soul, Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для искушённых ценителей "мягкого" джаза в сопровождении классического джаз-вокала предлагается сборник под названием "The Very Best Improvisations" в котором присутствуют композиции поистине высшей пробы. Значительная часть музыки лонгплея знакома нам по аранжировкам и музыкальному сопровождению к известным кинофильмам001. Laila Biali - Let's Dance
-002. Anette Von Eichel - It's What We Do
-003. Nicola Conte Gianluca Petrella - Imani River
-004. Norah Jones - Falling(   Читать дальше...   )Жанр: Jazz, Soul, Smooth JazzПродолжительность: 07:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5269955245E0EC514EC6EB5B234EE45EBD6AB51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461690   (1021526) от 11.04.2021
-
-VA - Record Super Chart 10.04.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
-02. Eneli, Monoir - 3 to 1 (3:39)
-03. Tiesto - The Business (2:44)
-04. Slava Marlow - ТЫ ГОРИШЬ КАК ОГОНЬ (2:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75A845FF9004A7109E9FB05D822A5A223E04039
 ```
 
 https://mybot314.ru/tekegram_catalog/

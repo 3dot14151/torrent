@@ -1,3 +1,177 @@
+###  Публикация: 1337300   (275026) от 10.11.2019
+
+Benny Carter - Four Classic Albums Plus 1958 - 1960 (2012) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275026.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Old Fashioned Love [7:52]
+02. I’m Coming Virginia [5:49]
+03. A Walkin’ Thing [6:00](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Big BandПродолжительность: 02:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416696567786F3340D3E400D7F63BA3BC9CFC205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188439   (274998) от 02.12.2017
+
+Paul Desmond Quartet - First Place Again (2005) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "I Get a Kick Out of You" (Cole Porter) – 8:38
+02. "For All We Know" (J. Fred Coots, Sam M. Lewis) – 5:33
+03. "Two Degrees East, Three Degrees West" (John Lewis) – 7:28
+04. "Greensleeves" (Traditional) – 2:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADF25E7DBF976CF5262819D599D1B24D24BBF1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188429   (274997) от 02.12.2017
+
+Stan Kenton - Kenton's West Side Story (1961) 1994, Capitol Records [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue [04:06]
+02. Something's Coming [03:40]
+03. Maria [04:30]
+04. America [04:41](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B40425CF1A68EC674E1BBEAC76EF4EB31D70B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083384   (274994) от 15.12.2016
+
+Carl Allen - The Pursuer (1994) Atlantic Recording Corporation[FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The pursuer [05:23]
+ 02.Hidden agenda [07:05]
+ 03.Pinocchio [05:04]
+ 04.Alternative thoughts [08:53](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27703121EDC9C171278C85F215E0D860CD827CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083391   (274986) от 15.12.2016
+
+The Zawinul Syndicate - Lost Tribes (1992) Sony[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Patriots [04:53]
+ 02.South Africa [06:42]
+ 03.Lost Tribes [03:48]
+ 04.Rua Paula Freitas [05:01](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1884D0F17CF29E51306F45393531644308A94616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337439   (274885) от 10.11.2019
+
+Jody Mayfield - Soul Sanctuary (2019) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Deacon
+02. Rear View Mirror
+03. Just One Look (Feat. Sherita Murphy)
+04. Park Avenue(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F870AEB81E7738DB600E516E082E7759451C5C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 273858   (274790) от 22.12.2010
 
 The Modern Jazz Quartet - Under The Jasmin Tree / Space (2010) [FLAC|Lossless]<Jazz, Cool Jazz, Smooth Jazz>
@@ -582,180 +756,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79C06B4B540C592E599C1D4A1EBD588E24491BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265690   (273018) от 29.11.2018
-
-VA - Winter Soul (2018) [MP3|320 Kbps] <R&B, Soul, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberta Flack & Donny Hathaway, Donny Hathaway, Roberta Flack – Where Is the Love
-02. Aretha Franklin – Hooked On Your Love
-03. Eric Gadd – Why Don’t You, Why Don’t I (Radio Edit)
-04. Randy Crawford – Give Me the Night(   Читать дальше...   )Жанр: R&B, Soul, JazzПродолжительность: 01:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12AFB657E0716654364A4F1936E5BED7519D9ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596646   (272898) от 29.11.2018
-
-Gary Moore - Legacy (2CD) (2012)  (Compilation) [APE|Lossless]<Rock, Hard Rock, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out In The Fields
- 02. Ready For Love
- 03. Wishing Well
- 04. Hold On To Love(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues-RockПродолжительность: 01:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA19CE741559091F8CECD7ACE2939D414C77922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337861   (272712) от 12.11.2019
-
-D.E.W. East - Introducing D.E.W. East (1999) [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Every Man His D.E.W. (Wallace) - 6:27
-02. Mr. B.C. (Dean) - 7:42
-03. The Thruster (Elmes) - 10:41
-04. It's Easy to Remember (Hart-Rodgers) - 7:17(   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37442FA0C9690774036F355E56A92896D8DE608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337658   (272710) от 12.11.2019
-
-Steve Grossman - Katonah (1989) [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katonah (Grossman) - 11:04
-02. Afternoon in Paris (Lewis) - 8:52
-03. I Hear a Rhapsody (Fragos-Baker-Gasparre) - 6:44
-04. Taurus People (Grossman) - 9:02(   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2320FE2EC576CB8ACDA9E0F4A27D555CC996DC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337746   (272703) от 12.11.2019
-
-Charlie Watts Meets The Danish Radio Big Band (2017) Impulse! [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvin Suite, Part 1 [9:16]
-02. Elvin Suite, Part 2 [5:54]
-03. (Satis) Faction [6:11]
-04. I Should Care [8:01](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D86E0C045C2170BC40B3D30E6409A179806390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337762   (272702) от 12.11.2019
-
-The Hot Club of San Francisco - John Paul George & Django (2016) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Lovin' - 2:38
-02. Because - 3:35
-03. Michelle - 3:36
-04. I Will - 3:03(   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59058BFF9F0CFB46219CD2AC77B0567CB77CE9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

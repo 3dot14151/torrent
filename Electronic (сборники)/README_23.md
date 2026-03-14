@@ -1,3 +1,32 @@
+###  Публикация: 982848   (945573) от 05.02.2016
+
+VA - Car Satellite: Full Set EDM (2016) [MP3|320 кб/с] <Electro, House, Trance, techno, Dubstep, Hardstyl, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945573.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Azari & III - Reckless (With Your Love) (Steve Lawler Remix)
+002. Bjarki - I Wanna Go Bang (Original Mix)
+003. Coone, Bassjackers, GLDY LX - Sound Barrier (Original Mix)
+004. Dialect - Ghost Of Red Hook(   Читать дальше...   )Жанр: Electro, House, Trance, techno, Dubstep, Hardstyl, ProgressiveПродолжительность: 11:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED577A6A9FF76A59BAFB8145F7C2EEF94B9031F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363101   (945286) от 26.02.2020
 
 VA - Beatport Techno: Electro Sound Pack #13 (2020) [MP3|320 Kbps] <Techno, Tech House, Club>
@@ -727,35 +756,6 @@ VA - About EDM Sweet Festival Elements (2016) [MP3|256-320 Kbps] <Dance, Club, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0911FD2C281EF3CA26D086988917A5AB6F176D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983252   (943109) от 06.02.2016
-
-VA - Bust A Move Vol.2 (2015) [MP3|320 кб/с] <Psychedelic, FullOn, Night>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brain Hunters Feat John Go - Another Level (7:48)
-02. Funk Truck Vs Soundfanatic - Dr!ve (7:45)
-03. Dissy - Cocaine (8:19)
-04. Tube - So Sexy (8:54)(   Читать дальше...   )Жанр: Psychedelic, FullOn, NightПродолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C59B6AB8F31E677831B3CE5D4D1264BB99AECF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

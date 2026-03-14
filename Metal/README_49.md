@@ -1,3 +1,32 @@
+###  Публикация: 909757   (626520) от 18.06.2015
+
+Amrinan - Songs To Son (2015) [MP3|320 кб/с]<Power / Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better World
+02. Favorite Sons
+03. Here Comes The End Of Time
+04. The Tear(   Читать дальше...   )Жанр: Power Metal / Progressive MetalПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21DE7C244C15DB59DFA836CF45340C281591254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909617   (626411) от 18.06.2015
 
 Sadman Institute - Revival (2015) [MP3|320 кб/с]<Progressive Metal>
@@ -716,41 +745,6 @@ Orden Ogan - Vale (2007) Reissue, Remastered, 2015 [MP3|320 Kbps] <Heavy Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86A0A20ABAB631A916248EFBA822F552719F457C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522261   (621148) от 14.07.2012
-
-Reverence - When Darkness Calls (2012) [MP3|320 кб/с]<Heavy/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Darkness Calls (5:00)
- 02. Bleed For Me (4:11)
- 03. Phantom Road (3:47)
- 04. Devil In Disguise (4:31)
- 05. Too Late (5:17)
- 06. Gatekeeper (3:55)
- 07. The Price You Pay (4:19)
- 08. Monster (4:54)
- 09. Revolution Rising (5:33)
- 10. After The Leaves Have Fallen (3:36)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C956D86962F05008B962756B9BDD053437E180
 ```
 
 https://mybot314.ru/tekegram_catalog/

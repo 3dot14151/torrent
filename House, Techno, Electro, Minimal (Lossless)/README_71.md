@@ -1,3 +1,90 @@
+###  Публикация: 1801365   (15082) от 10.06.2025
+
+VA - Dancefloor Hits 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 90bangerz - Maybe We Are Young (2:47)
+02. Jluis - Universe (3:10)
+03. MaxRiven - Phantom (2:46)
+04. FLGTT - What I Need (2:52)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5B6D16AF97ECB5BBA1700C0340595C6C3C71F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804132   (13304) от 27.06.2025
+
+Armin van Buuren - Breathe (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno, Progressive Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Forever (Stay Like This) [2:33]
+02 - God Is In The Soundwaves [2:44]
+03 - Love Is A Drug [3:21]
+04 - Lose This Feeling [2:27](   Читать дальше...   )Жанр: Electronic, Techno, Progressive TranceПродолжительность: 02:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1DA7FC08E2F49486D712F24817A50E10C29232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804089   (13242) от 27.06.2025
+
+VA - Ibiza Dance Party 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nonix - Feel Like (03:18)
+02. DJ Mauritius - Melodic (06:15)
+03. REViK - Don't Miss The Beat (02:47)
+04. Robert Roxx - Through The Storm (07:25)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F1FEB7D3248F321E8B0C974D2F26EF040CEE88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806935   (11274) от 16.07.2025
 
 Everything But The Girl - Lullaby Of Clubland (2000) [FLAC|Lossless|tracks +.cue] <Progressive House, Deep House>

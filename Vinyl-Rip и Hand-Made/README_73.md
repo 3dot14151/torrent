@@ -1,3 +1,119 @@
+###  Публикация: 1718719   (110848) от 26.04.2024
+
+Lords Of Black - Studio Albums (6 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lords of Black — испанская хэви-метал группа, основанная в Мадриде в 2014 году гитаристом Тони Эрнандо и вокалистом Ронни Ромеро.2014 - Lords Of Black
+2016 - II
+2018 - Icons Of The New Days
+2020 - Alchemy Of Souls - Part I -Жанр: Heavy/Power MetalПродолжительность: 06:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213090019EF8466C5CBDDA023E97FD4FCFF9A511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718706   (110824) от 26.04.2024
+
+Giuffria - Giuffria (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, Arena Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110824.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Do Me Right
+A2 Call To The Heart
+A3 Don't Tear Me Down
+A4 Dance(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F674647C58623CB1816A4780308B3CD99FEC2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718811   (110821) от 26.04.2024
+
+Aggressor - Procreate the Petrifactions (1993) Released, 2012, Roundsound [FLAC|24/96|tracks|Vinyl-Rip] <Death, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Legal Requirements
+02 Wrong Faith
+03 Meaningless Life
+04 Fire Below The Ash(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B6856692434CD8262EFA6E9E9F3B7089D8E247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719216   (110635) от 28.04.2024
+
+U.D.O. - Dominator (2009) Reissue, 2017, AFM Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110635.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Bogeyman
+A2 Dominator
+A3 Black And White
+A4 Infected(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0338B7092D5F6CEF233FEB980B79E9E7AF6F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719515   (110570) от 29.04.2024
 
 After Forever - Studio Albums (5 releases) (2000-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
@@ -628,122 +744,6 @@ A4 Si On Chantait(   Читать дальше...   )Жанр: Pop, Sound-alike�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C668C239C5237EF2C9AC043A292F1035680A2DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724204   (109331) от 18.05.2024
-
-Kobra And The Lotus - Studio Albums (7 releases) (2009-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kobra and the Lotus (KATL) — канадская хэви-метал группа, образованная в 2009 году вокалисткой и автором песен Коброй Пейдж.2009 - Out Of The Pit
-2012 - Kobra And The Lotus
-2014 - High Priestess
-2015 - Words Of The Prophets (EP)Жанр: Heavy MetalПродолжительность: 05:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27B09F64047BFF22507B494009DECF1D777AD80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724404   (109196) от 20.05.2024
-
-VA - Metal Massacre 05 (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109196.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Omen - Torture Me
-A2 - Voivod - Condemned To The Gallows
-A3 - Attacker - (Call On) The Attacker
-A4 - Future Tense - Nightmare(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8962A3FA23FAF082D27D98356F9FDD801CB07B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724682   (109179) от 21.05.2024
-
-King Kong - Funky Reggae (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109179.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Love I Lost
-A2 Let Your Yeah Be Yeah
-A3 I Heard It Through The Grapevine
-A4 Papa Was A Rolling Stone(   Читать дальше...   )Жанр: Reggae, FunkПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD509BA9E5922A29369568083E5D855111810324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724633   (109174) от 21.05.2024
-
-Prong - Studio Albums (15 releases) (1987-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover/Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prong — американская грув-метал-группа, образовавшаяся в 1986 году в Нью-Йорке. Коллектив основан вокалистом и гитаристом Томми Виктором, который на протяжении всего существования Prong является единственным его постоянным участником.1987 - Force Fed - Primitive Origins (EP)
-1990 - Beg to Differ - The Peel Sessions (EP)
-1991 - Prove You Wrong
-1992 - Whose Fist Is This Anyway (EP)Жанр: Crossover/Thrash/Groove MetalПродолжительность: 11:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A121860FEDB92B93B2FE2D84776AFA9CF1425DD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1315737   (511792) от 21.07.2019
+
+Stranded - New Dawn (2019) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511792.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Not Enough Sorry [4:15]
+ 2. I’ll Be The One [3:39]
+ 4. Arrow [4:22]
+ 5. More Than Words Can Say [3:41](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D20306273E51BD7F1B59875C695E473FDE9067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932073   (510192) от 28.08.2015
 
 Backyard Babies - Four By Four (2015) [MP3|320 кб/с]<Hard Rock, Glam Punk>
@@ -749,41 +778,6 @@ Ian Gillan - Chercazoo & Other Stories (1972) [MP3|192 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:383A30560EE6D97E3EA4B1E766EED0BB14284FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545220   (486767) от 09.09.2012
-
-VA - Re-Machined. A Tribute To Deep Purple's Machine Head (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486767.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Carlos Santana & Jacoby Shaddix - Smoke On The Water (5:05)
-2. Chickenfoot - Highway Star (7:05)
-3. Glenn Hughes & Chad Smith - Maybe I'm A Leo (4:59)
-4. Black Label Society - Pictures Of Home (3:30)
-5. Kings Of Chaos - Never Before (4:05)
-6. The Flaming Lips - Smoke On The Water (4:25)
-7. Jimmy Barnes & Joe Bonamassa - Lazy (8:53)
-8. Iron Maiden - Space Truckin' (3:27)
-9. Metallica - When A Blind Man Cries (4:37)
-10. Glenn Hughes, Steve Vai, Chad Smith - Highway StarЖанр: Hard RockПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3752451426B2DC016CFB6AD389B4445BEA94F71F
 ```
 
 https://mybot314.ru/tekegram_catalog/

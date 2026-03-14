@@ -1,3 +1,192 @@
+###  Публикация: 563484   (404357) от 21.10.2012
+
+VA - Greatest Audiophile Voices (2011-2012) 4CD[FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lisa Lovbrand - Light My Fire    [05:00]
+02. Donna Tucker - Won't Know Till I Get There    [03:44]
+03. Amy London - Wonderful, Wonderful    [03:35]
+04. The New Mastersounds feat. Corinne Bailey Rae - Your Love Is Mine    [05:14]
+05. Monique Klemann - In The Land of Make Believe    [03:36]
+06. Trisha O'Donnell - Neither One of Us    [04:21]
+07. The Peter Malick Group feat. Norah Jones - New York City    [03:50]
+08. Sinne Eeg - The Night Has A Thousand Eyes    [05:34]
+09. Fragile - Get Here    [04:00]
+10. Lee Engele - Walk On By    [02:52](   Читать дальше...   )01. Julian Kuchocki - Somewhere Over The Rainbow    [06:07]
+02. Carol Duboc - A House Is Not A Home    [04:52]
+03. Karin Melchert - When I Fall In Love    [03:10]
+04. Juliet Kelly - I Wish You Love    [02:52]
+05. Inger Marie Gundersen - Let It Be Me    [03:38]
+06. Adreinne Hindmarsh - Don't Know Why    [04:04]
+07. Sophie Milman - My One And Only Love    [04:35]
+08. Monique Klemann - Cry Me A River    [05:18]
+09. Jessica Lee - Lover Man    [04:39]
+10. Sue Giles - Shiny Stockings    [03:55](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 0
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711925   (404344) от 18.10.2013
+
+Big Bad Voodoo Daddy - How Big Can You Get (2009) [FLAC|Lossless]<Swing Revival>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come on with the 'come on'
+02. Calloway Boogie
+03. The call of the Jitterbug
+04. Hey now, Hey now(   Читать дальше...   )Жанр: Swing RevivalПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF99AD1D21159558B0F7E56FC4653C9F8D09A2F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712417   (404217) от 18.10.2013
+
+Stacey Kent - The Changing Lights (2013) [FLAC (tracks)|Lossless|WEB-DL]<Vocal Jazz, Bossanova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Happy Madness
+02. The Summer We Crossed Europe in the Rain
+03. One Note Samba (Samba De Uma Nota So)
+04. Mais Uma Vez(   Читать дальше...   )Жанр: Vocal Jazz, BossanovaПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9199AB1E2E2B684DF9D9E7B176F52853B184ED60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169152   (404117) от 26.09.2017
+
+Al Hirt & Pete Fountain - Super Jazz 1 (1975) 1988, CBS [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South Rampart Street Parade [08:45]
+02. Jazz Funeral (Oh, Didn't He Ramble) [10:05]
+03. Salute to Satchmo Medley [09:01]
+04. Tie a Yellow Ribbon Round the Ole Oak Tree [03:10](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D53715174D5FED38FCDA9D703DE3A50CF99B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169142   (404116) от 26.09.2017
+
+Al Hirt - At The Mardi Gras (1962) 2000, RCA Victor [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Announcement & Bourbon Street Parade [03:33]
+02. Basin Street Blues [03:28]
+03. Perdido [02:39]
+04. Show Me the Way to Go Home [03:18](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4707B7106D782271D25306E0371B6B1F54EC251F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169155   (404115) от 26.09.2017
+
+Al Hirt - The Sound of Christmas (1965) 2013, Relayer Records [FLAC|Lossless|tracks + .cue] <Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nutty Jingle Bells [02:14]
+02. Medley: I Saw Mommy Kissing Santa Claus/Here Comes Santa Claus (Right Down Santa Claus Lane) [02:18]
+03. Rudolph The Red-Nosed Reindeer [02:12]
+04. Sleigh Ride [02:13](   Читать дальше...   )Жанр: DixielandПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7F74783DA3A09BD54DD3B5DA8C27B7FBC05AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169162   (404113) от 26.09.2017
 
 The Ted Rosenthal Trio - Rosenthology (1996) Concord Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -598,198 +787,6 @@ XXIth Century Infinity Jazz Ensemble - Digging In Archives (2009) JAZZO Sophia [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9AE2E4852FD303C1E3F56EDEAF524BF633E06E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169882   (401598) от 29.09.2017
-
-Machito & His Afro-Cuban Orchestra - Vacation At The Concord (1959) 2004, Verve [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guaglione [02:30]
-02. Cocktails For Two [02:32]
-03. Patricia [02:30]
-04. El Aji Caribe [02:04](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16DFEE234B252043EBACE163307819E891AE46D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565363   (401281) от 25.10.2012
-
-Cy Coleman - It Started with a Dream (2002) [APE|Lossless]<Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Some Kind of Music
-02. Witchcraft
-03. The Colors of My Life (Performed by Tony Bennett)
-04. Nothing to Do But Dance
-05. I Love My Wife/It Amazes Me
-06. September's Coming
-07. The Best Is Yet to Come
-08. I Really Love You
-09. Atlantic City
-10. Bad Is for Other People(   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:05:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565380   (401279) от 25.10.2012
-
-Custo - Cold Jazz (2008) [APE|Lossless]<Nu Jazz, Lounge, Ambient>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musica
-02. Цветы эфемерны
-03. Bio Thoughts
-04. Vynil Fantasies
-05. Jazzfuzz
-06. Dream
-07. Cosmic Zoo
-08. Beautiful Thing
-09. Gods Laughing
-10. DreamЖанр: Nu Jazz, Lounge, AmbientПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564945   (401189) от 25.10.2012
-
-Mr. Chop - Switched On (2011) [FLAC|Lossless]<Funk, Acid Jazz, Electronic, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hung-Up
-02. Root Down (& Get It)
-03. Breakthrough
-04. Givin' Up Food For Funk
-05. Blow Your Head
-06. Deep Gully
-07. Greedy G
-08. Happy Birthday
-09. Vitamin C
-10. CortexЖанр: Funk, Acid Jazz, Electronic, InstrumentalПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711922   (400759) от 22.10.2013
-
-Big Bad Voodoo Daddy - Live (2004) [FLAC|Lossless]<Swing Revival>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. The Boogie Bumper
-03. Jumpin' Jack
-04. I Wanna Be Just Like You (Jungle Book Song)(   Читать дальше...   )Жанр: Swing RevivalПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FB1F43FCC9586FD278623A2DB2593766C14849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170251   (400666) от 30.09.2017
-
-Leni Stern - Words (1995) [FLAC|Lossless|tracks + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400666.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Grace 5:15
-2 Ndola Longue 4:52
-3 Swayambu 6:10
-4 Halfmoon 5:30(   Читать дальше...   )Жанр: FusionПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4C84B8D6DC08B06ED81C8EDFC4DCCE872A85F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

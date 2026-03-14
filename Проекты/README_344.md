@@ -1,3 +1,31 @@
+###  Публикация: 1807186   (11202) от 17.07.2025
+
+Проекты - VideoHive - Photo Slideshow || Photo Gallery - 57110261 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минималистичное слайд-шоу для ваших творческих задач.
+
+Музыка очищена и предоставлена.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F40792E2C935C95ADBDDE1F1C9EA85680AA4EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807155   (11193) от 17.07.2025
 
 Проекты - VideoHive - Radio Logo - 56908976 [AEP]
@@ -667,32 +695,6 @@ Film Transition Pack добавляет классическое, кинемат
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32E6E8D96140FD06E77DE3C7FEFBCECF21FF0C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818676   (2159) от 18.09.2025
-
-Проекты - VideoHive - Unroll Billboard Mockup – Realistic 3D Outdoor Advertising Display Kit - 59529250 [AEP]
-
->>Проекты
->>Разное (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный макет рекламного щита Unroll.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DED89169237D27AC2BB42989D2FE72288C979C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

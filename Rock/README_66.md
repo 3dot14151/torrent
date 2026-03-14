@@ -1,3 +1,61 @@
+###  Публикация: 1579431   (336497) от 27.09.2022
+
+Frozen Factory - 3 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murder in the Depths [00:03:01]
+02. Host With the Most [00:04:00]
+03. Solar Windfalls [00:04:34]
+04. Equalise Power [00:04:26](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 3 CD, 02:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146D7E248F2CF445C73950AB69E4D766700CBCFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579358   (336488) от 27.09.2022
+
+Fleesh - 13 Albums (2017-2022) [MP3|320 Kbps] <Progressive Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manhã dos 33 (Sagrado Coração da Terra Version) [00:04:22]
+02. Nights in White Satin (Moody Blues Version) [00:04:56]
+03. Miracle Of Love (Eurythmics Version) [00:04:37]
+04. Sometimes You Can't Make It On Your Own (U2 Version) [00:05:08](   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 13 CD, 17:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9546BCF4E4C4D02300E9F9F67DE98F713714EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074729   (336027) от 20.11.2016
 
 Bahroma - Внутри (2014) [MP3|320 Kbps] <Pop Rock>
@@ -688,64 +746,6 @@ Country: United Kingdom, SolikamskПродолжительность: 13 CD, 11:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BC3D3CF507DEDECA73D6ECB151F93C9C3C4C714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580847   (328004) от 04.10.2022
-
-Def Leppard - CD Collection Volume 2 (2019) Box Set: 7 CD [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Get Rocked
-02. Heaven Is
-03. Make Love Like A Man
-04. Tonight(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 06:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AD5D9BAEA631D6DF81D091814A422ADA4C9239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957224   (327612) от 17.11.2015
-
-Black Oak Arkansas - Original Album Series (2013) 5CD Box Set [MP3|320 кб/с]<Rock, Southern Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327612.jpg" />
-</div>
-
-
-###  Подробнее
-
-1971 - Black Oak Arkansas
-1972 - Keep The Faith
-1972 - If An Angel Came To See You, Would You Make Her Feel At Home?
-1973 - High On The Hog(   Читать дальше...   )Жанр: Rock, Southern Rock, Rock & RollПродолжительность: 02:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5986049DEF4B8B7E52C1383FAA8242080F082D34
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1590155   (189410) от 12.11.2022
+
+Jay-Jay Johanson - Labyrinth (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Labyrinth (4:11)
+ 02. Labyrinth (Vocal Dub Version) (4:22)
+ 03. The Maze (Tomas Nordmark Labyrinth Rework) (8:38)
+ 04. Paris 2 (3:32)(   Читать дальше...   )Жанр: Alternative Pop, Trip-Hop, DowntempoПродолжительность: 00:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1B8869AB986CCD379A16CDFF4201FEFCE6DC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590449   (188835) от 14.11.2022
+
+Jay-Jay Johanson - Best of 1996-2013 (2013) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris (3:18)
+ 02. It Hurts Me So (Radio Edit) (4:14)
+ 03. So Tell the Girls That I Am Back In Town (Radio Edit) (3:50)
+ 04. The Girl I Love Is Gone (3:42)(   Читать дальше...   )Жанр: Alternative Pop, Trip-Hop, DowntempoПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195C0B732EB7A78D6442713D85DC9CF084034584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661593   (188548) от 15.09.2023
 
 V.A. - Beach Bar Chill Grooves, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Easy Listening>
@@ -687,64 +745,6 @@ VA - Musical Escape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C22B18548C6840F99FE79DFC826328D8CB1A44BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344680   (169774) от 11.12.2019
-
-VA - Good Morning Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Silver Drops (Original Mix)
-02. Michael e - It's Your Time (Original Mix)
-03. Charlie North - Early Morning Call (Original Mix)
-04. Finland & Aaskoven - Melzi (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB51E857973064489587521950903A747EA5B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515723   (168477) от 08.12.2021
-
-VA - Gate to Eternity: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour – Calm Before The Storm (04:51)
-02. Free Spirit Muse – Cry For Freedom 432Hz (original mix) (06:41)
-03. Elmara – Entre Nubes (03:59)
-04. Michael E – Noble Savage (original mix) (05:57)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E864E607472A2970AB64BF232042A85CB996F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

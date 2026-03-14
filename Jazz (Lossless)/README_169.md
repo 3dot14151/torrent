@@ -1,3 +1,90 @@
+###  Публикация: 937797   (486154) от 16.09.2015
+
+Ornette Coleman - The Unprecedented Music Of Ornette Coleman (1968) /2014, Studio Songs/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely Woman [10:35]
+02. Monsieur Le Prince [09:51]
+03. Forgotten Children [11:12]
+04. Buddah Blues [13:13]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E61C515DAF897C5C36AF584240130774A77F1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159270   (486139) от 19.08.2017
+
+Candy Dulfer - Girl Night Out (1999) BMG [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girls Night Out [03:27]
+02. 2025 [04:44]
+03. Fred's Joint [04:26]
+04. Mr. Slim [04:06](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FDDE80C4B9C4F45AC0BDA1FB546F7B2BCC2E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159217   (486126) от 19.08.2017
+
+Pear - Extemp'ore (2011) PearStudio Records [WavPack|Lossless|image + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dewey Miles [05:37]
+02. The Frenchman [07:08]
+03. Jenn 2 Sect 1 [09:01]
+04. Jimmy 1a [04:09](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33B0B263008B8A1F640DB3877A34A4DD24A8421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055712   (486117) от 23.09.2016
 
 Billy Taylor - One For Fun (1959) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
@@ -677,92 +764,6 @@ Jheena Lodwick - вокальный талант, красивый голос к
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159679   (482203) от 21.08.2017
-
-Ray Charles & Count Basie Orchestra - Ray Sings Basie Swings (2006) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh, What A Beautiful Morning [04:36]
-02. Let The Good Times Roll [02:58]
-03. How Long Has This Been Going On? [06:20]
-04. Every Saturday Night [04:06](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60192F87F83F33F7813A934897B7C6D7072CC2C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056551   (482137) от 25.09.2016
-
-Duke Ellington - Black Beauty (1924-1954) 2CD, 2005, Le Chant Du Monde[FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482137.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Choo Choo [03:18]
-02.Everything Is Hosty Totsy Now [02:57]
-03.The Creeper [02:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1D9FE6C9435E12BBC02F2EB1FE060CC1440E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938358   (482093) от 18.09.2015
-
-Natalie Cole - As Time Goes By (Single, 1993) /Elektra/[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.As Time Goes By [03:47]
-02.Calypso Blues [05:06]
-03.I'm Beginning To See The Light [03:28]Жанр: Vocal JazzПродолжительность: 00:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7BAD88BD516E46895C8EE59D0B85F24FC2CF764
 ```
 
 https://mybot314.ru/tekegram_catalog/

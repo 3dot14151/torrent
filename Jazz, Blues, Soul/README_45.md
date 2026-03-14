@@ -1,3 +1,61 @@
+###  Публикация: 1351915   (1001686) от 12.01.2020
+
+Thought Gang (David Lynch and Angelo Badalamenti) - Thought Gang (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental Jazz, Dark Jazz, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stalin Revisited (2:02)
+02. Logic and Common Sense (3:35)
+03. One Dog Bark (3:07)
+04. Woodcutters From Fiery Ships (4:35)(   Читать дальше...   )Производство: Sacred Bones - 843563105429Жанр: Experimental Jazz, Dark Jazz, Free Jazz, SoundtrackПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9693F6FDA8367E0AB67DD3076CCACABFBF513AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352180   (1001353) от 13.01.2020
+
+Marshall Gilkes & WDR Big Band - Koln (2015) Alternate Side Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Shining Hour [6:55]
+02. Vesper [7:27]
+03. 4711 Special [7:57]
+04. Edenderry Intro [4:14](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2C95A0C21ECAAAEACCD9BCAFFE1C0E98DF2374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352238   (1001346) от 13.01.2020
 
 Djabe - Forward Live, 2CD (2018)   [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -777,74 +835,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A0DED7111566D22A2BD3ACFFBB9D68E6F093BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599706   (999110) от 07.01.2013
-
-Jane Monheit - 6 Албомов (2000-2009) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like A Star [05:16]
-02. Something Cool [04:57]
-03. Slow Like Honey [05:58]
-04. This Girl's In Love With You [04:56]
-05. I'm Glad There Is You [05:08]
-06. Get Out of Town [03:41]
-07. I Do It For Your Love [04:04]
-08. I Ain't Gonna Let You Break My Heart [05:21]
-09. Ballad of the Sad Young Men [06:01]
-10. No Tommorrow [05:13](   Читать дальше...   )Жанр: Jazz VocalФормат: trac+cueПродолжительность: 001:03:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599562   (999079) от 07.01.2013
-
-Salena Jones - 3 альбома (2007-2011) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Love (based on Albinoni themes) [03:24]
-02. My Reverie (based on Reverie - Debussy) [02:52]
-03. If you are but a dream (based on Reverie - Rubenstein) [04:26]
-04. No Other Love (based on Chanson de L'adieu - Chopin) [03:02]
-05. Moonlight Love (based on Clair de Lune, No.3 from Suite Bergamasque - Debussy) [05:27]
-06. E-Mail Female (based on Humouresque No.7 in G Flat Major - Dvorak) [03:30]
-07. Don't Speak of Me (based on Air on G String/Orchestral Suite No.3 - Bach) [04:39]
-08. Full Moon and Empty (   Читать дальше...   )Жанр: Jazz VocalФормат: image+cueПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1236865   (553764) от 20.07.2018
+
+MiyaGi & Эндшпиль - Hajime, Pt. 3 (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колизей
+02. Дама
+03. Я хочу любить
+04. Фея(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17022D7481DB49661AEB70F19156AB1640F785B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046381   (552843) от 26.08.2016
 
 Дино (Триада) - Дом Где (2016) [MP3|192 Kbps] <Rap>
@@ -722,35 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7430110ABF39F2075749402BB043342D04DA732E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409849   (440455) от 19.09.2020
-
-Витя АК - Старая школа (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Попандопуло (feat. Ямыч) [03:17]
-02. Тонкая стена (feat. VibeTGK) (Scratch by DJ Mixoid) [03:03]
-03. Кайфовать (feat. ЁЖИК) (Scratch by DJ Mixoid) [02:39]
-04. Мы с тобой (feat. Tip) [03:29](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468F418149B959B379A29983B57B976C24D45645
 ```
 
 https://mybot314.ru/tekegram_catalog/

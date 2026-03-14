@@ -1,3 +1,148 @@
+###  Публикация: 1283936   (731027) от 19.02.2019
+
+VA - Mario Più - Back From Hell (2019) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mario Più - Let's Begin (Intro)
+02. Mario Più & Matteo Marini - The Other Side I (Original Mix)
+03. Mario Più - Intollerance (Original Mix)
+04. Mario Più & Matteo Marini - Sabres of Hell (Original Mix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E24A4E32FDC0BBF5023DE5B504D1DF1C896C90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284157   (730098) от 20.02.2019
+
+VA - Progressive Trance Vol.6 (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel & Rimsky feat. Diana Leah - One Last Time (Vadim Bonkrashkov Extended Remix) 05:46
+02. Roman Messer - Lost (Ruslan Radriges Extended Remix) 05:16
+03. ThoBa feat. Kate Miles - Your Love (Extended Mix) 05:31
+04. Jordy Eley - Cosmic Colors (Original Mix) 04:04(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEDE601170FA4F0069055EDF3A7860435BAAB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284151   (730093) от 20.02.2019
+
+VA - Trance Mission (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindsoundscapes - Grasping Life (Radio Cut) 03:19
+02. Dreamy - Scar (Radio Cut) 04:04
+03. George Harrold - Ayuhuasca (Radio Cut) 03:46
+04. Artra & Holland - Mountains (Radio Edition) 03:11(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD118563DEB4DB153A16205026B7B1433B306A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284517   (728956) от 21.02.2019
+
+VA - The Best Of The Last 50 Releases - Special 150 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeron Komila - Phoenix (Enfortro Remix)
+02. Airdream - Sequence Of Events (Matt Robertson Remix)
+03. Aleksey Gunichev - Kristian Melody (Artifi Remix)
+04. Baintermix - Wind Of Change (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E2709EBD0ADC74FF00E7C96F86DB2BD93ACAB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128484   (726635) от 26.04.2017
+
+VA - Dark Uplifting Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Solis & Sean Truby presents S&ST - Roots (Original Mix)  3:24
+02.  Photographer - Infinity (Radio Edit)  3:46
+03.  Farhad Mahdavi & Kiran M Sajeev - Higher (Radio Edit)  3:50
+04.  CubeTonic - So Strong (feat. Dilara Gadel) (Saad Ayub Radio Edit)  3:40(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D045E839C9A4DA400686D5A8A66ACFA501AC9823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218197   (725292) от 08.04.2018
 
 VA - Good Day Music Compilation Vol.4 (2018) [MP3|320 Kbps] <Trance>
@@ -600,151 +745,6 @@ VA - Trance Euphoria Vol.3 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29AEE8346869EC0653BADA9A9735B68AC3B99530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286708   (711155) от 03.03.2019
-
-Gigi D'Agostino - The Greatest Hits (1996/2007) Compilation, Reissue [MP3|320 Kbps] <Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noise Maker Theme (8:52)
-02. Sweetly (8:09)
-03. Happily (8:26)
-04. This Song Tears Easily (5:35)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F779AB562262ABC12BF742D06FFAF0553F471C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220162   (708239) от 17.04.2018
-
-VA - The Best Of JamX & De Leon (Edits & Album Specials) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Binary Finary - 1998 (JamX & De Leons)
-02. DuMonde - Tomorrow (Edit)
-03. DuMonde - See the Light (Special)
-04. DuMonde vs Lange - Memory Jamx & De Leon Mix (Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F50E7E3AEBA9CDCF54389E878C5DC3C0D00A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286893   (707305) от 05.03.2019
-
-VA - From euphonic to Russia (mixed by Kyau vs. Albert) (2006) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirco de Govia & Ronski Speed - Asarja (Ronski SpeedMix) (4:00)
-02. Ronski Speed & Sebastian Sand - Sole Survivor (Ronski Speed Mix) (4:24)
-03. Kyau vs. Albert - Falling Anywhere (Rework) (3:36)
-04. Mirco de Govia - Vital Spark (Original Mix) (6:02)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F6B1BF9AD9DE35B1D0FC4E8A7707F60752CF2B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220187   (706193) от 18.04.2018
-
-VA - Trance Spring Essentials (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airdraw,Aaren, Jo.E - Bryde's Whale (Club Mix)
-02. LTN,Stendahl, Arielle Maren - Black Hole (Blood Groove & Kikis Instrumental Remix)
-03. PROFF - Innervate (Original Mix)
-04. Sound Quelle & Piramex - Shoreline (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545D7AD83E6875F69B5FAA47EF8E1AB4D2BBB326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220357   (706192) от 18.04.2018
-
-VA - Nothing But... The Future of Trance Vol. 06 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Exo - Skybouncer (Original Mix)
-02. Ultimate - Enru (Original Mix)
-03. Tau-Rine - New Life (Radio Edit)
-04. Paul Arcane - Transcend (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67109D5EFDF9BB5E9B10FD20BF8BD8831AD0EE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

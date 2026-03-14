@@ -1,3 +1,148 @@
+###  Публикация: 1800817   (15467) от 06.06.2025
+
+Joanne Shaw Taylor - Black & Gold (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Modern Electric Blues, Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold Of My Heart
+02. All The Things I Said
+03. Black & Gold
+04. Who’s Gonna Love Me Now(   Читать дальше...   )Жанр: Modern Electric Blues, Blues-RockПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5DAE28B585381FED69389F471FA969EF8CFC0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800819   (15464) от 06.06.2025
+
+Pink Martini - Bella ciao (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bella Ciao
+02. Pourquoi tu vis
+03. Aspettami
+04. DestinoЖанр: Pop-JazzПродолжительность: 00:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430CBAB71A40D448A70F4C0AFAE6A49A01D42CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559388   (15417) от 07.06.2025
+
+Volbeat - Studio Albums (9 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Volbeat — датская метал-группа, образованная в Копенгагене в 2001 году. Музыкальный стиль группы вдохновлён такими исполнителями как Metallica, Social Distortion, Элвис Пресли и Джонни Кэш.2005 - The Strength The Sound The Songs
+2007 - Rock The Rebel Metal The Devil
+2009 - Guitar Gangsters & Cadillac Blood
+2010 - Beyond Hell-Above HeavenЖанр: Heavy/Groove MetalПродолжительность: 09:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F394C291BBFBB1A29BB0BB46741B84E1D1AD44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801058   (15356) от 07.06.2025
+
+Brian Eno & Beatie Wolfe - 2 Albums (2025) [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Ambient, Modern-Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milky Sleep [00:03:18]
+02. Hopelessly At Ease [00:03:41]
+03. My Lovely Days [00:04:43]
+04. Play On [00:05:55](   Читать дальше...   )Жанр: Ambient, Modern-ClassicalПродолжительность: 2 CD, 01:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E5A3867BE3B8B7279C0EC75DCB46CB61A7A75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800988   (15350) от 07.06.2025
+
+Blank & Jones - Milchbar - Seaside Season 17 (2025) [FLAC 24/44.1 - 24/48|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones – Sunrise
+02. Anders Ponsaing – Baker Street (feat. Michael Rune, Troels Hammer & Mads Hammer)
+03. Blank & Jones – Love Will Save the Day (feat. Zoe Durrant)
+04. Dune People – Always Green(   Читать дальше...   )Жанр: Electronic, Chillout, LoungeПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF1141004A837F38618CAF8B3D2EA8DD4E81516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801285   (15147) от 09.06.2025
 
 Glen Barbuto - CONCEPT ALBUM / DEMO 4 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
@@ -596,148 +741,6 @@ The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Del
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD186B90C38262D9E9288FED5988E4CDD8483BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801662   (14715) от 13.06.2025
-
-Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk, CountryПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5229224C856971504507DB44B3B63871D46C71DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801769   (14712) от 13.06.2025
-
-Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordings Ltd [FLAC 24/96|Lossless|WEB-DL|tracks] <Britpop, Alternative Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Supersonic [4:45]
-02 - Roll With It [4:00]
-03 - Live Forever [4:39]
-04 - Wonderwall [4:22](   Читать дальше...   )Жанр: Britpop, Alternative Rock, Indie RockПродолжительность: 02:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798DBFC6222AF8BC193EC504AF5962434DBE9CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801799   (14710) от 13.06.2025
-
-Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Folk Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Sunday Feeling (Live) [3:59]
-02 - Living in the Past (Live) [5:36]
-03 - Serenade to a Cuckoo (Live) [4:22]
-04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931A31D6D0882E4EB028D82D22E965D6F669784F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645217   (14545) от 15.06.2025
-
-Katatonia - Studio Albums (15 releases) (1993-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal; Gothic/Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Katatonia — шведская группа, основанная в 1991 году в Стокгольме Йонасом Ренксе и Андерсом Нюстрёмом. Раннее творчество коллектива принято характеризовать как дэт-дум-метал, а сама группа, наряду с My Dying Bride, Anathema и Paradise Lost, считается лидером этого жанра. Однако после записи альбома Brave Murder Day, в котором вокальные партии исполнил Микаэль Окерфельдт, (   Читать дальше...   )1993 - Dance Of December Souls
-1996 - Brave Murder Day
-1998 - Discouraged Ones
-1999 - Tonight's DecisionЖанр: Doom/Death Metal; Gothic/Progressive RockПродолжительность: 16:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9012591C944A59D0CE949CB8FFD63505E05606A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802398   (14434) от 16.06.2025
-
-The Hu - Echos of Thunder (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Mongol Warrior Souls (feat. William DuVall and Trevor McNevan) (Teerawk Remix) [00:03:58]
-02. Bii Biyelgee (feat. Tyler Glenn of Neon Trees) [00:04:20]
-03. Triangle (feat. ROME) [00:03:34]
-04. This Is Mongol [00:03:44](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5A0821B90959EFDC232C0104E3AFF803D00356
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1540776   (242864) от 31.03.2022
+
+Cortex - Inedit '79 (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Heard a Sigh - 3:37
+02. Back to My World - 4:46
+03. Said I Do - 5:10
+04. A Winning Team - 3:21(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2957A866A19093013661B9D4A146750463BA725C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098179   (242848) от 29.01.2017
+
+Lou Donaldson - Caracas (1994) Milestone Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hot Dog [05:19]
+ 02.Just A Dream (On My Mind) [06:23]
+ 03.Ornithology [07:09]
+ 04.I Don't Know Why (I Just Do) [05:01](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAFA48D838D42CB14B4E2CD147AD03802047B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541020   (242847) от 02.04.2022
+
+Jackie McLean Quartet - Tune Up (1966) 1993, SteepleChase [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tune Up [13:47]
+02. I Remember You [13:27]
+03. Closing [2:59]
+04. Jack's Tune [14:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F806F377C0D371B5BFC58C19B20BDDAA4586F2C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097664   (242841) от 29.01.2017
 
 Paul Smith Quartet - Softly, Baby (1957) Remaster, 2011, Capitol[FLAC|Lossless|tracks + .cue] <Bop, Cool>
@@ -658,93 +745,6 @@ Clare Teal - A Tribute To Ella Fitzgerald (2016) Chasing The Dragon [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01725A50E7816ADE1C6699953EE8A1CC4F9526A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105826   (242317) от 18.02.2017
-
-Ray Charles - Live At The Montreux Jazz Festival (2002) Geneon [FLAC|Lossless|tracks + .cue] <Soul Jazz, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ray Charles Opener [01:04]
- 02.I'll Be Home [03:25]
- 03.Busted [02:25]
- 04.Georgia On My Mind [05:50](   Читать дальше...   )Жанр: Soul Jazz, R&BПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BEB012A420843FEDABD65B6F73313EB586500D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372412   (242208) от 03.04.2020
-
-The Oscar Peterson Trio - The Oscar Peterson Trio Plays 1964 (2004) Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Strut [4:11]
-02. Let's Fall In Love [5:46]
-03. Satin Doll [5:27]
-04. Little Right Foot [5:00](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E4942765A042E942E40BF996B1E72B8C1B32D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106328   (242199) от 19.02.2017
-
-Joe Williams - A Man Ain't Supposed To Cry (1958) 1998, Roulette [APE|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.What's New [02:49]
- 02.It's The Talk Of The Town [03:16]
- 03.I'll Never Smile Again [03:04]
- 04.I'm Through With Love [02:57](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BAC6A7EF5836245C01CC403217788EDABD9714
 ```
 
 https://mybot314.ru/tekegram_catalog/

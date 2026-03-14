@@ -1,3 +1,32 @@
+###  Публикация: 1674138   (162000) от 04.11.2023
+
+VA - ЕвроХит Топ 40 Europa Plus 03.11.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dezko - Ascend (3:20)
+02. Robert Cristian feat. Alis Shuka - The Day Before (2:25)
+03. Doja Cat - Paint The Town Red (3:51)
+04. The Kolors - Italodisco (3:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A373BEE0B601E7F8950EDFFD93A851B68D557C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432869   (161987) от 19.12.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 18.12.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -722,35 +751,6 @@ VA - Music News vol.57 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8950D014F95A5736C478C940FDE5501C955BB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968187   (156854) от 23.12.2015
-
-VA - Top Club 40 - December 2015 (2015) [MP3|320 кб/с] <Dance, Club 40, Electro, Remixes>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Willy William – Ego (#Ash Simons Bangerz) (Ft. Sleepy Tom)
-02 – Laurent H Ft. Maxxy Dready – Fear (Original Vocal Mix)
-03 – Ridsa – La C’est Die (Dj Florum Club Mix)
-04 – Keen V – Un Monde Meilleur (Club Mix)(   Читать дальше...   )Жанр: Dance, Club 40, Electro, RemixesПродолжительность: 04:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A428255D685927994657A1233DADF5BBAB6A870
 ```
 
 https://mybot314.ru/tekegram_catalog/

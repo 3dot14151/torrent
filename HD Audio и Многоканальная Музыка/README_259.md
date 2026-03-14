@@ -1,3 +1,149 @@
+###  Публикация: 1816279   (4380) от 04.09.2025
+
+Problematic Jam - It's So Confusing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nothing I Want (2:15)
+02.  It's Alright (2:40)
+03.  Come Here Forever (2:47)
+04.  Get Outta My Funky Car (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04CCF91D65056AC20DE37BD039A75B87ED7D7FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816278   (4379) от 04.09.2025
+
+Mitch Laddie - Faith and Other Bad Habits (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  50 Shades of Blue (2:53)
+02.  She Keeps Me Down (2:59)
+03.  Angels & Demons (5:26)
+04.  The Way It Goes With Love (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1EB778BFC0B80FD2261FB14912B3F9806D5DDBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816285   (4378) от 04.09.2025
+
+Sketch Plot - Rock Lives On (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rock Legend (3:14)
+02.  Fortune's Favor (4:41)
+03.  Sweet Lady (3:23)
+04.  Dark Moon Rising (4:07)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B445CAB926C62EF878D3B65E038EE3E2A7A67342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681415   (4317) от 05.09.2025
+
+Violator - Studio Albums (6 releases) (2004-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Violator — бразильская трэш-метал-группа. Является флагманом NWOTM (новой\третьей волны трэш-метала) и отличается ярко выраженной «олд-скульной» стилистикой, подражая андерграундным трэш-бэндам середины 80-х.2004 - Violent Mosh (EP)
+2006 - Chemical Assault
+2010 - Annihilation Process (EP)
+2013 - Scenarios Of BrutalityЖанр: Thrash MetalПродолжительность: 03:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5DEE40132A4069B4CB4787058DD0857BA2FCDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690720   (4300) от 05.09.2025
+
+Primal Fear (& Ralf Scheepers) - Studio Albums (19 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Speed/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Primal Fear — немецкая пауэр-метал группа, основанная в 1997 году Ральфом Шиперсом (вокал, ex-Gamma Ray) и Мэтом Синнером (бас и вокал, Sinner).
+Синнер и Шиперс сформировали группу после того, как Шиперс не был нанят на замену Робу Хэлфорду в Judas Priest.1998 - Primal Fear
+1999 - Jaws of Death
+2000 - Nuclear Fire
+2001 - Horrorscope (EP)Жанр: Speed/Power MetalПродолжительность: 17:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85FA408BA947121BF9C3BE5025A93E9015FA43F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816578   (4295) от 05.09.2025
 
 Cat Stevens (Yusuf) - On The Road To Findout: Greatest Hits (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk>
@@ -600,150 +746,6 @@ Polaris - Fatalism (2023, 2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E02B62282A20F706BE754A55BB47F58F4195935B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817302   (3554) от 09.09.2025
-
-Isle Of Man - Isle Of Man (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3554.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Am I Forgiven
-A2 Building Bridges
-A3 Speaking English
-A4 Desperate Surrender (Amor Moriendo)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2390F97368F5172C30DA62BCD1184C81EFAD8553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817052   (3551) от 09.09.2025
-
-Skyharbor - Studio Albums (3 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skyharbor - рок-группа из Индии, образованная в 2008 году2012 - Blinding White Noise: Illusion & Chaos
-2014 - Guiding Lights
-2018 - Sunshine DustЖанр: Progressive MetalПродолжительность: 02:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0474B38978AAD1728E56BA52E6D21D1EBE9AC7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792383   (3486) от 10.09.2025
-
-In Mourning - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3486.jpg" />
-</div>
-
-
-###  Подробнее
-
-In Mourning - шведская метал-группа, образованная в 2000 году.2008 - Shrouded Divine
-2010 - Monolith
-2012 - The Weight Of Oceans
-2016 - Afterglow(   Читать дальше...   )Жанр: Progressive Melodic Death MetalПродолжительность: 09:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8256A23E63A238143D3D651E642F989C30AB0A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817365   (3465) от 10.09.2025
-
-Glenn Hughes - Chosen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Voice In My Head (5:18)
-02.  My Alibi (5:01)
-03.  Chosen (4:58)
-04.  Heal (6:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6329BAD77451B3BC46781EBE531CDA81946DBBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817482   (3464) от 10.09.2025
-
-Static Movement - Underwater (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Trance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Underwater (Original Mix) [06:27]
-02. Dusty Melody (Original Mix) [06:04]
-03. Into the Void (Original Mix) [07:38]
-04. Falling into a Deep Sleep (Original Mix) [06:18](   Читать дальше...   )Жанр: Psy-Trance, Progressive TranceПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77368DF48066422214234E72D565B297B7682F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

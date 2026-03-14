@@ -1,3 +1,67 @@
+###  Публикация: 1311339   (541908) от 29.06.2019
+
+VA - Sternstunden der Volksmusik (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541908.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Kastelruther Spatzen;Walter Widemair;Manuela Pirkner;Sepp Safrin - Eine weie Rose
+02. Die Zillertaler - Der liebe Gott muss a Tiroler sein
+03. Slavko Avsenik Und Seine Original Oberkrainer - Trompetenecho(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:378F24A46C3C927D5031349EAC67CC72B24F153C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531398   (541824) от 05.08.2012
+
+Lana Del Rey - Unreleased (2012) [MP3|128-320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541824.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Axl Rose Husband (3:03)
+2. Big Spender (feat. Smiler) (3:18)
+3. Children Of The Bad Revolution (3:25)
+4. Daddy Issues (feat. Aaron LaCrate) (4:54)
+5. Damn You (0:34)
+6. Dangerous Girl (4:22)
+7. Dayglo Reflection (feat. Bobby Womack) (4:18)
+8. Disco (4:05)
+9. Driving in Cars with Boys (4:16)
+10. Dum Dum (4:06)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E864A8E9702EB7E4061153F8352AB1AADFCD6FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154441   (540782) от 30.07.2017
 
 Tom Jones - The Best Of Tom Jones (1999) 3CD Box Set [MP3|320 Kbps] <Pop, Blues, Soul>
@@ -681,62 +745,6 @@ Eighth Wonder - 2 Albums (1987, 1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:997F71EE3DB5CB6C215A7B0538816DD099C77F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313121   (528232) от 07.07.2019
-
-Saint Etienne - Saturday Boy (2019) Single [MP3|320 Kbps] <Alternative Dance Pop, Synthpop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крайний сингл группы - нет на трекере совсем!01. Saturday Boy
-02. You Don't Own MeЖанр: Alternative Dance Pop, Synthpop, Indie PopПродолжительность: 00:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A95FFC9EFA6EEBC4E963D178A8CB9D5A39DFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052391   (528121) от 14.09.2016
-
-VA - Le Son Dancefloor Summer (2016) [MP3|256~320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528121.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Imany - Don'T Be So Shy (Filatov & Karas Remix)
-02. Sia Feat. Sean Paul - Cheap Thrills
-03. Kungs & Cookin On 3 Burners - This Girl(   Читать дальше...   )Жанр: PopПродолжительность: 03:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669A6CFE98D4FB4C62E9DD2E5E8BA51652E7B454
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1756373   (36086) от 26.11.2024
+
+VA - Tomorrowland Brasil (2024) [MP3|320 Kbps] <Techno, Melodic House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia - Omen (Intro Edit)
+02. Axwell - Barricade w/Axwell Λ Ingrosso ft. Kristoffer Fogelmark - More Than You Know
+03. Michael Calfan - Resurrection (Axwell Re-Cut Club Version) w/Empire Of The Sun - Walking On A Dream (Acappella)
+04. Swedish House Mafia - Greyhound w/Sebastian Ingrosso - Flood(   Читать дальше...   )Жанр: Techno, Melodic House, TranceПродолжительность: 27:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E0A46A7563D59A0EE59ECFD1AC6E94A12B5EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368231   (36084) от 26.11.2024
+
+CERERA - CERERA pres Echo Of The Universe #022 Live @Zig Zag 25 Years 14 02 (2020) [MP3|320 Kbps|image + .cue] <House, Disco House, Soulful House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CERERA - (Intro Speech)
+02. Birdee - Dinamo
+03. Birdee - Song for Francesca
+04. T.Markakis - We Call It Music(   Читать дальше...   )Жанр: House, Deep House, Disco House, Future House, Garage HouseПродолжительность: 02:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922A4B1381A36B9FFE8B4BD24B9EE5022BD07A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762626   (36031) от 26.11.2024
 
 Korolova - Live @ Bali, Indonesia (2024-11-22) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
@@ -684,64 +742,6 @@ VA - Armin van Buuren - A State Of Trance 1238 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01A5464FE933CE92AA22AAAC6835894794DCECF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812499   (7649) от 15.08.2025
-
-VA - Ori Uplift - Uplifting Only Episode 653 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LR Uplift – Emotions (SouthDreamer Intro Mix)
-02. Alexander de Roy & Hidden Tigress – Intention (Eximinds Remix) (Fan Favorite (650))
-03. Tycoos – Future Horizons (Uplifting Classic)
-04. Ciaran McAuley & Sean Tyas & Clara Yates – Runaway(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A54C3FD9A8DC13268D3E5A46A3147919A936B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813923   (6406) от 22.08.2025
-
-VA - Armin van Buuren - A State Of Trance 1239 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hardwell played:
-01. UUFO & Shogun – Seven Days And One Week
-02. Armin van Buuren & Hardwell – Follow The Light
-03. Alex Gaudino ft. Crystal Waters – Destination Calabria (Hardwell Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE698948C1E87727AE8E7660827A277BF951DC82
 ```
 
 https://mybot314.ru/tekegram_catalog/

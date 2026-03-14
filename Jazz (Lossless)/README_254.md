@@ -1,3 +1,90 @@
+###  Публикация: 1635992   (235807) от 28.05.2023
+
+Lennie Tristano - The Duo Sessions (1967 - 1976) 2020, Dot Time Records [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of a Dream [6:18]
+02. Ballad [6:53]
+03. Chez Lennie [6:36]
+04. Inflight [2:07](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 01:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC195E85C55213900F963E10CCEB9459005574A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615239   (235792) от 25.02.2023
+
+Freddie Hubbard - Here To Stay (1962) 1988, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philly Mignon [5:30]
+02. Father and Son [6:38]
+03. Body and Soul [6:28]
+04. Nostrand and Fulton [7:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A22B9629898369F380A8D10990781E4DCAE192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635862   (235788) от 28.05.2023
+
+Billy Bang - Big Bang Theory (2000) Justin Time Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contrary Motion [5:19]
+02. At Play In The Fields Of The Lord [7:38]
+03. Big Bang Theory [9:54]
+04. Theme For Taraby [6:03](   Читать дальше...   )Жанр: Contemporary Jazz, Free ImprovisationПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE7D0711ED4DDC41151D5D1EE0F952809930765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512245   (235778) от 24.11.2021
 
 Stian Carstensen - Musical Sanatorium (2021) [FLAC|Lossless|tracks + .cue] <Modern Creative, Fusion, Contemporary Jazz>
@@ -658,93 +745,6 @@ Jessica Williams - The Next Step (1993) Hep Jazz [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0841BD9F9E27961CB2A12F49D80F8DF93FD6D754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637049   (235278) от 02.06.2023
-
-Albert Ayler Trio - Spiritual Unity (1964) 2005, ESP [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghosts: First Variation [5:16]
-02. The Wizard [7:24]
-03. Spirits [6:50]
-04. Ghosts: Second Variation [10:00]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098EE24D6EAD7B72A67F1E9EBDD9A9C6A8F65453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641661   (235254) от 23.06.2023
-
-Jessica Williams - Gratitude (1996) Candid [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sheikh [6:39]
-02. I Cover the Waterfront [7:31]
-03. Mr Syms [7:08]
-04. Serenata [7:45](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22079461A5165437366ED4C44417FE4D993D319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619914   (235251) от 18.03.2023
-
-Ray Gelato And The Giants Of Jive - A Taste Of Gelato (1992) High Five Records [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley: Ornithology/How High the Moon [4:00]
-02. Swing St. [3:52]
-03. Airmail Special [5:12]
-04. Everybody Eats When They Come to My House [4:12](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD7B06BADCCF11D5531997CBFD4F89EF78978E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

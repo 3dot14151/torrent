@@ -1,3 +1,32 @@
+###  Публикация: 1006697   (825585) от 13.04.2016
+
+VA - Happy Feeling Vol.3 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yuriy Pilin - Dream (Original Mix) 04:31
+02. Soundmare - Digital Sunlight (Original Mix) 06:14
+03. Alex Tasty - Double Senses (Original Mix) 06:19
+04. Romashin - A Cold Winter Sun (Original Mix) 09:51(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 01:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1374A38842E753A93C9E538DE7EEAA1ED509D28A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006904   (825481) от 13.04.2016
 
 VA - Junodownload DJs Most Charted March (2016) [MP3|320 кб/с] <Deep House, Nu-Disco, Club House, Tech House, Techno>
@@ -719,35 +748,6 @@ VA - Super Bomb Electro: Classic 2 (2016) [MP3|320 кб/с] <Electro House, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEFB45C685D265F2E92F170C5541F355D1C97442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007703   (819655) от 16.04.2016
-
-VA - Extra Trance (episode 10) (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyau & Albert - About The Sun (Original Mix) (05:50)
-02. Ferry Corsten - Beautiful (Aly & Fila Remix) (07:47)
-03. Gerome feat. Cassandra Grey - Black Bird (Vocal Mix) (06:40)
-04. Ernesto vs Bastian feat. Susana - Dark Side of The Moon (Alex M.O.R.P.H Remix) (06:16)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938C63A748521078224D81A3ECD4908602D487D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

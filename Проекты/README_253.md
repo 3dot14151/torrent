@@ -1,3 +1,29 @@
+###  Публикация: 1170176   (399165) от 01.10.2017
+
+Проекты - VideoHive - Website Presentation Pack - 20478293 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет для создания презентаций. Отлично подойдет для сайтов, каналов YouTube, Twitter. А так же для страниц в соц.сетях.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6361FECE9389863ADB3407DFB7E7B7C73F2C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 714479   (398412) от 24.10.2013
 
 VideoHive - Blinds Slideshow - 4493782 [AEP]
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE2053DAEE3D90AF3884CE1ABC8B79DEB5138C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172677   (391707) от 09.10.2017
-
-Проекты - VideoHive - In Trend // Fashion Show Package - 20313544 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный, яркий, динамичный, профессионально выполненный пакет для создания любой презентации.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24339DC501913870DF24B4C63C91C578E8AA1A5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

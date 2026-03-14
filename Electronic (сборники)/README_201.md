@@ -1,3 +1,32 @@
+###  Публикация: 1346604   (157807) от 20.12.2019
+
+VA - Beatport Electronic Pack 01 (2019) [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157807.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gui Boratto - No Turning Back
+002. Raymond D Barre - Shodar (Original Mix)
+003. Duca - No Comment (Original Mix)
+004. Soman - Impact(   Читать дальше...   )Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 12:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED3D3DB6E29C6890765CE851A08961059184C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346629   (157783) от 20.12.2019
 
 VA - Little Sea Lounge (2019) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
@@ -718,35 +747,6 @@ VA - Graceful Vocal Trance (2016) [MP3|320 Kbps] <Vocal Trance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:913ABCF6200DF262C641EEE842C8689935EDD0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086410   (153361) от 24.12.2016
-
-VA - Empire Records - Chill Out 3 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitrii G - Stronger (Original mix)
-02. Lee & Sun - Underwater
-03. Dykane - Lost Summer (Original Mix)
-04. Frank Pleasure Night - Good(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB29661A8221D4E19854E183A86E067907350CE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

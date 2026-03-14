@@ -1,3 +1,148 @@
+###  Публикация: 1305972   (555904) от 02.06.2019
+
+VA - Latina Fever (2019) 4CD [MP3|320 Kbps] <Latin>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555904.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Sebastian Yatra - Por Perro
+02. Kaïzer Panda - Hum (Radio Edit)(   Читать дальше...   )Жанр: LatinПродолжительность: 03:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB4891E11A8C0C34E7E8D611DF159151F61A1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305951   (555896) от 02.06.2019
+
+VA - Инструментальные хиты кино (2004) [FLAC|Lossless|image + .cue]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Е. Крылатов - Талисман ( к/ф Конец императора тайги )
+02. В. Лебедев - Берег моря ( к/ф Вперед, Гардемарины! )
+03. А. Петров - Дождь ( к/ф Служебный роман )
+04. Е. Крылатов - Приказано взять живым ( к/ф Приказано взять живым )(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B367D71D012EC4885799916F86339A5E9847FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306342   (555681) от 04.06.2019
+
+Spencer Lewis - Riffs on a Broad Reach (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Instrumental>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High over Bethel (03:03)
+02. Interstellar (01:56)
+03. Reaching (04:40)
+04. High over Gilead (02:08)(   Читать дальше...   )Жанр: Folk Rock, InstrumentalПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75471BD1D186F6DCB70A62728D35FA6063966C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306590   (555502) от 05.06.2019
+
+Hildur Guðnadóttir (Hildur Gudnadottir) - Chernobyl (Music From The Original TV Series) (2019) [FLAC|Lossless|WEB-24Bit|tracks] <Dark Ambient, Experimental, Contemporary, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Door (02:43)
+ 02. Bridge Of Death (04:44)
+ 03. Turbine Hall (02:37)
+ 04. Vichnaya Pamyat (04:07)(   Читать дальше...   )Жанр: Dark Ambient, Experimental, Contemporary, SoundtrackПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD38774E13C501F523D89D779AAF4332718551AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306736   (555476) от 06.06.2019
+
+Over the Rhine - Love & Revelation (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Los Lunas (04:13)
+02. Given Road (03:40)
+03. Let You Down (04:40)
+04. Broken Angels (04:57)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010DA8A58F4DA7FED9B88A065EC3BDDD8B35157F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 858369   (555337) от 07.06.2019
 
 VA - Тупой и еще тупее 2 / Dumb and Dumber To (2014) [MP3|320 кб/с]<Sountrack>
@@ -600,151 +745,6 @@ Florida Georgia Line - Dig Your Roots (2016)[MP3|320 Kbps] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD88A5BD4398DEF34FDB254AF247FBAA3F6A54DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046163   (551799) от 27.08.2016
-
-VA - Rock of Ages (2012) [FLAC|Lossless|tracks + .cue] <Rock, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Cruise - Paradise City (3:43)
-02. Julianne Hough, Diego Boneta, Russell Brand & Alec Baldwin - Sister Christian/Just Like Paradise/Nothin' But A Good Time (5:42)
-03. Diego Boneta, Alec Baldwin, Russell Brand & Julianne Hough - Juke Box Hero/I Love Rock 'N' Roll (2:23)
-04. Catherine Zeta-Jones - Hit Me With Your Best Shot (2:29)(   Читать дальше...   )Жанр: Rock, Stage & ScreenПродолжительность: 01:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AFC552A96D280503DA512518BC180CD5E7B781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046390   (551663) от 27.08.2016
-
-Kyle Dixon & Michael Stein - Stranger Things / Очень странные дела, Vol. 1 (A Netflix Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Things (01:08)
-02. Kids (02:39)
-03. Nancy and Barb (01:06)
-04. This Isn’t You (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F930AA31953797CE0AA5DB6D20B282BA17FCDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237572   (551481) от 24.07.2018
-
-Malin Andersson - Follow (2018) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Deep Water (3:52)
-02 - Follow (3:26)
-03 - Giving It Away (3:37)
-04 - Those Eyes (3:38)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DBAD90D421B489B683CB3D775304A1B5D1E8E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237519   (551478) от 24.07.2018
-
-Andre Gagnon - Les Jours Tranquilles (1993) [FLAC|Lossless|tracks + .cue] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un Piano Sur La Mer
-02. Chanson Du matin
-03. Photo Jaunie
-04. Souvenir Lointain(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901EEE9DD7FEADCCDC26B9C69E7FB52171E84855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046486   (550941) от 28.08.2016
-
-Dolly Parton - Pure & Simple (2016) UK Edition [MP3|320 Kbps] <Country, New Wave>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550941.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: Pure & Simple
-
-01. Pure and Simple [02:43]
-02. Say Forever You'll Be Mine [02:48](   Читать дальше...   )Жанр: Country, New WaveПродолжительность: 01:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BAADA5F1D5286D1F809BDAA8DD3F18F031974D
 ```
 
 https://mybot314.ru/tekegram_catalog/

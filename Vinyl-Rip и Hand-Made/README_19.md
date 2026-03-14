@@ -1,3 +1,116 @@
+###  Публикация: 798239   (671197) от 21.06.2014
+
+Генрик Шеринг - Л. Бетховен (Концерт для скрипки с оркестром) (1987) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Allegro Ma Non Troppo  25:22
+Сторона 2
+1. Larghetto. Rondo, Allegro  20:02Жанр: ClassicalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B6AC8E01730AFBF2D1C1B0635D232EEF54676C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537164   (669316) от 15.03.2022
+
+Oscar - Oscar (1974) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669316.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Well Known Lady
+A2 Good Loving Woman
+A3 Encore After Encore
+A4 Hugo(   Читать дальше...   )Жанр: Glam Rock, Pop RockПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537150   (669264) от 15.03.2022
+
+Wes Montgomery - A Day In The Life (1967) 1984 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669264.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A Day In The Life
+A2 Watch What Happens
+A3 When A Man Loves A Woman
+A4 California Nights(   Читать дальше...   )Жанр: JazzПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136C5507E207F16C4F3C12B39B404209A033BEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789598   (669152) от 22.06.2014
+
+Scorpions - 2 Альбома (1977-1993) [FLAC 2.0 24/192] image + .cue, (Vinyl-Rip)<Hard Rock><Hard Rock, Heavy Metal>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard Rock, Heavy MetalПродолжительность: 01:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E77FA18272F09C8F7AC35C06949DC6B5FE99606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537384   (667841) от 16.03.2022
 
 Stray - This Is Stray (1971) renamed album Saturday Morning Pictures, 1976 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Prog Rock, Psychedelic Rock>
@@ -630,122 +743,6 @@ Jubilation – J. Harris, P. Anka
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED7E8106864986ADA166826B532DB8472E845545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228179   (639015) от 30.05.2018
-
-Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Vision (5:11)
-02. A Kind Of Magic (4:24)
-03. One Year Of Love (4:29)
-04. Pain Is So Close To Pleasure (4:23)(   Читать дальше...   )Производство: EMI Records - EU 3509Жанр: RockПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964A0913C93D40DAAAE7739E56ED680BF285240E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801018   (638409) от 30.06.2014
-
-Quiet Riot - QR III (1986)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638409.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Main Attraction (4:44)
-A2. The Wild And The Young (3:40)
-A3. Twilight Hotel (4:37)
-A4. Down And Dirty (3:17)(   Читать дальше...   )Жанр: Glam MetalПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8619B09483285023A9B4DDFAA0EB8077D2D7E125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 795044   (634547) от 02.07.2014
-
-The Who - It's Hard (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634547.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Athena (3:49)
-A2. It's Your Turn (3:41)
-A3. Cooks County (3:50)
-A4. It's Hard (3:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AC978D6E1368640A97A44485C38DC0D957C652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543215   (631375) от 10.04.2022
-
-Аида Ведищева и Ансамбль п/у В. Людвиковского - Александр Зацепин – Музыка Из Кинофильма «Кавказская Пленница» (1967) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Soundtrack, Theme, Score>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631375.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Аида Ведищева – Песенка О Медведях
-А2 Ансамбль под упр. В. Людвиковского – Дорога
-В1 Ансамбль под упр. В. Людвиковского – Встреча
-В2 Ансамбль под упр. В. Людвиковского – На Танцевальной Площадке(   Читать дальше...   )Жанр: Soundtrack, Theme, ScoreПродолжительность: 00:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CF10AA50B300402F89823344E282237B761DDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

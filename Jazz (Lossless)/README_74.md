@@ -1,3 +1,90 @@
+###  Публикация: 1275824   (789492) от 13.01.2019
+
+Jimmie Noone - 1934 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine [2:56]
+02. Liza [2:54]
+03. Soon (There'll Just Be Two Of Us) [2:40]
+04. Lullaby Of Broadway [3:11](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0207174202E978DECDCFFE61853160100502310F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511189   (789469) от 20.11.2021
+
+David "Fathead" Newman - Mr. Gentle, Mr. Cool: A Tribute to Duke Ellington (1994) Kokopelli Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Get Around Much Anymore [4:45]
+02. Prelude to a Kiss [5:41]
+03. Mr. Gentle & Mr. Cool [5:50]
+04. Almost Cried [6:24](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF4F052048DD1EC41FF761C5DD92C2FBFFD855A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275854   (789450) от 13.01.2019
+
+Jamie Lancaster - Duets (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamie Lancaster, Cassandra Beck - I Finally Found Someone 03:12
+02. Jamie Lancaster, Michelle Simonal - Endless Love 02:53
+03. Jamie Lancaster, Shelly Sony - Easy Lover 04:02
+04. Jamie Lancaster, Eve St. Jones - (I've Had) The Time of My Life 03:37(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Bossa NovaПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCCF0EAFD0723572965F53E6B8033FEE0BB6584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511294   (789376) от 20.11.2021
 
 Phil Woods With Strings - The Thrill Is Gone (2003) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz>
@@ -658,93 +745,6 @@ Michael Arthur Holloway - Strange Cargo (2021) [FLAC|Lossless|Web-DL|tracks] <Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8891B3B1E4AEA5D359F44ACEDD48A6BF7D45B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203744   (787727) от 03.02.2018
-
-Brubeck & Desmond - Jazz At Storyville (1952) 1986, Fantasy [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over the rainbow [05:07]
-02. You go to my head [07:52]
-03. Give a little whistle -Oh,lady be good [06:56]
-04. This can't be love [04:10](   Читать дальше...   )Жанр: CoolПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70974E9A4AAB07E6A5CC191C7C9A8A3D963D997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203755   (787711) от 03.02.2018
-
-Tamuz Nissim - Echo Of A Heartbeat (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Time in a Bottle 5:52
-02.	Fried Bananas 3:41
-03.	My World 4:45
-04.	Just Squeeze Me 5:17(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4934663A78E729C00EA9486A1A0C50944B6D6D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203773   (787710) от 03.02.2018
-
-John Surman, Nelson Ayres, Rob Waring - Invisible Threads (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Creative Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At First Sight
-02. Autumn Nocturne
-03. Within the Clouds
-04. Byndweed(   Читать дальше...   )Жанр: Modern Creative JazzПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEDED257402CD6BCF215117B0BD677B61CF84ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

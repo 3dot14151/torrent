@@ -1,3 +1,61 @@
+###  Публикация: 1668961   (173204) от 14.10.2023
+
+The Dear Hunter - Migrant Returned (2013) Remaster, 2023, Equal Vision Records [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - An Escape [00:03:08]
+02 - Girl [00:03:03]
+03 - Let Go [00:03:38]
+04 - The Kiss of Life [00:04:22](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A11EB5130BE52FFEB40FCE60E8F000314F936D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670444   (171920) от 21.10.2023
+
+Smoke The Light - The Great Never Ending (2023) [MP3|320 Kbps] <Heavy Psychedelic, Fuzz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Uphill [00:08:04]
+02 - The Great Never Ending [00:07:34]
+03 - Steed [00:05:48]
+04 - Speaking of Witch [00:06:10](   Читать дальше...   )Жанр: Heavy Psychedelic, Fuzz RockПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3221E793AF51302836A405476BD4E788E8A1FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671204   (171432) от 24.10.2023
 
 Skinny Lister - Shanty Punk (2023) [MP3|320 Kbps] <Rock>
@@ -686,64 +744,6 @@ Justin Hayward - 7 Studio Albums (1975-2013) CD Collection [MP3|320 Kbps] <Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:184D8B81D9BBD1B5734982257AE3C562DA105573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432163   (164423) от 17.12.2020
-
-Rock Legends - Metal Christmas (2015) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Wonderland
-02. White Christmas
-03. Have Yourself A Merry Little Christmas
-04. Santa Claus Is Comin' To Town(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDB6A7EA24DAD7DA592D8E39D535FCB5783B563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597636   (164138) от 17.12.2022
-
-Bon Jovi - 2020 (2020) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limitless
-02. Do What You Can
-03. American Reckoning
-04. Beautiful Drug(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4BCCACFA16B467E8715EEC29238599E6C6B18B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

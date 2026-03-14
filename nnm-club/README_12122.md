@@ -1,22 +1,22 @@
-###  Публикация: 1307289   (555103) от 09.06.2019
+###  Публикация: 1045676   (556987) от 25.08.2016
 
-Журнал | Autosport UK №21 (май 2019) [PDF] [En]
+Созданы диоды и логические элементы, способные передавать и обрабатывать "механические сигналы"
 
->>Автомобили
->>Автомобильные журналы
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555103.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_556987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Autosport — журнал, посвящённый автоспорту, издаваемый в Великобритании каждый четверг издательством Haymarket Consumer Media. Журнал впервые был выпущен в 1950 году Грегором Грантом. Этот журнал часто называют «библией автоспорта».Жанр: Автомобильный журналФормат: PDF
+Группа исследователей из Гарвардского университета и Калифорнийского технологического института разработала новый способ передачи и обработки сигналов механической природы, который может стать основой для создания систем управления мягких роботов и других подобных устройств. Учеными были созданы механические аналоги диодов, транзисторов и нескольких видов логических (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF9B75CC23B8689426A6347FC56951164D20460E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,132 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307423   (555102) от 09.06.2019
+###  Публикация: 1045875   (556986) от 25.08.2016
 
-Журнал | Australasian Bus & Coach AU №5 (май 2019) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555102.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение 25 лет ABC была источником новостей и информации для ключевых лиц, принимающих решения в автобусной отрасли.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D1A5FB9903D45DDDE25F57BBC73B941915E187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307433   (555100) от 09.06.2019
-
-Журнал | GT Porsche UK №6 (июнь 2019) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий в мире независимый печатный и цифровой журнал Porsche для всех владельцев, водителей и любителей самого известного производителя спортивных автомобилей в Германии.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC424685C4A33170CBD2BF307E9B71BBB0D1D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307353   (555099) от 09.06.2019
-
-Журнал | Auto Express UK №21 (май 2019) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auto Express — еженедельный британский автомобильный журнал, издаваемый Dennis Publishing с 1988 года. Единственный еженедельный конкурент популярного издания Autocar. Сотрудничает с немецким журналом Auto Bild и французским Auto Plus. В 2011 году являлся самым продаваемым автомобильным журналом в Великобритании.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69EE880AACFC4C3D3E5777668EC271181F92F4E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307428   (555092) от 09.06.2019
-
-Журнал | Car Craft USA №8 (август 2019) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Car Craft - журнал, посвященный автомобилям, хот-родингу и драг-рейсингу. Его опубликовал Motor Trend Group. Он был основан в 1953 году. Журнал публикует статьи, которые помогают автомобильным мастерам от новичка до уровня экспертов, дает советы таких как восстановление карбюратора.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543B5F842A6189BC246C3F56F15F94531D78DE09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307368   (555089) от 09.06.2019
-
-Miromiro (Microstatic, Punchaface) - Discography 5 Releases (2015-2019) Ngirungiru Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo>
+VA - All I Need Is Chillout (2015) [MP3|320 Kbps] <Downtempo, Lounge, ChillOut>
 
 >>Electronic
->>IDM (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555089.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Guerrilha (05:26)
- 02. Ceara (06:14)
- 03. Theme to Fernando Haddad (06:21)
- 04. Theme to Lula Da Silva (05:25)(   Читать дальше...   )Тип издания: WEBЖанр: IDM/DowntempoПродолжительность: 00:28:03
+01. Baghira - Way Too Long
+02. Don Gorda Project - Surfing Emotional Waves
+03. Enrico Donner - Don t Be Stranger
+04. Cesar Martinez Ensamble - Moca Formosa(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:28:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D37EA2728999EE44CF421144C56EAC3873ED4191
+magnet:?xt=urn:btih:37258B439959FE8BE010B645C5FE29558C4D26B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307357   (555088) от 09.06.2019
+###  Публикация: 1045920   (556985) от 25.08.2016
 
-Журнал | Automobile USA №6 (июнь 2019) [PDF] [En]
+Футбол. Лига Чемпионов 2016-2017. Раунд плей-офф. Обзор матчей (24.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
 
->>Автомобили
->>Автомобильные журналы
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555088.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Automobile - американский автомобильный журнал, выпускаемый Motor Trend Group. Группа бывших сотрудников Car and Driver во главе с Дэвидом Э. Дэвисом основала Automobile в 1986 году при поддержке News Corporation Руперта Мердока, используя кредо No Boring Cars.Жанр: Автомобильный журналФормат: PDF
+Обзор матчей раунда плей-офф Лиги Чемпионов.Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Константин Генич)Продолжительность: 00:28:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B07FA02CA6C628BFB91C4855E56E77D8E82301EF
+magnet:?xt=urn:btih:B7C2B452A5A2742DB0D46769F9BF8EB5E9F3F519
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307305   (555087) от 09.06.2019
+###  Публикация: 1046105   (556984) от 25.08.2016
 
-The University of Newcastle Choir - Battle Cry (2008) [FLAC|Lossless|image + .cue] <Pop, Classical>
+VA - MOMENTS - Chill-Out & Lounge Series, Vol. 7 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555087.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Playin to Win (2:58)
-02. Bicycle (2:31)
-03. Great Southern Land (4:56)
-04. And So It Goes (3:16)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:47:10
+01. Capa - People & Places
+02. Derrick - Just To Be
+03. Jane Maximova - Late In The Night
+04. Ingo Herrmann - Lala-Land(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4A652A8391C6FF586E052128FF9C48C14C794C2
+magnet:?xt=urn:btih:C364592F1E4FE5DA682B9536CC67A15552889F0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,28 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307429   (555086) от 09.06.2019
+###  Публикация: 1045881   (556983) от 25.08.2016
 
-Bo Katzman Chor - Spirit of Joy (2001) [FLAC|Lossless|image + .cue] <Pop, Cover, Gospel>
+VA - Moments - Chill-Out & Lounge Series, Vol. 6 (2015) [MP3|320 Kbps] <Electronic, ChillOut, Lounge>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555086.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Spirit Of Joy (4:27)
-02. Joshua (2:54)
-03. Soul Searchin' (5:54)
-04. Our Father (4:49)(   Читать дальше...   )Жанр: Pop, Cover, GospelПродолжительность: 00:51:24
+01. Steen Thottrup - In the Palm of Your Hand (3:45)
+02. Charly'n Black - Sur La Route De Lausanne (4:52)
+03. Marcus Koch - Deeper Space (5:30)
+04. Weathertunes - The New Jazz Five (4:12)(   Читать дальше...   )Жанр: Electronic, ChillOut, LoungeПродолжительность: 01:30:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A48196ABE56FD374FE589711671E3FAAE67CCF87
+magnet:?xt=urn:btih:D57632B247027E0C00EE190BFA073BE9646BF392
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,28 +137,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307520   (555085) от 09.06.2019
+###  Публикация: 1046069   (556982) от 25.08.2016
 
-3rd Force - Driving Force (2005) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+Ф. Меринг | В борьбе с классовой юстицией (1929) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из характерных особенностей статей Меринга — это та публицистическая страстность, с которой их автор обрушивается на самые основы буржуазно-метафизической юридической идеологии, вскрывая ее лицемерную фальшь, завуалированную громкими фразами о свободе, равенстве и цивилизации.
+
+Революционно-марксистская трактовка затронутых проблем развертывается Мерингом в (   Читать дальше...   )Жанр: История, политология, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4C24188CF3BC87BB95C1461BA6EFCDF4E2FAA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045879   (556981) от 25.08.2016
+
+VA - Deep Chill Autumn Skies (2015) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Morais - Deep Chill | Autumn Skies (Non Stop Mix)
+02. Alex Morais - Love & Music (Original Mix)
+03. Adam Byrd - Light Makes Me Calmer (Original Mix)
+04. MotiBo - Satin Sunrise (MotiBo Remix)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903B86D82213FDD613136C3B41DEBE83E547B91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045918   (556980) от 25.08.2016
+
+Masaru Imada and George Mraz - Alone Together (1977) Remaster, 1997, JVC[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555085.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Believe in Me (Feat. Brian Hughes) (5:19)
- 02. Ask Me Why (Feat. Eric Darius) (4:28)
- 03. Real Thing (4:31)
- 04. You Got It (Feat. Marc Antoine) (4:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:41
+01.Alone Together [06:59]
+ 02.Poppy [04:58]
+ 03.Stella By Starlight [05:15]
+ 04.Blue Road [06:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:42:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C24723AD842289777943A5A4C91C97C886A603E3
+magnet:?xt=urn:btih:15B2F2A3E1F9AF98314B53930AEAA091DDDD0E48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,141 +223,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307397   (555084) от 09.06.2019
+###  Публикация: 1046097   (556979) от 25.08.2016
 
-Горячий шоколад - Береги (2009) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Выбрала любовь
-02. Береги
-03. Чувства
-04. Неба мало ( feat. Дмитрий Климашенко )(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDC93DB9ED43A91AC0AE7F518DB3E16CB0C413A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307511   (555082) от 09.06.2019
-
-Dope - The Early Years - 1997/1998 (2017) Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Industrial, Nu Metal, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shit Life (4:58)
- 02. Spine for You (4:40)
- 03. Same Old Story (3:51)
- 04. Voodoo Crush (4:15)(   Читать дальше...   )Жанр: Industrial, Nu Metal, HardcoreПродолжительность: 01:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5911A2ED946C6BE937DC74AAA25483D6466F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307441   (555081) от 09.06.2019
-
-Газета | Историческая правда №6 (2019) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концепция газеты «Историческая правда» проста: рассказываем всё про историю нашей страны. Но рассказываем интересно. Без занудства и скучного официоза. При этом хотим особо подчеркнуть: несмотря на популярную форму изложения, все, о чем мы пишем — это документально проверенные факты! Мы не сочиняем ничего «от себя», ничего не «берем с потолка». Только факты, рассказанные (   Читать дальше...   )Жанр: популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A08AC4393EED5742382C055B7A55D31A2CEA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307291   (555080) от 09.06.2019
-
-Футбол. Чемпионат Европы 2020. Отборочный турнир. 3-й тур. Группа A. Чехия — Болгария (2019) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555080.jpg" />
-</div>
-
-
-###  Подробнее
-
-07 июня 2019, пятница. 21:45 МСК
-Чемпионат Европы по футболу 2020 года. Отборочный турнир.
-3-й тур. Группа A:
-Чехия — Болгария(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB332619BE1A6CB7EA83B6211A5145D77085D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307375   (555079) от 09.06.2019
-
-Flying Cobra - Data (2019) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+VA - Dubai Loungers Only For the Riches Vol 5 (Cafe Chill out Edition) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555079.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Emergence (05:38)
- 02. Errors And Faults (06:11)
- 03. Through The Digital Fog (08:28)
- 04. Blossoms Showered As Rain (06:05)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:58:10
+01. Thai Chill Lounge Outro - TCL Allstars
+02. Tabla Dream - Ethnic Colours
+03. Samarkand (feat. The Choir of Hyderabad) - Nizam Kharda
+04. Far from Home (Cafe Del Mar Dreams Vol.4 Edit) - Cardinal Zen(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9B909E3BBC67A6A229FABB5A9C067C8F9B6410C
+magnet:?xt=urn:btih:156606F5158862AB48575B9EB420B095614EA570
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,25 +252,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307174   (555075) от 09.06.2019
+###  Публикация: 1045771   (556978) от 25.08.2016
 
-VA - German Top 100 Single Charts 14.06.2019 [MP3|320 Kbps] <Pop>
+VA - Amnesia Ibiza 2016 (Mixed by Mar-T, Hector Couto, Betoko) (2016) 3 CD [MP3|320 Kbps] <House, Tech House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moderat – Eating Hooks (NGHT DRPS Remix)
+02. Awanto 3 – Star Butchers (Darling Edit)
+03. Stereociti – Interstellar Substance
+04. Shadow Child – Lullaby(   Читать дальше...   )Жанр: House, Tech House, TechnoПродолжительность: 03:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C3FD2AD06F071E0F536BB20EA7AC95B08A0BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046092   (556977) от 25.08.2016
+
+VA - Dubai Loungers Only For the Riches Vol 3 (Cafe Chill out Edition) (2015) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethnic Colours - From Here to Eternity [03:35]
+02. Sa Prathama - The Beauty Of Taj Mahal [04:22]
+03. Cambis, Florzinho - Aman Aman (feat. Sina) [05:32]
+04. Jane Maximova - Morning Bird (feat. Dmitry Raschepkin) [05:51](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A56ADDD6D557D07A368EBC335B30B178E98CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046114   (556976) от 25.08.2016
+
+AstroPilot - Relicts (2016) [MP3|320 Kbps] <Progressive Trance, Ambient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AstroPilot - Clear Perception (07:57)
+ 02. AstroPilot - Myriads Of Pathways (10:51)
+ 03. AstroPilot - Eternity And Instants (07:36)
+ 04. AstroPilot & Cloower Wooma - Treason (05:36)(   Читать дальше...   )Жанр: Progressive Trance, Ambient, DowntempoПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A80DE5A0BB7744B7011D822EAB33F2F1EA8B2D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045993   (556975) от 25.08.2016
+
+VA - Massive Dance Party Player Hits (2016) [MP3|254-320 Kbps] <Future House, UK Garage, Progressive, Tropical>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555075.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:20:58
+01. Housequake - Maximize (Bougenvilla Remix) 05:12
+02. Turbotronic - Happy People (Original Mix) 04:52
+03. Sandra N - Ballerina (Extended Version) 04:34
+04. Gino G - Unstoppable (Radio Edit) 03:15(   Читать дальше...   )Жанр: Future House, UK Garage, Progressive, TropicalПродолжительность: 08:04:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A8B591E8BE473F8EE95D38C5065BD90DF1DD551
+magnet:?xt=urn:btih:3ADDA0B7C907F5C2FBAB99DABF064DAA40C3C65C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,222 +368,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306739   (555073) от 09.06.2019
+###  Публикация: 1045917   (556974) от 25.08.2016
 
-Даниэла Стил | Голубоглазый юноша (2019) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джинни Картер когда-то была успешным телерепортером и счастливо жила с мужем, популярным ведущим новостей, и малюткой сыном в большом доме в Беверли-Хиллз. Но автомобильная авария, случившаяся накануне Рождества, перечеркнула все. Выжила только Джинни. Снедаемая горечью вины, она бросила престижную работу, вступила в правозащитную организацию. Отныне в разных горячих (   Читать дальше...   )Жанр: современная проза, любовный романФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A082E89C35417D1046A59EF883E6EAB5BAB73B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307419   (555072) от 09.06.2019
-
-VA - Deep House Summer (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matt Fax  -  To The Ground (Original Mix)
-02.  Dezza  -  Honey (Original Mix)
-03.  Upteka & Heard Right  -  Glimmer (Original Mix)
-04.  Sense8  -  Terra (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 01:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59CB62DB359DFBFA984D0A9CAFAB653790EF79EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307426   (555071) от 09.06.2019
-
-VA - Ibiza House Top 100 (2019) [MP3|320 Kbps] <House, Progressive House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555071.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  DJ Falk & Luca Debonaire feat. Kiki Doll  -  Get Started (Original Mix)
-002.  Roger Sanchez x Park & Sons feat. Julie McKnight  -  This Feeling (Low Steppa Remix)
-003.  Kevin Courtois  -  Craving (Original)
-004.  AU-1  -  You Got Me (Ladebare Remix)(   Читать дальше...   )Жанр: House, Progressive House, Club HouseПродолжительность: 09:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827D2C577039EB3DD01D3F8E9C4E2240DDBA5492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307547   (555070) от 09.06.2019
-
-Футбол. Чемпионат Европы 2020. Отборочный турнир. 3-й тур. Группа C. Беларусь — Германия (2019) IPTVRip [H.264/1080p-LQ]
+Футбол. Лига Чемпионов 2016-2017. Раунд плей-офф. 2-й матч. Ростов (Россия) - Аякс (Голландия) (24.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555070.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-08 июня 2019, суббота. 19:00 МСК
-Чемпионат Европы по футболу 2020 года. Отборочный турнир.
-3-й тур. Группа C.
-Беларусь — Германия(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D69970A8AED78F3CC6C3D4CD8491033C4079607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306199   (555069) от 09.06.2019
-
-Орели Валонь | У нас все дома (2019) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый мизантроп, “тип с мутным прошлым”, как считают соседи, переезжает в дом, где обитают пожилые сплетницы и царит зловредная консьержка. Общаться с этой публикой Фердинан не намерен – от женщин он видел в жизни одни проблемы. Но можно ли оставаться упрямым нелюдимом, когда в дверь бесцеремонно вламывается незнакомая одиннадцатилетняя девчонка и начинает диктовать (   Читать дальше...   )Жанр: Современная зарубежная прозаПеревод: Мария Александровна ЗонинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BBA718A0C600D26B73662EAF4F3A76AC39FE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307405   (555065) от 09.06.2019
-
-Process Lasso Pro 9.1.0.68 Final RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017536F6220086384BE7A528960336DECDE9A780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307369   (555062) от 09.06.2019
-
-Футбол. Чемпионат Европы 2020. Отборочный турнир. 3-й тур. День 1-й. Обзор матчей (2019) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555062.jpg" />
-</div>
-
-
-###  Подробнее
-
-07 июня 2019, пятница.
-Чемпионат Европы 2020. Отборочный турнир.
-Обзор матчей 3-го тура.
-День 1-йТелекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4F2242FE3FACA25A5F556CA42F5B0EBDC88A94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306601   (555061) от 09.06.2019
-
-Джозеф Финк, Джеффри Крэйнор | Исчезающий город (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Добро пожаловать в Найт-Вэйл»
+24 августа 2016, среда. 21:45 МСК
+Раунд плей-офф. 2-й матч
 
-И снова добро пожаловать в Найт-Вэйл.
-Милый городок в пустыне, где светит жаркое солнце, сияет дивная луна и загадочные огни проносятся над головой, когда все делают вид, что спят.(   Читать дальше...   )Жанр: Детективная фантастика, Социально-психологическая фантастика, УжасыПеревод: Сюзанна АлукардФормат: FB2
+Стадион: Олимп-2 (Ростов-на-Дону, Россия) , 15 320 зрителей (97 % при вместимости 15 840)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Александр Шмурнов, Михаил Поленов)Продолжительность: 01:51:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BEEEB36B55F23061899342EBE769BD6F817CE47
+magnet:?xt=urn:btih:CFB1919AA652E0DD86B9E56B50F0D75326B710B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,25 +397,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307340   (555058) от 09.06.2019
+###  Публикация: 1046047   (556973) от 25.08.2016
 
-Э.В. Александрова, В.А. Левшин | Путешествие по Карликании и Аль-Джебре (1991) [FB2]
+В теме. Турецкий гамбит  (24.08.2016) SATRip
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555058.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Сказки да не сказки» - так авторы назвали свою книжку. Действие происходит в воображаемых математических странах Карликании и Аль-Джебре. Герои книги, школьники Таня, Сева и Олег, попадают в забавные приключения, знакомятся с основами алгебры, учатся решать уравнения первой степени.Жанр: Познавательная литератураФормат: FB2
+"В теме": Турция начала антитеррористическую операцию в Сирии. Против кого и на чьей стороне воюет турецкий президент Эрдоган, расскажет политолог Борис Блохин в программе "В теме"Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CCE607505D77D973A754C2775E03807872DEA65
+magnet:?xt=urn:btih:4D908DE65F6FC126F6476599F0A32185E1305C56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,25 +423,294 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307347   (555057) от 09.06.2019
+###  Публикация: 1045989   (556972) от 25.08.2016
 
-Журнал | Cots Journal USA №5 (май 2019) [PDF] [En]
+VA - Dance Workout Trax 2016 (2016) [MP3|206-320 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Byron Keno Vs Demin – Holiday (Extended Mix)
+ 02. Andreas Agiannitopoulos, T.F – How Does It Feel (Original Mix)
+03. Jasper Forks – J’aime Le Diable (Single Mix)
+  04. Alesso, Onerepublic – If I Lose Myself (Alesso Vs. Onerepublic Extended Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 06:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41209F0E3E5F69328CAF5CC0F6D0183502675573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046016   (556971) от 25.08.2016
+
+Журнал | Таинственые истории №18 (2016) [PDF]
 
 >>Журналы
->>Компьютерные журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555057.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Редакторы и сотрудники COTS Journal посвящены предоставлению промышленности с лучшим качеством технического материала, чтобы помочь читателям проектировать и строить встроенные компьютеры для военных - будь то для доброкачественных приложений или для самых прочных, критически важных рабочих мест на поле боя.Жанр: Компьютерный журналФормат: PDF
+Всё самое таинственное и необычное из жизни простых людей, нас с вами. Рассказ от первого лица и немного о таинственном в биографиях знаменитых людей.Жанр: Популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FF4421527F3C0983F24C4B0D45F636E50A333CF
+magnet:?xt=urn:btih:DCC454F89FCB8049E58693EA55AF1862506C2B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045638   (556970) от 25.08.2016
+
+Verizon IndyCar Series. ABС Supply 500. Pocono raceway (2016.08.22) HDTVRip [H.264] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556970.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 августа 2016 года, понедельник. 19:00 МСК
+Этап 14, Лонг-Понд (Пенсильвания), США
+Поконо-500
+Арена: Автодром Поконо (Лонг-Понд, США)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 03:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB92E1415F3FC23229D63D591C39E98DC8B4831D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305431   (556969) от 30.05.2019
+
+Марина и Сергей Дяченко | Казнь (2019) [MP3]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_556969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ночные кошмары хороши одним – возможностью проснуться. У нее такой возможности нет. Она сделала шаг, и оказалась в мире, где кромешный ужас – не просто реальность, но единственная реальность. Можно, наверное, сделать еще шаг. Вот только каким окажется следующий мир? Еще страшнее? Еще безысходнее? И каким тогда будет ее следующий шаг?…Жанр: Героическая фантастика, Научная фантастика, ПопаданцыПродолжительность: 16:41:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305286   (556968) от 30.05.2019
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 388 [JPG]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_556968.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305336   (556967) от 30.05.2019
+
+Джон Дуглас, Марк Олшейкер | Охотник за разумом. Особый отдел ФБР по расследованию серийных убийств (2019) [PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_556967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эту книгу, выдержавшую множество переизданий и породившую целый жанр в криминальных фильмах и телесериалах, начиная со знаменитого «Молчания ягнят», можно было бы назвать классической - если не бы не легкий язык и непобедимое чувство юмора ее создателей. Первый в мире профессиональный профайлер, спецагент ФБР Джон Дуглас вместе со своим постоянным соавтором, журналистом (   Читать дальше...   )Жанр: Криминалистика, Журналистика, ПублицистикаПеревод: Г.Ю. МихайловФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305271   (556966) от 30.05.2019
+
+Обои - Desktop Wallpapers Full HD. Part (443) [JPG]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_556966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305274   (556965) от 30.05.2019
+
+Дэвид Дж. Питерсон | Искусство создания языков: от вымершего языка высших классов до наречия кровожадных воинов-кочевников (2018) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Дж. Питерсон – профессиональный лингвист, разработавший языки для многих популярных вселенных, среди которых сериал «Игра престолов» и фильм «Тор 2: Царство тьмы».
+Вы узнаете об истории искусственных языков, в том числе о работах Дж. Р. Р. Толкина и создании клингонского для сериала «Звёздный путь». Автор также рассказывает о собственном опыте разработки языков (   Читать дальше...   )Жанр: Филологические науки, Языкознание, ЛингвистикаПеревод: Н.Ю. ЖуковаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A832AB9B99677E4535E7977A9A77A3333E5FF0E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305276   (556964) от 30.05.2019
+
+Обои - Desktop Wallpapers Full HD. Part (447) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BD5DEAD6D1683058C437EF957A4B7B001DF379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305356   (556963) от 30.05.2019
+
+Андрей Жвалевский | Самоучитель работы на компьютере в цвете (2011) [PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_556963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы только что приступили к освоению азов компьютерной грамоты и все еще думаете, что изучить компьютер не проще, чем выучить китайский? Вы еще задумываетесь, прежде чем нажать какую-нибудь клавишу, и поминутно опасаетесь забыть, как запустить нужную программу, отредактировать текстовый документ, найти «потерявшийся» файл? Но при этом вам очень скучно читать пространные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305395   (556962) от 30.05.2019
+
+Ирина Матлак | Круг двенадцати душ (2019) [FB2]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_556962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двенадцать девушек, и среди них я, оказались заперты в стенах старого особняка. Всех нас продали таинственному графу, который никогда не показывает своего лица. Все мы узницы в этой клетке, не знающие, зачем нас здесь собрали.
+Но выбор есть всегда, и нам решать — томиться в неведении, ожидая своей участи, или же пытаться найти ответы.
+Бояться трудностей не в моих (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

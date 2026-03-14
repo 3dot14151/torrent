@@ -1,3 +1,29 @@
+###  Публикация: 961064   (302719) от 30.11.2015
+
+The Incredible Hulk (2008) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru] | R.G. X360CLUB
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302719.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Incredible Hulk создан на основе одноименного фильма, показанного в 2008 году. Основной акцент игрового процесса в этом эшене сделан на невероятную силу главного героя. Управляя Халком, вы сможете побродить по большой части Нью-Йорка, круша при этом все, что попадется по руки. Вы можете разбивать машины, автобусы, уличные фонари и даже громить целые дома.Тип издания: LicenseРазработчик: Amaze Entertainment, Edge of RealityЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD37D0D6245C79B10088EEC4725C6FE61DEB00FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 585478   (302316) от 06.12.2012
 
 Tak And The Guardians Of Gross [Wii] [Eng] [PAL] (2008)
@@ -656,32 +682,6 @@ Cars: Mater-National Championship (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D5CB9386205C47686878EE512E0117A3FFCA477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963351   (288648) от 07.12.2015
-
-Kung Fu Panda: Showdown of Legendary Legends (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kung Fu Panda: Showdown of Legendary Legends – стилизованный под мультфильм двухмерный файтинг на базе знаменитой серии, посвященной приключениям панды По и Неистовой Пятерки. Игру разрабатывает студия Vicious Cycle, ответственная за выпуск адаптаций по анимационным лентам «Турбо» и «Мадагаскар».Тип издания: UnofficialРазработчик: Vicious Cycle SoftwareЖанр: FightingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E41D98D25420F0717D1976261BC33558E94AFC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

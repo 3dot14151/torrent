@@ -1,3 +1,119 @@
+###  Публикация: 965009   (227704) от 13.12.2015
+
+Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. I Can't Stand The Rain  6:30
+2. Movin'  4:24
+3. I'll Take You There  2:52(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A5FA839A3BA8784EA5DBFD90310AF74010359B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267991   (227654) от 10.12.2018
+
+Кино - Атаман (2018) [DSD2.0|11,28MHz/1bit|image+.cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227654.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:15] 01. КИНО - Атаман (версия 2012 г.)
+[3:04] 02. КИНО - Атаман (версия 1990 г.)
+[4:17] 03. КИНО - Атаман (демо-версия 2012 г.) BONUS CD
+(   Читать дальше...   )Жанр: RockПродолжительность: 00:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B43F8206F0D3AE6FB02265F86A20A2DE1F487E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964605   (227333) от 13.12.2015
+
+Boney M - Ночной полет на Венеру (1980) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_227333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Nightflight To Venus - Ночной полет на Венеру  4:42
+2. Hooray, Hooray - Ура, каникулы  3:56
+3. He Was A Steppenwolf - Он был степным волком  6:50(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D1B3F57618B4E802E4A5A97D4A70337216A99F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649382   (224838) от 03.08.2023
+
+Aldo Nova - Blood On The Bricks (1991) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Arena Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_224838.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Blood On The Bricks {04:53}
+A2. Medicine Man {04:47}
+A3. Bang Bang {04:27}
+A4. Someday {05:06}(   Читать дальше...   )Жанр: Arena RockПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8ED3083FF09ED5E427AB8813ABDAAFC9DFE03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649563   (224804) от 03.08.2023
 
 The Sylvers - Forever Yours (1978) [FLAC|96/24|image + .cue|Vinyl-Rip] <Soul, Disco>
@@ -622,122 +738,6 @@ A4. Don't Stop The Music :: 06:05(   Читать дальше...   )Жанр: R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D71B7134D3CD9715CE8D997A43FAC4DA0BDDA34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966329   (217951) от 18.12.2015
-
-Joe Dassin - Le Jardin Du Luxembourg (1976) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] <Blues, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Le Jardin Du Luxembourg - Люксембургский Сад  11:52
-2. Il Etait Une Fois Nous Deux - Однажды мы были вдвоем  3:52
-Сторона 2(   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1792E8B78554439E52F65A953BD7C250C029B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652007   (217915) от 11.08.2023
-
-Linda Ronstadt - Living In The USA (1978) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Country Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217915.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Back In The U.S.A.
-A2 When I Grow Too OId To Dream
-A3 Just One Look
-A4 Alison(   Читать дальше...   )Жанр: Country Rock, Soft RockПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7861D3A51DE2A409E76E5BC53E0E3E83478CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652169   (217891) от 11.08.2023
-
-VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Pop, Acoustic, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217891.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Familie Silly - Bette Davis Eyes
-A2 Monika Hauff Und Klaus-Dieter Henkler - Birds Of Paradise
-A3 Roland Neudert - Some Broken Hearts Never Mend
-A4 Eva-Maria Pieckert - Maledetta Primavera(   Читать дальше...   )Жанр: Pop, Acoustic, Soft RockПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADD5164C486517397B0807D42F6A1F0B686C002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651323   (217708) от 11.08.2023
-
-VA - Естрадна Панорама 3 (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217708.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Диана Експрес • Наследство
-A2 Вокална група ''Трик'' • Ако Държиш На Мен • Если Я Тебе Нужна
-A3 Трамвай №5 • Старият Град • Старый Город
-A4 Дует ''Акварел'' • Обич Неизбежна • Неизбежная Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D83ACBC3B7D27A92BC85A6A507A68B677E5959
 ```
 
 https://mybot314.ru/tekegram_catalog/

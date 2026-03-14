@@ -1,3 +1,148 @@
+###  Публикация: 1787048   (68857) от 23.03.2025
+
+Diamond Construct - Angel Killer Zero (2024) Deluxe Edition, 2025, Greyscale Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68857.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Hashira (00:02:56)
+✧ 02 - Jynx (00:03:22)
+✧ 03 - Neon (00:03:12)
+✧ 04 - Zodiac Memories (00:04:13)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B802DB21F3A16ACB7096A49236DEF391AA503F1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787052   (68856) от 23.03.2025
+
+Th Da Freak - Negative Freaks (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative , Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WAS Mode [00:03:38]
+02. Kelso [00:03:19]
+03. 7 Pairs Of Keys [00:03:02]
+04. Rage Is Consuming Me [00:02:40](   Читать дальше...   )Жанр: Alternative , GrungeПродолжительность: 00:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9870ABDE3C18FC5F1B6E7B0905FC4107B2ADA425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786940   (68852) от 23.03.2025
+
+Sharp Pins - Radio DDR (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Power Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Time I Hear [00:02:43]
+02. Lorelei [00:01:55]
+03. You Don’t Live Here Anymore [00:03:50]
+04. If I Was Ever Lonely [00:02:21](   Читать дальше...   )Жанр: Power PopПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3064CB38F7A4976B599685109A962F446A3E8D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787080   (68845) от 24.03.2025
+
+Gotthard - Stereo Crush (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AI & I (2:53)
+02. Thunder & Lightning (3:38)
+03. Rusty Rose (4:14)
+04. Burning Bridges (3:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12E32E093517111906690260DAECC1EE26023A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787191   (68844) от 24.03.2025
+
+Nightwish - Angels Fall First (1997) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvenpath
+02. Beauty and the Beast
+03. The Carpenter
+04. Astral Romance(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D26DF54B0BA7C3C1A8F23BE7B711772124C960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787298   (68842) от 24.03.2025
 
 Gabi Hartmann - La femme aux yeux de sel (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -600,151 +745,6 @@ The Smoothies - We Can Change The Past (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C03E1DA14D352FF7CE7068EEC9BB340174D1F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787640   (68760) от 26.03.2025
-
-Nightwish - Wishmaster (2000) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Is My Sin
-02. The Kinslayer
-03. Come Cover Me
-04. Wanderlust(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CEDEB557E55F5A945F32D34A7F278CC5E14976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787680   (68749) от 26.03.2025
-
-Jad Tariq - Jad Tariq Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Flapjack (2:42)
-02.  You Think You're Too Good For Me (2:48)
-03.  Had You Told It Like It Was (3:23)
-04.  Fortune's Fool (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114B5A332C268D35F8FB70742093C368D8725ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787690   (68748) от 26.03.2025
-
-Toni Sanchez Group - Projecte Delta (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Obertura (5:50)
-02.  Piú nessuno mi porterá nel sud (4:04)
-03.  El vals de la fi del món (2:06)
-04.  Miles has a guitar (6:04)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:328F6E0353E29CFCD89D796AED4889FA7580DED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787659   (68746) от 26.03.2025
-
-Darkness Light - Alive and Not Alone (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Back to My Life (1:56)
-02.  Living with the Danger (3:48)
-03.  Adrenaline (4:26)
-04.  Darkness (5:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77AA1168E2DAEBC4D0F7CAB22BB0118C958E2A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787684   (68737) от 26.03.2025
-
-Kris Pohlmann - Relentless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  It's Only Love (4:20)
-02.  Same Old Lies (5:14)
-03.  Change Your Mind (4:09)
-04.  Don't Leave (6:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C35245FCEE57EDE45FD60622937C0ECA81AF98
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1620271   (1032324) от 19.03.2023
+
+Ляпис Трубецкой - Юность (2001) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	«Сочи»	4:30
+02.	«Некрасавица»	4:01
+03.	«Юность»	3:44
+04.	«Голуби»	3:27(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5390A1EEF4AE30C862D2BA9AB09B67DA04A5A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620375   (1032322) от 19.03.2023
+
+Альянс - Полно! (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Рассвет, до завтра!
+2. Если мы люди
+3. Африка, ура!
+4. Музыка ветра(   Читать дальше...   )Жанр: RockПродолжительность: 00:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097FD6188DD7032086DED45ABB22C48AB208F4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620499   (1032146) от 20.03.2023
+
+Щенки - Комплекс и синдром (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мир обречён [00:02:36]
+02. Похмелье и несчастная любовь [00:03:24]
+03. Смерть неизбежна [00:03:00]
+04. Не хватает слов [00:02:59](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF83CB2FF3E720B3E800D3C3F2130FFD928515BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620519   (1032139) от 20.03.2023
+
+Old Scars - Власть Химеры (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:09]
+02. Власть химеры [00:05:03]
+03. Чужая сила [00:07:00]
+04. Активист [00:05:08](   Читать дальше...   )Жанр: Metalcore, Groove Metal, Thrash MetalПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818E400B3618574773935AC470653403608F5477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620308   (1032134) от 20.03.2023
 
 Nikolay - Mother Russia (1995) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
@@ -626,122 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79F2DF8D860AA73ED4BE20F18324CC35F8E17D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453148   (1027249) от 09.03.2021
-
-Skyforest - Collection 4 Releases (2014-2020) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal, Post Black Metal, Blackgaze, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Atmospheric / Melancholic Post Metal проект одного человека - B.M. Первые идеи и записи появились в феврале 2013 года, однако проект был представлен официально лишь в 2014 году. До этого момента не было официального названия и было записано несколько инструменталов. Музыка продолжает идеи, заложенные в ныне закрытом проектеСписок альбомов:
-2014 - Aftermath
-2016 - Unity
-2018 - Harmony (EP)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Post Black Metal, Blackgaze, Folk MetalПродолжительность: 02:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F30CFCE0641E8567FF8F35DA556AA45FC6785E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452995   (1027225) от 09.03.2021
-
-Восьмая Марта - С праздником! (2001) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Билли-Винки [00:03:09]
-02. Пароход [00:02:58]
-03. Нева [00:03:29]
-04. Ускользай [00:02:04](   Читать дальше...   )Жанр: Alternative, Punk RockПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F795704EDB7EFF0CAC81C30B5F27A6EE2315F4A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453752   (1026756) от 12.03.2021
-
-Ундервуд - Избранное 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026756.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дети портвейна
-2. Вечный полдень
-3. Человек с ноутбуком
-4. Точка невозврата(   Читать дальше...   )Жанр: RockПродолжительность: 01:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999C86A82BA9781EE9478E8F614E4EB475E8C675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453650   (1026695) от 12.03.2021
-
-КИНО - В Севкабеле (2021) Live [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня без слов (04:48)
-02. Мама мы все тяжело больны (04:07)
-03. В наших глазах (03:45)
-04. Электричка (04:56)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB37DA3A360A2666221F52EA2ADAEF29DB668F15
 ```
 
 https://mybot314.ru/tekegram_catalog/

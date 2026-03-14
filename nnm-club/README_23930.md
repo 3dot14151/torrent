@@ -1,25 +1,25 @@
-###  Публикация: 1762109   (102937) от 24.11.2024
+###  Публикация: 1823006   (104375) от 09.10.2025
 
-Zombie Death Stench - Here I Die... Zombified (2007) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+VA - Compilation Part 198 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102937.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Quietus 01:26
-02. The Fog 03:43
-03. Death 1 04:56
-04. Dessicate 05:04(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:49:05
+01 - Riltim - Sweet Love
+02 - Umideep - I'm Sorry My Love
+03 - Umar Keyn - D’octobre
+04 - Rodle - Noches De Encanto(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:46:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F91F2190585CD62B44224C7A15FF0E9974E8B59
+magnet:?xt=urn:btih:8D2C65E0C249DC26F704F7CBD7AA71141E44838E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762269   (102936) от 24.11.2024
+###  Публикация: 1822908   (104374) от 09.10.2025
 
-The End - Within Dividia (2004) Deluxe Edition, 2024, Relapse Records[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Math Rock, Hardcore>
+Беготня / Scurry (2024) WEB-DL [H.264/1080p] [MVO]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102936.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. These Walls (2024 Remaster) [00:04:41]
-02. Fetesque (2024 Remaster) [00:03:55]
-03. The Sense of Reverence (2024 Remaster) [00:03:04]
-04. The Scent 0f Elegance (2024 Remaster) [00:03:13](   Читать дальше...   )Жанр: Math Rock, HardcoreПродолжительность: 01:00:29
+Двое незнакомцев оказываются запертыми под землей, когда на город нападает чудовищная угроза. Тяжело раненые и с ограниченными ресурсами, они вынуждены пробираться по опасному, сужающемуся туннелю в надежде найти выход.Производство: Австралия / Sparke FilmsЖанр: ужасы, триллерРежиссер: Люк СпаркАктеры: Джейми Коста, Эмалия, Питер О’Хэнлон, Джет ТрантерПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:40:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C76C9C16317C63D2D24897B29A395672887E23E2
+magnet:?xt=urn:btih:89274F3EC376112A53D67957DCEC98FA97CCC9C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +53,132 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762059   (102935) от 24.11.2024
+###  Публикация: 1823009   (104373) от 09.10.2025
 
-Teddy Wilson - 1947 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
+Шаблоны - Creatsy - Multiple Sizes Packaging Tapes Close-up Mockup - 2109692245 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон упаковочных лент разных размеров крупным планом.Формат: PSDРазрешение файлов: 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85C52E9007D41D20978327E3FE463A84E3B0EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823012   (104372) от 09.10.2025
+
+Чудаки из Балтимора / The Baltimorons (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излечившийся от алкоголизма бывший комик Клифф в канун Рождества ломает зуб во время ужина со своей невестой. Клиффу срочно нужна помощь, и так он знакомится со стоматологом Диди. После посещения врача бывший комик выходит на улицу и замечает, что его автомобиль был эвакуирован за парковку в неположенном месте, и тогда Диди предлагает подвезти Клиффа. Несмотря на (   Читать дальше...   )Производство: США / Duplass Brothers ProductionsЖанр: драма, мелодрама, комедияРежиссер: Джей ДюплассАктеры: Майкл Штрасснер, Оливия Луккарди, Chris Strassner, Лиз Ларсен, Lewis Peterson, Rob Phoenix, Джесси Коэн, Майкл Чандлер, Zoe Strassner, Мэри Катрин ГаррисонПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A2820464291C3E127A581C3B7949D96BE938A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823011   (104371) от 09.10.2025
+
+Чудаки из Балтимора / The Baltimorons (2025) WEB-DL [H.264/720p] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излечившийся от алкоголизма бывший комик Клифф в канун Рождества ломает зуб во время ужина со своей невестой. Клиффу срочно нужна помощь, и так он знакомится со стоматологом Диди. После посещения врача бывший комик выходит на улицу и замечает, что его автомобиль был эвакуирован за парковку в неположенном месте, и тогда Диди предлагает подвезти Клиффа. Несмотря на (   Читать дальше...   )Производство: США / Duplass Brothers ProductionsЖанр: драма, мелодрама, комедияРежиссер: Джей ДюплассАктеры: Майкл Штрасснер, Оливия Луккарди, Chris Strassner, Лиз Ларсен, Lewis Peterson, Rob Phoenix, Джесси Коэн, Майкл Чандлер, Zoe Strassner, Мэри Катрин ГаррисонПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64CC323304EDF3E03C6DA43F41EC8CB6A82048C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823003   (104370) от 09.10.2025
+
+Halloween Secrets: The Blood Vow / Секреты Хэллоуина: Клятва крови (2025) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая история хэллоуинских кошмаров. Скучающие друзья жаждут доказать свою храбрость и немного повеселиться в ночь Хэллоуина. Они случайно пробуждают древнее существо, скрывающееся в самом сердце разрушающегося поместья, и их приключение становится смертельно опасным. Тени превращаются в монстров. Кошмары вторгаются в реальный мир. Девушка исчезает на глазах ошеломленных (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2FDA5C21414F71303A6F33302BE27AEDAAF37A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823015   (104369) от 09.10.2025
+
+VA - На вершине блюза #1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102935.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Sheik Of Araby [2:39]
-02. Limehouse Blues [2:54]
-03. After You've Gone [2:41]
-04. Georgia On My Mind [3:09](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:00:31
+01. Joe Bonamassa - Drive By The Exit Sign [04:19]
+02. Eva Carboni - Bad Blood (Archives Mix) [03:51]
+03. Ryan T. Higgins - I Drink Alone [03:27]
+04. Joanne Shaw Taylor - Hold Of My Heart [03:45](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:43:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61F1A160DD29FB9D0E21ECBF7ABCF2F8A47F3D0B
+magnet:?xt=urn:btih:C37A80639BB7CA1B1565B8088F55D749F927204E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +186,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762169   (102934) от 24.11.2024
+###  Публикация: 1823017   (104368) от 09.10.2025
 
-Stu Williamson - Stu Williamson Plays (1956) 1989, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Cool>
+VA - На вершине блюза #2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102934.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Lady Is a Tramp [4:16]
-02. Stu's Due Blues [5:42]
-03. The Things We Did Last Summer [2:52]
-04. Yardbird Suite [3:52](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, CoolПродолжительность: 00:59:16
+01. Anthony Geraci - Owl's Nest [03:06]
+02. Christone "Kingfish" Ingram - Blues Don't Care [02:55]
+03. Buddy Guy - Blues Chase The Blues Away [04:50]
+04. The Alexis P. Suter Band - Be On Your Way [06:28](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:48:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:105F1E39D0D4A3FFFF0438419D8DE780577A973D
+magnet:?xt=urn:btih:319C0183EBA436D1DA8047D2CED384FCE8F6141C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +215,191 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761942   (102933) от 24.11.2024
+###  Публикация: 1823018   (104367) от 09.10.2025
 
-Supergrass - Life on Other Planets 2003 (2003) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternative Rock>
+VA - На вершине блюза #3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ripcords - Smudgy's Blues [04:07]
+02. Honeybear The Band - Everyone's Invited [03:52]
+03. Robin Rogers - The Plan [03:46]
+04. Oli Brown - No Diggity [04:20](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9205AD5A36022B9ADF35A17520D669CAB0CB76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822863   (104366) от 09.10.2025
+
+З/Л/О: Хэллоуин / V/H/S/Halloween (2025) WEB-DL [H.264/1080p] [DVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмая часть серии-антологии ужастиков «V/H/S», в России известна под названием «З/Л/О».
+Фильм состоит из шести несвязанных между собой историй, которые напрямую касаются праздника Хэллоуин:
+Первая новелла — о корпорации зла, которая создала новую газировку и набрала группу дегустаторов.
+Вторая история — о подружках, которые решили отметить «последний Хэллоуин» (   Читать дальше...   )Производство: США / Shudder Films, Cinepocalypse Productions, Imagenation Abu Dhabi FZЖанр: ужасыРежиссер: Bryan M. Ferguson, Каспер Келли, Р.Х. Норман и др.Актеры: Дэвид Хейдн, Anna Mckelvie, Adam James Johnston, Эдди Маккензи, Joshua Haynes, Alexander Cox, Aisha Lawal, Becca Murphy, Ivor Navarrete Jack, Yui Minari и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A31F1AA103F9CC4AD83215ED900B5A2B6D12C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822916   (104365) от 09.10.2025
+
+Tor Browser Bundle 14.5.8 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3915E7DF591D28F7A3E5FF77D6F8F9CA77FDA372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822906   (104364) от 09.10.2025
+
+Тот самый / Him (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечта, которая с детства казалась недостижимой, наконец становится реальностью — молодого, амбициозного футболиста приглашают на эксклюзивные тренировки с легендой спорта, загадочным и харизматичным квотербеком. Но вместо триумфа его ждёт изолированный тренировочный центр, и по мере того как обучение Кэма набирает обороты, харизма наставника начинает приобретать (   Читать дальше...   )Производство: США / Monkeypaw Prodctions, Ingenuity EngineЖанр: ужасы, спортРежиссер: Джастин ТиппингАктеры: Тайрик Уизерс, Марлон Уайанс, Джулия Фокс, Jordahn Smith, Тим Хайдекер, Дон Бенжамин, Kiara Gomez Glad Bak, Наоми Гроссман, Габриэла Алисия Ортега, Джим ДжефферисПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D014B96991FA2FD3FE71F081D3D5481DE636F4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822911   (104363) от 10.10.2025
+
+Охотник за скальпом / Погоня в горах / Hell Bent for Leather (1960) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жители небольшого захолустного городка Саттервилль по ошибке принимают обычного торговца Клея Сантелла за беглого убийцу по имени Трэверс. Федеральный маршал Гарри Декетт, единственный, кто знает Треверса в лицо, видит, что Сантелл не тот человек, но решает убить Клея и выдать его за настоящего Трэверса с целью повысить свою служебную репутацию и получить денежное (   Читать дальше...   )Производство: США / Universal International Pictures (UI)Жанр: вестернРежиссер: Джордж ШерманАктеры: Оди Мерфи, Фелиция Фарр, Стефен Макнэлли, Роберт Миддлтон, Джеймс Вэстмолэнд, Ян Мерлин, Герберт Радли, Малкольм Аттербери, Джозеф Рускин, Аллан ЛэйнПеревод: Одноголосый любительский (Grampy)Язык озвучки: русский, английскийСубтитры: русские (full - AI), английскиеПродолжительность: 01:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07273C6ADF53AFE891BF000257DE4542120B7CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820705   (104362) от 09.10.2025
+
+Российские издательства подделывают японских авторов
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_104362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство АСТ выдавало и продолжает выдавать 5 книг написанных копирайтерами (т.е. людьми без профильных знаний и за 2 копейки) за книги написанными японцами. Среди них:
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749533   (104361) от 14.09.2024
+
+Breeze - Echoes from a Distant Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102933.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Za (3:05)
-02. Rush Hour Soul (2:55)
-03. Seen the Light (2:26)
-04. Brecon Beacons (2:56)(   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:40:43
+01. From the Witchwood
+02. Clouds and Ripples
+03. Deadliest Creature
+04. The Wreck(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:59:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9718C2F5986ED8A330F3E11208C29B0FD29EF8C
+magnet:?xt=urn:btih:A7FDB4957FE6802E4D139C453B4CBA3DB6BF0888
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +407,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762322   (102932) от 24.11.2024
+###  Публикация: 1749422   (104360) от 14.09.2024
 
-Castle - Castle (1994) [FLAC|Lossless|image + .cue] <Doom Death Metal>
+VA - Find Your Harmony 2024 Part 1 - HEAVENS (2024) [MP3|320 Kbps] <Trance>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102932.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The 7th Empire (4:50)
-02. The Emperor's Children (4:01)
-03. Alter Reality (7:07)
-04. Exposed (9:41)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:48:11
+01. Andrew Rayel & Aether - Memoria Eterna (Mixed) (Intro Mix) [4:22]
+02. Richard Durand - Feels Good (Mixed) (Original Mix) [4:45]
+03. BiXX & Sue McLaren - Heart Of Mine (Mixed) (Original Mix) [5:01]
+04. Ayda - Stellar (Mixed) (Original Mix) [5:14](   Читать дальше...   )Жанр: TranceПродолжительность: 03:09:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:338E7D3EC93FAA5D9DF0FD2FC14437BF7F21DB02
+magnet:?xt=urn:btih:3B8881BA2FD7A040B2D9D19C755592790015A20E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +436,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762021   (102931) от 24.11.2024
+###  Публикация: 1749451   (104359) от 14.09.2024
 
-Famishgod - Roots Of Darkness (2016) [FLAC|Lossless|image + .cue] <Doom Death Metal>
+Главная дорога (14.09.2024) WEBRip [H.264/720p]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102931.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104359.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Abyss of the Underworld (7:40)
-02. Bad Omen (9:18)
-03. Molested, Defiled, Disrupted (9:47)
-04. Chamber of Chaos (8:12)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 01:05:00
+Бонус за нарушение: в Татарстане обновили приложение «Народный инспектор» и теперь люди будут получать деньги за жалобы на нарушителей.
+ Пожарная тревога! Давно ли вы проверяли огнетушитель в своем авто? Ведь их никто не отменял, а вспыхнуть машина может в любой момент. Андрей Федорцов и Денис Юченков испытали на себе компактные огнетушители. Какие баллончики, которые (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1294B14A5A48AEE134D37EC49F2B5A8D84EAD1AD
+magnet:?xt=urn:btih:BC726B7A81A8F34DD43C945B2650B9144F49A5B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,26 +463,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762193   (102930) от 24.11.2024
+###  Публикация: 1749445   (104358) от 14.09.2024
 
-НХЛ 2024-2025. Нью-Джерси Дэвилз - Вашингтон Кэпиталз (23.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+VA - Maretimo Chill Radio - Best of Vol. 3 - Positive Summer Vibes (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
->>Спорт и активный отдых
->>Хоккей
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102930.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-24 ноября 2024, воскресенье. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Фурман Саут (Сьюикли, США); Линейный: Дэн Келли (США); Линейный: Дерек Нансен (Оттава, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:59:02
+01. DJ Maretimo & Cocogroove - Luna Di Lazise (Sunset Mix) (4:45)
+02. Cocogroove - Crispy Sun (Pure Flow Mix) (4:08)
+03. Pascal Dubois - Looking for Someone (Late Summer Cut) (4:00)
+04. Cinematic - Sundown Reflection (Lazy Beach Cut) (4:22)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:25:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67731E1EC733D4136427609EE92646B8FCBEEB22
+magnet:?xt=urn:btih:8FBD6E247C847AF433DC63DCCF0A488F64536ED5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -228,28 +492,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761992   (102929) от 24.11.2024
+###  Публикация: 1749505   (104357) от 14.09.2024
 
-Veins - Innocence (2017) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal, Groove Metal>
+VA - DJ Hits Vol. 1300 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102929.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Animula Vagula Blandula 00:33
-02. Pt. 1 03:19
-03. Until Dawn 04:42
-04. Reflections 03:57(   Читать дальше...   )Жанр: Death Metal, Thrash Metal, Groove MetalПродолжительность: 00:37:51
+01. Masterboy - Set Me Free
+02. Blair Mccoy - Mama Loo
+03. Sandman - Dancing On The Beach
+04. 2fabiola - Magic Fligth(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:13:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6243E1618688D04213A3A949B6CCCB998893ACA4
+magnet:?xt=urn:btih:81E2DCBBC6DED5D67C733946D00C1AF7A30FAF4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,25 +521,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761995   (102928) от 24.11.2024
+###  Публикация: 1749534   (104356) от 14.09.2024
 
-Malediction - Reductio ad Absurdum (2008) [FLAC|Lossless|image + .cue] <Death Metal>
+Евгений Клюев | Как верёвочка вилась (2024) [PDF, FB2, EPUB, MOBI]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102928.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Reductio ad AbsurdumЖанр: Death MetalПродолжительность: 00:39:22
+Детский взгляд может оживить любую вещь и даже подножный сор. А настоящий сказочник умеет эту живую соринку подхватить и устроить виртуозное представление: хоть с огрызком Карандаша, хоть с Глотком Сока, хоть даже с простой Верёвочкой. «Как верёвочка вилась» — третий том смешных и грустных, добрых и поэтичных «Сказок Евгения Клюева» с иллюстрациями Анны Журко.Жанр: детская проза, сказкиИздательство: СамокатФормат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6050514A8EC1E5E6AAC5D6FA2B96384F07FF9C15
+magnet:?xt=urn:btih:A49E2188703C9258655342234073B7AA5FEFC5E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,281 +547,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761975   (102927) от 24.11.2024
+###  Публикация: 1749430   (104355) от 14.09.2024
 
-Trinakrius - Massacro (2010) [FLAC|Lossless|image + .cue] <Power Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massacro 03:18
-02. La morte del mondo 05:40
-03. ...e vivere sarà 04:45
-04. Come stai 05:03(   Читать дальше...   )Жанр: Power Doom MetalПродолжительность: 01:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58537228EADAE0AE8740514825D7CCF483FB8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762060   (102926) от 24.11.2024
-
-Pero Defformero - Undergrand (2009) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Došli smo do kraja puta (3:21)
-02. Silvana (4:35)
-03. Gotičarka (4:44)
-04. Ferrari (3:47)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37219FA72C6712C09C53E2C2731E7DBB5CCB66FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762057   (102925) от 24.11.2024
-
-Ocean Chief & Runemagick - The Northern Lights (2007) Split [FLAC|Lossless|image + .cue] <Doom Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Chief - Gathering Souls (28:10)
-02. Runemagick - Bound in Magick Haze (9:39)
-03. Runemagick - Chthonic Temple Smoke (10:13)Жанр: Doom Death MetalПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A5B794DE227696D4DFF88F6AC7DAFC53E3E822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762070   (102924) от 24.11.2024
-
-Sacramental Sachem - Recrucifiction (1995) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pure & Simple (9:53)
-02. Feed My Hate (7:50)
-03. Bloody Cages (8:18)
-04. Recrucifiction (7:16)(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A65F88ED4EFA00B89BBA556147FA9FC082D0F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761972   (102923) от 24.11.2024
-
-R.O.D. - Death For All (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (instrumental) 01:03
-02. Choice 01:32
-03. Сука блядь 02:48
-04. Fatal Mistake 03:10(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50607846548183DDBFE25D4F8BD52DA5E96B329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762328   (102922) от 24.11.2024
-
-Thargos - Killfukk (2003) [FLAC|Lossless|image + .cue] <Thrash Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funeral in GreenЖанр: Thrash Metal, Black MetalПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CA626D620975E41510E1823CB4274AB8084F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762199   (102921) от 24.11.2024
-
-НХЛ 2024-2025. Юта - Питтсбург Пингвинз (23.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102921.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 ноября 2024, воскресенье. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 16 324 зрителя (87% при вместимости 18 673)
-Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Кори Сиврет (Милгров, Канада); Линейный: Килиан МакНамара (Лейк Уорт, США); Линейный: Девин Берг (Китченер, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E6ACEA3457F1F6326D1464CB186D180E33BC4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762067   (102920) от 24.11.2024
-
-Mellowtoy - Lies (2015) [FLAC|Lossless|image + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nitro Dk 00:58
-02. Lies 03:48
-03. Visions 04:15
-04. Destroy Yourself 03:33(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC5EA37985F534427E2ADE4439072597233842A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762164   (102919) от 24.11.2024
-
-НХЛ 2024-2025. Виннипег Джетс - Питтсбург Пингвинз (22.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102919.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 ноября 2024, суббота. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 232 зрителя (82% при вместимости 18 673)
-Главный судья: Кори Сиврет (Милгров, Канада); Главный судья: Брэндон Бландина (Сентенниал, США); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Дэвид Брисбуа (Садбери, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39D0A924F557320CEE2F4EC68AE8F83CAE47576F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762437   (102918) от 25.11.2024
-
-Teddy Wilson - Gentleman Of Keyboard (1934 - 1957) 1990, Giants Of Jazz [FLAC|Lossless|image + .cue] <Swing, Piano Jazz>
+V.A. - The Best Smooth Jazz Ever (2002) 2CD [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102918.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Somebody Loves Me [2:54]
-02. I'm Painting The Town Red [2:57]
-03. All My Life [3:11]
-04. Why Do I Lie To Myself About You? [3:03](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:13:06
+CD1:
+01. David Benoit - Cast Your Fate To The Wind
+02. The Rippingtons - She Likes To Watch
+03. Special EFX - Ballerina(   Читать дальше...   )Жанр: Smooth Jazz |Продолжительность: 01:40:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF819BB43D3047C22D58F0360DE7333C0903762F
+magnet:?xt=urn:btih:4CE07FB81D2733DFB011295BC606B56D78A034C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,28 +576,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762345   (102917) от 25.11.2024
+###  Публикация: 1749484   (104354) от 14.09.2024
 
-The Minus 5 - Down With Wilco: A Tragedy In Three Halfs (2003) [FLAC|Lossless|tracks + .cue] <Rock. Indie Rock, Alternative Rock>
+VA - House - Move Your Body - Top Dance (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & OneRepublic - I Don't Wanna Wait
+02. Chika, Anderson .Paak & Fred again.. - places to be
+03. Charli Xcx - Apple
+04. BL3SS & CamrinWatsin Feat. bbyclose - Kisses(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E1EC1DA2585AE30AEE1CD6359A9BF00F31714C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749561   (104353) от 14.09.2024
+
+Забытая любовь (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104353.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отношениях архитекторов Надежды и Андрея наступает сложный период – финансовая нестабильность, проблемы с работой, больная мать Андрея, уход за которой требует денег, а также неудачные попытки завести ребенка. Масла в огонь подливает приезд их успешного однокашника Кирилла, бывшего парня Нади, который приезжает в их городок строить большой торговый центр. Кирилл (   Читать дальше...   )Производство: Россия | «АО-ОРК»Жанр: МелодрамаРежиссер: Валерий ИбрагимовАктеры: Анастасия Сорокина, Андрей Горбачёв, Дмитрий Белякин, Кира Кауфман, Дмитрий Мурашев, Кристина Убелс, Стефания Лебедева, Самвел Мужикян, Марк Гаврилов, Антон СычёвПродолжительность: ~00:49:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C63662F04216672B0D38988BB9CEB51203402C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749546   (104352) от 14.09.2024
+
+XYplorer 26.40.0100 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104352.jpg" />
+</div>
+
+
+###  Подробнее
+
+XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B655C4BB37332879B87816EA466F1BBD4DD92F07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749042   (104351) от 14.09.2024
+
+The Alan Parsons Project - The Turn of a Friendly Card (1980) Sessions, 2024, Legacy[MP3|320 Kbps] <Soft Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102917.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Days of Wine and Booze (3:42)
-02. Retrieval of You (3:51)
-03. That's Not the Way That It's Done (3:29)
-04. The Town That Lost Its Groove Supply (2:35)(   Читать дальше...   )Жанр: Rock. Indie Rock, Alternative RockПродолжительность: 00:42:08
+01 - May Be a Price to Pay (Eric Woolfson Songwriting Diary) [00:03:23]
+02 - May Be a Price to Pay (Early Version, Eric Woolfson Guide Vocals & Unused Guitar Solo) [00:05:02]
+03 - May Be a Price to Pay (Intro_Demo) [00:01:30]
+04 - Games People Play (Eric Woolfson Songwriting Diary) [00:03:03](   Читать дальше...   )Жанр: Soft RockПродолжительность: 02:01:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD0D8C0B4D9B792B4539920CECFD6FB6E7C83E7D
+magnet:?xt=urn:btih:3C41F88CD66097285ED57AF92D9D97CB2CB167B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -594,144 +686,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762486   (102916) от 25.11.2024
+###  Публикация: 1749050   (104350) от 14.09.2024
 
-Counting Hours - The Wishing Tomb (2024) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
+Simon & Garfunkel - Manchester, England, May '67 (2024) [MP3|320 Kbps] <Soft Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102916.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unsung, Forlorn (2:08)
-02. Timeless Ones (4:30)
-03. Away I Flow (5:57)
-04. All That Blooms (Needs To Die) (6:24)(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:48:37
+01 - He Was My Brother [00:02:49]
+02 - Leaves That Are Green [00:02:31]
+03 - A Most Peculiar Man [00:02:35]
+04 - Homeward Bound [00:02:44](   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:46:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E19AF50E3E6528F77453E1D6D73CF6E97D55507E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762365   (102915) от 25.11.2024
-
-Bathsheba - Servus (2017) SVART066CD [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conjuration Of Fire (7:35)
-02. Ain Soph (5:42)
-03. Manifest (10:33)
-04. Demon 13 (5:45)(   Читать дальше...   )Тип издания: DigisleeveЖанр: Doom MetalПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4023C2219EDD4177C2EA7B9954CEE60C7ACEC532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762402   (102914) от 25.11.2024
-
-Gorgone - Barminam (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Zeuhl>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102914.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Van Gis (04:39)
-2. Bidi Zonker (03:58)
-3. Dorbazonn (08:09)
-4. Barminam (04:28)(   Читать дальше...   )Жанр: Progressive Rock, ZeuhlПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C887E5FF56E7FF35C5A84844DC3A9B06D233EA6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762427   (102913) от 25.11.2024
-
-Rising Sunset - Vade Draconem Maledicte (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power, Gothic  Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A State Of Darkness [00:05:41]
-02. Deadmass [00:06:05]
-03. Demonic Possession [00:06:52]
-04. Midnight Child [00:05:10](   Читать дальше...   )Жанр: Symphonic Power, Gothic  MetalПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F2FE9BB5B6857CC30C8863740398D020E8D2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762400   (102912) от 25.11.2024
-
-Memory Garden - Studio Albums (7 releases) (1995-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memory Garden - шведская дум-метал/хэви-метал группа из Кумлы, образованная в 1992 году.1995 - Forever
-1996 - Tides
-1998 - Verdict of Posterity
-2000 - MirageЖанр: Power/Doom MetalПродолжительность: 05:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD749C6A2DD8692986396B077129DDE95689D1FF
+magnet:?xt=urn:btih:E58D9151FEF9D6FD78EFEF3325BB5ABBBBB37B77
 ```
 
 https://mybot314.ru/tekegram_catalog/

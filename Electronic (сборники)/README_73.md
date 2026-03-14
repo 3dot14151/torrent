@@ -1,3 +1,32 @@
+###  Публикация: 1524375   (744649) от 15.01.2022
+
+Various Artists - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abbsynth - Starlines
+02. Macrocosm - Retro Generation
+03. Spoonfly - Star Traveler
+04. Macrocosm - Morning in the Dark(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 03:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B788633CEFBBF6329B51264A470929D2514FBBC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396843   (744076) от 17.07.2020
 
 VA - EDC Clubbing House (2020) [MP3|320 Kbps] <Club House>
@@ -720,35 +749,6 @@ Hits of My Soul - сборник электронной и инструмент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F997E9213291ABC133658308C458EA31D232D74E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283475   (739724) от 17.02.2019
-
-VA - The Heart Of The City (2019) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739724.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Manuel Rocca Feat. Charmy - Heat Of Love (Original Mix)
-002. Abstract Vision Pres. Subbota - Noonday Shadows (Extended Mix)
-003. Accado - Remedy (Extended Mix)
-004. Daniel Garrick - Alive(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A7F4310542C20E33DDDA3BAFE7B7E13C46DFE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

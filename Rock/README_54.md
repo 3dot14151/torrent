@@ -1,3 +1,61 @@
+###  Публикация: 942009   (458102) от 29.09.2015
+
+Artful Dodger - Artful Dodger (1975) Remastered /1997, P.E.G./ [MP3|320 кб/с]<Rock, Power Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wayside (4:22)
+02. You Know It's Alright (3:33)
+03. It's Over (4:06)
+04. Follow Me (3:45)(   Читать дальше...   )Жанр: Rock, Power PopПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5B2C92CEF42BE200DE5D2C3637AD818AFB705F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162621   (456617) от 02.09.2017
+
+Porno Wolves - Shine Like Gold (2015) [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea Beast (04:25)
+02. World Illuminated (05:19)
+03. Tel Aviv (03:15)
+04. Rock Hard City (05:37)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DA3F51C4368D8864D8549EA7B838084A780B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321750   (456570) от 25.08.2019
 
 Tool - Fear Inoculum (2019) [MP3|320 Kbps] <Rock>
@@ -712,70 +770,6 @@ The Beatles & The Rolling Stones - When Two Legends Collide [BOOTLEG] (1967) [MP
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 242863   (447628) от 07.10.2010
-
-Joe Satriani - The Very Best (2010) [MP3|320 kbps]<Рок / Guitar, Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surfing With the Alien
-02. Always With Me, Always With You
-03. The Crush of Love
-04. Flying in a Blue Dream
-05. Summer Song
-06. Time Machine
-07. Luminous Flesh Giants
-08. Ceremony
-09. Starry Night
-10. Up in Flames(   Читать дальше...   )Жанр: Рок / Guitar, Instrumental RockПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409265   (447578) от 16.09.2020
-
-Tramtracks - Then? (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Bittersweet (04:41)
- 02. Call It On (03:43)
- 03. Emphatic (04:33)
- 04. Cat Fink (04:09)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4957878C5146C826551388300A4DAD2AB1995D
 ```
 
 https://mybot314.ru/tekegram_catalog/

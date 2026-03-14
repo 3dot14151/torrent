@@ -1,3 +1,90 @@
+###  Публикация: 1294132   (630102) от 07.04.2019
+
+Tal Farlow - Three Classic Albums Plus (1954 - 1959) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630102.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I Like To Recognise The Tune [3:14]
+02. Strike Up The Band [3:30]
+03. Autumn In New York [5:07](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 02:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D59940C25A62ED812D3D29680C8D678DE6D0FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294096   (630100) от 07.04.2019
+
+Matthew Shipp Trio and Nicole Mitchell - All Things Are (2019) [FLAC|Lossless|tracks + .cue] <Free Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630100.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Elements (07:25)
+2. Well Spring (05:12)
+3. It (06:12)
+4. Hidden Essence (05:19)(   Читать дальше...   )Жанр: Free Jazz, Contemporary JazzПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FDC452369842929E0740EDBBEC688DA7654559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294273   (630098) от 07.04.2019
+
+Peggy Lee - A Portrait of Peggy Lee 1941-1942 (1986) Sony [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elmer's Tune [2:54]
+02. That's the Way It Goes [3:14]
+03. I Got It Bad and That Ain't Good [3:18]
+04. My Old Flame [3:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8FD3F75067B00AF78C358FFAE34CF6EE04842C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229163   (630087) от 04.06.2018
 
 Chet Baker & Gerry Mulligan - Original Quartet 1952, 1953 (2018) 2CD, Jazz Images [FLAC|Lossless|image + .cue] <Cool>
@@ -674,105 +761,6 @@ L. Subramaniam - Fantasy Without Limits (1980) Remaster, 1985, Trend [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B13BAEEF8F91B5BC28D6888ACAB0664A0AE14E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144840   (625936) от 23.06.2017
-
-Jimmy Smith - Peter & The Wolf (1966) Remaster, 1999, Verve Records [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625936.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Bird/The Duck/The Cat/The Grandfather/The Wolf/The Hunter/Peter (4:09)
-     1a. The Bird
-     1b. The Duck
-     1c. The Cat(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:647A91BCD3D8D9990C5448E528EDBEA9DE2BD36D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522080   (625233) от 12.07.2012
-
-Billy Taylor - It's A Matter Of Pride (1994) [FLAC|Lossless]<Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At La Caroussel (5:56)
-02. Picture This (4:51)
-03. It's A Matter Of Pride (5:13)
-04. His Name Was Martin (6:07)
-05. Titoro (5:04)
-06. Back Home (8:45)
-07. Lookin' Up (6:06)
-08. Paraphrase (7:30)
-09. I'm A Lover (4:48)
-10. If You Really Are Concerned (5:54)(   Читать дальше...   )Жанр: BopПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522071   (625224) от 12.07.2012
-
-Billy Pierce - One For Chuck (1991) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chuck's Groove (B. Pierce) (6:31)
-02. Strictly Taboo (J. King) (6:19)
-03. Second Thoughts (M. Miller) (7:35)
-04. Woodworks (W. Shaw) (6:02)
-05. All the Way (J. Van Heusen - S. Cahn) (6:58)
-06. There's a Small Hotel (R. Rodgers - L. Hart) (6:54)
-07. Wayne's World (B. Mobley) (8:03)
-08. From This Moment On (C. Porter) (6:34)
-09. Thelma's Heart (B. Pierce) (6:23)
-10. Tryst (J. King) (4:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

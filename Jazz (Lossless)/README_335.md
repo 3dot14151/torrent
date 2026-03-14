@@ -1,3 +1,90 @@
+###  Публикация: 1754238   (103726) от 09.10.2024
+
+Ted Heath & His Music - Swing Is King! (1992) Limelight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying Home [2:26]
+02. Cherokee [3:19]
+03. Begin the Beguine [2:42]
+04. One O'Clock Jump [3:33](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76A96B85810D332780C6C4FB65678CE3534A339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754236   (103723) от 09.10.2024
+
+Jihee Heo - Flow (2024) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Yorker Step [4:26]
+02. I Can See Only One Step Ahead [5:24]
+03. Opening the New Door [4:54]
+04. Extreme Noise Blocker [4:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4DE3A36E658E05415AB422B83D4615AE385B663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754580   (103705) от 11.10.2024
+
+Herbie Hancock / Lionel Hampton - Nightlife Late Night (2000) Direct Source Special Products [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Herbie Hancock - Live and Awake (3:57)
+02. Lionel Hampton - Jeepers Creepers (3:33)
+03. Herbie Hancock - Scoochie (5:17)
+04. Lionel Hampton - Birth of the Blues (4:34)(   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3632A0381D25AC34BCF65061B774940818A9418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754582   (103704) от 11.10.2024
 
 Ted Heath And His Music - Fever (1965) 1985, London Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -658,93 +745,6 @@ Milt Jackson & Ray Charles - Soul Brothers (1958) 2012, Atlantic [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A15616A215DD18959A72B6F7EE055B8C94228D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755678   (103513) от 19.10.2024
-
-Eddie Henderson - Collective Portrait (2015) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunburst [8:21]
-02. Dreams [9:56]
-03. Morning Song [7:40]
-04. You Know I Care [5:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C566C59E7F7B92CBEC29CDCD032E09D37B1AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756257   (103507) от 20.10.2024
-
-Gary Burton - New Vibe Man In Town (1960, 1961) 2012, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy Spring [3:44]
-02. Over the Rainbow [4:25]
-03. Like Someone in Love [3:08]
-04. Minor Blues [5:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6A18FCE792D86B4037391E0575F0ED21F2057A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755848   (103505) от 20.10.2024
-
-Eddie Henderson - Witness To History (2023) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorpio Rising [7:02]
-02. Why Not? [8:35]
-03. Sweet and Lovely [7:40]
-04. It Never Entered My Mind [8:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576E8204A31209715A5CB9D7EFFD7CC95EB3D3F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

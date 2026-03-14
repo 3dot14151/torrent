@@ -1,3 +1,31 @@
+###  Публикация: 567781   (395439) от 30.10.2012
+
+3D модели - Evermotion - Archmodels Vol. 088 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник 3d моделей от Evermotion!
+
+Данный сборник содержит 60 высокополигональных и полностью затекстуренных моделей на тему "Рождество"!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3229A939223C9D3E6C063F6EAF2CFB51AFA85731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571957   (386659) от 07.11.2012
 
 3D модели - Evermotion - Archmodels Vol. 113 [V-Ray|*.max]
@@ -672,33 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48AED84F918F9DA679073049D2AE911B057871BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257388   (344732) от 26.10.2018
-
-3D модели - 3ddd - PRO 3D-models Pack 21 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 21 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C04793FF490C453F390DC3B5F668014ABA132B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1000098   (859198) от 25.03.2016
+
+Demis Roussos - The Universal Masters Collection (2000) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy To Be On An Island In The Sun
+02. Forever And Ever
+03. Lost In Love
+04. My Friend The Wind(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07C557AA3D18132CCD7B646DEA4CB93B3BF49A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000442   (859111) от 25.03.2016
+
+Birdy - Beautiful Lies (2016) Deluxe Edition [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Growing Pains (03:49)
+ 02. Shadow (04:01)
+ 03. Keeping Your Head Up (03:28)
+ 04. Deep End (03:28)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C3DBD15C2FEB47E6F3C1AEEC7ACB5C3ECAE786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000236   (859076) от 25.03.2016
+
+Kenny G - Love Ballads (2008) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Moment [4:41]
+02. Songbird [3:58]
+03. Theme From Dying Young [4:01]
+04. Everytime I Close My Eyes (Kenny G with Babyface) [4:59](   Читать дальше...   )Жанр: PopПродолжительность: 01:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1F0C02B545B265F701B7FB96FCCB1B6DEE0E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000596   (857502) от 26.03.2016
+
+Masha Qrella - Keys (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ticket To My Heart
+02. Pale Days
+03. Keys
+04. Simple Song(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, ElectronicПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A47D5663A979ED2B85C8C9E3290BB71EC284CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000839   (857498) от 26.03.2016
 
 Ardis - Love Addict (1994) [APE|Lossless|image + .cue] <Electronic, Reggae, Pop>
@@ -632,122 +748,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4944804B7A174002CE69318F50A6DBA1A1DF7F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002663   (846930) от 01.04.2016
-
-Elisa (Elisa Toffoli) - On (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Habits
-02. Rain Over My Head
-03. Love Me Forever
-04. Love As A Kinda War(   Читать дальше...   )Жанр: Pop, Dance Pop, ElectronicПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7211854CC6F2960F7482CE807C994A1C6A0E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002655   (846928) от 01.04.2016
-
-Amelia Brightman - Amelia Brightman (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop Rock, Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confide In Me [04:14]
-02. Fly [03:56]
-03. Your House [03:58]
-04. Rain [03:37](   Читать дальше...   )Жанр: Pop Rock, Pop, VocalПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB362477ADC2617A39F9ED150E61D1D532E84B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002972   (845197) от 02.04.2016
-
-SPC ECO - All We Have Is Now (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Dream Pop, Shoegaze Electronic, Trip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troubles Deep
-02. All Gone
-03. All You Need
-04. Slow Down(   Читать дальше...   )Жанр: Indie Dream Pop, Shoegaze Electronic, Trip HopПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D441ADE136020F293A1B59ADEA356D98A17EE060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378582   (844802) от 26.04.2020
-
-Charles Aznavour - After love (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson francaise>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Tu te laisses aller
-02 Les deux guitares
-03 J’ai perdu la tete
-04 Après l’amour(   Читать дальше...   )Жанр: Pop, Chanson francaiseПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D447F9C107A7E4DFCE122E43C86E8BDFA9BD2DBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

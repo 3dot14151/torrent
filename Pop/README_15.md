@@ -1,3 +1,235 @@
+###  Публикация: 1621900   (1030763) от 26.03.2023
+
+VA - Mystera VI (2000) [OGG Vorbis|480 Kbps] <Electronic, Classical, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Who Wants To Live Forever
+02. Enigma - Return To Innocence
+03. Rosenstolz - Amo Vitam
+04. Loreena Mckennitt - The Mummers' Dance(   Читать дальше...   )Жанр: Electronic, Classical, AmbientПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76310787E0051E155EF1537D674F96B5A01C599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448586   (1030694) от 18.02.2021
+
+Стас Костюшкин - Лакшери (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030694.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лакшери
+2. Гитара
+3. Ха-ха
+4. Васёк(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A190D4A4421495534BFD6B54C5B8FAAAF8BDEAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448868   (1030476) от 19.02.2021
+
+NK (Настя Каменских) - Eclectica (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Elefante
+02 - A Huevo
+03 - Yea Or Nay
+04 - Película(   Читать дальше...   )Жанр: Pop, Latin Pop, DanceПродолжительность: 00:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17BC318B39FD1BCF0F8BD7ACA314C95FA5B8850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448787   (1030454) от 19.02.2021
+
+Soprano Турецкого - 10 (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Турецкое рондо
+2. Habanera
+3. Ау
+4. Бублики(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524E25943D48F03FD0DA2F5CA79E01A82CFC912A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621943   (1030274) от 28.03.2023
+
+Lemar - Page In My Heart (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop, R&B, Soul>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Page In My Heart
+02. Glorious!
+03. Future Love
+04. Dust(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A29DDC2B33B5FA44057CE8A2CEBC181909D543B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449198   (1030231) от 20.02.2021
+
+Dmitri Hvorostovsky (Дмитрий Хворостовский) - Singing of Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine, Shine, My Star (4:02)
+02. Do Not Hurry (3:48)
+03. Don Carlo: O Carlo, ascolta (4:12)
+04. Don Giovanni, K. 527: Deh vieni alla finestra (2:51)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7490D6D96E27C3F729F81035E2FFD5B3FDA6B9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622130   (1030045) от 29.03.2023
+
+Luis Miguel - Romances (1997) [OGG Vorbis|480 Kbps] <Latin, Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voy a apagar la luz / Contigo aprendi
+02. Sabor a mi
+03. Por debajo de la mesa
+04. La gloria eres tu(   Читать дальше...   )Жанр: Latin, Pop, BalladПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64455A160B89931F404C98BED30BB59EF601F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622592   (1030043) от 29.03.2023
+
+VA - Mystera VIII (2002) [OGG Vorbis|480 Kbps] <Pop, Downtempo, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gregorian - Moment Of Peace
+02. Ortiga - Oracion
+03. Amoure - Le Baiser Dernier
+04. Llynya - Wide Over The Land(   Читать дальше...   )Жанр: Pop, Downtempo, AmbientПродолжительность: 01:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087231FAE41E95F10B26F0D4E3B5BA56B46C7059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622567   (1030039) от 29.03.2023
 
 VA - Mystera VII (2001) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Classical>
@@ -515,236 +747,6 @@ Bonnie Tyler - The Best Is yet to Come (2021) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:862F4AC879CB311502879E04B64907E3EAA364E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 161466   (1029209) от 02.04.2023
-
-МакSим - Дискография  (2006-2009) [FLAC|Lossless] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Певица МакSим родилась 10 июня 1984 года в городе Казани.По словам МакSим, все в ее жизни происходило само собой. Сначала было обучение в вокальном кружке города Казани. Параллельно МакSим занималась в спортивном кружке карате дзю-тзютсу. 6 лет стараний и красный пояс в кармане.
-Даже в старших классах МакSим не отличалась прилежным поведением. Но прогулы и опоздания (   Читать дальше...   )Жанр: Pop, Dance, Disco.Продолжительность: 4:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D8169623D717E56F5EA76EAF57D7A4657C34FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450279   (1029194) от 25.02.2021
-
-Modern Boots - Garden of Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe Tonight (5:29)
-02. Angel's Heart (6:33)
-03. Give Me Your Heart Again (5:08)
-04. I Couldn't Love You (5:46)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC341DCF6BBDA4A567B119D57EADB986B6294FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450128   (1029189) от 25.02.2021
-
-Bonnie Tyler - The Best Is yet to Come (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Is Yet To Come
-02. Dreams Are Not Enough
-03. Hungry Hearts
-04. Stuck To My Guns(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54488F3BC4A9C61F5BEF63A96F907BBEFAB41CFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623872   (1029099) от 03.04.2023
-
-DJ Ryloff (Remixed Ru) - Трава у дома (2023) [WavPack|Lossless|image + .cue] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 DJ Нил & Гелена - Звездное лето (Refuse Breaks Vocal Remix Intro)
-02 Земляне feat. Дима Билан - Трава у дома (Dj Martinr Remix)
-03 Zivert - Я. Т. Л. (DJ Zhuk Remix)
-04 Лолита & Коста Лакоста - По-другому (Roman Max & Nicky One Extended Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064894DBCE2BAD61750633AE6DD9BD262DB367E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450562   (1029019) от 26.02.2021
-
-VA - Italo Made In Spain 4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various - Italo Made In Spain 4 (Edicion Mexico) (16:15)
-02. Various - Italo Made In Spain 4 (Summer Session) (28:49)
-03. Francesco Napoli - Lady Fantasy 2018 (Italo New Extended Mix) (6:54)
-04. Naoky feat. Stylove - Cybernetic Love (Extended Mix) (6:13)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 02:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B42741A4A931A8A57BC9D6FDDA0E005343BE0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450603   (1028863) от 27.02.2021
-
-VA - Disco Deluxe - Disco Classics (2005) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Chocolate - You Sexy Thing (4:05)
-02. Gloria Gaynor - I Will Survive (Re-Rec) (4:52)
-03. Two Fons O'fon - I Got The Feeling (5:17)
-04. Marshall, Hain - Dancing In The City (3:45)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 02:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8571158AF4819F40506C838EEADF048B15374BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450873   (1028741) от 28.02.2021
-
-Natalia Oreiro - Natalia Oreiro (1998) [FLAC|Lossless|image + .cue] <Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De tu amor (03:57)
-02. Uruguay (03:44)
-03. Se pegó en mi piel (04:09)
-04. Me muero de amor (03:56)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD5BB56AE6E1E4C9935D5012D2EB5A462F43041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451139   (1028707) от 28.02.2021
-
-VA - 70s 80s and 90s Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Straight Up (02:48)
-02. Logan York - Good Enough (04:11)
-03. John Burnsby - Ain’t No Sunshine (03:08)
-04. Django Wallace - Hard to Say I’m Sorry (04:27)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109539EEA6C9D07680FD54AC186F202CAFE2D214
 ```
 
 https://mybot314.ru/tekegram_catalog/

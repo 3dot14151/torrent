@@ -1,3 +1,166 @@
+###  Публикация: 1245739   (469888) от 07.09.2018
+
+VA - Brazil 70: After Tropicalia: New Directions in Brazilian Music in the 1970s (2007) [FLAC|Lossless|tracks + .cue] <Folk Rock, Bossanova, MPB, Latin Jazz>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secos & Molhados - Amor (02:18)
+02. Alceu Valença - Punhal de Prata (03:12)
+03. Novos Baianos - Tinindo Trincando (03:25)
+04. Jaime Alem & Nair de Cândia - Passará (04:12)(   Читать дальше...   )Жанр: Folk Rock, Bossanova, MPB, Latin JazzПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134B1E073A8B77B6E260BE3FD2E33347A8E26B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547144   (469547) от 17.09.2012
+
+Gregorian - Epic Chants (2012) [MP3|~245 кб/с (V0)]<NewAge & Meditative,Ambientpop,Gregorian chants>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Without End (4:17)
+02. Against All Odds (4:28)
+03. Conquest of Paradise (5:56)
+04. Both Sides Now (6:12)
+05. Bright Eyes (4:54)
+06. My Heart Will Go on (5:22)
+07. Live and Let Die (5:05)
+08. Into the West (5:21)
+09. Kiss From A Rose (5:56)
+10. Last Unicorn (4:35)(   Читать дальше...   )Жанр: NewAge & Meditative,Ambientpop,Gregorian chantsПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3310EB8E084A90CB8BAD8F92AF62DE29AD59B1D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 386804   (469389) от 12.09.2011
+
+Paco De Lucia - Flamenco Virtuoso (2008) [FLAC|Lossless]<Flamenco>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zorongo Gitano (2:59)
+02. Malaguena (3:32)
+03. Punta Umbria (3:24)
+04. Gitanos Trianeros (3:43)
+05. Llanto A Cadiz (3:29)
+06. Tomo Y Obligo (2:11)
+07. Guajiras De Lucia (3:22)
+08. Panaderos Flamencos (2:38)
+09. El Tempul (3:29)
+10. Taconeo Gitano (3:03)(   Читать дальше...   )2008Жанр: FlamencoПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547992   (468859) от 17.09.2012
+
+Обитель зла: Возмездие / Resident Evil: Retribution (by Tomandandy) (2012) (tracks+.cue), [FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hexes (ft. Chino Moreno) [03:00]
+02. Flying Through the Air [03:48]
+03. First Blood [01:12]
+04. Tokyo Revisited [02:05]
+05. Corridor [02:52]
+06. Planting [04:05]
+07. Axemen [02:47]
+08. Fall Back [01:51]
+09. Imprinted [00:57]
+10. Suburbia [02:50](   Читать дальше...   )Жанр: ScoreПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058563   (468832) от 01.10.2016
+
+Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks] <Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Meditation [00:12:15]
+02. Believe the Mental Power [00:13:20]
+03. On the Wings of Time [00:13:17]
+04. Reincarnation [00:08:22](   Читать дальше...   )Жанр: MeditationПродолжительность: 01:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA244E70745E24651D5FA118BC5C81A8DC8AC3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 92549   (468156) от 06.09.2020
 
 VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
@@ -594,154 +757,6 @@ Benjamin Richter - The Grand Momentum (2015) [MP3|320 кб/с]<Piano, Instrument
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:442206A7433E977FB46DFEA59F03F08BCF770FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940763   (464462) от 26.09.2015
-
-Benjamin Richter - The Grand Momentum (2015) [FLAC|Lossless]<Piano, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Grand Momentum (4:07)
-02. Hollow Life (4:04)
-03. Enjoy the Silence Sonata (4:16)
-04. Piano Morte (4:02)(   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:342F4ED0E4E25EA8ECFBC95EA7E884FB7E660C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548966   (464364) от 19.09.2012
-
-VA - 20 Золотых Уличных Мелодий (2000) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мама, я летчика люблю
-02. Ночная атака
-03. Я, Шура, ребенок нежный
-04. Друзья, купите папиросы
-05. Рио-Рита
-06. Увяли розы
-07. У Черного моря
-08. Бабье лето (Владимир Высоцкий)
-09. Голубые глаза
-10. Чижик-пыжик(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EAC2D256C4FA066B2468AC815F699A264A056F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548961   (464362) от 19.09.2012
-
-Joel Nielsen - Black Mesa Source Soundtrack (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ScoreПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49FF2007F203724193D6D550894766B9E023C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058890   (464044) от 03.10.2016
-
-Patrick Watson - The 9th Life of Louis Drax / Девятая жизнь Луи Дракса (2016) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Drax
-02. Helicopter0
-03. Clouds
-04. The Red Dress(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE60D8B8667E179C3CB140251843D62501D80BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058835   (464024) от 03.10.2016
-
-Oliver Scheffner - Ambient Dream Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under the Rainbow
-02. Summer Night of Starfalls
-03. Fly to the Dream
-04. Forest of Sprites(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D7D09D0F2796CC162C83B9B42583CE0AAF49DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

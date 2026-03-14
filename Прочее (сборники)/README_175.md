@@ -1,3 +1,38 @@
+###  Публикация: 479535   (98893) от 07.04.2012
+
+VA - MAXI. Только Best Club (2012) [MP3|320 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project 46 & Gemellini feat. Corinne Lee - Crazy (Original Mix)
+02. Polina Griffith & Miami Kidz - Feeling This Way (Extended Mix)
+03. Pedro Henriques feat. Giuseppe Viola - Spread The Love (Original Mix)
+04. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia (Club Mix)
+05. Agulo feat. David Berkeley - Fire Sign (Suncatcher Remix)
+06. Northbrook - Move Your Body (Tommie Sunshine Remix)
+07. House Rockerz - Hemmungslos (Extended Mix)
+08. Betsie Larkin with Super8 & Ta - All We Have is Now (Original M
+09. Mohombi - In Your Head (High Level Club Mix)
+10. Glamrock Brothers - Drunken Sailor (Club Mix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 04:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26AB17FF19DBDBDA06ACC674F57ACB43F7BA2C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479109   (98890) от 07.04.2012
 
 VA - Deep Line. Harmony Collection (2012) [MP3|320 kbps]<Relax | Chillout>
@@ -866,41 +901,6 @@ VA - Disco Stars (2012) [MP3|320 kbps]<Pop | Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD09FDA5B01179F292F17C69DD6803177A06CFA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476235   (98256) от 31.03.2012
-
-VA - MAXI. Романтика Русского Рока (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98256.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Земфира - Небо Лондона (live) (3:12)
-2. Високосный год - Тихий Огонек (4:22)
-3. Макаревич - Перекресток (4:49)
-4. Кино - Пачка Сигарет (4:30)
-5. Ольга Дзусова - Тополя (3:36)
-6. Любэ - Старые друзья (3:49)
-7. Кино - Кукушка (6:42)
-8. Леприконсы - Напиши мне (5:06)
-9. Ляпис Трубецкой - Зеленоглазое такси (2:49)
-10. Чиж и Ко - О любви (4:39)2012Жанр: RockПродолжительность: 03:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0488A235CA78AFAC0A2363D028C8D94898B32444
 ```
 
 https://mybot314.ru/tekegram_catalog/

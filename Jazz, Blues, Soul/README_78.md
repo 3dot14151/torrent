@@ -1,3 +1,61 @@
+###  Публикация: 1369598   (902118) от 24.03.2020
+
+Oscar Peterson & Dizzy Gillespie - 1974 (1987) Pablo [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan [7:02]
+02. Mozambique [7:09]
+03. Autumn Leaves [7:25]
+04. Close Your Eyes [5:25](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC27B49C6DD65C83DA2FE575EAEF337463B0A4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369449   (902020) от 24.03.2020
+
+Jeff Golub - Soul Sessions (2003) [FLAC|Lossless|image + .cue] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boom Boom
+02. Playin' It Cool
+03. Cadillac Jack
+04. Underneath It All(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AB8FCF6351D22D04FCD2F40B0271D078F295F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100106   (901903) от 03.02.2017
 
 Morten Schanz - Godspeed (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemporary Jazz>
@@ -687,64 +745,6 @@ Nils Landgren with Janis Siegel - Some Other Time - A Tribute To Leonard Bernste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B191A7C71C53E55453D1FFF6CC9065962AFD3A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100615   (899930) от 04.02.2017
-
-Art Blakey And The Jazz Messengers - Backgammon (1976) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Uranus [07:00]
- 02.Whisper Not [06:35]
- 03.Backgammon [05:30]
- 04.Blues March [05:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5899B0F93509457AB56F1059A41EE09A694886B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100573   (899916) от 04.02.2017
-
-Manu Katche - Unstatic (2016) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899916.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Introducción
-2. Unstatic
-3. Flame & Co
-4. City(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498B028A64A961D8C6D068E402B02B4E0FA1A5E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1789776   (68228) от 05.04.2025
+
+The Devil Makes Three - Spirits (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lights On Me (3:52)
+02.  Spirits (3:39)
+03.  Ghosts Are Weak (3:08)
+04.  Half As High (2:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201A9CF408085C616501EB74AF7D3044BAAAC01C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789754   (68227) от 05.04.2025
+
+Natacha Lycurgue - Falling Petals - The Fearful-Avoidant's Discard (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The burden you choose (3:26)
+02.  We Knew Better (2:55)
+03.  Beware of the Whisper (3:12)
+04.  Your Dark Passenger (4:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04AFFB95FE45D7605BD78A6EC7BC175F91853E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789431   (68222) от 06.04.2025
+
+Bleed from Within - Zenith (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Groove Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violent Nature [00:03:55]
+02. In Place of your Halo [00:03:43]
+03. Zenith [00:04:18]
+04. God Complex [00:04:05](   Читать дальше...   )Жанр: Melodic Death Metal, Groove Metal, MetalcoreПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FEC27940A0B7986DA9DB2F9C198D80F9079EB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789908   (68220) от 06.04.2025
+
+Sheila - A L’avenir (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Dilemne
+02 – Les amoureux
+03 – Rac‚e
+04 – Courir(   Читать дальше...   )Жанр: Pop ChansonПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2ACF01705CE10C504AD96914F814E5E61DA675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783158   (68217) от 06.04.2025
+
+Fatal Embrace (Germany) - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fatal Embrace - трэш-метал-группа из Берлина, Германия, образованная в начале 1993 года под названием Nosferatu.2000 - The Ultimate Aggression
+2002 - Legions Of Armageddon
+2006 - Dark Pounding Steel
+2010 - The Empires Of InhumanityЖанр: Thrash MetalПродолжительность: 05:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD947D813C35DC373CEE754CA10FFBE71E514546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789703   (68209) от 06.04.2025
 
 Manowar - Battle Hymns (1982) Reissue, 1987, Liberty [DSD|tracks|Vinyl-Rip] <Rock, Heavy Metal>
@@ -597,151 +742,6 @@ Behind Crimson Eyes - An Exodus From Eden (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20EE13026CA52E7F0FB16716092D413AECE9BFF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790462   (68071) от 09.04.2025
-
-Fear Factory - Obsolete (1998) Reissue, 2018, Roadrunner Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68071.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Shock
-A2 - Edgecrusher
-A3 - Smasher/Devourer
-A4 - SecuritronЖанр: Industrial, Death MetalПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0477A67F198C6A30DC595C8C3F6DAC80051ACF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790554   (68068) от 09.04.2025
-
-Fear Factory - Digimortal (2001) Reissue, 2007, Roadrunner Records [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Will Become
-02. Damaged
-03. Digimortal
-04. No One(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C61AD82AB41787CCC189D858E1922E8D80FBBB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790319   (68067) от 09.04.2025
-
-Yandel - Sinfonico  (En Vivo) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Latin>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Intro (Sinf¢nico En Vivo)
-02 – Pu¤o De Tito (Sinf¢nico En Vivo)
-03 – Perm¡tame (Sinf¢nico En Vivo)
-04 – Como Antes (Sinf¢nico En Vivo)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7597E6AC783F4F1E3EEADF43C57731BAAA32EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790660   (68029) от 10.04.2025
-
-Derek MC Gowan - Rainlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rainlight (4:49)
-02.  The Man in the Suit (5:08)
-03.  Johnny's Gone (3:44)
-04.  The Boys (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD08C2CC40A9AF0817A982EFD18FA61524536C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790743   (68028) от 10.04.2025
-
-Mood Waves Record - Gentle Spring Notes Filling the Air (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Springtime Café Moments with Smooth Jazz (2:05)
-02. Soft Jazz Piano for a Peaceful Spring Day (2:46)
-03. Slow Coffee, Soft Jazz, and Spring Sunshine (2:06)
-04. Sunlit Coffee Time with Smooth Piano (1:10)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AB59E208E0713BC11F1DE008328A9157846117
 ```
 
 https://mybot314.ru/tekegram_catalog/

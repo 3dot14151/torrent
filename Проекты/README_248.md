@@ -1,3 +1,29 @@
+###  Публикация: 947756   (417732) от 17.10.2015
+
+Проекты - Photo Frame for Three Romantic Pictures [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания превью к Вашему фотоальбому. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE236C3868539DFD79142DF328B6CAF59B48214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947462   (417726) от 17.10.2015
 
 Проекты - VideoHive - Flame Logo Reveal [AEP]
@@ -661,32 +687,6 @@ Proshow Producer - Cork Board [PSH]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFD7BDEAD5B1B62315BDDE539760974A70178177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325181   (416056) от 13.09.2019
-
-VideoHive - Shining Hearts Romantic Logo Reveal - 23218747 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивое видеопослание на День Всех Влюблённых... Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2352290D369342EB9E14F02217C444740AB3AAA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

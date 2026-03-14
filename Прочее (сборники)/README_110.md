@@ -1,3 +1,32 @@
+###  Публикация: 1246421   (459178) от 12.09.2018
+
+VA - 130 The Abundance of Styles Loaded (2018) [MP3|320 Kbps] <Pop, Country, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459178.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Qveen Herby - Love Myself (Wild Culture Remix) (Dirty)
+002. DVBBS and Blackbear - Idwk (Dj Rukus Intro Edit) (Clean)
+003. Ying Yang Twins Ft. Mike Jones - Badd (MAKJ and Max Styler Remix) (Dj Rukus Intro Edit) (Dirty)
+004. J Balvin Ft. G-Eazy Mc Fioti Anitta Sfera Ebbasta Duki and Jeon - Machika (Remix) (Clean)(   Читать дальше...   )Жанр: Pop, Country, HouseПродолжительность: 07:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC8E503C408CC789FC6D78DB754AFC7F287895E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408322   (457858) от 11.09.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 11.09.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -761,41 +790,6 @@ VA - VA - 100 хитов популярной музыки. Версия 5 (2015
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCEA73792E0B107EA59C886C667EF31C23903642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550549   (453472) от 24.09.2012
-
-VA - XXXL Evro Max Hits (2012) [MP3|256 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453472.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mustafa Sandal - Ego
-002. Emma Hewitt - These Days Are Ours
-003. Rene De La Mone & Slin Project - 2012 (Get Your Hands Up)
-004. The Babysitters Circus - Everything's Gonna Be Alright
-005. Sensato feat. Pitbull - Booty Booty
-006. Professor Green feat. Emeli Sande - Read All About It (Cahill Explicit Radio Edit)
-007. Randi - It Takes Two
-008. Tiesto & Showtek - Hell Yeah! (Original Mix)
-009. Eagles - Hotel California (Ivan Flash Remix)
-010. Jimmy Dub - Hotel Fiesta (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 06:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0643A19416F1D690A862646DDD36F97FDB99BE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

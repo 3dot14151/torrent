@@ -1,3 +1,90 @@
+###  Публикация: 1438181   (239088) от 07.01.2021
+
+Gard Nilssen's Supersonic Orchestra - If You Listen Carefully the Music Is Yours (2020) [FLAC|Lossless|WEB-DL|tracks] <Big Band, Free Jazz, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Premium Processing Fee - 10:21
+2. B?tteknott / Elastic Circle - 13:13
+3. Teppen Dance - 11:03
+4. The City Of Roses - 9:03(   Читать дальше...   )Жанр: Big Band, Free Jazz, Avant-Garde JazzПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB476E328CA452C147482D53301FF1BA9552390C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636448   (239038) от 30.05.2023
+
+Take 6 - Feels Good (2005) I-More [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On [3:49]
+02. This Is Another Day [3:28]
+03. Feels Good [3:51]
+04. Wait for the Sunshine [3:48](   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27269AC28412FAF55DF3B5C6CA1526BF854638B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476943   (239029) от 13.06.2021
+
+Lalo Schifrin - Seven Classic Albums (1959 - 1962) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239029.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Frenesi [3:18]
+02. The Breeze and I [2:47]
+03. Capricho Espanol [3:20](   Читать дальше...   )Жанр: World Fusion, Latin Jazz, Big BandПродолжительность: 04:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC8838F9FC85124AAF664E6F45ECE2937B810A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636613   (239012) от 31.05.2023
 
 Cal Tjader - Mambo Sangria (1968, 1969) 2007, Fabulous [FLAC|Lossless|tracks + .cue] <Latin Jazz, Cool>
@@ -658,93 +745,6 @@ McCoy Tyner - Beautiful Love: Live in Warsaw (1991) 1994, All At Once Happy Pric
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4681DD2ABDA040386EB00A61CCC7BEC0BAA0048D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446188   (237992) от 08.02.2021
-
-Fats Waller - 1938 (1996) Classics [FLAC|Lossless|image + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Try Your Jive on Me [3:18]
-02. Ain't Misbehavin' [2:57]
-03. The Flat Foot Floogie [2:47]
-04. Pent Up in a Penthouse [2:34](   Читать дальше...   )Жанр: SwingПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9075CBF9C39BB61095C595B397D0CB752330C4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446187   (237982) от 08.02.2021
-
-Lennie Tristano - 1946 - 1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out on a Limb [2:44]
-02. I Can't Get Started with You [2:57]
-03. I Surrender, Dear [3:08]
-04. Untitled Blues [3:48](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0C945C21B8F9908DFA45B62AF904C5523306D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446185   (237976) от 08.02.2021
-
-Nat "King" Cole - 1947, Vol. 3 (2000) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Nest [2:35]
-02. Dream a Little Dream of Me [2:51]
-03. Then I'll Be Tired of You [3:11]
-04. Money Is Honey [2:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13EBFCE5BA2324CAD2C5AD18F55969C038BA75D
 ```
 
 https://mybot314.ru/tekegram_catalog/

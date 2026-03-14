@@ -1,3 +1,119 @@
+###  Публикация: 1703685   (114809) от 01.03.2024
+
+Александр Барыкин - Эй, смотри! (1990) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. В стиле Рок (М. Пушкина) — 4.46
+02. С нами любовь (М. Пушкина) — 4.05
+03. Гала (А. Барыкин) — 4.36(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D30C1D61B7442CE880E26751D6EBC5BEBE8AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703679   (114808) от 01.03.2024
+
+Bananarama - Pop Life (1992 (1991)) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One.
+01 - Preacher Man.
+02 - Long Train Running.
+03 - Only Your Love.(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4ED4D581A5C263E8B86E37D92F8FEFEFFD39D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703666   (114791) от 01.03.2024
+
+Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless|tracks] <Hard-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Blue Moon (Larsson–Hjalmarsson)
+02. Can’t Get You Out Of My Mind (Larsson–Hjalmarsson)
+03. Dance, Dance (Larsson–Hjalmarsson)
+04. Hey Bulldog (Lennon–McCartney)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65453187EE9F0473BB4082D16DE905E72E562239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703916   (114698) от 02.03.2024
+
+Nirvana - Studio Albums (5 releases) (1989-1994) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Grunge, Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nirvana — американская рок-группа, созданная вокалистом и гитаристом Куртом Кобейном и басистом Кристом Новоселичем в Абердине, штат Вашингтон, в 1987 году. В составе коллектива сменились несколько барабанщиков; дольше всех с группой играл ударник Дэйв Грол, присоединившийся к Кобейну и Новоселичу в 1990 году.1989 - Bleach
+1991 - Nevermind
+1992 - Incesticide
+1993 - In Utero(   Читать дальше...   )Жанр: Grunge, Punk RockПродолжительность: 04:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A87467B8D4A96BE9606020ADC1F5EF02C25CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703828   (114681) от 02.03.2024
 
 AC/DC - If You Want Blood You've Got It (1978) Live [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
@@ -629,120 +745,6 @@ AC/DC - For Those About To Rock (We Salute You) (1981) [FLAC|24/192|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4BB87989B200E364DA2B4AC3BAD71652DCE1772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704602   (114155) от 05.03.2024
-
-VA - Музыкальный телетайп 4 (1988) [FLAC 24/192|Lossless|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Людвиг Ван Бетховен - Соната №14. Часть 1 - Adagio sostenuto (Генрих Нейгауз, ф-но)Жанр: ClassicalПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DC3CF8925ED6984013B5E8180F046325C8CCA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704593   (114153) от 05.03.2024
-
-Гос. симф. оркестр СССР, Л. Гинзбург - J.S.Bach - Die Brandenburgische Konzerte BWV 1046 (И. С. Бах - Бранденбургский концерт №1) (1955) [FLAC 24/96|Lossless|tracks] <Classical, Concerto>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01.  I. Адажио
-02.  II. Адажио
-Сторона 2:(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2898F71AA5B058AB7CC23CD2F10CD370AE39EC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704613   (114149) от 05.03.2024
-
-Duran Duran - Liberty (1990) 1992 [FLAC 24/192|Lossless|tracks] <Electronic, New Wave, Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1.
-01.Violence Of Summer (Love's Taking Over)
-02.Liberty
-03.Hot Head(   Читать дальше...   )Жанр: Electronic, New Wave, SynthpopПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B0338FA0BE02B97BBC4303B65333763CE2B661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704526   (114145) от 05.03.2024
-
-AC/DC - Highway To Hell (1979)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Highway to Hell"
-02. "Girls Got Rhythm"
-03. "Walk All Over You"
-04. "Touch Too Much"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936989504FE8B4A6356EFFE26742EEAFB578B022
 ```
 
 https://mybot314.ru/tekegram_catalog/

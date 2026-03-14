@@ -1,3 +1,148 @@
+###  Публикация: 1249565   (433313) от 24.09.2018
+
+SolarFlow - Imagine (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Begining of Life (Intro)
+02 - Forest
+03 - Dream of Mermaid
+04 - Revival the Bird(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0F2A844717C5AE61FED3B6B3972B7E7502F6B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945376   (433270) от 10.10.2015
+
+VA - Criminal Mind / Мыслить как преступник (2005-2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Criminal Minds - The Main Theme
+02. Extreme Agressor - Citizen Cope
+03. Nine Inch Nails - Every Day Is Exactly The
+04. Mantegna - As Heard on Mike and(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 17:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1BF70FC6CE9A3C50C2D30602FEED0632A8F3A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249611   (432988) от 24.09.2018
+
+Jóhann Jóhannsson (Johann Johannsson) - Mandy (Original Motion Picture Soundtrack) (2018) Lakeshore Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Ambient, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seeker Of The Serpent's Eye (02:12)
+ 02. Starling (02:15)
+ 03. Mandy Love Theme (04:39)
+ 04. Horns Of Abraxas (01:31)(   Читать дальше...   )Жанр: Ambient, Dark Ambient, SoundtrackПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C56471FF165EA3E9ECAB4C087F9EAD30D713FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063528   (432531) от 17.10.2016
+
+doseone - Enter the Gungeon (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter the Gun (04:07)
+02. Lead Lords Keep (02:42)
+03. Gungeon Up Gungeon Down (03:21)
+04. The Hollow Howl (02:27)(   Читать дальше...   )Жанр: Soundtrack, Electronic, Alternative, Hip Hop, SynthПродолжительность: 01:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8A267476A99633EE7B9D8C93641683E206D6AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063662   (432517) от 17.10.2016
+
+Anamanaguchi - Scott Pilgrim vs. the World: The Game (Original Videogame Soundtrack) (2010) [MP3|320 кб/с]<Soundtrack, 8-bit>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Pilgrim Anthem (01:38)
+02. Another Winter (02:33)
+03. Skate or Live (01:37)
+04. Sushi Box (01656)(   Читать дальше...   )Жанр: Soundtrack, 8-bit , Electronica, Electronica: ChiptuneПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6E67DE4F79EAFDB637FFD252C42BB9D60AF819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063559   (432516) от 17.10.2016
 
 Johnny Jewel - Lost River / Как поймать монстра (Original Motion Picture Soundtrack) (2015) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
@@ -608,151 +753,6 @@ Francisco Canaro - Serie Para Baile Vol.2 - Todo Vals (1941) [MP3|256 кб/с]<T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:602EFD7695FDFC64236A1C5002B9CD3820BD00E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410924   (429360) от 24.09.2020
-
-Enigmatic Hits - Reloaded (2020) [MP3|320 Kbps] <Enigmatic, New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Eagles in Manhattan
-02. Meditation on Mount Fuji
-03. Rain in Tibet
-04. Potter Makes a Jug(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72194804D4A027ED7781AF054E7F115592748122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946071   (429332) от 12.10.2015
-
-Francisco Canaro - Todo Milonga Serie Baile, Vol. 1 (2015) [MP3|192 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milonga sentimental
-02. Milonga del 900
-03. Negrito
-04. Larga las penas(   Читать дальше...   )Жанр: TangoПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528A25BE1063A0AF1270FE4D16C296633CC9CE5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946288   (429316) от 12.10.2015
-
-VA - Клинч (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Пускепалис - Intro
-02. Би-2 feat. Диана Арбенина - Тише и тише
-03. D. Brown feat. Elizaveta feat. Би-2 - Я ищу
-04. Би-2 feat. Варя Демидова - Книга(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C57777787B48C8DD31B7B994834679215180B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250067   (429132) от 26.09.2018
-
-Thierry David - Zen World (2006) 2008, Real Music [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close to Heaven (5:18)
- 02. Asian Rhapsody (4:27)
- 03. I Miss You So (4:31)
- 04. Walking on Skies (3:16)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E22DE6C09E0EDEA3461EAFC416A978BC786D41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249917   (429128) от 26.09.2018
-
-Mauricio Nader - Our Soul Revealed (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope Within
-02. Wish to Be with You
-03. The Own Reflection
-04. Hidden Loneliness(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D2EC25F9506E858C902900931F78F721EC2322
 ```
 
 https://mybot314.ru/tekegram_catalog/

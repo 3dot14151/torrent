@@ -1,3 +1,203 @@
+###  Публикация: 546179   (478696) от 13.09.2012
+
+Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8500FADF8AB7E7CF25A86D22D37AA4E73ABCB2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384818   (478526) от 08.09.2011
+
+DJ VJ Magrao Videomix Volume 10 (2011) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летний мегамикс бразильского ви-джея Magrao01 - DJ VJ Magrão - Introdução 2011 Parte 2
+02 - Adele - Rolling In The Deep
+03 - Rihanna - California King Bed
+04 - Flo Rida & Akon - Who Dat Girl
+05 - DJ Antoine, Timati Feat.Kalenna - Welcome To St. Tropez
+06 - Jean Roch, Flo Rida & Kat DeLuna - I\'m Alright
+07 - Far East Movement - Rocketeer
+08 - Tiko\'s Groove & Gosha - I Don\'t Know What To Do
+09 - Katy Perry - Last Friday Night (TGIF)
+10 - Jessie J & B.O.B - Price Tag(   Читать дальше...   )Жанр: Pop, Club, DanceРежиссер: DJ VJ MagraoАктеры: разные исполнителиПродолжительность: 1:09:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DA292DEB42BC15FFEA15C25D82A1EB1CE346A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546445   (478379) от 13.09.2012
+
+Nikita - Avocado (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3891EBD25A857B1D40A0311D48E3853EC23D6AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545184   (478280) от 13.09.2012
+
+PEZET - Supergirl (Uncensored) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopstepПродолжительность: 00:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DDBBB5ADCBBB8CE6E975456A1A9F701C9A6CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939630   (473086) от 22.09.2015
+
+VA - Осенний марафон № 192 /  Видеоклипы (Сборник Зарубежной Хорошей Музыки) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (21.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. 9Muses - Hurt Locker (Official Video) (00:03:25)
+2. Ask Embla - Fathers Eyes (Official Video) (00:04:11)
+3. B-Brave ft. Cho, Frenna - Verleiden (Remix) (Official Video) (00:03:12)
+4. Big Data ft. White Sea - The Business of Emotion (Official Video) (00:04:17)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Trance, Drum&BassПродолжительность: 01:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC8D7C1FDEA01B9A9052BF73AE16250FD262EC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 702050   (472731) от 20.09.2013
+
+Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sabbath - Iron Man
+02. Black Sabbath - Paranoid
+03. Eric Burdon & War - Paint It Black-Medley
+04. Eric Burdon & War - Spill The Wine(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2700AED505F926128A1466972005A2A2A603CA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701921   (472726) от 20.09.2013
+
+Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sabbath - Black Sabbath
+02. Rare Bird - Sympathy
+03. Blodwyn Pig - See My Way
+02. Canned Heat - Future Blues(   Читать дальше...   )Жанр: Музыка,  RockПродолжительность: 01:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA0B189738625619CEA2B2BED8140927CB903B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547677   (471962) от 16.09.2012
 
 Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
@@ -509,194 +709,6 @@ Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D3C545DA3FD8DB2005585ECFF7D458E5B63ABE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549831   (460330) от 21.09.2012
-
-INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED29E6022452B5E9E2A709F02ECA6EBB069C43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404757   (460097) от 10.09.2020
-
-Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/2160p] <Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 CALLEJON - Gottficker
-02 CALLEJON - Metropolis
-
-Клипы к новому альбому Metropolis, выход которого намечен на 28.08.2020.Жанр: MetalcoreПродолжительность: 00:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4065A578C6BCB0AC61E7CD30E30FBB7650D06D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402874   (460086) от 10.09.2020
-
-Кис Кис - Мелочь (OST Водоворот) (2020) WEBRip [H.264/1080p] <Альтернативный Рок>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Кис Кис - Мелочь (OST Водоворот) Single (30-06-2020) LOSSLESSЖанр: Альтернативный РокАктеры: Кис Кис (Софья Сомусева)Продолжительность: 00:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439528D50AA930BA7B08CA6E6FD0610F56C085D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402584   (459951) от 10.09.2020
-
-Little Big - Tacos (2020) WEBRip [VP9/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Little Big - Tacos (Single)Производство: Warner Music RussiaЖанр: PopПродолжительность: 00:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC9977B6F3560BFE44B264205753F352A407AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550355   (459652) от 21.09.2012
-
-BIFFGUYZ feat Bovie & Rox - Я тебя Бум Бум Бум (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C941FE714E7AB83604473E5ED7132A5CCE0BD694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407441   (459477) от 10.09.2020
-
-Сборник клипов 01 (09.2020) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник зарубежных и отечественных видеоклипов за сентябрь 202001_Pickle - Like That
-02_Sak Noel x Salvi - SAXY
-03_Jackson Wang & Galantis - Pretty Please
-04_Ytram & Elderbrook - Fire(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7D8AE18D2D0471F2B14105B223D4B84D299959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550358   (458367) от 22.09.2012
-
-Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651FB76560F7F7C05CBE8083745DE6961708A1D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

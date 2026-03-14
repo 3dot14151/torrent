@@ -1,3 +1,482 @@
+###  Публикация: 516550   (652107) от 29.06.2012
+
+VA - Летний коктейль хитов (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652107.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dan Balan - Люби (3:50)
+2. Dj Nil, Miss N Vs. Steff Da Campo - Летом И Зимой (Radio Mix) (3:10)
+3. Dj Smash, Dj Рыжов, Chinlong - На Заре (3:39)
+4. Flo Rida - Hey Jasmin (3:32)
+5. Duck Sauce - Barbra Streisand (5:00)
+6. Лолита Gold Feat. Юля Grand - Этим Летом (3:06)
+7. Mc Zali & Don Omar - Девочки Мэйд Ин Раша (Dima Molotov Russian Bootleg) (4:03)
+8. Alex Gaudino Feat. Kelly Rowland - What A Feeling (2:59)
+9. Оксана Почепа - По Подоконнику Дождь (3:21)
+10. Георгий Колдун - Девочка Ангел (4:30)Жанр: PopПродолжительность: 06:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F02811E17422A102CC1DC69166E95D6ED706FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031507   (652011) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 52 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magazine 60 - Rendez-Vous Sur La Costa Del Sol ( Maxi Version 1985 )
+02. Linda Jo Rizzo - Heartflash ( Tonight ) ( 1986 )
+03. Max & Company - Passion Of Fire ( Radio Mix 1991 )
+04. Cruisin' Gang - China Town ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A329A1AE56CED85A890A62F7E5855F2A15F5B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031518   (652010) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 56 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teenrock - Make Up Your Mind ( 1997 )
+02. Italo Boot Mix Vol. 4 ( Part 2 ) ( 1985 )
+03. Neoton Familia - Maniac ( Flashdance 1984 )
+04. Bandolero - Cocoloco ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43A1C0EA9A838852B0455055F43051EB2060F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031539   (652008) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 59 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roxanne - Give A Little Love ( 1986 )
+02. Bad Boys Blue - Charlene ( Roxanne Cover 1986 )
+03. Airplay - For Your Love ( 1987 )
+04. Righeira - Arruinado ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CDCC4DE809D72345DF497C990780822A1AAB34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031530   (652007) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 57 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Computer People - Little Computer People ( 1998 )
+02. Queen - Radio Ga Ga ( 1984 )
+03. Blue System - Magic Symphony ( 1989 )
+04. E-Rotic - Willy Use A Billy... Boy ( 1995 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3C25C6377BB9DAD42E6BC7FA06CFBD9F3512A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031556   (652005) от 04.07.2016
+
+VA - Русская Дискотека ХХ Века - 24 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Линда - Ворона - 2 ( Remake & Remix 1997 )
+02. Месмер - Идеальная Любовь ( 1998 )
+03. Комин Сергей - Девочка, Здравствуй! ( 1994 )
+04. Ковалева Нина - Синие Цветы ( 1992)(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9FB7A1733AB92934076F728F537B9EED1EE8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031552   (652003) от 04.07.2016
+
+VA - Русская Дискотека ХХ Века - 22 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Комбинация - I Don't Belive In Love ( 1993 )
+02. Машина Времени ( Андрей Макаревич ) - Пока Горит Свеча ( 1980 )
+03. Каролина - Мой Маленький Принц ( 1990 )
+04. Насыров Мурат - Мальчик Хочет В Тамбов ( 1997 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62053363924157E615D01E68611610E73394471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031509   (652002) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 54 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bolero - Heartaches ( 1984 )
+02. Tolerance - Machinery ( 1985 )
+03. Christina - Gimme Love ( 1988 )
+04. Deborah Kinley - All For You ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90365BC780DC751B239A13D1973388E2226D90C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031554   (651999) от 04.07.2016
+
+VA - Русская Дискотека ХХ Века - 23 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Королева Наташа - Синие Лебеди ( 1990 )
+02. Нэнси - Милая ( 1991 переиз. Remix 1996 )
+03. Петлюра ( Юрий Орлов ) - Скорый Поезд ( 1992 переиз. 1996 )
+04. Несси - Влюбилась Я В Него ( 1991 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D17F3C2E41047123FF32DA877663F8F5EC6E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516507   (651950) от 29.06.2012
+
+VA - Дискотека в ритме Карибских островов (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 04:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA0E65F864ED06FED8F935C999C0C6097012C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516548   (651945) от 29.06.2012
+
+VA - Лето Хитами Пропето! Party Music Love Radio 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651945.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michel Telo – Ai Se Eu Te Pego (Nosa)
+002. Sara Oks & Иван Кит - Бой Без Правил
+003. Maroon 5 - One More Night
+004. Neoclubber - Ночь Жаркого Лета
+005. David Guetta Feat. Sia - Titanium
+006. MainstreaM One - Под Тёмными Очками
+007. Fly Project - Back In My Life (Radio Edit)
+008. Varda - Я Тебе Не Верю
+009. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
+010. Размер Project - My Moscow Love(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6333D5B855B7B001E9FC393A0ECAF0F4E871EA03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516384   (651935) от 29.06.2012
+
+VA - Танцевальный рай 29 (2012) [MP3|192 кб/с]<Pop-Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aura Dione - Friends
+ 02. Junior Caldera feat. Natalia Kills & Far East Movement - Lights Out (Radio edit)
+ 03. Bob Sinclar feat. Sophie Ellis Bextor & Gilbere Forte - Fuck With You
+ 04. Michael Mind Project Feat. Bobby Anthony & Rosette - Rio de Janeiro (Radio Edit)
+ 05. Avicii - Levels
+ 06. Global Deejays - Hardcore vibes (Radio Edit)
+ 07. DJ Fresh feat. Rita Ora - Hot Right Now (Radio Edit)
+ 08. Bel Suono & Dj Magic Finger - Te Quiero (Vocal Mix)
+ 09. Fonzerelli feat. Ellenyi - Moonlight Party (Radio Edit)
+ 10. Javi Reina & Alex Guerrero feat. Syntheticsax - Oig (Radio Edit)(   Читать дальше...   )Жанр: Pop-DanceПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F27C04FD6FF20F12F631C7B82FF5991135C311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031548   (651805) от 04.07.2016
+
+VA - Русская Дискотека ХХ Века - 21 (2010) [MP3|256-320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иванов Александр - Боже, Какой Пустяк ( 1994 )
+02. Дуэт - Домик У Моря ( 1989 )
+03. Земфира - Непошлое ( 1998 )
+04. Кузнецов Алексей - Обманщица ( 1996 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA66F76E8D25E3E757B8044335DCAD881F4A061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031559   (651798) от 04.07.2016
+
+VA - Русская Дискотека ХХ Века - 25 (Именной) (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сталкер ( Андрей Державин ) - Катя-Катерина ( 1993 )
+02. Волощук Александр - Кокетка-Светка ( 1992 )
+03. Твой День ( Виктор Попов ) - Ленка ( 1990 )
+04. Мальвина - Юлечка ( 1990 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3BFF36176C1DB7B337C2987D1DF8DCB5ED4171F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031573   (651796) от 04.07.2016
+
+VA - Русская Дискотека ХХ Века - 27 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жуков Рома - Мои Девчонки ( 1989 )
+02. Белоусов Женя - У Любви Глаза Разлуки ( 1993 )
+03. Яковлев Александр - Я Покину Суету Московских Улиц ( 1990 )
+04. Комбинация - Знаю, Что Не Любишь ( 1988 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936C2555A86F2F16A9198BE21D5DC23228773292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031542   (651793) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 60 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby Orlando - Whisper To A Scream ( 1985 )
+02. Oh Romeo - Once Is Not Enough ( 1984 )
+03. Knight Action - Single Girl ( Extended Version 1984 )
+04. Tc Mirage - Talking Eyes ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9BB0BE5BA71A7A250B72CEF365079C5605027F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031565   (651791) от 04.07.2016
 
 VA - Русская Дискотека ХХ Века - 26 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
@@ -302,494 +781,6 @@ VA - Русская Дискотека ХХ Века - 30 (Ласковый Ма
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:356A4D26E493150B0B567EC9CF709963A1237C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516581   (651164) от 29.06.2012
-
-VA - Europa Plus Включи Весь Мир! Лето (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651164.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Бурановские бабушки - Party For Everybody (Dj Slon remix)
-002. Loreen - Euphoria
-003. Потап и Настя - Прилелето
-004. Rihanna - Where Have You Been
-005. Слава - Sex Не Любовь
-006. Clark Owen feat. Lena Katina - Melody
-007. Макс Барских - Пылай
-008. Ledina Celo - Can You Touch Me Baby
-009. Dan Balan - Не Любя
-010. Dr. Alban & Gosia Andrzejewicz - Loverboy(   Читать дальше...   )Жанр: PopПродолжительность: 11:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35607C7D17A872FA3E9B82D09E54C51F59634601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515372   (650743) от 29.06.2012
-
-VA - Музыка для катания на велосипеде - iBike Real Ride Music (2010-2011) [MP3|320 кб/с]
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_650743.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. There for Tomorrow - Re:Burn
-2. Benga feat. Youngman - Ho
-3. Magnetic Man - I Need Air (Album Version)
-4. Kelly Dean & Steady - Teflon ft Kemst (Datsik & Excision remix)
-5. Skism - Back Off (SubFlex Remix)
-6. Freestylers B-Boy Stance (feat Tenor Fly)
-7. Hyper Set Fire To Me
-8. Das Pop - Fool For Love (SebastiAn Remix)
-9. Toxic Avenger - Angst one
-10. Datsik - overdose(   Читать дальше...   )Жанр: dubstepПродолжительность: 01:43:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291856   (650614) от 27.03.2019
-
-VA - German Top 100 Single Charts 01.04.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650614.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Capital Bra x Samra - Wir ticken
-002. MERO - Wolke 10
-003. UFO361 - Pass auf wen du liebst
-004. KC Rebell - Alleen(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E57F4E2946C46C7FC526BCD1716FE59465DB65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141585   (650096) от 10.06.2017
-
-VA - German Top 100 Single Charts 09.06.2017 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650096.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi - Despacito (feat. Daddy Yankee)
-002. Robin Schulz - OK (feat. James Blunt)
-003. Ed Sheeran - Shape of You
-004. Alice Merton - No Roots(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616F36A85A57094247BDF5EF17047BDC86D35750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031788   (649688) от 05.07.2016
-
-VA - Keep Calm & Be Happy [2CD] (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649688.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Пpодолжительность: 01:11:57
-
-01. Pharrell Williams - Happy (From "Despicable Me 2") (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0052EDF53109DFFCDCE165E276DDCAE3904C5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031797   (649672) от 05.07.2016
-
-VA - I Love Summer - Ministry of Sound (2016)(3CD)[MP3|256 Kbps] <Pop, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649672.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Пpодолжительность: 01:11:56
-
- 1. Sigala Feat. John Newman & Nile Rodgers – Give Me Your Love(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 03:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80316CF43FDE8681CB79008562A3FCB94BB950AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031827   (649111) от 05.07.2016
-
-VA - Детский шансон (Сборник) (2016) [MP3|128-320 Kbps] <Pop, Shanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Раиса Саед-Шах с сыном - Девушка с острова Пасхи
-02. Саша Сирень - Девочка в стиле шансон
-03. Ляля Свешникова - В доме 8 на Тверском бульваре
-04. Владимир Маркин - Плакала девчонка(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519BE26F29D3F28D873C9B03C6AF1A2295C71F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032173   (648015) от 06.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 64 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Torrevado - Living In The Shuttle ( 1985 )
-02. David Lyme - Bambina ( Original Version 1986 )
-03. C. C. Catch - Stay ( 1986 )
-04. Laban - Jeg Ka' Li' Dig Alligevel ( 1982 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B6AAA733C47552D4907920BD12B30B103F0BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517366   (647916) от 01.07.2012
-
-VA - Включи Погромче 50/50 Vol. 3 (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Lopez feat. Flo Rida - Goin' In
-02. Потап и Настя - Прилелето
-03. Gabry Ponte feat. Pitbull & Sophia Del Carmen - Beat On My Drum (Eu Radio Edit)
-04. Слава - Sex Не Любовь
-05. Dee-Dee ft. Ray Horton & Radu Sirbu - Gimme Your Love (Radio Edit)
-06. Пропаганда & MC Джимми - Хабиби
-07. Dave Aude feat. Lena Katina - Never Forget
-08. Денис Майданов и Филипп Киркоров - Стеклянная любовь
-09. Randi - It Takes Two
-10. Стас Пьеха - Старая История(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E9E5960AA79D2373D51FA3BD3BE1A588BEC9B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517354   (647913) от 01.07.2012
-
-VA - Самые сливки: Летний спецвыпуск (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ани Лорак - Обними Меня
-02 Маша Вебер - Всё Для Тебя
-03 Dj Riga & Mc Zali - Дяди И Тети
-04 Афродита - Освободи Свой Телефон
-05 Зэбосы - Загорелая Попка
-06 Наташа Королева - Голая
-07 Лана Ярич - А Ты Потанцуй
-08 Стая - Сердце (Cj Alexey Lavrentev Remix)
-09 Глюкоза - Выстрел В Спину
-10 Елена Терлеева - Боль(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C226B342664260A0FB83CC27989A28B0494CD34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032180   (647909) от 06.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 66 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Mind - Count Down ( 1985 )
-02. Charly Danone - Take Me To Bed ( 1988 )
-03. Martinelli - Voice ( In The Night ) ( 1983 )
-04. Noe Willer - Toi Femme Publique ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C929E1DE7CD09A6D9CDB2BC2D9C02332EEEAE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032176   (647907) от 06.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 65 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divine - I'm So Beautiful ( Original 12'' Mix 1984 )
-02. Limbo Koblaz - Doctor Edison ( 1984 )
-03. Wow - The ABC's Of Love ( 1996 )
-04. Fancy - Save The Moment ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECB0B87A909F7320AE29307604DA31F3BFEC7ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032170   (647906) от 06.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 62 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riccardo Fogli - Le Donne Degli Amici ( 1985 )
-02. Max Mix - Version Megamix ( Vol. 1 ) ( 1984 )
-03. Sandra - Change Your Mind ( 1985 )
-04. Radar - China Darling ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32800E9246D74225B8B01FFC51F1546111BA6A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032172   (647905) от 06.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 63 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddy Huntington - May Day ( 1989 )
-02. LLL - Republika ( 1990 )
-03. Joy Peters - You`re So Vain ( 1986 )
-04. Beatles - Something ( 1969 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80884B0885042FD44F31B9A6DF58930925887719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032181   (647899) от 06.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 67 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fake - Frogs In Spain ( 1984 )
-02. Scala - Macchina Nera ( 12'' Version 1989 )
-03. Cherry ( Lian Ross ) - If You Believe ( Cherry Mix 1999 )
-18. Dr. Alban - It's My Life ( 1992 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34B06630E52BEA727121214001067DDE09B4D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032187   (647895) от 06.07.2016
-
-VA - Electrodance Latino (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kike Puentes - Shake That (Original Mix)
-02. Clase-A - Pa Que Bailes (Original Mix)
-03. Fran Garzziak - El Que Te Daba Era Yo (feat Sergio Requena - Radio Edit)
-04. Charly Rodriguez & Tarek Dollar-T - Ella Es (Original Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 02:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F480981038710B6C8290E6040A1773FE5F21E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

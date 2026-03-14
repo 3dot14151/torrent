@@ -1,3 +1,177 @@
+###  Публикация: 1068704   (378525) от 02.11.2016
+
+Ernestine Anderson - Nightlife: Live at Dizzy's Club Coca-Cola (2011) HighNote Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Love Being Here with You [05:59]
+ 02.Since I Fell for You [05:23]
+ 03.All Blues [07:28]
+ 04.Goin' to Chicago Blues [05:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067204E6685BEBF43754F7DA0853C5914589930F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327041   (378495) от 23.09.2019
+
+Ina Forsman, Ally Venable & Katarina Pejak - Blues Caravan 2019 (2019) Live [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. They Say I'm Different (7:25)
+02. She's Coming After You (4:41)
+03. Roads That Cross (4:18)
+04. Turtle Blues (4:56)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5AF149B77C04E93FA393284236EE82675C5377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068692   (378457) от 02.11.2016
+
+Andre Previn - Alone: Ballads For Solo Piano (2007) Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Angel Eyes [03:43]
+ 02.Second Time Around [03:20]
+ 03.André's Blues [02:22]
+ 04.Darkest Before The Dawn [02:07](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6775F1FA86B1CDFEA5752C7BC80D5BF92B63B7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068838   (378456) от 02.11.2016
+
+Art Pepper & Conte Candoli - Mucho Calor (1957) 1987, V.S.O.P. Records[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mucho Calor [06:56]
+ 02.Autumn Leaves [03:08]
+ 03.Mambo de la Pinta [05:31]
+ 04.I'll Remember April [02:23](   Читать дальше...   )Жанр: West Coast Jazz, Latin JazzПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08563470E7062DB50304A1FC01B1CA6F3BC62A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068693   (378453) от 02.11.2016
+
+Wild Carrot with Hank Ross - I've Heard That Song Before (2008) Falling Mountain Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I've Heard That Song Before [03:54]
+ 02.Five Foot Two Eyes of Blue [03:19]
+ 03.The Very Thought of You [03:46]
+ 04.Till There Was You [03:50](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A3C45CAB3877EB81DE59E406B40548E2CCE7040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068839   (378449) от 02.11.2016
+
+Paolo Fresu & Omar Sosa - Eros (2016) Tuk Music[FLAC|Lossless|tracks + .cue] <Post-Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Teardrop/Ya Habibi [07:28]
+ 02.Sensuousness [04:03]
+ 03.Zeus' Desires [03:46]
+ 04.Brezza del Verano [05:32](   Читать дальше...   )Жанр: Post-Bop, World FusionПродолжительность: 01:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AB917E86EB80B17731D8716E2690FE76FCAFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068891   (378448) от 02.11.2016
 
 Jeanne Lee & Ran Blake - The Legendary Duets (1961) 1987, Bluebird[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Avant-Garde Jazz>
@@ -571,180 +745,6 @@ Kei Kobayashi - Softly (2002) Somethin' Else [FLAC|Lossless|tracks + .cue] <Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3C9430288DDCF035ADB290240434F96C3BBC4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175848   (376781) от 19.10.2017
-
-Sammy Davis, Jr. - The Definitive Collection (1950-e - 1970-e) 2006, Hip‐O Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey There [02:49]
-02. The Birth of the Blues [03:18]
-03. Something's Gotta Give [02:06]
-04. Love Me or Leave Me [02:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819F0E0A8FD617D3221EF70CB65A9C74F4187D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175840   (376780) от 19.10.2017
-
-Jimmy Smith - The Fantastic Jimmy Smith (1953, 1954) 2002, Empire Music Group [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger in Paradise [03:03]
-02. Jimmy's Jam [02:56]
-03. It's a Sin to Tell a Lie [03:13]
-04. I Can't Give You Anything But Love [02:31](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDDEFEF87EFF3E4720229402D6B09464216BB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175705   (376779) от 19.10.2017
-
-VA - Jazz Grooves: Best of MapleShade, vol.3 (2010) MapleShade Records [FLAC|Lossless|image + .cue] <Post-Bop, Big Band, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sidewinder - A la Carte Brass & Percussion [03:22]
-02.Vodka On The Rocks - Big Joe Maher [05:21]
-03.Sweet Emma - NY Classics Big Band [03:52]
-04.Catfish Sammich - C.I. Williams Quintet [04:58](   Читать дальше...   )Жанр: Post-Bop, Big Band, Latin JazzПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EBD0712748AD28A57FDB88720D1400C33F17F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175510   (376774) от 19.10.2017
-
-Buddy DeFranco (De Franco) & Martin Taylor - Garden of Dreams (1988) ProJazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 73 Berkley Street [06:35]
-02. Sunshine State [05:20]
-03. I Remember Clifford [05:24]
-04. Mysteria [04:43](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67782E79486804182DCF9A5DC66537B49EAC92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175714   (376635) от 19.10.2017
-
-VA - Jazz Ladies (2006) 3CD, Weton-Wesgram [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376635.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Dinah Washington - Mad About the Boy [02:49]
-02.Nina Simone - Ain't Got No,I Got Life [04:38]
-03.Billie Holiday - Carelessly [03:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DBAC9566B5408E25726765C1BE8C85BF1B782A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175518   (376628) от 19.10.2017
-
-Hot Monkey Love - Speakin' Evil (2007) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Palace Of The King   (02:47) 
-02.  Angel   (04:15) 
-03.  Fallin'   (03:36) 
-04.  My Confession   (02:55) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357CB343D589B05D7421905D05544A6C7E9B67FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

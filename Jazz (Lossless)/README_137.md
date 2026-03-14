@@ -1,3 +1,90 @@
+###  Публикация: 1548985   (595105) от 05.05.2022
+
+Duke Ellington - Mood Indigo (1942 - 1945) 2000, Past Perfect [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Stem [2:52]
+02. Chelsea Bridge [2:56]
+03. Jump for Joy [2:56]
+04. What Am I Here For? [3:26](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34C43D65200003FC5C543C15E398E496C043BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548799   (595098) от 05.05.2022
+
+Rufus Reid Quintet - Live At The Kennedy Center (2007) Motema Music [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [0:22]
+02. Come Out and Play [4:31]
+03. Ode to Angela [8:02]
+04. Celebration [7:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8C1B5A945068F7724605B75F274CDED97341F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232965   (595096) от 27.06.2018
+
+Harold Land - Choma (Burn) (1971) 2014, Boplicity [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Choma (Burn) [9:57]
+02. Our Home [5:52]
+03. Black Caucus [10:04]
+04. Up and Down [10:47]Жанр: Post-BopПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A3F91EB76E3678481CA8A71F81AE0661867FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548318   (595095) от 05.05.2022
 
 Erroll Garner - Portrait (1944 - 1954) 10CD, 2003, Documents [FLAC|Lossless|image + .cue] <Swing, Bop, Piano Jazz>
@@ -658,93 +745,6 @@ Bill Potts - Porgy & Bess + Bye Bye Birdie (1963) 2006, Lone Hill Jazz [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0582B7DABE4C3CFC0F6B8C4EC0A471FD361CF56A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233505   (593026) от 30.06.2018
-
-Mose Allison - Greatest Hits (1957 - 1959) 1988, Original Jazz Classics [APE|Lossless|image + .cue] <Hard Bop, Vocal, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Seventh Son [2:41]
-02. Eyesight to the Blind [1:44]
-03. Do Nothin' Till You Hear from Me [3:14]
-04. Lost Mind [3:34](   Читать дальше...   )Жанр: Hard Bop, Vocal, Piano JazzПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D45A8AB3BC7AEB8229FCEB1E916171701F99FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300713   (592812) от 07.05.2019
-
-Billy Strayhorn - Piano Passion (1945 - 1961) 2005, Storyville [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lush Life [3:29]
-02. Just A Sttin' and A Rockin' [2:53]
-03. Passion Flower [3:43]
-04. Take the A Train [3:17](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543B6109AF0A59E7B3679FDAA19EC9A525467A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300683   (592810) от 07.05.2019
-
-Adrien Varachaud Unity 5tet - Strange Horns (2010) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Horns [14:40]
-02. Impulse [10:37]
-03. Soul Eyes [13:32]
-04. 4 AM [12:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2A88C345813A0EA5A78D5DAFA0D84DBDF10A07
 ```
 
 https://mybot314.ru/tekegram_catalog/

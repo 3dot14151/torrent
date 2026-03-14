@@ -1,3 +1,232 @@
+###  Публикация: 1363247   (943812) от 27.02.2020
+
+Света - Другой аLьбом (2000) [MP3|320 Kbps] <Pop, Dance, House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Светит луна (03:59)
+02. Моё солнце (04:15)
+03. Оригинал Увидимся /другой (04:04)
+04. Другой оригинал /Уходи (04:13)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D73FB6FFB703CE85F2C4C6E32CECA72FDBC3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983090   (943784) от 06.02.2016
+
+Zayn - Pillowtalk (2016) Single [MP3|320 кб/с] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PILLOWTALK (03:24)Жанр: Pop, R&BПродолжительность: 00:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956B4F88460E237F62AB33D53D9D4CBC30BD8E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363294   (943761) от 27.02.2020
+
+Do Piano - Again & Forever (2009) [FLAC|Lossless|image + .cue] <Italo-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Again (Single Version) (4:43)
+02. All The Time (Single Version) (4:34)
+03. This Angel (Single Version) (4:15)
+04. Encore (Single Version) (4:44)(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E577D7ECBE8FC28584ED82A8D657609B90C080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363263   (943755) от 27.02.2020
+
+Света - Сердце моё (2009) [MP3|320 Kbps] <Pop, Downtempo, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не говори (03:10)
+02. Сердце моё (04:12)
+03. Рига (03:08)
+04. Тайна (03:47)(   Читать дальше...   )Жанр: Pop, Downtempo, EuropopПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEA2342BC7EFB921E8C62BE5D09E9F4EEBD26A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363288   (943752) от 27.02.2020
+
+Екатерина Разумовская - Остановка сердца (2005) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Остановка сердца
+02. О тебе, для тебя
+03. Наша история
+04. Кричи шёпотом(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F245DDEB55A5C84936D7B9F9EE8FEABBA05578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983283   (943729) от 06.02.2016
+
+Monica Naranjo - Lubna (2016) [FLAC|Lossless|tracks + .cue] <Latin,  Rock, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943729.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Lasciatemi Qui 3:38
+2	Apocalitica 2:55
+3	Ya Esta Bien 6:52
+4	Perdida 4:58(   Читать дальше...   )Жанр: Latin,  Rock, ClassicalПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA385A7EAD105C25164A31FFC6A4046ABE5D141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363284   (943711) от 27.02.2020
+
+VA - Георгий Мовсесян • Мои друзья-мое богатство! (2004) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Советская эстрада, РетроПродолжительность: 00:43:21Трэклист: 01. Вахтанг Кикабидзе - Мои года
+02. Иосиф Кобзон - Моим друзьям
+03. Анне Вески - Две печали
+04. Юрий Никулин - Товарищ инспектор, простите!(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8232ABF9E41CF509ABA2DBEEDCD9721C0A73D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363295   (943706) от 27.02.2020
+
+VA - Самый русский хит 2: Пляски до упаду! (1998) [FLAC|Lossless|image + .cue] <Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Надежда Кадышева и Золотое Кольцо - Я сама любовь (2:21)
+02. Дмитрий Донской - Моё солнышко (3:05)
+03. Балаган Limited - Соловьи поют, заливаются (3:27)
+04. Белый День - Уху я варила (2:57)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7568F3130FD12D4F60BA2187B1275CDE5B5A5E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983382   (943675) от 06.02.2016
 
 Nina Nesbitt - Modern Love (2016) EP [FLAC|Lossless|tracks] <Pop, Indie Pop, Female Vocal>
@@ -512,238 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35BCFA3867A995210FC9767EF590B6F3627BDFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363625   (940933) от 29.02.2020
-
-Лика - Больше, чем любовь (1996) [MP3|320 Kbps] <Pop, Progressive House, Happy Hardcore>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одинокая луна (Молитва) (Original Version) (4:17)
-02. Вспоминай (Original Version) (4:58)
-03. Танцуй со мной, мой мальчик (4:59)
-04. Би-би такси (Remix) (4:34)(   Читать дальше...   )Жанр: Pop, Progressive House, Happy HardcoreПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC31A4BE5CC053E1BC2F85BA9E750AD667610E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363677   (940931) от 29.02.2020
-
-СтеклоVата - Острожно - хрупкое (2003) [MP3|320 Kbps] <Europop, Novelty, Chanson>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Февральский снег [03:34]
-02. 31 и 13 [03:59]
-03. Дневник [04:50]
-04. Кошка-луна [05:19](   Читать дальше...   )Жанр: Europop, Novelty, ChansonПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D940EC898A5DA425A1BA350168B8595D3CF250AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363610   (940930) от 29.02.2020
-
-Лариса Черникова - Солнечный город (1999) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:42)
-02. Я Шура, ребёнок нежный (Original version) (3:07)
-03. Посмотри в мои глаза (4:30)
-04. Вспоминать и не надо (3:53)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A441985EB73066D86EFFC67A596BE3EEF91E1AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363678   (940929) от 29.02.2020
-
-СтеклоVата - Спецшкола (2006) [MP3|320 Kbps] <Europop, Novelty, Chanson>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. И всё-таки он ждёт [4:10]
-02. Спецшкола [4:04]
-03. Красные птицы [4:52]
-04. Школа жизни [5:13](   Читать дальше...   )Жанр: Europop, Novelty, ChansonПродолжительность: 01:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3355F91AEE4A2450AFCA8076DB860B239DD11ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363649   (940853) от 29.02.2020
-
-Каролина - Русские звезды (2004) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Летний дискобар 2003 (3:11)
-02. Не надо слез (3:56)
-03. Звездный вечер (4:05)
-04. Феличита (3:04)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83EFC5DD6728884599BC206E9F52793709FBCE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363779   (940750) от 29.02.2020
-
-Балаган Лимитед - Песни о любви (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940750.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не губи любовь
-2. Мальчик из Нальчика
-3. Кто бы мог подумать
-4. Молодая, глупая(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B628211EDE778510A0FAA1502452767FF3BFD42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363669   (940747) от 29.02.2020
-
-Paradisio - The Hottest Summer Tracks (20TH Anniversary Deejays Full Length Versions) (2017) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1-01. Bailando (Discoteca Drums Mix) (6:51)
-1-02. Un Clima Ideal (Eurodance Discoteca Mix) (6:25)
-1-03. Samba del Diablo (Extended Fiesta Club Mix) (5:10)
-1-04. El Ritmo Caliente (DJ Extended Club Mix) (6:07)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FF24CC98B3AE1D185627A3FA0A0F2B6530206F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363774   (940730) от 29.02.2020
-
-Настя Макаревич & Лицей - Лучшее (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940730.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Осень
-2. Ты станешь взрослой
-3. Падаю вверх
-4. Как ты о нём мечтала(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC57AAB074D0BB4E0F853E1CB28C2BEEB159C9C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

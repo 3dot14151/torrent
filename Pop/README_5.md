@@ -1,3 +1,235 @@
+###  Публикация: 1603507   (1045716) от 09.01.2023
+
+Shania Twain - Not Just A Girl (The Highlights) (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Just A Girl
+02. You're Still The One
+03. Man! I Feel Like A Woman!
+04. What Made You Say That (Single Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83AB2737A4EDDC9B79E81A08FB8BDDFD669FDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603295   (1045682) от 10.01.2023
+
+Billy Joel - Streetlife Serenade (1974) Reissue, Remastered, 2015, Audio Fidelity [OGG Vorbis|500 Kbps] <Rock, Folk Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streetlife Serenader
+02. Los Angelenos
+03. The Great Suburban Showdown
+04. Root Beer Rag(   Читать дальше...   )Жанр: Rock, Folk Rock, Pop RockПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EE7278BF9E753F9DD32E57547FDA90098C73E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603346   (1045635) от 10.01.2023
+
+DJ Bobo - Instrumentals (2020) [MP3|320 Kbps] <Eurodance, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1000 Dreams (Instrumental) (03:29)
+02. 1000 Miles (Instrumental) (03:46)
+03. A Good Heart (Instrumental) (04:44)
+04. A Moment to Remember (Instrumental) (03:23)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 17:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85047F74ACF0C710E13A09E67971314D98D3A6C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603822   (1045552) от 11.01.2023
+
+VA - Winter Club Hits 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geo Da Silva feat. DJ Combo - Gimme Sunshine (Extended Mix) (4:55)
+02. Danilo Orsini & Ariel El Leon - Vive Tu Vida (Original Mix) (3:04)
+03. DJ Pasi - Verano Forever (Extended Mix) (3:43)
+04. Bbx feat. Kari B - Self Control (Bakun Remix) (3:17)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 03:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02C407763891EFF4385C0909D1515350638019EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604154   (1045485) от 12.01.2023
+
+Альберт Сигалов - Красавчик Беня (1995) [MP3|320 Kbps] <Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хава Нагила
+02. Семь сорок
+03. Бабушка здорова
+04. Бублички(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E97A34DA8185160FD322C62C184B2EBD980B0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604247   (1045417) от 13.01.2023
+
+Peter Gabriel - Up (2002) [OGG Vorbis|430 Kbps] <Electronic, Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045417.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Darkness
+2. Growing Up
+3. Sky Blue
+4. No Way Out(   Читать дальше...   )Жанр: Electronic, Rock, Pop RockПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12075B34EF536FD4869E514CB71B8112035BFAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604635   (1045325) от 14.01.2023
+
+VA - Discofox Vol. 4 - Die ultimative Schlagernacht (2023) [MP3|320 Kbps] <German Pop, Dance, Schlager, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silvia Confido - Da ist mehr als du denkst
+02. Maria Levin - Endlich richtig sein (DJ Mix)
+03. Celina Mars - Jetzt und hier
+04. Natalie Lament - Komm mit mir an die Cote d'Azur (Radio Version)(   Читать дальше...   )Жанр: German Pop, Dance, Schlager, DiscoПродолжительность: 02:02:44 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6385880915703669FCCB35FFB38F0697ADA02AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604595   (1045314) от 14.01.2023
+
+The Magic Disco Machine - 2 Albums (1975, 1976) LP [MP3|320 Kbps] <Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студийный симфонический диско-фанк проект. Свободный коллектив продюсеров и артистов из собственного списка Motown, таких как Фрэнк Уилсон, Мел Ларсон, Джерри Марчеллино, Хэл Дэвис, Глория Джонс, Bottom & Co., Sisters Love, Клейтон Айви и др.01. Control Tower (4:14)
+02. Window Shopping (2:50)
+03. Jumbo Sam (2:25)
+04. Let's Go Back To Day One (2:49)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A8E1143F71A53724607CFE8542AAA6545284D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604592   (1045313) от 14.01.2023
 
 VA - Best Of Nu Monkey Records 2022 Part 2 (2023) CD, Compilation [MP3|320 Kbps] < Nu-Disco & Jackin, Soulful, Funky, Indie Dance>
@@ -510,238 +742,6 @@ RSF - Metropol Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italoda
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E7DB99D6F6BC5339C05C32FC0BDE61A30B5539C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606297   (1044461) от 21.01.2023
-
-VA — Танцуют все! / Оригинальные записи 1962-1988 / (2005) [MP3|320 Kbps] <Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ай-лю-ли - Людмила Лядова
-02. Я люблю танцевать - Анна Герман
-03. Шутка - Эдуард Хиль, Людмила Сенчина
-04. Веселая кадриль - Лев Барашков(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1734272C6D9464397D1B007F476C60C3F65222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606400   (1044389) от 22.01.2023
-
-VA - Disco Nights (The Collection) (2009) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musique - In the Bush (3:32)
-02. Shalamar - The Second Time Around (3:41)
-03. Sharon Redd - In the Name of Love (4:10)
-04. Bumblebee Unlimited - Love Bug (3:36)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 07:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36F570793C961B4A363FEB08A8D85DE31CB0159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606774   (1044316) от 23.01.2023
-
-Shania Twain - Up! (2002) [OGG Vorbis|480 Kbps] <Rock, Country Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up!
-02. I'm Gonna Getcha Good!
-03. She's Not Just A Pretty Face
-04. Juanita(   Читать дальше...   )Жанр: Rock, Country Rock, Pop RockПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:157D5B4056AEA9653F64E086865F7F510107F5D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606340   (1044238) от 24.01.2023
-
-Seal - Seal (1991) 4CD, Deluxe Edition, Remastered, 2022, Rhino - Warner Records [MP3|320 Kbps] <RnB, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Water (7:56)
-02. The Beginning (5:38)
-03. Future Love Paradise (5:08)
-04. Violet (4:56)(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 04:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB0BA4FC5F9A68490C7A0F53FA3162A2CB87374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607205   (1044062) от 26.01.2023
-
-Sting - Brand New Day (1999) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Thousand Years
-02. Desert Rose
-03. Big Lie Small World
-04. After the Rain has Fallen(   Читать дальше...   )Жанр: Rock, Pop, Pop RockПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3082EB96DAF6C863FC9F84CD55567D459C645DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607029   (1044056) от 26.01.2023
-
-Adriano Celentano - Le Volte Che Celentano E'Stato 1 (2003) [OGG Vorbis|450 Kbps] <Rock, Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24.000 baci
-02. Nata per me
-03. Si e'spento il sole
-04. Ciao ragazzi(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24FC88EEE19A8DFC1A3C3F9B9E93032C34F1BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607274   (1044055) от 26.01.2023
-
-Sting - Sacred Love (2003) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside
-02. Send Your Love
-03. Whenever I Say Your Name
-04. Dead Man's Rope(   Читать дальше...   )Жанр: Rock, Pop, Pop RockПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B421B8124FF44FB62218E93C1A966E82C21354F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607058   (1044051) от 26.01.2023
-
-VA - Megahits 2023-die Erste [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044051.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ed Sheeran - Celestial (3:29)
-02. Sam Smith - Unholy (2:36)
-03. Tiesto - 10 35 (2:52)(   Читать дальше...   )Жанр: PopПродолжительность: 02:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B67326D2044DE0C5E079DEB54759BD4E6D5FC16
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 994271   (891649) от 07.03.2016
+
+VA - Милым дамам к празднику весны (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Светлана Тарабарова - Главный Герой.mp3
+002.  Авиатор - В Твоих Глазах.mp3
+003.  SAHA - Всего Лишь Три Слова.mp3
+004.  Алекс Юлдашев - Сердцебиение.mp3(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856898FAFD325C7494054520C1A3A12714BC781E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994199   (891644) от 07.03.2016
 
 VA - Ibiza Dance Sensation (2016) [MP3|320 кб/с] <Soulful, House, Funky, Nu Disco>
@@ -716,35 +745,6 @@ VA - Вспоминая СССР. По-новому о главном [6CD] от
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C1F1AE2368894674141863579390A345CBF9BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103841   (883457) от 13.02.2017
-
-VA - Big Workout Hits 2017  [MP3|320 Kbps] <Dance, Club, Electro, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superfunk & The Dancing Machine - In the Jungle (Extended Mix) 06:18
-02. Alan Walker - Alone (Highdom Club Mix) 03:51
-03. Pryda - Lillo (Original Club Mix) 08:38
-04. Dante Klein F. Hailz - Harder (Kay Stafford Club Mix) 03:49(   Читать дальше...   )Жанр: Dance, Club, Electro, FunkyПродолжительность: 08:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2A1FB7C7101517494C800DFC8FF8FA67C2C544
 ```
 
 https://mybot314.ru/tekegram_catalog/

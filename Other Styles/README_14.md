@@ -1,3 +1,119 @@
+###  Публикация: 978531   (963578) от 23.01.2016
+
+Gary Girouard - The Naked Piano: Transitions (2016) [MP3|320 кб/с] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solitude
+02. Redemption
+03. Invictus
+04. Cross the Chasm(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23270490FB963037BF46B430AA99AE411E953354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978526   (963577) от 23.01.2016
+
+Stephen Rhodes - New Images (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skybird
+02. String Deep
+03. Still Waters
+04. Flute Romance(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877EC0D6604DD1F1C68B556C64F718CC5A9B84C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977881   (963423) от 23.01.2016
+
+Of Monsters And Men - Beneath The Skin (2015) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Indie, Indie Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystals (4:04)
+02. Human (3:58)
+03. Hunger (4:49)
+04. Wolves Without Teeth (3:53)(   Читать дальше...   )Жанр: Indie, Indie FolkПродолжительность: 01:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EE324FCBC5B26F5B8E1A616ACDB63C3B466C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359772   (963273) от 13.02.2020
+
+Crispin Merrell - Машина смерти / Death Machine (1994) 2015 [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardman Diner
+02. Death Machine Title Sequence
+03. Dante's Lair
+04. Shark Attack?(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8071A60B30F11B6E29AE8E977117DF159C51CF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359485   (963212) от 13.02.2020
 
 VA - Raise the Roof: Country Bands (2020) [MP3|320 Kbps] <Country>
@@ -626,122 +742,6 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81EAB3CEFF9D4A7D6553295F154AA6AFA8263C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360243   (961792) от 14.02.2020
-
-Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Motion Picture) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961792.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:32| 01. Meet Sonic (Before We Start I Gotta Tell You This)
-|02:02| 02. Welcome to Green Hills
-|02:51| 03. A Very Lonely Life
-|02:56| 04. Dr. Robotnik(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF43BEB85A731389019CAFA4C80888125CBE0A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360245   (961788) от 14.02.2020
-
-Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Motion Picture) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961788.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:32| 01. Meet Sonic (Before We Start I Gotta Tell You This)
-|02:02| 02. Welcome to Green Hills
-|02:51| 03. A Very Lonely Life
-|02:56| 04. Dr. Robotnik(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228E5A27791C5E8BB870A917C1DBCD25C45211CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255570   (960908) от 20.01.2014
-
-Волшебная свирель 3 CD - Мелодии в тишине, Мечты, мечты..., Звуки небес. (2006) [MP3|320 kbps]<Classical, relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born free
-02. Early Morning Rain
-03. The French Waltz
-04. Don't fall in love with a dreamer(   Читать дальше...   )Жанр: Classical, relaxПродолжительность: 03:18:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747583   (960766) от 20.01.2014
-
-Ultrasone - S-Logic Demo-CD (2008) [FLAC|Lossless|tracks + .cue] <Audiofile, Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sileypud (excerpt) 2:14
-02. Auf geht's - ab geht's (Tripercussion Nr. 6, excerpt) 1:24
-03. Applaus (soundclip, Ultrasone production) 0:23
-04. Ave verum Corpus (KV 618) 2:34(   Читать дальше...   )Жанр: Audiofile, TestПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518AE897DF912A3ED244777BD2368198ADAA48A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

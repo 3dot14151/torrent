@@ -1,3 +1,90 @@
+###  Публикация: 936682   (494457) от 12.09.2015
+
+Art Blakey And The Jazz Messengers Big Band - Live At Montreux And Northsea (1980) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minor Thesis [13:19]
+02. A Wheel Within A Wheel [07:03]
+03. Bit A Bittadose [06:42]
+04. Stairway To The Stars [08:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D618525871567EBA9EE86BBC2BACE74444269650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936692   (494455) от 12.09.2015
+
+Big John Patton - Oh Baby! (1965) /2015, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fat Judy [07:44]
+02. Oh Baby [06:20]
+03. Each Time [05:42]
+04. One To Twelve [07:55](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0502F8B3169CCD593CB17A060145E5E1AF99A324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054168   (494417) от 19.09.2016
+
+Masayoshi Takanaka - The White Goblin (1997) [FLAC|Lossless|tracks + .cue] <Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven and Earth (5:36)
+02. Who? (4:30)
+03. Away (5:32)
+04. Goblin's Theme (5:27)(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B337D4D53D520363B27CCAF16546625F11504B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243233   (494231) от 26.08.2018
 
 Warne Marsh & Kenny Drew Trio - I Got A Good One For You (1980) 1999, Storyville [FLAC|Lossless|image + .cue] <Post-Bop>
@@ -672,93 +759,6 @@ McCoy Tyner - Fly With The Wind (1976) /2008, Concord/[FLAC|tracks+.cue]<Post-Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AFE82F4247321F85841F38BE122B3B8DA47FCB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158761   (490256) от 17.08.2017
-
-Roger Manins - Trio (2010) Rattle Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marty White [19:08]
-02. Hip Flask [07:10]
-03. Missing Wes [04:25]
-04. Silo [07:00](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950DDBBDB48AD1F52D584A94BB7D6B2E9E32C879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158758   (490184) от 17.08.2017
-
-Chet Baker - The Last Great Concert: My Favourite Songs (1988) 2CD, 2006, Enja Records [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490184.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. All Blues [05:54]
-02. My Funny Valentine [09:35]
-03. Well You Needn't [06:21](   Читать дальше...   )Жанр: CoolПродолжительность: 01:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0946EB12C7D015947A9F148F3516AE7035204884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404784   (489891) от 27.08.2020
-
-Benny Carter - Sax Ala Carter! (1960) 2004, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And the Angels Sing [2:59]
-02. Everything I Have Is Yours [3:36]
-03. Understand [3:07]
-04. All or Nothing at All [3:18](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8582530416F54FBB9EEB93B1B791639008E537B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

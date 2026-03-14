@@ -1,3 +1,177 @@
+###  Публикация: 1125358   (772104) от 14.04.2017
+
+"Sir" Oliver Mally's Blues Distillery - Fleeting Moments (2011) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I am  (04:19) 
+02. Fleeting Moments  (06:45) 
+03. Heading for a Fall  (05:34) 
+04. Sleepwalking  (05:20) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DED6F774AC25DEC07D25538438D6A2A46ACAE70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125398   (772100) от 14.04.2017
+
+Dave Brubeck - One Alone: Solo Piano (1998) 2000, Telarc [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.That Old Feeling [06:52]
+ 02.I'll Never Smile Again [04:24]
+ 03.One Alone [06:40]
+ 04.You've Got Me Crying Again [04:00](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F69ACFA2817FDCBE839C459ABAFFE6E12795C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125131   (772097) от 14.04.2017
+
+Nguyen Le & Ngo Hong Quang - Ha Noi Duo (2017) [FLAC|Lossless|tracks + .cue] <World Jazz, Guitar Jazz, World Music>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cloud Chamber  (05:40) 
+02. Five Senses  (04:55) 
+03. Like Mountain Birds  (06:23) 
+04. A Night with You, Gone  (07:02) (   Читать дальше...   )Жанр: World Jazz, Guitar Jazz, World MusicПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82C2643F599E27BCE5B3D836211B695AECBB504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213420   (772008) от 16.03.2018
+
+The BBC Big Band - Harlem Nocturne (2004) Galaxy Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Getting Sentimental Over You [03:35]
+02. Harlem Nocturne [02:50]
+03. Leave Us Leap [03:30]
+04. You Made Me Love You [03:19](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2153D6FF0D87F316DF4524ADC96AB99F0D88C7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213177   (772002) от 16.03.2018
+
+Swingle Singers - Best Of The Classic Years (1963 - 1968) 2003, Helicon [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Classical Crossover>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinfonia [03:36]
+02. Choral No. 1 [02:40]
+03. Waltz [03:15]
+04. Choral [03:22](   Читать дальше...   )Жанр: Vocal Jazz, Classical CrossoverПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0826A2BE089BFFA6D2417FAEF8123C68C35886AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278433   (771993) от 25.01.2019
+
+Kazutoki Umezu - Diva (1988) NEC Avenue [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diva [3:56]
+02. Nishibi no Ataru Heya [8:12]
+03. Hinobashi no Tamoto [3:23]
+04. Poi [7:25](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03AE2DD05074E78F513CA5DF77A3DE0945C9B4D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278456   (771985) от 25.01.2019
 
 Bohren & Der Club Of Gore - Piano Nights (2014) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Downtempo, Dark Ambient>
@@ -572,178 +746,6 @@ Duke Ellington - The Great Duke Ellington 1959 (2000) ORO [APE|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F2F2A8C888F7EB32C4A1CE3C658B51347A8C597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393018   (768997) от 28.06.2020
-
-Jae Sinnett's Zero To 60 Quartet - Just When You Thought... (2020) Self-Released [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just When You Thought [6:23]
-02. That Said [5:03]
-03. Slopes [6:53]
-04. Snidely [7:11](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A154CF3C798DA194187BDB6D229C9C33B9505D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392720   (768949) от 28.06.2020
-
-Sinne Eeg & The Danish Radio Big Band - We've Just Begun (2020) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We've Just Begun [4:03]
-02. Like a Song [5:20]
-03. Those Ordinary Things [5:04]
-04. Talking to Myself [3:35](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B319B911A77F0EBA96B2D2C6ADD8287B3674DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125159   (768817) от 14.04.2017
-
-Eric Bell - Exile (2015) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep In Your Heart  (04:42) 
-02. Don't Love Me No More  (03:58) 
-03. Gotta Say Bye Bye  (05:07) 
-04. Vote For Me  (03:07) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB4CAF6E77A9F6E50322D6B937F8F913035DEBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125072   (768815) от 14.04.2017
-
-The Stumble - Lie to Me (2012) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lie to Me  (02:29) 
-02. Big Better Love  (06:32) 
-03. I Get a Little Hot  (05:53) 
-04. Money On Time  (02:56) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983A7D0F7F083971CED4D0F8EC3A0DDEA574E8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125348   (768733) от 14.04.2017
-
-Club Des Belugas - Nine (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Club Des Belugas - It's Only Music (feat Ashley Slater)
-02. Club Des Belugas - Pogo Porn (feat Karlos Boes)
-03. Mo'Horizons - Ai Mi Morena (Club Des Belugas remix)
-04. The Cosmic Surf Club - Quite Dawn (Club Des Belugas remix)(   Читать дальше...   )Жанр: Nu Jazz, Broken BeatПродолжительность: 02:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD02C5C5915486313F2AAF474EAB6BB9342C3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393195   (768610) от 29.06.2020
-
-Sam Rivers Trio - Emanation 1971 (2019) NoBusiness Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emanation Part I [31:09]
-02. Emanation Part II [45:32]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:16:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3F3924D105FE0BEB9F6B79CD45C3CA23E321BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

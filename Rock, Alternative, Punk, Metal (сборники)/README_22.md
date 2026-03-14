@@ -1,3 +1,32 @@
+###  Публикация: 1292984   (640884) от 01.04.2019
+
+VA - Рок впрок 12 (2019) [MP3|320 Kbps] <Рок, Поп-Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. alexvish - Живой
+02. ТимерТау - Игрушки
+03. Zемля Королевы Моd - Ворон
+04. Shortы - Танцевальная(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 03:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FDEF0A418AC8DAD05720D03362AF6BB47F001D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542140   (640873) от 05.04.2022
 
 VA - Fest Rebel Rock Radio , Vol.1 (2022) [MP3|320 Kbps] <Alternative, Progressive Rock>
@@ -716,35 +745,6 @@ VA - Тяжёлые кавер-версии известных песен (2019)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98265D1F0DF1D1D4BACFF0ECA734DE3B06DC55C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230253   (617283) от 11.06.2018
-
-VA - Evangelion: Metall Collection (2018) [MP3|320 Kbps] <Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617283.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fates Warning - Still Remains
-002. Shadowlynx - Attila
-003. Integral - Blank Claustrophobia
-004. Malet Grace - Commotion of Frailty(   Читать дальше...   )Жанр: MetallПродолжительность: 10:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED6667A45C26F00B0D99E59A9C45B72716F6B3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

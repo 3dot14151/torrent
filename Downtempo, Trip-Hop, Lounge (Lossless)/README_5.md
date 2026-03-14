@@ -1,3 +1,61 @@
+###  Публикация: 637893   (1003678) от 04.01.2020
+
+York - Islanders (2012) Planet Love Records #ARDI3244 [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Trance>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York - Dying Star (Chill Out Mix) (7:14)
+02. York & Mike Oldfield - Islanders (Chill Out Mix) (9:12)
+03. York & Art Halpertin - Abyss (Chill Out Mix) (5:23)
+04. York & The Thrillseekers feat. Asheni - Daydream (York's Album Mix) (06:08)(   Читать дальше...   )Жанр: Lounge, Chillout, Trance, LeftfieldПродолжительность: 02:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704D35A0EEB3A1C06DE33C872F95C7751999BB18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487448   (1003624) от 05.08.2021
+
+VA - Secret Room: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Sour - Who Is Lore?
+02. Finland & Aaskoven - Tahiti (Closing Theme)
+03. Will James - Daintree Twilight
+04. Project Blue Sun - Fly Away (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178594F75C7532EDE2022D2D4E61E5FB5E283915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487535   (1003618) от 05.08.2021
 
 VA - Amberdelic Space (1996) Dressed To Kill [FLAC|Lossless|tracks+.cue] <Downtempo, Acid, Broken Beat, Techno, Ambient, Breaks>
@@ -699,64 +757,6 @@ VA - JustRomantic (2007) 2CD [FLAC|Lossless|tracks + .cue] <Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EACE3D4F3989DA0D166AEA78B5FA5F274AFAF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366147   (925728) от 10.03.2020
-
-V.A. - Coffee Bar Lounge, Vol. 17 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miper - Move On (Original Mix)
-02. Weathertunes - Grand View (Original Mix)
-03. Lazy Hammock - Naked Being (Original Mix)
-04. Twentyeight - Stars (Original Version)(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7D6EB1E022F1A33101B330121B869ED6BFB92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988235   (922773) от 19.02.2016
-
-Portico - Living Fields (2015) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Broken Beat, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Fields (feat. Jono McCleery) (03:12)
-02. 101 (feat. Joe Newman) (04:46)
-03. Where You Are (feat. Jono McCleery) (01:41)
-04. Atacama (feat. Joe Newman) (05:00)(   Читать дальше...   )Жанр: Downtempo, IDM, Broken Beat, AmbientПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27870513949B1202C6711044B0C4B0E428259D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

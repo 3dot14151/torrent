@@ -1,3 +1,32 @@
+###  Публикация: 1603007   (1045878) от 08.01.2023
+
+Vic Dickenson & Urbie Green - Slidin' Swing (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You Were Young, Maggie [4:53]
+02. Nice Work If You Can Get It [4:43]
+03. You Brought A New Kind Of Love To Me [5:18]
+04. Everybody Loves My Baby [9:33](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1FC549AD1B4198E6AEDE98D84CC0A769F6C8B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603013   (1045874) от 08.01.2023
 
 Karin Krog - Sweet Talker: The Best Of Karin Krog (1963 - 2005) 2CD, 2005, Grappa [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:008C17AFC891A10D411EE78DB035AC22A3FE6883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605226   (1044987) от 17.01.2023
-
-Lee Morgan - Candy (1957) 2012, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Candy [7:04]
-02. Since I Fell for You [5:38]
-03. C.T.A. [5:10]
-04. All the Way [7:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65575D00551D1D1A66B32450A374D10FE6949851
 ```
 
 https://mybot314.ru/tekegram_catalog/

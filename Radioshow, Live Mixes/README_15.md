@@ -1,3 +1,61 @@
+###  Публикация: 1185822   (289834) от 23.11.2017
+
+VA - Ahmed Romel - Orchestrance 215 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pryda - Stay With Me
+02. Kiran M Sajeev - Liberator (Original Mix)
+03. NavidN2M & Hidden Tigress - Distance (Dub Mix)
+04. Fady & Mina - Scirish(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A7F6AEE9F835105224BE43DB2888F39E7FC64B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335420   (287911) от 02.11.2019
+
+Neptune Project - Live @ Lost in Trancelation, Bikkuri Lounge Orlando, United States 2019-10-11 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Profitt - Luna (Christopher Lobsinger Remix)
+02. Interstate - I Found You (Perry O'Neil Remix)
+03. Lolo - Laia's Daydream
+04. Jam & Spoon - Stella (Nalin & Kane Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF999124C974CB0499E1755E532A9B012E995DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335433   (287910) от 02.11.2019
 
 Euphoric Nation - Live @ Armory Minneapolis, United States 2019-10-26 [MP3|320 Kbps] <Trance>
@@ -686,64 +744,6 @@ VA - Aly & Fila - Future Sound of Egypt 526 (2017) [MP3|320 Kbps] <Trance, Uplif
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83539EC3BAC416294F92DD876A9832F473321D91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192272   (263163) от 17.12.2017
-
-VA - Markus Schulz - Global DJ Broadcast - Year in Review (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz presents Dakota featuring Bev Wild - Running Up That Hill
-02. Dark Matter & Erika K - When Souls Collide
-03. Dave Neven featuring Nuttalya - Breathing Again
-04. Markus Schulz presents Dakota & Koen Groeneveld - Mota-Mota(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D8D570667812425E58C61889A1112A99C17FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193691   (261982) от 22.12.2017
-
-VA - Aly & Fila - Future Sound of Egypt 527 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L. Doblado - Lie Alone (16 Bit Lolitas Remix)
-02. Philipp Kempnich & Allies For Everyone - Disc Nite (Original Mix)
-03. Steve Parry - 303 V (Original Mix)
-04. Paul Thomas & Dylhen - Diablo (Kamilo Sanclemente & Golan Zocher Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CE5ABF658B6BA214B4FA2D7FB9A52889338950
 ```
 
 https://mybot314.ru/tekegram_catalog/

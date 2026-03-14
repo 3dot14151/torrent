@@ -1,3 +1,32 @@
+###  Публикация: 1401324   (711609) от 09.08.2020
+
+Black Crown Initiate - Violent Portraits of Doomed Escape (2020) [MP3|320 Kbps] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invitation (7:55)
+02. Son of War (4:04)
+03. Trauma Bonds (6:03)
+04. Years in Frigid Light (album version) (6:44)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F924B39D258D3AF22378B13E992C433ABAE35458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401154   (711438) от 09.08.2020
 
 Orbit Culture - Nija (2020) [MP3|320 Kbps] <Groove Metal, Progressive Metal>
@@ -713,35 +742,6 @@ Tyr - Hel (2019) [MP3|320 Kbps] <Progressive Viking Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F50E0A85EA34A8B031DF1250F5AA5B90189F65EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287830   (701762) от 08.03.2019
-
-Doro - Backstage to Heaven (2019) EP [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701762.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Backstage To Heaven (feat. Helge Schneider)
-2. Heartbroken (feat. Doug Aldrich)
-3. Blood, Sweat and Rock 'N' Roll (Live)
-4. If I Can't Have You - No One Will (Live)Жанр: Heavy MetalПродолжительность: 00:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0B80ACFDEB57F95A8AFC2C30EF8803D0D73019
 ```
 
 https://mybot314.ru/tekegram_catalog/

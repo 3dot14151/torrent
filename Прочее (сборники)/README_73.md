@@ -1,3 +1,38 @@
+###  Публикация: 514809   (657174) от 25.06.2012
+
+VA - Top Hits Pop Chart 50/50 (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игра Слов - Питер-Сочи (Radio Edit)
+02. Valdi Ft. Catalin D Drago - Summer Is Crazy (Radio Edit)
+03. Игорь Багдасар - Снайперы Любви
+04. Supermode - Tell Me Why (Joseph Juarez Remix)
+05. Зебра - Давай
+06. Samuele Sartini & Peyton - You Got To Release (Radio Edit)
+07. Женя Вилль - Странная Любовь
+08. Ryan & Radu - Everything
+09. Женя Вилл - Я хочу Всегда (Natasha Beginner Remix)
+10. Rudeejay & Freaks Jam feat. Marie Claire & D'ubaldo - Suenos (Dreams Can Come True) (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58A7B44252B674231334035A049D3DA0D3AA83C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514909   (657171) от 25.06.2012
 
 VA - Summer Hits Only (2012) [MP3|320 кб/с]<Dance>
@@ -780,41 +815,6 @@ VA - SpaceSynth & ItaloDisco Hits Vol.27 (2017) [MP3|320 Kbps] <Italo Disco, Spa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C7432A4C8D5A0810661FE3DA27E294F40BD477C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516088   (654740) от 27.06.2012
-
-VA - Самый Взрывной Летний МIX (2012) [MP3|128-320 кб/с]<House, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Anton Neumark, Johnny Beast - We Rock The Party (Original
-02 DJ Solovey and Jim (E. Glotikov) - Ready To Party (Original
- 03 Fred Falke - 909 PM At The Beach (Syntheticsax Bootleg)
- 04 Fast Foot - Galaxy ( SICK SLAUGHTERHOUSE )
- 05 Flashtronica - I Cant Stop (Ural Djs Remix)
- 06 Javi Reina Alex Guerrero ft. Syntheticsax - Oig (Check off
- 07 Kulten Yeuk - Drunk Trumpet (Johnny Beast Remix)
- 08 Dj Viduta - Summer Mood ( Original Mix )
- 09 Nity - Ты Лето (Ural Djs Version)
- 10 Porn Kings - Amour (DJ Jim Remix Radio)Жанр: House, PopПродолжительность: 04:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2322F56466008AB16D1EC64A526DA618BE13D551
 ```
 
 https://mybot314.ru/tekegram_catalog/

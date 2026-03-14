@@ -1,3 +1,90 @@
+###  Публикация: 1011140   (797664) от 26.04.2016
+
+Sonny Rollins - The Bridge (1962) 1999,Ars Nova [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without A Song 07:26
+02. Where Are You 05:10
+03. John S. 07:39
+04. The Bridge 05:57(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9621ADE17847FE494BA454BE2DB3F5A24AAAC8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010945   (797662) от 26.04.2016
+
+Dave Weckl Band - Transition (2000) [APE|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Up
+02. Braziluba
+03. Like That
+04. Mild Hysteria(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636F1A7F759B025BCA12F255639DABD0676915C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010618   (797656) от 26.04.2016
+
+Billy Cobham's Culturemix - Colours (2004) [APE|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuba on the Horizon
+02. Dessicated Coconuts
+03. Volcano
+04. Where do we go from here(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B847B7623B0A9D73AF32B17E38929E5C501B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508372   (797519) от 08.11.2021
 
 Joe Henderson - 5 Original Albums (1964 - 1985) 5CD, 2016, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -658,93 +745,6 @@ Azie Mortimer - Feeling Of Jazz (1963) Remaster, 2014, Solid Records[FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B66C2B8FC2DCFA356A33B5047251ACF35CB2EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509120   (795677) от 11.11.2021
-
-Wes Montgomery - Three Classic Albums Plus (1959, 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795677.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. 'Round Midnight [4:58]
-02. Yesterdays [3:20]
-03. The End of a Love Affair [3:18](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 02:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9907EBCE1A1CD2B7596DB91998670401AA0956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509124   (795671) от 11.11.2021
-
-Benny Goodman - Three Classic Albums Plus (1949 - 1958) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795671.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Let's Dance [1:02]
-02. Don't Be That Way [3:14]
-03. Hallelujah [4:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A783161F3B5A048F9D3C2180DF0A7CC5FD366791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509126   (795670) от 11.11.2021
-
-Benny Goodman - Three Classic Albums Plus (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795670.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Introduction into Let's Dance [1:23]
-02. Mission to Moscow [3:01]
-03. Meet the Band [5:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150875B31298242FBAA4EEDD80F5D2D01227DC27
 ```
 
 https://mybot314.ru/tekegram_catalog/

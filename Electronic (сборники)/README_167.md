@@ -1,3 +1,32 @@
+###  Публикация: 955504   (333882) от 11.11.2015
+
+VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 3 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Rich - Santorini Night - Riviera Mix
+02. Channel settings - Living on the Moon - Original Mix
+03. Flying Rage - Open Mind - Magic Mind Mix
+04. Fader Of Cruise - Hot Consulting - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314030B549BF80B03801D380CAC3448722E2BF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955482   (333854) от 11.11.2015
 
 VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 2 (2015) [MP3|320 кб/с]<Deep House>
@@ -716,35 +745,6 @@ VA - Chillout for Good Times (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05B8BB56AA22B34D9656485A73A302DF35ED0EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956815   (327626) от 17.11.2015
-
-VA - Club Dance Ambience vol.45 (2015) [MP3|320 кб/с]<House, Progressive House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5sta Family - Aptly (DJ Favorite & DJ Lykov Remix)
-02. 99 Souls feat. Destiny\'s Child & Brandy - The Girl Is Mine (Original Mix)
-03. ARIZONA - Where I Wanna Be
-04. Adele - Hello (eSQUIRE Remix)(   Читать дальше...   )Жанр: House, Progressive House, TranceПродолжительность: 08:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7DBCE3463B29AE154A8DF9B0DD87DDEA9A1243
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 1577495   (352550) от 20.09.2022
+
+Stilgar - 4 Releases (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Холодный Воздух [00:03:23]Жанр: Hard RockПродолжительность: 4 CD, 01:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52510AC4D4CE8FE1D1D2541D396D7F34876B9BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577573   (352547) от 20.09.2022
+
+S.C.A.L.P. - 2 Albums, 2 Singles (2019-2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. К Истоку [00:01:07]
+02. Промах [00:03:53]
+03. Карусель [00:05:33]
+04. Я Поделюсь [00:04:06](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 4 CD,
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D06BEDEF2B8EDC30CD094A5FD7C2459D610E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577599   (352451) от 20.09.2022
+
+Ермен Анти & Art Chaos Community - Груз 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Новая искренность [00:01:36]
+02 - Невесомости нет [00:03:08]
+03 - Огонь по штабам [00:04:07]
+04 - Под домашний арест [00:05:37](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA1F415AAC1756482151B424535C76B290D09C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 724171   (352161) от 19.11.2013
+
+Океан Ельзи (Океан Эльзы) - Избранное (2013) 2xCD [FLAC|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вiдпусти (3:50)
+02. Мало менi (5:02)
+03. Susy (4:02)
+04. Rendez-vous (4:10)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB664432B56E399EAC924D204D628E84DE53669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418090   (350938) от 23.10.2020
+
+Би-2 - Нечётный воин 4. Часть 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350938.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Би-2, Manizha - Паганини в метро
+2. Инна Желанная, Игорь Журавлев - Медленный как снег
+3. Ренарс Кауперс - Мы были там
+4. Би-2, Сабрина - Странный танец(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979F5A0F91124CBE8C19A7B8E0D830E3CDA5D828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577933   (350398) от 21.09.2022
 
 Massface - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Progressive Rock>
@@ -606,151 +748,6 @@ Conflagration - Destructive Generation (2011) Re-recorded Version 2022 [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD74290CDD55892CFA30C8546291153C36377A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579216   (336482) от 27.09.2022
-
-Монгол Шуудан - Чересчур. (1995) Реконструкция, 2022, Navigator Records [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не моя забота [00:03:07]
-02. Пение ветра [00:03:48]
-03. Птица фортуна [00:03:26]
-04. Олух царя [00:04:26](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71AA6BCF1421B28130796F29BC7518B3A4586CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330830   (336463) от 12.10.2019
-
-Воскресение - Grand Collection (2005) Compilation [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кто Виноват? (4:18)
-02. По Дороге Разочарований (5:23)
-03. Лето (3:07)
-04. Так Бывает (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E089AB8DCD19EE7FC7507E1099B7B9B4970247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258353   (336427) от 30.10.2018
-
-Пикник - Родом Ниоткуда (1988) Reissue, 2010, Вектор [FLAC|Lossless|image + .cue] <Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я невидим (6:03)
- 02. Интересно (5:36)
- 03. Нет берегов (5:08)
- 04. Романс (2:25)(   Читать дальше...   )Жанр: Art-RockПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2629DCE5B900C4156CBDD3B3F94033AB771E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579284   (336414) от 27.09.2022
-
-ACEtone - Я всё равно останусь здесь (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acid One [00:03:09]
-02. Зиплок [00:03:33]
-03. По краю [00:03:22]
-04. Моя ойран [00:04:20](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9805470C34FD9D41F76703155F7C60108EB4DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953309   (336178) от 30.10.2018
-
-Братья Торч (группа "Сексуальные меньшинства") - Некрофилия (Холодная десятка) (1996) [APE|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. НЕКРОДУКЦИЯ (Пролог на крышке гроба)
-02. Position number five ("Живая ты не в кайф...")
-03. Трупья коробка:
-а)" В каком неведомом гробу?"(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B0F0A983CFA2CC46360214E9688680A3D3E3BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

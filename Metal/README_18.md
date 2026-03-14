@@ -1,3 +1,32 @@
+###  Публикация: 989773   (906429) от 28.02.2016
+
+Balfor - Barbaric blood (2010) [MP3|320 кб/с] <Progressive Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Ashes (...The Beginning)
+02. Behold My Hate!
+03. Shadow Of My Raven Wings
+04. In A Thunder Of Ancient Glory(   Читать дальше...   )Жанр: Progressive Death Metal, Black MetalПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70686FAB4DB0712F4A332DD56DDB74AC7D055AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099353   (905308) от 01.02.2017
 
 Maerzfeld - Fremdkorper (2014) [MP3|320 Kbps] <Industrial Metal>
@@ -717,35 +746,6 @@ Lethal Injektion - Sex Is Power (2016) EP [MP3|320 кб/с] <Rap Metal, Rapcore,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3BEA6B3AFBF4C1FB81435130E953022177BE416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371006   (893689) от 29.03.2020
-
-Aevum - 3 Albums (2014-2020) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Pilgrim [00:03:57]
-02 - Spark of Life [00:04:26]
-03 - Tair [00:04:24]
-04 - Black Honeymoon [00:04:14](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 02:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A6FC6AA13B40ACFB9272EF494F7D3B6B7662F22
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,96 @@
+###  Публикация: 940726   (465064) от 26.09.2015
+
+Chanticleer - Lost in the Stars (1996) /Teldec/[FLAC|tracks+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's De-lovely / All Through the Night [03:22]
+02.Night and Day [03:05]
+03.I Can Dream, Can't I? [05:36]
+04.You and the Night and the Music [03:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C89A766B79762BE749DD91849173EB5849A0FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548946   (465021) от 19.09.2012
+
+Sara Gazarek - 2 альбома (2007 & 2012) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything I've Got [03:26]
+02. Blossom & Bee [03:36]
+03. Fly Away Birdie [04:31]
+04. The Luckiest [04:19]
+05. Down With Love [04:46]
+06. Lucky To Be Me [05:33]
+07. Tea For Two [06:10]
+08. I'm Old Fashioned [05:01]
+09. So This Is Love [04:14]
+10. The Lies Of Some Handsome Men [05:37](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940758   (464906) от 26.09.2015
+
+Ike Quebec - Bossa Nova Soul Samba (1962) /1996, Ars Nova/[FLAC|tracks+.cue]<Hard Bop, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Loie [03:12]
+02.Lloro Tu Despedida [03:07]
+03.Goin' Home [05:44]
+04.Me 'N You [06:01](   Читать дальше...   )Жанр: Hard Bop, Bossa NovaПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5B19C86C7A8503132DE7718296C9DFE877A231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059097   (464476) от 03.10.2016
 
 Jasper van 't Hof - Eyeball (1974) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -677,93 +770,6 @@ Tessa Souter - Nights Of Key Largo (2008) Venus Records [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:941005A1765FDA6BAAF7409924BB9BD0A2F3FCFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407689   (462749) от 09.09.2020
-
-Duke Ellington - An Intimate Piano Session (1969 - 1972) 2017, Storyville [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Anticipation [3:16]
-02. Le Sucrier Velours (take 1) [4:55]
-03. Lotus Blossom (take 1) [3:46]
-04. A Blue Mural from Two Perspectives (take 1) [1:13](   Читать дальше...   )Жанр: Swing, Piano Jazz, Vocal JazzПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA9E8CED32A8BAE9BC73D4980AD357A86057208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941479   (462727) от 27.09.2015
-
-Alexis Cole & Bucky Pizzarelli - A Beautiful Friendship (2015) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Beautiful Friendship
-02. East Of The Sun
-03. Honeysuckle Rorse
-04. I Thought About You(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F9D9ADAD80F54291D634EE2A9819B0D8192789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407710   (462595) от 09.09.2020
-
-Freddie Fox - Limitless (2020) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Top It Off (05:41)
-02. Too Tuff (03:49)
-03. Lets Dance (04:14)
-04. Sweet Kisses (04:56)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE9584F409984451BA7AB58D36753ADF7B5E1F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

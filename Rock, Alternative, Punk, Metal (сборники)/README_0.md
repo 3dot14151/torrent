@@ -1,3 +1,32 @@
+###  Публикация: 1609738   (1043143) от 04.02.2023
+
+VA - The Rock Meeting (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043143.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Waterboys - Bed On The Floor
+002. U2 - Even Better
+003. Electric Light Orchestra - Moment In Paradise
+004. Morgen - Everything's Gone(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 11:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01849C3A8ADA77203C1FEB9278F1025FAE2DA93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609758   (1043141) от 04.02.2023
 
 VA - From Nightmares: Metal Hard Compilation (2023) [MP3|320 Kbps] <Metal, Hard Rock, Core>
@@ -716,35 +745,6 @@ VA - Rock Drive 12 (2020) от DON Music (2020) [MP3|320 Kbps] <Hard Rock, Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C3FD6106A14015C12C971CA7BD5BF0E6B73539C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448114   (1031151) от 16.02.2021
-
-VA - The Black Lavender (2021) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сильный и монументальный вокал, гармонирующий с традиционными музыкальными инструментами и электронной музыкой – изрядная редкость. Оригинальные, атмосферные, трогательные и в то же время напористые композиции были специально отобраны и включены в релизе «The Black Lawender», в котором представлены музыкальные жанры рока и рок альтернативы.001. Coast To Coast - Be Kind (Alternative)
-002. Cymatica - Hours
-003. American Hi-Fi - Oliver's Army
-004. Good Tiger - Animal Mother(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 10:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C02FF9920E2C0A5750F17F5039D621741E386E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

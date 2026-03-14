@@ -1,3 +1,90 @@
+###  Публикация: 1006505   (826992) от 12.04.2016
+
+Primal Scream - Chaosmosis (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock, Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trippin' On Your Love (feat. HAIM) (3:30)
+02. (Feeling Like A) Demon Again (4:35)
+03. I Can Change (3:17)
+04. 100% Or Nothing (feat. HAIM) (3:54)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Britpop, Pop-Rock, Dance-RockПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AA6406C0108C041D160490ABB14A645671D076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115424   (826652) от 18.03.2017
+
+Knight Area - Heaven And Beyond (2017) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbroken 07:06
+02. Dreamworld 05:14
+03. The Reaper 07:11
+04. Box Of Toys 03:47(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 01:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE181B4B6A2BF5D6ACDA22245B8862B3A61B30C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115577   (826556) от 18.03.2017
+
+Spoon - Hot Thoughts (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Thoughts (3:49)
+02. WhisperI'lllistentohearit (4:21)
+03. Do I Have to Talk You Into It (4:20)
+04. First Caress (2:49)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEE36AE6B83C51BEC892E03815EA258D03ABC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502482   (826504) от 15.10.2021
 
 Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-hardcore, Alternative-metal>
@@ -659,93 +746,6 @@ Black Rebel Motorcycle Club - Wrong Creatures (2018) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C0BEC71296A1E0A1B65DF401F64F5EED1BCE6A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384802   (801754) от 21.05.2020
-
-Annie Barbazza - Vive (2020) [FLAC|Lossless|tracks + .cue] <Rock, Experimental, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ys (4:09)
-02. June (3:35)
-03. From Too Much Love of Living (2:38)
-04. Time (1:04)(   Читать дальше...   )Жанр: Rock, Experimental, Avantgarde, Post Rock, Prog RockПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDE67DC1ADBC88987844CF3AB5D9699EC7D357B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199531   (801097) от 16.01.2018
-
-Kele Okereke - Fatherland (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Electro House>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (00:45)
-02. Streets Been Talkin' (03:25)
-03. You Keep On Whispering His Name (04:09)
-04. Capers (03:51)(   Читать дальше...   )Жанр: Indie Rock, Electro HouseПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602F86A63F3D7A1E300C84B0006044712B02992D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199541   (801095) от 16.01.2018
-
-James Vincent McMorrow - True Care (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. December 2914 (3:56)
-02. True Care (3:54)
-03. National (3:33)
-04. Thank You (4:39)(   Читать дальше...   )Жанр: Indie Rock, FolkПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41D6507E0AB95E63E826D288BB84670B4448890
 ```
 
 https://mybot314.ru/tekegram_catalog/

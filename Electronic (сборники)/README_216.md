@@ -1,3 +1,32 @@
+###  Публикация: 1789780   (68160) от 07.04.2025
+
+VA - Trance In Motion Vol.387 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Ellis & Dettech & Kate Louise Smith - We Gather (Extended Mix)
+02. Eric de la Vega & Alaera - Cuando El Amor Acaba (Extended Mix)
+03. Georgio Safo - Ancestors (Extended Mix)
+04. Darren Porter - Daylight (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9F181E922F9438A6B2D68B8A61AF3114082435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790713   (68040) от 10.04.2025
 
 VA - Cosmic [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
@@ -710,35 +739,6 @@ VA - Techno Bunker 4 (2024) [MP3|320 Kbps] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA2976BFA604812C3EB77B66684C2351B63FB143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711001   (61497) от 28.03.2024
-
-VA - Electronic compilation part 66 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamidshax - For You
-02. Adik - Margarita
-03. Hamidshax - Before
-04. George Kopaliani - Beyond the Horizon(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E72600646F55CABEAFB82E2372C5A33DAE29A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

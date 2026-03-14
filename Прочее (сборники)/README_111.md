@@ -1,3 +1,38 @@
+###  Публикация: 550549   (453472) от 24.09.2012
+
+VA - XXXL Evro Max Hits (2012) [MP3|256 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453472.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mustafa Sandal - Ego
+002. Emma Hewitt - These Days Are Ours
+003. Rene De La Mone & Slin Project - 2012 (Get Your Hands Up)
+004. The Babysitters Circus - Everything's Gonna Be Alright
+005. Sensato feat. Pitbull - Booty Booty
+006. Professor Green feat. Emeli Sande - Read All About It (Cahill Explicit Radio Edit)
+007. Randi - It Takes Two
+008. Tiesto & Showtek - Hell Yeah! (Original Mix)
+009. Eagles - Hotel California (Ivan Flash Remix)
+010. Jimmy Dub - Hotel Fiesta (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 06:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0643A19416F1D690A862646DDD36F97FDB99BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408663   (453460) от 13.09.2020
 
 VA - Осенняя свежая 30-тка (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -777,35 +812,6 @@ VA - Milan Expo Lounge Mood (2015) [MP3|320 кб/с]<Lounge, Jazzy, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36FCEA1027F7C1E3566F8B3A622A2A8803018B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943415   (449583) от 03.10.2015
-
-VA - Summer Nights (Emotional Lounge & Smooth Jazz Collection) (2015) [MP3|320 кб/с]<Lounge, Jazz, Easy Listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Per Elisa - Riccardo Arrighini
-02. El Aguacate - Angel 'Pocho' Gatti Y Su Orquesta
-03. Evanescent - Riccardo Arrighini
-04. Crepes suzette - The Addy Flor Orchestra(   Читать дальше...   )Жанр: Lounge, Jazz, Easy ListeningПродолжительность: 01:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70EBAFFDA1DC2E77375337EAFCAFF6B8075EE61E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,144 @@
+###  Публикация: 936507   (494266) от 12.09.2015
+
+Label ARPEGGIO-Sound - 2 альбома (2007-2009) Touhou Instrumental /Doujin/ [FLAC|tracks] <Instrumental>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2007.03.25 (LAS-003) Sound (COMIC CITY Osaka 63)
+2009.03.22 (LAS-004) Touhouseisou (COMIC CITY Osaka 73)Тип издания: DoujinЖанр: InstrumentalФормат: Touhou InstrumentalПродолжительность: 00:01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56EA2C94C8179E0AB3642CF0C797224075B465D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 875618   (493861) от 12.09.2015
+
+DDBY - 43 альбома (2008-2015) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <J-Pop, J-Rock, Electronic, Swing, Piano Arrange, Instrumental>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(2014.12.29) Kutsurogi Time 5 (C87)
+(2015.08.14) Cafe de Touhou 7 (C88)
+(2015.08.14) Kutsurogi Time 6 (C88)Тип издания: DoujinЖанр: J-Pop, J-Rock, Electronic, Swing, Piano Arrange, InstrumentalФормат: Touhou Vocal, InstrumentalПродолжительность: 01:02:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1180536DB9B4CABED76B6C0F4F01989B54E33D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404511   (493109) от 25.08.2020
+
+Murasaki - Purplessence (2010) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celestial Purplessences (02:10)
+02. Into The Sun (08:16)
+03. All Our Dreams (04:43)
+04. Why Do You Lie? (05:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B330236F8F3E43597DA593623C118FD484D1056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564903   (492455) от 24.07.2022
+
+Thousand Eyes - Betrayer (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Garden Of Thorns (00:05:14)
+02 - Dead Blind Nightfall (00:03:53)
+03 - Everlasting Trail (00:04:12)
+04 - Behind Blue Tears (00:04:48)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE06D2E190F297C4698372AAF9CF40ADAB64C914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 383600   (486489) от 04.09.2011
+
+Yura Hatsuki - 25 albums + single (2005-2011) /Doujin/ [FLAC|Lossless|tracks]<gothic, speed metal, rock, trance, classical, orchestra, jazz>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Doujin ongaku, gothic, speed metal,rock,trance,classical,orchestra, jazzПродолжительность: 00:27:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565980   (486400) от 27.07.2022
 
 Marge Litch - Crystal Heart In The Fountain (1995) [WavPack|Lossless|image + .cue] <Power Metal>
@@ -616,162 +757,6 @@ CD 1:
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545959   (475913) от 14.09.2012
-
-VA - Who Do They Think We Are? - A Tribute to Deep Purple from Japan (1996) Reissue, Tribute-Album [WavPack|Lossless]<Rock, Hard Rock, Blues Rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demon Kogure, Genki Hitomi, Akira Kajiyama(Ex.Precious) - Burn [06:56]
-02. Yukio Morikawa, Taiji Fujimoto(D.T.R.) - Speed King [04:52]
-03. Genki Hitomi, Minoru Niihara, Sgt. Luke Takamura III(Seikima-II) - Lay Down, Stay Down [04:21]
-04. Eiichi Miyanaga, Shigehisa Ikeda(Braze) - Strage Kind Of Woman [04:54]
-05. Genki Hitomi, Shigehisa Ikeda(Braze) - Child In Time [11:11]
-06. Minoru Niihara, Hideaki Nakama(Hell And Back) - Lazy [07:24]
-07. Yukio Morikawa, Fumihiko Kittaka(King-Show) - Lady Double Dealer [03:55]
-08. Genki Hitomi, Hideaki Nakama(Hell And Back), Norifumi Shima(Concerto Moon) - Woman From Tokyo [06:13]
-09. Minoru Niihara, Fumihiko Kittaka(King-Show) - Fireball [03:52]
-10. Demon Kogure, Yoshiro Takahashi, Fumihiko Kittaka(King-Show) - Highway Star [06:38]Жанр: Rock, Hard Rock, Blues RockПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939638   (472958) от 22.09.2015
-
-ESQUARIA - 7 альбомов (2013-2015) Touhou Vocal /Doujin/ [MP3|320kbps] <J-Pop, Electronic>
-
->>East Asian Music
->>Doujin Music
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2014.12.29 (EQ-0005) EMOTIONAL CHAOS (C87)
-2015.05.10 (EQ-0006) EPIC FAITH (Reitaisai 12)
-2015.08.14 (EQ-0007) PLATONIC SOUL (C88)Тип издания: DoujinЖанр: J-Pop, ElectronicФормат: Touhou VocalПродолжительность: 00:06:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:771CFACB67279AE3685A87A1A7B1C820A4D1A9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567435   (472378) от 03.08.2022
-
-Saber Tiger - Project One (1997) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 I'll Still Be Loving You
-02 Hard Wire
-03 Thrillseeker
-04 Ride Like The Wind(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67395BEE2F4674D536EF56FD9118C50D2BDE4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567437   (472353) от 03.08.2022
-
-Saber Tiger - Indignation (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lord 05:56
-02. Idiot 05:21
-03. Stronger 05:05
-04. Life 04:18(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4497A6B1D169966511900AF61A14381A9E11154D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547646   (467482) от 18.09.2012
-
-Kaori Muraji - Portraits (2009) [MP3|320 кб/с]<Classical, Instrumental, Acoustic guitar>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467482.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:31) 01. Merry Christmas Mr. Lawrence
-(2:40) 02. Tango en Skai
-(5:33) 03. Tears In Heaven
-(5:03) 04. Jongo
-(5:19) 05. Energy Flow
-(2:46) 06. What A Friend
-(2:32) 07. The Internationale
-(2:53) 08. Amours Perdues
-(2:33) 09. Secret LoveЖанр: Classical, Instrumental, Acoustic guitarПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74F21F9B81411F35D3553364D38EA46CF98DB29
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1052282   (529249) от 13.09.2016
+
+Jim Brickman - Soothe, Vol. 1. Music To Quiet Your Mind and Soothe Your World (2015) [FLAC|Lossless|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly [00:05:41]
+02. Mist In The Moonlight [00:05:40]
+03. Seaside [00:04:25]
+04. Celestial Horizon [00:04:40](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D705898CCE388453F5F43C0AE9B6F5280E052BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052315   (529208) от 13.09.2016
+
+Jim Brickman - Soothe, Vol. 2: Sleep (2016) [FLAC|Lossless|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Setting Sun [00:05:55]
+02. Tranquility [00:05:17]
+03. Exhale [00:04:38]
+04. Slumber Deep [00:05:19](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E207D2606C9D7A8FCDF9B75C41E2CD8A99D83E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052361   (529132) от 13.09.2016
+
+Karunesh - Sun Within (2016) [MP3|320 Kbps] <New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeon (6:44)
+02. Lyria (4:56)
+03. Moola Mantra (8:59)
+04. Desert Traveller (6:24)(   Читать дальше...   )Производство: Oreade MusicЖанр: New Age, WorldПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629F8E8F7AD9E77F1D691623A6655109B4B5DDA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 820080   (528814) от 10.09.2014
+
+Stefan Grossman - Those Pleasant Days (2004) 2 CD, Compilation [FLAC|Lossless|image+.cue] <Acoustic Guitar, Blues & Jazz Singer, Country Blues>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528814.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1
+01. So They Say [04:35]
+02. The Birthday Song [04:45]
+03. Odyssey [10:22](   Читать дальше...   )Жанр: Acoustic Guitar, Blues & Jazz Singer, Country BluesПродолжительность: 02:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9809F164FB4D93A848AE145ED99FB306E9F48E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240359   (528679) от 11.08.2018
+
+William Ogmundson - Simple Gifts (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Belladonna
+02 – Simple Gifts
+03 – Forever Drifting
+04 – Pharaoh’s Horses(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54EA76FAD372CDAE093C176EDC0DB74BCD661C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927455   (528641) от 13.08.2015
 
 Mo Coulson & Chris Conway - Spirits of the Mermaids (2013) [MP3|320 кб/с]<New Age, Celtic, Vocal, Instrumental>
@@ -600,151 +745,6 @@ Hildur Gudnadottir - Chernobyl / Чернобыль (Music from the HBO Miniseri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E7AC5186F6EBF2519FF714F3C09C9A8CD327B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258557   (524220) от 08.07.2019
-
-Heilung - Discography 4 Releases (2015-2019) [FLAC|Lossless|tracks+.cue, tracks] <Neofolk, Experimental, Ritual Folk, Rune Singing, Shamanic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galgaldr (10:25)
- 02. Norupo (04:18)
- 03. Othan (10:19)
- 04. Traust (09:49)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Neofolk/Dark Folk/Experimental/ShamanicПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266C6DAF71F001E5814CA54824B430F6B359A6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313693   (522964) от 10.07.2019
-
-Rondo Classico - Carnevalo (1990) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover,  Electronic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intrada (3:09)
-02. Polka del flauto (3:28)
-03. Una serata nella palude (3:37)
-04. L'allegria (3:23)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover,  ElectronicПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A49FAE302FE5FEFE6EF42F012C5AFE8263AB0F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313697   (522925) от 10.07.2019
-
-Rondo Classico - Yellow River (2002) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Is This The Way To) Amarillo (3:22)
-02. Yellow River (3:14)
-03. Chirpy Chirpy Cheep Cheep (2:52)
-04. To Whom It Concerns (2:48)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108277E4086149DD26E3C51924AA4D8C0E10F9DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240954   (522189) от 15.08.2018
-
-Grimwater - Silvermoor (2018) [MP3|320 Kbps] <Medieval Neofolk, Instrumental, Symphonic, Epic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522189.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Marching Towards The Mountain (4:33)
- 2. The Defeat Of The Drake (3:24)
- 3. The Dwarrowdelf (2:41)
- 4. Rohan Rides To The Battle (3:14)(   Читать дальше...   )Жанр: Medieval Neofolk, Instrumental, Symphonic, EpicПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E8C01FAFBAF2AEB2E77DAF28CC0927C0558C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928727   (521540) от 17.08.2015
-
-Fausto Papetti - Magic Sax, Vol. 2 (1989) /Sony Music/ [FLAC|tracks+.cue]<Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Happy Day [04:09]
-02. Tanti Auguri [02:34]
-03. Tutti I Miei Sogni [03:36]
-04. In The Mood [04:12](   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2416D264E84E9685DCF3BF507463082AD49283DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

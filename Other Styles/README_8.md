@@ -1,3 +1,119 @@
+###  Публикация: 331898   (1001252) от 13.01.2020
+
+Existence - Like A Shot Through My Heart (2004) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001252.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Existence Means Harmony (4:45)
+2. First Nations Flute Prayer (5:06)
+3. Like A Shot Through The Heart (4:35)
+4. Sacrificed (4:52)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E410186BDE3A22EAC5149B2C27B1E3990AB4A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489174   (1001163) от 14.08.2021
+
+David Garrett - Music (2012) [FLAC|Lossless|image + .cue] <Instrumental Pop, Instrumental Soft Rock, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001163.jpg" />
+</div>
+
+
+###  Подробнее
+
+David Garrett - не просто случайный любитель разных жанров музыки, наоборот, он раз за разом доказывает, что он твердо стоит одной ногой в поп-музыке, а другой - в классической. Как он продемонстрировал в своих предыдущих альбомах, он хочет побудить поклонников из мира рока оценить его корни в классической музыке, и привлекает поклонников из мира классики своим техническим (   Читать дальше...   )01. Viva La Vida (4:16)
+02. Cry Me A River (3:15)
+03. Beethoven Scherzo (3:06)
+04. Human Nature (3:52)(   Читать дальше...   )Жанр: Instrumental Pop, Instrumental Soft Rock, ClassicalПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E243D48381952E8F0F7DBFA8E4A0BD59FAD12126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710427   (1000966) от 14.01.2020
+
+Karunesh - Sounds of the Heart (1987) [FLAC|Lossless|tracks + .cue] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clouds & Wings [6:27]
+02. Wu-wei [5:31]
+03. Fantasy Dancer [4:22]
+04. Back Home [6:10](   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448EBD6B4E57E1565F2EA68C9D0F16E27DED2E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740114   (1000958) от 14.01.2020
+
+Era & Arielle Dombasle - Arielle Dombasle By Era (2013) /Special Edition/ [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria (Inspired By The Ave Maria / Gonoud) (4:02)
+02. Cold Song (From 'Cold Genius' King Arthur Opera) (3:29)
+03. Adagio For Strings (Era Version / Edit Agnus Dei) (3:57)
+04. Sins (From 'Miserere') (3:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E73FAF98A4569F40464EFFD3FFA0FC0D195C90ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352292   (1000894) от 15.01.2020
 
 Frantz Amathy - Heavenly Ways (2004) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
@@ -735,140 +851,6 @@ CD1:01. Andalu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CE6243A7BE4EA1E3D536D029E4B9D15DE2A2202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604293   (995224) от 21.01.2013
-
-Morning Stars - Only Instrumental (2011) [MP3|320 кб/с]<New age, Native american>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995224.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:00) 01. Qapaknan
-(5:30) 02. Love Montain
-(6:18) 03. Miracle
-(5:06) 04. Akuchimuy
-(5:55) 05. Sun Priste Dance
-(4:16) 06. The Last Mohican
-(4:49) 07. Brave Hearts
-(5:33) 08. Harmonia
-(4:34) 09. Morning Stars
-(6:06) 10. Sunquyman(   Читать дальше...   )Жанр: New age, Native americanПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29102383BDC07169D98827ECB391EFF1DFCB1962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606504   (995040) от 21.01.2013
-
-Дмитрий Маликов - Panacea (2012) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Задумавшись
-02. О суете
-03. О прошлом
-04. О невыполнимом
-05. С дыханьем музыки
-06. Счастливым
-07. Я становлюсь
-08. Уходит тень
-09. Душа наполнена
-10. Свежо(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607094   (994701) от 22.01.2013
-
-VA - Союз нерушимый... - Песни и танцы народов СCCP (5 CD) (2007) [FLAC|Lossless] <Retro/Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Retro/Folk |Продолжительность: 00:50:14
-
-01. Государственный гимн Советского Союза Оркестр Государственного Академического Большого Театра СССР, Юрий Симонов
-02. Государственный гимн Украинской ССР Хор и оркестр Государственного академического театра оперы и балета имени Т.Шевченко, Стефан Турчак(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608553   (993423) от 25.01.2013
-
-V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereo Dub - Insensatez (How Insensitive)
-02. Celso Mendes ft. Lua - Fotografia (Diva Mix)
-03. Karen Souza - Corcovado (Quiet Nights Of Quiet Stars)
-04. Lila ft. Rhythmic Control - Aquarela (Brazilian Tradition Mix)
-05. Aural ft. Ituana - Amanha Talvez
-06. Urban Love ft. Moana - Samba De Uma Nota So
-07. Lalann - Seguir No Caminho
-08. Sound Behaviour - Fixacao (Outro Lado Remix)
-09. Karen Souza - Do You Really Want To Hurt Me
-10. Os Alquimistas - Aguas De Marco (Unconscious Edit)(   Читать дальше...   )Жанр: Bossa, Chillout, LoungeПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

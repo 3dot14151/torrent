@@ -1,3 +1,148 @@
+###  Публикация: 1703555   (114988) от 29.02.2024
+
+Bokassa - Crimson Rider (2019) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Rock, Hardcore, Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Brologue [1:31]
+02 - Charmed & Extremely Treacherous [2:57]
+03 - Vultures [2:46]
+04 - Mouthbreathers Inc. [3:07](   Читать дальше...   )Жанр: Stoner Rock, Hardcore, Punk RockПродолжительность: 00:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C433CB0922BE98BDC02C9DB91B57A50139B2A928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703782   (114835) от 01.03.2024
+
+VA - Рок-панорама - 87 (1) (1987) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01 - Найти и потерять (музыка и слова Г. Рябцева) — 4.57
+Г. Рябцев
+02 - Выше голову (музыка и слова С. Попова) — 3.31(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12858237BB9964ACC8017741E3EEE09B53C42B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703725   (114834) от 01.03.2024
+
+Андрей Миронов - Это песня для близких друзей... (Песни Яна Френкеля) (1987) [FLAC 24/192|Lossless|tracks] <Retro, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Я выхожу на сцену (Р. Рождественский)
+02. Так повелось... (В. Меньшиков)
+03. Он и она (Р. Рождественский)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530D5158AD88D58F909DD53534403C9BDAB68689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703760   (114826) от 01.03.2024
+
+Lesbian Bed Death - Midnight Lust (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria [00:04:30]
+02. Roadkill [00:03:36]
+03. Satanic Suicide Sex Cult [00:03:50]
+04. Your Love Makes Everything Worse [00:03:56](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDF19C93FF271732AFD8FCE765A6C4B1DD1A350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703830   (114824) от 01.03.2024
+
+Firehouse - Firehouse (1990) Remaster, 2024, Epic; Sony Music Entertainment [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock, Arena Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock On the Radio (4:45)
+02. All She Wrote (4:27)
+03. Shake & Tumble (3:30)
+04. Don't Treat Me Bad (3:55)(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023E61C696EE4E03AC94FE2B94AF31B850114D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703643   (114821) от 01.03.2024
 
 AC/DC - High Voltage (1976) Released, 1981, Albert Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
@@ -600,151 +745,6 @@ Yard Act - Where’s My Utopia? (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FE6BEAF80B33F8B1CC8E6D341ECC063C9002692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703976   (114617) от 02.03.2024
-
-Firewind - Stand United (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salvation Day (4:23)
-02. Stand United (4:30)
-03. Destiny Is Calling (3:55)
-04. The Power Lies Within (4:20)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C86B1B355933F6FFC462F4F818D46549C02EA2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703925   (114612) от 02.03.2024
-
-REO Speedwagon - Hi Infidelity (1980) Remaster, 2024, Epic - Legacy [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard rock, AOR>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Let Him Go (3:45)
-02. Keep on Loving You (3:21)
-03. Follow My Heart (3:48)
-04. In Your Letter (3:16)(   Читать дальше...   )Жанр: Hard rock, AORПродолжительность: 00:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6748444E67E5A63A94EAD9E67656BF0D427D6003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703937   (114610) от 02.03.2024
-
-Ансамбль «ИТС» - Это любовь (1987) [FLAC 24/192|Lossless|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Наша любовь вечна. Our Love Is Here To Stay. (G.Gershwin - I.Gershwin)
-02 - Тайная любовь. Secret Love. (S.Fain - P.F.Webster)
-03 - Письма о любви. Love Letters. (V.Young - E.Heyman)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF7A3A60A00F78AAFC079B7E8E90FA26C126491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541548   (114406) от 04.03.2024
-
-R.E.M. - Studio Albums (9 releases) (1991-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114406.jpg" />
-</div>
-
-
-###  Подробнее
-
-R.E.M. — американская рок-группа, сформированная в городе Атенс (штат Джорджия) в 1980 году музыкантами Майклом Стайпом (вокал), Питером Баком (гитара), Майком Миллзом (бас-гитара) и Биллом Берри (ударные и перкуссия). Один из наиболее важных и авторитетных коллективов, оказавших влияние на альтернативный рок.1991 - Out Of Time
-1992 - Automatic for the People
-1994 - Monster
-1996 - New Adventures in Hi-FiЖанр: Alternative RockПродолжительность: 08:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA66652C14E55A7E318BA0D609D708D561D7AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704246   (114375) от 04.03.2024
-
-Madis - 4 Альбома, 1 Сингл (2022-2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2022 - Sail (Edits)
-2022 - Sail
-2023 - Conquest of Paradise(   Читать дальше...   )Жанр: Electronic TechnoПродолжительность: 5 CD, 04:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621F058D576ABB38C045EFE6EC2A692346E3961A
 ```
 
 https://mybot314.ru/tekegram_catalog/

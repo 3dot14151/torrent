@@ -1,3 +1,148 @@
+###  Публикация: 1685868   (126857) от 20.12.2023
+
+Stoned Statues - Guardian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, Progressive-Rock, Female-Vocals>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me With You [00:04:48]
+02. Too Late [00:03:25]
+03. Until Falling [00:04:55]
+04. Oblivious [00:05:14](   Читать дальше...   )Жанр: Punk, Progressive-Rock, Female-VocalsПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F6F4BB388A12D4C7800C96566C17BAAAA9FC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685884   (126853) от 20.12.2023
+
+Warpath - Uprising Of The Oppressed (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sympho Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocalypse's Daughter (Symphonic Version) [00:04:09]
+02. Indigo [00:04:42]
+03. Hero (Symphonic Version) [00:05:19]
+04. Hool, 1855 (Remastered) [00:06:55](   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 00:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40247F09233EBDC238F0F2DA68D78B7A03FD1AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686072   (126770) от 21.12.2023
+
+Телевизор - Шествие Рыб (1988) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126770.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Люди В Ожидании
+A2 Муха На Стекле
+A3 Город
+A4 Я Не Виноват(   Читать дальше...   )Жанр: New WaveПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8E83BFE7B47D0F7423EEA7FDC2BA3EDC1D1724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685934   (126751) от 21.12.2023
+
+Atomkraft - Queen of Death (1986) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126751.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Queen Of Death
+A2 - Protector
+B1 - Demolition
+B2 - Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686210   (126734) от 21.12.2023
+
+Kalmah - Studio Albums (9 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kalmah — финская англоязычная метал-группа. «Kalmah» в переводе с карельского значит «до смерти». Kalmah специализируется на быстром и неоклассическом направлении метала.2000 - Swamplord
+2002 - They Will Return
+2003 - Swampsong
+2006 - The Black WaltzЖанр: Melodic Death/Power MetalПродолжительность: 07:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0700D7D042554E94A1496492D70E8226F651223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686306   (126601) от 22.12.2023
 
 From Fall to Spring - RISE (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Rapcore>
@@ -601,151 +746,6 @@ Nebula Drag - Western Death (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Stoner R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:859DAF0F9AF3F7979000208362D9231C31E2B47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686722   (126186) от 24.12.2023
-
-Simple Stone - Through This Dark (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard & Heavy>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Secrets (00:02:38)
-02 - Inner Sanctuary (00:05:14)
-03 - Passing Through (00:02:45)
-04 - All The Same (00:03:14)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCBC1611DFBFDD416C2C6D93502DC5250A8B8F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686704   (126183) от 24.12.2023
-
-Shropshire Collective - For the Children (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experimental Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Drops of Poopiter (00:02:45)
-02 - Constantly Noble (00:03:27)
-03 - The Great Escalade (00:02:25)
-04 - Gator Tongue (00:03:48)(   Читать дальше...   )Жанр: Experimental RockПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B3E350E3B7ADDF52E0FC216A08C309B20EF6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686861   (126182) от 24.12.2023
-
-Starchild - Magic Well (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - War Isn't over Yet (00:03:15)
-02 - Castles in the Sky (00:03:34)
-03 - Westernworld (00:04:42)
-04 - Magic Well (00:03:39)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68BDBB66C4ACC8C528A994E337797E651A1DA835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686516   (126180) от 24.12.2023
-
-Critical Heartbeat - Revolution (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - God's Universe (00:06:50)
-02 - Revolution (00:05:27)
-03 - Wake Up (00:05:16)
-04 - In the Darkness (00:05:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C76ADD15F2D6B24D030E580CE408599CCA43E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686573   (126175) от 24.12.2023
-
-Junkyard Heights - Junkyard Heights (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rusty Truck (4:16)
-02. Springtime (5:21)
-03. Bullet (3:54)
-04. Train to the Morning Sun (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1BB2EBFF764F5B62ACEF856C47EC8DCDFE923D
 ```
 
 https://mybot314.ru/tekegram_catalog/

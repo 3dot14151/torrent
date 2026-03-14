@@ -1,3 +1,61 @@
+###  Публикация: 1444568   (1034455) от 02.02.2021
+
+Eamon Dilworth & Crawfish Po'Boys - Crawfish Fiesta (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues; Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawfish Fiesta (4:40)
+02. Far Too Long (3:11)
+03. Willie the Boatman (3:29)
+04. Mushroom Mumma (3:30)(   Читать дальше...   )Жанр: Blues; JazzПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7C4B475A901B6538ADB63336CBF67CED30F36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444570   (1034453) от 02.02.2021
+
+Eric Starczan - Bluesorama (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole Lotta Money (3:14)
+02. You Don T Belong on This Heart (3:46)
+03. Save My Soul (3:28)
+04. Call Somebody Else (2:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C655244D4FF13B56F4CD9D222EDFAC30A30E555D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444563   (1034452) от 02.02.2021
 
 Dr Goodvibe - Life Love Everything (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -687,64 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CED3EE8BC4DCCBF1630A1D7CAD560385E39B66EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445957   (1033256) от 07.02.2021
-
-Cozmic Jet - Whatcha Gonna Do (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Station (4:27)
-02. Turnin' On (3:09)
-03. Shadow of the Past (4:23)
-04. Whatcha Gonna Do (5:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7669A605FCC06FAAEB6085E3C79611981E5ECE6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445954   (1033253) от 07.02.2021
-
-A.J. Croce - By Request (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing From Nothing (3:35)
-02. Only Love Can Break Your Heart (3:33)
-03. Have You Seen My Baby (2:30)
-04. Nothing Can Change This Love (2:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC86C7042153A97F297AA02F8076E086458A28E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

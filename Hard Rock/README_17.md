@@ -1,3 +1,32 @@
+###  Публикация: 1311011   (544221) от 27.06.2019
+
+VA - Big Hair Metal (2019) [MP3|320 Kbps] <Hard Rock, Hair Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kiss - Do You Love Me (00:03:38)
+02 - Steve Stevens - Atomic Playboys (00:05:47)
+03 - Twisted Sister - Tonight (00:03:52)
+04 - Vince Neil - Sister of Pain (00:05:02)(   Читать дальше...   )Жанр: Hard Rock, Hair MetalПродолжительность: 03:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CCF2ECF3B03906AB0E9BDD9E61477B314D6DE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 817968   (542941) от 02.09.2014
 
 Phil Rudd (AC/DC) - Head Job (2014) [MP3|320 кб/с]<Hard Rock>
@@ -725,35 +754,6 @@ Zeremony - Survivin' Rock'n'Roll (2022) [MP3|320 Kbps] <Hard Rock Tradition>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11430BF00D833F57BB83199A542470AA99B71745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315737   (511792) от 21.07.2019
-
-Stranded - New Dawn (2019) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511792.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Not Enough Sorry [4:15]
- 2. I’ll Be The One [3:39]
- 4. Arrow [4:22]
- 5. More Than Words Can Say [3:41](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D20306273E51BD7F1B59875C695E473FDE9067
 ```
 
 https://mybot314.ru/tekegram_catalog/

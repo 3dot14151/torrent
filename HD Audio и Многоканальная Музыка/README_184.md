@@ -1,3 +1,148 @@
+###  Публикация: 1783404   (69791) от 06.03.2025
+
+Gravecloud - A Tear In The Veil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death / Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood Horizon [00:01:37]
+02. Smoke And Iron [00:04:39]
+03. Ashen Rain (The Tower I) [00:06:20]
+04. Evolving Chaos (The Tower II) [00:05:17](   Читать дальше...   )Жанр: Melodic Death / Symphonic MetalПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20442B7EEB4EF56BF1A13F9C96E16C506C7E8A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783397   (69787) от 06.03.2025
+
+Years Of Messages - The Bitterness of Love & Obsession (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Electro, EBM>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She [00:04:57]
+02. Distance [00:04:05]
+03. Obsession [00:03:57]
+04. Ego Death [00:04:09](   Читать дальше...   )Жанр: Dark Electro, EBMПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36ED9B8D314A0C9C91FADB6554D5123D82BEB3E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783421   (69786) от 06.03.2025
+
+Andrew Bird - Collection (2016-2024) [FLAC|24/44.1-96|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эндрю Бёрд — американский инди-рок-мультиинструменталист, певец и автор песен. С 1996 года он выпустил 16 студийных альбомов, а также несколько концертных альбомов и EP, охватывающих различные жанры, включая свинг, инди-рок и фолк.01. Crying In The Night (2:35)
+02. Stephanie (2:19)
+03. Without A Leg To Stand On (4:13)
+04. Crystal (4:43)(   Читать дальше...   )Жанр: Alternative & indie, jazz, pop, christmas musicПродолжительность: 04:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0510D25ABAB0754E6915A627C6DC73DF328102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783563   (69784) от 06.03.2025
+
+Stuka - Electronic Body Metal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <EBM, Electro Industrial>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chainsword Dismemberment [00:00:39]
+02. Death Is Certain [00:05:04]
+03. Violence [00:04:34]
+04. Red Planet Marches to War [00:05:35](   Читать дальше...   )Жанр: EBM, Electro IndustrialПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A21FEF1B71850E59CA6464217C8752A9E9E82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783737   (69769) от 07.03.2025
+
+Tate McRae - So Close To What (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69769.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Miss possessive (00:02:19)
+✧ 02 - Revolving door (00:03:00)
+✧ 03 - bloodonmyhands (00:02:42)
+✧ 04 - Dear god (00:02:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0C0E801D41706D3CDF464E2788AFE7A63B0A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783579   (69759) от 07.03.2025
 
 Destruction - Birth Of Malice (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -599,151 +744,6 @@ David Rose - My Disguise (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A31D475F8C530D45F99A261A310CAA060824A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784803   (69500) от 13.03.2025
-
-T.G. Copperfield - All In Your Head (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mule (3:34)
-02.  I'm On My Way (3:01)
-03.  Not Your Game (3:30)
-04.  Have Mercy On Me (2:58)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719F9030C949C4ABCEC9F6E0C1FA6C5D1D005ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784765   (69495) от 13.03.2025
-
-Visions Of Atlantis - Armada LIVE Over Europe (2025) (Live) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - To Those Who Choose to Fight (LIVE at Lyon) [2:20]
-02 - The Land of the Free (LIVE at Lyon) [4:42]
-03 - Monsters (LIVE at Nuremberg) [3:49]
-04 - Heroes of the Dawn (LIVE at Paris) [4:42](   Читать дальше...   )Жанр: Symphonic Metal, Gothic Metal, Power MetalПродолжительность: 01:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A9BA338EE08FDD7643A1E1AF943BAD58F757A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784796   (69491) от 13.03.2025
-
-David Rose - A Good Catch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  A Good Catch (2:42)
-02.  You Might Be the One (2:24)
-03.  As a Parrot Might (3:48)
-04.  Back Pocket (2:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1487E3BE68544C3898D7E6A709177B1AD68A292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784932   (69490) от 13.03.2025
-
-The Night Flight Orchestra - Give Us The Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Final Call (Intro) (0:33)
-02.  Stratus (5:06)
-03.  Shooting Velvet (3:58)
-04.  Like The Beating Of A Heart (4:45)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE60080D3C72D36DD5DBFEDF528367F40A072D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784917   (69488) от 13.03.2025
-
-Heldmaschine - Eiszeit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neue Deutsche Härte, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meine Welt (4:15)
-02. Schlag mich (3:57)
-03. Raus (3:53)
-04. Schachmatt (4:28)(   Читать дальше...   )Жанр: Neue Deutsche Härte, Industrial MetalПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612B4012937718F884855EA995C966893D034E4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

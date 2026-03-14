@@ -1,3 +1,32 @@
+###  Публикация: 1043873   (570924) от 17.08.2016
+
+VA - Ultimate Workout Music - House Hits (2016) [MP3|320 Kbps] <Fitness, Sports, Funky, Vocal, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grande Vue - Work Your Body 2.15 (Radio Mix) 03:15
+02. Marquee - Can You Feel It (Nrg Remix) 03:27
+03. Shilton - Make You Mine (Dj Moriarti Edit) 03:34
+04. Roaxx J - Drop The Bass (Radio Mix) 04:02(   Читать дальше...   )Жанр: Fitness, Sports, Funky, Vocal, ClubПродолжительность: 07:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEC73477E66B6661B3855728E737E715EA60E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921940   (569783) от 28.07.2015
 
 VA - 100 Золотых Танцевальных Хитов (2013) [MP3|256 - 320 кб/с]<Шансон, Поп-шансон>
@@ -758,35 +787,6 @@ VA - A Synthwave Panorama Vol. 1 (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2FA9E736EFA04BA96487AA211A195F57CAADCCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152639   (565400) от 23.07.2017
-
-VA - Hits Cocktail Vol.10 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liu - Don't Be Scared
-02. Sick Individuals - Never Say Never
-03. KREAM feat. Clara Mae - Drowning
-04. PSY - Love (feat. Taeyang)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 05:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F917B29195B3BAF07721A07CAE3BB466319B81
 ```
 
 https://mybot314.ru/tekegram_catalog/

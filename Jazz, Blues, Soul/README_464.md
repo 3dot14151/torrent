@@ -1,3 +1,175 @@
+###  Публикация: 1272810   (141544) от 29.12.2018
+
+Frank Wright - Unity (1974) 2006, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unity Part I [27:29]
+02. Unity Part II [29:00]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753D9F9159CCC0427577B4FD6E9AAB463B8DE45C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272803   (141499) от 29.12.2018
+
+Kenny Dorham - 'Round About Midnight At The Cafe Bohemia (1956) 2CD, 1995, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141499.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Monaco [6:44]
+02. 'Round About Midnight [7:46]
+03. Mexico City [6:02](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3196674ED44C8301B0AF1A3B3F726A6C91559A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088267   (141361) от 30.12.2016
+
+Eero Koivistoinen - Altered Things (1991) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Kabuki [05:30]
+ 02.Altered Things [06:47]
+ 03.Film Noir [07:54]
+ 04.Everblue [07:08](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Post-BopПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0BA2342D07415BBAAEBBA8FBCEAC72ACAF0706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088259   (141354) от 30.12.2016
+
+Digest - Digest (1994) Qvalitet[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tenderly [04:12]
+ 02.Ladies In Mersedes [03:22]
+ 03.Twelve Thousand Lights On My Way [04:50]
+ 04.Con Alma [02:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1659B140BF775EC40A36503B58431DB9A4A1BEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088260   (141344) от 30.12.2016
+
+Sam Most - From The Attic Of My Mind (1978) 2015, Xanadu[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.What Is, Is [05:39]
+ 02.Breath Of Love [05:54]
+ 03.Blue Hue [05:53]
+ 04.You Are Always The One [07:35](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89DDC26F2DBB1B50C14254037509FF7B6E4EB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088268   (141251) от 30.12.2016
+
+Gilberto Gil - Refavela (1977) 1994, Warner Music[FLAC|Lossless|tracks + .cue] <World Fusion, Brazilian Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Refavela [03:40]
+ 02.Ile Aye [03:09]
+ 03.Aqui E Agora [04:13]
+ 04.No Norte Da Saudade [04:19](   Читать дальше...   )Жанр: World Fusion, Brazilian Jazz, Bossa NovaПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50336EA32D94FE814CF7BF7AA4DEE04D5EF28F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520605   (140965) от 29.12.2021
 
 J.R. Monterose - The Message (1959) 1997, Venus Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -583,180 +755,6 @@ Clifford Jordan - These Are My Roots: Clifford Jordan Plays Leadbelly (1965) 200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D088A5918D21A66EFE7EC7309AE99A7EC902005A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273112   (139814) от 30.12.2018
-
-Chris Connor - Sings Lullabys For Lovers (1954) 2013, Bethlehem [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lush Life [2:56]
-02. Out of This World [2:55]
-03. Cottage for Sale [2:36]
-04. How Long? [2:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4860F8C79AE74A68693926FC71E21E68059853FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273109   (139795) от 30.12.2018
-
-Catherine Russell - Harlem On My Mind (2016) Jazz Village [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harlem on My Mind [4:17]
-02. I Can't Believe That You're in Love with Me [4:12]
-03. Swing! Brother, Swing! [2:34]
-04. The Very Thought of You [5:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCD89F51A1D022B07526D78252FFF0CBC5794C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273022   (139770) от 30.12.2018
-
-Sir Roland Hanna Plays The Music Of Alec Wilder (1998) Gitanes Jazz Productions [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Free [2:05]
-02. Moon and Sand [3:03]
-03. Mimosa and Me [3:31]
-04. Ellen [4:18](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C354FE80167859D35C8E682D0D3FFEB97DAD48A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970459   (139759) от 31.12.2015
-
-Elvin Jones - Poly-Currents (1969) Remaster, 2014, Universal[FLAC|tracks+.cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Agenda [13:53]
- 02.Agappe Love [05:55]
- 03.Mr. Jones [07:38]
- 04.Yes [02:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCF6B76E41F6F6776B6231FE815AFD35F2B2DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970592   (139740) от 31.12.2015
-
-David Newman - Newmanism (1974) Remaster, 2015, Warner[FLAC|tracks+.cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Baby Rae [06:52]
- 02.Song For The New Man [05:00]
- 03.Violet Don't Be Blue [05:01]
- 04.Foxy Brown [04:59](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9174702E90CCAA1660B1021FE14E42ADD41BDF92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970452   (139712) от 31.12.2015
-
-George Adams - Paradise Space Shuttle (1979) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Intentions [04:48]
- 02.Send In The Clowns [04:28]
- 03.Metamorphosis For Mingus [06:56]
- 04.Paradise Space Shuttle [04:13](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C2A574EEE6C75AA2594E4817C7AC093282A8E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

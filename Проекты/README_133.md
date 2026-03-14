@@ -1,3 +1,29 @@
+###  Публикация: 1022809   (727468) от 03.06.2016
+
+Проекты - VideoHive - Deep Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Logo Reveal - логотип, собирающийся из частиц.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D1CF74A1BA99D8F04B464F295EF247126D5DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022742   (727355) от 03.06.2016
 
 Проекты - VideoHive - Summer Pop [AEP]
@@ -644,32 +670,6 @@ Espion - это последовательность в драматическо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D60EE0913DF6A3A3451CA435988FE9598551F353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789768   (726134) от 25.05.2014
-
-VideoHive – Metal Sting Intro - 5012113 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4971F814639154BE0F5600088FC8D76A2FE40FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

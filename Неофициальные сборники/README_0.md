@@ -1,3 +1,90 @@
+###  Публикация: 1855557   (1058263) от 23.02.2026
+
+VA - No name compilation part 59 Assorted (2026) [MP3|320 Kbps] <Electronic, Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ai - Fading Echos
+02 - Saidjan - Stay With Me
+03 - Riltim - Dusk Till Dawn
+04 - Delih - Ocean Pulse(   Читать дальше...   )Жанр: Electronic, Pop, Dance, OtherПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54744983DF63F0EABFA8D40EE85D57872688D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855611   (1058219) от 24.02.2026
+
+VA - Lounge And Jazz Background Music (2024) [MP3|320 Kbps] <Lounge, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058219.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mandy Mars - Rewind
+002. Chillaxing Jazz Kollektion - Memories Of Us
+003. Kool&Klean - Amazing
+004. Landayn - Bright And Breezy(   Читать дальше...   )Жанр: Lounge, JazzПродолжительность: 08:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6E7D269B2A5532FB1443191D141FB6540F7235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855226   (1058129) от 23.02.2026
+
+Romantic Dreams - Favorites Collection Part 11 (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bright Future Calling
+02 - Invisible Eye
+03 - Broken Pieces, Mended Heart
+04 - Who Believe in Your Dreams(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0DED066F99960399E15F648A4C9977D1B6B5AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855476   (1058101) от 23.02.2026
 
 VA - Music News For Forum vol.163 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -658,93 +745,6 @@ VA - Contact 4: People & Machines (2026) [MP3|320 Kbps] <Minimal, Tech House, Ot
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55FD37C6CAC9CCF421D770B48436EC4679162EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854000   (1056960) от 15.02.2026
-
-VA - No name compilation part 50 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Vocal, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dndm - I Love Strong
-02 - Rodle - Love in the Dark
-03 - Umideep - Don’t Slow
-04 - Dova Music - In Your Shadow(   Читать дальше...   )Жанр: Electronic, Vocal, EurodanceПродолжительность: 02:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DEB99D9663006518DCE1218581548ECD388544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853658   (1056629) от 14.02.2026
-
-VA - ЕвроХит Топ 40 Europa Plus 13.02.2026 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - The Fate Of Ophelia (2:55)
-02. David Guetta & Teddy Swims & Tones & I - Gone Gone Gone (3:18)
-03. Haven. - I Run (2:09)
-04. Katseye - Gabriela (3:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB7058C76F3FD86FBB0AE66ED46BEFBBA7B2A942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852658   (1056305) от 10.02.2026
-
-ABBA best (1973-1981) [MP3|320 Kbps] <Еlectronic, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056305.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:20] . 01-He Is Your Brother
-[2:46] . 02-She's My Kind Of Girl
-[2:47] . 03-Waterloo
-[3:16] . 04-My Mama Said(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 02:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CF57ECBD57C0ECB0E02746FE2B3A1C3D57211B
 ```
 
 https://mybot314.ru/tekegram_catalog/

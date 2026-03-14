@@ -1,3 +1,32 @@
+###  Публикация: 1408688   (200163) от 07.04.2023
+
+VA - TOP Non-Stop 2010-2019 - Dance House Music (2020) [MP3|192-320 Kbps] <Funky House, Techno House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Penn & KPD - Disc-Jockey (2018) (4:22)
+02. The New Elastics - It's Just A Word (Kellerkind remix, 2012) (5:28)
+03. David Penn - That Vibe (2017) (4:35)
+04. Cesar Merveille & Pablo Cahn-Speyer - Tribute (2010) (8:14)(   Читать дальше...   )Жанр: Funky House, Techno House, Progressive HouseПродолжительность: 07:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7BE9E6F0FB7300333E784B3EB8887BDA727603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627030   (199705) от 17.04.2023
 
 VA - Крутые пушки Весна 2023 [MP3|320 Kbps] <Club, Dance, Other>
@@ -716,35 +745,6 @@ VA - Oriental Deep 2 (2022) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5939788D3E0DA6C95F28413E45E49B9BF3607C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588947   (190780) от 07.11.2022
-
-VA - Record Super Chart 05.11.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduza & James Carter feat. Elley Duhe & Fast Boy - Bad Memories (2:28)
-02. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)
-03. Dj Quba, Sandra K - Eins Zwei Polizei (2:14)
-04. Markul & Тося Чайкина - Стрелы (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3420F018BDE45A0CF321329681178E886991944A
 ```
 
 https://mybot314.ru/tekegram_catalog/

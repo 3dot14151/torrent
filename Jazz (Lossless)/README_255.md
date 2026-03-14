@@ -1,3 +1,90 @@
+###  Публикация: 1637049   (235278) от 02.06.2023
+
+Albert Ayler Trio - Spiritual Unity (1964) 2005, ESP [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghosts: First Variation [5:16]
+02. The Wizard [7:24]
+03. Spirits [6:50]
+04. Ghosts: Second Variation [10:00]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098EE24D6EAD7B72A67F1E9EBDD9A9C6A8F65453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641661   (235254) от 23.06.2023
+
+Jessica Williams - Gratitude (1996) Candid [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sheikh [6:39]
+02. I Cover the Waterfront [7:31]
+03. Mr Syms [7:08]
+04. Serenata [7:45](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22079461A5165437366ED4C44417FE4D993D319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619914   (235251) от 18.03.2023
+
+Ray Gelato And The Giants Of Jive - A Taste Of Gelato (1992) High Five Records [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley: Ornithology/How High the Moon [4:00]
+02. Swing St. [3:52]
+03. Airmail Special [5:12]
+04. Everybody Eats When They Come to My House [4:12](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD7B06BADCCF11D5531997CBFD4F89EF78978E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641665   (235247) от 23.06.2023
 
 Carmen Lundy - This Is Carmen Lundy (2001) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -655,93 +742,6 @@ Aberdeen - Held Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Brass Band, Jazz 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EACDC4FA058CBBB9839B67B1A0E6C8C1B707909C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621995   (234494) от 27.03.2023
-
-George Kawaguchi & The Super Band - Super Drums 1 + 2 (1985) King Record [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tappan Zee [3:17]
-02. Feels So Good [3:45]
-03. I Can't Get Started [5:10]
-04. Isn't She Lovely [3:37](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Big BandПродолжительность: 01:11:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E75C95FCEF0701510DF12FE84907BAC2576E006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642892   (234450) от 29.06.2023
-
-Amandus - Her Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Love (Feat. Uli Brodersen) (3:53)
-02. Her Love (Feat. Klyive) (3:30)
-03. Moving Up North (Feat. Uli Brodersen) (4:17)
-04. Things We Lost (4:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF0307E62A713B28A54EAFC8AFF49F2591A20EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642825   (234431) от 29.06.2023
-
-Luciana Souza - Storytellers (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Varanda [4:18]
-02. Matita Pere [8:34]
-03. Se Acontecer [5:12]
-04. Beatriz [5:42](   Читать дальше...   )Жанр: Vocal Jazz, Brazilian JazzПродолжительность: 00:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BCE625490DAF5B27E59A0F638B132D8A6F8FA48
 ```
 
 https://mybot314.ru/tekegram_catalog/

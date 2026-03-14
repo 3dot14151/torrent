@@ -1,3 +1,61 @@
+###  Публикация: 1258013   (341350) от 28.10.2018
+
+VA - Ori Uplift & Alternate High - Uplifting Only 298 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akku - Megumi (DreamLife Intro Edit)
+02. Sandro Mireno - It's Your Day (EXCLUSIVE PREMIERE)
+03. Chronosapien - El Comandante
+04. Miroslav Vrlik - In The Mood (Extended Mix(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FF027D40EDA1858B35A29EEF5952F1C6A8AB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211321   (340320) от 28.10.2018
+
+Hernan Cattaneo - Resident 348-356, 358-390 (2018) (Обновляемая) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident 348 (06-01-2018)
+01. Guy Gerber - Humming Bird Blues
+02. Guy Gerber - What To Do
+03. Joeski & Doc Martin - Vajra feat. Lillia(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 42:48:42 (еженедельный микс ∽ 01:00:00)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6305A5B4C14D895B7F92C81E4C36284CBD345306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330350   (339102) от 11.10.2019
 
 VA - Live @ Ultra Music Festival Japan (2019) [MP3|~245 Kbps (V0)] <Trance, Techno, Progressive House>
@@ -687,64 +745,6 @@ VA - Aly & Fila - Future Sound Of Egypt 523 (2017) [MP3|320 Kbps] <Trance, Uplif
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B378C6A2C9F4B2B94C36E1A5965303F9A813700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185822   (289834) от 23.11.2017
-
-VA - Ahmed Romel - Orchestrance 215 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pryda - Stay With Me
-02. Kiran M Sajeev - Liberator (Original Mix)
-03. NavidN2M & Hidden Tigress - Distance (Dub Mix)
-04. Fady & Mina - Scirish(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7F6AEE9F835105224BE43DB2888F39E7FC64B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335420   (287911) от 02.11.2019
-
-Neptune Project - Live @ Lost in Trancelation, Bikkuri Lounge Orlando, United States 2019-10-11 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Profitt - Luna (Christopher Lobsinger Remix)
-02. Interstate - I Found You (Perry O'Neil Remix)
-03. Lolo - Laia's Daydream
-04. Jam & Spoon - Stella (Nalin & Kane Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF999124C974CB0499E1755E532A9B012E995DB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

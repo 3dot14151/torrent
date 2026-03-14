@@ -1,3 +1,177 @@
+###  Публикация: 1580652   (329980) от 02.10.2022
+
+Mary Osborne - A Girl & Her Guitar (1945 - 1959) 2015, El [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love Paris [2:53]
+02. I Let a Song Go Out of My Heart [2:52]
+03. How High the Moon [2:55]
+04. When Your Lover Has Gone [3:51](   Читать дальше...   )Жанр: Bop, Guitar JazzПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498EE823D1A42A2B637ABBB0E5E8CBFF6253E00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580709   (329844) от 02.10.2022
+
+Thorbjorn Risager & The Black Tornado - Navigation Blues (2022) [FLAC|44.1/24|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Navigation Blues
+02. Watch The Sun Go Down
+03. The Way You Make Me Feel
+04. Fire Inside(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D58B2258DDA2AE58D2E31232B0AFC375143947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580736   (329821) от 02.10.2022
+
+Buddy Guy - The Blues Don't Lie (2022) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Let My Guitar Do The Talking
+02. Blues Don’t Lie
+03. The World Needs Love
+04. We Go Back (feat. Mavis Staples)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00643D88E9C3C42BEEC42A1F87C499AC6B14FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956685   (329482) от 15.11.2015
+
+Art Farmer - Yesterday's Thoughts (1975) 2015, Universal[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.What Are You Doing The Rest Of Your Life [09:53]
+ 02.How Insensitive [06:36]
+ 03.Namely You [05:59]
+ 04.Alone Together [09:32](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D7F85705BD7EC66EDCEB62BFAEA989068E01DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956695   (329451) от 15.11.2015
+
+VA - Conception: Lee Konitz, Miles Davis, Stan Getz, Gerry Mulligan (1949-1951) 2013, Universal[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lee Konitz - Odjenar [02:56]
+ 02.Lee Konitz - Hibeck [03:10]
+ 03.Lee Konitz - Yesterdays [02:29]
+ 04.Lee Konitz - Ezz-Thetic [02:56](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BD5C3867808B08B46CC82278075684E1485C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956747   (329448) от 15.11.2015
+
+Bill Evans - Peace Piece (1956-1962) 3CD 2014, Le Chant Du Monde[FLAC|tracks+.cue]<Cool, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329448.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Waltz for Debby [01:21]
+02.I Love You [03:57]
+03.Speak Low [05:11](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 03:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2F7144F09EBBE104812D7B7375CFAF707764DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580970   (329057) от 03.10.2022
 
 The Red Rodney Quintet - Red Alert! (1990) Continuum Recording [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -571,180 +745,6 @@ Kelly Richey - Sweet Spirit (2013) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B11C629CC8930DD897A2E908373016666504C38A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957755   (326658) от 18.11.2015
-
-VA - Electro Swing Elite Compilation (2015) [MP3|320 кб/с]<Electronic, Broken Beat, Nu Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Louie Prima & Wolfgang Lohr - Digga Dooh (05:47)
-02. The Swing Bot - Belle Demoiselle (06:22)
-03. Nikola Vujicic - SuperSwing (05:48)
-04. Phos Toni - Love Me or Leave Me (06:50)(   Читать дальше...   )Производство: Ton Liebt KlangЖанр: Electronic, Broken Beat, Nu Jazz, Electro SwingПродолжительность: 02:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC320463DDCFD981E80F032B03883835630F115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957513   (326536) от 18.11.2015
-
-Klischee - Touche (2014) [MP3|320 кб/с]<Nu Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entrée
-02. Tiquette
-03. Rendez-vous
-04. Plastique(   Читать дальше...   )Жанр: Nu Jazz, Electro SwingПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11BCDF24C107901CF7799896C4E1D86B16AF3362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581604   (326359) от 06.10.2022
-
-Snowy White - Driving On The 44 (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freshwater (07:14)
-02. Longtime Blues (05:02)
-03. Way Down In The Dark (07:34)
-04. Driving On The 44 (05:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91905B9C30881F830DA56DBF309F36300AD8B03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958041   (325870) от 19.11.2015
-
-Aubryn - Nothin' Civil (2015) EP [OGG|494-516 кб/с]<Blues, Folk, Americana, Cabaret>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothin' Civil
-02. Cure My Disaster
-03. Number One Fan
-04. In the Field(   Читать дальше...   )Жанр: Blues, Folk, Americana, CabaretПродолжительность: 00:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ADC890BBD55EFBD4A596952BC06C9280C4DC773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958009   (325845) от 19.11.2015
-
-Mike Zito & The Wheel - Keep Coming Back (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep Coming Back (03:38)
-02. Chin Up (03:58)
-03. Get Busy Living (03:51)
-04. Early In The Morning (03:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40130C9B1342BD11C2B4B77BD69BA686E646428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957985   (325844) от 19.11.2015
-
-Marlena Shaw - Anthology (2000) Soulb[FLAC|image+.cue]<Vocal Jazz, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Woman Of The Ghetto [06:05]
- 02.California Soul [03:01]
- 03.Mercy Mercy Mercy [03:01]
- 04.Wade In The Water [03:36](   Читать дальше...   )Жанр: Vocal Jazz, Soul JazzПродолжительность: 01:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47844F7D524F0DEBCFE392863165E59F4C9DE619
 ```
 
 https://mybot314.ru/tekegram_catalog/

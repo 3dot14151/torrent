@@ -1,3 +1,32 @@
+###  Публикация: 911041   (620668) от 21.06.2015
+
+Count Markus Cross - Possessed (2015) [MP3|320 кб/с]<Progressive, Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valhalla
+02. Sunspots
+03. Searching For The Sun
+04. Once In A Lifetime(   Читать дальше...   )Жанр: Progressive, Hard & HeavyПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C504E9062D7E5EDA63A03A7F5D6F26315BED45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910741   (620524) от 21.06.2015
 
 The Agony - Dirty And Dangerous (2015) [MP3|320 кб/с]<Hard Rock>
@@ -713,35 +742,6 @@ John West - Earth Maker (2002) [MP3|320 кб/с]<Melodic Progressive, Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85284BFD4A84D7FE0C7449E8D053264FCF4A7FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914191   (598563) от 02.07.2015
-
-Truk - Truk Tracks (1971) Remastered 2008 [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Woman
-02. Got To Find A Reason
-03. Pretty Lady
-04. Winter's Coming On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3AB5FABFE7E349C9C82DFB4A53BFDC4481184B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1032608   (643910) от 08.07.2016
+
+Hole - Celebrity Skin (1998) [WavPack|Lossless|image + .cue] <Grunge, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celebrity Skin
+02. Awful
+03. Hit So Hard
+04. Malibu(   Читать дальше...   )Жанр: Grunge, Alternative RockПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0227AE1719DE954D0CE7F442F92464A68985C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292684   (643387) от 31.03.2019
+
+And the Kids - When This Life Is Over (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Way Sit Back (04:36)
+02. Butterfingers (03:31)
+03. Champagne Ladies (04:26)
+04. 2003 (03:06)(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD21D2A9A152DF030D5D4DD8C99DE034C117B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227814   (643140) от 28.05.2018
+
+From Ashes To New - Day One (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land of Make Believe (3:12)
+ 02. Farther From Home (3:34)
+ 03. Lost and Alone (3:10)
+ 04. Shadows (3:27)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64371AA598D10540BDAAD48304A2ED71DB2D4BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541623   (643129) от 04.04.2022
 
 H.E.R.O. - Alternate Realities (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock>
@@ -658,93 +745,6 @@ Red Hot Chili Peppers - Unlimited Love (2022) Japanese Edition [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCB7D03A62216211712E60DF779DE90BCF2C5AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143723   (632908) от 19.06.2017
-
-Linkin Park - One More Light (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Can Save Me (3:46)
- 02. Good Goodbye (feat. Pusha T and Stormzy) (3:31)
- 03. Talking to Myself (3:51)
- 04. Battle Symphony (3:36)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC75AA8198C48B597F58A8EDBE132AA82D0AD808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143913   (631207) от 20.06.2017
-
-Royal Blood - How Did We Get So Dark? (2017) [FLAC|Lossless|tracks + .cue] <Alternative, Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Did We Get So Dark? (3:57)
-02. Lights Out (3:57)
-03. I Only Lie When I Love You (2:49)
-04. She's Creeping (3:23)(   Читать дальше...   )Производство: Warner Bros. Records, Black Mammoth Records – 0190295831172Жанр: Alternative, Rock, Garage RockПродолжительность: 00:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A1345923948693D1BC0329D233EC729A343EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143831   (631066) от 20.06.2017
-
-Nickelback - Feed The Machine (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feed The Machine (5:02)
-02. Coin For The Ferryman (4:50)
-03. Song On Fire (3:51)
-04. Must Be Nice (3:43)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE9B7B23F3FA538EF7A1E7F00CF646259C45ECA
 ```
 
 https://mybot314.ru/tekegram_catalog/

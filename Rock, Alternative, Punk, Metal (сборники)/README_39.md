@@ -1,3 +1,32 @@
+###  Публикация: 1655142   (204551) от 25.08.2023
+
+VA - Compilation Female Assorted part 30 (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaetano Pellino - Ain't No Sunshine
+02. Victoria Ginty - Every Night, Every Day
+03. Soulmate - Lie
+04. Soulmate - Set Me Free(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F4C22FEF81EE88609BCC4502AF0BE306C9F98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654971   (204487) от 25.08.2023
 
 Danny Bryant - Compilation (2023) [MP3|320 Kbps] <Rock, Blues Rock>
@@ -713,35 +742,6 @@ Jimi Hendrix - Greatest Hits (2CD) (2010) Remaster SMRP, Russia, 2020, De-Noised
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA8E657B23BA9D2505810FF98F0023B0FF0117C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592331   (182941) от 23.11.2022
-
-VA - Music For You vol. 25 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - No Quarter (07:02)
- 02. Jade Warrior - Three Horned Dragon King (06:10)
- 03. Sebastian Hardie - Openings (13:08)
- 04. Curved Air - Vivaldi (07:33)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 03:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC59202C7FBBEC3A6412F0D2D29131DADA4F519
 ```
 
 https://mybot314.ru/tekegram_catalog/

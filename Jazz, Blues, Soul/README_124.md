@@ -1,3 +1,177 @@
+###  Публикация: 1200795   (795025) от 22.01.2018
+
+Baby Laurence - Dancemaster (1959, 1960) 2008, Classic Jazz [FLAC|Lossless|image + .cue] <Tap Dance, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby at Birdland [04:29]
+02. The Sand [04:50]
+03. Buck Dance [05:06]
+04. Mall March [03:50](   Читать дальше...   )Жанр: Tap Dance, SwingПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD88958746FD8984A1DA71156277296EFAB1706D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200794   (795024) от 22.01.2018
+
+Frankie   Newton - 1937 - 1939 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Showed Me The Way [02:47]
+02. Please Don't Talk About Me When I'm Gone [02:37]
+03. Who's Sorry Now? [02:48]
+04. I Found A New Baby [02:40](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED8F56B541B2F15C9954B6909E200B25F305C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200791   (795022) от 22.01.2018
+
+Cody Moffett - Evidence (1993) Telarc Jazz [WavPack|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melodic Drum March I [01:37]
+02. Blues Connotation [04:54]
+03. Evidence [05:21]
+04. Equinox [08:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B138D9073D7A89F8B228EBABC76F76F2180A110C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509338   (795010) от 12.11.2021
+
+Stan Getz - Four Classic Albums: Third Set (1949 - 1958) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795010.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Stella by Starlight [2:42]
+02. Time on My Hands [2:56]
+03. 'Tis Autumn [3:13](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 02:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C39D88CCDA4A44375B31D0B41E67F0EF3284AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509270   (794903) от 12.11.2021
+
+Tony Bennett & Lady Gaga - Love For Sale (2021) 2xCD [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794903.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Love For Sale:
+01. Tony Bennett & Lady Gaga - It's De-Lovely (00:02:53)
+02. Tony Bennett & Lady Gaga - Night And Day (00:03:42)
+03. Tony Bennett & Lady Gaga - Love For Sale (00:03:40)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD4693901A6895DE80A71651448E55ED85C17CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509343   (794882) от 12.11.2021
+
+Eric Clapton - The Lady In The Balcony Lockdown Sessions (Live) (2021) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody Knows You When You're Down And Out (Live)
+02. Golden Ring (Live)
+03. Black Magic Woman (Live)
+04. Man Of The World (Live)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F08345FD852B6E7C5D6BFDB305E7007BB6665D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012357   (794873) от 30.04.2016
 
 Leo Wright - Soul Talk (1963) Remaster, 2013, Warner[FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
@@ -573,177 +747,6 @@ Robin Bessier - Open Road (2016) [MP3|320 кб/с] <Jazz, Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C267B5AAE11D689E870DA59EEE63B397D5FCF09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012554   (793631) от 01.05.2016
-
-Miles Davis - Kind Of Blue (1958) 2CD, 2010, Not Now Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793631.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Kind Of Blue:
-01.So What [09:26]
-02.Freddie Freeloader [09:49]
-03.Blue In Green [05:40](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14AEBF6D46C44EDAD07DFB7EDFDB05A123EAF679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122966   (793622) от 06.04.2017
-
-Bill Thomas Trio - Rough Draft (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Been Bad (02:44)
-02. Daddy Told Me (04:44)
-03. Your Time Has Come (04:38)
-04. Don't You Know (03:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E0AC6536B6AEB1F0C57ACC5B61688497759D6EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123040   (793617) от 06.04.2017
-
-Buddy Rich - The Solos (1976, 1977) 2014, Lightyear Entertainment [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Drums>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Solo 1Жанр: Mainstream Jazz, Big Band, DrumsПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A96EFE9901619F3C15B3E22C0F55AA0D2B419B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122823   (793615) от 06.04.2017
-
-VA - Tonight Jazz, Thoughtful Atmosphere Nice Evening Jazz (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Background Piano Music Ensemble — Tonight Jazz
-02. Calming Jazz Relax Academy — Jazz Cafe: Good Jazz
-03. Piano Bar Music Oasis — Relaxing Jazz Music
-04. Modern Jazz Relax Group — Cocktail & Drinks(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DE5C78DEBDFEC711403C060259114B59DC1C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386579   (793585) от 30.05.2020
-
-Otis Redding - Otis Blue / Otis Redding Sings Soul (1965) Remastered 1991, Mono [FLAC|Lossless|tracks] <Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ole Man Trouble (2:40)
-02. Respect (2:09)
-03. A Change Is Gonna Come (4:16)
-04. Down In The Valley (3:01)(   Читать дальше...   )Жанр: Funk / SoulПродолжительность: 00:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202DFAF89518964EFF2AD850C92B6FAE0B235EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386520   (793471) от 30.05.2020
-
-James Brown - Live At The Apollo (1962) Expanded Edition Remastered 2004 [FLAC|Lossless|tracks] <Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live at the Apollo — концертный альбом Джеймса Брауна и The Famous Flames, выпущенный в 1963 году. Концерт записан в театре Аполло 24 октября 1962 года. Занимает 25-е место в списке «500 величайших альбомов всех времён по версии журнала Rolling Stone».01. Introduction to James Brown (1:49)
-02. Ill Go Crazy (2:05)
-03. Try Me (2:27)
-04. Think (1:58)(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87370EC4D7651660146C422CF2118493A4D5FD11
 ```
 
 https://mybot314.ru/tekegram_catalog/

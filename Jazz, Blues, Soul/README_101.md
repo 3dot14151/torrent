@@ -1,3 +1,61 @@
+###  Публикация: 1378999   (843051) от 27.04.2020
+
+Kishi Mitsuaki Trio And Harry Allen (2017) Swing Bros. Records Inc. [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Won't Dance [5:52]
+02. Come Dance with Me [5:25]
+03. Let's Face the Music and Dance [4:57]
+04. By the Time I Get to Phoenix [5:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2698891220555567BAACC3ECEF31118DBC21AC52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500193   (842721) от 05.10.2021
+
+Anita O'Day - The Jazz Stylings Of Anita O'Day (1955 - 1962) Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honeysuckle Rose [3:18]
+02. Four [2:54]
+03. Trav'lin' Light [3:38]
+04. Four Brothers [2:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B6F405246FF948CCAD0DA12D824D968B0C028B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500188   (842719) от 05.10.2021
 
 Erroll Garner - Milestones Of A Jazz Legend (1944 - 1959) 10CD, 2021, The Intense Media [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
@@ -140,6 +198,35 @@ Chris Rea - Blue Guitars V - Texas Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5CD6BC2438CF5509B4BA1CADCBC6C97797A6B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003925   (841906) от 04.04.2016
+
+Lou Donaldson Quartet - Live In Bologna (1984) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_841906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stella By Starlight [09:27]
+ 02.Groovin' High [08:31]
+ 03.Summertime [09:05]
+ 04.Lou's Blues [09:21](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F37CA1D86C264E7C69A4B849D05B5EC2E44380
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,6 +400,35 @@ Gerry Mulligan & His Ten-Tette / Shorty Rogers - Modern Sounds (1951, 1953) 2008
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E4CF4E5A25AA1017D40BBB0F2492ACAA3D5BCAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112643   (841642) от 09.03.2017
+
+Linda Riggi - Born With The Blues (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Guitar Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_841642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricane Woman (5:30)
+02. It's A Dream (4:35)
+03. Mind Body And Soul (3:38)
+04. Bottle Of Brandy (4:12)(   Читать дальше...   )Жанр: Blues, Guitar Blues, Blues-RockПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A418250755D3A9780EE119AC4D466D7A2A5F9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,122 +753,6 @@ Russ Garcia & His Vocal Choir & Orchestra - Sounds In The Night (1957) Remaster,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85C8879F0D2EFB05F8088F4737D0103E7F0D9D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004332   (840313) от 05.04.2016
-
-Lisa Lystam Family Band - Give You Everything (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give You Everything (04:37)
-02. Changes (04:27)
-03. Mean Man (03:53)
-04. Worship Me (04:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76990D05088C1FC402BDCC7DFB6217A345F9D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113130   (840211) от 10.03.2017
-
-Andy Narell - Fire In The Engine Room (2000) Heads Up [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chakalaka [06:58]
- 02.Unusual Bird [07:47]
- 03.Coffee Street [08:13]
- 04.Blue Mazooka [07:54](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA14C7D20E84CE7434090262C879AD45B98D31C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112898   (840207) от 10.03.2017
-
-Kaira - Kaira (2017) [FLAC|Lossless|WEB-DL|tracks] <Cool Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840207.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shining Star (4:11)
- 2. Never Say Never (5:05)
- 3. You Are Too Perfect (4:50)
- 4. Playing With Your Life (5:10)(   Читать дальше...   )Жанр: Cool JazzПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D68C869AAA7ECD47318994B1BB919A27D342FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004258   (840204) от 05.04.2016
-
-Thelonious Monk - Blue Monk (1948-1963) 3CD, 2014, Le Chant Du Monde[FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840204.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Misterioso [02:47]
-02.Evidence [02:35]
-03.Mohawk [03:39](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 03:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E72E7305403E485B622A38C546135A9D8EAE40
 ```
 
 https://mybot314.ru/tekegram_catalog/

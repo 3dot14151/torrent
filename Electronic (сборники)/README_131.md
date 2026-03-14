@@ -1,3 +1,32 @@
+###  Публикация: 934644   (502626) от 05.09.2015
+
+VA - Delicious Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Souldeep - The Groove - Steve Sine Remix
+02. Mark Samderson - I Superstar - Starwaves Gold Mix
+03. Mail 77 - I Would Fly - Antoine Seranuit Mix
+04. Paul Welsh - Amsterdam Soap - Deep Voice Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F5F22618A99DAE668F8A2634BA39F0DA11D7A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934653   (502532) от 05.09.2015
 
 VA - Delicious Deep House Vol 2 (2015) [MP3|320 кб/с]<Deep House>
@@ -746,35 +775,6 @@ VA - Record Super Chart 598 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0249AED84AC559C55FE461796454E59E6CB18D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936100   (497658) от 10.09.2015
-
-VA - Progressive Fresh House (2015) [MP3|320 кб/с]<Progressive, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497658.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A.SWIFT - Weekend Day (Bee Hunter Remix)
-002. Catrina Davies, Danny Jr Crash - Dick (Extended Mix)
-003. Coraz Feat. Chris Lago - With My Love Again (Dan Chase Remix)
-004. Christopher Hermann - Dilemma(   Читать дальше...   )Жанр: Progressive, Club HouseПродолжительность: 10:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6960223356D24890BE157A5B59009326CCCF1DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

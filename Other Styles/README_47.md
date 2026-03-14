@@ -1,3 +1,148 @@
+###  Публикация: 1124071   (785927) от 10.04.2017
+
+Mixed Choir под управлением М. Попсавова - Страстная пятница - Bulgarian Orthodo (1993) [FLAC|Lossless|tracks + .cue] <Orthodox Liturgy>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Great Litany (Velika ektenia) [6'13"]
+02. Good-Looking Joseph (Blagoobraznii Jossif) [8'05"]
+03. Grave-Wailing (Nadgroben plach) 20:44
+04. Eulogitarium [06:16](   Читать дальше...   )Жанр: Orthodox LiturgyПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270A002BEE164A55CEDD39D4B10834C02C581B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124093   (785910) от 10.04.2017
+
+VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Memories Are Made of This (02:17)
+02. Sonny Rollins - St. Thomas (06:46)
+03. Mark Ronson - Feel Right (03:43)
+04. Otis Redding - Hard To Handle (02:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AA2CEED75A83E547B48D2E246F8103A9746E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124095   (785908) от 10.04.2017
+
+VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Memories Are Made of This (02:17)
+02. Sonny Rollins - St. Thomas (06:46)
+03. Mark Ronson - Feel Right (03:43)
+04. Otis Redding - Hard To Handle (02:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D695079EC7B0639DB9CD66DF55654A92AF7AA5C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124304   (785780) от 11.04.2017
+
+The Nexion-Project - Voices of the Ascension (2011) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn  (02:15) 
+02. Passing Time  (02:08) 
+03. The Second World  (03:09) 
+04. Fly Away  (03:14) (   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E5EA7D1B6FA34BE3CA6FFB7B4302D5DA15CCDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124746   (785646) от 12.04.2017
+
+Аlрha Wаvе Моvemеnt - Сеruleаn Skіes (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785646.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. As Above So It Flows 05:37
+2. Organic Metamosphosis 14:21
+3. Thermospheric Induction 05:32
+4. Lattices Of Light 09:18(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:761F83ACCC0DF539C087EC730796FC0C72CAEFE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124715   (785613) от 12.04.2017
 
 Птицы Тёрна - «Живой» альбом (2017) Live [MP3|320 Kbps] <Fantasy Folk>
@@ -595,151 +740,6 @@ Armik - Discography (32CD) (1994/2018) [MP3|320 Kbps] <Nuevo Flamenco, Spanish G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB6714181B2F524AD5DA0CE9B42B1E5A11728630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390677   (782694) от 16.06.2020
-
-The Byrds - Sweetheart Of The Rodeo (1968) Remastered 1997 [FLAC|Lossless|tracks + .cue] <Folk Rock, Country Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Ain't Going Nowhere (2:36)
-02. I Am A Pilgrim (3:41)
-03. The Christian Life (2:32)
-04. You Don't Miss Your Water (3:50)(   Читать дальше...   )Жанр: Folk Rock, Country RockПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5081507E256D1E395FDAF010760C23A627AD664F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390331   (782686) от 16.06.2020
-
-John Martyn - One World (1977) CD album, Reissue 1990 [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dealer (4:59)
-02. One World (4:10)
-03. Smiling Stranger (3:30)
-04. Big Muff (6:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C401800900FA31FDAE4E9733BED257631DD7DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390696   (782673) от 16.06.2020
-
-Johnny Cash - Johnny Cash At San Quentin (1969) [FLAC|Lossless|tracks + .cue] <Rock,  Country Rock, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big River (1:56)
-02. I Still Miss Someone (1:52)
-03. Wreck Of The Old 97 (2:05)
-04. I Walk The Line (3:29)(   Читать дальше...   )Жанр: Rock,  Country Rock, FolkПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9815A224C485AC5C83D7A49C5EC20D032BFE561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390760   (782253) от 17.06.2020
-
-Robert Wyatt - EPs (1974-1978) 1999 Box Set 5 CD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Уайатт (англ. Robert Wyatt; 28 января 1945, Бристоль) — британский музыкант, один из создателей влиятельной в прогрессивном роке группы Soft Machine. Женат на английской художнице и авторе песен Альфреде Бенж.01. Was a Friend (5:48)
-02. Maryan (6:46)
-03. A Sunday In Madrid (6:58)
-04. Free Will and Testament (4:33)Жанр: Jazz, Folk, World, & CountryПродолжительность: 00:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43DE6C0F10792791C640F8A64A7A8C0D4998697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205303   (782053) от 14.02.2018
-
-Justin Johnson - Turquoise Trail: Soundtrack for a Western (2017) 2CD [MP3|320 Kbps] <Western, Bluegrass, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782053.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Turquoise Trail
-02. Black Heart of Gold
-03. Pistolero(   Читать дальше...   )Жанр: Western, Bluegrass, FolkПродолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC78F44E49625760960178C7CAB8559E7F3B3BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

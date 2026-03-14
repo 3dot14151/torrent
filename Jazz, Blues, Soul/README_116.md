@@ -1,3 +1,178 @@
+###  Публикация: 1119220   (809131) от 27.03.2017
+
+Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riviera Life
+02. Dr. Wanna Do
+03. A Night Like This
+04. Just One Dance(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BA50CB1B076E9CAEE1555D7E92F7443E8697E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119235   (809127) от 27.03.2017
+
+Caro Emerald - Emerald Island (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Neo-swing, Vocal Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tahitian Skies
+02. The Ghost Of You
+03. Never Ever
+04. Exotic Flu(   Читать дальше...   )Жанр: Neo-swing, Vocal Jazz, Pop JazzПродолжительность: 00:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A90B60AF0A72CC23D536D5EB88E20C886D239E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884114   (809013) от 02.04.2015
+
+Joe Bonamassa - Muddy Wolf At Red Rocks (2015) 2CD [FLAC|Lossless]<Blues rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809013.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Muddy (00:50:50)
+CD2 - Wolf & Joe (01:16:35)Треклист CD1:
+01. We Went Down To The Mississippi Delta
+02. Muddy Waters Talking
+03. Tiger In Your Tank(   Читать дальше...   )Жанр: Blues rock |Продолжительность: 02:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF1549EBD21AB1983E478A46ED618FB0A396671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 778234   (808620) от 17.04.2014
+
+Sarah Vaughan - Duke Ellington Songbook , Vol. 1,2 (1980) /2000 - Галактис/ [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Ain't Got Nothin' But The Blues [04:36]
+02. Black Butterfly [03:01]
+03. Chelsea Bridge [03:25]
+04. What Am I Here For [03:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50D65AFB14ACE3BDB5C87C560DE9D4EF3D44F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504930   (808434) от 25.10.2021
+
+Buddy Tate Meets Abdullah Ibrahim - The Legendary 1977 Encounters (1996) Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goduka Mfundi (Going Home) [7:18]
+02. Heyt Mazurki [6:56]
+03. Poor Butterfly [8:32]
+04. In a Sentimental Mood [7:32](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F535832130452F7C61F49313C21A968240811A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009717   (808363) от 22.04.2016
+
+Art Farmer - Listen to Art Farmer and the Orchestra (1962) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Street of Dreams [04:22]
+ 02.Rain Check [03:44]
+ 03.Rue Prevail [04:12]
+ 04.The Sweetest Sounds (From 'No Strings') [04:39](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B0A7407314521F94B79FB0F40B0A44E1E5BF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009797   (808362) от 22.04.2016
 
 Leo Wright - Blues Shout (1960) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -571,180 +746,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7925280176DCC5D7E1BEF6528044E335CECB5787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119818   (806082) от 29.03.2017
-
-Duke Ellington - Duke's Mood (1956) 2002, Rockin' Chair [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Jeep Is Jumpin' [02:26]
- 02.Creole Love Call [03:48]
- 03.Ko-Ko [02:18]
- 04.Midriff [03:51](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:001278A2A46EAF89C73202863476159224D8EC6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119843   (806080) от 29.03.2017
-
-Sonny Stitt - Stitt Goes Latin (1963) Remaster, 2011, Roost [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Are You Listening [03:37]
- 02.Amigos [04:43]
- 03.My Little Red Suede Shoes [04:11]
- 04.Ritmo Bobo [06:12](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8BDF9CEB3A4986820425DD61D257D689885C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119848   (806076) от 29.03.2017
-
-Chet Baker - Baby Breeze (1965) 2002, Universal [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Baby Breeze [03:09]
- 02.Born To Be Blue [04:06]
- 03.This Is The Thing [04:56]
- 04.I Wish You Love [03:13](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Vocal JazzПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE8755352FDBF5B76A8EE2FB9D5E91970F8840F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119823   (806061) от 29.03.2017
-
-John Pizzarelli with The George Shearing Quintet - The Rare Delight of You (2002) Telarc [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.If Dreams Come True [03:51]
- 02.The Lady's In Love With You [02:44]
- 03.Everything Happens To Me [03:47]
- 04.Lulu's Back In Town [02:57](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F23EED3F66181E1016B1840934871F35C400ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119679   (805491) от 29.03.2017
-
-VA - Jazzy Coffee Shop Mood (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Morning Jazz Academy - Jazzy Coffee Shop Mood
-02. Coffee Lounge Collection - One Scotch
-03. Jazz Music Collection - I Leave with My Heart Clear
-04. Wake Up Music Paradise - In the Mood(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C2350226E18B9273ED2790A07110D3065FE87B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119901   (805139) от 29.03.2017
-
-100 Watt Vipers - Something Wicked Comes This Way (2014) [MP3|320 Kbps] <Blues, Hard Blues Rock, Garage Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something Wicked Comes This Way [03:14]
-02. Hurricane [03:11]
-03. Doing The Best I Can [03:25]
-04. My Cup Is Empty [04:58](   Читать дальше...   )Жанр: Blues, Hard Blues Rock, Garage RockПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00609B9898FE2A64EDF6ED767C00A1371277330D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 975041   (974464) от 13.01.2016
+
+Hiromi - Spiral (2005) SACD, 2006 Telarc [FLAC|Lossless|tracks + .cue] <Post Bop, Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiral (10:04)
+02. Music for Three-Piece-Orchestra: Open Door - Tuning - Prologue (10:16)
+03. Music for Three-Piece-Orchestra: Déjà vu (7:45)
+04. Music for Three-Piece-Orchestra: Reverse (5:09)(   Читать дальше...   )Жанр: Post Bop, Fusion, Contemporary JazzПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D89455D8F966B0DF391B616C5A9BCD72A8D62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974949   (974463) от 13.01.2016
+
+Muddy Waters - Bottled Up (2016) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got My Mojo Working
+02. Goodbye Newport Blues
+03. I Got My Brand On You
+04. Got My Mojo Working, Pt. 2(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F211FEAB50CF64DA63900CB308066A9513C1A74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975047   (974403) от 13.01.2016
 
 Johnny Griffin & Dexter Gordon - Jazz Undulation (1968) Remaster, 2014,Studio Songs[FLAC|tracks+.cue] <Hard Bop>
@@ -686,64 +744,6 @@ Kim Simmonds - Blues Like Midnight (2001) [MP3|320 кб/с] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E8AB48EE36C0D8404D27D0441CC19C90093DDC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358543   (968825) от 08.02.2020
-
-Ivan Paduart - Alone (2005) Alone Blue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So [4:20]
-02. Renaissance [2:34]
-03. Arythmie [1:49]
-04. Spring in Your Mind [1:26](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64EDF17AA0241D189D633EFDD74C9E5F507AA921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976673   (968814) от 18.01.2016
-
-Даниил Крамер (Daniel Kramer) - Вальс для прелестной жены (Waltz For A Lovely Wife) (2000) Ermatell Records[FLAC|tracks+.cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Waltz for A Lovely Wife (Phil Woods) [08:05]
- 02.A Child Is Born (Ted Jones) [08:49]
- 03.Memories of Tomorrow (K.Jarrett) [07:26]
- 04.Sea Journey (C.Corea) [09:23](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2270FFABA3CA631DC510F5AF9BDECDB7AE79FFA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,87 @@
+###  Публикация: 778574   (804339) от 19.04.2014
+
+VA - Pure... Jazz (2010) Box Set, 4 CD [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие из джазистов, представленных здесь, уже побывали в нашем клубе в различных релизах. Но, если вы хотите получить представление о всех стилях  джаза что называется "в одном флаконе", то обязательно послушайте эти 4 диска. Фирма Sony, продолжая свою серию Pure... (см. под спойлером остальные части), знакомит любителей музыки с самыми знаменитыми джазовыми (   Читать дальше...   )Жанр: Jazz (стили см. под спойлером)Продолжительность: 04:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6F1F0FC4A9C2521346356AAD7B1ACB84E1EFD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010313   (804307) от 24.04.2016
+
+Reuben Wilson - Got to Get Your Own (1975) 2008, Dusty Groove America[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.What the People Gon' Say [04:18]
+ 02.In the Booth, in the Back, in the Corner, in the Dark [04:22]
+ 03.Back Rub [03:55]
+ 04.Tight Money [05:17](   Читать дальше...   )Жанр: Jazz-Funk, Soul-JazzПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2943372D69806978079C16EE5E1D427BF1F9D75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010349   (804298) от 24.04.2016
+
+Jazz Crusaders featuring Wayne Henderson - Kick The Jazz (2008) [FLAC|Lossless|tracks + .cue] <Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Younger Rabbits (3:50)
+02. Keep That Same Old Feeling (4:27)
+03. Welcome To The New Year (4:11)
+04. Scratch It (6:34)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A37B999E3CDF0A01793D26C450E41B59A9EB41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120286   (803657) от 30.03.2017
 
 Gregory Fine (Григорий Файн) Trio - Happy Bluesday (1999) Boheme Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -658,93 +742,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E26D187C28FB9F2ABE858FA173539F0FFA254964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120701   (801268) от 01.04.2017
-
-Don Cherry - Home Boy (1985) Barclay [FLAC|Lossless|tracks + .cue] <World Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Butterfly Friend [03:45]
- 02.I Walk [03:12]
- 03.Rappin Recipe [06:49]
- 04.Reggae To The High Tower [04:12](   Читать дальше...   )Жанр: World Fusion, Jazz-FunkПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532E83CA169E331350B8E32769D4EF6D8F3008C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120799   (801246) от 01.04.2017
-
-Doris Day - The Real... Doris Day (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. The Very Thought of You
-2. Que Sera Sera (Whatever Will Be, Will Be)
-3. Silver Bells(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 03:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFCC3D104FDB89AB9B873EF3D594DC16D7BCFEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199515   (801145) от 16.01.2018
-
-Cliff Jackson - 1930-1945 (1997) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hose Feathers [02:48]
-02. Torrid Rhythm [02:31]
-03. Ring Around The Moon [02:36]
-04. We'll Be Married In June [02:54](   Читать дальше...   )Жанр: Early Jazz, Swing, Piano JazzПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F074C97848099FC5209C9BDB2E6135D32B852A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1208442   (779999) от 22.02.2018
+
+Harold Vick - Steppin' Out! (1963) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Miss Brooks [07:30]
+02. Trimmed In Blue [06:13]
+03. Laura [04:42]
+04. Dotty's Dream [06:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC02A82CE2D5145BE005BFB8DEC7934CCBEB22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208437   (779998) от 22.02.2018
+
+Bob Brookmeyer And Friends (1964) 2017, Sony Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jive Hoot [04:44]
+02. Misty [05:19]
+03. The Wrinkle [05:22]
+04. Bracket [05:00](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262DA02C7667093CCBABCBD9EE64485E4AED14C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208600   (779962) от 22.02.2018
+
+Kenny Bland - Morning Jazz Background (2018) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Perfect Start of Day	3:48
+02.	Relaxing Guitar	4:16
+03.	Positive Jazz	3:34
+04.	After Hard Night	3:18(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD97B04C53DB26C882493F7533B46FF64334497E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208690   (779822) от 23.02.2018
+
+Enrico Pieranunzi Latin Jazz Quintet - Live At Birdland (2008) 2010, CAM Jazz [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk [00:12]
+02. Danza 2 [14:42]
+03. Choro del Infinito Hombre [09:08]
+04. Rosa del Mare [06:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB15DB64E020D05705AD4D48390C1DFA9F9B710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208693   (779820) от 23.02.2018
+
+Helen Forrest & Benny Goodman - The Complete Helen Forrest With Benny Goodman (1939 - 1941) 3CD, 2001, Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779820.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Busy As A Bee (I'm Buzz, Buzz, Buzzin') [03:15]
+02. What's The Matter With Me? [03:06]
+03. What'll They Think Of Next? [03:18](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 02:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9820CDEF6787709BA17B59DAB568AA13CF276D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208689   (779815) от 23.02.2018
+
+Bill Evans - The Bill Evans Album (1971) 2017, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funkallero [07:49]
+02. The Two Lonely People [06:14]
+03. Sugar Plum [07:06]
+04. Waltz for Debby [07:46](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:508A6E175467AE51B155A95FD4DC0858E0ACABE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208928   (779690) от 24.02.2018
 
 Teddy Hill And His Orchestra - 1935 - 1937 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -571,180 +745,6 @@ Terry Gibbs - A Jazz Band Ball, Second Set (1957) 1998, V.S.O.P. Records [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F39B8D78837C089C3A8AF37084AC27D4796F2D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211007   (778270) от 05.03.2018
-
-Curtis Fuller - Smokin' (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smokin' [11:36]
-02. Jacque's Groove [06:17]
-03. Sop City [08:10]
-04. People, Places & Things [07:27](   Читать дальше...   )Жанр: Hard Bop, Jazz FusionПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3715C66D917DC192E3BC39A758F1297B081E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210960   (778269) от 05.03.2018
-
-Curtis Fuller - Crankin' (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crankin' [07:10]
-02. Maze [11:30]
-03. Black Bath [09:54]
-04. Ballade [05:08](   Читать дальше...   )Жанр: Hard Bop, Jazz FusionПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CBE8411C0D2E0CD19271D4A782DD6B24FB8D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013235   (778004) от 03.05.2016
-
-Rein de Graaff Quintet - New York Jazz (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fifty Six [03:57]
- 02.A Monk's Dream [10:08]
- 03.Wail [03:27]
- 04.Solar [05:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24575AD6D649FA87F42A65973235200802294518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013196   (777998) от 03.05.2016
-
-VA - Jazz Olympics (2009) AMG Records[FLAC|Lossless|image + .cue] <Post-Bop, Big Band, Smooth Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Toots Thielemans - Best of Yourself [05:22]
-02.David Linx & Brussels Jazz Orchestra - Fraternity [05:02]
-03.Philip Catherine - Friendship [04:04]
-04.Nathalie Loriers Trio - Confidence [05:24](   Читать дальше...   )Жанр: Post-Bop, Big Band, Smooth Jazz, Vocal JazzПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48741503701EAB4470CB85304BF430E5FEFFBE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012995   (777996) от 03.05.2016
-
-Bruno Muller - Inner Back Home (2016) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Back Home
-02. Joers Tune
-03. Someday Werll All Be Free
-04. Butterfly(   Читать дальше...   )Жанр: FusionПродолжительность: 01:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA9B39D8D293607CE81ED2A84DF3603397A945A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012999   (777992) от 03.05.2016
-
-Brian Bromberg - Full Circle (2016) [FLAC|Lossless|image + .cue] <Bop, Post Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Me Blues
-02. Full Circle
-03. Sneaky Pete
-04. Saturday Night In The Village(   Читать дальше...   )Жанр: Bop, Post BopПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A44B1DA36FB91CFFF75FF02E401AA33FE972AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 643379   (875633) от 13.04.2013
+
+Gabin - TAD|Replay (2012) [FLAC|Lossless]<Nu Jazz, Jazzy Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Dancin' Dans La Maison (feat. Z-Star)
+02. City Song (feat. Gary Go)
+03. So Many Nights (feat. Mia Cooper)
+04. Life Can Be So Beautiful (feat. Z-Star)(   Читать дальше...   )Жанр: Nu Jazz, Jazzy LoungeПродолжительность: 01:09:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106012   (875174) от 18.02.2017
 
 Frank Rosolino - The Last Recording (1978) 2006, See Breeze Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
@@ -722,35 +751,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E86F91E21D8E364B4BDBD5019C06F18F0308DDE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496640   (871657) от 18.09.2021
-
-Roland Kirk - Roland Kirk's Finest Hour (2001) Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stompin' Grounds [4:49]
-02. Blue Rol [6:12]
-03. Serenade to a Cuckoo [4:34]
-04. Spring Will Be a Little Late This Year [4:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9868D92F0731B638EC8CC8B5EA326AF717153E28
 ```
 
 https://mybot314.ru/tekegram_catalog/

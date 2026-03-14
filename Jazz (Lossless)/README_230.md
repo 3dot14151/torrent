@@ -1,3 +1,90 @@
+###  Публикация: 1337762   (272702) от 12.11.2019
+
+The Hot Club of San Francisco - John Paul George & Django (2016) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Lovin' - 2:38
+02. Because - 3:35
+03. Michelle - 3:36
+04. I Will - 3:03(   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59058BFF9F0CFB46219CD2AC77B0567CB77CE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084186   (272667) от 17.12.2016
+
+J.J. Johnson - J.J.'s Broadway (1963) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lovely [03:57]
+ 02.My Favorite Things [04:18]
+ 03.Mira [03:24]
+ 04.Make Someone Happy [03:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA1650D7F7DE0542698BBB9EBB53A14AF3E3407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083765   (272664) от 17.12.2016
+
+Sonny Stitt and Bennie Green - My Main Man (1964) Remaster, 2004, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Flame And Frost [04:36]
+ 02.Let's Play Chess [04:54]
+ 03.Double Dip [04:47]
+ 04.Our Day Will Come [05:22](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B837F069758C8408D3F0CEA426F9D052190399A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083983   (272650) от 17.12.2016
 
 Wes Montgomery & Clark Terry - Straight, No Chaser (1965) 1992, Jazz Door[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -658,93 +745,6 @@ Lou Levy - By Myself (1993) 1995, Verve [FLAC|Lossless|tracks + .cue] <Cool, Pia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C90E57A2DB28A2AA1118C1D346F2568ED68392BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189300   (270485) от 06.12.2017
-
-Steve Lacy - More Monk (1989) 1991, Soul Note [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shuffle Boil [04:43]
-02. Straight No Chaser [04:32]
-03. Off Minor [05:21]
-04. Ruby My Dear [06:33](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33670637700528D6F778EDA81A3E8CD27759ED16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189542   (270484) от 06.12.2017
-
-Bud Shank Quintet & Lou Levy Trio - Jazz in Hollywood Series (1954) 1997, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Casa de Luz [05:39]
-02. Lotus Bud [03:23]
-03. Left Bank [03:25]
-04. Shank's Pranks [03:18](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EBEAFCA04A7CCB7CB36F448F2C91F0D4D3D7D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189547   (270439) от 06.12.2017
-
-Stan Kenton & His Orchestra - 7.5 On The Richter Scale (1973) 1991, Creative World Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live And Let Die [03:48]
-02. Body And Soul [04:48]
-03. Down And Dirty [05:37]
-04. Country Cousin [03:09](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA536D2E0808A6639E5B8ACEA973C2D6A6917D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

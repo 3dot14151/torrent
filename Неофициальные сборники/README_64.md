@@ -1,3 +1,90 @@
+###  Публикация: 1088930   (953892) от 02.01.2017
+
+VA - Space Rift: Original Deep House Mix (2016) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953892.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A2A - Nothing 2 Lose (The Other Mix) 6:33
+002. Accurate - Give Me A Bassline 5:14
+003. Accurate - Move 6:31
+004. Acr - What Happiness 6:49(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1BB28C1C79E81F9BC06939E361A5312F5EF7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088946   (953882) от 02.01.2017
+
+VA - Bright Moments: Chillout Compilation (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953882.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bes & Meret - Ko Samui Nights 4:20
+002. Satellite Soul - Red - Original Version 4:19
+003. Agent Juno - Sunstorm - Soundtrack Version 4:03
+004. Lazy Hammock - Fading Into Oblivion - Original Mix 5:55(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 08:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B80FBBB3CFBC557EF69F354AC26F7621C270515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088794   (953870) от 02.01.2017
+
+VA - Новогодний ресторан Шансона Выпуск № 7 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953870.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Калина - Дочка 4:09
+002. Андрей Иванцов - Нет Худа Без Добра 3:36
+003. Андрей Таныч - Раб Судьбы 3:02
+004. Сборная Союза - Самообман 3:38(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52ED7C81CB3C546448ECB9A6FD9B1332AF44E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089198   (953788) от 02.01.2017
 
 Mark Ashley - Best Of Mark Ashley (2015) [MP3|320 Kbps] <Disco,  Euro-Disco>
@@ -664,93 +751,6 @@ VA - House Lounge (2016) [MP3|320 кб/с] <Deep House, Chill House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C58528E465CBE0C5B58817A9B032F0AC53C5E3B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981220   (952965) от 31.01.2016
-
-VA - Trance Traveling 73 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruben De Ronde LTN feat. Kimberly Hale - Moment Of Truth (Ruben De Ronde Mix) (06:15)
-02. Headstrong feat. Stine Grove - Love Until It Hurts (Aurosonic Progressive Mix) (06:01)
-03. Luke Bond vs CARTEL - Once More (Extended Mix) (05:40)
-04. DRYM - Generation (Extended Mix) (03:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48913438916C4B51CB385C368C7E8E1A440B012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981310   (952893) от 31.01.2016
-
-VA - Душа кричит Академия хитов шансона (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952893.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Геннадий Парыкин - Моя Малышка
-002. Владимир Двинской - Апрель
-003. Группа Централ - Кедры
-004. Александр Левшин - Зеркала Небес(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF525CDAED45E32F1598922F57A756CF7F9ADB33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981441   (952879) от 31.01.2016
-
-VA - Music For The Soul Vol. 1 - 4 (2016) [MP3|256-320 кб/с] <New Age, Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol. 1
-
-01 Chris Spheeris - Culture
-02 Frederic Delarue - Flying over the Canyons(   Читать дальше...   )Жанр: New Age, Chillout, Lounge, DowntempoПродолжительность: 15:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922C379A0FE8E8655532950A7DB4DF70EF9711D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

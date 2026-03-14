@@ -1,3 +1,32 @@
+###  Публикация: 1520387   (141983) от 28.12.2021
+
+VA - The Space Beats (2021) [MP3|320 Kbps] <Synthspace, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка сборника под названием "The Space Beats" отправит Вас на космический крейсер, который вот-вот отправиться в увлекательное фантастическое путешествие по тысячам планет нашей необъятной галактики. Раскрываются фермы стартового комплекса, включается реактор, ярким сиянием загораются ракетные двигатели, и наш корабль отправляется к очередной звездной (   Читать дальше...   )001. Lost Souls Of Saturn - Ring Transmission
+002. Chase Smith - Phenylketoneutropics
+003. Marco Monteverde - Tribal Green
+004. Red Rooms - Space Odyssey(   Читать дальше...   )Жанр: Synthspace, ElectronicПродолжительность: 09:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F606DC6FDADA296641212E18484735F054F523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970593   (141620) от 30.12.2015
 
 VA - New Year Party (2016) (2015) [MP3|320 кб/с] <Club, Progressive, House>
@@ -713,35 +742,6 @@ VA - Options Remake Of Tracks December -C- (2018) [MP3|320 Kbps] <Electronic, Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B43ABA571FAF5512B09C8B4295A07A497D924371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970758   (137651) от 31.12.2015
-
-VA - Black and White (Compiled by Lazyra) (2015) [MP3|320 кб/с] <Trance , Uplifting Trance , TechLifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Bowdidge - Final Rising (Original Mix) (6:58)
-02. James Kelly - 400 (Extrema 400 Official Anthem) (5:49)
-03. John O'Callaghan - Meridian Bay (Original Mix) (6:52)
-04. WeAreAliens - Star Driver (Original Mix) (6:49)(   Читать дальше...   )Жанр: Trance , Uplifting Trance , Techlifting TranceПродолжительность: 01:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19F49AEA338D3396A83EEAE9F39DAA019BEE75C
 ```
 
 https://mybot314.ru/tekegram_catalog/

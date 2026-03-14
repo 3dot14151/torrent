@@ -1,3 +1,89 @@
+###  Публикация: 1270353   (214389) от 18.12.2018
+
+Camille Thurman - Waiting For The Sunrise (2018) Chesky Records [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Found Out About Love
+02. Some of These Days
+03. Tarde
+04. After You've Gone(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27000D9E1BB8FB2CB6D788DBF611C240E235E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514886   (214129) от 05.12.2021
+
+Erroll Garner - 1944 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clock Stood Still [8:35]
+02. Floating On A Cloud [10:13]
+03. Cloudburst [9:00]
+04. Autumn Mood [7:26](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A6C7CA13E23053DFEB724ADCB614ABBB19EFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586887   (214127) от 29.10.2022
+
+Wilbur Harden - Jazz Way Out (1958) 1991, Savoy Jazz [APE|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dial Africa [8:43]
+02. Oomba [5:31]
+03. Gold Coast [14:33]Жанр: Hard BopПродолжительность: 00:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6422AC235FEE9075AE22652A50AA5D5F85B1C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587086   (214039) от 29.10.2022
 
 Martial Solal & The Danish Radio Jazz Orchestra - Contrastes: The Jazzpar Prize (2000) Storyville Records [FLAC|Lossless|image + .cue] <Post-Bop, Big Band>
@@ -658,93 +744,6 @@ Stanley Turrentine - The Best of Stanley Turrentine: The Blue Note Years (1989) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA00F796D33803A0F47E499CCB95F0871E1976BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641658   (210808) от 23.06.2023
-
-Dexter Gordon Quartet - Love For Sale (1964) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [1:28]
-02. Love for Sale [13:53]
-03. I Guess I'll Hang My Tears Out to Dry [9:54]
-04. Big Fat Butterfly [7:01](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490BFDD2715BA6BF26E0D1189D6E657C22AB40C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641787   (210608) от 24.06.2023
-
-Jackie McLean & Dexter Gordon - The Meeting, Vol. 1 (1973) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction by Jackie McLean [0:53]
-02. All Clean [17:13]
-03. Rue de la Harpe [8:36]
-04. Callin' [13:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68376E30EAAC45CC9D19530E2A3E8A1461C72271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642167   (210470) от 26.06.2023
-
-Dexter Gordon - More Power! (1969) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Bird [10:42]
-02. Meditation [8:30]
-03. Fried Bananas [6:07]
-04. Boston Bernie [7:38](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C599622C152A9A9749F1E01E96990D805C9C81
 ```
 
 https://mybot314.ru/tekegram_catalog/

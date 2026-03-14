@@ -1,3 +1,90 @@
+###  Публикация: 1030136   (676530) от 29.06.2016
+
+Solid Stone - Introspection (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solid Stone - Introspection (5:09)
+02. Solid Stone - Broken (6:28)
+03. Solid Stone & Wellenrausch - Ursa Major (7:21)
+04. Solid Stone - Profound (4:49)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F15E8B07DA4D36DD55326E4708745717C77E2EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030475   (674688) от 30.06.2016
+
+S'express - Enjoy This Trip (2016) [FLAC|Lossless|tracks] <House, Deep House, Soul>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme From S'Express (Tom Furse Update) (4:37)
+02. Pimps Pushers Prostitutes (Horsemeat Disco Remix) (feat. Billie Ray Martin) (5:47)
+03. Hey Music Lover' (Punks Jump Up Excursion Album Version) (4:01)
+04. Mantra Mania (Monarchy Remix) (4:53)(   Читать дальше...   )Жанр: House, Deep House, SoulПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:094636209A8D00565F30FD04210E13A9FBEAC097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030617   (674572) от 30.06.2016
+
+VA - In The Mix 002 - Progressive Sessions (Mixed by Audio Noir) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manu Delago - Chemical Reaction (feat Rahel) (7:05)
+02. Lux Departure - Twenty Forty Six (Yoky Playground remix) (7:20)
+03. Moonbeam - Black Skies (feat Loolacoma - extended mix) (7:07)
+04. Dofamine - Moon (8:35)(   Читать дальше...   )Жанр: Progressive House, Tech House, TechnoПродолжительность: 05:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5564A9D456A1338EFAFD3472B459845C6B78B211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290657   (674451) от 22.03.2019
 
 Powder - Powder In Space (2019) [FLAC|Lossless|tracks + .cue] <Electronic, House>
@@ -654,90 +741,6 @@ Eric Prydz Presents Pryda ‎ - Pryda (2012) [FLAC|Lossless]<House , Progressive
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138051   (665708) от 28.05.2017
-
-VA - Seven Stories: Voyage & Return (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yacine Dessouki & Alani - Distant Reflections [06:33]
-02. Luis Leon - Die Blaue Blume [08:27]
-03. No Gravity - Escape The Forest [05:41]
-04. Quartz - Redemption [08:08](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5583AC90E57E9AAD35B6EC8B94AE0058DDF3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538268   (664407) от 19.03.2022
-
-Deorbiting - Space House (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C58C4A1D1C235DDD33DD2BE3B08E70D269750BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225247   (661821) от 14.05.2018
-
-VA - Miami Deep House Essentials 2018 (2018) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Deep House, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nando Rodriguez, Black Of Birds - Brighter Days (Black Of Birds Interpretation) 8:01
-02. Fat V - How? (Original Mix) 5:12
-03. Nuka Abelsen - Raw And Pure (Original Mix) 4:50
-04. Otnicka - Before Sunrise (Original Mix) 4:55(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 04:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306AA134DC2C9D08D161C86ED6A4ED860072924C
 ```
 
 https://mybot314.ru/tekegram_catalog/

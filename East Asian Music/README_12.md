@@ -1,3 +1,151 @@
+###  Публикация: 866238   (417871) от 17.10.2015
+
+Kinema 106 - 2 альбома (2014-2015) KanColle Vocal /Doujin/ [FLAC|tracks] <J-Rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2014.12.29 (TOMZ-002) Abyss (C87)
+2015.08.14 (TOMZ-003) Setsugekka (C88)Тип издания: Doujin]Жанр: J-RockФормат: KanColle VocalПродолжительность: 00:00:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15106E276B36848FC4B3ABBDF95C6879AA406B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 396385   (416592) от 05.10.2011
+
+Cocktail M49 - 5 albums (2008-2010) [FLAC|Lossless]<Doujin  ongaku,touhou,rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_416592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nocturnal Azure ~幾億の星降る日、ハジマリのソラをもう一度~
+02 - 朱蝕マリアージュ
+03 - シャムロック
+04 - sweet baby
+05 - モノクロ:ワールド
+06 - (I.C.E.)
+07 - ageless love
+08 - Garden of the observers2008-2010Жанр: Doujin  ongaku,touhou,rockПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573589   (410479) от 01.09.2022
+
+Concerto Moon - Tears Of Messiah (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light In The Shadow 04:28
+02. Noah’s Ark 04:35
+03. Tears Of Messiah 04:48
+04. Lift My Life 03:47(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890CF6F059E8AC535F584EDAAE98401C9B079A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834360   (409450) от 21.10.2015
+
+ZERO SOUNDS - 4 альбома (2013-2014) KanColle Vocal /Doujin/ [FLAC|tracks] <J-Pop, J-Rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче:
+2013.12.30 (ZERS-0003) Kan Musume Kaisen Uta (KanColle) (C85)
+2014.04.26 (ZERS-0004) Burning Star Children -Hoshi no Ko Anime Song Tribute- (M3-33)
+2014.10.26 (ZERS-0005) KanColle Requiem (KanColle) (M3-34)Тип издания: DoujinЖанр: J-Pop, J-RockФормат: Anime, KanColle VocalПродолжительность: 00:02:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D5DEA3522CE4B59FEF01F8E1621C5FA6EBB6939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894588   (409438) от 21.10.2015
+
+GUNFIRE - 11 альбомов (2009-2015) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic, Eurobeat>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2011.08.13 (GFCD-0011) TOHOBEAT FLASH -Ninth Beat- (C80)
+2011.12.30 (GFCD-0012) TOHOBEAT FLASH -Tenth Beat- (C81)
+2015.08.14 TOHOBEAT FLASH News (C88)Тип издания: DoujinЖанр: Electronic, EurobeatФормат: Touhou InstrumentalПродолжительность: 00:03:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F093B4EE6CCB8EAD08800471168E642F3C23CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 833067   (409358) от 21.10.2015
 
 Eryps - 9 альбомов (2012-2014) /Doujin/ [FLAC|tracks] <J-Rock, J-Pop>
@@ -629,160 +777,6 @@ SUPER EURO SMASH - 5 альбомов (2012-2013) /Doujin/ [FLAC|tracks] <Eurobe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:502AA61631CBAB6EE413F32381F674C56BED4ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 173161   (368064) от 04.11.2011
-
-RAMPANT - 2 albums (2008-2010) [FLAC|Lossless]<Jrock,metalcore,alternative metal,female vocal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_368064.jpg" />
-</div>
-
-
-###  Подробнее
-
-1- NAKED
- 2- STILL GROWING FLOWER
- 3- 道なき未知へ
- 4- シロイハナ
- 5- IF I AIN’T GOT YOU
- 6- melt away2007-2008Жанр: Jrock,metalcore,alternative metalПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415996   (367336) от 16.10.2020
-
-Crystal Lake (JAP) - 6 Albums, 4 Maxi-Singles (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watch Me Burn [00:03:29]
-02. Disobey [00:03:12]Жанр: MetalcoreПродолжительность: 9 CD, 03:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031853C7A07A98C23ECE18311D8068F5432BB540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573979   (366122) от 16.11.2012
-
-VA - Guitar Romantic (1992) [MP3|320 кб/с]<Instrumental>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366122.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2:50) 01. Duo Shao Rou Qing Duo Shao Lei
-(2:56) 02. Shui Neng Jin Zhi Wo De Ai
-(3:20) 03. Qian Yan Wan Yu
-(2:40) 04. Feng Qi Qi Yi Mian Mian
-(3:28) 05. Han Yu Qu
-(3:39) 06. Pu Tao Cheng Shou Shi
-(2:47) 07. Qing Ren De Yan Lei
-(3:16) 08. Lei De Xiao Yu
-(3:37) 09. Guan Da Nuo Mei La
-(2:39) 10. Wo Zen Neng Li Kai NiЖанр: InstrumentalПродолжительность: 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C2E9FBEAA24F2D28AB3A292DA0843713AFCE18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569782   (365921) от 16.11.2012
-
-Ikuro Fujiwara - 2 albums (2005, 2009) [MP3|320 кб/с]<New age, Instrumental, Piano>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365921.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:46) 01. Tears Of Moonlight
-(2:01) 02. Half Moon
-(4:51) 03. Tsukino Hohoemi
-(5:21) 04. Deep Sea (Winter Sea)
-(5:56) 05. A Swan Lake In Moscow
-(1:37) 06. Fuurin
-(6:15) 07. Asian Girl
-(2:15) 08. Kogarashi
-(1:44) 09. Sakura Sakura
-(1:41) 10. Sumire(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 03:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3858438CE9DF7DE90E1CD2972616473C8B5AACBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576178   (365148) от 16.11.2012
-
-PSY - Gangnam Style (CD Single) (2012) [FLAC|Lossless]<K-Pop, Hip-Hop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gangnam StyleЖанр: K-Pop, Hip-HopПродолжительность: 00:03:39
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

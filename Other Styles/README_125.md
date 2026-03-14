@@ -1,3 +1,148 @@
+###  Публикация: 1257009   (349925) от 24.10.2018
+
+Ryan Judd - An Open Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking Back
+02. The Embrace
+03. An Open Sky
+04. Heartstrings(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3BFC2214C21E885E84B61577424D853CFBCA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256916   (349759) от 24.10.2018
+
+VA - Autumn Breeze Vol. 2 - Chill Sounds for Relaxing Moments (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Borell - Enter the Light (Buddha Gold Mix)
+02. Lovechair - Promenade (Smaller Things in Life Cut)
+03. Airstream - Mellow Tone (Eternity Mix)
+04. Jazzy James Jr. - On a Atmospheric Trip (Jazzlounge Cut)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 04:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333D92E47F18F3964605E50147D2FE9B35A1F5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072831   (349715) от 14.11.2016
+
+Ajeet Kaur - Haseya (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akaal [00:08:51]
+02. Chattr Chakkr [00:09:01]
+03. Haseya [00:06:52]
+04. Kiss the Earth [00:07:12](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6204304FDE4C6552A17329B25E90ACD1A4B70FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072727   (349599) от 14.11.2016
+
+L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень странные дела (Soundtrack Highlights and Inspirations) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger Things Theme Extended (01:32)
+02. Kids (02:40)
+03. Nancy & Barb (01:07)
+04. Chromatic Mechanics 2 (03:40)(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaveПродолжительность: 00:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC018F28DAEBD26C31112E3B6125A83C6A4AE34B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952290   (349558) от 04.11.2015
+
+Yarek - Noc Na Zamku (2008) [FLAC|image+.cue]<Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Moonlok 6:17
+02.Mrok 6:39
+03.La Orkestra 4:01
+04.Ambient (Part 2) 5:42(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EFE94EC250918BCE4C8A100B28F0493D1CB328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072882   (349469) от 14.11.2016
 
 Enigma - The Fall Of A Rebel Angel (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
@@ -603,150 +748,6 @@ Enigma - The Fall Of A Rebel Angel (2016) Japanese Edition [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18F62D8EF347025D2D9CC3A89B09DBFD4B3082AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179932   (344579) от 02.11.2017
-
-Paul Joe Fish & Gamma - Silver Sound (2015) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talking Together
-02. Silver Sound
-03. Moment of Silence
-04. Just a Little Song(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0E7A333504CDD6525068A259BC7D1042B356CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953813   (343923) от 06.11.2015
-
-Gregorian - Masters of Chant X: The Final Chapter (2015) [MP3|320 кб/с]<New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masters Of Chant (feat. Amelia Brightman)
-02. Cry Softly (feat. Narcis)
-03. Angel
-04. Strong(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87962F863DF0CCC5F40054D9E936EA5FC986B9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578342   (343387) от 24.09.2022
-
-Треустье (Treustye) - 4 Albums, 3 EP (2010-2020) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Neo Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Беспокойный сон Франца Кафки [00:02:06]
-02. Кошмар Джойса [00:03:35]
-03. Сон Мо Яня [00:02:29]Жанр: Dark Folk, Neo FolkПродолжительность: 7 CD, 02:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BA93337A6467813089B1F02469A949F685F2B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257814   (343306) от 27.10.2018
-
-Trobar De Morte - The Silver Wheel (2012) 2015, Limited Edition, Numbered, Reissue [FLAC|Lossless|tracks + .cue] <Celtic, Darkwave, Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mist of Avalon (3:58)
- 02. Arianrhod (5:00)
- 03. In the Garden of Serenity (3:22)
- 04. The Silver Wheel (3:11)(   Читать дальше...   )Жанр: Celtic, Darkwave, Neofolk, MedievalПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83DA66E5F97456CDD9E018C708C188F3DD70EB4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257819   (343302) от 27.10.2018
-
-Trobar De Morte - Beyond The Woods - The Acoustic Songs (2011) [FLAC|Lossless|tracks + .cue] <Medieval, Acoustic, Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Wood (3:07)
- 02. Excalibur (4:01)
- 03. The Harp of Dagda (3:14)
- 04. Rise and Fall (2:49)(   Читать дальше...   )Жанр: Medieval, Acoustic, NeofolkПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3469EA1C1724036C595A55FE8A040E015A97A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

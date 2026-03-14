@@ -1,3 +1,61 @@
+###  Публикация: 1586832   (214539) от 28.10.2022
+
+dArtagnan - Felsenfest (2022) 3CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214539.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dreht sich der Wind
+2. Tanz in den Mai
+3. Westwind
+4. Felsenfest(   Читать дальше...   )Жанр: Musketier-Rock, Folk RockПродолжительность: 01:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9140B95078230AC3C0F4FA4BF152DA6532EC5CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587005   (214419) от 28.10.2022
+
+Nazareth - The Ballads Album (2022) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heart's Grown Cold (2010 - Remaster) (04:14)
+ 02 - Love Hurts (Single Edit) (03:51)
+ 03 - Loved and Lost (2010 - Remaster) (05:13)
+ 04 - Dream On (03:25)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AD21BAAB66898098AE37EA315E91E2EA4B58C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085585   (214330) от 21.12.2016
 
 The Rutles - The Rutles (1990) [MP3|320 Kbps] <Beat, Parody Beatles>
@@ -687,64 +745,6 @@ The Animals - Live In The Sixties (1966-1967) Reissue, 2023, London Calling [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26D5FEC46364583B3D7040A6289A766F97EF0EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614332   (206820) от 21.02.2023
-
-VA - Classic Rock Classic Hits (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - Whole Lotta Love (2012 Remaster)
-02. Fleetwood Mac - Go Your Own Way (2018 Remaster)
-03. Dire Straits - Sultans of Swing
-04. Jefferson Starship - Jane(   Читать дальше...   )Жанр: RockПродолжительность: 05:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808675188DBA48D3F9D399D3D309D56FFB2772D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652430   (206551) от 11.08.2023
-
-Suzi Quatro, KT Tunstall - Face To Face (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suzi Quatro, KT Tunstall - Shine A Light [03:24]
-02. Suzi Quatro, KT Tunstall - Face To Face [03:38]
-03. Suzi Quatro, KT Tunstall - Scars [03:27]
-04. Suzi Quatro, KT Tunstall - Good Kinda Hot [03:19](   Читать дальше...   )Жанр: RockПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5463B9124B1277909176DCF7B588A157A423EF63
 ```
 
 https://mybot314.ru/tekegram_catalog/

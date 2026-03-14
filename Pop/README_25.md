@@ -1,3 +1,234 @@
+###  Публикация: 1473183   (1013812) от 28.05.2021
+
+Леонид Агутин - Включите свет (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013812.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Включите свет
+2. Счастье не вешает нос
+3. Сочи (feat. Jimmy Rosenberg)
+4. Цветы(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE0697B2EE4766575D9382FDFE761A53FD1FDA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473144   (1013795) от 28.05.2021
+
+Moby - Reprise (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everloving (3:19)
+02. Natural Blues (4:30)
+03. Go (3:42)
+04. Porcelain (5:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF26C480B0F199728669C67514E9C32395EF42B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473400   (1013712) от 29.05.2021
+
+Claude Denjean - 3 Albums (1970-1976) Collection [MP3|320 Kbps] <Electronic, Downtempo, Lounge, Space-Age, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский скрипач, композитор и аранжировщик Клод Денжан, вероятно, наиболее известен оркестровыми аранжировками, которые он написал для Шарля Азнавура, включая "Idiote je t'aime" и меланхоличную "Non, je n'ai rien oublie". Денжан писал партитуры для других артистов, в том числе для Моник Тюберт и Макса Фурнье. Он также работал в качестве композитора (   Читать дальше...   )Список альбомов:
+1970 - Moog!
+1973 - Open Circuit
+1976 - Moods(   Читать дальше...   )Жанр: Electronic, Downtempo, Lounge, Space-Age, DiscoПродолжительность: 01:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB8912480402A9449FCF8769997695CB0A8ED8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473502   (1013681) от 29.05.2021
+
+Fancy - I'm Still A Fool (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m Still A Fool
+02. I’m Still A Fool (Extended)
+03. Lovers (Split Mirrors Remix)Жанр: Euro-DiscoПродолжительность: 00:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122D1245142113F51A8CA35F589749456CA66DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473435   (1013680) от 29.05.2021
+
+Леонид Агутин - Включите свет (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013680.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Включите свет
+2. Счастье не вешает нос
+3. Сочи (feat. Jimmy Rosenberg)
+4. Цветы(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FAF7124CD58EA41E8ACD341299151F5C08789D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473733   (1013533) от 30.05.2021
+
+VA - Megahits Sommer 2021 (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riton x Nightcrawlers - Friday (feat. Mufasa & Hypeman)
+02. Coldplay - Higher Power
+03. Nathan Evans, 220 Kid & Billen Ted - Wellerman (Sea Shanty 220 KID x Billen Ted Remix)
+04. The Weeknd - Save Your Tears(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B9E18D864A03B6960C32CC7139A65930935FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473952   (1013382) от 31.05.2021
+
+VA - Billboard - Hot Dance & Electronic Songs (08-May-2021) [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travis Scott, HVME - Goosebumps (Remix)
+02. Tiesto - The Business
+03. SAINt JHN - Roses (Imanbek Remix)
+04. Regard, Troye Sivan, Tate McRae - You(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 02:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31F1C3F21C401B067085E96D43F5BC297F0D2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474128   (1013222) от 01.06.2021
+
+VA - Fresh Pop Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect (4:23)
+02. Lianne La Havas - Paper Thin (4:58)
+03. Wiz Khalifa; Charlie Puth - See You Again (3:49)
+04. Paul Rey - Talking In My Sleep (2:58)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859F002CD72CE6819046123A33AD120E4F4E6DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474287   (1013216) от 01.06.2021
 
 VA - ZYX Italo Disco History 1982 (2021) 2CD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco, Euro-Disco, Synthpop>
@@ -513,238 +744,6 @@ Ivan Cattaneo - Ivan Il Terribile (1982) [MP3|320 Kbps] <Electronic, Italo-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66DAE388FD70CE43DE4D1DD81C0C9C91850BD5E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477636   (1010831) от 16.06.2021
-
-Ryan Adams ‎ - Big Colors (2021) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Colors (3:08)
-02. Do Not Disturb (3:01)
-03. It's So Quiet, It's Loud (3:20)
-04. Fuck The Rain (3:34)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADDA8DB4CE4991A52E5BB75C12FC2A41490A54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477182   (1010807) от 16.06.2021
-
-Sophie Ellis‐Bextor - Trip the Light Fantastic (2007) [FLAC|Lossless|tracks + .cue] <Europop, Electro, Synth-pop >
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catch You (radio version)
- 02. Me and My Imagination
- 03. Today the Sun’s on Us
- 04. New York City Lights(   Читать дальше...   )Жанр: Europop, Electro, Synth-popПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58457BDDB126A785DA8B748B38B313DF1F8F30E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477959   (1010663) от 17.06.2021
-
-VA - Vaccine of Sadness (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Rodrigo - drivers license (04:02)
-02. Lewis Capaldi - Someone You Loved (03:02)
-03. Maroon 5 - Sad (03:14)
-04. Lady Gaga - Dope (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2675A0334D5A744A1653DE73D56D29E81B9AF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478439   (1010347) от 19.06.2021
-
-VA - Главные Белоруские хиты-Весна 02 (2006) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Елена Гришанова - Быстро-быстро
-02. Topless - Падали звёзды
-03. Алексей Хлестов - Потому что люблю
-04. Черника - Лабирин(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A576C5FBCB869B4E71B731D3B968A78434D3559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478588   (1010195) от 20.06.2021
-
-VA - Goodbye My Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marshmello - Leave Before You Love Me (02:35)
-02. Katy Perry - The One That Got Away (03:47)
-03. Maroon 5 - Beautiful Goodbye (04:15)
-04. Lewis Capaldi - Before You Go (03:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D968EDED87421EF4C0015B1462CD4BADE890D66F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478646   (1010192) от 20.06.2021
-
-VA - Acoustic Summer 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Wild World (Acoustic) (03:20)
-02. Shannon & Keast - Do I Wanna Know (Acoustic) (04:17)
-03. Logan York - Cheerleader (Acoustic) (03:36)
-04. Talisha Karrer - Everybody Hurts (Acoustic) (03:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D45AF5D5E0EA4EB4EF907D7CE452F61B75B9D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478642   (1010186) от 20.06.2021
-
-Patti Austin - 2 Albums (1980, 1983) Reissue CD [MP3|320 Kbps] <Electronic, Soul, Jazz-Funk, R&B, Downtempo, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская поп, R&B и джазовая исполнительница а так-же бэк-вокалистка, родилась 10 августа 1950 года в Нью-Йорке.01. Body Language (5:06)
-02. Another Nail For My Heart (3:14)
-03. S.O.S. (3:57)
-04. We've Got Tonight (4:18)(   Читать дальше...   )Жанр: Electronic, Soul, Jazz-Funk, R&B, Downtempo, DiscoПродолжительность: 01:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161A416C5E92D002BFE4A463DC9D7212C5981E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478647   (1010176) от 20.06.2021
-
-VA - Acoustic 10s and 20s Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - Break My Heart (Acoustic) (03:34)
-02. Nora & Will - My Future (Acoustic) (03:19)
-03. Shannon & Keast - Falling (Acoustic) (03:59)
-04. Logan York - Señorita (Acoustic) (04:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050EF2820DF47712D0E735C0EF6FCAD7B16D2257
 ```
 
 https://mybot314.ru/tekegram_catalog/

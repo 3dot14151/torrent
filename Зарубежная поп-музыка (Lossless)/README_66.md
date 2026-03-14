@@ -1,3 +1,150 @@
+###  Публикация: 732149   (295533) от 08.12.2013
+
+Air Supply - Greatest Hits (1984) [FLAC|Lossless]<Pop, Rock, Soft-Rock, Adult Contemporary>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сложись чуть удачливее их судьба и мы название этой группы также отождествляли бы с Автралией, как и Bee Gees.
+А ведь с их в большой степени сладкими балладами австралийская  группа софт-рока Air Supply была главным лидером радио-топов на границе 70-х и 80-х, выигрывая семь раз Top Five singles.
+Air Supply была дуэтом вокалистов Рассела Хичкока и Грэма Рассела, другие (   Читать дальше...   )01. Lost In Love (3:54)
+02. Even The Nights Are Better (3:59)
+03. The One That You Love (4:19)
+04. Every Woman In The World (3:30)(   Читать дальше...   )Жанр: Pop, Rock, Soft-Rock, Adult ContemporaryПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590D39BED924461518F91AF852E87DDF0F806FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424093   (295442) от 15.11.2020
+
+VA - 100 Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cardi B, Megan Thee Stallion - Wap (Feat. Megan Thee Stallion) 3:08
+02. Dua Lipa - Don't Start Now 3:03
+03. Joel Corry - Lonely 3:11
+04. Jason Derulo - Take You Dancing 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3FB4E2737ED9DAC70C82202BFD7968E0072D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962374   (295048) от 04.12.2015
+
+Gloria Estefan - Greatest Hits Vol. II (2001) [FLAC|tracks+.cue]<Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn The Beat Around (Classic Mix) (3:52)
+02. Everlasting Love (Video Version) (4:01)
+03. Reach (3:51)
+04. If We Were Lovers (4:38)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B8C57B071A5BEEC485BB7C62AA0A2EF4709E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962007   (295035) от 04.12.2015
+
+Tom Jones - The Best Of... Tom Jones (1997) [FLAC|tracks+.cue]<Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Not Unusual (2:01)
+02. Chills and Fever (2:52)
+03. Green, Green Grass of Home (3:05)
+04. What's New Pussycat? (2:05)(   Читать дальше...   )Жанр: VocalПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A3F6F9EF8C121C7B3777F568EAE3141634D24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185225   (294916) от 20.11.2017
+
+Eros Ramazzotti - Eros Duets (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eros Ramazzotti Duet With Tina Turner – Cosas De La Vida (Can't Stop Thinking Of You)
+02. Eros Ramazzotti & Nicole Scherzinger – Hasta El Extasis
+03. Giorgia feat. Eros Ramazzotti – Inevitabile
+04. Eros Ramazzotti & Anastacia – I Belong To You (El Ritmo De La Pasion)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579494ADC9AF5E57380B2810231F3C6EB918C884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185122   (294804) от 20.11.2017
 
 VA - Now That's What I Call Music! 98 (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Hip Hop>
@@ -600,148 +747,6 @@ Demis Roussos - The Singles+ (2003) 2CD [FLAC|image+.cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8C79EAFC44F9E7B1099D4068516415160C76222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963929   (285493) от 09.12.2015
-
-Gloria Estefan - Unwrapped (2003) [FLAC|tracks+.cue]<Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о Глории Эстефан на английском языке01. Tu Fotografía (3:49)
-02. Te Amaré (3:03)
-03. Mientras Tanto (3:38)
-04. Hoy (3:28)(   Читать дальше...   )Жанр: ДокументальныйПеревод: ОтсутствуетПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6C67E9175281FBF87B4564FFB97BAEA27ACDF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963642   (285321) от 09.12.2015
-
-Enrique Iglesias - Sex and Love (2014) Deluxe Edition [FLAC|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm A FreakЖанр: PopПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7205D77FCB6710E46E7963C2E0995D90E36D9ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335650   (284548) от 04.11.2019
-
-Celine Dion - Courage (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying On My Own 3:32
-02. Lovers Never Die 2:51
-03. Falling In Love Again 3:51
-04. Lying Down 3:59(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8CFD2A6E280E2CF578E5D0E498D28C810C65D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263968   (284505) от 21.11.2018
-
-Platinum Blonde - Now & Never (2012) [FLAC|Lossless|tracks + .cue] <Electronic Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valentine
-02. Beautiful
-03. Satellite
-04. From Here(   Читать дальше...   )Жанр: Electronic Pop RockПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611D7B03A92C2DB6891632AFAB314793EB83B4D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263821   (284498) от 21.11.2018
-
-VA - Love Songs (1999) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284498.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 Youssou N'dour & Neneh Cherry - 7 Seconds 04:09
-02 Wham! - Where Did Your Heart Go 05:44
-03 Fugees - No Woman, No Cry 04:19(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0A8B6E994E506714B877D2E5B825040EEEFCE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

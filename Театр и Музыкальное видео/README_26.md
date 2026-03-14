@@ -1,3 +1,188 @@
+###  Публикация: 181699   (906490) от 09.03.2010
+
+Metallica -  Live Earth. London (2007) HDTV [MPEG-2/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wembley Stadium, London, England, July 7th, 2007
+Выступление группы Metallica на концерте Live Earth в Лондоне, летом 2007 года на Уэмбли.
+Треклист:
+01. Sad But True(   Читать дальше...   )Жанр: МузыкаПеревод: ОригинальныйПродолжительность: 00:18:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098809   (906167) от 31.01.2017
+
+Машина Времени - Концерт в Киеве, 2012 (2014) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906167.jpg" />
+</div>
+
+
+###  Подробнее
+
+"В Ваших руках не просто очередной концерт «Машины Времени». По утверждению самих музыкантов – это их лучшая съемка за все времена. Очень рад, что к этой записи имеют отношение команды «Авторадио» в России и на Украине, наш любимый режиссер Герман Садченков и его профессионалы. Посмотрите внимательно этот концерт. Вслушайтесь в тексты песен, вглядитесь в лица (   Читать дальше...   )Производство: CD LAND, Sintez RecordsЖанр: RockРежиссер: Герман СадченковПродолжительность: 01:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FB12B905009395D8DC5D4EB79476F43F267F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635849   (906004) от 28.03.2013
+
+The Saturdays - What About Us (2013) WEB-DLRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9DAE6ECD687346EC8EFE11CBECA30B3BA8BF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635842   (905916) от 28.03.2013
+
+DJ Smash  DJ Miller feat. Anya - Angels (2013) WEB-DLRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB725D84D2729B7AA892D18E227920759980AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635839   (905871) от 28.03.2013
+
+Nicole Scherzinger - Boomerang (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFDA03AF3FDFC78C45294489E911783A44F62A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635863   (905867) от 28.03.2013
+
+Aida Arami - Diamond (2013) WEB-DLRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C6493D8B60D7D3FD60A49F22804B600A7AE6DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635748   (905758) от 28.03.2013
+
+Depeche Mode - Heaven (2013) WEB-DLRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ROCKПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB92CF7C91EB101F7A7E11C6FFC288E69E6B969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368692   (905554) от 22.03.2020
 
 Die Kreatur - Die Kreatur (2020) WEB-DLRip [VP9/2160p-LQ]
@@ -514,200 +699,6 @@ Paradise Lost - Fall from Grace (2020) WEBRip [H.264/1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CB4A53E3B447A827BB67ECEF27512C7C87E3D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369725   (901881) от 24.03.2020
-
-Quest Pistols Show - 17 Mysic Videos (2012-2019) WEBRip [VP9/H.264/2160p/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901881.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2012 Quest Pistols Show - Разные [1080p]
-002 2013 Quest Pistols Show - Жара [1080p]
-003 2013 Quest Pistols Show - Забудем все [1080p]
-004 2014 Quest Pistols Show - Babyboy [1080p](   Читать дальше...   )Жанр: PopПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD67BCC51FEABA7B82DA749E616A4126622FC29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182416   (901872) от 12.03.2010
-
-The Sweet - Greatest Hits - Sweet Live (2004) DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: глэм-рокПеревод: оригиналСубтитры: нетПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369230   (901783) от 24.03.2020
-
-Quest Pistols (Quest Pistols Show) - 12 Mysic Videos (2007-2011) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901783.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 Quest Pistols - Дни Гламура
-2007 Quest Pistols - Я Устал
-2008 Quest Pistols - Для Тебя
-2008 Quest Pistols - Клетка(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5366F51C4D1F324BA860EDF6AD0107F8796E8D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366878   (901617) от 24.03.2020
-
-Лобода - Новый Рим (2020) Web-DL [Н.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Лобода́ (Лобода) - Новый РимПроизводство: Sound production LUKACHSOUNDЖанр: PopРежиссер: Alan BadoevАктеры: Светла́на Серге́евна Лобода́ (укр. Світла́на Сергі́ївна Лобода́)Солистка группы «ВИА Гра» в 2004 году.Продолжительность: 00:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0E812FB4C5E7140DD90243C17338BCA9446C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369174   (901535) от 24.03.2020
-
-Tommy Cash - 14 Music Videos (2014-2020) WEBRip [VP9/H.264/2160p/1080p/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tommy Cash  (TOMM¥ €A$H) - "Член" команды "Little Big Family".001 Little Big & Tommy Cash - Give Me Your Money
-002 Little Big feat. Tommy Cash - Give Me Your Money (Live Clip)
-003 Tommy Cash - Euroz Dollaz Yeniz
-004 Tommy Cash - Guez Whoz Bak(   Читать дальше...   )Жанр: Rave, Raprave, Hip-HopПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2DB46D3039B526E684B77C2352347A93773752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100125   (901318) от 03.02.2017
-
-Uli Jon Roth - Tokyo Tapes Revisited - Live in Japan (2016) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот диск сделан по ассоциации с двойным альбомом Scorpions 1978 года "Tokyo Tapes", где Ульрих ещё выступал в качестве соло-гитариста Скорпов. Этот концерт проходил в том же, что и тогда, концертном зале - "Nakano Sun Plaza Hall". Ульрих даже попытался идентифицировать среди зрителей тех, кто 37 лет назад присутствовал на первом концерте.1. All Night Long (Uli Jon Roth)
-2. Longing For Fire (Rudolf Schenker)
-3. Crying Days (Rudolf Schenker)
-4. Sails Of Charon (Uli Jon Roth)(   Читать дальше...   )Производство: UDR MerchstoreЖанр: Hard RockПеревод: ОтсутствуетПродолжительность: 02:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33D76A8276EAB5815C44BBD14ED1B6D2E092FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637292   (900704) от 31.03.2013
-
-Carly Rae Jepsen - Tonight I M Getting Over You (2013) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50143599F5CCF2BB744FD0F178A9B98EBCED6E82
 ```
 
 https://mybot314.ru/tekegram_catalog/

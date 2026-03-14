@@ -1,3 +1,90 @@
+###  Публикация: 1654497   (205150) от 21.08.2023
+
+The Offspring - Rise And Fall, Rage And Grace (2008) 15th Anniversary Deluxe Edition, 2023, Round Hill Music (Offspring) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half-Truism
+02. Trust In You
+03. You're Gonna Go Far, Kid
+04. Hammerhead(   Читать дальше...   )Жанр: Alternative, Pop, Punk Rock, New WaveПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D3FA47ED6B034BCA6E823457EB08D29F73F63F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151010   (205141) от 17.10.2022
+
+Bush - 10 Albums (1994-2022) Full Studio Discography [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_205141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Is the Ocean (5:13)
+02. Slow Me (3:48)
+03. More Than Machines (3:22)
+04. May Your Love Be Pure (3:22)(   Читать дальше...   )Жанр: Alternative Rock, Grunge |Продолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B43EEA8ABF3A4F1CC166AE0BA69066B51219475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654625   (204958) от 22.08.2023
+
+Сметана band - Похмурий (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аніме опенінг [00:03:42]
+02. Не закохуйся [00:04:09]
+03. Дискотека "Ностальжі" [00:03:27]
+04. Істерика [00:03:31](   Читать дальше...   )Жанр: Alternative Rock, Pop-PunkПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51A02A03B27F93738681D05ADCA9D0611982804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654614   (204893) от 22.08.2023
 
 Rising Alma - Awake (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Female Vocals>
@@ -655,93 +742,6 @@ The Damned - A Night of a Thousand Vampires (Live in London) (2022) [FLAC 2.0|48
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECC210CAD1A260E68705CEC9BC1620D6C168DD8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587197   (192947) от 30.10.2022
-
-Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everlong (4:11)
- 02. Making A Fire (4:15)
- 03. Times Like These (4:27)
- 04. Rope (4:20)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 01:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87E73F333EC68243683F7FCE5EA1E79CE2E5CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587391   (192923) от 30.10.2022
-
-Simple Minds - Direction Of The Heart (2022) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Synthpop, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vision Thing (4:40)
- 02. First You Jump (4:24)
- 03. Human Traffic (4:17)
- 04. Who Killed Truth? (3:59)(   Читать дальше...   )Жанр: Alternative Rock, Synthpop, New WaveПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E54A1E7C4509F2613668751EAEF79DBCD04DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657321   (192772) от 03.09.2023
-
-Glacerate - Hyper (2023) [FLAC|Lossless|WEB-DL|tracks] <Hyper Metal, Hardcore Punk, Desert Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Used [00:03:09]
-02. Binge [00:03:49]
-03. Abyss [00:01:58]
-04. Ultra [00:02:42](   Читать дальше...   )Жанр: Hyper Metal, Hardcore Punk, Desert RockПродолжительность: 00:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09118BE8BD6ED0002E601CB813D311BE8B71D51E
 ```
 
 https://mybot314.ru/tekegram_catalog/

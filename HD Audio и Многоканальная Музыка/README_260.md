@@ -1,3 +1,147 @@
+###  Публикация: 1817302   (3554) от 09.09.2025
+
+Isle Of Man - Isle Of Man (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3554.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Am I Forgiven
+A2 Building Bridges
+A3 Speaking English
+A4 Desperate Surrender (Amor Moriendo)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2390F97368F5172C30DA62BCD1184C81EFAD8553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817052   (3551) от 09.09.2025
+
+Skyharbor - Studio Albums (3 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skyharbor - рок-группа из Индии, образованная в 2008 году2012 - Blinding White Noise: Illusion & Chaos
+2014 - Guiding Lights
+2018 - Sunshine DustЖанр: Progressive MetalПродолжительность: 02:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0474B38978AAD1728E56BA52E6D21D1EBE9AC7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792383   (3486) от 10.09.2025
+
+In Mourning - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3486.jpg" />
+</div>
+
+
+###  Подробнее
+
+In Mourning - шведская метал-группа, образованная в 2000 году.2008 - Shrouded Divine
+2010 - Monolith
+2012 - The Weight Of Oceans
+2016 - Afterglow(   Читать дальше...   )Жанр: Progressive Melodic Death MetalПродолжительность: 09:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8256A23E63A238143D3D651E642F989C30AB0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817365   (3465) от 10.09.2025
+
+Glenn Hughes - Chosen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Voice In My Head (5:18)
+02.  My Alibi (5:01)
+03.  Chosen (4:58)
+04.  Heal (6:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6329BAD77451B3BC46781EBE531CDA81946DBBF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817482   (3464) от 10.09.2025
+
+Static Movement - Underwater (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Underwater (Original Mix) [06:27]
+02. Dusty Melody (Original Mix) [06:04]
+03. Into the Void (Original Mix) [07:38]
+04. Falling into a Deep Sleep (Original Mix) [06:18](   Читать дальше...   )Жанр: Psy-Trance, Progressive TranceПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77368DF48066422214234E72D565B297B7682F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817348   (3456) от 10.09.2025
 
 Orchestra Electrecord + Grupul vocal «Cantabile» - Non Stop Dancing I (1971) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Jazz-Funk, Soul, Disco>
@@ -597,148 +741,6 @@ The Judas Kiss - The Mirror Crack'd (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0A3167804E8FF136C2CC51EAB1B4415F7942718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817770   (3113) от 12.09.2025
-
-Crematory - Act Seven (1999) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shining(1:59)
-02. I Never Die(5:53)
-03. Moonlight(5:06)
-04. Fly(5:51)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FEAE3961FA1D19E6ACD08129A7984472D36E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817606   (3106) от 12.09.2025
-
-Devolver - Non Compos Mentis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deathtouch [00:03:55]
-02. New Blood [00:03:14]
-03. Jewels of the Maw [00:03:30]
-04. Wraiths [00:03:20](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9FA648F002599EDAC9D69BE4635E9136544C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817873   (2964) от 13.09.2025
-
-Gorillaz - The Happy Dictator (feat. Sparks) (2025) Single [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie, Trip-Hop, Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Happy Dictator (feat. Sparks) [00:04:44]Жанр: Indie, Trip-Hop, SynthpopПродолжительность: 00:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89564048FF5DD8A4BC49582C9B592FA432097EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817884   (2931) от 13.09.2025
-
-Papik - Cocktail Sanremo, Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come si cambia (feat. Savio Vurchio)
-02. Cara (feat. Matteo Brancaleoni)
-03. Io che non vivo (feat. David Florio)
-04. Più Sole (feat. Laura Lanzillo, Alan Scaffardi)(   Читать дальше...   )Жанр: Pop Jazz, PopПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D7555BFE971EED2065C1713691DC184540050F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817886   (2918) от 13.09.2025
-
-Stormbreaker - Enlightning (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unleash the Power [00:03:30]
-02. Femme Fatale [00:03:35]
-03. Sandman [00:03:13]
-04. The Story Never Told [00:03:53](   Читать дальше...   )Жанр: Modern Metal, Power MetalПродолжительность: 00:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0A16894A52BE3D1C48D2760A866672B7BD596B
 ```
 
 https://mybot314.ru/tekegram_catalog/

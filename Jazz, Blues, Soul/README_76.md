@@ -1,3 +1,61 @@
+###  Публикация: 991082   (908180) от 27.02.2016
+
+VA - Jazz and Blues on Edison , volume 1 (1920-1929) 2006, Document Records[FLAC|Lossless|tracks + .cue] <Big Band, Dance Bands, Early Jazz, Jazz Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lopez & Hamilton - Dixie Land [04:12]
+ 02.Genevieve Gordon - Baby's Got The Blues [03:46]
+ 03.Original Memphis Five - St. Louis Gal [04:43]
+ 04.Ethel Finney - You Gonna Wake Up Some Morning [04:02](   Читать дальше...   )Жанр: Big Band, Dance Bands, Early Jazz, Jazz BluesПродолжительность: 01:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AE2C677D2786FAAC3B753A1A5EBA9CCE2AF1BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991161   (908121) от 27.02.2016
+
+Aziza Mustafa Zadeh - Contrasts II (2007) Jazziza Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Introduction [01:45]
+ 02.Mozarts Jazz Ballade [03:29]
+ 03.Guarding Dreams [02:27]
+ 04.The Queen Of The Night [02:57](   Читать дальше...   )Жанр: Jazz Fusion, Piano JazzПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B91C75568879CAE3448B66C4ED6A6ED8E1BB672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991066   (908096) от 27.02.2016
 
 Susan Tedeschi - The Best of Susan Tedeschi - Episode One (2005) [MP3|320 кб/с] <Blues Rock>
@@ -687,64 +745,6 @@ The Ned Irving Quintet - Round & Round (1996) Rafsky Records[FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8B6024F981B0F068A1A648F3CDC436C99B287BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099361   (905418) от 01.02.2017
-
-Weslia Whitfield - Teach Me Tonight (1997) HighNote[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It's A Most Unusual Day [02:35]
- 02.I've Heard That Song Before [05:34]
- 03.Almost Like Being In Love [03:07]
- 04.Teach Me Tonight [04:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067C74EB1E3ACA4ED1955D57337ECAD782AE6756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368806   (905362) от 22.03.2020
-
-Howlin' Wolf - The London Howlin' Wolf Sessions (Deluxe Edition) 2CD (1971) [FLAC|Lossless|tracks + .cue] <Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' Daddy
-02. I Ain't Superstitious
-03. Sittin' On Top Of The World
-04. Worried About My Baby(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 01:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB1FB2D5CC9A12A103C514AE8F5C93820300A5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

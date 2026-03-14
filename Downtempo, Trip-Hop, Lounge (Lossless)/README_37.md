@@ -1,3 +1,61 @@
+###  Публикация: 1794749   (19558) от 02.05.2025
+
+VA - Made2Chill 1 (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lametta / The Keys    [0:04:24.48]
+02. Mister Prez / Rondo Paradise    [0:03:54.35]
+03. Peto  / Falling Upwards    [0:04:22.18]
+04. The Thents / Transfer Time    [0:04:11.40](   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A7710914664ABB79440872630D67C8D651C2C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795873   (19019) от 07.05.2025
+
+VA - Downtempo Reflection: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digby Jones - I Dream of Ice Cream (0:54)
+02. Living Room - The Blunt Session (2:35)
+03. Lounge Groove Avenue - Dreamwaves (3:13)
+04. Gian Delly - Dusty Chill (4:23)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718BD94784F5C26BC31F2050B86161A4732A32F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796223   (18817) от 09.05.2025
 
 VA - Relax & Unwind: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -684,64 +742,6 @@ VA - Lounge Obsession, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A209AAF1B3852B886A2B09E106E48A370C5AFC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817296   (3579) от 09.09.2025
-
-VA - Lounge Obsession, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lemongrass - Blue Skies in Your Eyes (04:03)
- 02 - Steen Thottrup, Juliana Silveira - A Arte de Viver (04:13)
- 03 - Mikis Theodorakis, Francesco Diaz, Karl Frierson - Honeymoon Song (Original Mix) (04:07)
- 04 - Calmabohain - In My Mind (05:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05CFF99BAA1ECFA42D209878CD1B067D6EBDB1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818242   (2593) от 15.09.2025
-
-VA - Ibiza Afterlight - Chillout Soundscapes (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Random Classes - Reversed Thoughts (04:30)
- 02 - Gamma Orionis - Next Stages (04:16)
- 03 - Ritscher - Quick Adjustment (04:28)
- 04 - Koronisia - Sudden Appearance (04:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA66C4C2B3576EE7AC5406E9C514064EF2E4A459
 ```
 
 https://mybot314.ru/tekegram_catalog/

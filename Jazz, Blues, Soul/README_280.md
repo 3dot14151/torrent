@@ -1,3 +1,182 @@
+###  Публикация: 545954   (480622) от 12.09.2012
+
+Michel Petrucciani - Best Of - 3CD (2009) [FLAC|Lossless]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Forgotten Magic Words (5:20)
+02. Pot Pourri (14:17)
+03. Say It Again And Again (9:50)
+04. To Erlinda (11:28)
+05. Morning Blues (8:20)
+06. Bimini (10:17)
+07. Contradictions (4:24)
+08. Looking Up (8:08)
+09. Le Bricoleur De Big Sur (3:25)Жанр: Post-Bop, Piano JazzПродолжительность: 03:37:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566668   (480558) от 30.07.2022
+
+Luiz Camporez - Standart Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trabalho, Álcool E Cafeína (5:09)
+02. Waking Life (5:02)
+03. Standart Blues (5:40)
+04. Illusions and Memories (8:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2D5F159C99519B3BAA1A80A0B2CDFAA331904F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566667   (480557) от 30.07.2022
+
+Lars Kutschke - While We're Here (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chelsea Morning (4:32)
+02. I Want My Baby Back (4:51)
+03. Denise And The Nephew (6:08)
+04. Hummingbird (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA90308580A7D2FCCBF0704E1EA3998897FECCA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566664   (480550) от 30.07.2022
+
+Jaya Blues Band - Pesta (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lockdown Blues (3:32)
+02. Painted Angels (4:34)
+03. Another Way (5:39)
+04. Pesta (5:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745DFDFDC1609F4A1482DB7798B67A2CFDC7224C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566671   (480546) от 30.07.2022
+
+Lyle Odjick and The Northern Steam - Through the Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmonica>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misery Train (1:56)
+02. Cut Me Loose (3:25)
+03. Leaving Trunk (4:14)
+04. I Wanna Hold You (6:06)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC36AD8C481C49CFC421E98825575CCB6A219BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566677   (480544) от 30.07.2022
+
+Pierce - The Slide Session (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wishful Blues (3:43)
+02. Foolin' (3:24)
+03. Make it Right (3:34)
+04. Adore Me (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE98E10CA1E8637AA1E605AFFFB7EED72922EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566659   (480543) от 30.07.2022
 
 Art Blakey & The Jazz Messengers - feat. Wynton Marsalis (1980) 1988, Fortune [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -571,180 +750,6 @@ Charles Lloyd - Nirvana (1968) /2014, Sony Music/ [FLAC|tracks+.cue]<Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15519395BD5967870E0B5643278D6D981AFFE72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938786   (479877) от 19.09.2015
-
-Frank Sinatra - The Voice (1955) /1994, Columbia/[FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Don't Know Why (I Just Do) [02:51]
-02.Try A Little Tenderness [03:04]
-03.(I Don't Stand) A Ghost Of A Chance [03:16]
-04.Paradise [02:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B84B3CC9A2F12E2F23941AA56F71EBC4201F622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938767   (479875) от 19.09.2015
-
-John Pizzarelli - Midnight McCartney (2015) [FLAC|Lossless|WEB-DL]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silly Love Songs
-02. My Love
-03. Heart Of The Country
-04. Coming Up (feat. John Pizzarelli)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625FF24C9D5624D73887FA1A7878FC6C16F4F50C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056733   (479728) от 26.09.2016
-
-Reinhard Flatischler - Megadrums Live (1988) Puls productions[APE|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Megadrums (traditional) [05:59]
- 02.Dialog (traditional) [03:21]
- 03.Dasotmori Live [10:07]
- 04.The Call [18:15]Жанр: World Fusion, Ethnic JazzПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BE3ADAB9DE190D438DC6CCB7302DC6AEC91557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056743   (479722) от 26.09.2016
-
-Ray Anderson - It Just So Happens (1987) Enja[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Once In A While [06:25]
- 02.It Just So Happens [05:58]
- 03.Ross The Boss [07:33]
- 04.Elegy For Joe Scott [05:23](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADF54B9B3BA03BE1F758AB693E6B0442090DB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056884   (479717) от 26.09.2016
-
-Joshua Redman & Brad Mehldau - Nearness (2011) 2016, Nonesuch Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ornithology [08:41]
- 02.Always August [10:58]
- 03.In Wlked Bud [09:59]
- 04.Mehlsancholy Mode [12:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B91649867128417B1820EF3345F3C3DC9090EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056768   (479606) от 26.09.2016
-
-The Dahman Beck Band - Show A Little Soul (2013) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuel for the Fire   (03:37)
-02. Warned   (03:46)
-03. Have Some Fun   (03:00)
-04. Every Little Thing   (04:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A1EF510CB70493D637F365B60FCA815C0FC997
 ```
 
 https://mybot314.ru/tekegram_catalog/

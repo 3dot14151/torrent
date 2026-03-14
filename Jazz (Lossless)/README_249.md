@@ -1,3 +1,90 @@
+###  Публикация: 1637455   (239929) от 04.06.2023
+
+Christian McBride's New Jawn - Prime (2023) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head Bedlam [5:47]
+02. Prime [7:30]
+03. Moonchild [4:45]
+04. Obsequious [8:06](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Avant-Garde JazzПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9039D04EC7BC12BFAD1EC87C7E619C0D22E2E784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621537   (239900) от 25.03.2023
+
+John Coltrane - Coltrane Time (1958) 1986, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shifting Down [10:42]
+02. Just Friends [6:17]
+03. Like Someone in Love [8:11]
+04. Double Clutching [8:20]Жанр: Hard Bop, Post-BopПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F7BD0E5B71DF35552292AD0AA6C98A442CD8C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635384   (239868) от 25.05.2023
+
+Jason Marsalis - Live (2017) 2020, Basin Street Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ratio Man Strikes Again [6:23]
+02. Passionate Dancer [6:30]
+03. Bourbon Street Ain't Mardi Gras [9:18]
+04. Ballet Class [5:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51394BA44D2FAE50ADE249BD4118A825ACA241E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565294   (239853) от 23.07.2022
 
 Max Roach - Deeds, Not Words (1958) 1987, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -658,93 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DD169B9B91272E5FF3A7503EB3107391E303594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438181   (239088) от 07.01.2021
-
-Gard Nilssen's Supersonic Orchestra - If You Listen Carefully the Music Is Yours (2020) [FLAC|Lossless|WEB-DL|tracks] <Big Band, Free Jazz, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239088.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Premium Processing Fee - 10:21
-2. B?tteknott / Elastic Circle - 13:13
-3. Teppen Dance - 11:03
-4. The City Of Roses - 9:03(   Читать дальше...   )Жанр: Big Band, Free Jazz, Avant-Garde JazzПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB476E328CA452C147482D53301FF1BA9552390C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636448   (239038) от 30.05.2023
-
-Take 6 - Feels Good (2005) I-More [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On [3:49]
-02. This Is Another Day [3:28]
-03. Feels Good [3:51]
-04. Wait for the Sunshine [3:48](   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27269AC28412FAF55DF3B5C6CA1526BF854638B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476943   (239029) от 13.06.2021
-
-Lalo Schifrin - Seven Classic Albums (1959 - 1962) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239029.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Frenesi [3:18]
-02. The Breeze and I [2:47]
-03. Capricho Espanol [3:20](   Читать дальше...   )Жанр: World Fusion, Latin Jazz, Big BandПродолжительность: 04:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC8838F9FC85124AAF664E6F45ECE2937B810A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

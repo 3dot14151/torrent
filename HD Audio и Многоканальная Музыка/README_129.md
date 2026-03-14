@@ -1,3 +1,148 @@
+###  Публикация: 1726066   (108774) от 27.05.2024
+
+Lyle Lovett - Pontiac (1987) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108774.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 If I Had A Boat
+A2 Give Me Back My Heart
+A3 I Loved You Yesterday
+A4 Walk Through The Bottomland(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED76F9235E230ED312C6C4DC38FDC9C8C0E3A27E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726511   (108754) от 28.05.2024
+
+VA - Metal Massacre 09 (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108754.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Banshee - We Want You
+A2 - Oliver Magnum - Old World Nites
+A3 - Toxik - Wasteland
+A4 - Dissenter - Blood Under Heaven(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DABCD965CE38B96A0D5832E146B763619C5EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726373   (108751) от 28.05.2024
+
+Night's Music Zone - Soothing Night of Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night for Two (3:04)
+02. A Cup of Jazz (3:04)
+03. Jazzy Atmosphere (3:04)
+04. Single Ladies Jazz (3:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0C8B92E39A65EEB0566C39C25DB569402FB1ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726578   (108711) от 29.05.2024
+
+Maegandune - Melodic Memoirs (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal, Female Vocals>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes Of Fortitude [00:04:22]
+02. Reflection Of The Truth [00:04:22]
+03. Milady de Winter [00:03:47]
+04. You Know Nothing [00:03:16](   Читать дальше...   )Жанр: Symphonic Gothic Metal, Female VocalsПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD70D3E2FB2A19373BDF595C330E2D960BB52D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726679   (108710) от 29.05.2024
+
+Tennessee Blues Mob - Deep Dark Alibi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Wild Will Heal
+02 - Deep Dark Alibi
+03 - Climb the Mountain
+04 - Six Feet Under(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CEA5FE8E0E76C8362E5332C40AC168BA6F0210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726634   (108704) от 29.05.2024
 
 Karfagen - Land of Chameleons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog Rock>
@@ -597,151 +742,6 @@ Lorekeeper - Lorekeeper (2020) [FLAC 2.0|44/24|WEB-DL|tracks] <Stoner Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74A3F06D93FC1120B8606891D4080FB73CEB6566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727459   (108533) от 02.06.2024
-
-Arooj Aftab - Night Reign (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aey Nehin (5:46)
-02. Na Gul (5:30)
-03. Autumn Leaves (4:47)
-04. Bolo Na (6:15)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FAB9D9FE6DFC3F6BD55BC459C65C488CA42FD64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557168   (108526) от 02.06.2024
-
-Doomsday Dementia - 4 Albums (2018-2022) [FLAC|24/44.1,48|WEB-DL|tracks] <Crust Punk, Doom, Sludge, Stoner Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Doomsday Dementia - 2016 - Doomsday Dementia (24bit-44.1kHz)
-Doomsday Dementia - 2021 - the 3 blind mice demo (ep) (24bit-44.1kHz)
-Doomsday Dementia - 2022 - 3 songs from nov.2021 session outtakes, covid 19 jamroom demos (24bit-44.1kHz)(   Читать дальше...   )Жанр: Crust Punk, Doom, Sludge, Stoner MetalПродолжительность: 5 CD, 03:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7178F17605D3FF945702D54483A6179949B2D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727438   (108518) от 02.06.2024
-
-Sexy Lovers Music Collection, Sexual Music Collection - Steamy Foreplay Excitement (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensual Sunset (3:39)
-02. Overload with Kisses (3:40)
-03. Give Me Some Loving (5:05)
-04. Kaleidoscope (4:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00728240792EBB9AA4838EE957BAEAA48825ECF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727429   (108495) от 02.06.2024
-
-Erasure - Cowboy (1997) Expanded Edition, 2024, BMG Company [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain (2024 Remaster) [00:04:11]
-02. Worlds On Fire (2024 Remaster) [00:03:37]
-03. Reach Out (2024 Remaster) [00:03:47]
-04. In My Arms (2024 Remaster) [00:03:36](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6464DFD562DAA69C421A931220140B78B93D4FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727425   (108491) от 02.06.2024
-
-Dead Or Alive - The Pete Hammond Hi-NRG Remixes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hi-NRG, Dance, Synth-pop, New Wave, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Spin Me Round (Like a Record) (2000 Pete Hammond Hi-NRG Remix) (9:39)
-02. Hit and Run Lover (Pete Hammond Hi-NRG Remix) (8:29)
-03. U Were Meant 4 Me (Pete Hammond Hi-NRG Remix) (8:31)
-04. Lover Come Back to Me (2000 Pete Hammond Hi-NRG Remix) (8:25)(   Читать дальше...   )Жанр: Hi-NRG, Dance, Synth-pop, New Wave, ElectronicПродолжительность: 01:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39C8959387FB1AFB53499889A2D057E9C9CF95D
 ```
 
 https://mybot314.ru/tekegram_catalog/

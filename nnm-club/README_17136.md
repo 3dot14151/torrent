@@ -1,23 +1,54 @@
-###  Публикация: 1075225   (323574) от 21.11.2016
+###  Публикация: 957159   (326770) от 18.11.2015
 
-Postbox 5.0.7 [Multi/Ru]
+VA - White Chill Out Vol 2 (2015) [MP3|320 кб/с]<Lounge, Chill Out, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Cabrera - Red Apple (03:10)
+02. Formentera Bros - Sleep (The Beach Mix) (05:20)
+03. Danny Hay - Tendency (Cosmic Light Mix) (05:53)
+04. Nuvolaris - Disconnect Your Mind (Ars Domina Mix) (05:27)(   Читать дальше...   )Производство: Feel The VibeЖанр: Lounge, Chill Out, New AgeПродолжительность: 02:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AF5014AD5C91132A21FD4D4EA4F201551981F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957621   (326769) от 18.11.2015
+
+VA - Bursting Out Volume 4 (2015) EP [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323574.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Postbox  — социально-ориентированный почтовый клиент
-Postbox является почтовым клиентом, в основу создания которого лёг код Mozilla Thunderbird с большими функциональными возможностями. Во-первых, программа будет весьма полезна для тех, кто часто отправляет и получает письма, содержащие вложения – документы, фотографии и пр. Просматривать фотографии, которые вам прислали, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 ноября 2016Разработчик: : PostBoxПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+01. Space Raven - Cosmologia (Original Mix) (06:04)
+02. Sylvermay - Redlight (Original Mix) (06:02)
+03. JTR - Ziggurat (Original Mix) (08:15)
+04. Brian Kuhn - Deal With It (Original Mix) (05:50)Жанр: TranceПродолжительность: 00:26:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C62B0BC99BD0B2EB551EA01A9D7599930D66DA1A
+magnet:?xt=urn:btih:1B383DA106B4E6C0F576C9E9177FA77278B7CBAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +56,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582434   (323573) от 09.10.2022
+###  Публикация: 957608   (326768) от 18.11.2015
 
-Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+Madwave - Yukatan (2015) Single [MP3|320 кб/с]<Trance>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323573.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vacation in the Underworld [00:04:23]
-02. Like a Bullet [00:04:37]
-03. Sharpen the Sword [00:04:14]
-04. The Reason [00:04:28](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:58
+01. Yukatan (Original Mix) (06:38)
+ 02. Yukatan (Madwave's Uplifter Mix) (06:01)Жанр: TranceПродолжительность: 00:12:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E79847B3F37CA1840E1C2AC3F9B8E801AF861A2B
+magnet:?xt=urn:btih:9FCFC836CE59BAD3F775378C016152EC47F56356
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,108 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073967   (323572) от 21.11.2016
+###  Публикация: 957688   (326767) от 18.11.2015
 
-Роберт Сейбер | Приманка для простаков (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все началось с появления в офисе частного сыщика Карла Гуда провинциальной пожилой леди, которая попросила найти ее дочь, уехавшую в город с миллионером – нефтяником. Сыщик начинает поиски и практически сразу же сталкивается с преступниками, которые занимаются рэкетом и убивают всех, кто становится на пути больших денег. Роман «Приманка для простаков» - это что-то (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D681DD12201F3C3A40DD694242505F265F7CA902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582300   (323571) от 09.10.2022
-
-Bronson - Live Fast Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardcore, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome on board [00:01:43]
-02. Una canzone per disobbedire [00:03:06]
-03. Roma Tiger Punk (vol.2) [00:02:16]
-04. Tutto quello che ho [00:02:53](   Читать дальше...   )Жанр: Melodic Hardcore, Punk RockПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D475B998750F0986931E5A3EEDD7ABAB9A0D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075174   (323570) от 21.11.2016
-
-Graphics 2.4.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Graphics  - набор иллюстраций, подходящих для любого iWork документа, который требует цвет, текстуру и пр. Вы обязательно найдете подходящую иллюстрацию среди 2000 изображений высокого качества.
-
-Категория Клипарт представляет собой набор из 100 красивых, детальных изображений в двух различных разрешениях. Их содержание колеблется от автомобилей и автобусов для бассейнов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 октября 2016Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF995088977823CD621FBCB56781C96885AAC76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075079   (323569) от 21.11.2016
-
-В.А. Кузнецов | Христианство на Северном Кавказе до XV века (2002) [DJVU]
+Ф. М. Путинцев | Политическая роль и тактика сект (1935) [DJVU]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323569.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В монографии доктора исторических наук В. А. Кузнецова рассматривается история христианства на Северном Кавказе до XV века. Особое место уделено христианизации Алании, в связи с чем изложены новые гипотезы, выводы, исторические реконструкции. Книга, написанная к минувшему 2000-летию христианства, предназначена для всех, интересующихся историей Кавказа.Жанр: История христианстваФормат: DJVU
+В книге т. Путинцева дан анализ политической роли и тактики сект начиная с 1900-х гг. и кончая нашими днями.
+
+Рассматривая тактику сект при советской власти на разных этапах, автор вскрывает реакционную сущность сект, показывая наряду с этим процесс высвобождения верующих из под влияния сектантства в результате успехов социалистического строительства.
+(   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01D3939473299A68FA4F10254A5760295D6E4ECD
+magnet:?xt=urn:btih:01F8EE701893E0732A62D666D70B4F8D3CD2AE9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,25 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073973   (323568) от 21.11.2016
+###  Публикация: 957584   (326766) от 18.11.2015
 
-Грэм Грин | Монсеньор Кихот (2012) [MP3]
+Black Ferns - Black Ferns (2015) [OGG|448-488 кб/с]<Alternative Rock, Psychedelic Rock>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323568.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Монсеньор Кихот" - роман крупнейшего английского писателя Грэма Грина. Произведение это неожиданное. Автор как бы переносит сюжет и бессмертных героев Сервантеса в день сегодняшний, наделяет их современными чертами. Остроумный замысел позволил автору противопоставить и в то же время соединить двух людей - носителей противоположных воззрений - католического (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 07:10:56
+01. Lovers of Today
+02. Everything Always
+03. Death Drag
+04. Factory Worker(   Читать дальше...   )Жанр: Alternative Rock, Psychedelic RockПродолжительность: 00:33:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E62DDD22A0E93241B04AD1FDFE594027473CD9B
+magnet:?xt=urn:btih:E86FE00BB8DD7A034D247D86A6FB4E56B0E47132
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,81 +141,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074061   (323567) от 21.11.2016
+###  Публикация: 957627   (326765) от 18.11.2015
 
-Фенимор Купер | Прогалины в дубровах, или Охотник за пчелами (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323567.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе Ф. Купера «Прогалины в дубровах» читатель найдет многое из того, что давно уже стало «фамильной» приметой произведений этого писателя: описание жизни и быта коренных жителей страны Ч индейцев и белых поселенцев; многочисленные сцены охоты; сметающую самые немыслимые преграды любовь; верность данному однажды слову и готовность доказать эту верность ценой (   Читать дальше...   )Жанр: ПриключенияПродолжительность: 16:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4177DE05D7CF6C4C170B62A806BB3B9126F349A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073144   (323566) от 21.11.2016
-
-Альфред Брэм | Жизнь животных. Пресмыкающиеся. Обезьяны (2013) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание посвящено знаменитому научно-популярному труду немецкого ученого-зоолога и путешественника Альфреда Эдмунда Брэма "Жизнь животных".
-Слушатель, как школьник, так и взрослый узнает много нового и интересного о жизни животных. Приведены интересные наблюдения и рассказы натуралистов.Жанр: Биология, зоологияПродолжительность: 10:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB10D76423D9A71033569BB81796FA9884F36D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843702   (323554) от 23.11.2014
-
-Последние часы / These Final Hours (2013) HDRip [EN]
+Andrea Ribeca feat. Lokka Vox - Cyberfly (2015) Single [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323554.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это последний день на земле. Через двенадцать часов глобальный катаклизм положит всему конец.
-Джеймс держит путь через город, погрузившийся в хаос, чтобы попасть на последнюю вечеринку.
-По пути он спасает жизнь маленькой девочки по имени Роуз, которая отчаянно ищет своего отца.Производство: Австралия |  8th In Line, XYZ FilmsЖанр: Триллер, ДрамаРежиссер: Зак ХилдитчАктеры: Сара Снук, Джессика Де Гау, Нэйтан Филлипс, Дэвид Филд, Дэниэл Хеншэлл, Ангури Райс,
-Кэтерин Бек, Линетт Каррен, Нельсон АспенПеревод: ОтсутствуетПродолжительность: 01:26:36
+01. Cyberfly (Original Mix) (07:22)
+02. Cyberfly (Pedro Del Mar & Beatsole Remix) (07:30)
+03. Cyberfly (Madwave & Dave Joy Remix) (07:05)Жанр: TranceПродолжительность: 00:21:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F908C81E02F9A246EC70C546F5591A4488998757
+magnet:?xt=urn:btih:B7C17670DD4C30B3D6796C92445DB6153F411A3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -271,25 +169,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 840951   (323550) от 23.11.2014
+###  Публикация: 414907   (326728) от 25.11.2011
 
-NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip [H.264/720p-LQ] (серии 1-13 из 13)
+Город призраков / Ghost Town (2008) [H.264] BDRip
 
->>
->>
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_323550.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Японский телеканал NHK Enterprises представляет вашему вниманию документальный сериал "Nature Wonder Land VI". Много чудес и необычного таит в себе мир живой природы. Сериал раскроет зрителям ее великое разнообразие. Загадочные факты, скрытые в природе лежат в основе многих удивительных сказок, и некоторые из них хочется назвать мифами. Сериал выявил множество (   Читать дальше...   )Производство: Япония, NHK EnterprisesЖанр: Документальный, путешествия, природа, флора, фаунаРежиссер: Такао Ямамото, Око Кабаяши, Акишико Ида, Казунори Ватанабе, Тошио Хашиба, Микио Курода, Юки ТадокороПеревод: Одноголосый закадровый (профессиональный, ТПО "Red Media")Продолжительность: 13 х ~00:24:00
+На Земле живут много разных людей. У них разные увлечения, интересы, внешность. У них разная жизнь и смерть. Многие из них даже не догадываются о существовании друг друга. Но у всех их есть общее: после смерти, если у них осталось незаконченное дело при жизни, они остаются на Земле в виде духов (или призраков). Они бродят незримо по Земле пытаясь найти покой. У всех (   Читать дальше...   )Жанр: Фэнтези, Комедия, МелодрамаРежиссер: Дэвид КоупАктеры: Рики Жерве, Теа Леони, Кристен Уиг, Грег Киннир, Алан Рак, Аасиф Мандви, Данаи Джекезай Гурира, Деннис Албанес, Дилан Кларк Маршал, Билл КэмпбеллПеревод: 1 - Профессиональный (многоголосый, закадровый)Язык субтитров: РусскийПродолжительность: 01:42:17
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:DBED3529A8B8368CCEF66574FB5A433F5B1CD554
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -297,28 +195,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259076   (323545) от 02.11.2018
+###  Публикация: 415150   (326727) от 25.11.2011
 
-Sundrifter - Visitations (2018) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Psychedelic Rock>
+Михаил Булгаков | Собачье сердце (2005) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения, Русская классика.
+Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик отечественной литературы ХХ столетия.
+Три сатирические повести, представленные в аудиокниге, обращены к одной и той же реальности – Москве 1920-х годов. Рассказывая о полярных силах того времени, автор как бы развертывает человеческую антропологию, (   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: Студия «АРДИС»Продолжительность: 11:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209B2E5AADBF5104333A1075D60A78CA572A7014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957550   (326724) от 18.11.2015
+
+Megadeth - Fatal Illusion (2015) Single [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323545.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sons of Belial (04:35)
-02. Death March (04:46)
-03. Lightworker (04:15)
-04. Targeted (04:45)(   Читать дальше...   )Жанр: Stoner Rock, Psychedelic RockПродолжительность: 00:48:00
+01. Fatal Illusion
+02. Symphony Of Destruction (Live)
+03. Peace Sells (Live)Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:12:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD48373BC882ED5A818983FDA38D3A8854700CF2
+magnet:?xt=urn:btih:73FE7FD15F1E20E6174FC986636B7294143CEB46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,29 +251,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259215   (323544) от 02.11.2018
+###  Публикация: 957601   (326723) от 18.11.2015
 
-VA - Dr. Demento Covered in Punk (2018) 2CD [FLAC|Lossless|tracks + .cue] <Punk, Comedy>
+Прасковья Дидык | В тылу врага (1960) [PDF, DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323544.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326723.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1
-01. Osaka Popstar's Demented Punk Orchestra with The Roto Rooter Goodtime Christmas Band - Dr. Demento Opening Theme (Pico & Sepulveda) (01:42)
-02. Dr. Demento and Osaka Popstar - Demento Segment I (00:26)
-03. Osaka Popstar - Fish Heads (01:43)(   Читать дальше...   )Жанр: Punk, ComedyПродолжительность: CD1 - 01:02:03
-CD2 - 01:02:28
+Предлагаемая читателю документальная повесть разведчицы-парашютистки Прасковьи Дидык восполняет в какой-то мере этот пробел. Правда, книга написана не в чисто мемуарном жанре — повествование ведется от третьего лица. Воины, партизаны откровенно, не стесняясь, говорят о самих себе, о своих боевых товарищах, боевых коллективах, в рядах которых они сражались. Здесь (   Читать дальше...   )Жанр: Военные приключения, Документальная повестьФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11D9600C5C7D41932E9033C738EDCC3654B72874
+magnet:?xt=urn:btih:82389211F0778305D0A1461108FF61D29A36C4A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -356,28 +277,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259109   (323543) от 02.11.2018
+###  Публикация: 957626   (326722) от 18.11.2015
 
-VA - Morphological Patterns: Techno Electrozombies (2018) [MP3|320 Kbps] <Techno>
+Hoyaa - Losing Precious Moments (2015) Single [MP3|320 кб/с]<Trance>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323543.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Kocleo - Reflection
-002. Bruno Power - Light In The Forest
-003. Stereo View - Asteroid (Original Mix)
-004. Bad Habitz - One Day Well Find Our Way(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:26:55
+01. Losing Precious Moments (Original Mix) (07:32)Жанр: TranceПродолжительность: 00:07:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE9C3982AF703712751BEEE35C85DB1766E9B16F
+magnet:?xt=urn:btih:3F78A75A8E620757CADE563754E0DD912521B2A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -385,28 +303,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259094   (323542) от 02.11.2018
+###  Публикация: 957195   (326721) от 18.11.2015
 
-VA - Ori Uplift - Uplifting Only 299 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance,Vocal Trance>
+Crimeanization - Without Someone - (2011) [MP3|320 кб/с]<New Age, Ambient>
 
->>Electronic
->>Radioshow, Live Mixes
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323542.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. BREAKDOWN OF THE WEEK: Andy Blueman - Beyond the World We Know (Extended Mix)
-02. Kaimo K feat. Jess Morgan - In A Whisper (Extended Mix)
-03. Giuseppe Ottaviani featuring Thea Riley - On The Way You Go (OnAir Extended Mix)
-04. DJ Dean & DJ T.H. feat. Hanna Finsen - Find A Road(   Читать дальше...   )Жанр: Trance,Uplifting Trance,Vocal TranceПродолжительность: 01:56:48
+01. Crimeanization Part 1
+02. In A Lifetime
+03. Temporary Visions
+04. I'm Searching For A Place Where I Can Hide(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:00:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B609817D25F40AD328CAA2AC3DD2F6EE65FDD7B
+magnet:?xt=urn:btih:ED0E01B19C303D586C07F50124E01980C747063A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,28 +332,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259093   (323541) от 02.11.2018
+###  Публикация: 957722   (326720) от 18.11.2015
 
-VA - Markus Schulz - Global DJ Broadcast - World Tour ADE in Amsterdam (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+VA - The Dark Side of Trance - Day Of The Dead Vol. 2 (2015) [FLAC|Lossless|WEB-DL]<Trance>
 
->>Electronic
->>Radioshow, Live Mixes
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323541.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gai Barone - Un-Theme
-02. Jerome Isma-Ae & Tone Depth - Kiera
-03. DJ Hell - Guede (ARTBAT Rave Mix)
-04. Traumer - Cobraphobie (Markus Schulz Big Room Reconstruction)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:01:31
+01. Oberon – Different World (7:04)
+02. Origin – Shapeshifter (7:05)
+03. Diego Morrill – Manticore's Soul (7:30)
+04. Omega Drive – Find Me If U Can (7:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A38F8CFA4C10EA2E6480FFC8F5B9547DA5DBE83
+magnet:?xt=urn:btih:B9E4A1E6F124140479AB14F42460DB778266D483
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,26 +361,111 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259095   (323540) от 02.11.2018
+###  Публикация: 956455   (326719) от 18.11.2015
 
-Евгений Карнович | Исторические рассказы и бытовые очерки (1884) [PDF]
+DJ JIM - Halloween (2014-2015) (Обновляемая) [MP3|320 kbps]<Electro House, Big Room House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SBCR - SPIDER
+02. ORFAZ - Deep Threat
+03. Kenneth G & Jeff Doubleu - Big Dipper
+04. Holmes & Watson - Lumberjack (Festival Mix)(   Читать дальше...   )Жанр: Electro House, Big Room HouseПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03AFF3D3D4ECCEBA1C9DFCDA613CFB30A8EC9699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957714   (326718) от 18.11.2015
+
+Ferry Tayle - The Wizard (Extended & Remixed) (2015) [FLAC|Lossless|WEB-DL]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Tayle - Let The Magic Happen (album intro mix) (4:34)
+02. Ferry Tayle - The Way Back Home (feat Poppy - extended mix) (7:21)
+03. Ferry Tayle - Geometrix (feat Driftmoon - extended mix) (6:46)
+04. Ferry Tayle - Metamorphosis (extended mix) (5:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62A0B4D3E8BB5BACCAB89B39848E2D0F5253858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957783   (326717) от 18.11.2015
+
+Анна Барт | Месть из прошлого (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326717.jpg" />
+</div>
+
+
+###  Подробнее
+
+О Смутном времени начала XVII века в Московском государстве написано немало. Однако неразгаданные тайны той эпохи как были, так и остались. И одна из них – история недолгого царствования Марины Мнишек, супруги обоих самозванцев Лжедмитриев. О Марине известно на удивление мало и сведения эти очень противоречивы. А об ее личной жизни – вообще почти ничего. Анна Барт (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 11:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461A89EFAB1A1954B27485E8D168CA6891FF73F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957607   (326716) от 18.11.2015
+
+Сергей Аксаков, Александра  Востром  | Интересные рассказы о животных (2012) [FB2]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323540.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История России. Исторические повести и рассказы.
-Для среднего и старшего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
+В это иллюстрированное издание вошли всеми любимые произведения русских писателей о животных.
+
+Интересные краткие рассказы, В. И. Даля, Д. Н. Кайгородова, С. Т. Аксакова, Л. Н. Толстого просто и увлекательно знакомят детей с миром животных, учат их быть добрыми и отзывчивыми людьми, заботиться о братьях наших меньших и беречь окружающий нас мир.Жанр: Детская прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBDD889BEFB3C1A8BEB21448FE89576A69830C43
+magnet:?xt=urn:btih:673984112787F42E6DEA401B9B99B7B69343EAC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,26 +473,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259099   (323539) от 02.11.2018
+###  Публикация: 957602   (326715) от 18.11.2015
 
-Дмитрий Кайгородов | Из родной природы [Часть 2] (1912) [PDF]
+Обои - Подборка качественных автомобильных обоев. Часть 2. 2560x1440 - 100 шт [JPG]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323539.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Русские писатели и поэты о родной природе.
-Для среднего и старшего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
+Новая подборка качественных автомобильных обоев для вашего рабочего стола.Формат: JPGРазрешение файлов: 2560x1440
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B52E7C80AA189A826C17791A57189A9BEFA84321
+magnet:?xt=urn:btih:B1F885F0C4DB1A3BBB73E87C70E72E8A960EE08D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,25 +499,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258868   (323538) от 02.11.2018
+###  Публикация: 957734   (326714) от 18.11.2015
 
-Э. Геккель | Чудеса жизни. Общедоступные этюды по философии биологии (1905) [DJVU]
+Skype 7.14.0.105 Final RePack (& Portable) by D!akov [Multi/Ru]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323538.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Великий немецкий натуралист и мыслитель Эрнст Геккель известен сейчас в основном своим вкладом в разные области биологии - филогенетику, эволюционную биологию, морфологию, зоологию беспозвоночных. Менее известны его попытки философствования. Геккель был пропагандистом созданной им самим версии философского монизма, построенной с учетом новейших на тот момент достижений (   Читать дальше...   )Жанр: История, науковедение, философия, биологияФормат: DJVU
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует P2P-технологию для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может быть (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B2289CAAC49E78800E90F7E3C9DF9D9958A2007
+magnet:?xt=urn:btih:CFEEA3696281F7952FCF3BAF27E0E14234C4E18B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,196 +525,196 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259063   (323537) от 02.11.2018
+###  Публикация: 957648   (326713) от 18.11.2015
 
-The Ocean - Phanerozoic I: Palaeozoic (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Atmospheric Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cambrian Explosion (01:54)
-02. Cambrian II: Eternal Recurrence (07:51)
-03. Ordovicium: The Glaciation of Gondwana (04:49)
-04. Silurian: Age of Sea Scorpions (09:36)(   Читать дальше...   )Жанр: Progressive, Atmospheric Sludge MetalПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BE1310569982EE78131945BBE9920DBA3C32DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259097   (323536) от 02.11.2018
-
-Николай Рубакин | На необитаемом острове (1912) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения и путешествия.
-Для среднего и старшего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:298DEB9201C1DD3D013B2563DE12908D52EE1A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259142   (323535) от 02.11.2018
-
-TextLab 1.4.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323535.jpg" />
-</div>
-
-
-###  Подробнее
-
-TextLab - текстовый инструмент преобразования, который позволяет Вам быстро управлять и экспортировать свой текст и данные в удобочитаемый и понятный формат. Например, если Вы копируете и вставляете JSON в примере, он предлагает утвердить и отформатировать это JSON. TextLab мудр, так как он предлагает, какие операции могли быть выполнены основанные на Вашем вводе. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2018Разработчик: Ondrej KvasnovskyПоддерживаемая ОС: macOS 10.7.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E96AB2A7124B4EA60549D85F0530FE369D16B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259112   (323534) от 02.11.2018
-
-Astral Waves - La Danse Du Chaman (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Tribal, Chillgressive>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La Danse Des Hiboux (10:42)
-02 - La Danse Du Chaman (11:19)
-03 - La Danse Du Copal (11:33)
-04 - La Danse De Gaia (10:58)(   Читать дальше...   )Жанр: Downtempo, Tribal, ChillgressiveПродолжительность: 01:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E2EC134671E1FF1ADF6CFC9DCEE41D526D491B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259223   (323533) от 02.11.2018
-
-VA - Only Silk 05 (Mixed by Max Flyant & Vintage & Morelli) (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Flyant - Only Silk 05 (Part One)(Continuous Mix)
-02. A.M.R - Silver Lining (Intro Mix)
-03. Approaching Black - Closer (Original Mix)
-04. Jay FM - Obsession (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA775A9D6D8B68372EE3876F2BF215F91EB7330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259047   (323532) от 02.11.2018
-
-The Kooks - Let's Go Sunshine (2018) [FLAC|Lossless|tracks + .cue] <Pop Rock, Brit Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:20)
-02. Kids (03:40)
-03. All the Time (04:06)
-04. Believe (04:14)(   Читать дальше...   )Жанр: Pop Rock, Brit PopПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBF5E22464ECA9A6D04C96B03A9698DCD12FF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259128   (323531) от 02.11.2018
-
-Duplicate Photos Fixer Pro 2.8 [En]
+Человек-муравей / Ant-Man (2015) WEB-DLRip [576p] iPad
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323531.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
-
-Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2018Разработчик: Systweak Software Private LimitedПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+Вооружившись удивительной способностью уменьшаться в размере, но обладать при этом большой силой, мошенник Скотт Лэнг должен стать героем и помочь своему наставнику, доктору Хэнку Пиму, сохранить в тайне существование костюма Человека-муравья от угроз нового поколения.Производство: СШАЖанр: Фантастика, боевик, комедия, приключенияРежиссер: Пейтон РидАктеры: Пол Радд, Майкл Дуглас, Эванджелин Лилли, Кори Столл, Майкл Пенья, Бобби Каннавале, Ти-Ай, Давид Дастмалчян, Эбби Райдер Фортсон, Джуди ГрирПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  Английские (полные, отключаемые)Продолжительность: 01:57:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADAEBEA6BBB6D81DA20D97EED6E4487FD30E1D6D
+magnet:?xt=urn:btih:FA8C8111F0A538F7AA2888A17F5A3A98243BBDD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957776   (326712) от 18.11.2015
+
+VA - A Smile and a Tear Best Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Magical Corner - Laguna
+02. Logophilia - Igualmente
+03. Hannes Im Glьck - Ach und Lach
+04. Mind Conventions - Sweet Fever(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64DE6E9B0AF061F1AAEE24BEE28B484B0D97541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957428   (326711) от 18.11.2015
+
+Dirty Sound Magnet - What Lies Behind (2012) [MP3|320 кб/с]<Blues rock, Hard rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind memory (3:45)
+02. Heavy hours (4:54)
+03. Mike's awakening (3:42)
+04. Mr Robert (3:22)(   Читать дальше...   )Жанр: Blues rock, Hard rockПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B84F58E208097C984541658042D261C2B8C32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957510   (326710) от 18.11.2015
+
+Связанные местью / Reversal / Bound to Vengeance  (2015) BDRip [H.264/720p] [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о молодой девушке, которую похитили и посадили на цепь в тёмном, сыром подвале для извращённых утех. Однажды ей удается вырваться, и месть становится её главной целью. Но прежде, чем поставить точку, она должна попытаться спасти остальных узниц.Производство: США, Dark Factory EntertainmentЖанр: ужасы, триллерРежиссер: Хосе Мануэль КравиоттоАктеры: Ричард Тайсон, Тина Ивлев, Эми Окуда, Бьянка Малино, Стефани Чарльз, Нихан Гар, Фиорелла Гарсиа, Дастин Куик, Рик Сарабиа, Скотт Вэнс, Виван Дюгре, Кристоффер ХьорнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DED1ADE8EA1361D3292B83C91B0A27091C82394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957212   (326709) от 18.11.2015
+
+VA - Shogun Audio Presents: 2015 (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed:It - Centre Suite
+02. Liz-E - On My Mind
+03. Submorphics - The Divine (feat. Jenna G)
+04. Technimatic - Dirty Hands(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9566C5AF2A91CC56B2FE019B12993CFD43394C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957720   (326708) от 18.11.2015
+
+The Warrior Kings - The Warrior Kings (2012) [MP3|320 кб/с]<Blues rock, Hard rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Supernatural (4:47)
+02. Robert Johnson's Revolver (3:39)
+03. Machine Gun (10:20)
+04.Жанр: Blues rock, Hard rockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCDAD96E5E92319C2ED84F79F97E83F76CA51E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957338   (326707) от 18.11.2015
+
+Kory Caudill - Tree of Life (2015) [OGG|452-545 кб/с]<New Age, Neoclassical, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginnings
+02. Around the World
+03. Waltz of Life
+04. Time(   Читать дальше...   )Жанр: New Age, Neoclassical, Solo PianoПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683237595ADDAD846838D5BD20D4D2CB701BF236
 ```
 
 https://mybot314.ru/tekegram_catalog/

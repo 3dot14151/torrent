@@ -1,3 +1,174 @@
+###  Публикация: 951028   (363669) от 29.10.2015
+
+Johnny Hodges - With Billy Strayhorn And The Orchestra (1961) /1999, Verve/[FLAC|image+.cue]<Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Don't Get Around Much Anymore [03:05]
+ 02.I Got It Bad (And That Ain't Good) [03:39]
+ 03.Gal From Joe's [02:30]
+ 04.Your Love Has Faded [03:04](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977C2BDD0873EE3F190E2DC17CFCE44A3F8CB812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950800   (363668) от 29.10.2015
+
+VA - Genuine Houserockin' Music, Vol. 1 (1986) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363668.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Johnny Winter - Sound The Bell (3:28)
+2. Koko Taylor - Come To Mama (4:38)
+3. Lonnie Mack - Satisfy Suzie (4:09)
+4. Albert Collins with Robert Cray and Johnny Copeland - Blackjack (6:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD86FC1007A7E5F82EBB56A00DABF2530708C2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951492   (363664) от 29.10.2015
+
+Nat King Cole Trio - Live at the Circle Room & More (1946/1949) /1999, Definitive Records/[FLAC|tracks+.cue]<Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Opening Theme [00:40]
+ 02.Oh, But I Do [02:58]
+ 03.I'm Thru With Love [03:11]
+ 04.'C' Jam Blues [03:50](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F109A2A49EA46F9EDCACDD9F81365E650B03564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328487   (363604) от 30.09.2019
+
+John Coltrane - Blue World (1960-е) 2019, Impulse! [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NaimaЖанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666E7198F8FF20518ECFF98054C39A1C87B035CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328576   (363553) от 30.09.2019
+
+The Steve Howe Trio - New Frontier (2019) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiatus [02:24]
+02. Left To Chance [06:33]
+03. Fair Weather Friend [04:26]
+04. Zodiac [03:07](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3267EF818388C1D6BC9C17DB432D40046E47EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328434   (363385) от 30.09.2019
+
+John Mayall With Eric Clapton - Blues Breakers (2019) Remaster, 1966 [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Your Love (03:39)
+02. Hideaway (03:17)
+03. Little Girl (02:37)
+04. Another Man (01:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C7969C3AEE97F76FD8BCB31ACDEDAC6CB9506F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328375   (363382) от 30.09.2019
 
 Morgan James - 5 альбомов (2012-2018) [MP3|320 Kbps] <Vocal Jazz, Soul, Pop>
@@ -571,181 +742,6 @@ VA - Jazz Goes To Cinema (2003) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B653456158B49DD053630399DF9A7581A22045B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 154414   (361572) от 23.11.2009
-
-Various Artists - SAX & SEX (1997) 4CD [FLAC|Lossless]<Instrumental, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_361572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошая подборка соло саксофона с оркестром. К сожалению исполнители не указаны.
-Компиляция "Banana Records Publishing" U.K.01. Fernando (4:43)
-02. I Just Called To Say I Love You (4:56)
-03. One More Night (5:30)
-04. Comme Elle (3:47)(   Читать дальше...   )Жанр: Instrumental, Smooth JazzПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177743   (361266) от 26.10.2017
-
-Michael Brecker Group - The Cost Of Living (1989) 1994, Jazz Door [WavPack|Lossless|image + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Istbynne Reel [09:36]
-02. Chime This [18:20]
-03. Choices [11:17]
-04. The Cost of Living [16:26](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C526EBCF4085359153F7BFB83BD638699E2EAF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328697   (361229) от 01.10.2019
-
-Ryo Fukui - Scenery +2 (1976) 2005, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Could Happen to You [4:17]
-02. I Want to Talk About You [6:33]
-03. Early Summer [10:44]
-04. Willow Weep for Me [7:43](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D91FA0180602EE8ADAC90130AC52391A9DA96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177745   (361178) от 26.10.2017
-
-Sonny Stitt & The Hank Jones Trio - The Good Life (1980) 1994, Evidence [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deuce's Wild [02:39]
-02. Autumn Leaves [03:37]
-03. Angel Eyes [04:41]
-04. Bye Bye Blackbird [04:45](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA37E2E4559528B6090A381F9C79DEB2FFB0CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177599   (361173) от 26.10.2017
-
-Chris Barber's Jazz & Blues Band - Chris Barber In Switzerland 1974/75 (2004) 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Dixieland, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. My Maryland
-02. Harlem Bound
-03. Whatcha Gonna Do?(   Читать дальше...   )Жанр: Jazz, Dixieland, BluesПродолжительность: 02:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D348351CAF758AAD1D37E6D9FDDAFC50DFF49387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328751   (361043) от 01.10.2019
-
-John Prater And The Benders - John Prater And The Benders (2019) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carolina Moonshine (05:39)
-02. I Gave Up Love (04:01)
-03. Never Love Again (04:16)
-04. Love Sweet Love (05:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D12CDA8364A74BF94A5B8E8E0AFA0E80198319E
 ```
 
 https://mybot314.ru/tekegram_catalog/

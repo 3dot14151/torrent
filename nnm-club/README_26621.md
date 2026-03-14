@@ -1,25 +1,25 @@
-###  Публикация: 1804090   (13278) от 27.06.2025
+###  Публикация: 1801890   (14717) от 13.06.2025
 
-De-Phazz - Luck You! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Trip Hop, Lounge>
+The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Deluxe Edition) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13278.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hotel Grand Moondial
-02. Overjoked
-03. Serenade To Go
-04. My Turntable Is Unable(   Читать дальше...   )Жанр: Nu Jazz, Trip Hop, LoungeПродолжительность: 00:44:44
+01 - Suffocate City (feat. Spencer Charnas of Ice Nine Kills) [3:34]
+02 - Holy Water (feat. Ivan Moody of Five Finger Death Punch) [3:02]
+03 - Blood Mother [3:17]
+04 - Doom and Gloom [3:19](   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 01:26:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5767AA5AC2A9671EF400BD659E68BD018257240C
+magnet:?xt=urn:btih:8DD186B90C38262D9E9288FED5988E4CDD8483BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,553 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804147   (13277) от 27.06.2025
+###  Публикация: 1801782   (14716) от 13.06.2025
 
-Текстуры - Creative Market - 28 Scanned Photocopy Xerox Texture - 280619982 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13277.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 качественно отсканированных текстур для ваших творческих задач.Формат: JPGРазрешение файлов: 4360x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CAB98E6E74646C1BCC585054830D86F2A4BF24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804040   (13276) от 27.06.2025
-
-Шрифты - MaulanaCreative - Deeezy - Roston Ecadyo - Mod By He Rez AD - 100932 [TTF, OTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.
-Кириллица добавлена от "He Rez AD" (русская, молдавская, украинская, белорусская); им же добавлены некоторые дополнительные глифы кернинг и прочие параметры в соответствии с оригиналом (просьба не критиковать).Формат: TTF, OTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69BA31D1F0A1A3592D3A20C0C373D6182C41A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762441   (13275) от 27.06.2025
-
-Иван Забелин | Минин и Пожарский (2012) [MP3, Егор Серов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван Егорович Забелин (1820–1908) – один из виднейших русских историков XIX века, археолог, музейный деятель, коллекционер, действительный статский советник (1876), член-корреспондент (1884), почетный член (1907) Петербургской Академии наук.
-Книга Забелина посвящена событиям 400-летней давности – тревожным временам Смуты, когда решающую роль в борьбе за независимость (   Читать дальше...   )Жанр: Русская литература, историческая прозаИздательство: Студия «АРДИС»Продолжительность: 08:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A6E0276945443130A86F25F13E679A41C93AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804078   (13274) от 27.06.2025
-
-Hidden Legacy: Dark Heirloom (2025) [Multi] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую мистическую игру. Приготовьтесь к захватывающему путешествию в мир тайн и опасностей! История рассказывает о знаменитом генеалоге Габриэле Ваньярде, который оказывается втянут в мрачную тайну семьи Монтгомери. Их наследие связано с проклятым кольцом, которое приносит смерть каждому, кто его носит. От покрытых мхом руин ирландского поместья до величественных (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C7832A36C4FCD3663A1992DF6B4591D33DF28A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804073   (13273) от 27.06.2025
-
-Armin van Buuren - Breathe (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Sam Gray - Dream A Little Dream (Extended Mix) [5:05]
-02. Armin van Buuren feat. JAI RYU - Let It Be For Love (Extended Mix) [5:29]
-03. Armin van Buuren feat. Louis III - Part Of Me (Extended Mix) [5:21]
-04. Armin van Buuren & David Guetta feat. Aldae - In The Dark (Extended Mix) [3:54](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3657B283B1EF5A5758CE7300385F93A4570046AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804084   (13272) от 27.06.2025
-
-UJAM - BEATMAKER 3 3.0.0 VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите полный опыт работы с Beatmaker. 15 барабанных инструментов, ориентированных на разные жанры — от Trap и Lofi до EDM, Pop, Dubstep, Reggaeton и не только.
-Барабаны, биты и перкуссия составляют ядро и сердцебиение песни, помогая музыке прикоснуться к нашему изначальному "я" и обеспечивая опору для мелодий и текстов песен. Электронные драм-машины (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6782E32167A7BC546C284F93EDEC731FBB7B2401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804156   (13271) от 27.06.2025
-
-Роджер Желязны | Миледи на диодах (2020) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниэль Бракен был рядовым инженером корпорации «Зикфакс», но когда он попытался запатентовать часть своих изобретений, связанных с искусственным интеллектом, руководство «Зикфакса» присвоило себе его разработки, а Даниэля вышвырнуло на улицу. С тех пор он уже много лет преследует Зикфакс, причиняя корпорации ущерб и ведя учет суммы, которую ему осталось «восполнить». (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3C033D35DA63022B0860985612EFFD34D9E94E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804135   (13270) от 27.06.2025
-
-Одиннадцатое июля (1938) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Годы гражданской войны. Польские интервенты подходят к Березине. Красная Армия временно покидает белорусские земли. Организуются партизанские отряды, во главе одного из которых становится большевик Степан. В этом же отряде и его брат, находящийся в сговоре с польским шпионом Капустой...
-Фильм из  коллекции Госфильмофонда России и опубликован в интернете в рамках совместного (   Читать дальше...   )Производство: СССР / Кинофабрика "Советская Белорусь"Жанр: историко-революционныйРежиссер: Юрий ТаричАктеры: Николай Анненков, Григорий Плужник, Мария Домашёва, Владимир Шитенков, Кузьма Кулаков, Василий Софронов, Владимир Лебедев, Галина Инютина, Иван Клюквин, Сергей КомаровСубтитры: отсутствуютПродолжительность: 01:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A146675457235576B014B2775BD7D6EE5D1D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804152   (13269) от 27.06.2025
-
-Шаблоны - YouWorkForThem - Cinematic Blur Photo Effect - E14759 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте завораживающие, высококачественные изображения и фотографии всего за пару кликов! Этот фотоэффект включает в себя слои смарт-объектов, обеспечивая полную настройку, простоту и универсальность рабочего процесса. Просто откройте нужный слой, дважды щелкнув по его миниатюре, удалите заполнитель кадра, добавьте графику, сохраните его и наблюдайте за магией (   Читать дальше...   )Формат: PSDРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECB07410FA02C4EFF4D50EFB52DAEDC88E6BE45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804155   (13268) от 27.06.2025
-
-Текстуры - Creative Market - 20 Wall Texture HQ - 92476126 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13268.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 текстур стены в высоком разрешении для ваших творческих задач.Формат: JPGРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839F94E8B9A2E072C8853868285A6255C0FE14CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804057   (13267) от 27.06.2025
-
-Ася Казанцева | Откуда берутся дети? Краткий путеводитель по переходу из лагеря чайлдфри к тихим радостям семейственности (2024) [MP3, Евгения Лавут]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга популяризатора науки Аси Казанцевой, автора книг «Мозг материален», «В интернете кто-то неправ» и «Кто бы мог подумать! Как мозг заставляет нас делать глупости».
-Уникальный экскурс в эмбриологию, репродуктологию и пренатальную поведенческую науку!
-Новорожденные котята умеют ползать, косатки – плавать, слонята – ходить. Человеческий детеныш появляется (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: CorpusПродолжительность: 09:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B597445BFFE54E530A7A08725C26E53677E1BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804058   (13266) от 27.06.2025
-
-VA - Ori Uplift - Uplifting Only Episode 646 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rowan van Beckhoven – Conjunction (Intro Mix)
-02. Dmitriy Kuznetsov – Elven Wind (Fan Favorite (644))
-03. REX.W – Mongke Tengri (Pre-Release Pick)
-04. Calvin O’Commor – Goodbye To The Future(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C66A0B97BD0D77D008863FFCA9428C90CE17C76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804117   (13265) от 27.06.2025
-
-Noumenia - Echoes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blind Idols [5:40]
-02 - The Circle [3:41]
-03 - Outsider [3:32]
-04 - Fractures [4:17](   Читать дальше...   )Жанр: Post-Groove MetalПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76BBF481FA149FD0EE66423DF978F255679C6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804121   (13264) от 27.06.2025
-
-Yunus Guvenen - Red Pilot / Ways Of Life (2001) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Red Pilot (Original Mix) 8:54
-02 Ways Of Life (Original Mix) 7:32Жанр: Progressive TranceПродолжительность: 16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39F72466F2F61845D1C4E9578AE37A5FA3F98DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804049   (13263) от 27.06.2025
-
-Crematory - ...Just Dreaming (1994) Remastered, Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heavens Throat [2:11]
-02 - Transmigration [5:13]
-03 - Only Once In A Lifetime [3:52]
-04 - Shadows Of Mine [5:16](   Читать дальше...   )Жанр: Gothic Metal, Death MetalПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493ED6A47EE10D8E5CE70E8837298BB79AFF19B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804026   (13262) от 27.06.2025
-
-Late Night Savior - Rebirth (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One [00:03:25]
-02. Enemy [00:03:18]
-03. Artificial [00:03:28]
-04. Hellfire [00:03:12](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2447D872440DD208C020B90D5A56434E073BE7D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804109   (13261) от 27.06.2025
-
-Crystal Viper - The Live Quest (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Return To Providence (Live) [1:44]
-02 - Fever Of The Gods (Live) [4:28]
-03 - The Silver Key (Live) [4:45]
-04 - The Cult (Live) [4:55](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3DE10EF940B5B01AF0EA9BFF103898904CEEFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804050   (13260) от 27.06.2025
-
-Heaven Shall Burn - Heimat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Keinen Schritt zurück [4:37]
-02 - Schweineherbst [3:17]
-03 - Eisenkopf [3:51]
-04 - Destroy Fascism (Too Good to Steal from Edition) [1:59]Жанр: Melodic Death Metal, MetalcoreПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A816EC79D0D0C3240653296FDF60D3AA8509D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804106   (13259) от 27.06.2025
-
-Michael Sagmeister & Pat Martino - Conversation (2000) Acoustic Music Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conversation [5:26]
-02. Catch [6:41]
-03. Rejoin [8:37]
-04. On the Stairs [8:29](   Читать дальше...   )Жанр: Jazz Fusion, Post-Bop, Guitar JazzПродолжительность: 01:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D840D2158D7F54C394A734B31826F88230BCBF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804126   (13258) от 27.06.2025
-
-Jakko Jakszyk - Son Of Glen (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+Neil Diamond - The Best of The Movie Album (1998) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock, Soft Rock,>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13258.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ode to Ballina
-02. Somewhere Between then and Now
-03. How Did I Let You Get So Old?
-04. This Kiss Never Lies(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:50
+01. As Time Goes By    [0:02:55.43]
+02. Unchained Melody    [0:03:49.60]
+03. Can You Feel the Love Tonight    [0:04:08.45]
+04. The Way You Look Tonight    [0:02:38.07](   Читать дальше...   )Жанр: Rock, Pop Rock, Soft Rock,Продолжительность: 00:45:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A59D8CBE7E7C9F177DD11CE3B5FC682DAB6E94E3
+magnet:?xt=urn:btih:167F7E0900F4980E3593A980BD8E607ABB4EC818
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804096   (13257) от 27.06.2025
+###  Публикация: 1801662   (14715) от 13.06.2025
 
-Тэффи | Горы (Радиоспектакль) (2023) [MP3, Алла Еминцева и др.]
+Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13257.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Театр у вас дома.
-Тэффи – псевдоним Надежды Александровны Лохвицкой (1872–1952) – русской писательницы, постоянного автора журналов «Сатирикон» и «Новый Сатирикон».
-Радиоспектакль по рассказу «Горы» из сборника «Юмористические рассказы» (1911). Впечатления и забавные подробности путешествия двух дам на Кавказ по Военно-Грузинской дороге…
-(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:44:52
+Жанр: Folk, CountryПродолжительность: 01:04:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C02BA7CF80E9C20E55A4FD1537D499E3BC316EE
+magnet:?xt=urn:btih:5229224C856971504507DB44B3B63871D46C71DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804095   (13256) от 27.06.2025
+###  Публикация: 1801835   (14714) от 13.06.2025
 
-VA - Redux Selection, Vol. 7 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 
->>Electronic
->>Trance
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13256.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex Denada - Twenty (DJ T.H. Extneded Remix) [5:41]
-02. Code Mode & Chryssa D feat. Zenia - With You (Extended Mix) [6:51]
-03. Alex Speckmann - The Descent (Extended Mix) [6:06]
-04. Jake, JoX & Helena Kristiansson - Liberty (Extended Mix) [5:21](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:17:09
+01. Revelation [00:04:13]
+02. Love Me Alive [00:03:25]
+03. Foolish Pleasure [00:02:41]
+04. The Hero [00:03:47](   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:28:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1588B1328F5B0EE280AE6CF93CC16C38F0B2BE00
+magnet:?xt=urn:btih:D897B35CE14A6C84A3BECE75FA115FB025B8441D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,21 +111,253 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804009   (13255) от 27.06.2025
+###  Публикация: 1801801   (14713) от 13.06.2025
 
-Финикийская схема / The Phoenician Scheme (2025) WEBRip [DVO] [AD]
+Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [MP3|320 Kbps] <Blues Rock, Folk Rock, Progressive Rock>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13255.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1950 год, где-то на Ближнем Востоке. Экстравагантный магнат Жа-Жа Корда переживает череду покушений и затевает грандиозный трансконтинентальный проект «Финикийская схема». В стремлении защитить свою империю, Корда назначает единственной наследницей дочь Лисл, вытащив её из монастыря. Им предстоит столкнуться с многочисленными врагами, государственными интригами и (   Читать дальше...   )Производство: США, Германия / American Empirical Pictures, Indian Paintbrush, Focus FeaturesЖанр: боевик, триллер, драма, комедия, криминалРежиссер: Уэс АндерсонАктеры: Бенисио Дель Торо, Миа Триплтон, Майкл Сера, Риз Ахмед, Том Хэнкс, Брайан Крэнстон, Матьё Амальрик, Ричард Айоади, Уиллем Дефо, Скарлетт Йоханссон и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:03Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+01 - My Sunday Feeling (Live) [3:59]
+02 - Living in the Past (Live) [5:36]
+03 - Serenade to a Cuckoo (Live) [4:22]
+04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBB0871E67DBDEB3213813A991B4D588FA1F0BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801769   (14712) от 13.06.2025
+
+Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordings Ltd [FLAC 24/96|Lossless|WEB-DL|tracks] <Britpop, Alternative Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Supersonic [4:45]
+02 - Roll With It [4:00]
+03 - Live Forever [4:39]
+04 - Wonderwall [4:22](   Читать дальше...   )Жанр: Britpop, Alternative Rock, Indie RockПродолжительность: 02:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798DBFC6222AF8BC193EC504AF5962434DBE9CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801891   (14711) от 13.06.2025
+
+The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Deluxe Edition) (2025) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Suffocate City (feat. Spencer Charnas of Ice Nine Kills) [3:34]
+02 - Holy Water (feat. Ivan Moody of Five Finger Death Punch) [3:02]
+03 - Blood Mother [3:17]
+04 - Doom and Gloom [3:19](   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 01:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC64DD849B80A6240FA137917792218B41290FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801799   (14710) от 13.06.2025
+
+Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Folk Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Sunday Feeling (Live) [3:59]
+02 - Living in the Past (Live) [5:36]
+03 - Serenade to a Cuckoo (Live) [4:22]
+04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931A31D6D0882E4EB028D82D22E965D6F669784F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801857   (14709) от 13.06.2025
+
+Пролиф - 3 Albums (2025) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рыбалка [00:05:22]
+02. Керженец [00:08:14]
+03. Сад [00:03:51]
+04. Весна: 2020 [00:04:38](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 3 CD, 03:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CF34FE8CC0BA843281ED831D81BD7B407DC33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801911   (14708) от 13.06.2025
+
+Вадим Кузёма - Говорила мама-Не женись (2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Хоть что-то осталось [00:02:59]
+02 - Творцы [00:03:24]
+03 - Говорила мама-Не женись [00:02:35]
+04 - Женщина-загадка [00:02:51](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F97954E6A7EC35C1D3C5AE7A5EAFD95A4AAD303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801846   (14707) от 13.06.2025
+
+Van Morrison - Remembering Now (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14707.jpg" />
+</div>
+
+
+###  Подробнее
+
+47-й студийный альбом североирландского певца и автора песен Вана Моррисона, вышедший на лэйблах Exile Productions и Virgin Records.
+Это возвращение Вана Моррисона к оригинальному написанию песен после кавер-альбомов и переработок его старых песен01. Down To Joy
+02. If It Wasn’t For Ray
+03. Haven’t Lost My Sense Of Wonder
+04. Love, Lover and Beloved(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849FB23991D8B431D5B7E646A4C861C7BB1D0F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696087   (14706) от 14.06.2025
+
+BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.4.110480/dlc) Scene Rune
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14706.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlazBlue Entropy Effect - двухмерная приключенческая игра во вселенной BlazBlue, но с другим жанром и стилем, чем предыдущие файтинги. В ней присутствуют элементы рогелита, такие как процедурно генерируемые карты, permadeath и кастомизация персонажей. Также здесь имеется насыщенный сюжет с несколькими концовками, зависящими от выбора геймера.Тип издания: SceneРазработчик: 91ActЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Китайский (упрощенный), ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59A309DEEADB5CE981CCB296D7583C6A89EFEAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 164024   (14705) от 14.06.2025
+
+Фартовый (2006) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14705.jpg" />
+</div>
+
+
+###  Подробнее
+
+22-летний Вадим Упоров по доносу осужден на 25 лет по статье 58 и отправлен в один из лагерей ГУЛАГА. По прибытии в лагерь он ссорится с ворами, и с вором в законе Дьяком, который приговаривает его к смерти. Чтобы избежать этой участи, он совершает побег. Побег не удается — его ловят, избивают и кидают в карцер в БУР.
+
+В «сейфе» Упоров проводит полгода… Вернувшись (   Читать дальше...   )Жанр: Драма, КриминалРежиссер: Владимир ЯканинАктеры: Екатерина Вуличенко, Владимир Епифанцев, Александр Мохов, Николай Иванов, Алексей Жарков, Дмитрий Щербина, Борис Невзоров, Игорь Воробьев, Сергей Греков, Михаил СамохваловСубтитры: ОтсутствуютПродолжительность: 01:32:47
 
 ## Скачать торент
 ```bash
@@ -665,28 +369,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804161   (13254) от 27.06.2025
+###  Публикация: 1801859   (14704) от 14.06.2025
 
-Gabrielle De Val - I Am The Hammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+Ночь с психопатом / Borderline (2025) BDRemux [H.264/1080p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13254.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Sky Is Falling
-02. Let Sleeping Dogs Lie
-03. Good Morning Vietnam
-04. For Whom The Bell Tolls(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:49
+1990-е. Полгода назад Пол — поклонник поп-звезды Софии — пробрался в её особняк на Голливудских холмах, ранил охранника ножом и был пойман. Теперь он в компании такой же сумасшедшей подельницы сбегает из психиатрической лечебницы и снова проникает в дом своего кумира в полной уверенности, что теперь они с Софией точно поженятся.Производство: США / LuckyChap Entertainment, Productivity Media, Red A EntertainmentЖанр: триллер, комедияРежиссер: Джимми УорденАктеры: Самара Уивинг, Рэй Николсон, Эрик Дэйн, Джимми Фэйлс, Алба Баптишта, Кэтрин Лок Хэггквист, Патрик Кокс, Ясмин Келдерс, Теренс Келли, Эйприл КамеронПеревод: Дублированный (Мосфильм-Мастер), многоголосый (HDrezka Studio, 1win Studio, заКАДРЫ)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, 2x Full), Английские (Full, SDH)Продолжительность: 01:34:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E669A8B0FD8DEE84D6737545D72FF0728688AE2
+magnet:?xt=urn:btih:274E60339786ACBB0C0A56D9107BFFA34CD3D591
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +395,313 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804027   (13253) от 27.06.2025
+###  Публикация: 1760198   (14703) от 14.06.2025
 
-Benson Boone - American Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+Далёкий город / Uzak Sehir (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-28 из 28) Voize, AlisaDirilis
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13253.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sorry I'm Here For Someone Else [00:02:36]
-02. Mr Electric Blue [00:03:10]
-03. Man In Me [00:03:48]
-04. Mystical Magical [00:02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:27
+Алья Альбора приезжает на земли Альбора в Мардине с телом своего покойного мужа и их пятилетним сыном, чтобы исполнить его последнюю волю. В итоге оказывается, что из Альборы нет возврата и нет спасения. Глава семьи Альбора, Джихан, не позволяет забрать ребёнка и уйти. Столкнувшись с тьмой прошлого, скрытыми секретами и суровой реальностью региона, Алья оказывается (   Читать дальше...   )Производство: Турция / AyNA YapimЖанр: драма, криминалРежиссер: Ахмет КатыксызАктеры: Озан Акбаба, Синем Унсал, Гонджа Джиласун, Атакан Озкая, Назми Кырык, Сахра Шаш, Дилин Догер, Мехмет Полат, Синан Демирэ, Майн Кылыч и др.Перевод: Дублированный (Voize), двуголосый любительский (AlisaDirilis)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:20:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A93CC70B4F0706BC0C107EC5E6D126CB5099043C
+magnet:?xt=urn:btih:EA8E80384B301A75926E38C286925C9B3A6D30EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 64790   (14702) от 14.06.2025
+
+Карантин (1983) TVRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в детском саду объявили карантин, оказалось, что пятилетнюю Машу не у кого оставить, все заняты неотложными делами. Даже прабабушка и прадедушка тоже работают. Поэтому Маша будет жить у родственников, друзей, коллег и случайных знакомых, а заодно, быть может, узнает много полезного, интересного и увлекательного.Производство: СССР, Киностудия им. М. ГорькогоЖанр: Комедия, Семейный, ДетскийРежиссер: Илья ФрэзАктеры: Айлика Кремер, Евгения Симонова, Юрий Дуванов, Светлана Немоляева, Юрий Богатырев, Татьяна Пельтцер, Павел Кадочников, Лидия Федосеева-Шукшина, Елена Соловей, Нина АрхиповаСубтитры: ОтсутствуютПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3498E9B609D56A97E5215E9135E3B7A070DD33CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801683   (14701) от 14.06.2025
+
+Саван / The Shrouds (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма — бизнесмен Карш, потерявший жену. Он разрабатывает гаджет, с помощью которого можно получать сообщения из гроба о степени разложения тела. Однако позднее несколько могил, включая могилу супруги Карша, подвергаются разграблению. Это заставляет героя переосмыслить и свою жизнь, и свой бизнес.Производство: Франция, Канада / Canal+, Ontario Creates, Saint Laurent, Sphere FilmsЖанр: ужасы, фантастика, триллер, драмаРежиссер: Дэвид КроненбергАктеры: Венсан Кассель, Дайан Крюгер, Гай Пирс, Сандрин Холт, Элизабет Сондерс, Дженнифер Дэйл, Эрик Веинтал, Джефф Юн, Ингвар Эггерт Сигюрдссон, Вьеслав КристианПеревод: Многоголосый (LineFilm 18+), одноголосый (TAPE 18+)Язык озвучки: Русский, АнглийскийСубтитры: Русские, ФранцузскиеПродолжительность: 01:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7323890460B42BA189806EF9BB07703D746144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749186   (14700) от 14.06.2025
+
+Чёрное сердце / Siyah Kalp (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-34 из 34) Voize, AlisaDirilis
+
+>>Зарубежные сериалы
+>>Турецкие сериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сумру, которая построила новую жизнь в Каппадокии, в юном возрасте бросила своих новорожденных близнецов Нуха и Мелек, так и не взяв их на руки. Теперь она замужем за Саметом, одним из самых богатых бизнесменов Каппадокии, продолжает свою роскошную жизнь с детьми, которых она родила от него. Мелек и Нух узнают личность своей матери из последних слов бабушки и отправляются (   Читать дальше...   )Производство: Турция / Tims&B ProductionsЖанр: драмаРежиссер: Улуч БайрактарАктеры: Хафсанур Санджактутан, Бурак Тозкопаран, Арас Айдын, Генджо Озак, Лейла Танлар, Гёзде Чигаджи, Эсра Дерманджиоглу, Илькер Аксум, Эдже Услу, Бюлент Полат, Бурак Серген, Сема Чейрекбси, Айше Тунабойлу, Дерин Индже и др.Перевод: Дублированный (Voize), двуголосый любительский (AlisaDirilis)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC85CA26D25D31ADA0D9EAEA9E299B7CEE7CF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747226   (14699) от 14.06.2025
+
+Ночная сказка / Bir Gece Masali (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-35 из 35) Кириллица, AlisaDirilis
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Махир, чей отец погиб в результате покушения в Денизли, где он служил, спустя двадцать лет возвращается в город в качестве комиссара, чтобы отомстить убийце своего отца - Кюршату Килимджи. В первый же день своего прибытия в город он мистическим образом встречает потрясающе красивую девушку из Йорюка и влюбляется в неё. Не в силах узнать её имя, он называет эту сказочную (   Читать дальше...   )Производство: Турция / NGMЖанр: драмаРежиссер: Эмре КабакушакАктеры: Бурак Дениз, Су Бурджу Язги Джошкун, Гюркан Уйгун, Месут Акуста, Озлем Тюркад, Эрен Вурдем, Ирем Алтуг, Керем Арсланоглу, Эджем Чалхан, Эмель Чольгечен, Дениз Гюркан, Юксель Унал и др.Перевод: Дублированный (Кириллица), двуголосый любительский (AlisaDirilis)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00BDF84FD940AC080BD03D536152E64927DE1F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751547   (14698) от 14.06.2025
+
+Мехмед: Султан завоеватель / Mehmed: Fetihler Sultani (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-34 (16-49) из 34) AlisaDirilis
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда османский султан Фатих Султан Мехмет взойдет на трон, ему придётся победить множество врагов внутри и за пределами дворца, чтобы завоевать Стамбул, свою самую большую мечту.Производство: Турция / Miray YapimЖанр: драма, военный, историяРежиссер: Селахаттин Санджаклы, Йилдирай ЙылдиримАктеры: Серкан Чайоглу, Селим Байрактар, Сечкин Оздемир, Синан Албайрак, Туба Унсал, Эсила Умут, Сена Чакыр, Корель Джезавирли, Кенан Чобан, Эрдал Кючюккёмюрджю, Эртугрул Постоглу, Али Синан Демир, Осман Сойкут, Мим Кемаль Оке, Сердар Гёкхан, Гассан Массуд и др.Перевод: Двуголосый любительский (AlisaDirilis)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6054F24994C373EFF5CAD7BACCB9778C61EB6B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 61243   (14697) от 14.06.2025
+
+Юнона и Авось (1983) TVRip
+
+>>След.
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14697.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу сюжета легла романтическая история любви русского путешественника Николая Резанова и дочери губернатора Сан-Франциско Марии Кончиты Аргуэльо де ля Консепсьон. По версии авторов, в 1806 году сорокадвухлетний граф Резанов предпринял морскую экспедицию с Аляски к берегам Калифорнии на кораблях "Юнона" и "Авось" с целью получения провианта (   Читать дальше...   )Жанр: Музыкальная драма, рок-операРежиссер: Марк ЗахаровАктеры: Н.Караченцев, Е.Шанина, П.Смеян, А.Абдулов, А.Ширяев и др.Продолжительность: 44:02 и 38:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751489   (14696) от 14.06.2025
+
+Бахар / Bahar (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-32 (17-48) из 32) Кириллица, AlisaDirilis
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошёл месяц после рискованной операции Бахар и Тимура. Веселясь с близкими на вечеринке «Здравствуй, новая жизнь!», Бахар прерывает радость неприятным событием. Бахар, раздавленную тяжестью хранимой от всех тайны, тоже ждут тяжелые дни в больнице. Новый главврач Сюрейя, решившая нарушить все устои в больнице фонда Перана, устроит Бахар и всему коллективу нелегкие (   Читать дальше...   )Производство: Турция / MF YapimЖанр: драма, медицинаРежиссер: Неслихан ЕшилюртАктеры: Демет Эвгар, Бугра Гюльсой, Мехмет Йылмаз АК, Бушра Пекин, Эджем Озкая, Элит Андач Чам, Эльчин Афаджан, Демирхан Демирджиоглу, Ниль Суде Албайрак, Алиса Сезен Север, Хасан Шахинтюрк, Сена Миа Калип, Фюсун Демирель, Хатидже Аслан и др.Перевод: Дублированный (Кириллица), двуголосый любительский (AlisaDirilis)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F572AA6AEE63C1A526A285AABF2F7558A9E1971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796555   (14695) от 14.06.2025
+
+Пункт назначения: Кровные узы / Final Destination: Bloodlines (2025) WEBRip [H.264/1080p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Измученная повторяющимся ночным кошмаром студентка Стефани возвращается домой, чтобы найти человека, который сможет прервать этот цикл и спасти её семью от смерти.Производство: США, Великобритания / Inzide Media, New Line Cinema, Practical PicturesЖанр: ужасыРежиссер: Зак Липовски, Адам Б. СтейнАктеры: Риа Килстедт, Брэк Бэссинджер, Ричард Хэрмон, Тони Тодд, Эйприл Телек, Макс Ллойд-Джонс, Анна Лори, Тео Брионес, Оуэн Джойнер, Мэтти ФиночиоПеревод: Дублированный (звук с TS)Язык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:45:34Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 69128   (14694) от 14.06.2025
+
+Холостяки (2004) DVDRip (сезон 1, серии 1-24 из 24)
+
+>>След.
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14694.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Холостяки» - веселый, иногда смешной, иногда драматичный сериал.
+
+Четверо друзей ведут образцо-показательный образ жизни бабников. Женщины для них - мера их амбиций, мужской состоятельности и веры в себя. Но нашим героям не чужда и настоящая страсть, истинное чувство. В череде бесконечных романов они могут по-настоящему влюбиться, причем объекты их чувств подчас (   Читать дальше...   )Жанр: Комедия, Мелодрама, СериалРежиссер: Екатерина Двигубская, Павел Бардин, Святослав ВласовАктеры: Марат Башаров, Евгений Стычкин, Дмитрий Певцов, Олег ФоминПеревод: Оригинальный
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753140   (14693) от 14.06.2025
+
+Основание: Осман / Kurulus: Osman (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 6, серии 1-30 (165-194) из 30) Force Media, AlisaDirilis, turok1990
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осман-бей, создатель государства, хочет обеспечить единство Турции под своим знаменем и подчинить влиятельные княжества на окраинах. Присягнут ли Байхан-бей и его заклятый враг Бегум Хатун, которые присоединились к празднованию Осман-бея, ему на верность? Расскажут ли они о своих намерениях жениться на Фатьме Хатун, дочери Осман-бея?Производство: Турция / Bozdağ Film, Tekden FilmЖанр: боевик, драма, приключения, военный, историяРежиссер: Ахмет ЙильмазАктеры: Бурак Озчивит, Озге Торер, Эмре Бей, Озгур Чевик, Чагры Шенсой, Фейза Ишик, Йгит Учан, Эджем Сена Байыр, Буче Бусе Кахраман, Фарук Аран, Белгин Шимшек, Экин Мерт Даймаз, Фатих Айхан, Эрдем Санли, Али Онсёз, Али Сурмели и др.Перевод: Дублированный (Force Media), двуголосый любительский (AlisaDirilis), одноголосый любительский (turok1990)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5214CEF4AEE7F537A5831EABF1BDD987B209309D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749432   (14692) от 14.06.2025
+
+Кизиловый щербет / Kizilcik Serbeti (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 3, серии 1-37 (67-103) из 37) MOYGOLOS, AlisaDirilis, DeziDenizi
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14692.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дом Уналов словно упала бомба. Правда, которую они узнали, сильно пошатнула все отношения, и все стали врагами. После насыщенной событиями ночи Гёркем попадает в больницу, и в результате её шантажа Фатих прикидывает, как выиграть время, а то и спасти ситуацию. Кывылджим чувствует себя ужасно и собирается вступить на сложный путь с ощущением, что её обманул человек, (   Читать дальше...   )Производство: Турция / Gold FilmЖанр: драмаРежиссер: Кетче, Айдын БулутАктеры: Барыш Кылыч, Эврим Аласья, Сыла Тюркоглу, Сибель Ташчиоглу, Догукан Гюнгёр, Фейза Дживелек, Джерен Ялазоглу, Эмрах Алтинтопрак, Фырат Челик, Рахимджан Капкап, Сойдан Сойдаш, Севим Эрдоган, Шебнем Донмез, Каан Ташанер, Озге Озаджар, Шебнем Бозоклу, Алие Узунатаган, Ахмет Мюмтаз Тайлан и др.Перевод: Профессиональный многоголосый (MOYGOLOS), двуголосый любительский (AlisaDirilis, DeziDenizi)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD36A8465042074D2BE78DDAA69560AA7547A25
 ```
 
 https://mybot314.ru/tekegram_catalog/

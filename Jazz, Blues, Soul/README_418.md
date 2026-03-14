@@ -1,3 +1,183 @@
+###  Публикация: 1653033   (215579) от 14.08.2023
+
+J.J. Johnson & Kai Winding - Jay & Kai (1947 - 1954) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_215579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernie's Tune [3:58]
+02. Lament [4:07]
+03. Blue's For Trombones [5:07]
+04. The Major [3:15](   Читать дальше...   )Жанр: BopПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E01EAD55D191C800FE47ED5D74DCCE6BEE3B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652859   (215376) от 14.08.2023
+
+Duane Allen - Yin-Yang (2004) [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight Ahead, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_215376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night And Day (5:45)
+02. Dark Time (4:37)
+03. Crystal Ship (3:54)
+04. Yin-Yang (5:22)(   Читать дальше...   )Жанр: Post-Bop, Straight Ahead, Guitar JazzПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79827C38B269868F494F19411C299D0893A64E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588901   (215269) от 13.12.2012
+
+Chris Thomas King - Why My Guitar Screams & Moans (2004) [WavPack|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_215269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starr [04:07]
+02. Action (Interlude) [00:07]
+03. Kiss [04:36]
+04. Legend [03:56]
+05. Song For Mama [04:05]
+06. King Snake [03:29]
+07. Juke Joint Lover [04:04]
+08. Louisiana Party [03:40]
+09. Come Home Tonight [04:12]
+10. Down [03:33](   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426313   (215195) от 24.11.2020
+
+Dakota Staton - Live at Milestones (1986) 2007, Caffe Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_215195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chestnut Street [2:50]
+02. Girl Talk [2:22]
+03. Ain't No Use [3:12]
+04. Broadway [2:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0BE822C16A3F82DC4F21D386E870BD49FBED47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343909   (215131) от 08.12.2019
+
+Sonny Stitt - Four Classic Albums 1954 - 1959 (2011) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_215131.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I Cover The Waterfront [3:18]
+02. Lazy Bones [7:44]
+03. Sunday [3:58](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 02:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490A78CD3F938A9FE9241E2A5D04B1ED36FE8E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426413   (215052) от 24.11.2020
+
+Billie Holiday - Birth Of A Legend (30-e - 40-e) 2019, Rough Guides [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_215052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Morning Heartache [3:09]
+02. Body and Soul [2:57]
+03. I Loves You Porgy [2:56]
+04. Now They Call It Swing [2:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05FF1D06A8C6FC9D4EB52A4486E19E084C9C32A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426503   (215033) от 24.11.2020
 
 Shawn Pittmanm - Make It Right! (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -570,180 +750,6 @@ Wilbur Harden - Jazz Way Out (1958) 1991, Savoy Jazz [APE|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF6422AC235FEE9075AE22652A50AA5D5F85B1C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587086   (214039) от 29.10.2022
-
-Martial Solal & The Danish Radio Jazz Orchestra - Contrastes: The Jazzpar Prize (2000) Storyville Records [FLAC|Lossless|image + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DRJO No.1 [7:46]
-02. Ritournelle No.1 [9:41]
-03. Monster Piece [7:22]
-04. Summertime [7:35](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF321502E5630475D0D9629652C0FBBEA0064B0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344156   (213860) от 09.12.2019
-
-John Colianni - Live at Maybeck Recital Hall, Vol. 37 (1995) Concord Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue and Sentimental [3:33]
-02. Stardust [5:57]
-03. What's Your Story Morning Glory? [4:51]
-04. It Never Entered My Mind [5:32](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597DE5643DECA7C95700E96C6AEF0F79A514F6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344164   (213856) от 09.12.2019
-
-T.K. Blue (Talib Qadir Kibwe) - Eyes of the Elders (2000) [FLAC|Lossless|image + .cue] <Post-Bop, African Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wee (Best) - 5:04
-02. Village Council - Interlude 1 (Kibwe) - 0:43
-03. Dance of the Nile (Kibwe) - 5:43
-04. Frozen Mist (Smith) - 5:17(   Читать дальше...   )Жанр: Post-Bop, African JazzПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F47783C50CFC3F5C637AAA94CECFA28C3A365A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344150   (213803) от 09.12.2019
-
-The Buck Clayton Legacy Band - Claytonia (2011) [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трэклист:
-1. Outer Drive - 5.29
-2. I'll Make Believe - 6.21
-3. Party Time - 6.10(   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00: 54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4552CE7D0CDD29D05BFCCE3E575A7A26FC0931C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653918   (213801) от 18.08.2023
-
-Sonny Criss - Intermission Riff (1951) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intermission Riff [6:38]
-02. How High The Moon [12:06]
-03. Perdido [14:03]
-04. Body And Soul [5:01](   Читать дальше...   )Жанр: BopПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16364A1DE56D36D9D364188E03562636928F315F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653863   (213791) от 18.08.2023
-
-Martins Aneiros Band - Rain (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boring Gentleman (3:03)
-02. I Can't Do That (3:45)
-03. Rain (4:54)
-04. You're Liar (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E3A622C24D9872DF57F3675C2215D393AE206F
 ```
 
 https://mybot314.ru/tekegram_catalog/

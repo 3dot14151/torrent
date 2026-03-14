@@ -1,3 +1,61 @@
+###  Публикация: 1192272   (263163) от 17.12.2017
+
+VA - Markus Schulz - Global DJ Broadcast - Year in Review (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz presents Dakota featuring Bev Wild - Running Up That Hill
+02. Dark Matter & Erika K - When Souls Collide
+03. Dave Neven featuring Nuttalya - Breathing Again
+04. Markus Schulz presents Dakota & Koen Groeneveld - Mota-Mota(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D8D570667812425E58C61889A1112A99C17FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193691   (261982) от 22.12.2017
+
+VA - Aly & Fila - Future Sound of Egypt 527 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L. Doblado - Lie Alone (16 Bit Lolitas Remix)
+02. Philipp Kempnich & Allies For Everyone - Disc Nite (Original Mix)
+03. Steve Parry - 303 V (Original Mix)
+04. Paul Thomas & Dylhen - Diablo (Kamilo Sanclemente & Golan Zocher Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CE5ABF658B6BA214B4FA2D7FB9A52889338950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193687   (261975) от 22.12.2017
 
 VA - Markus Schulz - 3 Hour Set for Afterhours.fm End of Year Countdown (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
@@ -686,62 +744,6 @@ VA - Armin van Buuren - A State Of Trance 1121 (2023) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28BC2DE68AC298BAEFC8BC4FAF9E8283EE60A317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542582   (242147) от 10.04.2022
-
-VA - TrackWolves Best Of 2021 DJ Mix (2021-2022) [MP3|320 Kbps] <Electro House, Big Room, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alexander Popov - TrackWolves Best Of 2021 DJ Mix 2022-02-15:
-
-01. Alexander Popov & Whiteout - Right Back
-02. Alexander Popov & Kitone - Breathe (Ahmed Helmy Remix)(   Читать дальше...   )Жанр: Electro House, Big Room, TranceПродолжительность: 18:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44103BA4C554F06F1D6662DA4733272BBE91F5C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624721   (242069) от 08.04.2023
-
-VA - Armin van Buuren - A State Of Trance 1115 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Eteson & Luke Bond ft. Bullysongs - Only Love
-02. KASIA - Universal NationЖанр: Trance, Progressive, ElectronicПродолжительность: 02:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B6043DCC4FBFB8F13E34B1A6C155A2AF4EFF4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

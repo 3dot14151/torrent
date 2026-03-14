@@ -1,3 +1,90 @@
+###  Публикация: 1694888   (120598) от 27.01.2024
+
+JD Allen - Barracoon (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barracoon [4:11]
+02. G Sus [7:01]
+03. The Goldilocks Zone [3:18]
+04. The Immortal (H. Lacks) [6:27](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C964C8E758096F8DDC9CEDC3851C6302D3F7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694886   (120594) от 27.01.2024
+
+Sarah Vaughan - Four Classic Albums (1954 - 1957) 2CD, 2019, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September in the Rain [3:37]
+02. Willow Weep for Me [5:21]
+03. Just One of Those Things [3:16]
+04. Be Anything (But Darling Be Mine) [4:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CDF2F6796252CB63D44F6D9CE3FE930F90CBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695351   (120451) от 28.01.2024
+
+Kalle Reger - Smooth Groove 1 (Smooth Groove 1) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hometown (Smooth Groove 1)
+02. Smooth Groove Remember (Smooth Groove 1)
+03. Ishow You Love (Smooth Groove 1)
+04. Tears On Your Cheek (Smooth Groove 1)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E74EF663DC82B5DAC5FB7D80D430FCCEFCDC401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695332   (120446) от 28.01.2024
 
 Streetwize - Lift Me Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -658,93 +745,6 @@ Ron Blake - Sonic Tonic (2005) Mack Avenue Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F0D79A987270F815729DE3C9F59BD6F8B1F9D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696335   (119605) от 02.02.2024
-
-Dave Pell - Four Classic Albums (1956 - 1957) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Had The Craziest Dream [2:54]
-02. The Way You Look Tonight [2:23]
-03. Nap’s Dream [5:14]
-04. Time After Time [3:14](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 02:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AA0388BFDAD08573ED161CE1AE2CBE8A7AFDFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696340   (119604) от 02.02.2024
-
-Anita O'Day - Indestructible! (2006) Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Skies [2:58]
-02. This Can't Be Love [3:17]
-03. Is You Is [4:02]
-04. All Of Me [3:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF1705D88B1CD73F57FDAFE3357E4FFB702CB663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696567   (119473) от 03.02.2024
-
-VA - Relaxing Soothing Jazz Chilly Jams Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - I Can Only Imagine (4:55)
-02. Konstantin Klashtorni - Stand by You (4:14)
-03. Chillaxing Jazz Kollektion - Happiness (4:18)
-04. eJazz Artistry - Real Love (4:16)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 02:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62A53CB0FC6D87B07A22A2CA3471F54EBB9CD54
 ```
 
 https://mybot314.ru/tekegram_catalog/

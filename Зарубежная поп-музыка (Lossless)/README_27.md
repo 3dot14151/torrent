@@ -1,3 +1,148 @@
+###  Публикация: 1206792   (781313) от 16.02.2018
+
+Nina Zilli - Modern Art (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senza Appartenere
+02. Domani Arrivera (Modern Art)
+03. Ti Amo Mi Uccidi
+04. 1xUnAttimo(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC0270397B50592FFFE42D57B2826FFEE08D7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391182   (781010) от 20.06.2020
+
+Black Eyed Peas - Translation (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_781010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RITMO (Bad Boys For Life) (feat. J Balvin) (03:34)
+02. FEEL THE BEAT (feat. Maluma) (03:57)
+03. MAMACITA (feat. Ozuna & J. Rey Soul) (04:11)
+04. GIRL LIKE ME (feat. Shakira) (03:42)(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F27E2D8EC2CD2E25759DFB553C2DFDDFC055709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391382   (780958) от 20.06.2020
+
+Sade - Collection 6 Albums (1984-2010) Originals & Remasters [FLAC|Lossless|tracks + .cue] <Pop, Smooth Jazz, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780958.jpg" />
+</div>
+
+
+###  Подробнее
+
+1984 - Diamond Life (2005, Epic– MHCP 603, JP)
+1985 - Promise (2005, Epic ‎– MHCP 604, JP)
+1988 - Stronger Than Pride (2005, Epic– MHCP 605, JP)
+1992 - Love Deluxe (2005, Epic ‎– MHCP 606, JP)(   Читать дальше...   )Жанр: Pop, Smooth Jazz, Soul, Funk, R&B, Trip-Hop |Продолжительность: 04:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74C91F116A2095DCEB11B71A1DD6408BEFB3B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207264   (780852) от 17.02.2018
+
+DJ Piligrim - Ночером...вечером...кечером (1999) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Мне не жить без тебя
+03. Хайр, дустим, прощай
+04. Кур булсин(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2BFB142FD8B0B01F36C3E1B71FB2ED47325561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207400   (780571) от 18.02.2018
+
+Giorgia - Oronero Live (2018) Deluxe Edition [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come neve (3:31)
+02. Chiamami tu (2:25)
+03. Credo (Live) (3:42)
+04. È l'amore che conta (Live) (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099B3B77A4651CD5E7E86584C47954269A9B9756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207476   (780568) от 18.02.2018
 
 DJ Piligrim - 3 Albums (2011-2014) [FLAC|Lossless|image + .cue] <Pop>
@@ -600,151 +745,6 @@ Gino Vannelli - Big Dreamers Never Sleep (1987) [APE|Lossless|image + .cue] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A835180FA01687E1269692EEA6108BA09E64EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212629   (775776) от 12.03.2018
-
-Judit Neddermann - Nua (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Em diras adeu
-02. Vai Vai Vai
-03. Els ocells
-04. 21(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C982859EA24B606F93BA3C67448769A48FC8B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212614   (775183) от 13.03.2018
-
-VA - Indie Dance and Nu Disco Tales (2018) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Indie Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775183.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Feindrehstar – Dirty Stomping 04:29
-2. Jewmanji – Clearing Crews 06:35
-3. Marian – For You 04:08
-4. Omar Gharbi – Lost In Aegean (Stan Kolev remix) 06:51(   Читать дальше...   )Жанр: Nu Disco, Indie DanceПродолжительность: 02:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9DE1A41C25E160719AD89F7271670E36C1CD4E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277588   (775156) от 22.01.2019
-
-Dave Thomas Junior - Echo (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - If Things Had Gone Our Way
-02 - Double Down
-03 - Let Me Down Easy
-04 - When Does It Get Easier(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7FEB72B2B698B86934D09589D4174B26656304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277393   (774227) от 23.01.2019
-
-Julio Iglesias - Best Collection vol.3 (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathalie
-02. Momentos
-03. La Paloma
-04. Las Cosas Que Tiene La Vida(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E38D3F4988DE5F5AF4CA0A01EFB6F12F4165A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124373   (773320) от 13.04.2017
-
-Paul Anka - The Real... Paul Anka (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Diana
-2. Love Me Warm and Tender
-3. Put Your Head on My Shoulder(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A691CECEE7867CF61576B74E12954E0E13887D
 ```
 
 https://mybot314.ru/tekegram_catalog/

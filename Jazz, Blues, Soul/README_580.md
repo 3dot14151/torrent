@@ -1,3 +1,177 @@
+###  Публикация: 1773183   (31005) от 14.01.2025
+
+VA - Luxury Soul 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cornell C.C. Carter - Everyday (4:20)
+02.  Natalie Duncan - I Love You (4:18)
+03.  Randy Bowland - The Power Of Love (4:18)
+04.  Debby Bracknell - What The Heart Wants (4:13)(   Читать дальше...   )Жанр: Funk, Soul, R&BПродолжительность: 02:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEBA1006E2B5809A2F585E34E71A6010CE119DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773181   (30950) от 14.01.2025
+
+Papik and The Soultrend Orchestra - Now Imagine (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ely Bruna - Don't Expect To Be (3:56)
+02.  Wendy D. Lewis - Wiser (4:02)
+03.  Sweet Candies - Lost In Music (3:57)
+04.  Nadyne Rush - Let's Fall In Love (3:30)(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699FA954591007363120694BAD5257E299E070F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864049   (30849) от 15.01.2025
+
+Deodato - 2 (1988) [FLAC|Lossless]<Jazz, Latin Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_30849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super Strut [09:34]
+02. Rhapsody In Blue [08:47]
+03. Nights In White Satin [06:05]
+04. Pavane For A Dead Princess [04:28](   Читать дальше...   )Жанр: Jazz, Latin Jazz, Jazz FusionПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE01BF397BE7D7E24292458637D58DA06709E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701497   (30780) от 16.01.2025
+
+Blues Beatles - Get Back To The Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_30780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can't Do That [04:06]
+02. Eleanor Rigby [04:01]
+03. Yesterday [07:13]
+04. Help [03:04](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9C6D15A46B3ECF63D428B98050237DE70CF3D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774284   (30323) от 20.01.2025
+
+Milt Jackson & Ray Brown Quartet - It Don't Mean a Thing If You Can't Tap Your Foot to It (1984) Pablo Records [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Waltz [5:07]
+02. Ain't That Nothin' [5:07]
+03. Stress and Trauma [5:31]
+04. Used to Be Jackson [5:28](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB21E016D3F1732B56D68A2A64D1879B1335533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 784491   (30251) от 21.01.2025
+
+Brian Tarquin - High Life (2001) [WavPack|Lossless] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_30251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Life [04:32]
+02. Lady Royale [04:40]
+03. Riders on the  Storm [04:24]
+04. Celtic Tales [04:12](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EFFF23D7469F87399C32EF644CEDAD44F1BBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775931   (29381) от 29.01.2025
 
 Sonny Stitt - The Champ (1973) 1991, Muse Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Mainstream Jazz>
@@ -572,180 +746,6 @@ Dudley Taft (родился 4 июля 1966, Вашингтон, округ Ко
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:565581ACCC385B0124BD6B77030D7D2D6369BF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790173   (22156) от 07.04.2025
-
-VA - Vintage Jazz Ballads: Timeless Romantic Standards (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pat Coil - The More I See You (5:15)
-02. Jack Jezzro - All My Tomorrows (5:17)
-03. Leif Shires - When Sunny Gets Blue (4:50)
-04. Mason Embry Trio - I've Grown Accustomed to Her Face (4:32)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB6B7A81112530BBE32094512C0B882C26FF93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790518   (21944) от 09.04.2025
-
-Phantom Alley Swing - Pineapple Parade (2025) [MP3|320 Kbps] <Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21944.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mystery of the Moon Pie [00:02:08]
-2. The Midnight Lemonade Stand [00:03:52]
-3. Pineapple Parade [00:03:21]
-4. Pocket Full of Stars [00:03:15](   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B3F94F98A3FF6530575637082C053F6C638E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790989   (21762) от 11.04.2025
-
-Eric Clapton, John Mayall & The Bluesbreakers - Blues Anthology, Vol. 3 (REMASTERED) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Mayall's - Telephone Blues (3:56)
-02. Albert King - Born Under A Bad Sign (3:27)
-03. Fleetwood Mac - Man Of The World (2:49)
-04. Jimi Hendrix - Bleeding Heart (8:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9D2DCEE0CC2D58E4E5780365A96D8DA0EAF06B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791924   (21226) от 16.04.2025
-
-Joe Bonamassa - Santiago - The South American Broadcast (2024) 2 x CD [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концерта 13 августа 2013 г. в театре La Cupula в Сантьяго, столице Чили, где Bonamassa выступал впервыеDisc One:
-01. Dust Bowl (8:04)
-02. Story Of A Quarryman (4:43)
-03. Someday After A While (You'll Be Sorry) (7:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172C8ED8BF715D7C7ED02449973643CCCF23FA5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791938   (21217) от 16.04.2025
-
-Chris Connor - Chris Connor (1956) 1991, Atlantic [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Get a Kick Out of You [1:55]
-02. Something to Live For [3:17]
-03. Get Out of Town [3:12]
-04. Where Are You [3:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BB6294D8DF6E527C86A932F1E874FB63531449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792852   (20699) от 21.04.2025
-
-Clark Terry And His Orchestra - Featuring Paul Gonsalves (1959) 2001, Storyville [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade to a Bus Seat [4:02]
-02. Pannonica [5:39]
-03. Pea-Eyes [5:05]
-04. Satin Doll [4:56](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E278A50DC0B34CC29BCAB11B2025A38F2A722822
 ```
 
 https://mybot314.ru/tekegram_catalog/

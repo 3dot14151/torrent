@@ -1,3 +1,32 @@
+###  Публикация: 1550779   (591191) от 13.05.2022
+
+Visions Of Atlantis - Pirates (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pirates Will Return (6:08)
+02. Melancholy Angel (3:56)
+03. Master the Hurricane (7:18)
+04. Clocks (3:56)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB9D82D926549BAB595E1A33AD4706121AE92EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915984   (590995) от 08.07.2015
 
 Burial Vault - Unity in Pluralism (2015) [MP3|320 кб/с]<Melodic Death Metal>
@@ -718,39 +747,6 @@ Set In Stone - Where Secrets Hide (2015) [MP3|320 кб/с]<Metalcore / Post-Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F33484D6F8D8E460C9D2205B27B1FB3B5DE35587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358121   (582110) от 06.07.2011
-
-Braindeadz - Born From Damnation (2011) [MP3|320 kbps]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 White Death 2:08
-02 Sedated 2:48
-03 War, Hate, Greed 4:41
-04 Born From Damnation 5:40
-05 Lies After Lies 5:14
-06 Dead Visions 3:55
-07 Murdered By Insanity 4:52
-08 Demonize Your Core 4:26Жанр: Thrash MetalПродолжительность: 00:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECE3F7768D90DBD93F1C7BB1545EA097634B13D
 ```
 
 https://mybot314.ru/tekegram_catalog/

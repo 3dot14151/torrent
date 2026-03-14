@@ -1,3 +1,124 @@
+###  Публикация: 1586482   (215962) от 27.10.2022
+
+Spitfire MkIII - Shadows Phantoms Nightmares (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_215962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthquake (04:18)
+02. The Eagles Are Laughing (04:15)
+03. Phantom Barrow (05:16)
+04. Once It Was Human (The Fly) (04:49)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D72625A8F02BB690BB8082A7D48FD9557ECFF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653112   (215420) от 14.08.2023
+
+Enuff Z'Nuff - 1985 (1994) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_215420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears Of A Clown [03:59]
+02. Catholic Girls [03:39]
+03. Day By Day [03:19]
+04. No Second Time [05:07](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0393D0320E2DE66EB62618C7F4F74AAE4233F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853548   (214727) от 26.12.2014
+
+Grand Funk Railroad - E Pluribus Funk (1971) reissue /1995, Capitol Records/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214727.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Footstompin' Music	3:45
+2.	People, Let's Stop The War	5:13
+3.	Upsetter	4:09
+4.	I Come Tumblin'	5:42
+5.	Save The Land	4:12
+6.	No Lies	3:55
+7.	Loneliness
+Arranged By, Conductor – Tom Baker (3)
+8:38Жанр: Hard RockПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C3CD64A5FD37154284C1894C2EC556916D5CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586826   (214011) от 29.10.2022
+
+Palaye Royale - Fever Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock, Alt.Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Life (Intro) [00:01:04]
+02. Eternal Life [00:03:43]
+03. No Love In LA [00:03:22]
+04. Punching Bag [00:03:55](   Читать дальше...   )Жанр: Glam Hard Rock, Alt.RockПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E181AD8F59FB804A2F8CCC34BD764290A2CA44BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586927   (214004) от 29.10.2022
 
 Michael Bormann's Jaded Hard - Power To Win (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -631,123 +752,6 @@ The Rolling Stones - Voodoo Lounge (1994) [FLAC|Lossless]<Hard rock, blues rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F0DB2AD7207CD1CE42B392733A9557342353AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570542   (207882) от 26.07.2023
-
-H.E.A.T - 9 Studio Albums (2008-2022) 14xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа H.E.A.T, играющая в стиле Melodic Hard Rock возникла в январе 2007 года в результате объединения двух шведских групп Dream и Trading Fate. В 2008 году выпустили дебютный альбом «H.e.a.t» в который вошли 13 треков.
-После долгих летних гастролей по Швеции в 2009, они впервые отыграли концерт в Японии — на фестивале LOUD PARK, после чего второй год подряд участвовали (   Читать дальше...   )2008 - H.E.A.T
-2010 - Freedom Rock
-2012 - Address The Nation
-2014 - Tearing Down The Walls(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 11:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D909BE28303844F0BB309442F25FB1500EC0414F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652481   (206477) от 12.08.2023
-
-Suzi Quatro & KT Tunstall - Face To Face (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine A Light [00:03:23]
-02. Face To Face [00:03:37]
-03. Scars [00:03:27]
-04. Good Kinda Hot [00:03:18](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD33EE1C3E5DDE475CB40059263CA6C40139079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654413   (205842) от 20.08.2023
-
-Aerosmith - Greatest Hits (2023) 3CD Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205842.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Mama Kin
-02. Dream On
-03. Lord Of The Thighs(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 03:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34899ED3CF1BDE4E521160C7D983AAE977599C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653290   (205608) от 15.08.2023
-
-Enuff Z'Nuff - Tweaked (1995) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stoned [05:09]
-02.  Bullet From A Gun [04:20]
-03.  Mr. Jones [05:36]
-04.  My Dear Dream [03:08](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7671D305BF9028AA7A304188C4704B681ED9C6B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

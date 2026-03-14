@@ -1,3 +1,61 @@
+###  Публикация: 1215766   (756608) от 27.03.2018
+
+Resonance - The Time Machine (1976) LP [MP3|320 Kbps] <Electronic, Rock, Funk-Soul, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Machine (3:28)
+02. Boxing Joe (3:30)
+03. Time Machine (0:23)
+04. The Great Rodeo (3:09)(   Читать дальше...   )Жанр: Electronic, Rock, Funk-Soul, PopПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAA813B221166777520326F43C23A1D20F59942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281222   (755293) от 06.02.2019
+
+Shiver - Under Skin (2002) Remastered Deluxe Edition, 2019, Shiver [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addicted To You
+02. L.U.S.T.
+03. Under Skin
+04. Don't Cry For Me(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454DAC01021ADC1079E4AB2A8C485646F1811717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281073   (755090) от 06.02.2019
 
 Тінь Сонця - Буремний край (2016) [MP3|320 Kbps] <Folk Rock, Heavy Metal>
@@ -684,64 +742,6 @@ Rainbow (Ritchie Blackmore's Rainbow) - Memories In Rock II (2018) Live [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C7BD8D74E0861BE4C4681F13CCE90A96BA708A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640329   (741496) от 28.05.2016
-
-The Alan Parsons Project - Discography (1976-2016) 69 Albums [MP3|192-320 кб/с]<Art rock, Progressive rock, Pop rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741496.jpg" />
-</div>
-
-
-###  Подробнее
-
-1976 - Tales Of Mystery And Imagination
-1977 - I Robot
-1978 - Pyramid
-1979 - Eve(   Читать дальше...   )Жанр: Art rock, Progressive rock, Pop rockПродолжительность: 01:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7908F27E37068E8260724486268900C507BD158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282969   (741158) от 15.02.2019
-
-Eberhard Schoener - 2 Albums (1978) (Bass Guitar, Vocals - Sting) [MP3|320 Kbps] <Electronic, Modern Classical, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий композитор, дирижер, аранжировщик и клавишник. Его деятельность объединяет множество стилей и форматов. Предлагаемые альбомы выпущены совместно с известными исполнителями и музыкантами Sting и Andy Summers.01. Trans-AM (3:27)
-02. Why Don't You Answer (4:35)
-03. Only The Wind (4:10)
-04. Powerslide (1:38)(   Читать дальше...   )Жанр: Electronic, Modern Classical, Prog RockПродолжительность: 01:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F26059BF54767A1DD0C7238E4CB168D09E72025
 ```
 
 https://mybot314.ru/tekegram_catalog/

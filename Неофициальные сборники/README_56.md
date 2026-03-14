@@ -1,3 +1,90 @@
+###  Публикация: 1357770   (973170) от 04.02.2020
+
+VA - Beatport Progressive Trance: Pack 05 (2020) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973170.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aspiration - The Story
+002. Alextrackone - Show Me The Light
+003. Mr. Greidor - Rescued In A Storm
+004. Kiyoi And Eky - Kumpala (Extended Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB60251CA5B820945E377FF0772792DFE551841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975287   (973119) от 14.01.2016
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 - ( Зарубежный выпуск - 20 ) (2016) [MP3|256 - 320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C. C. Catch - Jump In My Car 2015 (Pushkin Rec exclusive) (05:05)
+02. Boney M - Happy Song (DJ Viduta & DJ DimixeR remix) (Radio Cut) (03:03)
+03. Bad Boys Blue - You-re A Woman (Split Mirrors Remix) (06:31)
+04. Desireless - Voyage Voyage (Euro Remix Remix) (06:14)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F0439333A1DA1DCF2923741C1A13073095678D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357582   (973002) от 04.02.2020
+
+Lita Ford - Can't Catch Me (2020) 2CD Compilation [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die For Me Only (Black Widow)
+02. Hungry
+03. Back To The Cave
+04. Ready, Willing And Able(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE2411DEC8074ACDD1FA966A49763D57FE836C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357734   (972940) от 04.02.2020
 
 VA - Зима на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -670,93 +757,6 @@ VA - Best Chillhouse Tunes for Everyday (2016) [MP3|320 кб/с] <House,Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D3149E67F6D9E6C7E5A398265BF99D26D079322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976089   (970992) от 16.01.2016
-
-VA - Super Bomb Electro 55 (2015) [MP3|320 кб/с] <Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 888 - Critical Mistakes (James Egbert Remix) (5:12)
-02. Amersy - UP (Original Mix) (4:35)
-03. Artistic Raw - Before We Kick It (Original Mix) (4:26)
-04. A-Tonez - Mr Dj (LowParse Remix) (4:02)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08B86C0A51AB5AFBC51F6C0A3A02B88BD0CCE32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976054   (970991) от 16.01.2016
-
-VA - Fly to the Sky Fines Selection Of First Class Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Water on Mars - Biscaya - Realaxing Beach Moments remix
-02. Phono Sounds Invation - Shores of Eternity - 100 % Downbeat Sunset Mix
-03. Maggie Charming - Pas de Regret - Paris to Marseille Chillout Mix
-04. Zipper World - Wild Dreams - Unbreakable Chill Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91CCD5D5BCD17934F4C4419E4E18BF0185137510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975996   (970987) от 16.01.2016
-
-VA - Super Bomb Electro: The Best Hit 13 (2016) [MP3|320 кб/с] <Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Faced Funks - Powerbass (Original Mix) (4:30)
-02. 2Clubberz - Predator (Original Mix) (3:54)
-03. Alpharock - Pump This Party (Original Mix) (4:33)
-04. Basehead - Here We Go (Original Mix) (5:30)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE9174D2830536A84EB44FEB016BF7E2A1CD796
 ```
 
 https://mybot314.ru/tekegram_catalog/

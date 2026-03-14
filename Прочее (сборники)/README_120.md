@@ -1,3 +1,32 @@
+###  Публикация: 716883   (392578) от 30.10.2013
+
+Михаил Боярский - Лучшие хиты (2CD) (1977-1999) (2013) [MP3|320 кб/с]<Soundtrack, Retro, Pop, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392578.jpg" />
+</div>
+
+
+###  Подробнее
+
+20. Остров детства (1986)
+21. Дорога к дому (1986)
+22. День, который жду (1987)
+23. Ланфрен-Ланфра (1987)(   Читать дальше...   )Жанр: Soundtrack, Retro, Pop, ChansonПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC33BADA8AEBB7FFA4D0B629D5E1F31C23179EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172790   (392053) от 09.10.2017
 
 VA - Music For Sports Games Vol.11 (2017) [MP3|320 Kbps] <Electro, Dance House>
@@ -770,35 +799,6 @@ VA - Top 100 Drum & Bass Vol.3 (2019) [MP3|320 Kbps] <Liquid Funk, Drumfunk, Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81F55A3381145C55FC4244F0B52857CCEEE210F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414645   (383424) от 09.10.2020
-
-VA - не Громкие новинки недели 84 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Carti - Не Выдыхай (3:00)
-02. DJ Sukhoi - Неболей (4:15)
-03. EDEM & Артём Майзингер - Самолётная (3:02)
-04. Endorfin - Луна (2:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CEEA547B028D91D4DD4B2ED370AC567A563C18
 ```
 
 https://mybot314.ru/tekegram_catalog/

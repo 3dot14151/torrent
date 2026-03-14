@@ -1,3 +1,90 @@
+###  Публикация: 990691   (909757) от 26.02.2016
+
+VA - Bass Killer 3 (2016) [MP3|320 кб/с] <Electro House, Dubstep, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909757.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 12th Planet & LUMBERJVCK - Name Bran (Original Mix) (4:38)
+2. Alby Loud - El Senor Dinosaurio (Original Mix) (3:37)
+3. Autoerotique - AUH (Original Mix) (3:11)
+4. Avicii - Pure Grinding (iSHi Remix) (3:26)(   Читать дальше...   )Жанр: Electro House, Dubstep, ElectroПродолжительность: 01:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119A8288E016FE2981B2B22F7F9AE2DE3DAE7231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990766   (909724) от 26.02.2016
+
+VA - Great 150: Euro Popular (2016) [MP3|192-320 кб/с] <EuroDance, Pop, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909724.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jess Glynne - Don't Be So Hard on Yourself 03:34
+002. Sia - Blinded By Love 03:47
+003. Coldplay - Adventure Of A Lifetime 04:19
+004. Dr. Dre Ft Snoop Dogg - The Next Episode (Dj Savin Remix) 04:24(   Читать дальше...   )Жанр: EuroDance, Pop, ClubПродолжительность: 09:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82547FF89456B564E1B82BF6AD06CD22302FE4C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990554   (909688) от 26.02.2016
+
+Boris Blank - Selected (2015) [MP3|320 кб/с] <Electronic, Jazz>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Time Tunnel (05:09)
+02. The Last Mile (04:59)
+03. I Feel It Like You (feat. Malia) (03:38)
+04. Random Tox (02:42)(   Читать дальше...   )Жанр: Electronic, JazzПродолжительность: 01:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2825F5D855CD85FF54EFB4ED9265AF486E767D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990587   (909642) от 26.02.2016
 
 VA - Autumn Blues: Rock Version (2016) [MP3|320 кб/с] <Rock Blues>
@@ -546,6 +633,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 291983   (908454) от 06.02.2011
+
+VA - Лучшие Хиты Радио Maximum 5 (2010) [MP3|128 kbps]<Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/009/save_picture_908454.jpg" />
+</div>
+
+
+###  Подробнее
+
+2010Жанр: RockПродолжительность: 12:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E884ED3D3D83A93744FE4BBF8178F982246F0B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098398   (908398) от 30.01.2017
 
 VA - Singles Chart Hot 100 Billboard (28 January) (2017) [MP3|32-320 Kbps] <Dance, Pop>
@@ -626,122 +739,6 @@ VA - Singles Chart Hot 100 Billboard (04 February) (2017) [MP3|32-320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11D433757FE940D5D4A9C23E16818613CEF711B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098484   (908380) от 30.01.2017
-
-VA - Super Hits - Best of Songs 80’ (2017) [MP3|320 Kbps] <Pop , Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908380.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Terence Trent D'Arby - Sign Your Name 4:36
-002. Billy Idol - White Wedding 4:14
-003. Marvin Gaye - Sexual Healing 4:04
-004. Steve Perry - Oh Sherrie 3:49(   Читать дальше...   )Жанр: Pop , DiscoПродолжительность: 07:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834A8D4F20BD397B95F12776FDB105BB5ADD3B83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098447   (908206) от 30.01.2017
-
-VA - Rock в дорогу Vol.6 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Beyond The Black - In the Shadows
-02 In This Moment - Whore
-03 The Rasmus - No Fear
-04 W.A.S.P. - Golgotha(   Читать дальше...   )Жанр: RockПродолжительность: 04:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5EB09BEAF32FB5F966DBDDC6181974CC24367D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991004   (908201) от 27.02.2016
-
-VA - After Eight Vol 4 (25 Bar Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key Of Dreams - Rainy Days
-02. The Contact Project - Silver One
-03. Sensotango - Libre
-04. Francesco Demegni - Lethal Lady(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF70B0340129C6B8574C4080188FC28CFB73D4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866648   (908200) от 05.02.2015
-
-The Carbonfools - The Best (2008 - 2014) [MP3|192, 320 кб/с]<Alternative, Electronic, Indie, Pop Rock, Dance Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carbonfreak
-02. Furilla
-03. But She
-04. The Mirror(   Читать дальше...   )Жанр: Alternative, Electronic, Indie, Pop Rock, Dance RockПродолжительность: 01:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5F30DB3BDDFD958F4FBF7F86D22D004086E04F
 ```
 
 https://mybot314.ru/tekegram_catalog/

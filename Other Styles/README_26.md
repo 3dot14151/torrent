@@ -1,3 +1,119 @@
+###  Публикация: 1100094   (894629) от 07.02.2017
+
+Pryapisme - Diabolicus Felinae Pandemonium (2017) [MP3|320 Kbps] <Instrumental Avant-garde Metal, Electronic, Experimental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894629.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Un Max De Croco
+2. La Boetie Stochastic Process
+3. 100 % Babines, Pur Molossoïde!
+4. A La Zheuleuleu(   Читать дальше...   )Жанр: Instrumental Avant-garde Metal, Electronic, ExperimentalПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71253919298C4B275E65A9DA846078567F8527DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101514   (894440) от 07.02.2017
+
+VA - Blade / Блэйд (1998) Unofficial [MP3|127-320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - Bad Moon Rising
+02. Polygon Window - UT1 - Dot
+03. Shonen Knife - Ah Singapore
+04. DJ Krush - Yeah(   Читать дальше...   )Жанр: Unofficial SoundtrackПродолжительность: 02:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F4C100B5900CABAAE9C6280FDDAD3AF7EFC1C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993880   (893979) от 06.03.2016
+
+Marco Beltrami - Gods Of Egypt (Music From The Motion Picture) (2016) [FLAC|Lossless|tracks]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gods Of Egypt Prologue (02:39)
+02. Bek And Zaya (00:45)
+03. Market Chase (00:29)
+04. Coronation (02:25)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B662776492F8B395285C708CC8A9F9F1D3C283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993977   (893973) от 06.03.2016
+
+Stephen Rhodes - Indian Meditation (2016) [MP3|320 кб/с] <New age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Go. Loslassen
+02. Mindfulness. Achtsamkeit
+03. Serenity. Gelassenheit
+04. Inner Freedom. Innere Freiheit(   Читать дальше...   )Жанр: New age, MeditationПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4D5E8AF0017F80AA4402857067A30071363481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993838   (893557) от 06.03.2016
 
 VA - Война (2002) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
@@ -631,122 +747,6 @@ Art of Empathy - Posthuman Decadence (2012) [FLAC|Lossless|tracks + .cue] <Neofo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B1CD013437DCCA3B16E87F520C8976572FA0FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 245526   (888298) от 01.04.2020
-
-Satyaa & Pari - To the One (2010) [FLAC|Lossless|tracks + .cue] <Spiritual, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sitaram Radheshyam (19:22)
-02. To the One (9:41)
-03. Shakti Om (9:06)
-04. Lokah Samasta (8:48)(   Читать дальше...   )Жанр: Spiritual, New AgeПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C60BCAA31ACC26F3A066BB60622CF974CBC02E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661224   (888275) от 01.04.2020
-
-Oystein Sevag - Space For A Crowded World (2012) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landing (5:50)
-02. Urban Nocturne (4:14)
-03. Gentle (3:54)
-04. Song from another Place (3:30)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED63C4CA8FBB6F5D5AFD1408F8C0A661F66AEBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994728   (888198) от 09.03.2016
-
-Sudha - Planet Love (2004) [APE|Lossless|image + .cue] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wendeyaho (05:50)
-02. La 'Ieikawai (06:55)
-03. Ishq Allah (04:48)
-04. Undea Hibi (07:22)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825806DFE3E0E2675C809FE65ABB0029C0DB89FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640835   (888174) от 01.04.2020
-
-Blue Seas Grand Orchestra - Poetry of The Natures (2013) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <New Age, Easy Listening, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepy Lagoon (3:46)
-02. Theme From A Summer Place (2:50)
-03. Moon River (3:10)
-04. The Windmills Of Your Smile (3:13)(   Читать дальше...   )Жанр: New Age, Easy Listening, RelaxПродолжительность: 01:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671E8570ABBB64C42B87FFB92B70D15275EB2DFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

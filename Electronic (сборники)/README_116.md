@@ -1,3 +1,32 @@
+###  Публикация: 1043712   (571059) от 17.08.2016
+
+VA - The Greatest Hits of Chillout Easy Listen Collection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Igor Pumphonia - Spiritual Light
+02. Cocktail Jazz - For Me You Are Here
+03. Knoult - Away from the Cares
+04. Igor Pumphonia - A Moment of Love - Guitar Version(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B296A07FA6F5865181B54A8AA0690FD3910622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043819   (570941) от 17.08.2016
 
 VA - For Massive Future Beats (2016) [MP3|320 Kbps] <House, Electro House, Drum & Bass, Progressive, Dance, Club>
@@ -719,35 +748,6 @@ VA - Beatport Trance Pack (18.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48E2842DB9C2020C25476154FC5E89E0088ECD61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044539   (565653) от 20.08.2016
-
-VA - Hit Explosion Relaxing & Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge, Balearic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ-Chart - Be Yourself [3:38]
-02. Alphaled - Disguise Question [2:55]
-03. Andreas Ruhula - Kotoki [6:12]
-04. DJ-Chart - We Are the Seeker [5:10](   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, BalearicПродолжительность: 04:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC1E8DF48C380B8D5C9240388C10CC87D3805F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

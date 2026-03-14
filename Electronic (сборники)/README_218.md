@@ -1,3 +1,32 @@
+###  Публикация: 1724242   (56030) от 19.05.2024
+
+VA - Electronic compilation part 78 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamidshax - Aroma
+02. Rodle - Ayesha
+03. Akmalov - Black Or White
+04. Akmalov - Break My Heart(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D11B880C4FED888A4C8D85B0C604221F74E36CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725663   (55407) от 25.05.2024
 
 VA - Electronic compilation part 80 (2024) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - compilation part 103 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E64F116B3D4238D2F625A3071A981E52C9A901E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739731   (48520) от 29.07.2024
-
-VA - Record Super Chart 27.07.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta feat. OneRepublic - I Dont Wanna Wait (Extended) (3:27)
-02. ZERB & The Chainsmokers - Addicted (feat. Ink) (2:32)
-03. R3HAB, VIZE, JP Cooper - Jet Plane (2:58)
-04. Artemas - I Like The Way You Kiss Me (Burnt) (2:42)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE337D2CBD6AB01C18D36998A5E8DCDD44963FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

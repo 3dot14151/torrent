@@ -1,3 +1,61 @@
+###  Публикация: 910828   (619838) от 21.06.2015
+
+God Is An Astronaut - Helios | Erebus (2015) [MP3|320 кб/с]<Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agneya
+02. Pig Powder
+03. Vetus Memoria
+04. Finem Solis(   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A7D0085C41068753EBADF81DB5AED51DED4159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036797   (619152) от 21.07.2016
+
+The Wackers - Hot Wacks (1972) Reissue, 2005, Collectors' Choice Music [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hardly Know Her Name
+02. We Can Be
+03. Oh My Love
+04. Wait And See(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F26576003246FA903B5547A82CFA424037A6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523179   (619032) от 15.07.2012
 
 VA - Jim Beam Authentic Rock - 50 Pub Jukebox Anthems (2012) [MP3|320 кб/с]<Rock, Classic Rock>
@@ -705,64 +763,6 @@ The Aristocrats - Tres Caballeros (2015) [MP3|320 кб/с]<Progressive Rock, Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE79B2B860DBAAB0222BEF98FE4C7579F07A6244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912201   (612519) от 25.06.2015
-
-Frank Zappa - Dance Me This (2015) [MP3|320 кб/с]<Progressive Rock, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Me This 2:02
-02. Pachuco Gavotte 3:27
-03. Wolf Harbor 8:02
-04. Wolf Harbor II 6:53(   Читать дальше...   )Жанр: Progressive Rock, ExperimentalПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7902FE3D5FF5EE737FDE85E78C169838050A6688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037543   (612028) от 25.07.2016
-
-Herman's Hermits - The Best Of Herman's Hermits (2015) [MP3|320 Kbps] <Rock, Beat, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Last Night (Feb 1964 Demo)
-02. I'm Into Something Good
-03. Mrs. Brown You've Got A Lovely Daughter
-04. Kansas City Loving(   Читать дальше...   )Жанр: Rock, Beat, PopПродолжительность: 02:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5213F1853547ADB2E08A2C938854EBBCD44E0F48
 ```
 
 https://mybot314.ru/tekegram_catalog/

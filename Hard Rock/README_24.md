@@ -1,3 +1,32 @@
+###  Публикация: 954001   (344171) от 06.11.2015
+
+Scorpions - Lovedrive (1979) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving You Sunday Morning
+02. Another Piece Of Meat
+03. Always Somewhere
+04. Coast To Coast(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9F19FDA33BFF3CF1C2305771B600DC5965FE0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953995   (344170) от 06.11.2015
 
 Scorpions - Love At First Sting (1984) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|320 кб/с]<Hard Rock>
@@ -723,35 +752,6 @@ Days Of Jupiter - Secrets Brought To Life (2012) [MP3|320 кб/с]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:975B49210778470631B3BA9E3E50AD2C3AB938B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957428   (326711) от 18.11.2015
-
-Dirty Sound Magnet - What Lies Behind (2012) [MP3|320 кб/с]<Blues rock, Hard rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind memory (3:45)
-02. Heavy hours (4:54)
-03. Mike's awakening (3:42)
-04. Mr Robert (3:22)(   Читать дальше...   )Жанр: Blues rock, Hard rockПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B84F58E208097C984541658042D261C2B8C32B
 ```
 
 https://mybot314.ru/tekegram_catalog/

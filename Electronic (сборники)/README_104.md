@@ -1,3 +1,32 @@
+###  Публикация: 1036394   (621158) от 20.07.2016
+
+VA - Top Radio Charts Sublime Multigenre (2016) [MP3|320 Kbps] <Trance, House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren -  Eiforya (Talla 2xlc 140 Radio Edit) 2:45
+002. Talla 2XLC pres. Alan Walker -  Faded (DJ Aleksard Mashup) 6:35
+003. W&W -  Lift Off! (Radio Edit) 3:04
+004. Photographer -  Airport (Radio Edit) 4:43(   Читать дальше...   )Жанр: Trance, House, ProgressiveПродолжительность: 09:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991D8E84C97AAD7096B78155E4282E541577C117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036334   (621157) от 20.07.2016
 
 VA - Clubbing Designer Long Days (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -728,35 +757,6 @@ VA - Kamasutra Erotic Chillout Vol.2 - Love Making Soundscapes (2014) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB02F0D0539038D9D67F8D9887C7EB2CE54FFA4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230267   (617298) от 11.06.2018
-
-VA - Theme Of The Streets (2018) [MP3|320 Kbps] <Chillout, Lounge, LO-Fi>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617298.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michaele - Shaman
-002. Oliver Scheffner - Dreams of Sunbeams
-003. Francesco Digilio - The Autumn Nights
-004. DJ Deviance - Vanilla Sky(   Читать дальше...   )Жанр: Chillout, Lounge, LO-FiПродолжительность: 07:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFEF183F9B8EBF56CD8ED3EE5405EE3E83D360A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

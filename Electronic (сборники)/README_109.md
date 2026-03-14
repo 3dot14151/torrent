@@ -1,3 +1,32 @@
+###  Публикация: 1298100   (602068) от 26.04.2019
+
+VA - Deep House Republic Mix (2019) [MP3|320 Kbps] <Deep, Soft House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602068.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dreams Incorporation - Rama (Deep Republic Mix)
+002. Mandragora - King Of The Lounge
+003. Steven Draxler - Right Time
+004. The Blue Bar Ensemble - I'm Running(   Читать дальше...   )Жанр: Deep, Soft House, ElectroПродолжительность: 10:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2681437DE2735848FE6BDF426C8EC1E1346508B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298113   (601899) от 27.04.2019
 
 VA - Drum and Bass Pro V.02 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Drum and bass, Neurofunk>
@@ -716,35 +745,6 @@ VA - Club Dance Ambience vol.80 (2016) [MP3|320 Kbps] <House, Electro House, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE02151D3CE903D07651D8394F127A1DD7528743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914696   (596372) от 03.07.2015
-
-VA - Summer Session 2015 (mixed by Dj V) (2015) [MP3|320 кб/с]<Disco House, Club House, Electro House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежегодная летняя компиляция представлена тремя дисками: 1 - легкая танцевальная коммерция для beach party, 2 - более клубная и энергичная музыка, 3 - лучшие танцевальные композиции прошлых лет (в этом году вспоминаем лето 2008)01-Flo Rida feat. Robin Thicke & Verdine White - I Don't Like It I Love It (Cutmore Club Remix)
-02-Nadia Ali vs. Plage - Our Rapture (DJ Che MashUp)
-03-Ariana Grande - Baby I (A Director's Cut Radio Edit)
-04-Mambana vs. Yogi - Libre o No (DJ Flight Secret Mash)(   Читать дальше...   )Жанр: Disco House, Club House, Electro House, DanceПродолжительность: 03:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23E2A175EBB3F8289A930F08A40109B88D02634
 ```
 
 https://mybot314.ru/tekegram_catalog/

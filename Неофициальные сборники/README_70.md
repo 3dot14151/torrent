@@ -1,3 +1,90 @@
+###  Публикация: 1090587   (944317) от 08.01.2017
+
+VA - Jam Jazz: Electro Swing (2017) [MP3|320 Kbps] <Jazz Swing, Electro Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944317.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 5 In Love - Swing What You Got (Extended Cab Canavaral Remix) 4:11
+002. Annella - Like A Jazz Song 3:42
+003. Alex Santer & Mr.Ado - Turbo Swing 6:02
+004. Analogik - Gypsie Doodle 2:53(   Читать дальше...   )Жанр: Jazz Swing, Electro JazzПродолжительность: 09:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC121AD3FA16571AC5E67C5E3FC8B2EAA294F9F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751571   (944309) от 31.01.2014
+
+Falco - 25 Best Songs (2014) [MP3|245 кб/с]<Europop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Me Amadeus 1985
+02. Der Kommissar 1982
+03. Vienna Calling 1985
+04. Wiener Blut 1988(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1A37B40D121444A765CD3A976468515352864D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983336   (943941) от 06.02.2016
+
+VA - HighLife Masters Ultimate Spire (2016) [MP3|192-320 кб/с] <Club, Bounce, Fidget House, Tropical, Nu Disco, Bigroom>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mobin Master - Do Me Right (Original Mix) 05:09
+02. Dave202 Feat. Yono - Golden Child (Club Mix) 06:24
+03. Andy B. Jones - Make A Move (Club Mix) 04:40
+04. Alan-Lee - Give It Up (Edit) 03:39(   Читать дальше...   )Жанр: Club, Bounce, Fidget House, Tropical, Nu Disco, BigroomПродолжительность: 14:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B222D0697C2B64AADD252BD7F28DF6922B6804F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983342   (943871) от 06.02.2016
 
 VA - Lucid Dreams: Mermaid Party (2016) [MP3|320 кб/с] <Electro, Club, Funky House>
@@ -658,93 +745,6 @@ VA - Brand New Refreshed EDM (2017) [MP3|320 Kbps] <Dance, Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16A670EC1BD8877E0953C1AB93B8CC86AD0B8D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091169   (943121) от 09.01.2017
-
-VA - About EDM Sweet Festival Elements (2016) [MP3|256-320 Kbps] <Dance, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943121.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The 1975 - Somebody Else (Reed Streets RMX / Dirty / Cutdown) 3:48
-002. Tom Budin x WHTKD - Bad Vibe (Original Mix) 4:00
-003. Goldfish Ft. Diamond Thug - Deep Of The Night (Cutdown) 4:10
-004. Majestique - Moonlight (Short Edit) 3:02(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 08:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0911FD2C281EF3CA26D086988917A5AB6F176D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091569   (943110) от 09.01.2017
-
-VA - New Year Jelly (2016) [MP3|320 Kbps] <Dance, Technodance, Euro-House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jessica Jay - Casablanca (06:21)
-02. Pharao - I Show You Secrets (04:03)
-03. 2 Unlimited - No-One (03:29)
-04. Dj Bobo - Somebody Dance With Me (03:34)(   Читать дальше...   )Жанр: Dance, Technodance, Euro-HouseПродолжительность: 03:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9740AC502823969469FD4C434D721E685F51CAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983252   (943109) от 06.02.2016
-
-VA - Bust A Move Vol.2 (2015) [MP3|320 кб/с] <Psychedelic, FullOn, Night>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brain Hunters Feat John Go - Another Level (7:48)
-02. Funk Truck Vs Soundfanatic - Dr!ve (7:45)
-03. Dissy - Cocaine (8:19)
-04. Tube - So Sexy (8:54)(   Читать дальше...   )Жанр: Psychedelic, FullOn, NightПродолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C59B6AB8F31E677831B3CE5D4D1264BB99AECF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 936100   (497658) от 10.09.2015
+
+VA - Progressive Fresh House (2015) [MP3|320 кб/с]<Progressive, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497658.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A.SWIFT - Weekend Day (Bee Hunter Remix)
+002. Catrina Davies, Danny Jr Crash - Dick (Extended Mix)
+003. Coraz Feat. Chris Lago - With My Love Again (Dan Chase Remix)
+004. Christopher Hermann - Dilemma(   Читать дальше...   )Жанр: Progressive, Club HouseПродолжительность: 10:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6960223356D24890BE157A5B59009326CCCF1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935894   (497581) от 10.09.2015
 
 VA - The Chillout Players - Music For Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ VA - Music For Everyone - Electro house & Progressive Vol.5 (2016) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:896D275D736C08EABB289CD16D43A616E6FA40B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937108   (492388) от 13.09.2015
-
-VA - Moscow Underground (2015) [MP3|320 кб/с]<Electronica, Deep House, Techno, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nikitin - Powermind-X (Original Mix) 05:22
- 02. S.K.A.M. - The Doors (Original Mix) 07:43
- 03. Andrey Loud - Solid (Original Mix) 07:24
- 04. Afrobeat Feat. Tenisara - White Space (Nikitin Remix) 06:00(   Читать дальше...   )Жанр: Electronica, Deep House, Techno, MinimalПродолжительность: 10:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DF4803F43E5427FF28185FB0FF553751CC584A
 ```
 
 https://mybot314.ru/tekegram_catalog/

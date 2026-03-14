@@ -1,3 +1,177 @@
+###  Публикация: 1520841   (139059) от 30.12.2021
+
+Apollo Motel - Greytown (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greytown (3:02)
+02. Honey Girl (3:06)
+03. Tavern Shanty (1:29)
+04. Dead Sea (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF85086C3BD8CBA620B130AA3B1BB85CA5D3139B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520845   (139022) от 30.12.2021
+
+Craig Payne - A Long Time Coming (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Long Time Coming (4:18)
+02. Don't Tell Me How To Tie My Laces (3:52)
+03. Communication Overload (4:27)
+04. A Blue-Sky Kind Of Day (2:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F876101E7A9D5904997A314693711C5FD817EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520843   (138992) от 30.12.2021
+
+Bluejaf - Blues Coffee (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allright! (3:25)
+02. I Don't Smoke After Love (5:10)
+03. I'm a Shy Guy (5:28)
+04. When I Take the Road (5:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A869C19BD1EDDC31D41A1D80A2B1883B01F4D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520842   (138949) от 30.12.2021
+
+Aryan King - Juliet (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What About (4:45)
+02. Morning Coffee (4:29)
+03. She's Gone (4:13)
+04. When I'm Gone (4:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7319749762FAF31DB466A3C628DED1A9F529C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436099   (138854) от 30.12.2020
+
+VA - Southern Blues Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138854.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:27] 01. ZZ Top - Just Got Paid
+[3:53] 02. Lynyrd Skynyrd - Skynyrd Nation
+[4:53] 03. Johnny Winter - Mojo Boogie
+[4:58] 04. Kid Rock - All Summer Long(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB82CE99487CA3FA974A192EDF2003D8B2A72E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196056   (138637) от 31.12.2017
+
+Norah Jones - First Sessions (2001) Japan 2017 [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Know Why
+02. Come Away with Me
+03. Something is Calling You
+04. Turn Me On(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4192FC633F17B92EBCAE8E00E78B46F69640D49C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679358   (138426) от 25.11.2023
 
 Lee Morgan - The Rumproller (1965) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -571,180 +745,6 @@ Carlos Casciaroli - Dark Blues Ritual (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDC571E0CF14F4A6FE34680D4E40E89BE056723C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825002   (136856) от 16.10.2025
-
-Connor Selby - The Truth Comes Out Eventually (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Someone (5:02)
-02.  All Out Of Luck (3:55)
-03.  The Truth Comes Out Eventually (5:47)
-04.  (I Am) Who I Am (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16928BBA8B36CBE039081BEFCE254D708D935FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825008   (136854) от 16.10.2025
-
-Family Company - Pieces Of Us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  By Our Self (Just Us) (3:05)
-02.  Pieces Of Us (4:20)
-03.  Need Ya Loven (3:58)
-04.  I Believe In Humanity (3:25)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215B3E4E9C10E7E5CBD54764E13B41A533F4DDF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825013   (136852) от 16.10.2025
-
-James Bratton - Imagination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Imagination (3:48)
-02.  Just Lovin You (3:55)
-03.  I'm a Dreamer (3:31)
-04.  Under the Midnight Sky (4:26)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal JazzПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C82F93415B98D7D23EB14FE4123A8DB3653C0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825017   (136849) от 16.10.2025
-
-Jimmy Burns & Soul Message Band - Full Circle (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Express Yourself (4:19)
-02.  World of Trouble (6:29)
-03.  I Really Love You (4:29)
-04.  Ain't That Funk For You (5:21)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597D9457FC4A9DEEACF5A43F4E067721D7A180FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825021   (136848) от 16.10.2025
-
-Johnnie Johnson - I'm Just Johnnie (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'm Just Johnnie (3:30)
-02.  I Get Weary (5:40)
-03.  Every Day I Have the Blues (feat. Bruce Hornsby) (5:22)
-04.  Lo Down (feat. Johnny Rivers) (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6786BB79AC1BFC0B85660CFB25C31C963BEB2CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825027   (136847) от 16.10.2025
-
-Kara Grainger - That's How I Got To Memphis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Texas Blues (4:44)
-02.  That's How I Got To Memphis (4:07)
-03.  Light Your Fire (3:32)
-04.  Wake Up With You (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADCB8811E14D2171561CAB422308CDB021ECDBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

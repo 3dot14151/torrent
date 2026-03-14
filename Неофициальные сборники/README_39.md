@@ -1,3 +1,90 @@
+###  Публикация: 1482521   (1007614) от 08.07.2021
+
+VA - Beatport Electro House: Sound Pack #314 (2021) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Sunburst Band - He Is
+002. Michael Cassette - Through The Windows
+003. Kazantip - Deep Impact
+004. Igor Bartyuk - Dzëmgi(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33480147B459815F8E6F36C77C36DA60B951D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482519   (1007610) от 08.07.2021
+
+VA - Beatport Hard Dance: Sound Pack #315 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007610.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bass D & King Matthew - Like A Dream
+002. Myst - Goodbye
+003. Phd & Gem Stone - The Beat
+004. Brad Riffresh - Pay Attention(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 08:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EA78596FA8A285BC56752D2E57D81472A667EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482513   (1007597) от 08.07.2021
+
+VA - Easy Listening: Music For A Relaxed Mood (2021) [MP3|320 Kbps] <Easy Listening, Popular, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007597.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kino - Take On Me
+002. Orchester Ambros Seelos - Sail Along Silv'ry Moon
+003. Mcendoz - Bossarian
+004. Sarah De Koster - Gorgeous(   Читать дальше...   )Жанр: Easy Listening, Popular, JazzПродолжительность: 10:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A0A98869CF28A914D0947A5DE8E2B928F231937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482511   (1007596) от 08.07.2021
 
 VA - EDC: Deep House Cafe Del Mar (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -658,93 +745,6 @@ VA - The Official UK Top 100 Singles Chart 23.07.2021 [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB3B2BA876DEE778E09BC545F56D47F1F6B93FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485533   (1005304) от 26.07.2021
-
-VA - Fitness Motivation Hits 2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry, MNEK - Head & Heart (2:46)
-02. Ofenbach, Quarterhead, Norma Jean Martine - Head Shoulders Knees & Toes (2:36)
-03. DMNDS, Strange Fruits Music, Fallen Roses, Lujavo, Nito-Onna - Calabria (2:08)
-04. VINAI - Touch (2:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9B7CA6685C4804F386096A7EF459E11C951EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484688   (1005187) от 27.07.2021
-
-VA - Technical & Progressive Death Metal 6 (2017-2021) from Domovoy767 [MP3|320 Kbps] <technical death metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005187.jpg" />
-</div>
-
-
-###  Подробнее
-
-abstract mechanism. Vol.1
-
-1. Depth - Eyes Of Eternity
-2. Desecrate - Tears Of Blood And Sand(   Читать дальше...   )Жанр: technical death metal, progressive death metal, technical thrash metalПродолжительность: 40:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FBE1E7A5A16B6D777A4FF61B3F2783826D0279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485754   (1005183) от 27.07.2021
-
-VA - Наш Тик Ток 2 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xcho - Путь (2:56)
-02. VESNA305 - БЕЛАМОРЕ (2:47)
-03. GAVRILINA - Омут (2:09)
-04. Бамбинтон - Party Music (3:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2FD6B4C8D0B0D1FBCF31A3F23D34CC7C76655BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

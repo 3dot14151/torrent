@@ -1,3 +1,177 @@
+###  Публикация: 1218736   (719519) от 11.04.2018
+
+JoJo Effect - Atlantic City Flow (2018) [MP3|320 Kbps] <Nu-Jazz, Chillout, Downtempo>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аtlаntiс Сitу Flоw (04:05)
+02. Fаllасу (03:45)
+03. Swееt Ваbу Сhilе (fеаt. Вrеndа Воуkin) (03:38)
+04. Sunshinе оn Му Skin (03:52)(   Читать дальше...   )Жанр: Nu-Jazz, Chillout, DowntempoПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F38B0757CC498D17312B651114F038C9277C062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400463   (719402) от 05.08.2020
+
+Sauter-Finegan Orchestra - Four Classic Albums Plus (1952 - 1958) 2017, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Modern Big Band, Progressive Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719402.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Doodletown Fifers [3:17]
+02. April In Paris [3:01]
+03. Midnight Sleighride [3:01](   Читать дальше...   )Жанр: Modern Big Band, Progressive Jazz, Mainstream JazzПродолжительность: 02:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CBDFCCEF5A62286C8E9F86C367F6BE99B51583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400467   (719400) от 05.08.2020
+
+Hank Mobley - The Complete Blue Note Sessions (1963 - 1970) 2019, 8CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719400.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Up a Step [8:32]
+02. Old World, New Imports [6:09]
+03. East of the Village [6:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 08:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D089BBD482067F5C8ED7D62BCB0F6C69BEDB8EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285672   (719163) от 27.02.2019
+
+Bob Graf - At Westminster (1958) 1992, Delmark Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernie's Tune [7:31]
+02. Street of Dreams [6:30]
+03. Dear Old Stockholm [14:06]
+04. Funky Ride [5:15](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5A6766F7EDABF3122CF2931311EBECE0B6EC52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285677   (719162) от 27.02.2019
+
+Humphrey Lyttelton - In Canada (1983) 2015, Sackville [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Thing [5:00]
+02. Sprauncy [7:43]
+03. Squiggles [4:44]
+04. Looking for Turner [5:02](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8159097C286DD02384266F0814B411575D71B7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285687   (719158) от 27.02.2019
+
+Kim Mills - The Ruby And The Pearl (2005) Jazz Karma Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ruby and the Pearl [4:31]
+02. That's All [4:23]
+03. Corcovado (Quiet Nights of Quiet Stars) [3:20]
+04. I Only Have Eyes for You [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2E2D929C391D6840183BED4695DBF9A028BF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285622   (719157) от 27.02.2019
 
 Chris Potter - Circuits (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
@@ -571,180 +745,6 @@ Summit Jazz Orchestra featuring Clark Terry - The Knight's Golden Trumpet (2000)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ED9F51167B53635A7BEDB848FC3E1FCC9D6F2C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285921   (716809) от 28.02.2019
-
-Seiko Matsuda - Seiko Jazz 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sway
-02. It Had To Be You
-03. Over The Rainbow
-04. The Way You Look Tonight feat. Mervyn Warren(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C20B43A71DBAE1C5BE2F9518DB71D4865294D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130040   (716801) от 01.05.2017
-
-Rob Tognoni Band - Headstrong (1997) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Time Changes  (03:22) 
-02.  Got Yourself To Blame  (04:37) 
-03.  Stones And Colours  (04:15) 
-04.  Roosevelt And Ira Lee  (04:56) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBF8104F0C22B778F5AA9D083EC9846483F4208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130244   (716799) от 01.05.2017
-
-Duke Ellington - Welcome To The Clubs (1956 - 1959) 2014, La Maison du Duke [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Newport Up [05:44]
-02. I Got It Bad And That Ain't Good [02:24]
-03. Tulip Or Turnip [03:00]
-04. Mood Indigo [01:00](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20866EF20543C7B68BD776839EFD71A105DA620A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130014   (716797) от 01.05.2017
-
-Gaslight Street - Two Years Gone (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Two Years Gone  (03:17) 
-02.  Come Back  (03:20) 
-03.  Crippled Throne  (04:20) 
-04.  Lonesome Whistle  (04:11) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6834416E6F10ABA77BC4CDC7695674F32917D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130254   (716795) от 01.05.2017
-
-Josh White - The Blues: Blues, Spirituals & Folk Songs (1932-1945) 2CD, 2000, Fremeaux & Associes [FLAC|Lossless|image + .cue] <Pre-War Blues, Gospel Blues, Folk-Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716795.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Black and evil blues [03:16]
-02. Little brother blues [03:02]
-03. Crying blues [03:06](   Читать дальше...   )Жанр: Pre-War Blues, Gospel Blues, Folk-BluesПродолжительность: 01:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938CA384510EA44DCEC4B07AFE26A457155EB134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130248   (716789) от 01.05.2017
-
-Wille And The Bandits - Steal (2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles Away (3:44)
-02. Hot Rocks (4:29)
-03. Scared Of The Sun (5:15)
-04. Atoned (4:10)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A57BB361EFAAAE3CC39C6E61D0A6E124CAA2CDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

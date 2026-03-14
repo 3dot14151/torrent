@@ -1,3 +1,148 @@
+###  Публикация: 1772684   (71736) от 12.01.2025
+
+VA - Noetic Resonance - Best of 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Van Couver - Branch of Fate (06:52)
+02. Urrrrrr - Overture of Future (08:27)
+03. Urrrrrr - Reality (08:27)
+04. Stevectro - When Life Hurts (07:07)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BD887194F6FCB72B1B948B957A949016B64937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772874   (71733) от 12.01.2025
+
+VA - Cooperation Trance Selection: Year of the Loong (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tsuki Shizumutoki & CO1N - A Place Where My Heart Belongs To (Extended Mix) [7:23]
+02. pixeFiruta - Equinox (Extended Mix) [8:09]
+03. LESSISLESS - Halo (Extended Mix) [6:23]
+04. Fallen Order - Merrow (Extended Mix) [7:19](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2AD2D1283E5A630D1478BD099F0DE1C5F082E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773743   (71682) от 17.01.2025
+
+VA - Black Hole Trance Music 01-25 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RAM, Richard Durand & Digital Culture - Underneath the Sky (Extended Mix) (05:47)
+02. Leon Bolier & Amber Revival - Wearing the Darkness (Extended Mix) (05:47)
+03. Johan Gielen, Airscape & Arkayne - In The Dust Where Love Is Gone (Extended Mix) (05:19)
+04. Solarstone - Touchstone (Aeon Shift Extended Remix) (07:44)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6197A5FD8A5650FA1DDE974FE26479F60BC8F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773776   (71666) от 17.01.2025
+
+VA - Trance Party 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artyom Kitsenko - Atlas (Original Mix) [6:33]
+02. Alexander Pakhomov - Eternity (Original Mix) [3:36]
+03. Cybercat LPR - Space Party (Original Mix) [6:02]
+04. Dmitry Bereza - Abstract (Original Mix) [3:22](   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C1C9851E64E9469B88B6ECE484238E952BC604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774065   (71557) от 19.01.2025
+
+VA - Progressive Trance Awakening, Vol. 02 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Geri - In Order To Be Irreplaceable (Original Mix) [4:45]
+02. OLBI - Sky (Original Mix) [2:46]
+03. Nat Dankir - Fireball (Extended Mix) [5:46]
+04. Rob Jakk - Touch Of Insanity (Original Mix) [5:51](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9724FD4C6079A3E2CAE51B481DB90648C26F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774445   (71540) от 21.01.2025
 
 VA - Uplifting Only Top 15: January 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -600,151 +745,6 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 08 (2025) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:556383BE9606C9B2C598919B7BFBBC0B895EF025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780413   (70457) от 18.02.2025
-
-VA - Trance Winter 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Sand - Reflections 2024 (Extended Mix) [7:51]
-02. Mazeev - 1000 (Original Mix) [5:36]
-03. Oband Music - Learn To Fly (Original Mix) [6:46]
-04. RJ Hernandez - Falling Stars (Extended Mix) [6:28](   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A2A3B9BF8BB792BBB689DCCAABBC89BAA6DBD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781030   (70328) от 21.02.2025
-
-VA - Ori Uplift - Uplifting Only Episode 628 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LR Uplift – Sunrise (Victor Special Intro Remix)
-02. DreamLife & Grande Piano feat. Agness – Just You And Me (Fan Favorite 627)
-03. Ciaran McAuley – Permission To Exhale (Uplifting Mix)
-04. tranzLift – G-String Air 9Fan Favorite 626)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF7FA5B1DC5F5DFC6D6B84D99351DC9EC6FE0D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781421   (70215) от 23.02.2025
-
-VA - Trance Fusion Vol. 08 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victor Special & Nikai - Find The Light (Extended Mix) (06:03)
-02. Winterborn - Starplex (Extended Mix) (05:39)
-03. Peter Miethig - Storm (03:22)
-04. Alexander Komarov - Arabian Night (Extended Mix) (05:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93445873C5E317C3E43D7803F89FCB7BE662DB2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781817   (70120) от 26.02.2025
-
-VA - Trance Your Mind, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kirax - Heaven's Call [03:35]
-02. ImDylanD & SYREX - Your Heart [05:32]
-03. Angel Ace - Nuova Vita (Martyn Symes Remix) [06:26]
-04. DreamMan;York - Moonrise on the Beach (Vokoss Club Mix) [06:31](   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90C6B23B6B2C663B8E80124F20401D01EC0DA6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782061   (70109) от 26.02.2025
-
-VA - Best of Gallant Synthax 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Deere, Milad E & Anna Renae - Not Over Yet (Extended Mix) (05:16)
-02. Sinova & Ocien - If You Find Me (Extended Mix) (05:56)
-03. Dust (UK) - Home (Extended Mix) (07:07)
-04. SYONA - Nothingness (Extended Mix) (06:27)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF38D11D385806F7A1ACE9144EA8CA1FE20CA3AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

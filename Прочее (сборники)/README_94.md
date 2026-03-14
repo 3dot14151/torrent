@@ -1,3 +1,32 @@
+###  Публикация: 1045902   (556917) от 25.08.2016
+
+VA - Soul and Love (2016) [MP3|320 Kbps] <Rock & Roll, Vocal, Rhythm & Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Platters - Only You 02:36
+02. Aretha Franklin - Right Now (Feat. Ray Bryant Combo) 02:23
+03. The Isley Brothers - Turn To Me (Feat. Orchestre Hugo Peretti) 02:45
+04. Sam Cooke - I Fall In Love Everyday 02:10(   Читать дальше...   )Жанр: Rock & Roll, Vocal, Rhythm & BluesПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069F311E5EB9D2CFB05DBAB446EC12B2118B5D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154040   (556876) от 28.07.2017
 
 VA - Romantic Songs: Summer Edition (2017) [MP3|320 Kbps] <Pop, RnB, Lyric Rock>
@@ -719,35 +748,6 @@ VA - не Громкие новинки недели 21 (2019) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9A3554B5A0C8C90B0E188391B05A8346031294F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046679   (551614) от 27.08.2016
-
-VA - Дискотека 2016 Dance Club Vol. 155 от NNNB (2016) [MP3|320 Kbps] <Dance, Club, Trance, Pop, Rock, Twerk, Bass, D'n'B, Chill Out>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcus & Martinus feat. Samantha J. - Light It Up
-02. Filatov & Karas - Satellite (Radio Edit)
-03. Alex Freel & NIRI - Ghost (Original mix)
-04. Bassjackers feat. Luciana - Fireflies (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, Trance, Pop, Rock, Twerk, Bass, D'n'B, Chill OutПродолжительность: 12:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD67A6BF4E2AAA165F3677175E0987267D5760F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

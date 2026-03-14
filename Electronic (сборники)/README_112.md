@@ -1,3 +1,32 @@
+###  Публикация: 1040808   (585468) от 06.08.2016
+
+VA - Новая Жажда Скорости Без Тормозов vol.4 (2016) [MP3|320 Kbps] <Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cally & Riot - World In My Hands (Original Mix)
+02. Frequencerz - 12FU (Original Mix)
+03. Airtunes - Vampires (Original Mix)
+04. Faizar - The Darkness Drops (Original Mix)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FEC4C074AFB730C67710BA70900D756FABE74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358663   (585223) от 03.07.2011
 
 VA - Amnezia Super Hits 60 (02.07.2011) [MP3|320 kbps]<Dance, Euro Dance>
@@ -732,35 +761,6 @@ VA - Sexy Chillout Vol 1 (2016) [MP3|320 Kbps] <Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E849FC9F28FE076629FACF0924F52044C3E08AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041473   (581471) от 10.08.2016
-
-VA - Mechanoids Carnival (2016) [MP3|320 Kbps] <Dubstep, Drumm and Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Frim - 110 Squad
-002. TroyBoi & Diplo - Afterhours (BONE Remix)
-003. NGHTMRE & Boombox Cartel - Aftershock (NTCRCKRS Remix)
-004. Elephante - Age Of Innocence (CrankDat Remix)(   Читать дальше...   )Жанр: Dubstep, Drumm and BassПродолжительность: 06:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C43E906781DEB1C79AA7260CE4152A19C17DB2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1086410   (153361) от 24.12.2016
+
+VA - Empire Records - Chill Out 3 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitrii G - Stronger (Original mix)
+02. Lee & Sun - Underwater
+03. Dykane - Lost Summer (Original Mix)
+04. Frank Pleasure Night - Good(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB29661A8221D4E19854E183A86E067907350CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086428   (153284) от 24.12.2016
 
 VA - Empire Records - Chill Out 5 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -732,35 +761,6 @@ VA - Electronic Cosmic Party (2019) [MP3|320 Kbps] <Electronic, Synthwave, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FAEADB0D955FB10B848CABABA4F189165036DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519456   (148688) от 24.12.2021
-
-VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лёгкая танцевальная музыка с богатыми традициями от Disсо 80-х - и есть то, что ожидаешь услышать в данном сборнике. Своеобразный выразительный вокал и неповторимый мелодизм. Каждая песня сборника насыщена всем тем необходимым, что требуется для приятного времяпровождения, пассивного или активного отдыха. Несмотря на то, что этот стиль, как и многие другие предшественники, (   Читать дальше...   )001. Danros - Can't Get Enough
-002. The Sunburst Band - Rough Times
-003. French La Touche - Hard Life
-004. Holy Aliens & Dawn Tallman - Dance With You(   Читать дальше...   )Жанр: Jackin, Funky, Disco HouseПродолжительность: Jackin, Funky, Disco House
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBF1DE9B9DBFDAD0D53B201B5CFB654CA850180
 ```
 
 https://mybot314.ru/tekegram_catalog/

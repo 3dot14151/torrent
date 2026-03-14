@@ -1,3 +1,32 @@
+###  Публикация: 1527382   (736947) от 28.01.2022
+
+VA - Lounge Tales, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EK - Sonho (6:00)
+02. Life Audience - Waves & Particles (7:22)
+03. Didascalis - 4 Chords (4:27)
+04. Taco-Town - Acerado (3:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBDE537A88FA417A8E3DB8EAD0C3E76D88DFC0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527294   (736946) от 28.01.2022
 
 VA - Mediterraneo 2 (2018) [AAC|~328 Kbps] <Chill Out, Downtempo, Organic House>
@@ -706,35 +735,6 @@ VA - Sunrise Meditation, Vol. 02 (2020) [AAC|~317 Kbps] <Lounge, Lo-Fi, Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17BB257884EF33409AF69ECC78937816E8F3932D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527740   (736440) от 29.01.2022
-
-VA - Sunrise Meditation, Vol. 08 (2021) [AAC|~315 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tranquillo - Elaborated Compassion (Original Mix) (4:32)
-02. Vibes In Motion - Dont Worry (Original Mix) (4:51)
-03. Marc Hartman - Afterlife (Original Mix) (5:23)
-04. Chambre 29 - L'amour d'Alberta et Paul (Original Mix) (5:04)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527D608AEB372D0721B88F3DAF80348363D4A189
 ```
 
 https://mybot314.ru/tekegram_catalog/

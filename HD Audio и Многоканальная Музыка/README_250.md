@@ -1,3 +1,148 @@
+###  Публикация: 1806191   (11817) от 11.07.2025
+
+Mariah Carey - The Best (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Funk, Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11817.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Dreamlover
+02. Without You
+03. Now That I Know(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CC2DD9E772D029757D2EEB44ADF787C87D04EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806357   (11715) от 12.07.2025
+
+Chris Rea - The Best Of (1992) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11715.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Touche D'Amour
+02. All Summer Long
+03. Wired To The Moon(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58541A7E2D4D0F2D85853BEEE52620ADED271CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806281   (11713) от 12.07.2025
+
+Bronski Beat - Forbidden Fruit - The Age of Consent Remixed (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why? (feat. Neil Tennant) (Superchumbo Superextended Mix)
+02. Smalltown Boy (Extended) (feat. Perfume Genius)
+03. Junk (An ElectroGenetic Extended Remix By Gareth Jones)
+04. Love And Money (RSF Metropol Italo Extended Remix)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD3ED369D26F67FE8C3B8581DBAFCB9B7BCB08C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806383   (11695) от 12.07.2025
+
+VA - Балкантон Приглашает В Дискотеку (1986) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11695.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Васил Найденов - Полный порядок
+A2 Роксана Белева - Песенка Сверчков
+A3 ВГ ''Стил'' - Третий Лишний
+A4 Венета Рангелова - Районное Кино(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B745228240B1FD15CBA02AA1F6E5892C892A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807005   (11313) от 16.07.2025
+
+Justin Bieber - Swag (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Can Take [00:04:07]
+02. Daisies [00:02:56]
+03. Yukon [00:02:43]
+04. Go Baby [00:03:14](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC59917669C803551BAF671BD9EB2C7631C241D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806987   (11294) от 16.07.2025
 
 Demolition Hammer - Tortured Existence (1990) Released, 2023, Century Media [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Groove Metal>
@@ -600,151 +745,6 @@ Jean Mare - A Sunset Chill Lounge Voyage (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DA52168DD6427E2C86B1FC300C376E669221D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807967   (10772) от 21.07.2025
-
-italo Brutalo - Second Horizon (2025) Radio Version [FLAC 24/48|Lossless|WEB-DL|tracks] <Italo Disco, Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Sight (Radio Version) [00:02:32]
-02. Memory Sync (Radio Version) [00:02:33]
-03. Digital Freedom (Radio Version) [00:02:26]
-04. Surveillance State (Radio Version) [00:02:34](   Читать дальше...   )Жанр: Italo Disco, SynthpopПродолжительность: 00:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F500D3966BED1D0469E475D8B7CEECEDCAC41593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807960   (10762) от 21.07.2025
-
-Dave Stewart - Dave Does Dylan (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simple Twist Of Fate
-02. I Want You
-03. Emotionally Yours
-04. Forever Young(   Читать дальше...   )Жанр: Pop rock, Soft RockПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972AAE86A4BB9E482E54FAEB9ECF2C1660A1834D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808112   (10591) от 23.07.2025
-
-Alice Cooper - The Revenge of Alice Cooper (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Mamba (4:58)
-02. Wild Ones (4:18)
-03. Up All Night (3:07)
-04. Kill the Flies (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF2CCD731EB392F6E39958FC41C8051100CBB2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808402   (10492) от 24.07.2025
-
-Black Sabbath - The Eternal Idol (2025 Remaster) (1987) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shining (2025 Remaster) (5:57)
-02. Ancient Warrior (2025 Remaster) (5:33)
-03. Hard Life to Love (2025 Remaster) (4:59)
-04. Glory Ride (2025 Remaster) (4:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657E4C180150496A400AD06349702FE2DE50EAA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808337   (10463) от 24.07.2025
-
-Ozzy Osbourne - Mama I'm Coming Home (1991) (EP) [WavPack|32/192|image + .cue|Vinyl-Rip] <Heavy Metal,Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10463.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Mama I'm Coming Home
-A2 - Don't Blame Me
-B1 - I Don't Know
-B2 - Crazy TrainЖанр: Heavy Metal, Hard RockПродолжительность: 00:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEE261A8FD5E9582F196EB53920B48627D4E821
 ```
 
 https://mybot314.ru/tekegram_catalog/

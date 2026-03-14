@@ -1,3 +1,90 @@
+###  Публикация: 1490513   (917495) от 21.08.2021
+
+VA - Minimal Electro House: The Supersound Tech House Party (2021) [MP3|320 Kbps] <Tech House, Electro, Club Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917495.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Viel, Madraas - Vires
+002. Untidy Dubs - R.I.P.
+003. Joff. - Motion
+004. Tech House - Disco Knights(   Читать дальше...   )Жанр: Tech House, Electro, Club DanceПродолжительность: 12:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A852244684776EBBAF2C58D16EE35FC2921C5671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490483   (917483) от 21.08.2021
+
+VA - Beatport Deep House: Sound Pack #332 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917483.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michele Mccain - I Betcha Don't Know
+002. Holtkamp - A118-2
+003. Black Casta - Venomous
+004. Douglas Greed - Straight(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 13:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031B532968DA5FF15538E3400270D1A8AB7975CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367323   (917417) от 15.03.2020
+
+VA - Record Super Chart 629 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthony Keyrouz - Love Yourself 2:56
+02. Carla Morrison - Disfruto 3:57
+03. SAINt JHN - Roses (Imanbek Remix) 3:58
+04. ARIA - Bleu Chanel (NA-NO Remix) 2:43(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076E0391860EF5E8EAD2DBDF5112E19A31E289BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490529   (917405) от 21.08.2021
 
 VA - Rebel Rock Indie (Vol.02) (2021) [MP3|320 Kbps] <Rock Indie, Alternative>
@@ -658,93 +745,6 @@ VA - B машину ремиксы Vol. 4 (2020) [MP3|320 Kbps] <House, Pop, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:414D15A7054A3671D461749E59F94B9EE6ED6620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366961   (916662) от 15.03.2020
-
-VA - B машину ремиксы Vol. 5 (2020) [MP3|320 Kbps] <House, Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Света - Ты не мой (Smotra Remix)
-02. Леша Свик - Девчонка (Rakurs & Ramirez Remix)
-03. Мята Feat. & Ivan Navi - Ти Мене Кохай (Bakun Remix)
-04. Филипп Киркоров - Цвет Настроения Синий (Eugene Star Remix)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 03:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D72764CA3E4E6B40E8A34F084E06307B0A0E9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366489   (916659) от 15.03.2020
-
-VA - Громкие новинки Марта (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916659.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.#2Маши - Спасибо (3:40)
-2.3-ий Январь - Юппи (2:32)
-3.Alesso, Dubvision - One Last Time (4:00)
-4.Ally Brooke - Fabulous (2:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDD45C1494CB68D031CA79D2C1226D6B22520DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097261   (916051) от 26.01.2017
-
-VA - Снежный презент Выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916051.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evan Rai - Лети На Солнце 3:03
-002. Solterov - Алтайский Экспресс 4:20
-003. Андрей Витвитский - Улетаю 3:40
-004. Dee Flack & Gen Ree - Рубежи 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E536F50F2E7FAF03FE215B27C19852DEB0F435D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

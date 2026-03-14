@@ -1,3 +1,119 @@
+###  Публикация: 1780209   (70503) от 17.02.2025
+
+Glass Hearts Harmony Club - Misfit Love Letter (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dizzy Parade (5:58)
+02.  Bit By A Black Cat (4:48)
+03.  When The Daylight Ends (4:09)
+04.  Misfit Blues (5:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6443B54EB9F31BA9F499E8177C1F01A2B953CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780228   (70480) от 17.02.2025
+
+R.J. Archer & The Painful Memories - The Cost of Loving Crisis (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Get It Together (2:39)
+02.  Barbara (4:01)
+03.  A Heart in Winter (3:33)
+04.  Out of Line (2:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12B5D819231878E35BDB2935023981705DA4CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780618   (70396) от 19.02.2025
+
+Crazy Lixx - Thrill of the Bite (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal, Hair Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crazy Lixx — шведская хэви-метал/хэйр-метал/хард-рок-группа из Malmö, Sweden, образованная в 2002 году. Благодаря их энергичным выступлениям, запоминающиемся припевам и непримиримым стремлением к возрождению звучания глэм-метала конца 80-х, Crazy Lixx стала флагманом новой волны шведского хард-рок-метала. Группа черпает вдохновение в таких группах, как Def Leppard, (   Читать дальше...   )01. Highway Hurricane (3:35)
+02. Who Said Rock N' Roll Is Dead (3:01)
+03. Little Miss Dangerous (6:09)
+04. Call of the Wild (4:13)(   Читать дальше...   )Жанр: Hard Rock, Glam Metal, Hair MetalПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE72BBCCDF28E070241D72D3D4993E9DB444843E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781808   (70153) от 25.02.2025
+
+Francesco Marras - Out Of The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carnival of Darkness (04:02)
+ 02. Out of the Fire (05:06)
+ 03. Lost Souls (04:08)
+ 04. Through my Veins (04:30)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8861DE5DD04595555EEC16ECD73D6087CA1D41E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782755   (69951) от 02.03.2025
 
 David Lee Roth - The Warner Recordings 1985–1994 (2025) 5xCD, Reissue, Compilation, Limited Edition, Remastered, 2025, Warner Records [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ The Dead Daisies - Lookin' For Trouble (2025) [FLAC|Lossless|WEB-DL|tracks] <Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1AE5B98CCE04C6F3E0CFFD890F38B7DAE8FB72E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800274   (66295) от 01.06.2025
-
-Anthems in Ashes - This Affliction (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hold (3:05)
-02.  Superheroes (3:50)
-03.  This Disease (4:15)
-04.  Give It To Me (3:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84EC1924B9655A4DD24B3714C18E91D38E9C46BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800277   (66292) от 01.06.2025
-
-Ardbeggar - Dark Horses and Underdogs (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Underdogs (3:19)
-02.  All Against All (2:48)
-03.  Rob the Builder (3:02)
-04.  In Therapy (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938E2CCE76488E4507249F466B771FE460B22BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800278   (66284) от 01.06.2025
-
-Sapid Steel - Feel The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Whatever (3:12)
-02.  Feel The Fire (2:57)
-03.  Scream Machine (3:03)
-04.  Wasted Trouble (4:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86604CA717B69222D5C4D13A47343F18B80CCB3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802059   (66129) от 14.06.2025
-
-Freakstorm - Dust Of Glory (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fallen From The Stars (03:52)
- 02 - Out For Glory (04:29)
- 03 - Dr. Hammer (03:48)
- 04 - Sacrifice Me (04:17)(   Читать дальше...   )Жанр: Melodic Hard Rock, Female VocalПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA5E85FB0B1C4A3F268AE375EE0863500A301BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

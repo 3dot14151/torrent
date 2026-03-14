@@ -1,3 +1,32 @@
+###  Публикация: 1033662   (638244) от 11.07.2016
+
+VA - Strandhouse Rugensommer (2016) [MP3|320 Kbps] <Funky, Deep House, Tech>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monointerpret - Die Immer Lacht (Radio 2016 Remake) 03:28
+02. Beach House Brothers - Sunny Dance 04:05
+03. Cazintel - Paradise 05:37
+04. Chevro - Real Love (Deep House Remix) 06:34(   Читать дальше...   )Жанр: Funky, Deep House, TechПродолжительность: 03:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246BBA06181A16F055BAA131A8A676D43EA511CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033486   (638233) от 11.07.2016
 
 VA - Club Dance Ambience Vol.77 (2016) [MP3|320 Kbps] <House, Electro House, Club>
@@ -728,35 +757,6 @@ VA - Vocal Deep House Vol.30 (Retro Deep) (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F47EF8652F7B7691074E41DA70A423554A0F23DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034469   (634368) от 13.07.2016
-
-VA - Endless Motion - Only Trance (episode1) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634368.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Andrew Rayel Extended Remix) 6:56
-002. Denis Kenzo & Alexandra Badoi -  More Time (Original Mix) 5:49
-003. Alex M.O.R.P.H. & Den Rize feat. Natalie Gioia -  Angelic (Original mix) 7:56
-004. NoMosk & Ansia Orchestra -  Adventure  (UDM Remix) 6:58(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 11:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8655F82C8F458CEAE86834FDC1AF7F517ADA23
 ```
 
 https://mybot314.ru/tekegram_catalog/

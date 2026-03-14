@@ -1,3 +1,175 @@
+###  Публикация: 1393018   (768997) от 28.06.2020
+
+Jae Sinnett's Zero To 60 Quartet - Just When You Thought... (2020) Self-Released [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just When You Thought [6:23]
+02. That Said [5:03]
+03. Slopes [6:53]
+04. Snidely [7:11](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A154CF3C798DA194187BDB6D229C9C33B9505D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392720   (768949) от 28.06.2020
+
+Sinne Eeg & The Danish Radio Big Band - We've Just Begun (2020) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We've Just Begun [4:03]
+02. Like a Song [5:20]
+03. Those Ordinary Things [5:04]
+04. Talking to Myself [3:35](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B319B911A77F0EBA96B2D2C6ADD8287B3674DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125159   (768817) от 14.04.2017
+
+Eric Bell - Exile (2015) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep In Your Heart  (04:42) 
+02. Don't Love Me No More  (03:58) 
+03. Gotta Say Bye Bye  (05:07) 
+04. Vote For Me  (03:07) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB4CAF6E77A9F6E50322D6B937F8F913035DEBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125072   (768815) от 14.04.2017
+
+The Stumble - Lie to Me (2012) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lie to Me  (02:29) 
+02. Big Better Love  (06:32) 
+03. I Get a Little Hot  (05:53) 
+04. Money On Time  (02:56) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983A7D0F7F083971CED4D0F8EC3A0DDEA574E8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125348   (768733) от 14.04.2017
+
+Club Des Belugas - Nine (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Club Des Belugas - It's Only Music (feat Ashley Slater)
+02. Club Des Belugas - Pogo Porn (feat Karlos Boes)
+03. Mo'Horizons - Ai Mi Morena (Club Des Belugas remix)
+04. The Cosmic Surf Club - Quite Dawn (Club Des Belugas remix)(   Читать дальше...   )Жанр: Nu Jazz, Broken BeatПродолжительность: 02:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD02C5C5915486313F2AAF474EAB6BB9342C3D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393195   (768610) от 29.06.2020
+
+Sam Rivers Trio - Emanation 1971 (2019) NoBusiness Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emanation Part I [31:09]
+02. Emanation Part II [45:32]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3F3924D105FE0BEB9F6B79CD45C3CA23E321BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278640   (768607) от 26.01.2019
 
 George Mraz - Morava (2001) Milestone Records [FLAC|Lossless|tracks + .cue] <Ethnic Jazz>
@@ -573,180 +745,6 @@ Michel Legrand - The Very Best Of Michel Legrand (1990) [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EC79913BB953DD9B16CC7D6A808AFE1BE78CEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278701   (767619) от 27.01.2019
-
-Chris Rea - World Ballad Collection (1999) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock,Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And You My Love
-02. Winter Song
-03. Heaven
-04. Shine, Shine, Shine(   Читать дальше...   )Жанр: Soft Rock, Pop Rock,Blues RockПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCEA0ADCE4E078491FEFA527BADD06751FA977DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200868   (767545) от 27.01.2019
-
-Michel Legrand/Stephane Grappelli - Legrand/Grappelli (1992) [FLAC|Lossless]<Continental Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_767545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parlez-moi d'amour (Speak To Me Of Love) (4:59)
-02. C'est si bon (4:06)
-03. Les feuilles mortes (Autumn Leaves) (3:43)
-04. Theme From Summer of '42 (The Summer Knows-un ete 42) (5:22)(   Читать дальше...   )Жанр: Continental JazzПродолжительность: 01:10:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213745   (767414) от 18.03.2018
-
-Howard McGhee - Maggie: The Savoy Sessions (1948-1952) 1995, Savoy [APE|Lossless|image + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merry Lee [02:07]
-02. Short Life [01:58]
-03. The Talk of the Town [02:52]
-04. Bass C Jam [02:58](   Читать дальше...   )Жанр: BopПродолжительность: 01:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F4C5C61EFEB6BE87C7177635CEFC481926EC2B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213727   (767349) от 18.03.2018
-
-Jules - Greenbird (2018) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay
-02. Greenbird
-03. Counting Sheep
-04. Take My Hand(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4749375C0D15BE5599F4A875902BF6C5725B512D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125908   (767203) от 16.04.2017
-
-Esther Marrow - Sister Woman (1972) Remaster 2010 [FLAC|Lossless|tracks + .cue] <Gospel, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman In The Window (3:20)
-02. Ghetto (4:21)
-03. Trade Winds (4:45)
-04. Turn On To Jesus (6:12)(   Читать дальше...   )Жанр: Gospel, Soul, FunkПродолжительность: 00:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3F976C07C1A31FF3A19BEB475AC174B4088E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125898   (767196) от 16.04.2017
-
-Fleurine - Meant To Be! (1995) 2000, Emarcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lazy And Satisfied [04:41]
- 02.My Souldance With You [06:14]
- 03.Favorite Love Affair [06:14]
- 04.Velejar [05:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACAF9B67D96295A96E17106CCA28532A9CE56E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

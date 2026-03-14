@@ -1,3 +1,90 @@
+###  Публикация: 1652029   (219492) от 09.08.2023
+
+Meg Myers - Thank U 4 Taking Me 2 The Disco (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_219492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Any Way You Wanna Love 3:31
+02. Grizzly 3:27
+03. The Underground 3:32
+04. Breaks My Back 3:49(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Female VocalПродолжительность: 00:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DB8CE00FBC2EED64364B3BFCD1511428CA99CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652028   (219430) от 09.08.2023
+
+Meg Myers - I'd Like 2 Go Home Now (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_219430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. True Liars 3:59
+02. End Of The World 3:30
+03. Hurt 4:00
+04. Sweet Liar 3:33(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Female VocalПродолжительность: 00:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9321984BE497E76B1831D1535D1226A753DD1171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084632   (219132) от 19.12.2016
+
+Nanaki - Dandelion Radio Session (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Alt-Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. January Overkill (04:16)
+ 02. Disembryo (04:09)
+ 03. Let Me Close My Eyes (05:18)
+ 04. Luthiers (Of Heaven) (04:20)(   Читать дальше...   )Жанр: Post-Rock, Alt-Rock, Post-PunkПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40F5744A115EC49770A4367422508DCD15EDBAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084610   (219125) от 19.12.2016
 
 Headcrash - Overdose on Tradition (1995) [FLAC|Lossless|tracks + .cue] <Industrial, Rapcore>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9D681DA99D0411B58936E017EF7AC8482458438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654497   (205150) от 21.08.2023
-
-The Offspring - Rise And Fall, Rage And Grace (2008) 15th Anniversary Deluxe Edition, 2023, Round Hill Music (Offspring) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half-Truism
-02. Trust In You
-03. You're Gonna Go Far, Kid
-04. Hammerhead(   Читать дальше...   )Жанр: Alternative, Pop, Punk Rock, New WaveПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D3FA47ED6B034BCA6E823457EB08D29F73F63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151010   (205141) от 17.10.2022
-
-Bush - 10 Albums (1994-2022) Full Studio Discography [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Is the Ocean (5:13)
-02. Slow Me (3:48)
-03. More Than Machines (3:22)
-04. May Your Love Be Pure (3:22)(   Читать дальше...   )Жанр: Alternative Rock, Grunge |Продолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B43EEA8ABF3A4F1CC166AE0BA69066B51219475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654625   (204958) от 22.08.2023
-
-Сметана band - Похмурий (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аніме опенінг [00:03:42]
-02. Не закохуйся [00:04:09]
-03. Дискотека "Ностальжі" [00:03:27]
-04. Істерика [00:03:31](   Читать дальше...   )Жанр: Alternative Rock, Pop-PunkПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51A02A03B27F93738681D05ADCA9D0611982804
 ```
 
 https://mybot314.ru/tekegram_catalog/

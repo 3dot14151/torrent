@@ -1,3 +1,148 @@
+###  Публикация: 1809348   (64720) от 30.07.2025
+
+Buddy Guy - Ain't Done With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hooker Thing (1:09)
+02.  Been There Done That (3:48)
+03.  Blues Chase The Blues Away (4:50)
+04.  Where U At (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763EABE2A867ACF0B9A8C5B50281F9C52D51F20A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809410   (64716) от 30.07.2025
+
+Pulpit Vomit - Hospital Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Powerviolence, Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Razor Jaw [00:01:20]
+02. Ghost in the Bedroom Closet [00:01:04]
+03. The Filth [00:02:49]
+04. No Place in Power [00:01:54](   Читать дальше...   )Жанр: Powerviolence, HardcoreПродолжительность: 00:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94EB48588B97B26F3E8DFE633B6AF0C18BBE22FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809469   (64715) от 30.07.2025
+
+Antlers - Antlers (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:14]
+02. Sword Ov The Immortal [00:06:11]
+03. Carpathian Plague [00:05:57]
+04. Cry Of The Last Mammoth [00:06:18](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 01:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40A4D24E83D2C594A78DB0A276F21E7DC72A0552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809473   (64714) от 30.07.2025
+
+Behold the Beloved - Harsh Realities (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dear Martyr [00:04:11]
+02. Darker The Night [00:04:21]
+03. Untouchable [00:03:27]
+04. Toxic Lullabies [00:04:36](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129CB3813FE95C541086E933514228616D108931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809654   (64686) от 31.07.2025
+
+Torben Enevoldsen - Seven (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instrumental Heavy Metal, Shred>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravitas (04:15)
+ 02. Perfect Vision (04:30)
+ 03. New Horizons (04:16)
+ 04. Transformation (03:59)(   Читать дальше...   )Жанр: Instrumental Heavy Metal, ShredПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7A10184D2E222F8461D4FC286F71AAAC75F508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809797   (64655) от 01.08.2025
 
 Tomoko Aran – Fuyu-Kukan = Floating Space = 浮遊空間 (1983) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, New Wave, City Pop>
@@ -600,151 +745,6 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC 24/88.2|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B7FF0843199BB84DED5C00FA92692D4CB3808C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705939   (63391) от 10.03.2024
-
-Slade - Slayed? (Слейд. Убитый?) (1972) 1993 [FLAC 24/192|Lossless|tracks] <Classic Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Как ты едешь? How D'You Ride. (Holder - Lea)
-02 - Весь мир сошел с ума. The Whole World's Goin Crazy. (Holder)
-03 - Взгляни в эту ночь. Look At Last Nite. (Holder - Lea)(   Читать дальше...   )Жанр: Classic Rock, GlamПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74673024E815EDA53779C925FA16DB1C7A8723D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705941   (63388) от 10.03.2024
-
-ВИА «Самоцветы» - Самоцветы (1973) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Песня моя, песня (О. Иванов – П. Леонидов)
-02. Горлица (О. Иванов – С. Кирсанов)
-03. За того парня (М. Фрадкин – Р. Рождественский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD50B9F13F874F309E03542A7DDDB4E2C5BD439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548753   (63237) от 12.03.2024
-
-Amaranthe - Studio Albums (7 releases) (2011-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Modern Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amaranthe — шведско-датская метал-группа, основанная в 2008 году Джейком Е. Лундбергом (Dreamland, Dream Evil) и Олафом Мёрком (Dragonland, Nightrage). Проект начал складываться, когда к группе присоединились вокалисты Элиз Рид и Энди Сульвестрём, а также ударник Мортен Лёве. После выхода первого демо-альбома состав коллектива пополнил басист Юхан Андреассен2011 - Amaranthe
-2013 - The Nexus
-2014 - Massive Addictive
-2016 - MaximalismЖанр: Melodic Modern Metal, Power Metal, Pop MetalПродолжительность: 06:23:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C187AFE3A42EE0DF0642798F4B67B4D45187BF44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706162   (63201) от 12.03.2024
-
-Toto Cutugno - Тото Кутуньо (1985) [FLAC 24/96|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01. Итальянец (L’Italiano) (Salvatore Cutugno - Cristiano Minellono)
-02. Только мы (Solo noi) (S.Cutugno - C.Minellono)
-03. Одни (Soli) (S.Cutugno - C.Minellono)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E026C8B93E41F2DD454D0DDC1584FC59C8A71824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706241   (63184) от 12.03.2024
-
-Ласковый Май - Белые Розы (1989) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Electronic, Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63184.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Белые Розы
-B Седая Ночь
-
-Pressed By – Ленинградский Завод Грампластинок(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126B3A68B60E3F18C3C0765E9D2D8A07736271F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 971901   (984548) от 04.01.2016
+
+Oonagh - Oonagh (2014) Attea Ranta • Second Edition [FLAC|Lossless|image + .cue] <Pop, Ethno-Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaa [03:55]
+02. Vergiss Mein Nicht (Duet Mit Santiano) [04:24]
+03. Orome [03:45]
+04. Falke Flieg [03:32](   Читать дальше...   )Жанр: Pop, Ethno-Pop, FolkПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A907249CB894256324FEC4718CDEDBBF674EF555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355555   (983535) от 26.01.2020
+
+Lola Marsh - Someday Tomorrow Maybe (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echoes (03:44)
+02. Only For A Moment (02:48)
+03. Hold On (03:48)
+04. Strangers On The Subway (03:11)(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, FolkПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2A09EA77B9EF482DA07470471665D5A3475618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355502   (983522) от 26.01.2020
+
+Tindersticks - See My Girls (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See My Girls (Edit) [04:24]
+02. A Street Walker's Carol [04:19]
+03. Blood and Bone [05:35]
+04. See My Girls (Le Chien Version) [05:31]Жанр: Pop RockПродолжительность: 00:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FF6C7DB9A492234D7C36530CEBBF78079E5247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972042   (983353) от 05.01.2016
+
+Fitzgerald - Full Circle (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Gon Say
+02. Making Love
+03. Love Me Again
+04. Missing You(   Читать дальше...   )Жанр: Pop, Soul, R&B, ElectronicПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6BE46DF0A6DCF69BA71E2C982DFCE16AF8AAD29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971964   (983341) от 05.01.2016
 
 Anastacia - Two Albums: Not That Kind, Freak Of Nature (2000,2001) [APE|Lossless|image+.cue] <Rhythm & Blues, Pop Rock>
@@ -641,125 +757,6 @@ Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D27B0598E6942A0E1936675271842D666F3AF501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975495   (971936) от 15.01.2016
-
-Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность:01:12:34
-1.When You Believe (4:36)
-2.Sweetheart (4:22)
-3.I Still Believe (3:56)(   Читать дальше...   )Жанр: Pop, BluesПродолжительность: 01:09:28
-1.Fantasy (4:04)
-2.My all (3:52)
-3.Open arms (3:32)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B5C28923527AB5672012F13010B5F4C73FFD40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975667   (971923) от 15.01.2016
-
-VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juanito - Amor de mis amores (3:11)
-02. Juanito - Bamboleo (2:43)
-03. Olivia Valere - Cantinero de Cuba (4:15)
-04. Chico Fuente - La Paloma (3:00)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975970   (970818) от 16.01.2016
-
-Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Stupendo fino a qui (03:49)
- 02. - La vita in un anno (03:28)
- 03. - Avro cura di tutto (03:40)
- 04. - Vivere a colori (04:20)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B016579EED58892A5A8A26C982C6693085B367E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975967   (970804) от 16.01.2016
-
-VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro-Cuban>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gloria Estefan - No me dejes de querer (3:27)
-02. Chayanne - Boom boom (4:25)
-03. Ricky Martin - La diosa del carnaval (Spanish Eyes) (4:04)
-04. Azucar Moreno - Mamma mía (4:16)(   Читать дальше...   )Жанр: Latin, Merengue, Afro-Cuban, Europop, Salsa, BalladПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D238F66DABF2A9D6A156E174DE0AAA8B46550AB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

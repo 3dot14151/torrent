@@ -1,3 +1,90 @@
+###  Публикация: 1776492   (71219) от 01.02.2025
+
+The George Gruntz Concert Jazz Band '83 - Theatre (1984) ECM Records [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Chancho [15:21]
+02. In The Tradition Of Switzerland [9:24]
+03. No One Can Explain It [6:30]
+04. The Holy Grail Of Jazz And Joy [25:21]Жанр: Big Band, Post-BopПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768648D4857C3D201579E3BC0AF82000C95AB338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776845   (71203) от 02.02.2025
+
+VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. II (2023) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Melodies - Enigma (6:12)
+02. Dark Jazz Cafe Assembly - Out of the Future (3:06)
+03. Dark Jazz Cafe Assembly - Do You Remember This Voice (4:21)
+04. NEONNOONE - Zen Noir (6:38)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Jazz NoirПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E7B8FC0C882034D12DD0AE9171AF61983871E50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776846   (71197) от 02.02.2025
+
+VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. I (2023) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flooded Fields Quartet feat Manet- Step Down to the Water (4:14)
+02. Six Fingered People - Jamaica (7:05)
+03. Apostrophe - Black Rain (5:37)
+04. Satvrne - Absinthe (6:39)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Jazz NoirПродолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35BA7105BDEA28D4AB86287AE4F54988F0B9A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776853   (71165) от 02.02.2025
 
 VA - The Midnighters Vol. II (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
@@ -658,93 +745,6 @@ Julee Cruise – Floating Into The Night (1989) [FLAC|Lossless|tracks + .cue] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A1CD4FC39BB814154B20669210E605366B70731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778288   (70910) от 08.02.2025
-
-Louis Armstrong - Wonderful World: The Best Of Louis Armstrong (2024) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Kiss to Build a Dream On [3:05]
-02. Hello, Dolly! [2:27]
-03. Dream a Little Dream of Me (feat. Ella Fitzgerald) [3:08]
-04. La Vie en Rose [3:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E392E6B5ED79219EEB85239EA2DB23C9B7107785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778364   (70908) от 08.02.2025
-
-Tape Five - Fizzy Far Niente (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bandit Town
-02. Bad Boy Good Man (Rmx 2023)
-03. Crazy Little Thing Called Swing (Fizzy Far Niente Edit)
-04. The Hepcats Blues(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:30:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F267AE64045CFD2ECB2D88355438D5C62F3748D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778283   (70880) от 08.02.2025
-
-Jimmy Raney - Here's That Raney Day (1980) 1990, Black & Blue [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chewish Chive and English [5:12]
-02. Back Home Again in Indiana [4:41]
-03. Au Privave [5:45]
-04. Scrapple from the Apple [7:10](   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4086B28DD1864AF29DB1878B1E5EB78D762E034
 ```
 
 https://mybot314.ru/tekegram_catalog/

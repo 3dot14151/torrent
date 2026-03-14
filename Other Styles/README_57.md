@@ -1,3 +1,148 @@
+###  Публикация: 1527882   (734956) от 01.02.2022
+
+Anais Mitchell (Anaïs Mitchell) - Xoa (2014) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Any Way the Wind Blows (2:30)
+ 02. Out of Pawn (4:13)
+ 03. Your Fonder Heart (3:21)
+ 04. Why We Build the Wall (3:35)(   Читать дальше...   )Жанр: Indie FolkПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E765ED9AEF941460BAAA88069FA884F486B719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399240   (733870) от 30.07.2020
+
+VA - Waykey (2007) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New Age>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ethnic, Folk, New AgeПродолжительность: 01:08:41Трэклист: 01. Efrain Mamani - Dream Catcher
+02. Efrain Mamani - Spirit Voices
+03. D.R. - Valle Del Alto
+04. Sixto Ayvar - Wairapa Muspuni(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F734439DE8C2C7648D7B9D74685A2D2AD3AAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529236   (733164) от 05.02.2022
+
+Willie Nelson - The Willie Nelson Family (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven And Hell
+02. Kneel At The Feet Of Jesus
+03. Laying My Burdens Down
+04. Family Bible(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAAA1516C62C0E7C78C04146FAA8BA8D8EE8816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 180350   (732824) от 01.08.2020
+
+VA - Потанцуем (2002) 3 CD [FLAC|Lossless|tracks] <Instrumental, Dance>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если хотите по-настоящему отвлечься, весело провести время и отдохнуть - эта коллекция специально для вас. Антология самых популярных танцевальных мелодий и самые известные исполнители со всего мира. Незабываемый праздник музыки и ритмов, которые увлекут вас на танцплощадку, где вы проведете, танцуя, 3 незабываемых часа. Ваш конек - вальс? Тогда кружитесь в медленном (   Читать дальше...   )01 - Хорошее настроение. Разаф, Гарленд (03:25)
+02 - Лунная серенада. Миллеруем (02:09)
+03 - Воспоминания, тема из мюзикла «Кошки». Ллойд Уэббер, Швеппе (03:12)
+04 - Прекрасная мечтательница. Фостеруем (03:22)(   Читать дальше...   )Жанр: Instrumental, DanceПродолжительность: 03:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7713A6342244389A439CFB2C1D5FB66F5D9B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021270   (732556) от 29.05.2016
+
+Deep Forest - Evo-Devo (2016) [MP3|320 кб/с] <New-Age, World-Music, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simply Done (feat. Oyme) (3:10)
+02. Stutter Dream (3:59)
+03. B-Vatar (3:28)
+04. Oymes's Song (feat. Oyme) (5:15)(   Читать дальше...   )Жанр: New-Age, World-Music, ElectronicПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3780AB8F12DB65DB6A7E7371B2F12CFF03617A96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021324   (732471) от 29.05.2016
 
 Deep Forest - Evo-Devo (2016) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Ambient, Electronic>
@@ -597,151 +742,6 @@ VA - Не грози Южному Централу, попивая сок у с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5269F424AB3102D1CC116336A735EA2852B46330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283977   (730012) от 20.02.2019
-
-Justin Hurwitz - First Man (2018) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .cue] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-15 (01:22)
-02. Good Engineer (01:06)
-03. Karen (00:45)
-04. Armstrong Cabin (01:15)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA6DB8B431A93668F59587663A63D3C2DCB81A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128070   (729976) от 23.04.2017
-
-Richard Osborn - Endless (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Folk, World, & Country>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Monastery Garden (3:51)
-02. Streets of Laredo, a Pastorale (4:34)
-03. Still I Will Be Merry (6:22)
-04. Breton Fisherman's Prayer (4:33)(   Читать дальше...   )Жанр: Acoustic, Folk, World, & CountryПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FAC1E711428E12C7E745252C9CA65168A6CCE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284285   (729940) от 20.02.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  6 (1990) [MP3|320 Kbps] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight Of The Bumble Bee / Hungarian Dance No. 5 / Light Cavalry  Carmen
-02. Blue Moon
-03. Holy Halls
-04. Here, There and Everywhere/  Hey Jude(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4D8426B7E070F35220178B64DC2BC192D23CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283702   (729934) от 20.02.2019
-
-Atom Music Audio - Nemesis (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Act of Revenge [02:35]
-02. Dark Forces [02:34]
-03. Nemesis [02:32]
-04. Here Comes the Hero [02:41](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3B383F023A036C704DCCEF145AC2FDE39E47EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283659   (729929) от 20.02.2019
-
-Big City Indians - Tuwa (2012) [MP3|320 Kbps] <Native american, New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horses Thunder (Soquili Unole) (04:25)
-02. Ina Makoce (Mother Earth Healing Prayer) (04:52)
-03. Breath Of Water (04:27)
-04. In The Shadow Of The Light (05:16)(   Читать дальше...   )Жанр: Native american, New Age, WorldПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE045129D966191EC8248F8908B6A58C46AC3DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

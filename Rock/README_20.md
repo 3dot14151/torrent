@@ -1,3 +1,61 @@
+###  Публикация: 1199023   (802941) от 14.01.2018
+
+The Go Getters - Love & Hate (2017) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love & Hate (03:07)
+02. Maria (04:10)
+03. Red Hot Mama (03:44)
+04. Don't Get Started (03:28)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5938065DEE55EB203126BE711CBEB4A17FACA4A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199021   (802935) от 14.01.2018
+
+William T. & The Black 50's - Rock'n'Roll... Baby!!! (2018) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock'n'Roll Queen (02:37)
+02. Katherina Corinna (02:50)
+03. I've Been Fooled (02:40)
+04. Never Give Up (03:21)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398E0AF4C2CCC0EB58A8F2426FC32772F793E71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505794   (802934) от 28.10.2021
 
 Bobby Solo - Rock'n'Roll (1979) LP [MP3|320 Kbps] <Rock & Roll, Pop>
@@ -687,64 +745,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F0345EE183042539F86C339D053691A39CCB73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506942   (798713) от 03.11.2021
-
-R.E.M. - New Adventures In Hi-Fi (1996) 2xCD, 25th Anniversary Edition, 2021, Craft Recordings [MP3|320 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798713.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01 - How The West Was Won And Where It Got Us (Remastered) (04:31)
- 02 - The Wake-Up Bomb (Remastered) (05:08)
- 03 - New Test Leper (Remastered) (05:26)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7F1728B5148A3FAD00089BA3556D1A1CAC0D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199906   (797380) от 18.01.2018
-
-VA - Classic Rock: The Ultimate Collection (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797380.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Status Quo  -  Rocking All Over The World  4:04
-02.  Thin Lizzy  -  The Boys Are Back in Town  4:54
-03.  Rainbow  -  Long Live Rock 'N' Roll  4:23(   Читать дальше...   )Жанр: RockПродолжительность: 01:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DB053F5CBDF608A0BE09337179D7189E46C7E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1672285   (169104) от 28.10.2023
+
+Taylor Swift - 1989 (2014) Taylor's Version, 2023, Taylor Swift [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To New York (Taylor's Version) (3:33)
+02. Blank Space (Taylor's Version) (3:52)
+03. Style (Taylor's Version) (3:51)
+04. Out Of The Woods (Taylor's Version) (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB0B5903C9933357B9E145866B3C8A36D48A43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344601   (169102) от 12.12.2019
+
+VA - Acoustic Christmas (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169102.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Shannon, Keast - Frosty the Snowman (2:22)
+2.Thom Cooper - Silent Night (2:02)
+3.Karizma Duo - Lonely This Christmas (3:47)
+4.Landa - Winter Wonderland (1:43)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA086D2A20EA38C341B64649530075046EA11629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672290   (169063) от 28.10.2023
 
 Duran Duran - Danse Macabre (2023) [MP3|320 Kbps] <Pop, Rock>
@@ -687,64 +745,6 @@ Gene Ferrari And The Disco Roma Band - Disco Italiano (1978) LP [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:305C7B4EAA3A5B0EA02452C8B703E2737B66ECDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599797   (159330) от 25.12.2022
-
-Sarah Brightman - Diva : The Singles Collection (2006) [OGG Vorbis|480 Kbps] <Modern Classical, Downtempo, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Phantom Of The Opera
-02. The Music Of The Night
-03. Pie Jesu
-04. Who Wants To Live Forever(   Читать дальше...   )Жанр: Modern Classical, Downtempo, Synth-popПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610DD8F0AD9CF679238A60FC5D43A054E1CE18EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600258   (158964) от 26.12.2022
-
-VA - Best of the Best 2022 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - Anti-Hero (3:20)
-02. TALK - Run Away to Mars (3:33)
-03. Yung Gravy - Betty (Get Money) (2:26)
-04. Reve - CTRL + ALT + DEL (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E142EB8F37901D5CD9E2161D793A6BC5207E99B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1535403   (685879) от 06.03.2022
+
+3D print - Bestiarum Miniatures - Модели для настольных игр [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Each month we deliver sets of presupported STL's and RPG game supplements that can be used in: DnD5e, Rangers of the Shadow Deep and Forbidden Psalm game systems.
+
+Ежемесячные наборы моделей для настольных систем (DnD/FP/RsD). В наборы включены интегративные схемы, лор, правила, и, конечно, сами модели. Модели подходят как для FDM-принтеров в нарезке, так и для SLA-принтеров (   Читать дальше...   )Формат: .STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83AED023A99A803F2EABA8B1A3E98521C012CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535551   (684102) от 07.03.2022
 
 3D print - Gambody - Cylon Raider - Diorama [SLT]
@@ -673,33 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFBB8BFECF9457AD92B79CF7C42A70912C2F5D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227262   (646580) от 26.05.2018
-
-3D модели - Daz 3D - Floyd 8 Pro Bundle - 51347 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Floyd 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA41E49338A9960A8ABAA5E10A31606AF7103A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

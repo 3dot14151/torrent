@@ -1,3 +1,88 @@
+###  Публикация: 1634945   (242272) от 23.05.2023
+
+Mandy, Indiana - i've seen a way (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Theme (4K VHS) (3:17)
+02. DragЖанр: ElectronicПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41B3620845264354C798F0D32DC45ADB452A5DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378483   (241499) от 25.04.2020
+
+VA - Best Of Disco Balls Records 2019, Pt. 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St Jude - Nieghbourhood (6:04)
+02. Dan Aslow - Time To Rise (Discoslap Remix) (5:29)
+03. Chenandoah - Give Up On Love (Chujo's Afro Mix) (8:04)
+04. Dan Aslow - Time To Rise (Adam Sommer Discofeel Remix) (6:00)(   Читать дальше...   )Жанр: Electro, Techno, HouseПродолжительность: 02:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA5EB574BA3FD5E59CCE24BC0F6D1EDE15C7A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625757   (241487) от 11.04.2023
+
+VA - Miami Downtempo Hits 2023 [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elysir - Never Gonna Give You Up (3:36)
+02. Selma Hernandes - Prá Nunca Mais (4:00)
+03. Mantra - Saint Thomas Experience (4:07)
+04. Bamboo - Rhythm Of Life (6:24)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341B4A61ACA8D58F601C0EA84B2C4343FABBE1AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462336   (241087) от 14.04.2021
 
 O-Wells - Subfriction (2021) a.r.t.less [FLAC|Lossless|WEB-DL|tracks] <Detroit Techno>
@@ -654,93 +739,6 @@ Carl Finlow - Boolean (2018) Craigie Knowes [FLAC|Lossless|WEB-DL|tracks] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E832A5E3C53C16BF6561CA41CA873AB24E027E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424529   (227684) от 17.11.2020
-
-VA - Sound Best Radio Hits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Davenport, MFJ - Like Me - Radio Version (3:00)
-02. Herc Deeman, Alexando, Brandon Chu - Till The End - Radio Version (3:42)
-03. Andrew Hurth, Nadya Sumarsono - Hideaway - Radio Version (2:39)
-04. Vessbroz, David Shane, Matt Alvarez - All I Need - Matt Alvarez Radio Mix (3:39)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE2BCB9F03B8AA2F785810DAF8E35CCDDCEBCE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513028   (227548) от 27.11.2021
-
-VA - Winter Chillout Lounge 2021: Smooth Lounge Sounds For The Cold Season [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airstream - Sweet Life (Dream Wave Mix)
-02. Cafe Americaine - Sub Marina (Asian Timetable Mix)
-03. Seaside Bar - Gruta Azul (Way Back Mix)
-04. Cocogroove - Movimiento (Step by Step Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E78F2D216D923B0B42231F63DF0FB67373D9F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268525   (226641) от 11.12.2018
-
-Livio & Roby - Phantom Circle (2016) Desolat [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capsule (11:03)
- 02. Concrete (08:23)
- 03. Reloaded (08:16)
- 04. Mound (08:21)(   Читать дальше...   )Жанр: Tech House, Deep House, Techno, MinimalПродолжительность: 01:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E067B77E0E24E868E4A838CA988323A592AF01F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

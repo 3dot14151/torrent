@@ -1,3 +1,147 @@
+###  Публикация: 1700594   (117023) от 17.02.2024
+
+Jazz Instrumental Music Academy, Calming Jazz Relax Academy - Vintage Elegance: Vibes of Smooth Jazz, Relaxing Jazz Atmosphere, Background for Nice Evening Time (2024) [FLAC 24/48|Lossless|WEB-DL|t ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night And Day (3:25)
+02. Calming Jazz Relax Academy - Soft Winds (3:33)
+03. Moonglow (3:23)
+04. Calming Jazz Relax Academy - Deep Purple (3:52)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982ACCE1C2F6572EC447056822349F84FB812F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700648   (117011) от 17.02.2024
+
+Unheilig - Phosphor (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Macht
+02. Willenlos
+03. Ikarus
+04. Sage Ja!(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F173CF113DF006299B249C8FA710A050ABA4816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700462   (117008) от 17.02.2024
+
+Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Gardenian была основана в Швеции в 1996 году Тимом Бломом (ударные) и Джимом Кьеллом (гитара, вокал). Вскоре к группе присоединились Хокан Скогер (бас) и Никлас Энгелин (гитара).1997 - Two Feet Stand
+1999 - Soulburner
+2000 - SindustriesЖанр: Melodic Death MetalПродолжительность: 02:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C4710E801238F3A9E8C3F166DD9A9DA4083C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700330   (117006) от 17.02.2024
+
+A Somerset Parade - Carcosa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal, Industrial Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Stars In Black Skies [00:01:27]
+02. Invader Summer [00:04:01]
+03. Alpha [00:02:58]
+04. Sometimes Dead Is Better [00:03:42](   Читать дальше...   )Жанр: Alt.Metal, Industrial RockПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDF216DFC8D838918407FB04BE87A5CD507B626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700475   (117005) от 17.02.2024
+
+Omni - Collection (2019-2024) Sub Pop Records [FLAC 24/44.1, 24/88.2|Lossless|WEB-DL|tracks] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exacto (2:39)
+02. Plastic Pyramid (feat. Izzy Glaudini) (3:25)
+03. Common Mistakes (1:50)
+04. INTL Waters (2:55)(   Читать дальше...   )Жанр: Alternative/Indie RockПродолжительность: 01:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53E04F035BD484551C831E1B2A72D147EEC630D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700546   (117001) от 17.02.2024
 
 Гнилой Район - Сюжет одной жизни (Памяти Юрия Клинских Хоя Посвящается) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, New Wave>
@@ -600,151 +744,6 @@ A2 Озёрный Край
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B779520909E7A97AEEB60580E800121343F35DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701224   (116500) от 20.02.2024
-
-Unheilig - Grosse Freiheit (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Meer
-02. Seenot
-03. Für Immer
-04. Geboren Um Zu Leben(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6F193CF087F09D28236E094D5CB202106DB4FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701200   (116499) от 20.02.2024
-
-Unheilig - Puppenspiel (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vorhang Auf
-02. Puppenspieler
-03. Spiegelbild
-04. Dein Clown(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A83BC102CBADA30FB2BE3C0421948E5DD1F0F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701118   (116494) от 20.02.2024
-
-Aname (Anamé) - 2 Albums (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal House, Melodic House, Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116494.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Anywhere (Road Trippin') (Extended Mix) 00:06:22
-2 Someone We Used To Love (Extended Mix) EXPLICIT 00:05:25
-3 Must Be Dreaming (Extended Mix) 00:04:50
-4 Bermondsey Bender (Extended Mix) 00:05:32(   Читать дальше...   )Жанр: Vocal House, Melodic House, TechnoПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC04301D4C1F210AA229913CDE8354B6824DC6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701336   (116487) от 20.02.2024
-
-Mahmood - Nei Letti Degli Altri (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NLDA INTRO [00:01:30]
-02. TUTA GOLD [00:02:58]
-03. COCKTAIL D'AMORE [00:03:24]
-04. NEI LETTI DEGLI ALTRI [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD7A8D5564AC1E3F9B927505676CE23C4366BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701230   (116485) от 20.02.2024
-
-Unheilig - Lichter der Stadt (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Licht (Intro)
-02. Herzwerk
-03. Stark 2012
-04. So Wie Du Warst(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27753F38AE4C345C25413D82A6AD046F5B220BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

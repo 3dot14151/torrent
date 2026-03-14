@@ -1,3 +1,61 @@
+###  Публикация: 1735706   (106837) от 09.07.2024
+
+VA - DJ Hits 141 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Jack - Little Boy (Airplay Mix)
+02. Blumchen - Du Und Ich (Langer Inch Mix)
+03. Das Modul - Robby Roboter (Radio Edit)
+04. Dune - Million Miles From Home (Video Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, HouseПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC22FACA932CF4F7C8BBE43A51D8A07A40834C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736160   (106649) от 13.07.2024
+
+VA - 100 Hits Pop Essentials (2017) Box Set: 5CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jennifer Lopez - Waiting For Tonight
+02. Anastacia - I'm Outta Love
+03. Christina Aguilera - Genie In A Bottle
+04. Dido - Here With Me(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, FolkПродолжительность: 06:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B1D89B9A092C864082F3AD4C0C03980B582B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736524   (106611) от 14.07.2024
 
 VA - Italia - Dance Music From Italy (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo House>
@@ -684,64 +742,6 @@ VA - DJ Vol 351 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C68662BCBB6324715A35B4C37895FFEE6529BF8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748210   (104548) от 10.09.2024
-
-VA - DJ Hits Vol. 363 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clueless - Don't Speak
-02. Party Jam - Don't Stop The Music
-03. N. E. O. N. - Living In The Jungle
-04. Rytmica - Swing Da Thing(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D26498D5C8D5E2A34050D002BC12F7D076B68B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748472   (104547) от 10.09.2024
-
-VA - DJ Hits Volume 777 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat System - What's Going On (In Your Mind)
-02. Amen U.K. - Passion
-03. Celvin Rotane - Back Again
-04. U 96 - Seven Wonders(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBE48B644BA1AE6189817CBE089FE2BE76B52EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

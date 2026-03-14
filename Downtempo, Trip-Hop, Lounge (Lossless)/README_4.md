@@ -1,3 +1,61 @@
+###  Публикация: 1469668   (1016267) от 13.05.2021
+
+Morcheeba - Blackest Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cut My Heart Out
+02. Killed Our Love
+03. Sounds Of Blue
+04. Say It's Over(   Читать дальше...   )Жанр: Electronic, Trip-Hop, DowntempoПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DEAE8EE177F0FB78E40317366EA57C278DC9441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470655   (1015635) от 17.05.2021
+
+Vladi Strecker - Sax the Night Away - Saxophone Lounge Music & Chillout Grooves (2021) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Midnight Hour (Zero O Clock Remastered Mix)
+02. Sleep on the Beach (The Bossa Cut)
+03. I Am Calling You (Dial My Number Mix)
+04. Just Be Here (Early Morning Mix)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B65DA81AA6819BCB3E7E4588A118E6B7023AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470595   (1015634) от 17.05.2021
 
 VA - Mellow Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -686,64 +744,6 @@ V.A. - Cafe Del Mar Essentials (Vol. 1) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F23CA6695ADC3254EB42523B33C623C258E6D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637893   (1003678) от 04.01.2020
-
-York - Islanders (2012) Planet Love Records #ARDI3244 [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Trance>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York - Dying Star (Chill Out Mix) (7:14)
-02. York & Mike Oldfield - Islanders (Chill Out Mix) (9:12)
-03. York & Art Halpertin - Abyss (Chill Out Mix) (5:23)
-04. York & The Thrillseekers feat. Asheni - Daydream (York's Album Mix) (06:08)(   Читать дальше...   )Жанр: Lounge, Chillout, Trance, LeftfieldПродолжительность: 02:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704D35A0EEB3A1C06DE33C872F95C7751999BB18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487448   (1003624) от 05.08.2021
-
-VA - Secret Room: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour - Who Is Lore?
-02. Finland & Aaskoven - Tahiti (Closing Theme)
-03. Will James - Daintree Twilight
-04. Project Blue Sun - Fly Away (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:178594F75C7532EDE2022D2D4E61E5FB5E283915
 ```
 
 https://mybot314.ru/tekegram_catalog/

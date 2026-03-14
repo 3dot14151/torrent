@@ -1,3 +1,90 @@
+###  Публикация: 1355314   (983613) от 26.01.2020
+
+VA - German Top 100 Single Charts 24.01.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juju x Loredana - Kein Wort (feat. Miksu & Macloud)
+02. UFO361 - Big Drip (feat. Future)
+03. The Weeknd - Blinding Lights
+04. Tones and I - Dance Monkey(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B887A86FF09F4FC1C9FBB77DB48708CAB99D077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972079   (983592) от 05.01.2016
+
+VA - Chill and Lounge Volume 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Mare - Space Moments (Ambient Lounge Sphere Mix)
+02. Johannes Huppertz - Mainstreet
+03. For Found Future - From the Heart (Another Chillout Mix)
+04. Jean Mare - Dream Enough (Guitar Chill Cut)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05B51546DF923F90936509A268E4EC40B695197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355295   (983531) от 26.01.2020
+
+VA - Record Super Chart 622 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
+02. Carla Morrison - Disfruto 3:57
+03. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48
+04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983A44DA66D88B20CE3B60B242AD748A99D2EA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972210   (983512) от 05.01.2016
 
 VA - The Dance Space Innovative (2016) [MP3|192-320 кб/с] <Club, Hands Up, Vocal, Commercial>
@@ -670,105 +757,6 @@ VA - Euphoric Emotions Vol.42 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Upl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E12DF297E1BB2713DBB6A06ADB60A22B2C1CB4CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614245   (981603) от 05.02.2013
-
-VA - Private Room- the Winter Lounge Session (2013) [MP3|320 кб/с]<Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. People Watching - Michael E
-02. Free Ride - Peter Pearson
-03. The Observer - Northbound
-04. Pacifica - Euphonic Traveller
-05. The Big Greec - Leon Ard
-06. Betrayed (The Day After) - Simon Le Grec
-07. Black & White - Man In A Room
-08. Temple Air - Lemongrass
-09. Naked Soul - Syusi & Lilli
-10. Serve Chilled - Peter PearsonЖанр: Chillout, LoungeПродолжительность: 02:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24734D633F8CBB3E0007CC4B1ECF9F42E22CC6F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613931   (981251) от 05.02.2013
-
-VA - Gold Instrumental Songs (2013) [MP3|256 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francis Moore - Ruby Tuesday
-02. Billy Mclaughlin & Dirk Freymuth - Tsavo
-03. Frank Pourcel - Angie
-04. Secret Service - Aux Deux Maqotos
-05. James Last - Rosita
-06. Jan Morks - You Don't Know How Much You Can Suffer
-07. Mads Haaber - Kissing A Fool
-08. Eddy Calvert - Lonelyness
-09. Peter Weekers - Wish You Were Here
-10. Mark Show - The X-Files (Main Title)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 06:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F80D6E7F3F1CFD5A4CFDA724A978D912A6C54AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355772   (981096) от 28.01.2020
-
-VA - не Громкие новинки недели 53 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981096.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.2VINA - Не Вариант (2:28)
-2.Aquaneon - Магия (3:11)
-3.Artem Smile & Emmanuil - Лайк Тебе (1:51)
-4.Chernika - Небо Не Предел (3:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF906B61475828AD2C64AF81D749446610541B15
 ```
 
 https://mybot314.ru/tekegram_catalog/

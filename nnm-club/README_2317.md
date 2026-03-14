@@ -1,130 +1,289 @@
-###  Публикация: 600883   (998133) от 11.01.2013
+###  Публикация: 599431   (999449) от 06.01.2013
 
-VA - Dances Dream Lights (2013) (07.01.2013) [MP3|320 кб/с]<Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Kaos - Kosmischer Ruckenwind (Quiet Village Remix) 23:58
-02. Higinio - Your Life (Original Mix) 06:48
-03. Deux - Golden Dreams (Original Mix) 06:47
-04. Al Walser - I Can't Live Without You (Maui & Chris Mix) 03:19
-05. Stray Kings, Matt Stone Vs Monofono - Storm In July (Radio Mix) 03:43
-06. Hotbox - Get Right On Love (Original Mix) 05:56
-07. Sean Bay - Nonchalance (Original Mix) 06:11
-08. Avicii - Last Dance (Avicii Instrumental Radio Edit) 03:24
-09. Nothing But The Beat - Killing Me (DJ Absinth Project Remix) 05:37
-10. Gigi D'agostino - Amorelettronico 07:19(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 02:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8CCF6F649EABD1F4141006CA7C68FD0D6FB892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601386   (998131) от 11.01.2013
-
-Мэрилайл Роджерс | Неразгаданные сердца [1998] [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998131.jpg" />
-</div>
-
-
-###  Подробнее
-
-В средневековой Англии, среди рыцарских турниров и в гуще народных восстаний, зарождается романтическая любовь... Или, может быть, это еще одна история о Робин Гуде....Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609E2E767FFCB2F9E648C3F6E13AB6ED9AD1B1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601672   (998129) от 11.01.2013
-
-Водная жизнь (серия 17 из 26) / Water Life (2007) BDRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998129.jpg" />
-</div>
-
-
-###  Подробнее
-
-История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету. Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный -Продолжительность: 00:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A56138B7D846ACE22661E8E4B55E80F597714F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601466   (998128) от 11.01.2013
-
-Eboxyde - Inside My Mind (2013) [MP3|320 кб/с]<Drum N Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Adhesive Layer (01:07)
-02. Inside My Mind (03:32)
-03. Roast (03:06)
-04. Always The Rain (04:21)
-05. Bad Strike (03:21)
-06. Blubber (03:39)Жанр: Drum N BassПродолжительность: 01:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2B6DB3371457A68C94A6AE9A2820ABBF6F2CD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601232   (998126) от 11.01.2013
-
-[Wallpapers] A selection of beautiful girls Pack 21
+Фотография - Фотограф Damon Loble
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998126.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Damon LobleРазрешение файлов: ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A6A8FEBB25165B408A8E766B7385ABD341C3F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599383   (999448) от 06.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 15
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1600х1200 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C51AC39822BD89B5A5666D56DACD00F1CC44621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599381   (999447) от 06.01.2013
+
+[Wallpapers] Floral wallpaper (06.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999447.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Floral wallpaper (06.01.13)
+Название: Floral wallpaper (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CF5B3AABB7FBAD23B564318DB3A099F48C9FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599548   (999446) от 06.01.2013
+
+Журнал | Письма здоровья. Лечебник №1 [январь-февраль 2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999446.jpg" />
+</div>
+
+
+###  Подробнее
+
+На страницах журнала много простых, доступных в применении рецептов и методов лечения. Все рецепты проверены опытом исцелившихся людей.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F960BC08BCEC41158E8FCFA0D7AB90B9D04950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599104   (999443) от 06.01.2013
+
+Butterfly - Favorite Colors Episode 065 (05.01.2013) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan Teague -  Prelude VI (Intro Original Mix)
+02. Matt Eray -  Downtown Lights (Original Mix)
+03. Second Way -  Vladivostok 7520 (Original Mix)
+04. Erick Strong feat. Anthya -  Out Of My Mind (Original Mix)
+05. Avi -  Mainstage (Original Mix)
+06. Alex M.O.R.P.H. feat. Shannon Hurley -  Monday Morning Madness (Original Mix)
+07. Broning vs Sean Truby & Solis -  Rokit (Original Mix)
+08. 4 Strings -  Out To Nowhere (Original Mix)
+09. Arys -  Barocco (Audiko Remix)
+10. Alter Future & Namek -  Winter Feeling (Felix Pot Remix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01225E4806FE5C64A8CD65F7C46BE60D7ECF042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599434   (999442) от 06.01.2013
+
+Фотография - Фотограф Miru Kim
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Miru KimРазрешение файлов: ~  500x750 ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A470669EB19D86A475178D588175088FF8B62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599553   (999441) от 06.01.2013
+
+Газета | АиФ. На даче №23 [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999441.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Аиф. На Даче" — Популярное издание по “дачной” тематике для владельцев огородов, садовых участков, совхозов, питомников, дач и усадеб, а также для тех, кто только собирается ими стать.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FC226A1547F54364A72094A9D7BB24A2B9334E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599430   (999440) от 06.01.2013
+
+Фотография - Фотограф Alva Bernadine
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Alva BernadineРазрешение файлов: ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB147142AF580B2C3AD304A656CD46CEDAF3A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599384   (999439) от 06.01.2013
+
+[Wallpapers] Compilation of air (06.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999439.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Compilation of air (06.01.13)
+Название: Compilation of air (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BBA010F9EEF22C211B9B5E31F1E1CD839A21D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599435   (999438) от 06.01.2013
+
+Фотография - Фотограф Zuna Potočná
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Zuna PotočnáРазрешение файлов: ~  500x750 ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54717D6A97BAC9B9865CBDD2D6AB53FAB189A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599671   (999435) от 06.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 17
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999435.jpg" />
 </div>
 
 
@@ -134,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A344EC03169061D7EEECC23CA4C575F29C852A42
+magnet:?xt=urn:btih:470C7EEC4492FF76F64627DFAFF18649FA0347BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,366 +301,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 601785   (998123) от 11.01.2013
+###  Публикация: 599248   (999433) от 06.01.2013
 
-Журнал | Золотые рецепты наших читателей №1 [январь 2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998123.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Золотые рецепты наших читателей» - это подробные и доступные рецепты, которыми делятся опытные хозяйки.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F99F95BD71F13A298D5EDA02758C400E3DDB0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601730   (998121) от 11.01.2013
-
-Водная жизнь (серия 18 из 26) / Water Life (2007) BDRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998121.jpg" />
-</div>
-
-
-###  Подробнее
-
-История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету. Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный -Продолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36667750F1087751BD4588345446284A9325139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601431   (998120) от 11.01.2013
-
-VA - Simply Dubstep December 2012 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 12th Planet -Jail Break (04:43)
-02. 12th Planet -MMXII (04:00)
-03. 12th Planet & Antiserum -Ghost (04:44)
-04. 12th Planet & Flinch -The End Is Near Part 1 (Dirtyphonics Remix) (05:18)
-05. 12th Planet & Flinch -The End Is Near Part 1 (Felguk Remix) (04:46)
-06. 12th Planet & Flinch -The End Is Near Part 1 (04:16)
-07. 12th Planet & SPL -Ratchet Strap (Big Gigantic Remix) (03:46)
-08. 12th Planet & SPL -Ratchet Strap (UZ Remix) (04:00)
-09. 50 Cent -Disco Inferno (DJ Chixer Remix) (03:18)
-10. Ajapai -The Golden Ring of Fire (Original Mix) (04:41)Жанр: DubstepПродолжительность: 08:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45B3054EF7DA00486A1FA9D6E25D7B69F7BA2B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599816   (998116) от 11.01.2013
-
-VA - The Drum & Bass Show (2013) [MP3|320 кб/с]<Drum'n'Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audeka - Kings Guard (04:44)
-02. Veak - Go Crazy (Emakha Remix) (04:16)
-03. Oly - Secret Cave (Original Mix) (08:31)
-04. Adrian Valera - Take That (Disturbia Remix) (05:56)
-05. Xol & Sombra - Mallorca Libre (06:51)
-06. Command Strange - If U Wanna Make A Love (05:07)
-07. Kubiks & Bcee - Lifechanges (05:11)
-08. Faith Massive - Wasteland (06:01)
-09. Suvjet - Dislocated Shoulder (06:03)
-10. Connector - Naga (04:10)(   Читать дальше...   )Жанр: Drum'n'BassПродолжительность: 02:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FF30C256754B501CA42B87EA4593D69626BA46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601793   (998115) от 11.01.2013
-
-VA - All I Want For Christmas Is Bass (2013) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998115.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Task Horizon - Da Vibe (feat MC Spyda & Rina) (05:09)
-2. Killabyte - Luigi's Final Showdown (Inexus remix) (03:32)
-3. DJ Yox - Brain Damage (05:27)
-4. Sam Laxton - Young People Like You Vip (04:52)
-5. Brainpain - Rock To The Beat (Breezer remix) (04:54)
-6. Nutronic - The Ghost (Okiru remix) (05:13)
-7. DJ Yox - Space Travel (05:21)
-8. Shola - Another Day (feat Anise - Sam Laxton remix) (05:10)
-9. Hot Noises - Hands Up (03:34)
-10. Hey!zeus - Control The Skies (05:35)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA84AEA90EBA1B97BED853A346726F993C9FEEAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601658   (998114) от 11.01.2013
-
-Сергей Асанов | Тринадцать [2009] [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998114.jpg" />
-</div>
-
-
-###  Подробнее
-
-С обитателями дома номер тринадцать регулярно происходят несчастья – самоубийство одинокой женщины, пожар в застрявшем лифте, унесший жизнь двух подростков, обрушение балкона… Жильцы объясняют свалившиеся на них напасти несчастливым номером дома, однако экстрасенс Михаил Поречников находит иное объяснение: оказывается, дом построен на месте заброшенного расстрельного полигона НКВД, а среди жильцов затаился один из палачей, благополучно доживший до 90-летнего юбилея.
-
-Но кто этот человек? Задача жильцов – найти старика и избавиться от него, пока «мрачные тени прошлого» не разнесли дом.
-
-Задача Поречникова – спасти всех.Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686A28FD14FFC208A1093A9AFF7593F350774C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601657   (998113) от 11.01.2013
-
-Наталия Манухина | Знойная женщина, мечта поэта [2006] [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владелице брачного агентства «Марьяж» Наташе пришлось самой отправиться на свидание с клиентом. Ведь дела идут далеко не блестяще, а этот Крыласов пленился ею с первого взгляда и готов заплатить кругленькую сумму! Как и следовало ожидать, влюбленный оказался форменным психом. А еще он, похоже, совершенно равнодушен к Наташиным прелестям, но тем не менее упорно добивается новых встреч. Исходящую от него опасность своим звериным чутьем уловил только домашний крокодил Алик, верный друг «марьяжниц». Теперь у попавшей в двусмысленное положение дамы один путь спасения: понять, почему к ней прицепился горе-поклонник, и.., прислушаться к советам крокодила!Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B9D464D2E8349E9A380013FA2229657AAD27AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601655   (998111) от 11.01.2013
-
-Мюриэл Спарк | Memento mori [1994] [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Персонажей романа «Memento mori» известной английской писательницы Мюриэл Спарк преследуют по телефону – неизвестный голос повторяет одну и ту же фразу: «Помните, что вас ждет смерть». Полиция бессильна…Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B235EF95492CBE6F964FB5CF3638092DFC01154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601650   (998110) от 11.01.2013
-
-Игорь Минутко | Золотая братина: В замкнутом круге [2009] [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998110.jpg" />
-</div>
-
-
-###  Подробнее
-
-История загадочной реликвии – уникального уральского сервиза «Золотая братина» – и судьба России переплелись так тесно, что не разорвать. Силы Света и Тьмы, вечные христианские ценности любви и добра и дикая, страшная тяга к свободе сплавлены с этим золотом воедино.
-
-Вот уже триста лет раритет, наделенный мистической властью над своим обладателем, переходит из одних рук в другие: братину поочередно принимают Екатерина Вторая и Емельян Пугачев, Сталин и Геринг, советские чекисты и секретные агенты ФСБ. Длинный шлейф загадочных событий и жестоких преступлений, чудесных избавлений и таинственных смертей тянется за братиной. От того, кто станет ее новым владельцем, напрямую зависит дальнейшая участь страны, то, каким путем пойдет российский народ – кровавым путем революций или дорогой, ведущей к возрождению и спасению.Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14178ED332066A35F3BB33DCC2D661791F86554A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601516   (998109) от 11.01.2013
-
-Александра Василевская - Со дна (1995) [FLAC 2.0 16/48|tracks (MB-Rip)]<Acoustic, Post-Punk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Электрический свет 1:49
-02. Дайте новую игрушку 2:55
-03. Апрельский марш (Гадкий утёнок) 2:12
-04. Гиена 2:47
-05. Со дна 2:02
-06. Цивилизация 2:39
-07. Блюз на крови 4:21
-08. Правой-левой 1:39
-09. Сонная полночь 2:21
-10. Что воля, что неволя 2:14(   Читать дальше...   )Жанр: Acoustic, Post-PunkПродолжительность: 00:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CE3D51231DCD1B93B139CC8268329F02D9EC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601828   (998108) от 11.01.2013
-
-VA - Radio Italia 30 Anni (3CD) (2012) [MP3|320 кб/с]<pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998108.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:01. Sugarfree - Cleptomania
-02. Francesco Renga - Angelo
-03. Povia - I Bambini Fanno Oh
-04. Zero Assoluto - Svegliarsi La Mattina
-05. Daniele Silvestri - La Paranza
-06. Simone Cristicchi - Ti Regalero' Una Rosa
-07. Fabrizio Moro - Pensa
-08. Giusy Ferreri - Non Ti Scordar Mai Di Me
-09. Arisa - Sincerita'
-10. Malika Ayane - Come Foglie(   Читать дальше...   )Жанр: popПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C46D775767F25A116A622774BDE56CE42273C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601338   (998107) от 11.01.2013
-
-Cockpit - Mission To Rock [EP] (2008) [MP3|320 кб/с]<Rock>
+Second Hand Stereo - Travelers (2012) [MP3|320 кб/с]<70's Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998107.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[03:19] 01. Cockpit - Mission To Rock
-[02:48] 02. Cockpit - At A Loose End
-[03:06] 03. Cockpit - White Flag
-[03:10] 04. Cockpit - Shot In Hell
-[03:38] 05. Cockpit - Gun For HireЖанр: RockПродолжительность: 00:16:04
+01.  Bankrupt (4:32)
+02.  Tied Up (3:44)
+03.  Die Singing (3:23)
+04.  The Guilt (4:52)
+05.  Hello Animosity (4:38)
+06.  Travelers (4:40)
+07.  Live And Let Live (4:10)
+08.  Keep Thinking (5:11)
+09.  All We Need (3:38)
+10.  Uneasy Chair (3:45)(   Читать дальше...   )Жанр: 70's RockПродолжительность: 00:47:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F82FF72CA92738B7A3A6FFD990BA3AD9605BD4E
+magnet:?xt=urn:btih:A3B2CD18DA222E8096D87DEFC4B2E9A5F33DF383
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,25 +336,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 601648   (998105) от 11.01.2013
+###  Публикация: 599386   (999432) от 06.01.2013
 
-Джозеф Уэмбо | Синий рыцарь [1993] [RTF, FB2]
+[Wallpapers] Compilation of anime Pack 6
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998105.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999432.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я уже привык к тому, что люди говорят мне, что я не так высок, как они ожидали или каким я им показался с первого взгляда. Участковый полицейский должен быть крупным, иначе ему придется всегда драться. Иногда крепкий и ухватистый, но небольшого роста, полицейский начинает из-за этого негодовать, потому что он не в состоянии обойти свой участок. И еще дело в том, что большинство людей не боится коротышек, и такому приходится постоянно доказывать, что он тут не последний слабак. Но рано или поздно кому-нибудь все же удается вырвать у полицейского дубинку и ею отлупить его же по заднице.Формат: RTF, FB2
+[Wallpapers] Compilation of anime Pack 6
+Название: Compilation of anime Pack 6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6316DBDEABBF75D52387BD39BB93678181203C4E
+magnet:?xt=urn:btih:707989E3C14D64CFD51743484D3FA589045A52CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,25 +366,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 601651   (998103) от 11.01.2013
+###  Публикация: 599428   (999431) от 06.01.2013
 
-Маша Стрельцова | Смесь бульдога с носорогом [2004] [RTF, FB2]
+Фотография - Фотограф Anna Bodnar
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998103.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я, Магдалина Потемкина, – профессиональная ведьма и горжусь этим! За мои специальные «охранки» от пули и конкурентов, а также заговоры на удачу в бизнесе бритоголовые братки, не скупясь, отваливают кругленькие суммы. Потому что их надежность стопроцентная. Так что все бандиты города чуть ли не молятся на ведьму Магдалину... Но и у меня бывают проблемы, и помочь их разрешить уж точно никто не в силах. Таинственным образом исчез воровской общак, в котором было два миллиона долларов! И кто его должен найти? Конечно, Магдалиночка! Я гадала всеми возможными способами, я искала не покладая рук, но все никак. Срок вышел. Что же делать? Я стремительно теряю репутацию могущественной ведьмы, да и жизни моей угрожают не на шутку. Ничего, есть еще один способ. Ну, держитесь, воры и обманщики!..Формат: RTF, FB2
+Фотография - Фотограф Anna BodnarРазрешение файлов: ~ 800x800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70B3C4EE7D5779D26027C6D073F31C7B328F5E53
+magnet:?xt=urn:btih:9D74910BDFB314D0396031F0F1EBAFC15AD8ADE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,26 +392,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 601382   (998102) от 11.01.2013
+###  Публикация: 598136   (999429) от 06.01.2013
 
-Эсмеральда Сантьяго | Завоевательница [2012] [RTF,FB2]
+Kaizen - Любим делать красиво (2011) [MP3|320 кб/с]<Alternative>
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998102.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999429.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роман Эсмеральды Сантьяго "Завоевательница", который авторитетный американский еженедельник "Publishers Weekly" назвал пуэрто-риканским вариантом "Унесенных ветром", - первое произведение писательницы, публикуемое на русском языке.
-Католический пансион, замужество, благополучная жизнь в кругу семьи, в тени супруга... Ни за что на свете! Независимая, упрямая Ана рвется прочь из родной Севильи, чтобы за морями-океанами, на далеком острове Пуэрто-Рико стать хозяйкой сахарной плантации - стать безраздельной хозяйкой своей судьбы. В этой саге о покорении земли, о преодолении условностей среды и воспитания нежная любовь уживается с бурной, запретной страстью, мечта о женском счастье - с готовностью приносить на алтарь заветной цели любые жертвы. Недаром среди предков Аны были бесстрашные конкистадоры: в хрупкой, но отважной Ане живет неукротимый дух завоевателей былых времен.Формат: RTF,FB2
+01. Любим делать красиво (4:27)
+02. Поколение Пох*й (3:36)
+03. Саломея (3:15)
+04. Я люблю с тобой молчать (3:35)
+05. Все Мы Гоним (3:07)
+06. По слогам (3:35)
+07. Web-Dr'Ocher (3:39)
+08. Шаг За Край (3:45)
+09. Шум inc (2:29)
+10. Dolphin (5:14)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37C742DE8ABE159FB430D23A6E5AE9146D0A955D
+magnet:?xt=urn:btih:68541AB594C2588717CC0E6141DEB5937D01B958
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,197 +427,347 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 601419   (998101) от 11.01.2013
+###  Публикация: 599198   (999428) от 06.01.2013
 
-Afgrund - The Age Of Dumb (2012) [MP3|320 кб/с]<Crust Grindcore / Deathgrind>
+Sothis - De Opresso Liber (2008) [WavPack|Lossless]<Symphonic Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998101.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Life And Death Of A Broiler
- 02. Living The Nightmare
- 03. The Might Of A Nation
- 04. H.A.A.R.P.Y.
- 05. Beaurocrap
- 06. Carniwars
- 07. Genocide To Glorify
- 08. Repaint The Truth
- 09. An Aggregation Of Misfortune
- 10. Discorporate(   Читать дальше...   )Жанр: Crust Grindcore / DeathgrindПродолжительность: 00:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E38AA56CD3ABD1171FDF224AD25CA309BA8521F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601389   (998098) от 11.01.2013
-
-Nebulous - The Quantum Transcendence Of Death (2013) [MP3|320 кб/с]<Technical Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of Means And Ends 01:48
- 02. Catalyze 03:55
- 03. SN 5270 03:37
- 04. Aggregating Powers 04:21
- 05. The Quantum Transcendence Of Death 01:25
- 06. Devourer Of The Cosmos 02:48
- 07. Forever Impaled 04:07
- 08. Hivemind 03:29
- 09. Spectrums 03:47Жанр: Technical DeathПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB83410237E7CF1ABDFE8920AC4AE8DC338F68F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601444   (998097) от 11.01.2013
-
-Журнал | Школа гастронома №2 [январь 2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школа гастронома - журнал для тех, кто любит готовить. В каждом номере журнала - кулинарные рецепты с подробнейшим поэтапным описанием приготовления блюда. Каждый шаг на пути к кулинарному шедевру, будь то яичница-глазунья или замысловатый французский соус, иллюстрирован цветными фотографиями. Все рецепты подобраны так, чтобы входящие в них продукты могла позволить (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C1997803597651C4F896554430E383F134551F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601659   (998094) от 11.01.2013
-
-Сергей Асанов | Экстрасенс [2009] [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он не считает себя ни волшебником, ни колдуном, ни магом.
-Он не умеет наводить порчу и передвигать предметы усилием воли.
-Он чувствует страх, и он знает, что такое смерть.
-Он обычный человек… просто он может видеть и слышать чуть больше, чем все остальные.
-Он – экстрасенс.
-Его первый «клиент» – человек на грани отчаяния, оказавшийся не в то время и не в том месте.
-В меру циничный и не очень везучий журналист Виктор Вавилов получает в руки Загадочное Нечто, способное перевернуть всю его жизнь.
-На первый взгляд обычная видеокамера может решить проблему с кредиторами или устранить богатого любовника собственной жены – достаточно навести ее на нужный объект и нажать кнопку «rec». Но цена, которую придется за это заплатить, окажется слишком высока.Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97A91C361A89EAAA08FC888A5B78560403D0CF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601399   (998092) от 11.01.2013
-
-Impaled Northern Moonforest - Flames of Hell (1997) [MP3|160 кб/с]<Acoustic Black>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - grim and frostbitten moongoats of the north
- 02 - forlorned invocations of blasphemyous congregations of lusting goat sodomizing sathanis
- 03 - gazing at the blasphemous moon while perched atop a very very very very very very very forsaken slope of the northern mountain
- 04 - bloodlustfully praising satans unholy allmightyness in the woods at midnight
- 05 - nocturnal cauldrons aflame amidst the northern hellwitch's perpetual blasphemy
- 06 - transfixing the forbidden blasphemous incantation of the conjering wintergoat
- 07 - masturbating on the unholy and inverted tracks of the grim and frostbitten necrobobsledders
- 08 - awaiting the blasphemous abomination of the necroyeti whilr sailing on thr nprthermost fjord of xzfgiiizmtsath
- 09 - lustfully worshiping the inverted moongoat while skiing down the inverted necromountain of necrodeathmortem
- 10 - awaiting the frozen blasphemy of the necroyeti's lusting necrobation upon the altar of voxrfszzzisf(   Читать дальше...   )Жанр: Acoustic BlackПродолжительность: 00:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E7E3D30AE161DFEBAA4A2C98FBEFF8C01C70C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601837   (998082) от 11.01.2013
-
-Antonio Forcione - Touch Wood (2003) [FLAC|Lossless]<Jazz, Gypsy Jazz, Flamenco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch Wood [03:37]
-02. Tarantella [05:16]
-03. Mirror Mirror (Vocals – Sabina Sciubba) [02:25]
-04. Alhambra (Vocals – Diego "El Cigala") [07:56]
-05. Sunstep [05:43]
-06. Gigolo (Vocals – Sabina Sciubba ) [04:16]
-07. Tango Suite [07:09]
-08. For Vic [04:53]
-09. Watercolour [01:50]
-10. Nostalgia [06:28](   Читать дальше...   )Жанр: Jazz, Gypsy Jazz, FlamencoПродолжительность: 00:56:14
+01. Of Night And Silence [03:57]
+02. De Opresso Liber [05:30]
+03. Beneath A Black Sky [05:49]
+04. Lunar Descent [04:49]
+05. Obsidian Throne [05:30]
+06. Defiance [06:55]
+07. The Cold Disconnection [04:20]
+08. Lair Of The Benighted  [05:29]
+09. Perpetual [05:58]Жанр: Symphonic Black MetalПродолжительность: 00:48:21
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599161   (999424) от 06.01.2013
+
+Aeternitas - Requiem (2000) [WavPack|Lossless]<Gothic Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introitus [03:29]
+02. Kyrie [01:53]
+03. Graduale [04:12]
+04. Tractus [03:13]
+05. Sequenz - Dies Irae [04:38]
+06. Sequenz - Mors Stupedit [05:54]
+07. Sequenz - Rex Tremendae [02:59]
+08. Sequenz - Confutatis [04:45]
+09. Sequenz - Lacrymosa [03:24]
+10. Offertorium [04:29](   Читать дальше...   )Жанр: Sympho Gothic MetalПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599670   (999416) от 06.01.2013
+
+[Wallpapers] Car wallpapers (06.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999416.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Car wallpapers (06.01.13)
+Название: Car wallpapers (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8557FCCAD1B0EE814702E4DA48AAD21A459ED4A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599388   (999415) от 06.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 16
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 3000х2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F561B7002D26EE37C2277B8D549FD52B99DF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599165   (999413) от 06.01.2013
+
+Robert Monroe - Tales Of Power (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hypnosis
+02. Sonora Trip
+03. Magic World
+04. Night Walking
+05. The Power of Silence
+06. Mescalito
+07. Welcome To Astral World
+08. Unreal
+09. Salvia Dream
+10. Tales of Power(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C3D161E7E0EA5EE6F55DC2F661E02C0747CE41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599442   (999411) от 06.01.2013
+
+VA - Paradise Islands (Mykonos Beach - Chillhouse Lounge Edition) (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monodeluxe - Look At Me Again
+02. H&H Soulsurvivors - Brazil
+03. Larse - Close Eyed Dancer
+04. Alex Douche - Stories (feat. Martin Landa)
+05. Deejay Lesa - Waves
+06. Neo Mind - Your Eyes (Original Mix)
+07. Sharon Phillips - Touch Me (Kenny Blake's Uplifting Remix)
+08. Paolo Madzone Zampetti - A2s
+09. Fast Vision Soul - Babatunde
+10. Demie - Alone in the Sunset(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B6A0C3DFC6F85BC2BFEC64F2D0DCFB85B9BA9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599410   (999410) от 06.01.2013
+
+Фотография - Фотограф Daria Endresen
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Daria Endresen
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CE11FA1A28BAAD6AC021C9EC981E2AB44CDB34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599135   (999409) от 06.01.2013
+
+Coffin Texts - The Tomb of Infinite Ritual (2012) [FLAC|Lossless]<Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Atum (Into the Divine Sphere) 00:54
+02 To Manifest 05:54
+03 Final Transformation 04:47
+04 The Sacred Eye 06:43
+05 Divination 08:01
+06 Throne of Genocide 06:04
+07 Dieties of the Prime Evil Chaos 05:21Жанр: Death MetalПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599664   (999408) от 06.01.2013
+
+[Wallpapers] World of Animals (06.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999408.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] World of Animals (06.01.13)
+Название: World of Animals (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 4200х2800
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB32A28C65C02DFDA71AA1898CD784EA7FF4E624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599258   (999406) от 06.01.2013
+
+Don Felder - Road To Forever (2012) [MP3|320 кб/с]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fall From The Grace Of Love (3:44)
+02.  Girls In Black (3:36)
+03.  Wash Away (4:16)
+04.  I Believe In You (3:56)
+05.  You Don't Have Me (3:45)
+06.  Money (4:09)
+07.  Someday (4:10)
+08.  Heal Me (7:21)
+09.  Over You (4:06)
+10.  Road To Forever (4:57)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23A721D4A75EF2F81AB79BB4F0098095ED83DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599382   (999405) от 06.01.2013
+
+[Wallpapers] Art collection (06.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999405.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Art collection (06.01.13)
+Название: Art collection (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C282D38980A37BAAB71B899518087C27DF9DFCAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

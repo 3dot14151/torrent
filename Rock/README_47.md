@@ -1,3 +1,61 @@
+###  Публикация: 927519   (528762) от 13.08.2015
+
+Ricky Nelson - Les Genies du Rock - I'm Walkin' (1993) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Travellin' Man (2:21)
+02.  Hello Mary Lou (2:18)
+03.  Poor Little Fool (2:31)
+04.  Garden Party (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715A3E528471C5D80457E9A206668B78B147BB7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156246   (528496) от 06.08.2017
+
+Arcade Fire - Everything Now (2017) [MP3|320 Kbps] <Indie Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything_Now (continued)
+02. Everything Now
+03. Signs of Life
+04. Creature Comfort(   Читать дальше...   )Жанр: Indie Rock, RockПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20DB5DA4FEBFE0B58DC7802F14EF98CA4E81333F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156963   (526407) от 09.08.2017
 
 VA - Zlote przeboje radia Pogoda (1997) [MP3|320 Kbps] <Pop-rock, Polish-rock, Soft-rock>
@@ -698,64 +756,6 @@ Status Quo - Down Down & Dirty At Wacken (2018) (Live)  [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:104928D73D4FCE69A7CB7DB5A5147F17A95B3F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929377   (519593) от 19.08.2015
-
-Tokyo Rose - New American Saint (2005) [MP3|320 кб/с]<Pop Punk, Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spectacle (03:38)
-02. New American Saint (03:26)
-03. Goodbye Almond Eyes (04:03)
-04. The Tin Man Gets His Heart (04:45)(   Читать дальше...   )Жанр: Pop Punk, Alternative Rock, IndieПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983EB95F9808C1817134F2DE9077E8967E027B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929314   (519586) от 19.08.2015
-
-Rare Earth - Get Ready (1969) [MP3|320 кб/с]<Rock, Funk Rock, Blues, Acid Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519586.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Magic Key
-2. Tobacco Road
-3. Feelin' Alright
-4. In Bed(   Читать дальше...   )Жанр: Rock, Funk Rock, Blues, Acid RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FC2268BD3FE341FED439557E5D19240955E1B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1045495   (559102) от 23.08.2016
+
+Шаблоны - Best Price Offer V1 PSD Flyer Template + Facebook Cover [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флаер и Facebook Cover для Вашего творчества. Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 1350x1950 / 3546х1313 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDDA072DF9764F63AAD4FA00ACD43565765FDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045499   (558985) от 23.08.2016
 
 Шаблоны - Elegantflyer - Restaurant Menu – Free PSD Tri-Fold PSD Brochure Template [PSD]
@@ -656,34 +682,6 @@ Abstract Smoke - шаблон для Вашего творчества.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C88BAB3BEF98F2292F965D6B361D8B87593D0966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311643   (539738) от 30.06.2019
-
-Шаблоны - Бордово-золотая [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотокнига для фотошопа – Бордово-золотая.
-Количество: 1 обложка, 5 разворотов
-Автор: эрагонФормат: PSDРазрешение файлов: 7088x3543
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3DB227BEB12A0B6B5F3DB7A717202CFBF25048
 ```
 
 https://mybot314.ru/tekegram_catalog/

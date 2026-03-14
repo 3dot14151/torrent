@@ -1,3 +1,61 @@
+###  Публикация: 1558434   (528856) от 22.06.2022
+
+Justus - Live at W Amsterdam, Netherlands (Exclusive Mix) (2022-05-30) [MP3|320 Kbps] <Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justus - Tunnel w/J Balvin & Skrillex - In Da Getto w/Foreigner - Cold As Ice
+02. Ron Van Den Beuken - Timeless (Justus Until Sunrise Version) w/Yeah Yeah Yeahs - Heads Will Roll (A-Trak Remix)
+03. Justus - Speed w/Tiësto & Ava Max - The Motto
+04. ShortRound - Fly w/R.E.M. - Losing My Religion(   Читать дальше...   )Жанр: Big RoomПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B6D0BDA111AAA1034A5135860A94B72DAD9EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558865   (528797) от 22.06.2022
+
+David Guetta & MORTEN - Live @ kineticFIELD, EDC Las Vegas, United States (2022-05-21) [MP3|~245 Kbps (V0)] <Progressive House, Electro House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN - Permanence
+02. David Guetta & MORTEN & Roland Clark - Alive Again
+03. David Guetta & MORTEN - ID
+04. David Guetta & MORTEN - Kill Me Slow(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170FB2D5DC435312D7A8C0B885F7AAB91204338E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558898   (528789) от 22.06.2022
 
 Swedish House Mafia & The Weeknd - Live @ Coachella Stage, Coachella Festival Weekend 2, United States (2022-04-24) [MP3|320 Kbps] <Electro House, R&B, Funk>
@@ -682,64 +740,6 @@ VA - Ori Uplift & Kevin 3Ngel - Uplifting Only 235 (2017) [MP3|320 Kbps] <Uplift
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC21A01AD96DA8A279E984767E8376FF655AA2D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159005   (488128) от 18.08.2017
-
-VA - Ori Uplift & Bryan Summerville - Uplifting Only 236 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Blueman - Time To Rest
-02. EverLight Feat. Emma Chatt - Stronger (A.R.D.I. Remix)
-03. Zoë Song feat. Sophia Omarji - Frozen In Time
-04. Aurosonic & Sue McLaren - Captured By Gravity (Omar Sherif Extended Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF69E405AAA05838ED524EB7BF3482AF657CF66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244170   (484207) от 31.08.2018
-
-VA - Markus Schulz & Jordan Suckley - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Calvin Harris & Sam Smith - Promises (Pink Panda Remix / Coldharbour Retouch)
-02. Markus Schulz featuring Sebu (Capital Cities) - Upon My Shoulders (Markus Schulz Festival Mix)
-03. Addictive Glance - Pay No Mind (Harry Square Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7159D27A53589B67288EC198BDBF358A54BFA331
 ```
 
 https://mybot314.ru/tekegram_catalog/

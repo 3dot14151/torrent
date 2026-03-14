@@ -1,3 +1,351 @@
+###  Публикация: 1333884   (299134) от 27.10.2019
+
+Peshmerga - Murderous Acts of Cruelty (2010) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hordes Of Assassins (04:29)
+02. Butchered In Captivity (04:38 )
+03. Suicide On Impulse (03:51)
+04. Murderous Acts Of Cruelty (04:39)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F830221B3631B20A3F3AEAB00BC7E0D2C1A12EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333921   (299133) от 27.10.2019
+
+Dragon - Horde of Gog + Horda Goga (1989+1990) Remastered, 2008 [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299133.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Horde of Gog"
+01. Horde of Gog
+02. Seven Bowls Of Wrath
+03. Eternal Rest(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D825EFF2F2A7D66C966011886507D1FA993C93A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333892   (299130) от 27.10.2019
+
+Revenge - From Hell (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimension Of Sin (intro)
+02. Total Aggression
+03. Jesus On The Cross
+04. Bloodfist(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:29:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C23916C2EE3490218FA601909C2DD7CBDA9EDE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334091   (299129) от 27.10.2019
+
+For All We Know - For All We Know (2011) [FLAC|Lossless|image + .cue] <Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Me (4:09)
+02. Busy Being Somebody Else (5:30)
+03. Out Of Reach (6:02)
+04. When Angels Refuse To Fly (5:42)(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1376DEBAAA02B61D98809D0656E74BC5D163BD7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334088   (299124) от 27.10.2019
+
+For All We Know - Take Me Home (2017) [FLAC|Lossless|image + .cue] <Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe: In (1:31)
+02. Take Me Home (6:14)
+03. Fade Away (4:20)
+04. They'll Win (4:42)(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18901ACDFAA8B104B0BB66AD7D9CD6F4F8259CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334049   (299123) от 27.10.2019
+
+Searing Meadow - Corroding From Inside (2005) [WavPack|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasted Heroes [04:04]
+02. All Obvious [03:27]
+03. Another Savior [05:10]
+04. Infamous Lines [04:33](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C37002860EB3FF85F38CB51EB17715EFB244A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333939   (299122) от 27.10.2019
+
+Stravaganzza - Su Historia (2009) 4CD [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deja De Llorar
+02. Grande
+03. Máscara De Seducción
+04. Hombre(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FEAB1BA7367CE7EF12096F946077354757EF29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333894   (299121) от 27.10.2019
+
+Dysrhythmia - Test of Submission (2012) [FLAC|Lossless|image + .cue] <Instrumental Technical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Secrecy (5:11)
+02. Test Of submission (4:53)
+03. The Line Always Snaps (6:06)
+04. Running Towards The End (5:41)(   Читать дальше...   )Жанр: Instrumental Technical MetalПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47C4EEDD11FEBCA23386C208F879E64CE1EFD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333881   (299117) от 27.10.2019
+
+Night Verses - Into The Vanishing Light (2016) [FLAC|Lossless|image + .cue] <Experimental Post Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Future As History: I Love You Dead (4:14)
+02. Connecting Hexes (3:34)
+03. Drift (5:01)
+04. A Dialogue In Cataplexy (5:17)(   Читать дальше...   )Жанр: Experimental Post MetalПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B77FBF2447361E5546ADB5AB3C1E179FCDB8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334153   (299116) от 27.10.2019
+
+Peer Gunt - Years On The Road (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Years on the road [04:13]
+02 - Bad boys are here [03:53]
+03 - Bartender [03:11]
+04 - Losin' my mind [04:08](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8656CBB141E304540F6D247EAFF4399E3388D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334084   (298960) от 27.10.2019
+
+Fit for an Autopsy - The Sea of Tragic Beasts (2019) [FLAC|Lossless|image + .cue] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sea Of Tragic Beasts 4:24
+02. No Man Is Without Fear 4:39
+03. Shepherd 4:11
+04. Your Pain Is Mine 5:12(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E823D20942C0A71655A07AF7D8140ED1EBC5AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961666   (298717) от 02.12.2015
+
+Accept - Russian Roulette (1986) Japanese Edition /2009, Epic/ [FLAC|image +.cue]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T.V. War
+02. Monsterman
+03. Russian Roulette
+04. It's Hard To Find A Way(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBBBFD4E2550D7150B374A56C4C0E71464F4C7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423797   (298163) от 14.11.2020
 
 Dwarrowdelf - Evenstar (2020) [FLAC|Lossless|image + .cue] <Epic Black Metal>
@@ -397,354 +745,6 @@ Stratovarius — финская англоязычная пауэр-метал-�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58AABFE0D79769A9FD986C1DCB3A1D90F144DF04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079631   (292219) от 05.12.2016
-
-Slechtvalk - Falconry (2000) [APE|Lossless|image + .cue] <Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cries Of The Haunted 5:50
-02. T.M.B.W.G.M.N.L. 4:47
-03. In Hell I Burn 4:48
-04. My Bleeding Heart 4:27(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43E8A8B242ED20ADEF0494711A22DA51A850A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079680   (292211) от 05.12.2016
-
-Slechtvalk - The War That Plagues The Lands (2002) [APE|Lossless|image + .cue] <Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of Slumber And Death 3:50
-02. A Plea For The King 6:59
-03. From Behind The Trees 5:28
-04. My Last Call 10:59(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473B373E89921C17FFCEEE613FD8BB59824D9ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079618   (292149) от 05.12.2016
-
-Morgart - Die Türme (2007) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulverturm
-02. Männliturm
-03. Luegisland
-04. Wachturm(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1600A71EA66ADE969FE64C425E71B1D3A2150F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079797   (292143) от 05.12.2016
-
-Carnal Grief - Out of Crippled Seeds (2004) [WavPack|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The New Era 02:58
-02. Selfclaimed King 03:40
-03. Insanitary 03:56
-04. Entrapment Concealed 03:11(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E6FE64681B4EFBFEAF509B210E45FF1E6BF01E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079719   (292138) от 05.12.2016
-
-Slechtvalk - Thunder Of War (2005) [APE|Lossless|image + .cue] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder Of War (Single Version)
-02. Illusions
-03. Loss
-04. Thunder Of War (Album Version)Жанр: Pagan Black MetalПродолжительность: 00:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0218E10D7B635731B3CD3E48C133EF7397F17806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079752   (292071) от 05.12.2016
-
-Blind Stare - Symphony of Delusions (2005) [WavPack|Lossless|image + .cue] <Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Central Theory
-02. My Black Letter
-03. Ender
-04. An Insane’s Diary pt. II(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AC5825C34729B6DE03BC2EB3673034521A9C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334990   (291677) от 31.10.2019
-
-Persecutor - Rebirth (2019) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291677.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Rebirth [1:25]
- 2 - Burn [3:14]
- 3 - Old School Thrash Metal [3:19]
- 4 - King Of The World [3:47](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F672580F59845E4C0275654D15B0B80CAD33C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962777   (291495) от 06.12.2015
-
-Angeli Di Pietra - Storm Over Scaldis (2009) [FLAC|image +.cue]<Folk, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tempest - Intro
-02. Ride into Oblivion
-03. For Us, Fallen Ones
-04. Manann?n mac Lir(   Читать дальше...   )Жанр: Folk, Power MetalПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8D47F422237564709B26588C8CD3D273E546F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262951   (291411) от 17.11.2018
-
-Sirenia - Arcane Astral Aeons (2018) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Styx Embrace (6:01)
-02. Into The Night (4:41)
-03. Love Like Cyanide (5:49)
-04. Desire (5:15)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B42EF03055B8896D9A9CAF7736FB9F9E15C6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962859   (291344) от 06.12.2015
-
-Graveshadow - Nocturnal Resurrection (2015) [FLAC|image +.cue]<Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Namesake 05:32
-02. In The Road Of Desire 06:15
-03. Lycan Lust 05:20
-04. Winters Come To Call 06:59(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275CAF7E8D1F57C450AD9E4F145F63279A5CB653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080033   (290332) от 06.12.2016
-
-Eternal Idol - The Unrevealed Secret (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evil Tears
-02. Another Night Comes
-03. Awake in Orion
-04. Is the Answer Far from God?(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D66262C0214A3FED2339E8F73FE2F4E9C1E45C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263159   (289930) от 18.11.2018
-
-Leah - The Quest (2018) [FLAC|Lossless|image + .cue] <Symphonic Metal, Medieval Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Quest 10:19
-02.Edge Of Your Sword 5:02
-03.Lion Arises 4:41
-04.Heir 4:09(   Читать дальше...   )Жанр: Symphonic Metal, Medieval Folk-RockПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC320473C01C2C20F11CBD121AE51A103FE5361B
 ```
 
 https://mybot314.ru/tekegram_catalog/

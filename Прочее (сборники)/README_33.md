@@ -1,3 +1,32 @@
+###  Публикация: 1109193   (858777) от 27.02.2017
+
+VA - Dance Wicked (2017) [MP3|320 Kbps] <House, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858777.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Deugene - Deadliest Sound (Original Mix) 3:38
+002. Daleri Ft Vice - Somebody Told Me (En Route) 3:06
+003. Aleo - Haribda (Original Mix) 4:27
+004. 808 State - In Yer Face (Bicep Remix) 7:42(   Читать дальше...   )Жанр: House, Electro, ProgressiveПродолжительность: 07:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9697C0A1F7A99B376EB7C10CFE4034F979B94037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000495   (858611) от 25.03.2016
 
 VA - Дискотека 2016 Dance Club Vol.150 от NNNB (2016) [MP3|192-320 кб/с] <Club, Dance  Trance, House, Dubstep, Pop,  Breaks, Trap,  Bass, Chill Out>
@@ -714,35 +743,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26CFE8D91E9D92211CD6F79E7F01DC4BECBD68BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498771   (854291) от 28.09.2021
-
-VA - Music News vol.136 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854291.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mira & Javid - Sene Ne (03:33)
- 002. Alex Mica - Ven Atras (03:10)
- 003. AliB - Она Ушла (02:13)
- 004. Alishka feat. Rufo - Чёрный BMW (02:34)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459D5E1693CCF5098B17A3FE9149279F1FBC0A3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

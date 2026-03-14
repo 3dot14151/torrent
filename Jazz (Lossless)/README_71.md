@@ -1,3 +1,90 @@
+###  Публикация: 1122883   (793717) от 06.04.2017
+
+Ike Quebec - With A Song In My Heart (1962) Remaster, 2012, EMI Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.How Long Has This Been Going On [06:02]
+ 02.With A Song In My Heart [03:59]
+ 03.Imagination [05:12]
+ 04.What Is There To Say [04:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17935377532AF57AA214494486F6D0F5A63802AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122900   (793713) от 06.04.2017
+
+Billy Cobham - Life & Times (1976) 2000, Wounded Bird [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Life & Times [07:02]
+ 02.29 [02:35]
+ 03.a) Siesta b) Wake Up!!!!!! That's What You Said [03:58]
+ 04.East Bay [06:12](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD176ECEF720765DAE831E8A723FD165C44AD439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386796   (793674) от 30.05.2020
+
+Francis Albert Sinatra & Antonio Carlos Jobim - Francis Albert Sinatra & Antonio Carlos Jobim (1967) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совместный альбом Фрэнка Синатры и Антонио Карлоса Жобима, вышедший в 1967 году. Наряду с оригинальными композициями Жобина, в альбом вошло несколько стандартов из "Great American Songbook" ("Change Partners", "I Concentrate on You", and "Baubles, Bangles and Beads"), исполненные в стиле босса-нова. Аранжировки в исполнении (   Читать дальше...   )01. The Girl From Ipanema (Garota De Ipanema) (3:17)
+02. Dindi (3:30)
+03. Change Partners (2:43)
+04. Quiet Nights of Quiet Stars (Corcovado) (2:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5855C3E63FE3DDA42EAF1E1E75CE2F996B2F26BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012523   (793673) от 01.05.2016
 
 Billie Holiday - My Man (1995) Series Success [APE|Lossless|image + .cue] <Jazz, Blues>
@@ -656,93 +743,6 @@ Caterina Valente - The Jazz Singer (1954, 1955) 2017, Jazzhaus [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62A3B1263AF99DF48458C2918F79D1EF2C16CB35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201560   (792231) от 25.01.2018
-
-Elsie Bianchi - Fly Me To The Moon (1960 - 1962) 2011, Sonorama [FLAC|Lossless|image + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Remember Clifford [05:00]
-02. Hot Dig a Dee [04:38]
-03. No Moon at All [02:51]
-04. Paradise [03:10](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4F7C9A46FBBC98E379D0DD0188211F3BD8BDEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201550   (792230) от 25.01.2018
-
-Caterina Valente In London (1963) 2004, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Fly with Me [02:48]
-02. My Funny Valentine [02:58]
-03. I've Got You Under My Skin [02:54]
-04. Never Will I Marry [02:37](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C3E50C2AE1AABFC9E67E2DFE864F15CC019342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510091   (792209) от 15.11.2021
-
-Steve Tyrell - This Time Of The Year (2002) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Claus Is Coming to Town [2:10]
-02. Winter Wonderland [2:44]
-03. Rudolph the Red-Nosed Reindeer (feat. Clark Terry) [3:16]
-04. The Christmas Song [4:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185A7907A4C083773FCB99B91F1842906043C474
 ```
 
 https://mybot314.ru/tekegram_catalog/
